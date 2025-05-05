@@ -1,3 +1,15 @@
+**Brian Kemp Won’t Run for Senate in Georgia, Giving Ossoff a Lift**\
+`The popular two-term governor of Georgia had been seen as the strongest potential Republican challenger to Senator Jon Ossoff, a Democrat.`\
+https://nytimes.com/2025/05/05/us/politics/brian-kemp-senate-georgia-jon-ossoff.html
+
+**Spurs officially pass the coaching torch from Popovich to Johnson**\
+`In November, Johnson took over head coaching duties from Popovich, who suffered a stroke and had been away from the team indefinitely. `\
+https://nytimes.com/athletic/6334941/2025/05/05/spurs-gregg-popovich-mitch-johnson-nba/
+
+**University President Who Shut Down D.E.I. Efforts Is Recruited to Florida**\
+`The University of Michigan’s president, Santa Ono, is set to leave for the University of Florida to become one of the highest-paid public university presidents ever.`\
+https://nytimes.com/2025/05/05/us/university-of-michigan-florida-santa-ono-presidency.html
+
 **Long Island Judge Expected to Be Named Interim U.S. Attorney in Brooklyn**\
 `President Trump, facing opposition from New York’s senior senator, will name Joseph Nocella Jr. to do the job on a temporary basis.`\
 https://nytimes.com/2025/05/05/nyregion/nocella-edny-us-attorney.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6334814/2025/05/05/nba-championship-odds-thunder-ce
 **Gluck: Joey Logano is back in the playoffs. Now he has a chance to do the funniest thing**\
 `Logano, NASCAR's most polarizing champion, won Sunday at Texas to secure a spot in the playoffs. And you know what that means.`\
 https://nytimes.com/athletic/6334804/2025/05/05/joey-logano-nascar-playoffs-texas/
-
-**The 50 Best Movies on Max Right Now**\
-`In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
-https://nytimes.com/article/best-hbo-max-movies.html
-
-**Trial in Bombing of U.S. Warship Is Postponed Until June 2026**\
-`The trial had been set to begin on Oct. 6, days before the 25th anniversary of the attack that killed 17 U.S. sailors on the destroyer Cole.`\
-https://nytimes.com/2025/05/05/us/politics/uss-cole-trial-postponed.html
-
-**What Jesse Winker's injury means for Brett Baty and the Mets**\
-`With designated hitter Jesse Winker dealing with what’s likely an oblique injury, infielder Brett Baty is rejoining the New York Mets from Triple A, league sources confirmed.`\
-https://nytimes.com/athletic/6335017/2025/05/05/jesse-winker-injury-brett-baty/
 

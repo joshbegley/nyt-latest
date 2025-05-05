@@ -1,3 +1,15 @@
+**Brian Kemp Won’t Run for Senate in Georgia, Giving Ossoff a Lift**\
+`The popular two-term governor of Georgia had been seen as the strongest potential Republican challenger to Senator Jon Ossoff, a Democrat.`\
+https://nytimes.com/2025/05/05/us/politics/brian-kemp-senate-georgia-jon-ossoff.html
+
+**Spurs officially pass the coaching torch from Popovich to Johnson**\
+`In November, Johnson took over head coaching duties from Popovich, who suffered a stroke and had been away from the team indefinitely. `\
+https://nytimes.com/athletic/6334941/2025/05/05/spurs-gregg-popovich-mitch-johnson-nba/
+
+**University President Who Shut Down D.E.I. Efforts Is Recruited to Florida**\
+`The University of Michigan’s president, Santa Ono, is set to leave for the University of Florida to become one of the highest-paid public university presidents ever.`\
+https://nytimes.com/2025/05/05/us/university-of-michigan-florida-santa-ono-presidency.html
+
 **Long Island Judge Expected to Be Named Interim U.S. Attorney in Brooklyn**\
 `President Trump, facing opposition from New York’s senior senator, will name Joseph Nocella Jr. to do the job on a temporary basis.`\
 https://nytimes.com/2025/05/05/nyregion/nocella-edny-us-attorney.html
