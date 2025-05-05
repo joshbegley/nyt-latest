@@ -1,3 +1,7 @@
+**Phillies takeaways: Harper and Bohm's power outage, Walker's new role, platooning Kepler**\
+`The Phillies' first and third basemen ranked second in MLB last season with an .811 OPS but have a .664 OPS (17th) this season.`\
+https://nytimes.com/athletic/6333449/2025/05/05/phillies-bryce-harper-alec-bohm-power-stats/
+
 **Why OL Donovan Jackson was a safe first-round NFL Draft pick for the Vikings**\
 `Former coaches see the ex-Ohio State lineman as a high-floor NFL prospect: "He’s going to be very, very, very successful.”`\
 https://nytimes.com/athletic/6329943/2025/05/05/donovan-jackson-vikings-nfl-draft-safe/

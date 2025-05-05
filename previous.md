@@ -1,3 +1,7 @@
+**Phillies takeaways: Harper and Bohm's power outage, Walker's new role, platooning Kepler**\
+`The Phillies' first and third basemen ranked second in MLB last season with an .811 OPS but have a .664 OPS (17th) this season.`\
+https://nytimes.com/athletic/6333449/2025/05/05/phillies-bryce-harper-alec-bohm-power-stats/
+
 **Why OL Donovan Jackson was a safe first-round NFL Draft pick for the Vikings**\
 `Former coaches see the ex-Ohio State lineman as a high-floor NFL prospect: "He’s going to be very, very, very successful.”`\
 https://nytimes.com/athletic/6329943/2025/05/05/donovan-jackson-vikings-nfl-draft-safe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329630/2025/05/05/dan-mullen-unlv-football-coach-e
 **What's next in the NFL? Aaron Rodgers' decision, Brock Purdy's contract, more tush-push talk**\
 `With the NFL Draft over, what are the top stories to follow in the next six weeks before the league takes a short summer break? `\
 https://nytimes.com/athletic/6326544/2025/05/05/nfl-top-stories-aaron-rodgers-brock-purdy-tush-push/
-
-**Ten things I learned from reading Bill Belichick's book (and what it left out)**\
-`What stood out, from the Bill Belichick Travel Agency to the coach's unique pick for a ring tone. As for UNC, not much was addressed.`\
-https://nytimes.com/athletic/6333007/2025/05/05/bill-belichick-book-release-learned/
 
