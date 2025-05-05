@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6333707/2025/05/05/college-baseball-arkansas-texas-
 `When the Warriors needed it most, Buddy Hield delivered a career night to defeat Houston and send Golden State into the second round.`\
 https://nytimes.com/athletic/6333977/2025/05/05/buddy-hield-warriors-rockets-game-7/
 
+**What Alexander-Arnold would bring to Real Madrid**\
+`Alexander-Arnold finally looks set to join Real Madrid this summer. How significant could it be on the pitch?`\
+https://nytimes.com/athletic/6326850/2025/05/05/trent-alexander-arnold-real-madrid-analysis/
+
 **Minnesota nice will go out the window when Jimmy Butler, Draymond Green come to town**\
 `Wolves fans still resent the way Butler left the franchise and how Green has trash-talked them. Expect vitriol when this series tips off.`\
 https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timberwolves-warriors-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/business/dealbook/what-buffetts-exit-means.html
 **Why Warren Buffett’s Departure Matters**\
 `Yes, he made lots of money. But the closely watched investor amassed a following by being a conscience of capitalism, and his exit raises questions about what’s next for his company.`\
 https://nytimes.com/2025/05/05/business/dealbook/buffett-berkshire-hathaway-abel.html
-
-**Trump Administration Live Updates: President Pressed for U.S. Troops to Fight Cartels in Mexico**\
-``\
-https://nytimes.com/live/2025/05/05/us/trump-news
 

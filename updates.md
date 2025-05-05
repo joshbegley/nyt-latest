@@ -1,3 +1,7 @@
+**What Alexander-Arnold would bring to Real Madrid**\
+`Alexander-Arnold finally looks set to join Real Madrid this summer. How significant could it be on the pitch?`\
+https://nytimes.com/athletic/6326850/2025/05/05/trent-alexander-arnold-real-madrid-analysis/
+
 **Golden Knights prepare for 'heavyweight' Oilers, but will the animosity from 2023 return?**\
 `Vegas isn’t typically the team to initiate physicality and bad blood, but their coach believes they thrive in that type of play.`\
 https://nytimes.com/athletic/6332108/2025/05/05/golden-knights-oilers-playoffs-2025-2023/
