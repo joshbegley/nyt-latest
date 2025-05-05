@@ -1,3 +1,15 @@
+**The Athletic awards 2024-25: Vote for your men's and women's young player of the season**\
+`As part of our end-of-season awards, we would like our readers to vote for the best young player in the Premier League and WSL`\
+https://nytimes.com/athletic/6326488/2025/05/05/young-player-of-the-season-vote/
+
+**Pressure is on Cavs to play Darius Garland as trickle-down effect showed in Game 1 loss**\
+`Without Garland, the Cavs didn’t execute their usual drive/kick/swing offense, which resulted in isolation dribbling and contested jumpers.`\
+https://nytimes.com/athletic/6333814/2025/05/05/cavaliers-pacers-darius-garland-nba-playoffs/
+
+**When Mikel Arteta was a Paris Saint-Germain player: 'The guy is a born leader'**\
+`Those who played with him at PSG reflect on his maturity and potential as a future coach`\
+https://nytimes.com/athletic/6304677/2025/05/05/when-mikel-arteta-was-a-paris-saint-germain-player/
+
 **Tears, tributes and Everton being Everton: Saying goodbye to Goodison with my dad**\
 `The final weeks of Goodison and Premier League action are upon Everton - and The Athletic wanted to say a personal and emotional goodbye`\
 https://nytimes.com/athletic/6332336/2025/05/05/everton-goodbye-to-goodison-with-dad/
