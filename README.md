@@ -1,4 +1,8 @@
-**OpenAI Backtracks On Plans to Drop Nonprofit Control**\
+**2025 Stanley Cup odds: Panthers, Hurricanes lead the way in tight group of contenders**\
+`Florida and Carolina are at the top of a crowded Stanley Cup odds board ahead of the second round of the NHL playoffs.`\
+https://nytimes.com/athletic/6335042/2025/05/05/2025-stanley-cup-odds-panthers-hurricanes/
+
+**OpenAI Backtracks on Plans to Drop Nonprofit Control**\
 `The company will become a public benefit corporation and the nonprofit that has controlled it will be its largest shareholder.`\
 https://nytimes.com/2025/05/05/technology/openai-nonprofit.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/05/books/american-poetry.html
 **Bear Kills Man and Dog in Southwest Florida, Officials Say**\
 `The authorities received a report on Monday about a bear encounter in an unincorporated part of Collier County just north of Everglades City, Fla.`\
 https://nytimes.com/2025/05/05/us/florida-man-dead-bear-encounter.html
-
-**Denver Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
-`Tell us what is on your mind as the Broncos prepare to hit the field in their offseason program.`\
-https://nytimes.com/athletic/6335092/2025/05/05/denver-broncos-mailbag-submission/
 
