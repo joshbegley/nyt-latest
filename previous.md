@@ -1,3 +1,7 @@
+**NBA playoffs results and takeaways: Pacers beat Cavaliers 121-112**\
+`Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, surpassing Michael Jordan for the NBA record.`\
+https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
+
 **Lance McCullers Jr.'s return to mound shows Astros will need to be patient**\
 `The right-hander's first outing after a 915-day absence offers Houston little clarity on what to expect moving forward.`\
 https://nytimes.com/athletic/6333497/2025/05/04/lance-mccullers-jr-back-with-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333433/2025/05/04/texas-rangers-fire-offensive-coo
 **Shota Imanaga exits Sunday's loss with a hamstring strain as Cubs' thin pitching staff takes a hit**\
 `"We'll probably do some imaging to see what's going on," Craig Counsell said after the Cubs' 4-0 loss to the Brewers on Sunday.`\
 https://nytimes.com/athletic/6333325/2025/05/04/cubs-brewers-shota-imanaga-hamstring-strain/
-
-**Red Sox takeaways: Garrett Crochet avoids injury, but offense, bullpen sputter again**\
-`The bullpen hasn't had much margin for error with the Red Sox's inconsistent offense and hasn't handled late leads well recently.`\
-https://nytimes.com/athletic/6333311/2025/05/04/red-sox-takeaways-bullpen-offense-struggles/
 

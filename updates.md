@@ -1,3 +1,7 @@
+**NBA playoffs results and takeaways: Pacers beat Cavaliers 121-112**\
+`Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, surpassing Michael Jordan for the NBA record.`\
+https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
+
 **Lance McCullers Jr.'s return to mound shows Astros will need to be patient**\
 `The right-hander's first outing after a 915-day absence offers Houston little clarity on what to expect moving forward.`\
 https://nytimes.com/athletic/6333497/2025/05/04/lance-mccullers-jr-back-with-astros/
