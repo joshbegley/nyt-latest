@@ -1,3 +1,15 @@
+**Ford Says Tariffs Will Cost Company $1.5 Billion in 2025**\
+`Ford Motor also reported a sharp drop in profits in the first three months of the year.`\
+https://nytimes.com/2025/05/05/business/economy/ford-earnings-tariffs.html
+
+**David Carle signs multiyear extension to remain University of Denver head coach**\
+`Carle was linked to multiple NHL head coaching vacancies over the past few weeks.`\
+https://nytimes.com/athletic/6335317/2025/05/05/david-carle-denver-coach-nhl/
+
+**THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, Matthew Boyd**\
+`The Athletic and THE BAT X team up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
+https://nytimes.com/athletic/6334346/2025/05/05/the-bat-x-fantasy-baseball-cheat-sheet-ezequiel-tovar/
+
 **THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, Matthew Boyd**\
 `The Athletic and THE BAT X teamed up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
 https://nytimes.com/athletic/6334346/2025/05/05/the-bat-x-fantasy-baseball-cheat-sheet-ezequiel-tovar/
