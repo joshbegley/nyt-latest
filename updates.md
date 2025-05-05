@@ -1,3 +1,15 @@
+**Staple: What I'm hearing about Islanders' front-office search — and what it means for Patrick Roy's future**\
+`After 13 days, it appears that the Isles' ownership group has targeted a shorter-term approach on finding a new leader.`\
+https://nytimes.com/athletic/6332929/2025/05/05/islanders-front-office-search-urgency/
+
+**What to watch in sports this week: NBA and NHL playoffs, Champions League semis and more**\
+`There's a lot going on in sports right now. We've got you covered. Here's a national TV recommendation for each day of the forthcoming week.`\
+https://nytimes.com/athletic/6333708/2025/05/05/barcelona-inter-arsenal-psg-nba-nhl-mlb-ncaa-how-to-watch/
+
+**Travelers Face Delays as Newark Airport Chaos Enters Second Week**\
+`Weather-related delays on top of staffing shortages and runway construction have snarled travel at one of the nation’s busiest airports.`\
+https://nytimes.com/2025/05/05/nyregion/newark-airport-delays-disruptions-issues.html
+
 **'It was all just a joke to them,' E.M. testifies in Hockey Canada trial**\
 `Woman at the heart of the Hockey Canada trial describes feeling "very vulnerable" on the night of the alleged sexual assault. `\
 https://nytimes.com/athletic/6334552/2025/05/05/hockey-canada-sexual-assault-trial-em-testifies/
