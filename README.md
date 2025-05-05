@@ -1,3 +1,15 @@
+**The Athletic awards 2024-25: Vote for your men's and women's young player of the season**\
+`As part of our end-of-season awards, we would like our readers to vote for the best young player in the Premier League and WSL`\
+https://nytimes.com/athletic/6326488/2025/05/05/young-player-of-the-season-vote/
+
+**Pressure is on Cavs to play Darius Garland as trickle-down effect showed in Game 1 loss**\
+`Without Garland, the Cavs didn’t execute their usual drive/kick/swing offense, which resulted in isolation dribbling and contested jumpers.`\
+https://nytimes.com/athletic/6333814/2025/05/05/cavaliers-pacers-darius-garland-nba-playoffs/
+
+**When Mikel Arteta was a Paris Saint-Germain player: 'The guy is a born leader'**\
+`Those who played with him at PSG reflect on his maturity and potential as a future coach`\
+https://nytimes.com/athletic/6304677/2025/05/05/when-mikel-arteta-was-a-paris-saint-germain-player/
+
 **Tears, tributes and Everton being Everton: Saying goodbye to Goodison with my dad**\
 `The final weeks of Goodison and Premier League action are upon Everton - and The Athletic wanted to say a personal and emotional goodbye`\
 https://nytimes.com/athletic/6332336/2025/05/05/everton-goodbye-to-goodison-with-dad/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/business/china-tariffs-de-minimis-guangzhou.html
 **Quote of the Day: As Gaza Siege Grinds On, Gazan Children Go Hungry and Patients Die**\
 `Quote of the Day for Monday, May 5, 2025`\
 https://nytimes.com/2025/05/05/pageoneplus/quote-of-the-day-as-gaza-siege-grinds-on-gazan-children-go-hungry-and-patients-die.html
-
-**Connections: Sports Edition Coach: Hints for May 5, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6333045/2025/05/05/connections-sports-edition-hints-for-may-5-2025/
-
-**Hit by Trade War, China’s Garment Industry Refuses to Stop Hustling**\
-`Guangzhou is the world’s hub for cheap clothing. But as tariffs threaten trade between the United States and China, workers in this bustling garment town are worried if people will keep buying.`\
-https://nytimes.com/card/2025/05/05/business/china-tariffs-guangzhou-clothing
-
-**Dodger Details: Hyeseong Kim's electrifying base running and more**\
-`Plus, struggling Michael Conforto is hitless in his past 29 at-bats. Might the Dodgers consider giving him a day off?`\
-https://nytimes.com/athletic/6333772/2025/05/04/dodgers-hyseseongk-kim-michael-conforto/
 
