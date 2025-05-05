@@ -1,3 +1,11 @@
+**The Athletic FC: Why Alexander-Arnold is leaving Liverpool, Kane wins a trophy, and Vardy steps in for an injured referee**\
+`Today in TAFC: Inside Alexander-Arnold's departure from Anfield, Kane wins the Bundesliga with Bayern Munich and Vardy's comedy whistle `\
+https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arnold-harry-kane-jamie-vardy/
+
+**President Trump to announce Washington, D.C. as 2027 NFL Draft host: Reports**\
+`The announcement will come a week after D.C. Mayor Muriel Bowser announced that the Washington Commanders will return to the city.`\
+https://nytimes.com/athletic/6333892/2025/05/05/nfl-draft-2027-host-washington-president-trump/
+
 **Fantasy Premier League: What we learned from FPL Gameweek 34 so far – Haaland close but champions a risk**\
 `Abdul Rehman reviews the main talking points from Gameweek 35 so far in FPL, including why we should keep faith in Brentford's forwards `\
 https://nytimes.com/athletic/6333184/2025/05/05/fantasy-premier-league-gameweek-34-haaland-salah-brentford/
