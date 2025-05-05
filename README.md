@@ -1,3 +1,7 @@
+**Ford Says Tariffs Will Cost Company $1.5 Billion in 2025**\
+`Ford Motor also reported a sharp drop in profits in the first three months of the year.`\
+https://nytimes.com/2025/05/05/business/economy/ford-earnings-tariffs.html
+
 **David Carle signs multiyear extension to remain University of Denver head coach**\
 `Carle was linked to multiple NHL head coaching vacancies over the past few weeks.`\
 https://nytimes.com/athletic/6335317/2025/05/05/david-carle-denver-coach-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335356/2025/05/05/cubs-shota-imanaga-hamstring-str
 **Astros' Yordan Alvarez placed on IL with right hand inflammation**\
 `Alvarez was scratched from Houston's lineup on Saturday due to discomfort while hitting in the batting cage.`\
 https://nytimes.com/athletic/6335347/2025/05/05/astros-yordan-alvarez-injury/
-
-**Guantánamo Migrant Operation Has Held Fewer Than 500 Detainees, and None in Tents**\
-`The three-month-old operation never expanded to fulfill President Trump’s vision of housing 30,000 at the offshore U.S. base.`\
-https://nytimes.com/2025/05/05/us/politics/guantanamo-migrants-trump.html
 
