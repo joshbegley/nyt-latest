@@ -1,3 +1,7 @@
+**Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
+`"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency.`\
+https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
+
 **Crosby, MacKinnon join Team Canada roster for 2025 World Championship**\
 `Two of the NHL's biggest stars from Nova Scotia will team up again for Team Canada this month.`\
 https://nytimes.com/athletic/6333587/2025/05/04/sidney-crosby-nathan-mackinnon-team-canada-world-championship/
