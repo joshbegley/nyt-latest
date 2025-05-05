@@ -1,3 +1,7 @@
+**Watch a Meteor Shower Made by Halley’s Comet**\
+`The Eta Aquarids will reach their peak Monday night into Tuesday morning.`\
+https://nytimes.com/2025/05/05/science/eta-aquarids-meteor-shower.html
+
 **Headlines from The New York Times for Monday, May 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysheadlines/2025/05/05/todays-headlines

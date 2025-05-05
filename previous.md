@@ -1,3 +1,7 @@
+**Watch a Meteor Shower Made by Halley’s Comet**\
+`The Eta Aquarids will reach their peak Monday night into Tuesday morning.`\
+https://nytimes.com/2025/05/05/science/eta-aquarids-meteor-shower.html
+
 **Headlines from The New York Times for Monday, May 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysheadlines/2025/05/05/todays-headlines
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/briefing/trump-gaza-ukraine.html
 **Pakistan’s Most Powerful Man Steps Out of the Shadows to Confront India**\
 `The army chief, Gen. Syed Asim Munir, who usually works behind the scenes, has been shaping Pakistan’s tone in the crisis over Kashmir with his own tough talk.`\
 https://nytimes.com/2025/05/05/world/asia/pakistan-india-asim-munir.html
-
-**Man United might have secured Champions League football but major challenges lie ahead**\
-`It was not pretty, but United got the job done, qualifying for the Champions League for the second time in their seven-year existence`\
-https://nytimes.com/athletic/6332766/2025/05/05/manchester-united-manchester-city-womens-champions-league-qualification/
 
