@@ -1,3 +1,19 @@
+**Cubs' lefty Shota Imanaga placed on IL with hamstring strain**\
+`An extended absence for Imanaga would further stress a pitching staff that has been propped up by a prodigious offense.`\
+https://nytimes.com/athletic/6335356/2025/05/05/cubs-shota-imanaga-hamstring-strain-cade-horton/
+
+**Astros' Yordan Alvarez placed on IL with right hand inflammation**\
+`Alvarez was scratched from Houston's lineup on Saturday due to discomfort while hitting in the batting cage.`\
+https://nytimes.com/athletic/6335347/2025/05/05/astros-yordan-alvarez-injury/
+
+**Guantánamo Migrant Operation Has Held Fewer Than 500 Detainees, and None in Tents**\
+`The three-month-old operation never expanded to fulfill President Trump’s vision of housing 30,000 at the offshore U.S. base.`\
+https://nytimes.com/2025/05/05/us/politics/guantanamo-migrants-trump.html
+
+**3 key Cavs 'questionable' for Game 2 vs. Pacers; Atkinson criticizes refs**\
+`Darius Garland, De’Andre Hunter, Evan Mobley could miss Game 2, and Kenny Atkinson says Pacers "passed the line of physicality" in Game 1.`\
+https://nytimes.com/athletic/6335180/2025/05/05/cavaliers-injuries-game-2-pacers/
+
 **Sean Combs Was Once Celebrated at the Met Gala. He’s Now on Trial.**\
 `He was lauded by Anna Wintour, was a regular guest at the gala, and his influence on the current exhibition is undeniable.`\
 https://nytimes.com/2025/05/05/style/diddy-sean-combs-met-gala.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/05/05/style/met-gala-2025/the-woman-who-wrote-the-
 **Pulitzer Prizes: 2025 Winners List**\
 `Here is the full list of winners and finalists.`\
 https://nytimes.com/2025/05/05/business/media/pulitzer-prize-winners-list.html
-
-**Xintong becomes China's first snooker world champion**\
-`Zhao defeated veteran three-time champion Mark Williams in Monday's final at the Crucible Theatre in Sheffield.`\
-https://nytimes.com/athletic/6334197/2025/05/05/zhao-xintong-snooker-world-championship/
-
-**Tell Us: What Are Your Questions About the Trump Administration?**\
-`Share your questions with the On Politics newsletter.`\
-https://nytimes.com/2025/05/05/us/politics/politics-trump-questions.html
-
-**Amid Trump Cuts, Officials Resign From the National Endowment for the Arts**\
-`Senior officials announced their resignations after the Trump administration withdrew grants from arts organizations around the country.`\
-https://nytimes.com/2025/05/05/arts/national-endowment-for-the-arts-resignations.html
-
-**Before the big party, a weekend of star-packed festivities.**\
-`By Alyson Krueger`\
-https://nytimes.com/live/2025/05/05/style/met-gala-2025/before-the-big-party-a-weekend-of-star-packed-festivities
 

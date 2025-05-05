@@ -27,7 +27,7 @@ https://nytimes.com/2025/05/05/us/politics/trump-pope-photo-ai.html
 https://nytimes.com/athletic/6335296/2025/05/05/nfl-offseason-schedule-for-shedeur-sanders-aaron-rodgers-scoop-city/
 
 **Did Cuomo’s ‘Message for Voters’ Violate Campaign Finance Rules?**\
-`Andrew M. Cuomo may have violated New York City  rules by using his campaign website to instruct a friendly super PAC how to help his mayoral bid.`\
+`Andrew M. Cuomo may have violated New York City rules by using his campaign website to instruct a friendly super PAC how to help his mayoral bid.`\
 https://nytimes.com/2025/05/05/nyregion/cuomo-super-pac-violation.html
 
 **The woman who wrote the book on Black dandyism offers a primer in 7 objects.**\
