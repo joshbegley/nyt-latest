@@ -1,3 +1,7 @@
+**Caitlin Clark's return to Iowa was a celebration for Hawkeyes fans, a boon for WNBA**\
+`WNBA teams, like the Fever, are playing exhibition games at stars' alma maters, a sign of tightening binds between college and the pros.`\
+https://nytimes.com/athletic/6333651/2025/05/04/caitlin-clark-iowa-indiana-fever-wnba/
+
 **Trump Says He Wants Alcatraz Restored as a Prison**\
 `The project would be extraordinarily expensive at a time when the administration already plans to cut billions of dollars from the Justice Department’s budget.`\
 https://nytimes.com/2025/05/04/us/politics/trump-alcatraz-prison.html
