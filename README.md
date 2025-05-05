@@ -1,3 +1,15 @@
+**Trump Says He Wants Alcatraz Restored as a Prison**\
+`The project would be extraordinarily expensive at a time when the administration already plans to cut billions of dollars from the Justice Department’s budget.`\
+https://nytimes.com/2025/05/04/us/politics/trump-alcatraz-prison.html
+
+**Trump Says He Asked Mexico to Let U.S. Military In to Fight Cartels**\
+`President Trump confirmed on Sunday that he had raised the idea with his Mexican counterpart, Claudia Sheinbaum, who rejected it.`\
+https://nytimes.com/2025/05/04/us/politics/trump-mexico-sheinbaum-cartels.html
+
+**10-Minute Challenge: ‘The Starry Night’ by van Gogh**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/05/04/upshot/ten-minute-challenge-starry-night.html
+
 **Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
 `"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency`\
 https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/04/world/europe/romania-election-george-simion.html
 **Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
 `Kaprizov said Sunday he feels good about the future in Minnesota: “Everyone wants to win. Me, too. I like everything here.”`\
 https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/
-
-**A New Trend in Global Elections: The Anti-Trump Bump**\
-`In voting in Canada and Australia, right-wing parties that borrowed from the MAGA playbook were punished. Elsewhere, President Trump is having a more complex impact.`\
-https://nytimes.com/2025/05/04/world/canada/global-elections-trump.html
-
-**Yankees takeaways: Aaron Boone's pinch hit problem, infield hitting woes, Will Warren**\
-`In the biggest at-bat of Sunday's loss, Boone stuck with his backup catcher. Let's take a look at the other options.`\
-https://nytimes.com/athletic/6333151/2025/05/04/new-york-yankees-aaron-boone-will-warren/
-
-**Texas Rangers fire offensive coordinator, put OF Leody Taveras on waivers**\
-`Only the Colorado Rockies have scored fewer runs this season than the Rangers, who are fourth in the AL West at 17-18.`\
-https://nytimes.com/athletic/6333433/2025/05/04/texas-rangers-fire-offensive-coordinator-leody-taveras-waivers/
 

@@ -1,3 +1,7 @@
+**Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
+`"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency`\
+https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
+
 **NBA playoffs results and takeaways: Pacers beat Cavaliers 121-112**\
 `Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, surpassing Michael Jordan for the NBA record.`\
 https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333151/2025/05/04/new-york-yankees-aaron-boone-wil
 **Texas Rangers fire offensive coordinator, put OF Leody Taveras on waivers**\
 `Only the Colorado Rockies have scored fewer runs this season than the Rangers, who are fourth in the AL West at 17-18.`\
 https://nytimes.com/athletic/6333433/2025/05/04/texas-rangers-fire-offensive-coordinator-leody-taveras-waivers/
-
-**Shota Imanaga exits Sunday's loss with a hamstring strain as Cubs' thin pitching staff takes a hit**\
-`"We'll probably do some imaging to see what's going on," Craig Counsell said after the Cubs' 4-0 loss to the Brewers on Sunday.`\
-https://nytimes.com/athletic/6333325/2025/05/04/cubs-brewers-shota-imanaga-hamstring-strain/
 

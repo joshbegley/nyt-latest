@@ -1,3 +1,7 @@
+**Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
+`"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency`\
+https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
+
 **NBA playoffs results and takeaways: Pacers beat Cavaliers 121-112**\
 `Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, surpassing Michael Jordan for the NBA record.`\
 https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
