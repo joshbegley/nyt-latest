@@ -1,3 +1,11 @@
+**Rom-Com**\
+`In the movies, it always works out. In real life? Not so much.`\
+https://nytimes.com/2025/05/04/podcasts/rom-com-this-american-life-nyt-audio.html
+
+**Romanian Nationalist Wins First Round of Presidential Voting**\
+`George Simion bucked a recent trend of voters around the world punishing candidates seen as friendly to President Trump.`\
+https://nytimes.com/2025/05/04/world/europe/romania-election-george-simion.html
+
 **Kirill Kaprizov discusses potential contract extension with Wild: 'It should be all good’**\
 `Kaprizov said Sunday he feels good about the future here: “Everyone wants to win. Me too. I like everything here.”`\
 https://nytimes.com/athletic/6332889/2025/05/04/kirill-kaprizov-wild-contract-extension-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6333425/2025/05/04/miami-grand-prix-f1-mailbag/
 **Order restored: Scheffler takes CJ Cup by 8 strokes for first win of 2025**\
 `Scheffler's tournament total of 253 ties the PGA Tour record for lowest 72-hole score.`\
 https://nytimes.com/athletic/6333378/2025/05/04/scottie-scheffler-first-win-of-2025-cj-cup/
-
-**College Assistant Admissions Director Charged With Attempted Sex Trafficking**\
-`The authorities arrested Jacob Henriques, 29, after he had tried to solicit prospective and admitted students for sex, the Justice Department said. He worked for Emmanuel College in Boston.`\
-https://nytimes.com/2025/05/04/us/boston-emmanuel-college-sex-trafficking.html
-
-**Will Hutchins, Gentle Cowboy Lawman in ‘Sugarfoot,’ Dies at 94**\
-`He starred in one of the westerns that dominated TV in the late 1950s. After losing traction in Hollywood, he became a traveling clown.`\
-https://nytimes.com/2025/05/04/obituaries/will-hutchins-dead.html
 
