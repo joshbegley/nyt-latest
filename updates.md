@@ -1,3 +1,11 @@
+**Meet the craftspeople who are shaping Black style across America every day.**\
+`From South Carolina to Los Angeles, these tailors, milliners and jewelers are leaving their mark on fashion.`\
+https://nytimes.com/live/2025/05/05/style/met-gala-2025/meet-the-craftspeople-who-are-shaping-black-style-across-america-every-day
+
+**Did Cuomo’s ‘Message for Voters’ Violate Campaign Finance Rules?**\
+`Andrew M. Cuomo may have violated New York City rules by using his campaign website to instruct a friendly super PAC how to help his mayoral bid.`\
+https://nytimes.com/2025/05/05/nyregion/cuomo-super-pac-violation.html
+
 **Cubs' lefty Shota Imanaga placed on IL with hamstring strain**\
 `An extended absence for Imanaga would further stress a pitching staff that has been propped up by a prodigious offense.`\
 https://nytimes.com/athletic/6335356/2025/05/05/cubs-shota-imanaga-hamstring-strain-cade-horton/
