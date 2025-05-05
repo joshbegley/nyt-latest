@@ -1,3 +1,11 @@
+**NHL playoffs second-round winners, 2025 Stanley Cup champion and more predictions**\
+`The Athletic polled its staff on who would win each second-round series, plus the conference champions, Stanley Cup winner and Conn Smythe.`\
+https://nytimes.com/athletic/6330498/2025/05/05/nhl-playoffs-2025-predictions-stanley-cup/
+
+**The New York Nonprofit Where Generations of Artists Got Their Start**\
+`Artists Space, a downtown home for experimental art, is a consistent presence in a changing landscape`\
+https://nytimes.com/2025/05/05/t-magazine/artists-space-new-york.html
+
 **Trump Directs Federal Agencies to Reopen Alcatraz as a Prison**\
 `It has been more than six decades since Alcatraz, which sits in San Francisco Bay, operated as a prison. Today it is best known as a damp, frigid and nostalgic staple of tourist packages and children’s field trips.`\
 https://nytimes.com/video/us/politics/100000010147382/trump-alcatraz-prison-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6334255/2025/05/05/pacers-cavaliers-nba-playoffs-ga
 **UnitedHealth’s Move to End Cyberattack Loan Lifeline Upsets Medical Providers**\
 `The company lent roughly $9 billion to practices affected by a vast cyberattack on its payment systems last year. Medical practices are now suing the health care colossus, saying it is pressuring them to repay funds.`\
 https://nytimes.com/2025/05/05/health/unitedhealth-cyberattack-loans-lawsuits.html
-
-**The Windup: Atlanta's good problem**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6334694/2025/05/05/atlanta-braves-outfield-ronald-acuna-the-windup/
-
-**Bessent Pitches Skittish Investors to Bet on Trump’s Economic Plan**\
-`The Treasury secretary urged executives and entrepreneurs to look beyond the Trump administration’s trade agenda.`\
-https://nytimes.com/2025/05/05/business/bessent-trump-trade-economy.html
 
