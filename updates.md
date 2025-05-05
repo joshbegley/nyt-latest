@@ -1,3 +1,7 @@
+**Minnesota nice will go out the window when Jimmy Butler, Draymond Green come to town**\
+`Wolves fans still resent the way Butler left the franchise and how Green has trash-talked them. Expect vitriol when this series tips off.`\
+https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timberwolves-warriors-playoffs/
+
 **What Buffett’s Exit Means**\
 `Tens of thousands were on hand to see the billionaire announce his plans to retire. Their attention is already focusing on what is next for the conglomerate he built.`\
 https://nytimes.com/2025/05/05/business/dealbook/what-buffetts-exit-means.html
