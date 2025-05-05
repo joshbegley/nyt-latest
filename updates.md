@@ -1,3 +1,19 @@
+**Fantasy Premier League: What we learned from FPL Gameweek 34 so far – Haaland close but champions a risk**\
+`Abdul Rehman reviews the main talking points from Gameweek 35 so far in FPL, including why we should keep faith in Brentford's forwards `\
+https://nytimes.com/athletic/6333184/2025/05/05/fantasy-premier-league-gameweek-34-haaland-salah-brentford/
+
+**Europe Makes a Pitch to Attract Scientists Shunned by the U.S.**\
+`The continent’s leaders are hoping to benefit as the Trump administration cuts support for research and threatens universities such as Harvard and Columbia with the freezing of federal funds.`\
+https://nytimes.com/2025/05/05/world/europe/eu-us-scientists-trump.html
+
+**Wim Wenders on Where the War in Europe Really Ended 80 Years Ago**\
+`In a short film and in conversation, the German filmmaker ponders the meaning of freedom, the complacency of peace and the new insecurity from Russia’s war and Donald Trump.`\
+https://nytimes.com/2025/05/05/movies/wim-wenders-the-keys-to-freedom.html
+
+**C. Notes: Reds' Tyler Stephenson is back and in the swing**\
+`Plus Jose Trevino shares about his creative catching gear and Terry Francona makes sure all his relievers feel appreciated.`\
+https://nytimes.com/athletic/6333549/2025/05/05/reds-tyler-stephenson-returns-jose-trevino/
+
 **Blues’ colossal collapse: How two 6-on-5 goals led to ‘brutal’ 2OT Game 7 loss to Jets**\
 `The Blues lost 4-3 in double-overtime in Game 7 against the Jets after giving up the game-tying goal with 2.2 seconds left in regulation.`\
 https://nytimes.com/athletic/6332729/2025/05/05/blues-jets-nhl-playoffs-game-7/
