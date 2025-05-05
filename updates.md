@@ -1,3 +1,7 @@
+**This Year’s Met Gala Raises the Most Money in Its History**\
+`The Met’s annual fashion party has become a fund-raising juggernaut, but the lavish event comes with a price tag of its own. How much bang does it get for its buck?`\
+https://nytimes.com/2025/05/05/style/met-gala-2025-fund-raising.html
+
 **What Alexander-Arnold would bring to Real Madrid**\
 `Alexander-Arnold finally looks set to join Real Madrid this summer. How significant could it be on the pitch?`\
 https://nytimes.com/athletic/6326850/2025/05/05/trent-alexander-arnold-real-madrid-analysis/

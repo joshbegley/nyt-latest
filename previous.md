@@ -1,3 +1,7 @@
+**This Year’s Met Gala Raises the Most Money in Its History**\
+`The Met’s annual fashion party has become a fund-raising juggernaut, but the lavish event comes with a price tag of its own. How much bang does it get for its buck?`\
+https://nytimes.com/2025/05/05/style/met-gala-2025-fund-raising.html
+
 **Golden Knights prepare for 'heavyweight' Oilers, but will the animosity from 2023 return?**\
 `Vegas isn’t typically the team to initiate physicality and bad blood, but their coach believes they thrive in that type of play.`\
 https://nytimes.com/athletic/6332108/2025/05/05/golden-knights-oilers-playoffs-2025-2023/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6333760/2025/05/05/jimmy-butler-draymond-green-timb
 **What Buffett’s Exit Means**\
 `Tens of thousands were on hand to see the billionaire announce his plans to retire. Their attention is already focusing on what is next for the conglomerate he built.`\
 https://nytimes.com/2025/05/05/business/dealbook/what-buffetts-exit-means.html
-
-**Why Warren Buffett’s Departure Matters**\
-`Yes, he made lots of money. But the closely watched investor amassed a following by being a conscience of capitalism, and his exit raises questions about what’s next for his company.`\
-https://nytimes.com/2025/05/05/business/dealbook/buffett-berkshire-hathaway-abel.html
 
