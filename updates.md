@@ -1,3 +1,11 @@
+**Kenny Atkinson named NBA Coach of the Year, beats J.B. Bickerstaff**\
+`Aside from Bickerstaff, Atkinson also beat out Houston Rockets coach Ime Udoka for the honor.`\
+https://nytimes.com/athletic/6335554/2025/05/05/kenny-atkinson-nba-coach-of-the-year-2025/
+
+**Shah Rukh Khan, and His Jeweled Tiger’s Head, Make Their Met Debut**\
+`The global superstar is going “a little bit rapper” for his first gala appearance. He may never come back, but he’s here now.`\
+https://nytimes.com/2025/05/05/style/shah-rukh-khan-met-gala-2025-sabyasachi-mukherjee.html
+
 **André Leon Talley is present at the Met Gala in spirit.**\
 `The larger-than-life former Vogue editor died in 2023 but served as inspiration for the Costume Institute show.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025/andre-leon-talley-met-gala

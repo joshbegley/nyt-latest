@@ -1,3 +1,11 @@
+**Kenny Atkinson named NBA Coach of the Year, beats J.B. Bickerstaff**\
+`Aside from Bickerstaff, Atkinson also beat out Houston Rockets coach Ime Udoka for the honor.`\
+https://nytimes.com/athletic/6335554/2025/05/05/kenny-atkinson-nba-coach-of-the-year-2025/
+
+**Shah Rukh Khan, and His Jeweled Tiger’s Head, Make Their Met Debut**\
+`The global superstar is going “a little bit rapper” for his first gala appearance. He may never come back, but he’s here now.`\
+https://nytimes.com/2025/05/05/style/shah-rukh-khan-met-gala-2025-sabyasachi-mukherjee.html
+
 **André Leon Talley is present at the Met Gala in spirit.**\
 `The larger-than-life former Vogue editor died in 2023 but served as inspiration for the Costume Institute show.`\
 https://nytimes.com/live/2025/05/05/style/met-gala-2025/andre-leon-talley-met-gala
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6335478/2025/05/05/capitals-hurricanes-game-1-nhl-p
 **Padres' Jackson Merrill expected to come off injured list Tuesday**\
 `Merrill's expected return would come as a sizable boost for a Padres team that more than survived a recent wave of injuries.`\
 https://nytimes.com/athletic/6335153/2025/05/05/padres-jackson-merrill-expected-to-come-off-injured-list/
-
-**Trump Called for Movie Tariffs After a Meeting With Jon Voight**\
-`The president’s call for tariffs caused confusion in Hollywood, which has seen a steep drop-off in local film and television production.`\
-https://nytimes.com/2025/05/05/movies/tariffs-trump-voight.html
-
-**What We Know About Trump’s $1.5 Million-a-Head Fund-raising Dinner**\
-`The dinner is the latest high-dollar fund-raiser that MAGA Inc. has held in recent weeks.`\
-https://nytimes.com/2025/05/05/us/politics/trump-maga-inc-super-pac-dinner.html
 
