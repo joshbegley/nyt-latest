@@ -1,3 +1,11 @@
+**The Pulse: An unbelievable Game 7 comeback**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6333457/2025/05/05/jets-blues-double-overtime-the-pulse/
+
+**Netanyahu Says Pounding Gaza Again Will Finish Hamas. Not Everyone Agrees.**\
+`It is not clear how the Israeli prime minister’s plan to add tens of thousands of soldiers will fundamentally alter a dynamic seen over 18 months of conflict.`\
+https://nytimes.com/2025/05/05/world/europe/israel-buildup-soldiers-hamas-gaza.html
+
 **Israel Believes Pounding Gaza Again Will Finish Hamas. Some Are Not So Sure.**\
 `It is not clear how adding tens of thousands of soldiers will fundamentally alter a dynamic seen over 18 months of conflict.`\
 https://nytimes.com/2025/05/05/world/europe/israel-buildup-soldiers-hamas-gaza.html

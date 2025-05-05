@@ -1,5 +1,9 @@
-**Israel Believes Pounding Gaza Again Will Finish Hamas. Some Are Not So Sure.**\
-`It is not clear how adding tens of thousands of soldiers will fundamentally alter a dynamic seen over 18 months of conflict.`\
+**The Pulse: An unbelievable Game 7 comeback**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6333457/2025/05/05/jets-blues-double-overtime-the-pulse/
+
+**Netanyahu Says Pounding Gaza Again Will Finish Hamas. Not Everyone Agrees.**\
+`It is not clear how the Israeli prime minister’s plan to add tens of thousands of soldiers will fundamentally alter a dynamic seen over 18 months of conflict.`\
 https://nytimes.com/2025/05/05/world/europe/israel-buildup-soldiers-hamas-gaza.html
 
 **Phillies takeaways: Harper and Bohm's power outage, Walker's new role, platooning Kepler**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6329652/2025/05/05/randall-cunningham-minister-eagl
 **2025 NHL Draft ranking: Schaefer, Misa lead Wheeler’s May top 64 list**\
 `Welcome to Scott Wheeler's May ranking of the top 64 prospects eligible for the 2025 NHL Draft.`\
 https://nytimes.com/athletic/6285044/2025/05/05/nhl-draft-2025-ranking-schaefer-misa-lottery/
-
-**After rocky ending at Florida and 3 years on ESPN, Dan Mullen sees chance to win big at UNLV**\
-`"You could see the passion of football was still in him," UNLV's AD said, "it was just a matter of whether he wanted to do it again."`\
-https://nytimes.com/athletic/6329630/2025/05/05/dan-mullen-unlv-football-coach-espn/
 
