@@ -1,3 +1,11 @@
+**Sean Combs Was Once Celebrated at the Met Gala. He’s Now on Trial.**\
+`He was lauded by Anna Wintour, was a regular guest at the gala, and his influence on the current exhibition is undeniable.`\
+https://nytimes.com/2025/05/05/style/diddy-sean-combs-met-gala.html
+
+**Trump Denies Posting Image of Himself as Pope, Laughing Off Critics**\
+`The president suggested Catholics, who have criticized the apparently A.I.-generated image, were not offended, and said that anyone who was “can’t take a joke.”`\
+https://nytimes.com/2025/05/05/us/politics/trump-pope-photo-ai.html
+
 **Scoop City: Upcoming schedule for Shedeur Sanders, Aaron Rodgers**\
 `A look at what's next, plus Week 1 rookie starters for the AFC's top teams and your 2025 projection for Shedeur Sanders.`\
 https://nytimes.com/athletic/6335296/2025/05/05/nfl-offseason-schedule-for-shedeur-sanders-aaron-rodgers-scoop-city/
