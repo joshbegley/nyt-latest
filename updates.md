@@ -1,3 +1,7 @@
+**Israel Believes Pounding Gaza Again Will Finish Hamas. Some Are Not So Sure.**\
+`It is not clear how adding tens of thousands of soldiers will fundamentally alter a dynamic seen over 18 months of conflict.`\
+https://nytimes.com/2025/05/05/world/europe/israel-buildup-soldiers-hamas-gaza.html
+
 **Phillies takeaways: Harper and Bohm's power outage, Walker's new role, platooning Kepler**\
 `The Phillies' first and third basemen ranked second in MLB last season with an .811 OPS but have a .664 OPS (17th) this season.`\
 https://nytimes.com/athletic/6333449/2025/05/05/phillies-bryce-harper-alec-bohm-power-stats/
