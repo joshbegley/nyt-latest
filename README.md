@@ -1,3 +1,7 @@
+**Lewandowski back for Barcelona's Champions League semi-final second leg**\
+`Lewandowski suffered a left hamstring injury during Hansi Flick's side's 4-3 victory over Celta Vigo in La Liga last month.`\
+https://nytimes.com/athletic/6334093/2025/05/05/robert-lewandowski-barcelona-injury-return/
+
 **Commanders mailbag: Are the O-line, CB upgrades enough to catch the Eagles?**\
 `Plus, is there a veteran edge rusher Washington should consider signing after not selecting one in the draft?`\
 https://nytimes.com/athletic/6325111/2025/05/05/commanders-mailbag-nfl-draft-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332794/2025/05/05/cowboys-rookie-minicamp-brian-sc
 **The Brashard Smith-Isiah Pacheco comparisons take back seat at Chiefs rookie reports to camp**\
 `With background as a receiver in college, Smith believes his experience will help "show who I am" in the Chiefs' running back room.`\
 https://nytimes.com/athletic/6333362/2025/05/05/chiefs-rookie-minicamp-brashard-smith/
-
-**Panthers mailbag: Cap situation, Derrick Brown's recovery and WR pecking order**\
-`Derrick Brown discussed his recovery and when he expects to return, and does Hunter Renfrow figure into the team's plans at receiver?`\
-https://nytimes.com/athletic/6332716/2025/05/05/carolina-panthers-mailbag-salary-cap-tetaioroa-mcmillan/
 
