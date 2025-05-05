@@ -1,3 +1,11 @@
+**THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, Matthew Boyd**\
+`The Athletic and THE BAT X teamed up to offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
+https://nytimes.com/athletic/6334346/2025/05/05/the-bat-x-fantasy-baseball-cheat-sheet-ezequiel-tovar/
+
+**Pulitzer Prizes 2025: A Guide to the Winning Books and Finalists**\
+`“James,” by Percival Everett won the fiction prize, and Jason Roberts received the biography prize for “Every Living Thing.”`\
+https://nytimes.com/2025/05/05/books/pulitzer-prizes-books-winners-finalists.html
+
 **Taking a look at some of the most shocking finishes in sports history**\
 `A look at some out-of-your-mind endings that encapsulate how something that seemed to be lost was suddenly, and almost inexplicably, won.`\
 https://nytimes.com/athletic/6335002/2025/05/05/crazy-sports-turnarounds-history-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/guantanamo-migrants-trump.html
 **Three key Cavs 'questionable' for Game 2 vs. Pacers; Atkinson criticizes refs**\
 `Darius Garland, De’Andre Hunter, Evan Mobley could miss Game 2, and Atkinson says Pacers "passed the line of physicality" in Game 1.`\
 https://nytimes.com/athletic/6335180/2025/05/05/cavaliers-injuries-game-2-pacers/
-
-**Sean Combs Was Once Celebrated at the Met Gala. He’s Now on Trial.**\
-`He was lauded by Anna Wintour, was a regular guest at the gala, and his influence on the current exhibition is undeniable.`\
-https://nytimes.com/2025/05/05/style/diddy-sean-combs-met-gala.html
-
-**Trump Denies Posting Image of Himself as Pope, Laughing Off Critics**\
-`The president suggested Catholics, who have criticized the apparently A.I.-generated image, were not offended, and said that anyone who was “can’t take a joke.”`\
-https://nytimes.com/2025/05/05/us/politics/trump-pope-photo-ai.html
 
