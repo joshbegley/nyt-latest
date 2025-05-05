@@ -1,3 +1,7 @@
+**Giants takeaways: Willy Adames is back. So is Kyle Harrison, and Logan Webb's four-seamer**\
+`Adames raised his season OPS by 73 points on Sunday. It's not too late to still say "it's still early."`\
+https://nytimes.com/athletic/6333255/2025/05/04/sf-giants-takeaways-willy-adames-kyle-harrison/
+
 **Oil Prices Slide Further on Plans to Increase Supply**\
 `U.S. oil prices fell to around $56 a barrel after the OPEC Plus cartel said it would bring more oil to market.`\
 https://nytimes.com/2025/05/04/business/energy-environment/oil-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/04/upshot/ten-minute-challenge-starry-ni
 **Lewis Hamilton’s team radio sass lays bare the big issue facing Ferrari in F1 2025**\
 `"Have a tea break!" Hamilton's radio jab doesn't expose a rift in the team, but there is a growing sense of urgency.`\
 https://nytimes.com/athletic/6333479/2025/05/04/lewis-hamilton-f1-miami-ferrari-radio-charles-leclerc/
-
-**NBA playoffs results and takeaways: Pacers hand Cavs their first postseason loss**\
-`Donovan Mitchell notched his eighth straight playoff series opener with at least 30 points, but it wasn't enough.`\
-https://nytimes.com/athletic/6333389/2025/05/04/nba-playoffs-scores-takeaways-cavaliers-pacers-golden-state-rockets/
 
