@@ -1,3 +1,11 @@
+**The Athletic FC: Why Alexander-Arnold is leaving Liverpool, Kane wins a trophy, and Vardy steps in for an injured referee**\
+`Today in TAFC: Inside Alexander-Arnold's departure from Anfield, Kane wins the Bundesliga with Bayern Munich and Vardy's comedy whistle `\
+https://nytimes.com/athletic/6334228/2025/05/05/athletic-fc-trent-alexander-arnold-harry-kane-jamie-vardy/
+
+**President Trump to announce Washington, D.C. as 2027 NFL Draft host: Reports**\
+`The announcement will come a week after D.C. Mayor Muriel Bowser announced that the Washington Commanders will return to the city.`\
+https://nytimes.com/athletic/6333892/2025/05/05/nfl-draft-2027-host-washington-president-trump/
+
 **Fantasy Premier League: What we learned from FPL Gameweek 34 so far – Haaland close but champions a risk**\
 `Abdul Rehman reviews the main talking points from Gameweek 35 so far in FPL, including why we should keep faith in Brentford's forwards `\
 https://nytimes.com/athletic/6333184/2025/05/05/fantasy-premier-league-gameweek-34-haaland-salah-brentford/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6333395/2025/05/05/nhl-playoffs-what-we-learned-abo
 **C. Notes: Reds' Tyler Stephenson is back and in the swing**\
 `Plus Jose Trevino shares about his creative catching gear and Terry Francona makes sure all his relievers feel appreciated.`\
 https://nytimes.com/athletic/6333549/2025/05/05/reds-tyler-stephenson-returns-jose-trevino/
-
-**How the Panthers' free-agent selloff became the Maple Leafs' gain, and what it means for Round 2**\
-`Toronto benefited from Florida's Stanley Cup run and the ensuing salary-cap squeeze. But 10 months later, the Panthers are still thriving.`\
-https://nytimes.com/athletic/6332897/2025/05/05/nhl-playoffs-maple-leafs-panthers-round-2/
-
-**What’s at stake in NHL Draft Lottery? Why Schaefer is No. 1 prospect, more**\
-`Behind Schaefer is a well-defined group of forwards with NHL tools and legitimate top-six potential.`\
-https://nytimes.com/athletic/6290324/2025/05/05/nhl-draft-lottery-2025-odds-rules-explained/
 
