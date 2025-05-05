@@ -1,3 +1,15 @@
+**This Week in Mets: What are the most encouraging aspects of their hot start?**\
+`Pete Alonso’s consistency in coming through meant fewer nights when the spotlight fell on a Juan Soto or Brandon Nimmo.`\
+https://nytimes.com/athletic/6333745/2025/05/05/mets-pete-alonso-rotation/
+
+**2025 NHL Draft prospects: Pronman updates his ranking ahead of the lottery**\
+`How did Corey Pronman's 2025 NHL Draft big board change ahead of the lottery and with the 2025 IIHF U18 World Championships concluded?`\
+https://nytimes.com/athletic/6331434/2025/05/05/2025-nhl-draft-prospects-lottery-ranking/
+
+**Draymond Green controls emotions and defense to eliminate Rockets. Can he keep it up?**\
+`Green called himself out for getting overly aggressive in a Game 6 loss before a vintage Game 7. Next up: Rudy Gobert and the Timberwolves.`\
+https://nytimes.com/athletic/6333604/2025/05/05/draymond-green-playoffs-game-7-rockets-emotions/
+
 **The Pulse: An unbelievable Game 7 comeback**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6333457/2025/05/05/jets-blues-double-overtime-the-pulse/

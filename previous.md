@@ -1,3 +1,15 @@
+**This Week in Mets: What are the most encouraging aspects of their hot start?**\
+`Pete Alonso’s consistency in coming through meant fewer nights when the spotlight fell on a Juan Soto or Brandon Nimmo.`\
+https://nytimes.com/athletic/6333745/2025/05/05/mets-pete-alonso-rotation/
+
+**2025 NHL Draft prospects: Pronman updates his ranking ahead of the lottery**\
+`How did Corey Pronman's 2025 NHL Draft big board change ahead of the lottery and with the 2025 IIHF U18 World Championships concluded?`\
+https://nytimes.com/athletic/6331434/2025/05/05/2025-nhl-draft-prospects-lottery-ranking/
+
+**Draymond Green controls emotions and defense to eliminate Rockets. Can he keep it up?**\
+`Green called himself out for getting overly aggressive in a Game 6 loss before a vintage Game 7. Next up: Rudy Gobert and the Timberwolves.`\
+https://nytimes.com/athletic/6333604/2025/05/05/draymond-green-playoffs-game-7-rockets-emotions/
+
 **The Pulse: An unbelievable Game 7 comeback**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6333457/2025/05/05/jets-blues-double-overtime-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6296732/2025/05/05/what-is-college-gamedays-future-
 **Seahawks rookie camp Day 2: Nick Emmanwori's No. 3, Elijah Arroyo a 'big target'**\
 `Grey Zabel slots in at left guard, while second-rounder Nick Emmanwori spends time near the line of scrimmage in practice.`\
 https://nytimes.com/athletic/6332327/2025/05/05/seahawks-rookie-minicamp-day-2-nick-emmanwori/
-
-**Nationals outfielder James Wood tries to smoke every ball — and it’s working**\
-`"I just try and square it up...If I put a good swing on the ball, most of the time I'll be able to drive it for extra bases," Wood said.`\
-https://nytimes.com/athletic/6332116/2025/05/05/nationals-james-wood-hitting-approach/
-
-**Randall Cunningham’s not scrambling anymore: How the 'Ultimate Weapon' found peace**\
-`The Eagles icon needed to flourish, then fail, then find himself.`\
-https://nytimes.com/athletic/6329652/2025/05/05/randall-cunningham-minister-eagles-football-peace/
-
-**2025 NHL Draft ranking: Schaefer, Misa lead Wheeler’s May top 64 list**\
-`Welcome to Scott Wheeler's May ranking of the top 64 prospects eligible for the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6285044/2025/05/05/nhl-draft-2025-ranking-schaefer-misa-lottery/
 
