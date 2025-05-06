@@ -14,7 +14,7 @@ https://nytimes.com/2025/05/06/world/middleeast/israel-yemen-attack-sana-airport
 `By Christopher F. Schuetze`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merzs-stumble-could-offer-the-far-right-afd-party-an-opportunity
 
-**The Giants' struggles against left-handed starters has a few potential in-house solutions**\
+**How the Giants' struggles against left-handed starters can be solved in-house**\
 `The Giants are 2-9 against left-handed starters this season. Those struggles are the main difference between them and the top NL West teams.`\
 https://nytimes.com/athletic/6335795/2025/05/06/sf-giants-left-handed-starters-struggles/
 
