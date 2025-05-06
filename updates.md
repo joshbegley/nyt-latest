@@ -1,3 +1,7 @@
+**AJ Smith-Shawver flirts with no-hitter in game 'you kind of dream about as a kid'**\
+`Manager Brian Snitker told the pitcher he would have let him go as high as 120 pitches if that's what it took to get the no-hitter.`\
+https://nytimes.com/athletic/6336355/2025/05/06/braves-aj-smith-shawver-no-hitter-bid/
+
 **Chelsea beat the champions but are still 19 points behind. Can they challenge next season?**\
 `Chelsea are the closest they have been to the champions since they last won the title. Can they bridge that gap in the coming seasons?`\
 https://nytimes.com/athletic/6334318/2025/05/06/chelsea-champions-premier-league/
