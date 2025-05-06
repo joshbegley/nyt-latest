@@ -1,3 +1,11 @@
+**Foul play: Thunder's strategy of fouling up 3 contributes to Game 1 upset**\
+`Oklahoma City intentionally fouled the Nuggets twice in the final 12 seconds when just playing things out might have been a better idea.`\
+https://nytimes.com/athletic/6336622/2025/05/06/thunder-playoffs-game-1-nuggets-fouls-free-throws/
+
+**Merz will face big challenges if he becomes chancellor.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-will-face-big-challenges-if-he-becomes-chancellor
+
 **'Mr. Nugget' delivers again for Denver, which shows it won't go down quietly vs. Thunder**\
 `Aaron Gordon's 3-pointer with 2.8 seconds left gave Denver the Game 1 upset over OKC, while Nikola Jokić got wherever he wanted.`\
 https://nytimes.com/athletic/6336283/2025/05/06/aaron-gordon-nuggets-playoffs-thunder-game-1/
