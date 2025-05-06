@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playof
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
 
-**Xi Can’t Conquer Taiwan Until He Tames His Own Generals**\
+**Xi Can’t Trust His Own Military**\
 `An unending purge in China’s top military ranks raises serious questions over the country’s readiness for offensive war.`\
 https://nytimes.com/2025/05/06/opinion/china-taiwan-xi-jinping.html
 
