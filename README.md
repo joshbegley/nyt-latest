@@ -1,3 +1,15 @@
+**Trump Executive Order Restricts ‘Gain of Function’ Research on Pathogens**\
+`Scientists have long debated the merits and risks of tinkering with viruses and bacteria, which the president claims caused the coronavirus pandemic.`\
+https://nytimes.com/2025/05/05/us/politics/trump-executive-order-restricts-gain-of-function-research-on-pathogens.html
+
+**13 Workers Found Killed at Gold Mine in Peru**\
+`The men were killed in a region that has seen growing conflict over access to ore in recent years. The mine has also been a hotbed of illegal gold mining.`\
+https://nytimes.com/2025/05/05/world/americas/peru-gold-miners-killed-boluarte.html
+
+**Red carpet looks: Simone Biles, Saquon Barkley, others attend 2025 Met Gala**\
+`NBA star LeBron James is an honorary chair and Formula One ace Lewis Hamilton is a co-chair.`\
+https://nytimes.com/athletic/6335662/2025/05/05/simone-biles-saquon-barkley-met-gala-2025/
+
 **Diljit Dosanjh Brings Punjab to the Red Carpet**\
 `For the Punjabi artist’s first Met Gala appearance, he chose to honor an early Indian dandy.`\
 https://nytimes.com/2025/05/05/style/diljit-dosanjh-punjabi-singer-met-gala-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/05/us/north-carolina-supreme-court-federal-ruling.ht
 **Israelis Protest Government’s Plan to Intensify Campaign in Gaza**\
 `Israeli spokesmen said the expanded ground operation would include “a wide attack, involving moving most of Gaza’s population,” as well as the “holding of territories” by Israeli soldiers for an indefinite period of time.`\
 https://nytimes.com/video/world/middleeast/100000010148295/israel-gaza-campaign-hamas.html
-
-**For Trump, the Constitution Is a Hindrance as He Pushes for Deportations**\
-`President Trump and his allies have portrayed their efforts to bypass due process as necessary for national security.`\
-https://nytimes.com/2025/05/05/us/politics/trump-constitution-immigration-hearings.html
-
-**Red Wings draft targets: Who could Detroit pick at No. 13?**\
-`The Red Wings' draft slot is now set, and their needs are clear. So, who could they take at No. 13?`\
-https://nytimes.com/athletic/6327267/2025/05/05/red-wings-nhl-draft-13th-pick/
-
-**What will the Senators’ offseason look like? Here is Steve Staios’ to-do list**\
-`The Athletic breaks down some of the high-profile items on the general manager's to-do list this summer.`\
-https://nytimes.com/athletic/6332030/2025/05/05/senators-steve-staios-offseason/
 
