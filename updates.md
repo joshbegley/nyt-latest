@@ -1,3 +1,7 @@
+**After Game 1 win over Celtics, Knicks' blueprint with Bridges, Anunoby and Hart is clear**\
+`The Knicks hung on for an improbable Game 1 win after trailing the Celtics by 20 points with just over 17 minutes remaining in regulation.`\
+https://nytimes.com/athletic/6336395/2025/05/06/knicks-beat-celtics-game-1-eastern-conference-semifinals/
+
 **Talking Black Excellence Over Cocktails Inside the Met Gala**\
 `While a starry group of co-chairs greeted guests, Spike Lee, Venus Williams, Zoe Saldaña and Rihanna discussed the significance of dandyism and the importance of the event.`\
 https://nytimes.com/2025/05/06/style/met-gala-cocktail-party.html
