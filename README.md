@@ -1,3 +1,11 @@
+**Reds' Tyler Callihan departs game with arm injury after crashing into wall**\
+`Callihan, whose path to the big leagues has included multiple injuries, hit the wall at full speed and seriously hurt his left arm.`\
+https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-collision/
+
+**Janelle Monáe Is a ‘Time-Traveling Dandy’ at the Met Gala**\
+`The singer and actor has long made tailored suits and accessories core to her style identity.`\
+https://nytimes.com/2025/05/05/style/janelle-monae-met-gala-2025.html
+
 **Trump Executive Order Restricts ‘Gain of Function’ Research on Pathogens**\
 `Scientists have long debated the merits and risks of tinkering with viruses and bacteria, which the president claims caused the coronavirus pandemic.`\
 https://nytimes.com/2025/05/05/us/politics/trump-executive-order-restricts-gain-of-function-research-on-pathogens.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/trump-israel-gaza.html
 **2025 NHL Draft Lottery takeaways: Who goes No. 1 and 2, trades, the Rangers' pick and more**\
 `After lottery night, here's everything Scott Wheeler is thinking about and hearing about the 2025 draft.`\
 https://nytimes.com/athletic/6334945/2025/05/05/2025-nhl-draft-lottery-takeaways-islanders-rangers/
-
-**Judge Orders Elections Board to Certify Democrat’s Victory in Contested N.C. Race**\
-`The federal ruling on Monday was the most significant legal victory yet for Justice Allison Riggs, the Democratic incumbent in a State Supreme Court race.`\
-https://nytimes.com/2025/05/05/us/north-carolina-supreme-court-federal-ruling.html
-
-**Israelis Protest Government’s Plan to Intensify Campaign in Gaza**\
-`Israeli spokesmen said the expanded ground operation would include “a wide attack, involving moving most of Gaza’s population,” as well as the “holding of territories” by Israeli soldiers for an indefinite period of time.`\
-https://nytimes.com/video/world/middleeast/100000010148295/israel-gaza-campaign-hamas.html
 
