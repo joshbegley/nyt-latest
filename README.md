@@ -1,3 +1,7 @@
+**Israel Bombs Yemen’s Main Airport Days After Houthi Airstrike**\
+`Israel attacked Sana’s international airport after the Houthis fired a missile that struck near Israel’s main airport.`\
+https://nytimes.com/video/world/middleeast/100000010152762/israel-bombs-yemens-main-airport-days-after-houthi-airstrike.html
+
 **Trump Surprises Canada With a New Message: We Love You**\
 `President Trump played nice when he came face-to-face with the new prime minister of Canada, the country he has spent months belittling.`\
 https://nytimes.com/2025/05/06/us/politics/trump-canada-love.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336848/2025/05/06/inter-4-barcelona-3-champions-le
 **Chinese Imports Hit 2-Decade Low as Trump Tariffs Begin to Bite**\
 `While imports can swing with seasonal shifts, President Trump’s ratcheting up of U.S. tariffs on China has begun to cascade through supply chains, government data shows.`\
 https://nytimes.com/2025/05/06/business/us-china-imports-tariffs.html
-
-**‘Five Models in Ruins, 1981’ Review: Disastrous Dress-Up**\
-`Caitlin Saylor Stephens’s new play imagines a fashion shoot with the gowns Princess Diana rejected for her recent wedding. The models are not amused.`\
-https://nytimes.com/2025/05/06/theater/five-models-in-ruins-1981-review.html
 

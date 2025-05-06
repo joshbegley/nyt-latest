@@ -1,3 +1,15 @@
+**Trump Surprises Canada With a New Message: We Love You**\
+`President Trump played nice when he came face-to-face with the new prime minister of Canada, the country he has spent months belittling.`\
+https://nytimes.com/2025/05/06/us/politics/trump-canada-love.html
+
+**How Will Ranked-Choice Voting Work in the N.Y.C. Mayoral Primary? Let’s Look at How It Worked Last Time.**\
+`The result of the crowded 2025 race for mayor may turn on voters' second or third choices, like it nearly did in 2021.`\
+https://nytimes.com/interactive/2025/05/06/nyregion/nyc-mayoral-election-2025-ranked-choice-voting.html
+
+**‘James’ Won the Pulitzer, but Not Without Complications**\
+`In an unusual but not unprecedented move, the prize board chose a fourth option after it couldn’t agree on the three less-heralded finalists.`\
+https://nytimes.com/2025/05/06/books/james-percival-everett-pulitzer-jury.html
+
 **Was First Amendment Violated in Student Arrests? Trump Lawyer Won’t Say.**\
 `The Trump administration is focusing on logistical issues, not constitutional ones, in its efforts to keep several international students in detention. The tactic has effectively slowed some high-profile cases.`\
 https://nytimes.com/2025/05/06/us/student-protesters-immigration-detention-first-amendment.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/06/business/us-china-imports-tariffs.html
 **‘Five Models in Ruins, 1981’ Review: Disastrous Dress-Up**\
 `Caitlin Saylor Stephens’s new play imagines a fashion shoot with the gowns Princess Diana rejected for her recent wedding. The models are not amused.`\
 https://nytimes.com/2025/05/06/theater/five-models-in-ruins-1981-review.html
-
-**Just Through Central Park, a Different Gala Celebrates Students’ First Steps**\
-`The inaugural iBrain Gala, hosted at the Central Park Boathouse by a school for students with severe disabilities, featured a red carpet that they walked with the help of an exoskeleton device.`\
-https://nytimes.com/2025/05/06/style/ibrain-gala-met-gala.html
-
-**Why Stars Were Wearing ‘Custom EBay’ on Fashion’s Biggest Night**\
-`Amid all the Louis Vuitton and Chanel, the online auction house — which sponsored the party — got several high-profile shout-outs on the blue carpet.`\
-https://nytimes.com/2025/05/06/style/ebay-met-gala.html
-
-**Severe Storms Threaten Parts of the South**\
-`Heavy rain, storms and flash flooding are expected across Texas, Louisiana and Mississippi this week.`\
-https://nytimes.com/video/us/100000010152758/texas-storms-hail.html
 
