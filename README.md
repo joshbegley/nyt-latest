@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`Israel’s plan to seize territory in Gaza.`\
+https://nytimes.com/2025/05/06/briefing/gaza-met-gala-germany.html
+
+**Mirtle: Why Sam Bennett should be suspended for his hit on Anthony Stolarz**\
+`This play is going to be debated into the ground, but the reality is it comes down to what this league wants to be.`\
+https://nytimes.com/athletic/6336326/2025/05/06/sam-bennett-anthony-stolarz-hit-nhl-playoffs/
+
 **The Knicks — still gritty, still tough, still clutch — deserve respect**\
 `After going down 20 points Monday, the expectation was that the Knicks were going to fold. Instead, they made the Celtics panic late.`\
 https://nytimes.com/athletic/6336298/2025/05/06/new-york-knicks-celtics-game-1-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6333991/2025/05/06/inter-champions-league-respect-i
 **Should we really be surprised Arsenal are playing catch up in the Champions League?**\
 `Arteta has developed Arsenal over recent years based on being hard to beat, but they lack quality and quantity in terms of match winners`\
 https://nytimes.com/athletic/6334160/2025/05/06/arsenal-psg-arteta-kroenke-ucl/
-
-**The Real Madrid awaiting Alexander-Arnold is very different to when they made their move**\
-`Alexander-Arnold is heading to Madrid - but the club's outlook has changed compared to this time last year`\
-https://nytimes.com/athletic/6327783/2025/05/06/trent-alexander-arnold-real-madrid-different/
-
-**So your club can't land Liam Delap this summer - who should they target instead?**\
-`The Ipswich Town striker has a lot of admirers but here are some potential alternatives for teams who need a Delap-style option this summer`\
-https://nytimes.com/athletic/6329146/2025/05/06/so-your-club-cant-land-liam-delap-this-summer-who-should-they-target-instead/
 

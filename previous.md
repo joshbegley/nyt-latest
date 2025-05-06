@@ -1,3 +1,7 @@
+**The Knicks — still gritty, still tough, still clutch — deserve respect**\
+`After going down 20 points Monday, the expectation was that the Knicks were going to fold. Instead, they made the Celtics panic late.`\
+https://nytimes.com/athletic/6336298/2025/05/06/new-york-knicks-celtics-game-1-comeback/
+
 **AJ Smith-Shawver flirts with no-hitter in game 'you kind of dream about as a kid'**\
 `Manager Brian Snitker told the pitcher he would have let him go as high as 120 pitches if that's what it took to get the no-hitter.`\
 https://nytimes.com/athletic/6336355/2025/05/06/braves-aj-smith-shawver-no-hitter-bid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327783/2025/05/06/trent-alexander-arnold-real-madr
 **So your club can't land Liam Delap this summer - who should they target instead?**\
 `The Ipswich Town striker has a lot of admirers but here are some potential alternatives for teams who need a Delap-style option this summer`\
 https://nytimes.com/athletic/6329146/2025/05/06/so-your-club-cant-land-liam-delap-this-summer-who-should-they-target-instead/
-
-**15 Unforgettable Looks at the Met Gala**\
-`Sweeping trains, sharp suiting, feathered finery and more.`\
-https://nytimes.com/2025/05/06/style/met-gala-2025-best-dressed.html
 

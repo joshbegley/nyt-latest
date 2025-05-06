@@ -1,3 +1,7 @@
+**The Knicks — still gritty, still tough, still clutch — deserve respect**\
+`After going down 20 points Monday, the expectation was that the Knicks were going to fold. Instead, they made the Celtics panic late.`\
+https://nytimes.com/athletic/6336298/2025/05/06/new-york-knicks-celtics-game-1-comeback/
+
 **AJ Smith-Shawver flirts with no-hitter in game 'you kind of dream about as a kid'**\
 `Manager Brian Snitker told the pitcher he would have let him go as high as 120 pitches if that's what it took to get the no-hitter.`\
 https://nytimes.com/athletic/6336355/2025/05/06/braves-aj-smith-shawver-no-hitter-bid/
