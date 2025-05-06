@@ -1,3 +1,11 @@
+**First World Cup 2026 tickets go on sale as hospitality packages released**\
+`The first men's World Cup tickets are on sale in the hospitality sector. As expected, they're not cheap.`\
+https://nytimes.com/athletic/6336841/2025/05/06/world-cup-2026-tickets-hospitality/
+
+**A Beloved Soprano to Lead Opera Theater of St. Louis**\
+`Patricia Racette, who has a recent history of performing in and directing productions with the company, will begin as its artistic director this fall.`\
+https://nytimes.com/2025/05/06/arts/music/opera-theater-of-st-louis-patricia-racette.html
+
 **Notre Dame, Clemson announce 12-year football series**\
 `Notre Dame and Clemson will play every year from 2027-38 as part of the Irish's average of five ACC football games per year.`\
 https://nytimes.com/athletic/6337153/2025/05/06/notre-dame-clemson-acc-football-series/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/africa/100000010151910/port-sudan-drone-strike-.
 **NASCAR announces 2026 championship shift to Homestead-Miami Speedway: 'The right time'**\
 `NASCAR announced its expected return to Homestead-Miami Speedway for the season finale, starting a new rotation of championship hosts.`\
 https://nytimes.com/athletic/6336792/2025/05/06/nascar-2026-championship-homestead-miami-speedway-return/
-
-**Man City to join inaugural women's seven-a-side tournament**\
-`The announcement also confirmed that Roma, Paris Saint-Germain and Rosenberg would be taking part in the event in Estoril, Portugal in May.`\
-https://nytimes.com/athletic/6323943/2025/05/06/manchester-city-women-world-sevens/
-
-**Sam Bennett won't face supplemental discipline for hit on Anthony Stolarz: Sources**\
-`Bennett clipped Stolarz in the head area in the second period of Game 1. He wasn’t penalized on the play.`\
-https://nytimes.com/athletic/6337023/2025/05/06/sam-bennett-anthony-stolarz-maple-leafs-panthers-nhl-playoffs/
 
