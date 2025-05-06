@@ -1,3 +1,15 @@
+**Trump Promises Announcement ‘as Big as It Gets’**\
+`The president provided no other details, but suggested he would share the news before he leaves for a trip to the Middle East next week.`\
+https://nytimes.com/2025/05/06/us/politics/trump-very-big-announcement.html
+
+**$750 Million to Be Paid to Women Who Were Sexually Abused by Doctor**\
+`The settlement with Columbia University and NewYork-Presbyterian pushes the total bill for Robert A. Hadden’s actions to nearly $1 billion.`\
+https://nytimes.com/2025/05/06/nyregion/columbia-university-hadden-settlement-sex-abuse.html
+
+**The fallout of Club World Cup's play-in pivot for LAFC, Club América, León**\
+`Club León's hopes of participating have been extinguished, but a $10 million opportunity is knocking for LAFC and Club América.`\
+https://nytimes.com/athletic/6337655/2025/05/06/fifa-club-world-cup-playoff-lafc-america-leon-james-rodriguez/
+
 **Travelers Without a Real ID Will Still Be Allowed to Fly, Noem Says**\
 `Kristi Noem, the secretary of homeland security, said that travelers without a federally recognized document would face additional screening on Wednesday but would not be barred from flights.`\
 https://nytimes.com/2025/05/06/us/real-id-requirements-extra-screening.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/doe-kills-grant-pbs-childrens-shows.h
 **Sue Bird to become managing director for the USA women’s national team: Sources**\
 `Bird's hiring is a departure from a longstanding structure of using a committee to select players and coaches for national team rosters.`\
 https://nytimes.com/athletic/6337635/2025/05/06/usa-womens-basketball-sue-bird-director/
-
-**Emergency Crew Responds After Plane Collision in San Francisco**\
-`Two United Airlines planes collided while taxiing on the tarmac at San Francisco International Airport Monday night. No injuries were reported.`\
-https://nytimes.com/video/us/100000010152770/plane-collision-san-francisco.html
-
-**Seven Weeks and Counting: The N.Y.C. Mayoral Primary Is Heating Up**\
-`We’re in the homestretch of a critical race to choose the Democratic nominee for mayor. Primary Day is June 24.`\
-https://nytimes.com/2025/05/06/nyregion/nyc-mayor-race.html
-
-**Kentucky Derby winner Sovereignty to skip Preakness, end Triple Crown hopes**\
-`Sovereignty will instead prepare for the Belmont Stakes in early June.`\
-https://nytimes.com/athletic/6337682/2025/05/06/sovereignty-preakness-2025-triple-crown-horse/
 

@@ -1,3 +1,23 @@
+**Travelers Without a Real ID Will Still Be Allowed to Fly, Noem Says**\
+`Kristi Noem, the secretary of homeland security, said that travelers without a federally recognized document would face additional screening on Wednesday but would not be barred from flights.`\
+https://nytimes.com/2025/05/06/us/real-id-requirements-extra-screening.html
+
+**Rice on overturning PSG lead: We proved in Madrid we can handle big situations**\
+`Only two teams in Champions League history have come back from losing a semi-final first-leg at home.`\
+https://nytimes.com/athletic/6337704/2025/05/06/declan-rice-arsenal-psg/
+
+**Antisemitic Sign at Barstool Sports Bar Draws Widespread Outrage**\
+`The incident at a Philadelphia bar owned by the Barstool Sports founder Dave Portnoy comes amid a surge of antisemitic episodes in the United States.`\
+https://nytimes.com/2025/05/06/us/dave-portnoy-barstool-antisemitism-temple-university.html
+
+**Bipartisan House and Senate Leaders Urge White House to Restore Spending Website**\
+`In the latest chapter in a battle over spending powers, lawmakers charged that the administration removed crucial information in violation of the law. The White House argues the data shouldn’t be public.`\
+https://nytimes.com/2025/05/06/us/politics/congress-white-house-spending-website.html
+
+**U.S. to Downgrade Palestinian Affairs Office in Jerusalem, Officials Say**\
+`The U.S. ambassador to Israel, Mike Huckabee, plans to shut down a direct communications channel between U.S. diplomats in Jerusalem working on Palestinian issues and agencies in Washington.`\
+https://nytimes.com/2025/05/06/world/middleeast/trump-palestinian-affairs-jerusalem.html
+
 **Department of Education Eliminates Grant for PBS Children’s Shows**\
 `The termination of the federal grant program, called Ready To Learn, resulted in a loss of $23 million that would have gone to educational programs.`\
 https://nytimes.com/2025/05/06/us/politics/doe-kills-grant-pbs-childrens-shows.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/06/nyregion/nyc-mayor-race.html
 **Kentucky Derby winner Sovereignty to skip Preakness, end Triple Crown hopes**\
 `Sovereignty will instead prepare for the Belmont Stakes in early June.`\
 https://nytimes.com/athletic/6337682/2025/05/06/sovereignty-preakness-2025-triple-crown-horse/
-
-**Map: 3.0-Magnitude Earthquake Strikes Virginia**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/05/06/us/quake-tracker-virginia.html
-
-**Sean Combs’s Trial: What to Know**\
-`The music mogul known as Puffy and Diddy is facing federal charges of racketeering conspiracy and sex trafficking. He has pleaded not guilty.`\
-https://nytimes.com/article/diddy-sean-combs-trial-sex-trafficking.html
-
-**Supreme Court Lets Trump Enforce Transgender Troop Ban as Cases Proceed**\
-`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
-https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
-
-**Columbia Lays Off Nearly 180 People Because of Trump Research Cuts**\
-`“We understand this news will be hard,” Claire Shipman, Columbia University’s acting president, wrote in a note to the community.`\
-https://nytimes.com/2025/05/06/us/politics/columbia-layoffs-trump-research-cuts.html
-
-**Going Back to Pavement’s Gold Sounds**\
-`Hear 11 songs to prep for the band’s bizarro documentary, “Pavements.”`\
-https://nytimes.com/2025/05/06/arts/music/pavement.html
 
