@@ -1,3 +1,11 @@
+**FIFA confirms Club World Cup playoff after CAS rejects Club Leon appeal**\
+`The winners of the one-off game will take the place of Club Leon in Group D for the newly-expanded tournament.`\
+https://nytimes.com/athletic/6243773/2025/05/06/club-world-cup-playoff-america-lafc/
+
+**Climate Science Is ‘Unstoppable’**\
+`The National Climate Assessment has a setback, but help is on the way. Also: Vietnam-era exiles from the U.S.; drugs and tariffs.`\
+https://nytimes.com/2025/05/06/opinion/climate-science.html
+
 **A Culinary Amenity That May Be Too Hot to Handle**\
 `It takes a strong back and a robust budget to put a wood-burning oven in your kitchen.`\
 https://nytimes.com/2025/05/06/style/wood-burning-oven-kitchen-home.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/style/tableware-products.html
 **Billy Horschel to have right hip surgery, will miss multiple months**\
 `“It’s an unfortunate situation with so many great events left on the calendar, but this is a preventative measure," Horschel said.`\
 https://nytimes.com/athletic/6337397/2025/05/06/billy-horschel-surgery-injury/
-
-**Of Course South Street Seaport Should Have a Whaling Tavern**\
-`Quick Eternity takes inspiration from “Moby Dick,” with a driftwood bar, cocktails and New England fare.`\
-https://nytimes.com/2025/05/06/dining/nyc-restaurant-news.html
-
-**Maple Leafs won't rule out Anthony Stolarz for Game 2: 'He's doing good'**\
-`Coach Craig Berube said “we’ll see” on Tuesday morning when asked if Stolarz would be available on Wednesday night.`\
-https://nytimes.com/athletic/6337386/2025/05/06/maple-leafs-stolarz-game-2-nhl-playoffs/
 
