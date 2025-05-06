@@ -1,3 +1,11 @@
+**A Culinary Amenity That May Be Too Hot to Handle**\
+`It takes a strong back and a robust budget to put a wood-burning oven in your kitchen.`\
+https://nytimes.com/2025/05/06/style/wood-burning-oven-kitchen-home.html
+
+**Is the Penguins’ head-coach opening still a premier NHL job?**\
+`Kyle Dubas may find it difficult to entice qualified coaches to Pittsburgh because of the team's competing priorities.`\
+https://nytimes.com/athletic/6337002/2025/05/06/penguins-coach-search-nhl/
+
 **Cincinnati Mayoral Primary Election Results**\
 `Get live results and maps from the Cincinnati and Ohio elections.`\
 https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/dining/nyc-restaurant-news.html
 **Maple Leafs won't rule out Anthony Stolarz for Game 2: 'He's doing good'**\
 `Coach Craig Berube said “we’ll see” on Tuesday morning when asked if Stolarz would be available on Wednesday night.`\
 https://nytimes.com/athletic/6337386/2025/05/06/maple-leafs-stolarz-game-2-nhl-playoffs/
-
-**Europeans Shun Tesla, Even as Electric Vehicle Sales Rise**\
-`Demand for the U.S. auto maker’s vehicles slid amid stronger competition from Europe and China and rising anger at Elon Musk’s political forays.`\
-https://nytimes.com/2025/05/06/world/europe/europe-tesla-sales-germany-britain.html
-
-**‘The Class’ Is a Poignant Docuseries About Covid and College**\
-`The PBS series is a both a coming-of-age story and a historical document, about the lasting effects on young people of the pandemic shutdown.`\
-https://nytimes.com/2025/05/06/arts/television/the-class-pbs-covid-documentary.html
 

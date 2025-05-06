@@ -1,3 +1,11 @@
+**A Culinary Amenity That May Be Too Hot to Handle**\
+`It takes a strong back and a robust budget to put a wood-burning oven in your kitchen.`\
+https://nytimes.com/2025/05/06/style/wood-burning-oven-kitchen-home.html
+
+**Is the Penguins’ head-coach opening still a premier NHL job?**\
+`Kyle Dubas may find it difficult to entice qualified coaches to Pittsburgh because of the team's competing priorities.`\
+https://nytimes.com/athletic/6337002/2025/05/06/penguins-coach-search-nhl/
+
 **Cincinnati Mayoral Primary Election Results**\
 `Get live results and maps from the Cincinnati and Ohio elections.`\
 https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
