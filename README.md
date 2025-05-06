@@ -1,3 +1,15 @@
+**DoorDash Agrees to Buy Deliveroo in $3.9 Billion Deal**\
+`The acquisition would give DoorDash a presence in the Middle East and expand its footprint in Europe.`\
+https://nytimes.com/2025/05/06/business/doordash-deliveroo-takeover.html
+
+**On Pakistan’s Side of Kashmir, Locals Fear They’ll Be the First to Face India’s Ire**\
+`Many in the region are preparing for a possible military confrontation between India and Pakistan because of a terrorist attack two weeks ago.`\
+https://nytimes.com/2025/05/06/world/asia/pakistan-kashmir-india-tension.html
+
+**I Almost Quit My Career for My Kids. Then I Met Joan Darling.**\
+`“For the first time since having my kids, I felt like a whole person.”`\
+https://nytimes.com/video/opinion/100000010052911/motherhood-career-joan-darling.html
+
 **Two riders die in crash involving 11 bikes at British motorcycle race**\
 `MotorSport Vision Racing, which organises the series, confirmed the deaths of Owen Jenner, aged 21, and Shane Richardson, 29.`\
 https://nytimes.com/athletic/6336569/2025/05/06/british-supersport-championship-deaths/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/06/insider/life-finds-a-way-in-a-writers-science-rep
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/06/crosswords/spelling-bee-forum.html
-
-**How Aston Villa won the FA Youth Cup - and what it means for the future**\
-`Canny scouting, joined-up tactics and a steely mentality have turned Villa's under-18s into a formidable group`\
-https://nytimes.com/athletic/6334855/2025/05/06/aston-villa-fa-youth-cup-inside-story/
-
-**Tatis and Shildt ejected over ump's strike zone, then Padres exact revenge against Yankees**\
-`After the Padres endured two rain delays, their contact-fueled offense took advantage of the Yankees bullpen. `\
-https://nytimes.com/athletic/6336478/2025/05/06/padres-comeback-win-against-yankees/
-
-**Word of the Day: pseudonym**\
-`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/06/learning/word-of-the-day-pseudonym.html
 
