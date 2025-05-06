@@ -1,3 +1,11 @@
+**Gregg Popovich is still laughing at himself as he steps back from coaching**\
+`The legendary coach's new job really isn't that new at all.`\
+https://nytimes.com/athletic/6335998/2025/05/05/gregg-popovich-head-coach-mitch-johnson-nba/
+
+**Kamala Harris’s Makes a Surprise Met Gala Appearance**\
+`The former vice president skipped the carpet, but slipped into the gala in a black silk gown in one of her first major public appearances since the 2024 election.`\
+https://nytimes.com/2025/05/05/style/kamala-harris-met-gala-2025.html
+
 **Kamala Harris’s Quiet Surprise at the Met Gala**\
 `The former vice president skipped the carpet, but slipped into the gala in a black silk gown in one of her first major public appearances since the 2024 election.`\
 https://nytimes.com/2025/05/05/style/kamala-harris-met-gala-2025.html

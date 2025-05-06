@@ -1,3 +1,11 @@
+**Ryan Coogler Wears a Cummerbund, Finally**\
+`At his first Met Gala, the director fulfills a lifelong fashion dream.`\
+https://nytimes.com/2025/05/05/style/ryan-coogler-2025-met-gala-look.html
+
+**Leafs goalie Anthony Stolarz leaves game after hit to head**\
+`Leafs starter heads to the dressing room minutes after taking a Sam Bennett forearm to the head.`\
+https://nytimes.com/athletic/6336126/2025/05/05/leafs-anthony-stolarz-injury-nhl-playoffs/
+
 **Gregg Popovich is still laughing at himself as he steps back from coaching**\
 `The legendary coach's new job really isn't that new at all.`\
 https://nytimes.com/athletic/6335998/2025/05/05/gregg-popovich-head-coach-mitch-johnson-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-col
 **Janelle Monáe Is a ‘Time-Traveling Dandy’ at the Met Gala**\
 `The singer and actor has long made tailored suits and accessories core to her style identity.`\
 https://nytimes.com/2025/05/05/style/janelle-monae-met-gala-2025.html
-
-**Trump Executive Order Restricts ‘Gain of Function’ Research on Pathogens**\
-`Scientists have long debated the merits and risks of tinkering with viruses and bacteria, which the president claims caused the coronavirus pandemic.`\
-https://nytimes.com/2025/05/05/us/politics/trump-executive-order-restricts-gain-of-function-research-on-pathogens.html
-
-**13 Workers Found Killed at Gold Mine in Peru**\
-`The men were killed in a region that has seen growing conflict over access to ore in recent years. The mine has also been a hotbed of illegal gold mining.`\
-https://nytimes.com/2025/05/05/world/americas/peru-gold-miners-killed-boluarte.html
 
