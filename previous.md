@@ -1,3 +1,7 @@
+**Met Gala Fashion**\
+`What were your favorite and least favorite looks at this year’s event?`\
+https://nytimes.com/2025/05/06/learning/met-gala-fashion.html
+
 **Who Is Friedrich Merz, Who Just Stumbled in His Bid to Become Germany’s Chancellor?**\
 `Supporters of the former corporate lawyer say he is well-prepared and thoughtful, but critics accuse him of failing to think more than one step ahead and breaking promises.`\
 https://nytimes.com/2025/05/06/world/europe/friedrich-merz-chanellor-who-is.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335289/2025/05/06/giving-guardians-superlatives-to
 **A Climate Warning From the Fertile Crescent**\
 `In Iraq, the landscape that cradled civilization is enduring a water crisis with profound implications.`\
 https://nytimes.com/2025/05/06/podcasts/the-daily/climate-change-iraq-middle-east.html
-
-**Tigers mailbag Part 2: Could Tigers get aggressive at trade deadline?**\
-`Who could the Tigers target at the trade deadline? Plus what should we make of Casey Mize and Spencer Torkelson's bounceback seasons?`\
-https://nytimes.com/athletic/6335134/2025/05/06/tigers-mailbag-part-2-aggressive-trade-deadline/
 

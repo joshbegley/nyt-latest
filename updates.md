@@ -1,3 +1,7 @@
+**Met Gala Fashion**\
+`What were your favorite and least favorite looks at this year’s event?`\
+https://nytimes.com/2025/05/06/learning/met-gala-fashion.html
+
 **Who Is Friedrich Merz, Who Just Stumbled in His Bid to Become Germany’s Chancellor?**\
 `Supporters of the former corporate lawyer say he is well-prepared and thoughtful, but critics accuse him of failing to think more than one step ahead and breaking promises.`\
 https://nytimes.com/2025/05/06/world/europe/friedrich-merz-chanellor-who-is.html
