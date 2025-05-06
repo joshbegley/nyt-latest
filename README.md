@@ -1,3 +1,11 @@
+**Until Saturday: Saban and Trump outta nowhere**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-ncaa-nil-until-saturday/
+
+**Was No. 10 Rillington Place the Deadliest Address in London?**\
+`In “The Peepshow,” Kate Summerscale tells the stranger-than-fiction story of a sensational murder case that rocked 1950s London.`\
+https://nytimes.com/2025/05/06/books/review/kate-summerscale-the-peepshow.html
+
 **N.I.H. Bars New Funding From U.S. Scientists to Partners Abroad**\
 `Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
 https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6337002/2025/05/06/penguins-coach-search-nhl/
 **Cincinnati Mayoral Primary Election Results**\
 `Get live results and maps from the Cincinnati and Ohio elections.`\
 https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
-
-**Florida, coach Todd Golden agree to 6-year, $40.5 million extension**\
-`Golden became the youngest head coach in more than four decades to win the men's NCAA Tournament.`\
-https://nytimes.com/athletic/6337472/2025/05/06/florida-coach-todd-golden-contract-extension-national-title/
-
-**Coffee Flavored by Venice Itself**\
-`Visitors to the Venice Biennale of Architecture will be able to buy espresso made from canal water.`\
-https://nytimes.com/2025/05/06/style/coffee-venice-water.html
 
