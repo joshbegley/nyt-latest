@@ -1,3 +1,11 @@
+**PSG's Dembele 'available to play' Arsenal second leg - Luis Enrique**\
+`Dembele has scored 33 goals across all competitions this season, including in last week's first leg PSG triumph in London.`\
+https://nytimes.com/athletic/6336720/2025/05/06/ousmane-dembele-psg-team-news-arsenal-champions-league/
+
+**Merz may have set himself up for failure in the parliamentary vote.**\
+`By Jim Tankersley and Christopher F. Schuetze`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-may-have-set-himself-up-for-failure-in-the-parliamentary-vote
+
 **The Pulse: Every second-round playoff series, ranked**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panthers-the-pulse/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panth
 `Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership.`\
 https://nytimes.com/athletic/6336822/2025/05/06/watford-manager-tom-cleverley/
 
-**NBC to use AI to recreate Jim Fagan's voice-over for NBA coverage**\
+**NBC to use AI to recreate Jim Fagan's voiceover for NBA coverage**\
 `This is the second time that NBC has created an AI partnership after Al Michaels was compensated for his AI-generated voice at the Olympics`\
 https://nytimes.com/athletic/6335267/2025/05/06/nbc-ai-jim-fagan-nba-voice-old-school/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6335235/2025/05/06/rangers-defense-goalies-grades-2
 **Blues offseason checklist: Holloway, Broberg contracts, Kyrou's no-trade clause, D decisions**\
 `The Blues' offseason checklist in 2025 revolves around deciding who to keep, who to let go and who to re-sign.`\
 https://nytimes.com/athletic/6332814/2025/05/06/blues-offseason-checklist-holloway-broberg-kyrou-defense/
-
-**The Angels hope they're just in a slump. These 10 stats show more reason for concern**\
-`The Angels' story is a well-told tale of futility. These stats help explain why the Angels are back in a familiar spot: last place.`\
-https://nytimes.com/athletic/6335641/2025/05/06/angels-slump-statistics-analysis/
-
-**Atlanta United is still left searching for its soccer soul**\
-`Spending isn't the issue for Atlanta United, but the pieces and direction aren't working for a club that was once among MLS's elite.`\
-https://nytimes.com/athletic/6334766/2025/05/06/atlanta-united-struggles-mls-deila-lagerwey/
 

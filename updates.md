@@ -1,3 +1,15 @@
+**PSG's Dembele 'available to play' Arsenal second leg - Luis Enrique**\
+`Dembele has scored 33 goals across all competitions this season, including in last week's first leg PSG triumph in London.`\
+https://nytimes.com/athletic/6336720/2025/05/06/ousmane-dembele-psg-team-news-arsenal-champions-league/
+
+**Merz may have set himself up for failure in the parliamentary vote.**\
+`By Jim Tankersley and Christopher F. Schuetze`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-may-have-set-himself-up-for-failure-in-the-parliamentary-vote
+
+**NBC to use AI to recreate Jim Fagan's voiceover for NBA coverage**\
+`This is the second time that NBC has created an AI partnership after Al Michaels was compensated for his AI-generated voice at the Olympics`\
+https://nytimes.com/athletic/6335267/2025/05/06/nbc-ai-jim-fagan-nba-voice-old-school/
+
 **The Pulse: Every second-round playoff series, ranked**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panthers-the-pulse/
