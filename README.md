@@ -1,3 +1,7 @@
+**Late Night on Trump, the Constitution and Playing With Dolls**\
+`On “Meet the Press” and social media, President Trump gave the hosts a lot of material to choose from, even by his standards.`\
+https://nytimes.com/2025/05/06/arts/television/late-night-trump-constitution-dolls.html
+
 **Cuomo Says New York Has a Mental Health Crisis. Here’s His Plan.**\
 `Former Gov. Andrew M. Cuomo will release a proposal to remove more mentally ill people from the streets to address fears about public safety.`\
 https://nytimes.com/2025/05/06/nyregion/cuomo-mental-health-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6320317/2025/05/06/crystal-palace-nottingham-forest
 **After Game 1 win over Celtics, Knicks' blueprint with Bridges, Anunoby and Hart is clear**\
 `The Knicks hung on for an improbable Game 1 win after trailing the Celtics by 20 points with just over 17 minutes remaining in regulation.`\
 https://nytimes.com/athletic/6336395/2025/05/06/knicks-beat-celtics-game-1-eastern-conference-semifinals/
-
-**Talking Black Excellence Over Cocktails Inside the Met Gala**\
-`While a starry group of co-chairs greeted guests, Spike Lee, Venus Williams, Zoe Saldaña and Rihanna discussed the significance of dandyism and the importance of the event.`\
-https://nytimes.com/2025/05/06/style/met-gala-cocktail-party.html
 
