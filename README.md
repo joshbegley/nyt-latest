@@ -1,9 +1,21 @@
+**The New York Times in Print for Tuesday, May 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
+
+**Palestinians Need Food, Not Words**\
+`Our clinics have found clear evidence of starvation in one-third of the population. And now Israel wants to take over aid.`\
+https://nytimes.com/2025/05/06/opinion/gaza-israel-aid-starvation.html
+
+**Xi Can’t Conquer Taiwan Until He Tames His Own Generals**\
+`An unending purge in China’s top military ranks raises serious questions over the country’s readiness for offensive war.`\
+https://nytimes.com/2025/05/06/opinion/china-taiwan-xi-jinping.html
+
 **Tuesday Briefing**\
 `Israel’s plan to seize territory in Gaza.`\
 https://nytimes.com/2025/05/06/briefing/gaza-met-gala-germany.html
 
 **Mirtle: Why Sam Bennett should be suspended for his hit on Anthony Stolarz**\
-`This play is going to be debated into the ground, but the reality is it comes down to what this league wants to be.`\
+`This play is going to be debated into the ground, but the reality is the outcome comes down to what this league wants to be.`\
 https://nytimes.com/athletic/6336326/2025/05/06/sam-bennett-anthony-stolarz-hit-nhl-playoffs/
 
 **The Knicks — still gritty, still tough, still clutch — deserve respect**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6335290/2025/05/06/leeds-united-parade-championship
 **Alexander-Arnold, the Liverpool legacy question and why so many fans are angry**\
 `The local lad made good lived the dream on Merseyside but that was not enough to keep them there for life`\
 https://nytimes.com/athletic/6035938/2025/05/06/trent-alexander-arnold-exit-explained/
-
-**Lamine Yamal – What people who know football say about Barcelona's teenage star**\
-`Lots has been said about Lamine Yamal but what do those who work in football say about him? We asked them`\
-https://nytimes.com/athletic/6334424/2025/05/06/lamine-yamal-what-football-says/
-
-**Inter have achieved extraordinary things over the past five years, so why are they still underrated?**\
-`Inter are talked about as contenders more than they were a couple of years ago, when they reached the final, but probably still not enough`\
-https://nytimes.com/athletic/6333991/2025/05/06/inter-champions-league-respect-inzaghi/
-
-**Should we really be surprised Arsenal are playing catch up in the Champions League?**\
-`Arteta has developed Arsenal over recent years based on being hard to beat, but they lack quality and quantity in terms of match winners`\
-https://nytimes.com/athletic/6334160/2025/05/06/arsenal-psg-arteta-kroenke-ucl/
 
