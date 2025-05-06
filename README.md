@@ -1,3 +1,11 @@
+**Columbia Lays Off Nearly 180 People Because of Trump Research Cuts**\
+`“We understand this news will be hard,” Claire Shipman, Columbia University’s acting president, wrote in a note to the community.`\
+https://nytimes.com/2025/05/06/us/politics/columbia-layoffs-trump-research-cuts.html
+
+**Going Back to Pavement’s Gold Sounds**\
+`Hear 11 songs to prep for the band’s bizarro documentary, “Pavements.”`\
+https://nytimes.com/2025/05/06/arts/music/pavement.html
+
 **Blues' Dylan Holloway expected to be ready for start of 2025-26 after surgery for undisclosed injury**\
 `The winger suffered the injury in the Blues' 5-4 overtime win over the Pittsburgh Penguins on April 3.`\
 https://nytimes.com/athletic/6268349/2025/05/06/blues-dylan-holloway-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/books/review/kate-summerscale-the-peepshow.html
 **N.I.H. Bans New Funding From U.S. Scientists to Partners Abroad**\
 `Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
 https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
-
-**Could Columbia Change Who Gets to Set the Rules on Protests?**\
-`Administrators and trustees have ordered a review of the faculty-led university senate, which could redefine control of student demonstrations.`\
-https://nytimes.com/2025/05/06/nyregion/columbia-university-senate-review.html
-
-**India Seeks to Block Auction of Buddhist Religious Relics**\
-`A collection of jewels and holy relics is set to be auctioned by the family of a colonial-era English explorer. Now, the Indian government says it’s not theirs to sell.`\
-https://nytimes.com/2025/05/06/world/asia/buddha-jewels-auction-india-sothebys.html
 
