@@ -1,40 +1,40 @@
-**Big 12 extends commissioner Brett Yormark through 2030: Sources**\
-`Yormark has steered the Big 12 through years of change for both the conference and college sports at large.`\
-https://nytimes.com/athletic/6337211/2025/05/06/brett-yormark-big-12-contract-extension/
+**Do These Ridiculous Glasses Cure Motion Sickness? **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/motion-sickness-glasses-review
 
-**He Produced ‘Rent’ and ‘Hamilton.’ Now He’s Telling His Own Story.**\
-`In “Theater Kid,” Jeffrey Seller reflects on his Broadway career.`\
-https://nytimes.com/2025/05/06/theater/jeffrey-seller-theater-kid-hamilton-memoir.html
+**How to Make the Best Salsa**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/how-to-make-salsa
 
-**Melissa Toogood Named New Director of Juilliard’s Dance Division**\
-`A member of Merce Cunningham’s final company, Toogood brings to the job years of experience as a dancer and educator.`\
-https://nytimes.com/2025/05/06/arts/dance/melissa-toogood-juilliard-dance.html
+**36 Hours in Kathmandu**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-kathmandu
 
-**Simone Biles, Jenna Ortega and Lisa Hit Met Gala After-Parties**\
-`Pop stars, club kids and the mayor of New York City kept the festivities going into the early morning hours.`\
-https://nytimes.com/2025/05/06/style/met-gala-after-party-photos.html
+**VacationStars-of-Womens-Sports**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/travel-women-sports-events
 
-**Drance: Draft Lottery a reminder Canucks need more than luck to get back on track**\
-`On Monday night, the lottery balls didn't bounce Vancouver's way. And why would they? They never have before.`\
-https://nytimes.com/athletic/6336544/2025/05/06/nhl-draft-canucks-lottery-2025/
+**Boom-in-Antarctic-Cruises**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/travel-boom-in-antarctic-cruises
 
-**First World Cup 2026 tickets go on sale as hospitality packages released**\
-`The first men's World Cup tickets are on sale in the hospitality sector. As expected, they're not cheap.`\
-https://nytimes.com/athletic/6336841/2025/05/06/world-cup-2026-tickets-hospitality/
+**gws-jennifer-tilly-real-housewives-beverly-hills**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jennifer-tilly-real-housewives-beverly-hills
 
-**A Beloved Soprano to Lead Opera Theater of St. Louis**\
-`Patricia Racette, who has a recent history of performing in and directing productions with the company, will begin as its artistic director this fall.`\
-https://nytimes.com/2025/05/06/arts/music/opera-theater-of-st-louis-patricia-racette.html
+**gws-majorca-hiking-cycling-running**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/majorca-hiking-cycling-running
 
-**Notre Dame, Clemson announce 12-year football series**\
-`Notre Dame and Clemson will play every year from 2027-38 as part of the Irish's average of five ACC football games per year.`\
-https://nytimes.com/athletic/6337153/2025/05/06/notre-dame-clemson-acc-football-series/
+**gws-cheap-food-items-grocery-shopping-recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dining-cheap-food-items-grocery-shopping-recipes
 
-**How to Spend 3 Days in Nashville**\
-`Experience the music heritage, Southern hospitality and creative energy through the city’s evolving neighborhoods.`\
-https://nytimes.com/paidpost/nashville-visitors-bureau/how-to-spend-3-days-in-nashville.html
+**The Best Turkey Meatballs I’ve Ever Made**\
+`Ali Slagle’s turkey-ricotta meatballs are so tender that you can easily slice into them with a spoon.`\
+https://nytimes.com/2025/05/06/dining/the-best-turkey-meatballs-ive-ever-made.html
 
-**Adam Lowry, Rick Bowness and the special Game 7 moment that was years in the making**\
-`Adam Lowry owes much of his personal and hockey growth, as well as the "C" on his jersey, to Rick Bowness.`\
-https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry-bowness/
+**‘Ragtime’ Is Returning to Broadway**\
+`A revival of the sweeping musical will open at Lincoln Center Theater in October, starring Joshua Henry, Caissie Levy and Brandon Uranowitz.`\
+https://nytimes.com/2025/05/06/theater/ragtime-broadway.html
 
