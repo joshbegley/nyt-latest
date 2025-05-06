@@ -1,3 +1,8 @@
+**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
+`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
+`\
+https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
+
 **A federal judge bars the Trump administration from denying $1 billion in Covid-related school aid.**\
 `The ruling, in a lawsuit brought by Democratic officials in 16 states and Washington, D.C., halts a plan by the U.S. Education Department not to release unspent funds.`\
 https://nytimes.com/live/2025/05/06/us/trump-administration-updates/a-federal-judge-bars-the-trump-administration-from-denying-1-billion-in-covid-related-school-aid
