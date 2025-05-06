@@ -1,3 +1,11 @@
+**Diljit Dosanjh Brings Punjab to the Red Carpet**\
+`For the Punjabi artist’s first Met Gala appearance, he chose to honor an early Indian dandy.`\
+https://nytimes.com/2025/05/05/style/diljit-dosanjh-punjabi-singer-met-gala-2025.html
+
+**Spy Agencies Do Not Think Venezuela Directs Gang, Declassified Memo Shows**\
+`The release of the memo further undercuts the Trump administration’s rationale for using the Alien Enemies Act to deport scores of Venezuelans to a prison in El Salvador.`\
+https://nytimes.com/2025/05/05/us/trump-venezuela-gang-ties-spy-memo.html
+
 **Jordan Casteel Honors Her Grandmother at the Met Gala**\
 `The painter will be wearing a bespoke dress, but it is what the public won’t see that makes her the most proud.`\
 https://nytimes.com/2025/05/05/style/jordan-casteel-met-gala-2025.html
