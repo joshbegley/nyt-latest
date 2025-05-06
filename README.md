@@ -1,3 +1,7 @@
+**Upstate N.Y. school system’s support for trans athletes draws federal investigation.**\
+`The Saratoga Springs school board had pledged to safeguard students’ right to participate in activities consistent with their gender identity.`\
+https://nytimes.com/live/2025/05/06/us/trump-administration-updates/upstate-ny-school-systems-support-for-trans-athletes-draws-federal-investigation
+
 **Israel Bombs Yemen’s Main Airport Days After Houthi Airstrike**\
 `Israel attacked Sana’s international airport after the Houthis fired a missile that struck near Israel’s main airport.`\
 https://nytimes.com/video/world/middleeast/100000010152762/israel-bombs-yemens-main-airport-days-after-houthi-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/world/europe/scotland-island-colonsay-job-offer.h
 **Inter 4 Barca 3 (agg: 7-6): Frattesi settles sensational tie, sends Inter to Champions League final**\
 `Inter ended Barca's quest for a treble with a brilliant win in extra time against Flick's side`\
 https://nytimes.com/athletic/6336848/2025/05/06/inter-4-barcelona-3-champions-league-semi-final/
-
-**Chinese Imports Hit 2-Decade Low as Trump Tariffs Begin to Bite**\
-`While imports can swing with seasonal shifts, President Trump’s ratcheting up of U.S. tariffs on China has begun to cascade through supply chains, government data shows.`\
-https://nytimes.com/2025/05/06/business/us-china-imports-tariffs.html
 
