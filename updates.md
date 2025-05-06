@@ -1,3 +1,11 @@
+**Until Saturday: Saban and Trump outta nowhere**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-ncaa-nil-until-saturday/
+
+**Was No. 10 Rillington Place the Deadliest Address in London?**\
+`In “The Peepshow,” Kate Summerscale tells the stranger-than-fiction story of a sensational murder case that rocked 1950s London.`\
+https://nytimes.com/2025/05/06/books/review/kate-summerscale-the-peepshow.html
+
 **N.I.H. Bars New Funding From U.S. Scientists to Partners Abroad**\
 `Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
 https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
