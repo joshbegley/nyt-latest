@@ -1,3 +1,7 @@
+**When Did Restaurant Salads Get So … Unwieldy?**\
+`‘Why am I cutting lettuce like a steak?’ one diner asked, but chefs say they have their reasons.`\
+https://nytimes.com/2025/05/06/dining/big-restaurant-salads.html
+
 **Trump Is Picking New Climate Fights With States. Here’s Why.**\
 `The White House has begun a new effort to sue individual states over their climate initiatives and to stop lawsuits against fossil fuel companies.`\
 https://nytimes.com/2025/05/06/climate/trump-climate-change-state-lawsuits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/nyregion/newark-migrants-ras-baraka-ice.html
 **Caitlin Clark joins LeBron James for ESPN preseason game viewership records**\
 `The WNBA had its first nationally televised exhibition game Sunday between the Indiana Fever and Brazil’s national team.`\
 https://nytimes.com/athletic/6337183/2025/05/06/caitlin-clark-fever-preseason-game-viewership-lebron-james/
-
-**Birmingham to have Category One academy status restored**\
-`The club's U.S. owners, Knighthead, have made improving the academy a priority since taking over the club in 2023.`\
-https://nytimes.com/athletic/6337226/2025/05/06/birmingham-city-academy-category-one/
 
