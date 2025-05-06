@@ -1,3 +1,11 @@
+**The Pulse: Every second-round playoff series, ranked**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panthers-the-pulse/
+
+**Watford part company with head coach Cleverley**\
+`Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership.`\
+https://nytimes.com/athletic/6336822/2025/05/06/watford-manager-tom-cleverley/
+
 **Watford part company with head coach Tom Cleverley**\
 `Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership`\
 https://nytimes.com/athletic/6336822/2025/05/06/watford-manager-tom-cleverley/

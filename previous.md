@@ -1,5 +1,9 @@
-**Watford part company with head coach Tom Cleverley**\
-`Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership`\
+**The Pulse: Every second-round playoff series, ranked**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panthers-the-pulse/
+
+**Watford part company with head coach Cleverley**\
+`Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership.`\
 https://nytimes.com/athletic/6336822/2025/05/06/watford-manager-tom-cleverley/
 
 **NBC to use AI to recreate Jim Fagan's voice-over for NBA coverage**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335641/2025/05/06/angels-slump-statistics-analysis
 **Atlanta United is still left searching for its soccer soul**\
 `Spending isn't the issue for Atlanta United, but the pieces and direction aren't working for a club that was once among MLS's elite.`\
 https://nytimes.com/athletic/6334766/2025/05/06/atlanta-united-struggles-mls-deila-lagerwey/
-
-**Why Oilers vs. Golden Knights is Kane's and Frederic's time to shine**\
-`For all the good Kane and Frederic accomplished in the first round, this is where their worth to the Oilers will be measured.`\
-https://nytimes.com/athletic/6335683/2025/05/06/oilers-nhl-playoffs-evander-kane-trent-frederic/
 
