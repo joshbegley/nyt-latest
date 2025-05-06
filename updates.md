@@ -1,3 +1,15 @@
+**Sam Bennett won't face supplemental discipline for hit on Anthony Stolarz: Sources**\
+`Bennett clipped Stolarz in the head area in the second period of Game 1. He wasn’t penalized on the play.`\
+https://nytimes.com/athletic/6337023/2025/05/06/sam-bennett-anthony-stolarz-maple-leafs-panthers-nhl-playoffs/
+
+**Why 35 House Democrats Joined Republicans Against a Major Climate Policy**\
+`Some said they worried that California’s planned ban on gas-powered vehicles would raise the price of cars. Another cited “intense and misleading lobbying” by the oil industry.`\
+https://nytimes.com/2025/05/06/climate/democrats-california-ban-electric-vehicles.html
+
+**Spurs head coach Mitch Johnson ready to put 'sweat equity' into his team**\
+`"It was an easy decision and felt super confident in the human being that he is," says Spurs GM Brian Wright of taking interim tag off.`\
+https://nytimes.com/athletic/6336239/2025/05/06/spurs-head-coach-mitchell-johnson-gregg-popovich/
+
 **A Haven for Civilians in Sudan Is Attacked for a Third Day**\
 `Drone strikes have hit a fuel depot and a hotel in Port Sudan, bringing the violence to a city that had so far been spared in the civil war.`\
 https://nytimes.com/2025/05/06/world/africa/port-sudan-attacks.html
