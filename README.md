@@ -18,6 +18,10 @@ https://nytimes.com/video/world/africa/100000010151910/port-sudan-drone-strike-.
 `NASCAR announced its expected return to Homestead-Miami Speedway for the season finale, starting a new rotation of championship hosts.`\
 https://nytimes.com/athletic/6336792/2025/05/06/nascar-2026-championship-homestead-miami-speedway-return/
 
+**Man City to join inaugural women's seven-a-side tournament**\
+`The announcement also confirmed that Roma, Paris Saint-Germain and Rosenberg would be taking part in the event in Estoril, Portugal in May.`\
+https://nytimes.com/athletic/6323943/2025/05/06/manchester-city-women-world-sevens/
+
 **Sam Bennett won't face supplemental discipline for hit on Anthony Stolarz: Sources**\
 `Bennett clipped Stolarz in the head area in the second period of Game 1. He wasn’t penalized on the play.`\
 https://nytimes.com/athletic/6337023/2025/05/06/sam-bennett-anthony-stolarz-maple-leafs-panthers-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336239/2025/05/06/spurs-head-coach-mitchell-johnso
 **A Haven for Civilians in Sudan Is Attacked for a Third Day**\
 `Drone strikes have hit a fuel depot and a hotel in Port Sudan, bringing the violence to a city that had so far been spared in the civil war.`\
 https://nytimes.com/2025/05/06/world/africa/port-sudan-attacks.html
-
-**India and U.K. Strike Trade Deal Amid Global Tariff Upheaval**\
-`The two countries signed a deal three years after negotiations began to strengthen alliances in what the British prime minister called a “new era” of trade.`\
-https://nytimes.com/2025/05/06/business/uk-india-trade-deal-tariffs.html
 
