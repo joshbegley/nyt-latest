@@ -1,3 +1,7 @@
+**Buckley: The Knicks had a process of their own in Game 1 — dare the Celtics to shoot**\
+`If you’ve never seen an NBA team miss 45 3-pointers in a playoff game, that’s because until Monday night it had never happened.`\
+https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playoffs-column/
+
 **The New York Times in Print for Tuesday, May 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6334318/2025/05/06/chelsea-champions-premier-league
 **Leeds United's 33 year-wait to experience the unbridled joy of a title parade is over**\
 `The Athletic was there as an estimated 150,000 Leeds fans came out on Monday to celebrate their side's Championship title win `\
 https://nytimes.com/athletic/6335290/2025/05/06/leeds-united-parade-championship-title/
-
-**Alexander-Arnold, the Liverpool legacy question and why so many fans are angry**\
-`The local lad made good lived the dream on Merseyside but that was not enough to keep them there for life`\
-https://nytimes.com/athletic/6035938/2025/05/06/trent-alexander-arnold-exit-explained/
 
