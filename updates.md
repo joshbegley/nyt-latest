@@ -1,3 +1,11 @@
+**Reds' Tyler Callihan departs game with arm injury after crashing into wall**\
+`Callihan, whose path to the big leagues has included multiple injuries, hit the wall at full speed and seriously hurt his left arm.`\
+https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-collision/
+
+**Janelle Monáe Is a ‘Time-Traveling Dandy’ at the Met Gala**\
+`The singer and actor has long made tailored suits and accessories core to her style identity.`\
+https://nytimes.com/2025/05/05/style/janelle-monae-met-gala-2025.html
+
 **Trump Executive Order Restricts ‘Gain of Function’ Research on Pathogens**\
 `Scientists have long debated the merits and risks of tinkering with viruses and bacteria, which the president claims caused the coronavirus pandemic.`\
 https://nytimes.com/2025/05/05/us/politics/trump-executive-order-restricts-gain-of-function-research-on-pathogens.html

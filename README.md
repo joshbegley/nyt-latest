@@ -1,4 +1,12 @@
-**Reds' Tyler Callihan departs game with arm injury after crashing into wall**\
+**Kings coach Jim Hiller retains 'status quo' attitude amid uncertainty after Rob Blake's departure**\
+`How will the Kings' next general manager view Hiller's future?`\
+https://nytimes.com/athletic/6335994/2025/05/05/kings-coach-jim-hiller-job-blake/
+
+**Sculpted Curls to Go With Structured Tailoring on the Met Gala Carpet**\
+`Hair styles seemingly inspired by the singer Josephine Baker were a theme of the night.`\
+https://nytimes.com/2025/05/05/style/sculpted-curls-met-gala-josephine-baker.html
+
+**Reds' Tyler Callihan departs game with broken forearm after crashing into wall**\
 `Callihan, whose path to the big leagues has included multiple injuries, hit the wall at full speed and seriously hurt his left arm.`\
 https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-collision/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/us/trump-venezuela-gang-ties-spy-memo.html
 **Jordan Casteel Honors Her Grandmother at the Met Gala**\
 `The painter will be wearing a bespoke dress, but it is what the public won’t see that makes her the most proud.`\
 https://nytimes.com/2025/05/05/style/jordan-casteel-met-gala-2025.html
-
-**Trump’s Hope for Gaza Deal Fades as Israel Plans Major Escalation**\
-`Ahead of a trip to the Middle East, President Trump has disengaged from the conflict, analysts said, but must now decide how to respond.`\
-https://nytimes.com/2025/05/05/us/politics/trump-israel-gaza.html
-
-**2025 NHL Draft Lottery takeaways: Who goes No. 1 and 2, trades, the Rangers' pick and more**\
-`After lottery night, here's everything Scott Wheeler is thinking about and hearing about the 2025 draft.`\
-https://nytimes.com/athletic/6334945/2025/05/05/2025-nhl-draft-lottery-takeaways-islanders-rangers/
 
