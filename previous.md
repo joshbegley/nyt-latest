@@ -1,3 +1,7 @@
+**Fans Disappointed at Vogue’s Coverage of South Asian Stars at the Met Gala**\
+`Some fans felt two first-time attendees, Shah Rukh Khan and Diljit Dosanjh, were dismissed at the event.`\
+https://nytimes.com/2025/05/06/style/shah-rukh-khan-diljit-dosanjh-met-gala.html
+
 **Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
 `Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/06/us/student-protesters-immigration-detention-first
 **Man Who Stabbed Baby Seal on Oregon Beach Is Sought**\
 `The authorities said that the attack, which the seal survived, occurred on a cold evening in a cove along the Pacific Coast.`\
 https://nytimes.com/2025/05/06/us/elephant-seal-pup-stabbed-oregon-beach.html
-
-**India Launched Attacks Against Pakistan**\
-`Also, the Supreme Court allowed Trump to enforce a transgender troop ban. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/05/06/briefing/india-pakistan-strikes-supreme-court-ruling.html
 
