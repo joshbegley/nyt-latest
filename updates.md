@@ -1,3 +1,7 @@
+**NBA takeaways: Knicks down Celtics 108-105 in resilient Game 1 OT win**\
+`Jalen Brunson and OG Anunoby each scored 29 points in the Knicks' comeback victory.`\
+https://nytimes.com/athletic/6335768/2025/05/05/nba-playoffs-takeaways-knicks-celtics-thunder-nuggets-game-1/
+
 **Anna Sawai Makes Her Met Gala Debut After a Red Carpet Streak**\
 `The actress caps off a winning awards show season by changing up her look.`\
 https://nytimes.com/2025/05/05/style/anna-sawai-2025-met-gala-look-dior.html
