@@ -1,3 +1,7 @@
+**Whose Face Is in That Lace?**\
+`A bodysuit worn by the K-pop singer Lisa prompted questions about what figure was portrayed in its intricate lace mesh.`\
+https://nytimes.com/2025/05/05/style/k-pop-lisa-lace-bodysuit-faces.html
+
 **'A great honor': Hyeseong Kim, Shohei Ohtani and the Dodgers rookie's moment in Miami**\
 `Kim has made a fast impression on the Dodgers, going 2-for-4 with an RBI in Monday's win. "He just adds that spark to our ballclub."`\
 https://nytimes.com/athletic/6336266/2025/05/05/dodgers-marlins-hyeseong-kim-shohei-ohtani/
@@ -24,7 +28,7 @@ https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
 
 **Dramatic Trains Sweep the Met Gala Carpet**\
 `Some gowns required small teams to manage vast amounts of fabric and help their wearers up the Met steps.`\
-https://nytimes.com/2025/05/05/style/dramatic-trains-sweep-the-met-gala-carpet.html
+https://nytimes.com/2025/05/05/style/kim-kardashian-demi-moore-met-gala-2025.html
 
 **Alcatraz as a Prison? Tourists Say Trump Is on His Own Island.**\
 `At the beloved attraction in San Francisco Bay, visitors could scarcely believe President Trump had suggested turning Alcatraz back into a penitentiary.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/us/alcatraz-trump-tourists.html
 **NHL Mock Draft 2025: Matthew Schaefer to Islanders as we pick for every lottery team**\
 `Following the lottery, a collection of our NHL reporters combined for a mock draft of the first 16 picks.`\
 https://nytimes.com/athletic/6335303/2025/05/05/nhl-mock-draft-2025-schaefer-islanders/
-
-**They Need a Push to Get Started**\
-`The air is sweet in Enrique Henestroza Anguiano’s crossword.`\
-https://nytimes.com/2025/05/05/crosswords/daily-puzzle-2025-05-06.html
 

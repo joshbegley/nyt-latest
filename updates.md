@@ -1,3 +1,11 @@
+**Whose Face Is in That Lace?**\
+`A bodysuit worn by the K-pop singer Lisa prompted questions about what figure was portrayed in its intricate lace mesh.`\
+https://nytimes.com/2025/05/05/style/k-pop-lisa-lace-bodysuit-faces.html
+
+**Dramatic Trains Sweep the Met Gala Carpet**\
+`Some gowns required small teams to manage vast amounts of fabric and help their wearers up the Met steps.`\
+https://nytimes.com/2025/05/05/style/kim-kardashian-demi-moore-met-gala-2025.html
+
 **'A great honor': Hyeseong Kim, Shohei Ohtani and the Dodgers rookie's moment in Miami**\
 `Kim has made a fast impression on the Dodgers, going 2-for-4 with an RBI in Monday's win. "He just adds that spark to our ballclub."`\
 https://nytimes.com/athletic/6336266/2025/05/05/dodgers-marlins-hyeseong-kim-shohei-ohtani/
