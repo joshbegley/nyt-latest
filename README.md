@@ -1,3 +1,15 @@
+**Explosions Reported in Pakistani Kashmir After India’s Vow of Retaliation**\
+`The apparent strikes would be an intensification of a conflict between India and Pakistan, both of which are nuclear powers.`\
+https://nytimes.com/2025/05/06/world/asia/india-pakistan-attacks.html
+
+**Trump Says His Administration ‘Is Not Going to Pay’ for California High-Speed Rail**\
+`The government was already investigating how the state was spending a federal grant on the train project to connect Los Angeles and San Francisco.`\
+https://nytimes.com/2025/05/06/us/politics/california-high-speed-rail-federal-funding.html
+
+**‘We Don’t Have to Sign Deals’: Trump Backs Off Big Promises About Tariffs**\
+`After weeks of bragging about upcoming trade “deals” with foreign countries, President Trump says the United States doesn’t need to worry about them after all.`\
+https://nytimes.com/2025/05/06/us/politics/trump-deals-tariffs.html
+
 **A Mother’s Fierce, Extravagant Love (Encore)**\
 `How a cardboard box became a time machine that kept a mother and daughter connected.`\
 https://nytimes.com/2025/05/06/podcasts/a-mothers-fierce-extravagant-love-encore.html
@@ -14,8 +26,8 @@ https://nytimes.com/interactive/2025/05/06/us/elections/results-ohio-issue-2.htm
 `Friedrich Merz secured the top job but only after losing on his first attempt, a surprise that potentially weakens his government at a fraught time for Germany and Europe`\
 https://nytimes.com/2025/05/06/world/europe/germany-merz-chancellor.html
 
-**The Panthers — and Maple Leafs — are trying to calm the storm around Sam Bennett**\
-`All the talk after Game 1 in Toronto was about Florida agitator Sam Bennett's hit on the Leafs' goalie. Both teams tried to change that.`\
+**Panthers — and Maple Leafs — are trying to calm the storm around Sam Bennett**\
+`The talk after Game 1 in Toronto was about Florida agitator Sam Bennett's hit on the Leafs' goalie. Both teams tried to change that.`\
 https://nytimes.com/athletic/6337597/2025/05/06/maple-leafs-panthers-bennett-stolarz-nhl-playoffs/
 
 **Reds place Tyler Callihan on IL, recall Jacob Hurtubise, Lyon Richardson**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6337705/2025/05/06/reds-tyler-callihan-il/
 **Barry Diller Opens Up About His Sexuality in Upcoming Memoir**\
 `The media mogul publicly addressed being gay for the first time, while also celebrating his marriage to Diane von Furstenberg. “Today he opened to the world,” she said.`\
 https://nytimes.com/2025/05/06/style/barry-diller-gay-diane-von-furstenberg.html
-
-**Senate Confirms Frank Bisignano as Social Security Commissioner**\
-`Mr. Bisignano, a former Wall Street executive, will lead an agency upended by big staff cuts and other significant changes.`\
-https://nytimes.com/2025/05/06/business/social-security-frank-bisignano.html
-
-**Carney Tells Trump Canada Is ‘Never For Sale’**\
-`President Trump and Prime Minister Mark Carney, Canada’s newly elected leader, went back and forth on the prospect of the U.S. making Canada the 51st state.`\
-https://nytimes.com/video/us/politics/100000010152679/carney-tells-trump-canada-is-never-for-sale.html
-
-**Wild insider: Emptying the notebook after 3 days of exit-meeting availability**\
-`What we learned about Fleury's future, confidence in the medical staff, insurance for Wallstedt, Jiricek's spot in the lineup and more.`\
-https://nytimes.com/athletic/6337770/2025/05/06/wild-insider-fleury-medical-staff-mclean/
 
