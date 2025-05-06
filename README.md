@@ -1,3 +1,7 @@
+**Dramatic Trains Sweep the Met Gala Carpet**\
+`Some gowns required small teams to manage vast amounts of fabric and help their wearers up the Met steps.`\
+https://nytimes.com/2025/05/05/style/dramatic-trains-sweep-the-met-gala-carpet.html
+
 **Alcatraz as a Prison? Tourists Say Trump Is on His Own Island.**\
 `At the beloved attraction in San Francisco Bay, visitors could scarcely believe President Trump had suggested turning Alcatraz back into a penitentiary.`\
 https://nytimes.com/2025/05/05/us/alcatraz-trump-tourists.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336126/2025/05/05/leafs-anthony-stolarz-injury-nhl
 **Gregg Popovich is still laughing at himself as he steps back from coaching**\
 `The legendary coach's new job really isn't that new at all.`\
 https://nytimes.com/athletic/6335998/2025/05/05/gregg-popovich-head-coach-mitch-johnson-nba/
-
-**Kamala Harris’s Makes a Surprise Met Gala Appearance**\
-`The former vice president skipped the carpet, but slipped into the gala in a black silk gown in one of her first major public appearances since the 2024 election.`\
-https://nytimes.com/2025/05/05/style/kamala-harris-met-gala-2025.html
 
