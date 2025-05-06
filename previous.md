@@ -1,3 +1,7 @@
+**Barca's Raphinha says Xavi ‘did not trust’ him, considered Saudi move**\
+`The 28-year-old has scored 31 goals and provided 25 assists in all competitions under Hansi Flick, who replaced Xavi last year.`\
+https://nytimes.com/athletic/6336717/2025/05/06/raphinha-xavi-barcelona-saudi/
+
 **The Maple Leafs found a blueprint for beating the Panthers**\
 `It was only one game but a significant game — and a significant win — for the Maple Leafs.`\
 https://nytimes.com/athletic/6336421/2025/05/06/maple-leafs-panthers-playoff-blueprint/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6335843/2025/05/06/aaron-judge-greatest-right-hande
 **Greatest revenge games in sports, from Mikko Rantanen’s Game 7 to Brett Favre to Luka Dončić**\
 `We assembled writers from a handful of sports, asking them to share the greatest revenge game they can remember.`\
 https://nytimes.com/athletic/6335307/2025/05/06/greatest-revenge-games-sports-nhl-nfl-nba-mlb/
-
-**How does Matthew Schaefer compare to recent No. 1 picks? Scouts, execs weigh in**\
-`Schaefer is placed here alongside the last nine No. 1 picks in a ranking from NHL scouts and executives.
-`\
-https://nytimes.com/athletic/6278462/2025/05/06/nhl-draft-2025-matthew-schaefer-no-1-picks/
 

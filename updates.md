@@ -1,3 +1,7 @@
+**Barca's Raphinha says Xavi ‘did not trust’ him, considered Saudi move**\
+`The 28-year-old has scored 31 goals and provided 25 assists in all competitions under Hansi Flick, who replaced Xavi last year.`\
+https://nytimes.com/athletic/6336717/2025/05/06/raphinha-xavi-barcelona-saudi/
+
 **The Maple Leafs found a blueprint for beating the Panthers**\
 `It was only one game but a significant game — and a significant win — for the Maple Leafs.`\
 https://nytimes.com/athletic/6336421/2025/05/06/maple-leafs-panthers-playoff-blueprint/
