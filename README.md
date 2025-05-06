@@ -1,3 +1,12 @@
+**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
+`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
+`\
+https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
+
+**Akron loses bowl eligibility due to low Academic Progress Report score**\
+`Akron's football program is the first to be banned from the postseason for academic reasons since Idaho in 2014.`\
+https://nytimes.com/athletic/6338210/2025/05/06/akron-loses-bowl-eligibility-academic-progress-report/
+
 **Upstate N.Y. school system’s support for trans athletes draws federal investigation.**\
 `The Saratoga Springs school board had pledged to safeguard students’ right to participate in activities consistent with their gender identity.`\
 https://nytimes.com/live/2025/05/06/us/trump-administration-updates/upstate-ny-school-systems-support-for-trans-athletes-draws-federal-investigation
@@ -29,12 +38,4 @@ https://nytimes.com/2025/05/06/us/elephant-seal-pup-stabbed-oregon-beach.html
 **India Launched Attacks Against Pakistan**\
 `Also, the Supreme Court allowed Trump to enforce a transgender troop ban. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/05/06/briefing/india-pakistan-strikes-supreme-court-ruling.html
-
-**Unique Offer on Remote Scottish Island Draws ‘Dreamers and Schemers’**\
-`A “serial business creator” and owner of a fish smokery on Colonsay, population 125, says he’s willing to give away his business, free.`\
-https://nytimes.com/2025/05/06/world/europe/scotland-island-colonsay-job-offer.html
-
-**Inter 4 Barca 3 (agg: 7-6): Frattesi settles sensational tie, sends Inter to Champions League final**\
-`Inter ended Barca's quest for a treble with a brilliant win in extra time against Flick's side`\
-https://nytimes.com/athletic/6336848/2025/05/06/inter-4-barcelona-3-champions-league-semi-final/
 
