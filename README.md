@@ -1,3 +1,11 @@
+**Blues' Dylan Holloway expected to be ready for start of 2025-26 after surgery for undisclosed injury**\
+`The winger suffered the injury in the Blues' 5-4 overtime win over the Pittsburgh Penguins on April 3.`\
+https://nytimes.com/athletic/6268349/2025/05/06/blues-dylan-holloway-surgery/
+
+**Some Giant Law Firms Shy Away From Pro Bono Immigration Cases**\
+`Fearing the wrath of President Trump, some elite law firms are declining pro bono work on lawsuits challenging the administration’s policies.`\
+https://nytimes.com/2025/05/06/business/trump-law-firms-pro-bono-immigration.html
+
 **Trade Talks With China Have Not Started, Bessent Says**\
 `The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
 https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/nyregion/columbia-university-senate-review.html
 **India Seeks to Block Auction of Buddhist Religious Relics**\
 `A collection of jewels and holy relics is set to be auctioned by the family of a colonial-era English explorer. Now, the Indian government says it’s not theirs to sell.`\
 https://nytimes.com/2025/05/06/world/asia/buddha-jewels-auction-india-sothebys.html
-
-**FIFA confirms Club World Cup playoff after CAS rejects Club Leon appeal**\
-`The winners of the one-off game will take the place of Club Leon in Group D for the newly-expanded tournament.`\
-https://nytimes.com/athletic/6243773/2025/05/06/club-world-cup-playoff-america-lafc/
-
-**Climate Science Is ‘Unstoppable’**\
-`The National Climate Assessment has a setback, but help is on the way. Also: Vietnam-era exiles from the U.S.; drugs and tariffs.`\
-https://nytimes.com/2025/05/06/opinion/climate-science.html
 
