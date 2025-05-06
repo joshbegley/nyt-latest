@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Ukraine Deal, Blackout, Ronan the Sea Lion**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/05/06/learning/06StudentNewsQuiz.html
+
 **Barca's Raphinha says Xavi ‘did not trust’ him, considered Saudi move**\
 `The 28-year-old has scored 31 goals and provided 25 assists in all competitions under Hansi Flick, who replaced Xavi last year.`\
 https://nytimes.com/athletic/6336717/2025/05/06/raphinha-xavi-barcelona-saudi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335589/2025/05/06/the-score-chicago-sports-media-c
 **Is Aaron Judge the greatest right-handed hitter of modern times? He has a case**\
 `We know he’s great, but do we understand how great? Judge is staking his claim to being the greatest right-handed hitter of modern times.`\
 https://nytimes.com/athletic/6335843/2025/05/06/aaron-judge-greatest-right-handed-hitter-yankees/
-
-**Greatest revenge games in sports, from Mikko Rantanen’s Game 7 to Brett Favre to Luka Dončić**\
-`We assembled writers from a handful of sports, asking them to share the greatest revenge game they can remember.`\
-https://nytimes.com/athletic/6335307/2025/05/06/greatest-revenge-games-sports-nhl-nfl-nba-mlb/
 
