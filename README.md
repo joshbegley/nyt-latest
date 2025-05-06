@@ -1,3 +1,19 @@
+**Cuomo Says New York Has a Mental Health Crisis. Here’s His Plan.**\
+`Former Gov. Andrew M. Cuomo will release a proposal to remove more mentally ill people from the streets to address fears about public safety.`\
+https://nytimes.com/2025/05/06/nyregion/cuomo-mental-health-mayor.html
+
+**Leaders of Wellness Company That Sold Orgasmic Experiences Go on Trial**\
+`OneTaste said it was dedicated to female pleasure. Federal prosecutors in Brooklyn say its founders abused customers and ran it for their own benefit.`\
+https://nytimes.com/2025/05/06/nyregion/onetaste-orgasm-trial-opening-statements.html
+
+**Life Finds a Way in a Writer’s Science Reporting**\
+`Carl Zimmer has long been fascinated by existence, whether that may be on a distant planet or here on Earth.`\
+https://nytimes.com/2025/05/06/insider/life-finds-a-way-in-a-writers-science-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/06/crosswords/spelling-bee-forum.html
+
 **How Aston Villa won the FA Youth Cup - and what it means for the future**\
 `Canny scouting, joined-up tactics and a steely mentality have turned Villa's under-18s into a formidable group`\
 https://nytimes.com/athletic/6334855/2025/05/06/aston-villa-fa-youth-cup-inside-story/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6336395/2025/05/06/knicks-beat-celtics-game-1-easte
 **Talking Black Excellence Over Cocktails Inside the Met Gala**\
 `While a starry group of co-chairs greeted guests, Spike Lee, Venus Williams, Zoe Saldaña and Rihanna discussed the significance of dandyism and the importance of the event.`\
 https://nytimes.com/2025/05/06/style/met-gala-cocktail-party.html
-
-**India Orders Civil Defense Drills as Potential Clash With Pakistan Looms**\
-`The home ministry ordered officials to test air raid sirens and teach civilians to navigate blackouts and carry out evacuations.`\
-https://nytimes.com/2025/05/06/world/asia/india-pakistan-kashmir-drills.html
-
-**Murillo showed Forest how to seize the moment**\
-`Forest's run-in will be settled by fine margins and their Brazilian defender demonstrated how to handle the pressure on Monday`\
-https://nytimes.com/athletic/6335855/2025/05/06/nottingham-forest-murillo-moment/
-
-**Buckley: The Knicks had a process of their own in Game 1 — dare the Celtics to shoot**\
-`If you’ve never seen an NBA team miss 45 3-pointers in a playoff game, that’s because until Monday night it had never happened.`\
-https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playoffs-column/
-
-**The New York Times in Print for Tuesday, May 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
 
