@@ -1,3 +1,7 @@
+**Kamala Harris’s Quiet Surprise at the Met Gala**\
+`The former vice president skipped the carpet, but slipped into the gala in a black silk gown in one of her first major public appearances since the 2024 election.`\
+https://nytimes.com/2025/05/05/style/kamala-harris-met-gala-2025.html
+
 **Ravens' release of Justin Tucker brings record-breaking era to embarrassing, inevitable end**\
 `Tucker's 13-season run with the Ravens is over. His career could be in jeopardy, too.`\
 https://nytimes.com/athletic/6335837/2025/05/05/justin-tucker-ravens-released/
