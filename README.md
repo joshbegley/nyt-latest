@@ -1,3 +1,7 @@
+**Merz will face big challenges if he becomes chancellor.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-will-face-big-challenges-if-he-becomes-chancellor
+
 **'Mr. Nugget' delivers again for Denver, which shows it won't go down quietly vs. Thunder**\
 `Aaron Gordon's 3-pointer with 2.8 seconds left gave Denver the Game 1 upset over OKC, while Nikola Jokić got wherever he wanted.`\
 https://nytimes.com/athletic/6336283/2025/05/06/aaron-gordon-nuggets-playoffs-thunder-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335845/2025/05/06/harrison-bader-outfield-defense-
 **Mets mailbag: Roster role for Luisangel Acuña, the next core of pitching prospects**\
 `Even though the Mets sit atop the standings in the National League East, their fans have questions about some pressing issues.`\
 https://nytimes.com/athletic/6336179/2025/05/06/mets-luisangel-acuna-prospects/
-
-**Dollars and sense: 'What's going on at The Score' sparks talk in Chicago sports media**\
-`Change isn’t always bad. It’s beneficial to get new voices in the mix. But is the station better today than it was a year ago? Probably not.`\
-https://nytimes.com/athletic/6335589/2025/05/06/the-score-chicago-sports-media-column/
 

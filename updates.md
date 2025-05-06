@@ -1,3 +1,7 @@
+**'Mr. Nugget' delivers again for Denver, which shows it won't go down quietly vs. Thunder**\
+`Aaron Gordon's 3-pointer with 2.8 seconds left gave Denver the Game 1 upset over OKC, while Nikola Jokić got wherever he wanted.`\
+https://nytimes.com/athletic/6336283/2025/05/06/aaron-gordon-nuggets-playoffs-thunder-game-1/
+
 **Weekly Student News Quiz: Ukraine Deal, Blackout, Ronan the Sea Lion**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/05/06/learning/06StudentNewsQuiz.html

@@ -1,3 +1,7 @@
+**'Mr. Nugget' delivers again for Denver, which shows it won't go down quietly vs. Thunder**\
+`Aaron Gordon's 3-pointer with 2.8 seconds left gave Denver the Game 1 upset over OKC, while Nikola Jokić got wherever he wanted.`\
+https://nytimes.com/athletic/6336283/2025/05/06/aaron-gordon-nuggets-playoffs-thunder-game-1/
+
 **Weekly Student News Quiz: Ukraine Deal, Blackout, Ronan the Sea Lion**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/05/06/learning/06StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336179/2025/05/06/mets-luisangel-acuna-prospects/
 **Dollars and sense: 'What's going on at The Score' sparks talk in Chicago sports media**\
 `Change isn’t always bad. It’s beneficial to get new voices in the mix. But is the station better today than it was a year ago? Probably not.`\
 https://nytimes.com/athletic/6335589/2025/05/06/the-score-chicago-sports-media-column/
-
-**Is Aaron Judge the greatest right-handed hitter of modern times? He has a case**\
-`We know he’s great, but do we understand how great? Judge is staking his claim to being the greatest right-handed hitter of modern times.`\
-https://nytimes.com/athletic/6335843/2025/05/06/aaron-judge-greatest-right-handed-hitter-yankees/
 
