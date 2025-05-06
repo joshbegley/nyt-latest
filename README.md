@@ -1,3 +1,7 @@
+**Germany Gets a New Chancellor, in Unexpectedly Dramatic Fashion**\
+`Friedrich Merz secured the top job but only after losing on his first attempt, a surprise that potentially weakens his government at a fraught time for Germany and Europe`\
+https://nytimes.com/2025/05/06/world/europe/germany-merz-chancellor.html
+
 **The Panthers — and Maple Leafs — are trying to calm the storm around Sam Bennett**\
 `All the talk after Game 1 in Toronto was about Florida agitator Sam Bennett's hit on the Leafs' goalie. Both teams tried to change that.`\
 https://nytimes.com/athletic/6337597/2025/05/06/maple-leafs-panthers-bennett-stolarz-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337867/2025/05/06/oliver-oakes-resigns-alpine-f1-t
 **Seahawks post-draft mailbag: Submit your questions to Michael-Shawn Dugar**\
 `The NFL Draft is behind us, and the Seahawks have a new rookie class. What's on your mind?`\
 https://nytimes.com/athletic/6337851/2025/05/06/seahawks-nfl-draft-2025-mailbag-dugar/
-
-**Trump Says the U.S. Will Stop Bombing Houthi Militants**\
-`It was unclear whether the Houthis were going to stop impeding international shipping, which was the objective of the American bombing campaign.`\
-https://nytimes.com/2025/05/06/us/politics/trump-houthis-bombing.html
 
