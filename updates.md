@@ -1,3 +1,7 @@
+**N.I.H. Bars New Funding From U.S. Scientists to Partners Abroad**\
+`Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
+https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
+
 **Could Columbia Change Who Gets to Set the Rules on Protests?**\
 `Administrators and trustees have ordered a review of the faculty-led university senate, which could redefine control of student demonstrations.`\
 https://nytimes.com/2025/05/06/nyregion/columbia-university-senate-review.html
