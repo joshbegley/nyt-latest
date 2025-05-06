@@ -1,3 +1,7 @@
+**No GM but plenty of excitement for the Islanders after winning the No. 1 pick**\
+`With the next phase of the franchise already in motion, the NHL Draft Lottery results shifted a lot of eyes around the NHL to the Islanders.`\
+https://nytimes.com/athletic/6335874/2025/05/05/islanders-nhl-draft-lottery-win/
+
 **Kings coach Jim Hiller retains 'status quo' attitude amid uncertainty after Rob Blake's departure**\
 `How will the Kings' next general manager view Hiller's future?`\
 https://nytimes.com/athletic/6335994/2025/05/05/kings-coach-jim-hiller-job-blake/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/style/diljit-dosanjh-punjabi-singer-met-gala-2025
 **Spy Agencies Do Not Think Venezuela Directs Gang, Declassified Memo Shows**\
 `The release of the memo further undercuts the Trump administration’s rationale for using the Alien Enemies Act to deport scores of Venezuelans to a prison in El Salvador.`\
 https://nytimes.com/2025/05/05/us/trump-venezuela-gang-ties-spy-memo.html
-
-**Jordan Casteel Honors Her Grandmother at the Met Gala**\
-`The painter will be wearing a bespoke dress, but it is what the public won’t see that makes her the most proud.`\
-https://nytimes.com/2025/05/05/style/jordan-casteel-met-gala-2025.html
 
