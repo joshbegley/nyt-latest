@@ -1,3 +1,7 @@
+**How Aston Villa won the FA Youth Cup - and what it means for the future**\
+`Canny scouting, joined-up tactics and a steely mentality have turned Villa's under-18s into a formidable group`\
+https://nytimes.com/athletic/6334855/2025/05/06/aston-villa-fa-youth-cup-inside-story/
+
 **Tatis and Shildt ejected over ump's strike zone, then Padres exact revenge against Yankees**\
 `After the Padres endured two rain delays, their contact-fueled offense took advantage of the Yankees bullpen. `\
 https://nytimes.com/athletic/6336478/2025/05/06/padres-comeback-win-against-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playof
 **The New York Times in Print for Tuesday, May 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
-
-**Xi Can’t Trust His Own Military**\
-`An unending purge in China’s top military ranks raises serious questions over the country’s readiness for offensive war.`\
-https://nytimes.com/2025/05/06/opinion/china-taiwan-xi-jinping.html
 

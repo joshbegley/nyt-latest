@@ -1,3 +1,7 @@
+**Tatis and Shildt ejected over ump's strike zone, then Padres exact revenge against Yankees**\
+`After the Padres endured two rain delays, their contact-fueled offense took advantage of the Yankees bullpen. `\
+https://nytimes.com/athletic/6336478/2025/05/06/padres-comeback-win-against-yankees/
+
 **Word of the Day: pseudonym**\
 `This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/06/learning/word-of-the-day-pseudonym.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
 **Xi Can’t Trust His Own Military**\
 `An unending purge in China’s top military ranks raises serious questions over the country’s readiness for offensive war.`\
 https://nytimes.com/2025/05/06/opinion/china-taiwan-xi-jinping.html
-
-**This Is the Moment of Moral Reckoning in Gaza**\
-`Our clinics have found clear evidence of starvation in one-third of the population. And now Israel wants to take over aid.`\
-https://nytimes.com/2025/05/06/opinion/gaza-israel-aid-starvation.html
 

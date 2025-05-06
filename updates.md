@@ -1,3 +1,7 @@
+**Tatis and Shildt ejected over ump's strike zone, then Padres exact revenge against Yankees**\
+`After the Padres endured two rain delays, their contact-fueled offense took advantage of the Yankees bullpen. `\
+https://nytimes.com/athletic/6336478/2025/05/06/padres-comeback-win-against-yankees/
+
 **Word of the Day: pseudonym**\
 `This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/06/learning/word-of-the-day-pseudonym.html
