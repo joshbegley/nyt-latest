@@ -1,3 +1,7 @@
+**Late Night on Trump, the Constitution and Playing With Dolls**\
+`On “Meet the Press” and social media, President Trump gave the hosts a lot of material to choose from, even by his standards.`\
+https://nytimes.com/2025/05/06/arts/television/late-night-trump-constitution-dolls.html
+
 **Cuomo Says New York Has a Mental Health Crisis. Here’s His Plan.**\
 `Former Gov. Andrew M. Cuomo will release a proposal to remove more mentally ill people from the streets to address fears about public safety.`\
 https://nytimes.com/2025/05/06/nyregion/cuomo-mental-health-mayor.html
