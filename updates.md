@@ -1,3 +1,11 @@
+**Fencing Is the Latest Sport Caught in the Transgender Athlete Debate**\
+`A fencer’s refusal to compete against a transgender opponent in a women’s bout at a Maryland meet has put the issue in front of Congress.`\
+https://nytimes.com/2025/05/06/us/trump-transgender-athletes-fencing-olympics.html
+
+**Alpine F1's Oliver Oakes suddenly resigns as team principal**\
+`Flavio Briatore, the team’s executive advisor, will assume Oakes’ responsibilities `\
+https://nytimes.com/athletic/6337867/2025/05/06/oliver-oakes-resigns-alpine-f1-team-principal/
+
 **Seahawks post-draft mailbag: Submit your questions to Michael-Shawn Dugar**\
 `The NFL Draft is behind us, and the Seahawks have a new rookie class. What's on your mind?`\
 https://nytimes.com/athletic/6337851/2025/05/06/seahawks-nfl-draft-2025-mailbag-dugar/

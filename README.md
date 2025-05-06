@@ -1,3 +1,7 @@
+**Wild insider: Emptying the notebook after 3 days of exit-meeting availability**\
+`What we learned about Fleury's future, confidence in the medical staff, insurance for Wallstedt, Jiricek's spot in the lineup and more.`\
+https://nytimes.com/athletic/6337770/2025/05/06/wild-insider-fleury-medical-staff-mclean/
+
 **Fencing Is the Latest Sport Caught in the Transgender Athlete Debate**\
 `A fencer’s refusal to compete against a transgender opponent in a women’s bout at a Maryland meet has put the issue in front of Congress.`\
 https://nytimes.com/2025/05/06/us/trump-transgender-athletes-fencing-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337789/2025/05/06/yankees-carlos-carrasco-rotation
 **Trump Promises Announcement ‘as Big as It Gets’**\
 `The president provided no other details, but suggested he would share the news before he leaves for a trip to the Middle East next week.`\
 https://nytimes.com/2025/05/06/us/politics/trump-very-big-announcement.html
-
-**$750 Million to Be Paid to Women Who Were Sexually Abused by Doctor**\
-`The settlement with Columbia University and NewYork-Presbyterian pushes the total bill for Robert A. Hadden’s actions to nearly $1 billion.`\
-https://nytimes.com/2025/05/06/nyregion/columbia-university-hadden-settlement-sex-abuse.html
 
