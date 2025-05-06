@@ -1,3 +1,7 @@
+**Of Course South Street Seaport Should Have a Whaling Tavern**\
+`Quick Eternity takes inspiration from “Moby Dick,” with a driftwood bar, cocktails and New England fare.`\
+https://nytimes.com/2025/05/06/dining/nyc-restaurant-news.html
+
 **Maple Leafs won't rule out Anthony Stolarz for Game 2: 'He's doing good'**\
 `Coach Craig Berube said “we’ll see” on Tuesday morning when asked if Stolarz would be available on Wednesday night.`\
 https://nytimes.com/athletic/6337386/2025/05/06/maple-leafs-stolarz-game-2-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336918/2025/05/06/usmnt-pulisic-wright-aaronson-di
 **Barbie Maker Mattel Plans to Raise Prices Because of Trump’s Tariffs**\
 `Mattel, the U.S. toy company, said it would increase prices of some U.S. toys, citing levies on Chinese imports.`\
 https://nytimes.com/2025/05/06/business/mattel-barbie-trump-tariffs-prices.html
-
-**The South Faces Severe Storms and Flash Floods**\
-`Forecasters warn a slow-moving storm system is expected to bring heavy rain, thunderstorms and flash flooding from Texas to Mississippi.`\
-https://nytimes.com/2025/05/06/weather/texas-mississippi-storms-flooding.html
 
