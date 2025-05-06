@@ -1,3 +1,11 @@
+**Blues' Dylan Holloway expected to be ready for start of 2025-26 after surgery for undisclosed injury**\
+`The winger suffered the injury in the Blues' 5-4 overtime win over the Pittsburgh Penguins on April 3.`\
+https://nytimes.com/athletic/6268349/2025/05/06/blues-dylan-holloway-surgery/
+
+**Some Giant Law Firms Shy Away From Pro Bono Immigration Cases**\
+`Fearing the wrath of President Trump, some elite law firms are declining pro bono work on lawsuits challenging the administration’s policies.`\
+https://nytimes.com/2025/05/06/business/trump-law-firms-pro-bono-immigration.html
+
 **Trade Talks With China Have Not Started, Bessent Says**\
 `The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
 https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
