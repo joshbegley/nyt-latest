@@ -1,3 +1,19 @@
+**Cuomo Says New York Has a Mental Health Crisis. Here’s His Plan.**\
+`Former Gov. Andrew M. Cuomo will release a proposal to remove more mentally ill people from the streets to address fears about public safety.`\
+https://nytimes.com/2025/05/06/nyregion/cuomo-mental-health-mayor.html
+
+**Leaders of Wellness Company That Sold Orgasmic Experiences Go on Trial**\
+`OneTaste said it was dedicated to female pleasure. Federal prosecutors in Brooklyn say its founders abused customers and ran it for their own benefit.`\
+https://nytimes.com/2025/05/06/nyregion/onetaste-orgasm-trial-opening-statements.html
+
+**Life Finds a Way in a Writer’s Science Reporting**\
+`Carl Zimmer has long been fascinated by existence, whether that may be on a distant planet or here on Earth.`\
+https://nytimes.com/2025/05/06/insider/life-finds-a-way-in-a-writers-science-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/06/crosswords/spelling-bee-forum.html
+
 **How Aston Villa won the FA Youth Cup - and what it means for the future**\
 `Canny scouting, joined-up tactics and a steely mentality have turned Villa's under-18s into a formidable group`\
 https://nytimes.com/athletic/6334855/2025/05/06/aston-villa-fa-youth-cup-inside-story/
