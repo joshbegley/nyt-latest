@@ -1,3 +1,11 @@
+**Seven Weeks and Counting: The N.Y.C. Mayoral Primary Is Heating Up**\
+`We’re in the homestretch of a critical race to choose the Democratic nominee for mayor. Primary Day is June 24.`\
+https://nytimes.com/2025/05/06/nyregion/nyc-mayor-race.html
+
+**Kentucky Derby winner Sovereignty to skip Preakness, end Triple Crown hopes**\
+`Sovereignty will instead prepare for the Belmont Stakes in early June.`\
+https://nytimes.com/athletic/6337682/2025/05/06/sovereignty-preakness-2025-triple-crown-horse/
+
 **Map: 3.0-Magnitude Earthquake Strikes Virginia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/06/us/quake-tracker-virginia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/business/trump-law-firms-pro-bono-immigration.htm
 **Trade Talks With China Have Not Started, Bessent Says**\
 `The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
 https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
-
-**Republican Senator Says He’ll Vote Against Pick for U.S. Attorney**\
-`The nomination of the prosecutor, Ed Martin, has been teetering amid revelations that he once compared former President Biden to Adolf Hitler.`\
-https://nytimes.com/2025/05/06/us/politics/thom-tillis-ed-martin.html
-
-**Your Most Loved Looks From the 2025 Met Gala**\
-`We asked you to pick your favorite looks. Here are the results.`\
-https://nytimes.com/2025/05/06/style/met-gala-looks.html
 
