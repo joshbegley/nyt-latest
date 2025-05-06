@@ -1,5 +1,13 @@
+**Anna Sawai Makes Her Met Gala Debut After a Red Carpet Streak**\
+`The actress caps off a winning awards show season by changing up her look.`\
+https://nytimes.com/2025/05/05/style/anna-sawai-2025-met-gala-look-dior.html
+
+**No. 3 pick gives Blackhawks another crack at drafting elite forward**\
+`We don't know their name, but thanks to the results of Monday's NHL Draft Lottery, we know what position the Blackhawks will likely pick.`\
+https://nytimes.com/athletic/6335807/2025/05/05/blackhawks-nhl-draft-lottery-davidson/
+
 **Fashionably Late, Rihanna Arrives at the Met Gala**\
-`The pop star seemed to confirm rumors she was pregnant when she met shouts of congratulations on with: “Thank you!”`\
+`The pop star seemed to confirm rumors she was pregnant when she met shouts of congratulations with: “Thank you!”`\
 https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
 
 **Dramatic Trains Sweep the Met Gala Carpet**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/aoc-house-oversight-committee.html
 **Kehlani Concert in Central Park Is Canceled After Pressure From Mayor**\
 `The singer, a vocal critic of Israel, had been scheduled to perform in June as part of Pride festivities. Two weeks ago, Cornell dropped a plan to have her headline a concert.`\
 https://nytimes.com/2025/05/05/nyregion/kehlani-concert-central-park-canceled.html
-
-**Ryan Coogler Wears a Cummerbund, Finally**\
-`At his first Met Gala, the director fulfills a lifelong fashion dream.`\
-https://nytimes.com/2025/05/05/style/ryan-coogler-2025-met-gala-look.html
-
-**Leafs goalie Anthony Stolarz leaves game after hit to head**\
-`Leafs starter heads to the dressing room minutes after taking a Sam Bennett forearm to the head.`\
-https://nytimes.com/athletic/6336126/2025/05/05/leafs-anthony-stolarz-injury-nhl-playoffs/
 

@@ -1,3 +1,15 @@
+**Anna Sawai Makes Her Met Gala Debut After a Red Carpet Streak**\
+`The actress caps off a winning awards show season by changing up her look.`\
+https://nytimes.com/2025/05/05/style/anna-sawai-2025-met-gala-look-dior.html
+
+**No. 3 pick gives Blackhawks another crack at drafting elite forward**\
+`We don't know their name, but thanks to the results of Monday's NHL Draft Lottery, we know what position the Blackhawks will likely pick.`\
+https://nytimes.com/athletic/6335807/2025/05/05/blackhawks-nhl-draft-lottery-davidson/
+
+**Fashionably Late, Rihanna Arrives at the Met Gala**\
+`The pop star seemed to confirm rumors she was pregnant when she met shouts of congratulations with: “Thank you!”`\
+https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
+
 **Fashionably Late, Rihanna Arrives at the Met Gala**\
 `The pop star seemed to confirm rumors she was pregnant when she met shouts of congratulations on with: “Thank you!”`\
 https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
