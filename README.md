@@ -1,3 +1,7 @@
+**NBA takeaways: Knicks down Celtics 108-105 in resilient Game 1 OT win**\
+`Jalen Brunson and OG Anunoby each scored 29 points in the Knicks' comeback victory.`\
+https://nytimes.com/athletic/6335768/2025/05/05/nba-playoffs-takeaways-knicks-celtics-thunder-nuggets-game-1/
+
 **Anna Sawai Makes Her Met Gala Debut After a Red Carpet Streak**\
 `The actress caps off a winning awards show season by changing up her look.`\
 https://nytimes.com/2025/05/05/style/anna-sawai-2025-met-gala-look-dior.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/style/met-gala-sabrina-carpenter-no-pants.html
 **Ocasio-Cortez Won’t Push for House Oversight Role**\
 `Representative Alexandria Ocasio-Cortez said Democrats’ emphasis on seniority led her not to seek a leadership role on the powerful Oversight Committee.`\
 https://nytimes.com/2025/05/05/us/politics/aoc-house-oversight-committee.html
-
-**Kehlani Concert in Central Park Is Canceled After Pressure From Mayor**\
-`The singer, a vocal critic of Israel, had been scheduled to perform in June as part of Pride festivities. Two weeks ago, Cornell dropped a plan to have her headline a concert.`\
-https://nytimes.com/2025/05/05/nyregion/kehlani-concert-central-park-canceled.html
 
