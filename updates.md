@@ -1,3 +1,11 @@
+**Trump’s Hope for Gaza Deal Fades as Israel Plans Major Escalation**\
+`Ahead of a trip to the Middle East, President Trump has disengaged from the conflict, analysts said, but must now decide how to respond.`\
+https://nytimes.com/2025/05/05/us/politics/trump-israel-gaza.html
+
+**2025 NHL Draft Lottery takeaways: Who goes No. 1 and 2, trades, the Rangers' pick and more**\
+`After lottery night, here's everything Scott Wheeler is thinking about and hearing about the 2025 draft.`\
+https://nytimes.com/athletic/6334945/2025/05/05/2025-nhl-draft-lottery-takeaways-islanders-rangers/
+
 **Judge Orders Elections Board to Certify Democrat’s Victory in Contested N.C. Race**\
 `The federal ruling on Monday was the most significant legal victory yet for Justice Allison Riggs, the Democratic incumbent in a State Supreme Court race.`\
 https://nytimes.com/2025/05/05/us/north-carolina-supreme-court-federal-ruling.html
