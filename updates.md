@@ -1,3 +1,7 @@
+**Carney Tells Trump Canada Is ‘Never For Sale’**\
+`President Trump and Prime Minister Mark Carney, Canada’s newly elected leader, went back and forth on the prospect of the U.S. making Canada the 51st state.`\
+https://nytimes.com/video/us/politics/100000010152679/carney-tells-trump-canada-is-never-for-sale.html
+
 **Wild insider: Emptying the notebook after 3 days of exit-meeting availability**\
 `What we learned about Fleury's future, confidence in the medical staff, insurance for Wallstedt, Jiricek's spot in the lineup and more.`\
 https://nytimes.com/athletic/6337770/2025/05/06/wild-insider-fleury-medical-staff-mclean/
