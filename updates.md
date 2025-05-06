@@ -1,3 +1,11 @@
+**What Happened When Trump Altered the Deal With Law Firms and Universities**\
+`Does the prisoner’s dilemma still apply when the rules break down?`\
+https://nytimes.com/2025/05/06/world/europe/what-happened-when-trump-altered-the-deal-with-law-firms-and-universities.html
+
+**Merz’s stumble complicates Germany’s attempt to lead in Europe.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merzs-setback-complicates-germanys-attempt-to-lead-in-europe
+
 **Trump Is Fighting Antisemitism the Wrong Way, a Jewish Group Argues**\
 `The American Jewish Committee joined university groups to condemn antisemitism, but urged the White House to follow the law carefully as it seeks to combat bias on college campuses.`\
 https://nytimes.com/2025/05/06/us/trump-antisemitism-american-jewish-committee-universities.html
