@@ -1,3 +1,15 @@
+**Trump Executive Order Restricts ‘Gain of Function’ Research on Pathogens**\
+`Scientists have long debated the merits and risks of tinkering with viruses and bacteria, which the president claims caused the coronavirus pandemic.`\
+https://nytimes.com/2025/05/05/us/politics/trump-executive-order-restricts-gain-of-function-research-on-pathogens.html
+
+**13 Workers Found Killed at Gold Mine in Peru**\
+`The men were killed in a region that has seen growing conflict over access to ore in recent years. The mine has also been a hotbed of illegal gold mining.`\
+https://nytimes.com/2025/05/05/world/americas/peru-gold-miners-killed-boluarte.html
+
+**Red carpet looks: Simone Biles, Saquon Barkley, others attend 2025 Met Gala**\
+`NBA star LeBron James is an honorary chair and Formula One ace Lewis Hamilton is a co-chair.`\
+https://nytimes.com/athletic/6335662/2025/05/05/simone-biles-saquon-barkley-met-gala-2025/
+
 **Diljit Dosanjh Brings Punjab to the Red Carpet**\
 `For the Punjabi artist’s first Met Gala appearance, he chose to honor an early Indian dandy.`\
 https://nytimes.com/2025/05/05/style/diljit-dosanjh-punjabi-singer-met-gala-2025.html
