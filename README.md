@@ -1,6 +1,6 @@
 **National African American Museum Faces Uncertainty Without Its Leader**\
 `At a time when it is under scrutiny from the White House, the Smithsonian’s National Museum of African American History and Culture is without its director, who stepped down last month.`\
-https://nytimes.com/2025/05/06/arts/national-african-american-museum-faces-uncertainty-without-its-leader.html
+https://nytimes.com/2025/05/06/arts/design/national-african-american-museum-faces-uncertainty-without-its-leader.html
 
 **A New ICE Detention Center Draws a Democratic Mayor’s Ire**\
 `Mayor Ras Baraka of Newark staged a predawn demonstration outside a detention center. He argues that the facility’s owner does not have valid permits to operate.`\
