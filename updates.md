@@ -1,3 +1,7 @@
+**India and U.K. Strike Trade Deal Amid Global Tariff Upheaval**\
+`The two countries signed a deal three years after negotiations began to strengthen alliances in what the British prime minister called a “new era” of trade.`\
+https://nytimes.com/2025/05/06/business/uk-india-trade-deal-tariffs.html
+
 **Cristiano Ronaldo's son, 14, called up to Portugal youth team for first time**\
 `The 14-year-old is part of the youth setup of Al Nassr, the Saudi Pro League side his father plays for.`\
 https://nytimes.com/athletic/6336904/2025/05/06/cristiano-ronaldo-son-14-portugal-youth-team/
