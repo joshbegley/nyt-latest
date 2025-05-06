@@ -1,3 +1,7 @@
+**Cristiano Ronaldo's son, 14, called up to Portugal youth team for first time**\
+`The 14-year-old is part of the youth setup of Al Nassr, the Saudi Pro League side his father plays for.`\
+https://nytimes.com/athletic/6336904/2025/05/06/cristiano-ronaldo-son-14-portugal-youth-team/
+
 **Israeli Jets Bombard Airport in Yemen’s Capital**\
 `The strike came days after the Iran-backed Houthi militia in Yemen fired a ballistic missile that struck near Israel’s main airport, wounding at least six people.`\
 https://nytimes.com/2025/05/06/world/middleeast/israel-yemen-attack-sana-airport.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6336873/2025/05/06/brighton-tony-bloom-hearts/
 https://nytimes.com/2025/05/06/world/europe/what-happened-when-trump-altered-the-deal-with-law-firms-and-universities.html
 
 **Trump Is Fighting Antisemitism the Wrong Way, a Jewish Group Argues**\
-`The American Jewish Committee joined university groups to condemn antisemitism, but urged the White House to follow the law carefully as it seeks to combat bias on college campuses.`\
+`The American Jewish Committee joined university groups in urging the White House to combat antisemitism with a careful, lawful process, not hasty, ill-advised actions.`\
 https://nytimes.com/2025/05/06/us/trump-antisemitism-american-jewish-committee-universities.html
 
 **Looking for Magical Landmarks in ‘Harry Potter’ Glasses**\
 `An outfit of scarf, skirt and round wire-frame glasses brought to mind the look of Hogwarts students.`\
 https://nytimes.com/2025/05/06/style/street-style-look-hogwarts-fashion.html
-
-**2025 NHL playoff preview: Winnipeg Jets vs. Dallas Stars**\
-`Both teams had spectacular Game 7 comebacks while missing a star forward and top defenseman. That makes this series a tough call.`\
-https://nytimes.com/athletic/6335337/2025/05/06/2025-nhl-playoff-preview-winnipeg-jets-dallas-stars/
 
