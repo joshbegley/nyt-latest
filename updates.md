@@ -1,3 +1,8 @@
+**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
+`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
+`\
+https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
+
 **Frank Lloyd Wright Skyscraper Sells After Canceled Auction**\
 `Price Tower, the architect’s only realized vision for a skyscraper, is going to a company that says it will restore the Oklahoma building for use as a hotel and residences.`\
 https://nytimes.com/2025/05/06/arts/frank-lloyd-wright-skyscraper-sells-after-canceled-auction.html
