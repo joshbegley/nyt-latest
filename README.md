@@ -1,3 +1,11 @@
+**Fencing Is the Latest Sport Caught in the Transgender Athlete Debate**\
+`A fencer’s refusal to compete against a transgender opponent in a women’s bout at a Maryland meet has put the issue in front of Congress.`\
+https://nytimes.com/2025/05/06/us/trump-transgender-athletes-fencing-olympics.html
+
+**Alpine F1's Oliver Oakes suddenly resigns as team principal**\
+`Flavio Briatore, the team’s executive advisor, will assume Oakes’ responsibilities `\
+https://nytimes.com/athletic/6337867/2025/05/06/oliver-oakes-resigns-alpine-f1-team-principal/
+
 **Seahawks post-draft mailbag: Submit your questions to Michael-Shawn Dugar**\
 `The NFL Draft is behind us, and the Seahawks have a new rookie class. What's on your mind?`\
 https://nytimes.com/athletic/6337851/2025/05/06/seahawks-nfl-draft-2025-mailbag-dugar/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/trump-very-big-announcement.html
 **$750 Million to Be Paid to Women Who Were Sexually Abused by Doctor**\
 `The settlement with Columbia University and NewYork-Presbyterian pushes the total bill for Robert A. Hadden’s actions to nearly $1 billion.`\
 https://nytimes.com/2025/05/06/nyregion/columbia-university-hadden-settlement-sex-abuse.html
-
-**The fallout of Club World Cup's play-in pivot for LAFC, Club América, León**\
-`Club León's hopes of participating have been extinguished, but a $10 million opportunity is knocking for LAFC and Club América.`\
-https://nytimes.com/athletic/6337655/2025/05/06/fifa-club-world-cup-playoff-lafc-america-leon-james-rodriguez/
-
-**Travelers Without a Real ID Will Still Be Allowed to Fly, Noem Says**\
-`Kristi Noem, the secretary of homeland security, said that travelers without a federally recognized document would face additional screening on Wednesday but would not be barred from flights.`\
-https://nytimes.com/2025/05/06/us/real-id-requirements-extra-screening.html
 
