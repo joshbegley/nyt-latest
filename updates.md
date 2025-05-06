@@ -1,3 +1,11 @@
+**Lingering questions for the Patriots looking ahead to minicamp and OTAs**\
+`Which receivers will make the team? How will they generate a pass rush? And how long will Rhamondre Stevenson be the starting running back?`\
+https://nytimes.com/athletic/6324002/2025/05/06/patriots-questions-rookie-minicamp-nfl-draft/
+
+**Friedrich Merz Fails in First Round of Voting to Become Germany’s Next Leader**\
+`The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
+https://nytimes.com/2025/05/06/world/europe/germany-chancellor-merz.html
+
 **Friedrich Merz Fails in First Round of Voting to Become Germany’s Next Leader**\
 `The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
 https://nytimes.com/2025/05/06/world/europe/friedrich-merz-fails-vote-germany-chancellor.html

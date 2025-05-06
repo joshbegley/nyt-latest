@@ -1,6 +1,10 @@
+**Lingering questions for the Patriots looking ahead to minicamp and OTAs**\
+`Which receivers will make the team? How will they generate a pass rush? And how long will Rhamondre Stevenson be the starting running back?`\
+https://nytimes.com/athletic/6324002/2025/05/06/patriots-questions-rookie-minicamp-nfl-draft/
+
 **Friedrich Merz Fails in First Round of Voting to Become Germany’s Next Leader**\
 `The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
-https://nytimes.com/2025/05/06/world/europe/friedrich-merz-fails-vote-germany-chancellor.html
+https://nytimes.com/2025/05/06/world/europe/germany-chancellor-merz.html
 
 **Canada’s Carney Is on a High-Stakes Visit to the White House**\
 `The Canadian prime minister will meet with President Trump, days after being elected on an anti-Trump platform as relations between the two allies are at a historic nadir.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010146628/how-a-red-district-democrat-is
 **‘The Only Person in the World Claiming to Be the Pope Right Now’**\
 `It’s Danny Kind, and he’s not even Catholic. But he’s in a college class that simulated the conclave of 1492. (There were costumes, bribes and Oreos.)`\
 https://nytimes.com/2025/05/06/us/conclave-pope-class.html
-
-**‘The Economy Is Holding a Collective Breath’: Three Economists on What the Fed Should Do Now**\
-`The economic forecasts are murky, the markets are gyrating, and maybe we’ll all get fewer dolls this year.`\
-https://nytimes.com/2025/05/06/opinion/trump-economy-federal-reserve.html
 
