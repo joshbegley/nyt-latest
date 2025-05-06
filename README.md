@@ -1,3 +1,7 @@
+**Sean Combs’s Trial: What to Know**\
+`The music mogul known as Puffy and Diddy is facing federal charges of racketeering conspiracy and sex trafficking. He has pleaded not guilty.`\
+https://nytimes.com/article/diddy-sean-combs-sex-trafficking-trial-explained.html
+
 **Supreme Court Revives Trump’s Ban on Transgender Troops**\
 `Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
 https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/style/met-gala-looks.html
 **Until Saturday: Saban and Trump outta nowhere**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-ncaa-nil-until-saturday/
-
-**Was No. 10 Rillington Place the Deadliest Address in London?**\
-`In “The Peepshow,” Kate Summerscale tells the stranger-than-fiction story of a sensational murder case that rocked 1950s London.`\
-https://nytimes.com/2025/05/06/books/review/kate-summerscale-the-peepshow.html
 
