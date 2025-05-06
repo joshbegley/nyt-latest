@@ -1,3 +1,7 @@
+**The Only Female Minister in Syria’s New Government Wants to ‘Get Things Done’**\
+`Hind Kabawat hopes her long experience as a conflict mediator can help Syria’s next generation. The challenges are immense.`\
+https://nytimes.com/2025/05/06/world/middleeast/syria-female-minister-government.html
+
 **Live Updates: Friedrich Merz Stumbles in Bid to Become Germany’s Next Leader**\
 `Mr. Merz failed to get enough votes from legislators in the German Parliament in a first round of voting. No modern German chancellor has ever failed to secure the job on a first ballot.`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament

@@ -1,40 +1,40 @@
-**The Only Female Minister in Syria’s New Government Wants to ‘Get Things Done’**\
-`Hind Kabawat hopes her long experience as a conflict mediator can help Syria’s next generation. The challenges are immense.`\
-https://nytimes.com/2025/05/06/world/middleeast/syria-female-minister-government.html
+**Villa vs Spurs given new date after discussions with Premier League**\
+`The game had originally been scheduled for Sunday May 18, three days before the Europa League final.`\
+https://nytimes.com/athletic/6329930/2025/05/06/aston-villa-tottenham-fixture-new-date/
 
-**Live Updates: Friedrich Merz Stumbles in Bid to Become Germany’s Next Leader**\
-`Mr. Merz failed to get enough votes from legislators in the German Parliament in a first round of voting. No modern German chancellor has ever failed to secure the job on a first ballot.`\
-https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament
+**A scary night in net: Where does Stolarz's injury leave the Leafs in goal?**\
+`Stolarz's short-term availability is very much in doubt. Joseph Woll helped the Leafs pull off the win, but is he ready to steal a series?`\
+https://nytimes.com/athletic/6336400/2025/05/06/maple-leafs-stolarz-injury-woll-nhl-playoffs/
 
-**The New York Times International Edition in Print for Wednesday, May 7, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/06/todays-new-york-times-international-edition
+**The school that had to 'grow our own fans' to become a college sports contender**\
+`Forever a college sports have-not, the Iowa State athletic department’s financial and competitive forecast has never looked better.`\
+https://nytimes.com/athletic/6328969/2025/05/06/iowa-state-football-basketball-finances/
 
-**Ukrainian Drone Attack Forces Restriction of Flights Near Moscow, Russia Says**\
-`The volley comes just days before a planned parade in the capital to mark the 80th anniversary of the end of World War II in Europe.`\
-https://nytimes.com/2025/05/06/world/europe/ukraine-drones-moscow-airport.html
+**Giving Guardians superlatives to Daniel Schneemann, José Ramírez, Cade Smith and others**\
+`Let’s hand out some superlatives to commemorate a solid start for Stephen Vogt’s club.`\
+https://nytimes.com/athletic/6335289/2025/05/06/giving-guardians-superlatives-to-daniel-schneemann-jose-ramirez-cade-smith-and-others/
 
-**Lingering questions for the Patriots looking ahead to minicamp and OTAs**\
-`Which receivers will make the team? How will they generate a pass rush? And how long will Rhamondre Stevenson be the starting running back?`\
-https://nytimes.com/athletic/6324002/2025/05/06/patriots-questions-rookie-minicamp-nfl-draft/
+**A Climate Warning From the Fertile Crescent**\
+`In Iraq, the landscape that cradled civilization is enduring a water crisis with profound implications.`\
+https://nytimes.com/2025/05/06/podcasts/the-daily/climate-change-iraq-middle-east.html
 
-**Here’s the latest.**\
-`The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
-https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-germany-chancellor-parliament-vote
+**Tigers mailbag Part 2: Could Tigers get aggressive at trade deadline?**\
+`Who could the Tigers target at the trade deadline? Plus what should we make of Casey Mize and Spencer Torkelson's bounceback seasons?`\
+https://nytimes.com/athletic/6335134/2025/05/06/tigers-mailbag-part-2-aggressive-trade-deadline/
 
-**Canada’s Carney Is on a High-Stakes Visit to the White House**\
-`The Canadian prime minister will meet with President Trump, days after being elected on an anti-Trump platform as relations between the two allies are at a historic nadir.`\
-https://nytimes.com/2025/05/06/world/canada/trump-carney-white-house-meeting-us-canada.html
+**Israel’s ‘Intensive’ Escalation, and Air Traffic Control Crisis**\
+`Plus, the Met Gala’s unforgettable looks.`\
+https://nytimes.com/2025/05/06/podcasts/the-headlines/israel-escalation-gaza-air-traffic-control-crisis.html
 
-**See Who Your Neighborhood Is Funding in New York City’s Mayoral Race**\
-`Former Gov. Andrew Cuomo is the current front-runner but Zohran Mamdani has gotten more donations from individuals than any other candidate.`\
-https://nytimes.com/interactive/2025/05/06/nyregion/nyc-mayor-funding-neighborhood-donations.html
+**How to Score Wordle Golf**\
+`Learn a new way to play Wordle`\
+https://nytimes.com/interactive/2025/05/06/crosswords/06wordle-golf-how-to-score.html
 
-**Toy Shop Owner Fears Tariffs Will Mean a Bleak Christmas**\
-`Jennifer Bergman, who owns West Side Kids, said she would have to shut down if she doesn’t have toys to sell. Her mother opened the store more than 40 years ago.`\
-https://nytimes.com/2025/05/06/nyregion/toy-shop-west-side-kids-tariffs-christmas.html
+**Wordle Golf Scorecard**\
+`Score your Wordle Golf course and share with your friends!`\
+https://nytimes.com/interactive/2025/05/06/crosswords/06wordlegolf-scorecard.html
 
-**Have You Ever Been in Love?**\
-`A recent article explains what love can do to your brain. What can you do to improve your current or future relationships?`\
-https://nytimes.com/2025/05/06/learning/have-you-ever-been-in-love.html
+**Wordle Review No. 1,418**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 7, 2025.`\
+https://nytimes.com/2025/05/06/crosswords/wordle-review-1418.html
 
