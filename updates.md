@@ -1,3 +1,15 @@
+**Kehlani Concert in Central Park Is Canceled After Pressure From Mayor**\
+`The singer, a vocal critic of Israel, had been scheduled to perform in June as part of Pride festivities. Two weeks ago, Cornell dropped a plan to have her headline a concert.`\
+https://nytimes.com/2025/05/05/nyregion/kehlani-concert-central-park-canceled.html
+
+**Ryan Coogler Wears a Cummerbund, Finally**\
+`At his first Met Gala, the director fulfills a lifelong fashion dream.`\
+https://nytimes.com/2025/05/05/style/ryan-coogler-2025-met-gala-look.html
+
+**Leafs goalie Anthony Stolarz leaves game after hit to head**\
+`Leafs starter heads to the dressing room minutes after taking a Sam Bennett forearm to the head.`\
+https://nytimes.com/athletic/6336126/2025/05/05/leafs-anthony-stolarz-injury-nhl-playoffs/
+
 **Gregg Popovich is still laughing at himself as he steps back from coaching**\
 `The legendary coach's new job really isn't that new at all.`\
 https://nytimes.com/athletic/6335998/2025/05/05/gregg-popovich-head-coach-mitch-johnson-nba/
