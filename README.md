@@ -1,3 +1,7 @@
+**Celtics expected some bumps in their path to a repeat. The Knicks just provided one**\
+`Boston had an off night from 3 and blew a second-half lead in the Game 1 overtime loss. Joe Mazzulla was prepared for some adversity.`\
+https://nytimes.com/athletic/6336557/2025/05/06/celtics-playoffs-knicks-game-1-mazzulla/
+
 **Villa vs Spurs given new date after discussions with Premier League**\
 `The game had originally been scheduled for Sunday May 18, three days before the Europa League final.`\
 https://nytimes.com/athletic/6329930/2025/05/06/aston-villa-tottenham-fixture-new-date/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/06/crosswords/06wordle-golf-how-to-score
 **Wordle Golf Scorecard**\
 `Score your Wordle Golf course and share with your friends!`\
 https://nytimes.com/interactive/2025/05/06/crosswords/06wordlegolf-scorecard.html
-
-**Wordle Review No. 1,418**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 7, 2025.`\
-https://nytimes.com/2025/05/06/crosswords/wordle-review-1418.html
 
