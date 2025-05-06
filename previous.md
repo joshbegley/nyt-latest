@@ -1,3 +1,11 @@
+**Frank Lloyd Wright Skyscraper Sells After Canceled Auction**\
+`Price Tower, the architect’s only realized vision for a skyscraper, is going to a company that says it will restore the Oklahoma building for use as a hotel and residences.`\
+https://nytimes.com/2025/05/06/arts/frank-lloyd-wright-skyscraper-sells-after-canceled-auction.html
+
+**At Harvard, a Clash Between Democracy and Monarchy**\
+`A debate between the political theorist Danielle Allen and the right-wing blogger Curtis Yarvin drew a curious crowd — and questions about whether it should be happening at all.`\
+https://nytimes.com/2025/05/06/arts/yarvin-allen-debate-harvard.html
+
 **A federal judge bars the Trump administration from denying $1 billion in Covid-related school aid.**\
 `The ruling, in a lawsuit brought by Democratic officials in 16 states and Washington, D.C., halts a plan by the U.S. Education Department not to release unspent funds.`\
 https://nytimes.com/live/2025/05/06/us/trump-administration-updates/a-federal-judge-bars-the-trump-administration-from-denying-1-billion-in-covid-related-school-aid
@@ -30,12 +38,4 @@ https://nytimes.com/video/world/middleeast/100000010152762/israel-bombs-yemens-m
 **Trump Surprises Canada With a New Message: We Love You**\
 `President Trump played nice when he came face-to-face with the new prime minister of Canada, the country he has spent months belittling.`\
 https://nytimes.com/2025/05/06/us/politics/trump-canada-love.html
-
-**How Will Ranked-Choice Voting Work in the N.Y.C. Mayoral Primary? Let’s Look at How It Worked Last Time.**\
-`The result of the crowded 2025 race for mayor may turn on voters' second or third choices, like it nearly did in 2021.`\
-https://nytimes.com/interactive/2025/05/06/nyregion/nyc-mayoral-election-2025-ranked-choice-voting.html
-
-**‘James’ Won the Pulitzer, but Not Without Complications**\
-`In an unusual but not unprecedented move, the prize board chose a fourth option after it couldn’t agree on the three less-heralded finalists.`\
-https://nytimes.com/2025/05/06/books/james-percival-everett-pulitzer-jury.html
 
