@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-tri
 `\
 https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
 
+**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
+`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
+`\
+https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
+
 **Akron loses bowl eligibility due to low Academic Progress Report score**\
 `Akron's football program is the first to be banned from the postseason for academic reasons since Idaho in 2014.`\
 https://nytimes.com/athletic/6338210/2025/05/06/akron-loses-bowl-eligibility-academic-progress-report/
