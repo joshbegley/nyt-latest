@@ -1,3 +1,23 @@
+**Of Course South Street Seaport Should Have a Whaling Tavern**\
+`Quick Eternity takes inspiration from “Moby Dick,” with a driftwood bar, cocktails and New England fare.`\
+https://nytimes.com/2025/05/06/dining/nyc-restaurant-news.html
+
+**Maple Leafs won't rule out Anthony Stolarz for Game 2: 'He's doing good'**\
+`Coach Craig Berube said “we’ll see” on Tuesday morning when asked if Stolarz would be available on Wednesday night.`\
+https://nytimes.com/athletic/6337386/2025/05/06/maple-leafs-stolarz-game-2-nhl-playoffs/
+
+**Europeans Shun Tesla, Even as Electric Vehicle Sales Rise**\
+`Demand for the U.S. auto maker’s vehicles slid amid stronger competition from Europe and China and rising anger at Elon Musk’s political forays.`\
+https://nytimes.com/2025/05/06/world/europe/europe-tesla-sales-germany-britain.html
+
+**‘The Class’ Is a Poignant Docuseries About Covid and College**\
+`The PBS series is a both a coming-of-age story and a historical document, about the lasting effects on young people of the pandemic shutdown.`\
+https://nytimes.com/2025/05/06/arts/television/the-class-pbs-covid-documentary.html
+
+**Theo Von, Andrew Schulz, Joe Rogan: A ‘Manosphere’ Just Asking Questions**\
+`A conversation about the comedians and podcasters who have created a new media mainstream for actors, musicians and politicians.`\
+https://nytimes.com/2025/05/06/arts/music/theo-von-andrew-schulz-joe-rogan-manosphere-popcast.html
+
 **When Did Restaurant Salads Get So … Unwieldy?**\
 `‘Why am I cutting lettuce like a steak?’ one diner asked, but chefs say they have their reasons.`\
 https://nytimes.com/2025/05/06/dining/big-restaurant-salads.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6336918/2025/05/06/usmnt-pulisic-wright-aaronson-di
 **Barbie Maker Mattel Plans to Raise Prices Because of Trump’s Tariffs**\
 `Mattel, the U.S. toy company, said it would increase prices of some U.S. toys, citing levies on Chinese imports.`\
 https://nytimes.com/2025/05/06/business/mattel-barbie-trump-tariffs-prices.html
-
-**The South Faces Severe Storms and Flash Floods**\
-`Forecasters warn a slow-moving storm system is expected to bring heavy rain, thunderstorms and flash flooding from Texas to Mississippi.`\
-https://nytimes.com/2025/05/06/weather/texas-mississippi-storms-flooding.html
-
-**André 3000’s Met Gala Piano Was More Than a Fashion Statement**\
-`The rapper and musician’s miniature Steinway teased his new album, “7 piano sketches,” which he released on Monday.`\
-https://nytimes.com/2025/05/06/style/andre-3000-met-gala-piano-album.html
-
-**National African American Museum Faces Uncertainty Without Its Leader**\
-`At a time when it is under scrutiny from the White House, the Smithsonian’s National Museum of African American History and Culture is without its director, who stepped down last month.`\
-https://nytimes.com/2025/05/06/arts/design/national-african-american-museum-faces-uncertainty-without-its-leader.html
-
-**A New ICE Detention Center Draws a Democratic Mayor’s Ire**\
-`Mayor Ras Baraka of Newark staged a predawn demonstration outside a detention center. He argues that the facility’s owner does not have valid permits to operate.`\
-https://nytimes.com/2025/05/06/nyregion/newark-migrants-ras-baraka-ice.html
-
-**Caitlin Clark joins LeBron James for ESPN preseason game viewership records**\
-`The WNBA had its first nationally televised exhibition game Sunday between the Indiana Fever and Brazil’s national team.`\
-https://nytimes.com/athletic/6337183/2025/05/06/caitlin-clark-fever-preseason-game-viewership-lebron-james/
 
