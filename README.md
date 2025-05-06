@@ -1,3 +1,11 @@
+**Caitlin Clark joins LeBron James for ESPN preseason game viewership records**\
+`The WNBA had its first nationally televised exhibition game Sunday between the Indiana Fever and Brazil’s national team.`\
+https://nytimes.com/athletic/6337183/2025/05/06/caitlin-clark-fever-preseason-game-viewership-lebron-james/
+
+**Birmingham to have Category One academy status restored**\
+`The club's U.S. owners, Knighthead, have made improving the academy a priority since taking over the club in 2023.`\
+https://nytimes.com/athletic/6337226/2025/05/06/birmingham-city-academy-category-one/
+
 **Do These Ridiculous Glasses Cure Motion Sickness? **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/motion-sickness-glasses-review
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/majorca-hiking-cycling-running
 **gws-cheap-food-items-grocery-shopping-recipes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dining-cheap-food-items-grocery-shopping-recipes
-
-**The Best Turkey Meatballs I’ve Ever Made**\
-`Ali Slagle’s turkey-ricotta meatballs are so tender that you can easily slice into them with a spoon.`\
-https://nytimes.com/2025/05/06/dining/the-best-turkey-meatballs-ive-ever-made.html
-
-**‘Ragtime’ Is Returning to Broadway**\
-`A revival of the sweeping musical will open at Lincoln Center Theater in October, starring Joshua Henry, Caissie Levy and Brandon Uranowitz.`\
-https://nytimes.com/2025/05/06/theater/ragtime-broadway.html
 
