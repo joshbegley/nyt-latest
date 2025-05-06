@@ -1,3 +1,11 @@
+**Could Columbia Change Who Gets to Set the Rules on Protests?**\
+`Administrators and trustees have ordered a review of the faculty-led university senate, which could redefine control of student demonstrations.`\
+https://nytimes.com/2025/05/06/nyregion/columbia-university-senate-review.html
+
+**India Seeks to Block Auction of Buddhist Religious Relics**\
+`A collection of jewels and holy relics is set to be auctioned by the family of a colonial-era English explorer. Now, the Indian government says it’s not theirs to sell.`\
+https://nytimes.com/2025/05/06/world/asia/buddha-jewels-auction-india-sothebys.html
+
 **FIFA confirms Club World Cup playoff after CAS rejects Club Leon appeal**\
 `The winners of the one-off game will take the place of Club Leon in Group D for the newly-expanded tournament.`\
 https://nytimes.com/athletic/6243773/2025/05/06/club-world-cup-playoff-america-lafc/

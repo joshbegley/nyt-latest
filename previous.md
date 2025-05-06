@@ -1,3 +1,11 @@
+**Could Columbia Change Who Gets to Set the Rules on Protests?**\
+`Administrators and trustees have ordered a review of the faculty-led university senate, which could redefine control of student demonstrations.`\
+https://nytimes.com/2025/05/06/nyregion/columbia-university-senate-review.html
+
+**India Seeks to Block Auction of Buddhist Religious Relics**\
+`A collection of jewels and holy relics is set to be auctioned by the family of a colonial-era English explorer. Now, the Indian government says it’s not theirs to sell.`\
+https://nytimes.com/2025/05/06/world/asia/buddha-jewels-auction-india-sothebys.html
+
 **FIFA confirms Club World Cup playoff after CAS rejects Club Leon appeal**\
 `The winners of the one-off game will take the place of Club Leon in Group D for the newly-expanded tournament.`\
 https://nytimes.com/athletic/6243773/2025/05/06/club-world-cup-playoff-america-lafc/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/style/coffee-venice-water.html
 **Ohio Election Results: Local Public Infrastructure Bonds Issue**\
 `Get live results and maps from the May 6 Ohio election.`\
 https://nytimes.com/interactive/2025/05/06/us/elections/results-ohio-issue-2.html
-
-**10 Products in the Stylish World of Tableware**\
-`Because dining has always been about more than just food.`\
-https://nytimes.com/2025/05/06/style/tableware-products.html
-
-**Billy Horschel to have right hip surgery, will miss multiple months**\
-`“It’s an unfortunate situation with so many great events left on the calendar, but this is a preventative measure," Horschel said.`\
-https://nytimes.com/athletic/6337397/2025/05/06/billy-horschel-surgery-injury/
 
