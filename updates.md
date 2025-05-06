@@ -1,3 +1,11 @@
+**Chelsea beat the champions but are still 19 points behind. Can they challenge next season?**\
+`Chelsea are the closest they have been to the champions since they last won the title. Can they bridge that gap in the coming seasons?`\
+https://nytimes.com/athletic/6334318/2025/05/06/chelsea-champions-premier-league/
+
+**Leeds United's 33 year-wait to experience the unbridled joy of a title parade is over**\
+`The Athletic was there as an estimated 150,000 Leeds fans came out on Monday to celebrate their side's Championship title win `\
+https://nytimes.com/athletic/6335290/2025/05/06/leeds-united-parade-championship-title/
+
 **Alexander-Arnold, the Liverpool legacy question and why so many fans are angry**\
 `The local lad made good lived the dream on Merseyside but that was not enough to keep them there for life`\
 https://nytimes.com/athletic/6035938/2025/05/06/trent-alexander-arnold-exit-explained/

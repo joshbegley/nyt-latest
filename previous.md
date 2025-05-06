@@ -1,3 +1,11 @@
+**Chelsea beat the champions but are still 19 points behind. Can they challenge next season?**\
+`Chelsea are the closest they have been to the champions since they last won the title. Can they bridge that gap in the coming seasons?`\
+https://nytimes.com/athletic/6334318/2025/05/06/chelsea-champions-premier-league/
+
+**Leeds United's 33 year-wait to experience the unbridled joy of a title parade is over**\
+`The Athletic was there as an estimated 150,000 Leeds fans came out on Monday to celebrate their side's Championship title win `\
+https://nytimes.com/athletic/6335290/2025/05/06/leeds-united-parade-championship-title/
+
 **Alexander-Arnold, the Liverpool legacy question and why so many fans are angry**\
 `The local lad made good lived the dream on Merseyside but that was not enough to keep them there for life`\
 https://nytimes.com/athletic/6035938/2025/05/06/trent-alexander-arnold-exit-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/style/met-gala-2025-best-dressed.html
 **What to Know About Germany’s New Government**\
 `The choice of ministers points to a tolerance for political risk, but it also assembles a team of loyalists around the new chancellor and vice chancellor.`\
 https://nytimes.com/2025/05/06/world/europe/germany-new-government.html
-
-**Quote of the Day: Despite Economic Concerns, Fed Isn’t Cutting Rates Proactively**\
-`Quotation of the Day for Tuesday, May 6, 2025.`\
-https://nytimes.com/2025/05/06/pageoneplus/quote-of-the-day-despite-economic-concerns-fed-isnt-cutting-rates-proactively.html
-
-**Germany’s New Leader Leaps Into a World of Crises**\
-`Friedrich Merz is becoming chancellor at the most challenging time for Germany since reunification 35 years ago.`\
-https://nytimes.com/2025/05/06/world/europe/friedrich-merz-germany.html
 
