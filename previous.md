@@ -1,3 +1,7 @@
+**E.P.A. Plans to Shut Down the Energy Star Program**\
+`Employees were told that the popular energy efficiency certification program would be “de-prioritized and eliminated,” according to documents and a recording.`\
+https://nytimes.com/2025/05/06/climate/epa-energy-star-eliminated.html
+
 **There Are Conflicts of Interest. And Then There’s Trump.**\
 `The president is raising a lot of money and a number of Constitutional questions.`\
 https://nytimes.com/2025/05/06/opinion/trump-family-crypto.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337888/2025/05/06/dodgers-teoscar-hernandez-injure
 **V.A. Secretary Says Slashing 80,000 Jobs Is a Goal, Not a Firm Plan**\
 `Veterans Affairs Secretary Doug Collins said the number of V.A. employees to be cut could change, and accused Democrats of trying to frighten veterans.`\
 https://nytimes.com/2025/05/06/us/politics/doug-collins-veterans-affairs-job-cuts.html
-
-**Watch: How competitive can the Valkyries be this WNBA season?**\
-`No Offseason discusses what success would look like for the Golden State Valkyries in their first season in the WNBA.`\
-https://nytimes.com/athletic/6337525/2025/05/06/no-offseason-golden-state-valkyries-2025-wnba-season/
 
