@@ -1,3 +1,15 @@
+**Who Is Friedrich Merz, Who Just Stumbled in His Bid to Become Germany’s Chancellor?**\
+`Supporters of the former corporate lawyer say he is well-prepared and thoughtful, but critics accuse him of failing to think more than one step ahead and breaking promises.`\
+https://nytimes.com/2025/05/06/world/europe/friedrich-merz-chanellor-who-is.html
+
+**A Dandy Night**\
+`We have photos from the biggest night in fashion.`\
+https://nytimes.com/2025/05/06/briefing/met-gala-fashion.html
+
+**King Charles III Unveils Coronation Portrait**\
+`A painting of the monarch in the regalia of the crowning ceremony is a royal tradition. An official painting of Queen Camilla was also revealed.`\
+https://nytimes.com/2025/05/06/arts/design/king-charles-iii-coronation-portrait-queen-camilla.html
+
 **Celtics expected some bumps in their path to a repeat. The Knicks just provided one**\
 `Boston had an off night from 3 and blew a second-half lead in the Game 1 overtime loss. Joe Mazzulla was prepared for some adversity.`\
 https://nytimes.com/athletic/6336557/2025/05/06/celtics-playoffs-knicks-game-1-mazzulla/
