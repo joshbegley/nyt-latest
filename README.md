@@ -1,3 +1,15 @@
+**Seahawks post-draft mailbag: Submit your questions to Michael-Shawn Dugar**\
+`The NFL Draft is behind us, and the Seahawks have a new rookie class. What's on your mind?`\
+https://nytimes.com/athletic/6337851/2025/05/06/seahawks-nfl-draft-2025-mailbag-dugar/
+
+**Trump Says the U.S. Will Stop Bombing Houthi Militants**\
+`It was unclear whether the Houthis were going to stop impeding international shipping, which was the objective of the American bombing campaign.`\
+https://nytimes.com/2025/05/06/us/politics/trump-houthis-bombing.html
+
+**Judge Declines to Remove Order Requiring Return of Deported Migrant**\
+`The case, involving a 20-year-old Venezuelan, exemplifies yet another way the White House has sought new and aggressive methods to expel immigrants from the United States.`\
+https://nytimes.com/2025/05/06/us/politics/judge-deportation-el-salvador-venezuelan.html
+
 **Ask Well: Answers to Your Health Questions**\
 ``\
 https://nytimes.com/spotlight/ask-well-festival
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6337655/2025/05/06/fifa-club-world-cup-playoff-lafc
 **Travelers Without a Real ID Will Still Be Allowed to Fly, Noem Says**\
 `Kristi Noem, the secretary of homeland security, said that travelers without a federally recognized document would face additional screening on Wednesday but would not be barred from flights.`\
 https://nytimes.com/2025/05/06/us/real-id-requirements-extra-screening.html
-
-**Rice on overturning PSG lead: We proved in Madrid we can handle big situations**\
-`Only two teams in Champions League history have come back from losing a semi-final first-leg at home.`\
-https://nytimes.com/athletic/6337704/2025/05/06/declan-rice-arsenal-psg/
-
-**Antisemitic Sign at Barstool Sports Bar Draws Widespread Outrage**\
-`The incident at a Philadelphia bar owned by the Barstool Sports founder Dave Portnoy comes amid a surge of antisemitic episodes in the United States.`\
-https://nytimes.com/2025/05/06/us/dave-portnoy-barstool-antisemitism-temple-university.html
-
-**Bipartisan House and Senate Leaders Urge White House to Restore Spending Website**\
-`In the latest chapter in a battle over spending powers, lawmakers charged that the administration removed crucial information in violation of the law. The White House argues the data shouldn’t be public.`\
-https://nytimes.com/2025/05/06/us/politics/congress-white-house-spending-website.html
 
