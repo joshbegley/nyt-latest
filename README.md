@@ -1,4 +1,4 @@
-**Philip Sunshine, 94, Dies; Physician Who Pioneered Treatment of Premature Babies**\
+**Philip Sunshine, 94, Dies; Pioneer in Treatment of Premature Babies**\
 `As chief of Stanford’s neonatology department for more than 20 years, he helped revolutionize the care of preterm and critically ill newborns.`\
 https://nytimes.com/2025/05/06/science/philip-sunshine-dead.html
 
