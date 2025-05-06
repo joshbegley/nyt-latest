@@ -1,3 +1,11 @@
+**Inter 4 Barca 3 (agg: 7-6): Frattesi settles sensational tie, sends Inter to Champions League final**\
+`Inter ended Barca's quest for a treble with a brilliant win in extra time against Flick's side`\
+https://nytimes.com/athletic/6336848/2025/05/06/inter-4-barcelona-3-champions-league-semi-final/
+
+**Chinese Imports Hit 2-Decade Low as Trump Tariffs Begin to Bite**\
+`While imports can swing with seasonal shifts, President Trump’s ratcheting up of U.S. tariffs on China has begun to cascade through supply chains, government data shows.`\
+https://nytimes.com/2025/05/06/business/us-china-imports-tariffs.html
+
 **‘Five Models in Ruins, 1981’ Review: Disastrous Dress-Up**\
 `Caitlin Saylor Stephens’s new play imagines a fashion shoot with the gowns Princess Diana rejected for her recent wedding. The models are not amused.`\
 https://nytimes.com/2025/05/06/theater/five-models-in-ruins-1981-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/climate/epa-energy-star-eliminated.html
 **There Are Conflicts of Interest. And Then There’s Trump.**\
 `The president is raising a lot of money and a number of Constitutional questions.`\
 https://nytimes.com/2025/05/06/opinion/trump-family-crypto.html
-
-**Lulu Roman, Who Brought Big-Hearted Sass to ‘Hee Haw,’ Dies at 78**\
-`Obesity was a source of trauma for her, but also of her comedy, which she showcased, along with gospel singing, on the long-running down-home variety show.`\
-https://nytimes.com/2025/05/06/arts/television/lulu-roman-dead.html
-
-**Elon Musk Tried Keeping Issues at His Texas Mansion Private, Emails Show**\
-`The tech billionaire’s staff were concerned that correspondence about his home in West Lake Hills would become public after neighbors complained.`\
-https://nytimes.com/2025/05/06/technology/elon-musk-texas-neighbors.html
 

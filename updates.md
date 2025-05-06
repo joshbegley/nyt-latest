@@ -1,3 +1,11 @@
+**‘Five Models in Ruins, 1981’ Review: Disastrous Dress-Up**\
+`Caitlin Saylor Stephens’s new play imagines a fashion shoot with the gowns Princess Diana rejected for her recent wedding. The models are not amused.`\
+https://nytimes.com/2025/05/06/theater/five-models-in-ruins-1981-review.html
+
+**Just Through Central Park, a Different Gala Celebrates Students’ First Steps**\
+`The inaugural iBrain Gala, hosted at the Central Park Boathouse by a school for students with severe disabilities, featured a red carpet that they walked with the help of an exoskeleton device.`\
+https://nytimes.com/2025/05/06/style/ibrain-gala-met-gala.html
+
 **Why Stars Were Wearing ‘Custom EBay’ on Fashion’s Biggest Night**\
 `Amid all the Louis Vuitton and Chanel, the online auction house — which sponsored the party — got several high-profile shout-outs on the blue carpet.`\
 https://nytimes.com/2025/05/06/style/ebay-met-gala.html
