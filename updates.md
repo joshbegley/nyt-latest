@@ -1,3 +1,19 @@
+**Was First Amendment Violated in Student Arrests? Trump Lawyer Won’t Say.**\
+`The Trump administration is focusing on logistical issues, not constitutional ones, in its efforts to keep several international students in detention. The tactic has effectively slowed some high-profile cases.`\
+https://nytimes.com/2025/05/06/us/student-protesters-immigration-detention-first-amendment.html
+
+**Man Who Stabbed Baby Seal on Oregon Beach Is Sought**\
+`The authorities said that the attack, which the seal survived, occurred on a cold evening in a cove along the Pacific Coast.`\
+https://nytimes.com/2025/05/06/us/elephant-seal-pup-stabbed-oregon-beach.html
+
+**India Launched Attacks Against Pakistan**\
+`Also, the Supreme Court allowed Trump to enforce a transgender troop ban. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/05/06/briefing/india-pakistan-strikes-supreme-court-ruling.html
+
+**Unique Offer on Remote Scottish Island Draws ‘Dreamers and Schemers’**\
+`A “serial business creator” and owner of a fish smokery on Colonsay, population 125, says he’s willing to give away his business, free.`\
+https://nytimes.com/2025/05/06/world/europe/scotland-island-colonsay-job-offer.html
+
 **Shackles finally off, Wild GM Bill Guerin knows it's time to deliver a contender**\
 `Guerin has new flexibility and sounds ready to use it: "I don't want to sit on my hands at all. And I'm kind of tired of doing that."`\
 https://nytimes.com/athletic/6337804/2025/05/06/wild-bill-guerin-critical-offseason/
