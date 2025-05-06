@@ -1,3 +1,19 @@
+**Trump Is Fighting Antisemitism the Wrong Way, a Jewish Group Argues**\
+`The American Jewish Committee joined university groups to condemn antisemitism, but urged the White House to follow the law carefully as it seeks to combat bias on college campuses.`\
+https://nytimes.com/2025/05/06/us/trump-antisemitism-american-jewish-committee-universities.html
+
+**Looking for Magical Landmarks in ‘Harry Potter’ Glasses**\
+`An outfit of scarf, skirt and round wire-frame glasses brought to mind the look of Hogwarts students.`\
+https://nytimes.com/2025/05/06/style/street-style-look-hogwarts-fashion.html
+
+**2025 NHL playoff preview: Winnipeg Jets vs. Dallas Stars**\
+`Both teams had spectacular Game 7 comebacks while missing a star forward and top defenseman. That makes this series a tough call.`\
+https://nytimes.com/athletic/6335337/2025/05/06/2025-nhl-playoff-preview-winnipeg-jets-dallas-stars/
+
+**What the setback for Merz means for the German economy.**\
+`By Melissa Eddy`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/what-the-setback-for-merz-means-for-the-german-economy
+
 **Merz’s setback complicates Germany’s attempt to lead in Europe.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merzs-setback-complicates-germanys-attempt-to-lead-in-europe
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/mer
 **The Pulse: Every second-round playoff series, ranked**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panthers-the-pulse/
-
-**Watford part company with head coach Cleverley**\
-`Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership.`\
-https://nytimes.com/athletic/6336822/2025/05/06/watford-manager-tom-cleverley/
-
-**NBC to use AI to recreate Jim Fagan's voiceover for NBA coverage**\
-`This is the second time that NBC has created an AI partnership after Al Michaels was compensated for his AI-generated voice at the Olympics`\
-https://nytimes.com/athletic/6335267/2025/05/06/nbc-ai-jim-fagan-nba-voice-old-school/
-
-**‘Shark Tank’ Star Barbara Corcoran Is Selling Her Dream Penthouse**\
-`The businesswoman is listing the apartment for $12 million, bidding a bittersweet goodbye as she and her husband move to a home that’s easier to navigate.`\
-https://nytimes.com/2025/05/06/realestate/barbara-corcoran-manhattan-penthouse-for-sale.html
-
-**PSG vs Arsenal semi-final odds: Gunners the next lamb to the slaughter?**\
-`Sam Tighe has a look at the best bets around Arsenal’s Champions League semi-final second-leg clash with Paris Saint-Germain. `\
-https://nytimes.com/athletic/6336815/2025/05/06/champions-league-semi-final-betting-are-arsenal-psgs-next-premier-league-victim/
 
