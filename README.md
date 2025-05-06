@@ -1,3 +1,7 @@
+**Big 12 extends commissioner Brett Yormark through 2030: Sources**\
+`Yormark has steered the Big 12 through years of change for both the conference and college sports at large.`\
+https://nytimes.com/athletic/6337211/2025/05/06/brett-yormark-big-12-contract-extension/
+
 **He Produced ‘Rent’ and ‘Hamilton.’ Now He’s Telling His Own Story.**\
 `In “Theater Kid,” Jeffrey Seller reflects on his Broadway career.`\
 https://nytimes.com/2025/05/06/theater/jeffrey-seller-theater-kid-hamilton-memoir.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/nashville-visitors-bureau/how-to-spend-3-days-in-na
 **Adam Lowry, Rick Bowness and the special Game 7 moment that was years in the making**\
 `Adam Lowry owes much of his personal and hockey growth, as well as the "C" on his jersey, to Rick Bowness.`\
 https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry-bowness/
-
-**The Bounce: With Knicks, Nuggets Game 1 comebacks, is it time for NBA favorites to worry?**\
-`It was looking terrible for the Knicks and Nuggets before for their Game 1 comebacks. Could that signal a second-round trend?`\
-https://nytimes.com/athletic/6336916/2025/05/06/knicks-celtics-nuggets-thunder-nba-playoffs-the-bounce/
 

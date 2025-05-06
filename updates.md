@@ -1,3 +1,23 @@
+**He Produced ‘Rent’ and ‘Hamilton.’ Now He’s Telling His Own Story.**\
+`In “Theater Kid,” Jeffrey Seller reflects on his Broadway career.`\
+https://nytimes.com/2025/05/06/theater/jeffrey-seller-theater-kid-hamilton-memoir.html
+
+**Melissa Toogood Named New Director of Juilliard’s Dance Division**\
+`A member of Merce Cunningham’s final company, Toogood brings to the job years of experience as a dancer and educator.`\
+https://nytimes.com/2025/05/06/arts/dance/melissa-toogood-juilliard-dance.html
+
+**Simone Biles, Jenna Ortega and Lisa Hit Met Gala After-Parties**\
+`Pop stars, club kids and the mayor of New York City kept the festivities going into the early morning hours.`\
+https://nytimes.com/2025/05/06/style/met-gala-after-party-photos.html
+
+**Drance: Draft Lottery a reminder Canucks need more than luck to get back on track**\
+`On Monday night, the lottery balls didn't bounce Vancouver's way. And why would they? They never have before.`\
+https://nytimes.com/athletic/6336544/2025/05/06/nhl-draft-canucks-lottery-2025/
+
+**Adam Lowry, Rick Bowness and the special Game 7 moment that was years in the making**\
+`Adam Lowry owes much of his personal and hockey growth, as well as the "C" on his jersey, to Rick Bowness.`\
+https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry-bowness/
+
 **First World Cup 2026 tickets go on sale as hospitality packages released**\
 `The first men's World Cup tickets are on sale in the hospitality sector. As expected, they're not cheap.`\
 https://nytimes.com/athletic/6336841/2025/05/06/world-cup-2026-tickets-hospitality/
