@@ -1,3 +1,11 @@
+**Sean Combs’s Trial: What to Know**\
+`The music mogul known as Puffy and Diddy is facing federal charges of racketeering conspiracy and sex trafficking. He has pleaded not guilty.`\
+https://nytimes.com/article/diddy-sean-combs-sex-trafficking-trial-explained.html
+
+**Supreme Court Revives Trump’s Ban on Transgender Troops**\
+`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
+https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
+
 **Columbia Lays Off Nearly 180 People Because of Trump Research Cuts**\
 `“We understand this news will be hard,” Claire Shipman, Columbia University’s acting president, wrote in a note to the community.`\
 https://nytimes.com/2025/05/06/us/politics/columbia-layoffs-trump-research-cuts.html
