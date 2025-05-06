@@ -1,3 +1,7 @@
+**Ravens’ release of Justin Tucker brings record-breaking era to embarrassing, inevitable end**\
+`Tucker’s 13-season run with the Ravens is now over. His career could be in jeopardy, too.`\
+https://nytimes.com/athletic/6335837/2025/05/05/justin-tucker-ravens-released/
+
 **No GM but plenty of excitement for the Islanders after winning the No. 1 pick**\
 `With the next phase of the franchise already in motion, the NHL Draft Lottery results shifted a lot of eyes around the NHL to the Islanders.`\
 https://nytimes.com/athletic/6335874/2025/05/05/islanders-nhl-draft-lottery-win/

@@ -1,5 +1,5 @@
-**Ravens’ release of Justin Tucker brings record-breaking era to embarrassing, inevitable end**\
-`Tucker’s 13-season run with the Ravens is now over. His career could be in jeopardy, too.`\
+**Ravens' release of Justin Tucker brings record-breaking era to embarrassing, inevitable end**\
+`Tucker's 13-season run with the Ravens is over. His career could be in jeopardy, too.`\
 https://nytimes.com/athletic/6335837/2025/05/05/justin-tucker-ravens-released/
 
 **No GM but plenty of excitement for the Islanders after winning the No. 1 pick**\
