@@ -1,3 +1,11 @@
+**Barry Diller Opens Up About His Sexuality in Upcoming Memoir**\
+`The media mogul publicly addressed being gay for the first time, while also celebrating his marriage to Diane von Furstenberg. “Today he opened to the world,” she said.`\
+https://nytimes.com/2025/05/06/style/barry-diller-gay-diane-von-furstenberg.html
+
+**Senate Confirms Frank Bisignano as Social Security Commissioner**\
+`Mr. Bisignano, a former Wall Street executive, will lead an agency upended by big staff cuts and other significant changes.`\
+https://nytimes.com/2025/05/06/business/social-security-frank-bisignano.html
+
 **Carney Tells Trump Canada Is ‘Never For Sale’**\
 `President Trump and Prime Minister Mark Carney, Canada’s newly elected leader, went back and forth on the prospect of the U.S. making Canada the 51st state.`\
 https://nytimes.com/video/us/politics/100000010152679/carney-tells-trump-canada-is-never-for-sale.html
