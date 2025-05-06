@@ -1,4 +1,8 @@
-**NBA takeaways: Knicks down Celtics 108-105 in resilient Game 1 OT win**\
+**Leafs hang on to win Game 1, but lose Anthony Stolarz: Takeaways**\
+`Maple Leafs stormed to an early lead in Game 1 and held on late, beating the reigning Stanley Cup champion Florida Panthers 5-4 in Game 1`\
+https://nytimes.com/athletic/6336104/2025/05/05/leafs-panthers-game-1-nhl-playoffs/
+
+**NBA takeaways: Knicks down Celtics and show resiliency in Game 1 OT win**\
 `Jalen Brunson and OG Anunoby each scored 29 points in the Knicks' comeback victory.`\
 https://nytimes.com/athletic/6335768/2025/05/05/nba-playoffs-takeaways-knicks-celtics-thunder-nuggets-game-1/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/crosswords/daily-puzzle-2025-05-06.html
 **No Pants? No Problem.**\
 `Stars at the Met Gala, including Sabrina Carpenter, took an opportunity to show some leg. A lot of leg, actually.`\
 https://nytimes.com/2025/05/05/style/met-gala-sabrina-carpenter-no-pants.html
-
-**Ocasio-Cortez Won’t Push for House Oversight Role**\
-`Representative Alexandria Ocasio-Cortez said Democrats’ emphasis on seniority led her not to seek a leadership role on the powerful Oversight Committee.`\
-https://nytimes.com/2025/05/05/us/politics/aoc-house-oversight-committee.html
 

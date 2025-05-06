@@ -1,3 +1,11 @@
+**Leafs hang on to win Game 1, but lose Anthony Stolarz: Takeaways**\
+`Maple Leafs stormed to an early lead in Game 1 and held on late, beating the reigning Stanley Cup champion Florida Panthers 5-4 in Game 1`\
+https://nytimes.com/athletic/6336104/2025/05/05/leafs-panthers-game-1-nhl-playoffs/
+
+**NBA takeaways: Knicks down Celtics and show resiliency in Game 1 OT win**\
+`Jalen Brunson and OG Anunoby each scored 29 points in the Knicks' comeback victory.`\
+https://nytimes.com/athletic/6335768/2025/05/05/nba-playoffs-takeaways-knicks-celtics-thunder-nuggets-game-1/
+
 **NBA takeaways: Knicks down Celtics 108-105 in resilient Game 1 OT win**\
 `Jalen Brunson and OG Anunoby each scored 29 points in the Knicks' comeback victory.`\
 https://nytimes.com/athletic/6335768/2025/05/05/nba-playoffs-takeaways-knicks-celtics-thunder-nuggets-game-1/
