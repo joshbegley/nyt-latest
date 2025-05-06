@@ -1,3 +1,7 @@
+**Supreme Court Lets Trump Enforce Transgender Troop Ban as Cases Proceed**\
+`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
+https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
+
 **Seven Weeks and Counting: The N.Y.C. Mayoral Primary Is Heating Up**\
 `We’re in the homestretch of a critical race to choose the Democratic nominee for mayor. Primary Day is June 24.`\
 https://nytimes.com/2025/05/06/nyregion/nyc-mayor-race.html

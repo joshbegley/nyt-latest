@@ -1,3 +1,11 @@
+**Sue Bird to become managing director for the USA women’s national team: Sources**\
+`Bird's hiring is a departure from a longstanding structure of using a committee to select players and coaches for national team rosters.`\
+https://nytimes.com/athletic/6337635/2025/05/06/usa-womens-basketball-sue-bird-director/
+
+**Emergency Crew Responds After Plane Collision in San Francisco**\
+`Two United Airlines planes collided while taxiing on the tarmac at San Francisco International Airport Monday night. No injuries were reported.`\
+https://nytimes.com/video/us/100000010152770/plane-collision-san-francisco.html
+
 **Seven Weeks and Counting: The N.Y.C. Mayoral Primary Is Heating Up**\
 `We’re in the homestretch of a critical race to choose the Democratic nominee for mayor. Primary Day is June 24.`\
 https://nytimes.com/2025/05/06/nyregion/nyc-mayor-race.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/arts/music/pavement.html
 **Blues' Dylan Holloway expected to be ready for start of 2025-26 after surgery for undisclosed injury**\
 `The winger suffered the injury in the Blues' 5-4 overtime win over the Pittsburgh Penguins on April 3.`\
 https://nytimes.com/athletic/6268349/2025/05/06/blues-dylan-holloway-surgery/
-
-**Some Giant Law Firms Shy Away From Pro Bono Immigration Cases**\
-`Fearing the wrath of President Trump, some elite law firms are declining pro bono work on lawsuits challenging the administration’s policies.`\
-https://nytimes.com/2025/05/06/business/trump-law-firms-pro-bono-immigration.html
-
-**Trade Talks With China Have Not Started, Bessent Says**\
-`The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
-https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
 
