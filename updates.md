@@ -1,3 +1,11 @@
+**Cristiano Ronaldo's son, 14, called up to Portugal youth team for first time**\
+`The 14-year-old is part of the youth setup of Al Nassr, the Saudi Pro League side his father plays for.`\
+https://nytimes.com/athletic/6336904/2025/05/06/cristiano-ronaldo-son-14-portugal-youth-team/
+
+**Trump Is Fighting Antisemitism the Wrong Way, a Jewish Group Argues**\
+`The American Jewish Committee joined university groups in urging the White House to combat antisemitism with a careful, lawful process, not hasty, ill-advised actions.`\
+https://nytimes.com/2025/05/06/us/trump-antisemitism-american-jewish-committee-universities.html
+
 **Israeli Jets Bombard Airport in Yemen’s Capital**\
 `The strike came days after the Iran-backed Houthi militia in Yemen fired a ballistic missile that struck near Israel’s main airport, wounding at least six people.`\
 https://nytimes.com/2025/05/06/world/middleeast/israel-yemen-attack-sana-airport.html
