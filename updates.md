@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Ukraine Deal, Blackout, Ronan the Sea Lion**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/05/06/learning/06StudentNewsQuiz.html
+
 **Barca's Raphinha says Xavi ‘did not trust’ him, considered Saudi move**\
 `The 28-year-old has scored 31 goals and provided 25 assists in all competitions under Hansi Flick, who replaced Xavi last year.`\
 https://nytimes.com/athletic/6336717/2025/05/06/raphinha-xavi-barcelona-saudi/
