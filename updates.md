@@ -1,3 +1,15 @@
+**Germany Gets a New Chancellor, in Unexpectedly Dramatic Fashion**\
+`Friedrich Merz secured the top job but only after losing on his first attempt, a surprise that potentially weakens his government at a fraught time for Germany and Europe`\
+https://nytimes.com/2025/05/06/world/europe/germany-merz-chancellor.html
+
+**The Panthers — and Maple Leafs — are trying to calm the storm around Sam Bennett**\
+`All the talk after Game 1 in Toronto was about Florida agitator Sam Bennett's hit on the Leafs' goalie. Both teams tried to change that.`\
+https://nytimes.com/athletic/6337597/2025/05/06/maple-leafs-panthers-bennett-stolarz-nhl-playoffs/
+
+**Reds place Tyler Callihan on IL, recall Jacob Hurtubise, Lyon Richardson**\
+`Cincinnati placed Tyler Callihan on the 10-day injured list following a left forearm fracture suffered in Atlanta on Monday.`\
+https://nytimes.com/athletic/6337705/2025/05/06/reds-tyler-callihan-il/
+
 **Barry Diller Opens Up About His Sexuality in Upcoming Memoir**\
 `The media mogul publicly addressed being gay for the first time, while also celebrating his marriage to Diane von Furstenberg. “Today he opened to the world,” she said.`\
 https://nytimes.com/2025/05/06/style/barry-diller-gay-diane-von-furstenberg.html
