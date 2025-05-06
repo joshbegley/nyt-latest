@@ -1,3 +1,7 @@
+**Foul play: Thunder's strategy of fouling up 3 contributes to Game 1 upset**\
+`Oklahoma City intentionally fouled the Nuggets twice in the final 12 seconds when just playing things out might have been a better idea.`\
+https://nytimes.com/athletic/6336622/2025/05/06/thunder-playoffs-game-1-nuggets-fouls-free-throws/
+
 **Merz will face big challenges if he becomes chancellor.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-will-face-big-challenges-if-he-becomes-chancellor
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335394/2025/05/06/bryson-stott-phillies-leadoff-hi
 **Despite switching positions, Twins outfielder Harrison Bader is excelling defensively**\
 `The Twins love what they've seen from Bader, who arguably has been the team's most valuable player.`\
 https://nytimes.com/athletic/6335845/2025/05/06/harrison-bader-outfield-defense-twins/
-
-**Mets mailbag: Roster role for Luisangel Acuña, the next core of pitching prospects**\
-`Even though the Mets sit atop the standings in the National League East, their fans have questions about some pressing issues.`\
-https://nytimes.com/athletic/6336179/2025/05/06/mets-luisangel-acuna-prospects/
 
