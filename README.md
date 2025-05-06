@@ -1,40 +1,40 @@
-**The Stakes for OpenAI’s Plan B**\
-`The giant artificial intelligence start-up dialed back its corporate reorganization plan, but big questions remain about its future.`\
-https://nytimes.com/2025/05/06/business/dealbook/altman-openai-plan-b.html
+**Watford part company with head coach Tom Cleverley**\
+`Cleverley's successor in the dugout will be Watford's 21st permanent head coach appointment since 2012 under the Pozzo family ownership`\
+https://nytimes.com/athletic/6336822/2025/05/06/watford-manager-tom-cleverley/
 
-**'Intimidating player': Sam Bennett becomes the villain again after unpenalized Anthony Stolarz hit**\
-`Game 1 between Toronto and Florida ended with the Maple Leafs goalie in hospital for evaluation after a forearm to the head from Bennett.`\
-https://nytimes.com/athletic/6336490/2025/05/06/anthony-stolarz-sam-bennett-nhl-playoffs-leafs-panthers/
+**NBC to use AI to recreate Jim Fagan's voice-over for NBA coverage**\
+`This is the second time that NBC has created an AI partnership after Al Michaels was compensated for his AI-generated voice at the Olympics`\
+https://nytimes.com/athletic/6335267/2025/05/06/nbc-ai-jim-fagan-nba-voice-old-school/
 
-**Foul play: Thunder's strategy of fouling up 3 contributes to Game 1 upset**\
-`Oklahoma City intentionally fouled the Nuggets twice in the final 12 seconds when just playing things out might have been a better idea.`\
-https://nytimes.com/athletic/6336622/2025/05/06/thunder-playoffs-game-1-nuggets-fouls-free-throws/
+**‘Shark Tank’ Star Barbara Corcoran Is Selling Her Dream Penthouse**\
+`The businesswoman is listing the apartment for $12 million, bidding a bittersweet goodbye as she and her husband move to a home that’s easier to navigate.`\
+https://nytimes.com/2025/05/06/realestate/barbara-corcoran-manhattan-penthouse-for-sale.html
 
-**Merz will face big challenges if he becomes chancellor.**\
-`By Jim Tankersley`\
-https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-will-face-big-challenges-if-he-becomes-chancellor
+**PSG vs Arsenal semi-final odds: Gunners the next lamb to the slaughter?**\
+`Sam Tighe has a look at the best bets around Arsenal’s Champions League semi-final second-leg clash with Paris Saint-Germain. `\
+https://nytimes.com/athletic/6336815/2025/05/06/champions-league-semi-final-betting-are-arsenal-psgs-next-premier-league-victim/
 
-**'Mr. Nugget' delivers again for Denver, which shows it won't go down quietly vs. Thunder**\
-`Aaron Gordon's 3-pointer with 2.8 seconds left gave Denver the Game 1 upset over OKC, while Nikola Jokić got wherever he wanted.`\
-https://nytimes.com/athletic/6336283/2025/05/06/aaron-gordon-nuggets-playoffs-thunder-game-1/
+**Trump Administration Live Updates: Canada’s New Leader Will Make High-Stakes Visit to White House**\
+``\
+https://nytimes.com/live/2025/05/06/us/trump-live-updates
 
-**Weekly Student News Quiz: Ukraine Deal, Blackout, Ronan the Sea Lion**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/05/06/learning/06StudentNewsQuiz.html
+**Rangers report card: Grading every defenseman and goalie, from Adam Fox to Jonathan Quick**\
+`Please note: Grades are based on expectations for a player, so a "B" for Igor Shesterkin doesn't look the same as a "B" for Zac Jones.`\
+https://nytimes.com/athletic/6335235/2025/05/06/rangers-defense-goalies-grades-2024-25/
 
-**Barca's Raphinha says Xavi ‘did not trust’ him, considered Saudi move**\
-`The 28-year-old has scored 31 goals and provided 25 assists in all competitions under Hansi Flick, who replaced Xavi last year.`\
-https://nytimes.com/athletic/6336717/2025/05/06/raphinha-xavi-barcelona-saudi/
+**Blues offseason checklist: Holloway, Broberg contracts, Kyrou's no-trade clause, D decisions**\
+`The Blues' offseason checklist in 2025 revolves around deciding who to keep, who to let go and who to re-sign.`\
+https://nytimes.com/athletic/6332814/2025/05/06/blues-offseason-checklist-holloway-broberg-kyrou-defense/
 
-**The Maple Leafs found a blueprint for beating the Panthers**\
-`It was only one game but a significant game — and a significant win — for the Maple Leafs.`\
-https://nytimes.com/athletic/6336421/2025/05/06/maple-leafs-panthers-playoff-blueprint/
+**The Angels hope they're just in a slump. These 10 stats show more reason for concern**\
+`The Angels' story is a well-told tale of futility. These stats help explain why the Angels are back in a familiar spot: last place.`\
+https://nytimes.com/athletic/6335641/2025/05/06/angels-slump-statistics-analysis/
 
-**The Athletic FC: Striker transfer saga of the summer, Yamal's Da Vinci comparison**\
-`Today in TAFC: Delap and the striker saga of the summer, Yamal's Da Vinci comparison, the Alexander-Arnold debate and Leeds end 33-year wait`\
-https://nytimes.com/athletic/6336646/2025/05/06/delap-transfer-saga-yamal-da-vinci/
+**Atlanta United is still left searching for its soccer soul**\
+`Spending isn't the issue for Atlanta United, but the pieces and direction aren't working for a club that was once among MLS's elite.`\
+https://nytimes.com/athletic/6334766/2025/05/06/atlanta-united-struggles-mls-deila-lagerwey/
 
-**Merz failed to win a majority in parliament. What happens now?**\
-`By Christopher F. Schuetze`\
-https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-failed-to-win-a-majority-in-parliament-what-happens-now
+**Why Oilers vs. Golden Knights is Kane's and Frederic's time to shine**\
+`For all the good Kane and Frederic accomplished in the first round, this is where their worth to the Oilers will be measured.`\
+https://nytimes.com/athletic/6335683/2025/05/06/oilers-nhl-playoffs-evander-kane-trent-frederic/
 
