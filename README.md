@@ -1,3 +1,27 @@
+**Cincinnati Mayoral Primary Election Results**\
+`Get live results and maps from the Cincinnati and Ohio elections.`\
+https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
+
+**Florida, coach Todd Golden agree to 6-year, $40.5 million extension**\
+`Golden became the youngest head coach in more than four decades to win the men's NCAA Tournament.`\
+https://nytimes.com/athletic/6337472/2025/05/06/florida-coach-todd-golden-contract-extension-national-title/
+
+**Coffee Flavored by Venice Itself**\
+`Visitors to the Venice Biennale of Architecture will be able to buy espresso made from canal water.`\
+https://nytimes.com/2025/05/06/style/coffee-venice-water.html
+
+**Ohio Election Results: Local Public Infrastructure Bonds Issue**\
+`Get live results and maps from the May 6 Ohio election.`\
+https://nytimes.com/interactive/2025/05/06/us/elections/results-ohio-issue-2.html
+
+**10 Products in the Stylish World of Tableware**\
+`Because dining has always been about more than just food.`\
+https://nytimes.com/2025/05/06/style/tableware-products.html
+
+**Billy Horschel to have right hip surgery, will miss multiple months**\
+`“It’s an unfortunate situation with so many great events left on the calendar, but this is a preventative measure," Horschel said.`\
+https://nytimes.com/athletic/6337397/2025/05/06/billy-horschel-surgery-injury/
+
 **Of Course South Street Seaport Should Have a Whaling Tavern**\
 `Quick Eternity takes inspiration from “Moby Dick,” with a driftwood bar, cocktails and New England fare.`\
 https://nytimes.com/2025/05/06/dining/nyc-restaurant-news.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/06/world/europe/europe-tesla-sales-germany-britain.h
 **‘The Class’ Is a Poignant Docuseries About Covid and College**\
 `The PBS series is a both a coming-of-age story and a historical document, about the lasting effects on young people of the pandemic shutdown.`\
 https://nytimes.com/2025/05/06/arts/television/the-class-pbs-covid-documentary.html
-
-**Theo Von, Andrew Schulz, Joe Rogan: A ‘Manosphere’ Just Asking Questions**\
-`A conversation about the comedians and podcasters who have created a new media mainstream for actors, musicians and politicians.`\
-https://nytimes.com/2025/05/06/arts/music/theo-von-andrew-schulz-joe-rogan-manosphere-popcast.html
-
-**When Did Restaurant Salads Get So … Unwieldy?**\
-`‘Why am I cutting lettuce like a steak?’ one diner asked, but chefs say they have their reasons.`\
-https://nytimes.com/2025/05/06/dining/big-restaurant-salads.html
-
-**Trump Is Picking New Climate Fights With States. Here’s Why.**\
-`The White House has begun a new effort to sue individual states over their climate initiatives and to stop lawsuits against fossil fuel companies.`\
-https://nytimes.com/2025/05/06/climate/trump-climate-change-state-lawsuits.html
-
-**Mikaela Shiffrin joins NWSL's Denver ownership group**\
-`This week, Shiffrin became the newest investor in NWSL Denver, the first professional women’s soccer team in her home state of Colorado.`\
-https://nytimes.com/athletic/6336075/2025/05/06/mikaela-shiffrin-nwsl-denver-ownership/
-
-**USMNT Player Tracker: Pulisic clinging to Champions League hopes and Haji puts things Wright**\
-`Our round-up from Europe's weekend action also includes Rokas Pukstas' far from conventional journey to training at Hajduk Split`\
-https://nytimes.com/athletic/6336918/2025/05/06/usmnt-pulisic-wright-aaronson-dike-tracker/
-
-**Barbie Maker Mattel Plans to Raise Prices Because of Trump’s Tariffs**\
-`Mattel, the U.S. toy company, said it would increase prices of some U.S. toys, citing levies on Chinese imports.`\
-https://nytimes.com/2025/05/06/business/mattel-barbie-trump-tariffs-prices.html
 
