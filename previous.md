@@ -1,3 +1,11 @@
+**Live Updates: Friedrich Merz Stumbles in Bid to Become Germany’s Next Leader**\
+`Mr. Merz failed to get enough votes from legislators in the German Parliament in a first round of voting. No modern German chancellor has ever failed to secure the job on a first ballot.`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament
+
+**The New York Times International Edition in Print for Wednesday, May 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/06/todays-new-york-times-international-edition
+
 **Ukrainian Drone Attack Forces Restriction of Flights Near Moscow, Russia Says**\
 `The volley comes just days before a planned parade in the capital to mark the 80th anniversary of the end of World War II in Europe.`\
 https://nytimes.com/2025/05/06/world/europe/ukraine-drones-moscow-airport.html
@@ -6,9 +14,9 @@ https://nytimes.com/2025/05/06/world/europe/ukraine-drones-moscow-airport.html
 `Which receivers will make the team? How will they generate a pass rush? And how long will Rhamondre Stevenson be the starting running back?`\
 https://nytimes.com/athletic/6324002/2025/05/06/patriots-questions-rookie-minicamp-nfl-draft/
 
-**Friedrich Merz Fails in First Round of Voting to Become Germany’s Next Leader**\
+**Here’s the latest.**\
 `The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
-https://nytimes.com/2025/05/06/world/europe/merz-germany-chancellor-parliament-vote.html
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-germany-chancellor-parliament-vote
 
 **Canada’s Carney Is on a High-Stakes Visit to the White House**\
 `The Canadian prime minister will meet with President Trump, days after being elected on an anti-Trump platform as relations between the two allies are at a historic nadir.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/learning/have-you-ever-been-in-love.html
 **Why Cowboys' potential committee approach again at running back could yield better results**\
 `Rookies Jaydon Blue and Phil Mafah bring different skill sets to the running back room as the Cowboys aim to improve their ground game.`\
 https://nytimes.com/athletic/6335495/2025/05/06/cowboys-running-backs-jaydon-blue-phil-mafah/
-
-**How a Red-District Democrat Is Navigating Trump**\
-`Representative Marie Gluesenkamp Perez discusses Trump’s tariffs and where Democrats have gone wrong.`\
-https://nytimes.com/2025/05/06/opinion/ezra-klein-podcast-marie-gluesenkamp-perez.html
-
-**How a Red-District Democrat Is Navigating Trump**\
-`Representative Marie Gluesenkamp Perez discusses Trump’s tariffs and where Democrats have gone wrong.`\
-https://nytimes.com/video/opinion/100000010146628/how-a-red-district-democrat-is-navigating-trump.html
 

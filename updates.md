@@ -1,3 +1,15 @@
+**Live Updates: Friedrich Merz Stumbles in Bid to Become Germany’s Next Leader**\
+`Mr. Merz failed to get enough votes from legislators in the German Parliament in a first round of voting. No modern German chancellor has ever failed to secure the job on a first ballot.`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament
+
+**The New York Times International Edition in Print for Wednesday, May 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/06/todays-new-york-times-international-edition
+
+**Here’s the latest.**\
+`The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-germany-chancellor-parliament-vote
+
 **Ukrainian Drone Attack Forces Restriction of Flights Near Moscow, Russia Says**\
 `The volley comes just days before a planned parade in the capital to mark the 80th anniversary of the end of World War II in Europe.`\
 https://nytimes.com/2025/05/06/world/europe/ukraine-drones-moscow-airport.html
