@@ -1,3 +1,15 @@
+**Ask Well: Answers to Your Health Questions**\
+``\
+https://nytimes.com/spotlight/ask-well-festival
+
+**Why Julio Rodriguez and Dylan Crews are among those ripe for a rebound in fantasy baseball**\
+`Michael Salfino identifies struggling players, like Julio Rodriguez, who could see their fantasy fortunes reversed with a little luck.`\
+https://nytimes.com/athletic/6337543/2025/05/06/fantasy-baseball-rebound-candidates-unlucky-julio-rodriguez/
+
+**Yankees cut Carlos Carrasco. Who will join the rotation?**\
+`New York replaced Carrasco on the roster by calling up a reliever. It's unclear who will start in his place.`\
+https://nytimes.com/athletic/6337789/2025/05/06/yankees-carlos-carrasco-rotation/
+
 **Trump Promises Announcement ‘as Big as It Gets’**\
 `The president provided no other details, but suggested he would share the news before he leaves for a trip to the Middle East next week.`\
 https://nytimes.com/2025/05/06/us/politics/trump-very-big-announcement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/06/us/dave-portnoy-barstool-antisemitism-temple-univ
 **Bipartisan House and Senate Leaders Urge White House to Restore Spending Website**\
 `In the latest chapter in a battle over spending powers, lawmakers charged that the administration removed crucial information in violation of the law. The White House argues the data shouldn’t be public.`\
 https://nytimes.com/2025/05/06/us/politics/congress-white-house-spending-website.html
-
-**U.S. to Downgrade Palestinian Affairs Office in Jerusalem, Officials Say**\
-`The U.S. ambassador to Israel, Mike Huckabee, plans to shut down a direct communications channel between U.S. diplomats in Jerusalem working on Palestinian issues and agencies in Washington.`\
-https://nytimes.com/2025/05/06/world/middleeast/trump-palestinian-affairs-jerusalem.html
-
-**Department of Education Eliminates Grant for PBS Children’s Shows**\
-`The termination of the federal grant program, called Ready To Learn, resulted in a loss of $23 million that would have gone to educational programs.`\
-https://nytimes.com/2025/05/06/us/politics/doe-kills-grant-pbs-childrens-shows.html
-
-**Sue Bird to become managing director for the USA women’s national team: Sources**\
-`Bird's hiring is a departure from a longstanding structure of using a committee to select players and coaches for national team rosters.`\
-https://nytimes.com/athletic/6337635/2025/05/06/usa-womens-basketball-sue-bird-director/
 
