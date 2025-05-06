@@ -1,3 +1,7 @@
+**Glasner has banned FA Cup final talk at Palace - his message has landed**\
+`The Austrian wants his players focused on the Premier League and they responded impressively against Nottingham Forest`\
+https://nytimes.com/athletic/6320317/2025/05/06/crystal-palace-nottingham-forest-premier-league/
+
 **After Game 1 win over Celtics, Knicks' blueprint with Bridges, Anunoby and Hart is clear**\
 `The Knicks hung on for an improbable Game 1 win after trailing the Celtics by 20 points with just over 17 minutes remaining in regulation.`\
 https://nytimes.com/athletic/6336395/2025/05/06/knicks-beat-celtics-game-1-eastern-conference-semifinals/
