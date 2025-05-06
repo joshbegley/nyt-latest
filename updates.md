@@ -1,3 +1,15 @@
+**Trade Talks With China Have Not Started, Bessent Says**\
+`The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
+https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
+
+**Republican Senator Says He’ll Vote Against Pick for U.S. Attorney**\
+`The nomination of the prosecutor, Ed Martin, has been teetering amid revelations that he once compared former President Biden to Adolf Hitler.`\
+https://nytimes.com/2025/05/06/us/politics/thom-tillis-ed-martin.html
+
+**N.I.H. Bans New Funding From U.S. Scientists to Partners Abroad**\
+`Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
+https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
+
 **Your Most Loved Looks From the 2025 Met Gala**\
 `We asked you to pick your favorite looks. Here are the results.`\
 https://nytimes.com/2025/05/06/style/met-gala-looks.html

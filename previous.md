@@ -1,3 +1,11 @@
+**Trade Talks With China Have Not Started, Bessent Says**\
+`The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
+https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
+
+**Republican Senator Says He’ll Vote Against Pick for U.S. Attorney**\
+`The nomination of the prosecutor, Ed Martin, has been teetering amid revelations that he once compared former President Biden to Adolf Hitler.`\
+https://nytimes.com/2025/05/06/us/politics/thom-tillis-ed-martin.html
+
 **Your Most Loved Looks From the 2025 Met Gala**\
 `We asked you to pick your favorite looks. Here are the results.`\
 https://nytimes.com/2025/05/06/style/met-gala-looks.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-nc
 `In “The Peepshow,” Kate Summerscale tells the stranger-than-fiction story of a sensational murder case that rocked 1950s London.`\
 https://nytimes.com/2025/05/06/books/review/kate-summerscale-the-peepshow.html
 
-**N.I.H. Bars New Funding From U.S. Scientists to Partners Abroad**\
+**N.I.H. Bans New Funding From U.S. Scientists to Partners Abroad**\
 `Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
 https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6243773/2025/05/06/club-world-cup-playoff-america-l
 **Climate Science Is ‘Unstoppable’**\
 `The National Climate Assessment has a setback, but help is on the way. Also: Vietnam-era exiles from the U.S.; drugs and tariffs.`\
 https://nytimes.com/2025/05/06/opinion/climate-science.html
-
-**A Culinary Amenity That May Be Too Hot to Handle**\
-`It takes a strong back and a robust budget to put a wood-burning oven in your kitchen.`\
-https://nytimes.com/2025/05/06/style/wood-burning-oven-kitchen-home.html
-
-**Is the Penguins’ head-coach opening still a premier NHL job?**\
-`Kyle Dubas may find it difficult to entice qualified coaches to Pittsburgh because of the team's competing priorities.`\
-https://nytimes.com/athletic/6337002/2025/05/06/penguins-coach-search-nhl/
 
