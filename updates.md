@@ -1,3 +1,11 @@
+**Word of the Day: pseudonym**\
+`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/06/learning/word-of-the-day-pseudonym.html
+
+**Xi Can’t Trust His Own Military**\
+`An unending purge in China’s top military ranks raises serious questions over the country’s readiness for offensive war.`\
+https://nytimes.com/2025/05/06/opinion/china-taiwan-xi-jinping.html
+
 **Glasner has banned FA Cup final talk at Palace - his message has landed**\
 `The Austrian wants his players focused on the Premier League and they responded impressively against Nottingham Forest`\
 https://nytimes.com/athletic/6320317/2025/05/06/crystal-palace-nottingham-forest-premier-league/

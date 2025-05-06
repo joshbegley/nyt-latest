@@ -1,3 +1,7 @@
+**Word of the Day: pseudonym**\
+`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/06/learning/word-of-the-day-pseudonym.html
+
 **Glasner has banned FA Cup final talk at Palace - his message has landed**\
 `The Austrian wants his players focused on the Premier League and they responded impressively against Nottingham Forest`\
 https://nytimes.com/athletic/6320317/2025/05/06/crystal-palace-nottingham-forest-premier-league/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playof
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
 
-**This Is the Moment of Moral Reckoning in Gaza**\
-`Our clinics have found clear evidence of starvation in one-third of the population. And now Israel wants to take over aid.`\
-https://nytimes.com/2025/05/06/opinion/gaza-israel-aid-starvation.html
-
-**Xi Can’t Conquer Taiwan Until He Tames His Own Generals**\
+**Xi Can’t Trust His Own Military**\
 `An unending purge in China’s top military ranks raises serious questions over the country’s readiness for offensive war.`\
 https://nytimes.com/2025/05/06/opinion/china-taiwan-xi-jinping.html
 
-**Tuesday Briefing**\
-`Israel’s plan to seize territory in Gaza.`\
-https://nytimes.com/2025/05/06/briefing/gaza-met-gala-germany.html
+**This Is the Moment of Moral Reckoning in Gaza**\
+`Our clinics have found clear evidence of starvation in one-third of the population. And now Israel wants to take over aid.`\
+https://nytimes.com/2025/05/06/opinion/gaza-israel-aid-starvation.html
 
