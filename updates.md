@@ -1,3 +1,19 @@
+**Explosions Reported in Pakistani Kashmir After India’s Vow of Retaliation**\
+`The apparent strikes would be an intensification of a conflict between India and Pakistan, both of which are nuclear powers.`\
+https://nytimes.com/2025/05/06/world/asia/india-pakistan-attacks.html
+
+**Trump Says His Administration ‘Is Not Going to Pay’ for California High-Speed Rail**\
+`The government was already investigating how the state was spending a federal grant on the train project to connect Los Angeles and San Francisco.`\
+https://nytimes.com/2025/05/06/us/politics/california-high-speed-rail-federal-funding.html
+
+**‘We Don’t Have to Sign Deals’: Trump Backs Off Big Promises About Tariffs**\
+`After weeks of bragging about upcoming trade “deals” with foreign countries, President Trump says the United States doesn’t need to worry about them after all.`\
+https://nytimes.com/2025/05/06/us/politics/trump-deals-tariffs.html
+
+**Panthers — and Maple Leafs — are trying to calm the storm around Sam Bennett**\
+`The talk after Game 1 in Toronto was about Florida agitator Sam Bennett's hit on the Leafs' goalie. Both teams tried to change that.`\
+https://nytimes.com/athletic/6337597/2025/05/06/maple-leafs-panthers-bennett-stolarz-nhl-playoffs/
+
 **A Mother’s Fierce, Extravagant Love (Encore)**\
 `How a cardboard box became a time machine that kept a mother and daughter connected.`\
 https://nytimes.com/2025/05/06/podcasts/a-mothers-fierce-extravagant-love-encore.html
