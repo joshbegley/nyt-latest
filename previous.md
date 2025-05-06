@@ -1,40 +1,40 @@
+**15 Unforgettable Looks at the Met Gala**\
+`Sweeping trains, sharp suiting, feathered finery and more.`\
+https://nytimes.com/2025/05/06/style/met-gala-2025-best-dressed.html
+
+**What to Know About Germany’s New Government**\
+`The choice of ministers points to a tolerance for political risk, but it also assembles a team of loyalists around the new chancellor and vice chancellor.`\
+https://nytimes.com/2025/05/06/world/europe/germany-new-government.html
+
+**Quote of the Day: Despite Economic Concerns, Fed Isn’t Cutting Rates Proactively**\
+`Quotation of the Day for Tuesday, May 6, 2025.`\
+https://nytimes.com/2025/05/06/pageoneplus/quote-of-the-day-despite-economic-concerns-fed-isnt-cutting-rates-proactively.html
+
+**Germany’s New Leader Leaps Into a World of Crises**\
+`Friedrich Merz is becoming chancellor at the most challenging time for Germany since reunification 35 years ago.`\
+https://nytimes.com/2025/05/06/world/europe/friedrich-merz-germany.html
+
+**Conservative Catholics Take Stage in Rome, Looking to Shape the Church**\
+`In lavish halls, days before a conclave will select a new pope, power brokers came together for a mix of devotion, activism, money and socializing.`\
+https://nytimes.com/2025/05/06/us/conclave-pope-conservative-catholics.html
+
+**Connections: Sports Edition Coach: Hints for May 6, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6336118/2025/05/06/connections-sports-edition-hints-for-may-6-2025/
+
+**Tariffs Could Wreck What Bangladesh’s Garment Workers Have Gained**\
+`In Bangladesh, the factories that make clothing for export had remade themselves and raised national incomes along the way. They never bargained for a trade war.`\
+https://nytimes.com/2025/05/06/business/trump-tariffs-bangladesh-factories.html
+
+**Corrections: May 6, 2025**\
+`Corrections that appeared in print on Tuesday, May 6, 2025.`\
+https://nytimes.com/2025/05/06/pageoneplus/corrections-may-6-2025.html
+
+**UPS and FedEx Once Handled a Deluge of Packages From China. That’s Changing.**\
+`President Trump has ended a tariff loophole that generated lots of business for delivery companies shipping inexpensive goods from China to the U.S.`\
+https://nytimes.com/2025/05/06/business/trump-tariffs-ups-fedex.html
+
 **Whose Face Is in That Lace?**\
 `A bodysuit worn by the K-pop singer Lisa prompted questions about what figure was portrayed in its intricate lace mesh.`\
 https://nytimes.com/2025/05/05/style/k-pop-lisa-lace-bodysuit-faces.html
-
-**'A great honor': Hyeseong Kim, Shohei Ohtani and the Dodgers rookie's moment in Miami**\
-`Kim has made a fast impression on the Dodgers, going 2-for-4 with an RBI in Monday's win. "He just adds that spark to our ballclub."`\
-https://nytimes.com/athletic/6336266/2025/05/05/dodgers-marlins-hyeseong-kim-shohei-ohtani/
-
-**Leafs hang on to win Game 1, but lose Anthony Stolarz: Takeaways**\
-`Maple Leafs stormed to an early lead in Game 1 and held on late, beating the reigning Stanley Cup champion Florida Panthers 5-4 in Game 1`\
-https://nytimes.com/athletic/6336104/2025/05/05/leafs-panthers-game-1-nhl-playoffs/
-
-**NBA takeaways: Knicks down Celtics and show resiliency in Game 1 OT win**\
-`Jalen Brunson and OG Anunoby each scored 29 points in the Knicks' comeback victory.`\
-https://nytimes.com/athletic/6335768/2025/05/05/nba-playoffs-takeaways-knicks-celtics-thunder-nuggets-game-1/
-
-**Anna Sawai Makes Her Met Gala Debut After a Red Carpet Streak**\
-`The actress caps off a winning awards show season by changing up her look.`\
-https://nytimes.com/2025/05/05/style/anna-sawai-2025-met-gala-look-dior.html
-
-**No. 3 pick gives Blackhawks another crack at drafting elite forward**\
-`We don't know their name, but thanks to the results of Monday's NHL Draft Lottery, we know what position the Blackhawks will likely pick.`\
-https://nytimes.com/athletic/6335807/2025/05/05/blackhawks-nhl-draft-lottery-davidson/
-
-**Fashionably Late, Rihanna Arrives at the Met Gala**\
-`The pop star seemed to confirm rumors she was pregnant when she met shouts of congratulations with: “Thank you!”`\
-https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
-
-**Dramatic Trains Sweep the Met Gala Carpet**\
-`Some gowns required small teams to manage vast amounts of fabric and help their wearers up the Met steps.`\
-https://nytimes.com/2025/05/05/style/kim-kardashian-demi-moore-met-gala-2025.html
-
-**Alcatraz as a Prison? Tourists Say Trump Is on His Own Island.**\
-`At the beloved attraction in San Francisco Bay, visitors could scarcely believe President Trump had suggested turning Alcatraz back into a penitentiary.`\
-https://nytimes.com/2025/05/05/us/alcatraz-trump-tourists.html
-
-**NHL Mock Draft 2025: Matthew Schaefer to Islanders as we pick for every lottery team**\
-`Following the lottery, a collection of our NHL reporters combined for a mock draft of the first 16 picks.`\
-https://nytimes.com/athletic/6335303/2025/05/05/nhl-mock-draft-2025-schaefer-islanders/
 
