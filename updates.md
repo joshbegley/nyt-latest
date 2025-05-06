@@ -1,3 +1,7 @@
+**Jordan Casteel Honors Her Grandmother at the Met Gala**\
+`The painter will be wearing a bespoke dress, but it is what the public won’t see that makes her the most proud.`\
+https://nytimes.com/2025/05/05/style/jordan-casteel-met-gala-2025.html
+
 **Trump’s Hope for Gaza Deal Fades as Israel Plans Major Escalation**\
 `Ahead of a trip to the Middle East, President Trump has disengaged from the conflict, analysts said, but must now decide how to respond.`\
 https://nytimes.com/2025/05/05/us/politics/trump-israel-gaza.html

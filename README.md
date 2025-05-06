@@ -1,3 +1,11 @@
+**Diljit Dosanjh Brings Punjab to the Red Carpet**\
+`For the Punjabi artist’s first Met Gala appearance, he chose to honor an early Indian dandy.`\
+https://nytimes.com/2025/05/05/style/diljit-dosanjh-punjabi-singer-met-gala-2025.html
+
+**Spy Agencies Do Not Think Venezuela Directs Gang, Declassified Memo Shows**\
+`The release of the memo further undercuts the Trump administration’s rationale for using the Alien Enemies Act to deport scores of Venezuelans to a prison in El Salvador.`\
+https://nytimes.com/2025/05/05/us/trump-venezuela-gang-ties-spy-memo.html
+
 **Jordan Casteel Honors Her Grandmother at the Met Gala**\
 `The painter will be wearing a bespoke dress, but it is what the public won’t see that makes her the most proud.`\
 https://nytimes.com/2025/05/05/style/jordan-casteel-met-gala-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6327267/2025/05/05/red-wings-nhl-draft-13th-pick/
 **What will the Senators’ offseason look like? Here is Steve Staios’ to-do list**\
 `The Athletic breaks down some of the high-profile items on the general manager's to-do list this summer.`\
 https://nytimes.com/athletic/6332030/2025/05/05/senators-steve-staios-offseason/
-
-**New York Islanders win NHL Draft Lottery after jumping up 9 spots**\
-`The Islanders had a 3.5 percent chance to win the lottery — then did.`\
-https://nytimes.com/athletic/6334836/2025/05/05/islanders-nhl-draft-lottery-results/
-
-**Signal Clone Used by Waltz Suspends Service After ‘Security Incident’**\
-`The clone, TeleMessage, was the subject of a reported hack in which the contents of some direct messages and group chats were stolen.`\
-https://nytimes.com/2025/05/05/us/politics/signal-clone-telemessage-waltz-security-breach.html
 

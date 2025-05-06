@@ -1,3 +1,7 @@
+**Jordan Casteel Honors Her Grandmother at the Met Gala**\
+`The painter will be wearing a bespoke dress, but it is what the public won’t see that makes her the most proud.`\
+https://nytimes.com/2025/05/05/style/jordan-casteel-met-gala-2025.html
+
 **Trump’s Hope for Gaza Deal Fades as Israel Plans Major Escalation**\
 `Ahead of a trip to the Middle East, President Trump has disengaged from the conflict, analysts said, but must now decide how to respond.`\
 https://nytimes.com/2025/05/05/us/politics/trump-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6334836/2025/05/05/islanders-nhl-draft-lottery-resu
 **Signal Clone Used by Waltz Suspends Service After ‘Security Incident’**\
 `The clone, TeleMessage, was the subject of a reported hack in which the contents of some direct messages and group chats were stolen.`\
 https://nytimes.com/2025/05/05/us/politics/signal-clone-telemessage-waltz-security-breach.html
-
-**Hegseth Orders 20 Percent Cut in Four-Star Officers**\
-`Defense Secretary Pete Hegseth has already fired a raft of military leaders, many of them women and people of color, including the chairman of the Joint Chiefs of Staff.`\
-https://nytimes.com/2025/05/05/us/politics/pete-hegseth-military-cuts.html
 
