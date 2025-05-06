@@ -1,40 +1,41 @@
-**Met Gala Fashion**\
-`What were your favorite and least favorite looks at this year’s event?`\
-https://nytimes.com/2025/05/06/learning/met-gala-fashion.html
+**The Maple Leafs found a blueprint for beating the Panthers**\
+`It was only one game but a significant game — and a significant win — for the Maple Leafs.`\
+https://nytimes.com/athletic/6336421/2025/05/06/maple-leafs-panthers-playoff-blueprint/
 
-**Who Is Friedrich Merz, Who Just Stumbled in His Bid to Become Germany’s Chancellor?**\
-`Supporters of the former corporate lawyer say he is well-prepared and thoughtful, but critics accuse him of failing to think more than one step ahead and breaking promises.`\
-https://nytimes.com/2025/05/06/world/europe/friedrich-merz-chanellor-who-is.html
+**The Athletic FC: Striker transfer saga of the summer, Yamal's Da Vinci comparison**\
+`Today in TAFC: Delap and the striker saga of the summer, Yamal's Da Vinci comparison, the Alexander-Arnold debate and Leeds end 33-year wait`\
+https://nytimes.com/athletic/6336646/2025/05/06/delap-transfer-saga-yamal-da-vinci/
 
-**A Dandy Night**\
-`We have photos from the biggest night in fashion.`\
-https://nytimes.com/2025/05/06/briefing/met-gala-fashion.html
+**Merz failed to win a majority in parliament. What happens now?**\
+`By Christopher F. Schuetze`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-failed-to-win-a-majority-in-parliament-what-happens-now
 
-**King Charles III Unveils Coronation Portrait**\
-`A painting of the monarch in the regalia of the crowning ceremony is a royal tradition. An official painting of Queen Camilla was also revealed.`\
-https://nytimes.com/2025/05/06/arts/design/king-charles-iii-coronation-portrait-queen-camilla.html
+**Bryson Stott quieted the debate over Phillies' leadoff hitter — 'for the time being'**\
+`"It's always been Trea or Kyle, Kyle or Trea," Stott said, "and I was just always sitting in the back, like, 'I think I can do it too.’" `\
+https://nytimes.com/athletic/6335394/2025/05/06/bryson-stott-phillies-leadoff-hitter-2/
 
-**Celtics expected some bumps in their path to a repeat. The Knicks just provided one**\
-`Boston had an off night from 3 and blew a second-half lead in the Game 1 overtime loss. Joe Mazzulla was prepared for some adversity.`\
-https://nytimes.com/athletic/6336557/2025/05/06/celtics-playoffs-knicks-game-1-mazzulla/
+**Despite switching positions, Twins outfielder Harrison Bader is excelling defensively**\
+`The Twins love what they've seen from Bader, who arguably has been the team's most valuable player.`\
+https://nytimes.com/athletic/6335845/2025/05/06/harrison-bader-outfield-defense-twins/
 
-**Villa vs Spurs given new date after discussions with Premier League**\
-`The game had originally been scheduled for Sunday May 18, three days before the Europa League final.`\
-https://nytimes.com/athletic/6329930/2025/05/06/aston-villa-tottenham-fixture-new-date/
+**Mets mailbag: Roster role for Luisangel Acuña, the next core of pitching prospects**\
+`Even though the Mets sit atop the standings in the National League East, their fans have questions about some pressing issues.`\
+https://nytimes.com/athletic/6336179/2025/05/06/mets-luisangel-acuna-prospects/
 
-**A scary night in net: Where does Stolarz's injury leave the Leafs in goal?**\
-`Stolarz's short-term availability is very much in doubt. Joseph Woll helped the Leafs pull off the win, but is he ready to steal a series?`\
-https://nytimes.com/athletic/6336400/2025/05/06/maple-leafs-stolarz-injury-woll-nhl-playoffs/
+**Dollars and sense: 'What's going on at The Score' sparks talk in Chicago sports media**\
+`Change isn’t always bad. It’s beneficial to get new voices in the mix. But is the station better today than it was a year ago? Probably not.`\
+https://nytimes.com/athletic/6335589/2025/05/06/the-score-chicago-sports-media-column/
 
-**The school that had to 'grow our own fans' to become a college sports contender**\
-`Forever a college sports have-not, the Iowa State athletic department’s financial and competitive forecast has never looked better.`\
-https://nytimes.com/athletic/6328969/2025/05/06/iowa-state-football-basketball-finances/
+**Is Aaron Judge the greatest right-handed hitter of modern times? He has a case**\
+`We know he’s great, but do we understand how great? Judge is staking his claim to being the greatest right-handed hitter of modern times.`\
+https://nytimes.com/athletic/6335843/2025/05/06/aaron-judge-greatest-right-handed-hitter-yankees/
 
-**Giving Guardians superlatives to Daniel Schneemann, José Ramírez, Cade Smith and others**\
-`Let’s hand out some superlatives to commemorate a solid start for Stephen Vogt’s club.`\
-https://nytimes.com/athletic/6335289/2025/05/06/giving-guardians-superlatives-to-daniel-schneemann-jose-ramirez-cade-smith-and-others/
+**Greatest revenge games in sports, from Mikko Rantanen’s Game 7 to Brett Favre to Luka Dončić**\
+`We assembled writers from a handful of sports, asking them to share the greatest revenge game they can remember.`\
+https://nytimes.com/athletic/6335307/2025/05/06/greatest-revenge-games-sports-nhl-nfl-nba-mlb/
 
-**A Climate Warning From the Fertile Crescent**\
-`In Iraq, the landscape that cradled civilization is enduring a water crisis with profound implications.`\
-https://nytimes.com/2025/05/06/podcasts/the-daily/climate-change-iraq-middle-east.html
+**How does Matthew Schaefer compare to recent No. 1 picks? Scouts, execs weigh in**\
+`Schaefer is placed here alongside the last nine No. 1 picks in a ranking from NHL scouts and executives.
+`\
+https://nytimes.com/athletic/6278462/2025/05/06/nhl-draft-2025-matthew-schaefer-no-1-picks/
 
