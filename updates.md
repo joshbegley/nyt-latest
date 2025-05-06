@@ -1,3 +1,11 @@
+**Upstate N.Y. school system’s support for trans athletes draws federal investigation.**\
+`The Saratoga Springs school board had pledged to safeguard students’ right to participate in activities consistent with their gender identity.`\
+https://nytimes.com/live/2025/05/06/us/trump-administration-updates/upstate-ny-school-systems-support-for-trans-athletes-draws-federal-investigation
+
+**Israel Bombs Yemen’s Main Airport Days After Houthi Airstrike**\
+`Israel attacked Sana’s international airport after the Houthis fired a missile that struck near Israel’s main airport.`\
+https://nytimes.com/video/world/middleeast/100000010152762/israel-bombs-yemens-main-airport-days-after-houthi-airstrike.html
+
 **Trump Surprises Canada With a New Message: We Love You**\
 `President Trump played nice when he came face-to-face with the new prime minister of Canada, the country he has spent months belittling.`\
 https://nytimes.com/2025/05/06/us/politics/trump-canada-love.html
