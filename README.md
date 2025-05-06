@@ -1,3 +1,15 @@
+**Who Is Friedrich Merz, Who Just Stumbled in His Bid to Become Germany’s Chancellor?**\
+`Supporters of the former corporate lawyer say he is well-prepared and thoughtful, but critics accuse him of failing to think more than one step ahead and breaking promises.`\
+https://nytimes.com/2025/05/06/world/europe/friedrich-merz-chanellor-who-is.html
+
+**A Dandy Night**\
+`We have photos from the biggest night in fashion.`\
+https://nytimes.com/2025/05/06/briefing/met-gala-fashion.html
+
+**King Charles III Unveils Coronation Portrait**\
+`A painting of the monarch in the regalia of the crowning ceremony is a royal tradition. An official painting of Queen Camilla was also revealed.`\
+https://nytimes.com/2025/05/06/arts/design/king-charles-iii-coronation-portrait-queen-camilla.html
+
 **Celtics expected some bumps in their path to a repeat. The Knicks just provided one**\
 `Boston had an off night from 3 and blew a second-half lead in the Game 1 overtime loss. Joe Mazzulla was prepared for some adversity.`\
 https://nytimes.com/athletic/6336557/2025/05/06/celtics-playoffs-knicks-game-1-mazzulla/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/06/podcasts/the-daily/climate-change-iraq-middle-eas
 **Tigers mailbag Part 2: Could Tigers get aggressive at trade deadline?**\
 `Who could the Tigers target at the trade deadline? Plus what should we make of Casey Mize and Spencer Torkelson's bounceback seasons?`\
 https://nytimes.com/athletic/6335134/2025/05/06/tigers-mailbag-part-2-aggressive-trade-deadline/
-
-**Israel’s ‘Intensive’ Escalation, and Air Traffic Control Crisis**\
-`Plus, the Met Gala’s unforgettable looks.`\
-https://nytimes.com/2025/05/06/podcasts/the-headlines/israel-escalation-gaza-air-traffic-control-crisis.html
-
-**How to Score Wordle Golf**\
-`Learn a new way to play Wordle`\
-https://nytimes.com/interactive/2025/05/06/crosswords/06wordle-golf-how-to-score.html
-
-**Wordle Golf Scorecard**\
-`Score your Wordle Golf course and share with your friends!`\
-https://nytimes.com/interactive/2025/05/06/crosswords/06wordlegolf-scorecard.html
 
