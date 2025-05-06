@@ -1,3 +1,11 @@
+**Introducing:  NBA Highlights to The Athletic**\
+`The Athletic is launching NBA - videos that bring you closer to the game and our storytelling.`\
+https://nytimes.com/athletic/6334981/2025/05/06/introducing-nba-highlights-to-the-athletic/
+
+**Timber and Calafiori train ahead of PSG second leg**\
+`Timber picked up a knock in the first leg while Calafiori has not played since March due to a knee injury.`\
+https://nytimes.com/athletic/6334045/2025/05/06/arsenal-jurrien-timber-injury-psg/
+
 **PSG's Dembele 'available to play' Arsenal second leg - Luis Enrique**\
 `Dembele has scored 33 goals across all competitions this season, including in last week's first leg PSG triumph in London.`\
 https://nytimes.com/athletic/6336720/2025/05/06/ousmane-dembele-psg-team-news-arsenal-champions-league/

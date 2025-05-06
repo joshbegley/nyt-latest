@@ -1,3 +1,11 @@
+**Introducing:  NBA Highlights to The Athletic**\
+`The Athletic is launching NBA - videos that bring you closer to the game and our storytelling.`\
+https://nytimes.com/athletic/6334981/2025/05/06/introducing-nba-highlights-to-the-athletic/
+
+**Timber and Calafiori train ahead of PSG second leg**\
+`Timber picked up a knock in the first leg while Calafiori has not played since March due to a knee injury.`\
+https://nytimes.com/athletic/6334045/2025/05/06/arsenal-jurrien-timber-injury-psg/
+
 **PSG's Dembele 'available to play' Arsenal second leg - Luis Enrique**\
 `Dembele has scored 33 goals across all competitions this season, including in last week's first leg PSG triumph in London.`\
 https://nytimes.com/athletic/6336720/2025/05/06/ousmane-dembele-psg-team-news-arsenal-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6336815/2025/05/06/champions-league-semi-final-bett
 **Trump Administration Live Updates: Canada’s New Leader Will Make High-Stakes Visit to White House**\
 ``\
 https://nytimes.com/live/2025/05/06/us/trump-live-updates
-
-**Rangers report card: Grading every defenseman and goalie, from Adam Fox to Jonathan Quick**\
-`Please note: Grades are based on expectations for a player, so a "B" for Igor Shesterkin doesn't look the same as a "B" for Zac Jones.`\
-https://nytimes.com/athletic/6335235/2025/05/06/rangers-defense-goalies-grades-2024-25/
-
-**Blues offseason checklist: Holloway, Broberg contracts, Kyrou's no-trade clause, D decisions**\
-`The Blues' offseason checklist in 2025 revolves around deciding who to keep, who to let go and who to re-sign.`\
-https://nytimes.com/athletic/6332814/2025/05/06/blues-offseason-checklist-holloway-broberg-kyrou-defense/
 

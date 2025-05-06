@@ -1,3 +1,7 @@
+**Merz’s setback complicates Germany’s attempt to lead in Europe.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merzs-setback-complicates-germanys-attempt-to-lead-in-europe
+
 **Introducing:  NBA Highlights to The Athletic**\
 `The Athletic is launching NBA - videos that bring you closer to the game and our storytelling.`\
 https://nytimes.com/athletic/6334981/2025/05/06/introducing-nba-highlights-to-the-athletic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/realestate/barbara-corcoran-manhattan-penthouse-f
 **PSG vs Arsenal semi-final odds: Gunners the next lamb to the slaughter?**\
 `Sam Tighe has a look at the best bets around Arsenal’s Champions League semi-final second-leg clash with Paris Saint-Germain. `\
 https://nytimes.com/athletic/6336815/2025/05/06/champions-league-semi-final-betting-are-arsenal-psgs-next-premier-league-victim/
-
-**Trump Administration Live Updates: Canada’s New Leader Will Make High-Stakes Visit to White House**\
-``\
-https://nytimes.com/live/2025/05/06/us/trump-live-updates
 
