@@ -1,3 +1,15 @@
+**A Mother’s Fierce, Extravagant Love (Encore)**\
+`How a cardboard box became a time machine that kept a mother and daughter connected.`\
+https://nytimes.com/2025/05/06/podcasts/a-mothers-fierce-extravagant-love-encore.html
+
+**Cincinnati Mayoral Primary Election Results**\
+`Get live results and maps from the Cincinnati and Ohio elections.`\
+https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
+
+**Ohio Election Results: Local Public Infrastructure Bonds Issue**\
+`Get live results and maps from the May 6 Ohio election.`\
+https://nytimes.com/interactive/2025/05/06/us/elections/results-ohio-issue-2.html
+
 **Germany Gets a New Chancellor, in Unexpectedly Dramatic Fashion**\
 `Friedrich Merz secured the top job but only after losing on his first attempt, a surprise that potentially weakens his government at a fraught time for Germany and Europe`\
 https://nytimes.com/2025/05/06/world/europe/germany-merz-chancellor.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010152679/carney-tells-trump-canada-
 **Wild insider: Emptying the notebook after 3 days of exit-meeting availability**\
 `What we learned about Fleury's future, confidence in the medical staff, insurance for Wallstedt, Jiricek's spot in the lineup and more.`\
 https://nytimes.com/athletic/6337770/2025/05/06/wild-insider-fleury-medical-staff-mclean/
-
-**Fencing Is the Latest Sport Caught in the Transgender Athlete Debate**\
-`A fencer’s refusal to compete against a transgender opponent in a women’s bout at a Maryland meet has put the issue in front of Congress.`\
-https://nytimes.com/2025/05/06/us/trump-transgender-athletes-fencing-olympics.html
-
-**Alpine F1's Oliver Oakes suddenly resigns as team principal**\
-`Flavio Briatore, the team’s executive advisor, will assume Oakes’ responsibilities `\
-https://nytimes.com/athletic/6337867/2025/05/06/oliver-oakes-resigns-alpine-f1-team-principal/
-
-**Seahawks post-draft mailbag: Submit your questions to Michael-Shawn Dugar**\
-`The NFL Draft is behind us, and the Seahawks have a new rookie class. What's on your mind?`\
-https://nytimes.com/athletic/6337851/2025/05/06/seahawks-nfl-draft-2025-mailbag-dugar/
 

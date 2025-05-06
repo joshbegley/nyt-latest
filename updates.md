@@ -1,3 +1,15 @@
+**A Mother’s Fierce, Extravagant Love (Encore)**\
+`How a cardboard box became a time machine that kept a mother and daughter connected.`\
+https://nytimes.com/2025/05/06/podcasts/a-mothers-fierce-extravagant-love-encore.html
+
+**Cincinnati Mayoral Primary Election Results**\
+`Get live results and maps from the Cincinnati and Ohio elections.`\
+https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
+
+**Ohio Election Results: Local Public Infrastructure Bonds Issue**\
+`Get live results and maps from the May 6 Ohio election.`\
+https://nytimes.com/interactive/2025/05/06/us/elections/results-ohio-issue-2.html
+
 **Germany Gets a New Chancellor, in Unexpectedly Dramatic Fashion**\
 `Friedrich Merz secured the top job but only after losing on his first attempt, a surprise that potentially weakens his government at a fraught time for Germany and Europe`\
 https://nytimes.com/2025/05/06/world/europe/germany-merz-chancellor.html
