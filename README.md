@@ -1,3 +1,19 @@
+**Was First Amendment Violated in Student Arrests? Trump Lawyer Won’t Say.**\
+`The Trump administration is focusing on logistical issues, not constitutional ones, in its efforts to keep several international students in detention. The tactic has effectively slowed some high-profile cases.`\
+https://nytimes.com/2025/05/06/us/student-protesters-immigration-detention-first-amendment.html
+
+**Man Who Stabbed Baby Seal on Oregon Beach Is Sought**\
+`The authorities said that the attack, which the seal survived, occurred on a cold evening in a cove along the Pacific Coast.`\
+https://nytimes.com/2025/05/06/us/elephant-seal-pup-stabbed-oregon-beach.html
+
+**India Launched Attacks Against Pakistan**\
+`Also, the Supreme Court allowed Trump to enforce a transgender troop ban. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/05/06/briefing/india-pakistan-strikes-supreme-court-ruling.html
+
+**Unique Offer on Remote Scottish Island Draws ‘Dreamers and Schemers’**\
+`A “serial business creator” and owner of a fish smokery on Colonsay, population 125, says he’s willing to give away his business, free.`\
+https://nytimes.com/2025/05/06/world/europe/scotland-island-colonsay-job-offer.html
+
 **Inter 4 Barca 3 (agg: 7-6): Frattesi settles sensational tie, sends Inter to Champions League final**\
 `Inter ended Barca's quest for a treble with a brilliant win in extra time against Flick's side`\
 https://nytimes.com/athletic/6336848/2025/05/06/inter-4-barcelona-3-champions-league-semi-final/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/06/style/ebay-met-gala.html
 **Severe Storms Threaten Parts of the South**\
 `Heavy rain, storms and flash flooding are expected across Texas, Louisiana and Mississippi this week.`\
 https://nytimes.com/video/us/100000010152758/texas-storms-hail.html
-
-**Shackles finally off, Wild GM Bill Guerin knows it's time to deliver a contender**\
-`Guerin has new flexibility and sounds ready to use it: "I don't want to sit on my hands at all. And I'm kind of tired of doing that."`\
-https://nytimes.com/athletic/6337804/2025/05/06/wild-bill-guerin-critical-offseason/
-
-**Wednesday Briefing: The Conclave Begins**\
-`Plus, the world’s must-see gardens.`\
-https://nytimes.com/2025/05/06/briefing/pope-conclave-india-pakistan-strikes-carney-trump.html
-
-**E.P.A. Plans to Shut Down the Energy Star Program**\
-`Employees were told that the popular energy efficiency certification program would be “de-prioritized and eliminated,” according to documents and a recording.`\
-https://nytimes.com/2025/05/06/climate/epa-energy-star-eliminated.html
-
-**Who’s the Greatest Grifter of Them All?**\
-`Trump is raising a lot of money and a number of Constitutional questions.`\
-https://nytimes.com/2025/05/06/opinion/trump-family-crypto.html
 
