@@ -1,3 +1,7 @@
+**India and U.K. Strike Trade Deal Amid Global Tariff Upheaval**\
+`The two countries signed a deal three years after negotiations began to strengthen alliances in what the British prime minister called a “new era” of trade.`\
+https://nytimes.com/2025/05/06/business/uk-india-trade-deal-tariffs.html
+
 **Cristiano Ronaldo's son, 14, called up to Portugal youth team for first time**\
 `The 14-year-old is part of the youth setup of Al Nassr, the Saudi Pro League side his father plays for.`\
 https://nytimes.com/athletic/6336904/2025/05/06/cristiano-ronaldo-son-14-portugal-youth-team/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/world/europe/what-happened-when-trump-altered-the
 **Trump Is Fighting Antisemitism the Wrong Way, a Jewish Group Argues**\
 `The American Jewish Committee joined university groups in urging the White House to combat antisemitism with a careful, lawful process, not hasty, ill-advised actions.`\
 https://nytimes.com/2025/05/06/us/trump-antisemitism-american-jewish-committee-universities.html
-
-**Looking for Magical Landmarks in ‘Harry Potter’ Glasses**\
-`An outfit of scarf, skirt and round wire-frame glasses brought to mind the look of Hogwarts students.`\
-https://nytimes.com/2025/05/06/style/street-style-look-hogwarts-fashion.html
 
