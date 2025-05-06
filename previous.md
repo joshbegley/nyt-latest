@@ -1,3 +1,7 @@
+**A New ICE Detention Center Draws a Democratic Mayor’s Ire**\
+`Mayor Ras Baraka of Newark staged a predawn demonstration outside a detention center. He argues that the facility’s owner does not have valid permits to operate.`\
+https://nytimes.com/2025/05/06/nyregion/newark-migrants-ras-baraka-ice.html
+
 **Caitlin Clark joins LeBron James for ESPN preseason game viewership records**\
 `The WNBA had its first nationally televised exhibition game Sunday between the Indiana Fever and Brazil’s national team.`\
 https://nytimes.com/athletic/6337183/2025/05/06/caitlin-clark-fever-preseason-game-viewership-lebron-james/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/jennifer-tilly-real-housewives-bever
 **gws-majorca-hiking-cycling-running**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/majorca-hiking-cycling-running
-
-**gws-cheap-food-items-grocery-shopping-recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dining-cheap-food-items-grocery-shopping-recipes
 
