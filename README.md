@@ -1,3 +1,7 @@
+**What Happened When Trump Altered the Deal With Law Firms and Universities**\
+`Does the prisoner’s dilemma still apply when the rules break down?`\
+https://nytimes.com/2025/05/06/world/europe/what-happened-when-trump-altered-the-deal-with-law-firms-and-universities.html
+
 **Trump Is Fighting Antisemitism the Wrong Way, a Jewish Group Argues**\
 `The American Jewish Committee joined university groups to condemn antisemitism, but urged the White House to follow the law carefully as it seeks to combat bias on college campuses.`\
 https://nytimes.com/2025/05/06/us/trump-antisemitism-american-jewish-committee-universities.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6335337/2025/05/06/2025-nhl-playoff-preview-winnipe
 `By Melissa Eddy`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/what-the-setback-for-merz-means-for-the-german-economy
 
-**Merz’s setback complicates Germany’s attempt to lead in Europe.**\
+**Merz’s stumble complicates Germany’s attempt to lead in Europe.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merzs-setback-complicates-germanys-attempt-to-lead-in-europe
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336720/2025/05/06/ousmane-dembele-psg-team-news-ar
 **Merz may have set himself up for failure in the parliamentary vote.**\
 `By Jim Tankersley and Christopher F. Schuetze`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-may-have-set-himself-up-for-failure-in-the-parliamentary-vote
-
-**The Pulse: Every second-round playoff series, ranked**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6334950/2025/05/06/knicks-celtics-maple-leafs-panthers-the-pulse/
 
