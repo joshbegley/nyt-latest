@@ -1,3 +1,11 @@
+**Barbie Maker Mattel Plans to Raise Prices Because of Trump’s Tariffs**\
+`Mattel, the U.S. toy company, said it would increase prices of some U.S. toys, citing levies on Chinese imports.`\
+https://nytimes.com/2025/05/06/business/mattel-barbie-trump-tariffs-prices.html
+
+**The South Faces Severe Storms and Flash Floods**\
+`Forecasters warn a slow-moving storm system is expected to bring heavy rain, thunderstorms and flash flooding from Texas to Mississippi.`\
+https://nytimes.com/2025/05/06/weather/texas-mississippi-storms-flooding.html
+
 **André 3000’s Met Gala Piano Was More Than a Fashion Statement**\
 `The rapper and musician’s miniature Steinway teased his new album, “7 piano sketches,” which he released on Monday.`\
 https://nytimes.com/2025/05/06/style/andre-3000-met-gala-piano-album.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/how-to-make-salsa
 **36 Hours in Kathmandu**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-kathmandu
-
-**VacationStars-of-Womens-Sports**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/travel-women-sports-events
-
-**Boom-in-Antarctic-Cruises**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/travel-boom-in-antarctic-cruises
 
