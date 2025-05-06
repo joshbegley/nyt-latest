@@ -1,3 +1,7 @@
+**Merz’s setback complicates Germany’s attempt to lead in Europe.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merzs-setback-complicates-germanys-attempt-to-lead-in-europe
+
 **Introducing:  NBA Highlights to The Athletic**\
 `The Athletic is launching NBA - videos that bring you closer to the game and our storytelling.`\
 https://nytimes.com/athletic/6334981/2025/05/06/introducing-nba-highlights-to-the-athletic/
