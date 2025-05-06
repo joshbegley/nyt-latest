@@ -1,3 +1,11 @@
+**Murillo showed Forest how to seize the moment**\
+`Forest's run-in will be settled by fine margins and their Brazilian defender demonstrated how to handle the pressure on Monday`\
+https://nytimes.com/athletic/6335855/2025/05/06/nottingham-forest-murillo-moment/
+
+**Buckley: The Knicks had a process of their own in Game 1 — dare the Celtics to shoot**\
+`If you’ve never seen an NBA team miss 45 3-pointers in a playoff game, that’s because until Monday night it had never happened.`\
+https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playoffs-column/
+
 **The New York Times in Print for Tuesday, May 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6336355/2025/05/06/braves-aj-smith-shawver-no-hitte
 **Chelsea beat the champions but are still 19 points behind. Can they challenge next season?**\
 `Chelsea are the closest they have been to the champions since they last won the title. Can they bridge that gap in the coming seasons?`\
 https://nytimes.com/athletic/6334318/2025/05/06/chelsea-champions-premier-league/
-
-**Leeds United's 33 year-wait to experience the unbridled joy of a title parade is over**\
-`The Athletic was there as an estimated 150,000 Leeds fans came out on Monday to celebrate their side's Championship title win `\
-https://nytimes.com/athletic/6335290/2025/05/06/leeds-united-parade-championship-title/
-
-**Alexander-Arnold, the Liverpool legacy question and why so many fans are angry**\
-`The local lad made good lived the dream on Merseyside but that was not enough to keep them there for life`\
-https://nytimes.com/athletic/6035938/2025/05/06/trent-alexander-arnold-exit-explained/
 
