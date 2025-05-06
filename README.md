@@ -1,3 +1,15 @@
+**Alcatraz as a Prison? Tourists Say Trump Is on His Own Island.**\
+`At the beloved attraction in San Francisco Bay, visitors could scarcely believe President Trump had suggested turning Alcatraz back into a penitentiary.`\
+https://nytimes.com/2025/05/05/us/alcatraz-trump-tourists.html
+
+**NHL Mock Draft 2025: Matthew Schaefer to Islanders as we pick for every lottery team**\
+`Following the lottery, a collection of our NHL reporters combined for a mock draft of the first 16 picks.`\
+https://nytimes.com/athletic/6335303/2025/05/05/nhl-mock-draft-2025-schaefer-islanders/
+
+**They Need a Push to Get Started**\
+`The air is sweet in Enrique Henestroza Anguiano’s crossword.`\
+https://nytimes.com/2025/05/05/crosswords/daily-puzzle-2025-05-06.html
+
 **No Pants? No Problem.**\
 `Stars at the Met Gala, including Sabrina Carpenter, took an opportunity to show some leg. A lot of leg, actually.`\
 https://nytimes.com/2025/05/05/style/met-gala-sabrina-carpenter-no-pants.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6335998/2025/05/05/gregg-popovich-head-coach-mitch-
 **Kamala Harris’s Makes a Surprise Met Gala Appearance**\
 `The former vice president skipped the carpet, but slipped into the gala in a black silk gown in one of her first major public appearances since the 2024 election.`\
 https://nytimes.com/2025/05/05/style/kamala-harris-met-gala-2025.html
-
-**Ravens' release of Justin Tucker brings record-breaking era to embarrassing, inevitable end**\
-`Tucker's 13-season run with the Ravens is over. His career could be in jeopardy, too.`\
-https://nytimes.com/athletic/6335837/2025/05/05/justin-tucker-ravens-released/
-
-**No GM but plenty of excitement for the Islanders after winning the No. 1 pick**\
-`With the next phase of the franchise already in motion, the NHL Draft Lottery results shifted a lot of eyes around the NHL to the Islanders.`\
-https://nytimes.com/athletic/6335874/2025/05/05/islanders-nhl-draft-lottery-win/
-
-**Kings coach Jim Hiller retains 'status quo' attitude amid uncertainty after Rob Blake's departure**\
-`How will the Kings' next general manager view Hiller's future?`\
-https://nytimes.com/athletic/6335994/2025/05/05/kings-coach-jim-hiller-job-blake/
 
