@@ -1,3 +1,7 @@
+**He Produced ‘Rent’ and ‘Hamilton.’ Now He’s Telling His Own Story.**\
+`In “Theater Kid,” Jeffrey Seller reflects on his Broadway career.`\
+https://nytimes.com/2025/05/06/theater/jeffrey-seller-theater-kid-hamilton-memoir.html
+
 **Melissa Toogood Named New Director of Juilliard’s Dance Division**\
 `A member of Merce Cunningham’s final company, Toogood brings to the job years of experience as a dancer and educator.`\
 https://nytimes.com/2025/05/06/arts/dance/melissa-toogood-juilliard-dance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry
 **The Bounce: With Knicks, Nuggets Game 1 comebacks, is it time for NBA favorites to worry?**\
 `It was looking terrible for the Knicks and Nuggets before for their Game 1 comebacks. Could that signal a second-round trend?`\
 https://nytimes.com/athletic/6336916/2025/05/06/knicks-celtics-nuggets-thunder-nba-playoffs-the-bounce/
-
-**The Windup: This Judge stat blew my mind**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6337077/2025/05/06/aaron-judge-stats-the-windup/
 
