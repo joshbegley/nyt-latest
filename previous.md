@@ -1,3 +1,19 @@
+**Why Stars Were Wearing ‘Custom EBay’ on Fashion’s Biggest Night**\
+`Amid all the Louis Vuitton and Chanel, the online auction house — which sponsored the party — got several high-profile shout-outs on the blue carpet.`\
+https://nytimes.com/2025/05/06/style/ebay-met-gala.html
+
+**Severe Storms Threaten Parts of the South**\
+`Heavy rain, storms and flash flooding are expected across Texas, Louisiana and Mississippi this week.`\
+https://nytimes.com/video/us/100000010152758/texas-storms-hail.html
+
+**Shackles finally off, Wild GM Bill Guerin knows it's time to deliver a contender**\
+`Guerin has new flexibility and sounds ready to use it: "I don’t want to sit on my hands at all. And I’m kind of tired of doing that."`\
+https://nytimes.com/athletic/6337804/2025/05/06/wild-bill-guerin-critical-offseason/
+
+**Wednesday Briefing: The Conclave Begins**\
+`Plus, the world’s must-see gardens.`\
+https://nytimes.com/2025/05/06/briefing/pope-conclave-india-pakistan-strikes-carney-trump.html
+
 **E.P.A. Plans to Shut Down the Energy Star Program**\
 `Employees were told that the popular energy efficiency certification program would be “de-prioritized and eliminated,” according to documents and a recording.`\
 https://nytimes.com/2025/05/06/climate/epa-energy-star-eliminated.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/06/us/united-airlines-planes-clip-wings-sfo.html
 **Trump’s Kennedy Center Would Get $257 Million in House Republican Plan**\
 `A House committee proposed a huge increase in federal funding to repair and restore the center, which President Trump took over in February. Democrats have questions.`\
 https://nytimes.com/2025/05/06/arts/music/kennedy-center-budget-congress-trump.html
-
-**Blackstone President Donates $125 Million to Israeli Medical School**\
-`The gift is the largest in Tel Aviv University’s history, and is expected to help relieve Israel’s shortage of doctors.`\
-https://nytimes.com/2025/05/06/business/blackstone-president-donates-125-million-to-israeli-medical-school.html
-
-**Philip Sunshine, 94, Dies; Pioneer in Treatment of Premature Babies**\
-`A founder of neonatology, he helped revolutionize the care of preterm and critically ill newborns. “We were able to keep babies alive that would not have survived,” he said.`\
-https://nytimes.com/2025/05/06/science/philip-sunshine-dead.html
-
-**Dodgers place slugger Teoscar Hernández on injured list with groin strain**\
-`Hernández is hitting .315 with nine home runs and a MLB-best 34 RBIs this season.`\
-https://nytimes.com/athletic/6337888/2025/05/06/dodgers-teoscar-hernandez-injured-list/
-
-**V.A. Secretary Says Slashing 80,000 Jobs Is a Goal, Not a Firm Plan**\
-`Veterans Affairs Secretary Doug Collins said the number of V.A. employees to be cut could change, and accused Democrats of trying to frighten veterans.`\
-https://nytimes.com/2025/05/06/us/politics/doug-collins-veterans-affairs-job-cuts.html
 
