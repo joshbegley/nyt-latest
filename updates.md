@@ -1,3 +1,15 @@
+**Department of Education Eliminates Grant for PBS Children’s Shows**\
+`The termination of the federal grant program, called Ready To Learn, resulted in a loss of $23 million that would have gone to educational programs.`\
+https://nytimes.com/2025/05/06/us/politics/doe-kills-grant-pbs-childrens-shows.html
+
+**Sue Bird to become managing director for the USA women’s national team: Sources**\
+`Bird's hiring is a departure from a longstanding structure of using a committee to select players and coaches for national team rosters.`\
+https://nytimes.com/athletic/6337635/2025/05/06/usa-womens-basketball-sue-bird-director/
+
+**Emergency Crew Responds After Plane Collision in San Francisco**\
+`Two United Airlines planes collided while taxiing on the tarmac at San Francisco International Airport Monday night. No injuries were reported.`\
+https://nytimes.com/video/us/100000010152770/plane-collision-san-francisco.html
+
 **Supreme Court Lets Trump Enforce Transgender Troop Ban as Cases Proceed**\
 `Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
 https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
