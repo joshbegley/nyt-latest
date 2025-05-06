@@ -1,6 +1,18 @@
+**Seven Weeks and Counting: The N.Y.C. Mayoral Primary Is Heating Up**\
+`We’re in the homestretch of a critical race to choose the Democratic nominee for mayor. Primary Day is June 24.`\
+https://nytimes.com/2025/05/06/nyregion/nyc-mayor-race.html
+
+**Kentucky Derby winner Sovereignty to skip Preakness, end Triple Crown hopes**\
+`Sovereignty will instead prepare for the Belmont Stakes in early June.`\
+https://nytimes.com/athletic/6337682/2025/05/06/sovereignty-preakness-2025-triple-crown-horse/
+
+**Map: 3.0-Magnitude Earthquake Strikes Virginia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/06/us/quake-tracker-virginia.html
+
 **Sean Combs’s Trial: What to Know**\
 `The music mogul known as Puffy and Diddy is facing federal charges of racketeering conspiracy and sex trafficking. He has pleaded not guilty.`\
-https://nytimes.com/article/diddy-sean-combs-sex-trafficking-trial-explained.html
+https://nytimes.com/article/diddy-sean-combs-trial-sex-trafficking.html
 
 **Supreme Court Revives Trump’s Ban on Transgender Troops**\
 `Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/06/business/trump-law-firms-pro-bono-immigration.htm
 **Trade Talks With China Have Not Started, Bessent Says**\
 `The Treasury secretary said that trade deals with other U.S. trading partners could be announced as soon as this week.`\
 https://nytimes.com/2025/05/06/us/politics/trade-talks-with-china-have-not-started-bessent-says.html
-
-**Republican Senator Says He’ll Vote Against Pick for U.S. Attorney**\
-`The nomination of the prosecutor, Ed Martin, has been teetering amid revelations that he once compared former President Biden to Adolf Hitler.`\
-https://nytimes.com/2025/05/06/us/politics/thom-tillis-ed-martin.html
-
-**Your Most Loved Looks From the 2025 Met Gala**\
-`We asked you to pick your favorite looks. Here are the results.`\
-https://nytimes.com/2025/05/06/style/met-gala-looks.html
-
-**Until Saturday: Saban and Trump outta nowhere**\
-`Until Saturday is The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-ncaa-nil-until-saturday/
 

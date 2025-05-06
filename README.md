@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2025/05/06/us/quake-tracker-virginia.html
 `The music mogul known as Puffy and Diddy is facing federal charges of racketeering conspiracy and sex trafficking. He has pleaded not guilty.`\
 https://nytimes.com/article/diddy-sean-combs-trial-sex-trafficking.html
 
-**Supreme Court Revives Trump’s Ban on Transgender Troops**\
+**Supreme Court Lets Trump Enforce Transgender Troop Ban as Cases Proceed**\
 `Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
 https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
 
