@@ -1,3 +1,7 @@
+**Lifestyles of the Rich and Miserable**\
+`Should we pity the wealthy?`\
+https://nytimes.com/2025/05/06/opinion/rich-friends-neighbors-hamm.html
+
 **Explosions Reported in Pakistani Kashmir After India’s Vow of Retaliation**\
 `The apparent strikes would be an intensification of a conflict between India and Pakistan, both of which are nuclear powers.`\
 https://nytimes.com/2025/05/06/world/asia/india-pakistan-attacks.html

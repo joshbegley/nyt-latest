@@ -1,3 +1,7 @@
+**Lifestyles of the Rich and Miserable**\
+`Should we pity the wealthy?`\
+https://nytimes.com/2025/05/06/opinion/rich-friends-neighbors-hamm.html
+
 **Explosions Reported in Pakistani Kashmir After India’s Vow of Retaliation**\
 `The apparent strikes would be an intensification of a conflict between India and Pakistan, both of which are nuclear powers.`\
 https://nytimes.com/2025/05/06/world/asia/india-pakistan-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337597/2025/05/06/maple-leafs-panthers-bennett-sto
 **Reds place Tyler Callihan on IL, recall Jacob Hurtubise, Lyon Richardson**\
 `Cincinnati placed Tyler Callihan on the 10-day injured list following a left forearm fracture suffered in Atlanta on Monday.`\
 https://nytimes.com/athletic/6337705/2025/05/06/reds-tyler-callihan-il/
-
-**Barry Diller Opens Up About His Sexuality in Upcoming Memoir**\
-`The media mogul publicly addressed being gay for the first time, while also celebrating his marriage to Diane von Furstenberg. “Today he opened to the world,” she said.`\
-https://nytimes.com/2025/05/06/style/barry-diller-gay-diane-von-furstenberg.html
 
