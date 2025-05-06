@@ -1,3 +1,7 @@
+**'A great honor': Hyeseong Kim, Shohei Ohtani and the Dodgers rookie's moment in Miami**\
+`Kim has made a fast impression on the Dodgers, going 2-for-4 with an RBI in Monday's win. "He just adds that spark to our ballclub."`\
+https://nytimes.com/athletic/6336266/2025/05/05/dodgers-marlins-hyeseong-kim-shohei-ohtani/
+
 **Leafs hang on to win Game 1, but lose Anthony Stolarz: Takeaways**\
 `Maple Leafs stormed to an early lead in Game 1 and held on late, beating the reigning Stanley Cup champion Florida Panthers 5-4 in Game 1`\
 https://nytimes.com/athletic/6336104/2025/05/05/leafs-panthers-game-1-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335303/2025/05/05/nhl-mock-draft-2025-schaefer-isl
 **They Need a Push to Get Started**\
 `The air is sweet in Enrique Henestroza Anguiano’s crossword.`\
 https://nytimes.com/2025/05/05/crosswords/daily-puzzle-2025-05-06.html
-
-**No Pants? No Problem.**\
-`Stars at the Met Gala, including Sabrina Carpenter, took an opportunity to show some leg. A lot of leg, actually.`\
-https://nytimes.com/2025/05/05/style/met-gala-sabrina-carpenter-no-pants.html
 
