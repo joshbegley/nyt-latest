@@ -1,3 +1,7 @@
+**The Only Female Minister in Syria’s New Government Wants to ‘Get Things Done’**\
+`Hind Kabawat hopes her long experience as a conflict mediator can help Syria’s next generation. The challenges are immense.`\
+https://nytimes.com/2025/05/06/world/middleeast/syria-female-minister-government.html
+
 **Live Updates: Friedrich Merz Stumbles in Bid to Become Germany’s Next Leader**\
 `Mr. Merz failed to get enough votes from legislators in the German Parliament in a first round of voting. No modern German chancellor has ever failed to secure the job on a first ballot.`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/nyregion/toy-shop-west-side-kids-tariffs-christma
 **Have You Ever Been in Love?**\
 `A recent article explains what love can do to your brain. What can you do to improve your current or future relationships?`\
 https://nytimes.com/2025/05/06/learning/have-you-ever-been-in-love.html
-
-**Why Cowboys' potential committee approach again at running back could yield better results**\
-`Rookies Jaydon Blue and Phil Mafah bring different skill sets to the running back room as the Cowboys aim to improve their ground game.`\
-https://nytimes.com/athletic/6335495/2025/05/06/cowboys-running-backs-jaydon-blue-phil-mafah/
 
