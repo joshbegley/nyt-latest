@@ -1,3 +1,19 @@
+**No GM but plenty of excitement for the Islanders after winning the No. 1 pick**\
+`With the next phase of the franchise already in motion, the NHL Draft Lottery results shifted a lot of eyes around the NHL to the Islanders.`\
+https://nytimes.com/athletic/6335874/2025/05/05/islanders-nhl-draft-lottery-win/
+
+**Kings coach Jim Hiller retains 'status quo' attitude amid uncertainty after Rob Blake's departure**\
+`How will the Kings' next general manager view Hiller's future?`\
+https://nytimes.com/athletic/6335994/2025/05/05/kings-coach-jim-hiller-job-blake/
+
+**Sculpted Curls to Go With Structured Tailoring on the Met Gala Carpet**\
+`Hair styles seemingly inspired by the singer Josephine Baker were a theme of the night.`\
+https://nytimes.com/2025/05/05/style/sculpted-curls-met-gala-josephine-baker.html
+
+**Reds' Tyler Callihan departs game with broken forearm after crashing into wall**\
+`Callihan, whose path to the big leagues has included multiple injuries, hit the wall at full speed and seriously hurt his left arm.`\
+https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-collision/
+
 **Reds' Tyler Callihan departs game with arm injury after crashing into wall**\
 `Callihan, whose path to the big leagues has included multiple injuries, hit the wall at full speed and seriously hurt his left arm.`\
 https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-collision/
