@@ -1,40 +1,40 @@
-**Two riders die in crash involving 11 bikes at British motorcycle race**\
-`MotorSport Vision Racing, which organises the series, confirmed the deaths of Owen Jenner, aged 21, and Shane Richardson, 29.`\
-https://nytimes.com/athletic/6336569/2025/05/06/british-supersport-championship-deaths/
+**Friedrich Merz Fails in First Round of Voting to Become Germany’s Next Leader**\
+`The setback was likely temporary, but it was historic. No modern German chancellor has ever failed to secure the job on a first ballot in Parliament.`\
+https://nytimes.com/2025/05/06/world/europe/friedrich-merz-fails-vote-germany-chancellor.html
 
-**Met Gala Stars Honor Black Dandyism**\
-`Celebrities elegantly matched their looks to the theme “Superfine: Tailoring Black Style.”`\
-https://nytimes.com/video/style/100000010151642/met-gala-black-dandy.html
+**Canada’s Carney Is on a High-Stakes Visit to the White House**\
+`The Canadian prime minister will meet with President Trump, days after being elected on an anti-Trump platform as relations between the two allies are at a historic nadir.`\
+https://nytimes.com/2025/05/06/world/canada/trump-carney-white-house-meeting-us-canada.html
 
-**Late Night on Trump, the Constitution and Playing With Dolls**\
-`On “Meet the Press” and social media, President Trump gave the hosts a lot of material to choose from, even by his standards.`\
-https://nytimes.com/2025/05/06/arts/television/late-night-trump-constitution-dolls.html
+**See Who Your Neighborhood Is Funding in New York City’s Mayoral Race**\
+`Former Gov. Andrew Cuomo is the current front-runner but Zohran Mamdani has gotten more donations from individuals than any other candidate.`\
+https://nytimes.com/interactive/2025/05/06/nyregion/nyc-mayor-funding-neighborhood-donations.html
 
-**Cuomo Says New York Has a Mental Health Crisis. Here’s His Plan.**\
-`Former Gov. Andrew M. Cuomo will release a proposal to remove more mentally ill people from the streets to address fears about public safety.`\
-https://nytimes.com/2025/05/06/nyregion/cuomo-mental-health-mayor.html
+**Toy Shop Owner Fears Tariffs Will Mean a Bleak Christmas**\
+`Jennifer Bergman, who owns West Side Kids, said she would have to shut down if she doesn’t have toys to sell. Her mother opened the store more than 40 years ago.`\
+https://nytimes.com/2025/05/06/nyregion/toy-shop-west-side-kids-tariffs-christmas.html
 
-**Leaders of Wellness Company That Sold Orgasmic Experiences Go on Trial**\
-`OneTaste said it was dedicated to female pleasure. Federal prosecutors in Brooklyn say its founders abused customers and ran it for their own benefit.`\
-https://nytimes.com/2025/05/06/nyregion/onetaste-orgasm-trial-opening-statements.html
+**Have You Ever Been in Love?**\
+`A recent article explains what love can do to your brain. What can you do to improve your current or future relationships?`\
+https://nytimes.com/2025/05/06/learning/have-you-ever-been-in-love.html
 
-**Life Finds a Way in a Writer’s Science Reporting**\
-`Carl Zimmer has long been fascinated by existence, whether that may be on a distant planet or here on Earth.`\
-https://nytimes.com/2025/05/06/insider/life-finds-a-way-in-a-writers-science-reporting.html
+**Why Cowboys' potential committee approach again at running back could yield better results**\
+`Rookies Jaydon Blue and Phil Mafah bring different skill sets to the running back room as the Cowboys aim to improve their ground game.`\
+https://nytimes.com/athletic/6335495/2025/05/06/cowboys-running-backs-jaydon-blue-phil-mafah/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/06/crosswords/spelling-bee-forum.html
+**How a Red-District Democrat Is Navigating Trump**\
+`Representative Marie Gluesenkamp Perez discusses Trump’s tariffs and where Democrats have gone wrong.`\
+https://nytimes.com/2025/05/06/opinion/ezra-klein-podcast-marie-gluesenkamp-perez.html
 
-**How Aston Villa won the FA Youth Cup - and what it means for the future**\
-`Canny scouting, joined-up tactics and a steely mentality have turned Villa's under-18s into a formidable group`\
-https://nytimes.com/athletic/6334855/2025/05/06/aston-villa-fa-youth-cup-inside-story/
+**How a Red-District Democrat Is Navigating Trump**\
+`Representative Marie Gluesenkamp Perez discusses Trump’s tariffs and where Democrats have gone wrong.`\
+https://nytimes.com/video/opinion/100000010146628/how-a-red-district-democrat-is-navigating-trump.html
 
-**Tatis and Shildt ejected over ump's strike zone, then Padres exact revenge against Yankees**\
-`After the Padres endured two rain delays, their contact-fueled offense took advantage of the Yankees bullpen. `\
-https://nytimes.com/athletic/6336478/2025/05/06/padres-comeback-win-against-yankees/
+**‘The Only Person in the World Claiming to Be the Pope Right Now’**\
+`It’s Danny Kind, and he’s not even Catholic. But he’s in a college class that simulated the conclave of 1492. (There were costumes, bribes and Oreos.)`\
+https://nytimes.com/2025/05/06/us/conclave-pope-class.html
 
-**Word of the Day: pseudonym**\
-`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/06/learning/word-of-the-day-pseudonym.html
+**‘The Economy Is Holding a Collective Breath’: Three Economists on What the Fed Should Do Now**\
+`The economic forecasts are murky, the markets are gyrating, and maybe we’ll all get fewer dolls this year.`\
+https://nytimes.com/2025/05/06/opinion/trump-economy-federal-reserve.html
 
