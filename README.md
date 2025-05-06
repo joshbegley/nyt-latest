@@ -1,3 +1,7 @@
+**Kehlani Concert in Central Park Is Canceled After Pressure From Mayor**\
+`The singer, a vocal critic of Israel, had been scheduled to perform in June as part of Pride festivities. Two weeks ago, Cornell dropped a plan to have her headline a concert.`\
+https://nytimes.com/2025/05/05/nyregion/kehlani-concert-central-park-canceled.html
+
 **Ryan Coogler Wears a Cummerbund, Finally**\
 `At his first Met Gala, the director fulfills a lifelong fashion dream.`\
 https://nytimes.com/2025/05/05/style/ryan-coogler-2025-met-gala-look.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/style/sculpted-curls-met-gala-josephine-baker.htm
 **Reds' Tyler Callihan departs game with broken forearm after crashing into wall**\
 `Callihan, whose path to the big leagues has included multiple injuries, hit the wall at full speed and seriously hurt his left arm.`\
 https://nytimes.com/athletic/6335986/2025/05/05/reds-tyler-callihan-arm-wall-collision/
-
-**Janelle Monáe Is a ‘Time-Traveling Dandy’ at the Met Gala**\
-`The singer and actor has long made tailored suits and accessories core to her style identity.`\
-https://nytimes.com/2025/05/05/style/janelle-monae-met-gala-2025.html
 
