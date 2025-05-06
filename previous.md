@@ -1,3 +1,11 @@
+**The Stakes for OpenAI’s Plan B**\
+`The giant artificial intelligence start-up dialed back its corporate reorganization plan, but big questions remain about its future.`\
+https://nytimes.com/2025/05/06/business/dealbook/altman-openai-plan-b.html
+
+**'Intimidating player': Sam Bennett becomes the villain again after unpenalized Anthony Stolarz hit**\
+`Game 1 between Toronto and Florida ended with the Maple Leafs goalie in hospital for evaluation after a forearm to the head from Bennett.`\
+https://nytimes.com/athletic/6336490/2025/05/06/anthony-stolarz-sam-bennett-nhl-playoffs-leafs-panthers/
+
 **Foul play: Thunder's strategy of fouling up 3 contributes to Game 1 upset**\
 `Oklahoma City intentionally fouled the Nuggets twice in the final 12 seconds when just playing things out might have been a better idea.`\
 https://nytimes.com/athletic/6336622/2025/05/06/thunder-playoffs-game-1-nuggets-fouls-free-throws/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6336646/2025/05/06/delap-transfer-saga-yamal-da-vin
 **Merz failed to win a majority in parliament. What happens now?**\
 `By Christopher F. Schuetze`\
 https://nytimes.com/live/2025/05/06/world/merz-germany-chancellor-parliament/merz-failed-to-win-a-majority-in-parliament-what-happens-now
-
-**Bryson Stott quieted the debate over Phillies' leadoff hitter — 'for the time being'**\
-`"It's always been Trea or Kyle, Kyle or Trea," Stott said, "and I was just always sitting in the back, like, 'I think I can do it too.’" `\
-https://nytimes.com/athletic/6335394/2025/05/06/bryson-stott-phillies-leadoff-hitter-2/
-
-**Despite switching positions, Twins outfielder Harrison Bader is excelling defensively**\
-`The Twins love what they've seen from Bader, who arguably has been the team's most valuable player.`\
-https://nytimes.com/athletic/6335845/2025/05/06/harrison-bader-outfield-defense-twins/
 

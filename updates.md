@@ -1,3 +1,11 @@
+**The Stakes for OpenAI’s Plan B**\
+`The giant artificial intelligence start-up dialed back its corporate reorganization plan, but big questions remain about its future.`\
+https://nytimes.com/2025/05/06/business/dealbook/altman-openai-plan-b.html
+
+**'Intimidating player': Sam Bennett becomes the villain again after unpenalized Anthony Stolarz hit**\
+`Game 1 between Toronto and Florida ended with the Maple Leafs goalie in hospital for evaluation after a forearm to the head from Bennett.`\
+https://nytimes.com/athletic/6336490/2025/05/06/anthony-stolarz-sam-bennett-nhl-playoffs-leafs-panthers/
+
 **Foul play: Thunder's strategy of fouling up 3 contributes to Game 1 upset**\
 `Oklahoma City intentionally fouled the Nuggets twice in the final 12 seconds when just playing things out might have been a better idea.`\
 https://nytimes.com/athletic/6336622/2025/05/06/thunder-playoffs-game-1-nuggets-fouls-free-throws/
