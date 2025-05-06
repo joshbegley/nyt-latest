@@ -1,3 +1,11 @@
+**Notre Dame, Clemson announce 12-year football series**\
+`Notre Dame and Clemson will play every year from 2027-38 as part of the Irish's average of five ACC football games per year.`\
+https://nytimes.com/athletic/6337153/2025/05/06/notre-dame-clemson-acc-football-series/
+
+**How to Spend 3 Days in Nashville**\
+`Experience the music heritage, Southern hospitality and creative energy through the city’s evolving neighborhoods.`\
+https://nytimes.com/paidpost/nashville-visitors-bureau/how-to-spend-3-days-in-nashville.html
+
 **Adam Lowry, Rick Bowness and the special Game 7 moment that was years in the making**\
 `Adam Lowry owes much of his personal and hockey growth, as well as the C on his jersey, to Rick Bowness.`\
 https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry-bowness/

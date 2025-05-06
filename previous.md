@@ -1,3 +1,11 @@
+**Notre Dame, Clemson announce 12-year football series**\
+`Notre Dame and Clemson will play every year from 2027-38 as part of the Irish's average of five ACC football games per year.`\
+https://nytimes.com/athletic/6337153/2025/05/06/notre-dame-clemson-acc-football-series/
+
+**How to Spend 3 Days in Nashville**\
+`Experience the music heritage, Southern hospitality and creative energy through the city’s evolving neighborhoods.`\
+https://nytimes.com/paidpost/nashville-visitors-bureau/how-to-spend-3-days-in-nashville.html
+
 **Adam Lowry, Rick Bowness and the special Game 7 moment that was years in the making**\
 `Adam Lowry owes much of his personal and hockey growth, as well as the C on his jersey, to Rick Bowness.`\
 https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry-bowness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6323943/2025/05/06/manchester-city-women-world-seve
 **Sam Bennett won't face supplemental discipline for hit on Anthony Stolarz: Sources**\
 `Bennett clipped Stolarz in the head area in the second period of Game 1. He wasn’t penalized on the play.`\
 https://nytimes.com/athletic/6337023/2025/05/06/sam-bennett-anthony-stolarz-maple-leafs-panthers-nhl-playoffs/
-
-**Why 35 House Democrats Joined Republicans Against a Major Climate Policy**\
-`Some said they worried that California’s planned ban on gas-powered vehicles would raise the price of cars. Another cited “intense and misleading lobbying” by the oil industry.`\
-https://nytimes.com/2025/05/06/climate/democrats-california-ban-electric-vehicles.html
-
-**Spurs head coach Mitch Johnson ready to put 'sweat equity' into his team**\
-`"It was an easy decision and felt super confident in the human being that he is," says Spurs GM Brian Wright of taking interim tag off.`\
-https://nytimes.com/athletic/6336239/2025/05/06/spurs-head-coach-mitchell-johnson-gregg-popovich/
 
