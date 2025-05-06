@@ -1,3 +1,7 @@
+**Department of Education Eliminates Grant for PBS Children’s Shows**\
+`The termination of the federal grant program, called Ready To Learn, resulted in a loss of $23 million that would have gone to educational programs.`\
+https://nytimes.com/2025/05/06/us/politics/doe-kills-grant-pbs-childrens-shows.html
+
 **Sue Bird to become managing director for the USA women’s national team: Sources**\
 `Bird's hiring is a departure from a longstanding structure of using a committee to select players and coaches for national team rosters.`\
 https://nytimes.com/athletic/6337635/2025/05/06/usa-womens-basketball-sue-bird-director/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/columbia-layoffs-trump-research-cuts.
 **Going Back to Pavement’s Gold Sounds**\
 `Hear 11 songs to prep for the band’s bizarro documentary, “Pavements.”`\
 https://nytimes.com/2025/05/06/arts/music/pavement.html
-
-**Blues' Dylan Holloway expected to be ready for start of 2025-26 after surgery for undisclosed injury**\
-`The winger suffered the injury in the Blues' 5-4 overtime win over the Pittsburgh Penguins on April 3.`\
-https://nytimes.com/athletic/6268349/2025/05/06/blues-dylan-holloway-surgery/
 
