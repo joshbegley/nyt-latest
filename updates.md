@@ -1,3 +1,11 @@
+**Talking Black Excellence Over Cocktails Inside the Met Gala**\
+`While a starry group of co-chairs greeted guests, Spike Lee, Venus Williams, Zoe Saldaña and Rihanna discussed the significance of dandyism and the importance of the event.`\
+https://nytimes.com/2025/05/06/style/met-gala-cocktail-party.html
+
+**This Is the Moment of Moral Reckoning in Gaza**\
+`Our clinics have found clear evidence of starvation in one-third of the population. And now Israel wants to take over aid.`\
+https://nytimes.com/2025/05/06/opinion/gaza-israel-aid-starvation.html
+
 **India Orders Civil Defense Drills as Potential Clash With Pakistan Looms**\
 `The home ministry ordered officials to test air raid sirens and teach civilians to navigate blackouts and carry out evacuations.`\
 https://nytimes.com/2025/05/06/world/asia/india-pakistan-kashmir-drills.html

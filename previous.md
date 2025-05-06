@@ -1,3 +1,7 @@
+**Talking Black Excellence Over Cocktails Inside the Met Gala**\
+`While a starry group of co-chairs greeted guests, Spike Lee, Venus Williams, Zoe Saldaña and Rihanna discussed the significance of dandyism and the importance of the event.`\
+https://nytimes.com/2025/05/06/style/met-gala-cocktail-party.html
+
 **India Orders Civil Defense Drills as Potential Clash With Pakistan Looms**\
 `The home ministry ordered officials to test air raid sirens and teach civilians to navigate blackouts and carry out evacuations.`\
 https://nytimes.com/2025/05/06/world/asia/india-pakistan-kashmir-drills.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6336394/2025/05/06/celtics-knicks-game-1-nba-playof
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/06/todays-new-york-times
 
-**Palestinians Need Food, Not Words**\
+**This Is the Moment of Moral Reckoning in Gaza**\
 `Our clinics have found clear evidence of starvation in one-third of the population. And now Israel wants to take over aid.`\
 https://nytimes.com/2025/05/06/opinion/gaza-israel-aid-starvation.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336326/2025/05/06/sam-bennett-anthony-stolarz-hit-
 **The Knicks — still gritty, still tough, still clutch — deserve respect**\
 `After going down 20 points Monday, the expectation was that the Knicks were going to fold. Instead, they made the Celtics panic late.`\
 https://nytimes.com/athletic/6336298/2025/05/06/new-york-knicks-celtics-game-1-comeback/
-
-**AJ Smith-Shawver flirts with no-hitter in game 'you kind of dream about as a kid'**\
-`Manager Brian Snitker told the pitcher he would have let him go as high as 120 pitches if that's what it took to get the no-hitter.`\
-https://nytimes.com/athletic/6336355/2025/05/06/braves-aj-smith-shawver-no-hitter-bid/
 

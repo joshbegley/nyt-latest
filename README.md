@@ -1,3 +1,7 @@
+**After Game 1 win over Celtics, Knicks' blueprint with Bridges, Anunoby and Hart is clear**\
+`The Knicks hung on for an improbable Game 1 win after trailing the Celtics by 20 points with just over 17 minutes remaining in regulation.`\
+https://nytimes.com/athletic/6336395/2025/05/06/knicks-beat-celtics-game-1-eastern-conference-semifinals/
+
 **Talking Black Excellence Over Cocktails Inside the Met Gala**\
 `While a starry group of co-chairs greeted guests, Spike Lee, Venus Williams, Zoe Saldaña and Rihanna discussed the significance of dandyism and the importance of the event.`\
 https://nytimes.com/2025/05/06/style/met-gala-cocktail-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/briefing/gaza-met-gala-germany.html
 **Mirtle: Why Sam Bennett should be suspended for his hit on Anthony Stolarz**\
 `This play is going to be debated into the ground, but the reality is the outcome comes down to what this league wants to be.`\
 https://nytimes.com/athletic/6336326/2025/05/06/sam-bennett-anthony-stolarz-hit-nhl-playoffs/
-
-**The Knicks — still gritty, still tough, still clutch — deserve respect**\
-`After going down 20 points Monday, the expectation was that the Knicks were going to fold. Instead, they made the Celtics panic late.`\
-https://nytimes.com/athletic/6336298/2025/05/06/new-york-knicks-celtics-game-1-comeback/
 
