@@ -1,5 +1,29 @@
+**There Are Conflicts of Interest. And Then There’s Trump.**\
+`The president is raising a lot of money and a number of Constitutional questions.`\
+https://nytimes.com/2025/05/06/opinion/trump-family-crypto.html
+
+**Lulu Roman, Who Brought Big-Hearted Sass to ‘Hee Haw,’ Dies at 78**\
+`Obesity was a source of trauma for her, but also of her comedy, which she showcased, along with gospel singing, on the long-running down-home variety show.`\
+https://nytimes.com/2025/05/06/arts/television/lulu-roman-dead.html
+
+**Elon Musk Tried Keeping Issues at His Texas Mansion Private, Emails Show**\
+`The tech billionaire’s staff were concerned that correspondence about his home in West Lake Hills would become public after neighbors complained.`\
+https://nytimes.com/2025/05/06/technology/elon-musk-texas-neighbors.html
+
+**2 United Airlines Jets Clip Wings at San Francisco Airport**\
+`No one was injured in the incident, which occurred as the Boeing 777 jets were leaving the gate area early on Tuesday. The airline canceled both trans-Pacific flights.`\
+https://nytimes.com/2025/05/06/us/united-airlines-planes-clip-wings-sfo.html
+
+**Trump’s Kennedy Center Would Get $257 Million in House Republican Plan**\
+`A House committee proposed a huge increase in federal funding to repair and restore the center, which President Trump took over in February. Democrats have questions.`\
+https://nytimes.com/2025/05/06/arts/music/kennedy-center-budget-congress-trump.html
+
+**Blackstone President Donates $125 Million to Israeli Medical School**\
+`The gift is the largest in Tel Aviv University’s history, and is expected to help relieve Israel’s shortage of doctors.`\
+https://nytimes.com/2025/05/06/business/blackstone-president-donates-125-million-to-israeli-medical-school.html
+
 **Philip Sunshine, 94, Dies; Pioneer in Treatment of Premature Babies**\
-`As chief of Stanford’s neonatology department for more than 20 years, he helped revolutionize the care of preterm and critically ill newborns.`\
+`A founder of neonatology, he helped revolutionize the care of preterm and critically ill newborns. “We were able to keep babies alive that would not have survived,” he said.`\
 https://nytimes.com/2025/05/06/science/philip-sunshine-dead.html
 
 **Dodgers place slugger Teoscar Hernández on injured list with groin strain**\
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/doug-collins-veterans-affairs-job-cut
 **Watch: How competitive can the Valkyries be this WNBA season?**\
 `No Offseason discusses what success would look like for the Golden State Valkyries in their first season in the WNBA.`\
 https://nytimes.com/athletic/6337525/2025/05/06/no-offseason-golden-state-valkyries-2025-wnba-season/
-
-**Friedrich Merz Wins Second Vote to Become Germany’s Leader**\
-`Friedrich Merz had fallen six votes short of the chancellery in the first round of voting, a surprising and demoralizing setback.`\
-https://nytimes.com/video/world/europe/100000010153289/germany-chancellor-merz.html
-
-**Lifestyles of the Rich and Miserable**\
-`Should we pity the wealthy?`\
-https://nytimes.com/2025/05/06/opinion/rich-friends-neighbors-hamm.html
-
-**India Says It Struck ‘Terrorist Infrastructure’ in Pakistan**\
-`The strikes came after an attack by militants killed more than two dozen civilians in Indian-administered Kashmir and are an intensification of a conflict between two nuclear powers.`\
-https://nytimes.com/2025/05/06/world/asia/india-pakistan-attacks.html
-
-**Trump Says His Administration ‘Is Not Going to Pay’ for California High-Speed Rail**\
-`The government was already investigating how the state was spending a federal grant on the train project to connect Los Angeles and San Francisco.`\
-https://nytimes.com/2025/05/06/us/politics/california-high-speed-rail-federal-funding.html
-
-**‘We Don’t Have to Sign Deals’: Trump Backs Off Big Promises About Tariffs**\
-`After weeks of bragging about upcoming trade “deals” with foreign countries, President Trump says the United States doesn’t need to worry about them after all.`\
-https://nytimes.com/2025/05/06/us/politics/trump-deals-tariffs.html
-
-**A Mother’s Fierce, Extravagant Love (Encore)**\
-`How a cardboard box became a time machine that kept a mother and daughter connected.`\
-https://nytimes.com/2025/05/06/podcasts/a-mothers-fierce-extravagant-love-encore.html
 
