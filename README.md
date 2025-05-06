@@ -1,3 +1,11 @@
+**Trump’s Hope for Gaza Deal Fades as Israel Plans Major Escalation**\
+`Ahead of a trip to the Middle East, President Trump has disengaged from the conflict, analysts said, but must now decide how to respond.`\
+https://nytimes.com/2025/05/05/us/politics/trump-israel-gaza.html
+
+**2025 NHL Draft Lottery takeaways: Who goes No. 1 and 2, trades, the Rangers' pick and more**\
+`After lottery night, here's everything Scott Wheeler is thinking about and hearing about the 2025 draft.`\
+https://nytimes.com/athletic/6334945/2025/05/05/2025-nhl-draft-lottery-takeaways-islanders-rangers/
+
 **Judge Orders Elections Board to Certify Democrat’s Victory in Contested N.C. Race**\
 `The federal ruling on Monday was the most significant legal victory yet for Justice Allison Riggs, the Democratic incumbent in a State Supreme Court race.`\
 https://nytimes.com/2025/05/05/us/north-carolina-supreme-court-federal-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/05/us/politics/signal-clone-telemessage-waltz-securi
 **Hegseth Orders 20 Percent Cut in Four-Star Officers**\
 `Defense Secretary Pete Hegseth has already fired a raft of military leaders, many of them women and people of color, including the chairman of the Joint Chiefs of Staff.`\
 https://nytimes.com/2025/05/05/us/politics/pete-hegseth-military-cuts.html
-
-**NHL announces Calder Trophy finalists — Who joins Lane Hutson in the top 3?**\
-`Macklin Celebrini of the San Jose Sharks, Lane Hutson of the Montreal Canadiens and Dustin Wolf of the Calgary Flames were announced on Monday as the finalists for the Calder Trophy, awarded to the NHL’s rookie of the year, as voted by the Professional Hockey Writers Association.`\
-https://nytimes.com/athletic/6332783/2025/05/05/calder-trophy-finalists-2025/
-
-**Swiss Bank Pays $510 Million Fine for Helping Clients Evade Taxes**\
-`The fallen banking giant Credit Suisse, now a part of UBS, admitted to hiding billions of dollars from the I.R.S.`\
-https://nytimes.com/2025/05/05/business/credit-suisse-fine-irs.html
 
