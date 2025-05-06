@@ -1,3 +1,11 @@
+**Columbia Lays Off Nearly 180 People Because of Trump Research Cuts**\
+`“We understand this news will be hard,” Claire Shipman, Columbia University’s acting president, wrote in a note to the community.`\
+https://nytimes.com/2025/05/06/us/politics/columbia-layoffs-trump-research-cuts.html
+
+**Going Back to Pavement’s Gold Sounds**\
+`Hear 11 songs to prep for the band’s bizarro documentary, “Pavements.”`\
+https://nytimes.com/2025/05/06/arts/music/pavement.html
+
 **Blues' Dylan Holloway expected to be ready for start of 2025-26 after surgery for undisclosed injury**\
 `The winger suffered the injury in the Blues' 5-4 overtime win over the Pittsburgh Penguins on April 3.`\
 https://nytimes.com/athletic/6268349/2025/05/06/blues-dylan-holloway-surgery/

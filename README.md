@@ -1,3 +1,7 @@
+**Supreme Court Revives Trump’s Ban on Transgender Troops**\
+`Lower courts had blocked the policy, saying it was not supported by evidence and violated equal protection principles.`\
+https://nytimes.com/2025/05/06/us/politics/supreme-court-transgender-troops.html
+
 **Columbia Lays Off Nearly 180 People Because of Trump Research Cuts**\
 `“We understand this news will be hard,” Claire Shipman, Columbia University’s acting president, wrote in a note to the community.`\
 https://nytimes.com/2025/05/06/us/politics/columbia-layoffs-trump-research-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-nc
 **Was No. 10 Rillington Place the Deadliest Address in London?**\
 `In “The Peepshow,” Kate Summerscale tells the stranger-than-fiction story of a sensational murder case that rocked 1950s London.`\
 https://nytimes.com/2025/05/06/books/review/kate-summerscale-the-peepshow.html
-
-**N.I.H. Bans New Funding From U.S. Scientists to Partners Abroad**\
-`Generally, researchers will no longer be allowed to direct federal funds to international collaborators.`\
-https://nytimes.com/2025/05/06/health/nih-us-scientist-funding-foreign-research.html
 
