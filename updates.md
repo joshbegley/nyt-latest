@@ -1,3 +1,11 @@
+**André 3000’s Met Gala Piano Was More Than a Fashion Statement**\
+`The rapper and musician’s miniature Steinway teased his new album, “7 piano sketches,” which he released on Monday.`\
+https://nytimes.com/2025/05/06/style/andre-3000-met-gala-piano-album.html
+
+**National African American Museum Faces Uncertainty Without Its Leader**\
+`At a time when it is under scrutiny from the White House, the Smithsonian’s National Museum of African American History and Culture is without its director, who stepped down last month.`\
+https://nytimes.com/2025/05/06/arts/design/national-african-american-museum-faces-uncertainty-without-its-leader.html
+
 **National African American Museum Faces Uncertainty Without Its Leader**\
 `At a time when it is under scrutiny from the White House, the Smithsonian’s National Museum of African American History and Culture is without its director, who stepped down last month.`\
 https://nytimes.com/2025/05/06/arts/national-african-american-museum-faces-uncertainty-without-its-leader.html
