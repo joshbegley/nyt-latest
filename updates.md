@@ -1,3 +1,11 @@
+**A Haven for Civilians in Sudan Is Attacked for a Third Day**\
+`Drone strikes have hit a fuel depot and a hotel in Port Sudan, bringing the violence to a city that had so far been spared in the civil war.`\
+https://nytimes.com/2025/05/06/world/africa/port-sudan-attacks.html
+
+**How the Giants' struggles against left-handed starters can be solved in-house**\
+`The Giants are 2-9 against left-handed starters this season. Those struggles are the main difference between them and the top NL West teams.`\
+https://nytimes.com/athletic/6335795/2025/05/06/sf-giants-left-handed-starters-struggles/
+
 **India and U.K. Strike Trade Deal Amid Global Tariff Upheaval**\
 `The two countries signed a deal three years after negotiations began to strengthen alliances in what the British prime minister called a “new era” of trade.`\
 https://nytimes.com/2025/05/06/business/uk-india-trade-deal-tariffs.html
