@@ -1,3 +1,8 @@
+**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
+`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
+`\
+https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
+
 **Fans Disappointed at Vogue’s Coverage of South Asian Stars at the Met Gala**\
 `Some fans felt two first-time attendees, Shah Rukh Khan and Diljit Dosanjh, were dismissed at the event.`\
 https://nytimes.com/2025/05/06/style/shah-rukh-khan-diljit-dosanjh-met-gala.html

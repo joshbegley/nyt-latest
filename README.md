@@ -1,3 +1,11 @@
+**A federal judge bars the Trump administration from denying $1 billion in Covid-related school aid.**\
+`The ruling, in a lawsuit brought by Democratic officials in 16 states and Washington, D.C., halts a plan by the U.S. Education Department not to release unspent funds.`\
+https://nytimes.com/live/2025/05/06/us/trump-administration-updates/a-federal-judge-bars-the-trump-administration-from-denying-1-billion-in-covid-related-school-aid
+
+**Trump Officials to Meet With Chinese Counterparts Amid Trade Standoff**\
+`Scott Bessent, the Treasury secretary, and Jamieson Greer, the United States trade representative, will discuss trade and economic matters with the officials this week.`\
+https://nytimes.com/2025/05/06/business/economy/us-china-trade-talks.html
+
 **Fans Disappointed at Vogue’s Coverage of South Asian Stars at the Met Gala**\
 `Some fans felt two first-time attendees, Shah Rukh Khan and Diljit Dosanjh, were dismissed at the event.`\
 https://nytimes.com/2025/05/06/style/shah-rukh-khan-diljit-dosanjh-met-gala.html
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/2025/05/06/nyregion/nyc-mayoral-election-2025-ra
 **‘James’ Won the Pulitzer, but Not Without Complications**\
 `In an unusual but not unprecedented move, the prize board chose a fourth option after it couldn’t agree on the three less-heralded finalists.`\
 https://nytimes.com/2025/05/06/books/james-percival-everett-pulitzer-jury.html
-
-**Was First Amendment Violated in Student Arrests? Trump Lawyer Won’t Say.**\
-`The Trump administration is focusing on logistical issues, not constitutional ones, in its efforts to keep several international students in detention. The tactic has effectively slowed some high-profile cases.`\
-https://nytimes.com/2025/05/06/us/student-protesters-immigration-detention-first-amendment.html
-
-**Man Who Stabbed Baby Seal on Oregon Beach Is Sought**\
-`The authorities said that the attack, which the seal survived, occurred on a cold evening in a cove along the Pacific Coast.`\
-https://nytimes.com/2025/05/06/us/elephant-seal-pup-stabbed-oregon-beach.html
 
