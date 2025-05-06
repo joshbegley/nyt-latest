@@ -1,3 +1,7 @@
+**India Orders Civil Defense Drills as Potential Clash With Pakistan Looms**\
+`The home ministry ordered officials to test air raid sirens and teach civilians to navigate blackouts and carry out evacuations.`\
+https://nytimes.com/2025/05/06/world/asia/india-pakistan-kashmir-drills.html
+
 **Murillo showed Forest how to seize the moment**\
 `Forest's run-in will be settled by fine margins and their Brazilian defender demonstrated how to handle the pressure on Monday`\
 https://nytimes.com/athletic/6335855/2025/05/06/nottingham-forest-murillo-moment/
