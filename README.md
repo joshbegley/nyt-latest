@@ -1,3 +1,7 @@
+**Your Most Loved Looks From the 2025 Met Gala**\
+`We asked you to pick your favorite looks. Here are the results.`\
+https://nytimes.com/2025/05/06/style/met-gala-looks.html
+
 **Until Saturday: Saban and Trump outta nowhere**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6337588/2025/05/06/donald-trump-nick-saban-house-ncaa-nil-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/style/wood-burning-oven-kitchen-home.html
 **Is the Penguins’ head-coach opening still a premier NHL job?**\
 `Kyle Dubas may find it difficult to entice qualified coaches to Pittsburgh because of the team's competing priorities.`\
 https://nytimes.com/athletic/6337002/2025/05/06/penguins-coach-search-nhl/
-
-**Cincinnati Mayoral Primary Election Results**\
-`Get live results and maps from the Cincinnati and Ohio elections.`\
-https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
 
