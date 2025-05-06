@@ -1,3 +1,7 @@
+**Philip Sunshine, 94, Dies; Pioneer in Treatment of Premature Babies**\
+`As chief of Stanford’s neonatology department for more than 20 years, he helped revolutionize the care of preterm and critically ill newborns.`\
+https://nytimes.com/2025/05/06/science/philip-sunshine-dead.html
+
 **Dodgers place slugger Teoscar Hernández on injured list with groin strain**\
 `Hernández is hitting .315 with nine home runs and a MLB-best 34 RBIs this season.`\
 https://nytimes.com/athletic/6337888/2025/05/06/dodgers-teoscar-hernandez-injured-list/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/trump-deals-tariffs.html
 **A Mother’s Fierce, Extravagant Love (Encore)**\
 `How a cardboard box became a time machine that kept a mother and daughter connected.`\
 https://nytimes.com/2025/05/06/podcasts/a-mothers-fierce-extravagant-love-encore.html
-
-**Cincinnati Mayoral Primary Election Results**\
-`Get live results and maps from the Cincinnati and Ohio elections.`\
-https://nytimes.com/interactive/2025/05/06/us/elections/results-cincinnati-mayoral-primary.html
 

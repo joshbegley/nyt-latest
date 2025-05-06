@@ -1,3 +1,7 @@
+**Philip Sunshine, 94, Dies; Pioneer in Treatment of Premature Babies**\
+`As chief of Stanford’s neonatology department for more than 20 years, he helped revolutionize the care of preterm and critically ill newborns.`\
+https://nytimes.com/2025/05/06/science/philip-sunshine-dead.html
+
 **Dodgers place slugger Teoscar Hernández on injured list with groin strain**\
 `Hernández is hitting .315 with nine home runs and a MLB-best 34 RBIs this season.`\
 https://nytimes.com/athletic/6337888/2025/05/06/dodgers-teoscar-hernandez-injured-list/
