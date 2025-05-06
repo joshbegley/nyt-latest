@@ -1,3 +1,15 @@
+**Trump Is Picking New Climate Fights With States. Here’s Why.**\
+`The White House has begun a new effort to sue individual states over their climate initiatives and to stop lawsuits against fossil fuel companies.`\
+https://nytimes.com/2025/05/06/climate/trump-climate-change-state-lawsuits.html
+
+**Mikaela Shiffrin joins NWSL's Denver ownership group**\
+`This week, Shiffrin became the newest investor in NWSL Denver, the first professional women’s soccer team in her home state of Colorado.`\
+https://nytimes.com/athletic/6336075/2025/05/06/mikaela-shiffrin-nwsl-denver-ownership/
+
+**USMNT Player Tracker: Pulisic clinging to Champions League hopes and Haji puts things Wright**\
+`Our round-up from Europe's weekend action also includes Rokas Pukstas' far from conventional journey to training at Hajduk Split`\
+https://nytimes.com/athletic/6336918/2025/05/06/usmnt-pulisic-wright-aaronson-dike-tracker/
+
 **Barbie Maker Mattel Plans to Raise Prices Because of Trump’s Tariffs**\
 `Mattel, the U.S. toy company, said it would increase prices of some U.S. toys, citing levies on Chinese imports.`\
 https://nytimes.com/2025/05/06/business/mattel-barbie-trump-tariffs-prices.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6337183/2025/05/06/caitlin-clark-fever-preseason-ga
 **Birmingham to have Category One academy status restored**\
 `The club's U.S. owners, Knighthead, have made improving the academy a priority since taking over the club in 2023.`\
 https://nytimes.com/athletic/6337226/2025/05/06/birmingham-city-academy-category-one/
-
-**Do These Ridiculous Glasses Cure Motion Sickness? **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/motion-sickness-glasses-review
-
-**How to Make the Best Salsa**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/how-to-make-salsa
-
-**36 Hours in Kathmandu**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-kathmandu
 
