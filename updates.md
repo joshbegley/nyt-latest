@@ -1,3 +1,15 @@
+**Adam Lowry, Rick Bowness and the special Game 7 moment that was years in the making**\
+`Adam Lowry owes much of his personal and hockey growth, as well as the C on his jersey, to Rick Bowness.`\
+https://nytimes.com/athletic/6336019/2025/05/06/nhl-playoffs-winnipeg-jets-lowry-bowness/
+
+**Trump’s Wishes Aside, Censoring Racial History May Prove Difficult**\
+`Efforts to take the edge off the nation’s racial past in compliance with White House executive orders are facing resistance from institutions and citizens determined to preserve the truth about Black history.`\
+https://nytimes.com/2025/05/06/us/politics/trump-censorship-black-history.html
+
+**Man City to join inaugural women's seven-a-side tournament**\
+`The announcement also confirmed that Roma, Paris Saint-Germain and Rosenberg would be taking part in the event in Estoril, Portugal in May.`\
+https://nytimes.com/athletic/6323943/2025/05/06/manchester-city-women-world-sevens/
+
 **The Bounce: With Knicks, Nuggets Game 1 comebacks, is it time for NBA favorites to worry?**\
 `It was looking terrible for the Knicks and Nuggets before for their Game 1 comebacks. Could that signal a second-round trend?`\
 https://nytimes.com/athletic/6336916/2025/05/06/knicks-celtics-nuggets-thunder-nba-playoffs-the-bounce/
