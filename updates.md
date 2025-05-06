@@ -1,3 +1,7 @@
+**Friedrich Merz Wins Second Vote to Become Germany’s Leader**\
+`Friedrich Merz had fallen six votes short of the chancellery in the first round of voting, a surprising and demoralizing setback.`\
+https://nytimes.com/video/world/europe/100000010153289/germany-chancellor-merz.html
+
 **Lifestyles of the Rich and Miserable**\
 `Should we pity the wealthy?`\
 https://nytimes.com/2025/05/06/opinion/rich-friends-neighbors-hamm.html
