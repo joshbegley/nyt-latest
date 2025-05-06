@@ -1,3 +1,7 @@
+**Fashionably Late, Rihanna Arrives at the Met Gala**\
+`The pop star seemed to confirm rumors she was pregnant when she met shouts of congratulations on with: “Thank you!”`\
+https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
+
 **Dramatic Trains Sweep the Met Gala Carpet**\
 `Some gowns required small teams to manage vast amounts of fabric and help their wearers up the Met steps.`\
 https://nytimes.com/2025/05/05/style/dramatic-trains-sweep-the-met-gala-carpet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/05/style/ryan-coogler-2025-met-gala-look.html
 **Leafs goalie Anthony Stolarz leaves game after hit to head**\
 `Leafs starter heads to the dressing room minutes after taking a Sam Bennett forearm to the head.`\
 https://nytimes.com/athletic/6336126/2025/05/05/leafs-anthony-stolarz-injury-nhl-playoffs/
-
-**Gregg Popovich is still laughing at himself as he steps back from coaching**\
-`The legendary coach's new job really isn't that new at all.`\
-https://nytimes.com/athletic/6335998/2025/05/05/gregg-popovich-head-coach-mitch-johnson-nba/
 
