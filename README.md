@@ -34,7 +34,7 @@ https://nytimes.com/2025/05/06/briefing/pope-conclave-india-pakistan-strikes-car
 `Employees were told that the popular energy efficiency certification program would be “de-prioritized and eliminated,” according to documents and a recording.`\
 https://nytimes.com/2025/05/06/climate/epa-energy-star-eliminated.html
 
-**There Are Conflicts of Interest. And Then There’s Trump.**\
-`The president is raising a lot of money and a number of Constitutional questions.`\
+**Who’s the Greatest Grifter of Them All?**\
+`Trump is raising a lot of money and a number of Constitutional questions.`\
 https://nytimes.com/2025/05/06/opinion/trump-family-crypto.html
 
