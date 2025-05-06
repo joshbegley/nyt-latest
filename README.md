@@ -24,7 +24,7 @@ https://nytimes.com/2025/05/05/style/rihanna-pregnant-met-gala-2025.html
 
 **Dramatic Trains Sweep the Met Gala Carpet**\
 `Some gowns required small teams to manage vast amounts of fabric and help their wearers up the Met steps.`\
-https://nytimes.com/2025/05/05/style/dramatic-trains-sweep-the-met-gala-carpet.html
+https://nytimes.com/2025/05/05/style/kim-kardashian-demi-moore-met-gala-2025.html
 
 **Alcatraz as a Prison? Tourists Say Trump Is on His Own Island.**\
 `At the beloved attraction in San Francisco Bay, visitors could scarcely believe President Trump had suggested turning Alcatraz back into a penitentiary.`\
