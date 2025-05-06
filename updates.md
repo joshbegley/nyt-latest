@@ -1,3 +1,11 @@
+**Shackles finally off, Wild GM Bill Guerin knows it's time to deliver a contender**\
+`Guerin has new flexibility and sounds ready to use it: "I don't want to sit on my hands at all. And I'm kind of tired of doing that."`\
+https://nytimes.com/athletic/6337804/2025/05/06/wild-bill-guerin-critical-offseason/
+
+**Who’s the Greatest Grifter of Them All?**\
+`Trump is raising a lot of money and a number of Constitutional questions.`\
+https://nytimes.com/2025/05/06/opinion/trump-family-crypto.html
+
 **Inter 4 Barca 3 (agg: 7-6): Frattesi settles sensational tie, sends Inter to Champions League final**\
 `Inter ended Barca's quest for a treble with a brilliant win in extra time against Flick's side`\
 https://nytimes.com/athletic/6336848/2025/05/06/inter-4-barcelona-3-champions-league-semi-final/
