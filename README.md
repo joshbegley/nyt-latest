@@ -1,3 +1,7 @@
+**Barry Diller Opens Up About His Sexuality in Upcoming Memoir**\
+`The media mogul publicly addressed being gay for the first time, while also celebrating his marriage to Diane von Furstenberg. “Today he opened to the world,” she said.`\
+https://nytimes.com/2025/05/06/style/barry-diller-gay-diane-von-furstenberg.html
+
 **Senate Confirms Frank Bisignano as Social Security Commissioner**\
 `Mr. Bisignano, a former Wall Street executive, will lead an agency upended by big staff cuts and other significant changes.`\
 https://nytimes.com/2025/05/06/business/social-security-frank-bisignano.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/judge-deportation-el-salvador-venezue
 **Ask Well: Answers to Your Health Questions**\
 ``\
 https://nytimes.com/spotlight/ask-well-festival
-
-**Why Julio Rodriguez and Dylan Crews are among those ripe for a rebound in fantasy baseball**\
-`Michael Salfino identifies struggling players, like Julio Rodriguez, who could see their fantasy fortunes reversed with a little luck.`\
-https://nytimes.com/athletic/6337543/2025/05/06/fantasy-baseball-rebound-candidates-unlucky-julio-rodriguez/
 
