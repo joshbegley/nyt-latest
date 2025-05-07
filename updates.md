@@ -1,3 +1,11 @@
+**WeightWatchers Files for Bankruptcy Amid Wave of New Weight-Loss Methods**\
+`The company, which has shaped how millions eat and exercise, is trying to reduce its debt as it expands its telehealth business.`\
+https://nytimes.com/2025/05/07/business/weight-watchers-bankruptcy.html
+
+**Eagles mailbag: Send your questions to Brooks Kubena**\
+`Eagles mailbag: Send your questions to Brooks Kubena`\
+https://nytimes.com/athletic/6339060/2025/05/07/eagles-mailbag-questions-brooks-kubena/
+
 **How Cowboys' Day 2 picks, Donovan Ezeiruaku, Shavon Revel Jr. could make immediate impact**\
 `The Cowboys were excited about getting edge Donovan Ezeiruaku and cornerback Shavon Revel. They expect both to make an impact.`\
 https://nytimes.com/athletic/6337960/2025/05/07/cowboys-rookie-minicamp-donovan-ezeiruaku-shavon-revel/
