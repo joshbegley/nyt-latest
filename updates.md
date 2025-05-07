@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morg
 `\
 https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
 
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
 **The Capitals are searching for answers. Where should they start?**\
 `Carolina dominated Washington in nearly every facet of Game 1 and forced the Capitals to adjust ahead of Game 2.`\
 https://nytimes.com/athletic/6340444/2025/05/07/capitals-hurricanes-nhl-playoffs-adjustments/

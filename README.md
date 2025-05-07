@@ -1,3 +1,7 @@
+**The Secret to Restaurant-Style Chicken at Home**\
+`Let the chicken cook itself, then turn the drippings into a savory lime butter sauce, Eric Kim writes.`\
+https://nytimes.com/2025/05/07/dining/how-to-make-chicken-at-home.html
+
 **The Capitals are searching for answers. Where should they start?**\
 `Carolina dominated Washington in nearly every facet of Game 1 and forced the Capitals to adjust ahead of Game 2.`\
 https://nytimes.com/athletic/6340444/2025/05/07/capitals-hurricanes-nhl-playoffs-adjustments/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6336945/2025/05/07/edmonton-oilers-defence-nhl-play
 **The bond market is in focus as Trump and his advisers push for lower rates.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2025/05/07/business/fed-interest-rates/the-bond-market-is-in-focus-as-trump-and-his-advisers-push-for-lower-rates
-
-**This Auto Parts C.E.O. Gave Trump’s Tariffs a Chance. Now He’s Not So Sure.**\
-`The chief executive of Detroit Axle, which sells car parts that are mostly imported from China, is adjusting his business and hoping for a new trade deal.`\
-https://nytimes.com/2025/05/07/us/china-tariffs-michigan-auto.html
 
