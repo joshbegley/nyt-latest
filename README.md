@@ -1,3 +1,7 @@
+**Test your knowledge of the papal conclave**\
+`Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
+
 **How to watch Paris Saint-Germain vs. Arsenal in Champions League semifinal second leg**\
 `PSG claimed the first leg in London last week, a 1-0 grinder over Arsenal settled by Ousmane Dembélé. The rematch goes down Wednesday.`\
 https://nytimes.com/athletic/6337794/2025/05/07/arsenal-paris-psg-champions-league-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336960/2025/05/07/moises-caicedo-chelsea-player-of
 **Trent Alexander-Arnold, Real Madrid and the Club World Cup – here's what we're hearing**\
 `The Liverpool player's contract expires on June 30, 16 days after the Club World Cup begins in the U.S. Will he be a Madrid player by then?`\
 https://nytimes.com/athletic/6336922/2025/05/07/trent-alexander-arnold-real-madrid-liverpool-club-world-cup/
-
-**What Arsenal need to do in Paris: Our writers on first-leg lessons, tactical battles, predictions**\
-`Start well, let Saka shine and keep Kvaratskhelia quiet... Here's what Arsenal must do to reach the Champions League final`\
-https://nytimes.com/athletic/6336818/2025/05/07/arsenal-psg-champions-league-predictions/
 
