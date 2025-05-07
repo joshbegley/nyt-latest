@@ -1,40 +1,40 @@
-**Commanders mailbag, Part 2: Adam Peters' draft strategy, stadium news, Javon Kinlaw's role**\
-`Plus, is there an undrafted free agent to keep an eye on as Washington heads into rookie minicamp?`\
-https://nytimes.com/athletic/6337223/2025/05/07/commanders-mailbag-stadium-nfl-draft/
+**Germany’s New Leader Has a Tough Job. It Just Got Tougher.**\
+`Friedrich Merz’s halting path to the chancellor’s office inflamed his challenges at home and abroad, including a threat from the far right.`\
+https://nytimes.com/2025/05/07/world/europe/germany-merz-vote-chancellor.html
 
-**Bills 53-man roster projection: Where new and returning players could fit in this season**\
-`New and returning faces could shake up some starting positions.`\
-https://nytimes.com/athletic/6337802/2025/05/07/bills-53-man-roster-projection-defense-draft-picks/
+**Which Vikings player is next in line for an extension? The 5 most likely candidates**\
+`After signing Andrew Van Ginkel to a new deal last week, there are some moves the Vikings could make this offseason.`\
+https://nytimes.com/athletic/6337548/2025/05/07/vikings-contract-extension-metellus-oneill/
 
-**Lions' 2025 NFL Draft picks: How they fit on the field and within the team's culture**\
-`The Detroit Lions, more than most teams, have a type when it comes to prospects.`\
-https://nytimes.com/athletic/6338271/2025/05/07/detroit-lions-draft-picks-fit-culture/
+**Donovan Mitchell has a calf strain? What all these Cavalier injuries mean for Game 3**\
+`Mitchell was nowhere to be found on Cleveland’s star-studded injury report for Game 2, but the TNT broadcast reported he was playing hurt.`\
+https://nytimes.com/athletic/6338842/2025/05/07/donovan-mitchell-calf-strain-cavaliers-injuries/
 
-**Important numbers to know with Browns' QB competition set to begin**\
-`A breakdown of the four healthy quarterbacks on Cleveland's roster: Joe Flacco, Kenny Pickett, Dillon Gabriel and Shedeur Sanders. `\
-https://nytimes.com/athletic/6338168/2025/05/07/browns-quarterback-competition-joe-flacco-shedeur-sanders/
+**George Karl sees an NBA he hardly recognizes. Does his voice still matter?**\
+`The Hall of Famer doesn’t want to coach, and he doesn’t want to work full time. He just wants to be heard. But has the NBA passed him by?`\
+https://nytimes.com/athletic/6329069/2025/05/07/george-karl-nba-cancer-legacy/
 
-**The New York Times International Edition in Print for Thursday, May 8, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/07/todays-new-york-times-international-edition
+**'Light at the end of the tunnel': Guardians prospect who pitched through cancer treatment on verge of majors**\
+`In 2022, pitcher Nic Enright was well on the road to his major-league dream. A cancer diagnosis changed — but did not stop — his plans.`\
+https://nytimes.com/athletic/6322079/2025/05/07/nic-enright-guardians-cancer-majors/
 
-**Barca's Martinez on Acerbi incident: 'The spit was not aimed at him'**\
-`Footage appeared to show Martinez spitting in the direction of Acerbi following Hakan Calhanoglu's penalty just before half-time.`\
-https://nytimes.com/athletic/6339173/2025/05/07/inigo-martinez-spit-acerbi-inter-barcelona/
+**Knicks finally find way to take down Celtics: Switch up their entire identity**\
+`From the onset of the Boston series, New York switched pick-and-rolls with more gumption than ever.`\
+https://nytimes.com/athletic/6338392/2025/05/07/knicks-switching-celtics-nba-playoffs/
 
-**WeightWatchers Files for Bankruptcy Amid Wave of New Weight-Loss Methods**\
-`The company, which has shaped how millions eat and exercise, is trying to reduce its debt as it expands its telehealth business.`\
-https://nytimes.com/2025/05/07/business/weight-watchers-bankruptcy.html
+**2025 Bowman Baseball top prospects and rookie redemption cards to target**\
+`2025 Bowman introduces a new element that could take decades to fully pay off`\
+https://nytimes.com/athletic/6338519/2025/05/07/2025-bowman-baseball-charlie-condon-prospects/
 
-**Eagles mailbag: Send your questions to Brooks Kubena**\
-`Eagles mailbag: Send your questions to Brooks Kubena`\
-https://nytimes.com/athletic/6339060/2025/05/07/eagles-mailbag-questions-brooks-kubena/
+**Did the Jets improve their roster this offseason? Comparing the 2025 team to 2024**\
+`Aaron Glenn and GM Darren Mougey said they plan to win now — have they built the roster to do it?`\
+https://nytimes.com/athletic/6337281/2025/05/07/new-york-jets-roster-compared-to-2024/
 
-**How Cowboys' Day 2 picks, Donovan Ezeiruaku, Shavon Revel Jr. could make immediate impact**\
-`The Cowboys were excited about getting edge Donovan Ezeiruaku and cornerback Shavon Revel. They expect both to make an impact.`\
-https://nytimes.com/athletic/6337960/2025/05/07/cowboys-rookie-minicamp-donovan-ezeiruaku-shavon-revel/
+**F1 mailbag: The sport's wet-weather problem, and can Williams snap its podium drought?**\
+`It is a non-race week, so we decided to answer a few of your post-Miami Grand Prix questions`\
+https://nytimes.com/athletic/6338183/2025/05/07/f1-mailbag-miami-gp-wet-tires-williams-hamilton/
 
-**With Tears of Joy and Anxiety, Waiting for P.O.W.s to Come Home, at Last**\
-`In a parking lot in Ukraine, hundreds of family members gathered to greet loved ones being repatriated from Russian prisons. Amid happy reunions, there was anguish, too.`\
-https://nytimes.com/2025/05/07/world/europe/ukraine-pow-prisoners-exchange.html
+**Ten early season MLB numbers that could be cause for alarm**\
+`Even six weeks into the season, some players and teams are already telling us that something is wrong.`\
+https://nytimes.com/athletic/6335466/2025/05/07/mlb-statistics-that-are-alarming-analysis/
 
