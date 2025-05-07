@@ -1,3 +1,15 @@
+**Trent Alexander-Arnold, Real Madrid and the Club World Cup – here's what we're hearing**\
+`The Liverpool player's contract expires on June 30, 16 days after the Club World Cup begins in the U.S. Will he be a Madrid player by then?`\
+https://nytimes.com/athletic/6336922/2025/05/07/trent-alexander-arnold-real-madrid-liverpool-club-world-cup/
+
+**What Arsenal need to do in Paris: Our writers on first-leg lessons, tactical battles, predictions**\
+`Start well, let Saka shine and keep Kvaratskhelia quiet... Here's what Arsenal must do to reach the Champions League final`\
+https://nytimes.com/athletic/6336818/2025/05/07/arsenal-psg-champions-league-predictions/
+
+**The BookKeeper – Exploring Wrexham’s finances and how Ryan Reynolds and Rob McElhenney run a club like no other**\
+`Exploring how the club of Ryan Reynolds and Rob McElhenney is run and why promotion to the Premier League next season is not impossible`\
+https://nytimes.com/athletic/6319873/2025/05/07/the-bookkeeper-wrexham-reynolds-mcelhenney-finances/
+
 **Royce Lewis returns; Twins win on homers by Correa and Buxton as López shines**\
 `His bat was quiet, but Lewis brought his enthusiastic style back to the clubhouse in his first game since injuring his hamstring March 16.`\
 https://nytimes.com/athletic/6338762/2025/05/07/twins-win-royce-lewis-returns/

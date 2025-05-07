@@ -1,3 +1,15 @@
+**Trent Alexander-Arnold, Real Madrid and the Club World Cup – here's what we're hearing**\
+`The Liverpool player's contract expires on June 30, 16 days after the Club World Cup begins in the U.S. Will he be a Madrid player by then?`\
+https://nytimes.com/athletic/6336922/2025/05/07/trent-alexander-arnold-real-madrid-liverpool-club-world-cup/
+
+**What Arsenal need to do in Paris: Our writers on first-leg lessons, tactical battles, predictions**\
+`Start well, let Saka shine and keep Kvaratskhelia quiet... Here's what Arsenal must do to reach the Champions League final`\
+https://nytimes.com/athletic/6336818/2025/05/07/arsenal-psg-champions-league-predictions/
+
+**The BookKeeper – Exploring Wrexham’s finances and how Ryan Reynolds and Rob McElhenney run a club like no other**\
+`Exploring how the club of Ryan Reynolds and Rob McElhenney is run and why promotion to the Premier League next season is not impossible`\
+https://nytimes.com/athletic/6319873/2025/05/07/the-bookkeeper-wrexham-reynolds-mcelhenney-finances/
+
 **Royce Lewis returns; Twins win on homers by Correa and Buxton as López shines**\
 `His bat was quiet, but Lewis brought his enthusiastic style back to the clubhouse in his first game since injuring his hamstring March 16.`\
 https://nytimes.com/athletic/6338762/2025/05/07/twins-win-royce-lewis-returns/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6338632/2025/05/07/connections-sports-edition-hints
 **The Vote for the Next Pope Is Also a Referendum on Francis**\
 `As cardinals begin a conclave to choose Pope Francis’ successor, they must decide whether to find a pope who follows his path or forges a new one.`\
 https://nytimes.com/2025/05/07/world/europe/pope-francis-referendum.html
-
-**Corrections: May 7, 2025**\
-`Corrections that appeared in print on Wednesday, May 7, 2025.`\
-https://nytimes.com/2025/05/07/pageoneplus/corrections-may-7-2025.html
-
-**Why China Is Investing So Much Money in Moroccan Factories**\
-`Morocco is linked to Europe on the strength of its auto sector and a trade pact. But its status as a connector country has become precarious in the trade war.`\
-https://nytimes.com/2025/05/07/business/china-tariffs-morocco.html
-
-**Why Poland Wants All of Europe to Do More to Defend Itself**\
-`Shaken by Trump, Putin and the war in Ukraine, Poland is again feeling angst about being abandoned by the United States.`\
-https://nytimes.com/2025/05/07/world/europe/poland-nato-defense-spending.html
 
