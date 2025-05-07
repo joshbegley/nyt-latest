@@ -1,3 +1,15 @@
+**Come for the Conclave. Don’t Stay for the Food.**\
+`The cardinals selecting the next pope will take their meals at a Vatican guesthouse. One conclave veteran said the fare was “food you could eat at a train station.”`\
+https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
+
+**A Most Sensitive Subject in the White House: Where Is Melania?**\
+`Mrs. Trump has spent fewer than 14 days at the White House since her husband was inaugurated 108 days ago`\
+https://nytimes.com/2025/05/07/us/politics/white-house-melania-absence.html
+
+**What to know about the Fed’s decision.**\
+`The U.S. central bank is widely expected to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
+https://nytimes.com/live/2025/05/07/business/fed-interest-rates/what-to-know-about-the-feds-decision
+
 **Set to face Leafs, Aaron Ekblad addresses criticism of first-round hit: 'Reasonable response'**\
 `Panthers defensemen responds for first time to Lightning forward Brandon Hagel's comments over elbowing suspension.`\
 https://nytimes.com/athletic/6340602/2025/05/07/panthers-ekblad-suspension-hagel-leafs-nhl-playoffs/
