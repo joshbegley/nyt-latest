@@ -1,3 +1,31 @@
+**Senators are urging Paramount to fight Trump’s ‘60 Minutes’ lawsuit.**\
+`By Benjamin Mullin`\
+https://nytimes.com/live/2025/05/07/us/trump-news/senators-are-urging-paramount-to-fight-trumps-60-minutes-lawsuit
+
+**Let's try to make sense of Connor Hellebuyck's playoff struggles**\
+`After a difficult first-round series, can Hellebuyck get back to his successful "big and boring" style?`\
+https://nytimes.com/athletic/6333478/2025/05/07/connor-hellebuyck-jets-playoffs-stars/
+
+**Thunder in full support of Chet Holmgren bouncing back after frustrating Game 1 finish**\
+`“He’s the last guy I’m worried about,” Thunder coach Mark Daigneault said after Chet Holmgren's Game 1 performance.`\
+https://nytimes.com/athletic/6338884/2025/05/07/thunder-chet-holmgren-nba-playoffs-game-1/
+
+**MAGA Beauty Is Built to Go Viral**\
+`These Republican women use the vernacular of influencers to spread their message. It’s working, for now.`\
+https://nytimes.com/2025/05/07/opinion/maga-beauty-viral-women.html
+
+**Is It Colonialism When Europeans Retire in Cheaper Countries?**\
+`The magazine’s Ethicist columnist on the impact of making another country your home in retirement.`\
+https://nytimes.com/2025/05/07/magazine/europeans-retirement-colonialism-ethics.html
+
+**Why Did My Friend Keep Poking Her Husband When I Spoke at Dinner?**\
+`Long after the dinner party in question, a reader still feels self-conscious about jabs exchanged every time she opened her mouth.`\
+https://nytimes.com/2025/05/07/style/dinner-party-embarrassment.html
+
+**4 Lessons for Trump From Britain’s Failed Rwanda Deportation Deal**\
+`The United States is said to be in talks with the African country about taking in expelled migrants. There may be lessons in London’s experience.`\
+https://nytimes.com/2025/05/07/world/europe/trump-migrants-rwanda-us-uk.html
+
 **Second U.S. Navy Jet in 2 Weeks Is Lost Off the U.S.S. Truman**\
 `The aircraft went overboard on Tuesday as it tried to land on the aircraft carrier stationed in the Red Sea. Two pilots suffered minor injuries.`\
 https://nytimes.com/2025/05/07/world/middleeast/us-navy-fighter-jet-truman-carrier-red-sea.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6334553/2025/05/07/bucks-offseason-overview-roster-
 **Man Utd's De Ligt out of Athletic Club, West Ham but injury 'not a big issue'**\
 `De Ligt sustained a muscular injury in the 33rd minute of United's 4-3 defeat at Brentford in the Premier League on Sunday.`\
 https://nytimes.com/athletic/6334022/2025/05/07/manchester-united-de-ligt-injury-update/
-
-**The Full Schedule for the Well Festival**\
-`Tracee Ellis Ross, Suleika Jaouad, Charlamagne Tha God, Samin Nosrat and Dwyane Wade are among those being interviewed on Wednesday from 9:30 a.m. Eastern time to 5:30 p.m.`\
-https://nytimes.com/2025/05/07/well/well-festival-schedule-run-of-show.html
-
-**The Well Festival: Live Interviews About Health and Happiness**\
-`The Times is hosting a day of conversations dedicated to a singular theme: maximizing your happiness. Follow along live.`\
-https://nytimes.com/live/2025/05/07/well/wellness-festival-live-updates
-
-**Tottenham's Maddison set for three-month layoff with knee injury**\
-`Maddison has suspected ligament damage and is set to miss the remainder of the season, including a potential Europa League final.`\
-https://nytimes.com/athletic/6334099/2025/05/07/james-maddison-injury-europa-league/
-
-**A Cardinal Shares His Conclave Advice: ‘Bring a Book’**\
-`Cardinal Timothy M. Dolan of New York has some tips for first-timers taking part in the sometimes lengthy process of choosing the next pope.`\
-https://nytimes.com/2025/05/07/world/europe/us-cardinal-dolan-conclave-pope.html
-
-**‘That’s Not Who We Are’: Biden Criticizes Trump in BBC Interview**\
-`In his first broadcast interview since leaving office, the former president criticized several of President Trump’s actions and defended his withdrawal from the 2024 campaign.`\
-https://nytimes.com/2025/05/07/us/trump-biden-interview.html
-
-**Choose a Pope for a ‘Complex and Tormented’ Time, a Top Cardinal Asks**\
-`Presiding over a Mass before the conclave, the dean of the College of Cardinals, Giovanni Battista Re, asked the cardinals to elect a pope whom “the church and humanity” need at a “difficult, complex and tormented” time.`\
-https://nytimes.com/video/world/europe/100000010154204/top-cardinal-next-pope-humanity-church.html
-
-**Why Jack Doohan lost his Alpine F1 seat in just 150 days**\
-`The pressure was on driver and team to perform quickly. For whatever reason, Jack Doohan fell short over six races with Alpine`\
-https://nytimes.com/athletic/6338485/2025/05/07/alpine-f1-jack-doohan-franco-colapinto/
 
