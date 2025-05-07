@@ -1,3 +1,7 @@
+**Michael Pitt, ‘Boardwalk Empire’ Actor, Is Arrested on Sex Abuse Charges**\
+`Mr. Pitt faces numerous charges, including assault and strangulation, based on encounters in 2020 and 2021. He has pleaded not guilty.`\
+https://nytimes.com/2025/05/07/arts/television/michael-pitt-sex-abuse-charges.html
+
 **Brazil's supreme court asked to suspend CBF chief over 'inauthentic signature'**\
 `The signature of vice-president Antonio Carlos Nunes de Lima on an agreement helped strengthen Rodrigues' hold on the presidency.`\
 https://nytimes.com/athletic/6338162/2025/05/07/brazil-cbf-ednaldo-rodrigues/
