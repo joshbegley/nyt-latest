@@ -1,3 +1,24 @@
+**Breaking down the madness of Inter 4-3 Barcelona, a Champions League classic**\
+`Penalty decisions, stunning goals and and even an alleged spitting incident - Inter's win over Barcelona had it all`\
+https://nytimes.com/athletic/6338423/2025/05/07/inter-barcelona-champions-league-semi-final-analysis/
+
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
+**Commencement Speaker**\
+`Who would you want to deliver a speech at your graduation?`\
+https://nytimes.com/2025/05/07/learning/commencement-speaker.html
+
+**The Drama and Politics Behind Picking a Pope**\
+`There are, technically, 133 papal contenders but no official candidates. Here’s how a New York Times team determines the front-runners.`\
+https://nytimes.com/2025/05/07/insider/pope-conclave-process.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/07/crosswords/spelling-bee-forum.html
+
 **Who says baseball is boring? Giants win historically wild game in extra innings**\
 `The final result was the Giants defeating the Cubs 14-5, but it could have ended 5-3 or 5-4 about a half hour earlier.`\
 https://nytimes.com/athletic/6338476/2025/05/07/giants-win-wild-game-extra-innings/
