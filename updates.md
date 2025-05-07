@@ -1,3 +1,7 @@
+**NBA playoff takeaways: How Pacers, Haliburton stole Game 2 from Cavs**\
+`The Cavaliers were up the entire fourth quarter, except for the final second.`\
+https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
+
 **JD Vance’s Half Brother Advances in Race for Cincinnati Mayor**\
 `Cory Bowman will next face Aftab Pureval, the Democratic incumbent, who outperformed him in Tuesday’s nonpartisan primary.`\
 https://nytimes.com/2025/05/06/us/jd-vance-brother-cincinnati-mayor.html
