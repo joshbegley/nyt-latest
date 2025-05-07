@@ -1,3 +1,7 @@
+**Trump says World Cup spot for Russia could be 'incentive' to end war**\
+`Since their illegal invasion of Ukraine in February 2022, Russian teams have been suspended from FIFA and UEFA competitions.`\
+https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
+
 **Is Denzel Dumfries the best counter-attacking wing-back in the world?**\
 `The Inter defender was the key player for his side in both legs of the Champions League tie against Barcelona… but in subtly different ways`\
 https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/magazine/europeans-retirement-colonialism-ethics.
 **Why Did My Friend Keep Poking Her Husband When I Spoke at Dinner?**\
 `Long after the dinner party in question, a reader still feels self-conscious about jabs exchanged every time she opened her mouth.`\
 https://nytimes.com/2025/05/07/style/dinner-party-embarrassment.html
-
-**4 Lessons for Trump From Britain’s Failed Rwanda Deportation Deal**\
-`The United States is said to be in talks with the African country about taking in expelled migrants. There may be lessons in London’s experience.`\
-https://nytimes.com/2025/05/07/world/europe/trump-migrants-rwanda-us-uk.html
 

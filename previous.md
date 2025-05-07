@@ -1,3 +1,11 @@
+**Is Denzel Dumfries the best counter-attacking wing-back in the world?**\
+`The Inter defender was the key player for his side in both legs of the Champions League tie against Barcelona… but in subtly different ways`\
+https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-champions-league/
+
+**Can the Canucks build a Cup contender around Quinn Hughes? Here’s one possible blueprint**\
+`What can the Canucks learn from the Capitals' bounce back this season?`\
+https://nytimes.com/athletic/6338541/2025/05/07/canucks-stanley-cup-quinn-hughes-nhl/
+
 **Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast**\
 `Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
 https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/style/dinner-party-embarrassment.html
 **4 Lessons for Trump From Britain’s Failed Rwanda Deportation Deal**\
 `The United States is said to be in talks with the African country about taking in expelled migrants. There may be lessons in London’s experience.`\
 https://nytimes.com/2025/05/07/world/europe/trump-migrants-rwanda-us-uk.html
-
-**Second U.S. Navy Jet in 2 Weeks Is Lost Off the U.S.S. Truman**\
-`The aircraft went overboard on Tuesday as it tried to land on the aircraft carrier stationed in the Red Sea. Two pilots suffered minor injuries.`\
-https://nytimes.com/2025/05/07/world/middleeast/us-navy-fighter-jet-truman-carrier-red-sea.html
-
-**Milwaukee Bucks offseason overview: Salary cap situation, roster needs and more**\
-`The Bucks need to think about Giannis Antetokounmpo for everything they do this offseason, but that's not different than any other year.`\
-https://nytimes.com/athletic/6334553/2025/05/07/bucks-offseason-overview-roster-cap/
 
