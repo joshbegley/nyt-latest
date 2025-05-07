@@ -1,3 +1,7 @@
+**The Pulse: The first time in NBA history**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6337981/2025/05/07/pacers-warriors-round-2-the-pulse/
+
 **Germany’s New Leader Has a Tough Job. It Just Got Tougher.**\
 `Friedrich Merz’s halting path to the chancellor’s office inflamed his challenges at home and abroad, including a threat from the far right.`\
 https://nytimes.com/2025/05/07/world/europe/germany-merz-vote-chancellor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337281/2025/05/07/new-york-jets-roster-compared-to
 **F1 mailbag: The sport's wet-weather problem, and can Williams snap its podium drought?**\
 `It is a non-race week, so we decided to answer a few of your post-Miami Grand Prix questions`\
 https://nytimes.com/athletic/6338183/2025/05/07/f1-mailbag-miami-gp-wet-tires-williams-hamilton/
-
-**Ten early season MLB numbers that could be cause for alarm**\
-`Even six weeks into the season, some players and teams are already telling us that something is wrong.`\
-https://nytimes.com/athletic/6335466/2025/05/07/mlb-statistics-that-are-alarming-analysis/
 
