@@ -1,3 +1,8 @@
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
 **Breaking down the madness of Inter 4-3 Barcelona, a Champions League classic**\
 `Penalty decisions, stunning goals and and even an alleged spitting incident - Inter's win over Barcelona had it all`\
 https://nytimes.com/athletic/6338423/2025/05/07/inter-barcelona-champions-league-semi-final-analysis/
