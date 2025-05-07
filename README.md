@@ -1,3 +1,24 @@
+**Breaking down the madness of Inter 4-3 Barcelona, a Champions League classic**\
+`Penalty decisions, stunning goals and and even an alleged spitting incident - Inter's win over Barcelona had it all`\
+https://nytimes.com/athletic/6338423/2025/05/07/inter-barcelona-champions-league-semi-final-analysis/
+
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
+**Commencement Speaker**\
+`Who would you want to deliver a speech at your graduation?`\
+https://nytimes.com/2025/05/07/learning/commencement-speaker.html
+
+**The Drama and Politics Behind Picking a Pope**\
+`There are, technically, 133 papal contenders but no official candidates. Here’s how a New York Times team determines the front-runners.`\
+https://nytimes.com/2025/05/07/insider/pope-conclave-process.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/07/crosswords/spelling-bee-forum.html
+
 **Who says baseball is boring? Giants win historically wild game in extra innings**\
 `The final result was the Giants defeating the Cubs 14-5, but it could have ended 5-3 or 5-4 about a half hour earlier.`\
 https://nytimes.com/athletic/6338476/2025/05/07/giants-win-wild-game-extra-innings/
@@ -17,24 +38,4 @@ https://nytimes.com/2025/05/07/world/asia/india-pakistan-weapons.html
 **Word of the Day: sabbatical**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/07/learning/word-of-the-day-sabbatical.html
-
-**Inter’s old limitations are beginning to look like new frontiers - next stop, Munich**\
-`Joy and despair were in high supply as Inter claimed victory against Barcelona in a Champions League semi-final for the ages`\
-https://nytimes.com/athletic/6338493/2025/05/07/inter-barcelona-champions-league-semi-final/
-
-**Late Night Doesn’t Mind Canada Putting Trump in the Friend Zone**\
-`The president was firmly told that Canada won’t join the United States, though he says it would be a “wonderful marriage.” “People were, like, ‘How would he know?’” Jimmy Fallon said.`\
-https://nytimes.com/2025/05/07/arts/television/late-night-canada-trump.html
-
-**Lloyd: Cavs were more physical than Pacers until they weren't. And now the pain lingers**\
-`For 47 minutes Tuesday, despite their injuries and absences, the Cavaliers were the more aggressive team. They ended up beaten and battered.`\
-https://nytimes.com/athletic/6338970/2025/05/07/cavaliers-pacers-nba-playoffs-game-2/
-
-**Can Oilers win Cup with Pickard or Skinner? Maybe — if they play like this**\
-`It takes a heck of a team to win in the playoffs in front of an unspectacular goalie, and that's something the Oilers seem to have.`\
-https://nytimes.com/athletic/6338967/2025/05/07/oilers-nhl-playoffs-2025-pickard-skinner/
-
-**Wednesday Briefing**\
-`The papal conclave begins.`\
-https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html
 
