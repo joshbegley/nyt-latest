@@ -1,3 +1,7 @@
+**DeFabo: George Pickens wasn't going to 'grow up,' forcing the Steelers' hand**\
+`If Mike Tomlin couldn't get through to George Pickens in three years, he was never going to, which is why the Steelers moved on.`\
+https://nytimes.com/athletic/6340589/2025/05/07/george-pickens-trade-steelers-mike-tomlin/
+
 **Waiting for the Smoke That Heralds a New Pope**\
 `As 133 cardinals were sequestered in the Sistine Chapel where they would vote for a new leader of the Catholic Church, the faithful and the curious gathered in St. Peter’s Square.`\
 https://nytimes.com/2025/05/07/world/europe/papal-conclave-st-peters-square-smoke.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/us/politics/tyre-nichols-state-trial-officers-acq
 **Come for the Conclave. Don’t Stay for the Food.**\
 `The cardinals selecting the next pope will take their meals at a Vatican guesthouse. One conclave veteran said the fare was “food you could eat at a train station.”`\
 https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
-
-**A Most Sensitive Subject in the White House: Where Is Melania?**\
-`Mrs. Trump has spent fewer than 14 days at the White House since her husband was inaugurated 108 days ago.`\
-https://nytimes.com/2025/05/07/us/politics/white-house-melania-absence.html
 
