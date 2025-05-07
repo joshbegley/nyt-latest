@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Sex Is Just Sex’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/07/style/tiny-modern-love-stories-sex-is-just-sex.html
+
 **Hegseth’s Digital Practices Raise New Security Concerns**\
 `Revelations about the defense secretary’s passwords came after he discussed details of planned U.S. airstrikes on a messaging app.`\
 https://nytimes.com/2025/05/07/us/politics/hegseth-phone-security.html
@@ -18,6 +22,10 @@ https://nytimes.com/2025/05/07/world/europe/black-smoke-white-smoke-vatican-pope
 `Brady said he texted Sanders after the former Colorado quarterback slid from a potential first-round pick to the No. 144th selection.`\
 https://nytimes.com/athletic/6340099/2025/05/07/shedeur-sanders-tom-brady-nfl-draft-slide/
 
+**Empty Nesting Is Hard. This Carrot Cake Is Anything But.**\
+`For years, Genevieve Ko would make this dessert for her kids. Now that they’re grown, she’s streamlined it for them — and you.`\
+https://nytimes.com/article/easy-carrot-cake-mothers-day.html
+
 ** What’s in Our Queue? ‘The Great British Bake Off’ and More **\
 `Text by Ruth Fremson`\
 https://nytimes.com/card/2025/05/07/arts/editors-recommendations-bakeoff
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6340283/2025/05/07/warriors-steph-curry-injury-nba/
 **Michael Pitt, ‘Boardwalk Empire’ Actor, Is Arrested on Sex Abuse Charges**\
 `Mr. Pitt faces numerous charges, including assault and strangulation, based on encounters in 2020 and 2021. He has pleaded not guilty.`\
 https://nytimes.com/2025/05/07/arts/television/michael-pitt-sex-abuse-charges.html
-
-**Brazil's supreme court asked to suspend CBF chief over 'inauthentic signature'**\
-`The signature of vice-president Antonio Carlos Nunes de Lima on an agreement helped strengthen Rodrigues' hold on the presidency.`\
-https://nytimes.com/athletic/6338162/2025/05/07/brazil-cbf-ednaldo-rodrigues/
 
