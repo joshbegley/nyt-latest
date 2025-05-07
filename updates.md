@@ -1,3 +1,11 @@
+**The Bounce: Road teams have dominated second round of NBA playoffs. Will it continue?**\
+`The second round of the playoffs are underway, but a home team hasn't won yet. How long can this trend continue?`\
+https://nytimes.com/athletic/6339725/2025/05/07/jimmy-butler-steph-curry-hamstring-warriors-timberwolves-nba-playoffs-the-bounce/
+
+**Trump says World Cup spot for Russia could be 'incentive' to end war**\
+`Since their illegal invasion of Ukraine in February 2022, Russia's teams have been suspended from FIFA and UEFA competitions.`\
+https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
+
 **The Windup: A historic meltdown**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6338874/2025/05/07/ryan-pressly-giants-cubs-the-windup/
