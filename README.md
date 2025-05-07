@@ -1,3 +1,7 @@
+**The Capitals are searching for answers. Where should they start?**\
+`Carolina dominated Washington in nearly every facet of Game 1 and forced the Capitals to adjust ahead of Game 2.`\
+https://nytimes.com/athletic/6340444/2025/05/07/capitals-hurricanes-nhl-playoffs-adjustments/
+
 **Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
 `The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/05/07/business/fed-interest-rates/the-bond-market-
 **This Auto Parts C.E.O. Gave Trump’s Tariffs a Chance. Now He’s Not So Sure.**\
 `The chief executive of Detroit Axle, which sells car parts that are mostly imported from China, is adjusting his business and hoping for a new trade deal.`\
 https://nytimes.com/2025/05/07/us/china-tariffs-michigan-auto.html
-
-**George Pickens trade grades: Did Cowboys give up too much for enigmatic WR?**\
-`Some teams had zero interest in adding Pickens to their locker rooms. Will things go better for him in Dallas than they did in Pittsburgh?`\
-https://nytimes.com/athletic/6339972/2025/05/07/george-pickens-trade-grades-cowboys-steelers/
 
