@@ -1,3 +1,8 @@
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
 **Texas Attorney General Announces Vote Fraud and ‘Harvesting’ Charges**\
 `A county judge, two City Council members and a former county election administrator are among Ken Paxton’s targets as he elevates his “election integrity” accusations to criminality.`\
 https://nytimes.com/2025/05/07/us/politics/texas-vote-fraud.html
