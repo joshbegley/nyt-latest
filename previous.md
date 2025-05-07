@@ -1,3 +1,19 @@
+**Trump Administration Is Said to Target Park Service Grants**\
+`Dozens of programs, many linked to climate change and diversity, have been designated for elimination by DOGE, according to people with knowledge of the plan.`\
+https://nytimes.com/2025/05/07/climate/trump-park-service-grants-cuts.html
+
+**Libya’s Rival Governments Both Deny Deal to Take Deported U.S. Migrants**\
+`U.S. officials have said the Trump administration plans to send immigrants to the divided country on military flights as soon as this week.`\
+https://nytimes.com/2025/05/07/world/middleeast/libya-us-migrants-deal.html
+
+**Frieze New York Couldn’t Happen Without Scores of People Behind the Scenes**\
+`Security for art and attendees are among the roles that are crucial to the success of the fair.`\
+https://nytimes.com/2025/05/07/arts/design/frieze-new-york-behind-scenes.html
+
+**Maple Leafs lineup changes vs. Panthers: Joseph Woll to start; Matt Murray returns**\
+`Can Joseph Woll find his top form? Will the Leafs seek retribution over Sam Bennett's hit on Anthony Stolarz? Big questions loom in Game 2.`\
+https://nytimes.com/athletic/6338705/2025/05/07/maple-leafs-lineup-panthers-nhl-playoffs-game-2/
+
 **New Restaurants in New York City with Standout Design**\
 `Visitors should at least peek into some of these spots, including a sushi restaurant with a 2D interior and a Baz Luhrmann-owned joint with major medieval vibes.`\
 https://nytimes.com/2025/05/07/arts/design/restaurants-bars-new-york-city.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/05/05/opinion/thepoint/pakistan-india-bombing
 **Are U.S. Tariffs Affecting Your Business? We Want to Hear From You.**\
 `The New York Times wants to hear from European business owners about how they are navigating the uncertainty of President Trump’s tariffs.`\
 https://nytimes.com/2025/05/07/business/trump-tariffs-europe-small-businesses.html
-
-**Salt Lake City and Boise Adopt Official Pride Flags in Response to State Laws**\
-`The cities approved several new flags after Utah and Idaho passed laws barring unofficial flags from being displayed on government property.`\
-https://nytimes.com/2025/05/07/us/salt-lake-city-boise-pride-flags.html
-
-**With Telescoping Crutches and Hexapod Legs, Dance Goes New Places**\
-`A new work by Axis Dance Company, “Kinematic/Kinesthetic,” uses mobility technologies to reshape ideas about moving and about the devices themselves.`\
-https://nytimes.com/2025/05/07/arts/dance/axis-dance-assistive-devices-kinematic-kinesthetic.html
-
-**Listen: Who should leave Spurs this summer?**\
-`View From The Lane discuss which players Spurs should consider offloading and who they should target this summer.`\
-https://nytimes.com/athletic/6337033/2025/05/07/view-from-the-lane-tottenham-summer-2025-transfers/
-
-**Genetic Study Retraces the Origins of Coronaviruses in Bats**\
-`As China and the United States trade charges of a lab leak, researchers contend in a new paper that the Covid pandemic got its start, like a previous one, in the wildlife trade.`\
-https://nytimes.com/2025/05/07/science/covid-coronavirus-bats-genetics.html
 

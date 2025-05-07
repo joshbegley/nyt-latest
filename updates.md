@@ -1,3 +1,19 @@
+**Trump Administration Is Said to Target Park Service Grants**\
+`Dozens of programs, many linked to climate change and diversity, have been designated for elimination by DOGE, according to people with knowledge of the plan.`\
+https://nytimes.com/2025/05/07/climate/trump-park-service-grants-cuts.html
+
+**Libya’s Rival Governments Both Deny Deal to Take Deported U.S. Migrants**\
+`U.S. officials have said the Trump administration plans to send immigrants to the divided country on military flights as soon as this week.`\
+https://nytimes.com/2025/05/07/world/middleeast/libya-us-migrants-deal.html
+
+**Frieze New York Couldn’t Happen Without Scores of People Behind the Scenes**\
+`Security for art and attendees are among the roles that are crucial to the success of the fair.`\
+https://nytimes.com/2025/05/07/arts/design/frieze-new-york-behind-scenes.html
+
+**Maple Leafs lineup changes vs. Panthers: Joseph Woll to start; Matt Murray returns**\
+`Can Joseph Woll find his top form? Will the Leafs seek retribution over Sam Bennett's hit on Anthony Stolarz? Big questions loom in Game 2.`\
+https://nytimes.com/athletic/6338705/2025/05/07/maple-leafs-lineup-panthers-nhl-playoffs-game-2/
+
 **New Restaurants in New York City with Standout Design**\
 `Visitors should at least peek into some of these spots, including a sushi restaurant with a 2D interior and a Baz Luhrmann-owned joint with major medieval vibes.`\
 https://nytimes.com/2025/05/07/arts/design/restaurants-bars-new-york-city.html
