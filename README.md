@@ -1,4 +1,12 @@
-**Man Utd's De Ligt out of Athletic Club, West Ham but injury 'not serious'**\
+**Second U.S. Navy Jet in 2 Weeks Is Lost Off the U.S.S. Truman**\
+`The aircraft went overboard on Tuesday as it tried to land on the aircraft carrier stationed in the Red Sea. Two pilots suffered minor injuries.`\
+https://nytimes.com/2025/05/07/world/middleeast/us-navy-fighter-jet-truman-carrier-red-sea.html
+
+**Milwaukee Bucks offseason overview: Salary cap situation, roster needs and more**\
+`The Bucks need to think about Giannis Antetokounmpo for everything they do this offseason, but that's not different than any other year.`\
+https://nytimes.com/athletic/6334553/2025/05/07/bucks-offseason-overview-roster-cap/
+
+**Man Utd's De Ligt out of Athletic Club, West Ham but injury 'not a big issue'**\
 `De Ligt sustained a muscular injury in the 33rd minute of United's 4-3 defeat at Brentford in the Premier League on Sunday.`\
 https://nytimes.com/athletic/6334022/2025/05/07/manchester-united-de-ligt-injury-update/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010154204/top-cardinal-next-pope-hu
 **Why Jack Doohan lost his Alpine F1 seat in just 150 days**\
 `The pressure was on driver and team to perform quickly. For whatever reason, Jack Doohan fell short over six races with Alpine`\
 https://nytimes.com/athletic/6338485/2025/05/07/alpine-f1-jack-doohan-franco-colapinto/
-
-**A top cardinal asks for divine guidance at a ‘difficult’ moment in history.**\
-`By Emma Bubola and Jason Horowitz`\
-https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-top-cardinal-asks-for-divine-guidance-at-a-difficult-moment-in-history
-
-**Edmonton dominated even strength in Game 1 win. Can the Golden Knights flip it?**\
-`Vegas managed only five shots on goal at even strength over the final 40 minutes of the game. `\
-https://nytimes.com/athletic/6339042/2025/05/07/golden-knights-oilers-game-1/
 
