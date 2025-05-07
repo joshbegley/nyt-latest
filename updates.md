@@ -1,3 +1,8 @@
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
 **The Secret to Restaurant-Style Chicken at Home**\
 `Let the chicken cook itself, then turn the drippings into a savory lime butter sauce, Eric Kim writes.`\
 https://nytimes.com/2025/05/07/dining/how-to-make-chicken-at-home.html
