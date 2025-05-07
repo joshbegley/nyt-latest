@@ -1,3 +1,11 @@
+**Cubs takeaways: What’s going on with Ryan Pressly after historic loss in extra innings?**\
+`Also: Shota Imanaga's experience on the injured list, Cade Horton might be nearing his MLB debut and Cubs are seeking a front-line starter.`\
+https://nytimes.com/athletic/6338974/2025/05/07/cubs-takeaways-ryan-pressly/
+
+**India vs. Pakistan Is Also U.S. vs. China When It Comes to Arms Sales**\
+`Increasing Western military support to India, and China’s to Pakistan, signals a shift in global alignments — and another potential flashpoint for international tensions.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-weapons.html
+
 **Word of the Day: sabbatical**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/07/learning/word-of-the-day-sabbatical.html

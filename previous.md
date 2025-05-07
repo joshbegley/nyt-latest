@@ -1,3 +1,11 @@
+**Cubs takeaways: What’s going on with Ryan Pressly after historic loss in extra innings?**\
+`Also: Shota Imanaga's experience on the injured list, Cade Horton might be nearing his MLB debut and Cubs are seeking a front-line starter.`\
+https://nytimes.com/athletic/6338974/2025/05/07/cubs-takeaways-ryan-pressly/
+
+**India vs. Pakistan Is Also U.S. vs. China When It Comes to Arms Sales**\
+`Increasing Western military support to India, and China’s to Pakistan, signals a shift in global alignments — and another potential flashpoint for international tensions.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-weapons.html
+
 **Word of the Day: sabbatical**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/07/learning/word-of-the-day-sabbatical.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
 **A Syrian’s Tantalizing Glimpse of Her Lost Home**\
 `After the fall of the Assad regime, not all Syrian refugees can return to the country. One comes as close as she can.`\
 https://nytimes.com/interactive/2025/05/07/opinion/syria-refugee-border.html
-
-**Padres bullpen falters as Jackson Merrill’s return brings hope of more balance**\
-`The Padres allowed a 10-run inning, but Merrill returned with a 2-for-4 performance that was just as notable.`\
-https://nytimes.com/athletic/6338506/2025/05/07/padres-bullpen-jackson-merrill-yankees/
-
-**Capitals got what they expected from Hurricanes — and that could be a problem**\
-`It's no mystery what kind of game the Hurricanes want to play. The question is whether Spencer Carbery and the Capitals can adapt.`\
-https://nytimes.com/athletic/6338883/2025/05/07/capitals-hurricanes-nhl-playoffs-game-1-carbery/
 
