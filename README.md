@@ -1,3 +1,11 @@
+**Inter’s old limitations beginning to look like new frontiers - next stop, Munich**\
+`Joy and despair were in high supply as Inter claimed victory in a Champions League semi-final for the ages`\
+https://nytimes.com/athletic/6338493/2025/05/07/inter-barcelona-champions-league-semi-final/
+
+**Late Night Doesn’t Mind Canada Putting Trump in the Friend Zone**\
+`The president was firmly told that Canada won’t join the United States, though he says it would be a “wonderful marriage.” “People were, like, ‘How would he know?’” Jimmy Fallon said.`\
+https://nytimes.com/2025/05/07/arts/television/late-night-canada-trump.html
+
 **Lloyd: Cavs were more physical than the Pacers until they weren't. And now the pain lingers**\
 `For 47 minutes Tuesday, despite their injuries and absences, the Cavaliers were the more aggressive team. They ended up beaten and battered.`\
 https://nytimes.com/athletic/6338970/2025/05/07/cavaliers-pacers-nba-playoffs-game-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6338883/2025/05/07/capitals-hurricanes-nhl-playoffs
 **Jasson Domínguez's hustle sparks Yankees' 10-run barrage in win over Padres**\
 `Domínguez's hustle double was the talk after the Yankees victory. "He's got all the tools in the world," Ben Rice said. "It's fun to watch."`\
 https://nytimes.com/athletic/6338831/2025/05/07/jasson-dominguez-yankees-win-over-padres/
-
-**Test Your Knowledge of the Papal Conclave**\
-`Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
-
-**How to watch Paris Saint-Germain vs. Arsenal in Champions League semifinal second leg**\
-`PSG claimed the first leg in London last week, a 1-0 grinder over Arsenal settled by Ousmane Dembélé. The rematch goes down Wednesday.`\
-https://nytimes.com/athletic/6337794/2025/05/07/arsenal-paris-psg-champions-league-how-to-watch/
 
