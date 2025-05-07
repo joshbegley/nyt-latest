@@ -1,3 +1,11 @@
+**Royce Lewis returns; Twins win on homers by Correa and Buxton as López shines**\
+`His bat was quiet, but Lewis brought his enthusiastic style back to the clubhouse in his first game since injuring his hamstring March 16.`\
+https://nytimes.com/athletic/6338762/2025/05/07/twins-win-royce-lewis-returns/
+
+**The guard of honour: Performative nonsense for the sake of being seen to do the 'right thing'**\
+`English tradition may have an appeal, and it's a nice ceremonial touch, but ahead of four Liverpool games just feels like overkill`\
+https://nytimes.com/athletic/6336777/2025/05/07/guard-honour-liverpool-chelsea-performative/
+
 **Quote of the Day: After a Stumble, Merz Becomes German Leader**\
 `Quotation of the Day for Wednesday, May 7, 2025.`\
 https://nytimes.com/2025/05/07/pageoneplus/quote-of-the-day-after-a-stumble-merz-becomes-german-leader.html
