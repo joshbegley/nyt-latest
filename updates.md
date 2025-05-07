@@ -1,3 +1,11 @@
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/06/us/trump-administration-updates/heres-what-happened-on-tuesday
+
+**What we learned from Blues' locker clean-out day: Game 7 reflection, injury updates, more**\
+`The Blues cleaned their lockers Tuesday and reflected on their Game 7 loss to Winnipeg, while also looking to the future.`\
+https://nytimes.com/athletic/6337262/2025/05/06/blues-game-7-nhl-playoffs-injury/
+
 **Big Ten revenue soared to $928 million for 2024 fiscal year**\
 `Conference dispersed more than $63 million to its long-standing members, a number that outpaced the SEC and which is expected to grow.`\
 https://nytimes.com/athletic/6338425/2025/05/06/big-ten-revenue-soared-2024/
