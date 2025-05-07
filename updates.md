@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
 
+**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
+`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
+`\
+https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
+
 **Trump names Andrew Giuliani director of 2026 World Cup task force**\
 `FIFA advisor and former U.S. Soccer Federation president Carlos Cordeiro has also been announced as a senior advisor.`\
 https://nytimes.com/athletic/6338284/2025/05/06/donald-trump-andrew-giuliani-2026-world-cup-task-force/
