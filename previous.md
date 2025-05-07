@@ -1,3 +1,7 @@
+**Who says baseball is boring? Giants win historically wild game in extra innings**\
+`The final result was the Giants defeating the Cubs 14-5, but it could have ended 5-3 or 5-4 about a half hour earlier.`\
+https://nytimes.com/athletic/6338476/2025/05/07/giants-win-wild-game-extra-innings/
+
 **How Tensions Between India and Pakistan Led to Strikes**\
 `India said early Wednesday that it had conducted strikes on Pakistan, two weeks after a deadly terror attack killed more than two dozen civilians in Indian-administered Kashmir.`\
 https://nytimes.com/video/world/asia/100000010141396/how-tensions-between-india-and-pakistan-led-to-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6338967/2025/05/07/oilers-nhl-playoffs-2025-pickard
 **Wednesday Briefing**\
 `The papal conclave begins.`\
 https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html
-
-**The New York Times in Print for Wednesday, May 7, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
 
