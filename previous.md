@@ -1,3 +1,7 @@
+**Smokey Robinson’s Victory Lap Upended by Allegations of Sexual Assault**\
+`The Motown legend, 85, was touring to support a new album when he was sued and accused of sexually assaulting four women who had worked as housekeepers for him.`\
+https://nytimes.com/2025/05/07/arts/music/smokey-robinson-sexual-assault.html
+
 **Luis Enrique makes light of Ligue 1 critics as PSG reach Champions League final**\
 `Luis Enrique joked his side's success was impressive for a team from “the league of farmers”.`\
 https://nytimes.com/athletic/6341015/2025/05/07/luis-enrique-psg-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/opinion/met-gala-tax-dedution-charity.html
 **Pro-Palestinian Protesters Occupy Columbia University Library**\
 `Dozens of pro-Palestinian protesters clashed with public safety officers while rallying in a Columbia University library on Wednesday.`\
 https://nytimes.com/video/nyregion/100000010156028/columbia-pro-palestinian-protest.html
-
-**Cardinals believe new bullpen plan will bring more consistency to late innings**\
-`The Cardinals redefined the roles of Gordon Graceffo and Steven Matz as part of a new approach.`\
-https://nytimes.com/athletic/6340362/2025/05/07/cardinals-bullpen-late-innings/
 

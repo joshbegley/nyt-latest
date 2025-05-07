@@ -1,3 +1,7 @@
+**Smokey Robinson’s Victory Lap Upended by Allegations of Sexual Assault**\
+`The Motown legend, 85, was touring to support a new album when he was sued and accused of sexually assaulting four women who had worked as housekeepers for him.`\
+https://nytimes.com/2025/05/07/arts/music/smokey-robinson-sexual-assault.html
+
 **Luis Enrique makes light of Ligue 1 critics as PSG reach Champions League final**\
 `Luis Enrique joked his side's success was impressive for a team from “the league of farmers”.`\
 https://nytimes.com/athletic/6341015/2025/05/07/luis-enrique-psg-champions-league/
