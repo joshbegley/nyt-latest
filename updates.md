@@ -1,3 +1,7 @@
+**Florida Wildlife Officers Kill 3 Black Bears After Deadly Attack**\
+`The state’s wildlife agency will test the bears’ DNA to determine if any of them had attacked and killed an 89-year-old man.`\
+https://nytimes.com/2025/05/06/us/florida-bears-killed-attack.html
+
 **25 Years of N.Y.C. Dining**\
 `A timeline of major food moments — restaurant openings, innovations, fads, pop culture cameos, blackouts and bans — that changed life in New York City in the first quarter of the 21st century.`\
 https://nytimes.com/interactive/2025/05/06/dining/25-years-nyc-restaurants.html
