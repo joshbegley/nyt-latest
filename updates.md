@@ -1,3 +1,7 @@
+**Luis Enrique makes light of Ligue 1 critics as PSG reach Champions League final**\
+`Luis Enrique joked his side's success was impressive for a team from “the league of farmers”.`\
+https://nytimes.com/athletic/6341015/2025/05/07/luis-enrique-psg-champions-league/
+
 **Liam Payne Left a $32.3 Million Estate and No Will, Reports Say**\
 `Mr. Payne, a former member of the boy band One Direction, died after falling from a third-story hotel balcony in October.`\
 https://nytimes.com/2025/05/07/arts/music/liam-payne-estate-will.html
