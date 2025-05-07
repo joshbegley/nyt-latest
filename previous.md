@@ -1,5 +1,5 @@
 **Deadline nears for Astros to keep Brendan Rodgers at second base after Jose Altuve**\
-`Rodgers could have strengthened his case to stick on Houston after hitting h a 3-run homer in in Tuesday night's 4-3 loss to the Brewers.`\
+`Rodgers could have strengthened his case to stick on Houston after hitting a 3-run homer in Tuesday night's 4-3 loss to the Brewers.`\
 https://nytimes.com/athletic/6338658/2025/05/06/astros-brendan-rodgers-second-base-jose-altuve/
 
 **Steph Curry leaves Game 1 vs. Timberwolves with hamstring strain**\
