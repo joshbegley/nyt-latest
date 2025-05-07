@@ -1,3 +1,11 @@
+**JD Vance’s Half Brother Advances in Race for Cincinnati Mayor**\
+`Cory Bowman will next face Aftab Pureval, the Democratic incumbent, who outperformed him in Tuesday’s nonpartisan primary.`\
+https://nytimes.com/2025/05/06/us/jd-vance-brother-cincinnati-mayor.html
+
+**NBA playoff takeaways: Pacers, Haliburton steal Game 2 with late 3**\
+`The Cavaliers were up the entire fourth quarter, except for the final second.`\
+https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
+
 **Tyrese Haliburton's buzzer-beater stuns Cavaliers, hands Pacers 2-0 lead**\
 `The Cavs had led the game by 20 points on multiple occasions, only to lose 120-119.`\
 https://nytimes.com/athletic/6338623/2025/05/06/tyrese-haliburton-cavaliers-pacers-game-2-buzzer-beater/
