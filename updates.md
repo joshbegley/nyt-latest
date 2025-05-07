@@ -1,3 +1,15 @@
+**Republican Challenger in Long-Contested N.C. Race Concedes Defeat**\
+`Three counts had showed that the incumbent, a Democrat, won the election last fall. But for months, Judge Jefferson Griffin tried to reverse his loss through the courts.`\
+https://nytimes.com/2025/05/07/us/politics/north-carolina-supreme-court-gop-concession.html
+
+**Sabres add Eric Staal to front office, retain Kevyn Adams as GM**\
+`Staal played 32 games for the Sabres during the 2020-21 season. He will report to Adams, who will be back for a sixth season as GM.`\
+https://nytimes.com/athletic/6339981/2025/05/07/sabres-kevyn-adams-eric-staal-nhl/
+
+**Why A'ja Wilson's new Nike ad is the best TV commercial of the year: MoneyCall**\
+`In this week's sports business forecast from The Athletic: A'ja Wilson, Derby ratings, D.C. draft day, $40 million Texas football and more.`\
+https://nytimes.com/athletic/6339860/2025/05/07/aja-wilson-nike-wnba-caitlin-clark-moneycall/
+
 **From 'struggling to look at myself' to playoff hero: How Tyrese Haliburton rediscovered his joy**\
 `The Pacers star reveals the mental health struggles that "consumed" him early this season and how he confronted them head on.`\
 https://nytimes.com/athletic/6338707/2025/05/07/tyrese-haliburton-pacers-cavaliers-mental-health-nba-playoffs/
