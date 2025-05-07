@@ -1,3 +1,23 @@
+**Tyrese Haliburton's dream playoff run continues for Pacers: 'That boy cold, man'**\
+`Haliburton scored four points in the final 12 seconds, including the game-winning 3, to stun the Cavaliers on the road.`\
+https://nytimes.com/athletic/6339239/2025/05/07/tyrese-haliburton-pacers-playoffs-game-2-game-winner/
+
+**The Oilers have mastered the art of the comeback win: 'This team is built for the playoffs'**\
+`The Oilers secured their fifth straight come-from-behind win — an NHL playoff record — when they defeated the Golden Knights 4-2 in Game 1.`\
+https://nytimes.com/athletic/6339141/2025/05/07/oilers-golden-knights-comeback-win-nhl-playoffs/
+
+**Chris Finch challenges Anthony Edwards after Wolves' Game 1 dud: 'It starts with Ant'**\
+`Edwards wasn't the only Minnesota player to struggle against Golden State. But as the team's best player and leader, he has to be better.`\
+https://nytimes.com/athletic/6338365/2025/05/07/anthony-edwards-timberwolves-playoffs-game-1-warriors-chris-finch/
+
+**Bodo/Glimt fans trade dried fish and reindeer meat for Spurs tickets**\
+`50,000 Bodo/Glimt fans had been vying for the 480 tickets that were on general sale for the game on Thursday.`\
+https://nytimes.com/athletic/6339282/2025/05/07/bodo-glimt-tottenham-tickets/
+
+**Countdown to China Trade Talks**\
+`Treasury Secretary Scott Bessent will finally start negotiating with Chinese counterparts. But business leaders shouldn’t expect any sudden breakthroughs.`\
+https://nytimes.com/2025/05/07/business/dealbook/countdown-to-china-trade-talks.html
+
 **How did Warriors win Game 1 after Steph Curry injury? With depth and toughness**\
 `With Curry's status uncertain going forward, Golden State will continue to need a collective effort against the Timberwolves.`\
 https://nytimes.com/athletic/6338582/2025/05/07/warriors-playoffs-steph-curry-injury-draymond-green-game-1-wolves/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/07/world/middleeast/israel-gaza-displacement-plan-re
 **The Athletic FC: Crazy tie as Inter beat Barca, Trump picks Giuliani Jnr for World Cup task force**\
 `Today in TAFC: Analysing a classic as Inter beat Barca to reach Champions League final, Trump appoints Giuliani Jr to World Cup taskforce.`\
 https://nytimes.com/athletic/6339212/2025/05/07/inter-barcelona-champions-league-trump-giuliani/
-
-**New York Times Adds 250,000 Digital Subscribers**\
-`The company had nearly 11.7 million total subscribers at the end of March. Adjusted operating profit grew 21.9 percent compared with the same quarter a year ago.`\
-https://nytimes.com/2025/05/07/business/media/new-york-times-adds-250000-digital-subscribers.html
-
-**Israel Downs Drone as Houthis Vow to Continue Tit-for-Tat Strikes**\
-`The Israeli military said it had intercepted an unmanned vehicle a day after President Trump said the U.S. would step back from conflict with the Iran-backed group.`\
-https://nytimes.com/2025/05/07/world/middleeast/israel-houthis.html
-
-**As NHL playoffs enter Round 2, who will win the Stanley Cup and why?**\
-`Analytical and betting odds have swung dramatically so far this postseason. Here's where three outlets currently stand.`\
-https://nytimes.com/athletic/6338693/2025/05/07/nhl-playoffs-round-2-stanley-cup-odds-analysis/
-
-**NHL rumblings: Where the Islanders, Ducks, Flyers and Kings stand on coach/GM searches and more**\
-`Also, could the Capitals' assistants become hot candidates whenever the NHL's surprise team of 2024-25 concludes its playoff run?`\
-https://nytimes.com/athletic/6338637/2025/05/07/nhl-rumblings-islanders-flyers-ducks-kings/
-
-**Women's college basketball transfer portal fits: MiLaysia Fulwiley at LSU and more**\
-`Nearly 300 power conference players entered the transfer portal this offseason. Who made the best moves? `\
-https://nytimes.com/athletic/6337550/2025/05/07/transfer-portal-fits-uconn-lsu-milaysia-fulwiley/
 
