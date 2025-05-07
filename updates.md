@@ -1,3 +1,11 @@
+**Test your knowledge of the papal conclave**\
+`Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
+
+**How to watch Paris Saint-Germain vs. Arsenal in Champions League semifinal second leg**\
+`PSG claimed the first leg in London last week, a 1-0 grinder over Arsenal settled by Ousmane Dembélé. The rematch goes down Wednesday.`\
+https://nytimes.com/athletic/6337794/2025/05/07/arsenal-paris-psg-champions-league-how-to-watch/
+
 **Doku is rediscovering the form that made him Alexander-Arnold's tormentor-in-chief**\
 `The excitement that greeted the winger's early weeks at Manchester City has started to return`\
 https://nytimes.com/athletic/6335338/2025/05/07/jeremy-doku-manchester-city-trent-alexander-arnold/

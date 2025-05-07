@@ -1,3 +1,7 @@
+**Jasson Domínguez's hustle sparks Yankees' 10-run barrage in win over Padres**\
+`Domínguez’s hustle double was the talk after the Yankees victory. “He's got all the tools in the world,” Ben Rice said. “It's fun to watch."`\
+https://nytimes.com/athletic/6338831/2025/05/07/jasson-dominguez-yankees-win-over-padres/
+
 **Test your knowledge of the papal conclave**\
 `Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336583/2025/05/07/bart-verbruggen-important-for-br
 **Moises Caicedo: Chelsea's player of the season who has thrived out of position**\
 `The versatile Ecuadorian has thrived for Enzo Maresca's side this season and was deservedly voted the team's top performer`\
 https://nytimes.com/athletic/6336960/2025/05/07/moises-caicedo-chelsea-player-of-the-season-out-of-position/
-
-**Trent Alexander-Arnold, Real Madrid and the Club World Cup – here's what we're hearing**\
-`The Liverpool player's contract expires on June 30, 16 days after the Club World Cup begins in the U.S. Will he be a Madrid player by then?`\
-https://nytimes.com/athletic/6336922/2025/05/07/trent-alexander-arnold-real-madrid-liverpool-club-world-cup/
 
