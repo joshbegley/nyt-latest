@@ -1,3 +1,7 @@
+**Commanders mailbag, Part 2: Adam Peters' draft strategy, stadium news, Javon Kinlaw's role**\
+`Plus, is there an undrafted free agent to keep an eye on as Washington heads into rookie minicamp?`\
+https://nytimes.com/athletic/6337223/2025/05/07/commanders-mailbag-stadium-nfl-draft/
+
 **Bills 53-man roster projection: Where new and returning players could fit in this season**\
 `New and returning faces could shake up some starting positions.`\
 https://nytimes.com/athletic/6337802/2025/05/07/bills-53-man-roster-projection-defense-draft-picks/

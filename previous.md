@@ -1,3 +1,7 @@
+**Commanders mailbag, Part 2: Adam Peters' draft strategy, stadium news, Javon Kinlaw's role**\
+`Plus, is there an undrafted free agent to keep an eye on as Washington heads into rookie minicamp?`\
+https://nytimes.com/athletic/6337223/2025/05/07/commanders-mailbag-stadium-nfl-draft/
+
 **Bills 53-man roster projection: Where new and returning players could fit in this season**\
 `New and returning faces could shake up some starting positions.`\
 https://nytimes.com/athletic/6337802/2025/05/07/bills-53-man-roster-projection-defense-draft-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337960/2025/05/07/cowboys-rookie-minicamp-donovan-
 **With Tears of Joy and Anxiety, Waiting for P.O.W.s to Come Home, at Last**\
 `In a parking lot in Ukraine, hundreds of family members gathered to greet loved ones being repatriated from Russian prisons. Amid happy reunions, there was anguish, too.`\
 https://nytimes.com/2025/05/07/world/europe/ukraine-pow-prisoners-exchange.html
-
-**Do You Believe in the American Dream?**\
-`Is it available to everyone today? Was it ever?`\
-https://nytimes.com/2025/05/07/learning/do-you-believe-in-the-american-dream.html
 
