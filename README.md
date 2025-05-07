@@ -1,3 +1,7 @@
+**How Tensions Between India and Pakistan Led to Strikes**\
+`India said early Wednesday that it had conducted strikes on Pakistan, two weeks after a deadly terror attack killed more than two dozen civilians in Indian-administered Kashmir.`\
+https://nytimes.com/video/world/asia/100000010141396/how-tensions-between-india-and-pakistan-led-to-strikes.html
+
 **Cubs takeaways: What’s going on with Ryan Pressly after historic loss in extra innings?**\
 `Also: Shota Imanaga's experience on the injured list, Cade Horton might be nearing his MLB debut and Cubs are seeking a front-line starter.`\
 https://nytimes.com/athletic/6338974/2025/05/07/cubs-takeaways-ryan-pressly/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html
 **The New York Times in Print for Wednesday, May 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
-
-**A Syrian’s Tantalizing Glimpse of Her Lost Home**\
-`After the fall of the Assad regime, not all Syrian refugees can return to the country. One comes as close as she can.`\
-https://nytimes.com/interactive/2025/05/07/opinion/syria-refugee-border.html
 
