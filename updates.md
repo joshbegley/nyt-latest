@@ -1,3 +1,11 @@
+**These Beautiful Birds Form Something Like Lasting Friendships**\
+`Superb starlings help care for the offspring of birds they are not related to. “To me, that sounds like friendship,” one scientist said.`\
+https://nytimes.com/2025/05/07/science/birds-friendships-superb-starlings.html
+
+**Trump Withdraws Surgeon General Nomination and Announces New Choice**\
+`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of Dr. Janette Nesheiwat, his first pick, a former Fox News contributor.`\
+https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html
+
 **Trump Withdraws Surgeon General Nomination and Announces New Choice**\
 `The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of his first pick, a former Fox News contributor.`\
 https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html

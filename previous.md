@@ -1,3 +1,7 @@
+**These Beautiful Birds Form Something Like Lasting Friendships**\
+`Superb starlings help care for the offspring of birds they are not related to. “To me, that sounds like friendship,” one scientist said.`\
+https://nytimes.com/2025/05/07/science/birds-friendships-superb-starlings.html
+
 **Clarence O. Smith, a Founder of Essence Magazine, Is Dead at 92**\
 `As president, he helped persuade companies like Estée Lauder and Ford to advertise in the pages of the first mass-circulation magazine directed at Black women.`\
 https://nytimes.com/2025/05/07/business/media/clarence-o-smith-dead.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/05/07/briefing/conclave-day-one-covid-study-venice-coff
 https://nytimes.com/athletic/6340696/2025/05/07/sec-football-nine-game-schedule-espn-money/
 
 **Trump Withdraws Surgeon General Nomination and Announces New Choice**\
-`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of his first pick, a former Fox News contributor.`\
+`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of Dr. Janette Nesheiwat, his first pick, a former Fox News contributor.`\
 https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html
 
 **Helicopter Broke Apart Before Crashing Into Hudson River, Report Says**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/well/robin-arzon-exercise-tips.html
 **Thursday Briefing: What’s Next for India and Pakistan?**\
 `Plus, the power of siblings.`\
 https://nytimes.com/2025/05/07/briefing/india-pakistan-pope-conclave-gaza-israel-airstrikes.html
-
-**PSG 2 Arsenal 1 (agg: 3-1): Decisive Donnarumma, worthy finalists, Arteta's set-piece problem**\
-`Paris Saint-Germain saw off Arsenal to book a date with Inter in the Champions League final - The Athletic analyses the action`\
-https://nytimes.com/athletic/6336860/2025/05/07/psg-2-arsenal-1-champions-league-donnarumma-arteta/
 
