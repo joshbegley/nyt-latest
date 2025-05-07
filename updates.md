@@ -1,3 +1,19 @@
+**Gazans Despair After Israel Announces More Displacement**\
+`Israel’s plan to capture more land in Gaza and relocate thousands of civilians has heightened a sense of hopelessness among Palestinians.`\
+https://nytimes.com/2025/05/07/world/middleeast/israel-gaza-displacement-plan-reaction.html
+
+**The Athletic FC: Crazy tie as Inter beat Barca, Trump picks Giuliani Jnr for World Cup task force**\
+`Today in TAFC: Analysing a classic as Inter beat Barca to reach Champions League final, Trump appoints Giuliani Jr to World Cup taskforce.`\
+https://nytimes.com/athletic/6339212/2025/05/07/inter-barcelona-champions-league-trump-giuliani/
+
+**New York Times Adds 250,000 Digital Subscribers**\
+`The company had nearly 11.7 million total subscribers at the end of March. Adjusted operating profit grew 21.9 percent compared with the same quarter a year ago.`\
+https://nytimes.com/2025/05/07/business/media/new-york-times-adds-250000-digital-subscribers.html
+
+**Israel Downs Drone as Houthis Vow to Continue Tit-for-Tat Strikes**\
+`The Israeli military said it had intercepted an unmanned vehicle a day after President Trump said the U.S. would step back from conflict with the Iran-backed group.`\
+https://nytimes.com/2025/05/07/world/middleeast/israel-houthis.html
+
 **16 stats: Rantanen and the importance of star power, Hutson's playoff debut, more**\
 `The value of star power vs. depth in the NHL playoffs. Plus, players who have stepped up in the postseason and much more. 
 `\
