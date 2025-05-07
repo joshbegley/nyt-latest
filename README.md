@@ -23,7 +23,7 @@ https://nytimes.com/2025/05/07/briefing/conclave-day-one-covid-study-venice-coff
 https://nytimes.com/athletic/6340696/2025/05/07/sec-football-nine-game-schedule-espn-money/
 
 **Trump Withdraws Surgeon General Nomination and Announces New Choice**\
-`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of his first pick, a former Fox News contributor.`\
+`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of Dr. Janette Nesheiwat, his first pick, a former Fox News contributor.`\
 https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html
 
 **Helicopter Broke Apart Before Crashing Into Hudson River, Report Says**\
