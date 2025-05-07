@@ -1,3 +1,7 @@
+**Son of El Chapo to Plead Guilty to Federal Drug Charges**\
+`Ovidio Guzmán López would become the first of El Chapo’s sons to acknowledge guilt in a U.S. federal courthouse, after federal investigators turned their attention from the drug lord to his children.`\
+https://nytimes.com/2025/05/06/us/politics/el-chapo-son-drug-charges.html
+
 **Here’s what happened on Tuesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/06/us/trump-administration-updates/heres-what-happened-on-tuesday
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/technology/nso-meta-damages-whatsapp.html
 **Frank Lloyd Wright Skyscraper Sells After Canceled Auction**\
 `Price Tower, the architect’s only realized vision for a skyscraper, is going to a company that says it will restore the Oklahoma building for use as a hotel and residences.`\
 https://nytimes.com/2025/05/06/arts/frank-lloyd-wright-skyscraper-sells-after-canceled-auction.html
-
-**At Harvard, a Clash Between Democracy and Monarchy**\
-`A debate between the political theorist Danielle Allen and the right-wing blogger Curtis Yarvin drew a curious crowd — and questions about whether it should be happening at all.`\
-https://nytimes.com/2025/05/06/arts/yarvin-allen-debate-harvard.html
 

@@ -1,3 +1,7 @@
+**Son of El Chapo to Plead Guilty to Federal Drug Charges**\
+`Ovidio Guzmán López would become the first of El Chapo’s sons to acknowledge guilt in a U.S. federal courthouse, after federal investigators turned their attention from the drug lord to his children.`\
+https://nytimes.com/2025/05/06/us/politics/el-chapo-son-drug-charges.html
+
 **Here’s what happened on Tuesday.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/06/us/trump-administration-updates/heres-what-happened-on-tuesday
