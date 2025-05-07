@@ -1,3 +1,7 @@
+**Trump Administration Is Said to Target Park Service Grants**\
+`Dozens of programs, many linked to climate change and diversity, have been designated for elimination by DOGE, according to people with knowledge of the plan.`\
+https://nytimes.com/2025/05/07/climate/trump-park-service-grants-cuts.html
+
 **Libya’s Rival Governments Both Deny Deal to Take Deported U.S. Migrants**\
 `U.S. officials have said the Trump administration plans to send immigrants to the divided country on military flights as soon as this week.`\
 https://nytimes.com/2025/05/07/world/middleeast/libya-us-migrants-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/05/opinion/thepoint/pakistan-india-bombing
 **Are U.S. Tariffs Affecting Your Business? We Want to Hear From You.**\
 `The New York Times wants to hear from European business owners about how they are navigating the uncertainty of President Trump’s tariffs.`\
 https://nytimes.com/2025/05/07/business/trump-tariffs-europe-small-businesses.html
-
-**Salt Lake City and Boise Adopt Official Pride Flags in Response to State Laws**\
-`The cities approved several new flags after Utah and Idaho passed laws barring unofficial flags from being displayed on government property.`\
-https://nytimes.com/2025/05/07/us/salt-lake-city-boise-pride-flags.html
 
