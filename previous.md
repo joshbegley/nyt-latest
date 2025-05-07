@@ -1,3 +1,7 @@
+**Congress Grills College Presidents With an Old Script and New Threats**\
+`In a House hearing, lawmakers scrutinized a set of college leaders from institutions outside the Ivy League schools that have drawn the Trump administration's attention.`\
+https://nytimes.com/2025/05/07/us/congress-hearing-college-presidents-haverford.html
+
 **Smokey Robinson’s Victory Lap Upended by Allegations of Sexual Assault**\
 `The Motown legend, 85, was touring to support a new album when he was sued and accused of sexually assaulting four women who had worked as housekeepers for him.`\
 https://nytimes.com/2025/05/07/arts/music/smokey-robinson-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6340911/2025/05/07/cubs-ryan-pressly-bad-outing-rea
 **Why Does the Met Gala Get a Better Tax Deal Than a Soup Kitchen?**\
 `The charitable tax deduction is distorting American philanthropy.`\
 https://nytimes.com/2025/05/07/opinion/met-gala-tax-dedution-charity.html
-
-**Pro-Palestinian Protesters Occupy Columbia University Library**\
-`Dozens of pro-Palestinian protesters clashed with public safety officers while rallying in a Columbia University library on Wednesday.`\
-https://nytimes.com/video/nyregion/100000010156028/columbia-pro-palestinian-protest.html
 

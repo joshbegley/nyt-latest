@@ -1,3 +1,7 @@
+**Congress Grills College Presidents With an Old Script and New Threats**\
+`In a House hearing, lawmakers scrutinized a set of college leaders from institutions outside the Ivy League schools that have drawn the Trump administration's attention.`\
+https://nytimes.com/2025/05/07/us/congress-hearing-college-presidents-haverford.html
+
 **Smokey Robinson’s Victory Lap Upended by Allegations of Sexual Assault**\
 `The Motown legend, 85, was touring to support a new album when he was sued and accused of sexually assaulting four women who had worked as housekeepers for him.`\
 https://nytimes.com/2025/05/07/arts/music/smokey-robinson-sexual-assault.html
