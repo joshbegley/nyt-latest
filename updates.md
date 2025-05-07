@@ -1,3 +1,23 @@
+**The New York Times in Print for Wednesday, May 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
+
+**A Syrian’s Tantalizing Glimpse of Her Lost Home**\
+`After the fall of the Assad regime, not all Syrian refugees can return to the country. One comes as close as she can.`\
+https://nytimes.com/interactive/2025/05/07/opinion/syria-refugee-border.html
+
+**Capitals got what they expected from Hurricanes — and that could be a problem**\
+`It's no mystery what kind of game the Hurricanes want to play. The question is whether Spencer Carbery and the Capitals can adapt.`\
+https://nytimes.com/athletic/6338883/2025/05/07/capitals-hurricanes-nhl-playoffs-game-1-carbery/
+
+**Jasson Domínguez's hustle sparks Yankees' 10-run barrage in win over Padres**\
+`Domínguez's hustle double was the talk after the Yankees victory. "He's got all the tools in the world," Ben Rice said. "It's fun to watch."`\
+https://nytimes.com/athletic/6338831/2025/05/07/jasson-dominguez-yankees-win-over-padres/
+
+**Test Your Knowledge of the Papal Conclave**\
+`Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
+
 **Padres bullpen falters as Jackson Merrill’s return brings hope of more balance**\
 `The Padres allowed a 10-run inning, but Merrill returned with a 2-for-4 performance that was just as notable.`\
 https://nytimes.com/athletic/6338506/2025/05/07/padres-bullpen-jackson-merrill-yankees/

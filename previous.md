@@ -1,16 +1,24 @@
+**The New York Times in Print for Wednesday, May 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
+
+**A Syrian’s Tantalizing Glimpse of Her Lost Home**\
+`After the fall of the Assad regime, not all Syrian refugees can return to the country. One comes as close as she can.`\
+https://nytimes.com/interactive/2025/05/07/opinion/syria-refugee-border.html
+
 **Padres bullpen falters as Jackson Merrill’s return brings hope of more balance**\
 `The Padres allowed a 10-run inning, but Merrill returned with a 2-for-4 performance that was just as notable.`\
 https://nytimes.com/athletic/6338506/2025/05/07/padres-bullpen-jackson-merrill-yankees/
 
-**Capitals got what they expected from the Hurricanes — and that could be a problem**\
+**Capitals got what they expected from Hurricanes — and that could be a problem**\
 `It's no mystery what kind of game the Hurricanes want to play. The question is whether Spencer Carbery and the Capitals can adapt.`\
 https://nytimes.com/athletic/6338883/2025/05/07/capitals-hurricanes-nhl-playoffs-game-1-carbery/
 
 **Jasson Domínguez's hustle sparks Yankees' 10-run barrage in win over Padres**\
-`Domínguez’s hustle double was the talk after the Yankees victory. “He's got all the tools in the world,” Ben Rice said. “It's fun to watch."`\
+`Domínguez's hustle double was the talk after the Yankees victory. "He's got all the tools in the world," Ben Rice said. "It's fun to watch."`\
 https://nytimes.com/athletic/6338831/2025/05/07/jasson-dominguez-yankees-win-over-padres/
 
-**Test your knowledge of the papal conclave**\
+**Test Your Knowledge of the Papal Conclave**\
 `Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6337442/2025/05/07/oilers-golden-knights-nhl-playof
 **Mathys Tel is starting to answer some of the questions asked of him at Tottenham - so what next?**\
 `The 19 year old had a tough start to his loan spell at Spurs, but his recent performances have offered a glimpse of an exciting future`\
 https://nytimes.com/athletic/6337219/2025/05/07/mathys-tel-tottenham-transfer-2/
-
-**5 Charged After Deadly Migrant Boat Incident in California**\
-`The five people, all Mexican nationals, were arrested after a vessel carrying migrants capsized and killed at least three people near San Diego, the authorities said.`\
-https://nytimes.com/2025/05/07/us/smuggling-boat-migrants-del-mar-charges.html
-
-**Breaking down the three games that stand between Newcastle and the Champions League**\
-`Eddie Howe's side have their European fate in their own hands. But is their end to the season as daunting as it looks?`\
-https://nytimes.com/athletic/6334838/2025/05/07/newcastle-chelsea-arsenal-everton-champions-league/
 
