@@ -1,40 +1,41 @@
-**The Secret Process of Electing a New Pope**\
-`Once the conclave begins, cardinals are not allowed to leave, other than for meals and to sleep at night, until a successor is named.`\
-https://nytimes.com/2025/05/07/world/europe/pope-conclave-vote-process-what-time.html
+**As NHL playoffs enter Round 2, who will win the Stanley Cup and why?**\
+`Analytical and betting odds have swung dramatically so far this postseason. Here's where three outlets currently stand.`\
+https://nytimes.com/athletic/6338693/2025/05/07/nhl-playoffs-round-2-stanley-cup-odds-analysis/
 
-**Here’s the latest.**\
-`By Emma Bubola`\
-https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/heres-the-latest
+**NHL rumblings: Where the Islanders, Ducks, Flyers and Kings stand on coach/GM searches and more**\
+`Also, could the Capitals' assistants become hot candidates whenever the NHL's surprise team of 2024-25 concludes its playoff run?`\
+https://nytimes.com/athletic/6338637/2025/05/07/nhl-rumblings-islanders-flyers-ducks-kings/
 
-**Live Updates: Conclave to Elect New Pope Is Set to Begin**\
-`The most voting cardinals ever will gather in the Sistine Chapel to select the next leader of 1.4 billion Roman Catholics. The conclave comes at an uncertain moment for the church.`\
-https://nytimes.com/live/2025/05/07/world/pope-conclave-updates
+**Women's college basketball transfer portal fits: MiLaysia Fulwiley at LSU and more**\
+`Nearly 300 power conference players entered the transfer portal this offseason. Who made the best moves? `\
+https://nytimes.com/athletic/6337550/2025/05/07/transfer-portal-fits-uconn-lsu-milaysia-fulwiley/
 
-**Uber Revenue Up 14 Percent, Despite Economic Fears**\
-`The company also predicted that business in the current quarter would be stronger than Wall Street had predicted.`\
-https://nytimes.com/2025/05/07/technology/uber-earnings-revenue-tariffs.html
+**'Coolest thing ever': With every game, Pete Crow-Armstrong becoming a folk hero in Chicago**\
+`Crow-Armstrong is off and running and isn't short on enthusiasm. Playing on a good Cubs team has been like his own little baseball fantasy.`\
+https://nytimes.com/athletic/6338520/2025/05/07/chicago-cubs-pete-crow-armstrong/
 
-**China Agreed to U.S. Tariff Talks but Is Likely to Play Hardball**\
-`Beijing says it will meet with American officials to discuss trade, but warned Washington against using the engagement to ratchet up pressure on China.`\
-https://nytimes.com/2025/05/07/world/asia/china-us-tariff-talks.html
+**‘Bet on me’: How Geraldo Perdomo, one of MLB’s best shortstops, won over the Diamondbacks**\
+`He once butted heads with his manager. One teammate called him "pretty abrasive." But Geraldo Perdomo has since blossomed into a leader.`\
+https://nytimes.com/athletic/6338155/2025/05/07/geraldo-perdomo-mlb-diamondbacks/
 
-**Disney’s Park Business Grows Despite Consumer Angst**\
-`The company’s domestic theme parks have long been seen as a bellwether for consumer confidence. Revenue climbed 9 percent, to $6.5 billion, in the latest quarter.`\
-https://nytimes.com/2025/05/07/business/disney-earnings.html
+**2025 PWHL playoff preview: Montreal vs. Ottawa, Toronto vs. Minnesota**\
+`The PWHL postseason begins on Wednesday. Here's everything you need to know about both playoff series.`\
+https://nytimes.com/athletic/6335954/2025/05/07/pwhl-playoffs-2025-womens-hockey/
 
-**A Conclave Primer**\
-`We look at how the Catholic Church will select Pope Francis’ successor.`\
-https://nytimes.com/2025/05/07/briefing/conclave-what-to-know.html
+**What might have been: 5 games that changed the outcome of the 2025 NHL Draft Lottery**\
+`The Islanders won the No. 1 pick with long-shot odds. With the full benefit of hindsight, some very specific games had their say.`\
+https://nytimes.com/athletic/6337913/2025/05/07/nhl-draft-lottery-2025-islanders-games/
 
-**The Pulse: The first time in NBA history**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6337981/2025/05/07/pacers-warriors-round-2-the-pulse/
+**What are the risks in drafting Matthew Schaefer with No. 1 pick?**\
+`The New York Islanders will have to weigh Schaefer's limited body of work this season carefully.`\
+https://nytimes.com/athletic/6335238/2025/05/07/nhl-draft-2025-matthew-schaefer-risks/
 
-**Germany’s New Leader Has a Tough Job. It Just Got Tougher.**\
-`Friedrich Merz’s halting path to the chancellor’s office inflamed his challenges at home and abroad, including a threat from the far right.`\
-https://nytimes.com/2025/05/07/world/europe/germany-merz-vote-chancellor.html
+**Why Bo Nix has armor against a sophomore slump, RJ Harvey's vision: Broncos mailbag**\
+`Plus, do the Broncos have enough depth defensively to withstand possible injury absences by Dre Greenlaw or Alex Singleton?`\
+https://nytimes.com/athletic/6337877/2025/05/07/broncos-mailbag-bo-nix-rj-harvey-pat-bryant/
 
-**Which Vikings player is next in line for an extension? The 5 most likely candidates**\
-`After signing Andrew Van Ginkel to a new deal last week, there are some moves the Vikings could make this offseason.`\
-https://nytimes.com/athletic/6337548/2025/05/07/vikings-contract-extension-metellus-oneill/
+**16 stats: Rantanen and the importance of star power, Hutson's playoff debut, more**\
+`The value of star power vs. depth in the NHL playoffs. Plus, players who have stepped up in the postseason and much more. 
+`\
+https://nytimes.com/athletic/6338201/2025/05/07/nhl-playoffs-stats-mikko-rantanen-lane-hutson/
 
