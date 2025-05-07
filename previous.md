@@ -18,7 +18,7 @@ https://nytimes.com/2025/05/07/briefing/conclave-day-one-covid-study-venice-coff
 `Sources said the additional money ESPN would pay the SEC would likely be in the range of $50-80 million annually on top of the current deal.`\
 https://nytimes.com/athletic/6340696/2025/05/07/sec-football-nine-game-schedule-espn-money/
 
-**Trump Announces New Surgeon General Choice**\
+**Trump Withdraws Surgeon General Nomination and Announces New Choice**\
 `The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of his first pick, a former Fox News contributor.`\
 https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html
 

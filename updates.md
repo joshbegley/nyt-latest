@@ -1,3 +1,7 @@
+**Trump Withdraws Surgeon General Nomination and Announces New Choice**\
+`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of his first pick, a former Fox News contributor.`\
+https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html
+
 **Clarence O. Smith, a Founder of Essence Magazine, Is Dead at 92**\
 `As president, he helped persuade companies like Estée Lauder and Ford to advertise in the pages of the first mass-circulation magazine directed at Black women.`\
 https://nytimes.com/2025/05/07/business/media/clarence-o-smith-dead.html

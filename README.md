@@ -1,3 +1,7 @@
+**These Beautiful Birds Form Something Like Lasting Friendships**\
+`Superb starlings help care for the offspring of birds they are not related to. “To me, that sounds like friendship,” one scientist said.`\
+https://nytimes.com/2025/05/07/science/birds-friendships-superb-starlings.html
+
 **Clarence O. Smith, a Founder of Essence Magazine, Is Dead at 92**\
 `As president, he helped persuade companies like Estée Lauder and Ford to advertise in the pages of the first mass-circulation magazine directed at Black women.`\
 https://nytimes.com/2025/05/07/business/media/clarence-o-smith-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/well/robin-arzon-exercise-tips.html
 **Thursday Briefing: What’s Next for India and Pakistan?**\
 `Plus, the power of siblings.`\
 https://nytimes.com/2025/05/07/briefing/india-pakistan-pope-conclave-gaza-israel-airstrikes.html
-
-**PSG 2 Arsenal 1 (agg: 3-1): Decisive Donnarumma, worthy finalists, Arteta's set-piece problem**\
-`Paris Saint-Germain saw off Arsenal to book a date with Inter in the Champions League final - The Athletic analyses the action`\
-https://nytimes.com/athletic/6336860/2025/05/07/psg-2-arsenal-1-champions-league-donnarumma-arteta/
 
