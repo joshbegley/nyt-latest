@@ -1,3 +1,11 @@
+**25 Years of N.Y.C. Dining**\
+`A timeline of major food moments — restaurant openings, innovations, fads, pop culture cameos, blackouts and bans — that changed life in New York City in the first quarter of the 21st century.`\
+https://nytimes.com/interactive/2025/05/06/dining/25-years-nyc-restaurants.html
+
+**Smokey Robinson Accused of Sexual Assault by Former Housekeepers**\
+`The four women said the Motown legend abused them multiple times while they worked cleaning his home. His wife, they said, created a hostile work environment.`\
+https://nytimes.com/2025/05/06/us/smokey-robinson-sexual-assault-lawsuit.html
+
 **Son of El Chapo to Plead Guilty to Federal Drug Charges**\
 `Ovidio Guzmán López would become the first of El Chapo’s sons to acknowledge guilt in a U.S. federal courthouse, after federal investigators turned their attention from the drug lord to his children.`\
 https://nytimes.com/2025/05/06/us/politics/el-chapo-son-drug-charges.html
