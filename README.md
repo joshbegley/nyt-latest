@@ -1,3 +1,7 @@
+**China Cuts Interest Rates to Shore Up Economy Hit by Trade War**\
+`China’s central bank acted shortly after news that officials from China and the Trump administration will hold their first formal trade talks since the punishing tariffs began.`\
+https://nytimes.com/2025/05/06/business/china-interest-rates.html
+
 **Venezuela’s Opposition Leaders Flee to U.S. After 412 Days in Hiding**\
 `The five officials ran one of the most consequential presidential campaigns in the country’s history while sheltering at the Argentine diplomatic residence.`\
 https://nytimes.com/2025/05/06/world/americas/venezuela-opposition-argentina-embassy-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6338464/2025/05/06/capitals-hurricanes-nhl-playoffs
 **Color, Form and Geometry Are the Through Lines in Robert Mangold’s Career**\
 `At 87, the abstract artist Robert Mangold will exhibit 19 recent paintings and works, including one of his largest in decades.`\
 https://nytimes.com/2025/05/06/arts/design/robert-mangold-pace.html
-
-**Christo and Jeanne-Claude, Legendary Artists, Are Back in Spirit**\
-`Known for their outsized and revolutionary art projects, the couple’s work is seen again in Florida, New York and Germany.`\
-https://nytimes.com/2025/05/06/arts/design/art-museums-christo-jean-claude-revival.html
 
