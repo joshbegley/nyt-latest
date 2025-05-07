@@ -1,3 +1,7 @@
+**Las Vegas Got More Than a Third of its Annual Rainfall in Just Four Days**\
+`A man was swept away by the flooding rains, the police said.`\
+https://nytimes.com/2025/05/07/weather/las-vegas-flood-record-rain.html
+
 **Thursday Briefing: What’s Next for India and Pakistan?**\
 `Plus, the power of siblings.`\
 https://nytimes.com/2025/05/07/briefing/india-pakistan-pope-conclave-gaza-israel-airstrikes.html
