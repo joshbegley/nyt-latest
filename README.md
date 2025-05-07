@@ -1,3 +1,11 @@
+**25 Years of N.Y.C. Dining**\
+`A timeline of major food moments — restaurant openings, innovations, fads, pop culture cameos, blackouts and bans — that changed life in New York City in the first quarter of the 21st century.`\
+https://nytimes.com/interactive/2025/05/06/dining/25-years-nyc-restaurants.html
+
+**Smokey Robinson Accused of Sexual Assault by Former Housekeepers**\
+`The four women said the Motown legend abused them multiple times while they worked cleaning his home. His wife, they said, created a hostile work environment.`\
+https://nytimes.com/2025/05/06/us/smokey-robinson-sexual-assault-lawsuit.html
+
 **Son of El Chapo to Plead Guilty to Federal Drug Charges**\
 `Ovidio Guzmán López would become the first of El Chapo’s sons to acknowledge guilt in a U.S. federal courthouse, after federal investigators turned their attention from the drug lord to his children.`\
 https://nytimes.com/2025/05/06/us/politics/el-chapo-son-drug-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/dining/what-moms-want-mothers-day.html
 **Trump names Andrew Giuliani director of 2026 World Cup task force**\
 `FIFA advisor and former U.S. Soccer Federation president Carlos Cordeiro has also been announced as a senior advisor.`\
 https://nytimes.com/athletic/6338284/2025/05/06/donald-trump-andrew-giuliani-2026-world-cup-task-force/
-
-**Meta Awarded $167 Million in Damages From Israeli Cybersecurity Firm**\
-`Meta had sued the firm, NSO Group, for using its spyware to hack 1,400 WhatsApp accounts belonging to journalists, dissidents and others.`\
-https://nytimes.com/2025/05/06/technology/nso-meta-damages-whatsapp.html
-
-**Frank Lloyd Wright Skyscraper Sells After Canceled Auction**\
-`Price Tower, the architect’s only realized vision for a skyscraper, is going to a company that says it will restore the Oklahoma building for use as a hotel and residences.`\
-https://nytimes.com/2025/05/06/arts/frank-lloyd-wright-skyscraper-sells-after-canceled-auction.html
 
