@@ -1,3 +1,7 @@
+**The ‘We Can Do Hard Things’ Crew Is All Out of Advice**\
+`In their new book, Glennon Doyle, Abby Wambach and Amanda Doyle admit they don’t have the key to happiness. And their podcast audience loves them for it.`\
+https://nytimes.com/2025/05/07/well/we-can-do-hard-things-book-glennon-abby-amanda.html
+
 **Want to Be a Deep Sea Explorer? Don’t Worry, There’s Lots Left.**\
 `Researchers collected more than 43,000 records of dives and assessed the photos and videos to determine how much of the bottom has been seen by humans.`\
 https://nytimes.com/2025/05/07/climate/deep-sea-exploration.html
