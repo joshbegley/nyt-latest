@@ -1,3 +1,7 @@
+**Why Jack Doohan lost his Alpine F1 seat in just 150 days**\
+`The pressure was on driver and team to perform quickly. For whatever reason, Jack Doohan fell short over six races with Alpine`\
+https://nytimes.com/athletic/6338485/2025/05/07/alpine-f1-jack-doohan-franco-colapinto/
+
 **A top cardinal asks for divine guidance at a ‘difficult’ moment in history.**\
 `By Emma Bubola and Jason Horowitz`\
 https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-top-cardinal-asks-for-divine-guidance-at-a-difficult-moment-in-history
