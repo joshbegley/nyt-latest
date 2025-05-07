@@ -1,3 +1,15 @@
+**India Strikes Sites in Pakistan Following Terrorist Attack**\
+`Indian forces struck sites in Pakistan following a terrorist attack in Indian-administered Kashmir two weeks ago. The Pakistani government has denied involvement in that attack.`\
+https://nytimes.com/video/world/asia/100000010153618/india-strikes-pakistan.html
+
+**What we learned from Blues' locker clean-out day: Game 7 reflection, injury updates, more**\
+`The Blues cleaned their lockers Tuesday and reflected on their Game 7 loss to Winnipeg, while also looking ahead to the future.`\
+https://nytimes.com/athletic/6337262/2025/05/06/blues-game-7-nhl-playoffs-injury/
+
+**What NYT Cooking Moms Want on Mother’s Day**\
+`Lemon ricotta pancakes, mochi cake, furikake snack mix and — since you asked — some easy meal prep for the week.`\
+https://nytimes.com/2025/05/06/dining/what-moms-want-mothers-day.html
+
 **Trump names Andrew Giuliani director of 2026 World Cup task force**\
 `FIFA advisor and former U.S. Soccer Federation president Carlos Cordeiro has also been announced as a senior advisor.`\
 https://nytimes.com/athletic/6338284/2025/05/06/donald-trump-andrew-giuliani-2026-world-cup-task-force/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/05/06/business/economy/us-china-trade-talks.html
 **Fans Disappointed at Vogue’s Coverage of South Asian Stars at the Met Gala**\
 `Some fans felt two first-time attendees, Shah Rukh Khan and Diljit Dosanjh, were dismissed at the event.`\
 https://nytimes.com/2025/05/06/style/shah-rukh-khan-diljit-dosanjh-met-gala.html
-
-**Defense attorney challenges E.M. in Hockey Canada trial: 'You weren't scared'**\
-`Complainant says it was "the fear" that made it hard for her to make rational decisions: “I stayed put. I wish I didn’t.”
-`\
-https://nytimes.com/athletic/6337232/2025/05/06/hockey-canada-sexual-assault-trial-em-cross-examination/
-
-**Akron loses bowl eligibility due to low Academic Progress Report score**\
-`Akron's football program is the first to be banned from the postseason for academic reasons since Idaho in 2014.`\
-https://nytimes.com/athletic/6338210/2025/05/06/akron-loses-bowl-eligibility-academic-progress-report/
-
-**Upstate N.Y. school system’s support for trans athletes draws federal investigation.**\
-`The Saratoga Springs school board had pledged to safeguard students’ right to participate in activities consistent with their gender identity.`\
-https://nytimes.com/live/2025/05/06/us/trump-administration-updates/upstate-ny-school-systems-support-for-trans-athletes-draws-federal-investigation
 
