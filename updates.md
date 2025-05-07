@@ -1,3 +1,15 @@
+**These 10 U.S. Cardinals Have a Vote in Selecting the Next Pope**\
+`Six are joining in their first papal conclave, and four others participated in the 2013 conclave that elected Pope Francis.`\
+https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
+
+**Utah NHL team picks Mammoth as permanent name: How we got here, and what the new gear looks like**\
+`The colors from Year 1 in Utah remain unchanged in the new jerseys designed for the Mammoth.`\
+https://nytimes.com/athletic/6339788/2025/05/07/utah-mammoth-team-name-nhl/
+
+**Can the Canucks build a Cup contender around Quinn Hughes? Here’s 1 possible blueprint**\
+`What can the Canucks learn from the Capitals' bounce back this season?`\
+https://nytimes.com/athletic/6338541/2025/05/07/canucks-stanley-cup-quinn-hughes-nhl/
+
 **Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast’**\
 `Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
 https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html

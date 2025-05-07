@@ -1,3 +1,11 @@
+**These 10 U.S. Cardinals Have a Vote in Selecting the Next Pope**\
+`Six are joining in their first papal conclave, and four others participated in the 2013 conclave that elected Pope Francis.`\
+https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
+
+**Utah NHL team picks Mammoth as permanent name: How we got here, and what the new gear looks like**\
+`The colors from Year 1 in Utah remain unchanged in the new jerseys designed for the Mammoth.`\
+https://nytimes.com/athletic/6339788/2025/05/07/utah-mammoth-team-name-nhl/
+
 **D.C. Budget Fix Stalls in the House as Conservative Republicans Balk**\
 `Speaker Mike Johnson has said he would hold a vote “quickly” to restore more than $1 billion in funding, but ultraconservatives are insisting on attaching limits on abortion and voting rights.`\
 https://nytimes.com/2025/05/07/us/washington-dc-budget-house-johnson.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
 `The Inter defender was the key player for his side in both legs of the Champions League tie against Barcelona… but in subtly different ways`\
 https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-champions-league/
 
-**Can the Canucks build a Cup contender around Quinn Hughes? Here’s one possible blueprint**\
+**Can the Canucks build a Cup contender around Quinn Hughes? Here’s 1 possible blueprint**\
 `What can the Canucks learn from the Capitals' bounce back this season?`\
 https://nytimes.com/athletic/6338541/2025/05/07/canucks-stanley-cup-quinn-hughes-nhl/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6333478/2025/05/07/connor-hellebuyck-jets-playoffs-
 **Thunder in full support of Chet Holmgren bouncing back after frustrating Game 1 finish**\
 `“He’s the last guy I’m worried about,” Thunder coach Mark Daigneault said after Chet Holmgren's Game 1 performance.`\
 https://nytimes.com/athletic/6338884/2025/05/07/thunder-chet-holmgren-nba-playoffs-game-1/
-
-**MAGA Beauty Is Built to Go Viral**\
-`These Republican women use the vernacular of influencers to spread their message. It’s working, for now.`\
-https://nytimes.com/2025/05/07/opinion/maga-beauty-viral-women.html
-
-**Is It Colonialism When Europeans Retire in Cheaper Countries?**\
-`The magazine’s Ethicist columnist on the impact of making another country your home in retirement.`\
-https://nytimes.com/2025/05/07/magazine/europeans-retirement-colonialism-ethics.html
 
