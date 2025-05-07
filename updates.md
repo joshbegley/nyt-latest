@@ -1,3 +1,7 @@
+**How did Warriors win Game 1 after Steph Curry injury? With depth and toughness**\
+`With Curry's status uncertain going forward, Golden State will continue to need a collective effort against the Timberwolves.`\
+https://nytimes.com/athletic/6338582/2025/05/07/warriors-playoffs-steph-curry-injury-draymond-green-game-1-wolves/
+
 **Cowboys working trade for George Pickens, sending Steelers picks: Sources**\
 `Pickens, who led the Steelers in targets and receiving yards each of the last two seasons, butted heads with the Steelers throughout 2024. `\
 https://nytimes.com/athletic/6310136/2025/05/07/cowboys-george-pickens-steelers-trade/
