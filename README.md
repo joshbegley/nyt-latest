@@ -1,3 +1,27 @@
+**The Secret Process of Electing a New Pope**\
+`Once the conclave begins, cardinals are not allowed to leave, other than for meals and to sleep at night, until a successor is named.`\
+https://nytimes.com/2025/05/07/world/europe/pope-conclave-vote-process-what-time.html
+
+**Here’s the latest.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/heres-the-latest
+
+**Live Updates: Conclave to Elect New Pope Is Set to Begin**\
+`The most voting cardinals ever will gather in the Sistine Chapel to select the next leader of 1.4 billion Roman Catholics. The conclave comes at an uncertain moment for the church.`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates
+
+**Uber Revenue Up 14 Percent, Despite Economic Fears**\
+`The company also predicted that business in the current quarter would be stronger than Wall Street had predicted.`\
+https://nytimes.com/2025/05/07/technology/uber-earnings-revenue-tariffs.html
+
+**China Agreed to U.S. Tariff Talks but Is Likely to Play Hardball**\
+`Beijing says it will meet with American officials to discuss trade, but warned Washington against using the engagement to ratchet up pressure on China.`\
+https://nytimes.com/2025/05/07/world/asia/china-us-tariff-talks.html
+
+**Disney’s Park Business Grows Despite Consumer Angst**\
+`The company’s domestic theme parks have long been seen as a bellwether for consumer confidence. Revenue climbed 9 percent, to $6.5 billion, in the latest quarter.`\
+https://nytimes.com/2025/05/07/business/disney-earnings.html
+
 **A Conclave Primer**\
 `We look at how the Catholic Church will select Pope Francis’ successor.`\
 https://nytimes.com/2025/05/07/briefing/conclave-what-to-know.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/07/world/europe/germany-merz-vote-chancellor.html
 **Which Vikings player is next in line for an extension? The 5 most likely candidates**\
 `After signing Andrew Van Ginkel to a new deal last week, there are some moves the Vikings could make this offseason.`\
 https://nytimes.com/athletic/6337548/2025/05/07/vikings-contract-extension-metellus-oneill/
-
-**Donovan Mitchell has a calf strain? What all these Cavalier injuries mean for Game 3**\
-`Mitchell was nowhere to be found on Cleveland’s star-studded injury report for Game 2, but the TNT broadcast reported he was playing hurt.`\
-https://nytimes.com/athletic/6338842/2025/05/07/donovan-mitchell-calf-strain-cavaliers-injuries/
-
-**George Karl sees an NBA he hardly recognizes. Does his voice still matter?**\
-`The Hall of Famer doesn’t want to coach, and he doesn’t want to work full time. He just wants to be heard. But has the NBA passed him by?`\
-https://nytimes.com/athletic/6329069/2025/05/07/george-karl-nba-cancer-legacy/
-
-**'Light at the end of the tunnel': Guardians prospect who pitched through cancer treatment on verge of majors**\
-`In 2022, pitcher Nic Enright was well on the road to his major-league dream. A cancer diagnosis changed — but did not stop — his plans.`\
-https://nytimes.com/athletic/6322079/2025/05/07/nic-enright-guardians-cancer-majors/
-
-**Knicks finally find way to take down Celtics: Switch up their entire identity**\
-`From the onset of the Boston series, New York switched pick-and-rolls with more gumption than ever.`\
-https://nytimes.com/athletic/6338392/2025/05/07/knicks-switching-celtics-nba-playoffs/
-
-**2025 Bowman Baseball top prospects and rookie redemption cards to target**\
-`2025 Bowman introduces a new element that could take decades to fully pay off`\
-https://nytimes.com/athletic/6338519/2025/05/07/2025-bowman-baseball-charlie-condon-prospects/
-
-**Did the Jets improve their roster this offseason? Comparing the 2025 team to 2024**\
-`Aaron Glenn and GM Darren Mougey said they plan to win now — have they built the roster to do it?`\
-https://nytimes.com/athletic/6337281/2025/05/07/new-york-jets-roster-compared-to-2024/
 
