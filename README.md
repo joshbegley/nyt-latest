@@ -1,3 +1,7 @@
+**Here’s what happened on Tuesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/06/us/trump-administration-updates/heres-what-happened-on-tuesday
+
 **Big Ten revenue soared to $928 million for 2024 fiscal year**\
 `Conference dispersed more than $63 million to its long-standing members, a number that outpaced the SEC and which is expected to grow.`\
 https://nytimes.com/athletic/6338425/2025/05/06/big-ten-revenue-soared-2024/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/05/06/nyregion/nypd-ice-deportation-case-sealed-records
 https://nytimes.com/video/world/asia/100000010153618/india-strikes-pakistan.html
 
 **What we learned from Blues' locker clean-out day: Game 7 reflection, injury updates, more**\
-`The Blues cleaned their lockers Tuesday and reflected on their Game 7 loss to Winnipeg, while also looking ahead to the future.`\
+`The Blues cleaned their lockers Tuesday and reflected on their Game 7 loss to Winnipeg, while also looking to the future.`\
 https://nytimes.com/athletic/6337262/2025/05/06/blues-game-7-nhl-playoffs-injury/
 
 **What NYT Cooking Moms Want on Mother’s Day**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/arts/frank-lloyd-wright-skyscraper-sells-after-ca
 **At Harvard, a Clash Between Democracy and Monarchy**\
 `A debate between the political theorist Danielle Allen and the right-wing blogger Curtis Yarvin drew a curious crowd — and questions about whether it should be happening at all.`\
 https://nytimes.com/2025/05/06/arts/yarvin-allen-debate-harvard.html
-
-**A federal judge bars the Trump administration from denying $1 billion in Covid-related school aid.**\
-`The ruling, in a lawsuit brought by Democratic officials in 16 states and Washington, D.C., halts a plan by the U.S. Education Department not to release unspent funds.`\
-https://nytimes.com/live/2025/05/06/us/trump-administration-updates/a-federal-judge-bars-the-trump-administration-from-denying-1-billion-in-covid-related-school-aid
 
