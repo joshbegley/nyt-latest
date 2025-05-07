@@ -1,8 +1,12 @@
+**JD Vance’s Half Brother Advances in Race for Cincinnati Mayor**\
+`Cory Bowman will next face Aftab Pureval, the Democratic incumbent, who outperformed him in Tuesday’s nonpartisan primary.`\
+https://nytimes.com/2025/05/06/us/jd-vance-brother-cincinnati-mayor.html
+
 **Tyrese Haliburton's buzzer-beater stuns Cavaliers, hands Pacers 2-0 lead**\
 `The Cavs had led the game by 20 points on multiple occasions, only to lose 120-119.`\
 https://nytimes.com/athletic/6338623/2025/05/06/tyrese-haliburton-cavaliers-pacers-game-2-buzzer-beater/
 
-**NBA playoff takeaways: Haliburton's late 3 stuns Cavs, gives Pacers 2-0 lead**\
+**NBA playoff takeaways: Pacers, Haliburton steal Game 2 with late 3**\
 `The Cavaliers were up the entire fourth quarter, except for the final second.`\
 https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/business/media/tiktok-advertisers-ban.html
 **Trump Administration Plans to Send Migrants to Libya on a Military Flight**\
 `Human rights groups have called conditions in the country’s network of migrant detention centers “horrific” and “deplorable.”`\
 https://nytimes.com/2025/05/06/us/politics/trump-libya-migrants.html
-
-**Florida Wildlife Officers Kill 3 Black Bears After Deadly Attack**\
-`The state’s wildlife agency will test the bears’ DNA to determine if any of them had attacked and killed an 89-year-old man.`\
-https://nytimes.com/2025/05/06/us/florida-bears-killed-attack.html
 
