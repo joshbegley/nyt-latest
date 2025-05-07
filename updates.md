@@ -1,3 +1,7 @@
+**How Tensions Between India and Pakistan Led to Strikes**\
+`India said early Wednesday that it had conducted strikes on Pakistan, two weeks after a deadly terror attack killed more than two dozen civilians in Indian-administered Kashmir.`\
+https://nytimes.com/video/world/asia/100000010141396/how-tensions-between-india-and-pakistan-led-to-strikes.html
+
 **Inter’s old limitations are beginning to look like new frontiers - next stop, Munich**\
 `Joy and despair were in high supply as Inter claimed victory against Barcelona in a Champions League semi-final for the ages`\
 https://nytimes.com/athletic/6338493/2025/05/07/inter-barcelona-champions-league-semi-final/
