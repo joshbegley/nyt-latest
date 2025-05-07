@@ -1,3 +1,7 @@
+**Steph Curry leaves Game 1 vs. Timberwolves with hamstring strain**\
+`Curry and the Warriors were in control when he went down, up 30-20 after the third of Draymond Green's four first half 3s.`\
+https://nytimes.com/athletic/6338718/2025/05/06/steph-curry-hamstring-strain-warriors/
+
 **Hurricanes' shot barrage prevails vs. Capitals in OT: Takeaways**\
 `Carolina defeated Washington in overtime to take a 1-0 series lead in the second round.`\
 https://nytimes.com/athletic/6338464/2025/05/06/capitals-hurricanes-nhl-playoffs-2025-game-1-takeaways/
