@@ -1,3 +1,11 @@
+**Padres bullpen falters as Jackson Merrill’s return brings hope of more balance**\
+`The Padres allowed a 10-run inning, but Merrill returned with a 2-for-4 performance that was just as notable.`\
+https://nytimes.com/athletic/6338506/2025/05/07/padres-bullpen-jackson-merrill-yankees/
+
+**Capitals got what they expected from the Hurricanes — and that could be a problem**\
+`It's no mystery what kind of game the Hurricanes want to play. The question is whether Spencer Carbery and the Capitals can adapt.`\
+https://nytimes.com/athletic/6338883/2025/05/07/capitals-hurricanes-nhl-playoffs-game-1-carbery/
+
 **Jasson Domínguez's hustle sparks Yankees' 10-run barrage in win over Padres**\
 `Domínguez’s hustle double was the talk after the Yankees victory. “He's got all the tools in the world,” Ben Rice said. “It's fun to watch."`\
 https://nytimes.com/athletic/6338831/2025/05/07/jasson-dominguez-yankees-win-over-padres/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/us/smuggling-boat-migrants-del-mar-charges.html
 **Breaking down the three games that stand between Newcastle and the Champions League**\
 `Eddie Howe's side have their European fate in their own hands. But is their end to the season as daunting as it looks?`\
 https://nytimes.com/athletic/6334838/2025/05/07/newcastle-chelsea-arsenal-everton-champions-league/
-
-**Bart Verbruggen: 'Important Brighton reach Europe to show just how good we are'**\
-`Like his club, the Brighton keeper has endured a mixed season, but he is determined to end the campaign in a European spot`\
-https://nytimes.com/athletic/6336583/2025/05/07/bart-verbruggen-important-for-brighton-reach-europe-to-show-just-how-good-we-are/
-
-**Moises Caicedo: Chelsea's player of the season who has thrived out of position**\
-`The versatile Ecuadorian has thrived for Enzo Maresca's side this season and was deservedly voted the team's top performer`\
-https://nytimes.com/athletic/6336960/2025/05/07/moises-caicedo-chelsea-player-of-the-season-out-of-position/
 
