@@ -1,3 +1,15 @@
+**How Cowboys' Day 2 picks, Donovan Ezeiruaku, Shavon Revel Jr. could make immediate impact**\
+`The Cowboys were excited about getting edge Donovan Ezeiruaku and cornerback Shavon Revel. They expect both to make an impact.`\
+https://nytimes.com/athletic/6337960/2025/05/07/cowboys-rookie-minicamp-donovan-ezeiruaku-shavon-revel/
+
+**With Tears of Joy and Anxiety, Waiting for P.O.W.s to Come Home, at Last**\
+`In a parking lot in Ukraine, hundreds of family members gathered to greet loved ones being repatriated from Russian prisons. Amid happy reunions, there was anguish, too.`\
+https://nytimes.com/2025/05/07/world/europe/ukraine-pow-prisoners-exchange.html
+
+**Do You Believe in the American Dream?**\
+`Is it available to everyone today? Was it ever?`\
+https://nytimes.com/2025/05/07/learning/do-you-believe-in-the-american-dream.html
+
 **What to Watch at the Federal Reserve’s May Meeting**\
 `The U.S. central bank is widely expected to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
 https://nytimes.com/2025/05/07/business/federal-reserve-may-meeting.html

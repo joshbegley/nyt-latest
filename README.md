@@ -1,3 +1,11 @@
+**WeightWatchers Files for Bankruptcy Amid Wave of New Weight-Loss Methods**\
+`The company, which has shaped how millions eat and exercise, is trying to reduce its debt as it expands its telehealth business.`\
+https://nytimes.com/2025/05/07/business/weight-watchers-bankruptcy.html
+
+**Eagles mailbag: Send your questions to Brooks Kubena**\
+`Eagles mailbag: Send your questions to Brooks Kubena`\
+https://nytimes.com/athletic/6339060/2025/05/07/eagles-mailbag-questions-brooks-kubena/
+
 **How Cowboys' Day 2 picks, Donovan Ezeiruaku, Shavon Revel Jr. could make immediate impact**\
 `The Cowboys were excited about getting edge Donovan Ezeiruaku and cornerback Shavon Revel. They expect both to make an impact.`\
 https://nytimes.com/athletic/6337960/2025/05/07/cowboys-rookie-minicamp-donovan-ezeiruaku-shavon-revel/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/nyregion/landmark-paul-rudolph-architect.html
 **‘Andor’ Season 2, Episodes 7-9: Deaths and Births**\
 `This week’s episodes hinge on events that are so shocking — and happen so fast — the main characters aren’t sure how to interpret them.`\
 https://nytimes.com/2025/05/07/arts/television/andor-season-2-episodes-7-9-recap.html
-
-**Our Favorite Books for Every Type of Mom**\
-`Need a last-minute Mother’s Day gift? Try one of these recent releases.`\
-https://nytimes.com/2025/05/07/books/review/mothers-day-books.html
-
-**Kristi Noem and the MAGA Beauty Aesthetic**\
-`Republican women know what they’re doing.`\
-https://nytimes.com/2025/05/07/opinion/maga-women-aesthetics.html
 
