@@ -1,3 +1,7 @@
+**The Pulse: The first time in NBA history**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6337981/2025/05/07/pacers-warriors-round-2-the-pulse/
+
 **Germany’s New Leader Has a Tough Job. It Just Got Tougher.**\
 `Friedrich Merz’s halting path to the chancellor’s office inflamed his challenges at home and abroad, including a threat from the far right.`\
 https://nytimes.com/2025/05/07/world/europe/germany-merz-vote-chancellor.html
