@@ -1,3 +1,7 @@
+**Russia and Ukraine Trade Strikes Before Moscow’s Victory Day Parade**\
+`The attacks came a day before a Russian-proposed cease-fire was to take effect and as Moscow prepared to welcome foreign dignitaries for a parade.`\
+https://nytimes.com/2025/05/07/world/europe/ukraine-russia-strikes-victory-day.html
+
 **Scenes From India’s Strikes in Kashmir and Pakistan**\
 `After weeks of tensions from a terrorist attack in Kashmir, India conducted strikes against Pakistan. Anger on both sides has the world bracing for an escalation.`\
 https://nytimes.com/2025/05/07/world/asia/india-pakistan-kashmir-photos.html
@@ -34,8 +38,4 @@ https://nytimes.com/video/world/asia/100000010141396/how-tensions-between-india-
 **Cubs takeaways: What’s going on with Ryan Pressly after historic loss in extra innings?**\
 `Also: Shota Imanaga's experience on the injured list, Cade Horton might be nearing his MLB debut and Cubs are seeking a front-line starter.`\
 https://nytimes.com/athletic/6338974/2025/05/07/cubs-takeaways-ryan-pressly/
-
-**India vs. Pakistan Is Also U.S. vs. China When It Comes to Arms Sales**\
-`Increasing Western military support to India, and China’s to Pakistan, signals a shift in global alignments — and another potential flashpoint for international tensions.`\
-https://nytimes.com/2025/05/07/world/asia/india-pakistan-weapons.html
 
