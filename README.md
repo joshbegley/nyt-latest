@@ -1,3 +1,7 @@
+**Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast**\
+`Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
+https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html
+
 **Senators are urging Paramount to fight Trump’s ‘60 Minutes’ lawsuit.**\
 `By Benjamin Mullin`\
 https://nytimes.com/live/2025/05/07/us/trump-news/senators-are-urging-paramount-to-fight-trumps-60-minutes-lawsuit
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/world/middleeast/us-navy-fighter-jet-truman-carri
 **Milwaukee Bucks offseason overview: Salary cap situation, roster needs and more**\
 `The Bucks need to think about Giannis Antetokounmpo for everything they do this offseason, but that's not different than any other year.`\
 https://nytimes.com/athletic/6334553/2025/05/07/bucks-offseason-overview-roster-cap/
-
-**Man Utd's De Ligt out of Athletic Club, West Ham but injury 'not a big issue'**\
-`De Ligt sustained a muscular injury in the 33rd minute of United's 4-3 defeat at Brentford in the Premier League on Sunday.`\
-https://nytimes.com/athletic/6334022/2025/05/07/manchester-united-de-ligt-injury-update/
 
