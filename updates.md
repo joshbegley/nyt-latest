@@ -1,3 +1,27 @@
+**The Secret Process of Electing a New Pope**\
+`Once the conclave begins, cardinals are not allowed to leave, other than for meals and to sleep at night, until a successor is named.`\
+https://nytimes.com/2025/05/07/world/europe/pope-conclave-vote-process-what-time.html
+
+**Here’s the latest.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/heres-the-latest
+
+**Live Updates: Conclave to Elect New Pope Is Set to Begin**\
+`The most voting cardinals ever will gather in the Sistine Chapel to select the next leader of 1.4 billion Roman Catholics. The conclave comes at an uncertain moment for the church.`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates
+
+**Uber Revenue Up 14 Percent, Despite Economic Fears**\
+`The company also predicted that business in the current quarter would be stronger than Wall Street had predicted.`\
+https://nytimes.com/2025/05/07/technology/uber-earnings-revenue-tariffs.html
+
+**China Agreed to U.S. Tariff Talks but Is Likely to Play Hardball**\
+`Beijing says it will meet with American officials to discuss trade, but warned Washington against using the engagement to ratchet up pressure on China.`\
+https://nytimes.com/2025/05/07/world/asia/china-us-tariff-talks.html
+
+**Disney’s Park Business Grows Despite Consumer Angst**\
+`The company’s domestic theme parks have long been seen as a bellwether for consumer confidence. Revenue climbed 9 percent, to $6.5 billion, in the latest quarter.`\
+https://nytimes.com/2025/05/07/business/disney-earnings.html
+
 **A Conclave Primer**\
 `We look at how the Catholic Church will select Pope Francis’ successor.`\
 https://nytimes.com/2025/05/07/briefing/conclave-what-to-know.html
