@@ -1,3 +1,7 @@
+**Watch: With the Pacers' Game 2 win, all eyes on the team's intensity, depth**\
+`"The Athletic NBA Daily" discussed the Indiana Pacers' dramatic come-from-behind win over the Cleveland Cavaliers in Game 2.`\
+https://nytimes.com/athletic/6340111/2025/05/07/athletic-nba-daily-indiana-pacers-cleveland-cavaliers/
+
 **Judge rules ATP Tour cannot retaliate against players who join PTPA tennis lawsuit**\
 `The ATP Tour had produced a letter to be signed by players, stating that they did not agree with legal action to overturn tennis' structure.`\
 https://nytimes.com/athletic/6340663/2025/05/07/tennis-lawsuit-ptpa-atp-wta-players-retaliation/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/05/07/us/politics/tyre-nichols-state-trial-officers-acq
 https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
 
 **A Most Sensitive Subject in the White House: Where Is Melania?**\
-`Mrs. Trump has spent fewer than 14 days at the White House since her husband was inaugurated 108 days ago`\
+`Mrs. Trump has spent fewer than 14 days at the White House since her husband was inaugurated 108 days ago.`\
 https://nytimes.com/2025/05/07/us/politics/white-house-melania-absence.html
 
 **What to know about the Fed’s decision.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/07/well/wellness-festival-live-updates/this-boo
 **Hail Pummels Las Vegas Suburb**\
 `A heavy storm system soaked Las Vegas for days and brought hail about the size of a quarter to nearby Henderson, Nev.`\
 https://nytimes.com/video/weather/100000010155465/las-vegas-flood-hail.html
-
-**Reds place 3B Noelvi Marte on IL with oblique strain, recall OF Rece Hinds**\
-`Hinds, 24, has .281/.343/.554 with eight home runs and 12 stolen bases at Triple-A Louisville this season.`\
-https://nytimes.com/athletic/6340548/2025/05/07/reds-noelvi-marte-injury-rece-hinds/
 
