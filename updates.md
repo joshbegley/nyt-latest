@@ -1,3 +1,11 @@
+**Big Ten revenue soared to $928 million for 2024 fiscal year**\
+`Conference dispersed more than $63 million to its long-standing members, a number that outpaced the SEC and which is expected to grow.`\
+https://nytimes.com/athletic/6338425/2025/05/06/big-ten-revenue-soared-2024/
+
+**Why Did the N.Y.P.D. Hand Over a Sealed Arrest to Homeland Security?**\
+`U.S. officials asked for records about a New Jersey woman’s summons, issued at a Columbia University protest. Now the information is part of her deportation proceeding.`\
+https://nytimes.com/2025/05/06/nyregion/nypd-ice-deportation-case-sealed-records.html
+
 **India Strikes Sites in Pakistan Following Terrorist Attack**\
 `Indian forces struck sites in Pakistan following a terrorist attack in Indian-administered Kashmir two weeks ago. The Pakistani government has denied involvement in that attack.`\
 https://nytimes.com/video/world/asia/100000010153618/india-strikes-pakistan.html
