@@ -1,3 +1,12 @@
+**Russia and Ukraine Trade Strikes Before Moscow’s Victory Day Parade**\
+`The attacks came a day before a Russian-proposed cease-fire was to take effect and as Moscow prepared to welcome foreign dignitaries for a parade.`\
+https://nytimes.com/2025/05/07/world/europe/ukraine-russia-strikes-victory-day.html
+
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
 **Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
 `Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
 `\
