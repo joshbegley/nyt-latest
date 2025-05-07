@@ -1,3 +1,11 @@
+**Jeremy Peña's leadoff success, a cleanup crisis and groundballs galore: Astros takeaways**\
+`Few facets of the Astros’ offense looked competent during the six-day road trip — except Peña, who's thriving in the leadoff spot.`\
+https://nytimes.com/athletic/6340893/2025/05/07/jeremy-pena-leadoff-christian-walker-astros-takeaways/
+
+**How to Train for the Last Decade of Your Life, According to Peter Attia**\
+`The physician, writer and longevity influencer offered his tips to prepare for old age now.`\
+https://nytimes.com/2025/05/07/well/aging-longevity-peter-attia.html
+
 **These Beautiful Birds Form Something Like Lasting Friendships**\
 `Superb starlings help care for the offspring of birds they are not related to. “To me, that sounds like friendship,” one scientist said.`\
 https://nytimes.com/2025/05/07/science/birds-friendships-superb-starlings.html
