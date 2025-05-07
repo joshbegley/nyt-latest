@@ -1,4 +1,8 @@
-**NBA playoff takeaways: Haliburton's buzzer-beating 3 stuns Cavs**\
+**Tyrese Haliburton's buzzer-beater stuns Cavaliers, hands Pacers 2-0 lead**\
+`The Cavs had led the game by 20 points on multiple occasions, only to lose 120-119.`\
+https://nytimes.com/athletic/6338623/2025/05/06/tyrese-haliburton-cavaliers-pacers-game-2-buzzer-beater/
+
+**NBA playoff takeaways: Haliburton's late 3 stuns Cavs, gives Pacers 2-0 lead**\
 `The Cavaliers were up the entire fourth quarter, except for the final second.`\
 https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/trump-libya-migrants.html
 **Florida Wildlife Officers Kill 3 Black Bears After Deadly Attack**\
 `The state’s wildlife agency will test the bears’ DNA to determine if any of them had attacked and killed an 89-year-old man.`\
 https://nytimes.com/2025/05/06/us/florida-bears-killed-attack.html
-
-**25 Years of N.Y.C. Dining**\
-`A timeline of major food moments — restaurant openings, innovations, fads, pop culture cameos, blackouts and bans — that changed life in New York City in the first quarter of the 21st century.`\
-https://nytimes.com/interactive/2025/05/06/dining/25-years-nyc-restaurants.html
 
