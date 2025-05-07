@@ -1,3 +1,20 @@
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
+**Could Brad Shaw be the new frontrunner to coach the Flyers?**\
+`The Flyers are taking a methodical approach to their search, but the interim coach apparently remains in the conversation.`\
+https://nytimes.com/athletic/6340370/2025/05/07/flyers-coach-shaw-candidates-tocchet/
+
+**Trump Administration Welcomes World Cup Visitors to Enjoy a Nice, but Brief, Stay**\
+`Top officials offered a message that stuck to the Trump administration’s focus on minimizing legal immigration and removing those who overstay their visas.`\
+https://nytimes.com/2025/05/07/us/politics/trump-world-cup-visitors.html
+
+**Postecoglou on Wenger querying CL spot for EL winners: 'Spurs does crazy things to people!'**\
+`The head coach believes Tottenham Hotspur are held to different standards from other clubs.`\
+https://nytimes.com/athletic/6340347/2025/05/07/postecoglou-wenger-europa-champions-league/
+
 **The ‘We Can Do Hard Things’ Crew Is All Out of Advice**\
 `In their new book, Glennon Doyle, Abby Wambach and Amanda Doyle admit they don’t have the key to happiness. And their podcast audience loves them for it.`\
 https://nytimes.com/2025/05/07/well/we-can-do-hard-things-book-glennon-abby-amanda.html
@@ -21,20 +38,4 @@ https://nytimes.com/2025/05/07/us/china-tariffs-michigan-auto.html
 **George Pickens trade grades: Did Cowboys give up too much for enigmatic WR?**\
 `Some teams had zero interest in adding Pickens to their locker rooms. Will things go better for him in Dallas than they did in Pittsburgh?`\
 https://nytimes.com/athletic/6339972/2025/05/07/george-pickens-trade-grades-cowboys-steelers/
-
-**Tiny Love Stories: ‘Sex Is Just Sex’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/05/07/style/tiny-modern-love-stories-sex-is-just-sex.html
-
-**Hegseth’s Use of Passwords Raises New Security Concerns**\
-`Revelations about the defense secretary’s passwords came after he discussed details of planned U.S. airstrikes on a messaging app.`\
-https://nytimes.com/2025/05/07/us/politics/hegseth-phone-security.html
-
-**Charlamagne Tha God’s Mental Health Tip: Touch Grass, Literally**\
-`At The New York Times’s Well festival, the radio host Charlamagne Tha God spoke about his and family members’ struggles with depression.`\
-https://nytimes.com/2025/05/07/well/charlamagne-tha-god-depression-anxiety-grass.html
-
-**3 Things a Couples Therapist Wants You to Do for Your Relationship**\
-`Terry Real shares simple strategies for surviving fights and maintaining long-term intimacy.`\
-https://nytimes.com/2025/05/07/well/relationship-advice-terry-real.html
 
