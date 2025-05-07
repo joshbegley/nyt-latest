@@ -1,3 +1,15 @@
+**Syrian President Makes First Visit to Europe Since Assad’s Fall**\
+`The visit is a boost to Ahmed al-Shara’s attempts to bring Syria back into the international fold but comes amid continuing turmoil there.`\
+https://nytimes.com/2025/05/07/world/europe/syria-france-al-shara-macron.html
+
+**How does the voting work?**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/how-does-the-voting-work
+
+**He Hears Voices in His Head. He Also Helped Win an Election.**\
+`He ran a successful political campaign, sometimes from a psych ward, sometimes living on the street. He has found a way to thrive.`\
+https://nytimes.com/2025/05/07/nyregion/nyc-public-advocate-rajkumar-sooknanan-mental-health.html
+
 **Review: At Gibney, a New Lucinda Childs Stands Out (No Surprise)**\
 `Gibney Company brings an uneven trio of new works to the Joyce: a deft premiere by Childs and dances by Roy Assaf and Peter Chu.`\
 https://nytimes.com/2025/05/07/arts/dance/review-gibney-company-lucinda-childs.html

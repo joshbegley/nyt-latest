@@ -1,3 +1,7 @@
+**Recession Warnings Are Everywhere, Except in the Data.**\
+`Mainstream measures have been slow to detect the impact of tariffs and uncertainty, leaving economists to scour earnings calls and private-sector data sources.`\
+https://nytimes.com/2025/05/07/business/economy-tariffs-recession-indicators-fed.html
+
 **Syrian President Makes First Visit to Europe Since Assad’s Fall**\
 `The visit is a boost to Ahmed al-Shara’s attempts to bring Syria back into the international fold but comes amid continuing turmoil there.`\
 https://nytimes.com/2025/05/07/world/europe/syria-france-al-shara-macron.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/05/07/nyregion/nyc-public-advocate-rajkumar-sooknanan-m
 `Gibney Company brings an uneven trio of new works to the Joyce: a deft premiere by Childs and dances by Roy Assaf and Peter Chu.`\
 https://nytimes.com/2025/05/07/arts/dance/review-gibney-company-lucinda-childs.html
 
-**Johnson Rules Out Aggressive Medicaid Cuts as G.O.P. Moderates Waver**\
+**Johnson Rules Out an Aggressive Plan to Cut Medicaid as G.O.P. Moderates Waver**\
 `The Republican speaker’s decision underscored the resistance in his party to politically painful reductions to the program, and drew a backlash from the hard right, which is demanding deep cuts.`\
 https://nytimes.com/2025/05/07/us/politics/medicaid-cuts-house-republicans-johnson.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6340057/2025/05/07/eagles-nfl-dallas-goedert-contra
 **A Patron of the Arts in Denver Who Was ‘Saved by Collecting’**\
 `About 10 years ago, Amanda Precourt turned her attention to buying art. She now sponsors shows and is opening an exhibition space in an old cookie factory.`\
 https://nytimes.com/2025/05/07/arts/design/amanda-precourt-mental-health.html
-
-**Trump Administration Is Said to Target Park Service Grants**\
-`Dozens of programs, many linked to climate change and diversity, have been designated for elimination by DOGE, according to people with knowledge of the plan.`\
-https://nytimes.com/2025/05/07/climate/trump-park-service-grants-cuts.html
 
