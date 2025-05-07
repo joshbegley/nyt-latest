@@ -1,3 +1,7 @@
+**Inter’s old limitations are beginning to look like new frontiers - next stop, Munich**\
+`Joy and despair were in high supply as Inter claimed victory against Barcelona in a Champions League semi-final for the ages`\
+https://nytimes.com/athletic/6338493/2025/05/07/inter-barcelona-champions-league-semi-final/
+
 **Cubs takeaways: What’s going on with Ryan Pressly after historic loss in extra innings?**\
 `Also: Shota Imanaga's experience on the injured list, Cade Horton might be nearing his MLB debut and Cubs are seeking a front-line starter.`\
 https://nytimes.com/athletic/6338974/2025/05/07/cubs-takeaways-ryan-pressly/
