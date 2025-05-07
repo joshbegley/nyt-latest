@@ -1,3 +1,20 @@
+**Texas Attorney General Announces Vote Fraud and ‘Harvesting’ Charges**\
+`A county judge, two City Council members and a former county election administrator are among Ken Paxton’s targets as he elevates his “election integrity” accusations to criminality.`\
+https://nytimes.com/2025/05/07/us/politics/texas-vote-fraud.html
+
+**Alejandro Garnacho on adapting to Amorim, Ronaldo comparisons and his United future**\
+`The Argentina forward addressed the media for the first time in his career - he's becoming increasingly important to Amorim and United`\
+https://nytimes.com/athletic/6340394/2025/05/07/alejandro-garnacho-on-adapting-to-amorim-ronaldo-comparisons-and-his-united-future/
+
+**India and Pakistan May Have an Offramp After Their Clash. Will They Take It?**\
+`The question now, analysts say, is whether the two sides will claim victory as Pakistan asserts that it downed Indian jets and gauges the toll of India’s strikes.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-conflict.html
+
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
 **Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
 `The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
 `\

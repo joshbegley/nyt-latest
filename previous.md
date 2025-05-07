@@ -1,3 +1,15 @@
+**Texas Attorney General Announces Vote Fraud and ‘Harvesting’ Charges**\
+`A county judge, two City Council members and a former county election administrator are among Ken Paxton’s targets as he elevates his “election integrity” accusations to criminality.`\
+https://nytimes.com/2025/05/07/us/politics/texas-vote-fraud.html
+
+**Alejandro Garnacho on adapting to Amorim, Ronaldo comparisons and his United future**\
+`The Argentina forward addressed the media for the first time in his career - he's becoming increasingly important to Amorim and United`\
+https://nytimes.com/athletic/6340394/2025/05/07/alejandro-garnacho-on-adapting-to-amorim-ronaldo-comparisons-and-his-united-future/
+
+**India and Pakistan May Have an Offramp After Their Clash. Will They Take It?**\
+`The question now, analysts say, is whether the two sides will claim victory as Pakistan asserts that it downed Indian jets and gauges the toll of India’s strikes.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-conflict.html
+
 **The Secret to Restaurant-Style Chicken at Home**\
 `Let the chicken cook itself, then turn the drippings into a savory lime butter sauce, Eric Kim writes.`\
 https://nytimes.com/2025/05/07/dining/how-to-make-chicken-at-home.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6340347/2025/05/07/postecoglou-wenger-europa-champi
 **The ‘We Can Do Hard Things’ Crew Is All Out of Advice**\
 `In their new book, Glennon Doyle, Abby Wambach and Amanda Doyle admit they don’t have the key to happiness. And their podcast audience loves them for it.`\
 https://nytimes.com/2025/05/07/well/we-can-do-hard-things-book-glennon-abby-amanda.html
-
-**Want to Be a Deep Sea Explorer? Don’t Worry, There’s Lots Left.**\
-`Researchers collected more than 43,000 records of dives and assessed the photos and videos to determine how much of the bottom has been seen by humans.`\
-https://nytimes.com/2025/05/07/climate/deep-sea-exploration.html
-
-**Lowetide: What we're seeing from Oilers' defencemen so far in the playoffs**\
-`The Oilers are a club that features defencemen who can bring three specific things. Here they are.`\
-https://nytimes.com/athletic/6336945/2025/05/07/edmonton-oilers-defence-nhl-playoffs-stats/
-
-**The bond market is in focus as Trump and his advisers push for lower rates.**\
-`By Danielle Kaye`\
-https://nytimes.com/live/2025/05/07/business/fed-interest-rates/the-bond-market-is-in-focus-as-trump-and-his-advisers-push-for-lower-rates
 
