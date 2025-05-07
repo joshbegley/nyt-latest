@@ -1,3 +1,11 @@
+**From 'struggling to look at myself' to playoff hero: How Tyrese Haliburton rediscovered his joy**\
+`The Pacers star reveals the mental health struggles that "consumed" him early this season and how he confronted them head on.`\
+https://nytimes.com/athletic/6338707/2025/05/07/tyrese-haliburton-pacers-cavaliers-mental-health-nba-playoffs/
+
+**‘Love Island USA’ Heads Back to the Villa**\
+`After finding a winning formula in Season 6, the Peacock dating competition will return to Fiji this summer.`\
+https://nytimes.com/2025/05/07/style/love-island-usa-season-7-release-date.html
+
 **The Bounce: Road teams have dominated second round of NBA playoffs. Will it continue?**\
 `The second round of the playoffs are underway, but a home team hasn't won yet. How long can this trend continue?`\
 https://nytimes.com/athletic/6339725/2025/05/07/jimmy-butler-steph-curry-hamstring-warriors-timberwolves-nba-playoffs-the-bounce/
