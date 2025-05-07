@@ -1,3 +1,11 @@
+**Thursday Briefing: What’s Next for India and Pakistan?**\
+`Plus, the power of siblings.`\
+https://nytimes.com/2025/05/07/briefing/india-pakistan-pope-conclave-gaza-israel-airstrikes.html
+
+**PSG 2 Arsenal 1 (agg: 3-1): Decisive Donnarumma, worthy finalists, Arteta's set-piece problem**\
+`Paris Saint-Germain saw off Arsenal to book a date with Inter in the Champions League final - The Athletic analyses the action`\
+https://nytimes.com/athletic/6336860/2025/05/07/psg-2-arsenal-1-champions-league-donnarumma-arteta/
+
 **Trump Says U.S. Won’t Drop Tariffs Ahead of China Talks**\
 `The Treasury secretary and trade representative plan to meet with Chinese officials this weekend to discuss trade and economic matters.`\
 https://nytimes.com/2025/05/07/us/politics/trump-tariffs-china-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/nyregion/columbia-protest-library-occupied.html
 **Las Vegas Shatters Rain Record as ‘Very Unusual’ Storm Soaks City**\
 `A man was swept away by the flooding rains, the police said.`\
 https://nytimes.com/2025/05/07/weather/las-vegas-flood-record-rain.html
-
-**Airstrikes Kill Dozens in Gaza City**\
-`The single deadliest bombing took place near a popular cafe in Gaza City where at least 33 people were killed, according to Gaza’s Health Ministry.`\
-https://nytimes.com/video/world/middleeast/100000010155454/gaza-city-cafe-israeli-airstrikes.html
-
-**Alligator Kills Woman After Flipping Her Canoe in Florida, Officials Say**\
-`The woman was paddling with her husband in shallow water on Tuesday when they passed over a large alligator that thrashed and tipped over their boat, the authorities said.`\
-https://nytimes.com/2025/05/07/us/florida-alligator-attack.html
 
