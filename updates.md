@@ -1,3 +1,7 @@
+**A Conclave Primer**\
+`We look at how the Catholic Church will select Pope Francis’ successor.`\
+https://nytimes.com/2025/05/07/briefing/conclave-what-to-know.html
+
 **The Pulse: The first time in NBA history**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6337981/2025/05/07/pacers-warriors-round-2-the-pulse/
