@@ -1,3 +1,15 @@
+**Republican Challenger in Long-Contested N.C. Race Concedes Defeat**\
+`Three counts had showed that the incumbent, a Democrat, won the election last fall. But for months, Judge Jefferson Griffin tried to reverse his loss through the courts.`\
+https://nytimes.com/2025/05/07/us/politics/north-carolina-supreme-court-gop-concession.html
+
+**Sabres add Eric Staal to front office, retain Kevyn Adams as GM**\
+`Staal played 32 games for the Sabres during the 2020-21 season. He will report to Adams, who will be back for a sixth season as GM.`\
+https://nytimes.com/athletic/6339981/2025/05/07/sabres-kevyn-adams-eric-staal-nhl/
+
+**Why A'ja Wilson's new Nike ad is the best TV commercial of the year: MoneyCall**\
+`In this week's sports business forecast from The Athletic: A'ja Wilson, Derby ratings, D.C. draft day, $40 million Texas football and more.`\
+https://nytimes.com/athletic/6339860/2025/05/07/aja-wilson-nike-wnba-caitlin-clark-moneycall/
+
 **From 'struggling to look at myself' to playoff hero: How Tyrese Haliburton rediscovered his joy**\
 `The Pacers star reveals the mental health struggles that "consumed" him early this season and how he confronted them head on.`\
 https://nytimes.com/athletic/6338707/2025/05/07/tyrese-haliburton-pacers-cavaliers-mental-health-nba-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
 **Utah NHL team picks Mammoth as permanent name: How we got here, and what the new gear looks like**\
 `The colors from Year 1 in Utah remain unchanged in the new jerseys designed for the Mammoth.`\
 https://nytimes.com/athletic/6339788/2025/05/07/utah-mammoth-team-name-nhl/
-
-**D.C. Budget Fix Stalls in the House as Conservative Republicans Balk**\
-`Speaker Mike Johnson has said he would hold a vote “quickly” to restore more than $1 billion in funding, but ultraconservatives are insisting on attaching limits on abortion and voting rights.`\
-https://nytimes.com/2025/05/07/us/washington-dc-budget-house-johnson.html
-
-**Trump says World Cup spot for Russia could be 'incentive' to end war**\
-`Since their illegal invasion of Ukraine in February 2022, Russia's teams have been suspended from FIFA and UEFA competitions.`\
-https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
-
-**Is Denzel Dumfries the best counter-attacking wing-back in the world?**\
-`The Inter defender was the key player for his side in both legs of the Champions League tie against Barcelona… but in subtly different ways`\
-https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-champions-league/
 
