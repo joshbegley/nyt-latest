@@ -1,3 +1,7 @@
+**Can Oilers win Cup with Pickard or Skinner? Maybe — if they play like this**\
+`It takes a heck of a team to win in the playoffs in front of an unspectacular goalie, and that's something the Oilers seem to have.`\
+https://nytimes.com/athletic/6338967/2025/05/07/oilers-nhl-playoffs-2025-pickard-skinner/
+
 **Wednesday Briefing**\
 `The papal conclave begins.`\
 https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337794/2025/05/07/arsenal-paris-psg-champions-leag
 **Doku is rediscovering the form that made him Alexander-Arnold's tormentor-in-chief**\
 `The excitement that greeted the winger's early weeks at Manchester City has started to return`\
 https://nytimes.com/athletic/6335338/2025/05/07/jeremy-doku-manchester-city-trent-alexander-arnold/
-
-**Oilers pull off another comeback to beat Golden Knights in Game 1**\
-`Edmonton erased an early 2-0 deficit, completely taking over in a 4-2 victory Tuesday night at T-Mobile Arena.`\
-https://nytimes.com/athletic/6337442/2025/05/07/oilers-golden-knights-nhl-playoffs-2025-game-1-takeaways/
 
