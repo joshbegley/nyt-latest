@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`The papal conclave begins.`\
+https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html
+
 **The New York Times in Print for Wednesday, May 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6335338/2025/05/07/jeremy-doku-manchester-city-tren
 **Oilers pull off another comeback to beat Golden Knights in Game 1**\
 `Edmonton erased an early 2-0 deficit, completely taking over in a 4-2 victory Tuesday night at T-Mobile Arena.`\
 https://nytimes.com/athletic/6337442/2025/05/07/oilers-golden-knights-nhl-playoffs-2025-game-1-takeaways/
-
-**Mathys Tel is starting to answer some of the questions asked of him at Tottenham - so what next?**\
-`The 19 year old had a tough start to his loan spell at Spurs, but his recent performances have offered a glimpse of an exciting future`\
-https://nytimes.com/athletic/6337219/2025/05/07/mathys-tel-tottenham-transfer-2/
 
