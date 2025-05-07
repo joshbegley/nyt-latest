@@ -1,3 +1,11 @@
+**Airstrikes Kill Dozens in Gaza City**\
+`The single deadliest bombing took place near a popular cafe in Gaza City where at least 33 people were killed, according to Gaza’s Health Ministry.`\
+https://nytimes.com/video/world/middleeast/100000010155454/gaza-city-cafe-israeli-airstrikes.html
+
+**Alligator Kills Woman After Flipping Her Canoe in Florida, Officials Say**\
+`The woman was paddling with her husband in shallow water on Tuesday when they passed over a large alligator that thrashed and tipped over their boat, the authorities said.`\
+https://nytimes.com/2025/05/07/us/florida-alligator-attack.html
+
 **Paper Ballots, Sacred Oaths: The Objects Guiding the Papal Conclave**\
 `Inside the secretive meeting, cardinals will use an array of objects, many steeped in tradition, as they elect the next pope.`\
 https://nytimes.com/2025/05/07/world/europe/papal-conclave-objects.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010155633/no-pope-selected-on-first
 **Ultraprocessed Foods Linked to Early Symptoms of Parkinson’s**\
 `A new study did not prove that the foods caused the disease, but experts said it was a step toward understanding how food choices affect brain health.`\
 https://nytimes.com/2025/05/07/well/eat/ultraprocessed-foods-linked-to-early-symptoms-of-parkinsons.html
-
-**Survivors call on the next pope to end sexual abuse by clergy.**\
-`Groups representing survivors made last-minute appeals for the next pontiff to definitively resolve the crisis, which has swirled around the Roman Catholic Church for decades.`\
-https://nytimes.com/2025/05/07/world/europe/sexual-abuse-survivors-pope.html
-
-**Watch: With the Pacers' Game 2 win, all eyes on the team's intensity, depth**\
-`"The Athletic NBA Daily" discussed the Indiana Pacers' dramatic come-from-behind win over the Cleveland Cavaliers in Game 2.`\
-https://nytimes.com/athletic/6340111/2025/05/07/athletic-nba-daily-indiana-pacers-cleveland-cavaliers/
 
