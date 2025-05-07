@@ -1,3 +1,7 @@
+**Jasson Domínguez's hustle sparks Yankees' 10-run barrage in win over Padres**\
+`Domínguez’s hustle double was the talk after the Yankees victory. “He's got all the tools in the world,” Ben Rice said. “It's fun to watch."`\
+https://nytimes.com/athletic/6338831/2025/05/07/jasson-dominguez-yankees-win-over-padres/
+
 **Test your knowledge of the papal conclave**\
 `Are you ready for the conclave that will select the next pope? Take our quiz to see how you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
