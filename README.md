@@ -1,3 +1,7 @@
+**From 'struggling to look at myself' to playoff hero: How Tyrese Haliburton rediscovered his joy**\
+`The Pacers star reveals the mental health struggles that "consumed" him early this season and how he confronted them head on.`\
+https://nytimes.com/athletic/6338707/2025/05/07/tyrese-haliburton-pacers-cavaliers-mental-health-nba-playoffs/
+
 **‘Love Island USA’ Heads Back to the Villa**\
 `After finding a winning formula in Season 6, the Peacock dating competition will return to Fiji this summer.`\
 https://nytimes.com/2025/05/07/style/love-island-usa-season-7-release-date.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
 **Is Denzel Dumfries the best counter-attacking wing-back in the world?**\
 `The Inter defender was the key player for his side in both legs of the Champions League tie against Barcelona… but in subtly different ways`\
 https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-champions-league/
-
-**Can the Canucks build a Cup contender around Quinn Hughes? Here’s 1 possible blueprint**\
-`What can the Canucks learn from the Capitals' bounce back this season?`\
-https://nytimes.com/athletic/6338541/2025/05/07/canucks-stanley-cup-quinn-hughes-nhl/
 
