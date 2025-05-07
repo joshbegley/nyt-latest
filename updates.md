@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
 
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
 **Barcelona lost, but won back respect across Europe - this is 'the beginning of the comeback'**\
 `While Barcelona's treble dreams may have been dashed, this loss is by no means a catastrophe for Hansi Flick's team - there is more to come`\
 https://nytimes.com/athletic/6339078/2025/05/07/barcelona-inter-champions-league/
