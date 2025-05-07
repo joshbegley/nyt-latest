@@ -1,3 +1,11 @@
+**The Indian Aircraft Pakistan Says It Shot Down**\
+`Tensions between India and Pakistan have risen sharply in the weeks since a terrorist attack in Kashmir. On Wednesday, India hit Pakistan and appears to have lost at least a few planes in the strike.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
+
+**How Lost Radar and Silent Radios Have Upended Newark Air Travel**\
+`A technical outage in Philadelphia last week terrified air traffic controllers and stranded passengers. As the summer travel season looms, the F.A.A. is racing to address the problems.`\
+https://nytimes.com/2025/05/07/us/politics/newark-airport-delays.html
+
 **Some ‘Les Misérables’ Cast Members Plan to Skip Trump Kennedy Center Gala**\
 `Several members of the “Les Misérables” cast are said to be planning to boycott a gala performance at the Kennedy Center, which President Trump took over as chairman.`\
 https://nytimes.com/2025/05/07/arts/music/les-mis-boycott-trump-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/us/politics/rfk-jr-autism-cause-database.html
 **In Hockey Canada trial, E.M. agrees she remained compliant as a 'coping mechanism'**\
 `Complainant breaks down at the end of Wednesday's cross-examination when discussing misidentifying players in previous statements.`\
 https://nytimes.com/athletic/6339844/2025/05/07/hockey-canada-sexual-assault-trial-em-cross-examination-2/
-
-**States Sue Over Freeze on Funding for Electric-Vehicle Charging**\
-`A lawsuit led by Washington, Colorado and California accuses the Trump administration of unlawfully withholding funds for new charging stations.`\
-https://nytimes.com/2025/05/07/climate/electric-vehicle-charging-funding-states-lawsuit.html
-
-**Arteta insists Arsenal the better side vs PSG despite Champions League loss**\
-`Arsenal exited the Champions League and Arteta said his players were reduced to tears at full-time.`\
-https://nytimes.com/athletic/6340985/2025/05/07/mikel-arteta-arsenal-psg/
 
