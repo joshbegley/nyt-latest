@@ -1,3 +1,27 @@
+**Tyrese Haliburton's buzzer-beater stuns Cavaliers, hands Pacers 2-0 lead**\
+`The Cavs had led the game by 20 points on multiple occasions, only to lose 120-119.`\
+https://nytimes.com/athletic/6338623/2025/05/06/tyrese-haliburton-cavaliers-pacers-game-2-buzzer-beater/
+
+**NBA playoff takeaways: Haliburton's late 3 stuns Cavs, gives Pacers 2-0 lead**\
+`The Cavaliers were up the entire fourth quarter, except for the final second.`\
+https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
+
+**Hurricanes' shot barrage prevails vs. Capitals in Game 1: Takeaways**\
+`Carolina defeated Washington in overtime to take a 1-0 series lead in the second round.`\
+https://nytimes.com/athletic/6338464/2025/05/06/capitals-hurricanes-nhl-playoffs-2025-game-1-takeaways/
+
+**Color, Form and Geometry Are the Through Lines in Robert Mangold’s Career**\
+`At 87, the abstract artist Robert Mangold will exhibit 19 recent paintings and works, including one of his largest in decades.`\
+https://nytimes.com/2025/05/06/arts/design/robert-mangold-pace.html
+
+**Christo and Jeanne-Claude, Legendary Artists, Are Back in Spirit**\
+`Known for their outsized and revolutionary art projects, the couple’s work is seen again in Florida, New York and Germany.`\
+https://nytimes.com/2025/05/06/arts/design/art-museums-christo-jean-claude-revival.html
+
+**At Frieze New York, Performance Art Takes Center Stage**\
+`This year, Frieze New York will offer three pieces by artists who approach performance “in radically different ways.”`\
+https://nytimes.com/2025/05/06/arts/design/frieze-new-york-performance-art.html
+
 **Theater Boxes**\
 `Tom McCoy makes a few corrections.`\
 https://nytimes.com/2025/05/06/crosswords/daily-puzzle-2025-05-07.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/06/us/politics/trump-libya-migrants.html
 **Florida Wildlife Officers Kill 3 Black Bears After Deadly Attack**\
 `The state’s wildlife agency will test the bears’ DNA to determine if any of them had attacked and killed an 89-year-old man.`\
 https://nytimes.com/2025/05/06/us/florida-bears-killed-attack.html
-
-**25 Years of N.Y.C. Dining**\
-`A timeline of major food moments — restaurant openings, innovations, fads, pop culture cameos, blackouts and bans — that changed life in New York City in the first quarter of the 21st century.`\
-https://nytimes.com/interactive/2025/05/06/dining/25-years-nyc-restaurants.html
-
-**Smokey Robinson Accused of Sexual Assault by Former Housekeepers**\
-`The four women said the Motown legend abused them multiple times while they worked cleaning his home. His wife, they said, created a hostile work environment.`\
-https://nytimes.com/2025/05/06/us/smokey-robinson-sexual-assault-lawsuit.html
-
-**Son of El Chapo to Plead Guilty to Federal Drug Charges**\
-`Ovidio Guzmán López would become the first of El Chapo’s sons to acknowledge guilt in a U.S. federal courthouse, after federal investigators turned their attention from the drug lord to his children.`\
-https://nytimes.com/2025/05/06/us/politics/el-chapo-son-drug-charges.html
-
-**Here’s what happened on Tuesday.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/05/06/us/trump-administration-updates/heres-what-happened-on-tuesday
-
-**Big Ten revenue soared to $928 million for 2024 fiscal year**\
-`Conference dispersed more than $63 million to its long-standing members, a number that outpaced the SEC and which is expected to grow.`\
-https://nytimes.com/athletic/6338425/2025/05/06/big-ten-revenue-soared-2024/
-
-**Why Did the N.Y.P.D. Hand Over a Sealed Arrest to Homeland Security?**\
-`U.S. officials asked for records about a New Jersey woman’s summons, issued at a Columbia University protest. Now the information is part of her deportation proceeding.`\
-https://nytimes.com/2025/05/06/nyregion/nypd-ice-deportation-case-sealed-records.html
 
