@@ -1,3 +1,7 @@
+**Cardinals Begin Conclave With an Oath**\
+`The cardinals at the Sistine Chapel in Vatican City vow to follow the rules of the conclave, the process by which the next pope is chosen.`\
+https://nytimes.com/2025/05/07/world/europe/cardinals-conclave-oath.html
+
 **Republican Challenger in Long-Contested N.C. Race Concedes Defeat**\
 `Three counts had showed that the incumbent, a Democrat, won the election last fall. But for months, Judge Jefferson Griffin tried to reverse his loss through the courts.`\
 https://nytimes.com/2025/05/07/us/politics/north-carolina-supreme-court-gop-concession.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/t-magazine/mens-knitwear-spring-summer.html
 **These 10 U.S. Cardinals Have a Vote in Selecting the Next Pope**\
 `Six are joining in their first papal conclave, and four others participated in the 2013 conclave that elected Pope Francis.`\
 https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
-
-**Utah NHL team picks Mammoth as permanent name: How we got here, and what the new gear looks like**\
-`The colors from Year 1 in Utah remain unchanged in the new jerseys designed for the Mammoth.`\
-https://nytimes.com/athletic/6339788/2025/05/07/utah-mammoth-team-name-nhl/
 
