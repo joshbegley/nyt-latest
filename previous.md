@@ -1,3 +1,7 @@
+**Detained Tufts Student Must Be Moved to Vermont, Court Rules**\
+`Rumeysa Ozturk, an international student from Turkey, was detained in Massachusetts in March and later taken to Louisiana. The ruling said she must be transferred within a week.`\
+https://nytimes.com/2025/05/07/us/rumeysa-ozturk-tufts-detention-vermont.html
+
 **Fed Chair Says Next Moves Are ‘Not at all Clear’**\
 `The Federal Reserve announced that it would leave interest rates unchanged for a third meeting in a row on Wednesday.``\
 https://nytimes.com/video/us/100000010155684/jerome-powell-interest-rates-unemployment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/well/death-and-dying-questions.html
 **‘Taking Her Voice’: Hilaria Baldwin Revisits Her Accent Controversy**\
 `In a memoir that tries to wrest control of her story, Ms. Baldwin says she was “canceled” via online sleuths who looked for inconsistencies in her Spanish accent.`\
 https://nytimes.com/2025/05/07/books/hilaria-baldwin-accent-controversy.html
-
-**DeFabo: George Pickens wasn't going to 'grow up,' forcing the Steelers' hand**\
-`If Mike Tomlin couldn't get through to Pickens in three years, he was never going to, which is why the Steelers moved on.`\
-https://nytimes.com/athletic/6340589/2025/05/07/george-pickens-trade-steelers-mike-tomlin/
 
