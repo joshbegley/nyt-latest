@@ -1,3 +1,7 @@
+**Barcelona lost, but won back respect across Europe - this is 'the beginning of the comeback'**\
+`While Barcelona's treble dreams may have been dashed, this loss is by no means a catastrophe for Hansi Flick's team - there is more to come`\
+https://nytimes.com/athletic/6339078/2025/05/07/barcelona-inter-champions-league/
+
 **Grassroots footballers protest FA's ban on transgender women**\
 `Some grassroots players marched to Wembley Stadium in hope of forcing the FA to change its policy on transgender women in football`\
 https://nytimes.com/athletic/6335281/2025/05/07/grassroots-march-wembley-transgender-women-ban/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenh
 **Commencement Speaker**\
 `Who would you want to deliver a speech at your graduation?`\
 https://nytimes.com/2025/05/07/learning/commencement-speaker.html
-
-**The Drama and Politics Behind Picking a Pope**\
-`There are, technically, 133 papal contenders but no official candidates. Here’s how a New York Times team determines the front-runners.`\
-https://nytimes.com/2025/05/07/insider/pope-conclave-process.html
 
