@@ -1,3 +1,11 @@
+**Some ‘Les Misérables’ Cast Members Plan to Skip Trump Kennedy Center Gala**\
+`Several members of the “Les Misérables” cast are said to be planning to boycott a gala performance at the Kennedy Center, which President Trump took over as chairman.`\
+https://nytimes.com/2025/05/07/arts/music/les-mis-boycott-trump-kennedy-center.html
+
+**USWNT's Mallory Swanson, Cubs' Dansby Swanson expecting first child**\
+`Dansby is in his third season with the Cubs and Mallory is in her fourth with the Red Stars.`\
+https://nytimes.com/athletic/6341051/2025/05/07/mallory-swanson-dansby-swanson-pregnancy/
+
 **Congress Grills College Presidents With an Old Script and New Threats**\
 `In a House hearing, lawmakers scrutinized a set of college leaders from institutions outside the Ivy League schools that have drawn the Trump administration's attention.`\
 https://nytimes.com/2025/05/07/us/congress-hearing-college-presidents-haverford.html
