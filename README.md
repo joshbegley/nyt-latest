@@ -1,3 +1,7 @@
+**The Bounce: Road teams have dominated second round of NBA playoffs. Will it continue?**\
+`The second round of the playoffs are underway, but a home team hasn't won yet. How long can this trend continue?`\
+https://nytimes.com/athletic/6339725/2025/05/07/jimmy-butler-steph-curry-hamstring-warriors-timberwolves-nba-playoffs-the-bounce/
+
 **The Windup: A historic meltdown**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6338874/2025/05/07/ryan-pressly-giants-cubs-the-windup/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6339788/2025/05/07/utah-mammoth-team-name-nhl/
 https://nytimes.com/2025/05/07/us/washington-dc-budget-house-johnson.html
 
 **Trump says World Cup spot for Russia could be 'incentive' to end war**\
-`Since their illegal invasion of Ukraine in February 2022, Russian teams have been suspended from FIFA and UEFA competitions.`\
+`Since their illegal invasion of Ukraine in February 2022, Russia's teams have been suspended from FIFA and UEFA competitions.`\
 https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
 
 **Is Denzel Dumfries the best counter-attacking wing-back in the world?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6338541/2025/05/07/canucks-stanley-cup-quinn-hughes
 **Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast’**\
 `Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
 https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html
-
-**Senators are urging Paramount to fight Trump’s ‘60 Minutes’ lawsuit.**\
-`By Benjamin Mullin`\
-https://nytimes.com/live/2025/05/07/us/trump-news/senators-are-urging-paramount-to-fight-trumps-60-minutes-lawsuit
 
