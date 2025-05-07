@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Sex Is Just Sex’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/07/style/tiny-modern-love-stories-sex-is-just-sex.html
+
+**Empty Nesting Is Hard. This Carrot Cake Is Anything But.**\
+`For years, Genevieve Ko would make this dessert for her kids. Now that they’re grown, she’s streamlined it for them — and you.`\
+https://nytimes.com/article/easy-carrot-cake-mothers-day.html
+
 **Hegseth’s Digital Practices Raise New Security Concerns**\
 `Revelations about the defense secretary’s passwords came after he discussed details of planned U.S. airstrikes on a messaging app.`\
 https://nytimes.com/2025/05/07/us/politics/hegseth-phone-security.html
