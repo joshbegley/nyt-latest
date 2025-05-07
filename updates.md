@@ -1,3 +1,15 @@
+**Cardinals believe new bullpen plan will bring more consistency to late innings**\
+`The Cardinals redefined the roles of Gordon Graceffo and Steven Matz as part of a new approach.`\
+https://nytimes.com/athletic/6340362/2025/05/07/cardinals-believe-new-bullpen-plan-will-bring-more-consistency-to-late-innings/
+
+**David Beckham and friends hit the target in Champions League watchalong**\
+`The former England star's watchalong show had its share of entertaining moments.`\
+https://nytimes.com/athletic/6340866/2025/05/07/david-beckham-friends-cbs-champions-league-tv-altcast/
+
+**Pistons president Trajan Langdon vows to 'stay patient' during offseason**\
+`"We'll look at all avenues and decide what the best avenue is for us," says Langdon during news conference in Detroit.`\
+https://nytimes.com/athletic/6340556/2025/05/07/detroit-pistons-offseason-trajan-langon/
+
 **Jeremy Peña's leadoff success, a cleanup crisis and groundballs galore: Astros takeaways**\
 `Few facets of the Astros’ offense looked competent during the six-day road trip — except Peña, who's thriving in the leadoff spot.`\
 https://nytimes.com/athletic/6340893/2025/05/07/jeremy-pena-leadoff-christian-walker-astros-takeaways/

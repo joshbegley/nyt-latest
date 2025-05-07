@@ -1,3 +1,15 @@
+**Cardinals believe new bullpen plan will bring more consistency to late innings**\
+`The Cardinals redefined the roles of Gordon Graceffo and Steven Matz as part of a new approach.`\
+https://nytimes.com/athletic/6340362/2025/05/07/cardinals-believe-new-bullpen-plan-will-bring-more-consistency-to-late-innings/
+
+**David Beckham and friends hit the target in Champions League watchalong**\
+`The former England star's watchalong show had its share of entertaining moments.`\
+https://nytimes.com/athletic/6340866/2025/05/07/david-beckham-friends-cbs-champions-league-tv-altcast/
+
+**Pistons president Trajan Langdon vows to 'stay patient' during offseason**\
+`"We'll look at all avenues and decide what the best avenue is for us," says Langdon during news conference in Detroit.`\
+https://nytimes.com/athletic/6340556/2025/05/07/detroit-pistons-offseason-trajan-langon/
+
 **Jeremy Peña's leadoff success, a cleanup crisis and groundballs galore: Astros takeaways**\
 `Few facets of the Astros’ offense looked competent during the six-day road trip — except Peña, who's thriving in the leadoff spot.`\
 https://nytimes.com/athletic/6340893/2025/05/07/jeremy-pena-leadoff-christian-walker-astros-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6339947/2025/05/07/champions-league-final-how-to-wa
 **The Conclave’s First Day Ended With a Puff of Black Smoke**\
 `Also, India and Pakistan traded blows. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/05/07/briefing/conclave-day-one-covid-study-venice-coffee.html
-
-**ESPN open to paying SEC to move to nine conference football games: Sources**\
-`Sources said the additional money ESPN would pay the SEC would likely be in the range of $50-80 million annually on top of the current deal.`\
-https://nytimes.com/athletic/6340696/2025/05/07/sec-football-nine-game-schedule-espn-money/
-
-**Trump Withdraws Surgeon General Nomination and Announces New Choice**\
-`The president said on social media that he would nominate Dr. Casey Means, confirming that he had withdrawn the nomination of Dr. Janette Nesheiwat, his first pick, a former Fox News contributor.`\
-https://nytimes.com/2025/05/07/us/politics/casey-means-surgeon-general.html
-
-**Helicopter Broke Apart Before Crashing Into Hudson River, Report Says**\
-`A preliminary report from the National Transportation Safety Board did not provide an explanation for the crash, which left six people dead.`\
-https://nytimes.com/2025/05/07/nyregion/nyc-helicopter-crash.html
 
