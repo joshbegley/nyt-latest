@@ -1,3 +1,11 @@
+**Review: At Gibney, a New Lucinda Childs Stands Out (No Surprise)**\
+`Gibney Company brings an uneven trio of new works to the Joyce: a deft premiere by Childs and dances by Roy Assaf and Peter Chu.`\
+https://nytimes.com/2025/05/07/arts/dance/review-gibney-company-lucinda-childs.html
+
+**Johnson Rules Out Aggressive Medicaid Cuts as G.O.P. Moderates Waver**\
+`The Republican speaker’s decision underscored the resistance in his party to politically painful reductions to the program, and drew a backlash from the hard right, which is demanding deep cuts.`\
+https://nytimes.com/2025/05/07/us/politics/medicaid-cuts-house-republicans-johnson.html
+
 **G.O.P. Plans to Cut Medicaid Would Save Billions but Leave More Uninsured, Budget Office Says**\
 `The Congressional Budget Office reviewed the leading proposals from Republicans who are trying to cut the costs of a program that serves roughly 72 million poor and disabled Americans.`\
 https://nytimes.com/2025/05/07/upshot/medicaid-cbo-options.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/arts/design/frieze-new-york-behind-scenes.html
 **Maple Leafs lineup changes vs. Panthers: Joseph Woll to start; Matt Murray returns**\
 `Can Joseph Woll find his top form? Will the Leafs seek retribution over Sam Bennett's hit on Anthony Stolarz? Big questions loom in Game 2.`\
 https://nytimes.com/athletic/6338705/2025/05/07/maple-leafs-lineup-panthers-nhl-playoffs-game-2/
-
-**New Restaurants in New York City with Standout Design**\
-`Visitors should at least peek into some of these spots, including a sushi restaurant with a 2D interior and a Baz Luhrmann-owned joint with major medieval vibes.`\
-https://nytimes.com/2025/05/07/arts/design/restaurants-bars-new-york-city.html
-
-**Tough decisions, 'stolen' players and more from an early 2025 fantasy football mock draft**\
-`The Athletic fantasy football collective recently participated in a fantasy football mock draft to help set the stage for the 2025 campaign.`\
-https://nytimes.com/athletic/6334921/2025/05/07/fantasy-football-2025-early-mock-draft/
 
