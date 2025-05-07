@@ -1,3 +1,15 @@
+**Judge rules ATP Tour cannot retaliate against players who join PTPA tennis lawsuit**\
+`The ATP Tour had produced a letter to be signed by players, stating that they did not agree with legal action to overturn tennis' structure.`\
+https://nytimes.com/athletic/6340663/2025/05/07/tennis-lawsuit-ptpa-atp-wta-players-retaliation/
+
+**7 Practical and Engaging Ways to Use Times Resources in Career and Technical Education**\
+`A teacher in a C.T.E. program suggests features that can help students build skills they’ll need across careers — whether in engineering, health care, hospitality, the construction trades or any other.`\
+https://nytimes.com/2025/05/07/learning/7-practical-and-engaging-ways-to-use-times-resources-in-career-and-technical-education.html
+
+**3 Former Officers Acquitted of All State Charges in Tyre Nichols’s Death**\
+`The former Memphis officers were acquitted of all charges, including second-degree murder, in the beating death of Mr. Nichols.`\
+https://nytimes.com/2025/05/07/us/politics/tyre-nichols-state-trial-officers-acquitted.html
+
 **Come for the Conclave. Don’t Stay for the Food.**\
 `The cardinals selecting the next pope will take their meals at a Vatican guesthouse. One conclave veteran said the fare was “food you could eat at a train station.”`\
 https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/weather/100000010155465/las-vegas-flood-hail.html
 **Reds place 3B Noelvi Marte on IL with oblique strain, recall OF Rece Hinds**\
 `Hinds, 24, has .281/.343/.554 with eight home runs and 12 stolen bases at Triple-A Louisville this season.`\
 https://nytimes.com/athletic/6340548/2025/05/07/reds-noelvi-marte-injury-rece-hinds/
-
-**'Refereeing mistakes' kept Barca out of Champions League final, club president claims**\
-`Inter prevailed in the semi-final on Tuesday after a dramatic 4-3 victory at San Siro.`\
-https://nytimes.com/athletic/6340493/2025/05/07/joan-laporta-barcelona-champions-league/
-
-**Jean-Luc Mélenchon Believes the French Left Has a Lesson for America**\
-`The French radical believes that France has something to teach the world.`\
-https://nytimes.com/2025/05/07/opinion/melenchon-left-france.html
-
-**Texas Attorney General Announces Vote Fraud and ‘Harvesting’ Charges**\
-`A county judge, two City Council members and a former county election administrator are among Ken Paxton’s targets as he elevates his “election integrity” accusations to criminality.`\
-https://nytimes.com/2025/05/07/us/politics/texas-vote-fraud.html
 
