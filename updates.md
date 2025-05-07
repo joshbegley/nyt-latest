@@ -1,3 +1,7 @@
+**Brazil's supreme court asked to suspend CBF chief over 'inauthentic signature'**\
+`The signature of vice-president Antonio Carlos Nunes de Lima on an agreement helped strengthen Rodrigues' hold on the presidency.`\
+https://nytimes.com/athletic/6338162/2025/05/07/brazil-cbf-ednaldo-rodrigues/
+
 **A sea gull took center stage at the last conclave.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-sea-gull-took-center-stage-at-the-last-conclave

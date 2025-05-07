@@ -1,3 +1,7 @@
+**Michael Pitt, ‘Boardwalk Empire’ Actor, Is Arrested on Sex Abuse Charges**\
+`Mr. Pitt faces numerous charges, including assault and strangulation, based on encounters in 2020 and 2021. He has pleaded not guilty.`\
+https://nytimes.com/2025/05/07/arts/television/michael-pitt-sex-abuse-charges.html
+
 **Brazil's supreme court asked to suspend CBF chief over 'inauthentic signature'**\
 `The signature of vice-president Antonio Carlos Nunes de Lima on an agreement helped strengthen Rodrigues' hold on the presidency.`\
 https://nytimes.com/athletic/6338162/2025/05/07/brazil-cbf-ednaldo-rodrigues/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/the-sistine-chap
 **Thompson: Steph Curry's injury gives the Warriors another mission: Buy him time**\
 `The Warriors don't yet know how long Steph Curry will be out. Now they'll have to try to keep a promising season alive without him.`\
 https://nytimes.com/athletic/6340063/2025/05/07/steph-curry-hamstring-injury-warriors-timberwolves-playoffs/
-
-**What the Fed’s Rate Policy Means for Your Finances**\
-`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/05/07/business/fed-interest-rate-loans-mortgages.html
 
