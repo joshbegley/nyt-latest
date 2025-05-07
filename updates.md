@@ -1,3 +1,11 @@
+**The Indian Aircraft Pakistan Says It Shot Down**\
+`Tensions between India and Pakistan have risen sharply in the weeks since a terrorist attack in Kashmir. On Wednesday, India hit Pakistan and appears to have lost at least a few planes in the strike.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
+
+**How Lost Radar and Silent Radios Have Upended Newark Air Travel**\
+`A technical outage in Philadelphia last week terrified air traffic controllers and stranded passengers. As the summer travel season looms, the F.A.A. is racing to address the problems.`\
+https://nytimes.com/2025/05/07/us/politics/newark-airport-delays.html
+
 **Some ‘Les Misérables’ Cast Members Plan to Skip Trump Kennedy Center Gala**\
 `Several members of the “Les Misérables” cast are said to be planning to boycott a gala performance at the Kennedy Center, which President Trump took over as chairman.`\
 https://nytimes.com/2025/05/07/arts/music/les-mis-boycott-trump-kennedy-center.html
