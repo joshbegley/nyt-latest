@@ -1,3 +1,11 @@
+**The Windup: A historic meltdown**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6338874/2025/05/07/ryan-pressly-giants-cubs-the-windup/
+
+**Breezy Knits for Warmer Weather**\
+`Airy, light weaves add texture to spring men’s wear.`\
+https://nytimes.com/2025/05/07/t-magazine/mens-knitwear-spring-summer.html
+
 **These 10 U.S. Cardinals Have a Vote in Selecting the Next Pope**\
 `Six are joining in their first papal conclave, and four others participated in the 2013 conclave that elected Pope Francis.`\
 https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-
 **Senators are urging Paramount to fight Trump’s ‘60 Minutes’ lawsuit.**\
 `By Benjamin Mullin`\
 https://nytimes.com/live/2025/05/07/us/trump-news/senators-are-urging-paramount-to-fight-trumps-60-minutes-lawsuit
-
-**Let's try to make sense of Connor Hellebuyck's playoff struggles**\
-`After a difficult first-round series, can Hellebuyck get back to his successful "big and boring" style?`\
-https://nytimes.com/athletic/6333478/2025/05/07/connor-hellebuyck-jets-playoffs-stars/
-
-**Thunder in full support of Chet Holmgren bouncing back after frustrating Game 1 finish**\
-`“He’s the last guy I’m worried about,” Thunder coach Mark Daigneault said after Chet Holmgren's Game 1 performance.`\
-https://nytimes.com/athletic/6338884/2025/05/07/thunder-chet-holmgren-nba-playoffs-game-1/
 

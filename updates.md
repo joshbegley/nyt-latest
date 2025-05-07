@@ -1,3 +1,11 @@
+**The Windup: A historic meltdown**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6338874/2025/05/07/ryan-pressly-giants-cubs-the-windup/
+
+**Breezy Knits for Warmer Weather**\
+`Airy, light weaves add texture to spring men’s wear.`\
+https://nytimes.com/2025/05/07/t-magazine/mens-knitwear-spring-summer.html
+
 **These 10 U.S. Cardinals Have a Vote in Selecting the Next Pope**\
 `Six are joining in their first papal conclave, and four others participated in the 2013 conclave that elected Pope Francis.`\
 https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
