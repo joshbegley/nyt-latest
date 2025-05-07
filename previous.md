@@ -1,40 +1,40 @@
-**Tyrese Haliburton's dream playoff run continues for Pacers: 'That boy cold, man'**\
-`Haliburton scored four points in the final 12 seconds, including the game-winning 3, to stun the Cavaliers on the road.`\
-https://nytimes.com/athletic/6339239/2025/05/07/tyrese-haliburton-pacers-playoffs-game-2-game-winner/
+**Pelicans draft scenarios: What happens with Zion Williamson if they get lucky?**\
+`If the Pelicans fall in Monday's NBA Draft Lottery, things will get more complicated for Joe Dumars. `\
+https://nytimes.com/athletic/6337752/2025/05/07/pelicans-zion-williamson-cooper-flagg-draft-lottery-nba/
 
-**The Oilers have mastered the art of the comeback win: 'This team is built for the playoffs'**\
-`The Oilers secured their fifth straight come-from-behind win — an NHL playoff record — when they defeated the Golden Knights 4-2 in Game 1.`\
-https://nytimes.com/athletic/6339141/2025/05/07/oilers-golden-knights-comeback-win-nhl-playoffs/
+**Disney to Build a Magic Kingdom Theme Park in the Middle East**\
+`Disneyland Abu Dhabi could become a growth engine for the company in the region. It could also expose Disney and its vaunted brand to criticism.`\
+https://nytimes.com/2025/05/07/business/media/disney-theme-park-abu-dhabi.html
 
-**Chris Finch challenges Anthony Edwards after Wolves' Game 1 dud: 'It starts with Ant'**\
-`Edwards wasn't the only Minnesota player to struggle against Golden State. But as the team's best player and leader, he has to be better.`\
-https://nytimes.com/athletic/6338365/2025/05/07/anthony-edwards-timberwolves-playoffs-game-1-warriors-chris-finch/
+**Trump Administration Live Updates: U.S. Plans to Send Migrants to Libya, Officials Say**\
+``\
+https://nytimes.com/live/2025/05/07/us/trump-news
 
-**Bodo/Glimt fans trade dried fish and reindeer meat for Spurs tickets**\
-`50,000 Bodo/Glimt fans had been vying for the 480 tickets that were on general sale for the game on Thursday.`\
-https://nytimes.com/athletic/6339282/2025/05/07/bodo-glimt-tottenham-tickets/
+**What I'm seeing from the Red Wings' prospects in the AHL playoffs**\
+`The Griffins are in trouble in their first-round series against Texas. Here's what's gone wrong, and how the top prospects have looked. `\
+https://nytimes.com/athletic/6338349/2025/05/07/red-wings-prospects-ahl-griffins-playoffs/
 
-**Countdown to China Trade Talks**\
-`Treasury Secretary Scott Bessent will finally start negotiating with Chinese counterparts. But business leaders shouldn’t expect any sudden breakthroughs.`\
-https://nytimes.com/2025/05/07/business/dealbook/countdown-to-china-trade-talks.html
+**Chargers mailbag: The rationale at interior OL, biggest camp battles, more**\
+`Also addressed: How does the unrestricted free agent tag on running back J.K. Dobbins work? `\
+https://nytimes.com/athletic/6338154/2025/05/07/chargers-mailbag-offensive-line-training-camp-battles/
 
-**How did Warriors win Game 1 after Steph Curry injury? With depth and toughness**\
-`With Curry's status uncertain going forward, Golden State will continue to need a collective effort against the Timberwolves.`\
-https://nytimes.com/athletic/6338582/2025/05/07/warriors-playoffs-steph-curry-injury-draymond-green-game-1-wolves/
+**Dodgers' Max Muncy hoping for new perspective to go with new eyewear**\
+`Muncy recently hit his first home run of the season wearing his prescription sunglasses, so the new frames have stuck.`\
+https://nytimes.com/athletic/6338720/2025/05/07/dodgers-max-muncy-perspective-eyewear/
 
-**Cowboys working trade for George Pickens, sending Steelers picks: Sources**\
-`Pickens, who led the Steelers in targets and receiving yards each of the last two seasons, butted heads with the Steelers throughout 2024. `\
-https://nytimes.com/athletic/6310136/2025/05/07/cowboys-george-pickens-steelers-trade/
+**Evaluating the 49ers draft class: Did they potentially add 5 defensive starters?**\
+`The 49ers filled some holes on the defensive line with their top picks, and don't discount the future roles of Nick Martin and Upton Stout.`\
+https://nytimes.com/athletic/6338277/2025/05/07/49ers-draft-class-mykel-williams-alfred-collins/
 
-**How Brian Gregory, a longtime college coach with little NBA experience, became Suns GM**\
-`One former assistant has a nickname for Gregory: "The Fixer." Because Gregory knew how to rebuild programs. Will it translate in Phoenix?`\
-https://nytimes.com/athletic/6338972/2025/05/07/brian-gregory-phoenix-suns-gm-history-introduction/
+**Recruiting thoughts: Oregon's setbacks, USC's surge, Washington's in-state push**\
+`Ole Miss beefs up class with two blue-chip commitments. Vanderbilt beats out Georgia and Notre Dame for elite defensive back. `\
+https://nytimes.com/athletic/6337637/2025/05/07/college-football-recruiting-oregon-usc-washington/
 
-**Gazans Despair After Israel Announces More Displacement**\
-`Israel’s plan to capture more land in Gaza and relocate thousands of civilians has heightened a sense of hopelessness among Palestinians.`\
-https://nytimes.com/2025/05/07/world/middleeast/israel-gaza-displacement-plan-reaction.html
+**Nebraska's leadership has positioned Huskers to handle college football's changing landscape**\
+`Coach Matt Rhule has found the right mix of patience and urgency as he waits to find out how big his roster can be in 2025. `\
+https://nytimes.com/athletic/6337988/2025/05/07/nebraska-football-house-roster-size/
 
-**The Athletic FC: Crazy tie as Inter beat Barca, Trump picks Giuliani Jnr for World Cup task force**\
-`Today in TAFC: Analysing a classic as Inter beat Barca to reach Champions League final, Trump appoints Giuliani Jr to World Cup taskforce.`\
-https://nytimes.com/athletic/6339212/2025/05/07/inter-barcelona-champions-league-trump-giuliani/
+**Fouling Mitchell Robinson isn't just a smart move for the Celtics. It's a sign of respect**\
+`Teams are intentionally fouling Mitchell Robinson, and it's because he's been impactful.`\
+https://nytimes.com/athletic/6336992/2025/05/07/knicks-celtics-nba-playoffs-2025-mitchell-robinson/
 
