@@ -1,3 +1,7 @@
+**Cardinals Begin Conclave With an Oath**\
+`The cardinals at the Sistine Chapel in Vatican City vow to follow the rules of the conclave, the process by which the next pope is chosen.`\
+https://nytimes.com/2025/05/07/world/europe/cardinals-conclave-oath.html
+
 **Republican Challenger in Long-Contested N.C. Race Concedes Defeat**\
 `Three counts had showed that the incumbent, a Democrat, won the election last fall. But for months, Judge Jefferson Griffin tried to reverse his loss through the courts.`\
 https://nytimes.com/2025/05/07/us/politics/north-carolina-supreme-court-gop-concession.html

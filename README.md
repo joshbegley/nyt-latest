@@ -1,3 +1,27 @@
+**Salt Lake City and Boise Adopt Official Pride Flags in Response to State Laws**\
+`The cities approved several new flags after Utah and Idaho passed laws barring unofficial flags from being displayed on government property.`\
+https://nytimes.com/2025/05/07/us/salt-lake-city-boise-pride-flags.html
+
+**With Telescoping Crutches and Hexapod Legs, Dance Goes New Places**\
+`A new work by Axis Dance Company, “Kinematic/Kinesthetic,” uses mobility technologies to reshape ideas about moving and about the devices themselves.`\
+https://nytimes.com/2025/05/07/arts/dance/axis-dance-assistive-devices-kinematic-kinesthetic.html
+
+**Listen: Who should leave Spurs this summer?**\
+`View From The Lane discuss which players Spurs should consider offloading and who they should target this summer.`\
+https://nytimes.com/athletic/6337033/2025/05/07/view-from-the-lane-tottenham-summer-2025-transfers/
+
+**Genetic Study Retraces the Origins of Coronaviruses in Bats**\
+`As China and the United States trade charges of a lab leak, researchers contend in a new paper that the Covid pandemic got its start, like a previous one, in the wildlife trade.`\
+https://nytimes.com/2025/05/07/science/covid-coronavirus-bats-genetics.html
+
+**Add This Malai Chicken and Potatoes to Your Sheet-Pan-Dinner Rotation**\
+`“You know it’s good when everyone crowds around the sheet pan after dinner to scrape up whatever sauce got left behind with their fingers!”`\
+https://nytimes.com/2025/05/07/dining/malai-sheet-pan-chicken-dinner.html
+
+**Cowboys' trade for George Pickens completes their offense and is a bet on their culture**\
+`The Cowboys made a bold move in trading for George Pickens. Can they get the get the mercurial receiver to buy into their culture?`\
+https://nytimes.com/athletic/6339724/2025/05/07/cowboys-george-pickens-trade-dak-prescott/
+
 **Cardinals Begin Conclave With an Oath**\
 `The cardinals at the Sistine Chapel in Vatican City vow to follow the rules of the conclave, the process by which the next pope is chosen.`\
 https://nytimes.com/2025/05/07/world/europe/cardinals-conclave-oath.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6339981/2025/05/07/sabres-kevyn-adams-eric-staal-nh
 **Why A'ja Wilson's new Nike ad is the best TV commercial of the year: MoneyCall**\
 `In this week's sports business forecast from The Athletic: A'ja Wilson, Derby ratings, D.C. draft day, $40 million Texas football and more.`\
 https://nytimes.com/athletic/6339860/2025/05/07/aja-wilson-nike-wnba-caitlin-clark-moneycall/
-
-**From 'struggling to look at myself' to playoff hero: How Tyrese Haliburton rediscovered his joy**\
-`The Pacers star reveals the mental health struggles that "consumed" him early this season and how he confronted them head on.`\
-https://nytimes.com/athletic/6338707/2025/05/07/tyrese-haliburton-pacers-cavaliers-mental-health-nba-playoffs/
-
-**‘Love Island USA’ Heads Back to the Villa**\
-`After finding a winning formula in Season 6, the Peacock dating competition will return to Fiji this summer.`\
-https://nytimes.com/2025/05/07/style/love-island-usa-season-7-release-date.html
-
-**The Bounce: Road teams have dominated second round of NBA playoffs. Will it continue?**\
-`The second round of the playoffs are underway, but a home team hasn't won yet. How long can this trend continue?`\
-https://nytimes.com/athletic/6339725/2025/05/07/jimmy-butler-steph-curry-hamstring-warriors-timberwolves-nba-playoffs-the-bounce/
-
-**The Windup: A historic meltdown**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6338874/2025/05/07/ryan-pressly-giants-cubs-the-windup/
-
-**Breezy Knits for Warmer Weather**\
-`Airy, light weaves add texture to spring men’s wear.`\
-https://nytimes.com/2025/05/07/t-magazine/mens-knitwear-spring-summer.html
-
-**These 10 U.S. Cardinals Have a Vote in Selecting the Next Pope**\
-`Six are joining in their first papal conclave, and four others participated in the 2013 conclave that elected Pope Francis.`\
-https://nytimes.com/2025/05/07/world/europe/us-cardinals-pope-vote-conclave.html
 
