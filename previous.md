@@ -1,3 +1,15 @@
+**Fed Chair Says Next Moves Are ‘Not at all Clear’**\
+`The Federal Reserve announced that it would leave interest rates unchanged for a third meeting in a row on Wednesday.``\
+https://nytimes.com/video/us/100000010155684/jerome-powell-interest-rates-unemployment.html
+
+**Pro-Palestinian Demonstrators Occupy Columbia University’s Main Library**\
+`The students appeared to be attempting to rekindle the protest movement of last spring.`\
+https://nytimes.com/2025/05/07/nyregion/columbia-protest-library-occupied.html
+
+**Las Vegas Shatters Rain Record as ‘Very Unusual’ Storm Soaks City**\
+`A man was swept away by the flooding rains, the police said.`\
+https://nytimes.com/2025/05/07/weather/las-vegas-flood-record-rain.html
+
 **Airstrikes Kill Dozens in Gaza City**\
 `The single deadliest bombing took place near a popular cafe in Gaza City where at least 33 people were killed, according to Gaza’s Health Ministry.`\
 https://nytimes.com/video/world/middleeast/100000010155454/gaza-city-cafe-israeli-airstrikes.html
@@ -23,18 +35,6 @@ https://nytimes.com/2025/05/07/well/death-and-dying-questions.html
 https://nytimes.com/2025/05/07/books/hilaria-baldwin-accent-controversy.html
 
 **DeFabo: George Pickens wasn't going to 'grow up,' forcing the Steelers' hand**\
-`If Mike Tomlin couldn't get through to George Pickens in three years, he was never going to, which is why the Steelers moved on.`\
+`If Mike Tomlin couldn't get through to Pickens in three years, he was never going to, which is why the Steelers moved on.`\
 https://nytimes.com/athletic/6340589/2025/05/07/george-pickens-trade-steelers-mike-tomlin/
-
-**Waiting for the Smoke That Heralds a New Pope**\
-`As 133 cardinals were sequestered in the Sistine Chapel where they would vote for a new leader of the Catholic Church, the faithful and the curious gathered in St. Peter’s Square.`\
-https://nytimes.com/2025/05/07/world/europe/papal-conclave-st-peters-square-smoke.html
-
-**No Pope Selected on First Day of Conclave**\
-`Black smoke puffed from a chimney above the Sistine Chapel to indicate the cardinals had not reached a decision in a first round of voting for the next pope.`\
-https://nytimes.com/video/world/europe/100000010155633/no-pope-selected-on-first-day-of-conclave.html
-
-**Ultraprocessed Foods Linked to Early Symptoms of Parkinson’s**\
-`A new study did not prove that the foods caused the disease, but experts said it was a step toward understanding how food choices affect brain health.`\
-https://nytimes.com/2025/05/07/well/eat/ultraprocessed-foods-linked-to-early-symptoms-of-parkinsons.html
 
