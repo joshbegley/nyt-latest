@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`The papal conclave begins.`\
+https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html
+
 **The New York Times in Print for Wednesday, May 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/07/todays-new-york-times
