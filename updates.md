@@ -1,3 +1,15 @@
+**What Ryan Pressly is working to correct after a historically bad outing**\
+`Pressly is walking a career-high percentage of batters while striking out fewer than ever. Pitching coach Tommy Hottovy has an idea why.`\
+https://nytimes.com/athletic/6340911/2025/05/07/cubs-ryan-pressly-bad-outing-reactions/
+
+**Why Does the Met Gala Get a Better Tax Deal Than a Soup Kitchen?**\
+`The charitable tax deduction is distorting American philanthropy.`\
+https://nytimes.com/2025/05/07/opinion/met-gala-tax-dedution-charity.html
+
+**Pro-Palestinian Protesters Occupy Columbia University Library**\
+`Dozens of pro-Palestinian protesters clashed with public safety officers while rallying in a Columbia University library on Wednesday.`\
+https://nytimes.com/video/nyregion/100000010156028/columbia-pro-palestinian-protest.html
+
 **Cardinals believe new bullpen plan will bring more consistency to late innings**\
 `The Cardinals redefined the roles of Gordon Graceffo and Steven Matz as part of a new approach.`\
 https://nytimes.com/athletic/6340362/2025/05/07/cardinals-believe-new-bullpen-plan-will-bring-more-consistency-to-late-innings/
