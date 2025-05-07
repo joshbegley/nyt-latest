@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6338623/2025/05/06/tyrese-haliburton-cavaliers-pace
 `The Cavaliers were up the entire fourth quarter, except for the final second.`\
 https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
 
-**Hurricanes' shot barrage prevails vs. Capitals in Game 1: Takeaways**\
+**Hurricanes' shot barrage prevails vs. Capitals in OT: Takeaways**\
 `Carolina defeated Washington in overtime to take a 1-0 series lead in the second round.`\
 https://nytimes.com/athletic/6338464/2025/05/06/capitals-hurricanes-nhl-playoffs-2025-game-1-takeaways/
 
