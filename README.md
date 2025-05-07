@@ -1,3 +1,7 @@
+**A Patron of the Arts in Denver Who Was ‘Saved by Collecting’**\
+`About 10 years ago, Amanda Precourt turned her attention to buying art. She now sponsors shows and is opening an exhibition space in an old cookie factory.`\
+https://nytimes.com/2025/05/07/arts/design/amanda-precourt-mental-health.html
+
 **Trump Administration Is Said to Target Park Service Grants**\
 `Dozens of programs, many linked to climate change and diversity, have been designated for elimination by DOGE, according to people with knowledge of the plan.`\
 https://nytimes.com/2025/05/07/climate/trump-park-service-grants-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/world/asia/india-operation-sindoor-name.html
 **India-Pakistan Skirmishes Follow a Pattern, but This One Is Different**\
 `At times, the skirmishes between India and Pakistan can seem more like reality TV spectacle, but these strikes are worryingly different.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/pakistan-india-bombing
-
-**Are U.S. Tariffs Affecting Your Business? We Want to Hear From You.**\
-`The New York Times wants to hear from European business owners about how they are navigating the uncertainty of President Trump’s tariffs.`\
-https://nytimes.com/2025/05/07/business/trump-tariffs-europe-small-businesses.html
 
