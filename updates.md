@@ -1,3 +1,19 @@
+**The bond market is in focus as Trump and his advisers push for lower rates.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2025/05/07/business/fed-interest-rates/the-bond-market-is-in-focus-as-trump-and-his-advisers-push-for-lower-rates
+
+**This Auto Parts C.E.O. Gave Trump’s Tariffs a Chance. Now He’s Not So Sure.**\
+`The chief executive of Detroit Axle, which sells car parts that are mostly imported from China, is adjusting his business and hoping for a new trade deal.`\
+https://nytimes.com/2025/05/07/us/china-tariffs-michigan-auto.html
+
+**George Pickens trade grades: Did Cowboys give up too much for enigmatic WR?**\
+`Some teams had zero interest in adding Pickens to their locker rooms. Will things go better for him in Dallas than they did in Pittsburgh?`\
+https://nytimes.com/athletic/6339972/2025/05/07/george-pickens-trade-grades-cowboys-steelers/
+
+**Hegseth’s Use of Passwords Raises New Security Concerns**\
+`Revelations about the defense secretary’s passwords came after he discussed details of planned U.S. airstrikes on a messaging app.`\
+https://nytimes.com/2025/05/07/us/politics/hegseth-phone-security.html
+
 **Tiny Love Stories: ‘Sex Is Just Sex’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/05/07/style/tiny-modern-love-stories-sex-is-just-sex.html
