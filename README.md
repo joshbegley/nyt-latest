@@ -1,3 +1,7 @@
+**Pelicans draft scenarios: What happens with Zion Williamson if they get lucky?**\
+`If the Pelicans fall in Monday's NBA Draft Lottery, things will get more complicated for Joe Dumars. `\
+https://nytimes.com/athletic/6337752/2025/05/07/pelicans-zion-williamson-cooper-flagg-draft-lottery-nba/
+
 **Disney to Build a Magic Kingdom Theme Park in the Middle East**\
 `Disneyland Abu Dhabi could become a growth engine for the company in the region. It could also expose Disney and its vaunted brand to criticism.`\
 https://nytimes.com/2025/05/07/business/media/disney-theme-park-abu-dhabi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6337988/2025/05/07/nebraska-football-house-roster-s
 **Fouling Mitchell Robinson isn't just a smart move for the Celtics. It's a sign of respect**\
 `Teams are intentionally fouling Mitchell Robinson, and it's because he's been impactful.`\
 https://nytimes.com/athletic/6336992/2025/05/07/knicks-celtics-nba-playoffs-2025-mitchell-robinson/
-
-**Netflix Overhauls Its Home Screen for the First Time in 12 Years**\
-`The implications for the industry could be significant, given that most other streaming services have copied Netflix’s design.`\
-https://nytimes.com/2025/05/07/business/media/netflix-new-home-screen.html
 
