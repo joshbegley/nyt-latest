@@ -1,3 +1,11 @@
+**Cowboys working trade for George Pickens, sending Steelers picks: Sources**\
+`Pickens, who led the Steelers in targets and receiving yards each of the last two seasons, butted heads with the Steelers throughout 2024. `\
+https://nytimes.com/athletic/6310136/2025/05/07/cowboys-george-pickens-steelers-trade/
+
+**How Brian Gregory, a longtime college coach with little NBA experience, became Suns GM**\
+`One former assistant has a nickname for Gregory: "The Fixer." Because Gregory knew how to rebuild programs. Will it translate in Phoenix?`\
+https://nytimes.com/athletic/6338972/2025/05/07/brian-gregory-phoenix-suns-gm-history-introduction/
+
 **Gazans Despair After Israel Announces More Displacement**\
 `Israel’s plan to capture more land in Gaza and relocate thousands of civilians has heightened a sense of hopelessness among Palestinians.`\
 https://nytimes.com/2025/05/07/world/middleeast/israel-gaza-displacement-plan-reaction.html
