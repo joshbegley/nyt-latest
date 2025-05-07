@@ -2,7 +2,7 @@
 `The Padres allowed a 10-run inning, but Merrill returned with a 2-for-4 performance that was just as notable.`\
 https://nytimes.com/athletic/6338506/2025/05/07/padres-bullpen-jackson-merrill-yankees/
 
-**Capitals got what they expected from the Hurricanes — and that could be a problem**\
+**Capitals got what they expected from Hurricanes — and that could be a problem**\
 `It's no mystery what kind of game the Hurricanes want to play. The question is whether Spencer Carbery and the Capitals can adapt.`\
 https://nytimes.com/athletic/6338883/2025/05/07/capitals-hurricanes-nhl-playoffs-game-1-carbery/
 
