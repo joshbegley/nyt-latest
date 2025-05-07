@@ -1,41 +1,40 @@
-**Barcelona lost, but won back respect across Europe - this is 'the beginning of the comeback'**\
-`While Barcelona's treble dreams may have been dashed, this loss is by no means a catastrophe for Hansi Flick's team - there is more to come`\
-https://nytimes.com/athletic/6339078/2025/05/07/barcelona-inter-champions-league/
+**What to Watch at the Federal Reserve’s May Meeting**\
+`The U.S. central bank is widely expected to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
+https://nytimes.com/2025/05/07/business/federal-reserve-may-meeting.html
 
-**Grassroots footballers protest FA's ban on transgender women**\
-`Some grassroots players marched to Wembley Stadium in hope of forcing the FA to change its policy on transgender women in football`\
-https://nytimes.com/athletic/6335281/2025/05/07/grassroots-march-wembley-transgender-women-ban/
+**Want to Live a Happier Life? Start by Watching the Well Festival Today.**\
+`The Times is hosting a day of interviews dedicated to a singular theme: maximizing your happiness. Follow along live.`\
+https://nytimes.com/2025/05/07/well/well-festival-happiness.html
 
-**Xi’s Visit to Russia Complicates China’s Courtship of Europe**\
-`Xi Jinping, China’s leader, is reinforcing his bond with President Vladimir V. Putin of Russia. But that could hurt Beijing’s efforts to repair ties with Europe.`\
-https://nytimes.com/2025/05/07/world/asia/xi-china-russia-trade.html
+**A Half-Ton Spacecraft Lost by the Soviets in 1972 Is Coming Home**\
+`Kosmos-482, which was headed to Venus, is expected to re-enter Earth’s atmosphere by the end of this weekend. Experts don’t yet know where it may come down.`\
+https://nytimes.com/2025/05/07/science/kosmos-482-soviet-spacecraft-reentry.html
 
-**Nico Williams and Inaki both miss Man United semi-final second leg**\
-`Nico missed Sunday's Basque derby against Real Sociedad, while his older brother Inaki was withdrawn in the 62nd minute of the 0-0 draw.`\
-https://nytimes.com/athletic/6339143/2025/05/07/manchester-united-athletic-bilbao-team-news/
+**A Landmark Celebrates an Architect Many Have Forgotten**\
+`The Modulightor Building on East 58th Street is a creation of the Modernist architect Paul Rudolph, a major figure in the Brutalist movement.`\
+https://nytimes.com/2025/05/07/nyregion/landmark-paul-rudolph-architect.html
 
-**Alpine replaces Doohan with Colapinto for at least the next five F1 races**\
-`In his seven Formula One races, Doohan’s highest finish was P13`\
-https://nytimes.com/athletic/6338477/2025/05/07/alpine-f1-franco-colapinto-jack-doohan-driver-swap/
+**‘Andor’ Season 2, Episodes 7-9: Deaths and Births**\
+`This week’s episodes hinge on events that are so shocking — and happen so fast — the main characters aren’t sure how to interpret them.`\
+https://nytimes.com/2025/05/07/arts/television/andor-season-2-episodes-7-9-recap.html
 
-**Russia and Ukraine Trade Strikes Before Moscow’s Victory Day Parade**\
-`The attacks came a day before a Russian-proposed cease-fire was to take effect and as Moscow prepared to welcome foreign dignitaries for a parade.`\
-https://nytimes.com/2025/05/07/world/europe/ukraine-russia-strikes-victory-day.html
+**Our Favorite Books for Every Type of Mom**\
+`Need a last-minute Mother’s Day gift? Try one of these recent releases.`\
+https://nytimes.com/2025/05/07/books/review/mothers-day-books.html
 
-**Scenes From India’s Strikes in Kashmir and Pakistan**\
-`After weeks of tensions from a terrorist attack in Kashmir, India conducted strikes against Pakistan. Anger on both sides has the world bracing for an escalation.`\
-https://nytimes.com/2025/05/07/world/asia/india-pakistan-kashmir-photos.html
+**Kristi Noem and the MAGA Beauty Aesthetic**\
+`Republican women know what they’re doing.`\
+https://nytimes.com/2025/05/07/opinion/maga-women-aesthetics.html
 
-**Breaking down the madness of Inter 4-3 Barcelona, a Champions League classic**\
-`Penalty decisions, stunning goals and and even an alleged spitting incident - Inter's win over Barcelona had it all`\
-https://nytimes.com/athletic/6338423/2025/05/07/inter-barcelona-champions-league-semi-final-analysis/
+**Trump’s Threatened Tariffs Are So Large, 10% Feels Like a Relief**\
+`As he proposes ever stiffer tariffs, President Trump has normalized his merely big ones.`\
+https://nytimes.com/2025/05/07/us/politics/trump-tariffs-10-percent.html
 
-**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
-`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
-`\
-https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+**‘Forbidden Games’: A War Orphan’s Sweet, Ultimately Shattering Story**\
+`Hailed on its release as the most troubling French film made in the aftermath of World War II, it returns for a week at Film Forum.`\
+https://nytimes.com/2025/05/07/movies/forbidden-games-film-forum.html
 
-**Commencement Speaker**\
-`Who would you want to deliver a speech at your graduation?`\
-https://nytimes.com/2025/05/07/learning/commencement-speaker.html
+**How to Use the A.I.-Powered Writing Tools on Your Phone**\
+`Artificial intelligence software — some already free on your device — can quickly compose and edit documents. But be sure to check its work.`\
+https://nytimes.com/2025/05/07/technology/personaltech/ai-writing-tools-phone.html
 

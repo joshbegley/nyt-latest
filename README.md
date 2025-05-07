@@ -1,3 +1,15 @@
+**How Cowboys' Day 2 picks, Donovan Ezeiruaku, Shavon Revel Jr. could make immediate impact**\
+`The Cowboys were excited about getting edge Donovan Ezeiruaku and cornerback Shavon Revel. They expect both to make an impact.`\
+https://nytimes.com/athletic/6337960/2025/05/07/cowboys-rookie-minicamp-donovan-ezeiruaku-shavon-revel/
+
+**With Tears of Joy and Anxiety, Waiting for P.O.W.s to Come Home, at Last**\
+`In a parking lot in Ukraine, hundreds of family members gathered to greet loved ones being repatriated from Russian prisons. Amid happy reunions, there was anguish, too.`\
+https://nytimes.com/2025/05/07/world/europe/ukraine-pow-prisoners-exchange.html
+
+**Do You Believe in the American Dream?**\
+`Is it available to everyone today? Was it ever?`\
+https://nytimes.com/2025/05/07/learning/do-you-believe-in-the-american-dream.html
+
 **What to Watch at the Federal Reserve’s May Meeting**\
 `The U.S. central bank is widely expected to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
 https://nytimes.com/2025/05/07/business/federal-reserve-may-meeting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/07/books/review/mothers-day-books.html
 **Kristi Noem and the MAGA Beauty Aesthetic**\
 `Republican women know what they’re doing.`\
 https://nytimes.com/2025/05/07/opinion/maga-women-aesthetics.html
-
-**Trump’s Threatened Tariffs Are So Large, 10% Feels Like a Relief**\
-`As he proposes ever stiffer tariffs, President Trump has normalized his merely big ones.`\
-https://nytimes.com/2025/05/07/us/politics/trump-tariffs-10-percent.html
-
-**‘Forbidden Games’: A War Orphan’s Sweet, Ultimately Shattering Story**\
-`Hailed on its release as the most troubling French film made in the aftermath of World War II, it returns for a week at Film Forum.`\
-https://nytimes.com/2025/05/07/movies/forbidden-games-film-forum.html
-
-**How to Use the A.I.-Powered Writing Tools on Your Phone**\
-`Artificial intelligence software — some already free on your device — can quickly compose and edit documents. But be sure to check its work.`\
-https://nytimes.com/2025/05/07/technology/personaltech/ai-writing-tools-phone.html
 
