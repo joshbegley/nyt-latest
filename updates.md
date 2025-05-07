@@ -1,3 +1,15 @@
+**Tom Brady's advice to Shedeur Sanders after draft slide: 'Use it as motivation'**\
+`Brady said he texted Sanders after the former Colorado quarterback slid from a potential first-round pick to the No. 144th selection.`\
+https://nytimes.com/athletic/6340099/2025/05/07/shedeur-sanders-tom-brady-nfl-draft-slide/
+
+** What’s in Our Queue? ‘The Great British Bake Off’ and More **\
+`Text by Ruth Fremson`\
+https://nytimes.com/card/2025/05/07/arts/editors-recommendations-bakeoff
+
+**Warriors' Curry expected to miss multiple games with hamstring strain**\
+`Curry strained his hamstring in the series opener and was immediately ruled out.`\
+https://nytimes.com/athletic/6340283/2025/05/07/warriors-steph-curry-injury-nba/
+
 **Michael Pitt, ‘Boardwalk Empire’ Actor, Is Arrested on Sex Abuse Charges**\
 `Mr. Pitt faces numerous charges, including assault and strangulation, based on encounters in 2020 and 2021. He has pleaded not guilty.`\
 https://nytimes.com/2025/05/07/arts/television/michael-pitt-sex-abuse-charges.html

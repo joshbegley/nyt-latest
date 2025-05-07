@@ -1,3 +1,15 @@
+**Tom Brady's advice to Shedeur Sanders after draft slide: 'Use it as motivation'**\
+`Brady said he texted Sanders after the former Colorado quarterback slid from a potential first-round pick to the No. 144th selection.`\
+https://nytimes.com/athletic/6340099/2025/05/07/shedeur-sanders-tom-brady-nfl-draft-slide/
+
+** What’s in Our Queue? ‘The Great British Bake Off’ and More **\
+`Text by Ruth Fremson`\
+https://nytimes.com/card/2025/05/07/arts/editors-recommendations-bakeoff
+
+**Warriors' Curry expected to miss multiple games with hamstring strain**\
+`Curry strained his hamstring in the series opener and was immediately ruled out.`\
+https://nytimes.com/athletic/6340283/2025/05/07/warriors-steph-curry-injury-nba/
+
 **Michael Pitt, ‘Boardwalk Empire’ Actor, Is Arrested on Sex Abuse Charges**\
 `Mr. Pitt faces numerous charges, including assault and strangulation, based on encounters in 2020 and 2021. He has pleaded not guilty.`\
 https://nytimes.com/2025/05/07/arts/television/michael-pitt-sex-abuse-charges.html
@@ -21,20 +33,4 @@ https://nytimes.com/2025/05/07/sports/golf/jim-dent-dead.html
 **U.S. to host 2025 World Rugby Pacific Nations Cup Finals**\
 `World Rugby is seeking to drive audience and demand for the sport with the U.S. hosting the men's and women's World Cup in 2031 and 2033.`\
 https://nytimes.com/athletic/6338013/2025/05/07/world-rugby-pacific-nations-cup-finals-us/
-
-**How to watch the Indiana Fever and Caitlin Clark in 2025: Schedule and broadcast info**\
-`A record 41 of 44 regular-season Fever games will be on national TV this season. Here's how to keep track and make sense of it all.`\
-https://nytimes.com/athletic/6338547/2025/05/07/caitlin-clark-indiana-fever-wnba-how-to-watch/
-
-**On the Chopping Block: Arts and Humanities**\
-`The plan to eliminate the endowments for the arts and the humanities. Also: A threat to impose tariffs on movies made abroad.`\
-https://nytimes.com/2025/05/07/opinion/arts-humanities-nea-neh.html
-
-**The Sistine Chapel becomes the world’s most beautiful polling place.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/the-sistine-chapel-becomes-the-worlds-most-beautiful-polling-place
-
-**Thompson: Steph Curry's injury gives the Warriors another mission: Buy him time**\
-`The Warriors don't yet know how long Steph Curry will be out. Now they'll have to try to keep a promising season alive without him.`\
-https://nytimes.com/athletic/6340063/2025/05/07/steph-curry-hamstring-injury-warriors-timberwolves-playoffs/
 
