@@ -1,3 +1,7 @@
+**Steph Curry leaves Game 1 vs. Timberwolves with hamstring strain**\
+`Curry and the Warriors were in control when he went down, up 30-20 after the third of Draymond Green's four first half 3s.`\
+https://nytimes.com/athletic/6338718/2025/05/06/steph-curry-hamstring-strain-warriors/
+
 **JD Vance’s Half Brother Advances in Race for Cincinnati Mayor**\
 `Cory Bowman will next face Aftab Pureval, the Democratic incumbent, who outperformed him in Tuesday’s nonpartisan primary.`\
 https://nytimes.com/2025/05/06/us/jd-vance-brother-cincinnati-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/06/crosswords/daily-puzzle-2025-05-07.html
 **TikTok, Facing a U.S. Ban, Tells Advertisers: We’re Here and Confident**\
 `The company’s executives tried to reassure potential advertisers about the app’s future in the United States without directly addressing a looming ban under a federal law.`\
 https://nytimes.com/2025/05/06/business/media/tiktok-advertisers-ban.html
-
-**Trump Administration Plans to Send Migrants to Libya on a Military Flight**\
-`Human rights groups have called conditions in the country’s network of migrant detention centers “horrific” and “deplorable.”`\
-https://nytimes.com/2025/05/06/us/politics/trump-libya-migrants.html
 
