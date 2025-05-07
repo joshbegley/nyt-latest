@@ -1,3 +1,8 @@
+**16 stats: Rantanen and the importance of star power, Hutson's playoff debut, more**\
+`The value of star power vs. depth in the NHL playoffs. Plus, players who have stepped up in the postseason and much more. 
+`\
+https://nytimes.com/athletic/6338201/2025/05/07/nhl-playoffs-stats-mikko-rantanen-lane-hutson/
+
 **As NHL playoffs enter Round 2, who will win the Stanley Cup and why?**\
 `Analytical and betting odds have swung dramatically so far this postseason. Here's where three outlets currently stand.`\
 https://nytimes.com/athletic/6338693/2025/05/07/nhl-playoffs-round-2-stanley-cup-odds-analysis/

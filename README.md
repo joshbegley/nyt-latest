@@ -1,3 +1,19 @@
+**Gazans Despair After Israel Announces More Displacement**\
+`Israel’s plan to capture more land in Gaza and relocate thousands of civilians has heightened a sense of hopelessness among Palestinians.`\
+https://nytimes.com/2025/05/07/world/middleeast/israel-gaza-displacement-plan-reaction.html
+
+**The Athletic FC: Crazy tie as Inter beat Barca, Trump picks Giuliani Jnr for World Cup task force**\
+`Today in TAFC: Analysing a classic as Inter beat Barca to reach Champions League final, Trump appoints Giuliani Jr to World Cup taskforce.`\
+https://nytimes.com/athletic/6339212/2025/05/07/inter-barcelona-champions-league-trump-giuliani/
+
+**New York Times Adds 250,000 Digital Subscribers**\
+`The company had nearly 11.7 million total subscribers at the end of March. Adjusted operating profit grew 21.9 percent compared with the same quarter a year ago.`\
+https://nytimes.com/2025/05/07/business/media/new-york-times-adds-250000-digital-subscribers.html
+
+**Israel Downs Drone as Houthis Vow to Continue Tit-for-Tat Strikes**\
+`The Israeli military said it had intercepted an unmanned vehicle a day after President Trump said the U.S. would step back from conflict with the Iran-backed group.`\
+https://nytimes.com/2025/05/07/world/middleeast/israel-houthis.html
+
 **As NHL playoffs enter Round 2, who will win the Stanley Cup and why?**\
 `Analytical and betting odds have swung dramatically so far this postseason. Here's where three outlets currently stand.`\
 https://nytimes.com/athletic/6338693/2025/05/07/nhl-playoffs-round-2-stanley-cup-odds-analysis/
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6338155/2025/05/07/geraldo-perdomo-mlb-diamondbacks
 **2025 PWHL playoff preview: Montreal vs. Ottawa, Toronto vs. Minnesota**\
 `The PWHL postseason begins on Wednesday. Here's everything you need to know about both playoff series.`\
 https://nytimes.com/athletic/6335954/2025/05/07/pwhl-playoffs-2025-womens-hockey/
-
-**What might have been: 5 games that changed the outcome of the 2025 NHL Draft Lottery**\
-`The Islanders won the No. 1 pick with long-shot odds. With the full benefit of hindsight, some very specific games had their say.`\
-https://nytimes.com/athletic/6337913/2025/05/07/nhl-draft-lottery-2025-islanders-games/
-
-**What are the risks in drafting Matthew Schaefer with No. 1 pick?**\
-`The New York Islanders will have to weigh Schaefer's limited body of work this season carefully.`\
-https://nytimes.com/athletic/6335238/2025/05/07/nhl-draft-2025-matthew-schaefer-risks/
-
-**Why Bo Nix has armor against a sophomore slump, RJ Harvey's vision: Broncos mailbag**\
-`Plus, do the Broncos have enough depth defensively to withstand possible injury absences by Dre Greenlaw or Alex Singleton?`\
-https://nytimes.com/athletic/6337877/2025/05/07/broncos-mailbag-bo-nix-rj-harvey-pat-bryant/
-
-**16 stats: Rantanen and the importance of star power, Hutson's playoff debut, more**\
-`The value of star power vs. depth in the NHL playoffs. Plus, players who have stepped up in the postseason and much more. 
-`\
-https://nytimes.com/athletic/6338201/2025/05/07/nhl-playoffs-stats-mikko-rantanen-lane-hutson/
 
