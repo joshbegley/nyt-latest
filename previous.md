@@ -1,3 +1,11 @@
+**Utah QB Cam Rising medically retiring from football**\
+`Rising led Utah to Pac-12 titles in 2021 and 2022 but dealt with a myriad of injuries over the course of his extended NCAA eligibility.`\
+https://nytimes.com/athletic/6340764/2025/05/07/utah-cam-rising-medically-retiring/
+
+**When will the cardinals vote next?**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/when-will-the-cardinals-vote-next
+
 **Detained Tufts Student Must Be Moved to Vermont, Court Rules**\
 `Rumeysa Ozturk, an international student from Turkey, was detained in Massachusetts in March and later taken to Louisiana. The ruling said she must be transferred within a week.`\
 https://nytimes.com/2025/05/07/us/rumeysa-ozturk-tufts-detention-vermont.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/world/europe/papal-conclave-objects.html
 **Pakistan’s Defense Minister Welcomes U.S. Help to Ease Tensions With India**\
 `The comments from Khawaja Muhammad Asif came after India said its forces had struck nine sites in Pakistan and Pakistani-controlled Kashmir in response to a terrorist attack last month.`\
 https://nytimes.com/2025/05/07/us/politics/pakistan-defense-minister-india.html
-
-**Tell Us: What Questions Do You Have About Death and Dying?**\
-`The New York Times wants understand your questions for an upcoming project.`\
-https://nytimes.com/2025/05/07/well/death-and-dying-questions.html
-
-**‘Taking Her Voice’: Hilaria Baldwin Revisits Her Accent Controversy**\
-`In a memoir that tries to wrest control of her story, Ms. Baldwin says she was “canceled” via online sleuths who looked for inconsistencies in her Spanish accent.`\
-https://nytimes.com/2025/05/07/books/hilaria-baldwin-accent-controversy.html
 

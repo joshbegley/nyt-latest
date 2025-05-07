@@ -1,3 +1,11 @@
+**Utah QB Cam Rising medically retiring from football**\
+`Rising led Utah to Pac-12 titles in 2021 and 2022 but dealt with a myriad of injuries over the course of his extended NCAA eligibility.`\
+https://nytimes.com/athletic/6340764/2025/05/07/utah-cam-rising-medically-retiring/
+
+**When will the cardinals vote next?**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/when-will-the-cardinals-vote-next
+
 **Detained Tufts Student Must Be Moved to Vermont, Court Rules**\
 `Rumeysa Ozturk, an international student from Turkey, was detained in Massachusetts in March and later taken to Louisiana. The ruling said she must be transferred within a week.`\
 https://nytimes.com/2025/05/07/us/rumeysa-ozturk-tufts-detention-vermont.html
