@@ -1,3 +1,7 @@
+**A Patron of the Arts in Denver Who Was ‘Saved by Collecting’**\
+`About 10 years ago, Amanda Precourt turned her attention to buying art. She now sponsors shows and is opening an exhibition space in an old cookie factory.`\
+https://nytimes.com/2025/05/07/arts/design/amanda-precourt-mental-health.html
+
 **Trump Administration Is Said to Target Park Service Grants**\
 `Dozens of programs, many linked to climate change and diversity, have been designated for elimination by DOGE, according to people with knowledge of the plan.`\
 https://nytimes.com/2025/05/07/climate/trump-park-service-grants-cuts.html
