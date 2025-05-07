@@ -1,3 +1,24 @@
+**The Capitals are searching for answers. Where should they start?**\
+`Carolina dominated Washington in nearly every facet of Game 1 and forced the Capitals to adjust ahead of Game 2.`\
+https://nytimes.com/athletic/6340444/2025/05/07/capitals-hurricanes-nhl-playoffs-adjustments/
+
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
+**Could Brad Shaw be the new frontrunner to coach the Flyers?**\
+`The Flyers are taking a methodical approach to their search, but the interim coach apparently remains in the conversation.`\
+https://nytimes.com/athletic/6340370/2025/05/07/flyers-coach-shaw-candidates-tocchet/
+
+**Trump Administration Welcomes World Cup Visitors to Enjoy a Nice, but Brief, Stay**\
+`Top officials offered a message that stuck to the Trump administration’s focus on minimizing legal immigration and removing those who overstay their visas.`\
+https://nytimes.com/2025/05/07/us/politics/trump-world-cup-visitors.html
+
+**Postecoglou on Wenger querying CL spot for EL winners: 'Spurs does crazy things to people!'**\
+`The head coach believes Tottenham Hotspur are held to different standards from other clubs.`\
+https://nytimes.com/athletic/6340347/2025/05/07/postecoglou-wenger-europa-champions-league/
+
 **The ‘We Can Do Hard Things’ Crew Is All Out of Advice**\
 `In their new book, Glennon Doyle, Abby Wambach and Amanda Doyle admit they don’t have the key to happiness. And their podcast audience loves them for it.`\
 https://nytimes.com/2025/05/07/well/we-can-do-hard-things-book-glennon-abby-amanda.html
