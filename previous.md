@@ -1,3 +1,19 @@
+**Waiting for the Smoke That Heralds a New Pope**\
+`As 133 cardinals were sequestered in the Sistine Chapel where they would vote for a new leader of the Catholic Church, the faithful and the curious gathered in St. Peter’s Square.`\
+https://nytimes.com/2025/05/07/world/europe/papal-conclave-st-peters-square-smoke.html
+
+**No Pope Selected on First Day of Conclave**\
+`Black smoke puffed from a chimney above the Sistine Chapel to indicate the cardinals had not reached a decision in a first round of voting for the next pope.`\
+https://nytimes.com/video/world/europe/100000010155633/no-pope-selected-on-first-day-of-conclave.html
+
+**Ultraprocessed Foods Linked to Early Symptoms of Parkinson’s**\
+`A new study did not prove that the foods caused the disease, but experts said it was a step toward understanding how food choices affect brain health.`\
+https://nytimes.com/2025/05/07/well/eat/ultraprocessed-foods-linked-to-early-symptoms-of-parkinsons.html
+
+**Survivors call on the next pope to end sexual abuse by clergy.**\
+`Groups representing survivors made last-minute appeals for the next pontiff to definitively resolve the crisis, which has swirled around the Roman Catholic Church for decades.`\
+https://nytimes.com/2025/05/07/world/europe/sexual-abuse-survivors-pope.html
+
 **Watch: With the Pacers' Game 2 win, all eyes on the team's intensity, depth**\
 `"The Athletic NBA Daily" discussed the Indiana Pacers' dramatic come-from-behind win over the Cleveland Cavaliers in Game 2.`\
 https://nytimes.com/athletic/6340111/2025/05/07/athletic-nba-daily-indiana-pacers-cleveland-cavaliers/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
 **A Most Sensitive Subject in the White House: Where Is Melania?**\
 `Mrs. Trump has spent fewer than 14 days at the White House since her husband was inaugurated 108 days ago.`\
 https://nytimes.com/2025/05/07/us/politics/white-house-melania-absence.html
-
-**What to know about the Fed’s decision.**\
-`The U.S. central bank is widely expected to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
-https://nytimes.com/live/2025/05/07/business/fed-interest-rates/what-to-know-about-the-feds-decision
-
-**Set to face Leafs, Aaron Ekblad addresses criticism of first-round hit: 'Reasonable response'**\
-`Panthers defensemen responds for first time to Lightning forward Brandon Hagel's comments over elbowing suspension.`\
-https://nytimes.com/athletic/6340602/2025/05/07/panthers-ekblad-suspension-hagel-leafs-nhl-playoffs/
-
-**This book helped Samin Nosrat find her way back to cooking.**\
-`The chef and author said that Dacher Keltner’s “Awe” helped her through a period of depression.`\
-https://nytimes.com/live/2025/05/07/well/wellness-festival-live-updates/this-book-helped-samin-nosrat-find-her-way-back-to-cooking
-
-**Hail Pummels Las Vegas Suburb**\
-`A heavy storm system soaked Las Vegas for days and brought hail about the size of a quarter to nearby Henderson, Nev.`\
-https://nytimes.com/video/weather/100000010155465/las-vegas-flood-hail.html
 
