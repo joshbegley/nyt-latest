@@ -1,3 +1,7 @@
+**D.C. Budget Fix Stalls in the House as Conservative Republicans Balk**\
+`Speaker Mike Johnson has said he would hold a vote “quickly” to restore more than $1 billion in funding, but ultraconservatives are insisting on attaching limits on abortion and voting rights.`\
+https://nytimes.com/2025/05/07/us/washington-dc-budget-house-johnson.html
+
 **Trump says World Cup spot for Russia could be 'incentive' to end war**\
 `Since their illegal invasion of Ukraine in February 2022, Russian teams have been suspended from FIFA and UEFA competitions.`\
 https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/opinion/maga-beauty-viral-women.html
 **Is It Colonialism When Europeans Retire in Cheaper Countries?**\
 `The magazine’s Ethicist columnist on the impact of making another country your home in retirement.`\
 https://nytimes.com/2025/05/07/magazine/europeans-retirement-colonialism-ethics.html
-
-**Why Did My Friend Keep Poking Her Husband When I Spoke at Dinner?**\
-`Long after the dinner party in question, a reader still feels self-conscious about jabs exchanged every time she opened her mouth.`\
-https://nytimes.com/2025/05/07/style/dinner-party-embarrassment.html
 
