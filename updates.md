@@ -1,3 +1,11 @@
+**D.C. Budget Fix Stalls in the House as Conservative Republicans Balk**\
+`Speaker Mike Johnson has said he would hold a vote “quickly” to restore more than $1 billion in funding, but ultraconservatives are insisting on attaching limits on abortion and voting rights.`\
+https://nytimes.com/2025/05/07/us/washington-dc-budget-house-johnson.html
+
+**Trump says World Cup spot for Russia could be 'incentive' to end war**\
+`Since their illegal invasion of Ukraine in February 2022, Russian teams have been suspended from FIFA and UEFA competitions.`\
+https://nytimes.com/athletic/6339498/2025/05/07/donald-trump-world-cup-russia/
+
 **Is Denzel Dumfries the best counter-attacking wing-back in the world?**\
 `The Inter defender was the key player for his side in both legs of the Champions League tie against Barcelona… but in subtly different ways`\
 https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-champions-league/
