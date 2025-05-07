@@ -1,3 +1,11 @@
+**Big Ten revenue soared to $928 million for 2024 fiscal year**\
+`Conference dispersed more than $63 million to its long-standing members, a number that outpaced the SEC and which is expected to grow.`\
+https://nytimes.com/athletic/6338425/2025/05/06/big-ten-revenue-soared-2024/
+
+**Why Did the N.Y.P.D. Hand Over a Sealed Arrest to Homeland Security?**\
+`U.S. officials asked for records about a New Jersey woman’s summons, issued at a Columbia University protest. Now the information is part of her deportation proceeding.`\
+https://nytimes.com/2025/05/06/nyregion/nypd-ice-deportation-case-sealed-records.html
+
 **India Strikes Sites in Pakistan Following Terrorist Attack**\
 `Indian forces struck sites in Pakistan following a terrorist attack in Indian-administered Kashmir two weeks ago. The Pakistani government has denied involvement in that attack.`\
 https://nytimes.com/video/world/asia/100000010153618/india-strikes-pakistan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/06/arts/yarvin-allen-debate-harvard.html
 **A federal judge bars the Trump administration from denying $1 billion in Covid-related school aid.**\
 `The ruling, in a lawsuit brought by Democratic officials in 16 states and Washington, D.C., halts a plan by the U.S. Education Department not to release unspent funds.`\
 https://nytimes.com/live/2025/05/06/us/trump-administration-updates/a-federal-judge-bars-the-trump-administration-from-denying-1-billion-in-covid-related-school-aid
-
-**Trump Officials to Meet With Chinese Counterparts Amid Trade Standoff**\
-`Scott Bessent, the Treasury secretary, and Jamieson Greer, the United States trade representative, will discuss trade and economic matters with the officials this week.`\
-https://nytimes.com/2025/05/06/business/economy/us-china-trade-talks.html
-
-**Fans Disappointed at Vogue’s Coverage of South Asian Stars at the Met Gala**\
-`Some fans felt two first-time attendees, Shah Rukh Khan and Diljit Dosanjh, were dismissed at the event.`\
-https://nytimes.com/2025/05/06/style/shah-rukh-khan-diljit-dosanjh-met-gala.html
 
