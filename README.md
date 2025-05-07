@@ -1,3 +1,11 @@
+**Royce Lewis returns; Twins win on homers by Correa and Buxton as López shines**\
+`His bat was quiet, but Lewis brought his enthusiastic style back to the clubhouse in his first game since injuring his hamstring March 16.`\
+https://nytimes.com/athletic/6338762/2025/05/07/twins-win-royce-lewis-returns/
+
+**The guard of honour: Performative nonsense for the sake of being seen to do the 'right thing'**\
+`English tradition may have an appeal, and it's a nice ceremonial touch, but ahead of four Liverpool games just feels like overkill`\
+https://nytimes.com/athletic/6336777/2025/05/07/guard-honour-liverpool-chelsea-performative/
+
 **Quote of the Day: After a Stumble, Merz Becomes German Leader**\
 `Quotation of the Day for Wednesday, May 7, 2025.`\
 https://nytimes.com/2025/05/07/pageoneplus/quote-of-the-day-after-a-stumble-merz-becomes-german-leader.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/business/china-tariffs-morocco.html
 **Why Poland Wants All of Europe to Do More to Defend Itself**\
 `Shaken by Trump, Putin and the war in Ukraine, Poland is again feeling angst about being abandoned by the United States.`\
 https://nytimes.com/2025/05/07/world/europe/poland-nato-defense-spending.html
-
-**What Makes This Conclave Unpredictable**\
-`A diverse electorate of cardinals is meeting in a conclave to pick the next pope. Though Francis appointed most of them, they may not choose another pope like him, as Jason Horowitz, the Rome bureau chief of The New York Times, explains.`\
-https://nytimes.com/video/world/100000010137843/what-makes-this-conclave-unpredictable.html
-
-**China Cuts Interest Rates to Shore Up Economy Hit by Trade War**\
-`China’s central bank acted shortly after news that officials from China and the Trump administration will hold their first formal trade talks since the punishing tariffs began.`\
-https://nytimes.com/2025/05/06/business/china-interest-rates.html
 

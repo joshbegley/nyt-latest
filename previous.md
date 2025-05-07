@@ -1,40 +1,40 @@
-**Venezuela’s Opposition Leaders Flee to U.S. After 412 Days in Hiding**\
-`The five officials ran one of the most consequential presidential campaigns in the country’s history while sheltering at the Argentine diplomatic residence.`\
-https://nytimes.com/2025/05/06/world/americas/venezuela-opposition-argentina-embassy-maduro.html
+**Quote of the Day: After a Stumble, Merz Becomes German Leader**\
+`Quotation of the Day for Wednesday, May 7, 2025.`\
+https://nytimes.com/2025/05/07/pageoneplus/quote-of-the-day-after-a-stumble-merz-becomes-german-leader.html
 
-**Rafael Devers isn't moving to first (for now). What does that mean for Masataka Yoshida?**\
-`Alex Cora said he hasn't discussed moving Devers to first and that the team is sticking with the status quo at first for now.`\
-https://nytimes.com/athletic/6338740/2025/05/06/red-sox-first-base-rafael-devers-masataka-yoshida/
+**Drama, Fashion and Cigarettes: Internet Casts Pop Gaze on Pope’s Selection**\
+`In a mix of fascination, irreverence and possible blasphemy, social media platforms have been flooded with videos and memes about the secretive gathering of cardinals in Vatican City.`\
+https://nytimes.com/2025/05/07/world/europe/pope-conclave-social-media.html
 
-**Deadline nears for Astros to keep Brendan Rodgers at second base after Jose Altuve**\
-`Rodgers could have strengthened his case to stick with Houston after hitting a 3-run homer in Tuesday night's 4-3 loss to the Brewers.`\
-https://nytimes.com/athletic/6338658/2025/05/06/astros-brendan-rodgers-second-base-jose-altuve/
+**A Rarely Seen Angel With a Lesson From History**\
+`Paul Klee’s “Angelus Novus,” which inspired Walter Benjamin, Laurie Anderson and Wim Wenders, will go on show to commemorate the 80th anniversary of World War II’s end.`\
+https://nytimes.com/2025/05/07/arts/design/paul-klee-angelus-novus-walter-benjamin.html
 
-**Steph Curry leaves Game 1 vs. Timberwolves with hamstring strain**\
-`Curry and the Warriors were in control when he went down, up 30-20 after the third of Draymond Green's four first half 3s.`\
-https://nytimes.com/athletic/6338718/2025/05/06/steph-curry-hamstring-strain-warriors/
+**Connections: Sports Edition Coach: Hints for May 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6338632/2025/05/07/connections-sports-edition-hints-for-may-7-2025/
 
-**JD Vance’s Half Brother Advances in Race for Cincinnati Mayor**\
-`Cory Bowman will next face Aftab Pureval, the Democratic incumbent, who outperformed him in Tuesday’s nonpartisan primary.`\
-https://nytimes.com/2025/05/06/us/jd-vance-brother-cincinnati-mayor.html
+**The Vote for the Next Pope Is Also a Referendum on Francis**\
+`As cardinals begin a conclave to choose Pope Francis’ successor, they must decide whether to find a pope who follows his path or forges a new one.`\
+https://nytimes.com/2025/05/07/world/europe/pope-francis-referendum.html
 
-**Tyrese Haliburton's buzzer-beater stuns Cavaliers, hands Pacers 2-0 lead**\
-`The Cavs had led the game by 20 points on multiple occasions, only to lose 120-119.`\
-https://nytimes.com/athletic/6338623/2025/05/06/tyrese-haliburton-cavaliers-pacers-game-2-buzzer-beater/
+**Corrections: May 7, 2025**\
+`Corrections that appeared in print on Wednesday, May 7, 2025.`\
+https://nytimes.com/2025/05/07/pageoneplus/corrections-may-7-2025.html
 
-**NBA playoff takeaways: How Pacers, Haliburton stole Game 2 from Cavs**\
-`The Cavaliers were up the entire fourth quarter, except for the final second.`\
-https://nytimes.com/athletic/6338303/2025/05/06/nba-playoff-takeaways-cavaliers-pacers-warriors-timberwolves/
+**Why China Is Investing So Much Money in Moroccan Factories**\
+`Morocco is linked to Europe on the strength of its auto sector and a trade pact. But its status as a connector country has become precarious in the trade war.`\
+https://nytimes.com/2025/05/07/business/china-tariffs-morocco.html
 
-**Hurricanes' shot barrage prevails vs. Capitals in OT: Takeaways**\
-`Carolina defeated Washington in overtime to take a 1-0 series lead in the second round.`\
-https://nytimes.com/athletic/6338464/2025/05/06/capitals-hurricanes-nhl-playoffs-2025-game-1-takeaways/
+**Why Poland Wants All of Europe to Do More to Defend Itself**\
+`Shaken by Trump, Putin and the war in Ukraine, Poland is again feeling angst about being abandoned by the United States.`\
+https://nytimes.com/2025/05/07/world/europe/poland-nato-defense-spending.html
 
-**Color, Form and Geometry Are the Through Lines in Robert Mangold’s Career**\
-`At 87, the abstract artist Robert Mangold will exhibit 19 recent paintings and works, including one of his largest in decades.`\
-https://nytimes.com/2025/05/06/arts/design/robert-mangold-pace.html
+**What Makes This Conclave Unpredictable**\
+`A diverse electorate of cardinals is meeting in a conclave to pick the next pope. Though Francis appointed most of them, they may not choose another pope like him, as Jason Horowitz, the Rome bureau chief of The New York Times, explains.`\
+https://nytimes.com/video/world/100000010137843/what-makes-this-conclave-unpredictable.html
 
-**Christo and Jeanne-Claude, Legendary Artists, Are Back in Spirit**\
-`Known for their outsized and revolutionary art projects, the couple’s work is seen again in Florida, New York and Germany.`\
-https://nytimes.com/2025/05/06/arts/design/art-museums-christo-jean-claude-revival.html
+**China Cuts Interest Rates to Shore Up Economy Hit by Trade War**\
+`China’s central bank acted shortly after news that officials from China and the Trump administration will hold their first formal trade talks since the punishing tariffs began.`\
+https://nytimes.com/2025/05/06/business/china-interest-rates.html
 
