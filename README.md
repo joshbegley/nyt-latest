@@ -1,3 +1,7 @@
+**Man Utd's De Ligt out of Athletic Club, West Ham but injury 'not serious'**\
+`De Ligt sustained a muscular injury in the 33rd minute of United's 4-3 defeat at Brentford in the Premier League on Sunday.`\
+https://nytimes.com/athletic/6334022/2025/05/07/manchester-united-de-ligt-injury-update/
+
 **The Full Schedule for the Well Festival**\
 `Tracee Ellis Ross, Suleika Jaouad, Charlamagne Tha God, Samin Nosrat and Dwyane Wade are among those being interviewed on Wednesday from 9:30 a.m. Eastern time to 5:30 p.m.`\
 https://nytimes.com/2025/05/07/well/well-festival-schedule-run-of-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-top-cardinal-a
 **Edmonton dominated even strength in Game 1 win. Can the Golden Knights flip it?**\
 `Vegas managed only five shots on goal at even strength over the final 40 minutes of the game. `\
 https://nytimes.com/athletic/6339042/2025/05/07/golden-knights-oilers-game-1/
-
-**Pelicans draft scenarios: What happens with Zion Williamson if they get lucky?**\
-`If the Pelicans fall in Monday's NBA Draft Lottery, things will get more complicated for Joe Dumars. `\
-https://nytimes.com/athletic/6337752/2025/05/07/pelicans-zion-williamson-cooper-flagg-draft-lottery-nba/
 
