@@ -1,3 +1,7 @@
+**Choose a Pope for a ‘Complex and Tormented’ Time, a Top Cardinal Asks**\
+`Presiding over a Mass before the conclave, the dean of the College of Cardinals, Giovanni Battista Re, asked the cardinals to elect a pope whom “the church and humanity” need at a “difficult, complex and tormented” time.`\
+https://nytimes.com/video/world/europe/100000010154204/top-cardinal-next-pope-humanity-church.html
+
 **Why Jack Doohan lost his Alpine F1 seat in just 150 days**\
 `The pressure was on driver and team to perform quickly. For whatever reason, Jack Doohan fell short over six races with Alpine`\
 https://nytimes.com/athletic/6338485/2025/05/07/alpine-f1-jack-doohan-franco-colapinto/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6338154/2025/05/07/chargers-mailbag-offensive-line-
 **Dodgers' Max Muncy hoping for new perspective to go with new eyewear**\
 `Muncy recently hit his first home run of the season wearing his prescription sunglasses, so the new frames have stuck.`\
 https://nytimes.com/athletic/6338720/2025/05/07/dodgers-max-muncy-perspective-eyewear/
-
-**Evaluating the 49ers draft class: Did they potentially add 5 defensive starters?**\
-`The 49ers filled some holes on the defensive line with their top picks, and don't discount the future roles of Nick Martin and Upton Stout.`\
-https://nytimes.com/athletic/6338277/2025/05/07/49ers-draft-class-mykel-williams-alfred-collins/
 

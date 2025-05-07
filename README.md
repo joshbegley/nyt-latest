@@ -1,3 +1,11 @@
+**A Cardinal Shares His Conclave Advice: ‘Bring a Book’**\
+`Cardinal Timothy M. Dolan of New York has some tips for first-timers taking part in the sometimes lengthy process of choosing the next pope.`\
+https://nytimes.com/2025/05/07/world/europe/us-cardinal-dolan-conclave-pope.html
+
+**‘That’s Not Who We Are’: Biden Criticizes Trump in BBC Interview**\
+`In his first broadcast interview since leaving office, the former president criticized several of President Trump’s actions and defended his withdrawal from the 2024 campaign.`\
+https://nytimes.com/2025/05/07/us/trump-biden-interview.html
+
 **Choose a Pope for a ‘Complex and Tormented’ Time, a Top Cardinal Asks**\
 `Presiding over a Mass before the conclave, the dean of the College of Cardinals, Giovanni Battista Re, asked the cardinals to elect a pope whom “the church and humanity” need at a “difficult, complex and tormented” time.`\
 https://nytimes.com/video/world/europe/100000010154204/top-cardinal-next-pope-humanity-church.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/07/us/trump-news
 **What I'm seeing from the Red Wings' prospects in the AHL playoffs**\
 `The Griffins are in trouble in their first-round series against Texas. Here's what's gone wrong, and how the top prospects have looked. `\
 https://nytimes.com/athletic/6338349/2025/05/07/red-wings-prospects-ahl-griffins-playoffs/
-
-**Chargers mailbag: The rationale at interior OL, biggest camp battles, more**\
-`Also addressed: How does the unrestricted free agent tag on running back J.K. Dobbins work? `\
-https://nytimes.com/athletic/6338154/2025/05/07/chargers-mailbag-offensive-line-training-camp-battles/
-
-**Dodgers' Max Muncy hoping for new perspective to go with new eyewear**\
-`Muncy recently hit his first home run of the season wearing his prescription sunglasses, so the new frames have stuck.`\
-https://nytimes.com/athletic/6338720/2025/05/07/dodgers-max-muncy-perspective-eyewear/
 
