@@ -1,3 +1,7 @@
+**Brazil's supreme court asked to suspend CBF chief over 'inauthentic signature'**\
+`The signature of vice-president Antonio Carlos Nunes de Lima on an agreement helped strengthen Rodrigues' hold on the presidency.`\
+https://nytimes.com/athletic/6338162/2025/05/07/brazil-cbf-ednaldo-rodrigues/
+
 **A sea gull took center stage at the last conclave.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-sea-gull-took-center-stage-at-the-last-conclave
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6340063/2025/05/07/steph-curry-hamstring-injury-war
 **What the Fed’s Rate Policy Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/05/07/business/fed-interest-rate-loans-mortgages.html
-
-**Consumers Are Pulling Back, Spooked by Tariff-Related Price Increases**\
-`Executives at several companies that sell popular products have recently pointed to signs of wariness among shoppers.`\
-https://nytimes.com/2025/05/07/business/tariffs-prices-consumers.html
 
