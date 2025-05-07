@@ -1,3 +1,7 @@
+**Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast’**\
+`Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
+https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html
+
 **D.C. Budget Fix Stalls in the House as Conservative Republicans Balk**\
 `Speaker Mike Johnson has said he would hold a vote “quickly” to restore more than $1 billion in funding, but ultraconservatives are insisting on attaching limits on abortion and voting rights.`\
 https://nytimes.com/2025/05/07/us/washington-dc-budget-house-johnson.html

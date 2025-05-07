@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6336647/2025/05/07/denzel-dumfries-inter-barcelona-
 `What can the Canucks learn from the Capitals' bounce back this season?`\
 https://nytimes.com/athletic/6338541/2025/05/07/canucks-stanley-cup-quinn-hughes-nhl/
 
-**Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast**\
+**Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast’**\
 `Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
 https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html
 
