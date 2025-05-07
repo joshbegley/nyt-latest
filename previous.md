@@ -1,3 +1,7 @@
+**Jean-Luc Mélenchon Believes the French Left Has a Lesson for America**\
+`The French radical believes that France has something to teach the world.`\
+https://nytimes.com/2025/05/07/opinion/melenchon-left-france.html
+
 **Texas Attorney General Announces Vote Fraud and ‘Harvesting’ Charges**\
 `A county judge, two City Council members and a former county election administrator are among Ken Paxton’s targets as he elevates his “election integrity” accusations to criminality.`\
 https://nytimes.com/2025/05/07/us/politics/texas-vote-fraud.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/07/us/politics/trump-world-cup-visitors.html
 **Postecoglou on Wenger querying CL spot for EL winners: 'Spurs does crazy things to people!'**\
 `The head coach believes Tottenham Hotspur are held to different standards from other clubs.`\
 https://nytimes.com/athletic/6340347/2025/05/07/postecoglou-wenger-europa-champions-league/
-
-**The ‘We Can Do Hard Things’ Crew Is All Out of Advice**\
-`In their new book, Glennon Doyle, Abby Wambach and Amanda Doyle admit they don’t have the key to happiness. And their podcast audience loves them for it.`\
-https://nytimes.com/2025/05/07/well/we-can-do-hard-things-book-glennon-abby-amanda.html
 

@@ -1,3 +1,12 @@
+**Jean-Luc Mélenchon Believes the French Left Has a Lesson for America**\
+`The French radical believes that France has something to teach the world.`\
+https://nytimes.com/2025/05/07/opinion/melenchon-left-france.html
+
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
 **Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
 `The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
 `\

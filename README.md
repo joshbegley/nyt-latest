@@ -1,3 +1,11 @@
+**Reds place 3B Noelvi Marte on IL with oblique strain, recall OF Rece Hinds**\
+`Hinds, 24, has .281/.343/.554 with eight home runs and 12 stolen bases at Triple-A Louisville this season.`\
+https://nytimes.com/athletic/6340548/2025/05/07/reds-noelvi-marte-injury-rece-hinds/
+
+**'Refereeing mistakes' kept Barca out of Champions League final, club president claims**\
+`Inter prevailed in the semi-final on Tuesday after a dramatic 4-3 victory at San Siro.`\
+https://nytimes.com/athletic/6340493/2025/05/07/joan-laporta-barcelona-champions-league/
+
 **Jean-Luc Mélenchon Believes the French Left Has a Lesson for America**\
 `The French radical believes that France has something to teach the world.`\
 https://nytimes.com/2025/05/07/opinion/melenchon-left-france.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morg
 **Could Brad Shaw be the new frontrunner to coach the Flyers?**\
 `The Flyers are taking a methodical approach to their search, but the interim coach apparently remains in the conversation.`\
 https://nytimes.com/athletic/6340370/2025/05/07/flyers-coach-shaw-candidates-tocchet/
-
-**Trump Administration Welcomes World Cup Visitors to Enjoy a Nice, but Brief, Stay**\
-`Top officials offered a message that stuck to the Trump administration’s focus on minimizing legal immigration and removing those who overstay their visas.`\
-https://nytimes.com/2025/05/07/us/politics/trump-world-cup-visitors.html
-
-**Postecoglou on Wenger querying CL spot for EL winners: 'Spurs does crazy things to people!'**\
-`The head coach believes Tottenham Hotspur are held to different standards from other clubs.`\
-https://nytimes.com/athletic/6340347/2025/05/07/postecoglou-wenger-europa-champions-league/
 
