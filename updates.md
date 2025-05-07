@@ -1,3 +1,11 @@
+**How to watch the Indiana Fever and Caitlin Clark in 2025: Schedule and broadcast info**\
+`A record 41 of 44 regular-season Fever games will be on national TV this season. Here's how to keep track and make sense of it all.`\
+https://nytimes.com/athletic/6338547/2025/05/07/caitlin-clark-indiana-fever-wnba-how-to-watch/
+
+**On the Chopping Block: Arts and Humanities**\
+`The plan to eliminate the endowments for the arts and the humanities. Also: A threat to impose tariffs on movies made abroad.`\
+https://nytimes.com/2025/05/07/opinion/arts-humanities-nea-neh.html
+
 **The Sistine Chapel becomes the world’s most beautiful polling place.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/the-sistine-chapel-becomes-the-worlds-most-beautiful-polling-place

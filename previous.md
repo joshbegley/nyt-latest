@@ -1,3 +1,11 @@
+**How to watch the Indiana Fever and Caitlin Clark in 2025: Schedule and broadcast info**\
+`A record 41 of 44 regular-season Fever games will be on national TV this season. Here's how to keep track and make sense of it all.`\
+https://nytimes.com/athletic/6338547/2025/05/07/caitlin-clark-indiana-fever-wnba-how-to-watch/
+
+**On the Chopping Block: Arts and Humanities**\
+`The plan to eliminate the endowments for the arts and the humanities. Also: A threat to impose tariffs on movies made abroad.`\
+https://nytimes.com/2025/05/07/opinion/arts-humanities-nea-neh.html
+
 **The Sistine Chapel becomes the world’s most beautiful polling place.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/the-sistine-chapel-becomes-the-worlds-most-beautiful-polling-place
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/business/economy-tariffs-recession-indicators-fed
 **Syrian President Makes First Visit to Europe Since Assad’s Fall**\
 `The visit is a boost to Ahmed al-Shara’s attempts to bring Syria back into the international fold but comes amid continuing turmoil there.`\
 https://nytimes.com/2025/05/07/world/europe/syria-france-al-shara-macron.html
-
-**How does the voting work?**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/how-does-the-voting-work
-
-**He Hears Voices in His Head. He Also Helped Win an Election.**\
-`He ran a successful political campaign, sometimes from a psych ward, sometimes living on the street. He has found a way to thrive.`\
-https://nytimes.com/2025/05/07/nyregion/nyc-public-advocate-rajkumar-sooknanan-mental-health.html
 
