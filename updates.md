@@ -1,3 +1,16 @@
+**Reds place 3B Noelvi Marte on IL with oblique strain, recall OF Rece Hinds**\
+`Hinds, 24, has .281/.343/.554 with eight home runs and 12 stolen bases at Triple-A Louisville this season.`\
+https://nytimes.com/athletic/6340548/2025/05/07/reds-noelvi-marte-injury-rece-hinds/
+
+**'Refereeing mistakes' kept Barca out of Champions League final, club president claims**\
+`Inter prevailed in the semi-final on Tuesday after a dramatic 4-3 victory at San Siro.`\
+https://nytimes.com/athletic/6340493/2025/05/07/joan-laporta-barcelona-champions-league/
+
+**Watch: Are Manchester City and Morgan Gibbs-White a good fit?**\
+`The Athletic FC Podcast discuss whether Morgan Gibbs-White would be a good signing for Manchester City.
+`\
+https://nytimes.com/athletic/6339761/2025/05/07/athletic-fc-podcat-man-city-morgan-gibbs-white/
+
 **Jean-Luc Mélenchon Believes the French Left Has a Lesson for America**\
 `The French radical believes that France has something to teach the world.`\
 https://nytimes.com/2025/05/07/opinion/melenchon-left-france.html
