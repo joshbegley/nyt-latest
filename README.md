@@ -1,3 +1,19 @@
+**Paper Ballots, Sacred Oaths: The Objects Guiding the Papal Conclave**\
+`Inside the secretive meeting, cardinals will use an array of objects, many steeped in tradition, as they elect the next pope.`\
+https://nytimes.com/2025/05/07/world/europe/papal-conclave-objects.html
+
+**Pakistan’s Defense Minister Welcomes U.S. Help to Ease Tensions With India**\
+`The comments from Khawaja Muhammad Asif came after India said its forces had struck nine sites in Pakistan and Pakistani-controlled Kashmir in response to a terrorist attack last month.`\
+https://nytimes.com/2025/05/07/us/politics/pakistan-defense-minister-india.html
+
+**Tell Us: What Questions Do You Have About Death and Dying?**\
+`The New York Times wants understand your questions for an upcoming project.`\
+https://nytimes.com/2025/05/07/well/death-and-dying-questions.html
+
+**‘Taking Her Voice’: Hilaria Baldwin Revisits Her Accent Controversy**\
+`In a memoir that tries to wrest control of her story, Ms. Baldwin says she was “canceled” via online sleuths who looked for inconsistencies in her Spanish accent.`\
+https://nytimes.com/2025/05/07/books/hilaria-baldwin-accent-controversy.html
+
 **DeFabo: George Pickens wasn't going to 'grow up,' forcing the Steelers' hand**\
 `If Mike Tomlin couldn't get through to George Pickens in three years, he was never going to, which is why the Steelers moved on.`\
 https://nytimes.com/athletic/6340589/2025/05/07/george-pickens-trade-steelers-mike-tomlin/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/07/world/europe/sexual-abuse-survivors-pope.html
 **Watch: With the Pacers' Game 2 win, all eyes on the team's intensity, depth**\
 `"The Athletic NBA Daily" discussed the Indiana Pacers' dramatic come-from-behind win over the Cleveland Cavaliers in Game 2.`\
 https://nytimes.com/athletic/6340111/2025/05/07/athletic-nba-daily-indiana-pacers-cleveland-cavaliers/
-
-**Judge rules ATP Tour cannot retaliate against players who join PTPA tennis lawsuit**\
-`The ATP Tour had produced a letter to be signed by players, stating that they did not agree with legal action to overturn tennis' structure.`\
-https://nytimes.com/athletic/6340663/2025/05/07/tennis-lawsuit-ptpa-atp-wta-players-retaliation/
-
-**7 Practical and Engaging Ways to Use Times Resources in Career and Technical Education**\
-`A teacher in a C.T.E. program suggests features that can help students build skills they’ll need across careers — whether in engineering, health care, hospitality, the construction trades or any other.`\
-https://nytimes.com/2025/05/07/learning/7-practical-and-engaging-ways-to-use-times-resources-in-career-and-technical-education.html
-
-**3 Former Officers Acquitted of All State Charges in Tyre Nichols’s Death**\
-`The former Memphis officers were acquitted of all charges, including second-degree murder, in the beating death of Mr. Nichols.`\
-https://nytimes.com/2025/05/07/us/politics/tyre-nichols-state-trial-officers-acquitted.html
-
-**Come for the Conclave. Don’t Stay for the Food.**\
-`The cardinals selecting the next pope will take their meals at a Vatican guesthouse. One conclave veteran said the fare was “food you could eat at a train station.”`\
-https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
 
