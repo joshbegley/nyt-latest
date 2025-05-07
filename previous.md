@@ -1,4 +1,20 @@
-**Recession Warnings Are Everywhere, Except in the Data.**\
+**What the Fed’s Rate Policy Means for Your Finances**\
+`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
+https://nytimes.com/2025/05/07/business/fed-interest-rate-loans-mortgages.html
+
+**Consumers Are Pulling Back, Spooked by Tariff-Related Price Increases**\
+`Executives at several companies that sell popular products have recently pointed to signs of wariness among shoppers.`\
+https://nytimes.com/2025/05/07/business/tariffs-prices-consumers.html
+
+**Live Updates: Fed Expected to Hold Rates Again**\
+`The central bank is widely predicted to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
+https://nytimes.com/live/2025/05/07/business/fed-interest-rates
+
+**Slow-Moving Storms Bring More Rain to Saturated Southern Cities**\
+`New Orleans and other areas along the Gulf Coast have had a lot of rain this spring. They’re seeing more this week.`\
+https://nytimes.com/2025/05/07/weather/southern-us-storms-rain.html
+
+**Recession Warnings Are Everywhere, Except in the Data**\
 `Mainstream measures have been slow to detect the impact of tariffs and uncertainty, leaving economists to scour earnings calls and private-sector data sources.`\
 https://nytimes.com/2025/05/07/business/economy-tariffs-recession-indicators-fed.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/07/arts/dance/review-gibney-company-lucinda-childs.h
 **Johnson Rules Out an Aggressive Plan to Cut Medicaid as G.O.P. Moderates Waver**\
 `The Republican speaker’s decision underscored the resistance in his party to politically painful reductions to the program, and drew a backlash from the hard right, which is demanding deep cuts.`\
 https://nytimes.com/2025/05/07/us/politics/medicaid-cuts-house-republicans-johnson.html
-
-**G.O.P. Plans to Cut Medicaid Would Save Billions but Leave More Uninsured, Budget Office Says**\
-`The Congressional Budget Office reviewed the leading proposals from Republicans who are trying to cut the costs of a program that serves roughly 72 million poor and disabled Americans.`\
-https://nytimes.com/2025/05/07/upshot/medicaid-cbo-options.html
-
-**Real ID Finally Comes to Airports Across the U.S.**\
-`Many fliers showed up early for extra screening or brought passports, smoothing the rollout of the long-postponed requirements. Those who didn’t have Real IDs got a warning.`\
-https://nytimes.com/2025/05/07/travel/real-id-requirement-tsa-airports.html
-
-**Eagles, TE Dallas Goedert close to restructured deal for 2025 season**\
-`The Eagles spent the offseason trying to find a trading partner for Goedert, who was scheduled to be the team's fifth-highest cap hit `\
-https://nytimes.com/athletic/6340057/2025/05/07/eagles-nfl-dallas-goedert-contract-restructure-2025/
-
-**A Patron of the Arts in Denver Who Was ‘Saved by Collecting’**\
-`About 10 years ago, Amanda Precourt turned her attention to buying art. She now sponsors shows and is opening an exhibition space in an old cookie factory.`\
-https://nytimes.com/2025/05/07/arts/design/amanda-precourt-mental-health.html
 
