@@ -1,3 +1,7 @@
+**Can Oilers win Cup with Pickard or Skinner? Maybe — if they play like this**\
+`It takes a heck of a team to win in the playoffs in front of an unspectacular goalie, and that's something the Oilers seem to have.`\
+https://nytimes.com/athletic/6338967/2025/05/07/oilers-nhl-playoffs-2025-pickard-skinner/
+
 **Wednesday Briefing**\
 `The papal conclave begins.`\
 https://nytimes.com/2025/05/07/briefing/conclave-pakistan-canada.html

@@ -1,3 +1,7 @@
+**Lloyd: Cavs were more physical than the Pacers until they weren't. And now the pain lingers**\
+`For 47 minutes Tuesday, despite their injuries and absences, the Cavaliers were the more aggressive team. They ended up beaten and battered.`\
+https://nytimes.com/athletic/6338970/2025/05/07/cavaliers-pacers-nba-playoffs-game-2/
+
 **Can Oilers win Cup with Pickard or Skinner? Maybe — if they play like this**\
 `It takes a heck of a team to win in the playoffs in front of an unspectacular goalie, and that's something the Oilers seem to have.`\
 https://nytimes.com/athletic/6338967/2025/05/07/oilers-nhl-playoffs-2025-pickard-skinner/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/07/world/europe/pope-conclave-quiz.html
 **How to watch Paris Saint-Germain vs. Arsenal in Champions League semifinal second leg**\
 `PSG claimed the first leg in London last week, a 1-0 grinder over Arsenal settled by Ousmane Dembélé. The rematch goes down Wednesday.`\
 https://nytimes.com/athletic/6337794/2025/05/07/arsenal-paris-psg-champions-league-how-to-watch/
-
-**Doku is rediscovering the form that made him Alexander-Arnold's tormentor-in-chief**\
-`The excitement that greeted the winger's early weeks at Manchester City has started to return`\
-https://nytimes.com/athletic/6335338/2025/05/07/jeremy-doku-manchester-city-trent-alexander-arnold/
 
