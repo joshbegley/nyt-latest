@@ -1,3 +1,23 @@
+**Liam Payne Left a $32.3 Million Estate and No Will, Reports Say**\
+`Mr. Payne, a former member of the boy band One Direction, died after falling from a third-story hotel balcony in October.`\
+https://nytimes.com/2025/05/07/arts/music/liam-payne-estate-will.html
+
+**Kennedy Announces New Database for Research Into ‘Root Causes’ of Autism**\
+`The director of the National Institutes of Health previously floated — then walked back — the idea of an autism registry, alarming researchers and parents.`\
+https://nytimes.com/2025/05/07/us/politics/rfk-jr-autism-cause-database.html
+
+**In Hockey Canada trial, E.M. agrees she remained compliant as a 'coping mechanism'**\
+`Complainant breaks down at the end of Wednesday's cross-examination when discussing misidentifying players in previous statements.`\
+https://nytimes.com/athletic/6339844/2025/05/07/hockey-canada-sexual-assault-trial-em-cross-examination-2/
+
+**States Sue Over Freeze on Funding for Electric-Vehicle Charging**\
+`A lawsuit led by Washington, Colorado and California accuses the Trump administration of unlawfully withholding funds for new charging stations.`\
+https://nytimes.com/2025/05/07/climate/electric-vehicle-charging-funding-states-lawsuit.html
+
+**Arteta insists Arsenal the better side vs PSG despite Champions League loss**\
+`Arsenal exited the Champions League and Arteta said his players were reduced to tears at full-time.`\
+https://nytimes.com/athletic/6340985/2025/05/07/mikel-arteta-arsenal-psg/
+
 **What Ryan Pressly is working to correct after a historically bad outing**\
 `Pressly is walking a career-high percentage of batters while striking out fewer than ever. Pitching coach Tommy Hottovy has an idea why.`\
 https://nytimes.com/athletic/6340911/2025/05/07/cubs-ryan-pressly-bad-outing-reactions/
@@ -12,29 +32,9 @@ https://nytimes.com/video/nyregion/100000010156028/columbia-pro-palestinian-prot
 
 **Cardinals believe new bullpen plan will bring more consistency to late innings**\
 `The Cardinals redefined the roles of Gordon Graceffo and Steven Matz as part of a new approach.`\
-https://nytimes.com/athletic/6340362/2025/05/07/cardinals-believe-new-bullpen-plan-will-bring-more-consistency-to-late-innings/
+https://nytimes.com/athletic/6340362/2025/05/07/cardinals-bullpen-late-innings/
 
 **David Beckham and friends hit the target in Champions League watchalong**\
 `The former England star's watchalong show had its share of entertaining moments.`\
 https://nytimes.com/athletic/6340866/2025/05/07/david-beckham-friends-cbs-champions-league-tv-altcast/
-
-**Pistons president Trajan Langdon vows to 'stay patient' during offseason**\
-`"We'll look at all avenues and decide what the best avenue is for us," says Langdon during news conference in Detroit.`\
-https://nytimes.com/athletic/6340556/2025/05/07/detroit-pistons-offseason-trajan-langon/
-
-**Jeremy Peña's leadoff success, a cleanup crisis and groundballs galore: Astros takeaways**\
-`Few facets of the Astros’ offense looked competent during the six-day road trip — except Peña, who's thriving in the leadoff spot.`\
-https://nytimes.com/athletic/6340893/2025/05/07/jeremy-pena-leadoff-christian-walker-astros-takeaways/
-
-**How to Train for the Last Decade of Your Life, According to Peter Attia**\
-`The physician, writer and longevity influencer offered his tips to prepare for old age now.`\
-https://nytimes.com/2025/05/07/well/aging-longevity-peter-attia.html
-
-**These Beautiful Birds Form Something Like Lasting Friendships**\
-`Superb starlings help care for the offspring of birds they are not related to. “To me, that sounds like friendship,” one scientist said.`\
-https://nytimes.com/2025/05/07/science/birds-friendships-superb-starlings.html
-
-**Clarence O. Smith, a Founder of Essence Magazine, Is Dead at 92**\
-`As president, he helped persuade companies like Estée Lauder and Ford to advertise in the pages of the first mass-circulation magazine directed at Black women.`\
-https://nytimes.com/2025/05/07/business/media/clarence-o-smith-dead.html
 
