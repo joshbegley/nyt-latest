@@ -1,3 +1,15 @@
+**Trump Has Called for More Babies but Dismissed Fertility Experts**\
+`The research team studying how to improve I.V.F. was a casualty of cutbacks at federal health agencies.`\
+https://nytimes.com/2025/05/07/health/trump-fertility-ivf-cdc.html
+
+**Champions League final: How to watch, dates, kick-off times – and the teams analysed**\
+`Analysis of both finalists, when and where the final is being played and how much each team will earn. All you need to know is here.`\
+https://nytimes.com/athletic/6339947/2025/05/07/champions-league-final-how-to-watch/
+
+**The Conclave’s First Day Ended With a Puff of Black Smoke**\
+`Also, India and Pakistan traded blows. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/05/07/briefing/conclave-day-one-covid-study-venice-coffee.html
+
 **ESPN open to paying SEC to move to nine conference football games: Sources**\
 `Sources said the additional money ESPN would pay the SEC would likely be in the range of $50-80 million annually on top of the current deal.`\
 https://nytimes.com/athletic/6340696/2025/05/07/sec-football-nine-game-schedule-espn-money/

@@ -1,3 +1,15 @@
+**Trump Has Called for More Babies but Dismissed Fertility Experts**\
+`The research team studying how to improve I.V.F. was a casualty of cutbacks at federal health agencies.`\
+https://nytimes.com/2025/05/07/health/trump-fertility-ivf-cdc.html
+
+**Champions League final: How to watch, dates, kick-off times – and the teams analysed**\
+`Analysis of both finalists, when and where the final is being played and how much each team will earn. All you need to know is here.`\
+https://nytimes.com/athletic/6339947/2025/05/07/champions-league-final-how-to-watch/
+
+**The Conclave’s First Day Ended With a Puff of Black Smoke**\
+`Also, India and Pakistan traded blows. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/05/07/briefing/conclave-day-one-covid-study-venice-coffee.html
+
 **ESPN open to paying SEC to move to nine conference football games: Sources**\
 `Sources said the additional money ESPN would pay the SEC would likely be in the range of $50-80 million annually on top of the current deal.`\
 https://nytimes.com/athletic/6340696/2025/05/07/sec-football-nine-game-schedule-espn-money/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6336860/2025/05/07/psg-2-arsenal-1-champions-league
 **Trump Says U.S. Won’t Drop Tariffs Ahead of China Talks**\
 `The Treasury secretary and trade representative plan to meet with Chinese officials this weekend to discuss trade and economic matters.`\
 https://nytimes.com/2025/05/07/us/politics/trump-tariffs-china-talks.html
-
-**Rams announce Maui, Hawaii minicamp to help support wildfire recovery**\
-`The Rams will hold a minicamp in Maui, Hawaii, to promote tourism in a community ravaged by multiple wildfires over the last two years.`\
-https://nytimes.com/athletic/6340785/2025/05/07/rams-nfl-hawaii-minicamp-wildfires/
-
-**Utah QB Cam Rising medically retiring from football**\
-`Rising led Utah to Pac-12 titles in 2021 and 2022 but dealt with a myriad of injuries over the course of his extended NCAA eligibility.`\
-https://nytimes.com/athletic/6340764/2025/05/07/utah-cam-rising-medically-retiring/
-
-**When will the cardinals vote next?**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/when-will-the-cardinals-vote-next
 
