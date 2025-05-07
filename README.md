@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000010155684/jerome-powell-interest-rates-unempl
 `The students appeared to be attempting to rekindle the protest movement of last spring.`\
 https://nytimes.com/2025/05/07/nyregion/columbia-protest-library-occupied.html
 
-**Las Vegas Shatters Rain Record as ‘Very Unusual’ Storm Soaks City**\
+**Las Vegas Got More Than a Third of its Annual Rainfall in Just Four Days**\
 `A man was swept away by the flooding rains, the police said.`\
 https://nytimes.com/2025/05/07/weather/las-vegas-flood-record-rain.html
 
