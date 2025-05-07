@@ -1,3 +1,15 @@
+**Come for the Conclave. Don’t Stay for the Food.**\
+`The cardinals selecting the next pope will take their meals at a Vatican guesthouse. One conclave veteran said the fare was “food you could eat at a train station.”`\
+https://nytimes.com/2025/05/07/world/europe/papal-conclave-food-cardinals.html
+
+**A Most Sensitive Subject in the White House: Where Is Melania?**\
+`Mrs. Trump has spent fewer than 14 days at the White House since her husband was inaugurated 108 days ago`\
+https://nytimes.com/2025/05/07/us/politics/white-house-melania-absence.html
+
+**What to know about the Fed’s decision.**\
+`The U.S. central bank is widely expected to stick to a wait-and-see approach as officials brace for President Trump’s tariffs to stoke higher inflation and slower growth.`\
+https://nytimes.com/live/2025/05/07/business/fed-interest-rates/what-to-know-about-the-feds-decision
+
 **Set to face Leafs, Aaron Ekblad addresses criticism of first-round hit: 'Reasonable response'**\
 `Panthers defensemen responds for first time to Lightning forward Brandon Hagel's comments over elbowing suspension.`\
 https://nytimes.com/athletic/6340602/2025/05/07/panthers-ekblad-suspension-hagel-leafs-nhl-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/07/opinion/melenchon-left-france.html
 **Texas Attorney General Announces Vote Fraud and ‘Harvesting’ Charges**\
 `A county judge, two City Council members and a former county election administrator are among Ken Paxton’s targets as he elevates his “election integrity” accusations to criminality.`\
 https://nytimes.com/2025/05/07/us/politics/texas-vote-fraud.html
-
-**Alejandro Garnacho on adapting to Amorim, Ronaldo comparisons and his United future**\
-`The Argentina forward addressed the media for the first time in his career - he's becoming increasingly important to Amorim and United`\
-https://nytimes.com/athletic/6340394/2025/05/07/alejandro-garnacho-on-adapting-to-amorim-ronaldo-comparisons-and-his-united-future/
-
-**India and Pakistan May Have an Offramp After Their Clash. Will They Take It?**\
-`The question now, analysts say, is whether the two sides will claim victory as Pakistan asserts that it downed Indian jets and gauges the toll of India’s strikes.`\
-https://nytimes.com/2025/05/07/world/asia/india-pakistan-conflict.html
-
-**The Secret to Restaurant-Style Chicken at Home**\
-`Let the chicken cook itself, then turn the drippings into a savory lime butter sauce, Eric Kim writes.`\
-https://nytimes.com/2025/05/07/dining/how-to-make-chicken-at-home.html
 
