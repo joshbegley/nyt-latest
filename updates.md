@@ -1,3 +1,7 @@
+**Betting Sites Place Odds on the Conclave, ‘the Hardest Vote on the Planet to Forecast**\
+`Online oddsmakers correctly predicted President Trump’s election victory last year. They face a far tougher task in forecasting the next pope.`\
+https://nytimes.com/2025/05/07/world/europe/betting-sites-next-pope-predictions-conclave.html
+
 **Senators are urging Paramount to fight Trump’s ‘60 Minutes’ lawsuit.**\
 `By Benjamin Mullin`\
 https://nytimes.com/live/2025/05/07/us/trump-news/senators-are-urging-paramount-to-fight-trumps-60-minutes-lawsuit
