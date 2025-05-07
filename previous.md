@@ -1,3 +1,11 @@
+**The Sistine Chapel becomes the world’s most beautiful polling place.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/the-sistine-chapel-becomes-the-worlds-most-beautiful-polling-place
+
+**Thompson: Steph Curry's injury gives the Warriors another mission: Buy him time**\
+`The Warriors don't yet know how long Steph Curry will be out. Now they'll have to try to keep a promising season alive without him.`\
+https://nytimes.com/athletic/6340063/2025/05/07/steph-curry-hamstring-injury-warriors-timberwolves-playoffs/
+
 **What the Fed’s Rate Policy Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/05/07/business/fed-interest-rate-loans-mortgages.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/how-does-the-vot
 **He Hears Voices in His Head. He Also Helped Win an Election.**\
 `He ran a successful political campaign, sometimes from a psych ward, sometimes living on the street. He has found a way to thrive.`\
 https://nytimes.com/2025/05/07/nyregion/nyc-public-advocate-rajkumar-sooknanan-mental-health.html
-
-**Review: At Gibney, a New Lucinda Childs Stands Out (No Surprise)**\
-`Gibney Company brings an uneven trio of new works to the Joyce: a deft premiere by Childs and dances by Roy Assaf and Peter Chu.`\
-https://nytimes.com/2025/05/07/arts/dance/review-gibney-company-lucinda-childs.html
-
-**Johnson Rules Out an Aggressive Plan to Cut Medicaid as G.O.P. Moderates Waver**\
-`The Republican speaker’s decision underscored the resistance in his party to politically painful reductions to the program, and drew a backlash from the hard right, which is demanding deep cuts.`\
-https://nytimes.com/2025/05/07/us/politics/medicaid-cuts-house-republicans-johnson.html
 

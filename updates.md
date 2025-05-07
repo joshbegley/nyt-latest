@@ -1,3 +1,11 @@
+**The Sistine Chapel becomes the world’s most beautiful polling place.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/the-sistine-chapel-becomes-the-worlds-most-beautiful-polling-place
+
+**Thompson: Steph Curry's injury gives the Warriors another mission: Buy him time**\
+`The Warriors don't yet know how long Steph Curry will be out. Now they'll have to try to keep a promising season alive without him.`\
+https://nytimes.com/athletic/6340063/2025/05/07/steph-curry-hamstring-injury-warriors-timberwolves-playoffs/
+
 **What the Fed’s Rate Policy Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/05/07/business/fed-interest-rate-loans-mortgages.html
