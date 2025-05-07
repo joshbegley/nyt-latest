@@ -1,3 +1,12 @@
+**Scenes From India’s Strikes in Kashmir and Pakistan**\
+`After weeks of tensions from a terrorist attack in Kashmir, India conducted strikes against Pakistan. Anger on both sides has the world bracing for an escalation.`\
+https://nytimes.com/2025/05/07/world/asia/india-pakistan-kashmir-photos.html
+
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
 **Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
 `Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
 `\
