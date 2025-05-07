@@ -1,3 +1,20 @@
+**Xi’s Visit to Russia Complicates China’s Courtship of Europe**\
+`Xi Jinping, China’s leader, is reinforcing his bond with President Vladimir V. Putin of Russia. But that could hurt Beijing’s efforts to repair ties with Europe.`\
+https://nytimes.com/2025/05/07/world/asia/xi-china-russia-trade.html
+
+**Nico Williams and Inaki both miss Man United semi-final second leg**\
+`Nico missed Sunday's Basque derby against Real Sociedad, while his older brother Inaki was withdrawn in the 62nd minute of the 0-0 draw.`\
+https://nytimes.com/athletic/6339143/2025/05/07/manchester-united-athletic-bilbao-team-news/
+
+**Alpine replaces Doohan with Colapinto for at least the next five F1 races**\
+`In his seven Formula One races, Doohan’s highest finish was P13`\
+https://nytimes.com/athletic/6338477/2025/05/07/alpine-f1-franco-colapinto-jack-doohan-driver-swap/
+
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
 **Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
 `Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
 `\

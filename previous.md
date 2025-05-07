@@ -1,3 +1,15 @@
+**Xi’s Visit to Russia Complicates China’s Courtship of Europe**\
+`Xi Jinping, China’s leader, is reinforcing his bond with President Vladimir V. Putin of Russia. But that could hurt Beijing’s efforts to repair ties with Europe.`\
+https://nytimes.com/2025/05/07/world/asia/xi-china-russia-trade.html
+
+**Nico Williams and Inaki both miss Man United semi-final second leg**\
+`Nico missed Sunday's Basque derby against Real Sociedad, while his older brother Inaki was withdrawn in the 62nd minute of the 0-0 draw.`\
+https://nytimes.com/athletic/6339143/2025/05/07/manchester-united-athletic-bilbao-team-news/
+
+**Alpine replaces Doohan with Colapinto for at least the next five F1 races**\
+`In his seven Formula One races, Doohan’s highest finish was P13`\
+https://nytimes.com/athletic/6338477/2025/05/07/alpine-f1-franco-colapinto-jack-doohan-driver-swap/
+
 **Russia and Ukraine Trade Strikes Before Moscow’s Victory Day Parade**\
 `The attacks came a day before a Russian-proposed cease-fire was to take effect and as Moscow prepared to welcome foreign dignitaries for a parade.`\
 https://nytimes.com/2025/05/07/world/europe/ukraine-russia-strikes-victory-day.html
@@ -26,16 +38,4 @@ https://nytimes.com/2025/05/07/insider/pope-conclave-process.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/07/crosswords/spelling-bee-forum.html
-
-**Who says baseball is boring? Giants win historically wild game in extra innings**\
-`The final result was the Giants defeating the Cubs 14-5, but it could have ended 5-3 or 5-4 about a half hour earlier.`\
-https://nytimes.com/athletic/6338476/2025/05/07/giants-win-wild-game-extra-innings/
-
-**How Tensions Between India and Pakistan Led to Strikes**\
-`India said early Wednesday that it had conducted strikes on Pakistan, two weeks after a deadly terror attack killed more than two dozen civilians in Indian-administered Kashmir.`\
-https://nytimes.com/video/world/asia/100000010141396/how-tensions-between-india-and-pakistan-led-to-strikes.html
-
-**Cubs takeaways: What’s going on with Ryan Pressly after historic loss in extra innings?**\
-`Also: Shota Imanaga's experience on the injured list, Cade Horton might be nearing his MLB debut and Cubs are seeking a front-line starter.`\
-https://nytimes.com/athletic/6338974/2025/05/07/cubs-takeaways-ryan-pressly/
 
