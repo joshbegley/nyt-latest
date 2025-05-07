@@ -1,3 +1,11 @@
+**Want to Be a Deep Sea Explorer? Don’t Worry, There’s Lots Left.**\
+`Researchers collected more than 43,000 records of dives and assessed the photos and videos to determine how much of the bottom has been seen by humans.`\
+https://nytimes.com/2025/05/07/climate/deep-sea-exploration.html
+
+**Lowetide: What we're seeing from Oilers' defencemen so far in the playoffs**\
+`The Oilers are a club that features defencemen who can bring three specific things. Here they are.`\
+https://nytimes.com/athletic/6336945/2025/05/07/edmonton-oilers-defence-nhl-playoffs-stats/
+
 **The bond market is in focus as Trump and his advisers push for lower rates.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2025/05/07/business/fed-interest-rates/the-bond-market-is-in-focus-as-trump-and-his-advisers-push-for-lower-rates
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/07/well/relationship-advice-terry-real.html
 **Black Smoke, White Smoke: How the Vatican Tells the World There’s a New Pope**\
 `In a tradition that scholars date to the 19th century, smoke released from a chimney will be colored white if the cardinals have made a decision, or black if they remain deadlocked.`\
 https://nytimes.com/2025/05/07/world/europe/black-smoke-white-smoke-vatican-pope-vote-conclave.html
-
-**Tom Brady's advice to Shedeur Sanders after draft slide: 'Use it as motivation'**\
-`Brady said he texted Sanders after the former Colorado quarterback slid from a potential first-round pick to the No. 144th selection.`\
-https://nytimes.com/athletic/6340099/2025/05/07/shedeur-sanders-tom-brady-nfl-draft-slide/
-
-**Empty Nesting Is Hard. This Carrot Cake Is Anything But.**\
-`For years, Genevieve Ko would make this dessert for her kids. Now that they’re grown, she’s streamlined it for them — and you.`\
-https://nytimes.com/article/easy-carrot-cake-mothers-day.html
 

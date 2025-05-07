@@ -1,3 +1,7 @@
+**The ‘We Can Do Hard Things’ Crew Is All Out of Advice**\
+`In their new book, Glennon Doyle, Abby Wambach and Amanda Doyle admit they don’t have the key to happiness. And their podcast audience loves them for it.`\
+https://nytimes.com/2025/05/07/well/we-can-do-hard-things-book-glennon-abby-amanda.html
+
 **Want to Be a Deep Sea Explorer? Don’t Worry, There’s Lots Left.**\
 `Researchers collected more than 43,000 records of dives and assessed the photos and videos to determine how much of the bottom has been seen by humans.`\
 https://nytimes.com/2025/05/07/climate/deep-sea-exploration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/well/charlamagne-tha-god-depression-anxiety-grass
 **3 Things a Couples Therapist Wants You to Do for Your Relationship**\
 `Terry Real shares simple strategies for surviving fights and maintaining long-term intimacy.`\
 https://nytimes.com/2025/05/07/well/relationship-advice-terry-real.html
-
-**Black Smoke, White Smoke: How the Vatican Tells the World There’s a New Pope**\
-`In a tradition that scholars date to the 19th century, smoke released from a chimney will be colored white if the cardinals have made a decision, or black if they remain deadlocked.`\
-https://nytimes.com/2025/05/07/world/europe/black-smoke-white-smoke-vatican-pope-vote-conclave.html
 
