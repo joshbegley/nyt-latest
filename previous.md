@@ -1,3 +1,19 @@
+**New Restaurants in New York City with Standout Design**\
+`Visitors should at least peek into some of these spots, including a sushi restaurant with a 2D interior and a Baz Luhrmann-owned joint with major medieval vibes.`\
+https://nytimes.com/2025/05/07/arts/design/restaurants-bars-new-york-city.html
+
+**Tough decisions, 'stolen' players and more from an early 2025 fantasy football mock draft**\
+`The Athletic fantasy football collective recently participated in a fantasy football mock draft to help set the stage for the 2025 campaign.`\
+https://nytimes.com/athletic/6334921/2025/05/07/fantasy-football-2025-early-mock-draft/
+
+**Review: Embracing the Humor in Handel’s ‘Giulio Cesare’**\
+`The English Concert, under the conductor Harry Bicket, returned to Carnegie Hall with one of Handel’s greatest hits.`\
+https://nytimes.com/2025/05/07/arts/music/giulio-cesare-english-concert-carnegie-hall.html
+
+**The Symbolism Behind India’s ‘Operation Sindoor’**\
+`The name for the military attack on Pakistan brings to mind a woman who became shorthand for the grief wrought by a terrorist attack.`\
+https://nytimes.com/2025/05/07/world/asia/india-operation-sindoor-name.html
+
 **India-Pakistan Skirmishes Follow a Pattern, but This One Is Different**\
 `At times, the skirmishes between India and Pakistan can seem more like reality TV spectacle, but these strikes are worryingly different.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/pakistan-india-bombing
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6337033/2025/05/07/view-from-the-lane-tottenham-sum
 **Genetic Study Retraces the Origins of Coronaviruses in Bats**\
 `As China and the United States trade charges of a lab leak, researchers contend in a new paper that the Covid pandemic got its start, like a previous one, in the wildlife trade.`\
 https://nytimes.com/2025/05/07/science/covid-coronavirus-bats-genetics.html
-
-**Add This Malai Chicken and Potatoes to Your Sheet-Pan-Dinner Rotation**\
-`“You know it’s good when everyone crowds around the sheet pan after dinner to scrape up whatever sauce got left behind with their fingers!”`\
-https://nytimes.com/2025/05/07/dining/malai-sheet-pan-chicken-dinner.html
-
-**Cowboys' trade for George Pickens completes their offense and is a bet on their culture**\
-`The Cowboys made a bold move in trading for George Pickens. Can they get the get the mercurial receiver to buy into their culture?`\
-https://nytimes.com/athletic/6339724/2025/05/07/cowboys-george-pickens-trade-dak-prescott/
-
-**Cardinals Begin Conclave With an Oath**\
-`The cardinals at the Sistine Chapel in Vatican City vow to follow the rules of the conclave, the process by which the next pope is chosen.`\
-https://nytimes.com/2025/05/07/world/europe/cardinals-conclave-oath.html
-
-**Republican Challenger in Long-Contested N.C. Race Concedes Defeat**\
-`Three counts had showed that the incumbent, a Democrat, won the election last fall. But for months, Judge Jefferson Griffin tried to reverse his loss through the courts.`\
-https://nytimes.com/2025/05/07/us/politics/north-carolina-supreme-court-gop-concession.html
 
