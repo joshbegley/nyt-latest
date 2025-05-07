@@ -1,3 +1,11 @@
+**A top cardinal asks for divine guidance at a ‘difficult’ moment in history.**\
+`By Emma Bubola and Jason Horowitz`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-top-cardinal-asks-for-divine-guidance-at-a-difficult-moment-in-history
+
+**Edmonton dominated even strength in Game 1 win. Can the Golden Knights flip it?**\
+`Vegas managed only five shots on goal at even strength over the final 40 minutes of the game. `\
+https://nytimes.com/athletic/6339042/2025/05/07/golden-knights-oilers-game-1/
+
 **Pelicans draft scenarios: What happens with Zion Williamson if they get lucky?**\
 `If the Pelicans fall in Monday's NBA Draft Lottery, things will get more complicated for Joe Dumars. `\
 https://nytimes.com/athletic/6337752/2025/05/07/pelicans-zion-williamson-cooper-flagg-draft-lottery-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6338277/2025/05/07/49ers-draft-class-mykel-williams
 **Recruiting thoughts: Oregon's setbacks, USC's surge, Washington's in-state push**\
 `Ole Miss beefs up class with two blue-chip commitments. Vanderbilt beats out Georgia and Notre Dame for elite defensive back. `\
 https://nytimes.com/athletic/6337637/2025/05/07/college-football-recruiting-oregon-usc-washington/
-
-**Nebraska's leadership has positioned Huskers to handle college football's changing landscape**\
-`Coach Matt Rhule has found the right mix of patience and urgency as he waits to find out how big his roster can be in 2025. `\
-https://nytimes.com/athletic/6337988/2025/05/07/nebraska-football-house-roster-size/
-
-**Fouling Mitchell Robinson isn't just a smart move for the Celtics. It's a sign of respect**\
-`Teams are intentionally fouling Mitchell Robinson, and it's because he's been impactful.`\
-https://nytimes.com/athletic/6336992/2025/05/07/knicks-celtics-nba-playoffs-2025-mitchell-robinson/
 

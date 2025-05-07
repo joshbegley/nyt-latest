@@ -1,3 +1,7 @@
+**Why Jack Doohan lost his Alpine F1 seat in just 150 days**\
+`The pressure was on driver and team to perform quickly. For whatever reason, Jack Doohan fell short over six races with Alpine`\
+https://nytimes.com/athletic/6338485/2025/05/07/alpine-f1-jack-doohan-franco-colapinto/
+
 **A top cardinal asks for divine guidance at a ‘difficult’ moment in history.**\
 `By Emma Bubola and Jason Horowitz`\
 https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-top-cardinal-asks-for-divine-guidance-at-a-difficult-moment-in-history
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6338720/2025/05/07/dodgers-max-muncy-perspective-ey
 **Evaluating the 49ers draft class: Did they potentially add 5 defensive starters?**\
 `The 49ers filled some holes on the defensive line with their top picks, and don't discount the future roles of Nick Martin and Upton Stout.`\
 https://nytimes.com/athletic/6338277/2025/05/07/49ers-draft-class-mykel-williams-alfred-collins/
-
-**Recruiting thoughts: Oregon's setbacks, USC's surge, Washington's in-state push**\
-`Ole Miss beefs up class with two blue-chip commitments. Vanderbilt beats out Georgia and Notre Dame for elite defensive back. `\
-https://nytimes.com/athletic/6337637/2025/05/07/college-football-recruiting-oregon-usc-washington/
 

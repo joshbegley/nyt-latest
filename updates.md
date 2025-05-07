@@ -1,3 +1,11 @@
+**A top cardinal asks for divine guidance at a ‘difficult’ moment in history.**\
+`By Emma Bubola and Jason Horowitz`\
+https://nytimes.com/live/2025/05/07/world/pope-conclave-updates/a-top-cardinal-asks-for-divine-guidance-at-a-difficult-moment-in-history
+
+**Edmonton dominated even strength in Game 1 win. Can the Golden Knights flip it?**\
+`Vegas managed only five shots on goal at even strength over the final 40 minutes of the game. `\
+https://nytimes.com/athletic/6339042/2025/05/07/golden-knights-oilers-game-1/
+
 **Pelicans draft scenarios: What happens with Zion Williamson if they get lucky?**\
 `If the Pelicans fall in Monday's NBA Draft Lottery, things will get more complicated for Joe Dumars. `\
 https://nytimes.com/athletic/6337752/2025/05/07/pelicans-zion-williamson-cooper-flagg-draft-lottery-nba/
