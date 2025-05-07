@@ -1,3 +1,7 @@
+**Clarence O. Smith, a Founder of Essence Magazine, Is Dead at 92**\
+`As president, he helped persuade companies like Estée Lauder and Ford to advertise in the pages of the first mass-circulation magazine directed at Black women.`\
+https://nytimes.com/2025/05/07/business/media/clarence-o-smith-dead.html
+
 **Trump Has Called for More Babies but Dismissed Fertility Experts**\
 `The research team studying how to improve I.V.F. was a casualty of cutbacks at federal health agencies.`\
 https://nytimes.com/2025/05/07/health/trump-fertility-ivf-cdc.html

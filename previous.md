@@ -1,3 +1,7 @@
+**Clarence O. Smith, a Founder of Essence Magazine, Is Dead at 92**\
+`As president, he helped persuade companies like Estée Lauder and Ford to advertise in the pages of the first mass-circulation magazine directed at Black women.`\
+https://nytimes.com/2025/05/07/business/media/clarence-o-smith-dead.html
+
 **Trump Has Called for More Babies but Dismissed Fertility Experts**\
 `The research team studying how to improve I.V.F. was a casualty of cutbacks at federal health agencies.`\
 https://nytimes.com/2025/05/07/health/trump-fertility-ivf-cdc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/briefing/india-pakistan-pope-conclave-gaza-israel
 **PSG 2 Arsenal 1 (agg: 3-1): Decisive Donnarumma, worthy finalists, Arteta's set-piece problem**\
 `Paris Saint-Germain saw off Arsenal to book a date with Inter in the Champions League final - The Athletic analyses the action`\
 https://nytimes.com/athletic/6336860/2025/05/07/psg-2-arsenal-1-champions-league-donnarumma-arteta/
-
-**Trump Says U.S. Won’t Drop Tariffs Ahead of China Talks**\
-`The Treasury secretary and trade representative plan to meet with Chinese officials this weekend to discuss trade and economic matters.`\
-https://nytimes.com/2025/05/07/us/politics/trump-tariffs-china-talks.html
 
