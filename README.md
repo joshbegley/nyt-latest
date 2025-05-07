@@ -1,3 +1,7 @@
+**How to watch Paris Saint-Germain vs. Arsenal in Champions League semifinal second leg**\
+`PSG claimed the first leg in London last week, a 1-0 grinder over Arsenal settled by Ousmane Dembélé. The rematch goes down Wednesday.`\
+https://nytimes.com/athletic/6337794/2025/05/07/arsenal-paris-psg-champions-league-how-to-watch/
+
 **Doku is rediscovering the form that made him Alexander-Arnold's tormentor-in-chief**\
 `The excitement that greeted the winger's early weeks at Manchester City has started to return`\
 https://nytimes.com/athletic/6335338/2025/05/07/jeremy-doku-manchester-city-trent-alexander-arnold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336922/2025/05/07/trent-alexander-arnold-real-madr
 **What Arsenal need to do in Paris: Our writers on first-leg lessons, tactical battles, predictions**\
 `Start well, let Saka shine and keep Kvaratskhelia quiet... Here's what Arsenal must do to reach the Champions League final`\
 https://nytimes.com/athletic/6336818/2025/05/07/arsenal-psg-champions-league-predictions/
-
-**The BookKeeper – Exploring Wrexham’s finances and how Ryan Reynolds and Rob McElhenney run a club like no other**\
-`Exploring how the club of Ryan Reynolds and Rob McElhenney is run and why promotion to the Premier League next season is not impossible`\
-https://nytimes.com/athletic/6319873/2025/05/07/the-bookkeeper-wrexham-reynolds-mcelhenney-finances/
 
