@@ -1,3 +1,11 @@
+**Recession Warnings Are Everywhere, Except in the Data.**\
+`Mainstream measures have been slow to detect the impact of tariffs and uncertainty, leaving economists to scour earnings calls and private-sector data sources.`\
+https://nytimes.com/2025/05/07/business/economy-tariffs-recession-indicators-fed.html
+
+**Johnson Rules Out an Aggressive Plan to Cut Medicaid as G.O.P. Moderates Waver**\
+`The Republican speaker’s decision underscored the resistance in his party to politically painful reductions to the program, and drew a backlash from the hard right, which is demanding deep cuts.`\
+https://nytimes.com/2025/05/07/us/politics/medicaid-cuts-house-republicans-johnson.html
+
 **Syrian President Makes First Visit to Europe Since Assad’s Fall**\
 `The visit is a boost to Ahmed al-Shara’s attempts to bring Syria back into the international fold but comes amid continuing turmoil there.`\
 https://nytimes.com/2025/05/07/world/europe/syria-france-al-shara-macron.html
