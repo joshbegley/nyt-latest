@@ -1,3 +1,15 @@
+**Theater Boxes**\
+`Tom McCoy makes a few corrections.`\
+https://nytimes.com/2025/05/06/crosswords/daily-puzzle-2025-05-07.html
+
+**TikTok, Facing a U.S. Ban, Tells Advertisers: We’re Here and Confident**\
+`The company’s executives tried to reassure potential advertisers about the app’s future in the United States without directly addressing a looming ban under a federal law.`\
+https://nytimes.com/2025/05/06/business/media/tiktok-advertisers-ban.html
+
+**Trump Administration Plans to Send Migrants to Libya on a Military Flight**\
+`Human rights groups have called conditions in the country’s network of migrant detention centers “horrific” and “deplorable.”`\
+https://nytimes.com/2025/05/06/us/politics/trump-libya-migrants.html
+
 **Florida Wildlife Officers Kill 3 Black Bears After Deadly Attack**\
 `The state’s wildlife agency will test the bears’ DNA to determine if any of them had attacked and killed an 89-year-old man.`\
 https://nytimes.com/2025/05/06/us/florida-bears-killed-attack.html
