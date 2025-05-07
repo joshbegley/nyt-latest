@@ -10,8 +10,8 @@ https://nytimes.com/2025/05/07/world/asia/india-pakistan-weapons.html
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/07/learning/word-of-the-day-sabbatical.html
 
-**Inter’s old limitations beginning to look like new frontiers - next stop, Munich**\
-`Joy and despair were in high supply as Inter claimed victory in a Champions League semi-final for the ages`\
+**Inter’s old limitations are beginning to look like new frontiers - next stop, Munich**\
+`Joy and despair were in high supply as Inter claimed victory against Barcelona in a Champions League semi-final for the ages`\
 https://nytimes.com/athletic/6338493/2025/05/07/inter-barcelona-champions-league-semi-final/
 
 **Late Night Doesn’t Mind Canada Putting Trump in the Friend Zone**\
