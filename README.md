@@ -1,3 +1,7 @@
+**Grassroots footballers protest FA's ban on transgender women**\
+`Some grassroots players marched to Wembley Stadium in hope of forcing the FA to change its policy on transgender women in football`\
+https://nytimes.com/athletic/6335281/2025/05/07/grassroots-march-wembley-transgender-women-ban/
+
 **Xi’s Visit to Russia Complicates China’s Courtship of Europe**\
 `Xi Jinping, China’s leader, is reinforcing his bond with President Vladimir V. Putin of Russia. But that could hurt Beijing’s efforts to repair ties with Europe.`\
 https://nytimes.com/2025/05/07/world/asia/xi-china-russia-trade.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/07/learning/commencement-speaker.html
 **The Drama and Politics Behind Picking a Pope**\
 `There are, technically, 133 papal contenders but no official candidates. Here’s how a New York Times team determines the front-runners.`\
 https://nytimes.com/2025/05/07/insider/pope-conclave-process.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/07/crosswords/spelling-bee-forum.html
 

@@ -1,3 +1,8 @@
+**Europa League semi-final odds: One foot in the final, Spurs? Beware Glimt…**\
+`Julia Ranney has a look at the best bets around Tottenham’s Europa League semi-final second-leg clash with Bodo/Glimt.
+`\
+https://nytimes.com/athletic/6337261/2025/05/07/europa-league-semi-final-tottenham-bodo-glimt-betting-preview/
+
 **Xi’s Visit to Russia Complicates China’s Courtship of Europe**\
 `Xi Jinping, China’s leader, is reinforcing his bond with President Vladimir V. Putin of Russia. But that could hurt Beijing’s efforts to repair ties with Europe.`\
 https://nytimes.com/2025/05/07/world/asia/xi-china-russia-trade.html
