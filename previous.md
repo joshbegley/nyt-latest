@@ -22,7 +22,7 @@ https://nytimes.com/2025/05/07/us/politics/rfk-files-released-national-archives.
 `Game 2 looked a lot like Game 1 for New York with a 20-point deficit, a lopsided scoring run and a Mikal Bridges steal to ice the win.`\
 https://nytimes.com/athletic/6341129/2025/05/07/nba-playoff-takeaways-knicks-celtics-nuggets-thunder/
 
-**Maple Leafs defeat Panthers in Game 2, take 2-0 series lead: Takeaways**\
+**Leafs defeat Panthers in Game 2, take 2-0 series lead: Takeaways**\
 `With a spirited and complete 4-3 win in Game 2, Toronto now owns a commanding series lead over the defending Stanley Cup champion Panthers.`\
 https://nytimes.com/athletic/6341016/2025/05/07/maple-leafs-panthers-nhl-playoffs-2025-game-2-takeaways/
 

@@ -1,3 +1,7 @@
+**Leafs defeat Panthers in Game 2, take 2-0 series lead: Takeaways**\
+`With a spirited and complete 4-3 win in Game 2, Toronto now owns a commanding series lead over the defending Stanley Cup champion Panthers.`\
+https://nytimes.com/athletic/6341016/2025/05/07/maple-leafs-panthers-nhl-playoffs-2025-game-2-takeaways/
+
 **Robbie Ray continues his strong start as Giants win series over the Cubs**\
 `Ray moved to 5-0 on the season and the Giants are 8-0 in his starts. It's the longest team winning streak for a Giants starter since 1992.`\
 https://nytimes.com/athletic/6340528/2025/05/07/sf-giants-robbie-ray-cubs-series/
