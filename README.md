@@ -1,5 +1,9 @@
+**The Briefing: Bodo/Glimt 0 Spurs 2 (1-5 agg) - How Postecoglou masterminded a famous win**\
+`Analysing the big talking points from the Europa League semi-final second leg decider in Norway`\
+https://nytimes.com/athletic/6339283/2025/05/08/bodo-glimt-tottenham-europa-league-result-analysis/
+
 **Chelsea 1 Djurgarden 0 (5-1 agg) - Walsh's highlights; importance for Maresca? Play youth in final?**\
-`Our writers break down the action as Chelsea reach the Conference League final.`\
+`Our writers break down the action as Chelsea reach the Conference League final`\
 https://nytimes.com/athletic/6339285/2025/05/08/chelsea-conference-league-reggie-walsh/
 
 **Texas, Texas A&M will play rivalry game on Black Friday**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/business/us-uk-trade-agreement-takeaways.html
 **An American Pope? Maybe It Wasn’t So Impossible.**\
 `Cardinal Prevost defied the odds. A number of factors point to why.`\
 https://nytimes.com/2025/05/08/opinion/american-pope-leo.html
-
-**Breaking down NFL's plan to tease 2025 schedule release**\
-`The NFL will tease aspects of its schedule early next week, leading to the full 2025 schedule announcement on Wednesday, May 14.`\
-https://nytimes.com/athletic/6342836/2025/05/08/nfl-schedule-release-2025-viewing/
 

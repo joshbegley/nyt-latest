@@ -1,3 +1,11 @@
+**Chelsea 1 Djurgarden 0 (5-1 agg) - Walsh's highlights; importance for Maresca? Play youth in final?**\
+`Our writers break down the action as Chelsea reach the Conference League final.`\
+https://nytimes.com/athletic/6339285/2025/05/08/chelsea-conference-league-reggie-walsh/
+
+**Texas, Texas A&M will play rivalry game on Black Friday**\
+`The teams played the Saturday after Thanksgiving last November.`\
+https://nytimes.com/athletic/6342991/2025/05/08/texas-texas-am-play-black-friday/
+
 **Jadeveon Clowney says he has 'more in the tank' after Panthers release him**\
 `“I’m definitely gonna play well," Jadeveon Clowney said Thursday. The Panthers drafted two edge rushers on Day 2 of the NFL Draft.`\
 https://nytimes.com/athletic/6342530/2025/05/08/panthers-release-jadeveon-clowney/
