@@ -1,3 +1,7 @@
+**Encompassing the Diaspora at the 1-54 Fair**\
+`A critic’s pick of galleries from Africa and the Caribbean offer exciting and haunting work.`\
+https://nytimes.com/2025/05/08/arts/design/1-54-fair-art-review.html
+
 **Tonight’s Dinner Is Bouncy**\
 `Miso rice cakes with spinach and peas, sesame-brown butter udon and cheesy baked gnocchi are chewy, springy suppers.`\
 https://nytimes.com/2025/05/08/dining/tonights-dinner-is-bouncy.html
