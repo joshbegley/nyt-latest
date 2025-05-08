@@ -1,3 +1,7 @@
+**James Foley, Who Directed ‘Glengarry Glen Ross,’ Dies at 71**\
+`The veteran New York City-born filmmaker also directed the sequels to “Fifty Shades of Grey” and a dozen episodes of “House of Cards.”`\
+https://nytimes.com/2025/05/08/arts/james-foley-dead.html
+
 **In Tyre Nichols Case, an Out-of-Town Jury Heard a Familiar Police Defense**\
 `The acquittal of three former officers in the state trial over the fatal beating adds to a mixed series of verdicts for officers accused of wrongdoing.`\
 https://nytimes.com/2025/05/08/us/politics/tyre-nichols-memphis-officers-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343317/2025/05/08/twins-orioles-byron-buxton-brook
 **Sue Bird welcomes next phase of career in new role at USA Basketball**\
 `The longtime WNBA star won four championships with the Seattle Storm and five Olympic gold medals. `\
 https://nytimes.com/athletic/6342714/2025/05/08/sue-bird-usa-basketball-wnba/
-
-**Trump Declares High-Speed Internet Program ‘Racist’ and ‘Unconstitutional’**\
-`President Trump denounced the Biden-era Digital Equity Act as “woke handouts based on race,” raging in a social media post against a broad effort to improve high-speed internet access.`\
-https://nytimes.com/2025/05/08/us/politics/trump-biden-digital-equity-act.html
 
