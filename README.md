@@ -1,3 +1,7 @@
+**Here are 7 key issues dividing the Roman Catholic Church.**\
+`By Motoko Rich`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issues-dividing-the-roman-catholic-church
+
 **A Paris Restaurant With Live Jazz and Soaring Ceilings**\
 `Plus: a new oceanside hotel in Mexico, murta berries and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/08/t-magazine/paris-grand-palais-restaurant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/business/trump-tariffs-europe-small-businesses.ht
 **Interest in the ‘Conclave’ movie has soared. How accurate is it?**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/conclave-movie-new-pope-vote
-
-**Fear of Tariffs, and Hopes for a Reprieve, at C.E.O. Conference**\
-`At the annual Milken Institute Global Conference, the anxious talk was about tariffs and hopes for trade agreements and de-escalation.`\
-https://nytimes.com/2025/05/08/business/dealbook/milken-tariffs-trade-taxes.html
 

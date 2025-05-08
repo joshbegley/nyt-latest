@@ -1,3 +1,7 @@
+**A Paris Restaurant With Live Jazz and Soaring Ceilings**\
+`Plus: a new oceanside hotel in Mexico, murta berries and more recommendations from T Magazine.`\
+https://nytimes.com/2025/05/08/t-magazine/paris-grand-palais-restaurant.html
+
 **Olympic silver medalist rugby player dies in road accident aged 30**\
 `His death was announced by his club, French team Castres Olympique, on Thursday afternoon.`\
 https://nytimes.com/athletic/6342008/2025/05/08/josaia-raisuqe-death-fiji-rugby/
