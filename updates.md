@@ -1,3 +1,11 @@
+**A call for ‘unity’ in the conclave sounds divisive to some.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-call-for-unity-in-the-conclave-sounds-divisive-to-some
+
+**Trump Administration Live Updates: President to Announce Trade Deal With U.K.**\
+``\
+https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news
+
 **Shai Gilgeous-Alexander is him again, and the Nuggets have a big problem**\
 `After a Game 1 loss at home, OKC responded with a historic first half and cruised to victory behind SGA's "unbelievable blend."`\
 https://nytimes.com/athletic/6341720/2025/05/08/shai-gilgeous-alexander-thunder-playoffs-game-2-nuggets/
