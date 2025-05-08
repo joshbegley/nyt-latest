@@ -1,3 +1,11 @@
+**The Best Way to Drop an Egg**\
+`How the shell cracks in an exercise known as the egg drop challenge turned out to be more complicated than science teachers have been telling students for many years.`\
+https://nytimes.com/2025/05/08/science/egg-drop-challenge.html
+
+**Huevos Rancheros for Breakfast, Brunch, Lunch and Dinner**\
+`Kay Chun’s recipe is simple and brilliant, with an easy homemade salsa that simmers into the ranchero sauce, seasons the refried beans and tops the whole affair.`\
+https://nytimes.com/2025/05/08/dining/huevos-rancheros-breakfast-brunch.html
+
 **The Sistine Chapel hasn’t always been home to the conclave.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/the-sistine-chapel-hasnt-always-been-home-to-the-conclave
