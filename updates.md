@@ -1,3 +1,7 @@
+**Toyota Says Tariffs Will Erase $1.3 Billion in Profits in Just 2 Months**\
+`The automaker’s somber forecast for the fiscal year underscored how quickly fortunes have turned for many companies reckoning with President Trump’s tariffs.`\
+https://nytimes.com/2025/05/08/business/toyota-earnings-trump-tariffs.html
+
 **This Champions League final will be a rarity - a meeting of the competition's best teams**\
 `The two remaining teams have been the outstanding sides in the Champions League, so we could not have asked for a more fitting final`\
 https://nytimes.com/athletic/6340884/2025/05/08/psg-inter-champions-league-final/
