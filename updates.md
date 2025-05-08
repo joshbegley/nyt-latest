@@ -1,3 +1,11 @@
+**New Joint Chiefs Chairman Picks a Friendly Crowd for His Debut**\
+`Gen. Dan Caine, who spoke at a special operations conference, has kept a low profile since assuming the military’s top job.`\
+https://nytimes.com/2025/05/08/us/politics/joint-chiefs-chairman-dan-caine.html
+
+**U.S. Government to Stop Tracking the Costs of Extreme Weather**\
+`It would be harder for insurers and scientists to study wildfires, storms and other “billion dollar disasters,” which are growing more frequent as the planet warms.`\
+https://nytimes.com/2025/05/08/climate/noaa-billion-dollar-disasters.html
+
 **Oliver Oakes' Alpine resignation came after brother arrested, charged**\
 `William Oakes was stopped in the Silverstone Park area on May 2, charged a day later and then appeared at Northampton Magistrates' Court.`\
 https://nytimes.com/athletic/6342491/2025/05/08/oliver-oakes-alpine-brother/

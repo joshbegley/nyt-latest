@@ -1,3 +1,7 @@
+**Crypto Bill Stalls in the Senate as Democrats Balk**\
+`Democratic supporters of the measure to regulate parts of the industry refused to allow it to move forward amid concerns in their party that President Trump and his family are profiting from cryptocurrency.`\
+https://nytimes.com/2025/05/08/us/politics/crypto-bill-senate.html
+
 **New Joint Chiefs Chairman Picks a Friendly Crowd for His Debut**\
 `Gen. Dan Caine, who spoke at a special operations conference, has kept a low profile since assuming the military’s top job.`\
 https://nytimes.com/2025/05/08/us/politics/joint-chiefs-chairman-dan-caine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342536/2025/05/08/florian-wirtz-transfer-latest-li
 **The Knicks Do the Improbable (Again), and New York City Loves It**\
 `Few experts gave the Knicks a chance to beat the champion Boston Celtics — except for the devoted fans who packed the street outside Madison Square Garden.`\
 https://nytimes.com/2025/05/08/nyregion/knicks-celtics-playoffs.html
-
-**FEMA’s Leader Is Dismissed**\
-`The move comes as the Trump administration has considered disbanding the agency.`\
-https://nytimes.com/2025/05/08/us/politics/fema-cameron-hamilton.html
 
