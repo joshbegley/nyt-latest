@@ -1,3 +1,7 @@
+**Rick Tocchet isn’t just another 'recycled' NHL coach — he’s what the Penguins need**\
+`Recycled coaches aren't all bad. Tocchet would be a terrific choice for the Penguins — or any other team hunting for a coach.`\
+https://nytimes.com/athletic/6342092/2025/05/08/penguins-rick-tocchet-nhl-coaching-search/
+
 **The Best Way to Drop an Egg**\
 `How the shell cracks in an exercise known as the egg drop challenge turned out to be more complicated than science teachers have been telling students for many years.`\
 https://nytimes.com/2025/05/08/science/egg-drop-challenge.html

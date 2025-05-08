@@ -1,3 +1,7 @@
+**Rick Tocchet isn’t just another 'recycled' NHL coach — he’s what the Penguins need**\
+`Recycled coaches aren't all bad. Tocchet would be a terrific choice for the Penguins — or any other team hunting for a coach.`\
+https://nytimes.com/athletic/6342092/2025/05/08/penguins-rick-tocchet-nhl-coaching-search/
+
 **The Best Way to Drop an Egg**\
 `How the shell cracks in an exercise known as the egg drop challenge turned out to be more complicated than science teachers have been telling students for many years.`\
 https://nytimes.com/2025/05/08/science/egg-drop-challenge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/us/grand-rapids-police-shooting.html
 **Denmark Outraged by Report of Increased Spying in Greenland**\
 `Officials summoned the American ambassador to express its displeasure after the Trump Administration was said be ratcheting up surveillance.`\
 https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.html
-
-**Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
-`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
-https://nytimes.com/athletic/6338729/2025/05/08/ross-chastain-nascar-talladega-move-12-questions/
 
