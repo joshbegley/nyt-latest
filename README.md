@@ -1,3 +1,11 @@
+**Oliver Oakes' Alpine resignation came after brother arrested, charged**\
+`William Oakes was stopped in the Silverstone Park area on May 2, charged a day later and then appeared at Northampton Magistrates' Court.`\
+https://nytimes.com/athletic/6342491/2025/05/08/oliver-oakes-alpine-brother/
+
+**Trump Nominates Former N.E.A. Chair to Head Embattled Arts Agency**\
+`The president nominated Mary Anne Carter to lead the National Endowment for the Arts, which his budget calls for eliminating and which has been withdrawing grants from arts groups.`\
+https://nytimes.com/2025/05/08/arts/trump-national-endowment-for-the-arts-carter.html
+
 **Who Is Robert Francis Prevost, the New Pope?**\
 `Here’s what to know about Pope Francis’ successor, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
 https://nytimes.com/2025/05/08/world/europe/who-is-robert-francis-prevost-pope-leo-xiv.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/fema-cameron-hamilton.html
 **‘Superfine’ Brings Radiant Black Style to the Met**\
 `Heritage meets gumption at the Costume Institute’s big spring exhibition, where pathbreaking pieces join anonymous garments to build a moving history.`\
 https://nytimes.com/2025/05/08/arts/design/superfine-black-style-met-costume-institute.html
-
-**5 (More) Art Fairs to Welcome Spring**\
-`With Frieze Week comes an explosion of art, from the behemoth TEFAF to Esther (the newest), and the Other, which boasts of affordability.`\
-https://nytimes.com/2025/05/08/arts/design/art-fairs-tefaf-affordable.html
-
-**Trump drops his nominee for U.S. attorney in Washington after Republicans balked.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/trump-drops-his-nominee-for-us-attorney-in-washington-after-republicans-balked
 
