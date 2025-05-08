@@ -1,3 +1,7 @@
+**Olympic silver medalist rugby player dies in road accident aged 30**\
+`His death was announced by his club, French team Castres Olympique, on Thursday afternoon.`\
+https://nytimes.com/athletic/6342008/2025/05/08/josaia-raisuqe-death-fiji-rugby/
+
 **State of the farm: How Canucks’ top prospects fit on the NHL roster next season**\
 `Which Canucks prospects are ready to break through? What can the club count on internally when planning for next season?`\
 https://nytimes.com/athletic/6341643/2025/05/08/canucks-prospects-nhl-roster-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/business/dealbook/milken-tariffs-trade-taxes.html
 **The $200 Billion Gamble: Bill Gates’s Plan to Wind Down His Foundation**\
 `In a wide-ranging interview, he explains his decision — amid the Trump administration’s assault on foreign aid — to accelerate the end of his giving.`\
 https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-closing-2045.html
-
-**What to Know About Bill Gates’s Plans to End His Foundation**\
-`The billionaire philanthropist says he will accelerate his giving — but then dissolve his organization in 20 years, decades earlier than he originally planned.`\
-https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-shutdown-takeaways.html
 
