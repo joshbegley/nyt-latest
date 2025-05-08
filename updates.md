@@ -1,3 +1,11 @@
+**Joseph Nye, Political Scientist Who Extolled ‘Soft Power,’ Dies at 88**\
+`He coined the term, arguing that a country’s global influence can’t be built on military might alone. Diplomats around the world paid heed.`\
+https://nytimes.com/2025/05/08/us/politics/joseph-nye-dead.html
+
+**Agency Moves to Fire a Judge Who Rejected a Trump Directive**\
+`Karen Ortiz wrote to 1,000 colleagues at the Equal Opportunity Employment Commission criticizing the “illegal and unethical orders of our president.”`\
+https://nytimes.com/2025/05/08/us/politics/eeoc-karen-ortiz-trump.html
+
 **Musk-Tied Investor Clashes With One of World’s Biggest Asset Managers**\
 `A lawsuit accuses Brookfield Asset Management of fraud, attempted bribery and improperly limiting investments in one of Elon Musk’s companies.`\
 https://nytimes.com/2025/05/08/business/lawsuit-brookfield-musk-raffaelli.html
