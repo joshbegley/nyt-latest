@@ -1,3 +1,7 @@
+**Not Getting Enough Sleep**\
+`Dan Caprera wants us to mind our own business. Are we going to take that from him?`\
+https://nytimes.com/2025/05/07/crosswords/daily-puzzle-2025-05-08.html
+
 **National Archives Releases More Robert F. Kennedy Files**\
 `The new batch of documents included transcripts of police interviews with Sirhan Sirhan, who was convicted of killing Mr. Kennedy.`\
 https://nytimes.com/2025/05/07/us/politics/rfk-files-released-national-archives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341235/2025/05/07/dodgers-evan-phillips-injured-li
 **Federal Judge Casts Doubt on Trump Arguments in Venezuelan Migrants Case**\
 `The judge pressed a lawyer for the Justice Department on the government’s role and responsibilities in the men’s deportation and incarceration in El Salvador.`\
 https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.html
-
-**Revisions to roster limits in House vs. NCAA propose 'grandfathering'**\
-`The revision proposes athletes who would've been cut as a result of the settlement will not count against the settlement's roster limits.`\
-https://nytimes.com/athletic/6341222/2025/05/07/house-vs-ncaa-roster-limits-revision/
 
