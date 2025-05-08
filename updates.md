@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jason Horowitz, Motoko Rich and Elizabeth Dias`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/latest-pinned
+
+**New Law Requires Priests to Break Seal of Confession to Report Child Abuse**\
+`The state law, in Washington, applies to all religions but has outraged Catholics in particular. The Justice Department is investigating.`\
+https://nytimes.com/2025/05/08/us/church-confession-law-child-abuse.html
+
 **The New Pope Grew Up in the Chicago Area**\
 `For Chicagoans, the selection of Robert Francis Prevost was thrilling and a little stunning.`\
 https://nytimes.com/2025/05/08/us/pope-leo-xiv-chicago.html
