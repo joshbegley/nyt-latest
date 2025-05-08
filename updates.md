@@ -1,3 +1,11 @@
+**U.S. and British Leaders Celebrate Agreement on Trade Framework**\
+`President Trump and Prime Minister Keir Starmer announced an agreement for a trade framework over speaker phone.`\
+https://nytimes.com/video/us/politics/100000010157215/us-british-trade-agreement-framework.html
+
+**What Students Are Saying About Using A.I. for Schoolwork**\
+`Is it a useful tool? Is it cheating? Is it hindering students’ ability to think? Here is what teenagers told us.`\
+https://nytimes.com/2025/05/08/learning/what-students-are-saying-about-using-ai-for-schoolwork.html
+
 **Intelligence Agencies Increase Focus on Greenland, U.S. Officials Say**\
 `A growing number of reports about the island have been included in information circulated in the executive branch and Congress, officials said.`\
 https://nytimes.com/2025/05/08/us/politics/trump-greenland-intelligence.html
