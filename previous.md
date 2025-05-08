@@ -1,3 +1,11 @@
+**Alexander Brothers Face More Sex Crimes, Including Against Underage Girl**\
+`Prosecutors added more charges in the sex-trafficking case against Oren and Tal Alexander, who were known as top brokers in luxury real estate, and their brother Alon Alexander.`\
+https://nytimes.com/2025/05/08/realestate/alexander-brothers-charges-sex-crimes.html
+
+**‘He Checked All the Boxes.’ Pope Leo XIV Overcame a Liability — Being American.**\
+`Before he was chosen, Robert Francis Prevost had the papal seal of approval from his predecessor, Francis, who put him in one of the top jobs in the Roman Catholic Church.`\
+https://nytimes.com/2025/05/08/world/europe/pope-leo-cardinal-prevost-obstacles.html
+
 **E.M. fights back in contentious cross-examination during Hockey Canada trial**\
 `Testy exchanges, disagreements between lawyers and E.M. highlight day of cross-examination in Hockey Canada trial.`\
 https://nytimes.com/athletic/6342283/2025/05/08/hockey-canada-sexual-assault-trial-em-cross-examination-3/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/05/08/business/brookfield-complaint.html
 **World leaders offer Pope Leo XIV wishes for peace and unity.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/world-leaders-offer-pope-leo-xiv-wishes-for-peace-and-unity
-
-**New Cowboys WR George Pickens on why things didn't work out with Steelers**\
-`"I feel great. I like the mojo here," George Pickens said Thursday. He fills a large void at receiver for the Cowboys.`\
-https://nytimes.com/athletic/6342306/2025/05/08/cowboys-george-pickens-ceedee-lamb-steelers/
-
-**New Pope Declares Church Should Receive Everyone With ‘Open Arms’**\
-`On the second day of the conclave, the Chicago-born Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church.`\
-https://nytimes.com/video/world/100000010158152/first-american-pope-robert-prevost.html
 
