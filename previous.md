@@ -1,5 +1,5 @@
 **Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
-`The two leaders, meeting in Moscow, hailed their alliance a day ahead of commemorative events to mark the end of World War II.`\
+`The two leaders, meeting in Moscow, hailed their alliance a day ahead of events to mark the 80th anniversary of the Soviet victory over Nazi Germany in World War II.`\
 https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
 
 **Beckham and Neville lead new consortium taking over Salford**\
@@ -34,7 +34,7 @@ https://nytimes.com/2025/05/08/podcasts/newark-airport-delays.html
 `With 13 points in the playoffs so far, Nylander continues to emerge in the biggest moments for Toronto.`\
 https://nytimes.com/athletic/6341398/2025/05/08/maple-leafs-william-nylander-nhl-playoffs/
 
-**A First Person View of a Deadly Gaza Strike, and a Severe U.S. Flu Season**\
+**A First-Person View of a Deadly Gaza Strike, and a Severe U.S. Flu Season**\
 `Plus, the best player in the W.N.B.A. now has her own shoe.`\
 https://nytimes.com/2025/05/08/podcasts/the-headlines/gaza-strike-us-flu-season-wnba.html
 

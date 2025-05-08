@@ -1,4 +1,12 @@
 **Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
+`The two leaders, meeting in Moscow, hailed their alliance a day ahead of events to mark the 80th anniversary of the Soviet victory over Nazi Germany in World War II.`\
+https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
+
+**A First-Person View of a Deadly Gaza Strike, and a Severe U.S. Flu Season**\
+`Plus, the best player in the W.N.B.A. now has her own shoe.`\
+https://nytimes.com/2025/05/08/podcasts/the-headlines/gaza-strike-us-flu-season-wnba.html
+
+**Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
 `The two leaders, meeting in Moscow, hailed their alliance a day ahead of commemorative events to mark the end of World War II.`\
 https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
 
