@@ -1,3 +1,7 @@
+**How India Is Trying to Squeeze Pakistan Far From the Battlefield**\
+`The nuclear-armed rivals are also wrangling over Pakistan’s access to desperately needed foreign aid, as India explores ways to use its soft power and relationships to bedevil its old enemy.`\
+https://nytimes.com/2025/05/08/business/economy/india-pakistan-soft-power-kashmir.html
+
 **Jayson Tatum needs to save Celtics from fire after another collapse against Knicks**\
 `Boston is the first team in the play-by-play era to blow two 20-point leads in the same postseason.`\
 https://nytimes.com/athletic/6341645/2025/05/08/jayson-tatum-needs-to-save-celtics-from-fire-after-another-collapse-against-knicks/
