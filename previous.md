@@ -1,40 +1,40 @@
-**Victory Day in Russian-Occupied Ukraine: A Muted Celebration**\
-`Events to mark the holiday in the occupied territories seem to be an effort to show Russian control of land it has captured.`\
-https://nytimes.com/2025/05/08/world/europe/russia-ukraine-victory-day-ww2.html
+**LeBrun: ‘So what?’ — Panthers unfazed by unfamiliar 0-2 hole against Leafs**\
+`The defending Stanley Cup champions are in foreign territory down 2-0 to Toronto in Round 2, but writing them off now would be foolish.`\
+https://nytimes.com/athletic/6341488/2025/05/08/panthers-maple-leafs-game-2-nhl-playoffs/
 
-**Why the Thunder's Game 2 dominance makes these wild playoffs even better**\
-`The Thunder hit the pause button on all the postseason script-flipping to remind everyone it’s their team who are the scariest of them all.`\
-https://nytimes.com/athletic/6341713/2025/05/08/thunder-nuggets-nba-playoffs-courtside/
+**Have these NBA playoffs really been more physical? The numbers may surprise you**\
+`My unscientific survey says players don't care as much about physicality as they do about consistency.`\
+https://nytimes.com/athletic/6338736/2025/05/08/nba-playoffs-physicality-stats-2025/
 
-**A convent asks people to spiritually adopt a voting cardinal.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-convent-asks-people-to-spiritually-adopt-a-voting-cardinal
+**2025 MLB Mock Draft 1.0: Ethan Holliday goes to Washington ... for now**\
+`An early look at who teams might be targeting in the first round, from the Nationals at No. 1 to the Guardians at No. 27.`\
+https://nytimes.com/athletic/6337620/2025/05/08/mlb-mock-draft-2025-ethan-holliday/
 
-**A Tricky Challenge for Germany’s New Government: a Far-Right Opposition**\
-`Chancellor Friedrich Merz’s coalition is weighing how to confront the Alternative for Germany party, which has been rising in the polls.`\
-https://nytimes.com/2025/05/08/world/europe/a-tricky-challenge-for-germanys-new-government-a-far-right-opposition.html
+**This Week in Sports Trivia: May 8, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6340904/2025/05/08/this-week-in-sports-trivia-may-8-2025/
 
-**Manchester United live Q&A: Carl Anka answers your questions**\
-`Whatever you want to ask, get your questions in now and I'll be with you between 1pm and 2pm BST (8am to 9am ET) to answer as many as I can.`\
-https://nytimes.com/athletic/6339868/2025/05/08/manchester-united-questions-europa/
+**The future of the Mets offense is at Coney Island: A night with the Brooklyn Cyclones**\
+`Organizational stability paved the way for better teaching process in the minors: "There are just more people speaking the same language."`\
+https://nytimes.com/athletic/6340622/2025/05/08/mets-prospects-brooklyn-cyclones-2/
 
-**The New York Times International Edition in Print for Friday, May 9, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/08/todays-new-york-times-international-edition
+**A Frightening Moment to Fly**\
+`What the problems at one of the country’s biggest airports tell us about air-travel safety in the United States.`\
+https://nytimes.com/2025/05/08/podcasts/newark-airport-delays.html
 
-**Warriors at Timberwolves Game 2 picks, odds: Can Minnesota even series with Curry out?**\
-`Game 2 of the Warriors-Wolves second-round series goes down in Minnesota, with the hosts comfortably favored on Thursday night.`\
-https://nytimes.com/athletic/6340218/2025/05/08/warriors-timberwolves-game-2-picks-odds/
+**For William Nylander, the playoffs are all that matter**\
+`With 13 points in the playoffs so far, Nylander continues to emerge in the biggest moments for Toronto.`\
+https://nytimes.com/athletic/6341398/2025/05/08/maple-leafs-william-nylander-nhl-playoffs/
 
-**Can Democrats Win the Working Class and Save the Republic?**\
-`Senator Chris Murphy on the Democrats’ “five alarm” crisis.`\
-https://nytimes.com/2025/05/08/opinion/democrats-working-class-chris-murphy.html
+**A First Person View of a Deadly Gaza Strike, and a Severe U.S. Flu Season**\
+`Plus, the best player in the W.N.B.A. now has her own shoe.`\
+https://nytimes.com/2025/05/08/podcasts/the-headlines/gaza-strike-us-flu-season-wnba.html
 
-**Israel Has a Terrible Choice to Make**\
-`There are no shortcuts in war.`\
-https://nytimes.com/2025/05/08/opinion/israel-gaza-war.html
+**Connections Companion No. 698**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 9, 2025.`\
+https://nytimes.com/2025/05/08/crosswords/connections-companion-698.html
 
-**Across America, Big Cities Are Sinking. Why?**\
-`A new analysis of America’s 28 largest population centers found that all but three are sinking overall, and in many cases significantly.`\
-https://nytimes.com/interactive/2025/05/08/climate/sinking-cities-us-causes-groundwater.html
+**Wordle Review No. 1,420**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 9, 2025.`\
+https://nytimes.com/2025/05/08/crosswords/wordle-review-1420.html
 
