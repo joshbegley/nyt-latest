@@ -1,3 +1,23 @@
+**For the Nuggets, Friday's Game 3 starts with matching the Thunder's physicality**\
+`OKC is one of the deepest, fastest and best defensive teams in the league. Denver has its work cut out for Game 3.`\
+https://nytimes.com/athletic/6341324/2025/05/08/nuggets-thunder-game-2/
+
+**Wilting Flower, Blooming Flower**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/05/08/learning/wilting-flower-blooming-flower.html
+
+**Hochul, Looking to 2026, Pushed to Weaken Oversight of Religious Schools**\
+`Changing a law that chiefly affects all-boys Hasidic Jewish schools, known as yeshivas, has been a top priority among leaders of New York’s Hasidic communities, which tend to vote as a bloc.`\
+https://nytimes.com/2025/05/08/nyregion/new-york-kathy-hochul-hasidic-schools.html
+
+**How 6 Democrats in a Consequential Governor’s Race Are Vying to Be Heard**\
+`The race for governor of New Jersey includes a large field of Democratic primary candidates competing against each other — and trying not to be drowned out by the drama in Washington.`\
+https://nytimes.com/2025/05/08/nyregion/new-jersey-democratic-candidates-for-governor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/08/crosswords/spelling-bee-forum.html
+
 **Xavi Hernandez interview: Collecting 400 shirts, watching eight games a day, wanting to coach in the Premier League**\
 `In the first of a two-part interview, Xavi Hernandez talks of his football obsession, his ambitions what he knows of Europe's best coaches`\
 https://nytimes.com/athletic/6340393/2025/05/08/xavi-hernandez-interview-premier-league/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/08/us/smokey-robinson-sexual-assault-lawyer.html
 **Late Night Anxiously Awaits the Unveiling of Trump’s Big News**\
 `“The Daily Show” host Desi Lydic said it “could be anything from ‘I’ve achieved peace in the Middle East’ to ‘I just tried bucatini, and I’m never going back to regular spaghetti.’”`\
 https://nytimes.com/2025/05/08/arts/television/late-night-trump-announcement.html
-
-**Word of the Day: unequivocal**\
-`This word has appeared in 155 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/08/learning/word-of-the-day-unequivocal.html
-
-**OpenAI Hires Instacart C.E.O. to Run Business and Operations**\
-`Sam Altman, OpenAI’s chief executive, said he hired Instacart’s Fidji Simo to join in a new role as chief executive of applications.`\
-https://nytimes.com/2025/05/08/technology/openai-fidji-simo.html
-
-**Time for Celtics to sound the alarm, though it's never over in Boston-New York Border War**\
-`If Celtics succumb to the Knicks, it will rival the Red Sox losing the '86 Series to the Mets and Pats losing Super Bowl XLII to the Giants.`\
-https://nytimes.com/athletic/6341572/2025/05/08/celtics-knicks-nba-playoffs-game-2/
-
-**A tired and incomplete squad almost took Arsenal to a Champions League final - now it's time to strengthen**\
-`Mikel Arteta needs the sort of clinical firepower that PSG can call upon — it's a gap that must be addressed this summer`\
-https://nytimes.com/athletic/6341217/2025/05/08/arsenal-champions-league-squad-rebuild-psg/
-
-**PSG are Europe's most complete team - no other side can win games in such a variety of ways**\
-`A huge part of the French team's success is their ability to beat opponents using different approaches, something others are less able to do`\
-https://nytimes.com/athletic/6341107/2025/05/08/psg-champions-league-final/
 
