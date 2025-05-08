@@ -1,3 +1,15 @@
+**The Ducks are eager to win again, but is hiring coach Joel Quenneville a good move?**\
+`In addition to the controversy around his hiring, is Quenneville the correct coach to take the Ducks back to the playoffs?`\
+https://nytimes.com/athletic/6342727/2025/05/08/joel-quenneville-ducks-coach/
+
+**Twins takeaways: Byron Buxton does it all, Bailey Ober grinds, Brooks Lee vs. fastballs**\
+`Following three big days with the bat, Buxton used his wheels and an accurate, strong arm to extend the Twins' winning streak to five. `\
+https://nytimes.com/athletic/6343317/2025/05/08/twins-orioles-byron-buxton-brooks-lee-bailey-ober/
+
+**Sue Bird welcomes next phase of career in new role at USA Basketball**\
+`The longtime WNBA star won four championships with the Seattle Storm and five Olympic gold medals. `\
+https://nytimes.com/athletic/6342714/2025/05/08/sue-bird-usa-basketball-wnba/
+
 **Trump Declares High-Speed Internet Program ‘Racist’ and ‘Unconstitutional’**\
 `President Trump denounced the Biden-era Digital Equity Act as “woke handouts based on race,” raging in a social media post against a broad effort to improve high-speed internet access.`\
 https://nytimes.com/2025/05/08/us/politics/trump-biden-digital-equity-act.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/08/us/pope-leo-xiv-politics-voting.html
 **Trump Administration Demands Records From Penn on Foreign Ties**\
 `The Education Department accused the school of filing inaccurate reports, adding to the growing list of elite schools it has targeted over foreign funding disclosures.`\
 https://nytimes.com/2025/05/08/us/politics/trump-upenn-records-foreign-funding.html
-
-**Harvard Leaders See Only Bad Outcomes Ahead as They Battle Trump**\
-`Harvard could choose to either keep fighting or seek a deal with the administration. Its leaders are starting to realize that any path will very likely change the identity of the school.`\
-https://nytimes.com/2025/05/08/us/harvard-trump-court-case-negotiation.html
-
-**49ers' Robert Saleh says he's looking 2 years ahead as he rebuilds defense**\
-`Saleh will get his first on-field look at the 49ers' large defensive rookie class at this week's rookie minicamp.`\
-https://nytimes.com/athletic/6343192/2025/05/08/robert-saleh-49ers-defense-rebuild/
-
-**Trump Names Jeanine Pirro as Interim U.S. Attorney in Washington**\
-`The Fox News personality has known the president for decades and would provide him with a reliable line into a crucial prosecutors office in the Justice Department.`\
-https://nytimes.com/2025/05/08/us/politics/jeanine-pirro-us-attorney-trump.html
 

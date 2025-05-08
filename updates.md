@@ -1,3 +1,15 @@
+**The Ducks are eager to win again, but is hiring coach Joel Quenneville a good move?**\
+`In addition to the controversy around his hiring, is Quenneville the correct coach to take the Ducks back to the playoffs?`\
+https://nytimes.com/athletic/6342727/2025/05/08/joel-quenneville-ducks-coach/
+
+**Twins takeaways: Byron Buxton does it all, Bailey Ober grinds, Brooks Lee vs. fastballs**\
+`Following three big days with the bat, Buxton used his wheels and an accurate, strong arm to extend the Twins' winning streak to five. `\
+https://nytimes.com/athletic/6343317/2025/05/08/twins-orioles-byron-buxton-brooks-lee-bailey-ober/
+
+**Sue Bird welcomes next phase of career in new role at USA Basketball**\
+`The longtime WNBA star won four championships with the Seattle Storm and five Olympic gold medals. `\
+https://nytimes.com/athletic/6342714/2025/05/08/sue-bird-usa-basketball-wnba/
+
 **Trump Declares High-Speed Internet Program ‘Racist’ and ‘Unconstitutional’**\
 `President Trump denounced the Biden-era Digital Equity Act as “woke handouts based on race,” raging in a social media post against a broad effort to improve high-speed internet access.`\
 https://nytimes.com/2025/05/08/us/politics/trump-biden-digital-equity-act.html
