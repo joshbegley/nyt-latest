@@ -11,7 +11,7 @@ https://nytimes.com/2025/05/08/world/pope-leo-xiv-timeline.html
 https://nytimes.com/2025/05/08/business/us-uk-trade-agreement-takeaways.html
 
 **An American Pope? Maybe It Wasn’t So Impossible.**\
-`By Daniel J. Wakin`\
+`Cardinal Prevost defied the odds. A number of factors point to why.`\
 https://nytimes.com/2025/05/08/opinion/american-pope-leo.html
 
 **Breaking down NFL's plan to tease 2025 schedule release**\
