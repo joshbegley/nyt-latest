@@ -1,3 +1,11 @@
+**At the Biennale in Venice, a Fantasy Island Imported from Mexico**\
+`The floating farms known as “chinampas” may have something to teach Venetians and the world.`\
+https://nytimes.com/2025/05/08/arts/design/biennale-venice-chinampas-mexico.html
+
+**Bill Gates Accuses Elon Musk of ‘Killing Children’ by Cutting Foreign Aid**\
+`The Microsoft co-founder and philanthropist condemned his fellow billionaire for overseeing deep cuts to the U.S. Agency for International Development in the Trump administration.`\
+https://nytimes.com/2025/05/08/us/bill-gates-elon-musk-killing-children.html
+
 **Crypto Bill Stalls in the Senate as Democrats Balk**\
 `Democratic supporters of the measure to regulate parts of the industry refused to allow it to move forward amid concerns in their party that President Trump and his family are profiting from cryptocurrency.`\
 https://nytimes.com/2025/05/08/us/politics/crypto-bill-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6342609/2025/05/08/nhl-utah-mammoth-red-light-stars
 **A Conclave of Sea Gulls Concludes Its Business**\
 `Perched on the roof of the Sistine Chapel, three birds were the among the first to glimpse the white smoke signaling a new pope.`\
 https://nytimes.com/2025/05/08/style/seagulls-sistine-chapel-vatican-pope-conclave.html
-
-**Ask Ornstein: Wirtz transfer latest? Liverpool and De Bruyne?**\
-`Once a week for an hour, The Athletic’s subscribers can ask our transfer expert David Ornstein his views on anything from the football world`\
-https://nytimes.com/athletic/6342536/2025/05/08/florian-wirtz-transfer-latest-liverpool-kevin-de-bruyne-manchester-united-arsenal-david-ornstein/
-
-**The Knicks Do the Improbable (Again), and New York City Loves It**\
-`Few experts gave the Knicks a chance to beat the champion Boston Celtics — except for the devoted fans who packed the street outside Madison Square Garden.`\
-https://nytimes.com/2025/05/08/nyregion/knicks-celtics-playoffs.html
 
