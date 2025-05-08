@@ -1,6 +1,10 @@
+**Why the Fed’s Waiting Game on Rate Cuts Could Extend Until September**\
+`Economists have shifted back their forecasts for lower borrowing costs as President Trump’s tariffs raised the risk of higher inflation and slower growth.`\
+https://nytimes.com/2025/05/08/business/fed-interest-rate-cuts.html
+
 **Sewage Sludge Fertilizer From Maryland? Virginians Say No Thanks.**\
 `Maryland has restricted use of the toxic fertilizer. A plan to send more to Virginia has sparked fears of contaminated farms and fisheries.`\
-https://nytimes.com/2025/05/08/climate/sewage-sludge-fertilizer-from-maryland-virginians-say-no-thanks.html
+https://nytimes.com/2025/05/08/climate/sewage-sludge-fertilizer-virginia-maryland-pfas-forever-chemicals.html
 
 **What were Arsenal the best at in the Champions League?**\
 `Arteta is rightly proud of Arsenal's Champions League run, but what does the data say about where they rank among the best performers?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342254/2025/05/08/preakness-2025-sovereignty-tripl
 **If you want to be pope, it helps not to act like it.**\
 `By Jason Horowitz and Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/if-you-want-to-be-pope-it-helps-not-to-act-like-it
-
-**Ask Ornstein Q&A: Our football insider answers your questions**\
-`Here is your weekly opportunity to ask David Ornstein anything you want about the world of football`\
-https://nytimes.com/athletic/6341856/2025/05/08/ask-ornstein-qa-our-football-insider-answers-your-questions-26/
 
