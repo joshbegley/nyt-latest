@@ -1,3 +1,11 @@
+**A fact sheet on the first American pope, Leo XIV.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-fact-sheet-on-the-first-american-pope-leo-xiv
+
+**The Pentagon’s Culture Wars Strike West Point**\
+`A Jan. 29 order from Defense Secretary Pete Hegseth led to canceled classes, book bans and an argument about American greatness.`\
+https://nytimes.com/2025/05/08/us/politics/west-point-hegseth-culture-wars.html
+
 **A Year Ago, Columbia Security Was Hands-Off at a Protest. Not This Time.**\
 `When demonstrators occupied the university’s main library on Wednesday, campus security forces intervened aggressively. The occupation ended with arrests hours later.`\
 https://nytimes.com/2025/05/08/nyregion/columbia-library-occupation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/jd-vance-pope-leo-xiv.html
 **Cavs optimistic on status of 3 injured stars for Game 3 vs. Pacers**\
 `Darius Garland, Evan Mobley and De’Andre Hunter “touched the ball” during a walk-through Thursday, but will be listed as "questionable."`\
 https://nytimes.com/athletic/6342759/2025/05/08/cavaliers-injured-stars-game-3-pacers/
-
-**You Can’t Beat Caesar Salad and Fries at the Bar**\
-`In those liminal hours between lunch and dinner, sometimes you need a pit stop for this perfect combo.`\
-https://nytimes.com/2025/05/08/dining/you-cant-beat-caesar-salad-and-fries-at-the-bar.html
-
-**Father of Girl Who Killed 2 at Wisconsin School Is Charged**\
-`Jeffrey Rupnow, whose 15-year-old daughter fatally shot a teacher and a fellow student at a Christian school in Madison in December, faces two weapons-related counts, the authorities said.`\
-https://nytimes.com/2025/05/08/us/father-of-girl-who-killed-2-at-wisconsin-school-is-charged.html
 

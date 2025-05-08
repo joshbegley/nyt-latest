@@ -1,3 +1,11 @@
+**A Year Ago, Columbia Security Was Hands-Off at a Protest. Not This Time.**\
+`When demonstrators occupied the university’s main library on Wednesday, campus security forces intervened aggressively. The occupation ended with arrests hours later.`\
+https://nytimes.com/2025/05/08/nyregion/columbia-library-occupation.html
+
+**An American Pope? Maybe It Wasn’t So Impossible.**\
+`Cardinal Prevost defied the odds. A number of factors point to why.`\
+https://nytimes.com/2025/05/08/opinion/american-pope-leo.html
+
 **An American Pope? Maybe It Wasn’t So Impossible.**\
 `By Daniel J. Wakin`\
 https://nytimes.com/2025/05/08/opinion/american-pope-leo.html
