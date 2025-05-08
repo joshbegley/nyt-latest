@@ -1,3 +1,19 @@
+**National Archives Releases More Robert F. Kennedy Files**\
+`The new batch of documents included transcripts of police interviews with Sirhan Sirhan, who was convicted of killing Mr. Kennedy.`\
+https://nytimes.com/2025/05/07/us/politics/rfk-files-released-national-archives.html
+
+**NBA playoff takeaways: Knicks edge Celtics for shocking 2-0 series lead**\
+`Game 2 looked a lot like Game 1 for New York with a 20-point deficit, a lopsided scoring run and a Mikal Bridges steal to ice the win.`\
+https://nytimes.com/athletic/6341129/2025/05/07/nba-playoff-takeaways-knicks-celtics-nuggets-thunder/
+
+**Maple Leafs defeat Panthers in Game 2, take 2-0 series lead: Takeaways**\
+`With a spirited and complete 4-3 win in Game 2, Toronto now owns a commanding series lead over the defending Stanley Cup champion Panthers.`\
+https://nytimes.com/athletic/6341016/2025/05/07/maple-leafs-panthers-nhl-playoffs-2025-game-2-takeaways/
+
+**Trump Administration to Announce Trade Deal With Britain**\
+`A deal would be a positive sign for both governments, which have eyed an agreement since President Trump’s first term.`\
+https://nytimes.com/2025/05/07/business/economy/trump-trade-britain.html
+
 **Who Is Dr. Casey Means?**\
 `Dr. Means, President Trump’s new pick for surgeon general, has focused on the prevalence of chronic diseases and called on the government to scale back on childhood vaccines.`\
 https://nytimes.com/2025/05/07/science/casey-means-trump-surgeon-general.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.ht
 **Revisions to roster limits in House vs. NCAA propose 'grandfathering'**\
 `The revision proposes athletes who would've been cut as a result of the settlement will not count against the settlement's roster limits.`\
 https://nytimes.com/athletic/6341222/2025/05/07/house-vs-ncaa-roster-limits-revision/
-
-**President Trump plans to create commission on college athletics**\
-`A presidential commission would typically dig into various aspects of an issue and deliver a report suggesting possible solutions.`\
-https://nytimes.com/athletic/6341165/2025/05/07/donald-trump-commission-on-college-athletics/
-
-**Let the gamesmanship begin: Kerr, Finch start lobbying officials 1 game into series**\
-`Finch and Kerr have both been vocal in these playoffs about the physicality the officials are allowing.`\
-https://nytimes.com/athletic/6340635/2025/05/07/steve-kerr-chris-finch-officiating-warriors-wolves/
-
-**Voice of America will receive feeds from a pro-Trump network, administration says.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/05/07/us/trump-news/voice-of-america-will-receive-feeds-from-a-pro-trump-network-administration-says
-
-**Flu Killed 25 Children in New York This Season, the Most in Many Years**\
-`Amid declining vaccination rates, the 2024-25 influenza season exacted a heavy toll, with 216 pediatric deaths nationwide.`\
-https://nytimes.com/2025/05/07/nyregion/flu-children-died.html
 
