@@ -1,3 +1,19 @@
+**The New York Times in Print for Thursday, May 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/08/todays-new-york-times
+
+**Thursday Briefing**\
+`Tensions between India and Pakistan.`\
+https://nytimes.com/2025/05/08/briefing/india-pakistan-conclave-trade-deal.html
+
+**Devin Williams steps up in wild, 10-inning walk-off win: Yankees takeaways**\
+`Williams helped the Yankees win a ballgame, and he hasn't had many opportunities to say he's done that through the first month.`\
+https://nytimes.com/athletic/6341478/2025/05/08/yankees-takeaways-devin-williams-walk-off-win/
+
+**These Leafs finally look like they know what it takes to win in the postseason**\
+`The Leafs' performance in Game 2 earned praise from the one player who knows best what it's like to play against them.`\
+https://nytimes.com/athletic/6341481/2025/05/08/maple-leafs-nhl-playoffs-marchand-berube/
+
 **Video games, bullying and friendship: Knicks' Mikal Bridges has mastered adversity**\
 `Bridges continues to show his mental toughness, and it has led to the Knicks being up 2-0 over Boston.`\
 https://nytimes.com/athletic/6341369/2025/05/08/knicks-celtics-mikal-bridges-adversity/
