@@ -1,3 +1,11 @@
+**Intelligence Agencies Increase Focus on Greenland, U.S. Officials Say**\
+`A growing number of reports about the island have been included in information circulated in the executive branch and Congress, officials said.`\
+https://nytimes.com/2025/05/08/us/politics/trump-greenland-intelligence.html
+
+**Spring/Break May Be a Little Older, but It Still Parties On**\
+`The show that started as a messy upstart sibling to the traditional fairs has grown up a bit, though it’s still packed with zany charms.`\
+https://nytimes.com/2025/05/08/arts/design/spring-break-art-fair-review.html
+
 **Preakness gets squeezed again with Sovereignty forgoing Triple Crown**\
 `Competing for your sport's highest achievement shouldn't be a question, but for horse racing's Triple Crown, it's not that simple. `\
 https://nytimes.com/athletic/6342254/2025/05/08/preakness-2025-sovereignty-triple-crown/

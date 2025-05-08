@@ -1,3 +1,11 @@
+**Intelligence Agencies Increase Focus on Greenland, U.S. Officials Say**\
+`A growing number of reports about the island have been included in information circulated in the executive branch and Congress, officials said.`\
+https://nytimes.com/2025/05/08/us/politics/trump-greenland-intelligence.html
+
+**Spring/Break May Be a Little Older, but It Still Parties On**\
+`The show that started as a messy upstart sibling to the traditional fairs has grown up a bit, though it’s still packed with zany charms.`\
+https://nytimes.com/2025/05/08/arts/design/spring-break-art-fair-review.html
+
 **Preakness gets squeezed again with Sovereignty forgoing Triple Crown**\
 `Competing for your sport's highest achievement shouldn't be a question, but for horse racing's Triple Crown, it's not that simple. `\
 https://nytimes.com/athletic/6342254/2025/05/08/preakness-2025-sovereignty-triple-crown/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/republicans-medicaid-budget-dilemma.h
 **Out of college eligibility, 100-plus basketball players entered the transfer portal anyway**\
 `Some players in the portal are appealing to or suing the NCAA for more eligibility. Others are hoping the NCAA grants a fifth year for all.`\
 https://nytimes.com/athletic/6338236/2025/05/08/mens-college-basketball-eligibility-transfer-portal/
-
-**FIFA meeting moved due to Infantino, Trump's Middle East trip**\
-`The meeting had been set to be in person but is due to be held via videoconference as Trump and Infantino visit Qatar and Saudi Arabia.`\
-https://nytimes.com/athletic/6341928/2025/05/08/fifa-council-meeting-trump-infantino/
-
-**Rick Tocchet isn’t just another 'recycled' NHL coach — he’s what the Penguins need**\
-`Recycled coaches aren't all bad. Tocchet would be a terrific choice for the Penguins — or any other team hunting for a coach.`\
-https://nytimes.com/athletic/6342092/2025/05/08/penguins-rick-tocchet-nhl-coaching-search/
 
