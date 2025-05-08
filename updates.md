@@ -1,3 +1,19 @@
+**Tielemans could miss rest of Villa's season with injury**\
+`The 28-year-old is yet to miss a Premier League game in 2024-25.`\
+https://nytimes.com/athletic/6341854/2025/05/08/tielemans-injury-aston-villa/
+
+**Republicans Writing Trump’s ‘Big, Beautiful Bill’ Face Risks on Medicaid**\
+`Representatives from swing districts face tough votes as soon as next week, when key House panels are scheduled to consider legislation that would cut popular programs to pay for President Trump’s agenda.`\
+https://nytimes.com/2025/05/08/us/politics/republicans-medicaid-budget-dilemma.html
+
+**Out of college eligibility, 100-plus basketball players entered the transfer portal anyway**\
+`Some players in the portal are appealing to or suing the NCAA for more eligibility. Others are hoping the NCAA grants a fifth year for all.`\
+https://nytimes.com/athletic/6338236/2025/05/08/mens-college-basketball-eligibility-transfer-portal/
+
+**FIFA meeting moved due to Infantino, Trump's Middle East trip**\
+`The meeting had been set to be in person but is due to be held via videoconference as Trump and Infantino visit Qatar and Saudi Arabia.`\
+https://nytimes.com/athletic/6341928/2025/05/08/fifa-council-meeting-trump-infantino/
+
 **Rick Tocchet isn’t just another 'recycled' NHL coach — he’s what the Penguins need**\
 `Recycled coaches aren't all bad. Tocchet would be a terrific choice for the Penguins — or any other team hunting for a coach.`\
 https://nytimes.com/athletic/6342092/2025/05/08/penguins-rick-tocchet-nhl-coaching-search/
