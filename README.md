@@ -1,3 +1,7 @@
+**Musk-Tied Investor Clashes With One of World’s Biggest Asset Managers**\
+`A lawsuit accuses Brookfield Asset Management of fraud, attempted bribery and improperly limiting investments in one of Elon Musk’s companies.`\
+https://nytimes.com/2025/05/08/business/lawsuit-brookfield-musk-raffaelli.html
+
 **An American Was Elected Pope**\
 `Also, Trump announced a trade deal with Britain. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/08/briefing/american-pope-trump-trade-deal-britain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6339284/2025/05/08/man-utd-4-athletic-club-1-mason-
 **Transportation Secretary Unveils Plan to Overhaul of Aging Air-Traffic Systems**\
 `Officials promised to replace derelict equipment with state-of-the-art technology but said funding was dependent on Congress.`\
 https://nytimes.com/2025/05/08/us/politics/sean-duffy-air-traffic-control.html
-
-**Friday Briefing: The First American Pope**\
-`Plus, Tate Modern turns 25.`\
-https://nytimes.com/2025/05/08/briefing/american-pope-prevost-us-uk-trade-india-pakistan-conflict.html
 
