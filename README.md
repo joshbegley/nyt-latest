@@ -1,3 +1,7 @@
+**Cubs set to call up top pitching prospect Cade Horton: Source**\
+`At No. 7, Horton became the first pitcher the Cubs drafted with a top-10 pick since Mark Prior in 2001.`\
+https://nytimes.com/athletic/6343108/2025/05/08/chicago-cubs-cade-horton-call-up/
+
 **Joseph Nye, Political Scientist Who Extolled ‘Soft Power,’ Dies at 88**\
 `He coined the term, arguing that a country’s global influence can’t be built on military might alone. Diplomats around the world paid heed.`\
 https://nytimes.com/2025/05/08/us/politics/joseph-nye-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010158152/first-american-pope-robert-prevo
 **What we can learn from Manchester United and Tottenham's three previous games this season**\
 `Analysing every meeting between the teams in this campaign for any clues ahead of their showdown in Bilbao on May 21`\
 https://nytimes.com/athletic/6342448/2025/05/08/man-united-tottenham-europa-league-final/
-
-**Trump Revives Push for Higher Taxes on the Rich**\
-`The president is said to want to create a new top income bracket for people making more than $2.5 million per year and to tax income above that level at a rate of 39.6 percent.`\
-https://nytimes.com/2025/05/08/us/politics/trump-new-tax-bracket.html
 
