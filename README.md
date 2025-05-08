@@ -1,5 +1,13 @@
+**Transportation Secretary Unveils Plan to Overhaul of Aging Air-Traffic Systems**\
+`Officials promised to replace derelict equipment with state-of-the-art technology but said funding was dependent on Congress.`\
+https://nytimes.com/2025/05/08/us/politics/sean-duffy-air-traffic-control.html
+
+**Friday Briefing: The First American Pope**\
+`Plus, Tate Modern turns 25.`\
+https://nytimes.com/2025/05/08/briefing/american-pope-prevost-us-uk-trade-india-pakistan-conflict.html
+
 **The Briefing: Bodo/Glimt 0 Spurs 2 (1-5 agg) - How Postecoglou masterminded a famous win**\
-`Analysing the big talking points from the Europa League semi-final second leg decider in Norway`\
+`Analysing the big talking points from the Europa League semi-final second-leg decider in Norway`\
 https://nytimes.com/athletic/6339283/2025/05/08/bodo-glimt-tottenham-europa-league-result-analysis/
 
 **Chelsea 1 Djurgarden 0 (5-1 agg) - Walsh's highlights; importance for Maresca? Play youth in final?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/nyregion/columbia-library-occupation.html
 **A Path to Papacy: Leo XIV Over the Years**\
 `Cardinal Robert Francis Prevost was born in Chicago and gradually rose through the ranks of the Roman Catholic Church.`\
 https://nytimes.com/2025/05/08/world/pope-leo-xiv-timeline.html
-
-**5 Takeaways From the U.S.-U.K. Trade Agreement**\
-`The deal still has to be finalized, but it was hailed as a success by both countries for being the first since President Trump announced broad tariffs in April.`\
-https://nytimes.com/2025/05/08/business/us-uk-trade-agreement-takeaways.html
-
-**An American Pope? Maybe It Wasn’t So Impossible.**\
-`Cardinal Prevost defied the odds. A number of factors point to why.`\
-https://nytimes.com/2025/05/08/opinion/american-pope-leo.html
 
