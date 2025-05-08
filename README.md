@@ -1,3 +1,7 @@
+**What TV Show, Movie or Book Would You Rewrite the Ending To?**\
+`Fans are writing “fix-its” in an attempt to right perceived wrongs in beloved works. How might you retell a story you were disappointed by?`\
+https://nytimes.com/2025/05/08/learning/what-tv-show-movie-or-book-would-you-rewrite-the-ending-to.html
+
 **After black smoke at noon, the crowd in St. Peter’s hopes for white smoke at night.**\
 `By Patricia Mazzei and Motoko Rich`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/after-black-smoke-at-noon-the-crowd-in-st-peters-hopes-for-white-smoke-at-night
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6340088/2025/05/08/usmnt-pulisic-robinson-pochettin
 **Connor Brown bringing 'big-time fire' at right time for Oilers in the playoffs**\
 `With four goals and 6 points in seven games, Brown once again has taken his game to another level in the playoffs.`\
 https://nytimes.com/athletic/6340935/2025/05/08/oilers-connor-brown-nhl-playoffs/
-
-**Is home-court advantage still a factor in the NBA playoffs? Recent history says no**\
-`This spring, NBA teams are just 26-24 at home in the playoffs.`\
-https://nytimes.com/athletic/6340311/2025/05/08/nba-playoffs-home-court-advantage/
 
