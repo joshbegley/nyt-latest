@@ -1,3 +1,7 @@
+**A Tricky Challenge for Germany’s New Government: a Far-Right Opposition**\
+`Chancellor Friedrich Merz’s coalition is weighing how to confront the Alternative for Germany party, which has been rising in the polls.`\
+https://nytimes.com/2025/05/08/world/europe/a-tricky-challenge-for-germanys-new-government-a-far-right-opposition.html
+
 **Manchester United live Q&A: Carl Anka answers your questions**\
 `Whatever you want to ask, get your questions in now and I'll be with you between 1pm and 2pm BST (8am to 9am ET) to answer as many as I can.`\
 https://nytimes.com/athletic/6339868/2025/05/08/manchester-united-questions-europa/
