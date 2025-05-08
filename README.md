@@ -1,3 +1,19 @@
+**Fantasy baseball bullpen report features concerns for Ryan Pressly and Carlos Estévez**\
+`Greg Jewett shines a spotlight on all the notable developments across MLB bullpens, including Ryan Pressly's concerning strikeout rate.`\
+https://nytimes.com/athletic/6342350/2025/05/08/fantasy-baseball-bullpen-report-closer-concern-pressly-estevez/
+
+**With Kemp Skipping Georgia Senate Race, Ossoff Gets a First G.O.P. Challenger**\
+`Representative Buddy Carter became the first Republican to enter the primary field to take on Senator Jon Ossoff of Georgia, one of the nation’s most vulnerable Democrats.`\
+https://nytimes.com/2025/05/08/us/politics/georgia-senate-republican-buddy-carter.html
+
+**What’s in a (pope’s) name?**\
+`When selecting a name, popes often look to history and make a choice imbued with personal meaning. The decision can also signal the direction a pontificate might take.`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/new-pope-name
+
+**Biden Defends His Mental Acuity and Blames Sexism for Harris’s Defeat**\
+`On ABC’s “The View,” the former president dismissed reports that he had declined while in office and said he had not been surprised that Kamala Harris lost the election, citing the role of sexism.`\
+https://nytimes.com/2025/05/08/us/politics/biden-harris-the-view-trump.html
+
 ****\
 ``\
 https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano
@@ -6,7 +22,7 @@ https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano
 `Readers discuss ways to counter President Trump. Also: An unyielding Harvard; a Supreme Court ruling on transgender troops; the Zen of A.I.`\
 https://nytimes.com/2025/05/08/opinion/trump-democracy.html
 
-**Injured Pirates fan Kavan Markwood still hospitalized, has 'a lot of back pain'**\
+**Pirates fan remains hospitalized, has ‘a lot of back pain’ after fall**\
 `Markwood said he has not watched any videos of his fall over the Clemente Wall at PNC Park.`\
 https://nytimes.com/athletic/6342415/2025/05/08/kavan-markwood-injury-pirates-cubs-update/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6342434/2025/05/08/anthony-stolarz-maple-leafs-pant
 **A Kentucky Boy Mistakenly Orders Almost 70,000 Lollipops**\
 `Holly LaFavers said she was eventually refunded $4,200 for her 8-year-old son’s order of Dum-Dums candy.`\
 https://nytimes.com/2025/05/08/business/dum-dums-amazon-order-kentucky.html
-
-**Trump Withdraws U.S. Attorney Nominee, Whose Extremism Tested Limits for G.O.P. Senators**\
-`The means of Ed Martin’s ascent as the leading prosecutor for the U.S. attorney’s office in Washington was his path out of power.`\
-https://nytimes.com/2025/05/08/us/politics/ed-martin-justice-department-republicans.html
-
-**White Smoke Signals a Pope Has Been Chosen. What Happens Next?**\
-`A successor to Pope Francis had been elected. But there will be a short wait before his identity becomes clear.`\
-https://nytimes.com/2025/05/08/world/europe/white-smoke-new-pope-what-next.html
-
-**Older cardinals can’t vote in the conclave, but they have thoughts on the proceedings.**\
-`By Emma Bubola`\
-https://nytimes.com/2025/05/08/world/europe/older-cardinals-cant-vote-in-the-conclave-but-they-have-thoughts-on-the-proceedings.html
-
-**Hope and Anxiety Share the Stage as Finance Titans Converge on L.A.**\
-`At the Milken Institute conference, a who’s who of finance and corporate America, there was a mix of emotions about financial markets and the economy.`\
-https://nytimes.com/2025/05/08/business/milken-tariffs-economy.html
 
