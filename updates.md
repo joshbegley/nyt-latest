@@ -1,3 +1,7 @@
+**Robbie Ray continues his strong start as Giants win series over the Cubs**\
+`Ray moved to 5-0 on the season and the Giants are 8-0 in his starts. It's the longest team winning streak for a Giants starter since 1992.`\
+https://nytimes.com/athletic/6340528/2025/05/07/sf-giants-robbie-ray-cubs-series/
+
 **Man Is Charged With Federal Hate Crimes in Assaults on Jewish Protesters**\
 `Tarek Bazrouk, 20, on three occasions kicked and punched Jewish protesters who were wearing religious attire or carrying Israeli flags at demonstrations in Manhattan, prosecutors said.`\
 https://nytimes.com/2025/05/07/nyregion/nyc-protests-hate-crime-charge-bazrouk.html
