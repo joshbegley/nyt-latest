@@ -1,3 +1,7 @@
+**Jadeveon Clowney says he has 'more in the tank' after Panthers release him**\
+`“I’m definitely gonna play well," Jadeveon Clowney said Thursday. The Panthers drafted two edge rushers on Day 2 of the NFL Draft.`\
+https://nytimes.com/athletic/6342530/2025/05/08/panthers-release-jadeveon-clowney/
+
 **A fact sheet on the first American pope, Leo XIV.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-fact-sheet-on-the-first-american-pope-leo-xiv
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/nyregion/harvey-weinstein-kaja-sokola-testimony.h
 **‘JD Vance Is Wrong’: The Pope Appears Uneasy With Trump Immigration Policies**\
 `Before Cardinal Robert Francis Prevost became pope, a social media account under his name shared criticisms of the Trump administration’s positions on immigration.`\
 https://nytimes.com/2025/05/08/us/politics/jd-vance-pope-leo-xiv.html
-
-**Cavs optimistic on status of 3 injured stars for Game 3 vs. Pacers**\
-`Darius Garland, Evan Mobley and De’Andre Hunter “touched the ball” during a walk-through Thursday, but will be listed as "questionable."`\
-https://nytimes.com/athletic/6342759/2025/05/08/cavaliers-injured-stars-game-3-pacers/
 
