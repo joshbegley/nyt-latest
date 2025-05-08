@@ -1,3 +1,11 @@
+**Late Night Anxiously Awaits the Unveiling of Trump’s Big News**\
+`“The Daily Show” host Desi Lydic said it “could be anything from ‘I’ve achieved peace in the Middle East’ to ‘I just tried bucatini, and I’m never going back to regular spaghetti.’”`\
+https://nytimes.com/2025/05/08/arts/television/late-night-trump-announcement.html
+
+**Word of the Day: unequivocal**\
+`This word has appeared in 155 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/08/learning/word-of-the-day-unequivocal.html
+
 **OpenAI Hires Instacart C.E.O. to Run Business and Operations**\
 `Sam Altman, OpenAI’s chief executive, said he hired Instacart’s Fidji Simo to join in a new role as chief executive of applications.`\
 https://nytimes.com/2025/05/08/technology/openai-fidji-simo.html
