@@ -1,3 +1,11 @@
+**Pope Leo XIV Has Voted Often in Illinois, Public Records Show**\
+`He voted in November’s presidential election with an absentee ballot, according to records from a suburban Chicago county.`\
+https://nytimes.com/2025/05/08/us/pope-leo-xiv-politics-voting.html
+
+**Trump Administration Demands Records From Penn on Foreign Ties**\
+`The Education Department accused the school of filing inaccurate reports, adding to the growing list of elite schools it has targeted over foreign funding disclosures.`\
+https://nytimes.com/2025/05/08/us/politics/trump-upenn-records-foreign-funding.html
+
 **Harvard Leaders See Only Bad Outcomes Ahead as They Battle Trump**\
 `Harvard could choose to either keep fighting or seek a deal with the administration. Its leaders are starting to realize that any path will very likely change the identity of the school.`\
 https://nytimes.com/2025/05/08/us/harvard-trump-court-case-negotiation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/world/europe/pope-leo-cardinal-prevost-obstacles.
 **E.M. fights back in contentious cross-examination during Hockey Canada trial**\
 `Testy exchanges, disagreements between lawyers and E.M. highlight day of cross-examination in Hockey Canada trial.`\
 https://nytimes.com/athletic/6342283/2025/05/08/hockey-canada-sexual-assault-trial-em-cross-examination-3/
-
-**Cubs set to call up top pitching prospect Cade Horton: Source**\
-`At No. 7, Horton became the first pitcher the Cubs drafted with a top-10 pick since Mark Prior in 2001.`\
-https://nytimes.com/athletic/6343108/2025/05/08/chicago-cubs-cade-horton-call-up/
-
-**Joseph Nye, Political Scientist Who Extolled ‘Soft Power,’ Dies at 88**\
-`He coined the term, arguing that a country’s global influence can’t be built on military might alone. Diplomats around the world paid heed.`\
-https://nytimes.com/2025/05/08/us/politics/joseph-nye-dead.html
 
