@@ -1,3 +1,15 @@
+**Overnight Clashes Strain a Diplomatic Push Between India and Pakistan**\
+`The United States and other regional players converged to try to head off war between the neighboring nuclear powers. But more clashes seemed to keep hostilities roiling.`\
+https://nytimes.com/2025/05/08/world/asia/india-pakistan-diplomacy-kashmir.html
+
+**Mirtle: 5 reasons the Leafs have the defending Stanley Cup champions on the ropes**\
+`The Leafs haven't had a playoffs run this promising in a long, long time. Let's break down a great start to Round 2.`\
+https://nytimes.com/athletic/6341435/2025/05/08/maple-leafs-panthers-nhl-playoffs-series-lead/
+
+**The Pulse: Are the defending champs cooked?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6340455/2025/05/08/celtics-panthers-nba-nhl-playoffs-the-pulse/
+
 **Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
 `The two leaders, meeting in Moscow, hailed their alliance a day ahead of events to mark the 80th anniversary of the Soviet victory over Nazi Germany in World War II.`\
 https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
