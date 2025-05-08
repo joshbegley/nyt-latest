@@ -1,3 +1,15 @@
+**The $200 Billion Gamble: Bill Gates’s Plan to Wind Down His Foundation**\
+`In a wide-ranging interview, he explains his decision — amid the Trump administration’s assault on foreign aid — to accelerate the end of his giving.`\
+https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-closing-2045.html
+
+**What to Know About Bill Gates’s Plans to End His Foundation**\
+`The billionaire philanthropist says he will accelerate his giving — but then dissolve his organization in 20 years, decades earlier than he originally planned.`\
+https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-shutdown-takeaways.html
+
+**E.U. Unveils a Plan to Hit Back at the U.S. if Negotiations Fail**\
+`European officials are working on lists of retaliatory tariffs and planning a World Trade Organization case to put pressure on America to do a trade deal.`\
+https://nytimes.com/2025/05/08/world/europe/eu-retaliatory-tariffs-trump-us.html
+
 **Mississippi Man Is Charged With Stalking Jennifer Aniston**\
 `Prosecutors said that Jimmy Wayne Carwyle, 48, drove through the front gate of Ms. Aniston’s home on Monday after stalking her for nearly two years.`\
 https://nytimes.com/2025/05/08/us/jennifer-aniston-stalker-charged-bel-air-house.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6340771/2025/05/08/nhl-draft-2025-mailbag-wheeler-l
 **49ers rookie Marques Sigle eager for a new audience to get to know his name**\
 `Sigle, San Francisco's fifth-round pick, turned heads when he ran the fastest 40-yard dash for a safety at this year's NFL Scouting Combine.`\
 https://nytimes.com/athletic/6340951/2025/05/08/49ers-rookie-marques-sigle-nfl-draft-2025/
-
-**Why did concussion spotters miss Anthony Stolarz's head injury in Game 1?**\
-`Stolarz wasn't pulled from the game after a puck to the mask or a controversial forearm to the head in Game 1.`\
-https://nytimes.com/athletic/6340344/2025/05/08/maple-leafs-stolarz-concussion-spotters-nhl-playoffs/
-
-**What TV Show, Movie or Book Would You Rewrite the Ending To?**\
-`Fans are writing “fix-its” in an attempt to right perceived wrongs in beloved works. How might you retell a story you were disappointed by?`\
-https://nytimes.com/2025/05/08/learning/what-tv-show-movie-or-book-would-you-rewrite-the-ending-to.html
-
-**After black smoke at noon, the crowd in St. Peter’s hopes for white smoke at night.**\
-`By Patricia Mazzei and Motoko Rich`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/after-black-smoke-at-noon-the-crowd-in-st-peters-hopes-for-white-smoke-at-night
 

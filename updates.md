@@ -1,3 +1,15 @@
+**The $200 Billion Gamble: Bill Gates’s Plan to Wind Down His Foundation**\
+`In a wide-ranging interview, he explains his decision — amid the Trump administration’s assault on foreign aid — to accelerate the end of his giving.`\
+https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-closing-2045.html
+
+**What to Know About Bill Gates’s Plans to End His Foundation**\
+`The billionaire philanthropist says he will accelerate his giving — but then dissolve his organization in 20 years, decades earlier than he originally planned.`\
+https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-shutdown-takeaways.html
+
+**E.U. Unveils a Plan to Hit Back at the U.S. if Negotiations Fail**\
+`European officials are working on lists of retaliatory tariffs and planning a World Trade Organization case to put pressure on America to do a trade deal.`\
+https://nytimes.com/2025/05/08/world/europe/eu-retaliatory-tariffs-trump-us.html
+
 **Mississippi Man Is Charged With Stalking Jennifer Aniston**\
 `Prosecutors said that Jimmy Wayne Carwyle, 48, drove through the front gate of Ms. Aniston’s home on Monday after stalking her for nearly two years.`\
 https://nytimes.com/2025/05/08/us/jennifer-aniston-stalker-charged-bel-air-house.html
