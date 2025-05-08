@@ -1,3 +1,11 @@
+**Interest in the ‘Conclave’ movie has soared. How accurate is it?**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/conclave-movie-new-pope-vote
+
+**Fear of Tariffs, and Hopes for a Reprieve, at C.E.O. Conference**\
+`At the annual Milken Institute Global Conference, the anxious talk was about tariffs and hopes for trade agreements and de-escalation.`\
+https://nytimes.com/2025/05/08/business/dealbook/milken-tariffs-trade-taxes.html
+
 **The $200 Billion Gamble: Bill Gates’s Plan to Wind Down His Foundation**\
 `In a wide-ranging interview, he explains his decision — amid the Trump administration’s assault on foreign aid — to accelerate the end of his giving.`\
 https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-closing-2045.html

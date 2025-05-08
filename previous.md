@@ -1,3 +1,11 @@
+**Interest in the ‘Conclave’ movie has soared. How accurate is it?**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/conclave-movie-new-pope-vote
+
+**Fear of Tariffs, and Hopes for a Reprieve, at C.E.O. Conference**\
+`At the annual Milken Institute Global Conference, the anxious talk was about tariffs and hopes for trade agreements and de-escalation.`\
+https://nytimes.com/2025/05/08/business/dealbook/milken-tariffs-trade-taxes.html
+
 **The $200 Billion Gamble: Bill Gates’s Plan to Wind Down His Foundation**\
 `In a wide-ranging interview, he explains his decision — amid the Trump administration’s assault on foreign aid — to accelerate the end of his giving.`\
 https://nytimes.com/2025/05/08/magazine/bill-gates-foundation-closing-2045.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6339829/2025/05/08/blues-nhl-playoffs-retool-brayde
 **Jordy Bahl's Nebraska homecoming has been 'incredible' — now it's time for a postseason run**\
 `Bahl is on track to become the first player since 2017 to score more runs than she’s allowed while pitching 130 innings or more.`\
 https://nytimes.com/athletic/6340706/2025/05/08/jordy-bahl-nebraska-softball-big-ten-tournament/
-
-**Submit your questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
-`The Athletic’s Scott Wheeler released a new 2025 NHL Draft ranking on Monday and his first 2025 mock draft on Thursday. Have a draft, prospects or scouting question for him? Submit them below for his upcoming mailbag.`\
-https://nytimes.com/athletic/6340771/2025/05/08/nhl-draft-2025-mailbag-wheeler-lottery/
-
-**49ers rookie Marques Sigle eager for a new audience to get to know his name**\
-`Sigle, San Francisco's fifth-round pick, turned heads when he ran the fastest 40-yard dash for a safety at this year's NFL Scouting Combine.`\
-https://nytimes.com/athletic/6340951/2025/05/08/49ers-rookie-marques-sigle-nfl-draft-2025/
 
