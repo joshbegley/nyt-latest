@@ -1,3 +1,7 @@
+**Cubs set to call up top pitching prospect Cade Horton: Source**\
+`At No. 7, Horton became the first pitcher the Cubs drafted with a top-10 pick since Mark Prior in 2001.`\
+https://nytimes.com/athletic/6343108/2025/05/08/chicago-cubs-cade-horton-call-up/
+
 **Joseph Nye, Political Scientist Who Extolled ‘Soft Power,’ Dies at 88**\
 `He coined the term, arguing that a country’s global influence can’t be built on military might alone. Diplomats around the world paid heed.`\
 https://nytimes.com/2025/05/08/us/politics/joseph-nye-dead.html
