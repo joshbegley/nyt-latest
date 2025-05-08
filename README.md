@@ -1,3 +1,7 @@
+**Here’s what happened on Wednesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/07/us/trump-news/heres-what-happened-on-wednesday
+
 **Not Getting Enough Sleep**\
 `Dan Caprera wants us to mind our own business. Are we going to take that from him?`\
 https://nytimes.com/2025/05/07/crosswords/daily-puzzle-2025-05-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/us/politics/supreme-court-roberts-judicial-indepe
 **Dodgers place Evan Phillips on injured list as their bullpen usage continues to spike**\
 `Bullpen innings have been racking up for the Dodgers and now their relief corps has taken another blow.`\
 https://nytimes.com/athletic/6341235/2025/05/07/dodgers-evan-phillips-injured-list-bullpen-usage/
-
-**Federal Judge Casts Doubt on Trump Arguments in Venezuelan Migrants Case**\
-`The judge pressed a lawyer for the Justice Department on the government’s role and responsibilities in the men’s deportation and incarceration in El Salvador.`\
-https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.html
 
