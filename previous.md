@@ -1,3 +1,23 @@
+**Protecting Your Loved Ones Even After You’re Gone**\
+`Meet three women – all very much alive – who’ve pre-planned their funerals to insulate their families from financial hardship.`\
+https://nytimes.com/paidpost/dignity-memorial-ca/ca/protecting-your-loved-ones-even-after-youre-gone.html
+
+**Texans’ Jayden Higgins makes history with deal: What he'll bring to Houston**\
+`Receiver is set to make just over $11.7 million in his four-year deal.`\
+https://nytimes.com/athletic/6343263/2025/05/08/texans-jayden-higgins-guaranteed-contract/
+
+**Can a Photograph Reveal Your Biological Age?**\
+`Scientists have developed an A.I. tool that they say can help assess a patient’s health — and potentially guide their medical care.`\
+https://nytimes.com/2025/05/08/well/biological-age-faceage.html
+
+**New Pope Has Creole Roots in New Orleans, Genealogist Says**\
+`Robert Prevost’s maternal grandparents were married near the French Quarter and later moved to Chicago, where his mother was born, records show.`\
+https://nytimes.com/2025/05/08/us/pope-leo-creole-new-orleans.html
+
+**An Urgent Question for the Pope: Cubs or Sox?**\
+`Fans from both teams seemed to claim him as their own, but his brother had the final answer.`\
+https://nytimes.com/2025/05/08/world/europe/pope-chicago-cubs-white-sox.html
+
 **The Ducks are eager to win again, but is hiring coach Joel Quenneville a good move?**\
 `In addition to the controversy around his hiring, is Quenneville the correct coach to take the Ducks back to the playoffs?`\
 https://nytimes.com/athletic/6342727/2025/05/08/joel-quenneville-ducks-coach/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/trump-biden-digital-equity-act.html
 **The New Pope Might Be Something Like the Old Pope**\
 `The conservative ire that has roiled Catholicism during the previous pontificate is likely to continue with this first American pope.`\
 https://nytimes.com/2025/05/08/opinion/conclave-pope-leo-xiv-catholic-church.html
-
-**Google YouTube favored to stream exclusive NFL game for first time: Sources**\
-`The announcement is likely to come next week as NFL continues to increase its relationships with digital partners.`\
-https://nytimes.com/athletic/6343331/2025/05/08/nfl-streaming-google-youtube-partnership-2025/
-
-**‘Nonnas’ Review: Oversauced**\
-`Vince Vaughn plays a restaurant owner who hires Italian grandmothers to cook for him in this corn-filled gabagool.`\
-https://nytimes.com/2025/05/08/movies/nonnas-review-oversauced.html
-
-**Rafael Devers upset by request he move to first base**\
-`With eight more years left on his 10-year, $313.5 million contract extension, Devers and the Red Sox seem to be at a crossroads.`\
-https://nytimes.com/athletic/6343319/2025/05/08/red-sox-rafael-devers-first-base-reaction/
-
-**Pope Leo XIV Has Voted Often in Illinois, Public Records Show**\
-`He voted in November’s presidential election with an absentee ballot, according to records from a suburban Chicago county.`\
-https://nytimes.com/2025/05/08/us/pope-leo-xiv-politics-voting.html
-
-**Trump Administration Demands Records From Penn on Foreign Ties**\
-`The Education Department accused the school of filing inaccurate reports, adding to the growing list of elite schools it has targeted over foreign funding disclosures.`\
-https://nytimes.com/2025/05/08/us/politics/trump-upenn-records-foreign-funding.html
 
