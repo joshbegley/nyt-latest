@@ -1,3 +1,7 @@
+**Not Getting Enough Sleep**\
+`Dan Caprera wants us to mind our own business. Are we going to take that from him?`\
+https://nytimes.com/2025/05/07/crosswords/daily-puzzle-2025-05-08.html
+
 **National Archives Releases More Robert F. Kennedy Files**\
 `The new batch of documents included transcripts of police interviews with Sirhan Sirhan, who was convicted of killing Mr. Kennedy.`\
 https://nytimes.com/2025/05/07/us/politics/rfk-files-released-national-archives.html
