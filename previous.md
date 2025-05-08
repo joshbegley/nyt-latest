@@ -1,3 +1,11 @@
+**For Embattled Starmer, U.S.-U.K. Trade Deal Will Count as a Win**\
+`Prime Minister Keir Starmer has spent months nurturing his relationship with President Trump. Is that about to pay off?`\
+https://nytimes.com/2025/05/08/world/europe/starmer-us-uk-trade-deal.html
+
+**Crowds begin to gather in St. Peter’s Square.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/crowds-begin-to-gather-in-st-peters-square
+
 **How India Is Trying to Squeeze Pakistan Far From the Battlefield**\
 `The nuclear-armed rivals are also wrangling over Pakistan’s access to desperately needed foreign aid, as India explores ways to use its soft power and relationships to bedevil its old enemy.`\
 https://nytimes.com/2025/05/08/business/economy/india-pakistan-soft-power-kashmir.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/crosswords/spelling-bee-forum.html
 **Xavi Hernandez interview: Collecting 400 shirts, watching eight games a day, wanting to coach in the Premier League**\
 `In the first of a two-part interview, Xavi Hernandez talks of his football obsession, his ambitions what he knows of Europe's best coaches`\
 https://nytimes.com/athletic/6340393/2025/05/08/xavi-hernandez-interview-premier-league/
-
-**Toyota Says Tariffs Will Erase $1.3 Billion in Profits in Just 2 Months**\
-`The automaker’s somber forecast for the fiscal year underscored how quickly fortunes have turned for many companies reckoning with President Trump’s tariffs.`\
-https://nytimes.com/2025/05/08/business/toyota-earnings-trump-tariffs.html
-
-**This Champions League final will be a rarity - a meeting of the competition's best teams**\
-`The two remaining teams have been the outstanding sides in the Champions League, so we could not have asked for a more fitting final`\
-https://nytimes.com/athletic/6340884/2025/05/08/psg-inter-champions-league-final/
 

@@ -1,3 +1,11 @@
+**For Embattled Starmer, U.S.-U.K. Trade Deal Will Count as a Win**\
+`Prime Minister Keir Starmer has spent months nurturing his relationship with President Trump. Is that about to pay off?`\
+https://nytimes.com/2025/05/08/world/europe/starmer-us-uk-trade-deal.html
+
+**Crowds begin to gather in St. Peter’s Square.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/crowds-begin-to-gather-in-st-peters-square
+
 **How India Is Trying to Squeeze Pakistan Far From the Battlefield**\
 `The nuclear-armed rivals are also wrangling over Pakistan’s access to desperately needed foreign aid, as India explores ways to use its soft power and relationships to bedevil its old enemy.`\
 https://nytimes.com/2025/05/08/business/economy/india-pakistan-soft-power-kashmir.html
