@@ -1,3 +1,7 @@
+**Blue Jays’ bullpen bears the weight of endless close games**\
+`In the season's first month, the bullpen held up as Toronto's offence scuttled. Lately, the burden has weighed too heavily.`\
+https://nytimes.com/athletic/6341653/2025/05/08/blue-jays-angels-bullpen/
+
 **For Embattled Starmer, U.S.-U.K. Trade Deal Will Count as a Win**\
 `Prime Minister Keir Starmer has spent months nurturing his relationship with President Trump. Is that about to pay off?`\
 https://nytimes.com/2025/05/08/world/europe/starmer-us-uk-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/nyregion/new-jersey-democratic-candidates-for-gov
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/08/crosswords/spelling-bee-forum.html
-
-**Xavi Hernandez interview: Collecting 400 shirts, watching eight games a day, wanting to coach in the Premier League**\
-`In the first of a two-part interview, Xavi Hernandez talks of his football obsession, his ambitions what he knows of Europe's best coaches`\
-https://nytimes.com/athletic/6340393/2025/05/08/xavi-hernandez-interview-premier-league/
 
