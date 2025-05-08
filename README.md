@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 4 Athletic Club 1 (7-1 agg) - Mount scores twice as United book Europa League final spot**\
+`Laurie Whitwell, Anantaajith Raghuraman and Thom Harris break down Manchester United's 4-1 Europa League semi-final win over Athletic Club`\
+https://nytimes.com/athletic/6339284/2025/05/08/man-utd-4-athletic-club-1-mason-mount-casemiro-europa-league/
+
 **Transportation Secretary Unveils Plan to Overhaul of Aging Air-Traffic Systems**\
 `Officials promised to replace derelict equipment with state-of-the-art technology but said funding was dependent on Congress.`\
 https://nytimes.com/2025/05/08/us/politics/sean-duffy-air-traffic-control.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/west-point-hegseth-culture-wars.html
 **A Year Ago, Columbia Security Was Hands-Off at a Protest. Not This Time.**\
 `When demonstrators occupied the university’s main library on Wednesday, campus security forces intervened aggressively. The occupation ended with arrests hours later.`\
 https://nytimes.com/2025/05/08/nyregion/columbia-library-occupation.html
-
-**A Path to Papacy: Leo XIV Over the Years**\
-`Cardinal Robert Francis Prevost was born in Chicago and gradually rose through the ranks of the Roman Catholic Church.`\
-https://nytimes.com/2025/05/08/world/pope-leo-xiv-timeline.html
 

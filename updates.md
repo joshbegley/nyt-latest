@@ -1,3 +1,19 @@
+**Transportation Secretary Unveils Plan to Overhaul of Aging Air-Traffic Systems**\
+`Officials promised to replace derelict equipment with state-of-the-art technology but said funding was dependent on Congress.`\
+https://nytimes.com/2025/05/08/us/politics/sean-duffy-air-traffic-control.html
+
+**Friday Briefing: The First American Pope**\
+`Plus, Tate Modern turns 25.`\
+https://nytimes.com/2025/05/08/briefing/american-pope-prevost-us-uk-trade-india-pakistan-conflict.html
+
+**The Briefing: Bodo/Glimt 0 Spurs 2 (1-5 agg) - How Postecoglou masterminded a famous win**\
+`Analysing the big talking points from the Europa League semi-final second-leg decider in Norway`\
+https://nytimes.com/athletic/6339283/2025/05/08/bodo-glimt-tottenham-europa-league-result-analysis/
+
+**Chelsea 1 Djurgarden 0 (5-1 agg) - Walsh's highlights; importance for Maresca? Play youth in final?**\
+`Our writers break down the action as Chelsea reach the Conference League final`\
+https://nytimes.com/athletic/6339285/2025/05/08/chelsea-conference-league-reggie-walsh/
+
 **Chelsea 1 Djurgarden 0 (5-1 agg) - Walsh's highlights; importance for Maresca? Play youth in final?**\
 `Our writers break down the action as Chelsea reach the Conference League final.`\
 https://nytimes.com/athletic/6339285/2025/05/08/chelsea-conference-league-reggie-walsh/
