@@ -1,3 +1,7 @@
+**Are U.S. Tariffs Affecting Your Business? We Want to Hear From You.**\
+`The New York Times wants to hear from European business owners about how they are navigating the uncertainty of President Trump’s tariffs.`\
+https://nytimes.com/2025/05/08/business/trump-tariffs-europe-small-businesses.html
+
 **Interest in the ‘Conclave’ movie has soared. How accurate is it?**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/conclave-movie-new-pope-vote
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6340851/2025/05/08/michigan-ncaa-connor-stalions-sh
 **Did the Blues' second-half surge and playoff appearance put an end to their retool?**\
 `The Blues finished with 96 points in the regular season and took the Winnipeg Jets to Game 7, which tells the GM they're ready to compete.`\
 https://nytimes.com/athletic/6339829/2025/05/08/blues-nhl-playoffs-retool-brayden-schenn/
-
-**Jordy Bahl's Nebraska homecoming has been 'incredible' — now it's time for a postseason run**\
-`Bahl is on track to become the first player since 2017 to score more runs than she’s allowed while pitching 130 innings or more.`\
-https://nytimes.com/athletic/6340706/2025/05/08/jordy-bahl-nebraska-softball-big-ten-tournament/
 
