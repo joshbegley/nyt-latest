@@ -1,5 +1,5 @@
 **Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
-`The two leaders, meeting in Moscow, hailed their alliance a day ahead of commemorative events to mark the end of World War II.`\
+`The two leaders, meeting in Moscow, hailed their alliance a day ahead of events to mark the 80th anniversary of the Soviet victory over Nazi Germany in World War II.`\
 https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
 
 **Beckham and Neville lead new consortium taking over Salford**\
