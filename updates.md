@@ -1,3 +1,7 @@
+**Would You Buy Your Diamond Engagement Ring at Walmart?**\
+`The popularity of synthetic stones has sent the market for natural diamonds crashing. With consumers confused about how to tell the difference, how can a market leader like De Beers regain its sparkle?`\
+https://nytimes.com/2025/05/08/style/synthetic-diamonds-engagement-rings-de-beers-walmart-.html
+
 **The Windup: Was Padres/Yankees a WS preview?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6341557/2025/05/08/padres-yankees-world-series-the-windup/
