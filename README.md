@@ -1,3 +1,11 @@
+**The New Pope Grew Up in the Chicago Area**\
+`For Chicagoans, the selection of Robert Francis Prevost was thrilling and a little stunning.`\
+https://nytimes.com/2025/05/08/us/pope-leo-xiv-chicago.html
+
+**F.B.I. Director Walks Back Concerns About Trump Budget Cuts**\
+`After telling House lawmakers that the F.B.I. needed more resources, Kash Patel told senators that he agreed with a proposal to slash more than $500 million from the agency.`\
+https://nytimes.com/2025/05/08/us/politics/kash-patel-fbi-budget.html
+
 **What we learned from Mike Sullivan's first Rangers press conference**\
 `Sullivan is already at work building relationships with Rangers players, and his relationship with GM Chris Drury is clearly strong.`\
 https://nytimes.com/athletic/6339977/2025/05/08/mike-sullivan-rangers-introduction-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/arts/design/biennale-venice-chinampas-mexico.html
 **Bill Gates Accuses Elon Musk of ‘Killing Children’ by Cutting Foreign Aid**\
 `The Microsoft co-founder and philanthropist condemned his fellow billionaire for overseeing deep cuts to the U.S. Agency for International Development in the Trump administration.`\
 https://nytimes.com/2025/05/08/us/bill-gates-elon-musk-killing-children.html
-
-**Crypto Bill Stalls in the Senate as Democrats Balk**\
-`Democratic supporters of the measure to regulate parts of the industry refused to allow it to move forward amid concerns in their party that President Trump and his family are profiting from cryptocurrency.`\
-https://nytimes.com/2025/05/08/us/politics/crypto-bill-senate.html
-
-**New Joint Chiefs Chairman Picks a Friendly Crowd for His Debut**\
-`Gen. Dan Caine, who spoke at a special operations conference, has kept a low profile since assuming the military’s top job.`\
-https://nytimes.com/2025/05/08/us/politics/joint-chiefs-chairman-dan-caine.html
 
