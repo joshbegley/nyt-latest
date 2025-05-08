@@ -1,3 +1,7 @@
+**‘Reformed’ Is a Charming Show About a Young Rabbi**\
+`Sitcom shenanigans nestle alongside philosophical musings in this French dramedy on Max.`\
+https://nytimes.com/2025/05/08/arts/television/reformed-max-young-rabbi.html
+
 **Chelsea F.C. Ends Inquiry Into Bullying Allegations Without Sharing Findings**\
 `The Premier League soccer team had committed to overhauling its culture, but employees are still looking for an acknowledgment of remorse.`\
 https://nytimes.com/2025/05/08/world/europe/chelsea-premier-league-bullying-investigation.html
