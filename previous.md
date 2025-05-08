@@ -1,3 +1,23 @@
+**Celtics face identity crisis as Tatum, Brown can't overcome another shooting collapse**\
+`The Celtics collapsed yet again, falling into an 0-2 hole and an identity crisis that will decide whether their title defense ends early.`\
+https://nytimes.com/athletic/6341538/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-identity-crisis-game-2/
+
+**No phones, no internet: The cardinals vote in extreme secrecy.**\
+`By Bernhard Warner`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-vote-secret-technology-banned-security
+
+**How Long Will the Conclave Take?**\
+`There is no formal time limit for cardinals to elect a pope. Past papal selections have lasted from a few hours to three years.`\
+https://nytimes.com/2025/05/08/world/europe/pope-conclave-how-long.html
+
+**Here’s the latest.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/heres-the-latest
+
+**Live Updates: Papal Conclave Enters 2nd Day**\
+`The Vatican conclave will continue with as many as four more rounds of voting. A two-thirds majority of the 133 cardinals is required to select a new leader for the world’s 1.4 billion Roman Catholics.`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news
+
 **The New York Times in Print for Thursday, May 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/08/todays-new-york-times
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6341481/2025/05/08/maple-leafs-nhl-playoffs-marchan
 **Video games, bullying and friendship: Knicks' Mikal Bridges has mastered adversity**\
 `Bridges continues to show his mental toughness, and it has led to the Knicks being up 2-0 over Boston.`\
 https://nytimes.com/athletic/6341369/2025/05/08/knicks-celtics-mikal-bridges-adversity/
-
-**With his 200th career homer, Alex Bregman helps Red Sox snap losing skid**\
-`For how much the Red Sox have struggled of late, Wednesday had the makings of game that could propel them in the right direction.`\
-https://nytimes.com/athletic/6341390/2025/05/08/alex-bregman-200-homers-red-sox/
-
-**Mikko Rantanen records another hat trick, Stars edge Jets in Game 1: Takeaways**\
-`Rantanen scored three goals in the second period as Dallas earned a rare opening-game victory.`\
-https://nytimes.com/athletic/6341370/2025/05/08/jets-stars-game-1/
-
-**Why do Liverpool not score from free kicks - and who should take them now?**\
-`The 2024-25 league champions are yet to score a free kick this season and will need a new taker when Trent Alexander-Arnold leaves`\
-https://nytimes.com/athletic/6338126/2025/05/08/liverpool-free-kicks-goals/
-
-**Fantasy Premier League: The players and teams to target in Gameweek 36**\
-`Motivation matters between now and the end of the season in FPL. Holly Shand identifies the teams to target when making transfers`\
-https://nytimes.com/athletic/6339169/2025/05/08/fantasy-premier-league-gameweek-36-teams-target/
-
-**How Forest's academy is trying to find the next homegrown stars for Nuno's squad**\
-`Nottingham Forest's bid to return to European football means the bar has again been raised for their academy. So how are they coping?`\
-https://nytimes.com/athletic/6340104/2025/05/08/nottingham-forest-academy-abbott/
 
