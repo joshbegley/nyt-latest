@@ -1,3 +1,11 @@
+**The Knicks Do the Improbable (Again), and New York City Loves It**\
+`Few experts gave the Knicks a chance to beat the champion Boston Celtics — except for the devoted fans who packed the street outside Madison Square Garden.`\
+https://nytimes.com/2025/05/08/nyregion/knicks-celtics-playoffs.html
+
+**FEMA’s Leader Is Dismissed**\
+`The move comes as the Trump administration has considered disbanding the agency.`\
+https://nytimes.com/2025/05/08/us/politics/fema-cameron-hamilton.html
+
 **‘Superfine’ Brings Radiant Black Style to the Costume Institute**\
 `Heritage meets gumption at the Met’s big spring exhibition, where pathbreaking pieces join anonymous garments to build an undeniably moving history.`\
 https://nytimes.com/2025/05/08/arts/design/superfine-black-style-met-costume-institute.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/nyregion/nyc-tourism.html
 **The Moment Pope Leo XIV Emerged on the Balcony**\
 `Crowds gathered in St. Peter’s Square — and around the world — to see who had been elected as Pope Francis’ successor.`\
 https://nytimes.com/2025/05/08/world/europe/new-pope-crowds-celebrate-balcony.html
-
-**8 Standout Booths at Independent**\
-`The art fair has completed its transition from boutique outlier to art world institution.`\
-https://nytimes.com/2025/05/08/arts/design/independent-art-fair-review.html
-
-**Frieze New York Is Smaller but Still Packs a Global Punch**\
-`Our critic samples booths from 25 countries and picks her seven favorites, including Chicago, Los Angeles, Paris, London and Seoul — and two nonprofits.`\
-https://nytimes.com/2025/05/08/arts/design/frieze-new-york-shed-review.html
 

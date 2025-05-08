@@ -1,3 +1,11 @@
+**The Knicks Do the Improbable (Again), and New York City Loves It**\
+`Few experts gave the Knicks a chance to beat the champion Boston Celtics — except for the devoted fans who packed the street outside Madison Square Garden.`\
+https://nytimes.com/2025/05/08/nyregion/knicks-celtics-playoffs.html
+
+**FEMA’s Leader Is Dismissed**\
+`The move comes as the Trump administration has considered disbanding the agency.`\
+https://nytimes.com/2025/05/08/us/politics/fema-cameron-hamilton.html
+
 **‘Superfine’ Brings Radiant Black Style to the Costume Institute**\
 `Heritage meets gumption at the Met’s big spring exhibition, where pathbreaking pieces join anonymous garments to build an undeniably moving history.`\
 https://nytimes.com/2025/05/08/arts/design/superfine-black-style-met-costume-institute.html
