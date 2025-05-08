@@ -1,3 +1,7 @@
+**‘Reformed’ Is a Charming Show About a Young Rabbi**\
+`Sitcom shenanigans nestle alongside philosophical musings in this French dramedy on Max.`\
+https://nytimes.com/2025/05/08/arts/television/reformed-max-young-rabbi.html
+
 **Chelsea F.C. Ends Inquiry Into Bullying Allegations Without Sharing Findings**\
 `The Premier League soccer team had committed to overhauling its culture, but employees are still looking for an acknowledgment of remorse.`\
 https://nytimes.com/2025/05/08/world/europe/chelsea-premier-league-bullying-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/us/church-confession-law-child-abuse.html
 **The New Pope Grew Up in the Chicago Area**\
 `For Chicagoans, the selection of Robert Francis Prevost was thrilling and a little stunning.`\
 https://nytimes.com/2025/05/08/us/pope-leo-xiv-chicago.html
-
-**F.B.I. Director Walks Back Concerns About Trump Budget Cuts**\
-`After telling House lawmakers that the F.B.I. needed more resources, Kash Patel told senators that he agreed with a proposal to slash more than $500 million from the agency.`\
-https://nytimes.com/2025/05/08/us/politics/kash-patel-fbi-budget.html
 
