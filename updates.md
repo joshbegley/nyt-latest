@@ -1,3 +1,11 @@
+**Man Is Charged With Federal Hate Crimes in Assaults on Jewish Protesters**\
+`Tarek Bazrouk, 20, on three occasions kicked and punched Jewish protesters who were wearing religious attire or carrying Israeli flags at demonstrations in Manhattan, prosecutors said.`\
+https://nytimes.com/2025/05/07/nyregion/nyc-protests-hate-crime-charge-bazrouk.html
+
+**Here’s what happened on Wednesday.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/07/us/trump-news/heres-what-happened-on-wednesday
+
 **Not Getting Enough Sleep**\
 `Dan Caprera wants us to mind our own business. Are we going to take that from him?`\
 https://nytimes.com/2025/05/07/crosswords/daily-puzzle-2025-05-08.html
