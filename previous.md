@@ -1,3 +1,15 @@
+**White Smoke Signals a Pope Has Been Chosen. What Happens Next?**\
+`A successor to Pope Francis had been elected. But there will be a short wait before his identity becomes clear.`\
+https://nytimes.com/2025/05/08/world/europe/white-smoke-new-pope-what-next.html
+
+**Older cardinals can’t vote in the conclave, but they have thoughts on the proceedings.**\
+`By Emma Bubola`\
+https://nytimes.com/2025/05/08/world/europe/older-cardinals-cant-vote-in-the-conclave-but-they-have-thoughts-on-the-proceedings.html
+
+**Hope and Anxiety Share the Stage as Finance Titans Converge on L.A.**\
+`At the Milken Institute conference, a who’s who of finance and corporate America, there was a mix of emotions about financial markets and the economy.`\
+https://nytimes.com/2025/05/08/business/milken-tariffs-economy.html
+
 **Why the Fed’s Waiting Game on Rate Cuts Could Extend Until September**\
 `Economists have shifted back their forecasts for lower borrowing costs as President Trump’s tariffs raised the risk of higher inflation and slower growth.`\
 https://nytimes.com/2025/05/08/business/fed-interest-rate-cuts.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/08/learning/what-students-are-saying-about-using-ai-
 **Intelligence Agencies Increase Focus on Greenland, U.S. Officials Say**\
 `A growing number of reports about the island have been included in information circulated in the executive branch and Congress, officials said.`\
 https://nytimes.com/2025/05/08/us/politics/trump-greenland-intelligence.html
-
-**Spring/Break May Be a Little Older, but It Still Parties On**\
-`The show that started as a messy upstart sibling to the traditional fairs has grown up a bit, though it’s still packed with zany charms.`\
-https://nytimes.com/2025/05/08/arts/design/spring-break-art-fair-review.html
-
-**Preakness gets squeezed again with Sovereignty forgoing Triple Crown**\
-`Competing for your sport's highest achievement shouldn't be a question, but for horse racing's Triple Crown, it's not that simple. `\
-https://nytimes.com/athletic/6342254/2025/05/08/preakness-2025-sovereignty-triple-crown/
-
-**If you want to be pope, it helps not to act like it.**\
-`By Jason Horowitz and Elisabetta Povoledo`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/if-you-want-to-be-pope-it-helps-not-to-act-like-it
 

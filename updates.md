@@ -1,3 +1,15 @@
+**White Smoke Signals a Pope Has Been Chosen. What Happens Next?**\
+`A successor to Pope Francis had been elected. But there will be a short wait before his identity becomes clear.`\
+https://nytimes.com/2025/05/08/world/europe/white-smoke-new-pope-what-next.html
+
+**Older cardinals can’t vote in the conclave, but they have thoughts on the proceedings.**\
+`By Emma Bubola`\
+https://nytimes.com/2025/05/08/world/europe/older-cardinals-cant-vote-in-the-conclave-but-they-have-thoughts-on-the-proceedings.html
+
+**Hope and Anxiety Share the Stage as Finance Titans Converge on L.A.**\
+`At the Milken Institute conference, a who’s who of finance and corporate America, there was a mix of emotions about financial markets and the economy.`\
+https://nytimes.com/2025/05/08/business/milken-tariffs-economy.html
+
 **Why the Fed’s Waiting Game on Rate Cuts Could Extend Until September**\
 `Economists have shifted back their forecasts for lower borrowing costs as President Trump’s tariffs raised the risk of higher inflation and slower growth.`\
 https://nytimes.com/2025/05/08/business/fed-interest-rate-cuts.html
