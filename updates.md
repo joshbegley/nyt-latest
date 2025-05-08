@@ -1,3 +1,23 @@
+**Eliezer Mayenda: 'With patience, we can do something here at Sunderland'**\
+`The youngster has lived in three countries, played in four leagues, speaks five languages and has been key to this season's promotion drive`\
+https://nytimes.com/athletic/6337456/2025/05/08/mayenda-sunderland-interview/
+
+**Joseph Woll, Leafs starter, makes a triumphant return in Game 2**\
+`Woll's last start was on April 17 in a meaningless regular-season game. That didn't faze him against the Panthers.`\
+https://nytimes.com/athletic/6341427/2025/05/08/joseph-woll-maple-leafs-starter-nhl-playoffs/
+
+**How the Club World Cup could stretch football's elite to breaking point**\
+`The sport's calendar has never been as congested as this summer - so what could be the impact?`\
+https://nytimes.com/athletic/6339720/2025/05/08/club-world-cup-player-workload/
+
+**The identical twins bamboozling their opponents, team-mates and coach**\
+`Being at the same club is not a contractual obligation for Karen and Sara Holmgaard but somehow they always end up together`\
+https://nytimes.com/athletic/6332579/2025/05/08/sara-karen-holmgaard-twins-everton-denmark/
+
+**Sommer's display against Barcelona had everything: Elite positioning, balance and raw athleticism**\
+`He conceded six goals in two matches but Inter owe their place in the Champions League final to their under-rated goalkeeper Yann Sommer`\
+https://nytimes.com/athletic/6340318/2025/05/08/yann-sommer-inter-barcelona-champions-league/
+
 **Michael Harris II's stats have declined steadily since rookie year, but Braves still believe**\
 `Regardless of his .216 batting average, Harris can and does impact games in multiple ways, manager Brian Snitker said.`\
 https://nytimes.com/athletic/6341365/2025/05/08/michael-harris-ii-stats-braves-reds/
