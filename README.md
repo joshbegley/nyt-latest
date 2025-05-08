@@ -1,3 +1,11 @@
+**U.S. and British Leaders Celebrate Agreement on Trade Framework**\
+`President Trump and Prime Minister Keir Starmer announced an agreement for a trade framework over speaker phone.`\
+https://nytimes.com/video/us/politics/100000010157215/us-british-trade-agreement-framework.html
+
+**What Students Are Saying About Using A.I. for Schoolwork**\
+`Is it a useful tool? Is it cheating? Is it hindering students’ ability to think? Here is what teenagers told us.`\
+https://nytimes.com/2025/05/08/learning/what-students-are-saying-about-using-ai-for-schoolwork.html
+
 **Intelligence Agencies Increase Focus on Greenland, U.S. Officials Say**\
 `A growing number of reports about the island have been included in information circulated in the executive branch and Congress, officials said.`\
 https://nytimes.com/2025/05/08/us/politics/trump-greenland-intelligence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6341786/2025/05/08/mlb-season-disappointments-2025-
 **Tielemans could miss rest of Villa's season with injury**\
 `The 28-year-old is yet to miss a Premier League game in 2024-25.`\
 https://nytimes.com/athletic/6341854/2025/05/08/tielemans-injury-aston-villa/
-
-**Proposed Medicaid Cuts Put Vulnerable Republicans in a Political Bind**\
-`G.O.P. lawmakers from swing districts face tough votes as soon as next week, when key House panels are scheduled to consider legislation that would cut popular programs to pay for President Trump’s agenda.`\
-https://nytimes.com/2025/05/08/us/politics/republicans-medicaid-budget-dilemma.html
-
-**Out of college eligibility, 100-plus basketball players entered the transfer portal anyway**\
-`Some players in the portal are appealing to or suing the NCAA for more eligibility. Others are hoping the NCAA grants a fifth year for all.`\
-https://nytimes.com/athletic/6338236/2025/05/08/mens-college-basketball-eligibility-transfer-portal/
 
