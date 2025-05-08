@@ -1,3 +1,7 @@
+**In Rare Public Remarks, Chief Justice Roberts Defends Judicial Independence**\
+`The chief justice told a crowd of lawyers and judges that sometimes the judiciary must “check the excesses of Congress or the executive.”`\
+https://nytimes.com/2025/05/07/us/politics/supreme-court-roberts-judicial-independence.html
+
 **Dodgers place Evan Phillips on injured list as their bullpen usage continues to spike**\
 `Bullpen innings have been racking up for the Dodgers and now their relief corps has taken another blow.`\
 https://nytimes.com/athletic/6341235/2025/05/07/dodgers-evan-phillips-injured-list-bullpen-usage/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
 **How Lost Radar and Silent Radios Have Upended Newark Air Travel**\
 `A technical outage in Philadelphia last week terrified air traffic controllers and stranded passengers. As the summer travel season looms, the F.A.A. is racing to address the problems.`\
 https://nytimes.com/2025/05/07/us/politics/newark-airport-delays.html
-
-**Some ‘Les Misérables’ Cast Members Plan to Skip Trump Kennedy Center Gala**\
-`Several members of the “Les Misérables” cast are said to be planning to boycott a gala performance at the Kennedy Center, which President Trump took over as chairman.`\
-https://nytimes.com/2025/05/07/arts/music/les-mis-boycott-trump-kennedy-center.html
 

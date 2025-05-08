@@ -1,3 +1,7 @@
+**In Rare Public Remarks, Chief Justice Roberts Defends Judicial Independence**\
+`The chief justice told a crowd of lawyers and judges that sometimes the judiciary must “check the excesses of Congress or the executive.”`\
+https://nytimes.com/2025/05/07/us/politics/supreme-court-roberts-judicial-independence.html
+
 **Dodgers place Evan Phillips on injured list as their bullpen usage continues to spike**\
 `Bullpen innings have been racking up for the Dodgers and now their relief corps has taken another blow.`\
 https://nytimes.com/athletic/6341235/2025/05/07/dodgers-evan-phillips-injured-list-bullpen-usage/
