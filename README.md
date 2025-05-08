@@ -1,3 +1,7 @@
+**A Path to Papacy: Leo XIV Over the Years**\
+`Cardinal Robert Francis Prevost was born in Chicago and gradually rose through the ranks of the Roman Catholic Church.`\
+https://nytimes.com/2025/05/08/world/pope-leo-xiv-timeline.html
+
 **5 Takeaways From the U.S.-U.K. Trade Agreement**\
 `The deal still has to be finalized, but it was hailed as a success by both countries for being the first since President Trump announced broad tariffs in April.`\
 https://nytimes.com/2025/05/08/business/us-uk-trade-agreement-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/us/father-of-girl-who-killed-2-at-wisconsin-schoo
 **Chet Lemon, 1984 World Series champion with Tigers, dies at 70**\
 `Lemon was regarded as an electric defender in center field and was a key part of Detroit's World Series run.`\
 https://nytimes.com/athletic/6342894/2025/05/08/chet-lemon-dies-tigers/
-
-**Americans Burst With Pride, and Surprise, at the First Pope From the U.S.**\
-`Across the country, Catholics and non-Catholics alike greeted Chicago-born Pope Leo XIV with reverence and satisfaction.`\
-https://nytimes.com/2025/05/08/us/pope-leo-xiv-american-catholics-chicago.html
 
