@@ -1,3 +1,15 @@
+**At the Biennale in Venice, a Fantasy Island Imported from Mexico**\
+`The floating farms known as “chinampas” may have something to teach Venetians and the world.`\
+https://nytimes.com/2025/05/08/arts/design/biennale-venice-chinampas-mexico.html
+
+**Bill Gates Accuses Elon Musk of ‘Killing Children’ by Cutting Foreign Aid**\
+`The Microsoft co-founder and philanthropist condemned his fellow billionaire for overseeing deep cuts to the U.S. Agency for International Development in the Trump administration.`\
+https://nytimes.com/2025/05/08/us/bill-gates-elon-musk-killing-children.html
+
+**Crypto Bill Stalls in the Senate as Democrats Balk**\
+`Democratic supporters of the measure to regulate parts of the industry refused to allow it to move forward amid concerns in their party that President Trump and his family are profiting from cryptocurrency.`\
+https://nytimes.com/2025/05/08/us/politics/crypto-bill-senate.html
+
 **New Joint Chiefs Chairman Picks a Friendly Crowd for His Debut**\
 `Gen. Dan Caine, who spoke at a special operations conference, has kept a low profile since assuming the military’s top job.`\
 https://nytimes.com/2025/05/08/us/politics/joint-chiefs-chairman-dan-caine.html
