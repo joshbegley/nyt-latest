@@ -1,3 +1,7 @@
+**Kenneth Walker Dies at 73; His Journalism Bared Apartheid’s Brutality**\
+`He shared an Emmy for his reporting on “Nightline” about South Africa’s policy of racial segregation. The National Association of Black Journalists named him journalist of the year.`\
+https://nytimes.com/2025/05/08/business/media/kenneth-walker-dead.html
+
 **‘Reformed’ Is a Charming Show About a Young Rabbi**\
 `Sitcom shenanigans nestle alongside philosophical musings in this French dramedy on Max.`\
 https://nytimes.com/2025/05/08/arts/television/reformed-max-young-rabbi.html

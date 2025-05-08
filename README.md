@@ -1,3 +1,11 @@
+**Americans Burst With Pride, and Surprise, at the First Pope From the U.S.**\
+`Across the country, Catholics and non-Catholics alike greeted Chicago-born Pope Leo XIV with reverence and satisfaction.`\
+https://nytimes.com/2025/05/08/us/pope-leo-xiv-american-catholics-chicago.html
+
+**For the faithful in St. Peter’s Square, confusion and shock gave way to relief.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/for-the-faithful-in-st-peters-square-confusion-and-shock-gave-way-to-relief
+
 **Kenneth Walker Dies at 73; His Journalism Bared Apartheid’s Brutality**\
 `He shared an Emmy for his reporting on “Nightline” about South Africa’s policy of racial segregation. The National Association of Black Journalists named him journalist of the year.`\
 https://nytimes.com/2025/05/08/business/media/kenneth-walker-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6342389/2025/05/08/celtics-nba-daily-playoffs-game-
 **Scoop City: Cowboys-Steelers blockbuster, explained**\
 `So much to cover, from the George Pickens trade to Justin Tucker's release. That, plus a new-look Raiders team.`\
 https://nytimes.com/athletic/6342839/2025/05/08/cowboys-steelers-ravens-pickens-tucker-nfl-scoop-city/
-
-**Here’s the latest.**\
-`By Jason Horowitz, Motoko Rich and Elizabeth Dias`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/latest-pinned
-
-**New Law Requires Priests to Break Seal of Confession to Report Child Abuse**\
-`The state law, in Washington, applies to all religions but has outraged Catholics in particular. The Justice Department is investigating.`\
-https://nytimes.com/2025/05/08/us/church-confession-law-child-abuse.html
 
