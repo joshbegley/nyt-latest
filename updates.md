@@ -1,3 +1,7 @@
+**New Film Names Soldier in Palestinian American Journalist’s Shooting**\
+`After Shireen Abu Akleh was killed in the West Bank in 2022, the Israeli military never revealed the identity of the soldier who fired at her. A documentary said it had confirmed his name.`\
+https://nytimes.com/2025/05/08/world/middleeast/israel-soldier-shireen-abu-akleh-palestinian-american-journalist-shooting.html
+
 **The Athletic FC: Romance in Paris? Beckham and Neville's Salford plan, Spurs tickets for fish**\
 `Today in TAFC: Paris become Europe's sweethearts, Beckham and Neville team up in Salford, Carli Lloyd opens up, reindeer meat for tickets?`\
 https://nytimes.com/athletic/6341771/2025/05/08/psg-arsenal-champions-league-beckham-neville-salford/

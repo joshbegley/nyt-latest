@@ -1,3 +1,7 @@
+**New Film Names Soldier in Palestinian American Journalist’s Shooting**\
+`After Shireen Abu Akleh was killed in the West Bank in 2022, the Israeli military never revealed the identity of the soldier who fired at her. A documentary said it had confirmed his name.`\
+https://nytimes.com/2025/05/08/world/middleeast/israel-soldier-shireen-abu-akleh-palestinian-american-journalist-shooting.html
+
 **The Athletic FC: Romance in Paris? Beckham and Neville's Salford plan, Spurs tickets for fish**\
 `Today in TAFC: Paris become Europe's sweethearts, Beckham and Neville team up in Salford, Carli Lloyd opens up, reindeer meat for tickets?`\
 https://nytimes.com/athletic/6341771/2025/05/08/psg-arsenal-champions-league-beckham-neville-salford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341488/2025/05/08/panthers-maple-leafs-game-2-nhl-
 **Have these NBA playoffs really been more physical? The numbers may surprise you**\
 `My unscientific survey says players don't care as much about physicality as they do about consistency.`\
 https://nytimes.com/athletic/6338736/2025/05/08/nba-playoffs-physicality-stats-2025/
-
-**2025 MLB Mock Draft 1.0: Ethan Holliday goes to Washington ... for now**\
-`An early look at who teams might be targeting in the first round, from the Nationals at No. 1 to the Guardians at No. 27.`\
-https://nytimes.com/athletic/6337620/2025/05/08/mlb-mock-draft-2025-ethan-holliday/
 

@@ -1,40 +1,40 @@
-**New Film Names Soldier in Palestinian American Journalist’s Shooting**\
-`After Shireen Abu Akleh was killed in the West Bank in 2022, the Israeli military never revealed the identity of the soldier who fired at her. A documentary said it had confirmed his name.`\
-https://nytimes.com/2025/05/08/world/middleeast/israel-soldier-shireen-abu-akleh-palestinian-american-journalist-shooting.html
+**U.S. Trade Deal Could Help Britain’s Sluggish Economy, but Won’t Transform It**\
+`The deal could help some sectors and boost confidence among consumers and businesses, but the British economy faces other challenges.`\
+https://nytimes.com/2025/05/08/business/trump-us-britain-trade-deal.html
 
-**The Athletic FC: Romance in Paris? Beckham and Neville's Salford plan, Spurs tickets for fish**\
-`Today in TAFC: Paris become Europe's sweethearts, Beckham and Neville team up in Salford, Carli Lloyd opens up, reindeer meat for tickets?`\
-https://nytimes.com/athletic/6341771/2025/05/08/psg-arsenal-champions-league-beckham-neville-salford/
+**The USMNT have friendlies and Gold Cup fixtures this summer, but should they give Christian Pulisic a break?**\
+`Head coach Mauricio Pochettino has awkward decisions to make as he risks more short-term pain for the chance of longer-term gain`\
+https://nytimes.com/athletic/6340088/2025/05/08/usmnt-pulisic-robinson-pochettino-gold-cup/
 
-**An Entertainment Tax**\
-`Why Hollywood recently got the Trump tariff treatment.`\
-https://nytimes.com/2025/05/08/briefing/trump-movie-tariffs.html
+**Ashton Jeanty 'ready to play that Raider brand of football' as rookie minicamp kicks off**\
+`The Raiders' first-round pick has taken a unique path to the NFL that included a stop in Italy and playing defense and WR in high school.`\
+https://nytimes.com/athletic/6338406/2025/05/08/ashton-jeanty-raiders-rookie-minicamp/
 
-**Overnight Clashes Strain a Diplomatic Push Between India and Pakistan**\
-`The United States and other regional players converged to try to head off war between the neighboring nuclear powers. But more clashes seemed to keep hostilities roiling.`\
-https://nytimes.com/2025/05/08/world/asia/india-pakistan-diplomacy-kashmir.html
+**Connor Brown bringing 'big-time fire' at right time for Oilers in the playoffs**\
+`With four goals and 6 points in seven games, Brown once again has taken his game to another level in the playoffs.`\
+https://nytimes.com/athletic/6340935/2025/05/08/oilers-connor-brown-nhl-playoffs/
 
-**Mirtle: 5 reasons the Leafs have the defending Stanley Cup champions on the ropes**\
-`The Leafs haven't had a playoffs run this promising in a long, long time. Let's break down a great start to Round 2.`\
-https://nytimes.com/athletic/6341435/2025/05/08/maple-leafs-panthers-nhl-playoffs-series-lead/
+**Is home-court advantage still a factor in the NBA playoffs? Recent history says no**\
+`This spring, NBA teams are just 26-24 at home in the playoffs.`\
+https://nytimes.com/athletic/6340311/2025/05/08/nba-playoffs-home-court-advantage/
 
-**The Pulse: Are the defending champs cooked?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6340455/2025/05/08/celtics-panthers-nba-nhl-playoffs-the-pulse/
+**Rosenthal: Always the perfectionist, Mookie Betts is focused on improving his bat speed**\
+`The Dodgers shortstop doesn't have many weaknesses in his game, but his bat speed has proven to be a rare concern.`\
+https://nytimes.com/athletic/6341106/2025/05/08/mookie-betts-dodgers-bat-speed/
 
-**Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
-`The two leaders, meeting in Moscow, hailed their alliance a day ahead of events to mark the 80th anniversary of the Soviet victory over Nazi Germany in World War II.`\
-https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
+**Broncos' Caleb Lohner follows Jimmy Graham's hoops-to-tight end path to Sean Payton**\
+`Lohner played only 57 snaps of college football and didn't play the sport in high school. The Broncos bet a 7th-round pick on him anyway.`\
+https://nytimes.com/athletic/6340081/2025/05/08/denver-broncos-caleb-lohner-tight-end/
 
-**Beckham and Neville lead new consortium taking over Salford**\
-`Beckham and Neville have joined forces with Declan Kelly and Lord Mervyn Davies at the League Two club.`\
-https://nytimes.com/athletic/6340647/2025/05/08/david-beckham-gary-neville-salford/
+**One-way offside? Free range faceoffs? NHL Rules Court is back in session**\
+`Will any of the reader-submitted rules changes get the required number of "yes" votes to be passed into the NHL rulebook?`\
+https://nytimes.com/athletic/6340198/2025/05/08/nhl-offside-faceoffs-rules-court/
 
-**LeBrun: ‘So what?’ — Panthers unfazed by unfamiliar 0-2 hole against Leafs**\
-`The defending Stanley Cup champions are in foreign territory down 2-0 to Toronto in Round 2, but writing them off now would be foolish.`\
-https://nytimes.com/athletic/6341488/2025/05/08/panthers-maple-leafs-game-2-nhl-playoffs/
+**2025 NHL Mock Draft 1.0: Scott Wheeler predicts the entire first round**\
+`With the first-round order taking shape following Monday night's lottery, Wheeler makes the first 32 picks of the draft.`\
+https://nytimes.com/athletic/6334929/2025/05/08/nhl-mock-draft-2025-first-round-lottery/
 
-**Have these NBA playoffs really been more physical? The numbers may surprise you**\
-`My unscientific survey says players don't care as much about physicality as they do about consistency.`\
-https://nytimes.com/athletic/6338736/2025/05/08/nba-playoffs-physicality-stats-2025/
+**Jaxson Dart, Caleb Williams headline 23 first-rounders from Class of 2021, but who remains?**\
+`Seventy players from the 2021 class were selected on the first or second day of the draft over the last two years.`\
+https://nytimes.com/athletic/6340505/2025/05/08/caleb-williams-2021-recruiting-class-nfl-draft/
 
