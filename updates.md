@@ -1,3 +1,7 @@
+**Smokey Robinson’s Lawyer Calls Sexual Assault Claims ‘Vile’ and ‘False’**\
+`Four women have accused the Motown legend of sexually assaulting them while they worked as housekeepers.`\
+https://nytimes.com/2025/05/08/us/smokey-robinson-sexual-assault-lawyer.html
+
 **Late Night Anxiously Awaits the Unveiling of Trump’s Big News**\
 `“The Daily Show” host Desi Lydic said it “could be anything from ‘I’ve achieved peace in the Middle East’ to ‘I just tried bucatini, and I’m never going back to regular spaghetti.’”`\
 https://nytimes.com/2025/05/08/arts/television/late-night-trump-announcement.html

@@ -1,3 +1,7 @@
+**Smokey Robinson’s Lawyer Calls Sexual Assault Claims ‘Vile’ and ‘False’**\
+`Four women have accused the Motown legend of sexually assaulting them while they worked as housekeepers.`\
+https://nytimes.com/2025/05/08/us/smokey-robinson-sexual-assault-lawyer.html
+
 **Late Night Anxiously Awaits the Unveiling of Trump’s Big News**\
 `“The Daily Show” host Desi Lydic said it “could be anything from ‘I’ve achieved peace in the Middle East’ to ‘I just tried bucatini, and I’m never going back to regular spaghetti.’”`\
 https://nytimes.com/2025/05/08/arts/television/late-night-trump-announcement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341538/2025/05/08/celtics-knicks-jayson-tatum-jayl
 **No phones, no internet: The cardinals vote in extreme secrecy.**\
 `By Bernhard Warner`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-vote-secret-technology-banned-security
-
-**How Long Will the Conclave Take?**\
-`There is no formal time limit for cardinals to elect a pope. Past papal selections have lasted from a few hours to three years.`\
-https://nytimes.com/2025/05/08/world/europe/pope-conclave-how-long.html
 
