@@ -1,3 +1,15 @@
+**Mikko Rantanen records another hat trick, Stars edge Jets in Game 1: Takeaways**\
+`Rantanen scored three goals in the second period as Dallas earned a rare opening-game victory.`\
+https://nytimes.com/athletic/6341370/2025/05/08/jets-stars-game-1/
+
+**Why do Liverpool not score from free kicks - and who should take them now?**\
+`The 2024-25 league champions are yet to score a free kick this season and will need a new taker when Trent Alexander-Arnold leaves`\
+https://nytimes.com/athletic/6338126/2025/05/08/liverpool-free-kicks-goals/
+
+**Fantasy Premier League: The players and teams to target in Gameweek 36**\
+`Motivation matters between now and the end of the season in FPL. Holly Shand identifies the teams to target when making transfers`\
+https://nytimes.com/athletic/6339169/2025/05/08/fantasy-premier-league-gameweek-36-teams-target/
+
 **How Forest's academy is trying to find the next homegrown stars for Nuno's squad**\
 `Nottingham Forest's bid to return to European football means the bar has again been raised for their academy. So how are they coping?`\
 https://nytimes.com/athletic/6340104/2025/05/08/nottingham-forest-academy-abbott/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6339781/2025/05/08/raphinha-watchalong-champions-le
 **Eliezer Mayenda: 'With patience, we can do something here at Sunderland'**\
 `The youngster has lived in three countries, played in four leagues, speaks five languages and has been key to this season's promotion drive`\
 https://nytimes.com/athletic/6337456/2025/05/08/mayenda-sunderland-interview/
-
-**Joseph Woll, Leafs starter, makes triumphant return in Game 2**\
-`Woll's last start was on April 17 in a meaningless regular-season game. That didn't faze him against the Panthers.`\
-https://nytimes.com/athletic/6341427/2025/05/08/joseph-woll-maple-leafs-starter-nhl-playoffs/
-
-**How the Club World Cup could stretch football's elite to breaking point**\
-`The sport's calendar has never been as congested as this summer - so what could be the impact?`\
-https://nytimes.com/athletic/6339720/2025/05/08/club-world-cup-player-workload/
-
-**The identical twins bamboozling their opponents, team-mates and coach**\
-`Being at the same club is not a contractual obligation for Karen and Sara Holmgaard but somehow they always end up together`\
-https://nytimes.com/athletic/6332579/2025/05/08/sara-karen-holmgaard-twins-everton-denmark/
 
