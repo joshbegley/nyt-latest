@@ -1,3 +1,11 @@
+**Warriors' Pat Spencer shouldn't be here in this NBA spotlight. He never let that stop him**\
+`Pat Spencer probably shouldn't be in the NBA. But basketball was always on his mind.`\
+https://nytimes.com/athletic/6341236/2025/05/08/pat-spencer-warriors-playoffs-lacrosse/
+
+**Building Blocks for Disaster Relief**\
+`At the architecture biennale, a small part of the French Pavilion will be devoted to a possibility for war-torn Ukraine.`\
+https://nytimes.com/2025/05/08/arts/design/architecture-biennale-ukraine-rebuild.html
+
 **At the Biennale in Venice, a Fantasy Island Imported from Mexico**\
 `The floating farms known as “chinampas” may have something to teach Venetians and the world.`\
 https://nytimes.com/2025/05/08/arts/design/biennale-venice-chinampas-mexico.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6342491/2025/05/08/oliver-oakes-alpine-brother/
 `The president nominated Mary Anne Carter to lead the National Endowment for the Arts, which his budget calls for eliminating and which has been withdrawing grants from arts groups.`\
 https://nytimes.com/2025/05/08/arts/trump-national-endowment-for-the-arts-carter.html
 
-**Who Is Robert Francis Prevost, the New Pope?**\
-`Here’s what to know about Pope Francis’ successor, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
+**Who Is Pope Leo XIV?**\
+`Here’s what to know about Pope Francis’ successor, Robert Francis Prevost, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
 https://nytimes.com/2025/05/08/world/europe/who-is-robert-francis-prevost-pope-leo-xiv.html
 
 **U.S. Government to Stop Tracking the Costs of Extreme Weather**\
 `It would be harder for insurers and scientists to study wildfires, storms and other “billion dollar disasters,” which are growing more frequent as the planet warms.`\
 https://nytimes.com/2025/05/08/climate/noaa-billion-dollar-disasters.html
-
-**Red Light: The Mikko Rantanen show, and give us your Mammoth thoughts**\
-`Plus: Impossible trivia, and the Maple Leafs are up 2-0 ... again?`\
-https://nytimes.com/athletic/6342609/2025/05/08/nhl-utah-mammoth-red-light-stars-maple-leafs/
-
-**A Conclave of Sea Gulls Concludes Its Business**\
-`Perched on the roof of the Sistine Chapel, three birds were the among the first to glimpse the white smoke signaling a new pope.`\
-https://nytimes.com/2025/05/08/style/seagulls-sistine-chapel-vatican-pope-conclave.html
 

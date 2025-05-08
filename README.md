@@ -1,3 +1,7 @@
+**Until Saturday: $80M for one schedule tweak**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6342799/2025/05/08/sec-schedule-nine-games-espn-until-saturday/
+
 **Warriors' Pat Spencer shouldn't be here in this NBA spotlight. He never let that stop him**\
 `Pat Spencer probably shouldn't be in the NBA. But basketball was always on his mind.`\
 https://nytimes.com/athletic/6341236/2025/05/08/pat-spencer-warriors-playoffs-lacrosse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/arts/trump-national-endowment-for-the-arts-carter
 **Who Is Pope Leo XIV?**\
 `Here’s what to know about Pope Francis’ successor, Robert Francis Prevost, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
 https://nytimes.com/2025/05/08/world/europe/who-is-robert-francis-prevost-pope-leo-xiv.html
-
-**U.S. Government to Stop Tracking the Costs of Extreme Weather**\
-`It would be harder for insurers and scientists to study wildfires, storms and other “billion dollar disasters,” which are growing more frequent as the planet warms.`\
-https://nytimes.com/2025/05/08/climate/noaa-billion-dollar-disasters.html
 

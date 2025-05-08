@@ -1,3 +1,15 @@
+**Warriors' Pat Spencer shouldn't be here in this NBA spotlight. He never let that stop him**\
+`Pat Spencer probably shouldn't be in the NBA. But basketball was always on his mind.`\
+https://nytimes.com/athletic/6341236/2025/05/08/pat-spencer-warriors-playoffs-lacrosse/
+
+**Building Blocks for Disaster Relief**\
+`At the architecture biennale, a small part of the French Pavilion will be devoted to a possibility for war-torn Ukraine.`\
+https://nytimes.com/2025/05/08/arts/design/architecture-biennale-ukraine-rebuild.html
+
+**Who Is Pope Leo XIV?**\
+`Here’s what to know about Pope Francis’ successor, Robert Francis Prevost, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
+https://nytimes.com/2025/05/08/world/europe/who-is-robert-francis-prevost-pope-leo-xiv.html
+
 **At the Biennale in Venice, a Fantasy Island Imported from Mexico**\
 `The floating farms known as “chinampas” may have something to teach Venetians and the world.`\
 https://nytimes.com/2025/05/08/arts/design/biennale-venice-chinampas-mexico.html
