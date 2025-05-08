@@ -1,3 +1,7 @@
+**Federal Judge Casts Doubt on Trump Arguments in Venezuelan Migrants Case**\
+`The judge pressed a lawyer for the Justice Department on the government’s role and responsibilities in the men’s deportation and incarceration in El Salvador.`\
+https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.html
+
 **Revisions to roster limits in House vs. NCAA propose 'grandfathering'**\
 `The revision proposes athletes who would've been cut as a result of the settlement will not count against the settlement's roster limits.`\
 https://nytimes.com/athletic/6341222/2025/05/07/house-vs-ncaa-roster-limits-revision/

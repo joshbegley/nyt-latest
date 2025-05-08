@@ -1,3 +1,7 @@
+**Dodgers place Evan Phillips on injured list as their bullpen usage continues to spike**\
+`Bullpen innings have been racking up for the Dodgers and now their relief corps has taken another blow.`\
+https://nytimes.com/athletic/6341235/2025/05/07/dodgers-evan-phillips-injured-list-bullpen-usage/
+
 **Federal Judge Casts Doubt on Trump Arguments in Venezuelan Migrants Case**\
 `The judge pressed a lawyer for the Justice Department on the government’s role and responsibilities in the men’s deportation and incarceration in El Salvador.`\
 https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/us/politics/newark-airport-delays.html
 **Some ‘Les Misérables’ Cast Members Plan to Skip Trump Kennedy Center Gala**\
 `Several members of the “Les Misérables” cast are said to be planning to boycott a gala performance at the Kennedy Center, which President Trump took over as chairman.`\
 https://nytimes.com/2025/05/07/arts/music/les-mis-boycott-trump-kennedy-center.html
-
-**USWNT's Mallory Swanson, Cubs' Dansby Swanson expecting first child**\
-`Dansby is in his third season with the Cubs and Mallory is in her fourth with the Red Stars.`\
-https://nytimes.com/athletic/6341051/2025/05/07/mallory-swanson-dansby-swanson-pregnancy/
 

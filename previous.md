@@ -1,3 +1,7 @@
+**Federal Judge Casts Doubt on Trump Arguments in Venezuelan Migrants Case**\
+`The judge pressed a lawyer for the Justice Department on the government’s role and responsibilities in the men’s deportation and incarceration in El Salvador.`\
+https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.html
+
 **Revisions to roster limits in House vs. NCAA propose 'grandfathering'**\
 `The revision proposes athletes who would've been cut as a result of the settlement will not count against the settlement's roster limits.`\
 https://nytimes.com/athletic/6341222/2025/05/07/house-vs-ncaa-roster-limits-revision/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/arts/music/les-mis-boycott-trump-kennedy-center.h
 **USWNT's Mallory Swanson, Cubs' Dansby Swanson expecting first child**\
 `Dansby is in his third season with the Cubs and Mallory is in her fourth with the Red Stars.`\
 https://nytimes.com/athletic/6341051/2025/05/07/mallory-swanson-dansby-swanson-pregnancy/
-
-**Congress Grills College Presidents With an Old Script and New Threats**\
-`In a House hearing, lawmakers scrutinized a set of college leaders from institutions outside the Ivy League schools that have drawn the Trump administration's attention.`\
-https://nytimes.com/2025/05/07/us/congress-hearing-college-presidents-haverford.html
 
