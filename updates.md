@@ -1,3 +1,7 @@
+**An American Pope? Maybe It Wasn’t So Impossible.**\
+`By Daniel J. Wakin`\
+https://nytimes.com/2025/05/08/opinion/american-pope-leo.html
+
 **A Path to Papacy: Leo XIV Over the Years**\
 `Cardinal Robert Francis Prevost was born in Chicago and gradually rose through the ranks of the Roman Catholic Church.`\
 https://nytimes.com/2025/05/08/world/pope-leo-xiv-timeline.html

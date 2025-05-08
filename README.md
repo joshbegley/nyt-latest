@@ -1,3 +1,7 @@
+**A Year Ago, Columbia Security Was Hands-Off at a Protest. Not This Time.**\
+`When demonstrators occupied the university’s main library on Wednesday, campus security forces intervened aggressively. The occupation ended with arrests hours later.`\
+https://nytimes.com/2025/05/08/nyregion/columbia-library-occupation.html
+
 **A Path to Papacy: Leo XIV Over the Years**\
 `Cardinal Robert Francis Prevost was born in Chicago and gradually rose through the ranks of the Roman Catholic Church.`\
 https://nytimes.com/2025/05/08/world/pope-leo-xiv-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/dining/you-cant-beat-caesar-salad-and-fries-at-th
 **Father of Girl Who Killed 2 at Wisconsin School Is Charged**\
 `Jeffrey Rupnow, whose 15-year-old daughter fatally shot a teacher and a fellow student at a Christian school in Madison in December, faces two weapons-related counts, the authorities said.`\
 https://nytimes.com/2025/05/08/us/father-of-girl-who-killed-2-at-wisconsin-school-is-charged.html
-
-**Chet Lemon, 1984 World Series champion with Tigers, dies at 70**\
-`Lemon was regarded as an electric defender in center field and was a key part of Detroit's World Series run.`\
-https://nytimes.com/athletic/6342894/2025/05/08/chet-lemon-dies-tigers/
 
