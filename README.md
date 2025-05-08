@@ -1,3 +1,7 @@
+**Breaking down NFL's plan to tease 2025 schedule release**\
+`The NFL will tease aspects of its schedule early next week, leading to the full 2025 schedule announcement on Wednesday, May 14.`\
+https://nytimes.com/athletic/6342836/2025/05/08/nfl-schedule-release-2025-viewing/
+
 **Former Model Testifies That Weinstein Molested Her When She Was 16**\
 `Kaja Sokola told jurors that she had come to New York seeking stardom. She encountered Harvey Weinstein in a club and met him for lunch. Then, she said, he took advantage of her.`\
 https://nytimes.com/2025/05/08/nyregion/harvey-weinstein-kaja-sokola-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/for-the-faithful-in
 **Kenneth Walker Dies at 73; His Journalism Bared Apartheid’s Brutality**\
 `He shared an Emmy for his reporting on “Nightline” about South Africa’s policy of racial segregation. The National Association of Black Journalists named him journalist of the year.`\
 https://nytimes.com/2025/05/08/business/media/kenneth-walker-dead.html
-
-**‘Reformed’ Is a Charming Show About a Young Rabbi**\
-`Sitcom shenanigans nestle alongside philosophical musings in this French dramedy on Max.`\
-https://nytimes.com/2025/05/08/arts/television/reformed-max-young-rabbi.html
 
