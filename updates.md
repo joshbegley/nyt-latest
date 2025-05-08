@@ -1,3 +1,5 @@
+
+
 **White Smoke Signals a Pope Has Been Chosen. What Happens Next?**\
 `A successor to Pope Francis had been elected. But there will be a short wait before his identity becomes clear.`\
 https://nytimes.com/2025/05/08/world/europe/white-smoke-new-pope-what-next.html
