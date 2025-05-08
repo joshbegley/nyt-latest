@@ -1,3 +1,11 @@
+**This Champions League final will be a rarity - a meeting of the competition's best teams**\
+`The two remaining teams have been the outstanding sides in the Champions League, so we could not have asked for a more fitting final`\
+https://nytimes.com/athletic/6340884/2025/05/08/psg-inter-champions-league-final/
+
+**PSG are Europe's most complete team - no other side can win games in such a variety of ways**\
+`A huge part of the French team's success is their ability to beat opponents using different approaches, something others are less able to do`\
+https://nytimes.com/athletic/6341107/2025/05/08/psg-champions-league-final/
+
 **Smokey Robinson’s Lawyer Calls Sexual Assault Claims ‘Vile’ and ‘False’**\
 `Four women have accused the Motown legend of sexually assaulting them while they worked as housekeepers.`\
 https://nytimes.com/2025/05/08/us/smokey-robinson-sexual-assault-lawyer.html

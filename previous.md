@@ -1,3 +1,7 @@
+**This Champions League final will be a rarity - a meeting of the competition's best teams**\
+`The two remaining teams have been the outstanding sides in the Champions League, so we could not have asked for a more fitting final`\
+https://nytimes.com/athletic/6340884/2025/05/08/psg-inter-champions-league-final/
+
 **Smokey Robinson’s Lawyer Calls Sexual Assault Claims ‘Vile’ and ‘False’**\
 `Four women have accused the Motown legend of sexually assaulting them while they worked as housekeepers.`\
 https://nytimes.com/2025/05/08/us/smokey-robinson-sexual-assault-lawyer.html
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/6341572/2025/05/08/celtics-knicks-nba-playoffs-game
 `Mikel Arteta needs the sort of clinical firepower that PSG can call upon — it's a gap that must be addressed this summer`\
 https://nytimes.com/athletic/6341217/2025/05/08/arsenal-champions-league-squad-rebuild-psg/
 
-**PSG deserve to be in the Champions League final - they are Europe's most complete team**\
-`A huge part of the French team's success is their ability to beat opponents in a variety of ways, something others are less able to do`\
+**PSG are Europe's most complete team - no other side can win games in such a variety of ways**\
+`A huge part of the French team's success is their ability to beat opponents using different approaches, something others are less able to do`\
 https://nytimes.com/athletic/6341107/2025/05/08/psg-champions-league-final/
 
 **Padres' Dylan Cease, after no-hit bid and forearm scare, optimistic about 'freak cramp'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6340642/2025/05/08/padres-dylan-cease-no-hit-bid-cr
 **Celtics face identity crisis as Tatum, Brown can't overcome another shooting collapse**\
 `The Celtics collapsed yet again, falling into an 0-2 hole and an identity crisis that will decide whether their title defense ends early.`\
 https://nytimes.com/athletic/6341538/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-identity-crisis-game-2/
-
-**No phones, no internet: The cardinals vote in extreme secrecy.**\
-`By Bernhard Warner`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-vote-secret-technology-banned-security
 
