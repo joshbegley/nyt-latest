@@ -1,3 +1,15 @@
+**How to Know if Toxic Sewage Sludge Has Been Used in Your Community**\
+`Fertilizer containing potentially unsafe levels of “forever chemicals” has been used around the country.`\
+https://nytimes.com/2025/05/08/climate/sewage-sludge-pfas-your-community.html
+
+**Bison Gores Man in Yellowstone National Park**\
+`The man, who had approached the animal, sustained minor injuries.`\
+https://nytimes.com/2025/05/08/us/bison-attack-yellowstone-national-park.html
+
+**Here’s the latest.**\
+`Robert Francis Prevost, who led the Vatican office that selects and manages bishops globally, has spent much of his life outside the United States.`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-robert-francis-prevost
+
 **New York City Predicted Record Tourism. Then Came Trump.**\
 `The city’s tourism agency revised its 2025 forecast, with an estimated decline primarily driven by fewer foreign travelers.`\
 https://nytimes.com/2025/05/08/nyregion/nyc-tourism.html

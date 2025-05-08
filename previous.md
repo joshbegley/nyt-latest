@@ -1,3 +1,11 @@
+**How to Know if Toxic Sewage Sludge Has Been Used in Your Community**\
+`Fertilizer containing potentially unsafe levels of “forever chemicals” has been used around the country.`\
+https://nytimes.com/2025/05/08/climate/sewage-sludge-pfas-your-community.html
+
+**Bison Gores Man in Yellowstone National Park**\
+`The man, who had approached the animal, sustained minor injuries.`\
+https://nytimes.com/2025/05/08/us/bison-attack-yellowstone-national-park.html
+
 **New York City Predicted Record Tourism. Then Came Trump.**\
 `The city’s tourism agency revised its 2025 forecast, with an estimated decline primarily driven by fewer foreign travelers.`\
 https://nytimes.com/2025/05/08/nyregion/nyc-tourism.html
@@ -14,7 +22,7 @@ https://nytimes.com/2025/05/08/arts/design/independent-art-fair-review.html
 `Our critic samples booths from 25 countries and picks her seven favorites, including Chicago, Los Angeles, Paris, London and Seoul — and two nonprofits.`\
 https://nytimes.com/2025/05/08/arts/design/frieze-new-york-shed-review.html
 
-**Pope Leo XIV, Born in Chicago, Is the First American Pontiff**\
+**Here’s the latest.**\
 `Robert Francis Prevost, who led the Vatican office that selects and manages bishops globally, has spent much of his life outside the United States.`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-robert-francis-prevost
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/dining/tonights-dinner-is-bouncy.html
 **Brighton's Tom McGill signs new two-year contract**\
 `The goalkeeper was part of Canada's Copa America squad last year but has yet to make his debut for his country.`\
 https://nytimes.com/athletic/6342539/2025/05/08/brighton-news-mcgill-contract/
-
-**Pirates fire manager Derek Shelton after 12-26 start, promote Don Kelly**\
-`The Pirates never finished with a winning record under Shelton, and he exits the role with a record of 306-440.`\
-https://nytimes.com/athletic/6342517/2025/05/08/derek-shelton-pirates-manager-fired-don-kelly/
-
-**Actualizaciones de los periodistas**\
-`(No description)`\
-https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano/nuevo-papa-informes
 
