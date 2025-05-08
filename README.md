@@ -1,3 +1,7 @@
+**Who Is Dr. Casey Means?**\
+`Dr. Means, President Trump’s new pick for surgeon general, has focused on the prevalence of chronic diseases and called on the government to scale back on childhood vaccines.`\
+https://nytimes.com/2025/05/07/science/casey-means-trump-surgeon-general.html
+
 **Reds' Hunter Greene exits start vs. Braves after 3 innings with groin injury**\
 `Through the first three innings, Greene struck out six and gave up two hits without allowing a run. `\
 https://nytimes.com/athletic/6341261/2025/05/07/reds-hunter-greene-exits-groin-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/07/us/trump-news/voice-of-america-will-receive-
 **Flu Killed 25 Children in New York This Season, the Most in Many Years**\
 `Amid declining vaccination rates, the 2024-25 influenza season exacted a heavy toll, with 216 pediatric deaths nationwide.`\
 https://nytimes.com/2025/05/07/nyregion/flu-children-died.html
-
-**The Indian Aircraft Pakistan Says It Shot Down**\
-`Tensions between India and Pakistan have risen sharply in the weeks since a terrorist attack in Kashmir. On Wednesday, India hit Pakistan and appears to have lost at least a few planes in the strike.`\
-https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
 

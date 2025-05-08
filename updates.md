@@ -1,3 +1,7 @@
+**Reds' Hunter Greene exits start vs. Braves after 3 innings with groin injury**\
+`Through the first three innings, Greene struck out six and gave up two hits without allowing a run. `\
+https://nytimes.com/athletic/6341261/2025/05/07/reds-hunter-greene-exits-groin-injury/
+
 **Courts Must ‘Check the Excesses’ of Congress and the President, Roberts Says**\
 `The chief justice, in rare public remarks, defended judicial independence before a crowd of lawyers and judges.`\
 https://nytimes.com/2025/05/07/us/politics/supreme-court-roberts-judicial-independence.html
