@@ -1,10 +1,18 @@
+**The Moment Pope Leo XIV Emerged on the Balcony**\
+`Crowds gathered in St. Peter’s Square — and around the world — to see who had been elected as Pope Francis’ successor.`\
+https://nytimes.com/2025/05/08/world/europe/new-pope-crowds-celebrate-balcony.html
+
+**8 Standout Booths at Independent**\
+`The art fair has completed its transition from boutique outlier to art world institution.`\
+https://nytimes.com/2025/05/08/arts/design/independent-art-fair-review.html
+
 **Frieze New York Is Smaller but Still Packs a Global Punch**\
 `Our critic samples booths from 25 countries and picks her seven favorites, including Chicago, Los Angeles, Paris, London and Seoul — and two nonprofits.`\
 https://nytimes.com/2025/05/08/arts/design/frieze-new-york-shed-review.html
 
 **Pope Leo XIV, Born in Chicago, Is the First American Pontiff**\
 `Robert Francis Prevost, who led the Vatican office that selects and manages bishops globally, has spent much of his life outside the United States.`\
-https://nytimes.com/2025/05/08/world/europe/pope-leo-xvi-born-in-chicago-is-the-first-american-pontiff.html
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-robert-francis-prevost
 
 **Encompassing the Diaspora at the 1-54 Fair**\
 `A critic’s pick of galleries from Africa and the Caribbean offer exciting and haunting work.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano/nuevo-papa-infor
 **In ‘Hamlet Hail to the Thief,’ Radiohead Riffs on Shakespeare**\
 `The band’s frontman, Thom Yorke, created a show with the Royal Shakespeare Company that is both admirably ambitious and a little foolish.`\
 https://nytimes.com/2025/05/08/theater/hamlet-hail-to-the-thief-radiohead.html
-
-**Ballon d’Or odds: Dembélé now the favourite ahead of Yamal**\
-`Ousmane Dembélé has emerged as the favourite to win the Ballon d'Or after PSG made the Champions League final.`\
-https://nytimes.com/athletic/6342431/2025/05/08/ballon-dor-odds-ousmane-dembele-lamine-yamal/
-
-**Fantasy baseball bullpen report features concerns for Ryan Pressly and Carlos Estévez**\
-`Greg Jewett shines a spotlight on all the notable developments across MLB bullpens, including Ryan Pressly's concerning strikeout rate.`\
-https://nytimes.com/athletic/6342350/2025/05/08/fantasy-baseball-bullpen-report-closer-concern-pressly-estevez/
 

@@ -1,3 +1,15 @@
+**Frieze New York Is Smaller but Still Packs a Global Punch**\
+`Our critic samples booths from 25 countries and picks her seven favorites, including Chicago, Los Angeles, Paris, London and Seoul — and two nonprofits.`\
+https://nytimes.com/2025/05/08/arts/design/frieze-new-york-shed-review.html
+
+**Pope Leo XIV, Born in Chicago, Is the First American Pontiff**\
+`Robert Francis Prevost, who led the Vatican office that selects and manages bishops globally, has spent much of his life outside the United States.`\
+https://nytimes.com/2025/05/08/world/europe/pope-leo-xvi-born-in-chicago-is-the-first-american-pontiff.html
+
+**Actualizaciones de los periodistas**\
+`(No description)`\
+https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano/nuevo-papa-informes
+
 **Encompassing the Diaspora at the 1-54 Fair**\
 `A critic’s pick of galleries from Africa and the Caribbean offer exciting and haunting work.`\
 https://nytimes.com/2025/05/08/arts/design/1-54-fair-art-review.html
