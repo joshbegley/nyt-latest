@@ -1,40 +1,40 @@
+**Mikko Rantanen records another hat trick, Stars edge Jets in Game 1: Takeaways**\
+`Rantanen scored three goals in the second period as Dallas earned a rare opening-game victory.`\
+https://nytimes.com/athletic/6341370/2025/05/08/jets-stars-game-1/
+
+**Why do Liverpool not score from free kicks - and who should take them now?**\
+`The 2024-25 league champions are yet to score a free kick this season and will need a new taker when Trent Alexander-Arnold leaves`\
+https://nytimes.com/athletic/6338126/2025/05/08/liverpool-free-kicks-goals/
+
+**Fantasy Premier League: The players and teams to target in Gameweek 36**\
+`Motivation matters between now and the end of the season in FPL. Holly Shand identifies the teams to target when making transfers`\
+https://nytimes.com/athletic/6339169/2025/05/08/fantasy-premier-league-gameweek-36-teams-target/
+
+**How Forest's academy is trying to find the next homegrown stars for Nuno's squad**\
+`Nottingham Forest's bid to return to European football means the bar has again been raised for their academy. So how are they coping?`\
+https://nytimes.com/athletic/6340104/2025/05/08/nottingham-forest-academy-abbott/
+
+**What we're hearing on Villa's busy summer transfer window**\
+`Villa's summer plans will be dictated by their final league position - but whatever happens it is going to be busy for Emery and his staff`\
+https://nytimes.com/athletic/6339154/2025/05/08/aston-villa-transfer-window-watkins-martinez-nypan-garcia/
+
+**Leicester City squad audit: Who should stay and who should go?**\
+`As Leicester prepare for life back in the Championship, The Athletic has assessed what the future holds for all of the first-team squad`\
+https://nytimes.com/athletic/6339279/2025/05/08/leicester-city-squad-audit-who-should-stay-and-who-should-go/
+
+**Tottenham have altered their approach in Europe. So far, it's working**\
+`In theory, Spurs like to dominate possession, but most of their best results this season have come when they hit teams on the counter`\
+https://nytimes.com/athletic/6339605/2025/05/08/tottenham-postecoglou-tactics-europa/
+
+**Carlos Correa hitting more than ever to escape early slump: 'I'm not going to stop working'**\
+`Though the first 37 games of his season were filled with trying moments, Correa refuses to let the weight of it crush him.`\
+https://nytimes.com/athletic/6341407/2025/05/08/carlos-correa-hitting-slump-joe-ryan-scratched/
+
+**Watching Raphinha in the Champions League semi-final with Leeds supporters**\
+`He may play his games 875 miles away from Elland Road these days, but Raphinha will always have a home in West Yorkshire`\
+https://nytimes.com/athletic/6339781/2025/05/08/raphinha-watchalong-champions-league-leeds/
+
 **Eliezer Mayenda: 'With patience, we can do something here at Sunderland'**\
 `The youngster has lived in three countries, played in four leagues, speaks five languages and has been key to this season's promotion drive`\
 https://nytimes.com/athletic/6337456/2025/05/08/mayenda-sunderland-interview/
-
-**Joseph Woll, Leafs starter, makes a triumphant return in Game 2**\
-`Woll's last start was on April 17 in a meaningless regular-season game. That didn't faze him against the Panthers.`\
-https://nytimes.com/athletic/6341427/2025/05/08/joseph-woll-maple-leafs-starter-nhl-playoffs/
-
-**How the Club World Cup could stretch football's elite to breaking point**\
-`The sport's calendar has never been as congested as this summer - so what could be the impact?`\
-https://nytimes.com/athletic/6339720/2025/05/08/club-world-cup-player-workload/
-
-**The identical twins bamboozling their opponents, team-mates and coach**\
-`Being at the same club is not a contractual obligation for Karen and Sara Holmgaard but somehow they always end up together`\
-https://nytimes.com/athletic/6332579/2025/05/08/sara-karen-holmgaard-twins-everton-denmark/
-
-**Sommer's display against Barcelona had everything: Elite positioning, balance and raw athleticism**\
-`He conceded six goals in two matches but Inter owe their place in the Champions League final to their under-rated goalkeeper Yann Sommer`\
-https://nytimes.com/athletic/6340318/2025/05/08/yann-sommer-inter-barcelona-champions-league/
-
-**Michael Harris II's stats have declined steadily since rookie year, but Braves still believe**\
-`Regardless of his .216 batting average, Harris can and does impact games in multiple ways, manager Brian Snitker said.`\
-https://nytimes.com/athletic/6341365/2025/05/08/michael-harris-ii-stats-braves-reds/
-
-**Osaka sagaNaomi Osaka found her tennis down the WTA Tour ladder. She found a mindset too**\
-`The former world No. 1 has adopted various mindsets throughout her return to tennis. She's still searching for the best one.`\
-https://nytimes.com/athletic/6340817/2025/05/08/tennis-naomi-osaka-form-mindset/
-
-**Europe Alone and in Shock on V-E Day**\
-`On the 80th anniversary of Nazi Germany’s defeat, echoes of tyrannies past shake a continent that is trying to find its footing in the face of President Trump’s hostility.`\
-https://nytimes.com/2025/05/08/world/europe/europe-ve-day-trump.html
-
-**Tate Modern Is the Museum of the Century (Like It or Not)**\
-`The London institution, which turns 25 this week, encouraged its peers to look beyond the West. But its greatest impact was to remake the art museum into a kind of theme park.`\
-https://nytimes.com/2025/05/08/arts/design/tate-modern-25-anniversary.html
-
-**Trump’s Threat of ‘Foreign’ Film Tariffs Stirs Anxiety in the U.K.**\
-`After struggling through pandemic shutdowns and twin Hollywood strikes, the British film and TV industry is worried that duties will wreak devastation.`\
-https://nytimes.com/2025/05/08/business/trump-movie-tariffs-uk.html
 

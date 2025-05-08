@@ -1,3 +1,39 @@
+**Mikko Rantanen records another hat trick, Stars edge Jets in Game 1: Takeaways**\
+`Rantanen scored three goals in the second period as Dallas earned a rare opening-game victory.`\
+https://nytimes.com/athletic/6341370/2025/05/08/jets-stars-game-1/
+
+**Why do Liverpool not score from free kicks - and who should take them now?**\
+`The 2024-25 league champions are yet to score a free kick this season and will need a new taker when Trent Alexander-Arnold leaves`\
+https://nytimes.com/athletic/6338126/2025/05/08/liverpool-free-kicks-goals/
+
+**Fantasy Premier League: The players and teams to target in Gameweek 36**\
+`Motivation matters between now and the end of the season in FPL. Holly Shand identifies the teams to target when making transfers`\
+https://nytimes.com/athletic/6339169/2025/05/08/fantasy-premier-league-gameweek-36-teams-target/
+
+**How Forest's academy is trying to find the next homegrown stars for Nuno's squad**\
+`Nottingham Forest's bid to return to European football means the bar has again been raised for their academy. So how are they coping?`\
+https://nytimes.com/athletic/6340104/2025/05/08/nottingham-forest-academy-abbott/
+
+**What we're hearing on Villa's busy summer transfer window**\
+`Villa's summer plans will be dictated by their final league position - but whatever happens it is going to be busy for Emery and his staff`\
+https://nytimes.com/athletic/6339154/2025/05/08/aston-villa-transfer-window-watkins-martinez-nypan-garcia/
+
+**Leicester City squad audit: Who should stay and who should go?**\
+`As Leicester prepare for life back in the Championship, The Athletic has assessed what the future holds for all of the first-team squad`\
+https://nytimes.com/athletic/6339279/2025/05/08/leicester-city-squad-audit-who-should-stay-and-who-should-go/
+
+**Tottenham have altered their approach in Europe. So far, it's working**\
+`In theory, Spurs like to dominate possession, but most of their best results this season have come when they hit teams on the counter`\
+https://nytimes.com/athletic/6339605/2025/05/08/tottenham-postecoglou-tactics-europa/
+
+**Carlos Correa hitting more than ever to escape early slump: 'I'm not going to stop working'**\
+`Though the first 37 games of his season were filled with trying moments, Correa refuses to let the weight of it crush him.`\
+https://nytimes.com/athletic/6341407/2025/05/08/carlos-correa-hitting-slump-joe-ryan-scratched/
+
+**Watching Raphinha in the Champions League semi-final with Leeds supporters**\
+`He may play his games 875 miles away from Elland Road these days, but Raphinha will always have a home in West Yorkshire`\
+https://nytimes.com/athletic/6339781/2025/05/08/raphinha-watchalong-champions-league-leeds/
+
 **Eliezer Mayenda: 'With patience, we can do something here at Sunderland'**\
 `The youngster has lived in three countries, played in four leagues, speaks five languages and has been key to this season's promotion drive`\
 https://nytimes.com/athletic/6337456/2025/05/08/mayenda-sunderland-interview/
