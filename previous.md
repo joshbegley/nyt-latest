@@ -1,3 +1,11 @@
+**Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
+https://nytimes.com/athletic/6338729/2025/05/08/ross-chastain-nascar-talladega-move-12-questions/
+
+**Age could be key to deciding the next pope.**\
+`By Jason Horowitz and Emma Bubola`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/next-pope-age-papal-conclave
+
 **Here’s the latest.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/t-magazine/paris-grand-palais-restaurant.html
 **Olympic silver medalist rugby player dies in road accident aged 30**\
 `His death was announced by his club, French team Castres Olympique, on Thursday afternoon.`\
 https://nytimes.com/athletic/6342008/2025/05/08/josaia-raisuqe-death-fiji-rugby/
-
-**State of the farm: How Canucks’ top prospects fit on the NHL roster next season**\
-`Which Canucks prospects are ready to break through? What can the club count on internally when planning for next season?`\
-https://nytimes.com/athletic/6341643/2025/05/08/canucks-prospects-nhl-roster-analysis/
-
-**Who might replace Rob Blake as Kings GM? 13 possible candidates**\
-`Luc Robitaille said Blake "left this franchise in great shape." But now who will take over?`\
-https://nytimes.com/athletic/6341344/2025/05/08/la-kings-gm-candidates/
 

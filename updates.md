@@ -1,3 +1,11 @@
+**Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
+https://nytimes.com/athletic/6338729/2025/05/08/ross-chastain-nascar-talladega-move-12-questions/
+
+**Age could be key to deciding the next pope.**\
+`By Jason Horowitz and Emma Bubola`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/next-pope-age-papal-conclave
+
 **Here’s the latest.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/heres-the-latest
