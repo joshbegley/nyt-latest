@@ -1,3 +1,23 @@
+**Why the Fed’s Waiting Game on Rate Cuts Could Extend Until September**\
+`Economists have shifted back their forecasts for lower borrowing costs as President Trump’s tariffs raised the risk of higher inflation and slower growth.`\
+https://nytimes.com/2025/05/08/business/fed-interest-rate-cuts.html
+
+**Sewage Sludge Fertilizer From Maryland? Virginians Say No Thanks.**\
+`Maryland has restricted use of the toxic fertilizer. A plan to send more to Virginia has sparked fears of contaminated farms and fisheries.`\
+https://nytimes.com/2025/05/08/climate/sewage-sludge-fertilizer-virginia-maryland-pfas-forever-chemicals.html
+
+**What were Arsenal the best at in the Champions League?**\
+`Arteta is rightly proud of Arsenal's Champions League run, but what does the data say about where they rank among the best performers?`\
+https://nytimes.com/athletic/6342123/2025/05/08/arsenal-best-champions-league/
+
+**Five Pencils for You. Infinite Luxuries for the Trumps.**\
+`Americans skimp while their president splurges.`\
+https://nytimes.com/2025/05/08/opinion/trump-crypto-corruption.html
+
+**U.S. and British Leaders Celebrate Agreement on Trade Framework**\
+`President Trump and Prime Minister Keir Starmer announced an agreement for a trade framework over speaker phone.`\
+https://nytimes.com/video/us/politics/100000010157215/us-and-british-leaders-celebrate-agreement-on-trade-framework.html
+
 **U.S. and British Leaders Celebrate Agreement on Trade Framework**\
 `President Trump and Prime Minister Keir Starmer announced an agreement for a trade framework over speaker phone.`\
 https://nytimes.com/video/us/politics/100000010157215/us-british-trade-agreement-framework.html
