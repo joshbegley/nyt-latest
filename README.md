@@ -1,3 +1,11 @@
+**Google YouTube favored to stream exclusive NFL game for first time: Sources**\
+`The announcement is likely to come next week as NFL continues to increase its relationships with digital partners.`\
+https://nytimes.com/athletic/6343331/2025/05/08/nfl-streaming-google-youtube-partnership-2025/
+
+**‘Nonnas’ Review: Oversauced**\
+`Vince Vaughn plays a restaurant owner who hires Italian grandmothers to cook for him in this corn-filled gabagool.`\
+https://nytimes.com/2025/05/08/movies/nonnas-review-oversauced.html
+
 **Rafael Devers upset by request he move to first base**\
 `With eight more years left on his 10-year, $313.5 million contract extension, Devers and the Red Sox seem to be at a crossroads.`\
 https://nytimes.com/athletic/6343319/2025/05/08/red-sox-rafael-devers-first-base-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/american-church-lea
 **The Pope Is a Graduate of Villanova, Where the Church Bells Won’t Stop Ringing**\
 `The private Catholic university in the suburbs of Philadelphia has a new most famous alumnus.`\
 https://nytimes.com/2025/05/08/world/europe/villanova-pope-leo-xiv.html
-
-**Alexander Brothers Face More Sex Crimes, Including Against Underage Girl**\
-`Prosecutors added more charges in the sex-trafficking case against Oren and Tal Alexander, who were known as top brokers in luxury real estate, and their brother Alon Alexander.`\
-https://nytimes.com/2025/05/08/realestate/alexander-brothers-charges-sex-crimes.html
-
-**‘He Checked All the Boxes.’ Pope Leo XIV Overcame a Liability — Being American.**\
-`Before he was chosen, Robert Francis Prevost had the papal seal of approval from his predecessor, Francis, who put him in one of the top jobs in the Roman Catholic Church.`\
-https://nytimes.com/2025/05/08/world/europe/pope-leo-cardinal-prevost-obstacles.html
 
