@@ -1,3 +1,7 @@
+**E.M. fights back in contentious cross-examination during Hockey Canada trial**\
+`Testy exchanges, disagreements between lawyers and E.M. highlight day of cross-examination in Hockey Canada trial.`\
+https://nytimes.com/athletic/6342283/2025/05/08/hockey-canada-sexual-assault-trial-em-cross-examination-3/
+
 **Cubs set to call up top pitching prospect Cade Horton: Source**\
 `At No. 7, Horton became the first pitcher the Cubs drafted with a top-10 pick since Mark Prior in 2001.`\
 https://nytimes.com/athletic/6343108/2025/05/08/chicago-cubs-cade-horton-call-up/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342306/2025/05/08/cowboys-george-pickens-ceedee-la
 **New Pope Declares Church Should Receive Everyone With ‘Open Arms’**\
 `On the second day of the conclave, the Chicago-born Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church.`\
 https://nytimes.com/video/world/100000010158152/first-american-pope-robert-prevost.html
-
-**What we can learn from Manchester United and Tottenham's three previous games this season**\
-`Analysing every meeting between the teams in this campaign for any clues ahead of their showdown in Bilbao on May 21`\
-https://nytimes.com/athletic/6342448/2025/05/08/man-united-tottenham-europa-league-final/
 

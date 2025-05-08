@@ -1,3 +1,7 @@
+**E.M. fights back in contentious cross-examination during Hockey Canada trial**\
+`Testy exchanges, disagreements between lawyers and E.M. highlight day of cross-examination in Hockey Canada trial.`\
+https://nytimes.com/athletic/6342283/2025/05/08/hockey-canada-sexual-assault-trial-em-cross-examination-3/
+
 **Cubs set to call up top pitching prospect Cade Horton: Source**\
 `At No. 7, Horton became the first pitcher the Cubs drafted with a top-10 pick since Mark Prior in 2001.`\
 https://nytimes.com/athletic/6343108/2025/05/08/chicago-cubs-cade-horton-call-up/
