@@ -1,3 +1,11 @@
+**Trump Declares High-Speed Internet Program ‘Racist’ and ‘Unconstitutional’**\
+`President Trump denounced the Biden-era Digital Equity Act as “woke handouts based on race,” raging in a social media post against a broad effort to improve high-speed internet access.`\
+https://nytimes.com/2025/05/08/us/politics/trump-biden-digital-equity-act.html
+
+**The New Pope Might Be Something Like the Old Pope**\
+`The conservative ire that has roiled Catholicism during the previous pontificate is likely to continue with this first American pope.`\
+https://nytimes.com/2025/05/08/opinion/conclave-pope-leo-xiv-catholic-church.html
+
 **Google YouTube favored to stream exclusive NFL game for first time: Sources**\
 `The announcement is likely to come next week as NFL continues to increase its relationships with digital partners.`\
 https://nytimes.com/athletic/6343331/2025/05/08/nfl-streaming-google-youtube-partnership-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6343192/2025/05/08/robert-saleh-49ers-defense-rebui
 **Trump Names Jeanine Pirro as Interim U.S. Attorney in Washington**\
 `The Fox News personality has known the president for decades and would provide him with a reliable line into a crucial prosecutors office in the Justice Department.`\
 https://nytimes.com/2025/05/08/us/politics/jeanine-pirro-us-attorney-trump.html
-
-**American church leaders signal support for Leo XIV and for continuation of Francis’ priorities.**\
-`By Elizabeth Dias`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/american-church-leaders-signal-support-for-leo-xiv-and-for-continuation-of-francis-priorities
-
-**The Pope Is a Graduate of Villanova, Where the Church Bells Won’t Stop Ringing**\
-`The private Catholic university in the suburbs of Philadelphia has a new most famous alumnus.`\
-https://nytimes.com/2025/05/08/world/europe/villanova-pope-leo-xiv.html
 

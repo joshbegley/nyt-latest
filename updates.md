@@ -1,3 +1,19 @@
+**Google YouTube favored to stream exclusive NFL game for first time: Sources**\
+`The announcement is likely to come next week as NFL continues to increase its relationships with digital partners.`\
+https://nytimes.com/athletic/6343331/2025/05/08/nfl-streaming-google-youtube-partnership-2025/
+
+**‘Nonnas’ Review: Oversauced**\
+`Vince Vaughn plays a restaurant owner who hires Italian grandmothers to cook for him in this corn-filled gabagool.`\
+https://nytimes.com/2025/05/08/movies/nonnas-review-oversauced.html
+
+**Rafael Devers upset by request he move to first base**\
+`With eight more years left on his 10-year, $313.5 million contract extension, Devers and the Red Sox seem to be at a crossroads.`\
+https://nytimes.com/athletic/6343319/2025/05/08/red-sox-rafael-devers-first-base-reaction/
+
+**Trump Names Jeanine Pirro as Interim U.S. Attorney in Washington**\
+`The Fox News personality has known the president for decades and would provide him with a reliable line into a crucial prosecutors office in the Justice Department.`\
+https://nytimes.com/2025/05/08/us/politics/jeanine-pirro-us-attorney-trump.html
+
 **Pope Leo XIV Has Voted Often in Illinois, Public Records Show**\
 `He voted in November’s presidential election with an absentee ballot, according to records from a suburban Chicago county.`\
 https://nytimes.com/2025/05/08/us/pope-leo-xiv-politics-voting.html
