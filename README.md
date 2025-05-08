@@ -1,3 +1,15 @@
+**The Windup: Was Padres/Yankees a WS preview?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6341557/2025/05/08/padres-yankees-world-series-the-windup/
+
+**In Israel’s Demolition Path, West Bank Residents Pack Up Their Lives**\
+`A monthslong Israeli military operation in the northern West Bank has displaced tens of thousands of people. Some are now learning they may not return.`\
+https://nytimes.com/2025/05/08/world/middleeast/israel-demolition-west-bank.html
+
+**Appraisal Trade Group Accused of Covering Up Sexual Harassment and Test Flaws**\
+`The Appraisal Institute faces concerns that one of its leaders has a history of harassing women and that it did not disclose that some certification exams were incorrectly scored.`\
+https://nytimes.com/2025/05/08/realestate/appraisal-institute-sexual-harassment-exam-flaws.html
+
 **Here are 7 key issues dividing the Roman Catholic Church.**\
 `By Motoko Rich`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issues-dividing-the-roman-catholic-church
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6332720/2025/05/08/tennis-french-open-us-tv-how-to-
 **Coco Chanel’s French Riviera Home Comes Back to Life**\
 `The newly restored house still conjures the designer’s unfussy elegance.`\
 https://nytimes.com/2025/05/08/t-magazine/coco-chanel-la-pausa.html
-
-**Lessons From World War II to Avoid World War III**\
-`The lessons from World War II are critical for understanding how to restore and maintain long-term peace and security in Europe today.`\
-https://nytimes.com/2025/05/08/opinion/world-war-2-europe-peace.html
-
-**Are U.S. Tariffs Affecting Your Business? We Want to Hear From You.**\
-`The New York Times wants to hear from European business owners about how they are navigating the uncertainty of President Trump’s tariffs.`\
-https://nytimes.com/2025/05/08/business/trump-tariffs-europe-small-businesses.html
-
-**Interest in the ‘Conclave’ movie has soared. How accurate is it?**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/conclave-movie-new-pope-vote
 
