@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/heres-the-latest
+
 **Would You Buy Your Diamond Engagement Ring at Walmart?**\
 `The popularity of synthetic stones has sent the market for natural diamonds crashing. With consumers confused about how to tell the difference, how can a market leader like De Beers regain its sparkle?`\
 https://nytimes.com/2025/05/08/style/synthetic-diamonds-engagement-rings-de-beers-walmart-.html

@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/heres-the-latest
+
 **Would You Buy Your Diamond Engagement Ring at Walmart?**\
 `The popularity of synthetic stones has sent the market for natural diamonds crashing. With consumers confused about how to tell the difference, how can a market leader like De Beers regain its sparkle?`\
 https://nytimes.com/2025/05/08/style/synthetic-diamonds-engagement-rings-de-beers-walmart-.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341643/2025/05/08/canucks-prospects-nhl-roster-ana
 **Who might replace Rob Blake as Kings GM? 13 possible candidates**\
 `Luc Robitaille said Blake "left this franchise in great shape." But now who will take over?`\
 https://nytimes.com/athletic/6341344/2025/05/08/la-kings-gm-candidates/
-
-**Tennis fans are ready for a revolution that will be televised. Will the French Open provide it?**\
-`Warner Bros. Discovery's $650 million deal for 10 years of French Open coverage aims to bring together two poles of tennis media. Can it?`\
-https://nytimes.com/athletic/6332720/2025/05/08/tennis-french-open-us-tv-how-to-watch-tnt-streaming/
 
