@@ -1,3 +1,11 @@
+**The Athletic FC: Romance in Paris? Beckham and Neville's Salford plan, Spurs tickets for fish**\
+`Today in TAFC: Paris become Europe's sweethearts, Beckham and Neville team up in Salford, Carli Lloyd opens up, reindeer meat for tickets?`\
+https://nytimes.com/athletic/6341771/2025/05/08/psg-arsenal-champions-league-beckham-neville-salford/
+
+**An Entertainment Tax**\
+`Why Hollywood recently got the Trump tariff treatment.`\
+https://nytimes.com/2025/05/08/briefing/trump-movie-tariffs.html
+
 **Overnight Clashes Strain a Diplomatic Push Between India and Pakistan**\
 `The United States and other regional players converged to try to head off war between the neighboring nuclear powers. But more clashes seemed to keep hostilities roiling.`\
 https://nytimes.com/2025/05/08/world/asia/india-pakistan-diplomacy-kashmir.html

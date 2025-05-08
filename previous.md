@@ -1,3 +1,11 @@
+**The Athletic FC: Romance in Paris? Beckham and Neville's Salford plan, Spurs tickets for fish**\
+`Today in TAFC: Paris become Europe's sweethearts, Beckham and Neville team up in Salford, Carli Lloyd opens up, reindeer meat for tickets?`\
+https://nytimes.com/athletic/6341771/2025/05/08/psg-arsenal-champions-league-beckham-neville-salford/
+
+**An Entertainment Tax**\
+`Why Hollywood recently got the Trump tariff treatment.`\
+https://nytimes.com/2025/05/08/briefing/trump-movie-tariffs.html
+
 **Overnight Clashes Strain a Diplomatic Push Between India and Pakistan**\
 `The United States and other regional players converged to try to head off war between the neighboring nuclear powers. But more clashes seemed to keep hostilities roiling.`\
 https://nytimes.com/2025/05/08/world/asia/india-pakistan-diplomacy-kashmir.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6338736/2025/05/08/nba-playoffs-physicality-stats-2
 **2025 MLB Mock Draft 1.0: Ethan Holliday goes to Washington ... for now**\
 `An early look at who teams might be targeting in the first round, from the Nationals at No. 1 to the Guardians at No. 27.`\
 https://nytimes.com/athletic/6337620/2025/05/08/mlb-mock-draft-2025-ethan-holliday/
-
-**This Week in Sports Trivia: May 8, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6340904/2025/05/08/this-week-in-sports-trivia-may-8-2025/
-
-**The future of the Mets offense is at Coney Island: A night with the Brooklyn Cyclones**\
-`Organizational stability paved the way for better teaching process in the minors: "There are just more people speaking the same language."`\
-https://nytimes.com/athletic/6340622/2025/05/08/mets-prospects-brooklyn-cyclones-2/
 
