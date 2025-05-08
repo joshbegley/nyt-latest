@@ -1,3 +1,11 @@
+**Preakness gets squeezed again with Sovereignty forgoing Triple Crown**\
+`Competing for your sport's highest achievement shouldn't be a question, but for horse racing's Triple Crown, it's not that simple. `\
+https://nytimes.com/athletic/6342254/2025/05/08/preakness-2025-sovereignty-triple-crown/
+
+**If you want to be pope, it helps not to act like it.**\
+`By Jason Horowitz and Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/if-you-want-to-be-pope-it-helps-not-to-act-like-it
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your weekly opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6341856/2025/05/08/ask-ornstein-qa-our-football-insider-answers-your-questions-26/
