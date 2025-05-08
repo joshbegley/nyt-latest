@@ -1,3 +1,7 @@
+**Trump Revives Push for Higher Taxes on the Rich**\
+`The president is said to want to create a new top income bracket for people making more than $2.5 million per year and to tax income above that level at a rate of 39.6 percent.`\
+https://nytimes.com/2025/05/08/us/politics/trump-new-tax-bracket.html
+
 **The Briefing: Man Utd 4 Athletic Club 1 (7-1 agg) - Mount scores twice as United book Europa League final spot**\
 `Laurie Whitwell, Anantaajith Raghuraman and Thom Harris break down Manchester United's 4-1 Europa League semi-final win over Athletic Club`\
 https://nytimes.com/athletic/6339284/2025/05/08/man-utd-4-athletic-club-1-mason-mount-casemiro-europa-league/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-fact-sheet-on-the
 **The Pentagon’s Culture Wars Strike West Point**\
 `A Jan. 29 order from Defense Secretary Pete Hegseth led to canceled classes, book bans and an argument about American greatness.`\
 https://nytimes.com/2025/05/08/us/politics/west-point-hegseth-culture-wars.html
-
-**A Year Ago, Columbia Security Was Hands-Off at a Protest. Not This Time.**\
-`When demonstrators occupied the university’s main library on Wednesday, campus security forces intervened aggressively. The occupation ended with arrests hours later.`\
-https://nytimes.com/2025/05/08/nyregion/columbia-library-occupation.html
 

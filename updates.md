@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 4 Athletic Club 1 (7-1 agg) - Mount scores twice as United book Europa League final spot**\
+`Laurie Whitwell, Anantaajith Raghuraman and Thom Harris break down Manchester United's 4-1 Europa League semi-final win over Athletic Club`\
+https://nytimes.com/athletic/6339284/2025/05/08/man-utd-4-athletic-club-1-mason-mount-casemiro-europa-league/
+
 **Transportation Secretary Unveils Plan to Overhaul of Aging Air-Traffic Systems**\
 `Officials promised to replace derelict equipment with state-of-the-art technology but said funding was dependent on Congress.`\
 https://nytimes.com/2025/05/08/us/politics/sean-duffy-air-traffic-control.html
