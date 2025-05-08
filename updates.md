@@ -1,3 +1,11 @@
+**Putin and Xi Present a United Front as They Face an Unpredictable Trump**\
+`The two leaders, meeting in Moscow, hailed their alliance a day ahead of commemorative events to mark the end of World War II.`\
+https://nytimes.com/2025/05/08/world/europe/putin-and-xi-present-a-united-front-as-they-face-an-unpredictable-trump.html
+
+**Beckham and Neville lead new consortium taking over Salford**\
+`Beckham and Neville have joined forces with Declan Kelly and Lord Mervyn Davies at the League Two club.`\
+https://nytimes.com/athletic/6340647/2025/05/08/david-beckham-gary-neville-salford/
+
 **LeBrun: ‘So what?’ — Panthers unfazed by unfamiliar 0-2 hole against Leafs**\
 `The defending Stanley Cup champions are in foreign territory down 2-0 to Toronto in Round 2, but writing them off now would be foolish.`\
 https://nytimes.com/athletic/6341488/2025/05/08/panthers-maple-leafs-game-2-nhl-playoffs/
