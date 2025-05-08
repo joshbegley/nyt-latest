@@ -1,3 +1,7 @@
+**Jayson Tatum needs to save Celtics from fire after another collapse against Knicks**\
+`Boston is the first team in the play-by-play era to blow two 20-point leads in the same postseason.`\
+https://nytimes.com/athletic/6341645/2025/05/08/jayson-tatum-needs-to-save-celtics-from-fire-after-another-collapse-against-knicks/
+
 **For the Nuggets, Friday's Game 3 starts with matching the Thunder's physicality**\
 `OKC is one of the deepest, fastest and best defensive teams in the league. Denver has its work cut out for Game 3.`\
 https://nytimes.com/athletic/6341324/2025/05/08/nuggets-thunder-game-2/
