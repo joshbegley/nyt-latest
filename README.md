@@ -1,3 +1,11 @@
+**Late Night Anxiously Awaits the Unveiling of Trump’s Big News**\
+`“The Daily Show” host Desi Lydic said it “could be anything from ‘I’ve achieved peace in the Middle East’ to ‘I just tried bucatini, and I’m never going back to regular spaghetti.’”`\
+https://nytimes.com/2025/05/08/arts/television/late-night-trump-announcement.html
+
+**Word of the Day: unequivocal**\
+`This word has appeared in 155 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/08/learning/word-of-the-day-unequivocal.html
+
 **OpenAI Hires Instacart C.E.O. to Run Business and Operations**\
 `Sam Altman, OpenAI’s chief executive, said he hired Instacart’s Fidji Simo to join in a new role as chief executive of applications.`\
 https://nytimes.com/2025/05/08/technology/openai-fidji-simo.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-vote-secret-te
 **How Long Will the Conclave Take?**\
 `There is no formal time limit for cardinals to elect a pope. Past papal selections have lasted from a few hours to three years.`\
 https://nytimes.com/2025/05/08/world/europe/pope-conclave-how-long.html
-
-**Here’s the latest.**\
-`By Emma Bubola`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/heres-the-latest
-
-**Live Updates: Papal Conclave Enters 2nd Day**\
-`The Vatican conclave will continue with as many as four more rounds of voting. A two-thirds majority of the 133 cardinals is required to select a new leader for the world’s 1.4 billion Roman Catholics.`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news
 
