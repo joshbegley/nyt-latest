@@ -1,3 +1,7 @@
+**Encompassing the Diaspora at the 1-54 Fair**\
+`A critic’s pick of galleries from Africa and the Caribbean offer exciting and haunting work.`\
+https://nytimes.com/2025/05/08/arts/design/1-54-fair-art-review.html
+
 **Tonight’s Dinner Is Bouncy**\
 `Miso rice cakes with spinach and peas, sesame-brown butter udon and cheesy baked gnocchi are chewy, springy suppers.`\
 https://nytimes.com/2025/05/08/dining/tonights-dinner-is-bouncy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/georgia-senate-republican-buddy-carte
 **What’s in a (pope’s) name?**\
 `When selecting a name, popes often look to history and make a choice imbued with personal meaning. The decision can also signal the direction a pontificate might take.`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/new-pope-name
-
-**Biden Defends His Mental Acuity and Blames Sexism for Harris’s Defeat**\
-`On ABC’s “The View,” the former president dismissed reports that he had declined while in office and said he had not been surprised that Kamala Harris lost the election, citing the role of sexism.`\
-https://nytimes.com/2025/05/08/us/politics/biden-harris-the-view-trump.html
 
