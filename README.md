@@ -1,3 +1,7 @@
+**Video games, bullying and friendship: Knicks' Mikal Bridges has mastered adversity**\
+`Bridges continues to show his mental toughness, and it has led to the Knicks being up 2-0 over Boston.`\
+https://nytimes.com/athletic/6341369/2025/05/08/knicks-celtics-mikal-bridges-adversity/
+
 **With his 200th career homer, Alex Bregman helps Red Sox snap losing skid**\
 `For how much the Red Sox have struggled of late, Wednesday had the makings of game that could propel them in the right direction.`\
 https://nytimes.com/athletic/6341390/2025/05/08/alex-bregman-200-homers-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6339605/2025/05/08/tottenham-postecoglou-tactics-eu
 **Carlos Correa hitting more than ever to escape early slump: 'I'm not going to stop working'**\
 `Though the first 37 games of his season were filled with trying moments, Correa refuses to let the weight of it crush him.`\
 https://nytimes.com/athletic/6341407/2025/05/08/carlos-correa-hitting-slump-joe-ryan-scratched/
-
-**Watching Raphinha in the Champions League semi-final with Leeds supporters**\
-`He may play his games 875 miles away from Elland Road these days, but Raphinha will always have a home in West Yorkshire`\
-https://nytimes.com/athletic/6339781/2025/05/08/raphinha-watchalong-champions-league-leeds/
 
