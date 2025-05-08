@@ -1,3 +1,7 @@
+**Quote of the Day: Spacecraft Lost in 1972 Is Coming Back to Earth**\
+`Quotation of the Day for Thursday, May 8, 2025.`\
+https://nytimes.com/2025/05/07/pageoneplus/quote-of-the-day-spacecraft-lost-in-1972-is-coming-back-to-earth.html
+
 **Robbie Ray continues his strong start as Giants win series over the Cubs**\
 `Ray moved to 5-0 on the season and the Giants are 8-0 in his starts. It's the longest team winning streak for a Giants starter since 1992.`\
 https://nytimes.com/athletic/6340528/2025/05/07/sf-giants-robbie-ray-cubs-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/business/economy/trump-trade-britain.html
 **Who Is Dr. Casey Means?**\
 `Dr. Means, President Trump’s new pick for surgeon general, has focused on the prevalence of chronic diseases and called on the government to scale back on childhood vaccines.`\
 https://nytimes.com/2025/05/07/science/casey-means-trump-surgeon-general.html
-
-**Reds' Hunter Greene exits start vs. Braves after 3 innings with groin injury**\
-`Through the first three innings, Greene struck out six and gave up two hits without allowing a run. `\
-https://nytimes.com/athletic/6341261/2025/05/07/reds-hunter-greene-exits-groin-injury/
 

@@ -1,3 +1,7 @@
+**Quote of the Day: Spacecraft Lost in 1972 Is Coming Back to Earth**\
+`Quotation of the Day for Thursday, May 8, 2025.`\
+https://nytimes.com/2025/05/07/pageoneplus/quote-of-the-day-spacecraft-lost-in-1972-is-coming-back-to-earth.html
+
 **Leafs defeat Panthers in Game 2, take 2-0 series lead: Takeaways**\
 `With a spirited and complete 4-3 win in Game 2, Toronto now owns a commanding series lead over the defending Stanley Cup champion Panthers.`\
 https://nytimes.com/athletic/6341016/2025/05/07/maple-leafs-panthers-nhl-playoffs-2025-game-2-takeaways/
