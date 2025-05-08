@@ -1,3 +1,11 @@
+**Mistrial in Murder Case Against Michigan Officer Who Shot Motorist**\
+`The jury deadlocked in the trial of Christopher Schurr, who testified that he feared for his life when he fatally shot Patrick Lyoya during a traffic stop in Grand Rapids, Mich., in 2022.`\
+https://nytimes.com/2025/05/08/us/grand-rapids-police-shooting.html
+
+**Denmark Outraged by Report of Increased Spying in Greenland**\
+`Officials summoned the American ambassador to express its displeasure after the Trump Administration was said be ratcheting up surveillance.`\
+https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.html
+
 **Denmark Threatens U.S. After Report of Increased Spying in Greenland**\
 `Officials summoned the American ambassador and pushed to shut a consulate on the Arctic island after the Trump Administration was said be ratcheting up surveillance.`\
 https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.html
