@@ -1,3 +1,19 @@
+**Revisions to roster limits in House vs. NCAA propose 'grandfathering'**\
+`The revision proposes athletes who would've been cut as a result of the settlement will not count against the settlement's roster limits.`\
+https://nytimes.com/athletic/6341222/2025/05/07/house-vs-ncaa-roster-limits-revision/
+
+**President Trump plans to create commission on college athletics**\
+`A presidential commission would typically dig into various aspects of an issue and deliver a report suggesting possible solutions.`\
+https://nytimes.com/athletic/6341165/2025/05/07/donald-trump-commission-on-college-athletics/
+
+**Let the gamesmanship begin: Kerr, Finch start lobbying officials 1 game into series**\
+`Finch and Kerr have both been vocal in these playoffs about the physicality the officials are allowing.`\
+https://nytimes.com/athletic/6340635/2025/05/07/steve-kerr-chris-finch-officiating-warriors-wolves/
+
+**Voice of America will receive feeds from a pro-Trump network, administration says.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/05/07/us/trump-news/voice-of-america-will-receive-feeds-from-a-pro-trump-network-administration-says
+
 **Flu Killed 25 Children in New York This Season, the Most in Many Years**\
 `Amid declining vaccination rates, the 2024-25 influenza season exacted a heavy toll, with 216 pediatric deaths nationwide.`\
 https://nytimes.com/2025/05/07/nyregion/flu-children-died.html
