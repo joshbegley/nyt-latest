@@ -1,3 +1,15 @@
+**Victory Day in Russian-Occupied Ukraine: A Muted Celebration**\
+`Events to mark the holiday in the occupied territories seem to be an effort to show Russian control of land it has captured.`\
+https://nytimes.com/2025/05/08/world/europe/russia-ukraine-victory-day-ww2.html
+
+**Why the Thunder's Game 2 dominance makes these wild playoffs even better**\
+`The Thunder hit the pause button on all the postseason script-flipping to remind everyone it’s their team who are the scariest of them all.`\
+https://nytimes.com/athletic/6341713/2025/05/08/thunder-nuggets-nba-playoffs-courtside/
+
+**A convent asks people to spiritually adopt a voting cardinal.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-convent-asks-people-to-spiritually-adopt-a-voting-cardinal
+
 **A Tricky Challenge for Germany’s New Government: a Far-Right Opposition**\
 `Chancellor Friedrich Merz’s coalition is weighing how to confront the Alternative for Germany party, which has been rising in the polls.`\
 https://nytimes.com/2025/05/08/world/europe/a-tricky-challenge-for-germanys-new-government-a-far-right-opposition.html
