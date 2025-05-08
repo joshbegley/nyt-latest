@@ -1,3 +1,7 @@
+**Texas, Texas A&M will play rivalry game on Black Friday**\
+`The teams played the Saturday after Thanksgiving last November.`\
+https://nytimes.com/athletic/6342991/2025/05/08/texas-texas-am-play-black-friday/
+
 **Jadeveon Clowney says he has 'more in the tank' after Panthers release him**\
 `“I’m definitely gonna play well," Jadeveon Clowney said Thursday. The Panthers drafted two edge rushers on Day 2 of the NFL Draft.`\
 https://nytimes.com/athletic/6342530/2025/05/08/panthers-release-jadeveon-clowney/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342836/2025/05/08/nfl-schedule-release-2025-viewin
 **Former Model Testifies That Weinstein Molested Her When She Was 16**\
 `Kaja Sokola told jurors that she had come to New York seeking stardom. She encountered Harvey Weinstein in a club and met him for lunch. Then, she said, he took advantage of her.`\
 https://nytimes.com/2025/05/08/nyregion/harvey-weinstein-kaja-sokola-testimony.html
-
-**‘JD Vance Is Wrong’: The Pope Appears Uneasy With Trump Immigration Policies**\
-`Before Cardinal Robert Francis Prevost became pope, a social media account under his name shared criticisms of the Trump administration’s positions on immigration.`\
-https://nytimes.com/2025/05/08/us/politics/jd-vance-pope-leo-xiv.html
 
