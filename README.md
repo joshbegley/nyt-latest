@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jason Horowitz, Motoko Rich and Elizabeth Dias`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/latest-pinned
+
+**New Law Requires Priests to Break Seal of Confession to Report Child Abuse**\
+`The state law, in Washington, applies to all religions but has outraged Catholics in particular. The Justice Department is investigating.`\
+https://nytimes.com/2025/05/08/us/church-confession-law-child-abuse.html
+
 **The New Pope Grew Up in the Chicago Area**\
 `For Chicagoans, the selection of Robert Francis Prevost was thrilling and a little stunning.`\
 https://nytimes.com/2025/05/08/us/pope-leo-xiv-chicago.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6341236/2025/05/08/pat-spencer-warriors-playoffs-la
 **Building Blocks for Disaster Relief**\
 `At the architecture biennale, a small part of the French Pavilion will be devoted to a possibility for war-torn Ukraine.`\
 https://nytimes.com/2025/05/08/arts/design/architecture-biennale-ukraine-rebuild.html
-
-**At the Biennale in Venice, a Fantasy Island Imported from Mexico**\
-`The floating farms known as “chinampas” may have something to teach Venetians and the world.`\
-https://nytimes.com/2025/05/08/arts/design/biennale-venice-chinampas-mexico.html
-
-**Bill Gates Accuses Elon Musk of ‘Killing Children’ by Cutting Foreign Aid**\
-`The Microsoft co-founder and philanthropist condemned his fellow billionaire for overseeing deep cuts to the U.S. Agency for International Development in the Trump administration.`\
-https://nytimes.com/2025/05/08/us/bill-gates-elon-musk-killing-children.html
 
