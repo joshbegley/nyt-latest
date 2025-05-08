@@ -1,3 +1,7 @@
+**Padres' Dylan Cease, after no-hit bid and forearm scare, optimistic about 'freak cramp'**\
+`"I don’t think it’s anything too serious," Cease said after leaving Wednesday's game with a forearm cramp.`\
+https://nytimes.com/athletic/6340642/2025/05/08/padres-dylan-cease-no-hit-bid-cramp/
+
 **Celtics face identity crisis as Tatum, Brown can't overcome another shooting collapse**\
 `The Celtics collapsed yet again, falling into an 0-2 hole and an identity crisis that will decide whether their title defense ends early.`\
 https://nytimes.com/athletic/6341538/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-identity-crisis-game-2/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/05/08/briefing/india-pakistan-conclave-trade-deal.html
 `Williams helped the Yankees win a ballgame, and he hasn't had many opportunities to say he's done that through the first month.`\
 https://nytimes.com/athletic/6341478/2025/05/08/yankees-takeaways-devin-williams-walk-off-win/
 
-**These Leafs finally look like they know what it takes to win in the postseason**\
+**The Leafs finally look like they know what it takes to win in the postseason**\
 `The Leafs' performance in Game 2 earned praise from the one player who knows best what it's like to play against them.`\
 https://nytimes.com/athletic/6341481/2025/05/08/maple-leafs-nhl-playoffs-marchand-berube/
-
-**Video games, bullying and friendship: Knicks' Mikal Bridges has mastered adversity**\
-`Bridges continues to show his mental toughness, and it has led to the Knicks being up 2-0 over Boston.`\
-https://nytimes.com/athletic/6341369/2025/05/08/knicks-celtics-mikal-bridges-adversity/
 

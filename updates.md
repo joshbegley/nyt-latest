@@ -1,3 +1,11 @@
+**Padres' Dylan Cease, after no-hit bid and forearm scare, optimistic about 'freak cramp'**\
+`"I don’t think it’s anything too serious," Cease said after leaving Wednesday's game with a forearm cramp.`\
+https://nytimes.com/athletic/6340642/2025/05/08/padres-dylan-cease-no-hit-bid-cramp/
+
+**The Leafs finally look like they know what it takes to win in the postseason**\
+`The Leafs' performance in Game 2 earned praise from the one player who knows best what it's like to play against them.`\
+https://nytimes.com/athletic/6341481/2025/05/08/maple-leafs-nhl-playoffs-marchand-berube/
+
 **Celtics face identity crisis as Tatum, Brown can't overcome another shooting collapse**\
 `The Celtics collapsed yet again, falling into an 0-2 hole and an identity crisis that will decide whether their title defense ends early.`\
 https://nytimes.com/athletic/6341538/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-identity-crisis-game-2/
