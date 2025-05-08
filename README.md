@@ -1,3 +1,11 @@
+**New Cowboys WR George Pickens on why things didn't work out with Steelers**\
+`"I feel great. I like the mojo here," George Pickens said Thursday. He fills a large void at receiver for the Cowboys.`\
+https://nytimes.com/athletic/6342306/2025/05/08/cowboys-george-pickens-ceedee-lamb-steelers/
+
+**New Pope Declares Church Should Receive Everyone With ‘Open Arms’**\
+`On the second day of the conclave, the Chicago-born Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church.`\
+https://nytimes.com/video/world/100000010158152/first-american-pope-robert-prevost.html
+
 **What we can learn from Manchester United and Tottenham's three previous games this season**\
 `Analysing every meeting between the teams in this campaign for any clues ahead of their showdown in Bilbao on May 21`\
 https://nytimes.com/athletic/6342448/2025/05/08/man-united-tottenham-europa-league-final/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6339285/2025/05/08/chelsea-conference-league-reggie
 **Texas, Texas A&M will play rivalry game on Black Friday**\
 `The teams played the Saturday after Thanksgiving last November.`\
 https://nytimes.com/athletic/6342991/2025/05/08/texas-texas-am-play-black-friday/
-
-**Jadeveon Clowney says he has 'more in the tank' after Panthers release him**\
-`“I’m definitely gonna play well," Jadeveon Clowney said Thursday. The Panthers drafted two edge rushers on Day 2 of the NFL Draft.`\
-https://nytimes.com/athletic/6342530/2025/05/08/panthers-release-jadeveon-clowney/
-
-**A fact sheet on the first American pope, Leo XIV.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-fact-sheet-on-the-first-american-pope-leo-xiv
 
