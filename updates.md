@@ -1,3 +1,7 @@
+**The Bounce: The Celtics haven't learned from their prior mistakes. Will the Knicks capitalize?**\
+`Zach Harper explains why, if you've seen only one Knicks-Celtics semifinals matchup, you’ve actually seen them both`\
+https://nytimes.com/athletic/6341978/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-nba-playoffs-the-bounce/
+
 **Mistrial in Murder Case Against Michigan Officer Who Shot Motorist**\
 `The jury deadlocked in the trial of Christopher Schurr, who testified that he feared for his life when he fatally shot Patrick Lyoya during a traffic stop in Grand Rapids, Mich., in 2022.`\
 https://nytimes.com/2025/05/08/us/grand-rapids-police-shooting.html
