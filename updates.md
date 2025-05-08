@@ -1,3 +1,15 @@
+**The Windup: Was Padres/Yankees a WS preview?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6341557/2025/05/08/padres-yankees-world-series-the-windup/
+
+**In Israel’s Demolition Path, West Bank Residents Pack Up Their Lives**\
+`A monthslong Israeli military operation in the northern West Bank has displaced tens of thousands of people. Some are now learning they may not return.`\
+https://nytimes.com/2025/05/08/world/middleeast/israel-demolition-west-bank.html
+
+**Appraisal Trade Group Accused of Covering Up Sexual Harassment and Test Flaws**\
+`The Appraisal Institute faces concerns that one of its leaders has a history of harassing women and that it did not disclose that some certification exams were incorrectly scored.`\
+https://nytimes.com/2025/05/08/realestate/appraisal-institute-sexual-harassment-exam-flaws.html
+
 **Here are 7 key issues dividing the Roman Catholic Church.**\
 `By Motoko Rich`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issues-dividing-the-roman-catholic-church
