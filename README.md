@@ -1,3 +1,11 @@
+**The Best Way to Drop an Egg**\
+`How the shell cracks in an exercise known as the egg drop challenge turned out to be more complicated than science teachers have been telling students for many years.`\
+https://nytimes.com/2025/05/08/science/egg-drop-challenge.html
+
+**Huevos Rancheros for Breakfast, Brunch, Lunch and Dinner**\
+`Kay Chun’s recipe is simple and brilliant, with an easy homemade salsa that simmers into the ranchero sauce, seasons the refried beans and tops the whole affair.`\
+https://nytimes.com/2025/05/08/dining/huevos-rancheros-breakfast-brunch.html
+
 **The Sistine Chapel hasn’t always been home to the conclave.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/the-sistine-chapel-hasnt-always-been-home-to-the-conclave
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.
 **Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/6338729/2025/05/08/ross-chastain-nascar-talladega-move-12-questions/
-
-**Age could be key to deciding the next pope.**\
-`By Jason Horowitz and Emma Bubola`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/next-pope-age-papal-conclave
-
-**Here’s the latest.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/heres-the-latest
 
