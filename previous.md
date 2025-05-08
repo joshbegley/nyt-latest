@@ -1,3 +1,11 @@
+**Manchester United live Q&A: Carl Anka answers your questions**\
+`Whatever you want to ask, get your questions in now and I'll be with you between 1pm and 2pm BST (8am to 9am ET) to answer as many as I can.`\
+https://nytimes.com/athletic/6339868/2025/05/08/manchester-united-questions-europa/
+
+**The New York Times International Edition in Print for Friday, May 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/08/todays-new-york-times-international-edition
+
 **Warriors at Timberwolves Game 2 picks, odds: Can Minnesota even series with Curry out?**\
 `Game 2 of the Warriors-Wolves second-round series goes down in Minnesota, with the hosts comfortably favored on Thursday night.`\
 https://nytimes.com/athletic/6340218/2025/05/08/warriors-timberwolves-game-2-picks-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6340650/2025/05/08/cowboys-george-pickens-steelers-
 **A Master of Moods Reimagines a French Classic**\
 `In her new film, “Bonjour Tristesse,” and in her writing, the director Durga Chew-Bose knows how to create an atmosphere.`\
 https://nytimes.com/2025/05/08/style/durga-chew-bose-bonjour-tristesse.html
-
-**A Salacious Saga Engulfs the Virginia G.O.P. and Weakens Youngkin**\
-`Gov. Glenn Youngkin’s failure to push out the Republican nominee for lieutenant governor over a scandal involving explicit photos showed the party’s divisions and the power of its right-wing base.`\
-https://nytimes.com/2025/05/08/us/politics/youngkin-john-reid-virginia-republicans.html
-
-**Russia’s Military Show of Strength Masks Economic and Diplomatic Cracks**\
-`The annual Moscow parade marking victory over Nazi Germany is expected to be the largest in years, with world leaders in attendance, as the Kremlin tries to link that triumph to the war in Ukraine.`\
-https://nytimes.com/2025/05/08/world/europe/russia-military-parade.html
 

@@ -1,3 +1,11 @@
+**Manchester United live Q&A: Carl Anka answers your questions**\
+`Whatever you want to ask, get your questions in now and I'll be with you between 1pm and 2pm BST (8am to 9am ET) to answer as many as I can.`\
+https://nytimes.com/athletic/6339868/2025/05/08/manchester-united-questions-europa/
+
+**The New York Times International Edition in Print for Friday, May 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/08/todays-new-york-times-international-edition
+
 **Warriors at Timberwolves Game 2 picks, odds: Can Minnesota even series with Curry out?**\
 `Game 2 of the Warriors-Wolves second-round series goes down in Minnesota, with the hosts comfortably favored on Thursday night.`\
 https://nytimes.com/athletic/6340218/2025/05/08/warriors-timberwolves-game-2-picks-odds/

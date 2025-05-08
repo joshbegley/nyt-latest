@@ -1,3 +1,7 @@
+**A Tricky Challenge for Germany’s New Government: a Far-Right Opposition**\
+`Chancellor Friedrich Merz’s coalition is weighing how to confront the Alternative for Germany party, which has been rising in the polls.`\
+https://nytimes.com/2025/05/08/world/europe/a-tricky-challenge-for-germanys-new-government-a-far-right-opposition.html
+
 **Manchester United live Q&A: Carl Anka answers your questions**\
 `Whatever you want to ask, get your questions in now and I'll be with you between 1pm and 2pm BST (8am to 9am ET) to answer as many as I can.`\
 https://nytimes.com/athletic/6339868/2025/05/08/manchester-united-questions-europa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/arts/music/best-classical-music-performances-apri
 **Analyzing the pros and cons of George Pickens joining the Cowboys**\
 `Our reporters covering the Cowboys and Steelers discuss what the the mercurial receiver in the trade between the two teams brings to Dallas.`\
 https://nytimes.com/athletic/6340650/2025/05/08/cowboys-george-pickens-steelers-pros-cons/
-
-**A Master of Moods Reimagines a French Classic**\
-`In her new film, “Bonjour Tristesse,” and in her writing, the director Durga Chew-Bose knows how to create an atmosphere.`\
-https://nytimes.com/2025/05/08/style/durga-chew-bose-bonjour-tristesse.html
 
