@@ -1,3 +1,19 @@
+**‘Superfine’ Brings Radiant Black Style to the Costume Institute**\
+`Heritage meets gumption at the Met’s big spring exhibition, where pathbreaking pieces join anonymous garments to build an undeniably moving history.`\
+https://nytimes.com/2025/05/08/arts/design/superfine-black-style-met-costume-institute.html
+
+**5 (More) Art Fairs to Welcome Spring**\
+`With Frieze Week comes an explosion of art, from the behemoth TEFAF to Esther (the newest), and the Other, which boasts of affordability.`\
+https://nytimes.com/2025/05/08/arts/design/art-fairs-tefaf-affordable.html
+
+**Trump drops his nominee for U.S. attorney in Washington after Republicans balked.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/trump-drops-his-nominee-for-us-attorney-in-washington-after-republicans-balked
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/05/08/books/review/new-books-recommendations.html
+
 **How to Know if Toxic Sewage Sludge Has Been Used in Your Community**\
 `Fertilizer containing potentially unsafe levels of “forever chemicals” has been used around the country.`\
 https://nytimes.com/2025/05/08/climate/sewage-sludge-pfas-your-community.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/08/arts/design/independent-art-fair-review.html
 **Frieze New York Is Smaller but Still Packs a Global Punch**\
 `Our critic samples booths from 25 countries and picks her seven favorites, including Chicago, Los Angeles, Paris, London and Seoul — and two nonprofits.`\
 https://nytimes.com/2025/05/08/arts/design/frieze-new-york-shed-review.html
-
-**Here’s the latest.**\
-`Robert Francis Prevost, who led the Vatican office that selects and manages bishops globally, has spent much of his life outside the United States.`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-robert-francis-prevost
-
-**Encompassing the Diaspora at the 1-54 Fair**\
-`A critic’s pick of galleries from Africa and the Caribbean offer exciting and haunting work.`\
-https://nytimes.com/2025/05/08/arts/design/1-54-fair-art-review.html
-
-**Tonight’s Dinner Is Bouncy**\
-`Miso rice cakes with spinach and peas, sesame-brown butter udon and cheesy baked gnocchi are chewy, springy suppers.`\
-https://nytimes.com/2025/05/08/dining/tonights-dinner-is-bouncy.html
-
-**Brighton's Tom McGill signs new two-year contract**\
-`The goalkeeper was part of Canada's Copa America squad last year but has yet to make his debut for his country.`\
-https://nytimes.com/athletic/6342539/2025/05/08/brighton-news-mcgill-contract/
 

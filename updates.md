@@ -1,3 +1,19 @@
+**‘Superfine’ Brings Radiant Black Style to the Costume Institute**\
+`Heritage meets gumption at the Met’s big spring exhibition, where pathbreaking pieces join anonymous garments to build an undeniably moving history.`\
+https://nytimes.com/2025/05/08/arts/design/superfine-black-style-met-costume-institute.html
+
+**5 (More) Art Fairs to Welcome Spring**\
+`With Frieze Week comes an explosion of art, from the behemoth TEFAF to Esther (the newest), and the Other, which boasts of affordability.`\
+https://nytimes.com/2025/05/08/arts/design/art-fairs-tefaf-affordable.html
+
+**Trump drops his nominee for U.S. attorney in Washington after Republicans balked.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/trump-drops-his-nominee-for-us-attorney-in-washington-after-republicans-balked
+
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/05/08/books/review/new-books-recommendations.html
+
 **How to Know if Toxic Sewage Sludge Has Been Used in Your Community**\
 `Fertilizer containing potentially unsafe levels of “forever chemicals” has been used around the country.`\
 https://nytimes.com/2025/05/08/climate/sewage-sludge-pfas-your-community.html
