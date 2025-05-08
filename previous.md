@@ -1,3 +1,19 @@
+**The Sistine Chapel hasn’t always been home to the conclave.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/the-sistine-chapel-hasnt-always-been-home-to-the-conclave
+
+**House Votes to Rename Gulf of Mexico as Gulf of America, Taking a Symbolic Step**\
+`The legislation was all but certain to die in the Senate, but the move put the Republican-led House on the record supporting President Trump’s nomenclature.`\
+https://nytimes.com/2025/05/08/us/politics/house-gulf-america-mexico-rename.html
+
+**John H. McConnell II Q & A: Blue Jackets' future owner on his transition, NHL's rising salary cap**\
+`Blue Jackets' alternate governor John H. McConnell II is on track to assume majority ownership of the franchise.`\
+https://nytimes.com/athletic/6341859/2025/05/08/blue-jackets-john-mcconnell-answers-ownership-transition/
+
+**Joel Quenneville to be named coach of Anaheim Ducks: Sources**\
+`Quenneville has been out of the NHL since 2021, after an investigation into the Chicago Blackhawks.`\
+https://nytimes.com/athletic/6313208/2025/05/08/quenneville-anaheim-ducks-coach/
+
 **The Bounce: The Celtics haven't learned from their prior mistakes. Will the Knicks capitalize?**\
 `Zach Harper explains why, if you've seen only one Knicks-Celtics semifinals matchup, you’ve actually seen them both`\
 https://nytimes.com/athletic/6341978/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-nba-playoffs-the-bounce/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/next-pope-age-papal
 **Here’s the latest.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news/heres-the-latest
-
-**Would You Buy Your Diamond Engagement Ring at Walmart?**\
-`The popularity of synthetic stones has sent the market for natural diamonds crashing. With consumers confused about how to tell the difference, how can a market leader like De Beers regain its sparkle?`\
-https://nytimes.com/2025/05/08/style/synthetic-diamonds-engagement-rings-de-beers-walmart-.html
-
-**The Windup: Was Padres/Yankees a WS preview?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6341557/2025/05/08/padres-yankees-world-series-the-windup/
-
-**In Israel’s Demolition Path, West Bank Residents Pack Up Their Lives**\
-`A monthslong Israeli military operation in the northern West Bank has displaced tens of thousands of people. Some are now learning they may not return.`\
-https://nytimes.com/2025/05/08/world/middleeast/israel-demolition-west-bank.html
-
-**Appraisal Trade Group Accused of Covering Up Sexual Harassment and Test Flaws**\
-`The Appraisal Institute faces concerns that one of its leaders has a history of harassing women and that it did not disclose that some certification exams were incorrectly scored.`\
-https://nytimes.com/2025/05/08/realestate/appraisal-institute-sexual-harassment-exam-flaws.html
 
