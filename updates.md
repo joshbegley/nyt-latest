@@ -1,3 +1,7 @@
+**Dodgers place Evan Phillips on injured list as their bullpen usage continues to spike**\
+`Bullpen innings have been racking up for the Dodgers and now their relief corps has taken another blow.`\
+https://nytimes.com/athletic/6341235/2025/05/07/dodgers-evan-phillips-injured-list-bullpen-usage/
+
 **Federal Judge Casts Doubt on Trump Arguments in Venezuelan Migrants Case**\
 `The judge pressed a lawyer for the Justice Department on the government’s role and responsibilities in the men’s deportation and incarceration in El Salvador.`\
 https://nytimes.com/2025/05/07/us/politics/boasberg-trump-venezuelan-migrants.html
