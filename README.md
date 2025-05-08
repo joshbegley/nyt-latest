@@ -1,3 +1,7 @@
+**The Bounce: The Celtics haven't learned from their prior mistakes. Will the Knicks capitalize?**\
+`Zach Harper explains why, if you've seen only one Knicks-Celtics semifinals matchup, you’ve actually seen them both`\
+https://nytimes.com/athletic/6341978/2025/05/08/celtics-knicks-jayson-tatum-jaylen-brown-nba-playoffs-the-bounce/
+
 **Mistrial in Murder Case Against Michigan Officer Who Shot Motorist**\
 `The jury deadlocked in the trial of Christopher Schurr, who testified that he feared for his life when he fatally shot Patrick Lyoya during a traffic stop in Grand Rapids, Mich., in 2022.`\
 https://nytimes.com/2025/05/08/us/grand-rapids-police-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/world/middleeast/israel-demolition-west-bank.html
 **Appraisal Trade Group Accused of Covering Up Sexual Harassment and Test Flaws**\
 `The Appraisal Institute faces concerns that one of its leaders has a history of harassing women and that it did not disclose that some certification exams were incorrectly scored.`\
 https://nytimes.com/2025/05/08/realestate/appraisal-institute-sexual-harassment-exam-flaws.html
-
-**Here are 7 key issues dividing the Roman Catholic Church.**\
-`By Motoko Rich`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issues-dividing-the-roman-catholic-church
 
