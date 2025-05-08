@@ -1,3 +1,15 @@
+**Olympic silver medalist rugby player dies in road accident aged 30**\
+`His death was announced by his club, French team Castres Olympique, on Thursday afternoon.`\
+https://nytimes.com/athletic/6342008/2025/05/08/josaia-raisuqe-death-fiji-rugby/
+
+**State of the farm: How Canucks’ top prospects fit on the NHL roster next season**\
+`Which Canucks prospects are ready to break through? What can the club count on internally when planning for next season?`\
+https://nytimes.com/athletic/6341643/2025/05/08/canucks-prospects-nhl-roster-analysis/
+
+**Who might replace Rob Blake as Kings GM? 13 possible candidates**\
+`Luc Robitaille said Blake "left this franchise in great shape." But now who will take over?`\
+https://nytimes.com/athletic/6341344/2025/05/08/la-kings-gm-candidates/
+
 **Tennis fans are ready for a revolution that will be televised. Will the French Open provide it?**\
 `Warner Bros. Discovery's $650 million deal for 10 years of French Open coverage aims to bring together two poles of tennis media. Can it?`\
 https://nytimes.com/athletic/6332720/2025/05/08/tennis-french-open-us-tv-how-to-watch-tnt-streaming/
