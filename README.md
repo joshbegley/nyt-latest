@@ -1,3 +1,31 @@
+**Already set up to struggle, MLS Cup champion LA Galaxy are snakebitten, too**\
+`Combine MLS roster rules and spending limitations with a series of injuries and bizarre circumstances, and you've got the 2025 LA Galaxy`\
+https://nytimes.com/athletic/6334768/2025/05/08/la-galaxy-winless-mls-vanney-kuntz-puig/
+
+**Michigan sign-stealing scandal should leave a mark, even if college sports has bigger problems**\
+`When cheating is clear and brazen — and it actually impacts competition — the annoyance of a drawn-out saga is a price worth paying.`\
+https://nytimes.com/athletic/6340851/2025/05/08/michigan-ncaa-connor-stalions-sherrone-moore/
+
+**Did the Blues' second-half surge and playoff appearance put an end to their retool?**\
+`The Blues finished with 96 points in the regular season and took the Winnipeg Jets to Game 7, which tells the GM they're ready to compete.`\
+https://nytimes.com/athletic/6339829/2025/05/08/blues-nhl-playoffs-retool-brayden-schenn/
+
+**Jordy Bahl's Nebraska homecoming has been 'incredible' — now it's time for a postseason run**\
+`Bahl is on track to become the first player since 2017 to score more runs than she’s allowed while pitching 130 innings or more.`\
+https://nytimes.com/athletic/6340706/2025/05/08/jordy-bahl-nebraska-softball-big-ten-tournament/
+
+**Submit your questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
+`The Athletic’s Scott Wheeler released a new 2025 NHL Draft ranking on Monday and his first 2025 mock draft on Thursday. Have a draft, prospects or scouting question for him? Submit them below for his upcoming mailbag.`\
+https://nytimes.com/athletic/6340771/2025/05/08/nhl-draft-2025-mailbag-wheeler-lottery/
+
+**49ers rookie Marques Sigle eager for a new audience to get to know his name**\
+`Sigle, San Francisco's fifth-round pick, turned heads when he ran the fastest 40-yard dash for a safety at this year's NFL Scouting Combine.`\
+https://nytimes.com/athletic/6340951/2025/05/08/49ers-rookie-marques-sigle-nfl-draft-2025/
+
+**Did concussion spotters miss Anthony Stolarz's head injury in Game 1?**\
+`Stolarz wasn't pulled from the game after a puck to the mask or a controversial forearm to the head in Game 1.`\
+https://nytimes.com/athletic/6340344/2025/05/08/maple-leafs-stolarz-concussion-spotters-nhl-playoffs/
+
 **What TV Show, Movie or Book Would You Rewrite the Ending To?**\
 `Fans are writing “fix-its” in an attempt to right perceived wrongs in beloved works. How might you retell a story you were disappointed by?`\
 https://nytimes.com/2025/05/08/learning/what-tv-show-movie-or-book-would-you-rewrite-the-ending-to.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/after-black-smoke-a
 **Jets frustrated by Mikko Rantanen, lack of rhythm in Game 1. What are the keys to Game 2?**\
 `Rantanen continued his playoff brilliance with a second-period hat-trick, powering the Stars past the Jets 4-2. How must Winnipeg readjust?`\
 https://nytimes.com/athletic/6341336/2025/05/08/jets-stars-mikko-rantanen-nhl-playoffs/
-
-**A call for ‘unity’ in the conclave sounds divisive to some.**\
-`By Jason Horowitz`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-call-for-unity-in-the-conclave-sounds-divisive-to-some
-
-**Trump Administration Live Updates: President to Announce Trade Deal With U.K.**\
-``\
-https://nytimes.com/live/2025/05/08/us/trump-uk-trade-news
-
-**Shai Gilgeous-Alexander is him again, and the Nuggets have a big problem**\
-`After a Game 1 loss at home, OKC responded with a historic first half and cruised to victory behind SGA's "unbelievable blend."`\
-https://nytimes.com/athletic/6341720/2025/05/08/shai-gilgeous-alexander-thunder-playoffs-game-2-nuggets/
-
-**U.S. Trade Deal Could Lift U.K. Economy, but Won’t Transform It**\
-`The deal could help some sectors and boost confidence among consumers and businesses, but the British economy faces other challenges.`\
-https://nytimes.com/2025/05/08/business/trump-us-uk-trade-deal.html
-
-**Ashton Jeanty 'ready to play that Raider brand of football' as rookie minicamp kicks off**\
-`The Raiders' first-round pick has taken a unique path to the NFL that included a stop in Italy and playing defense and WR in high school.`\
-https://nytimes.com/athletic/6338406/2025/05/08/ashton-jeanty-raiders-rookie-minicamp/
-
-**The USMNT have friendlies and Gold Cup fixtures this summer, but should they give Christian Pulisic a break?**\
-`Head coach Mauricio Pochettino has awkward decisions to make as he risks more short-term pain for the chance of longer-term gain`\
-https://nytimes.com/athletic/6340088/2025/05/08/usmnt-pulisic-robinson-pochettino-gold-cup/
-
-**Connor Brown bringing 'big-time fire' at right time for Oilers in the playoffs**\
-`With four goals and 6 points in seven games, Brown once again has taken his game to another level in the playoffs.`\
-https://nytimes.com/athletic/6340935/2025/05/08/oilers-connor-brown-nhl-playoffs/
 
