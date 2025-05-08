@@ -1,3 +1,7 @@
+**New York City Predicted Record Tourism. Then Came Trump.**\
+`The city’s tourism agency revised its 2025 forecast, with an estimated decline primarily driven by fewer foreign travelers.`\
+https://nytimes.com/2025/05/08/nyregion/nyc-tourism.html
+
 **The Moment Pope Leo XIV Emerged on the Balcony**\
 `Crowds gathered in St. Peter’s Square — and around the world — to see who had been elected as Pope Francis’ successor.`\
 https://nytimes.com/2025/05/08/world/europe/new-pope-crowds-celebrate-balcony.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342517/2025/05/08/derek-shelton-pirates-manager-fi
 **Actualizaciones de los periodistas**\
 `(No description)`\
 https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano/nuevo-papa-informes
-
-**In ‘Hamlet Hail to the Thief,’ Radiohead Riffs on Shakespeare**\
-`The band’s frontman, Thom Yorke, created a show with the Royal Shakespeare Company that is both admirably ambitious and a little foolish.`\
-https://nytimes.com/2025/05/08/theater/hamlet-hail-to-the-thief-radiohead.html
 
