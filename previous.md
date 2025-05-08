@@ -1,3 +1,15 @@
+**What TV Show, Movie or Book Would You Rewrite the Ending To?**\
+`Fans are writing “fix-its” in an attempt to right perceived wrongs in beloved works. How might you retell a story you were disappointed by?`\
+https://nytimes.com/2025/05/08/learning/what-tv-show-movie-or-book-would-you-rewrite-the-ending-to.html
+
+**After black smoke at noon, the crowd in St. Peter’s hopes for white smoke at night.**\
+`By Patricia Mazzei and Motoko Rich`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/after-black-smoke-at-noon-the-crowd-in-st-peters-hopes-for-white-smoke-at-night
+
+**Jets frustrated by Mikko Rantanen, lack of rhythm in Game 1. What are the keys to Game 2?**\
+`Rantanen continued his playoff brilliance with a second-period hat-trick, powering the Stars past the Jets 4-2. How must Winnipeg readjust?`\
+https://nytimes.com/athletic/6341336/2025/05/08/jets-stars-mikko-rantanen-nhl-playoffs/
+
 **A call for ‘unity’ in the conclave sounds divisive to some.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-call-for-unity-in-the-conclave-sounds-divisive-to-some
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6340088/2025/05/08/usmnt-pulisic-robinson-pochettin
 **Connor Brown bringing 'big-time fire' at right time for Oilers in the playoffs**\
 `With four goals and 6 points in seven games, Brown once again has taken his game to another level in the playoffs.`\
 https://nytimes.com/athletic/6340935/2025/05/08/oilers-connor-brown-nhl-playoffs/
-
-**Is home-court advantage still a factor in the NBA playoffs? Recent history says no**\
-`This spring, NBA teams are just 26-24 at home in the playoffs.`\
-https://nytimes.com/athletic/6340311/2025/05/08/nba-playoffs-home-court-advantage/
-
-**Rosenthal: Always the perfectionist, Mookie Betts is focused on improving his bat speed**\
-`The Dodgers shortstop doesn't have many weaknesses in his game, but his bat speed has proven to be a rare concern.`\
-https://nytimes.com/athletic/6341106/2025/05/08/mookie-betts-dodgers-bat-speed/
-
-**Broncos' Caleb Lohner follows Jimmy Graham's hoops-to-tight end path to Sean Payton**\
-`Lohner played only 57 snaps of college football and didn't play the sport in high school. The Broncos bet a 7th-round pick on him anyway.`\
-https://nytimes.com/athletic/6340081/2025/05/08/denver-broncos-caleb-lohner-tight-end/
 

@@ -1,3 +1,15 @@
+**What TV Show, Movie or Book Would You Rewrite the Ending To?**\
+`Fans are writing “fix-its” in an attempt to right perceived wrongs in beloved works. How might you retell a story you were disappointed by?`\
+https://nytimes.com/2025/05/08/learning/what-tv-show-movie-or-book-would-you-rewrite-the-ending-to.html
+
+**After black smoke at noon, the crowd in St. Peter’s hopes for white smoke at night.**\
+`By Patricia Mazzei and Motoko Rich`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/after-black-smoke-at-noon-the-crowd-in-st-peters-hopes-for-white-smoke-at-night
+
+**Jets frustrated by Mikko Rantanen, lack of rhythm in Game 1. What are the keys to Game 2?**\
+`Rantanen continued his playoff brilliance with a second-period hat-trick, powering the Stars past the Jets 4-2. How must Winnipeg readjust?`\
+https://nytimes.com/athletic/6341336/2025/05/08/jets-stars-mikko-rantanen-nhl-playoffs/
+
 **A call for ‘unity’ in the conclave sounds divisive to some.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-call-for-unity-in-the-conclave-sounds-divisive-to-some
