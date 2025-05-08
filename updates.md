@@ -1,3 +1,7 @@
+**Video games, bullying and friendship: Knicks' Mikal Bridges has mastered adversity**\
+`Bridges continues to show his mental toughness, and it has led to the Knicks being up 2-0 over Boston.`\
+https://nytimes.com/athletic/6341369/2025/05/08/knicks-celtics-mikal-bridges-adversity/
+
 **With his 200th career homer, Alex Bregman helps Red Sox snap losing skid**\
 `For how much the Red Sox have struggled of late, Wednesday had the makings of game that could propel them in the right direction.`\
 https://nytimes.com/athletic/6341390/2025/05/08/alex-bregman-200-homers-red-sox/
