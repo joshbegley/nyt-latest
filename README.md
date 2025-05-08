@@ -1,3 +1,7 @@
+**Ballon d’Or odds: Dembélé now the favourite ahead of Yamal**\
+`Ousmane Dembélé has emerged as the favourite to win the Ballon d'Or after PSG made the Champions League final.`\
+https://nytimes.com/athletic/6342431/2025/05/08/ballon-dor-odds-ousmane-dembele-lamine-yamal/
+
 **Fantasy baseball bullpen report features concerns for Ryan Pressly and Carlos Estévez**\
 `Greg Jewett shines a spotlight on all the notable developments across MLB bullpens, including Ryan Pressly's concerning strikeout rate.`\
 https://nytimes.com/athletic/6342350/2025/05/08/fantasy-baseball-bullpen-report-closer-concern-pressly-estevez/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/the-popes-first-wor
 **Anthony Stolarz won't travel with Maple Leafs to Florida for Game 3**\
 `The Maple Leafs have not provided any formal update on Stolarz's condition since he was removed from Game 1 on Monday night.`\
 https://nytimes.com/athletic/6342434/2025/05/08/anthony-stolarz-maple-leafs-panthers-game-3/
-
-**A Kentucky Boy Mistakenly Orders Almost 70,000 Lollipops**\
-`Holly LaFavers said she was eventually refunded $4,200 for her 8-year-old son’s order of Dum-Dums candy.`\
-https://nytimes.com/2025/05/08/business/dum-dums-amazon-order-kentucky.html
 
