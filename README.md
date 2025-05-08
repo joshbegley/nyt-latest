@@ -1,3 +1,7 @@
+**Steph Curry doesn’t have target return date for ‘tricky’ hamstring injury**\
+`The Warriors have already ruled Curry out of Games 2, 3 and 4.`\
+https://nytimes.com/athletic/6342798/2025/05/08/steph-curry-hamstring-injury-no-target-return/
+
 **Until Saturday: $80M for one schedule tweak**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6342799/2025/05/08/sec-schedule-nine-games-espn-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342491/2025/05/08/oliver-oakes-alpine-brother/
 **Trump Nominates Former N.E.A. Chair to Head Embattled Arts Agency**\
 `The president nominated Mary Anne Carter to lead the National Endowment for the Arts, which his budget calls for eliminating and which has been withdrawing grants from arts groups.`\
 https://nytimes.com/2025/05/08/arts/trump-national-endowment-for-the-arts-carter.html
-
-**Who Is Pope Leo XIV?**\
-`Here’s what to know about Pope Francis’ successor, Robert Francis Prevost, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
-https://nytimes.com/2025/05/08/world/europe/who-is-robert-francis-prevost-pope-leo-xiv.html
 
