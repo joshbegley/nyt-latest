@@ -1,3 +1,11 @@
+**In Tyre Nichols Case, an Out-of-Town Jury Heard a Familiar Police Defense**\
+`The acquittal of three former officers in the state trial over the fatal beating adds to a mixed series of verdicts for officers accused of wrongdoing.`\
+https://nytimes.com/2025/05/08/us/politics/tyre-nichols-memphis-officers-trial.html
+
+**Protecting Your Loved Ones Even After You’re Gone**\
+`Meet three women – all very much alive – who’ve pre-planned their funerals to insulate their families from financial hardship.`\
+https://nytimes.com/paidpost/dignity-memorial/ca/protecting-your-loved-ones-even-after-youre-gone.html
+
 **Protecting Your Loved Ones Even After You’re Gone**\
 `Meet three women – all very much alive – who’ve pre-planned their funerals to insulate their families from financial hardship.`\
 https://nytimes.com/paidpost/dignity-memorial-ca/ca/protecting-your-loved-ones-even-after-youre-gone.html

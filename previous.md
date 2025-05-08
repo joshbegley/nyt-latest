@@ -1,6 +1,10 @@
+**In Tyre Nichols Case, an Out-of-Town Jury Heard a Familiar Police Defense**\
+`The acquittal of three former officers in the state trial over the fatal beating adds to a mixed series of verdicts for officers accused of wrongdoing.`\
+https://nytimes.com/2025/05/08/us/politics/tyre-nichols-memphis-officers-trial.html
+
 **Protecting Your Loved Ones Even After You’re Gone**\
 `Meet three women – all very much alive – who’ve pre-planned their funerals to insulate their families from financial hardship.`\
-https://nytimes.com/paidpost/dignity-memorial-ca/ca/protecting-your-loved-ones-even-after-youre-gone.html
+https://nytimes.com/paidpost/dignity-memorial/ca/protecting-your-loved-ones-even-after-youre-gone.html
 
 **Texans’ Jayden Higgins makes history with deal: What he'll bring to Houston**\
 `Receiver is set to make just over $11.7 million in his four-year deal.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342714/2025/05/08/sue-bird-usa-basketball-wnba/
 **Trump Declares High-Speed Internet Program ‘Racist’ and ‘Unconstitutional’**\
 `President Trump denounced the Biden-era Digital Equity Act as “woke handouts based on race,” raging in a social media post against a broad effort to improve high-speed internet access.`\
 https://nytimes.com/2025/05/08/us/politics/trump-biden-digital-equity-act.html
-
-**The New Pope Might Be Something Like the Old Pope**\
-`The conservative ire that has roiled Catholicism during the previous pontificate is likely to continue with this first American pope.`\
-https://nytimes.com/2025/05/08/opinion/conclave-pope-leo-xiv-catholic-church.html
 
