@@ -1,40 +1,40 @@
-**Quote of the Day: Spacecraft Lost in 1972 Is Coming Back to Earth**\
-`Quotation of the Day for Thursday, May 8, 2025.`\
-https://nytimes.com/2025/05/07/pageoneplus/quote-of-the-day-spacecraft-lost-in-1972-is-coming-back-to-earth.html
+**Michael Harris II's stats have declined steadily since rookie year, but Braves still believe**\
+`Regardless of his .216 batting average, Harris can and does impact games in multiple ways, manager Brian Snitker said.`\
+https://nytimes.com/athletic/6341365/2025/05/08/michael-harris-ii-stats-braves-reds/
 
-**Robbie Ray continues his strong start as Giants win series over the Cubs**\
-`Ray moved to 5-0 on the season and the Giants are 8-0 in his starts. It's the longest team winning streak for a Giants starter since 1992.`\
-https://nytimes.com/athletic/6340528/2025/05/07/sf-giants-robbie-ray-cubs-series/
+**Osaka sagaNaomi Osaka found her tennis down the WTA Tour ladder. She found a mindset too**\
+`The former world No. 1 has adopted various mindsets throughout her return to tennis. She's still searching for the best one.`\
+https://nytimes.com/athletic/6340817/2025/05/08/tennis-naomi-osaka-form-mindset/
 
-**Man Is Charged With Federal Hate Crimes in Assaults on Jewish Protesters**\
-`Tarek Bazrouk, 20, on three occasions kicked and punched Jewish protesters who were wearing religious attire or carrying Israeli flags at demonstrations in Manhattan, prosecutors said.`\
-https://nytimes.com/2025/05/07/nyregion/nyc-protests-hate-crime-charge-bazrouk.html
+**Europe Alone and in Shock on V-E Day**\
+`On the 80th anniversary of Nazi Germany’s defeat, echoes of tyrannies past shake a continent that is trying to find its footing in the face of President Trump’s hostility.`\
+https://nytimes.com/2025/05/08/world/europe/europe-ve-day-trump.html
 
-**Here’s what happened on Wednesday.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/05/07/us/trump-news/heres-what-happened-on-wednesday
+**Tate Modern Is the Museum of the Century (Like It or Not)**\
+`The London institution, which turns 25 this week, encouraged its peers to look beyond the West. But its greatest impact was to remake the art museum into a kind of theme park.`\
+https://nytimes.com/2025/05/08/arts/design/tate-modern-25-anniversary.html
 
-**Not Getting Enough Sleep**\
-`Dan Caprera wants us to mind our own business. Are we going to take that from him?`\
-https://nytimes.com/2025/05/07/crosswords/daily-puzzle-2025-05-08.html
+**Trump’s Threat of ‘Foreign’ Film Tariffs Stirs Anxiety in the U.K.**\
+`After struggling through pandemic shutdowns and twin Hollywood strikes, the British film and TV industry is worried that duties will wreak devastation.`\
+https://nytimes.com/2025/05/08/business/trump-movie-tariffs-uk.html
 
-**National Archives Releases More Robert F. Kennedy Files**\
-`The new batch of documents included transcripts of police interviews with Sirhan Sirhan, who was convicted of killing Mr. Kennedy.`\
-https://nytimes.com/2025/05/07/us/politics/rfk-files-released-national-archives.html
+**​​What’s at Stake in the Conclave? The Keys of the Kingdom of Heaven.**\
+`The Gospel of Matthew inspired an enduring Christian symbol: Jesus passing the keys to Peter. Cardinals are now choosing who will hold the keys — and their power — next.`\
+https://nytimes.com/2025/05/08/us/pope-conclave-keys-of-st-peter.html
 
-**NBA playoff takeaways: Knicks edge Celtics for shocking 2-0 series lead**\
-`Game 2 looked a lot like Game 1 for New York with a 20-point deficit, a lopsided scoring run and a Mikal Bridges steal to ice the win.`\
-https://nytimes.com/athletic/6341129/2025/05/07/nba-playoff-takeaways-knicks-celtics-nuggets-thunder/
+**The Huge, Under-the-Radar Shift Happening in the West Bank**\
+`Over the past few months, an Israeli military operation has displaced tens of thousands of Palestinians in West Bank cities. Some Palestinians fear it may be laying the ground to annex the territory.`\
+https://nytimes.com/2025/05/08/world/middleeast/israel-west-bank-palestinians-fear-annexation.html
 
-**Leafs defeat Panthers in Game 2, take 2-0 series lead: Takeaways**\
-`With a spirited and complete 4-3 win in Game 2, Toronto now owns a commanding series lead over the defending Stanley Cup champion Panthers.`\
-https://nytimes.com/athletic/6341016/2025/05/07/maple-leafs-panthers-nhl-playoffs-2025-game-2-takeaways/
+**Agatha Christie, Who Died in 1976, Will See You in Class**\
+`An avatar of the long-dead British novelist is “teaching” an online writing course. But do we want to learn from a digital prosthetic built by artificial intelligence?`\
+https://nytimes.com/2025/05/08/world/europe/agatha-christie-ai-class-bbc.html
 
-**Trump Administration to Announce Trade Deal With Britain**\
-`A deal would be a positive sign for both governments, which have eyed an agreement since President Trump’s first term.`\
-https://nytimes.com/2025/05/07/business/economy/trump-trade-britain.html
+**Connections: Sports Edition Coach: Hints for May 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6341387/2025/05/08/connections-sports-edition-hints-for-may-8-2025/
 
-**Who Is Dr. Casey Means?**\
-`Dr. Means, President Trump’s new pick for surgeon general, has focused on the prevalence of chronic diseases and called on the government to scale back on childhood vaccines.`\
-https://nytimes.com/2025/05/07/science/casey-means-trump-surgeon-general.html
+**Corrections: May 8, 2025**\
+`Corrections that appeared in print on Thursday, May 8, 2025.`\
+https://nytimes.com/2025/05/08/pageoneplus/corrections-may-8-2025.html
 

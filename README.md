@@ -1,3 +1,23 @@
+**Eliezer Mayenda: 'With patience, we can do something here at Sunderland'**\
+`The youngster has lived in three countries, played in four leagues, speaks five languages and has been key to this season's promotion drive`\
+https://nytimes.com/athletic/6337456/2025/05/08/mayenda-sunderland-interview/
+
+**Joseph Woll, Leafs starter, makes a triumphant return in Game 2**\
+`Woll's last start was on April 17 in a meaningless regular-season game. That didn't faze him against the Panthers.`\
+https://nytimes.com/athletic/6341427/2025/05/08/joseph-woll-maple-leafs-starter-nhl-playoffs/
+
+**How the Club World Cup could stretch football's elite to breaking point**\
+`The sport's calendar has never been as congested as this summer - so what could be the impact?`\
+https://nytimes.com/athletic/6339720/2025/05/08/club-world-cup-player-workload/
+
+**The identical twins bamboozling their opponents, team-mates and coach**\
+`Being at the same club is not a contractual obligation for Karen and Sara Holmgaard but somehow they always end up together`\
+https://nytimes.com/athletic/6332579/2025/05/08/sara-karen-holmgaard-twins-everton-denmark/
+
+**Sommer's display against Barcelona had everything: Elite positioning, balance and raw athleticism**\
+`He conceded six goals in two matches but Inter owe their place in the Champions League final to their under-rated goalkeeper Yann Sommer`\
+https://nytimes.com/athletic/6340318/2025/05/08/yann-sommer-inter-barcelona-champions-league/
+
 **Michael Harris II's stats have declined steadily since rookie year, but Braves still believe**\
 `Regardless of his .216 batting average, Harris can and does impact games in multiple ways, manager Brian Snitker said.`\
 https://nytimes.com/athletic/6341365/2025/05/08/michael-harris-ii-stats-braves-reds/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/08/arts/design/tate-modern-25-anniversary.html
 **Trump’s Threat of ‘Foreign’ Film Tariffs Stirs Anxiety in the U.K.**\
 `After struggling through pandemic shutdowns and twin Hollywood strikes, the British film and TV industry is worried that duties will wreak devastation.`\
 https://nytimes.com/2025/05/08/business/trump-movie-tariffs-uk.html
-
-**​​What’s at Stake in the Conclave? The Keys of the Kingdom of Heaven.**\
-`The Gospel of Matthew inspired an enduring Christian symbol: Jesus passing the keys to Peter. Cardinals are now choosing who will hold the keys — and their power — next.`\
-https://nytimes.com/2025/05/08/us/pope-conclave-keys-of-st-peter.html
-
-**The Huge, Under-the-Radar Shift Happening in the West Bank**\
-`Over the past few months, an Israeli military operation has displaced tens of thousands of Palestinians in West Bank cities. Some Palestinians fear it may be laying the ground to annex the territory.`\
-https://nytimes.com/2025/05/08/world/middleeast/israel-west-bank-palestinians-fear-annexation.html
-
-**Agatha Christie, Who Died in 1976, Will See You in Class**\
-`An avatar of the long-dead British novelist is “teaching” an online writing course. But do we want to learn from a digital prosthetic built by artificial intelligence?`\
-https://nytimes.com/2025/05/08/world/europe/agatha-christie-ai-class-bbc.html
-
-**Connections: Sports Edition Coach: Hints for May 8, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6341387/2025/05/08/connections-sports-edition-hints-for-may-8-2025/
-
-**Corrections: May 8, 2025**\
-`Corrections that appeared in print on Thursday, May 8, 2025.`\
-https://nytimes.com/2025/05/08/pageoneplus/corrections-may-8-2025.html
 
