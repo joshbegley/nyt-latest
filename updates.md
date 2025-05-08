@@ -1,3 +1,7 @@
+**Trump Revives Push for Higher Taxes on the Rich**\
+`The president is said to want to create a new top income bracket for people making more than $2.5 million per year and to tax income above that level at a rate of 39.6 percent.`\
+https://nytimes.com/2025/05/08/us/politics/trump-new-tax-bracket.html
+
 **The Briefing: Man Utd 4 Athletic Club 1 (7-1 agg) - Mount scores twice as United book Europa League final spot**\
 `Laurie Whitwell, Anantaajith Raghuraman and Thom Harris break down Manchester United's 4-1 Europa League semi-final win over Athletic Club`\
 https://nytimes.com/athletic/6339284/2025/05/08/man-utd-4-athletic-club-1-mason-mount-casemiro-europa-league/

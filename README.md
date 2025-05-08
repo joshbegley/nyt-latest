@@ -1,9 +1,13 @@
+**What we can learn from Manchester United and Tottenham's three previous games this season**\
+`Analysing every meeting between the teams in this campaign for any clues ahead of their showdown in Bilbao on May 21`\
+https://nytimes.com/athletic/6342448/2025/05/08/man-united-tottenham-europa-league-final/
+
 **Trump Revives Push for Higher Taxes on the Rich**\
 `The president is said to want to create a new top income bracket for people making more than $2.5 million per year and to tax income above that level at a rate of 39.6 percent.`\
 https://nytimes.com/2025/05/08/us/politics/trump-new-tax-bracket.html
 
-**The Briefing: Man Utd 4 Athletic Club 1 (7-1 agg) - Mount scores twice as United book Europa League final spot**\
-`Laurie Whitwell, Anantaajith Raghuraman and Thom Harris break down Manchester United's 4-1 Europa League semi-final win over Athletic Club`\
+**The Briefing: Man Utd 4 Athletic Club 1 (7-1 agg) - Mount scores twice as United book final spot**\
+`Laurie Whitwell, Anantaajith Raghuraman and Thom Harris break down Manchester United's Europa League semi-final win over Athletic Club`\
 https://nytimes.com/athletic/6339284/2025/05/08/man-utd-4-athletic-club-1-mason-mount-casemiro-europa-league/
 
 **Transportation Secretary Unveils Plan to Overhaul of Aging Air-Traffic Systems**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342530/2025/05/08/panthers-release-jadeveon-clowne
 **A fact sheet on the first American pope, Leo XIV.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/a-fact-sheet-on-the-first-american-pope-leo-xiv
-
-**The Pentagon’s Culture Wars Strike West Point**\
-`A Jan. 29 order from Defense Secretary Pete Hegseth led to canceled classes, book bans and an argument about American greatness.`\
-https://nytimes.com/2025/05/08/us/politics/west-point-hegseth-culture-wars.html
 
