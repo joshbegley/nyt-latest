@@ -1,3 +1,7 @@
+**Flu Killed 25 Children in New York This Season, the Most in Many Years**\
+`Amid declining vaccination rates, the 2024-25 influenza season exacted a heavy toll, with 216 pediatric deaths nationwide.`\
+https://nytimes.com/2025/05/07/nyregion/flu-children-died.html
+
 **The Indian Aircraft Pakistan Says It Shot Down**\
 `Tensions between India and Pakistan have risen sharply in the weeks since a terrorist attack in Kashmir. On Wednesday, India hit Pakistan and appears to have lost at least a few planes in the strike.`\
 https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/arts/music/liam-payne-estate-will.html
 **Kennedy Announces New Database for Research Into ‘Root Causes’ of Autism**\
 `The director of the National Institutes of Health previously floated — then walked back — the idea of an autism registry, alarming researchers and parents.`\
 https://nytimes.com/2025/05/07/us/politics/rfk-jr-autism-cause-database.html
-
-**In Hockey Canada trial, E.M. agrees she remained compliant as a 'coping mechanism'**\
-`Complainant breaks down at the end of Wednesday's cross-examination when discussing misidentifying players in previous statements.`\
-https://nytimes.com/athletic/6339844/2025/05/07/hockey-canada-sexual-assault-trial-em-cross-examination-2/
 

@@ -1,3 +1,7 @@
+**Flu Killed 25 Children in New York This Season, the Most in Many Years**\
+`Amid declining vaccination rates, the 2024-25 influenza season exacted a heavy toll, with 216 pediatric deaths nationwide.`\
+https://nytimes.com/2025/05/07/nyregion/flu-children-died.html
+
 **The Indian Aircraft Pakistan Says It Shot Down**\
 `Tensions between India and Pakistan have risen sharply in the weeks since a terrorist attack in Kashmir. On Wednesday, India hit Pakistan and appears to have lost at least a few planes in the strike.`\
 https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
