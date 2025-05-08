@@ -1,3 +1,11 @@
+**Shai Gilgeous-Alexander is him again, and the Nuggets have a big problem**\
+`After a Game 1 loss at home, OKC responded with a historic first half and cruised to victory behind SGA's "unbelievable blend."`\
+https://nytimes.com/athletic/6341720/2025/05/08/shai-gilgeous-alexander-thunder-playoffs-game-2-nuggets/
+
+**U.S. Trade Deal Could Lift U.K. Economy, but Won’t Transform It**\
+`The deal could help some sectors and boost confidence among consumers and businesses, but the British economy faces other challenges.`\
+https://nytimes.com/2025/05/08/business/trump-us-uk-trade-deal.html
+
 **U.S. Trade Deal Could Help Britain’s Sluggish Economy, but Won’t Transform It**\
 `The deal could help some sectors and boost confidence among consumers and businesses, but the British economy faces other challenges.`\
 https://nytimes.com/2025/05/08/business/trump-us-britain-trade-deal.html
