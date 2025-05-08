@@ -1,3 +1,7 @@
+**Are U.S. Tariffs Affecting Your Business? We Want to Hear From You.**\
+`The New York Times wants to hear from European business owners about how they are navigating the uncertainty of President Trump’s tariffs.`\
+https://nytimes.com/2025/05/08/business/trump-tariffs-europe-small-businesses.html
+
 **Interest in the ‘Conclave’ movie has soared. How accurate is it?**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/conclave-movie-new-pope-vote
