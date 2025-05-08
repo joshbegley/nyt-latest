@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/08/arts/trump-national-endowment-for-the-arts-carter
 `Here’s what to know about Pope Francis’ successor, who was chosen on Thursday. He is the first American pope and will be known as Leo XIV.`\
 https://nytimes.com/2025/05/08/world/europe/who-is-robert-francis-prevost-pope-leo-xiv.html
 
-**The Government to Stop Tracking the Costs of Extreme Weather**\
+**U.S. Government to Stop Tracking the Costs of Extreme Weather**\
 `It would be harder for insurers and scientists to study wildfires, storms and other “billion dollar disasters,” which are growing more frequent as the planet warms.`\
 https://nytimes.com/2025/05/08/climate/noaa-billion-dollar-disasters.html
 
