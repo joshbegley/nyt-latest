@@ -1,3 +1,7 @@
+**Denmark Threatens U.S. After Report of Increased Spying in Greenland**\
+`Officials summoned the American ambassador and pushed to shut a consulate on the Arctic island after the Trump Administration was said be ratcheting up surveillance.`\
+https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.html
+
 **Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/6338729/2025/05/08/ross-chastain-nascar-talladega-move-12-questions/

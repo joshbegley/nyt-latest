@@ -1,5 +1,9 @@
-**Denmark Threatens U.S. After Report of Increased Spying in Greenland**\
-`Officials summoned the American ambassador and pushed to shut a consulate on the Arctic island after the Trump Administration was said be ratcheting up surveillance.`\
+**Mistrial in Murder Case Against Michigan Officer Who Shot Motorist**\
+`The jury deadlocked in the trial of Christopher Schurr, who testified that he feared for his life when he fatally shot Patrick Lyoya during a traffic stop in Grand Rapids, Mich., in 2022.`\
+https://nytimes.com/2025/05/08/us/grand-rapids-police-shooting.html
+
+**Denmark Outraged by Report of Increased Spying in Greenland**\
+`Officials summoned the American ambassador to express its displeasure after the Trump Administration was said be ratcheting up surveillance.`\
 https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.html
 
 **Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/realestate/appraisal-institute-sexual-harassment-
 **Here are 7 key issues dividing the Roman Catholic Church.**\
 `By Motoko Rich`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issues-dividing-the-roman-catholic-church
-
-**A Paris Restaurant With Live Jazz and Soaring Ceilings**\
-`Plus: a new oceanside hotel in Mexico, murta berries and more recommendations from T Magazine.`\
-https://nytimes.com/2025/05/08/t-magazine/paris-grand-palais-restaurant.html
 

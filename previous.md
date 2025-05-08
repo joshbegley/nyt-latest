@@ -1,3 +1,7 @@
+**Denmark Threatens U.S. After Report of Increased Spying in Greenland**\
+`Officials summoned the American ambassador and pushed to shut a consulate on the Arctic island after the Trump Administration was said be ratcheting up surveillance.`\
+https://nytimes.com/2025/05/08/world/asia/denmark-greenland-us-consulate-spying.html
+
 **Ross Chastain on his misunderstood Talladega move, tipping culture and more: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/6338729/2025/05/08/ross-chastain-nascar-talladega-move-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issu
 **A Paris Restaurant With Live Jazz and Soaring Ceilings**\
 `Plus: a new oceanside hotel in Mexico, murta berries and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/08/t-magazine/paris-grand-palais-restaurant.html
-
-**Olympic silver medalist rugby player dies in road accident aged 30**\
-`His death was announced by his club, French team Castres Olympique, on Thursday afternoon.`\
-https://nytimes.com/athletic/6342008/2025/05/08/josaia-raisuqe-death-fiji-rugby/
 
