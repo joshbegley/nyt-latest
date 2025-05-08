@@ -1,40 +1,40 @@
-**Blue Jays’ bullpen bears the weight of endless close games**\
-`In the season's first month, the bullpen held up as Toronto's offence scuttled. Lately, the burden has weighed too heavily.`\
-https://nytimes.com/athletic/6341653/2025/05/08/blue-jays-angels-bullpen/
+**Warriors at Timberwolves Game 2 picks, odds: Can Minnesota even series with Curry out?**\
+`Game 2 of the Warriors-Wolves second-round series goes down in Minnesota, with the hosts comfortably favored on Thursday night.`\
+https://nytimes.com/athletic/6340218/2025/05/08/warriors-timberwolves-game-2-picks-odds/
 
-**For Embattled Starmer, U.S.-U.K. Trade Deal Will Count as a Win**\
-`Prime Minister Keir Starmer has spent months nurturing his relationship with President Trump. Is that about to pay off?`\
-https://nytimes.com/2025/05/08/world/europe/starmer-us-uk-trade-deal.html
+**Can Democrats Win the Working Class and Save the Republic?**\
+`Senator Chris Murphy on the Democrats’ “five alarm” crisis.`\
+https://nytimes.com/2025/05/08/opinion/democrats-working-class-chris-murphy.html
 
-**Crowds begin to gather in St. Peter’s Square.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/crowds-begin-to-gather-in-st-peters-square
+**Israel Has a Terrible Choice to Make**\
+`There are no shortcuts in war.`\
+https://nytimes.com/2025/05/08/opinion/israel-gaza-war.html
 
-**How India Is Trying to Squeeze Pakistan Far From the Battlefield**\
-`The nuclear-armed rivals are also wrangling over Pakistan’s access to desperately needed foreign aid, as India explores ways to use its soft power and relationships to bedevil its old enemy.`\
-https://nytimes.com/2025/05/08/business/economy/india-pakistan-soft-power-kashmir.html
+**Across America, Big Cities Are Sinking. Why?**\
+`A new analysis of America’s 28 largest population centers found that all but three are sinking overall, and in many cases significantly.`\
+https://nytimes.com/interactive/2025/05/08/climate/sinking-cities-us-causes-groundwater.html
 
-**Jayson Tatum needs to save Celtics from fire after another collapse against Knicks**\
-`Boston is the first team in the play-by-play era to blow two 20-point leads in the same postseason.`\
-https://nytimes.com/athletic/6341645/2025/05/08/jayson-tatum-needs-to-save-celtics-from-fire-after-another-collapse-against-knicks/
+**After Years Overseas, They Came Home for a Quiet Life in Upstate New York**\
+`With up to $800,000 to spend, a couple aimed to combine the serenity and the amenities that the Hudson Valley has to offer.`\
+https://nytimes.com/interactive/2025/05/08/realestate/hudson-valley-woodstock-high-falls-accord-homes.html
 
-**For the Nuggets, Friday's Game 3 starts with matching the Thunder's physicality**\
-`OKC is one of the deepest, fastest and best defensive teams in the league. Denver has its work cut out for Game 3.`\
-https://nytimes.com/athletic/6341324/2025/05/08/nuggets-thunder-game-2/
+**The Classical Music Our Critics Can’t Stop Thinking About**\
+`Watch and listen to five recent highlights, including Metropolitan Opera performances, the posthorn solo in Mahler’s Third and music by Tomeka Reid.`\
+https://nytimes.com/2025/05/08/arts/music/best-classical-music-performances-april-2025.html
 
-**Wilting Flower, Blooming Flower**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/05/08/learning/wilting-flower-blooming-flower.html
+**Analyzing the pros and cons of George Pickens joining the Cowboys**\
+`Our reporters covering the Cowboys and Steelers discuss what the the mercurial receiver in the trade between the two teams brings to Dallas.`\
+https://nytimes.com/athletic/6340650/2025/05/08/cowboys-george-pickens-steelers-pros-cons/
 
-**Hochul, Looking to 2026, Pushed to Weaken Oversight of Religious Schools**\
-`Changing a law that chiefly affects all-boys Hasidic Jewish schools, known as yeshivas, has been a top priority among leaders of New York’s Hasidic communities, which tend to vote as a bloc.`\
-https://nytimes.com/2025/05/08/nyregion/new-york-kathy-hochul-hasidic-schools.html
+**A Master of Moods Reimagines a French Classic**\
+`In her new film, “Bonjour Tristesse,” and in her writing, the director Durga Chew-Bose knows how to create an atmosphere.`\
+https://nytimes.com/2025/05/08/style/durga-chew-bose-bonjour-tristesse.html
 
-**How 6 Democrats in a Consequential Governor’s Race Are Vying to Be Heard**\
-`The race for governor of New Jersey includes a large field of Democratic primary candidates competing against each other — and trying not to be drowned out by the drama in Washington.`\
-https://nytimes.com/2025/05/08/nyregion/new-jersey-democratic-candidates-for-governor.html
+**A Salacious Saga Engulfs the Virginia G.O.P. and Weakens Youngkin**\
+`Gov. Glenn Youngkin’s failure to push out the Republican nominee for lieutenant governor over a scandal involving explicit photos showed the party’s divisions and the power of its right-wing base.`\
+https://nytimes.com/2025/05/08/us/politics/youngkin-john-reid-virginia-republicans.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/08/crosswords/spelling-bee-forum.html
+**Russia’s Military Show of Strength Masks Economic and Diplomatic Cracks**\
+`The annual Moscow parade marking victory over Nazi Germany is expected to be the largest in years, with world leaders in attendance, as the Kremlin tries to link that triumph to the war in Ukraine.`\
+https://nytimes.com/2025/05/08/world/europe/russia-military-parade.html
 
