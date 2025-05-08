@@ -1,3 +1,7 @@
+**Who Is Dr. Casey Means?**\
+`Dr. Means, President Trump’s new pick for surgeon general, has focused on the prevalence of chronic diseases and called on the government to scale back on childhood vaccines.`\
+https://nytimes.com/2025/05/07/science/casey-means-trump-surgeon-general.html
+
 **Reds' Hunter Greene exits start vs. Braves after 3 innings with groin injury**\
 `Through the first three innings, Greene struck out six and gave up two hits without allowing a run. `\
 https://nytimes.com/athletic/6341261/2025/05/07/reds-hunter-greene-exits-groin-injury/
