@@ -1,3 +1,7 @@
+**Reds' Hunter Greene exits start vs. Braves after 3 innings with groin injury**\
+`Through the first three innings, Greene struck out six and gave up two hits without allowing a run. `\
+https://nytimes.com/athletic/6341261/2025/05/07/reds-hunter-greene-exits-groin-injury/
+
 **Courts Must ‘Check the Excesses’ of Congress and the President, Roberts Says**\
 `The chief justice, in rare public remarks, defended judicial independence before a crowd of lawyers and judges.`\
 https://nytimes.com/2025/05/07/us/politics/supreme-court-roberts-judicial-independence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/07/nyregion/flu-children-died.html
 **The Indian Aircraft Pakistan Says It Shot Down**\
 `Tensions between India and Pakistan have risen sharply in the weeks since a terrorist attack in Kashmir. On Wednesday, India hit Pakistan and appears to have lost at least a few planes in the strike.`\
 https://nytimes.com/2025/05/07/world/asia/india-pakistan-downed-aircraft.html
-
-**How Lost Radar and Silent Radios Have Upended Newark Air Travel**\
-`A technical outage in Philadelphia last week terrified air traffic controllers and stranded passengers. As the summer travel season looms, the F.A.A. is racing to address the problems.`\
-https://nytimes.com/2025/05/07/us/politics/newark-airport-delays.html
 

@@ -1,5 +1,5 @@
-**In Rare Public Remarks, Chief Justice Roberts Defends Judicial Independence**\
-`The chief justice told a crowd of lawyers and judges that sometimes the judiciary must “check the excesses of Congress or the executive.”`\
+**Courts Must ‘Check the Excesses’ of Congress and the President, Roberts Says**\
+`The chief justice, in rare public remarks, defended judicial independence before a crowd of lawyers and judges.`\
 https://nytimes.com/2025/05/07/us/politics/supreme-court-roberts-judicial-independence.html
 
 **Dodgers place Evan Phillips on injured list as their bullpen usage continues to spike**\
