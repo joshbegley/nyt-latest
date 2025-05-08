@@ -1,3 +1,7 @@
+**Tonight’s Dinner Is Bouncy**\
+`Miso rice cakes with spinach and peas, sesame-brown butter udon and cheesy baked gnocchi are chewy, springy suppers.`\
+https://nytimes.com/2025/05/08/dining/tonights-dinner-is-bouncy.html
+
 **Brighton's Tom McGill signs new two-year contract**\
 `The goalkeeper was part of Canada's Copa America squad last year but has yet to make his debut for his country.`\
 https://nytimes.com/athletic/6342539/2025/05/08/brighton-news-mcgill-contract/
