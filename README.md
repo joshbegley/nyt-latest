@@ -1,3 +1,7 @@
+**Tonight’s Dinner Is Bouncy**\
+`Miso rice cakes with spinach and peas, sesame-brown butter udon and cheesy baked gnocchi are chewy, springy suppers.`\
+https://nytimes.com/2025/05/08/dining/tonights-dinner-is-bouncy.html
+
 **Brighton's Tom McGill signs new two-year contract**\
 `The goalkeeper was part of Canada's Copa America squad last year but has yet to make his debut for his country.`\
 https://nytimes.com/athletic/6342539/2025/05/08/brighton-news-mcgill-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/08/world/pope-conclave-news/new-pope-name
 **Biden Defends His Mental Acuity and Blames Sexism for Harris’s Defeat**\
 `On ABC’s “The View,” the former president dismissed reports that he had declined while in office and said he had not been surprised that Kamala Harris lost the election, citing the role of sexism.`\
 https://nytimes.com/2025/05/08/us/politics/biden-harris-the-view-trump.html
-
-****\
-``\
-https://nytimes.com/live/2025/05/08/espanol/nuevo-papa-vaticano
 
