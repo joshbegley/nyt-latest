@@ -1,3 +1,11 @@
+**Steph Curry doesn’t have target return date for ‘tricky’ hamstring injury**\
+`The Warriors have already ruled Curry out of Games 2, 3 and 4.`\
+https://nytimes.com/athletic/6342798/2025/05/08/steph-curry-hamstring-injury-no-target-return/
+
+**Until Saturday: $80M for one schedule tweak**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6342799/2025/05/08/sec-schedule-nine-games-espn-until-saturday/
+
 **Warriors' Pat Spencer shouldn't be here in this NBA spotlight. He never let that stop him**\
 `Pat Spencer probably shouldn't be in the NBA. But basketball was always on his mind.`\
 https://nytimes.com/athletic/6341236/2025/05/08/pat-spencer-warriors-playoffs-lacrosse/
