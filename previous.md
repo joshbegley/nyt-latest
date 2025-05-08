@@ -1,3 +1,7 @@
+**With his 200th career homer, Alex Bregman helps Red Sox snap losing skid**\
+`For how much the Red Sox have struggled of late, Wednesday had the makings of game that could propel them in the right direction.`\
+https://nytimes.com/athletic/6341390/2025/05/08/alex-bregman-200-homers-red-sox/
+
 **Mikko Rantanen records another hat trick, Stars edge Jets in Game 1: Takeaways**\
 `Rantanen scored three goals in the second period as Dallas earned a rare opening-game victory.`\
 https://nytimes.com/athletic/6341370/2025/05/08/jets-stars-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341407/2025/05/08/carlos-correa-hitting-slump-joe-
 **Watching Raphinha in the Champions League semi-final with Leeds supporters**\
 `He may play his games 875 miles away from Elland Road these days, but Raphinha will always have a home in West Yorkshire`\
 https://nytimes.com/athletic/6339781/2025/05/08/raphinha-watchalong-champions-league-leeds/
-
-**Eliezer Mayenda: 'With patience, we can do something here at Sunderland'**\
-`The youngster has lived in three countries, played in four leagues, speaks five languages and has been key to this season's promotion drive`\
-https://nytimes.com/athletic/6337456/2025/05/08/mayenda-sunderland-interview/
 

@@ -1,3 +1,7 @@
+**With his 200th career homer, Alex Bregman helps Red Sox snap losing skid**\
+`For how much the Red Sox have struggled of late, Wednesday had the makings of game that could propel them in the right direction.`\
+https://nytimes.com/athletic/6341390/2025/05/08/alex-bregman-200-homers-red-sox/
+
 **Mikko Rantanen records another hat trick, Stars edge Jets in Game 1: Takeaways**\
 `Rantanen scored three goals in the second period as Dallas earned a rare opening-game victory.`\
 https://nytimes.com/athletic/6341370/2025/05/08/jets-stars-game-1/
