@@ -1,3 +1,7 @@
+**Here are 7 key issues dividing the Roman Catholic Church.**\
+`By Motoko Rich`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/here-are-7-key-issues-dividing-the-roman-catholic-church
+
 **A Paris Restaurant With Live Jazz and Soaring Ceilings**\
 `Plus: a new oceanside hotel in Mexico, murta berries and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/08/t-magazine/paris-grand-palais-restaurant.html
