@@ -1,3 +1,7 @@
+**New Joint Chiefs Chairman Picks a Friendly Crowd for His Debut**\
+`Gen. Dan Caine, who spoke at a special operations conference, has kept a low profile since assuming the military’s top job.`\
+https://nytimes.com/2025/05/08/us/politics/joint-chiefs-chairman-dan-caine.html
+
 **Oliver Oakes' Alpine resignation came after brother arrested, charged**\
 `William Oakes was stopped in the Silverstone Park area on May 2, charged a day later and then appeared at Northampton Magistrates' Court.`\
 https://nytimes.com/athletic/6342491/2025/05/08/oliver-oakes-alpine-brother/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/nyregion/knicks-celtics-playoffs.html
 **FEMA’s Leader Is Dismissed**\
 `The move comes as the Trump administration has considered disbanding the agency.`\
 https://nytimes.com/2025/05/08/us/politics/fema-cameron-hamilton.html
-
-**‘Superfine’ Brings Radiant Black Style to the Met**\
-`Heritage meets gumption at the Costume Institute’s big spring exhibition, where pathbreaking pieces join anonymous garments to build a moving history.`\
-https://nytimes.com/2025/05/08/arts/design/superfine-black-style-met-costume-institute.html
 
