@@ -1,3 +1,7 @@
+**Mississippi Man Is Charged With Stalking Jennifer Aniston**\
+`Prosecutors said that Jimmy Wayne Carwyle, 48, drove through the front gate of Ms. Aniston’s home on Monday after stalking her for nearly two years.`\
+https://nytimes.com/2025/05/08/us/jennifer-aniston-stalker-charged-bel-air-house.html
+
 **Already set up to struggle, MLS Cup champion LA Galaxy are snakebitten, too**\
 `Combine MLS roster rules and spending limitations with a series of injuries and bizarre circumstances, and you've got the 2025 LA Galaxy`\
 https://nytimes.com/athletic/6334768/2025/05/08/la-galaxy-winless-mls-vanney-kuntz-puig/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6340771/2025/05/08/nhl-draft-2025-mailbag-wheeler-l
 `Sigle, San Francisco's fifth-round pick, turned heads when he ran the fastest 40-yard dash for a safety at this year's NFL Scouting Combine.`\
 https://nytimes.com/athletic/6340951/2025/05/08/49ers-rookie-marques-sigle-nfl-draft-2025/
 
-**Did concussion spotters miss Anthony Stolarz's head injury in Game 1?**\
+**Why did concussion spotters miss Anthony Stolarz's head injury in Game 1?**\
 `Stolarz wasn't pulled from the game after a puck to the mask or a controversial forearm to the head in Game 1.`\
 https://nytimes.com/athletic/6340344/2025/05/08/maple-leafs-stolarz-concussion-spotters-nhl-playoffs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/learning/what-tv-show-movie-or-book-would-you-rew
 **After black smoke at noon, the crowd in St. Peter’s hopes for white smoke at night.**\
 `By Patricia Mazzei and Motoko Rich`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/after-black-smoke-at-noon-the-crowd-in-st-peters-hopes-for-white-smoke-at-night
-
-**Jets frustrated by Mikko Rantanen, lack of rhythm in Game 1. What are the keys to Game 2?**\
-`Rantanen continued his playoff brilliance with a second-period hat-trick, powering the Stars past the Jets 4-2. How must Winnipeg readjust?`\
-https://nytimes.com/athletic/6341336/2025/05/08/jets-stars-mikko-rantanen-nhl-playoffs/
 
