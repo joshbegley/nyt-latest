@@ -1,3 +1,19 @@
+**The New York Times in Print for Thursday, May 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/08/todays-new-york-times
+
+**Thursday Briefing**\
+`Tensions between India and Pakistan.`\
+https://nytimes.com/2025/05/08/briefing/india-pakistan-conclave-trade-deal.html
+
+**Devin Williams steps up in wild, 10-inning walk-off win: Yankees takeaways**\
+`Williams helped the Yankees win a ballgame, and he hasn't had many opportunities to say he's done that through the first month.`\
+https://nytimes.com/athletic/6341478/2025/05/08/yankees-takeaways-devin-williams-walk-off-win/
+
+**These Leafs finally look like they know what it takes to win in the postseason**\
+`The Leafs' performance in Game 2 earned praise from the one player who knows best what it's like to play against them.`\
+https://nytimes.com/athletic/6341481/2025/05/08/maple-leafs-nhl-playoffs-marchand-berube/
+
 **Video games, bullying and friendship: Knicks' Mikal Bridges has mastered adversity**\
 `Bridges continues to show his mental toughness, and it has led to the Knicks being up 2-0 over Boston.`\
 https://nytimes.com/athletic/6341369/2025/05/08/knicks-celtics-mikal-bridges-adversity/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6339169/2025/05/08/fantasy-premier-league-gameweek-
 **How Forest's academy is trying to find the next homegrown stars for Nuno's squad**\
 `Nottingham Forest's bid to return to European football means the bar has again been raised for their academy. So how are they coping?`\
 https://nytimes.com/athletic/6340104/2025/05/08/nottingham-forest-academy-abbott/
-
-**What we're hearing on Villa's busy summer transfer window**\
-`Villa's summer plans will be dictated by their final league position - but whatever happens it is going to be busy for Emery and his staff`\
-https://nytimes.com/athletic/6339154/2025/05/08/aston-villa-transfer-window-watkins-martinez-nypan-garcia/
-
-**Leicester City squad audit: Who should stay and who should go?**\
-`As Leicester prepare for life back in the Championship, The Athletic has assessed what the future holds for all of the first-team squad`\
-https://nytimes.com/athletic/6339279/2025/05/08/leicester-city-squad-audit-who-should-stay-and-who-should-go/
-
-**Tottenham have altered their approach in Europe. So far, it's working**\
-`In theory, Spurs like to dominate possession, but most of their best results this season have come when they hit teams on the counter`\
-https://nytimes.com/athletic/6339605/2025/05/08/tottenham-postecoglou-tactics-europa/
-
-**Carlos Correa hitting more than ever to escape early slump: 'I'm not going to stop working'**\
-`Though the first 37 games of his season were filled with trying moments, Correa refuses to let the weight of it crush him.`\
-https://nytimes.com/athletic/6341407/2025/05/08/carlos-correa-hitting-slump-joe-ryan-scratched/
 
