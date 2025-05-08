@@ -1,9 +1,21 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your weekly opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6341856/2025/05/08/ask-ornstein-qa-our-football-insider-answers-your-questions-26/
+
+**Trump Officials Ask Court to End Protections for a Strutting, Showy Bird**\
+`The lesser prairie chicken, known for the males’ quirky courtship dance, inhabits grasslands sought-after by farming and energy developers.`\
+https://nytimes.com/2025/05/08/climate/trump-prairie-chicken-endangered-species-list.html
+
+**The 10 biggest disappointments of the young MLB season: Teams, players, decisions to watch**\
+`From the underachieving O's to the historically bad Rockies to struggling stars and underwhelming top trade targets, disappointment abounds.`\
+https://nytimes.com/athletic/6341786/2025/05/08/mlb-season-disappointments-2025-rockies-orioles/
+
 **Tielemans could miss rest of Villa's season with injury**\
 `The 28-year-old is yet to miss a Premier League game in 2024-25.`\
 https://nytimes.com/athletic/6341854/2025/05/08/tielemans-injury-aston-villa/
 
-**Republicans Writing Trump’s ‘Big, Beautiful Bill’ Face Risks on Medicaid**\
-`Representatives from swing districts face tough votes as soon as next week, when key House panels are scheduled to consider legislation that would cut popular programs to pay for President Trump’s agenda.`\
+**Proposed Medicaid Cuts Put Vulnerable Republicans in a Political Bind**\
+`G.O.P. lawmakers from swing districts face tough votes as soon as next week, when key House panels are scheduled to consider legislation that would cut popular programs to pay for President Trump’s agenda.`\
 https://nytimes.com/2025/05/08/us/politics/republicans-medicaid-budget-dilemma.html
 
 **Out of college eligibility, 100-plus basketball players entered the transfer portal anyway**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/08/science/egg-drop-challenge.html
 **Huevos Rancheros for Breakfast, Brunch, Lunch and Dinner**\
 `Kay Chun’s recipe is simple and brilliant, with an easy homemade salsa that simmers into the ranchero sauce, seasons the refried beans and tops the whole affair.`\
 https://nytimes.com/2025/05/08/dining/huevos-rancheros-breakfast-brunch.html
-
-**The Sistine Chapel hasn’t always been home to the conclave.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/the-sistine-chapel-hasnt-always-been-home-to-the-conclave
-
-**House Votes to Rename Gulf of Mexico as Gulf of America, Taking a Symbolic Step**\
-`The legislation was all but certain to die in the Senate, but the move put the Republican-led House on the record supporting President Trump’s nomenclature.`\
-https://nytimes.com/2025/05/08/us/politics/house-gulf-america-mexico-rename.html
-
-**John H. McConnell II Q & A: Blue Jackets' future owner on his transition, NHL's rising salary cap**\
-`Blue Jackets' alternate governor John H. McConnell II is on track to assume majority ownership of the franchise.`\
-https://nytimes.com/athletic/6341859/2025/05/08/blue-jackets-john-mcconnell-answers-ownership-transition/
 
