@@ -1,3 +1,7 @@
+**Revisions to roster limits in House vs. NCAA propose 'grandfathering'**\
+`The revision proposes athletes who would've been cut as a result of the settlement will not count against the settlement's roster limits.`\
+https://nytimes.com/athletic/6341222/2025/05/07/house-vs-ncaa-roster-limits-revision/
+
 **President Trump plans to create commission on college athletics**\
 `A presidential commission would typically dig into various aspects of an issue and deliver a report suggesting possible solutions.`\
 https://nytimes.com/athletic/6341165/2025/05/07/donald-trump-commission-on-college-athletics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341051/2025/05/07/mallory-swanson-dansby-swanson-p
 **Congress Grills College Presidents With an Old Script and New Threats**\
 `In a House hearing, lawmakers scrutinized a set of college leaders from institutions outside the Ivy League schools that have drawn the Trump administration's attention.`\
 https://nytimes.com/2025/05/07/us/congress-hearing-college-presidents-haverford.html
-
-**Smokey Robinson’s Victory Lap Upended by Allegations of Sexual Assault**\
-`The Motown legend, 85, was touring to support a new album when he was sued and accused of sexually assaulting four women who had worked as housekeepers for him.`\
-https://nytimes.com/2025/05/07/arts/music/smokey-robinson-sexual-assault.html
 
