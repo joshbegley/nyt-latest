@@ -1,3 +1,7 @@
+**Xavi Hernandez interview: Collecting 400 shirts, watching eight games a day, wanting to coach in the Premier League**\
+`In the first of a two-part interview, Xavi Hernandez talks of his football obsession, his ambitions what he knows of Europe's best coaches`\
+https://nytimes.com/athletic/6340393/2025/05/08/xavi-hernandez-interview-premier-league/
+
 **Toyota Says Tariffs Will Erase $1.3 Billion in Profits in Just 2 Months**\
 `The automaker’s somber forecast for the fiscal year underscored how quickly fortunes have turned for many companies reckoning with President Trump’s tariffs.`\
 https://nytimes.com/2025/05/08/business/toyota-earnings-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341217/2025/05/08/arsenal-champions-league-squad-r
 **PSG are Europe's most complete team - no other side can win games in such a variety of ways**\
 `A huge part of the French team's success is their ability to beat opponents using different approaches, something others are less able to do`\
 https://nytimes.com/athletic/6341107/2025/05/08/psg-champions-league-final/
-
-**Padres' Dylan Cease, after no-hit bid and forearm scare, optimistic about 'freak cramp'**\
-`"I don’t think it’s anything too serious," Cease said after leaving Wednesday's game with a forearm cramp.`\
-https://nytimes.com/athletic/6340642/2025/05/08/padres-dylan-cease-no-hit-bid-cramp/
 
