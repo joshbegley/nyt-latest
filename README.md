@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6345339/2025/05/09/cubs-cade-horton-mlb-debut/
 https://nytimes.com/2025/05/09/us/politics/gulf-of-mexico-suit-google.html
 
 **Pope Leo XIV: Villanova fan, Wordle player, world icon: 'He's our brother!'**\
-`Villanova associated AD shares insight into the man from Chicago who has risen to become pope.`\
+`True to his Chicago roots, he cheers for the White Sox and keeps an eye on the former Villanova stars playing for the Knicks.`\
 https://nytimes.com/athletic/6345156/2025/05/09/pope-leo-xiv-villanova-chicago/
 
 **Submit your Cowboys mailbag questions to Jon Machota**\
