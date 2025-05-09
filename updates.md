@@ -1,3 +1,11 @@
+**Police and Brooklyn College Protesters Clash After Pro-Palestinian Rally**\
+`The police moved in to make arrests after demonstrators left the college grounds and gathered outside. Officers punched some students and slammed others to the ground.`\
+https://nytimes.com/2025/05/08/nyregion/protest-brooklyn-college-arrests.html
+
+**Protesters Clash With Police at Brooklyn College**\
+`Police arrested several people during a pro-Palestinian demonstration at Brooklyn College on Thursday.`\
+https://nytimes.com/video/nyregion/100000010158924/protest-brooklyn-college-arrests.html
+
 **See How a Communications Outage Affected Flights at Newark Airport**\
 `The effects of an interruption in radio and radar service could be seen almost immediately, as planes circled in holding patterns. They are still being felt in cancellations and major delays days later.`\
 https://nytimes.com/interactive/2025/05/08/nyregion/newark-airport-delays.html

@@ -1,3 +1,11 @@
+**Police and Brooklyn College Protesters Clash After Pro-Palestinian Rally**\
+`The police moved in to make arrests after demonstrators left the college grounds and gathered outside. Officers punched some students and slammed others to the ground.`\
+https://nytimes.com/2025/05/08/nyregion/protest-brooklyn-college-arrests.html
+
+**Protesters Clash With Police at Brooklyn College**\
+`Police arrested several people during a pro-Palestinian demonstration at Brooklyn College on Thursday.`\
+https://nytimes.com/video/nyregion/100000010158924/protest-brooklyn-college-arrests.html
+
 **See How a Communications Outage Affected Flights at Newark Airport**\
 `The effects of an interruption in radio and radar service could be seen almost immediately, as planes circled in holding patterns. They are still being felt in cancellations and major delays days later.`\
 https://nytimes.com/interactive/2025/05/08/nyregion/newark-airport-delays.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/theater/review-hugh-jackman-in-a-twisty-tale-of-s
 **What Does Pope Leo XIV Do Now?**\
 `Here’s a look at his schedule over the next few days.`\
 https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-schedule-mass.html
-
-**New Funding Talks Could Value Elon Musk’s xAI at $120 Billion**\
-`The discussions follow those of rival OpenAI, which recently closed a funding round that valued it at $300 billion.`\
-https://nytimes.com/2025/05/08/technology/xai-elon-musk-funding-value.html
-
-**Peru rejoices over the new pope and claims him as their own.**\
-`By Genevieve Glatsky`\
-https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-peru
 
