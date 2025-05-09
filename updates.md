@@ -1,3 +1,7 @@
+**Quote of the Day: The Great Salt Lake Is Evaporating Fast. Could Utah Save It?**\
+`Quotation of the Day for Friday, May 9, 2025.`\
+https://nytimes.com/2025/05/08/pageoneplus/quote-of-the-day-the-great-salt-lake-is-evaporating-fast-could-utah-save-it.html
+
 **Timberwolves rout Steph Curry-less Warriors 117-93 to tie series: Takeaways**\
 `Julius Randle paced the Timberwolves with 24 points and recorded a postseason career-high 10 assists.`\
 https://nytimes.com/athletic/6343474/2025/05/08/warriors-timberwolves-game-2-takeaways/
