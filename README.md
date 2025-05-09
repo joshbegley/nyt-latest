@@ -1,3 +1,7 @@
+**Pope Leo XIV overcame an old taboo: Being American.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-xiv-overcame-an-old-taboo-being-american
+
 **Down 2-0 heading onto the road, Golden Knights need Adin Hill to turn the tide**\
 `Las Vegas should be – and need to be – winning the goaltending matchup against the Oilers if they’re to have any chance.`\
 https://nytimes.com/athletic/6343859/2025/05/09/golden-knights-oilers-playoffs-adin-hill/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/crosswords/spelling-bee-forum.html
 **Trade War Shock Is Scrambling China’s Exports**\
 `Shipments of goods out of China slumped in April, including a big decline in exports to the United States, as President Trump imposed sky-high tariffs.`\
 https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
-
-**Oilers re-establishing themselves as true Cup contenders with each gutty win**\
-`While "team of destiny" might be a little melodramatic, the Oilers are certainly a team of tenacity.`\
-https://nytimes.com/athletic/6343831/2025/05/09/oilers-nhl-playoffs-contenders-golden-knights/
 

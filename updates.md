@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-bet
 `\
 https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
 
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
 **Here’s the latest.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/heres-the-latest
