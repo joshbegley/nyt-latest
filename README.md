@@ -1,3 +1,7 @@
+**Travis Hunter could be the ultimate cheat code in fantasy football IDP leagues**\
+`Travis Hunter could be a game-changer in IDP leagues across the various fantasy football game providers.`\
+https://nytimes.com/athletic/6342474/2025/05/09/fantasy-football-idp-travis-hunter-cheat-code/
+
 **Twins' starting pitching is a bright spot, makes a turnaround possible**\
 `After an ugly first week, the Twins' rotation has an MLB-best 2.66 ERA thanks to their front-line trio, quality depth and good health.`\
 https://nytimes.com/athletic/6339346/2025/05/09/minesota-twins-rotation-lopez-ryan-ober/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342331/2025/05/09/matthew-schaefer-porter-martone-
 **What a nine-game football schedule would mean for the SEC**\
 `Here's what the format would look like, who each team’s opponents might be and what still has to happen to finalize a nine-game slate.`\
 https://nytimes.com/athletic/6342225/2025/05/09/sec-football-schedule-format-games-matchups/
-
-**Sliders: A tribute to the incomparable Tony Gwynn, who would have turned 65 on Friday**\
-`Plus Derek Jeter's advice to recent college grads and more timely and timeless elements of baseball.`\
-https://nytimes.com/athletic/6342757/2025/05/09/tony-gwynn-tribute-derek-jeter-advice-sliders/
 
