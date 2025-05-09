@@ -1,3 +1,11 @@
+**Cautious Optimism Among Liberals About New Pope’s Views on Gay Catholics**\
+`Pope Leo XIV has said little publicly about a place in the Catholic Church for gay and transgender people. Some thought the issue would not be key to his agenda.`\
+https://nytimes.com/2025/05/08/nyregion/pope-leo-xiv-lgbtq-gay.html
+
+**Far-Right Activist Targets Trump’s Surgeon General Pick**\
+`The selection of Dr. Casey Means drew ridicule from a Trump ally, Laura Loomer. But Health Secretary Robert F. Kennedy Jr. defended the surgeon general nominee.`\
+https://nytimes.com/2025/05/08/us/politics/means-loomer-trump-surgeon-general.html
+
 **Reincarnated by A.I., Arizona Man Forgives His Killer at Sentencing**\
 `A likeness of Christopher Pelkey, who was killed in a 2021 road rage episode, was created with artificial intelligence. It was part of a victim’s impact statement.`\
 https://nytimes.com/2025/05/08/us/ai-victim-impact-statement-manslaughter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/us/pope-leo-creole-new-orleans.html
 **An Urgent Question for the Pope: Cubs or Sox?**\
 `Fans from both teams seemed to claim him as their own, but his brother had the final answer.`\
 https://nytimes.com/2025/05/08/world/europe/pope-chicago-cubs-white-sox.html
-
-**The Ducks are eager to win again, but is hiring coach Joel Quenneville a good move?**\
-`In addition to the controversy around his hiring, is Quenneville the correct coach to take the Ducks back to the playoffs?`\
-https://nytimes.com/athletic/6342727/2025/05/08/joel-quenneville-ducks-coach/
-
-**Twins takeaways: Byron Buxton does it all, Bailey Ober grinds, Brooks Lee vs. fastballs**\
-`Following three big days with the bat, Buxton used his wheels and an accurate, strong arm to extend the Twins' winning streak to five. `\
-https://nytimes.com/athletic/6343317/2025/05/08/twins-orioles-byron-buxton-brooks-lee-bailey-ober/
 
