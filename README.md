@@ -1,3 +1,11 @@
+**Pulisic saves Milan again, keeps slim Champions League hopes alive**\
+`The USMNT forward helped his club to another comeback win - but is it too late?`\
+https://nytimes.com/athletic/6345298/2025/05/09/pulisic-milan-bologna/
+
+**Reds place Hunter Greene on IL, activate Austin Hays**\
+`The Reds called up Chase Petty, who made his major-league debut on April 30. Greene is eligible to return on May 18. `\
+https://nytimes.com/athletic/6345343/2025/05/09/reds-hunter-greene-injury-austin-hays/
+
 **Leo Lived Here: The Price Goes Up for the Pope’s Childhood Home**\
 `After Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church, offers began flooding in to buy this modest house outside Chicago, the real estate broker said.`\
 https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/t-magazine/best-jelly-shoes.html
 **Pope Leo XIV Echoes Francis in His First Mass, Aligning Himself With ‘Ordinary People’**\
 `In his advocacy of the poor, migrants and a more open church, many people see the new pope as a continuation of his predecessor.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-mass-catholic-church.html
-
-**Pinterest Settles Lawsuit From Female ‘Co-Creator’ for $34.7 Million**\
-`Christine Martinez, who was a friend of two of Pinterest’s three co-founders, sued the company in 2021 for breach of implied contract and other claims.`\
-https://nytimes.com/2025/05/09/technology/pinterest-settles-lawsuit-34-7-million.html
-
-**Here are 6 times when popes shaped history, for better or worse.**\
-`By Talya Minsberg and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-6-times-when-popes-shaped-history-for-better-or-worse
 
