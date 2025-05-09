@@ -1,3 +1,7 @@
+**After the new Pope comes Sinner: Italy's sporting avatar returns to the tennis court**\
+`Sinner is Italy's chosen one. At the Foro Italico in Rome, his comeback from an anti-doping ban overtakes all else in tennis.`\
+https://nytimes.com/athletic/6342748/2025/05/09/jannik-sinner-tennis-comeback-italian-open/
+
 **India vs. Pakistan is also U.S. vs. China when it comes to arms sales.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakistan-is-also-us-vs-china-when-it-comes-to-arms-sales
