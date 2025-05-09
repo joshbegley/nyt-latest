@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`The election of the first American pope.`\
+https://nytimes.com/2025/05/09/briefing/pope-trade-tate-modern.html
+
+**Justice Sotomayor Says Lawyers Must ‘Stand Up’ and ‘Fight This Fight’**\
+`In pointed remarks, the justice told an audience of hundreds of lawyers that she had joined them as “an act of solidarity.”`\
+https://nytimes.com/2025/05/09/us/justice-sotomayor-talk.html
+
 **FPL: A guide to making transfers at the end of the season**\
 `With only three gameweeks of the season left in FPL, managers have to be careful with transfers, making sure they are maximising each one`\
 https://nytimes.com/athletic/6340658/2025/05/09/fantasy-premier-league-transfers-gameweek-36-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6341911/2025/05/09/sunderland-coventry-bristol-hill
 **How the Premier League fell in love with long throws again**\
 `Other elements of football may be more aesthetically pleasing, but few actions have the visceral thrill of hurling the ball into the box`\
 https://nytimes.com/athletic/6337315/2025/05/09/premier-league-long-throws-tactics/
-
-**Remembering Tom Youngs, an extraordinary ordinary footballer**\
-`Youngs was a journeyman striker and proud of it, but his courage in living with MS gave his story a poignant, and tragic, twist`\
-https://nytimes.com/athletic/6341832/2025/05/09/tom-youngs-multiple-sclerosis/
-
-**Premier League top-five race: Arsenal join the battle as Newcastle and Chelsea face off at St James' Park**\
-`Updates and analysis from the increasingly tight race to qualify for next season's Champions League `\
-https://nytimes.com/athletic/6341991/2025/05/09/premier-league-race-for-top-five-arsenal-chelsea/
 
