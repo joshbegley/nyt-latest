@@ -1,3 +1,7 @@
+**Trump Fired Librarian of Congress Over D.E.I.**\
+`Dr. Hayden is the latest high-ranking Black government official to be axed in the Trump administration’s crusade against D.E.I.`\
+https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
+
 **Judge Awards $680,000 to Military Families Sickened by Jet Fuel Spill in Hawaii**\
 `A lawyer for the plaintiffs said that they had “prevailed against all odds” but called the damage award “disappointing.”`\
 https://nytimes.com/2025/05/09/us/navy-red-hill-water-contamination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
 **‘Dead Outlaw’ Cancels Library of Congress Concert to Protest Firing**\
 `The Broadway musical, which earned seven Tony nominations, scrapped a performance after the Librarian of Congress, Dr. Carla D. Hayden, was fired by the Trump administration.`\
 https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performance.html
-
-**Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
-`Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
-https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
 
