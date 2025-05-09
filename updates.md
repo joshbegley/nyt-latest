@@ -1,3 +1,19 @@
+**The Bounce: With Steph Curry sidelined, Warriors are in deep trouble as Wolves find footing**\
+`The Timberwolves have a tendency to play down to their competition, but Steph Curry's injury may shorten Minnesota's margin for error`\
+https://nytimes.com/athletic/6344413/2025/05/09/steph-curry-anthony-edwards-warriors-wolves-nba-playoffs-the-bounce/
+
+**U.S. automakers say Trump’s trade deal with Britain gives foreign companies a leg up.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2025/05/09/us/trump-news/us-automakers-say-trumps-trade-deal-with-britain-gives-foreign-companies-a-leg-up
+
+**When the pope was chosen, two tailors in Rome were ready.**\
+`By Patricia Mazzei and Jason Horowitz`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/when-the-pope-was-chosen-two-tailors-in-rome-were-ready
+
+**Russian State TV Shows Leaders at Moscow Military Parade**\
+`Joined by North Korean officers and the leaders of China and Brazil, President Vladimir V. Putin of Russia marked the 80th anniversary of the Soviet Union’s victory over Nazi Germany with a Red Square military parade.`\
+https://nytimes.com/video/world/europe/100000010159283/russian-state-tv-shows-leaders-at-moscow-military-parade.html
+
 **Miu Miu Brings a Show to New York, and Everyone Can Go**\
 `In an exclusive interview, Miuccia Prada explains it all.`\
 https://nytimes.com/2025/05/09/style/miuccia-prada-miu-miu.html
