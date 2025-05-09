@@ -1,3 +1,7 @@
+**Leo Lived Here: The Price Goes Up for the Pope’s Childhood Home**\
+`After Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church, offers began flooding in to buy this modest house outside Chicago, the real estate broker said.`\
+https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
+
 **‘Dead Outlaw’ Cancels Library of Congress Concert to Protest Firing**\
 `The Broadway musical, which earned seven Tony nominations, scrapped a performance after the Librarian of Congress, Dr. Carla D. Hayden, was fired by the Trump administration.`\
 https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/technology/pinterest-settles-lawsuit-34-7-million
 **Here are 6 times when popes shaped history, for better or worse.**\
 `By Talya Minsberg and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-6-times-when-popes-shaped-history-for-better-or-worse
-
-**The 5.11.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
 
