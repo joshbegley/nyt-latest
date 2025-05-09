@@ -1,3 +1,8 @@
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
 **Amid Blockade, Trump and Israel Mull Divisive Aid Plan For Gaza**\
 `Two months after Israel blocked all aid to Gaza, U.S. and Israeli officials are considering a new food distribution plan. The U.N. says it is unworkable.`\
 https://nytimes.com/2025/05/09/world/middleeast/gaza-aid-us-israel.html

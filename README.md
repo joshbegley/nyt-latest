@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6343859/2025/05/09/golden-knights-oilers-playoffs-a
 `By The New York Times`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/heres-the-latest
 
-**Live Updates: Leo XIV to Celebrate First Mass as Pope**\
-`The new pontiff, who was born in Chicago and served for two decades in Peru, will soon face difficult decisions about the direction of the Roman Catholic Church.`\
+**Live Updates: Leo XIV Celebrates First Mass as Pope**\
+`The pope will say Mass with cardinals in the Sistine Chapel the day after being elected the first American pope. He will soon confront difficult decisions about the direction of the Roman Catholic Church.`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news
 
 **Putin Aims to Project Power at Military Parade Marking Victory Over Nazi Germany**\
