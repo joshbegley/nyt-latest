@@ -1,3 +1,11 @@
+**Dodgers finally see a fellow NL West contender — and witness the challenge firsthand**\
+`Yoshinobu Yamamoto lacked control and Arizona took advantage, showing L.A. why the division is the best in baseball.`\
+https://nytimes.com/athletic/6343737/2025/05/09/dodgers-diamondbacks-yoshinobu-yamamoto-nl-west/
+
+**Manchester United turn to the cavalry to secure this season's shot at glory**\
+`Mason Mount, Amad and Luke Shaw made an impressive impact as second-half substitutes with Ruben Amorim's bench suddenly providing options`\
+https://nytimes.com/athletic/6336703/2025/05/09/manchester-united-europa-mount-amad-shaw/
+
 **What the New Pope Tells Us About the Church**\
 `Robert Francis Prevost, now Leo XIV, is the first American pope. Jason Horowitz, Rome bureau chief of The New York Times, and Katrin Bennhold, a senior writer on the international desk, discuss what this means.`\
 https://nytimes.com/video/world/europe/100000010157615/what-the-new-pope-tells-us-about-the-church.html
