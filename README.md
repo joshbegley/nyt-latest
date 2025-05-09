@@ -1,3 +1,7 @@
+**Trade War Shock Is Scrambling China’s Exports**\
+`Shipments of goods out of China slumped in April, including a big decline in exports to the United States, as President Trump imposed sky-high tariffs.`\
+https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
+
 **Oilers re-establishing themselves as true Cup contenders with each gutty win**\
 `While "team of destiny" might be a little melodramatic, the Oilers are certainly a team of tenacity.`\
 https://nytimes.com/athletic/6343831/2025/05/09/oilers-nhl-playoffs-contenders-golden-knights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343737/2025/05/09/dodgers-diamondbacks-yoshinobu-y
 **Manchester United turn to the cavalry to secure this season's shot at glory**\
 `Mason Mount, Amad and Luke Shaw made an impressive impact as second-half substitutes with Ruben Amorim's bench suddenly providing options`\
 https://nytimes.com/athletic/6336703/2025/05/09/manchester-united-europa-mount-amad-shaw/
-
-**What the New Pope Tells Us About the Church**\
-`Robert Francis Prevost, now Leo XIV, is the first American pope. Jason Horowitz, Rome bureau chief of The New York Times, and Katrin Bennhold, a senior writer on the international desk, discuss what this means.`\
-https://nytimes.com/video/world/europe/100000010157615/what-the-new-pope-tells-us-about-the-church.html
 
