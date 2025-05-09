@@ -1,3 +1,7 @@
+**Newark Mayor Arrested Outside ICE Detention Center**\
+`Protesters shouted as federal officials arrested Mayor Ras J. Baraka of Newark while he and three members of Congress were demonstrating at a new immigration detention center.`\
+https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
+
 **After Criticism, Harris’s $900 Million Group Tries to Lay Out a Future**\
 `Future Forward, the big-money group supporting Kamala Harris’s presidential bid last year, resurfaced after her loss with an event in California.`\
 https://nytimes.com/2025/05/09/us/politics/future-forward-harris.html

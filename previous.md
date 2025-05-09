@@ -1,3 +1,7 @@
+**Newark Mayor Arrested Outside ICE Detention Center**\
+`Protesters shouted as federal officials arrested Mayor Ras J. Baraka of Newark while he and three members of Congress were demonstrating at a new immigration detention center.`\
+https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
+
 **After Criticism, Harris’s $900 Million Group Tries to Lay Out a Future**\
 `Future Forward, the big-money group supporting Kamala Harris’s presidential bid last year, resurfaced after her loss with an event in California.`\
 https://nytimes.com/2025/05/09/us/politics/future-forward-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/us/politics/pentagon-hegseth-dei-library-books.ht
 **With Nick Chubb's return 'increasingly unlikely,' Browns turn to rookie RBs**\
 `Cleveland selected two running backs in April's draft, Quinshon Judkins in the second round and Dylan Sampson in the fourth.`\
 https://nytimes.com/athletic/6345394/2025/05/09/browns-running-backs-nick-chubb-quinshon-judkins/
-
-**Blue Jays place Andrés Giménez on IL with quad strain**\
-`The Blue Jays will miss Giménez's defense at second base, but his IL stint could allow them to get more offense from the position.`\
-https://nytimes.com/athletic/6345463/2025/05/09/blue-jays-andres-gimenez-injury/
 
