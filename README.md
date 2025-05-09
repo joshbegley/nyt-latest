@@ -1,3 +1,11 @@
+**Twins' starting pitching is a bright spot, makes a turnaround possible**\
+`After an ugly first week, the Twins' rotation has an MLB-best 2.66 ERA thanks to their front-line trio, quality depth and good health.`\
+https://nytimes.com/athletic/6339346/2025/05/09/minesota-twins-rotation-lopez-ryan-ober/
+
+**Raptors Tankathon, pre-NBA Draft Lottery 2025 edition: Four mock scenarios**\
+`So, what happens if the Raptors don't win the lottery?`\
+https://nytimes.com/athletic/6337569/2025/05/09/nba-draft-lottery-2025-raptors-mock/
+
 **Row Z: Arteta's mystery French sources, stings and roundabouts**\
 `Our weekly round up of football's bonkers side also takes in Tom Cleverley needing time and MK Dons' sparkling new club crest`\
 https://nytimes.com/athletic/6343202/2025/05/09/arteta-mk-dons-neville-row-z/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6342225/2025/05/09/sec-football-schedule-format-gam
 **Sliders: A tribute to the incomparable Tony Gwynn, who would have turned 65 on Friday**\
 `Plus Derek Jeter's advice to recent college grads and more timely and timeless elements of baseball.`\
 https://nytimes.com/athletic/6342757/2025/05/09/tony-gwynn-tribute-derek-jeter-advice-sliders/
-
-**The Athletic’s Friday football quiz question #54**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6343978/2025/05/09/the-athletics-friday-football-quiz-question-54/
-
-**Draisaitl and McDavid came up clutch for the Oilers. Wait until they really get going**\
-`The Oilers are proving to be a worthy Stanley Cup contender with each passing game — even with their star duo not at their best.`\
-https://nytimes.com/athletic/6343883/2025/05/09/oilers-golden-knights-playoffs-draisaitl-mcdavid/
 
