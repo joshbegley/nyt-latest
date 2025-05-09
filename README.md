@@ -1,3 +1,7 @@
+**Computer Problem Shuts Down Entire BART System in Bay Area**\
+`Bay Area Rapid Transit, the main commuter rail system for the region, was forced to close for the Friday morning commute.`\
+https://nytimes.com/2025/05/09/us/bart-train-shutdown.html
+
 **Five years of Blackhawks NHL draft classes: The signed, unsigned and uncertain**\
 `Here's a look at the Blackhawks' last five drafts: players they've signed, players they haven't and players whose rights they still own.`\
 https://nytimes.com/athletic/6343679/2025/05/09/blackhawks-nhl-draft-picks-contracts-kyle-davidson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6339987/2025/05/09/premier-league-predicted-lineups
 **Ranking Commanders' UDFA class: Can a former 5-star recruit crack the 53?**\
 `Washington opens its three-day rookie minicamp with 10 undrafted free agents who will get a chance to make the 53-man roster. `\
 https://nytimes.com/athletic/6343564/2025/05/09/commanders-2025-undrafted-free-agents/
-
-**The Bounce: With Steph Curry sidelined, Warriors are in deep trouble as Wolves find footing**\
-`The Timberwolves have a tendency to play down to their competition, but Steph Curry's injury may shorten Minnesota's margin for error`\
-https://nytimes.com/athletic/6344413/2025/05/09/steph-curry-anthony-edwards-warriors-wolves-nba-playoffs-the-bounce/
 
