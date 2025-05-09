@@ -1,3 +1,15 @@
+**After Criticism, Harris’s $900 Million Group Tries to Lay Out a Future**\
+`Future Forward, the big-money group supporting Kamala Harris’s presidential bid last year, resurfaced after her loss with an event in California.`\
+https://nytimes.com/2025/05/09/us/politics/future-forward-harris.html
+
+**Juan Soto's bullpen visits: Sunflower seeds and scouting reports**\
+`Soto visits the Mets' bullpen before games, between pitching changes — really, anytime there's a break in the action that lets him pop in.`\
+https://nytimes.com/athletic/6345500/2025/05/09/juan-soto-bullpen-visits-sunflower-seeds-scouting-reports/
+
+**What we learned from Vikings rookie minicamp: A new QB, two intriguing young CBs**\
+`Rookie minicamp is a sign that the real action is inching closer. Here are three players who stood out for the Vikings in Friday's action.`\
+https://nytimes.com/athletic/6345444/2025/05/09/vikings-rookie-minicamp-max-brosmer-tommi-hill/
+
 **Illinois Voting Record Shows Pope Voted Regularly, and in Both Parties’ Primaries**\
 `Pope Leo XIV voted in Democratic primaries in 2008 and 2010 and in three Republican primaries in the years that followed, state records show.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-voting-record-illinois.html
