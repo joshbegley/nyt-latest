@@ -1,3 +1,11 @@
+**Five Science Fiction Movies to Stream Now**\
+`There’s scorched earth with a little bit of hope in this month’s sci-fi picks.`\
+https://nytimes.com/2025/05/09/movies/science-fiction-movies-streaming.html
+
+**Draymond Green says he’s sick of being made to ‘look like an angry Black man’**\
+`The four-time All-Star is now two technical fouls away from an automatic one-game suspension.`\
+https://nytimes.com/athletic/6344206/2025/05/09/warriors-draymond-green-upset-agenda/
+
 **Opening Line: Intriguing wagers around Knicks-Celtics and more this weekend**\
 `The most intriguing odds from this weekend's biggest games, including late-game action for the Knicks and El Clasico.`\
 https://nytimes.com/athletic/6344536/2025/05/09/the-most-intriguing-wagers-around-cubs-mets-knicks-celtics-and-more-this-weekend/

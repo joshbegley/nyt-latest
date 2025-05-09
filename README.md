@@ -1,3 +1,11 @@
+**Arsenal open talks over new Saliba contract**\
+`Saliba’s existing terms run until the summer of 2027 and he is being targeted by Real Madrid.`\
+https://nytimes.com/athletic/6258890/2025/05/09/arsenal-william-saliba-contract-talks/
+
+**Live MLB Draft and prospects Q&A with Keith Law today at 2 pm ET**\
+`Chat with Keith Law about the MLB Draft and MLB prospects!`\
+https://nytimes.com/athletic/6344743/2025/05/09/keith-law-mlb-draft-prospects-live-qanda/
+
 **Five Science Fiction Movies to Stream Now**\
 `There’s scorched earth with a little bit of hope in this month’s sci-fi picks.`\
 https://nytimes.com/2025/05/09/movies/science-fiction-movies-streaming.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/business/trump-tariffs-manufacturing-mexico-china
 **An Inexpensive Take on a French Classic**\
 `Kay Chun’s new recipe for braised pork with leeks is homey simplicity, a perfect complement to buttered noodles and a glass of light pinot noir.`\
 https://nytimes.com/2025/05/09/dining/an-inexpensive-take-on-a-french-classic.html
-
-**Trump Softens on Raising Taxes on the Rich, Saying G.O.P. Probably Shouldn’t**\
-`Days after he privately encouraged Speaker Mike Johnson to increase tax for the wealthy in a bill to fulfill his agenda, he publicly said it could be a bad idea, one that was ‘OK’ with him.`\
-https://nytimes.com/2025/05/09/us/politics/trump-taxes-carried-interest.html
-
-**Mayor Adams to Meet With Trump in Washington About New York City ‘Priorities’**\
-`The meeting on Friday between Mayor Eric Adams of New York City and President Trump comes as documents related to his abandoned federal corruption case are set to be released.`\
-https://nytimes.com/2025/05/09/nyregion/eric-adams-trump-meeting.html
 
