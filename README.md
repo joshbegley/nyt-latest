@@ -3,14 +3,14 @@
 https://nytimes.com/2025/05/09/world/europe/sycamore-gap-tree-verdict.html
 
 **Slot 'disappointed' by Alexander-Arnold exit, confirms Bradley to start vs Arsenal**\
-`Alexander-Arnold announced earlier this week that he will leave on a free transfer when his contract expires this summer.`\
+`Alexander-Arnold announced earlier this week that he will leave Liverpool on a free transfer when his contract expires this summer.`\
 https://nytimes.com/athletic/6343930/2025/05/09/liverpool-slot-alexander-arnold-bradley/
 
 **Girona head coach Michel hospitalised with 'health issue'**\
 `The 49-year-old, who coached the club in the Champions League this campaign, won't be involved in Saturday's match at home to Villarreal.`\
 https://nytimes.com/athletic/6343950/2025/05/09/girona-michel-health-hospital/
 
-**India vs. Pakistan is also U.S. vs. China when it comes to arms sales.**\
+**Changing patterns in arms suppliers reveal shifting alignments.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakistan-is-also-us-vs-china-when-it-comes-to-arms-sales
 
