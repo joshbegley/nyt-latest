@@ -1,3 +1,11 @@
+**Draft Executive Orders Aim to Speed Construction of Nuclear Plants**\
+`The potential actions could include overhauling the Nuclear Regulatory Commission and leaning on the U.S. military to deploy new reactors.`\
+https://nytimes.com/2025/05/09/climate/trump-draft-nuclear-executive-orders.html
+
+**Coach's challenge, move to quarters under consideration for college basketball**\
+`The committee recommended creating a working group to explore a long-discussed change from halves to quarters.`\
+https://nytimes.com/athletic/6345080/2025/05/09/college-basketball-rule-changes-coach-challenge-halves-quarters/
+
 **Coach's challenge proposed for college hoops; 'momentum' for move to quarters**\
 `The committee recommended creating a working group to explore a long-discussed change from halves to quarters.`\
 https://nytimes.com/athletic/6345080/2025/05/09/college-basketball-rule-changes-coach-challenge-halves-quarters/
