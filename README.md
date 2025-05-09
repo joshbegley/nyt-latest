@@ -1,5 +1,9 @@
+**Justice Department to Investigate Muslim Development in Texas, Cornyn Says**\
+`The planned development outside of Dallas, organized by members of a local mosque, has drawn intense scrutiny from Republicans.`\
+https://nytimes.com/2025/05/09/us/politics/muslim-development-texas-investigation.html
+
 **Women's World Cup expanding to 48-team tournament**\
-`The Women's World Cup only expanded to 32 teams in 2023 and brings it in line with the men's equivalent.`\
+`The Women's World Cup only expanded to 32 teams in 2023. This move brings it in line with the men's equivalent.`\
 https://nytimes.com/athletic/6344750/2025/05/09/fifa-womens-world-cup-48-teams/
 
 **In rare comments, Ducks owner Henry Samueli discusses Joel Quenneville, spending, a playoff push**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-is-a-friar-
 **NASCAR antitrust case: Appeals judges show skepticism over injunction**\
 `A ruling is expected later this month as NASCAR appeals the preliminary injunction that allowed 23XI and Front Row to continue racing. `\
 https://nytimes.com/athletic/6344576/2025/05/09/nascar-antitrust-case-lawsuit-appeal-michael-jordan/
-
-**In Chiclayo, Peru, Locals Cheer the ‘Peruvian Pope’**\
-`From delivering help to flood-ravaged regions to singing Christmas songs to blessing babies, Pope Leo XIV tried to be a cleric of the people in Peru.`\
-https://nytimes.com/2025/05/09/world/europe/pope-peru-reaction.html
 
