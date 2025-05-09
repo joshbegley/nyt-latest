@@ -1,3 +1,19 @@
+**The Pope Begins to Set His Course**\
+`Also, David Souter, the Republican-turned-liberal justice, died. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/09/briefing/pope-leo-trump-china-tariffs-mothers-day.html
+
+**Wolves head coach Pereira on Ait-Nouri future: 'We want to keep our best players'**\
+`The 23-year-old had been expected to be sold in the summer as Wolves look to raise cash to strengthen other areas of Pereira’s squad.`\
+https://nytimes.com/athletic/6344899/2025/05/09/wolves-ait-nouri-transfer-news-future/
+
+**First Joint Visit of Four European Leaders to Ukraine**\
+`On Saturday, the leaders of four major European powers — France, Germany, Britain and Poland — will travel to Kyiv in a display of European unity.`\
+https://nytimes.com/2025/05/09/world/europe/four-european-countries-visit-ukraine.html
+
+**On the Role of Women in Church Leadership, Leo Has Followed Francis’ Lead**\
+`The new pope opposed letting women serve as deacons but endorsed some of his predecessor’s moves to expand their involvement.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-women-catholic-church.html
+
 **Pulisic saves Milan again, keeps slim Champions League hopes alive**\
 `The USMNT forward helped his club to another comeback win - but is it too late?`\
 https://nytimes.com/athletic/6345298/2025/05/09/pulisic-milan-bologna/

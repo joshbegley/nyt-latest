@@ -1,3 +1,7 @@
+**Judge Awards $680,000 to Military Families Sickened by Jet Fuel Spill in Hawaii**\
+`A lawyer for the plaintiffs said that they had “prevailed against all odds” but called the damage award “disappointing.”`\
+https://nytimes.com/2025/05/09/us/navy-red-hill-water-contamination.html
+
 **The Pope Begins to Set His Course**\
 `Also, David Souter, the Republican-turned-liberal justice, died. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/09/briefing/pope-leo-trump-china-tariffs-mothers-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performan
 **Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
 `Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
 https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
-
-**J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
-`He knew he could never match the success of the great Sam Snead, but he won eight tournaments on the PGA Tour and four more on the senior circuit.`\
-https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
 
