@@ -1,3 +1,19 @@
+**Computer Problem Shuts Down Entire BART System in Bay Area**\
+`Bay Area Rapid Transit, the main commuter rail system for the region, was forced to close for the Friday morning commute.`\
+https://nytimes.com/2025/05/09/us/bart-train-shutdown.html
+
+**Five years of Blackhawks NHL draft classes: The signed, unsigned and uncertain**\
+`Here's a look at the Blackhawks' last five drafts: players they've signed, players they haven't and players whose rights they still own.`\
+https://nytimes.com/athletic/6343679/2025/05/09/blackhawks-nhl-draft-picks-contracts-kyle-davidson/
+
+**F.D.A. Approves First At-Home Alternative to the Pap Smear**\
+`The tool will allow women to screen for HPV, which causes almost all cases of cervical cancer, without visiting a doctor.`\
+https://nytimes.com/2025/05/09/well/pap-smear-at-home-alternative-cervical.html
+
+**Judge Delays Sean Combs Jury Selection, Concerned About ‘Cold Feet’**\
+`Judge Arun Subramanian said he feared jurors might grow uneasy over the weekend and drop off the panel before the trial begins on Monday.`\
+https://nytimes.com/2025/05/09/arts/music/diddy-sean-combs-jury-delayed.html
+
 **Holocaust Museum Board Member Condemns Silence on Trump Firings**\
 `Board members clashed over email after a Biden appointee sent a scathing letter invoking the Holocaust as he denounced the museum’s silence on President Trump’s firings of board members.`\
 https://nytimes.com/2025/05/09/us/politics/holocaust-museum-trump-biden-firings.html
