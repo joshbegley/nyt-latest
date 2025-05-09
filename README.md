@@ -1,3 +1,11 @@
+**West Ham's Wan-Bissaka receives first DR Congo call-up**\
+`Wan-Bissaka, who is English-born and of Congolese descent, played for England up to under 21 level and DR Congo's Under-20 side.`\
+https://nytimes.com/athletic/6344333/2025/05/09/aaron-wan-bissaka-international-dr-congo/
+
+**Russian State TV Shows Leaders at Moscow Military Parade**\
+`Joined by North Korean officers and the leaders of China and Brazil, President Vladimir V. Putin of Russia marked the 80th anniversary of the Soviet Union’s victory over Nazi Germany with a Red Square military parade.`\
+https://nytimes.com/video/world/europe/100000010159283/russian-state-tv-shows-leaders-at-moscow-military-parade.html
+
 **Miu Miu Brings a Show to New York, and Everyone Can Go**\
 `In an exclusive interview, Miuccia Prada explains it all.`\
 https://nytimes.com/2025/05/09/style/miuccia-prada-miu-miu.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6343684/2025/05/09/sf-giants-buster-posey-farhan-za
 **NHL Power Rankings: Everything is changing — including at the top**\
 ` What's different this time? We answer that question for each of the 8 remaining teams as the Maple Leafs jump to the top of the rankings.`\
 https://nytimes.com/athletic/6344213/2025/05/09/nhl-playoffs-power-rankings-maple-leafs/
-
-**British Airways Owner Buys 32 Boeing Planes Worth $13 Billion**\
-`IAG, the airline’s parent company, announced the order a day after Britain and the United States confirmed the framework for a trade agreement to lower tariffs.`\
-https://nytimes.com/2025/05/09/business/british-airways-boeing.html
-
-**David H. Souter, Republican Justice Who Allied With Court’s Liberal Wing, Dies at 85**\
-`He left conservatives bitterly disappointed with his migration from right to left, leading to the cry of “no more Souters.”`\
-https://nytimes.com/2025/05/09/us/david-souter-dead.html
 

@@ -1,3 +1,7 @@
+**Miu Miu Brings a Show to New York, and Everyone Can Go**\
+`In an exclusive interview, Miuccia Prada explains it all.`\
+https://nytimes.com/2025/05/09/style/miuccia-prada-miu-miu.html
+
 **Arteta says Nwaneri could see increase in minutes**\
 `The 18-year-old has enjoyed a breakthrough year in north London but has hardly featured in Arsenal's last five games.`\
 https://nytimes.com/athletic/6344401/2025/05/09/ethan-nwaneri-arsenal-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/business/british-airways-boeing.html
 **David H. Souter, Republican Justice Who Allied With Court’s Liberal Wing, Dies at 85**\
 `He left conservatives bitterly disappointed with his migration from right to left, leading to the cry of “no more Souters.”`\
 https://nytimes.com/2025/05/09/us/david-souter-dead.html
-
-**David H. Souter: The pillars of power and the pull of New Hampshire**\
-`Adam Liptak, who covers the Supreme Court for the Times, recalls how the justice openly despised the pomp of Washington and longed to return to his home. -`\
-https://nytimes.com/video/obituaries/100000003488856/david-h-souter-the-pillars-of-power-and-the-pull-of-new-hampshire-obituary.html
 
