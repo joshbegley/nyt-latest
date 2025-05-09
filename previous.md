@@ -1,3 +1,7 @@
+**Trump Softens on Raising Taxes on the Rich, Saying G.O.P. Probably Shouldn’t**\
+`Days after he privately encouraged Speaker Mike Johnson to increase tax for the wealthy in a bill to fulfill his agenda, he publicly said it could be a bad idea, one that was ‘OK’ with him.`\
+https://nytimes.com/2025/05/09/us/politics/trump-taxes-carried-interest.html
+
 **Mayor Adams to Meet With Trump in Washington About New York City ‘Priorities’**\
 `The meeting on Friday between Mayor Eric Adams of New York City and President Trump comes as documents related to his abandoned federal corruption case are set to be released.`\
 https://nytimes.com/2025/05/09/nyregion/eric-adams-trump-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343721/2025/05/09/rafael-devers-first-base-the-win
 **Four things the Canucks can learn from the Stanley Cup playoffs so far**\
 `Here are four takeaways from the playoffs and how they should impact the Canucks offseason.`\
 https://nytimes.com/athletic/6343835/2025/05/09/nhl-playoffs-canucks-takeaways/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 36?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6339987/2025/05/09/premier-league-predicted-lineups-gw36/
 
