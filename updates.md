@@ -1,3 +1,11 @@
+**The Summer Books We’re Looking Forward To**\
+`It’s not too early to think about the season’s most anticipated titles.`\
+https://nytimes.com/2025/05/09/books/review/summer-books-preview-podcast.html
+
+**Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
+`The Warriors have little choice but to ride with Kuminga and live with whatever happens. And he has little choice but to seize this moment.`\
+https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
+
 **Leo XIV’s first words set a pastoral tone, acknowledging tradition.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xivs-first-words-set-a-pastoral-tone-acknowledging-tradition
