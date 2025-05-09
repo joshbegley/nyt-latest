@@ -1,3 +1,7 @@
+**Downward-Facing Dog**\
+`Willa Angel Chen Miller and Erik Agard open our solving weekend.`\
+https://nytimes.com/2025/05/08/crosswords/daily-puzzle-2025-05-09.html
+
 **Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
 `"We're getting there. It's coming," Washington coach Spencer Carbery said during the game.`\
 https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs
 `Pope Leo XIII, who served from 1878 to 1903, led the church into the modern world, emphasizing its moral authority beyond national boundaries. He defended the rights of working people and affirmed the value of science.`\
 https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
 
-**Two Priests Reflect on Their Longtime Friend ‘Bob,’ Now Pope Leo XIV**\
+**Two Priests Reflect on Their Longtime Friend Bob, Now Pope Leo XIV**\
 `When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
 https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343426/2025/05/08/fcs-12-game-regular-season-sched
 **Greenberg: Talking to 'The Pope' about the Pope, Caleb Williams, Ben Johnson and White Sox**\
 `After Chicago native Robert Prevost became the first American-born pope, we spoke to the city's first "Pope" — White Sox reliever Donn Pall.`\
 https://nytimes.com/athletic/6343288/2025/05/08/chicago-pope-leo-xiv-white-sox-cubs-donn-pall/
-
-**Cautious Optimism Among Liberals About New Pope’s Views on Gay Catholics**\
-`Pope Leo XIV has said little publicly about a place in the Catholic Church for gay and transgender people. Some thought the issue would not be key to his agenda.`\
-https://nytimes.com/2025/05/08/nyregion/pope-leo-xiv-lgbtq-gay.html
 

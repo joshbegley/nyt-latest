@@ -1,3 +1,11 @@
+**Downward-Facing Dog**\
+`Willa Angel Chen Miller and Erik Agard open our solving weekend.`\
+https://nytimes.com/2025/05/08/crosswords/daily-puzzle-2025-05-09.html
+
+**Two Priests Reflect on Their Longtime Friend Bob, Now Pope Leo XIV**\
+`When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
+https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
+
 **Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
 `"We're getting there. It's coming," Washington coach Spencer Carbery said during the game.`\
 https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
