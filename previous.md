@@ -1,3 +1,19 @@
+**Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
+`Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
+https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html
+
+**India-Pakistan Conflict Over Kashmir Intensifies**\
+`Gunfire and shelling battered the disputed borderlands of India and Pakistan on Friday.`\
+https://nytimes.com/video/world/asia/100000010160279/kashmir-pakistan-india-conflict.html
+
+**The Shipping Industry Gets Serious About Emissions**\
+`The shipping industry is pushing to decarbonize, and exploring cargo ships powered by wind, as it confronts President Trump’s tariffs.`\
+https://nytimes.com/2025/05/09/climate/the-shipping-industry-carbon-emissions.html
+
+**Tetairoa McMillan's first NFL practice: Smooth runner, willing learner. Now about the humidity ...**\
+`The Panthers' top draft pick made his debut at rookie minicamp on Friday.`\
+https://nytimes.com/athletic/6345179/2025/05/09/carolina-panthers-rookie-camp-tetairoa-mcmillan/
+
 **The Summer Books We’re Looking Forward To**\
 `It’s not too early to think about the season’s most anticipated titles.`\
 https://nytimes.com/2025/05/09/books/review/summer-books-preview-podcast.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playo
 **Draft Executive Orders Aim to Speed Construction of Nuclear Plants**\
 `The potential actions could include overhauling the Nuclear Regulatory Commission and leaning on the U.S. military to deploy new reactors.`\
 https://nytimes.com/2025/05/09/climate/trump-draft-nuclear-executive-orders.html
-
-**Coach's challenge, move to quarters under consideration for college basketball**\
-`The committee recommended creating a working group to explore a long-discussed change from halves to quarters.`\
-https://nytimes.com/athletic/6345080/2025/05/09/college-basketball-rule-changes-coach-challenge-halves-quarters/
-
-**Flashback: Your Weekly History Quiz, May 10, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/05/09/upshot/flashback.html
-
-**Ask Russo and Smith: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
-`Have a question about the Wild? Ask here, and Michael Russo and Joe Smith will respond to a selection in their upcoming mailbag.`\
-https://nytimes.com/athletic/6345173/2025/05/09/minnesota-wild-mailbag-may-2025/
-
-**I Saw a Neighbor on the Sex-Offender Registry. Should I Tell Others?**\
-`The magazine’s Ethicist columnist on whether to disclose information about a neighbor on the sex-offender registry.`\
-https://nytimes.com/2025/05/09/magazine/ethicist-sex-offenders.html
 

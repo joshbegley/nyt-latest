@@ -1,3 +1,19 @@
+**Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
+`Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
+https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html
+
+**India-Pakistan Conflict Over Kashmir Intensifies**\
+`Gunfire and shelling battered the disputed borderlands of India and Pakistan on Friday.`\
+https://nytimes.com/video/world/asia/100000010160279/kashmir-pakistan-india-conflict.html
+
+**The Shipping Industry Gets Serious About Emissions**\
+`The shipping industry is pushing to decarbonize, and exploring cargo ships powered by wind, as it confronts President Trump’s tariffs.`\
+https://nytimes.com/2025/05/09/climate/the-shipping-industry-carbon-emissions.html
+
+**Tetairoa McMillan's first NFL practice: Smooth runner, willing learner. Now about the humidity ...**\
+`The Panthers' top draft pick made his debut at rookie minicamp on Friday.`\
+https://nytimes.com/athletic/6345179/2025/05/09/carolina-panthers-rookie-camp-tetairoa-mcmillan/
+
 **The Summer Books We’re Looking Forward To**\
 `It’s not too early to think about the season’s most anticipated titles.`\
 https://nytimes.com/2025/05/09/books/review/summer-books-preview-podcast.html
