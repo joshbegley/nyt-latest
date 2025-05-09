@@ -1,3 +1,7 @@
+**Manny Pacquiao to end retirement, challenge Mario Barrios for title: Report**\
+`Pacquiao will enter the International Boxing Hall of Fame on June 8, one month before his reported return fight.`\
+https://nytimes.com/athletic/6345001/2025/05/09/manny-pacquiao-return-mario-barrios-welterweight-title/
+
 **How Trump Is Scrambling the G.O.P. Push to Cut Medicaid Spending**\
 `The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
 https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6344967/2025/05/09/afghanistan-women-football-team-
 **Judge Orders Release of Tufts Student Detained by ICE**\
 `The student, Rumeysa Ozturk, had published an essay about the war in Gaza. Immigration agents arrested her and sent her to a Louisiana detention center to await deportation proceedings.`\
 https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.html
-
-**Fiona Apple’s Statement About Jailed Mothers, and 8 More New Songs**\
-`Hear tracks by Kali Uchis, Moses Sumney and Hayley Williams, I’m With Her and others.`\
-https://nytimes.com/2025/05/09/arts/music/playlist-fiona-apple-kali-uchis.html
 

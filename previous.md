@@ -1,3 +1,7 @@
+**How Trump Is Scrambling the G.O.P. Push to Cut Medicaid Spending**\
+`The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
+https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
+
 **American Citizen, Vatican Citizen or Both? Pope Leo Has Options.**\
 `As the leader of Vatican City, he is the head of a sovereign nation. But maintaining dual citizenship as a foreign head of state can “raise complex questions of international law,” according to the State Department.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-citizenship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.
 **Fiona Apple’s Statement About Jailed Mothers, and 8 More New Songs**\
 `Hear tracks by Kali Uchis, Moses Sumney and Hayley Williams, I’m With Her and others.`\
 https://nytimes.com/2025/05/09/arts/music/playlist-fiona-apple-kali-uchis.html
-
-**Teenager Fatally Shot During ‘Ding Dong Ditch’ TikTok Prank**\
-`A Virginia man was charged with second degree murder after the shooting. The teenager’s friends told authorities they had been filming a video of the prank for TikTok.`\
-https://nytimes.com/2025/05/09/us/virginia-teen-shot-ding-dong-ditch-tiktok-prank.html
 

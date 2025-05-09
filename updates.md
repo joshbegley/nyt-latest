@@ -1,3 +1,7 @@
+**How Trump Is Scrambling the G.O.P. Push to Cut Medicaid Spending**\
+`The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
+https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
+
 **American Citizen, Vatican Citizen or Both? Pope Leo Has Options.**\
 `As the leader of Vatican City, he is the head of a sovereign nation. But maintaining dual citizenship as a foreign head of state can “raise complex questions of international law,” according to the State Department.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-citizenship.html
