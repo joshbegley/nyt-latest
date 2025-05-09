@@ -1,3 +1,7 @@
+**Jelly Shoes Aren’t Just For Kids. Here Are the Best Ones.**\
+`A roundup of rubber sandals, for a variety of occasions and budgets.`\
+https://nytimes.com/2025/05/09/t-magazine/best-jelly-shoes.html
+
 **Pope Leo XIV Echoes Francis in His First Mass, Aligning Himself With ‘Ordinary People’**\
 `In his advocacy of the poor, migrants and a more open church, many people see the new pope as a continuation of his predecessor.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-mass-catholic-church.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345225/2025/05/09/heat-pat-riley-jimmy-butler-cont
 **A Jewish Promised Land in … Texas? Rachel Cockerell Had to Know More.**\
 `Discovering the ways her great-grandfather’s rich life intersected with the hidden history of Zionism led to an unusually crafted new book, “Melting Point.”`\
 https://nytimes.com/2025/05/09/books/review/rachel-cockerell-melting-point.html
-
-**Deep-Dish Pizza and Malört in the Vatican? Chicago Pope Spurs Memes**\
-`Chicago, a uniquely meme-able city, was the center of a ton of jokes. Here is some of the internet’s best work.`\
-https://nytimes.com/2025/05/09/us/chicago-pope-social-media-memes.html
 

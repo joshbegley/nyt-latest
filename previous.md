@@ -1,3 +1,15 @@
+**Pope Leo XIV Echoes Francis in His First Mass, Aligning Himself With ‘Ordinary People’**\
+`In his advocacy of the poor, migrants and a more open church, many people see the new pope as a continuation of his predecessor.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-mass-catholic-church.html
+
+**Pinterest Settles Lawsuit From Female ‘Co-Creator’ for $34.7 Million**\
+`Christine Martinez, who was a friend of two of Pinterest’s three co-founders, sued the company in 2021 for breach of implied contract and other claims.`\
+https://nytimes.com/2025/05/09/technology/pinterest-settles-lawsuit-34-7-million.html
+
+**Here are 6 times when popes shaped history, for better or worse.**\
+`By Talya Minsberg and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-6-times-when-popes-shaped-history-for-better-or-worse
+
 **The 5.11.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/books/review/rachel-cockerell-melting-point.html
 **Deep-Dish Pizza and Malört in the Vatican? Chicago Pope Spurs Memes**\
 `Chicago, a uniquely meme-able city, was the center of a ton of jokes. Here is some of the internet’s best work.`\
 https://nytimes.com/2025/05/09/us/chicago-pope-social-media-memes.html
-
-**The Best Cheap Sunglasses **\
-`Text by Zoe Vanderweide`\
-https://nytimes.com/card/2025/05/09/smarter-living/wirecutter/the-best-cheap-sunglasses
-
-**Jack Katz, Pioneer of the Graphic Novel, Is Dead at 97**\
-`Hailed as a visionary (if a difficult one), he drew inspiration for his multivolume work “The First Kingdom” from no less a model than Homer.`\
-https://nytimes.com/2025/05/09/arts/jack-katz-dead.html
-
-**Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
-`Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
-https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html
 

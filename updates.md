@@ -1,3 +1,15 @@
+**Pope Leo XIV Echoes Francis in His First Mass, Aligning Himself With ‘Ordinary People’**\
+`In his advocacy of the poor, migrants and a more open church, many people see the new pope as a continuation of his predecessor.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-mass-catholic-church.html
+
+**Pinterest Settles Lawsuit From Female ‘Co-Creator’ for $34.7 Million**\
+`Christine Martinez, who was a friend of two of Pinterest’s three co-founders, sued the company in 2021 for breach of implied contract and other claims.`\
+https://nytimes.com/2025/05/09/technology/pinterest-settles-lawsuit-34-7-million.html
+
+**Here are 6 times when popes shaped history, for better or worse.**\
+`By Talya Minsberg and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-6-times-when-popes-shaped-history-for-better-or-worse
+
 **The 5.11.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
