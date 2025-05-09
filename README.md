@@ -1,3 +1,19 @@
+**The Pope Begins to Set His Course**\
+`Also, David Souter, the Republican-turned-liberal justice, died. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/09/briefing/pope-leo-trump-china-tariffs-mothers-day.html
+
+**Wolves head coach Pereira on Ait-Nouri future: 'We want to keep our best players'**\
+`The 23-year-old had been expected to be sold in the summer as Wolves look to raise cash to strengthen other areas of Pereira’s squad.`\
+https://nytimes.com/athletic/6344899/2025/05/09/wolves-ait-nouri-transfer-news-future/
+
+**First Joint Visit of Four European Leaders to Ukraine**\
+`On Saturday, the leaders of four major European powers — France, Germany, Britain and Poland — will travel to Kyiv in a display of European unity.`\
+https://nytimes.com/2025/05/09/world/europe/four-european-countries-visit-ukraine.html
+
+**On the Role of Women in Church Leadership, Leo Has Followed Francis’ Lead**\
+`The new pope opposed letting women serve as deacons but endorsed some of his predecessor’s moves to expand their involvement.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-women-catholic-church.html
+
 **Pulisic saves Milan again, keeps slim Champions League hopes alive**\
 `The USMNT forward helped his club to another comeback win - but is it too late?`\
 https://nytimes.com/athletic/6345298/2025/05/09/pulisic-milan-bologna/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
 **J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
 `He knew he could never match the success of the great Sam Snead, but he won eight tournaments on the PGA Tour and four more on the senior circuit.`\
 https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
-
-**As a Child, the Future Pope Leo Played Priest**\
-`The pope’s eldest brother, Louis Prevost, remembering their boyhood in Illinois from his home in Florida, said that the pontiff had always been a peacemaker.`\
-https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-brother-louis-prevost.html
-
-**Astros place Hayden Wesneski on IL with right elbow discomfort**\
-`Wesneski was acquired in the deal that sent Kyle Tucker to the Cubs. He allowed four runs over four innings on May 7.`\
-https://nytimes.com/athletic/6345296/2025/05/09/astros-hayden-wesneski-injury/
-
-**Jelly Shoes Aren’t Just For Kids. Here Are the Best Ones.**\
-`A roundup of rubber sandals, for a variety of occasions and budgets.`\
-https://nytimes.com/2025/05/09/t-magazine/best-jelly-shoes.html
-
-**Pope Leo XIV Echoes Francis in His First Mass, Aligning Himself With ‘Ordinary People’**\
-`In his advocacy of the poor, migrants and a more open church, many people see the new pope as a continuation of his predecessor.`\
-https://nytimes.com/2025/05/09/world/europe/pope-leo-mass-catholic-church.html
 

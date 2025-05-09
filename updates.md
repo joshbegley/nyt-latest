@@ -1,3 +1,11 @@
+**Pulisic saves Milan again, keeps slim Champions League hopes alive**\
+`The USMNT forward helped his club to another comeback win - but is it too late?`\
+https://nytimes.com/athletic/6345298/2025/05/09/pulisic-milan-bologna/
+
+**Reds place Hunter Greene on IL, activate Austin Hays**\
+`The Reds called up Chase Petty, who made his major-league debut on April 30. Greene is eligible to return on May 18. `\
+https://nytimes.com/athletic/6345343/2025/05/09/reds-hunter-greene-injury-austin-hays/
+
 **Leo Lived Here: The Price Goes Up for the Pope’s Childhood Home**\
 `After Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church, offers began flooding in to buy this modest house outside Chicago, the real estate broker said.`\
 https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
