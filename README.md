@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6343888/2025/05/09/brighton-team-news-kaoru-mitoma/
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-xiv-overcame-an-old-taboo-being-american
 
 **Down 2-0 heading onto the road, Golden Knights need Adin Hill to turn the tide**\
-`Las Vegas should be – and need to be – winning the goaltending matchup against the Oilers if they’re to have any chance.`\
+`Vegas should be – and need to be – winning the goaltending matchup against the Oilers if they’re to have any chance.`\
 https://nytimes.com/athletic/6343859/2025/05/09/golden-knights-oilers-playoffs-adin-hill/
 
 **Here’s the latest.**\
