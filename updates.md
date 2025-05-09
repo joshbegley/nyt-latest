@@ -1,3 +1,11 @@
+**Mads Pedersen wins first stage of Giro d'Italia as Mikel Landa crashes out**\
+`Stages One, Two and Three of the Giro are taking place in Albania, with the race moving to Italy on Tuesday.`\
+https://nytimes.com/athletic/6344756/2025/05/09/giro-ditalia-pedersen-landa/
+
+**Pope Leo is a friar in the Order of St. Augustine. Why does that matter?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-is-a-friar-in-the-order-of-st-augustine-why-does-that-matter
+
 **NASCAR antitrust case: Appeals judges show skepticism over injunction**\
 `A ruling is expected later this month as NASCAR appeals the preliminary injunction that allowed 23XI and Front Row to continue racing. `\
 https://nytimes.com/athletic/6344576/2025/05/09/nascar-antitrust-case-lawsuit-appeal-michael-jordan/

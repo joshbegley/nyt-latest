@@ -1,3 +1,11 @@
+**Maple Leafs lineup vs. Panthers: Toronto readies for a tough test in Game 3**\
+`Game 3 against a Panthers team looking to get back in the series presents one of the Leafs' biggest challenges of the season.`\
+https://nytimes.com/athletic/6343606/2025/05/09/maple-leafs-lineup-panthers-game-3-nhl-playoffs/
+
+**Lowetide: Is this the Oilers' year? It's starting to look like it might be**\
+`These Oilers look inevitable. That doesn't make it so, but the story is building.`\
+https://nytimes.com/athletic/6342397/2025/05/09/edmonton-oilers-nhl-playoffs-2025-stats/
+
 **Mads Pedersen wins first stage of Giro d'Italia as Mikel Landa crashes out**\
 `Stages One, Two and Three of the Giro are taking place in Albania, with the race moving to Italy on Tuesday.`\
 https://nytimes.com/athletic/6344756/2025/05/09/giro-ditalia-pedersen-landa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6344729/2025/05/09/bill-belichick-girlfriend-jordon
 **25 Questions to Bring You Closer to Your Mom**\
 `How well do you really know your mother? Call her and find out.`\
 https://nytimes.com/interactive/2025/05/09/well/mothers-day-questions.html
-
-**Bravo Has Fans Buzzing With Slate of New Shows**\
-`The network announced four new shows, including mash-ups like “Wife Swap: The Real Housewives Edition” and “The Valley: Persian Style.”`\
-https://nytimes.com/2025/05/09/style/bravo-real-housewives-wife-swap.html
-
-**Arsenal open talks over new Saliba contract**\
-`Saliba’s existing terms run until the summer of 2027 and he is being targeted by Real Madrid.`\
-https://nytimes.com/athletic/6258890/2025/05/09/arsenal-william-saliba-contract-talks/
 
