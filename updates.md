@@ -1,3 +1,12 @@
+**Mitoma in contention for Brighton return after injury**\
+`The Japan international left-winger has not started any of the last four matches due to heel and back issues.`\
+https://nytimes.com/athletic/6343888/2025/05/09/brighton-team-news-kaoru-mitoma/
+
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
 **Premier League top five odds update: Man City rising fast, Gunners at risk…**\
 `Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
 `\
