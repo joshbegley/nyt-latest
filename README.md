@@ -1,3 +1,15 @@
+**How the Premier League fell in love with long throws again**\
+`Other elements of football may be more aesthetically pleasing, but few actions have the visceral thrill of hurling the ball into the box`\
+https://nytimes.com/athletic/6337315/2025/05/09/premier-league-long-throws-tactics/
+
+**Remembering Tom Youngs, an extraordinary ordinary footballer**\
+`Youngs was a journeyman striker and proud of it, but his courage in living with MS gave his story a poignant, and tragic, twist`\
+https://nytimes.com/athletic/6341832/2025/05/09/tom-youngs-multiple-sclerosis/
+
+**Premier League top-five race: Arsenal join the battle as Newcastle and Chelsea face off at St James' Park**\
+`Updates and analysis from the increasingly tight race to qualify for next season's Champions League `\
+https://nytimes.com/athletic/6341991/2025/05/09/premier-league-race-for-top-five-arsenal-chelsea/
+
 **The secret skill that sets Alexis Mac Allister apart from his midfield rivals**\
 `The Argentinian is the complete midfielder but one particular trait makes him stand out from his Premier League peers`\
 https://nytimes.com/athletic/6341989/2025/05/09/alexis-mac-allister-liverpool-secret-skill/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/business/trump-wind-energy-europe.html
 **‘Enough is Enough’: Report of a Child’s Rape Enrages South Africans**\
 `A mother’s call for justice has challenged a culture of shame and inspired a nationwide movement to tackle the crisis of sexual violence.`\
 https://nytimes.com/2025/05/09/world/africa/south-africa-rape-sexual-violence-cwecwe.html
-
-**Trump Officials Seek to Bring First White Afrikaner Refugees to U.S. Next Week**\
-`The rapid relocation of the Afrikaners, who President Trump says have been racially persecuted in South Africa, stands in stark contrast to the virtual shutdown of all other refugee admissions.`\
-https://nytimes.com/2025/05/09/world/africa/trump-afrikaner-refugees.html
-
-**Connections: Sports Edition Coach: Hints for May 9, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6343622/2025/05/09/connections-sports-edition-hints-for-may-9-2025/
-
-**Corrections: May 9, 2025**\
-`Corrections that appeared in print on Friday, May 9, 2025.`\
-https://nytimes.com/2025/05/09/pageoneplus/corrections-may-9-2025.html
 
