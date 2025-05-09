@@ -1,3 +1,15 @@
+**Holocaust Museum Board Member Condemns Silence on Trump Firings**\
+`Board members clashed over email after a Biden appointee sent a scathing letter invoking the Holocaust as he denounced the museum’s silence on President Trump’s firings of board members.`\
+https://nytimes.com/2025/05/09/us/politics/holocaust-museum-trump-biden-firings.html
+
+**Meet the Giants UDFAs: an NFL legacy, a future surgeon and the ultimate Swiss Army knife**\
+`Every undrafted free agent has a story. These are the Giants looking to defy the odds and make their NFL dreams come true.`\
+https://nytimes.com/athletic/6343719/2025/05/09/new-york-giants-undrafted-free-agents-jordan-bly/
+
+**The Windup: Devers unleashes on Red Sox brass**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6343721/2025/05/09/rafael-devers-first-base-the-windup/
+
 **Four things the Canucks can learn from the Stanley Cup playoffs so far**\
 `Here are four takeaways from the playoffs and how they should impact the Canucks offseason.`\
 https://nytimes.com/athletic/6343835/2025/05/09/nhl-playoffs-canucks-takeaways/
