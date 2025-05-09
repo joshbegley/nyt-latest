@@ -1,40 +1,40 @@
-**Quote of the Day: The Great Salt Lake Is Evaporating Fast. Could Utah Save It?**\
-`Quotation of the Day for Friday, May 9, 2025.`\
-https://nytimes.com/2025/05/08/pageoneplus/quote-of-the-day-the-great-salt-lake-is-evaporating-fast-could-utah-save-it.html
+**How the Premier League fell in love with long throws again**\
+`Other elements of football may be more aesthetically pleasing, but few actions have the visceral thrill of hurling the ball into the box`\
+https://nytimes.com/athletic/6337315/2025/05/09/premier-league-long-throws-tactics/
 
-**Timberwolves rout Steph Curry-less Warriors 117-93 to tie series: Takeaways**\
-`Julius Randle paced the Timberwolves with 24 points and recorded a postseason career-high 10 assists.`\
-https://nytimes.com/athletic/6343474/2025/05/08/warriors-timberwolves-game-2-takeaways/
+**Remembering Tom Youngs, an extraordinary ordinary footballer**\
+`Youngs was a journeyman striker and proud of it, but his courage in living with MS gave his story a poignant, and tragic, twist`\
+https://nytimes.com/athletic/6341832/2025/05/09/tom-youngs-multiple-sclerosis/
 
-**Trump Administration Fires Librarian of Congress**\
-`Dr. Carla D. Hayden was the first African American and the first woman to serve as the head of the Library of Congress. Her firing drew a furious response from Democrats.`\
-https://nytimes.com/2025/05/08/us/politics/trump-librarian-congress-carla-hayden.html
+**Premier League top-five race: Arsenal join the battle as Newcastle and Chelsea face off at St James' Park**\
+`Updates and analysis from the increasingly tight race to qualify for next season's Champions League `\
+https://nytimes.com/athletic/6341991/2025/05/09/premier-league-race-for-top-five-arsenal-chelsea/
 
-**Police and Brooklyn College Protesters Clash After Pro-Palestinian Rally**\
-`The police moved in to make arrests after demonstrators left the college grounds and gathered outside. Officers punched some students and slammed others to the ground.`\
-https://nytimes.com/2025/05/08/nyregion/protest-brooklyn-college-arrests.html
+**The secret skill that sets Alexis Mac Allister apart from his midfield rivals**\
+`The Argentinian is the complete midfielder but one particular trait makes him stand out from his Premier League peers`\
+https://nytimes.com/athletic/6341989/2025/05/09/alexis-mac-allister-liverpool-secret-skill/
 
-**Protesters Clash With Police at Brooklyn College**\
-`Police arrested several people during a pro-Palestinian demonstration at Brooklyn College on Thursday.`\
-https://nytimes.com/video/nyregion/100000010158924/protest-brooklyn-college-arrests.html
+**Arsenal missed chances against PSG - but the issues go beyond needing an elite striker**\
+`Yes, signing a world-class No 9 would elevate Arsenal, but football is not as binary as that. Other positions need looking at too...`\
+https://nytimes.com/athletic/6340473/2025/05/09/arsenal-psg-striker-arteta/
 
-**See How a Communications Outage Affected Flights at Newark Airport**\
-`The effects of an interruption in radio and radar service could be seen almost immediately, as planes circled in holding patterns. They are still being felt in cancellations and major delays days later.`\
-https://nytimes.com/interactive/2025/05/08/nyregion/newark-airport-delays.html
+**A century of fouls won again - how Guimaraes became the master of earning free kicks**\
+`The Brazilian is a long way in front when it comes to drawing fouls in the Premier League - this is why`\
+https://nytimes.com/athletic/6339188/2025/05/09/bruno-guimaraes-most-fouled-premier-league/
 
-**‘I Was Stunned’: Watching From Illinois, Pope’s Brother Reflects on History**\
-`From his home in suburban Chicago, one of the pope’s brothers described Leo as “middle of the road” but not afraid to speak his mind.`\
-https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-brother-john-prevost.html
+**A Divisive Show of Military Might in Moscow: What to Know**\
+`A huge parade in the Russian capital to celebrate the Soviet victory over Nazi Germany in World War II, attended by leaders of more than 20 countries, comes amid faltering attempts to end the war in Ukraine.`\
+https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-moscow.html
 
-**Downward-Facing Dog**\
-`Willa Angel Chen Miller and Erik Agard open our solving weekend.`\
-https://nytimes.com/2025/05/08/crosswords/daily-puzzle-2025-05-09.html
+**The First Play Knocked Her Unconscious. The Second Is Even Tougher.**\
+`Carolina Bianchi created a storm by drugging herself onstage at the beginning of a trilogy about sexual assault. Her latest play, “The Brotherhood,” asks what happens next.`\
+https://nytimes.com/2025/05/09/theater/carolina-bianchi-the-brotherhood-sexual-violence.html
 
-**Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
-`Two days after looking like it was in for a potentially short series against Carolina, Washington punched back.`\
-https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
+**Europe’s Wind Industry Faces Uncertainty Over Trump’s Policies**\
+`Not long ago, the U.S. was seen as a promising market for offshore wind. Now industry executives aren’t making any assumptions.`\
+https://nytimes.com/2025/05/09/business/trump-wind-energy-europe.html
 
-**What’s in a Name? In the Case of Leo XIV, Lessons in Bridging Historical Shifts**\
-`Pope Leo XIII, who served from 1878 to 1903, led the church into the modern world, emphasizing its moral authority beyond national boundaries. He defended the rights of working people and affirmed the value of science.`\
-https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
+**‘Enough is Enough’: Report of a Child’s Rape Enrages South Africans**\
+`A mother’s call for justice has challenged a culture of shame and inspired a nationwide movement to tackle the crisis of sexual violence.`\
+https://nytimes.com/2025/05/09/world/africa/south-africa-rape-sexual-violence-cwecwe.html
 
