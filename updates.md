@@ -1,3 +1,7 @@
+**Teenager Fatally Shot During ‘Ding Dong Ditch’ TikTok Prank**\
+`A Virginia man was charged with second degree murder after the shooting. The teenager’s friends told authorities they had been filming a video of the prank for TikTok.`\
+https://nytimes.com/2025/05/09/us/virginia-teen-shot-ding-dong-ditch-tiktok-prank.html
+
 **The church might resist a rush to make Pope Francis a saint.**\
 `St. John Paul II cut the waiting period to five years, but his own canonization nine years after his death has become a cautionary tale.`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/the-church-might-resist-a-rush-to-make-pope-francis-a-saint
