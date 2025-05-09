@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
 
 **After Criticism, Harris’s $900 Million Group Tries to Lay Out a Future**\
 `Future Forward, the big-money group supporting Kamala Harris’s presidential bid last year, resurfaced after her loss with an event in California.`\
-https://nytimes.com/2025/05/09/us/politics/future-forward-harris.html
+https://nytimes.com/2025/05/09/us/politics/future-forward-harris-democrats.html
 
 **Juan Soto's bullpen visits: Sunflower seeds and scouting reports**\
 `Soto visits the Mets' bullpen before games, between pitching changes — really, anytime there's a break in the action that lets him pop in.`\
