@@ -1,3 +1,7 @@
+**Panasonic to Cut 10,000 Jobs in Major Overhaul**\
+`The Japanese technology conglomerate plans to shed underperforming businesses and shift its focus to new areas of growth.`\
+https://nytimes.com/2025/05/09/business/panasonic-10000-jobs.html
+
 **Can Jonathan Kuminga and Trayce Jackson-Davis be answers for Curry-less Warriors?**\
 `Steve Kerr used 14 players in Game 2 against the Timberwolves to see who might stand out. Two players earned more minutes going forward.`\
 https://nytimes.com/athletic/6343512/2025/05/09/warriors-trayce-jackson-davis-jonathan-kuminga-playoffs-game-2-timberwolves/
