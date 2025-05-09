@@ -1,3 +1,16 @@
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/heres-the-latest
+
+**Live Updates: Leo XIV to Celebrate First Mass as Pope**\
+`The new pontiff, who was born in Chicago and served for two decades in Peru, will soon face difficult decisions about the direction of the Roman Catholic Church.`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news
+
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
 **Premier League top five odds update: Man City rising fast, Gunners at risk…**\
 `Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
 `\
