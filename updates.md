@@ -1,3 +1,7 @@
+**Greenberg: Talking to 'The Pope' about the Pope, Caleb Williams, Ben Johnson and White Sox**\
+`After Chicago native Robert Prevost became the first American-born pope, we spoke to the city's first "Pope" — White Sox reliever Donn Pall.`\
+https://nytimes.com/athletic/6343288/2025/05/08/chicago-pope-leo-xiv-white-sox-cubs-donn-pall/
+
 **FCS heading toward 12-game schedule starting in 2026**\
 `The NCAA FCS oversight committee approved the recommendation for an annual 12-game campaign. The FBS has been playing 12 games since 2006.`\
 https://nytimes.com/athletic/6343426/2025/05/08/fcs-12-game-regular-season-schedule-2026/
