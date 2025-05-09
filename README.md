@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs
 `Pope Leo XIII, who served from 1878 to 1903, led the church into the modern world, emphasizing its moral authority beyond national boundaries. He defended the rights of working people and affirmed the value of science.`\
 https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
 
-**Two Priests Reflect on Their Longtime Friend ‘Bob,’ Now Pope Leo XIV**\
+**Two Priests Reflect on Their Longtime Friend Bob, Now Pope Leo XIV**\
 `When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
 https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
 

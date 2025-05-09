@@ -1,3 +1,7 @@
+**Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
+`"We're getting there. It's coming," Washington coach Spencer Carbery said during the game.`\
+https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
+
 **What’s in a Name? In the Case of Leo XIV, Lessons in Bridging Historical Shifts**\
 `Pope Leo XIII, who served from 1878 to 1903, led the church into the modern world, emphasizing its moral authority beyond national boundaries. He defended the rights of working people and affirmed the value of science.`\
 https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
