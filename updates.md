@@ -1,3 +1,11 @@
+**As a Child, the Future Pope Leo Played Priest**\
+`The pope’s eldest brother, Louis Prevost, remembering their boyhood in Illinois from his home in Florida, said that the pontiff had always been a peacemaker.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-brother-louis-prevost.html
+
+**Astros place Hayden Wesneski on IL with right elbow discomfort**\
+`Wesneski was acquired in the deal that sent Kyle Tucker to the Cubs. He allowed four runs over four innings on May 7.`\
+https://nytimes.com/athletic/6345296/2025/05/09/astros-hayden-wesneski-injury/
+
 **Jelly Shoes Aren’t Just For Kids. Here Are the Best Ones.**\
 `A roundup of rubber sandals, for a variety of occasions and budgets.`\
 https://nytimes.com/2025/05/09/t-magazine/best-jelly-shoes.html

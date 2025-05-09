@@ -1,3 +1,11 @@
+**As a Child, the Future Pope Leo Played Priest**\
+`The pope’s eldest brother, Louis Prevost, remembering their boyhood in Illinois from his home in Florida, said that the pontiff had always been a peacemaker.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-brother-louis-prevost.html
+
+**Astros place Hayden Wesneski on IL with right elbow discomfort**\
+`Wesneski was acquired in the deal that sent Kyle Tucker to the Cubs. He allowed four runs over four innings on May 7.`\
+https://nytimes.com/athletic/6345296/2025/05/09/astros-hayden-wesneski-injury/
+
 **Jelly Shoes Aren’t Just For Kids. Here Are the Best Ones.**\
 `A roundup of rubber sandals, for a variety of occasions and budgets.`\
 https://nytimes.com/2025/05/09/t-magazine/best-jelly-shoes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/world/asia/india-pakistan-kashmir-drones.html
 **Five Weeks Late, a $254 Billion New York Budget Still Has Its Charms**\
 `Lawmakers ratified a state budget that promised benefits for a host of New Yorkers, including the legislators themselves.`\
 https://nytimes.com/2025/05/09/nyregion/hochul-budget-new-york.html
-
-**Heat's Pat Riley stands by Jimmy Butler contract decision in season wrap-up**\
-`Riley spoke on how the failed negotiations with Butler affected Miami’s season, even though it’s been three months since Butler.`\
-https://nytimes.com/athletic/6345225/2025/05/09/heat-pat-riley-jimmy-butler-contract-decision/
-
-**A Jewish Promised Land in … Texas? Rachel Cockerell Had to Know More.**\
-`Discovering the ways her great-grandfather’s rich life intersected with the hidden history of Zionism led to an unusually crafted new book, “Melting Point.”`\
-https://nytimes.com/2025/05/09/books/review/rachel-cockerell-melting-point.html
 
