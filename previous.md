@@ -1,3 +1,11 @@
+**Timberwolves rout Steph Curry-less Warriors 117-93 to tie series: Takeaways**\
+`Julius Randle paced the Timberwolves with 24 points and recorded a postseason career-high 10 assists.`\
+https://nytimes.com/athletic/6343474/2025/05/08/warriors-timberwolves-game-2-takeaways/
+
+**Trump Administration Fires Librarian of Congress**\
+`Dr. Carla D. Hayden was the first African American and the first woman to serve as the head of the Library of Congress. Her firing drew a furious response from Democrats.`\
+https://nytimes.com/2025/05/08/us/politics/trump-librarian-congress-carla-hayden.html
+
 **Police and Brooklyn College Protesters Clash After Pro-Palestinian Rally**\
 `The police moved in to make arrests after demonstrators left the college grounds and gathered outside. Officers punched some students and slammed others to the ground.`\
 https://nytimes.com/2025/05/08/nyregion/protest-brooklyn-college-arrests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
 **Two Priests Reflect on Their Longtime Friend Bob, Now Pope Leo XIV**\
 `When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
 https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
-
-**Review: Hugh Jackman in a Twisty Tale of ‘Sexual Misconduct’**\
-`A new play about a middle-age professor and his teenage student forces you to ask: Who’s grooming whom?`\
-https://nytimes.com/2025/05/08/theater/review-hugh-jackman-in-a-twisty-tale-of-sexual-misconduct.html
-
-**What Does Pope Leo XIV Do Now?**\
-`Here’s a look at his schedule over the next few days.`\
-https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-schedule-mass.html
 

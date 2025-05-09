@@ -1,3 +1,11 @@
+**Timberwolves rout Steph Curry-less Warriors 117-93 to tie series: Takeaways**\
+`Julius Randle paced the Timberwolves with 24 points and recorded a postseason career-high 10 assists.`\
+https://nytimes.com/athletic/6343474/2025/05/08/warriors-timberwolves-game-2-takeaways/
+
+**Trump Administration Fires Librarian of Congress**\
+`Dr. Carla D. Hayden was the first African American and the first woman to serve as the head of the Library of Congress. Her firing drew a furious response from Democrats.`\
+https://nytimes.com/2025/05/08/us/politics/trump-librarian-congress-carla-hayden.html
+
 **Police and Brooklyn College Protesters Clash After Pro-Palestinian Rally**\
 `The police moved in to make arrests after demonstrators left the college grounds and gathered outside. Officers punched some students and slammed others to the ground.`\
 https://nytimes.com/2025/05/08/nyregion/protest-brooklyn-college-arrests.html
