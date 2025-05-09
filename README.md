@@ -1,3 +1,11 @@
+**Arteta says Nwaneri could see increase in minutes**\
+`The 18-year-old has enjoyed a breakthrough year in north London but has hardly featured in Arsenal's last five games.`\
+https://nytimes.com/athletic/6344401/2025/05/09/ethan-nwaneri-arsenal-arteta/
+
+**What is a ‘synodal church,’ which Pope Leo XIV vowed to continue?**\
+`By Motoko Rich`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/synodal-church-pope-leo
+
 **Haaland 'ready, fit' for City vs Southampton but Guardiola unsure on start**\
 `Haaland suffered an ankle injury in the FA Cup victory over Bournemouth on March 30 and returned to training in April.`\
 https://nytimes.com/athletic/6344372/2025/05/09/erling-haaland-injury-return-manchester-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/us/david-souter-dead.html
 **David H. Souter: The pillars of power and the pull of New Hampshire**\
 `Adam Liptak, who covers the Supreme Court for the Times, recalls how the justice openly despised the pomp of Washington and longed to return to his home. -`\
 https://nytimes.com/video/obituaries/100000003488856/david-h-souter-the-pillars-of-power-and-the-pull-of-new-hampshire-obituary.html
-
-**Fantasy baseball waiver wire pickups featuring Jordan Beck, Cade Horton and more**\
-`In this week's look at the best of the fantasy baseball waiver wire, John Laghezza says now is the time to add Cubs prospect Cade Horton.`\
-https://nytimes.com/athletic/6340315/2025/05/09/fantasy-baseball-waiver-wire-pickups-jordan-beck-cade-horton/
-
-**Cresswell, Fabianski, Coufal and Ings to leave West Ham at end of season**\
-`All four players were part of the side that helped the team win the Europa Conference League under David Moyes in 2023.`\
-https://nytimes.com/athletic/6344309/2025/05/09/west-ham-cresswell-fabianski-coufal-ings/
 
