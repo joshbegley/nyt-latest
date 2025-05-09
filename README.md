@@ -1,3 +1,7 @@
+**The church might resist a rush to make Pope Francis a saint.**\
+`St. John Paul II cut the waiting period to five years, but his own canonization nine years after his death has become a cautionary tale.`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/the-church-might-resist-a-rush-to-make-pope-francis-a-saint
+
 **Robert A.G. Monks, Crusader Against ‘Imperial’ C.E.O.s, Dies at 91**\
 `A descendant of American wealth, he used his success in business to push for social responsibility in corporate leadership and encouraged shareholders to push back.`\
 https://nytimes.com/2025/05/09/business/robert-ag-monks-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/world/asia/india-pakistan-gulf-states.html
 **There Was Much More to David Souter**\
 `There was much more to David Souter — and the kind of moderate he was — than is often presented in accounts of his time on the court.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/david-souter-supreme-court
-
-**Maple Leafs lineup vs. Panthers: Toronto readies for a tough test in Game 3**\
-`Game 3 against a Panthers team looking to get back in the series presents one of the Leafs' biggest challenges of the season.`\
-https://nytimes.com/athletic/6343606/2025/05/09/maple-leafs-lineup-panthers-game-3-nhl-playoffs/
 
