@@ -1,3 +1,11 @@
+**Slot 'disappointed' by Alexander-Arnold exit, confirms Bradley to start vs Arsenal**\
+`Alexander-Arnold announced earlier this week that he will leave Liverpool on a free transfer when his contract expires this summer.`\
+https://nytimes.com/athletic/6343930/2025/05/09/liverpool-slot-alexander-arnold-bradley/
+
+**Changing patterns in arms suppliers reveal shifting alignments.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakistan-is-also-us-vs-china-when-it-comes-to-arms-sales
+
 **2 Men Found Guilty of Felling Britain’s Sycamore Gap Tree**\
 `Prosecutors said the men had committed the “act of deliberate and mindless criminal damage” together and filmed it on a cellphone.`\
 https://nytimes.com/2025/05/09/world/europe/sycamore-gap-tree-verdict.html
