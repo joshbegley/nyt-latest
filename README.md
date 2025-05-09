@@ -1,3 +1,7 @@
+**Here are 7 divisive issues confronting the new pope.**\
+`By Motoko Rich`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-7-divisive-issues-confronting-the-new-pope
+
 **Salah, Russo win FWA player of the year awards**\
 `The Egypt captain secured 90 per cent of the vote from over 900 FWA members, the biggest margin this century.`\
 https://nytimes.com/athletic/6344079/2025/05/09/salah-russo-player-awards-fwa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343058/2025/05/09/alabama-miami-college-football-p
 **How Adam Fox's falling stock at 4 Nations complicates his relationship with new Rangers coach**\
 `Asked about his new top defenseman and potential Olympic bubble player Thursday, Sullivan called him "an elite player in this league."`\
 https://nytimes.com/athletic/6342579/2025/05/09/mike-sullivan-adam-fox-relationship-rangers-olympics/
-
-**The Knicks, transformed by fight with Pistons, look steely against Celtics**\
-`A frustrating regular season team has given way to a new toughness, physically and mentally. `\
-https://nytimes.com/athletic/6342779/2025/05/09/new-york-knicks-boston-celtics-toughness-nba-playoffs/
 
