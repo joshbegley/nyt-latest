@@ -1,3 +1,7 @@
+**Ordinary Indians Are Feeling Jittery About the Escalating Conflict**\
+`No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict
+
 **Here are 7 divisive issues confronting the new pope.**\
 `By Motoko Rich`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-7-divisive-issues-confronting-the-new-pope
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343529/2025/05/09/colorado-rockies-road-hitting-re
 **Can offseason moves get these College Football Playoff bubble teams over the hump in 2025?**\
 `Alabama, Miami, Ole Miss, BYU and UNLV just missed the College Football Playoff in 2024. Have they done enough in the portal to get there?`\
 https://nytimes.com/athletic/6343058/2025/05/09/alabama-miami-college-football-playoff-portal/
-
-**How Adam Fox's falling stock at 4 Nations complicates his relationship with new Rangers coach**\
-`Asked about his new top defenseman and potential Olympic bubble player Thursday, Sullivan called him "an elite player in this league."`\
-https://nytimes.com/athletic/6342579/2025/05/09/mike-sullivan-adam-fox-relationship-rangers-olympics/
 
