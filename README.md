@@ -1,3 +1,31 @@
+**What’s gone right, wrong for Hurricanes vs. Capitals**\
+`To tilt the series back in its favor, Carolina will want to replicate much of the first two games while improving other aspects of its game.`\
+https://nytimes.com/athletic/6343850/2025/05/09/hurricanes-capitals-nhl-playoffs-round-2-right-wrong/
+
+**European Leaders Strike Hopeful Tone on U.S. Trade Talks**\
+`A day after Trump called the European Union’s top official “so fantastic,” she and Germany’s chancellor emphasized a desire to negotiate on tariffs.`\
+https://nytimes.com/2025/05/09/us/politics/eu-trump-trade-negotiations.html
+
+**Submit your questions for Zack Meisel's Guardians mailbag**\
+`<p>The Guardians are 22-15.`\
+https://nytimes.com/athletic/6340752/2025/05/09/submit-your-questions-for-zack-meisels-guardians-mailbag/
+
+**Nottingham Forest Q&A: On the brink of qualifying for Europe, Nuno press conference reaction**\
+`From 2.30pm (9:30am ET), Paul Taylor will be here to answer any and all of your Forest-related questions.`\
+https://nytimes.com/athletic/6344104/2025/05/09/nottingham-forest-qa-on-the-brink-of-qualifying-for-europe-nuno-press-conference-reaction/
+
+**In his first homily, the pope emphasizes ‘desperately needed’ missionary work.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/in-his-first-homily-the-pope-emphasizes-desperately-needed-missionary-work
+
+**A Decade-Long Search for a Battery That Can End the Gasoline Era**\
+`Can a small Massachusetts start-up perfect a battery that would make electric vehicles cheaper and more convenient than conventional cars?`\
+https://nytimes.com/2025/05/09/business/mercedes-factorial-solid-state-battery.html
+
+**Baffled by the Trump Tariffs, C.E.O.s Lean on the Word ‘Uncertainty’**\
+`With little ability to see how far the Trump administration is taking its disruptive policies, corporations and investors face higher risks, our columnist says.`\
+https://nytimes.com/2025/05/09/business/trump-tariffs-corporate-uncertainty.html
+
 **NASCAR has a new championship rotation: Which tracks should be in the mix?**\
 `Where will NASCAR go with its new rotating championship system? Here's a look at eight tracks that meet the basic criteria.`\
 https://nytimes.com/athletic/6341821/2025/05/09/nascar-championship-rotation-tracks/
@@ -9,32 +37,4 @@ https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xiv-helped-his-c
 **3 Ways to Cultivate Joy**\
 `It’s essential to building a healthy, meaningful life.`\
 https://nytimes.com/2025/05/09/well/well-festival-joy.html
-
-**Trump Suggests Openness to Slashing China Tariffs Ahead of Trade Talks**\
-`The president said reducing tariffs to 80 percent from the current 145 percent “sounds right,” as U.S. and Chinese negotiators prepare to meet in Switzerland.`\
-https://nytimes.com/2025/05/09/us/politics/trump-us-china-tariffs-80-percent.html
-
-**The Trade War’s Next Front: A U.S.-China Showdown in Geneva**\
-`President Trump hailed an agreement with Britain as a breakthrough — but far tougher negotiations, including with China, beckon.`\
-https://nytimes.com/2025/05/09/business/dealbook/bessent-trade-talks-china.html
-
-**Indian Defense Firm Says It Did Not Resell U.K. Technology to Russia**\
-`Hindustan Aeronautics, a major trading partner for a Russian arms agency, said that sensitive British technology stayed in India.`\
-https://nytimes.com/2025/05/09/world/europe/indian-defense-uk-technology-russia-weapons.html
-
-**Pope Leo XIV at First Mass: ‘You Have Called Me to Carry That Cross’**\
-`The American pontiff celebrated his first Mass as the leader of 1.4 billion Roman Catholics to an audience of cardinals at the Sistine Chapel.`\
-https://nytimes.com/video/world/europe/100000010159335/pope-leo-xiv-first-mass-.html
-
-**Xabi Alonso confirms Leverkusen exit at end of 2024-25 season**\
-`Alonso confirmed his decision ahead of Sunday's match at home to Borussia Dortmund.`\
-https://nytimes.com/athletic/6301282/2025/05/09/xabi-alonso-leverkusen-manager/
-
-**Send in your Red Wings questions for Max Bultman's mailbag**\
-`After the Detroit Red Wings wrapped up a ninth straight season without a playoff spot, it’s clear there’s a lot of work to be done.`\
-https://nytimes.com/athletic/6343430/2025/05/09/red-wings-mailbag-prompt-nhl/
-
-**What the Jets can do differently in Game 2: 'When we're on, we're like clockwork'**\
-`Even after just one game, the series against the Stars looks very different from the one the Jets just completed against St. Louis.`\
-https://nytimes.com/athletic/6343492/2025/05/09/jets-nhl-playoffs-game-2-defence-power-play/
 
