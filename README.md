@@ -1,3 +1,7 @@
+**Panasonic to Cut 10,000 Jobs in Major Overhaul**\
+`The Japanese technology conglomerate plans to shed underperforming businesses and shift its focus to new areas of growth.`\
+https://nytimes.com/2025/05/09/business/panasonic-10000-jobs.html
+
 **Can Jonathan Kuminga and Trayce Jackson-Davis be answers for Curry-less Warriors?**\
 `Steve Kerr used 14 players in Game 2 against the Timberwolves to see who might stand out. Two players earned more minutes going forward.`\
 https://nytimes.com/athletic/6343512/2025/05/09/warriors-trayce-jackson-davis-jonathan-kuminga-playoffs-game-2-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342351/2025/05/09/eagles-mailbag-cooper-dejean-bry
 **The Athletic FC: Long throws are back! Plus: Man Utd, Spurs set up Europa League showdown**\
 `Today in TAFC: The return of long throws, Manchester United and Spurs face fight for Champions League return, what is going on at Galaxy?`\
 https://nytimes.com/athletic/6343952/2025/05/09/tafc-long-throws-man-utd-spurs-europa-league/
-
-**Joe Mazzulla says Celtics can't have too much pride to understand why they're in 0-2 hole**\
-`"We had good intentions, we just didn’t execute," says Celtics coach after falling behind in the series against Knicks. `\
-https://nytimes.com/athletic/6343424/2025/05/09/joe-mazzulla-celtics-knicks-series-game-3/
 
