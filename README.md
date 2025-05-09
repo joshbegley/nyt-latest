@@ -7,7 +7,7 @@ https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakist
 https://nytimes.com/issue/todaysinyt/2025/05/09/todays-new-york-times-international-edition
 
 **After the new Pope comes Sinner: Italy's sporting avatar returns to the tennis court**\
-`Sinner is Italy's chosen one. He also remains a divisive figure in the tennis world as he returns to the court.`\
+`Sinner is Italy's chosen one. At the Foro Italico in Rome, his comeback from an anti-doping ban overtakes all else in tennis.`\
 https://nytimes.com/athletic/6342748/2025/05/09/jannik-sinner-tennis-comeback-italian-open/
 
 **IPL suspended amid tensions between India and Pakistan**\

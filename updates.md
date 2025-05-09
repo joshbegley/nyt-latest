@@ -1,3 +1,19 @@
+**India vs. Pakistan is also U.S. vs. China when it comes to arms sales.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakistan-is-also-us-vs-china-when-it-comes-to-arms-sales
+
+**The New York Times International Edition in Print for Saturday, May 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/09/todays-new-york-times-international-edition
+
+**After the new Pope comes Sinner: Italy's sporting avatar returns to the tennis court**\
+`Sinner is Italy's chosen one. He also remains a divisive figure in the tennis world as he returns to the court.`\
+https://nytimes.com/athletic/6342748/2025/05/09/jannik-sinner-tennis-comeback-italian-open/
+
+**IPL suspended amid tensions between India and Pakistan**\
+`The league is the world's biggest domestic Twenty20 cricket tournament.`\
+https://nytimes.com/athletic/6343914/2025/05/09/ipl-suspended-india-pakistan/
+
 **A Tension Unlike Anything Felt in Decades**\
 `A reporter recalling a war from his childhood finds the fear familiar, but the weapons more high-tech and the fog of disinformation far thicker.`\
 https://nytimes.com/2025/05/09/world/asia/a-tension-unlike-anything-felt-in-decades.html

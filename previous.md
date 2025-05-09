@@ -1,3 +1,19 @@
+**India vs. Pakistan is also U.S. vs. China when it comes to arms sales.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakistan-is-also-us-vs-china-when-it-comes-to-arms-sales
+
+**The New York Times International Edition in Print for Saturday, May 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/09/todays-new-york-times-international-edition
+
+**After the new Pope comes Sinner: Italy's sporting avatar returns to the tennis court**\
+`Sinner is Italy's chosen one. He also remains a divisive figure in the tennis world as he returns to the court.`\
+https://nytimes.com/athletic/6342748/2025/05/09/jannik-sinner-tennis-comeback-italian-open/
+
+**IPL suspended amid tensions between India and Pakistan**\
+`The league is the world's biggest domestic Twenty20 cricket tournament.`\
+https://nytimes.com/athletic/6343914/2025/05/09/ipl-suspended-india-pakistan/
+
 **A Tension Unlike Anything Felt in Decades**\
 `A reporter recalling a war from his childhood finds the fear familiar, but the weapons more high-tech and the fog of disinformation far thicker.`\
 https://nytimes.com/2025/05/09/world/asia/a-tension-unlike-anything-felt-in-decades.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/09/upshot/republicans-medicaid-states-plans.html
 **The Return of Lorde, and 4 More New Songs**\
 `Our critic on the latest releases from Summer Walker, Nilüfer Yanya and more.`\
 https://nytimes.com/2025/05/09/podcasts/the-return-of-lorde-and-4-more-new-songs.html
-
-**After the Blast**\
-`Exploring a photograph of the aftermath of a deadly airstrike at a Gaza City restaurant.`\
-https://nytimes.com/2025/05/09/world/middleeast/after-the-blast.html
-
-**U.S. v. Google: What Both Sides Argued in a Hearing to Fix Its Search Monopoly**\
-`The Justice Department and Google are wrapping up a three-week hearing that could have a major impact on the search giant and how people gather information online.`\
-https://nytimes.com/2025/05/09/technology/google-chrome-monopoly-remedies.html
-
-**How Have Your Siblings Shaped Who You Are?**\
-`While parents try everything to influence their children, new research suggests that brothers and sisters have their own profound impact. Does this ring true for your own experiences?`\
-https://nytimes.com/2025/05/09/learning/how-have-your-siblings-shaped-who-you-are.html
-
-**Your iPhone Apps Are Changing. Here’s How and Why.**\
-`A federal judge’s recent ruling has made it possible for apps to sell software and subscriptions outside the App Store without having to pay a commission.`\
-https://nytimes.com/2025/05/09/technology/iphone-app-store-changes.html
 
