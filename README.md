@@ -1,3 +1,7 @@
+**Indian Defense Firm Says It Did Not Resell U.K. Technology to Russia**\
+`Hindustan Aeronautics, a major trading partner for a Russian arms agency, said that sensitive British technology stayed in India.`\
+https://nytimes.com/2025/05/09/world/europe/indian-defense-uk-technology-russia-weapons.html
+
 **Pope Leo XIV at First Mass: ‘You Have Called Me to Carry That Cross’**\
 `The American pontiff celebrated his first Mass as the leader of 1.4 billion Roman Catholics to an audience of cardinals at the Sistine Chapel.`\
 https://nytimes.com/video/world/europe/100000010159335/pope-leo-xiv-first-mass-.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6344029/2025/05/09/leroy-sane-bayern-contract-trans
 **What We Know About the Terrorist Groups India Said It Targeted**\
 `India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
 https://nytimes.com/2025/05/09/world/asia/india-pakistan-terror-groups-lashkar-e-taiba-jaish-e-muhammad.html
-
-**Ordinary Indians are feeling jittery about the escalating conflict.**\
-`No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
-https://nytimes.com/2025/05/09/world/asia/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict.html
 

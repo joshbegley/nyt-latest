@@ -1,40 +1,40 @@
+**Pope Leo XIV at First Mass: ‘You Have Called Me to Carry That Cross’**\
+`The American pontiff celebrated his first Mass as the leader of 1.4 billion Roman Catholics to an audience of cardinals at the Sistine Chapel.`\
+https://nytimes.com/video/world/europe/100000010159335/pope-leo-xiv-first-mass-.html
+
+**Xabi Alonso confirms Leverkusen exit at end of 2024-25 season**\
+`Alonso confirmed his decision ahead of Sunday's match at home to Borussia Dortmund.`\
+https://nytimes.com/athletic/6301282/2025/05/09/xabi-alonso-leverkusen-manager/
+
+**Send in your Red Wings questions for Max Bultman's mailbag**\
+`After the Detroit Red Wings wrapped up a ninth straight season without a playoff spot, it’s clear there’s a lot of work to be done.`\
+https://nytimes.com/athletic/6343430/2025/05/09/red-wings-mailbag-prompt-nhl/
+
+**What the Jets can do differently in Game 2: 'When we're on, we're like clockwork'**\
+`Even after just one game, the series against the Stars looks very different from the one the Jets just completed against St. Louis.`\
+https://nytimes.com/athletic/6343492/2025/05/09/jets-nhl-playoffs-game-2-defence-power-play/
+
+**Pacioretty smashing expectations: What I'm seeing from the Leafs**\
+`The Leafs lead the Panthers 2-0 in the second round. How did we get here, and what might get tweaked as the series progresses?`\
+https://nytimes.com/athletic/6342921/2025/05/09/maple-leafs-nhl-playoffs-pacioretty-marchand/
+
+**Wizards' 2025 Mock Draft: Evaluating all lottery and draft scenarios**\
+`David Aldridge and Josh Robbins look at the six potential scenarios the Wizards could encounter after the lottery drawing in Chicago.`\
+https://nytimes.com/athletic/6343391/2025/05/09/wizards-mock-draft-lottery-2025/
+
+**Trump Administration Live Updates: President Signals He’s Open to Slashing China Tariffs**\
+``\
+https://nytimes.com/live/2025/05/09/us/trump-news
+
+**Bayern chief says Sane's new contract was close before agent change**\
+`Sane is out of contract at the end of 2024-25 and Bayern are "ready to move on" if no agreement can be found.`\
+https://nytimes.com/athletic/6344029/2025/05/09/leroy-sane-bayern-contract-transfer/
+
 **What We Know About the Terrorist Groups India Said It Targeted**\
 `India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
 https://nytimes.com/2025/05/09/world/asia/india-pakistan-terror-groups-lashkar-e-taiba-jaish-e-muhammad.html
 
-**Ordinary Indians Are Feeling Jittery About the Escalating Conflict**\
+**Ordinary Indians are feeling jittery about the escalating conflict.**\
 `No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
 https://nytimes.com/2025/05/09/world/asia/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict.html
-
-**Here are 7 divisive issues confronting the new pope.**\
-`By Motoko Rich`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-7-divisive-issues-confronting-the-new-pope
-
-**Salah, Russo win FWA player of the year awards**\
-`The Egypt captain secured 90 per cent of the vote from over 900 FWA members, the biggest margin this century.`\
-https://nytimes.com/athletic/6344079/2025/05/09/salah-russo-player-awards-fwa/
-
-**Mike Conley is leading the Timberwolves back to the defensive identity they need**\
-`Embarrassed in Game 1, Minnesota locked in on defense against the Steph Curry-less Warriors on Thursday, led by their veteran point guard.`\
-https://nytimes.com/athletic/6343184/2025/05/09/mike-conley-timberwolves-game-2-warriors-playoffs/
-
-**Travis Hunter could be the ultimate cheat code in fantasy football IDP leagues**\
-`Travis Hunter could be a game-changer in IDP leagues across the various fantasy football game providers.`\
-https://nytimes.com/athletic/6342474/2025/05/09/fantasy-football-idp-travis-hunter-cheat-code/
-
-**Twins' starting pitching is a bright spot, makes a turnaround possible**\
-`After an ugly first week, the Twins' rotation has an MLB-best 2.66 ERA thanks to their front-line trio, quality depth and good health.`\
-https://nytimes.com/athletic/6339346/2025/05/09/minesota-twins-rotation-lopez-ryan-ober/
-
-**Raptors Tankathon, pre-NBA Draft Lottery 2025 edition: Four mock scenarios**\
-`So, what happens if the Raptors don't win the lottery?`\
-https://nytimes.com/athletic/6337569/2025/05/09/nba-draft-lottery-2025-raptors-mock/
-
-**Row Z: Arteta's mystery French sources, stings and roundabouts**\
-`Our weekly round up of football's bonkers side also takes in Tom Cleverley needing time and MK Dons' sparkling new club crest`\
-https://nytimes.com/athletic/6343202/2025/05/09/arteta-mk-dons-neville-row-z/
-
-**The Rockies Horror Road Show: Could Colorado be first team to hit under .200 on the road?**\
-`No team has ever hit under .200 on the road. The Rockies are batting .189 away from Coors Field this season. They couldn't, could they? `\
-https://nytimes.com/athletic/6343529/2025/05/09/colorado-rockies-road-hitting-record/
 
