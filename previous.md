@@ -1,3 +1,7 @@
+**Oilers outlast Golden Knights to win high-scoring Game 2 in OT**\
+`Since dropping their first two games in the first round, the Oilers have scored 29 goals across six straight wins.`\
+https://nytimes.com/athletic/6337449/2025/05/09/oilers-golden-knights-nhl-playoffs-2025-game-2-takeaways/
+
 **The New York Times in Print for Friday, May 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/09/todays-new-york-times
@@ -6,7 +10,7 @@ https://nytimes.com/issue/todayspaper/2025/05/09/todays-new-york-times
 `America’s commitment to helping stabilize the Horn of Africa might have been taken for granted a few months ago. Not anymore.`\
 https://nytimes.com/2025/05/09/opinion/international-world/wars-horn-of-africa.html
 
-**What Trump Should Keep in Mind on His Big Middle East Trip**\
+**This Israeli Government Is Not Our Ally**\
 `Prime Minister Benjamin Netanyahu is behaving in ways that threaten U.S. interests in the region.`\
 https://nytimes.com/2025/05/09/opinion/trump-iran-israel.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6289589/2025/05/09/tyler-bindon-forest-reading-lafc
 **Julio Enciso's loan has done exactly what it needed to. Will Brighton benefit?**\
 `Another telling impact from Enciso to add to his two goals and three assists in 11 outings for Ipswich would go down well at the Amex`\
 https://nytimes.com/athletic/6336781/2025/05/09/julio-enciso-brighton-ipswich-loan/
-
-**Sam Byram interview: 'Hopefully I'll be part of Leeds' future - if not, I'll always be a supporter'**\
-`The Thorp Arch graduate discusses Daniel Farke saving his career, his dream return to Elland Road and his love for the club`\
-https://nytimes.com/athletic/6342503/2025/05/09/sam-byram-interview-leeds/
 

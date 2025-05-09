@@ -1,3 +1,11 @@
+**Oilers outlast Golden Knights to win high-scoring Game 2 in OT**\
+`Since dropping their first two games in the first round, the Oilers have scored 29 goals across six straight wins.`\
+https://nytimes.com/athletic/6337449/2025/05/09/oilers-golden-knights-nhl-playoffs-2025-game-2-takeaways/
+
+**This Israeli Government Is Not Our Ally**\
+`Prime Minister Benjamin Netanyahu is behaving in ways that threaten U.S. interests in the region.`\
+https://nytimes.com/2025/05/09/opinion/trump-iran-israel.html
+
 **The New York Times in Print for Friday, May 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/09/todays-new-york-times
