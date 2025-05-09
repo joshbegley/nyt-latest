@@ -1,3 +1,11 @@
+**Meet Pope Leo XIV**\
+`We guide you through coverage of the new pontiff and his views.`\
+https://nytimes.com/2025/05/09/briefing/pope-leo-election.html
+
+**At Triple A, Phillies' Andrew Painter enters new stage: 'Think like a big-league pitcher'**\
+`Painter threw three scoreless innings in his Triple-A debut, putting him one step away from MLB. The Phillies expect him to be there soon. `\
+https://nytimes.com/athletic/6343697/2025/05/09/andrew-painter-phillies-prospect-mlb-preparation/
+
 **Panasonic to Cut 10,000 Jobs in Major Overhaul**\
 `The Japanese technology conglomerate plans to shed underperforming businesses and shift its focus to new areas of growth.`\
 https://nytimes.com/2025/05/09/business/panasonic-10000-jobs.html
