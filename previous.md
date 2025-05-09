@@ -1,3 +1,7 @@
+**What’s in a Name? In the Case of Leo XIV, Lessons in Bridging Historical Shifts**\
+`Pope Leo XIII, who served from 1878 to 1903, led the church into the modern world, emphasizing its moral authority beyond national boundaries. He defended the rights of working people and affirmed the value of science.`\
+https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
+
 **Two Priests Reflect on Their Longtime Friend ‘Bob,’ Now Pope Leo XIV**\
 `When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
 https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/nyregion/pope-leo-xiv-lgbtq-gay.html
 **Far-Right Activist Targets Trump’s Surgeon General Pick**\
 `The selection of Dr. Casey Means drew ridicule from a Trump ally, Laura Loomer. But Health Secretary Robert F. Kennedy Jr. defended the surgeon general nominee.`\
 https://nytimes.com/2025/05/08/us/politics/means-loomer-trump-surgeon-general.html
-
-**Reincarnated by A.I., Arizona Man Forgives His Killer at Sentencing**\
-`A likeness of Christopher Pelkey, who was killed in a 2021 road rage episode, was created with artificial intelligence. It was part of a victim’s impact statement.`\
-https://nytimes.com/2025/05/08/us/ai-victim-impact-statement-manslaughter.html
 
