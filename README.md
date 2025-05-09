@@ -1,3 +1,7 @@
+**Ava DuVernay Defends a Smithsonian Under Fire From Trump**\
+`In accepting an award at the National Museum of American History, the filmmaker alluded to recent moves by the White House to reshape the Smithsonian’s programming.`\
+https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
+
 **Postal Service Selects FedEx Board Member as Next Postmaster General**\
 `David Steiner, who also served as president and chief executive officer of Waste Management Inc., is expected to start in July.`\
 https://nytimes.com/2025/05/09/us/politics/postal-service-selects-fedex-board-member-as-next-postmaster-general.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/opinion/pope-leo-xiv.html
 **George Lee, Trailblazing Chinese Ballet Dancer, Dies at 90**\
 `He is believed to have been the first Asian to dance with New York City Ballet when he was cast in George Balanchine’s production of “The Nutcracker.”`\
 https://nytimes.com/2025/05/09/arts/dance/george-lee-dead.html
-
-**A Jewish Celebration at the E.P.A. Also Has Some Jewish Critics**\
-`Environmentalists said a ritual at the office of Lee Zeldin, the agency head, highlighted a disconnect between religious principles and looser health and climate protections.`\
-https://nytimes.com/2025/05/09/climate/lee-zeldin-epa-mezuza.html
 

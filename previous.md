@@ -1,3 +1,15 @@
+**Postal Service Selects FedEx Board Member as Next Postmaster General**\
+`David Steiner, who also served as president and chief executive officer of Waste Management Inc., is expected to start in July.`\
+https://nytimes.com/2025/05/09/us/politics/postal-service-selects-fedex-board-member-as-next-postmaster-general.html
+
+**McClaren's Zak Brown owns valuable Mickey Mantle 'lewd letter'**\
+`The Mantle letter is just one piece of an incredible collection`\
+https://nytimes.com/athletic/6344632/2025/05/09/zak-brown-mickey-mantle-lewd-letter/
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 5/9 at 2:30 p.m. ET**\
+`Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
+https://nytimes.com/athletic/6342945/2025/05/09/sarris-live-chat-mlb-fantasy-baseball-5-9/
+
 **Manny Pacquiao to end retirement, challenge Mario Barrios for title: Report**\
 `Pacquiao will enter the International Boxing Hall of Fame on June 8, one month before his reported return fight.`\
 https://nytimes.com/athletic/6345001/2025/05/09/manny-pacquiao-return-mario-barrios-welterweight-title/
@@ -6,8 +18,8 @@ https://nytimes.com/athletic/6345001/2025/05/09/manny-pacquiao-return-mario-barr
 `The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
 https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
 
-**American Citizen, Vatican Citizen or Both? Pope Leo Has Options.**\
-`As the leader of Vatican City, he is the head of a sovereign nation. But maintaining dual citizenship as a foreign head of state can “raise complex questions of international law,” according to the State Department.`\
+**Can Pope Leo Keep U.S. Citizenship?**\
+`He now leads a sovereign nation, Vatican City, and the U.S. State Department says that for an American to retain citizenship as a foreign head of state can “raise complex questions of international law.”`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-citizenship.html
 
 **Drones Complicate the Fight Between India and Pakistan**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/arts/dance/george-lee-dead.html
 **A Jewish Celebration at the E.P.A. Also Has Some Jewish Critics**\
 `Environmentalists said a ritual at the office of Lee Zeldin, the agency head, highlighted a disconnect between religious principles and looser health and climate protections.`\
 https://nytimes.com/2025/05/09/climate/lee-zeldin-epa-mezuza.html
-
-**On climate change, the new pope is likely to match Francis’ focus.**\
-`By Max Bearak`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/on-climate-change-the-new-pope-is-likely-to-follow-francis
-
-**FIFA sanctions creation of Afghanistan women’s refugee team**\
-`It would see the creation of an officially-recognised team of evacuated female players of Afghan nationality who obtained refugee-status.`\
-https://nytimes.com/athletic/6344967/2025/05/09/afghanistan-women-football-team-fifa/
-
-**Judge Orders Release of Tufts Student Detained by ICE**\
-`The student, Rumeysa Ozturk, had published an essay about the war in Gaza. Immigration agents arrested her and sent her to a Louisiana detention center to await deportation proceedings.`\
-https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.html
 
