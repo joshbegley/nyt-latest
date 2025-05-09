@@ -1,3 +1,11 @@
+**Ava DuVernay Defends a Smithsonian Under Fire From Trump**\
+`In accepting an award at the National Museum of American History, the filmmaker alluded to recent moves by the White House to reshape the Smithsonian’s programming.`\
+https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
+
+**McLaren's Zak Brown owns valuable Mickey Mantle 'lewd letter'**\
+`The Mantle letter is just one piece of an incredible collection`\
+https://nytimes.com/athletic/6344632/2025/05/09/zak-brown-mickey-mantle-lewd-letter/
+
 **Postal Service Selects FedEx Board Member as Next Postmaster General**\
 `David Steiner, who also served as president and chief executive officer of Waste Management Inc., is expected to start in July.`\
 https://nytimes.com/2025/05/09/us/politics/postal-service-selects-fedex-board-member-as-next-postmaster-general.html
