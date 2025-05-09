@@ -1,3 +1,7 @@
+**Mitoma in contention for Brighton return after injury**\
+`The Japan international left-winger has not started any of the last four matches due to heel and back issues.`\
+https://nytimes.com/athletic/6343888/2025/05/09/brighton-team-news-kaoru-mitoma/
+
 **Pope Leo XIV overcame an old taboo: Being American.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-xiv-overcame-an-old-taboo-being-american
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/nyregion/can-elite-lawyers-be-persuaded-to-wake-u
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/09/crosswords/spelling-bee-forum.html
-
-**Trade War Shock Is Scrambling China’s Exports**\
-`Shipments of goods to the United States plunged by 21 percent in April, but spiked to Asia as President Trump imposed sky-high tariffs on China.`\
-https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
 
