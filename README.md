@@ -1,3 +1,11 @@
+**Illinois Voting Record Shows Pope Voted Regularly, and in Both Parties’ Primaries**\
+`Pope Leo XIV voted in Democratic primaries in 2008 and 2010 and in three Republican primaries in the years that followed, state records show.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-voting-record-illinois.html
+
+**49ers' Mykel Williams makes strong rookie camp impression; team adds 2 more veteran OTs**\
+`The 49ers released DE Drake Jackson, a 2022 second-round pick, with a failed physical and signed OTs Andre Dillard and Nicholas Petit-Frere.`\
+https://nytimes.com/athletic/6345499/2025/05/09/49ers-rookie-camp-mykel-williams/
+
 **Long Before Their Ascensions, Francis and Leo Were Friends**\
 `The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6345315/2025/05/09/raiders-rookie-camp-jack-bech-da
 **Pope Leo’s Creole Roots Evoke Sense of Connection From Some Catholics of Color**\
 `That the new pontiff’s ancestry can be partially traced to a historic enclave of Afro-Caribbean culture in New Orleans has brought joy to some Catholics.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-creole-ancestry.html
-
-**How the Cubs put Cade Horton back on the fast track, leading to his debut in New York**\
-`Horton reached the majors thanks to a collaborative process that began during spring training in Arizona: "He's going to impact this team."`\
-https://nytimes.com/athletic/6345339/2025/05/09/cubs-cade-horton-mlb-debut/
-
-**Mexico Sued Google Over Gulf of Mexico Name Change, President Says**\
-`The unilateral attempt to rename the gulf has provoked ridicule and anger in Mexico.`\
-https://nytimes.com/2025/05/09/us/politics/gulf-of-mexico-suit-google.html
 
