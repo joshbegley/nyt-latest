@@ -1,3 +1,11 @@
+**NASCAR has a new championship rotation: Which tracks should be in the mix?**\
+`Where will NASCAR go with its new rotating championship system? Here's a look at eight tracks that meet the basic criteria.`\
+https://nytimes.com/athletic/6341821/2025/05/09/nascar-championship-rotation-tracks/
+
+**Leo XIV helped his credentials by serving in a key Vatican post, experts say.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xiv-helped-his-credentials-by-serving-in-a-key-vatican-post-experts-say
+
 **3 Ways to Cultivate Joy**\
 `It’s essential to building a healthy, meaningful life.`\
 https://nytimes.com/2025/05/09/well/well-festival-joy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6343430/2025/05/09/red-wings-mailbag-prompt-nhl/
 **What the Jets can do differently in Game 2: 'When we're on, we're like clockwork'**\
 `Even after just one game, the series against the Stars looks very different from the one the Jets just completed against St. Louis.`\
 https://nytimes.com/athletic/6343492/2025/05/09/jets-nhl-playoffs-game-2-defence-power-play/
-
-**Pacioretty smashing expectations: What I'm seeing from the Leafs**\
-`The Leafs lead the Panthers 2-0 in the second round. How did we get here, and what might get tweaked as the series progresses?`\
-https://nytimes.com/athletic/6342921/2025/05/09/maple-leafs-nhl-playoffs-pacioretty-marchand/
-
-**Wizards' 2025 Mock Draft: Evaluating all lottery and draft scenarios**\
-`David Aldridge and Josh Robbins look at the six potential scenarios the Wizards could encounter after the lottery drawing in Chicago.`\
-https://nytimes.com/athletic/6343391/2025/05/09/wizards-mock-draft-lottery-2025/
 

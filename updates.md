@@ -1,3 +1,15 @@
+**3 Ways to Cultivate Joy**\
+`It’s essential to building a healthy, meaningful life.`\
+https://nytimes.com/2025/05/09/well/well-festival-joy.html
+
+**Trump Suggests Openness to Slashing China Tariffs Ahead of Trade Talks**\
+`The president said reducing tariffs to 80 percent from the current 145 percent “sounds right,” as U.S. and Chinese negotiators prepare to meet in Switzerland.`\
+https://nytimes.com/2025/05/09/us/politics/trump-us-china-tariffs-80-percent.html
+
+**The Trade War’s Next Front: A U.S.-China Showdown in Geneva**\
+`President Trump hailed an agreement with Britain as a breakthrough — but far tougher negotiations, including with China, beckon.`\
+https://nytimes.com/2025/05/09/business/dealbook/bessent-trade-talks-china.html
+
 **Indian Defense Firm Says It Did Not Resell U.K. Technology to Russia**\
 `Hindustan Aeronautics, a major trading partner for a Russian arms agency, said that sensitive British technology stayed in India.`\
 https://nytimes.com/2025/05/09/world/europe/indian-defense-uk-technology-russia-weapons.html
