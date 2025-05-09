@@ -1,3 +1,7 @@
+**Pope Leo’s Creole Roots Evoke Sense of Connection From Some Catholics of Color**\
+`That the new pontiff’s ancestry can be partially traced to a historic enclave of Afro-Caribbean culture in New Orleans has brought joy to some Catholics.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-creole-ancestry.html
+
 **How the Cubs put Cade Horton back on the fast track, leading to his debut in New York**\
 `Horton reached the majors thanks to a collaborative process that began during spring training in Arizona: "He's going to impact this team."`\
 https://nytimes.com/athletic/6345339/2025/05/09/cubs-cade-horton-mlb-debut/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
 **Judge Awards $680,000 to Military Families Sickened by Jet Fuel Spill in Hawaii**\
 `A lawyer for the plaintiffs said that they had “prevailed against all odds” but called the damage award “disappointing.”`\
 https://nytimes.com/2025/05/09/us/navy-red-hill-water-contamination.html
-
-**The Pope Begins to Set His Course**\
-`Also, David Souter, the Republican-turned-liberal justice, died. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/05/09/briefing/pope-leo-trump-china-tariffs-mothers-day.html
 

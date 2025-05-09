@@ -1,3 +1,7 @@
+**Pope Leo XIV: Villanova fan, Wordle player, world icon: 'He's our brother!'**\
+`True to his Chicago roots, he cheers for the White Sox and keeps an eye on the former Villanova stars playing for the Knicks.`\
+https://nytimes.com/athletic/6345156/2025/05/09/pope-leo-xiv-villanova-chicago/
+
 **How the Cubs put Cade Horton back on the fast track, leading to his debut in New York**\
 `Horton reached the majors thanks to a collaborative process that began during spring training in Arizona: "He's going to impact this team."`\
 https://nytimes.com/athletic/6345339/2025/05/09/cubs-cade-horton-mlb-debut/
