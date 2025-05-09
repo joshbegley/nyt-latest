@@ -1,3 +1,19 @@
+**Two Priests Reflect on Their Longtime Friend ‘Bob,’ Now Pope Leo XIV**\
+`When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
+https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
+
+**Review: Hugh Jackman in a Twisty Tale of ‘Sexual Misconduct’**\
+`A new play about a middle-age professor and his teenage student forces you to ask: Who’s grooming whom?`\
+https://nytimes.com/2025/05/08/theater/review-hugh-jackman-in-a-twisty-tale-of-sexual-misconduct.html
+
+**What Does Pope Leo XIV Do Now?**\
+`Here’s a look at his schedule over the next few days.`\
+https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-schedule-mass.html
+
+**New Funding Talks Could Value Elon Musk’s xAI at $120 Billion**\
+`The discussions follow those of rival OpenAI, which recently closed a funding round that valued it at $300 billion.`\
+https://nytimes.com/2025/05/08/technology/xai-elon-musk-funding-value.html
+
 **Peru rejoices over the new pope and claims him as their own.**\
 `By Genevieve Glatsky`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-peru

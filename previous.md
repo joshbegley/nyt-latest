@@ -1,3 +1,19 @@
+**Two Priests Reflect on Their Longtime Friend ‘Bob,’ Now Pope Leo XIV**\
+`When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
+https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
+
+**Review: Hugh Jackman in a Twisty Tale of ‘Sexual Misconduct’**\
+`A new play about a middle-age professor and his teenage student forces you to ask: Who’s grooming whom?`\
+https://nytimes.com/2025/05/08/theater/review-hugh-jackman-in-a-twisty-tale-of-sexual-misconduct.html
+
+**What Does Pope Leo XIV Do Now?**\
+`Here’s a look at his schedule over the next few days.`\
+https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-schedule-mass.html
+
+**New Funding Talks Could Value Elon Musk’s xAI at $120 Billion**\
+`The discussions follow those of rival OpenAI, which recently closed a funding round that valued it at $300 billion.`\
+https://nytimes.com/2025/05/08/technology/xai-elon-musk-funding-value.html
+
 **Peru rejoices over the new pope and claims him as their own.**\
 `By Genevieve Glatsky`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-peru
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/08/us/politics/means-loomer-trump-surgeon-general.ht
 **Reincarnated by A.I., Arizona Man Forgives His Killer at Sentencing**\
 `A likeness of Christopher Pelkey, who was killed in a 2021 road rage episode, was created with artificial intelligence. It was part of a victim’s impact statement.`\
 https://nytimes.com/2025/05/08/us/ai-victim-impact-statement-manslaughter.html
-
-**James Foley, Who Directed ‘Glengarry Glen Ross,’ Dies at 71**\
-`The veteran New York City-born filmmaker also directed the sequels to “Fifty Shades of Grey” and a dozen episodes of “House of Cards.”`\
-https://nytimes.com/2025/05/08/arts/james-foley-dead.html
-
-**In Tyre Nichols Case, an Out-of-Town Jury Heard a Familiar Police Defense**\
-`The acquittal of three former officers in the state trial over the fatal beating adds to a mixed series of verdicts for officers accused of wrongdoing.`\
-https://nytimes.com/2025/05/08/us/politics/tyre-nichols-memphis-officers-trial.html
-
-**Protecting Your Loved Ones Even After You’re Gone**\
-`Meet three women – all very much alive – who’ve pre-planned their funerals to insulate their families from financial hardship.`\
-https://nytimes.com/paidpost/dignity-memorial/ca/protecting-your-loved-ones-even-after-youre-gone.html
-
-**Texans’ Jayden Higgins makes history with deal: What he'll bring to Houston**\
-`Receiver is set to make just over $11.7 million in his four-year deal.`\
-https://nytimes.com/athletic/6343263/2025/05/08/texans-jayden-higgins-guaranteed-contract/
 
