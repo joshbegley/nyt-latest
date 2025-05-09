@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/heres-the-latest
+
+**Live Updates: Leo XIV to Celebrate First Mass as Pope**\
+`The new pontiff, who was born in Chicago and served for two decades in Peru, will soon face difficult decisions about the direction of the Roman Catholic Church.`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news
+
 **Putin Aims to Project Power at Military Parade Marking Victory Over Nazi Germany**\
 `The Russian president is seeking to use the event to depict himself as a global leader despite Western efforts to isolate him and a failure to win the war in Ukraine.`\
 https://nytimes.com/2025/05/09/world/europe/russia-putin-victory-day-parade.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6343831/2025/05/09/oilers-nhl-playoffs-contenders-g
 **Late Night Celebrates the First American Pope**\
 `“We have an American pope and a Russian president,” Jimmy Kimmel said, calling it “an historic era.”`\
 https://nytimes.com/2025/05/09/arts/television/late-night-american-pope-leo.html
-
-**Here is the latest.**\
-`By Anupreeta Das`\
-https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/here-is-the-latest
-
-**Live Updates: India-Pakistan Conflict Intensifies Into Most Expansive in Decades**\
-`Both countries reportedly aimed attacks at each other’s territories well beyond their disputed Kashmir border.`\
-https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir
 
