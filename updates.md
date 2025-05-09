@@ -1,3 +1,7 @@
+**‘I Was Stunned’: Watching From Illinois, Pope’s Brother Reflects on History**\
+`From his home in suburban Chicago, one of the pope’s brothers described Leo as “middle of the road” but not afraid to speak his mind.`\
+https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-brother-john-prevost.html
+
 **Downward-Facing Dog**\
 `Willa Angel Chen Miller and Erik Agard open our solving weekend.`\
 https://nytimes.com/2025/05/08/crosswords/daily-puzzle-2025-05-09.html

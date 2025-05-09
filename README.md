@@ -7,7 +7,7 @@ https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-brother-john-prevost.ht
 https://nytimes.com/2025/05/08/crosswords/daily-puzzle-2025-05-09.html
 
 **Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
-`"We're getting there. It's coming," Washington coach Spencer Carbery said during the game.`\
+`Two days after looking like they were in for a potentially short series against Carolina, Washington punched back.`\
 https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
 
 **What’s in a Name? In the Case of Leo XIV, Lessons in Bridging Historical Shifts**\
