@@ -1,3 +1,11 @@
+**'I can still hear the crackling of the timber burning' – The Bradford City fire, 40 years on**\
+`On May 11, 1985, 56 Bradford City fans were killed when fire broke out in the club's main stand – those who escaped will never forget`\
+https://nytimes.com/athletic/6096520/2025/05/09/the-bradford-city-fire-40-years-on-i-can-still-hear-the-crackling-of-the-timber-burning/
+
+**Sunderland, Coventry, Bristol City: Half a century on a peculiar grudge lingers**\
+`Three of the Championship play-off teams have a history, which explains why Jimmy Hill's name may echo around Coventry's away end tonight`\
+https://nytimes.com/athletic/6341911/2025/05/09/sunderland-coventry-bristol-hill-merrington/
+
 **How the Premier League fell in love with long throws again**\
 `Other elements of football may be more aesthetically pleasing, but few actions have the visceral thrill of hurling the ball into the box`\
 https://nytimes.com/athletic/6337315/2025/05/09/premier-league-long-throws-tactics/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-moscow.htm
 **The First Play Knocked Her Unconscious. The Second Is Even Tougher.**\
 `Carolina Bianchi created a storm by drugging herself onstage at the beginning of a trilogy about sexual assault. Her latest play, “The Brotherhood,” asks what happens next.`\
 https://nytimes.com/2025/05/09/theater/carolina-bianchi-the-brotherhood-sexual-violence.html
-
-**Europe’s Wind Industry Faces Uncertainty Over Trump’s Policies**\
-`Not long ago, the U.S. was seen as a promising market for offshore wind. Now industry executives aren’t making any assumptions.`\
-https://nytimes.com/2025/05/09/business/trump-wind-energy-europe.html
-
-**‘Enough is Enough’: Report of a Child’s Rape Enrages South Africans**\
-`A mother’s call for justice has challenged a culture of shame and inspired a nationwide movement to tackle the crisis of sexual violence.`\
-https://nytimes.com/2025/05/09/world/africa/south-africa-rape-sexual-violence-cwecwe.html
 

@@ -1,3 +1,11 @@
+**'I can still hear the crackling of the timber burning' – The Bradford City fire, 40 years on**\
+`On May 11, 1985, 56 Bradford City fans were killed when fire broke out in the club's main stand – those who escaped will never forget`\
+https://nytimes.com/athletic/6096520/2025/05/09/the-bradford-city-fire-40-years-on-i-can-still-hear-the-crackling-of-the-timber-burning/
+
+**Sunderland, Coventry, Bristol City: Half a century on a peculiar grudge lingers**\
+`Three of the Championship play-off teams have a history, which explains why Jimmy Hill's name may echo around Coventry's away end tonight`\
+https://nytimes.com/athletic/6341911/2025/05/09/sunderland-coventry-bristol-hill-merrington/
+
 **How the Premier League fell in love with long throws again**\
 `Other elements of football may be more aesthetically pleasing, but few actions have the visceral thrill of hurling the ball into the box`\
 https://nytimes.com/athletic/6337315/2025/05/09/premier-league-long-throws-tactics/
