@@ -1,3 +1,15 @@
+**Late Night Celebrates the First American Pope**\
+`“We have an American pope and a Russian president,” Jimmy Kimmel said, calling it “an historic era.”`\
+https://nytimes.com/2025/05/09/arts/television/late-night-american-pope-leo.html
+
+**Here is the latest.**\
+`By Anupreeta Das`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/here-is-the-latest
+
+**Live Updates: India-Pakistan Conflict Intensifies Into Most Expansive in Decades**\
+`Both countries reportedly aimed attacks at each other’s territories well beyond their disputed Kashmir border.`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir
+
 **Tottenham Hotspur's season has gone from the edge of calamity to the brink of history**\
 `Spurs' European campaign has been a story of inversion. Everything that has been said about their season has been turned on its head...`\
 https://nytimes.com/athletic/6337419/2025/05/09/bodo-glimt-spurs-europa-final/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010157615/what-the-new-pope-tells-u
 **Oilers outlast Golden Knights to win high-scoring Game 2 in OT**\
 `Since dropping their first two games in the first round, the Oilers have scored 29 goals across six straight wins.`\
 https://nytimes.com/athletic/6337449/2025/05/09/oilers-golden-knights-nhl-playoffs-2025-game-2-takeaways/
-
-**The New York Times in Print for Friday, May 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/09/todays-new-york-times
-
-**The Wars We Still Can Stop**\
-`America’s commitment to helping stabilize the Horn of Africa might have been taken for granted a few months ago. Not anymore.`\
-https://nytimes.com/2025/05/09/opinion/international-world/wars-horn-of-africa.html
-
-**This Israeli Government Is Not Our Ally**\
-`Prime Minister Benjamin Netanyahu is behaving in ways that threaten U.S. interests in the region.`\
-https://nytimes.com/2025/05/09/opinion/trump-iran-israel.html
 

@@ -1,3 +1,15 @@
+**Late Night Celebrates the First American Pope**\
+`“We have an American pope and a Russian president,” Jimmy Kimmel said, calling it “an historic era.”`\
+https://nytimes.com/2025/05/09/arts/television/late-night-american-pope-leo.html
+
+**Here is the latest.**\
+`By Anupreeta Das`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/here-is-the-latest
+
+**Live Updates: India-Pakistan Conflict Intensifies Into Most Expansive in Decades**\
+`Both countries reportedly aimed attacks at each other’s territories well beyond their disputed Kashmir border.`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir
+
 **Tottenham Hotspur's season has gone from the edge of calamity to the brink of history**\
 `Spurs' European campaign has been a story of inversion. Everything that has been said about their season has been turned on its head...`\
 https://nytimes.com/athletic/6337419/2025/05/09/bodo-glimt-spurs-europa-final/
