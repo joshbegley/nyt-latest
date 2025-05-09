@@ -1,3 +1,19 @@
+**25 Questions to Bring You Closer to Your Mom**\
+`How well do you really know your mother? Call her and find out.`\
+https://nytimes.com/interactive/2025/05/09/well/mothers-day-questions.html
+
+**Bravo Has Fans Buzzing With Slate of New Shows**\
+`The network announced four new shows, including mash-ups like “Wife Swap: The Real Housewives Edition” and “The Valley: Persian Style.”`\
+https://nytimes.com/2025/05/09/style/bravo-real-housewives-wife-swap.html
+
+**Arsenal open talks over new Saliba contract**\
+`Saliba’s existing terms run until the summer of 2027 and he is being targeted by Real Madrid.`\
+https://nytimes.com/athletic/6258890/2025/05/09/arsenal-william-saliba-contract-talks/
+
+**Live MLB Draft and prospects Q&A with Keith Law today at 2 pm ET**\
+`Chat with Keith Law about the MLB Draft and MLB prospects!`\
+https://nytimes.com/athletic/6344743/2025/05/09/keith-law-mlb-draft-prospects-live-qanda/
+
 **Five Science Fiction Movies to Stream Now**\
 `There’s scorched earth with a little bit of hope in this month’s sci-fi picks.`\
 https://nytimes.com/2025/05/09/movies/science-fiction-movies-streaming.html
