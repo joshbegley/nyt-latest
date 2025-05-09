@@ -1,6 +1,10 @@
+**What We Know About the Terrorist Groups India Said It Targeted**\
+`India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
+https://nytimes.com/2025/05/09/world/asia/india-pakistan-terror-groups-lashkar-e-taiba-jaish-e-muhammad.html
+
 **Ordinary Indians Are Feeling Jittery About the Escalating Conflict**\
 `No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
-https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict
+https://nytimes.com/2025/05/09/world/asia/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict.html
 
 **Here are 7 divisive issues confronting the new pope.**\
 `By Motoko Rich`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343202/2025/05/09/arteta-mk-dons-neville-row-z/
 **The Rockies Horror Road Show: Could Colorado be first team to hit under .200 on the road?**\
 `No team has ever hit under .200 on the road. The Rockies are batting .189 away from Coors Field this season. They couldn't, could they? `\
 https://nytimes.com/athletic/6343529/2025/05/09/colorado-rockies-road-hitting-record/
-
-**Can offseason moves get these College Football Playoff bubble teams over the hump in 2025?**\
-`Alabama, Miami, Ole Miss, BYU and UNLV just missed the College Football Playoff in 2024. Have they done enough in the portal to get there?`\
-https://nytimes.com/athletic/6343058/2025/05/09/alabama-miami-college-football-playoff-portal/
 

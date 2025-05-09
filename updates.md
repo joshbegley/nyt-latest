@@ -1,3 +1,7 @@
+**Ordinary Indians Are Feeling Jittery About the Escalating Conflict**\
+`No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
+https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict
+
 **Here are 7 divisive issues confronting the new pope.**\
 `By Motoko Rich`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-7-divisive-issues-confronting-the-new-pope
