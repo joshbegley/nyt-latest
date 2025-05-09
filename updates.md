@@ -1,3 +1,11 @@
+**Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
+`Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
+https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
+
+**J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
+`After playing minor-league baseball, he found his own way to the PGA Tour, where he won eight tournaments, and then its senior tour, where he won four more times.`\
+https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
+
 **As a Child, the Future Pope Leo Played Priest**\
 `The pope’s eldest brother, Louis Prevost, remembering their boyhood in Illinois from his home in Florida, said that the pontiff had always been a peacemaker.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-brother-louis-prevost.html

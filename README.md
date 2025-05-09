@@ -1,9 +1,13 @@
+**‘Dead Outlaw’ Cancels Library of Congress Concert to Protest Firing**\
+`The Broadway musical, which earned seven Tony nominations, scrapped a performance after the Librarian of Congress, Dr. Carla D. Hayden, was fired by the Trump administration.`\
+https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performance.html
+
 **Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
 `Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
 https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
 
 **J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
-`After playing minor-league baseball, he found his own way to the PGA Tour, where he won eight tournaments, and then its senior tour, where he won four more times.`\
+`He knew he could never match the success of the great Sam Snead, but he won eight tournaments on the PGA Tour and four more on the senior circuit.`\
 https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
 
 **As a Child, the Future Pope Leo Played Priest**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-6-times-whe
 **The 5.11.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
-
-**How Lola Young’s ‘Messy’ Blew Up**\
-`You’ve heard it at the pharmacy, the fast food place or from someone else’s car speakers. Here’s why a British pop-soul track became one of the year’s most ubiquitous songs.`\
-https://nytimes.com/video/podcasts/100000010154486/lola-young-messy-review.html
 

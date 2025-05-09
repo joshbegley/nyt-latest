@@ -1,3 +1,11 @@
+**Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
+`Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
+https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
+
+**J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
+`After playing minor-league baseball, he found his own way to the PGA Tour, where he won eight tournaments, and then its senior tour, where he won four more times.`\
+https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
+
 **As a Child, the Future Pope Leo Played Priest**\
 `The pope’s eldest brother, Louis Prevost, remembering their boyhood in Illinois from his home in Florida, said that the pontiff had always been a peacemaker.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-brother-louis-prevost.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
 **How Lola Young’s ‘Messy’ Blew Up**\
 `You’ve heard it at the pharmacy, the fast food place or from someone else’s car speakers. Here’s why a British pop-soul track became one of the year’s most ubiquitous songs.`\
 https://nytimes.com/video/podcasts/100000010154486/lola-young-messy-review.html
-
-**A New Kind of Battle for Two Old Enemies**\
-`Drone warfare has expanded the conflict in Kashmir between India and Pakistan, two nuclear-armed neighbors.`\
-https://nytimes.com/2025/05/09/world/asia/india-pakistan-kashmir-drones.html
-
-**Five Weeks Late, a $254 Billion New York Budget Still Has Its Charms**\
-`Lawmakers ratified a state budget that promised benefits for a host of New Yorkers, including the legislators themselves.`\
-https://nytimes.com/2025/05/09/nyregion/hochul-budget-new-york.html
 
