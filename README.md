@@ -1,3 +1,15 @@
+**Holocaust Museum Board Member Condemns Silence on Trump Firings**\
+`Board members clashed over email after a Biden appointee sent a scathing letter invoking the Holocaust as he denounced the museum’s silence on President Trump’s firings of board members.`\
+https://nytimes.com/2025/05/09/us/politics/holocaust-museum-trump-biden-firings.html
+
+**Meet the Giants UDFAs: an NFL legacy, a future surgeon and the ultimate Swiss Army knife**\
+`Every undrafted free agent has a story. These are the Giants looking to defy the odds and make their NFL dreams come true.`\
+https://nytimes.com/athletic/6343719/2025/05/09/new-york-giants-undrafted-free-agents-jordan-bly/
+
+**The Windup: Devers unleashes on Red Sox brass**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6343721/2025/05/09/rafael-devers-first-base-the-windup/
+
 **Four things the Canucks can learn from the Stanley Cup playoffs so far**\
 `Here are four takeaways from the playoffs and how they should impact the Canucks offseason.`\
 https://nytimes.com/athletic/6343835/2025/05/09/nhl-playoffs-canucks-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/when-the-pope-was-ch
 **Russian State TV Shows Leaders at Moscow Military Parade**\
 `Joined by North Korean officers and the leaders of China and Brazil, President Vladimir V. Putin of Russia marked the 80th anniversary of the Soviet Union’s victory over Nazi Germany with a Red Square military parade.`\
 https://nytimes.com/video/world/europe/100000010159283/russian-state-tv-shows-leaders-at-moscow-military-parade.html
-
-**Miu Miu Brings a Show to New York, and Everyone Can Go**\
-`In an exclusive interview, Miuccia Prada explains it all.`\
-https://nytimes.com/2025/05/09/style/miuccia-prada-miu-miu.html
-
-**Arteta says Nwaneri could see increase in minutes**\
-`The 18-year-old has enjoyed a breakthrough year in north London but has hardly featured in Arsenal's last five games.`\
-https://nytimes.com/athletic/6344401/2025/05/09/ethan-nwaneri-arsenal-arteta/
-
-**What is a ‘synodal church,’ which Pope Leo XIV vowed to continue?**\
-`By Motoko Rich`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/synodal-church-pope-leo
 

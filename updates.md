@@ -1,3 +1,15 @@
+**Four things the Canucks can learn from the Stanley Cup playoffs so far**\
+`Here are four takeaways from the playoffs and how they should impact the Canucks offseason.`\
+https://nytimes.com/athletic/6343835/2025/05/09/nhl-playoffs-canucks-takeaways/
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 36?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6339987/2025/05/09/premier-league-predicted-lineups-gw36/
+
+**Ranking Commanders' UDFA class: Can a former 5-star recruit crack the 53?**\
+`Washington opens its three-day rookie minicamp with 10 undrafted free agents who will get a chance to make the 53-man roster. `\
+https://nytimes.com/athletic/6343564/2025/05/09/commanders-2025-undrafted-free-agents/
+
 **The Bounce: With Steph Curry sidelined, Warriors are in deep trouble as Wolves find footing**\
 `The Timberwolves have a tendency to play down to their competition, but Steph Curry's injury may shorten Minnesota's margin for error`\
 https://nytimes.com/athletic/6344413/2025/05/09/steph-curry-anthony-edwards-warriors-wolves-nba-playoffs-the-bounce/
