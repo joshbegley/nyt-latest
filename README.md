@@ -6,7 +6,7 @@ https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
 `David Steiner, who also served as president and chief executive officer of Waste Management Inc., is expected to start in July.`\
 https://nytimes.com/2025/05/09/us/politics/postal-service-selects-fedex-board-member-as-next-postmaster-general.html
 
-**McClaren's Zak Brown owns valuable Mickey Mantle 'lewd letter'**\
+**McLaren's Zak Brown owns valuable Mickey Mantle 'lewd letter'**\
 `The Mantle letter is just one piece of an incredible collection`\
 https://nytimes.com/athletic/6344632/2025/05/09/zak-brown-mickey-mantle-lewd-letter/
 
