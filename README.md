@@ -1,3 +1,7 @@
+**The Summer Books We’re Looking Forward To**\
+`It’s not too early to think about the season’s most anticipated titles.`\
+https://nytimes.com/2025/05/09/books/review/summer-books-preview-podcast.html
+
 **Leo XIV’s first words set a pastoral tone, acknowledging tradition.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xivs-first-words-set-a-pastoral-tone-acknowledging-tradition
@@ -11,7 +15,7 @@ https://nytimes.com/2025/05/09/health/cdc-emergency-preparedness-funding.html
 https://nytimes.com/athletic/6345135/2025/05/09/bob-baffert-rodriguez-scratched-preakness-stakes/
 
 **Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
-`The Warriors have little choice but to ride with Kuminga, and live with whatever happens. And he has little choice but to seize this moment.`\
+`The Warriors have little choice but to ride with Kuminga and live with whatever happens. And he has little choice but to seize this moment.`\
 https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
 
 **Draft Executive Orders Aim to Speed Construction of Nuclear Plants**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345173/2025/05/09/minnesota-wild-mailbag-may-2025/
 **I Saw a Neighbor on the Sex-Offender Registry. Should I Tell Others?**\
 `The magazine’s Ethicist columnist on whether to disclose information about a neighbor on the sex-offender registry.`\
 https://nytimes.com/2025/05/09/magazine/ethicist-sex-offenders.html
-
-**Why David Carle decided now isn't the time to leave Denver Pioneers for NHL**\
-`Carle says University of Denver is preferable to open NHL jobs and if he ever does leave "it'll be on our terms."`\
-https://nytimes.com/athletic/6344865/2025/05/09/david-carle-nhl-coaching-vacancies-denver/
 
