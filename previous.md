@@ -1,3 +1,19 @@
+**U.K. Antiques Show Expert Admits Selling Art to Suspected Hezbollah Financier**\
+`Oghenochuko Ojiri, an art dealer who appeared on the popular BBC show “Bargain Hunt,” appeared in a London court on Friday.`\
+https://nytimes.com/2025/05/09/world/europe/bargain-hunt-hezbollah-antiques-uk.html
+
+**Wilshere not in contention to be permanent Norwich head coach**\
+`The former Arsenal midfielder took interim charge of the club’s last two games of the season after the departure of Johannes Hoff Thorup.`\
+https://nytimes.com/athletic/6344031/2025/05/09/jack-wilshere-norwich-manager-next/
+
+**Eagles mailbag: Where does Cooper DeJean play, fate of Bryce Huff and more**\
+`Plus, what might be going on with the Eagles and kicker Jake Elliott.`\
+https://nytimes.com/athletic/6342351/2025/05/09/eagles-mailbag-cooper-dejean-bryce-huff/
+
+**The Athletic FC: Long throws are back! Plus: Man Utd, Spurs set up Europa League showdown**\
+`Today in TAFC: The return of long throws, Manchester United and Spurs face fight for Champions League return, what is going on at Galaxy?`\
+https://nytimes.com/athletic/6343952/2025/05/09/tafc-long-throws-man-utd-spurs-europa-league/
+
 **Joe Mazzulla says Celtics can't have too much pride to understand why they're in 0-2 hole**\
 `"We had good intentions, we just didn’t execute," says Celtics coach after falling behind in the series against Knicks. `\
 https://nytimes.com/athletic/6343424/2025/05/09/joe-mazzulla-celtics-knicks-series-game-3/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/09/podcasts/the-daily/american-pope-leo.html
 **2026 NFL Draft order: Which picks in next year's draft have been traded?**\
 `The 2026 NFL Draft order will not be set until the end of the upcoming season, but teams already have been busy trading next April&#8217;s draft.`\
 https://nytimes.com/athletic/6340004/2025/05/09/nfl-draft-2026-pick-order-trades-tracker/
-
-**Connections Companion No. 699**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 10, 2025.`\
-https://nytimes.com/2025/05/09/crosswords/connections-companion-699.html
-
-**Meet Pope Leo, and Why Bill Gates Is Giving Away His Money Faster**\
-`Plus, a Friday news quiz.`\
-https://nytimes.com/2025/05/09/podcasts/the-headlines/pope-leo-bill-gates-money.html
-
-**Wordle Review No. 1,421**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 10, 2025.`\
-https://nytimes.com/2025/05/09/crosswords/wordle-review-1421.html
-
-**2 Men Found Guilty of Felling Britain’s Sycamore Gap Tree**\
-`Prosecutors said the men had committed the “act of deliberate and mindless criminal damage” together and filmed it on a cellphone.`\
-https://nytimes.com/2025/05/09/world/europe/sycamore-gap-tree-verdict.html
 
