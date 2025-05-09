@@ -1,3 +1,15 @@
+**On Red Square, Putin Enlists Russian Pride for His War in Ukraine**\
+`The military parade marking the Soviet victory over Nazi Germany was intended to impress allies and tap into Russia’s deep sense of national pride.`\
+https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-red-square.html
+
+**City head coach Cushing on WSL finale: As it stands, this is my last game**\
+`City are guaranteed to finish fourth in the WSL and will miss out on Champions League football next season.`\
+https://nytimes.com/athletic/6345058/2025/05/09/man-city-cushing-wsl-future/
+
+**Another Multilingual Pope Leads the Catholic Church**\
+`The first U.S.-born pope has dual citizenship with Peru and speaks at least three languages.`\
+https://nytimes.com/video/world/europe/100000010160005/pope-leo-american-languages.html
+
 **Justice David Souter, Who Traded White Marble for the White Mountains**\
 `Retiring at just 69 after two decades on the Supreme Court, the justice left a legacy of case-by-case judging, intellectual rigor and a complete lack of pretension.`\
 https://nytimes.com/2025/05/09/us/supreme-court-souter-legacy.html

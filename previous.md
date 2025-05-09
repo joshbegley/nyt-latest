@@ -1,3 +1,15 @@
+**On Red Square, Putin Enlists Russian Pride for His War in Ukraine**\
+`The military parade marking the Soviet victory over Nazi Germany was intended to impress allies and tap into Russia’s deep sense of national pride.`\
+https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-red-square.html
+
+**City head coach Cushing on WSL finale: As it stands, this is my last game**\
+`City are guaranteed to finish fourth in the WSL and will miss out on Champions League football next season.`\
+https://nytimes.com/athletic/6345058/2025/05/09/man-city-cushing-wsl-future/
+
+**Another Multilingual Pope Leads the Catholic Church**\
+`The first U.S.-born pope has dual citizenship with Peru and speaks at least three languages.`\
+https://nytimes.com/video/world/europe/100000010160005/pope-leo-american-languages.html
+
 **Justice David Souter, Who Traded White Marble for the White Mountains**\
 `Retiring at just 69 after two decades on the Supreme Court, the justice left a legacy of case-by-case judging, intellectual rigor and a complete lack of pretension.`\
 https://nytimes.com/2025/05/09/us/supreme-court-souter-legacy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/arts/television/thomas-friends-pilot-episode-ring
 **Ava DuVernay Defends a Smithsonian Under Fire From Trump**\
 `In accepting an award at the National Museum of American History, the filmmaker alluded to recent moves by the White House to reshape the Smithsonian’s programming.`\
 https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
-
-**Postal Service Selects FedEx Board Member as Next Postmaster General**\
-`David Steiner, who also served as president and chief executive officer of Waste Management Inc., is expected to start in July.`\
-https://nytimes.com/2025/05/09/us/politics/postal-service-selects-fedex-board-member-as-next-postmaster-general.html
-
-**McLaren's Zak Brown owns valuable Mickey Mantle 'lewd letter'**\
-`The Mantle letter is just one piece of an incredible collection`\
-https://nytimes.com/athletic/6344632/2025/05/09/zak-brown-mickey-mantle-lewd-letter/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 5/9 at 2:30 p.m. ET**\
-`Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
-https://nytimes.com/athletic/6342945/2025/05/09/sarris-live-chat-mlb-fantasy-baseball-5-9/
 

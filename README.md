@@ -1,3 +1,11 @@
+**Trump Moves to Fire Three Members of the Consumer Product Safety Commission**\
+`The three Democrats removed from the commission said they were targeted for voting to stop imports of poorly made lithium-ion batteries and objecting to staffing cuts.`\
+https://nytimes.com/2025/05/09/us/politics/cpsc-fired-trump.html
+
+**Supreme Court Statement**\
+`Current and former justices of the court released a statement in response to the death of Justice David Souter.`\
+https://nytimes.com/interactive/2025/05/09/us/supreme-court-statements-souter.html
+
 **On Red Square, Putin Enlists Russian Pride for His War in Ukraine**\
 `The military parade marking the Soviet victory over Nazi Germany was intended to impress allies and tap into Russia’s deep sense of national pride.`\
 https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-red-square.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/world/asia/india-pakistan-ipl-cricket.html
 **Menendez Brothers’ Resentencing Hearing Is Set for Next Week**\
 `The long-awaited hearing on whether Lyle and Erik Menendez should be eligible for release will take place May 13 and 14 in Los Angeles.`\
 https://nytimes.com/2025/05/09/us/menendez-brothers-resentencing-hearing-date.html
-
-**Rediscovered Thomas the Tank Engine Pilot Is Released**\
-`The episode, from 1983, was found in storage by accident. It was restored and made available for viewing for the first time on Friday.`\
-https://nytimes.com/2025/05/09/arts/television/thomas-friends-pilot-episode-ringo-starr.html
-
-**Ava DuVernay Defends a Smithsonian Under Fire From Trump**\
-`In accepting an award at the National Museum of American History, the filmmaker alluded to recent moves by the White House to reshape the Smithsonian’s programming.`\
-https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
 
