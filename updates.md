@@ -1,3 +1,7 @@
+**Mayor Adams to Meet With Trump in Washington About New York City ‘Priorities’**\
+`The meeting on Friday between Mayor Eric Adams of New York City and President Trump comes as documents related to his abandoned federal corruption case are set to be released.`\
+https://nytimes.com/2025/05/09/nyregion/eric-adams-trump-meeting.html
+
 **Computer Problem Shuts Down Entire BART System in Bay Area**\
 `Bay Area Rapid Transit, the main commuter rail system for the region, was forced to close for the Friday morning commute.`\
 https://nytimes.com/2025/05/09/us/bart-train-shutdown.html

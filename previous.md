@@ -1,3 +1,7 @@
+**Mayor Adams to Meet With Trump in Washington About New York City ‘Priorities’**\
+`The meeting on Friday between Mayor Eric Adams of New York City and President Trump comes as documents related to his abandoned federal corruption case are set to be released.`\
+https://nytimes.com/2025/05/09/nyregion/eric-adams-trump-meeting.html
+
 **Computer Problem Shuts Down Entire BART System in Bay Area**\
 `Bay Area Rapid Transit, the main commuter rail system for the region, was forced to close for the Friday morning commute.`\
 https://nytimes.com/2025/05/09/us/bart-train-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343835/2025/05/09/nhl-playoffs-canucks-takeaways/
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 36?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6339987/2025/05/09/premier-league-predicted-lineups-gw36/
-
-**Ranking Commanders' UDFA class: Can a former 5-star recruit crack the 53?**\
-`Washington opens its three-day rookie minicamp with 10 undrafted free agents who will get a chance to make the 53-man roster. `\
-https://nytimes.com/athletic/6343564/2025/05/09/commanders-2025-undrafted-free-agents/
 
