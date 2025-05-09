@@ -1,3 +1,7 @@
+**Can Jonathan Kuminga and Trayce Jackson-Davis be answers for Curry-less Warriors?**\
+`Steve Kerr used 14 players in Game 2 against the Timberwolves to see who might stand out. Two players earned more minutes going forward.`\
+https://nytimes.com/athletic/6343512/2025/05/09/warriors-trayce-jackson-davis-jonathan-kuminga-playoffs-game-2-timberwolves/
+
 **The Pulse: The best hitter we’ve ever seen?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6342620/2025/05/09/aaron-judge-stats-yankees-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343952/2025/05/09/tafc-long-throws-man-utd-spurs-e
 **Joe Mazzulla says Celtics can't have too much pride to understand why they're in 0-2 hole**\
 `"We had good intentions, we just didn’t execute," says Celtics coach after falling behind in the series against Knicks. `\
 https://nytimes.com/athletic/6343424/2025/05/09/joe-mazzulla-celtics-knicks-series-game-3/
-
-**Ranking the Bears' undrafted rookies: Safeties Major Burns, Tysheem Johnson lead the group**\
-`Chicago's undrafted rookie class has a pair of safeties who could crack the roster at a position that has question marks in the future.`\
-https://nytimes.com/athletic/6342541/2025/05/09/chicago-bears-undrafted-rookies-nfl-major-burns-tysheem-johnson/
 
