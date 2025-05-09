@@ -1,3 +1,11 @@
+**U.S. Starts Investigation Into Imported Planes and Parts**\
+`The Trump administration could use the investigation to impose new tariffs on imported planes, jet engines and other aerospace parts.`\
+https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html
+
+**With Nick Chubb's return 'increasingly unlikely,' Browns turn to rookie RBs**\
+`Cleveland selected two running backs in April's draft, Quinshon Judkins in the second round and Dylan Sampson in the fourth.`\
+https://nytimes.com/athletic/6345394/2025/05/09/browns-running-backs-nick-chubb-quinshon-judkins/
+
 **Pentagon Furthers Crackdown on Diversity Policies With Fresh Order for Review of Library Books**\
 `The move is the latest denunciation by the Trump administration against anything related to diversity, equity and inclusion.`\
 https://nytimes.com/2025/05/09/us/politics/pentagon-hegseth-dei-library-books.html

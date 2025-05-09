@@ -1,9 +1,13 @@
+**U.S. Starts Investigation Into Imported Planes and Parts**\
+`The Trump administration could use the investigation to impose new tariffs on imported planes, jet engines and other aerospace parts.`\
+https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html
+
 **Pentagon Furthers Crackdown on Diversity Policies With Fresh Order for Review of Library Books**\
 `The move is the latest denunciation by the Trump administration against anything related to diversity, equity and inclusion.`\
 https://nytimes.com/2025/05/09/us/politics/pentagon-hegseth-dei-library-books.html
 
-**With Nick Chubb's return 'increasingly unlikely,' Browns shifting focus to rookie RBs**\
-`Cleveland selected two running backs in April's draft, Quinshon Judkins in the second round and Dylan Sampson in the fourth. `\
+**With Nick Chubb's return 'increasingly unlikely,' Browns turn to rookie RBs**\
+`Cleveland selected two running backs in April's draft, Quinshon Judkins in the second round and Dylan Sampson in the fourth.`\
 https://nytimes.com/athletic/6345394/2025/05/09/browns-running-backs-nick-chubb-quinshon-judkins/
 
 **Blue Jays place Andrés Giménez on IL with quad strain**\
@@ -33,9 +37,4 @@ https://nytimes.com/2025/05/09/us/politics/gulf-of-mexico-suit-google.html
 **Pope Leo XIV: Villanova fan, Wordle player, world icon: 'He's our brother!'**\
 `True to his Chicago roots, he cheers for the White Sox and keeps an eye on the former Villanova stars playing for the Knicks.`\
 https://nytimes.com/athletic/6345156/2025/05/09/pope-leo-xiv-villanova-chicago/
-
-**Submit your Cowboys mailbag questions to Jon Machota**\
-`<p>The Cowboys just made their biggest trade in the last 6 1/2 years, adding WR George Pickens. It seems like a good time to ask for questions for a Cowboys mailbag. Ask away! Answers will be posted Monday morning.</p>
-`\
-https://nytimes.com/athletic/6345402/2025/05/09/submit-your-cowboys-mailbag-questions-to-jon-machota-3/
 
