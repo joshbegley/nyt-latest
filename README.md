@@ -1,3 +1,7 @@
+**See How a Communications Outage Affected Flights at Newark Airport**\
+`The effects of an interruption in radio and radar service could be seen almost immediately, as planes circled in holding patterns. They are still being felt in cancellations and major delays days later.`\
+https://nytimes.com/interactive/2025/05/08/nyregion/newark-airport-delays.html
+
 **‘I Was Stunned’: Watching From Illinois, Pope’s Brother Reflects on History**\
 `From his home in suburban Chicago, one of the pope’s brothers described Leo as “middle of the road” but not afraid to speak his mind.`\
 https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-brother-john-prevost.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/08/technology/xai-elon-musk-funding-value.html
 **Peru rejoices over the new pope and claims him as their own.**\
 `By Genevieve Glatsky`\
 https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-peru
-
-**FCS heading toward 12-game schedule starting in 2026**\
-`The NCAA FCS oversight committee approved the recommendation for an annual 12-game campaign. The FBS has been playing 12 games since 2006.`\
-https://nytimes.com/athletic/6343426/2025/05/08/fcs-12-game-regular-season-schedule-2026/
 

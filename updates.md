@@ -1,3 +1,7 @@
+**Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
+`Two days after looking like it was in for a potentially short series against Carolina, Washington punched back.`\
+https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
+
 **‘I Was Stunned’: Watching From Illinois, Pope’s Brother Reflects on History**\
 `From his home in suburban Chicago, one of the pope’s brothers described Leo as “middle of the road” but not afraid to speak his mind.`\
 https://nytimes.com/2025/05/08/world/europe/pope-leo-xiv-brother-john-prevost.html
