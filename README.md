@@ -1,3 +1,11 @@
+**Meet Pope Leo XIV**\
+`We guide you through coverage of the new pontiff and his views.`\
+https://nytimes.com/2025/05/09/briefing/pope-leo-election.html
+
+**At Triple A, Phillies' Andrew Painter enters new stage: 'Think like a big-league pitcher'**\
+`Painter threw three scoreless innings in his Triple-A debut, putting him one step away from MLB. The Phillies expect him to be there soon. `\
+https://nytimes.com/athletic/6343697/2025/05/09/andrew-painter-phillies-prospect-mlb-preparation/
+
 **Panasonic to Cut 10,000 Jobs in Major Overhaul**\
 `The Japanese technology conglomerate plans to shed underperforming businesses and shift its focus to new areas of growth.`\
 https://nytimes.com/2025/05/09/business/panasonic-10000-jobs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/world/europe/bargain-hunt-hezbollah-antiques-uk.h
 **Wilshere not in contention to be permanent Norwich head coach**\
 `The former Arsenal midfielder took interim charge of the club’s last two games of the season after the departure of Johannes Hoff Thorup.`\
 https://nytimes.com/athletic/6344031/2025/05/09/jack-wilshere-norwich-manager-next/
-
-**Eagles mailbag: Where does Cooper DeJean play, fate of Bryce Huff and more**\
-`Plus, what might be going on with the Eagles and kicker Jake Elliott.`\
-https://nytimes.com/athletic/6342351/2025/05/09/eagles-mailbag-cooper-dejean-bryce-huff/
-
-**The Athletic FC: Long throws are back! Plus: Man Utd, Spurs set up Europa League showdown**\
-`Today in TAFC: The return of long throws, Manchester United and Spurs face fight for Champions League return, what is going on at Galaxy?`\
-https://nytimes.com/athletic/6343952/2025/05/09/tafc-long-throws-man-utd-spurs-europa-league/
 
