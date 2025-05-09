@@ -1,3 +1,24 @@
+**Putin Aims to Project Power at Military Parade Marking Victory Over Nazi Germany**\
+`The Russian president is seeking to use the event to depict himself as a global leader despite Western efforts to isolate him and a failure to win the war in Ukraine.`\
+https://nytimes.com/2025/05/09/world/europe/russia-putin-victory-day-parade.html
+
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
+**Mascot**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/05/09/learning/mascot.html
+
+**Can Elite Lawyers Be Persuaded to ‘Wake Up and Stand Up’?**\
+`When the law firm Paul Weiss cut a deal with the Trump administration, a new kind of activist emerged.`\
+https://nytimes.com/2025/05/09/nyregion/can-elite-lawyers-be-persuaded-to-wake-up-and-stand-up.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/09/crosswords/spelling-bee-forum.html
+
 **Trade War Shock Is Scrambling China’s Exports**\
 `Shipments of goods out of China slumped in April, including a big decline in exports to the United States, as President Trump imposed sky-high tariffs.`\
 https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
@@ -17,24 +38,4 @@ https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/here-is-the-lat
 **Live Updates: India-Pakistan Conflict Intensifies Into Most Expansive in Decades**\
 `Both countries reportedly aimed attacks at each other’s territories well beyond their disputed Kashmir border.`\
 https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir
-
-**Tottenham Hotspur's season has gone from the edge of calamity to the brink of history**\
-`Spurs' European campaign has been a story of inversion. Everything that has been said about their season has been turned on its head...`\
-https://nytimes.com/athletic/6337419/2025/05/09/bodo-glimt-spurs-europa-final/
-
-**How Chelsea have used the Conference League to offer academy prospects their pathway**\
-`Giving homegrown youth a chance to shine is always a choice and Enzo Maresca has made it far more than many of his predecessors`\
-https://nytimes.com/athletic/6343453/2025/05/09/chelsea-academy-walsh-mheuka-maresca-conference/
-
-**Word of the Day: guffaw**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/09/learning/word-of-the-day-guffaw.html
-
-**Dodgers finally see a fellow NL West contender — and witness the challenge firsthand**\
-`Yoshinobu Yamamoto lacked control and Arizona took advantage, showing L.A. why the division is the best in baseball.`\
-https://nytimes.com/athletic/6343737/2025/05/09/dodgers-diamondbacks-yoshinobu-yamamoto-nl-west/
-
-**Manchester United turn to the cavalry to secure this season's shot at glory**\
-`Mason Mount, Amad and Luke Shaw made an impressive impact as second-half substitutes with Ruben Amorim's bench suddenly providing options`\
-https://nytimes.com/athletic/6336703/2025/05/09/manchester-united-europa-mount-amad-shaw/
 
