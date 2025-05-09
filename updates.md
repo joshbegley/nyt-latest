@@ -1,3 +1,8 @@
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
 **Putin Aims to Project Power at Military Parade Marking Victory Over Nazi Germany**\
 `The Russian president is seeking to use the event to depict himself as a global leader despite Western efforts to isolate him and a failure to win the war in Ukraine.`\
 https://nytimes.com/2025/05/09/world/europe/russia-putin-victory-day-parade.html
