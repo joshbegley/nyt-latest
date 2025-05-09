@@ -1,3 +1,15 @@
+**Salah, Russo win FWA player of the year awards**\
+`The Egypt captain secured 90 per cent of the vote from over 900 FWA members, the biggest margin this century.`\
+https://nytimes.com/athletic/6344079/2025/05/09/salah-russo-player-awards-fwa/
+
+**Mike Conley is leading the Timberwolves back to the defensive identity they need**\
+`Embarrassed in Game 1, Minnesota locked in on defense against the Steph Curry-less Warriors on Thursday, led by their veteran point guard.`\
+https://nytimes.com/athletic/6343184/2025/05/09/mike-conley-timberwolves-game-2-warriors-playoffs/
+
+**Travis Hunter could be the ultimate cheat code in fantasy football IDP leagues**\
+`Travis Hunter could be a game-changer in IDP leagues across the various fantasy football game providers.`\
+https://nytimes.com/athletic/6342474/2025/05/09/fantasy-football-idp-travis-hunter-cheat-code/
+
 **Twins' starting pitching is a bright spot, makes a turnaround possible**\
 `After an ugly first week, the Twins' rotation has an MLB-best 2.66 ERA thanks to their front-line trio, quality depth and good health.`\
 https://nytimes.com/athletic/6339346/2025/05/09/minesota-twins-rotation-lopez-ryan-ober/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6342579/2025/05/09/mike-sullivan-adam-fox-relations
 **The Knicks, transformed by fight with Pistons, look steely against Celtics**\
 `A frustrating regular season team has given way to a new toughness, physically and mentally. `\
 https://nytimes.com/athletic/6342779/2025/05/09/new-york-knicks-boston-celtics-toughness-nba-playoffs/
-
-**Schaefer vs. 2024 D, Martone vs. Slavkovský and more: Wheeler's mailbag**\
-`Other questions answered include upside swings outside the top 15 and analyzing the draft class' small players.`\
-https://nytimes.com/athletic/6342331/2025/05/09/matthew-schaefer-porter-martone-nhl-draft-2025-mailbag/
-
-**What a nine-game football schedule would mean for the SEC**\
-`Here's what the format would look like, who each team’s opponents might be and what still has to happen to finalize a nine-game slate.`\
-https://nytimes.com/athletic/6342225/2025/05/09/sec-football-schedule-format-games-matchups/
-
-**Sliders: A tribute to the incomparable Tony Gwynn, who would have turned 65 on Friday**\
-`Plus Derek Jeter's advice to recent college grads and more timely and timeless elements of baseball.`\
-https://nytimes.com/athletic/6342757/2025/05/09/tony-gwynn-tribute-derek-jeter-advice-sliders/
 

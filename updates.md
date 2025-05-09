@@ -1,3 +1,15 @@
+**Salah, Russo win FWA player of the year awards**\
+`The Egypt captain secured 90 per cent of the vote from over 900 FWA members, the biggest margin this century.`\
+https://nytimes.com/athletic/6344079/2025/05/09/salah-russo-player-awards-fwa/
+
+**Mike Conley is leading the Timberwolves back to the defensive identity they need**\
+`Embarrassed in Game 1, Minnesota locked in on defense against the Steph Curry-less Warriors on Thursday, led by their veteran point guard.`\
+https://nytimes.com/athletic/6343184/2025/05/09/mike-conley-timberwolves-game-2-warriors-playoffs/
+
+**Travis Hunter could be the ultimate cheat code in fantasy football IDP leagues**\
+`Travis Hunter could be a game-changer in IDP leagues across the various fantasy football game providers.`\
+https://nytimes.com/athletic/6342474/2025/05/09/fantasy-football-idp-travis-hunter-cheat-code/
+
 **Twins' starting pitching is a bright spot, makes a turnaround possible**\
 `After an ugly first week, the Twins' rotation has an MLB-best 2.66 ERA thanks to their front-line trio, quality depth and good health.`\
 https://nytimes.com/athletic/6339346/2025/05/09/minesota-twins-rotation-lopez-ryan-ober/
