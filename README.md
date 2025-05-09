@@ -1,3 +1,19 @@
+**Coach's challenge proposed for college hoops; 'momentum' for move to quarters**\
+`The committee recommended creating a working group to explore a long-discussed change from halves to quarters.`\
+https://nytimes.com/athletic/6345080/2025/05/09/college-basketball-rule-changes-coach-challenge-halves-quarters/
+
+**Flashback: Your Weekly History Quiz, May 10, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/09/upshot/flashback.html
+
+**Ask Russo and Smith: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
+`Have a question about the Wild? Ask here, and Michael Russo and Joe Smith will respond to a selection in their upcoming mailbag.`\
+https://nytimes.com/athletic/6345173/2025/05/09/minnesota-wild-mailbag-may-2025/
+
+**I Saw a Neighbor on the Sex-Offender Registry. Should I Tell Others?**\
+`The magazine’s Ethicist columnist on whether to disclose information about a neighbor on the sex-offender registry.`\
+https://nytimes.com/2025/05/09/magazine/ethicist-sex-offenders.html
+
 **Why David Carle decided now isn't the time to leave DU for the NHL — 'if ever'**\
 `Carle says University of Denver is preferable to open NHL jobs and if he ever does leave "it'll be on our terms."`\
 https://nytimes.com/athletic/6344865/2025/05/09/david-carle-nhl-coaching-vacancies-denver/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6345058/2025/05/09/man-city-cushing-wsl-future/
 **Another Multilingual Pope Leads the Catholic Church**\
 `The first U.S.-born pope has dual citizenship with Peru and speaks at least three languages.`\
 https://nytimes.com/video/world/europe/100000010160005/pope-leo-american-languages.html
-
-**Justice David Souter, Who Traded White Marble for the White Mountains**\
-`Retiring at just 69 after two decades on the Supreme Court, the justice left a legacy of case-by-case judging, intellectual rigor and a complete lack of pretension.`\
-https://nytimes.com/2025/05/09/us/supreme-court-souter-legacy.html
-
-**Alexander Steen Q&A: Blues future GM on learning from Doug Armstrong, the state of the team and more**\
-`Alexander Steen was named as the Blues' GM-in-waiting last June and will be taking over the role after the 2025-26 season.`\
-https://nytimes.com/athletic/6343533/2025/05/09/alexander-steen-blues-gm-future/
-
-**An American Pope Emerges as a Potential Contrast to Trump on the World Stage**\
-`Pope Leo XIV’s focus on refugees and his pluralistic background may offer a different view of U.S. values from the president’s America First approach.`\
-https://nytimes.com/2025/05/09/us/politics/pope-leo-trump.html
-
-**Rising Tensions Force India and Pakistan to Move or Cancel Cricket Games**\
-`In the past, cricket helped bring the two countries closer. But separating the growing political tensions from the sport has became almost impossible.`\
-https://nytimes.com/2025/05/09/world/asia/india-pakistan-ipl-cricket.html
 
