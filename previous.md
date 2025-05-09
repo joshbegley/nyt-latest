@@ -1,3 +1,23 @@
+**Justice David Souter, Who Traded White Marble for the White Mountains**\
+`Retiring at just 69 after two decades on the Supreme Court, the justice left a legacy of case-by-case judging, intellectual rigor and a complete lack of pretension.`\
+https://nytimes.com/2025/05/09/us/supreme-court-souter-legacy.html
+
+**Alexander Steen Q&A: Blues future GM on learning from Doug Armstrong, the state of the team and more**\
+`Alexander Steen was named as the Blues' GM-in-waiting last June and will be taking over the role after the 2025-26 season.`\
+https://nytimes.com/athletic/6343533/2025/05/09/alexander-steen-blues-gm-future/
+
+**An American Pope Emerges as a Potential Contrast to Trump on the World Stage**\
+`Pope Leo XIV’s focus on refugees and his pluralistic background may offer a different view of U.S. values than the president’s America First approach.`\
+https://nytimes.com/2025/05/09/us/politics/pope-leo-trump.html
+
+**Rising Tensions Force India and Pakistan to Move or Cancel Cricket Games**\
+`In the past, cricket helped bring the two countries closer. But separating the growing political tensions from the sport has became almost impossible.`\
+https://nytimes.com/2025/05/09/world/asia/india-pakistan-ipl-cricket.html
+
+**Menendez Brothers’ Resentencing Hearing Is Set for Next Week**\
+`The long-awaited hearing on whether Lyle and Erik Menendez should be eligible for release will take place May 13 and 14 in Los Angeles.`\
+https://nytimes.com/2025/05/09/us/menendez-brothers-resentencing-hearing-date.html
+
 **Rediscovered Thomas the Tank Engine Pilot Is Released**\
 `The episode, from 1983, was found in storage by accident. It was restored and made available for viewing for the first time on Friday.`\
 https://nytimes.com/2025/05/09/arts/television/thomas-friends-pilot-episode-ringo-starr.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6344632/2025/05/09/zak-brown-mickey-mantle-lewd-let
 **Live Q&A: Talking baseball with Eno Sarris on Friday 5/9 at 2:30 p.m. ET**\
 `Submit your questions for Eno Sarris' live chat about all things fantasy baseball and MLB.`\
 https://nytimes.com/athletic/6342945/2025/05/09/sarris-live-chat-mlb-fantasy-baseball-5-9/
-
-**Manny Pacquiao to end retirement, challenge Mario Barrios for title: Report**\
-`Pacquiao will enter the International Boxing Hall of Fame on June 8, one month before his reported return fight.`\
-https://nytimes.com/athletic/6345001/2025/05/09/manny-pacquiao-return-mario-barrios-welterweight-title/
-
-**How Trump Is Scrambling the G.O.P. Push to Cut Medicaid Spending**\
-`The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
-https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
-
-**Can Pope Leo Keep U.S. Citizenship?**\
-`He now leads a sovereign nation, Vatican City, and the U.S. State Department says that for an American to retain citizenship as a foreign head of state can “raise complex questions of international law.”`\
-https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-citizenship.html
-
-**Drones Complicate the Fight Between India and Pakistan**\
-`India has said it identified Turkish drones used by Pakistan; Pakistan said it identified Israeli drones used by India. Neither of those reports could be independently verified.`\
-https://nytimes.com/2025/05/09/world/asia/drones-india-pakistan-fighting.html
-
-**‘Let This Papacy Be a Light in Darkening Times’**\
-`Readers respond to the election of a new pope and ponder its effects on American politics. Also: Presidential profits.`\
-https://nytimes.com/2025/05/09/opinion/pope-leo-xiv.html
 
