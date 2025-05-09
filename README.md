@@ -10,7 +10,7 @@ https://nytimes.com/issue/todayspaper/2025/05/09/todays-new-york-times
 `America’s commitment to helping stabilize the Horn of Africa might have been taken for granted a few months ago. Not anymore.`\
 https://nytimes.com/2025/05/09/opinion/international-world/wars-horn-of-africa.html
 
-**What Trump Should Keep in Mind on His Big Middle East Trip**\
+**This Israeli Government Is Not Our Ally**\
 `Prime Minister Benjamin Netanyahu is behaving in ways that threaten U.S. interests in the region.`\
 https://nytimes.com/2025/05/09/opinion/trump-iran-israel.html
 
