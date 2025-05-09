@@ -1,3 +1,19 @@
+**Why David Carle decided now isn't the time to leave DU for the NHL — 'if ever'**\
+`Carle says University of Denver is preferable to open NHL jobs and if he ever does leave "it'll be on our terms."`\
+https://nytimes.com/athletic/6344865/2025/05/09/david-carle-nhl-coaching-vacancies-denver/
+
+**Trump Moves to Fire Three Members of the Consumer Product Safety Commission**\
+`The three Democrats removed from the commission said they were targeted for voting to stop imports of poorly made lithium-ion batteries and objecting to staffing cuts.`\
+https://nytimes.com/2025/05/09/us/politics/cpsc-fired-trump.html
+
+**Justices Reflect on Souter’s Legacy**\
+`Current and former justices of the Supreme Court released a statement in response to the death of Justice David Souter.`\
+https://nytimes.com/interactive/2025/05/09/us/2025-050925-press-release-statements-from-the-supreme-court-regarding-the-death-of-retired-associate-justice-david-souter-1.html
+
+**An American Pope Emerges as a Potential Contrast to Trump on the World Stage**\
+`Pope Leo XIV’s focus on refugees and his pluralistic background may offer a different view of U.S. values from the president’s America First approach.`\
+https://nytimes.com/2025/05/09/us/politics/pope-leo-trump.html
+
 **On Red Square, Putin Enlists Russian Pride for His War in Ukraine**\
 `The military parade marking the Soviet victory over Nazi Germany was intended to impress allies and tap into Russia’s deep sense of national pride.`\
 https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-red-square.html
