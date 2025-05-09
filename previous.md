@@ -1,3 +1,23 @@
+**Pentagon Furthers Crackdown on Diversity Policies With Fresh Order for Review of Library Books**\
+`The move is the latest denunciation by the Trump administration against anything related to diversity, equity and inclusion.`\
+https://nytimes.com/2025/05/09/us/politics/pentagon-hegseth-dei-library-books.html
+
+**With Nick Chubb's return 'increasingly unlikely,' Browns shifting focus to rookie RBs**\
+`Cleveland selected two running backs in April's draft, Quinshon Judkins in the second round and Dylan Sampson in the fourth. `\
+https://nytimes.com/athletic/6345394/2025/05/09/browns-running-backs-nick-chubb-quinshon-judkins/
+
+**Blue Jays place Andrés Giménez on IL with quad strain**\
+`The Blue Jays will miss Giménez's defense at second base, but his IL stint could allow them to get more offense from the position.`\
+https://nytimes.com/athletic/6345463/2025/05/09/blue-jays-andres-gimenez-injury/
+
+**Drought in Military Aid to Ukraine Enters Uncharted Territory**\
+`It has been 120 days since the last drawdown of weapons from Pentagon stockpiles was announced, outstripping Speaker Mike Johnson’s hold on Ukraine aid more than a year ago.`\
+https://nytimes.com/2025/05/09/us/politics/ukraine-military-aid-trump.html
+
+**Jack Bech, Darien Porter show flashes as Raiders' rookie camp begins**\
+`Hope sprang eternal as rookie minicamp kicked off in Las Vegas, with WR Bech and CB Porter impressing early on.`\
+https://nytimes.com/athletic/6345315/2025/05/09/raiders-rookie-camp-jack-bech-darien-porter/
+
 **Pope Leo’s Creole Roots Evoke Sense of Connection From Some Catholics of Color**\
 `That the new pontiff’s ancestry can be partially traced to a historic enclave of Afro-Caribbean culture in New Orleans has brought joy to some Catholics.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-creole-ancestry.html
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6345156/2025/05/09/pope-leo-xiv-villanova-chicago/
 `<p>The Cowboys just made their biggest trade in the last 6 1/2 years, adding WR George Pickens. It seems like a good time to ask for questions for a Cowboys mailbag. Ask away! Answers will be posted Monday morning.</p>
 `\
 https://nytimes.com/athletic/6345402/2025/05/09/submit-your-cowboys-mailbag-questions-to-jon-machota-3/
-
-**Trump to Withdraw Nominee to Lead Consumer Bureau**\
-`Jonathan McKernan is expected to be tapped for a Treasury Department post instead after waiting for months for the full Senate to take up his consumer bureau nomination.`\
-https://nytimes.com/2025/05/09/us/politics/cfpb-jonathan-mckernan-trump.html
-
-**What to Know About the Hepatitis A Outbreak in L.A. County**\
-`A highly contagious liver infection is surging among groups who are not typically at risk. At least seven people have died.`\
-https://nytimes.com/2025/05/09/health/hepatitis-a-los-angeles.html
-
-**There Is No ‘Energy Emergency,’ a New Lawsuit Claims**\
-`In the suit, 15 Democratic states called Trump’s declaration illegal and said federal agencies were rushing permits for fossil fuel projects under false pretenses.`\
-https://nytimes.com/2025/05/09/climate/energy-emergency-lawsuit.html
-
-**Trump Fired Librarian of Congress Over D.E.I.**\
-`Dr. Hayden is the latest high-ranking Black government official to be axed in the Trump administration’s crusade against D.E.I.`\
-https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
-
-**Judge Awards $680,000 to Military Families Sickened by Jet Fuel Spill in Hawaii**\
-`A lawyer for the plaintiffs said that they had “prevailed against all odds” but called the damage award “disappointing.”`\
-https://nytimes.com/2025/05/09/us/navy-red-hill-water-contamination.html
 
