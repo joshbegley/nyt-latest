@@ -1,3 +1,7 @@
+**Cresswell, Fabianski, Coufal and Ings to leave West Ham at end of season**\
+`All four players were part of the side that helped the team win the Europa Conference League under David Moyes in 2023.`\
+https://nytimes.com/athletic/6344309/2025/05/09/west-ham-cresswell-fabianski-coufal-ings/
+
 **What’s gone right, wrong for Hurricanes vs. Capitals**\
 `To tilt the series back in its favor, Carolina will want to replicate much of the first two games while improving other aspects of its game.`\
 https://nytimes.com/athletic/6343850/2025/05/09/hurricanes-capitals-nhl-playoffs-round-2-right-wrong/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341821/2025/05/09/nascar-championship-rotation-tra
 **Leo XIV helped his credentials by serving in a key Vatican post, experts say.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xiv-helped-his-credentials-by-serving-in-a-key-vatican-post-experts-say
-
-**3 Ways to Cultivate Joy**\
-`It’s essential to building a healthy, meaningful life.`\
-https://nytimes.com/2025/05/09/well/well-festival-joy.html
 
