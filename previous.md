@@ -1,3 +1,7 @@
+**Reincarnated by A.I., Arizona Man Forgives His Killer at Sentencing**\
+`A likeness of Christopher Pelkey, who was killed in a 2021 road rage episode, was created with artificial intelligence. It was part of a victim’s impact statement.`\
+https://nytimes.com/2025/05/08/us/ai-victim-impact-statement-manslaughter.html
+
 **James Foley, Who Directed ‘Glengarry Glen Ross,’ Dies at 71**\
 `The veteran New York City-born filmmaker also directed the sequels to “Fifty Shades of Grey” and a dozen episodes of “House of Cards.”`\
 https://nytimes.com/2025/05/08/arts/james-foley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342727/2025/05/08/joel-quenneville-ducks-coach/
 **Twins takeaways: Byron Buxton does it all, Bailey Ober grinds, Brooks Lee vs. fastballs**\
 `Following three big days with the bat, Buxton used his wheels and an accurate, strong arm to extend the Twins' winning streak to five. `\
 https://nytimes.com/athletic/6343317/2025/05/08/twins-orioles-byron-buxton-brooks-lee-bailey-ober/
-
-**Sue Bird welcomes next phase of career in new role at USA Basketball**\
-`The longtime WNBA star won four championships with the Seattle Storm and five Olympic gold medals. `\
-https://nytimes.com/athletic/6342714/2025/05/08/sue-bird-usa-basketball-wnba/
 

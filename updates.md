@@ -1,3 +1,7 @@
+**Reincarnated by A.I., Arizona Man Forgives His Killer at Sentencing**\
+`A likeness of Christopher Pelkey, who was killed in a 2021 road rage episode, was created with artificial intelligence. It was part of a victim’s impact statement.`\
+https://nytimes.com/2025/05/08/us/ai-victim-impact-statement-manslaughter.html
+
 **James Foley, Who Directed ‘Glengarry Glen Ross,’ Dies at 71**\
 `The veteran New York City-born filmmaker also directed the sequels to “Fifty Shades of Grey” and a dozen episodes of “House of Cards.”`\
 https://nytimes.com/2025/05/08/arts/james-foley-dead.html
