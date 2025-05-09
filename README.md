@@ -1,3 +1,15 @@
+**3 Ways to Cultivate Joy**\
+`It’s essential to building a healthy, meaningful life.`\
+https://nytimes.com/2025/05/09/well/well-festival-joy.html
+
+**Trump Suggests Openness to Slashing China Tariffs Ahead of Trade Talks**\
+`The president said reducing tariffs to 80 percent from the current 145 percent “sounds right,” as U.S. and Chinese negotiators prepare to meet in Switzerland.`\
+https://nytimes.com/2025/05/09/us/politics/trump-us-china-tariffs-80-percent.html
+
+**The Trade War’s Next Front: A U.S.-China Showdown in Geneva**\
+`President Trump hailed an agreement with Britain as a breakthrough — but far tougher negotiations, including with China, beckon.`\
+https://nytimes.com/2025/05/09/business/dealbook/bessent-trade-talks-china.html
+
 **Indian Defense Firm Says It Did Not Resell U.K. Technology to Russia**\
 `Hindustan Aeronautics, a major trading partner for a Russian arms agency, said that sensitive British technology stayed in India.`\
 https://nytimes.com/2025/05/09/world/europe/indian-defense-uk-technology-russia-weapons.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6342921/2025/05/09/maple-leafs-nhl-playoffs-paciore
 **Wizards' 2025 Mock Draft: Evaluating all lottery and draft scenarios**\
 `David Aldridge and Josh Robbins look at the six potential scenarios the Wizards could encounter after the lottery drawing in Chicago.`\
 https://nytimes.com/athletic/6343391/2025/05/09/wizards-mock-draft-lottery-2025/
-
-**Trump Administration Live Updates: President Signals He’s Open to Slashing China Tariffs**\
-``\
-https://nytimes.com/live/2025/05/09/us/trump-news
-
-**Bayern chief says Sane's new contract was close before agent change**\
-`Sane is out of contract at the end of 2024-25 and Bayern are "ready to move on" if no agreement can be found.`\
-https://nytimes.com/athletic/6344029/2025/05/09/leroy-sane-bayern-contract-transfer/
-
-**What We Know About the Terrorist Groups India Said It Targeted**\
-`India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
-https://nytimes.com/2025/05/09/world/asia/india-pakistan-terror-groups-lashkar-e-taiba-jaish-e-muhammad.html
 

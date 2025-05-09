@@ -1,3 +1,7 @@
+**Indian Defense Firm Says It Did Not Resell U.K. Technology to Russia**\
+`Hindustan Aeronautics, a major trading partner for a Russian arms agency, said that sensitive British technology stayed in India.`\
+https://nytimes.com/2025/05/09/world/europe/indian-defense-uk-technology-russia-weapons.html
+
 **Pope Leo XIV at First Mass: ‘You Have Called Me to Carry That Cross’**\
 `The American pontiff celebrated his first Mass as the leader of 1.4 billion Roman Catholics to an audience of cardinals at the Sistine Chapel.`\
 https://nytimes.com/video/world/europe/100000010159335/pope-leo-xiv-first-mass-.html
