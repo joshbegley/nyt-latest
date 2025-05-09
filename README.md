@@ -1,3 +1,15 @@
+**Four things the Canucks can learn from the Stanley Cup playoffs so far**\
+`Here are four takeaways from the playoffs and how they should impact the Canucks offseason.`\
+https://nytimes.com/athletic/6343835/2025/05/09/nhl-playoffs-canucks-takeaways/
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 36?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6339987/2025/05/09/premier-league-predicted-lineups-gw36/
+
+**Ranking Commanders' UDFA class: Can a former 5-star recruit crack the 53?**\
+`Washington opens its three-day rookie minicamp with 10 undrafted free agents who will get a chance to make the 53-man roster. `\
+https://nytimes.com/athletic/6343564/2025/05/09/commanders-2025-undrafted-free-agents/
+
 **The Bounce: With Steph Curry sidelined, Warriors are in deep trouble as Wolves find footing**\
 `The Timberwolves have a tendency to play down to their competition, but Steph Curry's injury may shorten Minnesota's margin for error`\
 https://nytimes.com/athletic/6344413/2025/05/09/steph-curry-anthony-edwards-warriors-wolves-nba-playoffs-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6344401/2025/05/09/ethan-nwaneri-arsenal-arteta/
 **What is a ‘synodal church,’ which Pope Leo XIV vowed to continue?**\
 `By Motoko Rich`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/synodal-church-pope-leo
-
-**Haaland 'ready, fit' for City vs Southampton but Guardiola unsure on start**\
-`Haaland suffered an ankle injury in the FA Cup victory over Bournemouth on March 30 and returned to training in April.`\
-https://nytimes.com/athletic/6344372/2025/05/09/erling-haaland-injury-return-manchester-city/
-
-**Musk’s Team Claims More False Savings**\
-`Hundreds of millions of dollars in contracts killed by Elon Musk’s team have come back to life — but DOGE’s “wall of receipts” is still claiming the savings for killing them. David A. Fahrenthold, an investigative reporter for The New York Times, describes the latest problems found in DOGE’s data.`\
-https://nytimes.com/video/us/politics/100000010142011/musks-team-claims-more-false-savings.html
-
-**DOGE’s Zombie Contracts: They Were Killed but Have Come Back to Life**\
-`The Times found that federal agencies have revived dozens of contracts that Elon Musk’s group still publicly listed as canceled, inflating what it has saved.`\
-https://nytimes.com/2025/05/09/us/politics/doge-musk-contracts-agencies.html
 
