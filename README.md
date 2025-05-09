@@ -1,3 +1,7 @@
+**A Tension Unlike Anything Felt in Decades**\
+`A reporter recalling a war from his childhood finds the fear familiar, but the weapons more high-tech and the fog of disinformation far thicker.`\
+https://nytimes.com/2025/05/09/world/asia/a-tension-unlike-anything-felt-in-decades.html
+
 **Can Hakeem Jeffries Break Through?**\
 `The House minority leader would much rather talk about Medicaid and taxes than looming autocracy.`\
 https://nytimes.com/2025/05/09/opinion/hakeem-jeffries-medicaid-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/learning/how-have-your-siblings-shaped-who-you-ar
 **Your iPhone Apps Are Changing. Here’s How and Why.**\
 `A federal judge’s recent ruling has made it possible for apps to sell software and subscriptions outside the App Store without having to pay a commission.`\
 https://nytimes.com/2025/05/09/technology/iphone-app-store-changes.html
-
-**A Panorama of New Designs**\
-`A look at new design-world events, products and developments.`\
-https://nytimes.com/2025/05/09/arts/design/new-designs.html
 
