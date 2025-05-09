@@ -1,3 +1,11 @@
+**Arteta says Nwaneri could see increase in minutes**\
+`The 18-year-old has enjoyed a breakthrough year in north London but has hardly featured in Arsenal's last five games.`\
+https://nytimes.com/athletic/6344401/2025/05/09/ethan-nwaneri-arsenal-arteta/
+
+**What is a ‘synodal church,’ which Pope Leo XIV vowed to continue?**\
+`By Motoko Rich`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/synodal-church-pope-leo
+
 **Haaland 'ready, fit' for City vs Southampton but Guardiola unsure on start**\
 `Haaland suffered an ankle injury in the FA Cup victory over Bournemouth on March 30 and returned to training in April.`\
 https://nytimes.com/athletic/6344372/2025/05/09/erling-haaland-injury-return-manchester-city/
