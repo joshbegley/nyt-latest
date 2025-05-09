@@ -1,3 +1,11 @@
+**The Best Cheap Sunglasses **\
+`Text by Zoe Vanderweide`\
+https://nytimes.com/card/2025/05/09/smarter-living/wirecutter/the-best-cheap-sunglasses
+
+**Jack Katz, Pioneer of the Graphic Novel, Is Dead at 97**\
+`Hailed as a visionary (if a difficult one), he drew inspiration for his multivolume work “The First Kingdom” from no less a model than Homer.`\
+https://nytimes.com/2025/05/09/arts/jack-katz-dead.html
+
 **Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
 `Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
 https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html

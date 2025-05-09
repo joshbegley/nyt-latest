@@ -1,3 +1,11 @@
+**The Best Cheap Sunglasses **\
+`Text by Zoe Vanderweide`\
+https://nytimes.com/card/2025/05/09/smarter-living/wirecutter/the-best-cheap-sunglasses
+
+**Jack Katz, Pioneer of the Graphic Novel, Is Dead at 97**\
+`Hailed as a visionary (if a difficult one), he drew inspiration for his multivolume work “The First Kingdom” from no less a model than Homer.`\
+https://nytimes.com/2025/05/09/arts/jack-katz-dead.html
+
 **Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
 `Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
 https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/health/cdc-emergency-preparedness-funding.html
 **Bob Baffert horse Rodriguez scratched from Preakness Stakes**\
 `Rodriguez was also scratched from the Kentucky Derby due to foot issue.`\
 https://nytimes.com/athletic/6345135/2025/05/09/bob-baffert-rodriguez-scratched-preakness-stakes/
-
-**Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
-`The Warriors have little choice but to ride with Kuminga and live with whatever happens. And he has little choice but to seize this moment.`\
-https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
-
-**Draft Executive Orders Aim to Speed Construction of Nuclear Plants**\
-`The potential actions could include overhauling the Nuclear Regulatory Commission and leaning on the U.S. military to deploy new reactors.`\
-https://nytimes.com/2025/05/09/climate/trump-draft-nuclear-executive-orders.html
 
