@@ -1,3 +1,7 @@
+**Long Before Their Ascensions, Francis and Leo Were Friends**\
+`The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
+
 **U.S. Starts Investigation Into Imported Planes and Parts**\
 `The Trump administration could use the investigation to impose new tariffs on imported planes, jet engines and other aerospace parts.`\
 https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html

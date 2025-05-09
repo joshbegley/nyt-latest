@@ -1,3 +1,7 @@
+**Long Before Their Ascensions, Francis and Leo Were Friends**\
+`The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
+
 **U.S. Starts Investigation Into Imported Planes and Parts**\
 `The Trump administration could use the investigation to impose new tariffs on imported planes, jet engines and other aerospace parts.`\
 https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345339/2025/05/09/cubs-cade-horton-mlb-debut/
 **Mexico Sued Google Over Gulf of Mexico Name Change, President Says**\
 `The unilateral attempt to rename the gulf has provoked ridicule and anger in Mexico.`\
 https://nytimes.com/2025/05/09/us/politics/gulf-of-mexico-suit-google.html
-
-**Pope Leo XIV: Villanova fan, Wordle player, world icon: 'He's our brother!'**\
-`True to his Chicago roots, he cheers for the White Sox and keeps an eye on the former Villanova stars playing for the Knicks.`\
-https://nytimes.com/athletic/6345156/2025/05/09/pope-leo-xiv-villanova-chicago/
 
