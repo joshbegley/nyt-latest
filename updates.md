@@ -1,3 +1,5 @@
+
+
 **David H. Souter, Republican Justice Who Allied With Court’s Liberal Wing, Dies at 85**\
 `He left conservatives bitterly disappointed with his migration from right to left, leading to the cry of “no more Souters.”`\
 https://nytimes.com/2025/05/09/us/david-souter-dead.html
