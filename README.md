@@ -1,3 +1,11 @@
+**Mads Pedersen wins first stage of Giro d'Italia as Mikel Landa crashes out**\
+`Stages One, Two and Three of the Giro are taking place in Albania, with the race moving to Italy on Tuesday.`\
+https://nytimes.com/athletic/6344756/2025/05/09/giro-ditalia-pedersen-landa/
+
+**Pope Leo is a friar in the Order of St. Augustine. Why does that matter?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-is-a-friar-in-the-order-of-st-augustine-why-does-that-matter
+
 **NASCAR antitrust case: Appeals judges show skepticism over injunction**\
 `A ruling is expected later this month as NASCAR appeals the preliminary injunction that allowed 23XI and Front Row to continue racing. `\
 https://nytimes.com/athletic/6344576/2025/05/09/nascar-antitrust-case-lawsuit-appeal-michael-jordan/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/style/bravo-real-housewives-wife-swap.html
 **Arsenal open talks over new Saliba contract**\
 `Saliba’s existing terms run until the summer of 2027 and he is being targeted by Real Madrid.`\
 https://nytimes.com/athletic/6258890/2025/05/09/arsenal-william-saliba-contract-talks/
-
-**Live MLB Draft and prospects Q&A with Keith Law today at 2 pm ET**\
-`Chat with Keith Law about the MLB Draft and MLB prospects!`\
-https://nytimes.com/athletic/6344743/2025/05/09/keith-law-mlb-draft-prospects-live-qanda/
-
-**Five Science Fiction Movies to Stream Now**\
-`There’s scorched earth with a little bit of hope in this month’s sci-fi picks.`\
-https://nytimes.com/2025/05/09/movies/science-fiction-movies-streaming.html
 
