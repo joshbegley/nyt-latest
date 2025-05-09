@@ -1,3 +1,7 @@
+**Jelly Shoes Aren’t Just For Kids. Here Are the Best Ones.**\
+`A roundup of rubber sandals, for a variety of occasions and budgets.`\
+https://nytimes.com/2025/05/09/t-magazine/best-jelly-shoes.html
+
 **Pope Leo XIV Echoes Francis in His First Mass, Aligning Himself With ‘Ordinary People’**\
 `In his advocacy of the poor, migrants and a more open church, many people see the new pope as a continuation of his predecessor.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-mass-catholic-church.html
