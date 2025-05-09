@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6345001/2025/05/09/manny-pacquiao-return-mario-barr
 `The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
 https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
 
-**American Citizen, Vatican Citizen or Both? Pope Leo Has Options.**\
-`As the leader of Vatican City, he is the head of a sovereign nation. But maintaining dual citizenship as a foreign head of state can “raise complex questions of international law,” according to the State Department.`\
+**Can Pope Leo Keep U.S. Citizenship?**\
+`He now leads a sovereign nation, Vatican City, and the U.S. State Department says that for an American to retain citizenship as a foreign head of state can “raise complex questions of international law.”`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-citizenship.html
 
 **Drones Complicate the Fight Between India and Pakistan**\

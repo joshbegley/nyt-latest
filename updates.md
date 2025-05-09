@@ -1,3 +1,7 @@
+**Manny Pacquiao to end retirement, challenge Mario Barrios for title: Report**\
+`Pacquiao will enter the International Boxing Hall of Fame on June 8, one month before his reported return fight.`\
+https://nytimes.com/athletic/6345001/2025/05/09/manny-pacquiao-return-mario-barrios-welterweight-title/
+
 **How Trump Is Scrambling the G.O.P. Push to Cut Medicaid Spending**\
 `The president’s stated opposition to cutting the program has put Republicans laboring to enact his domestic agenda in a bind.`\
 https://nytimes.com/2025/05/09/us/politics/medicaid-spending-republicans.html
