@@ -1,3 +1,11 @@
+**Cautious Optimism Among Liberals About New Pope’s Views on Gay Catholics**\
+`Pope Leo XIV has said little publicly about a place in the Catholic Church for gay and transgender people. Some thought the issue would not be key to his agenda.`\
+https://nytimes.com/2025/05/08/nyregion/pope-leo-xiv-lgbtq-gay.html
+
+**Far-Right Activist Targets Trump’s Surgeon General Pick**\
+`The selection of Dr. Casey Means drew ridicule from a Trump ally, Laura Loomer. But Health Secretary Robert F. Kennedy Jr. defended the surgeon general nominee.`\
+https://nytimes.com/2025/05/08/us/politics/means-loomer-trump-surgeon-general.html
+
 **Reincarnated by A.I., Arizona Man Forgives His Killer at Sentencing**\
 `A likeness of Christopher Pelkey, who was killed in a 2021 road rage episode, was created with artificial intelligence. It was part of a victim’s impact statement.`\
 https://nytimes.com/2025/05/08/us/ai-victim-impact-statement-manslaughter.html

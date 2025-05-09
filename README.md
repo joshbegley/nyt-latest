@@ -1,3 +1,11 @@
+**FCS heading toward 12-game schedule starting in 2026**\
+`The NCAA FCS oversight committee approved the recommendation for an annual 12-game campaign. The FBS has been playing 12 games since 2006.`\
+https://nytimes.com/athletic/6343426/2025/05/08/fcs-12-game-regular-season-schedule-2026/
+
+**Greenberg: Talking to 'The Pope' about the Pope, Caleb Williams, Ben Johnson and White Sox**\
+`After Chicago native Robert Prevost became the first American-born Pope, we spoke to the city's first "Pope" — White Sox reliever Donn Pall.`\
+https://nytimes.com/athletic/6343288/2025/05/08/chicago-pope-leo-xiv-white-sox-cubs-donn-pall/
+
 **Cautious Optimism Among Liberals About New Pope’s Views on Gay Catholics**\
 `Pope Leo XIV has said little publicly about a place in the Catholic Church for gay and transgender people. Some thought the issue would not be key to his agenda.`\
 https://nytimes.com/2025/05/08/nyregion/pope-leo-xiv-lgbtq-gay.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6343263/2025/05/08/texans-jayden-higgins-guaranteed
 **Can a Photograph Reveal Your Biological Age?**\
 `Scientists have developed an A.I. tool that they say can help assess a patient’s health — and potentially guide their medical care.`\
 https://nytimes.com/2025/05/08/well/biological-age-faceage.html
-
-**New Pope Has Creole Roots in New Orleans, Genealogist Says**\
-`Robert Prevost’s maternal grandparents were married near the French Quarter and later moved to Chicago, where his mother was born, records show.`\
-https://nytimes.com/2025/05/08/us/pope-leo-creole-new-orleans.html
-
-**An Urgent Question for the Pope: Cubs or Sox?**\
-`Fans from both teams seemed to claim him as their own, but his brother had the final answer.`\
-https://nytimes.com/2025/05/08/world/europe/pope-chicago-cubs-white-sox.html
 
