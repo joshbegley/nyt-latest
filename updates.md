@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`The election of the first American pope.`\
+https://nytimes.com/2025/05/09/briefing/pope-trade-tate-modern.html
+
+**Justice Sotomayor Says Lawyers Must ‘Stand Up’ and ‘Fight This Fight’**\
+`In pointed remarks, the justice told an audience of hundreds of lawyers that she had joined them as “an act of solidarity.”`\
+https://nytimes.com/2025/05/09/us/justice-sotomayor-talk.html
+
 **FPL: A guide to making transfers at the end of the season**\
 `With only three gameweeks of the season left in FPL, managers have to be careful with transfers, making sure they are maximising each one`\
 https://nytimes.com/athletic/6340658/2025/05/09/fantasy-premier-league-transfers-gameweek-36-season/
