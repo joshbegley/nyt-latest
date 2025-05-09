@@ -1,3 +1,7 @@
+**Rediscovered Thomas the Tank Engine Pilot Is Released**\
+`The episode, from 1983, was found in storage by accident. It was restored and made available for viewing for the first time on Friday.`\
+https://nytimes.com/2025/05/09/arts/television/thomas-friends-pilot-episode-ringo-starr.html
+
 **Ava DuVernay Defends a Smithsonian Under Fire From Trump**\
 `In accepting an award at the National Museum of American History, the filmmaker alluded to recent moves by the White House to reshape the Smithsonian’s programming.`\
 https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/world/asia/drones-india-pakistan-fighting.html
 **‘Let This Papacy Be a Light in Darkening Times’**\
 `Readers respond to the election of a new pope and ponder its effects on American politics. Also: Presidential profits.`\
 https://nytimes.com/2025/05/09/opinion/pope-leo-xiv.html
-
-**George Lee, Trailblazing Chinese Ballet Dancer, Dies at 90**\
-`He is believed to have been the first Asian to dance with New York City Ballet when he was cast in George Balanchine’s production of “The Nutcracker.”`\
-https://nytimes.com/2025/05/09/arts/dance/george-lee-dead.html
 

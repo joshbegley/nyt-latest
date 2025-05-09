@@ -1,3 +1,7 @@
+**Rediscovered Thomas the Tank Engine Pilot Is Released**\
+`The episode, from 1983, was found in storage by accident. It was restored and made available for viewing for the first time on Friday.`\
+https://nytimes.com/2025/05/09/arts/television/thomas-friends-pilot-episode-ringo-starr.html
+
 **Ava DuVernay Defends a Smithsonian Under Fire From Trump**\
 `In accepting an award at the National Museum of American History, the filmmaker alluded to recent moves by the White House to reshape the Smithsonian’s programming.`\
 https://nytimes.com/2025/05/09/arts/design/ava-duvernay-smithsonian-trump.html
