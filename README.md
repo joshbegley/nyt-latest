@@ -1,3 +1,7 @@
+**Down 2-0 heading onto the road, Golden Knights need Adin Hill to turn the tide**\
+`Las Vegas should be – and need to be – winning the goaltending matchup against the Oilers if they’re to have any chance.`\
+https://nytimes.com/athletic/6343859/2025/05/09/golden-knights-oilers-playoffs-adin-hill/
+
 **Here’s the latest.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/heres-the-latest
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
 **Oilers re-establishing themselves as true Cup contenders with each gutty win**\
 `While "team of destiny" might be a little melodramatic, the Oilers are certainly a team of tenacity.`\
 https://nytimes.com/athletic/6343831/2025/05/09/oilers-nhl-playoffs-contenders-golden-knights/
-
-**Late Night Celebrates the First American Pope**\
-`“We have an American pope and a Russian president,” Jimmy Kimmel said, calling it “an historic era.”`\
-https://nytimes.com/2025/05/09/arts/television/late-night-american-pope-leo.html
 
