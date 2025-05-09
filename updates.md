@@ -1,3 +1,11 @@
+**What We Know About the Terrorist Groups India Said It Targeted**\
+`India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
+https://nytimes.com/2025/05/09/world/asia/india-pakistan-terror-groups-lashkar-e-taiba-jaish-e-muhammad.html
+
+**Ordinary Indians Are Feeling Jittery About the Escalating Conflict**\
+`No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
+https://nytimes.com/2025/05/09/world/asia/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict.html
+
 **Ordinary Indians Are Feeling Jittery About the Escalating Conflict**\
 `No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
 https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict
