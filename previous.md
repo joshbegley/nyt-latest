@@ -1,3 +1,11 @@
+**Trump Fired Librarian of Congress Over D.E.I.**\
+`Dr. Hayden is the latest high-ranking Black government official to be axed in the Trump administration’s crusade against D.E.I.`\
+https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
+
+**Judge Awards $680,000 to Military Families Sickened by Jet Fuel Spill in Hawaii**\
+`A lawyer for the plaintiffs said that they had “prevailed against all odds” but called the damage award “disappointing.”`\
+https://nytimes.com/2025/05/09/us/navy-red-hill-water-contamination.html
+
 **The Pope Begins to Set His Course**\
 `Also, David Souter, the Republican-turned-liberal justice, died. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/09/briefing/pope-leo-trump-china-tariffs-mothers-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
 **‘Dead Outlaw’ Cancels Library of Congress Concert to Protest Firing**\
 `The Broadway musical, which earned seven Tony nominations, scrapped a performance after the Librarian of Congress, Dr. Carla D. Hayden, was fired by the Trump administration.`\
 https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performance.html
-
-**Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
-`Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
-https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
-
-**J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
-`He knew he could never match the success of the great Sam Snead, but he won eight tournaments on the PGA Tour and four more on the senior circuit.`\
-https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
 

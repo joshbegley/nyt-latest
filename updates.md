@@ -1,3 +1,11 @@
+**Trump Fired Librarian of Congress Over D.E.I.**\
+`Dr. Hayden is the latest high-ranking Black government official to be axed in the Trump administration’s crusade against D.E.I.`\
+https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
+
+**Judge Awards $680,000 to Military Families Sickened by Jet Fuel Spill in Hawaii**\
+`A lawyer for the plaintiffs said that they had “prevailed against all odds” but called the damage award “disappointing.”`\
+https://nytimes.com/2025/05/09/us/navy-red-hill-water-contamination.html
+
 **The Pope Begins to Set His Course**\
 `Also, David Souter, the Republican-turned-liberal justice, died. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/09/briefing/pope-leo-trump-china-tariffs-mothers-day.html
