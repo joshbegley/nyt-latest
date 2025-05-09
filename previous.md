@@ -1,3 +1,11 @@
+**What to Know About the Hepatitis A Outbreak in L.A. County**\
+`A highly contagious liver infection is surging among groups who are not typically at risk. At least seven people have died.`\
+https://nytimes.com/2025/05/09/health/hepatitis-a-los-angeles.html
+
+**There Is No ‘Energy Emergency,’ a New Lawsuit Claims**\
+`In the suit, 15 Democratic states called Trump’s declaration illegal and said federal agencies were rushing permits for fossil fuel projects under false pretenses.`\
+https://nytimes.com/2025/05/09/climate/energy-emergency-lawsuit.html
+
 **Trump Fired Librarian of Congress Over D.E.I.**\
 `Dr. Hayden is the latest high-ranking Black government official to be axed in the Trump administration’s crusade against D.E.I.`\
 https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6345298/2025/05/09/pulisic-milan-bologna/
 **Reds place Hunter Greene on IL, activate Austin Hays**\
 `The Reds called up Chase Petty, who made his major-league debut on April 30. Greene is eligible to return on May 18. `\
 https://nytimes.com/athletic/6345343/2025/05/09/reds-hunter-greene-injury-austin-hays/
-
-**Leo Lived Here: The Price Goes Up for the Pope’s Childhood Home**\
-`After Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church, offers began flooding in to buy this modest house outside Chicago, the real estate broker said.`\
-https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
-
-**‘Dead Outlaw’ Cancels Library of Congress Concert to Protest Firing**\
-`The Broadway musical, which earned seven Tony nominations, scrapped a performance after the Librarian of Congress, Dr. Carla D. Hayden, was fired by the Trump administration.`\
-https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performance.html
 

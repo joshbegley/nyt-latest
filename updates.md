@@ -1,3 +1,11 @@
+**What to Know About the Hepatitis A Outbreak in L.A. County**\
+`A highly contagious liver infection is surging among groups who are not typically at risk. At least seven people have died.`\
+https://nytimes.com/2025/05/09/health/hepatitis-a-los-angeles.html
+
+**There Is No ‘Energy Emergency,’ a New Lawsuit Claims**\
+`In the suit, 15 Democratic states called Trump’s declaration illegal and said federal agencies were rushing permits for fossil fuel projects under false pretenses.`\
+https://nytimes.com/2025/05/09/climate/energy-emergency-lawsuit.html
+
 **Trump Fired Librarian of Congress Over D.E.I.**\
 `Dr. Hayden is the latest high-ranking Black government official to be axed in the Trump administration’s crusade against D.E.I.`\
 https://nytimes.com/2025/05/09/us/politics/hayden-library-of-congress-dei.html
