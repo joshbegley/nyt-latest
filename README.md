@@ -1,3 +1,7 @@
+**The Athletic FC: Long throws are back! Plus: Man Utd, Spurs set up Europa League showdown**\
+`Today in TAFC: The return of long throws, Manchester United and Spurs face fight for Champions League return, what is going on at Galaxy?`\
+https://nytimes.com/athletic/6343952/2025/05/09/tafc-long-throws-man-utd-spurs-europa-league/
+
 **Joe Mazzulla says Celtics can't have too much pride to understand why they're in 0-2 hole**\
 `"We had good intentions, we just didn’t execute," says Celtics coach after falling behind in the series against Knicks. `\
 https://nytimes.com/athletic/6343424/2025/05/09/joe-mazzulla-celtics-knicks-series-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/podcasts/the-headlines/pope-leo-bill-gates-money.
 **Wordle Review No. 1,421**\
 `Scroll down for hints and conversation about the puzzle for Saturday, May 10, 2025.`\
 https://nytimes.com/2025/05/09/crosswords/wordle-review-1421.html
-
-**2 Men Found Guilty of Felling Britain’s Sycamore Gap Tree**\
-`Prosecutors said the men had committed the “act of deliberate and mindless criminal damage” together and filmed it on a cellphone.`\
-https://nytimes.com/2025/05/09/world/europe/sycamore-gap-tree-verdict.html
 
