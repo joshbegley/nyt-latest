@@ -1,3 +1,7 @@
+**A Tension Unlike Anything Felt in Decades**\
+`A reporter recalling a war from his childhood finds the fear familiar, but the weapons more high-tech and the fog of disinformation far thicker.`\
+https://nytimes.com/2025/05/09/world/asia/a-tension-unlike-anything-felt-in-decades.html
+
 **Can Hakeem Jeffries Break Through?**\
 `The House minority leader would much rather talk about Medicaid and taxes than looming autocracy.`\
 https://nytimes.com/2025/05/09/opinion/hakeem-jeffries-medicaid-budget.html
