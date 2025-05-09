@@ -1,3 +1,7 @@
+**Quote of the Day: The Great Salt Lake Is Evaporating Fast. Could Utah Save It?**\
+`Quotation of the Day for Friday, May 9, 2025.`\
+https://nytimes.com/2025/05/08/pageoneplus/quote-of-the-day-the-great-salt-lake-is-evaporating-fast-could-utah-save-it.html
+
 **Timberwolves rout Steph Curry-less Warriors 117-93 to tie series: Takeaways**\
 `Julius Randle paced the Timberwolves with 24 points and recorded a postseason career-high 10 assists.`\
 https://nytimes.com/athletic/6343474/2025/05/08/warriors-timberwolves-game-2-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs
 **What’s in a Name? In the Case of Leo XIV, Lessons in Bridging Historical Shifts**\
 `Pope Leo XIII, who served from 1878 to 1903, led the church into the modern world, emphasizing its moral authority beyond national boundaries. He defended the rights of working people and affirmed the value of science.`\
 https://nytimes.com/2025/05/08/world/europe/name-leo-xiv-history.html
-
-**Two Priests Reflect on Their Longtime Friend Bob, Now Pope Leo XIV**\
-`When Robert Francis Prevost walked onto the balcony, “it was as if a family member appeared.”`\
-https://nytimes.com/2025/05/08/us/pope-leo-bob-villanova.html
 
