@@ -1,3 +1,15 @@
+**Leo Lived Here: The Price Goes Up for the Pope’s Childhood Home**\
+`After Cardinal Robert Francis Prevost was selected to become the leader of the Roman Catholic Church, offers began flooding in to buy this modest house outside Chicago, the real estate broker said.`\
+https://nytimes.com/2025/05/09/realestate/pope-leo-xiv-home-chicago-sale.html
+
+**‘Dead Outlaw’ Cancels Library of Congress Concert to Protest Firing**\
+`The Broadway musical, which earned seven Tony nominations, scrapped a performance after the Librarian of Congress, Dr. Carla D. Hayden, was fired by the Trump administration.`\
+https://nytimes.com/2025/05/09/theater/dead-outlaw-library-of-congress-performance.html
+
+**J.C. Snead, Golfing Nephew of His Uncle Sam, Dies at 84**\
+`He knew he could never match the success of the great Sam Snead, but he won eight tournaments on the PGA Tour and four more on the senior circuit.`\
+https://nytimes.com/2025/05/09/sports/golf/jc-snead-dead.html
+
 **Trump Officials Consider Suspending Habeas Corpus for Detained Migrants**\
 `Stephen Miller, a top aide, repeated a justification the administration has used in its immigration crackdown: that the country is fighting an invasion.`\
 https://nytimes.com/2025/05/09/us/trump-habeas-corpus.html
