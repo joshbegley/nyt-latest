@@ -1,3 +1,7 @@
+**See How a Communications Outage Affected Flights at Newark Airport**\
+`The effects of an interruption in radio and radar service could be seen almost immediately, as planes circled in holding patterns. They are still being felt in cancellations and major delays days later.`\
+https://nytimes.com/interactive/2025/05/08/nyregion/newark-airport-delays.html
+
 **Capitals crack the code, even series vs. Hurricanes in Game 2: Takeaways**\
 `Two days after looking like it was in for a potentially short series against Carolina, Washington punched back.`\
 https://nytimes.com/athletic/6343530/2025/05/08/capitals-hurricanes-nhl-playoffs-2025-game-2-takeaways/
