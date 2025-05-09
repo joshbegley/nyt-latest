@@ -1,3 +1,7 @@
+**What the New Pope Tells Us About the Church**\
+`Robert Francis Prevost, now Leo XIV, is the first American pope. Jason Horowitz, Rome bureau chief of The New York Times, and Katrin Bennhold, a senior writer on the international desk, discuss what this means.`\
+https://nytimes.com/video/world/europe/100000010157615/what-the-new-pope-tells-us-about-the-church.html
+
 **Oilers outlast Golden Knights to win high-scoring Game 2 in OT**\
 `Since dropping their first two games in the first round, the Oilers have scored 29 goals across six straight wins.`\
 https://nytimes.com/athletic/6337449/2025/05/09/oilers-golden-knights-nhl-playoffs-2025-game-2-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6332325/2025/05/09/wrexham-squad-audit-championship
 **Tyler Bindon on Premier League ‘dream’, starting at LAFC, Vietnam War veteran grandfather**\
 `Bindon grew up in the States, plays for New Zealand and could feature in next season's Champions League. He's taken it all in his stride...`\
 https://nytimes.com/athletic/6289589/2025/05/09/tyler-bindon-forest-reading-lafc-champions-league/
-
-**Julio Enciso's loan has done exactly what it needed to. Will Brighton benefit?**\
-`Another telling impact from Enciso to add to his two goals and three assists in 11 outings for Ipswich would go down well at the Amex`\
-https://nytimes.com/athletic/6336781/2025/05/09/julio-enciso-brighton-ipswich-loan/
 
