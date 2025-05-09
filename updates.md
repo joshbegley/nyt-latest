@@ -1,3 +1,19 @@
+**Leo XIV’s first words set a pastoral tone, acknowledging tradition.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xivs-first-words-set-a-pastoral-tone-acknowledging-tradition
+
+**Local Officials Brace for Loss of Disaster Preparedness Funding**\
+`The C.D.C. delivered $750 million annually to state and local health departments for emergency work. The program was eliminated in the Trump administration’s budget blueprint.`\
+https://nytimes.com/2025/05/09/health/cdc-emergency-preparedness-funding.html
+
+**Bob Baffert horse Rodriguez scratched from Preakness Stakes**\
+`Rodriguez was also scratched from the Kentucky Derby due to foot issue.`\
+https://nytimes.com/athletic/6345135/2025/05/09/bob-baffert-rodriguez-scratched-preakness-stakes/
+
+**Why David Carle decided now isn't the time to leave Denver Pioneers for NHL**\
+`Carle says University of Denver is preferable to open NHL jobs and if he ever does leave "it'll be on our terms."`\
+https://nytimes.com/athletic/6344865/2025/05/09/david-carle-nhl-coaching-vacancies-denver/
+
 **Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
 `The Warriors have little choice but to ride with Kuminga, and live with whatever happens. And he has little choice but to seize this moment.`\
 https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
