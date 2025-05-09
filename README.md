@@ -1,3 +1,11 @@
+**Opening Line: Intriguing wagers around Knicks-Celtics and more this weekend**\
+`The most intriguing odds from this weekend's biggest games, including late-game action for the Knicks and El Clasico.`\
+https://nytimes.com/athletic/6344536/2025/05/09/the-most-intriguing-wagers-around-cubs-mets-knicks-celtics-and-more-this-weekend/
+
+**Pope Leo’s work with migrants is another link to Francis.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leos-work-with-migrants-is-another-link-to-francis
+
 **Republican Agenda Hits Familiar Obstacle: State and Local Taxes**\
 `A small group of Republicans are threatening to torpedo President Trump’s agenda over the state and local tax deduction, long a headache for both parties.`\
 https://nytimes.com/2025/05/09/us/politics/republicans-salt-cap.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/us/bart-train-shutdown.html
 **Five years of Blackhawks NHL draft classes: The signed, unsigned and uncertain**\
 `Here's a look at the Blackhawks' last five drafts: players they've signed, players they haven't and players whose rights they still own.`\
 https://nytimes.com/athletic/6343679/2025/05/09/blackhawks-nhl-draft-picks-contracts-kyle-davidson/
-
-**F.D.A. Approves First At-Home Alternative to the Pap Smear**\
-`The tool will allow women to screen for HPV, which causes almost all cases of cervical cancer, without visiting a doctor.`\
-https://nytimes.com/2025/05/09/well/pap-smear-at-home-alternative-cervical.html
-
-**Judge Delays Sean Combs Jury Selection, Concerned About ‘Cold Feet’**\
-`Judge Arun Subramanian said he feared jurors might grow uneasy over the weekend and drop off the panel before the trial begins on Monday.`\
-https://nytimes.com/2025/05/09/arts/music/diddy-sean-combs-jury-delayed.html
 
