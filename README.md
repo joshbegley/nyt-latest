@@ -1,3 +1,7 @@
+**American Citizen, Vatican Citizen or Both? Pope Leo Has Options.**\
+`As the leader of Vatican City, he is the head of a sovereign nation. But maintaining dual citizenship as a foreign head of state can “raise complex questions of international law,” according to the State Department.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-citizenship.html
+
 **Drones Complicate the Fight Between India and Pakistan**\
 `India has said it identified Turkish drones used by Pakistan; Pakistan said it identified Israeli drones used by India. Neither of those reports could be independently verified.`\
 https://nytimes.com/2025/05/09/world/asia/drones-india-pakistan-fighting.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/05/09/arts/dance/george-lee-dead.html
 `Environmentalists said a ritual at the office of Lee Zeldin, the agency head, highlighted a disconnect between religious principles and looser health and climate protections.`\
 https://nytimes.com/2025/05/09/climate/lee-zeldin-epa-mezuza.html
 
-**On climate change, the new pope is likely to follow Francis.**\
+**On climate change, the new pope is likely to match Francis’ focus.**\
 `By Max Bearak`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/on-climate-change-the-new-pope-is-likely-to-follow-francis
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/arts/music/playlist-fiona-apple-kali-uchis.html
 **Teenager Fatally Shot During ‘Ding Dong Ditch’ TikTok Prank**\
 `A Virginia man was charged with second degree murder after the shooting. The teenager’s friends told authorities they had been filming a video of the prank for TikTok.`\
 https://nytimes.com/2025/05/09/us/virginia-teen-shot-ding-dong-ditch-tiktok-prank.html
-
-**The church might resist a rush to make Pope Francis a saint.**\
-`St. John Paul II cut the waiting period to five years, but his own canonization nine years after his death has become a cautionary tale.`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/the-church-might-resist-a-rush-to-make-pope-francis-a-saint
 
