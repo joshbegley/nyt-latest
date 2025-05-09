@@ -1,3 +1,11 @@
+**Tottenham Hotspur's season has gone from the edge of calamity to the brink of history**\
+`Spurs' European campaign has been a story of inversion. Everything that has been said about their season has been turned on its head...`\
+https://nytimes.com/athletic/6337419/2025/05/09/bodo-glimt-spurs-europa-final/
+
+**How Chelsea have used the Conference League to offer academy prospects their pathway**\
+`Giving homegrown youth a chance to shine is always a choice and Enzo Maresca has made it far more than many of his predecessors`\
+https://nytimes.com/athletic/6343453/2025/05/09/chelsea-academy-walsh-mheuka-maresca-conference/
+
 **Word of the Day: guffaw**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/09/learning/word-of-the-day-guffaw.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/opinion/international-world/wars-horn-of-africa.h
 **This Israeli Government Is Not Our Ally**\
 `Prime Minister Benjamin Netanyahu is behaving in ways that threaten U.S. interests in the region.`\
 https://nytimes.com/2025/05/09/opinion/trump-iran-israel.html
-
-**Friday Briefing**\
-`The election of the first American pope.`\
-https://nytimes.com/2025/05/09/briefing/pope-trade-tate-modern.html
-
-**Justice Sotomayor Says Lawyers Must ‘Stand Up’ and ‘Fight This Fight’**\
-`In pointed remarks, the justice told an audience of hundreds of lawyers that she had joined them as “an act of solidarity.”`\
-https://nytimes.com/2025/05/09/us/justice-sotomayor-talk.html
 
