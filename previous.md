@@ -1,3 +1,15 @@
+**The 5.11.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
+
+**How Lola Young’s ‘Messy’ Blew Up**\
+`You’ve heard it at the pharmacy, the fast food place or from someone else’s car speakers. Here’s why a British pop-soul track became one of the year’s most ubiquitous songs.`\
+https://nytimes.com/video/podcasts/100000010154486/lola-young-messy-review.html
+
+**A New Kind of Battle for Two Old Enemies**\
+`Drone warfare has expanded the conflict in Kashmir between India and Pakistan, two nuclear-armed neighbors.`\
+https://nytimes.com/2025/05/09/world/asia/india-pakistan-kashmir-drones.html
+
 **Five Weeks Late, a $254 Billion New York Budget Still Has Its Charms**\
 `Lawmakers ratified a state budget that promised benefits for a host of New Yorkers, including the legislators themselves.`\
 https://nytimes.com/2025/05/09/nyregion/hochul-budget-new-york.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/arts/jack-katz-dead.html
 **Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
 `Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
 https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html
-
-**India-Pakistan Conflict Over Kashmir Intensifies**\
-`Gunfire and shelling battered the disputed borderlands of India and Pakistan on Friday.`\
-https://nytimes.com/video/world/asia/100000010160279/kashmir-pakistan-india-conflict.html
-
-**The Shipping Industry Gets Serious About Emissions**\
-`The shipping industry is pushing to decarbonize, and exploring cargo ships powered by wind, as it confronts President Trump’s tariffs.`\
-https://nytimes.com/2025/05/09/climate/the-shipping-industry-carbon-emissions.html
-
-**Tetairoa McMillan's first NFL practice: Smooth runner, willing learner. Now about the humidity ...**\
-`The Panthers' top draft pick made his debut at rookie minicamp on Friday.`\
-https://nytimes.com/athletic/6345179/2025/05/09/carolina-panthers-rookie-camp-tetairoa-mcmillan/
 

@@ -1,3 +1,15 @@
+**The 5.11.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
+
+**How Lola Young’s ‘Messy’ Blew Up**\
+`You’ve heard it at the pharmacy, the fast food place or from someone else’s car speakers. Here’s why a British pop-soul track became one of the year’s most ubiquitous songs.`\
+https://nytimes.com/video/podcasts/100000010154486/lola-young-messy-review.html
+
+**A New Kind of Battle for Two Old Enemies**\
+`Drone warfare has expanded the conflict in Kashmir between India and Pakistan, two nuclear-armed neighbors.`\
+https://nytimes.com/2025/05/09/world/asia/india-pakistan-kashmir-drones.html
+
 **Five Weeks Late, a $254 Billion New York Budget Still Has Its Charms**\
 `Lawmakers ratified a state budget that promised benefits for a host of New Yorkers, including the legislators themselves.`\
 https://nytimes.com/2025/05/09/nyregion/hochul-budget-new-york.html

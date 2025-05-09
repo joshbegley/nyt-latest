@@ -1,3 +1,7 @@
+**Here are 6 times when popes shaped history, for better or worse.**\
+`By Talya Minsberg and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-6-times-when-popes-shaped-history-for-better-or-worse
+
 **The 5.11.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/09/the-51125-issue
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/05/09/smarter-living/wirecutter/the-best-cheap-sun
 **Jack Katz, Pioneer of the Graphic Novel, Is Dead at 97**\
 `Hailed as a visionary (if a difficult one), he drew inspiration for his multivolume work “The First Kingdom” from no less a model than Homer.`\
 https://nytimes.com/2025/05/09/arts/jack-katz-dead.html
-
-**Newark’s Mayor Arrested at Protest Outside ICE Detention Center**\
-`Ras J. Baraka and city officials have been trying to close the leased lockup, saying it’s part of President Trump’s unjust deportation campaign.`\
-https://nytimes.com/2025/05/09/nyregion/newark-ice-protest-arrest-ras-baraka.html
 
