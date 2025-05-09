@@ -1,3 +1,7 @@
+**Oilers re-establishing themselves as true Cup contenders with each gutty win**\
+`While "team of destiny" might be a little melodramatic, the Oilers are certainly a team of tenacity.`\
+https://nytimes.com/athletic/6343831/2025/05/09/oilers-nhl-playoffs-contenders-golden-knights/
+
 **Late Night Celebrates the First American Pope**\
 `“We have an American pope and a Russian president,” Jimmy Kimmel said, calling it “an historic era.”`\
 https://nytimes.com/2025/05/09/arts/television/late-night-american-pope-leo.html

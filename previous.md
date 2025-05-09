@@ -1,3 +1,7 @@
+**Oilers re-establishing themselves as true Cup contenders with each gutty win**\
+`While "team of destiny" might be a little melodramatic, the Oilers are certainly a team of tenacity.`\
+https://nytimes.com/athletic/6343831/2025/05/09/oilers-nhl-playoffs-contenders-golden-knights/
+
 **Late Night Celebrates the First American Pope**\
 `“We have an American pope and a Russian president,” Jimmy Kimmel said, calling it “an historic era.”`\
 https://nytimes.com/2025/05/09/arts/television/late-night-american-pope-leo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6336703/2025/05/09/manchester-united-europa-mount-a
 **What the New Pope Tells Us About the Church**\
 `Robert Francis Prevost, now Leo XIV, is the first American pope. Jason Horowitz, Rome bureau chief of The New York Times, and Katrin Bennhold, a senior writer on the international desk, discuss what this means.`\
 https://nytimes.com/video/world/europe/100000010157615/what-the-new-pope-tells-us-about-the-church.html
-
-**Oilers outlast Golden Knights to win high-scoring Game 2 in OT**\
-`Since dropping their first two games in the first round, the Oilers have scored 29 goals across six straight wins.`\
-https://nytimes.com/athletic/6337449/2025/05/09/oilers-golden-knights-nhl-playoffs-2025-game-2-takeaways/
 
