@@ -1,3 +1,7 @@
+**Peru rejoices over the new pope and claims him as their own.**\
+`By Genevieve Glatsky`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-peru
+
 **Greenberg: Talking to 'The Pope' about the Pope, Caleb Williams, Ben Johnson and White Sox**\
 `After Chicago native Robert Prevost became the first American-born pope, we spoke to the city's first "Pope" — White Sox reliever Donn Pall.`\
 https://nytimes.com/athletic/6343288/2025/05/08/chicago-pope-leo-xiv-white-sox-cubs-donn-pall/

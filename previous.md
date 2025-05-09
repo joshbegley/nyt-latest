@@ -1,3 +1,7 @@
+**Peru rejoices over the new pope and claims him as their own.**\
+`By Genevieve Glatsky`\
+https://nytimes.com/live/2025/05/08/world/pope-conclave-news/pope-leo-xiv-peru
+
 **FCS heading toward 12-game schedule starting in 2026**\
 `The NCAA FCS oversight committee approved the recommendation for an annual 12-game campaign. The FBS has been playing 12 games since 2006.`\
 https://nytimes.com/athletic/6343426/2025/05/08/fcs-12-game-regular-season-schedule-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/dignity-memorial/ca/protecting-your-loved-ones-even
 **Texans’ Jayden Higgins makes history with deal: What he'll bring to Houston**\
 `Receiver is set to make just over $11.7 million in his four-year deal.`\
 https://nytimes.com/athletic/6343263/2025/05/08/texans-jayden-higgins-guaranteed-contract/
-
-**Can a Photograph Reveal Your Biological Age?**\
-`Scientists have developed an A.I. tool that they say can help assess a patient’s health — and potentially guide their medical care.`\
-https://nytimes.com/2025/05/08/well/biological-age-faceage.html
 
