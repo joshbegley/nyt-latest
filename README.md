@@ -1,3 +1,19 @@
+**Robert A.G. Monks, Crusader Against ‘Imperial’ C.E.O.s, Dies at 91**\
+`A descendant of American wealth, he used his success in business to push for social responsibility in corporate leadership and encouraged shareholders to push back.`\
+https://nytimes.com/2025/05/09/business/robert-ag-monks-dead.html
+
+**What the World Needs From Pope Leo**\
+`Preaching about the supernatural and the digital.`\
+https://nytimes.com/2025/05/09/opinion/pope-leo-catholics-weird.html
+
+**El Salvador Put Trump Deportees Behind Bars. Now Their Families are Suing.**\
+`A lawsuit filed with the Inter-American Commission of Human Rights seeks the release of Venezuelan migrants deported from the United States and jailed in a notorious Salvadoran prison.`\
+https://nytimes.com/2025/05/09/world/americas/el-salvador-trump-deportees-lawsuit.html
+
+**Kendrick Lamar and SZA Bring Storms and Celebrations to the Stadium Stage**\
+`The rapper and R&B star are taking victory laps for smash hits and albums. But their co-headlining tour is still threaded with angst and reflection.`\
+https://nytimes.com/2025/05/09/arts/music/kendrick-lamar-sza-grand-national-tour-review.html
+
 **Justice Department to Investigate Muslim Development in Texas, Cornyn Says**\
 `The planned development outside of Dallas, organized by members of a local mosque, has drawn intense scrutiny from Republicans.`\
 https://nytimes.com/2025/05/09/us/politics/muslim-development-texas-investigation.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/05/05/opinion/thepoint/david-souter-supreme-court
 **Maple Leafs lineup vs. Panthers: Toronto readies for a tough test in Game 3**\
 `Game 3 against a Panthers team looking to get back in the series presents one of the Leafs' biggest challenges of the season.`\
 https://nytimes.com/athletic/6343606/2025/05/09/maple-leafs-lineup-panthers-game-3-nhl-playoffs/
-
-**Lowetide: Is this the Oilers' year? It's starting to look like it might be**\
-`These Oilers look inevitable. That doesn't make it so, but the story is building.`\
-https://nytimes.com/athletic/6342397/2025/05/09/edmonton-oilers-nhl-playoffs-2025-stats/
-
-**Mads Pedersen wins first stage of Giro d'Italia as Mikel Landa crashes out**\
-`Stages One, Two and Three of the Giro are taking place in Albania, with the race moving to Italy on Tuesday.`\
-https://nytimes.com/athletic/6344756/2025/05/09/giro-ditalia-pedersen-landa/
-
-**Pope Leo is a friar in the Order of St. Augustine. Why does that matter?**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-is-a-friar-in-the-order-of-st-augustine-why-does-that-matter
-
-**NASCAR antitrust case: Appeals judges show skepticism over injunction**\
-`A ruling is expected later this month as NASCAR appeals the preliminary injunction that allowed 23XI and Front Row to continue racing. `\
-https://nytimes.com/athletic/6344576/2025/05/09/nascar-antitrust-case-lawsuit-appeal-michael-jordan/
 

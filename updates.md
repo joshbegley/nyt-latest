@@ -1,3 +1,11 @@
+**Justice Department to Investigate Muslim Development in Texas, Cornyn Says**\
+`The planned development outside of Dallas, organized by members of a local mosque, has drawn intense scrutiny from Republicans.`\
+https://nytimes.com/2025/05/09/us/politics/muslim-development-texas-investigation.html
+
+**Women's World Cup expanding to 48-team tournament**\
+`The Women's World Cup only expanded to 32 teams in 2023. This move brings it in line with the men's equivalent.`\
+https://nytimes.com/athletic/6344750/2025/05/09/fifa-womens-world-cup-48-teams/
+
 **Women's World Cup expanding to 48-team tournament**\
 `The Women's World Cup only expanded to 32 teams in 2023 and brings it in line with the men's equivalent.`\
 https://nytimes.com/athletic/6344750/2025/05/09/fifa-womens-world-cup-48-teams/
