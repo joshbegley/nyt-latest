@@ -1,3 +1,11 @@
+**Judge Orders Release of Tufts Student Detained by ICE**\
+`The student, Rumeysa Ozturk, had published an essay about the war in Gaza. Immigration agents arrested her and sent her to a Louisiana detention center to await deportation proceedings.`\
+https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.html
+
+**Fiona Apple’s Statement About Jailed Mothers, and 8 More New Songs**\
+`Hear tracks by Kali Uchis, Moses Sumney and Hayley Williams, I’m With Her and others.`\
+https://nytimes.com/2025/05/09/arts/music/playlist-fiona-apple-kali-uchis.html
+
 **Teenager Fatally Shot During ‘Ding Dong Ditch’ TikTok Prank**\
 `A Virginia man was charged with second degree murder after the shooting. The teenager’s friends told authorities they had been filming a video of the prank for TikTok.`\
 https://nytimes.com/2025/05/09/us/virginia-teen-shot-ding-dong-ditch-tiktok-prank.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/09/us/politics/muslim-development-texas-investigatio
 **Women's World Cup expanding to 48-team tournament**\
 `The Women's World Cup only expanded to 32 teams in 2023. This move brings it in line with the men's equivalent.`\
 https://nytimes.com/athletic/6344750/2025/05/09/fifa-womens-world-cup-48-teams/
-
-**In rare comments, Ducks owner Henry Samueli discusses Joel Quenneville, spending, a playoff push**\
-`Samueli said fans "and the ownership expect" the Ducks to make the playoffs next season.`\
-https://nytimes.com/athletic/6343733/2025/05/09/ducks-owner-samueli-quenneville/
-
-**Gulf States Step In as India-Pakistan Conflict Escalates**\
-`With the United States on the sidelines, Saudi Arabia and the United Arab Emirates are trying to play a role as mediators.`\
-https://nytimes.com/2025/05/09/world/asia/india-pakistan-gulf-states.html
 

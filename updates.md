@@ -1,3 +1,11 @@
+**Judge Orders Release of Tufts Student Detained by ICE**\
+`The student, Rumeysa Ozturk, had published an essay about the war in Gaza. Immigration agents arrested her and sent her to a Louisiana detention center to await deportation proceedings.`\
+https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.html
+
+**Fiona Apple’s Statement About Jailed Mothers, and 8 More New Songs**\
+`Hear tracks by Kali Uchis, Moses Sumney and Hayley Williams, I’m With Her and others.`\
+https://nytimes.com/2025/05/09/arts/music/playlist-fiona-apple-kali-uchis.html
+
 **Teenager Fatally Shot During ‘Ding Dong Ditch’ TikTok Prank**\
 `A Virginia man was charged with second degree murder after the shooting. The teenager’s friends told authorities they had been filming a video of the prank for TikTok.`\
 https://nytimes.com/2025/05/09/us/virginia-teen-shot-ding-dong-ditch-tiktok-prank.html
