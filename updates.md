@@ -1,3 +1,11 @@
+**FPL: A guide to making transfers at the end of the season**\
+`With only three gameweeks of the season left in FPL, managers have to be careful with transfers, making sure they are maximising each one`\
+https://nytimes.com/athletic/6340658/2025/05/09/fantasy-premier-league-transfers-gameweek-36-season/
+
+**Wrexham squad audit: Who should stay and who should go ahead of Championship season?**\
+`The Welsh club will return to the second-tier for the first time in 43 years, so The Athletic runs the rule over Phil Parkinson’s squad`\
+https://nytimes.com/athletic/6332325/2025/05/09/wrexham-squad-audit-championship-promotion/
+
 **Tyler Bindon on Premier League ‘dream’, starting at LAFC, Vietnam War veteran grandfather**\
 `Bindon grew up in the States, plays for New Zealand and could feature in next season's Champions League. He's taken it all in his stride...`\
 https://nytimes.com/athletic/6289589/2025/05/09/tyler-bindon-forest-reading-lafc-champions-league/
