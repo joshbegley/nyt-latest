@@ -1,3 +1,11 @@
+**NASCAR has a new championship rotation: Which tracks should be in the mix?**\
+`Where will NASCAR go with its new rotating championship system? Here's a look at eight tracks that meet the basic criteria.`\
+https://nytimes.com/athletic/6341821/2025/05/09/nascar-championship-rotation-tracks/
+
+**Leo XIV helped his credentials by serving in a key Vatican post, experts say.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/leo-xiv-helped-his-credentials-by-serving-in-a-key-vatican-post-experts-say
+
 **3 Ways to Cultivate Joy**\
 `It’s essential to building a healthy, meaningful life.`\
 https://nytimes.com/2025/05/09/well/well-festival-joy.html
