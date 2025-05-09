@@ -1,3 +1,15 @@
+**Tyler Bindon on Premier League ‘dream’, starting at LAFC, Vietnam War veteran grandfather**\
+`Bindon grew up in the States, plays for New Zealand and could feature in next season's Champions League. He's taken it all in his stride...`\
+https://nytimes.com/athletic/6289589/2025/05/09/tyler-bindon-forest-reading-lafc-champions-league/
+
+**Julio Enciso's loan has done exactly what it needed to. Will Brighton benefit?**\
+`Another telling impact from Enciso to add to his two goals and three assists in 11 outings for Ipswich would go down well at the Amex`\
+https://nytimes.com/athletic/6336781/2025/05/09/julio-enciso-brighton-ipswich-loan/
+
+**Sam Byram interview: 'Hopefully I'll be part of Leeds' future - if not, I'll always be a supporter'**\
+`The Thorp Arch graduate discusses Daniel Farke saving his career, his dream return to Elland Road and his love for the club`\
+https://nytimes.com/athletic/6342503/2025/05/09/sam-byram-interview-leeds/
+
 **'I can still hear the crackling of the timber burning' – The Bradford City fire, 40 years on**\
 `On May 11, 1985, 56 Bradford City fans were killed when fire broke out in the club's main stand – those who escaped will never forget`\
 https://nytimes.com/athletic/6096520/2025/05/09/the-bradford-city-fire-40-years-on-i-can-still-hear-the-crackling-of-the-timber-burning/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6341989/2025/05/09/alexis-mac-allister-liverpool-se
 **Arsenal missed chances against PSG - but the issues go beyond needing an elite striker**\
 `Yes, signing a world-class No 9 would elevate Arsenal, but football is not as binary as that. Other positions need looking at too...`\
 https://nytimes.com/athletic/6340473/2025/05/09/arsenal-psg-striker-arteta/
-
-**A century of fouls won again - how Guimaraes became the master of earning free kicks**\
-`The Brazilian is a long way in front when it comes to drawing fouls in the Premier League - this is why`\
-https://nytimes.com/athletic/6339188/2025/05/09/bruno-guimaraes-most-fouled-premier-league/
-
-**A Divisive Show of Military Might in Moscow: What to Know**\
-`A huge parade in the Russian capital to celebrate the Soviet victory over Nazi Germany in World War II, attended by leaders of more than 20 countries, comes amid faltering attempts to end the war in Ukraine.`\
-https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-moscow.html
-
-**The First Play Knocked Her Unconscious. The Second Is Even Tougher.**\
-`Carolina Bianchi created a storm by drugging herself onstage at the beginning of a trilogy about sexual assault. Her latest play, “The Brotherhood,” asks what happens next.`\
-https://nytimes.com/2025/05/09/theater/carolina-bianchi-the-brotherhood-sexual-violence.html
 

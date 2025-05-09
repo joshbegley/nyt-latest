@@ -1,3 +1,7 @@
+**Wrexham squad audit: Who should stay and who should go ahead of Championship season?**\
+`The Welsh club will return to the second-tier for the first time in 43 years, so The Athletic runs the rule over Phil Parkinson’s squad`\
+https://nytimes.com/athletic/6332325/2025/05/09/wrexham-squad-audit-championship-promotion/
+
 **Tyler Bindon on Premier League ‘dream’, starting at LAFC, Vietnam War veteran grandfather**\
 `Bindon grew up in the States, plays for New Zealand and could feature in next season's Champions League. He's taken it all in his stride...`\
 https://nytimes.com/athletic/6289589/2025/05/09/tyler-bindon-forest-reading-lafc-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6341991/2025/05/09/premier-league-race-for-top-five
 **The secret skill that sets Alexis Mac Allister apart from his midfield rivals**\
 `The Argentinian is the complete midfielder but one particular trait makes him stand out from his Premier League peers`\
 https://nytimes.com/athletic/6341989/2025/05/09/alexis-mac-allister-liverpool-secret-skill/
-
-**Arsenal missed chances against PSG - but the issues go beyond needing an elite striker**\
-`Yes, signing a world-class No 9 would elevate Arsenal, but football is not as binary as that. Other positions need looking at too...`\
-https://nytimes.com/athletic/6340473/2025/05/09/arsenal-psg-striker-arteta/
 
