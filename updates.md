@@ -1,3 +1,7 @@
+**Pope Leo’s Creole Roots Evoke Sense of Connection From Some Catholics of Color**\
+`That the new pontiff’s ancestry can be partially traced to a historic enclave of Afro-Caribbean culture in New Orleans has brought joy to some Catholics.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-xiv-creole-ancestry.html
+
 **Pope Leo XIV: Villanova fan, Wordle player, world icon: 'He's our brother!'**\
 `True to his Chicago roots, he cheers for the White Sox and keeps an eye on the former Villanova stars playing for the Knicks.`\
 https://nytimes.com/athletic/6345156/2025/05/09/pope-leo-xiv-villanova-chicago/
