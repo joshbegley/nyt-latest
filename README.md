@@ -1,6 +1,14 @@
-**West Ham's Wan-Bissaka receives first DR Congo call-up**\
-`Wan-Bissaka, who is English-born and of Congolese descent, played for England up to under 21 level and DR Congo's Under-20 side.`\
-https://nytimes.com/athletic/6344333/2025/05/09/aaron-wan-bissaka-international-dr-congo/
+**The Bounce: With Steph Curry sidelined, Warriors are in deep trouble as Wolves find footing**\
+`The Timberwolves have a tendency to play down to their competition, but Steph Curry's injury may shorten Minnesota's margin for error`\
+https://nytimes.com/athletic/6344413/2025/05/09/steph-curry-anthony-edwards-warriors-wolves-nba-playoffs-the-bounce/
+
+**U.S. automakers say Trump’s trade deal with Britain gives foreign companies a leg up.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2025/05/09/us/trump-news/us-automakers-say-trumps-trade-deal-with-britain-gives-foreign-companies-a-leg-up
+
+**When the pope was chosen, two tailors in Rome were ready.**\
+`By Patricia Mazzei and Jason Horowitz`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/when-the-pope-was-chosen-two-tailors-in-rome-were-ready
 
 **Russian State TV Shows Leaders at Moscow Military Parade**\
 `Joined by North Korean officers and the leaders of China and Brazil, President Vladimir V. Putin of Russia marked the 80th anniversary of the Soviet Union’s victory over Nazi Germany with a Red Square military parade.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010142011/musks-team-claims-more-fal
 **DOGE’s Zombie Contracts: They Were Killed but Have Come Back to Life**\
 `The Times found that federal agencies have revived dozens of contracts that Elon Musk’s group still publicly listed as canceled, inflating what it has saved.`\
 https://nytimes.com/2025/05/09/us/politics/doge-musk-contracts-agencies.html
-
-**Who gets credit for building the 2025 Giants? Is it Buster's team or Farhan's?**\
-`The combined WAR of Posey's offseason acquisitions is -0.3. Does that mean he's not responsible for the Giants' hot start? Not so fast.`\
-https://nytimes.com/athletic/6343684/2025/05/09/sf-giants-buster-posey-farhan-zaidi/
-
-**NHL Power Rankings: Everything is changing — including at the top**\
-` What's different this time? We answer that question for each of the 8 remaining teams as the Maple Leafs jump to the top of the rankings.`\
-https://nytimes.com/athletic/6344213/2025/05/09/nhl-playoffs-power-rankings-maple-leafs/
 
