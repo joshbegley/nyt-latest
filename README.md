@@ -1,3 +1,7 @@
+**Pope Leo XIV at First Mass: ‘You Have Called Me to Carry That Cross’**\
+`The American pontiff celebrated his first Mass as the leader of 1.4 billion Roman Catholics to an audience of cardinals at the Sistine Chapel.`\
+https://nytimes.com/video/world/europe/100000010159335/pope-leo-xiv-first-mass-.html
+
 **Xabi Alonso confirms Leverkusen exit at end of 2024-25 season**\
 `Alonso confirmed his decision ahead of Sunday's match at home to Borussia Dortmund.`\
 https://nytimes.com/athletic/6301282/2025/05/09/xabi-alonso-leverkusen-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/world/asia/india-pakistan-terror-groups-lashkar-e
 **Ordinary Indians are feeling jittery about the escalating conflict.**\
 `No one has a clear idea about how far the new fight with Pakistan might lead — into their country, or even into their own homes.`\
 https://nytimes.com/2025/05/09/world/asia/ordinary-indians-are-feeling-jittery-about-the-escalating-conflict.html
-
-**Here are 7 divisive issues confronting the new pope.**\
-`By Motoko Rich`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-7-divisive-issues-confronting-the-new-pope
 
