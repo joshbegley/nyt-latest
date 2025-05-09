@@ -1,3 +1,7 @@
+**Teenager Fatally Shot During ‘Ding Dong Ditch’ TikTok Prank**\
+`A Virginia man was charged with second degree murder after the shooting. The teenager’s friends told authorities they had been filming a video of the prank for TikTok.`\
+https://nytimes.com/2025/05/09/us/virginia-teen-shot-ding-dong-ditch-tiktok-prank.html
+
 **The church might resist a rush to make Pope Francis a saint.**\
 `St. John Paul II cut the waiting period to five years, but his own canonization nine years after his death has become a cautionary tale.`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/the-church-might-resist-a-rush-to-make-pope-francis-a-saint
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6343733/2025/05/09/ducks-owner-samueli-quenneville/
 **Gulf States Step In as India-Pakistan Conflict Escalates**\
 `With the United States on the sidelines, Saudi Arabia and the United Arab Emirates are trying to play a role as mediators.`\
 https://nytimes.com/2025/05/09/world/asia/india-pakistan-gulf-states.html
-
-**There Was Much More to David Souter**\
-`There was much more to David Souter — and the kind of moderate he was — than is often presented in accounts of his time on the court.`\
-https://nytimes.com/live/2025/05/05/opinion/thepoint/david-souter-supreme-court
 
