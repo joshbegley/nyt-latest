@@ -1,3 +1,15 @@
+**2 Men Found Guilty of Felling Britain’s Sycamore Gap Tree**\
+`Prosecutors said the men had committed the “act of deliberate and mindless criminal damage” together and filmed it on a cellphone.`\
+https://nytimes.com/2025/05/09/world/europe/sycamore-gap-tree-verdict.html
+
+**Slot 'disappointed' by Alexander-Arnold exit, confirms Bradley to start vs Arsenal**\
+`Alexander-Arnold announced earlier this week that he will leave on a free transfer when his contract expires this summer.`\
+https://nytimes.com/athletic/6343930/2025/05/09/liverpool-slot-alexander-arnold-bradley/
+
+**Girona head coach Michel hospitalised with 'health issue'**\
+`The 49-year-old, who coached the club in the Champions League this campaign, won't be involved in Saturday's match at home to Villarreal.`\
+https://nytimes.com/athletic/6343950/2025/05/09/girona-michel-health-hospital/
+
 **After the new Pope comes Sinner: Italy's sporting avatar returns to the tennis court**\
 `Sinner is Italy's chosen one. At the Foro Italico in Rome, his comeback from an anti-doping ban overtakes all else in tennis.`\
 https://nytimes.com/athletic/6342748/2025/05/09/jannik-sinner-tennis-comeback-italian-open/

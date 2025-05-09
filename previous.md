@@ -1,3 +1,15 @@
+**2 Men Found Guilty of Felling Britain’s Sycamore Gap Tree**\
+`Prosecutors said the men had committed the “act of deliberate and mindless criminal damage” together and filmed it on a cellphone.`\
+https://nytimes.com/2025/05/09/world/europe/sycamore-gap-tree-verdict.html
+
+**Slot 'disappointed' by Alexander-Arnold exit, confirms Bradley to start vs Arsenal**\
+`Alexander-Arnold announced earlier this week that he will leave on a free transfer when his contract expires this summer.`\
+https://nytimes.com/athletic/6343930/2025/05/09/liverpool-slot-alexander-arnold-bradley/
+
+**Girona head coach Michel hospitalised with 'health issue'**\
+`The 49-year-old, who coached the club in the Champions League this campaign, won't be involved in Saturday's match at home to Villarreal.`\
+https://nytimes.com/athletic/6343950/2025/05/09/girona-michel-health-hospital/
+
 **India vs. Pakistan is also U.S. vs. China when it comes to arms sales.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/05/09/world/india-pakistan-kashmir/india-vs-pakistan-is-also-us-vs-china-when-it-comes-to-arms-sales
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/opinion/hakeem-jeffries-medicaid-budget.html
 **The New York Times News Quiz, May 9, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/05/09/briefing/news-quiz-pope-met-gala-india-pakistan.html
-
-**An American Pope Will Face a Fractured American Church**\
-`Pope Leo’s relationship with the ascendant Catholic right in the U.S. could be a prominent issue in his papacy.`\
-https://nytimes.com/2025/05/09/us/pope-leo-xiv-american-church.html
-
-**The Biggest Medicaid Cut Left for House Republicans Would Hit Red States Hardest**\
-`Now, Trump’s big budget bill might require particularly painful cuts in the South.`\
-https://nytimes.com/2025/05/09/upshot/republicans-medicaid-states-plans.html
-
-**The Return of Lorde, and 4 More New Songs**\
-`Our critic on the latest releases from Summer Walker, Nilüfer Yanya and more.`\
-https://nytimes.com/2025/05/09/podcasts/the-return-of-lorde-and-4-more-new-songs.html
 
