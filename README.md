@@ -1,3 +1,7 @@
+**Bob Baffert horse Rodriguez scratched from Preakness Stakes**\
+`Rodriguez was also scratched from the Kentucky Derby due to foot issue.`\
+https://nytimes.com/athletic/6345135/2025/05/09/bob-baffert-rodriguez-scratched-preakness-stakes/
+
 **Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
 `The Warriors have little choice but to ride with Kuminga, and live with whatever happens. And he has little choice but to seize this moment.`\
 https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6345173/2025/05/09/minnesota-wild-mailbag-may-2025/
 `The magazine’s Ethicist columnist on whether to disclose information about a neighbor on the sex-offender registry.`\
 https://nytimes.com/2025/05/09/magazine/ethicist-sex-offenders.html
 
-**Why David Carle decided now isn't the time to leave DU for the NHL — 'if ever'**\
+**Why David Carle decided it isn't the time to leave Denver Pioneers for NHL**\
 `Carle says University of Denver is preferable to open NHL jobs and if he ever does leave "it'll be on our terms."`\
 https://nytimes.com/athletic/6344865/2025/05/09/david-carle-nhl-coaching-vacancies-denver/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/us/politics/cpsc-fired-trump.html
 **Justices Reflect on Souter’s Legacy**\
 `Current and former justices of the Supreme Court released a statement in response to the death of Justice David Souter.`\
 https://nytimes.com/interactive/2025/05/09/us/2025-050925-press-release-statements-from-the-supreme-court-regarding-the-death-of-retired-associate-justice-david-souter-1.html
-
-**On Red Square, Putin Enlists Russian Pride for His War in Ukraine**\
-`The military parade marking the Soviet victory over Nazi Germany was intended to impress allies and tap into Russia’s deep sense of national pride.`\
-https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-red-square.html
 

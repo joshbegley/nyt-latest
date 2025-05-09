@@ -1,3 +1,7 @@
+**Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
+`The Warriors have little choice but to ride with Kuminga, and live with whatever happens. And he has little choice but to seize this moment.`\
+https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
+
 **Draft Executive Orders Aim to Speed Construction of Nuclear Plants**\
 `The potential actions could include overhauling the Nuclear Regulatory Commission and leaning on the U.S. military to deploy new reactors.`\
 https://nytimes.com/2025/05/09/climate/trump-draft-nuclear-executive-orders.html

@@ -1,3 +1,7 @@
+**Thompson: Jonathan Kuminga, with Warriors in need of points, gets a chance he must seize**\
+`The Warriors have little choice but to ride with Kuminga, and live with whatever happens. And he has little choice but to seize this moment.`\
+https://nytimes.com/athletic/6344963/2025/05/09/jonathan-kumingas-warriors-playoffs-timberwolves-free-agency/
+
 **Draft Executive Orders Aim to Speed Construction of Nuclear Plants**\
 `The potential actions could include overhauling the Nuclear Regulatory Commission and leaning on the U.S. military to deploy new reactors.`\
 https://nytimes.com/2025/05/09/climate/trump-draft-nuclear-executive-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/09/us/2025-050925-press-release-statemen
 **On Red Square, Putin Enlists Russian Pride for His War in Ukraine**\
 `The military parade marking the Soviet victory over Nazi Germany was intended to impress allies and tap into Russia’s deep sense of national pride.`\
 https://nytimes.com/2025/05/09/world/europe/russia-victory-day-parade-red-square.html
-
-**City head coach Cushing on WSL finale: As it stands, this is my last game**\
-`City are guaranteed to finish fourth in the WSL and will miss out on Champions League football next season.`\
-https://nytimes.com/athletic/6345058/2025/05/09/man-city-cushing-wsl-future/
 
