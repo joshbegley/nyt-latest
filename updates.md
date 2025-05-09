@@ -1,3 +1,23 @@
+**The church might resist a rush to make Pope Francis a saint.**\
+`St. John Paul II cut the waiting period to five years, but his own canonization nine years after his death has become a cautionary tale.`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/the-church-might-resist-a-rush-to-make-pope-francis-a-saint
+
+**Robert A.G. Monks, Crusader Against ‘Imperial’ C.E.O.s, Dies at 91**\
+`A descendant of American wealth, he used his success in business to push for social responsibility in corporate leadership and encouraged shareholders to push back.`\
+https://nytimes.com/2025/05/09/business/robert-ag-monks-dead.html
+
+**What the World Needs From Pope Leo**\
+`Preaching about the supernatural and the digital.`\
+https://nytimes.com/2025/05/09/opinion/pope-leo-catholics-weird.html
+
+**El Salvador Put Trump Deportees Behind Bars. Now Their Families are Suing.**\
+`A lawsuit filed with the Inter-American Commission of Human Rights seeks the release of Venezuelan migrants deported from the United States and jailed in a notorious Salvadoran prison.`\
+https://nytimes.com/2025/05/09/world/americas/el-salvador-trump-deportees-lawsuit.html
+
+**Kendrick Lamar and SZA Bring Storms and Celebrations to the Stadium Stage**\
+`The rapper and R&B star are taking victory laps for smash hits and albums. But their co-headlining tour is still threaded with angst and reflection.`\
+https://nytimes.com/2025/05/09/arts/music/kendrick-lamar-sza-grand-national-tour-review.html
+
 **Justice Department to Investigate Muslim Development in Texas, Cornyn Says**\
 `The planned development outside of Dallas, organized by members of a local mosque, has drawn intense scrutiny from Republicans.`\
 https://nytimes.com/2025/05/09/us/politics/muslim-development-texas-investigation.html
