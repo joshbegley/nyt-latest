@@ -1,3 +1,15 @@
+**A Jewish Celebration at the E.P.A. Also Has Some Jewish Critics**\
+`Environmentalists said a ritual at the office of Lee Zeldin, the agency head, highlighted a disconnect between religious principles and looser health and climate protections.`\
+https://nytimes.com/2025/05/09/climate/lee-zeldin-epa-mezuza.html
+
+**On climate change, the new pope is likely to follow Francis.**\
+`By Max Bearak`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/on-climate-change-the-new-pope-is-likely-to-follow-francis
+
+**FIFA sanctions creation of Afghanistan women’s refugee team**\
+`It would see the creation of an officially-recognised team of evacuated female players of Afghan nationality who obtained refugee-status.`\
+https://nytimes.com/athletic/6344967/2025/05/09/afghanistan-women-football-team-fifa/
+
 **Judge Orders Release of Tufts Student Detained by ICE**\
 `The student, Rumeysa Ozturk, had published an essay about the war in Gaza. Immigration agents arrested her and sent her to a Louisiana detention center to await deportation proceedings.`\
 https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.html

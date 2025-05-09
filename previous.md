@@ -1,3 +1,15 @@
+**A Jewish Celebration at the E.P.A. Also Has Some Jewish Critics**\
+`Environmentalists said a ritual at the office of Lee Zeldin, the agency head, highlighted a disconnect between religious principles and looser health and climate protections.`\
+https://nytimes.com/2025/05/09/climate/lee-zeldin-epa-mezuza.html
+
+**On climate change, the new pope is likely to follow Francis.**\
+`By Max Bearak`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/on-climate-change-the-new-pope-is-likely-to-follow-francis
+
+**FIFA sanctions creation of Afghanistan women’s refugee team**\
+`It would see the creation of an officially-recognised team of evacuated female players of Afghan nationality who obtained refugee-status.`\
+https://nytimes.com/athletic/6344967/2025/05/09/afghanistan-women-football-team-fifa/
+
 **Judge Orders Release of Tufts Student Detained by ICE**\
 `The student, Rumeysa Ozturk, had published an essay about the war in Gaza. Immigration agents arrested her and sent her to a Louisiana detention center to await deportation proceedings.`\
 https://nytimes.com/2025/05/09/us/judge-orders-government-release-tufts-student.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/09/opinion/pope-leo-catholics-weird.html
 **El Salvador Put Trump Deportees Behind Bars. Now Their Families are Suing.**\
 `A lawsuit filed with the Inter-American Commission of Human Rights seeks the release of Venezuelan migrants deported from the United States and jailed in a notorious Salvadoran prison.`\
 https://nytimes.com/2025/05/09/world/americas/el-salvador-trump-deportees-lawsuit.html
-
-**Kendrick Lamar and SZA Bring Storms and Celebrations to the Stadium Stage**\
-`The rapper and R&B star are taking victory laps for smash hits and albums. But their co-headlining tour is still threaded with angst and reflection.`\
-https://nytimes.com/2025/05/09/arts/music/kendrick-lamar-sza-grand-national-tour-review.html
-
-**Justice Department to Investigate Muslim Development in Texas, Cornyn Says**\
-`The planned development outside of Dallas, organized by members of a local mosque, has drawn intense scrutiny from Republicans.`\
-https://nytimes.com/2025/05/09/us/politics/muslim-development-texas-investigation.html
-
-**Women's World Cup expanding to 48-team tournament**\
-`The Women's World Cup only expanded to 32 teams in 2023. This move brings it in line with the men's equivalent.`\
-https://nytimes.com/athletic/6344750/2025/05/09/fifa-womens-world-cup-48-teams/
 
