@@ -1,3 +1,12 @@
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
+**Trade War Shock Is Scrambling China’s Exports**\
+`Shipments of goods to the United States plunged by 21 percent in April, but spiked to Asia as President Trump imposed sky-high tariffs on China.`\
+https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
+
 **Pope Leo XIV overcame an old taboo: Being American.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-xiv-overcame-an-old-taboo-being-american

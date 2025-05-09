@@ -36,6 +36,6 @@ https://nytimes.com/2025/05/09/nyregion/can-elite-lawyers-be-persuaded-to-wake-u
 https://nytimes.com/2025/05/09/crosswords/spelling-bee-forum.html
 
 **Trade War Shock Is Scrambling China’s Exports**\
-`Shipments of goods out of China slumped in April, including a big decline in exports to the United States, as President Trump imposed sky-high tariffs.`\
+`Shipments of goods to the United States plunged by 21 percent in April, but spiked to Asia as President Trump imposed sky-high tariffs on China.`\
 https://nytimes.com/2025/05/09/business/china-april-trade-exports.html
 
