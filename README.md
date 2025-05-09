@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, May 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/09/todays-new-york-times
+
+**The Wars We Still Can Stop**\
+`America’s commitment to helping stabilize the Horn of Africa might have been taken for granted a few months ago. Not anymore.`\
+https://nytimes.com/2025/05/09/opinion/international-world/wars-horn-of-africa.html
+
+**What Trump Should Keep in Mind on His Big Middle East Trip**\
+`Prime Minister Benjamin Netanyahu is behaving in ways that threaten U.S. interests in the region.`\
+https://nytimes.com/2025/05/09/opinion/trump-iran-israel.html
+
 **Friday Briefing**\
 `The election of the first American pope.`\
 https://nytimes.com/2025/05/09/briefing/pope-trade-tate-modern.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6336781/2025/05/09/julio-enciso-brighton-ipswich-lo
 **Sam Byram interview: 'Hopefully I'll be part of Leeds' future - if not, I'll always be a supporter'**\
 `The Thorp Arch graduate discusses Daniel Farke saving his career, his dream return to Elland Road and his love for the club`\
 https://nytimes.com/athletic/6342503/2025/05/09/sam-byram-interview-leeds/
-
-**'I can still hear the crackling of the timber burning' – The Bradford City fire, 40 years on**\
-`On May 11, 1985, 56 Bradford City fans were killed when fire broke out in the club's main stand – those who escaped will never forget`\
-https://nytimes.com/athletic/6096520/2025/05/09/the-bradford-city-fire-40-years-on-i-can-still-hear-the-crackling-of-the-timber-burning/
-
-**Sunderland, Coventry, Bristol City: Half a century on a peculiar grudge lingers**\
-`Three of the Championship play-off teams have a history, which explains why Jimmy Hill's name may echo around Coventry's away end tonight`\
-https://nytimes.com/athletic/6341911/2025/05/09/sunderland-coventry-bristol-hill-merrington/
-
-**How the Premier League fell in love with long throws again**\
-`Other elements of football may be more aesthetically pleasing, but few actions have the visceral thrill of hurling the ball into the box`\
-https://nytimes.com/athletic/6337315/2025/05/09/premier-league-long-throws-tactics/
 
