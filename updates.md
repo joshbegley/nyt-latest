@@ -1,3 +1,12 @@
+**Live Updates: Leo XIV Celebrates First Mass as Pope**\
+`The pope will say Mass with cardinals in the Sistine Chapel the day after being elected the first American pope. He will soon confront difficult decisions about the direction of the Roman Catholic Church.`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news
+
+**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
+`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
+`\
+https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+
 **Premier League top five odds update: Man City rising fast, Gunners at risk…**\
 `Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
 `\

@@ -1,41 +1,40 @@
-**Amid Blockade, Trump and Israel Mull Divisive Aid Plan For Gaza**\
-`Two months after Israel blocked all aid to Gaza, U.S. and Israeli officials are considering a new food distribution plan. The U.N. says it is unworkable.`\
-https://nytimes.com/2025/05/09/world/middleeast/gaza-aid-us-israel.html
+**Can Hakeem Jeffries Break Through?**\
+`The House minority leader would much rather talk about Medicaid and taxes than looming autocracy.`\
+https://nytimes.com/2025/05/09/opinion/hakeem-jeffries-medicaid-budget.html
 
-**Mitoma in contention for Brighton return after injury**\
-`The Japan international left-winger has not started any of the last four matches due to heel and back issues.`\
-https://nytimes.com/athletic/6343888/2025/05/09/brighton-team-news-kaoru-mitoma/
+**The New York Times News Quiz, May 9, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/05/09/briefing/news-quiz-pope-met-gala-india-pakistan.html
 
-**Pope Leo XIV overcame an old taboo: Being American.**\
-`By Jason Horowitz`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/pope-leo-xiv-overcame-an-old-taboo-being-american
+**An American Pope Will Face a Fractured American Church**\
+`Pope Leo’s relationship with the ascendant Catholic right in the U.S. could be a prominent issue in his papacy.`\
+https://nytimes.com/2025/05/09/us/pope-leo-xiv-american-church.html
 
-**Down 2-0 heading onto the road, Golden Knights need Adin Hill to turn the tide**\
-`Vegas should be – and need to be – winning the goaltending matchup against the Oilers if they’re to have any chance.`\
-https://nytimes.com/athletic/6343859/2025/05/09/golden-knights-oilers-playoffs-adin-hill/
+**The Biggest Medicaid Cut Left for House Republicans Would Hit Red States Hardest**\
+`Now, Trump’s big budget bill might require particularly painful cuts in the South.`\
+https://nytimes.com/2025/05/09/upshot/republicans-medicaid-states-plans.html
 
-**Here’s the latest.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/heres-the-latest
+**The Return of Lorde, and 4 More New Songs**\
+`Our critic on the latest releases from Summer Walker, Nilüfer Yanya and more.`\
+https://nytimes.com/2025/05/09/podcasts/the-return-of-lorde-and-4-more-new-songs.html
 
-**Live Updates: Leo XIV Celebrates First Mass as Pope**\
-`The pope will say Mass with cardinals in the Sistine Chapel the day after being elected the first American pope. He will soon confront difficult decisions about the direction of the Roman Catholic Church.`\
-https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news
+**After the Blast**\
+`Exploring a photograph of the aftermath of a deadly airstrike at a Gaza City restaurant.`\
+https://nytimes.com/2025/05/09/world/middleeast/after-the-blast.html
 
-**Putin Aims to Project Power at Military Parade Marking Victory Over Nazi Germany**\
-`The Russian president is seeking to use the event to depict himself as a global leader despite Western efforts to isolate him and a failure to win the war in Ukraine.`\
-https://nytimes.com/2025/05/09/world/europe/russia-putin-victory-day-parade.html
+**U.S. v. Google: What Both Sides Argued in a Hearing to Fix Its Search Monopoly**\
+`The Justice Department and Google are wrapping up a three-week hearing that could have a major impact on the search giant and how people gather information online.`\
+https://nytimes.com/2025/05/09/technology/google-chrome-monopoly-remedies.html
 
-**Premier League top five odds update: Man City rising fast, Gunners at risk…**\
-`Julia Ranney analyses the ever-changing odds around the Premier League’s top five race
-`\
-https://nytimes.com/athletic/6343052/2025/05/09/premier-league-top-five-odds-betting-update/
+**How Have Your Siblings Shaped Who You Are?**\
+`While parents try everything to influence their children, new research suggests that brothers and sisters have their own profound impact. Does this ring true for your own experiences?`\
+https://nytimes.com/2025/05/09/learning/how-have-your-siblings-shaped-who-you-are.html
 
-**Mascot**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/05/09/learning/mascot.html
+**Your iPhone Apps Are Changing. Here’s How and Why.**\
+`A federal judge’s recent ruling has made it possible for apps to sell software and subscriptions outside the App Store without having to pay a commission.`\
+https://nytimes.com/2025/05/09/technology/iphone-app-store-changes.html
 
-**Can Elite Lawyers Be Persuaded to ‘Wake Up and Stand Up’?**\
-`When the law firm Paul Weiss cut a deal with the Trump administration, a new kind of activist emerged.`\
-https://nytimes.com/2025/05/09/nyregion/can-elite-lawyers-be-persuaded-to-wake-up-and-stand-up.html
+**A Panorama of New Designs**\
+`A look at new design-world events, products and developments.`\
+https://nytimes.com/2025/05/09/arts/design/new-designs.html
 
