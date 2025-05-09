@@ -1,3 +1,7 @@
+**Here are 7 divisive issues confronting the new pope.**\
+`By Motoko Rich`\
+https://nytimes.com/live/2025/05/09/world/pope-leo-xiv-news/here-are-7-divisive-issues-confronting-the-new-pope
+
 **Salah, Russo win FWA player of the year awards**\
 `The Egypt captain secured 90 per cent of the vote from over 900 FWA members, the biggest margin this century.`\
 https://nytimes.com/athletic/6344079/2025/05/09/salah-russo-player-awards-fwa/
