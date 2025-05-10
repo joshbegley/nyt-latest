@@ -1,3 +1,11 @@
+**Trump Calls for 20,000 Extra Officers to Help With Deportation Efforts**\
+`The order, which would use state and local officers, among others, would represent an enormous expansion of immigration enforcement. But it is unclear how it would be paid for.`\
+https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html
+
+**The Bradford City fire, 40 years on: How the club, the city and football responded**\
+`At the time it was the worst stadium disaster in the history of English football. The painful impact has been far-reaching and long-lasting`\
+https://nytimes.com/athletic/6209924/2025/05/10/bradford-city-fire-40-years-football-city-response-safety/
+
 **What we're hearing about Jamie Gittens' future**\
 `Borussia Dortmund have accepted English forward Gittens is likely to leave the club this summer and a string of bigclubs are interested`\
 https://nytimes.com/athletic/6344365/2025/05/10/jamie-gittens-transfer-latest-arsenal-chelsea-barcelona/
