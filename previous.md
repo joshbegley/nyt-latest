@@ -1,3 +1,7 @@
+**Map: 4.1-Magnitude Earthquake Strikes Tennessee**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/10/us/earthquake-tracker-tennessee.html
+
 **Leo XIV Outlines a Path for a Modern Church That Follows Francis’ Steps**\
 `The new pope said he would be guided by a key document that his predecessor wrote listing the church’s priorities, including a “loving care for the least and the rejected.”`\
 https://nytimes.com/2025/05/10/world/europe/leo-xiv-pope-francis-catholic-church.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346011/2025/05/10/pacers-haliburton-cavaliers-game
 **Lewandowski, Balde not fit to start in Sunday's Clasico**\
 `Barcelona head coach Hansi Flick did say the pair would be in line for some minutes during the game.`\
 https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clasico-team-news/
-
-**Here’s the latest.**\
-`By Anupreeta Das, Mujib Mashal and Qasim Nauman`\
-https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-pakistan-truce-trump
 

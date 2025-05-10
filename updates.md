@@ -1,3 +1,7 @@
+**Map: 4.1-Magnitude Earthquake Strikes Tennessee**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/10/us/earthquake-tracker-tennessee.html
+
 **Iga Swiatek's serve deserts her in Italian Open upset against Danielle Collins**\
 `Świątek struggled throughout on serve against the American. The pressure that put on her tennis led to another strange loss on clay`\
 https://nytimes.com/athletic/6346152/2025/05/10/iga-swiatek-italian-open-danielle-collins-result-analysis/
