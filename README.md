@@ -1,3 +1,15 @@
+**3 Lawmakers Involved in Newark Protest Could Be Arrested, D.H.S. Says**\
+`The legislators were with Mayor Ras Baraka when he was arrested Friday outside an immigration detention facility. A Department of Homeland Security spokeswoman said they could face assault charges.`\
+https://nytimes.com/2025/05/10/nyregion/newark-ice-protest-lawmakers-ras-baraka.html
+
+**William L. Porter, Designer of Classic American Cars, Dies at 93**\
+`As a senior designer at G.M., he helped create the exuberant, elongated shape of 1960s and ’70s cars like the Pontiac GTO, the Bonneville and the Trans Am.`\
+https://nytimes.com/2025/05/10/arts/design/william-l-porter-dead.html
+
+**Thumbprint on Cigarette Carton Cracks a 48-Year-Old California Murder Case**\
+`A young mother told friends that she’d be “back in 10 minutes.” She never returned, and the police in San Jose have now charged a man in her death.`\
+https://nytimes.com/2025/05/10/us/jeanette-ralston-cold-case-murder-suspect.html
+
 **Power Grid**\
 `Brendan Emmett Quigley delivers a pumped-up puzzle.`\
 https://nytimes.com/2025/05/10/crosswords/daily-puzzle-2025-05-11.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6346340/2025/05/10/donovan-mitchell-game-4-cavs-pac
 **Ohio Man Sent Threats Saying He Had Bullets Etched With People’s Names, U.S. Says**\
 `The man sent letters and emails to 34 public officials and members of law enforcement, the authorities said. Some letters contained a white powder and at least one had a bullet.`\
 https://nytimes.com/2025/05/10/us/letter-email-threats-ohio.html
-
-**What’s the Cost to Society of Pollution? Trump Says Zero.**\
-`The Trump administration has directed agencies to stop estimating the economic impact of climate change when developing policies and regulations.`\
-https://nytimes.com/2025/05/10/climate/social-cost-carbon-trump.html
-
-**Tyrese Haliburton denies running from media after Pacers' Game 3 loss**\
-`“I talk to y'all almost after every game. If I'm not made available, it's not always my decision. I can't control it," he said Saturday.`\
-https://nytimes.com/athletic/6346619/2025/05/10/pacers-tyrese-haliburton-game-3-media-availability/
-
-**Salah admits there was 'tension' between him and Mane at Liverpool**\
-`Salah says the pair were always professional and their tension never affected Liverpool during their time as teammates.`\
-https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
 
