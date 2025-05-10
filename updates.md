@@ -1,3 +1,11 @@
+**Soviet Spacecraft Crash Lands on Earth After a Journey of Half a Century**\
+`Kosmos-482, a spacecraft bound for Venus in 1972, was a time capsule from the Cold War when superpowers had broad ambitions for exploring the solar system.`\
+https://nytimes.com/2025/05/10/science/kosmos-482-crash-soviet-spacecraft.html
+
+**Nuggets' other guys lift Nikola Jokić for a change in Game 3 win**\
+`For so many years, the brilliance of Jokić has masked some roster flaws. On Friday night, Jokić was truly picked up by his teammates.`\
+https://nytimes.com/athletic/6345948/2025/05/10/nuggets-other-guys-lift-nikola-jokic-for-a-change-in-game-3-ot-win-over-thunder/
+
 **Angel City's Savy King 'responsive' in hospital after collapsing on field**\
 `The 20-year-old U.S. youth international received treatment on the pitch at the BMO Stadium before being taken to hospital.`\
 https://nytimes.com/athletic/6346055/2025/05/10/savy-king-angel-city-collapse/
