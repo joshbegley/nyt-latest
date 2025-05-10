@@ -1,3 +1,8 @@
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
 **Red Sox owner John Henry meets with Rafael Devers one-on-one in Kansas City**\
 `Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
 https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6345499/2025/05/09/49ers-rookie-camp-mykel-williams
 **Francis Connected With Leo Long Ago and Boosted His Career**\
 `The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
-
-**U.S. Starts Investigation Into Imported Planes and Parts**\
-`The Trump administration could use the investigation to impose new tariffs on imported planes, jet engines and other aerospace parts.`\
-https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html
 

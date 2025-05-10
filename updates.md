@@ -1,3 +1,7 @@
+**Red Sox owner John Henry meets with Rafael Devers one-on-one in Kansas City**\
+`Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
+https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
+
 **At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
 `On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's Bar.`\
 https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
