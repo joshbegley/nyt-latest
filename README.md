@@ -1,3 +1,7 @@
+**Reds acquire outfielder Connor Joe from Padres**\
+`The Reds added some outfield depth after placing three players on the injured list over the past week.`\
+https://nytimes.com/athletic/6345670/2025/05/09/reds-padres-connor-joe-trade/
+
 **A United Front for Pope Leo Among American Cardinals**\
 `One cardinal who cast his ballot said the pope’s choice of the papal name Leo might signal a particular interest in workers’ rights.`\
 https://nytimes.com/2025/05/09/us/pope-leo-american-cardinals.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry
 **At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
 `On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's bar.`\
 https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
-
-**Newark Mayor Arrested Outside ICE Detention Center**\
-`Protesters shouted as federal officials arrested Mayor Ras J. Baraka of Newark while he and three members of Congress were demonstrating at a new immigration detention center.`\
-https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
 
