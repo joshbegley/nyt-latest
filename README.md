@@ -1,3 +1,16 @@
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
+**The New York Times in Print for Saturday, May 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/10/todays-new-york-times
+
+**Records Offer Glimpses Inside the Doomed Prosecution of Eric Adams**\
+`Federal prosecutors released sworn statements and other records detailing key moments in a corruption case that roiled New York City.`\
+https://nytimes.com/2025/05/10/nyregion/adams-corruption-investigation-records.html
+
 **Chris Paddack's dominant outing lifts bullpen, extends Twins' win streak to six**\
 `The velocity on all of Paddack's pitches was up from his season average.`\
 https://nytimes.com/athletic/6345877/2025/05/10/chris-paddack-twins-win-streak-six/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6344494/2025/05/10/chelsea-possession-more-less-ana
 **Thilo Kehrer: 'Winning the Conference League with West Ham will stay with me forever'**\
 `The defender reflects on his West Ham departure and the one interaction with a fan that has stuck with him until this day `\
 https://nytimes.com/athletic/6327004/2025/05/10/thilo-kehrer-interview-west-ham-david-moyes/
-
-**King’s Indian Attack, solid pawn structure and a booming fianchetto - Eze's chess game analysed**\
-`The Crystal Palace forward recently took time out of FA Cup final preparations to win a four-day online chess tournament, so he is any good?`\
-https://nytimes.com/athletic/6343902/2025/05/10/eberechi-eze-chess-crystal-palace/
-
-**Xabi Alonso worked wonders at Bayer Leverkusen. Would his tactics and style suit Real Madrid?**\
-`Analysing Alonso's influence and impact at Leverkusen and how that might translate if he were to replace Ancelotti at Real Madrid `\
-https://nytimes.com/athletic/6344650/2025/05/10/alonso-leverkusen-madrid-tactics-style/
-
-**Trump Calls for 20,000 Extra Officers to Help With Deportation Efforts**\
-`The order, which would use state and local officers, among others, would represent an enormous expansion of immigration enforcement. But it is unclear how it would be paid for.`\
-https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html
 
