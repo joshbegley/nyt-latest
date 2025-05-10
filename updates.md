@@ -1,3 +1,16 @@
+**Mexican Mayor Implicated in Drug Cartel Ranch Inquiry**\
+`The mayor of Teuchitlán is the first government official to have been arrested in connection with the case. Prosecutors accuse him of colluding with the cartel.`\
+https://nytimes.com/2025/05/09/world/americas/mexico-mayor-arrested-ranch-cartels.html
+
+**Pope Leo XIV’s Creole Roots Tell a Story of New Orleans**\
+`“This is like a reward from God,” a local parishioner said, as researchers unearthed more details about the lives of Leo XIV’s ancestors in the heart of the city’s Afro-Caribbean culture.`\
+https://nytimes.com/2025/05/09/us/pope-creole-roots-new-orleans.html
+
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
 **Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
 `“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
 `\
