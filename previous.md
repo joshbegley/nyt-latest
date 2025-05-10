@@ -1,3 +1,7 @@
+**Google Agrees to Pay $1.4 Billion to Settle 2 Privacy Lawsuits**\
+`The Texas attorney general brought the cases in 2022 under state laws.`\
+https://nytimes.com/2025/05/09/technology/google-texas-privacy-settlement.html
+
 **Reds acquire outfielder Connor Joe from Padres**\
 `The Reds added some outfield depth after placing three players on the injured list over the past week.`\
 https://nytimes.com/athletic/6345670/2025/05/09/reds-padres-connor-joe-trade/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettm
 **Red Sox owner John Henry meets with Rafael Devers in Kansas City**\
 `Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
 https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
-
-**At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
-`On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's bar.`\
-https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
 
