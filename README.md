@@ -1,5 +1,5 @@
 **Chris Paddack's dominant outing lifts bullpen, extends Twins' win streak to six**\
-`The velocity on all of Paddack’s pitches was up from his season average.`\
+`The velocity on all of Paddack's pitches was up from his season average.`\
 https://nytimes.com/athletic/6345877/2025/05/10/chris-paddack-twins-win-streak-six/
 
 **How Liverpool squad's rejigged leadership group could look next season**\
