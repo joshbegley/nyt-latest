@@ -1,3 +1,7 @@
+**Chris Paddack's dominant outing lifts bullpen, extends Twins' win streak to six**\
+`The velocity on all of Paddack’s pitches was up from his season average.`\
+https://nytimes.com/athletic/6345877/2025/05/10/chris-paddack-twins-win-streak-six/
+
 **How Liverpool squad's rejigged leadership group could look next season**\
 `Trent Alexander-Arnold's imminent exit from his boyhood club means there is space for a new senior player in the leadership group`\
 https://nytimes.com/athletic/6339286/2025/05/10/liverpool-leadership-group/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6343461/2025/05/10/ange-postecolgous-voyage-to-a-di
 `Arteta sounds like someone who knows what needs to be done at Arsenal, now the onus is on him and the club's top brass to do it`\
 https://nytimes.com/athletic/6344857/2025/05/10/arsenal-and-mikel-arteta-what-next-we-have-to-prove-that-we-can-do-it/
 
-**Hellebuyck, Jets shut out Stars in Game 2 to even series: Takeaways**\
-`Hellebuyck’s 22-save shutout, his first playoff shutout in four years, sends the series back to Dallas tied 1-1.`\
+**Connor Hellebuyck, Jets shut out Stars in Game 2 to even series: Takeaways**\
+`Hellebuyck’s 21-save shutout, his first playoff shutout in four years, sends the series to Dallas tied 1-1.`\
 https://nytimes.com/athletic/6345320/2025/05/10/jets-stars-nhl-playoffs-2025-game-2-takeaways/
 
 **Are Chelsea better when they have less possession?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6344650/2025/05/10/alonso-leverkusen-madrid-tactics
 **Trump Calls for 20,000 Extra Officers to Help With Deportation Efforts**\
 `The order, which would use state and local officers, among others, would represent an enormous expansion of immigration enforcement. But it is unclear how it would be paid for.`\
 https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html
-
-**The Bradford City fire, 40 years on: How the club, the city and football responded**\
-`At the time it was the worst stadium disaster in the history of English football. The painful impact has been far-reaching and long-lasting`\
-https://nytimes.com/athletic/6209924/2025/05/10/bradford-city-fire-40-years-football-city-response-safety/
 

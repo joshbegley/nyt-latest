@@ -1,3 +1,11 @@
+**Chris Paddack's dominant outing lifts bullpen, extends Twins' win streak to six**\
+`The velocity on all of Paddack’s pitches was up from his season average.`\
+https://nytimes.com/athletic/6345877/2025/05/10/chris-paddack-twins-win-streak-six/
+
+**Connor Hellebuyck, Jets shut out Stars in Game 2 to even series: Takeaways**\
+`Hellebuyck’s 21-save shutout, his first playoff shutout in four years, sends the series to Dallas tied 1-1.`\
+https://nytimes.com/athletic/6345320/2025/05/10/jets-stars-nhl-playoffs-2025-game-2-takeaways/
+
 **How Liverpool squad's rejigged leadership group could look next season**\
 `Trent Alexander-Arnold's imminent exit from his boyhood club means there is space for a new senior player in the leadership group`\
 https://nytimes.com/athletic/6339286/2025/05/10/liverpool-leadership-group/
