@@ -1,3 +1,7 @@
+**Elizabeth Holmes’s Partner Has a New Blood-Testing Start-Up**\
+`Billy Evans has two children with the Theranos founder, who is in prison for fraud. He’s now trying to raise money for a testing company that promises “human health optimization.”`\
+https://nytimes.com/2025/05/10/business/elizabeth-holmes-partner-blood-testing-startup.html
+
 **Derek Carr retiring after 11 seasons as shoulder injury threatens 2025 season**\
 `Carr is dealing with a labral tear in his right shoulder and has significant degenerative changes to his rotator cuff.`\
 https://nytimes.com/athletic/6346335/2025/05/10/derek-carr-retire-saints-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346270/2025/05/10/real-madrid-clasico-ancelotti-fu
 **Haemanthus’s Patent for ‘Raman Spectroscopy System’**\
 `A patent for a “Raman Spectroscopy System” filed by Haemanthus.`\
 https://nytimes.com/interactive/2025/05/10/business/HaemanthusPatent.html
-
-**Pachuca not considering James Rodriguez for Club World Cup**\
-`Reports had suggested Pachuca may sign players from sister team Club Leon, who themselves were removed from the competition in March.`\
-https://nytimes.com/athletic/6287187/2025/05/10/james-rodriguez-club-world-cup-pachuca-leon/
 
