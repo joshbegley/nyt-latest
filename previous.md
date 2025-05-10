@@ -1,3 +1,11 @@
+**Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
+`Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin’ Phils.`\
+https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/
+
+**NBA playoffs results and takeaways: Celtics rout Knicks 115-93**\
+`The Knicks still lead the series 2-1, but Boston found its identity Saturday, shooting 50 percent from 3 (20-of-40).`\
+https://nytimes.com/athletic/6346748/2025/05/10/nba-playoffs-results-celtics-knicks-warriors-timberwolves/
+
 **3 Lawmakers Involved in Newark Protest Could Be Arrested, D.H.S. Says**\
 `The legislators were with Mayor Ras Baraka when he was arrested Friday outside an immigration detention facility. A Department of Homeland Security spokeswoman said they could face assault charges.`\
 https://nytimes.com/2025/05/10/nyregion/newark-ice-protest-lawmakers-ras-baraka.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6346668/2025/05/10/sovereignty-jockey-fine-kentucky
 **How Xi and Putin Got Closer**\
 `In terms of geopolitical bromances, this is it. David Pierson, a foreign correspondent for The New York Times covering China, explains how President Vladimir V. Putin of Russia and Xi Jinping, the leader of China, are closer than ever before.`\
 https://nytimes.com/video/world/asia/100000010157380/how-xi-and-putin-got-closer.html
-
-**Donovan Mitchell nears legend status in Cleveland: Cavs thoughts ahead of Game 4**\
-`Donovan Mitchell is having a series worthy of being compared to LeBron James.`\
-https://nytimes.com/athletic/6346340/2025/05/10/donovan-mitchell-game-4-cavs-pacers-nba-playoffs/
-
-**Ohio Man Sent Threats Saying He Had Bullets Etched With People’s Names, U.S. Says**\
-`The man sent letters and emails to 34 public officials and members of law enforcement, the authorities said. Some letters contained a white powder and at least one had a bullet.`\
-https://nytimes.com/2025/05/10/us/letter-email-threats-ohio.html
 

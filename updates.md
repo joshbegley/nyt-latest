@@ -1,3 +1,11 @@
+**Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
+`Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin’ Phils.`\
+https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/
+
+**NBA playoffs results and takeaways: Celtics rout Knicks 115-93**\
+`The Knicks still lead the series 2-1, but Boston found its identity Saturday, shooting 50 percent from 3 (20-of-40).`\
+https://nytimes.com/athletic/6346748/2025/05/10/nba-playoffs-results-celtics-knicks-warriors-timberwolves/
+
 **3 Lawmakers Involved in Newark Protest Could Be Arrested, D.H.S. Says**\
 `The legislators were with Mayor Ras Baraka when he was arrested Friday outside an immigration detention facility. A Department of Homeland Security spokeswoman said they could face assault charges.`\
 https://nytimes.com/2025/05/10/nyregion/newark-ice-protest-lawmakers-ras-baraka.html
