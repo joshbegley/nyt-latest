@@ -1,3 +1,5 @@
+
+
 **Reluctant at First, Trump Officials Intervened in South Asia as Nuclear Fears Grew**\
 `After Vice President JD Vance suggested that the conflict between India and Pakistan was not America’s problem, the Trump administration grew concerned that it could spiral out of control.`\
 https://nytimes.com/2025/05/10/us/politics/trump-india-pakistan-nuclear.html
