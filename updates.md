@@ -1,3 +1,11 @@
+**McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
+`The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
+https://nytimes.com/athletic/6346190/2025/05/10/sydney-mclaughlin-levrone-to-run-first-professional-100m-sprint-at-grand-slam-track-philadelphia/
+
+**Earthquake Rocks Parts of Tennessee and Georgia**\
+`The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
+https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
+
 **Chelsea go unbeaten in 2024-25 WSL season**\
 `Sonia Bompastor's side beat Liverpool 1-0 at Stamford Bridge on the final day, with Aggie Beever-Jones netting a late winner.`\
 https://nytimes.com/athletic/6342112/2025/05/10/chelsea-wsl-unbeaten-invincible/

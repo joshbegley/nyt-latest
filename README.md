@@ -1,6 +1,10 @@
+**Yankees' Jasson Domínguez is accomplishing more than just franchise history**\
+`A big difference for Domínguez this year, he is now comfortable communicating in his second language without the help of a translator.`\
+https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-field-english/
+
 **McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
 `The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
-https://nytimes.com/athletic/6346190/2025/05/10/sydney-mclaughlin-levrone-to-run-first-professional-100m-sprint-at-grand-slam-track-philadelphia/
+https://nytimes.com/athletic/6346190/2025/05/10/mclaughlin-levrone-100m-grand-slam-track/
 
 **Earthquake Rocks Parts of Tennessee and Georgia**\
 `The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/t-magazine/chiffon-cake-baking.html
 **Demi Vollering wins second straight Vuelta a Espana**\
 `The FDJ rider beat Marlen Reusser by over a minute to defend her title.`\
 https://nytimes.com/athletic/6346165/2025/05/10/demi-vollering-la-vuelta-espana-cycling/
-
-**WATCH: How unleashing Evan Mobley turned Cavs into title contenders**\
-`Why did the Cavaliers go from a mid-tier playoff team to the East's No. 1 seed? They empowered Evan Mobley offensively.`\
-https://nytimes.com/athletic/6345805/2025/05/10/video-evan-mobley-cavaliers-highlights-offense/
 
