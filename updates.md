@@ -1,3 +1,8 @@
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
 **Red Sox owner John Henry meets with Rafael Devers one-on-one in Kansas City**\
 `Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
 https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
