@@ -1,3 +1,11 @@
+**See Historical Records Documenting the Pope’s Creole Roots in New Orleans**\
+`The documents, including census records, baptismal rolls and marriage certificates, trace the story of Pope Leo’s mother’s family and their diverse background before moving to Chicago.`\
+https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
+
+**Brighton striker Welbeck can 'carry on' at top level - Hurzeler**\
+`Welbeck, 34, scored his tenth league goal of the season in the 2-0 win at Wolves that keeps his side's European hopes alive. `\
+https://nytimes.com/athletic/6346495/2025/05/10/brighton-welbeck-carry-on-hurzeler/
+
 **Southampton avoid tying record for fewest points in a Premier League season**\
 `Derby County recorded only 11 points in 2007-08 season, which Southampton have surpassed following Saturday's home draw.`\
 https://nytimes.com/athletic/6346417/2025/05/10/southampton-derby-premier-league-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/10/dining/roast-chicken-recipe-ina-garten.html
 **What We Know About the Terrorist Groups India Said It Targeted**\
 `India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
 https://nytimes.com/2025/05/10/world/asia/what-is-lashkar-e-taiba-pakistan-kashmir-terror-groups.html
-
-**After Allegations, Smokey Robinson Show Goes On as Planned**\
-`The 85-year-old Motown star performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
-https://nytimes.com/2025/05/10/arts/music/smokey-robinson-concert.html
-
-**Cayden Lindstrom, Blue Jackets' No. 4 pick last June, makes triumphant return**\
-`After more than 13 months away from competitive hockey, Lindstrom played for Medicine Hat in Game 1 of the WHL Championship.`\
-https://nytimes.com/athletic/6346105/2025/05/10/cayden-lindstrom-blue-jackets-return-medicine-hat/
 

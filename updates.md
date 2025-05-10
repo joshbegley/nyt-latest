@@ -1,3 +1,11 @@
+**See Historical Records Documenting the Pope’s Creole Roots in New Orleans**\
+`The documents, including census records, baptismal rolls and marriage certificates, trace the story of Pope Leo’s mother’s family and their diverse background before moving to Chicago.`\
+https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
+
+**Brighton striker Welbeck can 'carry on' at top level - Hurzeler**\
+`Welbeck, 34, scored his tenth league goal of the season in the 2-0 win at Wolves that keeps his side's European hopes alive. `\
+https://nytimes.com/athletic/6346495/2025/05/10/brighton-welbeck-carry-on-hurzeler/
+
 **Southampton avoid tying record for fewest points in a Premier League season**\
 `Derby County recorded only 11 points in 2007-08 season, which Southampton have surpassed following Saturday's home draw.`\
 https://nytimes.com/athletic/6346417/2025/05/10/southampton-derby-premier-league-record/
