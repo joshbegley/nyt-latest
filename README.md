@@ -1,3 +1,7 @@
+**Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
+`A federal judge had ordered the government to immediately release Rumeysa Ozturk, who was being held in a federal facility in Louisiana.`\
+https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
+
 **Margot Friedländer, Holocaust Survivor Who Found Her Voice, Dies at 103**\
 `She never spoke of her experience until after her husband’s death, when she returned to Berlin with a mission to tell her story, and to teach tolerance.`\
 https://nytimes.com/2025/05/10/world/europe/margot-friedlander-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/arts/design/william-l-porter-dead.html
 **Thumbprint on Cigarette Carton Cracks a 48-Year-Old California Murder Case**\
 `A young mother told friends that she’d be “back in 10 minutes.” She never returned, and the police in San Jose have now charged a man in her death.`\
 https://nytimes.com/2025/05/10/us/jeanette-ralston-cold-case-murder-suspect.html
-
-**Power Grid**\
-`Brendan Emmett Quigley delivers a pumped-up puzzle.`\
-https://nytimes.com/2025/05/10/crosswords/daily-puzzle-2025-05-11.html
 
