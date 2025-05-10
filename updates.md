@@ -1,3 +1,11 @@
+**Greene Defiantly Rules Out a Senate Run in Georgia, to the Relief of G.O.P. Leaders**\
+`In a lengthy Friday night social media screed, the Republican congresswoman savaged her party’s leaders as she declared she would not pursue a Senate run.`\
+https://nytimes.com/2025/05/09/us/politics/mtg-marjorie-taylor-greene-georgia-senate.html
+
+**‘I’m Off!’**\
+`Shaun Phillips floats in on a well-crafted puzzle, where every word counts.`\
+https://nytimes.com/2025/05/09/crosswords/daily-puzzle-2025-05-10.html
+
 **Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
 `“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
 `\
