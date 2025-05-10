@@ -1,3 +1,7 @@
+**Earthquake Rattles Parts of Tennessee and Georgia**\
+`The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
+https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
+
 **Yankees' Jasson Domínguez is accomplishing more than just franchise history**\
 `A big difference for Domínguez this year, he is now comfortable communicating in his second language without the help of a translator.`\
 https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-field-english/

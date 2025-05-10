@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-fi
 `The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
 https://nytimes.com/athletic/6346190/2025/05/10/mclaughlin-levrone-100m-grand-slam-track/
 
-**Earthquake Rocks Parts of Tennessee and Georgia**\
+**Earthquake Rattles Parts of Tennessee and Georgia**\
 `The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
 https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
 
