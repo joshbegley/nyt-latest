@@ -1,3 +1,7 @@
+**The Pulse: A model franchise becomes a mess**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6345894/2025/05/10/steelers-aaron-rodgers-the-pulse/
+
 **European Leaders Visit Kyiv in a Show of Solidarity for Ukraine**\
 `They renewed the push for an unconditional 30-day cease-fire that Russia has rebuffed.`\
 https://nytimes.com/2025/05/10/world/europe/ukraine-war-visit-starmer-macron-zelensky-merz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/opinion/these-internal-documents-show-why-we-shou
 **‘The Studio’ Knows the Real Reason Movies Are Bad**\
 `The satirical comedy about Hollywood is as much a send-up of the audience as it is of the industry.`\
 https://nytimes.com/2025/05/10/opinion/the-studio-rogen.html
-
-**Weird ideas? Creativity? MLB player Mark Canha believes they are crucial to success**\
-`How does Mark Canha foster a creative mentality? "Be in love with what you're doing," and if you're not good at it, you're upset. `\
-https://nytimes.com/athletic/6345399/2025/05/10/mark-canha-kansas-city-royals-mlb-creativity-mindset-training/
 
