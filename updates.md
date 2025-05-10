@@ -1,3 +1,16 @@
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
+**The New York Times in Print for Saturday, May 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/10/todays-new-york-times
+
+**Records Offer Glimpses Inside the Doomed Prosecution of Eric Adams**\
+`Federal prosecutors released sworn statements and other records detailing key moments in a corruption case that roiled New York City.`\
+https://nytimes.com/2025/05/10/nyregion/adams-corruption-investigation-records.html
+
 **Chris Paddack's dominant outing lifts bullpen, extends Twins' win streak to six**\
 `The velocity on all of Paddack's pitches was up from his season average.`\
 https://nytimes.com/athletic/6345877/2025/05/10/chris-paddack-twins-win-streak-six/
