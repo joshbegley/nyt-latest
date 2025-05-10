@@ -1,3 +1,7 @@
+**Braves' infield defense is elite, but erratic offense has been frustrating**\
+`Entering Friday, the Braves ranked at or near the top of the majors in several metrics at multiple positions.`\
+https://nytimes.com/athletic/6345756/2025/05/09/braves-elite-infield-defense-erratic-offense/
+
 **In Pope Leo, Some in MAGA Movement See an Antagonist**\
 `While President Trump welcomed the U.S.-born cardinal as the new pope, top Trump allies criticized Leo XIV for his similarities to Pope Francis.`\
 https://nytimes.com/2025/05/09/us/pope-leo-maga-donald-trump-steve-bannon.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/crosswords/daily-puzzle-2025-05-10.html
 **Google Agrees to Pay $1.4 Billion to Settle 2 Privacy Lawsuits**\
 `The Texas attorney general brought the cases in 2022 under state laws.`\
 https://nytimes.com/2025/05/09/technology/google-texas-privacy-settlement.html
-
-**Reds acquire outfielder Connor Joe from Padres**\
-`The Reds added some outfield depth after placing three players on the injured list over the past week.`\
-https://nytimes.com/athletic/6345670/2025/05/09/reds-padres-connor-joe-trade/
 

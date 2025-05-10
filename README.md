@@ -1,3 +1,11 @@
+**Quote of the Day: Church Bells and Champagne to Cheer a Villanova Alum**\
+`Quotation of the Day for Saturday, May 10, 2025.`\
+https://nytimes.com/2025/05/09/pageoneplus/quote-of-the-day-church-bells-and-champagne-to-cheer-a-villanova-alum.html
+
+**Fedde hurls complete game shutout as Cardinals extend win streak to 6 games**\
+`Fedde dominated his former team in his first appearance back at Nationals Park since his final season with Washington in 2022.`\
+https://nytimes.com/athletic/6345739/2025/05/09/erick-fedde-complete-game-cardinals-win-streak/
+
 **Braves' infield defense is elite, but erratic offense has been frustrating**\
 `Entering Friday, the Braves ranked at or near the top of the majors in several metrics at multiple positions.`\
 https://nytimes.com/athletic/6345756/2025/05/09/braves-elite-infield-defense-erratic-offense/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/09/us/politics/federal-layoffs-trump-ruling.html
 **Greene Defiantly Rules Out a Senate Run in Georgia, to the Relief of G.O.P. Leaders**\
 `In a lengthy Friday night social media screed, the Republican congresswoman savaged her party’s leaders as she declared she would not pursue a Senate run.`\
 https://nytimes.com/2025/05/09/us/politics/mtg-marjorie-taylor-greene-georgia-senate.html
-
-**‘I’m Off!’**\
-`Shaun Phillips floats in on a well-crafted puzzle, where every word counts.`\
-https://nytimes.com/2025/05/09/crosswords/daily-puzzle-2025-05-10.html
-
-**Google Agrees to Pay $1.4 Billion to Settle 2 Privacy Lawsuits**\
-`The Texas attorney general brought the cases in 2022 under state laws.`\
-https://nytimes.com/2025/05/09/technology/google-texas-privacy-settlement.html
 
