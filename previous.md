@@ -1,5 +1,9 @@
+**What We Know About the Terrorist Groups India Said It Targeted**\
+`India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
+https://nytimes.com/2025/05/10/world/asia/what-is-lashkar-e-taiba-pakistan-kashmir-terror-groups.html
+
 **After Allegations, Smokey Robinson Show Goes On as Planned**\
-`The 85-year-old Motown performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
+`The 85-year-old Motown star performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
 https://nytimes.com/2025/05/10/arts/music/smokey-robinson-concert.html
 
 **Cayden Lindstrom, Blue Jackets' No. 4 pick last June, makes triumphant return**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-fi
 **McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
 `The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
 https://nytimes.com/athletic/6346190/2025/05/10/mclaughlin-levrone-100m-grand-slam-track/
-
-**Earthquake Rattles Parts of Tennessee and Georgia**\
-`The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
-https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
 

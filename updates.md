@@ -1,3 +1,11 @@
+**What We Know About the Terrorist Groups India Said It Targeted**\
+`India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
+https://nytimes.com/2025/05/10/world/asia/what-is-lashkar-e-taiba-pakistan-kashmir-terror-groups.html
+
+**After Allegations, Smokey Robinson Show Goes On as Planned**\
+`The 85-year-old Motown star performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
+https://nytimes.com/2025/05/10/arts/music/smokey-robinson-concert.html
+
 **After Allegations, Smokey Robinson Show Goes On as Planned**\
 `The 85-year-old Motown performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
 https://nytimes.com/2025/05/10/arts/music/smokey-robinson-concert.html
