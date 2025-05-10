@@ -1,3 +1,7 @@
+**Red Sox owner John Henry meets with Rafael Devers one-on-one in Kansas City**\
+`Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
+https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
+
 **At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
 `On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's Bar.`\
 https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
 **U.S. Starts Investigation Into Imported Planes and Parts**\
 `The Trump administration could use the investigation to impose new tariffs on imported planes, jet engines and other aerospace parts.`\
 https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html
-
-**Pentagon Furthers Crackdown on Diversity Policies With Fresh Order for Review of Library Books**\
-`The move is the latest denunciation by the Trump administration against anything related to diversity, equity and inclusion.`\
-https://nytimes.com/2025/05/09/us/politics/pentagon-hegseth-dei-library-books.html
 

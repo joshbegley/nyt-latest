@@ -1,3 +1,7 @@
+**At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
+`On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's Bar.`\
+https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
+
 **Francis Connected With Leo Long Ago and Boosted His Career**\
 `The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
