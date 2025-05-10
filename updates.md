@@ -1,3 +1,16 @@
+**Does Trump Have the Power to Install Jeanine Pirro as Interim U.S. Attorney?**\
+`By using another interim appointment to fill a vacancy for the top prosecutor in Washington, the White House is bypassing Senate confirmation and potentially claiming expansive authority.`\
+https://nytimes.com/2025/05/09/us/politics/trump-pirro-interim-prosecutor.html
+
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
+**At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
+`On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's bar.`\
+https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
+
 **Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
 `“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
 `\
