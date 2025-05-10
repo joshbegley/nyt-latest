@@ -1,3 +1,8 @@
+**Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
+`Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
+`\
+https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
+
 **Seven takeways as Chargers rookies hit the field for minicamp**\
 `In Friday's lengthy session, the Chargers did not hold any 11-on-11, seven-on-seven or even one-on-one drills. `\
 https://nytimes.com/athletic/6345734/2025/05/09/chargers-rookie-minicamp-jim-harbaugh-easter-ham/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/05/09/world/americas/mexico-mayor-arrested-ranch-cartel
 **Pope Leo XIV’s Creole Roots Tell a Story of New Orleans**\
 `“This is like a reward from God,” a local parishioner said, as researchers unearthed more details about the lives of Leo XIV’s ancestors in the heart of the city’s Afro-Caribbean culture.`\
 https://nytimes.com/2025/05/09/us/pope-creole-roots-new-orleans.html
-
-**New Jersey Mayor Arrested After Trying to Enter ICE Facility**\
-`Federal officials arrested Mayor Ras J. Baraka of Newark at an immigration detention facility on Friday.`\
-https://nytimes.com/video/us/100000010161328/newark-mayor-arrested-ice.html
 
