@@ -1,3 +1,7 @@
+**A United Front for Pope Leo Among American Cardinals**\
+`One cardinal who cast his ballot said the pope’s choice of the papal name Leo might signal a particular interest in workers’ rights.`\
+https://nytimes.com/2025/05/09/us/pope-leo-american-cardinals.html
+
 **Mexican Mayor Implicated in Drug Cartel Ranch Inquiry**\
 `The mayor of Teuchitlán is the first government official to have been arrested in connection with the case. Prosecutors accuse him of colluding with the cartel.`\
 https://nytimes.com/2025/05/09/world/americas/mexico-mayor-arrested-ranch-cartels.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-tri
 **Newark Mayor Arrested Outside ICE Detention Center**\
 `Protesters shouted as federal officials arrested Mayor Ras J. Baraka of Newark while he and three members of Congress were demonstrating at a new immigration detention center.`\
 https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
-
-**After Criticism, Harris’s $900 Million Group Tries to Lay Out a Future**\
-`Future Forward, the big-money group supporting Kamala Harris’s presidential bid last year, resurfaced after her loss with an event in California.`\
-https://nytimes.com/2025/05/09/us/politics/future-forward-harris-democrats.html
 
