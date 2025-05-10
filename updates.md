@@ -1,3 +1,12 @@
+**Republicans Lay Out Early Plans to Extend and Expand Trump Tax Cuts**\
+`House Republicans rolled out the first pieces of a roughly $4 trillion tax cut they hope to pass, including measures that would last just for President Trump’s term.`\
+https://nytimes.com/2025/05/09/us/politics/republicans-trump-tax-cuts.html
+
+**Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
+`Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
+`\
+https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
+
 **NBA playoffs takeaways: Donovan Mitchell's 43 spur Cavs to Game 3 win at Indiana**\
 `Mitchell led Cleveland's charge which was boosted by the return of three key players, including starters Darius Garland and Evan Mobley.`\
 https://nytimes.com/athletic/6345693/2025/05/09/nba-playoffs-results-cavaliers-pacers-thunder-nuggets/
