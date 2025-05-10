@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clas
 https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-pakistan-truce-trump
 
 **Live Updates: Trump Announces Truce Between India and Pakistan**\
-`Officials in both countries confirmed that they had called a cease-fire after four days of fighting, though neither mentioned that the U.S. had played a role, as President Trump had implied.`\
+`Officials in both countries acknowledged a halt after several days of their most expansive fighting in decades.`\
 https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
 
 **Mailbag: Which first-round pick will Penguins get from Rangers?**\

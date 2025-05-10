@@ -1,3 +1,11 @@
+**'I believe in our team': 'Slow' Pacers fall in Game 3, vow to put up more of a fight in Game 4**\
+`Tyrese Haliburton scored four points and the Pacers didn't play with the pace they usually do in a lopsided Game 3 loss to the Cavaliers.`\
+https://nytimes.com/athletic/6346011/2025/05/10/pacers-haliburton-cavaliers-game-3/
+
+**Live Updates: Trump Announces Truce Between India and Pakistan**\
+`Officials in both countries confirmed that they had called a cease-fire after four days of fighting, though neither mentioned that the U.S. had played a role, as President Trump had implied.`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
+
 **Lewandowski, Balde not fit to start in Sunday's Clasico**\
 `Barcelona head coach Hansi Flick did say the pair would be in line for some minutes during the game.`\
 https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clasico-team-news/
