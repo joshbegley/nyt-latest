@@ -1,3 +1,7 @@
+**How Xi and Putin Got Closer**\
+`In terms of geopolitical bromances, this is it. David Pierson, a foreign correspondent for The New York Times covering China, explains how President Vladimir V. Putin of Russia and Xi Jinping, the leader of China, are closer than ever before.`\
+https://nytimes.com/video/world/asia/100000010157380/how-xi-and-putin-got-closer.html
+
 **Donovan Mitchell nears legend status in Cleveland: Cavs thoughts ahead of Game 4**\
 `Donovan Mitchell is having a series worthy of being compared to LeBron James.`\
 https://nytimes.com/athletic/6346340/2025/05/10/donovan-mitchell-game-4-cavs-pacers-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
 **Brighton striker Welbeck can 'carry on' at top level - Hurzeler**\
 `Welbeck, 34, scored his tenth league goal of the season in the 2-0 win at Wolves that keeps his side's European hopes alive. `\
 https://nytimes.com/athletic/6346495/2025/05/10/brighton-welbeck-carry-on-hurzeler/
-
-**Southampton avoid tying record for fewest points in a Premier League season**\
-`Derby County recorded only 11 points in 2007-08 season, which Southampton have surpassed following Saturday's home draw.`\
-https://nytimes.com/athletic/6346417/2025/05/10/southampton-derby-premier-league-record/
 

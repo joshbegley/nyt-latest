@@ -1,3 +1,7 @@
+**Donovan Mitchell nears legend status in Cleveland: Cavs thoughts ahead of Game 4**\
+`Donovan Mitchell is having a series worthy of being compared to LeBron James.`\
+https://nytimes.com/athletic/6346340/2025/05/10/donovan-mitchell-game-4-cavs-pacers-nba-playoffs/
+
 **Ohio Man Sent Threats Saying He Had Bullets Etched With People’s Names, U.S. Says**\
 `The man sent letters and emails to 34 public officials and members of law enforcement, the authorities said. Some letters contained a white powder and at least one had a bullet.`\
 https://nytimes.com/2025/05/10/us/letter-email-threats-ohio.html
