@@ -1,4 +1,8 @@
-**The Briefing: Southampton 0 Man City 0 - Haaland return falls flat as top five battle takes a twist**\
+**Leafs goalie Stolarz appears unlikely to return to series vs. Panthers**\
+`Stolarz left Game 1 after being elbowed in the head by Panthers centre Sam Bennett.`\
+https://nytimes.com/athletic/6346419/2025/05/10/maple-leafs-anthony-stolarz-injury-panthers/
+
+**The Briefing: Southampton 0 Man City 0 - Haaland's return falls flat as top-five battle takes a twist**\
 `Analysing the major talking points from Saturday's Premier League game at St Mary's`\
 https://nytimes.com/athletic/6339308/2025/05/10/southampton-manchester-city-result-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346105/2025/05/10/cayden-lindstrom-blue-jackets-re
 **World Catholics See the First American Pope as Hardly American**\
 `Catholics around the world were skeptical at first about an American pope. But Pope Leo XIV’s multicultural and multilingual identity has put them at ease.`\
 https://nytimes.com/2025/05/10/world/americas/pope-leo-american-popular-world-reaction.html
-
-**Ancelotti says his 'honeymoon' with Real Madrid will never end**\
-`The Athletic has reported that Ancelotti and Madrid have agreed terms for his departure, with the Italian expected to now coach Brazil.`\
-https://nytimes.com/athletic/6346270/2025/05/10/real-madrid-clasico-ancelotti-future/
 
