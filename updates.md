@@ -1,3 +1,7 @@
+**King’s Indian Attack, solid pawn structure and a booming fianchetto - Eze's chess game analysed**\
+`The Crystal Palace forward recently took time out of FA Cup final preparations to win a four-day online chess tournament, so he is any good?`\
+https://nytimes.com/athletic/6343902/2025/05/10/eberechi-eze-chess-crystal-palace/
+
 **Trump Calls for 20,000 Extra Officers to Help With Deportation Efforts**\
 `The order, which would use state and local officers, among others, would represent an enormous expansion of immigration enforcement. But it is unclear how it would be paid for.`\
 https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html

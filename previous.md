@@ -1,3 +1,7 @@
+**King’s Indian Attack, solid pawn structure and a booming fianchetto - Eze's chess game analysed**\
+`The Crystal Palace forward recently took time out of FA Cup final preparations to win a four-day online chess tournament, so he is any good?`\
+https://nytimes.com/athletic/6343902/2025/05/10/eberechi-eze-chess-crystal-palace/
+
 **Trump Calls for 20,000 Extra Officers to Help With Deportation Efforts**\
 `The order, which would use state and local officers, among others, would represent an enormous expansion of immigration enforcement. But it is unclear how it would be paid for.`\
 https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345835/2025/05/10/connections-sports-edition-hints
 **With U.S. Trade Deal, British Steel Industry Feels Some Much Needed Relief**\
 `The agreement to lift the 25 percent duty on steel exported to the United States provided some relief for struggling businesses, but uncertainties for the industry remain.`\
 https://nytimes.com/2025/05/10/business/trump-uk-us-trade-steel.html
-
-**Corrections: May 10, 2025**\
-`Corrections that appeared in print on Saturday, May 10, 2025.`\
-https://nytimes.com/2025/05/10/pageoneplus/corrections-may-10-2025.html
 
