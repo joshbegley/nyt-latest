@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoff
 `\
 https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
 
+**Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
+`Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
+`\
+https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
+
 **Seven takeways as Chargers rookies hit the field for minicamp**\
 `In Friday's lengthy session, the Chargers did not hold any 11-on-11, seven-on-seven or even one-on-one drills. `\
 https://nytimes.com/athletic/6345734/2025/05/09/chargers-rookie-minicamp-jim-harbaugh-easter-ham/
