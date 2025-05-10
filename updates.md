@@ -63,6 +63,11 @@ https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-
 `\
 https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
 
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
 **'Monster comes through': Shohei Ohtani's 9th-inning blast delivers wild win for Dodgers**\
 `Up by five runs then down by three, Los Angeles prevailed 14-11 when Ohtani came up in his familiar spot: the clutch.`\
 https://nytimes.com/athletic/6345993/2025/05/10/shohei-ohtani-home-run-dodgers-diamondbacks/
