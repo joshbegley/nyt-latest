@@ -1,3 +1,7 @@
+**Flyers prospects Luchanko, Bump getting taste of playoff hockey with Phantoms**\
+`Jett Luchanko and Alex Bump connected for some highlight reel scores in a playoff series against the Wilkes-Barre/Scranton Penguins.`\
+https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-hockey-phantoms/
+
 **See Historical Records Documenting the Pope’s Creole Roots in New Orleans**\
 `The documents, including census records, baptismal rolls and marriage certificates, trace the story of Pope Leo’s mother’s family and their diverse background before moving to Chicago.`\
 https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/insider/a-brass-bracelet-with-both-history-and-me
 **Ina Garten’s Perfect Roast Chicken**\
 `It’s Ina Garten. It’s a roast chicken. It’s perfect.`\
 https://nytimes.com/2025/05/10/dining/roast-chicken-recipe-ina-garten.html
-
-**What We Know About the Terrorist Groups India Said It Targeted**\
-`India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
-https://nytimes.com/2025/05/10/world/asia/what-is-lashkar-e-taiba-pakistan-kashmir-terror-groups.html
 
