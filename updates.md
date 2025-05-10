@@ -1,3 +1,15 @@
+**Lewandowski, Balde not fit to start in Sunday's Clasico**\
+`Barcelona head coach Hansi Flick did say the pair would be in line for some minutes during the game.`\
+https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clasico-team-news/
+
+**Here’s the latest.**\
+`By Anupreeta Das, Mujib Mashal and Qasim Nauman`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-pakistan-truce-trump
+
+**Live Updates: Trump Says U.S. Brokered Truce Between India and Pakistan**\
+`Indian and Pakistani officials confirmed that the two sides had called a cease-fire after four days of an alarming escalation in fighting, though neither mentioned an American role.`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
+
 **Mailbag: Which first-round pick will Penguins get from Rangers?**\
 `A look at the Rangers' decision and how it will impact the Penguins, Mike Sullivan's time in Pittsburgh and much more.`\
 https://nytimes.com/athletic/6344571/2025/05/10/penguins-rangers-nhl-draft-pick-condition-mailbag/

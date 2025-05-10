@@ -1,3 +1,7 @@
+**'I believe in our team': 'Slow' Pacers fall in Game 3, vow to put up more of a fight in Game 4**\
+`Tyrese Haliburton scored four points and the Pacers didn't play with the pace they usually do in a lopsided Game 3 loss to the Cavaliers.`\
+https://nytimes.com/athletic/6346011/2025/05/10/pacers-haliburton-cavaliers-game-3/
+
 **Lewandowski, Balde not fit to start in Sunday's Clasico**\
 `Barcelona head coach Hansi Flick did say the pair would be in line for some minutes during the game.`\
 https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clasico-team-news/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clas
 `By Anupreeta Das, Mujib Mashal and Qasim Nauman`\
 https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-pakistan-truce-trump
 
-**Live Updates: Trump Says U.S. Brokered Truce Between India and Pakistan**\
-`Indian and Pakistani officials confirmed that the two sides had called a cease-fire after four days of an alarming escalation in fighting, though neither mentioned an American role.`\
+**Live Updates: Trump Announces Truce Between India and Pakistan**\
+`Officials in both countries confirmed that they had called a cease-fire after four days of fighting, though neither mentioned that the U.S. had played a role, as President Trump had implied.`\
 https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
 
 **Mailbag: Which first-round pick will Penguins get from Rangers?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/world/europe/ukraine-war-visit-starmer-macron-zel
 **After an impressive Game 2 win, five reasons to start believing in the Jets**\
 `Everything went right for the Jets in a 4-0 win over the Stars and suddenly there are signs they are rolling now.`\
 https://nytimes.com/athletic/6345989/2025/05/10/nhl-playoffs-winnipeg-jets-game-2-win/
-
-**Three reasons why the Oilers are in control against the Golden Knights**\
-`The Oilers have taken a 2-0 advantage in their matchup against Vegas because they’ve had a clear advantage in a few key areas.`\
-https://nytimes.com/athletic/6345404/2025/05/10/oilers-golden-knights-nhl-playoffs-game-3/
 
