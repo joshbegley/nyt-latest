@@ -1,3 +1,15 @@
+**3 Lawmakers Involved in Newark Protest Could Be Arrested, D.H.S. Says**\
+`The legislators were with Mayor Ras Baraka when he was arrested Friday outside an immigration detention facility. A Department of Homeland Security spokeswoman said they could face assault charges.`\
+https://nytimes.com/2025/05/10/nyregion/newark-ice-protest-lawmakers-ras-baraka.html
+
+**William L. Porter, Designer of Classic American Cars, Dies at 93**\
+`As a senior designer at G.M., he helped create the exuberant, elongated shape of 1960s and ’70s cars like the Pontiac GTO, the Bonneville and the Trans Am.`\
+https://nytimes.com/2025/05/10/arts/design/william-l-porter-dead.html
+
+**Thumbprint on Cigarette Carton Cracks a 48-Year-Old California Murder Case**\
+`A young mother told friends that she’d be “back in 10 minutes.” She never returned, and the police in San Jose have now charged a man in her death.`\
+https://nytimes.com/2025/05/10/us/jeanette-ralston-cold-case-murder-suspect.html
+
 **Power Grid**\
 `Brendan Emmett Quigley delivers a pumped-up puzzle.`\
 https://nytimes.com/2025/05/10/crosswords/daily-puzzle-2025-05-11.html
