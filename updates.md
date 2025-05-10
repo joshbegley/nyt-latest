@@ -1,3 +1,11 @@
+**Bills rookie minicamp: First looks at speedy Maxwell Hairston, huge Landon Jackson, and more**\
+`Plus, T.J. Sanders' quick moves and testing out Jordan Hancock.`\
+https://nytimes.com/athletic/6345376/2025/05/10/bills-rookie-minicamp-maxwell-hairston-landon-jackson/
+
+**Lions rookie minicamp: Big praise for Tyleik Williams, a glimpse of the new coaches, and more**\
+`Plus notes and observations on other rookies and UDFAs.`\
+https://nytimes.com/athletic/6345273/2025/05/10/lions-rookie-minicamp-tyleik-williams/
+
 **Can Whitney Wolfe Herd Make Us Love Dating Apps Again?**\
 `The Bumble CEO has returned to run the struggling company she founded, and says she has a plan for getting Gen Z back.`\
 https://nytimes.com/2025/05/10/magazine/whitney-wolfe-herd-interview.html
