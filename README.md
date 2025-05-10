@@ -1,3 +1,15 @@
+**Derek Carr retiring after 11 seasons as shoulder injury threatens 2025 season**\
+`Carr is dealing with a labral tear in his right shoulder and has significant degenerative changes to his rotator cuff.`\
+https://nytimes.com/athletic/6346335/2025/05/10/derek-carr-retire-saints-raiders/
+
+**A Brass Bracelet With Both History and Meaning**\
+`The reporter Ralph Blumenthal, who covered the Vietnam War for The Times, returned with more than stories.`\
+https://nytimes.com/2025/05/10/insider/a-brass-bracelet-with-both-history-and-meaning.html
+
+**Ina Garten’s Perfect Roast Chicken**\
+`It’s Ina Garten. It’s a roast chicken. It’s perfect.`\
+https://nytimes.com/2025/05/10/dining/roast-chicken-recipe-ina-garten.html
+
 **What We Know About the Terrorist Groups India Said It Targeted**\
 `India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
 https://nytimes.com/2025/05/10/world/asia/what-is-lashkar-e-taiba-pakistan-kashmir-terror-groups.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/05/10/business/HaemanthusPatent.html
 **Pachuca not considering James Rodriguez for Club World Cup**\
 `Reports had suggested Pachuca may sign players from sister team Club Leon, who themselves were removed from the competition in March.`\
 https://nytimes.com/athletic/6287187/2025/05/10/james-rodriguez-club-world-cup-pachuca-leon/
-
-**India and Pakistan, old enemies, had a new weapon this time: drones.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-and-pakistan-old-enemies-had-a-new-weapon-this-time-drones
-
-**Yankees' Jasson Domínguez is accomplishing more than just franchise history**\
-`A big difference for Domínguez this year, he is now comfortable communicating in his second language without the help of a translator.`\
-https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-field-english/
-
-**McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
-`The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
-https://nytimes.com/athletic/6346190/2025/05/10/mclaughlin-levrone-100m-grand-slam-track/
 
