@@ -1,3 +1,15 @@
+**Lewandowski, Balde not fit to start in Sunday's Clasico**\
+`Barcelona head coach Hansi Flick did say the pair would be in line for some minutes during the game.`\
+https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clasico-team-news/
+
+**Here’s the latest.**\
+`By Anupreeta Das, Mujib Mashal and Qasim Nauman`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-pakistan-truce-trump
+
+**Live Updates: Trump Says U.S. Brokered Truce Between India and Pakistan**\
+`Indian and Pakistani officials confirmed that the two sides had called a cease-fire after four days of an alarming escalation in fighting, though neither mentioned an American role.`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
+
 **Mailbag: Which first-round pick will Penguins get from Rangers?**\
 `A look at the Rangers' decision and how it will impact the Penguins, Mike Sullivan's time in Pittsburgh and much more.`\
 https://nytimes.com/athletic/6344571/2025/05/10/penguins-rangers-nhl-draft-pick-condition-mailbag/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6345989/2025/05/10/nhl-playoffs-winnipeg-jets-game-
 **Three reasons why the Oilers are in control against the Golden Knights**\
 `The Oilers have taken a 2-0 advantage in their matchup against Vegas because they’ve had a clear advantage in a few key areas.`\
 https://nytimes.com/athletic/6345404/2025/05/10/oilers-golden-knights-nhl-playoffs-game-3/
-
-**Pope Leo, Peru and Me**\
-`I am a Peruvian who embraced America, and the pope is an American who embraced Peru.`\
-https://nytimes.com/2025/05/10/opinion/pope-leo-peru.html
-
-**In Rafael Devers vs. the Red Sox, both carry blame in a messy situation**\
-`The Red Sox could have communicated with their star player better, but Devers could also be more accommodating of the team's needs. `\
-https://nytimes.com/athletic/6345712/2025/05/10/rafael-devers-red-sox-dispute/
-
-**How Trump Can Close a Nuclear Deal with Iran**\
-`Donald Trump will either have to accept a nuclear deal with Iran that looks a lot like the one he denounced, or use military force, with hugely unpredictable consequences.`\
-https://nytimes.com/2025/05/10/opinion/international-world/how-trump-can-close-a-nuclear-deal-with-iran.html
 
