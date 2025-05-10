@@ -1,3 +1,7 @@
+**Flyers prospects Luchanko, Bump getting taste of playoff hockey with Phantoms**\
+`Jett Luchanko and Alex Bump connected for some highlight reel scores in a playoff series against the Wilkes-Barre/Scranton Penguins.`\
+https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-hockey-phantoms/
+
 **See Historical Records Documenting the Pope’s Creole Roots in New Orleans**\
 `The documents, including census records, baptismal rolls and marriage certificates, trace the story of Pope Leo’s mother’s family and their diverse background before moving to Chicago.`\
 https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
