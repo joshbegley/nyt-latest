@@ -1,40 +1,40 @@
-**Megan Campbell sets world record for longest soccer throw-in by a woman**\
-`Campbell, 31, recorded a throw of 37.55m (123 ft 2 in) at London City Lionesses' training ground on April 30.`\
-https://nytimes.com/athletic/6346057/2025/05/10/megan-campbell-world-record-throw-in/
+**After an impressive Game 2 win, five reasons to start believing in the Jets**\
+`Everything went right for the Jets in a 4-0 win over the Stars and suddenly there are signs they are rolling now.`\
+https://nytimes.com/athletic/6345989/2025/05/10/nhl-playoffs-winnipeg-jets-game-2-win/
 
-**Thunder offense goes missing in OT in Game 3, and OKC must find it fast**\
-`To avoid a 3-1 hole, the Thunder will need to identify the root of their offensive issues which led to an abysmal overtime showing.`\
-https://nytimes.com/athletic/6346018/2025/05/10/thunder-offense-game-2-nuggets-nba-playoffs/
+**Three reasons why the Oilers are in control against the Golden Knights**\
+`The Oilers have taken a 2-0 advantage in their matchup against Vegas because they’ve had a clear advantage in a few key areas.`\
+https://nytimes.com/athletic/6345404/2025/05/10/oilers-golden-knights-nhl-playoffs-game-3/
 
-**Brad Marchand, Leafs killer: The Bruin turned Panther is doing it again**\
-`When it’s the Leafs and it’s the playoffs, Brad Marchand is at his best. He beat the Maple Leafs once more in overtime of Game 3.`\
-https://nytimes.com/athletic/6345984/2025/05/10/brad-marchand-panthers-maple-leafs-nhl-playoffs/
+**Pope Leo, Peru and Me**\
+`I am a Peruvian who embraced America, and the pope is an American who embraced Peru.`\
+https://nytimes.com/2025/05/10/opinion/pope-leo-peru.html
 
-**Soviet Spacecraft Crash Lands on Earth After a Journey of Half a Century**\
-`Kosmos-482, a spacecraft bound for Venus in 1972, was a time capsule from the Cold War when superpowers had broad ambitions for exploring the solar system.`\
-https://nytimes.com/2025/05/10/science/kosmos-482-crash-soviet-spacecraft.html
+**In Rafael Devers vs. the Red Sox, both carry blame in a messy situation**\
+`The Red Sox could have communicated with their star player better, but Devers could also be more accommodating of the team's needs. `\
+https://nytimes.com/athletic/6345712/2025/05/10/rafael-devers-red-sox-dispute/
 
-**Nuggets' other guys lift Nikola Jokić for a change in Game 3 win**\
-`For so many years, the brilliance of Jokić has masked some roster flaws. On Friday night, Jokić was truly picked up by his teammates.`\
-https://nytimes.com/athletic/6345948/2025/05/10/nuggets-other-guys-lift-nikola-jokic-for-a-change-in-game-3-ot-win-over-thunder/
+**How Trump Can Close a Nuclear Deal with Iran**\
+`Donald Trump will either have to accept a nuclear deal with Iran that looks a lot like the one he denounced, or use military force, with hugely unpredictable consequences.`\
+https://nytimes.com/2025/05/10/opinion/international-world/how-trump-can-close-a-nuclear-deal-with-iran.html
 
-**Angel City's Savy King 'responsive' in hospital after collapsing on field**\
-`The 20-year-old U.S. youth international received treatment on the pitch at the BMO Stadium before being taken to hospital.`\
-https://nytimes.com/athletic/6346055/2025/05/10/savy-king-angel-city-collapse/
+**Barry Diller’s Moment of Truth**\
+`At 83, the mogul looks back on his sprawling, complicated life and surveys Trump’s America.`\
+https://nytimes.com/2025/05/10/opinion/barry-dillers-moment-of-truth.html
 
-**Bears rookie minicamp: What we learned from Colston Loveland, Luther Burden, Ozzy Trapilo**\
-`The Bears' draft picks took the field at Halas Hall for the first time and we heard from their top four picks — and coach Ben Johnson.`\
-https://nytimes.com/athletic/6345213/2025/05/10/bears-rookie-minicamp-colston-loveland-luther-burden/
+**These Internal Documents Show Why We Shouldn’t Trust Porn Companies**\
+`Five years ago at Pornhub, executives were removing the most obvious videos of children. But one employee said ‘obvious’ meant a ‘3-year-old.’`\
+https://nytimes.com/2025/05/10/opinion/these-internal-documents-show-why-we-shouldnt-trust-porn-companies.html
 
-**Plot Twists**\
-`The best art makes us question the received ideas we’ve internalized and, just maybe, offers us ideas for living differently.`\
-https://nytimes.com/2025/05/10/briefing/plot-twists.html
+**‘The Studio’ Knows the Real Reason Movies Are Bad**\
+`The satirical comedy about Hollywood is as much a send-up of the audience as it is of the industry.`\
+https://nytimes.com/2025/05/10/opinion/the-studio-rogen.html
 
-**How the Leafs were exploited by Panthers in Game 3 — and how they can adjust**\
-`With the benefit of last change on home ice, Panthers coach Paul Maurice's matchup changes were the root cause of Toronto's Game 3 loss.`\
-https://nytimes.com/athletic/6345881/2025/05/10/maple-leafs-panthers-game-3-nhl-playoffs/
+**Weird ideas? Creativity? MLB player Mark Canha believes they are crucial to success**\
+`How does Mark Canha foster a creative mentality? "Be in love with what you're doing," and if you're not good at it, you're upset. `\
+https://nytimes.com/athletic/6345399/2025/05/10/mark-canha-kansas-city-royals-mlb-creativity-mindset-training/
 
-**How to watch the SEC softball tournament championship game: Oklahoma takes on Texas A&M**\
-`The SEC has been the country's most dominant college softball league by leaps and bounds. The conference tournament finals go down Saturday.`\
-https://nytimes.com/athletic/6345051/2025/05/10/oklahoma-texas-am-sec-softball-tournament-how-to-watch/
+**Facing the Realities of Severe Autism**\
+`Readers react to a woman’s account of raising her autistic child.`\
+https://nytimes.com/2025/05/10/opinion/severe-autism-parents.html
 
