@@ -1,3 +1,7 @@
+**Tyrese Haliburton denies running from media after Pacers' Game 3 loss**\
+`“I talk to y'all almost after every game. If I'm not made available, it's not always my decision. I can't control it," he said Saturday.`\
+https://nytimes.com/athletic/6346619/2025/05/10/pacers-tyrese-haliburton-game-3-media-availability/
+
 **Salah admits there was 'tension' between he and Mane at Liverpool**\
 `Salah says the pair were always professional and their tension never affected Liverpool during their time as teammates.`\
 https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
