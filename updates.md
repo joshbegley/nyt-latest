@@ -1,3 +1,7 @@
+**India and Pakistan, old enemies, had a new weapon this time: drones.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-and-pakistan-old-enemies-had-a-new-weapon-this-time-drones
+
 **Earthquake Rattles Parts of Tennessee and Georgia**\
 `The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
 https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html

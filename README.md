@@ -1,3 +1,11 @@
+**Haemanthus’s Patent for ‘Raman Spectroscopy System’**\
+`A patent for a “Raman Spectroscopy System” filed by Haemanthus.`\
+https://nytimes.com/interactive/2025/05/10/business/HaemanthusPatent.html
+
+**Pachuca not considering James Rodriguez for Club World Cup**\
+`Reports had suggested Pachuca may sign players from sister team Club Leon, who themselves were removed from the competition in March.`\
+https://nytimes.com/athletic/6287187/2025/05/10/james-rodriguez-club-world-cup-pachuca-leon/
+
 **India and Pakistan, old enemies, had a new weapon this time: drones.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-and-pakistan-old-enemies-had-a-new-weapon-this-time-drones
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/10/world/europe/leo-xiv-pope-francis-catholic-church
 **Iga Swiatek's serve deserts her in Italian Open upset against Danielle Collins**\
 `Świątek struggled throughout on serve against the American. The pressure that put on her tennis led to another strange loss on clay`\
 https://nytimes.com/athletic/6346152/2025/05/10/iga-swiatek-italian-open-danielle-collins-result-analysis/
-
-**Trump Administration Live Updates: Judge Pauses Trump Plans for Mass Layoffs**\
-``\
-https://nytimes.com/live/2025/05/10/us/trump-news
-
-**The Chiffon Cake Is Standing Tall Again**\
-`A favorite of golden age Hollywood, the airy confection is entrancing a new generation of bakers.`\
-https://nytimes.com/2025/05/10/t-magazine/chiffon-cake-baking.html
 
