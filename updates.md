@@ -1,3 +1,7 @@
+**Kane after winning first trophy: 'Hopefully, this is the first of many'**\
+`Bayern's league title victory is the 31-year-old striker’s first piece of silverware in his 15-year career.`\
+https://nytimes.com/athletic/6346729/2025/05/10/kane-trophy-bayern-munich/
+
 **Salah admits there was 'tension' between him and Mane at Liverpool**\
 `Salah says the pair were always professional and their tension never affected Liverpool during their time as teammates.`\
 https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/

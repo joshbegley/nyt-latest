@@ -1,3 +1,7 @@
+**Kane after winning first trophy: 'Hopefully, this is the first of many'**\
+`Bayern's league title victory is the 31-year-old striker’s first piece of silverware in his 15-year career.`\
+https://nytimes.com/athletic/6346729/2025/05/10/kane-trophy-bayern-munich/
+
 **Sovereignty jockey fined for striking horse too many times in Kentucky Derby win**\
 `Since riding crop penalties were introduced in 2022, Alvarado has been penalized nine times, HISA records indicate.`\
 https://nytimes.com/athletic/6346668/2025/05/10/sovereignty-jockey-fine-kentucky-derby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346503/2025/05/10/shedeur-sanders-browns-rookie-mi
 **Flyers prospects Luchanko, Bump getting taste of playoff hockey with Phantoms**\
 `Jett Luchanko and Alex Bump connected for some highlight reel scores in a playoff series against the Wilkes-Barre/Scranton Penguins.`\
 https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-hockey-phantoms/
-
-**See Historical Records Documenting the Pope’s Creole Roots in New Orleans**\
-`The documents, including census records, baptismal rolls and marriage certificates, trace the story of Pope Leo’s mother’s family and their diverse background before moving to Chicago.`\
-https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
 
