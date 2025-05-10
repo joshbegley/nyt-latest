@@ -1,3 +1,23 @@
+**Hurzeler: This season proves Premier League is the best in the world**\
+`Brighton are 10th in the table in the hunt for European qualification.`\
+https://nytimes.com/athletic/6344091/2025/05/10/brighton-fabian-hurzeler-premier-league/
+
+**New York Pauses Sales of Popular Cannabis Vapes Amid Investigation**\
+`Regulators are looking into whether several cannabis companies are making illegal products for sale in New York. The products may be worth more than $10 million.`\
+https://nytimes.com/2025/05/10/nyregion/new-york-pauses-sales-of-popular-cannabis-vapes-amid-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/10/crosswords/spelling-bee-forum.html
+
+**How a Sheep-Herding Cardiologist Spends His Sundays**\
+`Dr. David Slotwiner de-stresses from a busy week at his Queens hospital by escaping to a New Jersey farm to herd sheep with his Border collies.`\
+https://nytimes.com/2025/05/10/nyregion/sheep-herding-cardiologist.html
+
+**If Your Vibe Is Right, He Might Let You Into the Club**\
+`Fabrizio Brienza is among New York City’s most experienced gatekeepers, standing watch outside nightclubs and curating the crowd inside.`\
+https://nytimes.com/2025/05/10/nyregion/fabrizio-brienza-nightclub-gatekeeper.html
+
 **'Y'all don't understand what I'm going through': How the Cavs fought through pain to win Game 3**\
 `Darius Garland, Evan Mobley and De'Andre Hunter returned Friday. "We're a different team out there (with them in uniform)," Atkinson said.`\
 https://nytimes.com/athletic/6345938/2025/05/10/cavs-pacers-game-3-mobley-garland-hunter-return/
@@ -18,24 +38,4 @@ https://nytimes.com/issue/todayspaper/2025/05/10/todays-new-york-times
 **Records Offer Glimpses Inside the Doomed Prosecution of Eric Adams**\
 `Federal prosecutors released sworn statements and other records detailing key moments in a corruption case that roiled New York City.`\
 https://nytimes.com/2025/05/10/nyregion/adams-corruption-investigation-records.html
-
-**Chris Paddack's dominant outing lifts bullpen, extends Twins' win streak to six**\
-`The velocity on all of Paddack's pitches was up from his season average.`\
-https://nytimes.com/athletic/6345877/2025/05/10/chris-paddack-twins-win-streak-six/
-
-**How Liverpool squad's rejigged leadership group could look next season**\
-`Trent Alexander-Arnold's imminent exit from his boyhood club means there is space for a new senior player in the leadership group`\
-https://nytimes.com/athletic/6339286/2025/05/10/liverpool-leadership-group/
-
-**Ange Postecoglou's voyage to a different world gives Daniel Levy something to ponder**\
-`Postecoglou has spoken of the “parallel worlds” Spurs are trying to traverse this season - we'll soon know which of the two is real`\
-https://nytimes.com/athletic/6343461/2025/05/10/ange-postecolgous-voyage-to-a-different-world-gives-daniel-levy-something-to-ponder/
-
-**Arsenal and Mikel Arteta, what next? 'We have to prove that we can do it'**\
-`Arteta sounds like someone who knows what needs to be done at Arsenal, now the onus is on him and the club's top brass to do it`\
-https://nytimes.com/athletic/6344857/2025/05/10/arsenal-and-mikel-arteta-what-next-we-have-to-prove-that-we-can-do-it/
-
-**Connor Hellebuyck, Jets shut out Stars in Game 2 to even series: Takeaways**\
-`Hellebuyck’s 21-save shutout, his first playoff shutout in four years, sends the series to Dallas tied 1-1.`\
-https://nytimes.com/athletic/6345320/2025/05/10/jets-stars-nhl-playoffs-2025-game-2-takeaways/
 
