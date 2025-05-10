@@ -1,3 +1,7 @@
+**How Xi and Putin Got Closer**\
+`In terms of geopolitical bromances, this is it. David Pierson, a foreign correspondent for The New York Times covering China, explains how President Vladimir V. Putin of Russia and Xi Jinping, the leader of China, are closer than ever before.`\
+https://nytimes.com/video/world/asia/100000010157380/how-xi-and-putin-got-closer.html
+
 **Donovan Mitchell nears legend status in Cleveland: Cavs thoughts ahead of Game 4**\
 `Donovan Mitchell is having a series worthy of being compared to LeBron James.`\
 https://nytimes.com/athletic/6346340/2025/05/10/donovan-mitchell-game-4-cavs-pacers-nba-playoffs/
