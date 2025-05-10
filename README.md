@@ -1,3 +1,11 @@
+**Ohio Man Sent Threats Saying He Had Bullets Etched With People’s Names, U.S. Says**\
+`The man sent letters and emails to 34 public officials and members of law enforcement, the authorities said. Some letters contained a white powder and at least one had a bullet.`\
+https://nytimes.com/2025/05/10/us/letter-email-threats-ohio.html
+
+**What’s the Cost to Society of Pollution? Trump Says Zero.**\
+`The Trump administration has directed agencies to stop estimating the economic impact of climate change when developing policies and regulations.`\
+https://nytimes.com/2025/05/10/climate/social-cost-carbon-trump.html
+
 **Tyrese Haliburton denies running from media after Pacers' Game 3 loss**\
 `“I talk to y'all almost after every game. If I'm not made available, it's not always my decision. I can't control it," he said Saturday.`\
 https://nytimes.com/athletic/6346619/2025/05/10/pacers-tyrese-haliburton-game-3-media-availability/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6346417/2025/05/10/southampton-derby-premier-league
 **Leafs goalie Stolarz appears unlikely to return to series vs. Panthers**\
 `Stolarz left Game 1 after being elbowed in the head by Panthers centre Sam Bennett.`\
 https://nytimes.com/athletic/6346419/2025/05/10/maple-leafs-anthony-stolarz-injury-panthers/
-
-**The Briefing: Southampton 0 Man City 0 - Haaland's return falls flat as top-five battle takes a twist**\
-`Analysing the major talking points from Saturday's Premier League game at St Mary's`\
-https://nytimes.com/athletic/6339308/2025/05/10/southampton-manchester-city-result-analysis/
-
-**Elizabeth Holmes’s Partner Has a New Blood-Testing Start-Up**\
-`Billy Evans has two children with the Theranos founder, who is in prison for fraud. He’s now trying to raise money for a testing company that promises “human health optimization.”`\
-https://nytimes.com/2025/05/10/business/elizabeth-holmes-partner-blood-testing-startup.html
 
