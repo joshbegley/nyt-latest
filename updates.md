@@ -1,3 +1,7 @@
+**The Briefing: Southampton 0 Man City 0 - Haaland return falls flat as top five battle takes a twist**\
+`Analysing the major talking points from Saturday's Premier League game at St Mary's`\
+https://nytimes.com/athletic/6339308/2025/05/10/southampton-manchester-city-result-analysis/
+
 **Elizabeth Holmes’s Partner Has a New Blood-Testing Start-Up**\
 `Billy Evans has two children with the Theranos founder, who is in prison for fraud. He’s now trying to raise money for a testing company that promises “human health optimization.”`\
 https://nytimes.com/2025/05/10/business/elizabeth-holmes-partner-blood-testing-startup.html
