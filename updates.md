@@ -1,3 +1,7 @@
+**Xabi Alonso worked wonders at Bayer Leverkusen. Would his tactics and style suit Real Madrid?**\
+`Analysing Alonso's influence and impact at Leverkusen and how that might translate if he were to replace Ancelotti at Real Madrid `\
+https://nytimes.com/athletic/6344650/2025/05/10/alonso-leverkusen-madrid-tactics-style/
+
 **King’s Indian Attack, solid pawn structure and a booming fianchetto - Eze's chess game analysed**\
 `The Crystal Palace forward recently took time out of FA Cup final preparations to win a four-day online chess tournament, so he is any good?`\
 https://nytimes.com/athletic/6343902/2025/05/10/eberechi-eze-chess-crystal-palace/

@@ -2,6 +2,10 @@
 `The Crystal Palace forward recently took time out of FA Cup final preparations to win a four-day online chess tournament, so he is any good?`\
 https://nytimes.com/athletic/6343902/2025/05/10/eberechi-eze-chess-crystal-palace/
 
+**Xabi Alonso worked wonders at Bayer Leverkusen. Would his tactics and style suit Real Madrid?**\
+`Analysing Alonso's influence and impact at Leverkusen and how that might translate if he were to replace Ancelotti at Real Madrid `\
+https://nytimes.com/athletic/6344650/2025/05/10/alonso-leverkusen-madrid-tactics-style/
+
 **Trump Calls for 20,000 Extra Officers to Help With Deportation Efforts**\
 `The order, which would use state and local officers, among others, would represent an enormous expansion of immigration enforcement. But it is unclear how it would be paid for.`\
 https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/world/europe/macron-zelensky-relationship.html
 **Connections: Sports Edition Coach: Hints for May 10, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6345835/2025/05/10/connections-sports-edition-hints-for-may-10-2025/
-
-**With U.S. Trade Deal, British Steel Industry Feels Some Much Needed Relief**\
-`The agreement to lift the 25 percent duty on steel exported to the United States provided some relief for struggling businesses, but uncertainties for the industry remain.`\
-https://nytimes.com/2025/05/10/business/trump-uk-us-trade-steel.html
 
