@@ -68,6 +68,11 @@ https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-
 `\
 https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
 
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
 **The New York Times in Print for Saturday, May 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/10/todays-new-york-times
