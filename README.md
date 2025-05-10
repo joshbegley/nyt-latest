@@ -1,3 +1,11 @@
+**Bills rookie minicamp: First looks at speedy Maxwell Hairston, huge Landon Jackson, and more**\
+`Plus, T.J. Sanders' quick moves and testing out Jordan Hancock.`\
+https://nytimes.com/athletic/6345376/2025/05/10/bills-rookie-minicamp-maxwell-hairston-landon-jackson/
+
+**Lions rookie minicamp: Big praise for Tyleik Williams, a glimpse of the new coaches, and more**\
+`Plus notes and observations on other rookies and UDFAs.`\
+https://nytimes.com/athletic/6345273/2025/05/10/lions-rookie-minicamp-tyleik-williams/
+
 **Can Whitney Wolfe Herd Make Us Love Dating Apps Again?**\
 `The Bumble CEO has returned to run the struggling company she founded, and says she has a plan for getting Gen Z back.`\
 https://nytimes.com/2025/05/10/magazine/whitney-wolfe-herd-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/10/us/pope-leo-childhood-chicago-catholics.html
 **Putin Puts on Show of Defiance as Cease-Fire Talks Drag On**\
 `Russia’s president used the celebration of victory in World War II to highlight the resources he has to keep fighting in Ukraine.`\
 https://nytimes.com/2025/05/10/world/europe/putin-russia-victory-day-parade.html
-
-**Europe Wants to Arm Ukraine, but It’s Losing a Race Against Time**\
-`President Trump’s insistence that the United States do less toward securing Europe means that allies, scrambling to arm themselves, have less to give to Ukraine.`\
-https://nytimes.com/2025/05/10/world/europe/eu-ukraine-weapons.html
-
-**Attacking Trump’s Tariffs, Democrats Focus on Small Business Struggles**\
-`The party is trying to leverage local entrepreneurs’ concerns to argue that President Trump’s tariffs are yet another gift to the rich and powerful at the expense of everyday Americans.`\
-https://nytimes.com/2025/05/10/us/tariffs-democrats-small-business.html
 

@@ -1,3 +1,15 @@
+**Can Whitney Wolfe Herd Make Us Love Dating Apps Again?**\
+`The Bumble CEO has returned to run the struggling company she founded, and says she has a plan for getting Gen Z back.`\
+https://nytimes.com/2025/05/10/magazine/whitney-wolfe-herd-interview.html
+
+**Can Whitney Wolfe Herd Make Us Love Dating Apps Again?**\
+`The Bumble CEO has returned to run the struggling company she founded, and says she has a plan for getting Gen Z back.`\
+https://nytimes.com/video/podcasts/100000010147979/can-whitney-wolfe-herd-make-us-love-dating-apps-again.html
+
+**Voice of Lay Catholics Is Likely to Be Heard in Leo XIV’s Church**\
+`When still a cardinal, the new pope led discussions on key issues facing the church during which “every voice had equal value,” whether an archbishop or an unordained believer.`\
+https://nytimes.com/2025/05/10/world/europe/pope-leo-xiv-lay-catholics-synodal.html
+
 **Falcons set high expectations for rookies, starting with Jalon Walker, James Pearce Jr.**\
 `Falcons coach Raheem Morris said the team expects its top rookies "to play a significant amount of football” this season.`\
 https://nytimes.com/athletic/6345100/2025/05/10/falcons-rookie-minicamp-jalon-walker-james-pearce/
