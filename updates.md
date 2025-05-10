@@ -1,3 +1,7 @@
+**How Liverpool squad's rejigged leadership group could look next season**\
+`Trent Alexander-Arnold's imminent exit from his boyhood club means there is space for a new senior player in the leadership group`\
+https://nytimes.com/athletic/6339286/2025/05/10/liverpool-leadership-group/
+
 **Ange Postecoglou's voyage to a different world gives Daniel Levy something to ponder**\
 `Postecoglou has spoken of the “parallel worlds” Spurs are trying to traverse this season - we'll soon know which of the two is real`\
 https://nytimes.com/athletic/6343461/2025/05/10/ange-postecolgous-voyage-to-a-different-world-gives-daniel-levy-something-to-ponder/
