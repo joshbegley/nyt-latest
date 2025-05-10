@@ -1,3 +1,7 @@
+**European Leaders Visit Kyiv in a Show of Solidarity for Ukraine**\
+`They renewed the push for an unconditional 30-day cease-fire that Russia has rebuffed.`\
+https://nytimes.com/2025/05/10/world/europe/ukraine-war-visit-starmer-macron-zelensky-merz.html
+
 **After an impressive Game 2 win, five reasons to start believing in the Jets**\
 `Everything went right for the Jets in a 4-0 win over the Stars and suddenly there are signs they are rolling now.`\
 https://nytimes.com/athletic/6345989/2025/05/10/nhl-playoffs-winnipeg-jets-game-2-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/opinion/the-studio-rogen.html
 **Weird ideas? Creativity? MLB player Mark Canha believes they are crucial to success**\
 `How does Mark Canha foster a creative mentality? "Be in love with what you're doing," and if you're not good at it, you're upset. `\
 https://nytimes.com/athletic/6345399/2025/05/10/mark-canha-kansas-city-royals-mlb-creativity-mindset-training/
-
-**Facing the Realities of Severe Autism**\
-`Readers react to a woman’s account of raising her autistic child.`\
-https://nytimes.com/2025/05/10/opinion/severe-autism-parents.html
 
