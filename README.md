@@ -1,3 +1,7 @@
+**The Briefing: Southampton 0 Man City 0 - Haaland return falls flat as top five battle takes a twist**\
+`Analysing the major talking points from Saturday's Premier League game at St Mary's`\
+https://nytimes.com/athletic/6339308/2025/05/10/southampton-manchester-city-result-analysis/
+
 **Elizabeth Holmes’s Partner Has a New Blood-Testing Start-Up**\
 `Billy Evans has two children with the Theranos founder, who is in prison for fraud. He’s now trying to raise money for a testing company that promises “human health optimization.”`\
 https://nytimes.com/2025/05/10/business/elizabeth-holmes-partner-blood-testing-startup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/world/americas/pope-leo-american-popular-world-re
 **Ancelotti says his 'honeymoon' with Real Madrid will never end**\
 `The Athletic has reported that Ancelotti and Madrid have agreed terms for his departure, with the Italian expected to now coach Brazil.`\
 https://nytimes.com/athletic/6346270/2025/05/10/real-madrid-clasico-ancelotti-future/
-
-**Haemanthus’s Patent for ‘Raman Spectroscopy System’**\
-`A patent for a “Raman Spectroscopy System” filed by Haemanthus.`\
-https://nytimes.com/interactive/2025/05/10/business/HaemanthusPatent.html
 
