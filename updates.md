@@ -1,3 +1,16 @@
+**India and Pakistan Enter a More Dangerous Era**\
+`There’s been a profound and dangerous shift in their rivalry, and it threatens U.S. interests.`\
+https://nytimes.com/2025/05/09/opinion/india-and-pakistan-enter-a-more-dangerous-era.html
+
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
+**Red Sox owner John Henry meets with Rafael Devers 1-on-1 in Kansas City**\
+`Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
+https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
+
 **Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
 `“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
 `\
