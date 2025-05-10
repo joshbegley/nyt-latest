@@ -1,3 +1,7 @@
+**In Pope Leo, Some in MAGA Movement See an Antagonist**\
+`While President Trump welcomed the U.S.-born cardinal as the new pope, top Trump allies criticized Leo XIV for his similarities to Pope Francis.`\
+https://nytimes.com/2025/05/09/us/pope-leo-maga-donald-trump-steve-bannon.html
+
 **Republicans Lay Out Early Plans to Extend and Expand Trump Tax Cuts**\
 `House Republicans rolled out the first pieces of a roughly $4 trillion tax cut they hope to pass, including measures that would last just for President Trump’s term.`\
 https://nytimes.com/2025/05/09/us/politics/republicans-trump-tax-cuts.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/technology/google-texas-privacy-settlement.html
 **Reds acquire outfielder Connor Joe from Padres**\
 `The Reds added some outfield depth after placing three players on the injured list over the past week.`\
 https://nytimes.com/athletic/6345670/2025/05/09/reds-padres-connor-joe-trade/
-
-**A United Front for Pope Leo Among American Cardinals**\
-`One cardinal who cast his ballot said the pope’s choice of the papal name Leo might signal a particular interest in workers’ rights.`\
-https://nytimes.com/2025/05/09/us/pope-leo-american-cardinals.html
 
