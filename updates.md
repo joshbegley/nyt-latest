@@ -1,3 +1,7 @@
+**The Pulse: A model franchise becomes a mess**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6345894/2025/05/10/steelers-aaron-rodgers-the-pulse/
+
 **European Leaders Visit Kyiv in a Show of Solidarity for Ukraine**\
 `They renewed the push for an unconditional 30-day cease-fire that Russia has rebuffed.`\
 https://nytimes.com/2025/05/10/world/europe/ukraine-war-visit-starmer-macron-zelensky-merz.html
