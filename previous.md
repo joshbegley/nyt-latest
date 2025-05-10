@@ -22,7 +22,7 @@ https://nytimes.com/2025/05/09/world/europe/pope-leo-voting-record-illinois.html
 `The 49ers released DE Drake Jackson, a 2022 second-round pick, with a failed physical and signed OTs Andre Dillard and Nicholas Petit-Frere.`\
 https://nytimes.com/athletic/6345499/2025/05/09/49ers-rookie-camp-mykel-williams/
 
-**Francis Connected With Leo Long Ago and Boosted His Career**\
+**Francis and Leo Connected Long Ago**\
 `The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
 
