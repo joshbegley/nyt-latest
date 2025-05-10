@@ -1,3 +1,7 @@
+**Angel City's Savy King 'responsive' in hospital after collapsing on field**\
+`The 20-year-old U.S. youth international received treatment on the pitch at BMO Stadium before being taken to hospital.`\
+https://nytimes.com/athletic/6346055/2025/05/10/savy-king-angel-city-collapse/
+
 **Bears rookie minicamp: What we learned from Colston Loveland, Luther Burden, Ozzy Trapilo**\
 `The Bears' draft picks took the field at Halas Hall for the first time and we heard from their top four picks — and coach Ben Johnson.`\
 https://nytimes.com/athletic/6345213/2025/05/10/bears-rookie-minicamp-colston-loveland-luther-burden/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/crosswords/connections-companion-700.html
 **The Shifting Conversation Around Canada’s Opioid Crisis**\
 `President Trump’s claims about fentanyl trafficking have played a role in refocusing Canada’s attention on border control.`\
 https://nytimes.com/2025/05/10/world/canada/canada-fentanyl-ports.html
-
-**Wordle Review No. 1,422**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 11, 2025.`\
-https://nytimes.com/2025/05/10/crosswords/wordle-review-1422.html
 
