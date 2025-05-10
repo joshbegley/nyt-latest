@@ -1,3 +1,15 @@
+**Mailbag: Which first-round pick will Penguins get from Rangers?**\
+`A look at the Rangers' decision and how it will impact the Penguins, Mike Sullivan's time in Pittsburgh and much more.`\
+https://nytimes.com/athletic/6344571/2025/05/10/penguins-rangers-nhl-draft-pick-condition-mailbag/
+
+**How Nickeil Alexander-Walker found his right frame of mind at perfect time**\
+`The Timberwolves' guard busted out of his slump by remembering the adaptability that got him a secure rotation spot in the NBA. `\
+https://nytimes.com/athletic/6345364/2025/05/10/nickeil-alexander-walker-timberwolves-highlight/
+
+**‘Don’t Need a Deal.’ Top Trump Economic Adviser Is All in on His China Hardball**\
+`In a wide-ranging interview, Stephen Miran, the president of the chair of President Trump’s Council of Economic Advisers, said “volatility doesn’t necessarily mean anything greater for the long term.”`\
+https://nytimes.com/2025/05/10/business/dealbook/stephen-miran-interview.html
+
 **The Pulse: A model franchise becomes a mess**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6345894/2025/05/10/steelers-aaron-rodgers-the-pulse/

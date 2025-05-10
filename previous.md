@@ -1,3 +1,15 @@
+**Mailbag: Which first-round pick will Penguins get from Rangers?**\
+`A look at the Rangers' decision and how it will impact the Penguins, Mike Sullivan's time in Pittsburgh and much more.`\
+https://nytimes.com/athletic/6344571/2025/05/10/penguins-rangers-nhl-draft-pick-condition-mailbag/
+
+**How Nickeil Alexander-Walker found his right frame of mind at perfect time**\
+`The Timberwolves' guard busted out of his slump by remembering the adaptability that got him a secure rotation spot in the NBA. `\
+https://nytimes.com/athletic/6345364/2025/05/10/nickeil-alexander-walker-timberwolves-highlight/
+
+**‘Don’t Need a Deal.’ Top Trump Economic Adviser Is All in on His China Hardball**\
+`In a wide-ranging interview, Stephen Miran, the president of the chair of President Trump’s Council of Economic Advisers, said “volatility doesn’t necessarily mean anything greater for the long term.”`\
+https://nytimes.com/2025/05/10/business/dealbook/stephen-miran-interview.html
+
 **The Pulse: A model franchise becomes a mess**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6345894/2025/05/10/steelers-aaron-rodgers-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6345712/2025/05/10/rafael-devers-red-sox-dispute/
 **How Trump Can Close a Nuclear Deal with Iran**\
 `Donald Trump will either have to accept a nuclear deal with Iran that looks a lot like the one he denounced, or use military force, with hugely unpredictable consequences.`\
 https://nytimes.com/2025/05/10/opinion/international-world/how-trump-can-close-a-nuclear-deal-with-iran.html
-
-**Barry Diller’s Moment of Truth**\
-`At 83, the mogul looks back on his sprawling, complicated life and surveys Trump’s America.`\
-https://nytimes.com/2025/05/10/opinion/barry-dillers-moment-of-truth.html
-
-**These Internal Documents Show Why We Shouldn’t Trust Porn Companies**\
-`Five years ago at Pornhub, executives were removing the most obvious videos of children. But one employee said ‘obvious’ meant a ‘3-year-old.’`\
-https://nytimes.com/2025/05/10/opinion/these-internal-documents-show-why-we-shouldnt-trust-porn-companies.html
-
-**‘The Studio’ Knows the Real Reason Movies Are Bad**\
-`The satirical comedy about Hollywood is as much a send-up of the audience as it is of the industry.`\
-https://nytimes.com/2025/05/10/opinion/the-studio-rogen.html
 
