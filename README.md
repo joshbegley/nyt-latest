@@ -1,3 +1,11 @@
+**Greene Defiantly Rules Out a Senate Run in Georgia, to the Relief of G.O.P. Leaders**\
+`In a lengthy Friday night social media screed, the Republican congresswoman savaged her party’s leaders as she declared she would not pursue a Senate run.`\
+https://nytimes.com/2025/05/09/us/politics/mtg-marjorie-taylor-greene-georgia-senate.html
+
+**‘I’m Off!’**\
+`Shaun Phillips floats in on a well-crafted puzzle, where every word counts.`\
+https://nytimes.com/2025/05/09/crosswords/daily-puzzle-2025-05-10.html
+
 **Google Agrees to Pay $1.4 Billion to Settle 2 Privacy Lawsuits**\
 `The Texas attorney general brought the cases in 2022 under state laws.`\
 https://nytimes.com/2025/05/09/technology/google-texas-privacy-settlement.html
@@ -29,13 +37,4 @@ https://nytimes.com/2025/05/09/us/politics/trump-pirro-interim-prosecutor.html
 **India and Pakistan Enter a More Dangerous Era**\
 `There’s been a profound and dangerous shift in their rivalry, and it threatens U.S. interests.`\
 https://nytimes.com/2025/05/09/opinion/india-and-pakistan-enter-a-more-dangerous-era.html
-
-**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
-`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
-`\
-https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
-
-**Red Sox owner John Henry meets with Rafael Devers in Kansas City**\
-`Henry took the unusual step to fly to meet with Devers a day after Devers said he was upset the team asked him to move to first.`\
-https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
 
