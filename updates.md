@@ -1,3 +1,8 @@
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
 **India-Pakistan Conflict Escalates Sharply With Attacks on Military Bases**\
 `Pakistan said it had fired missiles at military sites in India after accusing India of targeting at least three of its air bases. India said it had targeted the bases in response to a wave of Pakistani attacks.`\
 https://nytimes.com/2025/05/10/world/asia/india-pakistan-conflict.html

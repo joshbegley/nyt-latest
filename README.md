@@ -1,3 +1,7 @@
+**'Y'all don't understand what I'm going through': How the Cavs fought through pain to win Game 3**\
+`Darius Garland, Evan Mobley and De'Andre Hunter returned Friday. "We're a different team out there (with them in uniform)," Atkinson said.`\
+https://nytimes.com/athletic/6345938/2025/05/10/cavs-pacers-game-3-mobley-garland-hunter-return/
+
 **India-Pakistan Conflict Escalates Sharply With Attacks on Military Bases**\
 `Pakistan said it had fired missiles at military sites in India after accusing India of targeting at least three of its air bases. India said it had targeted the bases in response to a wave of Pakistani attacks.`\
 https://nytimes.com/2025/05/10/world/asia/india-pakistan-conflict.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6344857/2025/05/10/arsenal-and-mikel-arteta-what-ne
 **Connor Hellebuyck, Jets shut out Stars in Game 2 to even series: Takeaways**\
 `Hellebuyck’s 21-save shutout, his first playoff shutout in four years, sends the series to Dallas tied 1-1.`\
 https://nytimes.com/athletic/6345320/2025/05/10/jets-stars-nhl-playoffs-2025-game-2-takeaways/
-
-**Are Chelsea better when they have less possession?**\
-`Chelsea beat Liverpool last week with their lowest possession all season. But does their form improve if the opponents have the ball more?`\
-https://nytimes.com/athletic/6344494/2025/05/10/chelsea-possession-more-less-analysis/
 
