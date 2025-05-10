@@ -1,4 +1,8 @@
 **Salah admits there was 'tension' between he and Mane at Liverpool**\
+`Salah says the pair were always professional and their tension never affected Liverpool during their time as teammates.`\
+https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
+
+**Salah admits there was 'tension' between he and Mane at Liverpool**\
 `Salah says the pair were always professional and their tension never affected Liverpool during their times as teammates.`\
 https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
 
