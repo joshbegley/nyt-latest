@@ -1,41 +1,40 @@
-**'Monster comes through': Shohei Ohtani's 9th-inning blast delivers wild win for Dodgers**\
-`Up by five runs then down by three, Los Angeles prevailed 14-11 when Ohtani came up in his familiar spot: the clutch.`\
-https://nytimes.com/athletic/6345993/2025/05/10/shohei-ohtani-home-run-dodgers-diamondbacks/
+**Falcons set high expectations for rookies, starting with Jalon Walker, James Pearce Jr.**\
+`Falcons coach Raheem Morris said the team expects its top rookies "to play a significant amount of football” this season.`\
+https://nytimes.com/athletic/6345100/2025/05/10/falcons-rookie-minicamp-jalon-walker-james-pearce/
 
-**Hurzeler: This season proves Premier League is the best in the world**\
-`Brighton are 10th in the table in the hunt for European qualification.`\
-https://nytimes.com/athletic/6344091/2025/05/10/brighton-fabian-hurzeler-premier-league/
+**Voice of Lay Catholics Is Likely to Be Heard in Leo XIV’s Church**\
+`When still a cardinal, the new pope led discussions on key issues facing the church during which “every voice had equal value,” whether an archbishop or an unordained believer.`\
+https://nytimes.com/2025/05/10/world/europe/pope-leoxiv-lay-catholics-synodal.html
 
-**New York Pauses Sales of Popular Cannabis Vapes Amid Investigation**\
-`Regulators are looking into whether several cannabis companies are making illegal products for sale in New York. The products may be worth more than $10 million.`\
-https://nytimes.com/2025/05/10/nyregion/new-york-pauses-sales-of-popular-cannabis-vapes-amid-investigation.html
+**The future of the Steelers' D-line begins to take shape at rookie minicamp**\
+`With eyes on first-round pick Derrick Harmon, the Steelers started rookie minicamp Friday.`\
+https://nytimes.com/athletic/6345374/2025/05/10/steelers-rookie-minicamp-derrick-harmon/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/10/crosswords/spelling-bee-forum.html
+**A Pope Who Ministers to the Suffering? Yup, He’s a White Sox Fan**\
+`Pope Leo was spotted at the 2005 World Series, a rare moment of triumph for the pride of Chicago’s South Side.`\
+https://nytimes.com/2025/05/10/us/pope-white-sox-cubs.html
 
-**How a Sheep-Herding Cardiologist Spends His Sundays**\
-`Dr. David Slotwiner de-stresses from a busy week at his Queens hospital by escaping to a New Jersey farm to herd sheep with his Border collies.`\
-https://nytimes.com/2025/05/10/nyregion/sheep-herding-cardiologist.html
+**Pope’s Childhood in a Changing Chicago Tells a Story of Catholic America**\
+`The pope grew up in a Catholic enclave on Chicago’s South Side. That community is gone now.`\
+https://nytimes.com/2025/05/10/us/pope-leo-childhood-chicago-catholics.html
 
-**If Your Vibe Is Right, He Might Let You Into the Club**\
-`Fabrizio Brienza is among New York City’s most experienced gatekeepers, standing watch outside nightclubs and curating the crowd inside.`\
-https://nytimes.com/2025/05/10/nyregion/fabrizio-brienza-nightclub-gatekeeper.html
+**Putin Puts on Show of Defiance as Cease-Fire Talks Drag On**\
+`Russia’s president used the celebration of victory in World War II to highlight the resources he has to keep fighting in Ukraine.`\
+https://nytimes.com/2025/05/10/world/europe/putin-russia-victory-day-parade.html
 
-**'Y'all don't understand what I'm going through': How the Cavs fought through pain to win Game 3**\
-`Darius Garland, Evan Mobley and De'Andre Hunter returned Friday. "We're a different team out there (with them in uniform)," Atkinson said.`\
-https://nytimes.com/athletic/6345938/2025/05/10/cavs-pacers-game-3-mobley-garland-hunter-return/
+**Europe Wants to Arm Ukraine, but It’s Losing a Race Against Time**\
+`President Trump’s insistence that the United States do less toward securing Europe means that allies, scrambling to arm themselves, have less to give to Ukraine.`\
+https://nytimes.com/2025/05/10/world/europe/eu-ukraine-weapons.html
 
-**India-Pakistan Conflict Escalates Sharply With Attacks on Military Bases**\
-`Pakistan said it had fired missiles at military sites in India after accusing India of targeting at least three of its air bases. India said it had targeted the bases in response to a wave of Pakistani attacks.`\
-https://nytimes.com/2025/05/10/world/asia/india-pakistan-conflict.html
+**Attacking Trump’s Tariffs, Democrats Focus on Small Business Struggles**\
+`The party is trying to leverage local entrepreneurs’ concerns to argue that President Trump’s tariffs are yet another gift to the rich and powerful at the expense of everyday Americans.`\
+https://nytimes.com/2025/05/10/us/tariffs-democrats-small-business.html
 
-**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
-`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
-`\
-https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+**The Chef Has a Love-Hate Relationship With Your Favorite Burger**\
+`The American classic gets diners in the door, but it can also be a real pain point for the restaurant.`\
+https://nytimes.com/2025/05/10/dining/burgers-jeremy-fox-birdie-gs.html
 
-**The New York Times in Print for Saturday, May 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/10/todays-new-york-times
+**Trump, Raking In Cash, Expands His Power in the G.O.P. Money World**\
+`His super PAC, which is said to have amassed $400 million alongside its nonprofit arm, has grown even more influential. And powerful groups for congressional Republicans are being stocked with Trump allies.`\
+https://nytimes.com/2025/05/10/us/politics/trump-republicans-money-super-pacs.html
 
