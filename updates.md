@@ -1,3 +1,15 @@
+**Southampton avoid tying record for least points in a Premier League season**\
+`Derby County recorded only 11 points in 2007-08 season, which Southampton have surpassed following Saturday's home draw.`\
+https://nytimes.com/athletic/6346417/2025/05/10/southampton-derby-premier-league-record/
+
+**Leafs goalie Stolarz appears unlikely to return to series vs. Panthers**\
+`Stolarz left Game 1 after being elbowed in the head by Panthers centre Sam Bennett.`\
+https://nytimes.com/athletic/6346419/2025/05/10/maple-leafs-anthony-stolarz-injury-panthers/
+
+**The Briefing: Southampton 0 Man City 0 - Haaland's return falls flat as top-five battle takes a twist**\
+`Analysing the major talking points from Saturday's Premier League game at St Mary's`\
+https://nytimes.com/athletic/6339308/2025/05/10/southampton-manchester-city-result-analysis/
+
 **The Briefing: Southampton 0 Man City 0 - Haaland return falls flat as top five battle takes a twist**\
 `Analysing the major talking points from Saturday's Premier League game at St Mary's`\
 https://nytimes.com/athletic/6339308/2025/05/10/southampton-manchester-city-result-analysis/
