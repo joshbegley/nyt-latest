@@ -1,3 +1,7 @@
+**Sovereignty jockey fined for striking horse too many times in Kentucky Derby win**\
+`Since riding crop penalties were introduced in 2022, Alvarado has been penalized nine times, HISA records indicate.`\
+https://nytimes.com/athletic/6346668/2025/05/10/sovereignty-jockey-fine-kentucky-derby/
+
 **How Xi and Putin Got Closer**\
 `In terms of geopolitical bromances, this is it. David Pierson, a foreign correspondent for The New York Times covering China, explains how President Vladimir V. Putin of Russia and Xi Jinping, the leader of China, are closer than ever before.`\
 https://nytimes.com/video/world/asia/100000010157380/how-xi-and-putin-got-closer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-
 **See Historical Records Documenting the Pope’s Creole Roots in New Orleans**\
 `The documents, including census records, baptismal rolls and marriage certificates, trace the story of Pope Leo’s mother’s family and their diverse background before moving to Chicago.`\
 https://nytimes.com/2025/05/10/us/pope-creole-new-orleans-records.html
-
-**Brighton striker Welbeck can 'carry on' at top level - Hurzeler**\
-`Welbeck, 34, scored his tenth league goal of the season in the 2-0 win at Wolves that keeps his side's European hopes alive. `\
-https://nytimes.com/athletic/6346495/2025/05/10/brighton-welbeck-carry-on-hurzeler/
 
