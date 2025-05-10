@@ -1,3 +1,19 @@
+**Leo XIV Outlines a Path for a Modern Church That Follows Francis’ Steps**\
+`The new pope said he would be guided by a key document that his predecessor wrote listing the church’s priorities, including a “loving care for the least and the rejected.”`\
+https://nytimes.com/2025/05/10/world/europe/leo-xiv-pope-francis-catholic-church.html
+
+**Iga Swiatek's serve deserts her in Italian Open upset against Danielle Collins**\
+`Świątek struggled for first serves against Danielle Collins, and the pressure that put on her tennis led to another strange loss on clay`\
+https://nytimes.com/athletic/6346152/2025/05/10/iga-swiatek-italian-open-danielle-collins-result-analysis/
+
+**Trump Administration Live Updates: Judge Pauses Trump Plans for Mass Layoffs**\
+``\
+https://nytimes.com/live/2025/05/10/us/trump-news
+
+**The Chiffon Cake Is Standing Tall Again**\
+`A favorite of golden age Hollywood, the airy confection is entrancing a new generation of bakers.`\
+https://nytimes.com/2025/05/10/t-magazine/chiffon-cake-baking.html
+
 **Demi Vollering wins second straight Vuelta a Espana**\
 `The FDJ rider beat Marlen Reusser by over a minute to defend her title.`\
 https://nytimes.com/athletic/6346165/2025/05/10/demi-vollering-la-vuelta-espana-cycling/
