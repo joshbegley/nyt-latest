@@ -1,3 +1,7 @@
+**Iga Swiatek's serve deserts her in Italian Open upset against Danielle Collins**\
+`Świątek struggled throughout on serve against the American. The pressure that put on her tennis led to another strange loss on clay`\
+https://nytimes.com/athletic/6346152/2025/05/10/iga-swiatek-italian-open-danielle-collins-result-analysis/
+
 **Leo XIV Outlines a Path for a Modern Church That Follows Francis’ Steps**\
 `The new pope said he would be guided by a key document that his predecessor wrote listing the church’s priorities, including a “loving care for the least and the rejected.”`\
 https://nytimes.com/2025/05/10/world/europe/leo-xiv-pope-francis-catholic-church.html

@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/10/world/europe/leo-xiv-pope-francis-catholic-church.html
 
 **Iga Swiatek's serve deserts her in Italian Open upset against Danielle Collins**\
-`Świątek struggled for first serves against Danielle Collins, and the pressure that put on her tennis led to another strange loss on clay`\
+`Świątek struggled throughout on serve against the American. The pressure that put on her tennis led to another strange loss on clay`\
 https://nytimes.com/athletic/6346152/2025/05/10/iga-swiatek-italian-open-danielle-collins-result-analysis/
 
 **Trump Administration Live Updates: Judge Pauses Trump Plans for Mass Layoffs**\
