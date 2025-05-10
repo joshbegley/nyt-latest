@@ -1,3 +1,7 @@
+**'Monster comes through': Shohei Ohtani's 9th-inning blast delivers wild win for Dodgers**\
+`Up by five runs then down by three, Los Angeles prevailed 14-11 when Ohtani came up in his familiar spot: the clutch.`\
+https://nytimes.com/athletic/6345993/2025/05/10/shohei-ohtani-home-run-dodgers-diamondbacks/
+
 **Hurzeler: This season proves Premier League is the best in the world**\
 `Brighton are 10th in the table in the hunt for European qualification.`\
 https://nytimes.com/athletic/6344091/2025/05/10/brighton-fabian-hurzeler-premier-league/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-
 **The New York Times in Print for Saturday, May 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/10/todays-new-york-times
-
-**Records Offer Glimpses Inside the Doomed Prosecution of Eric Adams**\
-`Federal prosecutors released sworn statements and other records detailing key moments in a corruption case that roiled New York City.`\
-https://nytimes.com/2025/05/10/nyregion/adams-corruption-investigation-records.html
 

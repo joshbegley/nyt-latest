@@ -1,3 +1,8 @@
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
 **Hurzeler: This season proves Premier League is the best in the world**\
 `Brighton are 10th in the table in the hunt for European qualification.`\
 https://nytimes.com/athletic/6344091/2025/05/10/brighton-fabian-hurzeler-premier-league/
