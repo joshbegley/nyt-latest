@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-
 `\
 https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
 
+**Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
+`Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
+`\
+https://nytimes.com/athletic/6345836/2025/05/10/panthers-maple-leafs-game-3-nhl-playoffs/
+
 **'Y'all don't understand what I'm going through': How the Cavs fought through pain to win Game 3**\
 `Darius Garland, Evan Mobley and De'Andre Hunter returned Friday. "We're a different team out there (with them in uniform)," Atkinson said.`\
 https://nytimes.com/athletic/6345938/2025/05/10/cavs-pacers-game-3-mobley-garland-hunter-return/
