@@ -1,5 +1,5 @@
 **Angel City's Savy King 'responsive' in hospital after collapsing on field**\
-`The 20-year-old U.S. youth international received treatment on the pitch at BMO Stadium before being taken to hospital.`\
+`The 20-year-old U.S. youth international received treatment on the pitch at the BMO Stadium before being taken to hospital.`\
 https://nytimes.com/athletic/6346055/2025/05/10/savy-king-angel-city-collapse/
 
 **Bears rookie minicamp: What we learned from Colston Loveland, Luther Burden, Ozzy Trapilo**\
