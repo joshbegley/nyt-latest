@@ -1,3 +1,11 @@
+**Salah admits there was 'tension' between he and Mane at Liverpool**\
+`Salah says the pair were always professional and their tension never affected Liverpool during their times as teammates.`\
+https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
+
+**Shedeur Sanders relishes rookie minicamp with extra throws, focus on future**\
+`"My job here isn't to prove people wrong," Sanders said in his first media availability Saturday. "It's to prove myself right."`\
+https://nytimes.com/athletic/6346503/2025/05/10/shedeur-sanders-browns-rookie-minicamp/
+
 **Flyers prospects Luchanko, Bump getting taste of playoff hockey with Phantoms**\
 `Jett Luchanko and Alex Bump connected for some highlight reel scores in a playoff series against the Wilkes-Barre/Scranton Penguins.`\
 https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-hockey-phantoms/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/10/business/elizabeth-holmes-partner-blood-testing-s
 **Derek Carr retiring after 11 seasons as shoulder injury threatens 2025 season**\
 `Carr is dealing with a labral tear in his right shoulder and has significant degenerative changes to his rotator cuff.`\
 https://nytimes.com/athletic/6346335/2025/05/10/derek-carr-retire-saints-raiders/
-
-**A Brass Bracelet With Both History and Meaning**\
-`The reporter Ralph Blumenthal, who covered the Vietnam War for The Times, returned with more than stories.`\
-https://nytimes.com/2025/05/10/insider/a-brass-bracelet-with-both-history-and-meaning.html
-
-**Ina Garten’s Perfect Roast Chicken**\
-`It’s Ina Garten. It’s a roast chicken. It’s perfect.`\
-https://nytimes.com/2025/05/10/dining/roast-chicken-recipe-ina-garten.html
 
