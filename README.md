@@ -1,3 +1,7 @@
+**At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
+`On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's Bar.`\
+https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
+
 **Newark Mayor Arrested Outside ICE Detention Center**\
 `Protesters shouted as federal officials arrested Mayor Ras J. Baraka of Newark while he and three members of Congress were demonstrating at a new immigration detention center.`\
 https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/09/business/trump-tariffs-planes-aviation.html
 **Pentagon Furthers Crackdown on Diversity Policies With Fresh Order for Review of Library Books**\
 `The move is the latest denunciation by the Trump administration against anything related to diversity, equity and inclusion.`\
 https://nytimes.com/2025/05/09/us/politics/pentagon-hegseth-dei-library-books.html
-
-**With Nick Chubb's return 'increasingly unlikely,' Browns turn to rookie RBs**\
-`Cleveland selected two running backs in April's draft, Quinshon Judkins in the second round and Dylan Sampson in the fourth.`\
-https://nytimes.com/athletic/6345394/2025/05/09/browns-running-backs-nick-chubb-quinshon-judkins/
 
