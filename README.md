@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Judge Pauses Trump Plans for Mass Layoffs**\
+``\
+https://nytimes.com/live/2025/05/10/us/trump-news
+
+**The Chiffon Cake Is Standing Tall Again**\
+`A favorite of golden age Hollywood, the airy confection is entrancing a new generation of bakers.`\
+https://nytimes.com/2025/05/10/t-magazine/chiffon-cake-baking.html
+
 **Demi Vollering wins second straight Vuelta a Espana**\
 `The FDJ rider beat Marlen Reusser by over a minute to defend her title.`\
 https://nytimes.com/athletic/6346165/2025/05/10/demi-vollering-la-vuelta-espana-cycling/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
 **Mailbag: Which first-round pick will Penguins get from Rangers?**\
 `A look at the Rangers' decision and how it will impact the Penguins, Mike Sullivan's time in Pittsburgh and much more.`\
 https://nytimes.com/athletic/6344571/2025/05/10/penguins-rangers-nhl-draft-pick-condition-mailbag/
-
-**How Nickeil Alexander-Walker found his right frame of mind at perfect time**\
-`The Timberwolves' guard busted out of his slump by remembering the adaptability that got him a secure rotation spot in the NBA. `\
-https://nytimes.com/athletic/6345364/2025/05/10/nickeil-alexander-walker-timberwolves-highlight/
-
-**‘Don’t Need a Deal.’ Top Trump Economic Adviser Is All in on His China Hardball**\
-`In a wide-ranging interview, Stephen Miran, the president of the chair of President Trump’s Council of Economic Advisers, said “volatility doesn’t necessarily mean anything greater for the long term.”`\
-https://nytimes.com/2025/05/10/business/dealbook/stephen-miran-interview.html
 
