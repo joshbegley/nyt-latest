@@ -1,3 +1,8 @@
+**Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
+`Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
+`\
+https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
+
 **NBA playoffs takeaways: Donovan Mitchell's 43 spur Cavs to Game 3 win at Indiana**\
 `The Cleveland Cavaliers picked up the win in Game 3 of their series against the Indiana Pacers behind an outstanding effort from star Donovan Mitchell.`\
 https://nytimes.com/athletic/6345693/2025/05/09/nba-playoffs-results-and-takeaways/

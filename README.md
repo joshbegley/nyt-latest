@@ -1,5 +1,5 @@
 **NBA playoffs takeaways: Donovan Mitchell's 43 spur Cavs to Game 3 win at Indiana**\
-`The Cleveland Cavaliers picked up the win in Game 3 of their series against the Indiana Pacers behind an outstanding effort from star Donovan Mitchell.`\
+`Mitchell led Cleveland's charge which was boosted by the return of three key players, including starters Darius Garland and Evan Mobley.`\
 https://nytimes.com/athletic/6345693/2025/05/09/nba-playoffs-results-cavaliers-pacers-thunder-nuggets/
 
 **Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
