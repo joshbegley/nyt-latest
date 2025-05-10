@@ -1,3 +1,11 @@
+**Thunder offense goes missing in OT in Game 3, and OKC must find it fast**\
+`To avoid a 3-1 hole, the Thunder will need to identify the root of their offensive issues which led to an abysmal overtime showing.`\
+https://nytimes.com/athletic/6346018/2025/05/10/thunder-offense-game-2-nuggets-nba-playoffs/
+
+**Brad Marchand, Leafs killer: The Bruin turned Panther is doing it again**\
+`When it’s the Leafs and it’s the playoffs, Brad Marchand is at his best. He beat the Maple Leafs once more in overtime of Game 3.`\
+https://nytimes.com/athletic/6345984/2025/05/10/brad-marchand-panthers-maple-leafs-nhl-playoffs/
+
 **Soviet Spacecraft Crash Lands on Earth After a Journey of Half a Century**\
 `Kosmos-482, a spacecraft bound for Venus in 1972, was a time capsule from the Cold War when superpowers had broad ambitions for exploring the solar system.`\
 https://nytimes.com/2025/05/10/science/kosmos-482-crash-soviet-spacecraft.html

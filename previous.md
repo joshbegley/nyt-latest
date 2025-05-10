@@ -1,3 +1,11 @@
+**Thunder offense goes missing in OT in Game 3, and OKC must find it fast**\
+`To avoid a 3-1 hole, the Thunder will need to identify the root of their offensive issues which led to an abysmal overtime showing.`\
+https://nytimes.com/athletic/6346018/2025/05/10/thunder-offense-game-2-nuggets-nba-playoffs/
+
+**Brad Marchand, Leafs killer: The Bruin turned Panther is doing it again**\
+`When it’s the Leafs and it’s the playoffs, Brad Marchand is at his best. He beat the Maple Leafs once more in overtime of Game 3.`\
+https://nytimes.com/athletic/6345984/2025/05/10/brad-marchand-panthers-maple-leafs-nhl-playoffs/
+
 **Soviet Spacecraft Crash Lands on Earth After a Journey of Half a Century**\
 `Kosmos-482, a spacecraft bound for Venus in 1972, was a time capsule from the Cold War when superpowers had broad ambitions for exploring the solar system.`\
 https://nytimes.com/2025/05/10/science/kosmos-482-crash-soviet-spacecraft.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6345051/2025/05/10/oklahoma-texas-am-sec-softball-t
 **Case Studies: NFL/YouTube, Caitlin Clark lead this week's top sports business stories**\
 `This week's most interesting sports business stories? Contenders: NFL on YouTube, Caitlin Clark, Nick Saban's new White House role and more.`\
 https://nytimes.com/athletic/6344781/2025/05/10/nfl-youtube-caitlin-clark-nick-saban-utah-mammoth-case-studies/
-
-**Kalinaukas: Why rookie F1 drivers aren't being given the chance to shine**\
-`Liam Lawson and Jack Doohan have already been demoted in 2025. Does this indicate a new trend in driver treatment among F1 teams?`\
-https://nytimes.com/athletic/6341984/2025/05/10/f1-rookie-drivers-jack-doohan-franco-colapinto/
-
-**Phillies minors notes: Justin Crawford's drive, Otto Kemp's dream, Moisés Chace's velo drop**\
-`Plus Mick Abel's strong start, Gabriel Rincones Jr.'s early struggles, Eiberson Castellano's return, a High-A pitcher to watch and more. `\
-https://nytimes.com/athletic/6344467/2025/05/10/phillies-prospects-justin-crawford-moises-chace-mick-abel/
 
