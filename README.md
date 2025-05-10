@@ -1,3 +1,7 @@
+**India and Pakistan, old enemies, had a new weapon this time: drones.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-and-pakistan-old-enemies-had-a-new-weapon-this-time-drones
+
 **Yankees' Jasson Domínguez is accomplishing more than just franchise history**\
 `A big difference for Domínguez this year, he is now comfortable communicating in his second language without the help of a translator.`\
 https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-field-english/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/10/us/trump-news
 **The Chiffon Cake Is Standing Tall Again**\
 `A favorite of golden age Hollywood, the airy confection is entrancing a new generation of bakers.`\
 https://nytimes.com/2025/05/10/t-magazine/chiffon-cake-baking.html
-
-**Demi Vollering wins second straight Vuelta a Espana**\
-`The FDJ rider beat Marlen Reusser by over a minute to defend her title.`\
-https://nytimes.com/athletic/6346165/2025/05/10/demi-vollering-la-vuelta-espana-cycling/
 
