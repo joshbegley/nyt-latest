@@ -1,3 +1,15 @@
+**Cayden Lindstrom, Blue Jackets' No. 4 pick last June, makes triumphant return**\
+`After more than 13 months away from competitive hockey, Lindstrom played for Medicine Hat in Game 1 of the WHL Championship.`\
+https://nytimes.com/athletic/6346105/2025/05/10/cayden-lindstrom-blue-jackets-return-medicine-hat/
+
+**World Catholics See the First American Pope as Hardly American**\
+`Catholics around the world were skeptical at first about an American pope. But Pope Leo XIV’s multicultural and multilingual identity has put them at ease.`\
+https://nytimes.com/2025/05/10/world/americas/pope-leo-american-popular-world-reaction.html
+
+**Ancelotti says his 'honeymoon' with Real Madrid will never end**\
+`The Athletic has reported that Ancelotti and Madrid have agreed terms for his departure, with the Italian expected to now coach Brazil.`\
+https://nytimes.com/athletic/6346270/2025/05/10/real-madrid-clasico-ancelotti-future/
+
 **Haemanthus’s Patent for ‘Raman Spectroscopy System’**\
 `A patent for a “Raman Spectroscopy System” filed by Haemanthus.`\
 https://nytimes.com/interactive/2025/05/10/business/HaemanthusPatent.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
 **Chelsea go unbeaten in 2024-25 WSL season**\
 `Sonia Bompastor's side beat Liverpool 1-0 at Stamford Bridge on the final day, with Aggie Beever-Jones netting a late winner.`\
 https://nytimes.com/athletic/6342112/2025/05/10/chelsea-wsl-unbeaten-invincible/
-
-**Map: 4.1-Magnitude Earthquake Strikes Tennessee**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/05/10/us/earthquake-tracker-tennessee.html
-
-**Leo XIV Outlines a Path for a Modern Church That Follows Francis’ Steps**\
-`The new pope said he would be guided by a key document that his predecessor wrote listing the church’s priorities, including a “loving care for the least and the rejected.”`\
-https://nytimes.com/2025/05/10/world/europe/leo-xiv-pope-francis-catholic-church.html
-
-**Iga Swiatek's serve deserts her in Italian Open upset against Danielle Collins**\
-`Świątek struggled throughout on serve against the American. The pressure that put on her tennis led to another strange loss on clay`\
-https://nytimes.com/athletic/6346152/2025/05/10/iga-swiatek-italian-open-danielle-collins-result-analysis/
 
