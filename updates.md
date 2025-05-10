@@ -1,3 +1,15 @@
+**Derek Carr retiring after 11 seasons as shoulder injury threatens 2025 season**\
+`Carr is dealing with a labral tear in his right shoulder and has significant degenerative changes to his rotator cuff.`\
+https://nytimes.com/athletic/6346335/2025/05/10/derek-carr-retire-saints-raiders/
+
+**A Brass Bracelet With Both History and Meaning**\
+`The reporter Ralph Blumenthal, who covered the Vietnam War for The Times, returned with more than stories.`\
+https://nytimes.com/2025/05/10/insider/a-brass-bracelet-with-both-history-and-meaning.html
+
+**Ina Garten’s Perfect Roast Chicken**\
+`It’s Ina Garten. It’s a roast chicken. It’s perfect.`\
+https://nytimes.com/2025/05/10/dining/roast-chicken-recipe-ina-garten.html
+
 **What We Know About the Terrorist Groups India Said It Targeted**\
 `India has accused Pakistan of continuing to support Lashkar-e-Taiba and Jaish-e-Muhammad. Pakistan has rejected those claims.`\
 https://nytimes.com/2025/05/10/world/asia/what-is-lashkar-e-taiba-pakistan-kashmir-terror-groups.html
