@@ -1,3 +1,7 @@
+**Power Grid**\
+`Brendan Emmett Quigley delivers a pumped-up puzzle.`\
+https://nytimes.com/2025/05/10/crosswords/daily-puzzle-2025-05-11.html
+
 **After Savy King’s on-field collapse, why wasn't Angel City’s match cancelled?**\
 `The 20-year-old went down in the 74th minute of the game but play resumed 11 minutes later. We explain how that decision was taken and why.`\
 https://nytimes.com/athletic/6346469/2025/05/10/savy-king-injury-acfc-angel-city-nwsl/

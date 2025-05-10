@@ -1,3 +1,7 @@
+**Power Grid**\
+`Brendan Emmett Quigley delivers a pumped-up puzzle.`\
+https://nytimes.com/2025/05/10/crosswords/daily-puzzle-2025-05-11.html
+
 **After Savy King’s on-field collapse, why wasn't Angel City’s match cancelled?**\
 `The 20-year-old went down in the 74th minute of the game but play resumed 11 minutes later. We explain how that decision was taken and why.`\
 https://nytimes.com/athletic/6346469/2025/05/10/savy-king-injury-acfc-angel-city-nwsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346619/2025/05/10/pacers-tyrese-haliburton-game-3-
 **Salah admits there was 'tension' between him and Mane at Liverpool**\
 `Salah says the pair were always professional and their tension never affected Liverpool during their time as teammates.`\
 https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
-
-**Shedeur Sanders relishes rookie minicamp with extra throws, focus on future**\
-`"My job here isn't to prove people wrong," Sanders said in his first media availability Saturday. "It's to prove myself right."`\
-https://nytimes.com/athletic/6346503/2025/05/10/shedeur-sanders-browns-rookie-minicamp/
 
