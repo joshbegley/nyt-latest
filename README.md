@@ -1,3 +1,7 @@
+**After Allegations, Smokey Robinson Show Goes On as Planned**\
+`The 85-year-old Motown performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
+https://nytimes.com/2025/05/10/arts/music/smokey-robinson-concert.html
+
 **Cayden Lindstrom, Blue Jackets' No. 4 pick last June, makes triumphant return**\
 `After more than 13 months away from competitive hockey, Lindstrom played for Medicine Hat in Game 1 of the WHL Championship.`\
 https://nytimes.com/athletic/6346105/2025/05/10/cayden-lindstrom-blue-jackets-return-medicine-hat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346190/2025/05/10/mclaughlin-levrone-100m-grand-sl
 **Earthquake Rattles Parts of Tennessee and Georgia**\
 `The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
 https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
-
-**Chelsea go unbeaten in 2024-25 WSL season**\
-`Sonia Bompastor's side beat Liverpool 1-0 at Stamford Bridge on the final day, with Aggie Beever-Jones netting a late winner.`\
-https://nytimes.com/athletic/6342112/2025/05/10/chelsea-wsl-unbeaten-invincible/
 
