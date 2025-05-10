@@ -1,3 +1,7 @@
+**Salah admits there was 'tension' between him and Mane at Liverpool**\
+`Salah says the pair were always professional and their tension never affected Liverpool during their time as teammates.`\
+https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
+
 **Sovereignty jockey fined for striking horse too many times in Kentucky Derby win**\
 `Since riding crop penalties were introduced in 2022, Alvarado has been penalized nine times, HISA records indicate.`\
 https://nytimes.com/athletic/6346668/2025/05/10/sovereignty-jockey-fine-kentucky-derby/
