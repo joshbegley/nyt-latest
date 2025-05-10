@@ -1,3 +1,11 @@
+**Salah admits there was 'tension' between he and Mane at Liverpool**\
+`Salah says the pair were always professional and their tension never affected Liverpool during their times as teammates.`\
+https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
+
+**Shedeur Sanders relishes rookie minicamp with extra throws, focus on future**\
+`"My job here isn't to prove people wrong," Sanders said in his first media availability Saturday. "It's to prove myself right."`\
+https://nytimes.com/athletic/6346503/2025/05/10/shedeur-sanders-browns-rookie-minicamp/
+
 **Flyers prospects Luchanko, Bump getting taste of playoff hockey with Phantoms**\
 `Jett Luchanko and Alex Bump connected for some highlight reel scores in a playoff series against the Wilkes-Barre/Scranton Penguins.`\
 https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-hockey-phantoms/
