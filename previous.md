@@ -1,4 +1,4 @@
-**Southampton avoid tying record for least points in a Premier League season**\
+**Southampton avoid tying record for fewest points in a Premier League season**\
 `Derby County recorded only 11 points in 2007-08 season, which Southampton have surpassed following Saturday's home draw.`\
 https://nytimes.com/athletic/6346417/2025/05/10/southampton-derby-premier-league-record/
 
