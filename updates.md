@@ -1,3 +1,7 @@
+**Judge Temporarily Blocks Trump Plans for Mass Layoffs and Program Closures**\
+`An emergency ruling by a federal judge in California amounted to the broadest effort yet to halt the Trump administration’s overhaul of the federal government.`\
+https://nytimes.com/2025/05/09/us/politics/federal-layoffs-trump-ruling.html
+
 **Greene Defiantly Rules Out a Senate Run in Georgia, to the Relief of G.O.P. Leaders**\
 `In a lengthy Friday night social media screed, the Republican congresswoman savaged her party’s leaders as she declared she would not pursue a Senate run.`\
 https://nytimes.com/2025/05/09/us/politics/mtg-marjorie-taylor-greene-georgia-senate.html

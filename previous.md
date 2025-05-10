@@ -1,3 +1,7 @@
+**Judge Temporarily Blocks Trump Plans for Mass Layoffs and Program Closures**\
+`An emergency ruling by a federal judge in California amounted to the broadest effort yet to halt the Trump administration’s overhaul of the federal government.`\
+https://nytimes.com/2025/05/09/us/politics/federal-layoffs-trump-ruling.html
+
 **Greene Defiantly Rules Out a Senate Run in Georgia, to the Relief of G.O.P. Leaders**\
 `In a lengthy Friday night social media screed, the Republican congresswoman savaged her party’s leaders as she declared she would not pursue a Senate run.`\
 https://nytimes.com/2025/05/09/us/politics/mtg-marjorie-taylor-greene-georgia-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010161328/newark-mayor-arrested-ice.html
 **Does Trump Have the Power to Install Jeanine Pirro as Interim U.S. Attorney?**\
 `By using another interim appointment to fill a vacancy for the top prosecutor in Washington, the White House is bypassing Senate confirmation and potentially claiming expansive authority.`\
 https://nytimes.com/2025/05/09/us/politics/trump-pirro-interim-prosecutor.html
-
-**India and Pakistan Enter a More Dangerous Era**\
-`There’s been a profound and dangerous shift in their rivalry, and it threatens U.S. interests.`\
-https://nytimes.com/2025/05/09/opinion/india-and-pakistan-enter-a-more-dangerous-era.html
 
