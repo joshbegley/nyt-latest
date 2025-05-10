@@ -1,3 +1,19 @@
+**Demi Vollering wins second straight Vuelta a Espana**\
+`The FDJ rider beat Marlen Reusser by over a minute to defend her title.`\
+https://nytimes.com/athletic/6346165/2025/05/10/demi-vollering-la-vuelta-espana-cycling/
+
+**WATCH: How unleashing Evan Mobley turned Cavs into title contenders**\
+`Why did the Cavaliers go from a mid-tier playoff team to the East's No. 1 seed? They empowered Evan Mobley offensively.`\
+https://nytimes.com/athletic/6345805/2025/05/10/video-evan-mobley-cavaliers-highlights-offense/
+
+**My Mother and I Bond Over Ignoring Mother’s Day**\
+`The staying power of family culture.`\
+https://nytimes.com/2025/05/10/opinion/ignore-mothers-day.html
+
+**Live Updates: Trump Announces Truce Between India and Pakistan**\
+`Officials in both countries acknowledged a halt after several days of their most expansive fighting in decades.`\
+https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir
+
 **'I believe in our team': 'Slow' Pacers fall in Game 3, vow to put up more of a fight in Game 4**\
 `Tyrese Haliburton scored four points and the Pacers didn't play with the pace they usually do in a lopsided Game 3 loss to the Cavaliers.`\
 https://nytimes.com/athletic/6346011/2025/05/10/pacers-haliburton-cavaliers-game-3/
