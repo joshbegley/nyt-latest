@@ -1,3 +1,11 @@
+**Yankees' Jasson Domínguez is accomplishing more than just franchise history**\
+`A big difference for Domínguez this year, he is now comfortable communicating in his second language without the help of a translator.`\
+https://nytimes.com/athletic/6345969/2025/05/10/yankees-jasson-dominguez-left-field-english/
+
+**McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
+`The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
+https://nytimes.com/athletic/6346190/2025/05/10/mclaughlin-levrone-100m-grand-slam-track/
+
 **McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
 `The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
 https://nytimes.com/athletic/6346190/2025/05/10/sydney-mclaughlin-levrone-to-run-first-professional-100m-sprint-at-grand-slam-track-philadelphia/
