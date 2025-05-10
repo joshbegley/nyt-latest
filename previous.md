@@ -1,3 +1,7 @@
+**India-Pakistan Conflict Escalates Sharply With Attacks on Military Bases**\
+`Pakistan said it had fired missiles at military sites in India after accusing India of targeting at least three of its air bases. India said it had targeted the bases in response to a wave of Pakistani attacks.`\
+https://nytimes.com/2025/05/10/world/asia/india-pakistan-conflict.html
+
 **Mirtle: The Panthers are hammering the Leafs in one key area. Will it matter?**\
 `Florida recorded 64 hits on Toronto in Game 3. If this series goes the distance, that style of play is going to take a toll.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345320/2025/05/10/jets-stars-nhl-playoffs-2025-gam
 **Are Chelsea better when they have less possession?**\
 `Chelsea beat Liverpool last week with their lowest possession all season. But does their form improve if the opponents have the ball more?`\
 https://nytimes.com/athletic/6344494/2025/05/10/chelsea-possession-more-less-analysis/
-
-**Thilo Kehrer: 'Winning the Conference League with West Ham will stay with me forever'**\
-`The defender reflects on his West Ham departure and the one interaction with a fan that has stuck with him until this day `\
-https://nytimes.com/athletic/6327004/2025/05/10/thilo-kehrer-interview-west-ham-david-moyes/
 
