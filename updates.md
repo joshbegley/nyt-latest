@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
 
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
 **India and Pakistan Enter a More Dangerous Era**\
 `There’s been a profound and dangerous shift in their rivalry, and it threatens U.S. interests.`\
 https://nytimes.com/2025/05/09/opinion/india-and-pakistan-enter-a-more-dangerous-era.html
