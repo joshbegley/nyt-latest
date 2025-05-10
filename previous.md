@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Donovan Mitchell's 43 spur Cavs to Game 3 win at Indiana**\
+`The Cleveland Cavaliers picked up the win in Game 3 of their series against the Indiana Pacers behind an outstanding effort from star Donovan Mitchell.`\
+https://nytimes.com/athletic/6345693/2025/05/09/nba-playoffs-takeaways-donovan-mitchells-43-spur-cavs-to-game-3-win-at-indiana/
+
 **Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
 `Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/09/us/pope-leo-american-cardinals.html
 **Mexican Mayor Implicated in Drug Cartel Ranch Inquiry**\
 `The mayor of Teuchitlán is the first government official to have been arrested in connection with the case. Prosecutors accuse him of colluding with the cartel.`\
 https://nytimes.com/2025/05/09/world/americas/mexico-mayor-arrested-ranch-cartels.html
-
-**Pope Leo XIV’s Creole Roots Tell a Story of New Orleans**\
-`“This is like a reward from God,” a local parishioner said, as researchers unearthed more details about the lives of Leo XIV’s ancestors in the heart of the city’s Afro-Caribbean culture.`\
-https://nytimes.com/2025/05/09/us/pope-creole-roots-new-orleans.html
 
