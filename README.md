@@ -1,40 +1,40 @@
-**Bills rookie minicamp: First looks at speedy Maxwell Hairston, huge Landon Jackson, and more**\
-`Plus, T.J. Sanders' quick moves and testing out Jordan Hancock.`\
-https://nytimes.com/athletic/6345376/2025/05/10/bills-rookie-minicamp-maxwell-hairston-landon-jackson/
+**Bears rookie minicamp: What we learned from Colston Loveland, Luther Burden, Ozzy Trapilo**\
+`The Bears' draft picks took the field at Halas Hall for the first time and we heard from their top four picks — and coach Ben Johnson.`\
+https://nytimes.com/athletic/6345213/2025/05/10/bears-rookie-minicamp-colston-loveland-luther-burden/
 
-**Lions rookie minicamp: Big praise for Tyleik Williams, a glimpse of the new coaches, and more**\
-`Plus notes and observations on other rookies and UDFAs.`\
-https://nytimes.com/athletic/6345273/2025/05/10/lions-rookie-minicamp-tyleik-williams/
+**Plot Twists**\
+`The best art makes us question the received ideas we’ve internalized and, just maybe, offers us ideas for living differently.`\
+https://nytimes.com/2025/05/10/briefing/plot-twists.html
 
-**Can Whitney Wolfe Herd Make Us Love Dating Apps Again?**\
-`The Bumble CEO has returned to run the struggling company she founded, and says she has a plan for getting Gen Z back.`\
-https://nytimes.com/2025/05/10/magazine/whitney-wolfe-herd-interview.html
+**How the Leafs were exploited by Panthers in Game 3 — and how they can adjust**\
+`With the benefit of last change on home ice, Panthers coach Paul Maurice's matchup changes were the root cause of Toronto's Game 3 loss.`\
+https://nytimes.com/athletic/6345881/2025/05/10/maple-leafs-panthers-game-3-nhl-playoffs/
 
-**Can Whitney Wolfe Herd Make Us Love Dating Apps Again?**\
-`The Bumble CEO has returned to run the struggling company she founded, and says she has a plan for getting Gen Z back.`\
-https://nytimes.com/video/podcasts/100000010147979/can-whitney-wolfe-herd-make-us-love-dating-apps-again.html
+**How to watch the SEC softball tournament championship game: Oklahoma takes on Texas A&M**\
+`The SEC has been the country's most dominant college softball league by leaps and bounds. The conference tournament finals go down Saturday.`\
+https://nytimes.com/athletic/6345051/2025/05/10/oklahoma-texas-am-sec-softball-tournament-how-to-watch/
 
-**Falcons set high expectations for rookies, starting with Jalon Walker, James Pearce Jr.**\
-`Falcons coach Raheem Morris said the team expects its top rookies "to play a significant amount of football” this season.`\
-https://nytimes.com/athletic/6345100/2025/05/10/falcons-rookie-minicamp-jalon-walker-james-pearce/
+**Case Studies: NFL/YouTube, Caitlin Clark lead this week's top sports business stories**\
+`This week's most interesting sports business stories? Contenders: NFL on YouTube, Caitlin Clark, Nick Saban's new White House role and more.`\
+https://nytimes.com/athletic/6344781/2025/05/10/nfl-youtube-caitlin-clark-nick-saban-utah-mammoth-case-studies/
 
-**Voice of Lay Catholics Is Likely to Be Heard in Leo XIV’s Church**\
-`When still a cardinal, the new pope led discussions on key issues facing the church during which “every voice had equal value,” whether an archbishop or an unordained believer.`\
-https://nytimes.com/2025/05/10/world/europe/pope-leo-xiv-lay-catholics-synodal.html
+**Kalinaukas: Why rookie F1 drivers aren't being given the chance to shine**\
+`Liam Lawson and Jack Doohan have already been demoted in 2025. Does this indicate a new trend in driver treatment among F1 teams?`\
+https://nytimes.com/athletic/6341984/2025/05/10/f1-rookie-drivers-jack-doohan-franco-colapinto/
 
-**The future of the Steelers' D-line begins to take shape at rookie minicamp**\
-`With eyes on first-round pick Derrick Harmon, the Steelers started rookie minicamp Friday.`\
-https://nytimes.com/athletic/6345374/2025/05/10/steelers-rookie-minicamp-derrick-harmon/
+**Phillies minors notes: Justin Crawford's drive, Otto Kemp's dream, Moisés Chace's velo drop**\
+`Plus Mick Abel's strong start, Gabriel Rincones Jr.'s early struggles, Eiberson Castellano's return, a High-A pitcher to watch and more. `\
+https://nytimes.com/athletic/6344467/2025/05/10/phillies-prospects-justin-crawford-moises-chace-mick-abel/
 
-**A Pope Who Ministers to the Suffering? Yup, He’s a White Sox Fan**\
-`Pope Leo was spotted at the 2005 World Series, a rare moment of triumph for the pride of Chicago’s South Side.`\
-https://nytimes.com/2025/05/10/us/pope-white-sox-cubs.html
+**Connections Companion No. 700**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 11, 2025.`\
+https://nytimes.com/2025/05/10/crosswords/connections-companion-700.html
 
-**Pope’s Childhood in a Changing Chicago Tells a Story of Catholic America**\
-`The pope grew up in a Catholic enclave on Chicago’s South Side. That community is gone now.`\
-https://nytimes.com/2025/05/10/us/pope-leo-childhood-chicago-catholics.html
+**The Shifting Conversation Around Canada’s Opioid Crisis**\
+`President Trump’s claims about fentanyl trafficking have played a role in refocusing Canada’s attention on border control.`\
+https://nytimes.com/2025/05/10/world/canada/canada-fentanyl-ports.html
 
-**Putin Puts on Show of Defiance as Cease-Fire Talks Drag On**\
-`Russia’s president used the celebration of victory in World War II to highlight the resources he has to keep fighting in Ukraine.`\
-https://nytimes.com/2025/05/10/world/europe/putin-russia-victory-day-parade.html
+**Wordle Review No. 1,422**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 11, 2025.`\
+https://nytimes.com/2025/05/10/crosswords/wordle-review-1422.html
 
