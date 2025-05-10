@@ -1,3 +1,7 @@
+**Chelsea go unbeaten in 2024-25 WSL season**\
+`Sonia Bompastor's side beat Liverpool 1-0 at Stamford Bridge on the final day, with Aggie Beever-Jones netting a late winner.`\
+https://nytimes.com/athletic/6342112/2025/05/10/chelsea-wsl-unbeaten-invincible/
+
 **Map: 4.1-Magnitude Earthquake Strikes Tennessee**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/10/us/earthquake-tracker-tennessee.html

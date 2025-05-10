@@ -1,3 +1,11 @@
+**McLaughlin-Levrone to run first professional 100m at GST Philadelphia**\
+`The two-time Olympic champion will compete in the short hurdles group in Philadelphia, consisting of 100m hurdles and 100m flat.`\
+https://nytimes.com/athletic/6346190/2025/05/10/sydney-mclaughlin-levrone-to-run-first-professional-100m-sprint-at-grand-slam-track-philadelphia/
+
+**Earthquake Rocks Parts of Tennessee and Georgia**\
+`The quake on Saturday morning had a preliminary magnitude of 4.1, with an epicenter about 30 miles southwest of Knoxville, Tenn. Residents in Atlanta reported feeling it.`\
+https://nytimes.com/2025/05/10/us/earthquake-tennessee-atlanta.html
+
 **Chelsea go unbeaten in 2024-25 WSL season**\
 `Sonia Bompastor's side beat Liverpool 1-0 at Stamford Bridge on the final day, with Aggie Beever-Jones netting a late winner.`\
 https://nytimes.com/athletic/6342112/2025/05/10/chelsea-wsl-unbeaten-invincible/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6346165/2025/05/10/demi-vollering-la-vuelta-espana-
 **WATCH: How unleashing Evan Mobley turned Cavs into title contenders**\
 `Why did the Cavaliers go from a mid-tier playoff team to the East's No. 1 seed? They empowered Evan Mobley offensively.`\
 https://nytimes.com/athletic/6345805/2025/05/10/video-evan-mobley-cavaliers-highlights-offense/
-
-**My Mother and I Bond Over Ignoring Mother’s Day**\
-`The staying power of family culture.`\
-https://nytimes.com/2025/05/10/opinion/ignore-mothers-day.html
-
-**'I believe in our team': 'Slow' Pacers fall in Game 3, vow to put up more of a fight in Game 4**\
-`Tyrese Haliburton scored four points and the Pacers didn't play with the pace they usually do in a lopsided Game 3 loss to the Cavaliers.`\
-https://nytimes.com/athletic/6346011/2025/05/10/pacers-haliburton-cavaliers-game-3/
 

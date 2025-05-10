@@ -1,3 +1,7 @@
+**Chelsea go unbeaten in 2024-25 WSL season**\
+`Sonia Bompastor's side beat Liverpool 1-0 at Stamford Bridge on the final day, with Aggie Beever-Jones netting a late winner.`\
+https://nytimes.com/athletic/6342112/2025/05/10/chelsea-wsl-unbeaten-invincible/
+
 **Map: 4.1-Magnitude Earthquake Strikes Tennessee**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/10/us/earthquake-tracker-tennessee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/opinion/ignore-mothers-day.html
 **'I believe in our team': 'Slow' Pacers fall in Game 3, vow to put up more of a fight in Game 4**\
 `Tyrese Haliburton scored four points and the Pacers didn't play with the pace they usually do in a lopsided Game 3 loss to the Cavaliers.`\
 https://nytimes.com/athletic/6346011/2025/05/10/pacers-haliburton-cavaliers-game-3/
-
-**Lewandowski, Balde not fit to start in Sunday's Clasico**\
-`Barcelona head coach Hansi Flick did say the pair would be in line for some minutes during the game.`\
-https://nytimes.com/athletic/6346113/2025/05/10/lewandowski-balde-barcelona-clasico-team-news/
 
