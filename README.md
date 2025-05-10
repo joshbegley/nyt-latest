@@ -1,5 +1,5 @@
 **Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
-`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta Friday.
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
 `\
 https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
 
