@@ -1,3 +1,7 @@
+**Does Trump Have the Power to Install Jeanine Pirro as Interim U.S. Attorney?**\
+`By using another interim appointment to fill a vacancy for the top prosecutor in Washington, the White House is bypassing Senate confirmation and potentially claiming expansive authority.`\
+https://nytimes.com/2025/05/09/us/politics/trump-pirro-interim-prosecutor.html
+
 **India and Pakistan Enter a More Dangerous Era**\
 `There’s been a profound and dangerous shift in their rivalry, and it threatens U.S. interests.`\
 https://nytimes.com/2025/05/09/opinion/india-and-pakistan-enter-a-more-dangerous-era.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettm
 https://nytimes.com/athletic/6345570/2025/05/09/red-sox-rafael-devers-john-henry-meeting/
 
 **At Hockey Canada trial, E.M. faces questions over timeline, alcohol consumption**\
-`On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's Bar.`\
+`On a fifth straight day of combative cross-examination, complainant faces questions about her account of events at Jack's bar.`\
 https://nytimes.com/athletic/6345228/2025/05/09/hockey-canada-sexual-assault-trial-cross-examination/
 
 **Newark Mayor Arrested Outside ICE Detention Center**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345444/2025/05/09/vikings-rookie-minicamp-max-bros
 **Illinois Voting Record Shows Pope Voted Regularly, and in Both Parties’ Primaries**\
 `Pope Leo XIV voted in Democratic primaries in 2008 and 2010 and in three Republican primaries in the years that followed, state records show.`\
 https://nytimes.com/2025/05/09/world/europe/pope-leo-voting-record-illinois.html
-
-**49ers' Mykel Williams makes strong rookie camp impression; team adds 2 more veteran OTs**\
-`The 49ers released DE Drake Jackson, a 2022 second-round pick, with a failed physical and signed OTs Andre Dillard and Nicholas Petit-Frere.`\
-https://nytimes.com/athletic/6345499/2025/05/09/49ers-rookie-camp-mykel-williams/
 
