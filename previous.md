@@ -1,3 +1,7 @@
+**Megan Campbell sets world record for longest soccer throw-in by a woman**\
+`Campbell, 31, recorded a throw of 37.55m (123 ft 2 in) at London City Lionesses' training ground on April 30.`\
+https://nytimes.com/athletic/6346057/2025/05/10/megan-campbell-world-record-throw-in/
+
 **Thunder offense goes missing in OT in Game 3, and OKC must find it fast**\
 `To avoid a 3-1 hole, the Thunder will need to identify the root of their offensive issues which led to an abysmal overtime showing.`\
 https://nytimes.com/athletic/6346018/2025/05/10/thunder-offense-game-2-nuggets-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345881/2025/05/10/maple-leafs-panthers-game-3-nhl-
 **How to watch the SEC softball tournament championship game: Oklahoma takes on Texas A&M**\
 `The SEC has been the country's most dominant college softball league by leaps and bounds. The conference tournament finals go down Saturday.`\
 https://nytimes.com/athletic/6345051/2025/05/10/oklahoma-texas-am-sec-softball-tournament-how-to-watch/
-
-**Case Studies: NFL/YouTube, Caitlin Clark lead this week's top sports business stories**\
-`This week's most interesting sports business stories? Contenders: NFL on YouTube, Caitlin Clark, Nick Saban's new White House role and more.`\
-https://nytimes.com/athletic/6344781/2025/05/10/nfl-youtube-caitlin-clark-nick-saban-utah-mammoth-case-studies/
 
