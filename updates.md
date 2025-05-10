@@ -1,3 +1,11 @@
+**Reluctant at First, Trump Officials Intervened in South Asia as Nuclear Fears Grew**\
+`After Vice President JD Vance suggested that the conflict between India and Pakistan was not America’s problem, the Trump administration grew concerned that it could spiral out of control.`\
+https://nytimes.com/2025/05/10/us/politics/trump-india-pakistan-nuclear.html
+
+**Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
+`Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin Phils.`\
+https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/
+
 **Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
 `Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin’ Phils.`\
 https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/

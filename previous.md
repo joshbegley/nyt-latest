@@ -1,5 +1,9 @@
+**Reluctant at First, Trump Officials Intervened in South Asia as Nuclear Fears Grew**\
+`After Vice President JD Vance suggested that the conflict between India and Pakistan was not America’s problem, the Trump administration grew concerned that it could spiral out of control.`\
+https://nytimes.com/2025/05/10/us/politics/trump-india-pakistan-nuclear.html
+
 **Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
-`Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin’ Phils.`\
+`Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin Phils.`\
 https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/
 
 **NBA playoffs results and takeaways: Celtics rout Knicks 115-93**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346729/2025/05/10/kane-trophy-bayern-munich/
 **Sovereignty jockey fined for striking horse too many times in Kentucky Derby win**\
 `Since riding crop penalties were introduced in 2022, Alvarado has been penalized nine times, HISA records indicate.`\
 https://nytimes.com/athletic/6346668/2025/05/10/sovereignty-jockey-fine-kentucky-derby/
-
-**How Xi and Putin Got Closer**\
-`In terms of geopolitical bromances, this is it. David Pierson, a foreign correspondent for The New York Times covering China, explains how President Vladimir V. Putin of Russia and Xi Jinping, the leader of China, are closer than ever before.`\
-https://nytimes.com/video/world/asia/100000010157380/how-xi-and-putin-got-closer.html
 
