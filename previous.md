@@ -1,3 +1,23 @@
+**Ange Postecoglou's voyage to a different world gives Daniel Levy something to ponder**\
+`Postecoglou has spoken of the “parallel worlds” Spurs are trying to traverse this season - we'll soon know which of the two is real`\
+https://nytimes.com/athletic/6343461/2025/05/10/ange-postecolgous-voyage-to-a-different-world-gives-daniel-levy-something-to-ponder/
+
+**Arsenal and Mikel Arteta, what next? 'We have to prove that we can do it'**\
+`Arteta sounds like someone who knows what needs to be done at Arsenal, now the onus is on him and the club's top brass to do it`\
+https://nytimes.com/athletic/6344857/2025/05/10/arsenal-and-mikel-arteta-what-next-we-have-to-prove-that-we-can-do-it/
+
+**Hellebuyck, Jets shut out Stars in Game 2 to even series: Takeaways**\
+`Hellebuyck’s 22-save shutout, his first playoff shutout in four years, sends the series back to Dallas tied 1-1.`\
+https://nytimes.com/athletic/6345320/2025/05/10/jets-stars-nhl-playoffs-2025-game-2-takeaways/
+
+**Are Chelsea better when they have less possession?**\
+`Chelsea beat Liverpool last week with their lowest possession all season. But does their form improve if the opponents have the ball more?`\
+https://nytimes.com/athletic/6344494/2025/05/10/chelsea-possession-more-less-analysis/
+
+**Thilo Kehrer: 'Winning the Conference League with West Ham will stay with me forever'**\
+`The defender reflects on his West Ham departure and the one interaction with a fan that has stuck with him until this day `\
+https://nytimes.com/athletic/6327004/2025/05/10/thilo-kehrer-interview-west-ham-david-moyes/
+
 **King’s Indian Attack, solid pawn structure and a booming fianchetto - Eze's chess game analysed**\
 `The Crystal Palace forward recently took time out of FA Cup final preparations to win a four-day online chess tournament, so he is any good?`\
 https://nytimes.com/athletic/6343902/2025/05/10/eberechi-eze-chess-crystal-palace/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6209924/2025/05/10/bradford-city-fire-40-years-foot
 **What we're hearing about Jamie Gittens' future**\
 `Borussia Dortmund have accepted English forward Gittens is likely to leave the club this summer and a string of bigclubs are interested`\
 https://nytimes.com/athletic/6344365/2025/05/10/jamie-gittens-transfer-latest-arsenal-chelsea-barcelona/
-
-**U.S. and China Meet for High-Stakes Economic Talks**\
-`The outcome of the trade negotiations could determine the trajectory of the global economy.`\
-https://nytimes.com/2025/05/10/business/us-china-talks-trump-tariffs.html
-
-**Billionaires’ Battle Over a Sculpture Exposes a Mysterious Art Market**\
-`David Geffen and Justin Sun’s unusually public dispute over ownership of a Giacometti sculpture valued at tens of millions of dollars gives a glimpse into a shrouded world.`\
-https://nytimes.com/2025/05/10/world/europe/geffen-sun-giacometti-nez.html
-
-**This Is the Trade Conflict Xi Jinping Has Been Waiting For**\
-`For years, the leader of China has planned to make the world dependent on its exports and know-how. But the strategy has costs for his own country.`\
-https://nytimes.com/2025/05/10/world/asia/xi-jinping-china-trade-war.html
-
-**How Macron Became a Close Zelensky Ally**\
-`The French and Ukrainian presidents have a particular bond, built on a common goal of protecting Ukraine and deflecting Russia.`\
-https://nytimes.com/2025/05/10/world/europe/macron-zelensky-relationship.html
-
-**Connections: Sports Edition Coach: Hints for May 10, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6345835/2025/05/10/connections-sports-edition-hints-for-may-10-2025/
 

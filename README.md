@@ -1,3 +1,7 @@
+**How Liverpool squad's rejigged leadership group could look next season**\
+`Trent Alexander-Arnold's imminent exit from his boyhood club means there is space for a new senior player in the leadership group`\
+https://nytimes.com/athletic/6339286/2025/05/10/liverpool-leadership-group/
+
 **Ange Postecoglou's voyage to a different world gives Daniel Levy something to ponder**\
 `Postecoglou has spoken of the “parallel worlds” Spurs are trying to traverse this season - we'll soon know which of the two is real`\
 https://nytimes.com/athletic/6343461/2025/05/10/ange-postecolgous-voyage-to-a-different-world-gives-daniel-levy-something-to-ponder/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/us/politics/dhs-deportation-extra-officers.html
 **The Bradford City fire, 40 years on: How the club, the city and football responded**\
 `At the time it was the worst stadium disaster in the history of English football. The painful impact has been far-reaching and long-lasting`\
 https://nytimes.com/athletic/6209924/2025/05/10/bradford-city-fire-40-years-football-city-response-safety/
-
-**What we're hearing about Jamie Gittens' future**\
-`Borussia Dortmund have accepted English forward Gittens is likely to leave the club this summer and a string of bigclubs are interested`\
-https://nytimes.com/athletic/6344365/2025/05/10/jamie-gittens-transfer-latest-arsenal-chelsea-barcelona/
 
