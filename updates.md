@@ -1,3 +1,7 @@
+**After Allegations, Smokey Robinson Show Goes On as Planned**\
+`The 85-year-old Motown performed for an adoring crowd and made no mention of the claims against him at his first concert since being named in a lawsuit.`\
+https://nytimes.com/2025/05/10/arts/music/smokey-robinson-concert.html
+
 **Cayden Lindstrom, Blue Jackets' No. 4 pick last June, makes triumphant return**\
 `After more than 13 months away from competitive hockey, Lindstrom played for Medicine Hat in Game 1 of the WHL Championship.`\
 https://nytimes.com/athletic/6346105/2025/05/10/cayden-lindstrom-blue-jackets-return-medicine-hat/
