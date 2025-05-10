@@ -1,3 +1,8 @@
+**Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
+`Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
+`\
+https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
+
 **In Pope Leo, Some in MAGA Movement See an Antagonist**\
 `While President Trump welcomed the U.S.-born cardinal as the new pope, top Trump allies criticized Leo XIV for his similarities to Pope Francis.`\
 https://nytimes.com/2025/05/09/us/pope-leo-maga-donald-trump-steve-bannon.html
