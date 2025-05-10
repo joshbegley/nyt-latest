@@ -1,3 +1,7 @@
+**Francis Connected With Leo Long Ago and Boosted His Career**\
+`The two clerics met in South America, and when Francis needed to fill an important job at the Vatican, he knew where to turn.`\
+https://nytimes.com/2025/05/09/world/europe/pope-leo-francis.html
+
 **Newark Mayor Arrested Outside ICE Detention Center**\
 `Protesters shouted as federal officials arrested Mayor Ras J. Baraka of Newark while he and three members of Congress were demonstrating at a new immigration detention center.`\
 https://nytimes.com/video/us/100000010161189/newark-mayor-arrested-ice.html
