@@ -1,3 +1,12 @@
+**New Jersey Mayor Arrested After Trying to Enter ICE Facility**\
+`Federal officials arrested Mayor Ras J. Baraka of Newark at an immigration detention facility on Friday.`\
+https://nytimes.com/video/us/100000010161328/newark-mayor-arrested-ice.html
+
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
 **Does Trump Have the Power to Install Jeanine Pirro as Interim U.S. Attorney?**\
 `By using another interim appointment to fill a vacancy for the top prosecutor in Washington, the White House is bypassing Senate confirmation and potentially claiming expansive authority.`\
 https://nytimes.com/2025/05/09/us/politics/trump-pirro-interim-prosecutor.html

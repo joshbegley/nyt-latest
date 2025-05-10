@@ -1,3 +1,7 @@
+**New Jersey Mayor Arrested After Trying to Enter ICE Facility**\
+`Federal officials arrested Mayor Ras J. Baraka of Newark at an immigration detention facility on Friday.`\
+https://nytimes.com/video/us/100000010161328/newark-mayor-arrested-ice.html
+
 **Does Trump Have the Power to Install Jeanine Pirro as Interim U.S. Attorney?**\
 `By using another interim appointment to fill a vacancy for the top prosecutor in Washington, the White House is bypassing Senate confirmation and potentially claiming expansive authority.`\
 https://nytimes.com/2025/05/09/us/politics/trump-pirro-interim-prosecutor.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6345500/2025/05/09/juan-soto-bullpen-visits-sunflow
 **What we learned from Vikings rookie minicamp: A new QB, two intriguing young CBs**\
 `Rookie minicamp is a sign that the real action is inching closer. Here are three players who stood out for the Vikings in Friday's action.`\
 https://nytimes.com/athletic/6345444/2025/05/09/vikings-rookie-minicamp-max-brosmer-tommi-hill/
-
-**Illinois Voting Record Shows Pope Voted Regularly, and in Both Parties’ Primaries**\
-`Pope Leo XIV voted in Democratic primaries in 2008 and 2010 and in three Republican primaries in the years that followed, state records show.`\
-https://nytimes.com/2025/05/09/world/europe/pope-leo-voting-record-illinois.html
 
