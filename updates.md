@@ -1,3 +1,12 @@
+**Reds acquire outfielder Connor Joe from Padres**\
+`The Reds added some outfield depth after placing three players on the injured list over the past week.`\
+https://nytimes.com/athletic/6345670/2025/05/09/reds-padres-connor-joe-trade/
+
+**Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
+`“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
+`\
+https://nytimes.com/athletic/6345491/2025/05/09/nhl-atlanta-expansion-gary-bettman/
+
 **Bettman says there's 'interest' in potential NHL expansion to Atlanta, but no timetable**\
 `“I think it’s a different place than when the Flames and the Thrashers left,” the NHL commissioner said of Atlanta on Friday.
 `\
