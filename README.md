@@ -1,3 +1,11 @@
+**Soviet Spacecraft Crash Lands on Earth After a Journey of Half a Century**\
+`Kosmos-482, a spacecraft bound for Venus in 1972, was a time capsule from the Cold War when superpowers had broad ambitions for exploring the solar system.`\
+https://nytimes.com/2025/05/10/science/kosmos-482-crash-soviet-spacecraft.html
+
+**Nuggets' other guys lift Nikola Jokić for a change in Game 3 win**\
+`For so many years, the brilliance of Jokić has masked some roster flaws. On Friday night, Jokić was truly picked up by his teammates.`\
+https://nytimes.com/athletic/6345948/2025/05/10/nuggets-other-guys-lift-nikola-jokic-for-a-change-in-game-3-ot-win-over-thunder/
+
 **Angel City's Savy King 'responsive' in hospital after collapsing on field**\
 `The 20-year-old U.S. youth international received treatment on the pitch at the BMO Stadium before being taken to hospital.`\
 https://nytimes.com/athletic/6346055/2025/05/10/savy-king-angel-city-collapse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6341984/2025/05/10/f1-rookie-drivers-jack-doohan-fr
 **Phillies minors notes: Justin Crawford's drive, Otto Kemp's dream, Moisés Chace's velo drop**\
 `Plus Mick Abel's strong start, Gabriel Rincones Jr.'s early struggles, Eiberson Castellano's return, a High-A pitcher to watch and more. `\
 https://nytimes.com/athletic/6344467/2025/05/10/phillies-prospects-justin-crawford-moises-chace-mick-abel/
-
-**Connections Companion No. 700**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 11, 2025.`\
-https://nytimes.com/2025/05/10/crosswords/connections-companion-700.html
-
-**The Shifting Conversation Around Canada’s Opioid Crisis**\
-`President Trump’s claims about fentanyl trafficking have played a role in refocusing Canada’s attention on border control.`\
-https://nytimes.com/2025/05/10/world/canada/canada-fentanyl-ports.html
 
