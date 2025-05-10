@@ -1,3 +1,7 @@
+**After Savy King’s on-field collapse, why wasn't Angel City’s match cancelled?**\
+`The 20-year-old went down in the 74th minute of the game but play resumed 11 minutes later. We explain how that decision was taken and why.`\
+https://nytimes.com/athletic/6346469/2025/05/10/savy-king-injury-acfc-angel-city-nwsl/
+
 **Kane after winning first trophy: 'Hopefully, this is the first of many'**\
 `Bayern's league title victory is the 31-year-old striker’s first piece of silverware in his 15-year career.`\
 https://nytimes.com/athletic/6346729/2025/05/10/kane-trophy-bayern-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346487/2025/05/10/liverpool-salah-mane-tension/
 **Shedeur Sanders relishes rookie minicamp with extra throws, focus on future**\
 `"My job here isn't to prove people wrong," Sanders said in his first media availability Saturday. "It's to prove myself right."`\
 https://nytimes.com/athletic/6346503/2025/05/10/shedeur-sanders-browns-rookie-minicamp/
-
-**Flyers prospects Luchanko, Bump getting taste of playoff hockey with Phantoms**\
-`Jett Luchanko and Alex Bump connected for some highlight reel scores in a playoff series against the Wilkes-Barre/Scranton Penguins.`\
-https://nytimes.com/athletic/6346465/2025/05/10/jett-luchanko-alex-bump-playoff-hockey-phantoms/
 

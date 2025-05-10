@@ -1,3 +1,7 @@
+**After Savy King’s on-field collapse, why wasn't Angel City’s match cancelled?**\
+`The 20-year-old went down in the 74th minute of the game but play resumed 11 minutes later. We explain how that decision was taken and why.`\
+https://nytimes.com/athletic/6346469/2025/05/10/savy-king-injury-acfc-angel-city-nwsl/
+
 **Kane after winning first trophy: 'Hopefully, this is the first of many'**\
 `Bayern's league title victory is the 31-year-old striker’s first piece of silverware in his 15-year career.`\
 https://nytimes.com/athletic/6346729/2025/05/10/kane-trophy-bayern-munich/
