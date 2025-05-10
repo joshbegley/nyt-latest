@@ -1,3 +1,7 @@
+**Elizabeth Holmes’s Partner Has a New Blood-Testing Start-Up**\
+`Billy Evans has two children with the Theranos founder, who is in prison for fraud. He’s now trying to raise money for a testing company that promises “human health optimization.”`\
+https://nytimes.com/2025/05/10/business/elizabeth-holmes-partner-blood-testing-startup.html
+
 **Derek Carr retiring after 11 seasons as shoulder injury threatens 2025 season**\
 `Carr is dealing with a labral tear in his right shoulder and has significant degenerative changes to his rotator cuff.`\
 https://nytimes.com/athletic/6346335/2025/05/10/derek-carr-retire-saints-raiders/
