@@ -1,3 +1,11 @@
+**Haemanthus’s Patent for ‘Raman Spectroscopy System’**\
+`A patent for a “Raman Spectroscopy System” filed by Haemanthus.`\
+https://nytimes.com/interactive/2025/05/10/business/HaemanthusPatent.html
+
+**Pachuca not considering James Rodriguez for Club World Cup**\
+`Reports had suggested Pachuca may sign players from sister team Club Leon, who themselves were removed from the competition in March.`\
+https://nytimes.com/athletic/6287187/2025/05/10/james-rodriguez-club-world-cup-pachuca-leon/
+
 **India and Pakistan, old enemies, had a new weapon this time: drones.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2025/05/10/world/pakistan-india-kashmir/india-and-pakistan-old-enemies-had-a-new-weapon-this-time-drones
