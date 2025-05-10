@@ -1,41 +1,40 @@
-**Braves' infield defense is elite, but erratic offense has been frustrating**\
-`Entering Friday, the Braves ranked at or near the top of the majors in several metrics at multiple positions.`\
-https://nytimes.com/athletic/6345756/2025/05/09/braves-elite-infield-defense-erratic-offense/
+**What we're hearing about Jamie Gittens' future**\
+`Borussia Dortmund have accepted English forward Gittens is likely to leave the club this summer and a string of bigclubs are interested`\
+https://nytimes.com/athletic/6344365/2025/05/10/jamie-gittens-transfer-latest-arsenal-chelsea-barcelona/
 
-**In Pope Leo, Some in MAGA Movement See an Antagonist**\
-`While President Trump welcomed the U.S.-born cardinal as the new pope, top Trump allies criticized Leo XIV for his similarities to Pope Francis.`\
-https://nytimes.com/2025/05/09/us/pope-leo-maga-donald-trump-steve-bannon.html
+**U.S. and China Meet for High-Stakes Economic Talks**\
+`The outcome of the trade negotiations could determine the trajectory of the global economy.`\
+https://nytimes.com/2025/05/10/business/us-china-talks-trump-tariffs.html
 
-**Republicans Lay Out Early Plans to Extend and Expand Trump Tax Cuts**\
-`House Republicans rolled out the first pieces of a roughly $4 trillion tax cut they hope to pass, including measures that would last just for President Trump’s term.`\
-https://nytimes.com/2025/05/09/us/politics/republicans-trump-tax-cuts.html
+**Billionaires’ Battle Over a Sculpture Exposes a Mysterious Art Market**\
+`David Geffen and Justin Sun’s unusually public dispute over ownership of a Giacometti sculpture valued at tens of millions of dollars gives a glimpse into a shrouded world.`\
+https://nytimes.com/2025/05/10/world/europe/geffen-sun-giacometti-nez.html
 
-**NBA playoffs: Donovan Mitchell's 43 spur Cavs to Game 3 win over Pacers**\
-`Mitchell led Cleveland's charge which was boosted by the return of three key players, including starters Darius Garland and Evan Mobley.`\
-https://nytimes.com/athletic/6345693/2025/05/09/nba-playoffs-results-cavaliers-pacers-thunder-nuggets/
+**This Is the Trade Conflict Xi Jinping Has Been Waiting For**\
+`For years, the leader of China has planned to make the world dependent on its exports and know-how. But the strategy has costs for his own country.`\
+https://nytimes.com/2025/05/10/world/asia/xi-jinping-china-trade-war.html
 
-**Leafs drop Game 3 in OT as Panthers cut Toronto's series lead to 2-1: Takeaways**\
-`Brad Marchand played overtime hero for Florida in Game 3 as the Panthers defeated the Leafs 5-4.
-`\
-https://nytimes.com/athletic/6343485/2025/05/09/maple-leafs-panthers-nhl-playoffs-2025-game-3-takeaways/
+**How Macron Became a Close Zelensky Ally**\
+`The French and Ukrainian presidents have a particular bond, built on a common goal of protecting Ukraine and deflecting Russia.`\
+https://nytimes.com/2025/05/10/world/europe/macron-zelensky-relationship.html
 
-**Seven takeways as Chargers rookies hit the field for minicamp**\
-`In Friday's lengthy session, the Chargers did not hold any 11-on-11, seven-on-seven or even one-on-one drills. `\
-https://nytimes.com/athletic/6345734/2025/05/09/chargers-rookie-minicamp-jim-harbaugh-easter-ham/
+**Connections: Sports Edition Coach: Hints for May 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6345835/2025/05/10/connections-sports-edition-hints-for-may-10-2025/
 
-**Judge Temporarily Blocks Trump Plans for Mass Layoffs and Program Closures**\
-`An emergency ruling by a federal judge in California amounted to the broadest effort yet to halt the Trump administration’s overhaul of the federal government.`\
-https://nytimes.com/2025/05/09/us/politics/federal-layoffs-trump-ruling.html
+**With U.S. Trade Deal, British Steel Industry Feels Some Much Needed Relief**\
+`The agreement to lift the 25 percent duty on steel exported to the United States provided some relief for struggling businesses, but uncertainties for the industry remain.`\
+https://nytimes.com/2025/05/10/business/trump-uk-us-trade-steel.html
 
-**Greene Defiantly Rules Out a Senate Run in Georgia, to the Relief of G.O.P. Leaders**\
-`In a lengthy Friday night social media screed, the Republican congresswoman savaged her party’s leaders as she declared she would not pursue a Senate run.`\
-https://nytimes.com/2025/05/09/us/politics/mtg-marjorie-taylor-greene-georgia-senate.html
+**Corrections: May 10, 2025**\
+`Corrections that appeared in print on Saturday, May 10, 2025.`\
+https://nytimes.com/2025/05/10/pageoneplus/corrections-may-10-2025.html
 
-**‘I’m Off!’**\
-`Shaun Phillips floats in on a well-crafted puzzle, where every word counts.`\
-https://nytimes.com/2025/05/09/crosswords/daily-puzzle-2025-05-10.html
+**Chinese Factories Are Looking for the Next China**\
+`A movement of manufacturing to Vietnam that began in President Trump’s first term is accelerating as sky-high U.S. tariffs block Chinese exports.`\
+https://nytimes.com/2025/05/10/business/trump-tariffs-vietnam-china.html
 
-**Google Agrees to Pay $1.4 Billion to Settle 2 Privacy Lawsuits**\
-`The Texas attorney general brought the cases in 2022 under state laws.`\
-https://nytimes.com/2025/05/09/technology/google-texas-privacy-settlement.html
+**Quote of the Day: Church Bells and Champagne to Cheer a Villanova Alum**\
+`Quotation of the Day for Saturday, May 10, 2025.`\
+https://nytimes.com/2025/05/09/pageoneplus/quote-of-the-day-church-bells-and-champagne-to-cheer-a-villanova-alum.html
 
