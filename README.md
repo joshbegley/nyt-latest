@@ -1,3 +1,11 @@
+**Koyo Kouoh, Prominent Art World Figure, Is Dead at 57**\
+`She had recently been named to oversee next year’s Venice Biennale. She died just days before she was scheduled to announce its theme and title.`\
+https://nytimes.com/2025/05/10/arts/design/koyo-kouoh-dead.html
+
+**With strong start, Braves rookie Drake Baldwin makes case for more playing time**\
+`Baldwin ranks among the MLB rookie leaders in several offensive categories and keeps improving defensively: "He continues to impress."`\
+https://nytimes.com/athletic/6346927/2025/05/10/braves-drake-baldwin-playing-time/
+
 **'Got to tap into your darkness': Celtics leave identity crisis behind**\
 `The Celtics' identity has been tested by the Knicks, but Boston might have turned around the series on Saturday.`\
 https://nytimes.com/athletic/6346947/2025/05/10/celtics-rebound-knicks-game-3-nba-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/10/world/europe/pope-leo-news-front-pages.html
 **Inter Miami falls 4-1 to Minnesota United, in biggest loss with Lionel Messi**\
 `Given Minnesota’s strong start to the season, this was never expected to be an easy road game for Miami.`\
 https://nytimes.com/athletic/6346831/2025/05/10/lionel-messi-inter-miami-defeat-minnesota-united/
-
-**Reluctant at First, Trump Officials Intervened in South Asia as Nuclear Fears Grew**\
-`After Vice President JD Vance suggested that the conflict between India and Pakistan was not America’s problem, the Trump administration grew concerned that it could spiral out of control.`\
-https://nytimes.com/2025/05/10/us/politics/trump-india-pakistan-nuclear.html
-
-**Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
-`Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin Phils.`\
-https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/
 
