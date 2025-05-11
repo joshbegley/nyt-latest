@@ -1,3 +1,11 @@
+**The Briefing: Man Utd 0 West Ham 2 - Yoro injury worry and most league losses since 1973-74**\
+`Our writers analyse and evaluate the key talking points from Manchester United's loss to West Ham United`\
+https://nytimes.com/athletic/6339847/2025/05/11/man-utd-0-west-ham-2-briefing-yoro/
+
+**Trump Administration Live Updates: Trump Is Said to Be Getting Qatari 747 for Air Force One, and Post-Presidency Travel**\
+``\
+https://nytimes.com/live/2025/05/11/us/trump-news
+
 **The Briefing: Spurs 0 Palace 2 - Postecoglou's changes fall flat as Palace do double, Kulusevski a concern**\
 `Jay Harris looks at the talking points from another disappointing Spurs performance at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6339317/2025/05/11/tottenham-crystal-palace-premier-league/

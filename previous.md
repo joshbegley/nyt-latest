@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 0 West Ham 2 - Yoro injury worry and most league losses since 1973-74**\
+`Our writers analyse and evaluate the key talking points from Manchester United's loss to West Ham United`\
+https://nytimes.com/athletic/6339847/2025/05/11/man-utd-0-west-ham-2-briefing-yoro/
+
 **The Briefing: Spurs 0 Palace 2 - Postecoglou's changes fall flat as Palace do double, Kulusevski a concern**\
 `Jay Harris looks at the talking points from another disappointing Spurs performance at the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6339317/2025/05/11/tottenham-crystal-palace-premier-league/
@@ -26,15 +30,11 @@ https://nytimes.com/video/world/europe/100000010162394/pope-leo-xiv-sunday-bless
 `A very dry start to spring has helped set off wildfires across Scotland, Wales and England, and officials have warned of a potential drought this summer.`\
 https://nytimes.com/2025/05/11/weather/uk-wildfires-drought-warnings.html
 
-**Trump Administration Live Updates: Top U.S. and Chinese Officials Meet for Trade Talks**\
+**Trump Administration Live Updates: Trump Is Said to Be Getting Qatari 747 for Air Force One, and Post-Presidency Travel**\
 ``\
 https://nytimes.com/live/2025/05/11/us/trump-news
 
 **130,000 Igloo Coolers Recalled After Fingertip Injuries, Including Amputations**\
 `The warning expands a recall of more than one million Igloo coolers in February, which was prompted by reports of fingertip injuries from the tow handle.`\
 https://nytimes.com/2025/05/11/business/igloo-coolers-recall.html
-
-**‘S.N.L.’: Toasting Moms and Toasted Trump Appointees**\
-`Cecily Strong returns as Jeanine Pirro, Walt Goggins shows off his clogging, and a dope new pope appears in the 50th season’s penultimate episode.`\
-https://nytimes.com/2025/05/11/arts/television/snl-toasting-and-toasted.html
 
