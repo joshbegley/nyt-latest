@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, May 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/11/todays-new-york-times-international-edition
+
 **Sevilla spend night at training centre after 'violent attacks' by supporters**\
 `"A large group of violent individuals" were said to have "invaded" the Sevilla training base, a club statement confirmed on Sunday.`\
 https://nytimes.com/athletic/6347265/2025/05/11/sevilla-fans-training-ground/
