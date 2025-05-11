@@ -1,3 +1,11 @@
+**Koyo Kouoh, Prominent Art World Figure, Is Dead at 57**\
+`She had recently been named to oversee next year’s Venice Biennale. She died just days before she was scheduled to announce its theme and title.`\
+https://nytimes.com/2025/05/10/arts/design/koyo-kouoh-dead.html
+
+**With strong start, Braves rookie Drake Baldwin makes case for more playing time**\
+`Baldwin ranks among the MLB rookie leaders in several offensive categories and keeps improving defensively: "He continues to impress."`\
+https://nytimes.com/athletic/6346927/2025/05/10/braves-drake-baldwin-playing-time/
+
 **'Got to tap into your darkness': Celtics leave identity crisis behind**\
 `The Celtics' identity has been tested by the Knicks, but Boston might have turned around the series on Saturday.`\
 https://nytimes.com/athletic/6346947/2025/05/10/celtics-rebound-knicks-game-3-nba-playoffs/
