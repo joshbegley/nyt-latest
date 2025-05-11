@@ -1,3 +1,7 @@
+**The Danger for India and Pakistan Has Not Gone Away**\
+`New developments in the nuclear powers’ harrowing four-day conflict, along with entrenched religious nationalism on each side, could signal more frequent battles ahead.`\
+https://nytimes.com/2025/05/11/world/asia/india-pakistan-war-analysis.html
+
 **Listen: Can Spurs' new 'sexy pragmatism' overcome Manchester United's chaos?**\
 `The View From The Lane team discuss whether Tottenham or Manchester United will have the edge heading into the Europa League final`\
 https://nytimes.com/athletic/6345022/2025/05/11/view-from-the-lane-tottenham-manchester-united-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346185/2025/05/11/haaland-guardiola-manchester-cit
 **A Night in Kashmir, Caught Between India and Pakistan’s Fight**\
 `Far from the missile strikes and drone combat that grabbed the world’s attention, ordinary Kashmiris suffer the heaviest toll of India and Pakistan’s confrontation.`\
 https://nytimes.com/2025/05/11/world/asia/kashmir-conflict-eyewitness.html
-
-**Cade Horton is fearless in his winning Cubs debut**\
-`Horton filled the spot of an injured Shota Imanaga and carries the promise of being the rare homegrown Cubs pitcher to win big.`\
-https://nytimes.com/athletic/6347156/2025/05/11/cade-horton-cubs-debut/
 
