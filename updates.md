@@ -1,3 +1,7 @@
+**Corrections: May 11, 2025**\
+`Corrections that appeared in print on Sunday, May 11, 2025.`\
+https://nytimes.com/2025/05/10/pageoneplus/corrections-may-11-2025.html
+
 **Knicks had a chance to be on the right side of NBA history. Now they have questions**\
 `No team has ever blown a 3-0 lead, but New York won't have that chance because it keeps falling behind. It has to be fixed.`\
 https://nytimes.com/athletic/6346899/2025/05/10/knicks-celtics-game-3-nba-falling-behind/
