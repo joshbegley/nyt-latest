@@ -1,3 +1,12 @@
+**How Siblings Shape Us**\
+`While parents work hard to mold their offspring, those offspring just as often mold each other.`\
+https://nytimes.com/2025/05/11/briefing/sibling-relationships.html
+
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
 `Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
 `\

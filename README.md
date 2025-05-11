@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6346525/2025/05/11/blue-jays-mariners-us-canada-ten
 
 **Steph Curry is inching closer, but the clock is ticking on the Warriors' season**\
 `Steph Curry went through a fairly strenuous workout on the team's practice court before Saturday's Game 3. Can the Warriors stay afloat?`\
-https://nytimes.com/athletic/6346946/2025/05/11/steph-curry-is-inching-closer-but-the-clock-is-ticking-on-the-warriors-season/
+https://nytimes.com/athletic/6346946/2025/05/11/steph-curry-warriors-injury-playoffs/
 
 **Bournemouth's Scott suffers fractured jaw after 'very violent' Mings elbow**\
 `Scott went down six minutes into the Villa loss and received lengthy treatment after Mings' elbow made contact.`\
