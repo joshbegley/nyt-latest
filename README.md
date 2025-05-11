@@ -1,3 +1,11 @@
+**Tufts Student Speaks Publicly After Release From Immigration Detention**\
+`A federal judge ordered the release of Rumeysa Ozturk, a Turkish citizen studying at Tufts University on a student visa. She is one of thousands of students who face deportation, as the Trump administration escalates its attack on higher education.`\
+https://nytimes.com/video/us/100000010162690/tufts-university-student-release-rumeysa-ozturk.html
+
+**White South Africans Granted Refugee Status by Trump Leave for U.S.**\
+`Dozens of Afrikaners who claim discrimination in their home country left Johannesburg on Sunday. Their departure for the U.S. came as the Trump administration was halting virtually all refugee admissions.`\
+https://nytimes.com/2025/05/11/world/africa/white-south-africans-granted-refugee-status-by-trump-leave-for-us.html
+
 **What have the Hurricanes done to Alex Ovechkin?**\
 `Ovechkin has zero points through the first three games of the Capitals' second-round series with the Hurricanes.`\
 https://nytimes.com/athletic/6348128/2025/05/11/nhl-hurricanes-capitals-alex-ovechkin-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6347970/2025/05/11/trent-alexander-arnold-liverpool
 **Lowetide: 3 early surprises for Oilers in Golden Knights series**\
 `The playoffs are all about chaos, innovation, injury and finding answers on the fly.`\
 https://nytimes.com/athletic/6346187/2025/05/11/oilers-golden-knights-nhl-playoffs-2025-surprises/
-
-**Leicester hopeful of new contract for teenager Monga - Van Nistelrooy**\
-`The teenager has attracted attention from a number of clubs including Manchester City, Chelsea and Real Madrid.`\
-https://nytimes.com/athletic/6347922/2025/05/11/jeremy-monga-leicester-contract/
-
-**The Briefing: Liverpool 2 Arsenal 2 - Alexander-Arnold booed and Merino sent off as Arteta's side fight back for draw**\
-`Arsenal scored twice in the second half to grab a draw as Alexander-Arnold endured a tough afternoon after announcing he's leaving Liverpool`\
-https://nytimes.com/athletic/6339872/2025/05/11/liverpool-arsenal-alexander-arnold-booed-merino-arteta/
 
