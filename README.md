@@ -1,3 +1,15 @@
+**Trump Is to Accept a Luxury 747 From Qatar for Use as Air Force One**\
+`The plan raises substantial ethical issues, given the immense value of the lavishly-appointed plane and the fact that Mr. Trump plans to use it after he leaves office.`\
+https://nytimes.com/2025/05/11/us/politics/trump-qatar-jet-gift-air-force-one.html
+
+**Make Mom Some Belgian Waffles**\
+`Those deep divots are all the better for holding salted butter and maple syrup.`\
+https://nytimes.com/2025/05/11/dining/belgian-waffles-recipe.html
+
+**A Veteran Who Kept Climbing, and Kept in Touch**\
+`Isaac Wright’s gravity- and law-defying photography caught a reporter’s attention four years ago and again this spring.`\
+https://nytimes.com/2025/05/11/insider/a-veteran-who-kept-climbing-and-kept-in-touch.html
+
 **Como Women’s captain retires, spotlighting uncertain future for female footballers**\
 `“Unlike Serie A players who retire with millions ... and a lineup of opportunities, we have to fight for everything," Alia Guagni said.`\
 https://nytimes.com/athletic/6347523/2025/05/11/alia-guagni-como-captain-retires/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/11/arts/television/snl-toasting-and-toasted.html
 **The Briefing: Newcastle 2 Chelsea 0 - Jackson sees red as the Champions League race takes another twist**\
 `Eddie Howe's side secure a critical win in pursuit of a top-five finish as the visitors are left considering life without their best No 9`\
 https://nytimes.com/athletic/6339316/2025/05/11/newcastle-chelsea-jackson-champions-league/
-
-**The Many Meanings of ‘True’ Religion**\
-`Readers respond to an essay about religion in America. Also: Stop the elderspeak.`\
-https://nytimes.com/2025/05/11/opinion/religion-belief.html
-
-**In Trump’s America, Every Parent and Child for Themselves**\
-`President Trump’s efforts to eliminate the Department of Education and give its funding directly to the states is a nightmare for parents like myself.`\
-https://nytimes.com/2025/05/11/opinion/trump-education-disability.html
-
-**Elon Musk Thought He Could Break History. Instead It Broke Him.**\
-`Musk is leaving Washington looking less like a legend.`\
-https://nytimes.com/2025/05/11/opinion/elon-musk-washington-trump.html
 
