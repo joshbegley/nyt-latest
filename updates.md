@@ -1,3 +1,7 @@
+**Amorim suggests he should leave Man Utd if he can't change 'culture'**\
+`Amorim said United had to be "strong and brave" in the summer transfer window and questioned his future if he cannot change the culture.`\
+https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-future/
+
 **At Least 1 Dead and 32 Injured in Crash of Bus and S.U.V. in California**\
 `The crash happened along a highway in Los Angeles County around 5 a.m. on Sunday, official said.`\
 https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html

@@ -1,3 +1,7 @@
+**Amorim suggests he should leave Man Utd if he can't change 'culture'**\
+`Amorim said United had to be "strong and brave" in the summer transfer window and questioned his future if he cannot change the culture.`\
+https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-future/
+
 **At Least 1 Dead and 32 Injured in Crash of Bus and S.U.V. in California**\
 `The crash happened along a highway in Los Angeles County around 5 a.m. on Sunday, official said.`\
 https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/us/william-h-luers-dead.html
 **As Truce Seems to Hold, India and Pakistan Both Claim Victory**\
 `The Trump administration’s public descriptions of its role in the mediation seemed to touch some sensitive spots politically in India.`\
 https://nytimes.com/2025/05/11/world/asia/india-pakistan-kashmir-ceasefire.html
-
-**Kulusevski 'should be okay' after knee injury, says Postecoglou**\
-`Kulusevski went down in the 16th minute following a strong challenge from Palace defender Marc Guehi and received treatment on his knee.`\
-https://nytimes.com/athletic/6347367/2025/05/11/dejan-kulusevski-injury-update-tottenham/
 
