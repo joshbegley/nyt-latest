@@ -1,3 +1,11 @@
+**Arteta 'really, really upset' with Arsenal players in first half at Liverpool**\
+`Arteta's side found themselves 2-0 down after 21 minutes after quickfire goals from Cody Gakpo and Luis Diaz.`\
+https://nytimes.com/athletic/6348010/2025/05/11/mikel-arteta-arsenal-liverpool/
+
+**At Least 4 Dead in Apartment Building Fire in Milwaukee**\
+`Four other people were critically injured, and 30 others were rescued after the fire broke out on Sunday morning, the authorities said.`\
+https://nytimes.com/2025/05/11/us/milwaukee-building-fire-dead.html
+
 **Behind Miller’s Threat to Suspend Habeas Corpus Is the Fact That They’re Losing**\
 `Stephen Miller said on Friday the administration is looking into suspending habeas corpus. But don’t forget: The Trump administration keeps losing in court.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/stephen-miller-habeas-corpus
