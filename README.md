@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, May 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/11/todays-new-york-times-international-edition
+
 **Sevilla spend night at training centre after 'violent attacks' by supporters**\
 `"A large group of violent individuals" were said to have "invaded" the Sevilla training base, a club statement confirmed on Sunday.`\
 https://nytimes.com/athletic/6347265/2025/05/11/sevilla-fans-training-ground/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346647/2025/05/11/nhl-playoff-picks-odds-how-to-wa
 **Once in Sync, Trump and Netanyahu Now Show Signs of Division**\
 `Both men are politically divisive, fiercely combative and have outsize egos. But as Mr. Trump arrives in the Middle East next week, the fate of the region could hinge on their relationship.`\
 https://nytimes.com/2025/05/11/world/europe/trump-netanyahu-iran-yemen.html
-
-**25 Ways to Get in on Dance Music’s Renaissance**\
-`Where to club, which artists to follow, five songs you’ve got to hear and more.`\
-https://nytimes.com/2025/05/11/arts/music/dance-music-streams-clubs-artists-songs.html
 
