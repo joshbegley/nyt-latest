@@ -1,3 +1,19 @@
+**Could Branding Herself as a ‘Mom Governor’ Help Hochul Win Re-election?**\
+`Gov. Kathy Hochul of New York, a moderate Democrat, used Fox News to amplify a message that her policies are “giving kids their childhoods back.”`\
+https://nytimes.com/2025/05/11/nyregion/hochul-budget-governor-election.html
+
+**‘A World-Wise Waitress Came to the Table and Scoped Out the Group’**\
+`A big breakfast after dancing all night, coveting a neighbor’s dessert and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/05/11/nyregion/metropolitan-diary.html
+
+**In a Beloved Bronx Park, a Neighborhood’s Drug Crisis Is on Full Display**\
+`The largest public park in the South Bronx was once a refuge in a neighborhood marked by poverty and neglect. Now, many residents actively avoid it.`\
+https://nytimes.com/2025/05/11/nyregion/st-marys-park-bronx-deterioration.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/11/crosswords/spelling-bee-forum.html
+
 **Erling Haaland's return leaves Pep Guardiola with a quandary in FA Cup final week**\
 `City were far more threatening at Southampton once Omar Marmoush was introduced but can they play him, Haaland and Kevin De Bruyne together?`\
 https://nytimes.com/athletic/6346185/2025/05/11/haaland-guardiola-manchester-city-southampton-fa-cup/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/11/opinion/mothers-day-parenting.html
 **How to watch Barcelona vs. Real Madrid in Sunday's latest installment of El Clasico**\
 `The last El Clásico was a match of the year candidate in the Copa del Rey final. The La Liga rematch goes down Sunday in Barcelona.`\
 https://nytimes.com/athletic/6342873/2025/05/11/barcelona-real-madrid-el-clasico-how-to-watch/
-
-**U.S. and China Will Meet for Second Day of Trade Talks**\
-`Top officials are scheduled to conclude their weekend of trade negotiations in Geneva on Sunday.`\
-https://nytimes.com/2025/05/11/business/us-china-tariffs.html
-
-**The Glazers: The real story of their Manchester United takeover, 20 years on**\
-`The full story of the Glazer takeover of Manchester United, how it happened and how it changed one of football's biggest clubs`\
-https://nytimes.com/athletic/6260871/2025/05/11/the-glazers-the-real-story-of-their-manchester-united-takeover-20-years-on/
-
-**How Real Madrid can hurt Barcelona and revive La Liga's title race**\
-`Madrid have lost all three Clasicos so far this season. Here's how they could turn things around on Sunday`\
-https://nytimes.com/athletic/6343966/2025/05/11/real-madrid-la-liga-barcelona-tactics/
-
-**Utter ecstasy, fist pumps or a pointy thing: How managers celebrate goals**\
-`There are many ways for coaches to celebrate their team scoring - but can we learn anything from them?`\
-https://nytimes.com/athletic/6305137/2025/05/11/manager-celebrations-epl-guardiola-amorim/
 
