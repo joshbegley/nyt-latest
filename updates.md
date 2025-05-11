@@ -1,3 +1,7 @@
+**Families of Sept. 11 Victims Urge Lutnick to Help Extradite Saudi National**\
+`The letter comes as the commerce secretary plans to accompany President Trump to Saudi Arabia this week as part of a weeklong trip to the Middle East.`\
+https://nytimes.com/2025/05/11/us/politics/sept-11-lutnick-saudi-extradition.html
+
 **Monday Briefing: U.S.-China Talks**\
 `Plus, crypto bro fight club.`\
 https://nytimes.com/2025/05/11/briefing/us-china-talks-india-pakistan-truce-trump-netanyahu-divide.html
