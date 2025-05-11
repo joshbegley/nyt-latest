@@ -1,3 +1,7 @@
+**Bill Belichick front and center in support of Jordon Hudson at Miss Maine competition**\
+`Neither Hudson nor Belichick made any public comments at the event, but his presence reinforced the personal part of their relationship.`\
+https://nytimes.com/athletic/6347024/2025/05/10/bill-belichick-jordon-hudson-miss-maine/
+
 **Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
 `Freed after her painful ordeal in a federal facility, Rumeysa Ozturk expressed joy, gratitude and continued faith in American democracy.`\
 https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
