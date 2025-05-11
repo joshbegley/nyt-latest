@@ -1,3 +1,16 @@
+**Bangladesh Bans the Political Party of Its Ousted Former Ruler**\
+`Sheikh Hasina fled the country after a mass uprising against her government, but the party she led remained a factor in Bangladeshi politics.`\
+https://nytimes.com/2025/05/11/world/asia/bangladesh-awami-party-ban.html
+
+**Zelensky Demands Cease-Fire Before Agreeing to Putin’s Call for Direct Talks**\
+`Ukraine’s president is pushing for an immediate truce. European leaders have said they will would impose new sanctions on Moscow if Russia’s president does not accept.`\
+https://nytimes.com/2025/05/11/world/europe/ukraine-russia-ceasefire-talks-putin-zelensky.html
+
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
 `Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
 `\

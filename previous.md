@@ -1,3 +1,7 @@
+**Bangladesh Bans the Political Party of Its Ousted Former Ruler**\
+`Sheikh Hasina fled the country after a mass uprising against her government, but the party she led remained a factor in Bangladeshi politics.`\
+https://nytimes.com/2025/05/11/world/asia/bangladesh-awami-party-ban.html
+
 **Presidential Rivals Vow to Heal a Divided South Korea. It Won’t Be Easy.**\
 `Lee Jae-myung and Kim Moon-soo represent the opposite sides of a country polarized over former President Yoon Suk Yeol’s use of martial law and his ouster.`\
 https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-candidates.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-cand
 https://nytimes.com/athletic/6347277/2025/05/11/hamburg-pitch-invasion-fans/
 
 **Zelensky Demands Cease-Fire Before Agreeing to Putin’s Call for Direct Talks**\
-`Ukraine’s leader is pushing for an immediate truce as European leaders say they would impose new sanctions on Moscow if the Russian president refused.`\
+`Ukraine’s president is pushing for an immediate truce. European leaders have said they will would impose new sanctions on Moscow if Russia’s president does not accept.`\
 https://nytimes.com/2025/05/11/world/europe/ukraine-russia-ceasefire-talks-putin-zelensky.html
 
 **Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6347194/2025/05/11/oilers-golden-knights-reilly-smi
 **Jets rookie camp observations: Aaron Glenn's style, Justin Fields' leadership, signs of buy-in**\
 `The impressions of the 2025 Jets' earliest (light) on-field work.`\
 https://nytimes.com/athletic/6346576/2025/05/11/new-york-jets-rookie-camp-observations/
-
-**Wordle Review No. 1,423**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 12, 2025.`\
-https://nytimes.com/2025/05/11/crosswords/wordle-review-1423.html
 
