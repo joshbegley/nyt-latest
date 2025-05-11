@@ -1,3 +1,7 @@
+**'Got to tap into your darkness': Celtics leave identity crisis behind**\
+`The Celtics' identity has been tested by the Knicks, but Boston might have turned around the series on Saturday.`\
+https://nytimes.com/athletic/6346947/2025/05/10/celtics-rebound-knicks-game-3-nba-playoffs/
+
 **After turning Broncos rookie camp into a juke joint, RJ Harvey eager for immediate impact**\
 `The second-round pick has studied film of Darren Sproles and Alvin Kamara as he prepares for a larger receiving role than he had in college.`\
 https://nytimes.com/athletic/6346786/2025/05/10/broncos-rj-harvey-rookie-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/10/us/politics/trump-india-pakistan-nuclear.html
 **Mets prospect Jonah Tong leads way in combined perfect game for Double-A Binghamton**\
 `Tong retired all 20 batters he faced in Double-A Binghamton’s 6-0 win over the Reading Fightin Phils.`\
 https://nytimes.com/athletic/6346827/2025/05/10/mets-prospect-jonah-tong-combined-perfect-game/
-
-**NBA playoffs results and takeaways: Celtics rout Knicks 115-93**\
-`The Knicks still lead the series 2-1, but Boston found its identity Saturday, shooting 50 percent from 3 (20-of-40).`\
-https://nytimes.com/athletic/6346748/2025/05/10/nba-playoffs-results-celtics-knicks-warriors-timberwolves/
 
