@@ -1,3 +1,7 @@
+**Inter Miami falls 4-1 to Minnesota United, in biggest loss with Lionel Messi**\
+`Given Minnesota’s strong start to the season, this was never expected to be an easy road game for Miami.`\
+https://nytimes.com/athletic/6346831/2025/05/10/lionel-messi-inter-miami-defeat-minnesota-united/
+
 **Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
 `A federal judge had ordered the government to immediately release Rumeysa Ozturk, who was being held in a federal facility in Louisiana.`\
 https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
