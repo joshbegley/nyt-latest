@@ -1,3 +1,7 @@
+**Mets takeaways: Francisco Lindor's leadership, Brett Baty's burst and more**\
+`Lindor thought of his wife and mom after homering on Mother’s Day, but he also took inspiration from a recent failure.`\
+https://nytimes.com/athletic/6348327/2025/05/11/mets-francisco-lindor-brett-baty-mark-vientos/
+
 **Families of Sept. 11 Victims Urge Lutnick to Help Extradite Saudi National**\
 `The letter comes as the commerce secretary plans to accompany President Trump to Saudi Arabia this week as part of a weeklong trip to the Middle East.`\
 https://nytimes.com/2025/05/11/us/politics/sept-11-lutnick-saudi-extradition.html
