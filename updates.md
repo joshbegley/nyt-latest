@@ -1,3 +1,7 @@
+**The Briefing: Spurs 0 Palace 2 - Postecoglou's changes fall flat as Palace do double, Kulusevski a concern**\
+`Jay Harris looks at the talking points from another disappointing Spurs performance at the Tottenham Hotspur Stadium.`\
+https://nytimes.com/athletic/6339317/2025/05/11/tottenham-crystal-palace-premier-league/
+
 **Trump Is to Accept a Luxury 747 From Qatar for Use as Air Force One**\
 `The plan raises substantial ethical issues, given the immense value of the lavishly-appointed plane and the fact that Mr. Trump plans to use it after he leaves office.`\
 https://nytimes.com/2025/05/11/us/politics/trump-qatar-jet-gift-air-force-one.html
