@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Depth helps Thunder top Nuggets, tie series**\
+`The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
+https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
+
 **Why Patients Are Being Forced to Switch to a 2nd-Choice Obesity Drug**\
 `CVS Caremark decided to stop offering Zepbound in favor of Wegovy for weight loss. It’s the latest example of limits imposed by insurance that disrupt treatments for patients.`\
 https://nytimes.com/2025/05/11/health/zepbound-wegovy-weight-loss-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348128/2025/05/11/nhl-hurricanes-capitals-alex-ove
 **Breaking down the chaos of another remarkable Clasico**\
 `Barca's 4-3 win against Madrid was another reminder to always, always watch Spain's biggest game`\
 https://nytimes.com/athletic/6348156/2025/05/11/barcelona-real-madrid-chaos-analysis/
-
-**Hamas Says It Will Release Its Last American Hostage**\
-`The announcement, which did not say when the hostage, Edan Alexander, would be set free, came as President Trump planned to visit the region.`\
-https://nytimes.com/2025/05/11/world/middleeast/hamas-hostage-edan-alexander.html
 
