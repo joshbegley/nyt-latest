@@ -1,3 +1,7 @@
+**Behind Miller’s Threat to Suspend Habeas Corpus Is the Fact That They’re Losing**\
+`Stephen Miller said on Friday the administration is looking into suspending habeas corpus. But don’t forget: The Trump administration keeps losing in court.`\
+https://nytimes.com/live/2025/05/05/opinion/thepoint/stephen-miller-habeas-corpus
+
 **'Everyone can have their opinion' - Slot on Liverpool fans booing TAA**\
 `On Monday, Alexander-Arnold announced he would be leaving Liverpool when his contract expires this summer.`\
 https://nytimes.com/athletic/6347970/2025/05/11/trent-alexander-arnold-liverpool-booing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.
 **How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
 `Butler's aggression bothers Minnesota's defense. How he plays dominoes provides a glimpse into how his mind works in these situations.`\
 https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playoffs-warriors/
-
-**Maple Leafs lineup vs. Panthers: Who's in, who's out, who's where in Game 4**\
-`Leafs captain Auston Matthews missed the team's skate on Sunday morning, but will play in Game 4.`\
-https://nytimes.com/athletic/6347030/2025/05/11/maple-leafs-lineup-panthers-game-4-nhl-playoffs/
 
