@@ -1,3 +1,7 @@
+**Mets takeaways: Francisco Lindor's leadership, Brett Baty's burst and more**\
+`Lindor thought of his wife and mom after homering on Mother’s Day, but he also took inspiration from a recent failure.`\
+https://nytimes.com/athletic/6348327/2025/05/11/mets-francisco-lindor-brett-baty-mark-vientos/
+
 **Families of Sept. 11 Victims Urge Lutnick to Help Extradite Saudi National**\
 `The letter comes as the commerce secretary plans to accompany President Trump to Saudi Arabia this week as part of a weeklong trip to the Middle East.`\
 https://nytimes.com/2025/05/11/us/politics/sept-11-lutnick-saudi-extradition.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348010/2025/05/11/mikel-arteta-arsenal-liverpool/
 **At Least 4 Dead in Apartment Building Fire in Milwaukee**\
 `Four other people were critically injured, and 30 others were rescued after the fire broke out on Sunday morning, the authorities said.`\
 https://nytimes.com/2025/05/11/us/milwaukee-building-fire-dead.html
-
-**Behind Miller’s Threat to Suspend Habeas Corpus Is the Fact That They’re Losing**\
-`Stephen Miller said on Friday the administration is looking into suspending habeas corpus. But don’t forget: The Trump administration keeps losing in court.`\
-https://nytimes.com/live/2025/05/05/opinion/thepoint/stephen-miller-habeas-corpus
 
