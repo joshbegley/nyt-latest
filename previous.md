@@ -1,3 +1,11 @@
+**U.S. and China Will Meet for Second Day of Trade Talks**\
+`Top officials are scheduled to conclude their weekend of trade negotiations in Geneva on Sunday.`\
+https://nytimes.com/2025/05/11/business/us-china-tariffs.html
+
+**The Glazers: The real story of their Manchester United takeover, 20 years on**\
+`The full story of the Glazer takeover of Manchester United, how it happened and how it changed one of football's biggest clubs`\
+https://nytimes.com/athletic/6260871/2025/05/11/the-glazers-the-real-story-of-their-manchester-united-takeover-20-years-on/
+
 **How Real Madrid can hurt Barcelona and revive La Liga's title race**\
 `Madrid have lost all three Clasicos so far this season. Here's how they could turn things around on Sunday`\
 https://nytimes.com/athletic/6343966/2025/05/11/real-madrid-la-liga-barcelona-tactics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6344973/2025/05/11/history-of-world-cup-winners-uru
 **'Pritchard was huge': NBA's Sixth Man leads Celtics to Game 3 win**\
 `Still down 2-1, the Celtics could need more big games from Pritchard later in the Eastern Conference semifinals.`\
 https://nytimes.com/athletic/6347057/2025/05/11/payton-pritchard-celtics-game-3-win/
-
-**Can King Charles Heal a Royal Family Crisis Before It’s Too Late?**\
-`Prince Harry’s desperate plea to reconcile with his father highlighted a rupture that could undermine the monarchy’s attempts to model unity.`\
-https://nytimes.com/2025/05/11/world/europe/charles-harry-royal-family-crisis.html
-
-**Can Trump Rename the Persian Gulf?**\
-`His suggestion to call the body of water the “Arabian Gulf” has apparently done the impossible: Unite Iranians.`\
-https://nytimes.com/2025/05/11/world/middleeast/can-trump-rename-the-persian-gulf.html
 

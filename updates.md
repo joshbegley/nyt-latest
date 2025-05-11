@@ -1,3 +1,11 @@
+**U.S. and China Will Meet for Second Day of Trade Talks**\
+`Top officials are scheduled to conclude their weekend of trade negotiations in Geneva on Sunday.`\
+https://nytimes.com/2025/05/11/business/us-china-tariffs.html
+
+**The Glazers: The real story of their Manchester United takeover, 20 years on**\
+`The full story of the Glazer takeover of Manchester United, how it happened and how it changed one of football's biggest clubs`\
+https://nytimes.com/athletic/6260871/2025/05/11/the-glazers-the-real-story-of-their-manchester-united-takeover-20-years-on/
+
 **How Real Madrid can hurt Barcelona and revive La Liga's title race**\
 `Madrid have lost all three Clasicos so far this season. Here's how they could turn things around on Sunday`\
 https://nytimes.com/athletic/6343966/2025/05/11/real-madrid-la-liga-barcelona-tactics/
