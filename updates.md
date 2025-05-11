@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-p
 `\
 https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
 
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Presidential Rivals Vow to Heal a Divided South Korea. It Won’t Be Easy.**\
 `Lee Jae-myung and Kim Moon-soo represent the opposite sides of a country polarized over former President Yoon Suk Yeol’s use of martial law and his ouster.`\
 https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-candidates.html
