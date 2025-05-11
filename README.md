@@ -1,3 +1,7 @@
+**How to watch Barcelona vs. Real Madrid in Sunday's latest installment of El Clasico**\
+`The last El Clásico was a match of the year candidate in the Copa del Rey final. The La Liga rematch goes down Sunday in Barcelona.`\
+https://nytimes.com/athletic/6342873/2025/05/11/barcelona-real-madrid-el-clasico-how-to-watch/
+
 **U.S. and China Will Meet for Second Day of Trade Talks**\
 `Top officials are scheduled to conclude their weekend of trade negotiations in Geneva on Sunday.`\
 https://nytimes.com/2025/05/11/business/us-china-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346588/2025/05/11/barcelona-champions-league-el-cl
 **How Uruguay won the 1950 World Cup: A truncated group stage, Ghiggia's illogical finish and an epochal clash with Brazil**\
 `The fourth in Michael Cox's series looking at the teams who won each World Cup looks at Uruguay's triumph in Brazil 75 years ago`\
 https://nytimes.com/athletic/6344973/2025/05/11/history-of-world-cup-winners-uruguay-1950/
-
-**'Pritchard was huge': NBA's Sixth Man leads Celtics to Game 3 win**\
-`On the road, in a game the Celtics needed badly, Pritchard delivered in the type of position he had wanted for so long.`\
-https://nytimes.com/athletic/6347057/2025/05/11/payton-pritchard-celtics-game-3-win/
 
