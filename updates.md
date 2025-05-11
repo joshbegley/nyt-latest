@@ -1,3 +1,8 @@
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Bournemouth's Scott suffers fractured jaw after 'very violent' Mings elbow**\
 `Scott went down six minutes into the Villa loss and received lengthy treatment after Mings' elbow made contact.`\
 https://nytimes.com/athletic/6347278/2025/05/11/alex-scott-injury-jaw-mings/
