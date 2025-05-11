@@ -2,9 +2,9 @@
 `The revelation that Leo XIV has roots among New Orleans Creoles has stirred curiosity and joy about the first pope from the United States.`\
 https://nytimes.com/2025/05/11/us/creole-identity-history-pope-new-orleans.html
 
-**The Briefing: Barcelona 4 Real Madrid 3 - Barca with one hand on La Liga title despite Mbappe hat-trick**\
+**The Briefing: Barcelona 4 Real Madrid 3 – Barca with one hand on La Liga title despite Mbappe hat-trick**\
 `Barca took a massive step towards the Spanish top-flight title with a chaotic win against Madrid`\
-https://nytimes.com/athletic/6339869/2025/05/11/barcelona-5-real-madrid-3-mbappe/
+https://nytimes.com/athletic/6339869/2025/05/11/barcelona-4-real-madrid-3-mbappe/
 
 **William H. Luers, Diplomat Who Backed Czech Dissident Leader, Dies at 95**\
 `His longtime career in the Foreign Service included protecting Vaclav Havel, the writer and dissident who became the first president of the Czech Republic.`\
