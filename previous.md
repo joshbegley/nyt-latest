@@ -1,3 +1,11 @@
+**Quotation of the Day: ‘Mother Pigeon’ Unfurls Her Wings to Protect Flocks**\
+`Quotation of the Day for Sunday, May 11, 2025.`\
+https://nytimes.com/2025/05/10/pageoneplus/quotation-of-the-day-mother-pigeon-unfurls-her-wings-to-protect-flocks.html
+
+**Hurricanes smother Capitals in Game 3 shutout: Takeaways**\
+`Back on home ice, Carolina took a 2-1 lead over Washington in Game 3 of the NHL playoffs' second round.`\
+https://nytimes.com/athletic/6346901/2025/05/10/hurricanes-capitals-nhl-playoffs-2025-game-3-takeaways/
+
 **Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
 `A federal judge had ordered the government to immediately release Rumeysa Ozturk, who was being held in a federal facility in Louisiana.`\
 https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6346748/2025/05/10/nba-playoffs-results-celtics-kni
 **3 Lawmakers Involved in Newark Protest Could Be Arrested, D.H.S. Says**\
 `The legislators were with Mayor Ras Baraka when he was arrested Friday outside an immigration detention facility. A Department of Homeland Security spokeswoman said they could face assault charges.`\
 https://nytimes.com/2025/05/10/nyregion/newark-ice-protest-lawmakers-ras-baraka.html
-
-**William L. Porter, Designer of Classic American Cars, Dies at 93**\
-`As a senior designer at G.M., he helped create the exuberant, elongated shape of 1960s and ’70s cars like the Pontiac GTO, the Bonneville and the Trans Am.`\
-https://nytimes.com/2025/05/10/arts/design/william-l-porter-dead.html
-
-**Thumbprint on Cigarette Carton Cracks a 48-Year-Old California Murder Case**\
-`A young mother told friends that she’d be “back in 10 minutes.” She never returned, and the police in San Jose have now charged a man in her death.`\
-https://nytimes.com/2025/05/10/us/jeanette-ralston-cold-case-murder-suspect.html
 

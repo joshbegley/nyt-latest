@@ -1,3 +1,11 @@
+**Quotation of the Day: ‘Mother Pigeon’ Unfurls Her Wings to Protect Flocks**\
+`Quotation of the Day for Sunday, May 11, 2025.`\
+https://nytimes.com/2025/05/10/pageoneplus/quotation-of-the-day-mother-pigeon-unfurls-her-wings-to-protect-flocks.html
+
+**Hurricanes smother Capitals in Game 3 shutout: Takeaways**\
+`Back on home ice, Carolina took a 2-1 lead over Washington in Game 3 of the NHL playoffs' second round.`\
+https://nytimes.com/athletic/6346901/2025/05/10/hurricanes-capitals-nhl-playoffs-2025-game-3-takeaways/
+
 **Inter Miami falls 4-1 to Minnesota United, in biggest loss with Lionel Messi**\
 `Given Minnesota’s strong start to the season, this was never expected to be an easy road game for Miami.`\
 https://nytimes.com/athletic/6346831/2025/05/10/lionel-messi-inter-miami-defeat-minnesota-united/
