@@ -1,3 +1,7 @@
+**Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
+`After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said he would meet with airline leaders on Wednesday to plan to scale back Newark flights.`\
+https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
+
 **'Everyone can have their opinion' - Slot on Liverpool fans booing TAA**\
 `On Monday, Alexander-Arnold announced he would be leaving Liverpool when his contract expires this summer.`\
 https://nytimes.com/athletic/6347970/2025/05/11/trent-alexander-arnold-liverpool-booing/
