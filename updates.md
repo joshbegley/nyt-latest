@@ -1,3 +1,7 @@
+**Behind Miller’s Threat to Suspend Habeas Corpus Is the Fact That They’re Losing**\
+`Stephen Miller said on Friday the administration is looking into suspending habeas corpus. But don’t forget: The Trump administration keeps losing in court.`\
+https://nytimes.com/live/2025/05/05/opinion/thepoint/stephen-miller-habeas-corpus
+
 **Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
 `After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said he would meet with airline leaders on Wednesday to plan to scale back Newark flights.`\
 https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
