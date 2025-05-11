@@ -1,3 +1,7 @@
+**Monday Briefing: U.S.-China Talks**\
+`Plus, crypto bro fight club.`\
+https://nytimes.com/2025/05/11/briefing/us-china-talks-india-pakistan-truce-trump-netanyahu-divide.html
+
 **Tufts Student Speaks Publicly After Release From Immigration Detention**\
 `A federal judge ordered the release of Rumeysa Ozturk, a Turkish citizen studying at Tufts University on a student visa. She is one of thousands of students who face deportation, as the Trump administration escalates its attack on higher education.`\
 https://nytimes.com/video/us/100000010162690/tufts-university-student-release-rumeysa-ozturk.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/05/opinion/thepoint/stephen-miller-habeas-corpu
 **'Everyone can have their opinion' - Slot on Liverpool fans booing TAA**\
 `On Monday, Alexander-Arnold announced he would be leaving Liverpool when his contract expires this summer.`\
 https://nytimes.com/athletic/6347970/2025/05/11/trent-alexander-arnold-liverpool-booing/
-
-**Lowetide: 3 early surprises for Oilers in Golden Knights series**\
-`The playoffs are all about chaos, innovation, injury and finding answers on the fly.`\
-https://nytimes.com/athletic/6346187/2025/05/11/oilers-golden-knights-nhl-playoffs-2025-surprises/
 

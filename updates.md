@@ -1,3 +1,7 @@
+**Monday Briefing: U.S.-China Talks**\
+`Plus, crypto bro fight club.`\
+https://nytimes.com/2025/05/11/briefing/us-china-talks-india-pakistan-truce-trump-netanyahu-divide.html
+
 **Tufts Student Speaks Publicly After Release From Immigration Detention**\
 `A federal judge ordered the release of Rumeysa Ozturk, a Turkish citizen studying at Tufts University on a student visa. She is one of thousands of students who face deportation, as the Trump administration escalates its attack on higher education.`\
 https://nytimes.com/video/us/100000010162690/tufts-university-student-release-rumeysa-ozturk.html
