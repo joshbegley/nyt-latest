@@ -1,3 +1,11 @@
+**Why Patients Are Being Forced to Switch to a 2nd-Choice Obesity Drug**\
+`CVS Caremark decided to stop offering Zepbound in favor of Wegovy for weight loss. It’s the latest example of limits imposed by insurance that disrupt treatments for patients.`\
+https://nytimes.com/2025/05/11/health/zepbound-wegovy-weight-loss-drugs.html
+
+**Source of Extra Sweetness**\
+`Boy, oh, boy: Christina Iverson’s latest crossword is a fun one.`\
+https://nytimes.com/2025/05/11/crosswords/daily-puzzle-2025-05-12.html
+
 **Mets takeaways: Francisco Lindor's leadership, Brett Baty's burst and more**\
 `Lindor thought of his wife and mom after homering on Mother’s Day, but he also took inspiration from a recent failure.`\
 https://nytimes.com/athletic/6348327/2025/05/11/mets-francisco-lindor-brett-baty-mark-vientos/

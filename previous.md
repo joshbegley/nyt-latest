@@ -1,3 +1,11 @@
+**Why Patients Are Being Forced to Switch to a 2nd-Choice Obesity Drug**\
+`CVS Caremark decided to stop offering Zepbound in favor of Wegovy for weight loss. It’s the latest example of limits imposed by insurance that disrupt treatments for patients.`\
+https://nytimes.com/2025/05/11/health/zepbound-wegovy-weight-loss-drugs.html
+
+**Source of Extra Sweetness**\
+`Boy, oh, boy: Christina Iverson’s latest crossword is a fun one.`\
+https://nytimes.com/2025/05/11/crosswords/daily-puzzle-2025-05-12.html
+
 **Mets takeaways: Francisco Lindor's leadership, Brett Baty's burst and more**\
 `Lindor thought of his wife and mom after homering on Mother’s Day, but he also took inspiration from a recent failure.`\
 https://nytimes.com/athletic/6348327/2025/05/11/mets-francisco-lindor-brett-baty-mark-vientos/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6348156/2025/05/11/barcelona-real-madrid-chaos-anal
 **Hamas Says It Will Release Its Last American Hostage**\
 `The announcement, which did not say when the hostage, Edan Alexander, would be set free, came as President Trump planned to visit the region.`\
 https://nytimes.com/2025/05/11/world/middleeast/hamas-hostage-edan-alexander.html
-
-**Arteta 'really, really upset' with Arsenal players in first half at Liverpool**\
-`Arteta's side found themselves 2-0 down after 21 minutes after quickfire goals from Cody Gakpo and Luis Diaz.`\
-https://nytimes.com/athletic/6348010/2025/05/11/mikel-arteta-arsenal-liverpool/
-
-**At Least 4 Dead in Apartment Building Fire in Milwaukee**\
-`Four other people were critically injured, and 30 others were rescued after the fire broke out on Sunday morning, the authorities said.`\
-https://nytimes.com/2025/05/11/us/milwaukee-building-fire-dead.html
 
