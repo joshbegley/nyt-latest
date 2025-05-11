@@ -1,3 +1,11 @@
+**Astros pitcher Lance McCullers Jr. received threats after start**\
+`Astros manager Joe Espada was upset with what McCullers saw on social media: "It really drives me nuts. It’s very sad. Very, very sad.”`\
+https://nytimes.com/athletic/6347037/2025/05/10/astros-lance-mccullers-jr-death-threats/
+
+**Golden Knights score with 0.4 seconds left to beat Oilers in Game 3**\
+`Reilly Smith's buzzer-beating goal gave Vegas a 4-3 win over Edmonton on Saturday night.`\
+https://nytimes.com/athletic/6337459/2025/05/10/oilers-golden-knights-nhl-playoffs-2025-game-3-takeaways/
+
 **Bill Belichick front and center in support of Jordon Hudson at Miss Maine competition**\
 `Neither Hudson nor Belichick made any public comments at the event, but his presence reinforced the personal part of their relationship.`\
 https://nytimes.com/athletic/6347024/2025/05/10/bill-belichick-jordon-hudson-miss-maine/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6346786/2025/05/10/broncos-rj-harvey-rookie-camp/
 **Quotation of the Day: ‘Mother Pigeon’ Unfurls Her Wings to Protect Flocks**\
 `Quotation of the Day for Sunday, May 11, 2025.`\
 https://nytimes.com/2025/05/10/pageoneplus/quotation-of-the-day-mother-pigeon-unfurls-her-wings-to-protect-flocks.html
-
-**Hurricanes smother Capitals in Game 3 shutout: Takeaways**\
-`Back on home ice, Carolina took a 2-1 lead over Washington in Game 3 of the NHL playoffs' second round.`\
-https://nytimes.com/athletic/6346901/2025/05/10/hurricanes-capitals-nhl-playoffs-2025-game-3-takeaways/
-
-**Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
-`Freed after her painful ordeal in a federal facility, Rumeysa Ozturk expressed joy, gratitude and continued faith in American democracy.`\
-https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
 

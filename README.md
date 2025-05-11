@@ -1,3 +1,12 @@
+**Christian Vázquez's snap throw keys Twins' victory over Giants**\
+`"The guy is ready to play. He's a gamer," Twins manager Rocco Baldelli said of Vázquez. Minnesota beat San Francisco 2-1.
+`\
+https://nytimes.com/athletic/6347041/2025/05/10/twins-win-giants-christian-vazquez-snap-throw/
+
+**Padres make franchise history with 21-0 rout of Rockies**\
+`The Padres 21 runs are the second-most in franchise history, trailing the 24 scored in July 2021.`\
+https://nytimes.com/athletic/6347039/2025/05/10/padres-rockies-21-0-franchise-record/
+
 **Astros pitcher Lance McCullers Jr. received threats after start**\
 `Astros manager Joe Espada was upset with what McCullers saw on social media: "It really drives me nuts. It’s very sad. Very, very sad.”`\
 https://nytimes.com/athletic/6347037/2025/05/10/astros-lance-mccullers-jr-death-threats/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6346927/2025/05/10/braves-drake-baldwin-playing-tim
 **'Got to tap into your darkness': Celtics leave identity crisis behind**\
 `The Celtics' identity has been tested by the Knicks, but Boston might have turned around the series on Saturday.`\
 https://nytimes.com/athletic/6346947/2025/05/10/celtics-rebound-knicks-game-3-nba-playoffs/
-
-**After turning Broncos rookie camp into a juke joint, RJ Harvey eager for immediate impact**\
-`The second-round pick has studied film of Darren Sproles and Alvin Kamara as he prepares for a larger receiving role than he had in college.`\
-https://nytimes.com/athletic/6346786/2025/05/10/broncos-rj-harvey-rookie-camp/
-
-**Quotation of the Day: ‘Mother Pigeon’ Unfurls Her Wings to Protect Flocks**\
-`Quotation of the Day for Sunday, May 11, 2025.`\
-https://nytimes.com/2025/05/10/pageoneplus/quotation-of-the-day-mother-pigeon-unfurls-her-wings-to-protect-flocks.html
 
