@@ -1,4 +1,8 @@
-**Johnny Rodriguez, Country Music Star, Is Dead at 73**\
+**Stars, Mikko Rantanen gain upper hand on Jets with Game 3 victory: Takeaways**\
+`The Stars scored three third-period goals to break a tie and earn a 5-2 win in Game 3 and a 2-1 series lead.`\
+https://nytimes.com/athletic/6348528/2025/05/11/nhl-playoffs-stars-jets-game-3/
+
+**Johnny Rodriguez, Country Music Star, Dies at 73**\
 `He was best known for the 1970s hits “I Just Can’t Get Her Out of My Mind” and “Ridin’ My Thumb to Mexico,” and as the first popular Mexican American country artist.`\
 https://nytimes.com/2025/05/11/arts/music/johnny-rodriguez-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348327/2025/05/11/mets-francisco-lindor-brett-baty
 **Families of Sept. 11 Victims Urge Lutnick to Help Extradite Saudi National**\
 `The letter comes as the commerce secretary plans to accompany President Trump to Saudi Arabia this week as part of a weeklong trip to the Middle East.`\
 https://nytimes.com/2025/05/11/us/politics/sept-11-lutnick-saudi-extradition.html
-
-**Monday Briefing: U.S.-China Talks**\
-`Plus, crypto bro fight club.`\
-https://nytimes.com/2025/05/11/briefing/us-china-talks-india-pakistan-truce-trump-netanyahu-divide.html
 
