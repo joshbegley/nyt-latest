@@ -1,3 +1,7 @@
+**At Least 1 Dead and 32 Injured in Crash of Bus and S.U.V. in California**\
+`The crash happened along a highway in Los Angeles County around 5 a.m. on Sunday, official said.`\
+https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
+
 **Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
 `After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said that he would meet with airline leaders to plan a scaling back of Newark flights.`\
 https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
