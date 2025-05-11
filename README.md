@@ -1,3 +1,7 @@
+**‘S.N.L.’: Toasting Moms and Toasted Trump Appointees**\
+`Cecily Strong returns as Jeanine Pirro, Walt Goggins shows off his clogging, and a dope new pope appears in the 50th season’s penultimate episode.`\
+https://nytimes.com/2025/05/11/arts/television/snl-toasting-and-toasted.html
+
 **The Briefing: Newcastle 2 Chelsea 0 - Jackson sees red as the Champions League race takes another twist**\
 `Eddie Howe's side secured a critical win in pursuit of a top-five finish as the visitors left contemplating life without their best No 9`\
 https://nytimes.com/athletic/6339316/2025/05/11/newcastle-chelsea-jackson-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/briefing/sibling-relationships.html
 **Anthony Edwards 'owns' tough feedback, rises above it in latest glimpse of greatness**\
 `This second-round series is headed back in the most logical direction, in large part, because Edwards’ brilliance is back.`\
 https://nytimes.com/athletic/6347244/2025/05/11/anthony-edwards-timberwolves-warriors-game-3-nba-playoffs/
-
-**Latest sign of U.S.-Canada tensions: fewer Blue Jays fans make annual trek to Seattle**\
-`It's become a tradition for Blue Jays fans living on the West Coast of Canada to see their team in Seattle. Things are a bit different now.`\
-https://nytimes.com/athletic/6346525/2025/05/11/blue-jays-mariners-us-canada-tensions/
 

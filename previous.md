@@ -1,3 +1,23 @@
+**The Briefing: Newcastle 2 Chelsea 0 - Jackson sees red as the Champions League race takes another twist**\
+`Eddie Howe's side secured a critical win in pursuit of a top-five finish as the visitors left contemplating life without their best No 9`\
+https://nytimes.com/athletic/6339316/2025/05/11/newcastle-chelsea-jackson-champions-league/
+
+**The Many Meanings of ‘True’ Religion**\
+`Readers respond to an essay about religion in America. Also: Stop the elderspeak.`\
+https://nytimes.com/2025/05/11/opinion/religion-belief.html
+
+**In Trump’s America, Every Parent and Child for Themselves**\
+`President Trump’s efforts to eliminate the Department of Education and give its funding directly to the states is a nightmare for parents like myself.`\
+https://nytimes.com/2025/05/11/opinion/trump-education-disability.html
+
+**Elon Musk Thought He Could Break History. Instead It Broke Him.**\
+`Musk is leaving Washington looking less like a legend.`\
+https://nytimes.com/2025/05/11/opinion/elon-musk-washington-trump.html
+
+**The Pulse: An NBA TV evolution is underway**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6347158/2025/05/11/the-nba-on-tv-is-about-to-change-forever-heres-why/
+
 **Pope Leo XIV Calls for End to War in First Sunday Blessing as Pontiff**\
 `The new pope echoed themes that Francis, his predecessor, regularly addressed, as he appeared in front of thousands of the faithful gathered in St. Peter’s Square.`\
 https://nytimes.com/2025/05/11/world/europe/pope-leo-xiv-address-peace.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6347244/2025/05/11/anthony-edwards-timberwolves-war
 **Latest sign of U.S.-Canada tensions: fewer Blue Jays fans make annual trek to Seattle**\
 `It's become a tradition for Blue Jays fans living on the West Coast of Canada to see their team in Seattle. Things are a bit different now.`\
 https://nytimes.com/athletic/6346525/2025/05/11/blue-jays-mariners-us-canada-tensions/
-
-**Steph Curry is inching closer, but the clock is ticking on the Warriors' season**\
-`Steph Curry went through a fairly strenuous workout on the team's practice court before Saturday's Game 3. Can the Warriors stay afloat?`\
-https://nytimes.com/athletic/6346946/2025/05/11/steph-curry-warriors-injury-playoffs/
-
-**Bournemouth's Scott suffers fractured jaw after 'very violent' Mings elbow**\
-`Scott went down six minutes into the Villa loss and received lengthy treatment after Mings' elbow made contact.`\
-https://nytimes.com/athletic/6347278/2025/05/11/alex-scott-injury-jaw-mings/
-
-**Bangladesh Bans the Political Party of Its Ousted Former Ruler**\
-`Sheikh Hasina fled the country after a mass uprising against her government, but the party she led remained a factor in Bangladeshi politics.`\
-https://nytimes.com/2025/05/11/world/asia/bangladesh-awami-party-ban.html
-
-**Presidential Candidates Vow to Heal a Divided South Korea. They Are Poles Apart.**\
-`Lee Jae-myung and Kim Moon-soo represent the opposite sides of a country polarized over former President Yoon Suk Yeol’s use of martial law and his ouster.`\
-https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-candidates.html
-
-**Hamburg pitch invasion sees 25 hospitalised, one with 'life-threatening injuries'**\
-`The fire department said 65 medical and emergency staff were deployed following the team's promotion to the Bundesliga after a win over Ulm.`\
-https://nytimes.com/athletic/6347277/2025/05/11/hamburg-pitch-invasion-fans/
 
