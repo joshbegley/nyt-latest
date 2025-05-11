@@ -31,7 +31,7 @@ https://nytimes.com/2025/05/10/pageoneplus/quotation-of-the-day-mother-pigeon-un
 https://nytimes.com/athletic/6346901/2025/05/10/hurricanes-capitals-nhl-playoffs-2025-game-3-takeaways/
 
 **Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
-`A federal judge had ordered the government to immediately release Rumeysa Ozturk, who was being held in a federal facility in Louisiana.`\
+`Freed after her painful ordeal in a federal facility, Rumeysa Ozturk expressed joy, gratitude and continued faith in American democracy.`\
 https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
 
 **Margot Friedländer, Holocaust Survivor Who Found Her Voice, Dies at 103**\

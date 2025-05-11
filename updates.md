@@ -1,3 +1,7 @@
+**Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
+`Freed after her painful ordeal in a federal facility, Rumeysa Ozturk expressed joy, gratitude and continued faith in American democracy.`\
+https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
+
 **Corrections: May 11, 2025**\
 `Corrections that appeared in print on Sunday, May 11, 2025.`\
 https://nytimes.com/2025/05/10/pageoneplus/corrections-may-11-2025.html
