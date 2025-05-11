@@ -1,3 +1,7 @@
+**Colombia Grants Asylum to Richard Martinelli, Ex-President of Panama**\
+`The former leader said he had traveled to Bogotá after spending a year holed up the Nicaraguan embassy in Panama City following a money-laundering conviction.`\
+https://nytimes.com/2025/05/11/world/americas/ricardo-martinelli-panama-colombia-asylum.html
+
 **Could Branding Herself as a ‘Mom Governor’ Help Hochul Win Re-election?**\
 `Gov. Kathy Hochul of New York, a moderate Democrat, used Fox News to amplify a message that her policies are “giving kids their childhoods back.”`\
 https://nytimes.com/2025/05/11/nyregion/hochul-budget-governor-election.html
