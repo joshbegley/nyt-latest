@@ -1,3 +1,11 @@
+**Johnny Rodriguez, Country Music Star, Dead at 73**\
+`He was best known for the 1970s hits “I Just Can’t Get Her Out of My Mind” and “Ridin’ My Thumb to Mexico,” and as the first popular Mexican American country artist.`\
+https://nytimes.com/2025/05/11/us/johnny-rodriguez-dead.html
+
+**NBA playoffs takeaways: Thunder rules down stretch, ties series vs. Nuggets**\
+`The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
+https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
+
 **Braves takeaways: Spencer Strider's return, an anemic offense and more**\
 `Chis Sale has a 2.20 ERA in his past five starts but there is no margin for error with the Braves' bats struggling.`\
 https://nytimes.com/athletic/6348375/2025/05/11/braves-spencer-strider-return-chris-sale/

@@ -1,3 +1,7 @@
+**Johnny Rodriguez, Country Music Star, Dead at 73**\
+`He was best known for the 1970s hits “I Just Can’t Get Her Out of My Mind” and “Ridin’ My Thumb to Mexico,” and as the first popular Mexican American country artist.`\
+https://nytimes.com/2025/05/11/us/johnny-rodriguez-dead.html
+
 **Braves takeaways: Spencer Strider's return, an anemic offense and more**\
 `Chis Sale has a 2.20 ERA in his past five starts but there is no margin for error with the Braves' bats struggling.`\
 https://nytimes.com/athletic/6348375/2025/05/11/braves-spencer-strider-return-chris-sale/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
 `The win moves Straka up to No. 2 in the FedEx Cup standings behind only Rory McIlroy.`\
 https://nytimes.com/athletic/6348461/2025/05/11/sepp-straka-truist-championship-pga-tour-win/
 
-**NBA playoffs takeaways: Depth helps Thunder top Nuggets, tie series**\
+**NBA playoffs takeaways: Thunder rules down stretch, ties series vs. Nuggets**\
 `The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
 https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/us/politics/sept-11-lutnick-saudi-extradition.htm
 **Monday Briefing: U.S.-China Talks**\
 `Plus, crypto bro fight club.`\
 https://nytimes.com/2025/05/11/briefing/us-china-talks-india-pakistan-truce-trump-netanyahu-divide.html
-
-**Tufts Student Speaks Publicly After Release From Immigration Detention**\
-`A federal judge ordered the release of Rumeysa Ozturk, a Turkish citizen studying at Tufts University on a student visa. She is one of thousands of students who face deportation, as the Trump administration escalates its attack on higher education.`\
-https://nytimes.com/video/us/100000010162690/tufts-university-student-release-rumeysa-ozturk.html
 
