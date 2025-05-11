@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-f
 https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
 
 **Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
-`After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said that he would meet with airline leaders to plan a scaling back of Newark flights.`\
+`After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said he would meet with airline leaders on Wednesday to plan to scale back Newark flights.`\
 https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
 
 **How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
