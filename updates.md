@@ -1,3 +1,7 @@
+**What have the Hurricanes done to Alex Ovechkin?**\
+`Ovechkin has zero points through the first three games of the Capitals' second-round series with the Hurricanes.`\
+https://nytimes.com/athletic/6348128/2025/05/11/nhl-hurricanes-capitals-alex-ovechkin-playoffs/
+
 **Breaking down the chaos of another remarkable Clasico**\
 `Barca's 4-3 win against Madrid was another reminder to always, always watch Spain's biggest game`\
 https://nytimes.com/athletic/6348156/2025/05/11/barcelona-real-madrid-chaos-analysis/
