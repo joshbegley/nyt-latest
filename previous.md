@@ -1,3 +1,11 @@
+**Rockies fire Bud Black after brutal start**\
+`Third-base coach Warren Schaeffer is now the interim manager, and hitting coach Clint Hurdle will serve as the interim bench coach.`\
+https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
+
+**Sepp Straka wins Truist Championship for fourth career PGA Tour victory**\
+`The win moves Straka up to No. 2 in the FedEx Cup standings behind only Rory McIlroy.`\
+https://nytimes.com/athletic/6348461/2025/05/11/sepp-straka-truist-championship-pga-tour-win/
+
 **NBA playoffs takeaways: Depth helps Thunder top Nuggets, tie series**\
 `The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
 https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010162690/tufts-university-student-release-ru
 **White South Africans Granted Refugee Status by Trump Leave for U.S.**\
 `Dozens of Afrikaners who claim discrimination in their home country left Johannesburg on Sunday. Their departure for the U.S. came as the Trump administration was halting virtually all refugee admissions.`\
 https://nytimes.com/2025/05/11/world/africa/white-south-africans-granted-refugee-status-by-trump-leave-for-us.html
-
-**What have the Hurricanes done to Alex Ovechkin?**\
-`Ovechkin has zero points through the first three games of the Capitals' second-round series with the Hurricanes.`\
-https://nytimes.com/athletic/6348128/2025/05/11/nhl-hurricanes-capitals-alex-ovechkin-playoffs/
-
-**Breaking down the chaos of another remarkable Clasico**\
-`Barca's 4-3 win against Madrid was another reminder to always, always watch Spain's biggest game`\
-https://nytimes.com/athletic/6348156/2025/05/11/barcelona-real-madrid-chaos-analysis/
 
