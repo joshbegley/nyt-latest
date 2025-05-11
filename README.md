@@ -1,3 +1,7 @@
+**Colombia Grants Asylum to Richard Martinelli, Ex-President of Panama**\
+`The former leader said he had traveled to Bogotá after spending a year holed up the Nicaraguan embassy in Panama City following a money-laundering conviction.`\
+https://nytimes.com/2025/05/11/world/americas/ricardo-martinelli-panama-colombia-asylum.html
+
 **Could Branding Herself as a ‘Mom Governor’ Help Hochul Win Re-election?**\
 `Gov. Kathy Hochul of New York, a moderate Democrat, used Fox News to amplify a message that her policies are “giving kids their childhoods back.”`\
 https://nytimes.com/2025/05/11/nyregion/hochul-budget-governor-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/11/todays-new-york-times
 **The Flaws of Being a Perfect Mother**\
 `Being flawed is an important part of a mother’s job. How else would the children in your world learn that flaws are OK and to accept their own?`\
 https://nytimes.com/2025/05/11/opinion/mothers-day-parenting.html
-
-**How to watch Barcelona vs. Real Madrid in Sunday's latest installment of El Clasico**\
-`The last El Clásico was a match of the year candidate in the Copa del Rey final. The La Liga rematch goes down Sunday in Barcelona.`\
-https://nytimes.com/athletic/6342873/2025/05/11/barcelona-real-madrid-el-clasico-how-to-watch/
 
