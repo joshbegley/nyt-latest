@@ -30,7 +30,7 @@ https://nytimes.com/video/world/europe/100000010162394/pope-leo-xiv-sunday-bless
 `A very dry start to spring has helped set off wildfires across Scotland, Wales and England, and officials have warned of a potential drought this summer.`\
 https://nytimes.com/2025/05/11/weather/uk-wildfires-drought-warnings.html
 
-**Trump Administration Live Updates: Top U.S. and Chinese Officials Meet for Trade Talks**\
+**Trump Administration Live Updates: Trump Is Said to Be Getting Qatari 747 for Air Force One, and Post-Presidency Travel**\
 ``\
 https://nytimes.com/live/2025/05/11/us/trump-news
 
