@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Thunder outplays Nuggets down stretch, ties series**\
+`The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
+https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
+
 **Stars, Mikko Rantanen gain upper hand on Jets with Game 3 victory: Takeaways**\
 `The Stars scored three third-period goals to break a tie and earn a 5-2 win in Game 3 and a 2-1 series lead.`\
 https://nytimes.com/athletic/6348528/2025/05/11/nhl-playoffs-stars-jets-game-3/

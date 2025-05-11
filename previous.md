@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
 `The win moves Straka up to No. 2 in the FedEx Cup standings behind only Rory McIlroy.`\
 https://nytimes.com/athletic/6348461/2025/05/11/sepp-straka-truist-championship-pga-tour-win/
 
-**NBA playoffs takeaways: Thunder rules down stretch, ties series vs. Nuggets**\
+**NBA playoffs takeaways: Thunder outplays Nuggets down stretch, ties series**\
 `The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
 https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
 
