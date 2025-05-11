@@ -1,3 +1,7 @@
+**At Least 1 Dead and 32 Injured After Bus Crashes Into S.U.V. in California**\
+`The bus crashed into a disabled S.U.V. on a highway in Los Angeles County around 5 a.m. Sunday, officials said.`\
+https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
+
 **Leicester hopeful of new contract for teenager Monga - Van Nistelrooy**\
 `The teenager has attracted attention from a number of clubs including Manchester City, Chelsea and Real Madrid.`\
 https://nytimes.com/athletic/6347922/2025/05/11/jeremy-monga-leicester-contract/
