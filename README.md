@@ -1,10 +1,30 @@
+**Can King Charles Heal a Royal Family Crisis Before It’s Too Late?**\
+`Prince Harry’s desperate plea to reconcile with his father highlighted a rupture that could undermine the monarchy’s attempts to model unity.`\
+https://nytimes.com/2025/05/11/world/europe/charles-harry-royal-family-crisis.html
+
+**Can Trump Rename the Persian Gulf?**\
+`His suggestion to call the body of water the “Arabian Gulf” has apparently done the impossible: Unite Iranians.`\
+https://nytimes.com/2025/05/11/world/middleeast/can-trump-rename-the-persian-gulf.html
+
+**Why America’s ‘Beautiful Beef’ Is a Trade War Sore Point for Europe**\
+`European officials call food safety standards a “red line,” as Trump administration officials criticize rules that keep American beef and other meats off grocery shelves.`\
+https://nytimes.com/2025/05/11/world/europe/tariffs-farm-products-beef-meat-european-union-trump.html
+
+**Trump’s No. 1 Fan in Greenland: A Bricklayer Turned Political Player**\
+`Jorgen Boassen’s idolization of all things Trump, which has won him friends in Washington and sometimes hostile attention at home, has given him an unlikely new career: political influencer.`\
+https://nytimes.com/2025/05/11/world/europe/greenland-trump-biggest-fan.html
+
+**Connections: Sports Edition Coach: Hints for May 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6347025/2025/05/11/connections-sports-edition-hints-for-may-11-2025/
+
 **Christian Vázquez's snap throw keys Twins' victory over Giants**\
 `"The guy is ready to play. He's a gamer," Twins manager Rocco Baldelli said of Vázquez. Minnesota beat San Francisco 2-1.
 `\
 https://nytimes.com/athletic/6347041/2025/05/10/twins-win-giants-christian-vazquez-snap-throw/
 
 **Padres make franchise history with 21-0 rout of Rockies**\
-`The Padres 21 runs are the second-most in franchise history, trailing the 24 scored in July 2021.`\
+`The Padres' 21 runs are the second-most in franchise history, trailing the 24 scored in July 2021.`\
 https://nytimes.com/athletic/6347039/2025/05/10/padres-rockies-21-0-franchise-record/
 
 **Astros pitcher Lance McCullers Jr. received threats after start**\
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/6337459/2025/05/10/oilers-golden-knights-nhl-playof
 **Bill Belichick front and center in support of Jordon Hudson at Miss Maine competition**\
 `Neither Hudson nor Belichick made any public comments at the event, but his presence reinforced the personal part of their relationship.`\
 https://nytimes.com/athletic/6347024/2025/05/10/bill-belichick-jordon-hudson-miss-maine/
-
-**Corrections: May 11, 2025**\
-`Corrections that appeared in print on Sunday, May 11, 2025.`\
-https://nytimes.com/2025/05/10/pageoneplus/corrections-may-11-2025.html
-
-**Knicks had a chance to be on the right side of NBA history. Now they have questions**\
-`No team has ever blown a 3-0 lead, but New York won't have that chance because it keeps falling behind. It has to be fixed.`\
-https://nytimes.com/athletic/6346899/2025/05/10/knicks-celtics-game-3-nba-falling-behind/
-
-**Koyo Kouoh, Prominent Art World Figure, Is Dead at 57**\
-`She had recently been named to oversee next year’s Venice Biennale. She died just days before she was scheduled to announce its theme and title.`\
-https://nytimes.com/2025/05/10/arts/design/koyo-kouoh-dead.html
-
-**With strong start, Braves rookie Drake Baldwin makes case for more playing time**\
-`Baldwin ranks among the MLB rookie leaders in several offensive categories and keeps improving defensively: "He continues to impress."`\
-https://nytimes.com/athletic/6346927/2025/05/10/braves-drake-baldwin-playing-time/
-
-**'Got to tap into your darkness': Celtics leave identity crisis behind**\
-`The Celtics' identity has been tested by the Knicks, but Boston might have turned around the series on Saturday.`\
-https://nytimes.com/athletic/6346947/2025/05/10/celtics-rebound-knicks-game-3-nba-playoffs/
 
