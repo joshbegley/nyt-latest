@@ -1,3 +1,7 @@
+**Bill Belichick front and center in support of Jordon Hudson at Miss Maine competition**\
+`Neither Hudson nor Belichick made any public comments at the event, but his presence reinforced the personal part of their relationship.`\
+https://nytimes.com/athletic/6347024/2025/05/10/bill-belichick-jordon-hudson-miss-maine/
+
 **Corrections: May 11, 2025**\
 `Corrections that appeared in print on Sunday, May 11, 2025.`\
 https://nytimes.com/2025/05/10/pageoneplus/corrections-may-11-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346901/2025/05/10/hurricanes-capitals-nhl-playoffs
 **Tufts Student Returns to Massachusetts After 6 Weeks in Immigration Detention**\
 `Freed after her painful ordeal in a federal facility, Rumeysa Ozturk expressed joy, gratitude and continued faith in American democracy.`\
 https://nytimes.com/2025/05/10/us/tufts-rumeysa-ozturk-release.html
-
-**Margot Friedländer, Holocaust Survivor Who Found Her Voice, Dies at 103**\
-`She never spoke of her experience until after her husband’s death, when she returned to Berlin with a mission to tell her story, and to teach tolerance.`\
-https://nytimes.com/2025/05/10/world/europe/margot-friedlander-dead.html
 
