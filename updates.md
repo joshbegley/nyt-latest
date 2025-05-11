@@ -1,3 +1,7 @@
+**Johnny Rodriguez, Country Music Star, Is Dead at 73**\
+`He was best known for the 1970s hits “I Just Can’t Get Her Out of My Mind” and “Ridin’ My Thumb to Mexico,” and as the first popular Mexican American country artist.`\
+https://nytimes.com/2025/05/11/arts/music/johnny-rodriguez-dead.html
+
 **Johnny Rodriguez, Country Music Star, Dead at 73**\
 `He was best known for the 1970s hits “I Just Can’t Get Her Out of My Mind” and “Ridin’ My Thumb to Mexico,” and as the first popular Mexican American country artist.`\
 https://nytimes.com/2025/05/11/us/johnny-rodriguez-dead.html

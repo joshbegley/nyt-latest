@@ -1,6 +1,6 @@
-**Johnny Rodriguez, Country Music Star, Dead at 73**\
+**Johnny Rodriguez, Country Music Star, Is Dead at 73**\
 `He was best known for the 1970s hits “I Just Can’t Get Her Out of My Mind” and “Ridin’ My Thumb to Mexico,” and as the first popular Mexican American country artist.`\
-https://nytimes.com/2025/05/11/us/johnny-rodriguez-dead.html
+https://nytimes.com/2025/05/11/arts/music/johnny-rodriguez-dead.html
 
 **Braves takeaways: Spencer Strider's return, an anemic offense and more**\
 `Chis Sale has a 2.20 ERA in his past five starts but there is no margin for error with the Braves' bats struggling.`\
