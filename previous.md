@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/11/arts/television/snl-toasting-and-toasted.html
 
 **The Briefing: Newcastle 2 Chelsea 0 - Jackson sees red as the Champions League race takes another twist**\
-`Eddie Howe's side secured a critical win in pursuit of a top-five finish as the visitors left contemplating life without their best No 9`\
+`Eddie Howe's side secure a critical win in pursuit of a top-five finish as the visitors are left considering life without their best No 9`\
 https://nytimes.com/athletic/6339316/2025/05/11/newcastle-chelsea-jackson-champions-league/
 
 **The Many Meanings of ‘True’ Religion**\
