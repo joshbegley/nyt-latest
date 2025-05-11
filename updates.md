@@ -1,3 +1,8 @@
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Bangladesh Bans the Political Party of Its Ousted Former Ruler**\
 `Sheikh Hasina fled the country after a mass uprising against her government, but the party she led remained a factor in Bangladeshi politics.`\
 https://nytimes.com/2025/05/11/world/asia/bangladesh-awami-party-ban.html
