@@ -1,3 +1,7 @@
+**As Truce Seems to Hold, India and Pakistan Both Claim Victory**\
+`The Trump administration’s public descriptions of its role in the mediation seemed to touch some sensitive spots politically in India.`\
+https://nytimes.com/2025/05/11/world/asia/india-pakistan-kashmir-ceasefire.html
+
 **Kulusevski 'should be okay' after knee injury, says Postecoglou**\
 `Kulusevski went down in the 16th minute following a strong challenge from Palace defender Marc Guehi and received treatment on his knee.`\
 https://nytimes.com/athletic/6347367/2025/05/11/dejan-kulusevski-injury-update-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347523/2025/05/11/alia-guagni-como-captain-retires
 **Pope Leo XIV Delivers His First Sunday Blessing**\
 `The new pope called for the end of war, echoing themes that Francis, his predecessor, regularly addressed.`\
 https://nytimes.com/video/world/europe/100000010162394/pope-leo-xiv-sunday-blessing.html
-
-**Britain Battles Wildfires Amid Drought Warnings**\
-`A very dry start to spring has helped set off wildfires across Scotland, Wales and England, and officials have warned of a potential drought this summer.`\
-https://nytimes.com/2025/05/11/weather/uk-wildfires-drought-warnings.html
 
