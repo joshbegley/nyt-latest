@@ -1,3 +1,7 @@
+**Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
+`After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said that he would meet with airline leaders to plan a scaling back of Newark flights.`\
+https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
+
 **How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
 `Butler's aggression bothers Minnesota's defense. How he plays dominoes provides a glimpse into how his mind works in these situations.`\
 https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playoffs-warriors/

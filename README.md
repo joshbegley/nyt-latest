@@ -1,3 +1,7 @@
+**At Least 1 Dead and 32 Injured in Crash of Bus and S.U.V. in California**\
+`The crash happened along a highway in Los Angeles County around 5 a.m. on Sunday, official said.`\
+https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
+
 **Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
 `After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said that he would meet with airline leaders to plan a scaling back of Newark flights.`\
 https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/world/asia/india-pakistan-kashmir-ceasefire.html
 **Kulusevski 'should be okay' after knee injury, says Postecoglou**\
 `Kulusevski went down in the 16th minute following a strong challenge from Palace defender Marc Guehi and received treatment on his knee.`\
 https://nytimes.com/athletic/6347367/2025/05/11/dejan-kulusevski-injury-update-tottenham/
-
-**How a Quiet American Cardinal Became Pope**\
-`At a conclave with many new members, a swift, stunning consensus built around an unknown to many outside of the church.`\
-https://nytimes.com/2025/05/11/world/europe/conclave-vote-pope-leo-robert-prevost.html
 
