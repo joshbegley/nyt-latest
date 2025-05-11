@@ -1,3 +1,7 @@
+**Cade Horton is fearless in his winning Cubs debut**\
+`Horton filled the spot of an injured Shota Imanaga, and carries the promise of being the rare homegrown Cubs pitcher to win big.`\
+https://nytimes.com/athletic/6347156/2025/05/11/cade-horton-cubs-debut/
+
 **The New York Times in Print for Sunday, May 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/11/todays-new-york-times

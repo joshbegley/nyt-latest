@@ -1,3 +1,7 @@
+**Cade Horton is fearless in his winning Cubs debut**\
+`Horton filled the spot of an injured Shota Imanaga, and carries the promise of being the rare homegrown Cubs pitcher to win big.`\
+https://nytimes.com/athletic/6347156/2025/05/11/cade-horton-cubs-debut/
+
 **The New York Times in Print for Sunday, May 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/11/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6327187/2025/05/11/david-kogan-football-independent
 **With blowout loss, LA Galaxy set MLS record by being winless after 12 games**\
 `The Red Bulls humiliated the Galaxy in a 7-0 debacle, leaving LA with a league-worst minus-20 in goal differential.`\
 https://nytimes.com/athletic/6347082/2025/05/11/la-galaxy-mls-record-losing-streak/
-
-**Liverpool vs Arsenal preview: How do fans feel?, view on the opposition's season and our writers' predictions**\
-`Liverpool may be champions, but Arsenal very much have points to play for - our writers on the two teams look ahead to Sunday's game`\
-https://nytimes.com/athletic/6342058/2025/05/11/liverpool-arsenal-predictions-tactics/
 
