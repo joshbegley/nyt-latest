@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/10/world/europe/margot-friedlander-dead.html
 `In a digital age, the front pages of print newspapers can still capture a historic moment as they did on Friday with word-playing headlines, splashy photos and a dose of solemnity.`\
 https://nytimes.com/2025/05/10/world/europe/pope-leo-news-front-pages.html
 
-**Inter Miami falls 4-1 to Minnesota United, biggest loss with Lionel Messi**\
+**Inter Miami falls 4-1 to Minnesota United, in biggest loss with Lionel Messi**\
 `Given Minnesota’s strong start to the season, this was never expected to be an easy road game for Miami.`\
 https://nytimes.com/athletic/6346831/2025/05/10/lionel-messi-inter-miami-defeat-minnesota-united/
 
