@@ -1,40 +1,40 @@
-**The Danger for India and Pakistan Has Not Gone Away**\
-`New developments in the nuclear powers’ harrowing four-day conflict, along with entrenched religious nationalism on each side, could signal more frequent battles ahead.`\
-https://nytimes.com/2025/05/11/world/asia/india-pakistan-war-analysis.html
+**Trump Is Reaching Into Parents’ Lives. Can Democrats Capitalize?**\
+`As prices of baby gear surge and vaccine misinformation spreads, some Democrats see a chance to tap into parents’ raw emotions — something Republicans have recently been far better at doing.`\
+https://nytimes.com/2025/05/11/us/politics/trump-rfk-jr-vaccines-democrats-parents.html
 
-**Listen: Can Spurs' new 'sexy pragmatism' overcome Manchester United's chaos?**\
-`The View From The Lane team discuss whether Tottenham or Manchester United will have the edge heading into the Europa League final`\
-https://nytimes.com/athletic/6345022/2025/05/11/view-from-the-lane-tottenham-manchester-united-preview/
+**The Mother Whose Catholic Faith Inspired the Future Pope**\
+`Mildred Prevost, a mother of three who sought a graduate degree, held her religious devotion at the center of her life.`\
+https://nytimes.com/2025/05/11/us/the-mother-whose-catholic-faith-inspired-the-future-pope.html
 
-**What We Know About How the 4-Day India and Pakistan Clashes Unfolded**\
-`Some details are clouded by contradictory statements and disinformation. But a pattern of rapid escalation brought the conflict to the brink of catastrophe.`\
-https://nytimes.com/2025/05/11/world/asia/india-pakistan-what-we-know.html
+**Abel Tesfaye Bids Farewell to The Weeknd**\
+`In his new film, “Hurry Up Tomorrow,” the Weeknd plays the Weeknd for the last time. What’s next for him?`\
+https://nytimes.com/2025/05/11/style/the-weeknd-hurry-up-tomorrow.html
 
-**Colombia Grants Asylum to Richard Martinelli, Ex-President of Panama**\
-`The former leader said he had traveled to Bogotá after spending a year holed up the Nicaraguan embassy in Panama City following a money-laundering conviction.`\
-https://nytimes.com/2025/05/11/world/americas/ricardo-martinelli-panama-colombia-asylum.html
+**A Soprano Jumped Into the ‘Ring.’ Now the Role Is Entirely Hers.**\
+`The Welsh-Ukrainian singer Natalya Romaniw was a late addition to a new “Die Walküre” in London, but she has become a highlight of the production.`\
+https://nytimes.com/2025/05/11/arts/music/natalya-romaniw-die-walkure-royal-opera.html
 
-**Could Branding Herself as a ‘Mom Governor’ Help Hochul Win Re-election?**\
-`Gov. Kathy Hochul of New York, a moderate Democrat, used Fox News to amplify a message that her policies are “giving kids their childhoods back.”`\
-https://nytimes.com/2025/05/11/nyregion/hochul-budget-governor-election.html
+**Fires, Deficits, Trump, a Hollywood Exodus. How Resilient Is California?**\
+`The state is confronting what officials say is an unprecedented confluence of forces that will test its long record of enduring catastrophes, natural and otherwise.`\
+https://nytimes.com/2025/05/11/us/california-turmoil-resilience.html
 
-**‘A World-Wise Waitress Came to the Table and Scoped Out the Group’**\
-`A big breakfast after dancing all night, coveting a neighbor’s dessert and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/05/11/nyregion/metropolitan-diary.html
+**In Their Final Moments, a Pompeii Family Fought to Survive**\
+`Archaeologists unearthed skeletal remains of four people in a well-appointed Roman home, along with signs of their efforts to outlast the eruption of Mount Vesuvius.`\
+https://nytimes.com/2025/05/11/science/pompeii-vesuvius-family.html
 
-**In a Beloved Bronx Park, a Neighborhood’s Drug Crisis Is on Full Display**\
-`The largest public park in the South Bronx was once a refuge in a neighborhood marked by poverty and neglect. Now, many residents actively avoid it.`\
-https://nytimes.com/2025/05/11/nyregion/st-marys-park-bronx-deterioration.html
+**NHL playoffs picks, odds for Jets at Stars, Maple Leafs at Panthers on Sunday**\
+`Sunday's NHL action features a momentum-swinging Game 3 and a potentially series-tying Game 4.`\
+https://nytimes.com/athletic/6346647/2025/05/11/nhl-playoff-picks-odds-how-to-watch-jets-stars-maple-leafs-panthers-sunday/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/11/crosswords/spelling-bee-forum.html
+**Once in Sync, Trump and Netanyahu Now Show Signs of Division**\
+`Both men are politically divisive, fiercely combative and have outsize egos. But as Mr. Trump arrives in the Middle East next week, the fate of the region could hinge on their relationship.`\
+https://nytimes.com/2025/05/11/world/europe/trump-netanyahu-iran-yemen.html
 
-**Erling Haaland's return leaves Pep Guardiola with a quandary in FA Cup final week**\
-`City were far more threatening at Southampton once Omar Marmoush was introduced but can they play him, Haaland and Kevin De Bruyne together?`\
-https://nytimes.com/athletic/6346185/2025/05/11/haaland-guardiola-manchester-city-southampton-fa-cup/
+**25 Ways to Get in on Dance Music’s Renaissance**\
+`Where to club, which artists to follow, five songs you’ve got to hear and more.`\
+https://nytimes.com/2025/05/11/arts/music/dance-music-streams-clubs-artists-songs.html
 
-**A Night in Kashmir, Caught Between India and Pakistan’s Fight**\
-`Far from the missile strikes and drone combat that grabbed the world’s attention, ordinary Kashmiris suffer the heaviest toll of India and Pakistan’s confrontation.`\
-https://nytimes.com/2025/05/11/world/asia/kashmir-conflict-eyewitness.html
+**Odd Couple Roommates, Bonded by Pills and Precarity**\
+`A college dropout becomes caretaker to a Lithuanian widow in Ocean Vuong’s florid new novel, which seeks to find the dignity in dead-end jobs.`\
+https://nytimes.com/2025/05/11/books/review/ocean-vuong-the-emperor-of-gladness.html
 
