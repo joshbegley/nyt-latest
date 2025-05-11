@@ -1,3 +1,11 @@
+**Latest sign of U.S.-Canada tensions: fewer Blue Jays fans make annual trek to Seattle**\
+`It's become a tradition for Blue Jays fans living on the West Coast of Canada to see their team in Seattle. Things are a bit different now.`\
+https://nytimes.com/athletic/6346525/2025/05/11/blue-jays-mariners-us-canada-tensions/
+
+**Steph Curry is inching closer, but the clock is ticking on the Warriors' season**\
+`Steph Curry went through a fairly strenuous workout on the team's practice court before Saturday's Game 3. Can the Warriors stay afloat?`\
+https://nytimes.com/athletic/6346946/2025/05/11/steph-curry-is-inching-closer-but-the-clock-is-ticking-on-the-warriors-season/
+
 **Bournemouth's Scott suffers fractured jaw after 'very violent' Mings elbow**\
 `Scott went down six minutes into the Villa loss and received lengthy treatment after Mings' elbow made contact.`\
 https://nytimes.com/athletic/6347278/2025/05/11/alex-scott-injury-jaw-mings/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/11/opinion/pope-leo-christianity-evangelicals.html
 **The Sunday Read: ‘My Miserable Week in the “Happiest Country on Earth’’’**\
 `For eight years running, Finland has topped the World Happiness Report — but what exactly does it measure?`\
 https://nytimes.com/2025/05/11/podcasts/the-daily/finland-happinest-country.html
-
-**Why We Can’t Escape Alcatraz**\
-`For Trump and others, it evinces powerful nostalgia for something that never actually existed.`\
-https://nytimes.com/2025/05/11/opinion/alcatraz-trump-prison-prohibition.html
-
-**How a last-second goal saved Golden Knights, stunned Oilers and swung series**\
-`Just the third go-ahead goal scored with less than one second remaining in NHL playoff history, it defies belief for so many reasons.`\
-https://nytimes.com/athletic/6347194/2025/05/11/oilers-golden-knights-reilly-smith-goal-nhl-playoffs/
 
