@@ -1,3 +1,8 @@
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Latest sign of U.S.-Canada tensions: fewer Blue Jays fans make annual trek to Seattle**\
 `It's become a tradition for Blue Jays fans living on the West Coast of Canada to see their team in Seattle. Things are a bit different now.`\
 https://nytimes.com/athletic/6346525/2025/05/11/blue-jays-mariners-us-canada-tensions/

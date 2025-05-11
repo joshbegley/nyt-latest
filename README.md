@@ -1,3 +1,7 @@
+**Anthony Edwards 'owns' tough feedback, rises above it in latest glimpse of greatness**\
+`This second-round series is headed back in the most logical direction, in large part, because Anthony Edwards’ brilliance is back.`\
+https://nytimes.com/athletic/6347244/2025/05/11/anthony-edwards-timberwolves-warriors-game-3-nba-playoffs/
+
 **Latest sign of U.S.-Canada tensions: fewer Blue Jays fans make annual trek to Seattle**\
 `It's become a tradition for Blue Jays fans living on the West Coast of Canada to see their team in Seattle. Things are a bit different now.`\
 https://nytimes.com/athletic/6346525/2025/05/11/blue-jays-mariners-us-canada-tensions/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-p
 **Pope Leo Is All Over the Map, and That’s Driving Some People Crazy**\
 `Neither MAGA nor woke, the new pontiff confounds political categories.`\
 https://nytimes.com/2025/05/11/opinion/pope-leo-christianity-evangelicals.html
-
-**The Sunday Read: ‘My Miserable Week in the “Happiest Country on Earth’’’**\
-`For eight years running, Finland has topped the World Happiness Report — but what exactly does it measure?`\
-https://nytimes.com/2025/05/11/podcasts/the-daily/finland-happinest-country.html
 
