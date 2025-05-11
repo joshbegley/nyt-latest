@@ -1,3 +1,7 @@
+**Sevilla spend night at training centre after 'violent attacks' by supporters**\
+`"A large group of violent individuals" were said to have "invaded" the Sevilla training base, a club statement confirmed on Sunday.`\
+https://nytimes.com/athletic/6347265/2025/05/11/sevilla-fans-training-ground/
+
 **Trump Is Reaching Into Parents’ Lives. Can Democrats Capitalize?**\
 `As prices of baby gear surge and vaccine misinformation spreads, some Democrats see a chance to tap into parents’ raw emotions — something Republicans have recently been far better at doing.`\
 https://nytimes.com/2025/05/11/us/politics/trump-rfk-jr-vaccines-democrats-parents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/world/europe/trump-netanyahu-iran-yemen.html
 **25 Ways to Get in on Dance Music’s Renaissance**\
 `Where to club, which artists to follow, five songs you’ve got to hear and more.`\
 https://nytimes.com/2025/05/11/arts/music/dance-music-streams-clubs-artists-songs.html
-
-**Odd Couple Roommates, Bonded by Pills and Precarity**\
-`A college dropout becomes caretaker to a Lithuanian widow in Ocean Vuong’s florid new novel, which seeks to find the dignity in dead-end jobs.`\
-https://nytimes.com/2025/05/11/books/review/ocean-vuong-the-emperor-of-gladness.html
 
