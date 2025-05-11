@@ -1,3 +1,15 @@
+**How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
+`Butler's aggression bothers Minnesota's defense. How he plays dominoes provides a glimpse into how his mind works in these situations.`\
+https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playoffs-warriors/
+
+**Maple Leafs lineup vs. Panthers: Who's in, who's out, who's where in Game 4**\
+`Leafs captain Auston Matthews missed the team's skate on Sunday morning, but will play in Game 4.`\
+https://nytimes.com/athletic/6347030/2025/05/11/maple-leafs-lineup-panthers-game-4-nhl-playoffs/
+
+**Heavy Rain and Flooding Threaten the Southeast and Mid-Atlantic**\
+`Forecasters warn of flash flooding from Florida to Virginia amid a slow-moving system that is expected to bring heavy rainfall through Wednesday.`\
+https://nytimes.com/2025/05/11/weather/southeast-storms-floods-rain.html
+
 **Pope’s Family History Offers a Glimpse Into the American Creole Journey**\
 `The revelation that Leo XIV has roots among New Orleans Creoles has stirred curiosity and joy about the first pope from the United States.`\
 https://nytimes.com/2025/05/11/us/creole-identity-history-pope-new-orleans.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/11/world/europe/conclave-vote-pope-leo-robert-prevos
 **The Briefing: Man Utd 0 West Ham 2 - Yoro injury worry and most league losses since 1973-74**\
 `Our writers analyse and evaluate the key talking points from Manchester United's loss to West Ham United`\
 https://nytimes.com/athletic/6339847/2025/05/11/man-utd-0-west-ham-2-briefing-yoro/
-
-**The Briefing: Spurs 0 Palace 2 - Postecoglou's changes fall flat, Kulusevski a cup-final injury concern**\
-`Jay Harris looks at the talking points from another disappointing Spurs performance at the Tottenham Hotspur Stadium`\
-https://nytimes.com/athletic/6339317/2025/05/11/tottenham-crystal-palace-premier-league/
-
-**Trump Is to Accept a Luxury 747 From Qatar for Use as Air Force One**\
-`The plan raises substantial ethical issues, given the immense value of the lavishly-appointed plane and the fact that Mr. Trump plans to use it after he leaves office.`\
-https://nytimes.com/2025/05/11/us/politics/trump-qatar-jet-gift-air-force-one.html
-
-**Make Mom Some Belgian Waffles**\
-`Those deep divots are all the better for holding salted butter and maple syrup.`\
-https://nytimes.com/2025/05/11/dining/belgian-waffles-recipe.html
 

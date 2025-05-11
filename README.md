@@ -1,3 +1,7 @@
+**Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
+`After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said that he would meet with airline leaders to plan a scaling back of Newark flights.`\
+https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
+
 **How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
 `Butler's aggression bothers Minnesota's defense. How he plays dominoes provides a glimpse into how his mind works in these situations.`\
 https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playoffs-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347367/2025/05/11/dejan-kulusevski-injury-update-t
 **How a Quiet American Cardinal Became Pope**\
 `At a conclave with many new members, a swift, stunning consensus built around an unknown to many outside of the church.`\
 https://nytimes.com/2025/05/11/world/europe/conclave-vote-pope-leo-robert-prevost.html
-
-**The Briefing: Man Utd 0 West Ham 2 - Yoro injury worry and most league losses since 1973-74**\
-`Our writers analyse and evaluate the key talking points from Manchester United's loss to West Ham United`\
-https://nytimes.com/athletic/6339847/2025/05/11/man-utd-0-west-ham-2-briefing-yoro/
 

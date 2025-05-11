@@ -1,3 +1,15 @@
+**How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
+`Butler's aggression bothers Minnesota's defense. How he plays dominoes provides a glimpse into how his mind works in these situations.`\
+https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playoffs-warriors/
+
+**Maple Leafs lineup vs. Panthers: Who's in, who's out, who's where in Game 4**\
+`Leafs captain Auston Matthews missed the team's skate on Sunday morning, but will play in Game 4.`\
+https://nytimes.com/athletic/6347030/2025/05/11/maple-leafs-lineup-panthers-game-4-nhl-playoffs/
+
+**Heavy Rain and Flooding Threaten the Southeast and Mid-Atlantic**\
+`Forecasters warn of flash flooding from Florida to Virginia amid a slow-moving system that is expected to bring heavy rainfall through Wednesday.`\
+https://nytimes.com/2025/05/11/weather/southeast-storms-floods-rain.html
+
 **The Briefing: Barcelona 4 Real Madrid 3 – Barca with one hand on La Liga title despite Mbappe hat-trick**\
 `Barca took a massive step towards the Spanish top-flight title with a chaotic win against Madrid`\
 https://nytimes.com/athletic/6339869/2025/05/11/barcelona-4-real-madrid-3-mbappe/
