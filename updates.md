@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-p
 `\
 https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
 
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Pope Leo Is All Over the Map, and That’s Driving Some People Crazy**\
 `Neither MAGA nor woke, the new pontiff confounds political categories.`\
 https://nytimes.com/2025/05/11/opinion/pope-leo-christianity-evangelicals.html

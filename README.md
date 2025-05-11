@@ -1,3 +1,15 @@
+**Presidential Rivals Vow to Heal a Divided South Korea. It Won’t Be Easy.**\
+`Lee Jae-myung and Kim Moon-soo represent the opposite sides of a country polarized over former President Yoon Suk Yeol’s use of martial law and his ouster.`\
+https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-candidates.html
+
+**Hamburg pitch invasion sees 25 hospitalised, one with 'life-threatening injuries'**\
+`The fire department said 65 medical and emergency staff were deployed following the team's promotion to the Bundesliga after a win over Ulm.`\
+https://nytimes.com/athletic/6347277/2025/05/11/hamburg-pitch-invasion-fans/
+
+**Zelensky Demands Cease-Fire Before Agreeing to Putin’s Call for Direct Talks**\
+`Ukraine’s leader is pushing for an immediate truce as European leaders say they would impose new sanctions on Moscow if the Russian president refused.`\
+https://nytimes.com/2025/05/11/world/europe/ukraine-russia-ceasefire-talks-putin-zelensky.html
+
 **Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
 `Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6346576/2025/05/11/new-york-jets-rookie-camp-observ
 **Wordle Review No. 1,423**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 12, 2025.`\
 https://nytimes.com/2025/05/11/crosswords/wordle-review-1423.html
-
-**Today’s Young People Need to Learn How to Be Punk**\
-`I toured college campuses and found a generation yearning to learn about punk as a survival strategy.`\
-https://nytimes.com/2025/05/11/opinion/gen-z-punk.html
-
-**There Are Ways to Die With Dignity, but Not Like This**\
-`Medical aid in dying laws are flawed.`\
-https://nytimes.com/2025/05/11/opinion/medical-aid-dying-new-york.html
-
-**Connections Companion No. 701**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 12, 2025.`\
-https://nytimes.com/2025/05/11/crosswords/connections-companion-701.html
 
