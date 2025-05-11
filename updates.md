@@ -1,3 +1,11 @@
+**Tufts Student Speaks Publicly After Release From Immigration Detention**\
+`A federal judge ordered the release of Rumeysa Ozturk, a Turkish citizen studying at Tufts University on a student visa. She is one of thousands of students who face deportation, as the Trump administration escalates its attack on higher education.`\
+https://nytimes.com/video/us/100000010162690/tufts-university-student-release-rumeysa-ozturk.html
+
+**White South Africans Granted Refugee Status by Trump Leave for U.S.**\
+`Dozens of Afrikaners who claim discrimination in their home country left Johannesburg on Sunday. Their departure for the U.S. came as the Trump administration was halting virtually all refugee admissions.`\
+https://nytimes.com/2025/05/11/world/africa/white-south-africans-granted-refugee-status-by-trump-leave-for-us.html
+
 **What have the Hurricanes done to Alex Ovechkin?**\
 `Ovechkin has zero points through the first three games of the Capitals' second-round series with the Hurricanes.`\
 https://nytimes.com/athletic/6348128/2025/05/11/nhl-hurricanes-capitals-alex-ovechkin-playoffs/
