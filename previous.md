@@ -1,3 +1,7 @@
+**'Everyone can have their opinion' - Slot on Liverpool fans booing TAA**\
+`On Monday, Alexander-Arnold announced he would be leaving Liverpool when his contract expires this summer.`\
+https://nytimes.com/athletic/6347970/2025/05/11/trent-alexander-arnold-liverpool-booing/
+
 **Lowetide: 3 early surprises for Oilers in Golden Knights series**\
 `The playoffs are all about chaos, innovation, injury and finding answers on the fly.`\
 https://nytimes.com/athletic/6346187/2025/05/11/oilers-golden-knights-nhl-playoffs-2025-surprises/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playof
 **Maple Leafs lineup vs. Panthers: Who's in, who's out, who's where in Game 4**\
 `Leafs captain Auston Matthews missed the team's skate on Sunday morning, but will play in Game 4.`\
 https://nytimes.com/athletic/6347030/2025/05/11/maple-leafs-lineup-panthers-game-4-nhl-playoffs/
-
-**Heavy Rain and Flooding Threaten the Southeast and Mid-Atlantic**\
-`Forecasters warn of flash flooding from Florida to Virginia amid a slow-moving system that is expected to bring heavy rainfall through Wednesday.`\
-https://nytimes.com/2025/05/11/weather/southeast-storms-floods-rain.html
 

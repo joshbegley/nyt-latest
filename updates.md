@@ -1,3 +1,7 @@
+**'Everyone can have their opinion' - Slot on Liverpool fans booing TAA**\
+`On Monday, Alexander-Arnold announced he would be leaving Liverpool when his contract expires this summer.`\
+https://nytimes.com/athletic/6347970/2025/05/11/trent-alexander-arnold-liverpool-booing/
+
 **The Briefing: Liverpool 2 Arsenal 2 - Alexander-Arnold booed and Merino sent off as Arteta's side fight back for draw**\
 `Arsenal scored twice in the second half to grab a draw as Alexander-Arnold endured a tough afternoon after announcing he's leaving Liverpool`\
 https://nytimes.com/athletic/6339872/2025/05/11/liverpool-arsenal-alexander-arnold-booed-merino-arteta/
