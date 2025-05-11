@@ -1,3 +1,7 @@
+**Pope Leo XIV Calls for End to War in First Sunday Blessing as Pontiff**\
+`The new pontiff echoed themes that Francis, his predecessor, regularly addressed, as he appeared in front of thousands of the faithful gathered in St. Peter’s Square.`\
+https://nytimes.com/2025/05/11/world/pope-leo-xiv-address-peace.html
+
 **Clock ticking on Joseph Woll to rediscover top form for Leafs in the playoffs**\
 `Woll has been put into a tough spot, but he needs to step into the spotlight and help swing the series back in the Leafs' favour for good.`\
 https://nytimes.com/athletic/6346566/2025/05/11/maple-leafs-joseph-woll-panthers-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-cand
 **Hamburg pitch invasion sees 25 hospitalised, one with 'life-threatening injuries'**\
 `The fire department said 65 medical and emergency staff were deployed following the team's promotion to the Bundesliga after a win over Ulm.`\
 https://nytimes.com/athletic/6347277/2025/05/11/hamburg-pitch-invasion-fans/
-
-**Zelensky Demands Cease-Fire Before Agreeing to Putin’s Call for Direct Talks**\
-`Ukraine’s president is pushing for an immediate truce. European leaders have said they will would impose new sanctions on Moscow if Russia’s president does not accept.`\
-https://nytimes.com/2025/05/11/world/europe/ukraine-russia-ceasefire-talks-putin-zelensky.html
 
