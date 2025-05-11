@@ -1,40 +1,41 @@
-**The New York Times International Edition in Print for Monday, May 12, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/11/todays-new-york-times-international-edition
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
 
-**Sevilla spend night at training centre after 'violent attacks' by supporters**\
-`"A large group of violent individuals" were said to have "invaded" the Sevilla training base, a club statement confirmed on Sunday.`\
-https://nytimes.com/athletic/6347265/2025/05/11/sevilla-fans-training-ground/
+**Pope Leo Is All Over the Map, and That’s Driving Some People Crazy**\
+`Neither MAGA nor woke, the new pontiff confounds political categories.`\
+https://nytimes.com/2025/05/11/opinion/pope-leo-christianity-evangelicals.html
 
-**Trump Is Reaching Into Parents’ Lives. Can Democrats Capitalize?**\
-`As prices of baby gear surge and vaccine misinformation spreads, some Democrats see a chance to tap into parents’ raw emotions — something Republicans have recently been far better at doing.`\
-https://nytimes.com/2025/05/11/us/politics/trump-rfk-jr-vaccines-democrats-parents.html
+**The Sunday Read: ‘My Miserable Week in the “Happiest Country on Earth’’’**\
+`For eight years running, Finland has topped the World Happiness Report — but what exactly does it measure?`\
+https://nytimes.com/2025/05/11/podcasts/the-daily/finland-happinest-country.html
 
-**The Mother Whose Catholic Faith Inspired the Future Pope**\
-`Mildred Prevost, a mother of three who sought a graduate degree, held her religious devotion at the center of her life.`\
-https://nytimes.com/2025/05/11/us/the-mother-whose-catholic-faith-inspired-the-future-pope.html
+**Why We Can’t Escape Alcatraz**\
+`For Trump and others, it evinces powerful nostalgia for something that never actually existed.`\
+https://nytimes.com/2025/05/11/opinion/alcatraz-trump-prison-prohibition.html
 
-**Abel Tesfaye Bids Farewell to The Weeknd**\
-`In his new film, “Hurry Up Tomorrow,” the Weeknd plays the Weeknd for the last time. What’s next for him?`\
-https://nytimes.com/2025/05/11/style/the-weeknd-hurry-up-tomorrow.html
+**How a last-second goal saved Golden Knights, stunned Oilers and swung series**\
+`Just the third go-ahead goal scored with less than one second remaining in NHL playoff history, it defies belief for so many reasons.`\
+https://nytimes.com/athletic/6347194/2025/05/11/oilers-golden-knights-reilly-smith-goal-nhl-playoffs/
 
-**A Soprano Jumped Into the ‘Ring.’ Now the Role Is Entirely Hers.**\
-`The Welsh-Ukrainian singer Natalya Romaniw was a late addition to a new “Die Walküre” in London, but she has become a highlight of the production.`\
-https://nytimes.com/2025/05/11/arts/music/natalya-romaniw-die-walkure-royal-opera.html
+**Jets rookie camp observations: Aaron Glenn's style, Justin Fields' leadership, signs of buy-in**\
+`The impressions of the 2025 Jets' earliest (light) on-field work.`\
+https://nytimes.com/athletic/6346576/2025/05/11/new-york-jets-rookie-camp-observations/
 
-**Fires, Deficits, Trump, a Hollywood Exodus. How Resilient Is California?**\
-`The state is confronting what officials say is an unprecedented confluence of forces that will test its long record of enduring catastrophes, natural and otherwise.`\
-https://nytimes.com/2025/05/11/us/california-turmoil-resilience.html
+**Wordle Review No. 1,423**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 12, 2025.`\
+https://nytimes.com/2025/05/11/crosswords/wordle-review-1423.html
 
-**In Their Final Moments, a Pompeii Family Fought to Survive**\
-`Archaeologists unearthed skeletal remains of four people in a well-appointed Roman home, along with signs of their efforts to outlast the eruption of Mount Vesuvius.`\
-https://nytimes.com/2025/05/11/science/pompeii-vesuvius-family.html
+**Today’s Young People Need to Learn How to Be Punk**\
+`I toured college campuses and found a generation yearning to learn about punk as a survival strategy.`\
+https://nytimes.com/2025/05/11/opinion/gen-z-punk.html
 
-**NHL playoffs picks, odds for Jets at Stars, Maple Leafs at Panthers on Sunday**\
-`Sunday's NHL action features a momentum-swinging Game 3 and a potentially series-tying Game 4.`\
-https://nytimes.com/athletic/6346647/2025/05/11/nhl-playoff-picks-odds-how-to-watch-jets-stars-maple-leafs-panthers-sunday/
+**There Are Ways to Die With Dignity, but Not Like This**\
+`Medical aid in dying laws are flawed.`\
+https://nytimes.com/2025/05/11/opinion/medical-aid-dying-new-york.html
 
-**Once in Sync, Trump and Netanyahu Now Show Signs of Division**\
-`Both men are politically divisive, fiercely combative and have outsize egos. But as Mr. Trump arrives in the Middle East next week, the fate of the region could hinge on their relationship.`\
-https://nytimes.com/2025/05/11/world/europe/trump-netanyahu-iran-yemen.html
+**Connections Companion No. 701**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 12, 2025.`\
+https://nytimes.com/2025/05/11/crosswords/connections-companion-701.html
 
