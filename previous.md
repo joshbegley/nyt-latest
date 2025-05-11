@@ -1,3 +1,7 @@
+**Braves takeaways: Spencer Strider's return, an anemic offense and more**\
+`Chis Sale has a 2.20 ERA in his past five starts but there is no margin for error with the Braves' bats struggling.`\
+https://nytimes.com/athletic/6348375/2025/05/11/braves-spencer-strider-return-chris-sale/
+
 **Rockies fire Bud Black after brutal start**\
 `Third-base coach Warren Schaeffer is now the interim manager, and hitting coach Clint Hurdle will serve as the interim bench coach.`\
 https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/briefing/us-china-talks-india-pakistan-truce-trum
 **Tufts Student Speaks Publicly After Release From Immigration Detention**\
 `A federal judge ordered the release of Rumeysa Ozturk, a Turkish citizen studying at Tufts University on a student visa. She is one of thousands of students who face deportation, as the Trump administration escalates its attack on higher education.`\
 https://nytimes.com/video/us/100000010162690/tufts-university-student-release-rumeysa-ozturk.html
-
-**White South Africans Granted Refugee Status by Trump Leave for U.S.**\
-`Dozens of Afrikaners who claim discrimination in their home country left Johannesburg on Sunday. Their departure for the U.S. came as the Trump administration was halting virtually all refugee admissions.`\
-https://nytimes.com/2025/05/11/world/africa/white-south-africans-granted-refugee-status-by-trump-leave-for-us.html
 

@@ -1,3 +1,7 @@
+**Braves takeaways: Spencer Strider's return, an anemic offense and more**\
+`Chis Sale has a 2.20 ERA in his past five starts but there is no margin for error with the Braves' bats struggling.`\
+https://nytimes.com/athletic/6348375/2025/05/11/braves-spencer-strider-return-chris-sale/
+
 **Rockies fire Bud Black after brutal start**\
 `Third-base coach Warren Schaeffer is now the interim manager, and hitting coach Clint Hurdle will serve as the interim bench coach.`\
 https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
