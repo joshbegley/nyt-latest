@@ -1,3 +1,15 @@
+**Trump Is to Accept a Luxury 747 From Qatar for Use as Air Force One**\
+`The plan raises substantial ethical issues, given the immense value of the lavishly-appointed plane and the fact that Mr. Trump plans to use it after he leaves office.`\
+https://nytimes.com/2025/05/11/us/politics/trump-qatar-jet-gift-air-force-one.html
+
+**Make Mom Some Belgian Waffles**\
+`Those deep divots are all the better for holding salted butter and maple syrup.`\
+https://nytimes.com/2025/05/11/dining/belgian-waffles-recipe.html
+
+**A Veteran Who Kept Climbing, and Kept in Touch**\
+`Isaac Wright’s gravity- and law-defying photography caught a reporter’s attention four years ago and again this spring.`\
+https://nytimes.com/2025/05/11/insider/a-veteran-who-kept-climbing-and-kept-in-touch.html
+
 **Como Women’s captain retires, spotlighting uncertain future for female footballers**\
 `“Unlike Serie A players who retire with millions ... and a lineup of opportunities, we have to fight for everything," Alia Guagni said.`\
 https://nytimes.com/athletic/6347523/2025/05/11/alia-guagni-como-captain-retires/
