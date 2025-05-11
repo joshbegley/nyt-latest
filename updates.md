@@ -1,3 +1,7 @@
+**Clock ticking on Joseph Woll to rediscover top form for Leafs in the playoffs**\
+`Woll has been put into a tough spot, but he needs to step into the spotlight and help swing the series back in the Leafs' favour for good.`\
+https://nytimes.com/athletic/6346566/2025/05/11/maple-leafs-joseph-woll-panthers-nhl-playoffs/
+
 **Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
 `Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
 `\
