@@ -1,3 +1,11 @@
+**Erling Haaland's return leaves Pep Guardiola with a quandary in FA Cup final week**\
+`City were far more threatening at Southampton once Omar Marmoush was introduced but can they play him, Haaland and Kevin De Bruyne together?`\
+https://nytimes.com/athletic/6346185/2025/05/11/haaland-guardiola-manchester-city-southampton-fa-cup/
+
+**A Night in Kashmir, Caught Between India and Pakistan’s Fight**\
+`Far from the missile strikes and drone combat that grabbed the world’s attention, ordinary Kashmiris suffer the heaviest toll of India and Pakistan’s confrontation.`\
+https://nytimes.com/2025/05/11/world/asia/kashmir-conflict-eyewitness.html
+
 **Cade Horton is fearless in his winning Cubs debut**\
 `Horton filled the spot of an injured Shota Imanaga and carries the promise of being the rare homegrown Cubs pitcher to win big.`\
 https://nytimes.com/athletic/6347156/2025/05/11/cade-horton-cubs-debut/
