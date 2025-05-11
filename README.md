@@ -1,3 +1,11 @@
+**Arteta 'really, really upset' with Arsenal players in first half at Liverpool**\
+`Arteta's side found themselves 2-0 down after 21 minutes after quickfire goals from Cody Gakpo and Luis Diaz.`\
+https://nytimes.com/athletic/6348010/2025/05/11/mikel-arteta-arsenal-liverpool/
+
+**At Least 4 Dead in Apartment Building Fire in Milwaukee**\
+`Four other people were critically injured, and 30 others were rescued after the fire broke out on Sunday morning, the authorities said.`\
+https://nytimes.com/2025/05/11/us/milwaukee-building-fire-dead.html
+
 **Behind Miller’s Threat to Suspend Habeas Corpus Is the Fact That They’re Losing**\
 `Stephen Miller said on Friday the administration is looking into suspending habeas corpus. But don’t forget: The Trump administration keeps losing in court.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/stephen-miller-habeas-corpus
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-f
 **At Least 1 Dead and 32 Injured After Bus Crashes Into S.U.V. in California**\
 `The bus crashed into a disabled S.U.V. on a highway in Los Angeles County around 5 a.m. Sunday, officials said.`\
 https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
-
-**Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
-`After a series of problems at Newark Liberty International Airport, the secretary, Sean Duffy, said he would meet with airline leaders on Wednesday to plan to scale back Newark flights.`\
-https://nytimes.com/2025/05/11/nyregion/newark-airport-flight-disruptions-duffy.html
-
-**How Jimmy Butler's approach to dominoes mirrors his playoff strategy: 'This is the end of you'**\
-`Butler's aggression bothers Minnesota's defense. How he plays dominoes provides a glimpse into how his mind works in these situations.`\
-https://nytimes.com/athletic/6347747/2025/05/11/jimmy-butler-dominoes-nba-playoffs-warriors/
 
