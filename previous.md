@@ -1,3 +1,11 @@
+**Leicester hopeful of new contract for teenager Monga - Van Nistelrooy**\
+`The teenager has attracted attention from a number of clubs including Manchester City, Chelsea and Real Madrid.`\
+https://nytimes.com/athletic/6347922/2025/05/11/jeremy-monga-leicester-contract/
+
+**The Briefing: Liverpool 2 Arsenal 2 - Alexander-Arnold booed and Merino sent off as Arteta's side fight back for draw**\
+`Arteta's side scored twice in the second half to grab a draw as Alexander-Arnold endured a tough afternoon after announcing he is leaving`\
+https://nytimes.com/athletic/6339872/2025/05/11/liverpool-arsenal-alexander-arnold-booed-merino-arteta/
+
 **Nuno says Marinakis confrontation was down to 'miscommunication'**\
 `"It is because of the owner and his passion that we are growing as a club. He pushes us," Nuno said after Forest's 2-2 draw with Leicester.`\
 https://nytimes.com/athletic/6347826/2025/05/11/nottingham-forest-marinakis-nuno-leicester/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/11/weather/southeast-storms-floods-rain.html
 **Pope’s Family History Offers a Glimpse Into the American Creole Journey**\
 `The revelation that Leo XIV has roots among New Orleans Creoles has stirred curiosity and joy about the first pope from the United States.`\
 https://nytimes.com/2025/05/11/us/creole-identity-history-pope-new-orleans.html
-
-**The Briefing: Barcelona 4 Real Madrid 3 – Barca with one hand on La Liga title despite Mbappe hat-trick**\
-`Barca took a massive step towards the Spanish top-flight title with a chaotic win against Madrid`\
-https://nytimes.com/athletic/6339869/2025/05/11/barcelona-4-real-madrid-3-mbappe/
-
-**William H. Luers, Diplomat Who Backed Czech Dissident Leader, Dies at 95**\
-`His longtime career in the Foreign Service included protecting Vaclav Havel, the writer and dissident who became the first president of the Czech Republic.`\
-https://nytimes.com/2025/05/11/us/william-h-luers-dead.html
 
