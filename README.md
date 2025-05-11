@@ -1,3 +1,7 @@
+**William H. Luers, Diplomat Who Backed Czech Dissident Leader, Dies at 95**\
+`His longtime career in the Foreign Service included protecting Vaclav Havel, the writer and dissident who became the first president of the Czech Republic.`\
+https://nytimes.com/2025/05/11/us/william-h-luers-dead.html
+
 **As Truce Seems to Hold, India and Pakistan Both Claim Victory**\
 `The Trump administration’s public descriptions of its role in the mediation seemed to touch some sensitive spots politically in India.`\
 https://nytimes.com/2025/05/11/world/asia/india-pakistan-kashmir-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/insider/a-veteran-who-kept-climbing-and-kept-in-t
 **Como Women’s captain retires, spotlighting uncertain future for female footballers**\
 `“Unlike Serie A players who retire with millions ... and a lineup of opportunities, we have to fight for everything," Alia Guagni said.`\
 https://nytimes.com/athletic/6347523/2025/05/11/alia-guagni-como-captain-retires/
-
-**Pope Leo XIV Delivers His First Sunday Blessing**\
-`The new pope called for the end of war, echoing themes that Francis, his predecessor, regularly addressed.`\
-https://nytimes.com/video/world/europe/100000010162394/pope-leo-xiv-sunday-blessing.html
 

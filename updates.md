@@ -1,3 +1,15 @@
+**As Truce Seems to Hold, India and Pakistan Both Claim Victory**\
+`The Trump administration’s public descriptions of its role in the mediation seemed to touch some sensitive spots politically in India.`\
+https://nytimes.com/2025/05/11/world/asia/india-pakistan-kashmir-ceasefire.html
+
+**Kulusevski 'should be okay' after knee injury, says Postecoglou**\
+`Kulusevski went down in the 16th minute following a strong challenge from Palace defender Marc Guehi and received treatment on his knee.`\
+https://nytimes.com/athletic/6347367/2025/05/11/dejan-kulusevski-injury-update-tottenham/
+
+**The Briefing: Spurs 0 Palace 2 - Postecoglou's changes fall flat, Kulusevski a cup-final injury concern**\
+`Jay Harris looks at the talking points from another disappointing Spurs performance at the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/6339317/2025/05/11/tottenham-crystal-palace-premier-league/
+
 **How a Quiet American Cardinal Became Pope**\
 `At a conclave with many new members, a swift, stunning consensus built around an unknown to many outside of the church.`\
 https://nytimes.com/2025/05/11/world/europe/conclave-vote-pope-leo-robert-prevost.html
