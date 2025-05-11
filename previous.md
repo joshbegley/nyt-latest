@@ -1,3 +1,7 @@
+**130,000 Igloo Coolers Recalled After Fingertip Injuries, Including Amputations**\
+`The warning expands a recall of more than one million Igloo coolers in February, which was prompted by reports of fingertip injuries from the tow handle.`\
+https://nytimes.com/2025/05/11/business/igloo-coolers-recall.html
+
 **‘S.N.L.’: Toasting Moms and Toasted Trump Appointees**\
 `Cecily Strong returns as Jeanine Pirro, Walt Goggins shows off his clogging, and a dope new pope appears in the 50th season’s penultimate episode.`\
 https://nytimes.com/2025/05/11/arts/television/snl-toasting-and-toasted.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346566/2025/05/11/maple-leafs-joseph-woll-panthers
 **How Siblings Shape Us**\
 `While parents work hard to mold their offspring, those offspring just as often mold each other.`\
 https://nytimes.com/2025/05/11/briefing/sibling-relationships.html
-
-**Anthony Edwards 'owns' tough feedback, rises above it in latest glimpse of greatness**\
-`This second-round series is headed back in the most logical direction, in large part, because Edwards’ brilliance is back.`\
-https://nytimes.com/athletic/6347244/2025/05/11/anthony-edwards-timberwolves-warriors-game-3-nba-playoffs/
 

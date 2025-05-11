@@ -1,3 +1,7 @@
+**130,000 Igloo Coolers Recalled After Fingertip Injuries, Including Amputations**\
+`The warning expands a recall of more than one million Igloo coolers in February, which was prompted by reports of fingertip injuries from the tow handle.`\
+https://nytimes.com/2025/05/11/business/igloo-coolers-recall.html
+
 **The Briefing: Newcastle 2 Chelsea 0 - Jackson sees red as the Champions League race takes another twist**\
 `Eddie Howe's side secure a critical win in pursuit of a top-five finish as the visitors are left considering life without their best No 9`\
 https://nytimes.com/athletic/6339316/2025/05/11/newcastle-chelsea-jackson-champions-league/
