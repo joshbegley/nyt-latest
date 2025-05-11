@@ -1,4 +1,8 @@
 **Pope Leo XIV Calls for End to War in First Sunday Blessing as Pontiff**\
+`The new pope echoed themes that Francis, his predecessor, regularly addressed, as he appeared in front of thousands of the faithful gathered in St. Peter’s Square.`\
+https://nytimes.com/2025/05/11/world/europe/pope-leo-xiv-address-peace.html
+
+**Pope Leo XIV Calls for End to War in First Sunday Blessing as Pontiff**\
 `The new pontiff echoed themes that Francis, his predecessor, regularly addressed, as he appeared in front of thousands of the faithful gathered in St. Peter’s Square.`\
 https://nytimes.com/2025/05/11/world/pope-leo-xiv-address-peace.html
 
