@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, May 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/11/todays-new-york-times
+
+**The Flaws of Being a Perfect Mother**\
+`Being flawed is an important part of a mother’s job. How else would the children in your world learn that flaws are OK and to accept their own?`\
+https://nytimes.com/2025/05/11/opinion/mothers-day-parenting.html
+
 **How to watch Barcelona vs. Real Madrid in Sunday's latest installment of El Clasico**\
 `The last El Clásico was a match of the year candidate in the Copa del Rey final. The La Liga rematch goes down Sunday in Barcelona.`\
 https://nytimes.com/athletic/6342873/2025/05/11/barcelona-real-madrid-el-clasico-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6347082/2025/05/11/la-galaxy-mls-record-losing-stre
 **Liverpool vs Arsenal preview: How do fans feel?, view on the opposition's season and our writers' predictions**\
 `Liverpool may be champions, but Arsenal very much have points to play for - our writers on the two teams look ahead to Sunday's game`\
 https://nytimes.com/athletic/6342058/2025/05/11/liverpool-arsenal-predictions-tactics/
-
-**How Barcelona picked themselves up from Champions League heartbreak for Sunday's Clasico**\
-`Defeat in the Champions League semi-finals in midweek was painful; losing to title rivals Real Madrid today would be even worse`\
-https://nytimes.com/athletic/6346588/2025/05/11/barcelona-champions-league-el-clasico/
-
-**How Uruguay won the 1950 World Cup: A truncated group stage, Ghiggia's illogical finish and an epochal clash with Brazil**\
-`The fourth in Michael Cox's series looking at the teams who won each World Cup looks at Uruguay's triumph in Brazil 75 years ago`\
-https://nytimes.com/athletic/6344973/2025/05/11/history-of-world-cup-winners-uruguay-1950/
 

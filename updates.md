@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, May 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/11/todays-new-york-times
+
+**The Flaws of Being a Perfect Mother**\
+`Being flawed is an important part of a mother’s job. How else would the children in your world learn that flaws are OK and to accept their own?`\
+https://nytimes.com/2025/05/11/opinion/mothers-day-parenting.html
+
 **How to watch Barcelona vs. Real Madrid in Sunday's latest installment of El Clasico**\
 `The last El Clásico was a match of the year candidate in the Copa del Rey final. The La Liga rematch goes down Sunday in Barcelona.`\
 https://nytimes.com/athletic/6342873/2025/05/11/barcelona-real-madrid-el-clasico-how-to-watch/
