@@ -1,3 +1,11 @@
+**How to watch Barcelona vs. Real Madrid in Sunday's latest installment of El Clasico**\
+`The last El Clásico was a match of the year candidate in the Copa del Rey final. The La Liga rematch goes down Sunday in Barcelona.`\
+https://nytimes.com/athletic/6342873/2025/05/11/barcelona-real-madrid-el-clasico-how-to-watch/
+
+**With blowout loss, LA Galaxy set MLS record by being winless after 12 games**\
+`The Red Bulls humiliated the Galaxy in a 7-0 debacle, leaving LA with a league-worst minus-20 in goal differential.`\
+https://nytimes.com/athletic/6347082/2025/05/11/la-galaxy-mls-record-losing-streak/
+
 **U.S. and China Will Meet for Second Day of Trade Talks**\
 `Top officials are scheduled to conclude their weekend of trade negotiations in Geneva on Sunday.`\
 https://nytimes.com/2025/05/11/business/us-china-tariffs.html
