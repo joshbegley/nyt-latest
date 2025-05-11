@@ -1,3 +1,7 @@
+**Nuno says Marinakis confrontation was down to 'miscommunication'**\
+`"It is because of the owner and his passion that we are growing as a club. He pushes us," Nuno said after Forest's 2-2 draw with Leicester.`\
+https://nytimes.com/athletic/6347826/2025/05/11/nottingham-forest-marinakis-nuno-leicester/
+
 **Amorim suggests he should leave Man Utd if he can't change 'culture'**\
 `Amorim said United had to be "strong and brave" in the summer transfer window and questioned his future if he cannot change the culture.`\
 https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-future/

@@ -1,3 +1,7 @@
+**Nuno says Marinakis confrontation was down to 'miscommunication'**\
+`"It is because of the owner and his passion that we are growing as a club. He pushes us," Nuno said after Forest's 2-2 draw with Leicester.`\
+https://nytimes.com/athletic/6347826/2025/05/11/nottingham-forest-marinakis-nuno-leicester/
+
 **Amorim suggests he should leave Man Utd if he can't change 'culture'**\
 `Amorim said United had to be "strong and brave" in the summer transfer window and questioned his future if he cannot change the culture.`\
 https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6339869/2025/05/11/barcelona-4-real-madrid-3-mbappe
 **William H. Luers, Diplomat Who Backed Czech Dissident Leader, Dies at 95**\
 `His longtime career in the Foreign Service included protecting Vaclav Havel, the writer and dissident who became the first president of the Czech Republic.`\
 https://nytimes.com/2025/05/11/us/william-h-luers-dead.html
-
-**As Truce Seems to Hold, India and Pakistan Both Claim Victory**\
-`The Trump administration’s public descriptions of its role in the mediation seemed to touch some sensitive spots politically in India.`\
-https://nytimes.com/2025/05/11/world/asia/india-pakistan-kashmir-ceasefire.html
 
