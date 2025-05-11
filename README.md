@@ -1,4 +1,16 @@
-**With blowout loss, LA Galaxy sets MLS record by being winless after 12 games**\
+**How Real Madrid can hurt Barcelona and revive La Liga's title race**\
+`Madrid have lost all three Clasicos so far this season. Here's how they could turn things around on Sunday`\
+https://nytimes.com/athletic/6343966/2025/05/11/real-madrid-la-liga-barcelona-tactics/
+
+**Utter ecstasy, fist pumps or a pointy thing: How managers celebrate goals**\
+`There are many ways for coaches to celebrate their team scoring - but can we learn anything from them?`\
+https://nytimes.com/athletic/6305137/2025/05/11/manager-celebrations-epl-guardiola-amorim/
+
+**Meet David Kogan - the most powerful man in English football you've never heard of**\
+`The likely head of the new independent regulator wants to operate in the shadows but has a critical role in the game's future`\
+https://nytimes.com/athletic/6327187/2025/05/11/david-kogan-football-independent-regulator-profile/
+
+**With blowout loss, LA Galaxy set MLS record by being winless after 12 games**\
 `The Red Bulls humiliated the Galaxy in a 7-0 debacle, leaving LA a league-worst minus-20 in goal differential.`\
 https://nytimes.com/athletic/6347082/2025/05/11/la-galaxy-mls-record-losing-streak/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/11/world/europe/charles-harry-royal-family-crisis.ht
 **Can Trump Rename the Persian Gulf?**\
 `His suggestion to call the body of water the “Arabian Gulf” has apparently done the impossible: Unite Iranians.`\
 https://nytimes.com/2025/05/11/world/middleeast/can-trump-rename-the-persian-gulf.html
-
-**Why America’s ‘Beautiful Beef’ Is a Trade War Sore Point for Europe**\
-`European officials call food safety standards a “red line,” as Trump administration officials criticize rules that keep American beef and other meats off grocery shelves.`\
-https://nytimes.com/2025/05/11/world/europe/tariffs-farm-products-beef-meat-european-union-trump.html
-
-**Trump’s No. 1 Fan in Greenland: A Bricklayer Turned Political Player**\
-`Jorgen Boassen’s idolization of all things Trump, which has won him friends in Washington and sometimes hostile attention at home, has given him an unlikely new career: political influencer.`\
-https://nytimes.com/2025/05/11/world/europe/greenland-trump-biggest-fan.html
-
-**Connections: Sports Edition Coach: Hints for May 11, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6347025/2025/05/11/connections-sports-edition-hints-for-may-11-2025/
 

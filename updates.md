@@ -1,3 +1,8 @@
+**Christian Vázquez's snap throw keys Twins' victory over Giants**\
+`"The guy is ready to play. He's a gamer," Twins manager Rocco Baldelli said of Vázquez. Minnesota beat San Francisco 2-1.
+`\
+https://nytimes.com/athletic/6347041/2025/05/10/twins-win-giants-christian-vazquez-snap-throw/
+
 **Can King Charles Heal a Royal Family Crisis Before It’s Too Late?**\
 `Prince Harry’s desperate plea to reconcile with his father highlighted a rupture that could undermine the monarchy’s attempts to model unity.`\
 https://nytimes.com/2025/05/11/world/europe/charles-harry-royal-family-crisis.html
