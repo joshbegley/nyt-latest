@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6346187/2025/05/11/oilers-golden-knights-nhl-playof
 https://nytimes.com/athletic/6347922/2025/05/11/jeremy-monga-leicester-contract/
 
 **The Briefing: Liverpool 2 Arsenal 2 - Alexander-Arnold booed and Merino sent off as Arteta's side fight back for draw**\
-`Arteta's side scored twice in the second half to grab a draw as Alexander-Arnold endured a tough afternoon after announcing he is leaving`\
+`Arsenal scored twice in the second half to grab a draw as Alexander-Arnold endured a tough afternoon after announcing he's leaving Liverpool`\
 https://nytimes.com/athletic/6339872/2025/05/11/liverpool-arsenal-alexander-arnold-booed-merino-arteta/
 
 **Nuno says Marinakis confrontation was down to 'miscommunication'**\

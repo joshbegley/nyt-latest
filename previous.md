@@ -1,3 +1,7 @@
+**Lowetide: 3 early surprises for Oilers in Golden Knights series**\
+`The playoffs are all about chaos, innovation, injury and finding answers on the fly.`\
+https://nytimes.com/athletic/6346187/2025/05/11/oilers-golden-knights-nhl-playoffs-2025-surprises/
+
 **Leicester hopeful of new contract for teenager Monga - Van Nistelrooy**\
 `The teenager has attracted attention from a number of clubs including Manchester City, Chelsea and Real Madrid.`\
 https://nytimes.com/athletic/6347922/2025/05/11/jeremy-monga-leicester-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347030/2025/05/11/maple-leafs-lineup-panthers-game
 **Heavy Rain and Flooding Threaten the Southeast and Mid-Atlantic**\
 `Forecasters warn of flash flooding from Florida to Virginia amid a slow-moving system that is expected to bring heavy rainfall through Wednesday.`\
 https://nytimes.com/2025/05/11/weather/southeast-storms-floods-rain.html
-
-**Pope’s Family History Offers a Glimpse Into the American Creole Journey**\
-`The revelation that Leo XIV has roots among New Orleans Creoles has stirred curiosity and joy about the first pope from the United States.`\
-https://nytimes.com/2025/05/11/us/creole-identity-history-pope-new-orleans.html
 

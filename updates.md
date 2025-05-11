@@ -1,3 +1,7 @@
+**Lowetide: 3 early surprises for Oilers in Golden Knights series**\
+`The playoffs are all about chaos, innovation, injury and finding answers on the fly.`\
+https://nytimes.com/athletic/6346187/2025/05/11/oilers-golden-knights-nhl-playoffs-2025-surprises/
+
 **At Least 1 Dead and 32 Injured After Bus Crashes Into S.U.V. in California**\
 `The bus crashed into a disabled S.U.V. on a highway in Los Angeles County around 5 a.m. Sunday, officials said.`\
 https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
