@@ -1,3 +1,11 @@
+**Pope’s Family History Offers a Glimpse Into the American Creole Journey**\
+`The revelation that Leo XIV has roots among New Orleans Creoles has stirred curiosity and joy about the first pope from the United States.`\
+https://nytimes.com/2025/05/11/us/creole-identity-history-pope-new-orleans.html
+
+**The Briefing: Barcelona 4 Real Madrid 3 - Barca with one hand on La Liga title despite Mbappe hat-trick**\
+`Barca took a massive step towards the Spanish top-flight title with a chaotic win against Madrid`\
+https://nytimes.com/athletic/6339869/2025/05/11/barcelona-5-real-madrid-3-mbappe/
+
 **William H. Luers, Diplomat Who Backed Czech Dissident Leader, Dies at 95**\
 `His longtime career in the Foreign Service included protecting Vaclav Havel, the writer and dissident who became the first president of the Czech Republic.`\
 https://nytimes.com/2025/05/11/us/william-h-luers-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/11/us/politics/trump-qatar-jet-gift-air-force-one.ht
 **Make Mom Some Belgian Waffles**\
 `Those deep divots are all the better for holding salted butter and maple syrup.`\
 https://nytimes.com/2025/05/11/dining/belgian-waffles-recipe.html
-
-**A Veteran Who Kept Climbing, and Kept in Touch**\
-`Isaac Wright’s gravity- and law-defying photography caught a reporter’s attention four years ago and again this spring.`\
-https://nytimes.com/2025/05/11/insider/a-veteran-who-kept-climbing-and-kept-in-touch.html
-
-**Como Women’s captain retires, spotlighting uncertain future for female footballers**\
-`“Unlike Serie A players who retire with millions ... and a lineup of opportunities, we have to fight for everything," Alia Guagni said.`\
-https://nytimes.com/athletic/6347523/2025/05/11/alia-guagni-como-captain-retires/
 
