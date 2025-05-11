@@ -1,3 +1,7 @@
+**Knicks had a chance to be on the right side of NBA history. Now they have questions**\
+`No team has ever blown a 3-0 lead, but New York won't have that chance because it keeps falling behind. It has to be fixed.`\
+https://nytimes.com/athletic/6346899/2025/05/10/knicks-celtics-game-3-nba-falling-behind/
+
 **Koyo Kouoh, Prominent Art World Figure, Is Dead at 57**\
 `She had recently been named to oversee next year’s Venice Biennale. She died just days before she was scheduled to announce its theme and title.`\
 https://nytimes.com/2025/05/10/arts/design/koyo-kouoh-dead.html
