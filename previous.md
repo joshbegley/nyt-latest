@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/11/briefing/sibling-relationships.html
 
 **Anthony Edwards 'owns' tough feedback, rises above it in latest glimpse of greatness**\
-`This second-round series is headed back in the most logical direction, in large part, because Anthony Edwards’ brilliance is back.`\
+`This second-round series is headed back in the most logical direction, in large part, because Edwards’ brilliance is back.`\
 https://nytimes.com/athletic/6347244/2025/05/11/anthony-edwards-timberwolves-warriors-game-3-nba-playoffs/
 
 **Latest sign of U.S.-Canada tensions: fewer Blue Jays fans make annual trek to Seattle**\

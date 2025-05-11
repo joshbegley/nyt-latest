@@ -1,3 +1,12 @@
+**Anthony Edwards 'owns' tough feedback, rises above it in latest glimpse of greatness**\
+`This second-round series is headed back in the most logical direction, in large part, because Edwards’ brilliance is back.`\
+https://nytimes.com/athletic/6347244/2025/05/11/anthony-edwards-timberwolves-warriors-game-3-nba-playoffs/
+
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
 `Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
 `\
