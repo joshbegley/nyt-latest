@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Top U.S. and Chinese Officials Meet for Trade Talks**\
+``\
+https://nytimes.com/live/2025/05/11/us/trump-news
+
 **130,000 Igloo Coolers Recalled After Fingertip Injuries, Including Amputations**\
 `The warning expands a recall of more than one million Igloo coolers in February, which was prompted by reports of fingertip injuries from the tow handle.`\
 https://nytimes.com/2025/05/11/business/igloo-coolers-recall.html

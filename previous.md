@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Top U.S. and Chinese Officials Meet for Trade Talks**\
+``\
+https://nytimes.com/live/2025/05/11/us/trump-news
+
 **130,000 Igloo Coolers Recalled After Fingertip Injuries, Including Amputations**\
 `The warning expands a recall of more than one million Igloo coolers in February, which was prompted by reports of fingertip injuries from the tow handle.`\
 https://nytimes.com/2025/05/11/business/igloo-coolers-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/11/world/europe/pope-leo-xiv-address-peace.html
 **Clock ticking on Joseph Woll to rediscover top form for Leafs in the playoffs**\
 `Woll has been put into a tough spot, but he needs to step into the spotlight and help swing the series back in the Leafs' favour for good.`\
 https://nytimes.com/athletic/6346566/2025/05/11/maple-leafs-joseph-woll-panthers-nhl-playoffs/
-
-**How Siblings Shape Us**\
-`While parents work hard to mold their offspring, those offspring just as often mold each other.`\
-https://nytimes.com/2025/05/11/briefing/sibling-relationships.html
 
