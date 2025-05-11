@@ -1,3 +1,11 @@
+**Listen: Can Spurs' new 'sexy pragmatism' overcome Manchester United's chaos?**\
+`The View From The Lane team discuss whether Tottenham or Manchester United will have the edge heading into the Europa League final`\
+https://nytimes.com/athletic/6345022/2025/05/11/view-from-the-lane-tottenham-manchester-united-preview/
+
+**What We Know About How the 4-Day India and Pakistan Clashes Unfolded**\
+`Some details are clouded by contradictory statements and disinformation. But a pattern of rapid escalation brought the conflict to the brink of catastrophe.`\
+https://nytimes.com/2025/05/11/world/asia/india-pakistan-what-we-know.html
+
 **Colombia Grants Asylum to Richard Martinelli, Ex-President of Panama**\
 `The former leader said he had traveled to Bogotá after spending a year holed up the Nicaraguan embassy in Panama City following a money-laundering conviction.`\
 https://nytimes.com/2025/05/11/world/americas/ricardo-martinelli-panama-colombia-asylum.html
