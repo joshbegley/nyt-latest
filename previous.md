@@ -1,3 +1,7 @@
+**Bournemouth's Scott suffers fractured jaw after 'very violent' Mings elbow**\
+`Scott went down six minutes into the Villa loss and received lengthy treatment after Mings' elbow made contact.`\
+https://nytimes.com/athletic/6347278/2025/05/11/alex-scott-injury-jaw-mings/
+
 **Bangladesh Bans the Political Party of Its Ousted Former Ruler**\
 `Sheikh Hasina fled the country after a mass uprising against her government, but the party she led remained a factor in Bangladeshi politics.`\
 https://nytimes.com/2025/05/11/world/asia/bangladesh-awami-party-ban.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/11/opinion/alcatraz-trump-prison-prohibition.html
 **How a last-second goal saved Golden Knights, stunned Oilers and swung series**\
 `Just the third go-ahead goal scored with less than one second remaining in NHL playoff history, it defies belief for so many reasons.`\
 https://nytimes.com/athletic/6347194/2025/05/11/oilers-golden-knights-reilly-smith-goal-nhl-playoffs/
-
-**Jets rookie camp observations: Aaron Glenn's style, Justin Fields' leadership, signs of buy-in**\
-`The impressions of the 2025 Jets' earliest (light) on-field work.`\
-https://nytimes.com/athletic/6346576/2025/05/11/new-york-jets-rookie-camp-observations/
 
