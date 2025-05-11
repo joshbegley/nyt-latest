@@ -1,3 +1,8 @@
+**Was Game 3 between Capitals and Hurricanes ugly? Don't worry about it**\
+`Carolina's Game 3 victory was on the backs of its most talented forward and its starting goaltender.
+`\
+https://nytimes.com/athletic/6347094/2025/05/11/capitals-hurricanes-game-3-nhl-playoffs/
+
 **Steph Curry is inching closer, but the clock is ticking on the Warriors' season**\
 `Steph Curry went through a fairly strenuous workout on the team's practice court before Saturday's Game 3. Can the Warriors stay afloat?`\
 https://nytimes.com/athletic/6346946/2025/05/11/steph-curry-warriors-injury-playoffs/
