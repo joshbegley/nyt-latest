@@ -1,3 +1,11 @@
+**Pope Leo XIV Delivers His First Sunday Blessing**\
+`The new pope called for the end of war, echoing themes that Francis, his predecessor, regularly addressed.`\
+https://nytimes.com/video/world/europe/100000010162394/pope-leo-xiv-sunday-blessing.html
+
+**Britain Battles Wildfires Amid Drought Warnings**\
+`A very dry start to spring has helped set off wildfires across Scotland, Wales and England, and officials have warned of a potential drought this summer.`\
+https://nytimes.com/2025/05/11/weather/uk-wildfires-drought-warnings.html
+
 **Trump Administration Live Updates: Top U.S. and Chinese Officials Meet for Trade Talks**\
 ``\
 https://nytimes.com/live/2025/05/11/us/trump-news
