@@ -1,3 +1,7 @@
+**What have the Hurricanes done to Alex Ovechkin?**\
+`Ovechkin has zero points through the first three games of the Capitals' second-round series with the Hurricanes.`\
+https://nytimes.com/athletic/6348128/2025/05/11/nhl-hurricanes-capitals-alex-ovechkin-playoffs/
+
 **Breaking down the chaos of another remarkable Clasico**\
 `Barca's 4-3 win against Madrid was another reminder to always, always watch Spain's biggest game`\
 https://nytimes.com/athletic/6348156/2025/05/11/barcelona-real-madrid-chaos-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347922/2025/05/11/jeremy-monga-leicester-contract/
 **The Briefing: Liverpool 2 Arsenal 2 - Alexander-Arnold booed and Merino sent off as Arteta's side fight back for draw**\
 `Arsenal scored twice in the second half to grab a draw as Alexander-Arnold endured a tough afternoon after announcing he's leaving Liverpool`\
 https://nytimes.com/athletic/6339872/2025/05/11/liverpool-arsenal-alexander-arnold-booed-merino-arteta/
-
-**Nuno says Marinakis confrontation was down to 'miscommunication'**\
-`"It is because of the owner and his passion that we are growing as a club. He pushes us," Nuno said after Forest's 2-2 draw with Leicester.`\
-https://nytimes.com/athletic/6347826/2025/05/11/nottingham-forest-marinakis-nuno-leicester/
 
