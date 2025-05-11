@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6347278/2025/05/11/alex-scott-injury-jaw-mings/
 `Sheikh Hasina fled the country after a mass uprising against her government, but the party she led remained a factor in Bangladeshi politics.`\
 https://nytimes.com/2025/05/11/world/asia/bangladesh-awami-party-ban.html
 
-**Presidential Rivals Vow to Heal a Divided South Korea. It Won’t Be Easy.**\
+**Presidential Candidates Vow to Heal a Divided South Korea. They Are Poles Apart.**\
 `Lee Jae-myung and Kim Moon-soo represent the opposite sides of a country polarized over former President Yoon Suk Yeol’s use of martial law and his ouster.`\
 https://nytimes.com/2025/05/11/world/asia/south-korea-presidential-election-candidates.html
 
