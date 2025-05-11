@@ -1,3 +1,7 @@
+**After turning Broncos rookie camp into a juke joint, RJ Harvey eager for immediate impact**\
+`The second-round pick has studied film of Darren Sproles and Alvin Kamara as he prepares for a larger receiving role than he had in college.`\
+https://nytimes.com/athletic/6346786/2025/05/10/broncos-rj-harvey-rookie-camp/
+
 **Quotation of the Day: ‘Mother Pigeon’ Unfurls Her Wings to Protect Flocks**\
 `Quotation of the Day for Sunday, May 11, 2025.`\
 https://nytimes.com/2025/05/10/pageoneplus/quotation-of-the-day-mother-pigeon-unfurls-her-wings-to-protect-flocks.html
