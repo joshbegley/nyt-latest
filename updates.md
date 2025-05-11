@@ -1,3 +1,7 @@
+**Como Women’s captain retires, spotlighting uncertain future for female footballers**\
+`“Unlike Serie A players who retire with millions ... and a lineup of opportunities, we have to fight for everything," Alia Guagni said.`\
+https://nytimes.com/athletic/6347523/2025/05/11/alia-guagni-como-captain-retires/
+
 **Pope Leo XIV Delivers His First Sunday Blessing**\
 `The new pope called for the end of war, echoing themes that Francis, his predecessor, regularly addressed.`\
 https://nytimes.com/video/world/europe/100000010162394/pope-leo-xiv-sunday-blessing.html
