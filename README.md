@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6305137/2025/05/11/manager-celebrations-epl-guardio
 https://nytimes.com/athletic/6327187/2025/05/11/david-kogan-football-independent-regulator-profile/
 
 **With blowout loss, LA Galaxy set MLS record by being winless after 12 games**\
-`The Red Bulls humiliated the Galaxy in a 7-0 debacle, leaving LA a league-worst minus-20 in goal differential.`\
+`The Red Bulls humiliated the Galaxy in a 7-0 debacle, leaving LA with a league-worst minus-20 in goal differential.`\
 https://nytimes.com/athletic/6347082/2025/05/11/la-galaxy-mls-record-losing-streak/
 
 **Liverpool vs Arsenal preview: How do fans feel?, view on the opposition's season and our writers' predictions**\
@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6346588/2025/05/11/barcelona-champions-league-el-cl
 https://nytimes.com/athletic/6344973/2025/05/11/history-of-world-cup-winners-uruguay-1950/
 
 **'Pritchard was huge': NBA's Sixth Man leads Celtics to Game 3 win**\
-`Still down 2-1, the Celtics could need more big games from Pritchard later in the Eastern Conference semifinals.`\
+`On the road, in a game the Celtics needed badly, Pritchard delivered in the type of position he had wanted for so long.`\
 https://nytimes.com/athletic/6347057/2025/05/11/payton-pritchard-celtics-game-3-win/
 
