@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6347826/2025/05/11/nottingham-forest-marinakis-nuno
 `Amorim said United had to be "strong and brave" in the summer transfer window and questioned his future if he cannot change the culture.`\
 https://nytimes.com/athletic/6347861/2025/05/11/ruben-amorim-manchester-united-future/
 
-**At Least 1 Dead and 32 Injured in Crash of Bus and S.U.V. in California**\
-`The crash happened along a highway in Los Angeles County around 5 a.m. on Sunday, official said.`\
+**At Least 1 Dead and 32 Injured After Bus Crashes Into S.U.V. in California**\
+`The bus crashed into a disabled S.U.V. on a highway in Los Angeles County around 5 a.m. Sunday, officials said.`\
 https://nytimes.com/2025/05/11/us/bus-vehicle-crash-los-angeles.html
 
 **Flights Could Be Disrupted Across U.S., Transportation Secretary Warns**\
