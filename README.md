@@ -1,3 +1,7 @@
+**Newsom to Ask Cities to Ban Homeless Encampments, Escalating Crackdown**\
+`“There are no more excuses,” the California governor said in pushing for municipalities to address one of the most visible byproducts of homelessness.`\
+https://nytimes.com/2025/05/12/us/newsom-california-homeless-encampments.html
+
 **No Corrections: May 12, 2025**\
 `No corrections appeared in print on Monday, May 12, 2025.`\
 https://nytimes.com/2025/05/12/pageoneplus/no-corrections-may-12-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349514/2025/05/12/nfl-2025-schedule-eagles-cowboys
 **Jets' top players must quickly find a way to outplay Mikko Rantanen and the Stars**\
 `The Jets need a signature game from Scheifele, Connor and Vilardi — offensively and defensively — to avoid the brink of elimination.`\
 https://nytimes.com/athletic/6348903/2025/05/12/nhl-jets-stars-playoffs-rantanen-scheifele/
-
-**Trump Administration Live Updates: White South Africans Granted Refugee Status Head to U.S.**\
-``\
-https://nytimes.com/live/2025/05/12/us/trump-news
 
