@@ -1,3 +1,11 @@
+**Pacers' Bennedict Mathurin ejected for hitting Cavs' De'Andre Hunter**\
+`Pacers lead the series 2-1 after stealing a pair of games in Cleveland.`\
+https://nytimes.com/athletic/6348701/2025/05/11/pacers-bennedict-mathurin-ejected-deandre-hunter/
+
+**Asia Stocks Rise on Hope for Lower Tariffs After U.S.-China Talks**\
+`Investors were optimistic after American officials touted progress in trade negotiations over the weekend, though details had yet to be released.`\
+https://nytimes.com/2025/05/11/business/us-china-trade-stock-market.html
+
 **Trump Plan Would Tie Some Drug Prices to What Peer Nations Pay**\
 `The president announced an executive order aimed at lowering U.S. drug costs, revisiting an idea that was blocked in court during his first term.`\
 https://nytimes.com/2025/05/11/us/drug-prices-executive-order.html
