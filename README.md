@@ -1,3 +1,7 @@
+**Texas A&M nabs No. 1 seed in WCWS as SEC snags 7 of top 8 spots**\
+`For the third year in a row, a different team topped the bracket. For the first time in program history, it was Texas A&M.`\
+https://nytimes.com/athletic/6348606/2025/05/11/texas-am-womens-college-world-series-bracket-reveal-2025/
+
 **Fear of Sleep**\
 `Bedbugs, “The Shining,” sleep disorders and other things that keep us up.`\
 https://nytimes.com/2025/05/11/podcasts/fear-of-sleep-this-american-life-nyt-audio.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
 `The win moves Straka up to No. 2 in the FedEx Cup standings behind only Rory McIlroy.`\
 https://nytimes.com/athletic/6348461/2025/05/11/sepp-straka-truist-championship-pga-tour-win/
 
-**NBA playoffs takeaways: Thunder outplay Nuggets down stretch, tie series**\
+**NBA playoffs takeaways: Thunder outplay Nuggets down the stretch to tie series**\
 `The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
 https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
-
-**Why Patients Are Being Forced to Switch to a 2nd-Choice Obesity Drug**\
-`CVS Caremark decided to stop offering Zepbound in favor of Wegovy for weight loss. It’s the latest example of limits imposed by insurance that disrupt treatments for patients.`\
-https://nytimes.com/2025/05/11/health/zepbound-wegovy-weight-loss-drugs.html
 
