@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, May 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/12/todays-new-york-times
+
+**Pope Leo XIV May Be a Stern Teacher for American Catholics**\
+`Political partisanship is likely to become an even more untenable position for American Catholics than it already is.`\
+https://nytimes.com/2025/05/12/opinion/pope-leo-american-catholic.html
+
+**My Country Is Showing America What’s Possible**\
+`Serbian protesters are bravely combating a powerful autocratic government.`\
+https://nytimes.com/2025/05/12/opinion/serbia-protests-students-vucic.html
+
+**‘The Secret Lives of Mormon Wives,’ Plus 6 Things to Watch on TV This Week**\
+`The reality show returns to Hulu, while AppleTV+ debuts a new sci-fi series.`\
+https://nytimes.com/2025/05/12/arts/television/the-secret-lives-of-mormon-wives-plus-6-things-to-watch-on-tv-this-week.html
+
 **Leafs vs. Panthers has turned into a battle of both bodies and minds**\
 `Bad blood between the Atlantic Division rivals has begun to dominate an increasingly physical series.`\
 https://nytimes.com/athletic/6349041/2025/05/12/leafs-panthers-nhl-playoffs-hits-domi-kulikov/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6346120/2025/05/12/wsl-2024-25-chelsea-changes/
 **Nicolas Jackson's indiscretion underlines why Chelsea need an upgrade this summer**\
 `The striker is yet to wrest control of a key game and will now be absent over the season's run-in after being sent off at St James' Park`\
 https://nytimes.com/athletic/6347510/2025/05/12/jackson-chelsea-striker-newcastle/
-
-**What a flat performance against Brighton should mean for Wolves' summer plans**\
-`A rare underwhelming display under Vitor Pereira helpfully illustrated many of the issues he needs to fix in the summer transfer window`\
-https://nytimes.com/athletic/6346557/2025/05/12/wolves-summer-2025-squad-plans-brighton/
-
-**Brighton's route back into Europe - and how Palace, of alll people, can spoil the party**\
-`Breaking down the permutations as the upper mid-table battle between Brighton, Brentford and Bournemouth intensifies `\
-https://nytimes.com/athletic/6346457/2025/05/12/brighton-european-football-route-wolves/
-
-**Nuno, Marinakis and the day it felt Forest let Champions League football slip away**\
-`Forest have secured European qualification for the first time in 30 years, but Sunday's draw didn't feel like a celebration`\
-https://nytimes.com/athletic/6348003/2025/05/12/marinakis-nuno-nottingham-forest/
-
-**Arsenal showed character. It was essential for them and Arteta they didn't crumble**\
-`Arsenal showed that, while they may be bruised, they are not willing to accept they are second best to anyone`\
-https://nytimes.com/athletic/6347671/2025/05/12/arsenal-liverpool-arteta-anfield/
 
