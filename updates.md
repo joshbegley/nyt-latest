@@ -1,3 +1,7 @@
+**Barcelona have dominated the Clasico – they have proved themselves the best team in La Liga**\
+`A fourth consecutive victory over Real Madrid this season has left Barca tantalisingly close to reclaiming the Spanish league title`\
+https://nytimes.com/athletic/6348402/2025/05/12/barcelona-clasico-liga-title-garcia-yamal/
+
 **Word of the Day: ephemeral**\
 `This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/12/learning/word-of-the-day-ephemeral.html

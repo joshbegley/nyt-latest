@@ -1,3 +1,7 @@
+**The Glazers in 2025 – Their Manchester United roles, Ratcliffe relationship and what happens next**\
+`Why the Glazers handed control to Ratcliffe, how involved they remain in the club's running and what they're planning to do next`\
+https://nytimes.com/athletic/6339593/2025/05/12/glazers-manchester-united-ratcliffe/
+
 **Barcelona have dominated the Clasico – they have proved themselves the best team in La Liga**\
 `A fourth consecutive victory over Real Madrid this season has left Barca tantalisingly close to reclaiming the Spanish league title`\
 https://nytimes.com/athletic/6348402/2025/05/12/barcelona-clasico-liga-title-garcia-yamal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/opinion/pope-leo-american-catholic.html
 **My Country Is Showing America What’s Possible**\
 `Serbian protesters are bravely combating a powerful autocratic government.`\
 https://nytimes.com/2025/05/12/opinion/serbia-protests-students-vucic.html
-
-**‘The Secret Lives of Mormon Wives,’ Plus 6 Things to Watch on TV This Week**\
-`The reality show returns to Hulu, while AppleTV+ debuts a new sci-fi series.`\
-https://nytimes.com/2025/05/12/arts/television/the-secret-lives-of-mormon-wives-plus-6-things-to-watch-on-tv-this-week.html
 
