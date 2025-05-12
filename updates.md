@@ -1,3 +1,15 @@
+**The Frick’s Gift to New York: A Superb New Concert Hall**\
+`There’s a crackling aliveness to music in the 220-seat, subterranean yet airy auditorium, which was put through its paces in a burst of six concerts.`\
+https://nytimes.com/2025/05/12/arts/music/frick-museum-concert-hall.html
+
+**When Watching These Films at Cannes, Feel Free to Put Your Feet in the Sand**\
+`Cinéma de la Plage is the Cannes Film Festival’s free program of nightly film screenings on the beach and under the stars.`\
+https://nytimes.com/2025/05/12/movies/cannes-film-festival-beach.html
+
+**He Spent $12,495 to Be Gene Simmons’s Roadie (and Got More Than Expected)**\
+`A father-son pair ponied up for the V.I.P. experience last week and got a glimpse behind the scenes of a rock ’n’ roll show, and into a notorious star’s heart.`\
+https://nytimes.com/2025/05/12/arts/music/gene-simmons-kiss-roadie.html
+
 **Who’s who on Sean Combs’s defense team.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team

@@ -1,3 +1,15 @@
+**The Frick’s Gift to New York: A Superb New Concert Hall**\
+`There’s a crackling aliveness to music in the 220-seat, subterranean yet airy auditorium, which was put through its paces in a burst of six concerts.`\
+https://nytimes.com/2025/05/12/arts/music/frick-museum-concert-hall.html
+
+**When Watching These Films at Cannes, Feel Free to Put Your Feet in the Sand**\
+`Cinéma de la Plage is the Cannes Film Festival’s free program of nightly film screenings on the beach and under the stars.`\
+https://nytimes.com/2025/05/12/movies/cannes-film-festival-beach.html
+
+**He Spent $12,495 to Be Gene Simmons’s Roadie (and Got More Than Expected)**\
+`A father-son pair ponied up for the V.I.P. experience last week and got a glimpse behind the scenes of a rock ’n’ roll show, and into a notorious star’s heart.`\
+https://nytimes.com/2025/05/12/arts/music/gene-simmons-kiss-roadie.html
+
 **Who’s who on Sean Combs’s defense team.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/business/robert-shapiro-dead.html
 **Referee with past links to match-fixing to officiate Europa League final**\
 `Zwayer, 43, was given a six-month ban by his country’s football federation (DFB) for his involvement in a match-fixing scandal in 2005.`\
 https://nytimes.com/athletic/6349911/2025/05/12/europa-league-final-referee-felix-zwayer/
-
-**Can You Match These Famous Quotes to Their Novels?**\
-`Certain lines in classic novels stand out. See how many you remember in this short quiz.`\
-https://nytimes.com/interactive/2025/05/12/books/review/book-quotations-quiz.html
-
-**Crispy Cheese, Yes Please**\
-`Crispy halloumi, specifically, nestled into blistered cherry tomatoes and velvety white beans for a speedy one-pan supper.`\
-https://nytimes.com/2025/05/12/dining/halloumi-recipe-tomatoes-white-beans.html
-
-**La Scala Taps South Korean Maestro as Music Director**\
-`Myung-whun Chung will be the first Asian, and one of the first conductors born outside Italy, to serve as music director in the opera house’s 247-year history.`\
-https://nytimes.com/2025/05/12/arts/music/la-scala-music-director-myung-whun-chung.html
 
