@@ -1,3 +1,15 @@
+**Michael Jordan to be 'special contributor' during NBC's NBA coverage**\
+`The specifics of Jordan's role — and whether it goes beyond perfunctory appearances — will be detailed at a later date.`\
+https://nytimes.com/athletic/6350144/2025/05/12/michael-jordan-nba-nbc-coverage-media/
+
+**Trump, Pressed on Qatari Jet, Says Only ‘Stupid’ People Reject Free Gifts**\
+`The president grew angry when questioned about the ethical implications of accepting a luxury jetliner from a foreign government.`\
+https://nytimes.com/2025/05/12/us/politics/trump-qatar-plane-jet.html
+
+**LeBrun: Greg Cronin on the shock of Ducks firing and being replaced by Joel Quenneville**\
+`Cronin coached Anaheim to a 21-point increase in Year 2: "Anyone that watched our team and looked at the standings saw definite progress."`\
+https://nytimes.com/athletic/6349904/2025/05/12/greg-cronin-ducks-firing-joel-quenneville/
+
 **The prosecution depicts Sean Combs as a serial abuser, and outlines three key witnesses.**\
 `By Ben Sisario and Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-prosecution-depicts-sean-combs-as-a-serial-abuser-and-outlines-three-key-witnesses
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/6349847/2025/05/12/diamondbacks-jordan-lawlar-call-
 https://nytimes.com/athletic/6349806/2025/05/12/cincinnati-bengals-mock-schedule-2025/
 
 **NWSL must learn from its decision to continue play after Angel City's Savy King collapsed**\
-`NWSL's lack of communication following Friday's medical incident is a crucial learning moment.`\
+`The level of pushback over the continuation of Friday’s game should prompt a review of policy. Player health is the priority.`\
 https://nytimes.com/athletic/6350029/2025/05/12/nwsl-soccer-savy-king-angel-city/
 
 **Cuomo Loses $622,000 in Campaign Funds for Coordinating With Super PAC**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/nyregion/cuomo-denied-matching-funds.html
 **Shoreham Airshow disaster pilot's license appeal rejected after crash that killed two team-mates**\
 `The mother of a Brighton & Hove Albion fan killed in the airshow disaster ten years ago has expressed her relief.`\
 https://nytimes.com/athletic/6349667/2025/05/12/shoreham-airshow-disaster-pilot-license-appeal/
-
-**Virat Kohli made one billion Indians dream again and helped save Test cricket**\
-`A reflection on the superstar's impressive and impactful career as he retires from the longest form of a sport that obsesses his country`\
-https://nytimes.com/athletic/6349417/2025/05/12/virat-kohli-india-cricket/
-
-**The Frick’s Gift to New York: A Superb New Concert Hall**\
-`There’s a crackling aliveness to music in the 220-seat, subterranean yet airy auditorium, which was put through its paces in a burst of six concerts.`\
-https://nytimes.com/2025/05/12/arts/music/frick-museum-concert-hall.html
-
-**When Watching These Films at Cannes, Feel Free to Put Your Feet in the Sand**\
-`Cinéma de la Plage is the Cannes Film Festival’s free program of nightly film screenings on the beach and under the stars.`\
-https://nytimes.com/2025/05/12/movies/cannes-film-festival-beach.html
 
