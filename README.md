@@ -1,6 +1,6 @@
 **Winnipeg Jets lament controversial Game 3 winner: 'That is no goal'**\
-`The Jets let a close game slip away thanks in part to kicked puck that went in and held up as the game-winning goal.`\
-https://nytimes.com/athletic/6348149/2025/05/11/winnipeg-jets-lament-controversial-game-3-winner-that-is-no-goal/
+`The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
+https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
 
 **Lazerus: Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
 `One is the best regular-season goalie on the planet. The other shows up in big games — and the Team USA brass must take note.`\
