@@ -1,3 +1,15 @@
+**What It Takes to Be a ‘Well Woman’**\
+`In her new book, “How to Be Well,” the writer Amy Larocca draws readers down a rabbit hole of serums, supplements and colonics. We know a lot of it doesn’t work. Why do we want it anyway?`\
+https://nytimes.com/2025/05/12/style/amy-larocca-q-and-a-how-to-be-well.html
+
+**Lakers offseason overview: Salary cap situation, roster needs and more**\
+`As the first-round loss to Minnesota showed, L.A. needs a deeper roster with more size. But the team lacks salary room and draft assets.`\
+https://nytimes.com/athletic/6346843/2025/05/12/los-angeles-lakers-offseason-overview-salary-cap-luka-lebron-roster/
+
+**Super Bowl champion Eagles will host Cowboys to kick off 2025 NFL season**\
+`The league made the announcement Monday ahead of the full schedule release Wednesday.`\
+https://nytimes.com/athletic/6349514/2025/05/12/nfl-2025-schedule-eagles-cowboys-kickoff/
+
 **Jets' top players must quickly find a way to outplay Mikko Rantanen and the Stars**\
 `The Jets need a signature game from Scheifele, Connor and Vilardi — offensively and defensively — to avoid the brink of elimination.`\
 https://nytimes.com/athletic/6348903/2025/05/12/nhl-jets-stars-playoffs-rantanen-scheifele/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6346789/2025/05/12/49ers-rookie-camp-upton-stout-te
 **The Oilers lost control in Game 3 against the Golden Knights. How can they recover?**\
 `The Oilers have gone from being on the cusp of having a stranglehold on the series to being on the verge of letting their control slip away.`\
 https://nytimes.com/athletic/6348226/2025/05/12/oilers-golden-knights-nhl-playoffs-skinner/
-
-**Survey: How do you rank Utah Mammoth among NHL team names? Which ones are better?**\
-`Have your say on the quality of franchise names around the league, starting with the newest in Salt Lake City.`\
-https://nytimes.com/athletic/6348949/2025/05/12/utah-mammoth-nhl-franchise-name-survey/
-
-**How Newcastle tweaked their system to outmanoeuvre Chelsea**\
-`Eddie Howe's decision to start with a 3-4-3, with Jacob Murphy and Tino Livramento as wing-backs, proved inspirational at St James' Park`\
-https://nytimes.com/athletic/6349166/2025/05/12/newcastle-chelsea-tactics-analysis/
-
-**Who is the judge?**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/who-is-the-judge
 

@@ -1,3 +1,15 @@
+**What It Takes to Be a ‘Well Woman’**\
+`In her new book, “How to Be Well,” the writer Amy Larocca draws readers down a rabbit hole of serums, supplements and colonics. We know a lot of it doesn’t work. Why do we want it anyway?`\
+https://nytimes.com/2025/05/12/style/amy-larocca-q-and-a-how-to-be-well.html
+
+**Lakers offseason overview: Salary cap situation, roster needs and more**\
+`As the first-round loss to Minnesota showed, L.A. needs a deeper roster with more size. But the team lacks salary room and draft assets.`\
+https://nytimes.com/athletic/6346843/2025/05/12/los-angeles-lakers-offseason-overview-salary-cap-luka-lebron-roster/
+
+**Super Bowl champion Eagles will host Cowboys to kick off 2025 NFL season**\
+`The league made the announcement Monday ahead of the full schedule release Wednesday.`\
+https://nytimes.com/athletic/6349514/2025/05/12/nfl-2025-schedule-eagles-cowboys-kickoff/
+
 **Jets' top players must quickly find a way to outplay Mikko Rantanen and the Stars**\
 `The Jets need a signature game from Scheifele, Connor and Vilardi — offensively and defensively — to avoid the brink of elimination.`\
 https://nytimes.com/athletic/6348903/2025/05/12/nhl-jets-stars-playoffs-rantanen-scheifele/

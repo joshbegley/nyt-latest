@@ -1,6 +1,14 @@
+**A relatively new unit is handling the Sean Combs trial.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/criminal-civil-rights-violations
+
 **What It Takes to Be a ‘Well Woman’**\
 `In her new book, “How to Be Well,” the writer Amy Larocca draws readers down a rabbit hole of serums, supplements and colonics. We know a lot of it doesn’t work. Why do we want it anyway?`\
 https://nytimes.com/2025/05/12/style/amy-larocca-q-and-a-how-to-be-well.html
+
+**Barcelona's 4-3 Clasico win summed up a season of all-out attack – but should they add more control?**\
+`Barca's commitment to not killing games when they lead is admirable — but will it stop them landing European football's biggest prize?`\
+https://nytimes.com/athletic/6349368/2025/05/12/barcelona-tactics-hansi-flick-attack-clasico-champions-league/
 
 **Lakers offseason overview: Salary cap situation, roster needs and more**\
 `As the first-round loss to Minnesota showed, L.A. needs a deeper roster with more size. But the team lacks salary room and draft assets.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6340468/2025/05/12/seahawks-mailbag-nick-emmanwori-
 **Who should Senators target in free agency? Should they keep their 2025 first-rounder? Mailbag**\
 `Also, should the Senators consider trading away Drake Batherson? What about a right-shot defenceman to upgrade on Nick Jensen?`\
 https://nytimes.com/athletic/6335715/2025/05/12/senators-draft-trade-free-agent-giroux-batherson/
-
-**49ers rookie impressions: Upton Stout passes eye test; second-year WR looks ready**\
-`The 49ers' rookie minicamp is designed to establish expectations and set the tone. Several participants seemed ready for the demanding pace.`\
-https://nytimes.com/athletic/6346789/2025/05/12/49ers-rookie-camp-upton-stout-terique-owens/
-
-**The Oilers lost control in Game 3 against the Golden Knights. How can they recover?**\
-`The Oilers have gone from being on the cusp of having a stranglehold on the series to being on the verge of letting their control slip away.`\
-https://nytimes.com/athletic/6348226/2025/05/12/oilers-golden-knights-nhl-playoffs-skinner/
 
