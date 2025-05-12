@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-s
 `\
 https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
 
+**Draymond Green said what many Black people feel. But then he missed the point**\
+`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+`\
+https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
+
 **Rockets, Ime Udoka put playoff disappointment aside to focus on critical offseason**\
 `"Everyone’s goal is to be better and come back better," Rockets coach Ime Udoka said of the offseason.`\
 https://nytimes.com/athletic/6346932/2025/05/12/rockets-ime-udoka-amen-thompson-offseason/
