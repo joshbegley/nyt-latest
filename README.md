@@ -1,40 +1,41 @@
-**What you need to know ahead of the 2025 NBA Draft Lottery**\
-`Three teams each have a 14 percent chance at the top pick. History says one of those teams landing at No. 1 is far from guaranteed.`\
-https://nytimes.com/athletic/6345305/2025/05/12/nba-draft-lottery-2025-explainer-cooper-flagg/
+**Do Ravens need Jadeveon Clowney? It depends on how they view their young edge rushers**\
+`Clowney had one of his best seasons with Baltimore in 2023, tying a career high with 9.5 sacks and playing a disruptive brand of football.`\
+https://nytimes.com/athletic/6345903/2025/05/12/ravens-edge-rushers-jadeveon-clowney/
 
-**For Catholics, the Pope Is a Holy Father. For the World, He Is a Powerful Voice**\
-`The papacy is a global platform, so the issues Pope Leo chooses to focus on can resonate far beyond the church.`\
-https://nytimes.com/2025/05/12/world/asia/pope-leo-voice-platform.html
+**Draymond Green said what many Black people feel. But then he missed the point**\
+`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+`\
+https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
 
-**The New York Times International Edition in Print for Tuesday, May 13, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/12/todays-new-york-times-international-edition
+**NBA Draft: John Hollinger's top prospects, including Flagg, Harper and more**\
+`The top tiers of players are about what you would expect, but after those names, things get weird.`\
+https://nytimes.com/athletic/6344540/2025/05/12/nba-draft-2025-prospects-cooper-flagg-dylan-harper/
 
-**Bears rookie minicamp takeaways: Coaches offer early impressions of draft picks**\
-`We heard from the Bears' coordinators during rookie minicamp and learned what stood out to them about Ryan Poles' 2025 draft class.`\
-https://nytimes.com/athletic/6346667/2025/05/12/bears-rookie-minicamp-rookie-impressions/
+**Takeaways from Caitlin Clark, Indiana Fever's preseason: Will her quad injury linger?**\
+`Don't expect Indiana's rotation to be set until later in the season. `\
+https://nytimes.com/athletic/6348324/2025/05/12/caitlin-clark-indiana-fever-preseason-takeaways/
 
-**Ryan Fitzgerald brings accuracy, big leg to Panthers' kicking competition**\
-`Dave Canales said the Panthers liked what they saw in Ryan Fitzgerald before bringing him in. “The ball jumps off of his foot," he said.`\
-https://nytimes.com/athletic/6347714/2025/05/12/panthers-ryan-fitzgerald-kicking-competition/
+**Matthews is doing a lot of things right. The Leafs still need him to score**\
+`Despite excellent faceoff stats and solid defensive work, Matthews hasn't found the net in the second round.`\
+https://nytimes.com/athletic/6349088/2025/05/12/auston-matthews-maple-leafs-scoring-nhl-playoffs-panthers/
 
-**Browns rookie minicamp: Open QB competition heats up later this month**\
-`Gabriel and Sanders got their reps in rookie minicamp and will join Joe Flacco and Kenny Pickett in the offseason program.`\
-https://nytimes.com/athletic/6348264/2025/05/12/browns-rookie-minicamp-shedeur-sanders-dillon-gabriel-quarterbacks/
+**Everything's coming up Illinois: Can Bret Bielema and the Illini capitalize?**\
+`Everything is lining up for the Illini to make a move, but now they have to take advantage.`\
+https://nytimes.com/athletic/6344242/2025/05/12/illinois-football-bret-bielema-cfp/
 
-**Cowboys mailbag: George Pickens thoughts, offensive changes, biggest reason for optimism**\
-`The trade for Pickens solved one glaring hole, but where else do the Cowboys still have work to do between now and Week 1?`\
-https://nytimes.com/athletic/6348292/2025/05/12/cowboys-mailbag-george-pickens-strengths-weaknesses/
+**A Vulnerable China Comes to the Table**\
+`The negotiations between China and the U.S. will have implications for a global economy rocked by President Trump’s tariffs.`\
+https://nytimes.com/2025/05/12/podcasts/the-daily/china-trump-trade-tariffs.html
 
-**Auction to Dine With Trump Creates Foreign Influence Opportunity**\
-`When the bidding stops Monday, the top buyers of a Trump family crypto coin will win a tour of the White House.`\
-https://nytimes.com/2025/05/12/us/politics/auction-to-dine-with-trump-creates-foreign-influence-opportunity.html
+**WNBA preseason power rankings: Indiana Fever land outside top three ... for now**\
+`Will the Lynx challenge the Liberty again this season? Will the Aces return to the top? `\
+https://nytimes.com/athletic/6348438/2025/05/12/wnba-preseason-power-rankings-indiana-fever/
 
-**A Warning From Justice Souter: Democracy Is in Peril**\
-`Justice David H. Souter, who died last week, said in 2012 that public ignorance of the Constitution could lead to the rise of an autocrat and the death of democracy.`\
-https://nytimes.com/2025/05/12/us/justice-david-souter-democracy-warning.html
+**Great views and bad baseball: After brutal start, Colorado Rockies finally face a reckoning**\
+`The Rockies have traditionally been slow to change, even in bad times. But even this franchise, it seems, has a breaking point. `\
+https://nytimes.com/athletic/6348720/2025/05/12/colorado-rockies-bad-start-fire-manager/
 
-**Walz to Speak at 2 Democratic Events, as Jockeying for 2028 Begins**\
-`Gov. Tim Walz of Minnesota, the Democrats’ vice-presidential nominee last year, will attend state party conventions in South Carolina and California on May 31.`\
-https://nytimes.com/2025/05/12/us/politics/tim-walz-democrats-2028.html
+**Wordle Review No. 1,424**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 13, 2025.`\
+https://nytimes.com/2025/05/12/crosswords/wordle-review-1424.html
 
