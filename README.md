@@ -1,3 +1,7 @@
+**Energy Department to Repeal Efficiency Rules for Appliances**\
+`Experts say the moves, which would apply to household appliances, will raise energy costs for consumers.`\
+https://nytimes.com/2025/05/12/climate/energy-effiency-programs-department-of-energy.html
+
 **Trump Backed Down on China Tariffs**\
 `Also, witnesses took the stand at Sean Combs’s trial. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/05/12/briefing/trump-china-tariffs-sean-combs-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/us/politics/pam-bondi-trump-justice-dept.html
 **Midwest Grapples With Wildfires Amid Record Heat and Dry Conditions**\
 `A large swath of Minnesota, Wisconsin, the Dakotas and Nebraska was on high alert on Monday. Temperatures were expected to approach 100 degrees in some places.`\
 https://nytimes.com/2025/05/12/us/wildfires-midwest-heat.html
-
-**Hollywood Groups Call for Tax Changes After Trump’s Tariff Threat**\
-`“Returning more production to the United States will require a national approach and broad-based policy solutions,” the groups said in a letter  to the White House.`\
-https://nytimes.com/2025/05/12/business/media/trump-tariffs-movies-hollywood.html
 
