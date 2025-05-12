@@ -1,3 +1,7 @@
+**The Glazers in 2025 – Their Manchester United roles, Ratcliffe relationship and what happens next**\
+`Why the Glazers handed control to Ratcliffe, how involved they remain in the club's running and what they're planning to do next`\
+https://nytimes.com/athletic/6339593/2025/05/12/glazers-manchester-united-ratcliffe/
+
 **Barcelona have dominated the Clasico – they have proved themselves the best team in La Liga**\
 `A fourth consecutive victory over Real Madrid this season has left Barca tantalisingly close to reclaiming the Spanish league title`\
 https://nytimes.com/athletic/6348402/2025/05/12/barcelona-clasico-liga-title-garcia-yamal/
