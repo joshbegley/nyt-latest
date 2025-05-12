@@ -1,8 +1,12 @@
+**Trump Signs Executive Order Asking Drugmakers to Slash Prices**\
+`President Trump’s executive order, which did not include specific legal mechanisms for lowering drug prices, was viewed as something of a win for the pharmaceutical industry.`\
+https://nytimes.com/video/us/politics/100000010164040/trump-executive-order-drug-prices.html
+
 **What to Do When You Have a Pimple Emergency**\
 `Expert advice on dealing with breakouts from the artist SZA, the dermatologist David Kim and the aesthetician Tiara Willis.`\
 https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.html
 
-**The testimony of one woman who has accused Combs is up in the air.**\
+**The testimony of one woman who has accused Combs is uncertain.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347866/2025/05/12/edmonton-oilers-team-building-20
 **Once They Told People ‘What Not to Wear.’ Now, Anything Goes.**\
 `Stacy London and Clinton Kelly are back on TV with a provocatively named new show that celebrates personal style rather than dictating it.`\
 https://nytimes.com/2025/05/12/style/stacy-london-what-not-wear.html
-
-**The office prosecuting Sean Combs is led by an interim Trump appointee.**\
-`By Benjamin Weiser`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/jay-clayton-prosecutors
 
