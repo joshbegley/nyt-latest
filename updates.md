@@ -1,3 +1,7 @@
+**Irvine 'disappointed' by men’s football's reaction to English ban on transgender women**\
+`Earlier this month, the FA announced a ban on transgender women playing women’s football from June 1.`\
+https://nytimes.com/athletic/6349706/2025/05/12/irvine-fa-transgender-ban-women/
+
 **Stardom in the Ring, but an Early Death**\
 `The causes are varied, but many well-known wrestlers have died young.`\
 https://nytimes.com/2025/05/12/sports/wrestlers-died-young-andre-the-giant.html
