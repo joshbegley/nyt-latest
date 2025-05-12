@@ -1,3 +1,15 @@
+**Who’s who on Sean Combs’s defense team.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team
+
+**Rob Sand, Iowa’s Only Democrat in Statewide Office, to Run for Governor**\
+`To win, Mr. Sand would have to buck trends that have favored Republicans in Iowa for a decade.`\
+https://nytimes.com/2025/05/12/us/rob-sand-iowa-governor-democrats.html
+
+**Anamaria Vartolomei Brings a Fearless Streak to Her Roles**\
+`The actress’s latest film, “Adam’s Interest,” will open the Critics’ Week showcase at the Cannes Film Festival.`\
+https://nytimes.com/2025/05/12/movies/cannes-anamaria-vartolomei.html
+
 **Face to Face With an Alligator? Here’s What to Do**\
 `On May 6, an alligator thrashed and tipped over a couple’s canoe in Central Florida where it attacked a woman and killed her.`\
 https://nytimes.com/2025/05/12/us/alligator-attacks-safety-tips.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/dining/halloumi-recipe-tomatoes-white-beans.html
 **La Scala Taps South Korean Maestro as Music Director**\
 `Myung-whun Chung will be the first Asian, and one of the first conductors born outside Italy, to serve as music director in the opera house’s 247-year history.`\
 https://nytimes.com/2025/05/12/arts/music/la-scala-music-director-myung-whun-chung.html
-
-**Staple: Does anyone want to be an Islanders exec? What I'm hearing about a fraught search**\
-`Could Lou Lamoriello stay on in some capacity after all? What would that mean for a new Isles GM? The situation is getting murkier.`\
-https://nytimes.com/athletic/6349690/2025/05/12/islanders-gm-president-search/
-
-**Watch: Which team needs to win the NBA Draft Lottery the most?**\
-`"The Athletic NBA Daily" discussed the upcoming draft lottery and which team most needs to land the No. 1 pick.`\
-https://nytimes.com/athletic/6349597/2025/05/12/nba-daily-draft-lottery-winners/
-
-**To understand how good Carlo Ancelotti is as a club manager, look at what he does NOT do...**\
-`By signing a contract with the Brazil national team, and starting work this month, it feels like the Real Madrid boss is checking out`\
-https://nytimes.com/athletic/6322976/2025/05/12/ancelotti-real-madrid-leaves-brazil-manager/
 

@@ -1,3 +1,15 @@
+**Who’s who on Sean Combs’s defense team.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/whos-who-on-sean-combss-defense-team
+
+**Rob Sand, Iowa’s Only Democrat in Statewide Office, to Run for Governor**\
+`To win, Mr. Sand would have to buck trends that have favored Republicans in Iowa for a decade.`\
+https://nytimes.com/2025/05/12/us/rob-sand-iowa-governor-democrats.html
+
+**Anamaria Vartolomei Brings a Fearless Streak to Her Roles**\
+`The actress’s latest film, “Adam’s Interest,” will open the Critics’ Week showcase at the Cannes Film Festival.`\
+https://nytimes.com/2025/05/12/movies/cannes-anamaria-vartolomei.html
+
 **Face to Face With an Alligator? Here’s What to Do**\
 `On May 6, an alligator thrashed and tipped over a couple’s canoe in Central Florida where it attacked a woman and killed her.`\
 https://nytimes.com/2025/05/12/us/alligator-attacks-safety-tips.html
