@@ -1,3 +1,7 @@
+**Cheers, Chants and a ‘Dance of the Little Devils’ for Pope Leo in Peru**\
+`People in the city of Chiclayo, where Leo XIV served as bishop for about eight years, gathered to celebrate a man they see as one of their own.`\
+https://nytimes.com/2025/05/12/world/europe/pope-leo-peru.html
+
 **UEFA urged to increase payments to non-elite clubs**\
 `The 36 teams in the league phase of the UCL would not be eligible for the payments, as they already receive huge sums in prize money.`\
 https://nytimes.com/athletic/6348271/2025/05/12/uefa-payments-increase-european-leagues/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html
 **India great Virat Kohli announces retirement from Test cricket**\
 `Kohli played 123 Tests in a career which lasted for 14 years after his debut in 2011. He scored 9,230 runs and made 30 centuries.`\
 https://nytimes.com/athletic/6346191/2025/05/12/virat-kohli-retires-india-cricket/
-
-**The Glazers in 2025 – Their Manchester United roles, Ratcliffe relationship and what happens next**\
-`Why the Glazers handed control to Ratcliffe, how involved they remain in the club's running and what they're planning to do next`\
-https://nytimes.com/athletic/6339593/2025/05/12/glazers-manchester-united-ratcliffe/
 
