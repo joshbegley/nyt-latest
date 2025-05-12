@@ -1,3 +1,35 @@
+**What a flat performance against Brighton should mean for Wolves' summer plans**\
+`A rare underwhelming display under Vitor Pereira helpfully illustrated many of the issues he needs to fix in the summer transfer window`\
+https://nytimes.com/athletic/6346557/2025/05/12/wolves-summer-2025-squad-plans-brighton/
+
+**Brighton's route back into Europe - and how Palace, of alll people, can spoil the party**\
+`Breaking down the permutations as the upper mid-table battle between Brighton, Brentford and Bournemouth intensifies `\
+https://nytimes.com/athletic/6346457/2025/05/12/brighton-european-football-route-wolves/
+
+**Nuno, Marinakis and the day it felt Forest let Champions League football slip away**\
+`Forest have secured European qualification for the first time in 30 years, but Sunday's draw didn't feel like a celebration`\
+https://nytimes.com/athletic/6348003/2025/05/12/marinakis-nuno-nottingham-forest/
+
+**Arsenal showed character. It was essential for them and Arteta they didn't crumble**\
+`Arsenal showed that, while they may be bruised, they are not willing to accept they are second best to anyone`\
+https://nytimes.com/athletic/6347671/2025/05/12/arsenal-liverpool-arteta-anfield/
+
+**Could an afternoon in the Fulham sunshine have extended several Everton careers?**\
+`Saturday's win at least gives some of those playing for their futures a fighting chance of being part of the next chapter at Everton`\
+https://nytimes.com/athletic/6346663/2025/05/12/everton-squad-new-contracts-fulham/
+
+**Ollie Watkins is now Villa's record Premier League goalscorer - here's why it matters**\
+`Reaching 75 Premier League goals for Villa is a moment to celebrate the 29-year-old striker - and reflect on his importance`\
+https://nytimes.com/athletic/6280620/2025/05/12/ollie-watkins-is-aston-villas-all-time-premier-league-top-goalscorer-heres-why-it-matters/
+
+**Buonanotte's goal provides Leicester's fans with one bright moment in a miserable season**\
+`The Argentinian's well-taken finish, after some great work by Jamie Vardy, provided much-needed joy for the club's travelling supporters`\
+https://nytimes.com/athletic/6347806/2025/05/12/leicester-forest-buonanotte-supporters/
+
+**How Graham Potter watches football**\
+`Ninety minutes observing the West Ham manager can tell you a lot about his coaching style, tactical instincts and general demeanour`\
+https://nytimes.com/athletic/6348027/2025/05/12/how-graham-potter-watches-football/
+
 **Joseph Woll looks back to his best in the Maple Leafs' net — and just in time**\
 `Despite the final scoreline, Joseph Woll pulled off one of his best performances in his playoffs career with his mother in the audience.`\
 https://nytimes.com/athletic/6348975/2025/05/12/joseph-woll-maple-leafs-nhl-playoffs-game-4/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6348975/2025/05/12/joseph-woll-maple-leafs-nhl-play
 **United need positive momentum before Europa League final, but they are hobbled by indecision**\
 `United's players should be fighting to be picked for that final but against West Ham it was just more of this same historically bad season`\
 https://nytimes.com/athletic/6341774/2025/05/12/manchester-united-west-ham-europa/
-
-**Dejan Kulusevski's injury hits Tottenham where it hurts – they need him back for the Europa League final**\
-`Postecoglou says the Sweden international 'should be OK' for the season-defining game against Manchester United`\
-https://nytimes.com/athletic/6347846/2025/05/12/dejan-kulusevski-tottenham-injury-europa-league/
-
-**The Briefing: Liverpool fans turn on Alexander-Arnold, and who's been worse: Man United or Tottenham?**\
-`Man United and Tottenham occupy 16th and 17th in the Premier League and Alexander-Arnold was booed by his own fans at Anfield`\
-https://nytimes.com/athletic/6348170/2025/05/12/alexander-arnold-booing-marinakis-nuno-man-united-tottenham-lose/
-
-**Madrid: Four Clasicos, four defeats and big changes ahead – not just Ancelotti**\
-`Ancelotti's departure is expected to be announced this week and he won't be the only one on the move`\
-https://nytimes.com/athletic/6348248/2025/05/12/real-madrid-clasico-ancelotti-changes/
-
-**Postecoglou to Wrexham, Guardiola to Saudi and Frank upstairs? Predicting each Premier League manager's next job**\
-`Working out where each top-flight head coach is likely to end up next is not necessarily an easy exercise, but Tim Spiers gave it a go`\
-https://nytimes.com/athletic/6336639/2025/05/12/managers-premier-league-next-job/
-
-**Crystal Palace can beat Manchester City in the FA Cup final - this is how**\
-`Oliver Glasner's side out-classed Tottenham to ensure they go into the showpiece at Wembley with momentum, belief and a system that purrs`\
-https://nytimes.com/athletic/6335761/2025/05/12/crystal-palace-manchester-city-fa-cup-tottenham-munoz/
-
-**Can More Military Spending Revive an Economy? This British Town Hopes So.**\
-`Britain is spending billions of pounds more on defense, but wants the money to go beyond nuclear submarines to improve local jobs and prosperity. Barrow-in-Furness may be the model.`\
-https://nytimes.com/2025/05/12/business/uk-military-spending-economy.html
-
-**Connections: Sports Edition Coach: Hints for May 12, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6348887/2025/05/12/connections-sports-edition-hints-for-may-12-2025/
-
-**Quote of the Day: Time at ESPN Revives and Informs Mullen in Return to Coaching**\
-`Quotation of the Day for Monday, May 12, 2025.`\
-https://nytimes.com/2025/05/11/pageoneplus/quote-of-the-day-time-at-espn-revives-and-informs-mullen-in-return-to-coaching.html
 
