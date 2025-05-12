@@ -1,3 +1,7 @@
+**‘Clock Is Ticking’: E.U. Leaders Demand Russia Accept Truce by Day’s End**\
+`The Kremlin brushed off the threat of further sanctions, saying that “the language of ultimatums is unacceptable.”`\
+https://nytimes.com/2025/05/12/world/europe/russia-ukraine-putin-ceasefire.html
+
 **Irvine 'disappointed' by men’s football's reaction to English ban on transgender women**\
 `Earlier this month, the FA announced a ban on transgender women playing women’s football from June 1.`\
 https://nytimes.com/athletic/6349706/2025/05/12/irvine-fa-transgender-ban-women/
