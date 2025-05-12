@@ -1,3 +1,11 @@
+**Flamingos Summon Mini-Twisters to Suck Up Prey**\
+`Three cooperative birds and a model bird head helped scientists figure out what flamingos are actually doing when they stick their heads upside down underwater.`\
+https://nytimes.com/2025/05/12/science/flamingo-vortex-beaks-water.html
+
+**Submit your questions for Mitch Bannon’s first Blue Jays mailbag**\
+`<p>It&#8217;s May 12 and the Blue Jays have won as many games as they have lost.`\
+https://nytimes.com/athletic/6350792/2025/05/12/blue-jays-mailbag-submit-questions/
+
 **Trump Family Bitcoin Company Announces Plan to Go Public**\
 `American Bitcoin, a cryptocurrency firm co-founded by Eric Trump, said it was merging with a company traded on the Nasdaq, the latest expansion of the family’s investments in crypto.`\
 https://nytimes.com/2025/05/12/business/trump-american-bitcoin-crypto.html
