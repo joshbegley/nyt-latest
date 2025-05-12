@@ -1,3 +1,11 @@
+**Ottawa-Montreal Game 2 goes to 4 OTs, breaks PWHL record for longest game**\
+`Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
+https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
+
+**Rockies (7-33) fire Bud Black, name Warren Schaeffer interim manager**\
+`Third-base coach Warren Schaeffer is now the interim manager, and hitting coach Clint Hurdle will serve as the interim bench coach.`\
+https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
+
 **Ottawa-Montreal Game 2 goes to 4OT, breaks PWHL record for longest game**\
 `Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
 https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
