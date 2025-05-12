@@ -1,3 +1,7 @@
+**Hollywood Groups Call for Tax Changes After Trump’s Tariff Threat**\
+`“Returning more production to the United States will require a national approach and broad-based policy solutions,” the groups said in a letter  to the White House.`\
+https://nytimes.com/2025/05/12/business/media/trump-tariffs-movies-hollywood.html
+
 **Sheffield United book place in play-off final with 3-0 win over Bristol City**\
 `United entered Monday’s game with a sizeable advantage after their 3-0 first leg victory at Ashton Gate last Thursday.`\
 https://nytimes.com/athletic/6350982/2025/05/12/sheffield-united-playoff-championship-bristol-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/business/economy/trump-trade-china-tariffs.html
 **Trump Administration to Fast-Track Permits for Utah Uranium Mine**\
 `An environmental review of the project, known as Velvet-Wood, would normally take roughly a year. The government says it will complete the process in two weeks.`\
 https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
-
-**Scoop City: What's happened at rookie minicamps, what's next for Saints**\
-`Inside: Who stood out at rookie minicamp, the future of Justin Fields and the surprising retirement of Derek Carr.`\
-https://nytimes.com/athletic/6350773/2025/05/12/nfl-rookie-minicamp-takeaways-may-2025-scoop-city/
 

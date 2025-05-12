@@ -1,3 +1,7 @@
+**Browns' Owusu-Koramoah will miss season, career could be in jeopardy**\
+`Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
+https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
+
 **Sheffield United book place in play-off final with 3-0 win over Bristol City**\
 `United entered Monday’s game with a sizeable advantage after their 3-0 first leg victory at Ashton Gate last Thursday.`\
 https://nytimes.com/athletic/6350982/2025/05/12/sheffield-united-playoff-championship-bristol-city/
