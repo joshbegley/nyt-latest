@@ -1,3 +1,11 @@
+**Forest's Awoniyi set to have surgery on abdominal injury**\
+`The Nigerian international sustained the injury late in the 2-2 draw at the City Ground, after colliding with the post.`\
+https://nytimes.com/athletic/6351169/2025/05/12/nottingham-forest-awoniyi-injury-surgery/
+
+**The F.D.A. Has Approved Three ‘Natural’ Food Colorings**\
+`Here is what we know about their safety and how they’ll be used.`\
+https://nytimes.com/2025/05/12/well/eat/fda-natural-food-colorings-galdieria-extract-blue-butterfly-pea-flower-extract-calcium-phosphate.html
+
 **Energy Department to Repeal Efficiency Rules for Appliances**\
 `Experts say the moves, which would apply to household appliances, will raise energy costs for consumers.`\
 https://nytimes.com/2025/05/12/climate/energy-effiency-programs-department-of-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/business/economy/trump-china-trade-shipments.html
 **'I've failed him at times': Rich Bisaccia reflects as Packers coordinators discuss team**\
 `Packers special teams coordinator Rich Bisaccia, defensive coordinator Jeff Hafley and offensive coordinator Adam Stenavich spoke Monday.`\
 https://nytimes.com/athletic/6350948/2025/05/12/green-bay-packers-coordinators-bisaccia-hafley-stevanich/
-
-**As White House Steers Justice Dept., Bondi Embraces Role of TV Messenger**\
-`Attorney General Pam Bondi has adopted a conspicuously performative approach, willing to execute White House directives with little fuss.`\
-https://nytimes.com/2025/05/12/us/politics/pam-bondi-trump-justice-dept.html
-
-**Midwest Grapples With Wildfires Amid Record Heat and Dry Conditions**\
-`A large swath of Minnesota, Wisconsin, the Dakotas and Nebraska was on high alert on Monday. Temperatures were expected to approach 100 degrees in some places.`\
-https://nytimes.com/2025/05/12/us/wildfires-midwest-heat.html
 

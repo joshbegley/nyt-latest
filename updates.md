@@ -1,3 +1,11 @@
+**Forest's Awoniyi set to have surgery on abdominal injury**\
+`The Nigerian international sustained the injury late in the 2-2 draw at the City Ground, after colliding with the post.`\
+https://nytimes.com/athletic/6351169/2025/05/12/nottingham-forest-awoniyi-injury-surgery/
+
+**The F.D.A. Has Approved Three ‘Natural’ Food Colorings**\
+`Here is what we know about their safety and how they’ll be used.`\
+https://nytimes.com/2025/05/12/well/eat/fda-natural-food-colorings-galdieria-extract-blue-butterfly-pea-flower-extract-calcium-phosphate.html
+
 **Energy Department to Repeal Efficiency Rules for Appliances**\
 `Experts say the moves, which would apply to household appliances, will raise energy costs for consumers.`\
 https://nytimes.com/2025/05/12/climate/energy-effiency-programs-department-of-energy.html
