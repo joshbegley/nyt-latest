@@ -1,3 +1,7 @@
+**What to Do When You Have a Pimple Emergency**\
+`Expert advice on dealing with breakouts from the artist SZA, the dermatologist David Kim and the aesthetician Tiara Willis.`\
+https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.html
+
 **The testimony of one woman who has accused Combs is up in the air.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/style/stacy-london-what-not-wear.html
 **The office prosecuting Sean Combs is led by an interim Trump appointee.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/jay-clayton-prosecutors
-
-**Top Justice Dept. Official Is Now Also Acting Librarian of Congress**\
-`After firing the head of the Library of Congress, the president put his former personal lawyer, Todd Blanche, in charge of the facility.`\
-https://nytimes.com/2025/05/12/us/politics/trump-blanche-attorney-general-librarian-congress.html
 
