@@ -1,41 +1,41 @@
-**Airport Chaos**\
-`It’s been a scary few months for American air travel. How did we get here?`\
-https://nytimes.com/2025/05/12/briefing/air-travel-newark-chaos.html
+**How Max Verstappen is saving F1 2025 from one-team domination dullness**\
+`The McLaren F1 team is dominating the 2025 season. Its main opposition is the relentless reigning world champion, Max Verstappen`\
+https://nytimes.com/athletic/6336997/2025/05/12/max-verstappen-red-bull-mclaren-f1-2025/
 
-**Diaz says he wants to stay at Liverpool for 'as long as possible'**\
-`Diaz, who has scored 46 goals for Liverpool since his January 2022 arrival from Porto, has a contract at Anfield through to 2027.`\
-https://nytimes.com/athletic/6349349/2025/05/12/luis-diaz-liverpool-future/
+**Twins' first-quarter MVPs? Byron Buxton and Harrison Bader, the catch-everything outfield duo**\
+`Bader was signed to be Buxton insurance, but the two Gold Glove Award-winning center fielders have thrived playing next to each other.`\
+https://nytimes.com/athletic/6344288/2025/05/12/twins-first-quarter-mvps-byron-buxton-harrison-bader/
 
-**Who Is Edan Alexander?**\
-`Hamas said it would release the American Israeli national, who was serving in the Israeli Army when he was captured on Oct. 7, 2023.`\
-https://nytimes.com/2025/05/12/world/middleeast/edan-alexander-hamas-american-hostage-who-is.html
+**Rosenthal: The Red Sox should just let Rafael Devers DH and figure out the rest themselves**\
+`By asking Devers to switch positions for a second time, the Sox have put him in a lose-lose situation.`\
+https://nytimes.com/athletic/6348920/2025/05/12/rafael-devers-red-sox-alex-cora-craig-breslow/
 
-**The Pulse: An NBA titan looks sunk**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6348706/2025/05/12/pacers-cavs-nba-playoffs-the-pulse/
+**From 'of course' to 'f---, no': NHL goalies on whether they could have made it as skaters**\
+`We asked nine NHLers, including playoff goalies Jake Oettinger, Stuart Skinner, Calvin Pickard and Adin Hill, if they could have played out.`\
+https://nytimes.com/athletic/6343061/2025/05/12/nhl-goalie-poll-skaters/
 
-**In India and Pakistan, Signs of Normalcy After Weekend Cease-Fire**\
-`Civilian flights were returning to normal, and stocks jumped in both nations, signs of confidence that the agreement to halt fighting was holding.`\
-https://nytimes.com/2025/05/12/world/asia/india-pakistan-cease-fire-extended.html
+**Revisiting oddly specific NHL predictions: The right and mostly wrong (but maybe right?)**\
+`Sean McIndoe holds himself accountable by going through each and every NHL prediction he made at the start of the season. How did he do?`\
+https://nytimes.com/athletic/6346348/2025/05/12/nhl-predictions-2024-25-oddly-specific/
 
-**Seven Phillies stats that help explain the good and bad through 40 games in 2025**\
-`The Phillies reached the quarter mark of the season with MLB's fifth-best record. Here are seven numbers of note from the first 40 games. `\
-https://nytimes.com/athletic/6348913/2025/05/12/phillies-stats-first-40-games-2025/
+**Van Dijk says Alexander-Arnold's Liverpool exit won't overshadow title celebrations**\
+`"The reaction happened. He has to deal with it. But I think maybe he expected this," Van Dijk said after the right-back was booed on Sunday.`\
+https://nytimes.com/athletic/6349420/2025/05/12/van-dijk-alexander-arnold-liverpool/
 
-**Rockets, Ime Udoka put playoff disappointment aside to focus on critical offseason**\
-`"Everyone’s goal is to be better and come back better," Rockets coach Ime Udoka said of the offseason.`\
-https://nytimes.com/athletic/6346932/2025/05/12/rockets-ime-udoka-amen-thompson-offseason/
+**The Knicks didn't change their pick-and-roll defense in Game 3; they just played worse**\
+`Game 3 looked a lot different from Games 1 and 2 in this series. Should New York adjust its strategy for Game 4?`\
+https://nytimes.com/athletic/6348570/2025/05/12/celtics-knicks-pick-and-roll-defense-nba-playoffs/
 
-**Do Ravens need Jadeveon Clowney? It depends on how they view their young edge rushers**\
-`Clowney had one of his best seasons with Baltimore in 2023, tying a career high with 9.5 sacks and playing a disruptive brand of football.`\
-https://nytimes.com/athletic/6345903/2025/05/12/ravens-edge-rushers-jadeveon-clowney/
-
-**Draymond Green said what many Black people feel. But then he missed the point**\
-`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+**Pronman: A case for (and against) picking the top forward prospects in 2025 draft**\
+`This draft class boasts a deep pool of high-end forwards, with a few arguments for which one is the best of the bunch.
 `\
-https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
+https://nytimes.com/athletic/6337434/2025/05/12/nhl-draft-2025-top-forwards-prospects/
 
-**NBA Draft: John Hollinger's top prospects, including Flagg, Harper and more**\
-`The top tiers of players are about what you would expect, but after those names, things get weird.`\
-https://nytimes.com/athletic/6344540/2025/05/12/nba-draft-2025-prospects-cooper-flagg-dylan-harper/
+**Hungry to prove himself and happy to be a Golden Knight, Reilly Smith seized the opportunity**\
+`Playing with good friends in a city and on a team that feels like home where he’s already won a Cup has brought the best out of Smith.`\
+https://nytimes.com/athletic/6348469/2025/05/12/reilly-smith-golden-knights-nhl-playoffs/
+
+**Three Blue Jays takeaways: Vintage George Springer, Addison Barger’s new chill and more**\
+`Springer hit a three-run homer, six different Blue Jays drove in runs, and Toronto completed a three-game sweep in Seattle.`\
+https://nytimes.com/athletic/6348640/2025/05/12/blue-jays-takeaways-george-springer-addison-barger/
 
