@@ -1,8 +1,28 @@
+**Avelo Airlines Faces Backlash for Aiding Trump’s Deportation Campaign**\
+`The company, which serves airports in liberal cities on the coasts, has agreed to operate chartered flights for Immigration and Customs Enforcement.`\
+https://nytimes.com/2025/05/12/business/trump-deportation-flights-avelo-airlines.html
+
+**Bettors are looking for divine intervention, wagering on new Pope's hometown teams**\
+`Max Meyer spoke to sportsbooks to discuss how bettors are wagering on the new Pope's hometown teams.`\
+https://nytimes.com/athletic/6349680/2025/05/12/pope-chicago-betting-bears-cubs-villanova-odds/
+
+**Welcome to Wrexham series 4 review: Birmingham rivalry, potty mouths and things get serious**\
+`The latest instalment of the hugely popular series charts the club's ultimately successful League One season – here's what to expect`\
+https://nytimes.com/athletic/6308634/2025/05/12/welcome-to-wrexham-series-4-review/
+
+**USMNT Player Tracker: PSV's Americans on the charge as Pulisic targets top four**\
+`Our roundup of the weekend action also includes Chris Richards' latest impressive performance and Weston McKennie's contribution at Juventus`\
+https://nytimes.com/athletic/6349876/2025/05/12/usmnt-pulisic-psv-mckennie-tracker/
+
+**Postecoglou: A Spurs Europa win could be ‘turning point’ in how club sees itself**\
+`Spurs, whose last trophy came in 2008, face Manchester United in the Europa League final on May 21 in Bilbao.`\
+https://nytimes.com/athletic/6350166/2025/05/12/ange-postecoglou-tottenham-europa-league/
+
 **Michael Jordan to be 'special contributor' during NBC's NBA coverage**\
 `The specifics of Jordan's role — and whether it goes beyond perfunctory appearances — will be detailed at a later date.`\
 https://nytimes.com/athletic/6350144/2025/05/12/michael-jordan-nba-nbc-coverage-media/
 
-**Trump, Pressed on Qatari Jet, Says Only ‘Stupid’ People Reject Free Gifts**\
+**Trump, Pressed on Qatari Jet, Says Only ‘Stupid’ People Reject Gifts**\
 `The president grew angry when questioned about the ethical implications of accepting a luxury jetliner from a foreign government.`\
 https://nytimes.com/2025/05/12/us/politics/trump-qatar-plane-jet.html
 
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-prosecution-
 **Looking for Belichick’s Girlfriend? Try a Beauty Pageant in Maine.**\
 `Jordon Hudson’s relationship with Bill Belichick has caused quite a stir, and it brought a huge amount of attention to the Miss Maine USA contest this weekend.`\
 https://nytimes.com/2025/05/12/style/jordon-hudson-bill-belichick-miss-maine-pageant.html
-
-**Diamondbacks to call up top prospect Lawlar: 'Felt like he was ready'**\
-`In 37 games with the Triple-A Reno Aces, the 22-year-old slashed .336/.413/.579 with 15 doubles, 31 RBI and 13 stolen bases.`\
-https://nytimes.com/athletic/6349847/2025/05/12/diamondbacks-jordan-lawlar-call-up/
-
-**Bengals mock schedule: What Cincinnati is monitoring and outlining best, worst scenarios**\
-`Last season was littered with prime-time road games and it would be optimal for Cincinnati to avoid a repeat of that schedule.`\
-https://nytimes.com/athletic/6349806/2025/05/12/cincinnati-bengals-mock-schedule-2025/
-
-**NWSL must learn from its decision to continue play after Angel City's Savy King collapsed**\
-`The level of pushback over the continuation of Friday’s game should prompt a review of policy. Player health is the priority.`\
-https://nytimes.com/athletic/6350029/2025/05/12/nwsl-soccer-savy-king-angel-city/
-
-**Cuomo Loses $622,000 in Campaign Funds for Coordinating With Super PAC**\
-`The New York City Campaign Finance Board withheld the funds after concluding that former Gov. Andrew M. Cuomo likely coordinated ad language with a super PAC.`\
-https://nytimes.com/2025/05/12/nyregion/cuomo-denied-matching-funds.html
-
-**Shoreham Airshow disaster pilot's license appeal rejected after crash that killed two team-mates**\
-`The mother of a Brighton & Hove Albion fan killed in the airshow disaster ten years ago has expressed her relief.`\
-https://nytimes.com/athletic/6349667/2025/05/12/shoreham-airshow-disaster-pilot-license-appeal/
 
