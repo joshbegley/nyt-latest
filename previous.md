@@ -1,3 +1,11 @@
+**Takeaways from the Giants getting swept out of Minnesota**\
+`Offering thoughts and tidbits from a weekend series that the Giants and their fans would do well to forget.`\
+https://nytimes.com/athletic/6347887/2025/05/12/giants-takeaways-swept-by-twins/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/05/12/briefing/china-trade-pakistan-vatican.html
+
 **Newcastle are tuned in, focused, strong - this is an elite team at work**\
 `The Champions League is tantalisingly close after Eddie Howe's side maintained their hold over the traditional 'Big Six' at St James' Park`\
 https://nytimes.com/athletic/6347644/2025/05/12/newcastle-2-chelsea-0-analysis-tonali/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6347671/2025/05/12/arsenal-liverpool-arteta-anfield
 **Could an afternoon in the Fulham sunshine have extended several Everton careers?**\
 `Saturday's win at least gives some of those playing for their futures a fighting chance of being part of the next chapter at Everton`\
 https://nytimes.com/athletic/6346663/2025/05/12/everton-squad-new-contracts-fulham/
-
-**Ollie Watkins is now Villa's record Premier League goalscorer - here's why it matters**\
-`Reaching 75 Premier League goals for Villa is a moment to celebrate the 29-year-old striker - and reflect on his importance`\
-https://nytimes.com/athletic/6280620/2025/05/12/ollie-watkins-is-aston-villas-all-time-premier-league-top-goalscorer-heres-why-it-matters/
-
-**Buonanotte's goal provides Leicester's fans with one bright moment in a miserable season**\
-`The Argentinian's well-taken finish, after some great work by Jamie Vardy, provided much-needed joy for the club's travelling supporters`\
-https://nytimes.com/athletic/6347806/2025/05/12/leicester-forest-buonanotte-supporters/
 

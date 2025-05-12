@@ -1,4 +1,4 @@
-**Takeaways from the Giants getting swept out of Minnesota**\
+**Takeaways from the Giants' getting swept out of Minnesota**\
 `Offering thoughts and tidbits from a weekend series that the Giants and their fans would do well to forget.`\
 https://nytimes.com/athletic/6347887/2025/05/12/giants-takeaways-swept-by-twins/
 
