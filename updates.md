@@ -1,7 +1,3 @@
-**‘Viva Papa Leo!’ At U.S. Masses, Dawn of Homegrown Pope Brings an Air of Electricity.**\
-`In Chicago, New Orleans and beyond, elated worshipers and priests celebrated their immediate sense of connection with Pope Leo.`\
-https://nytimes.com/2025/05/11/us/pope-leo-sunday-mass.html
-
 **Stars, Mikko Rantanen gain upper hand on Jets with Game 3 victory: Takeaways**\
 `The Stars scored three third-period goals to break a tie and earn a 5-2 win in Game 3 and a 2-1 series lead.`\
 https://nytimes.com/athletic/6348528/2025/05/11/nhl-playoffs-stars-jets-game-3/
@@ -22,7 +18,7 @@ https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
 `The win moves Straka up to No. 2 in the FedEx Cup standings behind only Rory McIlroy.`\
 https://nytimes.com/athletic/6348461/2025/05/11/sepp-straka-truist-championship-pga-tour-win/
 
-**NBA playoffs takeaways: Thunder outplay Nuggets down stretch, tie series**\
+**NBA playoffs takeaways: Thunder outplays Nuggets down stretch, ties series**\
 `The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
 https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
 
@@ -37,4 +33,8 @@ https://nytimes.com/2025/05/11/crosswords/daily-puzzle-2025-05-12.html
 **Mets takeaways: Francisco Lindor's leadership, Brett Baty's burst and more**\
 `Lindor thought of his wife and mom after homering on Mother’s Day, but he also took inspiration from a recent failure.`\
 https://nytimes.com/athletic/6348327/2025/05/11/mets-francisco-lindor-brett-baty-mark-vientos/
+
+**Families of Sept. 11 Victims Urge Lutnick to Help Extradite Saudi National**\
+`The letter comes as the commerce secretary plans to accompany President Trump to Saudi Arabia this week as part of a weeklong trip to the Middle East.`\
+https://nytimes.com/2025/05/11/us/politics/sept-11-lutnick-saudi-extradition.html
 
