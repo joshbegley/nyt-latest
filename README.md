@@ -1,3 +1,11 @@
+**Pacers' Bennedict Mathurin ejected for hitting Cavs' De'Andre Hunter**\
+`Pacers lead the series 2-1 after stealing a pair of games in Cleveland.`\
+https://nytimes.com/athletic/6348701/2025/05/11/pacers-bennedict-mathurin-ejected-deandre-hunter/
+
+**Asia Stocks Rise on Hope for Lower Tariffs After U.S.-China Talks**\
+`Investors were optimistic after American officials touted progress in trade negotiations over the weekend, though details had yet to be released.`\
+https://nytimes.com/2025/05/11/business/us-china-trade-stock-market.html
+
 **Trump Plan Would Tie Some Drug Prices to What Peer Nations Pay**\
 `The president announced an executive order aimed at lowering U.S. drug costs, revisiting an idea that was blocked in court during his first term.`\
 https://nytimes.com/2025/05/11/us/drug-prices-executive-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/11/podcasts/fear-of-sleep-this-american-life-nyt-aud
 **From a Cell in Europe, Duterte Is Set to Win an Election in the Philippines**\
 `Former President Rodrigo Duterte, who faces international court charges of crimes against humanity, remains very popular at home.`\
 https://nytimes.com/2025/05/11/world/asia/duterte-davao-mayor-election.html
-
-**‘Viva Papa Leo!’ At U.S. Masses, Dawn of Homegrown Pope Brings an Air of Electricity.**\
-`In Chicago, New Orleans and beyond, elated worshipers and priests celebrated their immediate sense of connection with Pope Leo.`\
-https://nytimes.com/2025/05/11/us/pope-leo-sunday-mass.html
-
-**Stars, Mikko Rantanen gain upper hand on Jets with Game 3 victory: Takeaways**\
-`The Stars scored three third-period goals to break a tie and earn a 5-2 win in Game 3 and a 2-1 series lead.`\
-https://nytimes.com/athletic/6348528/2025/05/11/nhl-playoffs-stars-jets-game-3/
 
