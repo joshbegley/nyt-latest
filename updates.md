@@ -1,3 +1,15 @@
+**As White House Steers Justice Dept., Bondi Embraces Role of TV Messenger**\
+`Attorney General Pam Bondi has adopted a conspicuously performative approach, willing to execute White House directives with little fuss.`\
+https://nytimes.com/2025/05/12/us/politics/pam-bondi-trump-justice-dept.html
+
+**Midwest Grapples With Wildfires Amid Record Heat and Dry Conditions**\
+`A large swath of Minnesota, Wisconsin, the Dakotas and Nebraska was on high alert on Monday. Temperatures were expected to approach 100 degrees in some places.`\
+https://nytimes.com/2025/05/12/us/wildfires-midwest-heat.html
+
+**Hollywood Groups Call for Tax Changes After Trump’s Tariff Threat**\
+`“Returning more production to the United States will require a national approach and broad-based policy solutions,” the groups said in a letter  to the White House.`\
+https://nytimes.com/2025/05/12/business/media/trump-tariffs-movies-hollywood.html
+
 **Browns' Owusu-Koramoah will miss season, career could be in jeopardy**\
 `Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
 https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
