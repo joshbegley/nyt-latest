@@ -1,3 +1,11 @@
+**What to Do When You Have a Pimple Emergency**\
+`Expert advice on dealing with breakouts from the artist SZA, the dermatologist David Kim and the aesthetician Tiara Willis.`\
+https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.html
+
+**Air Traffic Staffing Shortage Forces Delays at Newark Airport**\
+`The delays are the latest problem to plague the airport, where radar and radio communications have recently malfunctioned.`\
+https://nytimes.com/2025/05/12/business/newark-airport-delays-staffing-shortage.html
+
 **The testimony of one woman who has accused Combs is up in the air.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
