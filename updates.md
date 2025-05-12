@@ -1,3 +1,11 @@
+**Newsom to Ask Cities to Ban Homeless Encampments, Escalating Crackdown**\
+`“There are no more excuses,” the California governor said in pushing for municipalities to address one of the most visible byproducts of homelessness.`\
+https://nytimes.com/2025/05/12/us/newsom-california-homeless-encampments.html
+
+**No Corrections: May 12, 2025**\
+`No corrections appeared in print on Monday, May 12, 2025.`\
+https://nytimes.com/2025/05/12/pageoneplus/no-corrections-may-12-2025.html
+
 **Rich Eisen's show to move to ESPN, marking his return 22 years after departure**\
 `Eisen, who left ESPN for NFL Network in 2003, will remain the featured host on NFLN's “GameDay” and its draft coverage.`\
 https://nytimes.com/athletic/6349583/2025/05/12/rich-eisen-show-espn-return/
