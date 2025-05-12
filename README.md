@@ -1,3 +1,7 @@
+**Which NHL team has the best local broadcast in 2025? Vote now for your favorites**\
+`We’re inviting you to rank your favorite team’s broadcast on a scale from 1 to 5.`\
+https://nytimes.com/athletic/6338525/2025/05/12/nhl-local-broadcast-survey-2025/
+
 **Sailing to Hawaii, With a Cat and Minimal Experience**\
 `Oliver Widger and his cat, Phoenix, have become social media stars as they journey across the Pacific Ocean. They’re learning as they go.`\
 https://nytimes.com/2025/05/12/style/oliver-widger-tiktok-sailing-hawaii-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350460/2025/05/12/nhl-playoffs-stars-maple-leafs-r
 **Trump Signs Executive Order Asking Drugmakers to Slash Prices**\
 `President Trump’s executive order, which did not include specific legal mechanisms for lowering drug prices, was viewed as something of a win for the pharmaceutical industry.`\
 https://nytimes.com/video/us/politics/100000010164040/trump-executive-order-drug-prices.html
-
-**What to Do When You Have a Pimple Emergency**\
-`Expert advice on dealing with breakouts from the artist SZA, the dermatologist David Kim and the aesthetician Tiara Willis.`\
-https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.html
 
