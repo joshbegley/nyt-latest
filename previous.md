@@ -1,3 +1,11 @@
+**Submit your Flyers questions here for Kevin Kurz's mailbag**\
+`With the NHL Draft and free agency coming up, and the Flyers still without a coach, there are plenty of questions to be answered.`\
+https://nytimes.com/athletic/6350600/2025/05/12/flyers-offseason-roster-questions/
+
+**Listen: Is Crystal Palace the perfect environment for Eberechi Eze to thrive?**\
+`The Totally Football Show discusses Eberechi Eze’s standout performance against Spurs and whether he should be looking to move this summer.`\
+https://nytimes.com/athletic/6350216/2025/05/12/totally-football-show-eberechi-eze-crystal-palace/
+
 **Republicans Want Budget Cuts, but Not the Political Consequences**\
 `With a crucial week looming in the House, the G.O.P. is groping for ways to achieve savings without provoking a political backlash. It’s a little tricky.`\
 https://nytimes.com/2025/05/12/us/politics/republicans-budget-cuts-medicaid.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
 **Air Traffic Staffing Shortage Forces Delays at Newark Airport**\
 `The delays are the latest problem to plague the airport, where radar and radio communications have recently malfunctioned.`\
 https://nytimes.com/2025/05/12/business/newark-airport-delays-staffing-shortage.html
-
-**How to Make Leftovers Feel Like a Feast**\
-`Fatteh, a layered, adaptable dish popular across the Arab world, makes whatever you have on hand feel especially abundant.`\
-https://nytimes.com/2025/05/12/dining/eggplant-fatteh-leftovers-feast.html
-
-**Here are the charges against Sean Combs.**\
-`By Benjamin Weiser`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
 
