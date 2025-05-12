@@ -1,3 +1,7 @@
+**Trump Administration to Fast-Track Permits for Utah Uranium Mine**\
+`An environmental review of the project, known as Velvet-Wood, would normally take roughly a year. The government says it will complete the process in two weeks.`\
+https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
+
 **Scoop City: What's happened at rookie minicamps, what's next for Saints**\
 `Inside: Who stood out at rookie minicamp, the future of Justin Fields and the surprising retirement of Derek Carr.`\
 https://nytimes.com/athletic/6350773/2025/05/12/nfl-rookie-minicamp-takeaways-may-2025-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/business/media/fox-streaming-fox-one.html
 **Portland Thorns' Bella Bixby on returning to play after motherhood: 'It changes your body'**\
 `The NWSL’s new CBA gave Bixby a bit more confidence that having a family earlier in her career was possible.`\
 https://nytimes.com/athletic/6350601/2025/05/12/portland-thorns-bella-bixby-motherhood-returning-to-play/
-
-**Flamingos Summon Mini-Twisters to Suck Up Prey**\
-`Three cooperative birds and a model bird head helped scientists figure out what flamingos are actually doing when they stick their heads upside down underwater.`\
-https://nytimes.com/2025/05/12/science/flamingo-vortex-beaks-water.html
 
