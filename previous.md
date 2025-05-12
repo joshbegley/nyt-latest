@@ -27,13 +27,13 @@ https://nytimes.com/athletic/6349088/2025/05/12/auston-matthews-maple-leafs-scor
 `Everything is lining up for the Illini to make a move, but now they have to take advantage.`\
 https://nytimes.com/athletic/6344242/2025/05/12/illinois-football-bret-bielema-cfp/
 
-**A Vulnerable China Comes to the Table**\
-`The negotiations between China and the U.S. will have implications for a global economy rocked by President Trump’s tariffs.`\
-https://nytimes.com/2025/05/12/podcasts/the-daily/china-trump-trade-tariffs.html
-
 **WNBA preseason power rankings: Indiana Fever land outside top three ... for now**\
 `Will the Lynx challenge the Liberty again this season? Will the Aces return to the top? `\
 https://nytimes.com/athletic/6348438/2025/05/12/wnba-preseason-power-rankings-indiana-fever/
+
+**A Vulnerable China Comes to the Table**\
+`The negotiations between China and the U.S. will have implications for a global economy rocked by President Trump’s tariffs.`\
+https://nytimes.com/2025/05/12/podcasts/the-daily/china-trump-trade-tariffs.html
 
 **Great views and bad baseball: After brutal start, Colorado Rockies finally face a reckoning**\
 `The Rockies have traditionally been slow to change, even in bad times. But even this franchise, it seems, has a breaking point. `\

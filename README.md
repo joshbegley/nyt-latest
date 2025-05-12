@@ -1,3 +1,11 @@
+**In India and Pakistan, Signs of Normalcy After Weekend Cease-Fire**\
+`Civilian flights were returning to normal, and stocks jumped in both nations, signs of confidence that the agreement to halt fighting was holding.`\
+https://nytimes.com/2025/05/12/world/asia/india-pakistan-cease-fire-extended.html
+
+**Seven Phillies stats that help explain the good and bad through 40 games in 2025**\
+`The Phillies reached the quarter mark of the season with MLB's fifth-best record. Here are seven numbers of note from the first 40 games. `\
+https://nytimes.com/athletic/6348913/2025/05/12/phillies-stats-first-40-games-2025/
+
 **Rockets, Ime Udoka put playoff disappointment aside to focus on critical offseason**\
 `"Everyone’s goal is to be better and come back better," Rockets coach Ime Udoka said of the offseason.`\
 https://nytimes.com/athletic/6346932/2025/05/12/rockets-ime-udoka-amen-thompson-offseason/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6344242/2025/05/12/illinois-football-bret-bielema-c
 **WNBA preseason power rankings: Indiana Fever land outside top three ... for now**\
 `Will the Lynx challenge the Liberty again this season? Will the Aces return to the top? `\
 https://nytimes.com/athletic/6348438/2025/05/12/wnba-preseason-power-rankings-indiana-fever/
-
-**A Vulnerable China Comes to the Table**\
-`The negotiations between China and the U.S. will have implications for a global economy rocked by President Trump’s tariffs.`\
-https://nytimes.com/2025/05/12/podcasts/the-daily/china-trump-trade-tariffs.html
-
-**Great views and bad baseball: After brutal start, Colorado Rockies finally face a reckoning**\
-`The Rockies have traditionally been slow to change, even in bad times. But even this franchise, it seems, has a breaking point. `\
-https://nytimes.com/athletic/6348720/2025/05/12/colorado-rockies-bad-start-fire-manager/
 
