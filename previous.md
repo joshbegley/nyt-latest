@@ -1,3 +1,7 @@
+**The Athletic FC: All change at Real Madrid after Clasico defeat, LA Galaxy's black hole**\
+`Today in TAFC: The fallout from El Clasico as Barca win and Alonso prepares to step in at Real Madrid. Plus: Galaxy's record-breaking loss`\
+https://nytimes.com/athletic/6349289/2025/05/12/ancelotti-clasico-alonso-real-madrid/
+
 **How Logan Thompson is dominating the playoffs with smart reads and 'nth degree' competitiveness**\
 `Thompson has been perhaps the best goalie in the postseason, and he’s gotten there playing an unorthodox style built around his strengths.`\
 https://nytimes.com/athletic/6348854/2025/05/12/nhl-logan-thompson-capitals-playoffs/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6349420/2025/05/12/van-dijk-alexander-arnold-liverp
 **The Knicks didn't change their pick-and-roll defense in Game 3; they just played worse**\
 `Game 3 looked a lot different from Games 1 and 2 in this series. Should New York adjust its strategy for Game 4?`\
 https://nytimes.com/athletic/6348570/2025/05/12/celtics-knicks-pick-and-roll-defense-nba-playoffs/
-
-**Pronman: A case for (and against) picking the top forward prospects in 2025 draft**\
-`This draft class boasts a deep pool of high-end forwards, with a few arguments for which one is the best of the bunch.
-`\
-https://nytimes.com/athletic/6337434/2025/05/12/nhl-draft-2025-top-forwards-prospects/
 

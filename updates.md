@@ -1,3 +1,7 @@
+**The Athletic FC: All change at Real Madrid after Clasico defeat, LA Galaxy's black hole**\
+`Today in TAFC: The fallout from El Clasico as Barca win and Alonso prepares to step in at Real Madrid. Plus: Galaxy's record-breaking loss`\
+https://nytimes.com/athletic/6349289/2025/05/12/ancelotti-clasico-alonso-real-madrid/
+
 **How Logan Thompson is dominating the playoffs with smart reads and 'nth degree' competitiveness**\
 `Thompson has been perhaps the best goalie in the postseason, and he’s gotten there playing an unorthodox style built around his strengths.`\
 https://nytimes.com/athletic/6348854/2025/05/12/nhl-logan-thompson-capitals-playoffs/
