@@ -1,3 +1,15 @@
+**Stardom in the Ring, but an Early Death**\
+`The causes are varied, but many well-known wrestlers have died young.`\
+https://nytimes.com/2025/05/12/sports/wrestlers-died-young-andre-the-giant.html
+
+**Ancelotti signs Brazil contract, will start this month**\
+`The Italian will leave Real Madrid after their final La Liga game of the season against Real Sociedad.`\
+https://nytimes.com/athletic/6335544/2025/05/12/carlo-ancelotti-brazil-real-madrid-exit/
+
+**College baseball week in review: Missouri — yes, Missouri sweeps Texas A&M!**\
+`It was a tough weekend for two potential Big 12 hosts. Mississippi State, Vanderbilt win heated in-state rivalries. `\
+https://nytimes.com/athletic/6348820/2025/05/12/college-baseball-missour-texas-am-lsu-arkansas/
+
 **Newsom to Ask Cities to Ban Homeless Encampments, Escalating Crackdown**\
 `“There are no more excuses,” the California governor said in pushing for municipalities to address one of the most visible byproducts of homelessness.`\
 https://nytimes.com/2025/05/12/us/newsom-california-homeless-encampments.html
