@@ -1,3 +1,19 @@
+**Can You Match These Famous Quotes to Their Novels?**\
+`Certain lines in classic novels stand out. See how many you remember in this short quiz.`\
+https://nytimes.com/interactive/2025/05/12/books/review/book-quotations-quiz.html
+
+**Crispy Cheese, Yes Please**\
+`Crispy halloumi, specifically, nestled into blistered cherry tomatoes and velvety white beans for a speedy one-pan supper.`\
+https://nytimes.com/2025/05/12/dining/halloumi-recipe-tomatoes-white-beans.html
+
+**La Scala Taps South Korean Maestro as Music Director**\
+`Myung-whun Chung will be the first Asian, and one of the first conductors born outside Italy, to serve as music director in the opera house’s 247-year history.`\
+https://nytimes.com/2025/05/12/arts/music/la-scala-music-director-myung-whun-chung.html
+
+**Staple: Does anyone want to be an Islanders exec? What I'm hearing about a fraught search**\
+`Could Lou Lamoriello stay on in some capacity after all? What would that mean for a new Isles GM? The situation is getting murkier.`\
+https://nytimes.com/athletic/6349690/2025/05/12/islanders-gm-president-search/
+
 **Watch: Which team needs to win the NBA Draft Lottery the most?**\
 `"The Athletic NBA Daily" discussed the upcoming draft lottery and which team most needs to land the No. 1 pick.`\
 https://nytimes.com/athletic/6349597/2025/05/12/nba-daily-draft-lottery-winners/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6349721/2025/05/12/cavaliers-pacers-tyrese-haliburt
 **Twelve jurors and six alternates were sworn in.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/twelve-jurors-and-six-alternates-were-sworn-in
-
-**A gap year for Giannis? How the Bucks could pitch their two-time MVP on a brighter future**\
-`Most single-franchise greats have experienced years where title expectations are lower, but great personal achievements are within reach.`\
-https://nytimes.com/athletic/6342107/2025/05/12/giannis-milwaukee-bucks-mvp/
-
-**Pope Leo XIV Reiterates Call for Peace in First Address to Journalists**\
-`The first American pontiff also urged reporters to choose “the path of a communication of peace” in his first address to news media as the leader of the Catholic Church.`\
-https://nytimes.com/video/world/europe/100000010163426/pope-leo-xiv-first-address-to-journalists.html
-
-**What Sidney Crosby playing at Worlds means to Canada: 'It's so huge'**\
-`Canadian Olympic coach Jon Cooper: "Just imagine the effect it's going to have on a 19- and 20-year-old; it's unparalleled."`\
-https://nytimes.com/athletic/6349436/2025/05/12/sidney-crosby-world-championship-canada/
-
-**‘Clock Is Ticking’: E.U. Leaders Demand Russia Accept Truce by Day’s End**\
-`The Kremlin brushed off the threat of further sanctions, saying that “the language of ultimatums is unacceptable.”`\
-https://nytimes.com/2025/05/12/world/europe/russia-ukraine-putin-ceasefire.html
 
