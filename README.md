@@ -1,3 +1,7 @@
+**For Nuggets to advance, Nikola Jokić needs to do a 'better job'**\
+`After a monster Game 1 performance, Jokić hasn't quite figured out OKC. For Denver's sake, it's vital that he does.`\
+https://nytimes.com/athletic/6348465/2025/05/11/nikola-jokic-knows-he-needs-to-do-a-better-job-if-nuggets-want-to-get-past-thunder/
+
 **Cardinals takeaways: Pitching, offense continue to surge as winning streak hits 8**\
 `The red-hot Cardinals hope their good vibes continue as they gear up for a road series against the Phillies. `\
 https://nytimes.com/athletic/6348028/2025/05/11/cardinals-takeaways-pitching-offense-continue-to-surge-as-winning-streak-hits-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348621/2025/05/11/dodgers-tony-gonsolin-roki-sasak
 **DaShawn Keirsey Jr.'s heroics lift Twins to eighth straight win, above .500**\
 `Keirsey's walk-off RBI single completed a series sweep of the San Francisco Giants with a 7-6 win in 10 innings.`\
 https://nytimes.com/athletic/6348581/2025/05/11/twins-win-giants-series-sweep-dashawn-keirsey-jr/
-
-**Ottawa-Montreal Game 2 goes to 4 OTs, breaks PWHL record for longest game**\
-`Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
-https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
 
