@@ -1,3 +1,7 @@
+**Tariff Truce With China Demonstrates the Limits of Trump’s Aggression**\
+`President Trump’s triple-digit tariffs on Chinese products disrupted global trade — but haven’t appeared to result in major concessions from Beijing.`\
+https://nytimes.com/2025/05/12/business/economy/trump-trade-china-tariffs.html
+
 **Trump Administration to Fast-Track Permits for Utah Uranium Mine**\
 `An environmental review of the project, known as Velvet-Wood, would normally take roughly a year. The government says it will complete the process in two weeks.`\
 https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
