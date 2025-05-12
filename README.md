@@ -1,3 +1,15 @@
+**With No Real Policy, Trump Asks Drugmakers to Lower U.S. Prices**\
+`The president has long complained that the United States pays more for medicines than other wealthy countries. But he offered no clear legal authority to mandate lower prices.`\
+https://nytimes.com/2025/05/12/health/trump-drug-prices.html
+
+**At the Cannes Film Festival, a Story of Love, Money and Scandal**\
+`The director Thierry Klifa discusses his new film, “The Richest Woman in the World,” based on the true story of the French billionaire Liliane Bettencourt.`\
+https://nytimes.com/2025/05/12/movies/cannes-film-festival-bettencourt.html
+
+**Seeking to Stop a Slide Into Autocracy**\
+`Readers respond to a guest essay that warned of authoritarianism in America. Also: Shame on the lawyers; euphoria over Pope Leo XIV.`\
+https://nytimes.com/2025/05/12/opinion/trump-autocracy.html
+
 **Avelo Airlines Faces Backlash for Aiding Trump’s Deportation Campaign**\
 `The company, which serves airports in liberal cities on the coasts, has agreed to operate chartered flights for Immigration and Customs Enforcement.`\
 https://nytimes.com/2025/05/12/business/trump-deportation-flights-avelo-airlines.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6350144/2025/05/12/michael-jordan-nba-nbc-coverage-
 **Trump, Pressed on Qatari Jet, Says Only ‘Stupid’ People Reject Gifts**\
 `The president grew angry when questioned about the ethical implications of accepting a luxury jetliner from a foreign government.`\
 https://nytimes.com/2025/05/12/us/politics/trump-qatar-plane-jet.html
-
-**LeBrun: Greg Cronin on the shock of Ducks firing and being replaced by Joel Quenneville**\
-`Cronin coached Anaheim to a 21-point increase in Year 2: "Anyone that watched our team and looked at the standings saw definite progress."`\
-https://nytimes.com/athletic/6349904/2025/05/12/greg-cronin-ducks-firing-joel-quenneville/
-
-**The prosecution depicts Sean Combs as a serial abuser, and outlines three key witnesses.**\
-`By Ben Sisario and Julia Jacobs`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-prosecution-depicts-sean-combs-as-a-serial-abuser-and-outlines-three-key-witnesses
-
-**Looking for Belichick’s Girlfriend? Try a Beauty Pageant in Maine.**\
-`Jordon Hudson’s relationship with Bill Belichick has caused quite a stir, and it brought a huge amount of attention to the Miss Maine USA contest this weekend.`\
-https://nytimes.com/2025/05/12/style/jordon-hudson-bill-belichick-miss-maine-pageant.html
 
