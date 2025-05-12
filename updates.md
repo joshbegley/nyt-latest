@@ -1,3 +1,11 @@
+**Energy Department to Repeal Efficiency Rules for Appliances**\
+`Experts say the moves, which would apply to household appliances, will raise energy costs for consumers.`\
+https://nytimes.com/2025/05/12/climate/energy-effiency-programs-department-of-energy.html
+
+**Trump Backed Down on China Tariffs**\
+`Also, witnesses took the stand at Sean Combs’s trial. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/05/12/briefing/trump-china-tariffs-sean-combs-trial.html
+
 **‘MAGA Accounts’ and No Tax on Tips: Republicans Plan to Inject Trump Into Tax Code**\
 `House Republicans on Monday outlined their plans for a far-reaching tax bill that would deliver on several of President Trump’s campaign pledges — for now.`\
 https://nytimes.com/2025/05/12/business/republicans-tax-bill-trump.html

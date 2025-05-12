@@ -1,3 +1,11 @@
+**Energy Department to Repeal Efficiency Rules for Appliances**\
+`Experts say the moves, which would apply to household appliances, will raise energy costs for consumers.`\
+https://nytimes.com/2025/05/12/climate/energy-effiency-programs-department-of-energy.html
+
+**Trump Backed Down on China Tariffs**\
+`Also, witnesses took the stand at Sean Combs’s trial. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/05/12/briefing/trump-china-tariffs-sean-combs-trial.html
+
 **‘MAGA Accounts’ and No Tax on Tips: Republicans Plan to Inject Trump Into Tax Code**\
 `House Republicans on Monday outlined their plans for a far-reaching tax bill that would deliver on several of President Trump’s campaign pledges — for now.`\
 https://nytimes.com/2025/05/12/business/republicans-tax-bill-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/us/politics/pam-bondi-trump-justice-dept.html
 **Midwest Grapples With Wildfires Amid Record Heat and Dry Conditions**\
 `A large swath of Minnesota, Wisconsin, the Dakotas and Nebraska was on high alert on Monday. Temperatures were expected to approach 100 degrees in some places.`\
 https://nytimes.com/2025/05/12/us/wildfires-midwest-heat.html
-
-**Hollywood Groups Call for Tax Changes After Trump’s Tariff Threat**\
-`“Returning more production to the United States will require a national approach and broad-based policy solutions,” the groups said in a letter  to the White House.`\
-https://nytimes.com/2025/05/12/business/media/trump-tariffs-movies-hollywood.html
-
-**Sheffield United book place in play-off final with 3-0 win over Bristol City**\
-`United entered Monday’s game with a sizeable advantage after their 3-0 first leg victory at Ashton Gate last Thursday.`\
-https://nytimes.com/athletic/6350982/2025/05/12/sheffield-united-playoff-championship-bristol-city/
 
