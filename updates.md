@@ -1,3 +1,7 @@
+**‘The Last of Us’ Season 2, Episode 5 Recap: Once Upon a Time**\
+`Dina fills in some blanks about her past. Ellie finds the first of her intended targets.`\
+https://nytimes.com/2025/05/11/arts/television/the-last-of-us-recap-season-2-episode-5.html
+
 **For Nuggets to advance, Nikola Jokić needs to do a 'better job'**\
 `After a monster Game 1 performance, Jokić hasn't quite figured out OKC. For Denver's sake, it's vital that he does.`\
 https://nytimes.com/athletic/6348465/2025/05/11/nikola-jokic-knows-he-needs-to-do-a-better-job-if-nuggets-want-to-get-past-thunder/
