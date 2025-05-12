@@ -1,3 +1,7 @@
+**Leafs vs. Panthers has turned into a battle of both bodies and minds**\
+`Bad blood between the Atlantic Division rivals has begun to dominate an increasingly physical series.`\
+https://nytimes.com/athletic/6349041/2025/05/12/leafs-panthers-nhl-playoffs-hits-domi-kulikov/
+
 **Takeaways from the Giants' getting swept out of Minnesota**\
 `Offering thoughts and tidbits from a weekend series that the Giants and their fans would do well to forget.`\
 https://nytimes.com/athletic/6347887/2025/05/12/giants-takeaways-swept-by-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348003/2025/05/12/marinakis-nuno-nottingham-forest
 **Arsenal showed character. It was essential for them and Arteta they didn't crumble**\
 `Arsenal showed that, while they may be bruised, they are not willing to accept they are second best to anyone`\
 https://nytimes.com/athletic/6347671/2025/05/12/arsenal-liverpool-arteta-anfield/
-
-**Could an afternoon in the Fulham sunshine have extended several Everton careers?**\
-`Saturday's win at least gives some of those playing for their futures a fighting chance of being part of the next chapter at Everton`\
-https://nytimes.com/athletic/6346663/2025/05/12/everton-squad-new-contracts-fulham/
 
