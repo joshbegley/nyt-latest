@@ -1,3 +1,7 @@
+**Last Living American Hostage Arrives Back in Israel**\
+`A convoy carrying Edan Alexander, the last living American hostage held in Gaza, arrived at the Reim Military Base on Monday after his release from Hamas.`\
+https://nytimes.com/video/world/middleeast/100000010164439/american-hostage-released-edan-alexander.html
+
 **Kansas takeaways: Hendrick firing on all cylinders, championship race venues and more**\
 `Kyle Larson's dominant win capped a strong day for Hendrick, drivers discuss their championship preferences and more from Kansas.`\
 https://nytimes.com/athletic/6350412/2025/05/12/nascar-kansas-takeaways-hendrick-kyle-larson-championship-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6338525/2025/05/12/nhl-local-broadcast-survey-2025/
 **Sailing to Hawaii, With a Cat and Minimal Experience**\
 `Oliver Widger and his cat, Phoenix, have become social media stars as they journey across the Pacific Ocean. They’re learning as they go.`\
 https://nytimes.com/2025/05/12/style/oliver-widger-tiktok-sailing-hawaii-oregon.html
-
-**Fed Official Still Bracing for Economic Shock Despite China Tariff Pause**\
-`Austan D. Goolsbee, president of the Chicago Fed, said there was still a risk of higher consumer prices and slower growth amid elevated uncertainty about the White House’s trade policy.`\
-https://nytimes.com/2025/05/12/business/fed-economy-stagflation-trump-tariffs.html
 

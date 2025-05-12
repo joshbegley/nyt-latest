@@ -1,3 +1,15 @@
+**Kansas takeaways: Hendrick firing on all cylinders, championship race venues and more**\
+`Kyle Larson's dominant win capped a strong day for Hendrick, drivers discuss their championship preferences and more from Kansas.`\
+https://nytimes.com/athletic/6350412/2025/05/12/nascar-kansas-takeaways-hendrick-kyle-larson-championship-race/
+
+**Fox to Launch New Streaming Service, Fox One, This Fall**\
+`The new service will combine the company’s TV shows, cable channels and broadcast network, including National Football League games.`\
+https://nytimes.com/2025/05/12/business/media/fox-streaming-fox-one.html
+
+**Portland Thorns' Bella Bixby on returning to play after motherhood: 'It changes your body'**\
+`The NWSL’s new CBA gave Bixby a bit more confidence that having a family earlier in her career was possible.`\
+https://nytimes.com/athletic/6350601/2025/05/12/portland-thorns-bella-bixby-motherhood-returning-to-play/
+
 **Flamingos Summon Mini-Twisters to Suck Up Prey**\
 `Three cooperative birds and a model bird head helped scientists figure out what flamingos are actually doing when they stick their heads upside down underwater.`\
 https://nytimes.com/2025/05/12/science/flamingo-vortex-beaks-water.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/style/oliver-widger-tiktok-sailing-hawaii-oregon.
 **Fed Official Still Bracing for Economic Shock Despite China Tariff Pause**\
 `Austan D. Goolsbee, president of the Chicago Fed, said there was still a risk of higher consumer prices and slower growth amid elevated uncertainty about the White House’s trade policy.`\
 https://nytimes.com/2025/05/12/business/fed-economy-stagflation-trump-tariffs.html
-
-**Submit your Flyers questions here for Kevin Kurz's mailbag**\
-`With the NHL Draft and free agency coming up, and the Flyers still without a coach, there are plenty of questions to be answered.`\
-https://nytimes.com/athletic/6350600/2025/05/12/flyers-offseason-roster-questions/
-
-**Listen: Is Crystal Palace the perfect environment for Eberechi Eze to thrive?**\
-`The Totally Football Show discusses Eberechi Eze’s standout performance against Spurs and whether he should be looking to move this summer.`\
-https://nytimes.com/athletic/6350216/2025/05/12/totally-football-show-eberechi-eze-crystal-palace/
-
-**Republicans Want Budget Cuts, but Not the Political Consequences**\
-`With a crucial week looming in the House, the G.O.P. is groping for ways to achieve savings without provoking a political backlash. It’s a little tricky.`\
-https://nytimes.com/2025/05/12/us/politics/republicans-budget-cuts-medicaid.html
 
