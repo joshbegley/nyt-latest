@@ -1,3 +1,7 @@
+**Palestinian Authority Lifting Ban on Al Jazeera in West Bank**\
+`The authority offered scant information about why it issued the ban in January, and it maintained that stance in announcing that it was rescinding it.`\
+https://nytimes.com/2025/05/12/world/middleeast/al-jazeera-ban-palestinian-authority.html
+
 **Afrikaners Granted Refugee Status by Trump Arrive in the U.S.**\
 `The first plane carrying the white ethnic minority from South Africa landed at Washington Dulles International Airport on Monday morning.`\
 https://nytimes.com/video/us/politics/100000010164767/trump-afrikaners-south-africa-arrive.html
