@@ -1,3 +1,15 @@
+**Wolves pledge to apply for tier-two status for women's side after backlash**\
+`"We are committed to building a sustainable, competitive future for the team," Wolves chairman Jeff Shi said on Monday.`\
+https://nytimes.com/athletic/6349489/2025/05/12/wolves-women-fosun-promotion/
+
+**Inside the U.S.-China Trade Cease-Fire**\
+`Global markets are rallying on optimism over Washington and Beijing reaching a major, if temporary, détente in their tariff fight.`\
+https://nytimes.com/2025/05/12/business/dealbook/us-china-trade-agreement.html
+
+**Julius Randle, no longer a playoff question, has had all the answers for the Timberwolves**\
+`Once viewed as a player who shrunk in the playoff spotlight, Randle has been a revelation in his first postseason for the Timberwolves.`\
+https://nytimes.com/athletic/6346908/2025/05/12/julius-randle-timberwolves-nba-playoffs/
+
 **Fantasy Premier League: What we learned in GW36 - Watkins worth it? Palace players' last dance?**\
 `We are into the final two matches of the season - it's time to be aggressive`\
 https://nytimes.com/athletic/6348309/2025/05/12/fpl-gw36-review-advice/

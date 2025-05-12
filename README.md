@@ -1,3 +1,23 @@
+**Live Updates: Sean Combs Sex-Trafficking Trial Set to Begin in Manhattan**\
+`The music mogul, who is also known as Diddy and Puff Daddy, faces federal racketeering charges. He has pleaded not guilty.`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial
+
+**Who is Sean Combs?**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/who-is-sean-combs
+
+**Here’s the latest.**\
+`By Ben Sisario and Julia Jacobs`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/heres-the-latest
+
+**Pope Leo XIV Calls for News Media to Shun Divisive Language**\
+`In his first audience with the press, the pontiff renewed his support for a more peaceful world and quoted his predecessor, Pope Francis, who had called for communication that is free from aggression.`\
+https://nytimes.com/2025/05/12/world/europe/pope-leo-vatican-journalists.html
+
+**Terry Brunk, Professional Wrestler and ‘Hardcore’ Pioneer Known as Sabu, Dies**\
+`Mr. Brunk rose to fame with the Extreme Championship Wrestling Circuit, pioneering a wrestling style that made use of props like tables and chairs.`\
+https://nytimes.com/2025/05/12/us/sabu-terry-brunk-wwe-wrestler-dead.html
+
 **Wolves pledge to apply for tier-two status for women's side after backlash**\
 `"We are committed to building a sustainable, competitive future for the team," Wolves chairman Jeff Shi said on Monday.`\
 https://nytimes.com/athletic/6349489/2025/05/12/wolves-women-fosun-promotion/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6348309/2025/05/12/fpl-gw36-review-advice/
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
 https://nytimes.com/athletic/6349275/2025/05/12/newcastle-questions-second-place-chelsea-club-crest/
-
-**Minor league scouting notes on Ben Hess, Seaver King, Adrian Santana and more**\
-`I recently caught a handful of minor-league games featuring prospects at the High-A level from the Yankees, Rays, Orioles and Nationals organizations.`\
-https://nytimes.com/athletic/6348962/2025/05/12/minor-league-scouting-notes-yankees-rays-orioles-nationals/
-
-**Pacers send Cavs to brink of elimination but say 'We haven't done anything yet'**\
-`Indiana solved the zone defense that perplexed it in Game 3, taking a 41-point halftime lead and putting Cleveland on ice.`\
-https://nytimes.com/athletic/6349290/2025/05/12/pacers-playoffs-game-4-cavaliers-haliburton/
-
-**The Athletic FC: All change at Real Madrid after Clasico defeat, LA Galaxy's black hole**\
-`Today in TAFC: The fallout from El Clasico as Barca win and Alonso prepares to step in at Real Madrid. Plus: Galaxy's record-breaking loss`\
-https://nytimes.com/athletic/6349289/2025/05/12/ancelotti-clasico-alonso-real-madrid/
-
-**How Logan Thompson is dominating the playoffs with smart reads and 'nth degree' competitiveness**\
-`Thompson has been perhaps the best goalie in the postseason, and he’s gotten there playing an unorthodox style built around his strengths.`\
-https://nytimes.com/athletic/6348854/2025/05/12/nhl-logan-thompson-capitals-playoffs/
-
-**How long can the Houston Astros stay so right-handed?**\
-`Twelve of Houston's 14 active position players hit right-handed, and other teams have noticed the team's lack of offensive balance.`\
-https://nytimes.com/athletic/6348501/2025/05/12/houston-astros-right-handed-hitters/
 
