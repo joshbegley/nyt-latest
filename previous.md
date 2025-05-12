@@ -1,3 +1,15 @@
+**Fantasy Premier League: What we learned in GW36 - Watkins worth it? Palace players' last dance?**\
+`We are into the final two matches of the season - it's time to be aggressive`\
+https://nytimes.com/athletic/6348309/2025/05/12/fpl-gw36-review-advice/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
+https://nytimes.com/athletic/6349275/2025/05/12/newcastle-questions-second-place-chelsea-club-crest/
+
+**Minor league scouting notes on Ben Hess, Seaver King, Adrian Santana and more**\
+`I recently caught a handful of minor-league games featuring prospects at the High-A level from the Yankees, Rays, Orioles and Nationals organizations.`\
+https://nytimes.com/athletic/6348962/2025/05/12/minor-league-scouting-notes-yankees-rays-orioles-nationals/
+
 **Pacers send Cavs to brink of elimination but say 'We haven't done anything yet'**\
 `Indiana solved the zone defense that perplexed it in Game 3, taking a 41-point halftime lead and putting Cleveland on ice.`\
 https://nytimes.com/athletic/6349290/2025/05/12/pacers-playoffs-game-4-cavaliers-haliburton/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6344288/2025/05/12/twins-first-quarter-mvps-byron-b
 **Rosenthal: The Red Sox should just let Rafael Devers DH and figure out the rest themselves**\
 `By asking Devers to switch positions for a second time, the Sox have put him in a lose-lose situation.`\
 https://nytimes.com/athletic/6348920/2025/05/12/rafael-devers-red-sox-alex-cora-craig-breslow/
-
-**From 'of course' to 'f---, no': NHL goalies on whether they could have made it as skaters**\
-`We asked nine NHLers, including playoff goalies Jake Oettinger, Stuart Skinner, Calvin Pickard and Adin Hill, if they could have played out.`\
-https://nytimes.com/athletic/6343061/2025/05/12/nhl-goalie-poll-skaters/
-
-**Revisiting oddly specific NHL predictions: The right and mostly wrong (but maybe right?)**\
-`Sean McIndoe holds himself accountable by going through each and every NHL prediction he made at the start of the season. How did he do?`\
-https://nytimes.com/athletic/6346348/2025/05/12/nhl-predictions-2024-25-oddly-specific/
-
-**Van Dijk says Alexander-Arnold's Liverpool exit won't overshadow title celebrations**\
-`"The reaction happened. He has to deal with it. But I think maybe he expected this," Van Dijk said after the right-back was booed on Sunday.`\
-https://nytimes.com/athletic/6349420/2025/05/12/van-dijk-alexander-arnold-liverpool/
 

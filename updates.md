@@ -1,3 +1,15 @@
+**Fantasy Premier League: What we learned in GW36 - Watkins worth it? Palace players' last dance?**\
+`We are into the final two matches of the season - it's time to be aggressive`\
+https://nytimes.com/athletic/6348309/2025/05/12/fpl-gw36-review-advice/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
+https://nytimes.com/athletic/6349275/2025/05/12/newcastle-questions-second-place-chelsea-club-crest/
+
+**Minor league scouting notes on Ben Hess, Seaver King, Adrian Santana and more**\
+`I recently caught a handful of minor-league games featuring prospects at the High-A level from the Yankees, Rays, Orioles and Nationals organizations.`\
+https://nytimes.com/athletic/6348962/2025/05/12/minor-league-scouting-notes-yankees-rays-orioles-nationals/
+
 **Pacers send Cavs to brink of elimination but say 'We haven't done anything yet'**\
 `Indiana solved the zone defense that perplexed it in Game 3, taking a 41-point halftime lead and putting Cleveland on ice.`\
 https://nytimes.com/athletic/6349290/2025/05/12/pacers-playoffs-game-4-cavaliers-haliburton/
