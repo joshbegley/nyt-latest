@@ -1,3 +1,15 @@
+**Beckham hits back at rival taunt after latest Miami defeat, issues linger**\
+`The Inter Miami owner was unimpressed by Minnesota United's account after his team's latest defeat.`\
+https://nytimes.com/athletic/6349105/2025/05/12/beckham-inter-miami-taunt-messi/
+
+**Republicans Propose Paring Medicaid Coverage but Steer Clear of Deeper Cuts**\
+`The proposal, which is to be considered this week by a key House panel, omits some of the furthest-reaching reductions to the health program but would leave millions without coverage or facing higher costs.`\
+https://nytimes.com/2025/05/12/us/politics/republicans-medicaid-cuts.html
+
+**China Courts Lula and Latin America After Trump’s Tariff Shock**\
+`President Luiz Inácio Lula da Silva of Brazil is visiting Beijing this week, and China’s Xi Jinping will also meet top officials from other Latin American and Caribbean nations to emphasize their ties.`\
+https://nytimes.com/2025/05/12/world/asia/china-lula-latam-trade.html
+
 **The New York Times in Print for Monday, May 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/12/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6347887/2025/05/12/giants-takeaways-swept-by-twins/
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/05/12/briefing/china-trade-pakistan-vatican.html
-
-**Newcastle are tuned in, focused, strong - this is an elite team at work**\
-`The Champions League is tantalisingly close after Eddie Howe's side maintained their hold over the traditional 'Big Six' at St James' Park`\
-https://nytimes.com/athletic/6347644/2025/05/12/newcastle-2-chelsea-0-analysis-tonali/
-
-**This WSL season wasn't a classic - it's time to make the league more exciting**\
-`With a relatively flat end to the 2024-25 campaign and average attendances down, the competition's format could do with a shake-up`\
-https://nytimes.com/athletic/6346120/2025/05/12/wsl-2024-25-chelsea-changes/
-
-**Nicolas Jackson's indiscretion underlines why Chelsea need an upgrade this summer**\
-`The striker is yet to wrest control of a key game and will now be absent over the season's run-in after being sent off at St James' Park`\
-https://nytimes.com/athletic/6347510/2025/05/12/jackson-chelsea-striker-newcastle/
 

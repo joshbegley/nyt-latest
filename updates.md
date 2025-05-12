@@ -1,3 +1,15 @@
+**Beckham hits back at rival taunt after latest Miami defeat, issues linger**\
+`The Inter Miami owner was unimpressed by Minnesota United's account after his team's latest defeat.`\
+https://nytimes.com/athletic/6349105/2025/05/12/beckham-inter-miami-taunt-messi/
+
+**Republicans Propose Paring Medicaid Coverage but Steer Clear of Deeper Cuts**\
+`The proposal, which is to be considered this week by a key House panel, omits some of the furthest-reaching reductions to the health program but would leave millions without coverage or facing higher costs.`\
+https://nytimes.com/2025/05/12/us/politics/republicans-medicaid-cuts.html
+
+**China Courts Lula and Latin America After Trump’s Tariff Shock**\
+`President Luiz Inácio Lula da Silva of Brazil is visiting Beijing this week, and China’s Xi Jinping will also meet top officials from other Latin American and Caribbean nations to emphasize their ties.`\
+https://nytimes.com/2025/05/12/world/asia/china-lula-latam-trade.html
+
 **The New York Times in Print for Monday, May 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/12/todays-new-york-times
