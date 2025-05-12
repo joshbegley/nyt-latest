@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, May 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/12/todays-new-york-times-international-edition
+
 **Bears rookie minicamp takeaways: Coaches offer early impressions of draft picks**\
 `We heard from the Bears' coordinators during rookie minicamp and learned what stood out to them about Ryan Poles' 2025 draft class.`\
 https://nytimes.com/athletic/6346667/2025/05/12/bears-rookie-minicamp-rookie-impressions/

@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, May 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/12/todays-new-york-times-international-edition
+
 **Bears rookie minicamp takeaways: Coaches offer early impressions of draft picks**\
 `We heard from the Bears' coordinators during rookie minicamp and learned what stood out to them about Ryan Poles' 2025 draft class.`\
 https://nytimes.com/athletic/6346667/2025/05/12/bears-rookie-minicamp-rookie-impressions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/nyregion/pope-leo-cookies-bakery-queens.html
 **For Trump, It’s a New Era of Deal-Making With Tech’s Most-Coveted Commodity**\
 `As the president heads to the Middle East, America’s dominance over A.I. chips has become a powerful source of leverage for the president.`\
 https://nytimes.com/2025/05/12/business/economy/for-trump-its-a-new-era-of-deal-making-with-techs-most-coveted-commodity.html
-
-**In Illinois Senate Race, Old Grudges and a Test of Pritzker’s Power**\
-`Few policy differences have emerged among the Democrats vying to replace the retiring Senator Richard J. Durbin, while Gov. JB Pritzker’s influence looms large.`\
-https://nytimes.com/2025/05/12/us/politics/illinois-senate-race-durbin-pritzker.html
 
