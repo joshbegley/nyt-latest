@@ -1,3 +1,7 @@
+**Pacers send Cavs to brink of elimination but say 'We haven't done anything yet'**\
+`Indiana solved the zone defense that perplexed it in Game 3, taking a 41-point halftime lead and putting Cleveland on ice.`\
+https://nytimes.com/athletic/6349290/2025/05/12/pacers-playoffs-game-4-cavaliers-haliburton/
+
 **The Athletic FC: All change at Real Madrid after Clasico defeat, LA Galaxy's black hole**\
 `Today in TAFC: The fallout from El Clasico as Barca win and Alonso prepares to step in at Real Madrid. Plus: Galaxy's record-breaking loss`\
 https://nytimes.com/athletic/6349289/2025/05/12/ancelotti-clasico-alonso-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6346348/2025/05/12/nhl-predictions-2024-25-oddly-sp
 **Van Dijk says Alexander-Arnold's Liverpool exit won't overshadow title celebrations**\
 `"The reaction happened. He has to deal with it. But I think maybe he expected this," Van Dijk said after the right-back was booed on Sunday.`\
 https://nytimes.com/athletic/6349420/2025/05/12/van-dijk-alexander-arnold-liverpool/
-
-**The Knicks didn't change their pick-and-roll defense in Game 3; they just played worse**\
-`Game 3 looked a lot different from Games 1 and 2 in this series. Should New York adjust its strategy for Game 4?`\
-https://nytimes.com/athletic/6348570/2025/05/12/celtics-knicks-pick-and-roll-defense-nba-playoffs/
 

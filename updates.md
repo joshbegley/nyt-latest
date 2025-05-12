@@ -1,3 +1,7 @@
+**Pacers send Cavs to brink of elimination but say 'We haven't done anything yet'**\
+`Indiana solved the zone defense that perplexed it in Game 3, taking a 41-point halftime lead and putting Cleveland on ice.`\
+https://nytimes.com/athletic/6349290/2025/05/12/pacers-playoffs-game-4-cavaliers-haliburton/
+
 **The Athletic FC: All change at Real Madrid after Clasico defeat, LA Galaxy's black hole**\
 `Today in TAFC: The fallout from El Clasico as Barca win and Alonso prepares to step in at Real Madrid. Plus: Galaxy's record-breaking loss`\
 https://nytimes.com/athletic/6349289/2025/05/12/ancelotti-clasico-alonso-real-madrid/
