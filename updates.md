@@ -1,3 +1,7 @@
+**Kurdish Insurgent Group Says It Is Ending Conflict With Turkish State**\
+`The Kurdistan Workers’ Party, or P.K.K., said that it would lay down its arms and disband, a decision that could reverberate in neighboring countries.`\
+https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html
+
 **U.S. and China Agree to Temporarily Slash Tariffs in Bid to Defuse Trade War**\
 `The 145 percent U.S. tariff on Chinese goods will come down to 30 percent under the deal. The U.S. Treasury secretary said “neither side wanted a decoupling.”`\
 https://nytimes.com/2025/05/12/business/china-us-tariffs.html
