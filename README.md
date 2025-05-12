@@ -1,8 +1,16 @@
+**Girl, 16, Is Fatally Shot Near a Bronx School Building, Police Say**\
+`The girl was shot once in the head near a building that houses a charter school and two New York City Department of Education schools.`\
+https://nytimes.com/2025/05/12/nyregion/bronx-shooting-girl-killed.html
+
+**D.N.C. Takes Step to Void Election of Hogg and Kenyatta as Vice Chairs**\
+`David Hogg has faced sharp criticism for his plan to fund challenges to incumbent Democrats, but the D.N.C. vote on Monday began with an earlier complaint about the procedures used in an internal party election.`\
+https://nytimes.com/2025/05/12/us/politics/david-hogg-dnc-democrats.html
+
 **Some Bidders in Trump’s Contest Sold All Their Digital Coins but Still Won**\
 `Because of a quirk in the rules, some participants vying to dine with the president benefited from dumping the Trump family’s memecoins rather than accumulating them.`\
 https://nytimes.com/2025/05/12/us/politics/trump-memecoin-winners.html
 
-**NBA Draft lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
+**NBA Draft Lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
 `Dallas had just a 1.8 percent chance of landing No. 1 pick in the June 25 draft.`\
 https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/climate/trump-deleted-climate-website-farmers-law
 **Chiefs superfan Xaviar Babudar sentenced to 32 years for bank robbery**\
 `Xaviar Babudar had already been sentenced 17 1/2 years by a federal court for a string of robberies across seven states.`\
 https://nytimes.com/athletic/6351054/2025/05/12/chiefs-superfan-xaviar-babudar-sentenced-robbery/
-
-**WATCH: How one Knicks-Celtics play sums up Mikal Bridges' defensive resurgence**\
-`This is the Mikal Bridges the Knicks thought they were getting when they traded five first-round picks for him last summer. `\
-https://nytimes.com/athletic/6351190/2025/05/12/video-mikal-bridges-steal-defense-knicks-celtics-nba-playoffs/
-
-**Palestinian Authority Lifting Ban on Al Jazeera in West Bank**\
-`The authority offered scant information about why it issued the ban in January, and it maintained that stance in announcing that it was rescinding it.`\
-https://nytimes.com/2025/05/12/world/middleeast/al-jazeera-ban-palestinian-authority.html
 
