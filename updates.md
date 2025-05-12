@@ -1,3 +1,7 @@
+**Farmers Sued Over Deleted Climate Data. So the Government Will Put It Back.**\
+`The Agriculture Department pledged to restore online climate information that farmers said helped them do business, but which officials had deleted.`\
+https://nytimes.com/2025/05/12/climate/trump-deleted-climate-website-farmers-lawsuit.html
+
 **Chiefs superfan Xaviar Babudar sentenced to 32 years for bank robbery**\
 `Xaviar Babudar had already been sentenced 17 1/2 years by a federal court for a string of robberies across seven states.`\
 https://nytimes.com/athletic/6351054/2025/05/12/chiefs-superfan-xaviar-babudar-sentenced-robbery/
