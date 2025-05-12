@@ -1,3 +1,7 @@
+**‘Clock Is Ticking’: E.U. Leaders Demand Russia Accept Truce by Day’s End**\
+`The Kremlin brushed off the threat of further sanctions, saying that “the language of ultimatums is unacceptable.”`\
+https://nytimes.com/2025/05/12/world/europe/russia-ukraine-putin-ceasefire.html
+
 **Irvine 'disappointed' by men’s football's reaction to English ban on transgender women**\
 `Earlier this month, the FA announced a ban on transgender women playing women’s football from June 1.`\
 https://nytimes.com/athletic/6349706/2025/05/12/irvine-fa-transgender-ban-women/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/12/arts/music/sean-diddy-combs-sex-traff
 **A relatively new unit is handling the Sean Combs trial.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/criminal-civil-rights-violations
-
-**What It Takes to Be a ‘Well Woman’**\
-`In her new book, “How to Be Well,” the writer Amy Larocca draws readers down a rabbit hole of serums, supplements and colonics. We know a lot of it doesn’t work. Why do we want it anyway?`\
-https://nytimes.com/2025/05/12/style/amy-larocca-q-and-a-how-to-be-well.html
 
