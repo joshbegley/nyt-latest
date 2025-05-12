@@ -1,3 +1,11 @@
+**Trump Family Bitcoin Company Announces Plan to Go Public**\
+`American Bitcoin, a cryptocurrency firm co-founded by Eric Trump, said it was merging with a company traded on the Nasdaq, the latest expansion of the family’s investments in crypto.`\
+https://nytimes.com/2025/05/12/business/trump-american-bitcoin-crypto.html
+
+**Transportation Secretary Reduces Flight Capacity at Newark Airport**\
+`Sean Duffy addressed issues that have lead to major delays at Newark Liberty International Airport and called on Congress to approve an overhaul of air traffic control across the country during a news conference on Monday.`\
+https://nytimes.com/video/us/100000010164297/newark-flight-delays.html
+
 **Which NHL team has the best local broadcast in 2025? Vote now for your favorites**\
 `We’re inviting you to rank your favorite team’s broadcast on a scale from 1 to 5.`\
 https://nytimes.com/athletic/6338525/2025/05/12/nhl-local-broadcast-survey-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6350514/2025/05/12/bengals-trey-hendrickson-contrac
 **Counterterror Police Investigate Fire at Starmer’s North London Home**\
 `Damage was caused to the entrance of a property belonging to the prime minister in Kentish Town, but nobody was hurt, the police said.`\
 https://nytimes.com/2025/05/12/world/europe/keir-starmer-fire-counterterror-police.html
-
-**Red Light: Need a weird NHL superstition? We can help you**\
-`Plus: Your opinions on all things Utah Mammoth.`\
-https://nytimes.com/athletic/6350460/2025/05/12/nhl-playoffs-stars-maple-leafs-red-light/
-
-**Trump Signs Executive Order Asking Drugmakers to Slash Prices**\
-`President Trump’s executive order, which did not include specific legal mechanisms for lowering drug prices, was viewed as something of a win for the pharmaceutical industry.`\
-https://nytimes.com/video/us/politics/100000010164040/trump-executive-order-drug-prices.html
 
