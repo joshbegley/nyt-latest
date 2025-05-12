@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6348271/2025/05/12/uefa-payments-increase-european-
 https://nytimes.com/live/2025/05/12/world/pope-leo-news/heres-the-latest
 
 **Live Updates: Leo XIV to Address Journalists for First Time as Pope**\
-`A pontiff’s first formal meeting with the news media often offers further indications of how the new head of the Roman Catholic Church intends to lead.`\
+`The pontiff is holding his first meeting with the news media at the Vatican, a tradition that in the past has offered indications of how the new head of the Roman Catholic Church intends to lead.`\
 https://nytimes.com/live/2025/05/12/world/pope-leo-news
 
 **How 40 Manhattan Businesses Are Adapting to Congestion Pricing**\
