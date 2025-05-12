@@ -1,3 +1,15 @@
+**Newcastle are tuned in, focused, strong - this is an elite team at work**\
+`The Champions League is tantalisingly close after Eddie Howe's side maintained their hold over the traditional 'Big Six' at St James' Park`\
+https://nytimes.com/athletic/6347644/2025/05/12/newcastle-2-chelsea-0-analysis-tonali/
+
+**This WSL season wasn't a classic - it's time to make the league more exciting**\
+`With a relatively flat end to the 2024-25 campaign and average attendances down, the competition's format could do with a shake-up`\
+https://nytimes.com/athletic/6346120/2025/05/12/wsl-2024-25-chelsea-changes/
+
+**Nicolas Jackson's indiscretion underlines why Chelsea need an upgrade this summer**\
+`The striker is yet to wrest control of a key game and will now be absent over the season's run-in after being sent off at St James' Park`\
+https://nytimes.com/athletic/6347510/2025/05/12/jackson-chelsea-striker-newcastle/
+
 **What a flat performance against Brighton should mean for Wolves' summer plans**\
 `A rare underwhelming display under Vitor Pereira helpfully illustrated many of the issues he needs to fix in the summer transfer window`\
 https://nytimes.com/athletic/6346557/2025/05/12/wolves-summer-2025-squad-plans-brighton/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6280620/2025/05/12/ollie-watkins-is-aston-villas-al
 **Buonanotte's goal provides Leicester's fans with one bright moment in a miserable season**\
 `The Argentinian's well-taken finish, after some great work by Jamie Vardy, provided much-needed joy for the club's travelling supporters`\
 https://nytimes.com/athletic/6347806/2025/05/12/leicester-forest-buonanotte-supporters/
-
-**How Graham Potter watches football**\
-`Ninety minutes observing the West Ham manager can tell you a lot about his coaching style, tactical instincts and general demeanour`\
-https://nytimes.com/athletic/6348027/2025/05/12/how-graham-potter-watches-football/
-
-**Joseph Woll looks back to his best in the Maple Leafs' net — and just in time**\
-`Despite the final scoreline, Joseph Woll pulled off one of his best performances in his playoffs career with his mother in the audience.`\
-https://nytimes.com/athletic/6348975/2025/05/12/joseph-woll-maple-leafs-nhl-playoffs-game-4/
-
-**United need positive momentum before Europa League final, but they are hobbled by indecision**\
-`United's players should be fighting to be picked for that final but against West Ham it was just more of this same historically bad season`\
-https://nytimes.com/athletic/6341774/2025/05/12/manchester-united-west-ham-europa/
 
