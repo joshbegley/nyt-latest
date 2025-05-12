@@ -1,5 +1,9 @@
+**Sailing to Hawaii, With a Cat and Minimal Experience**\
+`Oliver Widger and his cat, Phoenix, have become social media stars as they journey across the Pacific Ocean. They’re learning as they go.`\
+https://nytimes.com/2025/05/12/style/oliver-widger-tiktok-sailing-hawaii-oregon.html
+
 **Fed Official Still Bracing for Economic Shock Despite China Tariff Pause**\
-`Austan D. Goolsbee, president of the Chicago Fed, said there is still a risk of higher consumer prices and slower growth amid elevated uncertainty about the White House’s trade policy.`\
+`Austan D. Goolsbee, president of the Chicago Fed, said there was still a risk of higher consumer prices and slower growth amid elevated uncertainty about the White House’s trade policy.`\
 https://nytimes.com/2025/05/12/business/fed-economy-stagflation-trump-tariffs.html
 
 **Submit your Flyers questions here for Kevin Kurz's mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010164040/trump-executive-order-drug
 **What to Do When You Have a Pimple Emergency**\
 `Expert advice on dealing with breakouts from the artist SZA, the dermatologist David Kim and the aesthetician Tiara Willis.`\
 https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.html
-
-**The testimony of one woman who has accused Combs is uncertain.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
 

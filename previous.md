@@ -1,3 +1,7 @@
+**Fed Official Still Bracing for Economic Shock Despite China Tariff Pause**\
+`Austan D. Goolsbee, president of the Chicago Fed, said there is still a risk of higher consumer prices and slower growth amid elevated uncertainty about the White House’s trade policy.`\
+https://nytimes.com/2025/05/12/business/fed-economy-stagflation-trump-tariffs.html
+
 **Submit your Flyers questions here for Kevin Kurz's mailbag**\
 `With the NHL Draft and free agency coming up, and the Flyers still without a coach, there are plenty of questions to be answered.`\
 https://nytimes.com/athletic/6350600/2025/05/12/flyers-offseason-roster-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.h
 **The testimony of one woman who has accused Combs is uncertain.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
-
-**Air Traffic Staffing Shortage Forces Delays at Newark Airport**\
-`The delays are the latest problem to plague the airport, where radar and radio communications have recently malfunctioned.`\
-https://nytimes.com/2025/05/12/business/newark-airport-delays-staffing-shortage.html
 

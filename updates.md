@@ -1,3 +1,7 @@
+**Fed Official Still Bracing for Economic Shock Despite China Tariff Pause**\
+`Austan D. Goolsbee, president of the Chicago Fed, said there is still a risk of higher consumer prices and slower growth amid elevated uncertainty about the White House’s trade policy.`\
+https://nytimes.com/2025/05/12/business/fed-economy-stagflation-trump-tariffs.html
+
 **Submit your Flyers questions here for Kevin Kurz's mailbag**\
 `With the NHL Draft and free agency coming up, and the Flyers still without a coach, there are plenty of questions to be answered.`\
 https://nytimes.com/athletic/6350600/2025/05/12/flyers-offseason-roster-questions/
