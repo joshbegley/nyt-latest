@@ -1,3 +1,7 @@
+**U.S. and China Hail Progress, but Does That Mean There’s a Trade Deal?**\
+`Both countries promised to say more on Monday about what talks over the weekend achieved. Until then, investors and businesses are guessing.`\
+https://nytimes.com/2025/05/12/business/china-us-tariffs.html
+
 **Beckham hits back at rival taunt after latest Miami defeat, issues linger**\
 `The Inter Miami owner was unimpressed by Minnesota United's account after his team's latest defeat.`\
 https://nytimes.com/athletic/6349105/2025/05/12/beckham-inter-miami-taunt-messi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349041/2025/05/12/leafs-panthers-nhl-playoffs-hits
 **Takeaways from the Giants' getting swept out of Minnesota**\
 `Offering thoughts and tidbits from a weekend series that the Giants and their fans would do well to forget.`\
 https://nytimes.com/athletic/6347887/2025/05/12/giants-takeaways-swept-by-twins/
-
-**Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/05/12/briefing/china-trade-pakistan-vatican.html
 
