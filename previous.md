@@ -1,3 +1,7 @@
+**‘MAGA Accounts’ and No Tax on Tips: Republicans Plan to Inject Trump Into Tax Code**\
+`House Republicans on Monday outlined their plans for a far-reaching tax bill that would deliver on several of President Trump’s campaign pledges — for now.`\
+https://nytimes.com/2025/05/12/business/republicans-tax-bill-trump.html
+
 **In Hockey Canada sexual assault trial, defense attorney suggests E.M. initiated sex**\
 `Defense attorney Daniel Brown accused E.M. of initiating sexual contact with Alex Formenton in a London, Ont., hotel room.`\
 https://nytimes.com/athletic/6350222/2025/05/12/hockey-canada-sexual-assault-trial-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/business/media/trump-tariffs-movies-hollywood.htm
 **Sheffield United book place in play-off final with 3-0 win over Bristol City**\
 `United entered Monday’s game with a sizeable advantage after their 3-0 first leg victory at Ashton Gate last Thursday.`\
 https://nytimes.com/athletic/6350982/2025/05/12/sheffield-united-playoff-championship-bristol-city/
-
-**Leverkusen's Tah in advanced talks to join Bayern in free transfer**\
-`The 29-year-old defender confirmed in April that he would leave Leverkusen following the expiration of his contract in June.`\
-https://nytimes.com/athletic/6350906/2025/05/12/jonathan-tah-bayern-munich-transfer-update/
 

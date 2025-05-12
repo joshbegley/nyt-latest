@@ -1,3 +1,7 @@
+**‘MAGA Accounts’ and No Tax on Tips: Republicans Plan to Inject Trump Into Tax Code**\
+`House Republicans on Monday outlined their plans for a far-reaching tax bill that would deliver on several of President Trump’s campaign pledges — for now.`\
+https://nytimes.com/2025/05/12/business/republicans-tax-bill-trump.html
+
 **In Hockey Canada sexual assault trial, defense attorney suggests E.M. initiated sex**\
 `Defense attorney Daniel Brown accused E.M. of initiating sexual contact with Alex Formenton in a London, Ont., hotel room.`\
 https://nytimes.com/athletic/6350222/2025/05/12/hockey-canada-sexual-assault-trial-2/
