@@ -1,3 +1,15 @@
+**Afrikaners Granted Refugee Status by Trump Arrive in the U.S.**\
+`The first plane carrying the white ethnic minority from South Africa landed at Washington Dulles International Airport on Monday morning.`\
+https://nytimes.com/video/us/politics/100000010164767/trump-afrikaners-south-africa-arrive.html
+
+**The Golf Analogy That Explains a Lot About Trump**\
+`President Trump invoked the golfing great Sam Snead to justify a plan to accept a $400 million plane from Qatar to use as Air Force One.`\
+https://nytimes.com/2025/05/12/us/politics/trump-sam-snead-qatar-plane.html
+
+**Elon Musk’s Boring Company Is in Talks With Government Over Amtrak Project**\
+`The Federal Railroad Administration has brought in the tunneling company to help with a multibillion-dollar rail project.`\
+https://nytimes.com/2025/05/12/technology/elon-musk-boring-company-amtrak.html
+
 **V.P. of Real Estate Group Will Step Away After Harassment Claims**\
 `Several women said Craig Steinley, the vice president of the Appraisal Institute, touched them inappropriately — a pattern of allegations that industry insiders say was ignored by the influential trade group.`\
 https://nytimes.com/2025/05/12/realestate/craig-steinley-real-estate-sexual-harassment.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/business/republicans-tax-bill-trump.html
 **In Hockey Canada sexual assault trial, defense attorney suggests E.M. initiated sex**\
 `Defense attorney Daniel Brown accused E.M. of initiating sexual contact with Alex Formenton in a London, Ont., hotel room.`\
 https://nytimes.com/athletic/6350222/2025/05/12/hockey-canada-sexual-assault-trial-2/
-
-**What Role Do You Hope the New Pope Will Play in Our World?**\
-`Do you think spiritual leaders can be effective voices in our lives, even if we are not members of their faith? If so, what issues should the new pope, Leo XIV, focus on?`\
-https://nytimes.com/2025/05/12/learning/what-role-do-you-hope-the-new-pope-will-play-in-our-world.html
-
-**Rafael Devers wins American League Player of the Week amid position-change controversy**\
-`Devers won his third AL Player of the Week award during a time when his off-field comments are generating more headlines than his hot bat.`\
-https://nytimes.com/athletic/6351022/2025/05/12/rafael-devers-player-of-the-week/
-
-**‘We’re Starting to Move Everything’: Trump’s China Deal Frees Up Shipping**\
-`The temporary lowering of tariffs may compel some U.S. businesses to order goods that they had held off buying after President Trump raised them to 145 percent.`\
-https://nytimes.com/2025/05/12/business/economy/trump-china-trade-shipments.html
 
