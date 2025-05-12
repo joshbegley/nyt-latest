@@ -1,3 +1,16 @@
+**In India and Pakistan, Signs of Normalcy After Weekend Cease-Fire**\
+`Civilian flights were returning to normal, and stocks jumped in both nations, signs of confidence that the agreement to halt fighting was holding.`\
+https://nytimes.com/2025/05/12/world/asia/india-pakistan-cease-fire-extended.html
+
+**Seven Phillies stats that help explain the good and bad through 40 games in 2025**\
+`The Phillies reached the quarter mark of the season with MLB's fifth-best record. Here are seven numbers of note from the first 40 games. `\
+https://nytimes.com/athletic/6348913/2025/05/12/phillies-stats-first-40-games-2025/
+
+**Draymond Green said what many Black people feel. But then he missed the point**\
+`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+`\
+https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
+
 **Draymond Green said what many Black people feel. But then he missed the point**\
 `The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
 `\

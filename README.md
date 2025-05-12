@@ -1,3 +1,15 @@
+**Diaz says he wants to stay at Liverpool for 'as long as possible'**\
+`Diaz, who has scored 46 goals for Liverpool since his January 2022 arrival from Porto, has a contract at Anfield through to 2027.`\
+https://nytimes.com/athletic/6349349/2025/05/12/luis-diaz-liverpool-future/
+
+**Who Is Edan Alexander?**\
+`Hamas said it would release the American Israeli national, who was serving in the Israeli Army when he was captured on Oct. 7, 2023.`\
+https://nytimes.com/2025/05/12/world/middleeast/edan-alexander-hamas-american-hostage-who-is.html
+
+**The Pulse: An NBA titan looks sunk**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6348706/2025/05/12/pacers-cavs-nba-playoffs-the-pulse/
+
 **In India and Pakistan, Signs of Normalcy After Weekend Cease-Fire**\
 `Civilian flights were returning to normal, and stocks jumped in both nations, signs of confidence that the agreement to halt fighting was holding.`\
 https://nytimes.com/2025/05/12/world/asia/india-pakistan-cease-fire-extended.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6344540/2025/05/12/nba-draft-2025-prospects-cooper-
 **Takeaways from Caitlin Clark, Indiana Fever's preseason: Will her quad injury linger?**\
 `Don't expect Indiana's rotation to be set until later in the season. `\
 https://nytimes.com/athletic/6348324/2025/05/12/caitlin-clark-indiana-fever-preseason-takeaways/
-
-**Matthews is doing a lot of things right. The Leafs still need him to score**\
-`Despite excellent faceoff stats and solid defensive work, Matthews hasn't found the net in the second round.`\
-https://nytimes.com/athletic/6349088/2025/05/12/auston-matthews-maple-leafs-scoring-nhl-playoffs-panthers/
-
-**Everything's coming up Illinois: Can Bret Bielema and the Illini capitalize?**\
-`Everything is lining up for the Illini to make a move, but now they have to take advantage.`\
-https://nytimes.com/athletic/6344242/2025/05/12/illinois-football-bret-bielema-cfp/
-
-**WNBA preseason power rankings: Indiana Fever land outside top three ... for now**\
-`Will the Lynx challenge the Liberty again this season? Will the Aces return to the top? `\
-https://nytimes.com/athletic/6348438/2025/05/12/wnba-preseason-power-rankings-indiana-fever/
 
