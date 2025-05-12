@@ -1,3 +1,11 @@
+**Hawley Urges Republicans Not to Cut Medicaid as House Debates Reductions**\
+`The Republican senator from Missouri called potentially deep cuts in the program “morally wrong” and “politically suicidal” for his party as it courts working-class voters.`\
+https://nytimes.com/2025/05/12/us/politics/hawley-medicaid-cuts-republicans.html
+
+**Hamas Frees American Held in Gaza in Deal That Largely Circumvents Israel**\
+`Edan Alexander, a dual Israeli American national, was released following pressure from President Trump, who is set to travel to the region.`\
+https://nytimes.com/2025/05/12/world/middleeast/edan-alexander-israel-hamas-hostage-released.html
+
 **Should the Leafs break up Matthews and Marner in Game 5?**\
 `Coach Craig Berube is considering lineup changes after a 4-0 Game 2 loss to the Panthers, the Maple Leafs' worst loss in a long time.`\
 https://nytimes.com/athletic/6350152/2025/05/12/maple-leafs-auston-matthews-mitch-marner/
