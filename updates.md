@@ -1,3 +1,11 @@
+**Ottawa-Montreal Game 2 goes to 4OT, breaks PWHL record for longest game**\
+`Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
+https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
+
+**Buckley: No 'Super Bowl' for Jordon Hudson, Bill Belichick in Miss Maine competition**\
+`Belichick's very public girlfriend has now logged consecutive close-but-no-cigar finishes on the runaway. But that seems to be OK with them.`\
+https://nytimes.com/athletic/6348487/2025/05/11/bill-belichick-jordon-hudson-miss-maine-2025/
+
 **Texas A&M nabs No. 1 seed in WCWS as SEC snags 7 of top 8 spots**\
 `For the third year in a row, a different team topped the bracket. For the first time in program history, it was Texas A&M.`\
 https://nytimes.com/athletic/6348606/2025/05/11/texas-am-womens-college-world-series-bracket-reveal-2025/
