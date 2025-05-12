@@ -1,3 +1,7 @@
+**Farmers Sued Over Deleted Climate Data. So the Government Will Put It Back.**\
+`The Agriculture Department pledged to restore online climate information that farmers said helped them do business, but which officials had deleted.`\
+https://nytimes.com/2025/05/12/climate/trump-deleted-climate-website-farmers-lawsuit.html
+
 **Chiefs superfan Xaviar Babudar sentenced to 32 years for bank robbery**\
 `Xaviar Babudar had already been sentenced 17 1/2 years by a federal court for a string of robberies across seven states.`\
 https://nytimes.com/athletic/6351054/2025/05/12/chiefs-superfan-xaviar-babudar-sentenced-robbery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351169/2025/05/12/nottingham-forest-awoniyi-injury
 **The F.D.A. Has Approved Three ‘Natural’ Food Colorings**\
 `Here is what we know about their safety and how they’ll be used.`\
 https://nytimes.com/2025/05/12/well/eat/fda-natural-food-colorings-galdieria-extract-blue-butterfly-pea-flower-extract-calcium-phosphate.html
-
-**Energy Department to Repeal Efficiency Rules for Appliances**\
-`Experts say the moves, which would apply to household appliances, will raise energy costs for consumers.`\
-https://nytimes.com/2025/05/12/climate/energy-effiency-programs-department-of-energy.html
 
