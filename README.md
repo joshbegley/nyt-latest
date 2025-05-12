@@ -1,3 +1,11 @@
+**Can More Military Spending Revive an Economy? This British Town Hopes So.**\
+`Britain is spending billions of pounds more on defense, but wants the money to go beyond nuclear submarines to improve local jobs and prosperity. Barrow-in-Furness may be the model.`\
+https://nytimes.com/2025/05/12/business/uk-military-spending-economy.html
+
+**Connections: Sports Edition Coach: Hints for May 12, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6348887/2025/05/12/connections-sports-edition-hints-for-may-12-2025/
+
 **Quote of the Day: Time at ESPN Revives and Informs Mullen in Return to Coaching**\
 `Quotation of the Day for Monday, May 12, 2025.`\
 https://nytimes.com/2025/05/11/pageoneplus/quote-of-the-day-time-at-espn-revives-and-informs-mullen-in-return-to-coaching.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6348028/2025/05/11/cardinals-takeaways-pitching-off
 **Winnipeg Jets lament controversial Game 3 winner: 'That is no goal'**\
 `The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
 https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
-
-**Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
-`One is the best regular-season goalie on the planet. The other shows up in big games — and the Team USA brass must take note.`\
-https://nytimes.com/athletic/6348705/2025/05/11/nhl-playoffs-oettinger-hellebuyck-team-usa-olympics/
-
-**Just About Everything That’s Changed Since Congestion Pricing Took Effect**\
-`Fewer cars. Faster travel. Less honking. And some questions we still can’t answer.`\
-https://nytimes.com/interactive/2025/05/11/upshot/congestion-pricing.html
 
