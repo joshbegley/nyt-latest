@@ -1,3 +1,19 @@
+**Texas A&M nabs No. 1 seed in WCWS as SEC snags 7 of top 8 spots**\
+`For the third year in a row, a different team topped the bracket. For the first time in program history, it was Texas A&M.`\
+https://nytimes.com/athletic/6348606/2025/05/11/texas-am-womens-college-world-series-bracket-reveal-2025/
+
+**Fear of Sleep**\
+`Bedbugs, “The Shining,” sleep disorders and other things that keep us up.`\
+https://nytimes.com/2025/05/11/podcasts/fear-of-sleep-this-american-life-nyt-audio.html
+
+**From a Cell in Europe, Duterte Is Set to Win an Election in the Philippines**\
+`Former President Rodrigo Duterte, who faces international court charges of crimes against humanity, remains very popular at home.`\
+https://nytimes.com/2025/05/11/world/asia/duterte-davao-mayor-election.html
+
+**NBA playoffs takeaways: Thunder outplay Nuggets down the stretch to tie series**\
+`The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
+https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
+
 **‘Viva Papa Leo!’ At U.S. Masses, Dawn of Homegrown Pope Brings an Air of Electricity.**\
 `In Chicago, New Orleans and beyond, elated worshipers and priests celebrated their immediate sense of connection with Pope Leo.`\
 https://nytimes.com/2025/05/11/us/pope-leo-sunday-mass.html
