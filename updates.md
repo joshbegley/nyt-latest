@@ -1,3 +1,7 @@
+**Karma Comes for Kennedy**\
+`Casey Means’s nomination to be surgeon general has led to a rift in MAHA.`\
+https://nytimes.com/2025/05/12/opinion/casey-means-maha.html
+
 **Trump’s Plan to Accept Luxury Jet From Qatar Strains Bounds of Propriety**\
 `The second Trump administration is blowing through limits on the mixing of public office and personal benefits.`\
 https://nytimes.com/2025/05/12/us/trump-qatar-jet-plane.html

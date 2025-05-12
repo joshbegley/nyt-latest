@@ -1,3 +1,7 @@
+**Karma Comes for Kennedy**\
+`Casey Means’s nomination to be surgeon general has led to a rift in MAHA.`\
+https://nytimes.com/2025/05/12/opinion/casey-means-maha.html
+
 **Trump’s Plan to Accept Luxury Jet From Qatar Strains Bounds of Propriety**\
 `The second Trump administration is blowing through limits on the mixing of public office and personal benefits.`\
 https://nytimes.com/2025/05/12/us/trump-qatar-jet-plane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/us/politics/trump-sam-snead-qatar-plane.html
 **Elon Musk’s Boring Company Is in Talks With Government Over Amtrak Project**\
 `The Federal Railroad Administration has brought in the tunneling company to help with a multibillion-dollar rail project.`\
 https://nytimes.com/2025/05/12/technology/elon-musk-boring-company-amtrak.html
-
-**V.P. of Real Estate Group Will Step Away After Harassment Claims**\
-`Several women said Craig Steinley, the vice president of the Appraisal Institute, touched them inappropriately — a pattern of allegations that industry insiders say was ignored by the influential trade group.`\
-https://nytimes.com/2025/05/12/realestate/craig-steinley-real-estate-sexual-harassment.html
 
