@@ -1,3 +1,11 @@
+**Some Bidders in Trump’s Contest Sold All Their Digital Coins but Still Won**\
+`Because of a quirk in the rules, some participants vying to dine with the president benefited from dumping the Trump family’s memecoins rather than accumulating them.`\
+https://nytimes.com/2025/05/12/us/politics/trump-memecoin-winners.html
+
+**NBA Draft lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
+`Dallas had just a 1.8 percent chance of landing No. 1 pick in the June 25 draft.`\
+https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
+
 **NBA Draft lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
 `Duke star is expected to be the No. 1 player chosen in the draft on June 25.`\
 https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
