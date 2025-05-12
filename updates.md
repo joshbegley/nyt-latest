@@ -1,3 +1,8 @@
+**Draymond Green said what many Black people feel. But then he missed the point**\
+`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+`\
+https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
+
 **Airport Chaos**\
 `It’s been a scary few months for American air travel. How did we get here?`\
 https://nytimes.com/2025/05/12/briefing/air-travel-newark-chaos.html
