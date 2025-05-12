@@ -1,3 +1,7 @@
+**Barcelona have dominated the Clasico – they have proved themselves the best team in La Liga**\
+`A fourth consecutive victory over Real Madrid this season has left Barca tantalisingly close to reclaiming the Spanish league title`\
+https://nytimes.com/athletic/6348402/2025/05/12/barcelona-clasico-liga-title-garcia-yamal/
+
 **Word of the Day: ephemeral**\
 `This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/12/learning/word-of-the-day-ephemeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/opinion/serbia-protests-students-vucic.html
 **‘The Secret Lives of Mormon Wives,’ Plus 6 Things to Watch on TV This Week**\
 `The reality show returns to Hulu, while AppleTV+ debuts a new sci-fi series.`\
 https://nytimes.com/2025/05/12/arts/television/the-secret-lives-of-mormon-wives-plus-6-things-to-watch-on-tv-this-week.html
-
-**Leafs vs. Panthers has turned into a battle of both bodies and minds**\
-`Bad blood between the Atlantic Division rivals has begun to dominate an increasingly physical series.`\
-https://nytimes.com/athletic/6349041/2025/05/12/leafs-panthers-nhl-playoffs-hits-domi-kulikov/
 
