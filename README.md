@@ -1,3 +1,7 @@
+**V.P. of Real Estate Group Will Step Away After Harassment Claims**\
+`Several women said Craig Steinley, the vice president of the Appraisal Institute, touched them inappropriately — a pattern of allegations that industry insiders say was ignored by the influential trade group.`\
+https://nytimes.com/2025/05/12/realestate/craig-steinley-real-estate-sexual-harassment.html
+
 **Forest's Awoniyi set to have surgery on abdominal injury**\
 `The Nigerian international sustained the injury late in the 2-2 draw at the City Ground, after colliding with the post.`\
 https://nytimes.com/athletic/6351169/2025/05/12/nottingham-forest-awoniyi-injury-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351022/2025/05/12/rafael-devers-player-of-the-week
 **‘We’re Starting to Move Everything’: Trump’s China Deal Frees Up Shipping**\
 `The temporary lowering of tariffs may compel some U.S. businesses to order goods that they had held off buying after President Trump raised them to 145 percent.`\
 https://nytimes.com/2025/05/12/business/economy/trump-china-trade-shipments.html
-
-**'I've failed him at times': Rich Bisaccia reflects as Packers coordinators discuss team**\
-`Packers special teams coordinator Rich Bisaccia, defensive coordinator Jeff Hafley and offensive coordinator Adam Stenavich spoke Monday.`\
-https://nytimes.com/athletic/6350948/2025/05/12/green-bay-packers-coordinators-bisaccia-hafley-stevanich/
 
