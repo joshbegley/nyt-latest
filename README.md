@@ -1,3 +1,11 @@
+**As White House Steers Justice Dept., Bondi Embraces Role of TV Messenger**\
+`Attorney General Pam Bondi has adopted a conspicuously performative approach, willing to execute White House directives with little fuss.`\
+https://nytimes.com/2025/05/12/us/politics/pam-bondi-trump-justice-dept.html
+
+**Midwest Grapples With Wildfires Amid Record Heat and Dry Conditions**\
+`A large swath of Minnesota, Wisconsin, the Dakotas and Nebraska was on high alert on Monday. Temperatures were expected to approach 100 degrees in some places.`\
+https://nytimes.com/2025/05/12/us/wildfires-midwest-heat.html
+
 **Hollywood Groups Call for Tax Changes After Trump’s Tariff Threat**\
 `“Returning more production to the United States will require a national approach and broad-based policy solutions,” the groups said in a letter  to the White House.`\
 https://nytimes.com/2025/05/12/business/media/trump-tariffs-movies-hollywood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6350770/2025/05/12/pope-leo-xiv-topps-card/
 **Yeshiva University Reverses Itself and Bans L.G.B.T.Q. Club**\
 `The Orthodox Jewish university had reached a settlement with the club in March but said the group had violated the agreement by “operating as a pride club under a different name.”`\
 https://nytimes.com/2025/05/12/nyregion/yeshiva-university-lgbtq-club-ban.html
-
-**Tariff Truce With China Demonstrates the Limits of Trump’s Aggression**\
-`President Trump’s triple-digit tariffs on Chinese products disrupted global trade — but haven’t appeared to result in major concessions from Beijing.`\
-https://nytimes.com/2025/05/12/business/economy/trump-trade-china-tariffs.html
-
-**Trump Administration to Fast-Track Permits for Utah Uranium Mine**\
-`An environmental review of the project, known as Velvet-Wood, would normally take roughly a year. The government says it will complete the process in two weeks.`\
-https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
 
