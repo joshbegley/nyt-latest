@@ -1,3 +1,7 @@
+**Airport Chaos**\
+`It’s been a scary few months for American air travel. How did we get here?`\
+https://nytimes.com/2025/05/12/briefing/air-travel-newark-chaos.html
+
 **Diaz says he wants to stay at Liverpool for 'as long as possible'**\
 `Diaz, who has scored 46 goals for Liverpool since his January 2022 arrival from Porto, has a contract at Anfield through to 2027.`\
 https://nytimes.com/athletic/6349349/2025/05/12/luis-diaz-liverpool-future/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-s
 **NBA Draft: John Hollinger's top prospects, including Flagg, Harper and more**\
 `The top tiers of players are about what you would expect, but after those names, things get weird.`\
 https://nytimes.com/athletic/6344540/2025/05/12/nba-draft-2025-prospects-cooper-flagg-dylan-harper/
-
-**Takeaways from Caitlin Clark, Indiana Fever's preseason: Will her quad injury linger?**\
-`Don't expect Indiana's rotation to be set until later in the season. `\
-https://nytimes.com/athletic/6348324/2025/05/12/caitlin-clark-indiana-fever-preseason-takeaways/
 
