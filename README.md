@@ -1,3 +1,7 @@
+**Referee with past links to match fixing to officiate Europa League final**\
+`Zwayer, 43, was given a six-month ban by his country’s football federation (DFB) for his involvement in a match-fixing scandal in 2005.`\
+https://nytimes.com/athletic/6349911/2025/05/12/europa-league-final-referee-felix-zwayer/
+
 **Can You Match These Famous Quotes to Their Novels?**\
 `Certain lines in classic novels stand out. See how many you remember in this short quiz.`\
 https://nytimes.com/interactive/2025/05/12/books/review/book-quotations-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349661/2025/05/12/college-baseball-ranking-lsu-ark
 **The Bounce: As NBA playoff drama grows, which teams are now in second-round danger zone?**\
 `Through the first week of the second round of the playoffs, we’ve gotten a fair amount of chaos. Which teams most need a turnaround?`\
 https://nytimes.com/athletic/6349721/2025/05/12/cavaliers-pacers-tyrese-haliburton-donovan-mitchell-nba-playoffs-the-bounce/
-
-**Twelve jurors and six alternates were sworn in.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/twelve-jurors-and-six-alternates-were-sworn-in
 

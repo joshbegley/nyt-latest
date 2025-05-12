@@ -1,3 +1,19 @@
+**Can You Match These Famous Quotes to Their Novels?**\
+`Certain lines in classic novels stand out. See how many you remember in this short quiz.`\
+https://nytimes.com/interactive/2025/05/12/books/review/book-quotations-quiz.html
+
+**Crispy Cheese, Yes Please**\
+`Crispy halloumi, specifically, nestled into blistered cherry tomatoes and velvety white beans for a speedy one-pan supper.`\
+https://nytimes.com/2025/05/12/dining/halloumi-recipe-tomatoes-white-beans.html
+
+**La Scala Taps South Korean Maestro as Music Director**\
+`Myung-whun Chung will be the first Asian, and one of the first conductors born outside Italy, to serve as music director in the opera house’s 247-year history.`\
+https://nytimes.com/2025/05/12/arts/music/la-scala-music-director-myung-whun-chung.html
+
+**Staple: Does anyone want to be an Islanders exec? What I'm hearing about a fraught search**\
+`Could Lou Lamoriello stay on in some capacity after all? What would that mean for a new Isles GM? The situation is getting murkier.`\
+https://nytimes.com/athletic/6349690/2025/05/12/islanders-gm-president-search/
+
 **Watch: Which team needs to win the NBA Draft Lottery the most?**\
 `"The Athletic NBA Daily" discussed the upcoming draft lottery and which team most needs to land the No. 1 pick.`\
 https://nytimes.com/athletic/6349597/2025/05/12/nba-daily-draft-lottery-winners/
