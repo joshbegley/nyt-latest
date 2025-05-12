@@ -1,4 +1,20 @@
-**Browns announce LB Jeremiah Owusu-Koramoah (neck) will miss 2025 season**\
+**Sheffield United book place in play-off final with 3-0 win over Bristol City**\
+`United entered Monday’s game with a sizeable advantage after their 3-0 first leg victory at Ashton Gate last Thursday.`\
+https://nytimes.com/athletic/6350982/2025/05/12/sheffield-united-playoff-championship-bristol-city/
+
+**Leverkusen's Tah in advanced talks to join Bayern in free transfer**\
+`The 29-year-old defender confirmed in April that he would leave Leverkusen following the expiration of his contract in June.`\
+https://nytimes.com/athletic/6350906/2025/05/12/jonathan-tah-bayern-munich-transfer-update/
+
+**Tuesday Briefing: Trump’s Visit to the Gulf**\
+`Plus, a big week for the art world.`\
+https://nytimes.com/2025/05/12/briefing/trump-gulf-visit-china-us-tariffs-ukraine-russia-sanctions.html
+
+**Revealing the Many Factors Behind a Fatal Plane Crash**\
+`Two New York Times reporters chronicled the moments that led to the tragic Jan. 29 collision between a regional jet and an Army Black Hawk helicopter.`\
+https://nytimes.com/2025/05/12/insider/dc-plane-crash-investigation.html
+
+**Browns' Owusu-Koramoah will miss 2025 season, career could be in jeopardy**\
 `Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
 https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
 **Scoop City: What's happened at rookie minicamps, what's next for Saints**\
 `Inside: Who stood out at rookie minicamp, the future of Justin Fields and the surprising retirement of Derek Carr.`\
 https://nytimes.com/athletic/6350773/2025/05/12/nfl-rookie-minicamp-takeaways-may-2025-scoop-city/
-
-**Trump Administration Considers Large Chip Sale to Emirati A.I. Firm G42**\
-`The firm, which the U.S. government scrutinized for its ties to China, is angling for hundreds of thousands of advanced artificial intelligence chips in a deal that could be finalized this week.`\
-https://nytimes.com/2025/05/12/business/economy/trump-chip-sale-to-emirati-ai-firm-g42.html
-
-**Officials Are Denied Access to Library of Congress After Trump Names New Boss**\
-`A brief standoff unfolded on Capitol Hill after library workers turned away two top Justice Department officials installed by Todd Blanche, the deputy attorney general, who has been named acting librarian.`\
-https://nytimes.com/2025/05/12/us/politics/trump-library-of-congress.html
-
-**New York Sues $400-a-Night ‘Hotel’ Listed on Airbnb in Test of New Law**\
-`As it seeks to enforce a local law cracking down on short-term rentals, New York City has taken aim at a Greenwich Village hotel with several safety violations that offered rooms on sites like Airbnb.`\
-https://nytimes.com/2025/05/12/nyregion/airbnb-short-term-rentals-lawsuit.html
-
-**Trump Officials Investigate California Aid for Undocumented Immigrants**\
-`The Department of Homeland Security is focusing on a program that provides cash assistance to certain individuals who are older, blind or disabled.`\
-https://nytimes.com/2025/05/12/us/politics/trump-california-aid-investigation.html
 
