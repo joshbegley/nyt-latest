@@ -3,7 +3,7 @@
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
 
 **Air Traffic Staffing Shortage Forces Delays at Newark Airport**\
-`The delays are the latest problem to plague the airport, which has recently suffered technical malfunctions and other problems.`\
+`The delays are the latest problem to plague the airport, where radar and radio communications have recently malfunctioned.`\
 https://nytimes.com/2025/05/12/business/newark-airport-delays-staffing-shortage.html
 
 **How to Make Leftovers Feel Like a Feast**\

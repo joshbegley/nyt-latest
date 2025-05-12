@@ -1,3 +1,15 @@
+**The testimony of one woman who has accused Combs is up in the air.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
+
+**Air Traffic Staffing Shortage Forces Delays at Newark Airport**\
+`The delays are the latest problem to plague the airport, which has recently suffered technical malfunctions and other problems.`\
+https://nytimes.com/2025/05/12/business/newark-airport-delays-staffing-shortage.html
+
+**How to Make Leftovers Feel Like a Feast**\
+`Fatteh, a layered, adaptable dish popular across the Arab world, makes whatever you have on hand feel especially abundant.`\
+https://nytimes.com/2025/05/12/dining/eggplant-fatteh-leftovers-feast.html
+
 **Here are the charges against Sean Combs.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
