@@ -1,3 +1,11 @@
+**Lazerus: Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
+`One is the best regular-season goalie on the planet. The other shows up in big games — and Team USA brass must take note.`\
+https://nytimes.com/athletic/6348705/2025/05/11/nhl-playoffs-oettinger-hellebuyck-team-usa-olympics/
+
+**Just About Everything That’s Changed Since Congestion Pricing Took Effect**\
+`Fewer cars. Faster travel. Less honking. And some questions we still can’t answer.`\
+https://nytimes.com/interactive/2025/05/11/upshot/congestion-pricing.html
+
 **Pacers' Bennedict Mathurin ejected for hitting Cavs' De'Andre Hunter**\
 `Pacers lead the series 2-1 after stealing a pair of games in Cleveland.`\
 https://nytimes.com/athletic/6348701/2025/05/11/pacers-bennedict-mathurin-ejected-deandre-hunter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6348487/2025/05/11/bill-belichick-jordon-hudson-mis
 **Texas A&M nabs No. 1 seed in WCWS as SEC snags 7 of top 8 spots**\
 `For the third year in a row, a different team topped the bracket. For the first time in program history, it was Texas A&M.`\
 https://nytimes.com/athletic/6348606/2025/05/11/texas-am-womens-college-world-series-bracket-reveal-2025/
-
-**Fear of Sleep**\
-`Bedbugs, “The Shining,” sleep disorders and other things that keep us up.`\
-https://nytimes.com/2025/05/11/podcasts/fear-of-sleep-this-american-life-nyt-audio.html
-
-**From a Cell in Europe, Duterte Is Set to Win an Election in the Philippines**\
-`Former President Rodrigo Duterte, who faces international court charges of crimes against humanity, remains very popular at home.`\
-https://nytimes.com/2025/05/11/world/asia/duterte-davao-mayor-election.html
 
