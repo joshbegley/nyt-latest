@@ -1,3 +1,16 @@
+**How Logan Thompson is dominating the playoffs with smart reads and 'nth degree' competitiveness**\
+`Thompson has been perhaps the best goalie in the postseason, and he’s gotten there playing an unorthodox style built around his strengths.`\
+https://nytimes.com/athletic/6348854/2025/05/12/nhl-logan-thompson-capitals-playoffs/
+
+**How long can the Houston Astros stay so right-handed?**\
+`Twelve of Houston's 14 active position players hit right-handed, and other teams have noticed the team's lack of offensive balance.`\
+https://nytimes.com/athletic/6348501/2025/05/12/houston-astros-right-handed-hitters/
+
+**Pronman: A case for (and against) picking the top forward prospects in 2025 draft**\
+`This draft class boasts a deep pool of high-end forwards, with a few arguments for which one is the best of the bunch.
+`\
+https://nytimes.com/athletic/6337434/2025/05/12/nhl-draft-2025-top-forwards-prospects/
+
 **How Max Verstappen is saving F1 2025 from one-team domination dullness**\
 `The McLaren F1 team is dominating the 2025 season. Its main opposition is the relentless reigning world champion, Max Verstappen`\
 https://nytimes.com/athletic/6336997/2025/05/12/max-verstappen-red-bull-mclaren-f1-2025/
