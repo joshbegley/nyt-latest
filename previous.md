@@ -1,3 +1,19 @@
+**Republicans Want Budget Cuts, but Not the Political Consequences**\
+`With a crucial week looming in the House, the G.O.P. is groping for ways to achieve savings without provoking a political backlash. It’s a little tricky.`\
+https://nytimes.com/2025/05/12/us/politics/republicans-budget-cuts-medicaid.html
+
+**Bengals DE Trey Hendrickson says extension negotiations have stalled**\
+`Hendrickson seeks an extension of the one-year, $21 million in cash he will collect this season.`\
+https://nytimes.com/athletic/6350514/2025/05/12/bengals-trey-hendrickson-contract-extension-negotiation/
+
+**Counterterror Police Investigate Fire at Starmer’s North London Home**\
+`Damage was caused to the entrance of a property belonging to the prime minister in Kentish Town, but nobody was hurt, the police said.`\
+https://nytimes.com/2025/05/12/world/europe/keir-starmer-fire-counterterror-police.html
+
+**Red Light: Need a weird NHL superstition? We can help you**\
+`Plus: Your opinions on all things Utah Mammoth.`\
+https://nytimes.com/athletic/6350460/2025/05/12/nhl-playoffs-stars-maple-leafs-red-light/
+
 **Trump Signs Executive Order Asking Drugmakers to Slash Prices**\
 `President Trump’s executive order, which did not include specific legal mechanisms for lowering drug prices, was viewed as something of a win for the pharmaceutical industry.`\
 https://nytimes.com/video/us/politics/100000010164040/trump-executive-order-drug-prices.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/12/dining/eggplant-fatteh-leftovers-feast.html
 **Here are the charges against Sean Combs.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
-
-**Sharpe James, Revitalizing Newark Mayor Convicted of Corruption, Dies at 89**\
-`He presided over a rebirth of Newark’s downtown but was found guilty after leaving office of conspiring to sell city-owned properties to a former companion for a fraction of their value.`\
-https://nytimes.com/2025/05/12/nyregion/sharpe-james-dead.html
-
-**Berube on Leafs' physical Game 4 with Panthers: 'Kulikov hit on Marner was 10 times worse'**\
-`Berube said Leafs were 'the more physical team' in Sunday's Game 4 in which Max Domi was fined $5,000 for boarding Aleksander Barkov.`\
-https://nytimes.com/athletic/6350110/2025/05/12/maple-leafs-domi-berube-marner-panthers/
-
-**Lowetide: Who should receive credit for the Oilers' team-building?**\
-`If the Oilers win it all, who should get credit? If the team craters, who should get the blame? Here's a look.`\
-https://nytimes.com/athletic/6347866/2025/05/12/edmonton-oilers-team-building-2025/
-
-**Once They Told People ‘What Not to Wear.’ Now, Anything Goes.**\
-`Stacy London and Clinton Kelly are back on TV with a provocatively named new show that celebrates personal style rather than dictating it.`\
-https://nytimes.com/2025/05/12/style/stacy-london-what-not-wear.html
 
