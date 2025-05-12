@@ -1,3 +1,15 @@
+**Trump Plan Would Tie Some Drug Prices to What Peer Nations Pay**\
+`The president announced an executive order aimed at lowering U.S. drug costs, revisiting an idea that was blocked in court during his first term.`\
+https://nytimes.com/2025/05/11/us/drug-prices-executive-order.html
+
+**Dodger Details: Tony Gonsolin's new gear, Roki Sasaki's fastball and more**\
+`Gonsolin continues to show a knack for extra velocity when he needs it, but Sasaki's heater is heading the wrong direction.`\
+https://nytimes.com/athletic/6348621/2025/05/11/dodgers-tony-gonsolin-roki-sasaki/
+
+**DaShawn Keirsey Jr.'s heroics lift Twins to eighth straight win, above .500**\
+`Keirsey's walk-off RBI single completed a series sweep of the San Francisco Giants with a 7-6 win in 10 innings.`\
+https://nytimes.com/athletic/6348581/2025/05/11/twins-win-giants-series-sweep-dashawn-keirsey-jr/
+
 **Ottawa-Montreal Game 2 goes to 4 OTs, breaks PWHL record for longest game**\
 `Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
 https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
