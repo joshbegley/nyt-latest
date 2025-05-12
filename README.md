@@ -1,3 +1,7 @@
+**Some Bidders in Trump’s Contest Sold All Their Digital Coins but Still Won**\
+`Because of a quirk in the rules, some participants vying to dine with the president benefited from dumping the Trump family’s memecoins rather than accumulating them.`\
+https://nytimes.com/2025/05/12/us/politics/some-bidders-in-trumps-contest-sold-all-their-digital-coins-but-still-won.html
+
 **NBA Draft lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
 `Duke star is expected to be the No. 1 player chosen in the draft on June 25.`\
 https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351190/2025/05/12/video-mikal-bridges-steal-defens
 **Palestinian Authority Lifting Ban on Al Jazeera in West Bank**\
 `The authority offered scant information about why it issued the ban in January, and it maintained that stance in announcing that it was rescinding it.`\
 https://nytimes.com/2025/05/12/world/middleeast/al-jazeera-ban-palestinian-authority.html
-
-**Afrikaners Granted Refugee Status by Trump Arrive in the U.S.**\
-`The first plane carrying the white ethnic minority from South Africa landed at Washington Dulles International Airport on Monday morning.`\
-https://nytimes.com/video/us/politics/100000010164767/trump-afrikaners-south-africa-arrive.html
 

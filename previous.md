@@ -1,3 +1,11 @@
+**NBA Draft lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
+`Duke star is expected to be the No. 1 player chosen in the draft on June 25.`\
+https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
+
+**Should You Fly Through Newark Airport? Here’s What You Need to Know.**\
+`Technology and staffing problems have plagued the airport, one of the nation’s busiest hubs. Officials say they are trying to resolve the issues, but concerns remain.`\
+https://nytimes.com/2025/05/12/travel/newark-airport-flights-safety.html
+
 **Karma Comes for Kennedy**\
 `Casey Means’s nomination to be surgeon general has led to a rift in MAHA.`\
 https://nytimes.com/2025/05/12/opinion/casey-means-maha.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/world/middleeast/al-jazeera-ban-palestinian-autho
 **Afrikaners Granted Refugee Status by Trump Arrive in the U.S.**\
 `The first plane carrying the white ethnic minority from South Africa landed at Washington Dulles International Airport on Monday morning.`\
 https://nytimes.com/video/us/politics/100000010164767/trump-afrikaners-south-africa-arrive.html
-
-**The Golf Analogy That Explains a Lot About Trump**\
-`President Trump invoked the golfing great Sam Snead to justify a plan to accept a $400 million plane from Qatar to use as Air Force One.`\
-https://nytimes.com/2025/05/12/us/politics/trump-sam-snead-qatar-plane.html
-
-**Elon Musk’s Boring Company Is in Talks With Government Over Amtrak Project**\
-`The Federal Railroad Administration has brought in the tunneling company to help with a multibillion-dollar rail project.`\
-https://nytimes.com/2025/05/12/technology/elon-musk-boring-company-amtrak.html
 

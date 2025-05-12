@@ -1,3 +1,11 @@
+**NBA Draft lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
+`Duke star is expected to be the No. 1 player chosen in the draft on June 25.`\
+https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
+
+**Should You Fly Through Newark Airport? Here’s What You Need to Know.**\
+`Technology and staffing problems have plagued the airport, one of the nation’s busiest hubs. Officials say they are trying to resolve the issues, but concerns remain.`\
+https://nytimes.com/2025/05/12/travel/newark-airport-flights-safety.html
+
 **Karma Comes for Kennedy**\
 `Casey Means’s nomination to be surgeon general has led to a rift in MAHA.`\
 https://nytimes.com/2025/05/12/opinion/casey-means-maha.html
