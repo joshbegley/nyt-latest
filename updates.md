@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;re starting to get some early-season TV times, which means it&#8217;s time to start turning our attention to football.</p>
+<p>What&#8217;s on your mind this week? Please include your city.</p>
+`\
+https://nytimes.com/athletic/6350379/2025/05/12/submit-a-question-for-stewart-mandels-college-football-mailbag-301/
+
+**Why Trump Suddenly Declared Victory Over the Houthi Militia**\
+`The militant group in Yemen was still firing at ships and shooting down drones, while U.S. forces were burning through munitions.`\
+https://nytimes.com/2025/05/12/us/politics/trump-houthis-bombing.html
+
+**Sean Combs’s lawyer says he committed violence, but not sex trafficking.**\
+`By Julia Jacobs and Benjamin Weiser`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/sean-combss-lawyer-says-he-committed-violence-but-not-sex-trafficking
+
 **Hawley Urges Republicans Not to Cut Medicaid as House Debates Reductions**\
 `The Republican senator from Missouri called potentially deep cuts in the program “morally wrong” and “politically suicidal” for his party as it courts working-class voters.`\
 https://nytimes.com/2025/05/12/us/politics/hawley-medicaid-cuts-republicans.html

@@ -1,3 +1,15 @@
+**Once They Told People ‘What Not to Wear.’ Now, Anything Goes.**\
+`Stacy London and Clinton Kelly are back on TV with a provocatively named new show that celebrates personal style rather than dictating it.`\
+https://nytimes.com/2025/05/12/style/stacy-london-what-not-wear.html
+
+**The office prosecuting Sean Combs is led by an interim Trump appointee.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/jay-clayton-prosecutors
+
+**Top Justice Dept. Official Is Now Also Acting Librarian of Congress**\
+`After firing the head of the Library of Congress, the president put his former personal lawyer, Todd Blanche, in charge of the facility.`\
+https://nytimes.com/2025/05/12/us/politics/trump-blanche-attorney-general-librarian-congress.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>We&#8217;re starting to get some early-season TV times, which means it&#8217;s time to start turning our attention to football.</p>
 <p>What&#8217;s on your mind this week? Please include your city.</p>
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6350152/2025/05/12/maple-leafs-auston-matthews-mitc
 **White South Africans Granted Refugee Status by Trump Arrive in the U.S.**\
 `President Trump had halted essentially refugee admissions on his first day in office before creating a pathway for Afrikaners, a white ethnic minority that ruled during apartheid.`\
 https://nytimes.com/2025/05/12/us/politics/white-south-africans-refugees.html
-
-**THE BAT X fantasy baseball cheat sheet: Fade Jacob Wilson, target Dylan Cease**\
-`The Athletic and THE BAT X offer a weekly one-stop shop for fantasy managers who don't have time to scour the metrics. `\
-https://nytimes.com/athletic/6338099/2025/05/12/the-bat-x-fantasy-baseball-cheat-sheet-brenton-doyle/
-
-**When Movie Stars Come to Cannes, a Traverso Is There to Take Pictures**\
-`Gilles Traverso is the third in a line of photographers from his family to capture the film elite every year of the Cannes Film Festival.`\
-https://nytimes.com/2025/05/12/movies/cannes-film-festival-traverso-photographer.html
-
-**Harvard Argues It Has ‘Common Ground’ With Trump Administration**\
-`In a letter, Harvard’s president pointed to areas of agreement with the Trump administration, including a need for more “intellectual diversity.” He also argued Harvard is not partisan.`\
-https://nytimes.com/2025/05/12/us/harvard-response-trump-letter.html
 
