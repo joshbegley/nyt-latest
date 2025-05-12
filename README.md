@@ -1,3 +1,11 @@
+**Hawley Urges Republicans Not to Cut Medicaid as House Debates Reductions**\
+`The Republican senator from Missouri called potentially deep cuts in the program “morally wrong” and “politically suicidal” for his party as it courts working-class voters.`\
+https://nytimes.com/2025/05/12/us/politics/hawley-medicaid-cuts-republicans.html
+
+**Hamas Frees American Held in Gaza in Deal That Largely Circumvents Israel**\
+`Edan Alexander, a dual Israeli American national, was released following pressure from President Trump, who is set to travel to the region.`\
+https://nytimes.com/2025/05/12/world/middleeast/edan-alexander-israel-hamas-hostage-released.html
+
 **Should the Leafs break up Matthews and Marner in Game 5?**\
 `Coach Craig Berube is considering lineup changes after a 4-0 Game 2 loss to the Panthers, the Maple Leafs' worst loss in a long time.`\
 https://nytimes.com/athletic/6350152/2025/05/12/maple-leafs-auston-matthews-mitch-marner/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/movies/cannes-film-festival-bettencourt.html
 **Seeking to Stop a Slide Into Autocracy**\
 `Readers respond to a guest essay that warned of authoritarianism in America. Also: Shame on the lawyers; euphoria over Pope Leo XIV.`\
 https://nytimes.com/2025/05/12/opinion/trump-autocracy.html
-
-**Avelo Airlines Faces Backlash for Aiding Trump’s Deportation Campaign**\
-`The company, which serves airports in liberal cities on the coasts, has agreed to operate chartered flights for Immigration and Customs Enforcement.`\
-https://nytimes.com/2025/05/12/business/trump-deportation-flights-avelo-airlines.html
-
-**Bettors are looking for divine intervention, wagering on new Pope's hometown teams**\
-`Max Meyer spoke to sportsbooks to discuss how bettors are wagering on the new Pope's hometown teams.`\
-https://nytimes.com/athletic/6349680/2025/05/12/pope-chicago-betting-bears-cubs-villanova-odds/
 
