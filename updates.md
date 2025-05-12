@@ -1,3 +1,7 @@
+**Maple Leafs fall flat as Panthers even series with Game 4 win: Takeaways**\
+`Panthers hold serve at home with 2-0 win, sending series back to Toronto deadlocked at 2-2.`\
+https://nytimes.com/athletic/6348478/2025/05/11/leafs-panthers-game-4-nhl-playoffs/
+
 **‘The Last of Us’ Season 2, Episode 5 Recap: Once Upon a Time**\
 `Dina fills in some blanks about her past. Ellie finds the first of her intended targets.`\
 https://nytimes.com/2025/05/11/arts/television/the-last-of-us-recap-season-2-episode-5.html
