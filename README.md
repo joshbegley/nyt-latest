@@ -1,3 +1,15 @@
+**The testimony of one woman who has accused Combs is up in the air.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
+
+**Air Traffic Staffing Shortage Forces Delays at Newark Airport**\
+`The delays are the latest problem to plague the airport, which has recently suffered technical malfunctions and other problems.`\
+https://nytimes.com/2025/05/12/business/newark-airport-delays-staffing-shortage.html
+
+**How to Make Leftovers Feel Like a Feast**\
+`Fatteh, a layered, adaptable dish popular across the Arab world, makes whatever you have on hand feel especially abundant.`\
+https://nytimes.com/2025/05/12/dining/eggplant-fatteh-leftovers-feast.html
+
 **Here are the charges against Sean Combs.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
@@ -25,18 +37,4 @@ https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/jay-clayton-pros
 **Top Justice Dept. Official Is Now Also Acting Librarian of Congress**\
 `After firing the head of the Library of Congress, the president put his former personal lawyer, Todd Blanche, in charge of the facility.`\
 https://nytimes.com/2025/05/12/us/politics/trump-blanche-attorney-general-librarian-congress.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We&#8217;re starting to get some early-season TV times, which means it&#8217;s time to start turning our attention to football.</p>
-<p>What&#8217;s on your mind this week? Please include your city.</p>
-`\
-https://nytimes.com/athletic/6350379/2025/05/12/submit-a-question-for-stewart-mandels-college-football-mailbag-301/
-
-**Why Trump Suddenly Declared Victory Over the Houthi Militia**\
-`The militant group in Yemen was still firing at ships and shooting down drones, while U.S. forces were burning through munitions.`\
-https://nytimes.com/2025/05/12/us/politics/trump-houthis-bombing.html
-
-**Sean Combs’s lawyer says he committed violence, but not sex trafficking.**\
-`By Julia Jacobs and Benjamin Weiser`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/sean-combss-lawyer-says-he-committed-violence-but-not-sex-trafficking
 
