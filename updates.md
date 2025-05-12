@@ -1,3 +1,7 @@
+**V.P. of Real Estate Group Will Step Away After Harassment Claims**\
+`Several women said Craig Steinley, the vice president of the Appraisal Institute, touched them inappropriately — a pattern of allegations that industry insiders say was ignored by the influential trade group.`\
+https://nytimes.com/2025/05/12/realestate/craig-steinley-real-estate-sexual-harassment.html
+
 **Forest's Awoniyi set to have surgery on abdominal injury**\
 `The Nigerian international sustained the injury late in the 2-2 draw at the City Ground, after colliding with the post.`\
 https://nytimes.com/athletic/6351169/2025/05/12/nottingham-forest-awoniyi-injury-surgery/
