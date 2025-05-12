@@ -1,5 +1,9 @@
+**Winnipeg Jets lament controversial Game 3 winner: 'That is no goal'**\
+`The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
+https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
+
 **Lazerus: Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
-`One is the best regular-season goalie on the planet. The other shows up in big games — and Team USA brass must take note.`\
+`One is the best regular-season goalie on the planet. The other shows up in big games — and the Team USA brass must take note.`\
 https://nytimes.com/athletic/6348705/2025/05/11/nhl-playoffs-oettinger-hellebuyck-team-usa-olympics/
 
 **Just About Everything That’s Changed Since Congestion Pricing Took Effect**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-recor
 **Buckley: No 'Super Bowl' for Jordon Hudson, Bill Belichick in Miss Maine competition**\
 `Belichick's very public girlfriend has now logged consecutive close-but-no-cigar finishes on the runaway. But that seems to be OK with them.`\
 https://nytimes.com/athletic/6348487/2025/05/11/bill-belichick-jordon-hudson-miss-maine-2025/
-
-**Texas A&M nabs No. 1 seed in WCWS as SEC snags 7 of top 8 spots**\
-`For the third year in a row, a different team topped the bracket. For the first time in program history, it was Texas A&M.`\
-https://nytimes.com/athletic/6348606/2025/05/11/texas-am-womens-college-world-series-bracket-reveal-2025/
 

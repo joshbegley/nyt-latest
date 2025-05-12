@@ -1,3 +1,7 @@
+**Cardinals takeaways: Pitching, offense continue to surge as winning streak hits 8**\
+`The red-hot Cardinals hope their good vibes continue as they gear up for a road series against the Phillies. `\
+https://nytimes.com/athletic/6348028/2025/05/11/cardinals-takeaways-pitching-offense-continue-to-surge-as-winning-streak-hits-8/
+
 **Winnipeg Jets lament controversial Game 3 winner: 'That is no goal'**\
 `The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
 https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348581/2025/05/11/twins-win-giants-series-sweep-da
 **Ottawa-Montreal Game 2 goes to 4 OTs, breaks PWHL record for longest game**\
 `Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
 https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
-
-**Buckley: No 'Super Bowl' for Jordon Hudson, Bill Belichick in Miss Maine competition**\
-`Belichick's very public girlfriend has now logged consecutive close-but-no-cigar finishes on the runaway. But that seems to be OK with them.`\
-https://nytimes.com/athletic/6348487/2025/05/11/bill-belichick-jordon-hudson-miss-maine-2025/
 
