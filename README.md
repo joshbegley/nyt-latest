@@ -1,3 +1,7 @@
+**The last 5 pontiffs have held audiences with the news media.**\
+`The last five pontiffs have addressed members of the international news media who reported on the conclaves that elected them.`\
+https://nytimes.com/live/2025/05/12/world/pope-leo-news/the-last-5-pontiffs-have-held-audiences-with-the-news-media
+
 **Cheers, Chants and a ‘Dance of the Little Devils’ for Pope Leo in Peru**\
 `People in the city of Chiclayo, where Leo XIV served as bishop for about eight years, gathered to celebrate a man they see as one of their own.`\
 https://nytimes.com/2025/05/12/world/europe/pope-leo-peru.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/crosswords/spelling-bee-forum.html
 **Kurdish Insurgent Group Says It Is Ending Conflict With Turkish State**\
 `The Kurdistan Workers’ Party, or P.K.K., said that it would lay down its arms and disband, a decision that could reverberate in neighboring countries.`\
 https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html
-
-**India great Virat Kohli announces retirement from Test cricket**\
-`Kohli played 123 Tests in a career which lasted for 14 years after his debut in 2011. He scored 9,230 runs and made 30 centuries.`\
-https://nytimes.com/athletic/6346191/2025/05/12/virat-kohli-retires-india-cricket/
 
