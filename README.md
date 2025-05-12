@@ -1,3 +1,7 @@
+**Virat Kohli made one billion Indians dream again and helped save Test cricket**\
+`A reflection on the superstar's impressive and impactful career as he retires from the longest form of a sport that obsesses his country`\
+https://nytimes.com/athletic/6349417/2025/05/12/virat-kohli-india-cricket/
+
 **The Frick’s Gift to New York: A Superb New Concert Hall**\
 `There’s a crackling aliveness to music in the 220-seat, subterranean yet airy auditorium, which was put through its paces in a burst of six concerts.`\
 https://nytimes.com/2025/05/12/arts/music/frick-museum-concert-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349212/2025/05/12/canucks-roster-salary-cap-2025/
 **Robert Shapiro, Who Made NutraSweet a Household Name, Dies at 86**\
 `His promotion of the sugar substitute was a success. But later, as head of Monsanto, he faced blowback after the company rushed into genetically altered products.`\
 https://nytimes.com/2025/05/12/business/robert-shapiro-dead.html
-
-**Referee with past links to match-fixing to officiate Europa League final**\
-`Zwayer, 43, was given a six-month ban by his country’s football federation (DFB) for his involvement in a match-fixing scandal in 2005.`\
-https://nytimes.com/athletic/6349911/2025/05/12/europa-league-final-referee-felix-zwayer/
 
