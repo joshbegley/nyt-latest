@@ -1,3 +1,7 @@
+**Cheers, Chants and a ‘Dance of the Little Devils’ for Pope Leo in Peru**\
+`People in the city of Chiclayo, where Leo XIV served as bishop for about eight years, gathered to celebrate a man they see as one of their own.`\
+https://nytimes.com/2025/05/12/world/europe/pope-leo-peru.html
+
 **UEFA urged to increase payments to non-elite clubs**\
 `The 36 teams in the league phase of the UCL would not be eligible for the payments, as they already receive huge sums in prize money.`\
 https://nytimes.com/athletic/6348271/2025/05/12/uefa-payments-increase-european-leagues/
