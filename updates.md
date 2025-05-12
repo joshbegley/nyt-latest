@@ -1,4 +1,8 @@
 **U.S. and China Agree to Temporarily Slash Tariffs in Bid to Defuse Trade War**\
+`The 145 percent U.S. tariff on Chinese goods will come down to 30 percent under the deal. The U.S. Treasury secretary said “neither side wanted a decoupling.”`\
+https://nytimes.com/2025/05/12/business/china-us-tariffs.html
+
+**U.S. and China Agree to Temporarily Slash Tariffs in Bid to Defuse Trade War**\
 `Officials said in a joint statement they would reduce tariffs, “recognizing the importance of a sustainable, long-term, and mutually beneficial economic and trade relationship.”`\
 https://nytimes.com/2025/05/12/business/china-us-tariffs.html
 
