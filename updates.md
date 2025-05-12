@@ -1,3 +1,11 @@
+**Trump Family Bitcoin Company Announces Plan to Go Public**\
+`American Bitcoin, a cryptocurrency firm co-founded by Eric Trump, said it was merging with a company traded on the Nasdaq, the latest expansion of the family’s investments in crypto.`\
+https://nytimes.com/2025/05/12/business/trump-american-bitcoin-crypto.html
+
+**Transportation Secretary Reduces Flight Capacity at Newark Airport**\
+`Sean Duffy addressed issues that have lead to major delays at Newark Liberty International Airport and called on Congress to approve an overhaul of air traffic control across the country during a news conference on Monday.`\
+https://nytimes.com/video/us/100000010164297/newark-flight-delays.html
+
 **Which NHL team has the best local broadcast in 2025? Vote now for your favorites**\
 `We’re inviting you to rank your favorite team’s broadcast on a scale from 1 to 5.`\
 https://nytimes.com/athletic/6338525/2025/05/12/nhl-local-broadcast-survey-2025/
