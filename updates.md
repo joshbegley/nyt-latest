@@ -1,3 +1,15 @@
+**With No Real Policy, Trump Asks Drugmakers to Lower U.S. Prices**\
+`The president has long complained that the United States pays more for medicines than other wealthy countries. But he offered no clear legal authority to mandate lower prices.`\
+https://nytimes.com/2025/05/12/health/trump-drug-prices.html
+
+**At the Cannes Film Festival, a Story of Love, Money and Scandal**\
+`The director Thierry Klifa discusses his new film, “The Richest Woman in the World,” based on the true story of the French billionaire Liliane Bettencourt.`\
+https://nytimes.com/2025/05/12/movies/cannes-film-festival-bettencourt.html
+
+**Seeking to Stop a Slide Into Autocracy**\
+`Readers respond to a guest essay that warned of authoritarianism in America. Also: Shame on the lawyers; euphoria over Pope Leo XIV.`\
+https://nytimes.com/2025/05/12/opinion/trump-autocracy.html
+
 **Avelo Airlines Faces Backlash for Aiding Trump’s Deportation Campaign**\
 `The company, which serves airports in liberal cities on the coasts, has agreed to operate chartered flights for Immigration and Customs Enforcement.`\
 https://nytimes.com/2025/05/12/business/trump-deportation-flights-avelo-airlines.html
