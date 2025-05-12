@@ -1,4 +1,4 @@
-**Ottawa-Montreal Game 2 goes to 4OT, breaks PWHL record for longest game**\
+**Ottawa-Montreal Game 2 goes to 4 OTs, breaks PWHL record for longest game**\
 `Catherine Dubois scored for the Montreal Victoire with 4:27 remaining in quadruple overtime to beat the Ottawa Charge 3-2.`\
 https://nytimes.com/athletic/6348589/2025/05/11/pwhl-playoffs-longest-game-record-ottawa-montreal/
 
@@ -34,7 +34,7 @@ https://nytimes.com/2025/05/11/arts/music/johnny-rodriguez-dead.html
 `Chis Sale has a 2.20 ERA in his past five starts but there is no margin for error with the Braves' bats struggling.`\
 https://nytimes.com/athletic/6348375/2025/05/11/braves-spencer-strider-return-chris-sale/
 
-**Rockies fire Bud Black after brutal start**\
+**Rockies (7-33) fire Bud Black, name Warren Schaeffer interim manager**\
 `Third-base coach Warren Schaeffer is now the interim manager, and hitting coach Clint Hurdle will serve as the interim bench coach.`\
 https://nytimes.com/athletic/6348379/2025/05/11/rockies-fire-bud-black/
 
