@@ -1,3 +1,11 @@
+**Trump’s Plan to Accept Luxury Jet From Qatar Strains Bounds of Propriety**\
+`The second Trump administration is blowing through limits on the mixing of public office and personal benefits.`\
+https://nytimes.com/2025/05/12/us/trump-qatar-jet-plane.html
+
+**Trump Endorses Jack Ciattarelli for Governor of New Jersey**\
+`Republicans had been vying for the potentially race-altering support in a state where President Trump had a stronger-than-expected showing in November.`\
+https://nytimes.com/2025/05/12/nyregion/trump-endorsement-governor-new-jersey.html
+
 **Farmers Sued Over Deleted Climate Data. So the Government Will Put It Back.**\
 `The Agriculture Department pledged to restore online climate information that farmers said helped them do business, but which officials had deleted.`\
 https://nytimes.com/2025/05/12/climate/trump-deleted-climate-website-farmers-lawsuit.html
