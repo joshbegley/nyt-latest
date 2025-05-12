@@ -1,3 +1,7 @@
+**Virat Kohli made one billion Indians dream again and helped save Test cricket**\
+`A reflection on the superstar's impressive and impactful career as he retires from the longest form of a sport that obsesses his country`\
+https://nytimes.com/athletic/6349417/2025/05/12/virat-kohli-india-cricket/
+
 **The Frick’s Gift to New York: A Superb New Concert Hall**\
 `There’s a crackling aliveness to music in the 220-seat, subterranean yet airy auditorium, which was put through its paces in a burst of six concerts.`\
 https://nytimes.com/2025/05/12/arts/music/frick-museum-concert-hall.html
