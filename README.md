@@ -1,5 +1,9 @@
+**How OKC won the Jamal Murray matchup — and ultimately a critical Game 4**\
+`Dort's defensive task is clear in this series, and his preparation for it began long before these playoffs.`\
+https://nytimes.com/athletic/6348594/2025/05/11/thunder-nuggets-lu-dort-jamal-murray-nba-playoffs/
+
 **Maple Leafs fall flat as Panthers even series with Game 4 win: Takeaways**\
-`Panthers hold serve at home with 2-0 win, sending series back to Toronto deadlocked at 2-2.`\
+`Panthers hold serve with 2-0 win, sending series back to Toronto deadlocked at 2-2.`\
 https://nytimes.com/athletic/6348478/2025/05/11/leafs-panthers-game-4-nhl-playoffs/
 
 **‘The Last of Us’ Season 2, Episode 5 Recap: Once Upon a Time**\
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6348028/2025/05/11/cardinals-takeaways-pitching-off
 `The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
 https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
 
-**Lazerus: Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
+**Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
 `One is the best regular-season goalie on the planet. The other shows up in big games — and the Team USA brass must take note.`\
 https://nytimes.com/athletic/6348705/2025/05/11/nhl-playoffs-oettinger-hellebuyck-team-usa-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348701/2025/05/11/pacers-bennedict-mathurin-ejecte
 **Asia Stocks Rise on Hope for Lower Tariffs After U.S.-China Talks**\
 `Investors were optimistic after American officials touted progress in trade negotiations over the weekend, though details had yet to be released.`\
 https://nytimes.com/2025/05/11/business/us-china-trade-stock-market.html
-
-**Trump Plan Would Tie Some Drug Prices to What Peer Nations Pay**\
-`The president announced an executive order aimed at lowering U.S. drug costs, revisiting an idea that was blocked in court during his first term.`\
-https://nytimes.com/2025/05/11/us/drug-prices-executive-order.html
 
