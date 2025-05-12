@@ -1,3 +1,11 @@
+**Pope Leo XIV Reiterates Call for Peace in First Address to Journalists**\
+`The first American pontiff also urged reporters to choose “the path of a communication of peace” in his first address to news media as the leader of the Catholic Church.`\
+https://nytimes.com/video/world/europe/100000010163426/pope-leo-xiv-first-address-to-journalists.html
+
+**What Sidney Crosby playing at Worlds means to Canada: 'It's so huge'**\
+`Canadian Olympic coach Jon Cooper: "Just imagine the effect it's going to have on a 19- and 20-year-old; it's unparalleled."`\
+https://nytimes.com/athletic/6349436/2025/05/12/sidney-crosby-world-championship-canada/
+
 **‘Clock Is Ticking’: E.U. Leaders Demand Russia Accept Truce by Day’s End**\
 `The Kremlin brushed off the threat of further sanctions, saying that “the language of ultimatums is unacceptable.”`\
 https://nytimes.com/2025/05/12/world/europe/russia-ukraine-putin-ceasefire.html
