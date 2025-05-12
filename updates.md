@@ -1,3 +1,15 @@
+**UEFA urged to increase payments to non-elite clubs**\
+`The 36 teams in the league phase of the UCL would not be eligible for the payments, as they already receive huge sums in prize money.`\
+https://nytimes.com/athletic/6348271/2025/05/12/uefa-payments-increase-european-leagues/
+
+**Here’s the latest.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/12/world/pope-leo-news/heres-the-latest
+
+**Live Updates: Leo XIV to Address Journalists for First Time as Pope**\
+`A pontiff’s first formal meeting with the news media often offers further indications of how the new head of the Roman Catholic Church intends to lead.`\
+https://nytimes.com/live/2025/05/12/world/pope-leo-news
+
 **Kurdish Insurgent Group Says It Is Ending Conflict With Turkish State**\
 `The Kurdistan Workers’ Party, or P.K.K., said that it would lay down its arms and disband, a decision that could reverberate in neighboring countries.`\
 https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html

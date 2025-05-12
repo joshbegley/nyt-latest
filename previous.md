@@ -1,3 +1,15 @@
+**UEFA urged to increase payments to non-elite clubs**\
+`The 36 teams in the league phase of the UCL would not be eligible for the payments, as they already receive huge sums in prize money.`\
+https://nytimes.com/athletic/6348271/2025/05/12/uefa-payments-increase-european-leagues/
+
+**Here’s the latest.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/12/world/pope-leo-news/heres-the-latest
+
+**Live Updates: Leo XIV to Address Journalists for First Time as Pope**\
+`A pontiff’s first formal meeting with the news media often offers further indications of how the new head of the Roman Catholic Church intends to lead.`\
+https://nytimes.com/live/2025/05/12/world/pope-leo-news
+
 **How 40 Manhattan Businesses Are Adapting to Congestion Pricing**\
 `An informal survey along Bleecker Street surfaced complaints about higher delivery costs, but most businesses are making do, even if they do not like it.`\
 https://nytimes.com/2025/05/12/nyregion/how-40-manhattan-businesses-are-adapting-to-congestion-pricing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6346191/2025/05/12/virat-kohli-retires-india-cricke
 **The Glazers in 2025 – Their Manchester United roles, Ratcliffe relationship and what happens next**\
 `Why the Glazers handed control to Ratcliffe, how involved they remain in the club's running and what they're planning to do next`\
 https://nytimes.com/athletic/6339593/2025/05/12/glazers-manchester-united-ratcliffe/
-
-**Barcelona have dominated the Clasico – they have proved themselves the best team in La Liga**\
-`A fourth consecutive victory over Real Madrid this season has left Barca tantalisingly close to reclaiming the Spanish league title`\
-https://nytimes.com/athletic/6348402/2025/05/12/barcelona-clasico-liga-title-garcia-yamal/
-
-**Word of the Day: ephemeral**\
-`This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/12/learning/word-of-the-day-ephemeral.html
-
-**U.S. and China Agree to Temporarily Slash Tariffs in Bid to Defuse Trade War**\
-`The 145 percent U.S. tariff on Chinese goods will come down to 30 percent under the deal. The U.S. Treasury secretary said “neither side wanted a decoupling.”`\
-https://nytimes.com/2025/05/12/business/china-us-tariffs.html
 
