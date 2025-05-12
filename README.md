@@ -1,3 +1,7 @@
+**Rockets, Ime Udoka put playoff disappointment aside to focus on critical offseason**\
+`"Everyone’s goal is to be better and come back better," Rockets coach Ime Udoka said of the offseason.`\
+https://nytimes.com/athletic/6346932/2025/05/12/rockets-ime-udoka-amen-thompson-offseason/
+
 **Do Ravens need Jadeveon Clowney? It depends on how they view their young edge rushers**\
 `Clowney had one of his best seasons with Baltimore in 2023, tying a career high with 9.5 sacks and playing a disruptive brand of football.`\
 https://nytimes.com/athletic/6345903/2025/05/12/ravens-edge-rushers-jadeveon-clowney/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6348438/2025/05/12/wnba-preseason-power-rankings-in
 **Great views and bad baseball: After brutal start, Colorado Rockies finally face a reckoning**\
 `The Rockies have traditionally been slow to change, even in bad times. But even this franchise, it seems, has a breaking point. `\
 https://nytimes.com/athletic/6348720/2025/05/12/colorado-rockies-bad-start-fire-manager/
-
-**Wordle Review No. 1,424**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 13, 2025.`\
-https://nytimes.com/2025/05/12/crosswords/wordle-review-1424.html
 
