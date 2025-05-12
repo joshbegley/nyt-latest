@@ -1,3 +1,7 @@
+**Flamingos Summon Mini-Twisters to Suck Up Prey**\
+`Three cooperative birds and a model bird head helped scientists figure out what flamingos are actually doing when they stick their heads upside down underwater.`\
+https://nytimes.com/2025/05/12/science/flamingo-vortex-beaks-water.html
+
 **Submit your questions for Mitch Bannon’s first Blue Jays mailbag**\
 `<p>It&#8217;s May 12 and the Blue Jays have won as many games as they have lost.`\
 https://nytimes.com/athletic/6350792/2025/05/12/blue-jays-mailbag-submit-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350216/2025/05/12/totally-football-show-eberechi-e
 **Republicans Want Budget Cuts, but Not the Political Consequences**\
 `With a crucial week looming in the House, the G.O.P. is groping for ways to achieve savings without provoking a political backlash. It’s a little tricky.`\
 https://nytimes.com/2025/05/12/us/politics/republicans-budget-cuts-medicaid.html
-
-**Bengals DE Trey Hendrickson says extension negotiations have stalled**\
-`Hendrickson seeks an extension of the one-year, $21 million in cash he will collect this season.`\
-https://nytimes.com/athletic/6350514/2025/05/12/bengals-trey-hendrickson-contract-extension-negotiation/
 
