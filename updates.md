@@ -1,3 +1,7 @@
+**Last Living American Hostage Arrives Back in Israel**\
+`A convoy carrying Edan Alexander, the last living American hostage held in Gaza, arrived at the Reim Military Base on Monday after his release from Hamas.`\
+https://nytimes.com/video/world/middleeast/100000010164439/american-hostage-released-edan-alexander.html
+
 **Kansas takeaways: Hendrick firing on all cylinders, championship race venues and more**\
 `Kyle Larson's dominant win capped a strong day for Hendrick, drivers discuss their championship preferences and more from Kansas.`\
 https://nytimes.com/athletic/6350412/2025/05/12/nascar-kansas-takeaways-hendrick-kyle-larson-championship-race/
