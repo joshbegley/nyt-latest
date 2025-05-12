@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, May 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/12/todays-new-york-times
+
+**Pope Leo XIV May Be a Stern Teacher for American Catholics**\
+`Political partisanship is likely to become an even more untenable position for American Catholics than it already is.`\
+https://nytimes.com/2025/05/12/opinion/pope-leo-american-catholic.html
+
+**My Country Is Showing America What’s Possible**\
+`Serbian protesters are bravely combating a powerful autocratic government.`\
+https://nytimes.com/2025/05/12/opinion/serbia-protests-students-vucic.html
+
+**‘The Secret Lives of Mormon Wives,’ Plus 6 Things to Watch on TV This Week**\
+`The reality show returns to Hulu, while AppleTV+ debuts a new sci-fi series.`\
+https://nytimes.com/2025/05/12/arts/television/the-secret-lives-of-mormon-wives-plus-6-things-to-watch-on-tv-this-week.html
+
 **Leafs vs. Panthers has turned into a battle of both bodies and minds**\
 `Bad blood between the Atlantic Division rivals has begun to dominate an increasingly physical series.`\
 https://nytimes.com/athletic/6349041/2025/05/12/leafs-panthers-nhl-playoffs-hits-domi-kulikov/
