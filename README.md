@@ -1,3 +1,19 @@
+**Joseph Woll looks back to his best in the Maple Leafs' net — and just in time**\
+`Despite the final scoreline, Joseph Woll pulled off one of his best performances in his playoffs career with his mother in the audience.`\
+https://nytimes.com/athletic/6348975/2025/05/12/joseph-woll-maple-leafs-nhl-playoffs-game-4/
+
+**United need positive momentum before Europa League final, but they are hobbled by indecision**\
+`United's players should be fighting to be picked for that final but against West Ham it was just more of this same historically bad season`\
+https://nytimes.com/athletic/6341774/2025/05/12/manchester-united-west-ham-europa/
+
+**Dejan Kulusevski's injury hits Tottenham where it hurts – they need him back for the Europa League final**\
+`Postecoglou says the Sweden international 'should be OK' for the season-defining game against Manchester United`\
+https://nytimes.com/athletic/6347846/2025/05/12/dejan-kulusevski-tottenham-injury-europa-league/
+
+**The Briefing: Liverpool fans turn on Alexander-Arnold, and who's been worse: Man United or Tottenham?**\
+`Man United and Tottenham occupy 16th and 17th in the Premier League and Alexander-Arnold was booed by his own fans at Anfield`\
+https://nytimes.com/athletic/6348170/2025/05/12/alexander-arnold-booing-marinakis-nuno-man-united-tottenham-lose/
+
 **Madrid: Four Clasicos, four defeats and big changes ahead – not just Ancelotti**\
 `Ancelotti's departure is expected to be announced this week and he won't be the only one on the move`\
 https://nytimes.com/athletic/6348248/2025/05/12/real-madrid-clasico-ancelotti-changes/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6348887/2025/05/12/connections-sports-edition-hints
 **Quote of the Day: Time at ESPN Revives and Informs Mullen in Return to Coaching**\
 `Quotation of the Day for Monday, May 12, 2025.`\
 https://nytimes.com/2025/05/11/pageoneplus/quote-of-the-day-time-at-espn-revives-and-informs-mullen-in-return-to-coaching.html
-
-**Donovan Mitchell to undergo MRI, says he 'will be good' for Game 5**\
-`After leaving Game 4 with an ankle injury, Mitchell said he is planning to play in Game 5 with Cleveland facing elimination.`\
-https://nytimes.com/athletic/6348937/2025/05/11/donovan-mitchell-mri-ankle-injury-cavaliers-pacers/
-
-**How OKC won the Jamal Murray matchup — and ultimately a critical Game 4**\
-`Dort's defensive task is clear in this series, and his preparation for it began long before these playoffs.`\
-https://nytimes.com/athletic/6348594/2025/05/11/thunder-nuggets-lu-dort-jamal-murray-nba-playoffs/
-
-**Maple Leafs fall flat as Panthers even series with Game 4 win: Takeaways**\
-`Panthers hold serve with 2-0 win, sending series back to Toronto deadlocked at 2-2.`\
-https://nytimes.com/athletic/6348478/2025/05/11/leafs-panthers-game-4-nhl-playoffs/
-
-**‘The Last of Us’ Season 2, Episode 5 Recap: Once Upon a Time**\
-`Dina fills in some blanks about her past. Ellie finds the first of her intended targets.`\
-https://nytimes.com/2025/05/11/arts/television/the-last-of-us-recap-season-2-episode-5.html
 

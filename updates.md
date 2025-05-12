@@ -1,3 +1,19 @@
+**Madrid: Four Clasicos, four defeats and big changes ahead – not just Ancelotti**\
+`Ancelotti's departure is expected to be announced this week and he won't be the only one on the move`\
+https://nytimes.com/athletic/6348248/2025/05/12/real-madrid-clasico-ancelotti-changes/
+
+**Postecoglou to Wrexham, Guardiola to Saudi and Frank upstairs? Predicting each Premier League manager's next job**\
+`Working out where each top-flight head coach is likely to end up next is not necessarily an easy exercise, but Tim Spiers gave it a go`\
+https://nytimes.com/athletic/6336639/2025/05/12/managers-premier-league-next-job/
+
+**Crystal Palace can beat Manchester City in the FA Cup final - this is how**\
+`Oliver Glasner's side out-classed Tottenham to ensure they go into the showpiece at Wembley with momentum, belief and a system that purrs`\
+https://nytimes.com/athletic/6335761/2025/05/12/crystal-palace-manchester-city-fa-cup-tottenham-munoz/
+
+**Donovan Mitchell to undergo MRI, says he 'will be good' for Game 5**\
+`After leaving Game 4 with an ankle injury, Mitchell said he is planning to play in Game 5 with Cleveland facing elimination.`\
+https://nytimes.com/athletic/6348937/2025/05/11/donovan-mitchell-mri-ankle-injury-cavaliers-pacers/
+
 **Can More Military Spending Revive an Economy? This British Town Hopes So.**\
 `Britain is spending billions of pounds more on defense, but wants the money to go beyond nuclear submarines to improve local jobs and prosperity. Barrow-in-Furness may be the model.`\
 https://nytimes.com/2025/05/12/business/uk-military-spending-economy.html

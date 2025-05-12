@@ -1,3 +1,15 @@
+**Madrid: Four Clasicos, four defeats and big changes ahead – not just Ancelotti**\
+`Ancelotti's departure is expected to be announced this week and he won't be the only one on the move`\
+https://nytimes.com/athletic/6348248/2025/05/12/real-madrid-clasico-ancelotti-changes/
+
+**Postecoglou to Wrexham, Guardiola to Saudi and Frank upstairs? Predicting each Premier League manager's next job**\
+`Working out where each top-flight head coach is likely to end up next is not necessarily an easy exercise, but Tim Spiers gave it a go`\
+https://nytimes.com/athletic/6336639/2025/05/12/managers-premier-league-next-job/
+
+**Crystal Palace can beat Manchester City in the FA Cup final - this is how**\
+`Oliver Glasner's side out-classed Tottenham to ensure they go into the showpiece at Wembley with momentum, belief and a system that purrs`\
+https://nytimes.com/athletic/6335761/2025/05/12/crystal-palace-manchester-city-fa-cup-tottenham-munoz/
+
 **Can More Military Spending Revive an Economy? This British Town Hopes So.**\
 `Britain is spending billions of pounds more on defense, but wants the money to go beyond nuclear submarines to improve local jobs and prosperity. Barrow-in-Furness may be the model.`\
 https://nytimes.com/2025/05/12/business/uk-military-spending-economy.html
@@ -12,7 +24,7 @@ https://nytimes.com/2025/05/11/pageoneplus/quote-of-the-day-time-at-espn-revives
 
 **Donovan Mitchell to undergo MRI, says he 'will be good' for Game 5**\
 `After leaving Game 4 with an ankle injury, Mitchell said he is planning to play in Game 5 with Cleveland facing elimination.`\
-https://nytimes.com/athletic/6348937/2025/05/11/donovan-mitchell-mri-ankle-injury-cavaliers-paceres/
+https://nytimes.com/athletic/6348937/2025/05/11/donovan-mitchell-mri-ankle-injury-cavaliers-pacers/
 
 **How OKC won the Jamal Murray matchup — and ultimately a critical Game 4**\
 `Dort's defensive task is clear in this series, and his preparation for it began long before these playoffs.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6348478/2025/05/11/leafs-panthers-game-4-nhl-playof
 **‘The Last of Us’ Season 2, Episode 5 Recap: Once Upon a Time**\
 `Dina fills in some blanks about her past. Ellie finds the first of her intended targets.`\
 https://nytimes.com/2025/05/11/arts/television/the-last-of-us-recap-season-2-episode-5.html
-
-**For Nuggets to advance, Nikola Jokić needs to do a 'better job'**\
-`After a monster Game 1 performance, Jokić hasn't quite figured out OKC. For Denver's sake, it's vital that he does.`\
-https://nytimes.com/athletic/6348465/2025/05/11/nikola-jokic-knows-he-needs-to-do-a-better-job-if-nuggets-want-to-get-past-thunder/
-
-**Cardinals takeaways: Pitching, offense continue to surge as winning streak hits 8**\
-`The red-hot Cardinals hope their good vibes continue as they gear up for a road series against the Phillies. `\
-https://nytimes.com/athletic/6348028/2025/05/11/cardinals-takeaways-pitching-offense-continue-to-surge-as-winning-streak-hits-8/
-
-**Winnipeg Jets lament controversial Game 3 winner: 'That is no goal'**\
-`The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
-https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
 
