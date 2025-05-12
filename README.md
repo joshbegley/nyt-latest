@@ -1,3 +1,7 @@
+**Tariff Truce With China Demonstrates the Limits of Trump’s Aggression**\
+`President Trump’s triple-digit tariffs on Chinese products disrupted global trade — but haven’t appeared to result in major concessions from Beijing.`\
+https://nytimes.com/2025/05/12/business/economy/trump-trade-china-tariffs.html
+
 **Trump Administration to Fast-Track Permits for Utah Uranium Mine**\
 `An environmental review of the project, known as Velvet-Wood, would normally take roughly a year. The government says it will complete the process in two weeks.`\
 https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350412/2025/05/12/nascar-kansas-takeaways-hendrick
 **Fox to Launch New Streaming Service, Fox One, This Fall**\
 `The new service will combine the company’s TV shows, cable channels and broadcast network, including National Football League games.`\
 https://nytimes.com/2025/05/12/business/media/fox-streaming-fox-one.html
-
-**Portland Thorns' Bella Bixby on returning to play after motherhood: 'It changes your body'**\
-`The NWSL’s new CBA gave Bixby a bit more confidence that having a family earlier in her career was possible.`\
-https://nytimes.com/athletic/6350601/2025/05/12/portland-thorns-bella-bixby-motherhood-returning-to-play/
 
