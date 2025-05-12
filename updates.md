@@ -1,3 +1,11 @@
+**Here are the charges against Sean Combs.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
+
+**Sharpe James, Revitalizing Newark Mayor Convicted of Corruption, Dies at 89**\
+`He presided over a rebirth of Newark’s downtown but was found guilty after leaving office of conspiring to sell city-owned properties to a former companion for a fraction of their value.`\
+https://nytimes.com/2025/05/12/nyregion/sharpe-james-dead.html
+
 **Sharpe James, Charismatic Newark Mayor Convicted of Corruption, Dies at 89**\
 `He presided over a rebirth of Newark’s downtown but was found guilty after leaving office of conspiring to sell city-owned properties to a former companion for a fraction of their value.`\
 https://nytimes.com/2025/05/12/nyregion/sharpe-james-dead.html
