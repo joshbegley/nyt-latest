@@ -1,3 +1,7 @@
+**Jets' top players must quickly find a way to outplay Mikko Rantanen and the Stars**\
+`The Jets need a signature game from Scheifele, Connor and Vilardi — offensively and defensively — to avoid the brink of elimination.`\
+https://nytimes.com/athletic/6348903/2025/05/12/nhl-jets-stars-playoffs-rantanen-scheifele/
+
 **Trump Administration Live Updates: White South Africans Granted Refugee Status Head to U.S.**\
 ``\
 https://nytimes.com/live/2025/05/12/us/trump-news

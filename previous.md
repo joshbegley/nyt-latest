@@ -1,3 +1,7 @@
+**Jets' top players must quickly find a way to outplay Mikko Rantanen and the Stars**\
+`The Jets need a signature game from Scheifele, Connor and Vilardi — offensively and defensively — to avoid the brink of elimination.`\
+https://nytimes.com/athletic/6348903/2025/05/12/nhl-jets-stars-playoffs-rantanen-scheifele/
+
 **Trump Administration Live Updates: White South Africans Granted Refugee Status Head to U.S.**\
 ``\
 https://nytimes.com/live/2025/05/12/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349166/2025/05/12/newcastle-chelsea-tactics-analys
 **Who is the judge?**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/who-is-the-judge
-
-**Live Updates: Sean Combs Sex-Trafficking Trial Set to Begin in Manhattan**\
-`The music mogul, who is also known as Diddy and Puff Daddy, faces federal racketeering charges. He has pleaded not guilty.`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial
 
