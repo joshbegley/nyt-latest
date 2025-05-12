@@ -1,3 +1,11 @@
+**Watch: Which team needs to win the NBA Draft Lottery the most?**\
+`"The Athletic NBA Daily" discussed the upcoming draft lottery and which team most needs to land the No. 1 pick.`\
+https://nytimes.com/athletic/6349597/2025/05/12/nba-daily-draft-lottery-winners/
+
+**To understand how good Carlo Ancelotti is as a club manager, look at what he does NOT do...**\
+`By signing a contract with the Brazil national team, and starting work this month, it feels like the Real Madrid boss is checking out`\
+https://nytimes.com/athletic/6322976/2025/05/12/ancelotti-real-madrid-leaves-brazil-manager/
+
 **The lead prosecutors have experience in complex racketeering cases.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-lead-prosecutors-have-experience-in-complex-racketeering-cases
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6349436/2025/05/12/sidney-crosby-world-championship
 **‘Clock Is Ticking’: E.U. Leaders Demand Russia Accept Truce by Day’s End**\
 `The Kremlin brushed off the threat of further sanctions, saying that “the language of ultimatums is unacceptable.”`\
 https://nytimes.com/2025/05/12/world/europe/russia-ukraine-putin-ceasefire.html
-
-**Irvine 'disappointed' by men’s football's reaction to English ban on transgender women**\
-`Earlier this month, the FA announced a ban on transgender women playing women’s football from June 1.`\
-https://nytimes.com/athletic/6349706/2025/05/12/irvine-fa-transgender-ban-women/
-
-**Stardom in the Ring, but an Early Death**\
-`The causes are varied, but many well-known wrestlers have died young.`\
-https://nytimes.com/2025/05/12/sports/wrestlers-died-young-andre-the-giant.html
 

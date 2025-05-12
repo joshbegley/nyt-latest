@@ -1,3 +1,11 @@
+**Watch: Which team needs to win the NBA Draft Lottery the most?**\
+`"The Athletic NBA Daily" discussed the upcoming draft lottery and which team most needs to land the No. 1 pick.`\
+https://nytimes.com/athletic/6349597/2025/05/12/nba-daily-draft-lottery-winners/
+
+**To understand how good Carlo Ancelotti is as a club manager, look at what he does NOT do...**\
+`By signing a contract with the Brazil national team, and starting work this month, it feels like the Real Madrid boss is checking out`\
+https://nytimes.com/athletic/6322976/2025/05/12/ancelotti-real-madrid-leaves-brazil-manager/
+
 **The lead prosecutors have experience in complex racketeering cases.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-lead-prosecutors-have-experience-in-complex-racketeering-cases
