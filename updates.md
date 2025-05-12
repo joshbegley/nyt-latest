@@ -1,3 +1,7 @@
+**U.S. and China Agree to Temporarily Slash Tariffs in Bid to Defuse Trade War**\
+`Officials said in a joint statement they would reduce tariffs, “recognizing the importance of a sustainable, long-term, and mutually beneficial economic and trade relationship.”`\
+https://nytimes.com/2025/05/12/business/china-us-tariffs.html
+
 **How 40 Manhattan Businesses Are Adapting to Congestion Pricing**\
 `An informal survey along Bleecker Street surfaced complaints about higher delivery costs, but most businesses are making do, even if they do not like it.`\
 https://nytimes.com/2025/05/12/nyregion/how-40-manhattan-businesses-are-adapting-to-congestion-pricing.html

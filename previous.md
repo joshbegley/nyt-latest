@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6348402/2025/05/12/barcelona-clasico-liga-title-gar
 `This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/12/learning/word-of-the-day-ephemeral.html
 
-**U.S. and China Hail Progress, but Does That Mean There’s a Trade Deal?**\
-`Both countries promised to say more on Monday about what talks over the weekend achieved. Until then, investors and businesses are guessing.`\
+**U.S. and China Agree to Temporarily Slash Tariffs in Bid to Defuse Trade War**\
+`Officials said in a joint statement they would reduce tariffs, “recognizing the importance of a sustainable, long-term, and mutually beneficial economic and trade relationship.”`\
 https://nytimes.com/2025/05/12/business/china-us-tariffs.html
 
