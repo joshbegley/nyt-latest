@@ -1,3 +1,11 @@
+**Quote of the Day: Time at ESPN Revives and Informs Mullen in Return to Coaching**\
+`Quotation of the Day for Monday, May 12, 2025.`\
+https://nytimes.com/2025/05/11/pageoneplus/quote-of-the-day-time-at-espn-revives-and-informs-mullen-in-return-to-coaching.html
+
+**Donovan Mitchell to undergo MRI, says he 'will be good' for Game 5**\
+`After leaving Game 4 with an ankle injury, Mitchell said he is planning to play in Game 5 with Cleveland facing elimination.`\
+https://nytimes.com/athletic/6348937/2025/05/11/donovan-mitchell-mri-ankle-injury-cavaliers-paceres/
+
 **How OKC won the Jamal Murray matchup — and ultimately a critical Game 4**\
 `Dort's defensive task is clear in this series, and his preparation for it began long before these playoffs.`\
 https://nytimes.com/athletic/6348594/2025/05/11/thunder-nuggets-lu-dort-jamal-murray-nba-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6348705/2025/05/11/nhl-playoffs-oettinger-hellebuyc
 **Just About Everything That’s Changed Since Congestion Pricing Took Effect**\
 `Fewer cars. Faster travel. Less honking. And some questions we still can’t answer.`\
 https://nytimes.com/interactive/2025/05/11/upshot/congestion-pricing.html
-
-**Pacers' Bennedict Mathurin ejected for hitting Cavs' De'Andre Hunter**\
-`Pacers lead the series 2-1 after stealing a pair of games in Cleveland.`\
-https://nytimes.com/athletic/6348701/2025/05/11/pacers-bennedict-mathurin-ejected-deandre-hunter/
-
-**Asia Stocks Rise on Hope for Lower Tariffs After U.S.-China Talks**\
-`Investors were optimistic after American officials touted progress in trade negotiations over the weekend, though details had yet to be released.`\
-https://nytimes.com/2025/05/11/business/us-china-trade-stock-market.html
 
