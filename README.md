@@ -1,4 +1,4 @@
-**The charges against Sean Combs.**\
+**Here are the charges against Sean Combs.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
 
