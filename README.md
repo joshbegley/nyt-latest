@@ -1,3 +1,7 @@
+**Scoop City: What's happened at rookie minicamps, what's next for Saints**\
+`Inside: Who stood out at rookie minicamp, the future of Justin Fields and the surprising retirement of Derek Carr.`\
+https://nytimes.com/athletic/6350773/2025/05/12/nfl-rookie-minicamp-takeaways-may-2025-scoop-city/
+
 **Trump Administration Considers Large Chip Sale to Emirati A.I. Firm G42**\
 `The firm, which the U.S. government scrutinized for its ties to China, is angling for hundreds of thousands of advanced artificial intelligence chips in a deal that could be finalized this week.`\
 https://nytimes.com/2025/05/12/business/economy/trump-chip-sale-to-emirati-ai-firm-g42.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350601/2025/05/12/portland-thorns-bella-bixby-moth
 **Flamingos Summon Mini-Twisters to Suck Up Prey**\
 `Three cooperative birds and a model bird head helped scientists figure out what flamingos are actually doing when they stick their heads upside down underwater.`\
 https://nytimes.com/2025/05/12/science/flamingo-vortex-beaks-water.html
-
-**Submit your questions for Mitch Bannon’s first Blue Jays mailbag**\
-`<p>It&#8217;s May 12 and the Blue Jays have won as many games as they have lost.`\
-https://nytimes.com/athletic/6350792/2025/05/12/blue-jays-mailbag-submit-questions/
 
