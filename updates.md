@@ -1,3 +1,15 @@
+**Browns announce LB Jeremiah Owusu-Koramoah (neck) will miss 2025 season**\
+`Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
+https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
+
+**Pope Leo card sets Topps Now non-sports sales record**\
+`The first American pope draws big interest from card collectors`\
+https://nytimes.com/athletic/6350770/2025/05/12/pope-leo-xiv-topps-card/
+
+**Yeshiva University Reverses Itself and Bans L.G.B.T.Q. Club**\
+`The Orthodox Jewish university had reached a settlement with the club in March but said the group had violated the agreement by “operating as a pride club under a different name.”`\
+https://nytimes.com/2025/05/12/nyregion/yeshiva-university-lgbtq-club-ban.html
+
 **Tariff Truce With China Demonstrates the Limits of Trump’s Aggression**\
 `President Trump’s triple-digit tariffs on Chinese products disrupted global trade — but haven’t appeared to result in major concessions from Beijing.`\
 https://nytimes.com/2025/05/12/business/economy/trump-trade-china-tariffs.html

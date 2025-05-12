@@ -30,8 +30,8 @@ https://nytimes.com/2025/05/12/business/economy/trump-chip-sale-to-emirati-ai-fi
 `A brief standoff unfolded on Capitol Hill after library workers turned away two top Justice Department officials installed by Todd Blanche, the deputy attorney general, who has been named acting librarian.`\
 https://nytimes.com/2025/05/12/us/politics/trump-library-of-congress.html
 
-**New York City Takes Aim at Illegal Short-Term Rentals in New Lawsuit**\
-`A Greenwich Village hotel with several safety violations that offered rooms on sites like Airbnb has become the first test of a new law cracking down on short-term rentals.`\
+**New York Sues $400-a-Night ‘Hotel’ Listed on Airbnb in Test of New Law**\
+`As it seeks to enforce a local law cracking down on short-term rentals, New York City has taken aim at a Greenwich Village hotel with several safety violations that offered rooms on sites like Airbnb.`\
 https://nytimes.com/2025/05/12/nyregion/airbnb-short-term-rentals-lawsuit.html
 
 **Trump Officials Investigate California Aid for Undocumented Immigrants**\
