@@ -1,3 +1,11 @@
+**‘Viva Papa Leo!’ At U.S. Masses, Dawn of Homegrown Pope Brings an Air of Electricity.**\
+`In Chicago, New Orleans and beyond, elated worshipers and priests celebrated their immediate sense of connection with Pope Leo.`\
+https://nytimes.com/2025/05/11/us/pope-leo-sunday-mass.html
+
+**NBA playoffs takeaways: Thunder outplay Nuggets down stretch, tie series**\
+`The Thunder tied their series with the Nuggets, while the Pacers and Cavaliers battle in Game 4. Here are our takeaways from the action.`\
+https://nytimes.com/athletic/6348212/2025/05/11/nba-playoffs-results-thunder-nuggets-cavaliers-pacers/
+
 **Stars, Mikko Rantanen gain upper hand on Jets with Game 3 victory: Takeaways**\
 `The Stars scored three third-period goals to break a tie and earn a 5-2 win in Game 3 and a 2-1 series lead.`\
 https://nytimes.com/athletic/6348528/2025/05/11/nhl-playoffs-stars-jets-game-3/
