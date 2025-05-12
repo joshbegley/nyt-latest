@@ -1,3 +1,11 @@
+**The lead prosecutors have experience in complex racketeering cases.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-lead-prosecutors-have-experience-in-complex-racketeering-cases
+
+**College baseball ranking: LSU takes series vs. Arkansas, replaces Hogs atop poll**\
+`Florida, Duke, TCU and Dallas Baptist break into the poll, replacing Oklahoma, Arizona, Troy and Miami.`\
+https://nytimes.com/athletic/6349661/2025/05/12/college-baseball-ranking-lsu-arkansas-florida-state/
+
 **The Bounce: As NBA playoff drama grows, which teams are now in second-round danger zone?**\
 `Through the first week of the second round of the playoffs, we’ve gotten a fair amount of chaos. Which teams most need a turnaround?`\
 https://nytimes.com/athletic/6349721/2025/05/12/cavaliers-pacers-tyrese-haliburton-donovan-mitchell-nba-playoffs-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6349706/2025/05/12/irvine-fa-transgender-ban-women/
 **Stardom in the Ring, but an Early Death**\
 `The causes are varied, but many well-known wrestlers have died young.`\
 https://nytimes.com/2025/05/12/sports/wrestlers-died-young-andre-the-giant.html
-
-**Ancelotti signs Brazil contract, will start this month**\
-`The Italian will leave Real Madrid after their final La Liga game of the season against Real Sociedad.`\
-https://nytimes.com/athletic/6335544/2025/05/12/carlo-ancelotti-brazil-real-madrid-exit/
-
-**College baseball week in review: Missouri — yes, Missouri sweeps Texas A&M!**\
-`It was a tough weekend for two potential Big 12 hosts. Mississippi State, Vanderbilt win heated in-state rivalries. `\
-https://nytimes.com/athletic/6348820/2025/05/12/college-baseball-missour-texas-am-lsu-arkansas/
 
