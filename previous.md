@@ -1,3 +1,11 @@
+**What you need to know ahead of the 2025 NBA Draft Lottery**\
+`Three teams each have a 14 percent chance at the top pick. History says one of those teams landing at No. 1 is far from guaranteed.`\
+https://nytimes.com/athletic/6345305/2025/05/12/nba-draft-lottery-2025-explainer-cooper-flagg/
+
+**For Catholics, the Pope Is a Holy Father. For the World, He Is a Powerful Voice**\
+`The papacy is a global platform, so the issues Pope Leo chooses to focus on can resonate far beyond the church.`\
+https://nytimes.com/2025/05/12/world/asia/pope-leo-voice-platform.html
+
 **The New York Times International Edition in Print for Tuesday, May 13, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/12/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/us/justice-david-souter-democracy-warning.html
 **Walz to Speak at 2 Democratic Events, as Jockeying for 2028 Begins**\
 `Gov. Tim Walz of Minnesota, the Democrats’ vice-presidential nominee last year, will attend state party conventions in South Carolina and California on May 31.`\
 https://nytimes.com/2025/05/12/us/politics/tim-walz-democrats-2028.html
-
-**A New Pope? Time to Make Cookies at This Queens Bakery.**\
-`Maria Notaro got to work as soon as Pope Leo XIV waved from the balcony at St. Peter’s Basilica.`\
-https://nytimes.com/2025/05/12/nyregion/pope-leo-cookies-bakery-queens.html
-
-**For Trump, It’s a New Era of Deal-Making With Tech’s Most-Coveted Commodity**\
-`As the president heads to the Middle East, America’s dominance over A.I. chips has become a powerful source of leverage for the president.`\
-https://nytimes.com/2025/05/12/business/economy/for-trump-its-a-new-era-of-deal-making-with-techs-most-coveted-commodity.html
 
