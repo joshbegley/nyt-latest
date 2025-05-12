@@ -1,3 +1,23 @@
+**In Hockey Canada sexual assault trial, defense attorney suggests E.M. initiated sex**\
+`Defense attorney Daniel Brown accused E.M. of initiating sexual contact with Alex Formenton in a London, Ont., hotel room.`\
+https://nytimes.com/athletic/6350222/2025/05/12/hockey-canada-sexual-assault-trial-2/
+
+**What Role Do You Hope the New Pope Will Play in Our World?**\
+`Do you think spiritual leaders can be effective voices in our lives, even if we are not members of their faith? If so, what issues should the new pope, Leo XIV, focus on?`\
+https://nytimes.com/2025/05/12/learning/what-role-do-you-hope-the-new-pope-will-play-in-our-world.html
+
+**Rafael Devers wins American League Player of the Week amid position-change controversy**\
+`Devers won his third AL Player of the Week award during a time when his off-field comments are generating more headlines than his hot bat.`\
+https://nytimes.com/athletic/6351022/2025/05/12/rafael-devers-player-of-the-week/
+
+**‘We’re Starting to Move Everything’: Trump’s China Deal Frees Up Shipping**\
+`The temporary lowering of tariffs may compel some U.S. businesses to order goods that they had held off buying after President Trump raised them to 145 percent.`\
+https://nytimes.com/2025/05/12/business/economy/trump-china-trade-shipments.html
+
+**'I've failed him at times': Rich Bisaccia reflects as Packers coordinators discuss team**\
+`Packers special teams coordinator Rich Bisaccia, defensive coordinator Jeff Hafley and offensive coordinator Adam Stenavich spoke Monday.`\
+https://nytimes.com/athletic/6350948/2025/05/12/green-bay-packers-coordinators-bisaccia-hafley-stevanich/
+
 **As White House Steers Justice Dept., Bondi Embraces Role of TV Messenger**\
 `Attorney General Pam Bondi has adopted a conspicuously performative approach, willing to execute White House directives with little fuss.`\
 https://nytimes.com/2025/05/12/us/politics/pam-bondi-trump-justice-dept.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6350982/2025/05/12/sheffield-united-playoff-champio
 **Leverkusen's Tah in advanced talks to join Bayern in free transfer**\
 `The 29-year-old defender confirmed in April that he would leave Leverkusen following the expiration of his contract in June.`\
 https://nytimes.com/athletic/6350906/2025/05/12/jonathan-tah-bayern-munich-transfer-update/
-
-**Tuesday Briefing: Trump’s Visit to the Gulf**\
-`Plus, a big week for the art world.`\
-https://nytimes.com/2025/05/12/briefing/trump-gulf-visit-china-us-tariffs-ukraine-russia-sanctions.html
-
-**Revealing the Many Factors Behind a Fatal Plane Crash**\
-`Two New York Times reporters chronicled the moments that led to the tragic Jan. 29 collision between a regional jet and an Army Black Hawk helicopter.`\
-https://nytimes.com/2025/05/12/insider/dc-plane-crash-investigation.html
-
-**Browns' Owusu-Koramoah will miss season, career could be in jeopardy**\
-`Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
-https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
-
-**Pope Leo card sets Topps Now non-sports sales record**\
-`The first American pope draws big interest from card collectors`\
-https://nytimes.com/athletic/6350770/2025/05/12/pope-leo-xiv-topps-card/
-
-**Yeshiva University Reverses Itself and Bans L.G.B.T.Q. Club**\
-`The Orthodox Jewish university had reached a settlement with the club in March but said the group had violated the agreement by “operating as a pride club under a different name.”`\
-https://nytimes.com/2025/05/12/nyregion/yeshiva-university-lgbtq-club-ban.html
 
