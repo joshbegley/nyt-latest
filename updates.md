@@ -1,3 +1,11 @@
+**Rich Eisen's show to move to ESPN, marking his return 22 years after departure**\
+`Eisen, who left ESPN for NFL Network in 2003, will remain the featured host on NFLN's “GameDay” and its draft coverage.`\
+https://nytimes.com/athletic/6349583/2025/05/12/rich-eisen-show-espn-return/
+
+**Read the Indictment in the Sex Trafficking Case Against Sean Combs**\
+`Federal prosecutors issued an indictment against Sean Combs that accused the music mogul known as Diddy and Puff Daddy of running a criminal enterprise that included sex trafficking, forced labor and coercion and enticement to engage in prostitution.`\
+https://nytimes.com/interactive/2025/05/12/arts/music/sean-diddy-combs-sex-trafficking-indictment-documents.html
+
 **A relatively new unit is handling the Sean Combs trial.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/criminal-civil-rights-violations
