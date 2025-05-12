@@ -1,3 +1,7 @@
+**Trump Administration to Fast-Track Permits for Utah Uranium Mine**\
+`An environmental review of the project, known as Velvet-Wood, would normally take roughly a year. The government says it will complete the process in two weeks.`\
+https://nytimes.com/2025/05/12/climate/trump-velvet-wood-uranium-utah.html
+
 **Scoop City: What's happened at rookie minicamps, what's next for Saints**\
 `Inside: Who stood out at rookie minicamp, the future of Justin Fields and the surprising retirement of Derek Carr.`\
 https://nytimes.com/athletic/6350773/2025/05/12/nfl-rookie-minicamp-takeaways-may-2025-scoop-city/
