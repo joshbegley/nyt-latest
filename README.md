@@ -14,8 +14,8 @@ https://nytimes.com/2025/05/12/insider/ao-scott-poetry.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/12/crosswords/spelling-bee-forum.html
 
-**Kurdish Insurgent Group Says It Will End Conflict With Turkish State**\
-`The Kurdistan Workers’ Party, or P.K.K., said on Monday that it would lay down its arms, a decision that could reverberate across neighboring countries.`\
+**Kurdish Insurgent Group Says It Is Ending Conflict With Turkish State**\
+`The Kurdistan Workers’ Party, or P.K.K., said that it would lay down its arms and disband, a decision that could reverberate in neighboring countries.`\
 https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html
 
 **India great Virat Kohli announces retirement from Test cricket**\
