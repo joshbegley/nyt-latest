@@ -1,3 +1,11 @@
+**Rich Eisen's show to move to ESPN, marking his return 22 years after departure**\
+`Eisen, who left ESPN for NFL Network in 2003, will remain the featured host on NFLN's “GameDay” and its draft coverage.`\
+https://nytimes.com/athletic/6349583/2025/05/12/rich-eisen-show-espn-return/
+
+**Read the Indictment in the Sex Trafficking Case Against Sean Combs**\
+`Federal prosecutors issued an indictment against Sean Combs that accused the music mogul known as Diddy and Puff Daddy of running a criminal enterprise that included sex trafficking, forced labor and coercion and enticement to engage in prostitution.`\
+https://nytimes.com/interactive/2025/05/12/arts/music/sean-diddy-combs-sex-trafficking-indictment-documents.html
+
 **A relatively new unit is handling the Sean Combs trial.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/criminal-civil-rights-violations
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/12/us/trump-news
 **Hamburg revel in the completion of their long road back to the Bundesliga**\
 `After seven long years in the wilderness, a powerhouse of German football will return to the elite next term – and are no longer a joke`\
 https://nytimes.com/athletic/6347272/2025/05/12/hamburg-hsv-bundesliga-promotion-polzin/
-
-**Nick Emmanwori's ceiling, state of the O-line, Jalen Milroe outlook: Seahawks mailbag**\
-`Also, what to expect from Sam Darnold and Byron Murphy II and a look at training camp dark horse candidates.`\
-https://nytimes.com/athletic/6340468/2025/05/12/seahawks-mailbag-nick-emmanwori-jalen-milroe/
-
-**Who should Senators target in free agency? Should they keep their 2025 first-rounder? Mailbag**\
-`Also, should the Senators consider trading away Drake Batherson? What about a right-shot defenceman to upgrade on Nick Jensen?`\
-https://nytimes.com/athletic/6335715/2025/05/12/senators-draft-trade-free-agent-giroux-batherson/
 
