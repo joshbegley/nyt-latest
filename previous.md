@@ -1,3 +1,19 @@
+**Face to Face With an Alligator? Here’s What to Do**\
+`On May 6, an alligator thrashed and tipped over a couple’s canoe in Central Florida where it attacked a woman and killed her.`\
+https://nytimes.com/2025/05/12/us/alligator-attacks-safety-tips.html
+
+**Drance: Why Canucks' options remain limited in new cap growth environment**\
+`The rising salary cap should provide the Canucks flexibility to work with this summer, but their purchasing power isn't quite so robust.`\
+https://nytimes.com/athletic/6349212/2025/05/12/canucks-roster-salary-cap-2025/
+
+**Robert Shapiro, Who Made NutraSweet a Household Name, Dies at 86**\
+`His promotion of the sugar substitute was a success. But later, as head of Monsanto, he faced blowback after the company rushed into genetically altered products.`\
+https://nytimes.com/2025/05/12/business/robert-shapiro-dead.html
+
+**Referee with past links to match-fixing to officiate Europa League final**\
+`Zwayer, 43, was given a six-month ban by his country’s football federation (DFB) for his involvement in a match-fixing scandal in 2005.`\
+https://nytimes.com/athletic/6349911/2025/05/12/europa-league-final-referee-felix-zwayer/
+
 **Can You Match These Famous Quotes to Their Novels?**\
 `Certain lines in classic novels stand out. See how many you remember in this short quiz.`\
 https://nytimes.com/interactive/2025/05/12/books/review/book-quotations-quiz.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6349597/2025/05/12/nba-daily-draft-lottery-winners/
 **To understand how good Carlo Ancelotti is as a club manager, look at what he does NOT do...**\
 `By signing a contract with the Brazil national team, and starting work this month, it feels like the Real Madrid boss is checking out`\
 https://nytimes.com/athletic/6322976/2025/05/12/ancelotti-real-madrid-leaves-brazil-manager/
-
-**The lead prosecutors have experience in complex racketeering cases.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-lead-prosecutors-have-experience-in-complex-racketeering-cases
-
-**College baseball ranking: LSU takes series vs. Arkansas, replaces Hogs atop poll**\
-`Florida, Duke, TCU and Dallas Baptist break into the poll, replacing Oklahoma, Arizona, Troy and Miami.`\
-https://nytimes.com/athletic/6349661/2025/05/12/college-baseball-ranking-lsu-arkansas-florida-state/
-
-**The Bounce: As NBA playoff drama grows, which teams are now in second-round danger zone?**\
-`Through the first week of the second round of the playoffs, we’ve gotten a fair amount of chaos. Which teams most need a turnaround?`\
-https://nytimes.com/athletic/6349721/2025/05/12/cavaliers-pacers-tyrese-haliburton-donovan-mitchell-nba-playoffs-the-bounce/
-
-**Twelve jurors and six alternates were sworn in.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/twelve-jurors-and-six-alternates-were-sworn-in
 
