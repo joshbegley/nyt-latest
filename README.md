@@ -1,3 +1,7 @@
+**Crystal Palace can beat Manchester City in the FA Cup final - this is how**\
+`Oliver Glasner's side out-classed Tottenham to ensure they go into the showpiece at Wembley with momentum, belief and a system that purrs`\
+https://nytimes.com/athletic/6335761/2025/05/12/crystal-palace-manchester-city-fa-cup-tottenham-munoz/
+
 **Can More Military Spending Revive an Economy? This British Town Hopes So.**\
 `Britain is spending billions of pounds more on defense, but wants the money to go beyond nuclear submarines to improve local jobs and prosperity. Barrow-in-Furness may be the model.`\
 https://nytimes.com/2025/05/12/business/uk-military-spending-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6348465/2025/05/11/nikola-jokic-knows-he-needs-to-d
 **Cardinals takeaways: Pitching, offense continue to surge as winning streak hits 8**\
 `The red-hot Cardinals hope their good vibes continue as they gear up for a road series against the Phillies. `\
 https://nytimes.com/athletic/6348028/2025/05/11/cardinals-takeaways-pitching-offense-continue-to-surge-as-winning-streak-hits-8/
-
-**Winnipeg Jets lament controversial Game 3 winner: 'That is no goal'**\
-`The Jets let a close game slip away thanks in part to a kicked puck that went in and held up as the game-winning goal.`\
-https://nytimes.com/athletic/6348149/2025/05/11/nhl-playoffs-winnipeg-jets-controversial-goal/
 
