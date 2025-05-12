@@ -1,3 +1,11 @@
+**A relatively new unit is handling the Sean Combs trial.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/criminal-civil-rights-violations
+
+**Barcelona's 4-3 Clasico win summed up a season of all-out attack – but should they add more control?**\
+`Barca's commitment to not killing games when they lead is admirable — but will it stop them landing European football's biggest prize?`\
+https://nytimes.com/athletic/6349368/2025/05/12/barcelona-tactics-hansi-flick-attack-clasico-champions-league/
+
 **What It Takes to Be a ‘Well Woman’**\
 `In her new book, “How to Be Well,” the writer Amy Larocca draws readers down a rabbit hole of serums, supplements and colonics. We know a lot of it doesn’t work. Why do we want it anyway?`\
 https://nytimes.com/2025/05/12/style/amy-larocca-q-and-a-how-to-be-well.html
