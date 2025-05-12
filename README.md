@@ -1,3 +1,11 @@
+**Kurdish Insurgent Group Says It Will End Conflict With Turkish State**\
+`The Kurdistan Workers’ Party, or P.K.K., said on Monday that it would lay down its arms, a decision that could reverberate across neighboring countries.`\
+https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html
+
+**India great Virat Kohli announces retirement from Test cricket**\
+`Kohli played 123 Tests in a career which lasted for 14 years after his debut in 2011. He scored 9,230 runs and made 30 centuries.`\
+https://nytimes.com/athletic/6346191/2025/05/12/virat-kohli-retires-india-cricket/
+
 **The Glazers in 2025 – Their Manchester United roles, Ratcliffe relationship and what happens next**\
 `Why the Glazers handed control to Ratcliffe, how involved they remain in the club's running and what they're planning to do next`\
 https://nytimes.com/athletic/6339593/2025/05/12/glazers-manchester-united-ratcliffe/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/world/asia/china-lula-latam-trade.html
 **The New York Times in Print for Monday, May 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/12/todays-new-york-times
-
-**Pope Leo XIV May Be a Stern Teacher for American Catholics**\
-`Political partisanship is likely to become an even more untenable position for American Catholics than it already is.`\
-https://nytimes.com/2025/05/12/opinion/pope-leo-american-catholic.html
-
-**My Country Is Showing America What’s Possible**\
-`Serbian protesters are bravely combating a powerful autocratic government.`\
-https://nytimes.com/2025/05/12/opinion/serbia-protests-students-vucic.html
 
