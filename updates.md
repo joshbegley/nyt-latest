@@ -1,3 +1,24 @@
+**Airport Chaos**\
+`It’s been a scary few months for American air travel. How did we get here?`\
+https://nytimes.com/2025/05/12/briefing/air-travel-newark-chaos.html
+
+**Diaz says he wants to stay at Liverpool for 'as long as possible'**\
+`Diaz, who has scored 46 goals for Liverpool since his January 2022 arrival from Porto, has a contract at Anfield through to 2027.`\
+https://nytimes.com/athletic/6349349/2025/05/12/luis-diaz-liverpool-future/
+
+**Who Is Edan Alexander?**\
+`Hamas said it would release the American Israeli national, who was serving in the Israeli Army when he was captured on Oct. 7, 2023.`\
+https://nytimes.com/2025/05/12/world/middleeast/edan-alexander-hamas-american-hostage-who-is.html
+
+**The Pulse: An NBA titan looks sunk**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6348706/2025/05/12/pacers-cavs-nba-playoffs-the-pulse/
+
+**Draymond Green said what many Black people feel. But then he missed the point**\
+`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+`\
+https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
+
 **Draymond Green said what many Black people feel. But then he missed the point**\
 `The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
 `\
