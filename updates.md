@@ -1,3 +1,11 @@
+**Trump Signs Executive Order Asking Drugmakers to Slash Prices**\
+`President Trump’s executive order, which did not include specific legal mechanisms for lowering drug prices, was viewed as something of a win for the pharmaceutical industry.`\
+https://nytimes.com/video/us/politics/100000010164040/trump-executive-order-drug-prices.html
+
+**The testimony of one woman who has accused Combs is uncertain.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/victim-3-witness
+
 **What to Do When You Have a Pimple Emergency**\
 `Expert advice on dealing with breakouts from the artist SZA, the dermatologist David Kim and the aesthetician Tiara Willis.`\
 https://nytimes.com/2025/05/12/t-magazine/acne-treatment-pimple-emergency-tips.html
