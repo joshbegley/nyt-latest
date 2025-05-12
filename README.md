@@ -1,3 +1,15 @@
+**Browns announce LB Jeremiah Owusu-Koramoah (neck) will miss 2025 season**\
+`Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
+https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
+
+**Pope Leo card sets Topps Now non-sports sales record**\
+`The first American pope draws big interest from card collectors`\
+https://nytimes.com/athletic/6350770/2025/05/12/pope-leo-xiv-topps-card/
+
+**Yeshiva University Reverses Itself and Bans L.G.B.T.Q. Club**\
+`The Orthodox Jewish university had reached a settlement with the club in March but said the group had violated the agreement by “operating as a pride club under a different name.”`\
+https://nytimes.com/2025/05/12/nyregion/yeshiva-university-lgbtq-club-ban.html
+
 **Tariff Truce With China Demonstrates the Limits of Trump’s Aggression**\
 `President Trump’s triple-digit tariffs on Chinese products disrupted global trade — but haven’t appeared to result in major concessions from Beijing.`\
 https://nytimes.com/2025/05/12/business/economy/trump-trade-china-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/nyregion/airbnb-short-term-rentals-lawsuit.html
 **Trump Officials Investigate California Aid for Undocumented Immigrants**\
 `The Department of Homeland Security is focusing on a program that provides cash assistance to certain individuals who are older, blind or disabled.`\
 https://nytimes.com/2025/05/12/us/politics/trump-california-aid-investigation.html
-
-**Last Living American Hostage Arrives Back in Israel**\
-`A convoy carrying Edan Alexander, the last living American hostage held in Gaza, arrived at the Reim Military Base on Monday after his release from Hamas.`\
-https://nytimes.com/video/world/middleeast/100000010164439/american-hostage-released-edan-alexander.html
-
-**Kansas takeaways: Hendrick firing on all cylinders, championship race venues and more**\
-`Kyle Larson's dominant win capped a strong day for Hendrick, drivers discuss their championship preferences and more from Kansas.`\
-https://nytimes.com/athletic/6350412/2025/05/12/nascar-kansas-takeaways-hendrick-kyle-larson-championship-race/
-
-**Fox to Launch New Streaming Service, Fox One, This Fall**\
-`The new service will combine the company’s TV shows, cable channels and broadcast network, including National Football League games.`\
-https://nytimes.com/2025/05/12/business/media/fox-streaming-fox-one.html
 
