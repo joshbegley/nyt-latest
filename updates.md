@@ -1,3 +1,7 @@
+**The last 5 pontiffs have held audiences with the news media.**\
+`The last five pontiffs have addressed members of the international news media who reported on the conclaves that elected them.`\
+https://nytimes.com/live/2025/05/12/world/pope-leo-news/the-last-5-pontiffs-have-held-audiences-with-the-news-media
+
 **Cheers, Chants and a ‘Dance of the Little Devils’ for Pope Leo in Peru**\
 `People in the city of Chiclayo, where Leo XIV served as bishop for about eight years, gathered to celebrate a man they see as one of their own.`\
 https://nytimes.com/2025/05/12/world/europe/pope-leo-peru.html
