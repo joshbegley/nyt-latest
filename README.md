@@ -1,9 +1,13 @@
+**Word of the Day: ephemeral**\
+`This word has appeared in 121 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/12/learning/word-of-the-day-ephemeral.html
+
 **U.S. and China Hail Progress, but Does That Mean There’s a Trade Deal?**\
 `Both countries promised to say more on Monday about what talks over the weekend achieved. Until then, investors and businesses are guessing.`\
 https://nytimes.com/2025/05/12/business/china-us-tariffs.html
 
 **Beckham hits back at rival taunt after latest Miami defeat, issues linger**\
-`The Inter Miami owner was unimpressed by Minnesota United's account after his team's latest defeat.`\
+`The Inter Miami owner was unimpressed by Minnesota United's Instagram account after his team's latest defeat.`\
 https://nytimes.com/athletic/6349105/2025/05/12/beckham-inter-miami-taunt-messi/
 
 **Republicans Propose Paring Medicaid Coverage but Steer Clear of Deeper Cuts**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/arts/television/the-secret-lives-of-mormon-wives-
 **Leafs vs. Panthers has turned into a battle of both bodies and minds**\
 `Bad blood between the Atlantic Division rivals has begun to dominate an increasingly physical series.`\
 https://nytimes.com/athletic/6349041/2025/05/12/leafs-panthers-nhl-playoffs-hits-domi-kulikov/
-
-**Takeaways from the Giants' getting swept out of Minnesota**\
-`Offering thoughts and tidbits from a weekend series that the Giants and their fans would do well to forget.`\
-https://nytimes.com/athletic/6347887/2025/05/12/giants-takeaways-swept-by-twins/
 
