@@ -1,40 +1,40 @@
-**The last 5 pontiffs have held audiences with the news media.**\
-`The last five pontiffs have addressed members of the international news media who reported on the conclaves that elected them.`\
-https://nytimes.com/live/2025/05/12/world/pope-leo-news/the-last-5-pontiffs-have-held-audiences-with-the-news-media
+**Bears rookie minicamp takeaways: Coaches offer early impressions of draft picks**\
+`We heard from the Bears' coordinators during rookie minicamp and learned what stood out to them about Ryan Poles' 2025 draft class.`\
+https://nytimes.com/athletic/6346667/2025/05/12/bears-rookie-minicamp-rookie-impressions/
 
-**Cheers, Chants and a ‘Dance of the Little Devils’ for Pope Leo in Peru**\
-`People in the city of Chiclayo, where Leo XIV served as bishop for about eight years, gathered to celebrate a man they see as one of their own.`\
-https://nytimes.com/2025/05/12/world/europe/pope-leo-peru.html
+**Ryan Fitzgerald brings accuracy, big leg to Panthers' kicking competition**\
+`Dave Canales said the Panthers liked what they saw in Ryan Fitzgerald before bringing him in. “The ball jumps off of his foot," he said.`\
+https://nytimes.com/athletic/6347714/2025/05/12/panthers-ryan-fitzgerald-kicking-competition/
 
-**UEFA urged to increase payments to non-elite clubs**\
-`The 36 teams in the league phase of the UCL would not be eligible for the payments, as they already receive huge sums in prize money.`\
-https://nytimes.com/athletic/6348271/2025/05/12/uefa-payments-increase-european-leagues/
+**Browns rookie minicamp: Open QB competition heats up later this month**\
+`Gabriel and Sanders got their reps in rookie minicamp and will join Joe Flacco and Kenny Pickett in the offseason program.`\
+https://nytimes.com/athletic/6348264/2025/05/12/browns-rookie-minicamp-shedeur-sanders-dillon-gabriel-quarterbacks/
 
-**Here’s the latest.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/05/12/world/pope-leo-news/heres-the-latest
+**Cowboys mailbag: George Pickens thoughts, offensive changes, biggest reason for optimism**\
+`The trade for Pickens solved one glaring hole, but where else do the Cowboys still have work to do between now and Week 1?`\
+https://nytimes.com/athletic/6348292/2025/05/12/cowboys-mailbag-george-pickens-strengths-weaknesses/
 
-**Live Updates: Leo XIV to Address Journalists for First Time as Pope**\
-`The pontiff is holding his first meeting with the news media at the Vatican, a tradition that in the past has offered indications of how the new head of the Roman Catholic Church intends to lead.`\
-https://nytimes.com/live/2025/05/12/world/pope-leo-news
+**Auction to Dine With Trump Creates Foreign Influence Opportunity**\
+`When the bidding stops Monday, the top buyers of a Trump family crypto coin will win a tour of the White House.`\
+https://nytimes.com/2025/05/12/us/politics/auction-to-dine-with-trump-creates-foreign-influence-opportunity.html
 
-**How 40 Manhattan Businesses Are Adapting to Congestion Pricing**\
-`An informal survey along Bleecker Street surfaced complaints about higher delivery costs, but most businesses are making do, even if they do not like it.`\
-https://nytimes.com/2025/05/12/nyregion/how-40-manhattan-businesses-are-adapting-to-congestion-pricing.html
+**A Warning From Justice Souter: Democracy Is in Peril**\
+`Justice David H. Souter, who died last week, said in 2012 that public ignorance of the Constitution could lead to the rise of an autocrat and the death of democracy.`\
+https://nytimes.com/2025/05/12/us/justice-david-souter-democracy-warning.html
 
-**Unexpected Outcomes of Congestion Pricing**\
-`Almost immediately after congestion pricing took effect in Midtown and Lower Manhattan, it began to alter traffic patterns, commuter behavior, transit service and even city noise.`\
-https://nytimes.com/video/upshot/100000010155248/unexpected-outcomes-of-congestion-pricing.html
+**Walz to Speak at 2 Democratic Events, as Jockeying for 2028 Begins**\
+`Gov. Tim Walz of Minnesota, the Democrats’ vice-presidential nominee last year, will attend state party conventions in South Carolina and California on May 31.`\
+https://nytimes.com/2025/05/12/us/politics/tim-walz-democrats-2028.html
 
-**How a Film Critic Was Lured Back to Literature**\
-`A.O. Scott, who reviewed movies for The New York Times for more than two decades, is now a roving critic for the Book Review.`\
-https://nytimes.com/2025/05/12/insider/ao-scott-poetry.html
+**A New Pope? Time to Make Cookies at This Queens Bakery.**\
+`Maria Notaro got to work as soon as Pope Leo XIV waved from the balcony at St. Peter’s Basilica.`\
+https://nytimes.com/2025/05/12/nyregion/pope-leo-cookies-bakery-queens.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/12/crosswords/spelling-bee-forum.html
+**For Trump, It’s a New Era of Deal-Making With Tech’s Most-Coveted Commodity**\
+`As the president heads to the Middle East, America’s dominance over A.I. chips has become a powerful source of leverage for the president.`\
+https://nytimes.com/2025/05/12/business/economy/for-trump-its-a-new-era-of-deal-making-with-techs-most-coveted-commodity.html
 
-**Kurdish Insurgent Group Says It Is Ending Conflict With Turkish State**\
-`The Kurdistan Workers’ Party, or P.K.K., said that it would lay down its arms and disband, a decision that could reverberate in neighboring countries.`\
-https://nytimes.com/2025/05/12/world/europe/kurdish-pkk-turkey.html
+**In Illinois Senate Race, Old Grudges and a Test of Pritzker’s Power**\
+`Few policy differences have emerged among the Democrats vying to replace the retiring Senator Richard J. Durbin, while Gov. JB Pritzker’s influence looms large.`\
+https://nytimes.com/2025/05/12/us/politics/illinois-senate-race-durbin-pritzker.html
 
