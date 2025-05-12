@@ -1,3 +1,15 @@
+**How OKC won the Jamal Murray matchup — and ultimately a critical Game 4**\
+`Dort's defensive task is clear in this series, and his preparation for it began long before these playoffs.`\
+https://nytimes.com/athletic/6348594/2025/05/11/thunder-nuggets-lu-dort-jamal-murray-nba-playoffs/
+
+**Maple Leafs fall flat as Panthers even series with Game 4 win: Takeaways**\
+`Panthers hold serve with 2-0 win, sending series back to Toronto deadlocked at 2-2.`\
+https://nytimes.com/athletic/6348478/2025/05/11/leafs-panthers-game-4-nhl-playoffs/
+
+**Oettinger, not Hellebuyck, has to be Team USA's top goalie in Milan**\
+`One is the best regular-season goalie on the planet. The other shows up in big games — and the Team USA brass must take note.`\
+https://nytimes.com/athletic/6348705/2025/05/11/nhl-playoffs-oettinger-hellebuyck-team-usa-olympics/
+
 **Maple Leafs fall flat as Panthers even series with Game 4 win: Takeaways**\
 `Panthers hold serve at home with 2-0 win, sending series back to Toronto deadlocked at 2-2.`\
 https://nytimes.com/athletic/6348478/2025/05/11/leafs-panthers-game-4-nhl-playoffs/
