@@ -14,7 +14,7 @@ https://nytimes.com/2025/05/12/briefing/trump-gulf-visit-china-us-tariffs-ukrain
 `Two New York Times reporters chronicled the moments that led to the tragic Jan. 29 collision between a regional jet and an Army Black Hawk helicopter.`\
 https://nytimes.com/2025/05/12/insider/dc-plane-crash-investigation.html
 
-**Browns' Owusu-Koramoah will miss 2025 season, career could be in jeopardy**\
+**Browns' Owusu-Koramoah will miss season, career could be in jeopardy**\
 `Owusu-Koramoah, a 2023 Pro Bowler, injured his neck during a collision with Ravens RB Derrick Henry last season. `\
 https://nytimes.com/athletic/6350965/2025/05/12/browns-jeremiah-owusu-koramoah-out-2025-season/
 
