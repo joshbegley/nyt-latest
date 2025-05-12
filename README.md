@@ -1,4 +1,8 @@
-**Sharpe James, Charismatic Newark Mayor Convicted of Corruption, Dies at 89**\
+**The charges against Sean Combs.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/the-charges-against-sean-combs
+
+**Sharpe James, Revitalizing Newark Mayor Convicted of Corruption, Dies at 89**\
 `He presided over a rebirth of Newark’s downtown but was found guilty after leaving office of conspiring to sell city-owned properties to a former companion for a fraction of their value.`\
 https://nytimes.com/2025/05/12/nyregion/sharpe-james-dead.html
 
@@ -35,8 +39,4 @@ https://nytimes.com/2025/05/12/us/politics/trump-houthis-bombing.html
 **Sean Combs’s lawyer says he committed violence, but not sex trafficking.**\
 `By Julia Jacobs and Benjamin Weiser`\
 https://nytimes.com/live/2025/05/12/arts/sean-combs-diddy-trial/sean-combss-lawyer-says-he-committed-violence-but-not-sex-trafficking
-
-**Hawley Urges Republicans Not to Cut Medicaid as House Debates Reductions**\
-`The Republican senator from Missouri called potentially deep cuts in the program “morally wrong” and “politically suicidal” for his party as it courts working-class voters.`\
-https://nytimes.com/2025/05/12/us/politics/hawley-medicaid-cuts-republicans.html
 
