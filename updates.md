@@ -1,3 +1,8 @@
+**Draymond Green said what many Black people feel. But then he missed the point**\
+`The stereotype of the “angry Black man” or “angry Black woman” is very real. But that’s not what Draymond Green’s situation is. 
+`\
+https://nytimes.com/athletic/6347864/2025/05/12/draymond-green-angry-black-man-stereotype-warriors/
+
 **Do Ravens need Jadeveon Clowney? It depends on how they view their young edge rushers**\
 `Clowney had one of his best seasons with Baltimore in 2023, tying a career high with 9.5 sacks and playing a disruptive brand of football.`\
 https://nytimes.com/athletic/6345903/2025/05/12/ravens-edge-rushers-jadeveon-clowney/
