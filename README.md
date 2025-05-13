@@ -1,3 +1,15 @@
+**NFL to cancel Accelerator program designed to promote diversity hiring practices**\
+`To date, only two accelerator alumni have managed to secure jobs thanks in part to the program.`\
+https://nytimes.com/athletic/6353235/2025/05/13/nfl-diversity-program-coach-candidates-hiatus-improvements/
+
+**In Private, Some Israeli Officers Admit That Gaza Is on the Brink of Starvation**\
+`Israel’s government has publicly dismissed warnings of extreme food shortages after it blocked aid deliveries, but an internal analysis concluded that a crisis looms if food supplies are not restored.`\
+https://nytimes.com/2025/05/13/world/middleeast/gaza-famine-starvation-israel.html
+
+**Submit your Padres questions for Dennis Lin’s mailbag**\
+`It’s only mid-May, but the San Diego Padres appear to have a legitimate shot of winning their first National League West title since 2006.`\
+https://nytimes.com/athletic/6042129/2025/05/13/submit-your-padres-questions-for-dennis-lins-mailbag-2/
+
 **Saudi King Salman absent so far from Trump state visit.**\
 `By Ismaeel Naar`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/trump-saudi-arabia-crown-prince-salman
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/13/business/media/cnn-streaming-service.html
 **Review: A New ‘Antony and Cleopatra’ Opera Sags at the Met**\
 `John Adams’s Shakespeare adaptation has been trimmed since its premiere, but still struggles with setting a flood of dense Elizabethan verse.`\
 https://nytimes.com/2025/05/13/arts/music/review-antony-and-cleopatra-met-opera-john-adams.html
-
-**The Ballot Basics of Ranked-Choice Voting**\
-`New Yorkers can fill in five circles when they vote in the mayoral primary. Most don’t.`\
-https://nytimes.com/2025/05/13/nyregion/nyc-ranked-choice-voting.html
-
-**Pirates' Paul Skenes to pitch for Team USA in 2026 World Baseball Classic**\
-`Skenes is 3-4 on the season with a 2.63 ERA in 54 2/3 innings entering Tuesday.`\
-https://nytimes.com/athletic/6353109/2025/05/13/paul-skenes-team-usa-world-baseball-classic/
-
-**Trump Aims to Use More F.B.I., Drug and Gun Agents to Pursue Immigrants**\
-`The Justice Department plans to bolster enforcement and deportation work in 25 cities across the United States.`\
-https://nytimes.com/2025/05/13/us/politics/trump-immigration-fbi-gun-drug-agents.html
 
