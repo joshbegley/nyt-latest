@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Knicks complete another comeback as Celtics lose Tatum to injury**\
+`This game was not a Celtics letdown. It was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
+https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
+
 **Jayson Tatum carried off with injury at end of Knicks vs. Celtics Game 4**\
 `The Celtics are now surprisingly down 3-1 in the series.`\
 https://nytimes.com/athletic/6351649/2025/05/12/jayson-tatum-leaves-game-injury-celtics-knicks-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/us/politics/supreme-court-venezuelan-detainees.ht
 **'He's in a good spot': Yankees' DJ LeMahieu expected to return Tuesday**\
 `LeMahieu, 36, hasn't played in a big-league game since Sept. 3.`\
 https://nytimes.com/athletic/6351529/2025/05/12/yankees-dj-lemahieu-expected-return-tuesday/
-
-**3 Climbers Die After Falling in North Cascades in Washington State**\
-`A fourth climber was seriously injured in what the authorities called a hiking accident in the mountain range.`\
-https://nytimes.com/2025/05/12/us/climbers-killed-north-cascades-washington.html
 

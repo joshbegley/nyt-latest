@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Knicks complete another comeback as Celtics lose Tatum to injury**\
+`This game was not a Celtics letdown. It was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
+https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
+
 **Jayson Tatum carried off with injury at end of Knicks vs. Celtics Game 4**\
 `The Celtics are now surprisingly down 3-1 in the series.`\
 https://nytimes.com/athletic/6351649/2025/05/12/jayson-tatum-leaves-game-injury-celtics-knicks-nba-playoffs/
