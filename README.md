@@ -1,3 +1,7 @@
+**The Knicks are one win away from ending a 25-year drought. Here's how it happened**\
+`New York has the defending champs on the ropes. Now, the Knicks need to finish the job.`\
+https://nytimes.com/athletic/6351918/2025/05/13/knicks-beat-celtics-game-4/
+
 **Stephen Colbert Thinks the Nickname ‘Lady Giuliani’ Suits Jeanine Pirro**\
 `Colbert said President Trump’s latest appointment from the Fox News roster “drank a whole bottle of champagne, and then someone told her the news.”`\
 https://nytimes.com/2025/05/13/arts/television/stephen-colbert-jeanine-pirro.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/opinion/saudi-arabia-trump-visit.html
 **New Threats Require a New Army**\
 `A new doctrine will transform the kinds of weapons America uses, how they are purchased and how fast they get into the hands of soldiers.`\
 https://nytimes.com/2025/05/13/opinion/us-army-weapons-reform.html
-
-**Padres top prospect Ethan Salas to miss 2 months with stress reaction in lower back**\
-`Salas signed with the Padres in January 2023 for $5.6 million, the largest bonus in that year's international signing class.`\
-https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-months-lower-back/
 
