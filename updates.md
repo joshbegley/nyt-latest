@@ -1,3 +1,11 @@
+**Jayson Tatum injury is Celtics' biggest concern, but minds must be clear for Game 5**\
+`Tatum had been Boston’s iron man. Seeing him helped off the court ripped a hole in the Celtics.`\
+https://nytimes.com/athletic/6352201/2025/05/13/jayson-tatum-celtics-knicks-nba-playoffs/
+
+**Defining short- and long-term expectations for the Bears' top 4 draft picks**\
+`The Bears drafted four players in the first two rounds of the NFL Draft this year.`\
+https://nytimes.com/athletic/6350638/2025/05/13/bears-draft-pick-expectations-colston-loveland/
+
 **What are realistic expectations for Vikings QB J.J. McCarthy? What the history tells us**\
 `The Vikings may be waiting to declare McCarthy the starter, but he is receiving the starter reps. Just how good can he be in 2025?`\
 https://nytimes.com/athletic/6350631/2025/05/13/jj-mccarthy-minnesota-vikings-expectations/
