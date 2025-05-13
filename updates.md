@@ -1,3 +1,7 @@
+**Jayson Tatum carried off with injury at end of Knicks vs. Celtics Game 4**\
+`The Celtics are now surprisingly down 3-1 in the series.`\
+https://nytimes.com/athletic/6351649/2025/05/12/jayson-tatum-leaves-game-injury-celtics-knicks-nba-playoffs/
+
 **Skipper, Informally**\
 `Joe Rodini’s puzzle hits the spot.`\
 https://nytimes.com/2025/05/12/crosswords/daily-puzzle-2025-05-13.html
