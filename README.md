@@ -1,3 +1,11 @@
+**Oilers were better, faster and more desperate than Golden Knights in dominant Game 4 win**\
+`Vegas was dominated in nearly every aspect to push their season to the brink of elimination. `\
+https://nytimes.com/athletic/6352105/2025/05/13/oilers-golden-knights-game-4-nhl-playoffs/
+
+**Kashmiris Return to Rubble After India-Pakistan Truce**\
+`Kashmiris caught in the middle of the conflict between India and Pakistan sifted through the ruins of their homes, as many feared the cease-fire would be short-lived.`\
+https://nytimes.com/video/world/asia/100000010165462/kashmiris-return-to-rubble-after-india-pakistan-truce.html
+
 **Murray, Djokovic announce end of coaching partnership ahead of French Open**\
 `Murray joined Djokovic’s coaching team in November ahead of the 2025 season, and was in his box for the Australian Open.`\
 https://nytimes.com/athletic/6352148/2025/05/13/andy-murray-novak-djokovic-coaching/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/nyregion/harvey-weinstein-trial-what-to-know.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/13/crosswords/spelling-bee-forum.html
-
-**An L.A. Doctor’s House Burned. Now He Treats the Fires’ Effects in Neighbors.**\
-`A new clinic, opened by a pulmonologist who lost his home in the Palisades blaze, is addressing the health issues developing among people exposed to the fires.`\
-https://nytimes.com/2025/05/13/health/los-angeles-fire-health-effects.html
-
-**A Toxic Pit Could Be a Gold Mine for Rare-Earth Elements**\
-`Mining continues at the Continental Pit. Nearby is the Berkeley Pit, a site for acid mine drainage that poses an opportunity for extracting valuable metals.`\
-https://nytimes.com/2025/05/13/science/berkeley-mine-pit-rare-earths.html
 
