@@ -1,3 +1,11 @@
+**A Trump visit is the right moment for a U.S.-Saudi business frenzy.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-the-right-moment-for-a-us-saudi-business-frenzy
+
+**How Minor Missteps Are Getting Tenants Evicted**\
+`In some Illinois cities, shoplifting, calling 911 too many times or even being a victim of a crime can get you kicked out of your home. Sidnee King Pineda, who is reporting on housing laws in Illinois as part of The Times’s Local Investigations Fellowship, explains why.`\
+https://nytimes.com/video/us/100000010090081/how-minor-missteps-are-getting-tenants-evicted.html
+
 **Warriors have some serious spacing issues and their season is drowning because of it**\
 `Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
 https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/

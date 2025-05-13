@@ -1,3 +1,11 @@
+**A Trump visit is the right moment for a U.S.-Saudi business frenzy.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-the-right-moment-for-a-us-saudi-business-frenzy
+
+**How Minor Missteps Are Getting Tenants Evicted**\
+`In some Illinois cities, shoplifting, calling 911 too many times or even being a victim of a crime can get you kicked out of your home. Sidnee King Pineda, who is reporting on housing laws in Illinois as part of The Times’s Local Investigations Fellowship, explains why.`\
+https://nytimes.com/video/us/100000010090081/how-minor-missteps-are-getting-tenants-evicted.html
+
 **Warriors have some serious spacing issues and their season is drowning because of it**\
 `Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
 https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
 **Ex-Man United sporting director Ashworth set for FA return**\
 `The 54-year-old left his role at Old Trafford on December 8, just five months after being hired.`\
 https://nytimes.com/athletic/6230130/2025/05/13/manchester-united-ashworth-fa/
-
-**A look back at the historic tracks that held F1's first world championship season**\
-`The seven tracks that launched Formula 1 in 1950 tell stories of daring, tragedy and evolution that shaped the sport`\
-https://nytimes.com/athletic/6350551/2025/05/13/1950-f1-75-anniversary/
-
-**No Naked Dressing? How Will Stars Make News?**\
-`A new dress code at the Cannes Film Festival has set off a tempest in tulle.`\
-https://nytimes.com/2025/05/13/style/cannes-film-festival-naked-dressing-ban.html
 
