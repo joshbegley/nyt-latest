@@ -1,3 +1,15 @@
+**I Get Bored at the Beach. Where Should I Go This Summer?**\
+`Suggestions for last-minute trips geared toward four very different kinds of traveler.`\
+https://nytimes.com/2025/05/13/t-magazine/summer-travel-guide.html
+
+**The Giants are struggling to score runs. Here are some reasons why**\
+`The Giants came into the year as team with potential scoring issues. That issue remains. These are the root causes of those hitting woes.`\
+https://nytimes.com/athletic/6353204/2025/05/13/sf-giants-offense-struggles/
+
+**José Mujica, Leftist President of Uruguay Known for Humility, Dies at 89**\
+`Serving from 2010 to 2015, he refused to accept a presidential salary or live on a presidential estate as he sought to improve the lives of ordinary citizens.`\
+https://nytimes.com/2025/05/13/obituaries/jose-mujica-dead.html
+
 **The Pope’s Florida Brother, a MAGA Disciple, Plans to ‘Tone It Down’**\
 `Louis Prevost’s Facebook posts — no longer publicly viewable — suggest that he has embraced some of the most common complaints and conspiracy theories of the right.`\
 https://nytimes.com/2025/05/13/us/the-popes-florida-brother-a-maga-disciple-plans-to-tone-it-down.html
