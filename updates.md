@@ -1,3 +1,20 @@
+**As Trump Courts Gifts and Dangles Access, Congress Sits on the Sidelines**\
+`Republicans on Capitol Hill seem unlikely to challenge President Trump as he pushes ethics guardrails around profiting from the presidency to the breaking point.`\
+https://nytimes.com/2025/05/13/us/politics/congress-republican-reaction-trump-qatar-plane.html
+
+**USMNT lines up World Cup tune-up friendlies against Japan, South Korea**\
+`It'll be 2026 World Cup cohost against the 2002 cohosts in a pair of September friendlies.`\
+https://nytimes.com/athletic/6353573/2025/05/13/usmnt-japan-south-korea-friendlies-world-cup/
+
+**Milton Williams after getting called out by Patriots coach Mike Vrabel: 'I like that'**\
+`“He wants me to go fast and empty the tank every rep,” Williams said. “I like that. ... Calling me out is going to help the other guys."`\
+https://nytimes.com/athletic/6353665/2025/05/13/milton-williams-patriots-mike-vrabel/
+
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
 **Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
 `The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
 `\

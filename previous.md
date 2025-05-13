@@ -1,3 +1,15 @@
+**As Trump Courts Gifts and Dangles Access, Congress Sits on the Sidelines**\
+`Republicans on Capitol Hill seem unlikely to challenge President Trump as he pushes ethics guardrails around profiting from the presidency to the breaking point.`\
+https://nytimes.com/2025/05/13/us/politics/congress-republican-reaction-trump-qatar-plane.html
+
+**USMNT lines up World Cup tune-up friendlies against Japan, South Korea**\
+`It'll be 2026 World Cup cohost against the 2002 cohosts in a pair of September friendlies.`\
+https://nytimes.com/athletic/6353573/2025/05/13/usmnt-japan-south-korea-friendlies-world-cup/
+
+**Milton Williams after getting called out by Patriots coach Mike Vrabel: 'I like that'**\
+`“He wants me to go fast and empty the tank every rep,” Williams said. “I like that. ... Calling me out is going to help the other guys."`\
+https://nytimes.com/athletic/6353665/2025/05/13/milton-williams-patriots-mike-vrabel/
+
 **Saudis Greet Trump to His Tastes, With Pomp, Opulence and Real Estate**\
 `The Saudi crown prince gave President Trump a warm and opulent welcome, reflecting the amity between a royal family and presidential family with diplomatic and business alliances.`\
 https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-arabia.html
@@ -26,16 +38,4 @@ https://nytimes.com/2025/05/13/health/joe-biden-prostate-nodule-cancer.html
 **Thompson: For Steph Curry's Warriors, these playoffs are a cruel trick — and he can only watch**\
 `With Curry on the court, the Warriors might be contenders in these playoffs. Without him, they're starved and staring at an early exit.`\
 https://nytimes.com/athletic/6353472/2025/05/13/steph-curry-warriors-playoffs-injury-timberwolves-game-5/
-
-**Jackson Cantwell, nation's top prospect, picks Miami over Georgia, Oregon, Ohio State**\
-`Cantwell, a Missouri native, is the first top-100 prospect in the Hurricanes' 2026 class. `\
-https://nytimes.com/athletic/6352864/2025/05/13/jackson-cantwell-recruiting-miami-five-star/
-
-**DOGE Removes Dozens of Resurrected Contracts From Its List of Savings**\
-`Elon Musk’s group is no longer claiming credit for canceling those contracts after The New York Times reported that they were revived.`\
-https://nytimes.com/2025/05/13/us/politics/doge-musk-contracts-trump.html
-
-**The Surprising Health Benefits of Becoming Pope**\
-`Such a demanding job can be good for the brain and body. But Pope Leo XIV may also have to contend with challenges that are common in old age.`\
-https://nytimes.com/2025/05/13/well/pope-health-leo.html
 
