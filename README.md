@@ -1,9 +1,13 @@
+**Wizards' NBA Draft Lottery results can be summed up by one word: Cruel**\
+`There's no sugarcoating this. This was a disastrous night for the Wizards, in an epoch of seemingly never-ending disasters.`\
+https://nytimes.com/athletic/6351248/2025/05/12/wizards-nba-draft-lottery/
+
 **Full Time: How NWSL handled a scary moment**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6351732/2025/05/12/nwsl-savy-king-incident-full-time/
 
 **NBA playoffs: Knicks rally once again; Celtics' Jayson Tatum exits with injury**\
-`This game was not a Celtics letdown. It was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
+`This game was not a Celtics letdown; it was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
 https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
 
 **Jayson Tatum carried off with injury at end of Knicks vs. Celtics Game 4**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351448/2025/05/12/nba-world-reacts-mavericks-draft
 **2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
 `We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
 https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
-
-**Trump Administration Asks Supreme Court to Allow Venezuelan Deportations to Resume**\
-`The solicitor general contended that a group of migrants had barricaded themselves inside a Texas detention center and threatened to take hostages.`\
-https://nytimes.com/2025/05/12/us/politics/supreme-court-venezuelan-detainees.html
 
