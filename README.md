@@ -1,3 +1,7 @@
+**OpenAI in Talks to Acquire Windsurf, a Programming Tool, for $3 Billion**\
+`The deal could be a way for OpenAI to gain a foothold among programmers, who are rapidly embracing A.I. technologies.`\
+https://nytimes.com/2025/05/13/technology/openai-windsurf-talks.html
+
 **Trump Said He Would Lift Sanctions on Syria**\
 `Also, a star witness took the stand in Sean Combs’s trial. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/05/13/briefing/trump-middle-east-trip-sean-combs-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/obituaries/jose-mujica-dead.html
 **The Pope’s Florida Brother, a MAGA Disciple, Plans to ‘Tone It Down’**\
 `Louis Prevost’s Facebook posts — no longer publicly viewable — suggest that he has embraced some of the most common complaints and conspiracy theories of the right.`\
 https://nytimes.com/2025/05/13/us/louis-prevost-pope-leo-xiv-brother.html
-
-**The Virtues of Ideological Art**\
-`Why politics doesn’t necessarily ruin storytelling.`\
-https://nytimes.com/2025/05/13/opinion/right-wing-art.html
 
