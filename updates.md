@@ -1,3 +1,7 @@
+**Tory Lanez Is Attacked by Another Inmate in Prison**\
+`The rapper was hospitalized after being stabbed 14 times, his Instagram account said. He is serving a 10-year sentence for shooting the hip-hop star Megan Thee Stallion.`\
+https://nytimes.com/2025/05/13/us/tory-lanez-attacked-prison.html
+
 **Cubs planning to promote big-time prospect Moisés Ballesteros for Wrigley debut: Source**\
 `The Cubs are hoping for instant offense from Ballesteros, a gifted left-handed hitter who has consistently excelled in the minor leagues.`\
 https://nytimes.com/athletic/6352037/2025/05/13/cubs-moises-ballesteros/
