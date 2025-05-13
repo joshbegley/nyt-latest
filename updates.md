@@ -1,3 +1,11 @@
+**Wizards' NBA Draft Lottery results can be summed up by one word: Cruel**\
+`There's no sugarcoating this. This was a disastrous night for the Wizards, in an epoch of seemingly never-ending disasters.`\
+https://nytimes.com/athletic/6351248/2025/05/12/wizards-nba-draft-lottery/
+
+**NBA playoffs: Knicks rally once again; Celtics' Jayson Tatum exits with injury**\
+`This game was not a Celtics letdown; it was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
+https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
+
 **NBA playoffs: Knicks rally once again; Celtics' Jayson Tatum exits with injury**\
 `This game was not a Celtics letdown. It was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
 https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
