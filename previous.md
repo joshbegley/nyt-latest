@@ -1,5 +1,21 @@
+**Man United under-18 coach Lawrence to leave at end of season**\
+`Lawrence led United to three trophies last year in his first year in charge at under-18s level.`\
+https://nytimes.com/athletic/6353468/2025/05/13/man-united-adam-lawrence-under-18-coach/
+
+**Watch: Cooper Flagg? Trade for Giannis? What will the Mavs do with NBA Draft Lottery salvation?**\
+`NBA Daily discuss the Dallas Mavericks winning the lottery and landing the No.1 overall pick in the 2025 NBA Draft.`\
+https://nytimes.com/athletic/6353262/2025/05/13/nba-daily-dallas-mavericks-draft-lottery-cooper-flagg/
+
+**Money Talks (and Listens) at Saudi Investment Forum Attended by Trump**\
+`The wealthy and the powerful gathered in Saudi Arabia with the goal of becoming even more so. “They’re going to walk away with a lot of checks,” President Trump said.`\
+https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-economic-forum.html
+
+**NBA title odds: Knicks new favorites to win East after going up 3-1 on Celtics**\
+`The New York Knicks are favored to make it to the NBA Finals for the first time since 1999. Oklahoma City remains the overall favorite.`\
+https://nytimes.com/athletic/6353208/2025/05/13/nba-championship-odds-knicks-favorites-thunder/
+
 **Paul Allen's estate announces plan to sell Portland Trail Blazers**\
-`NBA team has been run by Paul Allen's sister Jody since he died in 2018.`\
+`The NBA team has been run by Paul Allen's sister, Jody, since he died in 2018.`\
 https://nytimes.com/athletic/6353447/2025/05/13/nba-trail-blazers-for-sale-paul-allen-estate/
 
 **George Clooney and Denzel Washington Power Broadway to Prepandemic Heights**\
@@ -10,7 +26,7 @@ https://nytimes.com/2025/05/13/theater/broadway-grosses.html
 `The company is introducing hotel-like services, along with a new selection of local tours and classes.`\
 https://nytimes.com/2025/05/13/travel/airbnb-experiences-hotel-services.html
 
-**Bengals' Hendrickson talks contract dispute, won't play on his current deal**\
+**Bengals’ Hendrickson won’t play on current deal, says things have become 'personal'**\
 `Trey Hendrickson unloaded about an offseason of “disappointment” and feeling like things got “personal” between him and the Bengals.`\
 https://nytimes.com/athletic/6353379/2025/05/13/trey-hendrickson-bengals-contract-negotiation/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/13/upshot/medicaid-cuts-democrats-republicans.html
 **YouTube to stream NFL's Week 1 Chargers game in Brazil for free**\
 `The game in São Paulo, Brazil, will be the first NFL contest to stream live and for free on YouTube.`\
 https://nytimes.com/athletic/6352815/2025/05/13/youtube-nfl-game-chargers-week-1-free/
-
-**April Showers Bring May Flowers, the Playlist**\
-`Hear songs by Lana Del Rey, SZA, Waxahatchee and more.`\
-https://nytimes.com/2025/05/13/arts/music/amplifier-newsletter-april-showers-may-flowers.html
-
-**The Stock Market’s Boomerang Month Has Put Investors in a Bind**\
-`Although they long for more clarity about tariffs, investors feel they can’t sit on the sidelines as stocks climb.`\
-https://nytimes.com/2025/05/13/business/stock-market-trump-tariffs.html
-
-**After 38 Years in Prison for Murder, British Man Is Freed by New DNA Evidence**\
-`Peter Sullivan was found guilty of a brutal killing in 1987. But an appeals court overturned his conviction on Tuesday and ordered his immediate release.`\
-https://nytimes.com/2025/05/13/world/europe/peter-sullivan-murder-appeal-free-uk.html
-
-**Trump Administration Cuts Additional $450 Million in Grants to Harvard**\
-`The latest broadside from the federal government comes as Harvard faces multiple investigations from across the Trump administration.`\
-https://nytimes.com/2025/05/13/us/politics/trump-harvard-grants-450-million.html
 
