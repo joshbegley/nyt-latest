@@ -1,3 +1,11 @@
+**Powell Emerges as a Potential Winner from the Trade Truce**\
+`The markets have come around to the Federal Reserve chairman’s cautious approach to lowering interest rates. President Trump could be a tougher convert.`\
+https://nytimes.com/2025/05/13/business/dealbook/powell-fed-rates-tariffs.html
+
+**Weekly Student News Quiz: Cease-Fire, Ocean Floor, Lollipops**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/05/13/learning/13StudentNewsQuiz.html
+
 **President Trump’s Visit to the Middle East**\
 `Mr. Trump has few meetings directly about pressing geopolitical challenges. Instead, he’s in the Persian Gulf to make deals.`\
 https://nytimes.com/2025/05/13/world/europe/trump-middle-east-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6350672/2025/05/13/mens-college-basketball-aj-dyban
 **Diamondbacks prospect Jordan Lawlar joins a rookie class still seeking its standard-bearer**\
 `Jordan Lawlar has a real chance at Rookie of the Year. In years past, he might not have had a chance to grace the stage. `\
 https://nytimes.com/athletic/6351499/2025/05/13/diamondbacks-jordan-lawlar-rookies-2025/
-
-**Greenberg: With no lottery luck, the Bulls have a plan, right?**\
-`The Bulls, who once hit the jackpot in the NBA Draft Lottery, are looking at another 30-something-win season and praying for good fortune. `\
-https://nytimes.com/athletic/6351764/2025/05/13/chicago-bulls-nba-draft-lottery/
-
-**Roman Anthony and Marcelo Mayer will debut eventually. Kristian Campbell has advice for them**\
-`Campbell has been taking notes on his MLB experience thus far, including how road stadiums play, how to prepare offensively, etc.`\
-https://nytimes.com/athletic/6350917/2025/05/13/red-sox-kristian-campbell-marcelo-mayer-roman-anthony-rookies/
 
