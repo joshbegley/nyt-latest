@@ -1,3 +1,11 @@
+**Saudi King Salman absent so far from Trump state visit.**\
+`By Ismaeel Naar`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/trump-saudi-arabia-crown-prince-salman
+
+**Read the full opening statements by the defense.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-full-opening-statements-by-the-defense
+
 **Read the full opening statement by the prosecution.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-full-opening-statement-by-the-prosecution
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6353109/2025/05/13/paul-skenes-team-usa-world-baseb
 **Trump Aims to Use More F.B.I., Drug and Gun Agents to Pursue Immigrants**\
 `The Justice Department plans to bolster enforcement and deportation work in 25 cities across the United States.`\
 https://nytimes.com/2025/05/13/us/politics/trump-immigration-fbi-gun-drug-agents.html
-
-**Until Saturday: Bielema's recruiting secret**\
-`Until Saturday is The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6353183/2025/05/13/bret-bielema-illinois-recruiting-until-saturday/
-
-**New USMNT, USWNT kits feature classic looks with a nod to an iconic throwback**\
-`With the 2026 World Cup on home soil nearing, the USMNT has one new look, while the USWNT has a complete set that meets a World Cup standard`\
-https://nytimes.com/athletic/6352793/2025/05/13/new-usmnt-uswnt-kits-photos-jerseys/
 

@@ -1,3 +1,11 @@
+**Saudi King Salman absent so far from Trump state visit.**\
+`By Ismaeel Naar`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/trump-saudi-arabia-crown-prince-salman
+
+**Read the full opening statements by the defense.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-full-opening-statements-by-the-defense
+
 **Read the full opening statement by the prosecution.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-full-opening-statement-by-the-prosecution
