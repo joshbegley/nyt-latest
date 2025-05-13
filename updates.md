@@ -1,3 +1,15 @@
+**Kyle Leahy emerges as a key weapon in the bullpen as Cardinals win ninth straight**\
+`Monday, it wasn't so much Leahy's line score that was impressive. It was how and who he navigated through to keep the game in reach.`\
+https://nytimes.com/athletic/6351637/2025/05/12/st-louis-cardinals-win-9th-straight-kyle-leahy/
+
+**Mets' top of the order comes through to fuel another tight, late-inning victory**\
+`And as much as the Mets call Citi Field their home, they feel at home in the late innings of tight contests.`\
+https://nytimes.com/athletic/6351793/2025/05/12/mets-lindor-soto-alonso-walkoff-victory/
+
+**Don't believe the gumdrops and rainbows. The lottery was a disaster for the Wizards**\
+`Wizards officials put on a brave face in the aftermath, but Washington absorbed the most brutal gut punch the 2025 NBA Draft Lottery.`\
+https://nytimes.com/athletic/6351659/2025/05/12/washington-wizards-2025-nba-draft-lottery/
+
 **Wizards' NBA Draft Lottery results can be summed up by one word: Cruel**\
 `There's no sugarcoating this. This was a disastrous night for the Wizards, in an epoch of seemingly never-ending disasters.`\
 https://nytimes.com/athletic/6351248/2025/05/12/wizards-nba-draft-lottery/

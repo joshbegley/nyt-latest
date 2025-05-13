@@ -1,3 +1,15 @@
+**Kyle Leahy emerges as a key weapon in the bullpen as Cardinals win ninth straight**\
+`Monday, it wasn't so much Leahy's line score that was impressive. It was how and who he navigated through to keep the game in reach.`\
+https://nytimes.com/athletic/6351637/2025/05/12/st-louis-cardinals-win-9th-straight-kyle-leahy/
+
+**Mets' top of the order comes through to fuel another tight, late-inning victory**\
+`And as much as the Mets call Citi Field their home, they feel at home in the late innings of tight contests.`\
+https://nytimes.com/athletic/6351793/2025/05/12/mets-lindor-soto-alonso-walkoff-victory/
+
+**Don't believe the gumdrops and rainbows. The lottery was a disaster for the Wizards**\
+`Wizards officials put on a brave face in the aftermath, but Washington absorbed the most brutal gut punch the 2025 NBA Draft Lottery.`\
+https://nytimes.com/athletic/6351659/2025/05/12/washington-wizards-2025-nba-draft-lottery/
+
 **Wizards' NBA Draft Lottery results can be summed up by one word: Cruel**\
 `There's no sugarcoating this. This was a disastrous night for the Wizards, in an epoch of seemingly never-ending disasters.`\
 https://nytimes.com/athletic/6351248/2025/05/12/wizards-nba-draft-lottery/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/us/politics/trump-taxes-snap-program.html
 **Hurricanes demoralize Capitals, put Washington's season in peril: Takeaways**\
 `Carolina took care of business at home in Game 4 and is one win away from ending Washington's season.`\
 https://nytimes.com/athletic/6351432/2025/05/12/hurricanes-capitals-nhl-playoffs-2025-game-4-takeaways/
-
-**With Guarantees Galore, Christie’s Has a Rocky Start to Auction Week**\
-`There was little excited bidding on the art collection of the Riggio family, who built their fortune on the Barnes & Noble bookstore chain — a caution flag for the art market.`\
-https://nytimes.com/2025/05/12/arts/design/auction-christies-mondrian-monet.html
-
-**NBA world reacts to Mavs' draft lottery win: 'The lottery gods are shining'**\
-`Dallas had only a 1.8 percent chance to land the No. 1 pick in the NBA Draft.`\
-https://nytimes.com/athletic/6351448/2025/05/12/nba-world-reacts-mavericks-draft-lottery-win/
-
-**2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
-`We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
-https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
 

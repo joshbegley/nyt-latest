@@ -1,3 +1,15 @@
+**Corrections: May 13, 2025**\
+`Corrections that appeared in print on Tuesday, May 13, 2025.`\
+https://nytimes.com/2025/05/12/pageoneplus/corrections-may-13-2025.html
+
+**Quote of the Day: For Catholics, He Is a Holy Father. For the World, He Is a Robust Voice.**\
+`Quotation of the Day for Tuesday, May 13, 2025.`\
+https://nytimes.com/2025/05/12/pageoneplus/quote-of-the-day-for-catholics-he-is-a-holy-father-for-the-world-he-is-a-robust-voice.html
+
+**Hasan Piker, Popular Left-Wing Streamer, Says He Was Detained at Airport**\
+`Mr. Piker said he was questioned for two hours on topics including the war in Gaza and President Trump.`\
+https://nytimes.com/2025/05/12/us/politics/hasan-piker-twitch-questioned-trump-gaza.html
+
 **Kyle Leahy emerges as a key weapon in the bullpen as Cardinals win ninth straight**\
 `Monday, it wasn't so much Leahy's line score that was impressive. It was how and who he navigated through to keep the game in reach.`\
 https://nytimes.com/athletic/6351637/2025/05/12/st-louis-cardinals-win-9th-straight-kyle-leahy/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warr
 **Jayson Tatum carried off with injury at end of Knicks vs. Celtics Game 4**\
 `The Celtics are now surprisingly down 3-1 in the series.`\
 https://nytimes.com/athletic/6351649/2025/05/12/jayson-tatum-leaves-game-injury-celtics-knicks-nba-playoffs/
-
-**Skipper, Informally**\
-`Joe Rodini’s puzzle hits the spot.`\
-https://nytimes.com/2025/05/12/crosswords/daily-puzzle-2025-05-13.html
-
-**Republicans Target Federal Anti-Hunger Program as They Prepare Trump Tax Package**\
-`Limiting funding for SNAP could help defray the costs of President Trump’s tax plans, but could result in millions of low-income families losing access to aid.`\
-https://nytimes.com/2025/05/12/us/politics/trump-taxes-snap-program.html
-
-**Hurricanes demoralize Capitals, put Washington's season in peril: Takeaways**\
-`Carolina took care of business at home in Game 4 and is one win away from ending Washington's season.`\
-https://nytimes.com/athletic/6351432/2025/05/12/hurricanes-capitals-nhl-playoffs-2025-game-4-takeaways/
 
