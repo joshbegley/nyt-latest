@@ -1,3 +1,11 @@
+**The booing of Alexander-Arnold: A sensible discussion**\
+`Fans' reaction to the right-back in Sunday's game against Arsenal sparked huge debate – this is what our experts and readers are saying`\
+https://nytimes.com/athletic/6349659/2025/05/13/trent-alexander-arnold-booing-liverpool-fans-discussion/
+
+**Jason Puncheon: 'You have one chance to be part of history at a club. This is Palace's'**\
+`The last man to score a goal for the south London club in an FA Cup final will be watching Saturday's FA Cup final from distant Cyprus `\
+https://nytimes.com/athletic/6347696/2025/05/13/palace-jason-puncheon-interview-akritas/
+
 **Rafaela Pimenta interview: Sexism in football, the game's 'hostage' problem and doing the Haaland deal**\
 `The 'most powerful woman in football' speaks out about her experiences and the issues facing other women in the game`\
 https://nytimes.com/athletic/6339656/2025/05/13/rafaela-pimenta-interview-women-football-haaland/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/business/china-economy-us-trade-war.html
 **Corrections: May 13, 2025**\
 `Corrections that appeared in print on Tuesday, May 13, 2025.`\
 https://nytimes.com/2025/05/12/pageoneplus/corrections-may-13-2025.html
-
-**Quote of the Day: For Catholics, He Is a Holy Father. For the World, He Is a Robust Voice.**\
-`Quotation of the Day for Tuesday, May 13, 2025.`\
-https://nytimes.com/2025/05/12/pageoneplus/quote-of-the-day-for-catholics-he-is-a-holy-father-for-the-world-he-is-a-robust-voice.html
-
-**Hasan Piker, Popular Left-Wing Streamer, Says He Was Detained at Airport**\
-`Mr. Piker said he was questioned for two hours on topics including the war in Gaza and President Trump.`\
-https://nytimes.com/2025/05/12/us/politics/hasan-piker-twitch-questioned-trump-gaza.html
 
