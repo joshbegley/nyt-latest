@@ -1,3 +1,7 @@
+**The Case of Kim Kardashian’s Courtroom Diamonds**\
+`Testifying at her robbery trial in Paris, the businesswoman and influencer chose some unexpected accessories.`\
+https://nytimes.com/2025/05/13/style/kim-kardashian-diamonds-paris-robbery-trial.html
+
 **Chasing Tax Cuts, Trump and Republicans Want to Make States Pay**\
 `G.O.P. leaders are exploring cuts to federal aid, leaving some states fearful that their budgets cannot absorb billions of dollars in new costs.`\
 https://nytimes.com/2025/05/13/us/politics/trump-republicans-tax-cuts-spending-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/business/slate-auto-electric-truck.html
 **CAS reject Uruguay players' appeal against bans for Copa America melee with fans**\
 `Uruguay players and officials received sanctions for a confrontation with Colombia supporters after last July's Copa America semi-final.`\
 https://nytimes.com/athletic/6352789/2025/05/13/uruguay-copa-america-colombia-player-bans/
-
-**C.I.A. Rejects Diversity Efforts Once Deemed as Essential to Its Mission**\
-`The Trump administration is dismantling programs that some former directors believed helped sharpen the agency’s competitive edge.`\
-https://nytimes.com/2025/05/13/us/politics/cia-hiring-diversity.html
 
