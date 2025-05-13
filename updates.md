@@ -1,3 +1,11 @@
+**Biden Is Being Evaluated for a ‘Small Nodule’ in His Prostate**\
+`It is common for a man of Mr. Biden’s age to experience prostate issues. His spokesman declined to elaborate on any details about his care.`\
+https://nytimes.com/2025/05/12/us/politics/biden-prostate.html
+
+**Argentina bans 15,000 violent fans from stadiums during Club World Cup**\
+`The expanded Club World Cup will run from June 14 and July 13, featuring 32 teams from around the world.`\
+https://nytimes.com/athletic/6351374/2025/05/12/argentina-club-world-cup-violent-fan-bans/
+
 **RFK Jr. Swims in Washington Creek That Flows With Sewage and Bacteria**\
 `Robert F. Kennedy Jr., the health secretary, shared photos of himself and his grandchildren swimming in waters that handle sewer overflow.`\
 https://nytimes.com/2025/05/12/us/politics/rfk-jr-rock-creek-bacteria.html
