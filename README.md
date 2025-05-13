@@ -1,3 +1,7 @@
+**Padres top prospect Ethan Salas to miss 2 months with stress reaction in lower back**\
+`Salas signed with the Padres in January 2023 for $5.6 million, the largest bonus in that year's international signing class.`\
+https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-months-lower-back/
+
 **Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
 `The Braves beat the Nationals on Alex Verdugo’s ninth-inning single Monday night.`\
 https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6315749/2025/05/13/carlo-ancelotti-real-madrid-exit
 **The Mavs' series of unfortunate, lucky events to land Cooper Flagg**\
 `We actually should go all the way back to 2018 to begin this mind-boggling journey to chart how we got here.`\
 https://nytimes.com/athletic/6351633/2025/05/13/dallas-mavericks-cooper-flagg-nba-draft-timeline/
-
-**The Glazers in 2025 - How Tampa views the Buccaneers' owners**\
-`In part three of our series looking at 20 years since the Glazers bought Manchester United, we discover how the family are viewed in Tampa`\
-https://nytimes.com/athletic/6342771/2025/05/13/manchester-united-glazers-tampa-buccaneers/
 
