@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6352037/2025/05/13/cubs-moises-ballesteros/
 `President Trump’s visit to the Gulf region.`\
 https://nytimes.com/2025/05/13/briefing/trump-gulf-china-trade.html
 
-**Yankees' Oswaldo Cabrera taken off field via ambulance after foot injury**\
+**Yankees' Oswaldo Cabrera taken off field via ambulance after ankle injury**\
 `Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
 https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/
 
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-of
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/13/todays-new-york-times
 
-**Let Go of Your Old Ideas About the Saudis**\
+**This Is Not the Saudi Arabia Trump Visited Before**\
 `America’s national security could benefit from a successful Trump visit to Saudi Arabia — and suffer from a bad one.`\
 https://nytimes.com/2025/05/13/opinion/saudi-arabia-trump-visit.html
 

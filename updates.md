@@ -1,3 +1,11 @@
+**Yankees' Oswaldo Cabrera taken off field via ambulance after ankle injury**\
+`Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
+https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/
+
+**This Is Not the Saudi Arabia Trump Visited Before**\
+`America’s national security could benefit from a successful Trump visit to Saudi Arabia — and suffer from a bad one.`\
+https://nytimes.com/2025/05/13/opinion/saudi-arabia-trump-visit.html
+
 **The Knicks are one win away from ending a 25-year drought. Here's how it happened**\
 `New York has the defending champs on the ropes. Now, the Knicks need to finish the job.`\
 https://nytimes.com/athletic/6351918/2025/05/13/knicks-beat-celtics-game-4/
