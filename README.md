@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-months-lower-back/
 
 **Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
-`The Braves beat the Nationals on Alex Verdugo’s ninth-inning single Monday night.`\
+`The Braves beat the Nationals on Alex Verdugo's ninth-inning single Monday night.`\
 https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
 
 **Oilers dominate Golden Knights in Game 4 to take 3-1 series lead**\
