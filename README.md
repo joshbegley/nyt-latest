@@ -1,3 +1,7 @@
+**Boxes of Nazi Material Are Found After Decades in Basement of Argentina Court**\
+`Thousands of documents in the boxes could result in new information about Nazi activity in Argentina in the early years of World War II.`\
+https://nytimes.com/2025/05/13/world/americas/nazi-documents-argentina.html
+
 **Brighton in talks with Milner over extending stay at club**\
 `Discussions are ongoing with Milner and his representatives about his future plans.`\
 https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
@@ -22,7 +26,7 @@ https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-
 `In some Illinois cities, shoplifting, calling 911 too many times or even being a victim of a crime can get you kicked out of your home. Sidnee King Pineda, who is reporting on housing laws in Illinois as part of The Times’s Local Investigations Fellowship, explains why.`\
 https://nytimes.com/video/us/100000010090081/how-minor-missteps-are-getting-tenants-evicted.html
 
-**Warriors have some serious spacing issues and their season is drowning because of it**\
+**Warriors have some serious spacing issues, and their season is drowning because of it**\
 `Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
 https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/opinion/trump-corruption-politics.html
 **A High School Festival Keeps Duke Ellington Very Much Alive**\
 `Essentially Ellington once again brought the world’s best high school jazz musicians to New York. Over the last 30 years, the event has reshaped how jazz is taught.`\
 https://nytimes.com/2025/05/13/style/essentially-ellington-wynton-marsalis-jazz.html
-
-**Blackburn at risk of Women's Championship relegation**\
-`Blackburn have been given until Monday, May 18 to decide whether they want to remain in the Women's Championship.`\
-https://nytimes.com/athletic/6352652/2025/05/13/blackburn-rovers-women-relegation/
 
