@@ -1,3 +1,19 @@
+**A wild draft lottery night just changed everything across the NBA**\
+`Could the Mavericks, Spurs and/or Sixers shop their unexpected top-three picks? What will happen in Boston?`\
+https://nytimes.com/athletic/6352464/2025/05/13/nba-draft-lottery-trades-mavericks-spurs-sixers-giannis-flagg/
+
+**The Bounce: The Mavericks have won the Cooper Flagg lottery. How does that affect the NBA?**\
+`The Mavericks are able to draft Cooper Flagg first overall in the NBA Draft. How will their draft lottery win influence the league?`\
+https://nytimes.com/athletic/6352686/2025/05/13/dallas-mavericks-cooper-flagg-nba-draft-lottery-nba-the-bounce/
+
+**Boxes of Nazi Material Are Found After Decades in Basement of Argentina Court**\
+`Thousands of documents in the boxes could result in new information about Nazi activity in Argentina in the early years of World War II.`\
+https://nytimes.com/2025/05/13/world/americas/nazi-documents-argentina.html
+
+**Warriors have some serious spacing issues, and their season is drowning because of it**\
+`Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
+https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/
+
 **Brighton in talks with Milner over extending stay at club**\
 `Discussions are ongoing with Milner and his representatives about his future plans.`\
 https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
