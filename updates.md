@@ -1,3 +1,15 @@
+**All roads don't lead to the SEC: Jackson Cantwell's decision to pick Miami a win for the ACC**\
+`Cantwell, the nation's No. 1 overall prospect, picked Miami over Georgia, Ohio State and Oregon. `\
+https://nytimes.com/athletic/6354024/2025/05/13/jackson-cantwell-recruiting-miami-mario-cristobal/
+
+**Rosenthal: Rob Manfred’s decision to reinstate Pete Rose raises questions about what’s next**\
+`Reinstating Rose, at least in a narrow, short-term view, comes at little cost. The Hall of Fame is the true prize for Rose’s supporters.`\
+https://nytimes.com/athletic/6329688/2025/05/13/pete-rose-mlb-rob-manfred/
+
+**Adams Lashes Out at Prosecutors, Saying They Sought to Humiliate Him**\
+`Mayor Eric Adams of New York City railed against the federal authorities who accused him of corruption and seized his numerous cellphones.`\
+https://nytimes.com/2025/05/13/nyregion/adams-fbi-phones-trump.html
+
 **Sunderland to face Sheffield United in final after extra-time goal against Coventry**\
 `Ballard’s 122nd-minute header earned Sunderland a 1-1 draw on the night, and a 2-1 victory on aggregate.`\
 https://nytimes.com/athletic/6354052/2025/05/13/sunderland-championship-coventry-ballard/
