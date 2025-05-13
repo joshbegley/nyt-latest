@@ -1,4 +1,12 @@
-**Kim Kardashian to Testify About Robbery Ordeal at Paris Trial**\
+**President Trump’s Visit to the Middle East**\
+`Mr. Trump has few meetings directly about pressing geopolitical challenges. Instead, he’s in the Persian Gulf to make deals.`\
+https://nytimes.com/2025/05/13/world/europe/trump-middle-east-photos.html
+
+**Evander Kane was made for this series vs. Golden Knights. He showed why in Game 4**\
+`Kane's high-end offensive skill and fearlessness were on display in the Oilers' 3-0 win, putting them a win away from the conference finals.`\
+https://nytimes.com/athletic/6352165/2025/05/13/oilers-evander-kane-golden-knights-nhl-playoffs/
+
+**Kim Kardashian in Paris Court to Testify About Robbery Ordeal**\
 `The reality TV star and entrepreneur is expected to describe how she was tied up at gunpoint as jewelry worth millions was stolen in a 2016 attack.`\
 https://nytimes.com/2025/05/13/world/europe/kim-kardashian-testimony-paris-robbery-trial.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351764/2025/05/13/chicago-bulls-nba-draft-lottery/
 **Roman Anthony and Marcelo Mayer will debut eventually. Kristian Campbell has advice for them**\
 `Campbell has been taking notes on his MLB experience thus far, including how road stadiums play, how to prepare offensively, etc.`\
 https://nytimes.com/athletic/6350917/2025/05/13/red-sox-kristian-campbell-marcelo-mayer-roman-anthony-rookies/
-
-**Women's college basketball's post-transfer top 25: Is UConn still on top? Did LSU jump?**\
-`How did UCLA lose its freshmen but not lose ground in the rankings? `\
-https://nytimes.com/athletic/6351776/2025/05/13/womens-college-basketballs-transfer-top-25-uconn-lsu/
-
-**Thompson: Natalie Nakase was built for leading expansion Golden State Valkyries**\
-`Lessons from her father on understated hard work guide Nakase as she leads the WNBA's newest team.`\
-https://nytimes.com/athletic/6346685/2025/05/13/natalie-nakase-golden-state-valkyries-wnba-expansion/
 
