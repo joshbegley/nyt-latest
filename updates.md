@@ -1,3 +1,15 @@
+**LSU-Clemson to kick off ABC's prime-time Saturday college football schedule**\
+`The game will feature two of the nation’s top returning quarterbacks in LSU’s Garrett Nussmeier and Clemson’s Cade Klubnik.`\
+https://nytimes.com/athletic/6353001/2025/05/13/lsu-clemson-game-abc-time-date/
+
+**After Novak Djokovic and Andy Murray end their partnership, what's next?**\
+`The novelty and almost unprecedented nature of having two such recent former adversaries teaming up was always going to be a major sideshow`\
+https://nytimes.com/athletic/6352913/2025/05/13/tennis-djokovic-murray-partnership-rivals-future/
+
+**Robert Benton, Influential Director and Screenwriter, Dies at 92**\
+`After collaborating on the script for “Bonnie and Clyde,” he went on to write and direct “Kramer vs. Kramer” and “Places in the Heart.”`\
+https://nytimes.com/2025/05/13/movies/robert-benton-dead.html
+
 **Israel Bombards Gaza Seeking to Kill Top Hamas Leader, Officials Say**\
 `Israeli officials said the military had launched an attack targeting Mohammad Sinwar, one of Hamas’s top remaining commanders in Gaza and the brother of a leader killed last year.`\
 https://nytimes.com/2025/05/13/world/middleeast/israel-gaza-sinwar-khan-younis.html
