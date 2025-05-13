@@ -1,3 +1,7 @@
+**Full Time: How NWSL handled a scary moment**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6351732/2025/05/12/nwsl-savy-king-incident-full-time/
+
 **NBA playoffs takeaways: Knicks complete another comeback as Celtics lose Tatum to injury**\
 `This game was not a Celtics letdown. It was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
 https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg
 **Trump Administration Asks Supreme Court to Allow Venezuelan Deportations to Resume**\
 `The solicitor general contended that a group of migrants had barricaded themselves inside a Texas detention center and threatened to take hostages.`\
 https://nytimes.com/2025/05/12/us/politics/supreme-court-venezuelan-detainees.html
-
-**'He's in a good spot': Yankees' DJ LeMahieu expected to return Tuesday**\
-`LeMahieu, 36, hasn't played in a big-league game since Sept. 3.`\
-https://nytimes.com/athletic/6351529/2025/05/12/yankees-dj-lemahieu-expected-return-tuesday/
 
