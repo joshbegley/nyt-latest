@@ -1,3 +1,19 @@
+**Tariff Flip-Flops**\
+`Despite President Trump’s claims, America seems to need other countries’ trade as much as they need ours.`\
+https://nytimes.com/2025/05/13/briefing/trump-tariffs-china.html
+
+**President Trump Arrives in Saudi Capital on 4-Day Gulf Tour**\
+`President Trump was greeted by Crown Prince Mohammed bin Salman of Saudi Arabia as he stepped off Air Force One on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000010165555/trump-saudi-riyadh-gulf-states-tour.html
+
+**The Athletic FC: Glazers & Man Utd: Debt, drama, what now? Plus: Does Pulisic need a break?**\
+`Today in TAFC: 20 years of the Glazers at Manchester United - the impact, the view from U.S., what next? Plus: Is Pulisic being overplayed?`\
+https://nytimes.com/athletic/6352213/2025/05/13/glazers-manchester-united-debt-takeover/
+
+**A high-powered list of business leaders is joining Trump at lunch in Riyadh.**\
+`By Jason Karaian`\
+https://nytimes.com/2025/05/13/us/politics/trump-saudi-business-lunch-musk-altman.html
+
 **A high-powered list of business leaders is joining Trump at lunch in Riyadh.**\
 `By Jason Karaian`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-high-powered-list-of-business-leaders-is-joining-trump-at-lunch-in-riyadh
