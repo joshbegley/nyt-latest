@@ -1,3 +1,7 @@
+**Ohio State women's basketball coach Kevin McGuff charged with DUI**\
+`Police arrested McGuff after his vehicle reportedly struck several curbs and drove through the lawn of a Dublin, Ohio, residence.`\
+https://nytimes.com/athletic/6351704/2025/05/13/ohio-state-coach-kevin-mcgruff-dui/
+
 **Why This Used Car Company Thinks Tariffs Could Be Good for Business**\
 `The chief executive of Carvana, which sells used cars online, said President Trump’s tariffs could help his company by increasing demand for its vehicles.`\
 https://nytimes.com/2025/05/13/business/economy/trump-tariffs-used-cars-carvana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/science/interior-department-public-land.html
 **Alex Morgan rejoins the San Diego Wave as a minority investor**\
 `The news comes eight months the two-time World Cup champion, Olympic gold medalist and former Wave captain, announced her retirement.`\
 https://nytimes.com/athletic/6351989/2025/05/13/alex-morgan-rejoins-san-diego-wave-minority-investor/
-
-**Jazz at Lincoln Center’s New Season Highlights Ties to Africa**\
-`From July through June 2026, the new season will showcase works by John Coltrane, the South African pianist Abdullah Ibrahim and more.`\
-https://nytimes.com/2025/05/13/arts/music/jazz-lincoln-center-2025-2026-season.html
 
