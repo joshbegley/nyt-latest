@@ -1,3 +1,11 @@
+**Inside Carlo Ancelotti's Real Madrid exit: From champions of Europe to keeping 'suitcases at the door'**\
+`Ancelotti is leaving Madrid to take over as Brazil head coach after a turbulent season on and off the pitch. Here's how it all unfolded`\
+https://nytimes.com/athletic/6315749/2025/05/13/carlo-ancelotti-real-madrid-exit-brazil-analysis/
+
+**The Glazers in 2025 - How Tampa views the Buccaneers' owners**\
+`In part three of our series looking at 20 years since the Glazers bought Manchester United, we discover how the family are viewed in Tampa`\
+https://nytimes.com/athletic/6342771/2025/05/13/manchester-united-glazers-tampa-buccaneers/
+
 **The booing of Alexander-Arnold: A sensible discussion**\
 `Fans' reaction to the right-back in Sunday's game against Arsenal sparked huge debate – this is what our experts and readers are saying`\
 https://nytimes.com/athletic/6349659/2025/05/13/trent-alexander-arnold-booing-liverpool-fans-discussion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351725/2025/05/13/connections-sports-edition-hints
 **Germany Has a Long History of U.S. Investment. That May Be Changing.**\
 `German companies invest more than three times as much in the United States as American companies do in Germany, but they are starting to rethink that strategy.`\
 https://nytimes.com/2025/05/13/business/germany-us-trade-trump.html
-
-**There Are Two Chinas, and America Must Understand Both**\
-`The technological success that has captured the attention of many in the United States is one aspect of the Chinese economy. There’s another, gloomy one.`\
-https://nytimes.com/2025/05/13/business/china-economy-us-trade-war.html
-
-**Corrections: May 13, 2025**\
-`Corrections that appeared in print on Tuesday, May 13, 2025.`\
-https://nytimes.com/2025/05/12/pageoneplus/corrections-may-13-2025.html
 
