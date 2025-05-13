@@ -1,3 +1,7 @@
+**Gérard Depardieu Convicted of Sexual Assault**\
+`The French actor was found guilty of sexually assaulting two women on the set of a movie in which he starred in 2021. He was given a suspended sentence of 18 months.`\
+https://nytimes.com/2025/05/13/world/europe/gerard-depardieu-guilty-sexual-assault-trial.html
+
 **Oilers were better, faster and more desperate than Golden Knights in dominant Game 4 win**\
 `Vegas was dominated in nearly every aspect to push their season to the brink of elimination. `\
 https://nytimes.com/athletic/6352105/2025/05/13/oilers-golden-knights-game-4-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/nyregion/american-museum-natural-history-beetles.
 **Takeaways From Harvey Weinstein’s Trial, and What’s Ahead in Week 5**\
 `The disgraced producer’s trial on sex charges resumes Tuesday in Manhattan with the cross-examination of a woman who says he abused her repeatedly.`\
 https://nytimes.com/2025/05/13/nyregion/harvey-weinstein-trial-what-to-know.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/13/crosswords/spelling-bee-forum.html
 
