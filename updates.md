@@ -1,3 +1,7 @@
+**New York’s Deepest Pockets Turn Out to Fight Poverty**\
+`The annual Robin Hood gala drew sports luminaries including Roger Goodell, Serena Williams and Eli Manning.`\
+https://nytimes.com/2025/05/13/style/robin-hood-gala-nyc.html
+
 **Iran Proposes Novel Path to Nuclear Deal With U.S.**\
 `In talks with American negotiators, the Iranians spoke of a consortium with several countries that would allow it to keep producing civilian grade fuel, but with more monitoring.`\
 https://nytimes.com/2025/05/13/world/middleeast/iran-us-nuclear-talks.html
