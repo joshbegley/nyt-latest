@@ -1,3 +1,7 @@
+**NBA world reacts to Mavs' draft lottery win: 'The lottery gods are shining'**\
+`Dallas had only a 1.8 percent chance to land the No. 1 pick in the NBA Draft.`\
+https://nytimes.com/athletic/6351448/2025/05/12/nba-world-reacts-mavericks-draft-lottery-win/
+
 **2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
 `We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
 https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6339206/2025/05/12/why-wrexham-will-head-to-austral
 **Girl, 16, Is Fatally Shot Near a Bronx School Building, Police Say**\
 `The girl was shot once in the head near a building that houses a charter school and two New York City Department of Education schools.`\
 https://nytimes.com/2025/05/12/nyregion/bronx-shooting-girl-killed.html
-
-**D.N.C. Takes Step to Void Election of Hogg and Kenyatta as Vice Chairs**\
-`David Hogg has faced sharp criticism for his plan to fund challenges to incumbent Democrats, but the D.N.C. vote on Monday began with an earlier complaint about the procedures used in an internal party election.`\
-https://nytimes.com/2025/05/12/us/politics/david-hogg-dnc-democrats.html
 
