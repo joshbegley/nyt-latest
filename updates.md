@@ -1,3 +1,15 @@
+**Judge Appoints an Outside Official to Take Over Deadly Rikers Island**\
+`Laura Taylor Swain, a federal judge, seized control of New York City’s jails, which have been rife with violence and dysfunction.`\
+https://nytimes.com/2025/05/13/nyregion/rikers-island-receiver-nyc.html
+
+**How the World’s Largest Jeweler Is Surviving the Trade War**\
+`Pandora, the Danish jewelry company, said it was “battle ready,” with plans to raise prices and reroute shipments from the United States, but tariffs could potentially cost it millions of dollars.`\
+https://nytimes.com/2025/05/13/business/trump-tariffs-pandora-jewelry.html
+
+**Anthony Stolarz back on the ice ahead of Leafs practice**\
+`Stolarz hadn’t been seen around the team since getting knocked out of Game 1 against the Panthers with a suspected head injury.`\
+https://nytimes.com/athletic/6352964/2025/05/13/maple-leafs-anthony-stolarz-nhl-playoffs-panthers/
+
 **Ohio State women's basketball coach Kevin McGuff charged with DUI**\
 `Police arrested McGuff after his vehicle reportedly struck several curbs and drove through the lawn of a Dublin, Ohio, residence.`\
 https://nytimes.com/athletic/6351704/2025/05/13/ohio-state-coach-kevin-mcgruff-dui/

@@ -1,3 +1,15 @@
+**Judge Appoints an Outside Official to Take Over Deadly Rikers Island**\
+`Laura Taylor Swain, a federal judge, seized control of New York City’s jails, which have been rife with violence and dysfunction.`\
+https://nytimes.com/2025/05/13/nyregion/rikers-island-receiver-nyc.html
+
+**How the World’s Largest Jeweler Is Surviving the Trade War**\
+`Pandora, the Danish jewelry company, said it was “battle ready,” with plans to raise prices and reroute shipments from the United States, but tariffs could potentially cost it millions of dollars.`\
+https://nytimes.com/2025/05/13/business/trump-tariffs-pandora-jewelry.html
+
+**Anthony Stolarz back on the ice ahead of Leafs practice**\
+`Stolarz hadn’t been seen around the team since getting knocked out of Game 1 against the Panthers with a suspected head injury.`\
+https://nytimes.com/athletic/6352964/2025/05/13/maple-leafs-anthony-stolarz-nhl-playoffs-panthers/
+
 **Ohio State women's basketball coach Kevin McGuff charged with DUI**\
 `Police arrested McGuff after his vehicle reportedly struck several curbs and drove through the lawn of a Dublin, Ohio, residence.`\
 https://nytimes.com/athletic/6351704/2025/05/13/ohio-state-coach-kevin-mcgruff-dui/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6351929/2025/05/13/yankees-injuries-oswaldo-cabrera
 **Cassie Recounts ‘Violent Arguments’ and ‘Physical Abuse’ by Sean Combs**\
 `The singer began testifying for a federal jury in the sex-trafficking and racketeering case against Mr. Combs.`\
 https://nytimes.com/2025/05/13/arts/music/cassie-testimony-sean-combs-abuse-sex-trafficking.html
-
-**Catherine, Princess of Wales, Steps Back Into the Fashion Spotlight**\
-`The British royal made a surprise appearance on Tuesday to present a fashion award named for Queen Elizabeth II.`\
-https://nytimes.com/2025/05/13/style/kate-middleton-queen-elizabeth-ii-award-design.html
-
-**Interior Department Weighs Less Conservation, More Extraction**\
-`A leaked version of the department’s five-year strategic planning document favors privatization and economic returns from the nation’s public lands.`\
-https://nytimes.com/2025/05/13/science/interior-department-public-land.html
-
-**Alex Morgan rejoins the San Diego Wave as a minority investor**\
-`The news comes eight months the two-time World Cup champion, Olympic gold medalist and former Wave captain, announced her retirement.`\
-https://nytimes.com/athletic/6351989/2025/05/13/alex-morgan-rejoins-san-diego-wave-minority-investor/
 
