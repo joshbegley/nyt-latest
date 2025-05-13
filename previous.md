@@ -1,9 +1,25 @@
+**Yankees' Oswaldo Cabrera taken off field via ambulance after foot injury**\
+`Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
+https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/
+
+**The New York Times in Print for Tuesday, May 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/13/todays-new-york-times
+
+**Let Go of Your Old Ideas About the Saudis**\
+`America’s national security could benefit from a successful Trump visit to Saudi Arabia — and suffer from a bad one.`\
+https://nytimes.com/2025/05/13/opinion/saudi-arabia-trump-visit.html
+
+**New Threats Require a New Army**\
+`A new doctrine will transform the kinds of weapons America uses, how they are purchased and how fast they get into the hands of soldiers.`\
+https://nytimes.com/2025/05/13/opinion/us-army-weapons-reform.html
+
 **Padres top prospect Ethan Salas to miss 2 months with stress reaction in lower back**\
 `Salas signed with the Padres in January 2023 for $5.6 million, the largest bonus in that year's international signing class.`\
 https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-months-lower-back/
 
 **Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
-`The Braves beat the Nationals on Alex Verdugo’s ninth-inning single Monday night.`\
+`The Braves beat the Nationals on Alex Verdugo's ninth-inning single Monday night.`\
 https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
 
 **Oilers dominate Golden Knights in Game 4 to take 3-1 series lead**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6349618/2025/05/13/chelsea-newcastle-maresca-champi
 **Inside the silence, confusion and celebration from the Mavs' stroke of lottery luck**\
 `Dallas, somehow, won the No. 1 pick. What went on in the lottery room? And what were people talking about before and after?`\
 https://nytimes.com/athletic/6351525/2025/05/13/nba-draft-lottery-mavericks-nico-harrison-cooper-flagg/
-
-**Arsenal fans'survey: What are your views on this season, transfers, Arteta and next season?**\
-`The 2024-25 campaign is drawing to a close, so how do you feel it has gone? What could have been done differently?`\
-https://nytimes.com/athletic/6349742/2025/05/13/arsenal-fans-survey-champions-league-arteta/
-
-**What Brighton can expect from Tommy Watson next season**\
-`The Sunderland winger is a good example of Brighton's approach of patience combined with persistence in the transfer market`\
-https://nytimes.com/athletic/6341800/2025/05/13/tommy-watson-brighton-transfer-sunderland/
-
-**Inside Carlo Ancelotti's Real Madrid exit: From champions of Europe to keeping 'suitcases at the door'**\
-`Ancelotti is leaving Madrid to take over as Brazil head coach after a turbulent season on and off the pitch. Here's how it all unfolded`\
-https://nytimes.com/athletic/6315749/2025/05/13/carlo-ancelotti-real-madrid-exit-brazil-analysis/
-
-**The Mavs' series of unfortunate, lucky events to land Cooper Flagg**\
-`We actually should go all the way back to 2018 to begin this mind-boggling journey to chart how we got here.`\
-https://nytimes.com/athletic/6351633/2025/05/13/dallas-mavericks-cooper-flagg-nba-draft-timeline/
 
