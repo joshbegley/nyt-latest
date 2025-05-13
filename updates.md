@@ -1,3 +1,15 @@
+**President Trump’s Visit to the Middle East**\
+`Mr. Trump has few meetings directly about pressing geopolitical challenges. Instead, he’s in the Persian Gulf to make deals.`\
+https://nytimes.com/2025/05/13/world/europe/trump-middle-east-photos.html
+
+**Evander Kane was made for this series vs. Golden Knights. He showed why in Game 4**\
+`Kane's high-end offensive skill and fearlessness were on display in the Oilers' 3-0 win, putting them a win away from the conference finals.`\
+https://nytimes.com/athletic/6352165/2025/05/13/oilers-evander-kane-golden-knights-nhl-playoffs/
+
+**Kim Kardashian in Paris Court to Testify About Robbery Ordeal**\
+`The reality TV star and entrepreneur is expected to describe how she was tied up at gunpoint as jewelry worth millions was stolen in a 2016 attack.`\
+https://nytimes.com/2025/05/13/world/europe/kim-kardashian-testimony-paris-robbery-trial.html
+
 **Kim Kardashian to Testify About Robbery Ordeal at Paris Trial**\
 `The reality TV star and entrepreneur is expected to describe how she was tied up at gunpoint as jewelry worth millions was stolen in a 2016 attack.`\
 https://nytimes.com/2025/05/13/world/europe/kim-kardashian-testimony-paris-robbery-trial.html
