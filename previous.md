@@ -1,3 +1,7 @@
+**Mavericks' lottery miracle gives beaten-down fan base reason to be hopeful again**\
+`The Mavericks came away with the No. 1 pick — a scenario that had a 1.8 percent chance of occurring.`\
+https://nytimes.com/athletic/6352056/2025/05/13/mavericks-nba-draft-lottery-miracle-cooper-flagg/
+
 **The New York Times International Edition in Print for Wednesday, May 14, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/13/todays-new-york-times-international-edition
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/13/travel/united-states-international-visitors-decli
 **The Small, Tight-Knit Religious Order That Molded Pope Leo XIV**\
 `The Order of St. Augustine, with fewer than 3,000 members, shaped the man who would become a cardinal, and then pope to the world’s Roman Catholics.`\
 https://nytimes.com/2025/05/13/world/europe/pope-leo-order-of-st-augustine.html
-
-**I Reject Trump’s Random False Rationale Generator**\
-`When a ship is sinking, there’s value in knowing how fast, and calling it out. When a country is self-sabotaging, ditto.`\
-https://nytimes.com/2025/05/13/opinion/trump-firing-hayden.html
 
