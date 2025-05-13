@@ -1,3 +1,15 @@
+**Belichick: Jordon Hudson 'doesn’t have anything to do with UNC football'**\
+`Bill Belichick talked UNC football on "SportsCenter" on Tuesday and was also asked about the impact of his 24-year-old girlfriend.`\
+https://nytimes.com/athletic/6353546/2025/05/13/bill-belichick-jordon-hudson-sportscenter/
+
+**Federal School Voucher Proposal Advances, a Milestone for Conservatives**\
+`A provision in the House Republican budget bill would provide public money for private education and home-schooling, something many Democratic-led states have resisted.`\
+https://nytimes.com/2025/05/13/us/federal-school-vouchers-bill.html
+
+**Nate Holden, L.A. Democrat With a Cameo in 2024 Presidential Race, Dies at 95**\
+`An outspoken politician, he served four terms on the City Council and one in the California State Senate. And yes, that was him in the helicopter with Donald Trump.`\
+https://nytimes.com/2025/05/13/us/politics/nate-holden-dead.html
+
 **Making Dishwashers Great Again?**\
 `The Trump administration has moved to roll back efficiency and water standards for appliances, fueled by the president’s fixation on low-flow showers and toilets.`\
 https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6352907/2025/05/13/pga-championship-odds-dfs-picks-
 **Florida Panthers minority owner suspended indefinitely over social media posts**\
 `Comments were made using an X account that has since been deactivated following the Panthers' 2-0 win over the Toronto Maple Leafs in Game 4`\
 https://nytimes.com/athletic/6353270/2025/05/13/florida-panthers-minority-owner-cifu-suspended/
-
-**Man United under-18 coach Lawrence to leave at end of season**\
-`Lawrence led United to three trophies last year in his first year in charge at under-18s level.`\
-https://nytimes.com/athletic/6353468/2025/05/13/man-united-adam-lawrence-under-18-coach/
-
-**Watch: Cooper Flagg? Trade for Giannis? What will the Mavs do with NBA Draft Lottery salvation?**\
-`NBA Daily discuss the Dallas Mavericks winning the lottery and landing the No.1 overall pick in the 2025 NBA Draft.`\
-https://nytimes.com/athletic/6353262/2025/05/13/nba-daily-dallas-mavericks-draft-lottery-cooper-flagg/
-
-**Money Talks (and Listens) at Saudi Investment Forum Attended by Trump**\
-`The wealthy and the powerful gathered in Saudi Arabia with the goal of becoming even more so. “They’re going to walk away with a lot of checks,” President Trump said.`\
-https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-economic-forum.html
 

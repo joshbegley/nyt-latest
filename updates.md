@@ -1,3 +1,15 @@
+**Belichick: Jordon Hudson 'doesn’t have anything to do with UNC football'**\
+`Bill Belichick talked UNC football on "SportsCenter" on Tuesday and was also asked about the impact of his 24-year-old girlfriend.`\
+https://nytimes.com/athletic/6353546/2025/05/13/bill-belichick-jordon-hudson-sportscenter/
+
+**Federal School Voucher Proposal Advances, a Milestone for Conservatives**\
+`A provision in the House Republican budget bill would provide public money for private education and home-schooling, something many Democratic-led states have resisted.`\
+https://nytimes.com/2025/05/13/us/federal-school-vouchers-bill.html
+
+**Nate Holden, L.A. Democrat With a Cameo in 2024 Presidential Race, Dies at 95**\
+`An outspoken politician, he served four terms on the City Council and one in the California State Senate. And yes, that was him in the helicopter with Donald Trump.`\
+https://nytimes.com/2025/05/13/us/politics/nate-holden-dead.html
+
 **Making Dishwashers Great Again?**\
 `The Trump administration has moved to roll back efficiency and water standards for appliances, fueled by the president’s fixation on low-flow showers and toilets.`\
 https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html

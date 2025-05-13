@@ -1,3 +1,19 @@
+**Trump’s Focus on Punishing Drug Dealers May Hurt Drug Users Trying to Quit**\
+`Public health and addiction experts fear millions could lose access to treatment and prevention services if the administration’s proposed cuts are enacted.`\
+https://nytimes.com/2025/05/13/health/trump-drugs-treatment.html
+
+**Trump Says the United States Will End Sanctions on Syria**\
+`President Trump told a business forum in Saudi Arabia that he would lift sanctions on Syria. The announcement came a day before an expected meeting with Syria’s new president, who led the rebel alliance that ousted Bashar al-Assad.`\
+https://nytimes.com/video/world/middleeast/100000010167482/trump-syria-sanctions.html
+
+**Man City hopeful of signing AC Milan midfielder Reijnders**\
+`Talks over a deal for the 26-year-old midfielder are at an early stage and a formal offer is yet to be sent.`\
+https://nytimes.com/athletic/6350377/2025/05/13/man-city-tijjani-reijnders-transfer/
+
+**Connecticut Sun ownership exploring sale of team: 'All options are on the table'**\
+`The Mohegan Tribe have owned the franchise since 2003, when they paid $10 million to acquire what was then the Orlando Miracle.`\
+https://nytimes.com/athletic/6353370/2025/05/13/connecticut-sun-ownership-sale-update/
+
 **Belichick: Jordon Hudson 'doesn’t have anything to do with UNC football'**\
 `Bill Belichick talked UNC football on "SportsCenter" on Tuesday and was also asked about the impact of his 24-year-old girlfriend.`\
 https://nytimes.com/athletic/6353546/2025/05/13/bill-belichick-jordon-hudson-sportscenter/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/13/opinion/child-free-conversation-mothers.html
 **3M to Pay New Jersey Up to $450 Million for Drinking-Water Contamination**\
 `The state claimed ‘forever chemicals,’ also known as PFAS, contaminated groundwater from an industrial park where they were used for decades.`\
 https://nytimes.com/2025/05/13/climate/3m-pfas-forever-chemical-lawsuit-water-new-jersey.html
-
-**Why Wilyer Abreu and Ben Rice should continue to provide big power in fantasy baseball**\
-`Michael Salfino looks at bat speed and launch angle to uncover a list of trustworthy power sources, including Boston breakout Wilyer Abreu.`\
-https://nytimes.com/athletic/6353367/2025/05/13/fantasy-baseball-bat-speed-power-breakouts-abreu-rice/
-
-**M/other**\
-`In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free.`\
-https://nytimes.com/video/opinion/100000009447387/m-other.html
-
-**PGA Championship picks: Scheffler, McIlroy, DeChambeau dominate odds**\
-`Who pops on Dennis Esser's model for the second major of the year? A lot of golfers are hitting their stride just in time.`\
-https://nytimes.com/athletic/6352907/2025/05/13/pga-championship-odds-dfs-picks-scheffler-mcilroy-dechambeau/
-
-**Florida Panthers minority owner suspended indefinitely over social media posts**\
-`Comments were made using an X account that has since been deactivated following the Panthers' 2-0 win over the Toronto Maple Leafs in Game 4`\
-https://nytimes.com/athletic/6353270/2025/05/13/florida-panthers-minority-owner-cifu-suspended/
 
