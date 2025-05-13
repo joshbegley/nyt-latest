@@ -1,3 +1,19 @@
+**YouTube to stream NFL's Week 1 Chargers game in Brazil for free**\
+`The game in São Paulo, Brazil, will be the first NFL contest to stream live and for free on YouTube.`\
+https://nytimes.com/athletic/6352815/2025/05/13/youtube-nfl-game-chargers-week-1-free/
+
+**April Showers Bring May Flowers, the Playlist**\
+`Hear songs by Lana Del Rey, SZA, Waxahatchee and more.`\
+https://nytimes.com/2025/05/13/arts/music/amplifier-newsletter-april-showers-may-flowers.html
+
+**The Stock Market’s Boomerang Month Has Put Investors in a Bind**\
+`Although they long for more clarity about tariffs, investors feel they can’t sit on the sidelines as stocks climb.`\
+https://nytimes.com/2025/05/13/business/stock-market-trump-tariffs.html
+
+**After 38 Years in Prison for Murder, British Man Is Freed by New DNA Evidence**\
+`Peter Sullivan was found guilty of a brutal killing in 1987. But an appeals court overturned his conviction on Tuesday and ordered his immediate release.`\
+https://nytimes.com/2025/05/13/world/europe/peter-sullivan-murder-appeal-free-uk.html
+
 **Trump Administration Cuts Additional $450 Million in Grants to Harvard**\
 `The latest broadside from the federal government comes as Harvard faces multiple investigations from across the Trump administration.`\
 https://nytimes.com/2025/05/13/us/politics/trump-harvard-grants-450-million.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/13/movies/robert-benton-dead.html
 **Israel Bombards Gaza Seeking to Kill Top Hamas Leader, Officials Say**\
 `Israeli officials said the military had launched an attack targeting Mohammad Sinwar, one of Hamas’s top remaining commanders in Gaza and the brother of a leader killed last year.`\
 https://nytimes.com/2025/05/13/world/middleeast/israel-gaza-sinwar-khan-younis.html
-
-**Watch: How Paige Bueckers' stylist prepared the No.1 WNBA Draft pick for her big moment**\
-`No Offseason interview stylist and fashion designer Brittany Hampton about Paige Bueckers’ draft day fits.`\
-https://nytimes.com/athletic/6352212/2025/05/13/no-offseason-paige-bueckers-brittany-hampton-style/
-
-**Marta returns from international retirement with Brazil call up**\
-`The 39-year-old had announced her intention to walk away from the international game a year ago but has been called up again.`\
-https://nytimes.com/athletic/6353201/2025/05/13/marta-brazil-squad-return/
-
-**NFL to pause Accelerator program designed to promote diverse hiring**\
-`To date, only two accelerator alumni have managed to secure jobs thanks in part to the program.`\
-https://nytimes.com/athletic/6353235/2025/05/13/nfl-diversity-program-coach-candidates-hiatus-improvements/
-
-**Horses for courses: Which players are best suited to win at Quail Hollow?**\
-`Jason Sobel looks at the PGA Championship field for the best fits in terms of value, both for potential winners and finishing positions.`\
-https://nytimes.com/athletic/6351123/2025/05/13/2025-pga-championship-picks-odds-mcilroy-golf/
 
