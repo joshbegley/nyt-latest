@@ -1,3 +1,15 @@
+**2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
+`We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
+https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
+
+**Trump Administration Asks Supreme Court to Allow Venezuelan Deportations to Resume**\
+`The solicitor general contended that a group of migrants had barricaded themselves inside a Texas detention center and threatened to take hostages.`\
+https://nytimes.com/2025/05/12/us/politics/supreme-court-venezuelan-detainees.html
+
+**'He's in a good spot': Yankees' DJ LeMahieu expected to return Tuesday**\
+`LeMahieu, 36, hasn't played in a big-league game since Sept. 3.`\
+https://nytimes.com/athletic/6351529/2025/05/12/yankees-dj-lemahieu-expected-return-tuesday/
+
 **3 Climbers Die After Falling in North Cascades in Washington State**\
 `A fourth climber was seriously injured in what the authorities called a hiking accident in the mountain range.`\
 https://nytimes.com/2025/05/12/us/climbers-killed-north-cascades-washington.html
