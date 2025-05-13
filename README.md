@@ -1,3 +1,7 @@
+**New York’s Deepest Pockets Turn Out to Fight Poverty**\
+`The annual Robin Hood gala drew sports luminaries including Roger Goodell, Serena Williams and Eli Manning.`\
+https://nytimes.com/2025/05/13/style/robin-hood-gala-nyc.html
+
 **Iran Proposes Novel Path to Nuclear Deal With U.S.**\
 `In talks with American negotiators, the Iranians spoke of a consortium with several countries that would allow it to keep producing civilian grade fuel, but with more monitoring.`\
 https://nytimes.com/2025/05/13/world/middleeast/iran-us-nuclear-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/opinion/ag-sulzberger-free-press.html
 **The administration pulled funding for research on devices for babies with heart conditions.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/the-administration-pulled-funding-for-research-on-devices-for-babies-with-heart-conditions
-
-**Atmospheric River Causes Flash Flood Risks Across Mid-Atlantic**\
-`Rising waters seeped into the Westernport Post Office in Allegany County, Md., where the National Weather Service issued a flash flood warning on Tuesday afternoon after heavy rainfall.`\
-https://nytimes.com/video/climate/100000010167904/mid-atlantic-maryland-flood.html
 
