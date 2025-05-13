@@ -1,3 +1,19 @@
+**Don’t Know How to Face Your Mom? Talk to Your Friend’s Mom Instead.**\
+`In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free in “M/other.”`\
+https://nytimes.com/2025/05/13/opinion/child-free-conversation-mothers.html
+
+**3M to Pay New Jersey Up to $450 Million for Drinking-Water Contamination**\
+`The state claimed ‘forever chemicals,’ also known as PFAS, contaminated groundwater from an industrial park where they were used for decades.`\
+https://nytimes.com/2025/05/13/climate/3m-pfas-forever-chemical-lawsuit-water-new-jersey.html
+
+**Why Wilyer Abreu and Ben Rice should continue to provide big power in fantasy baseball**\
+`Michael Salfino looks at bat speed and launch angle to uncover a list of trustworthy power sources, including Boston breakout Wilyer Abreu.`\
+https://nytimes.com/athletic/6353367/2025/05/13/fantasy-baseball-bat-speed-power-breakouts-abreu-rice/
+
+**M/other**\
+`In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free.`\
+https://nytimes.com/video/opinion/100000009447387/m-other.html
+
 **PGA Championship picks: Scheffler, McIlroy, DeChambeau dominate odds**\
 `Who pops on Dennis Esser's model for the second major of the year? A lot of golfers are hitting their stride just in time.`\
 https://nytimes.com/athletic/6352907/2025/05/13/pga-championship-odds-dfs-picks-scheffler-mcilroy-dechambeau/
