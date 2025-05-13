@@ -1,3 +1,23 @@
+**Trump Said He Would Lift Sanctions on Syria**\
+`Also, a star witness took the stand in Sean Combs’s trial. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/05/13/briefing/trump-middle-east-trip-sean-combs-trial.html
+
+**Trump Can Use Alien Enemies Act Against Venezuelan Gang, Judge Rules**\
+`The ruling, applying only to detainees held in western Pennsylvania, is the first to uphold the president’s invocation of the wartime act. But it requires that detainees be given 21 days’ notice.`\
+https://nytimes.com/2025/05/13/us/trump-alien-enemies-act-venezuela-deportations.html
+
+**In High-Stakes Negotiations, Trump’s Opponents Are Learning His Patterns**\
+`President Trump often takes maximalist positions, only to back down and declare a win. His opponents are catching on.`\
+https://nytimes.com/2025/05/13/us/politics/trump-ukraine-china-iran-negotations.html
+
+**Rich Hill, 45, signs with Royals on a minor-league deal**\
+`Hill, 45, would be the oldest player in MLB if he reaches the big leagues. If he pitches for the Royals, he'll tie the MLB record for teams.`\
+https://nytimes.com/athletic/6353944/2025/05/13/rich-hill-royals-contract/
+
+**Timeline: Pete Rose and his decades-long quest for reinstatement**\
+`Key dates and turning points in Rose's long quest for full acceptance back into baseball.`\
+https://nytimes.com/athletic/6329769/2025/05/13/pete-rose-timeline/
+
 **I Get Bored at the Beach. Where Should I Go This Summer?**\
 `Suggestions for last-minute trips geared toward four very different kinds of traveler.`\
 https://nytimes.com/2025/05/13/t-magazine/summer-travel-guide.html
@@ -12,29 +32,9 @@ https://nytimes.com/2025/05/13/obituaries/jose-mujica-dead.html
 
 **The Pope’s Florida Brother, a MAGA Disciple, Plans to ‘Tone It Down’**\
 `Louis Prevost’s Facebook posts — no longer publicly viewable — suggest that he has embraced some of the most common complaints and conspiracy theories of the right.`\
-https://nytimes.com/2025/05/13/us/the-popes-florida-brother-a-maga-disciple-plans-to-tone-it-down.html
+https://nytimes.com/2025/05/13/us/louis-prevost-pope-leo-xiv-brother.html
 
 **The Virtues of Ideological Art**\
 `Why politics doesn’t necessarily ruin storytelling.`\
 https://nytimes.com/2025/05/13/opinion/right-wing-art.html
-
-**Bengals' Trey Hendrickson drama is as avoidable as it is out of control: Dehner Jr. **\
-`The Bengals have once again failed to be definitive and proactive and again have a disgruntled star looming over their offseason.`\
-https://nytimes.com/athletic/6353852/2025/05/13/trey-hendrickson-bengals-drama-avoidable/
-
-**Wednesday Briefing: Israeli Officers Warn of Famine**\
-`Plus, a Hollywood takeover at Cannes.`\
-https://nytimes.com/2025/05/13/briefing/israel-gaza-famine-trump-syria-sanctions-ukraine-russia-talks.html
-
-**Pete Rose's reinstatement opens door to Hall — for Hit King and other excluded greats**\
-`Rob Manfred has changed the landscape in Rose's Hall case and is redefining how we should look at the greatest players of the modern era.`\
-https://nytimes.com/athletic/6334912/2025/05/13/pete-rose-reinstatement-hall-of-fame-meaning/
-
-**Jayson Tatum has surgery on ruptured Achilles; no timetable for return**\
-`Celtics will be without Tatum as they attempt to rally from 3-1 deficit vs. Knicks.`\
-https://nytimes.com/athletic/6352918/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-nba-playoffs/
-
-**Tiny Company With China Ties Announces Big Purchase of Trump Cryptocurrency**\
-`The firm, which produces content for TikTok, recorded no revenue last year, but it announced this week that a mysterious stock sale would allow it to invest heavily in the $TRUMP memecoin.`\
-https://nytimes.com/2025/05/13/us/politics/trump-crypto-purchase.html
 
