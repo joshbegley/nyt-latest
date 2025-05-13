@@ -1,3 +1,11 @@
+**A high-powered list of business leaders is joining Trump at lunch in Riyadh.**\
+`By Jason Karaian`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-high-powered-list-of-business-leaders-is-joining-trump-at-lunch-in-riyadh
+
+**The Pulse: A true holy s— night in the NBA**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6350467/2025/05/13/cooper-flagg-mavericks-nba-lottery-the-pulse/
+
 **4 Memorable Moments From Presidential Visits With Saudi Leaders**\
 `From F.D.R. to Trump, presidents have traveled to see Saudi Arabia and its royal family on a variety of diplomatic missions, some more inscrutable than others.`\
 https://nytimes.com/2025/05/13/us/politics/us-presidents-saudi-arabia-visit-trump-biden-nixon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351340/2025/05/13/nick-saban-cody-campbell-college
 **Meet the man behind the NFL schedule, on the verge of his retirement**\
 `Following two decades of shaping how fans watch the NFL, Howard Katz will call it a career after his final schedule is revealed Wednesday.`\
 https://nytimes.com/athletic/6350605/2025/05/13/nfl-schedule-2025-howard-katz-retirement/
-
-**Lilly Singh joins Toronto Tempo ownership group, will be team's Chief Hype Officer**\
-`The team said Singh will be "building and amplifying excitement for the Tempo on and off the court."`\
-https://nytimes.com/athletic/6344537/2025/05/13/lilly-singh-joins-toronto-tempo-ownership-group-will-be-teams-chief-hype-officer/
-
-**Inside the 4 seconds that proved Taylor Hall is a natural Hurricane**\
-`With the momentum of the game — and potentially the series — hanging in the balance, the 33-year-old didn't need long.`\
-https://nytimes.com/athletic/6352030/2025/05/13/taylor-hall-hurricanes-nhl-playoffs-game-4/
 
