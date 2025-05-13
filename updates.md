@@ -1,3 +1,7 @@
+**Despite disastrous draft lottery slide, Pelicans can solidify foundation around Zion Williamson**\
+`Williamson's appearance for the Pelicans at the lottery was a signal the team is working with its best player as they enter a new phase.`\
+https://nytimes.com/athletic/6352077/2025/05/13/pelicans-draft-lottery-zion-williamson/
+
 **Yankees' Oswaldo Cabrera taken off field via ambulance after ankle injury**\
 `Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
 https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/

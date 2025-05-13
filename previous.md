@@ -1,3 +1,7 @@
+**Despite disastrous draft lottery slide, Pelicans can solidify foundation around Zion Williamson**\
+`Williamson's appearance for the Pelicans at the lottery was a signal the team is working with its best player as they enter a new phase.`\
+https://nytimes.com/athletic/6352077/2025/05/13/pelicans-draft-lottery-zion-williamson/
+
 **The Knicks are one win away from ending a 25-year drought. Here's how it happened**\
 `New York has the defending champs on the ropes. Now, the Knicks need to finish the job.`\
 https://nytimes.com/athletic/6351918/2025/05/13/knicks-beat-celtics-game-4/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/13/todays-new-york-times
 **This Is Not the Saudi Arabia Trump Visited Before**\
 `America’s national security could benefit from a successful Trump visit to Saudi Arabia — and suffer from a bad one.`\
 https://nytimes.com/2025/05/13/opinion/saudi-arabia-trump-visit.html
-
-**New Threats Require a New Army**\
-`A new doctrine will transform the kinds of weapons America uses, how they are purchased and how fast they get into the hands of soldiers.`\
-https://nytimes.com/2025/05/13/opinion/us-army-weapons-reform.html
 
