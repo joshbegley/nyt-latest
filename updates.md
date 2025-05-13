@@ -1,3 +1,15 @@
+**4 Memorable Moments From Presidential Visits With Saudi Leaders**\
+`From F.D.R. to Trump, presidents have traveled to see Saudi Arabia and its royal family on a variety of diplomatic missions, some more inscrutable than others.`\
+https://nytimes.com/2025/05/13/us/politics/us-presidents-saudi-arabia-visit-trump-biden-nixon.html
+
+**How Kyle Schwarber's changes vs. lefty pitchers transformed his game: 'Be prepared to die'**\
+`Schwarber has evolved into an elite left-on-left hitter by changing his preparation, equipment and, perhaps more than anything, his mind.  `\
+https://nytimes.com/athletic/6351739/2025/05/13/kyle-schwarber-versus-left-handed-pitchers-phillies/
+
+**The NBA Draft Lottery and the hard luck of the Sacramento Kings**\
+`Monday was another evening of bad luck for a team that has grown accustomed to it..`\
+https://nytimes.com/athletic/6351790/2025/05/13/nba-draft-lottery-kings-luck/
+
 **Jayson Tatum injury is Celtics' biggest concern, but minds must be clear for Game 5**\
 `Tatum had been Boston’s iron man. Seeing him helped off the court ripped a hole in the Celtics.`\
 https://nytimes.com/athletic/6352201/2025/05/13/jayson-tatum-celtics-knicks-nba-playoffs/
