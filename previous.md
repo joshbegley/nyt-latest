@@ -1,3 +1,11 @@
+**Prosecutors Charge Sinaloa Cartel Operatives With Terrorism Crimes**\
+`The indictment was the first time leaders of the cartel had been charged with terrorism crimes since a Trump executive order designated it a foreign terrorist organization.`\
+https://nytimes.com/2025/05/13/us/politics/sinaloa-cartel-terrorism.html
+
+**Debate Turns Raucous as House Panel Weighs Medicaid Cuts**\
+`Lawmakers bickered, protesters shouted and senators came to take in the moment as a House committee weighed a critical portion of a bill to enact President Trump’s domestic agenda.`\
+https://nytimes.com/2025/05/13/us/politics/house-medicaid-cuts.html
+
 **A.G. Sulzberger: A Free People Need a Free Press**\
 `The anti-press playbook is being used in this country — and it could not come at a more difficult time for the American press.`\
 https://nytimes.com/2025/05/13/opinion/ag-sulzberger-free-press.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6354052/2025/05/13/sunderland-championship-coventry
 **Harvard Adds to Legal Complaint Against Trump Administration**\
 `The university expanded its ongoing suit after the Trump administration said it would stop issuing grants to the school and promised to take another $450 million.`\
 https://nytimes.com/2025/05/13/us/harvard-trump-lawsuit.html
-
-**OpenAI in Talks to Acquire Windsurf, a Programming Tool, for $3 Billion**\
-`The deal could be a way for OpenAI to gain a foothold among programmers, who are rapidly embracing A.I. technologies.`\
-https://nytimes.com/2025/05/13/technology/openai-windsurf-talks.html
-
-**Trump Said He Would Lift Sanctions on Syria**\
-`Also, a star witness took the stand in Sean Combs’s trial. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/05/13/briefing/trump-middle-east-trip-sean-combs-trial.html
 

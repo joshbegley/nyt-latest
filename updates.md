@@ -1,3 +1,11 @@
+**Prosecutors Charge Sinaloa Cartel Operatives With Terrorism Crimes**\
+`The indictment was the first time leaders of the cartel had been charged with terrorism crimes since a Trump executive order designated it a foreign terrorist organization.`\
+https://nytimes.com/2025/05/13/us/politics/sinaloa-cartel-terrorism.html
+
+**Debate Turns Raucous as House Panel Weighs Medicaid Cuts**\
+`Lawmakers bickered, protesters shouted and senators came to take in the moment as a House committee weighed a critical portion of a bill to enact President Trump’s domestic agenda.`\
+https://nytimes.com/2025/05/13/us/politics/house-medicaid-cuts.html
+
 **A.G. Sulzberger: A Free People Need a Free Press**\
 `The anti-press playbook is being used in this country — and it could not come at a more difficult time for the American press.`\
 https://nytimes.com/2025/05/13/opinion/ag-sulzberger-free-press.html
