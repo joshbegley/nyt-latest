@@ -1,3 +1,11 @@
+**Skipper, Informally**\
+`Joe Rodini’s puzzle hits the spot.`\
+https://nytimes.com/2025/05/12/crosswords/daily-puzzle-2025-05-13.html
+
+**With Guarantees Galore, Christie’s Has a Rocky Start to Auction Week**\
+`There was little excited bidding on the art collection of the Riggio family, who built their fortune on the Barnes & Noble bookstore chain — a caution flag for the art market.`\
+https://nytimes.com/2025/05/12/arts/design/auction-christies-mondrian-monet.html
+
 **Republicans Target Federal Anti-Hunger Program as They Prepare Trump Tax Package**\
 `Limiting funding for SNAP could help defray the costs of President Trump’s tax plans, but could result in millions of low-income families losing access to aid.`\
 https://nytimes.com/2025/05/12/us/politics/trump-taxes-snap-program.html
