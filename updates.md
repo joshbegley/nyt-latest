@@ -1,3 +1,7 @@
+**Murray, Djokovic announce end of coaching partnership ahead of French Open**\
+`Murray joined Djokovic’s coaching team in November ahead of the 2025 season, and was in his box for the Australian Open.`\
+https://nytimes.com/athletic/6352148/2025/05/13/andy-murray-novak-djokovic-coaching/
+
 **Xi Woos Latin America With Promises of Cooperation on Technology**\
 `China’s leader Xi Jinping suggests expanding trade ties beyond buying commodities, as he continues to rally nations in the face of Trump’s tariffs.`\
 https://nytimes.com/2025/05/13/world/asia/china-xi-latin-america.html
