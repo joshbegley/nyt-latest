@@ -1,3 +1,11 @@
+**Madrid 'a club I'll keep in my heart', says Ancelotti ahead of Brazil switch**\
+`The Brazil Football Federation (CBF) confirmed the appointment of Ancelotti on Monday while Madrid are yet to officially announce his exit.`\
+https://nytimes.com/athletic/6352488/2025/05/13/carlo-ancelotti-real-madrid-brazil-switch/
+
+**Sean Combs is also facing dozens of lawsuits alleging sexual abuse.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/civil-lawsuits-sexual-abuse
+
 **The Combs trial is keeping podcasters, filmmakers and armchair analysts busy.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/documentaries-podcasts
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6348950/2025/05/13/blackhawks-prospects-icehogs-pla
 **Midseries notebook: Robertson shakes off the rust, Wheeler's TV debut and more**\
 `Plus an exploration of the Jets' road woes this postseason and Miro Heiskanen's seemingly impending return.`\
 https://nytimes.com/athletic/6351691/2025/05/13/jets-stars-nhl-playoffs-robertson-heiskanen-wheeler/
-
-**Raiders' flier on Jaylon Smith is a sign of an unsettled linebacker corps**\
-`Elandon Roberts and Devin White would likely be the starters if the season began today, but the Raiders are hoping for a Smith resurgence.`\
-https://nytimes.com/athletic/6350907/2025/05/13/raiders-jaylon-smith-linebacker/
-
-**Here’s the latest.**\
-`By Ben Sisario and Julia Jacobs`\
-https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/heres-the-latest
 
