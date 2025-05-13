@@ -1,3 +1,11 @@
+**Madrid 'a club I'll keep in my heart', says Ancelotti ahead of Brazil switch**\
+`The Brazil Football Federation (CBF) confirmed the appointment of Ancelotti on Monday while Madrid are yet to officially announce his exit.`\
+https://nytimes.com/athletic/6352488/2025/05/13/carlo-ancelotti-real-madrid-brazil-switch/
+
+**Sean Combs is also facing dozens of lawsuits alleging sexual abuse.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/civil-lawsuits-sexual-abuse
+
 **The Combs trial is keeping podcasters, filmmakers and armchair analysts busy.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/documentaries-podcasts
