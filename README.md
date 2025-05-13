@@ -1,40 +1,40 @@
-**Gérard Depardieu Convicted of Sexual Assault**\
-`The French actor was found guilty of sexually assaulting two women on the set of a movie in which he starred in 2021. He was given a suspended sentence of 18 months.`\
-https://nytimes.com/2025/05/13/world/europe/gerard-depardieu-guilty-sexual-assault-trial.html
+**Can Jalon Walker be the Falcons' Micah Parsons? He's going to try**\
+`Walker has not shied away from comparisons to Parsons, his friend and a four-time Pro Bowl player with the Cowboys.`\
+https://nytimes.com/athletic/6350490/2025/05/13/falcons-jalon-walker-micah-parsons-comparisons/
 
-**Oilers were better, faster and more desperate than Golden Knights in dominant Game 4 win**\
-`Vegas was dominated in nearly every aspect to push their season to the brink of elimination. `\
-https://nytimes.com/athletic/6352105/2025/05/13/oilers-golden-knights-game-4-nhl-playoffs/
+**George Pickens film review: How he can create space — and hurt — the Cowboys**\
+`Pickens has the talent to make a big difference in the Dallas offense. But when he lacks effort, it can have the opposite effect.`\
+https://nytimes.com/athletic/6344062/2025/05/13/cowboys-george-pickens-film-review/
 
-**Kashmiris Return to Rubble After India-Pakistan Truce**\
-`Kashmiris caught in the middle of the conflict between India and Pakistan sifted through the ruins of their homes, as many feared the cease-fire would be short-lived.`\
-https://nytimes.com/video/world/asia/100000010165462/kashmiris-return-to-rubble-after-india-pakistan-truce.html
+**‘We Have to Really Rethink the Purpose of Education’**\
+`Students are already using A.I. to learn and write. The education policy expert Rebecca Winthrop explores the big questions emerging for educators and parents.`\
+https://nytimes.com/2025/05/13/opinion/ezra-klein-podcast-rebecca-winthrop.html
 
-**Murray, Djokovic announce end of coaching partnership ahead of French Open**\
-`Murray joined Djokovic’s coaching team in November ahead of the 2025 season, and was in his box for the Australian Open.`\
-https://nytimes.com/athletic/6352148/2025/05/13/andy-murray-novak-djokovic-coaching/
+**‘We Have to Really Rethink the Purpose of Education’**\
+`Students are already using A.I. to learn and write. The education policy expert Rebecca Winthrop explores the big questions emerging for educators and parents.`\
+https://nytimes.com/video/opinion/100000010164342/we-have-to-really-rethink-the-purpose-of-education.html
 
-**Xi Woos Latin America With Promises of Cooperation on Technology**\
-`China’s leader Xi Jinping suggests expanding trade ties beyond buying commodities, as he continues to rally nations in the face of Trump’s tariffs.`\
-https://nytimes.com/2025/05/13/world/asia/china-xi-latin-america.html
+**As Foreign Tourists Stay Away, U.S. Could Lose $12.5 Billion This Year, Tourism Group Says**\
+`Border detentions and confusion over visas are deterring international visitors, according to the World Travel & Tourism Council, and the price tag for their hesitancy could be steep.`\
+https://nytimes.com/2025/05/13/travel/united-states-international-visitors-decline.html
 
-**Man Arrested Over Fire at Starmer’s North London House**\
-`The police said a 21-year-old was held in connection with three fires, including one at a property owned by the British prime minister in the Kentish Town neighborhood.`\
-https://nytimes.com/2025/05/13/world/europe/arrest-starmer-fire-house.html
+**The Small, Tight-Knit Religious Order That Molded Pope Leo XIV**\
+`The Order of St. Augustine, with fewer than 3,000 members, shaped the man who would become a cardinal, and then pope to the world’s Roman Catholics.`\
+https://nytimes.com/2025/05/13/world/europe/pope-leo-order-of-st-augustine.html
 
-**Baby Names**\
-`Do you think it’s important to have a unique name? What kind of name would you want to give a child if you had one?`\
-https://nytimes.com/2025/05/13/learning/baby-names.html
+**I Reject Trump’s Random False Rationale Generator**\
+`When a ship is sinking, there’s value in knowing how fast, and calling it out. When a country is self-sabotaging, ditto.`\
+https://nytimes.com/2025/05/13/opinion/trump-firing-hayden.html
 
-**New Jersey Is Facing a Possible Transit Strike. Here’s What to Know.**\
-`The union that represents the engineers who drive New Jersey Transit’s commuter trains has threatened a walkout as soon as Friday if a contract deal is not reached.`\
-https://nytimes.com/2025/05/13/nyregion/nj-transit-strike.html
+**Finding Stats, and Stories, About ‘Crime-Free Housing’ Laws**\
+`An investigation from The New York Times and The Illinois Answers Project found that renters in Illinois risked eviction if they had too much contact with the police.`\
+https://nytimes.com/2025/05/13/insider/investigation-crime-free-housing-laws.html
 
-**Behind a Museum Door, These Beetles Are Eating Flesh for Science**\
-`The six-legged staffers of the American Museum of Natural History’s Bug Colony do their grisly work under a lid. The result: neatly tidied bones.`\
-https://nytimes.com/2025/05/13/nyregion/american-museum-natural-history-beetles.html
+**Tariff Misery in Japan: Honda and Nissan Forecast Plunges in Profit**\
+`Japanese business leaders and officials were indignant at the U.S. decision to pause China tariffs, while Japan faces economic hardship from auto levies.`\
+https://nytimes.com/2025/05/13/business/trump-tariffs-nissan-honda.html
 
-**Takeaways From Harvey Weinstein’s Trial, and What’s Ahead in Week 5**\
-`The disgraced producer’s trial on sex charges resumes Tuesday in Manhattan with the cross-examination of a woman who says he abused her repeatedly.`\
-https://nytimes.com/2025/05/13/nyregion/harvey-weinstein-trial-what-to-know.html
+**How New Yorkers Are Adjusting to Congestion Pricing**\
+`The program has reduced traffic and produced revenue for the M.T.A., a New York Times analysis found.`\
+https://nytimes.com/2025/05/13/nyregion/how-new-yorkers-are-adjusting-to-congestion-pricing.html
 
