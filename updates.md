@@ -1,3 +1,8 @@
+**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
+`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
+`\
+https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+
 **Mavericks' lottery miracle gives beaten-down fan base reason to be hopeful again**\
 `The Mavericks came away with the No. 1 pick — a scenario that had a 1.8 percent chance of occurring.`\
 https://nytimes.com/athletic/6352056/2025/05/13/mavericks-nba-draft-lottery-miracle-cooper-flagg/

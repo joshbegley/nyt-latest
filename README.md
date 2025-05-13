@@ -1,3 +1,11 @@
+**Can Cooper Flagg, Paige Bueckers reignite the Dallas basketball culture?**\
+`Dallas' hoops culture has seen its lows as of late. But Bueckers' arrival and the possibility of drafting Flagg could be a game-changer.`\
+https://nytimes.com/athletic/6351617/2025/05/13/cooper-flagg-paige-bueckers-draft-lottery-mavericks-wings/
+
+**A tiebreaker cost the Bulls a shot at Cooper Flagg. What's next for Chicago?**\
+`A random drawing gave the Dallas Mavericks 0.1 percent chance more than the Bulls to land the winning ping-pong ball numbers in the lottery.`\
+https://nytimes.com/athletic/6351651/2025/05/13/cooper-flagg-bulls-nba-draft-lottery-tiebreaker/
+
 **Mavericks' lottery miracle gives beaten-down fan base reason to be hopeful again**\
 `The Mavericks came away with the No. 1 pick — a scenario that had a 1.8 percent chance of occurring.`\
 https://nytimes.com/athletic/6352056/2025/05/13/mavericks-nba-draft-lottery-miracle-cooper-flagg/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/13/opinion/ezra-klein-podcast-rebecca-winthrop.html
 **‘We Have to Really Rethink the Purpose of Education’**\
 `Students are already using A.I. to learn and write. The education policy expert Rebecca Winthrop explores the big questions emerging for educators and parents.`\
 https://nytimes.com/video/opinion/100000010164342/we-have-to-really-rethink-the-purpose-of-education.html
-
-**As Foreign Tourists Stay Away, U.S. Could Lose $12.5 Billion This Year, Tourism Group Says**\
-`Border detentions and confusion over visas are deterring international visitors, according to the World Travel & Tourism Council, and the price tag for their hesitancy could be steep.`\
-https://nytimes.com/2025/05/13/travel/united-states-international-visitors-decline.html
-
-**The Small, Tight-Knit Religious Order That Molded Pope Leo XIV**\
-`The Order of St. Augustine, with fewer than 3,000 members, shaped the man who would become a cardinal, and then pope to the world’s Roman Catholics.`\
-https://nytimes.com/2025/05/13/world/europe/pope-leo-order-of-st-augustine.html
 
