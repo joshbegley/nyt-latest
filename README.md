@@ -1,3 +1,15 @@
+**Wednesday Briefing: Israeli Officers Warn of Famine**\
+`Plus, a Hollywood takeover at Cannes.`\
+https://nytimes.com/2025/05/13/briefing/israel-gaza-famine-trump-syria-sanctions-ukraine-russia-talks.html
+
+**Pete Rose's reinstatement opens door to Hall — for Hit King and other excluded greats**\
+`Rob Manfred has changed the landscape in Rose's Hall case and is redefining how we should look at the greatest players of the modern era.`\
+https://nytimes.com/athletic/6334912/2025/05/13/pete-rose-reinstatement-hall-of-fame-meaning/
+
+**Jayson Tatum has surgery on ruptured Achilles; no timetable for return**\
+`Celtics will be without Tatum as they attempt to rally from 3-1 deficit vs. Knicks.`\
+https://nytimes.com/athletic/6352918/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-nba-playoffs/
+
 **Tiny Company With China Ties Announces Big Purchase of Trump Cryptocurrency**\
 `The firm, which produces content for TikTok, recorded no revenue last year, but it announced this week that a mysterious stock sale would allow it to invest heavily in the $TRUMP memecoin.`\
 https://nytimes.com/2025/05/13/us/politics/trump-crypto-purchase.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6172626/2025/05/13/pete-rose-hall-of-fame-explained
 **As Trump Courts Gifts and Dangles Access, Congress Sits on the Sidelines**\
 `Republicans on Capitol Hill seem unlikely to challenge President Trump as he pushes ethics guardrails around profiting from the presidency to the breaking point.`\
 https://nytimes.com/2025/05/13/us/politics/congress-republican-reaction-trump-qatar-plane.html
-
-**USMNT lines up World Cup tune-up friendlies against Japan, South Korea**\
-`It'll be 2026 World Cup cohost against the 2002 cohosts in a pair of September friendlies.`\
-https://nytimes.com/athletic/6353573/2025/05/13/usmnt-japan-south-korea-friendlies-world-cup/
-
-**Milton Williams after getting called out by Patriots coach Mike Vrabel: 'I like that'**\
-`“He wants me to go fast and empty the tank every rep,” Williams said. “I like that. ... Calling me out is going to help the other guys."`\
-https://nytimes.com/athletic/6353665/2025/05/13/milton-williams-patriots-mike-vrabel/
-
-**Saudis Greet Trump to His Tastes, With Pomp, Opulence and Real Estate**\
-`The Saudi crown prince gave President Trump a warm and opulent welcome, reflecting the amity between a royal family and presidential family with diplomatic and business alliances.`\
-https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-arabia.html
 
