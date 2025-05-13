@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/13/world/europe/russia-ukraine-putin-zelensky.html
 `The company suspended online orders for weeks after the breach, which may have exposed contact details and birth dates.`\
 https://nytimes.com/2025/05/13/world/europe/marks-spencer-cyber-attack.html
 
-**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery**\
+**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery?**\
 `Utah can select a very good player at No. 5 in the upcoming draft. But that wasn't the goal of suffering through a miserable 2024-25 season.`\
 https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
 

@@ -1,3 +1,11 @@
+**Blackburn at risk of Women's Championship relegation**\
+`Blackburn have been given until Monday, May 18 to decide whether they want to remain in the Women's Championship.`\
+https://nytimes.com/athletic/6352652/2025/05/13/blackburn-rovers-women-relegation/
+
+**A look back at the historic tracks that held F1's first world championship season**\
+`The seven tracks that launched Formula 1 in 1950 tell stories of daring, tragedy and evolution that shaped the sport`\
+https://nytimes.com/athletic/6350551/2025/05/13/1950-f1-75-anniversary/
+
 **Kremlin Stays Mum on Whether Putin Will Meet Zelensky**\
 `President Trump raised the prospect of attending negotiations himself, after Ukraine’s leader said he would go in person and challenged Russia’s to do the same.`\
 https://nytimes.com/2025/05/13/world/europe/russia-ukraine-putin-zelensky.html
