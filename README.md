@@ -1,3 +1,7 @@
+**Murray, Djokovic announce end of coaching partnership ahead of French Open**\
+`Murray joined Djokovic’s coaching team in November ahead of the 2025 season, and was in his box for the Australian Open.`\
+https://nytimes.com/athletic/6352148/2025/05/13/andy-murray-novak-djokovic-coaching/
+
 **Xi Woos Latin America With Promises of Cooperation on Technology**\
 `China’s leader Xi Jinping suggests expanding trade ties beyond buying commodities, as he continues to rally nations in the face of Trump’s tariffs.`\
 https://nytimes.com/2025/05/13/world/asia/china-xi-latin-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/health/los-angeles-fire-health-effects.html
 **A Toxic Pit Could Be a Gold Mine for Rare-Earth Elements**\
 `Mining continues at the Continental Pit. Nearby is the Berkeley Pit, a site for acid mine drainage that poses an opportunity for extracting valuable metals.`\
 https://nytimes.com/2025/05/13/science/berkeley-mine-pit-rare-earths.html
-
-**Trump Lands in Saudi Arabia, Kicking Off Tour of Gulf States**\
-`President Trump, who will also go to Qatar and the United Arab Emirates, has told advisers that he wants to sign deals worth more than $1 trillion on the trip.`\
-https://nytimes.com/2025/05/13/us/politics/trump-saudi-arabia-gulf-trip.html
 
