@@ -1,3 +1,7 @@
+**The Knicks are one win away from ending a 25-year drought. Here's how it happened**\
+`New York has the defending champs on the ropes. Now, the Knicks need to finish the job.`\
+https://nytimes.com/athletic/6351918/2025/05/13/knicks-beat-celtics-game-4/
+
 **Stephen Colbert Thinks the Nickname ‘Lady Giuliani’ Suits Jeanine Pirro**\
 `Colbert said President Trump’s latest appointment from the Fox News roster “drank a whole bottle of champagne, and then someone told her the news.”`\
 https://nytimes.com/2025/05/13/arts/television/stephen-colbert-jeanine-pirro.html
