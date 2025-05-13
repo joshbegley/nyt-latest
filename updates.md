@@ -1,3 +1,23 @@
+**The Surprising Health Benefits of Becoming Pope**\
+`Such a demanding job can be good for the brain and body. But Pope Leo XIV may also have to contend with challenges that are common in old age.`\
+https://nytimes.com/2025/05/13/well/pope-health-leo.html
+
+**Trump’s Focus on Punishing Drug Dealers May Hurt Drug Users Trying to Quit**\
+`Public health and addiction experts fear millions could lose access to treatment and prevention services if the administration’s proposed cuts are enacted.`\
+https://nytimes.com/2025/05/13/health/trump-drugs-treatment.html
+
+**Trump Says the United States Will End Sanctions on Syria**\
+`President Trump told a business forum in Saudi Arabia that he would lift sanctions on Syria. The announcement came a day before an expected meeting with Syria’s new president, who led the rebel alliance that ousted Bashar al-Assad.`\
+https://nytimes.com/video/world/middleeast/100000010167482/trump-syria-sanctions.html
+
+**Man City hopeful of signing AC Milan midfielder Reijnders**\
+`Talks over a deal for the 26-year-old midfielder are at an early stage and a formal offer is yet to be sent.`\
+https://nytimes.com/athletic/6350377/2025/05/13/man-city-tijjani-reijnders-transfer/
+
+**Connecticut Sun ownership exploring sale of team: 'All options are on the table'**\
+`The Mohegan Tribe have owned the franchise since 2003, when they paid $10 million to acquire what was then the Orlando Miracle.`\
+https://nytimes.com/athletic/6353370/2025/05/13/connecticut-sun-ownership-sale-update/
+
 **Belichick: Jordon Hudson 'doesn’t have anything to do with UNC football'**\
 `Bill Belichick talked UNC football on "SportsCenter" on Tuesday and was also asked about the impact of his 24-year-old girlfriend.`\
 https://nytimes.com/athletic/6353546/2025/05/13/bill-belichick-jordon-hudson-sportscenter/
