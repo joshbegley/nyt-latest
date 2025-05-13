@@ -1,3 +1,7 @@
+**Saudis Greet Trump to His Tastes, With Pomp, Opulence and Real Estate**\
+`The Saudi crown prince gave President Trump a warm and opulent welcome, reflecting the amity between a royal family and presidential family with diplomatic and business alliances.`\
+https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-arabia.html
+
 **Cassie testifies that freak-offs made her feel ‘worthless’ and ‘humiliated.’**\
 `By Julia Jacobs and Ben Sisario`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-testifies-that-freak-offs-made-her-feel-worthless-and-humiliated
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/13/us/politics/doge-musk-contracts-trump.html
 **The Surprising Health Benefits of Becoming Pope**\
 `Such a demanding job can be good for the brain and body. But Pope Leo XIV may also have to contend with challenges that are common in old age.`\
 https://nytimes.com/2025/05/13/well/pope-health-leo.html
-
-**Trump’s Focus on Punishing Drug Dealers May Hurt Drug Users Trying to Quit**\
-`Public health and addiction experts fear millions could lose access to treatment and prevention services if the administration’s proposed cuts are enacted.`\
-https://nytimes.com/2025/05/13/health/trump-drugs-treatment.html
 

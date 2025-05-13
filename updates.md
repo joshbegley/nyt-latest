@@ -1,3 +1,12 @@
+**Saudis Greet Trump to His Tastes, With Pomp, Opulence and Real Estate**\
+`The Saudi crown prince gave President Trump a warm and opulent welcome, reflecting the amity between a royal family and presidential family with diplomatic and business alliances.`\
+https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-arabia.html
+
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
 **Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
 `The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
 `\
