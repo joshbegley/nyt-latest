@@ -1,3 +1,8 @@
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
 **Yankees' Oswaldo Cabrera has ankle fracture: Analyzing N.Y.'s options**\
 `Cabrera twisted his ankle while avoiding the tag from Mariners catcher Cal Raleigh in Monday's game.`\
 https://nytimes.com/athletic/6353512/2025/05/13/oswaldo-cabrera-ankle-injury-yankees/
@@ -33,8 +38,4 @@ https://nytimes.com/video/world/middleeast/100000010167482/trump-syria-sanctions
 **Man City hopeful of signing AC Milan midfielder Reijnders**\
 `Talks over a deal for the 26-year-old midfielder are at an early stage and a formal offer is yet to be sent.`\
 https://nytimes.com/athletic/6350377/2025/05/13/man-city-tijjani-reijnders-transfer/
-
-**Connecticut Sun ownership exploring sale of team: 'All options are on the table'**\
-`The Mohegan Tribe have owned the franchise since 2003, when they paid $10 million to acquire what was then the Orlando Miracle.`\
-https://nytimes.com/athletic/6353370/2025/05/13/connecticut-sun-ownership-sale-update/
 
