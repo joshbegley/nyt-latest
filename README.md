@@ -1,3 +1,15 @@
+**Rafaela Pimenta interview: Sexism in football, the game's 'hostage' problem and doing the Haaland deal**\
+`The 'most powerful woman in football' speaks out about her experiences and the issues facing other women in the game`\
+https://nytimes.com/athletic/6339656/2025/05/13/rafaela-pimenta-interview-women-football-haaland/
+
+**Xabi Alonso made Bayer Leverkusen and the Bundesliga better. That's some legacy**\
+`The club were rewarded for the bold appointment of Alonso in 2022. His parting gift might be to broaden some of the Bundesliga's horizons`\
+https://nytimes.com/athletic/6349524/2025/05/13/xabi-alonso-bayer-leverkusent-bundesliga-legacy/
+
+**The WSL rebrand is big on spangle and stickers. But what if the focus was the football?**\
+`The top two tiers of women's football in England have a new look - but does the body running the game have its priorities right?`\
+https://nytimes.com/athletic/6350718/2025/05/13/womens-super-league-rebrand/
+
 **Jannik Sinner's return to tennis meets triumph with toughness in Rome**\
 `The world No. 1 was rusty on his first match back after three months away. His Italian Open draw means he cannot afford to be so for long.`\
 https://nytimes.com/athletic/6346644/2025/05/13/tennis-jannik-sinner-italian-open-results/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/12/pageoneplus/quote-of-the-day-for-catholics-he-is-
 **Hasan Piker, Popular Left-Wing Streamer, Says He Was Detained at Airport**\
 `Mr. Piker said he was questioned for two hours on topics including the war in Gaza and President Trump.`\
 https://nytimes.com/2025/05/12/us/politics/hasan-piker-twitch-questioned-trump-gaza.html
-
-**Kyle Leahy emerges as a key weapon in the bullpen as Cardinals win ninth straight**\
-`Monday, it wasn't so much Leahy's line score that was impressive. It was how and who he navigated through to keep the game in reach.`\
-https://nytimes.com/athletic/6351637/2025/05/12/st-louis-cardinals-win-9th-straight-kyle-leahy/
-
-**Mets' top of the order comes through to fuel another tight, late-inning victory**\
-`And as much as the Mets call Citi Field their home, they feel at home in the late innings of tight contests.`\
-https://nytimes.com/athletic/6351793/2025/05/12/mets-lindor-soto-alonso-walkoff-victory/
-
-**Don't believe the gumdrops and rainbows. The lottery was a disaster for the Wizards**\
-`Wizards officials put on a brave face in the aftermath, but Washington absorbed the most brutal gut punch the 2025 NBA Draft Lottery.`\
-https://nytimes.com/athletic/6351659/2025/05/12/washington-wizards-2025-nba-draft-lottery/
 
