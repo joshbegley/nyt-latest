@@ -1,3 +1,7 @@
+**China Truce Eases Tariffs but Does Little to Resolve Future Uncertainty**\
+`A 90-day pause on punishing tariffs could restart trade between the world’s largest economies. But it is not enough to resolve uncertainty about the economy.`\
+https://nytimes.com/2025/05/13/business/trump-china-tariff-deal-uncertainty.html
+
 **LSU-Clemson to kick off ABC's prime-time Saturday college football schedule**\
 `The game will feature two of the nation’s top returning quarterbacks in LSU’s Garrett Nussmeier and Clemson’s Cade Klubnik.`\
 https://nytimes.com/athletic/6353001/2025/05/13/lsu-clemson-game-abc-time-date/
@@ -22,19 +26,15 @@ https://nytimes.com/athletic/6352212/2025/05/13/no-offseason-paige-bueckers-brit
 `The 39-year-old had announced her intention to walk away from the international game a year ago but has been called up again.`\
 https://nytimes.com/athletic/6353201/2025/05/13/marta-brazil-squad-return/
 
-**NFL to cancel Accelerator program designed to promote diversity hiring practices**\
+**NFL to pause Accelerator program designed to promote diverse hiring**\
 `To date, only two accelerator alumni have managed to secure jobs thanks in part to the program.`\
 https://nytimes.com/athletic/6353235/2025/05/13/nfl-diversity-program-coach-candidates-hiatus-improvements/
+
+**Horses for courses: Which players are best suited to win at Quail Hollow?**\
+`Jason Sobel looks at the PGA Championship field for the best fits in terms of value, both for potential winners and finishing positions.`\
+https://nytimes.com/athletic/6351123/2025/05/13/2025-pga-championship-picks-odds-mcilroy-golf/
 
 **In Private, Some Israeli Officers Admit That Gaza Is on the Brink of Starvation**\
 `Israel’s government has publicly dismissed warnings of extreme food shortages after it blocked aid deliveries, but an internal analysis concluded that a crisis looms if food supplies are not restored.`\
 https://nytimes.com/2025/05/13/world/middleeast/gaza-famine-starvation-israel.html
-
-**Submit your Padres questions for Dennis Lin’s mailbag**\
-`It’s only mid-May, but the San Diego Padres appear to have a legitimate shot of winning their first National League West title since 2006.`\
-https://nytimes.com/athletic/6042129/2025/05/13/submit-your-padres-questions-for-dennis-lins-mailbag-2/
-
-**Saudi King Salman absent so far from Trump state visit.**\
-`By Ismaeel Naar`\
-https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/trump-saudi-arabia-crown-prince-salman
 

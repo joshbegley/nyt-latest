@@ -1,3 +1,15 @@
+**China Truce Eases Tariffs but Does Little to Resolve Future Uncertainty**\
+`A 90-day pause on punishing tariffs could restart trade between the world’s largest economies. But it is not enough to resolve uncertainty about the economy.`\
+https://nytimes.com/2025/05/13/business/trump-china-tariff-deal-uncertainty.html
+
+**NFL to pause Accelerator program designed to promote diverse hiring**\
+`To date, only two accelerator alumni have managed to secure jobs thanks in part to the program.`\
+https://nytimes.com/athletic/6353235/2025/05/13/nfl-diversity-program-coach-candidates-hiatus-improvements/
+
+**Horses for courses: Which players are best suited to win at Quail Hollow?**\
+`Jason Sobel looks at the PGA Championship field for the best fits in terms of value, both for potential winners and finishing positions.`\
+https://nytimes.com/athletic/6351123/2025/05/13/2025-pga-championship-picks-odds-mcilroy-golf/
+
 **LSU-Clemson to kick off ABC's prime-time Saturday college football schedule**\
 `The game will feature two of the nation’s top returning quarterbacks in LSU’s Garrett Nussmeier and Clemson’s Cade Klubnik.`\
 https://nytimes.com/athletic/6353001/2025/05/13/lsu-clemson-game-abc-time-date/
