@@ -1,3 +1,23 @@
+**Interior Department Weighs Less Conservation, More Extraction**\
+`A leaked version of the department’s five-year strategic planning document favors privatization and economic returns from the nation’s public lands.`\
+https://nytimes.com/2025/05/13/science/interior-department-public-land.html
+
+**Alex Morgan rejoins the San Diego Wave as a minority investor**\
+`The news comes eight months the two-time World Cup champion, Olympic gold medalist and former Wave captain, announced her retirement.`\
+https://nytimes.com/athletic/6351989/2025/05/13/alex-morgan-rejoins-san-diego-wave-minority-investor/
+
+**Jazz at Lincoln Center’s New Season Highlights Ties to Africa**\
+`From July through June 2026, the new season will showcase works by John Coltrane, the South African pianist Abdullah Ibrahim and more.`\
+https://nytimes.com/2025/05/13/arts/music/jazz-lincoln-center-2025-2026-season.html
+
+**Meals for Maycember**\
+`The end of spring can bring a flurry of activities for both children and parents. These five dinners are fast to make and great to prep ahead of time.`\
+https://nytimes.com/2025/05/13/dining/meals-for-maycember.html
+
+**Everton confirm Goodison Park to become new home of women's team**\
+`Goodison will become the UK’s first major standalone stadium dedicated solely to a women’s team.`\
+https://nytimes.com/athletic/6340175/2025/05/13/goodison-park-everton-women-wsl/
+
 **Saudi Arabia Rolls Out Lavender Carpet for Trump**\
 `In recent years, Saudi Arabia has swapped red carpets for lavender, a symbolic color for the kingdom that celebrates national identity.`\
 https://nytimes.com/2025/05/13/us/politics/saudi-arabia-lavender-carpet-trump-visit.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/13/books/review/originial-sin-jake-tapper-alex-thomp
 **White South Africans Granted Refugee Status by Trump: What We Know**\
 `The first group of Afrikaners have arrived in the United States, claiming they were victims of persecution or had reason to fear persecution in their home country.`\
 https://nytimes.com/article/afrikaner-refugees-trump-south-africa.html
-
-**Germany Bans a Far-Right Group and Arrests 4 of Its Leaders**\
-`Members of a group calling itself the Kingdom of Germany, which was targeted in nationwide raids, reject the existence of the German state and want to set up a parallel one.`\
-https://nytimes.com/2025/05/13/world/europe/germany-ban-far-right-kingdom.html
-
-**A wild draft lottery night just changed everything across the NBA**\
-`Could the Mavericks, Spurs and/or Sixers shop their unexpected top-three picks? What will happen in Boston?`\
-https://nytimes.com/athletic/6352464/2025/05/13/nba-draft-lottery-trades-mavericks-spurs-sixers-giannis-flagg/
-
-**The Bounce: The Mavericks have won the Cooper Flagg lottery. How does that affect the NBA?**\
-`The Mavericks are able to draft Cooper Flagg first overall in the NBA Draft. How will their draft lottery win influence the league?`\
-https://nytimes.com/athletic/6352686/2025/05/13/dallas-mavericks-cooper-flagg-nba-draft-lottery-nba-the-bounce/
-
-**Boxes of Nazi Material Are Found After Decades in Basement of Argentina Court**\
-`Thousands of documents in the boxes could result in new information about Nazi activity in Argentina in the early years of World War II.`\
-https://nytimes.com/2025/05/13/world/americas/nazi-documents-argentina.html
-
-**Brighton in talks with Milner over extending stay at club**\
-`Discussions are ongoing with Milner and his representatives about his future plans.`\
-https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
 
