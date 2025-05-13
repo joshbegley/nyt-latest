@@ -1,3 +1,7 @@
+**Explained: Marinakis, Nuno and Awoniyi - what happened and were any rules broken?**\
+`Breaking down what caused Sunday's controversy, the reaction and what the fallout could be at Nottingham Forest`\
+https://nytimes.com/athletic/6351319/2025/05/13/evangelos-marinakis-nuno-espirito-santo-taiwo-awoniyi-explained/
+
 **A witness to violence and voyeuristic sex will retake the stand.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/a-witness-to-violence-and-voyeuristic-sex-will-retake-the-stand
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie
 **Rangers free-agent big board: Top targets, from depth forwards to a big swing on D**\
 `To dip into the free-agency waters, New York will have to clear cap space — drastic amounts if it's going after a headliner.`\
 https://nytimes.com/athletic/6350425/2025/05/13/rangers-free-agent-targets/
-
-**Who would be the best potential fit on top-line wing? Red Wings mailbag, part 1**\
-`What's the relative value of star power over depth? And who around the league would provide a good blueprint for Detroit's roster holes?`\
-https://nytimes.com/athletic/6347999/2025/05/13/red-wings-dylan-larkin-lucas-raymond-wing/
 

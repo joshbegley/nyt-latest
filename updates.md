@@ -1,3 +1,7 @@
+**Explained: Marinakis, Nuno and Awoniyi - what happened and were any rules broken?**\
+`Breaking down what caused Sunday's controversy, the reaction and what the fallout could be at Nottingham Forest`\
+https://nytimes.com/athletic/6351319/2025/05/13/evangelos-marinakis-nuno-espirito-santo-taiwo-awoniyi-explained/
+
 **A witness to violence and voyeuristic sex will retake the stand.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/a-witness-to-violence-and-voyeuristic-sex-will-retake-the-stand
