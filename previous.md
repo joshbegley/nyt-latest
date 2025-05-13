@@ -1,3 +1,15 @@
+**Warriors have some serious spacing issues and their season is drowning because of it**\
+`Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
+https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/
+
+**Shamelessness Is Trump’s Superpower**\
+`Donald Trump is well on his way to becoming one of the most corrupt presidents in the history of the United States.`\
+https://nytimes.com/2025/05/13/opinion/trump-corruption-politics.html
+
+**A High School Festival Keeps Duke Ellington Very Much Alive**\
+`Essentially Ellington once again brought the world’s best high school jazz musicians to New York. Over the last 30 years, the event has reshaped how jazz is taught.`\
+https://nytimes.com/2025/05/13/style/essentially-ellington-wynton-marsalis-jazz.html
+
 **Blackburn at risk of Women's Championship relegation**\
 `Blackburn have been given until Monday, May 18 to decide whether they want to remain in the Women's Championship.`\
 https://nytimes.com/athletic/6352652/2025/05/13/blackburn-rovers-women-relegation/
@@ -10,7 +22,7 @@ https://nytimes.com/2025/05/13/world/europe/russia-ukraine-putin-zelensky.html
 `The company suspended online orders for weeks after the breach, which may have exposed contact details and birth dates.`\
 https://nytimes.com/2025/05/13/world/europe/marks-spencer-cyber-attack.html
 
-**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery**\
+**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery?**\
 `Utah can select a very good player at No. 5 in the upcoming draft. But that wasn't the goal of suffering through a miserable 2024-25 season.`\
 https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6350551/2025/05/13/1950-f1-75-anniversary/
 **No Naked Dressing? How Will Stars Make News?**\
 `A new dress code at the Cannes Film Festival has set off a tempest in tulle.`\
 https://nytimes.com/2025/05/13/style/cannes-film-festival-naked-dressing-ban.html
-
-**Canucks free-agent targets: 8 UFA centremen who could fix Vancouver's top six**\
-`Adding a top-six centreman is the greatest challenge facing the Canucks this offseason.`\
-https://nytimes.com/athletic/6352172/2025/05/13/canucks-free-agent-targets-centers-nhl/
-
-**NFL 2025 international schedule: Vikings to Dublin, London back-to-back**\
-`The Broncos (London), Rams (London), Falcons (Berlin) and Commanders (Madrid) are also headed overseas in 2025.`\
-https://nytimes.com/athletic/6350612/2025/05/13/nfl-international-games-2025-season-schedule/
-
-**What's next for Giannis Antetokounmpo and the Bucks?**\
-`Antetokounmpo has not asked for a trade, but Milwaukee's ability to build a championship roster around him appears constrained. So now what?`\
-https://nytimes.com/athletic/6351966/2025/05/13/giannis-antetokounmpo-bucks-future-trade/
 

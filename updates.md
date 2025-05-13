@@ -1,3 +1,19 @@
+**Warriors have some serious spacing issues and their season is drowning because of it**\
+`Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
+https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/
+
+**Shamelessness Is Trump’s Superpower**\
+`Donald Trump is well on his way to becoming one of the most corrupt presidents in the history of the United States.`\
+https://nytimes.com/2025/05/13/opinion/trump-corruption-politics.html
+
+**A High School Festival Keeps Duke Ellington Very Much Alive**\
+`Essentially Ellington once again brought the world’s best high school jazz musicians to New York. Over the last 30 years, the event has reshaped how jazz is taught.`\
+https://nytimes.com/2025/05/13/style/essentially-ellington-wynton-marsalis-jazz.html
+
+**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery?**\
+`Utah can select a very good player at No. 5 in the upcoming draft. But that wasn't the goal of suffering through a miserable 2024-25 season.`\
+https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
+
 **Blackburn at risk of Women's Championship relegation**\
 `Blackburn have been given until Monday, May 18 to decide whether they want to remain in the Women's Championship.`\
 https://nytimes.com/athletic/6352652/2025/05/13/blackburn-rovers-women-relegation/
