@@ -1,5 +1,9 @@
+**The New York Times International Edition in Print for Wednesday, May 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/13/todays-new-york-times-international-edition
+
 **Trump Administration Live Updates: President Kicks Off Gulf Tour in Saudi Arabia**\
-`The president will also go to Qatar and the United Arab Emirates, and is expected to receive lavish hospitality throughout the trip. He has told advisers that he wants to sign deals worth more than $1 trillion.`\
+`The president, who will also visit Qatar and the United Arab Emirates, is expected to receive lavish hospitality throughout the trip. He has told advisers that he wants to sign deals worth more than $1 trillion.`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia
 
 **Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/13/world/europe/pope-leo-order-of-st-augustine.html
 **I Reject Trump’s Random False Rationale Generator**\
 `When a ship is sinking, there’s value in knowing how fast, and calling it out. When a country is self-sabotaging, ditto.`\
 https://nytimes.com/2025/05/13/opinion/trump-firing-hayden.html
-
-**Finding Stats, and Stories, About ‘Crime-Free Housing’ Laws**\
-`An investigation from The New York Times and The Illinois Answers Project found that renters in Illinois risked eviction if they had too much contact with the police.`\
-https://nytimes.com/2025/05/13/insider/investigation-crime-free-housing-laws.html
 
