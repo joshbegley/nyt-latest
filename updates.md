@@ -1,3 +1,7 @@
+**Saudi Arabia Rolls Out Lavender Carpet for Trump**\
+`In recent years, Saudi Arabia has swapped red carpets for lavender, a symbolic color for the kingdom that celebrates national identity.`\
+https://nytimes.com/2025/05/13/us/politics/saudi-arabia-lavender-carpet-trump-visit.html
+
 **Tariffs Drive Honda to Move S.U.V. Production From Canada to U.S.**\
 `President Trump’s trade war again tests Canada’s new government. Honda is also canceling plans for a major electric vehicle factory in Canada.`\
 https://nytimes.com/2025/05/13/world/americas/honda-trump-tariffs-us-canada.html

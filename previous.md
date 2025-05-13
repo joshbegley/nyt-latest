@@ -1,3 +1,7 @@
+**Saudi Arabia Rolls Out Lavender Carpet for Trump**\
+`In recent years, Saudi Arabia has swapped red carpets for lavender, a symbolic color for the kingdom that celebrates national identity.`\
+https://nytimes.com/2025/05/13/us/politics/saudi-arabia-lavender-carpet-trump-visit.html
+
 **Tariffs Drive Honda to Move S.U.V. Production From Canada to U.S.**\
 `President Trump’s trade war again tests Canada’s new government. Honda is also canceling plans for a major electric vehicle factory in Canada.`\
 https://nytimes.com/2025/05/13/world/americas/honda-trump-tariffs-us-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/world/americas/nazi-documents-argentina.html
 **Brighton in talks with Milner over extending stay at club**\
 `Discussions are ongoing with Milner and his representatives about his future plans.`\
 https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
-
-**Submit your questions for C. Trent Rosecrans' Reds mailbag**\
-`The Cincinnati Reds have now played over one-fourth of their 162 regular-season games.`\
-https://nytimes.com/athletic/6350422/2025/05/13/submit-your-questions-for-c-trent-rosecrans-reds-mailbag/
 
