@@ -1,3 +1,15 @@
+**4 Memorable Moments From Presidential Visits With Saudi Leaders**\
+`From F.D.R. to Trump, presidents have traveled to see Saudi Arabia and its royal family on a variety of diplomatic missions, some more inscrutable than others.`\
+https://nytimes.com/2025/05/13/us/politics/us-presidents-saudi-arabia-visit-trump-biden-nixon.html
+
+**How Kyle Schwarber's changes vs. lefty pitchers transformed his game: 'Be prepared to die'**\
+`Schwarber has evolved into an elite left-on-left hitter by changing his preparation, equipment and, perhaps more than anything, his mind.  `\
+https://nytimes.com/athletic/6351739/2025/05/13/kyle-schwarber-versus-left-handed-pitchers-phillies/
+
+**The NBA Draft Lottery and the hard luck of the Sacramento Kings**\
+`Monday was another evening of bad luck for a team that has grown accustomed to it..`\
+https://nytimes.com/athletic/6351790/2025/05/13/nba-draft-lottery-kings-luck/
+
 **Jayson Tatum injury is Celtics' biggest concern, but minds must be clear for Game 5**\
 `Tatum had been Boston’s iron man. Seeing him helped off the court ripped a hole in the Celtics.`\
 https://nytimes.com/athletic/6352201/2025/05/13/jayson-tatum-celtics-knicks-nba-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6344537/2025/05/13/lilly-singh-joins-toronto-tempo-
 **Inside the 4 seconds that proved Taylor Hall is a natural Hurricane**\
 `With the momentum of the game — and potentially the series — hanging in the balance, the 33-year-old didn't need long.`\
 https://nytimes.com/athletic/6352030/2025/05/13/taylor-hall-hurricanes-nhl-playoffs-game-4/
-
-**2025 NBA Mock Draft: Our writers make their lottery picks**\
-`There's likely no surprise at the top, but as we get deeper into the lottery, teams will have some choices to make.`\
-https://nytimes.com/athletic/6351385/2025/05/13/nba-mock-draft-lottery-selections-cooper-flagg/
-
-**The Kardashians of golf courses? Not everyone loves PGA host Quail Hollow**\
-`As a big stage for a big golf tournament, it’s first-rate. As a major test? It leaves many wanting more.`\
-https://nytimes.com/athletic/6351436/2025/05/13/pga-championship-golf-course-quail-hollow/
-
-**Pro Padel League partners with Unrivaled women's basketball, announces Season 2 schedule**\
-`The Pro Padel League (PPL), which is based in North America and uses a U.`\
-https://nytimes.com/athletic/6350280/2025/05/13/pro-padel-league-partners-with-unrivaled-womens-basketball-announces-season-2-schedule/
 
