@@ -1,3 +1,7 @@
+**Stephen Colbert Thinks the Nickname ‘Lady Giuliani’ Suits Jeanine Pirro**\
+`Colbert said President Trump’s latest appointment from the Fox News roster “drank a whole bottle of champagne, and then someone told her the news.”`\
+https://nytimes.com/2025/05/13/arts/television/stephen-colbert-jeanine-pirro.html
+
 **Word of the Day: proscenium**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/13/learning/word-of-the-day-proscenium.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/opinion/us-army-weapons-reform.html
 **Padres top prospect Ethan Salas to miss 2 months with stress reaction in lower back**\
 `Salas signed with the Padres in January 2023 for $5.6 million, the largest bonus in that year's international signing class.`\
 https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-months-lower-back/
-
-**Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
-`The Braves beat the Nationals on Alex Verdugo's ninth-inning single Monday night.`\
-https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
 

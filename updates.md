@@ -1,3 +1,7 @@
+**Stephen Colbert Thinks the Nickname ‘Lady Giuliani’ Suits Jeanine Pirro**\
+`Colbert said President Trump’s latest appointment from the Fox News roster “drank a whole bottle of champagne, and then someone told her the news.”`\
+https://nytimes.com/2025/05/13/arts/television/stephen-colbert-jeanine-pirro.html
+
 **Word of the Day: proscenium**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/13/learning/word-of-the-day-proscenium.html
