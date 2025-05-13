@@ -1,3 +1,8 @@
+**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
+`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
+`\
+https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+
 **Can Cooper Flagg, Paige Bueckers reignite the Dallas basketball culture?**\
 `Dallas' hoops culture has seen its lows as of late. But Bueckers' arrival and the possibility of drafting Flagg could be a game-changer.`\
 https://nytimes.com/athletic/6351617/2025/05/13/cooper-flagg-paige-bueckers-draft-lottery-mavericks-wings/

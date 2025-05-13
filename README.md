@@ -1,41 +1,40 @@
-**Can Cooper Flagg, Paige Bueckers reignite the Dallas basketball culture?**\
-`Dallas' hoops culture has seen its lows as of late. But Bueckers' arrival and the possibility of drafting Flagg could be a game-changer.`\
-https://nytimes.com/athletic/6351617/2025/05/13/cooper-flagg-paige-bueckers-draft-lottery-mavericks-wings/
+**What are realistic expectations for Vikings QB J.J. McCarthy? What the history tells us**\
+`The Vikings may be waiting to declare McCarthy the starter, but he is receiving the starter reps. Just how good can he be in 2025?`\
+https://nytimes.com/athletic/6350631/2025/05/13/jj-mccarthy-minnesota-vikings-expectations/
 
-**A tiebreaker cost the Bulls a shot at Cooper Flagg. What's next for Chicago?**\
-`A random drawing gave the Dallas Mavericks 0.1 percent chance more than the Bulls to land the winning ping-pong ball numbers in the lottery.`\
-https://nytimes.com/athletic/6351651/2025/05/13/cooper-flagg-bulls-nba-draft-lottery-tiebreaker/
+**What do the co-chairs of Trump's new commission believe about college sports?**\
+`Saban and Campbell's past public statements provide some clues on what they might seek to address.`\
+https://nytimes.com/athletic/6351340/2025/05/13/nick-saban-cody-campbell-college-sports/
 
-**Mavericks' lottery miracle gives beaten-down fan base reason to be hopeful again**\
-`The Mavericks came away with the No. 1 pick — a scenario that had a 1.8 percent chance of occurring.`\
-https://nytimes.com/athletic/6352056/2025/05/13/mavericks-nba-draft-lottery-miracle-cooper-flagg/
+**Meet the man behind the NFL schedule, on the verge of his retirement**\
+`Following two decades of shaping how fans watch the NFL, Howard Katz will call it a career after his final schedule is revealed Wednesday.`\
+https://nytimes.com/athletic/6350605/2025/05/13/nfl-schedule-2025-howard-katz-retirement/
 
-**The New York Times International Edition in Print for Wednesday, May 14, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/13/todays-new-york-times-international-edition
+**Lilly Singh joins Toronto Tempo ownership group, will be team's Chief Hype Officer**\
+`The team said Singh will be "building and amplifying excitement for the Tempo on and off the court."`\
+https://nytimes.com/athletic/6344537/2025/05/13/lilly-singh-joins-toronto-tempo-ownership-group-will-be-teams-chief-hype-officer/
 
-**Trump Administration Live Updates: President Kicks Off Gulf Tour in Saudi Arabia**\
-`The president, who will also visit Qatar and the United Arab Emirates, is expected to receive lavish hospitality throughout the trip. He has told advisers that he wants to sign deals worth more than $1 trillion.`\
-https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia
+**Inside the 4 seconds that proved Taylor Hall is a natural Hurricane**\
+`With the momentum of the game — and potentially the series — hanging in the balance, the 33-year-old didn't need long.`\
+https://nytimes.com/athletic/6352030/2025/05/13/taylor-hall-hurricanes-nhl-playoffs-game-4/
 
-**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
-`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
-`\
-https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+**2025 NBA Mock Draft: Our writers make their lottery picks**\
+`There's likely no surprise at the top, but as we get deeper into the lottery, teams will have some choices to make.`\
+https://nytimes.com/athletic/6351385/2025/05/13/nba-mock-draft-lottery-selections-cooper-flagg/
 
-**Can Jalon Walker be the Falcons' Micah Parsons? He's going to try**\
-`Walker has not shied away from comparisons to Parsons, his friend and a four-time Pro Bowl player with the Cowboys.`\
-https://nytimes.com/athletic/6350490/2025/05/13/falcons-jalon-walker-micah-parsons-comparisons/
+**The Kardashians of golf courses? Not everyone loves PGA host Quail Hollow**\
+`As a big stage for a big golf tournament, it’s first-rate. As a major test? It leaves many wanting more.`\
+https://nytimes.com/athletic/6351436/2025/05/13/pga-championship-golf-course-quail-hollow/
 
-**George Pickens film review: How he can create space — and hurt — the Cowboys**\
-`Pickens has the talent to make a big difference in the Dallas offense. But when he lacks effort, it can have the opposite effect.`\
-https://nytimes.com/athletic/6344062/2025/05/13/cowboys-george-pickens-film-review/
+**Pro Padel League partners with Unrivaled women's basketball, announces Season 2 schedule**\
+`The Pro Padel League (PPL), which is based in North America and uses a U.`\
+https://nytimes.com/athletic/6350280/2025/05/13/pro-padel-league-partners-with-unrivaled-womens-basketball-announces-season-2-schedule/
 
-**‘We Have to Really Rethink the Purpose of Education’**\
-`Students are already using A.I. to learn and write. The education policy expert Rebecca Winthrop explores the big questions emerging for educators and parents.`\
-https://nytimes.com/2025/05/13/opinion/ezra-klein-podcast-rebecca-winthrop.html
+**What if the Jets had signed Derek Carr instead of trading for Aaron Rodgers two years ago?**\
+`Weighing the alternate history if the Jets had signed the other veteran QB they considered before the 2023 season.`\
+https://nytimes.com/athletic/6347697/2025/05/13/what-if-jets-had-signed-derek-carr/
 
-**‘We Have to Really Rethink the Purpose of Education’**\
-`Students are already using A.I. to learn and write. The education policy expert Rebecca Winthrop explores the big questions emerging for educators and parents.`\
-https://nytimes.com/video/opinion/100000010164342/we-have-to-really-rethink-the-purpose-of-education.html
+**Stanway, Hemp, Greenwood return to England squad, James misses out**\
+`Sarina Wiegman has selected a 27-player squad for the Nations League fixtures against Portugal and Spain.`\
+https://nytimes.com/athletic/6352128/2025/05/13/england-women-squad-spain-portugal/
 
