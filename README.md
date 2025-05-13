@@ -1,3 +1,11 @@
+**New USMNT, USWNT kits feature classic looks with a nod to an iconic throwback**\
+`With the 2026 World Cup on home soil nearing, the USMNT has one new look, while the USWNT has a complete set that meets a World Cup standard`\
+https://nytimes.com/athletic/6352793/2025/05/13/new-usmnt-uswnt-kits-photos-jerseys/
+
+**Tesla’s Board Chair Made $198 Million Selling Stock as Profit Fell**\
+`Robyn Denholm sold Tesla stock in recent months while Elon Musk, the chief executive she oversees, worked for President Trump and alienated many car buyers.`\
+https://nytimes.com/2025/05/13/business/tesla-stock-sales-robyn-denholm.html
+
 **Trump to Meet Syria’s New Leader in Saudi Arabia**\
 `President Trump said on Monday that he may ease sanctions on Syria.`\
 https://nytimes.com/2025/05/13/us/politics/trump-syria-president-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6352897/2025/05/13/hockey-canada-sexual-assault-tri
 **Judge Appoints Outside Official to Take Over Deadly Rikers Island Jail**\
 `Laura Taylor Swain, a federal judge, seized control of New York City’s lockups, which have been rife with violence and dysfunction.`\
 https://nytimes.com/2025/05/13/nyregion/rikers-island-receiver-nyc.html
-
-**How the World’s Largest Jeweler Is Surviving the Trade War**\
-`Pandora, the Danish jewelry company, said it was “battle ready,” with plans to raise prices and reroute shipments from the United States, but tariffs could potentially cost it millions of dollars.`\
-https://nytimes.com/2025/05/13/business/trump-tariffs-pandora-jewelry.html
-
-**Anthony Stolarz back on the ice ahead of Leafs practice**\
-`Stolarz hadn’t been seen around the team since getting knocked out of Game 1 against the Panthers with a suspected head injury.`\
-https://nytimes.com/athletic/6352964/2025/05/13/maple-leafs-anthony-stolarz-nhl-playoffs-panthers/
 

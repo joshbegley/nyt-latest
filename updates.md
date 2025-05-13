@@ -1,3 +1,19 @@
+**Trump to Meet Syria’s New Leader in Saudi Arabia**\
+`President Trump said on Monday that he may ease sanctions on Syria.`\
+https://nytimes.com/2025/05/13/us/politics/trump-syria-president-meeting.html
+
+**What Has Trump Done to West Point?**\
+`Responses to a guest essay about the Trump administration’s assault on academic freedom at the U.S. Military Academy. Also: The Qatari gift of a plane.`\
+https://nytimes.com/2025/05/13/opinion/trump-west-point.html
+
+**Elizabeth Pochoda, Journalist Who Traversed the Media World, Dies at 83**\
+`She was a writer and a top editor at publications as diverse as The Nation, Vogue and Entertainment Weekly. She also helped found Grand Street and reboot Vanity Fair.`\
+https://nytimes.com/2025/05/13/business/media/elizabeth-pochoda-dead.html
+
+**Friedkin Group ambition, lasting legacy and bold vision – why Everton women are moving into Goodison**\
+`Everton's US owners quickly identified moving the women's team into Goodison Park would be viable – and plan on restoring former glories`\
+https://nytimes.com/athletic/6352859/2025/05/13/everton-women-goodison-park-permanent-home/
+
 **The Case of Kim Kardashian’s Courtroom Diamonds**\
 `Testifying at her robbery trial in Paris, the businesswoman and influencer chose some unexpected accessories.`\
 https://nytimes.com/2025/05/13/style/kim-kardashian-diamonds-paris-robbery-trial.html

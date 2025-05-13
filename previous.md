@@ -1,3 +1,19 @@
+**Trump to Meet Syria’s New Leader in Saudi Arabia**\
+`President Trump said on Monday that he may ease sanctions on Syria.`\
+https://nytimes.com/2025/05/13/us/politics/trump-syria-president-meeting.html
+
+**What Has Trump Done to West Point?**\
+`Responses to a guest essay about the Trump administration’s assault on academic freedom at the U.S. Military Academy. Also: The Qatari gift of a plane.`\
+https://nytimes.com/2025/05/13/opinion/trump-west-point.html
+
+**Elizabeth Pochoda, Journalist Who Traversed the Media World, Dies at 83**\
+`She was a writer and a top editor at publications as diverse as The Nation, Vogue and Entertainment Weekly. She also helped found Grand Street and reboot Vanity Fair.`\
+https://nytimes.com/2025/05/13/business/media/elizabeth-pochoda-dead.html
+
+**Friedkin Group ambition, lasting legacy and bold vision – why Everton women are moving into Goodison**\
+`Everton's US owners quickly identified moving the women's team into Goodison Park would be viable – and plan on restoring former glories`\
+https://nytimes.com/athletic/6352859/2025/05/13/everton-women-goodison-park-permanent-home/
+
 **The Case of Kim Kardashian’s Courtroom Diamonds**\
 `Testifying at her robbery trial in Paris, the businesswoman and influencer chose some unexpected accessories.`\
 https://nytimes.com/2025/05/13/style/kim-kardashian-diamonds-paris-robbery-trial.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/13/business/trump-tariffs-pandora-jewelry.html
 **Anthony Stolarz back on the ice ahead of Leafs practice**\
 `Stolarz hadn’t been seen around the team since getting knocked out of Game 1 against the Panthers with a suspected head injury.`\
 https://nytimes.com/athletic/6352964/2025/05/13/maple-leafs-anthony-stolarz-nhl-playoffs-panthers/
-
-**Ohio State women's basketball coach Kevin McGuff charged with DUI**\
-`Police arrested McGuff after his vehicle reportedly struck several curbs and drove through the lawn of a Dublin, Ohio, residence.`\
-https://nytimes.com/athletic/6351704/2025/05/13/ohio-state-coach-kevin-mcgruff-dui/
-
-**Why This Used Car Company Thinks Tariffs Could Be Good for Business**\
-`The chief executive of Carvana, which sells used cars online, said President Trump’s tariffs could help his company by increasing demand for its vehicles.`\
-https://nytimes.com/2025/05/13/business/economy/trump-tariffs-used-cars-carvana.html
-
-**Is the Answer to Expensive Cars a Pickup Truck Without Power Windows?**\
-`Slate Auto, a start-up backed by Jeff Bezos, plans to sell a small, spartan electric truck that comes with no paint, stereo or touch-screens.`\
-https://nytimes.com/2025/05/13/business/slate-auto-electric-truck.html
-
-**CAS reject Uruguay players' appeal against bans for Copa America melee with fans**\
-`Uruguay players and officials received sanctions for a confrontation with Colombia supporters after last July's Copa America semi-final.`\
-https://nytimes.com/athletic/6352789/2025/05/13/uruguay-copa-america-colombia-player-bans/
 
