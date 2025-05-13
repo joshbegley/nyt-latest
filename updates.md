@@ -1,3 +1,8 @@
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
 **Cassie testifies that freak-offs made her feel ‘worthless’ and ‘humiliated.’**\
 `By Julia Jacobs and Ben Sisario`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-testifies-that-freak-offs-made-her-feel-worthless-and-humiliated
