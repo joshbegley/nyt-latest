@@ -2,7 +2,7 @@
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6351732/2025/05/12/nwsl-savy-king-incident-full-time/
 
-**NBA playoffs takeaways: Knicks complete another comeback as Celtics lose Tatum to injury**\
+**NBA playoffs: Knicks rally once again; Celtics' Jayson Tatum exits with injury**\
 `This game was not a Celtics letdown. It was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
 https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
 
