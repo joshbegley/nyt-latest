@@ -1,3 +1,7 @@
+**Skipper, Informally**\
+`Joe Rodini’s puzzle hits the spot.`\
+https://nytimes.com/2025/05/12/crosswords/daily-puzzle-2025-05-13.html
+
 **Republicans Target Federal Anti-Hunger Program as They Prepare Trump Tax Package**\
 `Limiting funding for SNAP could help defray the costs of President Trump’s tax plans, but could result in millions of low-income families losing access to aid.`\
 https://nytimes.com/2025/05/12/us/politics/trump-taxes-snap-program.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/05/12/us/politics/trump-taxes-snap-program.html
 https://nytimes.com/athletic/6351432/2025/05/12/hurricanes-capitals-nhl-playoffs-2025-game-4-takeaways/
 
 **With Guarantees Galore, Christie’s Has a Rocky Start to Auction Week**\
-`There was little bidding on the art collection of the Riggio family, who built their fortune on the Barnes & Noble bookstore chain — a caution flag for the art market.`\
+`There was little excited bidding on the art collection of the Riggio family, who built their fortune on the Barnes & Noble bookstore chain — a caution flag for the art market.`\
 https://nytimes.com/2025/05/12/arts/design/auction-christies-mondrian-monet.html
 
 **NBA world reacts to Mavs' draft lottery win: 'The lottery gods are shining'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/us/climbers-killed-north-cascades-washington.html
 **Biden Is Being Evaluated for a ‘Small Nodule’ in His Prostate**\
 `It is common for a man of Mr. Biden’s age to experience prostate issues. His spokesman declined to elaborate on any details about his care.`\
 https://nytimes.com/2025/05/12/us/politics/biden-prostate.html
-
-**Argentina bans 15,000 violent fans from stadiums during Club World Cup**\
-`The expanded Club World Cup will run from June 14 and July 13, featuring 32 teams from around the world.`\
-https://nytimes.com/athletic/6351374/2025/05/12/argentina-club-world-cup-violent-fan-bans/
 
