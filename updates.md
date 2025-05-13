@@ -1,3 +1,7 @@
+**Word of the Day: proscenium**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/13/learning/word-of-the-day-proscenium.html
+
 **Tory Lanez Is Attacked by Another Inmate in Prison**\
 `The rapper was hospitalized after being stabbed 14 times, his Instagram account said. He is serving a 10-year sentence for shooting the hip-hop star Megan Thee Stallion.`\
 https://nytimes.com/2025/05/13/us/tory-lanez-attacked-prison.html

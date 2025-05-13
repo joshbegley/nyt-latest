@@ -1,3 +1,7 @@
+**Word of the Day: proscenium**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/13/learning/word-of-the-day-proscenium.html
+
 **Tory Lanez Is Attacked by Another Inmate in Prison**\
 `The rapper was hospitalized after being stabbed 14 times, his Instagram account said. He is serving a 10-year sentence for shooting the hip-hop star Megan Thee Stallion.`\
 https://nytimes.com/2025/05/13/us/tory-lanez-attacked-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-month
 **Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
 `The Braves beat the Nationals on Alex Verdugo's ninth-inning single Monday night.`\
 https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
-
-**Inside Newcastle Q&A: Summer transfer update, Miley not for sale - and where are the stadium plans?**\
-`Chris Waugh offers an insight into the questions you wanted answering - on Miley, Tindall, infrastructure and much, much more`\
-https://nytimes.com/athletic/6349238/2025/05/13/inside-newcastle-united-transfers-miley-stadium/
 
