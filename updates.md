@@ -1,3 +1,8 @@
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
 **As Trump Courts Gifts and Dangles Access, Congress Sits on the Sidelines**\
 `Republicans on Capitol Hill seem unlikely to challenge President Trump as he pushes ethics guardrails around profiting from the presidency to the breaking point.`\
 https://nytimes.com/2025/05/13/us/politics/congress-republican-reaction-trump-qatar-plane.html

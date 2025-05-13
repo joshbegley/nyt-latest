@@ -1,5 +1,9 @@
+**As Trump Crows Over Ending a Conflict, India’s Leaders Feel Betrayed**\
+`President Trump’s repeated descriptions of U.S. mediation efforts between India and Pakistan have hit sore spots in Indian politics.`\
+https://nytimes.com/2025/05/13/world/asia/trump-india-pakistan-ceasefire.html
+
 **Blue Jays pitching prospect Jake Bloss to undergo UCL surgery**\
-`TORONTO — Jake Bloss entered 2025 as an ace up the Toronto Blue Jays’ sleeve.`\
+`On May 3, Bloss left a start against the Iowa Cubs in the fourth inning holding his right arm. `\
 https://nytimes.com/athletic/6353833/2025/05/13/blue-jays-jake-bloss-ucl-surgery/
 
 **Inside the Extraordinary Contradictions in Trump’s Immigration Policies**\
@@ -33,9 +37,4 @@ https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-te
 **Amorim pays for friends and family of Man United backroom staff to attend final**\
 `Amorim has covered the cost for around 30 backroom staff members to bring family to Bilbao.`\
 https://nytimes.com/athletic/6353708/2025/05/13/man-united-europa-league-final-ruben-amorim/
-
-**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
-`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
-`\
-https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
 
