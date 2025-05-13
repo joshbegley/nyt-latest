@@ -1,3 +1,7 @@
+**3 Climbers Die After Falling in North Cascades in Washington State**\
+`A fourth climber was seriously injured in what the authorities called a hiking accident in the mountain range.`\
+https://nytimes.com/2025/05/12/us/climbers-killed-north-cascades-washington.html
+
 **Biden Is Being Evaluated for a ‘Small Nodule’ in His Prostate**\
 `It is common for a man of Mr. Biden’s age to experience prostate issues. His spokesman declined to elaborate on any details about his care.`\
 https://nytimes.com/2025/05/12/us/politics/biden-prostate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-fl
 **Should You Fly Through Newark Airport? Here’s What You Need to Know.**\
 `Technology and staffing problems have plagued the airport, one of the nation’s busiest hubs. Officials say they are trying to resolve the issues, but concerns remain.`\
 https://nytimes.com/2025/05/12/travel/newark-airport-flights-safety.html
-
-**Karma Comes for Kennedy**\
-`Casey Means’s nomination to be surgeon general has led to a rift in MAHA.`\
-https://nytimes.com/2025/05/12/opinion/casey-means-maha.html
 
