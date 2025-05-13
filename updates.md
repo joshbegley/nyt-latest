@@ -1,3 +1,7 @@
+**U.S. Inflation Stable Ahead of Expected Jump From Tariffs**\
+`Economists and policymakers are bracing for inflation to re-accelerate as companies adapt to President Trump’s trade war.`\
+https://nytimes.com/2025/05/13/business/inflation-prices-tariffs.html
+
 **Madrid 'a club I'll keep in my heart', says Ancelotti ahead of Brazil switch**\
 `The Brazil Football Federation (CBF) confirmed the appointment of Ancelotti on Monday while Madrid are yet to officially announce his exit.`\
 https://nytimes.com/athletic/6352488/2025/05/13/carlo-ancelotti-real-madrid-brazil-switch/

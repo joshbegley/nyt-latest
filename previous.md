@@ -1,3 +1,7 @@
+**U.S. Inflation Stable Ahead of Expected Jump From Tariffs**\
+`Economists and policymakers are bracing for inflation to re-accelerate as companies adapt to President Trump’s trade war.`\
+https://nytimes.com/2025/05/13/business/inflation-prices-tariffs.html
+
 **Madrid 'a club I'll keep in my heart', says Ancelotti ahead of Brazil switch**\
 `The Brazil Football Federation (CBF) confirmed the appointment of Ancelotti on Monday while Madrid are yet to officially announce his exit.`\
 https://nytimes.com/athletic/6352488/2025/05/13/carlo-ancelotti-real-madrid-brazil-switch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6347999/2025/05/13/red-wings-dylan-larkin-lucas-ray
 **What we learned about Blackhawks prospects during the Rockford IceHogs' playoffs**\
 `The IceHogs pushed the Milwaukee Admirals to five games in a best-of-five AHL conference semifinal series. `\
 https://nytimes.com/athletic/6348950/2025/05/13/blackhawks-prospects-icehogs-playoffs-levshunov-korchinski-savoie/
-
-**Midseries notebook: Robertson shakes off the rust, Wheeler's TV debut and more**\
-`Plus an exploration of the Jets' road woes this postseason and Miro Heiskanen's seemingly impending return.`\
-https://nytimes.com/athletic/6351691/2025/05/13/jets-stars-nhl-playoffs-robertson-heiskanen-wheeler/
 
