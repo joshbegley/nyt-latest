@@ -1,3 +1,7 @@
+**The Combs trial is keeping podcasters, filmmakers and armchair analysts busy.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/documentaries-podcasts
+
 **Zeev Buium's NHL crash course could pay off in bid to make Wild out of training camp**\
 `Zeev Buium's first taste of the NHL was a trial by fire, but he learned some valuable lessons and earned his teammates' admiration.`\
 https://nytimes.com/athletic/6351527/2025/05/13/zeev-buium-wild-nhl-playoffs-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350907/2025/05/13/raiders-jaylon-smith-linebacker/
 **Here’s the latest.**\
 `By Ben Sisario and Julia Jacobs`\
 https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/heres-the-latest
-
-**Mirtle: The Maple Leafs need to bring their best in Game 5 to fend off skeptics**\
-`It's not hyperbole to call Wednesday's game as must-win as this Leafs core has faced over the last nine years.`\
-https://nytimes.com/athletic/6351567/2025/05/13/maple-leafs-nhl-playoffs-game-5-skeptics/
 
