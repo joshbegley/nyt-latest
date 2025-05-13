@@ -1,3 +1,12 @@
+**Cassie testifies that freak-offs made her feel ‘worthless’ and ‘humiliated.’**\
+`By Julia Jacobs and Ben Sisario`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-testifies-that-freak-offs-made-her-feel-worthless-and-humiliated
+
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
 **Amorim pays for friends and family of Man United backroom staff to attend final**\
 `Amorim has covered the cost for around 30 backroom staff members to bring family to Bilbao.`\
 https://nytimes.com/athletic/6353708/2025/05/13/man-united-europa-league-final-ruben-amorim/
