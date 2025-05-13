@@ -1,3 +1,15 @@
+**A.G. Sulzberger: A Free People Need a Free Press**\
+`The anti-press playbook is being used in this country — and it could not come at a more difficult time for the American press.`\
+https://nytimes.com/2025/05/13/opinion/ag-sulzberger-free-press.html
+
+**The administration pulled funding for research on devices for babies with heart conditions.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/the-administration-pulled-funding-for-research-on-devices-for-babies-with-heart-conditions
+
+**Atmospheric River Causes Flash Flood Risks Across Mid-Atlantic**\
+`Rising waters seeped into the Westernport Post Office in Allegany County, Md., where the National Weather Service issued a flash flood warning on Tuesday afternoon after heavy rainfall.`\
+https://nytimes.com/video/climate/100000010167904/mid-atlantic-maryland-flood.html
+
 **All roads don't lead to the SEC: Jackson Cantwell's decision to pick Miami a win for the ACC**\
 `Cantwell, the nation's No. 1 overall prospect, picked Miami over Georgia, Ohio State and Oregon. `\
 https://nytimes.com/athletic/6354024/2025/05/13/jackson-cantwell-recruiting-miami-mario-cristobal/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/13/technology/openai-windsurf-talks.html
 **Trump Said He Would Lift Sanctions on Syria**\
 `Also, a star witness took the stand in Sean Combs’s trial. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/05/13/briefing/trump-middle-east-trip-sean-combs-trial.html
-
-**Trump Can Use Alien Enemies Act Against Venezuelan Gang, Judge Rules**\
-`The ruling, applying only to detainees held in western Pennsylvania, is the first to uphold the president’s invocation of the wartime act. But it requires that detainees be given 21 days’ notice.`\
-https://nytimes.com/2025/05/13/us/trump-alien-enemies-act-venezuela-deportations.html
-
-**In High-Stakes Negotiations, Trump’s Opponents Are Learning His Patterns**\
-`President Trump often takes maximalist positions, only to back down and declare a win. His opponents are catching on.`\
-https://nytimes.com/2025/05/13/us/politics/trump-ukraine-china-iran-negotations.html
-
-**Rich Hill, 45, signs with Royals on a minor-league deal**\
-`Hill, 45, would be the oldest player in MLB if he reaches the big leagues. If he pitches for the Royals, he'll tie the MLB record for teams.`\
-https://nytimes.com/athletic/6353944/2025/05/13/rich-hill-royals-contract/
 
