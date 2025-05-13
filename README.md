@@ -1,3 +1,7 @@
+**The Surprising Health Benefits of Becoming Pope**\
+`Such a demanding job can be good for the brain and body. But Pope Leo XIV may also have to contend with challenges that are common in old age.`\
+https://nytimes.com/2025/05/13/well/pope-health-leo.html
+
 **Trump’s Focus on Punishing Drug Dealers May Hurt Drug Users Trying to Quit**\
 `Public health and addiction experts fear millions could lose access to treatment and prevention services if the administration’s proposed cuts are enacted.`\
 https://nytimes.com/2025/05/13/health/trump-drugs-treatment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html
 **Don’t Know How to Face Your Mom? Talk to Your Friend’s Mom Instead.**\
 `In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free in “M/other.”`\
 https://nytimes.com/2025/05/13/opinion/child-free-conversation-mothers.html
-
-**3M to Pay New Jersey Up to $450 Million for Drinking-Water Contamination**\
-`The state claimed ‘forever chemicals,’ also known as PFAS, contaminated groundwater from an industrial park where they were used for decades.`\
-https://nytimes.com/2025/05/13/climate/3m-pfas-forever-chemical-lawsuit-water-new-jersey.html
 
