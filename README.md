@@ -1,3 +1,7 @@
+**Trump says he might join Russia-Ukraine peace talks in Turkey.**\
+`President Trump said he may add a stop in Istanbul to his tour of the Gulf.`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/trump-says-he-might-join-russia-ukraine-peace-talks-in-turkey
+
 **Tariff Flip-Flops**\
 `Despite President Trump’s claims, America seems to need other countries’ trade as much as they need ours.`\
 https://nytimes.com/2025/05/13/briefing/trump-tariffs-china.html
@@ -10,8 +14,8 @@ https://nytimes.com/video/world/middleeast/100000010165555/trump-saudi-riyadh-gu
 `Today in TAFC: 20 years of the Glazers at Manchester United - the impact, the view from U.S., what next? Plus: Is Pulisic being overplayed?`\
 https://nytimes.com/athletic/6352213/2025/05/13/glazers-manchester-united-debt-takeover/
 
-**A high-powered list of business leaders is joining Trump at lunch in Riyadh.**\
-`By Jason Karaian`\
+**Elon Musk, Sam Altman and Other C.E.O.s Join Trump at U.S.-Saudi Lunch**\
+`Many of the executives — including representatives of four of the 10 biggest U.S. companies by market value — are seeking business from Saudi investors and a chance to lobby top Trump officials.`\
 https://nytimes.com/2025/05/13/us/politics/trump-saudi-business-lunch-musk-altman.html
 
 **The Pulse: A true holy s— night in the NBA**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351790/2025/05/13/nba-draft-lottery-kings-luck/
 **Jayson Tatum injury is Celtics' biggest concern, but minds must be clear for Game 5**\
 `Tatum had been Boston’s iron man. Seeing him helped off the court ripped a hole in the Celtics.`\
 https://nytimes.com/athletic/6352201/2025/05/13/jayson-tatum-celtics-knicks-nba-playoffs/
-
-**Defining short- and long-term expectations for the Bears' top 4 draft picks**\
-`The Bears drafted four players in the first two rounds of the NFL Draft this year.`\
-https://nytimes.com/athletic/6350638/2025/05/13/bears-draft-pick-expectations-colston-loveland/
 
