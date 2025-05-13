@@ -1,3 +1,15 @@
+**All roads don't lead to the SEC: Jackson Cantwell's decision to pick Miami a win for the ACC**\
+`Cantwell, the nation's No. 1 overall prospect, picked Miami over Georgia, Ohio State and Oregon. `\
+https://nytimes.com/athletic/6354024/2025/05/13/jackson-cantwell-recruiting-miami-mario-cristobal/
+
+**Rosenthal: Rob Manfred’s decision to reinstate Pete Rose raises questions about what’s next**\
+`Reinstating Rose, at least in a narrow, short-term view, comes at little cost. The Hall of Fame is the true prize for Rose’s supporters.`\
+https://nytimes.com/athletic/6329688/2025/05/13/pete-rose-mlb-rob-manfred/
+
+**Adams Lashes Out at Prosecutors, Saying They Sought to Humiliate Him**\
+`Mayor Eric Adams of New York City railed against the federal authorities who accused him of corruption and seized his numerous cellphones.`\
+https://nytimes.com/2025/05/13/nyregion/adams-fbi-phones-trump.html
+
 **Sunderland to face Sheffield United in final after extra-time goal against Coventry**\
 `Ballard’s 122nd-minute header earned Sunderland a 1-1 draw on the night, and a 2-1 victory on aggregate.`\
 https://nytimes.com/athletic/6354052/2025/05/13/sunderland-championship-coventry-ballard/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/13/us/politics/trump-ukraine-china-iran-negotations.
 **Rich Hill, 45, signs with Royals on a minor-league deal**\
 `Hill, 45, would be the oldest player in MLB if he reaches the big leagues. If he pitches for the Royals, he'll tie the MLB record for teams.`\
 https://nytimes.com/athletic/6353944/2025/05/13/rich-hill-royals-contract/
-
-**Timeline: Pete Rose and his decades-long quest for reinstatement**\
-`Key dates and turning points in Rose's long quest for full acceptance back into baseball.`\
-https://nytimes.com/athletic/6329769/2025/05/13/pete-rose-timeline/
-
-**I Get Bored at the Beach. Where Should I Go This Summer?**\
-`Suggestions for last-minute trips geared toward four very different kinds of traveler.`\
-https://nytimes.com/2025/05/13/t-magazine/summer-travel-guide.html
-
-**The Giants are struggling to score runs. Here are some reasons why**\
-`The Giants came into the year as team with potential scoring issues. That issue remains. These are the root causes of those hitting woes.`\
-https://nytimes.com/athletic/6353204/2025/05/13/sf-giants-offense-struggles/
 
