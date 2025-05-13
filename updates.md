@@ -1,3 +1,7 @@
+**Trump Administration Cuts Additional $450 Million in Grants to Harvard**\
+`The latest broadside from the federal government comes as Harvard faces multiple investigations from across the Trump administration.`\
+https://nytimes.com/2025/05/13/us/politics/trump-harvard-grants-450-million.html
+
 **China Truce Eases Tariffs but Does Little to Resolve Future Uncertainty**\
 `A 90-day pause on punishing tariffs could restart trade between the world’s largest economies. But it is not enough to resolve uncertainty about the economy.`\
 https://nytimes.com/2025/05/13/business/trump-china-tariff-deal-uncertainty.html
