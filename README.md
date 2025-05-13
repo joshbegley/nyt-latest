@@ -1,6 +1,18 @@
+**Tariff Flip-Flops**\
+`Despite President Trump’s claims, America seems to need other countries’ trade as much as they need ours.`\
+https://nytimes.com/2025/05/13/briefing/trump-tariffs-china.html
+
+**President Trump Arrives in Saudi Capital on 4-Day Gulf Tour**\
+`President Trump was greeted by Crown Prince Mohammed bin Salman of Saudi Arabia as he stepped off Air Force One on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000010165555/trump-saudi-riyadh-gulf-states-tour.html
+
+**The Athletic FC: Glazers & Man Utd: Debt, drama, what now? Plus: Does Pulisic need a break?**\
+`Today in TAFC: 20 years of the Glazers at Manchester United - the impact, the view from U.S., what next? Plus: Is Pulisic being overplayed?`\
+https://nytimes.com/athletic/6352213/2025/05/13/glazers-manchester-united-debt-takeover/
+
 **A high-powered list of business leaders is joining Trump at lunch in Riyadh.**\
 `By Jason Karaian`\
-https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-high-powered-list-of-business-leaders-is-joining-trump-at-lunch-in-riyadh
+https://nytimes.com/2025/05/13/us/politics/trump-saudi-business-lunch-musk-altman.html
 
 **The Pulse: A true holy s— night in the NBA**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6352201/2025/05/13/jayson-tatum-celtics-knicks-nba-
 **Defining short- and long-term expectations for the Bears' top 4 draft picks**\
 `The Bears drafted four players in the first two rounds of the NFL Draft this year.`\
 https://nytimes.com/athletic/6350638/2025/05/13/bears-draft-pick-expectations-colston-loveland/
-
-**What are realistic expectations for Vikings QB J.J. McCarthy? What the history tells us**\
-`The Vikings may be waiting to declare McCarthy the starter, but he is receiving the starter reps. Just how good can he be in 2025?`\
-https://nytimes.com/athletic/6350631/2025/05/13/jj-mccarthy-minnesota-vikings-expectations/
-
-**What do the co-chairs of Trump's new commission believe about college sports?**\
-`Saban and Campbell's past public statements provide some clues on what they might seek to address.`\
-https://nytimes.com/athletic/6351340/2025/05/13/nick-saban-cody-campbell-college-sports/
-
-**Meet the man behind the NFL schedule, on the verge of his retirement**\
-`Following two decades of shaping how fans watch the NFL, Howard Katz will call it a career after his final schedule is revealed Wednesday.`\
-https://nytimes.com/athletic/6350605/2025/05/13/nfl-schedule-2025-howard-katz-retirement/
 

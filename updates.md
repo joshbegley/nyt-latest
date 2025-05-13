@@ -1,3 +1,11 @@
+**A high-powered list of business leaders is joining Trump at lunch in Riyadh.**\
+`By Jason Karaian`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-high-powered-list-of-business-leaders-is-joining-trump-at-lunch-in-riyadh
+
+**The Pulse: A true holy s— night in the NBA**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6350467/2025/05/13/cooper-flagg-mavericks-nba-lottery-the-pulse/
+
 **4 Memorable Moments From Presidential Visits With Saudi Leaders**\
 `From F.D.R. to Trump, presidents have traveled to see Saudi Arabia and its royal family on a variety of diplomatic missions, some more inscrutable than others.`\
 https://nytimes.com/2025/05/13/us/politics/us-presidents-saudi-arabia-visit-trump-biden-nixon.html
