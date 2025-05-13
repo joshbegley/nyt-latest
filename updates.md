@@ -1,3 +1,19 @@
+**Paul Allen's estate announces plan to sell Portland Trail Blazers**\
+`NBA team has been run by Paul Allen's sister Jody since he died in 2018.`\
+https://nytimes.com/athletic/6353447/2025/05/13/nba-trail-blazers-for-sale-paul-allen-estate/
+
+**George Clooney and Denzel Washington Power Broadway to Prepandemic Heights**\
+`Elphaba helped too. But the good news comes with caveats.`\
+https://nytimes.com/2025/05/13/theater/broadway-grosses.html
+
+**Your Next Airbnb May Include Room Service and Tamale-Making**\
+`The company is introducing hotel-like services, along with a new selection of local tours and classes.`\
+https://nytimes.com/2025/05/13/travel/airbnb-experiences-hotel-services.html
+
+**Bengals' Hendrickson talks contract dispute, won't play on his current deal**\
+`Trey Hendrickson unloaded about an offseason of “disappointment” and feeling like things got “personal” between him and the Bengals.`\
+https://nytimes.com/athletic/6353379/2025/05/13/trey-hendrickson-bengals-contract-negotiation/
+
 **Millions Would Lose Health Coverage Under G.O.P. Bill. But Not as Many as Democrats Say.**\
 `A widely circulated talking point about Medicaid cuts inflates the legislation’s effects by about five million people.`\
 https://nytimes.com/2025/05/13/upshot/medicaid-cuts-democrats-republicans.html
