@@ -1,3 +1,7 @@
+**Read the full opening statement by the prosecution.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-full-opening-statement-by-the-prosecution
+
 **Miro Heiskanen expected to return to Stars lineup for Game 4**\
 `Heiskanen hasn’t played since Jan. 28 and had knee surgery on Feb. 4. The Stars hold a 2-1 series lead over the Jets.`\
 https://nytimes.com/athletic/6353167/2025/05/13/miro-heiskanen-stars-jets-nhl-playoffs/

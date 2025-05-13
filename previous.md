@@ -1,3 +1,7 @@
+**Read the full opening statement by the prosecution.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-full-opening-statement-by-the-prosecution
+
 **Miro Heiskanen expected to return to Stars lineup for Game 4**\
 `Heiskanen hasn’t played since Jan. 28 and had knee surgery on Feb. 4. The Stars hold a 2-1 series lead over the Jets.`\
 https://nytimes.com/athletic/6353167/2025/05/13/miro-heiskanen-stars-jets-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353183/2025/05/13/bret-bielema-illinois-recruiting
 **New USMNT, USWNT kits feature classic looks with a nod to an iconic throwback**\
 `With the 2026 World Cup on home soil nearing, the USMNT has one new look, while the USWNT has a complete set that meets a World Cup standard`\
 https://nytimes.com/athletic/6352793/2025/05/13/new-usmnt-uswnt-kits-photos-jerseys/
-
-**Tesla’s Board Chair Made $198 Million Selling Stock as Profit Fell**\
-`Robyn Denholm sold Tesla stock in recent months while Elon Musk, the chief executive she oversees, worked for President Trump and alienated many car buyers.`\
-https://nytimes.com/2025/05/13/business/tesla-stock-sales-robyn-denholm.html
 
