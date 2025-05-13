@@ -11,7 +11,7 @@ https://nytimes.com/2025/05/12/us/politics/david-hogg-dnc-democrats.html
 https://nytimes.com/2025/05/12/us/politics/trump-memecoin-winners.html
 
 **NBA Draft Lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
-`Dallas had just a 1.8 percent chance of landing No. 1 pick in the June 25 draft.`\
+`Dallas had just a 1.8 percent chance of landing the No. 1 pick in June's NBA Draft.`\
 https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
 
 **Should You Fly Through Newark Airport? Here’s What You Need to Know.**\

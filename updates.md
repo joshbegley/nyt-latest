@@ -1,3 +1,7 @@
+**NBA Draft Lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
+`Dallas had just a 1.8 percent chance of landing the No. 1 pick in June's NBA Draft.`\
+https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
+
 **Girl, 16, Is Fatally Shot Near a Bronx School Building, Police Say**\
 `The girl was shot once in the head near a building that houses a charter school and two New York City Department of Education schools.`\
 https://nytimes.com/2025/05/12/nyregion/bronx-shooting-girl-killed.html

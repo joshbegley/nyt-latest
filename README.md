@@ -1,3 +1,11 @@
+**RFK Jr. Swims in Washington Creek That Flows With Sewage and Bacteria**\
+`Robert F. Kennedy Jr., the health secretary, shared photos of himself and his grandchildren swimming in waters that handle sewer overflow.`\
+https://nytimes.com/2025/05/12/us/politics/rfk-jr-rock-creek-bacteria.html
+
+**Why Wrexham will head to Australia and New Zealand rather than the U.S. in pre-season**\
+`Wrexham will head Down Under for the first time as the club owned by Ryan Reynolds and Rob McElhenney prepares for life in the Championship`\
+https://nytimes.com/athletic/6339206/2025/05/12/why-wrexham-will-head-to-australia-and-new-zealand-rather-than-the-u-s-in-pre-season/
+
 **Girl, 16, Is Fatally Shot Near a Bronx School Building, Police Say**\
 `The girl was shot once in the head near a building that houses a charter school and two New York City Department of Education schools.`\
 https://nytimes.com/2025/05/12/nyregion/bronx-shooting-girl-killed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/12/us/trump-qatar-jet-plane.html
 **Trump Endorses Jack Ciattarelli for Governor of New Jersey**\
 `Republicans had been vying for the potentially race-altering support in a state where President Trump had a stronger-than-expected showing in November.`\
 https://nytimes.com/2025/05/12/nyregion/trump-endorsement-governor-new-jersey.html
-
-**Farmers Sued Over Deleted Climate Data. So the Government Will Put It Back.**\
-`The Agriculture Department pledged to restore online climate information that farmers said helped them do business, but which officials had deleted.`\
-https://nytimes.com/2025/05/12/climate/trump-deleted-climate-website-farmers-lawsuit.html
-
-**Chiefs superfan Xaviar Babudar sentenced to 32 years for bank robbery**\
-`Xaviar Babudar had already been sentenced 17 1/2 years by a federal court for a string of robberies across seven states.`\
-https://nytimes.com/athletic/6351054/2025/05/12/chiefs-superfan-xaviar-babudar-sentenced-robbery/
 
