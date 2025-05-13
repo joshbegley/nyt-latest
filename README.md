@@ -1,3 +1,19 @@
+**Jannik Sinner's return to tennis meets triumph with toughness in Rome**\
+`The world No. 1 was rusty on his first match back after three months away. His Italian Open draw means he cannot afford to be so for long.`\
+https://nytimes.com/athletic/6346644/2025/05/13/tennis-jannik-sinner-italian-open-results/
+
+**Connections: Sports Edition Coach: Hints for May 13, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6351725/2025/05/13/connections-sports-edition-hints-for-may-13-2025/
+
+**Germany Has a Long History of U.S. Investment. That May Be Changing.**\
+`German companies invest more than three times as much in the United States as American companies do in Germany, but they are starting to rethink that strategy.`\
+https://nytimes.com/2025/05/13/business/germany-us-trade-trump.html
+
+**There Are Two Chinas, and America Must Understand Both**\
+`The technological success that has captured the attention of many in the United States is one aspect of the Chinese economy. There’s another, gloomy one.`\
+https://nytimes.com/2025/05/13/business/china-economy-us-trade-war.html
+
 **Corrections: May 13, 2025**\
 `Corrections that appeared in print on Tuesday, May 13, 2025.`\
 https://nytimes.com/2025/05/12/pageoneplus/corrections-may-13-2025.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6351793/2025/05/12/mets-lindor-soto-alonso-walkoff-
 **Don't believe the gumdrops and rainbows. The lottery was a disaster for the Wizards**\
 `Wizards officials put on a brave face in the aftermath, but Washington absorbed the most brutal gut punch the 2025 NBA Draft Lottery.`\
 https://nytimes.com/athletic/6351659/2025/05/12/washington-wizards-2025-nba-draft-lottery/
-
-**Wizards' NBA Draft Lottery results can be summed up by one word: Cruel**\
-`There's no sugarcoating this. This was a disastrous night for the Wizards, in an epoch of seemingly never-ending disasters.`\
-https://nytimes.com/athletic/6351248/2025/05/12/wizards-nba-draft-lottery/
-
-**Full Time: How NWSL handled a scary moment**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6351732/2025/05/12/nwsl-savy-king-incident-full-time/
-
-**NBA playoffs: Knicks rally once again; Celtics' Jayson Tatum exits with injury**\
-`This game was not a Celtics letdown; it was a Knicks comeback. New York goes to Boston for Game 5 on Wednesday.`\
-https://nytimes.com/athletic/6351314/2025/05/12/knicks-celtics-timberwolves-warriors-nba-playoffs-takeaways/
-
-**Jayson Tatum carried off with injury at end of Knicks vs. Celtics Game 4**\
-`The Celtics are now surprisingly down 3-1 in the series.`\
-https://nytimes.com/athletic/6351649/2025/05/12/jayson-tatum-leaves-game-injury-celtics-knicks-nba-playoffs/
 
