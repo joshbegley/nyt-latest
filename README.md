@@ -1,3 +1,7 @@
+**This Fossilized Creature Has 3 Eyes, but Everything Else Looks Familiar**\
+`Cambrian Period creatures known as sea moths seemed alien because of their additional eye, but a study finds anatomical features more in line with modern animals.`\
+https://nytimes.com/2025/05/13/science/three-eyed-fossil-mosura-fentoni.html
+
 **Yankees sign Anthony DeSclafani to boost starting pitching depth**\
 `DeSclafani hasn't pitched in the majors since July 23, 2023.`\
 https://nytimes.com/athletic/6354180/2025/05/13/yankees-anthony-desclafani/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354024/2025/05/13/jackson-cantwell-recruiting-miam
 **Rosenthal: Rob Manfred’s decision to reinstate Pete Rose raises questions about what’s next**\
 `Reinstating Rose, at least in a narrow, short-term view, comes at little cost. The Hall of Fame is the true prize for Rose’s supporters.`\
 https://nytimes.com/athletic/6329688/2025/05/13/pete-rose-mlb-rob-manfred/
-
-**Adams Lashes Out at Prosecutors, Saying They Sought to Humiliate Him**\
-`Mayor Eric Adams of New York City railed against the federal authorities who accused him of corruption and seized his numerous cellphones.`\
-https://nytimes.com/2025/05/13/nyregion/adams-fbi-phones-trump.html
 
