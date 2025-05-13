@@ -1,3 +1,7 @@
+**Man Arrested Over Fire at Starmer’s North London House**\
+`The police said a 21-year-old was held in connection with three fires, including one at a property owned by the British prime minister in the Kentish Town neighborhood.`\
+https://nytimes.com/2025/05/13/world/europe/arrest-starmer-fire-house.html
+
 **Baby Names**\
 `Do you think it’s important to have a unique name? What kind of name would you want to give a child if you had one?`\
 https://nytimes.com/2025/05/13/learning/baby-names.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/us/politics/trump-saudi-arabia-gulf-trip.html
 **Despite disastrous draft lottery slide, Pelicans can solidify foundation around Zion Williamson**\
 `Williamson's appearance for the Pelicans at the lottery was a signal the team is working with its best player as they enter a new phase.`\
 https://nytimes.com/athletic/6352077/2025/05/13/pelicans-draft-lottery-zion-williamson/
-
-**The Knicks are one win away from ending a 25-year drought. Here's how it happened**\
-`New York has the defending champs on the ropes. Now, the Knicks need to finish the job.`\
-https://nytimes.com/athletic/6351918/2025/05/13/knicks-beat-celtics-game-4/
 
