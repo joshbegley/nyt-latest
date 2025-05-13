@@ -1,3 +1,7 @@
+**Millions Would Lose Health Coverage Under G.O.P. Bill. But Not as Many as Democrats Say.**\
+`A widely circulated talking point about Medicaid cuts inflates the legislation’s effects by about five million people.`\
+https://nytimes.com/2025/05/13/upshot/medicaid-cuts-democrats-republicans.html
+
 **YouTube to stream NFL's Week 1 Chargers game in Brazil for free**\
 `The game in São Paulo, Brazil, will be the first NFL contest to stream live and for free on YouTube.`\
 https://nytimes.com/athletic/6352815/2025/05/13/youtube-nfl-game-chargers-week-1-free/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6352913/2025/05/13/tennis-djokovic-murray-partnersh
 **Robert Benton, Influential Director and Screenwriter, Dies at 92**\
 `After collaborating on the script for “Bonnie and Clyde,” he went on to write and direct “Kramer vs. Kramer” and “Places in the Heart.”`\
 https://nytimes.com/2025/05/13/movies/robert-benton-dead.html
-
-**Israel Bombards Gaza Seeking to Kill Top Hamas Leader, Officials Say**\
-`Israeli officials said the military had launched an attack targeting Mohammad Sinwar, one of Hamas’s top remaining commanders in Gaza and the brother of a leader killed last year.`\
-https://nytimes.com/2025/05/13/world/middleeast/israel-gaza-sinwar-khan-younis.html
 
