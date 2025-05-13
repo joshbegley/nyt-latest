@@ -1,3 +1,15 @@
+**Tariffs Drive Honda to Move S.U.V. Production From Canada to U.S.**\
+`President Trump’s trade war again tests Canada’s new government. Honda is also canceling plans for a major electric vehicle factory in Canada.`\
+https://nytimes.com/2025/05/13/world/americas/honda-trump-tariffs-us-canada.html
+
+**ESPN unveils direct-to-consumer streaming service with a familiar name: ESPN**\
+`In what Disney CEO Bob Iger has hailed as potentially the biggest move in nearly four decades for ESPN, the network has officially announced that all of its programming will be offered to consumers for $29.`\
+https://nytimes.com/athletic/6350815/2025/05/13/espn-streaming-service-cable/
+
+**A Damning Portrait of an Enfeebled Biden Protected by His Inner Circle**\
+`“Original Sin,” by Jake Tapper and Alex Thompson, depicts an aging president whose family and aides enabled his quixotic campaign for a second term.`\
+https://nytimes.com/2025/05/13/books/review/originial-sin-jake-tapper-alex-thompson.html
+
 **White South Africans Granted Refugee Status by Trump: What We Know**\
 `The first group of Afrikaners have arrived in the United States, claiming they were victims of persecution or had reason to fear persecution in their home country.`\
 https://nytimes.com/article/afrikaner-refugees-trump-south-africa.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
 **Submit your questions for C. Trent Rosecrans' Reds mailbag**\
 `The Cincinnati Reds have now played over one-fourth of their 162 regular-season games.`\
 https://nytimes.com/athletic/6350422/2025/05/13/submit-your-questions-for-c-trent-rosecrans-reds-mailbag/
-
-**Ward to leave Palace after 13 years**\
-`Ward has made 363 appearances for Palace in all competitions.`\
-https://nytimes.com/athletic/6352796/2025/05/13/crystal-palace-joel-ward-leaves/
-
-**An Atmospheric River Brings Flooding Risks to the Mid-Atlantic**\
-`Forecasters warned of flash flooding through midweek, including areas of North Carolina still battered by Hurricane Helene.`\
-https://nytimes.com/2025/05/13/weather/atmospheric-river-carolinas-helene.html
-
-**A Trump visit is the right moment for a U.S.-Saudi business frenzy.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-the-right-moment-for-a-us-saudi-business-frenzy
 

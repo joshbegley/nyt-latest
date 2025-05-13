@@ -1,3 +1,11 @@
+**White South Africans Granted Refugee Status by Trump: What We Know**\
+`The first group of Afrikaners have arrived in the United States, claiming they were victims of persecution or had reason to fear persecution in their home country.`\
+https://nytimes.com/article/afrikaner-refugees-trump-south-africa.html
+
+**Germany Bans a Far-Right Group and Arrests 4 of Its Leaders**\
+`Members of a group calling itself the Kingdom of Germany, which was targeted in nationwide raids, reject the existence of the German state and want to set up a parallel one.`\
+https://nytimes.com/2025/05/13/world/europe/germany-ban-far-right-kingdom.html
+
 **A wild draft lottery night just changed everything across the NBA**\
 `Could the Mavericks, Spurs and/or Sixers shop their unexpected top-three picks? What will happen in Boston?`\
 https://nytimes.com/athletic/6352464/2025/05/13/nba-draft-lottery-trades-mavericks-spurs-sixers-giannis-flagg/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/weather/atmospheric-river-carolinas-helene.html
 **A Trump visit is the right moment for a U.S.-Saudi business frenzy.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-the-right-moment-for-a-us-saudi-business-frenzy
-
-**How Minor Missteps Are Getting Tenants Evicted**\
-`In some Illinois cities, shoplifting, calling 911 too many times or even being a victim of a crime can get you kicked out of your home. Sidnee King Pineda, who is reporting on housing laws in Illinois as part of The Times’s Local Investigations Fellowship, explains why.`\
-https://nytimes.com/video/us/100000010090081/how-minor-missteps-are-getting-tenants-evicted.html
-
-**Warriors have some serious spacing issues, and their season is drowning because of it**\
-`Golden State is struggling in the second round with Steph Curry sidelined and other spacers on its roster in deep slumps`\
-https://nytimes.com/athletic/6351687/2025/05/13/warriors-spacing-issues-nba-playoffs/
 
