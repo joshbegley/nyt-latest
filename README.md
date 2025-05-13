@@ -1,5 +1,9 @@
+**Trump to Meet Syria’s New Leader in Saudi Arabia**\
+`President Trump said on Monday that he may ease sanctions on Syria.`\
+https://nytimes.com/2025/05/13/us/politics/trump-syria-president-meeting.html
+
 **What Has Trump Done to West Point?**\
-`Responses to a guest essay about the Trump administration’s assault on academic freedom at West Point. Also: The Qatari gift of a plane.`\
+`Responses to a guest essay about the Trump administration’s assault on academic freedom at the U.S. Military Academy. Also: The Qatari gift of a plane.`\
 https://nytimes.com/2025/05/13/opinion/trump-west-point.html
 
 **Elizabeth Pochoda, Journalist Who Traversed the Media World, Dies at 83**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/business/trump-tariffs-pandora-jewelry.html
 **Anthony Stolarz back on the ice ahead of Leafs practice**\
 `Stolarz hadn’t been seen around the team since getting knocked out of Game 1 against the Panthers with a suspected head injury.`\
 https://nytimes.com/athletic/6352964/2025/05/13/maple-leafs-anthony-stolarz-nhl-playoffs-panthers/
-
-**Ohio State women's basketball coach Kevin McGuff charged with DUI**\
-`Police arrested McGuff after his vehicle reportedly struck several curbs and drove through the lawn of a Dublin, Ohio, residence.`\
-https://nytimes.com/athletic/6351704/2025/05/13/ohio-state-coach-kevin-mcgruff-dui/
 
