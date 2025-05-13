@@ -1,3 +1,7 @@
+**3 Climbers Die After Falling in North Cascades in Washington State**\
+`A fourth climber was seriously injured in what the authorities called a hiking accident in the mountain range.`\
+https://nytimes.com/2025/05/12/us/climbers-killed-north-cascades-washington.html
+
 **Biden Is Being Evaluated for a ‘Small Nodule’ in His Prostate**\
 `It is common for a man of Mr. Biden’s age to experience prostate issues. His spokesman declined to elaborate on any details about his care.`\
 https://nytimes.com/2025/05/12/us/politics/biden-prostate.html
