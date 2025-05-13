@@ -1,3 +1,15 @@
+**Until Saturday: Bielema's recruiting secret**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6353183/2025/05/13/bret-bielema-illinois-recruiting-until-saturday/
+
+**New USMNT, USWNT kits feature classic looks with a nod to an iconic throwback**\
+`With the 2026 World Cup on home soil nearing, the USMNT has one new look, while the USWNT has a complete set that meets a World Cup standard`\
+https://nytimes.com/athletic/6352793/2025/05/13/new-usmnt-uswnt-kits-photos-jerseys/
+
+**Tesla’s Board Chair Made $198 Million Selling Stock as Profit Fell**\
+`Robyn Denholm sold Tesla stock in recent months while Elon Musk, the chief executive she oversees, worked for President Trump and alienated many car buyers.`\
+https://nytimes.com/2025/05/13/business/tesla-stock-sales-robyn-denholm.html
+
 **Trump to Meet Syria’s New Leader in Saudi Arabia**\
 `President Trump said on Monday that he may ease sanctions on Syria.`\
 https://nytimes.com/2025/05/13/us/politics/trump-syria-president-meeting.html
