@@ -1,3 +1,11 @@
+**Jayson Tatum injury is Celtics' biggest concern, but minds must be clear for Game 5**\
+`Tatum had been Boston’s iron man. Seeing him helped off the court ripped a hole in the Celtics.`\
+https://nytimes.com/athletic/6352201/2025/05/13/jayson-tatum-celtics-knicks-nba-playoffs/
+
+**Defining short- and long-term expectations for the Bears' top 4 draft picks**\
+`The Bears drafted four players in the first two rounds of the NFL Draft this year.`\
+https://nytimes.com/athletic/6350638/2025/05/13/bears-draft-pick-expectations-colston-loveland/
+
 **What are realistic expectations for Vikings QB J.J. McCarthy? What the history tells us**\
 `The Vikings may be waiting to declare McCarthy the starter, but he is receiving the starter reps. Just how good can he be in 2025?`\
 https://nytimes.com/athletic/6350631/2025/05/13/jj-mccarthy-minnesota-vikings-expectations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351436/2025/05/13/pga-championship-golf-course-qua
 **Pro Padel League partners with Unrivaled women's basketball, announces Season 2 schedule**\
 `The Pro Padel League (PPL), which is based in North America and uses a U.`\
 https://nytimes.com/athletic/6350280/2025/05/13/pro-padel-league-partners-with-unrivaled-womens-basketball-announces-season-2-schedule/
-
-**What if the Jets had signed Derek Carr instead of trading for Aaron Rodgers two years ago?**\
-`Weighing the alternate history if the Jets had signed the other veteran QB they considered before the 2023 season.`\
-https://nytimes.com/athletic/6347697/2025/05/13/what-if-jets-had-signed-derek-carr/
-
-**Stanway, Hemp, Greenwood return to England squad, James misses out**\
-`Sarina Wiegman has selected a 27-player squad for the Nations League fixtures against Portugal and Spain.`\
-https://nytimes.com/athletic/6352128/2025/05/13/england-women-squad-spain-portugal/
 
