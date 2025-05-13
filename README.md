@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`President Trump’s visit to the Gulf region.`\
+https://nytimes.com/2025/05/13/briefing/trump-gulf-china-trade.html
+
 **Yankees' Oswaldo Cabrera taken off field via ambulance after foot injury**\
 `Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
 https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/6351919/2025/05/13/padres-ethan-salas-out-two-month
 `The Braves beat the Nationals on Alex Verdugo's ninth-inning single Monday night.`\
 https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
 
+**Inside Newcastle Q&A: Summer transfer update, Miley not for sale - and where are the stadium plans?**\
+`Chris Waugh offers an insight into the questions you wanted answering - on Miley, Tindall, infrastructure and much, much more`\
+https://nytimes.com/athletic/6349238/2025/05/13/inside-newcastle-united-transfers-miley-stadium/
+
 **Oilers dominate Golden Knights in Game 4 to take 3-1 series lead**\
 `The Oilers landed a haymaker early in Game 4 and never let the Golden Knights off the mat.`\
 https://nytimes.com/athletic/6337464/2025/05/13/oilers-golden-knights-nhl-playoffs-2025-game-4-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6337464/2025/05/13/oilers-golden-knights-nhl-playof
 **Why Craig Counsell's blunt 'worst-case scenario' sold Colin Rea on signing with Cubs**\
 `Rea was told he'd likely be a reliever, but injuries gave him a chance to start. He's now 3-0, including Monday's win against the Marlins.`\
 https://nytimes.com/athletic/6351838/2025/05/13/cubs-craig-counsell-colin-rea/
-
-**Why Chelsea's second-half rally at Newcastle offered Maresca cause for optimism**\
-`The visitors were depleted after Nicolas Jackson's dismissal before the break but still found ways to discomfort one of their closest rivals`\
-https://nytimes.com/athletic/6349618/2025/05/13/chelsea-newcastle-maresca-champions-league/
-
-**Inside the silence, confusion and celebration from the Mavs' stroke of lottery luck**\
-`Dallas, somehow, won the No. 1 pick. What went on in the lottery room? And what were people talking about before and after?`\
-https://nytimes.com/athletic/6351525/2025/05/13/nba-draft-lottery-mavericks-nico-harrison-cooper-flagg/
 
