@@ -1,3 +1,7 @@
+**Cubs planning to promote big-time prospect Moisés Ballesteros for Wrigley debut: Source**\
+`The Cubs are hoping for instant offense from Ballesteros, a gifted left-handed hitter who has consistently excelled in the minor leagues.`\
+https://nytimes.com/athletic/6352037/2025/05/13/cubs-moises-ballesteros/
+
 **Tuesday Briefing**\
 `President Trump’s visit to the Gulf region.`\
 https://nytimes.com/2025/05/13/briefing/trump-gulf-china-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349238/2025/05/13/inside-newcastle-united-transfer
 **Oilers dominate Golden Knights in Game 4 to take 3-1 series lead**\
 `The Oilers landed a haymaker early in Game 4 and never let the Golden Knights off the mat.`\
 https://nytimes.com/athletic/6337464/2025/05/13/oilers-golden-knights-nhl-playoffs-2025-game-4-takeaways/
-
-**Why Craig Counsell's blunt 'worst-case scenario' sold Colin Rea on signing with Cubs**\
-`Rea was told he'd likely be a reliever, but injuries gave him a chance to start. He's now 3-0, including Monday's win against the Marlins.`\
-https://nytimes.com/athletic/6351838/2025/05/13/cubs-craig-counsell-colin-rea/
 

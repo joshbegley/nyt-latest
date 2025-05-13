@@ -1,3 +1,7 @@
+**Cubs planning to promote big-time prospect Moisés Ballesteros for Wrigley debut: Source**\
+`The Cubs are hoping for instant offense from Ballesteros, a gifted left-handed hitter who has consistently excelled in the minor leagues.`\
+https://nytimes.com/athletic/6352037/2025/05/13/cubs-moises-ballesteros/
+
 **Tuesday Briefing**\
 `President Trump’s visit to the Gulf region.`\
 https://nytimes.com/2025/05/13/briefing/trump-gulf-china-trade.html
