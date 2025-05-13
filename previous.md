@@ -1,3 +1,7 @@
+**Israel Bombards Gaza Seeking to Kill Top Hamas Leader, Officials Say**\
+`Israeli officials said the military had launched an attack targeting Mohammad Sinwar, one of Hamas’s top remaining commanders in Gaza and the brother of a leader killed last year.`\
+https://nytimes.com/2025/05/13/world/middleeast/israel-gaza-sinwar-khan-younis.html
+
 **Watch: How Paige Bueckers' stylist prepared the No.1 WNBA Draft pick for her big moment**\
 `No Offseason interview stylist and fashion designer Brittany Hampton about Paige Bueckers’ draft day fits.`\
 https://nytimes.com/athletic/6352212/2025/05/13/no-offseason-paige-bueckers-brittany-hampton-style/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/read-the-
 **Miro Heiskanen expected to return to Stars lineup for Game 4**\
 `Heiskanen hasn’t played since Jan. 28 and had knee surgery on Feb. 4. The Stars hold a 2-1 series lead over the Jets.`\
 https://nytimes.com/athletic/6353167/2025/05/13/miro-heiskanen-stars-jets-nhl-playoffs/
-
-**The Dynamo Room Conjures Classic New York Next to Madison Square Garden**\
-`Farzi opens a New York location for Indian fare, the Frick Collection gets its first restaurant and more news.`\
-https://nytimes.com/2025/05/13/dining/dynamo-room-msg.html
 

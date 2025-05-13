@@ -1,3 +1,7 @@
+**Israel Bombards Gaza Seeking to Kill Top Hamas Leader, Officials Say**\
+`Israeli officials said the military had launched an attack targeting Mohammad Sinwar, one of Hamas’s top remaining commanders in Gaza and the brother of a leader killed last year.`\
+https://nytimes.com/2025/05/13/world/middleeast/israel-gaza-sinwar-khan-younis.html
+
 **Watch: How Paige Bueckers' stylist prepared the No.1 WNBA Draft pick for her big moment**\
 `No Offseason interview stylist and fashion designer Brittany Hampton about Paige Bueckers’ draft day fits.`\
 https://nytimes.com/athletic/6352212/2025/05/13/no-offseason-paige-bueckers-brittany-hampton-style/
