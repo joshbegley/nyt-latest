@@ -1,3 +1,7 @@
+**Don't believe the gumdrops and rainbows. The lottery was a disaster for the Wizards**\
+`Wizards officials put on a brave face in the aftermath, but Washington absorbed the most brutal gut punch the 2025 NBA Draft Lottery.`\
+https://nytimes.com/athletic/6351659/2025/05/12/washington-wizards-2025-nba-draft-lottery/
+
 **Wizards' NBA Draft Lottery results can be summed up by one word: Cruel**\
 `There's no sugarcoating this. This was a disastrous night for the Wizards, in an epoch of seemingly never-ending disasters.`\
 https://nytimes.com/athletic/6351248/2025/05/12/wizards-nba-draft-lottery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/arts/design/auction-christies-mondrian-monet.html
 **NBA world reacts to Mavs' draft lottery win: 'The lottery gods are shining'**\
 `Dallas had only a 1.8 percent chance to land the No. 1 pick in the NBA Draft.`\
 https://nytimes.com/athletic/6351448/2025/05/12/nba-world-reacts-mavericks-draft-lottery-win/
-
-**2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
-`We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
-https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
 
