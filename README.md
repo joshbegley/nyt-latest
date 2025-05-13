@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Kicks Off Gulf Tour in Saudi Arabia**\
+`The president will also go to Qatar and the United Arab Emirates, and is expected to receive lavish hospitality throughout the trip. He has told advisers that he wants to sign deals worth more than $1 trillion.`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia
+
 **Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
 `Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/13/opinion/trump-firing-hayden.html
 **Finding Stats, and Stories, About ‘Crime-Free Housing’ Laws**\
 `An investigation from The New York Times and The Illinois Answers Project found that renters in Illinois risked eviction if they had too much contact with the police.`\
 https://nytimes.com/2025/05/13/insider/investigation-crime-free-housing-laws.html
-
-**Tariff Misery in Japan: Honda and Nissan Forecast Plunges in Profit**\
-`Japanese business leaders and officials were indignant at the U.S. decision to pause China tariffs, while Japan faces economic hardship from auto levies.`\
-https://nytimes.com/2025/05/13/business/trump-tariffs-nissan-honda.html
 

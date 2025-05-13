@@ -1,3 +1,8 @@
+**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
+`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
+`\
+https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+
 **Can Jalon Walker be the Falcons' Micah Parsons? He's going to try**\
 `Walker has not shied away from comparisons to Parsons, his friend and a four-time Pro Bowl player with the Cowboys.`\
 https://nytimes.com/athletic/6350490/2025/05/13/falcons-jalon-walker-micah-parsons-comparisons/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/05/13/insider/investigation-crime-free-housing-laws.htm
 **Tariff Misery in Japan: Honda and Nissan Forecast Plunges in Profit**\
 `Japanese business leaders and officials were indignant at the U.S. decision to pause China tariffs, while Japan faces economic hardship from auto levies.`\
 https://nytimes.com/2025/05/13/business/trump-tariffs-nissan-honda.html
-
-**How New Yorkers Are Adjusting to Congestion Pricing**\
-`The program has reduced traffic and produced revenue for the M.T.A., a New York Times analysis found.`\
-https://nytimes.com/2025/05/13/nyregion/how-new-yorkers-are-adjusting-to-congestion-pricing.html
 

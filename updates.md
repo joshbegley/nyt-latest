@@ -1,3 +1,8 @@
+**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
+`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
+`\
+https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+
 **Can Jalon Walker be the Falcons' Micah Parsons? He's going to try**\
 `Walker has not shied away from comparisons to Parsons, his friend and a four-time Pro Bowl player with the Cowboys.`\
 https://nytimes.com/athletic/6350490/2025/05/13/falcons-jalon-walker-micah-parsons-comparisons/
