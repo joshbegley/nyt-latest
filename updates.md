@@ -1,3 +1,11 @@
+**The Pope’s Florida Brother, a MAGA Disciple, Plans to ‘Tone It Down’**\
+`Louis Prevost’s Facebook posts — no longer publicly viewable — suggest that he has embraced some of the most common complaints and conspiracy theories of the right.`\
+https://nytimes.com/2025/05/13/us/the-popes-florida-brother-a-maga-disciple-plans-to-tone-it-down.html
+
+**The Virtues of Ideological Art**\
+`Why politics doesn’t necessarily ruin storytelling.`\
+https://nytimes.com/2025/05/13/opinion/right-wing-art.html
+
 **Bengals' Trey Hendrickson drama is as avoidable as it is out of control: Dehner Jr. **\
 `The Bengals have once again failed to be definitive and proactive and again have a disgruntled star looming over their offseason.`\
 https://nytimes.com/athletic/6353852/2025/05/13/trey-hendrickson-bengals-drama-avoidable/

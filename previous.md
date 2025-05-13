@@ -1,3 +1,11 @@
+**The Pope’s Florida Brother, a MAGA Disciple, Plans to ‘Tone It Down’**\
+`Louis Prevost’s Facebook posts — no longer publicly viewable — suggest that he has embraced some of the most common complaints and conspiracy theories of the right.`\
+https://nytimes.com/2025/05/13/us/the-popes-florida-brother-a-maga-disciple-plans-to-tone-it-down.html
+
+**The Virtues of Ideological Art**\
+`Why politics doesn’t necessarily ruin storytelling.`\
+https://nytimes.com/2025/05/13/opinion/right-wing-art.html
+
 **Bengals' Trey Hendrickson drama is as avoidable as it is out of control: Dehner Jr. **\
 `The Bengals have once again failed to be definitive and proactive and again have a disgruntled star looming over their offseason.`\
 https://nytimes.com/athletic/6353852/2025/05/13/trey-hendrickson-bengals-drama-avoidable/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/world/asia/trump-india-pakistan-ceasefire.html
 **Blue Jays pitching prospect Jake Bloss to undergo UCL surgery**\
 `On May 3, Bloss left a start against the Iowa Cubs in the fourth inning holding his right arm. `\
 https://nytimes.com/athletic/6353833/2025/05/13/blue-jays-jake-bloss-ucl-surgery/
-
-**Inside the Extraordinary Contradictions in Trump’s Immigration Policies**\
-`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being shut out.`\
-https://nytimes.com/2025/05/13/us/politics/trump-refugees-white-south-africa-aghanistan.html
-
-**The Pete Rose situation explained: What lifting his ban means for his Hall of Fame case**\
-`Major League Baseball commissioner Rob Manfred has removed Rose from MLB’s permanently ineligible list.`\
-https://nytimes.com/athletic/6172626/2025/05/13/pete-rose-hall-of-fame-explained/
 
