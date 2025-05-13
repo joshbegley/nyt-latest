@@ -27,7 +27,7 @@ https://nytimes.com/2025/05/13/world/asia/trump-india-pakistan-ceasefire.html
 https://nytimes.com/athletic/6353833/2025/05/13/blue-jays-jake-bloss-ucl-surgery/
 
 **Inside the Extraordinary Contradictions in Trump’s Immigration Policies**\
-`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being deported.`\
+`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being shut out.`\
 https://nytimes.com/2025/05/13/us/politics/trump-refugees-white-south-africa-aghanistan.html
 
 **The Pete Rose situation explained: What lifting his ban means for his Hall of Fame case**\
