@@ -1,8 +1,12 @@
+**2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
+`We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
+https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
+
 **Trump Administration Asks Supreme Court to Allow Venezuelan Deportations to Resume**\
 `The solicitor general contended that a group of migrants had barricaded themselves inside a Texas detention center and threatened to take hostages.`\
 https://nytimes.com/2025/05/12/us/politics/supreme-court-venezuelan-detainees.html
 
-**Yankees' DJ LeMahieu expected to return Tuesday: 'He's in a good spot'**\
+**'He's in a good spot': Yankees' DJ LeMahieu expected to return Tuesday**\
 `LeMahieu, 36, hasn't played in a big-league game since Sept. 3.`\
 https://nytimes.com/athletic/6351529/2025/05/12/yankees-dj-lemahieu-expected-return-tuesday/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/12/nyregion/bronx-shooting-girl-killed.html
 **D.N.C. Takes Step to Void Election of Hogg and Kenyatta as Vice Chairs**\
 `David Hogg has faced sharp criticism for his plan to fund challenges to incumbent Democrats, but the D.N.C. vote on Monday began with an earlier complaint about the procedures used in an internal party election.`\
 https://nytimes.com/2025/05/12/us/politics/david-hogg-dnc-democrats.html
-
-**Some Bidders in Trump’s Contest Sold All Their Digital Coins but Still Won**\
-`Because of a quirk in the rules, some participants vying to dine with the president benefited from dumping the Trump family’s memecoins rather than accumulating them.`\
-https://nytimes.com/2025/05/12/us/politics/trump-memecoin-winners.html
 
