@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`President Trump’s visit to the Gulf region.`\
+https://nytimes.com/2025/05/13/briefing/trump-gulf-china-trade.html
+
+**Inside Newcastle Q&A: Summer transfer update, Miley not for sale - and where are the stadium plans?**\
+`Chris Waugh offers an insight into the questions you wanted answering - on Miley, Tindall, infrastructure and much, much more`\
+https://nytimes.com/athletic/6349238/2025/05/13/inside-newcastle-united-transfers-miley-stadium/
+
 **Yankees' Oswaldo Cabrera taken off field via ambulance after foot injury**\
 `Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
 https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/
