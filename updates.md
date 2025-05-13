@@ -1,3 +1,11 @@
+**Sunderland to face Sheffield United in final after extra-time goal against Coventry**\
+`Ballard’s 122nd-minute header earned Sunderland a 1-1 draw on the night, and a 2-1 victory on aggregate.`\
+https://nytimes.com/athletic/6354052/2025/05/13/sunderland-championship-coventry-ballard/
+
+**Harvard Adds to Legal Complaint Against Trump Administration**\
+`The university expanded its ongoing suit after the Trump administration said it would stop issuing grants to the school and promised to take another $450 million.`\
+https://nytimes.com/2025/05/13/us/harvard-trump-lawsuit.html
+
 **OpenAI in Talks to Acquire Windsurf, a Programming Tool, for $3 Billion**\
 `The deal could be a way for OpenAI to gain a foothold among programmers, who are rapidly embracing A.I. technologies.`\
 https://nytimes.com/2025/05/13/technology/openai-windsurf-talks.html

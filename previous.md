@@ -1,3 +1,11 @@
+**Sunderland to face Sheffield United in final after extra-time goal against Coventry**\
+`Ballard’s 122nd-minute header earned Sunderland a 1-1 draw on the night, and a 2-1 victory on aggregate.`\
+https://nytimes.com/athletic/6354052/2025/05/13/sunderland-championship-coventry-ballard/
+
+**Harvard Adds to Legal Complaint Against Trump Administration**\
+`The university expanded its ongoing suit after the Trump administration said it would stop issuing grants to the school and promised to take another $450 million.`\
+https://nytimes.com/2025/05/13/us/harvard-trump-lawsuit.html
+
 **OpenAI in Talks to Acquire Windsurf, a Programming Tool, for $3 Billion**\
 `The deal could be a way for OpenAI to gain a foothold among programmers, who are rapidly embracing A.I. technologies.`\
 https://nytimes.com/2025/05/13/technology/openai-windsurf-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/t-magazine/summer-travel-guide.html
 **The Giants are struggling to score runs. Here are some reasons why**\
 `The Giants came into the year as team with potential scoring issues. That issue remains. These are the root causes of those hitting woes.`\
 https://nytimes.com/athletic/6353204/2025/05/13/sf-giants-offense-struggles/
-
-**José Mujica, Leftist President of Uruguay Known for Humility, Dies at 89**\
-`Serving from 2010 to 2015, he refused to accept a presidential salary or live on a presidential estate as he sought to improve the lives of ordinary citizens.`\
-https://nytimes.com/2025/05/13/obituaries/jose-mujica-dead.html
-
-**The Pope’s Florida Brother, a MAGA Disciple, Plans to ‘Tone It Down’**\
-`Louis Prevost’s Facebook posts — no longer publicly viewable — suggest that he has embraced some of the most common complaints and conspiracy theories of the right.`\
-https://nytimes.com/2025/05/13/us/louis-prevost-pope-leo-xiv-brother.html
 
