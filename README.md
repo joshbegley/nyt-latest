@@ -1,3 +1,15 @@
+**A Book Points to Biden’s Decline and Democrats’ Cowardice: 6 Takeaways**\
+`The book, “Original Sin,” describes how Mr. Biden’s aides quashed concerns about his age. But the anonymous accounts show that many Democrats are still afraid to discuss the issue publicly.`\
+https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
+
+**Hunter Dekkers, banned by NCAA for sports betting, signed by Saints**\
+`Dekkers pled guilty to underage gambling in 2023 and enrolled at Iowa Western Community College for the 2024 season. `\
+https://nytimes.com/athletic/6302384/2025/05/13/hunter-dekkers-gambling-signed-saints/
+
+**Why Did Eric Adams Have So Many Phones?**\
+`Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
+https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
+
 **New York’s Deepest Pockets Turn Out to Fight Poverty**\
 `The annual Robin Hood gala drew sports luminaries including Roger Goodell, Serena Williams and Eli Manning.`\
 https://nytimes.com/2025/05/13/style/robin-hood-gala-nyc.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/13/us/milwaukee-judge-hannah-dugan-immigration.html
 **Prosecutors Charge Sinaloa Cartel Operatives With Terrorism Crimes**\
 `The indictment was the first time leaders of the cartel had been charged with terrorism crimes since a Trump executive order designated it a foreign terrorist organization.`\
 https://nytimes.com/2025/05/13/us/politics/sinaloa-cartel-terrorism.html
-
-**Debate Turns Raucous as House Panel Weighs Medicaid Cuts**\
-`Lawmakers bickered, protesters shouted and senators came to take in the moment as a House committee weighed a critical portion of a bill to enact President Trump’s domestic agenda.`\
-https://nytimes.com/2025/05/13/us/politics/house-medicaid-cuts.html
-
-**A.G. Sulzberger: A Free People Need a Free Press**\
-`The anti-press playbook is being used in this country — and it could not come at a more difficult time for the American press.`\
-https://nytimes.com/2025/05/13/opinion/ag-sulzberger-free-press.html
-
-**The administration pulled funding for research on devices for babies with heart conditions.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/the-administration-pulled-funding-for-research-on-devices-for-babies-with-heart-conditions
 
