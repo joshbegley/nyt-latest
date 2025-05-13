@@ -1,3 +1,5 @@
+
+
 **Powell Emerges as a Potential Winner from the Trade Truce**\
 `The markets have come around to the Federal Reserve chairman’s cautious approach to lowering interest rates. President Trump could be a tougher convert.`\
 https://nytimes.com/2025/05/13/business/dealbook/powell-fed-rates-tariffs.html
