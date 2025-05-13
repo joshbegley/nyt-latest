@@ -1,3 +1,11 @@
+**Iran Proposes Novel Path to Nuclear Deal With U.S.**\
+`In talks with American negotiators, the Iranians spoke of a consortium with several countries that would allow it to keep producing civilian grade fuel, but with more monitoring.`\
+https://nytimes.com/2025/05/13/world/middleeast/iran-us-nuclear-talks.html
+
+**20 States Sue Trump Over Immigration Demands and Threats to Cut Funding**\
+`Similar lawsuits have been filed by mostly Democratic state attorneys general over threats to diversity programs, tariffs and mass firings at federal agencies.`\
+https://nytimes.com/2025/05/13/us/politics/lawsuits-federal-funding-immigration.html
+
 **This Fossilized Creature Has 3 Eyes, but Everything Else Looks Familiar**\
 `Cambrian Period creatures known as sea moths seemed alien because of their additional eye, but a study finds anatomical features more in line with modern animals.`\
 https://nytimes.com/2025/05/13/science/three-eyed-fossil-mosura-fentoni.html
