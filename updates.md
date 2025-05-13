@@ -1,3 +1,7 @@
+**This Fossilized Creature Has 3 Eyes, but Everything Else Looks Familiar**\
+`Cambrian Period creatures known as sea moths seemed alien because of their additional eye, but a study finds anatomical features more in line with modern animals.`\
+https://nytimes.com/2025/05/13/science/three-eyed-fossil-mosura-fentoni.html
+
 **Yankees sign Anthony DeSclafani to boost starting pitching depth**\
 `DeSclafani hasn't pitched in the majors since July 23, 2023.`\
 https://nytimes.com/athletic/6354180/2025/05/13/yankees-anthony-desclafani/
