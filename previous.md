@@ -1,3 +1,7 @@
+**Kim Kardashian to Testify About Robbery Ordeal at Paris Trial**\
+`The reality TV star and entrepreneur is expected to describe how she was tied up at gunpoint as jewelry worth millions was stolen in a 2016 attack.`\
+https://nytimes.com/2025/05/13/world/europe/kim-kardashian-testimony-paris-robbery-trial.html
+
 **The Timberwolves' biggest remaining battle against the Warriors? Complacency**\
 `Golden State hasn't shown it can keep up with Minnesota without Steph Curry. Can the Wolves stay locked in before his possible return?  `\
 https://nytimes.com/athletic/6351615/2025/05/13/timberwolves-playoffs-game-4-warriors-anthony-edwards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351776/2025/05/13/womens-college-basketballs-trans
 **Thompson: Natalie Nakase was built for leading expansion Golden State Valkyries**\
 `Lessons from her father on understated hard work guide Nakase as she leads the WNBA's newest team.`\
 https://nytimes.com/athletic/6346685/2025/05/13/natalie-nakase-golden-state-valkyries-wnba-expansion/
-
-**How studying sushi chefs helped Clark Lea and Vanderbilt land top-100 CB Caden Harris**\
-`Harris, should he sign with Vanderbilt in December, will be the program's highest-ranked prospect of the modern recruiting era. `\
-https://nytimes.com/athletic/6350097/2025/05/13/caden-harris-vanderbilt-football-recruiting/
 

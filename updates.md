@@ -1,3 +1,7 @@
+**Kim Kardashian to Testify About Robbery Ordeal at Paris Trial**\
+`The reality TV star and entrepreneur is expected to describe how she was tied up at gunpoint as jewelry worth millions was stolen in a 2016 attack.`\
+https://nytimes.com/2025/05/13/world/europe/kim-kardashian-testimony-paris-robbery-trial.html
+
 **The Timberwolves' biggest remaining battle against the Warriors? Complacency**\
 `Golden State hasn't shown it can keep up with Minnesota without Steph Curry. Can the Wolves stay locked in before his possible return?  `\
 https://nytimes.com/athletic/6351615/2025/05/13/timberwolves-playoffs-game-4-warriors-anthony-edwards/
