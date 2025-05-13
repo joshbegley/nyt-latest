@@ -1,3 +1,11 @@
+**Hurricanes demoralize Capitals, put Washington's season in peril: Takeaways**\
+`Carolina took care of business at home in Game 4 and is one win away from ending Washington's season.`\
+https://nytimes.com/athletic/6351432/2025/05/12/hurricanes-capitals-nhl-playoffs-2025-game-4-takeaways/
+
+**With Guarantees Galore, Christie’s Has a Rocky Start to Auction Week**\
+`There was little bidding on the art collection of the Riggio family, who built their fortune on the Barnes & Noble bookstore chain — a caution flag for the art market.`\
+https://nytimes.com/2025/05/12/arts/design/mondrian-christies-no-record.html
+
 **NBA world reacts to Mavs' draft lottery win: 'The lottery gods are shining'**\
 `Dallas had only a 1.8 percent chance to land the No. 1 pick in the NBA Draft.`\
 https://nytimes.com/athletic/6351448/2025/05/12/nba-world-reacts-mavericks-draft-lottery-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351374/2025/05/12/argentina-club-world-cup-violent
 **RFK Jr. Swims in Washington Creek That Flows With Sewage and Bacteria**\
 `Robert F. Kennedy Jr., the health secretary, shared photos of himself and his grandchildren swimming in waters that handle sewer overflow.`\
 https://nytimes.com/2025/05/12/us/politics/rfk-jr-rock-creek-bacteria.html
-
-**Why Wrexham will head to Australia and New Zealand rather than the U.S. in pre-season**\
-`Wrexham will head Down Under for the first time as the club owned by Ryan Reynolds and Rob McElhenney prepares for life in the Championship`\
-https://nytimes.com/athletic/6339206/2025/05/12/why-wrexham-will-head-to-australia-and-new-zealand-rather-than-the-u-s-in-pre-season/
-
-**Girl, 16, Is Fatally Shot Near a Bronx School Building, Police Say**\
-`The girl was shot once in the head near a building that houses a charter school and two New York City Department of Education schools.`\
-https://nytimes.com/2025/05/12/nyregion/bronx-shooting-girl-killed.html
 

@@ -1,3 +1,7 @@
+**NBA world reacts to Mavs' draft lottery win: 'The lottery gods are shining'**\
+`Dallas had only a 1.8 percent chance to land the No. 1 pick in the NBA Draft.`\
+https://nytimes.com/athletic/6351448/2025/05/12/nba-world-reacts-mavericks-draft-lottery-win/
+
 **2025 NBA mock draft: Cooper Flagg to Mavericks; Dylan Harper to Spurs**\
 `We have a shocking top three. Could one of those teams make a move to go star-hunting this offseason?`\
 https://nytimes.com/athletic/6345850/2025/05/12/nba-mock-draft-2025-cooper-flagg-mavericks/
