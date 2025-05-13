@@ -1,3 +1,16 @@
+**Can Cooper Flagg, Paige Bueckers reignite the Dallas basketball culture?**\
+`Dallas' hoops culture has seen its lows as of late. But Bueckers' arrival and the possibility of drafting Flagg could be a game-changer.`\
+https://nytimes.com/athletic/6351617/2025/05/13/cooper-flagg-paige-bueckers-draft-lottery-mavericks-wings/
+
+**A tiebreaker cost the Bulls a shot at Cooper Flagg. What's next for Chicago?**\
+`A random drawing gave the Dallas Mavericks 0.1 percent chance more than the Bulls to land the winning ping-pong ball numbers in the lottery.`\
+https://nytimes.com/athletic/6351651/2025/05/13/cooper-flagg-bulls-nba-draft-lottery-tiebreaker/
+
+**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
+`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
+`\
+https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+
 **Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
 `Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
 `\
