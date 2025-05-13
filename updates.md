@@ -1,3 +1,15 @@
+**Tariffs Drive Honda to Move S.U.V. Production From Canada to U.S.**\
+`President Trump’s trade war again tests Canada’s new government. Honda is also canceling plans for a major electric vehicle factory in Canada.`\
+https://nytimes.com/2025/05/13/world/americas/honda-trump-tariffs-us-canada.html
+
+**ESPN unveils direct-to-consumer streaming service with a familiar name: ESPN**\
+`In what Disney CEO Bob Iger has hailed as potentially the biggest move in nearly four decades for ESPN, the network has officially announced that all of its programming will be offered to consumers for $29.`\
+https://nytimes.com/athletic/6350815/2025/05/13/espn-streaming-service-cable/
+
+**A Damning Portrait of an Enfeebled Biden Protected by His Inner Circle**\
+`“Original Sin,” by Jake Tapper and Alex Thompson, depicts an aging president whose family and aides enabled his quixotic campaign for a second term.`\
+https://nytimes.com/2025/05/13/books/review/originial-sin-jake-tapper-alex-thompson.html
+
 **White South Africans Granted Refugee Status by Trump: What We Know**\
 `The first group of Afrikaners have arrived in the United States, claiming they were victims of persecution or had reason to fear persecution in their home country.`\
 https://nytimes.com/article/afrikaner-refugees-trump-south-africa.html
