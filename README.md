@@ -1,3 +1,15 @@
+**No Naked Dressing? How Will Stars Make News?**\
+`A new dress code at the Cannes Film Festival has set off a tempest in tulle.`\
+https://nytimes.com/2025/05/13/style/cannes-film-festival-naked-dressing-ban.html
+
+**Canucks free-agent targets: 8 UFA centremen who could fix Vancouver's top six**\
+`Adding a top-six centreman is the greatest challenge facing the Canucks this offseason.`\
+https://nytimes.com/athletic/6352172/2025/05/13/canucks-free-agent-targets-centers-nhl/
+
+**NFL 2025 international schedule: Vikings to Dublin, London back-to-back**\
+`The Broncos (London), Rams (London), Falcons (Berlin) and Commanders (Madrid) are also headed overseas in 2025.`\
+https://nytimes.com/athletic/6350612/2025/05/13/nfl-international-games-2025-season-schedule/
+
 **What's next for Giannis Antetokounmpo and the Bucks?**\
 `Antetokounmpo has not asked for a trade, but Milwaukee's ability to build a championship roster around him appears constrained. So now what?`\
 https://nytimes.com/athletic/6351966/2025/05/13/giannis-antetokounmpo-bucks-future-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/13/style/street-style-look-bleached-buzz-cut.html
 **Explained: Marinakis, Nuno and Awoniyi - what happened and were any rules broken?**\
 `Breaking down what caused Sunday's controversy, the reaction and what the fallout could be at Nottingham Forest`\
 https://nytimes.com/athletic/6351319/2025/05/13/evangelos-marinakis-nuno-espirito-santo-taiwo-awoniyi-explained/
-
-**A witness to violence and voyeuristic sex will retake the stand.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/a-witness-to-violence-and-voyeuristic-sex-will-retake-the-stand
-
-**U.S. Inflation Mild Ahead of Expected Jump From Tariffs**\
-`Economists and policymakers are bracing for inflation to re-accelerate as companies adapt to President Trump’s trade war.`\
-https://nytimes.com/2025/05/13/business/inflation-prices-tariffs.html
-
-**Madrid 'a club I'll keep in my heart', says Ancelotti ahead of Brazil switch**\
-`The Brazil Football Federation (CBF) confirmed the appointment of Ancelotti on Monday while Madrid are yet to officially announce his exit.`\
-https://nytimes.com/athletic/6352488/2025/05/13/carlo-ancelotti-real-madrid-brazil-switch/
 
