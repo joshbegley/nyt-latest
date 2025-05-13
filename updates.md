@@ -1,3 +1,11 @@
+**RFK Jr. Swims in Washington Creek That Flows With Sewage and Bacteria**\
+`Robert F. Kennedy Jr., the health secretary, shared photos of himself and his grandchildren swimming in waters that handle sewer overflow.`\
+https://nytimes.com/2025/05/12/us/politics/rfk-jr-rock-creek-bacteria.html
+
+**Why Wrexham will head to Australia and New Zealand rather than the U.S. in pre-season**\
+`Wrexham will head Down Under for the first time as the club owned by Ryan Reynolds and Rob McElhenney prepares for life in the Championship`\
+https://nytimes.com/athletic/6339206/2025/05/12/why-wrexham-will-head-to-australia-and-new-zealand-rather-than-the-u-s-in-pre-season/
+
 **NBA Draft Lottery: Dallas Mavericks win No. 1 pick, right to draft Cooper Flagg**\
 `Dallas had just a 1.8 percent chance of landing the No. 1 pick in June's NBA Draft.`\
 https://nytimes.com/athletic/6350742/2025/05/12/2025-nba-draft-lottery-cooper-flagg/
