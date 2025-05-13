@@ -1,3 +1,11 @@
+**Bengals' Trey Hendrickson drama is as avoidable as it is out of control: Dehner Jr. **\
+`The Bengals have once again failed to be definitive and proactive and again have a disgruntled star looming over their offseason.`\
+https://nytimes.com/athletic/6353852/2025/05/13/trey-hendrickson-bengals-drama-avoidable/
+
+**Inside the Extraordinary Contradictions in Trump’s Immigration Policies**\
+`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being shut out.`\
+https://nytimes.com/2025/05/13/us/politics/trump-refugees-white-south-africa-aghanistan.html
+
 **Wednesday Briefing: Israeli Officers Warn of Famine**\
 `Plus, a Hollywood takeover at Cannes.`\
 https://nytimes.com/2025/05/13/briefing/israel-gaza-famine-trump-syria-sanctions-ukraine-russia-talks.html

@@ -1,3 +1,7 @@
+**Bengals' Trey Hendrickson drama is as avoidable as it is out of control: Dehner Jr. **\
+`The Bengals have once again failed to be definitive and proactive and again have a disgruntled star looming over their offseason.`\
+https://nytimes.com/athletic/6353852/2025/05/13/trey-hendrickson-bengals-drama-avoidable/
+
 **Wednesday Briefing: Israeli Officers Warn of Famine**\
 `Plus, a Hollywood takeover at Cannes.`\
 https://nytimes.com/2025/05/13/briefing/israel-gaza-famine-trump-syria-sanctions-ukraine-russia-talks.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/05/13/world/asia/trump-india-pakistan-ceasefire.html
 https://nytimes.com/athletic/6353833/2025/05/13/blue-jays-jake-bloss-ucl-surgery/
 
 **Inside the Extraordinary Contradictions in Trump’s Immigration Policies**\
-`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being deported.`\
+`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being shut out.`\
 https://nytimes.com/2025/05/13/us/politics/trump-refugees-white-south-africa-aghanistan.html
 
 **The Pete Rose situation explained: What lifting his ban means for his Hall of Fame case**\
 `Major League Baseball commissioner Rob Manfred has removed Rose from MLB’s permanently ineligible list.`\
 https://nytimes.com/athletic/6172626/2025/05/13/pete-rose-hall-of-fame-explained/
-
-**As Trump Courts Gifts and Dangles Access, Congress Sits on the Sidelines**\
-`Republicans on Capitol Hill seem unlikely to challenge President Trump as he pushes ethics guardrails around profiting from the presidency to the breaking point.`\
-https://nytimes.com/2025/05/13/us/politics/congress-republican-reaction-trump-qatar-plane.html
 
