@@ -1,3 +1,11 @@
+**PGA Championship picks: Scheffler, McIlroy, DeChambeau dominate odds**\
+`Who pops on Dennis Esser's model for the second major of the year? A lot of golfers are hitting their stride just in time.`\
+https://nytimes.com/athletic/6352907/2025/05/13/pga-championship-odds-dfs-picks-scheffler-mcilroy-dechambeau/
+
+**Florida Panthers minority owner suspended indefinitely over social media posts**\
+`Comments were made using an X account that has since been deactivated following the Panthers' 2-0 win over the Toronto Maple Leafs in Game 4`\
+https://nytimes.com/athletic/6353270/2025/05/13/florida-panthers-minority-owner-cifu-suspended/
+
 **Man United under-18 coach Lawrence to leave at end of season**\
 `Lawrence led United to three trophies last year in his first year in charge at under-18s level.`\
 https://nytimes.com/athletic/6353468/2025/05/13/man-united-adam-lawrence-under-18-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/travel/airbnb-experiences-hotel-services.html
 **Bengals’ Hendrickson won’t play on current deal, says things have become 'personal'**\
 `Trey Hendrickson unloaded about an offseason of “disappointment” and feeling like things got “personal” between him and the Bengals.`\
 https://nytimes.com/athletic/6353379/2025/05/13/trey-hendrickson-bengals-contract-negotiation/
-
-**Millions Would Lose Health Coverage Under G.O.P. Bill. But Not as Many as Democrats Say.**\
-`A widely circulated talking point about Medicaid cuts inflates the legislation’s effects by about five million people.`\
-https://nytimes.com/2025/05/13/upshot/medicaid-cuts-democrats-republicans.html
-
-**YouTube to stream NFL's Week 1 Chargers game in Brazil for free**\
-`The game in São Paulo, Brazil, will be the first NFL contest to stream live and for free on YouTube.`\
-https://nytimes.com/athletic/6352815/2025/05/13/youtube-nfl-game-chargers-week-1-free/
 

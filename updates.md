@@ -1,3 +1,11 @@
+**PGA Championship picks: Scheffler, McIlroy, DeChambeau dominate odds**\
+`Who pops on Dennis Esser's model for the second major of the year? A lot of golfers are hitting their stride just in time.`\
+https://nytimes.com/athletic/6352907/2025/05/13/pga-championship-odds-dfs-picks-scheffler-mcilroy-dechambeau/
+
+**Florida Panthers minority owner suspended indefinitely over social media posts**\
+`Comments were made using an X account that has since been deactivated following the Panthers' 2-0 win over the Toronto Maple Leafs in Game 4`\
+https://nytimes.com/athletic/6353270/2025/05/13/florida-panthers-minority-owner-cifu-suspended/
+
 **Man United under-18 coach Lawrence to leave at end of season**\
 `Lawrence led United to three trophies last year in his first year in charge at under-18s level.`\
 https://nytimes.com/athletic/6353468/2025/05/13/man-united-adam-lawrence-under-18-coach/
