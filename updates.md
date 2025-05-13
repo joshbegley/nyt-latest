@@ -1,3 +1,8 @@
+**Alonso to Madrid: Title odds, Ballon d’Or ripples, scoring markets**\
+`Brett Koremenos, Julia Ranney, and Sam Tighe explore the betting ramifications of  Xabi Alonso’s expected move to Real Madrid. 
+`\
+https://nytimes.com/athletic/6352258/2025/05/13/xabi-alonso-real-madrid-betting-predictions-odds/
+
 **The New York Times International Edition in Print for Wednesday, May 14, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/13/todays-new-york-times-international-edition
