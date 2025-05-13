@@ -1,3 +1,11 @@
+**Yankees sign Anthony DeSclafani to boost starting pitching depth**\
+`DeSclafani hasn't pitched in the majors since July 23, 2023.`\
+https://nytimes.com/athletic/6354180/2025/05/13/yankees-anthony-desclafani/
+
+**Wisconsin Judge Indicted on Charges That She Helped Immigrant Evade Agents**\
+`Judge Hannah C. Dugan was accused of helping an undocumented immigrant elude federal agents who were waiting to arrest him outside her courtroom.`\
+https://nytimes.com/2025/05/13/us/milwaukee-judge-hannah-dugan-immigration.html
+
 **Prosecutors Charge Sinaloa Cartel Operatives With Terrorism Crimes**\
 `The indictment was the first time leaders of the cartel had been charged with terrorism crimes since a Trump executive order designated it a foreign terrorist organization.`\
 https://nytimes.com/2025/05/13/us/politics/sinaloa-cartel-terrorism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6329688/2025/05/13/pete-rose-mlb-rob-manfred/
 **Adams Lashes Out at Prosecutors, Saying They Sought to Humiliate Him**\
 `Mayor Eric Adams of New York City railed against the federal authorities who accused him of corruption and seized his numerous cellphones.`\
 https://nytimes.com/2025/05/13/nyregion/adams-fbi-phones-trump.html
-
-**Sunderland to face Sheffield United in final after extra-time goal against Coventry**\
-`Ballard’s 122nd-minute header earned Sunderland a 1-1 draw on the night, and a 2-1 victory on aggregate.`\
-https://nytimes.com/athletic/6354052/2025/05/13/sunderland-championship-coventry-ballard/
-
-**Harvard Adds to Legal Complaint Against Trump Administration**\
-`The university expanded its ongoing suit after the Trump administration said it would stop issuing grants to the school and promised to take another $450 million.`\
-https://nytimes.com/2025/05/13/us/harvard-trump-lawsuit.html
 

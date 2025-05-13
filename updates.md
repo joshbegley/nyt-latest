@@ -1,3 +1,11 @@
+**Yankees sign Anthony DeSclafani to boost starting pitching depth**\
+`DeSclafani hasn't pitched in the majors since July 23, 2023.`\
+https://nytimes.com/athletic/6354180/2025/05/13/yankees-anthony-desclafani/
+
+**Wisconsin Judge Indicted on Charges That She Helped Immigrant Evade Agents**\
+`Judge Hannah C. Dugan was accused of helping an undocumented immigrant elude federal agents who were waiting to arrest him outside her courtroom.`\
+https://nytimes.com/2025/05/13/us/milwaukee-judge-hannah-dugan-immigration.html
+
 **Prosecutors Charge Sinaloa Cartel Operatives With Terrorism Crimes**\
 `The indictment was the first time leaders of the cartel had been charged with terrorism crimes since a Trump executive order designated it a foreign terrorist organization.`\
 https://nytimes.com/2025/05/13/us/politics/sinaloa-cartel-terrorism.html
