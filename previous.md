@@ -1,3 +1,11 @@
+**Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
+`The Braves beat the Nationals on Alex Verdugo’s ninth-inning single Monday night.`\
+https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
+
+**Oilers dominate Golden Knights in Game 4 to take 3-1 series lead**\
+`The Oilers landed a haymaker early in Game 4 and never let the Golden Knights off the mat.`\
+https://nytimes.com/athletic/6337464/2025/05/13/oilers-golden-knights-nhl-playoffs-2025-game-4-takeaways/
+
 **Why Craig Counsell's blunt 'worst-case scenario' sold Colin Rea on signing with Cubs**\
 `Rea was told he'd likely be a reliever, but injuries gave him a chance to start. He's now 3-0, including Monday's win against the Marlins.`\
 https://nytimes.com/athletic/6351838/2025/05/13/cubs-craig-counsell-colin-rea/
@@ -9,6 +17,10 @@ https://nytimes.com/athletic/6349618/2025/05/13/chelsea-newcastle-maresca-champi
 **Inside the silence, confusion and celebration from the Mavs' stroke of lottery luck**\
 `Dallas, somehow, won the No. 1 pick. What went on in the lottery room? And what were people talking about before and after?`\
 https://nytimes.com/athletic/6351525/2025/05/13/nba-draft-lottery-mavericks-nico-harrison-cooper-flagg/
+
+**Arsenal fans'survey: What are your views on this season, transfers, Arteta and next season?**\
+`The 2024-25 campaign is drawing to a close, so how do you feel it has gone? What could have been done differently?`\
+https://nytimes.com/athletic/6349742/2025/05/13/arsenal-fans-survey-champions-league-arteta/
 
 **What Brighton can expect from Tommy Watson next season**\
 `The Sunderland winger is a good example of Brighton's approach of patience combined with persistence in the transfer market`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6351633/2025/05/13/dallas-mavericks-cooper-flagg-nb
 **The Glazers in 2025 - How Tampa views the Buccaneers' owners**\
 `In part three of our series looking at 20 years since the Glazers bought Manchester United, we discover how the family are viewed in Tampa`\
 https://nytimes.com/athletic/6342771/2025/05/13/manchester-united-glazers-tampa-buccaneers/
-
-**The booing of Alexander-Arnold: A sensible discussion**\
-`Fans' reaction to the right-back in Sunday's game against Arsenal sparked huge debate – this is what our experts and readers are saying`\
-https://nytimes.com/athletic/6349659/2025/05/13/trent-alexander-arnold-booing-liverpool-fans-discussion/
-
-**Jason Puncheon: 'You have one chance to be part of history at a club. This is Palace's'**\
-`The last man to score a goal for the south London club in an FA Cup final will be watching Saturday's FA Cup final from distant Cyprus `\
-https://nytimes.com/athletic/6347696/2025/05/13/palace-jason-puncheon-interview-akritas/
-
-**Rafaela Pimenta interview: Sexism in football, the game's 'hostage' problem and doing the Haaland deal**\
-`The 'most powerful woman in football' speaks out about her experiences and the issues facing other women in the game`\
-https://nytimes.com/athletic/6339656/2025/05/13/rafaela-pimenta-interview-women-football-haaland/
 

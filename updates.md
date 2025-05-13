@@ -1,3 +1,15 @@
+**Big Monday for Braves: Walk-off win and news about Ronald Acuña Jr.'s return from IL**\
+`The Braves beat the Nationals on Alex Verdugo’s ninth-inning single Monday night.`\
+https://nytimes.com/athletic/6351743/2025/05/13/braves-walk-off-win-ronald-acuna-jr-return/
+
+**Oilers dominate Golden Knights in Game 4 to take 3-1 series lead**\
+`The Oilers landed a haymaker early in Game 4 and never let the Golden Knights off the mat.`\
+https://nytimes.com/athletic/6337464/2025/05/13/oilers-golden-knights-nhl-playoffs-2025-game-4-takeaways/
+
+**Arsenal fans'survey: What are your views on this season, transfers, Arteta and next season?**\
+`The 2024-25 campaign is drawing to a close, so how do you feel it has gone? What could have been done differently?`\
+https://nytimes.com/athletic/6349742/2025/05/13/arsenal-fans-survey-champions-league-arteta/
+
 **Why Craig Counsell's blunt 'worst-case scenario' sold Colin Rea on signing with Cubs**\
 `Rea was told he'd likely be a reliever, but injuries gave him a chance to start. He's now 3-0, including Monday's win against the Marlins.`\
 https://nytimes.com/athletic/6351838/2025/05/13/cubs-craig-counsell-colin-rea/
