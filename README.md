@@ -1,3 +1,11 @@
+**Watch: How Paige Bueckers' stylist prepared the No.1 WNBA Draft pick for her big moment**\
+`No Offseason interview stylist and fashion designer Brittany Hampton about Paige Bueckers’ draft day fits.`\
+https://nytimes.com/athletic/6352212/2025/05/13/no-offseason-paige-bueckers-brittany-hampton-style/
+
+**Marta returns from international retirement with Brazil call up**\
+`The 39-year-old had announced her intention to walk away from the international game a year ago but has been called up again.`\
+https://nytimes.com/athletic/6353201/2025/05/13/marta-brazil-squad-return/
+
 **NFL to cancel Accelerator program designed to promote diversity hiring practices**\
 `To date, only two accelerator alumni have managed to secure jobs thanks in part to the program.`\
 https://nytimes.com/athletic/6353235/2025/05/13/nfl-diversity-program-coach-candidates-hiatus-improvements/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6353167/2025/05/13/miro-heiskanen-stars-jets-nhl-pl
 **The Dynamo Room Conjures Classic New York Next to Madison Square Garden**\
 `Farzi opens a New York location for Indian fare, the Frick Collection gets its first restaurant and more news.`\
 https://nytimes.com/2025/05/13/dining/dynamo-room-msg.html
-
-**CNN’s New Streaming Service Will Debut This Fall**\
-`The service is part of a major push to find paying customers for the network’s journalism.`\
-https://nytimes.com/2025/05/13/business/media/cnn-streaming-service.html
-
-**Review: A New ‘Antony and Cleopatra’ Opera Sags at the Met**\
-`John Adams’s Shakespeare adaptation has been trimmed since its premiere, but still struggles with setting a flood of dense Elizabethan verse.`\
-https://nytimes.com/2025/05/13/arts/music/review-antony-and-cleopatra-met-opera-john-adams.html
 
