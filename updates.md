@@ -1,3 +1,15 @@
+**A Book Points to Biden’s Decline and Democrats’ Cowardice: 6 Takeaways**\
+`The book, “Original Sin,” describes how Mr. Biden’s aides quashed concerns about his age. But the anonymous accounts show that many Democrats are still afraid to discuss the issue publicly.`\
+https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
+
+**Hunter Dekkers, banned by NCAA for sports betting, signed by Saints**\
+`Dekkers pled guilty to underage gambling in 2023 and enrolled at Iowa Western Community College for the 2024 season. `\
+https://nytimes.com/athletic/6302384/2025/05/13/hunter-dekkers-gambling-signed-saints/
+
+**Why Did Eric Adams Have So Many Phones?**\
+`Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
+https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
+
 **New York’s Deepest Pockets Turn Out to Fight Poverty**\
 `The annual Robin Hood gala drew sports luminaries including Roger Goodell, Serena Williams and Eli Manning.`\
 https://nytimes.com/2025/05/13/style/robin-hood-gala-nyc.html
