@@ -1,5 +1,13 @@
-**Judge Appoints an Outside Official to Take Over Deadly Rikers Island**\
-`Laura Taylor Swain, a federal judge, seized control of New York City’s jails, which have been rife with violence and dysfunction.`\
+**Chasing Tax Cuts, Trump and Republicans Want to Make States Pay**\
+`G.O.P. leaders are exploring cuts to federal aid, leaving some states fearful that their budgets cannot absorb billions of dollars in new costs.`\
+https://nytimes.com/2025/05/13/us/politics/trump-republicans-tax-cuts-spending-states.html
+
+**Defense attorney questions E.M. about calling players men during Hockey Canada trial**\
+`Defense attorneys have referred to the accused players as boys; E.M. has called them men. "Their age made them men," she testified. `\
+https://nytimes.com/athletic/6352897/2025/05/13/hockey-canada-sexual-assault-trial-em-cross-examination-4/
+
+**Judge Appoints Outside Official to Take Over Deadly Rikers Island Jail**\
+`Laura Taylor Swain, a federal judge, seized control of New York City’s lockups, which have been rife with violence and dysfunction.`\
 https://nytimes.com/2025/05/13/nyregion/rikers-island-receiver-nyc.html
 
 **How the World’s Largest Jeweler Is Surviving the Trade War**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6352789/2025/05/13/uruguay-copa-america-colombia-pl
 **C.I.A. Rejects Diversity Efforts Once Deemed as Essential to Its Mission**\
 `The Trump administration is dismantling programs that some former directors believed helped sharpen the agency’s competitive edge.`\
 https://nytimes.com/2025/05/13/us/politics/cia-hiring-diversity.html
-
-**The Windup: Yankees’ cruel injury carousel**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6351929/2025/05/13/yankees-injuries-oswaldo-cabrera-the-windup/
-
-**Cassie Recounts ‘Violent Arguments’ and ‘Physical Abuse’ by Sean Combs**\
-`The singer began testifying for a federal jury in the sex-trafficking and racketeering case against Mr. Combs.`\
-https://nytimes.com/2025/05/13/arts/music/cassie-testimony-sean-combs-abuse-sex-trafficking.html
 

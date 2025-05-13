@@ -1,3 +1,15 @@
+**Chasing Tax Cuts, Trump and Republicans Want to Make States Pay**\
+`G.O.P. leaders are exploring cuts to federal aid, leaving some states fearful that their budgets cannot absorb billions of dollars in new costs.`\
+https://nytimes.com/2025/05/13/us/politics/trump-republicans-tax-cuts-spending-states.html
+
+**Defense attorney questions E.M. about calling players men during Hockey Canada trial**\
+`Defense attorneys have referred to the accused players as boys; E.M. has called them men. "Their age made them men," she testified. `\
+https://nytimes.com/athletic/6352897/2025/05/13/hockey-canada-sexual-assault-trial-em-cross-examination-4/
+
+**Judge Appoints Outside Official to Take Over Deadly Rikers Island Jail**\
+`Laura Taylor Swain, a federal judge, seized control of New York City’s lockups, which have been rife with violence and dysfunction.`\
+https://nytimes.com/2025/05/13/nyregion/rikers-island-receiver-nyc.html
+
 **Judge Appoints an Outside Official to Take Over Deadly Rikers Island**\
 `Laura Taylor Swain, a federal judge, seized control of New York City’s jails, which have been rife with violence and dysfunction.`\
 https://nytimes.com/2025/05/13/nyregion/rikers-island-receiver-nyc.html
