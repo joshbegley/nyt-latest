@@ -1,3 +1,7 @@
+**Blackburn at risk of Women's Championship relegation**\
+`Blackburn have been given until Monday, May 18 to decide whether they want to remain in the Women's Championship.`\
+https://nytimes.com/athletic/6352652/2025/05/13/blackburn-rovers-women-relegation/
+
 **Kremlin Stays Mum on Whether Putin Will Meet Zelensky**\
 `President Trump raised the prospect of attending negotiations himself, after Ukraine’s leader said he would go in person and challenged Russia’s to do the same.`\
 https://nytimes.com/2025/05/13/world/europe/russia-ukraine-putin-zelensky.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
 https://nytimes.com/athletic/6230130/2025/05/13/manchester-united-ashworth-fa/
 
 **A look back at the historic tracks that held F1's first world championship season**\
-`Much has changed over 75 years at the seven tracks that Formula 1 began racing on`\
+`The seven tracks that launched Formula 1 in 1950 tell stories of daring, tragedy and evolution that shaped the sport`\
 https://nytimes.com/athletic/6350551/2025/05/13/1950-f1-75-anniversary/
 
 **No Naked Dressing? How Will Stars Make News?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350612/2025/05/13/nfl-international-games-2025-sea
 **What's next for Giannis Antetokounmpo and the Bucks?**\
 `Antetokounmpo has not asked for a trade, but Milwaukee's ability to build a championship roster around him appears constrained. So now what?`\
 https://nytimes.com/athletic/6351966/2025/05/13/giannis-antetokounmpo-bucks-future-trade/
-
-**Freddie Freeman's ankle is still ailing. The Dodgers star's swing is not**\
-`Freeman said he doesn’t know if the ankle will ever be 100 percent again, but his approach at the plate looks as strong as ever.`\
-https://nytimes.com/athletic/6350993/2025/05/13/dodgers-freddie-freeman-ankle-update/
 

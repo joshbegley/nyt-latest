@@ -1,3 +1,23 @@
+**Kremlin Stays Mum on Whether Putin Will Meet Zelensky**\
+`President Trump raised the prospect of attending negotiations himself, after Ukraine’s leader said he would go in person and challenged Russia’s to do the same.`\
+https://nytimes.com/2025/05/13/world/europe/russia-ukraine-putin-zelensky.html
+
+**U.K. Retail Giant M&S Says Customer Data Was Compromised in Cyberattack**\
+`The company suspended online orders for weeks after the breach, which may have exposed contact details and birth dates.`\
+https://nytimes.com/2025/05/13/world/europe/marks-spencer-cyber-attack.html
+
+**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery**\
+`Utah can select a very good player at No. 5 in the upcoming draft. But that wasn't the goal of suffering through a miserable 2024-25 season.`\
+https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
+
+**Ex-Man United sporting director Ashworth set for FA return**\
+`The 54-year-old left his role at Old Trafford on December 8, just five months after being hired.`\
+https://nytimes.com/athletic/6230130/2025/05/13/manchester-united-ashworth-fa/
+
+**A look back at the historic tracks that held F1's first world championship season**\
+`Much has changed over 75 years at the seven tracks that Formula 1 began racing on`\
+https://nytimes.com/athletic/6350551/2025/05/13/1950-f1-75-anniversary/
+
 **No Naked Dressing? How Will Stars Make News?**\
 `A new dress code at the Cannes Film Festival has set off a tempest in tulle.`\
 https://nytimes.com/2025/05/13/style/cannes-film-festival-naked-dressing-ban.html
