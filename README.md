@@ -1,3 +1,31 @@
+**Baby Names**\
+`Do you think it’s important to have a unique name? What kind of name would you want to give a child if you had one?`\
+https://nytimes.com/2025/05/13/learning/baby-names.html
+
+**New Jersey Is Facing a Possible Transit Strike. Here’s What to Know.**\
+`The union that represents the engineers who drive New Jersey Transit’s commuter trains has threatened a walkout as soon as Friday if a contract deal is not reached.`\
+https://nytimes.com/2025/05/13/nyregion/nj-transit-strike.html
+
+**Behind a Museum Door, These Beetles Are Eating Flesh for Science**\
+`The six-legged staffers of the American Museum of Natural History’s Bug Colony do their grisly work under a lid. The result: neatly tidied bones.`\
+https://nytimes.com/2025/05/13/nyregion/american-museum-natural-history-beetles.html
+
+**Takeaways From Harvey Weinstein’s Trial, and What’s Ahead in Week 5**\
+`The disgraced producer’s trial on sex charges resumes Tuesday in Manhattan with the cross-examination of a woman who says he abused her repeatedly.`\
+https://nytimes.com/2025/05/13/nyregion/harvey-weinstein-trial-what-to-know.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/13/crosswords/spelling-bee-forum.html
+
+**An L.A. Doctor’s House Burned. Now He Treats the Fires’ Effects in Neighbors.**\
+`A new clinic, opened by a pulmonologist who lost his home in the Palisades blaze, is addressing the health issues developing among people exposed to the fires.`\
+https://nytimes.com/2025/05/13/health/los-angeles-fire-health-effects.html
+
+**A Toxic Pit Could Be a Gold Mine for Rare-Earth Elements**\
+`Mining continues at the Continental Pit. Nearby is the Berkeley Pit, a site for acid mine drainage that poses an opportunity for extracting valuable metals.`\
+https://nytimes.com/2025/05/13/science/berkeley-mine-pit-rare-earths.html
+
 **Trump Lands in Saudi Arabia, Kicking Off Tour of Gulf States**\
 `President Trump, who will also go to Qatar and the United Arab Emirates, has told advisers that he wants to sign deals worth more than $1 trillion on the trip.`\
 https://nytimes.com/2025/05/13/us/politics/trump-saudi-arabia-gulf-trip.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6352077/2025/05/13/pelicans-draft-lottery-zion-will
 **The Knicks are one win away from ending a 25-year drought. Here's how it happened**\
 `New York has the defending champs on the ropes. Now, the Knicks need to finish the job.`\
 https://nytimes.com/athletic/6351918/2025/05/13/knicks-beat-celtics-game-4/
-
-**Stephen Colbert Thinks the Nickname ‘Lady Giuliani’ Suits Jeanine Pirro**\
-`Colbert said President Trump’s latest appointment from the Fox News roster “drank a whole bottle of champagne, and then someone told her the news.”`\
-https://nytimes.com/2025/05/13/arts/television/stephen-colbert-jeanine-pirro.html
-
-**Word of the Day: proscenium**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/13/learning/word-of-the-day-proscenium.html
-
-**Tory Lanez Is Attacked by Another Inmate in Prison**\
-`The rapper was hospitalized after being stabbed 14 times, his Instagram account said. He is serving a 10-year sentence for shooting the hip-hop star Megan Thee Stallion.`\
-https://nytimes.com/2025/05/13/us/tory-lanez-attacked-prison.html
-
-**Cubs planning to promote big-time prospect Moisés Ballesteros for Wrigley debut: Source**\
-`The Cubs are hoping for instant offense from Ballesteros, a gifted left-handed hitter who has consistently excelled in the minor leagues.`\
-https://nytimes.com/athletic/6352037/2025/05/13/cubs-moises-ballesteros/
-
-**Tuesday Briefing**\
-`President Trump’s visit to the Gulf region.`\
-https://nytimes.com/2025/05/13/briefing/trump-gulf-china-trade.html
-
-**Yankees' Oswaldo Cabrera taken off field via ambulance after ankle injury**\
-`Cabrera suffered the injury while running home from third base after tagging up on Aaron Judge's bases-loaded fly ball.`\
-https://nytimes.com/athletic/6351949/2025/05/13/yankees-oswaldo-cabrera-taken-off-field/
-
-**The New York Times in Print for Tuesday, May 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/13/todays-new-york-times
 

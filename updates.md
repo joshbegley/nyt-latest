@@ -1,3 +1,7 @@
+**Trump Lands in Saudi Arabia, Kicking Off Tour of Gulf States**\
+`President Trump, who will also go to Qatar and the United Arab Emirates, has told advisers that he wants to sign deals worth more than $1 trillion on the trip.`\
+https://nytimes.com/2025/05/13/us/politics/trump-saudi-arabia-gulf-trip.html
+
 **Despite disastrous draft lottery slide, Pelicans can solidify foundation around Zion Williamson**\
 `Williamson's appearance for the Pelicans at the lottery was a signal the team is working with its best player as they enter a new phase.`\
 https://nytimes.com/athletic/6352077/2025/05/13/pelicans-draft-lottery-zion-williamson/
