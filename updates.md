@@ -1,3 +1,11 @@
+**Trump says he might join Russia-Ukraine peace talks in Turkey.**\
+`President Trump said he may add a stop in Istanbul to his tour of the Gulf.`\
+https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/trump-says-he-might-join-russia-ukraine-peace-talks-in-turkey
+
+**Elon Musk, Sam Altman and Other C.E.O.s Join Trump at U.S.-Saudi Lunch**\
+`Many of the executives — including representatives of four of the 10 biggest U.S. companies by market value — are seeking business from Saudi investors and a chance to lobby top Trump officials.`\
+https://nytimes.com/2025/05/13/us/politics/trump-saudi-business-lunch-musk-altman.html
+
 **Tariff Flip-Flops**\
 `Despite President Trump’s claims, America seems to need other countries’ trade as much as they need ours.`\
 https://nytimes.com/2025/05/13/briefing/trump-tariffs-china.html
