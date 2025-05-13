@@ -1,3 +1,7 @@
+**Millions Would Lose Health Coverage Under G.O.P. Bill. But Not as Many as Democrats Say.**\
+`A widely circulated talking point about Medicaid cuts inflates the legislation’s effects by about five million people.`\
+https://nytimes.com/2025/05/13/upshot/medicaid-cuts-democrats-republicans.html
+
 **YouTube to stream NFL's Week 1 Chargers game in Brazil for free**\
 `The game in São Paulo, Brazil, will be the first NFL contest to stream live and for free on YouTube.`\
 https://nytimes.com/athletic/6352815/2025/05/13/youtube-nfl-game-chargers-week-1-free/
