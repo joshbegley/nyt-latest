@@ -1,3 +1,7 @@
+**DOGE Removes Dozens of Resurrected Contracts From Its List of Savings**\
+`Elon Musk’s group is no longer claiming credit for canceling those contracts after The New York Times reported that they were revived.`\
+https://nytimes.com/2025/05/13/us/politics/doge-musk-contracts-trump.html
+
 **The Surprising Health Benefits of Becoming Pope**\
 `Such a demanding job can be good for the brain and body. But Pope Leo XIV may also have to contend with challenges that are common in old age.`\
 https://nytimes.com/2025/05/13/well/pope-health-leo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/us/politics/nate-holden-dead.html
 **Making Dishwashers Great Again?**\
 `The Trump administration has moved to roll back efficiency and water standards for appliances, fueled by the president’s fixation on low-flow showers and toilets.`\
 https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html
-
-**Don’t Know How to Face Your Mom? Talk to Your Friend’s Mom Instead.**\
-`In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free in “M/other.”`\
-https://nytimes.com/2025/05/13/opinion/child-free-conversation-mothers.html
 

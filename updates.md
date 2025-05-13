@@ -1,3 +1,7 @@
+**DOGE Removes Dozens of Resurrected Contracts From Its List of Savings**\
+`Elon Musk’s group is no longer claiming credit for canceling those contracts after The New York Times reported that they were revived.`\
+https://nytimes.com/2025/05/13/us/politics/doge-musk-contracts-trump.html
+
 **The Surprising Health Benefits of Becoming Pope**\
 `Such a demanding job can be good for the brain and body. But Pope Leo XIV may also have to contend with challenges that are common in old age.`\
 https://nytimes.com/2025/05/13/well/pope-health-leo.html
