@@ -1,3 +1,7 @@
+**Cassie testifies that freak-offs made her feel ‘worthless’ and ‘humiliated.’**\
+`By Julia Jacobs and Ben Sisario`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-testifies-that-freak-offs-made-her-feel-worthless-and-humiliated
+
 **Amorim pays for friends and family of Man United backroom staff to attend final**\
 `Amorim has covered the cost for around 30 backroom staff members to bring family to Bilbao.`\
 https://nytimes.com/athletic/6353708/2025/05/13/man-united-europa-league-final-ruben-amorim/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/13/well/pope-health-leo.html
 **Trump’s Focus on Punishing Drug Dealers May Hurt Drug Users Trying to Quit**\
 `Public health and addiction experts fear millions could lose access to treatment and prevention services if the administration’s proposed cuts are enacted.`\
 https://nytimes.com/2025/05/13/health/trump-drugs-treatment.html
-
-**Trump Says the United States Will End Sanctions on Syria**\
-`President Trump told a business forum in Saudi Arabia that he would lift sanctions on Syria. The announcement came a day before an expected meeting with Syria’s new president, who led the rebel alliance that ousted Bashar al-Assad.`\
-https://nytimes.com/video/world/middleeast/100000010167482/trump-syria-sanctions.html
 

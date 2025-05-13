@@ -1,3 +1,16 @@
+**Amorim pays for friends and family of Man United backroom staff to attend final**\
+`Amorim has covered the cost for around 30 backroom staff members to bring family to Bilbao.`\
+https://nytimes.com/athletic/6353708/2025/05/13/man-united-europa-league-final-ruben-amorim/
+
+**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
+`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
+`\
+https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
+
+**Yankees’ Oswaldo Cabrera fractures ankle: What it means for lineup**\
+`Cabrera twisted his ankle while avoiding the tag from Mariners catcher Cal Raleigh in Monday's game.`\
+https://nytimes.com/athletic/6353512/2025/05/13/oswaldo-cabrera-ankle-injury-yankees/
+
 **Yankees' Oswaldo Cabrera has ankle fracture: Analyzing N.Y.'s options**\
 `Cabrera twisted his ankle while avoiding the tag from Mariners catcher Cal Raleigh in Monday's game.`\
 https://nytimes.com/athletic/6353512/2025/05/13/oswaldo-cabrera-ankle-injury-yankees/
