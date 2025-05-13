@@ -1,3 +1,19 @@
+**As Trump Crows Over Ending a Conflict, India’s Leaders Feel Betrayed**\
+`President Trump’s repeated descriptions of U.S. mediation efforts between India and Pakistan have hit sore spots in Indian politics.`\
+https://nytimes.com/2025/05/13/world/asia/trump-india-pakistan-ceasefire.html
+
+**Blue Jays pitching prospect Jake Bloss to undergo UCL surgery**\
+`On May 3, Bloss left a start against the Iowa Cubs in the fourth inning holding his right arm. `\
+https://nytimes.com/athletic/6353833/2025/05/13/blue-jays-jake-bloss-ucl-surgery/
+
+**Inside the Extraordinary Contradictions in Trump’s Immigration Policies**\
+`The Trump administration carved out an exception to its refugee ban for white South Africans. But other groups, including Afghans who helped U.S. forces during the war in their country, are being deported.`\
+https://nytimes.com/2025/05/13/us/politics/trump-refugees-white-south-africa-aghanistan.html
+
+**The Pete Rose situation explained: What lifting his ban means for his Hall of Fame case**\
+`Major League Baseball commissioner Rob Manfred has removed Rose from MLB’s permanently ineligible list.`\
+https://nytimes.com/athletic/6172626/2025/05/13/pete-rose-hall-of-fame-explained/
+
 **As Trump Courts Gifts and Dangles Access, Congress Sits on the Sidelines**\
 `Republicans on Capitol Hill seem unlikely to challenge President Trump as he pushes ethics guardrails around profiting from the presidency to the breaking point.`\
 https://nytimes.com/2025/05/13/us/politics/congress-republican-reaction-trump-qatar-plane.html
@@ -21,21 +37,4 @@ https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-te
 **Amorim pays for friends and family of Man United backroom staff to attend final**\
 `Amorim has covered the cost for around 30 backroom staff members to bring family to Bilbao.`\
 https://nytimes.com/athletic/6353708/2025/05/13/man-united-europa-league-final-ruben-amorim/
-
-**Pete Rose, other deceased players removed from MLB's permanently ineligible list**\
-`The decision, announced by commissioner Rob Manfred Tuesday, makes the sport’s all-time hit king eligible for election to the Hall of Fame.
-`\
-https://nytimes.com/athletic/6309907/2025/05/13/pete-rose-baseball-ineligible-list/
-
-**Yankees’ Oswaldo Cabrera fractures ankle: What it means for lineup**\
-`Cabrera twisted his ankle while avoiding the tag from Mariners catcher Cal Raleigh in Monday's game.`\
-https://nytimes.com/athletic/6353512/2025/05/13/oswaldo-cabrera-ankle-injury-yankees/
-
-**What a Prostate Nodule Detection Like Biden’s Can Mean for a Man’s Health**\
-`Some doctors say they are surprised the condition was found at all in the former president, given his age.`\
-https://nytimes.com/2025/05/13/health/joe-biden-prostate-nodule-cancer.html
-
-**Thompson: For Steph Curry's Warriors, these playoffs are a cruel trick — and he can only watch**\
-`With Curry on the court, the Warriors might be contenders in these playoffs. Without him, they're starved and staring at an early exit.`\
-https://nytimes.com/athletic/6353472/2025/05/13/steph-curry-warriors-playoffs-injury-timberwolves-game-5/
 

@@ -1,3 +1,11 @@
+**Tiny Company With China Ties Announces Big Purchase of Trump Cryptocurrency**\
+`The firm, which produces content for TikTok, recorded no revenue last year, but it announced this week that a mysterious stock sale would allow it to invest heavily in the $TRUMP memecoin.`\
+https://nytimes.com/2025/05/13/us/politics/trump-crypto-purchase.html
+
+**Flyers mailbag: Potential upgrades, trades and offer sheets, and is Rick Tocchet a sensible choice?**\
+`Will the Flyers acquire a No. 1 defenseman? First, we need to define the term.`\
+https://nytimes.com/athletic/6353594/2025/05/13/flyers-tocchet-roster-trade-offseason/
+
 **As Trump Crows Over Ending a Conflict, India’s Leaders Feel Betrayed**\
 `President Trump’s repeated descriptions of U.S. mediation efforts between India and Pakistan have hit sore spots in Indian politics.`\
 https://nytimes.com/2025/05/13/world/asia/trump-india-pakistan-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6353665/2025/05/13/milton-williams-patriots-mike-vr
 **Saudis Greet Trump to His Tastes, With Pomp, Opulence and Real Estate**\
 `The Saudi crown prince gave President Trump a warm and opulent welcome, reflecting the amity between a royal family and presidential family with diplomatic and business alliances.`\
 https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-arabia.html
-
-**Cassie testifies that freak-offs made her feel ‘worthless’ and ‘humiliated.’**\
-`By Julia Jacobs and Ben Sisario`\
-https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/cassie-testifies-that-freak-offs-made-her-feel-worthless-and-humiliated
-
-**Amorim pays for friends and family of Man United backroom staff to attend final**\
-`Amorim has covered the cost for around 30 backroom staff members to bring family to Bilbao.`\
-https://nytimes.com/athletic/6353708/2025/05/13/man-united-europa-league-final-ruben-amorim/
 
