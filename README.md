@@ -1,3 +1,19 @@
+**Yankees' Oswaldo Cabrera has ankle fracture: Analyzing N.Y.'s options**\
+`Cabrera twisted his ankle while avoiding the tag from Mariners catcher Cal Raleigh in Monday's game.`\
+https://nytimes.com/athletic/6353512/2025/05/13/oswaldo-cabrera-ankle-injury-yankees/
+
+**What a Prostate Nodule Detection Like Biden’s Can Mean for a Man’s Health**\
+`Some doctors say they are surprised the condition was found at all in the former president, given his age.`\
+https://nytimes.com/2025/05/13/health/joe-biden-prostate-nodule-cancer.html
+
+**Thompson: For Steph Curry's Warriors, these playoffs are a cruel trick — and he can only watch**\
+`With Curry on the court, the Warriors might be contenders in these playoffs. Without him, they're starved and staring at an early exit.`\
+https://nytimes.com/athletic/6353472/2025/05/13/steph-curry-warriors-playoffs-injury-timberwolves-game-5/
+
+**Jackson Cantwell, nation's top prospect, picks Miami over Georgia, Oregon, Ohio State**\
+`Cantwell, a Missouri native, is the first top-100 prospect in the Hurricanes' 2026 class. `\
+https://nytimes.com/athletic/6352864/2025/05/13/jackson-cantwell-recruiting-miami-five-star/
+
 **DOGE Removes Dozens of Resurrected Contracts From Its List of Savings**\
 `Elon Musk’s group is no longer claiming credit for canceling those contracts after The New York Times reported that they were revived.`\
 https://nytimes.com/2025/05/13/us/politics/doge-musk-contracts-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6350377/2025/05/13/man-city-tijjani-reijnders-trans
 **Connecticut Sun ownership exploring sale of team: 'All options are on the table'**\
 `The Mohegan Tribe have owned the franchise since 2003, when they paid $10 million to acquire what was then the Orlando Miracle.`\
 https://nytimes.com/athletic/6353370/2025/05/13/connecticut-sun-ownership-sale-update/
-
-**Belichick: Jordon Hudson 'doesn’t have anything to do with UNC football'**\
-`Bill Belichick talked UNC football on "SportsCenter" on Tuesday and was also asked about the impact of his 24-year-old girlfriend.`\
-https://nytimes.com/athletic/6353546/2025/05/13/bill-belichick-jordon-hudson-sportscenter/
-
-**Federal School Voucher Proposal Advances, a Milestone for Conservatives**\
-`A provision in the House Republican budget bill would provide public money for private education and home-schooling, something many Democratic-led states have resisted.`\
-https://nytimes.com/2025/05/13/us/federal-school-vouchers-bill.html
-
-**Nate Holden, L.A. Democrat With a Cameo in 2024 Presidential Race, Dies at 95**\
-`An outspoken politician, he served four terms on the City Council and one in the California State Senate. And yes, that was him in the helicopter with Donald Trump.`\
-https://nytimes.com/2025/05/13/us/politics/nate-holden-dead.html
-
-**Making Dishwashers Great Again?**\
-`The Trump administration has moved to roll back efficiency and water standards for appliances, fueled by the president’s fixation on low-flow showers and toilets.`\
-https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html
 
