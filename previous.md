@@ -1,3 +1,7 @@
+**A witness to violence and voyeuristic sex will retake the stand.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/a-witness-to-violence-and-voyeuristic-sex-will-retake-the-stand
+
 **U.S. Inflation Stable Ahead of Expected Jump From Tariffs**\
 `Economists and policymakers are bracing for inflation to re-accelerate as companies adapt to President Trump’s trade war.`\
 https://nytimes.com/2025/05/13/business/inflation-prices-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350425/2025/05/13/rangers-free-agent-targets/
 **Who would be the best potential fit on top-line wing? Red Wings mailbag, part 1**\
 `What's the relative value of star power over depth? And who around the league would provide a good blueprint for Detroit's roster holes?`\
 https://nytimes.com/athletic/6347999/2025/05/13/red-wings-dylan-larkin-lucas-raymond-wing/
-
-**What we learned about Blackhawks prospects during the Rockford IceHogs' playoffs**\
-`The IceHogs pushed the Milwaukee Admirals to five games in a best-of-five AHL conference semifinal series. `\
-https://nytimes.com/athletic/6348950/2025/05/13/blackhawks-prospects-icehogs-playoffs-levshunov-korchinski-savoie/
 

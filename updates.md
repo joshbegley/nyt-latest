@@ -1,3 +1,7 @@
+**A witness to violence and voyeuristic sex will retake the stand.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/13/arts/sean-combs-diddy-trial-cassie/a-witness-to-violence-and-voyeuristic-sex-will-retake-the-stand
+
 **U.S. Inflation Stable Ahead of Expected Jump From Tariffs**\
 `Economists and policymakers are bracing for inflation to re-accelerate as companies adapt to President Trump’s trade war.`\
 https://nytimes.com/2025/05/13/business/inflation-prices-tariffs.html
