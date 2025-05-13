@@ -1,3 +1,7 @@
+**Making Dishwashers Great Again?**\
+`The Trump administration has moved to roll back efficiency and water standards for appliances, fueled by the president’s fixation on low-flow showers and toilets.`\
+https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html
+
 **Don’t Know How to Face Your Mom? Talk to Your Friend’s Mom Instead.**\
 `In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free in “M/other.”`\
 https://nytimes.com/2025/05/13/opinion/child-free-conversation-mothers.html

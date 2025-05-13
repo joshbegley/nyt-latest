@@ -1,3 +1,7 @@
+**Making Dishwashers Great Again?**\
+`The Trump administration has moved to roll back efficiency and water standards for appliances, fueled by the president’s fixation on low-flow showers and toilets.`\
+https://nytimes.com/2025/05/13/climate/trump-appliances-energy-efficiency.html
+
 **Don’t Know How to Face Your Mom? Talk to Your Friend’s Mom Instead.**\
 `In a unique twist, three women swap mothers for a candid conversation about their choice to be child-free in “M/other.”`\
 https://nytimes.com/2025/05/13/opinion/child-free-conversation-mothers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353262/2025/05/13/nba-daily-dallas-mavericks-draft
 **Money Talks (and Listens) at Saudi Investment Forum Attended by Trump**\
 `The wealthy and the powerful gathered in Saudi Arabia with the goal of becoming even more so. “They’re going to walk away with a lot of checks,” President Trump said.`\
 https://nytimes.com/2025/05/13/world/middleeast/trump-saudi-economic-forum.html
-
-**NBA title odds: Knicks new favorites to win East after going up 3-1 on Celtics**\
-`The New York Knicks are favored to make it to the NBA Finals for the first time since 1999. Oklahoma City remains the overall favorite.`\
-https://nytimes.com/athletic/6353208/2025/05/13/nba-championship-odds-knicks-favorites-thunder/
 
