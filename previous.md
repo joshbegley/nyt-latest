@@ -1,3 +1,11 @@
+**Cassie Recounts ‘Violent Arguments’ and ‘Physical Abuse’ by Sean Combs**\
+`The singer began testifying for a federal jury in the sex-trafficking and racketeering case against Mr. Combs.`\
+https://nytimes.com/2025/05/13/arts/music/cassie-testimony-sean-combs-abuse-sex-trafficking.html
+
+**Catherine, Princess of Wales, Steps Back Into the Fashion Spotlight**\
+`The British royal made a surprise appearance on Tuesday to present a fashion award named for Queen Elizabeth II.`\
+https://nytimes.com/2025/05/13/style/kate-middleton-queen-elizabeth-ii-award-design.html
+
 **Interior Department Weighs Less Conservation, More Extraction**\
 `A leaked version of the department’s five-year strategic planning document favors privatization and economic returns from the nation’s public lands.`\
 https://nytimes.com/2025/05/13/science/interior-department-public-land.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/world/americas/honda-trump-tariffs-us-canada.html
 **ESPN unveils direct-to-consumer streaming service with a familiar name: ESPN**\
 `In what Disney CEO Bob Iger has hailed as potentially the biggest move in nearly four decades for ESPN, the network has officially announced that all of its programming will be offered to consumers for $29.`\
 https://nytimes.com/athletic/6350815/2025/05/13/espn-streaming-service-cable/
-
-**A Damning Portrait of an Enfeebled Biden Protected by His Inner Circle**\
-`“Original Sin,” by Jake Tapper and Alex Thompson, depicts an aging president whose family and aides enabled his quixotic campaign for a second term.`\
-https://nytimes.com/2025/05/13/books/review/originial-sin-jake-tapper-alex-thompson.html
-
-**White South Africans Granted Refugee Status by Trump: What We Know**\
-`The first group of Afrikaners have arrived in the United States, claiming they were victims of persecution or had reason to fear persecution in their home country.`\
-https://nytimes.com/article/afrikaner-refugees-trump-south-africa.html
 

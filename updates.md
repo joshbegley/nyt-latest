@@ -1,3 +1,11 @@
+**Cassie Recounts ‘Violent Arguments’ and ‘Physical Abuse’ by Sean Combs**\
+`The singer began testifying for a federal jury in the sex-trafficking and racketeering case against Mr. Combs.`\
+https://nytimes.com/2025/05/13/arts/music/cassie-testimony-sean-combs-abuse-sex-trafficking.html
+
+**Catherine, Princess of Wales, Steps Back Into the Fashion Spotlight**\
+`The British royal made a surprise appearance on Tuesday to present a fashion award named for Queen Elizabeth II.`\
+https://nytimes.com/2025/05/13/style/kate-middleton-queen-elizabeth-ii-award-design.html
+
 **Interior Department Weighs Less Conservation, More Extraction**\
 `A leaked version of the department’s five-year strategic planning document favors privatization and economic returns from the nation’s public lands.`\
 https://nytimes.com/2025/05/13/science/interior-department-public-land.html
