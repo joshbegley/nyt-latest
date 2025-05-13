@@ -1,3 +1,7 @@
+**An Atmospheric River Brings Flooding Risks to the Mid-Atlantic**\
+`Forecasters warned of flash flooding through midweek, including areas of North Carolina still battered by Hurricane Helene.`\
+https://nytimes.com/2025/05/13/weather/atmospheric-river-carolinas-helene.html
+
 **A Trump visit is the right moment for a U.S.-Saudi business frenzy.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-the-right-moment-for-a-us-saudi-business-frenzy
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/world/europe/marks-spencer-cyber-attack.html
 **What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery?**\
 `Utah can select a very good player at No. 5 in the upcoming draft. But that wasn't the goal of suffering through a miserable 2024-25 season.`\
 https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
-
-**Ex-Man United sporting director Ashworth set for FA return**\
-`The 54-year-old left his role at Old Trafford on December 8, just five months after being hired.`\
-https://nytimes.com/athletic/6230130/2025/05/13/manchester-united-ashworth-fa/
 

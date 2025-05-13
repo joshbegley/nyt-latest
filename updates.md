@@ -1,3 +1,7 @@
+**An Atmospheric River Brings Flooding Risks to the Mid-Atlantic**\
+`Forecasters warned of flash flooding through midweek, including areas of North Carolina still battered by Hurricane Helene.`\
+https://nytimes.com/2025/05/13/weather/atmospheric-river-carolinas-helene.html
+
 **A Trump visit is the right moment for a U.S.-Saudi business frenzy.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/05/13/us/trump-news-saudi-arabia/a-trump-visit-is-the-right-moment-for-a-us-saudi-business-frenzy
