@@ -1,3 +1,15 @@
+**Brighton in talks with Milner over extending stay at club**\
+`Discussions are ongoing with Milner and his representatives about his future plans.`\
+https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
+
+**Submit your questions for C. Trent Rosecrans' Reds mailbag**\
+`The Cincinnati Reds have now played over one-fourth of their 162 regular-season games.`\
+https://nytimes.com/athletic/6350422/2025/05/13/submit-your-questions-for-c-trent-rosecrans-reds-mailbag/
+
+**Ward to leave Palace after 13 years**\
+`Ward has made 363 appearances for Palace in all competitions.`\
+https://nytimes.com/athletic/6352796/2025/05/13/crystal-palace-joel-ward-leaves/
+
 **An Atmospheric River Brings Flooding Risks to the Mid-Atlantic**\
 `Forecasters warned of flash flooding through midweek, including areas of North Carolina still battered by Hurricane Helene.`\
 https://nytimes.com/2025/05/13/weather/atmospheric-river-carolinas-helene.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/13/style/essentially-ellington-wynton-marsalis-jazz.
 **Blackburn at risk of Women's Championship relegation**\
 `Blackburn have been given until Monday, May 18 to decide whether they want to remain in the Women's Championship.`\
 https://nytimes.com/athletic/6352652/2025/05/13/blackburn-rovers-women-relegation/
-
-**Kremlin Stays Mum on Whether Putin Will Meet Zelensky**\
-`President Trump raised the prospect of attending negotiations himself, after Ukraine’s leader said he would go in person and challenged Russia’s to do the same.`\
-https://nytimes.com/2025/05/13/world/europe/russia-ukraine-putin-zelensky.html
-
-**U.K. Retail Giant M&S Says Customer Data Was Compromised in Cyberattack**\
-`The company suspended online orders for weeks after the breach, which may have exposed contact details and birth dates.`\
-https://nytimes.com/2025/05/13/world/europe/marks-spencer-cyber-attack.html
-
-**What's next for Jazz after suffering worst-case scenario in NBA Draft Lottery?**\
-`Utah can select a very good player at No. 5 in the upcoming draft. But that wasn't the goal of suffering through a miserable 2024-25 season.`\
-https://nytimes.com/athletic/6351865/2025/05/13/utah-jazz-nba-draft-lottery/
 

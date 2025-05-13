@@ -1,3 +1,15 @@
+**Brighton in talks with Milner over extending stay at club**\
+`Discussions are ongoing with Milner and his representatives about his future plans.`\
+https://nytimes.com/athletic/6352785/2025/05/13/james-milner-brighton-future/
+
+**Submit your questions for C. Trent Rosecrans' Reds mailbag**\
+`The Cincinnati Reds have now played over one-fourth of their 162 regular-season games.`\
+https://nytimes.com/athletic/6350422/2025/05/13/submit-your-questions-for-c-trent-rosecrans-reds-mailbag/
+
+**Ward to leave Palace after 13 years**\
+`Ward has made 363 appearances for Palace in all competitions.`\
+https://nytimes.com/athletic/6352796/2025/05/13/crystal-palace-joel-ward-leaves/
+
 **An Atmospheric River Brings Flooding Risks to the Mid-Atlantic**\
 `Forecasters warned of flash flooding through midweek, including areas of North Carolina still battered by Hurricane Helene.`\
 https://nytimes.com/2025/05/13/weather/atmospheric-river-carolinas-helene.html
