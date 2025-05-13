@@ -1,3 +1,19 @@
+**Paul Allen's estate announces plan to sell Portland Trail Blazers**\
+`NBA team has been run by Paul Allen's sister Jody since he died in 2018.`\
+https://nytimes.com/athletic/6353447/2025/05/13/nba-trail-blazers-for-sale-paul-allen-estate/
+
+**George Clooney and Denzel Washington Power Broadway to Prepandemic Heights**\
+`Elphaba helped too. But the good news comes with caveats.`\
+https://nytimes.com/2025/05/13/theater/broadway-grosses.html
+
+**Your Next Airbnb May Include Room Service and Tamale-Making**\
+`The company is introducing hotel-like services, along with a new selection of local tours and classes.`\
+https://nytimes.com/2025/05/13/travel/airbnb-experiences-hotel-services.html
+
+**Bengals' Hendrickson talks contract dispute, won't play on his current deal**\
+`Trey Hendrickson unloaded about an offseason of “disappointment” and feeling like things got “personal” between him and the Bengals.`\
+https://nytimes.com/athletic/6353379/2025/05/13/trey-hendrickson-bengals-contract-negotiation/
+
 **Millions Would Lose Health Coverage Under G.O.P. Bill. But Not as Many as Democrats Say.**\
 `A widely circulated talking point about Medicaid cuts inflates the legislation’s effects by about five million people.`\
 https://nytimes.com/2025/05/13/upshot/medicaid-cuts-democrats-republicans.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/13/world/europe/peter-sullivan-murder-appeal-free-uk
 **Trump Administration Cuts Additional $450 Million in Grants to Harvard**\
 `The latest broadside from the federal government comes as Harvard faces multiple investigations from across the Trump administration.`\
 https://nytimes.com/2025/05/13/us/politics/trump-harvard-grants-450-million.html
-
-**China Truce Eases Tariffs but Does Little to Resolve Future Uncertainty**\
-`A 90-day pause on punishing tariffs could restart trade between the world’s largest economies. But it is not enough to resolve uncertainty about the economy.`\
-https://nytimes.com/2025/05/13/business/trump-china-tariff-deal-uncertainty.html
-
-**LSU-Clemson to kick off ABC's prime-time Saturday college football schedule**\
-`The game will feature two of the nation’s top returning quarterbacks in LSU’s Garrett Nussmeier and Clemson’s Cade Klubnik.`\
-https://nytimes.com/athletic/6353001/2025/05/13/lsu-clemson-game-abc-time-date/
-
-**After Novak Djokovic and Andy Murray end their partnership, what's next?**\
-`The novelty and almost unprecedented nature of having two such recent former adversaries teaming up was always going to be a major sideshow`\
-https://nytimes.com/athletic/6352913/2025/05/13/tennis-djokovic-murray-partnership-rivals-future/
-
-**Robert Benton, Influential Director and Screenwriter, Dies at 92**\
-`After collaborating on the script for “Bonnie and Clyde,” he went on to write and direct “Kramer vs. Kramer” and “Places in the Heart.”`\
-https://nytimes.com/2025/05/13/movies/robert-benton-dead.html
 
