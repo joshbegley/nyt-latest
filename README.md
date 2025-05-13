@@ -1,3 +1,7 @@
+**Trump Administration Cuts Additional $450 Million in Grants to Harvard**\
+`The latest broadside from the federal government comes as Harvard faces multiple investigations from across the Trump administration.`\
+https://nytimes.com/2025/05/13/us/politics/trump-harvard-grants-450-million.html
+
 **China Truce Eases Tariffs but Does Little to Resolve Future Uncertainty**\
 `A 90-day pause on punishing tariffs could restart trade between the world’s largest economies. But it is not enough to resolve uncertainty about the economy.`\
 https://nytimes.com/2025/05/13/business/trump-china-tariff-deal-uncertainty.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353235/2025/05/13/nfl-diversity-program-coach-cand
 **Horses for courses: Which players are best suited to win at Quail Hollow?**\
 `Jason Sobel looks at the PGA Championship field for the best fits in terms of value, both for potential winners and finishing positions.`\
 https://nytimes.com/athletic/6351123/2025/05/13/2025-pga-championship-picks-odds-mcilroy-golf/
-
-**In Private, Some Israeli Officers Admit That Gaza Is on the Brink of Starvation**\
-`Israel’s government has publicly dismissed warnings of extreme food shortages after it blocked aid deliveries, but an internal analysis concluded that a crisis looms if food supplies are not restored.`\
-https://nytimes.com/2025/05/13/world/middleeast/gaza-famine-starvation-israel.html
 
