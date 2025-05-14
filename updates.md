@@ -1,3 +1,7 @@
+**Why Evan Bouchard's next contract feels terrifying**\
+`Bouchard is a terrifying player in more ways than one, and he's about to get paid a terrifying number.`\
+https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoffs-contract/
+
 **Why Evan Bouchard's next contract could be terrifying**\
 `Bouchard is a terrifying player in more ways than one, and he's about to get paid a terrifying number.`\
 https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoffs-contract/
