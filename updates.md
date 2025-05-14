@@ -1,3 +1,19 @@
+**Cassie to Testify About Hotel Clash With Sean Combs During Sex-Trafficking Trial**\
+`A surveillance video of the 2016 altercation in a Los Angeles hotel shows Mr. Combs striking and dragging Casandra Ventura, the on-and-off girlfriend signed to his record label.`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie
+
+**Here’s the latest.**\
+`By Julia Jacobs and Ben Sisario`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/heres-the-latest
+
+**How Awoniyi defied the odds and the doubts to make it as a Premier League striker**\
+`The Nottingham Forest striker is in an induced coma following an incident in Sunday's game against Leicester City`\
+https://nytimes.com/athletic/6355242/2025/05/14/taiwo-awoniyi-nottingham-forest-coma/
+
+**Pacers are making people believe in them as they had back to Eastern Conference finals**\
+`Indiana closed out a dominant series against the top-seeded Cavaliers in Game 5. "It’s a special feeling," Tyrese Haliburton said.`\
+https://nytimes.com/athletic/6355043/2025/05/14/pacers-playoffs-game-5-cavs-haliburton/
+
 **Cardinals rookie Will Johnson's miserable draft night is now fuel as NFL career starts**\
 `Those who know Johnson best insist that his slip into the second round will drive him, not consume him. But that doesn't mean he'll forget.`\
 https://nytimes.com/athletic/6354396/2025/05/14/will-johnson-arizona-cardinals-rookie-nfl-draft-slide/
