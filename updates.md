@@ -1,3 +1,7 @@
+**Militant’s Killing Would Be Blow to Hamas, but Long-Term Impact is Unclear**\
+`Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, his death would deprive Hamas of a top commander but the strategic consequences are less certain.`\
+https://nytimes.com/2025/05/14/world/middleeast/militants-killing-would-be-blow-to-hamas-but-long-term-impact-is-unclear.html
+
 **Detroit Lions 2025 schedule: Matchups against NFC East, AFC North highlight tough slate**\
 `The chase for a Super Bowl continues as the Lions' 2025 schedule gets released Wednesday.`\
 https://nytimes.com/athletic/6344122/2025/05/14/detroit-lions-schedule-2025/

@@ -1,3 +1,11 @@
+**A Loyal Ally Joins Trump’s Gulf Tour: The Head of Global Soccer**\
+`The FIFA president, Gianni Infantino, is expected to preside over a ceremony in which the emir of Qatar will hand over World Cup hosting duties to Mr. Trump. The U.S. is co-hosting the 2026 tournament.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-fifa-world-cup.html
+
+**The Pulse: The Pete Rose decision, explained**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6354405/2025/05/14/pete-rose-reinstatement-the-pulse/
+
 **Militant’s Killing Would Be Blow to Hamas, but Long-Term Impact is Unclear**\
 `Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, his death would deprive Hamas of a top commander but the strategic consequences are less certain.`\
 https://nytimes.com/2025/05/14/world/middleeast/militants-killing-would-be-blow-to-hamas-but-long-term-impact-is-unclear.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6351133/2025/05/14/chicago-bears-schedule-2025/
 **Mikko Rantanen's 'smile is coming back': Family and friends on playoff dominance and new home with Stars**\
 `Rantanen is putting up historic numbers in the playoffs for the Stars, but to those close to him, seeing the joy is more important.`\
 https://nytimes.com/athletic/6353406/2025/05/14/mikko-rantanen-stars-nhl-playoffs-trades/
-
-**Do the Jayson Tatum injury and draft lottery put Eastern Conference at a new low?**\
-`Recent days have emphasized how wobbly things are in the NBA's Eastern Conference. But with big-picture thoughts comes potential change.`\
-https://nytimes.com/athletic/6353961/2025/05/14/jayson-tatum-injury-draft-lottery-eastern-conference/
-
-**Mandel's mailbag: Will Belichick's private life fade from the spotlight once UNC-TCU kicks off?**\
-`Winning cures everything. One can only imagine the narrative for Belichick if UNC starts 2-4.`\
-https://nytimes.com/athletic/6353619/2025/05/14/mandel-mailbag-bill-belichick-college-sports-presidential-commission/
 
