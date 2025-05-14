@@ -1,3 +1,19 @@
+**Should Pete Rose get into the Hall of Fame? We asked 12 current members**\
+`What do baseball’s immortals think about the new guy on the waiting list? Here’s what they told us.`\
+https://nytimes.com/athletic/6356249/2025/05/14/pete-rose-hall-of-famers-reactions/
+
+**A Members Club in Montauk? Locals Say the Village Is Exclusive Enough.**\
+`A plan to open a restaurant that will offer what the owners are calling a “status guest component” in the Long Island beach town has been met with skepticism.`\
+https://nytimes.com/2025/05/14/realestate/montauk-members-club-mary-lous.html
+
+**Watch: What do the Cavs need to bounce back next season?**\
+`NBA Daily discusses whether Cleveland should run it back with the same core next season after being eliminated from the playoffs.`\
+https://nytimes.com/athletic/6355687/2025/05/14/nba-daily-cleveland-cavaliers-2025-26-season/
+
+**ACC commissioner Jim Phillips open to supporting CFP straight seeding model**\
+`Currently, the top four seeds are reserved for the four highest ranked conference champions selected to the field.`\
+https://nytimes.com/athletic/6356228/2025/05/14/college-football-playoff-seeding-jim-phillips/
+
 **Nahid Rachlin, Novelist Who Explored the Iranian Psyche, Dies at 85**\
 `One of the first Iranian novelists to write in English, she examined the clash between East and West. Her debut novel, “Foreigner,” provided insight into pre-revolutionary Iran.`\
 https://nytimes.com/2025/05/14/books/nahid-rachlin-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/gabbard-president-daily-brief.html
 **Canucks name Adam Foote as next head coach**\
 `Foote had been an assistant coach on Rick Tocchet's staff in Vancouver since January 2023.`\
 https://nytimes.com/athletic/6356236/2025/05/14/canucks-adam-foote-coach/
-
-**At Supreme Court, a Once-Fringe Birthright Citizenship Theory Takes the Spotlight**\
-`Before the Trump presidency, there was broad consensus that the 14th Amendment established birthright citizenship for children born in the United States.`\
-https://nytimes.com/2025/05/14/us/politics/supreme-court-birthright-citizenship.html
-
-**What to Know About the Newark Airport Problems**\
-`Many flights have been delayed at the busy hub because of radar outages, shortages of air traffic controllers and construction on a runway.`\
-https://nytimes.com/2025/05/14/business/newark-airport-staffing-faa.html
-
-**Why Liverpool and Man City target Florian Wirtz is the world's best at finding space between the lines**\
-`Not since the rise of Mesut Ozil has European football witnessed a No 10 so intelligent and selfless with his movement as Leverkusen's Wirtz`\
-https://nytimes.com/athletic/6139642/2025/05/14/wirtz-bayer-leverkusen-liverpool-bayern-man-city-analysis/
-
-**In the Nevada Desert, a Weekend of Fitness, Frost and Firearms**\
-`An interest in alternative sports brought a reporter from Berlin to Reno to witness an unforgettable competition.`\
-https://nytimes.com/2025/05/14/insider/tactical-games-2025.html
 
