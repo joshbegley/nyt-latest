@@ -1,3 +1,23 @@
+**FIFA accused of 'utter negligence' towards migrant workers in Saudi**\
+`The scathing criticism of world football’s governing body is detailed in two new reports on migrant-worker deaths in the Gulf state.`\
+https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migrant-workers/
+
+**Here’s the latest.**\
+`By Qasim Nauman and Vivian Nereim`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
+
+**Trump Administration Live Updates: President to Attend Summit With Arab Leaders**\
+`President Trump has been received lavishly in Saudi Arabia on the first major overseas trip of his second term. Qatar and the United Arab Emirates are his next stops.`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
+
+**Sunderland. Dan Ballard. Bedlam.**\
+`Sunderland have been on an eight-year journey beneath the Premier League - they are just one game away from a return after last-gasp winner`\
+https://nytimes.com/athletic/6354849/2025/05/14/sunderland-dan-ballard-play-off-final/
+
+**Late Night Is Glad President Trump Has Left the Country**\
+`Jordan Klepper suggested that someone lock the doors while President Trump is in the Middle East this week.`\
+https://nytimes.com/2025/05/14/arts/television/late-night-trump-saudi-arabia.html
+
 **Even at partial strength, the Stars look unstoppable. Look out, NHL**\
 `One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
 `\
