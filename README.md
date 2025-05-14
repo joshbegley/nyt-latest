@@ -1,3 +1,19 @@
+**Nora Aunor, Singer-Actress Called ‘the Superstar’ in Philippines, Dies at 71**\
+`And her fans were called Noranians for their devotion to a performer who had enthralled her country — onscreen and on the concert stage — since she was a teenager.`\
+https://nytimes.com/2025/05/14/arts/nora-aunor-dead.html
+
+**Thursday Briefing: Trump Meets Syria’s New Leader**\
+`Plus, the world’s poorest president.`\
+https://nytimes.com/2025/05/14/briefing/trump-syria-gulf-tour-south-africa-cassie-sean-combs.html
+
+**NFL schedule release day is the ultimate example of how the league owns the entire year**\
+`In this week's sports business newsletter: Why the NFL's schedule release day illustrates its own-the-entire-year dominance.`\
+https://nytimes.com/athletic/6356997/2025/05/14/nfl-schedule-release-2025-upfronts-espn-moneycall/
+
+**NWSL to review medical incident protocol after Savy King’s collapse**\
+`King, 20, underwent successful surgery to address a heart abnormality on Tuesday at Cedars-Sinai Medical Center.`\
+https://nytimes.com/athletic/6356756/2025/05/14/nwsl-medical-protocol-angel-city-savy-king-collapse/
+
 **Mariners' Julio Rodríguez robs homer from Trent Grisham**\
 `Grisham hit two home runs over Rodríguez's head on Monday. Seattle's center fielder got his revenge at the beginning of Wednesday's game.`\
 https://nytimes.com/athletic/6356942/2025/05/14/mariners-julio-rodriguez-robs-home-run-trent-grisham-yankees/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6356829/2025/05/14/malik-tillman-sergino-dest-psv-a
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\
 https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
-
-**Kyle Schwarber's on-base streak ends at 47 games, fourth-longest in Phillies history**\
-`It was the longest such streak in MLB since Tommy Pham reached base in 48 straight games from 2018-19.`\
-https://nytimes.com/athletic/6356573/2025/05/14/kyle-schwarber-on-base-streak-ends-phillies/
-
-**Senator Josh Hawley, a Missouri Republican, opposes the House G.O.P. plan for Medicaid cuts.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/senator-josh-hawley-a-missouri-republican-opposes-the-house-gop-plan-for-medicaid-cuts
-
-**Last U.S. Hostage in Gaza Is Reunited With Parents: ‘We Never Lost Hope’**\
-`Edan Alexander was 19 when he left New Jersey to serve in the Israel Defense Forces. He was released by Hamas on Monday.`\
-https://nytimes.com/2025/05/14/nyregion/edan-alexander-new-jersey-hostage-gaza.html
-
-**Real Madrid's Asencio could face criminal proceedings for allegedly sharing sex tape of a minor**\
-`The case relates to an alleged incident at a beach club in the south of the Spanish island in 2023.`\
-https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investigation/
 
