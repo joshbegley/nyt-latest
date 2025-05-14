@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6355089/2025/05/14/cyclist-rohan-dennis-melissa-hos
 `Havertz has not played since his hamstring surgery in February, while Rice and Trossard were doubts after Sunday's trip to Liverpool.`\
 https://nytimes.com/athletic/6355288/2025/05/14/arsenal-havertz-rice-trossard-newcastle/
 
-**Burberry to Cut 1,700 Jobs in Turnaround Push**\
+**Burberry to Cut Nearly 20% of Jobs as Luxury Sales Sag**\
 `The British fashion house, which reported poor annual sales in a precarious time for the global luxury industry, is looking to save 60 million pounds in cost-cutting efforts.`\
 https://nytimes.com/2025/05/14/business/burberry-job-cuts.html
 

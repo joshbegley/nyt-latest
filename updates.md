@@ -1,3 +1,15 @@
+**The Athletic FC: Events that led to Awoniyi's coma, Man City keen on Reijnders**\
+`Today in TAFC: The events that saw Awoniyi placed in an induced coma. Plus: Man City hope to sign Reijnders, new U.S. national team shirts`\
+https://nytimes.com/athletic/6355168/2025/05/14/awoniyi-forest-coma-reijnders-man-city/
+
+**New Lions assistants like what they see from Jameson Williams, Jared Goff and others**\
+`The cohesion of Detroit's new offensive coaches was on display Tuesday, when they talked about the talent with whom they'll work in 2025.`\
+https://nytimes.com/athletic/6354114/2025/05/14/lions-coaches-offense-jameson-williams/
+
+**Australian cyclist Dennis receives suspended sentence over death of Olympian wife Hoskins**\
+`Hoskins, a former world cycling champion, died aged 32 after being hit by a car on December 30, 2023, outside the couple's home in Adelaide.`\
+https://nytimes.com/athletic/6355089/2025/05/14/cyclist-rohan-dennis-melissa-hoskins-sentence/
+
 **Havertz, Rice, Trossard train ahead of Arsenal vs. Newcastle**\
 `Havertz has not played since his hamstring surgery in February, while Rice and Trossard were doubts after Sunday's trip to Liverpool.`\
 https://nytimes.com/athletic/6355288/2025/05/14/arsenal-havertz-rice-trossard-newcastle/
