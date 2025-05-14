@@ -1,3 +1,7 @@
+**Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
+`After a surprisingly drawn-out negotiation with the Canucks, Willander will turn pro next season.`\
+https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
+
 **Strike on Hospital Highlights Israeli Attacks on Gaza Health System**\
 `Aid groups and U.N. investigations have accused Israel of aiming to destroy Gaza’s health infrastructure. Israel says it is forced to strike hospitals it says are used by Hamas for military purposes.`\
 https://nytimes.com/2025/05/14/world/middleeast/israel-medical-facility-strikes-gaza-hamas.html
