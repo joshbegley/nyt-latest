@@ -1,3 +1,15 @@
+**NASA’s Perseverance Mars Rover Spotted a Northern Lights-Like Green Glow**\
+`A serendipitous solar outburst let scientists point the robot’s cameras toward the Red Planet’s sky to spot a feature shared with our Blue Marble.`\
+https://nytimes.com/2025/05/14/science/mars-aurora-northern-lights.html
+
+**Is Barbie’s Empowerment Tied to the Angle of Her Feet?**\
+`Researchers in Australia found that the doll’s feet have, over time, gone from arched to flat — a shift that correlates with each Barbie’s designated career or hobby.`\
+https://nytimes.com/2025/05/14/style/barbie-high-heels-feet-study.html
+
+**Ravens, Derrick Henry agree to 2-year, $30 million contract extension**\
+`Before the deal, Henry was the 13th highest-paid running back in the NFL despite perennially being one of the league’s top performers.`\
+https://nytimes.com/athletic/6355897/2025/05/14/ravens-derrick-henry-two-year-contract-extension/
+
 **Ravens, Derrick Henry agree to two-year, $30 million contract extension**\
 `Before the deal, Henry was the 13th highest-paid running back in the NFL despite perennially being one of the league’s top performers.`\
 https://nytimes.com/athletic/6355897/2025/05/14/ravens-derrick-henry-two-year-contract-extension/
