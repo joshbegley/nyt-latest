@@ -1,3 +1,19 @@
+**At Supreme Court, a Once-Fringe Birthright Citizenship Theory Takes the Spotlight**\
+`Before the Trump presidency, there was broad consensus that the 14th Amendment established birthright citizenship for children born in the United States.`\
+https://nytimes.com/2025/05/14/us/politics/supreme-court-birthright-citizenship.html
+
+**What to Know About the Newark Airport Problems**\
+`Many flights have been delayed at the busy hub because of radar outages, shortages of air traffic controllers and construction on a runway.`\
+https://nytimes.com/2025/05/14/business/newark-airport-staffing-faa.html
+
+**Why Liverpool and Man City target Florian Wirtz is the world's best at finding space between the lines**\
+`Not since the rise of Mesut Ozil has European football witnessed a No 10 so intelligent and selfless with his movement as Leverkusen's Wirtz`\
+https://nytimes.com/athletic/6139642/2025/05/14/wirtz-bayer-leverkusen-liverpool-bayern-man-city-analysis/
+
+**In the Nevada Desert, a Weekend of Fitness, Frost and Firearms**\
+`An interest in alternative sports brought a reporter from Berlin to Reno to witness an unforgettable competition.`\
+https://nytimes.com/2025/05/14/insider/tactical-games-2025.html
+
 **‘Chromebook Challenge’ Brings Suspensions and Criminal Charges Across U.S.**\
 `The social media trend involves students short-circuiting their school-issued laptops.`\
 https://nytimes.com/2025/05/14/us/tiktok-trend-school-laptops-fire.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6355671/2025/05/14/jayson-tatum-celtics-injury-nba-
 **Amorim 'far from quitting' Man United despite disappointing league form**\
 `United currently sit 16th, with just 39 points, and are guaranteed to record their lowest finish of the Premier League era.`\
 https://nytimes.com/athletic/6356205/2025/05/14/man-united-amorim-future-quit/
-
-**Why Tot Celebrity Ms. Rachel Waded Into the Gaza Debate**\
-`Facing criticism, Rachel Accurso defends making the plight of children in Gaza a primary focus on her social media feeds.`\
-https://nytimes.com/2025/05/14/arts/television/ms-rachel-gaza-israel.html
-
-**Liverpool contact Wirtz representatives to express interest in Leverkusen attacker**\
-`The 22-year-old Germany attacker is one of the most sought-after talents in football — with Bayern Munich and Manchester City also keen.`\
-https://nytimes.com/athletic/6334139/2025/05/14/liverpool-transfer-florian-wirtz/
-
-**Amorim unsure if Man United trio Yoro, De Ligt, and Heaven will be fit for final**\
-`The United manager said that it is unlikely that the defensive trio will be fit for his side’s Premier League game against Chelsea on Friday`\
-https://nytimes.com/athletic/6356137/2025/05/14/man-united-team-news-yoro-de-ligt-heaven/
-
-**Judge Orders Georgetown Academic Released From Immigration Detention**\
-`Badar Khan Suri, an Indian citizen teaching on an academic visa, has been held by the government, which has claimed he violated the terms of his academic visa.`\
-https://nytimes.com/2025/05/14/us/politics/georgetown-academic-immigration-detention.html
 
