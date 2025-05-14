@@ -1,3 +1,11 @@
+**Ranking the 16 possible Stanley Cup Final matchups, based purely on narratives**\
+`With eight teams eliminated, let's rank the remaining potential matchups — from worst to best — based purely on narratives and vibes.`\
+https://nytimes.com/athletic/6351346/2025/05/14/nhl-playoffs-stanley-cup-final-matchups/
+
+**India and Pakistan Swap Detained Soldiers as Cease-Fire Holds**\
+`India exchanged a Pakistani paramilitary fighter for a border security guard that Pakistan had held for weeks. Each officer had been detained before the countries’ military skirmish started.`\
+https://nytimes.com/2025/05/14/world/asia/india-pakistan-soldier-exchange.html
+
 **Cubs prospect Moisés Ballesteros went from playing MLB The Show to being in The Show **\
 `Ballesteros went 0-for-4 in his debut, but there's always tomorrow. "The nerves got the better of me today," he said through an interpreter.`\
 https://nytimes.com/athletic/6354904/2025/05/14/cubs-prospect-moises-ballesteros/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6354756/2025/05/14/jordan-spieth-career-grand-slam-
 **‘Bruce, you got me’: Why Bret Boone signed up to help fix the Rangers**\
 `Boone only took about five minutes to accept Bruce Bochy's offer to become a hitting coach for Texas: "This is what I’m supposed to do.”`\
 https://nytimes.com/athletic/6354490/2025/05/14/rangers-bret-boone-hitting-coach-bruce-bochy/
-
-**Ravens 2025 schedule release: Home, road opponents and more on season ahead**\
-`Breaking down Baltimore's 2025 schedule with analysis and predictions. `\
-https://nytimes.com/athletic/6350724/2025/05/14/baltimore-ravens-schedule-2025/
-
-**WNBA predictions: Who will win the 2025 championship? Who will win MVP?**\
-`Did any of our experts pick Caitlin Clark to win MVP? Will the Liberty repeat? `\
-https://nytimes.com/athletic/6354568/2025/05/14/wnba-predictions-championship-mvp/
 

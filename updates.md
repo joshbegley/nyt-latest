@@ -1,3 +1,8 @@
+**LeBrun: Leafs finding ‘balance’ between staying disciplined and physical against Panthers**\
+`Toronto is teetering on the delicate line between wanting to show that it won't back down and taking things too far against Florida.
+`\
+https://nytimes.com/athletic/6354017/2025/05/14/maple-leafs-panthers-nhl-playoffs-lebrun/
+
 **For the first time in decades, the leaders of the U.S. and Syria meet.**\
 `By Ismaeel Naar and Enjoli Liston`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/for-the-first-time-in-decades-the-leaders-of-the-us-and-syria-meet
