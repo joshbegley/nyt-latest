@@ -1,3 +1,15 @@
+**Hard-throwing Angels reliever Ben Joyce to miss season after shoulder surgery**\
+`This injury, and the mounting health concerns, have caused Joyce to rethink his flame-throwing approach.`\
+https://nytimes.com/athletic/6357188/2025/05/14/angels-ben-joyce-shoulder-surgery/
+
+**Anatomy of a $70 Million Auction Flop**\
+`Why did the star lot of the spring season, a bronze head by the master sculptor Alberto Giacometti, fail to sell at Sotheby’s on Tuesday?`\
+https://nytimes.com/2025/05/14/arts/design/sothebys-flop-giacometti-sculptor.html
+
+**Nick Saban: 'I don't think we really need a commission' on college sports**\
+`Nick Saban said of an idea for a group he could potentially lead: “I don’t think we really need a commission.”`\
+https://nytimes.com/athletic/6357016/2025/05/14/nick-saban-president-trump-commission/
+
 **Nick Saban downplays Trump’s presidential commission**\
 `Nick Saban said of an idea for a group he could potentially lead: “I don’t think we really need a commission.”`\
 https://nytimes.com/athletic/6357016/2025/05/14/nick-saban-president-trump-commission/
