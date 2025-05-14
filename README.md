@@ -1,3 +1,11 @@
+**Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
+`By Ben Sisario, Joe Coscarelli and Julia Jacobs`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/casandra-ventura-ends-an-emotional-day-of-testimony-with-dramatic-revelations
+
+**World Economic Forum Investigating Allegations Against Its Founder**\
+`The board of the organization behind the annual Davos conference received a letter accusing Klaus Schwab, its former chair, of misusing funds and making inappropriate comments.`\
+https://nytimes.com/2025/05/14/business/world-economic-forum-davos-klaus-schwab.html
+
 **Teammate describes sex acts in Hockey Canada sexual assault trial**\
 `Complainant in sexual assault trial concludes her ninth day in the witness box with re-examination of her previous testimony.`\
 https://nytimes.com/athletic/6356075/2025/05/14/hockey-canada-sexual-assault-trial-testimony-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/world/middleeast/trump-middle-east-nation-buildin
 **Trump Met With Syria’s President**\
 `Also, House Republicans planned Medicaid cuts`\
 https://nytimes.com/2025/05/14/briefing/trump-syria-medicaid.html
-
-**Watchdog Effort to Obtain DOGE Records Can Proceed, Appeals Court Rules**\
-`The decision requires Elon Musk’s team to resume efforts to share information about its structure and day-to-day operations requested under the Freedom of Information Act.`\
-https://nytimes.com/2025/05/14/us/politics/doge-watchdog-case-appeals-ruling.html
-
-**So You’re an Artist? How Many Followers Do You Have?**\
-`A growing genre of work is defined not by its content but by its audience on social media.`\
-https://nytimes.com/2025/05/14/t-magazine/art-instagram-tiktok-social-media.html
 
