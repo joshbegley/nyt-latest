@@ -1,3 +1,11 @@
+**'He's my brother': Aaron Judge, Yankees visit Oswaldo Cabrera at hospital after gruesome injury**\
+`Cabrera, known throughout the clubhouse for his infectious smile, beamed at the sight of his teammates.`\
+https://nytimes.com/athletic/6354422/2025/05/13/oswaldo-cabrera-injury-yankees-aaron-judge/
+
+**A Bearded Buttigieg Drops Into Iowa for a Pitch to Veterans**\
+`With Democrats sizing up their 2028 plans, Pete Buttigieg spoke at a town hall in Cedar Rapids and criticized the Trump administration: “The American people bow to no king.”`\
+https://nytimes.com/2025/05/13/us/politics/pete-buttigieg-iowa-democrats.html
+
 **Dodgers' Roki Sasaki lands on IL with shoulder impingement**\
 `LOS ANGELES — The mystery surrounding Los Angeles Dodgers rookie Roki Sasaki’s gradual dip in fastball velocity deepened Tuesday afternoon as the Dodgers placed the 23-year-old Japanese right-hander on the injured list.`\
 https://nytimes.com/athletic/6354397/2025/05/13/roki-sasaki-injured-sources/

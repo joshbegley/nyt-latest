@@ -1,3 +1,11 @@
+**'He's my brother': Aaron Judge, Yankees visit Oswaldo Cabrera at hospital after gruesome injury**\
+`Cabrera, known throughout the clubhouse for his infectious smile, beamed at the sight of his teammates.`\
+https://nytimes.com/athletic/6354422/2025/05/13/oswaldo-cabrera-injury-yankees-aaron-judge/
+
+**A Bearded Buttigieg Drops Into Iowa for a Pitch to Veterans**\
+`With Democrats sizing up their 2028 plans, Pete Buttigieg spoke at a town hall in Cedar Rapids and criticized the Trump administration: “The American people bow to no king.”`\
+https://nytimes.com/2025/05/13/us/politics/pete-buttigieg-iowa-democrats.html
+
 **Christopher Bond, Former Missouri Governor and U.S. Senator, Dies at 86**\
 `A Republican known as Kit, he was the state’s youngest governor. When he retired from Congress after four terms, he said he didn’t want to be the state’s oldest senator.`\
 https://nytimes.com/2025/05/13/us/politics/christopher-bond-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
 **Hunter Dekkers, banned by NCAA for sports betting, signed by Saints**\
 `Dekkers pled guilty to underage gambling in 2023 and enrolled at Iowa Western Community College for the 2024 season. `\
 https://nytimes.com/athletic/6302384/2025/05/13/hunter-dekkers-gambling-signed-saints/
-
-**Why Did Eric Adams Have So Many Cellphones?**\
-`Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
-https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
-
-**New York’s Deepest Pockets Turn Out to Fight Poverty**\
-`The annual Robin Hood gala drew sports luminaries including Roger Goodell, Serena Williams and Eli Manning.`\
-https://nytimes.com/2025/05/13/style/robin-hood-gala-nyc.html
 
