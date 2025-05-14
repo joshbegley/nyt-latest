@@ -1,3 +1,7 @@
+**An Effort to Kill Off Lawsuits Against Oil Giants Is Gaining Steam**\
+`The Trump administration has declared litigation to hold oil companies responsible for climate change a threat to the American economy and has taken aggressive steps to fight it.`\
+https://nytimes.com/2025/05/14/climate/state-climate-lawsuits.html
+
 **NASA’s Perseverance Mars Rover Spotted a Northern Lights-Like Green Glow**\
 `A serendipitous solar outburst let scientists point the robot’s cameras toward the Red Planet’s sky to spot a feature shared with our Blue Marble.`\
 https://nytimes.com/2025/05/14/science/mars-aurora-northern-lights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/trump-tax-cuts-temporary.html
 **Should Pete Rose get into the Hall of Fame? We asked 12 current members**\
 `What do baseball’s immortals think about the new guy on the waiting list? Here’s what they told us.`\
 https://nytimes.com/athletic/6356249/2025/05/14/pete-rose-hall-of-famers-reactions/
-
-**A Members Club in Montauk? Locals Say the Village Is Exclusive Enough.**\
-`A plan to open a restaurant that will offer what the owners are calling a “status guest component” in the Long Island beach town has been met with skepticism.`\
-https://nytimes.com/2025/05/14/realestate/montauk-members-club-mary-lous.html
 
