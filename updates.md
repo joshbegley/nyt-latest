@@ -1,3 +1,24 @@
+**Nora Aunor, Singer-Actress Called ‘the Superstar’ in Philippines, Dies at 71**\
+`And her fans were called Noranians for their devotion to a performer who had enthralled her country — onscreen and on the concert stage — since she was a teenager.`\
+https://nytimes.com/2025/05/14/arts/nora-aunor-dead.html
+
+**Thursday Briefing: Trump Meets Syria’s New Leader**\
+`Plus, the world’s poorest president.`\
+https://nytimes.com/2025/05/14/briefing/trump-syria-gulf-tour-south-africa-cassie-sean-combs.html
+
+**NFL schedule release day is the ultimate example of how the league owns the entire year**\
+`In this week's sports business newsletter: Why the NFL's schedule release day illustrates its own-the-entire-year dominance.`\
+https://nytimes.com/athletic/6356997/2025/05/14/nfl-schedule-release-2025-upfronts-espn-moneycall/
+
+**NWSL to review medical incident protocol after Savy King’s collapse**\
+`King, 20, underwent successful surgery to address a heart abnormality on Tuesday at Cedars-Sinai Medical Center.`\
+https://nytimes.com/athletic/6356756/2025/05/14/nwsl-medical-protocol-angel-city-savy-king-collapse/
+
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\
