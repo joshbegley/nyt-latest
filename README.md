@@ -1,3 +1,7 @@
+**Judge Orders Georgetown Academic Released From Immigration Detention**\
+`Badar Khan Suri, an Indian citizen teaching on an academic visa, has been held by the government, which has claimed he violated the terms of his academic visa.`\
+https://nytimes.com/2025/05/14/us/politics/georgetown-academic-immigration-detention.html
+
 **It’s Time for a Course on the Constitution**\
 `Readers reflect on the Constitution and the state of American democracy. Also: The Catholic Church sex abuse crisis; Elon Musk’s minions.`\
 https://nytimes.com/2025/05/14/opinion/constitution-democracy-david-souter.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/05/14/us/politics/trump-deals-middle-east-saudi-arabia-
 **Couhig, Trossclair and Redwood Holdings Limited complete Reading takeover**\
 `Redwood’s acquisition of Reading ends Dai Yongge’s controversial eight-year ownership of the club.`\
 https://nytimes.com/athletic/6355976/2025/05/14/reading-takeover-redwood-couhig/
-
-**Mike Schmidt on Pete Rose and the Hall of Fame: 'There will always be a cloud'**\
-`“I think the Pete Rose question is always going to be divided, 50-50,” Schmidt said of his late friend and former teammate's Hall candidacy.`\
-https://nytimes.com/athletic/6355877/2025/05/14/mike-schmidt-pete-rose-hall-of-fame-candidacy/
 
