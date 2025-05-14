@@ -1,3 +1,25 @@
+**Judge Orders Georgetown Academic Released From Immigration Detention**\
+`Badar Khan Suri, an Indian citizen teaching on an academic visa, has been held by the government, which has claimed he violated the terms of his academic visa.`\
+https://nytimes.com/2025/05/14/us/politics/georgetown-academic-immigration-detention.html
+
+**It’s Time for a Course on the Constitution**\
+`Readers reflect on the Constitution and the state of American democracy. Also: The Catholic Church sex abuse crisis; Elon Musk’s minions.`\
+https://nytimes.com/2025/05/14/opinion/constitution-democracy-david-souter.html
+
+**The rare Michael Jordan cards that are rising above the pandemic boom**\
+`Michael Jordan card values are soaring once again, but this time it's not his iconic '86 Fleer card setting the pace`\
+https://nytimes.com/athletic/6355755/2025/05/14/michael-jordan-cards-prices/
+
+**Richard L. Garwin, a Creator of the Hydrogen Bomb, Dies at 97**\
+`Many scientists contributed to the final result, but he was the one who, as a young physicist, designed the world’s deadliest weapon. He went on to advise a dozen presidents.`\
+https://nytimes.com/2025/05/14/science/richard-l-garwin-dead.html
+
+**EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
+`Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
+
+`\
+https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-predictions-odds-update/
+
 **EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
 `Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
 
