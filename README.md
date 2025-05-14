@@ -1,3 +1,8 @@
+**Mirtle: Ken Holland is back as an NHL GM with Kings. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **Kyle Schwarber's on-base streak ends at 47 games, fourth-longest in Phillies history**\
 `It was the longest such streak in MLB since Tommy Pham reached base in 48 straight games from 2018-19.`\
 https://nytimes.com/athletic/6356573/2025/05/14/kyle-schwarber-on-base-streak-ends-phillies/
@@ -33,8 +38,4 @@ https://nytimes.com/2025/05/14/movies/mission-impossible-final-reckoning-review-
 **Can Eurovision Avoid Politics in Neutral Switzerland?**\
 `The competition is run by an opaque Swiss organization that wants to sidestep controversies that could spoil the fun.`\
 https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcasting-union.html
-
-**Cooper Flagg shocked by 'crazy draft lottery' as Mavs jump at ' fresh start'**\
-`Flagg will be seen as the franchise's new foundational player, a position held just a few months ago by Luka Dončić.`\
-https://nytimes.com/athletic/6356752/2025/05/14/cooper-flagg-mavericks-draft-lottery/
 

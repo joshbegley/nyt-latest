@@ -1,3 +1,19 @@
+**Kyle Schwarber's on-base streak ends at 47 games, fourth-longest in Phillies history**\
+`It was the longest such streak in MLB since Tommy Pham reached base in 48 straight games from 2018-19.`\
+https://nytimes.com/athletic/6356573/2025/05/14/kyle-schwarber-on-base-streak-ends-phillies/
+
+**Senator Josh Hawley, a Missouri Republican, opposes the House G.O.P. plan for Medicaid cuts.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/senator-josh-hawley-a-missouri-republican-opposes-the-house-gop-plan-for-medicaid-cuts
+
+**Last U.S. Hostage in Gaza Is Reunited With Parents: ‘We Never Lost Hope’**\
+`Edan Alexander was 19 when he left New Jersey to serve in the Israel Defense Forces. He was released by Hamas on Monday.`\
+https://nytimes.com/2025/05/14/nyregion/edan-alexander-new-jersey-hostage-gaza.html
+
+**Real Madrid's Asencio could face criminal proceedings for allegedly sharing sex tape of a minor**\
+`The case relates to an alleged incident at a beach club in the south of the Spanish island in 2023.`\
+https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investigation/
+
 **Rick Tocchet hired as Philadelphia Flyers coach**\
 `Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
 https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
