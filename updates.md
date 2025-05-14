@@ -1,3 +1,7 @@
+**Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
+`The Jets, now facing elimination, have lost 9 consecutive road playoff games.`\
+https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
+
 **Cavaliers' reward for moderate success is a series of difficult offseason choices**\
 `After another second-round exit, Cleveland's future with a suddenly expensive roster is in question.`\
 https://nytimes.com/athletic/6354221/2025/05/13/cleveland-cavaliers-offseason-questions-ty-jerome-deandre-hunter-nba/

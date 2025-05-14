@@ -1,3 +1,7 @@
+**Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
+`The Jets, now facing elimination, have lost 9 consecutive road playoff games.`\
+https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
+
 **Cavaliers' reward for moderate success is a series of difficult offseason choices**\
 `After another second-round exit, Cleveland's future with a suddenly expensive roster is in question.`\
 https://nytimes.com/athletic/6354221/2025/05/13/cleveland-cavaliers-offseason-questions-ty-jerome-deandre-hunter-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354422/2025/05/13/oswaldo-cabrera-injury-yankees-a
 **A Bearded Buttigieg Drops Into Iowa for a Pitch to Veterans**\
 `With Democrats sizing up their 2028 plans, Pete Buttigieg spoke at a town hall in Cedar Rapids and criticized the Trump administration: “The American people bow to no king.”`\
 https://nytimes.com/2025/05/13/us/politics/pete-buttigieg-iowa-democrats.html
-
-**Christopher Bond, Former Missouri Governor and U.S. Senator, Dies at 86**\
-`A Republican known as Kit, he was the state’s youngest governor. When he retired from Congress after four terms, he said he didn’t want to be the state’s oldest senator.`\
-https://nytimes.com/2025/05/13/us/politics/christopher-bond-dead.html
 
