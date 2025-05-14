@@ -1,3 +1,11 @@
+**Dodgers calling up top prospect Dalton Rushing: Where will he play?**\
+`Rushing was The Athletic’s 16th-ranked prospect in its preseason top 100, but his primary position (catcher) is filled by Will Smith.`\
+https://nytimes.com/athletic/6356618/2025/05/14/dodgers-dalton-rushing-austin-barnes-dfa/
+
+**The Boom Years of Global Charity Are Over. What Comes Next?**\
+`We’ve come to see developmental aid as a basic fact of the world. But now the money is drying up.`\
+https://nytimes.com/2025/05/14/opinion/philanthropy-foreign-aid.html
+
 **Dick Vitale says he is again cancer-free: 'I'm on cloud nine!'**\
 `The news is the latest in a winding road of ups and downs for the 85-year-old, who has had various cancer diagnoses in recent years.`\
 https://nytimes.com/athletic/6356176/2025/05/14/dick-vitale-cancer-free-announcement/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/world/trump-administration-deportees.html
 **Tiny Love Stories: ‘Why Don’t You Have a Girlfriend?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/05/14/style/tiny-modern-love-stories-why-dont-you-have-a-girlfriend.html
-
-**AI Skills: The New Workplace Currency **\
-`In today’s economy, AI skills are capital. The leaders who act now will shape the future of work.`\
-https://nytimes.com/paidpost/general-assembly/ai/the-new-workplace-currency.html
-
-**Staple: Who's left in the Islanders' exec search? What's the timeline? What I'm hearing 4.0**\
-`Ken Holland's decision to take the Kings' GM job over anything the Islanders offered him narrows the list of candidates.`\
-https://nytimes.com/athletic/6356292/2025/05/14/islanders-gm-president-search-shanahan/
 

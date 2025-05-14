@@ -1,3 +1,11 @@
+**Dick Vitale says he is again cancer-free: 'I'm on cloud nine!'**\
+`The news is the latest in a winding road of ups and downs for the 85-year-old, who has had various cancer diagnoses in recent years.`\
+https://nytimes.com/athletic/6356176/2025/05/14/dick-vitale-cancer-free-announcement/
+
+**Wisconsin Judge Accused of Obstructing Immigration Agents Seeks Dismissal of Case**\
+`Judge Hannah C. Dugan’s lawyers claimed judicial immunity in a court filing on Wednesday, a day after she was indicted by a federal grand jury.`\
+https://nytimes.com/2025/05/14/us/judge-hannah-dugan-ice-wisconsin.html
+
 **Morris, Alligator of ‘Happy Gilmore’ Fame, Dies at 80 (or More)**\
 `The 640-pound, 11-foot gator memorably played a golf-ball-stealing, hand-chomping terror in the 1996 Adam Sandler film.`\
 https://nytimes.com/2025/05/14/arts/morris-alligator-dead-happy-gilmore.html
