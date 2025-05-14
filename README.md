@@ -1,3 +1,11 @@
+**Havertz, Rice, Trossard train ahead of Arsenal vs. Newcastle**\
+`Havertz has not played since his hamstring surgery in February, while Rice and Trossard were doubts after Sunday's trip to Liverpool.`\
+https://nytimes.com/athletic/6355288/2025/05/14/arsenal-havertz-rice-trossard-newcastle/
+
+**Burberry to Cut 1,700 Jobs in Turnaround Push**\
+`The British fashion house, which reported poor annual sales in a precarious time for the global luxury industry, is looking to save 60 million pounds in cost-cutting efforts.`\
+https://nytimes.com/2025/05/14/business/burberry-job-cuts.html
+
 **Gibbs-White banned from driving after guilty plea to 6 speeding offences**\
 `Gibbs-White has been banned from driving for six months and fined after speeding on six occasions on a major road in Nottinghamshire.`\
 https://nytimes.com/athletic/6355156/2025/05/14/morgan-gibbs-white-driving-ban-speeding/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6349660/2025/05/14/twins-prospects-strong-starts-ca
 **Can Nebraska use Michigan's slight as fuel to snap an unfortunate streak?**\
 `Nebraska has lost an unthinkable 27 consecutive games against opponents ranked in the AP Top 25. Could the streak end vs. Michigan?`\
 https://nytimes.com/athletic/6353921/2025/05/14/nebraska-losing-streak-ranked-teams-michigan/
-
-**Philadelphia Eagles 2025 schedule: Plenty of heavyweight matchups for defending champions**\
-`Championship expectations remain in place for the Eagles, who could have one of the league's toughest 2025 schedules. `\
-https://nytimes.com/athletic/6344157/2025/05/14/philadelphia-eagles-schedule-2025/
-
-**LeBrun: Leafs finding ‘balance’ between staying disciplined and physical against Panthers**\
-`Toronto is teetering on the delicate line between wanting to show that it won't back down and taking things too far against Florida.
-`\
-https://nytimes.com/athletic/6354017/2025/05/14/maple-leafs-panthers-nhl-playoffs-lebrun/
 

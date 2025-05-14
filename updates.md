@@ -1,3 +1,8 @@
+**LeBrun: Leafs finding ‘balance’ between staying disciplined and physical against Panthers**\
+`Toronto is teetering on the delicate line between wanting to show that it won't back down and taking things too far against Florida.
+`\
+https://nytimes.com/athletic/6354017/2025/05/14/maple-leafs-panthers-nhl-playoffs-lebrun/
+
 **Ranking the 16 possible Stanley Cup Final matchups, based purely on narratives**\
 `With eight teams eliminated, let's rank the remaining potential matchups — from worst to best — based purely on narratives and vibes.`\
 https://nytimes.com/athletic/6351346/2025/05/14/nhl-playoffs-stanley-cup-final-matchups/
