@@ -1,3 +1,11 @@
+**Gibbs-White banned from driving after guilty plea to 6 speeding offences**\
+`Gibbs-White has been banned from driving for six months and fined after speeding on six occasions on a major road in Nottinghamshire.`\
+https://nytimes.com/athletic/6355156/2025/05/14/morgan-gibbs-white-driving-ban-speeding/
+
+**Israeli Airstrikes Kill Dozens in Northern Gaza Overnight, Hospital Director Says**\
+`Israel’s military did not immediately respond to a request for comment. A military spokesman had warned of an impending attack in northern Gaza.`\
+https://nytimes.com/2025/05/14/world/middleeast/gaza-israeli-strikes.html
+
 **Ranking the 16 possible Stanley Cup Final matchups, based purely on narratives**\
 `With eight teams eliminated, let's rank the remaining potential matchups — from worst to best — based purely on narratives and vibes.`\
 https://nytimes.com/athletic/6351346/2025/05/14/nhl-playoffs-stanley-cup-final-matchups/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6344157/2025/05/14/philadelphia-eagles-schedule-202
 `Toronto is teetering on the delicate line between wanting to show that it won't back down and taking things too far against Florida.
 `\
 https://nytimes.com/athletic/6354017/2025/05/14/maple-leafs-panthers-nhl-playoffs-lebrun/
-
-**Can Jordan Spieth complete the career Grand Slam this week?**\
-`"I think if Rory (McIlroy) didn't complete the Slam at the Masters (last month), then it wouldn't have been a storyline for me here."`\
-https://nytimes.com/athletic/6354756/2025/05/14/jordan-spieth-career-grand-slam-pga-championship/
-
-**‘Bruce, you got me’: Why Bret Boone signed up to help fix the Rangers**\
-`Boone only took about five minutes to accept Bruce Bochy's offer to become a hitting coach for Texas: "This is what I’m supposed to do.”`\
-https://nytimes.com/athletic/6354490/2025/05/14/rangers-bret-boone-hitting-coach-bruce-bochy/
 
