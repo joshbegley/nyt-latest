@@ -1,4 +1,4 @@
-**Nick Saban gives opposing stance on Trump's commission on college sports**\
+**Nick Saban downplays Trump’s presidential commission**\
 `Nick Saban said of an idea for a group he could potentially lead: “I don’t think we really need a commission.”`\
 https://nytimes.com/athletic/6357016/2025/05/14/nick-saban-president-trump-commission/
 
