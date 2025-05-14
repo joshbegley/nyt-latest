@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6356477/2025/05/14/serena-williams-alexis-ohanian-chelsea-women/
 
 **Tanner Houck lands on the IL: What does this mean for the Red Sox rotation?**\
-`Two days after Tanner Houck gave up 11 earned runs in a start against Detroit, the Boston Red Sox placed the right-hander on the injured list with a right flexor pronator strain.`\
+`Two days after Houck gave up 11 earned runs in a start against Detroit, the Red Sox placed the right-hander on the injured list.`\
 https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
 
 **Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
