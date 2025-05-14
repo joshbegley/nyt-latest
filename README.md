@@ -1,3 +1,7 @@
+**Tanner Houck lands on the IL: What does this mean for the Red Sox rotation?**\
+`Two days after Tanner Houck gave up 11 earned runs in a start against Detroit, the Boston Red Sox placed the right-hander on the injured list with a right flexor pronator strain.`\
+https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
+
 **Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
 `By Ben Sisario, Joe Coscarelli and Julia Jacobs`\
 https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/casandra-ventura-ends-an-emotional-day-of-testimony-with-dramatic-revelations
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6276586/2025/05/14/canucks-tom-willander-prospect-c
 **Trump’s Pledge to the Middle East: No More ‘Lectures on How to Live’**\
 `In Saudi Arabia, the president denounced Western intervention and nation-building, garnering both praise and eye rolls.`\
 https://nytimes.com/2025/05/14/world/middleeast/trump-middle-east-nation-building.html
-
-**Trump Met With Syria’s President**\
-`Also, House Republicans planned Medicaid cuts`\
-https://nytimes.com/2025/05/14/briefing/trump-syria-medicaid.html
 

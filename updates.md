@@ -1,3 +1,15 @@
+**Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
+`By Ben Sisario, Joe Coscarelli and Julia Jacobs`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/casandra-ventura-ends-an-emotional-day-of-testimony-with-dramatic-revelations
+
+**World Economic Forum Investigating Allegations Against Its Founder**\
+`The board of the organization behind the annual Davos conference received a letter accusing Klaus Schwab, its former chair, of misusing funds and making inappropriate comments.`\
+https://nytimes.com/2025/05/14/business/world-economic-forum-davos-klaus-schwab.html
+
+**Teammate describes sex acts in Hockey Canada sexual assault trial**\
+`Complainant in sexual assault trial concludes her ninth day in the witness box with re-examination of her previous testimony.`\
+https://nytimes.com/athletic/6356075/2025/05/14/hockey-canada-sexual-assault-trial-testimony-2/
+
 **Ex-Liverpool assistant Lijnders set for talks with Norwich over head coach job**\
 `The 42-year-old was sacked by Red Bull Salzburg in December 2024.`\
 https://nytimes.com/athletic/6357117/2025/05/14/liverpool-pep-lijnders-norwich-job/
