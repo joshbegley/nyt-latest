@@ -1,3 +1,19 @@
+**‘Chromebook Challenge’ Brings Suspensions and Criminal Charges Across U.S.**\
+`The social media trend involves students short-circuiting their school-issued laptops.`\
+https://nytimes.com/2025/05/14/us/tiktok-trend-school-laptops-fire.html
+
+**Brahim injury leaves Real Madrid with 10 first-team players - what are La Liga squad rules?**\
+`Madrid face Mallorca tonight needing to win otherwise rivals Barcelona will be crowned La Liga champions.`\
+https://nytimes.com/athletic/6355774/2025/05/14/real-madrid-injuries-brahim/
+
+**‘The Last Bimbo of the Apocalypse’ Review: Down the Y2K Clickhole**\
+`In Michael Breslin and Patrick Foley’s fizzy new musical, an internet sleuth searches for a pop star wannabe who went missing along with her low-rise jeans.`\
+https://nytimes.com/2025/05/14/theater/last-bimbo-of-the-apocalypse-review.html
+
+**Steph Curry cleared to shoot, will be re-evaluated ahead of potential Game 6**\
+`In Curry's three-game absence, the Warriors have lost all three games to fall into a 3-1 series hole.`\
+https://nytimes.com/athletic/6356178/2025/05/14/steph-curry-cleared-warriors-playoff-return/
+
 **Jayson Tatum’s injury will transform the NBA, not just the Celtics**\
 `If one event can dramatically alter even the most sustainable team-building strategy, is it even possible to maintain a championship window?`\
 https://nytimes.com/athletic/6355671/2025/05/14/jayson-tatum-celtics-injury-nba-future-change/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6356137/2025/05/14/man-united-team-news-yoro-de-lig
 **Judge Orders Georgetown Academic Released From Immigration Detention**\
 `Badar Khan Suri, an Indian citizen teaching on an academic visa, has been held by the government, which has claimed he violated the terms of his academic visa.`\
 https://nytimes.com/2025/05/14/us/politics/georgetown-academic-immigration-detention.html
-
-**It’s Time for a Course on the Constitution**\
-`Readers reflect on the Constitution and the state of American democracy. Also: The Catholic Church sex abuse crisis; Elon Musk’s minions.`\
-https://nytimes.com/2025/05/14/opinion/constitution-democracy-david-souter.html
-
-**The rare Michael Jordan cards that are rising above the pandemic boom**\
-`Michael Jordan card values are soaring once again, but this time it's not his iconic '86 Fleer card setting the pace`\
-https://nytimes.com/athletic/6355755/2025/05/14/michael-jordan-cards-prices/
-
-**Richard L. Garwin, a Creator of the Hydrogen Bomb, Dies at 97**\
-`Many scientists contributed to the final result, but he was the one who, as a young physicist, designed the world’s deadliest weapon. He went on to advise a dozen presidents.`\
-https://nytimes.com/2025/05/14/science/richard-l-garwin-dead.html
-
-**Lowetide: Five reasons for Oilers fans to be optimistic about Cup pursuit**\
-`Despite an enormous gap between top and bottom performances, Edmonton is on the verge of advancing to Round 3.`\
-https://nytimes.com/athletic/6352934/2025/05/14/edmonton-oilers-nhl-playoffs-optimism/
 
