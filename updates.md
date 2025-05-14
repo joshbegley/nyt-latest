@@ -1,3 +1,23 @@
+**Couhig, Trossclair and Redwood Holdings Limited complete Reading takeover**\
+`Redwood’s acquisition of Reading ends Dai Yongge’s controversial eight-year ownership of the club.`\
+https://nytimes.com/athletic/6355976/2025/05/14/reading-takeover-redwood-couhig/
+
+**Mike Schmidt on Pete Rose and the Hall of Fame: 'There will always be a cloud'**\
+`“I think the Pete Rose question is always going to be divided, 50-50,” Schmidt said of his late friend and former teammate's Hall candidacy.`\
+https://nytimes.com/athletic/6355877/2025/05/14/mike-schmidt-pete-rose-hall-of-fame-candidacy/
+
+**Maple Leafs lineup questions vs. Panthers: Game-time decisions loom over Game 5**\
+`It appears changes are coming to the Maple Leafs' forward lines in Game 5.`\
+https://nytimes.com/athletic/6355541/2025/05/14/maple-leafs-lineup-panthers-game-5-nhl-playoffs/
+
+**Canada's David announces Lille departure**\
+`The 25-year-old, who has already held talks with Premier League club West Ham United, is set to leave Lille after five years at the club.`\
+https://nytimes.com/athletic/6355886/2025/05/14/jonathan-david-lille-departure-transfer/
+
+**Dak Prescott on adding George Pickens: 'We're putting together a nice group of weapons'**\
+`Dak Prescott spoke about the new Cowboys receiver Wednesday: "He thinks it's his ball when it's in the air," he said of George Pickens.`\
+https://nytimes.com/athletic/6355942/2025/05/14/cowboys-dak-prescott-george-pickens-comments/
+
 **Dak Prescott on adding George Pickens; 'We're putting together a nice group of weapons'**\
 `Dak Prescott spoke about the new Cowboys receiver Wednesday: "He thinks it's his ball when it's in the air," he said of George Pickens.`\
 https://nytimes.com/athletic/6355942/2025/05/14/cowboys-dak-prescott-george-pickens-comments/

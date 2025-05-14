@@ -1,3 +1,11 @@
+**Tom Brady to take Indy 500 lap with Jimmie Johnson before race's Fox debut**\
+`The seven-time Super Bowl champ will ride along with the seven-time NASCAR champ ahead of Fox's first Indy 500 broadcast.`\
+https://nytimes.com/athletic/6355933/2025/05/14/tom-brady-indy-500-jimmie-johnson-fox/
+
+**Trump Claims Deals Were Signed on Middle East Tour. Here’s a Closer Look.**\
+`White House officials say President Trump secured $600 billion in investment on his trip to Saudi Arabia but details were vague and some deals were already in the pipeline.`\
+https://nytimes.com/2025/05/14/us/politics/trump-deals-middle-east-saudi-arabia-qatar-uae.html
+
 **Couhig, Trossclair and Redwood Holdings Limited complete Reading takeover**\
 `Redwood’s acquisition of Reading ends Dai Yongge’s controversial eight-year ownership of the club.`\
 https://nytimes.com/athletic/6355976/2025/05/14/reading-takeover-redwood-couhig/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/movies/cannes-gerard-depardieu-verdict.html
 **Qatar Airways to Buy 160 Boeing Jets**\
 `The United States and Qatar also signed a statement of defense cooperation. No additional details, such as the text of the documents, were released immediately.`\
 https://nytimes.com/2025/05/14/us/politics/qatar-airways-boeing-jets.html
-
-**FIA announces revisions to controversial F1 swearing penalty rules**\
-`The FIA has made adjustments to an appendix of the International Sporting Code (ISC), ranging from reducing fines to sporting penalties.`\
-https://nytimes.com/athletic/6355826/2025/05/14/f1-penalty-swearing-guidelines-changes/
-
-**Guardians hire former ace Corey Kluber as special pitching assistant**\
-`Kluber brings his two Cy Young awards and also his wisdom about the struggles pitchers face in his new role with the Guardians.`\
-https://nytimes.com/athletic/6354316/2025/05/14/guardians-hire-corey-kluber-special-pitching-assistant/
 
