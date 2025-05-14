@@ -1,4 +1,8 @@
 **Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
+`The Jets, now facing elimination, have lost nine consecutive road playoff games.`\
+https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
+
+**Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
 `The Jets, now facing elimination, have lost 9 consecutive road playoff games.`\
 https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
 
