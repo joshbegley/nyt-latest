@@ -1,3 +1,11 @@
+**Dak Prescott on adding George Pickens; 'We're putting together a nice group of weapons'**\
+`Dak Prescott spoke about the new Cowboys receiver Wednesday: "He thinks it's his ball when it's in the air," he said of George Pickens.`\
+https://nytimes.com/athletic/6355942/2025/05/14/cowboys-dak-prescott-george-pickens-comments/
+
+**'It's been a good place for me': Rory McIlroy and the Quail Hollow win that started it all**\
+`Three holes on Friday afternoon in 2010 as a young McIlroy just tried to make the cut might have altered the course of McIlroy's career.`\
+https://nytimes.com/athletic/6355862/2025/05/14/rory-mcilroy-quail-hollow-pga-tour-championship/
+
 **Cannes Reacts to Gérard Depardieu Verdict With Soul-Searching and Shrugs**\
 `The actor, who was found guilty of sexual assault on Tuesday, was a festival stalwart and had brought nearly 30 movies to the event.`\
 https://nytimes.com/2025/05/14/movies/cannes-gerard-depardieu-verdict.html

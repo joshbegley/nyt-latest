@@ -1,4 +1,16 @@
-**Dak Prescott on adding George Pickens; 'We're putting together a nice group of weapons'**\
+**Mike Schmidt on Pete Rose and the Hall of Fame: 'There will always be a cloud'**\
+`“I think the Pete Rose question is always going to be divided, 50-50,” Schmidt said of his late friend and former teammate's Hall candidacy.`\
+https://nytimes.com/athletic/6355877/2025/05/14/mike-schmidt-pete-rose-hall-of-fame-candidacy/
+
+**Maple Leafs lineup questions vs. Panthers: Game-time decisions loom over Game 5**\
+`It appears changes are coming to the Maple Leafs' forward lines in Game 5.`\
+https://nytimes.com/athletic/6355541/2025/05/14/maple-leafs-lineup-panthers-game-5-nhl-playoffs/
+
+**Canada's David announces Lille departure**\
+`The 25-year-old, who has already held talks with Premier League club West Ham United, is set to leave Lille after five years at the club.`\
+https://nytimes.com/athletic/6355886/2025/05/14/jonathan-david-lille-departure-transfer/
+
+**Dak Prescott on adding George Pickens: 'We're putting together a nice group of weapons'**\
 `Dak Prescott spoke about the new Cowboys receiver Wednesday: "He thinks it's his ball when it's in the air," he said of George Pickens.`\
 https://nytimes.com/athletic/6355942/2025/05/14/cowboys-dak-prescott-george-pickens-comments/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6354316/2025/05/14/guardians-hire-corey-kluber-spec
 **House Republicans Push Forward With Tax and Medicaid Cuts**\
 `Three key committees advanced legislation that would combine into the “one big beautiful bill” to enact President Trump’s agenda. But the package faces a rocky path in Congress.`\
 https://nytimes.com/2025/05/14/us/politics/congress-tax-medicaid.html
-
-**Cassie Says Sean Combs Tried to Enter Her Home After Hotel Assault**\
-`Casandra Ventura said the mogul pleaded with her in text messages and went to her apartment after striking and dragging her in the hallway of a Los Angeles hotel.`\
-https://nytimes.com/2025/05/14/arts/music/cassie-diddy-hotel-assault-2016.html
-
-**The F.D.A. Says Fluoride Pills May Harm Children’s Health. Researchers Disagree.**\
-`The agency moved this week to ban the products, which are used to prevent cavities.`\
-https://nytimes.com/2025/05/14/well/fluoride-products-fda-children.html
-
-**The longest game in PWHL history featured mustard packets taped to the glass. Why?**\
-`A sports nutritionist explains the method behind the madness that helped the Ottawa Charge play through four overtimes.`\
-https://nytimes.com/athletic/6355770/2025/05/14/pwhl-longest-game-mustard-packets-montreal-ottawa/
 
