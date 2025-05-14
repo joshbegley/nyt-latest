@@ -1,3 +1,19 @@
+**Frimpong and Liverpool: What we're hearing - and what he offers**\
+`How advanced is interest in the Bayer Leverkusen right-back and how would he fit stylistically?`\
+https://nytimes.com/athletic/6353031/2025/05/14/jeremie-frimpong-liverpool-transfer-why/
+
+**Rebecca Lowe: Palace are my lifelong love. Winning the Cup would mean everything**\
+`NBC's Premier League presenter will see her beloved Palace play for the first time in 12 years at Wembley as the club target a first trophy`\
+https://nytimes.com/athletic/6339191/2025/05/14/rebecca-lowe-crystal-palace-fa-cup/
+
+**Watching El Clasico worldwide: From New York's 'Valverde veggie wraps' to a war-affected Kyiv meet-up**\
+`Real Madrid and Barcelona have more than 3,700 supporters groups across the globe - so how did some of them experience El Clasico?`\
+https://nytimes.com/athletic/6352436/2025/05/14/watching-el-clasico-worldwide/
+
+**Coppa Italia final: Reijnders and Milan have shot at redemption, while Bologna chase first trophy since 1974**\
+`The Athletic spoke exclusively to Milan midfielder Tijjani Reijnders and Bologna's Michel Aebischer before Wednesday's Coppa Italia final`\
+https://nytimes.com/athletic/6346129/2025/05/14/milan-reijnders-final-coppa-italia-bologna/
+
 **'I hit rock bottom and my family told me to take action. Now I'm enjoying my football again'**\
 `The former Manchester United team-mate of Marcus Rashford reached a career nadir this season - he responded to silence his critics`\
 https://nytimes.com/athletic/6352120/2025/05/14/ashley-fletcher-blackpool-west-ham-manchester-united/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/business/economy/trump-research-brain-drain.html
 **Corrections: May 14, 2025**\
 `Corrections that appeared in print on Wednesday, May 14, 2025.`\
 https://nytimes.com/2025/05/13/pageoneplus/corrections-may-14-2025.html
-
-**Quote of the Day: Culture War At West Point Claims Books And Professors**\
-`Quotation of the Day for Wednesday, May 14, 2025.`\
-https://nytimes.com/2025/05/13/pageoneplus/quote-of-the-day-culture-war-at-west-point-claims-books-and-professors.html
-
-**Democrat Appears to Win Omaha Mayor’s Race, Ending Era of Republican Leadership**\
-`John Ewing Jr. would be the first elected Black mayor of Omaha, the largest city in Nebraska. The Republican incumbent, Jean Stothert, had been seeking a fourth term.`\
-https://nytimes.com/2025/05/13/us/omaha-mayoral-race.html
-
-**How Kodai Senga learned to distill more data into a better scouting report**\
-`Learning how to incorporate all the information available to him in the U.S. has been critical to Senga's success.`\
-https://nytimes.com/athletic/6354694/2025/05/13/mets-kodai-senga-scouting-report/
-
-**Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
-`The Jets, now facing elimination, have lost nine consecutive road playoff games.`\
-https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
 

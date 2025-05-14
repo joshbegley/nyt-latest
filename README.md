@@ -1,3 +1,7 @@
+**Ronald Acuña Jr. homers in first rehab game on the night Braves reach .500**\
+`Acuña played six innings in a rookie league game and will head to Triple-A Gwinnett for his next rehab game Thursday. `\
+https://nytimes.com/athletic/6354814/2025/05/14/braves-ronald-acuna-homer-rehab/
+
 **Frimpong and Liverpool: What we're hearing - and what he offers**\
 `How advanced is interest in the Bayer Leverkusen right-back and how would he fit stylistically?`\
 https://nytimes.com/athletic/6353031/2025/05/14/jeremie-frimpong-liverpool-transfer-why/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354541/2025/05/14/connections-sports-edition-hints
 **The World Is Wooing U.S. Researchers Shunned by Trump**\
 `As President Trump guts American research institutions, world leaders see a “once-in-a-century brain gain opportunity.”`\
 https://nytimes.com/2025/05/14/business/economy/trump-research-brain-drain.html
-
-**Corrections: May 14, 2025**\
-`Corrections that appeared in print on Wednesday, May 14, 2025.`\
-https://nytimes.com/2025/05/13/pageoneplus/corrections-may-14-2025.html
 
