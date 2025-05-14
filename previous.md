@@ -1,3 +1,11 @@
+**Will Tom Willander be the Canucks’ next star? Here’s what to expect**\
+`Examining Willander's style of play, his long-term ceiling and what Vancouver should ultimately expect from its prized defensive prospect.`\
+https://nytimes.com/athletic/6276586/2025/05/14/canucks-tom-willander-prospect-contract/
+
+**Trump’s Pledge to the Middle East: No More ‘Lectures on How to Live’**\
+`In Saudi Arabia, the president denounced Western intervention and nation-building, garnering both praise and eye rolls.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-middle-east-nation-building.html
+
 **Trump Met With Syria’s President**\
 `Also, House Republicans planned Medicaid cuts`\
 https://nytimes.com/2025/05/14/briefing/trump-syria-medicaid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/briefing/trump-syria-gulf-tour-south-africa-cassi
 **NFL schedule release day is the ultimate example of how the league owns the entire year**\
 `In this week's sports business newsletter: Why the NFL's schedule release day illustrates its own-the-entire-year dominance.`\
 https://nytimes.com/athletic/6356997/2025/05/14/nfl-schedule-release-2025-upfronts-espn-moneycall/
-
-**NWSL to review medical incident protocol after Savy King’s collapse**\
-`King, 20, underwent successful surgery to address a heart abnormality on Tuesday at Cedars-Sinai Medical Center.`\
-https://nytimes.com/athletic/6356756/2025/05/14/nwsl-medical-protocol-angel-city-savy-king-collapse/
-
-**Mariners' Julio Rodríguez robs homer from Trent Grisham**\
-`Grisham hit two home runs over Rodríguez's head on Monday. Seattle's center fielder got his revenge at the beginning of Wednesday's game.`\
-https://nytimes.com/athletic/6356942/2025/05/14/mariners-julio-rodriguez-robs-home-run-trent-grisham-yankees/
 

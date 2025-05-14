@@ -1,3 +1,11 @@
+**Will Tom Willander be the Canucks’ next star? Here’s what to expect**\
+`Examining Willander's style of play, his long-term ceiling and what Vancouver should ultimately expect from its prized defensive prospect.`\
+https://nytimes.com/athletic/6276586/2025/05/14/canucks-tom-willander-prospect-contract/
+
+**Trump’s Pledge to the Middle East: No More ‘Lectures on How to Live’**\
+`In Saudi Arabia, the president denounced Western intervention and nation-building, garnering both praise and eye rolls.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-middle-east-nation-building.html
+
 **Trump Met With Syria’s President**\
 `Also, House Republicans planned Medicaid cuts`\
 https://nytimes.com/2025/05/14/briefing/trump-syria-medicaid.html
