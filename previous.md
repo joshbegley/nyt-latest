@@ -1,3 +1,11 @@
+**Gabbard Seeks to Consolidate Her Control of President’s Daily Brief**\
+`President Trump has wondered over time about whether the Office of the Director of National Intelligence, which was created after the 9/11 attacks, should continue to exist.`\
+https://nytimes.com/2025/05/14/us/politics/gabbard-president-daily-brief.html
+
+**Canucks to name Adam Foote as next head coach: Source**\
+`Foote had been an assistant coach on Rick Tocchet's staff in Vancouver since January 2023.`\
+https://nytimes.com/athletic/6356236/2025/05/14/canucks-adam-foote-coach/
+
 **At Supreme Court, a Once-Fringe Birthright Citizenship Theory Takes the Spotlight**\
 `Before the Trump presidency, there was broad consensus that the 14th Amendment established birthright citizenship for children born in the United States.`\
 https://nytimes.com/2025/05/14/us/politics/supreme-court-birthright-citizenship.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/theater/last-bimbo-of-the-apocalypse-review.html
 **Steph Curry cleared to shoot, will be re-evaluated ahead of potential Game 6**\
 `In Curry's three-game absence, the Warriors have lost all three games to fall into a 3-1 series hole.`\
 https://nytimes.com/athletic/6356178/2025/05/14/steph-curry-cleared-warriors-playoff-return/
-
-**Jayson Tatum’s injury will transform the NBA, not just the Celtics**\
-`If one event can dramatically alter even the most sustainable team-building strategy, is it even possible to maintain a championship window?`\
-https://nytimes.com/athletic/6355671/2025/05/14/jayson-tatum-celtics-injury-nba-future-change/
-
-**Amorim 'far from quitting' Man United despite disappointing league form**\
-`United currently sit 16th, with just 39 points, and are guaranteed to record their lowest finish of the Premier League era.`\
-https://nytimes.com/athletic/6356205/2025/05/14/man-united-amorim-future-quit/
 

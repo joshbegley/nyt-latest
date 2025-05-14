@@ -1,8 +1,16 @@
+**Taiwo Awoniyi: What happens in an on-field medical assessment and what an induced coma is**\
+`The Nottingham Forest striker was placed in an induced coma on Tuesday after colliding with a post during a Premier League match on Sunday`\
+https://nytimes.com/athletic/6356037/2025/05/14/nottingham-forest-player-injury-taiwo-awoniyi-coma/
+
+**What is the best goal that Lionel Messi has ever scored?**\
+`Stunning solo dribbles, mind-blowing first touches, Clasico deciders and much, much more. Our writers pick their favourite Messi goal`\
+https://nytimes.com/athletic/6355221/2025/05/14/what-is-the-best-goal-messi-has-scored/
+
 **Gabbard Seeks to Consolidate Her Control of President’s Daily Brief**\
 `President Trump has wondered over time about whether the Office of the Director of National Intelligence, which was created after the 9/11 attacks, should continue to exist.`\
 https://nytimes.com/2025/05/14/us/politics/gabbard-president-daily-brief.html
 
-**Canucks to name Adam Foote as next head coach: Source**\
+**Canucks name Adam Foote as next head coach**\
 `Foote had been an assistant coach on Rick Tocchet's staff in Vancouver since January 2023.`\
 https://nytimes.com/athletic/6356236/2025/05/14/canucks-adam-foote-coach/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/us/tiktok-trend-school-laptops-fire.html
 **Brahim injury leaves Real Madrid with 10 first-team players - what are La Liga squad rules?**\
 `Madrid face Mallorca tonight needing to win otherwise rivals Barcelona will be crowned La Liga champions.`\
 https://nytimes.com/athletic/6355774/2025/05/14/real-madrid-injuries-brahim/
-
-**‘The Last Bimbo of the Apocalypse’ Review: Down the Y2K Clickhole**\
-`In Michael Breslin and Patrick Foley’s fizzy new musical, an internet sleuth searches for a pop star wannabe who went missing along with her low-rise jeans.`\
-https://nytimes.com/2025/05/14/theater/last-bimbo-of-the-apocalypse-review.html
-
-**Steph Curry cleared to shoot, will be re-evaluated ahead of potential Game 6**\
-`In Curry's three-game absence, the Warriors have lost all three games to fall into a 3-1 series hole.`\
-https://nytimes.com/athletic/6356178/2025/05/14/steph-curry-cleared-warriors-playoff-return/
 
