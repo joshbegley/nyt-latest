@@ -1,3 +1,19 @@
+**House Republicans Push Forward With Tax and Medicaid Cuts**\
+`Three key committees advanced legislation that would combine into the “one big beautiful bill” to enact President Trump’s agenda. But the package faces a rocky path in Congress.`\
+https://nytimes.com/2025/05/14/us/politics/congress-tax-medicaid.html
+
+**Cassie Says Sean Combs Followed Her Home After Hotel Assault**\
+`Casandra Ventura said the mogul pleaded with her in text messages and followed her to her apartment after striking and dragging her in the hallway of a Los Angeles hotel.`\
+https://nytimes.com/2025/05/14/arts/music/cassie-diddy-hotel-assault-2016.html
+
+**The F.D.A. Says Fluoride Pills May Harm Children’s Health. Researchers Disagree.**\
+`The agency moved this week to ban the products, which are used to prevent cavities.`\
+https://nytimes.com/2025/05/14/well/fluoride-products-fda-children.html
+
+**The longest game in PWHL history featured mustard packets taped to the glass. Why?**\
+`A sports nutritionist explains the method behind the madness that helped the Ottawa Charge play through four overtimes.`\
+https://nytimes.com/athletic/6355770/2025/05/14/pwhl-longest-game-mustard-packets-montreal-ottawa/
+
 **Cartel Family Members Crossed Into U.S., Mexican Official Says**\
 `Mexico’s security secretary confirmed reports that 17 family members of Sinaloa Cartel leaders had crossed into the United States, likely as part of a deal with the Trump administration.`\
 https://nytimes.com/2025/05/14/world/americas/mexico-cartel-chapo-family.html

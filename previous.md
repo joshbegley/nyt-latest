@@ -1,3 +1,19 @@
+**House Republicans Push Forward With Tax and Medicaid Cuts**\
+`Three key committees advanced legislation that would combine into the “one big beautiful bill” to enact President Trump’s agenda. But the package faces a rocky path in Congress.`\
+https://nytimes.com/2025/05/14/us/politics/congress-tax-medicaid.html
+
+**Cassie Says Sean Combs Followed Her Home After Hotel Assault**\
+`Casandra Ventura said the mogul pleaded with her in text messages and followed her to her apartment after striking and dragging her in the hallway of a Los Angeles hotel.`\
+https://nytimes.com/2025/05/14/arts/music/cassie-diddy-hotel-assault-2016.html
+
+**The F.D.A. Says Fluoride Pills May Harm Children’s Health. Researchers Disagree.**\
+`The agency moved this week to ban the products, which are used to prevent cavities.`\
+https://nytimes.com/2025/05/14/well/fluoride-products-fda-children.html
+
+**The longest game in PWHL history featured mustard packets taped to the glass. Why?**\
+`A sports nutritionist explains the method behind the madness that helped the Ottawa Charge play through four overtimes.`\
+https://nytimes.com/athletic/6355770/2025/05/14/pwhl-longest-game-mustard-packets-montreal-ottawa/
+
 **Cartel Family Members Crossed Into U.S., Mexican Official Says**\
 `Mexico’s security secretary confirmed reports that 17 family members of Sinaloa Cartel leaders had crossed into the United States, likely as part of a deal with the Trump administration.`\
 https://nytimes.com/2025/05/14/world/americas/mexico-cartel-chapo-family.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/arts/music/salome-seven-veils.html
 **Qatar, not to be outdone, welcomes Trump with camels, swords and ‘perfecto’ marble.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/qatar-not-to-be-outdone-welcomes-trump-with-camels-swords-and-perfecto-marble
-
-**Three-time All-Star Matt Carpenter announces his retirement**\
-`Carpenter, who spent 12 of his 14 seasons with the Cardinals, finished his career with 179 home runs, 329 doubles and 28.7 WAR. `\
-https://nytimes.com/athletic/6355784/2025/05/14/matt-carpenter-retires-mlb-cardinals/
-
-**Max, Once Known as HBO Max, Is Calling Itself HBO Max Again. Got It?**\
-`Warner Bros. Discovery executives are reinstating the name HBO Max for the popular streaming service. It’s the fourth name change for the app in the last decade.`\
-https://nytimes.com/2025/05/14/business/media/hbo-max-streaming-name.html
-
-**From a Tin-Roof Shack, Pepe Mujica Removed the Pomp from Politics**\
-`The former Uruguayan president, who died on Tuesday, showed the value in world leaders living like their constituents.`\
-https://nytimes.com/2025/05/14/world/americas/pepe-mujica-uruguay.html
-
-**3 Are Arrested in Russia-Linked Sabotage Plot, Germany Says**\
-`The men, Ukrainian nationals, were arrested in Germany and Switzerland, the state prosecutor in Berlin said. They are suspected of planning to sabotage commercial freight infrastructure.`\
-https://nytimes.com/2025/05/14/world/europe/3-are-arrested-in-russia-linked-sabotage-plot-germany-says.html
 
