@@ -1,4 +1,8 @@
 **Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
+`After a surprisingly drawn-out negotiation with the Canucks, Willander has signed a deal and will turn pro.`\
+https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
+
+**Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
 `After a surprisingly drawn-out negotiation with the Canucks, Willander will turn pro next season.`\
 https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
 
