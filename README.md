@@ -1,3 +1,19 @@
+**Kyle Schwarber's on-base streak ends at 47 games, fourth-longest in Phillies history**\
+`It was the longest such streak in MLB since Tommy Pham reached base in 48 straight games from 2018-19.`\
+https://nytimes.com/athletic/6356573/2025/05/14/kyle-schwarber-on-base-streak-ends-phillies/
+
+**Senator Josh Hawley, a Missouri Republican, opposes the House G.O.P. plan for Medicaid cuts.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/senator-josh-hawley-a-missouri-republican-opposes-the-house-gop-plan-for-medicaid-cuts
+
+**Last U.S. Hostage in Gaza Is Reunited With Parents: ‘We Never Lost Hope’**\
+`Edan Alexander was 19 when he left New Jersey to serve in the Israel Defense Forces. He was released by Hamas on Monday.`\
+https://nytimes.com/2025/05/14/nyregion/edan-alexander-new-jersey-hostage-gaza.html
+
+**Real Madrid's Asencio could face criminal proceedings for allegedly sharing sex tape of a minor**\
+`The case relates to an alleged incident at a beach club in the south of the Spanish island in 2023.`\
+https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investigation/
+
 **Rick Tocchet hired as Philadelphia Flyers coach**\
 `Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
 https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcast
 **Cooper Flagg shocked by 'crazy draft lottery' as Mavs jump at ' fresh start'**\
 `Flagg will be seen as the franchise's new foundational player, a position held just a few months ago by Luka Dončić.`\
 https://nytimes.com/athletic/6356752/2025/05/14/cooper-flagg-mavericks-draft-lottery/
-
-**French Prime Minister Defiant in School Sexual Violence Inquiry**\
-`François Bayrou’s popularity has plunged as his word is doubted on events at a Catholic school to which he had several ties.`\
-https://nytimes.com/2025/05/14/world/europe/france-francois-bayrou-school-scandal.html
-
-**Inside the Canucks' decision to hire Adam Foote as their head coach**\
-`Foote has the presence and weight that Canucks brass was looking for in the franchise's next head coach.`\
-https://nytimes.com/athletic/6356749/2025/05/14/vancouver-canucks-adam-foote-head-coach/
-
-**Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
-`After a surprisingly drawn-out negotiation with the Canucks, Willander has signed a deal and will turn pro.`\
-https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
-
-**Strike on Hospital Highlights Israeli Attacks on Gaza Health System**\
-`Aid groups and U.N. investigations have accused Israel of aiming to destroy Gaza’s health infrastructure. Israel says it is forced to strike hospitals it says are used by Hamas for military purposes.`\
-https://nytimes.com/2025/05/14/world/middleeast/israel-medical-facility-strikes-gaza-hamas.html
 
