@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, May 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/14/todays-new-york-times-international-edition
+
 **What to Know About Trump’s Latest Changes to Taxes on Small Packages From China**\
 `Beginning Wednesday, shipments arriving in the United States from China and Hong Kong worth less than $800 could face 54 percent tariffs.`\
 https://nytimes.com/2025/05/14/business/trump-tariffs-china-temu-shein.html
