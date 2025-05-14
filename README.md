@@ -1,3 +1,15 @@
+**101 Degrees in May? Even for Texas, This Is Hot.**\
+`Forecasters expect multiple records to be broken over the next week as an early heat wave settles over the region.`\
+https://nytimes.com/2025/05/14/weather/texas-heat-record-may.html
+
+**Rick Tocchet, Flyers are a natural fit, but not for the reasons you might assume**\
+`It’s an established pattern in the NHL — teams rotating through the same inventory of coaches over and over, in the hopes that the experience they have gained in their previous stops will help them to immediately get off on the right foot in their new locales.`\
+https://nytimes.com/athletic/6356566/2025/05/14/tocchet-flyers-coach-player/
+
+**Bayesian Superyacht Sank After ‘Extreme’ Wind Gust, Report Says**\
+`An official report into last year’s yacht tragedy, which killed seven, found that the boat could easily capsize in high winds. Its towering mast made it more vulnerable.`\
+https://nytimes.com/2025/05/15/world/europe/bayesian-superyacht-sinking-report.html
+
 **Hard-throwing Angels reliever Ben Joyce to miss season after shoulder surgery**\
 `This injury, and the mounting health concerns, have caused Joyce to rethink his flame-throwing approach.`\
 https://nytimes.com/athletic/6357188/2025/05/14/angels-ben-joyce-shoulder-surgery/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
 **Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
 `By Ben Sisario, Joe Coscarelli and Julia Jacobs`\
 https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/casandra-ventura-ends-an-emotional-day-of-testimony-with-dramatic-revelations
-
-**World Economic Forum Investigating Allegations Against Its Founder**\
-`The board of the organization behind the annual Davos conference received a letter accusing Klaus Schwab, its former chair, of misusing funds and making inappropriate comments.`\
-https://nytimes.com/2025/05/14/business/world-economic-forum-davos-klaus-schwab.html
-
-**Teammate describes sex acts in Hockey Canada sexual assault trial**\
-`Complainant in sexual assault trial concludes her ninth day in the witness box with re-examination of her previous testimony.`\
-https://nytimes.com/athletic/6356075/2025/05/14/hockey-canada-sexual-assault-trial-testimony-2/
-
-**Ex-Liverpool assistant Lijnders set for talks with Norwich over head coach job**\
-`The 42-year-old was sacked by Red Bull Salzburg in December 2024.`\
-https://nytimes.com/athletic/6357117/2025/05/14/liverpool-pep-lijnders-norwich-job/
 
