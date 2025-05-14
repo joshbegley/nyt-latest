@@ -1,3 +1,11 @@
+**Map: 6.0-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
+
+**Why Did Eric Adams Have So Cellphones?**\
+`Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
+https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
+
 **Map: 6.1-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html

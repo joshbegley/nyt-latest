@@ -14,7 +14,7 @@ https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
 `Dekkers pled guilty to underage gambling in 2023 and enrolled at Iowa Western Community College for the 2024 season. `\
 https://nytimes.com/athletic/6302384/2025/05/13/hunter-dekkers-gambling-signed-saints/
 
-**Why Did Eric Adams Have So Cellphones?**\
+**Why Did Eric Adams Have So Many Cellphones?**\
 `Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
 https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
 

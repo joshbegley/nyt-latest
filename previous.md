@@ -1,4 +1,4 @@
-**Map: 6.1-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
+**Map: 6.0-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
 
@@ -14,7 +14,7 @@ https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
 `Dekkers pled guilty to underage gambling in 2023 and enrolled at Iowa Western Community College for the 2024 season. `\
 https://nytimes.com/athletic/6302384/2025/05/13/hunter-dekkers-gambling-signed-saints/
 
-**Why Did Eric Adams Have So Many Phones?**\
+**Why Did Eric Adams Have So Cellphones?**\
 `Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
 https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
 
