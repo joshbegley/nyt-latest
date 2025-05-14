@@ -1,4 +1,4 @@
-**Mirtle: Ken Holland is back as an NHL GM with Kings. It’s not the trend you might think it is**\
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\
 https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
@@ -19,7 +19,7 @@ https://nytimes.com/2025/05/14/nyregion/edan-alexander-new-jersey-hostage-gaza.h
 `The case relates to an alleged incident at a beach club in the south of the Spanish island in 2023.`\
 https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investigation/
 
-**Rick Tocchet hired as Philadelphia Flyers coach**\
+**Philadelphia Flyers hire Rick Tocchet as 'absolute right coach to lead our team'**\
 `Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
 https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
 
