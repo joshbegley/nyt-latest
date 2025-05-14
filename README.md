@@ -1,3 +1,7 @@
+**The Athletic FC: Events that led to Awoniyi's coma, Man City keen on Reijnders**\
+`Today in TAFC: The events that saw Awoniyi placed in an induced coma. Plus: Man City hope to sign Reijnders, new U.S. national team shirts`\
+https://nytimes.com/athletic/6355168/2025/05/14/awoniyi-forest-coma-reijnders-man-city/
+
 **New Lions assistants like what they see from Jameson Williams, Jared Goff and others**\
 `The cohesion of Detroit's new offensive coaches was on display Tuesday, when they talked about the talent with whom they'll work in 2025.`\
 https://nytimes.com/athletic/6354114/2025/05/14/lions-coaches-offense-jameson-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/world/asia/india-pakistan-soldier-exchange.html
 **Cubs prospect Moisés Ballesteros went from playing MLB The Show to being in The Show **\
 `Ballesteros went 0-for-4 in his debut, but there's always tomorrow. "The nerves got the better of me today," he said through an interpreter.`\
 https://nytimes.com/athletic/6354904/2025/05/14/cubs-prospect-moises-ballesteros/
-
-**For the first time in decades, the leaders of the U.S. and Syria meet.**\
-`By Ismaeel Naar and Enjoli Liston`\
-https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/for-the-first-time-in-decades-the-leaders-of-the-us-and-syria-meet
 
