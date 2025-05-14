@@ -1,3 +1,20 @@
+**Joe Louis Walker, Free-Ranging Blues Explorer, Is Dead at 75**\
+`A product of the San Francisco rock crucible of the 1960s, he fashioned his own brand of the blues, blending gospel, soul, rock and other genres.`\
+https://nytimes.com/2025/05/14/arts/music/joe-louis-walker-dead.html
+
+**Deion Sanders documentary, 'PRIME TIME,' set for 2026 on Netflix**\
+`Three-part series will cover Sanders' transition from a two-sport athlete to a coach and more. "You never knew Deion," Sanders said.`\
+https://nytimes.com/athletic/6356896/2025/05/14/deion-sanders-netflix-documentary/
+
+**PSV seizes control of Dutch title race thanks to USMNT stars, Ajax collapse**\
+`PSV now shockingly leads Ajax heading into the final matchday of the Eredivisie season.`\
+https://nytimes.com/athletic/6356829/2025/05/14/malik-tillman-sergino-dest-psv-ajax-eredivisie-title-usmnt/
+
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\

@@ -1,3 +1,15 @@
+**Joe Louis Walker, Free-Ranging Blues Explorer, Is Dead at 75**\
+`A product of the San Francisco rock crucible of the 1960s, he fashioned his own brand of the blues, blending gospel, soul, rock and other genres.`\
+https://nytimes.com/2025/05/14/arts/music/joe-louis-walker-dead.html
+
+**Deion Sanders documentary, 'PRIME TIME,' set for 2026 on Netflix**\
+`Three-part series will cover Sanders' transition from a two-sport athlete to a coach and more. "You never knew Deion," Sanders said.`\
+https://nytimes.com/athletic/6356896/2025/05/14/deion-sanders-netflix-documentary/
+
+**PSV seizes control of Dutch title race thanks to USMNT stars, Ajax collapse**\
+`PSV now shockingly leads Ajax heading into the final matchday of the Eredivisie season.`\
+https://nytimes.com/athletic/6356829/2025/05/14/malik-tillman-sergino-dest-psv-ajax-eredivisie-title-usmnt/
+
 **Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-h
 **Sabalenka picks up code violation for swearing in Italian Open loss to Zheng**\
 `Her remarkable run of making finals came to an abrupt end when Zheng beat her in straight sets in the quarterfinals.`\
 https://nytimes.com/athletic/6356700/2025/05/14/aryna-sabalenka-loss-italian-open/
-
-**Ex-National Guardsman Planned to Attack U.S. Army Base for ISIS, U.S. Says**\
-`The suspect sought to use a drone, Molotov cocktails and armor-piercing ammunition to attack a base outside Detroit on Tuesday, the authorities said.`\
-https://nytimes.com/2025/05/14/us/michigan-national-guard-isis-attack.html
-
-**‘Mission: Impossible — The Final Reckoning’ Review: Tom Cruise Defies All**\
-`For the eighth installment of this stunt-spectacular franchise, the star returns to fight off A.I. planetary domination, the bends, gravity and maybe mortality itself.`\
-https://nytimes.com/2025/05/14/movies/mission-impossible-final-reckoning-review-tom-cruise.html
-
-**Can Eurovision Avoid Politics in Neutral Switzerland?**\
-`The competition is run by an opaque Swiss organization that wants to sidestep controversies that could spoil the fun.`\
-https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcasting-union.html
 

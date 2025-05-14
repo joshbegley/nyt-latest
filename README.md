@@ -1,3 +1,7 @@
+**‘My Opinions About Vaccines Are Irrelevant,’ Kennedy Says**\
+`During a congressional hearing on the Trump administration’s drastic overhaul of federal health agencies on Wednesday, Robert F. Kennedy Jr., the health secretary, said, “I don’t think people should be taking advice, medical advice from me.”`\
+https://nytimes.com/video/us/politics/100000010170056/pocan-kennedy-child-vaccine.html
+
 **Joe Louis Walker, Free-Ranging Blues Explorer, Is Dead at 75**\
 `A product of the San Francisco rock crucible of the 1960s, he fashioned his own brand of the blues, blending gospel, soul, rock and other genres.`\
 https://nytimes.com/2025/05/14/arts/music/joe-louis-walker-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investi
 **Philadelphia Flyers hire Rick Tocchet as 'absolute right coach to lead our team'**\
 `Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
 https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
-
-**Sabalenka picks up code violation for swearing in Italian Open loss to Zheng**\
-`Her remarkable run of making finals came to an abrupt end when Zheng beat her in straight sets in the quarterfinals.`\
-https://nytimes.com/athletic/6356700/2025/05/14/aryna-sabalenka-loss-italian-open/
 
