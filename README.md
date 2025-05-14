@@ -1,3 +1,7 @@
+**Couhig, Trossclair and Redwood Holdings Limited complete Reading takeover**\
+`Redwood’s acquisition of Reading ends Dai Yongge’s controversial eight-year ownership of the club.`\
+https://nytimes.com/athletic/6355976/2025/05/14/reading-takeover-redwood-couhig/
+
 **Mike Schmidt on Pete Rose and the Hall of Fame: 'There will always be a cloud'**\
 `“I think the Pete Rose question is always going to be divided, 50-50,” Schmidt said of his late friend and former teammate's Hall candidacy.`\
 https://nytimes.com/athletic/6355877/2025/05/14/mike-schmidt-pete-rose-hall-of-fame-candidacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6355826/2025/05/14/f1-penalty-swearing-guidelines-c
 **Guardians hire former ace Corey Kluber as special pitching assistant**\
 `Kluber brings his two Cy Young awards and also his wisdom about the struggles pitchers face in his new role with the Guardians.`\
 https://nytimes.com/athletic/6354316/2025/05/14/guardians-hire-corey-kluber-special-pitching-assistant/
-
-**House Republicans Push Forward With Tax and Medicaid Cuts**\
-`Three key committees advanced legislation that would combine into the “one big beautiful bill” to enact President Trump’s agenda. But the package faces a rocky path in Congress.`\
-https://nytimes.com/2025/05/14/us/politics/congress-tax-medicaid.html
 
