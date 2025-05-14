@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Vivian Nereim, Jonathan Swan and Qasim Nauman`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
+
+**Live Updates: Trump Meets With Syrian Leader in Saudi Arabia, White House Says**\
+`President Trump was meeting with President Ahmed al-Shara, capping a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
+
 **Early Champions League final betting picks: What do we know about Inter and PSG?**\
 `Sam Tighe and Brett Koremenos offer some early betting takes on the Champions League final between Paris Saint-Germain and Inter.`\
 https://nytimes.com/athletic/6353316/2025/05/14/early-champions-league-final-betting-predictions-odds/

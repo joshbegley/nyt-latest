@@ -23,11 +23,11 @@ https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
 https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migrant-workers/
 
 **Here’s the latest.**\
-`By Qasim Nauman and Vivian Nereim`\
+`By Vivian Nereim, Jonathan Swan and Qasim Nauman`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
 
-**Trump Administration Live Updates: President to Attend Summit With Arab Leaders**\
-`President Trump has been received lavishly in Saudi Arabia on the first major overseas trip of his second term. Qatar and the United Arab Emirates are his next stops.`\
+**Live Updates: Trump Meets With Syrian Leader in Saudi Arabia, White House Says**\
+`President Trump was meeting with President Ahmed al-Shara, capping a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
 
 **Sunderland. Dan Ballard. Bedlam.**\
