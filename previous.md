@@ -1,3 +1,19 @@
+**Trump Administration to Weaken Some Limits on PFAS in Drinking Water**\
+`The E.P.A. said it would maintain limits on the two most common PFAS chemicals found in tap water but roll back rules for four others.`\
+https://nytimes.com/2025/05/14/climate/pfas-zeldin-trump-administration.html
+
+**The Windup: What we know about Rose’s reinstatement**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6355025/2025/05/14/pete-rose-reinstatement-the-windup/
+
+**South Africa’s Leader Criticizes Afrikaners Seeking Refuge in U.S.**\
+`President Cyril Ramaphosa called the white South Africans “cowardly” for leaving for the United States.`\
+https://nytimes.com/2025/05/14/world/africa/ramaphosa-south-africa-refugees-coward-white-trump.html
+
+**Foul-line foibles aside, Mitchell Robinson has bruised and battered the Celtics**\
+`Robinson missed most of the season with injuries, but he is so important now, that Boston has resorted to fouling him on purpose.`\
+https://nytimes.com/athletic/6354812/2025/05/14/mitchell-robinson-knicks-playoffs-rebounding-fouls-celtics/
+
 **NHL playoffs Round 2 vibe check: Auston Matthews’ shooting, Jets’ road woes and more**\
 `Three teams are already on the brink of elimination in the second round of this year's NHL playoffs. Here are some trends from the series.`\
 https://nytimes.com/athletic/6354338/2025/05/14/nhl-playoffs-seond-round-jets-auston-matthews/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
 **Ten Hag on Leverkusen shortlist to relace Alonso**\
 `Ten Hag, who has been out of management since leaving Manchester United in October, is a candidate to replace the outgoing Xabi Alonso.`\
 https://nytimes.com/athletic/6066128/2025/05/14/erik-ten-hag-bayer-leverkusen/
-
-**What Are the ‘Freak-Offs’ at the Core of the Sean Combs Case?**\
-`Casandra Ventura, the mogul’s former girlfriend, has described them as marathon sexual encounters that he directed, involving drugs and hired male prostitutes.`\
-https://nytimes.com/2025/05/14/arts/music/freak-offs-diddy-sex-trafficking.html
-
-**Why Evan Bouchard's next contract feels terrifying**\
-`Bouchard is a terrifying player in more ways than one, and he's about to get paid a terrifying number.`\
-https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoffs-contract/
-
-**Cassie will continue testimony about the videotaped hotel assault in 2016.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/cassie-will-continue-testimony-about-the-videotaped-hotel-assault-in-2016
-
-**Chargers 2025 schedule: Jim Harbaugh's second season kicks off in Brazil**\
-`The Chargers will open the season on Friday, Sept. 5, in São Paulo, Brazil, with the Chiefs favored to be the opponent.`\
-https://nytimes.com/athletic/6352986/2025/05/14/los-angeles-chargers-2025-schedule/
 
