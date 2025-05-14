@@ -1,3 +1,7 @@
+**Australian Cyclist Gets Suspended Sentence Over Death of Wife**\
+`Rohan Dennis had pleaded guilty to a charge of committing an aggravated act likely to cause harm, in a vehicle incident that killed Melissa Hoskins, a fellow Olympian.`\
+https://nytimes.com/2025/05/14/world/australia/dennis-sentence-olympic-cyclist-wife-death.html
+
 **Court Sides With New York Times Over Access to E.U. Covid Vaccine Messages**\
 `The case revolved around whether texts between a top E.U. official and a drug company executive counted as a public record that might need to be disclosed.`\
 https://nytimes.com/2025/05/14/world/europe/eu-texts-covid-new-york-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
 **Live Updates: Trump Meets Syrian Leader in Saudi Arabia, White House Says**\
 `President Trump’s meeting with President Ahmed al-Shara capped a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
-
-**Sunderland. Dan Ballard. Bedlam.**\
-`Sunderland have been on an eight-year journey beneath the Premier League - they are just one game away from a return after last-gasp winner`\
-https://nytimes.com/athletic/6354849/2025/05/14/sunderland-dan-ballard-play-off-final/
 
