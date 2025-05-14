@@ -1,3 +1,11 @@
+**Liverpool contact Wirtz representatives to express interest in Leverkusen attacker**\
+`The 22-year-old Germany attacker is one of the most sought-after talents in football — with Bayern Munich and Manchester City also keen.`\
+https://nytimes.com/athletic/6334139/2025/05/14/liverpool-transfer-florian-wirtz/
+
+**Amorim unsure if Man United trio Yoro, De Ligt, and Heaven will be fit for final**\
+`The United manager said that it is unlikely that the defensive trio will be fit for his side’s Premier League game against Chelsea on Friday`\
+https://nytimes.com/athletic/6356137/2025/05/14/man-united-team-news-yoro-de-ligt-heaven/
+
 **Judge Orders Georgetown Academic Released From Immigration Detention**\
 `Badar Khan Suri, an Indian citizen teaching on an academic visa, has been held by the government, which has claimed he violated the terms of his academic visa.`\
 https://nytimes.com/2025/05/14/us/politics/georgetown-academic-immigration-detention.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6349397/2025/05/14/dejan-kulusevski-tottenham-injur
 **Tom Brady to take Indy 500 lap with Jimmie Johnson before race's Fox debut**\
 `The seven-time Super Bowl champ will ride along with the seven-time NASCAR champ ahead of Fox's first Indy 500 broadcast.`\
 https://nytimes.com/athletic/6355933/2025/05/14/tom-brady-indy-500-jimmie-johnson-fox/
-
-**Trump Claims Deals Were Signed on Middle East Tour. Here’s a Closer Look.**\
-`White House officials say President Trump secured $600 billion in investment on his trip to Saudi Arabia but details were vague and some deals were already in the pipeline.`\
-https://nytimes.com/2025/05/14/us/politics/trump-deals-middle-east-saudi-arabia-qatar-uae.html
-
-**Couhig, Trossclair and Redwood Holdings Limited complete Reading takeover**\
-`Redwood’s acquisition of Reading ends Dai Yongge’s controversial eight-year ownership of the club.`\
-https://nytimes.com/athletic/6355976/2025/05/14/reading-takeover-redwood-couhig/
 

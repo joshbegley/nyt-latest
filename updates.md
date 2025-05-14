@@ -1,3 +1,17 @@
+**Liverpool contact Wirtz representatives to express interest in Leverkusen attacker**\
+`The 22-year-old Germany attacker is one of the most sought-after talents in football — with Bayern Munich and Manchester City also keen.`\
+https://nytimes.com/athletic/6334139/2025/05/14/liverpool-transfer-florian-wirtz/
+
+**Amorim unsure if Man United trio Yoro, De Ligt, and Heaven will be fit for final**\
+`The United manager said that it is unlikely that the defensive trio will be fit for his side’s Premier League game against Chelsea on Friday`\
+https://nytimes.com/athletic/6356137/2025/05/14/man-united-team-news-yoro-de-ligt-heaven/
+
+**EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
+`Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
+
+`\
+https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-predictions-odds-update/
+
 **EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
 `Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
 
