@@ -1,3 +1,7 @@
+**India and Pakistan Talked Big, But Satellite Imagery Shows Limited Damage**\
+`While the attacks were widespread, the damage was far more contained than both sides claimed.`\
+https://nytimes.com/interactive/2025/05/14/world/asia/india-pakistan-attack-damage-satellite-images.html
+
 **We Study Fascism. And We’re Leaving the U.S.**\
 `The decision by these three Yale professors to move to Canada is both a warning and a call to action.`\
 https://nytimes.com/video/opinion/100000010157022/yale-canada-fascism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/crosswords/spelling-bee-forum.html
 **Yankees’ Aaron Boone explains erupting on umpire after ejection vs. Mariners**\
 `Jasson Domínguez disagreed with a called third strike and Boone said he was trying to be a distraction and avoid Domínguez getting ejected.`\
 https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
-
-**FIFA accused of 'utter negligence' towards migrant workers in Saudi**\
-`The scathing criticism of world football’s governing body is detailed in two new reports on migrant-worker deaths in the Gulf state.`\
-https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migrant-workers/
 
