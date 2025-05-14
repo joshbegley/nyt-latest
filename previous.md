@@ -1,3 +1,11 @@
+**Strike on Hospital Highlights Israeli Attacks on Gaza Health System**\
+`Aid groups and U.N. investigations have accused Israel of aiming to destroy Gaza’s health infrastructure. Israel says it is forced to strike hospitals it says are used by Hamas for military purposes.`\
+https://nytimes.com/2025/05/14/world/middleeast/israel-medical-facility-strikes-gaza-hamas.html
+
+**How can the Capitals come back from a 3-1 deficit? Start here**\
+`The Capitals are staring down elimination in Game 5. Here's what would help them start to dig out from the 3-1 hole.`\
+https://nytimes.com/athletic/6356581/2025/05/14/capitals-hurricanes-game-5-comeback-nhl-playoffs/
+
 **Dodgers calling up top prospect Dalton Rushing: Where will he play?**\
 `Rushing was The Athletic’s 16th-ranked prospect in its preseason top 100, but his primary position (catcher) is filled by Will Smith.`\
 https://nytimes.com/athletic/6356618/2025/05/14/dodgers-dalton-rushing-austin-barnes-dfa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/health/detained-russian-scientist-harvard.html
 **As Harvard Battles Trump, Its President Will Take a 25% Pay Cut**\
 `The university is facing cuts of more than $2.6 billion in federal funding and has already taken other steps to save money.`\
 https://nytimes.com/2025/05/14/us/harvard-garber-trump-pay.html
-
-**The Trump Administration Is Lining Up More Countries to Take Its Deportees**\
-`Besides El Salvador, where the United States have already sent detainees, Rwanda and Libya have records of mistreating migrant detainees.`\
-https://nytimes.com/2025/05/14/world/trump-administration-deportees.html
-
-**Tiny Love Stories: ‘Why Don’t You Have a Girlfriend?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/05/14/style/tiny-modern-love-stories-why-dont-you-have-a-girlfriend.html
 
