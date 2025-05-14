@@ -1,3 +1,11 @@
+**Clerk in Murdaugh Trial Is Charged With Misconduct and Perjury**\
+`Becky Hill had handled the trial in which Alex Murdaugh was convicted in 2023 of murdering his wife and younger son. She was arrested on Wednesday.`\
+https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.html
+
+**TikTok Influencer in Mexico Is Shot Dead While Livestreaming**\
+`The death of Valeria Márquez, 23, was the latest reminder of the rise in violence against women in the country.`\
+https://nytimes.com/2025/05/14/world/valeria-marquez-tiktok-influencer-live-murder-mexico.html
+
 **Why Does the Trump Administration Want a New Air Force One?**\
 `The two 747-200s that serve as the American president’s command center in the sky are more than 30 years are old and were meant to be phased out of service years ago.`\
 https://nytimes.com/2025/05/14/us/politics/why-does-trump-administration-want-a-new-air-force-one.html
