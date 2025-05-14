@@ -1,3 +1,11 @@
+**The Trump Administration Is Lining Up More Countries to Take Its Deportees**\
+`Besides El Salvador, where the United States have already sent detainees, Rwanda and Libya have records of mistreating migrant detainees.`\
+https://nytimes.com/2025/05/14/world/trump-administration-deportees.html
+
+**Tiny Love Stories: ‘Why Don’t You Have a Girlfriend?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/14/style/tiny-modern-love-stories-why-dont-you-have-a-girlfriend.html
+
 **AI Skills: The New Workplace Currency **\
 `In today’s economy, AI skills are capital. The leaders who act now will shape the future of work.`\
 https://nytimes.com/paidpost/general-assembly/ai/the-new-workplace-currency.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6356421/2025/05/14/pete-rose-daughter-hall-of-fame/
 `The Trump administration has declared litigation to hold oil companies responsible for climate change a threat to the American economy and has taken aggressive steps to fight it.`\
 https://nytimes.com/2025/05/14/climate/state-climate-lawsuits.html
 
-**Northern Lights-Like Green Glow Spotted Over Mars by NASA’s Perseverance Rover**\
+**Northern Lights-Like Glow Spotted Over Mars by NASA Rover**\
 `A serendipitous solar outburst let scientists point the robot’s cameras toward the Red Planet’s sky to spot a feature shared with our Blue Marble.`\
 https://nytimes.com/2025/05/14/science/mars-aurora-northern-lights.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6355897/2025/05/14/ravens-derrick-henry-two-year-co
 **Dozens Killed in Israeli Strikes in Northern Gaza, Officials Say**\
 `People rushed to rescue survivors following Israeli strikes in northern Gaza. The Israeli government didn’t immediately comment on the strikes.`\
 https://nytimes.com/video/world/middleeast/100000010169503/israeli-strikes-northern-gaza.html
-
-**Real Madrid in talks with Huijsen and Bournemouth over move for defender**\
-`The 20-year-old has attracted interest from across Europe with Liverpool, Chelsea and Arsenal showing interest.`\
-https://nytimes.com/athletic/6257033/2025/05/14/dean-huijsen-transfer-real-madrid/
-
-**Ken Holland to be announced as L.A. Kings' general manager**\
-`The Detroit Red Wings won the Stanley Cup 3 times with Holland as their GM.`\
-https://nytimes.com/athletic/6351809/2025/05/14/ken-holland-la-kings-gm/
 
