@@ -1,3 +1,19 @@
+**Rick Tocchet hired as Philadelphia Flyers coach**\
+`Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
+https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
+
+**Sabalenka picks up code violation for swearing in Italian Open loss to Zheng**\
+`Her remarkable run of making finals came to an abrupt end when Zheng beat her in straight sets in the quarterfinals.`\
+https://nytimes.com/athletic/6356700/2025/05/14/aryna-sabalenka-loss-italian-open/
+
+**Ex-National Guardsman Planned to Attack U.S. Army Base for ISIS, U.S. Says**\
+`The suspect sought to use a drone, Molotov cocktails and armor-piercing ammunition to attack a base outside Detroit on Tuesday, the authorities said.`\
+https://nytimes.com/2025/05/14/us/michigan-national-guard-isis-attack.html
+
+**‘Mission: Impossible — The Final Reckoning’ Review: Tom Cruise Defies All**\
+`For the eighth installment of this stunt-spectacular franchise, the star returns to fight off A.I. planetary domination, the bends, gravity and maybe mortality itself.`\
+https://nytimes.com/2025/05/14/movies/mission-impossible-final-reckoning-review-tom-cruise.html
+
 **Can Eurovision Avoid Politics in Neutral Switzerland?**\
 `The competition is run by an opaque Swiss organization that wants to sidestep controversies that could spoil the fun.`\
 https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcasting-union.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-p
 **Strike on Hospital Highlights Israeli Attacks on Gaza Health System**\
 `Aid groups and U.N. investigations have accused Israel of aiming to destroy Gaza’s health infrastructure. Israel says it is forced to strike hospitals it says are used by Hamas for military purposes.`\
 https://nytimes.com/2025/05/14/world/middleeast/israel-medical-facility-strikes-gaza-hamas.html
-
-**How can the Capitals come back from a 3-1 deficit? Start here**\
-`The Capitals are staring down elimination in Game 5. Here's what would help them start to dig out from the 3-1 hole.`\
-https://nytimes.com/athletic/6356581/2025/05/14/capitals-hurricanes-game-5-comeback-nhl-playoffs/
-
-**Dodgers calling up top prospect Dalton Rushing: Where will he play?**\
-`Rushing was The Athletic’s 16th-ranked prospect in its preseason top 100, but his primary position (catcher) is filled by Will Smith.`\
-https://nytimes.com/athletic/6356618/2025/05/14/dodgers-dalton-rushing-austin-barnes-dfa/
-
-**The Boom Years of Global Charity Are Over. What Comes Next?**\
-`We’ve come to see developmental aid as a basic fact of the world. But now the money is drying up.`\
-https://nytimes.com/2025/05/14/opinion/philanthropy-foreign-aid.html
-
-**Dick Vitale says he is again cancer-free: 'I'm on cloud nine!'**\
-`The news is the latest in a winding road of ups and downs for the 85-year-old, who has had various cancer diagnoses in recent years.`\
-https://nytimes.com/athletic/6356176/2025/05/14/dick-vitale-cancer-free-announcement/
 
