@@ -1,3 +1,8 @@
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **‘My Opinions About Vaccines Are Irrelevant,’ Kennedy Says**\
 `During a congressional hearing on the Trump administration’s drastic overhaul of federal health agencies on Wednesday, Robert F. Kennedy Jr., the health secretary, said, “I don’t think people should be taking advice, medical advice from me.”`\
 https://nytimes.com/video/us/politics/100000010170056/pocan-kennedy-child-vaccine.html
