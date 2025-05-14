@@ -1,3 +1,7 @@
+**Court Sides With New York Times in Case Over Access to E.U. Text Messages**\
+`The case revolved around whether a text message counted as a public record that might need to be disclosed.`\
+https://nytimes.com/2025/05/14/world/europe/eu-texts-covid-new-york-times.html
+
 **Early Champions League final betting picks: What do we know about Inter and PSG?**\
 `Sam Tighe and Brett Koremenos offer some early betting takes on the Champions League final between Paris Saint-Germain and Inter.`\
 https://nytimes.com/athletic/6353316/2025/05/14/early-champions-league-final-betting-predictions-odds/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migran
 `By Vivian Nereim, Jonathan Swan and Qasim Nauman`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
 
-**Live Updates: Trump Meets With Syrian Leader in Saudi Arabia, White House Says**\
-`President Trump was meeting with President Ahmed al-Shara, capping a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
+**Live Updates: Trump Meets Syrian Leader in Saudi Arabia, White House Says**\
+`President Trump’s meeting with President Ahmed al-Shara capped a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
 
 **Sunderland. Dan Ballard. Bedlam.**\
 `Sunderland have been on an eight-year journey beneath the Premier League - they are just one game away from a return after last-gasp winner`\
 https://nytimes.com/athletic/6354849/2025/05/14/sunderland-dan-ballard-play-off-final/
-
-**Late Night Is Glad President Trump Has Left the Country**\
-`Jordan Klepper suggested that someone lock the doors while President Trump is in the Middle East this week.`\
-https://nytimes.com/2025/05/14/arts/television/late-night-trump-saudi-arabia.html
 

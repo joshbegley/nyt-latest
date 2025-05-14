@@ -1,3 +1,11 @@
+**Court Sides With New York Times in Case Over Access to E.U. Text Messages**\
+`The case revolved around whether a text message counted as a public record that might need to be disclosed.`\
+https://nytimes.com/2025/05/14/world/europe/eu-texts-covid-new-york-times.html
+
+**Live Updates: Trump Meets Syrian Leader in Saudi Arabia, White House Says**\
+`President Trump’s meeting with President Ahmed al-Shara capped a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
+
 **Here’s the latest.**\
 `By Vivian Nereim, Jonathan Swan and Qasim Nauman`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
