@@ -1,3 +1,7 @@
+**Why Does the Trump Administration Want a New Air Force One?**\
+`The two 747-200s that serve as the American president’s command center in the sky are more than 30 years are old and were meant to be phased out of service years ago.`\
+https://nytimes.com/2025/05/14/us/politics/trump-qatar-air-force-one.html
+
 **Clerk in Murdaugh Trial Is Charged With Misconduct and Perjury**\
 `Becky Hill had handled the trial in which Alex Murdaugh was convicted in 2023 of murdering his wife and younger son. She was arrested on Wednesday.`\
 https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.html

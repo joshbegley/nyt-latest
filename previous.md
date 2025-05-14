@@ -8,7 +8,7 @@ https://nytimes.com/2025/05/14/world/valeria-marquez-tiktok-influencer-live-murd
 
 **Why Does the Trump Administration Want a New Air Force One?**\
 `The two 747-200s that serve as the American president’s command center in the sky are more than 30 years are old and were meant to be phased out of service years ago.`\
-https://nytimes.com/2025/05/14/us/politics/why-does-trump-administration-want-a-new-air-force-one.html
+https://nytimes.com/2025/05/14/us/politics/trump-qatar-air-force-one.html
 
 **101 Degrees in May? Even for Texas, This Is Hot.**\
 `Forecasters expect multiple records to be broken over the next week as an early heat wave settles over the region.`\
