@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6354838/2025/05/14/stars-nhl-playoffs-game-4-jets/
 
+**Even at partial strength, the Stars look unstoppable. Look out, NHL**\
+`One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
+`\
+https://nytimes.com/athletic/6354838/2025/05/14/stars-nhl-playoffs-game-4-jets/
+
 **Angel City's Savy King has surgery after collapsing on field**\
 `King collapsed on the field during Friday's match against the Utah Royals.`\
 https://nytimes.com/athletic/6354934/2025/05/14/angel-city-savy-king-surgery-collapse-on-field/
