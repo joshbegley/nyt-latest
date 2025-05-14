@@ -1,3 +1,11 @@
+**Dak Prescott on adding George Pickens; 'We're putting together a nice group of weapons'**\
+`Dak Prescott spoke about the new Cowboys receiver Wednesday: "He thinks it's his ball when it's in the air," he said of George Pickens.`\
+https://nytimes.com/athletic/6355942/2025/05/14/cowboys-dak-prescott-george-pickens-comments/
+
+**'It's been a good place for me': Rory McIlroy and the Quail Hollow win that started it all**\
+`Three holes on Friday afternoon in 2010 as a young McIlroy just tried to make the cut might have altered the course of McIlroy's career.`\
+https://nytimes.com/athletic/6355862/2025/05/14/rory-mcilroy-quail-hollow-pga-tour-championship/
+
 **Cannes Reacts to Gérard Depardieu Verdict With Soul-Searching and Shrugs**\
 `The actor, who was found guilty of sexual assault on Tuesday, was a festival stalwart and had brought nearly 30 movies to the event.`\
 https://nytimes.com/2025/05/14/movies/cannes-gerard-depardieu-verdict.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/well/fluoride-products-fda-children.html
 **The longest game in PWHL history featured mustard packets taped to the glass. Why?**\
 `A sports nutritionist explains the method behind the madness that helped the Ottawa Charge play through four overtimes.`\
 https://nytimes.com/athletic/6355770/2025/05/14/pwhl-longest-game-mustard-packets-montreal-ottawa/
-
-**Cartel Family Members Cross Border in Apparent Deal With U.S., Official Says**\
-`Mexico’s security secretary confirmed reports that 17 family members of Sinaloa Cartel leaders had entered the United States, likely as part of a deal with the Trump administration.`\
-https://nytimes.com/2025/05/14/world/americas/mexico-cartel-chapo-family.html
-
-**This Dinosaur Had Feathers and Probably Flew Like a Chicken**\
-`New insights into the flying capabilities of a nonbird dinosaur were drawn from an unusually well-preserved specimen known as the Chicago Archaeopteryx.`\
-https://nytimes.com/2025/05/14/science/archaeopteryx-dinosaur-feathers-flight.html
 
