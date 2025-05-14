@@ -1,3 +1,11 @@
+**Why Evan Bouchard's next contract could be terrifying**\
+`Bouchard is a terrifying player in more ways than one, and he's about to get paid a terrifying number.`\
+https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoffs-contract/
+
+**Cassie will continue testimony about the videotaped hotel assault in 2016.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/cassie-will-continue-testimony-about-the-videotaped-hotel-assault-in-2016
+
 **Chargers 2025 schedule: Jim Harbaugh's second season kicks off in Brazil**\
 `The Chargers will open the season on Friday, Sept. 5, in São Paulo, Brazil, with the Chiefs favored to be the opponent.`\
 https://nytimes.com/athletic/6352986/2025/05/14/los-angeles-chargers-2025-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/us/california-newsom-healthcare-budget.html
 **A.I. Starting in Pre-K Would Be an ‘Unmitigated Disaster’**\
 `The secretary of education said it would be a ‘wonderful thing.’ Lots of parents disagree.`\
 https://nytimes.com/2025/05/14/opinion/trump-ai-elementary.html
-
-**My Husband and I Separated. May I Request Different Tables at a Wedding?**\
-`A reader who received abuse from her husband at a recent funeral wants to know whether she can tactfully request separate seating assignments.`\
-https://nytimes.com/2025/05/14/style/estranged-partner-wedding-seating-assignments.html
-
-**NFL holiday schedule: Cowboys to host Chiefs in Thanksgiving blockbuster**\
-`The Chiefs played on Christmas and Black Friday in 2024, but haven't played on Thanksgiving since 2006.`\
-https://nytimes.com/athletic/6355479/2025/05/14/nfl-schedule-thanksgiving-christmas-cowboys-chiefs/
 
