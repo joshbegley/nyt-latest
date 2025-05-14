@@ -1,3 +1,11 @@
+**Map: 6.1-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
+
+**A Schoolyard Fight, a Burst of Gunfire and a Teen Charged With Murder**\
+`A boy in the Bronx fired three shots into a crowd, most likely aiming at another boy who had punched him, the police said. One bullet struck Evette Jeffrey, 16, in the head, killing her.`\
+https://nytimes.com/2025/05/13/nyregion/evette-jeffrey-murder-bronx-shooting.html
+
 **A Book Points to Biden’s Decline and Democrats’ Cowardice: 6 Takeaways**\
 `The book, “Original Sin,” describes how Mr. Biden’s aides quashed concerns about his age. But the anonymous accounts show that many Democrats are still afraid to discuss the issue publicly.`\
 https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
