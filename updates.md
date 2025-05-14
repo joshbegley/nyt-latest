@@ -1,3 +1,7 @@
+**ACC commissioner Jim Phillips open to supporting CFP straight seeding model**\
+`Currently, the top four seeds are reserved for the four highest-ranked conference champions selected to the field.`\
+https://nytimes.com/athletic/6356228/2025/05/14/college-football-playoff-seeding-jim-phillips/
+
 **Should Pete Rose get into the Hall of Fame? We asked 12 current members**\
 `What do baseball’s immortals think about the new guy on the waiting list? Here’s what they told us.`\
 https://nytimes.com/athletic/6356249/2025/05/14/pete-rose-hall-of-famers-reactions/

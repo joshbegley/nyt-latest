@@ -11,7 +11,7 @@ https://nytimes.com/2025/05/14/realestate/montauk-members-club-mary-lous.html
 https://nytimes.com/athletic/6355687/2025/05/14/nba-daily-cleveland-cavaliers-2025-26-season/
 
 **ACC commissioner Jim Phillips open to supporting CFP straight seeding model**\
-`Currently, the top four seeds are reserved for the four highest ranked conference champions selected to the field.`\
+`Currently, the top four seeds are reserved for the four highest-ranked conference champions selected to the field.`\
 https://nytimes.com/athletic/6356228/2025/05/14/college-football-playoff-seeding-jim-phillips/
 
 **Nahid Rachlin, Novelist Who Explored the Iranian Psyche, Dies at 85**\
