@@ -1,3 +1,7 @@
+**Cavaliers' reward for moderate success is a series of difficult offseason choices**\
+`After another second-round exit, Cleveland's future with a suddenly expensive roster is in question.`\
+https://nytimes.com/athletic/6354221/2025/05/13/cleveland-cavaliers-offseason-questions-ty-jerome-deandre-hunter-nba/
+
 **NBA playoffs takeaways: Pacers defeat Cavaliers 114-105, win series 4-1**\
 `The Pacers eliminated the East’s top-seeded team on their home floor Tuesday night.`\
 https://nytimes.com/athletic/6354219/2025/05/13/pacers-cavaliers-thunder-nuggets-nba-playoffs-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/us/politics/pete-buttigieg-iowa-democrats.html
 **Christopher Bond, Former Missouri Governor and U.S. Senator, Dies at 86**\
 `A Republican known as Kit, he was the state’s youngest governor. When he retired from Congress after four terms, he said he didn’t want to be the state’s oldest senator.`\
 https://nytimes.com/2025/05/13/us/politics/christopher-bond-dead.html
-
-**Dodgers' Roki Sasaki lands on IL with shoulder impingement**\
-`LOS ANGELES — The mystery surrounding Los Angeles Dodgers rookie Roki Sasaki’s gradual dip in fastball velocity deepened Tuesday afternoon as the Dodgers placed the 23-year-old Japanese right-hander on the injured list.`\
-https://nytimes.com/athletic/6354397/2025/05/13/roki-sasaki-injured-sources/
 

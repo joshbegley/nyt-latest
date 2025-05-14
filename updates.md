@@ -1,3 +1,7 @@
+**Cavaliers' reward for moderate success is a series of difficult offseason choices**\
+`After another second-round exit, Cleveland's future with a suddenly expensive roster is in question.`\
+https://nytimes.com/athletic/6354221/2025/05/13/cleveland-cavaliers-offseason-questions-ty-jerome-deandre-hunter-nba/
+
 **NBA playoffs takeaways: Pacers defeat Cavaliers 114-105, win series 4-1**\
 `The Pacers eliminated the East’s top-seeded team on their home floor Tuesday night.`\
 https://nytimes.com/athletic/6354219/2025/05/13/pacers-cavaliers-thunder-nuggets-nba-playoffs-takeaways/
