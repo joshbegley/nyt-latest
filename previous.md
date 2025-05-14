@@ -1,3 +1,23 @@
+**'I hit rock bottom and my family told me to take action. Now I'm enjoying my football again'**\
+`The former Manchester United team-mate of Marcus Rashford reached a career nadir this season - he responded to silence his critics`\
+https://nytimes.com/athletic/6352120/2025/05/14/ashley-fletcher-blackpool-west-ham-manchester-united/
+
+**Xhaka, Zirkzee, Sterling: When Premier League fans boos their own team's players**\
+`Trent Alexander-Arnold being booed by Liverpool fans surprised many on Sunday, but he and Liverpool are not alone...`\
+https://nytimes.com/athletic/6352346/2025/05/14/premier-league-booing-own-players/
+
+**Beyond Tariff Truce, China Readies for a Rocky Time With U.S.**\
+`Beijing is trying to win over other countries with vows of economic cooperation. But it won’t back down from its territorial claims, experts predict.`\
+https://nytimes.com/2025/05/14/world/asia/china-us-tariffs-security.html
+
+**Connections: Sports Edition Coach: Hints for May 14, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6354541/2025/05/14/connections-sports-edition-hints-for-may-14-2025/
+
+**The World Is Wooing U.S. Researchers Shunned by Trump**\
+`As President Trump guts American research institutions, world leaders see a “once-in-a-century brain gain opportunity.”`\
+https://nytimes.com/2025/05/14/business/economy/trump-research-brain-drain.html
+
 **Corrections: May 14, 2025**\
 `Corrections that appeared in print on Wednesday, May 14, 2025.`\
 https://nytimes.com/2025/05/13/pageoneplus/corrections-may-14-2025.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6354694/2025/05/13/mets-kodai-senga-scouting-report
 **Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
 `The Jets, now facing elimination, have lost nine consecutive road playoff games.`\
 https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
-
-**Cavaliers' reward for moderate success is a series of difficult offseason choices**\
-`After another second-round exit, Cleveland's future with a suddenly expensive roster is in question.`\
-https://nytimes.com/athletic/6354221/2025/05/13/cleveland-cavaliers-offseason-questions-ty-jerome-deandre-hunter-nba/
-
-**NBA playoffs takeaways: Pacers defeat Cavaliers 114-105, win series 4-1**\
-`The Pacers eliminated the East’s top-seeded team on their home floor Tuesday night.`\
-https://nytimes.com/athletic/6354219/2025/05/13/pacers-cavaliers-thunder-nuggets-nba-playoffs-takeaways/
-
-**Debase Oneself**\
-`Get into shape with Rebecca Goldstein and Adam Wagner’s crossword.`\
-https://nytimes.com/2025/05/13/crosswords/daily-puzzle-2025-05-14.html
-
-**Here are the 16 baseball figures besides Pete Rose who got reinstated**\
-`A rule that has made Pete Rose eligible for the Hall of Fame also impacts 16 others, including the "Black Sox," a former owner and more.`\
-https://nytimes.com/athletic/6354320/2025/05/13/16-baseball-figures-reinstated-pete-rose/
-
-**The Cavaliers are headed home — much earlier than anyone expected**\
-`Cleveland lost Game 5 to the Indiana Pacers, 114-105, and was eliminated by dropping this Eastern Conference semifinal series, 4-1.`\
-https://nytimes.com/athletic/6354356/2025/05/13/pacers-cavaliers-eliminated-nba-playoffs/
 
