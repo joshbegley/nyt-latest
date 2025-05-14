@@ -1,3 +1,7 @@
+**Burberry to Cut Nearly 20% of Jobs as Luxury Sales Sag**\
+`The British fashion house, which reported poor annual sales in a precarious time for the global luxury industry, is looking to save 60 million pounds in cost-cutting efforts.`\
+https://nytimes.com/2025/05/14/business/burberry-job-cuts.html
+
 **The Athletic FC: Events that led to Awoniyi's coma, Man City keen on Reijnders**\
 `Today in TAFC: The events that saw Awoniyi placed in an induced coma. Plus: Man City hope to sign Reijnders, new U.S. national team shirts`\
 https://nytimes.com/athletic/6355168/2025/05/14/awoniyi-forest-coma-reijnders-man-city/
