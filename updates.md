@@ -1,3 +1,11 @@
+**Dodgers calling up top prospect Dalton Rushing: Where will he play?**\
+`Rushing was The Athletic’s 16th-ranked prospect in its preseason top 100, but his primary position (catcher) is filled by Will Smith.`\
+https://nytimes.com/athletic/6356618/2025/05/14/dodgers-dalton-rushing-austin-barnes-dfa/
+
+**The Boom Years of Global Charity Are Over. What Comes Next?**\
+`We’ve come to see developmental aid as a basic fact of the world. But now the money is drying up.`\
+https://nytimes.com/2025/05/14/opinion/philanthropy-foreign-aid.html
+
 **Dick Vitale says he is again cancer-free: 'I'm on cloud nine!'**\
 `The news is the latest in a winding road of ups and downs for the 85-year-old, who has had various cancer diagnoses in recent years.`\
 https://nytimes.com/athletic/6356176/2025/05/14/dick-vitale-cancer-free-announcement/
