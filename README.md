@@ -1,3 +1,7 @@
+**Cartel Family Members Crossed Into U.S., Mexican Official Says**\
+`Mexico’s security secretary confirmed reports that 17 family members of Sinaloa Cartel leaders had crossed into the United States, likely as part of a deal with the Trump administration.`\
+https://nytimes.com/2025/05/14/world/americas/mexico-cartel-chapo-family.html
+
 **This Dinosaur Had Feathers and Probably Flew Like a Chicken**\
 `New insights into the flying capabilities of a nonbird dinosaur were drawn from an unusually well-preserved specimen known as the Chicago Archaeopteryx.`\
 https://nytimes.com/2025/05/14/science/archaeopteryx-dinosaur-feathers-flight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/world/americas/pepe-mujica-uruguay.html
 **3 Are Arrested in Russia-Linked Sabotage Plot, Germany Says**\
 `The men, Ukrainian nationals, were arrested in Germany and Switzerland, the state prosecutor in Berlin said. They are suspected of planning to sabotage commercial freight infrastructure.`\
 https://nytimes.com/2025/05/14/world/europe/3-are-arrested-in-russia-linked-sabotage-plot-germany-says.html
-
-**Taking Inches in Battle, Russia Demands Miles in Talks**\
-`Moscow thinks it’s winning in Ukraine and can play hardball diplomatically. Washington sees costly, incremental gains and an unrealistic negotiating position.`\
-https://nytimes.com/2025/05/14/world/europe/russia-ukraine-ceasefire-putin-zelensky-sanctions.html
 

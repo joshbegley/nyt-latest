@@ -1,3 +1,19 @@
+**This Dinosaur Had Feathers and Probably Flew Like a Chicken**\
+`New insights into the flying capabilities of a nonbird dinosaur were drawn from an unusually well-preserved specimen known as the Chicago Archaeopteryx.`\
+https://nytimes.com/2025/05/14/science/archaeopteryx-dinosaur-feathers-flight.html
+
+**Spring Comes for the Cutlets**\
+`Cybelle Tondu’s new recipe combines crispy-edged chicken cutlets with tender lettuce, sweet peas, salty prosciutto and a buttery pan sauce.`\
+https://nytimes.com/2025/05/14/dining/chicken-cutlets-for-spring.html
+
+**Is It Ethical to Buy Used Books and Music?**\
+`The magazine’s Ethicist columnist on what consumers owe to artists.`\
+https://nytimes.com/2025/05/14/magazine/used-books-music-ethics.html
+
+**Seven Takes on Opera’s Most Lurid Dance**\
+`In Strauss’s “Salome,” is the Dance of the Seven Veils a seduction? A striptease? A cry for help? Watch some memorable versions from its long history.`\
+https://nytimes.com/2025/05/14/arts/music/salome-seven-veils.html
+
 **Qatar, not to be outdone, welcomes Trump with camels, swords and ‘perfecto’ marble.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/qatar-not-to-be-outdone-welcomes-trump-with-camels-swords-and-perfecto-marble
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/world/europe/3-are-arrested-in-russia-linked-sabo
 **Taking Inches in Battle, Russia Demands Miles in Talks**\
 `Moscow thinks it’s winning in Ukraine and can play hardball diplomatically. Washington sees costly, incremental gains and an unrealistic negotiating position.`\
 https://nytimes.com/2025/05/14/world/europe/russia-ukraine-ceasefire-putin-zelensky-sanctions.html
-
-**Trump Administration to Weaken Some Limits on PFAS in Drinking Water**\
-`The E.P.A. said it would maintain limits on the two most common PFAS chemicals found in tap water but roll back rules for four others.`\
-https://nytimes.com/2025/05/14/climate/pfas-zeldin-trump-administration.html
-
-**The Windup: What we know about Rose’s reinstatement**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6355025/2025/05/14/pete-rose-reinstatement-the-windup/
-
-**South Africa’s Leader Criticizes Afrikaners Seeking Refuge in U.S.**\
-`President Cyril Ramaphosa called the white South Africans “cowardly” for leaving for the United States.`\
-https://nytimes.com/2025/05/14/world/africa/ramaphosa-south-africa-refugees-coward-white-trump.html
-
-**Foul-line foibles aside, Mitchell Robinson has bruised and battered the Celtics**\
-`Robinson missed most of the season with injuries, but he is so important now, that Boston has resorted to fouling him on purpose.`\
-https://nytimes.com/athletic/6354812/2025/05/14/mitchell-robinson-knicks-playoffs-rebounding-fouls-celtics/
 
