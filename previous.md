@@ -1,3 +1,11 @@
+**Ex-Liverpool assistant Lijnders set for talks with Norwich over head coach job**\
+`The 42-year-old was sacked by Red Bull Salzburg in December 2024.`\
+https://nytimes.com/athletic/6357117/2025/05/14/liverpool-pep-lijnders-norwich-job/
+
+**Has Your Company Changed Its D.E.I. Policies? We Want to Hear From You.**\
+`The New York Times is looking to talk to people whose work life has been affected by changes to diversity, equity and inclusion policies.`\
+https://nytimes.com/2025/05/14/us/dei-policies-changes.html
+
 **Man Who Threatened U.S. Senator From Nevada Gets Nearly 4 Years in Prison**\
 `The man, John Anthony Miller, left a series of messages spewing antisemitic vitriol on the office voice mail system of Senator Jacky Rosen, the authorities said.`\
 https://nytimes.com/2025/05/14/us/jacky-rosen-threats-las-vegas-man-sentenced.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/t-magazine/art-instagram-tiktok-social-media.html
 **Bill de Blasio Agrees to Pay $329,000 to Settle Campaign Expense Dispute**\
 `The former mayor agreed to the settlement for violating New York City conflicts of interest law by bringing his security detail on trips during his failed 2019 presidential bid.`\
 https://nytimes.com/2025/05/14/nyregion/deblasio-settlement-security-conflict.html
-
-**Trump Meets Syria’s Leader After Vowing to Lift Sanctions on Ravaged Nation**\
-`“The sanctions were really crippling,” President Trump said, before he traveled to Qatar, where he was given a lavish welcome.`\
-https://nytimes.com/2025/05/14/world/middleeast/trump-syria-al-shara-sanctions.html
-
-**Nora Aunor, Singer-Actress Called ‘the Superstar’ in Philippines, Dies at 71**\
-`And her fans were called Noranians for their devotion to a performer who had enthralled her country — onscreen and on the concert stage — since she was a teenager.`\
-https://nytimes.com/2025/05/14/arts/nora-aunor-dead.html
 

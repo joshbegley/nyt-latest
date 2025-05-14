@@ -1,3 +1,11 @@
+**Ex-Liverpool assistant Lijnders set for talks with Norwich over head coach job**\
+`The 42-year-old was sacked by Red Bull Salzburg in December 2024.`\
+https://nytimes.com/athletic/6357117/2025/05/14/liverpool-pep-lijnders-norwich-job/
+
+**Has Your Company Changed Its D.E.I. Policies? We Want to Hear From You.**\
+`The New York Times is looking to talk to people whose work life has been affected by changes to diversity, equity and inclusion policies.`\
+https://nytimes.com/2025/05/14/us/dei-policies-changes.html
+
 **Man Who Threatened U.S. Senator From Nevada Gets Nearly 4 Years in Prison**\
 `The man, John Anthony Miller, left a series of messages spewing antisemitic vitriol on the office voice mail system of Senator Jacky Rosen, the authorities said.`\
 https://nytimes.com/2025/05/14/us/jacky-rosen-threats-las-vegas-man-sentenced.html

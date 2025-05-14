@@ -1,3 +1,7 @@
+**Teammate describes sex acts in Hockey Canada sexual assault trial**\
+`Complainant in sexual assault trial concludes her ninth day in the witness box with re-examination of her previous testimony.`\
+https://nytimes.com/athletic/6356075/2025/05/14/hockey-canada-sexual-assault-trial-testimony-2/
+
 **Ex-Liverpool assistant Lijnders set for talks with Norwich over head coach job**\
 `The 42-year-old was sacked by Red Bull Salzburg in December 2024.`\
 https://nytimes.com/athletic/6357117/2025/05/14/liverpool-pep-lijnders-norwich-job/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/doge-watchdog-case-appeals-ruling.htm
 **So You’re an Artist? How Many Followers Do You Have?**\
 `A growing genre of work is defined not by its content but by its audience on social media.`\
 https://nytimes.com/2025/05/14/t-magazine/art-instagram-tiktok-social-media.html
-
-**Bill de Blasio Agrees to Pay $329,000 to Settle Campaign Expense Dispute**\
-`The former mayor agreed to the settlement for violating New York City conflicts of interest law by bringing his security detail on trips during his failed 2019 presidential bid.`\
-https://nytimes.com/2025/05/14/nyregion/deblasio-settlement-security-conflict.html
 
