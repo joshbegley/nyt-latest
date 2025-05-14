@@ -1,3 +1,19 @@
+**Early Champions League final betting picks: What do we know about Inter and PSG?**\
+`Sam Tighe and Brett Koremenos offer some early betting takes on the Champions League final between Paris Saint-Germain and Inter.`\
+https://nytimes.com/athletic/6353316/2025/05/14/early-champions-league-final-betting-predictions-odds/
+
+**Shoes On or Shoes Off?**\
+`Do people leave their shoes on in your home — or do you and your family prefer them off?`\
+https://nytimes.com/2025/05/14/learning/shoes-on-or-shoes-off.html
+
+**A ‘Quixotic’ Fight to Protect a Bird That Can Be Hard to Love**\
+`Two New York men who bonded over bird-watching at the Central Park Reservoir are united in their efforts to save the nests of its resident Canada geese.`\
+https://nytimes.com/2025/05/14/nyregion/geese-central-park-reservoir.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/14/crosswords/spelling-bee-forum.html
+
 **Yankees’ Aaron Boone explains erupting on umpire after ejection vs. Mariners**\
 `Jasson Domínguez disagreed with a called third strike and Boone said he was trying to be a distraction and avoid Domínguez getting ejected.`\
 https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6354849/2025/05/14/sunderland-dan-ballard-play-off-
 **Late Night Is Glad President Trump Has Left the Country**\
 `Jordan Klepper suggested that someone lock the doors while President Trump is in the Middle East this week.`\
 https://nytimes.com/2025/05/14/arts/television/late-night-trump-saudi-arabia.html
-
-**Word of the Day: scrupulously**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/14/learning/word-of-the-day-scrupulously.html
-
-**Angel City's Savy King has surgery after collapsing on field**\
-`King collapsed on the field during Friday's match against the Utah Royals.`\
-https://nytimes.com/athletic/6354934/2025/05/14/angel-city-savy-king-surgery-collapse-on-field/
-
-**The Glazers in 2025: What these 20 charts reveal about their Man Utd tenure**\
-`Distilling the American family's 20 controversial years at Old Trafford into 20 revealing graphics`\
-https://nytimes.com/athletic/6336669/2025/05/14/glazers-manchester-united-20-years-finances/
-
-**Javier Báez pulling off his greatest magic act yet with first-place Tigers**\
-`Now playing center field, Báez is hitting .319 with an .870 OPS for a Tigers team with the best record in the American League.`\
-https://nytimes.com/athletic/6354874/2025/05/14/javier-baez-magic-act-first-place-detroit-tigers/
 

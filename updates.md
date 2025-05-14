@@ -1,3 +1,19 @@
+**Early Champions League final betting picks: What do we know about Inter and PSG?**\
+`Sam Tighe and Brett Koremenos offer some early betting takes on the Champions League final between Paris Saint-Germain and Inter.`\
+https://nytimes.com/athletic/6353316/2025/05/14/early-champions-league-final-betting-predictions-odds/
+
+**Shoes On or Shoes Off?**\
+`Do people leave their shoes on in your home — or do you and your family prefer them off?`\
+https://nytimes.com/2025/05/14/learning/shoes-on-or-shoes-off.html
+
+**A ‘Quixotic’ Fight to Protect a Bird That Can Be Hard to Love**\
+`Two New York men who bonded over bird-watching at the Central Park Reservoir are united in their efforts to save the nests of its resident Canada geese.`\
+https://nytimes.com/2025/05/14/nyregion/geese-central-park-reservoir.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/14/crosswords/spelling-bee-forum.html
+
 **Yankees’ Aaron Boone explains erupting on umpire after ejection vs. Mariners**\
 `Jasson Domínguez disagreed with a called third strike and Boone said he was trying to be a distraction and avoid Domínguez getting ejected.`\
 https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
