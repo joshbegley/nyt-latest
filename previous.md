@@ -1,3 +1,19 @@
+**Real Madrid in talks with Huijsen and Bournemouth over move for defender**\
+`The 20-year-old has attracted interest from across Europe with Liverpool, Chelsea and Arsenal showing interest.`\
+https://nytimes.com/athletic/6257033/2025/05/14/dean-huijsen-transfer-real-madrid/
+
+**Ken Holland to be announced as L.A. Kings' general manager**\
+`The Detroit Red Wings won the Stanley Cup 3 times with Holland as their GM.`\
+https://nytimes.com/athletic/6351809/2025/05/14/ken-holland-la-kings-gm/
+
+**Kulusevski blow makes this Postecoglou's most painful injury crisis of all**\
+`Dejan Kulusevski will join James Maddison and Lucas Bergvall in missing Tottenham's Europa League final showdown with Manchester United`\
+https://nytimes.com/athletic/6352809/2025/05/14/kulusevski-injury-europa/
+
+**Trump’s New Tax Cuts Could Shower Americans With Cash, for Now**\
+`Almost all of the cuts that Republicans hope to pass in the coming weeks will last only until President Trump is set to leave office.`\
+https://nytimes.com/2025/05/14/us/politics/trump-tax-cuts-temporary.html
+
 **Should Pete Rose get into the Hall of Fame? We asked 12 current members**\
 `What do baseball’s immortals think about the new guy on the waiting list? Here’s what they told us.`\
 https://nytimes.com/athletic/6356249/2025/05/14/pete-rose-hall-of-famers-reactions/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/books/nahid-rachlin-dead.html
 **Trump Calls Syria’s New President ‘Attractive’ and ‘Tough’**\
 `President Trump met with the president of Syria, Ahmed al-Shara, an ex-militant who led the rebel alliance that ousted Bashar al-Assad, and who once led a branch of Al Qaeda before he broke ties with the jihadist group.`\
 https://nytimes.com/video/world/middleeast/100000010169280/trump-syria-president.html
-
-**Taiwo Awoniyi: What happens in an on-field medical assessment and what an induced coma is**\
-`The Nottingham Forest striker was placed in an induced coma on Tuesday after colliding with a post during a Premier League match on Sunday`\
-https://nytimes.com/athletic/6356037/2025/05/14/nottingham-forest-player-injury-taiwo-awoniyi-coma/
-
-**What is the best goal that Lionel Messi has ever scored?**\
-`Stunning solo dribbles, mind-blowing first touches, Clasico deciders and much, much more. Our writers pick their favourite Messi goal`\
-https://nytimes.com/athletic/6355221/2025/05/14/what-is-the-best-goal-messi-has-scored/
-
-**Gabbard Seeks to Consolidate Her Control of President’s Daily Brief**\
-`President Trump has wondered over time about whether the Office of the Director of National Intelligence, which was created after the 9/11 attacks, should continue to exist.`\
-https://nytimes.com/2025/05/14/us/politics/gabbard-president-daily-brief.html
-
-**Canucks name Adam Foote as next head coach**\
-`Foote had been an assistant coach on Rick Tocchet's staff in Vancouver since January 2023.`\
-https://nytimes.com/athletic/6356236/2025/05/14/canucks-adam-foote-coach/
 

@@ -1,3 +1,19 @@
+**Real Madrid in talks with Huijsen and Bournemouth over move for defender**\
+`The 20-year-old has attracted interest from across Europe with Liverpool, Chelsea and Arsenal showing interest.`\
+https://nytimes.com/athletic/6257033/2025/05/14/dean-huijsen-transfer-real-madrid/
+
+**Ken Holland to be announced as L.A. Kings' general manager**\
+`The Detroit Red Wings won the Stanley Cup 3 times with Holland as their GM.`\
+https://nytimes.com/athletic/6351809/2025/05/14/ken-holland-la-kings-gm/
+
+**Kulusevski blow makes this Postecoglou's most painful injury crisis of all**\
+`Dejan Kulusevski will join James Maddison and Lucas Bergvall in missing Tottenham's Europa League final showdown with Manchester United`\
+https://nytimes.com/athletic/6352809/2025/05/14/kulusevski-injury-europa/
+
+**Trump’s New Tax Cuts Could Shower Americans With Cash, for Now**\
+`Almost all of the cuts that Republicans hope to pass in the coming weeks will last only until President Trump is set to leave office.`\
+https://nytimes.com/2025/05/14/us/politics/trump-tax-cuts-temporary.html
+
 **ACC commissioner Jim Phillips open to supporting CFP straight seeding model**\
 `Currently, the top four seeds are reserved for the four highest-ranked conference champions selected to the field.`\
 https://nytimes.com/athletic/6356228/2025/05/14/college-football-playoff-seeding-jim-phillips/

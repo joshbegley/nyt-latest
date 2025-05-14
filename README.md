@@ -1,3 +1,7 @@
+**Dozens Killed in Israeli Strikes in Northern Gaza, Officials Say**\
+`People rushed to rescue survivors following Israeli strikes in northern Gaza. The Israeli government didn’t immediately comment on the strikes.`\
+https://nytimes.com/video/world/middleeast/100000010169503/israeli-strikes-northern-gaza.html
+
 **Real Madrid in talks with Huijsen and Bournemouth over move for defender**\
 `The 20-year-old has attracted interest from across Europe with Liverpool, Chelsea and Arsenal showing interest.`\
 https://nytimes.com/athletic/6257033/2025/05/14/dean-huijsen-transfer-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356228/2025/05/14/college-football-playoff-seeding
 **Nahid Rachlin, Novelist Who Explored the Iranian Psyche, Dies at 85**\
 `One of the first Iranian novelists to write in English, she examined the clash between East and West. Her debut novel, “Foreigner,” provided insight into pre-revolutionary Iran.`\
 https://nytimes.com/2025/05/14/books/nahid-rachlin-dead.html
-
-**Trump Calls Syria’s New President ‘Attractive’ and ‘Tough’**\
-`President Trump met with the president of Syria, Ahmed al-Shara, an ex-militant who led the rebel alliance that ousted Bashar al-Assad, and who once led a branch of Al Qaeda before he broke ties with the jihadist group.`\
-https://nytimes.com/video/world/middleeast/100000010169280/trump-syria-president.html
 
