@@ -6,7 +6,7 @@ https://nytimes.com/2025/05/13/us/menendez-brothers-resentenced.html
 `Tatum's brilliant tenure with the Celtics took a painful turn Monday night. It's a reminder of how quickly an athlete's fortunes can change.`\
 https://nytimes.com/athletic/6354225/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-column/
 
-**Map: 6.0-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
+**Map: 6.0-Magnitude Earthquake Strikes Near Crete, Prompting a Tsunami Alert**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
 
