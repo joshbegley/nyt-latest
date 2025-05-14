@@ -1,3 +1,7 @@
+**Members of Menendez Brothers’ Family Celebrate Resentencing**\
+`The Menendez brothers became eligible for parole on Tuesday, after spending decades in prison for the murder of their parents.`\
+https://nytimes.com/video/us/100000010168470/menendez-brothers-resentenced.html
+
 **Australian Cyclist Gets Suspended Sentence Over Death of Wife**\
 `Rohan Dennis had pleaded guilty to a charge of committing an aggravated act likely to cause harm, in a vehicle incident that killed Melissa Hoskins, a fellow Olympian.`\
 https://nytimes.com/2025/05/14/world/australia/dennis-sentence-olympic-cyclist-wife-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migran
 **Here’s the latest.**\
 `By Vivian Nereim, Jonathan Swan and Qasim Nauman`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
-
-**Live Updates: Trump Meets Syrian Leader in Saudi Arabia, White House Says**\
-`President Trump’s meeting with President Ahmed al-Shara capped a remarkable turnabout for the leader of the rebel uprising that ousted Bashar al-Assad. A day earlier, Mr. Trump said he would lift U.S. sanctions on Syria.`\
-https://nytimes.com/live/2025/05/14/us/trump-news-middle-east
 
