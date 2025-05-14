@@ -1,40 +1,40 @@
-**India and Pakistan Talked Big, But Satellite Imagery Shows Limited Damage**\
-`While the attacks were widespread, the damage was far more contained than both sides claimed.`\
-https://nytimes.com/interactive/2025/05/14/world/asia/india-pakistan-attack-damage-satellite-images.html
+**Kennedy to Defend H.H.S. Overhaul as Democrats Denounce ‘War on Science’**\
+`Robert F. Kennedy Jr. is expected to testify before lawmakers for the first time as health secretary on Wednesday, where he will also confront calls from a key Republican to reassure Americans about his agenda.`\
+https://nytimes.com/2025/05/14/us/politics/rfk-jr-hhs-overhaul-hearing.html
+
+**With Trump Visit, Qatar’s Image Makeover Scores Another Success**\
+`The emirate, once called “a funder of terrorism” by President Trump, has spent lavishly on overhauling its global reputation.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-qatar.html
+
+**Free the Cannes Red Carpet!**\
+`When the Cannes Film Festival is banning nudity and big dresses from the red carpet, what is a fashion fan, body-proud star or stylist to do?`\
+https://nytimes.com/2025/05/14/opinion/cannes-red-carpet-nudity.html
 
 **We Study Fascism. And We’re Leaving the U.S.**\
 `The decision by these three Yale professors to move to Canada is both a warning and a call to action.`\
-https://nytimes.com/video/opinion/100000010157022/yale-canada-fascism.html
+https://nytimes.com/2025/05/14/opinion/yale-canada-fascism.html
 
-**Members of Menendez Brothers’ Family Celebrate Resentencing**\
-`The Menendez brothers became eligible for parole on Tuesday, after spending decades in prison for the murder of their parents.`\
-https://nytimes.com/video/us/100000010168470/menendez-brothers-resentenced.html
+**Why Boys and Men Are Floundering, According to Relationship Therapist Terry Real**\
+`The marriage and family counselor has focused his practice on working with men.`\
+https://nytimes.com/2025/05/14/podcasts/why-boys-and-men-are-floundering-according-to-relationship-therapist-terry-real.html
 
-**Australian Cyclist Gets Suspended Sentence Over Death of Wife**\
-`Rohan Dennis had pleaded guilty to a charge of committing an aggravated act likely to cause harm, in a vehicle incident that killed Melissa Hoskins, a fellow Olympian.`\
-https://nytimes.com/2025/05/14/world/australia/dennis-sentence-olympic-cyclist-wife-death.html
+**185% Tariffs: How the Trade War Hit One Shipment of T-Shirts**\
+`Even with a temporary reprieve, tariffs have begun to squeeze importers. See how.`\
+https://nytimes.com/interactive/2025/05/14/business/economy/trump-china-tariffs-import-goods.html
 
-**Court Sides With New York Times Over Access to E.U. Covid Vaccine Messages**\
-`The case revolved around whether texts between a top E.U. official and a drug company executive counted as a public record that might need to be disclosed.`\
-https://nytimes.com/2025/05/14/world/europe/eu-texts-covid-new-york-times.html
+**3 Ways to Find Joy in an Anxious World**\
+`How a singer, a psychologist and an author seek peace despite their struggles.`\
+https://nytimes.com/2025/05/14/well/mind/3-ways-to-find-joy-in-an-anxious-world.html
 
-**Early Champions League final betting picks: What do we know about Inter and PSG?**\
-`Sam Tighe and Brett Koremenos offer some early betting takes on the Champions League final between Paris Saint-Germain and Inter.`\
-https://nytimes.com/athletic/6353316/2025/05/14/early-champions-league-final-betting-predictions-odds/
+**‘Andor’ Finale Recap: Friends Everywhere**\
+`The final three episodes include major deaths, callbacks and one last swashbuckling adventure rooted in the idea that every soldier counts in a fight for freedom.`\
+https://nytimes.com/2025/05/14/arts/television/andor-finale-recap.html
 
-**Shoes On or Shoes Off?**\
-`Do people leave their shoes on in your home — or do you and your family prefer them off?`\
-https://nytimes.com/2025/05/14/learning/shoes-on-or-shoes-off.html
+**When a Chair Is More Than a Chair**\
+`A New York Design Week show at Lyle Gallery puts the focus on furniture and design pieces connected to their makers’ heritage and backgrounds.`\
+https://nytimes.com/2025/05/14/realestate/new-york-design-week-outside-in-lyle-gallery.html
 
-**A ‘Quixotic’ Fight to Protect a Bird That Can Be Hard to Love**\
-`Two New York men who bonded over bird-watching at the Central Park Reservoir are united in their efforts to save the nests of its resident Canada geese.`\
-https://nytimes.com/2025/05/14/nyregion/geese-central-park-reservoir.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/14/crosswords/spelling-bee-forum.html
-
-**Yankees’ Aaron Boone explains erupting on umpire after ejection vs. Mariners**\
-`Jasson Domínguez disagreed with a called third strike and Boone said he was trying to be a distraction and avoid Domínguez getting ejected.`\
-https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
+**In Dark Comedies Like ‘Friendship,’ Bad Bromance Brews**\
+`A spate of recent indie films provide a complicated, sometimes solemn take on male friendship.`\
+https://nytimes.com/2025/05/14/movies/friendship-bromance-movies.html
 

@@ -1,3 +1,7 @@
+**India and Pakistan Talked Big, But Satellite Imagery Shows Limited Damage**\
+`While the attacks were widespread, the damage was far more contained than both sides claimed.`\
+https://nytimes.com/interactive/2025/05/14/world/asia/india-pakistan-attack-damage-satellite-images.html
+
 **We Study Fascism. And We’re Leaving the U.S.**\
 `The decision by these three Yale professors to move to Canada is both a warning and a call to action.`\
 https://nytimes.com/video/opinion/100000010157022/yale-canada-fascism.html
