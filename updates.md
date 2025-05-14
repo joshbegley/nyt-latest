@@ -1,3 +1,11 @@
+**Trump Met With Syria’s President**\
+`Also, House Republicans planned Medicaid cuts`\
+https://nytimes.com/2025/05/14/briefing/trump-syria-medicaid.html
+
+**Watchdog Effort to Obtain DOGE Records Can Proceed, Appeals Court Rules**\
+`The decision requires Elon Musk’s team to resume efforts to share information about its structure and day-to-day operations requested under the Freedom of Information Act.`\
+https://nytimes.com/2025/05/14/us/politics/doge-watchdog-case-appeals-ruling.html
+
 **So You’re an Artist? How Many Followers Do You Have?**\
 `A growing genre of work is defined not by its content but by its audience on social media.`\
 https://nytimes.com/2025/05/14/t-magazine/art-instagram-tiktok-social-media.html
