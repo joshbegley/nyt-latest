@@ -1,3 +1,7 @@
+**Here are the 16 baseball figures besides Pete Rose who got reinstated**\
+`A rule that has made Pete Rose eligible for the Hall of Fame also impacts 16 others, including the "Black Sox," a former owner and more.`\
+https://nytimes.com/athletic/6354320/2025/05/13/16-baseball-figures-reinstated-pete-rose/
+
 **The Cavaliers are headed home — much earlier than anyone expected**\
 `Cleveland lost Game 5 to the Indiana Pacers, 114-105, and was eliminated by dropping this Eastern Conference semifinal series, 4-1.`\
 https://nytimes.com/athletic/6354356/2025/05/13/pacers-cavaliers-eliminated-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/us/menendez-brothers-resentenced.html
 **Buckley: Jayson Tatum's comeback will be aided by knowing everyone is rallying around him**\
 `Tatum's brilliant tenure with the Celtics took a painful turn Monday night. It's a reminder of how quickly an athlete's fortunes can change.`\
 https://nytimes.com/athletic/6354225/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-column/
-
-**Map: 6.0-Magnitude Earthquake Strikes Near Crete, Prompting a Tsunami Alert**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
 

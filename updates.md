@@ -1,3 +1,15 @@
+**The Cavaliers are headed home — much earlier than anyone expected**\
+`Cleveland lost Game 5 to the Indiana Pacers, 114-105, and was eliminated by dropping this Eastern Conference semifinal series, 4-1.`\
+https://nytimes.com/athletic/6354356/2025/05/13/pacers-cavaliers-eliminated-nba-playoffs/
+
+**California Approves 17 Percent Rate Increase for State Farm**\
+`Homeowners reeling from the wildfires in January say that State Farm’s increased rates are unfair and unfounded.`\
+https://nytimes.com/2025/05/13/realestate/state-farm-rate-increase-california.html
+
+**'He belongs in the Hall of Fame’: Within MLB, a mostly celebratory tone for Pete Rose**\
+`MLB commissioner Rob Manfred removed Rose and 16 other deceased individuals, including Shoeless Joe Jackson, from the ineligible list.`\
+https://nytimes.com/athletic/6354447/2025/05/13/pete-rose-reinstatement-hall-of-fame-mlb-managers-react/
+
 **'He's my brother': Aaron Judge, Yankees visit Oswaldo Cabrera at hospital after gruesome injury**\
 `Cabrera, known throughout the clubhouse for his infectious smile, beamed at the sight of his teammates.`\
 https://nytimes.com/athletic/6354422/2025/05/13/oswaldo-cabrera-injury-yankees-aaron-judge/
