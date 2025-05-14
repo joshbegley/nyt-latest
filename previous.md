@@ -1,5 +1,5 @@
-**Court Sides With New York Times in Case Over Access to E.U. Text Messages**\
-`The case revolved around whether a text message counted as a public record that might need to be disclosed.`\
+**Court Sides With New York Times Over Access to E.U. Covid Vaccine Messages**\
+`The case revolved around whether texts between a top E.U. official and a drug company executive counted as a public record that might need to be disclosed.`\
 https://nytimes.com/2025/05/14/world/europe/eu-texts-covid-new-york-times.html
 
 **Early Champions League final betting picks: What do we know about Inter and PSG?**\
