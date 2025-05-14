@@ -1,3 +1,11 @@
+**Canucks free-agent targets: 10 top-six wingers who could help Vancouver score**\
+`The Athletic looks at 10 of the best pending unrestricted free agent options to help boost Vancouver's scoring.`\
+https://nytimes.com/athletic/6354613/2025/05/14/canucks-free-agent-targets-wingers-nhl/
+
+**What are the ‘freak-offs’ at the core of the Sean Combs case?**\
+`By Ben Sisario`\
+https://nytimes.com/2025/05/14/arts/music/freak-offs-diddy-sex-trafficking.html
+
 **Syrians Are Elated and Optimistic as Trump Vows to Lift Sanctions**\
 `The announcement is a boon for the new government as it looks to rebuild an economy wrecked by a decade of civil war.`\
 https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
