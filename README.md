@@ -1,3 +1,7 @@
+**Debase Oneself**\
+`Get into shape with Rebecca Goldstein and Adam Wagner’s crossword.`\
+https://nytimes.com/2025/05/13/crosswords/daily-puzzle-2025-05-14.html
+
 **Here are the 16 baseball figures besides Pete Rose who got reinstated**\
 `A rule that has made Pete Rose eligible for the Hall of Fame also impacts 16 others, including the "Black Sox," a former owner and more.`\
 https://nytimes.com/athletic/6354320/2025/05/13/16-baseball-figures-reinstated-pete-rose/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354397/2025/05/13/roki-sasaki-injured-sources/
 **Menendez Brothers Resentenced to Life With Parole, Paving Way for Freedom**\
 `The decision could lead to the release of Lyle and Erik Menendez, more than three decades after they were sent to prison for killing their parents.`\
 https://nytimes.com/2025/05/13/us/menendez-brothers-resentenced.html
-
-**Buckley: Jayson Tatum's comeback will be aided by knowing everyone is rallying around him**\
-`Tatum's brilliant tenure with the Celtics took a painful turn Monday night. It's a reminder of how quickly an athlete's fortunes can change.`\
-https://nytimes.com/athletic/6354225/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-column/
 
