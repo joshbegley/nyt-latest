@@ -1,3 +1,19 @@
+**Can Eurovision Avoid Politics in Neutral Switzerland?**\
+`The competition is run by an opaque Swiss organization that wants to sidestep controversies that could spoil the fun.`\
+https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcasting-union.html
+
+**Cooper Flagg shocked by 'crazy draft lottery' as Mavs jump at ' fresh start'**\
+`Flagg will be seen as the franchise's new foundational player, a position held just a few months ago by Luka Dončić.`\
+https://nytimes.com/athletic/6356752/2025/05/14/cooper-flagg-mavericks-draft-lottery/
+
+**French Prime Minister Defiant in School Sexual Violence Inquiry**\
+`François Bayrou’s popularity has plunged as his word is doubted on events at a Catholic school to which he had several ties.`\
+https://nytimes.com/2025/05/14/world/europe/france-francois-bayrou-school-scandal.html
+
+**Inside the Canucks' decision to hire Adam Foote as their head coach**\
+`Foote has the presence and weight that Canucks brass was looking for in the franchise's next head coach.`\
+https://nytimes.com/athletic/6356749/2025/05/14/vancouver-canucks-adam-foote-head-coach/
+
 **Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
 `After a surprisingly drawn-out negotiation with the Canucks, Willander has signed a deal and will turn pro.`\
 https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/14/opinion/philanthropy-foreign-aid.html
 **Dick Vitale says he is again cancer-free: 'I'm on cloud nine!'**\
 `The news is the latest in a winding road of ups and downs for the 85-year-old, who has had various cancer diagnoses in recent years.`\
 https://nytimes.com/athletic/6356176/2025/05/14/dick-vitale-cancer-free-announcement/
-
-**Wisconsin Judge Accused of Obstructing Immigration Agents Seeks Dismissal of Case**\
-`Judge Hannah C. Dugan’s lawyers claimed judicial immunity in a court filing on Wednesday, a day after she was indicted by a federal grand jury.`\
-https://nytimes.com/2025/05/14/us/judge-hannah-dugan-ice-wisconsin.html
-
-**Morris, Alligator of ‘Happy Gilmore’ Fame, Dies at 80 (or More)**\
-`The 640-pound, 11-foot gator memorably played a golf-ball-stealing, hand-chomping terror in the 1996 Adam Sandler film.`\
-https://nytimes.com/2025/05/14/arts/morris-alligator-dead-happy-gilmore.html
-
-**Observing an Arsenal training session: Music, a large stopwatch and intensity**\
-`Arsenal opened up a training session at the Emirates to fans. Our writer was among those watching...`\
-https://nytimes.com/athletic/6356453/2025/05/14/arsenal-open-training-arteta-havertz/
-
-**U.S. Tells Court It Plans to Deport Scientist to Russia**\
-`Kseniia Petrova, a Harvard researcher, was detained Feb. 16 at Logan Airport after failing to declare scientific samples she carried into the U.S.`\
-https://nytimes.com/2025/05/14/health/detained-russian-scientist-harvard.html
 

@@ -1,3 +1,19 @@
+**Can Eurovision Avoid Politics in Neutral Switzerland?**\
+`The competition is run by an opaque Swiss organization that wants to sidestep controversies that could spoil the fun.`\
+https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcasting-union.html
+
+**Cooper Flagg shocked by 'crazy draft lottery' as Mavs jump at ' fresh start'**\
+`Flagg will be seen as the franchise's new foundational player, a position held just a few months ago by Luka Dončić.`\
+https://nytimes.com/athletic/6356752/2025/05/14/cooper-flagg-mavericks-draft-lottery/
+
+**French Prime Minister Defiant in School Sexual Violence Inquiry**\
+`François Bayrou’s popularity has plunged as his word is doubted on events at a Catholic school to which he had several ties.`\
+https://nytimes.com/2025/05/14/world/europe/france-francois-bayrou-school-scandal.html
+
+**Inside the Canucks' decision to hire Adam Foote as their head coach**\
+`Foote has the presence and weight that Canucks brass was looking for in the franchise's next head coach.`\
+https://nytimes.com/athletic/6356749/2025/05/14/vancouver-canucks-adam-foote-head-coach/
+
 **Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
 `After a surprisingly drawn-out negotiation with the Canucks, Willander has signed a deal and will turn pro.`\
 https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
