@@ -1,3 +1,12 @@
+**The New York Times in Print for Wednesday, May 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/14/todays-new-york-times
+
+**Even at partial strength, the Stars look unstoppable. Look out, NHL**\
+`One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
+`\
+https://nytimes.com/athletic/6354838/2025/05/14/stars-nhl-playoffs-game-4-jets/
+
 **Even at partial strength, the Stars look unstoppable. Look out, NHL**\
 `One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
 `\

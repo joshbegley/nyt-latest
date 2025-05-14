@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, May 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/14/todays-new-york-times
+
 **Even at partial strength, the Stars look unstoppable. Look out, NHL**\
 `One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6352732/2025/05/14/chelsea-jackson-palmer-neto-geor
 **Why isn't the possibility of signing Morgan Gibbs-White exciting many Manchester City fans?**\
 `The England midfielder ticks a lot of boxes when it comes to replacing Kevin De Bruyne - but his potential arrival has split opinion `\
 https://nytimes.com/athletic/6350158/2025/05/14/man-city-morgan-gibbs-white-excitement/
-
-**Ronald Acuña Jr. homers in first rehab game on the night Braves reach .500**\
-`Acuña played six innings in a rookie league game and will head to Triple-A Gwinnett for his next rehab game Thursday. `\
-https://nytimes.com/athletic/6354814/2025/05/14/braves-ronald-acuna-homer-rehab/
 
