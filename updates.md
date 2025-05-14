@@ -1,3 +1,11 @@
+**A Loyal Ally Joins Trump’s Gulf Tour: The Head of Global Soccer**\
+`The FIFA president, Gianni Infantino, is expected to preside over a ceremony in which the emir of Qatar will hand over World Cup hosting duties to Mr. Trump. The U.S. is co-hosting the 2026 tournament.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-fifa-world-cup.html
+
+**The Pulse: The Pete Rose decision, explained**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6354405/2025/05/14/pete-rose-reinstatement-the-pulse/
+
 **Militant’s Killing Would Be Blow to Hamas, but Long-Term Impact is Unclear**\
 `Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, his death would deprive Hamas of a top commander but the strategic consequences are less certain.`\
 https://nytimes.com/2025/05/14/world/middleeast/militants-killing-would-be-blow-to-hamas-but-long-term-impact-is-unclear.html
