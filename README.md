@@ -1,3 +1,7 @@
+**Nikola Jokić goes the distance, but Thunder's depth has become series' defining factor**\
+`Jokić played the entire second half as Denver rode it stars. But fatigue was evident as OKC rallied for the pivotal Game 5 win.`\
+https://nytimes.com/athletic/6354802/2025/05/14/nikola-jokic-nuggets-thunder-game-5/
+
 **Sevilla: From serial Europa League winners to fans breaking into the training ground - and relief for now**\
 `Sevilla are known for dominating European football's second-biggest competition but a bad season culminated in alarming scenes on Saturday`\
 https://nytimes.com/athletic/6355171/2025/05/14/sevilla-fan-unrest-europa-league/
@@ -22,7 +26,7 @@ https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/heres-the
 `The Nottingham Forest striker is in an induced coma following an incident in Sunday's game against Leicester City`\
 https://nytimes.com/athletic/6355242/2025/05/14/taiwo-awoniyi-nottingham-forest-coma/
 
-**Pacers are making people believe in them as they head back to Eastern Conference finals**\
+**Pacers are making people believe in them as they had back to Eastern Conference finals**\
 `Indiana closed out a dominant series against the top-seeded Cavaliers in Game 5. "It’s a special feeling," Tyrese Haliburton said.`\
 https://nytimes.com/athletic/6355043/2025/05/14/pacers-playoffs-game-5-cavs-haliburton/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354396/2025/05/14/will-johnson-arizona-cardinals-r
 **Indianapolis Colts 2025 schedule: Will AFC South title drought end this year?**\
 `The Colts have their sights set on making the playoffs for the first time since the 2020 season. `\
 https://nytimes.com/athletic/6350482/2025/05/14/indianapolis-colts-schedule-2025/
-
-**Kansas City Chiefs 2025 schedule: Broncos visiting Arrowhead on Christmas night**\
-`Come back Wednesday night for the Chiefs' week-to-week schedule, plus season analysis and predictions.`\
-https://nytimes.com/athletic/6351254/2025/05/14/kansas-city-chiefs-schedule-2025/
 
