@@ -1,3 +1,11 @@
+**Relatives of Jeju Air Crash Victims File Criminal Complaint**\
+`Dozens of family members filed a joint complaint against 15 aviation officials, accusing them of negligence and violating South Korean law.`\
+https://nytimes.com/2025/05/14/world/asia/jejuair-crash-relatives-complaint.html
+
+**Who Is Mohammad Sinwar, the Hamas Leader Targeted by Israel?**\
+`A top leader in the militant group, he has survived several assassination attempts before.`\
+https://nytimes.com/2025/05/14/world/middleeast/mohammad-sinwar-hamas-who-is.html
+
 **The New York Times International Edition in Print for Thursday, May 15, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/14/todays-new-york-times-international-edition
