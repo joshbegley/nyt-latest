@@ -1,3 +1,7 @@
+**Yankees’ Aaron Boone explains erupting on umpire after ejection vs. Mariners**\
+`Jasson Domínguez disagreed with a called third strike and Boone said he was trying to be a distraction and avoid Domínguez getting ejected.`\
+https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
+
 **FIFA accused of 'utter negligence' towards migrant workers in Saudi**\
 `The scathing criticism of world football’s governing body is detailed in two new reports on migrant-worker deaths in the Gulf state.`\
 https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migrant-workers/
