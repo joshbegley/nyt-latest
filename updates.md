@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Pacers defeat Cavaliers 114-105, win series 4-1**\
+`The Pacers eliminated the East’s top-seeded team on their home floor Tuesday night.`\
+https://nytimes.com/athletic/6354219/2025/05/13/pacers-cavaliers-thunder-nuggets-nba-playoffs-takeaways/
+
 **Debase Oneself**\
 `Get into shape with Rebecca Goldstein and Adam Wagner’s crossword.`\
 https://nytimes.com/2025/05/13/crosswords/daily-puzzle-2025-05-14.html

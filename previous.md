@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Pacers defeat Cavaliers 114-105, win series 4-1**\
+`The Pacers eliminated the East’s top-seeded team on their home floor Tuesday night.`\
+https://nytimes.com/athletic/6354219/2025/05/13/pacers-cavaliers-thunder-nuggets-nba-playoffs-takeaways/
+
 **Debase Oneself**\
 `Get into shape with Rebecca Goldstein and Adam Wagner’s crossword.`\
 https://nytimes.com/2025/05/13/crosswords/daily-puzzle-2025-05-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/us/politics/christopher-bond-dead.html
 **Dodgers' Roki Sasaki lands on IL with shoulder impingement**\
 `LOS ANGELES — The mystery surrounding Los Angeles Dodgers rookie Roki Sasaki’s gradual dip in fastball velocity deepened Tuesday afternoon as the Dodgers placed the 23-year-old Japanese right-hander on the injured list.`\
 https://nytimes.com/athletic/6354397/2025/05/13/roki-sasaki-injured-sources/
-
-**Menendez Brothers Resentenced to Life With Parole, Paving Way for Freedom**\
-`The decision could lead to the release of Lyle and Erik Menendez, more than three decades after they were sent to prison for killing their parents.`\
-https://nytimes.com/2025/05/13/us/menendez-brothers-resentenced.html
 
