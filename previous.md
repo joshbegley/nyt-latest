@@ -1,8 +1,12 @@
-**Serena Williams' husband, Reddit co-founder Alexis Ohanian buys stake in Chelsea Women**\
+**RFK Jr., the Health Secretary, Says Not to Take Medical Advice From Him**\
+`Robert F. Kennedy Jr. has often used his influential position to weigh in on public health issues, but during a congressional hearing he dodged questions about whether children should be vaccinated.`\
+https://nytimes.com/2025/05/14/us/politics/rfk-jr-hhs-vaccines-medical-advice.html
+
+**Serena Williams' husband, Reddit co-founder Alexis Ohanian, buys stake in Chelsea Women**\
 `The 42-year-old Ohanian, who also has a stake in NWSL side Angel City, has bought an eight per cent stake in the side.`\
 https://nytimes.com/athletic/6356477/2025/05/14/serena-williams-alexis-ohanian-chelsea-women/
 
-**Tanner Houck lands on the IL: What does this mean for the Red Sox rotation?**\
+**Tanner Houck lands on IL: What does this mean for Red Sox rotation?**\
 `Two days after Houck gave up 11 earned runs in a start against Detroit, the Red Sox placed the right-hander on the injured list.`\
 https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/jacky-rosen-threats-las-vegas-man-sentenced.ht
 **Cassie Settled Lawsuit Against Sean Combs for $20 Million**\
 `Casandra Ventura testified in federal court about her 2023 lawsuit against Mr. Combs, whom she had accused of years of physical abuse and sexual coercion.`\
 https://nytimes.com/2025/05/14/arts/music/diddy-cassie-settlement-amount.html
-
-**Will Tom Willander be the Canucks’ next star? Here’s what to expect**\
-`Examining Willander's style of play, his long-term ceiling and what Vancouver should ultimately expect from its prized defensive prospect.`\
-https://nytimes.com/athletic/6276586/2025/05/14/canucks-tom-willander-prospect-contract/
 
