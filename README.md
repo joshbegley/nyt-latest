@@ -1,3 +1,7 @@
+**Menendez Brothers Resentenced to Life With Parole, Paving Way for Freedom**\
+`The decision could lead to the release of Lyle and Erik Menendez, more than three decades after they were sent to prison for killing their parents.`\
+https://nytimes.com/2025/05/13/us/menendez-brothers-resentenced.html
+
 **Buckley: Jayson Tatum's comeback will be aided by knowing everyone is rallying around him**\
 `Tatum's brilliant tenure with the Celtics took a painful turn Monday night. It's a reminder of how quickly an athlete's fortunes can change.`\
 https://nytimes.com/athletic/6354225/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-column/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/world/middleeast/iran-us-nuclear-talks.html
 **20 States Sue Trump Over Immigration Demands and Threats to Cut Funding**\
 `Similar lawsuits have been filed by mostly Democratic state attorneys general over threats to diversity programs, tariffs and mass firings at federal agencies.`\
 https://nytimes.com/2025/05/13/us/politics/lawsuits-federal-funding-immigration.html
-
-**This Fossil’s 3 Eyes Are Not Its Most Surprising Feature**\
-`Cambrian Period creatures known as sea moths seemed alien because of their additional eye, but a study finds anatomical features more in line with modern animals.`\
-https://nytimes.com/2025/05/13/science/three-eyed-fossil-mosura-fentoni.html
 

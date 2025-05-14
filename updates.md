@@ -1,3 +1,15 @@
+**Buckley: Jayson Tatum's comeback will be aided by knowing everyone is rallying around him**\
+`Tatum's brilliant tenure with the Celtics took a painful turn Monday night. It's a reminder of how quickly an athlete's fortunes can change.`\
+https://nytimes.com/athletic/6354225/2025/05/13/jayson-tatum-injury-achilles-celtics-knicks-column/
+
+**Why Did Eric Adams Have So Many Cellphones?**\
+`Mayor Eric Adams of New York was said to have used seven different phone numbers. He argued that “many New Yorkers have several phones.”`\
+https://nytimes.com/2025/05/13/nyregion/eric-adams-phone-numbers.html
+
+**This Fossil’s 3 Eyes Are Not Its Most Surprising Feature**\
+`Cambrian Period creatures known as sea moths seemed alien because of their additional eye, but a study finds anatomical features more in line with modern animals.`\
+https://nytimes.com/2025/05/13/science/three-eyed-fossil-mosura-fentoni.html
+
 **Map: 6.0-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
