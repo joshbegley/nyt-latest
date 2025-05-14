@@ -1,3 +1,7 @@
+**Cubs prospect Moisés Ballesteros went from playing MLB The Show to being in The Show **\
+`Ballesteros went 0-for-4 in his debut, but there's always tomorrow. "The nerves got the better of me today," he said through an interpreter.`\
+https://nytimes.com/athletic/6354904/2025/05/14/cubs-prospect-moises-ballesteros/
+
 **For the first time in decades, the leaders of the U.S. and Syria meet.**\
 `By Ismaeel Naar and Enjoli Liston`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/for-the-first-time-in-decades-the-leaders-of-the-us-and-syria-meet
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6350724/2025/05/14/baltimore-ravens-schedule-2025/
 **WNBA predictions: Who will win the 2025 championship? Who will win MVP?**\
 `Did any of our experts pick Caitlin Clark to win MVP? Will the Liberty repeat? `\
 https://nytimes.com/athletic/6354568/2025/05/14/wnba-predictions-championship-mvp/
-
-**Defining short- and long-term expectations for the Bears' Day 3 draft picks**\
-`The Bears' depth looks better after the draft, and they might have found a starter or two on Day 3. `\
-https://nytimes.com/athletic/6353363/2025/05/14/bears-draft-pick-expectations-kyle-monangai/
 

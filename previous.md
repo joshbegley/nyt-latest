@@ -1,40 +1,41 @@
-**The Trumps Get Richer**\
-`We take a look at the Trump family’s business deals.`\
-https://nytimes.com/2025/05/14/briefing/trump-family-business.html
+**For the first time in decades, the leaders of the U.S. and Syria meet.**\
+`By Ismaeel Naar and Enjoli Liston`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/for-the-first-time-in-decades-the-leaders-of-the-us-and-syria-meet
 
-**Andrew Witty, UnitedHealth Group C.E.O., Steps Down**\
-`The company said that Mr. Witty had left the job for personal reasons. Stephen Hemsley, the company’s executive chairman, will replace him.`\
-https://nytimes.com/2025/05/14/business/unitedhealth-ceo-andrew-witty.html
+**Three under-the-radar Twins prospects off to stock-raising starts, led by 'McCrusher'**\
+`Triple-A slugger Carson McCusker is putting up huge numbers in St. Paul, plus a Double-A line-drive machine and a High-A speedster to watch.`\
+https://nytimes.com/athletic/6349660/2025/05/14/twins-prospects-strong-starts-carson-mccusker/
 
-**A Loyal Ally Joins Trump’s Gulf Tour: The Head of Global Soccer**\
-`The FIFA president, Gianni Infantino, is expected to preside over a ceremony in which the emir of Qatar will hand over World Cup hosting duties to Mr. Trump. The U.S. is co-hosting the 2026 tournament.`\
-https://nytimes.com/2025/05/14/world/middleeast/trump-fifa-world-cup.html
+**Can Nebraska use Michigan's slight as fuel to snap an unfortunate streak?**\
+`Nebraska has lost an unthinkable 27 consecutive games against opponents ranked in the AP Top 25. Could the streak end vs. Michigan?`\
+https://nytimes.com/athletic/6353921/2025/05/14/nebraska-losing-streak-ranked-teams-michigan/
 
-**The Pulse: The Pete Rose decision, explained**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6354405/2025/05/14/pete-rose-reinstatement-the-pulse/
+**Philadelphia Eagles 2025 schedule: Plenty of heavyweight matchups for defending champions**\
+`Championship expectations remain in place for the Eagles, who could have one of the league's toughest 2025 schedules. `\
+https://nytimes.com/athletic/6344157/2025/05/14/philadelphia-eagles-schedule-2025/
 
-**Militant’s Death Would Be Blow to Hamas, but May Have Limited Long-Term Consequences**\
-`Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, it would deprive the group of another top commander, but it is unclear if it would lead to a strategic shift.`\
-https://nytimes.com/2025/05/14/world/middleeast/muhammad-sinwar-hamas-leader-gaza-israel.html
+**LeBrun: Leafs finding ‘balance’ between staying disciplined and physical against Panthers**\
+`Toronto is teetering on the delicate line between wanting to show that it won't back down and taking things too far against Florida.
+`\
+https://nytimes.com/athletic/6354017/2025/05/14/maple-leafs-panthers-nhl-playoffs-lebrun/
 
-**Detroit Lions 2025 schedule: Matchups against NFC East, AFC North highlight tough slate**\
-`The chase for a Super Bowl continues as the Lions' 2025 schedule gets released Wednesday.`\
-https://nytimes.com/athletic/6344122/2025/05/14/detroit-lions-schedule-2025/
+**Can Jordan Spieth complete the career Grand Slam this week?**\
+`"I think if Rory (McIlroy) didn't complete the Slam at the Masters (last month), then it wouldn't have been a storyline for me here."`\
+https://nytimes.com/athletic/6354756/2025/05/14/jordan-spieth-career-grand-slam-pga-championship/
 
-**Green Bay Packers 2025 schedule: Champion Eagles on MNF among early unveilings**\
-`The Packers have sights set on improving on a 11-6 season that ended in the wild-card round to Philadelphia.`\
-https://nytimes.com/athletic/6345239/2025/05/14/green-bay-packers-schedule-2025/
+**‘Bruce, you got me’: Why Bret Boone signed up to help fix the Rangers**\
+`Boone only took about five minutes to accept Bruce Bochy's offer to become a hitting coach for Texas: "This is what I’m supposed to do.”`\
+https://nytimes.com/athletic/6354490/2025/05/14/rangers-bret-boone-hitting-coach-bruce-bochy/
 
-**Can college football's losingest program sell hope? UMass finally has a plan**\
-`Best known for basketball success under John Calipari 30 years ago, UMass has won 26 football games in 13 years in the FBS. Can it change?`\
-https://nytimes.com/athletic/6354324/2025/05/14/umass-football-mac-record-nil-coach/
+**Ravens 2025 schedule release: Home, road opponents and more on season ahead**\
+`Breaking down Baltimore's 2025 schedule with analysis and predictions. `\
+https://nytimes.com/athletic/6350724/2025/05/14/baltimore-ravens-schedule-2025/
 
-**Shedeur Sanders, Mason Taylor, other top 2025 NFL Draft value picks**\
-`As always, there were some steals during draft weekend. Who were our favorites this year?`\
-https://nytimes.com/athletic/6350175/2025/05/14/nfl-draft-2025-sleepers-shedeur-sanders-the-beast/
+**WNBA predictions: Who will win the 2025 championship? Who will win MVP?**\
+`Did any of our experts pick Caitlin Clark to win MVP? Will the Liberty repeat? `\
+https://nytimes.com/athletic/6354568/2025/05/14/wnba-predictions-championship-mvp/
 
-**Minnesota Vikings 2025 schedule: Games in Dublin, London on tap in Weeks 4 and 5**\
-`The Vikings will play overseas in back-to-back weeks. Come back Wednesday night for the team's full schedule, plus analysis and predictions.`\
-https://nytimes.com/athletic/6350010/2025/05/14/minnesota-vikings-schedule-2025/
+**Defining short- and long-term expectations for the Bears' Day 3 draft picks**\
+`The Bears' depth looks better after the draft, and they might have found a starter or two on Day 3. `\
+https://nytimes.com/athletic/6353363/2025/05/14/bears-draft-pick-expectations-kyle-monangai/
 
