@@ -1,40 +1,40 @@
-**Relatives of Jeju Air Crash Victims File Criminal Complaint**\
-`Dozens of family members filed a joint complaint against 15 aviation officials, accusing them of negligence and violating South Korean law.`\
-https://nytimes.com/2025/05/14/world/asia/jejuair-crash-relatives-complaint.html
+**Detroit Lions 2025 schedule: Matchups against NFC East, AFC North highlight tough slate**\
+`The chase for a Super Bowl continues as the Lions' 2025 schedule gets released Wednesday.`\
+https://nytimes.com/athletic/6344122/2025/05/14/detroit-lions-schedule-2025/
 
-**Who Is Mohammad Sinwar, the Hamas Leader Targeted by Israel?**\
-`A top leader in the militant group, he has survived several assassination attempts before.`\
-https://nytimes.com/2025/05/14/world/middleeast/mohammad-sinwar-hamas-who-is.html
+**Green Bay Packers 2025 schedule: Champion Eagles on MNF among early unveilings**\
+`The Packers have sights set on improving on a 11-6 season that ended in the wild-card round to Philadelphia.`\
+https://nytimes.com/athletic/6345239/2025/05/14/green-bay-packers-schedule-2025/
 
-**The New York Times International Edition in Print for Thursday, May 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/14/todays-new-york-times-international-edition
+**Can college football's losingest program sell hope? UMass finally has a plan**\
+`Best known for basketball success under John Calipari 30 years ago, UMass has won 26 football games in 13 years in the FBS. Can it change?`\
+https://nytimes.com/athletic/6354324/2025/05/14/umass-football-mac-record-nil-coach/
 
-**What to Know About Trump’s Latest Changes to Taxes on Small Packages From China**\
-`Beginning Wednesday, shipments arriving in the United States from China and Hong Kong worth less than $800 could face 54 percent tariffs.`\
-https://nytimes.com/2025/05/14/business/trump-tariffs-china-temu-shein.html
+**Shedeur Sanders, Mason Taylor, other top 2025 NFL Draft value picks**\
+`As always, there were some steals during draft weekend. Who were our favorites this year?`\
+https://nytimes.com/athletic/6350175/2025/05/14/nfl-draft-2025-sleepers-shedeur-sanders-the-beast/
 
-**Kennedy to Defend H.H.S. Overhaul as Democrats Denounce ‘War on Science’**\
-`Robert F. Kennedy Jr. is expected to testify before lawmakers for the first time as health secretary on Wednesday, where he will also confront calls from a key Republican to reassure Americans about his agenda.`\
-https://nytimes.com/2025/05/14/us/politics/rfk-jr-hhs-overhaul-hearing.html
+**Minnesota Vikings 2025 schedule: Games in Dublin, London on tap in Weeks 4 and 5**\
+`The Vikings will play overseas in back-to-back weeks. Come back Wednesday night for the team's full schedule, plus analysis and predictions.`\
+https://nytimes.com/athletic/6350010/2025/05/14/minnesota-vikings-schedule-2025/
 
-**With Trump Visit, Qatar’s Image Makeover Scores Another Success**\
-`The emirate, once called “a funder of terrorism” by President Trump, has spent lavishly on overhauling its global reputation.`\
-https://nytimes.com/2025/05/14/world/middleeast/trump-qatar.html
+**Chicago Bears 2025 schedule: Black Friday date with champion Eagles on tap**\
+`Come back Wednesday night for the Bears' week-to-week schedule, plus season analysis and predictions.`\
+https://nytimes.com/athletic/6351133/2025/05/14/chicago-bears-schedule-2025/
 
-**Free the Cannes Red Carpet!**\
-`When the Cannes Film Festival is banning nudity and big dresses from the red carpet, what is a fashion fan, body-proud star or stylist to do?`\
-https://nytimes.com/2025/05/14/opinion/cannes-red-carpet-nudity.html
+**Mikko Rantanen's 'smile is coming back': Family and friends on playoff dominance and new home with Stars**\
+`Rantanen is putting up historic numbers in the playoffs for the Stars, but to those close to him, seeing the joy is more important.`\
+https://nytimes.com/athletic/6353406/2025/05/14/mikko-rantanen-stars-nhl-playoffs-trades/
 
-**We Study Fascism. And We’re Leaving the U.S.**\
-`The decision by these three Yale professors to move to Canada is both a warning and a call to action.`\
-https://nytimes.com/2025/05/14/opinion/yale-canada-fascism.html
+**Do the Jayson Tatum injury and draft lottery put Eastern Conference at a new low?**\
+`Recent days have emphasized how wobbly things are in the NBA's Eastern Conference. But with big-picture thoughts comes potential change.`\
+https://nytimes.com/athletic/6353961/2025/05/14/jayson-tatum-injury-draft-lottery-eastern-conference/
 
-**Why Boys and Men Are Floundering, According to Relationship Therapist Terry Real**\
-`The marriage and family counselor has focused his practice on working with men.`\
-https://nytimes.com/2025/05/14/podcasts/why-boys-and-men-are-floundering-according-to-relationship-therapist-terry-real.html
+**Mandel's mailbag: Will Belichick's private life fade from the spotlight once UNC-TCU kicks off?**\
+`Winning cures everything. One can only imagine the narrative for Belichick if UNC starts 2-4.`\
+https://nytimes.com/athletic/6353619/2025/05/14/mandel-mailbag-bill-belichick-college-sports-presidential-commission/
 
-**185% Tariffs: How the Trade War Hit One Shipment of T-Shirts**\
-`Even with a temporary reprieve, tariffs have begun to squeeze importers. See how.`\
-https://nytimes.com/interactive/2025/05/14/business/economy/trump-china-tariffs-import-goods.html
+**Pittsburgh Steelers 2025 schedule: Packers, Jets matchups loom with Aaron Rodgers unsigned**\
+`Rodgers has never faced the Packers, who will visit Pittsburgh this season. The Steelers will also visit Rodgers' old team, the Jets.`\
+https://nytimes.com/athletic/6353813/2025/05/14/pittsburgh-steelers-schedule-2025/
 

@@ -1,3 +1,7 @@
+**Militant’s Killing Would Be Blow to Hamas, but Long-Term Impact is Unclear**\
+`Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, his death would deprive Hamas of a top commander but the strategic consequences are less certain.`\
+https://nytimes.com/2025/05/14/world/middleeast/militants-killing-would-be-blow-to-hamas-but-long-term-impact-is-unclear.html
+
 **Detroit Lions 2025 schedule: Matchups against NFC East, AFC North highlight tough slate**\
 `The chase for a Super Bowl continues as the Lions' 2025 schedule gets released Wednesday.`\
 https://nytimes.com/athletic/6344122/2025/05/14/detroit-lions-schedule-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353961/2025/05/14/jayson-tatum-injury-draft-lotter
 **Mandel's mailbag: Will Belichick's private life fade from the spotlight once UNC-TCU kicks off?**\
 `Winning cures everything. One can only imagine the narrative for Belichick if UNC starts 2-4.`\
 https://nytimes.com/athletic/6353619/2025/05/14/mandel-mailbag-bill-belichick-college-sports-presidential-commission/
-
-**Pittsburgh Steelers 2025 schedule: Packers, Jets matchups loom with Aaron Rodgers unsigned**\
-`Rodgers has never faced the Packers, who will visit Pittsburgh this season. The Steelers will also visit Rodgers' old team, the Jets.`\
-https://nytimes.com/athletic/6353813/2025/05/14/pittsburgh-steelers-schedule-2025/
 
