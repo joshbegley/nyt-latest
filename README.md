@@ -1,3 +1,11 @@
+**Relatives of Jeju Air Crash Victims File Criminal Complaint**\
+`Dozens of family members filed a joint complaint against 15 aviation officials, accusing them of negligence and violating South Korean law.`\
+https://nytimes.com/2025/05/14/world/asia/jejuair-crash-relatives-complaint.html
+
+**Who Is Mohammad Sinwar, the Hamas Leader Targeted by Israel?**\
+`A top leader in the militant group, he has survived several assassination attempts before.`\
+https://nytimes.com/2025/05/14/world/middleeast/mohammad-sinwar-hamas-who-is.html
+
 **The New York Times International Edition in Print for Thursday, May 15, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/14/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/podcasts/why-boys-and-men-are-floundering-accordi
 **185% Tariffs: How the Trade War Hit One Shipment of T-Shirts**\
 `Even with a temporary reprieve, tariffs have begun to squeeze importers. See how.`\
 https://nytimes.com/interactive/2025/05/14/business/economy/trump-china-tariffs-import-goods.html
-
-**3 Ways to Find Joy in an Anxious World**\
-`How a singer, a psychologist and an author seek peace despite their struggles.`\
-https://nytimes.com/2025/05/14/well/mind/3-ways-to-find-joy-in-an-anxious-world.html
-
-**‘Andor’ Finale Recap: Friends Everywhere**\
-`The final three episodes include major deaths, callbacks and one last swashbuckling adventure rooted in the idea that every soldier counts in a fight for freedom.`\
-https://nytimes.com/2025/05/14/arts/television/andor-finale-recap.html
 
