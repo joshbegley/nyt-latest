@@ -1,3 +1,11 @@
+**Why Losing E.V. Tax Credits Could Hit G.M. and Ford Harder Than Tesla**\
+`A House Republican bill introduced this week would do away with tax credits that had encouraged Americans to buy electric vehicles and automakers to invest in new factories.`\
+https://nytimes.com/2025/05/14/business/republican-budget-electric-vehicle-tax-credit.html
+
+**The R&B singer Cassie is at the heart of the government’s case.**\
+`By Caryn Ganz`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/cassie-lawsuit
+
 **Nikola Jokić goes the distance, but Thunder's depth has become series' defining factor**\
 `Jokić played the entire second half as Denver rode it stars. But fatigue was evident as OKC rallied for the pivotal Game 5 win.`\
 https://nytimes.com/athletic/6354802/2025/05/14/nikola-jokic-nuggets-thunder-game-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6355242/2025/05/14/taiwo-awoniyi-nottingham-forest-
 **Pacers are making people believe in them as they had back to Eastern Conference finals**\
 `Indiana closed out a dominant series against the top-seeded Cavaliers in Game 5. "It’s a special feeling," Tyrese Haliburton said.`\
 https://nytimes.com/athletic/6355043/2025/05/14/pacers-playoffs-game-5-cavs-haliburton/
-
-**Cardinals rookie Will Johnson's miserable draft night is now fuel as NFL career starts**\
-`Those who know Johnson best insist that his slip into the second round will drive him, not consume him. But that doesn't mean he'll forget.`\
-https://nytimes.com/athletic/6354396/2025/05/14/will-johnson-arizona-cardinals-rookie-nfl-draft-slide/
-
-**Indianapolis Colts 2025 schedule: Will AFC South title drought end this year?**\
-`The Colts have their sights set on making the playoffs for the first time since the 2020 season. `\
-https://nytimes.com/athletic/6350482/2025/05/14/indianapolis-colts-schedule-2025/
 

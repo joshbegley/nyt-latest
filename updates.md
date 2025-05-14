@@ -1,3 +1,23 @@
+**Nikola Jokić goes the distance, but Thunder's depth has become series' defining factor**\
+`Jokić played the entire second half as Denver rode it stars. But fatigue was evident as OKC rallied for the pivotal Game 5 win.`\
+https://nytimes.com/athletic/6354802/2025/05/14/nikola-jokic-nuggets-thunder-game-5/
+
+**Sevilla: From serial Europa League winners to fans breaking into the training ground - and relief for now**\
+`Sevilla are known for dominating European football's second-biggest competition but a bad season culminated in alarming scenes on Saturday`\
+https://nytimes.com/athletic/6355171/2025/05/14/sevilla-fan-unrest-europa-league/
+
+**Shai Gilgeous-Alexander leads way for Thunder's group effort in Game 5 win**\
+`Gilgeous-Alexander made big plays down the stretch against the Nuggets. But as always, the Thunder's strength was in numbers.`\
+https://nytimes.com/athletic/6354977/2025/05/14/thunder-playoffs-game-5-shai-gilgeous-alexander-nuggets/
+
+**Will Sean Combs testify?**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/will-sean-combs-testify
+
+**Live Updates: Cassie to Testify About Hotel Clash With Sean Combs During Sex-Trafficking Trial**\
+`A surveillance video of the 2016 altercation in a Los Angeles hotel shows Mr. Combs striking and dragging Casandra Ventura, the on-and-off girlfriend signed to his record label.`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie
+
 **Cassie to Testify About Hotel Clash With Sean Combs During Sex-Trafficking Trial**\
 `A surveillance video of the 2016 altercation in a Los Angeles hotel shows Mr. Combs striking and dragging Casandra Ventura, the on-and-off girlfriend signed to his record label.`\
 https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie
