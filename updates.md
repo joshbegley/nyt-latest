@@ -1,3 +1,19 @@
+**Max, Once Known as HBO Max, Is Calling Itself HBO Max Again. Got It?**\
+`Warner Bros. Discovery executives are reinstating the name HBO Max for the popular streaming service. It’s the fourth name change for the app in the last decade.`\
+https://nytimes.com/2025/05/14/business/media/hbo-max-streaming-name.html
+
+**From a Tin-Roof Shack, Pepe Mujica Removed the Pomp from Politics**\
+`The former Uruguayan president, who died on Tuesday, showed the value in world leaders living like their constituents.`\
+https://nytimes.com/2025/05/14/world/americas/pepe-mujica-uruguay.html
+
+**3 Are Arrested in Russia-Linked Sabotage Plot, Germany Says**\
+`The men, Ukrainian nationals, were arrested in Germany and Switzerland, the state prosecutor in Berlin said. They are suspected of planning to sabotage commercial freight infrastructure.`\
+https://nytimes.com/2025/05/14/world/europe/3-are-arrested-in-russia-linked-sabotage-plot-germany-says.html
+
+**Taking Inches in Battle, Russia Demands Miles in Talks**\
+`Moscow thinks it’s winning in Ukraine and can play hardball diplomatically. Washington sees costly, incremental gains and an unrealistic negotiating position.`\
+https://nytimes.com/2025/05/14/world/europe/russia-ukraine-ceasefire-putin-zelensky-sanctions.html
+
 **Trump Administration to Weaken Some Limits on PFAS in Drinking Water**\
 `The E.P.A. said it would maintain limits on the two most common PFAS chemicals found in tap water but roll back rules for four others.`\
 https://nytimes.com/2025/05/14/climate/pfas-zeldin-trump-administration.html

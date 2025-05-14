@@ -1,3 +1,19 @@
+**Max, Once Known as HBO Max, Is Calling Itself HBO Max Again. Got It?**\
+`Warner Bros. Discovery executives are reinstating the name HBO Max for the popular streaming service. It’s the fourth name change for the app in the last decade.`\
+https://nytimes.com/2025/05/14/business/media/hbo-max-streaming-name.html
+
+**From a Tin-Roof Shack, Pepe Mujica Removed the Pomp from Politics**\
+`The former Uruguayan president, who died on Tuesday, showed the value in world leaders living like their constituents.`\
+https://nytimes.com/2025/05/14/world/americas/pepe-mujica-uruguay.html
+
+**3 Are Arrested in Russia-Linked Sabotage Plot, Germany Says**\
+`The men, Ukrainian nationals, were arrested in Germany and Switzerland, the state prosecutor in Berlin said. They are suspected of planning to sabotage commercial freight infrastructure.`\
+https://nytimes.com/2025/05/14/world/europe/3-are-arrested-in-russia-linked-sabotage-plot-germany-says.html
+
+**Taking Inches in Battle, Russia Demands Miles in Talks**\
+`Moscow thinks it’s winning in Ukraine and can play hardball diplomatically. Washington sees costly, incremental gains and an unrealistic negotiating position.`\
+https://nytimes.com/2025/05/14/world/europe/russia-ukraine-ceasefire-putin-zelensky-sanctions.html
+
 **Trump Administration to Weaken Some Limits on PFAS in Drinking Water**\
 `The E.P.A. said it would maintain limits on the two most common PFAS chemicals found in tap water but roll back rules for four others.`\
 https://nytimes.com/2025/05/14/climate/pfas-zeldin-trump-administration.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6354338/2025/05/14/nhl-playoffs-seond-round-jets-au
 **Why the Giants shouldn't trade Jameis Winston to the Saints**\
 `Winston's true value to the Giants might not be fully realized until 2026. `\
 https://nytimes.com/athletic/6354419/2025/05/14/new-york-giants-jameis-winston-trade-saints/
-
-**The Bounce: What's next for the Celtics? And why don't we have an MVP yet?**\
-`With Jayson Tatum on the mend, can Boston remain a title contender?`\
-https://nytimes.com/athletic/6355455/2025/05/14/jayson-tatum-achilles-celtics-nba-playoffs-the-bounce/
-
-**Canucks free-agent targets: 10 top-six wingers who could help Vancouver score**\
-`The Athletic looks at 10 of the best pending unrestricted free agent options to help boost Vancouver's scoring.`\
-https://nytimes.com/athletic/6354613/2025/05/14/canucks-free-agent-targets-wingers-nhl/
-
-**Syrians Are Elated and Optimistic as Trump Vows to Lift Sanctions**\
-`The announcement is a boon for the new government as it looks to rebuild an economy wrecked by a decade of civil war.`\
-https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
-
-**Ten Hag on Leverkusen shortlist to relace Alonso**\
-`Ten Hag, who has been out of management since leaving Manchester United in October, is a candidate to replace the outgoing Xabi Alonso.`\
-https://nytimes.com/athletic/6066128/2025/05/14/erik-ten-hag-bayer-leverkusen/
 
