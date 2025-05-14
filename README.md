@@ -28,7 +28,7 @@ https://nytimes.com/2025/05/14/us/jacky-rosen-threats-las-vegas-man-sentenced.ht
 
 **Cassie Settled Lawsuit Against Sean Combs for $20 Million**\
 `Casandra Ventura testified in federal court about her 2023 lawsuit against Mr. Combs, whom she had accused of years of physical abuse and sexual coercion.`\
-https://nytimes.com/2025/05/14/arts/music/lawsuit-settlement.html
+https://nytimes.com/2025/05/14/arts/music/diddy-cassie-settlement-amount.html
 
 **Will Tom Willander be the Canucks’ next star? Here’s what to expect**\
 `Examining Willander's style of play, his long-term ceiling and what Vancouver should ultimately expect from its prized defensive prospect.`\
