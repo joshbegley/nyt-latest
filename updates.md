@@ -1,3 +1,7 @@
+**Militant’s Death Would Be Blow to Hamas, but May Have Limited Long-Term Consequences**\
+`Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, it would deprive the group of another top commander, but it is unclear if it would lead to a strategic shift.`\
+https://nytimes.com/2025/05/14/world/middleeast/muhammad-sinwar-hamas-leader-gaza-israel.html
+
 **A Loyal Ally Joins Trump’s Gulf Tour: The Head of Global Soccer**\
 `The FIFA president, Gianni Infantino, is expected to preside over a ceremony in which the emir of Qatar will hand over World Cup hosting duties to Mr. Trump. The U.S. is co-hosting the 2026 tournament.`\
 https://nytimes.com/2025/05/14/world/middleeast/trump-fifa-world-cup.html
