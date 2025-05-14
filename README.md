@@ -1,3 +1,7 @@
+**Canucks, top prospect Tom Willander agree to 3-year, entry-level contract**\
+`After a surprisingly drawn-out negotiation with the Canucks, Willander will turn pro next season.`\
+https://nytimes.com/athletic/6356584/2025/05/14/canucks-tom-willander-contract-prospect/
+
 **Strike on Hospital Highlights Israeli Attacks on Gaza Health System**\
 `Aid groups and U.N. investigations have accused Israel of aiming to destroy Gaza’s health infrastructure. Israel says it is forced to strike hospitals it says are used by Hamas for military purposes.`\
 https://nytimes.com/2025/05/14/world/middleeast/israel-medical-facility-strikes-gaza-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356453/2025/05/14/arsenal-open-training-arteta-hav
 **U.S. Tells Court It Plans to Deport Scientist to Russia**\
 `Kseniia Petrova, a Harvard researcher, was detained Feb. 16 at Logan Airport after failing to declare scientific samples she carried into the U.S.`\
 https://nytimes.com/2025/05/14/health/detained-russian-scientist-harvard.html
-
-**As Harvard Battles Trump, Its President Will Take a 25% Pay Cut**\
-`The university is facing cuts of more than $2.6 billion in federal funding and has already taken other steps to save money.`\
-https://nytimes.com/2025/05/14/us/harvard-garber-trump-pay.html
 
