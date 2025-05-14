@@ -1,3 +1,7 @@
+**We Study Fascism. And We’re Leaving the U.S.**\
+`The decision by these three Yale professors to move to Canada is both a warning and a call to action.`\
+https://nytimes.com/video/opinion/100000010157022/yale-canada-fascism.html
+
 **Members of Menendez Brothers’ Family Celebrate Resentencing**\
 `The Menendez brothers became eligible for parole on Tuesday, after spending decades in prison for the murder of their parents.`\
 https://nytimes.com/video/us/100000010168470/menendez-brothers-resentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6355022/2025/05/14/yankees-aaron-boone-ejection/
 **FIFA accused of 'utter negligence' towards migrant workers in Saudi**\
 `The scathing criticism of world football’s governing body is detailed in two new reports on migrant-worker deaths in the Gulf state.`\
 https://nytimes.com/athletic/6355016/2025/05/14/fifa-saudi-2034-world-cup-migrant-workers/
-
-**Here’s the latest.**\
-`By Vivian Nereim, Jonathan Swan and Qasim Nauman`\
-https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/heres-the-latest
 
