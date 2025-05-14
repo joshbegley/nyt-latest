@@ -1,3 +1,11 @@
+**Dick Vitale says he is again cancer-free: 'I'm on cloud nine!'**\
+`The news is the latest in a winding road of ups and downs for the 85-year-old, who has had various cancer diagnoses in recent years.`\
+https://nytimes.com/athletic/6356176/2025/05/14/dick-vitale-cancer-free-announcement/
+
+**Wisconsin Judge Accused of Obstructing Immigration Agents Seeks Dismissal of Case**\
+`Judge Hannah C. Dugan’s lawyers claimed judicial immunity in a court filing on Wednesday, a day after she was indicted by a federal grand jury.`\
+https://nytimes.com/2025/05/14/us/judge-hannah-dugan-ice-wisconsin.html
+
 **Morris, Alligator of ‘Happy Gilmore’ Fame, Dies at 80 (or More)**\
 `The 640-pound, 11-foot gator memorably played a golf-ball-stealing, hand-chomping terror in the 1996 Adam Sandler film.`\
 https://nytimes.com/2025/05/14/arts/morris-alligator-dead-happy-gilmore.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/general-assembly/ai/the-new-workplace-currency.html
 **Staple: Who's left in the Islanders' exec search? What's the timeline? What I'm hearing 4.0**\
 `Ken Holland's decision to take the Kings' GM job over anything the Islanders offered him narrows the list of candidates.`\
 https://nytimes.com/athletic/6356292/2025/05/14/islanders-gm-president-search-shanahan/
-
-**'I wish our dad was here to share this': Pete Rose's daughter on her father's long road to reinstatement**\
-`Fawn Rose met with MLB commissioner Rob Manfred in December, three months after her father's passing.`\
-https://nytimes.com/athletic/6356421/2025/05/14/pete-rose-daughter-hall-of-fame/
-
-**An Effort to Kill Off Lawsuits Against Oil Giants Is Gaining Steam**\
-`The Trump administration has declared litigation to hold oil companies responsible for climate change a threat to the American economy and has taken aggressive steps to fight it.`\
-https://nytimes.com/2025/05/14/climate/state-climate-lawsuits.html
 
