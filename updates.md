@@ -1,3 +1,7 @@
+**Cartel Family Members Crossed Into U.S., Mexican Official Says**\
+`Mexico’s security secretary confirmed reports that 17 family members of Sinaloa Cartel leaders had crossed into the United States, likely as part of a deal with the Trump administration.`\
+https://nytimes.com/2025/05/14/world/americas/mexico-cartel-chapo-family.html
+
 **This Dinosaur Had Feathers and Probably Flew Like a Chicken**\
 `New insights into the flying capabilities of a nonbird dinosaur were drawn from an unusually well-preserved specimen known as the Chicago Archaeopteryx.`\
 https://nytimes.com/2025/05/14/science/archaeopteryx-dinosaur-feathers-flight.html
