@@ -1,3 +1,7 @@
+**What to Know About Trump’s Latest Changes to Taxes on Small Packages From China**\
+`Beginning Wednesday, shipments arriving in the United States from China and Hong Kong worth less than $800 could face 54 percent tariffs.`\
+https://nytimes.com/2025/05/14/business/trump-tariffs-china-temu-shein.html
+
 **Kennedy to Defend H.H.S. Overhaul as Democrats Denounce ‘War on Science’**\
 `Robert F. Kennedy Jr. is expected to testify before lawmakers for the first time as health secretary on Wednesday, where he will also confront calls from a key Republican to reassure Americans about his agenda.`\
 https://nytimes.com/2025/05/14/us/politics/rfk-jr-hhs-overhaul-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/arts/television/andor-finale-recap.html
 **When a Chair Is More Than a Chair**\
 `A New York Design Week show at Lyle Gallery puts the focus on furniture and design pieces connected to their makers’ heritage and backgrounds.`\
 https://nytimes.com/2025/05/14/realestate/new-york-design-week-outside-in-lyle-gallery.html
-
-**In Dark Comedies Like ‘Friendship,’ Bad Bromance Brews**\
-`A spate of recent indie films provide a complicated, sometimes solemn take on male friendship.`\
-https://nytimes.com/2025/05/14/movies/friendship-bromance-movies.html
 
