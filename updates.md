@@ -1,3 +1,11 @@
+**NHL playoffs Round 2 vibe check: Auston Matthews’ shooting, Jets’ road woes and more**\
+`Three teams are already on the brink of elimination in the second round of this year's NHL playoffs. Here are some trends from the series.`\
+https://nytimes.com/athletic/6354338/2025/05/14/nhl-playoffs-seond-round-jets-auston-matthews/
+
+**Why the Giants shouldn't trade Jameis Winston to the Saints**\
+`Winston's true value to the Giants might not be fully realized until 2026. `\
+https://nytimes.com/athletic/6354419/2025/05/14/new-york-giants-jameis-winston-trade-saints/
+
 **The Bounce: What's next for the Celtics? And why don't we have an MVP yet?**\
 `With Jayson Tatum on the mend, can Boston remain a title contender?`\
 https://nytimes.com/athletic/6355455/2025/05/14/jayson-tatum-achilles-celtics-nba-playoffs-the-bounce/

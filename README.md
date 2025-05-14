@@ -1,3 +1,7 @@
+**Foul-line foibles aside, Mitchell Robinson has bruised and battered the Celtics**\
+`Robinson missed most of the season with injuries, but he is so important now, that Boston has resorted to fouling him on purpose.`\
+https://nytimes.com/athletic/6354812/2025/05/14/mitchell-robinson-knicks-playoffs-rebounding-fouls-celtics/
+
 **NHL playoffs Round 2 vibe check: Auston Matthews’ shooting, Jets’ road woes and more**\
 `Three teams are already on the brink of elimination in the second round of this year's NHL playoffs. Here are some trends from the series.`\
 https://nytimes.com/athletic/6354338/2025/05/14/nhl-playoffs-seond-round-jets-auston-matthews/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoff
 **Cassie will continue testimony about the videotaped hotel assault in 2016.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/cassie-will-continue-testimony-about-the-videotaped-hotel-assault-in-2016
-
-**Chargers 2025 schedule: Jim Harbaugh's second season kicks off in Brazil**\
-`The Chargers will open the season on Friday, Sept. 5, in São Paulo, Brazil, with the Chiefs favored to be the opponent.`\
-https://nytimes.com/athletic/6352986/2025/05/14/los-angeles-chargers-2025-schedule/
 
