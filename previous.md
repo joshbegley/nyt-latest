@@ -1,3 +1,7 @@
+**Nick Saban downplays Trump’s presidential commission**\
+`Nick Saban said of an idea for a group he could potentially lead: “I don’t think we really need a commission.”`\
+https://nytimes.com/athletic/6357016/2025/05/14/nick-saban-president-trump-commission/
+
 **RFK Jr., the Health Secretary, Says Not to Take Medical Advice From Him**\
 `Robert F. Kennedy Jr. has often used his influential position to weigh in on public health issues, but during a congressional hearing he dodged questions about whether children should be vaccinated.`\
 https://nytimes.com/2025/05/14/us/politics/rfk-jr-hhs-vaccines-medical-advice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/dei-policies-changes.html
 **Man Who Threatened U.S. Senator From Nevada Gets Nearly 4 Years in Prison**\
 `The man, John Anthony Miller, left a series of messages spewing antisemitic vitriol on the office voice mail system of Senator Jacky Rosen, the authorities said.`\
 https://nytimes.com/2025/05/14/us/jacky-rosen-threats-las-vegas-man-sentenced.html
-
-**Cassie Settled Lawsuit Against Sean Combs for $20 Million**\
-`Casandra Ventura testified in federal court about her 2023 lawsuit against Mr. Combs, whom she had accused of years of physical abuse and sexual coercion.`\
-https://nytimes.com/2025/05/14/arts/music/diddy-cassie-settlement-amount.html
 
