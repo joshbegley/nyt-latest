@@ -10,6 +10,12 @@ https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-
 `\
 https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-predictions-odds-update/
 
+**EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
+`Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
+
+`\
+https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-predictions-odds-update/
+
 **Lowetide: Five reasons for Oilers fans to be optimistic about Cup pursuit**\
 `Despite an enormous gap between top and bottom performances, Edmonton is on the verge of advancing to Round 3.`\
 https://nytimes.com/athletic/6352934/2025/05/14/edmonton-oilers-nhl-playoffs-optimism/

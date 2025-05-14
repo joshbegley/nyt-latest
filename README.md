@@ -1,3 +1,15 @@
+**It’s Time for a Course on the Constitution**\
+`Readers reflect on the Constitution and the state of American democracy. Also: The Catholic Church sex abuse crisis; Elon Musk’s minions.`\
+https://nytimes.com/2025/05/14/opinion/constitution-democracy-david-souter.html
+
+**The rare Michael Jordan cards that are rising above the pandemic boom**\
+`Michael Jordan card values are soaring once again, but this time it's not his iconic '86 Fleer card setting the pace`\
+https://nytimes.com/athletic/6355755/2025/05/14/michael-jordan-cards-prices/
+
+**Richard L. Garwin, a Creator of the Hydrogen Bomb, Dies at 97**\
+`Many scientists contributed to the final result, but he was the one who, as a young physicist, designed the world’s deadliest weapon. He went on to advise a dozen presidents.`\
+https://nytimes.com/2025/05/14/science/richard-l-garwin-dead.html
+
 **Lowetide: Five reasons for Oilers fans to be optimistic about Cup pursuit**\
 `Despite an enormous gap between top and bottom performances, Edmonton is on the verge of advancing to Round 3.`\
 https://nytimes.com/athletic/6352934/2025/05/14/edmonton-oilers-nhl-playoffs-optimism/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6355976/2025/05/14/reading-takeover-redwood-couhig/
 **Mike Schmidt on Pete Rose and the Hall of Fame: 'There will always be a cloud'**\
 `“I think the Pete Rose question is always going to be divided, 50-50,” Schmidt said of his late friend and former teammate's Hall candidacy.`\
 https://nytimes.com/athletic/6355877/2025/05/14/mike-schmidt-pete-rose-hall-of-fame-candidacy/
-
-**Maple Leafs lineup questions vs. Panthers: Game-time decisions loom over Game 5**\
-`It appears changes are coming to the Maple Leafs' forward lines in Game 5.`\
-https://nytimes.com/athletic/6355541/2025/05/14/maple-leafs-lineup-panthers-game-5-nhl-playoffs/
-
-**Canada's David announces Lille departure**\
-`The 25-year-old, who has already held talks with Premier League club West Ham United, is set to leave Lille after five years at the club.`\
-https://nytimes.com/athletic/6355886/2025/05/14/jonathan-david-lille-departure-transfer/
-
-**Dak Prescott on adding George Pickens: 'We're putting together a nice group of weapons'**\
-`Dak Prescott spoke about the new Cowboys receiver Wednesday: "He thinks it's his ball when it's in the air," he said of George Pickens.`\
-https://nytimes.com/athletic/6355942/2025/05/14/cowboys-dak-prescott-george-pickens-comments/
 
