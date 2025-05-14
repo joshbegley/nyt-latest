@@ -1,3 +1,15 @@
+**Jayson Tatum’s injury will transform the NBA, not just the Celtics**\
+`If one event can dramatically alter even the most sustainable team-building strategy, is it even possible to maintain a championship window?`\
+https://nytimes.com/athletic/6355671/2025/05/14/jayson-tatum-celtics-injury-nba-future-change/
+
+**Amorim 'far from quitting' Man United despite disappointing league form**\
+`United currently sit 16th, with just 39 points, and are guaranteed to record their lowest finish of the Premier League era.`\
+https://nytimes.com/athletic/6356205/2025/05/14/man-united-amorim-future-quit/
+
+**Why Tot Celebrity Ms. Rachel Waded Into the Gaza Debate**\
+`Facing criticism, Rachel Accurso defends making the plight of children in Gaza a primary focus on her social media feeds.`\
+https://nytimes.com/2025/05/14/arts/television/ms-rachel-gaza-israel.html
+
 **Liverpool contact Wirtz representatives to express interest in Leverkusen attacker**\
 `The 22-year-old Germany attacker is one of the most sought-after talents in football — with Bayern Munich and Manchester City also keen.`\
 https://nytimes.com/athletic/6334139/2025/05/14/liverpool-transfer-florian-wirtz/
@@ -25,18 +37,4 @@ https://nytimes.com/2025/05/14/science/richard-l-garwin-dead.html
 **Lowetide: Five reasons for Oilers fans to be optimistic about Cup pursuit**\
 `Despite an enormous gap between top and bottom performances, Edmonton is on the verge of advancing to Round 3.`\
 https://nytimes.com/athletic/6352934/2025/05/14/edmonton-oilers-nhl-playoffs-optimism/
-
-**EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
-`Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
-
-`\
-https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-predictions-odds-update/
-
-**Kulusevski to miss Europa League final after undergoing knee surgery**\
-`The forward suffered an injury to his right patella during Sunday's defeat to Crystal Palace.`\
-https://nytimes.com/athletic/6349397/2025/05/14/dejan-kulusevski-tottenham-injury-update/
-
-**Tom Brady to take Indy 500 lap with Jimmie Johnson before race's Fox debut**\
-`The seven-time Super Bowl champ will ride along with the seven-time NASCAR champ ahead of Fox's first Indy 500 broadcast.`\
-https://nytimes.com/athletic/6355933/2025/05/14/tom-brady-indy-500-jimmie-johnson-fox/
 
