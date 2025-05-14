@@ -1,4 +1,4 @@
-**Map: 6.1-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
+**Map: 6.0-Magnitude Earthquake Strikes the Mediterranean Sea Near Crete**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
 
