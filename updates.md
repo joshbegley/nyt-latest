@@ -1,3 +1,9 @@
+**EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
+`Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
+
+`\
+https://nytimes.com/athletic/6355241/2025/05/14/premier-league-top-five-betting-predictions-odds-update/
+
 **Judge Orders Georgetown Academic Released From Immigration Detention**\
 `Badar Khan Suri, an Indian citizen teaching on an academic visa, has been held by the government, which has claimed he violated the terms of his academic visa.`\
 https://nytimes.com/2025/05/14/us/politics/georgetown-academic-immigration-detention.html
