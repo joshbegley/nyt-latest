@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, May 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/14/todays-new-york-times-international-edition
+
 **What to Know About Trump’s Latest Changes to Taxes on Small Packages From China**\
 `Beginning Wednesday, shipments arriving in the United States from China and Hong Kong worth less than $800 could face 54 percent tariffs.`\
 https://nytimes.com/2025/05/14/business/trump-tariffs-china-temu-shein.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/well/mind/3-ways-to-find-joy-in-an-anxious-world.
 **‘Andor’ Finale Recap: Friends Everywhere**\
 `The final three episodes include major deaths, callbacks and one last swashbuckling adventure rooted in the idea that every soldier counts in a fight for freedom.`\
 https://nytimes.com/2025/05/14/arts/television/andor-finale-recap.html
-
-**When a Chair Is More Than a Chair**\
-`A New York Design Week show at Lyle Gallery puts the focus on furniture and design pieces connected to their makers’ heritage and backgrounds.`\
-https://nytimes.com/2025/05/14/realestate/new-york-design-week-outside-in-lyle-gallery.html
 
