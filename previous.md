@@ -1,3 +1,7 @@
+**The Bounce: What's next for the Celtics? And why don't we have an MVP yet?**\
+`With Jayson Tatum on the mend, can Boston remain a title contender?`\
+https://nytimes.com/athletic/6355455/2025/05/14/jayson-tatum-achilles-celtics-nba-playoffs-the-bounce/
+
 **Canucks free-agent targets: 10 top-six wingers who could help Vancouver score**\
 `The Athletic looks at 10 of the best pending unrestricted free agent options to help boost Vancouver's scoring.`\
 https://nytimes.com/athletic/6354613/2025/05/14/canucks-free-agent-targets-wingers-nhl/
@@ -10,8 +14,8 @@ https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
 `Ten Hag, who has been out of management since leaving Manchester United in October, is a candidate to replace the outgoing Xabi Alonso.`\
 https://nytimes.com/athletic/6066128/2025/05/14/erik-ten-hag-bayer-leverkusen/
 
-**What are the ‘freak-offs’ at the core of the Sean Combs case?**\
-`By Ben Sisario`\
+**What Are the ‘Freak-Offs’ at the Core of the Sean Combs Case?**\
+`Casandra Ventura, the mogul’s former girlfriend, has described them as marathon sexual encounters that he directed, involving drugs and hired male prostitutes.`\
 https://nytimes.com/2025/05/14/arts/music/freak-offs-diddy-sex-trafficking.html
 
 **Why Evan Bouchard's next contract feels terrifying**\
@@ -26,15 +30,11 @@ https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/cassie-wi
 `The Chargers will open the season on Friday, Sept. 5, in São Paulo, Brazil, with the Chiefs favored to be the opponent.`\
 https://nytimes.com/athletic/6352986/2025/05/14/los-angeles-chargers-2025-schedule/
 
-**Las Vegas Raiders 2025 schedule: Easier road to playoffs on tap?**\
-`Come back Wednesday night for the Raiders' week-to-week schedule, plus season analysis and predictions.`\
-https://nytimes.com/athletic/6350011/2025/05/14/las-vegas-raiders-schedule-2025/
-
 **2025 PGA Championship pool picks: McIlroy, DeChambeau among the picks at Quail Hollow**\
 `Amos Morale III makes his PGA Championship pool picks ahead of the 2025 edition of the major.`\
 https://nytimes.com/athletic/6353810/2025/05/14/2025-pga-championship-pool-picks-mcilroy-dechambeau-quail-hollow/
 
-**Seattle Seahawks 2025 schedule: Reunion games for Sam Darnold, Cooper Kupp and DK Metcalf**\
-`Here's everything you need to know about the Seahawks' 2025 schedule, including a few star players facing their former teams.`\
-https://nytimes.com/athletic/6353713/2025/05/14/seattle-seahawks-schedule-2025/
+**Las Vegas Raiders 2025 schedule: Easier road to playoffs on tap?**\
+`Come back Wednesday night for the Raiders' week-to-week schedule, plus season analysis and predictions.`\
+https://nytimes.com/athletic/6350011/2025/05/14/las-vegas-raiders-schedule-2025/
 

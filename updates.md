@@ -1,3 +1,11 @@
+**The Bounce: What's next for the Celtics? And why don't we have an MVP yet?**\
+`With Jayson Tatum on the mend, can Boston remain a title contender?`\
+https://nytimes.com/athletic/6355455/2025/05/14/jayson-tatum-achilles-celtics-nba-playoffs-the-bounce/
+
+**What Are the ‘Freak-Offs’ at the Core of the Sean Combs Case?**\
+`Casandra Ventura, the mogul’s former girlfriend, has described them as marathon sexual encounters that he directed, involving drugs and hired male prostitutes.`\
+https://nytimes.com/2025/05/14/arts/music/freak-offs-diddy-sex-trafficking.html
+
 **Canucks free-agent targets: 10 top-six wingers who could help Vancouver score**\
 `The Athletic looks at 10 of the best pending unrestricted free agent options to help boost Vancouver's scoring.`\
 https://nytimes.com/athletic/6354613/2025/05/14/canucks-free-agent-targets-wingers-nhl/
