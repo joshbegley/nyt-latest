@@ -1,3 +1,11 @@
+**Trump Met With Syria’s President**\
+`Also, House Republicans planned Medicaid cuts`\
+https://nytimes.com/2025/05/14/briefing/trump-syria-medicaid.html
+
+**Watchdog Effort to Obtain DOGE Records Can Proceed, Appeals Court Rules**\
+`The decision requires Elon Musk’s team to resume efforts to share information about its structure and day-to-day operations requested under the Freedom of Information Act.`\
+https://nytimes.com/2025/05/14/us/politics/doge-watchdog-case-appeals-ruling.html
+
 **So You’re an Artist? How Many Followers Do You Have?**\
 `A growing genre of work is defined not by its content but by its audience on social media.`\
 https://nytimes.com/2025/05/14/t-magazine/art-instagram-tiktok-social-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6356756/2025/05/14/nwsl-medical-protocol-angel-city
 **Mariners' Julio Rodríguez robs homer from Trent Grisham**\
 `Grisham hit two home runs over Rodríguez's head on Monday. Seattle's center fielder got his revenge at the beginning of Wednesday's game.`\
 https://nytimes.com/athletic/6356942/2025/05/14/mariners-julio-rodriguez-robs-home-run-trent-grisham-yankees/
-
-**‘My Opinions About Vaccines Are Irrelevant,’ Kennedy Says**\
-`During a congressional hearing on the Trump administration’s drastic overhaul of federal health agencies on Wednesday, Robert F. Kennedy Jr., the health secretary, said, “I don’t think people should be taking advice, medical advice from me.”`\
-https://nytimes.com/video/us/politics/100000010170056/pocan-kennedy-child-vaccine.html
-
-**Joe Louis Walker, Free-Ranging Blues Explorer, Is Dead at 75**\
-`A product of the San Francisco rock crucible of the 1960s, he fashioned his own brand of the blues, blending gospel, soul, rock and other genres.`\
-https://nytimes.com/2025/05/14/arts/music/joe-louis-walker-dead.html
 

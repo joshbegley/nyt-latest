@@ -1,3 +1,15 @@
+**So You’re an Artist? How Many Followers Do You Have?**\
+`A growing genre of work is defined not by its content but by its audience on social media.`\
+https://nytimes.com/2025/05/14/t-magazine/art-instagram-tiktok-social-media.html
+
+**Bill de Blasio Agrees to Pay $329,000 to Settle Campaign Expense Dispute**\
+`The former mayor agreed to the settlement for violating New York City conflicts of interest law by bringing his security detail on trips during his failed 2019 presidential bid.`\
+https://nytimes.com/2025/05/14/nyregion/deblasio-settlement-security-conflict.html
+
+**Trump Meets Syria’s Leader After Vowing to Lift Sanctions on Ravaged Nation**\
+`“The sanctions were really crippling,” President Trump said, before he traveled to Qatar, where he was given a lavish welcome.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-syria-al-shara-sanctions.html
+
 **Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\
