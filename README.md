@@ -34,7 +34,7 @@ https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/heres-the
 `The Nottingham Forest striker is in an induced coma following an incident in Sunday's game against Leicester City`\
 https://nytimes.com/athletic/6355242/2025/05/14/taiwo-awoniyi-nottingham-forest-coma/
 
-**Pacers are making people believe in them as they had back to Eastern Conference finals**\
+**Pacers are making people believe in them as they head back to Eastern Conference finals**\
 `Indiana closed out a dominant series against the top-seeded Cavaliers in Game 5. "It’s a special feeling," Tyrese Haliburton said.`\
 https://nytimes.com/athletic/6355043/2025/05/14/pacers-playoffs-game-5-cavs-haliburton/
 

@@ -1,3 +1,11 @@
+**Why Losing E.V. Tax Credits Could Hit G.M. and Ford Harder Than Tesla**\
+`A House Republican bill introduced this week would do away with tax credits that had encouraged Americans to buy electric vehicles and automakers to invest in new factories.`\
+https://nytimes.com/2025/05/14/business/republican-budget-electric-vehicle-tax-credit.html
+
+**The R&B singer Cassie is at the heart of the government’s case.**\
+`By Caryn Ganz`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/cassie-lawsuit
+
 **Nikola Jokić goes the distance, but Thunder's depth has become series' defining factor**\
 `Jokić played the entire second half as Denver rode it stars. But fatigue was evident as OKC rallied for the pivotal Game 5 win.`\
 https://nytimes.com/athletic/6354802/2025/05/14/nikola-jokic-nuggets-thunder-game-5/
