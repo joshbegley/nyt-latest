@@ -1,3 +1,11 @@
+**The Trumps Get Richer**\
+`We take a look at the Trump family’s business deals.`\
+https://nytimes.com/2025/05/14/briefing/trump-family-business.html
+
+**Andrew Witty, UnitedHealth Group C.E.O., Steps Down**\
+`The company said that Mr. Witty had left the job for personal reasons. Stephen Hemsley, the company’s executive chairman, will replace him.`\
+https://nytimes.com/2025/05/14/business/unitedhealth-ceo-andrew-witty.html
+
 **Militant’s Death Would Be Blow to Hamas, but May Have Limited Long-Term Consequences**\
 `Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, it would deprive the group of another top commander, but it is unclear if it would lead to a strategic shift.`\
 https://nytimes.com/2025/05/14/world/middleeast/muhammad-sinwar-hamas-leader-gaza-israel.html

@@ -1,3 +1,11 @@
+**The Trumps Get Richer**\
+`We take a look at the Trump family’s business deals.`\
+https://nytimes.com/2025/05/14/briefing/trump-family-business.html
+
+**Andrew Witty, UnitedHealth Group C.E.O., Steps Down**\
+`The company said that Mr. Witty had left the job for personal reasons. Stephen Hemsley, the company’s executive chairman, will replace him.`\
+https://nytimes.com/2025/05/14/business/unitedhealth-ceo-andrew-witty.html
+
 **A Loyal Ally Joins Trump’s Gulf Tour: The Head of Global Soccer**\
 `The FIFA president, Gianni Infantino, is expected to preside over a ceremony in which the emir of Qatar will hand over World Cup hosting duties to Mr. Trump. The U.S. is co-hosting the 2026 tournament.`\
 https://nytimes.com/2025/05/14/world/middleeast/trump-fifa-world-cup.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6350175/2025/05/14/nfl-draft-2025-sleepers-shedeur-
 **Minnesota Vikings 2025 schedule: Games in Dublin, London on tap in Weeks 4 and 5**\
 `The Vikings will play overseas in back-to-back weeks. Come back Wednesday night for the team's full schedule, plus analysis and predictions.`\
 https://nytimes.com/athletic/6350010/2025/05/14/minnesota-vikings-schedule-2025/
-
-**Chicago Bears 2025 schedule: Black Friday date with champion Eagles on tap**\
-`Come back Wednesday night for the Bears' week-to-week schedule, plus season analysis and predictions.`\
-https://nytimes.com/athletic/6351133/2025/05/14/chicago-bears-schedule-2025/
-
-**Mikko Rantanen's 'smile is coming back': Family and friends on playoff dominance and new home with Stars**\
-`Rantanen is putting up historic numbers in the playoffs for the Stars, but to those close to him, seeing the joy is more important.`\
-https://nytimes.com/athletic/6353406/2025/05/14/mikko-rantanen-stars-nhl-playoffs-trades/
 
