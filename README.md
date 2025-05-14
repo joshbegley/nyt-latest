@@ -1,3 +1,7 @@
+**The Bounce: What's next for the Celtics? And why don't we have an MVP yet?**\
+`With Jayson Tatum on the mend, can Boston remain a title contender?`\
+https://nytimes.com/athletic/6355455/2025/05/14/jayson-tatum-achilles-celtics-nba-playoffs-the-bounce/
+
 **Canucks free-agent targets: 10 top-six wingers who could help Vancouver score**\
 `The Athletic looks at 10 of the best pending unrestricted free agent options to help boost Vancouver's scoring.`\
 https://nytimes.com/athletic/6354613/2025/05/14/canucks-free-agent-targets-wingers-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353810/2025/05/14/2025-pga-championship-pool-picks
 **Las Vegas Raiders 2025 schedule: Easier road to playoffs on tap?**\
 `Come back Wednesday night for the Raiders' week-to-week schedule, plus season analysis and predictions.`\
 https://nytimes.com/athletic/6350011/2025/05/14/las-vegas-raiders-schedule-2025/
-
-**Seattle Seahawks 2025 schedule: Reunion games for Sam Darnold, Cooper Kupp and DK Metcalf**\
-`Here's everything you need to know about the Seahawks' 2025 schedule, including a few star players facing their former teams.`\
-https://nytimes.com/athletic/6353713/2025/05/14/seattle-seahawks-schedule-2025/
 
