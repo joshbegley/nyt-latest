@@ -1,3 +1,11 @@
+**Dodgers' Roki Sasaki could land on the IL with shoulder trouble: Source**\
+`LOS ANGELES — The mystery surrounding Los Angeles Dodgers rookie Roki Sasaki’s gradual dip in fastball velocity deepened Tuesday afternoon as the Dodgers looked poised to place the 23-year-old Japanese right-hander on the injured list.`\
+https://nytimes.com/athletic/6354397/2025/05/13/roki-sasaki-injured-sources/
+
+**Map: 6.0-Magnitude Earthquake Strikes Near Crete, Prompting a Tsunami Alert**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/13/world/earthquake-greece-crete.html
+
 **Menendez Brothers Resentenced to Life With Parole, Paving Way for Freedom**\
 `The decision could lead to the release of Lyle and Erik Menendez, more than three decades after they were sent to prison for killing their parents.`\
 https://nytimes.com/2025/05/13/us/menendez-brothers-resentenced.html
