@@ -1,3 +1,15 @@
+**101 Degrees in May? Even for Texas, This Is Hot.**\
+`Forecasters expect multiple records to be broken over the next week as an early heat wave settles over the region.`\
+https://nytimes.com/2025/05/14/weather/texas-heat-record-may.html
+
+**Rick Tocchet, Flyers are a natural fit, but not for the reasons you might assume**\
+`It’s an established pattern in the NHL — teams rotating through the same inventory of coaches over and over, in the hopes that the experience they have gained in their previous stops will help them to immediately get off on the right foot in their new locales.`\
+https://nytimes.com/athletic/6356566/2025/05/14/tocchet-flyers-coach-player/
+
+**Bayesian Superyacht Sank After ‘Extreme’ Wind Gust, Report Says**\
+`An official report into last year’s yacht tragedy, which killed seven, found that the boat could easily capsize in high winds. Its towering mast made it more vulnerable.`\
+https://nytimes.com/2025/05/15/world/europe/bayesian-superyacht-sinking-report.html
+
 **Hard-throwing Angels reliever Ben Joyce to miss season after shoulder surgery**\
 `This injury, and the mounting health concerns, have caused Joyce to rethink his flame-throwing approach.`\
 https://nytimes.com/athletic/6357188/2025/05/14/angels-ben-joyce-shoulder-surgery/

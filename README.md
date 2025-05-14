@@ -1,3 +1,7 @@
+**Why Does the Trump Administration Want a New Air Force One?**\
+`The two 747-200s that serve as the American president’s command center in the sky are more than 30 years are old and were meant to be phased out of service years ago.`\
+https://nytimes.com/2025/05/14/us/politics/why-does-trump-administration-want-a-new-air-force-one.html
+
 **101 Degrees in May? Even for Texas, This Is Hot.**\
 `Forecasters expect multiple records to be broken over the next week as an early heat wave settles over the region.`\
 https://nytimes.com/2025/05/14/weather/texas-heat-record-may.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356477/2025/05/14/serena-williams-alexis-ohanian-c
 **Tanner Houck lands on IL: What does this mean for Red Sox rotation?**\
 `Two days after Houck gave up 11 earned runs in a start against Detroit, the Red Sox placed the right-hander on the injured list.`\
 https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
-
-**Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
-`By Ben Sisario, Joe Coscarelli and Julia Jacobs`\
-https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/casandra-ventura-ends-an-emotional-day-of-testimony-with-dramatic-revelations
 
