@@ -1,4 +1,8 @@
 **How Kodai Senga learned to distill more data into a better scouting report**\
+`Learning how to incorporate all the information available to him in the U.S. has been critical to Senga's success.`\
+https://nytimes.com/athletic/6354694/2025/05/13/mets-kodai-senga-scouting-report/
+
+**How Kodai Senga learned to distill more data into a better scouting report**\
 `Learning how to incorporate all the information available to him in the U.S. has been critical to Senga’s success.`\
 https://nytimes.com/athletic/6354694/2025/05/13/mets-kodai-senga-scouting-report/
 
