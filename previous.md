@@ -1,3 +1,15 @@
+**Syrians Are Elated and Optimistic as Trump Vows to Lift Sanctions**\
+`The announcement is a boon for the new government as it looks to rebuild an economy wrecked by a decade of civil war.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
+
+**Ten Hag on Leverkusen shortlist to relace Alonso**\
+`Ten Hag, who has been out of management since leaving Manchester United in October, is a candidate to replace the outgoing Xabi Alonso.`\
+https://nytimes.com/athletic/6066128/2025/05/14/erik-ten-hag-bayer-leverkusen/
+
+**What are the ‘freak-offs’ at the core of the Sean Combs case?**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/what-are-the-freak-offs-at-the-core-of-the-sean-combs-case
+
 **Why Evan Bouchard's next contract feels terrifying**\
 `Bouchard is a terrifying player in more ways than one, and he's about to get paid a terrifying number.`\
 https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoffs-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6353713/2025/05/14/seattle-seahawks-schedule-2025/
 **49ers 2025 schedule: Will a last-place schedule help produce a bounce back?**\
 `The 49ers endured injuries and a Super Bowl hangover last season. Could that work in their favor in 2025? `\
 https://nytimes.com/athletic/6350125/2025/05/14/san-francisco-49ers-2025-schedule/
-
-**Los Angeles Rams 2025 schedule: NFC West champs play Jaguars in London**\
-`We know who the Rams are playing next season. Tonight, we'll get the complete schedule.`\
-https://nytimes.com/athletic/6353353/2025/05/14/los-angeles-rams-schedule-2025/
-
-**Newsom Proposes Scaling Back Health Care for Undocumented Immigrants in California**\
-`Gov. Gavin Newsom wants to charge monthly premiums for undocumented immigrants and prevent new enrollees in the program as soon as January.`\
-https://nytimes.com/2025/05/14/us/california-newsom-healthcare-budget.html
-
-**A.I. Starting in Pre-K Would Be an ‘Unmitigated Disaster’**\
-`The secretary of education said it would be a ‘wonderful thing.’ Lots of parents disagree.`\
-https://nytimes.com/2025/05/14/opinion/trump-ai-elementary.html
 

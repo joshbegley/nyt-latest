@@ -1,3 +1,15 @@
+**Syrians Are Elated and Optimistic as Trump Vows to Lift Sanctions**\
+`The announcement is a boon for the new government as it looks to rebuild an economy wrecked by a decade of civil war.`\
+https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
+
+**Ten Hag on Leverkusen shortlist to relace Alonso**\
+`Ten Hag, who has been out of management since leaving Manchester United in October, is a candidate to replace the outgoing Xabi Alonso.`\
+https://nytimes.com/athletic/6066128/2025/05/14/erik-ten-hag-bayer-leverkusen/
+
+**What are the ‘freak-offs’ at the core of the Sean Combs case?**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/what-are-the-freak-offs-at-the-core-of-the-sean-combs-case
+
 **Why Evan Bouchard's next contract feels terrifying**\
 `Bouchard is a terrifying player in more ways than one, and he's about to get paid a terrifying number.`\
 https://nytimes.com/athletic/6353924/2025/05/14/oilers-evan-bouchard-nhl-playoffs-contract/
