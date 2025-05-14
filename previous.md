@@ -1,3 +1,8 @@
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **Kyle Schwarber's on-base streak ends at 47 games, fourth-longest in Phillies history**\
 `It was the longest such streak in MLB since Tommy Pham reached base in 48 straight games from 2018-19.`\
 https://nytimes.com/athletic/6356573/2025/05/14/kyle-schwarber-on-base-streak-ends-phillies/
@@ -14,7 +19,7 @@ https://nytimes.com/2025/05/14/nyregion/edan-alexander-new-jersey-hostage-gaza.h
 `The case relates to an alleged incident at a beach club in the south of the Spanish island in 2023.`\
 https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investigation/
 
-**Rick Tocchet hired as Philadelphia Flyers coach**\
+**Philadelphia Flyers hire Rick Tocchet as 'absolute right coach to lead our team'**\
 `Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
 https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
 
@@ -33,8 +38,4 @@ https://nytimes.com/2025/05/14/movies/mission-impossible-final-reckoning-review-
 **Can Eurovision Avoid Politics in Neutral Switzerland?**\
 `The competition is run by an opaque Swiss organization that wants to sidestep controversies that could spoil the fun.`\
 https://nytimes.com/2025/05/14/arts/music/eurovision-politics-european-broadcasting-union.html
-
-**Cooper Flagg shocked by 'crazy draft lottery' as Mavs jump at ' fresh start'**\
-`Flagg will be seen as the franchise's new foundational player, a position held just a few months ago by Luka Dončić.`\
-https://nytimes.com/athletic/6356752/2025/05/14/cooper-flagg-mavericks-draft-lottery/
 
