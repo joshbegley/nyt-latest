@@ -1,3 +1,15 @@
+**'The numbers are ugly': Justin Turner walks off Marlins as he tries to shake early slump**\
+`Turner fought for at-bats for much of the early part of his career. He’s prepared to do it again.`\
+https://nytimes.com/athletic/6354362/2025/05/14/justin-turner-walk-off-marlins-slump/
+
+**Analysing Chelsea's No 9 options in the absence of the suspended Nicolas Jackson**\
+`The Senegalese will miss the rest of the domestic campaign through suspension, leaving Enzo Maresca to conjure an alternative from the ranks`\
+https://nytimes.com/athletic/6352732/2025/05/14/chelsea-jackson-palmer-neto-george-nkunku-maresca/
+
+**Why isn't the possibility of signing Morgan Gibbs-White exciting many Manchester City fans?**\
+`The England midfielder ticks a lot of boxes when it comes to replacing Kevin De Bruyne - but his potential arrival has split opinion `\
+https://nytimes.com/athletic/6350158/2025/05/14/man-city-morgan-gibbs-white-excitement/
+
 **Ronald Acuña Jr. homers in first rehab game on the night Braves reach .500**\
 `Acuña played six innings in a rookie league game and will head to Triple-A Gwinnett for his next rehab game Thursday. `\
 https://nytimes.com/athletic/6354814/2025/05/14/braves-ronald-acuna-homer-rehab/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6352120/2025/05/14/ashley-fletcher-blackpool-west-h
 **Xhaka, Zirkzee, Sterling: When Premier League fans boos their own team's players**\
 `Trent Alexander-Arnold being booed by Liverpool fans surprised many on Sunday, but he and Liverpool are not alone...`\
 https://nytimes.com/athletic/6352346/2025/05/14/premier-league-booing-own-players/
-
-**Beyond Tariff Truce, China Readies for a Rocky Time With U.S.**\
-`Beijing is trying to win over other countries with vows of economic cooperation. But it won’t back down from its territorial claims, experts predict.`\
-https://nytimes.com/2025/05/14/world/asia/china-us-tariffs-security.html
-
-**Connections: Sports Edition Coach: Hints for May 14, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6354541/2025/05/14/connections-sports-edition-hints-for-may-14-2025/
-
-**The World Is Wooing U.S. Researchers Shunned by Trump**\
-`As President Trump guts American research institutions, world leaders see a “once-in-a-century brain gain opportunity.”`\
-https://nytimes.com/2025/05/14/business/economy/trump-research-brain-drain.html
 
