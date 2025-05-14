@@ -1,3 +1,11 @@
+**Man Who Threatened U.S. Senator From Nevada Gets Nearly 4 Years in Prison**\
+`The man, John Anthony Miller, left a series of messages spewing antisemitic vitriol on the office voice mail system of Senator Jacky Rosen, the authorities said.`\
+https://nytimes.com/2025/05/14/us/jacky-rosen-threats-las-vegas-man-sentenced.html
+
+**Cassie Settled Lawsuit Against Sean Combs for $20 Million**\
+`Casandra Ventura testified in federal court about her 2023 lawsuit against Mr. Combs, whom she had accused of years of physical abuse and sexual coercion.`\
+https://nytimes.com/2025/05/14/arts/music/lawsuit-settlement.html
+
 **Will Tom Willander be the Canucks’ next star? Here’s what to expect**\
 `Examining Willander's style of play, his long-term ceiling and what Vancouver should ultimately expect from its prized defensive prospect.`\
 https://nytimes.com/athletic/6276586/2025/05/14/canucks-tom-willander-prospect-contract/
