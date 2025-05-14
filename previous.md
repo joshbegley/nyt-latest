@@ -1,3 +1,7 @@
+**What Trump, and C.E.O.s, Actually Got in Riyadh**\
+`Executives including Elon Musk and Nvidia’s Jensen Huang, were in Saudi Arabia for for new investments. That, not tariffs, is what they wanted from Trump.`\
+https://nytimes.com/2025/05/14/business/dealbook/ceos-trump-deals-saudi-arabia.html
+
 **How can the Jets come back from this 3-1 deficit? Winnipeg's 5 needs to topple the Stars**\
 `What would it take for them to become the 33rd team in NHL history to come back from a 3-1 series deficit?`\
 https://nytimes.com/athletic/6354330/2025/05/14/jets-series-comeback-stars-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/world/middleeast/gaza-israeli-strikes.html
 **Ranking the 16 possible Stanley Cup Final matchups, based purely on narratives**\
 `With eight teams eliminated, let's rank the remaining potential matchups — from worst to best — based purely on narratives and vibes.`\
 https://nytimes.com/athletic/6351346/2025/05/14/nhl-playoffs-stanley-cup-final-matchups/
-
-**India and Pakistan Swap Detained Soldiers as Cease-Fire Holds**\
-`India exchanged a Pakistani paramilitary fighter for a border security guard that Pakistan had held for weeks. Each officer had been detained before the countries’ military skirmish started.`\
-https://nytimes.com/2025/05/14/world/asia/india-pakistan-soldier-exchange.html
 

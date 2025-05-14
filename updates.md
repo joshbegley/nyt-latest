@@ -1,3 +1,7 @@
+**What Trump, and C.E.O.s, Actually Got in Riyadh**\
+`Executives including Elon Musk and Nvidia’s Jensen Huang, were in Saudi Arabia for for new investments. That, not tariffs, is what they wanted from Trump.`\
+https://nytimes.com/2025/05/14/business/dealbook/ceos-trump-deals-saudi-arabia.html
+
 **How can the Jets come back from this 3-1 deficit? Winnipeg's 5 needs to topple the Stars**\
 `What would it take for them to become the 33rd team in NHL history to come back from a 3-1 series deficit?`\
 https://nytimes.com/athletic/6354330/2025/05/14/jets-series-comeback-stars-nhl-playoffs/
