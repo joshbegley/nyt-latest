@@ -1,3 +1,7 @@
+**'He belongs in the Hall of Fame’: Within MLB, a mostly celebratory tone for Pete Rose**\
+`MLB commissioner Rob Manfred removed Rose and 16 other deceased individuals, including Shoeless Joe Jackson, from the ineligible list.`\
+https://nytimes.com/athletic/6354447/2025/05/13/pete-rose-reinstatement-hall-of-fame-mlb-managers-react/
+
 **'He's my brother': Aaron Judge, Yankees visit Oswaldo Cabrera at hospital after gruesome injury**\
 `Cabrera, known throughout the clubhouse for his infectious smile, beamed at the sight of his teammates.`\
 https://nytimes.com/athletic/6354422/2025/05/13/oswaldo-cabrera-injury-yankees-aaron-judge/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/13/nyregion/evette-jeffrey-murder-bronx-shooting.htm
 **A Book Points to Biden’s Decline and Democrats’ Cowardice: 6 Takeaways**\
 `The book, “Original Sin,” describes how Mr. Biden’s aides quashed concerns about his age. But the anonymous accounts show that many Democrats are still afraid to discuss the issue publicly.`\
 https://nytimes.com/2025/05/13/us/politics/biden-book-takeaways.html
-
-**Hunter Dekkers, banned by NCAA for sports betting, signed by Saints**\
-`Dekkers pled guilty to underage gambling in 2023 and enrolled at Iowa Western Community College for the 2024 season. `\
-https://nytimes.com/athletic/6302384/2025/05/13/hunter-dekkers-gambling-signed-saints/
 
