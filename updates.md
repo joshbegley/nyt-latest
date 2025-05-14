@@ -1,3 +1,11 @@
+**Ravens, Derrick Henry agree to two-year, $30 million contract extension**\
+`Before the deal, Henry was the 13th highest-paid running back in the NFL despite perennially being one of the league’s top performers.`\
+https://nytimes.com/athletic/6355897/2025/05/14/ravens-derrick-henry-two-year-contract-extension/
+
+**Dozens Killed in Israeli Strikes in Northern Gaza, Officials Say**\
+`People rushed to rescue survivors following Israeli strikes in northern Gaza. The Israeli government didn’t immediately comment on the strikes.`\
+https://nytimes.com/video/world/middleeast/100000010169503/israeli-strikes-northern-gaza.html
+
 **Real Madrid in talks with Huijsen and Bournemouth over move for defender**\
 `The 20-year-old has attracted interest from across Europe with Liverpool, Chelsea and Arsenal showing interest.`\
 https://nytimes.com/athletic/6257033/2025/05/14/dean-huijsen-transfer-real-madrid/

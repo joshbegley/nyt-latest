@@ -1,4 +1,12 @@
-**Ravens, Derrick Henry agree to two-year, $30 million contract extension**\
+**NASA’s Perseverance Mars Rover Spotted a Northern Lights-Like Green Glow**\
+`A serendipitous solar outburst let scientists point the robot’s cameras toward the Red Planet’s sky to spot a feature shared with our Blue Marble.`\
+https://nytimes.com/2025/05/14/science/mars-aurora-northern-lights.html
+
+**Is Barbie’s Empowerment Tied to the Angle of Her Feet?**\
+`Researchers in Australia found that the doll’s feet have, over time, gone from arched to flat — a shift that correlates with each Barbie’s designated career or hobby.`\
+https://nytimes.com/2025/05/14/style/barbie-high-heels-feet-study.html
+
+**Ravens, Derrick Henry agree to 2-year, $30 million contract extension**\
 `Before the deal, Henry was the 13th highest-paid running back in the NFL despite perennially being one of the league’s top performers.`\
 https://nytimes.com/athletic/6355897/2025/05/14/ravens-derrick-henry-two-year-contract-extension/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6356249/2025/05/14/pete-rose-hall-of-famers-reactio
 **A Members Club in Montauk? Locals Say the Village Is Exclusive Enough.**\
 `A plan to open a restaurant that will offer what the owners are calling a “status guest component” in the Long Island beach town has been met with skepticism.`\
 https://nytimes.com/2025/05/14/realestate/montauk-members-club-mary-lous.html
-
-**Watch: What do the Cavs need to bounce back next season?**\
-`NBA Daily discusses whether Cleveland should run it back with the same core next season after being eliminated from the playoffs.`\
-https://nytimes.com/athletic/6355687/2025/05/14/nba-daily-cleveland-cavaliers-2025-26-season/
-
-**ACC commissioner Jim Phillips open to supporting CFP straight seeding model**\
-`Currently, the top four seeds are reserved for the four highest-ranked conference champions selected to the field.`\
-https://nytimes.com/athletic/6356228/2025/05/14/college-football-playoff-seeding-jim-phillips/
 
