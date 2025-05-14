@@ -1,3 +1,11 @@
+**Tanner Houck lands on the IL: What does this mean for the Red Sox rotation?**\
+`Two days after Tanner Houck gave up 11 earned runs in a start against Detroit, the Boston Red Sox placed the right-hander on the injured list with a right flexor pronator strain.`\
+https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
+
+**Cassie Settled Lawsuit Against Sean Combs for $20 Million**\
+`Casandra Ventura testified in federal court about her 2023 lawsuit against Mr. Combs, whom she had accused of years of physical abuse and sexual coercion.`\
+https://nytimes.com/2025/05/14/arts/music/diddy-cassie-settlement-amount.html
+
 **Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
 `By Ben Sisario, Joe Coscarelli and Julia Jacobs`\
 https://nytimes.com/live/2025/05/14/arts/sean-combs-diddy-trial-cassie/casandra-ventura-ends-an-emotional-day-of-testimony-with-dramatic-revelations
