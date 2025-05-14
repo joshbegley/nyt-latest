@@ -1,3 +1,19 @@
+**Havertz, Rice, Trossard train ahead of Arsenal vs. Newcastle**\
+`Havertz has not played since his hamstring surgery in February, while Rice and Trossard were doubts after Sunday's trip to Liverpool.`\
+https://nytimes.com/athletic/6355288/2025/05/14/arsenal-havertz-rice-trossard-newcastle/
+
+**Burberry to Cut 1,700 Jobs in Turnaround Push**\
+`The British fashion house, which reported poor annual sales in a precarious time for the global luxury industry, is looking to save 60 million pounds in cost-cutting efforts.`\
+https://nytimes.com/2025/05/14/business/burberry-job-cuts.html
+
+**Gibbs-White banned from driving after guilty plea to 6 speeding offences**\
+`Gibbs-White has been banned from driving for six months and fined after speeding on six occasions on a major road in Nottinghamshire.`\
+https://nytimes.com/athletic/6355156/2025/05/14/morgan-gibbs-white-driving-ban-speeding/
+
+**Israeli Airstrikes Kill Dozens in Northern Gaza Overnight, Hospital Director Says**\
+`Israel’s military did not immediately respond to a request for comment. A military spokesman had warned of an impending attack in northern Gaza.`\
+https://nytimes.com/2025/05/14/world/middleeast/gaza-israeli-strikes.html
+
 **Ranking the 16 possible Stanley Cup Final matchups, based purely on narratives**\
 `With eight teams eliminated, let's rank the remaining potential matchups — from worst to best — based purely on narratives and vibes.`\
 https://nytimes.com/athletic/6351346/2025/05/14/nhl-playoffs-stanley-cup-final-matchups/
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/6349660/2025/05/14/twins-prospects-strong-starts-ca
 **Can Nebraska use Michigan's slight as fuel to snap an unfortunate streak?**\
 `Nebraska has lost an unthinkable 27 consecutive games against opponents ranked in the AP Top 25. Could the streak end vs. Michigan?`\
 https://nytimes.com/athletic/6353921/2025/05/14/nebraska-losing-streak-ranked-teams-michigan/
-
-**Philadelphia Eagles 2025 schedule: Plenty of heavyweight matchups for defending champions**\
-`Championship expectations remain in place for the Eagles, who could have one of the league's toughest 2025 schedules. `\
-https://nytimes.com/athletic/6344157/2025/05/14/philadelphia-eagles-schedule-2025/
-
-**LeBrun: Leafs finding ‘balance’ between staying disciplined and physical against Panthers**\
-`Toronto is teetering on the delicate line between wanting to show that it won't back down and taking things too far against Florida.
-`\
-https://nytimes.com/athletic/6354017/2025/05/14/maple-leafs-panthers-nhl-playoffs-lebrun/
-
-**Can Jordan Spieth complete the career Grand Slam this week?**\
-`"I think if Rory (McIlroy) didn't complete the Slam at the Masters (last month), then it wouldn't have been a storyline for me here."`\
-https://nytimes.com/athletic/6354756/2025/05/14/jordan-spieth-career-grand-slam-pga-championship/
-
-**‘Bruce, you got me’: Why Bret Boone signed up to help fix the Rangers**\
-`Boone only took about five minutes to accept Bruce Bochy's offer to become a hitting coach for Texas: "This is what I’m supposed to do.”`\
-https://nytimes.com/athletic/6354490/2025/05/14/rangers-bret-boone-hitting-coach-bruce-bochy/
 

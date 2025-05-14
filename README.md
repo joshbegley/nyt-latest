@@ -1,3 +1,11 @@
+**New Lions assistants like what they see from Jameson Williams, Jared Goff and others**\
+`The cohesion of Detroit's new offensive coaches was on display Tuesday, when they talked about the talent with whom they'll work in 2025.`\
+https://nytimes.com/athletic/6354114/2025/05/14/lions-coaches-offense-jameson-williams/
+
+**Australian cyclist Dennis receives suspended sentence over death of Olympian wife Hoskins**\
+`Hoskins, a former world cycling champion, died aged 32 after being hit by a car on December 30, 2023, outside the couple's home in Adelaide.`\
+https://nytimes.com/athletic/6355089/2025/05/14/cyclist-rohan-dennis-melissa-hoskins-sentence/
+
 **Havertz, Rice, Trossard train ahead of Arsenal vs. Newcastle**\
 `Havertz has not played since his hamstring surgery in February, while Rice and Trossard were doubts after Sunday's trip to Liverpool.`\
 https://nytimes.com/athletic/6355288/2025/05/14/arsenal-havertz-rice-trossard-newcastle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6354904/2025/05/14/cubs-prospect-moises-ballesteros
 **For the first time in decades, the leaders of the U.S. and Syria meet.**\
 `By Ismaeel Naar and Enjoli Liston`\
 https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/for-the-first-time-in-decades-the-leaders-of-the-us-and-syria-meet
-
-**Three under-the-radar Twins prospects off to stock-raising starts, led by 'McCrusher'**\
-`Triple-A slugger Carson McCusker is putting up huge numbers in St. Paul, plus a Double-A line-drive machine and a High-A speedster to watch.`\
-https://nytimes.com/athletic/6349660/2025/05/14/twins-prospects-strong-starts-carson-mccusker/
-
-**Can Nebraska use Michigan's slight as fuel to snap an unfortunate streak?**\
-`Nebraska has lost an unthinkable 27 consecutive games against opponents ranked in the AP Top 25. Could the streak end vs. Michigan?`\
-https://nytimes.com/athletic/6353921/2025/05/14/nebraska-losing-streak-ranked-teams-michigan/
 
