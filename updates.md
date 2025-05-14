@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
 
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **Nora Aunor, Singer-Actress Called ‘the Superstar’ in Philippines, Dies at 71**\
 `And her fans were called Noranians for their devotion to a performer who had enthralled her country — onscreen and on the concert stage — since she was a teenager.`\
 https://nytimes.com/2025/05/14/arts/nora-aunor-dead.html
