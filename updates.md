@@ -1,3 +1,12 @@
+**Word of the Day: scrupulously**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/14/learning/word-of-the-day-scrupulously.html
+
+**Even at partial strength, the Stars look unstoppable. Look out, NHL**\
+`One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
+`\
+https://nytimes.com/athletic/6354838/2025/05/14/stars-nhl-playoffs-game-4-jets/
+
 **Even at partial strength, the Stars look unstoppable. Look out, NHL**\
 `One win away from advancing to the Western Conference final, it's frightening how much more dangerous this team can get at full strength.
 `\

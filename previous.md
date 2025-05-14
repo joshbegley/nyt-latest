@@ -1,3 +1,7 @@
+**Word of the Day: scrupulously**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/14/learning/word-of-the-day-scrupulously.html
+
 **Angel City's Savy King has surgery after collapsing on field**\
 `King collapsed on the field during Friday's match against the Utah Royals.`\
 https://nytimes.com/athletic/6354934/2025/05/14/angel-city-savy-king-surgery-collapse-on-field/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6344593/2025/05/14/spurs-johnson-solanke-richarliso
 **Pressure Loss Led to Private Jet Crash After Sonic Boom Scare, Report Says**\
 `The unresponsive plane drew a response from military jets, causing a sonic boom, before it crashed in Virginia in 2023. A federal report said a loss of cabin pressure was likely to blame.`\
 https://nytimes.com/2025/05/14/us/sonic-boom-crash-dc-virginia.html
-
-**'Everton will still be Everton, but Goodison Park is the fabric of it'**\
-`Goodison Park has one Premier League game left – so what is it like to work at one of England's oldest and most iconic grounds?`\
-https://nytimes.com/athletic/6346278/2025/05/14/goodison-park-goodbye-staff-everton/
 
