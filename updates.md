@@ -1,3 +1,7 @@
+**How Kodai Senga learned to distill more data into a better scouting report**\
+`Learning how to incorporate all the information available to him in the U.S. has been critical to Senga’s success.`\
+https://nytimes.com/athletic/6354694/2025/05/13/mets-kodai-senga-scouting-report/
+
 **Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
 `The Jets, now facing elimination, have lost nine consecutive road playoff games.`\
 https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/

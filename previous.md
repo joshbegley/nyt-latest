@@ -1,3 +1,7 @@
+**How Kodai Senga learned to distill more data into a better scouting report**\
+`Learning how to incorporate all the information available to him in the U.S. has been critical to Senga’s success.`\
+https://nytimes.com/athletic/6354694/2025/05/13/mets-kodai-senga-scouting-report/
+
 **Mikael Granlund records hat trick in Game 4, Stars extend Jets' road woes: Takeaways**\
 `The Jets, now facing elimination, have lost nine consecutive road playoff games.`\
 https://nytimes.com/athletic/6354615/2025/05/13/nhl-stars-jets-granlund/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354447/2025/05/13/pete-rose-reinstatement-hall-of-
 **'He's my brother': Aaron Judge, Yankees visit Oswaldo Cabrera at hospital after gruesome injury**\
 `Cabrera, known throughout the clubhouse for his infectious smile, beamed at the sight of his teammates.`\
 https://nytimes.com/athletic/6354422/2025/05/13/oswaldo-cabrera-injury-yankees-aaron-judge/
-
-**A Bearded Buttigieg Drops Into Iowa for a Pitch to Veterans**\
-`With Democrats sizing up their 2028 plans, Pete Buttigieg spoke at a town hall in Cedar Rapids and criticized the Trump administration: “The American people bow to no king.”`\
-https://nytimes.com/2025/05/13/us/politics/pete-buttigieg-iowa-democrats.html
 
