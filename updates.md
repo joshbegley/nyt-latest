@@ -1,3 +1,12 @@
+**Mariners' Julio Rodríguez robs homer from Trent Grisham**\
+`Grisham hit two home runs over Rodríguez's head on Monday. Seattle's center fielder got his revenge at the beginning of Wednesday's game.`\
+https://nytimes.com/athletic/6356942/2025/05/14/mariners-julio-rodriguez-robs-home-run-trent-grisham-yankees/
+
+**Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
+`The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
+`\
+https://nytimes.com/athletic/6353689/2025/05/14/ken-holland-la-kings-gm-nhl/
+
 **Mirtle: Ken Holland is back as an NHL GM. It’s not the trend you might think it is**\
 `The well-known hiring trends of coaches around the league are starting to not apply higher up at the GM level. 
 `\

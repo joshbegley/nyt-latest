@@ -1,3 +1,7 @@
+**Mariners' Julio Rodríguez robs homer from Trent Grisham**\
+`Grisham hit two home runs over Rodríguez's head on Monday. Seattle's center fielder got his revenge at the beginning of Wednesday's game.`\
+https://nytimes.com/athletic/6356942/2025/05/14/mariners-julio-rodriguez-robs-home-run-trent-grisham-yankees/
+
 **‘My Opinions About Vaccines Are Irrelevant,’ Kennedy Says**\
 `During a congressional hearing on the Trump administration’s drastic overhaul of federal health agencies on Wednesday, Robert F. Kennedy Jr., the health secretary, said, “I don’t think people should be taking advice, medical advice from me.”`\
 https://nytimes.com/video/us/politics/100000010170056/pocan-kennedy-child-vaccine.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/14/nyregion/edan-alexander-new-jersey-hostage-gaza.h
 **Real Madrid's Asencio could face criminal proceedings for allegedly sharing sex tape of a minor**\
 `The case relates to an alleged incident at a beach club in the south of the Spanish island in 2023.`\
 https://nytimes.com/athletic/6356571/2025/05/14/real-madrid-raul-asencio-investigation/
-
-**Philadelphia Flyers hire Rick Tocchet as 'absolute right coach to lead our team'**\
-`Tocchet, a former Flyers forward, most recently coached the Vancouver Canucks.`\
-https://nytimes.com/athletic/6330713/2025/05/14/rick-tocchet-flyers-head-coach-hired/
 
