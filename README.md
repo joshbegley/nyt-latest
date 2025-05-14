@@ -1,3 +1,11 @@
+**Nahid Rachlin, Novelist Who Explored the Iranian Psyche, Dies at 85**\
+`One of the first Iranian novelists to write in English, she examined the clash between East and West. Her debut novel, “Foreigner,” provided insight into pre-revolutionary Iran.`\
+https://nytimes.com/2025/05/14/books/nahid-rachlin-dead.html
+
+**Trump Calls Syria’s New President ‘Attractive’ and ‘Tough’**\
+`President Trump met with the president of Syria, Ahmed al-Shara, an ex-militant who led the rebel alliance that ousted Bashar al-Assad, and who once led a branch of Al Qaeda before he broke ties with the jihadist group.`\
+https://nytimes.com/video/world/middleeast/100000010169280/trump-syria-president.html
+
 **Taiwo Awoniyi: What happens in an on-field medical assessment and what an induced coma is**\
 `The Nottingham Forest striker was placed in an induced coma on Tuesday after colliding with a post during a Premier League match on Sunday`\
 https://nytimes.com/athletic/6356037/2025/05/14/nottingham-forest-player-injury-taiwo-awoniyi-coma/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6139642/2025/05/14/wirtz-bayer-leverkusen-liverpool
 **In the Nevada Desert, a Weekend of Fitness, Frost and Firearms**\
 `An interest in alternative sports brought a reporter from Berlin to Reno to witness an unforgettable competition.`\
 https://nytimes.com/2025/05/14/insider/tactical-games-2025.html
-
-**‘Chromebook Challenge’ Brings Suspensions and Criminal Charges Across U.S.**\
-`The social media trend involves students short-circuiting their school-issued laptops.`\
-https://nytimes.com/2025/05/14/us/tiktok-trend-school-laptops-fire.html
-
-**Brahim injury leaves Real Madrid with 10 first-team players - what are La Liga squad rules?**\
-`Madrid face Mallorca tonight needing to win otherwise rivals Barcelona will be crowned La Liga champions.`\
-https://nytimes.com/athletic/6355774/2025/05/14/real-madrid-injuries-brahim/
 
