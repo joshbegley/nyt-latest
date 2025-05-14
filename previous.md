@@ -1,3 +1,11 @@
+**Qatar, not to be outdone, welcomes Trump with camels, swords and ‘perfecto’ marble.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/qatar-not-to-be-outdone-welcomes-trump-with-camels-swords-and-perfecto-marble
+
+**Three-time All-Star Matt Carpenter announces his retirement**\
+`Carpenter, who spent 12 of his 14 seasons with the Cardinals, finished his career with 179 home runs, 329 doubles and 28.7 WAR. `\
+https://nytimes.com/athletic/6355784/2025/05/14/matt-carpenter-retires-mlb-cardinals/
+
 **Max, Once Known as HBO Max, Is Calling Itself HBO Max Again. Got It?**\
 `Warner Bros. Discovery executives are reinstating the name HBO Max for the popular streaming service. It’s the fourth name change for the app in the last decade.`\
 https://nytimes.com/2025/05/14/business/media/hbo-max-streaming-name.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/world/africa/ramaphosa-south-africa-refugees-cowa
 **Foul-line foibles aside, Mitchell Robinson has bruised and battered the Celtics**\
 `Robinson missed most of the season with injuries, but he is so important now, that Boston has resorted to fouling him on purpose.`\
 https://nytimes.com/athletic/6354812/2025/05/14/mitchell-robinson-knicks-playoffs-rebounding-fouls-celtics/
-
-**NHL playoffs Round 2 vibe check: Auston Matthews’ shooting, Jets’ road woes and more**\
-`Three teams are already on the brink of elimination in the second round of this year's NHL playoffs. Here are some trends from the series.`\
-https://nytimes.com/athletic/6354338/2025/05/14/nhl-playoffs-seond-round-jets-auston-matthews/
-
-**Why the Giants shouldn't trade Jameis Winston to the Saints**\
-`Winston's true value to the Giants might not be fully realized until 2026. `\
-https://nytimes.com/athletic/6354419/2025/05/14/new-york-giants-jameis-winston-trade-saints/
 

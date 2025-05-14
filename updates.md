@@ -1,3 +1,11 @@
+**Qatar, not to be outdone, welcomes Trump with camels, swords and ‘perfecto’ marble.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2025/05/14/us/trump-news-middle-east/qatar-not-to-be-outdone-welcomes-trump-with-camels-swords-and-perfecto-marble
+
+**Three-time All-Star Matt Carpenter announces his retirement**\
+`Carpenter, who spent 12 of his 14 seasons with the Cardinals, finished his career with 179 home runs, 329 doubles and 28.7 WAR. `\
+https://nytimes.com/athletic/6355784/2025/05/14/matt-carpenter-retires-mlb-cardinals/
+
 **Max, Once Known as HBO Max, Is Calling Itself HBO Max Again. Got It?**\
 `Warner Bros. Discovery executives are reinstating the name HBO Max for the popular streaming service. It’s the fourth name change for the app in the last decade.`\
 https://nytimes.com/2025/05/14/business/media/hbo-max-streaming-name.html
