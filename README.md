@@ -1,3 +1,7 @@
+**The Glazers in 2025: What these 20 charts reveal about their Man Utd tenure**\
+`Distilling the American family's 20 controversial years at Old Trafford into 20 revealing graphics`\
+https://nytimes.com/athletic/6336669/2025/05/14/glazers-manchester-united-20-years-finances/
+
 **Javier Báez is pulling off his greatest magic act yet with the first-place Tigers**\
 `Now playing center field, Javier Báez is hitting .319 with an .870 OPS for a Tigers team with the best record in the American League.`\
 https://nytimes.com/athletic/6354874/2025/05/14/javier-baez-magic-act-first-place-detroit-tigers/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6346278/2025/05/14/goodison-park-goodbye-staff-ever
 **From goal of the season to favourite quote, our writers review the WSL season**\
 `From the impact of Naomi Girma's record-breaking transfer to Chloe Kelly's loan move to Arsenal, there were standout moments this WSL season`\
 https://nytimes.com/athletic/6350002/2025/05/14/womens-super-league-season-review/
-
-**'The numbers are ugly': Justin Turner walks off Marlins as he tries to shake early slump**\
-`Turner fought for at-bats for much of the early part of his career. He’s prepared to do it again.`\
-https://nytimes.com/athletic/6354362/2025/05/14/justin-turner-walk-off-marlins-slump/
 
