@@ -6,9 +6,9 @@ https://nytimes.com/2025/05/14/world/middleeast/trump-fifa-world-cup.html
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6354405/2025/05/14/pete-rose-reinstatement-the-pulse/
 
-**Militant’s Killing Would Be Blow to Hamas, but Long-Term Impact is Unclear**\
-`Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, his death would deprive Hamas of a top commander but the strategic consequences are less certain.`\
-https://nytimes.com/2025/05/14/world/middleeast/militants-killing-would-be-blow-to-hamas-but-long-term-impact-is-unclear.html
+**Militant’s Death Would Be Blow to Hamas, but May Have Limited Long-Term Consequences**\
+`Israel tried to kill Muhammad Sinwar, a key Hamas leader in Gaza. If confirmed, it would deprive the group of another top commander, but it is unclear if it would lead to a strategic shift.`\
+https://nytimes.com/2025/05/14/world/middleeast/muhammad-sinwar-hamas-leader-gaza-israel.html
 
 **Detroit Lions 2025 schedule: Matchups against NFC East, AFC North highlight tough slate**\
 `The chase for a Super Bowl continues as the Lions' 2025 schedule gets released Wednesday.`\
