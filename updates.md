@@ -1,3 +1,15 @@
+**Jayson Tatum’s injury will transform the NBA, not just the Celtics**\
+`If one event can dramatically alter even the most sustainable team-building strategy, is it even possible to maintain a championship window?`\
+https://nytimes.com/athletic/6355671/2025/05/14/jayson-tatum-celtics-injury-nba-future-change/
+
+**Amorim 'far from quitting' Man United despite disappointing league form**\
+`United currently sit 16th, with just 39 points, and are guaranteed to record their lowest finish of the Premier League era.`\
+https://nytimes.com/athletic/6356205/2025/05/14/man-united-amorim-future-quit/
+
+**Why Tot Celebrity Ms. Rachel Waded Into the Gaza Debate**\
+`Facing criticism, Rachel Accurso defends making the plight of children in Gaza a primary focus on her social media feeds.`\
+https://nytimes.com/2025/05/14/arts/television/ms-rachel-gaza-israel.html
+
 **EPL top-five odds: Chelsea wobbling, Villa on the surge?**\
 `Sam Tighe analyses the latest trends around the Premier League’s top five race through a betting lens. 
 
