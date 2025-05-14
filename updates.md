@@ -1,3 +1,7 @@
+**Dodgers' Roki Sasaki lands on IL with shoulder impingement**\
+`LOS ANGELES — The mystery surrounding Los Angeles Dodgers rookie Roki Sasaki’s gradual dip in fastball velocity deepened Tuesday afternoon as the Dodgers placed the 23-year-old Japanese right-hander on the injured list.`\
+https://nytimes.com/athletic/6354397/2025/05/13/roki-sasaki-injured-sources/
+
 **Christopher Bond, Former Missouri Governor and U.S. Senator, Dies at 86**\
 `A Republican known as Kit, he was the state’s youngest governor. When he retired from Congress after four terms, he said he didn’t want to be the state’s oldest senator.`\
 https://nytimes.com/2025/05/13/us/politics/christopher-bond-dead.html
