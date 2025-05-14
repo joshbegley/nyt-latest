@@ -1,3 +1,11 @@
+**3 Are Arrested in Russia-Linked Sabotage Plot, Germany Says**\
+`The men, Ukrainian nationals, were arrested in Germany and Switzerland, the state prosecutor in Berlin said. They are suspected of planning to sabotage commercial freight infrastructure.`\
+https://nytimes.com/2025/05/14/world/europe/3-are-arrested-in-russia-linked-sabotage-plot-germany-says.html
+
+**Taking Inches in Battle, Russia Demands Miles in Talks**\
+`Moscow thinks it’s winning in Ukraine and can play hardball diplomatically. Washington sees costly, incremental gains and an unrealistic negotiating position.`\
+https://nytimes.com/2025/05/14/world/europe/russia-ukraine-ceasefire-putin-zelensky-sanctions.html
+
 **Trump Administration to Weaken Some Limits on PFAS in Drinking Water**\
 `The E.P.A. said it would maintain limits on the two most common PFAS chemicals found in tap water but roll back rules for four others.`\
 https://nytimes.com/2025/05/14/climate/pfas-zeldin-trump-administration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6355455/2025/05/14/jayson-tatum-achilles-celtics-nb
 **Canucks free-agent targets: 10 top-six wingers who could help Vancouver score**\
 `The Athletic looks at 10 of the best pending unrestricted free agent options to help boost Vancouver's scoring.`\
 https://nytimes.com/athletic/6354613/2025/05/14/canucks-free-agent-targets-wingers-nhl/
-
-**Syrians Are Elated and Optimistic as Trump Vows to Lift Sanctions**\
-`The announcement is a boon for the new government as it looks to rebuild an economy wrecked by a decade of civil war.`\
-https://nytimes.com/2025/05/14/world/middleeast/trump-syria-sanctions-us.html
-
-**Ten Hag on Leverkusen shortlist to relace Alonso**\
-`Ten Hag, who has been out of management since leaving Manchester United in October, is a candidate to replace the outgoing Xabi Alonso.`\
-https://nytimes.com/athletic/6066128/2025/05/14/erik-ten-hag-bayer-leverkusen/
 
