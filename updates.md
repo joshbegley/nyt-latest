@@ -1,3 +1,7 @@
+**How can the Jets come back from this 3-1 deficit? Winnipeg's 5 needs to topple the Stars**\
+`What would it take for them to become the 33rd team in NHL history to come back from a 3-1 series deficit?`\
+https://nytimes.com/athletic/6354330/2025/05/14/jets-series-comeback-stars-nhl-playoffs/
+
 **Burberry to Cut Nearly 20% of Jobs as Luxury Sales Sag**\
 `The British fashion house, which reported poor annual sales in a precarious time for the global luxury industry, is looking to save 60 million pounds in cost-cutting efforts.`\
 https://nytimes.com/2025/05/14/business/burberry-job-cuts.html

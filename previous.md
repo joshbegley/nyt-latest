@@ -1,3 +1,7 @@
+**How can the Jets come back from this 3-1 deficit? Winnipeg's 5 needs to topple the Stars**\
+`What would it take for them to become the 33rd team in NHL history to come back from a 3-1 series deficit?`\
+https://nytimes.com/athletic/6354330/2025/05/14/jets-series-comeback-stars-nhl-playoffs/
+
 **The Athletic FC: Events that led to Awoniyi's coma, Man City keen on Reijnders**\
 `Today in TAFC: The events that saw Awoniyi placed in an induced coma. Plus: Man City hope to sign Reijnders, new U.S. national team shirts`\
 https://nytimes.com/athletic/6355168/2025/05/14/awoniyi-forest-coma-reijnders-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6351346/2025/05/14/nhl-playoffs-stanley-cup-final-m
 **India and Pakistan Swap Detained Soldiers as Cease-Fire Holds**\
 `India exchanged a Pakistani paramilitary fighter for a border security guard that Pakistan had held for weeks. Each officer had been detained before the countries’ military skirmish started.`\
 https://nytimes.com/2025/05/14/world/asia/india-pakistan-soldier-exchange.html
-
-**Cubs prospect Moisés Ballesteros went from playing MLB The Show to being in The Show **\
-`Ballesteros went 0-for-4 in his debut, but there's always tomorrow. "The nerves got the better of me today," he said through an interpreter.`\
-https://nytimes.com/athletic/6354904/2025/05/14/cubs-prospect-moises-ballesteros/
 
