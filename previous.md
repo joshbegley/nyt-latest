@@ -1,5 +1,9 @@
+**Serena Williams' husband, Reddit co-founder Alexis Ohanian buys stake in Chelsea Women**\
+`The 42-year-old Ohanian, who also has a stake in NWSL side Angel City, has bought an eight per cent stake in the side.`\
+https://nytimes.com/athletic/6356477/2025/05/14/serena-williams-alexis-ohanian-chelsea-women/
+
 **Tanner Houck lands on the IL: What does this mean for the Red Sox rotation?**\
-`Two days after Tanner Houck gave up 11 earned runs in a start against Detroit, the Boston Red Sox placed the right-hander on the injured list with a right flexor pronator strain.`\
+`Two days after Houck gave up 11 earned runs in a start against Detroit, the Red Sox placed the right-hander on the injured list.`\
 https://nytimes.com/athletic/6357126/2025/05/14/tanner-houck-red-sox-injury/
 
 **Casandra Ventura ends an emotional day of testimony with dramatic revelations.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/arts/music/diddy-cassie-settlement-amount.html
 **Will Tom Willander be the Canucks’ next star? Here’s what to expect**\
 `Examining Willander's style of play, his long-term ceiling and what Vancouver should ultimately expect from its prized defensive prospect.`\
 https://nytimes.com/athletic/6276586/2025/05/14/canucks-tom-willander-prospect-contract/
-
-**Trump’s Pledge to the Middle East: No More ‘Lectures on How to Live’**\
-`In Saudi Arabia, the president denounced Western intervention and nation-building, garnering both praise and eye rolls.`\
-https://nytimes.com/2025/05/14/world/middleeast/trump-middle-east-nation-building.html
 
