@@ -1,3 +1,11 @@
+**Some See Depardieu Verdict as Turning Point for #MeToo in France**\
+`French courts may finally be taking years of complaints about sexual violence seriously, advocates and experts say.`\
+https://nytimes.com/2025/05/15/gerard-depardieu-guilty-verdict-metoo-france.html
+
+**Trump to Visit Biggest U.S. Military Facility in Middle East**\
+`Qatar’s Al Udeid Air Base is a key hub for U.S. air operations across a vast region, from Northeast Africa to Central and South Asia.`\
+https://nytimes.com/2025/05/15/us/politics/trump-qatar-us-military-base.html
+
 **Trump’s Promise to Lift Sanctions on Syria Gives Business Owners Hope**\
 `Since the overthrow of the dictator Bashar al-Assad, business owners have been waiting for Washington to ease sanctions and pave the way for an economic renewal.`\
 https://nytimes.com/2025/05/15/world/middleeast/syria-economy-trump-sanctions.html

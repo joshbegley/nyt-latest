@@ -1,3 +1,11 @@
+**Some See Depardieu Verdict as Turning Point for #MeToo in France**\
+`French courts may finally be taking years of complaints about sexual violence seriously, advocates and experts say.`\
+https://nytimes.com/2025/05/15/gerard-depardieu-guilty-verdict-metoo-france.html
+
+**Trump to Visit Biggest U.S. Military Facility in Middle East**\
+`Qatar’s Al Udeid Air Base is a key hub for U.S. air operations across a vast region, from Northeast Africa to Central and South Asia.`\
+https://nytimes.com/2025/05/15/us/politics/trump-qatar-us-military-base.html
+
 **Trump’s Promise to Lift Sanctions on Syria Gives Business Owners Hope**\
 `Since the overthrow of the dictator Bashar al-Assad, business owners have been waiting for Washington to ease sanctions and pave the way for an economic renewal.`\
 https://nytimes.com/2025/05/15/world/middleeast/syria-economy-trump-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/opinion/artifical-intelligence-2027.html
 **Top Priority for Pope Leo: Warn the World of the A.I. Threat**\
 `While it is far too early to say how he will use his platform to address such issues, his focus shows he is a church leader who grasps the gravity of this modern concern.`\
 https://nytimes.com/2025/05/15/world/europe/pope-leo-artificial-intelligence.html
-
-**Two Opinion Columnists on Trump’s Era of International Bullying**\
-`Lydia Polgreen and Nicholas Kristof discuss why other nations are picking up what the president is punching down.`\
-https://nytimes.com/2025/05/15/opinion/trump-global-order-bullying.html
-
-**U.S. Ranchers Can Sell Britons More Beef. Will They Buy It?**\
-`The countries’ trade agreement is just a first step, U.S. officials say. But British consumers are still skeptical of American food production.`\
-https://nytimes.com/2025/05/15/business/us-uk-trade-deal-agriculture.html
 
