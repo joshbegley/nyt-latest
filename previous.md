@@ -1,40 +1,40 @@
-**Liverpool advancing in Frimpong talks**\
-`The 24-year-old has a release clause in the region of €35m in his Bayer Leverkusen contract.`\
-https://nytimes.com/athletic/6358448/2025/05/15/jeremie-frimpong-liverpool-transfer-leverkusen/
+**The Forecast for 2027? Total A.I. Domination.**\
+`Losing your job may be the best-case scenario.`\
+https://nytimes.com/2025/05/15/opinion/artifical-intelligence-2027.html
 
-**Playoffs in European football should come with 'buyer beware' warning**\
-`Playoffs bring excitement but also some issues, as France's Ligue 1 might soon find out.`\
-https://nytimes.com/athletic/6356077/2025/05/15/ligue-1-playoffs-nhl/
+**Top Priority for Pope Leo: Warn the World of the A.I. Threat**\
+`While it is far too early to say how he will use his platform to address such issues, his focus shows he is a church leader who grasps the gravity of this modern concern.`\
+https://nytimes.com/2025/05/15/world/europe/pope-leo-artificial-intelligence.html
 
-**Seth Meyers Thinks Trump Shouldn’t Be So Set on That Jet**\
-`“We are, as of this taping, still a democracy with a rule of law,” Meyers said. “The president shouldn’t have a flying gold-plated party palace.”`\
-https://nytimes.com/2025/05/15/arts/television/seth-meyers-trump-qatar-airplane.html
+**Two Opinion Columnists on Trump’s Era of International Bullying**\
+`Lydia Polgreen and Nicholas Kristof discuss why other nations are picking up what the president is punching down.`\
+https://nytimes.com/2025/05/15/opinion/trump-global-order-bullying.html
 
-**Ukrainians and Russians Are in Turkey. But Will They Meet?**\
-`President Vladimir V. Putin’s name was not on a list of Russian officials attending the potential talks.`\
-https://nytimes.com/2025/05/15/world/europe/russia-ukraine-putin-zelensky-ceasefire-trump.html
+**U.S. Ranchers Can Sell Britons More Beef. Will They Buy It?**\
+`The countries’ trade agreement is just a first step, U.S. officials say. But British consumers are still skeptical of American food production.`\
+https://nytimes.com/2025/05/15/business/us-uk-trade-deal-agriculture.html
 
-**'We did it for JT': Celtics regroup in Game 5 to save season, honor Jayson Tatum**\
-`The Celtics have a history of reaching another level when they absolutely need it. They did so Wednesday.`\
-https://nytimes.com/athletic/6358244/2025/05/15/jaylen-brown-celtics-game-5-knicks-nba-playoffs/
+**What the Changes in Apple’s App Store Mean for iPhone Users**\
+`A federal judge created a path for app makers like Spotify and Patreon to avoid paying Apple hefty commissions. Is this a win for consumers? It’s complicated.`\
+https://nytimes.com/2025/05/15/technology/personaltech/iphone-app-store-changes.html
 
-**Adrienne Adams Wants to Bolster the N.Y.P.D. and Her Odds of Being Mayor**\
-`Ms. Adams, the City Council speaker, is releasing a crime plan that creates hiring and retention incentives for police officers while also investing in diversion programs.`\
-https://nytimes.com/2025/05/15/nyregion/adrienne-adams-crime-mayor.html
+**What to Know About ICE Enforcement in Restaurants**\
+`Immigration agents’ visits to Washington restaurants have raised questions about what’s happening and who is affected. Here are some answers.`\
+https://nytimes.com/2025/05/15/dining/ice-restaurants.html
 
-**Travel Tales**\
-`Tell us a story, real or made up, that is inspired by any of these images from an article about travel mishaps.`\
-https://nytimes.com/2025/05/15/learning/travel-tales.html
+**In Her Botanical Paintings, Hilma af Klint Hurtles Back to Earth**\
+`At the Museum of Modern Art, a watercolor herbarium from 1919 and 1920 flaunts the literal side, and even the preachiness, of abstraction’s superheroine.`\
+https://nytimes.com/2025/05/15/arts/design/hilma-af-klint-moma.html
 
-**Why a $10,000 Deduction Is Blocking the G.O.P.’s $3.8 Trillion Tax Bill**\
-`House Republicans, mostly from New York, have gone to war with party leadership over their push to raise or abolish the $10,000 cap on the so-called SALT deduction.`\
-https://nytimes.com/2025/05/15/nyregion/salt-tax-deduction.html
+**Can Trump Really End Birthright Citizenship?**\
+`For more than a century, there was broad consensus that the 14th Amendment established birthright citizenship for children born in the United States. But President Trump has challenged that precedent. Abbie VanSickle, a reporter covering the Supreme Court for The New York Times, explains.`\
+https://nytimes.com/video/us/politics/100000010163960/can-trump-really-end-birthright-citizenship.html
 
-**The Story of Sexual Abuse, Bribery and Suicide That Shocked a Small Town**\
-`An F.B.I. investigation homed in on two powerful men in suburban New York. Behind it were allegations by a woman who said her brother had abused and controlled her for 45 years.`\
-https://nytimes.com/2025/05/15/nyregion/soudani-rosenwasser-corruption-abuse.html
+**A Trade War Winner? The Booming Business of Returned Products.**\
+`As retailers slow down orders for foreign goods because of tariffs, companies that recirculate overstocked or returned items may help fill the gap.`\
+https://nytimes.com/2025/05/15/business/tariffs-returns-reverse-logistics.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/15/crosswords/spelling-bee-forum.html
+**There’s a Darker Reason Trump Is Going After Those Law Firms**\
+`It looks like retribution. It’s actually worse.`\
+https://nytimes.com/2025/05/15/opinion/trump-law-firms-attacks.html
 
