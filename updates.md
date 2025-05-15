@@ -1,3 +1,7 @@
+**Inter Miami draws 3-3 against San Jose Earthquakes as frustrations flare**\
+`The scoreline, in which Miami committed a myriad of glaring defensive mistakes, further aggravated the Argentina World Cup winner`\
+https://nytimes.com/athletic/6358253/2025/05/15/inter-miami-san-jose-earthquakes-lionel-messi-game-analysis/
+
 **Bologna arrived dreaming of a Coppa Italia 'night of miracles' - they departed worthy winners**\
 `Vincenzo Italiano's side had not won a major trophy in more than 50 years but they deserved to beat AC Milan in Wednesday's final`\
 https://nytimes.com/athletic/6357052/2025/05/15/bologna-coppa-italia-final-milan/

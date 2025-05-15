@@ -1,3 +1,11 @@
+**Live Updates: Trump to Visit U.A.E. in Last Stop of Middle East Tour**\
+`In Qatar on Thursday, President Trump is scheduled to visit the largest U.S. military base in the region. He will then fly to the United Arab Emirates, another key ally.`\
+https://nytimes.com/live/2025/05/15/us/trump-news
+
+**After second-round exit, is Golden Knights' Cup window closing?**\
+`This five-game defeat felt like a missed opportunity for an aging core of talented players in search of another Cup.`\
+https://nytimes.com/athletic/6353720/2025/05/15/golden-knights-nhl-playoffs-oilers-loss/
+
 **Inter Miami draws 3-3 against San Jose Earthquakes as frustrations flare**\
 `The scoreline, in which Miami committed a myriad of glaring defensive mistakes, further aggravated the Argentina World Cup winner`\
 https://nytimes.com/athletic/6358253/2025/05/15/inter-miami-san-jose-earthquakes-lionel-messi-game-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playof
 **Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
 `The Minecraft-themed video showed a dolphin with the username Hill and the jersey number 10 being arrested by the Coast Guard.`\
 https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
-
-**The New York Times in Print for Thursday, May 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/15/todays-new-york-times
-
-**Nuclear War Avoided, Again. But Next Time?**\
-`The fast-moving conflict between India and Pakistan last week demonstrated the inherent dangers of the modern nuclear age.`\
-https://nytimes.com/2025/05/15/opinion/india-pakistan-nuclear-war.html
 
