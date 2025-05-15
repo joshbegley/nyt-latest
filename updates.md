@@ -1,3 +1,11 @@
+**Live From Capitol Hill, It’s An All-Nighter That Leaves Some Lawmakers Snoring**\
+`Members of two key House committees worked all night on a sprawling domestic policy bill. Some fell asleep along the way.`\
+https://nytimes.com/2025/05/14/us/politics/house-representatitves-asleep.html
+
+**Will Putin Be in Turkey for Peace Talks? Kremlin’s List Suggests Not.**\
+`A hard-line aide to the Russian president will instead lead the delegation, according to a Kremlin statement.`\
+https://nytimes.com/2025/05/14/world/europe/putin-ukraine-peace-talks-turkey.html
+
 **Clerk in Murdaugh Trial Is Charged With Misconduct and Perjury**\
 `Becky Hill had handled the trial in which Alex Murdaugh was convicted in 2023 of murdering his wife and younger son. She was arrested on Wednesday.`\
 https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.html

@@ -1,3 +1,11 @@
+**Live From Capitol Hill, It’s An All-Nighter That Leaves Some Lawmakers Snoring**\
+`Members of two key House committees worked all night on a sprawling domestic policy bill. Some fell asleep along the way.`\
+https://nytimes.com/2025/05/14/us/politics/house-representatitves-asleep.html
+
+**Will Putin Be in Turkey for Peace Talks? Kremlin’s List Suggests Not.**\
+`A hard-line aide to the Russian president will instead lead the delegation, according to a Kremlin statement.`\
+https://nytimes.com/2025/05/14/world/europe/putin-ukraine-peace-talks-turkey.html
+
 **Clerk in Murdaugh Trial Is Charged With Misconduct and Perjury**\
 `Becky Hill had handled the trial in which Alex Murdaugh was convicted in 2023 of murdering his wife and younger son. She was arrested on Wednesday.`\
 https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6357188/2025/05/14/angels-ben-joyce-shoulder-surger
 **Anatomy of a $70 Million Auction Flop**\
 `Why did the star lot of the spring season, a bronze head by the master sculptor Alberto Giacometti, fail to sell at Sotheby’s on Tuesday?`\
 https://nytimes.com/2025/05/14/arts/design/sothebys-flop-giacometti-sculptor.html
-
-**Nick Saban: 'I don't think we really need a commission' on college sports**\
-`Nick Saban said of an idea for a group he could potentially lead: “I don’t think we really need a commission.”`\
-https://nytimes.com/athletic/6357016/2025/05/14/nick-saban-president-trump-commission/
-
-**RFK Jr., the Health Secretary, Says Not to Take Medical Advice From Him**\
-`Robert F. Kennedy Jr. has often used his influential position to weigh in on public health issues, but during a congressional hearing he dodged questions about whether children should be vaccinated.`\
-https://nytimes.com/2025/05/14/us/politics/rfk-jr-hhs-vaccines-medical-advice.html
 
