@@ -1,3 +1,7 @@
+**Senate Rejects Democrats’ Bid to Force State Dept. to Report on Rights in El Salvador**\
+`The measure would have compelled the administration to inform Congress about how it is complying with court orders involving deportees to El Salvador and to provide a human rights report on the nation.`\
+https://nytimes.com/2025/05/15/us/politics/senate-rejects-democrats-bid-to-force-state-dept-to-report-on-rights-in-el-salvador.html
+
 **The Justices Can’t Avoid Trump’s Blow Against the Constitution**\
 `Procedure was supposed to be beside the point at Thursday’s arguments. But the unconstitutionality and impracticality of Trump’s order was inescapable.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/birthright-citizenship-oral-arguments-constitution

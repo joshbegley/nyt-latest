@@ -1,3 +1,7 @@
+**Senate Rejects Democrats’ Bid to Force State Dept. to Report on Rights in El Salvador**\
+`The measure would have compelled the administration to inform Congress about how it is complying with court orders involving deportees to El Salvador and to provide a human rights report on the nation.`\
+https://nytimes.com/2025/05/15/us/politics/senate-rejects-democrats-bid-to-force-state-dept-to-report-on-rights-in-el-salvador.html
+
 **The Justices Can’t Avoid Trump’s Blow Against the Constitution**\
 `Procedure was supposed to be beside the point at Thursday’s arguments. But the unconstitutionality and impracticality of Trump’s order was inescapable.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/birthright-citizenship-oral-arguments-constitution
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/climate/climate-change-home-insurance-costs.html
 **How Trump’s Order on Birthright Citizenship Fits in His Immigration Efforts**\
 `His executive order on citizenship drew intense scrutiny, but it has not yet taken effect. Many of his other policies have immediately upended the system.`\
 https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-immigration.html
-
-**Ukrainian Is Arrested After Fires at U.K. Prime Minister’s Properties**\
-`One of the blazes took place outside the doorway of Prime Minister Keir Starmer’s family home in Kentish Town, in north London, which is currently being rented out.`\
-https://nytimes.com/2025/05/15/world/europe/britain-fires-keir-starmer-arson.html
 
