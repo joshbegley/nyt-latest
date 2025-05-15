@@ -1,3 +1,15 @@
+**Nelson DeMille’s House Is Listed for $5.5 Million on Long Island**\
+`The five-bedroom home was built in Garden City in the Tudor style the author admired. But it isn’t where he wrote his books.`\
+https://nytimes.com/2025/05/15/realestate/nelson-demille-house-for-sale-long-island.html
+
+**Birthright Citizenship Case Has Several Unusual Features**\
+`This case is atypical for the justices for reasons including how quickly it made it to the court and even that oral arguments are happening at all.`\
+https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-case-unusual.html
+
+**Ohio State fans, how do you feel now? Take The Athletic's 2025 fan survey**\
+`After another loss to Michigan but a national championship, let us know how you're feeling about the Buckeyes, Ohio State football fans.`\
+https://nytimes.com/athletic/6358864/2025/05/15/ohio-state-football-fan-survey-2025/
+
 **Which Trump Policies Have Been Blocked by Nationwide Injunctions?**\
 `President Trump’s effort to restrict birthright citizenship is one of many aggressive policies that judges have blocked with sweeping orders.`\
 https://nytimes.com/2025/05/15/us/politics/trump-policies-blocked-courts.html
