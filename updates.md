@@ -1,3 +1,15 @@
+**Patriots DT Christian Barmore hoping to be ready for Week 1**\
+`The 25-year-old missed most of last season but is expected to be a full go for the Patriots' first OTA practices next week.`\
+https://nytimes.com/athletic/6360081/2025/05/15/christian-barmore-patriots-health-blood-clots/
+
+**Here’s What’s in the Big Domestic Policy Bill to Deliver Trump’s Agenda**\
+`A large tax cut, as well as more money for defense and immigration enforcement, would be financed by slashing health, nutrition, education and clean energy programs.`\
+https://nytimes.com/2025/05/15/us/politics/house-gop-tax-bill-trump.html
+
+**He Denounced the Gaza War at Graduation. N.Y.U. Withheld His Diploma.**\
+`The university says that a student’s remarks condemning “genocide” were not approved and that he “violated the commitment he made to comply with our rules.”`\
+https://nytimes.com/2025/05/15/nyregion/nyu-commencement-speaker-pro-palestinian-diploma.html
+
 **Where to Eat: Kitsch Is King**\
 `It’s hard to be in a bad mood when you’re drinking a frozen margarita with a flamingo straw.`\
 https://nytimes.com/2025/05/15/dining/where-to-eat-kitsch-is-king.html
