@@ -1,4 +1,4 @@
-**Ukrainians and Russians Are in Turkey but Will They Meet?**\
+**Ukrainians and Russians Are in Turkey. But Will They Meet?**\
 `President Vladimir V. Putin’s name was not on a list of Russian officials attending the potential talks.`\
 https://nytimes.com/2025/05/15/world/europe/russia-ukraine-putin-zelensky-ceasefire-trump.html
 
