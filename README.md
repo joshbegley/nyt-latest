@@ -1,3 +1,11 @@
+**The Windup: Marvel at these sweet HR robberies**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6358128/2025/05/15/julio-rodriguez-catch-home-run-the-windup/
+
+**Sean Combs is being held in a Brooklyn jail during the trial.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/jail-brooklyn
+
 **Live Updates: Cassie to Face Sean Combs’s Lawyers at Sex-Trafficking Trial**\
 `Casandra Ventura, who has testified that Mr. Combs was physically abusive and coerced her into marathon sex sessions, will be cross-examined by his defense team.`\
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6357884/2025/05/15/winnipeg-jets-nhl-playoffs-game-
 **Blues report card: Final grades for the defensemen, goalies, coaches and GM**\
 `The grades are in for the defensemen, goalies, coaches and GM for the 2024-25 season. `\
 https://nytimes.com/athletic/6345182/2025/05/15/blues-report-card-grades-defensemen-coaches-gm/
-
-**The Lakers have a strong foundation for next season. Now they have to maximize it**\
-`The Lakers weren’t as close as they thought they were last season, but their future is bright. `\
-https://nytimes.com/athletic/6353915/2025/05/15/the-lakers-have-a-strong-foundation-for-next-season-now-they-have-to-maximize-it/
-
-**If Wild trade Marco Rossi, how do they replace him? Sam Bennett? Dylan Larkin? Ask Russo and Smith, part 1**\
-`We want to start by thanking all of you for the nearly 800 responses here at The Athletic and more over on X for this first offseason Minnesota Wild mailbag — and particularly for the many, many back-and-forths in the mailbag that we had to comb through to actually find questions to answer.`\
-https://nytimes.com/athletic/6356694/2025/05/15/wild-trades-signings-rossi-mailbag/
 
