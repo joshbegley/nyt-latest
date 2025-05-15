@@ -1,3 +1,12 @@
+**Every NFL team’s 2025 regular-season schedule**\
+`A team-by-team chart of every teams' 2025 NFL schedule.`\
+https://nytimes.com/athletic/6357227/2025/05/14/nfl-schedule-2025-release-all-teams/
+
+**The Maple Leafs are proving they aren't so different after all**\
+`An embarrassing, humbling and shocking Game 5 defeat showed haunting similarities to Toronto's past playoff failures. 
+`\
+https://nytimes.com/athletic/6357706/2025/05/14/maple-leafs-panthers-game-5-nhl-playoffs/
+
 **U.S.-Backed Group Created to Distribute Aid in Gaza Says It’s Ready to Go**\
 `The Gaza Humanitarian Foundation seeks to create an alternative aid system, but other groups have raised doubts about the feasibility of its plan.`\
 https://nytimes.com/2025/05/14/world/middleeast/gaza-aid-israel.html
