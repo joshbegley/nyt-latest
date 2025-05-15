@@ -1,6 +1,10 @@
-**Prosecutors quickly work to establish Cassie’s agency in freak-offs.**\
+**Judge Dismisses ‘Trespassing’ Charges Promoted by Trump in Border ‘Defense Area’**\
+`A newly designated “military installation” that stretches the length of the frontier in New Mexico has made trespassing a novel criminal charge at the border, bringing turmoil to the state. A judge says migrants couldn’t know they were trespassing.`\
+https://nytimes.com/2025/05/15/us/new-mexico-border-trump.html
+
+**Combs’s Lawyers Work to Establish Cassie’s Agency in ‘Freak-offs’**\
 `By Ben Sisario`\
-https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/cassie-freak-offs-prosecution
+https://nytimes.com/2025/05/15/arts/music/cassie-freak-offs-defense.html
 
 **Trump Budget Cuts Hobble Antismoking Programs**\
 `The elimination of a key C.D.C. office has slashed funding to states for help lines used by thousands to stop smoking and vaping.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359179/2025/05/15/maple-leafs-panthers-anthony-sto
 **What I'm hearing about Penguins' coaching search, offseason plans**\
 `Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus other tidbits. `\
 https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-openings/
-
-**Stephen A. Smith’s Relentless, Preposterous, Probably Inevitable Road to Political Clout**\
-`America’s best-known sports-talker is hosting boldface Democrats and MAGA luminaries and teasing a 2028 run. But what he really wants is Joe Rogan-like influence, and things of that nature.`\
-https://nytimes.com/2025/05/15/style/stephen-a-smith-espn-politics.html
 

@@ -1,3 +1,11 @@
+**Judge Dismisses ‘Trespassing’ Charges Promoted by Trump in Border ‘Defense Area’**\
+`A newly designated “military installation” that stretches the length of the frontier in New Mexico has made trespassing a novel criminal charge at the border, bringing turmoil to the state. A judge says migrants couldn’t know they were trespassing.`\
+https://nytimes.com/2025/05/15/us/new-mexico-border-trump.html
+
+**Combs’s Lawyers Work to Establish Cassie’s Agency in ‘Freak-offs’**\
+`By Ben Sisario`\
+https://nytimes.com/2025/05/15/arts/music/cassie-freak-offs-defense.html
+
 **Prosecutors quickly work to establish Cassie’s agency in freak-offs.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/cassie-freak-offs-prosecution
