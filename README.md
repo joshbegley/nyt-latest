@@ -27,7 +27,7 @@ https://nytimes.com/2025/05/15/arts/dance/bam-next-wave-festival-and-fall-season
 https://nytimes.com/athletic/6359179/2025/05/15/maple-leafs-panthers-anthony-stolarz-nhl-playoffs/
 
 **What I'm hearing about Penguins' coaching search, offseason plans**\
-`Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus many other tidbits. `\
+`Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus other tidbits. `\
 https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-openings/
 
 **Stephen A. Smith’s Relentless, Preposterous, Probably Inevitable Road to Political Clout**\
