@@ -1,3 +1,11 @@
+**The Justices Can’t Avoid Trump’s Blow Against the Constitution**\
+`Procedure was supposed to be beside the point at Thursday’s arguments. But the unconstitutionality and impracticality of Trump’s order was inescapable.`\
+https://nytimes.com/live/2025/05/05/opinion/thepoint/birthright-citizenship-oral-arguments-constitution
+
+**Hull sack Ruben Selles despite Championship survival**\
+`Selles is the third Hull manager to be sacked in the last 12 months.`\
+https://nytimes.com/athletic/6360035/2025/05/15/ruben-selles-hull-sacked/
+
 **Why Is Everyone Talking About Lorde’s New Song?**\
 `A new song presents a looser, more liberated version of the pop star. While the title asks, “What Was That,” the better question might be, “What comes next?”`\
 https://nytimes.com/video/podcasts/100000010170156/why-is-everyone-talking-about-lordes-new-song.html
