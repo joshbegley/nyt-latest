@@ -1,3 +1,7 @@
+**Why New York City Is Removing Padlocks on Illegal Weed Shops It Closed**\
+`With the court orders that allowed the city to seal illicit cannabis stores starting to expire, questions remain about whether the shops could reopen.`\
+https://nytimes.com/2025/05/14/nyregion/eric-adams-nyc-marijuana-dispensaries.html
+
 **Coaches view proposal to add NFL-style OTAs to college spring practice**\
 `Remaking the spring calendar has been a frequent point of discussion by the sport’s leaders.`\
 https://nytimes.com/athletic/6357318/2025/05/14/college-football-otas-spring-practice-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/house-representatitves-asleep.html
 **Will Putin Be in Turkey for Peace Talks? Kremlin’s List Suggests Not.**\
 `A hard-line aide to the Russian president will instead lead the delegation, according to a Kremlin statement.`\
 https://nytimes.com/2025/05/14/world/europe/putin-ukraine-peace-talks-turkey.html
-
-**Clerk in Murdaugh Trial Is Charged With Misconduct and Perjury**\
-`Becky Hill had handled the trial in which Alex Murdaugh was convicted in 2023 of murdering his wife and younger son. She was arrested on Wednesday.`\
-https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.html
 
