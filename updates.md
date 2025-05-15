@@ -1,3 +1,8 @@
+**UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
+`Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
+`\
+https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
+
 **'We did it for JT': Celtics regroup in Game 5 to save season, honor Jayson Tatum**\
 `The Celtics have a history of reaching another level when they absolutely need it. They did so Wednesday.`\
 https://nytimes.com/athletic/6358244/2025/05/15/jaylen-brown-celtics-game-5-knicks-nba-playoffs/

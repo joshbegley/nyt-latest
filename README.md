@@ -1,3 +1,7 @@
+**Ukrainians and Russians Are in Turkey but Will They Meet?**\
+`President Vladimir V. Putin’s name was not on a list of Russian officials attending the potential talks.`\
+https://nytimes.com/2025/05/15/world/europe/russia-ukraine-putin-zelensky-ceasefire-trump.html
+
 **'We did it for JT': Celtics regroup in Game 5 to save season, honor Jayson Tatum**\
 `The Celtics have a history of reaching another level when they absolutely need it. They did so Wednesday.`\
 https://nytimes.com/athletic/6358244/2025/05/15/jaylen-brown-celtics-game-5-knicks-nba-playoffs/
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/05/15/us/trump-news/heres-the-latest
 **Live Updates: Trump to Visit U.A.E. in Last Stop of Middle East Tour**\
 `In Qatar on Thursday, President Trump is scheduled to visit the largest U.S. military base in the region. He will then fly to the United Arab Emirates, another key ally.`\
 https://nytimes.com/live/2025/05/15/us/trump-news
-
-**After second-round exit, is Golden Knights' Cup window closing?**\
-`This five-game defeat felt like a missed opportunity for an aging core of talented players in search of another Cup.`\
-https://nytimes.com/athletic/6353720/2025/05/15/golden-knights-nhl-playoffs-oilers-loss/
 
