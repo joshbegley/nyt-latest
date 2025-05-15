@@ -1,3 +1,7 @@
+**Juan Soto excited for reaction in Bronx, even the boos: 'I don't mind'**\
+`NEW YORK — Juan Soto is ready for the crowd’s reaction, however filled with vitriol it may be, on Friday when he returns to Yankee Stadium for his first Subway Series as a member of the New York Mets.`\
+https://nytimes.com/athletic/6357953/2025/05/14/juan-soto-yankees-mets-reaciton/
+
 **Minnesota Frost head to PWHL Final with series-clinching Game 4 win over Toronto**\
 `The Frost, who are the reigning Walter Cup champions, head back to the Final after eliminating Toronto for the second straight year.`\
 https://nytimes.com/athletic/6357697/2025/05/14/minnesota-frost-pwhl-playoffs-toronto-sceptres-elimination/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6357256/2025/05/14/nfl-schedule-week-by-week-2025/
 **NBA playoffs: Celtics narrow series to 3-2 in 127-102 win over Knicks**\
 `Boston won its first game of the series without star Jayson Tatum, who tore his Achilles in Game 4.`\
 https://nytimes.com/athletic/6357259/2025/05/14/knicks-celtics-warriors-timberwolves-nba-playoffs-takeaways/
-
-**Leafs pushed to brink of elimination after Game 5 loss to Panthers: Takeaways**\
-`Toronto laid an egg and got heavily booed by fans on home ice in Game 5 as Florida took a 3-2 series lead.`\
-https://nytimes.com/athletic/6356996/2025/05/14/maple-leafs-panthers-nhl-playoffs-2025-game-5-takeaways/
 
