@@ -1,3 +1,15 @@
+**Trump Budget Cuts Hobble Antismoking Programs**\
+`The elimination of a key C.D.C. office has slashed funding to states for help lines used by thousands to stop smoking and vaping.`\
+https://nytimes.com/2025/05/15/health/trump-budget-cuts-anti-smoking-tobacco.html
+
+**Shoeless Joe Jackson's family surprised, proud that he's off ineligible list**\
+`“There’s a lot of disbelief,” said great-great nephew Joseph Raymond Jackson. “I didn't think I'd ever live to see this day happen."`\
+https://nytimes.com/athletic/6358221/2025/05/15/shoeless-joe-jackson-hall-of-fame-family/
+
+**What I'm hearing about Penguins' coaching search, offseason plans**\
+`Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus other tidbits. `\
+https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-openings/
+
 **Should Son Heung-min start for Spurs in the Europa League final?**\
 `Son not featuring in Tottenham's biggest game in years may seem unthinkable, but fitness and form could yet work against him`\
 https://nytimes.com/athletic/6355413/2025/05/15/son-heung-min-spurs-europa-final/
