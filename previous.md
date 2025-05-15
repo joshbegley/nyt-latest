@@ -1,3 +1,23 @@
+**Ancient Romans, Pagans … and Trump?**\
+`Readers respond to a column by David Brooks. Also: President Trump’s contempt for ethical boundaries.`\
+https://nytimes.com/2025/05/15/opinion/ancient-romans-pagans-trump.html
+
+**Supreme Court Reject’s ‘Moment of Threat’ Limit in Excessive Force Suits**\
+`Lower courts had been divided over whether judges must limit their scrutiny of challenges to police shootings to the seconds preceding them.`\
+https://nytimes.com/2025/05/15/us/politics/supreme-court-excessive-force.html
+
+**49ers to sell minority stake in team to trio of local families**\
+`If the 49ers’ transaction is approved, Jed York would control approximately 91 percent of the club.`\
+https://nytimes.com/athletic/6359636/2025/05/15/49ers-sale-nfl-ownership-minority/
+
+**Lewis Hamilton’s father set for FIA role in young driver development**\
+`Anthony Hamilton has been a regular presence in the paddock throughout his son’s career in F1.`\
+https://nytimes.com/athletic/6359657/2025/05/15/lewis-hamilton-father-anthony-fia-role/
+
+**Which Podcasts Rule YouTube? A New List Comes With Surprises.**\
+`YouTube, now the most popular platform for consuming podcasts, is introducing a chart ranking shows by watch time.`\
+https://nytimes.com/2025/05/15/business/media/youtube-podcasts-tony-hinchcliffe.html
+
 **Red Light: Burn that jersey. Plus, worst loss of the Core 4 era?**\
 `Also, a roundup of the new (but old) coaches and GMs around the league.`\
 https://nytimes.com/athletic/6359574/2025/05/15/maple-leafs-panthers-oilers-red-light/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6356402/2025/05/15/blackhawks-hall-of-fame-centenni
 **Go With the Grains**\
 `And make this assertively seasoned quinoa salad, a lemony farro salad with goat cheese and mint, and a soothing miso-mushroom barley soup.`\
 https://nytimes.com/2025/05/15/dining/quinoa-salad-protein.html
-
-**Baby Is Healed With World’s First Personalized Gene-Editing Treatment**\
-`The technique used on a 9½-month-old boy with a rare condition has the potential to help people with thousands of other uncommon genetic diseases.`\
-https://nytimes.com/2025/05/15/health/gene-editing-personalized-rare-disorders.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/05/15/books/review/new-books-recommendations.html
-
-**Trump’s Military Buildup at the Border Expands**\
-`The Pentagon has sent thousands of troops, spy planes and even two warships to surveil the land and coasts.`\
-https://nytimes.com/2025/05/15/us/politics/trump-border-military.html
-
-**Joe Don Baker, Actor Who Found Fame With ‘Walking Tall,’ Dies at 89**\
-`His performance as a crusading Southern sheriff made him a star after a decade under the radar in character parts. He went on to play a wide range of roles.`\
-https://nytimes.com/2025/05/15/movies/joe-don-baker-dead.html
-
-**Consumers Prop Up the Economy. They’re Showing Signs of Strain.**\
-`Consumer spending has been the bulwark against recession. A pullback could slow the economy.`\
-https://nytimes.com/interactive/2025/05/15/business/economy/us-economy-recession-consumer-spending.html
 
