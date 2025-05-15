@@ -1,3 +1,7 @@
+**Word of the Day: impolitic**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/15/learning/word-of-the-day-impolitic.html
+
 **Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
 `The Minecraft-themed video showed a dolphin with the username Hill and the jersey number 10 being arrested by the Coast Guard.`\
 https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
