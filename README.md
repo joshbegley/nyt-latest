@@ -1,3 +1,7 @@
+**The Pulse: The downfall of a $6.5 billion franchise**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6356475/2025/05/15/manchester-united-glazers-the-pulse/
+
 **Madrid activate Huijsen release clause, in process of finalising deal**\
 `Madrid want Huijsen to be part of their squad for the Club World Cup, which begins in the United States next month.`\
 https://nytimes.com/athletic/6358404/2025/05/15/dean-huijsen-madrid-bournemouth-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354530/2025/05/15/larry-nance-leeds-united-owner-n
 **All-WNBA preseason teams: A'ja Wilson, Napheesa Collier, Caitlin Clark and more**\
 `The Athletic's experts cast their votes for our preseason first and second teams. `\
 https://nytimes.com/athletic/6356664/2025/05/15/all-wnba-preseason-teams-caitlin-clark/
-
-**David Adelman grew up in a coaching family. Now leading the Nuggets, this is 'his time'**\
-`The son of former Blazers and Kings coach Rick Adelman, the Nuggets' interim head coach has spent a lifetime preparing for this moment.`\
-https://nytimes.com/athletic/6356800/2025/05/15/david-adelman-nuggets-father-nba-coach-blazers/
 
