@@ -1,5 +1,9 @@
+**Trump-Kushner Hotel Project in Serbia Hits a Snag: Alleged Forgery**\
+`Serbian authorities say an official admitted to forging a document allowing a protected site in Belgrade to be demolished and replaced with a Trump hotel.`\
+https://nytimes.com/2025/05/14/us/politics/trump-kushner-hotel-serbia.html
+
 **2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
-`The Commanders and Chiefs are the most popular spotlight contenders, leading the league with eight standalone games each.`\
+`The Commanders and Chiefs lead the league with eight standalone games each.`\
 https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
 
 **Afrikaner Granted Refugee Status by Trump Is Linked to Antisemitic Posts**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6357286/2025/05/14/andrew-dutton-auburn-home-run/
 **Cassie Ventura Says Sean Combs Used Sex Videos as Blackmail Tools**\
 `Ms. Ventura, Mr. Combs’s ex-girlfriend, said he threatened to use tapes of their sexual encounters, known as “freak-offs,” to control her behavior.`\
 https://nytimes.com/2025/05/14/arts/music/diddy-trial-cassie-casandra-ventura-sex-videos.html
-
-**Drug Overdose Deaths Plummeted in 2024, C.D.C. Reports**\
-`The progress comes as the Trump administration is proposing to cut funding for many programs believed to have contributed to the improvement.`\
-https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
 
