@@ -1,3 +1,7 @@
+**Scottie Scheffler, Xander Schauffele and the fight for preferred lies**\
+`"It's frustrating to hit the ball in the middle of the fairway and get mud on it and have no idea where it's going to go."`\
+https://nytimes.com/athletic/6359352/2025/05/15/pga-championship-2025-scheffler-schauffele-rules/
+
 **‘Rotten Legacy’ Is a Soapy Spanish Succession Story**\
 `The premise of this foreign Netflix drama makes it sound a lot like “Succession,” but it isn’t trying to be. It’s brighter and pulpier than that.`\
 https://nytimes.com/2025/05/15/arts/television/rotten-legacy-netflix.html
