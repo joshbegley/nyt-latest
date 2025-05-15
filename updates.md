@@ -1,3 +1,15 @@
+**She Vanished for 3 Weeks in the Sierra. Then the Phone Rang: ‘Dad, I’m Alive.’**\
+`A search for Tiffany Slaton, 28, covered roughly 600 square miles of mountainous terrain in California. She was found at a cabin, where she waited out a blizzard.`\
+https://nytimes.com/2025/05/15/us/missing-camper-safe-sierra-nevada.html
+
+**What we learned from Adam Foote's first news conference as Canucks head coach**\
+`The Canucks needs stability, and Foote is being entrusted as the head coach to deliver it.`\
+https://nytimes.com/athletic/6360007/2025/05/15/canucks-adam-foote-head-coach-news/
+
+**Twins takeaways: Chris Paddack solidifying rotation at core of 11-game winning streak**\
+`The foundation for the team's successful turnaround, and a reason to think the Twins have staying power, is a rotation bolstered by Paddack.`\
+https://nytimes.com/athletic/6360400/2025/05/15/twins-winning-streak-chris-paddack-orioles/
+
 **Twins takeaways: Chris Paddack solidifying rotation at core of 11-game winning streak**\
 `The foundation for the team’s successful turnaround, and a reason to think the Twins have staying power, is a rotation bolstered by Paddack.`\
 https://nytimes.com/athletic/6360400/2025/05/15/twins-winning-streak-chris-paddack-orioles/
