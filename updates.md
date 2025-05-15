@@ -1,3 +1,7 @@
+**Liverpool advancing in Frimpong talks**\
+`The 24-year-old has a release clause in the region of €35m in his Bayer Leverkusen contract.`\
+https://nytimes.com/athletic/6358448/2025/05/15/jeremie-frimpong-liverpool-transfer-leverkusen/
+
 **UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
 `Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
 `\
