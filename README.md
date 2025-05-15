@@ -1,3 +1,11 @@
+**Lewis Hamilton’s father set for FIA role in young driver development**\
+`Anthony Hamilton has been a regular presence in the paddock throughout his son’s career in F1.`\
+https://nytimes.com/athletic/6359657/2025/05/15/lewis-hamilton-father-anthony-fia-role/
+
+**Which Podcasts Rule YouTube? A New List Comes With Surprises.**\
+`YouTube, now the most popular platform for consuming podcasts, is introducing a chart ranking shows by watch time.`\
+https://nytimes.com/2025/05/15/business/media/youtube-podcasts-tony-hinchcliffe.html
+
 **Red Light: Burn that jersey. Plus, worst loss of the Core 4 era?**\
 `Also, a roundup of the new (but old) coaches and GMs around the league.`\
 https://nytimes.com/athletic/6359574/2025/05/15/maple-leafs-panthers-oilers-red-light/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/books/review/new-books-recommendations.html
 **Trump’s Military Buildup at the Border Expands**\
 `The Pentagon has sent thousands of troops, spy planes and even two warships to surveil the land and coasts.`\
 https://nytimes.com/2025/05/15/us/politics/trump-border-military.html
-
-**Joe Don Baker, Actor Who Found Fame With ‘Walking Tall,’ Dies at 89**\
-`His performance as a crusading Southern sheriff made him a star after a decade under the radar in character parts. He went on to play a wide range of roles.`\
-https://nytimes.com/2025/05/15/movies/joe-don-baker-dead.html
-
-**Consumers Prop Up the Economy. They’re Showing Signs of Strain.**\
-`Consumer spending has been the bulwark against recession. A pullback could slow the economy.`\
-https://nytimes.com/interactive/2025/05/15/business/economy/us-economy-recession-consumer-spending.html
 
