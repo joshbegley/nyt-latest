@@ -1,3 +1,8 @@
+**'Everybody's got to look in the mirror': Leafs reflect on ugly Game 5 loss**\
+`Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
+`\
+https://nytimes.com/athletic/6357978/2025/05/15/maple-leafs-nhl-playoffs-panthers-game-5/
+
 **Ronald Acuña Jr. apologizes to Brian Snitker and Braves, all are ready to move forward**\
 `Acuña addressed his controversial social media post: "I talked to them man-to-man, admitted that I was wrong." `\
 https://nytimes.com/athletic/6357981/2025/05/15/braves-ronald-acuna-jr-apologizes/

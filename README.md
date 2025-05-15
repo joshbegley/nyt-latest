@@ -1,3 +1,19 @@
+**Max Dowman's goals: Breaking down the latest additions to the 15-year-old's showreel**\
+`Described as “unreal” by Declan Rice, Max Dowman has been on fire for Arsenal's under-18s`\
+https://nytimes.com/athletic/6355210/2025/05/15/max-dowman-arsenal-showreel/
+
+**It has been an unnerving time at Forest - courageous Awoniyi just wanted to help his team**\
+`Taiwo Awoniyi was put in an induced coma after suffering injuries more akin to a car crash than playing in a football match`\
+https://nytimes.com/athletic/6341838/2025/05/15/awoniyi-injury-nottingham-forest-coma/
+
+**Tijjani Reijnders analysed: A ready-made 'Guardiola player' with the traits of some City greats**\
+`What the 26-year-old Milan and Netherlands international midfielder would bring to the Etihad...`\
+https://nytimes.com/athletic/6355809/2025/05/15/tijjani-reijnders-analysed/
+
+**Fantasy Premier League: How FPL managers can navigate cup-final rotations**\
+`With two cup finals involving four Premier League teams happening over the next seven days, here are your best options`\
+https://nytimes.com/athletic/6352223/2025/05/15/fantasy-premier-league-how-to-navigate-cup-final-rotations/
+
 **Ronald Acuña Jr. apologizes to Brian Snitker and Braves, all are ready to move forward**\
 `Acuña addressed his controversial social media post: "I talked to them man-to-man, admitted that I was wrong." `\
 https://nytimes.com/athletic/6357981/2025/05/15/braves-ronald-acuna-jr-apologizes/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6339168/2025/05/15/premier-league-entertainment-ana
 `Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
 `\
 https://nytimes.com/athletic/6357978/2025/05/15/maple-leafs-nhl-playoffs-panthers-game-5/
-
-**Watch: Mbeumo and Wissa — will Brentford's dynamic duo still be there next season?**\
-`The Athletic FC Podcast discuss whether Brentford should consider cashing in on Brian Mbeumo and Yoane Wissa this summer.`\
-https://nytimes.com/athletic/6355183/2025/05/15/athletic-fc-podcast-brentford-mbeumo-wissa/
-
-**Exploring the historic traditions and quirks of the FA Cup final**\
-`FA Cup final day in England is a moment when the national sport celebrates its long history via a series of much-loved rituals `\
-https://nytimes.com/athletic/6352770/2025/05/15/fa-cup-final-history-traditions-wembley/
-
-**Carlo Ancelotti to Brazil is confirmation of Italy's peerless coaching heritage**\
-`Until the next Zagallo or Scolari emerges, the Brazilian national team will have to make do with arguably football's greatest manager ever`\
-https://nytimes.com/athletic/6353197/2025/05/15/carlo-ancelotti-brazil-italian-coaching/
-
-**Chiesa's lost season at Liverpool - and what comes next**\
-`The Italian is a Premier League winner but last started a game in February and has not been picked in the XI for a league match all season`\
-https://nytimes.com/athletic/6355600/2025/05/15/federico-chiesas-liverpool-season-future/
 
