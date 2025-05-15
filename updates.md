@@ -1,3 +1,11 @@
+**Until Saturday: CFB's Pete Rose moment?**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-until-saturday/
+
+**Sinner puts in performance of the year to demolish Ruud at Italian Open**\
+`Sinner was ridiculously clinical against Ruud, a two-time French Open finalist. It may go down as one of the top performances of his career.`\
+https://nytimes.com/athletic/6359909/2025/05/15/jannik-sinner-casper-ruud/
+
 **Canada’s Wildfire Season Is Off to a Deadly Start**\
 `Two people were trapped and killed by a wildfire in a small town in Manitoba, where the provincial capital, Winnipeg, is wilting under a record-breaking heat wave.`\
 https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.html

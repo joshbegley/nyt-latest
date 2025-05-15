@@ -1,3 +1,11 @@
+**Until Saturday: CFB's Pete Rose moment?**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-until-saturday/
+
+**Sinner puts in performance of the year to demolish Ruud at Italian Open**\
+`Sinner was ridiculously clinical against Ruud, a two-time French Open finalist. It may go down as one of the top performances of his career.`\
+https://nytimes.com/athletic/6359909/2025/05/15/jannik-sinner-casper-ruud/
+
 **Canada’s Wildfire Season Is Off to a Deadly Start**\
 `Two people were trapped and killed by a wildfire in a small town in Manitoba, where the provincial capital, Winnipeg, is wilting under a record-breaking heat wave.`\
 https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/us/north-carolina-dolphin-reward.html
 **For Trump, Citizenship Has Long Served as a Political Tool**\
 `Raising questions about who gets to claim to be an American powered the president’s political rise. A Supreme Court case may allow him reinterpret a right enshrined in the Constitution since the 1800s.`\
 https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-politics.html
-
-**Lawmakers in Both Parties Resist Trump’s Attempt to Seize Control of Their Library**\
-`The surprise firing of the head of the Library of Congress and efforts to install Trump loyalists at the iconic institution have stirred bipartisan pushback on Capitol Hill.`\
-https://nytimes.com/2025/05/15/us/politics/library-of-congress-trump.html
-
-**Rubio Meets Syrian Foreign Minister, in Another Sign of Warming Ties**\
-`The meeting came days after President Trump announced he would end sanctions against Syria and met with the country’s president, a former jihadist.`\
-https://nytimes.com/2025/05/15/world/middleeast/syria-marco-rubio-trump-sanctions.html
 
