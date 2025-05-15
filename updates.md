@@ -1,3 +1,7 @@
+**Barcelona win La Liga title with derby victory over Espanyol**\
+`The victory moves Barca an insurmountable seven points clear of second-place Real Madrid with just two rounds of matches remaining.`\
+https://nytimes.com/athletic/6349233/2025/05/15/barcelona-la-liga-title/
+
 **Clooney Brought Edward R. Murrow to Broadway. Next Stop: CNN.**\
 `In June, the news organization is planning a live broadcast of one of the final Broadway performances of “Good Night, and Good Luck.”`\
 https://nytimes.com/2025/05/15/theater/george-clooney-good-night-good-luck-cnn.html
