@@ -1,3 +1,7 @@
+**2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
+`The Commanders and Chiefs are the most popular spotlight contenders, leading the league with eight standalone games each.`\
+https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
+
 **Afrikaner Granted Refugee Status by Trump Is Linked to Antisemitic Posts**\
 `The Trump administration has tried to deport foreign-born protesters for what it calls antisemitic speech. On Monday, the administration resettled an Afrikaner who had a track record of it.`\
 https://nytimes.com/2025/05/14/us/politics/trump-afrikaner-refugee-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/arts/music/diddy-trial-cassie-casandra-ventura-se
 **Drug Overdose Deaths Plummeted in 2024, C.D.C. Reports**\
 `The progress comes as the Trump administration is proposing to cut funding for many programs believed to have contributed to the improvement.`\
 https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
-
-**The Road to Trump’s Embrace of White South Africans**\
-`The Trump administration’s hostile approach to South Africa was shaped by a convergence of factors.`\
-https://nytimes.com/2025/05/14/us/politics/trump-south-africa-afrikaners.html
 
