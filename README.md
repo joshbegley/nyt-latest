@@ -1,3 +1,7 @@
+**Sainz: No conflict of interest in father's potential FIA presidency bid**\
+`Incumbent president Mohammed Ben Sulayem is up for re-election at the end of this year.`\
+https://nytimes.com/athletic/6358798/2025/05/15/carlos-sainz-sr-fia-president/
+
 **The Kings aren't starting over under GM Ken Holland, but he has quick decisions to make**\
 `Holland enters the job with some salary-cap flexibility, but how much will he attempt to change the roster?`\
 https://nytimes.com/athletic/6358090/2025/05/15/ken-holland-la-kings-offseason/
@@ -27,14 +31,10 @@ https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/jail-br
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates
 
 **Here’s the latest.**\
-`By Julia Jacobs and Ben Sisario`\
+`By Ben Sisario, Julia Jacobs and Joe Coscarelli`\
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/heres-the-latest
 
 **Trump Pokes at India Again With Claims on Tariffs and Technology**\
 `President Trump suggested that New Delhi was ready to charge the United States “no tariff.” India’s foreign minister said that the two countries were still negotiating.`\
 https://nytimes.com/2025/05/15/business/trump-us-india-tariffs-trade.html
-
-**Ben & Jerry’s Founder Arrested at Senate Hearing After Protesting War in Gaza**\
-`Ben Cohen, a co-founder of the ice cream brand, was among a group that interrupted a Senate hearing on Wednesday, protesting Congress’s funding of Israel’s military.`\
-https://nytimes.com/2025/05/15/us/ben-jerrys-ben-cohen-arrested-rfk-senate-gaza.html
 
