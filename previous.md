@@ -1,3 +1,7 @@
+**The Major Supreme Court Decisions in 2025**\
+`In a term that was increasingly overshadowed by emergency requests related to President Trump’s swift executive actions, justices heard arguments on transgender rights, the role of religion in public life, gun violence and speech online.`\
+https://nytimes.com/interactive/2025/05/15/us/supreme-court-major-cases-2025.html
+
 **The original case that established birthright citizenship was decided in 1898.**\
 `By Amy Qin`\
 https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/the-original-case-that-established-birthright-citizenship-was-decided-in-1898
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-case-unusual.h
 **Ohio State fans, how do you feel now? Take The Athletic's 2025 fan survey**\
 `After another loss to Michigan but a national championship, let us know how you're feeling about the Buckeyes, Ohio State football fans.`\
 https://nytimes.com/athletic/6358864/2025/05/15/ohio-state-football-fan-survey-2025/
-
-**Chris Buescher, No. 17 team hit with severe penalty after post-Kansas inspection**\
-`Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
-https://nytimes.com/athletic/6356121/2025/05/15/chris-buescher-no-17-team-penalty-nascar/
 

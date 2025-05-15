@@ -1,3 +1,7 @@
+**The Major Supreme Court Decisions in 2025**\
+`In a term that was increasingly overshadowed by emergency requests related to President Trump’s swift executive actions, justices heard arguments on transgender rights, the role of religion in public life, gun violence and speech online.`\
+https://nytimes.com/interactive/2025/05/15/us/supreme-court-major-cases-2025.html
+
 **The original case that established birthright citizenship was decided in 1898.**\
 `By Amy Qin`\
 https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/the-original-case-that-established-birthright-citizenship-was-decided-in-1898
