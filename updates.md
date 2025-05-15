@@ -1,3 +1,7 @@
+**Outsourcer in Chief: Is Trump Trading Away America’s Tech Future?**\
+`Big deals to sell chips to the U.A.E. and Saudi Arabia have divided the U.S. government over whether they could be remembered for shipping cutting-edge A.I. overseas.`\
+https://nytimes.com/2025/05/15/business/economy/trump-chips-ai-uae.html
+
 **Texas Woman Bought Guns for Son Who Was Planning School Shooting, Police Say**\
 `Ashley Pardo also purchased ammunition and tactical gear for the boy, 13, who had repeatedly expressed interest in committing a school shooting, the authorities said.`\
 https://nytimes.com/2025/05/15/us/texas-mom-arrested-school-shooting.html

@@ -1,3 +1,7 @@
+**Outsourcer in Chief: Is Trump Trading Away America’s Tech Future?**\
+`Big deals to sell chips to the U.A.E. and Saudi Arabia have divided the U.S. government over whether they could be remembered for shipping cutting-edge A.I. overseas.`\
+https://nytimes.com/2025/05/15/business/economy/trump-chips-ai-uae.html
+
 **Texas Woman Bought Guns for Son Who Was Planning School Shooting, Police Say**\
 `Ashley Pardo also purchased ammunition and tactical gear for the boy, 13, who had repeatedly expressed interest in committing a school shooting, the authorities said.`\
 https://nytimes.com/2025/05/15/us/texas-mom-arrested-school-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/arts/music/smokey-robinson-criminal-investigation
 **Patriots DT Christian Barmore hoping to be ready for Week 1**\
 `The 25-year-old missed most of last season but is expected to be a full go for the Patriots' first OTA practices next week.`\
 https://nytimes.com/athletic/6360081/2025/05/15/christian-barmore-patriots-health-blood-clots/
-
-**Here’s What’s in the Big Domestic Policy Bill to Deliver Trump’s Agenda**\
-`A large tax cut, as well as more money for defense and immigration enforcement, would be financed by slashing health, nutrition, education and clean energy programs.`\
-https://nytimes.com/2025/05/15/us/politics/house-gop-tax-bill-trump.html
 
