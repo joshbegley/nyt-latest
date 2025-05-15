@@ -1,3 +1,15 @@
+**Fantasy baseball bullpen report featuring slumping closers Jeff Hoffman, Raisel Iglesias**\
+`Greg Jewett keeps you updated on notable MLB bullpen developments for fantasy baseball, including a breakdown of Jeff Hoffman's struggles.`\
+https://nytimes.com/athletic/6359669/2025/05/15/fantasy-baseball-bullpen-report-closers-hoffman-iglesias/
+
+**Protesters outside the court denounce attacks on birthright citizenship.**\
+`Immigrant advocacy groups rallied in front of the Supreme Court as justices heard arguments in a case that could fracture birthright citizenship.`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/protesters-outside-the-court-denounce-attacks-on-birthright-citizenship
+
+**Neymar in talks over Santos contract extension**\
+`Neymar returned to Santos in January, 12 years after leaving the Brazilian club for Barcelona in a deal worth €90million.`\
+https://nytimes.com/athletic/6301355/2025/05/15/neymar-santos-contract-extension/
+
 **4 Takeaways From the Citizenship Case (That Was Really About Injunctions)**\
 `The question before the justices was whether a single district court judge has the power to block a policy across the country.`\
 https://nytimes.com/2025/05/15/us/politics/supreme-court-birthright-citizenship-takeaways.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6359786/2025/05/15/chargers-sale-request-minority-s
 **Carlos Correa, Byron Buxton exit Twins-Orioles game after outfield collision**\
 `The pair collided while trying to track down Cedric Mullins’ shallow fly ball to start the third inning. `\
 https://nytimes.com/athletic/6359794/2025/05/15/carlos-correa-byron-buxton-collision-twins-orioles/
-
-**Palme d’Or Projections: Has Cannes Found Its Early Front-runner?**\
-`“Sound of Falling,” which tracks four German girls over the course of a century, drew early raves. But it might not go the distance.`\
-https://nytimes.com/2025/05/15/movies/cannes-palme-dor-front-runner.html
-
-**Florida Just Banned Fluoride From Public Water. Here’s What to Know.**\
-`Medical experts have warned that ending fluoridation will have negative consequences for oral health.`\
-https://nytimes.com/2025/05/15/us/politics/florida-fluoride-water-ban.html
-
-**Apple Used China to Make a Profit. What China Got in Return Is Scarier.**\
-`In “Apple in China,” Patrick McGee argues that by training an army of manufacturers in a “ruthless authoritarian state,” the company has created an existential vulnerability for the entire world.`\
-https://nytimes.com/2025/05/15/books/review/apple-in-china-patrick-mcgee.html
 

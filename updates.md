@@ -1,3 +1,15 @@
+**Fantasy baseball bullpen report featuring slumping closers Jeff Hoffman, Raisel Iglesias**\
+`Greg Jewett keeps you updated on notable MLB bullpen developments for fantasy baseball, including a breakdown of Jeff Hoffman's struggles.`\
+https://nytimes.com/athletic/6359669/2025/05/15/fantasy-baseball-bullpen-report-closers-hoffman-iglesias/
+
+**Protesters outside the court denounce attacks on birthright citizenship.**\
+`Immigrant advocacy groups rallied in front of the Supreme Court as justices heard arguments in a case that could fracture birthright citizenship.`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/protesters-outside-the-court-denounce-attacks-on-birthright-citizenship
+
+**Neymar in talks over Santos contract extension**\
+`Neymar returned to Santos in January, 12 years after leaving the Brazilian club for Barcelona in a deal worth €90million.`\
+https://nytimes.com/athletic/6301355/2025/05/15/neymar-santos-contract-extension/
+
 **4 Takeaways From the Citizenship Case (That Was Really About Injunctions)**\
 `The question before the justices was whether a single district court judge has the power to block a policy across the country.`\
 https://nytimes.com/2025/05/15/us/politics/supreme-court-birthright-citizenship-takeaways.html

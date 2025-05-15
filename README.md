@@ -1,3 +1,15 @@
+**Lawmakers in Both Parties Resist Trump’s Attempt to Seize Control of Their Library**\
+`The surprise firing of the head of the Library of Congress and efforts to install Trump loyalists at the iconic institution have stirred bipartisan pushback on Capitol Hill.`\
+https://nytimes.com/2025/05/15/us/politics/library-of-congress-trump.html
+
+**Rubio Meets Syrian Foreign Minister, in Another Sign of Warming Ties**\
+`The meeting came days after President Trump announced he would end sanctions against Syria and met with the country’s president, a former jihadist.`\
+https://nytimes.com/2025/05/15/world/middleeast/syria-marco-rubio-trump-sanctions.html
+
+**Trump Administration Escalates Harvard Feud With New Justice Dept. Investigation**\
+`The Trump administration is targeting the Ivy League university under a law typically used to go after government contractors for swindling.`\
+https://nytimes.com/2025/05/15/us/politics/harvard-justice-dept-investigation.html
+
 **Fantasy baseball bullpen report featuring slumping closers Jeff Hoffman, Raisel Iglesias**\
 `Greg Jewett keeps you updated on notable MLB bullpen developments for fantasy baseball, including a breakdown of Jeff Hoffman's struggles.`\
 https://nytimes.com/athletic/6359669/2025/05/15/fantasy-baseball-bullpen-report-closers-hoffman-iglesias/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6358988/2025/05/15/dicks-sporting-goods-to-acquire-
 **Does Meta Have a Social Media Monopoly? Here’s What the U.S. Has Argued.**\
 `The government showed hundreds of internal documents as it sought to prove that the social media company bought Instagram and WhatsApp to neutralize a threat.`\
 https://nytimes.com/2025/05/15/technology/meta-trial-ftc-takeaways.html
-
-**Drivers say Sainz Sr. would be a great FIA president. The incumbent doesn't want to leave**\
-`Rallying legend Carlos Sainz - his son a Williams F1 driver - is mulling a run at the FIA presidency. But the hurdles may be too high`\
-https://nytimes.com/athletic/6359703/2025/05/15/f1-carlos-sainz-sr-fia-president-mohamed-ben-sulayem/
-
-**Chargers request approval to sell 8 percent stake to Arctos: Sources**\
-`If the sale is approved, Chargers owner Dean Spanos and his family would retain a controlling stake in the club at approximately 61 percent.`\
-https://nytimes.com/athletic/6359786/2025/05/15/chargers-sale-request-minority-stake-nfl/
-
-**Carlos Correa, Byron Buxton exit Twins-Orioles game after outfield collision**\
-`The pair collided while trying to track down Cedric Mullins’ shallow fly ball to start the third inning. `\
-https://nytimes.com/athletic/6359794/2025/05/15/carlos-correa-byron-buxton-collision-twins-orioles/
 
