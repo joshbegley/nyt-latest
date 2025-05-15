@@ -1,5 +1,5 @@
 **Twins takeaways: Chris Paddack solidifying rotation at core of 11-game winning streak**\
-`The foundation for the team’s successful turnaround, and a reason to think the Twins have staying power, is a rotation bolstered by Paddack.`\
+`The foundation for the team's successful turnaround, and a reason to think the Twins have staying power, is a rotation bolstered by Paddack.`\
 https://nytimes.com/athletic/6360400/2025/05/15/twins-winning-streak-chris-paddack-orioles/
 
 **The Leafs aren't done yet. What does Craig Berube do now?**\
