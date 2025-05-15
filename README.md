@@ -1,3 +1,15 @@
+**Live Updates: Cassie to Face Sean Combs’s Lawyers at Sex-Trafficking Trial**\
+`Casandra Ventura, who has testified that Mr. Combs was physically abusive and coerced her into marathon sex sessions, will be cross-examined by his defense team.`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates
+
+**Here’s the latest.**\
+`By Julia Jacobs and Ben Sisario`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/heres-the-latest
+
+**Trump Pokes at India Again With Claims on Tariffs and Technology**\
+`President Trump suggested that New Delhi was ready to charge the United States “no tariff.” India’s foreign minister said that the two countries were still negotiating.`\
+https://nytimes.com/2025/05/15/business/trump-us-india-tariffs-trade.html
+
 **Ben & Jerry’s Founder Arrested at Senate Hearing After Protesting War in Gaza**\
 `Ben Cohen, a co-founder of the ice cream brand, was among a group that interrupted a Senate hearing on Wednesday, protesting Congress’s funding of Israel’s military.`\
 https://nytimes.com/2025/05/15/us/ben-jerrys-ben-cohen-arrested-rfk-senate-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6353915/2025/05/15/the-lakers-have-a-strong-foundat
 **If Wild trade Marco Rossi, how do they replace him? Sam Bennett? Dylan Larkin? Ask Russo and Smith, part 1**\
 `We want to start by thanking all of you for the nearly 800 responses here at The Athletic and more over on X for this first offseason Minnesota Wild mailbag — and particularly for the many, many back-and-forths in the mailbag that we had to comb through to actually find questions to answer.`\
 https://nytimes.com/athletic/6356694/2025/05/15/wild-trades-signings-rossi-mailbag/
-
-**'Just going about his business': Unsung hero of Hurricanes' defense never missed a beat**\
-`Defensemen often struggle to adapt to Carolina's system. Sean Walker was not one of them.`\
-https://nytimes.com/athletic/6357374/2025/05/15/sean-walker-hurricanes-defense-nhl-playoffs/
-
-**What would an ideal Rangers offseason look like? And a nightmare one?**\
-`With a few smart moves and a bit of good fortune, here's what the Rangers roster could look like in 2025-26. Or it could go this other way.`\
-https://nytimes.com/athletic/6356760/2025/05/15/rangers-offseason-roster-projection-ideal-nightmare/
-
-**Pistons free agency: 8 players Detroit could target this offseason**\
-`The Pistons will have some cap space to work with this summer, and adding some size in the frontcourt should be a priority.`\
-https://nytimes.com/athletic/6354256/2025/05/15/detroit-pistons-free-agency-nba-offseason-2025/
 
