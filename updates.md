@@ -1,3 +1,11 @@
+**Why New York City Is Removing Padlocks on Illegal Weed Shops It Closed**\
+`With the court orders that allowed the city to seal illicit cannabis stores starting to expire, questions remain about whether the shops could reopen.`\
+https://nytimes.com/2025/05/14/nyregion/eric-adams-nyc-marijuana-dispensaries.html
+
+**Coaches view proposal to add NFL-style OTAs to college spring practice**\
+`Remaking the spring calendar has been a frequent point of discussion by the sport’s leaders.`\
+https://nytimes.com/athletic/6357318/2025/05/14/college-football-otas-spring-practice-schedule/
+
 **‘Fraught With Abuse’: Lawmakers Denounce Brutality in N.Y. Prisons**\
 `During a daylong hearing in Albany, state lawmakers heard from family members of men who died in New York State prisons in recent years.`\
 https://nytimes.com/2025/05/14/nyregion/new-york-prisons-lawmakers.html
