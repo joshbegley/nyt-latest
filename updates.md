@@ -1,3 +1,11 @@
+**After collapse against Pacers, 'respect' isn't the issue for Cavaliers**\
+`The Cleveland Cavaliers earned their flowers during a 64-win season, with more still coming. They must look within to answer new questions.`\
+https://nytimes.com/athletic/6359019/2025/05/15/cleveland-cavaliers-nba-playoffs-donovan-mitchell-pacers/
+
+**Video: An Event to Celebrate Asian American Culture**\
+`The event marked the culmination of The New York Times series focusing on the rising effect of the A.A.P.I. community on American culture.`\
+https://nytimes.com/2025/05/15/arts/asian-american-event-laufey-kuang.html
+
 **Twins shake up starting rotation, demote Simeon Woods Richardson to the minors**\
 `Woods Richardson has struggled since last July and the Twins have two appealing Triple-A alternatives in David Festa and Zebby Matthews.`\
 https://nytimes.com/athletic/6359344/2025/05/15/twins-rotation-simeon-woods-richardson-minors/
