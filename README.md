@@ -1,3 +1,27 @@
+**F.B.I. Dismantles Elite Public Corruption Squad**\
+`Disbanding the group, which was responsible for rooting out corruption in Congress and fraud across government agencies, appears at odds with a major priority of the Trump administration.`\
+https://nytimes.com/2025/05/15/us/politics/fbi-public-corruption-squad-trump.html
+
+**How to Master the Art of People-Watching**\
+`A winning essay by Aziz AbdullaZoda, age 17.`\
+https://nytimes.com/2025/05/15/learning/how-to-master-the-art-of-people-watching.html
+
+**‘Doctor Odyssey’ Is a Dream Boat Doctor fantasy**\
+`The sexy ABC series, the first season of which ends on Thursday, is only sort of a doctor show. It is better understood as a fantasy.`\
+https://nytimes.com/2025/05/15/arts/television/doctor-odyssey-finale.html
+
+**How to Be a Stargazer**\
+`A winning essay by Aditya Neil Banerjee, age 16.`\
+https://nytimes.com/2025/05/15/learning/how-to-be-a-stargazer.html
+
+**How to Survive as a Manchester United Fan**\
+`A winning essay by Abdur Rahman, age 17.`\
+https://nytimes.com/2025/05/15/learning/how-to-survive-as-a-manchester-united-fan.html
+
+**How to Stargaze, People-Watch and Bargain Like a Pro: Our 2025 Contest Winners**\
+`For our How To Contest, we invited teenagers to explain any task of their choice. Read the 10 winning essays as they publish here.`\
+https://nytimes.com/2025/05/15/learning/how-to-stargaze-people-watch-and-bargain-like-a-pro-our-2025-contest-winners.html
+
 **Vengeful at Home, Trump Takes His Forgiving Side on Tour**\
 `During the first major foreign trip of his second term, President Trump has told audiences in the Middle East that he’s willing to set the past aside in the interests of peace and profit.`\
 https://nytimes.com/2025/05/15/world/middleeast/trump-diplomacy.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/15/technology/coinbase-sec-investigation.html
 **Ancient Romans, Pagans … and Trump?**\
 `Readers respond to a column by David Brooks. Also: President Trump’s contempt for ethical boundaries.`\
 https://nytimes.com/2025/05/15/opinion/ancient-romans-pagans-trump.html
-
-**Supreme Court Rejects ‘Moment of Threat’ Limit in Excessive Force Suits**\
-`Lower courts had been divided over whether judges must limit their scrutiny of challenges to police shootings to the seconds preceding them.`\
-https://nytimes.com/2025/05/15/us/politics/supreme-court-excessive-force.html
-
-**49ers to sell minority stake in team to trio of local families**\
-`If the 49ers’ transaction is approved, Jed York would control approximately 91 percent of the club.`\
-https://nytimes.com/athletic/6359636/2025/05/15/49ers-sale-nfl-ownership-minority/
-
-**Lewis Hamilton’s father set for FIA role in young driver development**\
-`Anthony Hamilton has been a regular presence in the paddock throughout his son’s career in F1.`\
-https://nytimes.com/athletic/6359657/2025/05/15/lewis-hamilton-father-anthony-fia-role/
-
-**Which Podcasts Rule YouTube? A New List Comes With Surprises.**\
-`YouTube, now the most popular platform for consuming podcasts, is introducing a chart ranking shows by watch time.`\
-https://nytimes.com/2025/05/15/business/media/youtube-podcasts-tony-hinchcliffe.html
-
-**Red Light: Burn that jersey. Plus, worst loss of the Core 4 era?**\
-`Also, a roundup of the new (but old) coaches and GMs around the league.`\
-https://nytimes.com/athletic/6359574/2025/05/15/maple-leafs-panthers-oilers-red-light/
-
-**What's new for 2025 in the exploding WNBA collectibles market**\
-`More WNBA trading cards and collectibles are being added to the mix in an attempt to meet growing demand`\
-https://nytimes.com/athletic/6359297/2025/05/15/caitlin-clark-wnba-cards-panini/
 
