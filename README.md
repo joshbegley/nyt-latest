@@ -1,3 +1,7 @@
+**Word of the Day: impolitic**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/15/learning/word-of-the-day-impolitic.html
+
 **Knicks' 3-point defense was disastrous in Game 5 loss to Celtics: Film breakdown**\
 `New York let one of the league's best 3-point teams get comfortable, and it cost it a game and, maybe, the series.`\
 https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-point-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358094/2025/05/15/astros-colton-gordon-mlb-debut/
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html
-
-**'I don't think teams enjoy playing us': No longer novelties, Tigers have best record in MLB**\
-`The Tigers earned another walk-off win to complete a three-game sweep of the Red Sox on Wednesday.`\
-https://nytimes.com/athletic/6357966/2025/05/15/detroit-tigers-best-record-red-sox/
 
