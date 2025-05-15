@@ -1,3 +1,7 @@
+**From the first-base box to circling the bases: Auburn's Andrew Dutton delivers a movie moment**\
+`Dutton, a graduate transfer from Birmingham-Southern, had spent all season as the first-base coach before homering in his first at-bat.`\
+https://nytimes.com/athletic/6357286/2025/05/14/andrew-dutton-auburn-home-run/
+
 **Cassie Ventura Says Sean Combs Used Sex Videos as Blackmail Tools**\
 `Ms. Ventura, Mr. Combs’s ex-girlfriend, said he threatened to use tapes of their sexual encounters, known as “freak-offs,” to control her behavior.`\
 https://nytimes.com/2025/05/14/arts/music/diddy-trial-cassie-casandra-ventura-sex-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/trump-qatar-air-force-one.html
 **101 Degrees in May? Even for Texas, This Is Hot.**\
 `Forecasters expect multiple records to be broken over the next week as an early heat wave settles over the region.`\
 https://nytimes.com/2025/05/14/weather/texas-heat-record-may.html
-
-**Rick Tocchet, Flyers are a natural fit, but not for the reasons you might assume**\
-`It’s an established pattern in the NHL — teams rotating through the same inventory of coaches over and over, in the hopes that the experience they have gained in their previous stops will help them to immediately get off on the right foot in their new locales.`\
-https://nytimes.com/athletic/6356566/2025/05/14/tocchet-flyers-coach-player/
 
