@@ -1,3 +1,15 @@
+**Ronald Acuña Jr. apologizes to Brian Snitker and Braves, all are ready to move forward**\
+`Acuña addressed his controversial social media post: "I talked to them man-to-man, admitted that I was wrong." `\
+https://nytimes.com/athletic/6357981/2025/05/15/braves-ronald-acuna-jr-apologizes/
+
+**A familiar number, CR7 boots and a languid style - watching Cristiano Ronaldo Jr play for Portugal**\
+`Cristiano Ronaldo's mother watched her 14-year-old grandson take his first steps in international football in a sleepy corner of Croatia`\
+https://nytimes.com/athletic/6356374/2025/05/15/cristiano-ronaldo-jr-portugal-santos-dolores/
+
+**Adam Wharton's passing playbook: Quick switches of play and a natural eye for progression**\
+`The Crystal Palace midfielder takes risks with his passes, pushing incisively through pressure and propelling his team up the pitch`\
+https://nytimes.com/athletic/6355121/2025/05/15/adam-wharton-palace-passing-playbook/
+
 **Inside Goodison Park: Packed with history, lovingly unique, basic but beloved**\
 `The Athletic went behind the scenes as Goodison Park prepares to host its final Premier League game `\
 https://nytimes.com/athletic/6355194/2025/05/15/everton-inside-goodison-park-tour/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6353197/2025/05/15/carlo-ancelotti-brazil-italian-c
 **Chiesa's lost season at Liverpool - and what comes next**\
 `The Italian is a Premier League winner but last started a game in February and has not been picked in the XI for a league match all season`\
 https://nytimes.com/athletic/6355600/2025/05/15/federico-chiesas-liverpool-season-future/
-
-**Leeds, Everton and Jack Harrison - what happens next?**\
-`How the winger's done at his loan club and what might tempt Farke to include him in his plans`\
-https://nytimes.com/athletic/6356278/2025/05/15/leeds-everton-and-jack-harrison-what-happens-next/
-
-**Harvard Law Paid $27 for a Copy of Magna Carta. Surprise! It’s an Original.**\
-`Two British academics discovered that a “copy” of the medieval text, held in Harvard Law School’s library for 80 years, is one of seven originals dating from 1300.`\
-https://nytimes.com/2025/05/15/world/europe/harvard-law-magna-carta-original.html
-
-**Is There Political Life After Populism? Poland May Be the Test.**\
-`The government is a centrist parliamentary coalition. To undo its predecessor’s democratic backsliding, it needs the presidency. The election starts next week.`\
-https://nytimes.com/2025/05/15/world/europe/poland-election.html
 
