@@ -1,3 +1,23 @@
+**Should Son Heung-min start for Spurs in the Europa League final?**\
+`Son not featuring in Tottenham's biggest game in years may seem unthinkable, but fitness and form could yet work against him`\
+https://nytimes.com/athletic/6355413/2025/05/15/son-heung-min-spurs-europa-final/
+
+**A Tickle in Your Throat Calls for This Soup in Your Bowl**\
+`Ali Slagle’s chickpea noodle soup is soothing, satisfying and built on pantry staples (because you’re not going to the store right now).`\
+https://nytimes.com/2025/05/15/dining/chickpea-noodle-soup-sick-recipe.html
+
+**How Much Does It Cost to See Beyoncé? It Depends.**\
+`Some fans who paid top dollar for the star’s Cowboy Carter Tour are feeling miffed as prices drop. Other procrastinators are reaping the benefits.`\
+https://nytimes.com/2025/05/15/arts/music/beyonce-cowboy-carter-tour-ticket-prices.html
+
+**BAM Announces a Female-Led Next Wave and Fall Season**\
+`The arts institution, which has shrunk its programming in recent years, unveiled its fall lineup.`\
+https://nytimes.com/2025/05/15/arts/dance/bam-next-wave-festival-and-fall-season.html
+
+**Anthony Stolarz unlikely to travel with Leafs to Florida for Game 6**\
+`Joseph Woll, Stolarz's replacement, has been unable to keep pace with counterpart Sergei Bobrovsky and was pulled in Wednesday's 6-1 loss.`\
+https://nytimes.com/athletic/6359179/2025/05/15/maple-leafs-panthers-anthony-stolarz-nhl-playoffs/
+
 **What I'm hearing about Penguins' coaching search, offseason plans**\
 `Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus many other tidbits. `\
 https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-openings/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6359142/2025/05/15/subway-series-yankees-mets-new-y
 **Wisconsin Judge Accused of Obstructing Federal Agents Pleads Not Guilty**\
 `Judge Hannah C. Dugan claimed judicial immunity this week after a federal grand jury indicted her.`\
 https://nytimes.com/2025/05/15/us/milwaukee-judge-immigration-dugan.html
-
-**Brighton pursuing deal for Botafogo's Cuiabano**\
-`The 22-year-old Brazilian joined from Gremio only last year and is contracted until June 2027.`\
-https://nytimes.com/athletic/6358874/2025/05/15/brighton-botafogo-cuiabano-transfer/
-
-**The Major Supreme Court Decisions in 2025**\
-`In a term that was increasingly overshadowed by emergency requests related to President Trump’s swift executive actions, justices heard arguments on transgender rights, the role of religion in public life, gun violence and speech online.`\
-https://nytimes.com/interactive/2025/05/15/us/supreme-court-major-cases-2025.html
-
-**The original case that established birthright citizenship was decided in 1898.**\
-`By Amy Qin`\
-https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/the-original-case-that-established-birthright-citizenship-was-decided-in-1898
-
-**At the Supreme Court, a once-fringe birthright citizenship theory takes the spotlight.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/at-the-supreme-court-a-once-fringe-birthright-citizenship-theory-takes-the-spotlight
-
-**FIFA Congress in Paraguay delayed because president Infantino was late**\
-`A security guard said they had been briefed that the event had been delayed due to the president's late arrival. `\
-https://nytimes.com/athletic/6359005/2025/05/15/fifa-infantino-congress-late-paraguay/
 
