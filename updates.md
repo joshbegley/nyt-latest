@@ -1,3 +1,23 @@
+**Is This Supreme Court Case About Birthright Citizenship? Yes and No.**\
+`A case focused on birthright citizenship could come later, but the bulk of the argument is expected to concern whether a single judge can freeze a policy nationwide.`\
+https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-judicial-power.html
+
+**D.H.S. Requests 20,000 National Guard Members to Help With Immigration Crackdown**\
+`The Defense Department is reviewing the request. If approved, one official said, it would be the first time National Guard troops were used to help enforce an immigration crackdown in the country.`\
+https://nytimes.com/2025/05/15/us/politics/national-guard-immigration.html
+
+**Here’s the latest.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/heres-the-latest
+
+**Should one judge be able to set national policy?**\
+`By Mattathias Schwartz`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/should-one-judge-be-able-to-set-national-policy
+
+**Live Updates: Supreme Court to Hear Case on Birthright Citizenship and Judicial Power**\
+`The Supreme Court could use the case to limit nationwide injunctions and reshape how federal courts handle challenges to President Trump’s policies.`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship
+
 **Sainz: No conflict of interest in father's potential FIA presidency bid**\
 `Incumbent president Mohammed Ben Sulayem is up for re-election at the end of this year.`\
 https://nytimes.com/athletic/6358798/2025/05/15/carlos-sainz-sr-fia-president/
