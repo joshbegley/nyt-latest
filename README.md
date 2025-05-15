@@ -1,3 +1,7 @@
+**What I'm hearing about Penguins' coaching search, offseason plans**\
+`Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus many other tidbits. `\
+https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-openings/
+
 **Stephen A. Smith’s Relentless, Preposterous, Probably Inevitable Road to Political Clout**\
 `America’s best-known sports-talker is hosting boldface Democrats and MAGA luminaries and teasing a 2028 run. But what he really wants is Joe Rogan-like influence, and things of that nature.`\
 https://nytimes.com/2025/05/15/style/stephen-a-smith-espn-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/at-t
 **FIFA Congress in Paraguay delayed because president Infantino was late**\
 `A security guard said they had been briefed that the event had been delayed due to the president's late arrival. `\
 https://nytimes.com/athletic/6359005/2025/05/15/fifa-infantino-congress-late-paraguay/
-
-**Kerr: Warriors 'could've gone the distance' if Steph Curry was healthy**\
-`"Everything in the playoffs is about who stays healthy and who gets hot," Kerr said after the Warriors were eliminated in Game 5.`\
-https://nytimes.com/athletic/6358790/2025/05/15/steph-curry-injury-warriors-playoff-elimination-steve-kerr/
 
