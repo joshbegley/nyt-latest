@@ -1,3 +1,11 @@
+**WTA chairman Steve Simon announces his retirement**\
+`The 70-year-old took over as leader of the women’s professional tennis tour in 2015, and led a boycott against China over Peng Shuai in 2021`\
+https://nytimes.com/athletic/6359520/2025/05/15/steve-simon-wta-retire/
+
+**Andrew Cassell, Daring Sailor Who Won Paralympic Gold, Dies at 82**\
+`He survived the deadliest race in modern yachting history, won the first Paralympic sailing contest and founded a nonprofit for sailors with disabilities.`\
+https://nytimes.com/2025/05/15/sports/sailing/andrew-cassell-dead.html
+
 **Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
 `NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/15/business/tariffs-small-business.html
 **Alba signs Miami contract extension through 2027 season**\
 `Alba joined Miami — and former Barcelona team-mates Lionel Messi and Sergio Busquets — in 2023.`\
 https://nytimes.com/athletic/6359328/2025/05/15/inter-miami-jordi-alba-contract-extension/
-
-**CMC's rebound path and more fantasy football takeaways from the 2025 NFL schedule release**\
-`Gary Davenport take a position-by-position look at players who could be helped or hurt in fantasy football after the NFL schedule release.`\
-https://nytimes.com/athletic/6359181/2025/05/15/fantasy-football-nfl-schedule-takeaways/
-
-**Luigi Alva, Elegant Tenor With a Lighthearted Touch, Dies at 98**\
-`A Peruvian-born international star, he made a specialty of roles in operas by Donizetti, Rossini and Mozart, becoming one of their pre-eminent interpreters.`\
-https://nytimes.com/2025/05/15/arts/music/luigi-alva-dead.html
 
