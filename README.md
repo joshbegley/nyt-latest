@@ -1,3 +1,15 @@
+**Ancient Romans, Pagans … and Trump?**\
+`Readers respond to a column by David Brooks. Also: President Trump’s contempt for ethical boundaries.`\
+https://nytimes.com/2025/05/15/opinion/ancient-romans-pagans-trump.html
+
+**Supreme Court Reject’s ‘Moment of Threat’ Limit in Excessive Force Suits**\
+`Lower courts had been divided over whether judges must limit their scrutiny of challenges to police shootings to the seconds preceding them.`\
+https://nytimes.com/2025/05/15/us/politics/supreme-court-excessive-force.html
+
+**49ers to sell minority stake in team to trio of local families**\
+`If the 49ers’ transaction is approved, Jed York would control approximately 91 percent of the club.`\
+https://nytimes.com/athletic/6359636/2025/05/15/49ers-sale-nfl-ownership-minority/
+
 **Lewis Hamilton’s father set for FIA role in young driver development**\
 `Anthony Hamilton has been a regular presence in the paddock throughout his son’s career in F1.`\
 https://nytimes.com/athletic/6359657/2025/05/15/lewis-hamilton-father-anthony-fia-role/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6356402/2025/05/15/blackhawks-hall-of-fame-centenni
 **Go With the Grains**\
 `And make this assertively seasoned quinoa salad, a lemony farro salad with goat cheese and mint, and a soothing miso-mushroom barley soup.`\
 https://nytimes.com/2025/05/15/dining/quinoa-salad-protein.html
-
-**Baby Is Healed With World’s First Personalized Gene-Editing Treatment**\
-`The technique used on a 9½-month-old boy with a rare condition has the potential to help people with thousands of other uncommon genetic diseases.`\
-https://nytimes.com/2025/05/15/health/gene-editing-personalized-rare-disorders.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/05/15/books/review/new-books-recommendations.html
-
-**Trump’s Military Buildup at the Border Expands**\
-`The Pentagon has sent thousands of troops, spy planes and even two warships to surveil the land and coasts.`\
-https://nytimes.com/2025/05/15/us/politics/trump-border-military.html
 
