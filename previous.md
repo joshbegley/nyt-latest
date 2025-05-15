@@ -1,3 +1,23 @@
+**Sainz: No conflict of interest in father's potential FIA presidency bid**\
+`Incumbent president Mohammed Ben Sulayem is up for re-election at the end of this year.`\
+https://nytimes.com/athletic/6358798/2025/05/15/carlos-sainz-sr-fia-president/
+
+**The Kings aren't starting over under GM Ken Holland, but he has quick decisions to make**\
+`Holland enters the job with some salary-cap flexibility, but how much will he attempt to change the roster?`\
+https://nytimes.com/athletic/6358090/2025/05/15/ken-holland-la-kings-offseason/
+
+**Padres mailbag: Leo De Vries’ timeline, the rotation equation and more**\
+`The Padres have exceeded most expectations so far in 2025 but there remains plenty of questions to ponder.`\
+https://nytimes.com/athletic/6358283/2025/05/15/padres-mailbag-leo-de-vries-rotation-equation/
+
+**Combs’s family has been supportive since his arrest.**\
+`By Talya Minsberg and Olivia Bensimon`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/combss-family-has-been-supportive-since-his-arrest
+
+**Ben and Jerry’s Founder Arrested at Kennedy’s Senate Hearing**\
+`Ben Cohen, a co-founder of the ice cream brand Ben and Jerry’s, was among a group of protesters that interrupted a Senate committee hearing to protest Congress’s funding for Israel’s military as it wages war against Hamas in Gaza.`\
+https://nytimes.com/video/us/politics/100000010171275/ben-and-jerrys-founder-arrested-kennedys-hearing.html
+
 **The Windup: Marvel at these sweet HR robberies**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6358128/2025/05/15/julio-rodriguez-catch-home-run-the-windup/
@@ -11,30 +31,10 @@ https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/jail-br
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates
 
 **Here’s the latest.**\
-`By Julia Jacobs and Ben Sisario`\
+`By Ben Sisario, Julia Jacobs and Joe Coscarelli`\
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/heres-the-latest
 
 **Trump Pokes at India Again With Claims on Tariffs and Technology**\
 `President Trump suggested that New Delhi was ready to charge the United States “no tariff.” India’s foreign minister said that the two countries were still negotiating.`\
 https://nytimes.com/2025/05/15/business/trump-us-india-tariffs-trade.html
-
-**Ben & Jerry’s Founder Arrested at Senate Hearing After Protesting War in Gaza**\
-`Ben Cohen, a co-founder of the ice cream brand, was among a group that interrupted a Senate hearing on Wednesday, protesting Congress’s funding of Israel’s military.`\
-https://nytimes.com/2025/05/15/us/ben-jerrys-ben-cohen-arrested-rfk-senate-gaza.html
-
-**Kyle Larson on his love for NASCAR (really) and his Max Verstappen comment: 12 Questions**\
-`Kyle Larson talks about what people get wrong about his feelings toward NASCAR, his obsession with ChatGPT and more in a new 12 Questions.`\
-https://nytimes.com/athletic/6356695/2025/05/15/kyle-larson-nascar-love-max-verstappen-12-questions/
-
-**What should the Red Wings do with the No. 13 draft pick? Mailbag, Part 2**\
-`Should the Red Wings keep or trade the 13th pick in the draft? What does Simon Edvinsson's next contract look like?`\
-https://nytimes.com/athletic/6348112/2025/05/15/red-wings-nhl-draft-victor-eklund/
-
-**Stakes are high for Jets ahead of must-win Game 5 against Stars**\
-`Game 5 could be Winnipeg's last home game of the season or the beginning of something truly magical.`\
-https://nytimes.com/athletic/6357884/2025/05/15/winnipeg-jets-nhl-playoffs-game-5-stars/
-
-**Blues report card: Final grades for the defensemen, goalies, coaches and GM**\
-`The grades are in for the defensemen, goalies, coaches and GM for the 2024-25 season. `\
-https://nytimes.com/athletic/6345182/2025/05/15/blues-report-card-grades-defensemen-coaches-gm/
 
