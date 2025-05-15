@@ -1,3 +1,11 @@
+**Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
+`Furcal, 47, was a three-time All-Star across 14 MLB seasons.`\
+https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/
+
+**An Afrikaner Farming Family Trades South Africa for Alabama**\
+`Errol Langton and eight members of his family were among the first group of white South Africans to arrive in the United States this week after President Trump created an expedited path to citizenship.`\
+https://nytimes.com/2025/05/15/us/politics/trump-afrikaners-alabama.html
+
 **Ex-Girlfriend of Sean Combs is Confronted by His Lawyer Over ‘Freak-Offs’**\
 `During cross-examination, the defense team depicted Casandra Ventura as fully engaged in staging and participating in the marathon sex sessions she says were abusive.`\
 https://nytimes.com/2025/05/15/arts/music/cassie-diddy-trial-combs-defense.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/weather/new-york-city-rain-may.html
 **Springsteen, in England, Blasts Trump Administration as ‘Treasonous’**\
 `His remarks, delivered to an audience abroad, stood out at a time when other superstar artists have seemed to mute their criticism of the president.`\
 https://nytimes.com/2025/05/15/arts/music/bruce-springsteen-trump.html
-
-**What is a mud ball? Explaining the PGA Championship's golf rules controversy**\
-`Scottie Scheffler, the No. 1 player in the world, called mud balls one of the most frustrating issues a professional golfer can experience.`\
-https://nytimes.com/athletic/6360453/2025/05/15/pga-championship-2025-mud-ball-golf/
-
-**Federal Officials May Limit Recommendations for Covid Vaccine**\
-`With new testing requirements, it’s not even clear how new Covid or flu shots can be made available this fall.`\
-https://nytimes.com/2025/05/15/health/covid-vaccine-recommendations.html
 

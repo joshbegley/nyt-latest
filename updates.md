@@ -1,3 +1,7 @@
+**Ex-Girlfriend of Sean Combs is Confronted by His Lawyer Over ‘Freak-Offs’**\
+`During cross-examination, the defense team depicted Casandra Ventura as fully engaged in staging and participating in the marathon sex sessions she says were abusive.`\
+https://nytimes.com/2025/05/15/arts/music/cassie-diddy-trial-combs-defense.html
+
 **She Vanished for 3 Weeks in the Sierra. Then the Phone Rang: ‘Dad, I’m Alive.’**\
 `A search for Tiffany Slaton, 28, covered roughly 600 square miles of mountainous terrain in California. She was found at a cabin, where she waited out a blizzard.`\
 https://nytimes.com/2025/05/15/us/missing-camper-safe-sierra-nevada.html
