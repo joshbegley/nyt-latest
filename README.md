@@ -1,3 +1,15 @@
+**Dick's Sporting Goods to acquire Foot Locker in $2.4 billion deal: Analysis**\
+`The combined athletic retail enterprise will have more than 3,200 stores and expand the global footprint of Dick's.`\
+https://nytimes.com/athletic/6358988/2025/05/15/dicks-sporting-goods-to-acquire-foot-locker-in-2-4-billion-deal-analysis/
+
+**What the U.S. Has Argued in the Meta Antitrust Trial**\
+`The government showed hundreds of internal documents as it sought to prove that the social media company bought Instagram and WhatsApp to neutralize a threat.`\
+https://nytimes.com/2025/05/15/technology/meta-trial-ftc-takeaways.html
+
+**Drivers say Sainz Sr. would be a great FIA president. The incumbent doesn't want to leave**\
+`Rallying legend Carlos Sainz - his son a Williams F1 driver - is mulling a run at the FIA presidency. But the hurdles may be too high`\
+https://nytimes.com/athletic/6359703/2025/05/15/f1-carlos-sainz-sr-fia-president-mohamed-ben-sulayem/
+
 **Chargers request approval to sell 8 percent stake to Arctos: Sources**\
 `If the sale is approved, Chargers owner Dean Spanos and his family would retain a controlling stake in the club at approximately 61 percent.`\
 https://nytimes.com/athletic/6359786/2025/05/15/chargers-sale-request-minority-stake-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6359739/2025/05/15/charles-woodson-buy-stake-clevel
 **Players in group chat strategized how to respond to Hockey Canada investigation**\
 `"We all need to say the same thing if we get interviewed," one player said in the group chat.`\
 https://nytimes.com/athletic/6359509/2025/05/15/hockey-canada-sexual-assault-trial-player-texts/
-
-**Conservative Republicans Revolt Over Domestic Policy Bill, Threatening Its Path**\
-`The opposition of right-wing lawmakers who are pressing for deeper spending cuts could derail the legislation before it gets to the House floor.`\
-https://nytimes.com/2025/05/15/us/politics/republicans-domestic-policy-bill.html
-
-**F.B.I. Dismantles Elite Public Corruption Squad**\
-`Disbanding the group, which was responsible for rooting out corruption in Congress and fraud across government agencies, appears at odds with a major priority of the Trump administration.`\
-https://nytimes.com/2025/05/15/us/politics/fbi-public-corruption-squad-trump.html
-
-**How to Master the Art of People-Watching**\
-`A winning essay by Aziz AbdullaZoda, age 17.`\
-https://nytimes.com/2025/05/15/learning/how-to-master-the-art-of-people-watching.html
 
