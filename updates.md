@@ -1,3 +1,7 @@
+**Colton Gordon keeps Astros' six-man rotation afloat in major-league debut**\
+`Gordon filled the strike zone and never shied away from adversity, even with a total inability to miss bats.`\
+https://nytimes.com/athletic/6358094/2025/05/15/astros-colton-gordon-mlb-debut/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html

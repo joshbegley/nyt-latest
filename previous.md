@@ -1,3 +1,7 @@
+**Colton Gordon keeps Astros' six-man rotation afloat in major-league debut**\
+`Gordon filled the strike zone and never shied away from adversity, even with a total inability to miss bats.`\
+https://nytimes.com/athletic/6358094/2025/05/15/astros-colton-gordon-mlb-debut/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6357981/2025/05/15/braves-ronald-acuna-jr-apologize
 **A familiar number, CR7 boots and a languid style - watching Cristiano Ronaldo Jr play for Portugal**\
 `Cristiano Ronaldo's mother watched her 14-year-old grandson take his first steps in international football in a sleepy corner of Croatia`\
 https://nytimes.com/athletic/6356374/2025/05/15/cristiano-ronaldo-jr-portugal-santos-dolores/
-
-**Adam Wharton's passing playbook: Quick switches of play and a natural eye for progression**\
-`The Crystal Palace midfielder takes risks with his passes, pushing incisively through pressure and propelling his team up the pitch`\
-https://nytimes.com/athletic/6355121/2025/05/15/adam-wharton-palace-passing-playbook/
 
