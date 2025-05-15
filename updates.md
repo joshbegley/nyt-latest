@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6357706/2025/05/14/maple-leafs-panthers-game-5-nhl-playoffs/
 
+**2025 NFL schedule: Week-by-week matchups, TV broadcasts and times**\
+`The full NFL regular-season schedule was released Wednesday, so it is time to mark the best matchups on your calendar.`\
+https://nytimes.com/athletic/6357256/2025/05/14/nfl-schedule-week-by-week-2025/
+
+**The Maple Leafs are proving they aren't so different after all**\
+`An embarrassing, humbling and shocking Game 5 defeat showed haunting similarities to Toronto's past playoff failures. 
+`\
+https://nytimes.com/athletic/6357706/2025/05/14/maple-leafs-panthers-game-5-nhl-playoffs/
+
 **Minnesota Frost head to PWHL Final with series-clinching Game 4 win over Toronto**\
 `The Frost, who are the reigning Walter Cup champions, head back to the Final after eliminating Toronto for the second straight year.`\
 https://nytimes.com/athletic/6357697/2025/05/14/minnesota-frost-pwhl-playoffs-toronto-sceptres-elimination/
