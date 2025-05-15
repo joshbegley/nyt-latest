@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6357706/2025/05/14/maple-leafs-panthers-game-5-nhl-
 `\
 https://nytimes.com/athletic/6357706/2025/05/14/maple-leafs-panthers-game-5-nhl-playoffs/
 
+**The Maple Leafs are proving they aren't so different after all**\
+`An embarrassing, humbling and shocking Game 5 defeat showed haunting similarities to Toronto's past playoff failures. 
+`\
+https://nytimes.com/athletic/6357706/2025/05/14/maple-leafs-panthers-game-5-nhl-playoffs/
+
 **Juan Soto excited for reaction in Bronx, even the boos: 'I don't mind'**\
 `NEW YORK — Juan Soto is ready for the crowd’s reaction, however filled with vitriol it may be, on Friday when he returns to Yankee Stadium for his first Subway Series as a member of the New York Mets.`\
 https://nytimes.com/athletic/6357953/2025/05/14/juan-soto-yankees-mets-reaciton/
