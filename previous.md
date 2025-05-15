@@ -1,3 +1,15 @@
+**Where to Eat: Kitsch Is King**\
+`It’s hard to be in a bad mood when you’re drinking a frozen margarita with a flamingo straw.`\
+https://nytimes.com/2025/05/15/dining/where-to-eat-kitsch-is-king.html
+
+**Fantasy baseball waiver wire pickups featuring Colt Keith, Logan Henderson and more**\
+`John Laghezza highlights the hot bat of Colt Keith as he puts the best fantasy baseball free-agent candidates of the week on display.`\
+https://nytimes.com/athletic/6356621/2025/05/15/fantasy-baseball-waiver-wire-pickups-colt-keith-logan-henderson/
+
+**In farewell email, Ed Martin discloses that he faces an ethics investigation.**\
+`By Devlin Barrett and Glenn Thrush`\
+https://nytimes.com/live/2025/05/15/us/trump-news/in-farewell-email-ed-martin-discloses-that-he-faces-an-ethics-investigation
+
 **Senate Rejects Democrats’ Bid to Force State Dept. to Report on Rights in El Salvador**\
 `The measure would have compelled the administration to inform Congress about how it is complying with court orders involving deportees to El Salvador and to provide a human rights report on the nation.`\
 https://nytimes.com/2025/05/15/us/politics/senate-rejects-democrats-bid-to-force-state-dept-to-report-on-rights-in-el-salvador.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6359867/2025/05/15/uefa-fifa-walk-out-infantino-tru
 **Alarmed by Trump, Kennedy Center Workers Push to Unionize**\
 `Employees say they are concerned by the Trump administration’s efforts to “dismantle mission-essential departments and reshape our arts programming.”`\
 https://nytimes.com/2025/05/15/arts/music/kennedy-center-employees-unionizing.html
-
-**Bondi Sold Millions in Trump Media Stock the Day Trump Imposed Vast Tariffs**\
-`The sale was expected, and the disclosure form did not include details of the transaction, including specific timing or the number of shares Ms. Bondi traded.`\
-https://nytimes.com/2025/05/15/us/politics/bondi-trump-media-stock.html
-
-**The Home Insurance Crisis Is Getting Even More Expensive**\
-`In California, a home insurance rate increase by State Farm is yet another sign of growing crisis driven by climate change.`\
-https://nytimes.com/2025/05/15/climate/climate-change-home-insurance-costs.html
-
-**How Trump’s Order on Birthright Citizenship Fits in His Immigration Efforts**\
-`His executive order on citizenship drew intense scrutiny, but it has not yet taken effect. Many of his other policies have immediately upended the system.`\
-https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-immigration.html
 
