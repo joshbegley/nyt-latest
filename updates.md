@@ -1,3 +1,15 @@
+**U.S. Moves Russian Scientist’s Case to Criminal Court in Boston**\
+`For months, the Harvard researcher Kseniia Petrova has challenged efforts to deport her to her native Russia for a customs violation. This week, the government charged her with a criminal felony.`\
+https://nytimes.com/2025/05/15/science/petrova-scientist-harvard-russia-charges.html
+
+**UEFA delegates exit FIFA Congress after Infantino arrives late from Trump tour**\
+`The eight UEFA members of the FIFA council and a number of European delegates did not return to the congress in the conference centre.`\
+https://nytimes.com/athletic/6359867/2025/05/15/uefa-fifa-walk-out-infantino-trump/
+
+**How Trump’s Order on Birthright Citizenship Fits in His Immigration Efforts**\
+`His executive order on citizenship drew intense scrutiny, but it has not yet taken effect. Many of his other policies have immediately upended the system.`\
+https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-immigration.html
+
 **Alarmed by Trump, Kennedy Center Workers Push to Unionize**\
 `Employees say they are concerned by the Trump administration’s efforts to “dismantle mission-essential departments and reshape our arts programming.”`\
 https://nytimes.com/2025/05/15/arts/music/kennedy-center-employees-unionizing.html
