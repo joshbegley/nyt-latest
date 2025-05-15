@@ -1,3 +1,19 @@
+**FIFA Congress in Paraguay delayed because president Infantino was late**\
+`A security guard said they had been briefed that the event had been delayed due to the president's late arrival. `\
+https://nytimes.com/athletic/6359005/2025/05/15/fifa-infantino-congress-late-paraguay/
+
+**Kerr: Warriors 'could've gone the distance' if Steph Curry was healthy**\
+`"Everything in the playoffs is about who stays healthy and who gets hot," Kerr said after the Warriors were eliminated in Game 5.`\
+https://nytimes.com/athletic/6358790/2025/05/15/steph-curry-injury-warriors-playoff-elimination-steve-kerr/
+
+**MSNBC Poaches a Politico Editor to Lead a New Washington Bureau**\
+`The cable channel, which is set to be spun off from NBC, is starting its first stand-alone D.C. office with Sudeep Reddy at the helm. It also plans to hire 100 new journalists.`\
+https://nytimes.com/2025/05/15/business/media/msnbc-politico-washington-bureau-chief.html
+
+**Several Supreme Court Justices Have Been Critical of Nationwide Injunctions**\
+`Across the ideological spectrum, justices have been troubled by rulings that touch everyone affected by a challenged law, regulation or executive action.`\
+https://nytimes.com/2025/05/15/us/politics/several-supreme-court-justices-have-been-critical-of-nationwide-injunctions.html
+
 **Nelson DeMille’s House Is Listed for $5.5 Million on Long Island**\
 `The five-bedroom home was built in Garden City in the Tudor style the author admired. But it isn’t where he wrote his books.`\
 https://nytimes.com/2025/05/15/realestate/nelson-demille-house-for-sale-long-island.html

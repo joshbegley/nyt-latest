@@ -1,3 +1,19 @@
+**FIFA Congress in Paraguay delayed because president Infantino was late**\
+`A security guard said they had been briefed that the event had been delayed due to the president's late arrival. `\
+https://nytimes.com/athletic/6359005/2025/05/15/fifa-infantino-congress-late-paraguay/
+
+**Kerr: Warriors 'could've gone the distance' if Steph Curry was healthy**\
+`"Everything in the playoffs is about who stays healthy and who gets hot," Kerr said after the Warriors were eliminated in Game 5.`\
+https://nytimes.com/athletic/6358790/2025/05/15/steph-curry-injury-warriors-playoff-elimination-steve-kerr/
+
+**MSNBC Poaches a Politico Editor to Lead a New Washington Bureau**\
+`The cable channel, which is set to be spun off from NBC, is starting its first stand-alone D.C. office with Sudeep Reddy at the helm. It also plans to hire 100 new journalists.`\
+https://nytimes.com/2025/05/15/business/media/msnbc-politico-washington-bureau-chief.html
+
+**Several Supreme Court Justices Have Been Critical of Nationwide Injunctions**\
+`Across the ideological spectrum, justices have been troubled by rulings that touch everyone affected by a challenged law, regulation or executive action.`\
+https://nytimes.com/2025/05/15/us/politics/several-supreme-court-justices-have-been-critical-of-nationwide-injunctions.html
+
 **Nelson DeMille’s House Is Listed for $5.5 Million on Long Island**\
 `The five-bedroom home was built in Garden City in the Tudor style the author admired. But it isn’t where he wrote his books.`\
 https://nytimes.com/2025/05/15/realestate/nelson-demille-house-for-sale-long-island.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/15/arts/doom-dark-ages-review.html
 **Chris Buescher, RFK's No. 17 team hit with big penalty after post-Kansas inspection**\
 `Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
 https://nytimes.com/athletic/6358917/2025/05/15/chris-buescher-rfk-racing-penalty-kansas-inspection/
-
-**Which Trump Policies Have Been Blocked by Nationwide Injunctions?**\
-`President Trump’s effort to restrict birthright citizenship is one of many aggressive policies that judges have blocked with sweeping orders.`\
-https://nytimes.com/2025/05/15/us/politics/trump-policies-blocked-courts.html
-
-**Trump says negotiations on Iran’s nuclear program are ‘very serious.’**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2025/05/15/us/trump-news/trump-says-negotiations-on-irans-nuclear-program-are-very-serious
-
-**What to Expect From the Cross-Examination of Casandra Ventura**\
-`Lawyers for Sean Combs are expected to focus on moments of her agency in the relationship and on jealousy related to infidelities.`\
-https://nytimes.com/2025/05/15/arts/music/cassie-cross-examination-sean-combs-diddy-trial.html
-
-**Checking in on Roman Anthony, Bubba Chandler and more potential callups for fantasy baseball**\
-`Owen Poindexter takes a trip down on the farm, highlighting the potential next big prospect promotions that could impact fantasy baseball.`\
-https://nytimes.com/athletic/6357010/2025/05/15/fantasy-baseball-prospect-callups-anthony-chandler/
 
