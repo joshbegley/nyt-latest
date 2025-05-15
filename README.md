@@ -1,3 +1,7 @@
+**Florida Just Banned Fluoride From Public Water. Here’s What to Know.**\
+`Medical experts have warned that ending fluoridation will have negative consequences for oral health.`\
+https://nytimes.com/2025/05/15/us/politics/florida-fluoride-water-ban.html
+
 **Apple Used China to Make a Profit. What China Got in Return Is Scarier.**\
 `In “Apple in China,” Patrick McGee argues that by training an army of manufacturers in a “ruthless authoritarian state,” the company has created an existential vulnerability for the entire world.`\
 https://nytimes.com/2025/05/15/books/review/apple-in-china-patrick-mcgee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/learning/how-to-be-a-stargazer.html
 **How to Survive as a Manchester United Fan**\
 `A winning essay by Abdur Rahman, age 17.`\
 https://nytimes.com/2025/05/15/learning/how-to-survive-as-a-manchester-united-fan.html
-
-**How to Stargaze, People-Watch and Bargain Like a Pro: Our 2025 Contest Winners**\
-`For our How To Contest, we invited teenagers to explain any task of their choice. Read the 10 winning essays as they publish here.`\
-https://nytimes.com/2025/05/15/learning/how-to-stargaze-people-watch-and-bargain-like-a-pro-our-2025-contest-winners.html
 
