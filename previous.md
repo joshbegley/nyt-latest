@@ -1,3 +1,32 @@
+**'We did it for JT': Celtics regroup in Game 5 to save season, honor Jayson Tatum**\
+`The Celtics have a history of reaching another level when they absolutely need it. They did so Wednesday.`\
+https://nytimes.com/athletic/6358244/2025/05/15/jaylen-brown-celtics-game-5-knicks-nba-playoffs/
+
+**Adrienne Adams Wants to Bolster the N.Y.P.D. and Her Odds of Being Mayor**\
+`Ms. Adams, the City Council speaker, is releasing a crime plan that creates hiring and retention incentives for police officers while also investing in diversion programs.`\
+https://nytimes.com/2025/05/15/nyregion/adrienne-adams-crime-mayor.html
+
+**Travel Tales**\
+`Tell us a story, real or made up, that is inspired by any of these images from an article about travel mishaps.`\
+https://nytimes.com/2025/05/15/learning/travel-tales.html
+
+**Why a $10,000 Deduction Is Blocking the G.O.P.’s $3.8 Trillion Tax Bill**\
+`House Republicans, mostly from New York, have gone to war with party leadership over their push to raise or abolish the $10,000 cap on the so-called SALT deduction.`\
+https://nytimes.com/2025/05/15/nyregion/salt-tax-deduction.html
+
+**The Story of Sexual Abuse, Bribery and Suicide That Shocked a Small Town**\
+`An F.B.I. investigation homed in on two powerful men in suburban New York. Behind it were allegations by a woman who said her brother had abused and controlled her for 45 years.`\
+https://nytimes.com/2025/05/15/nyregion/soudani-rosenwasser-corruption-abuse.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/15/crosswords/spelling-bee-forum.html
+
+**UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
+`Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
+`\
+https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
+
 **Here’s the latest.**\
 `By Luke Broadwater, Jonathan Swan and Qasim Nauman`\
 https://nytimes.com/live/2025/05/15/us/trump-news/heres-the-latest
@@ -9,32 +38,4 @@ https://nytimes.com/live/2025/05/15/us/trump-news
 **After second-round exit, is Golden Knights' Cup window closing?**\
 `This five-game defeat felt like a missed opportunity for an aging core of talented players in search of another Cup.`\
 https://nytimes.com/athletic/6353720/2025/05/15/golden-knights-nhl-playoffs-oilers-loss/
-
-**Inter Miami draws 3-3 against San Jose Earthquakes as frustrations flare**\
-`The scoreline, in which Miami committed a myriad of glaring defensive mistakes, further aggravated the Argentina World Cup winner`\
-https://nytimes.com/athletic/6358253/2025/05/15/inter-miami-san-jose-earthquakes-lionel-messi-game-analysis/
-
-**Bologna arrived dreaming of a Coppa Italia 'night of miracles' - they departed worthy winners**\
-`Vincenzo Italiano's side had not won a major trophy in more than 50 years but they deserved to beat AC Milan in Wednesday's final`\
-https://nytimes.com/athletic/6357052/2025/05/15/bologna-coppa-italia-final-milan/
-
-**Tom Cruise Gives Cannes a Master Class in Star Power**\
-`Whether in “Mission: Impossible — The Final Reckoning” or on the red carpet, the 62-year-old actor ensured that all eyes were on him.`\
-https://nytimes.com/2025/05/15/movies/tom-cruise-mission-impossible-cannes.html
-
-**With fate of franchise in the balance, Luke Kornet's legacy game saved Celtics' season**\
-`Kornet had the game of his life in Game 5, saving the Celtics' season in the wake of Jayson Tatum's Achilles tear.`\
-https://nytimes.com/athletic/6358227/2025/05/15/celtics-win-knicks-luke-kornet-legacy-game/
-
-**Word of the Day: impolitic**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/15/learning/word-of-the-day-impolitic.html
-
-**Knicks' 3-point defense was disastrous in Game 5 loss to Celtics: Film breakdown**\
-`New York let one of the league's best 3-point teams get comfortable, and it cost it a game and, maybe, the series.`\
-https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-point-defense/
-
-**Buckley: Tatum-less Celtics notify Knicks that there's more backetball to be played**\
-`The Celtics were without Jayson Tatum and written off by some, but that talk is on hold after they controlled Game 5 to extend the series.`\
-https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playoffs/
 
