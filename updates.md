@@ -1,3 +1,15 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html
+
+**'I don't think teams enjoy playing us': No longer novelties, Tigers have best record in MLB**\
+`The Tigers earned another walk-off win to complete a three-game sweep of the Red Sox on Wednesday.`\
+https://nytimes.com/athletic/6357966/2025/05/15/detroit-tigers-best-record-red-sox/
+
+**Mirtle: Why this Maple Leafs loss might be their worst one yet**\
+`The Leafs have cultivated a record for postseason implosions, but the latest no-show arguably takes the cake.`\
+https://nytimes.com/athletic/6357904/2025/05/15/maple-leafs-worst-loss-nhl-playoffs/
+
 **'Everybody's got to look in the mirror': Leafs reflect on ugly Game 5 loss**\
 `Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
 `\
