@@ -1,3 +1,7 @@
+**The original case that established birthright citizenship was decided in 1898.**\
+`By Amy Qin`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/the-original-case-that-established-birthright-citizenship-was-decided-in-1898
+
 **At the Supreme Court, a once-fringe birthright citizenship theory takes the spotlight.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/at-the-supreme-court-a-once-fringe-birthright-citizenship-theory-takes-the-spotlight
