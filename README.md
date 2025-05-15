@@ -1,3 +1,11 @@
+**How to watch the NFL in 2025: Full streaming, cable and TV guide**\
+`NBC will air the Super Bowl, while FOX has the NFC title game and CBS has the AFC title game.`\
+https://nytimes.com/athletic/6357235/2025/05/15/nfl-schedule-streaming-channel-watch-2025/
+
+**Phillies notes: Aaron Nola's trends, Jordan Romano's resurgence, Jesús Luzardo's pitch mix**\
+`Nola has never been this bad in two-strike counts. Romano has recaptured some confidence. Luzardo is navigating lineups in different ways. `\
+https://nytimes.com/athletic/6357916/2025/05/15/phillies-aaron-nola-jesus-luzardo-jordan-romano/
+
 **The Pulse: The downfall of a $6.5 billion franchise**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6356475/2025/05/15/manchester-united-glazers-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6346392/2025/05/15/caitlin-clark-tv-ratings-games-i
 **How Top 25 teams are drawing international rising stars to college hoops**\
 `International prospects from some of the top professional leagues in the world are about to become household names in college basketball.`\
 https://nytimes.com/athletic/6355989/2025/05/15/college-basketball-recruiting-european-nil-international-players/
-
-**NBA's Nance Jr. on his Leeds United ownership: 'Tallest Leeds fan in the world'**\
-`What's life like as a high-profile minority investor? One NBA player describes the joy of his experience playing a part for Leeds United.`\
-https://nytimes.com/athletic/6354530/2025/05/15/larry-nance-leeds-united-owner-nba/
-
-**All-WNBA preseason teams: A'ja Wilson, Napheesa Collier, Caitlin Clark and more**\
-`The Athletic's experts cast their votes for our preseason first and second teams. `\
-https://nytimes.com/athletic/6356664/2025/05/15/all-wnba-preseason-teams-caitlin-clark/
 
