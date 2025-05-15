@@ -1,3 +1,15 @@
+**Drug Overdose Deaths Plummeted in 2024, C.D.C. Reports**\
+`The progress comes as the Trump administration is proposing to cut funding for many programs believed to be responsible for the improvement.`\
+https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
+
+**The Road to Trump’s Embrace of White South Africans**\
+`The Trump administration’s hostile approach to South Africa was shaped by a convergence of factors.`\
+https://nytimes.com/2025/05/14/us/politics/trump-south-africa-afrikaners.html
+
+**TikTok Influencer in Mexico Is Shot Dead While Livestreaming**\
+`The death of Valeria Márquez, 23, was the latest reminder of the rise in violence against women in the country.`\
+https://nytimes.com/2025/05/14/world/americas/valeria-marquez-tiktok-influencer-live-murder-mexico.html
+
 **Live From Capitol Hill, It’s An All-Nighter That Leaves Some Lawmakers Snoring**\
 `Members of two key House committees worked all night on a sprawling domestic policy bill. Some fell asleep along the way.`\
 https://nytimes.com/2025/05/14/us/politics/house-representatitves-asleep.html
