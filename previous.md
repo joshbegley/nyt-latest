@@ -1,3 +1,7 @@
+**Law Firms Fighting Back Against Trump Report Security Clearance Suspensions**\
+`WilmerHale and Jenner & Block pleaded with the courts to intervene as the Justice Department moved to implement President Trump’s orders targeting their business.`\
+https://nytimes.com/2025/05/15/us/politics/law-firms-trump-security-clearance.html
+
 **Raindrops Keep Falling on New Yorkers’ Heads**\
 `“This weather is gross,” the mayor declared.`\
 https://nytimes.com/2025/05/15/weather/new-york-city-rain-may.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/briefing/immigration-gene-editing.html
 **Barcelona win La Liga title with derby victory over Espanyol**\
 `The victory moves Barca an insurmountable seven points clear of second-place Real Madrid with just two rounds of matches remaining.`\
 https://nytimes.com/athletic/6349233/2025/05/15/barcelona-la-liga-title/
-
-**Charles Strouse, Composer of ‘Annie’ and ‘Bye Bye Birdie,’ Dies at 96**\
-`He wrote some of the most enduring musical theater numbers of his era and earned three Tony Awards, a Grammy and an Emmy.`\
-https://nytimes.com/2025/05/15/theater/charles-strouse-dead.html
 

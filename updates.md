@@ -1,3 +1,7 @@
+**Law Firms Fighting Back Against Trump Report Security Clearance Suspensions**\
+`WilmerHale and Jenner & Block pleaded with the courts to intervene as the Justice Department moved to implement President Trump’s orders targeting their business.`\
+https://nytimes.com/2025/05/15/us/politics/law-firms-trump-security-clearance.html
+
 **Raindrops Keep Falling on New Yorkers’ Heads**\
 `“This weather is gross,” the mayor declared.`\
 https://nytimes.com/2025/05/15/weather/new-york-city-rain-may.html
