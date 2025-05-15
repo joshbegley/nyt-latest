@@ -1,3 +1,19 @@
+**The Home Insurance Crisis Is Getting Even More Expensive**\
+`In California, a home insurance rate increase by State Farm is yet another sign of growing crisis driven by climate change.`\
+https://nytimes.com/2025/05/15/climate/climate-change-home-insurance-costs.html
+
+**How Trump’s Order on Birthright Citizenship Fits in His Immigration Efforts**\
+`His executive order on citizenship drew intense scrutiny, but it has not yet taken effect. Many of his other policies have immediately upended the system.`\
+https://nytimes.com/2025/05/15/us/politics/how-trumps-order-on-birthright-citizenship-fits-in-his-immigration-efforts.html
+
+**Ukrainian Is Arrested After Fires at U.K. Prime Minister’s Properties**\
+`One of the blazes took place outside the doorway of Prime Minister Keir Starmer’s family home in Kentish Town, in north London, which is currently being rented out.`\
+https://nytimes.com/2025/05/15/world/europe/britain-fires-keir-starmer-arson.html
+
+**Cristiano Ronaldo named world's highest paid athlete for third year running**\
+`Forbes magazine has published its annual report on the income of the world’s biggest athletes and the Portugal forward has come out on top`\
+https://nytimes.com/athletic/6359885/2025/05/15/cristiano-ronaldo-highest-paid-athlete-2025/
+
 **Until Saturday: CFB's Pete Rose moment?**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-until-saturday/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/15/dining/easy-chicken-kebabs.html
 **What Teenagers Are Saying About Hugging Their Parents**\
 `Students react to an Opinion essay about the importance of physical affection in families.`\
 https://nytimes.com/2025/05/15/learning/what-teenagers-are-saying-about-hugging-their-parents.html
-
-**Caleb Williams wanted to avoid getting drafted by Bears, new book says**\
-`"Chicago is the place quarterbacks go to die," Williams' father, Carl, said in the book.`\
-https://nytimes.com/athletic/6359783/2025/05/15/caleb-williams-carl-dad-book-news-espn/
-
-**New N.I.H. Policy Threatens Global Science Collaborations**\
-`Restrictions on payments to foreign partners may jeopardize studies of cancer and other conditions that would benefit Americans.`\
-https://nytimes.com/2025/05/15/health/nih-international-research.html
-
-**Decapitated Dolphin in North Carolina Prompts $20,000 Reward Offer From U.S.**\
-`The 8-foot long bottlenose dolphin was found dead with its head missing last month on the shore of Lea-Hutaff Island, N.C., north of Wilmington.`\
-https://nytimes.com/2025/05/15/us/north-carolina-dolphin-reward.html
-
-**For Trump, Citizenship Has Long Served as a Political Tool**\
-`Raising questions about who gets to claim to be an American powered the president’s political rise. A Supreme Court case may allow him reinterpret a right enshrined in the Constitution since the 1800s.`\
-https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-politics.html
 
