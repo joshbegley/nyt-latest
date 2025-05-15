@@ -1,3 +1,7 @@
+**2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
+`The Commanders and Chiefs are the most popular spotlight contenders, leading the league with eight standalone games each.`\
+https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
+
 **Afrikaner Granted Refugee Status by Trump Is Linked to Antisemitic Posts**\
 `The Trump administration has tried to deport foreign-born protesters for what it calls antisemitic speech. On Monday, the administration resettled an Afrikaner who had a track record of it.`\
 https://nytimes.com/2025/05/14/us/politics/trump-afrikaner-refugee-antisemitism.html
