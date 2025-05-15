@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-poi
 https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playoffs/
 
 **Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
-`The Minecraft-themed video showing a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
+`The Minecraft-themed video showed a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
 https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
 
 **The New York Times in Print for Thursday, May 15, 2025**\
