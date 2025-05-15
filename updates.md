@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-ar
 `\
 https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
 
+**UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
+`Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
+`\
+https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
+
 **Ukrainians and Russians Are in Turkey but Will They Meet?**\
 `President Vladimir V. Putin’s name was not on a list of Russian officials attending the potential talks.`\
 https://nytimes.com/2025/05/15/world/europe/russia-ukraine-putin-zelensky-ceasefire-trump.html
