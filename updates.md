@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, May 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/15/todays-new-york-times-international-edition
+
 **Some See Depardieu Verdict as Turning Point for #MeToo in France**\
 `French courts may finally be taking years of complaints about sexual violence seriously, advocates and experts say.`\
 https://nytimes.com/2025/05/15/gerard-depardieu-guilty-verdict-metoo-france.html
