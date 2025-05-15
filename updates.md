@@ -1,3 +1,19 @@
+**Ukraine’s President Lands in Turkey for Peace Talks with Russia**\
+`President Volodymyr Zelensky of Ukraine said he did not know the level of representation of the Russian delegation, as he landed in Ankara for peace talks with Russia on Thursday.`\
+https://nytimes.com/video/world/middleeast/100000010171166/zelensky-turkey-peace-talks-russia.html
+
+**Oilers' latest playoff win formula? A defensive masterclass and an unsung hero**\
+`Kasperi Kapanen's 1-0 overtime goal was the Oilers' most unique win of the playoffs yet — and it bodes well for their Cup aspirations.`\
+https://nytimes.com/athletic/6358420/2025/05/15/oilers-nhl-playoffs-golden-knights-kapanen/
+
+**Bond Traders Enter the Budget Fight**\
+`Concerns about the deficit-stretching potential of President Trump’s tax plan is spooking some investors, even as Republicans argue over its particulars.`\
+https://nytimes.com/2025/05/15/business/dealbook/bond-traders-budget-tax-cuts.html
+
+**Arsenal fan survey results: Gyokeres over Sesko? Judging the season? Full support for Arteta?**\
+`We surveyed 6,000 Arsenal fans to get their thoughts on this season and what needs to change in summer`\
+https://nytimes.com/athletic/6356189/2025/05/15/arsenal-survey-results-2025/
+
 **Vardy set to end Leicester career on 500 games with send-off vs Ipswich**\
 `The 38-year-old announced last month he would be leaving the club after 13 years when his contract expires this summer.`\
 https://nytimes.com/athletic/6358604/2025/05/15/jamie-vardy-end-leicester-career/

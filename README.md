@@ -1,3 +1,7 @@
+**Israeli Strikes Kill Dozens in Gaza, Health Ministry Says**\
+`Israel has threatened to escalate military campaign against Hamas, despite a U.S.-backed push to agree a new cease-fire.`\
+https://nytimes.com/2025/05/15/world/middleeast/israel-strikes-gaza.html
+
 **Ukraine’s President Lands in Turkey for Peace Talks with Russia**\
 `President Volodymyr Zelensky of Ukraine said he did not know the level of representation of the Russian delegation, as he landed in Ankara for peace talks with Russia on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000010171166/zelensky-turkey-peace-talks-russia.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6358604/2025/05/15/jamie-vardy-end-leicester-career
 `Is the answer to keep developing young players like Jonathan Kuminga and Brandin Podziemski around the aging veteran core? `\
 https://nytimes.com/athletic/6358151/2025/05/15/warriors-steph-curry-jimmy-butler-future/
 
-**Walmart Warns About Ability to ‘Absorb’ Tariff Costs to Keep Prices Down**\
+**Walmart Warns About Ability to ‘Absorb’ Tariff Costs Without Raising Prices**\
 `The retailer reported sales growth, especially in its e-commerce division, but also cautioned about economic uncertainty in the quarters ahead.`\
 https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/briefing/a-big-beautiful-bill.html
 **Anthony Edwards' belief powers the Timberwolves back to Western Conference finals**\
 `Edwards predicted a year ago that Minnesota would make it back to the West finals. The Wolves dispatched the Warriors to prove him right. `\
 https://nytimes.com/athletic/6356737/2025/05/15/anthony-edwards-timberwolves-playoffs-game-5-warriors-west-finals/
-
-**North Carolina, Bill Belichick added 30-plus players from transfer portal: Are they any good?**\
-`North Carolina's transfer class includes only two players who were full-time starters at a Power 4 program in 2024. `\
-https://nytimes.com/athletic/6356229/2025/05/15/north-carolina-football-bill-belichick-transfer-portal/
 
