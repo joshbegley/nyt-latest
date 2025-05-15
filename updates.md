@@ -1,3 +1,11 @@
+**The Athletic FC: 'Fear and terror' at Sevilla, Madrid close in on Huijsen, watching Ronaldo Jr play**\
+`Today in TAFC: Sevilla fans aggressively turn on the team, Real Madrid trigger Dean Huijsen's release clause, Inter Miami struggle again...`\
+https://nytimes.com/athletic/6358490/2025/05/15/sevilla-fan-revolt-huijsen-real-madrid-ronaldo-son/
+
+**Ukraine’s President Lands in Turkey for Peace Talks with Russia**\
+`As he arrived in Ankara on Thursday, President Volodymyr Zelensky of Ukraine said Russia’s delegation “appears to be more theatrical than substantive.”`\
+https://nytimes.com/video/world/middleeast/100000010171166/zelensky-turkey-peace-talks-russia.html
+
 **Israeli Strikes Kill Dozens in Gaza, Health Ministry Says**\
 `Israel has threatened to escalate military campaign against Hamas, despite a U.S.-backed push to agree a new cease-fire.`\
 https://nytimes.com/2025/05/15/world/middleeast/israel-strikes-gaza.html
