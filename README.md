@@ -1,3 +1,7 @@
+**Liverpool advancing in Frimpong talks**\
+`The 24-year-old has a release clause in the region of €35m in his Bayer Leverkusen contract.`\
+https://nytimes.com/athletic/6358448/2025/05/15/jeremie-frimpong-liverpool-transfer-leverkusen/
+
 **Playoffs in European football should come with 'buyer beware' warning**\
 `Playoffs bring excitement but also some issues, as France's Ligue 1 might soon find out.`\
 https://nytimes.com/athletic/6356077/2025/05/15/ligue-1-playoffs-nhl/
@@ -33,9 +37,4 @@ https://nytimes.com/2025/05/15/nyregion/soudani-rosenwasser-corruption-abuse.htm
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/15/crosswords/spelling-bee-forum.html
-
-**UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
-`Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
-`\
-https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
 
