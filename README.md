@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, May 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/15/todays-new-york-times-international-edition
+
 **Some See Depardieu Verdict as Turning Point for #MeToo in France**\
 `French courts may finally be taking years of complaints about sexual violence seriously, advocates and experts say.`\
 https://nytimes.com/2025/05/15/gerard-depardieu-guilty-verdict-metoo-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/15/us/politics/trump-budget-reconciliati
 **The Forecast for 2027? Total A.I. Domination.**\
 `Losing your job may be the best-case scenario.`\
 https://nytimes.com/2025/05/15/opinion/artifical-intelligence-2027.html
-
-**Top Priority for Pope Leo: Warn the World of the A.I. Threat**\
-`While it is far too early to say how he will use his platform to address such issues, his focus shows he is a church leader who grasps the gravity of this modern concern.`\
-https://nytimes.com/2025/05/15/world/europe/pope-leo-artificial-intelligence.html
 
