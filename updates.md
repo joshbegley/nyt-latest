@@ -1,3 +1,7 @@
+**Which Trump Policies Have Been Blocked by Nationwide Injunctions?**\
+`President Trump’s effort to restrict birthright citizenship is one of many aggressive policies that judges have blocked with sweeping orders.`\
+https://nytimes.com/2025/05/15/us/politics/trump-policies-blocked-courts.html
+
 **Chris Buescher, No. 17 team hit with severe penalty after post-Kansas inspection**\
 `Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
 https://nytimes.com/athletic/6356121/2025/05/15/chris-buescher-no-17-team-penalty-nascar/

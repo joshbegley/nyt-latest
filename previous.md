@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/15/arts/doom-dark-ages-review.html
 `Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
 https://nytimes.com/athletic/6358917/2025/05/15/chris-buescher-rfk-racing-penalty-kansas-inspection/
 
-**What Trump Policies Have Been Blocked by Nationwide Injunctions?**\
+**Which Trump Policies Have Been Blocked by Nationwide Injunctions?**\
 `President Trump’s effort to restrict birthright citizenship is one of many aggressive policies that judges have blocked with sweeping orders.`\
 https://nytimes.com/2025/05/15/us/politics/trump-policies-blocked-courts.html
 
