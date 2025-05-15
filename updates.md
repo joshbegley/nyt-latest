@@ -1,3 +1,7 @@
+**Why Is Everyone Talking About Lorde’s New Song?**\
+`A new song presents a looser, more liberated version of the pop star. While the title asks, “What Was That,” the better question might be, “What comes next?”`\
+https://nytimes.com/video/podcasts/100000010170156/why-is-everyone-talking-about-lordes-new-song.html
+
 **U.S. Moves Russian Scientist’s Case to Criminal Court in Boston**\
 `For months, the Harvard researcher Kseniia Petrova has challenged efforts to deport her to her native Russia for a customs violation. This week, the government charged her with a criminal felony.`\
 https://nytimes.com/2025/05/15/science/petrova-scientist-harvard-russia-charges.html

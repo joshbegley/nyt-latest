@@ -1,3 +1,11 @@
+**The Justices Can’t Avoid Trump’s Blow Against the Constitution**\
+`Procedure was supposed to be beside the point at Thursday’s arguments. But the unconstitutionality and impracticality of Trump’s order was inescapable.`\
+https://nytimes.com/live/2025/05/05/opinion/thepoint/birthright-citizenship-oral-arguments-constitution
+
+**Hull sack Ruben Selles despite Championship survival**\
+`Selles is the third Hull manager to be sacked in the last 12 months.`\
+https://nytimes.com/athletic/6360035/2025/05/15/ruben-selles-hull-sacked/
+
 **Why Is Everyone Talking About Lorde’s New Song?**\
 `A new song presents a looser, more liberated version of the pop star. While the title asks, “What Was That,” the better question might be, “What comes next?”`\
 https://nytimes.com/video/podcasts/100000010170156/why-is-everyone-talking-about-lordes-new-song.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-immigrat
 **Ukrainian Is Arrested After Fires at U.K. Prime Minister’s Properties**\
 `One of the blazes took place outside the doorway of Prime Minister Keir Starmer’s family home in Kentish Town, in north London, which is currently being rented out.`\
 https://nytimes.com/2025/05/15/world/europe/britain-fires-keir-starmer-arson.html
-
-**Cristiano Ronaldo named world's highest paid athlete for third year running**\
-`Forbes magazine has published its annual report on the income of the world’s biggest athletes and the Portugal forward has come out on top`\
-https://nytimes.com/athletic/6359885/2025/05/15/cristiano-ronaldo-highest-paid-athlete-2025/
-
-**Until Saturday: CFB's Pete Rose moment?**\
-`Until Saturday is The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-until-saturday/
 

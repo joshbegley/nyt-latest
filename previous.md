@@ -1,3 +1,7 @@
+**Why Is Everyone Talking About Lorde’s New Song?**\
+`A new song presents a looser, more liberated version of the pop star. While the title asks, “What Was That,” the better question might be, “What comes next?”`\
+https://nytimes.com/video/podcasts/100000010170156/why-is-everyone-talking-about-lordes-new-song.html
+
 **U.S. Moves Russian Scientist’s Case to Criminal Court in Boston**\
 `For months, the Harvard researcher Kseniia Petrova has challenged efforts to deport her to her native Russia for a customs violation. This week, the government charged her with a criminal felony.`\
 https://nytimes.com/2025/05/15/science/petrova-scientist-harvard-russia-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359885/2025/05/15/cristiano-ronaldo-highest-paid-a
 **Until Saturday: CFB's Pete Rose moment?**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-until-saturday/
-
-**Sinner puts in performance of the year to demolish Ruud at Italian Open**\
-`Sinner was ridiculously clinical against Ruud, a two-time French Open finalist. It may go down as one of the top performances of his career.`\
-https://nytimes.com/athletic/6359909/2025/05/15/jannik-sinner-casper-ruud/
 
