@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6357623/2025/05/14/dodgers-dalton-rushing-catcher/
 https://nytimes.com/athletic/6357597/2025/05/14/yankees-paul-goldschmidt-matt-carpenter-advice/
 
 **2025 NFL schedule: Week-by-week matchups, TV broadcasts and times**\
-`The full NFL regular-season schedule was released on Wednesday, so it is time to mark the best matchups on your calendar.`\
+`The full NFL regular-season schedule was released Wednesday, so it is time to mark the best matchups on your calendar.`\
 https://nytimes.com/athletic/6357256/2025/05/14/nfl-schedule-week-by-week-2025/
 
 **NBA playoffs: Celtics narrow series to 3-2 in 127-102 win over Knicks**\
