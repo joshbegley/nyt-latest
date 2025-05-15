@@ -1,3 +1,19 @@
+**The Home Insurance Crisis Is Getting Even More Expensive**\
+`In California, a home insurance rate increase by State Farm is yet another sign of growing crisis driven by climate change.`\
+https://nytimes.com/2025/05/15/climate/climate-change-home-insurance-costs.html
+
+**How Trump’s Order on Birthright Citizenship Fits in His Immigration Efforts**\
+`His executive order on citizenship drew intense scrutiny, but it has not yet taken effect. Many of his other policies have immediately upended the system.`\
+https://nytimes.com/2025/05/15/us/politics/how-trumps-order-on-birthright-citizenship-fits-in-his-immigration-efforts.html
+
+**Ukrainian Is Arrested After Fires at U.K. Prime Minister’s Properties**\
+`One of the blazes took place outside the doorway of Prime Minister Keir Starmer’s family home in Kentish Town, in north London, which is currently being rented out.`\
+https://nytimes.com/2025/05/15/world/europe/britain-fires-keir-starmer-arson.html
+
+**Cristiano Ronaldo named world's highest paid athlete for third year running**\
+`Forbes magazine has published its annual report on the income of the world’s biggest athletes and the Portugal forward has come out on top`\
+https://nytimes.com/athletic/6359885/2025/05/15/cristiano-ronaldo-highest-paid-athlete-2025/
+
 **Until Saturday: CFB's Pete Rose moment?**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-until-saturday/
