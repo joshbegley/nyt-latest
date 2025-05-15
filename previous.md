@@ -1,3 +1,15 @@
+**Bologna arrived dreaming of a Coppa Italia 'night of miracles' - they departed worthy winners**\
+`Vincenzo Italiano's side had not won a major trophy in more than 50 years but they deserved to beat AC Milan in Wednesday's final`\
+https://nytimes.com/athletic/6357052/2025/05/15/bologna-coppa-italia-final-milan/
+
+**Tom Cruise Gives Cannes a Master Class in Star Power**\
+`Whether in “Mission: Impossible — The Final Reckoning” or on the red carpet, the 62-year-old actor ensured that all eyes were on him.`\
+https://nytimes.com/2025/05/15/movies/tom-cruise-mission-impossible-cannes.html
+
+**With fate of franchise in the balance, Luke Kornet's legacy game saved Celtics' season**\
+`Kornet had the game of his life in Game 5, saving the Celtics' season in the wake of Jayson Tatum's Achilles tear.`\
+https://nytimes.com/athletic/6358227/2025/05/15/celtics-win-knicks-luke-kornet-legacy-game/
+
 **Word of the Day: impolitic**\
 `This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/15/learning/word-of-the-day-impolitic.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/15/opinion/india-pakistan-nuclear-war.html
 **The Birthright Citizenship Case Could Split the Country in Two**\
 `The focus on a specific legal question has overshadowed the more crucial issues at stake.`\
 https://nytimes.com/2025/05/15/opinion/birthright-citizenship-scotus.html
-
-**Oilers advance to conference final with Game 5 OT win over Golden Knights**\
-`Kasperi Kapanen jammed in a rebound on the goal line to win it for the Oilers seven minutes into OT.`\
-https://nytimes.com/athletic/6350908/2025/05/15/oilers-golden-knights-nhl-playoffs-2025-game-5-takeaways/
-
-**Colton Gordon keeps Astros' six-man rotation afloat in major-league debut**\
-`Gordon filled the strike zone and never shied away from adversity, even with a total inability to miss bats.`\
-https://nytimes.com/athletic/6358094/2025/05/15/astros-colton-gordon-mlb-debut/
-
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html
 

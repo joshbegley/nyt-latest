@@ -1,3 +1,15 @@
+**Bologna arrived dreaming of a Coppa Italia 'night of miracles' - they departed worthy winners**\
+`Vincenzo Italiano's side had not won a major trophy in more than 50 years but they deserved to beat AC Milan in Wednesday's final`\
+https://nytimes.com/athletic/6357052/2025/05/15/bologna-coppa-italia-final-milan/
+
+**Tom Cruise Gives Cannes a Master Class in Star Power**\
+`Whether in “Mission: Impossible — The Final Reckoning” or on the red carpet, the 62-year-old actor ensured that all eyes were on him.`\
+https://nytimes.com/2025/05/15/movies/tom-cruise-mission-impossible-cannes.html
+
+**With fate of franchise in the balance, Luke Kornet's legacy game saved Celtics' season**\
+`Kornet had the game of his life in Game 5, saving the Celtics' season in the wake of Jayson Tatum's Achilles tear.`\
+https://nytimes.com/athletic/6358227/2025/05/15/celtics-win-knicks-luke-kornet-legacy-game/
+
 **Word of the Day: impolitic**\
 `This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/15/learning/word-of-the-day-impolitic.html
