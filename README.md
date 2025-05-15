@@ -1,9 +1,13 @@
+**The Athletic FC: 'Fear and terror' at Sevilla, Madrid close in on Huijsen, watching Ronaldo Jr play**\
+`Today in TAFC: Sevilla fans aggressively turn on the team, Real Madrid trigger Dean Huijsen's release clause, Inter Miami struggle again...`\
+https://nytimes.com/athletic/6358490/2025/05/15/sevilla-fan-revolt-huijsen-real-madrid-ronaldo-son/
+
 **Israeli Strikes Kill Dozens in Gaza, Health Ministry Says**\
 `Israel has threatened to escalate military campaign against Hamas, despite a U.S.-backed push to agree a new cease-fire.`\
 https://nytimes.com/2025/05/15/world/middleeast/israel-strikes-gaza.html
 
 **Ukraine’s President Lands in Turkey for Peace Talks with Russia**\
-`President Volodymyr Zelensky of Ukraine said he did not know the level of representation of the Russian delegation, as he landed in Ankara for peace talks with Russia on Thursday.`\
+`As he arrived in Ankara on Thursday, President Volodymyr Zelensky of Ukraine said Russia’s delegation “appears to be more theatrical than substantive.”`\
 https://nytimes.com/video/world/middleeast/100000010171166/zelensky-turkey-peace-talks-russia.html
 
 **Oilers' latest playoff win formula? A defensive masterclass and an unsung hero**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html
 **A ‘Big, Beautiful Bill’**\
 `We look at Trump’s agenda in Congress.`\
 https://nytimes.com/2025/05/15/briefing/a-big-beautiful-bill.html
-
-**Anthony Edwards' belief powers the Timberwolves back to Western Conference finals**\
-`Edwards predicted a year ago that Minnesota would make it back to the West finals. The Wolves dispatched the Warriors to prove him right. `\
-https://nytimes.com/athletic/6356737/2025/05/15/anthony-edwards-timberwolves-playoffs-game-5-warriors-west-finals/
 
