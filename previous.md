@@ -1,3 +1,23 @@
+**Canada’s Wildfire Season Is Off to a Deadly Start**\
+`Two people were trapped and killed by a wildfire in a small town in Manitoba, where the provincial capital, Winnipeg, is wilting under a record-breaking heat wave.`\
+https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.html
+
+**Malcolm Potts, Irreverent Evangelist for Contraception, Dies at 90**\
+`He helped develop the device most often used for surgical abortions. He also spent more than half a century promoting women’s reproductive health in developing countries.`\
+https://nytimes.com/2025/05/15/science/malcolm-potts-dead.html
+
+**Picnic Season Cries Out for These Easy Chicken Kebabs**\
+`Whether you enjoy these inside or outside, be sure to do so with a smattering of simple, summery salads.`\
+https://nytimes.com/2025/05/15/dining/easy-chicken-kebabs.html
+
+**What Teenagers Are Saying About Hugging Their Parents**\
+`Students react to an Opinion essay about the importance of physical affection in families.`\
+https://nytimes.com/2025/05/15/learning/what-teenagers-are-saying-about-hugging-their-parents.html
+
+**Caleb Williams wanted to avoid getting drafted by Bears, new book says**\
+`"Chicago is the place quarterbacks go to die," Williams' father, Carl, said in the book.`\
+https://nytimes.com/athletic/6359783/2025/05/15/caleb-williams-carl-dad-book-news-espn/
+
 **New N.I.H. Policy Threatens Global Science Collaborations**\
 `Restrictions on payments to foreign partners may jeopardize studies of cancer and other conditions that would benefit Americans.`\
 https://nytimes.com/2025/05/15/health/nih-international-research.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/library-of-congress-trump.html
 **Rubio Meets Syrian Foreign Minister, in Another Sign of Warming Ties**\
 `The meeting came days after President Trump announced he would end sanctions against Syria and met with the country’s president, a former jihadist.`\
 https://nytimes.com/2025/05/15/world/middleeast/syria-marco-rubio-trump-sanctions.html
-
-**Trump Administration Escalates Harvard Feud With New Justice Dept. Investigation**\
-`The Trump administration is targeting the Ivy League university under a law typically used to go after government contractors for swindling.`\
-https://nytimes.com/2025/05/15/us/politics/harvard-justice-dept-investigation.html
-
-**Fantasy baseball bullpen report featuring slumping closers Jeff Hoffman, Raisel Iglesias**\
-`Greg Jewett keeps you updated on notable MLB bullpen developments for fantasy baseball, including a breakdown of Jeff Hoffman's struggles.`\
-https://nytimes.com/athletic/6359669/2025/05/15/fantasy-baseball-bullpen-report-closers-hoffman-iglesias/
-
-**Protesters outside the court denounce attacks on birthright citizenship.**\
-`Immigrant advocacy groups rallied in front of the Supreme Court as justices heard arguments in a case that could fracture birthright citizenship.`\
-https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/protesters-outside-the-court-denounce-attacks-on-birthright-citizenship
-
-**Neymar in talks over Santos contract extension**\
-`Neymar returned to Santos in January, 12 years after leaving the Brazilian club for Barcelona in a deal worth €90million.`\
-https://nytimes.com/athletic/6301355/2025/05/15/neymar-santos-contract-extension/
-
-**4 Takeaways From the Citizenship Case (That Was Really About Injunctions)**\
-`The question before the justices was whether a single district court judge has the power to block a policy across the country.`\
-https://nytimes.com/2025/05/15/us/politics/supreme-court-birthright-citizenship-takeaways.html
 

@@ -1,3 +1,23 @@
+**Canada’s Wildfire Season Is Off to a Deadly Start**\
+`Two people were trapped and killed by a wildfire in a small town in Manitoba, where the provincial capital, Winnipeg, is wilting under a record-breaking heat wave.`\
+https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.html
+
+**Malcolm Potts, Irreverent Evangelist for Contraception, Dies at 90**\
+`He helped develop the device most often used for surgical abortions. He also spent more than half a century promoting women’s reproductive health in developing countries.`\
+https://nytimes.com/2025/05/15/science/malcolm-potts-dead.html
+
+**Picnic Season Cries Out for These Easy Chicken Kebabs**\
+`Whether you enjoy these inside or outside, be sure to do so with a smattering of simple, summery salads.`\
+https://nytimes.com/2025/05/15/dining/easy-chicken-kebabs.html
+
+**What Teenagers Are Saying About Hugging Their Parents**\
+`Students react to an Opinion essay about the importance of physical affection in families.`\
+https://nytimes.com/2025/05/15/learning/what-teenagers-are-saying-about-hugging-their-parents.html
+
+**Caleb Williams wanted to avoid getting drafted by Bears, new book says**\
+`"Chicago is the place quarterbacks go to die," Williams' father, Carl, said in the book.`\
+https://nytimes.com/athletic/6359783/2025/05/15/caleb-williams-carl-dad-book-news-espn/
+
 **New N.I.H. Policy Threatens Global Science Collaborations**\
 `Restrictions on payments to foreign partners may jeopardize studies of cancer and other conditions that would benefit Americans.`\
 https://nytimes.com/2025/05/15/health/nih-international-research.html
