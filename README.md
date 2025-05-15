@@ -1,3 +1,11 @@
+**Raya, Nwaneri get new numbers as Arsenal launch 2025-26 kit**\
+`Arsenal will debut the new kit design in their final home game of the season against Newcastle United on Sunday.`\
+https://nytimes.com/athletic/6358476/2025/05/15/arsenal-kit-raya-nwaneri-numbers/
+
+**Maresca: Jackson has maturity to be Chelsea's No 9**\
+`The 23-year-old was sent off against Newcastle and will miss Chelsea's final two games, leaving Maresca without a recognised striker.`\
+https://nytimes.com/athletic/6358489/2025/05/15/nicolas-jackson-chelsea-maresca/
+
 **The New York Times International Edition in Print for Friday, May 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/15/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/opinion/pete-rose-hall-of-fame-baseball.html
 **WeightWatchers Got One Thing Very Right**\
 `Will the cure for the obesity epidemic fuel the loneliness epidemic?`\
 https://nytimes.com/2025/05/15/opinion/weight-watchers-bankrupt-dieting.html
-
-**How Republicans Can Pass Trump’s Fiscal Agenda With No Democratic Support**\
-`See the steps of budget reconciliation, the process that Republican leaders are using to fast-track their legislation through Congress.`\
-https://nytimes.com/interactive/2025/05/15/us/politics/trump-budget-reconciliation-process.html
-
-**The Forecast for 2027? Total A.I. Domination.**\
-`Losing your job may be the best-case scenario.`\
-https://nytimes.com/2025/05/15/opinion/artifical-intelligence-2027.html
 
