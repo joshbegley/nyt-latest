@@ -1,8 +1,12 @@
+**Charles Strouse, Composer of ‘Annie’ and ‘Bye Bye Birdie,’ Dies at 96**\
+`He wrote some of the most enduring musical theater numbers of his era and earned three Tony Awards, a Grammy and an Emmy.`\
+https://nytimes.com/2025/05/15/theater/charles-strouse-dead.html
+
 **Military Helicopter Crew Took Elk Antlers From Montana Ranch, Officials Say**\
 `Three members of the Montana National Guard have been charged with trespassing in connection with the incident on May 4.`\
 https://nytimes.com/2025/05/15/us/montana-national-guard-helicopter-elk-antlers.html
 
-**15 injured after car hits fans outside Espanyol stadium during Barcelona match**\
+**15 injured after car hits fans outside Espanyol stadium before Barcelona match**\
 `Catalan police confirmed a woman has been arrested in relation to the incident.`\
 https://nytimes.com/athletic/6360227/2025/05/15/espanyol-barcelona-car-incident/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/texas-mom-arrested-school-shooting.html
 **Scottie Scheffler, Xander Schauffele and the fight for preferred lies**\
 `"It's frustrating to hit the ball in the middle of the fairway and get mud on it and have no idea where it's going to go."`\
 https://nytimes.com/athletic/6359352/2025/05/15/pga-championship-2025-scheffler-schauffele-rules/
-
-**‘Rotten Legacy’ Is a Soapy Spanish Succession Story**\
-`The premise of this foreign Netflix drama makes it sound a lot like “Succession,” but it isn’t trying to be. It’s brighter and pulpier than that.`\
-https://nytimes.com/2025/05/15/arts/television/rotten-legacy-netflix.html
 
