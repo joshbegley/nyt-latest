@@ -1,3 +1,15 @@
+**U.S.-Backed Group Created to Distribute Aid in Gaza Says It’s Ready to Go**\
+`The Gaza Humanitarian Foundation seeks to create an alternative aid system, but other groups have raised doubts about the feasibility of its plan.`\
+https://nytimes.com/2025/05/14/world/middleeast/gaza-aid-israel.html
+
+**After another NL West series loss, Giants faced with tough questions**\
+`The Giants' series loss raised two tough questions: Can they overcome the D-Backs or Padres? And should they take Hicks out of the rotation?`\
+https://nytimes.com/athletic/6357026/2025/05/14/sf-giants-nl-west-series-loss/
+
+**Paul Goldschmidt sought Yankees fan favorite's advice. It paid off**\
+`Former Yankee Matt Carpenter had tips for how Goldschmidt could stay ready while on the bench.`\
+https://nytimes.com/athletic/6357597/2025/05/14/yankees-paul-goldschmidt-matt-carpenter-advice/
+
 **Top prospect Dalton Rushing gets call from Dodgers, replacing a clubhouse 'pillar'**\
 `The Dodgers summoned the No. 16 prospect in baseball to catch twice per week. The rookie replaces a beloved veteran.`\
 https://nytimes.com/athletic/6357623/2025/05/14/dodgers-dalton-rushing-catcher/
