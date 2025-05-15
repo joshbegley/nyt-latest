@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, May 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/15/todays-new-york-times
+
+**Nuclear War Avoided, Again. But Next Time?**\
+`The fast-moving conflict between India and Pakistan last week demonstrated the inherent dangers of the modern nuclear age.`\
+https://nytimes.com/2025/05/15/opinion/india-pakistan-nuclear-war.html
+
+**The Birthright Citizenship Case Could Split the Country in Two**\
+`The focus on a specific legal question has overshadowed the more crucial issues at stake.`\
+https://nytimes.com/2025/05/15/opinion/birthright-citizenship-scotus.html
+
 **Oilers advance to conference final with Game 5 OT win over Golden Knights**\
 `Kasperi Kapanen jammed in a rebound on the goal line to win it for the Oilers seven minutes into OT.`\
 https://nytimes.com/athletic/6350908/2025/05/15/oilers-golden-knights-nhl-playoffs-2025-game-5-takeaways/
