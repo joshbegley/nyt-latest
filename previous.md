@@ -2,7 +2,7 @@
 `Readers respond to a column by David Brooks. Also: President Trump’s contempt for ethical boundaries.`\
 https://nytimes.com/2025/05/15/opinion/ancient-romans-pagans-trump.html
 
-**Supreme Court Reject’s ‘Moment of Threat’ Limit in Excessive Force Suits**\
+**Supreme Court Rejects ‘Moment of Threat’ Limit in Excessive Force Suits**\
 `Lower courts had been divided over whether judges must limit their scrutiny of challenges to police shootings to the seconds preceding them.`\
 https://nytimes.com/2025/05/15/us/politics/supreme-court-excessive-force.html
 
