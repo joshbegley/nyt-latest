@@ -1,3 +1,11 @@
+**Springsteen, in England, Blasts Trump Administration as ‘Treasonous’**\
+`His remarks, delivered to an audience abroad, stood out at a time when other superstar artists have seemed to mute their criticism of the president.`\
+https://nytimes.com/2025/05/15/arts/music/bruce-springsteen-trump.html
+
+**Federal Officials May Limit Recommendations for Covid Vaccine**\
+`With new testing requirements, it’s not even clear how new Covid or flu shots can be made available this fall.`\
+https://nytimes.com/2025/05/15/health/covid-vaccine-recommendations.html
+
 **The five moments that defined Barcelona's La Liga-winning season**\
 `It has been a brilliant season for Barca. Here, we chart the ups and downs of their title triumph...`\
 https://nytimes.com/athletic/6356086/2025/05/15/barcelona-la-liga-title-win-five-moments/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/us/montana-national-guard-helicopter-elk-antlers.
 **15 injured after car hits fans outside Espanyol stadium before Barcelona match**\
 `Catalan police confirmed a woman has been arrested in relation to the incident.`\
 https://nytimes.com/athletic/6360227/2025/05/15/espanyol-barcelona-car-incident/
-
-**Clooney Brought Edward R. Murrow to Broadway. Next Stop: CNN.**\
-`In June, the news organization is planning a live broadcast of one of the final Broadway performances of “Good Night, and Good Luck.”`\
-https://nytimes.com/2025/05/15/theater/george-clooney-good-night-good-luck-cnn.html
-
-**‘We Are the Most Rejected Generation’**\
-`There’s a cost to making it so hard to be a young person right now.`\
-https://nytimes.com/2025/05/15/opinion/rejection-college-youth.html
 
