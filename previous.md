@@ -1,3 +1,15 @@
+**The five moments that defined Barcelona's La Liga-winning season**\
+`It has been a brilliant season for Barca. Here, we chart the ups and downs of their title triumph...`\
+https://nytimes.com/athletic/6356086/2025/05/15/barcelona-la-liga-title-win-five-moments/
+
+**‘Hurry Up Tomorrow’ Review: The Shadow Cast by Blinding Lights**\
+`A filmic companion to the Weeknd’s latest album, this meta psychological thriller is all style and no substance.`\
+https://nytimes.com/2025/05/15/movies/hurry-up-tomorrow-review.html
+
+**Premier League set to introduce rule allowing only captains to speak to referees**\
+`The rule was introduced by UEFA for the 2024 European Championship`\
+https://nytimes.com/athletic/6360330/2025/05/15/premier-league-referee-captain-rule/
+
 **National Guard Tapped for Migrant Crackdown**\
 `Plus, the first personalized gene-editing treatment`\
 https://nytimes.com/2025/05/15/briefing/immigration-gene-editing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/15/theater/george-clooney-good-night-good-luck-cnn.h
 **‘We Are the Most Rejected Generation’**\
 `There’s a cost to making it so hard to be a young person right now.`\
 https://nytimes.com/2025/05/15/opinion/rejection-college-youth.html
-
-**New Guidelines Call on Doctors to Take IUD Insertion Pain Seriously**\
-`Recommendations from the American College of Obstetricians and Gynecologists outline a range of pain management options for routine procedures.`\
-https://nytimes.com/2025/05/15/well/live/guidelines-iud-insertion-pain-management.html
-
-**Thursday Briefing: Troubled Ukraine Peace Talks**\
-`Plus, peace and love at the Eurovision.`\
-https://nytimes.com/2025/05/15/briefing/russia-ukraine-trump-saudi-arabia-emirates-israel-rafa-gaza.html
-
-**Outsourcer in Chief: Is Trump Trading Away America’s Tech Future?**\
-`Big deals to sell chips to the U.A.E. and Saudi Arabia have divided the U.S. government over whether they could be remembered for shipping cutting-edge A.I. overseas.`\
-https://nytimes.com/2025/05/15/business/economy/trump-chips-ai-uae.html
 

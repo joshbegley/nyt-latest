@@ -1,3 +1,15 @@
+**The five moments that defined Barcelona's La Liga-winning season**\
+`It has been a brilliant season for Barca. Here, we chart the ups and downs of their title triumph...`\
+https://nytimes.com/athletic/6356086/2025/05/15/barcelona-la-liga-title-win-five-moments/
+
+**‘Hurry Up Tomorrow’ Review: The Shadow Cast by Blinding Lights**\
+`A filmic companion to the Weeknd’s latest album, this meta psychological thriller is all style and no substance.`\
+https://nytimes.com/2025/05/15/movies/hurry-up-tomorrow-review.html
+
+**Premier League set to introduce rule allowing only captains to speak to referees**\
+`The rule was introduced by UEFA for the 2024 European Championship`\
+https://nytimes.com/athletic/6360330/2025/05/15/premier-league-referee-captain-rule/
+
 **National Guard Tapped for Migrant Crackdown**\
 `Plus, the first personalized gene-editing treatment`\
 https://nytimes.com/2025/05/15/briefing/immigration-gene-editing.html
