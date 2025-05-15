@@ -1,3 +1,11 @@
+**The Windup: Marvel at these sweet HR robberies**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6358128/2025/05/15/julio-rodriguez-catch-home-run-the-windup/
+
+**Sean Combs is being held in a Brooklyn jail during the trial.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/jail-brooklyn
+
 **Live Updates: Cassie to Face Sean Combs’s Lawyers at Sex-Trafficking Trial**\
 `Casandra Ventura, who has testified that Mr. Combs was physically abusive and coerced her into marathon sex sessions, will be cross-examined by his defense team.`\
 https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates
