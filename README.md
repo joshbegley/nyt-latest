@@ -1,3 +1,7 @@
+**Midwest Braces for Severe Storms With Tornadoes Possible**\
+`Thunderstorm activity could bring a dangerous mix of weather hazards, including large hail, intense wind gusts and strong tornadoes, Thursday into Friday.`\
+https://nytimes.com/2025/05/15/weather/midwest-tornadoes-storms.html
+
 **WTA chairman Steve Simon announces his retirement**\
 `The 70-year-old took over as leader of the women’s professional tennis tour in 2015, and led a boycott against China over Peng Shuai in 2021`\
 https://nytimes.com/athletic/6359520/2025/05/15/steve-simon-wta-retire/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/15/opinion/laura-loomer-trump.html
 **How 4 Business Owners Are Handling Tariffs on China**\
 `An easing in President Trump’s tariffs on Chinese goods gave businesses some breathing room. Long-term planning, though, is still on pause.`\
 https://nytimes.com/2025/05/15/business/tariffs-small-business.html
-
-**Alba signs Miami contract extension through 2027 season**\
-`Alba joined Miami — and former Barcelona team-mates Lionel Messi and Sergio Busquets — in 2023.`\
-https://nytimes.com/athletic/6359328/2025/05/15/inter-miami-jordi-alba-contract-extension/
 

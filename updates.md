@@ -1,3 +1,16 @@
+**WTA chairman Steve Simon announces his retirement**\
+`The 70-year-old took over as leader of the women’s professional tennis tour in 2015, and led a boycott against China over Peng Shuai in 2021`\
+https://nytimes.com/athletic/6359520/2025/05/15/steve-simon-wta-retire/
+
+**Andrew Cassell, Daring Sailor Who Won Paralympic Gold, Dies at 82**\
+`He survived the deadliest race in modern yachting history, won the first Paralympic sailing contest and founded a nonprofit for sailors with disabilities.`\
+https://nytimes.com/2025/05/15/sports/sailing/andrew-cassell-dead.html
+
+**Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
+`NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
+`\
+https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston-celtics/
+
 **Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
 `NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
 `\
