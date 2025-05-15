@@ -1,3 +1,15 @@
+**Chargers request approval to sell 8 percent stake to Arctos: Sources**\
+`If the sale is approved, Chargers owner Dean Spanos and his family would retain a controlling stake in the club at approximately 61 percent.`\
+https://nytimes.com/athletic/6359786/2025/05/15/chargers-sale-request-minority-stake-nfl/
+
+**Carlos Correa, Byron Buxton exit Twins-Orioles game after outfield collision**\
+`The pair collided while trying to track down Cedric Mullins’ shallow fly ball to start the third inning. `\
+https://nytimes.com/athletic/6359794/2025/05/15/carlos-correa-byron-buxton-collision-twins-orioles/
+
+**Palme d’Or Projections: Has Cannes Found Its Early Front-runner?**\
+`“Sound of Falling,” which tracks four German girls over the course of a century, drew early raves. But it might not go the distance.`\
+https://nytimes.com/2025/05/15/movies/cannes-palme-dor-front-runner.html
+
 **Florida Just Banned Fluoride From Public Water. Here’s What to Know.**\
 `Medical experts have warned that ending fluoridation will have negative consequences for oral health.`\
 https://nytimes.com/2025/05/15/us/politics/florida-fluoride-water-ban.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/fbi-public-corruption-squad-trump.htm
 **How to Master the Art of People-Watching**\
 `A winning essay by Aziz AbdullaZoda, age 17.`\
 https://nytimes.com/2025/05/15/learning/how-to-master-the-art-of-people-watching.html
-
-**‘Doctor Odyssey’ Is a Dream Boat Doctor fantasy**\
-`The sexy ABC series, the first season of which ends on Thursday, is only sort of a doctor show. It is better understood as a fantasy.`\
-https://nytimes.com/2025/05/15/arts/television/doctor-odyssey-finale.html
-
-**How to Be a Stargazer**\
-`A winning essay by Aditya Neil Banerjee, age 16.`\
-https://nytimes.com/2025/05/15/learning/how-to-be-a-stargazer.html
-
-**How to Survive as a Manchester United Fan**\
-`A winning essay by Abdur Rahman, age 17.`\
-https://nytimes.com/2025/05/15/learning/how-to-survive-as-a-manchester-united-fan.html
 

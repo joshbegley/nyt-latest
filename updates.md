@@ -1,3 +1,7 @@
+**Florida Just Banned Fluoride From Public Water. Here’s What to Know.**\
+`Medical experts have warned that ending fluoridation will have negative consequences for oral health.`\
+https://nytimes.com/2025/05/15/us/politics/florida-fluoride-water-ban.html
+
 **Apple Used China to Make a Profit. What China Got in Return Is Scarier.**\
 `In “Apple in China,” Patrick McGee argues that by training an army of manufacturers in a “ruthless authoritarian state,” the company has created an existential vulnerability for the entire world.`\
 https://nytimes.com/2025/05/15/books/review/apple-in-china-patrick-mcgee.html
