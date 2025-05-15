@@ -1,3 +1,11 @@
+**Ben & Jerry’s Founder Arrested at Senate Hearing After Protesting War in Gaza**\
+`Ben Cohen, a co-founder of the ice cream brand, was among a group that interrupted a Senate hearing on Wednesday, protesting Congress’s funding of Israel’s military.`\
+https://nytimes.com/2025/05/15/us/ben-jerrys-ben-cohen-arrested-rfk-senate-gaza.html
+
+**Kyle Larson on his love for NASCAR (really) and his Max Verstappen comment: 12 Questions**\
+`Kyle Larson talks about what people get wrong about his feelings toward NASCAR, his obsession with ChatGPT and more in a new 12 Questions.`\
+https://nytimes.com/athletic/6356695/2025/05/15/kyle-larson-nascar-love-max-verstappen-12-questions/
+
 **What should the Red Wings do with the No. 13 draft pick? Mailbag, Part 2**\
 `Should the Red Wings keep or trade the 13th pick in the draft? What does Simon Edvinsson's next contract look like?`\
 https://nytimes.com/athletic/6348112/2025/05/15/red-wings-nhl-draft-victor-eklund/
