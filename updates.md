@@ -1,3 +1,7 @@
+**The Pulse: The downfall of a $6.5 billion franchise**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6356475/2025/05/15/manchester-united-glazers-the-pulse/
+
 **Madrid activate Huijsen release clause, in process of finalising deal**\
 `Madrid want Huijsen to be part of their squad for the Club World Cup, which begins in the United States next month.`\
 https://nytimes.com/athletic/6358404/2025/05/15/dean-huijsen-madrid-bournemouth-transfer/
