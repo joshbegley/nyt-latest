@@ -1,3 +1,11 @@
+**Alarmed by Trump, Kennedy Center Workers Push to Unionize**\
+`Employees say they are concerned by the Trump administration’s efforts to “dismantle mission-essential departments and reshape our arts programming.”`\
+https://nytimes.com/2025/05/15/arts/music/kennedy-center-employees-unionizing.html
+
+**Bondi Sold Millions in Trump Media Stock the Day Trump Imposed Vast Tariffs**\
+`The sale was expected, and the disclosure form did not include details of the transaction, including specific timing or the number of shares Ms. Bondi traded.`\
+https://nytimes.com/2025/05/15/us/politics/bondi-trump-media-stock.html
+
 **The Home Insurance Crisis Is Getting Even More Expensive**\
 `In California, a home insurance rate increase by State Farm is yet another sign of growing crisis driven by climate change.`\
 https://nytimes.com/2025/05/15/climate/climate-change-home-insurance-costs.html

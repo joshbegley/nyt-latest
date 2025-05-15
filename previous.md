@@ -1,3 +1,11 @@
+**Alarmed by Trump, Kennedy Center Workers Push to Unionize**\
+`Employees say they are concerned by the Trump administration’s efforts to “dismantle mission-essential departments and reshape our arts programming.”`\
+https://nytimes.com/2025/05/15/arts/music/kennedy-center-employees-unionizing.html
+
+**Bondi Sold Millions in Trump Media Stock the Day Trump Imposed Vast Tariffs**\
+`The sale was expected, and the disclosure form did not include details of the transaction, including specific timing or the number of shares Ms. Bondi traded.`\
+https://nytimes.com/2025/05/15/us/politics/bondi-trump-media-stock.html
+
 **The Home Insurance Crisis Is Getting Even More Expensive**\
 `In California, a home insurance rate increase by State Farm is yet another sign of growing crisis driven by climate change.`\
 https://nytimes.com/2025/05/15/climate/climate-change-home-insurance-costs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.htm
 **Malcolm Potts, Irreverent Evangelist for Contraception, Dies at 90**\
 `He helped develop the device most often used for surgical abortions. He also spent more than half a century promoting women’s reproductive health in developing countries.`\
 https://nytimes.com/2025/05/15/science/malcolm-potts-dead.html
-
-**Picnic Season Cries Out for These Easy Chicken Kebabs**\
-`Whether you enjoy these inside or outside, be sure to do so with a smattering of simple, summery salads.`\
-https://nytimes.com/2025/05/15/dining/easy-chicken-kebabs.html
-
-**What Teenagers Are Saying About Hugging Their Parents**\
-`Students react to an Opinion essay about the importance of physical affection in families.`\
-https://nytimes.com/2025/05/15/learning/what-teenagers-are-saying-about-hugging-their-parents.html
 
