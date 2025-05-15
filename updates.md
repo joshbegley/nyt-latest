@@ -1,3 +1,15 @@
+**From the first-base box to circling the bases: Auburn's Andrew Dutton delivers a movie moment**\
+`Dutton, a graduate transfer from Birmingham-Southern, had spent all season as the first-base coach before homering in his first at-bat.`\
+https://nytimes.com/athletic/6357286/2025/05/14/andrew-dutton-auburn-home-run/
+
+**Cassie Ventura Says Sean Combs Used Sex Videos as Blackmail Tools**\
+`Ms. Ventura, Mr. Combs’s ex-girlfriend, said he threatened to use tapes of their sexual encounters, known as “freak-offs,” to control her behavior.`\
+https://nytimes.com/2025/05/14/arts/music/diddy-trial-cassie-casandra-ventura-sex-videos.html
+
+**Drug Overdose Deaths Plummeted in 2024, C.D.C. Reports**\
+`The progress comes as the Trump administration is proposing to cut funding for many programs believed to have contributed to the improvement.`\
+https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
+
 **Drug Overdose Deaths Plummeted in 2024, C.D.C. Reports**\
 `The progress comes as the Trump administration is proposing to cut funding for many programs believed to be responsible for the improvement.`\
 https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
