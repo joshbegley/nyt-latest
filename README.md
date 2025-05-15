@@ -1,3 +1,11 @@
+**‘Fraught With Abuse’: Lawmakers Denounce Brutality in N.Y. Prisons**\
+`During a daylong hearing in Albany, state lawmakers heard from family members of men who died in New York State prisons in recent years.`\
+https://nytimes.com/2025/05/14/nyregion/new-york-prisons-lawmakers.html
+
+**In Menendez Brothers’ Case, a Reckoning With the 1990s**\
+`As a court reviewed the Menendez murder case, the culture and politics of the 1990s were scrutinized almost as much as the horrific crime.`\
+https://nytimes.com/2025/05/14/us/menendez-brothers-culture-politics.html
+
 **From the first-base box to circling the bases: Auburn's Andrew Dutton delivers a movie moment**\
 `Dutton, a graduate transfer from Birmingham-Southern, had spent all season as the first-base coach before homering in his first at-bat.`\
 https://nytimes.com/athletic/6357286/2025/05/14/andrew-dutton-auburn-home-run/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.
 **TikTok Influencer in Mexico Is Shot Dead While Livestreaming**\
 `The death of Valeria Márquez, 23, was the latest reminder of the rise in violence against women in the country.`\
 https://nytimes.com/2025/05/14/world/americas/valeria-marquez-tiktok-influencer-live-murder-mexico.html
-
-**Why Does the Trump Administration Want a New Air Force One?**\
-`The two 747-200s that serve as the American president’s command center in the sky are more than 30 years are old and were meant to be phased out of service years ago.`\
-https://nytimes.com/2025/05/14/us/politics/trump-qatar-air-force-one.html
-
-**101 Degrees in May? Even for Texas, This Is Hot.**\
-`Forecasters expect multiple records to be broken over the next week as an early heat wave settles over the region.`\
-https://nytimes.com/2025/05/14/weather/texas-heat-record-may.html
 
