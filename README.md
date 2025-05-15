@@ -1,40 +1,40 @@
-**Raya, Nwaneri get new numbers as Arsenal launch 2025-26 kit**\
-`Arsenal will debut the new kit design in their final home game of the season against Newcastle United on Sunday.`\
-https://nytimes.com/athletic/6358476/2025/05/15/arsenal-kit-raya-nwaneri-numbers/
+**Madrid activate Huijsen release clause, in process of finalising deal**\
+`Madrid want Huijsen to be part of their squad for the Club World Cup, which begins in the United States next month.`\
+https://nytimes.com/athletic/6358404/2025/05/15/dean-huijsen-madrid-bournemouth-transfer/
 
-**Maresca: Jackson has maturity to be Chelsea's No 9**\
-`The 23-year-old was sent off against Newcastle and will miss Chelsea's final two games, leaving Maresca without a recognised striker.`\
-https://nytimes.com/athletic/6358489/2025/05/15/nicolas-jackson-chelsea-maresca/
+**The inside story of TV networks’ 2025 NFL season scheduling: Flexing star QBs and huge ratings**\
+`Television executives talk to The Athletic's Richard Deitsch, offering insights on each network's strategies and outlook in 2025.`\
+https://nytimes.com/athletic/6349842/2025/05/15/nfl-2025-tv-schedule-fox-cbs-nbc-espn-amazon-netflix-peacock-youtube/
 
-**The New York Times International Edition in Print for Friday, May 16, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/15/todays-new-york-times-international-edition
+**A New Test of Federal Judges’ Power, and Overdose Deaths Plummet**\
+`Plus, the campy singing contest the whole world watches.`\
+https://nytimes.com/2025/05/15/podcasts/the-headlines/scotus-birthright-overdose-deaths.html
 
-**Some See Depardieu Verdict as Turning Point for #MeToo in France**\
-`French courts may finally be taking years of complaints about sexual violence seriously, advocates and experts say.`\
-https://nytimes.com/2025/05/15/gerard-depardieu-guilty-verdict-metoo-france.html
+**Scottie Scheffler may still be the man to beat**\
+`Rory McIlroy is the man of the moment, Bryson DeChambeau is thriving, but Scheffler arrives at the PGA Championship as the man in black.`\
+https://nytimes.com/athletic/6355790/2025/05/15/scottie-scheffler-improving-form-quail-hollow/
 
-**Trump to Visit Biggest U.S. Military Facility in Middle East**\
-`Qatar’s Al Udeid Air Base is a key hub for U.S. air operations across a vast region, from Northeast Africa to Central and South Asia.`\
-https://nytimes.com/2025/05/15/us/politics/trump-qatar-us-military-base.html
+**LeBrun: This year's Panthers might be the most dangerous version yet**\
+`Much ink will be spilled about the Leafs' performance, but don't discount the defending Stanley Cup champions.`\
+https://nytimes.com/athletic/6357954/2025/05/15/florida-panthers-nhl-playoffs-leafs-game-5/
 
-**Trump’s Promise to Lift Sanctions on Syria Gives Business Owners Hope**\
-`Since the overthrow of the dictator Bashar al-Assad, business owners have been waiting for Washington to ease sanctions and pave the way for an economic renewal.`\
-https://nytimes.com/2025/05/15/world/middleeast/syria-economy-trump-sanctions.html
+**Here's a WNBA tip: Put every Caitlin Clark game on national television**\
+`The Fever are on national television in 41 of their 44 regular-season games. Richard Deitsch says to make it all of them.`\
+https://nytimes.com/athletic/6346392/2025/05/15/caitlin-clark-tv-ratings-games-indiana-fever/
 
-**Fine Jewelry Inspired by Centuries-Old Paintings at the Met**\
-`Plus: a new cliff-top hotel on a Greek island, an exhibition of Yayoi Kusama and Atsuko Tanaka’s art in New York and more recommendations from T Magazine.`\
-https://nytimes.com/2025/05/15/t-magazine/met-art-jewelry.html
+**How Top 25 teams are drawing international rising stars to college hoops**\
+`International prospects from some of the top professional leagues in the world are about to become household names in college basketball.`\
+https://nytimes.com/athletic/6355989/2025/05/15/college-basketball-recruiting-european-nil-international-players/
 
-**On Florida’s Gulf Coast, They Sought Their Starter Home for $500,000**\
-`A young couple planned their wedding in Guatemala and their first house purchase in Sarasota at the same time — a strategy they ‘one hundred percent do not recommend.’`\
-https://nytimes.com/interactive/2025/05/15/realestate/sarasota-florida-gulf-coast-homes-sale.html
+**NBA's Nance Jr. on his Leeds United ownership: 'Tallest Leeds fan in the world'**\
+`What's life like as a high-profile minority investor? One NBA player describes the joy of his experience playing a part for Leeds United.`\
+https://nytimes.com/athletic/6354530/2025/05/15/larry-nance-leeds-united-owner-nba/
 
-**Never Bet Against Pete Rose**\
-`His removal from baseball’s ineligible list will allow him to enter the Hall of Fame.`\
-https://nytimes.com/2025/05/15/opinion/pete-rose-hall-of-fame-baseball.html
+**All-WNBA preseason teams: A'ja Wilson, Napheesa Collier, Caitlin Clark and more**\
+`The Athletic's experts cast their votes for our preseason first and second teams. `\
+https://nytimes.com/athletic/6356664/2025/05/15/all-wnba-preseason-teams-caitlin-clark/
 
-**WeightWatchers Got One Thing Very Right**\
-`Will the cure for the obesity epidemic fuel the loneliness epidemic?`\
-https://nytimes.com/2025/05/15/opinion/weight-watchers-bankrupt-dieting.html
+**David Adelman grew up in a coaching family. Now leading the Nuggets, this is 'his time'**\
+`The son of former Blazers and Kings coach Rick Adelman, the Nuggets' interim head coach has spent a lifetime preparing for this moment.`\
+https://nytimes.com/athletic/6356800/2025/05/15/david-adelman-nuggets-father-nba-coach-blazers/
 
