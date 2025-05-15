@@ -1,3 +1,11 @@
+**Springsteen, in England, Blasts Trump Administration as ‘Treasonous’**\
+`His remarks, delivered to an audience abroad, stood out at a time when other superstar artists have seemed to mute their criticism of the president.`\
+https://nytimes.com/2025/05/15/arts/music/bruce-springsteen-trump.html
+
+**Federal Officials May Limit Recommendations for Covid Vaccine**\
+`With new testing requirements, it’s not even clear how new Covid or flu shots can be made available this fall.`\
+https://nytimes.com/2025/05/15/health/covid-vaccine-recommendations.html
+
 **The five moments that defined Barcelona's La Liga-winning season**\
 `It has been a brilliant season for Barca. Here, we chart the ups and downs of their title triumph...`\
 https://nytimes.com/athletic/6356086/2025/05/15/barcelona-la-liga-title-win-five-moments/
