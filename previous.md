@@ -1,40 +1,40 @@
-**How to watch the NFL in 2025: Full streaming, cable and TV guide**\
-`NBC will air the Super Bowl, while Fox has the NFC title game and CBS has the AFC title game.`\
-https://nytimes.com/athletic/6357235/2025/05/15/nfl-schedule-streaming-channel-watch-2025/
+**Walmart Warns About Ability to ‘Absorb’ Tariff Costs to Keep Prices Down**\
+`The retailer reported sales growth, especially in its e-commerce division, but also cautioned about economic uncertainty in the quarters ahead.`\
+https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html
 
-**Phillies notes: Aaron Nola's trends, Jordan Romano's resurgence, Jesús Luzardo's pitch mix**\
-`Nola has never been this bad in two-strike counts. Romano has recaptured some confidence. Luzardo is navigating lineups in different ways. `\
-https://nytimes.com/athletic/6357916/2025/05/15/phillies-aaron-nola-jesus-luzardo-jordan-romano/
+**A ‘Big, Beautiful Bill’**\
+`We look at Trump’s agenda in Congress.`\
+https://nytimes.com/2025/05/15/briefing/a-big-beautiful-bill.html
 
-**The Pulse: The downfall of a $6.5 billion franchise**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6356475/2025/05/15/manchester-united-glazers-the-pulse/
+**Anthony Edwards' belief powers the Timberwolves back to Western Conference finals**\
+`Edwards predicted a year ago that Minnesota would make it back to the West finals. The Wolves dispatched the Warriors to prove him right. `\
+https://nytimes.com/athletic/6356737/2025/05/15/anthony-edwards-timberwolves-playoffs-game-5-warriors-west-finals/
 
-**Madrid activate Huijsen release clause, in process of finalising deal**\
-`Madrid want Huijsen to be part of their squad for the Club World Cup, which begins in the United States next month.`\
-https://nytimes.com/athletic/6358404/2025/05/15/dean-huijsen-madrid-bournemouth-transfer/
+**North Carolina, Bill Belichick added 30-plus players from transfer portal: Are they any good?**\
+`North Carolina's transfer class includes only two players who were full-time starters at a Power 4 program in 2024. `\
+https://nytimes.com/athletic/6356229/2025/05/15/north-carolina-football-bill-belichick-transfer-portal/
 
-**The inside story of TV networks’ 2025 NFL season scheduling: Flexing star QBs and huge ratings**\
-`Television executives talk to The Athletic's Richard Deitsch, offering insights on each network's strategies and outlook in 2025.`\
-https://nytimes.com/athletic/6349842/2025/05/15/nfl-2025-tv-schedule-fox-cbs-nbc-espn-amazon-netflix-peacock-youtube/
+**‘How does he hit that pitch?’ The greatness of Vladimir Guerrero Jr., distilled into a single swing**\
+`Guerrero Jr. golfed the first curveball he saw against Boston earlier this month for a game-winning homer: “How does he hit that pitch?”`\
+https://nytimes.com/athletic/6357649/2025/05/15/blue-jays-vladimir-guerrero-jr-greatness/
 
-**A New Test of Federal Judges’ Power, and Overdose Deaths Plummet**\
-`Plus, the campy singing contest the whole world watches.`\
-https://nytimes.com/2025/05/15/podcasts/the-headlines/scotus-birthright-overdose-deaths.html
+**Rosenthal: How Pete Alonso's plate discipline improved after his swing was 'out of control' in 2024**\
+`Alonso worked on getting his hips in the correct position and it's paying dividends: "With that, I can see the ball better."`\
+https://nytimes.com/athletic/6357284/2025/05/15/mets-pete-alonso-plate-discipline-mechanics/
 
-**Scottie Scheffler may still be the man to beat**\
-`Rory McIlroy is the man of the moment, Bryson DeChambeau is thriving, but Scheffler arrives at the PGA Championship as the man in black.`\
-https://nytimes.com/athletic/6355790/2025/05/15/scottie-scheffler-improving-form-quail-hollow/
+**Michigan is on a QB recruiting roll. Its next blue-chipper has an intriguing new mentor**\
+`After signing No. 1 recruit Bryce Underwood, Michigan has a commitment from Smigiel, a top-100 recruit working with ex-Utah star Cam Rising.`\
+https://nytimes.com/athletic/6356606/2025/05/15/brady-smigiel-michigan-quarterbacks-rising-underwood/
 
-**LeBrun: This year's Panthers might be the most dangerous version yet**\
-`Much ink will be spilled about the Leafs' performance, but don't discount the defending Stanley Cup champions.`\
-https://nytimes.com/athletic/6357954/2025/05/15/florida-panthers-nhl-playoffs-leafs-game-5/
+**In the NHL playoffs, finding the line – and sometimes crossing it — is half the battle**\
+`In the playoffs, NHL players do absolutely anything and everything they can to grind their opponents down: "It is a fine line."`\
+https://nytimes.com/athletic/6356586/2025/05/15/nhl-playoffs-officiating/
 
-**Here's a WNBA tip: Put every Caitlin Clark game on national television**\
-`The Fever are on national television in 41 of their 44 regular-season games. Richard Deitsch says to make it all of them.`\
-https://nytimes.com/athletic/6346392/2025/05/15/caitlin-clark-tv-ratings-games-indiana-fever/
+**NCAA softball tournament: Is this the year Oklahoma is dethroned?**\
+`Everything you need to know ahead of the NCAA softball tournament. `\
+https://nytimes.com/athletic/6353188/2025/05/15/college-softball-tournament-wcws-preview/
 
-**How Top 25 teams are drawing international rising stars to college hoops**\
-`International prospects from some of the top professional leagues in the world are about to become household names in college basketball.`\
-https://nytimes.com/athletic/6355989/2025/05/15/college-basketball-recruiting-european-nil-international-players/
+**Pronman: Why Roger McQueen is the most fascinating prospect at the top of the draft**\
+`Despite legitimate concerns about his recent injuries, McQueen’s upside remains undeniably appealing.`\
+https://nytimes.com/athletic/6269641/2025/05/15/roger-mcqueen-nhl-draft-2025/
 

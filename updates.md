@@ -1,3 +1,43 @@
+**Walmart Warns About Ability to ‘Absorb’ Tariff Costs to Keep Prices Down**\
+`The retailer reported sales growth, especially in its e-commerce division, but also cautioned about economic uncertainty in the quarters ahead.`\
+https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html
+
+**A ‘Big, Beautiful Bill’**\
+`We look at Trump’s agenda in Congress.`\
+https://nytimes.com/2025/05/15/briefing/a-big-beautiful-bill.html
+
+**Anthony Edwards' belief powers the Timberwolves back to Western Conference finals**\
+`Edwards predicted a year ago that Minnesota would make it back to the West finals. The Wolves dispatched the Warriors to prove him right. `\
+https://nytimes.com/athletic/6356737/2025/05/15/anthony-edwards-timberwolves-playoffs-game-5-warriors-west-finals/
+
+**North Carolina, Bill Belichick added 30-plus players from transfer portal: Are they any good?**\
+`North Carolina's transfer class includes only two players who were full-time starters at a Power 4 program in 2024. `\
+https://nytimes.com/athletic/6356229/2025/05/15/north-carolina-football-bill-belichick-transfer-portal/
+
+**‘How does he hit that pitch?’ The greatness of Vladimir Guerrero Jr., distilled into a single swing**\
+`Guerrero Jr. golfed the first curveball he saw against Boston earlier this month for a game-winning homer: “How does he hit that pitch?”`\
+https://nytimes.com/athletic/6357649/2025/05/15/blue-jays-vladimir-guerrero-jr-greatness/
+
+**Rosenthal: How Pete Alonso's plate discipline improved after his swing was 'out of control' in 2024**\
+`Alonso worked on getting his hips in the correct position and it's paying dividends: "With that, I can see the ball better."`\
+https://nytimes.com/athletic/6357284/2025/05/15/mets-pete-alonso-plate-discipline-mechanics/
+
+**Michigan is on a QB recruiting roll. Its next blue-chipper has an intriguing new mentor**\
+`After signing No. 1 recruit Bryce Underwood, Michigan has a commitment from Smigiel, a top-100 recruit working with ex-Utah star Cam Rising.`\
+https://nytimes.com/athletic/6356606/2025/05/15/brady-smigiel-michigan-quarterbacks-rising-underwood/
+
+**In the NHL playoffs, finding the line – and sometimes crossing it — is half the battle**\
+`In the playoffs, NHL players do absolutely anything and everything they can to grind their opponents down: "It is a fine line."`\
+https://nytimes.com/athletic/6356586/2025/05/15/nhl-playoffs-officiating/
+
+**NCAA softball tournament: Is this the year Oklahoma is dethroned?**\
+`Everything you need to know ahead of the NCAA softball tournament. `\
+https://nytimes.com/athletic/6353188/2025/05/15/college-softball-tournament-wcws-preview/
+
+**Pronman: Why Roger McQueen is the most fascinating prospect at the top of the draft**\
+`Despite legitimate concerns about his recent injuries, McQueen’s upside remains undeniably appealing.`\
+https://nytimes.com/athletic/6269641/2025/05/15/roger-mcqueen-nhl-draft-2025/
+
 **How to watch the NFL in 2025: Full streaming, cable and TV guide**\
 `NBC will air the Super Bowl, while Fox has the NFC title game and CBS has the AFC title game.`\
 https://nytimes.com/athletic/6357235/2025/05/15/nfl-schedule-streaming-channel-watch-2025/
