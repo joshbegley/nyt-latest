@@ -1,3 +1,23 @@
+**What Trump Policies Have Been Blocked by Nationwide Injunctions?**\
+`President Trump’s effort to restrict birthright citizenship is one of many aggressive policies that judges have blocked with sweeping orders.`\
+https://nytimes.com/2025/05/15/us/politics/trump-policies-blocked-courts.html
+
+**Trump says negotiations on Iran’s nuclear program are ‘very serious.’**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2025/05/15/us/trump-news/trump-says-negotiations-on-irans-nuclear-program-are-very-serious
+
+**What to Expect From the Cross-Examination of Casandra Ventura**\
+`Lawyers for Sean Combs are expected to focus on moments of her agency in the relationship and on jealousy related to infidelities.`\
+https://nytimes.com/2025/05/15/arts/music/cassie-cross-examination-sean-combs-diddy-trial.html
+
+**Checking in on Roman Anthony, Bubba Chandler and more potential callups for fantasy baseball**\
+`Owen Poindexter takes a trip down on the farm, highlighting the potential next big prospect promotions that could impact fantasy baseball.`\
+https://nytimes.com/athletic/6357010/2025/05/15/fantasy-baseball-prospect-callups-anthony-chandler/
+
+**Top Sexual Assault Hotline Drops Resources After Trump Orders**\
+`Fearing funding cuts, the anti-sexual-violence organization RAINN barred referring callers to resources for L.G.B.T.Q. people, immigrants and other marginalized groups.`\
+https://nytimes.com/2025/05/15/well/rainn-dei-trump-executive-orders.html
+
 **Is This Supreme Court Case About Birthright Citizenship? Yes and No.**\
 `A case focused on birthright citizenship could come later, but the bulk of the argument is expected to concern whether a single judge can freeze a policy nationwide.`\
 https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-judicial-power.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/shou
 **Live Updates: Supreme Court to Hear Case on Birthright Citizenship and Judicial Power**\
 `The Supreme Court could use the case to limit nationwide injunctions and reshape how federal courts handle challenges to President Trump’s policies.`\
 https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship
-
-**Sainz: No conflict of interest in father's potential FIA presidency bid**\
-`Incumbent president Mohammed Ben Sulayem is up for re-election at the end of this year.`\
-https://nytimes.com/athletic/6358798/2025/05/15/carlos-sainz-sr-fia-president/
-
-**The Kings aren't starting over under GM Ken Holland, but he has quick decisions to make**\
-`Holland enters the job with some salary-cap flexibility, but how much will he attempt to change the roster?`\
-https://nytimes.com/athletic/6358090/2025/05/15/ken-holland-la-kings-offseason/
-
-**Padres mailbag: Leo De Vries’ timeline, the rotation equation and more**\
-`The Padres have exceeded most expectations so far in 2025 but there remains plenty of questions to ponder.`\
-https://nytimes.com/athletic/6358283/2025/05/15/padres-mailbag-leo-de-vries-rotation-equation/
-
-**Combs’s family has been supportive since his arrest.**\
-`By Talya Minsberg and Olivia Bensimon`\
-https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/combss-family-has-been-supportive-since-his-arrest
-
-**Ben and Jerry’s Founder Arrested at Kennedy’s Senate Hearing**\
-`Ben Cohen, a co-founder of the ice cream brand Ben and Jerry’s, was among a group of protesters that interrupted a Senate committee hearing to protest Congress’s funding for Israel’s military as it wages war against Hamas in Gaza.`\
-https://nytimes.com/video/us/politics/100000010171275/ben-and-jerrys-founder-arrested-kennedys-hearing.html
 
