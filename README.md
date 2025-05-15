@@ -1,3 +1,7 @@
+**How 4 Business Owners Are Handling Tariffs on China**\
+`An easing in President Trump’s tariffs on Chinese goods gave businesses some breathing room. Long-term planning, though, is still on pause.`\
+https://nytimes.com/2025/05/15/business/tariffs-small-business.html
+
 **Alba signs Miami contract extension through 2027 season**\
 `Alba joined Miami — and former Barcelona team-mates Lionel Messi and Sergio Busquets — in 2023.`\
 https://nytimes.com/athletic/6359328/2025/05/15/inter-miami-jordi-alba-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/arts/music/cassie-freak-offs-defense.html
 **Trump Budget Cuts Hobble Antismoking Programs**\
 `The elimination of a key C.D.C. office has slashed funding to states for help lines used by thousands to stop smoking and vaping.`\
 https://nytimes.com/2025/05/15/health/trump-budget-cuts-anti-smoking-tobacco.html
-
-**Shoeless Joe Jackson's family surprised, proud that he's off ineligible list**\
-`“There’s a lot of disbelief,” said great-great nephew Joseph Raymond Jackson. “I didn't think I'd ever live to see this day happen."`\
-https://nytimes.com/athletic/6358221/2025/05/15/shoeless-joe-jackson-hall-of-fame-family/
 
