@@ -1,3 +1,7 @@
+**Missouri Voters Overturned an Abortion Ban. Lawmakers Will Ask Them to Reconsider.**\
+`The state’s Republicans are putting abortion on a ballot question again, seeking to buck the trend of voters siding with abortion rights on ballot measures.`\
+https://nytimes.com/2025/05/14/us/missouri-abortion-ban-lawmakers.html
+
 **Why New York City Is Removing Padlocks on Illegal Weed Shops It Closed**\
 `With the court orders that allowed the city to seal illicit cannabis stores starting to expire, questions remain about whether the shops could reopen.`\
 https://nytimes.com/2025/05/14/nyregion/eric-adams-nyc-marijuana-dispensaries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/trump-south-africa-afrikaners.html
 **Live From Capitol Hill, It’s An All-Nighter That Leaves Some Lawmakers Snoring**\
 `Members of two key House committees worked all night on a sprawling domestic policy bill. Some fell asleep along the way.`\
 https://nytimes.com/2025/05/14/us/politics/house-representatitves-asleep.html
-
-**Will Putin Be in Turkey for Peace Talks? Kremlin’s List Suggests Not.**\
-`A hard-line aide to the Russian president will instead lead the delegation, according to a Kremlin statement.`\
-https://nytimes.com/2025/05/14/world/europe/putin-ukraine-peace-talks-turkey.html
 
