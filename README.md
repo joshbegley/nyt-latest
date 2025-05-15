@@ -1,3 +1,7 @@
+**Afrikaner Granted Refugee Status by Trump Is Linked to Antisemitic Posts**\
+`The Trump administration has tried to deport foreign-born protesters for what it calls antisemitic speech. On Monday, the administration resettled an Afrikaner who had a track record of it.`\
+https://nytimes.com/2025/05/14/us/politics/trump-afrikaner-refugee-antisemitism.html
+
 **Missouri Voters Overturned an Abortion Ban. Lawmakers Will Ask Them to Reconsider.**\
 `The state’s Republicans are putting abortion on a ballot question again, seeking to buck the trend of voters siding with abortion rights on ballot measures.`\
 https://nytimes.com/2025/05/14/us/missouri-abortion-ban-lawmakers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
 **The Road to Trump’s Embrace of White South Africans**\
 `The Trump administration’s hostile approach to South Africa was shaped by a convergence of factors.`\
 https://nytimes.com/2025/05/14/us/politics/trump-south-africa-afrikaners.html
-
-**Live From Capitol Hill, It’s An All-Nighter That Leaves Some Lawmakers Snoring**\
-`Members of two key House committees worked all night on a sprawling domestic policy bill. Some fell asleep along the way.`\
-https://nytimes.com/2025/05/14/us/politics/house-representatitves-asleep.html
 

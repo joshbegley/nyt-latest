@@ -1,3 +1,7 @@
+**Missouri Voters Overturned an Abortion Ban. Lawmakers Will Ask Them to Reconsider.**\
+`The state’s Republicans are putting abortion on a ballot question again, seeking to buck the trend of voters siding with abortion rights on ballot measures.`\
+https://nytimes.com/2025/05/14/us/missouri-abortion-ban-lawmakers.html
+
 **Why New York City Is Removing Padlocks on Illegal Weed Shops It Closed**\
 `With the court orders that allowed the city to seal illicit cannabis stores starting to expire, questions remain about whether the shops could reopen.`\
 https://nytimes.com/2025/05/14/nyregion/eric-adams-nyc-marijuana-dispensaries.html
