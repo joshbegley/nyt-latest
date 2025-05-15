@@ -1,3 +1,7 @@
+**At the Supreme Court, a once-fringe birthright citizenship theory takes the spotlight.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/05/15/us/supreme-court-birthright-citizenship/at-the-supreme-court-a-once-fringe-birthright-citizenship-theory-takes-the-spotlight
+
 **FIFA Congress in Paraguay delayed because president Infantino was late**\
 `A security guard said they had been briefed that the event had been delayed due to the president's late arrival. `\
 https://nytimes.com/athletic/6359005/2025/05/15/fifa-infantino-congress-late-paraguay/
