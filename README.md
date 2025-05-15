@@ -1,3 +1,7 @@
+**Colts delete schedule video that mocks Tyreek Hill getting arrested**\
+`The Minecraft-themed video showing a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
+https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
+
 **The New York Times in Print for Thursday, May 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/15/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6357904/2025/05/15/maple-leafs-worst-loss-nhl-playo
 **Max Dowman's goals: Breaking down the latest additions to the 15-year-old's showreel**\
 `Described as “unreal” by Declan Rice, Max Dowman has been on fire for Arsenal's under-18s`\
 https://nytimes.com/athletic/6355210/2025/05/15/max-dowman-arsenal-showreel/
-
-**It has been an unnerving time at Forest - courageous Awoniyi just wanted to help his team**\
-`Taiwo Awoniyi was put in an induced coma after suffering injuries more akin to a car crash than playing in a football match`\
-https://nytimes.com/athletic/6341838/2025/05/15/awoniyi-injury-nottingham-forest-coma/
 
