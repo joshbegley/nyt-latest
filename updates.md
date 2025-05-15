@@ -1,3 +1,11 @@
+**Raindrops Keep Falling on New Yorkers’ Heads**\
+`“This weather is gross,” the mayor declared.`\
+https://nytimes.com/2025/05/15/weather/new-york-city-rain-may.html
+
+**What is a mud ball? Explaining the PGA Championship's golf rules controversy**\
+`Scottie Scheffler, the No. 1 player in the world, called mud balls one of the most frustrating issues a professional golfer can experience.`\
+https://nytimes.com/athletic/6360453/2025/05/15/pga-championship-2025-mud-ball-golf/
+
 **Springsteen, in England, Blasts Trump Administration as ‘Treasonous’**\
 `His remarks, delivered to an audience abroad, stood out at a time when other superstar artists have seemed to mute their criticism of the president.`\
 https://nytimes.com/2025/05/15/arts/music/bruce-springsteen-trump.html

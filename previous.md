@@ -1,6 +1,14 @@
+**Raindrops Keep Falling on New Yorkers’ Heads**\
+`“This weather is gross,” the mayor declared.`\
+https://nytimes.com/2025/05/15/weather/new-york-city-rain-may.html
+
 **Springsteen, in England, Blasts Trump Administration as ‘Treasonous’**\
 `His remarks, delivered to an audience abroad, stood out at a time when other superstar artists have seemed to mute their criticism of the president.`\
 https://nytimes.com/2025/05/15/arts/music/bruce-springsteen-trump.html
+
+**What is a mud ball? Explaining the PGA Championship's golf rules controversy**\
+`Scottie Scheffler, the No. 1 player in the world, called mud balls one of the most frustrating issues a professional golfer can experience.`\
+https://nytimes.com/athletic/6360453/2025/05/15/pga-championship-2025-mud-ball-golf/
 
 **Federal Officials May Limit Recommendations for Covid Vaccine**\
 `With new testing requirements, it’s not even clear how new Covid or flu shots can be made available this fall.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6349233/2025/05/15/barcelona-la-liga-title/
 **Charles Strouse, Composer of ‘Annie’ and ‘Bye Bye Birdie,’ Dies at 96**\
 `He wrote some of the most enduring musical theater numbers of his era and earned three Tony Awards, a Grammy and an Emmy.`\
 https://nytimes.com/2025/05/15/theater/charles-strouse-dead.html
-
-**Military Helicopter Crew Took Elk Antlers From Montana Ranch, Officials Say**\
-`Three members of the Montana National Guard have been charged with trespassing in connection with the incident on May 4.`\
-https://nytimes.com/2025/05/15/us/montana-national-guard-helicopter-elk-antlers.html
-
-**15 injured after car hits fans outside Espanyol stadium before Barcelona match**\
-`Catalan police confirmed a woman has been arrested in relation to the incident.`\
-https://nytimes.com/athletic/6360227/2025/05/15/espanyol-barcelona-car-incident/
 
