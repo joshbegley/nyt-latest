@@ -1,3 +1,15 @@
+**Nelson DeMille’s House Is Listed for $5.5 Million on Long Island**\
+`The five-bedroom home was built in Garden City in the Tudor style the author admired. But it isn’t where he wrote his books.`\
+https://nytimes.com/2025/05/15/realestate/nelson-demille-house-for-sale-long-island.html
+
+**Birthright Citizenship Case Has Several Unusual Features**\
+`This case is atypical for the justices for reasons including how quickly it made it to the court and even that oral arguments are happening at all.`\
+https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-case-unusual.html
+
+**Ohio State fans, how do you feel now? Take The Athletic's 2025 fan survey**\
+`After another loss to Michigan but a national championship, let us know how you're feeling about the Buckeyes, Ohio State football fans.`\
+https://nytimes.com/athletic/6358864/2025/05/15/ohio-state-football-fan-survey-2025/
+
 **Chris Buescher, No. 17 team hit with severe penalty after post-Kansas inspection**\
 `Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
 https://nytimes.com/athletic/6356121/2025/05/15/chris-buescher-no-17-team-penalty-nascar/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/15/arts/music/cassie-cross-examination-sean-combs-di
 **Checking in on Roman Anthony, Bubba Chandler and more potential callups for fantasy baseball**\
 `Owen Poindexter takes a trip down on the farm, highlighting the potential next big prospect promotions that could impact fantasy baseball.`\
 https://nytimes.com/athletic/6357010/2025/05/15/fantasy-baseball-prospect-callups-anthony-chandler/
-
-**Top Sexual Assault Hotline Drops Resources After Trump Orders**\
-`Fearing funding cuts, the anti-sexual-violence organization RAINN barred referring callers to resources for L.G.B.T.Q. people, immigrants and other marginalized groups.`\
-https://nytimes.com/2025/05/15/well/rainn-dei-trump-executive-orders.html
-
-**Is This Supreme Court Case About Birthright Citizenship? Yes and No.**\
-`A case focused on birthright citizenship could come later, but the bulk of the argument is expected to concern whether a single judge can freeze a policy nationwide.`\
-https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-judicial-power.html
-
-**D.H.S. Requests 20,000 National Guard Members to Help With Immigration Crackdown**\
-`The Defense Department is reviewing the request. If approved, one official said, it would be the first time National Guard troops were used to help enforce an immigration crackdown in the country.`\
-https://nytimes.com/2025/05/15/us/politics/national-guard-immigration.html
 
