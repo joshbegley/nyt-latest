@@ -1,3 +1,11 @@
+**Live Updates: Trump to Visit U.A.E. in Last Stop of Middle East Tour**\
+`In Qatar on Thursday, President Trump is scheduled to visit the largest U.S. military base in the region. He will then fly to the United Arab Emirates, another key ally.`\
+https://nytimes.com/live/2025/05/15/us/trump-news
+
+**After second-round exit, is Golden Knights' Cup window closing?**\
+`This five-game defeat felt like a missed opportunity for an aging core of talented players in search of another Cup.`\
+https://nytimes.com/athletic/6353720/2025/05/15/golden-knights-nhl-playoffs-oilers-loss/
+
 **Inter Miami draws 3-3 against San Jose Earthquakes as frustrations flare**\
 `The scoreline, in which Miami committed a myriad of glaring defensive mistakes, further aggravated the Argentina World Cup winner`\
 https://nytimes.com/athletic/6358253/2025/05/15/inter-miami-san-jose-earthquakes-lionel-messi-game-analysis/

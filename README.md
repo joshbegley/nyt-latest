@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Luke Broadwater, Jonathan Swan and Qasim Nauman`\
+https://nytimes.com/live/2025/05/15/us/trump-news/heres-the-latest
+
 **Live Updates: Trump to Visit U.A.E. in Last Stop of Middle East Tour**\
 `In Qatar on Thursday, President Trump is scheduled to visit the largest U.S. military base in the region. He will then fly to the United Arab Emirates, another key ally.`\
 https://nytimes.com/live/2025/05/15/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-poi
 **Buckley: Tatum-less Celtics notify Knicks that there's more backetball to be played**\
 `The Celtics were without Jayson Tatum and written off by some, but that talk is on hold after they controlled Game 5 to extend the series.`\
 https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playoffs/
-
-**Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
-`The Minecraft-themed video showed a dolphin with the username Hill and the jersey number 10 being arrested by the Coast Guard.`\
-https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
 
