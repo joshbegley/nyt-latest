@@ -1,3 +1,7 @@
+**U.S.-Backed Group Created to Distribute Aid in Gaza Says It’s Ready to Go**\
+`The Gaza Humanitarian Foundation seeks to create an alternative aid system, but other groups have raised doubts about the feasibility of its plan.`\
+https://nytimes.com/2025/05/14/world/middleeast/gaza-aid-israel.html
+
 **After another NL West series loss, Giants faced with tough questions**\
 `The Giants' series loss raised two tough questions: Can they overcome the D-Backs or Padres? And should they take Hicks out of the rotation?`\
 https://nytimes.com/athletic/6357026/2025/05/14/sf-giants-nl-west-series-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/trump-kushner-hotel-serbia.html
 **2025 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
 `The Commanders and Chiefs lead the league with eight standalone games each.`\
 https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
-
-**Afrikaner Granted Refugee Status by Trump Is Linked to Antisemitic Posts**\
-`The Trump administration has tried to deport foreign-born protesters for what it calls antisemitic speech. On Monday, the administration resettled an Afrikaner who had a track record of it.`\
-https://nytimes.com/2025/05/14/us/politics/trump-afrikaner-refugee-antisemitism.html
 
