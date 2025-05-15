@@ -1,3 +1,11 @@
+**‘Fraught With Abuse’: Lawmakers Denounce Brutality in N.Y. Prisons**\
+`During a daylong hearing in Albany, state lawmakers heard from family members of men who died in New York State prisons in recent years.`\
+https://nytimes.com/2025/05/14/nyregion/new-york-prisons-lawmakers.html
+
+**In Menendez Brothers’ Case, a Reckoning With the 1990s**\
+`As a court reviewed the Menendez murder case, the culture and politics of the 1990s were scrutinized almost as much as the horrific crime.`\
+https://nytimes.com/2025/05/14/us/menendez-brothers-culture-politics.html
+
 **From the first-base box to circling the bases: Auburn's Andrew Dutton delivers a movie moment**\
 `Dutton, a graduate transfer from Birmingham-Southern, had spent all season as the first-base coach before homering in his first at-bat.`\
 https://nytimes.com/athletic/6357286/2025/05/14/andrew-dutton-auburn-home-run/

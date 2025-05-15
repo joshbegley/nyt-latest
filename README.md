@@ -1,3 +1,7 @@
+**Coaches view proposal to add NFL-style OTAs to college spring practice**\
+`Remaking the spring calendar has been a frequent point of discussion by the sport’s leaders.`\
+https://nytimes.com/athletic/6357318/2025/05/14/college-football-otas-spring-practice-schedule/
+
 **‘Fraught With Abuse’: Lawmakers Denounce Brutality in N.Y. Prisons**\
 `During a daylong hearing in Albany, state lawmakers heard from family members of men who died in New York State prisons in recent years.`\
 https://nytimes.com/2025/05/14/nyregion/new-york-prisons-lawmakers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/world/europe/putin-ukraine-peace-talks-turkey.htm
 **Clerk in Murdaugh Trial Is Charged With Misconduct and Perjury**\
 `Becky Hill had handled the trial in which Alex Murdaugh was convicted in 2023 of murdering his wife and younger son. She was arrested on Wednesday.`\
 https://nytimes.com/2025/05/14/us/becky-hill-alex-murdaugh-clerk-felony-charges.html
-
-**TikTok Influencer in Mexico Is Shot Dead While Livestreaming**\
-`The death of Valeria Márquez, 23, was the latest reminder of the rise in violence against women in the country.`\
-https://nytimes.com/2025/05/14/world/americas/valeria-marquez-tiktok-influencer-live-murder-mexico.html
 
