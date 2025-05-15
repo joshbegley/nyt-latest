@@ -1,3 +1,7 @@
+**Vengeful at Home, Trump Takes His Forgiving Side on Tour**\
+`During the first major foreign trip of his second term, President Trump has told audiences in the Middle East that he’s willing to set the past aside in the interests of peace and profit.`\
+https://nytimes.com/2025/05/15/world/middleeast/trump-diplomacy.html
+
 **Mayor Arrested at ICE Detention Center Says He Was ‘Targeted’ by Trump**\
 `Ras Baraka, the mayor of Newark and a candidate for New Jersey governor, appeared in federal court on Thursday, nearly a week after he was charged with trespassing.`\
 https://nytimes.com/2025/05/15/nyregion/ras-baraka-newark-ice-trespassing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359574/2025/05/15/maple-leafs-panthers-oilers-red-
 **What's new for 2025 in the exploding WNBA collectibles market**\
 `More WNBA trading cards and collectibles are being added to the mix in an attempt to meet growing demand`\
 https://nytimes.com/athletic/6359297/2025/05/15/caitlin-clark-wnba-cards-panini/
-
-**Colorado Air Traffic Control Facility Lost Contact With Pilots**\
-`Controllers switched frequencies and planes were “safely separated,” officials said. The 90-second outage on Monday followed communications problems at Newark airport.`\
-https://nytimes.com/2025/05/15/business/air-traffic-control-denver-faa.html
 
