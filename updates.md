@@ -1,3 +1,7 @@
+**Texas Woman Bought Guns for Son Who Was Planning School Shooting, Police Say**\
+`Ashley Pardo also purchased ammunition and tactical gear for the boy, 13, who had repeatedly expressed interest in committing a school shooting, the authorities said.`\
+https://nytimes.com/2025/05/15/us/texas-mom-arrested-school-shooting.html
+
 **Scottie Scheffler, Xander Schauffele and the fight for preferred lies**\
 `"It's frustrating to hit the ball in the middle of the fairway and get mud on it and have no idea where it's going to go."`\
 https://nytimes.com/athletic/6359352/2025/05/15/pga-championship-2025-scheffler-schauffele-rules/
