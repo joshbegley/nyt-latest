@@ -1,3 +1,11 @@
+**Raya, Nwaneri get new numbers as Arsenal launch 2025-26 kit**\
+`Arsenal will debut the new kit design in their final home game of the season against Newcastle United on Sunday.`\
+https://nytimes.com/athletic/6358476/2025/05/15/arsenal-kit-raya-nwaneri-numbers/
+
+**Maresca: Jackson has maturity to be Chelsea's No 9**\
+`The 23-year-old was sent off against Newcastle and will miss Chelsea's final two games, leaving Maresca without a recognised striker.`\
+https://nytimes.com/athletic/6358489/2025/05/15/nicolas-jackson-chelsea-maresca/
+
 **The New York Times International Edition in Print for Friday, May 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/15/todays-new-york-times-international-edition
