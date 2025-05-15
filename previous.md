@@ -11,7 +11,7 @@ https://nytimes.com/2025/05/15/us/montana-national-guard-helicopter-elk-antlers.
 https://nytimes.com/athletic/6360227/2025/05/15/espanyol-barcelona-car-incident/
 
 **Clooney Brought Edward R. Murrow to Broadway. Next Stop: CNN.**\
-`In June, the news network is planning to broadcast one of the last performances of “Good Night, and Good Luck.”`\
+`In June, the news organization is planning a live broadcast of one of the final Broadway performances of “Good Night, and Good Luck.”`\
 https://nytimes.com/2025/05/15/theater/george-clooney-good-night-good-luck-cnn.html
 
 **‘We Are the Most Rejected Generation’**\

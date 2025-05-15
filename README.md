@@ -1,3 +1,7 @@
+**Barcelona win La Liga title with derby victory over Espanyol**\
+`The victory moves Barca an insurmountable seven points clear of second-place Real Madrid with just two rounds of matches remaining.`\
+https://nytimes.com/athletic/6349233/2025/05/15/barcelona-la-liga-title/
+
 **Charles Strouse, Composer of ‘Annie’ and ‘Bye Bye Birdie,’ Dies at 96**\
 `He wrote some of the most enduring musical theater numbers of his era and earned three Tony Awards, a Grammy and an Emmy.`\
 https://nytimes.com/2025/05/15/theater/charles-strouse-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/business/economy/trump-chips-ai-uae.html
 **Texas Woman Bought Guns for Son Who Was Planning School Shooting, Police Say**\
 `Ashley Pardo also purchased ammunition and tactical gear for the boy, 13, who had repeatedly expressed interest in committing a school shooting, the authorities said.`\
 https://nytimes.com/2025/05/15/us/texas-mom-arrested-school-shooting.html
-
-**Scottie Scheffler, Xander Schauffele and the fight for preferred lies**\
-`"It's frustrating to hit the ball in the middle of the fairway and get mud on it and have no idea where it's going to go."`\
-https://nytimes.com/athletic/6359352/2025/05/15/pga-championship-2025-scheffler-schauffele-rules/
 

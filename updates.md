@@ -1,3 +1,7 @@
+**Clooney Brought Edward R. Murrow to Broadway. Next Stop: CNN.**\
+`In June, the news organization is planning a live broadcast of one of the final Broadway performances of “Good Night, and Good Luck.”`\
+https://nytimes.com/2025/05/15/theater/george-clooney-good-night-good-luck-cnn.html
+
 **Charles Strouse, Composer of ‘Annie’ and ‘Bye Bye Birdie,’ Dies at 96**\
 `He wrote some of the most enduring musical theater numbers of his era and earned three Tony Awards, a Grammy and an Emmy.`\
 https://nytimes.com/2025/05/15/theater/charles-strouse-dead.html
