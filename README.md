@@ -1,3 +1,7 @@
+**Canada’s Wildfire Season Is Off to a Deadly Start**\
+`Two people were trapped and killed by a wildfire in a small town in Manitoba, where the provincial capital, Winnipeg, is wilting under a record-breaking heat wave.`\
+https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.html
+
 **Malcolm Potts, Irreverent Evangelist for Contraception, Dies at 90**\
 `He helped develop the device most often used for surgical abortions. He also spent more than half a century promoting women’s reproductive health in developing countries.`\
 https://nytimes.com/2025/05/15/science/malcolm-potts-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/library-of-congress-trump.html
 **Rubio Meets Syrian Foreign Minister, in Another Sign of Warming Ties**\
 `The meeting came days after President Trump announced he would end sanctions against Syria and met with the country’s president, a former jihadist.`\
 https://nytimes.com/2025/05/15/world/middleeast/syria-marco-rubio-trump-sanctions.html
-
-**Trump Administration Escalates Harvard Feud With New Justice Dept. Investigation**\
-`The Trump administration is targeting the Ivy League university under a law typically used to go after government contractors for swindling.`\
-https://nytimes.com/2025/05/15/us/politics/harvard-justice-dept-investigation.html
 
