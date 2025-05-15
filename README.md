@@ -1,3 +1,7 @@
+**Is This Supreme Court Case About Birthright Citizenship? Yes and No.**\
+`A case focused on birthright citizenship could come later, but the bulk of the argument is expected to concern whether a single judge can freeze a policy nationwide.`\
+https://nytimes.com/2025/05/15/us/politics/birthright-citizenship-judicial-power.html
+
 **D.H.S. Requests 20,000 National Guard Members to Help With Immigration Crackdown**\
 `The Defense Department is reviewing the request. If approved, one official said, it would be the first time National Guard troops were used to help enforce an immigration crackdown in the country.`\
 https://nytimes.com/2025/05/15/us/politics/national-guard-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/combss-
 **Ben and Jerry’s Founder Arrested at Kennedy’s Senate Hearing**\
 `Ben Cohen, a co-founder of the ice cream brand Ben and Jerry’s, was among a group of protesters that interrupted a Senate committee hearing to protest Congress’s funding for Israel’s military as it wages war against Hamas in Gaza.`\
 https://nytimes.com/video/us/politics/100000010171275/ben-and-jerrys-founder-arrested-kennedys-hearing.html
-
-**The Windup: Marvel at these sweet HR robberies**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6358128/2025/05/15/julio-rodriguez-catch-home-run-the-windup/
 
