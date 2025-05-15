@@ -1,3 +1,7 @@
+**Prosecutors quickly work to establish Cassie’s agency in freak-offs.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/cassie-freak-offs-prosecution
+
 **Trump Budget Cuts Hobble Antismoking Programs**\
 `The elimination of a key C.D.C. office has slashed funding to states for help lines used by thousands to stop smoking and vaping.`\
 https://nytimes.com/2025/05/15/health/trump-budget-cuts-anti-smoking-tobacco.html

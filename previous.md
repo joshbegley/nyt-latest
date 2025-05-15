@@ -1,3 +1,7 @@
+**Prosecutors quickly work to establish Cassie’s agency in freak-offs.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/05/15/arts/diddy-trial-cassie-live-updates/cassie-freak-offs-prosecution
+
 **Trump Budget Cuts Hobble Antismoking Programs**\
 `The elimination of a key C.D.C. office has slashed funding to states for help lines used by thousands to stop smoking and vaping.`\
 https://nytimes.com/2025/05/15/health/trump-budget-cuts-anti-smoking-tobacco.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-ope
 **Stephen A. Smith’s Relentless, Preposterous, Probably Inevitable Road to Political Clout**\
 `America’s best-known sports-talker is hosting boldface Democrats and MAGA luminaries and teasing a 2028 run. But what he really wants is Joe Rogan-like influence, and things of that nature.`\
 https://nytimes.com/2025/05/15/style/stephen-a-smith-espn-politics.html
-
-**Pope Leo’s Classmates Drew Ire of Church With Protest for Women**\
-`“It was the most electric thing I have ever experienced inside the walls of a Catholic church,” one protester recalls.`\
-https://nytimes.com/2025/05/15/us/pope-leo-catholic-theological-union.html
 
