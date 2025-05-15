@@ -1,3 +1,7 @@
+**Colts delete schedule video that mocks Tyreek Hill getting arrested**\
+`The Minecraft-themed video showing a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
+https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
+
 **The New York Times in Print for Thursday, May 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/15/todays-new-york-times

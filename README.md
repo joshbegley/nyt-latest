@@ -1,4 +1,4 @@
-**Colts delete schedule video that mocks Tyreek Hill getting arrested**\
+**Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
 `The Minecraft-themed video showing a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
 https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
 
