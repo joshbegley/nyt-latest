@@ -1,3 +1,7 @@
+**How do Warriors build around Steph Curry and Jimmy Butler after second-round exit?**\
+`Is the answer to keep developing young players like Jonathan Kuminga and Brandin Podziemski around the aging veteran core? `\
+https://nytimes.com/athletic/6358151/2025/05/15/warriors-steph-curry-jimmy-butler-future/
+
 **Walmart Warns About Ability to ‘Absorb’ Tariff Costs to Keep Prices Down**\
 `The retailer reported sales growth, especially in its e-commerce division, but also cautioned about economic uncertainty in the quarters ahead.`\
 https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356586/2025/05/15/nhl-playoffs-officiating/
 **NCAA softball tournament: Is this the year Oklahoma is dethroned?**\
 `Everything you need to know ahead of the NCAA softball tournament. `\
 https://nytimes.com/athletic/6353188/2025/05/15/college-softball-tournament-wcws-preview/
-
-**Pronman: Why Roger McQueen is the most fascinating prospect at the top of the draft**\
-`Despite legitimate concerns about his recent injuries, McQueen’s upside remains undeniably appealing.`\
-https://nytimes.com/athletic/6269641/2025/05/15/roger-mcqueen-nhl-draft-2025/
 

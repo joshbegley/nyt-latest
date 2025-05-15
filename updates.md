@@ -1,3 +1,7 @@
+**How do Warriors build around Steph Curry and Jimmy Butler after second-round exit?**\
+`Is the answer to keep developing young players like Jonathan Kuminga and Brandin Podziemski around the aging veteran core? `\
+https://nytimes.com/athletic/6358151/2025/05/15/warriors-steph-curry-jimmy-butler-future/
+
 **Walmart Warns About Ability to ‘Absorb’ Tariff Costs to Keep Prices Down**\
 `The retailer reported sales growth, especially in its e-commerce division, but also cautioned about economic uncertainty in the quarters ahead.`\
 https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html

@@ -1,3 +1,7 @@
+**Vardy set to end Leicester career on 500 games with send-off vs Ipswich**\
+`The 38-year-old announced last month he would be leaving the club after 13 years when his contract expires this summer.`\
+https://nytimes.com/athletic/6358604/2025/05/15/jamie-vardy-end-leicester-career/
+
 **How do Warriors build around Steph Curry and Jimmy Butler after second-round exit?**\
 `Is the answer to keep developing young players like Jonathan Kuminga and Brandin Podziemski around the aging veteran core? `\
 https://nytimes.com/athletic/6358151/2025/05/15/warriors-steph-curry-jimmy-butler-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356606/2025/05/15/brady-smigiel-michigan-quarterba
 **In the NHL playoffs, finding the line – and sometimes crossing it — is half the battle**\
 `In the playoffs, NHL players do absolutely anything and everything they can to grind their opponents down: "It is a fine line."`\
 https://nytimes.com/athletic/6356586/2025/05/15/nhl-playoffs-officiating/
-
-**NCAA softball tournament: Is this the year Oklahoma is dethroned?**\
-`Everything you need to know ahead of the NCAA softball tournament. `\
-https://nytimes.com/athletic/6353188/2025/05/15/college-softball-tournament-wcws-preview/
 
