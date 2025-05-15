@@ -1,3 +1,11 @@
+**How to watch the NFL in 2025: Full streaming, cable and TV guide**\
+`NBC will air the Super Bowl, while FOX has the NFC title game and CBS has the AFC title game.`\
+https://nytimes.com/athletic/6357235/2025/05/15/nfl-schedule-streaming-channel-watch-2025/
+
+**Phillies notes: Aaron Nola's trends, Jordan Romano's resurgence, Jesús Luzardo's pitch mix**\
+`Nola has never been this bad in two-strike counts. Romano has recaptured some confidence. Luzardo is navigating lineups in different ways. `\
+https://nytimes.com/athletic/6357916/2025/05/15/phillies-aaron-nola-jesus-luzardo-jordan-romano/
+
 **The Pulse: The downfall of a $6.5 billion franchise**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6356475/2025/05/15/manchester-united-glazers-the-pulse/
