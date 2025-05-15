@@ -1,3 +1,7 @@
+**Submit your questions for Peter Baugh and Arthur Staple’s New York Rangers mailbag**\
+`Have a question about the Rangers? Submit it here and Peter Baugh and Arthur Staple will address a selection in their upcoming mailbag.`\
+https://nytimes.com/athletic/6359406/2025/05/15/new-york-rangers-mailbag-may-2025/
+
 **Judge Dismisses ‘Trespassing’ Charges Promoted by Trump in Border ‘Defense Area’**\
 `A newly designated “military installation” that stretches the length of the frontier in New Mexico has made trespassing a novel criminal charge at the border, bringing turmoil to the state. A judge says migrants couldn’t know they were trespassing.`\
 https://nytimes.com/2025/05/15/us/new-mexico-border-trump.html

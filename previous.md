@@ -1,3 +1,7 @@
+**Submit your questions for Peter Baugh and Arthur Staple’s New York Rangers mailbag**\
+`Have a question about the Rangers? Submit it here and Peter Baugh and Arthur Staple will address a selection in their upcoming mailbag.`\
+https://nytimes.com/athletic/6359406/2025/05/15/new-york-rangers-mailbag-may-2025/
+
 **Judge Dismisses ‘Trespassing’ Charges Promoted by Trump in Border ‘Defense Area’**\
 `A newly designated “military installation” that stretches the length of the frontier in New Mexico has made trespassing a novel criminal charge at the border, bringing turmoil to the state. A judge says migrants couldn’t know they were trespassing.`\
 https://nytimes.com/2025/05/15/us/new-mexico-border-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/arts/dance/bam-next-wave-festival-and-fall-season
 **Anthony Stolarz unlikely to travel with Leafs to Florida for Game 6**\
 `Joseph Woll, Stolarz's replacement, has been unable to keep pace with counterpart Sergei Bobrovsky and was pulled in Wednesday's 6-1 loss.`\
 https://nytimes.com/athletic/6359179/2025/05/15/maple-leafs-panthers-anthony-stolarz-nhl-playoffs/
-
-**What I'm hearing about Penguins' coaching search, offseason plans**\
-`Mitch Love impressed the Penguins in his interview for the coaching vacancy, plus other tidbits. `\
-https://nytimes.com/athletic/6358619/2025/05/15/penguins-coaching-search-nhl-openings/
 
