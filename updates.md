@@ -1,3 +1,11 @@
+**Israeli Strikes Kill Dozens in Gaza, Health Ministry Says**\
+`Israel has threatened to escalate military campaign against Hamas, despite a U.S.-backed push to agree a new cease-fire.`\
+https://nytimes.com/2025/05/15/world/middleeast/israel-strikes-gaza.html
+
+**Walmart Warns About Ability to ‘Absorb’ Tariff Costs Without Raising Prices**\
+`The retailer reported sales growth, especially in its e-commerce division, but also cautioned about economic uncertainty in the quarters ahead.`\
+https://nytimes.com/2025/05/15/business/walmart-earnings-tariffs-consumer.html
+
 **Ukraine’s President Lands in Turkey for Peace Talks with Russia**\
 `President Volodymyr Zelensky of Ukraine said he did not know the level of representation of the Russian delegation, as he landed in Ankara for peace talks with Russia on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000010171166/zelensky-turkey-peace-talks-russia.html
