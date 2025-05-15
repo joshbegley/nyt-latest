@@ -1,3 +1,11 @@
+**Mayor Arrested at ICE Detention Center Says He Was ‘Targeted’ by Trump**\
+`Ras Baraka, the mayor of Newark and a candidate for New Jersey governor, appeared in federal court on Thursday, nearly a week after he was charged with trespassing.`\
+https://nytimes.com/2025/05/15/nyregion/ras-baraka-newark-ice-trespassing.html
+
+**S.E.C. Investigating Whether Coinbase Misstated Its User Numbers**\
+`The inquiry continued even after the commission dropped a lawsuit accusing Coinbase of illegally marketing digital currencies to the public.`\
+https://nytimes.com/2025/05/15/technology/coinbase-sec-investigation.html
+
 **Supreme Court Rejects ‘Moment of Threat’ Limit in Excessive Force Suits**\
 `Lower courts had been divided over whether judges must limit their scrutiny of challenges to police shootings to the seconds preceding them.`\
 https://nytimes.com/2025/05/15/us/politics/supreme-court-excessive-force.html

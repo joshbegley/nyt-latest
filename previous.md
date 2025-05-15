@@ -1,3 +1,11 @@
+**Mayor Arrested at ICE Detention Center Says He Was ‘Targeted’ by Trump**\
+`Ras Baraka, the mayor of Newark and a candidate for New Jersey governor, appeared in federal court on Thursday, nearly a week after he was charged with trespassing.`\
+https://nytimes.com/2025/05/15/nyregion/ras-baraka-newark-ice-trespassing.html
+
+**S.E.C. Investigating Whether Coinbase Misstated Its User Numbers**\
+`The inquiry continued even after the commission dropped a lawsuit accusing Coinbase of illegally marketing digital currencies to the public.`\
+https://nytimes.com/2025/05/15/technology/coinbase-sec-investigation.html
+
 **Ancient Romans, Pagans … and Trump?**\
 `Readers respond to a column by David Brooks. Also: President Trump’s contempt for ethical boundaries.`\
 https://nytimes.com/2025/05/15/opinion/ancient-romans-pagans-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6359297/2025/05/15/caitlin-clark-wnba-cards-panini/
 **Colorado Air Traffic Control Facility Lost Contact With Pilots**\
 `Controllers switched frequencies and planes were “safely separated,” officials said. The 90-second outage on Monday followed communications problems at Newark airport.`\
 https://nytimes.com/2025/05/15/business/air-traffic-control-denver-faa.html
-
-**Blackhawks launch Hall of Fame as part of centennial celebration**\
-`The Blackhawks Hall of Fame, which will have a physical space at Fifth Third Arena, will add two new players every year.`\
-https://nytimes.com/athletic/6356402/2025/05/15/blackhawks-hall-of-fame-centennial-celebration/
-
-**Go With the Grains**\
-`And make this assertively seasoned quinoa salad, a lemony farro salad with goat cheese and mint, and a soothing miso-mushroom barley soup.`\
-https://nytimes.com/2025/05/15/dining/quinoa-salad-protein.html
 
