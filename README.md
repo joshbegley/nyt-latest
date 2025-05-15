@@ -1,3 +1,15 @@
+**Oilers' latest playoff win formula? A defensive masterclass and an unsung hero**\
+`Kasperi Kapanen's 1-0 overtime goal was the Oilers' most unique win of the playoffs yet — and it bodes well for their Cup aspirations.`\
+https://nytimes.com/athletic/6358420/2025/05/15/oilers-nhl-playoffs-golden-knights-kapanen/
+
+**Bond Traders Enter the Budget Fight**\
+`Concerns about the deficit-stretching potential of President Trump’s tax plan is spooking some investors, even as Republicans argue over its particulars.`\
+https://nytimes.com/2025/05/15/business/dealbook/bond-traders-budget-tax-cuts.html
+
+**Arsenal fan survey results: Gyokeres over Sesko? Judging the season? Full support for Arteta?**\
+`We surveyed 6,000 Arsenal fans to get their thoughts on this season and what needs to change in summer`\
+https://nytimes.com/athletic/6356189/2025/05/15/arsenal-survey-results-2025/
+
 **Vardy set to end Leicester career on 500 games with send-off vs Ipswich**\
 `The 38-year-old announced last month he would be leaving the club after 13 years when his contract expires this summer.`\
 https://nytimes.com/athletic/6358604/2025/05/15/jamie-vardy-end-leicester-career/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6356229/2025/05/15/north-carolina-football-bill-bel
 **‘How does he hit that pitch?’ The greatness of Vladimir Guerrero Jr., distilled into a single swing**\
 `Guerrero Jr. golfed the first curveball he saw against Boston earlier this month for a game-winning homer: “How does he hit that pitch?”`\
 https://nytimes.com/athletic/6357649/2025/05/15/blue-jays-vladimir-guerrero-jr-greatness/
-
-**Rosenthal: How Pete Alonso's plate discipline improved after his swing was 'out of control' in 2024**\
-`Alonso worked on getting his hips in the correct position and it's paying dividends: "With that, I can see the ball better."`\
-https://nytimes.com/athletic/6357284/2025/05/15/mets-pete-alonso-plate-discipline-mechanics/
-
-**Michigan is on a QB recruiting roll. Its next blue-chipper has an intriguing new mentor**\
-`After signing No. 1 recruit Bryce Underwood, Michigan has a commitment from Smigiel, a top-100 recruit working with ex-Utah star Cam Rising.`\
-https://nytimes.com/athletic/6356606/2025/05/15/brady-smigiel-michigan-quarterbacks-rising-underwood/
-
-**In the NHL playoffs, finding the line – and sometimes crossing it — is half the battle**\
-`In the playoffs, NHL players do absolutely anything and everything they can to grind their opponents down: "It is a fine line."`\
-https://nytimes.com/athletic/6356586/2025/05/15/nhl-playoffs-officiating/
 
