@@ -1,5 +1,21 @@
+**NBA playoffs: Celtics narrow series to 3-2 in 127-102 win over Knicks**\
+`Boston won its first game of the series without star Jayson Tatum, who tore his Achilles in Game 4.`\
+https://nytimes.com/athletic/6357259/2025/05/14/knicks-celtics-warriors-timberwolves-nba-playoffs-takeaways/
+
+**Leafs pushed to brink of elimination after Game 5 loss to Panthers: Takeaways**\
+`Toronto laid an egg and got heavily booed by fans on home ice in Game 5 as Florida took a 3-2 series lead.`\
+https://nytimes.com/athletic/6356996/2025/05/14/maple-leafs-panthers-nhl-playoffs-2025-game-5-takeaways/
+
+**Bring Down the House**\
+`Simeon Seigel doesn’t not entertain us.`\
+https://nytimes.com/2025/05/14/crosswords/daily-puzzle-2025-05-15.html
+
+**Trump-Kushner Hotel Project in Serbia Hits a Snag: Alleged Forgery**\
+`Serbian authorities say an official admitted to forging a document allowing a protected site in Belgrade to be demolished and replaced with a Trump hotel.`\
+https://nytimes.com/2025/05/14/us/politics/trump-kushner-hotel-serbia.html
+
 **2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
-`The Commanders and Chiefs are the most popular spotlight contenders, leading the league with eight standalone games each.`\
+`The Commanders and Chiefs lead the league with eight standalone games each.`\
 https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
 
 **Afrikaner Granted Refugee Status by Trump Is Linked to Antisemitic Posts**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6357318/2025/05/14/college-football-otas-spring-pra
 **‘Fraught With Abuse’: Lawmakers Denounce Brutality in N.Y. Prisons**\
 `During a daylong hearing in Albany, state lawmakers heard from family members of men who died in New York State prisons in recent years.`\
 https://nytimes.com/2025/05/14/nyregion/new-york-prisons-lawmakers.html
-
-**In Menendez Brothers’ Case, a Reckoning With the 1990s**\
-`As a court reviewed the Menendez murder case, the culture and politics of the 1990s were scrutinized almost as much as the horrific crime.`\
-https://nytimes.com/2025/05/14/us/menendez-brothers-culture-politics.html
-
-**From the first-base box to circling the bases: Auburn's Andrew Dutton delivers a movie moment**\
-`Dutton, a graduate transfer from Birmingham-Southern, had spent all season as the first-base coach before homering in his first at-bat.`\
-https://nytimes.com/athletic/6357286/2025/05/14/andrew-dutton-auburn-home-run/
-
-**Cassie Ventura Says Sean Combs Used Sex Videos as Blackmail Tools**\
-`Ms. Ventura, Mr. Combs’s ex-girlfriend, said he threatened to use tapes of their sexual encounters, known as “freak-offs,” to control her behavior.`\
-https://nytimes.com/2025/05/14/arts/music/diddy-trial-cassie-casandra-ventura-sex-videos.html
-
-**Drug Overdose Deaths Plummeted in 2024, C.D.C. Reports**\
-`The progress comes as the Trump administration is proposing to cut funding for many programs believed to have contributed to the improvement.`\
-https://nytimes.com/2025/05/14/health/overdose-deaths-fentanyl.html
 

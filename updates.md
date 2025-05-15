@@ -1,3 +1,23 @@
+**NBA playoffs: Celtics narrow series to 3-2 in 127-102 win over Knicks**\
+`Boston won its first game of the series without star Jayson Tatum, who tore his Achilles in Game 4.`\
+https://nytimes.com/athletic/6357259/2025/05/14/knicks-celtics-warriors-timberwolves-nba-playoffs-takeaways/
+
+**Leafs pushed to brink of elimination after Game 5 loss to Panthers: Takeaways**\
+`Toronto laid an egg and got heavily booed by fans on home ice in Game 5 as Florida took a 3-2 series lead.`\
+https://nytimes.com/athletic/6356996/2025/05/14/maple-leafs-panthers-nhl-playoffs-2025-game-5-takeaways/
+
+**Bring Down the House**\
+`Simeon Seigel doesn’t not entertain us.`\
+https://nytimes.com/2025/05/14/crosswords/daily-puzzle-2025-05-15.html
+
+**Trump-Kushner Hotel Project in Serbia Hits a Snag: Alleged Forgery**\
+`Serbian authorities say an official admitted to forging a document allowing a protected site in Belgrade to be demolished and replaced with a Trump hotel.`\
+https://nytimes.com/2025/05/14/us/politics/trump-kushner-hotel-serbia.html
+
+**2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
+`The Commanders and Chiefs lead the league with eight standalone games each.`\
+https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
+
 **2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
 `The Commanders and Chiefs are the most popular spotlight contenders, leading the league with eight standalone games each.`\
 https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/

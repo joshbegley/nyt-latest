@@ -1,3 +1,7 @@
+**2025 NFL schedule: Week-by-week matchups, TV broadcasts and times**\
+`The full NFL regular-season schedule was released on Wednesday, so it is time to mark the best matchups on your calendar.`\
+https://nytimes.com/athletic/6357256/2025/05/14/nfl-schedule-week-by-week-2025/
+
 **NBA playoffs: Celtics narrow series to 3-2 in 127-102 win over Knicks**\
 `Boston won its first game of the series without star Jayson Tatum, who tore his Achilles in Game 4.`\
 https://nytimes.com/athletic/6357259/2025/05/14/knicks-celtics-warriors-timberwolves-nba-playoffs-takeaways/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/05/14/crosswords/daily-puzzle-2025-05-15.html
 `Serbian authorities say an official admitted to forging a document allowing a protected site in Belgrade to be demolished and replaced with a Trump hotel.`\
 https://nytimes.com/2025/05/14/us/politics/trump-kushner-hotel-serbia.html
 
-**2025-26 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
+**2025 NFL regular season key games: Commanders, Chiefs draw prime-time spotlight**\
 `The Commanders and Chiefs lead the league with eight standalone games each.`\
 https://nytimes.com/athletic/6353055/2025/05/14/nfl-regular-season-2025-2026-key-games/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/14/nyregion/eric-adams-nyc-marijuana-dispensaries.ht
 **Coaches view proposal to add NFL-style OTAs to college spring practice**\
 `Remaking the spring calendar has been a frequent point of discussion by the sport’s leaders.`\
 https://nytimes.com/athletic/6357318/2025/05/14/college-football-otas-spring-practice-schedule/
-
-**‘Fraught With Abuse’: Lawmakers Denounce Brutality in N.Y. Prisons**\
-`During a daylong hearing in Albany, state lawmakers heard from family members of men who died in New York State prisons in recent years.`\
-https://nytimes.com/2025/05/14/nyregion/new-york-prisons-lawmakers.html
 
