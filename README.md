@@ -1,3 +1,7 @@
+**Texas Woman Bought Guns for Son Who Was Planning School Shooting, Police Say**\
+`Ashley Pardo also purchased ammunition and tactical gear for the boy, 13, who had repeatedly expressed interest in committing a school shooting, the authorities said.`\
+https://nytimes.com/2025/05/15/us/texas-mom-arrested-school-shooting.html
+
 **Scottie Scheffler, Xander Schauffele and the fight for preferred lies**\
 `"It's frustrating to hit the ball in the middle of the fairway and get mud on it and have no idea where it's going to go."`\
 https://nytimes.com/athletic/6359352/2025/05/15/pga-championship-2025-scheffler-schauffele-rules/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360081/2025/05/15/christian-barmore-patriots-healt
 **Here’s What’s in the Big Domestic Policy Bill to Deliver Trump’s Agenda**\
 `A large tax cut, as well as more money for defense and immigration enforcement, would be financed by slashing health, nutrition, education and clean energy programs.`\
 https://nytimes.com/2025/05/15/us/politics/house-gop-tax-bill-trump.html
-
-**He Denounced the Gaza War at Graduation. N.Y.U. Withheld His Diploma.**\
-`The university says that a student’s remarks condemning “genocide” were not approved and that he “violated the commitment he made to comply with our rules.”`\
-https://nytimes.com/2025/05/15/nyregion/nyu-commencement-speaker-pro-palestinian-diploma.html
 
