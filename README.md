@@ -1,3 +1,7 @@
+**Buckley: Tatum-less Celtics notify Knicks that there's more backetball to be played**\
+`The Celtics were without Jayson Tatum and written off by some, but that talk is on hold after they controlled Game 5 to extend the series.`\
+https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playoffs/
+
 **Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
 `The Minecraft-themed video showing a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
 https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6357966/2025/05/15/detroit-tigers-best-record-red-s
 **Mirtle: Why this Maple Leafs loss might be their worst one yet**\
 `The Leafs have cultivated a record for postseason implosions, but the latest no-show arguably takes the cake.`\
 https://nytimes.com/athletic/6357904/2025/05/15/maple-leafs-worst-loss-nhl-playoffs/
-
-**Max Dowman's goals: Breaking down the latest additions to the 15-year-old's showreel**\
-`Described as “unreal” by Declan Rice, Max Dowman has been on fire for Arsenal's under-18s`\
-https://nytimes.com/athletic/6355210/2025/05/15/max-dowman-arsenal-showreel/
 
