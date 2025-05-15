@@ -1,3 +1,8 @@
+**'Everybody's got to look in the mirror': Leafs reflect on ugly Game 5 loss**\
+`Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
+`\
+https://nytimes.com/athletic/6357978/2025/05/15/maple-leafs-nhl-playoffs-panthers-game-5/
+
 **Max Dowman's goals: Breaking down the latest additions to the 15-year-old's showreel**\
 `Described as “unreal” by Declan Rice, Max Dowman has been on fire for Arsenal's under-18s`\
 https://nytimes.com/athletic/6355210/2025/05/15/max-dowman-arsenal-showreel/

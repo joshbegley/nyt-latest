@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html
+
+**'I don't think teams enjoy playing us': No longer novelties, Tigers have best record in MLB**\
+`The Tigers earned another walk-off win to complete a three-game sweep of the Red Sox on Wednesday.`\
+https://nytimes.com/athletic/6357966/2025/05/15/detroit-tigers-best-record-red-sox/
+
 **Mirtle: Why this Maple Leafs loss might be their worst one yet**\
 `The Leafs have cultivated a record for postseason implosions, but the latest no-show arguably takes the cake.`\
 https://nytimes.com/athletic/6357904/2025/05/15/maple-leafs-worst-loss-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6356374/2025/05/15/cristiano-ronaldo-jr-portugal-sa
 **Adam Wharton's passing playbook: Quick switches of play and a natural eye for progression**\
 `The Crystal Palace midfielder takes risks with his passes, pushing incisively through pressure and propelling his team up the pitch`\
 https://nytimes.com/athletic/6355121/2025/05/15/adam-wharton-palace-passing-playbook/
-
-**Inside Goodison Park: Packed with history, lovingly unique, basic but beloved**\
-`The Athletic went behind the scenes as Goodison Park prepares to host its final Premier League game `\
-https://nytimes.com/athletic/6355194/2025/05/15/everton-inside-goodison-park-tour/
-
-**Just how entertaining is the Premier League in 2025?**\
-`Pressing matters were wrapped up early this season - but does that mean the football itself is a less enjoyable watch than it used to be?`\
-https://nytimes.com/athletic/6339168/2025/05/15/premier-league-entertainment-analysis/
 
