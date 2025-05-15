@@ -1,3 +1,7 @@
+**Mirtle: Why this Maple Leafs loss might be their worst one yet**\
+`The Leafs have cultivated a record for postseason implosions, but the latest no-show arguably takes the cake.`\
+https://nytimes.com/athletic/6357904/2025/05/15/maple-leafs-worst-loss-nhl-playoffs/
+
 **Max Dowman's goals: Breaking down the latest additions to the 15-year-old's showreel**\
 `Described as “unreal” by Declan Rice, Max Dowman has been on fire for Arsenal's under-18s`\
 https://nytimes.com/athletic/6355210/2025/05/15/max-dowman-arsenal-showreel/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6355194/2025/05/15/everton-inside-goodison-park-tou
 **Just how entertaining is the Premier League in 2025?**\
 `Pressing matters were wrapped up early this season - but does that mean the football itself is a less enjoyable watch than it used to be?`\
 https://nytimes.com/athletic/6339168/2025/05/15/premier-league-entertainment-analysis/
-
-**'Everybody's got to look in the mirror': Leafs reflect on ugly Game 5 loss**\
-`Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
-`\
-https://nytimes.com/athletic/6357978/2025/05/15/maple-leafs-nhl-playoffs-panthers-game-5/
 

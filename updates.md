@@ -1,3 +1,24 @@
+**Max Dowman's goals: Breaking down the latest additions to the 15-year-old's showreel**\
+`Described as “unreal” by Declan Rice, Max Dowman has been on fire for Arsenal's under-18s`\
+https://nytimes.com/athletic/6355210/2025/05/15/max-dowman-arsenal-showreel/
+
+**It has been an unnerving time at Forest - courageous Awoniyi just wanted to help his team**\
+`Taiwo Awoniyi was put in an induced coma after suffering injuries more akin to a car crash than playing in a football match`\
+https://nytimes.com/athletic/6341838/2025/05/15/awoniyi-injury-nottingham-forest-coma/
+
+**Tijjani Reijnders analysed: A ready-made 'Guardiola player' with the traits of some City greats**\
+`What the 26-year-old Milan and Netherlands international midfielder would bring to the Etihad...`\
+https://nytimes.com/athletic/6355809/2025/05/15/tijjani-reijnders-analysed/
+
+**Fantasy Premier League: How FPL managers can navigate cup-final rotations**\
+`With two cup finals involving four Premier League teams happening over the next seven days, here are your best options`\
+https://nytimes.com/athletic/6352223/2025/05/15/fantasy-premier-league-how-to-navigate-cup-final-rotations/
+
+**'Everybody's got to look in the mirror': Leafs reflect on ugly Game 5 loss**\
+`Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
+`\
+https://nytimes.com/athletic/6357978/2025/05/15/maple-leafs-nhl-playoffs-panthers-game-5/
+
 **'Everybody's got to look in the mirror': Leafs reflect on ugly Game 5 loss**\
 `Toronto tried to defend one of its most embarrassing recent playoff losses, but also focused on the mindset ahead of Game 6 in Florida.
 `\
