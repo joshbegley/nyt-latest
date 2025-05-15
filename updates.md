@@ -1,3 +1,15 @@
+**Lawmakers in Both Parties Resist Trump’s Attempt to Seize Control of Their Library**\
+`The surprise firing of the head of the Library of Congress and efforts to install Trump loyalists at the iconic institution have stirred bipartisan pushback on Capitol Hill.`\
+https://nytimes.com/2025/05/15/us/politics/library-of-congress-trump.html
+
+**Rubio Meets Syrian Foreign Minister, in Another Sign of Warming Ties**\
+`The meeting came days after President Trump announced he would end sanctions against Syria and met with the country’s president, a former jihadist.`\
+https://nytimes.com/2025/05/15/world/middleeast/syria-marco-rubio-trump-sanctions.html
+
+**Trump Administration Escalates Harvard Feud With New Justice Dept. Investigation**\
+`The Trump administration is targeting the Ivy League university under a law typically used to go after government contractors for swindling.`\
+https://nytimes.com/2025/05/15/us/politics/harvard-justice-dept-investigation.html
+
 **Fantasy baseball bullpen report featuring slumping closers Jeff Hoffman, Raisel Iglesias**\
 `Greg Jewett keeps you updated on notable MLB bullpen developments for fantasy baseball, including a breakdown of Jeff Hoffman's struggles.`\
 https://nytimes.com/athletic/6359669/2025/05/15/fantasy-baseball-bullpen-report-closers-hoffman-iglesias/
