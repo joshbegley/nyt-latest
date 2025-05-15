@@ -1,3 +1,27 @@
+**Dick's Sporting Goods to acquire Foot Locker in $2.4 billion deal: Analysis**\
+`The combined athletic retail enterprise will have more than 3,200 stores and expand the global footprint of Dick's.`\
+https://nytimes.com/athletic/6358988/2025/05/15/dicks-sporting-goods-to-acquire-foot-locker-in-2-4-billion-deal-analysis/
+
+**What the U.S. Has Argued in the Meta Antitrust Trial**\
+`The government showed hundreds of internal documents as it sought to prove that the social media company bought Instagram and WhatsApp to neutralize a threat.`\
+https://nytimes.com/2025/05/15/technology/meta-trial-ftc-takeaways.html
+
+**Drivers say Sainz Sr. would be a great FIA president. The incumbent doesn't want to leave**\
+`Rallying legend Carlos Sainz - his son a Williams F1 driver - is mulling a run at the FIA presidency. But the hurdles may be too high`\
+https://nytimes.com/athletic/6359703/2025/05/15/f1-carlos-sainz-sr-fia-president-mohamed-ben-sulayem/
+
+**Chargers request approval to sell 8 percent stake to Arctos: Sources**\
+`If the sale is approved, Chargers owner Dean Spanos and his family would retain a controlling stake in the club at approximately 61 percent.`\
+https://nytimes.com/athletic/6359786/2025/05/15/chargers-sale-request-minority-stake-nfl/
+
+**Carlos Correa, Byron Buxton exit Twins-Orioles game after outfield collision**\
+`The pair collided while trying to track down Cedric Mullins’ shallow fly ball to start the third inning. `\
+https://nytimes.com/athletic/6359794/2025/05/15/carlos-correa-byron-buxton-collision-twins-orioles/
+
+**Palme d’Or Projections: Has Cannes Found Its Early Front-runner?**\
+`“Sound of Falling,” which tracks four German girls over the course of a century, drew early raves. But it might not go the distance.`\
+https://nytimes.com/2025/05/15/movies/cannes-palme-dor-front-runner.html
+
 **Florida Just Banned Fluoride From Public Water. Here’s What to Know.**\
 `Medical experts have warned that ending fluoridation will have negative consequences for oral health.`\
 https://nytimes.com/2025/05/15/us/politics/florida-fluoride-water-ban.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6359739/2025/05/15/charles-woodson-buy-stake-clevel
 **Players in group chat strategized how to respond to Hockey Canada investigation**\
 `"We all need to say the same thing if we get interviewed," one player said in the group chat.`\
 https://nytimes.com/athletic/6359509/2025/05/15/hockey-canada-sexual-assault-trial-player-texts/
-
-**Conservative Republicans Revolt Over Domestic Policy Bill, Threatening Its Path**\
-`The opposition of right-wing lawmakers who are pressing for deeper spending cuts could derail the legislation before it gets to the House floor.`\
-https://nytimes.com/2025/05/15/us/politics/republicans-domestic-policy-bill.html
-
-**F.B.I. Dismantles Elite Public Corruption Squad**\
-`Disbanding the group, which was responsible for rooting out corruption in Congress and fraud across government agencies, appears at odds with a major priority of the Trump administration.`\
-https://nytimes.com/2025/05/15/us/politics/fbi-public-corruption-squad-trump.html
-
-**How to Master the Art of People-Watching**\
-`A winning essay by Aziz AbdullaZoda, age 17.`\
-https://nytimes.com/2025/05/15/learning/how-to-master-the-art-of-people-watching.html
-
-**‘Doctor Odyssey’ Is a Dream Boat Doctor fantasy**\
-`The sexy ABC series, the first season of which ends on Thursday, is only sort of a doctor show. It is better understood as a fantasy.`\
-https://nytimes.com/2025/05/15/arts/television/doctor-odyssey-finale.html
-
-**How to Be a Stargazer**\
-`A winning essay by Aditya Neil Banerjee, age 16.`\
-https://nytimes.com/2025/05/15/learning/how-to-be-a-stargazer.html
-
-**How to Survive as a Manchester United Fan**\
-`A winning essay by Abdur Rahman, age 17.`\
-https://nytimes.com/2025/05/15/learning/how-to-survive-as-a-manchester-united-fan.html
 

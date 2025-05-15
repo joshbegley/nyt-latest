@@ -1,3 +1,27 @@
+**Dick's Sporting Goods to acquire Foot Locker in $2.4 billion deal: Analysis**\
+`The combined athletic retail enterprise will have more than 3,200 stores and expand the global footprint of Dick's.`\
+https://nytimes.com/athletic/6358988/2025/05/15/dicks-sporting-goods-to-acquire-foot-locker-in-2-4-billion-deal-analysis/
+
+**What the U.S. Has Argued in the Meta Antitrust Trial**\
+`The government showed hundreds of internal documents as it sought to prove that the social media company bought Instagram and WhatsApp to neutralize a threat.`\
+https://nytimes.com/2025/05/15/technology/meta-trial-ftc-takeaways.html
+
+**Drivers say Sainz Sr. would be a great FIA president. The incumbent doesn't want to leave**\
+`Rallying legend Carlos Sainz - his son a Williams F1 driver - is mulling a run at the FIA presidency. But the hurdles may be too high`\
+https://nytimes.com/athletic/6359703/2025/05/15/f1-carlos-sainz-sr-fia-president-mohamed-ben-sulayem/
+
+**Chargers request approval to sell 8 percent stake to Arctos: Sources**\
+`If the sale is approved, Chargers owner Dean Spanos and his family would retain a controlling stake in the club at approximately 61 percent.`\
+https://nytimes.com/athletic/6359786/2025/05/15/chargers-sale-request-minority-stake-nfl/
+
+**Carlos Correa, Byron Buxton exit Twins-Orioles game after outfield collision**\
+`The pair collided while trying to track down Cedric Mullins’ shallow fly ball to start the third inning. `\
+https://nytimes.com/athletic/6359794/2025/05/15/carlos-correa-byron-buxton-collision-twins-orioles/
+
+**Palme d’Or Projections: Has Cannes Found Its Early Front-runner?**\
+`“Sound of Falling,” which tracks four German girls over the course of a century, drew early raves. But it might not go the distance.`\
+https://nytimes.com/2025/05/15/movies/cannes-palme-dor-front-runner.html
+
 **Florida Just Banned Fluoride From Public Water. Here’s What to Know.**\
 `Medical experts have warned that ending fluoridation will have negative consequences for oral health.`\
 https://nytimes.com/2025/05/15/us/politics/florida-fluoride-water-ban.html
