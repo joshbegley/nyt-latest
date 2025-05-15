@@ -1,3 +1,7 @@
+**Minnesota Frost head to PWHL Final with series-clinching Game 4 win over Toronto**\
+`The Frost, who are the reigning Walter Cup champions, head back to the Final after eliminating Toronto for the second straight year.`\
+https://nytimes.com/athletic/6357697/2025/05/14/minnesota-frost-pwhl-playoffs-toronto-sceptres-elimination/
+
 **Every NFL team’s 2025 regular-season schedule**\
 `A team-by-team chart of every teams' 2025 NFL schedule.`\
 https://nytimes.com/athletic/6357227/2025/05/14/nfl-schedule-2025-release-all-teams/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6357259/2025/05/14/knicks-celtics-warriors-timberwo
 **Leafs pushed to brink of elimination after Game 5 loss to Panthers: Takeaways**\
 `Toronto laid an egg and got heavily booed by fans on home ice in Game 5 as Florida took a 3-2 series lead.`\
 https://nytimes.com/athletic/6356996/2025/05/14/maple-leafs-panthers-nhl-playoffs-2025-game-5-takeaways/
-
-**Bring Down the House**\
-`Simeon Seigel doesn’t not entertain us.`\
-https://nytimes.com/2025/05/14/crosswords/daily-puzzle-2025-05-15.html
 
