@@ -1,3 +1,7 @@
+**Ex-Girlfriend of Sean Combs is Confronted by His Lawyer Over ‘Freak-Offs’**\
+`During cross-examination, the defense team depicted Casandra Ventura as fully engaged in staging and participating in the marathon sex sessions she says were abusive.`\
+https://nytimes.com/2025/05/15/arts/music/cassie-diddy-trial-combs-defense.html
+
 **She Vanished for 3 Weeks in the Sierra. Then the Phone Rang: ‘Dad, I’m Alive.’**\
 `A search for Tiffany Slaton, 28, covered roughly 600 square miles of mountainous terrain in California. She was found at a cabin, where she waited out a blizzard.`\
 https://nytimes.com/2025/05/15/us/missing-camper-safe-sierra-nevada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360453/2025/05/15/pga-championship-2025-mud-ball-g
 **Federal Officials May Limit Recommendations for Covid Vaccine**\
 `With new testing requirements, it’s not even clear how new Covid or flu shots can be made available this fall.`\
 https://nytimes.com/2025/05/15/health/covid-vaccine-recommendations.html
-
-**The five moments that defined Barcelona's La Liga-winning season**\
-`It has been a brilliant season for Barca. Here, we chart the ups and downs of their title triumph...`\
-https://nytimes.com/athletic/6356086/2025/05/15/barcelona-la-liga-title-win-five-moments/
 
