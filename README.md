@@ -1,3 +1,11 @@
+**Top prospect Dalton Rushing gets call from Dodgers, replacing a clubhouse 'pillar'**\
+`The Dodgers summoned the No. 16 prospect in baseball to catch twice per week. The rookie replaces a beloved veteran.`\
+https://nytimes.com/athletic/6357623/2025/05/14/dodgers-dalton-rushing-catcher/
+
+**Paul Goldschmidt sought Yankees fan favorite's advice. It paid off**\
+`Former Yankee Matt Carpenter had tips for how Paul Goldschmidt could stay ready while on the bench.`\
+https://nytimes.com/athletic/6357597/2025/05/14/yankees-paul-goldschmidt-matt-carpenter-advice/
+
 **2025 NFL schedule: Week-by-week matchups, TV broadcasts and times**\
 `The full NFL regular-season schedule was released on Wednesday, so it is time to mark the best matchups on your calendar.`\
 https://nytimes.com/athletic/6357256/2025/05/14/nfl-schedule-week-by-week-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/14/us/politics/trump-afrikaner-refugee-antisemitism.
 **Missouri Voters Overturned an Abortion Ban. Lawmakers Will Ask Them to Reconsider.**\
 `The state’s Republicans are putting abortion on a ballot question again, seeking to buck the trend of voters siding with abortion rights on ballot measures.`\
 https://nytimes.com/2025/05/14/us/missouri-abortion-ban-lawmakers.html
-
-**Why New York City Is Removing Padlocks on Illegal Weed Shops It Closed**\
-`With the court orders that allowed the city to seal illicit cannabis stores starting to expire, questions remain about whether the shops could reopen.`\
-https://nytimes.com/2025/05/14/nyregion/eric-adams-nyc-marijuana-dispensaries.html
-
-**Coaches view proposal to add NFL-style OTAs to college spring practice**\
-`Remaking the spring calendar has been a frequent point of discussion by the sport’s leaders.`\
-https://nytimes.com/athletic/6357318/2025/05/14/college-football-otas-spring-practice-schedule/
 
