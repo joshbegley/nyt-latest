@@ -1,3 +1,15 @@
+**When Will the Supreme Court Rule on Birthright Citizenship?**\
+`Rulings in a term’s biggest cases tend not to arrive until early summer, but this case’s compressed timeline may alter its timing.`\
+https://nytimes.com/2025/05/15/us/politics/when-will-supreme-court-rule-citizenship.html
+
+**Scoop City: Unpacking the 2025 NFL schedules (and videos)**\
+`I felt something while reading the NFL&#8217;s 2025 schedule last night.`\
+https://nytimes.com/athletic/6359562/2025/05/15/nfl-2025-schedule-winners-losers-videos-social-scoop-city/
+
+**NFL players in Olympic flag football? League could vote next week**\
+`The proposal would only allow one player on each NFL roster to try out for an Olympic team.`\
+https://nytimes.com/athletic/6359478/2025/05/15/nfl-olympics-flag-football-player-eligibility/
+
 **Judge Rules Internal Congestion Pricing Memo Can’t Be Used in Court**\
 `The document, which had accidentally been released by the government’s lawyers, detailed the weaknesses in its legal effort to end the tolling program in Manhattan.`\
 https://nytimes.com/2025/05/15/nyregion/nyc-congestion-pricing-memo.html
@@ -11,7 +23,7 @@ https://nytimes.com/2025/05/15/arts/dance/theatertreffen-kontakthof-sancta.html
 https://nytimes.com/2025/05/15/weather/midwest-tornadoes-storms.html
 
 **WTA chairman Steve Simon announces his retirement**\
-`The 70-year-old took over as leader of the women’s professional tennis tour in 2015, and led a boycott against China over Peng Shuai in 2021`\
+`The 70-year-old took over as leader of the women’s professional tennis tour in 2015, and led a boycott against China over Peng Shuai in 2021.`\
 https://nytimes.com/athletic/6359520/2025/05/15/steve-simon-wta-retire/
 
 **Andrew Cassell, Daring Sailor Who Won Paralympic Gold, Dies at 82**\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston
 **Everton ban fan for trying to remove Goodison Park seat with tools**\
 `The club state the individual brought tools into the 133-year-old stadium for the top-flight fixture against Ipswich Town on May 3.`\
 https://nytimes.com/athletic/6359396/2025/05/15/everton-fan-banned-goodison-park-final-game/
-
-**After collapse against Pacers, 'respect' isn't the issue for Cavaliers**\
-`The Cleveland Cavaliers earned their flowers during a 64-win season, with more still coming. They must look within to answer new questions.`\
-https://nytimes.com/athletic/6359019/2025/05/15/cleveland-cavaliers-nba-playoffs-donovan-mitchell-pacers/
-
-**Video: An Event to Celebrate Asian American Culture**\
-`The event marked the culmination of The New York Times series focusing on the rising effect of the A.A.P.I. community on American culture.`\
-https://nytimes.com/2025/05/15/arts/asian-american-event-laufey-kuang.html
-
-**Twins shake up starting rotation, demote Simeon Woods Richardson to the minors**\
-`Woods Richardson has struggled since last July and the Twins have two appealing Triple-A alternatives in David Festa and Zebby Matthews.`\
-https://nytimes.com/athletic/6359344/2025/05/15/twins-rotation-simeon-woods-richardson-minors/
 

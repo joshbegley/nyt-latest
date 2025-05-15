@@ -1,3 +1,7 @@
+**Judge Rules Internal Congestion Pricing Memo Can’t Be Used in Court**\
+`The document, which had accidentally been released by the government’s lawyers, detailed the weaknesses in its legal effort to end the tolling program in Manhattan.`\
+https://nytimes.com/2025/05/15/nyregion/nyc-congestion-pricing-memo.html
+
 **At Theatertreffen Festival, Bodies Do the Talking**\
 `Choreographer-led works at the annual German theater event range from the transgressive to the melancholic.`\
 https://nytimes.com/2025/05/15/arts/dance/theatertreffen-kontakthof-sancta.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/15/arts/asian-american-event-laufey-kuang.html
 **Twins shake up starting rotation, demote Simeon Woods Richardson to the minors**\
 `Woods Richardson has struggled since last July and the Twins have two appealing Triple-A alternatives in David Festa and Zebby Matthews.`\
 https://nytimes.com/athletic/6359344/2025/05/15/twins-rotation-simeon-woods-richardson-minors/
-
-**Live by the Loomer, Die by the Loomer**\
-`Nasty MAGA infighting means trouble for Trump.`\
-https://nytimes.com/2025/05/15/opinion/laura-loomer-trump.html
 

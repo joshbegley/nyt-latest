@@ -1,3 +1,12 @@
+**Judge Rules Internal Congestion Pricing Memo Can’t Be Used in Court**\
+`The document, which had accidentally been released by the government’s lawyers, detailed the weaknesses in its legal effort to end the tolling program in Manhattan.`\
+https://nytimes.com/2025/05/15/nyregion/nyc-congestion-pricing-memo.html
+
+**Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
+`NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
+`\
+https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston-celtics/
+
 **At Theatertreffen Festival, Bodies Do the Talking**\
 `Choreographer-led works at the annual German theater event range from the transgressive to the melancholic.`\
 https://nytimes.com/2025/05/15/arts/dance/theatertreffen-kontakthof-sancta.html
