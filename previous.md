@@ -1,3 +1,12 @@
+**Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
+`NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
+`\
+https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston-celtics/
+
+**Everton ban fan for trying to remove Goodison Park seat with tools**\
+`The club state the individual brought tools into the 133-year-old stadium for the top-flight fixture against Ipswich Town on May 3.`\
+https://nytimes.com/athletic/6359396/2025/05/15/everton-fan-banned-goodison-park-final-game/
+
 **After collapse against Pacers, 'respect' isn't the issue for Cavaliers**\
 `The Cleveland Cavaliers earned their flowers during a 64-win season, with more still coming. They must look within to answer new questions.`\
 https://nytimes.com/athletic/6359019/2025/05/15/cleveland-cavaliers-nba-playoffs-donovan-mitchell-pacers/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6359181/2025/05/15/fantasy-football-nfl-schedule-ta
 **Luigi Alva, Elegant Tenor With a Lighthearted Touch, Dies at 98**\
 `A Peruvian-born international star, he made a specialty of roles in operas by Donizetti, Rossini and Mozart, becoming one of their pre-eminent interpreters.`\
 https://nytimes.com/2025/05/15/arts/music/luigi-alva-dead.html
-
-**The Bounce: Will this season's champion be the healthiest (and last) team standing?**\
-`Health becomes a major talking point of any NBA postseason. Will it be the deciding factor for this season's champion?`\
-https://nytimes.com/athletic/6358937/2025/05/15/anthony-edwards-timberwolves-warriors-pacers-celtics-knicks-thunder-nuggets-nba-playoffs-the-bounce/
-
-**An Iranian Student in U.S. Detention Makes a Hard Choice: Stay or Go Home**\
-`Few rallied around Alireza Doroudi, who spent weeks detained on murky charges. With hope he might win, but facing extended detention, he had to decide whether to keep fighting his case.`\
-https://nytimes.com/2025/05/15/us/doroudi-student-visa-detention.html
 

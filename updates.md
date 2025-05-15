@@ -1,3 +1,12 @@
+**Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
+`NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
+`\
+https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston-celtics/
+
+**Everton ban fan for trying to remove Goodison Park seat with tools**\
+`The club state the individual brought tools into the 133-year-old stadium for the top-flight fixture against Ipswich Town on May 3.`\
+https://nytimes.com/athletic/6359396/2025/05/15/everton-fan-banned-goodison-park-final-game/
+
 **After collapse against Pacers, 'respect' isn't the issue for Cavaliers**\
 `The Cleveland Cavaliers earned their flowers during a 64-win season, with more still coming. They must look within to answer new questions.`\
 https://nytimes.com/athletic/6359019/2025/05/15/cleveland-cavaliers-nba-playoffs-donovan-mitchell-pacers/
