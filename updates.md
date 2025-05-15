@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Luke Broadwater, Jonathan Swan and Qasim Nauman`\
+https://nytimes.com/live/2025/05/15/us/trump-news/heres-the-latest
+
 **Live Updates: Trump to Visit U.A.E. in Last Stop of Middle East Tour**\
 `In Qatar on Thursday, President Trump is scheduled to visit the largest U.S. military base in the region. He will then fly to the United Arab Emirates, another key ally.`\
 https://nytimes.com/live/2025/05/15/us/trump-news
