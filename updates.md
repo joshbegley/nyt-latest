@@ -1,3 +1,7 @@
+**Colts delete schedule release video that mocks Tyreek Hill getting arrested**\
+`The Minecraft-themed video showed a dolphin with the username Hill and the jersey number 10 being arrested by the coast guard.`\
+https://nytimes.com/athletic/6358117/2025/05/15/colts-schedule-release-video-tyreek-hill-arrested/
+
 **Knicks' 3-point defense was disastrous in Game 5 loss to Celtics: Film breakdown**\
 `New York let one of the league's best 3-point teams get comfortable, and it cost it a game and, maybe, the series.`\
 https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-point-defense/
