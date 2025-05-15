@@ -1,3 +1,7 @@
+**Ukraine’s President Lands in Turkey for Peace Talks with Russia**\
+`President Volodymyr Zelensky of Ukraine said he did not know the level of representation of the Russian delegation, as he landed in Ankara for peace talks with Russia on Thursday.`\
+https://nytimes.com/video/world/middleeast/100000010171166/zelensky-turkey-peace-talks-russia.html
+
 **Oilers' latest playoff win formula? A defensive masterclass and an unsung hero**\
 `Kasperi Kapanen's 1-0 overtime goal was the Oilers' most unique win of the playoffs yet — and it bodes well for their Cup aspirations.`\
 https://nytimes.com/athletic/6358420/2025/05/15/oilers-nhl-playoffs-golden-knights-kapanen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356737/2025/05/15/anthony-edwards-timberwolves-pla
 **North Carolina, Bill Belichick added 30-plus players from transfer portal: Are they any good?**\
 `North Carolina's transfer class includes only two players who were full-time starters at a Power 4 program in 2024. `\
 https://nytimes.com/athletic/6356229/2025/05/15/north-carolina-football-bill-belichick-transfer-portal/
-
-**‘How does he hit that pitch?’ The greatness of Vladimir Guerrero Jr., distilled into a single swing**\
-`Guerrero Jr. golfed the first curveball he saw against Boston earlier this month for a game-winning homer: “How does he hit that pitch?”`\
-https://nytimes.com/athletic/6357649/2025/05/15/blue-jays-vladimir-guerrero-jr-greatness/
 
