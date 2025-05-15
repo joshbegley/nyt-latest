@@ -1,3 +1,15 @@
+**How a Two-Story Boulder Ended Up on a 120-Foot-High Cliff**\
+`The rock called Maka Lahi is important in the mythology of the people of Tonga, and scientists have worked out part of its origin story.`\
+https://nytimes.com/2025/05/15/science/boulder-tsunami-tonga.html
+
+**The Pope Grew Up in This House. Now, It Could Be Yours.**\
+`The same auction house that sold President Trump’s childhood home for millions in 2017 will take bids for the modest three-bedroom where Pope Leo XIV once lived.`\
+https://nytimes.com/2025/05/15/realestate/pope-leo-xiv-chicago-home-auction.html
+
+**Smokey Robinson Faces Criminal Investigation After Assault Allegations**\
+`The Motown legend, who was accused in a lawsuit earlier this month of sexually assaulting four former housekeepers, is being investigated by the Los Angeles County Sheriff’s Department.`\
+https://nytimes.com/2025/05/15/arts/music/smokey-robinson-criminal-investigation.html
+
 **Patriots DT Christian Barmore hoping to be ready for Week 1**\
 `The 25-year-old missed most of last season but is expected to be a full go for the Patriots' first OTA practices next week.`\
 https://nytimes.com/athletic/6360081/2025/05/15/christian-barmore-patriots-health-blood-clots/

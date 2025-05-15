@@ -1,3 +1,15 @@
+**How a Two-Story Boulder Ended Up on a 120-Foot-High Cliff**\
+`The rock called Maka Lahi is important in the mythology of the people of Tonga, and scientists have worked out part of its origin story.`\
+https://nytimes.com/2025/05/15/science/boulder-tsunami-tonga.html
+
+**The Pope Grew Up in This House. Now, It Could Be Yours.**\
+`The same auction house that sold President Trump’s childhood home for millions in 2017 will take bids for the modest three-bedroom where Pope Leo XIV once lived.`\
+https://nytimes.com/2025/05/15/realestate/pope-leo-xiv-chicago-home-auction.html
+
+**Smokey Robinson Faces Criminal Investigation After Assault Allegations**\
+`The Motown legend, who was accused in a lawsuit earlier this month of sexually assaulting four former housekeepers, is being investigated by the Los Angeles County Sheriff’s Department.`\
+https://nytimes.com/2025/05/15/arts/music/smokey-robinson-criminal-investigation.html
+
 **Patriots DT Christian Barmore hoping to be ready for Week 1**\
 `The 25-year-old missed most of last season but is expected to be a full go for the Patriots' first OTA practices next week.`\
 https://nytimes.com/athletic/6360081/2025/05/15/christian-barmore-patriots-health-blood-clots/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/05/15/us/trump-news/in-farewell-email-ed-martin-di
 **Senate Rejects Democrats’ Bid to Force State Dept. to Report on Rights in El Salvador**\
 `The measure would have compelled the administration to inform Congress about how it is complying with court orders involving deportees to El Salvador and to provide a human rights report on the nation.`\
 https://nytimes.com/2025/05/15/us/politics/senate-rejects-democrats-bid-to-force-state-dept-to-report-on-rights-in-el-salvador.html
-
-**The Justices Can’t Avoid Trump’s Blow Against the Constitution**\
-`Procedure was supposed to be beside the point at Thursday’s arguments. But the unconstitutionality and impracticality of Trump’s order was inescapable.`\
-https://nytimes.com/live/2025/05/05/opinion/thepoint/birthright-citizenship-oral-arguments-constitution
-
-**Hull sack Ruben Selles despite Championship survival**\
-`Selles is the third Hull manager to be sacked in the last 12 months.`\
-https://nytimes.com/athletic/6360035/2025/05/15/ruben-selles-hull-sacked/
-
-**Why Is Everyone Talking About Lorde’s New Song?**\
-`A new song presents a looser, more liberated version of the pop star. While the title asks, “What Was That,” the better question might be, “What comes next?”`\
-https://nytimes.com/video/podcasts/100000010170156/why-is-everyone-talking-about-lordes-new-song.html
 

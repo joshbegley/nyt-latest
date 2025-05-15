@@ -1,3 +1,15 @@
+**‘Rotten Legacy’ Is a Soapy Spanish Succession Story**\
+`The premise of this foreign Netflix drama makes it sound a lot like “Succession,” but it isn’t trying to be. It’s brighter and pulpier than that.`\
+https://nytimes.com/2025/05/15/arts/television/rotten-legacy-netflix.html
+
+**Fletcher announces Wrexham departure**\
+`The 38-year-old revealed the decision to call time on his spell at the recently-promoted Welsh side is “not by choice”`\
+https://nytimes.com/athletic/6360122/2025/05/15/steven-fletcher-wrexham-departure/
+
+**U.S. Unveils Sweeping A.I. Project in Abu Dhabi**\
+`President Trump signed deals to create a 10-mile campus that would transform the United Arab Emirates into an A.I. powerhouse`\
+https://nytimes.com/2025/05/15/us/politics/ai-us-abu-dhabi.html
+
 **How a Two-Story Boulder Ended Up on a 120-Foot-High Cliff**\
 `The rock called Maka Lahi is important in the mythology of the people of Tonga, and scientists have worked out part of its origin story.`\
 https://nytimes.com/2025/05/15/science/boulder-tsunami-tonga.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/15/nyregion/nyu-commencement-speaker-pro-palestinian
 **Where to Eat: Kitsch Is King**\
 `It’s hard to be in a bad mood when you’re drinking a frozen margarita with a flamingo straw.`\
 https://nytimes.com/2025/05/15/dining/where-to-eat-kitsch-is-king.html
-
-**Fantasy baseball waiver wire pickups featuring Colt Keith, Logan Henderson and more**\
-`John Laghezza highlights the hot bat of Colt Keith as he puts the best fantasy baseball free-agent candidates of the week on display.`\
-https://nytimes.com/athletic/6356621/2025/05/15/fantasy-baseball-waiver-wire-pickups-colt-keith-logan-henderson/
-
-**In farewell email, Ed Martin discloses that he faces an ethics investigation.**\
-`By Devlin Barrett and Glenn Thrush`\
-https://nytimes.com/live/2025/05/15/us/trump-news/in-farewell-email-ed-martin-discloses-that-he-faces-an-ethics-investigation
-
-**Senate Rejects Democrats’ Bid to Force State Dept. to Report on Rights in El Salvador**\
-`The measure would have compelled the administration to inform Congress about how it is complying with court orders involving deportees to El Salvador and to provide a human rights report on the nation.`\
-https://nytimes.com/2025/05/15/us/politics/senate-rejects-democrats-bid-to-force-state-dept-to-report-on-rights-in-el-salvador.html
 
