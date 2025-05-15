@@ -1,3 +1,15 @@
+**4 Takeaways From the Citizenship Case (That Was Really About Injunctions)**\
+`The question before the justices was whether a single district court judge has the power to block a policy across the country.`\
+https://nytimes.com/2025/05/15/us/politics/supreme-court-birthright-citizenship-takeaways.html
+
+**Hamas Celebrates Death of Israeli Mother Gunned Down en Route to Deliver Baby**\
+`After the shooting in the West Bank, doctors were able to save the baby, a boy, who was taken to a neonatal intensive care unit.`\
+https://nytimes.com/2025/05/15/world/middleeast/west-bank-shooting-pregnant-woman.html
+
+**Does Meta Have a Social Media Monopoly? Here’s What the U.S. Has Argued.**\
+`The government showed hundreds of internal documents as it sought to prove that the social media company bought Instagram and WhatsApp to neutralize a threat.`\
+https://nytimes.com/2025/05/15/technology/meta-trial-ftc-takeaways.html
+
 **Dick's Sporting Goods to acquire Foot Locker in $2.4 billion deal: Analysis**\
 `The combined athletic retail enterprise will have more than 3,200 stores and expand the global footprint of Dick's.`\
 https://nytimes.com/athletic/6358988/2025/05/15/dicks-sporting-goods-to-acquire-foot-locker-in-2-4-billion-deal-analysis/
