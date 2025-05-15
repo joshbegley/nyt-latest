@@ -1,5 +1,5 @@
 **How to watch the NFL in 2025: Full streaming, cable and TV guide**\
-`NBC will air the Super Bowl, while FOX has the NFC title game and CBS has the AFC title game.`\
+`NBC will air the Super Bowl, while Fox has the NFC title game and CBS has the AFC title game.`\
 https://nytimes.com/athletic/6357235/2025/05/15/nfl-schedule-streaming-channel-watch-2025/
 
 **Phillies notes: Aaron Nola's trends, Jordan Romano's resurgence, Jesús Luzardo's pitch mix**\
