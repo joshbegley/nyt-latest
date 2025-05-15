@@ -1,3 +1,11 @@
+**Twins shake up starting rotation, demote Simeon Woods Richardson to the minors**\
+`Woods Richardson has struggled since last July and the Twins have two appealing Triple-A alternatives in David Festa and Zebby Matthews.`\
+https://nytimes.com/athletic/6359344/2025/05/15/twins-rotation-simeon-woods-richardson-minors/
+
+**Live by the Loomer, Die by the Loomer**\
+`Nasty MAGA infighting means trouble for Trump.`\
+https://nytimes.com/2025/05/15/opinion/laura-loomer-trump.html
+
 **How 4 Business Owners Are Handling Tariffs on China**\
 `An easing in President Trump’s tariffs on Chinese goods gave businesses some breathing room. Long-term planning, though, is still on pause.`\
 https://nytimes.com/2025/05/15/business/tariffs-small-business.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6359406/2025/05/15/new-york-rangers-mailbag-may-202
 **Judge Dismisses ‘Trespassing’ Charges Promoted by Trump in Border ‘Defense Area’**\
 `A newly designated “military installation” that stretches the length of the frontier in New Mexico has made trespassing a novel criminal charge at the border, bringing turmoil to the state. A judge says migrants couldn’t know they were trespassing.`\
 https://nytimes.com/2025/05/15/us/new-mexico-border-trump.html
-
-**Combs’s Lawyers Work to Establish Cassie’s Agency in ‘Freak-offs’**\
-`By Ben Sisario`\
-https://nytimes.com/2025/05/15/arts/music/cassie-freak-offs-defense.html
-
-**Trump Budget Cuts Hobble Antismoking Programs**\
-`The elimination of a key C.D.C. office has slashed funding to states for help lines used by thousands to stop smoking and vaping.`\
-https://nytimes.com/2025/05/15/health/trump-budget-cuts-anti-smoking-tobacco.html
 
