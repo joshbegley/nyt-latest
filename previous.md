@@ -1,3 +1,7 @@
+**Knicks' 3-point defense was disastrous in Game 5 loss to Celtics: Film breakdown**\
+`New York let one of the league's best 3-point teams get comfortable, and it cost it a game and, maybe, the series.`\
+https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-point-defense/
+
 **Buckley: Tatum-less Celtics notify Knicks that there's more backetball to be played**\
 `The Celtics were without Jayson Tatum and written off by some, but that talk is on hold after they controlled Game 5 to extend the series.`\
 https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/briefing/trump-saudi-arabia-putin.html
 **'I don't think teams enjoy playing us': No longer novelties, Tigers have best record in MLB**\
 `The Tigers earned another walk-off win to complete a three-game sweep of the Red Sox on Wednesday.`\
 https://nytimes.com/athletic/6357966/2025/05/15/detroit-tigers-best-record-red-sox/
-
-**Mirtle: Why this Maple Leafs loss might be their worst one yet**\
-`The Leafs have cultivated a record for postseason implosions, but the latest no-show arguably takes the cake.`\
-https://nytimes.com/athletic/6357904/2025/05/15/maple-leafs-worst-loss-nhl-playoffs/
 

@@ -1,3 +1,7 @@
+**Knicks' 3-point defense was disastrous in Game 5 loss to Celtics: Film breakdown**\
+`New York let one of the league's best 3-point teams get comfortable, and it cost it a game and, maybe, the series.`\
+https://nytimes.com/athletic/6357948/2025/05/15/knicks-game-5-loss-celtics-3-point-defense/
+
 **Buckley: Tatum-less Celtics notify Knicks that there's more backetball to be played**\
 `The Celtics were without Jayson Tatum and written off by some, but that talk is on hold after they controlled Game 5 to extend the series.`\
 https://nytimes.com/athletic/6358109/2025/05/15/celtics-knicks-game-5-nba-playoffs/
