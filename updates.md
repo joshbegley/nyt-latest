@@ -1,3 +1,15 @@
+**New N.I.H. Policy Threatens Global Science Collaborations**\
+`Restrictions on payments to foreign partners may jeopardize studies of cancer and other conditions that would benefit Americans.`\
+https://nytimes.com/2025/05/15/health/nih-international-research.html
+
+**Decapitated Dolphin in North Carolina Prompts $20,000 Reward Offer From U.S.**\
+`The 8-foot long bottlenose dolphin was found dead with its head missing last month on the shore of Lea-Hutaff Island, N.C., north of Wilmington.`\
+https://nytimes.com/2025/05/15/us/north-carolina-dolphin-reward.html
+
+**For Trump, Citizenship Has Long Served as a Political Tool**\
+`Raising questions about who gets to claim to be an American powered the president’s political rise. A Supreme Court case may allow him reinterpret a right enshrined in the Constitution since the 1800s.`\
+https://nytimes.com/2025/05/15/us/politics/trump-birthright-citizenship-politics.html
+
 **Lawmakers in Both Parties Resist Trump’s Attempt to Seize Control of Their Library**\
 `The surprise firing of the head of the Library of Congress and efforts to install Trump loyalists at the iconic institution have stirred bipartisan pushback on Capitol Hill.`\
 https://nytimes.com/2025/05/15/us/politics/library-of-congress-trump.html
