@@ -1,3 +1,7 @@
+**Inter Miami draws 3-3 against San Jose Earthquakes as frustrations flare**\
+`The scoreline, in which Miami committed a myriad of glaring defensive mistakes, further aggravated the Argentina World Cup winner`\
+https://nytimes.com/athletic/6358253/2025/05/15/inter-miami-san-jose-earthquakes-lionel-messi-game-analysis/
+
 **Bologna arrived dreaming of a Coppa Italia 'night of miracles' - they departed worthy winners**\
 `Vincenzo Italiano's side had not won a major trophy in more than 50 years but they deserved to beat AC Milan in Wednesday's final`\
 https://nytimes.com/athletic/6357052/2025/05/15/bologna-coppa-italia-final-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/15/todays-new-york-times
 **Nuclear War Avoided, Again. But Next Time?**\
 `The fast-moving conflict between India and Pakistan last week demonstrated the inherent dangers of the modern nuclear age.`\
 https://nytimes.com/2025/05/15/opinion/india-pakistan-nuclear-war.html
-
-**The Birthright Citizenship Case Could Split the Country in Two**\
-`The focus on a specific legal question has overshadowed the more crucial issues at stake.`\
-https://nytimes.com/2025/05/15/opinion/birthright-citizenship-scotus.html
 
