@@ -1,3 +1,15 @@
+**Joe Don Baker, Actor Who Found Fame With ‘Walking Tall,’ Dies at 89**\
+`His performance as a crusading Southern sheriff made him a star after a decade under the radar in character parts. He went on to play a wide range of roles.`\
+https://nytimes.com/2025/05/15/movies/joe-don-baker-dead.html
+
+**Consumers Prop Up the Economy. They’re Showing Signs of Strain.**\
+`Consumer spending has been the bulwark against recession. A pullback could slow the economy.`\
+https://nytimes.com/interactive/2025/05/15/business/economy/us-economy-recession-consumer-spending.html
+
+**When Will the Supreme Court Rule on Birthright Citizenship?**\
+`Rulings in a term’s biggest cases tend not to arrive until early summer, but this case’s compressed timeline may alter its timing.`\
+https://nytimes.com/2025/05/15/us/politics/supreme-court-rule-birthright-citizenship.html
+
 **When Will the Supreme Court Rule on Birthright Citizenship?**\
 `Rulings in a term’s biggest cases tend not to arrive until early summer, but this case’s compressed timeline may alter its timing.`\
 https://nytimes.com/2025/05/15/us/politics/when-will-supreme-court-rule-citizenship.html
