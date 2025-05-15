@@ -1,6 +1,14 @@
+**Joe Don Baker, Actor Who Found Fame With ‘Walking Tall,’ Dies at 89**\
+`His performance as a crusading Southern sheriff made him a star after a decade under the radar in character parts. He went on to play a wide range of roles.`\
+https://nytimes.com/2025/05/15/movies/joe-don-baker-dead.html
+
+**Consumers Prop Up the Economy. They’re Showing Signs of Strain.**\
+`Consumer spending has been the bulwark against recession. A pullback could slow the economy.`\
+https://nytimes.com/interactive/2025/05/15/business/economy/us-economy-recession-consumer-spending.html
+
 **When Will the Supreme Court Rule on Birthright Citizenship?**\
 `Rulings in a term’s biggest cases tend not to arrive until early summer, but this case’s compressed timeline may alter its timing.`\
-https://nytimes.com/2025/05/15/us/politics/when-will-supreme-court-rule-citizenship.html
+https://nytimes.com/2025/05/15/us/politics/supreme-court-rule-birthright-citizenship.html
 
 **Scoop City: Unpacking the 2025 NFL schedules (and videos)**\
 `I felt something while reading the NFL&#8217;s 2025 schedule last night.`\
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6359520/2025/05/15/steve-simon-wta-retire/
 **Andrew Cassell, Daring Sailor Who Won Paralympic Gold, Dies at 82**\
 `He survived the deadliest race in modern yachting history, won the first Paralympic sailing contest and founded a nonprofit for sailors with disabilities.`\
 https://nytimes.com/2025/05/15/sports/sailing/andrew-cassell-dead.html
-
-**Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
-`NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
-`\
-https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston-celtics/
-
-**Everton ban fan for trying to remove Goodison Park seat with tools**\
-`The club state the individual brought tools into the 133-year-old stadium for the top-flight fixture against Ipswich Town on May 3.`\
-https://nytimes.com/athletic/6359396/2025/05/15/everton-fan-banned-goodison-park-final-game/
 

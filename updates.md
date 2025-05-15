@@ -1,3 +1,24 @@
+**When Will the Supreme Court Rule on Birthright Citizenship?**\
+`Rulings in a term’s biggest cases tend not to arrive until early summer, but this case’s compressed timeline may alter its timing.`\
+https://nytimes.com/2025/05/15/us/politics/when-will-supreme-court-rule-citizenship.html
+
+**Scoop City: Unpacking the 2025 NFL schedules (and videos)**\
+`I felt something while reading the NFL&#8217;s 2025 schedule last night.`\
+https://nytimes.com/athletic/6359562/2025/05/15/nfl-2025-schedule-winners-losers-videos-social-scoop-city/
+
+**NFL players in Olympic flag football? League could vote next week**\
+`The proposal would only allow one player on each NFL roster to try out for an Olympic team.`\
+https://nytimes.com/athletic/6359478/2025/05/15/nfl-olympics-flag-football-player-eligibility/
+
+**WTA chairman Steve Simon announces his retirement**\
+`The 70-year-old took over as leader of the women’s professional tennis tour in 2015, and led a boycott against China over Peng Shuai in 2021.`\
+https://nytimes.com/athletic/6359520/2025/05/15/steve-simon-wta-retire/
+
+**Watch: Pressure on the Knicks is piling up - will they cope or crumble?**\
+`NBA Daily discuss what went wrong for the New York Knicks in their Game 5 loss to the Boston Celtics.
+`\
+https://nytimes.com/athletic/6358828/2025/05/15/nba-daily-new-york-knicks-boston-celtics/
+
 **Judge Rules Internal Congestion Pricing Memo Can’t Be Used in Court**\
 `The document, which had accidentally been released by the government’s lawyers, detailed the weaknesses in its legal effort to end the tolling program in Manhattan.`\
 https://nytimes.com/2025/05/15/nyregion/nyc-congestion-pricing-memo.html
