@@ -1,3 +1,15 @@
+**Chris Buescher, No. 17 team hit with severe penalty after post-Kansas inspection**\
+`Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
+https://nytimes.com/athletic/6356121/2025/05/15/chris-buescher-no-17-team-penalty-nascar/
+
+**A Frenzied Franchise Takes the Fight Up Close**\
+`Doom: The Dark Ages replaces double jumps and dashes with an emphasis on raw power and slow, strategic melee combat.`\
+https://nytimes.com/2025/05/15/arts/doom-dark-ages-review.html
+
+**Chris Buescher, RFK's No. 17 team hit with big penalty after post-Kansas inspection**\
+`Buescher drops from playoff hopeful on points to a must-win situation after NASCAR found irregularities following the Kansas race.`\
+https://nytimes.com/athletic/6358917/2025/05/15/chris-buescher-rfk-racing-penalty-kansas-inspection/
+
 **What Trump Policies Have Been Blocked by Nationwide Injunctions?**\
 `President Trump’s effort to restrict birthright citizenship is one of many aggressive policies that judges have blocked with sweeping orders.`\
 https://nytimes.com/2025/05/15/us/politics/trump-policies-blocked-courts.html
