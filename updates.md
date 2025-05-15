@@ -1,3 +1,15 @@
+**‘Rotten Legacy’ Is a Soapy Spanish Succession Story**\
+`The premise of this foreign Netflix drama makes it sound a lot like “Succession,” but it isn’t trying to be. It’s brighter and pulpier than that.`\
+https://nytimes.com/2025/05/15/arts/television/rotten-legacy-netflix.html
+
+**Fletcher announces Wrexham departure**\
+`The 38-year-old revealed the decision to call time on his spell at the recently-promoted Welsh side is “not by choice”`\
+https://nytimes.com/athletic/6360122/2025/05/15/steven-fletcher-wrexham-departure/
+
+**U.S. Unveils Sweeping A.I. Project in Abu Dhabi**\
+`President Trump signed deals to create a 10-mile campus that would transform the United Arab Emirates into an A.I. powerhouse`\
+https://nytimes.com/2025/05/15/us/politics/ai-us-abu-dhabi.html
+
 **How a Two-Story Boulder Ended Up on a 120-Foot-High Cliff**\
 `The rock called Maka Lahi is important in the mythology of the people of Tonga, and scientists have worked out part of its origin story.`\
 https://nytimes.com/2025/05/15/science/boulder-tsunami-tonga.html
