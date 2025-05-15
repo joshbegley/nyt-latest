@@ -1,3 +1,7 @@
+**Playoffs in European football should come with 'buyer beware' warning**\
+`Playoffs bring excitement but also some issues, as France's Ligue 1 might soon find out.`\
+https://nytimes.com/athletic/6356077/2025/05/15/ligue-1-playoffs-nhl/
+
 **Seth Meyers Thinks Trump Shouldn’t Be So Set on That Jet**\
 `“We are, as of this taping, still a democracy with a rule of law,” Meyers said. “The president shouldn’t have a flying gold-plated party palace.”`\
 https://nytimes.com/2025/05/15/arts/television/seth-meyers-trump-qatar-airplane.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/15/crosswords/spelling-bee-forum.html
 `Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
 `\
 https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
-
-**Here’s the latest.**\
-`By Luke Broadwater, Jonathan Swan and Qasim Nauman`\
-https://nytimes.com/live/2025/05/15/us/trump-news/heres-the-latest
 

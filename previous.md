@@ -1,3 +1,7 @@
+**Seth Meyers Thinks Trump Shouldn’t Be So Set on That Jet**\
+`“We are, as of this taping, still a democracy with a rule of law,” Meyers said. “The president shouldn’t have a flying gold-plated party palace.”`\
+https://nytimes.com/2025/05/15/arts/television/seth-meyers-trump-qatar-airplane.html
+
 **Ukrainians and Russians Are in Turkey. But Will They Meet?**\
 `President Vladimir V. Putin’s name was not on a list of Russian officials attending the potential talks.`\
 https://nytimes.com/2025/05/15/world/europe/russia-ukraine-putin-zelensky-ceasefire-trump.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-ar
 **Here’s the latest.**\
 `By Luke Broadwater, Jonathan Swan and Qasim Nauman`\
 https://nytimes.com/live/2025/05/15/us/trump-news/heres-the-latest
-
-**Live Updates: Trump to Visit U.A.E. in Last Stop of Middle East Tour**\
-`In Qatar on Thursday, President Trump is scheduled to visit the largest U.S. military base in the region. He will then fly to the United Arab Emirates, another key ally.`\
-https://nytimes.com/live/2025/05/15/us/trump-news
 

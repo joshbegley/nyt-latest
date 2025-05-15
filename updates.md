@@ -1,3 +1,12 @@
+**Seth Meyers Thinks Trump Shouldn’t Be So Set on That Jet**\
+`“We are, as of this taping, still a democracy with a rule of law,” Meyers said. “The president shouldn’t have a flying gold-plated party palace.”`\
+https://nytimes.com/2025/05/15/arts/television/seth-meyers-trump-qatar-airplane.html
+
+**UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
+`Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
+`\
+https://nytimes.com/athletic/6355697/2025/05/15/womens-champions-league-final-arsenal-barcelona-betting-tips-odds/
+
 **UWCL final betting tips: Why Arsenal and Barca deserve your wager**\
 `Julia Ranney offers her opinion on why you should bet on Arsenal and Barcelona’s women’s team ahead of the Champions League final. 
 `\
