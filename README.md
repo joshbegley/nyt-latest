@@ -1,3 +1,7 @@
+**Oilers advance to conference final with Game 5 OT win over Golden Knights**\
+`Kasperi Kapanen jammed in a rebound on the goal line to win it for the Oilers seven minutes into OT.`\
+https://nytimes.com/athletic/6350908/2025/05/15/oilers-golden-knights-nhl-playoffs-2025-game-5-takeaways/
+
 **Colton Gordon keeps Astros' six-man rotation afloat in major-league debut**\
 `Gordon filled the strike zone and never shied away from adversity, even with a total inability to miss bats.`\
 https://nytimes.com/athletic/6358094/2025/05/15/astros-colton-gordon-mlb-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6352223/2025/05/15/fantasy-premier-league-how-to-na
 **Ronald Acuña Jr. apologizes to Brian Snitker and Braves, all are ready to move forward**\
 `Acuña addressed his controversial social media post: "I talked to them man-to-man, admitted that I was wrong." `\
 https://nytimes.com/athletic/6357981/2025/05/15/braves-ronald-acuna-jr-apologizes/
-
-**A familiar number, CR7 boots and a languid style - watching Cristiano Ronaldo Jr play for Portugal**\
-`Cristiano Ronaldo's mother watched her 14-year-old grandson take his first steps in international football in a sleepy corner of Croatia`\
-https://nytimes.com/athletic/6356374/2025/05/15/cristiano-ronaldo-jr-portugal-santos-dolores/
 
