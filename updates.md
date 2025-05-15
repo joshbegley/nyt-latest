@@ -1,3 +1,11 @@
+**Top prospect Dalton Rushing gets call from Dodgers, replacing a clubhouse 'pillar'**\
+`The Dodgers summoned the No. 16 prospect in baseball to catch twice per week. The rookie replaces a beloved veteran.`\
+https://nytimes.com/athletic/6357623/2025/05/14/dodgers-dalton-rushing-catcher/
+
+**Paul Goldschmidt sought Yankees fan favorite's advice. It paid off**\
+`Former Yankee Matt Carpenter had tips for how Paul Goldschmidt could stay ready while on the bench.`\
+https://nytimes.com/athletic/6357597/2025/05/14/yankees-paul-goldschmidt-matt-carpenter-advice/
+
 **2025 NFL schedule: Week-by-week matchups, TV broadcasts and times**\
 `The full NFL regular-season schedule was released on Wednesday, so it is time to mark the best matchups on your calendar.`\
 https://nytimes.com/athletic/6357256/2025/05/14/nfl-schedule-week-by-week-2025/
