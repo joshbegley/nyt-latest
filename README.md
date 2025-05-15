@@ -1,3 +1,7 @@
+**U.S. Moves Russian Scientist’s Case to Criminal Court in Boston**\
+`For months, the Harvard researcher Kseniia Petrova has challenged efforts to deport her to her native Russia for a customs violation. This week, the government charged her with a criminal felony.`\
+https://nytimes.com/2025/05/15/science/petrova-scientist-harvard-russia-charges.html
+
 **UEFA delegates exit FIFA Congress after Infantino arrives late from Trump tour**\
 `The eight UEFA members of the FIFA council and a number of European delegates did not return to the congress in the conference centre.`\
 https://nytimes.com/athletic/6359867/2025/05/15/uefa-fifa-walk-out-infantino-trump/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359976/2025/05/15/nick-saban-trump-commission-unti
 **Sinner puts in performance of the year to demolish Ruud at Italian Open**\
 `Sinner was ridiculously clinical against Ruud, a two-time French Open finalist. It may go down as one of the top performances of his career.`\
 https://nytimes.com/athletic/6359909/2025/05/15/jannik-sinner-casper-ruud/
-
-**Canada’s Wildfire Season Is Off to a Deadly Start**\
-`Two people were trapped and killed by a wildfire in a small town in Manitoba, where the provincial capital, Winnipeg, is wilting under a record-breaking heat wave.`\
-https://nytimes.com/2025/05/15/world/canada/canada-wildfires-manitoba-deaths.html
 
