@@ -1,3 +1,11 @@
+**Trump Officials Plan to Release Audio of Biden Special Counsel Interview**\
+`Republicans have demanded that the government release the recording of a 2023 interview in a classified documents inquiry, arguing that it might offer evidence of Joseph R. Biden Jr.’s declining mental acuity.`\
+https://nytimes.com/2025/05/16/us/politics/trump-hur-biden-special-counsel-audio-age.html
+
+**Peter Lax, Pre-eminent Cold War Mathematician, Dies at 98**\
+`As the computer age dawned, he saw how the new technology could be harnessed to mathematics to solve problems in everything from designing weapons to predicting the weather.`\
+https://nytimes.com/2025/05/16/science/peter-lax-dead.html
+
 **Brisbee: The Bay Bridge Series is gone, and it's only going to get worse**\
 `The A's are at Oracle Park this weekend for a series that used to mean a lot but now means much less. Baseball is worse for the change.`\
 https://nytimes.com/athletic/6362185/2025/05/16/giants-athletics-bay-bridge-series-gone/

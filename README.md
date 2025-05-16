@@ -1,3 +1,7 @@
+**Kyle Larson suffers second Indy 500 practice crash in less than a month**\
+`Larson was on just his third lap Friday when his car suddenly snapped around entering Turn 3 and crushed the nose into the outside wall.`\
+https://nytimes.com/athletic/6362786/2025/05/16/kyle-larson-indy-500-practice-crash/
+
 **Trump Officials Plan to Release Audio of Biden Special Counsel Interview**\
 `Republicans have demanded that the government release the recording of a 2023 interview in a classified documents inquiry, arguing that it might offer evidence of Joseph R. Biden Jr.’s declining mental acuity.`\
 https://nytimes.com/2025/05/16/us/politics/trump-hur-biden-special-counsel-audio-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353907/2025/05/16/chelsea-1-manchester-united-0-hi
 **MrBeast’s Tour of Maya Ruins Draws Criticism and Legal Threats in Mexico**\
 `Mexico’s culture secretary said her agency was weighing legal action against a production company for video that seemed to show the YouTube star MrBeast violating the rules for visiting Maya ruins.`\
 https://nytimes.com/2025/05/16/world/americas/mrbeast-mexico-ruins.html
-
-**NCAA’s $2.8 billion settlement back to judge after roster limit adjustments**\
-`If the deal advances, schools that opt into the settlement could begin making direct payments to athletes July 1.`\
-https://nytimes.com/athletic/6362506/2025/05/16/ncaa-settlement-roster-limit-adjustments/
 
