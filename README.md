@@ -1,3 +1,7 @@
+**Postecoglou:  Sarr felt discomfort in his back, not 'anything too significant'**\
+`The Senegal international was replaced by Yves Bissouma in the 51st minute and walked straight down the tunnel with a medical staff member.`\
+https://nytimes.com/athletic/6362683/2025/05/16/pape-matar-sarr-spurs-injury-update/
+
 **Justices Extended Block on Deportations Under Wartime Law**\
 `Also, a New Jersey Transit strike left commuters scrambling. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/16/briefing/supreme-court-deportations-transit-strike-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/obituaries/walasse-ting-overlooked.html
 **Opposition Leader Is Arrested in Chad, Accused of Inciting Violence**\
 `A former prime minister and presidential candidate, Succès Masra, was detained by a government that has used the security forces and judiciary to quash opposition.`\
 https://nytimes.com/2025/05/16/world/africa/chad-opposition-leader-succes-masra-arrested.html
-
-**Sinner defeats Paul to set up Rome final against Carlos Alcaraz**\
-`The world No. 1 and home favourite overcame a poor start to defeat the American 1-6, 6-0, 6-3.`\
-https://nytimes.com/athletic/6362581/2025/05/16/italian-open-sinner-paul-result/
 

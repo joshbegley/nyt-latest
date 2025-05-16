@@ -1,3 +1,7 @@
+**Justices Extended Block on Deportations Under Wartime Law**\
+`Also, a New Jersey Transit strike left commuters scrambling. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/16/briefing/supreme-court-deportations-transit-strike-new-jersey.html
+
 **Chelsea 1 Man Utd 0 - How close is the Champions League for Maresca? How bad is Amorim's record?**\
 `Analysis of Chelsea's Premier League game at home to Manchester United`\
 https://nytimes.com/athletic/6353907/2025/05/16/chelsea-1-manchester-united-0-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/world/africa/chad-opposition-leader-succes-masra-
 **Sinner defeats Paul to set up Rome final against Carlos Alcaraz**\
 `The world No. 1 and home favourite overcame a poor start to defeat the American 1-6, 6-0, 6-3.`\
 https://nytimes.com/athletic/6362581/2025/05/16/italian-open-sinner-paul-result/
-
-**Employee’s Change Caused xAI’s Chatbot to Veer Into South African Politics**\
-`Grok, the chatbot operated by Elon Musk’s artificial intelligence company, was providing the responses about South Africa to unrelated questions.`\
-https://nytimes.com/2025/05/16/technology/xai-elon-musk-south-africa.html
 

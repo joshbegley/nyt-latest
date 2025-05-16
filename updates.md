@@ -1,3 +1,7 @@
+**Justices Extended Block on Deportations Under Wartime Law**\
+`Also, a New Jersey Transit strike left commuters scrambling. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/16/briefing/supreme-court-deportations-transit-strike-new-jersey.html
+
 **Chelsea 1 Man Utd 0 - How close is the Champions League for Maresca? How bad is Amorim's record?**\
 `Analysis of Chelsea's Premier League game at home to Manchester United`\
 https://nytimes.com/athletic/6353907/2025/05/16/chelsea-1-manchester-united-0-highlights/
