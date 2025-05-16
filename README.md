@@ -1,6 +1,14 @@
+**Astros' Hunter Brown matches Rangers' Jacob deGrom to punctuate prolific calendar year**\
+`Brown came out on the losing end despite eight brilliant innings against another ace: "This kid’s got something.”`\
+https://nytimes.com/athletic/6360886/2025/05/16/astros-hunter-brown-prolific-year-jacob-degrom/
+
 **Connor Hellebuyck's shutout extends Jets' season in Game 5 win over Stars: Takeaways**\
 `With a 3-0 victory, the Jets forced Game 6 in Dallas on Saturday.`\
-https://nytimes.com/athletic/6360890/2025/05/16/connor-hellebuycks-shutout-extends-jets-season-in-game-5-win-over-stars-takeaways/
+https://nytimes.com/athletic/6360890/2025/05/16/jets-stars-hellebuyck-shutout/
+
+**The Glazers in 2025 - Categorising every Manchester United signing under the owners**\
+`Carl Anka runs the rule of every player who has joined since the takeover in 2005`\
+https://nytimes.com/athletic/6347372/2025/05/16/every-manchester-united-signing-during-the-glazer-era-review/
 
 **King's stunner, Steven's iconic finish and bedlam of Tarkowski - Goodison's greatest goals**\
 `There have been many special goals and moments for Everton at Goodison - The Athletic has chosen 10 to savour`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6355270/2025/05/16/fantasy-premier-league-palmer-we
 **Why the FA Cup final may be the last hurrah for Manchester City's golden generation**\
 `What better way to say goodbye than hoisting one more trophy into the sky on a sun-drenched afternoon at Wembley?`\
 https://nytimes.com/athletic/6349751/2025/05/16/manchester-city-fa-cup-golden-generation/
-
-**Arsenal transfers: Zubimendi payment plan, lower Gyokeres fee, Garcia pivot? What we're hearing**\
-`It promises to be a busy summer for new sporting director Andrea Berta. Here's the latest...`\
-https://nytimes.com/athletic/6359675/2025/05/16/arsenal-transfers-gyokeres-zubimendi/
-
-**Barca's La Liga-winning squad ranked: The indispensables, briliant back-ups and the future**\
-`Every player in Barca's squad has their role in this season's La Liga-Copa del Rey double. We rate their performances out of 10`\
-https://nytimes.com/athletic/6359488/2025/05/16/barcelona-la-liga-squad-ranked/
 
