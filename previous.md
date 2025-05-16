@@ -1,5 +1,9 @@
+**Judge Extends Block on Public Health Cuts for More Than 20 States**\
+`The ruling preserves, for now, billions of dollars in grant money for 23 states and the District of Columbia.`\
+https://nytimes.com/2025/05/16/us/politics/judge-covid-public-health-cuts.html
+
 **A Reality Show Where Immigrants Compete for U.S. Citizenship? D.H.S. Is Considering It.**\
-`A spokeswoman for the Department of Homeland Security said the agency was happy to review “out of the box pitches.”`\
+`A spokeswoman for the Department of Homeland Security said the agency was happy to review “out-of-the-box pitches.”`\
 https://nytimes.com/2025/05/16/us/politics/homeland-security-immigration-reality-show.html
 
 **Watch: Which teams with strong starts will fade before the MLB playoffs?**\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/movies/cannes-film-festival-critic.html
 **Conservatives Imperil G.O.P. Megabill That Would Fulfill Trump’s Agenda**\
 `Conservatives want deeper cuts in federal spending, including the elimination of clean energy tax credits and work requirements for Medicaid recipients to start earlier.`\
 https://nytimes.com/2025/05/16/us/politics/house-republicans-policy-bil.html
-
-**How to watch Braves at Red Sox, interleague action starring Chris Sale and Garrett Crochet**\
-`Chris Sale and Garrett Crochet make for an awesome Friday night series opener. Both Atlanta and Boston are hovering around .500.`\
-https://nytimes.com/athletic/6360228/2025/05/16/braves-red-sox-sale-crochet-mlb-how-to-watch/
 

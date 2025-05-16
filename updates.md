@@ -1,3 +1,16 @@
+**Judge Extends Block on Public Health Cuts for More Than 20 States**\
+`The ruling preserves, for now, billions of dollars in grant money for 23 states and the District of Columbia.`\
+https://nytimes.com/2025/05/16/us/politics/judge-covid-public-health-cuts.html
+
+**A Reality Show Where Immigrants Compete for U.S. Citizenship? D.H.S. Is Considering It.**\
+`A spokeswoman for the Department of Homeland Security said the agency was happy to review “out-of-the-box pitches.”`\
+https://nytimes.com/2025/05/16/us/politics/homeland-security-immigration-reality-show.html
+
+**Watch: Which teams with strong starts will fade before the MLB playoffs?**\
+`Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
+`\
+https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
+
 **A Reality Show Where Immigrants Compete for U.S. Citizenship? D.H.S. Is Considering It.**\
 `A spokeswoman for the Department of Homeland Security said the agency was happy to review “out of the box pitches.”`\
 https://nytimes.com/2025/05/16/us/politics/homeland-security-immigration-reality-show.html
