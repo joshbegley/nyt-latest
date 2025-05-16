@@ -1,3 +1,15 @@
+**At the Cannes Film Festival, the Mood Is Uncertain and Unsettled**\
+`The threat of tariffs and the struggles of Hollywood have dampened what is usually an international party. Even the early standouts are somber.`\
+https://nytimes.com/2025/05/16/movies/cannes-film-festival-critic.html
+
+**Conservatives Imperil G.O.P. Megabill That Would Fulfill Trump’s Agenda**\
+`Conservatives want deeper cuts in federal spending, including the elimination of clean energy tax credits and work requirements for Medicaid recipients to start earlier.`\
+https://nytimes.com/2025/05/16/world/europe/house-republicans-policy-bil.html
+
+**Why the offside rule is 'delayed' and will it change after Awoniyi incident?**\
+`Last Sunday's serious injury to Awoniyi has led to criticism of the delayed offside rule - but what exactly is it and could it be revised?`\
+https://nytimes.com/athletic/6361440/2025/05/16/why-is-the-offside-rule-delayed-taiwo-awoniyi/
+
 **How to watch Braves at Red Sox, interleague action starring Chris Sale and Garrett Crochet**\
 `Chris Sale and Garrett Crochet make for an awesome Friday night series opener. Both Atlanta and Boston are hovering around .500.`\
 https://nytimes.com/athletic/6360228/2025/05/16/braves-red-sox-sale-crochet-mlb-how-to-watch/
