@@ -1,3 +1,7 @@
+**Everton announce naming rights deal for new stadium**\
+`The new venue — which will replace Goodison Park as the men's team's home from next season — will be known as the Hill Dickinson Stadium.`\
+https://nytimes.com/athletic/6362164/2025/05/16/everton-new-stadium-name-rights-partner/
+
 **What we're hearing about the Blackhawks coaching search, changes, prospects and more**\
 `Keep an eye on Jeff Blashill, the former Detroit Red Wings head coach from 2015 to 2022, who recently met with the Blackhawks in Chicago.`\
 https://nytimes.com/athletic/6362038/2025/05/16/blackhawks-coaching-search-nhl/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/us/politics/homeland-security-immigration-reality
 `Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
 `\
 https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
-
-**Alcaraz beats Musetti to set up possible Sinner final in Rome**\
-`The world No. 2 will face the winner of the second semifinal between Sinner and Tommy Paul in Sunday’s final.`\
-https://nytimes.com/athletic/6362041/2025/05/16/italian-open-alcaraz-musetti-result/
 
