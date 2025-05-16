@@ -1,3 +1,19 @@
+**Connor Hellebuyck's shutout extends Jets' season in Game 5 win over Stars: Takeaways**\
+`With a 3-0 victory, the Jets forced Game 6 in Dallas on Saturday.`\
+https://nytimes.com/athletic/6360890/2025/05/16/connor-hellebuycks-shutout-extends-jets-season-in-game-5-win-over-stars-takeaways/
+
+**King's stunner, Steven's iconic finish and bedlam of Tarkowski - Goodison's greatest goals**\
+`There have been many special goals and moments for Everton at Goodison - The Athletic has chosen 10 to savour`\
+https://nytimes.com/athletic/6358970/2025/05/16/everton-greatest-goodison-goals/
+
+**Sonia Bompastor is Chelsea's ultimate competitor, raising standards and always eyeing history**\
+`That Chelsea's domestic dominance has come under the supervision of a new manager is perhaps the most impressive feat of all this season`\
+https://nytimes.com/athletic/6355160/2025/05/16/sonia-bompastor-profile-chelsea-fa-cup-final/
+
+**It's the end of an era at West Ham as Moyes' 'Band of Brothers' continues to be broken up**\
+`Vladimir Coufal, Lukasz Fabianski, Aaron Cresswell and Danny Ings will bid farewell to West Ham having made over 800 appearances combined`\
+https://nytimes.com/athletic/6358485/2025/05/16/coufal-cresswell-fabianski-west-ham/
+
 **Sean Neave, Newcastle's Carabao Cup winner who has yet to appear for the first team**\
 `Alexander Isak is standing in his way but the teenage centre-forward is highly regarded and has been a regular on the bench recently`\
 https://nytimes.com/athletic/6355098/2025/05/16/sean-neave-newcastle-carabao-cup-winner/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6359675/2025/05/16/arsenal-transfers-gyokeres-zubim
 **Barca's La Liga-winning squad ranked: The indispensables, briliant back-ups and the future**\
 `Every player in Barca's squad has their role in this season's La Liga-Copa del Rey double. We rate their performances out of 10`\
 https://nytimes.com/athletic/6359488/2025/05/16/barcelona-la-liga-squad-ranked/
-
-**Brazil are a dysfunctional mess. Good luck, Carlo Ancelotti**\
-`The Italian will need all his renowned coaching nous to rouse a failing team, one year out from the World Cup`\
-https://nytimes.com/athletic/6358960/2025/05/16/brazil-are-a-dysfunctional-mess-good-luck-carlo-ancelotti/
-
-**Tottenham are 17th with a positive goal difference. Is this unique?**\
-`Spurs' season has been negative but they have a positive goal difference. What does it tell us about Ange Postecoglou's approach?`\
-https://nytimes.com/athletic/6358882/2025/05/16/tottenham-are-17th-with-a-positive-goal-difference-is-this-unique/
-
-**Phil Giles' decade at Brentford: 'He makes the most complex job in the world look simple'**\
-`Brentford's director of football celebrates 10 years at the club today. Understated, dedicated and ruthless, he's a key figure in their rise`\
-https://nytimes.com/athletic/6355217/2025/05/16/phil-giles-brentford-decade-rise/
-
-**Premier League race for top five: Arsenal and Newcastle battle for second and will cup final distract Man City?**\
-`Updates and analysis as the race to to qualify for next season's Champions League reaches its final stages`\
-https://nytimes.com/athletic/6358667/2025/05/16/premier-league-top-five-race-arsenal-man-city/
 

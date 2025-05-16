@@ -1,3 +1,19 @@
+**Sean Neave, Newcastle's Carabao Cup winner who has yet to appear for the first team**\
+`Alexander Isak is standing in his way but the teenage centre-forward is highly regarded and has been a regular on the bench recently`\
+https://nytimes.com/athletic/6355098/2025/05/16/sean-neave-newcastle-carabao-cup-winner/
+
+**Five Aston Villa players have been on loan to Real Union - we went to Spain to see how it's working**\
+`Inside the arrangement between the two clubs`\
+https://nytimes.com/athletic/6246564/2025/05/16/aston-villa-loanees-real-union/
+
+**Fantasy Premier League: Palmer, Welbeck and Schade,differentials for the run-in**\
+`How to get that differential in the last two gameweeks`\
+https://nytimes.com/athletic/6355270/2025/05/16/fantasy-premier-league-palmer-welbeck-and-schade-the-best-differentials-for-the-run-in/
+
+**Why the FA Cup final may be the last hurrah for Manchester City's golden generation**\
+`What better way to say goodbye than hoisting one more trophy into the sky on a sun-drenched afternoon at Wembley?`\
+https://nytimes.com/athletic/6349751/2025/05/16/manchester-city-fa-cup-golden-generation/
+
 **Arsenal transfers: Zubimendi payment plan, lower Gyokeres fee, Garcia pivot? What we're hearing**\
 `It promises to be a busy summer for new sporting director Andrea Berta. Here's the latest...`\
 https://nytimes.com/athletic/6359675/2025/05/16/arsenal-transfers-gyokeres-zubimendi/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6355217/2025/05/16/phil-giles-brentford-decade-rise
 **Premier League race for top five: Arsenal and Newcastle battle for second and will cup final distract Man City?**\
 `Updates and analysis as the race to to qualify for next season's Champions League reaches its final stages`\
 https://nytimes.com/athletic/6358667/2025/05/16/premier-league-top-five-race-arsenal-man-city/
-
-**Man United or Spurs: Who has had the worst season? A friendly discussion**\
-`Club writers Carl Anka and Jay Harris discuss the upcoming Europa League final and two disastrous seasons`\
-https://nytimes.com/athletic/6359139/2025/05/16/man-united-tottenham-europa-league/
-
-**‘Knives Are Out’ in South Sudan as Vice President Is Held in Detention**\
-`After years of gradual progress toward stability, a succession battle is pushing the country to the precipice of another full-blown civil war.`\
-https://nytimes.com/2025/05/16/world/africa/south-sudan-tensions.html
-
-**China’s First Police Corgi Has 400,000 Followers and a Nose for Trouble**\
-`Fu Zai has won top workplace reviews as an unusual breed of sniffer dog. But his lack of self-control cost him his annual bonus.`\
-https://nytimes.com/2025/05/16/world/asia/corgi-dog-china-police.html
-
-**As Contestants on ‘The Circle,’ It Was Love at First Photo**\
-`Jadejha Edwards and Darian Holt met through the Netflix show and, for three weeks, communicated only by screen.`\
-https://nytimes.com/2025/05/16/style/jadejha-edwards-darian-holt-wedding.html
 
