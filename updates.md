@@ -1,3 +1,15 @@
+**How to Watch the Eurovision Song Contest Final**\
+`It has never been easier, no matter where in the world you are.`\
+https://nytimes.com/2025/05/16/arts/television/how-to-watch-eurovision-final-running-order.html
+
+**Alexis Ohanian is betting on the 'unrealised potential' of Chelsea Women**\
+`Chelsea Women is Ohanian's latest investment, but not everyone agrees it's for the best`\
+https://nytimes.com/athletic/6358671/2025/05/16/chelsea-women-alexis-ohanian-investment-potential/
+
+**For Some International Students, U.S. Dreams Dim Under Trump**\
+`Once drawn to American universities as havens, some students from abroad are finding the United States is not the bedrock of free speech they had expected.`\
+https://nytimes.com/2025/05/16/world/europe/us-international-students-college-trump.html
+
 **Brazilian Football Federation president removed after court ruling**\
 `Rodrigues, 71, has been the subject of two petitions in recent days relating to the alleged falsification of documents.`\
 https://nytimes.com/athletic/6361048/2025/05/16/brazil-football-president-ednaldo-rodrigues-court/

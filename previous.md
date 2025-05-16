@@ -1,3 +1,15 @@
+**How to Watch the Eurovision Song Contest Final**\
+`It has never been easier, no matter where in the world you are.`\
+https://nytimes.com/2025/05/16/arts/television/how-to-watch-eurovision-final-running-order.html
+
+**Alexis Ohanian is betting on the 'unrealised potential' of Chelsea Women**\
+`Chelsea Women is Ohanian's latest investment, but not everyone agrees it's for the best`\
+https://nytimes.com/athletic/6358671/2025/05/16/chelsea-women-alexis-ohanian-investment-potential/
+
+**For Some International Students, U.S. Dreams Dim Under Trump**\
+`Once drawn to American universities as havens, some students from abroad are finding the United States is not the bedrock of free speech they had expected.`\
+https://nytimes.com/2025/05/16/world/europe/us-international-students-college-trump.html
+
 **Here is NJ Transit’s contingency plan, and other ways to get to New York City.**\
 `By Patrick McGeehan`\
 https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/here-is-nj-transits-contingency-plan-and-other-ways-to-get-to-new-york-city
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/us/politics/trump-middle-east-visit.html
 **Who Are the Favorites to Win Eurovision?**\
 `KAJ, representing Sweden with an ode to the sauna, is the bookmakers’ favorite, but singers from France, Austria, the Netherlands and Finland are also causing a stir.`\
 https://nytimes.com/2025/05/16/arts/music/eurovision-song-contest-favorites.html
-
-**Hiker or Russian Spy? Latvia Advises Its People How to Be on the Lookout**\
-`A Latvian security agency tells people to note radio gear and provocative questions, but some signs of espionage that it cites — like fit, unkempt backpackers — could apply to hikers and tourists.`\
-https://nytimes.com/2025/05/16/world/europe/latvia-russia-spies-saboteurs.html
-
-**How Did So Many Elected Democrats Miss Biden’s Infirmity?**\
-`More than lying to the public, too many Democrats were lying to themselves.`\
-https://nytimes.com/2025/05/16/opinion/biden-age-democrats-coverup.html
-
-**Newark’s Air Traffic Control Staffing Crisis Is Dire. It’s Also Not Unique.**\
-`As of May 7, all but two of the 313 air traffic control facilities in the United States were understaffed, a New York Times analysis found.`\
-https://nytimes.com/interactive/2025/05/16/us/air-traffic-control-staffing-newark.html
 
