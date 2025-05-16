@@ -1,3 +1,15 @@
+**Work stoppages can give labor the upper hand for a time, an expert says.**\
+`By Patrick McGeehan`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/work-stoppages-can-give-labor-the-upper-hand-for-a-time-an-expert-says
+
+**Moyes: Coleman will remain at Everton next season**\
+`Coleman, 36, surpassed 16 years with the Merseyside club this season and is the current longest-serving player with a Premier League club.`\
+https://nytimes.com/athletic/6361527/2025/05/16/everton-seamus-coleman-stays/
+
+**The defense is expected to continue grilling Cassie on the hotel assault.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/16/arts/sean-combs-diddy-trial-cassie/the-defense-is-expected-continue-grilling-cassie-on-the-hotel-assault
+
 **The defense is expected continue grilling Cassie on the hotel assault.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/05/16/arts/sean-combs-diddy-trial-cassie/the-defense-is-expected-continue-grilling-cassie-on-the-hotel-assault
