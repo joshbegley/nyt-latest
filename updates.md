@@ -1,3 +1,7 @@
+**Why Are So Many Retirees Filing for Social Security Earlier?**\
+`An additional 276,000 people filed for Social Security benefits so far this fiscal year, up 13% from a year ago. Anxiety appears to be a driver.`\
+https://nytimes.com/2025/05/16/business/social-security-early-retirement.html
+
 **Slot: Players 'deserved' Dubai trip, will be prepared for Brighton game**\
 `The title-winning squad flew to the UAE following last Sunday's 2-2 draw with Arsenal at Anfield before returning to Merseyside on Thursday.`\
 https://nytimes.com/athletic/6361804/2025/05/16/arne-slot-liverpool-dubai/
