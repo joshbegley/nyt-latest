@@ -1,3 +1,7 @@
+**'T means so much to us': How Forest reacted in week after horrific Awoniyi injury**\
+`Nuno explains how he and the Nottingham Forest squad reacted after the horrific injury to Taiwo Awoniyi`\
+https://nytimes.com/athletic/6362123/2025/05/16/nuno-nottingham-forest-taiwo-awoniyi-coma/
+
 **Postecoglou:  Sarr felt discomfort in his back, not 'anything too significant'**\
 `The Senegal international was replaced by Yves Bissouma in the 51st minute and walked straight down the tunnel with a medical staff member.`\
 https://nytimes.com/athletic/6362683/2025/05/16/pape-matar-sarr-spurs-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362612/2025/05/16/aaron-nola-injured-mick-abel-mlb
 **Overlooked No More, Walasse Ting, Who Bridged Cultures With Paint and Prose**\
 `His style as a poet and artist was informed by his upbringing in Shanghai and his years in Paris. He then joined the Pop-fueled studios of New York.`\
 https://nytimes.com/2025/05/16/obituaries/walasse-ting-overlooked.html
-
-**Opposition Leader Is Arrested in Chad, Accused of Inciting Violence**\
-`A former prime minister and presidential candidate, Succès Masra, was detained by a government that has used the security forces and judiciary to quash opposition.`\
-https://nytimes.com/2025/05/16/world/africa/chad-opposition-leader-succes-masra-arrested.html
 
