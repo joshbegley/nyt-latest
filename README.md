@@ -1,3 +1,16 @@
+**Watch: Which teams with strong starts will fade before the MLB playoffs?**\
+`Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
+`\
+https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
+
+**Alcaraz beats Musetti to set up possible Sinner final in Rome**\
+`The world No. 2 will face the winner of the second semifinal between Sinner and Tommy Paul in Sunday’s final.`\
+https://nytimes.com/athletic/6362041/2025/05/16/italian-open-alcaraz-musetti-result/
+
+**Prosecutor Accused of Sexual Misconduct Takes Leave From International Court**\
+`The International Criminal Court confirmed that its chief prosecutor, Karim Khan, will step down pending the results of an investigation into allegations against him.`\
+https://nytimes.com/2025/05/16/world/europe/karim-khan-icc-sexual-misconduct.html
+
 **Inside This Couple’s Decision to ‘Self-Deport’ to Mexico**\
 `Alfredo Linares, an undocumented chef and small business owner who lived in the U.S. for over 20 years, decided to leave America with his American wife amid President Trump’s immigration crackdown.`\
 https://nytimes.com/video/us/100000010152568/immigration-self-deport.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6360228/2025/05/16/braves-red-sox-sale-crochet-mlb-
 **Who Is Dawn Richard, the Singer Who Will Soon Testify at Sean Combs’s Trial?**\
 `The musician performed in two of the mogul’s best-known recent acts, Danity Kane and Diddy — Dirty Money. She sued him last year, alleging threats and groping.`\
 https://nytimes.com/2025/05/16/arts/music/dawn-richard-sean-combs-diddy-trial.html
-
-**Giro d'Italia protester charged after almost causing major crash**\
-`Footage released by the Intermarche-Wanty team showed protesters appearing to drag tape across the road as the riders took evasive action.`\
-https://nytimes.com/athletic/6361651/2025/05/16/giro-ditalia-protest-charge-crash/
-
-**Why the offside rule is 'delayed' and will it change after Awoniyi incident?**\
-`Last Sunday's serious injury to Awoniyi has led to criticism of the delayed offside rule - but what exactly is it and could it be revised?`\
-https://nytimes.com/athletic/6361440/2025/05/16/why-is-the-offside-rule-delayed-taiwo-awoniyi/
-
-**LAFC, Club America to meet in Club World Cup 'play-in' game on May 31**\
-`The match will take place at BMO Stadium in Los Angeles, California with kick off at 7.30pm local time.`\
-https://nytimes.com/athletic/6358597/2025/05/16/club-world-cup-play-in-game-lafc-club-america/
 

@@ -1,3 +1,19 @@
+**Inside This Couple’s Decision to ‘Self-Deport’ to Mexico**\
+`Alfredo Linares, an undocumented chef and small business owner who lived in the U.S. for over 20 years, decided to leave America with his American wife amid President Trump’s immigration crackdown.`\
+https://nytimes.com/video/us/100000010152568/immigration-self-deport.html
+
+**The strike comes during Gov. Murphy’s final year in office.**\
+`By Patrick McGeehan`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/the-strike-comes-during-gov-murphys-final-year-in-office
+
+**Maple Leafs lineup vs. Panthers: Key changes for Game 6 with season on the line**\
+`Calle Järnkrok and Pontus Holmberg are back, Max Pacioretty drops down a line as Leafs look to stay alive in Florida. `\
+https://nytimes.com/athletic/6361604/2025/05/16/maple-leafs-lineup-panthers-game-6/
+
+**Conservatives Imperil G.O.P. Megabill That Would Fulfill Trump’s Agenda**\
+`Conservatives want deeper cuts in federal spending, including the elimination of clean energy tax credits and work requirements for Medicaid recipients to start earlier.`\
+https://nytimes.com/2025/05/16/us/politics/house-republicans-policy-bil.html
+
 **At the Cannes Film Festival, the Mood Is Uncertain and Unsettled**\
 `The threat of tariffs and the struggles of Hollywood have dampened what is usually an international party. Even the early standouts are somber.`\
 https://nytimes.com/2025/05/16/movies/cannes-film-festival-critic.html
