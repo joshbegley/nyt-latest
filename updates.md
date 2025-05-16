@@ -1,3 +1,11 @@
+**WNBA commissioner calls Caitlin Clark 'most popular athlete in America'**\
+`Englebert and the league are leaning even heavier into the Clark momentum by broadcasting 41 of the Fever's 44 game on national TV.`\
+https://nytimes.com/athletic/6361396/2025/05/16/caitlin-clark-popularity-wnba-schedule-expansion/
+
+**Amtrak Is a Costly Alternative for Commuters Amid the NJ Transit Strike**\
+`Fares to New York City on the passenger rail line were several times higher on Friday than the normal cost of a ticket on NJ Transit.`\
+https://nytimes.com/2025/05/16/nyregion/nj-transit-amtrak.html
+
 **Amtrak is an option for strike-affected commuters, but at a steep cost.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/nj-transit-amtrak

@@ -1,6 +1,10 @@
-**Amtrak is an option for strike-affected commuters, but at a steep cost.**\
-`By Matthew Haag`\
-https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/nj-transit-amtrak
+**WNBA commissioner calls Caitlin Clark 'most popular athlete in America'**\
+`Englebert and the league are leaning even heavier into the Clark momentum by broadcasting 41 of the Fever's 44 game on national TV.`\
+https://nytimes.com/athletic/6361396/2025/05/16/caitlin-clark-popularity-wnba-schedule-expansion/
+
+**Amtrak Is a Costly Alternative for Commuters Amid the NJ Transit Strike**\
+`Fares to New York City on the passenger rail line were several times higher on Friday than the normal cost of a ticket on NJ Transit.`\
+https://nytimes.com/2025/05/16/nyregion/nj-transit-amtrak.html
 
 **Live Updates: Cassie to Start 18th Hour of Testimony in Sean Combs’s Sex-Trafficking Trial**\
 `Mr. Combs’s lawyers have been questioning Casandra Ventura about the drug-fueled sex sessions that he called “freak-offs,” and about the nature of their long relationship.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/world/europe/trump-gaza-starvation-famine-us-isra
 **Inside the Rift Over Trump’s A.I. Deals in the Gulf**\
 `The president’s Middle East visit produced multibillion-dollar technology investments by the Saudis and Emiratis. But they face political pushback at home.`\
 https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.html
-
-**The Jets survived Game 5 like past versions could not have. Can they do it again?**\
-`The Jets delivered their best game of the playoffs in their most important, must-win Game 5 but their season is on the line all over again.`\
-https://nytimes.com/athletic/6360989/2025/05/16/nhl-playoffs-winnipeg-jets-game-5/
 

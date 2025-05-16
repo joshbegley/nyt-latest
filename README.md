@@ -1,3 +1,11 @@
+**The Revenge of the Niche Fashion Magazine**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/niche-fashion-magazines
+
+**In Europe and Japan, Luxury Sleeper Trains**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/travel-luxury-sleeper-trains
+
 **WNBA commissioner calls Caitlin Clark 'most popular athlete in America'**\
 `Englebert and the league are leaning even heavier into the Clark momentum by broadcasting 41 of the Fever's 44 game on national TV.`\
 https://nytimes.com/athletic/6361396/2025/05/16/caitlin-clark-popularity-wnba-schedule-expansion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6361358/2025/05/16/football-soccer-homophobia-claus
 **Cable Giants Charter and Cox to Merge in $34.5 Billion Deal**\
 `The combination, which must pass muster with antitrust authorities, would create one of the biggest TV and internet providers in the United States.`\
 https://nytimes.com/2025/05/16/business/charter-cox-cable-merger.html
-
-**Trump Says ‘a Lot of People Are Starving’ in Gaza and the U.S. Wants to Help**\
-`Humanitarian support has collapsed in the enclave, which has been under total Israeli blockade for more than two months. Aid groups warn that the territory is on the brink of famine.`\
-https://nytimes.com/2025/05/16/world/europe/trump-gaza-starvation-famine-us-israel-aid.html
-
-**Inside the Rift Over Trump’s A.I. Deals in the Gulf**\
-`The president’s Middle East visit produced multibillion-dollar technology investments by the Saudis and Emiratis. But they face political pushback at home.`\
-https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.html
 
