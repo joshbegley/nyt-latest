@@ -1,3 +1,11 @@
+**2025 WNBA MVP odds: Caitlin Clark is the favorite**\
+`Early WNBA MVP odds have Caitlin Clark, A'ja Wilson and Napheesa Collier dominating the top of the board.`\
+https://nytimes.com/athletic/6344916/2025/05/16/wnba-mvp-odds-caitlin-clark/
+
+**The New York Times International Edition in Print for Saturday, May 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/16/todays-new-york-times-international-edition
+
 **Howe: Newcastle won't be 'hampered' by PSR this summer**\
 `Howe is confident that Newcastle will be in a position to strengthen, rather than weaken, themselves during the off-season.`\
 https://nytimes.com/athletic/6361088/2025/05/16/newcastle-transfer-news-psr-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/well/nurses-tips-hospital.html
 **‘He Gets Us’: Trump Makes a Splash in Saudi Arabia**\
 `Many Saudis say they are big fans of President Trump, calling him a “straight shooter” who shares their values. Others were not impressed.`\
 https://nytimes.com/2025/05/16/world/middleeast/trump-saudi-arabia-voices.html
-
-**The New York Times News Quiz, May 16, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/05/16/briefing/trump-middle-east-tariffs-news-quiz.html
-
-**Those National Park Accounts Aren’t Real. But They’re Spicy.**\
-`TikTok accounts dedicated to Yellowstone, Joshua Tree and other parks have drawn a lot of attention by leaning in on sex appeal.`\
-https://nytimes.com/2025/05/16/style/yellowstone-park-tiktok-thirst-traps.html
 

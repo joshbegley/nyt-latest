@@ -1,3 +1,11 @@
+**Here is NJ Transit’s contingency plan, and other ways to get to New York City.**\
+`By Patrick McGeehan`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/here-is-nj-transits-contingency-plan-and-other-ways-to-get-to-new-york-city
+
+**Brazilian football federation president removed after court ruling**\
+`Rodrigues, 71, has been the subject of two petitions in recent days relating to the alleged falsification of documents.`\
+https://nytimes.com/athletic/6361048/2025/05/16/brazil-football-president-ednaldo-rodrigues-court/
+
 **2025 WNBA MVP odds: Caitlin Clark is the favorite**\
 `Early WNBA MVP odds have Caitlin Clark, A'ja Wilson and Napheesa Collier dominating the top of the board.`\
 https://nytimes.com/athletic/6344916/2025/05/16/wnba-mvp-odds-caitlin-clark/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/opinion/biden-age-democrats-coverup.html
 **Newark’s Air Traffic Control Staffing Crisis Is Dire. It’s Also Not Unique.**\
 `As of May 7, all but two of the 313 air traffic control facilities in the United States were understaffed, a New York Times analysis found.`\
 https://nytimes.com/interactive/2025/05/16/us/air-traffic-control-staffing-newark.html
-
-**Nurses Share Insider Tips for Your Next Hospital Visit**\
-`There are ways to make it less miserable.`\
-https://nytimes.com/2025/05/16/well/nurses-tips-hospital.html
-
-**‘He Gets Us’: Trump Makes a Splash in Saudi Arabia**\
-`Many Saudis say they are big fans of President Trump, calling him a “straight shooter” who shares their values. Others were not impressed.`\
-https://nytimes.com/2025/05/16/world/middleeast/trump-saudi-arabia-voices.html
 

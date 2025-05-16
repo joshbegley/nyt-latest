@@ -1,3 +1,11 @@
+**2025 WNBA MVP odds: Caitlin Clark is the favorite**\
+`Early WNBA MVP odds have Caitlin Clark, A'ja Wilson and Napheesa Collier dominating the top of the board.`\
+https://nytimes.com/athletic/6344916/2025/05/16/wnba-mvp-odds-caitlin-clark/
+
+**The New York Times International Edition in Print for Saturday, May 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/16/todays-new-york-times-international-edition
+
 **Howe: Newcastle won't be 'hampered' by PSR this summer**\
 `Howe is confident that Newcastle will be in a position to strengthen, rather than weaken, themselves during the off-season.`\
 https://nytimes.com/athletic/6361088/2025/05/16/newcastle-transfer-news-psr-2025/
