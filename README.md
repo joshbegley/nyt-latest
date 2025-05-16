@@ -1,3 +1,7 @@
+**Mets-Yankees Subway Series Clash Will Compete for Fans’ Attention**\
+`The first game of the annual regular season event coincides with a crucial Friday night Knicks playoff game against the Celtics.`\
+https://nytimes.com/2025/05/16/sports/yankees-mets-knicks-playoffs.html
+
 **Flashback: Your Weekly History Quiz, May 17, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/05/16/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/us/david-tracy-dead.html
 **Fed to Cut Staff by 10% Over Several Years**\
 `In an internal memo to staff on Friday, Jerome H. Powell, the chair of the central bank, said the institution would offer a voluntary deferred resignation program.`\
 https://nytimes.com/2025/05/16/business/federal-reserve-job-cuts.html
-
-**Boxcar, a Private Bus Company, Sees Opportunity in NJ Transit Strike**\
-`With quirky social media videos, Boxcar, which was founded in 2017, is seeking to elevate its profile as commuters look for alternative ways to reach Manhattan.`\
-https://nytimes.com/2025/05/16/nyregion/boxcar-bus-nj-transit-strike.html
 
