@@ -1,3 +1,7 @@
+**Woman Charged in Telemundo Reporter’s Murder Gets 25 Years in Another Case**\
+`Danette Colbert, who is awaiting trial in the death of Adan Manzano before the Super Bowl, had her probation revoked in a 2021 case under Louisiana’s repeat offender law.`\
+https://nytimes.com/2025/05/16/us/telemundo-reporter-adan-manzano-death-suspect.html
+
 **Brock Purdy, 49ers agree to 5-year contract extension: Sources**\
 `In three seasons, the 49ers quarterback has a record (including the playoffs) of 27-15 and has played in one Super Bowl.`\
 https://nytimes.com/athletic/6101080/2025/05/16/brock-purdy-49ers-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353906/2025/05/16/aston-villa-top-five-champions-l
 **Supreme Court Retains Block on Using Wartime Law to Deport Venezuelans**\
 `The justices sent the case back to a lower court to consider whether the Alien Enemies Act can be used to deport immigrants accused of being members of the Venezuelan gang.`\
 https://nytimes.com/2025/05/16/us/politics/supreme-court-alien-enemies-act-deportations.html
-
-**What the jury didn't hear in the Hockey Canada sexual assault trial**\
-`From protesters to smart glasses, trial of five Canadian hockey players accused of sexual assault has been beset with disruptions.`\
-https://nytimes.com/athletic/6362042/2025/05/16/hockey-canada-trial-what-jury-did-not-hear/
 
