@@ -1,3 +1,16 @@
+**‘It’s All About Trump’s Tariffs’: Asia Flocks to U.S. Trade Official**\
+`Asia Pacific Economic Cooperation nations, staring down U.S. tariffs, jockeyed for time with U.S. Trade Representative Jamieson Greer at a gathering in South Korea.`\
+https://nytimes.com/2025/05/16/business/trump-tariffs-apec-trade.html
+
+**Peace Talks Between Russia and Ukraine to Begin Amid Doubt and Chaos**\
+`Expectations are low for the talks in Istanbul, the first direct peace negotiations between Moscow and Kyiv since early 2022.`\
+https://nytimes.com/2025/05/16/world/europe/russia-ukraine-peace-talks.html
+
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
 **FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
 `Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
 `\

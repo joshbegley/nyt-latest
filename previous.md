@@ -1,3 +1,11 @@
+**‘It’s All About Trump’s Tariffs’: Asia Flocks to U.S. Trade Official**\
+`Asia Pacific Economic Cooperation nations, staring down U.S. tariffs, jockeyed for time with U.S. Trade Representative Jamieson Greer at a gathering in South Korea.`\
+https://nytimes.com/2025/05/16/business/trump-tariffs-apec-trade.html
+
+**Peace Talks Between Russia and Ukraine to Begin Amid Doubt and Chaos**\
+`Expectations are low for the talks in Istanbul, the first direct peace negotiations between Moscow and Kyiv since early 2022.`\
+https://nytimes.com/2025/05/16/world/europe/russia-ukraine-peace-talks.html
+
 **New Jersey Transit Engineers Go on Strike**\
 `As union workers prepared to strike, Gov. Philip D. Murphy of New Jersey said the state’s transit system was facing a “sobering fiscal reality” and that he hoped for the best.`\
 https://nytimes.com/video/us/100000010173527/njtransit-strike.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/16/crosswords/spelling-bee-forum.html
 **Serie A odds for the league's crunch time: Title tilts, UCL scramble, drop zone drama**\
 `There’s everything left to play for in Serie A. Sam Tighe looks at all the possible scenarios through a betting lens. `\
 https://nytimes.com/athletic/6359299/2025/05/16/serie-a-final-day-betting-tips-predictions-odds/
-
-**Robot and Paper**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/05/16/learning/robot-and-paper.html
-
-**Jean-Philippe Mateta: My Game in My Words**\
-`The Crystal Palace striker talks instincts, finishing technique with both feet and that protective headgear ahead of the FA Cup final`\
-https://nytimes.com/athletic/6359116/2025/05/16/jean-philippe-mateta-palace-interview-fa-cup/
 
