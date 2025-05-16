@@ -1,3 +1,8 @@
+**Wharton fit for Palace for FA Cup final against Man City**\
+`The midfielder, 21, is a key player for Palace but has suffered a stop-start season due to injuries.
+`\
+https://nytimes.com/athletic/6361602/2025/05/16/fa-cup-final-team-news-palace-man-city-wharton/
+
 **There’s No NJ Transit Service to Shakira’s Concerts. Should Beyoncé Fans Worry?**\
 `Whenever, wherever, Shakira’s fans were going to find a way to get to her sold-out concert in New Jersey Thursday night. Some had a smooth and efficient experience taking the bus.`\
 https://nytimes.com/2025/05/16/nyregion/shakira-metlife-beyonce.html
