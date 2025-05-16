@@ -1,3 +1,7 @@
+**The Road Trips That Changed Their Lives**\
+`Antoni Porowski, Rachel Kushner, Michelle Zauner and others on their most memorable driving vacations, from coastal Maine to the prairies of South Dakota.`\
+https://nytimes.com/2025/05/16/t-magazine/america-road-trips-michelle-zauner-antoni-porowski.html
+
 **NWSLPA director calls for 'bright-line rule' to emergency protocols**\
 `NWSLPA executive director Meghann Burke explains why the league’s current policies need urgent reform following Savy King’s collapse.`\
 https://nytimes.com/athletic/6361354/2025/05/16/nwslpa-new-rule-savy-king-angel-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/business/boeing-737-max-crashes-guilty-plea.html
 **Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
 `“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an opinion essay published on Friday.`\
 https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
-
-**For Some Immigrant Artists, This Is No Time to Retreat**\
-`An exhibition in the Bronx offers community support to Latino artists, undaunted by a hostile climate.`\
-https://nytimes.com/2025/05/16/arts/design/bronx-art-space-immigrant-artists.html
 

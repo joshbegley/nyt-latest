@@ -1,3 +1,15 @@
+**NWSLPA director calls for 'bright-line rule' to emergency protocols**\
+`NWSLPA executive director Meghann Burke explains why the league’s current policies need urgent reform following Savy King’s collapse.`\
+https://nytimes.com/athletic/6361354/2025/05/16/nwslpa-new-rule-savy-king-angel-city/
+
+**Review: Bill T. Jones Creates a Dance for America, Right Now**\
+`The Bill T. Jones/Arnie Zane Dance Company’s season at New York Live Arts features the premiere of “Curriculum III: People, Places & Things.”`\
+https://nytimes.com/2025/05/16/arts/dance/bill-t-jones-curriculum-iii-review.html
+
+**Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
+`“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an opinion essay published on Friday.`\
+https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
+
 **How to watch the 2025 Preakness Stakes: Schedule, odds, horses and weather**\
 `This weekend marks the 150th edition of the Preakness Stakes, the second leg of thoroughbred racing's annual Triple Crown.`\
 https://nytimes.com/athletic/6361865/2025/05/16/preakness-stakes-odds-weather-how-to-watch/
