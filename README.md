@@ -1,3 +1,15 @@
+**Chelsea 1 Man Utd 0 - How close is the Champions League for Maresca? How bad is Amorim's record?**\
+`Analysis of Chelsea's Premier League game at home to Manchester United`\
+https://nytimes.com/athletic/6353907/2025/05/16/chelsea-1-manchester-united-0-highlights/
+
+**MrBeast’s Tour of Maya Ruins Draws Criticism and Legal Threats in Mexico**\
+`Mexico’s culture secretary said her agency was weighing legal action against a production company for video that seemed to show the YouTube star MrBeast violating the rules for visiting Maya ruins.`\
+https://nytimes.com/2025/05/16/world/americas/mrbeast-mexico-ruins.html
+
+**NCAA’s $2.8 billion settlement back to judge after roster limit adjustments**\
+`If the deal advances, schools that opt into the settlement could begin making direct payments to athletes July 1.`\
+https://nytimes.com/athletic/6362506/2025/05/16/ncaa-settlement-roster-limit-adjustments/
+
 **Woman Charged in Telemundo Reporter’s Murder Gets 25 Years in Another Case**\
 `Danette Colbert, who is awaiting trial in the death of Adan Manzano before the Super Bowl, had her probation revoked in a 2021 case under Louisiana’s repeat offender law.`\
 https://nytimes.com/2025/05/16/us/telemundo-reporter-adan-manzano-death-suspect.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6362581/2025/05/16/italian-open-sinner-paul-result/
 **Employee’s Change Caused xAI’s Chatbot to Veer Into South African Politics**\
 `Grok, the chatbot operated by Elon Musk’s artificial intelligence company, was providing the responses about South Africa to unrelated questions.`\
 https://nytimes.com/2025/05/16/technology/xai-elon-musk-south-africa.html
-
-**Trump Administration Asks Supreme Court to Block Ruling on Mass Layoffs**\
-`A federal judge’s order had barred dozens of federal agencies from moving ahead with the largest phase of President Trump’s efforts to downsize the government.`\
-https://nytimes.com/2025/05/16/us/politics/trump-scotus-federal-layoffs.html
-
-**The Briefing: Aston Villa 2 Tottenham 0 - Emery's side move into top five, Spurs suffer 21st defeat of the season**\
-`Villa took a massive step towards qualification for next season's Champions League while Spurs had one eye on the Europa League final`\
-https://nytimes.com/athletic/6353906/2025/05/16/aston-villa-top-five-champions-league-tottenham-analysis/
-
-**Supreme Court Retains Block on Using Wartime Law to Deport Venezuelans**\
-`The justices sent the case back to a lower court to consider whether the Alien Enemies Act can be used to deport immigrants accused of being members of the Venezuelan gang.`\
-https://nytimes.com/2025/05/16/us/politics/supreme-court-alien-enemies-act-deportations.html
 
