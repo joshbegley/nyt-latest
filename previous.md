@@ -1,40 +1,40 @@
-**The Courts’ Power**\
-`We explain an argument over judicial power at the Supreme Court.`\
-https://nytimes.com/2025/05/16/briefing/the-courts-power.html
+**New York Dream Team: What's the best lineup of Mets and Yankees?**\
+`This is a mashup with an emphasis on mash, as Aaron Judge and Pete Alonso fuel the heart of the order.`\
+https://nytimes.com/athletic/6359544/2025/05/16/new-york-dream-team-best-lineup-mets-yankees/
 
-**How Much Do New Jersey Transit Engineers Make, and How Big a Raise Are They Seeking?**\
-`The striking engineers have complained that their counterparts at other railroads that serve New York City earn at least $10 more per hour.`\
-https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-engineers-pay-demands.html
+**Reds mailbag, Part 1: Wrong hitting coach? Wrong outfielders? Right way to eat a hot dog?**\
+`With the Reds losing a series to the White Sox of all teams, the fans are understandably restless.`\
+https://nytimes.com/athletic/6360308/2025/05/16/cincinnati-reds-mailbag-outfield-free-agents/
 
-**The Pulse: The most important season in WNBA history?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6360129/2025/05/16/wnba-season-preview-the-pulse/
+**Can the Leafs respond after yet another playoff stinker? Here's what data tells us**\
+`The Leafs are, technically, not done yet. They still have a chance to hit back, and it's more historically likely than one might think.`\
+https://nytimes.com/athletic/6359933/2025/05/16/toronto-maple-leafs-nhl-2025-playoffs-panthers/
 
-**Thunder let golden opportunity slip in Game 6. Now we'll see what this team is made of**\
-`The Thunder had a chance — several chances — to put the Nuggets away but failed to do so and must now raise themselves for a Game 7.`\
-https://nytimes.com/athletic/6360971/2025/05/16/thunder-nuggets-nba-playoffs-game-6/
+**Down, but not out: 7 ways the Maple Leafs can still win this series**\
+`With a huge elimination game looming, let's indulge in a little optimism with scenarios of varying degrees of likelihood.`\
+https://nytimes.com/athletic/6360822/2025/05/16/maple-leafs-nhl-playoffs-comeback/
 
-**Pete Rose's path to Hall of Fame: 5 things to know about Era Committee process**\
-`Rose could be on the ballot in December 2027. Here are five things to know about the Hall of Fame committee process that now awaits him. `\
-https://nytimes.com/athletic/6360650/2025/05/16/pete-rose-baseball-hall-of-fame-voting/
+**Rosenthal: The Angels didn't capitalize on having Shohei Ohtani. Now they get to watch the Dodgers do so**\
+`As the Southern California franchises face off this weekend, Angels owner Arte Moreno should see a reminder of blown opportunities.`\
+https://nytimes.com/athletic/6360730/2025/05/16/shohei-ohtani-angels-dodgers-failures/
 
-**Best and worst of NFL 2025 schedule: Chiefs-Chargers, Sam Darnold vs. Vikings is must-watch TV**\
-`Also: Which prime-time and international matchups are most compelling (and which are not), and a late-season option to flex out of MNF.`\
-https://nytimes.com/athletic/6358657/2025/05/16/nfl-2025-schedule-best-worst-games/
+**Why 15-year-old Miami Northwestern QB Neimann Lawrence could be the next big thing**\
+`Lawrence has a chance to be just the third five-star quarterback from Florida since 2010.`\
+https://nytimes.com/athletic/6359668/2025/05/16/neimann-lawrence-miami-quarterback-recruiting/
 
-**WNBA weekend watch guide: Bueckers debuts, NY raises banner, Angel Reese vs. Caitlin Clark**\
-`The WNBA opening weekend slate is loaded with intriguing looks and worthwhile matchups. Here's our guide to all this goodness.`\
-https://nytimes.com/athletic/6357116/2025/05/16/wnba-caitlin-clark-paige-bueckers-liberty-aces-valkyries-lynx-how-to-watch/
+**The Athletic’s Friday football quiz question #55**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6358537/2025/05/16/the-athletics-friday-football-quiz-question-55/
 
-**Fantasy Premier League live Q&A: FPL Gameweek 37 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 37 FPL Q&A from 2-3pm UK time`\
-https://nytimes.com/athletic/6359053/2025/05/16/fantasy-premier-league-advice-gw37-tips/
+**Juan Soto's bat speed is down with Mets. How much? And will it matter?**\
+`Has Soto lost a little bat speed this season? Sure, but it's too simplistic to view one of the game's best hitters through that lens alone.`\
+https://nytimes.com/athletic/6357788/2025/05/16/mets-juan-soto-lower-bat-speed-mlb/
 
-**From NFL backup to Packers QB coach in a year, Sean Mannion is filling big shoes**\
-`The 33-year-old Mannion replaces legendary Packers QB coach Tom Clements, who retired at age 71 after last season.`\
-https://nytimes.com/athletic/6359349/2025/05/16/sean-mannion-packers-quarterbacks-coach/
+**Yankees are proving they can succeed without Juan Soto: 'We've got firepower'**\
+`“We’ve got good depth up and down this lineup right now,” Aaron Judge said, “and everyone is feeding off each other.”`\
+https://nytimes.com/athletic/6360463/2025/05/16/yankees-success-after-juan-soto/
 
-**Meet 'Mr. F1': CEO Stefano Domenicali on keeping the sport 'relevant' in a changing world**\
-`Domenicali rose from Imola school kid to the sport's top job. Now he's steering F1 through its greatest growth era since the 1980s.`\
-https://nytimes.com/athletic/6358022/2025/05/16/stefano-domenicali-f1-ceo-interview/
+**The law that sets its ground rules for the NFL-CFB scheduling war**\
+`College football and the NFL are battling over more TV windows than ever, and only a 60-plus-year-old law is keeping the peace for now.`\
+https://nytimes.com/athletic/6360298/2025/05/16/college-football-schedule-sports-broadcasting-act/
 
