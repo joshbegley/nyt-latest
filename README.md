@@ -1,3 +1,7 @@
+**Inside the Rift Over Trump’s A.I. Deals in the Gulf**\
+`The president’s Middle East visit produced multibillion-dollar technology investments by the Saudis and Emiratis. But they face political pushback at home.`\
+https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.html
+
 **The Jets survived Game 5 like past versions could not have — can they do it again?**\
 `The Jets delivered their best game of the playoffs in their most important, must-win Game 5 but their season is on the line all over again.`\
 https://nytimes.com/athletic/6360989/2025/05/16/nhl-playoffs-winnipeg-jets-game-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360213/2025/05/16/christian-pulisic-transfer-milan
 **49ers rookie Alfred Collins is out of the shadows and ready for his NFL future**\
 `Collins had to wait his turn on a talented Texas roster but feels the on and off-the-field experience prepared him for the 49ers.`\
 https://nytimes.com/athletic/6359963/2025/05/16/49ers-alfred-collins-rookie-texas/
-
-**Row Z: Manchester United's end of season barbecue, and FIFA running late**\
-`Our weekly roundup of some of football's more absurd stories also takes in Nathan Jones' post-match celebrations and a new Watford manager`\
-https://nytimes.com/athletic/6361110/2025/05/16/manchester-united-ratcliffe-fifa-infantino-row-z/
 
