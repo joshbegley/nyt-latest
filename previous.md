@@ -1,3 +1,31 @@
+**Sinner defeats Paul to set up Rome final against Carlos Alcaraz**\
+`The world No. 1 and home favourite overcame a poor start to defeat the American 1-6, 6-0, 6-3.`\
+https://nytimes.com/athletic/6362581/2025/05/16/italian-open-sinner-paul-result/
+
+**Employee’s Change Caused xAI’s Chatbot to Veer Into South African Politics**\
+`Grok, the chatbot operated by Elon Musk’s artificial intelligence company, was providing the responses about South Africa to unrelated questions.`\
+https://nytimes.com/2025/05/16/technology/xai-elon-musk-south-africa.html
+
+**Trump Administration Asks Supreme Court to Block Ruling on Mass Layoffs**\
+`A federal judge’s order had barred dozens of federal agencies from moving ahead with the largest phase of President Trump’s efforts to downsize the government.`\
+https://nytimes.com/2025/05/16/us/politics/trump-scotus-federal-layoffs.html
+
+**The Briefing: Aston Villa 2 Tottenham 0 - Emery's side move into top five, Spurs suffer 21st defeat of the season**\
+`Villa took a massive step towards qualification for next season's Champions League while Spurs had one eye on the Europa League final`\
+https://nytimes.com/athletic/6353906/2025/05/16/aston-villa-top-five-champions-league-tottenham-analysis/
+
+**Supreme Court Retains Temporary Block on Using Wartime Law to Deport Venezuelans**\
+`The justices sent the case back to a lower court to consider whether the Alien Enemies Act can be used to deport immigrants accused of being members of the Venezuelan gang.`\
+https://nytimes.com/2025/05/16/us/politics/supreme-court-alien-enemies-act-deportations.html
+
+**What the jury didn't hear in the Hockey Canada sexual assault trial**\
+`From protesters to smart glasses, trial of five Canadian hockey players accused of sexual assault has been beset with disruptions.`\
+https://nytimes.com/athletic/6362042/2025/05/16/hockey-canada-trial-what-jury-did-not-hear/
+
+**Melania Trump (the Statue) Vanishes in Slovenia**\
+`The bronze sculpture, erected near Ms. Trump’s hometown in eastern Slovenia, was chopped off at the feet and stolen, the police said.`\
+https://nytimes.com/2025/05/16/world/europe/slovenia-melania-trump-statue.html
+
 **What Does ‘86’ Mean? Term Referenced in Comey’s Social Media Post Has Changed Over Time**\
 `Trump administration officials say that the term refers to assassination, but lexicologists say it emerged from diner slang.`\
 https://nytimes.com/2025/05/16/us/politics/james-comey-trump-86-meaning.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-amtrak-commute.html
 **When a Vaccine Safety Trial Becomes Unethical**\
 `New vaccines are often evaluated in trials in which some participants receive a placebo. But not all studies can be designed this way.`\
 https://nytimes.com/2025/05/16/health/vaccine-placebo-trials.html
-
-**Artist Known for Scaling Buildings Was Arrested at His Show’s Opening**\
-`Isaac Wright took a vertiginous photograph of the Empire State Building after he climbed to the top of its spire — evidence the police may have used to arrest him.`\
-https://nytimes.com/2025/05/16/arts/design/16cul-isaac-wright-arrest.html
-
-**'We didn't take any shortcuts': Flyers outline why new coach Rick Tocchet will thrive**\
-`One skill, in particular, made the Flyers confident that Tocchet is the correct choice to replace John Tortorella.`\
-https://nytimes.com/athletic/6362495/2025/05/16/rick-tocchet-flyers-coach/
-
-**Democrats Who Championed Biden’s Re-election Bid Now Seek Atonement**\
-`With their party facing record low approval ratings, many top Democrats are trying to reposition themselves from Biden boosters to truth-tellers of what really happened in 2024.`\
-https://nytimes.com/2025/05/16/us/politics/democrats-biden-2024.html
-
-**Ari Aster’s ‘Eddington’ Has Critics Squaring Off at Cannes**\
-`Set in the pandemic’s early days, the noted horror director’s Covid comedy satirizes the national mood during lockdown. Reactions have been polarizing.`\
-https://nytimes.com/2025/05/16/movies/eddington-ari-aster-cannes-film-festival.html
-
-**Democrats Move to Block Over $3 Billion in Weapons Sales to Qatar and U.A.E.**\
-`The lawmakers introduced resolutions as anger erupted over a series of deals involving the president, businesses linked to his family and several countries.`\
-https://nytimes.com/2025/05/16/us/politics/trump-democrats-weapons-sales.html
-
-**A Century-Old Romance That Gave the Pope His Family Name**\
-`Online genealogists found that Pope Leo’s paternal grandparents in Chicago were accused of having an “illicit affair” in the 1910s, adding another layer to the pope’s complex family history.`\
-https://nytimes.com/2025/05/16/us/pope-leo-grandfather.html
-
-**Republicans Push to End Immigrant Benefits in Democratic States**\
-`For years, Democratic state leaders believed their immigrant programs were free from federal interference. But Republicans in Washington are now threatening to penalize states that continue them.`\
-https://nytimes.com/2025/05/16/us/immigrant-trump-states-california.html
 
