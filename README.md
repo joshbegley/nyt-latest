@@ -1,3 +1,11 @@
+**What we're hearing about the Blackhawks coaching search, changes, prospects and more**\
+`Keep an eye on Jeff Blashill, the former Detroit Red Wings head coach from 2015 to 2022, who recently met with the Blackhawks in Chicago.`\
+https://nytimes.com/athletic/6362038/2025/05/16/blackhawks-coaching-search-nhl/
+
+**What Ron Chernow Loves About Mark Twain**\
+`The Pulitzer-winning presidential biographer discusses his new book about the life of a literary founding father.`\
+https://nytimes.com/2025/05/16/books/review/podcast-ron-chernow-mark-twain.html
+
 **It’s High Time You Added Sotol to Your Bar Cart**\
 `The traditional spirit tells the story of wherever its plant source has grown across the deserts and forests of Northern Mexico.`\
 https://nytimes.com/2025/05/16/dining/sotol.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams
 **Alcaraz beats Musetti to set up possible Sinner final in Rome**\
 `The world No. 2 will face the winner of the second semifinal between Sinner and Tommy Paul in Sunday’s final.`\
 https://nytimes.com/athletic/6362041/2025/05/16/italian-open-alcaraz-musetti-result/
-
-**Prosecutor Accused of Sexual Misconduct Takes Leave From International Court**\
-`The International Criminal Court confirmed that its chief prosecutor, Karim Khan, will step down pending the results of an investigation into allegations against him.`\
-https://nytimes.com/2025/05/16/world/europe/karim-khan-icc-sexual-misconduct.html
-
-**Inside This Couple’s Decision to ‘Self-Deport’ to Mexico**\
-`Alfredo Linares, an undocumented chef and small business owner who lived in the U.S. for over 20 years, decided to leave America with his American wife amid President Trump’s immigration crackdown.`\
-https://nytimes.com/video/us/100000010152568/immigration-self-deport.html
 
