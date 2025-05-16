@@ -1,3 +1,7 @@
+**Jewish Student Who Held Out in Lawsuit Against Harvard Agrees to Settle**\
+`Shabbos Kestenbaum sued Harvard University over allegations it did not do enough to curb antisemitism. He had continued his lawsuit even after other students settled.`\
+https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html
+
 **Hurricanes eliminate Capitals with late goal in Game 5: Takeaways**\
 `Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
 https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/chris-brown-charged-london.html
 **Can C-SPAN Pull Off ‘Crossfire,’ but With Civility?**\
 `“Ceasefire” will be the low-key public affairs channel’s first new weekly show in two decades. The question is whether Republicans and Democrats will show up.`\
 https://nytimes.com/2025/05/15/business/media/cspan-ceasefire.html
-
-**Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
-`Furcal, 47, was a three-time All-Star and played 14 MLB seasons.`\
-https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/
 
