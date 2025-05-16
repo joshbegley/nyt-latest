@@ -1,3 +1,19 @@
+**How to watch the 2025 Preakness Stakes: Schedule, odds, horses and weather**\
+`This weekend marks the 150th edition of the Preakness Stakes, the second leg of thoroughbred racing's annual Triple Crown.`\
+https://nytimes.com/athletic/6361865/2025/05/16/preakness-stakes-odds-weather-how-to-watch/
+
+**11 Inmates Escape From New Orleans Jail, Officials Say**\
+`The Orleans Parish Sheriff’s Office did not disclose how the inmates managed to escape but said they should be considered “armed and dangerous.”`\
+https://nytimes.com/2025/05/16/us/new-orleans-jail-escape.html
+
+**The last NJ Transit strike, in 1983, lasted more than a month.**\
+`By Stefanos Chen`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/the-last-nj-transit-strike-in-1983-lasted-more-than-a-month
+
+**Gulf States Pay Off $15.5 Million Syrian Debt to World Bank**\
+`The move was the latest victory for Syria’s new government as it attempts to stabilize the nation after a long civil war and decades of dictatorship.`\
+https://nytimes.com/2025/05/16/world/middleeast/world-bank-syria-debt-saudi-arabia-qatar.html
+
 **Submit a question for Hunter Patterson's Pistons' offseason mailbag**\
 `What’s on your mind about Detroit as the organization heads into an offseason with legitimate optimism?`\
 https://nytimes.com/athletic/6362108/2025/05/16/detroit-pistons-mailbag-2025-offseason/

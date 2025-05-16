@@ -1,3 +1,19 @@
+**How to watch the 2025 Preakness Stakes: Schedule, odds, horses and weather**\
+`This weekend marks the 150th edition of the Preakness Stakes, the second leg of thoroughbred racing's annual Triple Crown.`\
+https://nytimes.com/athletic/6361865/2025/05/16/preakness-stakes-odds-weather-how-to-watch/
+
+**11 Inmates Escape From New Orleans Jail, Officials Say**\
+`The Orleans Parish Sheriff’s Office did not disclose how the inmates managed to escape but said they should be considered “armed and dangerous.”`\
+https://nytimes.com/2025/05/16/us/new-orleans-jail-escape.html
+
+**The last NJ Transit strike, in 1983, lasted more than a month.**\
+`By Stefanos Chen`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/the-last-nj-transit-strike-in-1983-lasted-more-than-a-month
+
+**Gulf States Pay Off $15.5 Million Syrian Debt to World Bank**\
+`The move was the latest victory for Syria’s new government as it attempts to stabilize the nation after a long civil war and decades of dictatorship.`\
+https://nytimes.com/2025/05/16/world/middleeast/world-bank-syria-debt-saudi-arabia-qatar.html
+
 **Submit a question for Hunter Patterson's Pistons' offseason mailbag**\
 `What’s on your mind about Detroit as the organization heads into an offseason with legitimate optimism?`\
 https://nytimes.com/athletic/6362108/2025/05/16/detroit-pistons-mailbag-2025-offseason/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6362115/2025/05/16/brighton-charalampos-kostoulas-t
 **A Beloved Mainstay of Sri Lankan Culture and Cuisine on Staten Island**\
 `Part museum, part restaurant, the family-run Lakruwana offers an exuberant celebration of the small island nation’s food.`\
 https://nytimes.com/2025/05/16/t-magazine/lakruwana-sri-lankan-food-new-york.html
-
-**LA Galaxy extend coach Greg Vanney despite record winless start**\
-`The reigning MLS champions are off to a brutal title defense, but they're sticking with their manager.`\
-https://nytimes.com/athletic/6362222/2025/05/16/la-galaxy-greg-vanney-contract-extension/
-
-**Bruce Springsteen’s Rowdy ‘Repo Man,’ Plus 11 More New Songs**\
-`Hear tracks by S.G. Goodman, the Lemonheads, Rihanna, Lido Pimienta and more.`\
-https://nytimes.com/2025/05/16/arts/music/playlist-bruce-springsteen-rihanna-lemonheads.html
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6362225/2025/05/16/blues-mailbag-jeremy-rutherford-may-2025/
-
-**As Congress Debates Cutting Medicaid, a Major Study Shows It Saves Lives**\
-`The most extensive research on Medicaid coverage to date found that it reduced the risk of death by 21 percent.`\
-https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html
 
