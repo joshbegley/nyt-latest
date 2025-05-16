@@ -1,3 +1,7 @@
+**Trump Says ‘a Lot of People Are Starving’ in Gaza and the U.S. Wants to Help**\
+`Humanitarian support has collapsed in the enclave, which has been under total Israeli blockade for more than two months. Aid groups warn that the territory is on the brink of famine.`\
+https://nytimes.com/2025/05/16/world/europe/trump-gaza-starvation-famine-us-israel-aid.html
+
 **Inside the Rift Over Trump’s A.I. Deals in the Gulf**\
 `The president’s Middle East visit produced multibillion-dollar technology investments by the Saudis and Emiratis. But they face political pushback at home.`\
 https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359743/2025/05/16/canadiens-offseason-trades-nhl-f
 **Does Pulisic need Champions League football in a World Cup year?**\
 `The USMNT's highest-profile player is likely to face a summer conundrum`\
 https://nytimes.com/athletic/6360213/2025/05/16/christian-pulisic-transfer-milan-champions-league-world-cup-usmnt/
-
-**49ers rookie Alfred Collins is out of the shadows and ready for his NFL future**\
-`Collins had to wait his turn on a talented Texas roster but feels the on and off-the-field experience prepared him for the 49ers.`\
-https://nytimes.com/athletic/6359963/2025/05/16/49ers-alfred-collins-rookie-texas/
 

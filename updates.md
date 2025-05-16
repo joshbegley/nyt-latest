@@ -1,3 +1,7 @@
+**Trump Says ‘a Lot of People Are Starving’ in Gaza and the U.S. Wants to Help**\
+`Humanitarian support has collapsed in the enclave, which has been under total Israeli blockade for more than two months. Aid groups warn that the territory is on the brink of famine.`\
+https://nytimes.com/2025/05/16/world/europe/trump-gaza-starvation-famine-us-israel-aid.html
+
 **Inside the Rift Over Trump’s A.I. Deals in the Gulf**\
 `The president’s Middle East visit produced multibillion-dollar technology investments by the Saudis and Emiratis. But they face political pushback at home.`\
 https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.html
