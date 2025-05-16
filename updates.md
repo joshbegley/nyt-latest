@@ -1,3 +1,7 @@
+**Connor Hellebuyck's shutout extends Jets' season in Game 5 win over Stars: Takeaways**\
+`With a 4-0 victory, the Jets forced Game 6 in Dallas on Saturday.`\
+https://nytimes.com/athletic/6360890/2025/05/16/jets-stars-hellebuyck-shutout/
+
 **Astros' Hunter Brown matches Rangers' Jacob deGrom to punctuate prolific calendar year**\
 `Brown came out on the losing end despite eight brilliant innings against another ace: "This kid’s got something.”`\
 https://nytimes.com/athletic/6360886/2025/05/16/astros-hunter-brown-prolific-year-jacob-degrom/
