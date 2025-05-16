@@ -1,3 +1,16 @@
+**Doctors Heal Infant Using First Customized-Gene Editing Treatment**\
+`Doctors applied a personalized treatment to cure a baby’s genetic disorder, opening the door to similar therapies for others.`\
+https://nytimes.com/video/us/100000010173473/gene-editing-personalized-rare-disorders.html
+
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
+**Serie A odds for the league's crunch time: Title tilts, UCL scramble, drop zone drama**\
+`There’s everything left to play for in Serie A. Sam Tighe looks at all the possible scenarios through a betting lens. `\
+https://nytimes.com/athletic/6359299/2025/05/16/serie-a-final-day-betting-tips-predictions-odds/
+
 **FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
 `Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
 `\
