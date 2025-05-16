@@ -1,3 +1,15 @@
+**David Tracy, 86, Theologian Who Rejected Rome’s Supremacy, Dies**\
+`The author of influential books and essays, he was known for a contemporary theory of religion and Catholicism that advocated dialogue, not decrees.`\
+https://nytimes.com/2025/05/16/us/david-tracy-dead.html
+
+**Fed to Cut Staff by 10% Over Several Years**\
+`In an internal memo to staff on Friday, Jerome H. Powell, the chair of the central bank, said the institution would offer a voluntary deferred resignation program.`\
+https://nytimes.com/2025/05/16/business/federal-reserve-job-cuts.html
+
+**Boxcar, a Private Bus Company, Sees Opportunity in NJ Transit Strike**\
+`With quirky social media videos, Boxcar, which was founded in 2017, is seeking to elevate its profile as commuters look for alternative ways to reach Manhattan.`\
+https://nytimes.com/2025/05/16/nyregion/boxcar-bus-nj-transit-strike.html
+
 **Starbucks Baristas Stage Walkouts Over Dress Code Change**\
 `Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
 https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
