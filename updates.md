@@ -1,3 +1,7 @@
+**Mets' Juan Soto met with boos at Yankee Stadium**\
+`Soto doffed his helmet before stepping into the batter’s box before his first plate appearance in the Bronx as a member of the Mets.`\
+https://nytimes.com/athletic/6362931/2025/05/16/juan-soto-boos-yankee-stadium-mets/
+
 **Severe Storms Batter the Midwest**\
 `Severe weather unleashed hail, damaging winds and tornadoes across large portions of the Midwest and the Mid-Atlantic.`\
 https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.html
