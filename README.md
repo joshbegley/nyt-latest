@@ -1,3 +1,7 @@
+**Jamaican Homes That Showcase the Island’s Creative History**\
+`The hotelier Sally Henzell helped bring reggae to the world. More than 50 years later, history continues to echo through her houses.`\
+https://nytimes.com/2025/05/16/t-magazine/sally-henzell-jamaica-home.html
+
 **New York Dream Team: What's the best lineup of Mets and Yankees?**\
 `This is a mashup with an emphasis on mash, as Aaron Judge and Pete Alonso fuel the heart of the order.`\
 https://nytimes.com/athletic/6359544/2025/05/16/new-york-dream-team-best-lineup-mets-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6357788/2025/05/16/mets-juan-soto-lower-bat-speed-m
 **Yankees are proving they can succeed without Juan Soto: 'We've got firepower'**\
 `“We’ve got good depth up and down this lineup right now,” Aaron Judge said, “and everyone is feeding off each other.”`\
 https://nytimes.com/athletic/6360463/2025/05/16/yankees-success-after-juan-soto/
-
-**The law that sets its ground rules for the NFL-CFB scheduling war**\
-`College football and the NFL are battling over more TV windows than ever, and only a 60-plus-year-old law is keeping the peace for now.`\
-https://nytimes.com/athletic/6360298/2025/05/16/college-football-schedule-sports-broadcasting-act/
 
