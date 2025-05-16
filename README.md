@@ -2,7 +2,7 @@
 `By Patrick McGeehan`\
 https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/here-is-nj-transits-contingency-plan-and-other-ways-to-get-to-new-york-city
 
-**Brazilian football federation president removed after court ruling**\
+**Brazilian Football Federation president removed after court ruling**\
 `Rodrigues, 71, has been the subject of two petitions in recent days relating to the alleged falsification of documents.`\
 https://nytimes.com/athletic/6361048/2025/05/16/brazil-football-president-ednaldo-rodrigues-court/
 
@@ -19,7 +19,7 @@ https://nytimes.com/issue/todaysinyt/2025/05/16/todays-new-york-times-internatio
 https://nytimes.com/athletic/6361088/2025/05/16/newcastle-transfer-news-psr-2025/
 
 **Trump Wraps Up a Middle East Tour Full of Lavish Receptions and Business Deals**\
-`President Trump’s four-day trip yielded a remarkable turnabout with Syria and announcements of multibillion-dollar deals for U.S. firms.`\
+`President Trump’s four-day trip yielded a remarkable turnabout with Syria and announcements of multibillion-dollar deals for U.S. companies.`\
 https://nytimes.com/2025/05/16/us/politics/trump-middle-east-visit.html
 
 **Who Are the Favorites to Win Eurovision?**\

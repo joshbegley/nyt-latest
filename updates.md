@@ -1,3 +1,11 @@
+**Here is NJ Transit’s contingency plan, and other ways to get to New York City.**\
+`By Patrick McGeehan`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/here-is-nj-transits-contingency-plan-and-other-ways-to-get-to-new-york-city
+
+**Brazilian football federation president removed after court ruling**\
+`Rodrigues, 71, has been the subject of two petitions in recent days relating to the alleged falsification of documents.`\
+https://nytimes.com/athletic/6361048/2025/05/16/brazil-football-president-ednaldo-rodrigues-court/
+
 **2025 WNBA MVP odds: Caitlin Clark is the favorite**\
 `Early WNBA MVP odds have Caitlin Clark, A'ja Wilson and Napheesa Collier dominating the top of the board.`\
 https://nytimes.com/athletic/6344916/2025/05/16/wnba-mvp-odds-caitlin-clark/
