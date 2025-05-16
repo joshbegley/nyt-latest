@@ -1,3 +1,7 @@
+**New Jersey Transit Engineers Go on Strike**\
+`As union workers prepared to strike, Gov. Philip D. Murphy of New Jersey said the state’s transit system was facing a “sobering fiscal reality” and that he hoped for the best.`\
+https://nytimes.com/video/us/100000010173527/njtransit-strike.html
+
 **Doctors Heal Infant Using First Customized-Gene Editing Treatment**\
 `Doctors applied a personalized treatment to cure a baby’s genetic disorder, opening the door to similar therapies for others.`\
 https://nytimes.com/video/us/100000010173473/gene-editing-personalized-rare-disorders.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/learning/robot-and-paper.html
 **Jean-Philippe Mateta: My Game in My Words**\
 `The Crystal Palace striker talks instincts, finishing technique with both feet and that protective headgear ahead of the FA Cup final`\
 https://nytimes.com/athletic/6359116/2025/05/16/jean-philippe-mateta-palace-interview-fa-cup/
-
-**Stephen Colbert on the President’s Trumped-Up Birthday Plans**\
-`A military parade marking the anniversary of the Army’s founding will be held on the president’s birthday. “He wants overwhelming force,” Stephen Colbert said.`\
-https://nytimes.com/2025/05/16/arts/television/stephen-colbert-trump-birthday-parade.html
 
