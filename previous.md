@@ -1,3 +1,11 @@
+**Brisbee: The Bay Bridge Series is gone, and it's only going to get worse**\
+`The A's are at Oracle Park this weekend for a series that used to mean a lot but now means much less. Baseball is worse for the change.`\
+https://nytimes.com/athletic/6362185/2025/05/16/giants-athletics-bay-bridge-series-gone/
+
+**U.S. Credit Receives Downgrade From Moody’s as Trump Pushes Costly Tax Cuts**\
+`The downgrade means that each of the three major credit rating firms no longer gives the United States its best rating.`\
+https://nytimes.com/2025/05/16/business/us-credit-downgrade-moodys.html
+
 **'T means so much to us': How Forest reacted in week after horrific Awoniyi injury**\
 `Nuno explains how he and the Nottingham Forest squad reacted after the horrific injury to Taiwo Awoniyi`\
 https://nytimes.com/athletic/6362123/2025/05/16/nuno-nottingham-forest-taiwo-awoniyi-coma/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/us/telemundo-reporter-adan-manzano-death-suspect.
 **Brock Purdy, 49ers agree to 5-year contract extension: Sources**\
 `In three seasons, the 49ers quarterback has a record (including the playoffs) of 27-15 and has played in one Super Bowl.`\
 https://nytimes.com/athletic/6101080/2025/05/16/brock-purdy-49ers-contract-extension/
-
-**Phillies' Aaron Nola goes on IL; Mick Abel to make MLB debut Sunday**\
-`It's been almost eight years since Nola, one of the most durable pitchers in the sport, last went on the injured list. `\
-https://nytimes.com/athletic/6362612/2025/05/16/aaron-nola-injured-mick-abel-mlb-debut-phillies/
-
-**Overlooked No More, Walasse Ting, Who Bridged Cultures With Paint and Prose**\
-`His style as a poet and artist was informed by his upbringing in Shanghai and his years in Paris. He then joined the Pop-fueled studios of New York.`\
-https://nytimes.com/2025/05/16/obituaries/walasse-ting-overlooked.html
 

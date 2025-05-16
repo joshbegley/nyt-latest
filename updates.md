@@ -1,3 +1,11 @@
+**Brisbee: The Bay Bridge Series is gone, and it's only going to get worse**\
+`The A's are at Oracle Park this weekend for a series that used to mean a lot but now means much less. Baseball is worse for the change.`\
+https://nytimes.com/athletic/6362185/2025/05/16/giants-athletics-bay-bridge-series-gone/
+
+**U.S. Credit Receives Downgrade From Moody’s as Trump Pushes Costly Tax Cuts**\
+`The downgrade means that each of the three major credit rating firms no longer gives the United States its best rating.`\
+https://nytimes.com/2025/05/16/business/us-credit-downgrade-moodys.html
+
 **'T means so much to us': How Forest reacted in week after horrific Awoniyi injury**\
 `Nuno explains how he and the Nottingham Forest squad reacted after the horrific injury to Taiwo Awoniyi`\
 https://nytimes.com/athletic/6362123/2025/05/16/nuno-nottingham-forest-taiwo-awoniyi-coma/
