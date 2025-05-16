@@ -1,6 +1,10 @@
+**Forest coach Nuno hopes Awoniyi can attend final game next weekend**\
+`The striker required surgery on an abdominal injury he sustained in the draw with Leicester City last Sunday.`\
+https://nytimes.com/athletic/6361632/2025/05/16/forest-taiwo-awoniyi-latest-nuno/
+
 **Opening Line: Intriguing wagers around Mets-Yankees and more this weekend**\
 `The most intriguing odds and bets from this weekend's biggest games, including Mets-Yankees and Sky-Fever.`\
-https://nytimes.com/athletic/6361436/2025/05/16/the-most-intriguing-wagers-around-mets-yankees-sky-fever-and-more-this-weekend/
+https://nytimes.com/athletic/6361436/2025/05/16/intriguing-wagers-mets-yankees-sky-fever-celtics-knicks/
 
 **Wharton fit for Palace for FA Cup final against Man City**\
 `The midfielder, 21, is a key player for Palace but has suffered a stop-start season due to injuries.
@@ -34,8 +38,4 @@ https://nytimes.com/newsgraphics/card-story/met-gala-after-party-photos
 **Budapest**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-budapest
-
-**gws-kentucky-derby-2025-hats**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/kentucky-derby-2025-hats
 
