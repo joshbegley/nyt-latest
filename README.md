@@ -1,3 +1,7 @@
+**G.O.P. Tax Bill May Hurt the Lowest Earners and Help the Richest**\
+`Even though most Americans may see lower taxes, Republicans’ spending cuts could outweigh those benefits and leave some worse off.`\
+https://nytimes.com/2025/05/16/business/republican-tax-bill-trump.html
+
 **Sean Combs**\
 ``\
 https://nytimes.com/spotlight/sean-combs-diddy
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
 **How to watch Mets at Yankees, this weekend's Subway Series with Juan Soto back in Bronx**\
 `One of baseball's best interleague rivalries goes down this weekend, with the Yankees hosting the Mets for a "subway series."`\
 https://nytimes.com/athletic/6360201/2025/05/16/mets-yankees-subway-series-juan-soto-new-york-how-to-watch/
-
-**The biggest lesson MacKinnon can learn from Crosby, Fleury**\
-`MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
-https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
 

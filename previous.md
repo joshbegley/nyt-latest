@@ -1,3 +1,15 @@
+**Sean Combs**\
+``\
+https://nytimes.com/spotlight/sean-combs-diddy
+
+**Deion Sanders thanks Mel Kiper for NFL Draft analysis of Shedeur**\
+`Kiper was among Sheduer Sanders' most vocal advocates and expressed surprised at the QB's slide in the draft.`\
+https://nytimes.com/athletic/6361574/2025/05/16/mel-kiper-deion-sanders-shedeur-nfl-draft/
+
+**Panthers and 'demons': What Auston Matthews and Mitch Marner are fighting in Game 6**\
+`Game 6 in Florida provides another opportunity for the Leafs to change the narrative surrounding their response to playoff pressure.  `\
+https://nytimes.com/athletic/6361216/2025/05/16/maple-leafs-panthers-demons-nhl-playoffs/
+
 **Jury discharged in Hockey Canada trial; judge alone will determine outcome**\
 `Judge thanks jurors for their service and tells them they "are free to go." `\
 https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6360201/2025/05/16/mets-yankees-subway-series-juan-
 **The biggest lesson MacKinnon can learn from Crosby, Fleury**\
 `MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
 https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
-
-**Arteta praises Havertz' 'unbelievable' mindset as Arsenal forward nears return**\
-`The Germany international was involved in Arsenal’s open training session on Wednesday as he steps up his return from injury. `\
-https://nytimes.com/athletic/6361683/2025/05/16/arsenal-team-news-havertz-newcastle/
-
-**Swept by the Fires, Away From Their Lives**\
-`Fire victims from Altadena and Pacific Palisades have moved across Los Angeles and the country looking for firm footing to start over.`\
-https://nytimes.com/2025/05/16/realestate/la-fire-victims-altadena-palisades.html
-
-**Novo Nordisk to Replace C.E.O. After Losing Edge in Weight-Loss Drugs**\
-`The Danish drugmaker, which makes Ozempic and Wegovy, has seen its stock tumble as competition in the weight-loss drug market has grown fiercer.`\
-https://nytimes.com/2025/05/16/health/novo-nordisk-ceo-ozempic-wegovy.html
 

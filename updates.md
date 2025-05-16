@@ -1,3 +1,15 @@
+**Sean Combs**\
+``\
+https://nytimes.com/spotlight/sean-combs-diddy
+
+**Deion Sanders thanks Mel Kiper for NFL Draft analysis of Shedeur**\
+`Kiper was among Sheduer Sanders' most vocal advocates and expressed surprised at the QB's slide in the draft.`\
+https://nytimes.com/athletic/6361574/2025/05/16/mel-kiper-deion-sanders-shedeur-nfl-draft/
+
+**Panthers and 'demons': What Auston Matthews and Mitch Marner are fighting in Game 6**\
+`Game 6 in Florida provides another opportunity for the Leafs to change the narrative surrounding their response to playoff pressure.  `\
+https://nytimes.com/athletic/6361216/2025/05/16/maple-leafs-panthers-demons-nhl-playoffs/
+
 **Jury discharged in Hockey Canada trial; judge alone will determine outcome**\
 `Judge thanks jurors for their service and tells them they "are free to go." `\
 https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
