@@ -1,3 +1,7 @@
+**The Courts’ Power**\
+`We explain an argument over judicial power at the Supreme Court.`\
+https://nytimes.com/2025/05/16/briefing/the-courts-power.html
+
 **How Much Do New Jersey Transit Engineers Make, and How Big a Raise Are They Seeking?**\
 `The striking engineers have complained that their counterparts at other railroads that serve New York City earn at least $10 more per hour.`\
 https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-engineers-pay-demands.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-engineers-pay-demands.
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6360129/2025/05/16/wnba-season-preview-the-pulse/
 
-**Thunder fall flat and let golden opportunity slip: 'They went and got the game'**\
+**Thunder let golden opportunity slip in Game 6. Now we'll see what this team is made of**\
 `The Thunder had a chance — several chances — to put the Nuggets away but failed to do so and must now raise themselves for a Game 7.`\
 https://nytimes.com/athletic/6360971/2025/05/16/thunder-nuggets-nba-playoffs-game-6/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359349/2025/05/16/sean-mannion-packers-quarterback
 **Meet 'Mr. F1': CEO Stefano Domenicali on keeping the sport 'relevant' in a changing world**\
 `Domenicali rose from Imola school kid to the sport's top job. Now he's steering F1 through its greatest growth era since the 1980s.`\
 https://nytimes.com/athletic/6358022/2025/05/16/stefano-domenicali-f1-ceo-interview/
-
-**NWSL admits game should not have continued after Savy King’s on-field collapse**\
-`Friday's game between Angel City and Utah Royals was stopped for around 16 minutes before resuming.`\
-https://nytimes.com/athletic/6361142/2025/05/16/angel-city-utah-royals-savy-king-collapse-nwsl/
 

@@ -1,3 +1,7 @@
+**Julian Strawther answers the call for depth-challenged Nuggets in Game 6**\
+`Denver needed someone, anyone, to contribute off the bench while facing elimination versus the Thunder. Strawther was that guy.`\
+https://nytimes.com/athletic/6360849/2025/05/16/julian-strawther-nuggets-playoffs-game-6-thunder/
+
 **The Courts’ Power**\
 `We explain an argument over judicial power at the Supreme Court.`\
 https://nytimes.com/2025/05/16/briefing/the-courts-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359053/2025/05/16/fantasy-premier-league-advice-gw
 **From NFL backup to Packers QB coach in a year, Sean Mannion is filling big shoes**\
 `The 33-year-old Mannion replaces legendary Packers QB coach Tom Clements, who retired at age 71 after last season.`\
 https://nytimes.com/athletic/6359349/2025/05/16/sean-mannion-packers-quarterbacks-coach/
-
-**Meet 'Mr. F1': CEO Stefano Domenicali on keeping the sport 'relevant' in a changing world**\
-`Domenicali rose from Imola school kid to the sport's top job. Now he's steering F1 through its greatest growth era since the 1980s.`\
-https://nytimes.com/athletic/6358022/2025/05/16/stefano-domenicali-f1-ceo-interview/
 

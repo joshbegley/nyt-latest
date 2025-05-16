@@ -1,3 +1,11 @@
+**The Courts’ Power**\
+`We explain an argument over judicial power at the Supreme Court.`\
+https://nytimes.com/2025/05/16/briefing/the-courts-power.html
+
+**Thunder let golden opportunity slip in Game 6. Now we'll see what this team is made of**\
+`The Thunder had a chance — several chances — to put the Nuggets away but failed to do so and must now raise themselves for a Game 7.`\
+https://nytimes.com/athletic/6360971/2025/05/16/thunder-nuggets-nba-playoffs-game-6/
+
 **How Much Do New Jersey Transit Engineers Make, and How Big a Raise Are They Seeking?**\
 `The striking engineers have complained that their counterparts at other railroads that serve New York City earn at least $10 more per hour.`\
 https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-engineers-pay-demands.html
