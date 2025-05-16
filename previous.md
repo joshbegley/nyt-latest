@@ -1,3 +1,7 @@
+**Investigators See No Criminality by E.P.A. Officials in Case on Biden-Era Grants**\
+`A contentious investigation that questioned the legality of E.P.A. grants has found very little to suggest government employees violated the law.`\
+https://nytimes.com/2025/05/16/us/trump-biden-epa-grants.html
+
 **As Trump Departs the Middle East, He Takes Aim at Critics Back Home**\
 `President Trump went on a social media posting spree after four days overseas, where he basked in the kind of lavish praise that so delights him.`\
 https://nytimes.com/2025/05/16/us/politics/trump-springsteen-critics-internet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/science/peter-lax-dead.html
 **Brisbee: The Bay Bridge Series is gone, and it's only going to get worse**\
 `The A's are at Oracle Park this weekend for a series that used to mean a lot but now means much less. Baseball is worse for the change.`\
 https://nytimes.com/athletic/6362185/2025/05/16/giants-athletics-bay-bridge-series-gone/
-
-**U.S. Credit Receives Downgrade From Moody’s as Trump Pushes Costly Tax Cuts**\
-`The downgrade means that each of the three major credit rating firms no longer gives the United States its best rating.`\
-https://nytimes.com/2025/05/16/business/us-credit-downgrade-moodys.html
 

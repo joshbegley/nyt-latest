@@ -1,3 +1,7 @@
+**Investigators See No Criminality by E.P.A. Officials in Case on Biden-Era Grants**\
+`A contentious investigation that questioned the legality of E.P.A. grants has found very little to suggest government employees violated the law.`\
+https://nytimes.com/2025/05/16/us/trump-biden-epa-grants.html
+
 **As Trump Departs the Middle East, He Takes Aim at Critics Back Home**\
 `President Trump went on a social media posting spree after four days overseas, where he basked in the kind of lavish praise that so delights him.`\
 https://nytimes.com/2025/05/16/us/politics/trump-springsteen-critics-internet.html
