@@ -1,3 +1,7 @@
+**What to know about the long shots taking over the PGA Championship**\
+`The unexpected was everywhere at soggy Quail Hollow Club on Thursday.`\
+https://nytimes.com/athletic/6360346/2025/05/15/pga-championship-2025-long-shots-quail-hollow/
+
 **'It's on us': Blue Jays rotation expects better, regardless of results**\
 `Kevin Gausman allowed three homers and six earned runs — both season highs — in an 8-3 loss to the Tampa Bay Rays.`\
 https://nytimes.com/athletic/6360710/2025/05/15/blue-jays-loss-rays-rotation/

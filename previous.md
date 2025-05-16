@@ -1,3 +1,7 @@
+**What to know about the long shots taking over the PGA Championship**\
+`The unexpected was everywhere at soggy Quail Hollow Club on Thursday.`\
+https://nytimes.com/athletic/6360346/2025/05/15/pga-championship-2025-long-shots-quail-hollow/
+
 **'It's on us': Blue Jays rotation expects better, regardless of results**\
 `Kevin Gausman allowed three homers and six earned runs — both season highs — in an 8-3 loss to the Tampa Bay Rays.`\
 https://nytimes.com/athletic/6360710/2025/05/15/blue-jays-loss-rays-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/trump-parade-army-birthday-cost.html
 **Braves takeaways: Red-hot rookies AJ Smith-Shawver, Drake Baldwin; Chris Sale to start in Boston**\
 `Rookie catcher Baldwin continues to sizzle. Can he make Braves fans forgive the team for trading away William Contreras?`\
 https://nytimes.com/athletic/6360544/2025/05/15/braves-takeaways-aj-smith-shawver-drake-baldwin-chris-sale/
-
-**Stephens: Don't be so quick to mock the Kings' hiring of GM Ken Holland**\
-`It's easy to be critical of Holland — and of the Kings' choice — but he might be what they need right now.`\
-https://nytimes.com/athletic/6360611/2025/05/15/ken-holland-kings-gm-hired/
 
