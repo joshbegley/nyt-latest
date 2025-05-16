@@ -1,3 +1,11 @@
+**Michael Flynn, a Trump Ally, Sponsors Beethoven at the Kennedy Center**\
+`Following the president’s overhaul of the center, Mr. Flynn, the former national security adviser, has made a substantial gift to the National Symphony Orchestra.`\
+https://nytimes.com/2025/05/16/arts/music/michael-flynn-kennedy-center.html
+
+**Thaddeus Mosley Shapes Universes in Wood**\
+`In a spectacular exhibition at Karma Gallery, the 98-year-old artist makes hardwood sculptures that burst with vitality and variation.`\
+https://nytimes.com/2025/05/16/arts/design/thaddeus-mosley-karma-gallery.html
+
 **Investigators See No Criminality by E.P.A. Officials in Case on Biden-Era Grants**\
 `A contentious investigation that questioned the legality of E.P.A. grants has found very little to suggest government employees violated the law.`\
 https://nytimes.com/2025/05/16/us/trump-biden-epa-grants.html
