@@ -1,3 +1,11 @@
+**'T means so much to us': How Forest reacted in week after horrific Awoniyi injury**\
+`Nuno explains how he and the Nottingham Forest squad reacted after the horrific injury to Taiwo Awoniyi`\
+https://nytimes.com/athletic/6362123/2025/05/16/nuno-nottingham-forest-taiwo-awoniyi-coma/
+
+**Postecoglou:  Sarr felt discomfort in his back, not 'anything too significant'**\
+`The Senegal international was replaced by Yves Bissouma in the 51st minute and walked straight down the tunnel with a medical staff member.`\
+https://nytimes.com/athletic/6362683/2025/05/16/pape-matar-sarr-spurs-injury-update/
+
 **Justices Extended Block on Deportations Under Wartime Law**\
 `Also, a New Jersey Transit strike left commuters scrambling. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/16/briefing/supreme-court-deportations-transit-strike-new-jersey.html
