@@ -1,3 +1,7 @@
+**Homophobia in football caused by ‘selfishness’, says France defender Clauss**\
+`There has yet to be an openly gay male player in Ligue 1, and Clauss attributed that to a lack of empathy.`\
+https://nytimes.com/athletic/6361358/2025/05/16/football-soccer-homophobia-clauss/
+
 **Cable Giants Charter and Cox to Merge in $34.5 Billion Deal**\
 `The combination, which must pass muster with antitrust authorities, would create one of the biggest TV and internet providers in the United States.`\
 https://nytimes.com/2025/05/16/business/charter-cox-cable-merger.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/05/16/world/europe/trump-gaza-starvation-famine-us-isra
 `The president’s Middle East visit produced multibillion-dollar technology investments by the Saudis and Emiratis. But they face political pushback at home.`\
 https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.html
 
-**The Jets survived Game 5 like past versions could not have — can they do it again?**\
+**The Jets survived Game 5 like past versions could not have. Can they do it again?**\
 `The Jets delivered their best game of the playoffs in their most important, must-win Game 5 but their season is on the line all over again.`\
 https://nytimes.com/athletic/6360989/2025/05/16/nhl-playoffs-winnipeg-jets-game-5/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360715/2025/05/16/chicago-sky-courtney-vandersloot
 **How to watch Lynx at Wings: Paige Bueckers' WNBA debut vs. mighty Minnesota**\
 `Welcome to the W, Paige Bueckers. Her first game is a particularly tough one — last year's Minnesota Lynx almost won the WNBA Finals.`\
 https://nytimes.com/athletic/6359696/2025/05/16/lynx-wings-paige-bueckers-wnba-how-to-watch/
-
-**Canadiens offseason primer: Trade candidates, free agents who fit the rebuild**\
-`With an overflow of picks and prospects, the Canadiens might be able to find willing trade partners this summer they couldn't a year ago.`\
-https://nytimes.com/athletic/6359743/2025/05/16/canadiens-offseason-trades-nhl-free-agency/
 

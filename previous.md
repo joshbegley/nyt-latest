@@ -1,3 +1,7 @@
+**Cable Giants Charter and Cox to Merge in $34.5 Billion Deal**\
+`The combination, which must pass muster with antitrust authorities, would create one of the biggest TV and internet providers in the United States.`\
+https://nytimes.com/2025/05/16/business/charter-cox-cable-merger.html
+
 **Trump Says ‘a Lot of People Are Starving’ in Gaza and the U.S. Wants to Help**\
 `Humanitarian support has collapsed in the enclave, which has been under total Israeli blockade for more than two months. Aid groups warn that the territory is on the brink of famine.`\
 https://nytimes.com/2025/05/16/world/europe/trump-gaza-starvation-famine-us-israel-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359696/2025/05/16/lynx-wings-paige-bueckers-wnba-h
 **Canadiens offseason primer: Trade candidates, free agents who fit the rebuild**\
 `With an overflow of picks and prospects, the Canadiens might be able to find willing trade partners this summer they couldn't a year ago.`\
 https://nytimes.com/athletic/6359743/2025/05/16/canadiens-offseason-trades-nhl-free-agency/
-
-**Does Pulisic need Champions League football in a World Cup year?**\
-`The USMNT's highest-profile player is likely to face a summer conundrum`\
-https://nytimes.com/athletic/6360213/2025/05/16/christian-pulisic-transfer-milan-champions-league-world-cup-usmnt/
 
