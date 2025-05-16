@@ -1,3 +1,7 @@
+**Row Z: Manchester United's end of season barbecue, and FIFA running late**\
+`Our weekly roundup of some of football's more absurd stories also takes in Nathan Jones' post-match celebrations and a new Watford manager`\
+https://nytimes.com/athletic/6361110/2025/05/16/manchester-united-ratcliffe-fifa-infantino-row-z/
+
 **What to Do When a Mountain Gorilla Blocks Your Path**\
 `A winning essay by Tenzing Carvalho, age 17.`\
 https://nytimes.com/2025/05/16/learning/what-to-do-when-a-mountain-gorilla-blocks-your-path.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360308/2025/05/16/cincinnati-reds-mailbag-outfield
 **Can the Leafs respond after yet another playoff stinker? Here's what data tells us**\
 `The Leafs are, technically, not done yet. They still have a chance to hit back, and it's more historically likely than one might think.`\
 https://nytimes.com/athletic/6359933/2025/05/16/toronto-maple-leafs-nhl-2025-playoffs-panthers/
-
-**Down, but not out: 7 ways the Maple Leafs can still win this series**\
-`With a huge elimination game looming, let's indulge in a little optimism with scenarios of varying degrees of likelihood.`\
-https://nytimes.com/athletic/6360822/2025/05/16/maple-leafs-nhl-playoffs-comeback/
 
