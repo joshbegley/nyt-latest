@@ -1,3 +1,11 @@
+**Trump Officials Say Ex-F.B.I. Chief Is Under Investigation Over Social Media Post**\
+`James Comey shared and later took down a post with a phrase used by critics of the president, saying there had been no ill intent.`\
+https://nytimes.com/2025/05/15/us/politics/james-comey-post-trump.html
+
+**Suns employee becomes fourth to sue franchise in last 7 months**\
+`The latest lawsuit was filed by attorneys representing Gene Traylor in U.S. District Court in Arizona.`\
+https://nytimes.com/athletic/6360744/2025/05/15/phoenix-suns-employee-lawsuit/
+
 **New Jersey Transit Strike Set to Begin at Midnight After Talks Break Down**\
 `The strike by the locomotive engineers would disrupt the lives of tens of thousands of commuters in the New York metropolitan region.`\
 https://nytimes.com/2025/05/15/nyregion/njtransit-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs
 **A judge blocked the Energy Department from imposing a cap on grants for university research.**\
 `The temporary ruling mirrored one in a case involving the N.I.H., which similarly tried to cap the funding that covers universities’ overhead expenses in research.`\
 https://nytimes.com/live/2025/05/15/us/trump-news/a-judge-blocked-the-energy-department-from-imposing-a-cap-on-grants-for-university-research
-
-**36 Deaths in Police Custody Should Have Been Called Homicides, Report Finds**\
-`An audit of deaths in Maryland found that in cases of people who died after being restrained by the police, medical examiners often classified the deaths as natural or accidental.`\
-https://nytimes.com/2025/05/15/us/maryland-police-custody-autopsies-audit.html
-
-**Military Parade in Capital on Trump’s Birthday Could Cost $45 Million, Officials Say**\
-`The parade is scheduled for June 14, the date of the Army’s 250th anniversary, and is billed as the “Army’s birthday celebration.” President Trump turns 79 that day.`\
-https://nytimes.com/2025/05/15/us/politics/trump-parade-army-birthday-cost.html
 

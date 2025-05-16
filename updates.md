@@ -1,3 +1,11 @@
+**Trump Officials Say Ex-F.B.I. Chief Is Under Investigation Over Social Media Post**\
+`James Comey shared and later took down a post with a phrase used by critics of the president, saying there had been no ill intent.`\
+https://nytimes.com/2025/05/15/us/politics/james-comey-post-trump.html
+
+**Suns employee becomes fourth to sue franchise in last 7 months**\
+`The latest lawsuit was filed by attorneys representing Gene Traylor in U.S. District Court in Arizona.`\
+https://nytimes.com/athletic/6360744/2025/05/15/phoenix-suns-employee-lawsuit/
+
 **Hurricanes eliminate Capitals, advance to Eastern Conference final: Takeaways**\
 `Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
 https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
