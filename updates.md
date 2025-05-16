@@ -1,3 +1,7 @@
+**Submit a question for Hunter Patterson's Pistons' offseason mailbag**\
+`What’s on your mind about Detroit as the organization heads into an offseason with legitimate optimism?`\
+https://nytimes.com/athletic/6362108/2025/05/16/detroit-pistons-mailbag-2025-offseason/
+
 **U.S. May Drop Guilty Plea Deal With Boeing Over Deadly Max Crashes, Lawyers Say**\
 `A decision to not pursue a guilty plea from Boeing would be the latest about-face in a long effort to hold the plane maker accountable for the crashes of two 737 Max jets.`\
 https://nytimes.com/2025/05/16/business/boeing-737-max-crashes-guilty-plea.html

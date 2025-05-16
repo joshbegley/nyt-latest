@@ -1,3 +1,7 @@
+**Submit a question for Hunter Patterson's Pistons' offseason mailbag**\
+`What’s on your mind about Detroit as the organization heads into an offseason with legitimate optimism?`\
+https://nytimes.com/athletic/6362108/2025/05/16/detroit-pistons-mailbag-2025-offseason/
+
 **U.S. May Drop Guilty Plea Deal With Boeing Over Deadly Max Crashes, Lawyers Say**\
 `A decision to not pursue a guilty plea from Boeing would be the latest about-face in a long effort to hold the plane maker accountable for the crashes of two 737 Max jets.`\
 https://nytimes.com/2025/05/16/business/boeing-737-max-crashes-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362225/2025/05/16/blues-mailbag-jeremy-rutherford-
 **As Congress Debates Cutting Medicaid, a Major Study Shows It Saves Lives**\
 `The most extensive research on Medicaid coverage to date found that it reduced the risk of death by 21 percent.`\
 https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html
-
-**‘Is Betty Buckley Still Alive?’ Trump Asked. She Certainly Is.**\
-`“What’s happening these days,” the singer said at the start of a Joe’s Pub residency, “is weird, and not cool.”`\
-https://nytimes.com/2025/05/16/theater/is-betty-buckley-still-alive-trump-asked-she-certainly-is.html
 
