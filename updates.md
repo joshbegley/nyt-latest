@@ -1,3 +1,8 @@
+**Wharton fit for Palace for FA Cup final against Man City**\
+`The midfielder, 21, is a key player for Palace but has suffered a stop-start season due to injuries.
+`\
+https://nytimes.com/athletic/6361602/2025/05/16/fa-cup-final-team-news-palace-man-city-wharton/
+
 **Arteta praises Havertz' 'unbelievable' mindset as Arsenal forward nears return**\
 `The Germany international was involved in Arsenal’s open training session on Wednesday as he steps up his return from injury. `\
 https://nytimes.com/athletic/6361683/2025/05/16/arsenal-team-news-havertz-newcastle/
