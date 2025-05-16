@@ -1,3 +1,7 @@
+**As Trump Departs the Middle East, He Takes Aim at Critics Back Home**\
+`President Trump went on a social media posting spree after four days overseas, where he basked in the kind of lavish praise that so delights him.`\
+https://nytimes.com/2025/05/16/us/politics/trump-springsteen-critics-internet.html
+
 **Secret Service Questioning Comey Over Social Media Post About Trump**\
 `Administration officials had said the post — a picture of seashells forming the numbers “86 47” — amounted to an assassination threat by the former F.B.I. director.`\
 https://nytimes.com/2025/05/16/us/politics/secret-service-comey-social-media-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362185/2025/05/16/giants-athletics-bay-bridge-seri
 **U.S. Credit Receives Downgrade From Moody’s as Trump Pushes Costly Tax Cuts**\
 `The downgrade means that each of the three major credit rating firms no longer gives the United States its best rating.`\
 https://nytimes.com/2025/05/16/business/us-credit-downgrade-moodys.html
-
-**'T means so much to us': How Forest reacted in week after horrific Awoniyi injury**\
-`Nuno explains how he and the Nottingham Forest squad reacted after the horrific injury to Taiwo Awoniyi`\
-https://nytimes.com/athletic/6362123/2025/05/16/nuno-nottingham-forest-taiwo-awoniyi-coma/
 

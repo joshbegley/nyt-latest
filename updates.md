@@ -1,3 +1,7 @@
+**As Trump Departs the Middle East, He Takes Aim at Critics Back Home**\
+`President Trump went on a social media posting spree after four days overseas, where he basked in the kind of lavish praise that so delights him.`\
+https://nytimes.com/2025/05/16/us/politics/trump-springsteen-critics-internet.html
+
 **Secret Service Questioning Comey Over Social Media Post About Trump**\
 `Administration officials had said the post — a picture of seashells forming the numbers “86 47” — amounted to an assassination threat by the former F.B.I. director.`\
 https://nytimes.com/2025/05/16/us/politics/secret-service-comey-social-media-trump.html
