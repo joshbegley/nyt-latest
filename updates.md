@@ -1,3 +1,7 @@
+**What will this strike cost?**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/what-will-this-strike-cost
+
 **Jamaican Homes That Showcase the Island’s Creative History**\
 `The hotelier Sally Henzell helped bring reggae to the world. More than 50 years later, history continues to echo through her houses.`\
 https://nytimes.com/2025/05/16/t-magazine/sally-henzell-jamaica-home.html
