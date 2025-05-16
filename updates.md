@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, May 17, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/16/upshot/flashback.html
+
+**New Jersey Transit Strike Leaves Commuters Scrambling**\
+`New Jersey’s commuter rail engineers walked off the job early on Friday after contract talks failed to meet the union’s wage demands, leaving thousands of commuters to seek other means of transportation to and from work.`\
+https://nytimes.com/video/us/100000010174078/new-jersey-transit-strike-leaves-commuters-scrambling.html
+
+**Walter Frankenstein, 100, Dies; Hid From the Nazis All Over Berlin**\
+`With his wife and infant sons, he took refuge in unlikely places, including an opera house, an abandoned car and a subway station converted to a bunker.`\
+https://nytimes.com/2025/05/16/world/europe/walter-frankenstein-dead.html
+
 **The Broadway Best of Charles Strouse**\
 `The composer’s musicals, including “Annie” and “Bye Bye Birdie,” captured essential elements of American culture. Here are five of his most memorable songs.`\
 https://nytimes.com/2025/05/16/theater/charles-strouse-annie-applause.html

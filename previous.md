@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, May 17, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/16/upshot/flashback.html
+
+**New Jersey Transit Strike Leaves Commuters Scrambling**\
+`New Jersey’s commuter rail engineers walked off the job early on Friday after contract talks failed to meet the union’s wage demands, leaving thousands of commuters to seek other means of transportation to and from work.`\
+https://nytimes.com/video/us/100000010174078/new-jersey-transit-strike-leaves-commuters-scrambling.html
+
+**Walter Frankenstein, 100, Dies; Hid From the Nazis All Over Berlin**\
+`With his wife and infant sons, he took refuge in unlikely places, including an opera house, an abandoned car and a subway station converted to a bunker.`\
+https://nytimes.com/2025/05/16/world/europe/walter-frankenstein-dead.html
+
 **The Broadway Best of Charles Strouse**\
 `The composer’s musicals, including “Annie” and “Bye Bye Birdie,” captured essential elements of American culture. Here are five of his most memorable songs.`\
 https://nytimes.com/2025/05/16/theater/charles-strouse-annie-applause.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/business/federal-reserve-job-cuts.html
 **Boxcar, a Private Bus Company, Sees Opportunity in NJ Transit Strike**\
 `With quirky social media videos, Boxcar, which was founded in 2017, is seeking to elevate its profile as commuters look for alternative ways to reach Manhattan.`\
 https://nytimes.com/2025/05/16/nyregion/boxcar-bus-nj-transit-strike.html
-
-**Starbucks Baristas Stage Walkouts Over Dress Code Change**\
-`Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
-https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
-
-**Campaign Against an Airline That Flies Deportees Sets Off a Legal Fight**\
-`Seth Miller, a New Hampshire lawmaker, placed billboard ads protesting Avelo Airlines’ decision to operate flights for ICE. Avelo accused him of copyright infringement.`\
-https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
-
-**The 5.18.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/05/16/the-51825-issue
 
