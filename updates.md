@@ -1,3 +1,7 @@
+**Opposition Leader Is Arrested in Chad, Accused of Inciting Violence**\
+`A former prime minister and presidential candidate, Succès Masra, was detained by a government that has used the security forces and judiciary to quash opposition.`\
+https://nytimes.com/2025/05/16/world/africa/chad-opposition-leader-succes-masra-arrested.html
+
 **Sinner defeats Paul to set up Rome final against Carlos Alcaraz**\
 `The world No. 1 and home favourite overcame a poor start to defeat the American 1-6, 6-0, 6-3.`\
 https://nytimes.com/athletic/6362581/2025/05/16/italian-open-sinner-paul-result/
