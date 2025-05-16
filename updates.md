@@ -1,3 +1,11 @@
+**Braves takeaways: Red-hot rookies AJ Smith-Shawver, Drake Baldwin; Chris Sale to start in Boston**\
+`Rookie catcher Baldwin continues to sizzle. Can he make Braves fans forgive the team for trading away William Contreras?`\
+https://nytimes.com/athletic/6360544/2025/05/15/braves-takeaways-aj-smith-shawver-drake-baldwin-chris-sale/
+
+**Stephens: Don't be so quick to mock the Kings' hiring of GM Ken Holland**\
+`It's easy to be critical of Holland — and of the Kings' choice — but he might be what they need right now.`\
+https://nytimes.com/athletic/6360611/2025/05/15/ken-holland-kings-gm-hired/
+
 **Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
 `Furcal, 47, was a three-time All-Star and played 14 MLB seasons.`\
 https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/

@@ -1,3 +1,11 @@
+**Braves takeaways: Red-hot rookies AJ Smith-Shawver, Drake Baldwin; Chris Sale to start in Boston**\
+`Rookie catcher Baldwin continues to sizzle. Can he make Braves fans forgive the team for trading away William Contreras?`\
+https://nytimes.com/athletic/6360544/2025/05/15/braves-takeaways-aj-smith-shawver-drake-baldwin-chris-sale/
+
+**Stephens: Don't be so quick to mock the Kings' hiring of GM Ken Holland**\
+`It's easy to be critical of Holland — and of the Kings' choice — but he might be what they need right now.`\
+https://nytimes.com/athletic/6360611/2025/05/15/ken-holland-kings-gm-hired/
+
 **The caddie whose second chance has him standing with the PGA Championship leaders**\
 `Less than a year ago, Sam Matton was in the depths of self-imposed recovery.`\
 https://nytimes.com/athletic/6360528/2025/05/15/pga-championship-luke-donald-caddie-sam-matton/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/15/us/missing-camper-safe-sierra-nevada.html
 **What we learned from Adam Foote's first news conference as Canucks head coach**\
 `The Canucks needs stability, and Foote is being entrusted as the head coach to deliver it.`\
 https://nytimes.com/athletic/6360007/2025/05/15/canucks-adam-foote-head-coach-news/
-
-**Twins takeaways: Chris Paddack solidifying rotation at core of 11-game winning streak**\
-`The foundation for the team's successful turnaround, and a reason to think the Twins have staying power, is a rotation bolstered by Paddack.`\
-https://nytimes.com/athletic/6360400/2025/05/15/twins-winning-streak-chris-paddack-orioles/
-
-**The Leafs aren't done yet. What does Craig Berube do now?**\
-`The Maple Leafs head coach has lineup decisions to make ahead of a must-win Game 6 for Toronto.`\
-https://nytimes.com/athletic/6359961/2025/05/15/maple-leafs-game-6-nhl-playoffs-lineup/
 
