@@ -1,3 +1,15 @@
+**Arteta praises Havertz' 'unbelievable' mindset as Arsenal forward nears return**\
+`The Germany international was involved in Arsenal’s open training session on Wednesday as he steps up his return from injury. `\
+https://nytimes.com/athletic/6361683/2025/05/16/arsenal-team-news-havertz-newcastle/
+
+**Swept by the Fires, Away From Their Lives**\
+`Fire victims from Altadena and Pacific Palisades have moved across Los Angeles and the country looking for firm footing to start over.`\
+https://nytimes.com/2025/05/16/realestate/la-fire-victims-altadena-palisades.html
+
+**Novo Nordisk to Replace C.E.O. After Losing Edge in Weight-Loss Drugs**\
+`The Danish drugmaker, which makes Ozempic and Wegovy, has seen its stock tumble as competition in the weight-loss drug market has grown fiercer.`\
+https://nytimes.com/2025/05/16/health/novo-nordisk-ceo-ozempic-wegovy.html
+
 **There’s No NJ Transit Service to Shakira’s Concerts. Should Beyoncé Fans Worry?**\
 `Whenever, wherever, Shakira’s fans were going to find a way to get to her sold-out concert in New Jersey Thursday night. Some had a smooth and efficient experience taking the bus.`\
 https://nytimes.com/2025/05/16/nyregion/shakira-metlife-beyonce.html
@@ -26,16 +38,4 @@ https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/work-stoppages-ca
 **Moyes: Coleman will remain at Everton next season**\
 `Coleman, 36, surpassed 16 years with the Merseyside club this season and is the current longest-serving player with a Premier League club.`\
 https://nytimes.com/athletic/6361527/2025/05/16/everton-seamus-coleman-stays/
-
-**The defense is expected to continue grilling Cassie on the hotel assault.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/05/16/arts/sean-combs-diddy-trial-cassie/the-defense-is-expected-continue-grilling-cassie-on-the-hotel-assault
-
-**Meet the ex-Secret Service and FBI guys who stop NASCAR's fights from exploding**\
-`Stan Ruffin and Allen Taylor would prefer you not know who they are. But their role defusing NASCAR's fights has made them fan favorites.`\
-https://nytimes.com/athletic/6356419/2025/05/16/nascar-security-team-fights-drivers-secret-service-fbi/
-
-**19 Easy Mother’s Day Brunch Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/mothers-day-brunch-recipes
 

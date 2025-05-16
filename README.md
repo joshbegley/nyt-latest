@@ -1,3 +1,7 @@
+**The biggest lesson MacKinnon can learn from Crosby, Fleury**\
+`MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
+https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
+
 **Arteta praises Havertz' 'unbelievable' mindset as Arsenal forward nears return**\
 `The Germany international was involved in Arsenal’s open training session on Wednesday as he steps up his return from injury. `\
 https://nytimes.com/athletic/6361683/2025/05/16/arsenal-team-news-havertz-newcastle/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6361602/2025/05/16/fa-cup-final-team-news-palace-ma
 **Work stoppages can give labor the upper hand for a time, an expert says.**\
 `By Patrick McGeehan`\
 https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/work-stoppages-can-give-labor-the-upper-hand-for-a-time-an-expert-says
-
-**Moyes: Coleman will remain at Everton next season**\
-`Coleman, 36, surpassed 16 years with the Merseyside club this season and is the current longest-serving player with a Premier League club.`\
-https://nytimes.com/athletic/6361527/2025/05/16/everton-seamus-coleman-stays/
 
