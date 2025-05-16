@@ -1,3 +1,11 @@
+**At the Cannes Film Festival, the Mood Is Uncertain and Unsettled**\
+`The threat of tariffs and the struggles of Hollywood have dampened what is usually an international party. Even the early standouts are somber.`\
+https://nytimes.com/2025/05/16/movies/cannes-film-festival-critic.html
+
+**Conservatives Imperil G.O.P. Megabill That Would Fulfill Trump’s Agenda**\
+`Conservatives want deeper cuts in federal spending, including the elimination of clean energy tax credits and work requirements for Medicaid recipients to start earlier.`\
+https://nytimes.com/2025/05/16/world/europe/house-republicans-policy-bil.html
+
 **How to watch Braves at Red Sox, interleague action starring Chris Sale and Garrett Crochet**\
 `Chris Sale and Garrett Crochet make for an awesome Friday night series opener. Both Atlanta and Boston are hovering around .500.`\
 https://nytimes.com/athletic/6360228/2025/05/16/braves-red-sox-sale-crochet-mlb-how-to-watch/
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/6361651/2025/05/16/giro-ditalia-protest-charge-cras
 
 **Why the offside rule is 'delayed' and will it change after Awoniyi incident?**\
 `Last Sunday's serious injury to Awoniyi has led to criticism of the delayed offside rule - but what exactly is it and could it be revised?`\
-https://nytimes.com/athletic/6361440/2025/05/16/why-the-offside-rule-is-delayed-and-will-it-change-after-taiwo-awoniyi-incident/
+https://nytimes.com/athletic/6361440/2025/05/16/why-is-the-offside-rule-delayed-taiwo-awoniyi/
 
 **LAFC, Club America to meet in Club World Cup 'play-in' game on May 31**\
 `The match will take place at BMO Stadium in Los Angeles, California with kick off at 7.30pm local time.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6361755/2025/05/16/newcastle-wolves-fulham-gambling
 **Why Are So Many Retirees Filing for Social Security Earlier?**\
 `An additional 276,000 people filed for Social Security benefits so far this fiscal year, up 13% from a year ago. Anxiety appears to be a driver.`\
 https://nytimes.com/2025/05/16/business/social-security-early-retirement.html
-
-**Slot: Players 'deserved' Dubai trip, will be prepared for Brighton game**\
-`The title-winning squad flew to the UAE following last Sunday's 2-2 draw with Arsenal at Anfield before returning to Merseyside on Thursday.`\
-https://nytimes.com/athletic/6361804/2025/05/16/arne-slot-liverpool-dubai/
-
-**OpenAI Unveils New Tool for Computer Programmers**\
-`The tool, Codex, will be able to handle multiple tasks at the same time, the company said. OpenAI is also in talks to acquire a coding tool called Windsurf for $3 billion.`\
-https://nytimes.com/2025/05/16/technology/openai-codex-programming-tool.html
 
