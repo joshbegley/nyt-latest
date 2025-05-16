@@ -1,3 +1,11 @@
+**Spurs to face Bayern in pre-season friendly in August**\
+`Spurs played Bayern twice last summer as part of their preparations for the 2024-25 campaign. `\
+https://nytimes.com/athletic/6361053/2025/05/16/tottenham-bayern-pre-season-friendly-august-2025/
+
+**Dunk back in Brighton squad for game against Liverpool after hamstring injury**\
+`The 33-year-old captain sat out last Saturday's 2-0 win at Wolverhampton Wanderers as a precaution, because of a minor hamstring issue.`\
+https://nytimes.com/athletic/6361082/2025/05/16/brighton-liverpool-team-news-dunk/
+
 **The Global Happiness Curve Is Collapsing. What Does That Mean?**\
 `For decades, research showed that the way people experienced happiness across their lifetimes looked like a U-shaped curve: Happiness tended to be high when they were young, then dipped in midlife, only to rise again as they grew old.`\
 https://nytimes.com/video/well/100000010141520/the-global-happiness-curve-is-collapsing-what-does-that-mean.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-cry
 **Some Democrats Deride Hochul’s ‘Inflation Refund’ Checks as a Gimmick**\
 `The checks, at a cost of $2 billion, are a political move that the state cannot afford, some lawmakers say. They will be distributed to millions of New Yorkers this fall.`\
 https://nytimes.com/2025/05/16/nyregion/inflation-refund-checks-hochul.html
-
-**NASA Office Above ‘Seinfeld’ Diner Is a Target of Trump Budget Shrinkage**\
-`The Trump administration says it is ending a lease in the Columbia building that houses Tom’s Restaurant. The university says the rent is still due.`\
-https://nytimes.com/2025/05/16/nyregion/nasa-office-columbia-seinfeld-toms-restaurant.html
-
-**He Stood Up for the Black Panthers, and He Stood Up for Richard Nixon**\
-`From the tabloid to the highbrow, Murray Kempton was prolific and impossible to pin down. It’s hard to imagine a columnist today who would be allowed to do what he did.`\
-https://nytimes.com/2025/05/16/nyregion/murray-kempton.html
 
