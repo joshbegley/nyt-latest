@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, May 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/16/todays-new-york-times
+
+**My Country Is Falling Into the Abyss**\
+`Romania’s disastrous slide to the far right had been coming.`\
+https://nytimes.com/2025/05/16/opinion/romania-election-simion-dan.html
+
 **Astros' Hunter Brown matches Rangers' Jacob deGrom to punctuate prolific calendar year**\
 `Brown came out on the losing end despite eight brilliant innings against another ace: "This kid's got something."`\
 https://nytimes.com/athletic/6360886/2025/05/16/astros-hunter-brown-prolific-year-jacob-degrom/
