@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Nuggets beat Thunder to force Game 7**\
+`The Nuggets used a late third-quarter flurry of baskets to mount a double-digit comeback and never looked back in the fourth.`\
+https://nytimes.com/athletic/6360491/2025/05/15/nuggets-thunder-nba-playoffs-takeaways/
+
 **Ex-F.B.I. Chief Being Investigated Over Social Media Post About Trump**\
 `James Comey shared and later took down a post with a phrase used by critics of the president, saying there had been no ill intent.`\
 https://nytimes.com/2025/05/15/us/politics/james-comey-post-trump.html
