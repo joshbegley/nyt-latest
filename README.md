@@ -1,3 +1,15 @@
+**Brock Purdy, 49ers agree to 5-year contract extension: Sources**\
+`In three seasons, the 49ers quarterback has a record (including the playoffs) of 27-15 and has played in one Super Bowl.`\
+https://nytimes.com/athletic/6101080/2025/05/16/brock-purdy-49ers-contract-extension/
+
+**Phillies' Aaron Nola goes on IL; Mick Abel to make MLB debut Sunday**\
+`It's been almost eight years since Nola, one of the most durable pitchers in the sport, last went on the injured list. `\
+https://nytimes.com/athletic/6362612/2025/05/16/aaron-nola-injured-mick-abel-mlb-debut-phillies/
+
+**Overlooked No More, Walasse Ting, Who Bridged Cultures With Paint and Prose**\
+`His style as a poet and artist was informed by his upbringing in Shanghai and his years in Paris. He then joined the Pop-fueled studios of New York.`\
+https://nytimes.com/2025/05/16/obituaries/walasse-ting-overlooked.html
+
 **Opposition Leader Is Arrested in Chad, Accused of Inciting Violence**\
 `A former prime minister and presidential candidate, Succès Masra, was detained by a government that has used the security forces and judiciary to quash opposition.`\
 https://nytimes.com/2025/05/16/world/africa/chad-opposition-leader-succes-masra-arrested.html
@@ -18,23 +30,11 @@ https://nytimes.com/2025/05/16/us/politics/trump-scotus-federal-layoffs.html
 `Villa took a massive step towards qualification for next season's Champions League while Spurs had one eye on the Europa League final`\
 https://nytimes.com/athletic/6353906/2025/05/16/aston-villa-top-five-champions-league-tottenham-analysis/
 
-**Supreme Court Retains Temporary Block on Using Wartime Law to Deport Venezuelans**\
+**Supreme Court Retains Block on Using Wartime Law to Deport Venezuelans**\
 `The justices sent the case back to a lower court to consider whether the Alien Enemies Act can be used to deport immigrants accused of being members of the Venezuelan gang.`\
 https://nytimes.com/2025/05/16/us/politics/supreme-court-alien-enemies-act-deportations.html
 
 **What the jury didn't hear in the Hockey Canada sexual assault trial**\
 `From protesters to smart glasses, trial of five Canadian hockey players accused of sexual assault has been beset with disruptions.`\
 https://nytimes.com/athletic/6362042/2025/05/16/hockey-canada-trial-what-jury-did-not-hear/
-
-**Melania Trump (the Statue) Vanishes in Slovenia**\
-`The bronze sculpture, erected near Ms. Trump’s hometown in eastern Slovenia, was chopped off at the feet and stolen, the police said.`\
-https://nytimes.com/2025/05/16/world/europe/slovenia-melania-trump-statue.html
-
-**What Does ‘86’ Mean? Term Referenced in Comey’s Social Media Post Has Changed Over Time**\
-`Trump administration officials say that the term refers to assassination, but lexicologists say it emerged from diner slang.`\
-https://nytimes.com/2025/05/16/us/politics/james-comey-trump-86-meaning.html
-
-**New Jersey Transit Engineers Strike, Idling Trains and Upending Commutes**\
-`Wages continued to be a sticking point as New Jersey’s first statewide transit strike in 40 years began Friday morning.`\
-https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-amtrak-commute.html
 
