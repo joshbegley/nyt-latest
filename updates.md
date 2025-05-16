@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-cry
 `\
 https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
 
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
 **The Global Happiness Curve Is Collapsing. What Does That Mean?**\
 `For decades, research showed that the way people experienced happiness across their lifetimes looked like a U-shaped curve: Happiness tended to be high when they were young, then dipped in midlife, only to rise again as they grew old.`\
 https://nytimes.com/video/well/100000010141520/the-global-happiness-curve-is-collapsing-what-does-that-mean.html
