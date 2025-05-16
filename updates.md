@@ -1,3 +1,11 @@
+**How to watch Braves at Red Sox, interleague action starring Chris Sale and Garrett Crochet**\
+`Chris Sale and Garrett Crochet make for an awesome Friday night series opener. Both Atlanta and Boston are hovering around .500.`\
+https://nytimes.com/athletic/6360228/2025/05/16/braves-red-sox-sale-crochet-mlb-how-to-watch/
+
+**Who Is Dawn Richard, the Singer Who Will Soon Testify at Sean Combs’s Trial?**\
+`The musician performed in two of the mogul’s best-known recent acts, Danity Kane and Diddy — Dirty Money. She sued him last year, alleging threats and groping.`\
+https://nytimes.com/2025/05/16/arts/music/dawn-richard-sean-combs-diddy-trial.html
+
 **Giro d'Italia protester charged after almost causing major crash**\
 `Footage released by the Intermarche-Wanty team showed protesters appearing to drag tape across the road as the riders took evasive action.`\
 https://nytimes.com/athletic/6361651/2025/05/16/giro-ditalia-protest-charge-crash/
