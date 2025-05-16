@@ -1,3 +1,7 @@
+**U.S. May Drop Guilty Plea Deal With Boeing Over Deadly Max Crashes, Lawyers Say**\
+`A decision to not pursue a guilty plea from Boeing would be the latest about-face in a long effort to hold the plane maker accountable for the crashes of two 737 Max jets.`\
+https://nytimes.com/2025/05/16/business/boeing-737-max-crashes-guilty-plea.html
+
 **Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
 `“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an op-ed published on Friday.`\
 https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
