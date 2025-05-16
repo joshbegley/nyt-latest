@@ -1,3 +1,28 @@
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
+**Some Democrats Deride Hochul’s ‘Inflation Refund’ Checks as a Gimmick**\
+`The checks, at a cost of $2 billion, are a political move that the state cannot afford, some lawmakers say. They will be distributed to millions of New Yorkers this fall.`\
+https://nytimes.com/2025/05/16/nyregion/inflation-refund-checks-hochul.html
+
+**He Stood Up for the Black Panthers, and He Stood Up for Richard Nixon**\
+`From the tabloid to the highbrow, Murray Kempton was prolific and impossible to pin down. It’s hard to imagine a columnist today who would be allowed to do what he did.`\
+https://nytimes.com/2025/05/16/nyregion/murray-kempton.html
+
+**NASA Office Above ‘Seinfeld’ Diner Is a Target of Trump Budget Shrinkage**\
+`The Trump administration says it is ending a lease in the Columbia building that houses Tom’s Restaurant. The university says the rent is still due.`\
+https://nytimes.com/2025/05/16/nyregion/nasa-office-columbia-seinfeld-toms-restaurant.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/16/crosswords/spelling-bee-forum.html
+
+**Robot and Paper**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/05/16/learning/robot-and-paper.html
+
 **Jean-Philippe Mateta: My Game in My Words**\
 `The Crystal Palace striker talks instincts, finishing technique with both feet and that protective headgear ahead of the FA Cup final`\
 https://nytimes.com/athletic/6359116/2025/05/16/jean-philippe-mateta-palace-interview-fa-cup/
@@ -13,28 +38,4 @@ https://nytimes.com/2025/05/16/learning/word-of-the-day-vibrant.html
 **The New York Times in Print for Friday, May 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/16/todays-new-york-times
-
-**Romania Is About to Experience Disaster**\
-`Romania’s disastrous slide to the far right had been coming.`\
-https://nytimes.com/2025/05/16/opinion/romania-election-simion-dan.html
-
-**Astros' Hunter Brown matches Rangers' Jacob deGrom to punctuate prolific calendar year**\
-`Brown came out on the losing end despite eight brilliant innings against another ace: "This kid's got something."`\
-https://nytimes.com/athletic/6360886/2025/05/16/astros-hunter-brown-prolific-year-jacob-degrom/
-
-**Connor Hellebuyck's shutout extends Jets' season in Game 5 win over Stars: Takeaways**\
-`With a 4-0 victory, the Jets forced Game 6 in Dallas on Saturday.`\
-https://nytimes.com/athletic/6360890/2025/05/16/jets-stars-hellebuyck-shutout/
-
-**The Glazers in 2025 - Categorising every Manchester United signing under the owners**\
-`Carl Anka runs the rule of every player who has joined since the takeover in 2005`\
-https://nytimes.com/athletic/6347372/2025/05/16/every-manchester-united-signing-during-the-glazer-era-review/
-
-**King's stunner, Steven's iconic finish and bedlam of Tarkowski - Goodison's greatest goals**\
-`There have been many special goals and moments for Everton at Goodison - The Athletic has chosen 10 to savour`\
-https://nytimes.com/athletic/6358970/2025/05/16/everton-greatest-goodison-goals/
-
-**Sonia Bompastor is Chelsea's ultimate competitor, raising standards and always eyeing history**\
-`That Chelsea's domestic dominance has come under the supervision of a new manager is perhaps the most impressive feat of all this season`\
-https://nytimes.com/athletic/6355160/2025/05/16/sonia-bompastor-profile-chelsea-fa-cup-final/
 
