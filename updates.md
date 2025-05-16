@@ -1,3 +1,7 @@
+**Jamaican Homes That Showcase the Island’s Creative History**\
+`The hotelier Sally Henzell helped bring reggae to the world. More than 50 years later, history continues to echo through her houses.`\
+https://nytimes.com/2025/05/16/t-magazine/sally-henzell-jamaica-home.html
+
 **New York Dream Team: What's the best lineup of Mets and Yankees?**\
 `This is a mashup with an emphasis on mash, as Aaron Judge and Pete Alonso fuel the heart of the order.`\
 https://nytimes.com/athletic/6359544/2025/05/16/new-york-dream-team-best-lineup-mets-yankees/
