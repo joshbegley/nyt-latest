@@ -1,3 +1,7 @@
+**A Reality Show Where Immigrants Compete for U.S. Citizenship? D.H.S. Is Considering It.**\
+`A spokeswoman for the Department of Homeland Security said the agency was happy to review “out of the box pitches.”`\
+https://nytimes.com/2025/05/16/us/politics/homeland-security-immigration-reality-show.html
+
 **Watch: Which teams with strong starts will fade before the MLB playoffs?**\
 `Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/us/politics/house-republicans-policy-bil.html
 **How to watch Braves at Red Sox, interleague action starring Chris Sale and Garrett Crochet**\
 `Chris Sale and Garrett Crochet make for an awesome Friday night series opener. Both Atlanta and Boston are hovering around .500.`\
 https://nytimes.com/athletic/6360228/2025/05/16/braves-red-sox-sale-crochet-mlb-how-to-watch/
-
-**Who Is Dawn Richard, the Singer Who Will Soon Testify at Sean Combs’s Trial?**\
-`The musician performed in two of the mogul’s best-known recent acts, Danity Kane and Diddy — Dirty Money. She sued him last year, alleging threats and groping.`\
-https://nytimes.com/2025/05/16/arts/music/dawn-richard-sean-combs-diddy-trial.html
 
