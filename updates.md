@@ -1,3 +1,12 @@
+**Fighting India Helps Revive the Pakistani Military’s Popularity**\
+`As Pakistan declares victory, confidence in the troubled country’s state institutions is re-emerging, at least for now.`\
+https://nytimes.com/2025/05/16/world/asia/pakistan-military-india.html
+
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
 **FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
 `Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
 `\
