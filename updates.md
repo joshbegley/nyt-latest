@@ -1,3 +1,19 @@
+**Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
+`“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an op-ed published on Friday.`\
+https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
+
+**For Some Immigrant Artists, This Is No Time to Retreat**\
+`An exhibition in the Bronx offers community support to Latino artists, undaunted by a hostile climate.`\
+https://nytimes.com/2025/05/16/arts/design/bronx-art-space-immigrant-artists.html
+
+**Brighton pursuing Olympiacos striker Kostoulas**\
+`They have offered a fee of around £30million plus Abdallah Sima for the 17-year-old, which is expected to be turned down by Olympiacos.`\
+https://nytimes.com/athletic/6362115/2025/05/16/brighton-charalampos-kostoulas-transfer/
+
+**A Beloved Mainstay of Sri Lankan Culture and Cuisine on Staten Island**\
+`Part museum, part restaurant, the family-run Lakruwana offers an exuberant celebration of the small island nation’s food.`\
+https://nytimes.com/2025/05/16/t-magazine/lakruwana-sri-lankan-food-new-york.html
+
 **LA Galaxy extend coach Greg Vanney despite record winless start**\
 `The reigning MLS champions are off to a brutal title defense, but they're sticking with their manager.`\
 https://nytimes.com/athletic/6362222/2025/05/16/la-galaxy-greg-vanney-contract-extension/
