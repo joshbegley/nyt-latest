@@ -1,3 +1,7 @@
+**Mets-Yankees Subway Series Clash Will Compete for Fans’ Attention**\
+`The first game of the annual regular season event coincides with a crucial Friday night Knicks playoff game against the Celtics.`\
+https://nytimes.com/2025/05/16/sports/yankees-mets-knicks-playoffs.html
+
 **Flashback: Your Weekly History Quiz, May 17, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/05/16/upshot/flashback.html
