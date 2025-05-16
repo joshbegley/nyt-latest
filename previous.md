@@ -1,3 +1,15 @@
+**LA Galaxy extend coach Greg Vanney despite record winless start**\
+`The reigning MLS champions are off to a brutal title defense, but they're sticking with their manager.`\
+https://nytimes.com/athletic/6362222/2025/05/16/la-galaxy-greg-vanney-contract-extension/
+
+**Bruce Springsteen’s Rowdy ‘Repo Man,’ Plus 11 More New Songs**\
+`Hear tracks by S.G. Goodman, the Lemonheads, Rihanna, Lido Pimienta and more.`\
+https://nytimes.com/2025/05/16/arts/music/playlist-bruce-springsteen-rihanna-lemonheads.html
+
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6362225/2025/05/16/blues-mailbag-jeremy-rutherford-may-2025/
+
 **As Congress Debates Cutting Medicaid, a Major Study Shows It Saves Lives**\
 `The most extensive research on Medicaid coverage to date found that it reduced the risk of death by 21 percent.`\
 https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/dining/sotol.html
 **Team principal quits and a harsh driver change, is there really ‘no trouble’ at Alpine?**\
 `In under two weeks, Alpine has swapped two young drivers and lost yet another team principal, but those on the inside aren't panicking yet`\
 https://nytimes.com/athletic/6361892/2025/05/16/alpine-f1-team-principal-briatore-oakes/
-
-**Salah criticises Liverpool fans who booed Alexander-Arnold: 'We shouldn't act this way'**\
-`Alexander-Arnold's every touch was booed by a significant number of fans inside Anfield during last Sunday's game with Arsenal.`\
-https://nytimes.com/athletic/6362120/2025/05/16/liverpool-salah-alexander-arnold-booing/
-
-**How Cuts to Medicaid Would Imperil Rural Hospitals**\
-`Responses to a guest essay about the effects of Medicaid cuts. Also: A third presidential term; a display of faith; loud music in public.`\
-https://nytimes.com/2025/05/16/opinion/medicaid-cuts-rural-hospitals.html
-
-**Judge Extends Block on Public Health Cuts for More Than 20 States**\
-`The ruling preserves, for now, billions of dollars in grant money for 23 states and the District of Columbia.`\
-https://nytimes.com/2025/05/16/us/politics/judge-covid-public-health-cuts.html
 

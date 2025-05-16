@@ -1,3 +1,15 @@
+**LA Galaxy extend coach Greg Vanney despite record winless start**\
+`The reigning MLS champions are off to a brutal title defense, but they're sticking with their manager.`\
+https://nytimes.com/athletic/6362222/2025/05/16/la-galaxy-greg-vanney-contract-extension/
+
+**Bruce Springsteen’s Rowdy ‘Repo Man,’ Plus 11 More New Songs**\
+`Hear tracks by S.G. Goodman, the Lemonheads, Rihanna, Lido Pimienta and more.`\
+https://nytimes.com/2025/05/16/arts/music/playlist-bruce-springsteen-rihanna-lemonheads.html
+
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6362225/2025/05/16/blues-mailbag-jeremy-rutherford-may-2025/
+
 **As Congress Debates Cutting Medicaid, a Major Study Shows It Saves Lives**\
 `The most extensive research on Medicaid coverage to date found that it reduced the risk of death by 21 percent.`\
 https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html

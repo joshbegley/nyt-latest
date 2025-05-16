@@ -1,3 +1,7 @@
+**A Beloved Mainstay of Sri Lankan Culture and Cuisine on Staten Island**\
+`Part museum, part restaurant, the family-run Lakruwana offers an exuberant celebration of the small island nation’s food.`\
+https://nytimes.com/2025/05/16/t-magazine/lakruwana-sri-lankan-food-new-york.html
+
 **LA Galaxy extend coach Greg Vanney despite record winless start**\
 `The reigning MLS champions are off to a brutal title defense, but they're sticking with their manager.`\
 https://nytimes.com/athletic/6362222/2025/05/16/la-galaxy-greg-vanney-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/books/review/podcast-ron-chernow-mark-twain.html
 **It’s High Time You Added Sotol to Your Bar Cart**\
 `The traditional spirit tells the story of wherever its plant source has grown across the deserts and forests of Northern Mexico.`\
 https://nytimes.com/2025/05/16/dining/sotol.html
-
-**Team principal quits and a harsh driver change, is there really ‘no trouble’ at Alpine?**\
-`In under two weeks, Alpine has swapped two young drivers and lost yet another team principal, but those on the inside aren't panicking yet`\
-https://nytimes.com/athletic/6361892/2025/05/16/alpine-f1-team-principal-briatore-oakes/
 
