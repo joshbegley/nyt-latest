@@ -1,3 +1,11 @@
+**Severe Storms Batter the Midwest**\
+`Severe weather unleashed hail, damaging winds and tornadoes across large portions of the Midwest and the Mid-Atlantic.`\
+https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.html
+
+**Michael Flynn, a Trump Ally, Sponsors Beethoven at the Kennedy Center**\
+`Following the president’s overhaul of the center, Mr. Flynn, the former national security adviser, has made a substantial gift to the National Symphony Orchestra.`\
+https://nytimes.com/2025/05/16/arts/music/michael-flynn-kennedy-center.html
+
 **How Jhonattan Vegas has come out of nowhere to lead the PGA Championship**\
 `Vegas, a 40-year-old from Venezuela, has one top-25 finish at a major championship in his career, nine years ago.`\
 https://nytimes.com/athletic/6362734/2025/05/16/jhonattan-vegas-pga-championship-lead/
@@ -18,10 +26,6 @@ https://nytimes.com/athletic/6362844/2025/05/16/tyrique-george-striker-chelsea-m
 `A lawsuit is seeking to stop Los Angeles Zoo officials from shipping their two surviving elephants to another zoo in Oklahoma. Cher and other advocates want them to go to an animal sanctuary.`\
 https://nytimes.com/2025/05/16/us/elephants-la-zoo-cher.html
 
-**Michael Flynn, a Trump Ally, Sponsors Beethoven at the Kennedy Center**\
-`Following the president’s overhaul of the center, Mr. Flynn, the former national security adviser, has made a substantial gift to the National Symphony Orchestra.`\
-https://nytimes.com/2025/05/16/arts/music/michael-flynn-kennedy-center.html
-
 **Thaddeus Mosley Shapes Universes in Wood**\
 `In a spectacular exhibition at Karma Gallery, the 98-year-old artist makes hardwood sculptures that burst with vitality and variation.`\
 https://nytimes.com/2025/05/16/arts/design/thaddeus-mosley-karma-gallery.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/us/trump-biden-epa-grants.html
 **As Trump Departs the Middle East, He Takes Aim at Critics Back Home**\
 `President Trump went on a social media posting spree after four days overseas, where he basked in the kind of lavish praise that so delights him.`\
 https://nytimes.com/2025/05/16/us/politics/trump-springsteen-critics-internet.html
-
-**Secret Service Questions Comey Over Social Media Post About Trump**\
-`Administration officials had said the post — a picture of seashells forming the numbers “86 47” — amounted to an assassination threat by the former F.B.I. director.`\
-https://nytimes.com/2025/05/16/us/politics/secret-service-comey-social-media-trump.html
 

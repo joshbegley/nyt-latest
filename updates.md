@@ -1,3 +1,7 @@
+**Severe Storms Batter the Midwest**\
+`Severe weather unleashed hail, damaging winds and tornadoes across large portions of the Midwest and the Mid-Atlantic.`\
+https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.html
+
 **How Jhonattan Vegas has come out of nowhere to lead the PGA Championship**\
 `Vegas, a 40-year-old from Venezuela, has one top-25 finish at a major championship in his career, nine years ago.`\
 https://nytimes.com/athletic/6362734/2025/05/16/jhonattan-vegas-pga-championship-lead/
