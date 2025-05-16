@@ -1,3 +1,11 @@
+**Trump Administration Fires Hundreds of Voice of America Employees**\
+`The layoffs amounted to over a third of the media organization’s staff, and came as the Trump administration put up for sale the federal building in Washington that houses the network.`\
+https://nytimes.com/2025/05/15/us/politics/trump-voice-of-america-firings.html
+
+**Shooting for the Stars**\
+`August Lee-Kovach opens our solving weekend.`\
+https://nytimes.com/2025/05/15/crosswords/daily-puzzle-2025-05-16.html
+
 **Jewish Student Who Held Out in Lawsuit Against Harvard Agrees to Settle**\
 `Shabbos Kestenbaum sued Harvard University over allegations it did not do enough to curb antisemitism. He had continued his lawsuit even after other students settled.`\
 https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html

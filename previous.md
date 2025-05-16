@@ -1,3 +1,11 @@
+**Trump Administration Fires Hundreds of Voice of America Employees**\
+`The layoffs amounted to over a third of the media organization’s staff, and came as the Trump administration put up for sale the federal building in Washington that houses the network.`\
+https://nytimes.com/2025/05/15/us/politics/trump-voice-of-america-firings.html
+
+**Shooting for the Stars**\
+`August Lee-Kovach opens our solving weekend.`\
+https://nytimes.com/2025/05/15/crosswords/daily-puzzle-2025-05-16.html
+
 **Jewish Student Who Held Out in Lawsuit Against Harvard Agrees to Settle**\
 `Shabbos Kestenbaum sued Harvard University over allegations it did not do enough to curb antisemitism. He had continued his lawsuit even after other students settled.`\
 https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6360611/2025/05/15/ken-holland-kings-gm-hired/
 **The caddie whose second chance has him standing with the PGA Championship leaders**\
 `Less than a year ago, Sam Matton was in the depths of self-imposed recovery.`\
 https://nytimes.com/athletic/6360528/2025/05/15/pga-championship-luke-donald-caddie-sam-matton/
-
-**Chris Brown Arrested in Connection With 2023 Assault, British Authorities Say**\
-`The R&B singer is charged with grievous bodily harm.`\
-https://nytimes.com/2025/05/15/us/chris-brown-charged-london.html
-
-**Can C-SPAN Pull Off ‘Crossfire,’ but With Civility?**\
-`“Ceasefire” will be the low-key public affairs channel’s first new weekly show in two decades. The question is whether Republicans and Democrats will show up.`\
-https://nytimes.com/2025/05/15/business/media/cspan-ceasefire.html
 
