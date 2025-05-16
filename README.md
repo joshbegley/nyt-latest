@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Nuggets beat Thunder to force Game 7**\
+`The Nuggets used a late third-quarter flurry of baskets to mount a double-digit comeback and never looked back in the fourth.`\
+https://nytimes.com/athletic/6360491/2025/05/15/nuggets-thunder-nba-playoffs-takeaways/
+
 **Ex-F.B.I. Chief Being Investigated Over Social Media Post About Trump**\
 `James Comey shared and later took down a post with a phrase used by critics of the president, saying there had been no ill intent.`\
 https://nytimes.com/2025/05/15/us/politics/james-comey-post-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html
 **Hurricanes eliminate Capitals, advance to Eastern Conference final: Takeaways**\
 `Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
 https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
-
-**A judge blocked the Energy Department from imposing a cap on grants for university research.**\
-`The temporary ruling mirrored one in a case involving the N.I.H., which similarly tried to cap the funding that covers universities’ overhead expenses in research.`\
-https://nytimes.com/live/2025/05/15/us/trump-news/a-judge-blocked-the-energy-department-from-imposing-a-cap-on-grants-for-university-research
 
