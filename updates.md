@@ -1,3 +1,7 @@
+**Republican Revolt Reflects a Core Party Divide Over Spending and Debt**\
+`Whether the ultraconservatives dig in and force big changes to the megabill carrying President Trump’s agenda or capitulate, as they have in the past, will determine the fate of their party’s signature legislation.`\
+https://nytimes.com/2025/05/16/us/politics/republican-divide-spending-debt.html
+
 **Couple Imprisoned Girl for 7 Years and Kept Her in Dog Cage, Police Say**\
 `Investigators, who did not identify the teenager, now 18, said they believed she had been sexually abused by her stepfather.`\
 https://nytimes.com/2025/05/16/nyregion/new-jersey-girl-dog-cage.html

@@ -1,3 +1,7 @@
+**Republican Revolt Reflects a Core Party Divide Over Spending and Debt**\
+`Whether the ultraconservatives dig in and force big changes to the megabill carrying President Trump’s agenda or capitulate, as they have in the past, will determine the fate of their party’s signature legislation.`\
+https://nytimes.com/2025/05/16/us/politics/republican-divide-spending-debt.html
+
 **Couple Imprisoned Girl for 7 Years and Kept Her in Dog Cage, Police Say**\
 `Investigators, who did not identify the teenager, now 18, said they believed she had been sexually abused by her stepfather.`\
 https://nytimes.com/2025/05/16/nyregion/new-jersey-girl-dog-cage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/us/politics/secret-service-comey-social-media-tru
 **A Kentucky Weather Office Scrambles for Staffing as Severe Storms Bear Down**\
 `The office in Jackson, Ky., is one of several left without an overnight forecaster after hundreds of jobs were recently cut from the National Weather Service.`\
 https://nytimes.com/2025/05/16/weather/nws-cuts-kentucky-tornado.html
-
-**Trump Appointee Pressed Analyst to Redo Intelligence on Venezuelan Gang**\
-`The move followed a disclosure that intelligence agencies disagree with a key factual claim Trump made to invoke a wartime deportation law.`\
-https://nytimes.com/2025/05/16/us/politics/trump-appointee-venezuela-gang.html
 
