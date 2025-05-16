@@ -11,7 +11,7 @@ https://nytimes.com/2025/05/15/us/chris-brown-charged-london.html
 https://nytimes.com/2025/05/15/business/media/cspan-ceasefire.html
 
 **Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
-`Furcal, 47, was a three-time All-Star across 14 MLB seasons.`\
+`Furcal, 47, was a three-time All-Star and played 14 MLB seasons.`\
 https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/
 
 **An Afrikaner Farming Family Trades South Africa for Alabama**\

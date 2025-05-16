@@ -1,3 +1,7 @@
+**Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
+`Furcal, 47, was a three-time All-Star and played 14 MLB seasons.`\
+https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/
+
 **The caddie whose second chance has him standing with the PGA Championship leaders**\
 `Less than a year ago, Sam Matton was in the depths of self-imposed recovery.`\
 https://nytimes.com/athletic/6360528/2025/05/15/pga-championship-luke-donald-caddie-sam-matton/
