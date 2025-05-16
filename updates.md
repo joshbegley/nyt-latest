@@ -1,3 +1,7 @@
+**Amtrak is an option for strike-affected commuters, but at a steep cost.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/nj-transit-amtrak
+
 **Live Updates: Cassie to Start 18th Hour of Testimony in Sean Combs’s Sex-Trafficking Trial**\
 `Mr. Combs’s lawyers have been questioning Casandra Ventura about the drug-fueled sex sessions that he called “freak-offs,” and about the nature of their long relationship.`\
 https://nytimes.com/live/2025/05/16/arts/sean-combs-diddy-trial-cassie

@@ -1,3 +1,7 @@
+**Amtrak is an option for strike-affected commuters, but at a steep cost.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/nj-transit-amtrak
+
 **Live Updates: Cassie to Start 18th Hour of Testimony in Sean Combs’s Sex-Trafficking Trial**\
 `Mr. Combs’s lawyers have been questioning Casandra Ventura about the drug-fueled sex sessions that he called “freak-offs,” and about the nature of their long relationship.`\
 https://nytimes.com/live/2025/05/16/arts/sean-combs-diddy-trial-cassie
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/business/dealbook/trump-nvidia-ai-middle-east.htm
 **The Jets survived Game 5 like past versions could not have. Can they do it again?**\
 `The Jets delivered their best game of the playoffs in their most important, must-win Game 5 but their season is on the line all over again.`\
 https://nytimes.com/athletic/6360989/2025/05/16/nhl-playoffs-winnipeg-jets-game-5/
-
-**Future Proofing the Grid: How Can the World Unlock the Full Potential of Electric Power?**\
-`A new snapshot of the world’s electrical grids paints an urgent picture. How at risk is this critical infrastructure — and what will it take to fix it?`\
-https://nytimes.com/paidpost/iberdrola/future-proofing-the-grid-how-can-the-world-unlock-the-full-potential-of-electric-power.html
 
