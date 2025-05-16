@@ -1,3 +1,15 @@
+**Phil Giles' decade at Brentford: 'He makes the most complex job in the world look simple'**\
+`Brentford's director of football celebrates 10 years at the club today. Understated, dedicated and ruthless, he's a key figure in their rise`\
+https://nytimes.com/athletic/6355217/2025/05/16/phil-giles-brentford-decade-rise/
+
+**Premier League race for top five: Arsenal and Newcastle battle for second and will cup final distract Man City?**\
+`Updates and analysis as the race to to qualify for next season's Champions League reaches its final stages`\
+https://nytimes.com/athletic/6358667/2025/05/16/premier-league-top-five-race-arsenal-man-city/
+
+**Man United or Spurs: Who has had the worst season? A friendly discussion**\
+`Club writers Carl Anka and Jay Harris discuss the upcoming Europa League final and two disastrous seasons`\
+https://nytimes.com/athletic/6359139/2025/05/16/man-united-tottenham-europa-league/
+
 **‘Knives Are Out’ in South Sudan as Vice President Is Held in Detention**\
 `After years of gradual progress toward stability, a succession battle is pushing the country to the precipice of another full-blown civil war.`\
 https://nytimes.com/2025/05/16/world/africa/south-sudan-tensions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/style/christina-mastrocola-sam-barcelo-wedding.ht
 **Connections: Sports Edition Coach: Hints for May 16, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6360435/2025/05/16/connections-sports-edition-hints-for-may-16-2025/
-
-**The Tent Was Built For Way More Than Two**\
-`Taylor Turkmen and Ryan Milligan were married under the Gospel Tent at Jazz Fest. They gained more guests when a storm rolled through.`\
-https://nytimes.com/2025/05/16/style/taylor-turkmen-ryan-milligan-wedding.html
-
-**Divorce Is a Gift**\
-`We could have had a nice life together, but I wanted more for him.`\
-https://nytimes.com/2025/05/16/style/modern-love-divorce-is-a-gift.html
-
-**How to watch the F1's Emilia Romagna Grand Prix at Imola**\
-`Here's what you need to know about this weekend's F1 practice and qualifying times, plus odds and broadcast info for Sunday's Grand Prix.`\
-https://nytimes.com/athletic/6355792/2025/05/16/emilia-romagna-grand-prix-f1-how-to-watch/
 
