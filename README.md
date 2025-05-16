@@ -1,3 +1,15 @@
+**Jury discharged in Hockey Canda trial; judge alone will determine outcome**\
+`Judge thanks jurors for their service and tells them they "are free to go." `\
+https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
+
+**Data Centers’ Hunger for Energy Could Raise All Electric Bills**\
+`Individuals and small businesses may end up bearing some of the cost of grid upgrades needed for large electricity users, a new report found.`\
+https://nytimes.com/2025/05/16/business/energy-environment/data-centers-utilities-electricity-bills.html
+
+**A Museum of Migration Celebrates People on the Move**\
+`A new institution in the harbor of Rotterdam, the Netherlands, combines art and artifacts to underscore that migrant journeys are part of a universal human experience.`\
+https://nytimes.com/2025/05/16/arts/design/fenix-museum-migration-rotterdam.html
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 37?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-ups-gameweek-37/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/realestate/la-fire-victims-altadena-palisades.htm
 **Novo Nordisk to Replace C.E.O. After Losing Edge in Weight-Loss Drugs**\
 `The Danish drugmaker, which makes Ozempic and Wegovy, has seen its stock tumble as competition in the weight-loss drug market has grown fiercer.`\
 https://nytimes.com/2025/05/16/health/novo-nordisk-ceo-ozempic-wegovy.html
-
-**There’s No NJ Transit Service to Shakira’s Concerts. Should Beyoncé Fans Worry?**\
-`Whenever, wherever, Shakira’s fans were going to find a way to get to her sold-out concert in New Jersey Thursday night. Some had a smooth and efficient experience taking the bus.`\
-https://nytimes.com/2025/05/16/nyregion/shakira-metlife-beyonce.html
-
-**Ed Smylie, Who Saved the Apollo 13 Crew With Duct Tape, Dies at 95**\
-`He and his team of NASA engineers jumped into action to help three astronauts bound for the moon. His quick thinking earned him a shout-out from Richard Nixon.`\
-https://nytimes.com/2025/05/16/science/space/ed-smylie-dead.html
-
-**Forest coach Nuno hopes Awoniyi can attend final game next weekend**\
-`The striker required surgery on an abdominal injury he sustained in the draw with Leicester City last Sunday.`\
-https://nytimes.com/athletic/6361632/2025/05/16/forest-taiwo-awoniyi-latest-nuno/
 

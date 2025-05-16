@@ -1,3 +1,7 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 37?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-ups-gameweek-37/
+
 **‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
 `Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
 https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
