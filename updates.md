@@ -1,3 +1,7 @@
+**Row Z: Manchester United's end of season barbecue, and FIFA running late**\
+`Our weekly roundup of some of football's more absurd stories also takes in Nathan Jones' post-match celebrations and a new Watford manager`\
+https://nytimes.com/athletic/6361110/2025/05/16/manchester-united-ratcliffe-fifa-infantino-row-z/
+
 **What to Do When a Mountain Gorilla Blocks Your Path**\
 `A winning essay by Tenzing Carvalho, age 17.`\
 https://nytimes.com/2025/05/16/learning/what-to-do-when-a-mountain-gorilla-blocks-your-path.html
