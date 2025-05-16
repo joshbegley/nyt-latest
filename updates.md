@@ -1,3 +1,8 @@
+**Watch: Which teams with strong starts will fade before the MLB playoffs?**\
+`Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
+`\
+https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
+
 **What we're hearing about the Blackhawks coaching search, changes, prospects and more**\
 `Keep an eye on Jeff Blashill, the former Detroit Red Wings head coach from 2015 to 2022, who recently met with the Blackhawks in Chicago.`\
 https://nytimes.com/athletic/6362038/2025/05/16/blackhawks-coaching-search-nhl/

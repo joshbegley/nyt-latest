@@ -1,3 +1,11 @@
+**As Congress Debates Cutting Medicaid, a Major Study Shows It Saves Lives**\
+`The most extensive research on Medicaid coverage to date found that it reduced the risk of death by 21 percent.`\
+https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html
+
+**‘Is Betty Buckley Still Alive?’ Trump Asked. She Certainly Is.**\
+`“What’s happening these days,” the singer said at the start of a Joe’s Pub residency, “is weird, and not cool.”`\
+https://nytimes.com/2025/05/16/theater/is-betty-buckley-still-alive-trump-asked-she-certainly-is.html
+
 **Everton announce naming rights deal for new stadium**\
 `The new venue — which will replace Goodison Park as the men's team's home from next season — will be known as the Hill Dickinson Stadium.`\
 https://nytimes.com/athletic/6362164/2025/05/16/everton-new-stadium-name-rights-partner/
@@ -29,13 +37,4 @@ https://nytimes.com/2025/05/16/opinion/medicaid-cuts-rural-hospitals.html
 **Judge Extends Block on Public Health Cuts for More Than 20 States**\
 `The ruling preserves, for now, billions of dollars in grant money for 23 states and the District of Columbia.`\
 https://nytimes.com/2025/05/16/us/politics/judge-covid-public-health-cuts.html
-
-**A Reality Show Where Immigrants Compete for U.S. Citizenship? D.H.S. Is Considering It.**\
-`A spokeswoman for the Department of Homeland Security said the agency was happy to review “out-of-the-box pitches.”`\
-https://nytimes.com/2025/05/16/us/politics/homeland-security-immigration-reality-show.html
-
-**Watch: Which teams with strong starts will fade before the MLB playoffs?**\
-`Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
-`\
-https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
 
