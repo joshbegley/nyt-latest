@@ -1,3 +1,11 @@
+**The Broadway Best of Charles Strouse**\
+`The composer’s musicals, including “Annie” and “Bye Bye Birdie,” captured essential elements of American culture. Here are five of his most memorable songs.`\
+https://nytimes.com/2025/05/16/theater/charles-strouse-annie-applause.html
+
+**Facebook Enables Extremist Views. Should I Quit and Risk Losing My Friends There?**\
+`The magazine’s Ethicist columnist on what to do when you’re conflicted about using an service you may rely on.`\
+https://nytimes.com/2025/05/16/magazine/facebook-extremist-rhetoric-ethics.html
+
 **Bears' stadium focus now solely on Arlington Heights after 'significant progress'**\
 `The Bears have shifted focus to Arlington Heights as the site of their new stadium after spending a year trying to make it work downtown.`\
 https://nytimes.com/athletic/6362365/2025/05/16/chicago-bears-stadium-arlington-heights-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billb
 **The 5.18.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/16/the-51825-issue
-
-**Mysterious New Group’s Likely Mission: Restoring Cuomo to Office**\
-`Restore Sanity NYC, a nonprofit with ties to former Gov. Andrew Cuomo, has begun funding campaign mailers that echo many of his talking points as he runs for mayor.`\
-https://nytimes.com/2025/05/16/nyregion/cuomo-restore-sanity.html
-
-**Summer Travel Slump? Amid Uncertainty, the U.S. Brand ‘Has Taken a Beating.’**\
-`Many airlines, hotels and analysts are forecasting a downbeat tourism season in America, as threats of tariffs and unpopular policy decisions take their toll.`\
-https://nytimes.com/2025/05/16/travel/us-summer-travel-trump.html
 

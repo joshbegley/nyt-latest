@@ -1,3 +1,7 @@
+**Campaign Against an Airline That Flies Deportees Sets Off a Legal Fight**\
+`Seth Miller, a New Hampshire lawmaker, placed billboard ads protesting Avelo Airlines’ decision to operate flights for ICE. Avelo accused him of copyright infringement.`\
+https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
+
 **Bears' stadium focus now solely on Arlington Heights after 'significant progress'**\
 `The Bears have shifted focus to Arlington Heights as the site of their new stadium after spending a year trying to make it work downtown.`\
 https://nytimes.com/athletic/6362365/2025/05/16/chicago-bears-stadium-arlington-heights-news/

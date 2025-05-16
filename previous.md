@@ -22,8 +22,8 @@ https://nytimes.com/2025/05/16/nyregion/boxcar-bus-nj-transit-strike.html
 `Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
 https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
 
-**A Campaign Against an Airline That Flies Deportees for ICE Lands in Court**\
-`Seth Miller, a state lawmaker in New Hampshire, placed billboard ads protesting Avelo Airlines’ decision to operate deportation flights for the federal government. Avelo accused him of copyright infringement.`\
+**Campaign Against an Airline That Flies Deportees Sets Off a Legal Fight**\
+`Seth Miller, a New Hampshire lawmaker, placed billboard ads protesting Avelo Airlines’ decision to operate flights for ICE. Avelo accused him of copyright infringement.`\
 https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
 
 **The 5.18.25 Issue**\
