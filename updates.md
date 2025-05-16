@@ -1,3 +1,7 @@
+**Romania Is About to Experience Disaster**\
+`Romania’s disastrous slide to the far right had been coming.`\
+https://nytimes.com/2025/05/16/opinion/romania-election-simion-dan.html
+
 **The New York Times in Print for Friday, May 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/16/todays-new-york-times
