@@ -1,3 +1,7 @@
+**Word of the Day: vibrant**\
+`This word has appeared in 929 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/16/learning/word-of-the-day-vibrant.html
+
 **Romania Is About to Experience Disaster**\
 `Romania’s disastrous slide to the far right had been coming.`\
 https://nytimes.com/2025/05/16/opinion/romania-election-simion-dan.html

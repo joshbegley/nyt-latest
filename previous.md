@@ -1,3 +1,7 @@
+**Word of the Day: vibrant**\
+`This word has appeared in 929 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/16/learning/word-of-the-day-vibrant.html
+
 **The New York Times in Print for Friday, May 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/16/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358485/2025/05/16/coufal-cresswell-fabianski-west-
 **Sean Neave, Newcastle's Carabao Cup winner who has yet to appear for the first team**\
 `Alexander Isak is standing in his way but the teenage centre-forward is highly regarded and has been a regular on the bench recently`\
 https://nytimes.com/athletic/6355098/2025/05/16/sean-neave-newcastle-carabao-cup-winner/
-
-**Five Aston Villa players have been on loan to Real Union - we went to Spain to see how it's working**\
-`Inside the arrangement between the two clubs`\
-https://nytimes.com/athletic/6246564/2025/05/16/aston-villa-loanees-real-union/
 
