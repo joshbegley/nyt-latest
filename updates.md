@@ -1,3 +1,7 @@
+**Jury discharged in Hockey Canada trial; judge alone will determine outcome**\
+`Judge thanks jurors for their service and tells them they "are free to go." `\
+https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
+
 **Jury discharged in Hockey Canda trial; judge alone will determine outcome**\
 `Judge thanks jurors for their service and tells them they "are free to go." `\
 https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
