@@ -1,3 +1,8 @@
+**Wharton fit for Palace for FA Cup final against Man City**\
+`The midfielder, 21, is a key player for Palace but has suffered a stop-start season due to injuries.
+`\
+https://nytimes.com/athletic/6361602/2025/05/16/fa-cup-final-team-news-palace-man-city-wharton/
+
 **Opening Line: Intriguing wagers around Mets-Yankees and more this weekend**\
 `The most intriguing odds and bets from this weekend's biggest games, including Mets-Yankees and Sky-Fever.`\
 https://nytimes.com/athletic/6361436/2025/05/16/the-most-intriguing-wagers-around-mets-yankees-sky-fever-and-more-this-weekend/
