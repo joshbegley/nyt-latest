@@ -1,3 +1,11 @@
+**The Windup: Plenty of Rivalry Weekend intrigue**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6360994/2025/05/16/yankees-mets-rivalry-weekend-the-windup/
+
+**G.O.P. Tax Bill May Hurt the Lowest Earners and Help the Richest**\
+`Even though most Americans may see lower taxes, Republicans’ spending cuts could outweigh those benefits and leave some worse off.`\
+https://nytimes.com/2025/05/16/business/republican-tax-bill-trump.html
+
 **Sean Combs**\
 ``\
 https://nytimes.com/spotlight/sean-combs-diddy
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-up
 **‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
 `Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
 https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
-
-**How to watch Mets at Yankees, this weekend's Subway Series with Juan Soto back in Bronx**\
-`One of baseball's best interleague rivalries goes down this weekend, with the Yankees hosting the Mets for a "subway series."`\
-https://nytimes.com/athletic/6360201/2025/05/16/mets-yankees-subway-series-juan-soto-new-york-how-to-watch/
-
-**The biggest lesson MacKinnon can learn from Crosby, Fleury**\
-`MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
-https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
 

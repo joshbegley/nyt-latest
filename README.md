@@ -1,3 +1,11 @@
+**The Bounce: Will Nikola Jokić or Shai Gilgeous-Alexander come out on top in MVP-centric Game 7?**\
+`Who has the advantage in Sunday's Game 7 between the Thunder and Nuggets? Plus, it's time for WNBA predictions!`\
+https://nytimes.com/athletic/6361618/2025/05/16/shai-gilgeous-alexander-nikola-jokic-thunder-nuggets-mvp-playoffs-nba-the-bounce/
+
+**Salman Rushdie’s Attacker Sentenced to Maximum 25 Years in Prison**\
+`Hadi Matar, the defendant, said he believed the acclaimed author to be a hypocrite. Mr. Rushdie had been living under a religious edict calling for his death since 1989.`\
+https://nytimes.com/2025/05/16/nyregion/salman-rushdie-hadi-matar-sentenced.html
+
 **The Windup: Plenty of Rivalry Weekend intrigue**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6360994/2025/05/16/yankees-mets-rivalry-weekend-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/business/energy-environment/data-centers-utilitie
 **A Museum of Migration Celebrates People on the Move**\
 `A new institution in the harbor of Rotterdam, the Netherlands, combines art and artifacts to underscore that migrant journeys are part of a universal human experience.`\
 https://nytimes.com/2025/05/16/arts/design/fenix-museum-migration-rotterdam.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 37?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-ups-gameweek-37/
-
-**‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
-`Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
-https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
 

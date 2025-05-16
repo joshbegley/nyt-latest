@@ -1,3 +1,11 @@
+**The Windup: Plenty of Rivalry Weekend intrigue**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6360994/2025/05/16/yankees-mets-rivalry-weekend-the-windup/
+
+**G.O.P. Tax Bill May Hurt the Lowest Earners and Help the Richest**\
+`Even though most Americans may see lower taxes, Republicans’ spending cuts could outweigh those benefits and leave some worse off.`\
+https://nytimes.com/2025/05/16/business/republican-tax-bill-trump.html
+
 **Sean Combs**\
 ``\
 https://nytimes.com/spotlight/sean-combs-diddy
