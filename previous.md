@@ -1,3 +1,15 @@
+**Starbucks Baristas Stage Walkouts Over Dress Code Change**\
+`Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
+https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
+
+**A Campaign Against an Airline That Flies Deportees for ICE Lands in Court**\
+`Seth Miller, a state lawmaker in New Hampshire, placed billboard ads protesting Avelo Airlines’ decision to operate deportation flights for the federal government. Avelo accused him of copyright infringement.`\
+https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
+
+**The 5.18.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/16/the-51825-issue
+
 **Mysterious New Group’s Likely Mission: Restoring Cuomo to Office**\
 `Restore Sanity NYC, a nonprofit with ties to former Gov. Andrew Cuomo, has begun funding campaign mailers that echo many of his talking points as he runs for mayor.`\
 https://nytimes.com/2025/05/16/nyregion/cuomo-restore-sanity.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6361865/2025/05/16/preakness-stakes-odds-weather-ho
 **11 Inmates Escape From New Orleans Jail, Officials Say**\
 `The Orleans Parish Sheriff’s Office did not disclose how the inmates managed to escape but said they should be considered “armed and dangerous.”`\
 https://nytimes.com/2025/05/16/us/new-orleans-jail-escape.html
-
-**The last NJ Transit strike, in 1983, lasted more than a month.**\
-`By Stefanos Chen`\
-https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/the-last-nj-transit-strike-in-1983-lasted-more-than-a-month
-
-**Gulf States Pay Off $15.5 Million Syrian Debt to World Bank**\
-`The move was the latest victory for Syria’s new government as it attempts to stabilize the nation after a long civil war and decades of dictatorship.`\
-https://nytimes.com/2025/05/16/world/middleeast/world-bank-syria-debt-saudi-arabia-qatar.html
-
-**Submit a question for Hunter Patterson's Pistons' offseason mailbag**\
-`What’s on your mind about Detroit as the organization heads into an offseason with legitimate optimism?`\
-https://nytimes.com/athletic/6362108/2025/05/16/detroit-pistons-mailbag-2025-offseason/
 

@@ -1,3 +1,15 @@
+**Starbucks Baristas Stage Walkouts Over Dress Code Change**\
+`Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
+https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
+
+**A Campaign Against an Airline That Flies Deportees for ICE Lands in Court**\
+`Seth Miller, a state lawmaker in New Hampshire, placed billboard ads protesting Avelo Airlines’ decision to operate deportation flights for the federal government. Avelo accused him of copyright infringement.`\
+https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
+
+**The 5.18.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/16/the-51825-issue
+
 **Mysterious New Group’s Likely Mission: Restoring Cuomo to Office**\
 `Restore Sanity NYC, a nonprofit with ties to former Gov. Andrew Cuomo, has begun funding campaign mailers that echo many of his talking points as he runs for mayor.`\
 https://nytimes.com/2025/05/16/nyregion/cuomo-restore-sanity.html

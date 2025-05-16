@@ -1,3 +1,15 @@
+**David Tracy, 86, Theologian Who Rejected Rome’s Supremacy, Dies**\
+`The author of influential books and essays, he was known for a contemporary theory of religion and Catholicism that advocated dialogue, not decrees.`\
+https://nytimes.com/2025/05/16/us/david-tracy-dead.html
+
+**Fed to Cut Staff by 10% Over Several Years**\
+`In an internal memo to staff on Friday, Jerome H. Powell, the chair of the central bank, said the institution would offer a voluntary deferred resignation program.`\
+https://nytimes.com/2025/05/16/business/federal-reserve-job-cuts.html
+
+**Boxcar, a Private Bus Company, Sees Opportunity in NJ Transit Strike**\
+`With quirky social media videos, Boxcar, which was founded in 2017, is seeking to elevate its profile as commuters look for alternative ways to reach Manhattan.`\
+https://nytimes.com/2025/05/16/nyregion/boxcar-bus-nj-transit-strike.html
+
 **Starbucks Baristas Stage Walkouts Over Dress Code Change**\
 `Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
 https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/t-magazine/america-road-trips-michelle-zauner-ant
 **NWSLPA director calls for 'bright-line rule' to emergency protocols**\
 `NWSLPA executive director Meghann Burke explains why the league’s current policies need urgent reform following Savy King’s collapse.`\
 https://nytimes.com/athletic/6361354/2025/05/16/nwslpa-new-rule-savy-king-angel-city/
-
-**Review: Bill T. Jones Creates a Dance for America, Right Now**\
-`The Bill T. Jones/Arnie Zane Dance Company’s season at New York Live Arts features the premiere of “Curriculum III: People, Places & Things.”`\
-https://nytimes.com/2025/05/16/arts/dance/bill-t-jones-curriculum-iii-review.html
-
-**How to watch the 2025 Preakness Stakes: Schedule, odds, horses and weather**\
-`This weekend marks the 150th edition of the Preakness Stakes, the second leg of thoroughbred racing's annual Triple Crown.`\
-https://nytimes.com/athletic/6361865/2025/05/16/preakness-stakes-odds-weather-how-to-watch/
-
-**11 Inmates Escape From New Orleans Jail, Officials Say**\
-`The Orleans Parish Sheriff’s Office did not disclose how the inmates managed to escape but said they should be considered “armed and dangerous.”`\
-https://nytimes.com/2025/05/16/us/new-orleans-jail-escape.html
 
