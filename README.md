@@ -1,3 +1,15 @@
+**Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
+`“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an op-ed published on Friday.`\
+https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
+
+**For Some Immigrant Artists, This Is No Time to Retreat**\
+`An exhibition in the Bronx offers community support to Latino artists, undaunted by a hostile climate.`\
+https://nytimes.com/2025/05/16/arts/design/bronx-art-space-immigrant-artists.html
+
+**Brighton pursuing Olympiacos striker Kostoulas**\
+`They have offered a fee of around £30million plus Abdallah Sima for the 17-year-old, which is expected to be turned down by Olympiacos.`\
+https://nytimes.com/athletic/6362115/2025/05/16/brighton-charalampos-kostoulas-transfer/
+
 **A Beloved Mainstay of Sri Lankan Culture and Cuisine on Staten Island**\
 `Part museum, part restaurant, the family-run Lakruwana offers an exuberant celebration of the small island nation’s food.`\
 https://nytimes.com/2025/05/16/t-magazine/lakruwana-sri-lankan-food-new-york.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/theater/is-betty-buckley-still-alive-trump-asked-
 **Everton announce naming rights deal for new stadium**\
 `The new venue — which will replace Goodison Park as the men's team's home from next season — will be known as the Hill Dickinson Stadium.`\
 https://nytimes.com/athletic/6362164/2025/05/16/everton-new-stadium-name-rights-partner/
-
-**What we're hearing about the Blackhawks coaching search, changes, prospects and more**\
-`Keep an eye on Jeff Blashill, the former Detroit Red Wings head coach from 2015 to 2022, who recently met with the Blackhawks in Chicago.`\
-https://nytimes.com/athletic/6362038/2025/05/16/blackhawks-coaching-search-nhl/
-
-**What Ron Chernow Loves About Mark Twain**\
-`The Pulitzer-winning presidential biographer discusses his new book about the life of a literary founding father.`\
-https://nytimes.com/2025/05/16/books/review/podcast-ron-chernow-mark-twain.html
-
-**It’s High Time You Added Sotol to Your Bar Cart**\
-`The traditional spirit tells the story of wherever its plant source has grown across the deserts and forests of Northern Mexico.`\
-https://nytimes.com/2025/05/16/dining/sotol.html
 
