@@ -1,3 +1,11 @@
+**The Broadway Best of Charles Strouse**\
+`The composer’s musicals, including “Annie” and “Bye Bye Birdie,” captured essential elements of American culture. Here are five of his most memorable songs.`\
+https://nytimes.com/2025/05/16/theater/charles-strouse-annie-applause.html
+
+**Facebook Enables Extremist Views. Should I Quit and Risk Losing My Friends There?**\
+`The magazine’s Ethicist columnist on what to do when you’re conflicted about using an service you may rely on.`\
+https://nytimes.com/2025/05/16/magazine/facebook-extremist-rhetoric-ethics.html
+
 **Campaign Against an Airline That Flies Deportees Sets Off a Legal Fight**\
 `Seth Miller, a New Hampshire lawmaker, placed billboard ads protesting Avelo Airlines’ decision to operate flights for ICE. Avelo accused him of copyright infringement.`\
 https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
