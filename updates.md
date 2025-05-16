@@ -1,3 +1,15 @@
+**The caddie whose second chance has him standing with the PGA Championship leaders**\
+`Less than a year ago, Sam Matton was in the depths of self-imposed recovery.`\
+https://nytimes.com/athletic/6360528/2025/05/15/pga-championship-luke-donald-caddie-sam-matton/
+
+**Chris Brown Arrested in Connection With 2023 Assault, British Authorities Say**\
+`The R&B singer is charged with grievous bodily harm.`\
+https://nytimes.com/2025/05/15/us/chris-brown-charged-london.html
+
+**Can C-SPAN Pull Off ‘Crossfire,’ but With Civility?**\
+`“Ceasefire” will be the low-key public affairs channel’s first new weekly show in two decades. The question is whether Republicans and Democrats will show up.`\
+https://nytimes.com/2025/05/15/business/media/cspan-ceasefire.html
+
 **Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
 `Furcal, 47, was a three-time All-Star across 14 MLB seasons.`\
 https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/
