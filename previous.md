@@ -1,3 +1,11 @@
+**The Pulse: The most important season in WNBA history?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6360129/2025/05/16/wnba-season-preview-the-pulse/
+
+**Thunder fall flat and let golden opportunity slip: 'They went and got the game'**\
+`The Thunder had a chance — several chances — to put the Nuggets away but failed to do so and must now raise themselves for a Game 7.`\
+https://nytimes.com/athletic/6360971/2025/05/16/thunder-nuggets-nba-playoffs-game-6/
+
 **Pete Rose's path to Hall of Fame: 5 things to know about Era Committee process**\
 `Rose could be on the ballot in December 2027. Here are five things to know about the Hall of Fame committee process that now awaits him. `\
 https://nytimes.com/athletic/6360650/2025/05/16/pete-rose-baseball-hall-of-fame-voting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6361142/2025/05/16/angel-city-utah-royals-savy-king
 **Hurricanes are a scarily effective team — just ask the eliminated Capitals**\
 `The Hurricanes ended the conference-leading Capitals' season in five games, and it shouldn't really be a surprise.`\
 https://nytimes.com/athletic/6360928/2025/05/16/hurricanes-capitals-nhl-playoffs-elimination/
-
-**New York Helped Thousands of Migrants With Legal Issues. That’s Ending.**\
-`The imminent closing of the Asylum Application Help Center marks another turning point in the city’s response to the migrant crisis.`\
-https://nytimes.com/2025/05/16/nyregion/nyc-migrants-legal-help-ending.html
-
-**With the 2025 WNBA season on the horizon comes new hopes**\
-`Expect Caitlin Clark to wow, the Liberty to chase a repeat championship and more stars to emerge.`\
-https://nytimes.com/athletic/6360356/2025/05/16/wnba-preview-essay-caitlin-clark-liberty-highlights/
 

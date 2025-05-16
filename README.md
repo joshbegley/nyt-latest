@@ -1,3 +1,7 @@
+**How Much Do New Jersey Transit Engineers Make, and How Big a Raise Are They Seeking?**\
+`The striking engineers have complained that their counterparts at other railroads that serve New York City earn at least $10 more per hour.`\
+https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-engineers-pay-demands.html
+
 **The Pulse: The most important season in WNBA history?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6360129/2025/05/16/wnba-season-preview-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358022/2025/05/16/stefano-domenicali-f1-ceo-interv
 **NWSL admits game should not have continued after Savy King’s on-field collapse**\
 `Friday's game between Angel City and Utah Royals was stopped for around 16 minutes before resuming.`\
 https://nytimes.com/athletic/6361142/2025/05/16/angel-city-utah-royals-savy-king-collapse-nwsl/
-
-**Hurricanes are a scarily effective team — just ask the eliminated Capitals**\
-`The Hurricanes ended the conference-leading Capitals' season in five games, and it shouldn't really be a surprise.`\
-https://nytimes.com/athletic/6360928/2025/05/16/hurricanes-capitals-nhl-playoffs-elimination/
 

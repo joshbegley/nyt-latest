@@ -1,3 +1,11 @@
+**The Pulse: The most important season in WNBA history?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6360129/2025/05/16/wnba-season-preview-the-pulse/
+
+**Thunder fall flat and let golden opportunity slip: 'They went and got the game'**\
+`The Thunder had a chance — several chances — to put the Nuggets away but failed to do so and must now raise themselves for a Game 7.`\
+https://nytimes.com/athletic/6360971/2025/05/16/thunder-nuggets-nba-playoffs-game-6/
+
 **Pete Rose's path to Hall of Fame: 5 things to know about Era Committee process**\
 `Rose could be on the ballot in December 2027. Here are five things to know about the Hall of Fame committee process that now awaits him. `\
 https://nytimes.com/athletic/6360650/2025/05/16/pete-rose-baseball-hall-of-fame-voting/
