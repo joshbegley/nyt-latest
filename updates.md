@@ -1,3 +1,7 @@
+**New Jersey Transit Strike Set to Begin at Midnight After Talks Break Down**\
+`The strike by the locomotive engineers would disrupt the lives of tens of thousands of commuters in the New York metropolitan region.`\
+https://nytimes.com/2025/05/15/nyregion/njtransit-strike.html
+
 **What to know about the long shots taking over the PGA Championship**\
 `The unexpected was everywhere at soggy Quail Hollow Club on Thursday.`\
 https://nytimes.com/athletic/6360346/2025/05/15/pga-championship-2025-long-shots-quail-hollow/
