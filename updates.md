@@ -1,3 +1,7 @@
+**Newcastle will not be 'hampered' by PSR restrictions this summer - Howe**\
+`Howe is confident that Newcastle will be in a position to strengthen, rather than weaken, themselves during the off-season.`\
+https://nytimes.com/athletic/6361088/2025/05/16/newcastle-transfer-news-psr-2025/
+
 **Trump Wraps Up a Middle East Tour Full of Lavish Receptions and Business Deals**\
 `President Trump’s four-day trip yielded a remarkable turnabout with Syria and announcements of multibillion-dollar deals for U.S. firms.`\
 https://nytimes.com/2025/05/16/us/politics/trump-middle-east-visit.html

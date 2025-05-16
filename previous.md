@@ -1,3 +1,7 @@
+**Newcastle will not be 'hampered' by PSR restrictions this summer - Howe**\
+`Howe is confident that Newcastle will be in a position to strengthen, rather than weaken, themselves during the off-season.`\
+https://nytimes.com/athletic/6361088/2025/05/16/newcastle-transfer-news-psr-2025/
+
 **Trump Wraps Up a Middle East Tour Full of Lavish Receptions and Business Deals**\
 `President Trump’s four-day trip yielded a remarkable turnabout with Syria and announcements of multibillion-dollar deals for U.S. firms.`\
 https://nytimes.com/2025/05/16/us/politics/trump-middle-east-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/16/briefing/trump-middle-east-tariffs-ne
 **Those National Park Accounts Aren’t Real. But They’re Spicy.**\
 `TikTok accounts dedicated to Yellowstone, Joshua Tree and other parks have drawn a lot of attention by leaning in on sex appeal.`\
 https://nytimes.com/2025/05/16/style/yellowstone-park-tiktok-thirst-traps.html
-
-**Theater to Stream: ‘Yellow Face,’ Joaquina Kalukango and More**\
-`Watch the Tony nominee Daniel Dae Kim in David Henry Hwang’s comedy, and take in cabaret at 54 Below, all from your living room.`\
-https://nytimes.com/2025/05/16/theater/theater-to-stream-yellow-face-joaquina-kalukango-and-more.html
 

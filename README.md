@@ -1,4 +1,4 @@
-**Newcastle will not be 'hampered' by PSR restrictions this summer - Howe**\
+**Howe: Newcastle won't be 'hampered' by PSR this summer**\
 `Howe is confident that Newcastle will be in a position to strengthen, rather than weaken, themselves during the off-season.`\
 https://nytimes.com/athletic/6361088/2025/05/16/newcastle-transfer-news-psr-2025/
 
