@@ -1,3 +1,11 @@
+**Employee’s Change Caused xAI’s Chatbot to Veer Into South African Politics**\
+`Grok, the chatbot operated by Elon Musk’s artificial intelligence company, was providing the responses about South Africa to unrelated questions.`\
+https://nytimes.com/2025/05/16/technology/xai-elon-musk-south-africa.html
+
+**Trump Administration Asks Supreme Court to Block Ruling on Mass Layoffs**\
+`A federal judge’s order had barred dozens of federal agencies from moving ahead with the largest phase of President Trump’s efforts to downsize the government.`\
+https://nytimes.com/2025/05/16/us/politics/trump-scotus-federal-layoffs.html
+
 **The Briefing: Aston Villa 2 Tottenham 0 - Emery's side move into top five, Spurs suffer 21st defeat of the season**\
 `Villa took a massive step towards qualification for next season's Champions League while Spurs had one eye on the Europa League final`\
 https://nytimes.com/athletic/6353906/2025/05/16/aston-villa-top-five-champions-league-tottenham-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/health/vaccine-placebo-trials.html
 **Artist Known for Scaling Buildings Was Arrested at His Show’s Opening**\
 `Isaac Wright took a vertiginous photograph of the Empire State Building after he climbed to the top of its spire — evidence the police may have used to arrest him.`\
 https://nytimes.com/2025/05/16/arts/design/16cul-isaac-wright-arrest.html
-
-**'We didn't take any shortcuts': Flyers outline why new coach Rick Tocchet will thrive**\
-`One skill made the Flyers confident that Tocchet is the correct choice to replace John Tortorella.`\
-https://nytimes.com/athletic/6362495/2025/05/16/rick-tocchet-flyers-coach/
-
-**Democrats Who Championed Biden’s Re-election Bid Now Seek Atonement**\
-`With their party facing record low approval ratings, many top Democrats are trying to reposition themselves from Biden boosters to truth-tellers of what really happened in 2024.`\
-https://nytimes.com/2025/05/16/us/politics/democrats-biden-2024.html
 
