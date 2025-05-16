@@ -1,3 +1,7 @@
+**How Jhonattan Vegas has come out of nowhere to lead the PGA Championship**\
+`Vegas, a 40-year-old from Venezuela, has one top-25 finish at a major championship in his career, nine years ago.`\
+https://nytimes.com/athletic/6362734/2025/05/16/jhonattan-vegas-pga-championship-lead/
+
 **Republican Revolt Reflects a Core Party Divide Over Spending and Debt**\
 `Whether the ultraconservatives dig in and force big changes to the megabill carrying President Trump’s agenda or capitulate, as they have in the past, will determine the fate of their party’s signature legislation.`\
 https://nytimes.com/2025/05/16/us/politics/republican-divide-spending-debt.html
