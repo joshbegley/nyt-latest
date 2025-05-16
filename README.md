@@ -1,3 +1,7 @@
+**Military Parade in Capital on Trump’s Birthday Could Cost $45 Million, Officials Say**\
+`The parade is scheduled for June 14, the date of the Army’s 250th anniversary, and is billed as the “Army’s birthday celebration.” President Trump turns 79 that day.`\
+https://nytimes.com/2025/05/15/us/politics/trump-parade-army-birthday-cost.html
+
 **Braves takeaways: Red-hot rookies AJ Smith-Shawver, Drake Baldwin; Chris Sale to start in Boston**\
 `Rookie catcher Baldwin continues to sizzle. Can he make Braves fans forgive the team for trading away William Contreras?`\
 https://nytimes.com/athletic/6360544/2025/05/15/braves-takeaways-aj-smith-shawver-drake-baldwin-chris-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/arts/music/cassie-diddy-trial-combs-defense.html
 **She Vanished for 3 Weeks in the Sierra. Then the Phone Rang: ‘Dad, I’m Alive.’**\
 `A search for Tiffany Slaton, 28, covered roughly 600 square miles of mountainous terrain in California. She was found at a cabin, where she waited out a blizzard.`\
 https://nytimes.com/2025/05/15/us/missing-camper-safe-sierra-nevada.html
-
-**What we learned from Adam Foote's first news conference as Canucks head coach**\
-`The Canucks needs stability, and Foote is being entrusted as the head coach to deliver it.`\
-https://nytimes.com/athletic/6360007/2025/05/15/canucks-adam-foote-head-coach-news/
 
