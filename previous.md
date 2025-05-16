@@ -1,41 +1,40 @@
-**Spurs to face Bayern in pre-season friendly in August**\
-`Spurs played Bayern twice last summer as part of their preparations for the 2024-25 campaign. `\
-https://nytimes.com/athletic/6361053/2025/05/16/tottenham-bayern-pre-season-friendly-august-2025/
+**Is Trump Losing? A Debate**\
+`The journalists Zack Beauchamp and Andrew Marantz discuss what kind of autocratic timeline America is on right now.`\
+https://nytimes.com/2025/05/16/opinion/ezra-klein-podcast-marantz-beauchamp.html
 
-**Dunk back in Brighton squad for game against Liverpool after hamstring injury**\
-`The 33-year-old captain sat out last Saturday's 2-0 win at Wolverhampton Wanderers as a precaution, because of a minor hamstring issue.`\
-https://nytimes.com/athletic/6361082/2025/05/16/brighton-liverpool-team-news-dunk/
+**Cowboys EVP Stephen Jones details Dallas' 'spicy' schedule, 'amazing' energy at The Star**\
+`Stephen Jones said the Cowboys might not be finished making moves — "365 days a year is player acquisition."`\
+https://nytimes.com/athletic/6360401/2025/05/16/cowboys-schedule-stephen-jones-george-pickens/
 
-**The Global Happiness Curve Is Collapsing. What Does That Mean?**\
-`For decades, research showed that the way people experienced happiness across their lifetimes looked like a U-shaped curve: Happiness tended to be high when they were young, then dipped in midlife, only to rise again as they grew old.`\
-https://nytimes.com/video/well/100000010141520/the-global-happiness-curve-is-collapsing-what-does-that-mean.html
+**Is Trump Losing? A Debate**\
+`The journalists Zack Beauchamp and Andrew Marantz discuss what kind of autocratic timeline America is on right now.`\
+https://nytimes.com/video/opinion/100000010171500/is-trump-losing-a-debate.html
 
-**Fighting India Helps Revive the Pakistani Military’s Popularity**\
-`As Pakistan declares victory, confidence in the troubled country’s state institutions is re-emerging, at least for now.`\
-https://nytimes.com/2025/05/16/world/asia/pakistan-military-india.html
+**Five Free Movies to Stream Now**\
+`In films like “Embrace of the Serpent,” you’ll find stories about history and power. Here’s a rundown of what’s currently on Tubi, Plex and PlutoTV.`\
+https://nytimes.com/2025/05/16/arts/five-free-movies-to-stream-now.html
 
-**‘It’s All About Trump’s Tariffs’: Asia Flocks to U.S. Trade Official**\
-`Asia Pacific Economic Cooperation nations, staring down U.S. tariffs, jockeyed for time with U.S. Trade Representative Jamieson Greer at a gathering in South Korea.`\
-https://nytimes.com/2025/05/16/business/trump-tariffs-apec-trade.html
+**Judge to Press Trump Administration Over Return of Wrongly Deported Man**\
+`Justice Department lawyers are scheduled to appear in Federal District Court in Maryland to defend their latest effort to avoid disclosing details about several key aspects of the proceeding.`\
+https://nytimes.com/2025/05/16/us/politics/doj-trump-deportation-abrego-garcia.html
 
-**Peace Talks Between Russia and Ukraine to Begin Amid Doubt and Chaos**\
-`Expectations are low for the talks in Istanbul, the first direct peace negotiations between Moscow and Kyiv since early 2022.`\
-https://nytimes.com/2025/05/16/world/europe/russia-ukraine-peace-talks.html
+**Do You Want to Be an Explorer?**\
+`How about going to the deep sea, where there’s still a lot to investigate? In fact, 99.999 percent of it remains unknown!`\
+https://nytimes.com/2025/05/16/learning/do-you-want-to-be-an-explorer.html
 
-**New Jersey Transit Engineers Go on Strike**\
-`As union workers prepared to strike, Gov. Philip D. Murphy of New Jersey said the state’s transit system was facing a “sobering fiscal reality” and that he hoped for the best.`\
-https://nytimes.com/video/us/100000010173527/njtransit-strike.html
+**6 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/05/16/movies/new-movies-this-week-critics.html
 
-**Doctors Heal Infant Using First Customized-Gene Editing Treatment**\
-`Doctors applied a personalized treatment to cure a baby’s genetic disorder, opening the door to similar therapies for others.`\
-https://nytimes.com/video/us/100000010173473/gene-editing-personalized-rare-disorders.html
+**Medicaid Work Requirements Are Cruel and Pointless**\
+`Studies show that when Medicaid work requirements were tried, they failed to increase employment.`\
+https://nytimes.com/2025/05/16/opinion/medicaid-work-requirements-pointless.html
 
-**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
-`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
-`\
-https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+**A Designer’s Glamorous Lifestyle Infuses His Studio**\
+`Corey Damen Jenkins showcases weighty crystal coasters, a high-end French trolley and one-of-a-kind dachshund finial chairs.`\
+https://nytimes.com/2025/05/16/realestate/corey-damen-jenkins-office-design.html
 
-**Some Democrats Deride Hochul’s ‘Inflation Refund’ Checks as a Gimmick**\
-`The checks, at a cost of $2 billion, are a political move that the state cannot afford, some lawmakers say. They will be distributed to millions of New Yorkers this fall.`\
-https://nytimes.com/2025/05/16/nyregion/inflation-refund-checks-hochul.html
+**$500,000 Homes in Marrakesh, Morocco**\
+`Available properties include traditional and modern riads, as well as condos in residential communities.`\
+https://nytimes.com/2025/05/16/realestate/500000-homes-in-marrakesh-morocco.html
 
