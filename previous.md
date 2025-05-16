@@ -1,40 +1,40 @@
-**NBA playoffs takeaways: Nuggets beat Thunder to force Game 7**\
-`The Nuggets used a late third-quarter flurry of baskets to mount a double-digit comeback and never looked back in the fourth.`\
-https://nytimes.com/athletic/6360491/2025/05/15/nuggets-thunder-nba-playoffs-takeaways/
+**Phil Giles' decade at Brentford: 'He makes the most complex job in the world look simple'**\
+`Brentford's director of football celebrates 10 years at the club today. Understated, dedicated and ruthless, he's a key figure in their rise`\
+https://nytimes.com/athletic/6355217/2025/05/16/phil-giles-brentford-decade-rise/
 
-**Ex-F.B.I. Chief Being Investigated Over Social Media Post About Trump**\
-`James Comey shared and later took down a post with a phrase used by critics of the president, saying there had been no ill intent.`\
-https://nytimes.com/2025/05/15/us/politics/james-comey-post-trump.html
+**Premier League race for top five: Arsenal and Newcastle battle for second and will cup final distract Man City?**\
+`Updates and analysis as the race to to qualify for next season's Champions League reaches its final stages`\
+https://nytimes.com/athletic/6358667/2025/05/16/premier-league-top-five-race-arsenal-man-city/
 
-**Suns employee becomes fourth to sue franchise in last 7 months**\
-`The latest lawsuit was filed by attorneys representing Gene Traylor in U.S. District Court in Arizona.`\
-https://nytimes.com/athletic/6360744/2025/05/15/phoenix-suns-employee-lawsuit/
+**Man United or Spurs: Who has had the worst season? A friendly discussion**\
+`Club writers Carl Anka and Jay Harris discuss the upcoming Europa League final and two disastrous seasons`\
+https://nytimes.com/athletic/6359139/2025/05/16/man-united-tottenham-europa-league/
 
-**New Jersey Transit Strike Set to Begin at Midnight After Talks Break Down**\
-`The strike by the locomotive engineers would disrupt the lives of tens of thousands of commuters in the New York metropolitan region.`\
-https://nytimes.com/2025/05/15/nyregion/njtransit-strike.html
+**‘Knives Are Out’ in South Sudan as Vice President Is Held in Detention**\
+`After years of gradual progress toward stability, a succession battle is pushing the country to the precipice of another full-blown civil war.`\
+https://nytimes.com/2025/05/16/world/africa/south-sudan-tensions.html
 
-**What to know about the long shots taking over the PGA Championship**\
-`The unexpected was everywhere at soggy Quail Hollow Club on Thursday.`\
-https://nytimes.com/athletic/6360346/2025/05/15/pga-championship-2025-long-shots-quail-hollow/
+**China’s First Police Corgi Has 400,000 Followers and a Nose for Trouble**\
+`Fu Zai has won top workplace reviews as an unusual breed of sniffer dog. But his lack of self-control cost him his annual bonus.`\
+https://nytimes.com/2025/05/16/world/asia/corgi-dog-china-police.html
 
-**'It's on us': Blue Jays rotation expects better, regardless of results**\
-`Kevin Gausman allowed three homers and six earned runs — both season highs — in an 8-3 loss to the Tampa Bay Rays.`\
-https://nytimes.com/athletic/6360710/2025/05/15/blue-jays-loss-rays-rotation/
+**As Contestants on ‘The Circle,’ It Was Love at First Photo**\
+`Jadejha Edwards and Darian Holt met through the Netflix show and, for three weeks, communicated only by screen.`\
+https://nytimes.com/2025/05/16/style/jadejha-edwards-darian-holt-wedding.html
 
-**Trump Administration Fires Hundreds of Voice of America Employees**\
-`The layoffs amounted to over a third of the media organization’s staff, and came as the Trump administration put up for sale the federal building in Washington that houses the network.`\
-https://nytimes.com/2025/05/15/us/politics/trump-voice-of-america-firings.html
+**Corrections: May 16, 2025**\
+`Corrections that appeared in print on Friday, May 16, 2025.`\
+https://nytimes.com/2025/05/16/pageoneplus/corrections-may-16-2025.html
 
-**Shooting for the Stars**\
-`August Lee-Kovach opens our solving weekend.`\
-https://nytimes.com/2025/05/15/crosswords/daily-puzzle-2025-05-16.html
+**She Wrote About ‘The 36 Questions That Lead to Love.’ And Now, to Marriage**\
+`Mandy Catron’s essay about her unconventional first date with Mark Bondyra went viral. Ten years later, they are rewriting the script on marriage, too.`\
+https://nytimes.com/2025/05/16/style/36-questions-love-wedding-mandy-len-catron.html
 
-**Jewish Student Who Held Out in Lawsuit Against Harvard Agrees to Settle**\
-`Shabbos Kestenbaum sued Harvard University over allegations it did not do enough to curb antisemitism. He had continued his lawsuit even after other students settled.`\
-https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html
+**A Funny Way to Meet the Parents**\
+`Christina Mastrocola and Sam Barcelo were delighted to learn that they were both reading books in “The Stormlight Archive” fantasy series.`\
+https://nytimes.com/2025/05/16/style/christina-mastrocola-sam-barcelo-wedding.html
 
-**Hurricanes eliminate Capitals, advance to Eastern Conference final: Takeaways**\
-`Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
-https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
+**Connections: Sports Edition Coach: Hints for May 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6360435/2025/05/16/connections-sports-edition-hints-for-may-16-2025/
 

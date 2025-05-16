@@ -1,3 +1,11 @@
+**Brazil are a dysfunctional mess. Good luck, Carlo Ancelotti**\
+`The Italian will need all his renowned coaching nous to rouse a failing team, one year out from the World Cup`\
+https://nytimes.com/athletic/6358960/2025/05/16/brazil-are-a-dysfunctional-mess-good-luck-carlo-ancelotti/
+
+**Tottenham are 17th with a positive goal difference. Is this unique?**\
+`Spurs' season has been negative but they have a positive goal difference. What does it tell us about Ange Postecoglou's approach?`\
+https://nytimes.com/athletic/6358882/2025/05/16/tottenham-are-17th-with-a-positive-goal-difference-is-this-unique/
+
 **Phil Giles' decade at Brentford: 'He makes the most complex job in the world look simple'**\
 `Brentford's director of football celebrates 10 years at the club today. Understated, dedicated and ruthless, he's a key figure in their rise`\
 https://nytimes.com/athletic/6355217/2025/05/16/phil-giles-brentford-decade-rise/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/pageoneplus/corrections-may-16-2025.html
 **She Wrote About ‘The 36 Questions That Lead to Love.’ And Now, to Marriage**\
 `Mandy Catron’s essay about her unconventional first date with Mark Bondyra went viral. Ten years later, they are rewriting the script on marriage, too.`\
 https://nytimes.com/2025/05/16/style/36-questions-love-wedding-mandy-len-catron.html
-
-**A Funny Way to Meet the Parents**\
-`Christina Mastrocola and Sam Barcelo were delighted to learn that they were both reading books in “The Stormlight Archive” fantasy series.`\
-https://nytimes.com/2025/05/16/style/christina-mastrocola-sam-barcelo-wedding.html
-
-**Connections: Sports Edition Coach: Hints for May 16, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6360435/2025/05/16/connections-sports-edition-hints-for-may-16-2025/
 
