@@ -1,3 +1,7 @@
+**'It's on us': Blue Jays rotation expects better, regardless of results**\
+`Kevin Gausman allowed three homers and six earned runs — both season highs — in an 8-3 loss to the Tampa Bay Rays.`\
+https://nytimes.com/athletic/6360710/2025/05/15/blue-jays-loss-rays-rotation/
+
 **Trump Administration Fires Hundreds of Voice of America Employees**\
 `The layoffs amounted to over a third of the media organization’s staff, and came as the Trump administration put up for sale the federal building in Washington that houses the network.`\
 https://nytimes.com/2025/05/15/us/politics/trump-voice-of-america-firings.html
