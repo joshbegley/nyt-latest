@@ -1,5 +1,5 @@
-**Amtrak is an option for strike-affected commuters, but at a steep cost.**\
-`By Matthew Haag`\
+**Amtrak Is a Costly Alternative for Commuters Amid the NJ Transit Strike**\
+`Fares to New York City on the passenger rail line were several times higher on Friday than the normal cost of a ticket on NJ Transit.`\
 https://nytimes.com/2025/05/16/nyregion/nj-transit-amtrak.html
 
 **Live Updates: Cassie to Start 18th Hour of Testimony in Sean Combs’s Sex-Trafficking Trial**\
