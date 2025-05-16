@@ -1,3 +1,15 @@
+**Jewish Student Who Held Out in Lawsuit Against Harvard Agrees to Settle**\
+`Shabbos Kestenbaum sued Harvard University over allegations it did not do enough to curb antisemitism. He had continued his lawsuit even after other students settled.`\
+https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html
+
+**Hurricanes eliminate Capitals with late goal in Game 5: Takeaways**\
+`Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
+https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
+
+**A judge blocked the Energy Department from imposing a cap on grants for university research.**\
+`The temporary ruling mirrored one in a case involving the N.I.H., which similarly tried to cap the funding that covers universities’ overhead expenses in research.`\
+https://nytimes.com/live/2025/05/15/us/trump-news/a-judge-blocked-the-energy-department-from-imposing-a-cap-on-grants-for-university-research
+
 **36 Deaths in Police Custody Should Have Been Called Homicides, Report Finds**\
 `An audit of deaths in Maryland found that in cases of people who died after being restrained by the police, medical examiners often classified the deaths as natural or accidental.`\
 https://nytimes.com/2025/05/15/us/maryland-police-custody-autopsies-audit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/15/us/chris-brown-charged-london.html
 **Can C-SPAN Pull Off ‘Crossfire,’ but With Civility?**\
 `“Ceasefire” will be the low-key public affairs channel’s first new weekly show in two decades. The question is whether Republicans and Democrats will show up.`\
 https://nytimes.com/2025/05/15/business/media/cspan-ceasefire.html
-
-**Former MLB All-Star Rafael Furcal arrested, faces felony charges in Florida**\
-`Furcal, 47, was a three-time All-Star and played 14 MLB seasons.`\
-https://nytimes.com/athletic/6360560/2025/05/15/mlb-rafael-furcal-arrested-charged-felonies/
-
-**An Afrikaner Farming Family Trades South Africa for Alabama**\
-`Errol Langton and eight members of his family were among the first group of white South Africans to arrive in the United States this week after President Trump created an expedited path to citizenship.`\
-https://nytimes.com/2025/05/15/us/politics/trump-afrikaners-alabama.html
-
-**Ex-Girlfriend of Sean Combs is Confronted by His Lawyer Over ‘Freak-Offs’**\
-`During cross-examination, the defense team depicted Casandra Ventura as fully engaged in staging and participating in the marathon sex sessions she says were abusive.`\
-https://nytimes.com/2025/05/15/arts/music/cassie-diddy-trial-combs-defense.html
 
