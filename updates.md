@@ -1,3 +1,7 @@
+**How Much Do New Jersey Transit Engineers Make, and How Big a Raise Are They Seeking?**\
+`The striking engineers have complained that their counterparts at other railroads that serve New York City earn at least $10 more per hour.`\
+https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-engineers-pay-demands.html
+
 **The Pulse: The most important season in WNBA history?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6360129/2025/05/16/wnba-season-preview-the-pulse/
