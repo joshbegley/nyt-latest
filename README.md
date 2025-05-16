@@ -1,3 +1,7 @@
+**Artist Known for Scaling Buildings Was Arrested at His Show’s Opening**\
+`Isaac Wright took a vertiginous photograph of the Empire State Building after he climbed to the top of its spire — evidence the police may have used to arrest him.`\
+https://nytimes.com/2025/05/16/arts/design/16cul-isaac-wright-arrest.html
+
 **'We didn't take any shortcuts': Flyers outline why new coach Rick Tocchet will thrive**\
 `One skill, in particular, made the Flyers confident that Tocchet is the correct choice to replace John Tortorella.`\
 https://nytimes.com/athletic/6362495/2025/05/16/rick-tocchet-flyers-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/us/politics/doge-musk-gao-accountability-office.h
 **New, green Red Sox City Connect uniforms honor Fenway Park**\
 `The newest City Connect uniform will join a Boston uniform rotation that will still include the yellow and blue Boston Marathon-themed set.`\
 https://nytimes.com/athletic/6356482/2025/05/16/red-sox-city-connect-fenway-green/
-
-**Mets-Yankees Subway Series Clash Will Compete for Fans’ Attention**\
-`The first game of the annual regular season event coincides with a crucial Friday night Knicks playoff game against the Celtics.`\
-https://nytimes.com/2025/05/16/sports/yankees-mets-knicks-playoffs.html
 
