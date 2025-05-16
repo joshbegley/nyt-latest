@@ -1,3 +1,15 @@
+**Secret Service Questioning Comey Over Social Media Post About Trump**\
+`Administration officials had said the post — a picture of seashells forming the numbers “86 47” — amounted to an assassination threat by the former F.B.I. director.`\
+https://nytimes.com/2025/05/16/us/politics/secret-service-comey-social-media-trump.html
+
+**A Kentucky Weather Office Scrambles for Staffing as Severe Storms Bear Down**\
+`The office in Jackson, Ky., is one of several left without an overnight forecaster after hundreds of jobs were recently cut from the National Weather Service.`\
+https://nytimes.com/2025/05/16/weather/nws-cuts-kentucky-tornado.html
+
+**Trump Appointee Pressed Analyst to Redo Intelligence on Venezuelan Gang**\
+`The move followed a disclosure that intelligence agencies disagree with a key factual claim Trump made to invoke a wartime deportation law.`\
+https://nytimes.com/2025/05/16/us/politics/trump-appointee-venezuela-gang.html
+
 **The Ukraine-Russia Peace Talks That Weren’t**\
 `Trump’s insistence on a cease-fire without addressing what the warring sides really want at this stage has not worked.`\
 https://nytimes.com/live/2025/05/05/opinion/thepoint/ukraine-russia-istanbul-talks
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/business/us-credit-downgrade-moodys.html
 **'T means so much to us': How Forest reacted in week after horrific Awoniyi injury**\
 `Nuno explains how he and the Nottingham Forest squad reacted after the horrific injury to Taiwo Awoniyi`\
 https://nytimes.com/athletic/6362123/2025/05/16/nuno-nottingham-forest-taiwo-awoniyi-coma/
-
-**Postecoglou:  Sarr felt discomfort in his back, not 'anything too significant'**\
-`The Senegal international was replaced by Yves Bissouma in the 51st minute and walked straight down the tunnel with a medical staff member.`\
-https://nytimes.com/athletic/6362683/2025/05/16/pape-matar-sarr-spurs-injury-update/
-
-**Justices Extended Block on Deportations Under Wartime Law**\
-`Also, a New Jersey Transit strike left commuters scrambling. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/05/16/briefing/supreme-court-deportations-transit-strike-new-jersey.html
-
-**Chelsea 1 Man Utd 0 - How close is the Champions League for Maresca? How bad is Amorim's record?**\
-`Analysis of Chelsea's Premier League game at home to Manchester United`\
-https://nytimes.com/athletic/6353907/2025/05/16/chelsea-1-manchester-united-0-highlights/
 
