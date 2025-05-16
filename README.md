@@ -1,3 +1,7 @@
+**Fighting India Helps Revive the Pakistani Military’s Popularity**\
+`As Pakistan declares victory, confidence in the troubled country’s state institutions is re-emerging, at least for now.`\
+https://nytimes.com/2025/05/16/world/asia/pakistan-military-india.html
+
 **‘It’s All About Trump’s Tariffs’: Asia Flocks to U.S. Trade Official**\
 `Asia Pacific Economic Cooperation nations, staring down U.S. tariffs, jockeyed for time with U.S. Trade Representative Jamieson Greer at a gathering in South Korea.`\
 https://nytimes.com/2025/05/16/business/trump-tariffs-apec-trade.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/nyregion/murray-kempton.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/16/crosswords/spelling-bee-forum.html
-
-**Serie A odds for the league's crunch time: Title tilts, UCL scramble, drop zone drama**\
-`There’s everything left to play for in Serie A. Sam Tighe looks at all the possible scenarios through a betting lens. `\
-https://nytimes.com/athletic/6359299/2025/05/16/serie-a-final-day-betting-tips-predictions-odds/
 
