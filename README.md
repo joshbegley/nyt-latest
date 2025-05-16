@@ -1,3 +1,7 @@
+**Starbucks Baristas Stage Walkouts Over Dress Code Change**\
+`Their union objected over the unilateral policy change. Starbucks said the disruption has been minimal.`\
+https://nytimes.com/2025/05/16/business/starbucks-strike-baristas-walk-outs.html
+
 **A Campaign Against an Airline That Flies Deportees for ICE Lands in Court**\
 `Seth Miller, a state lawmaker in New Hampshire, placed billboard ads protesting Avelo Airlines’ decision to operate deportation flights for the federal government. Avelo accused him of copyright infringement.`\
 https://nytimes.com/2025/05/16/business/deportation-flights-avelo-airlines-billboard.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6361865/2025/05/16/preakness-stakes-odds-weather-ho
 **11 Inmates Escape From New Orleans Jail, Officials Say**\
 `The Orleans Parish Sheriff’s Office did not disclose how the inmates managed to escape but said they should be considered “armed and dangerous.”`\
 https://nytimes.com/2025/05/16/us/new-orleans-jail-escape.html
-
-**The last NJ Transit strike, in 1983, lasted more than a month.**\
-`By Stefanos Chen`\
-https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/the-last-nj-transit-strike-in-1983-lasted-more-than-a-month
 
