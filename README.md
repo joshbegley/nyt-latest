@@ -1,3 +1,7 @@
+**Trump Wraps Up a Middle East Tour Full of Lavish Receptions and Business Deals**\
+`President Trump’s four-day trip yielded a remarkable turnabout with Syria and announcements of multibillion-dollar deals for U.S. firms.`\
+https://nytimes.com/2025/05/16/us/politics/trump-middle-east-visit.html
+
 **Who Are the Favorites to Win Eurovision?**\
 `KAJ, representing Sweden with an ode to the sauna, is the bookmakers’ favorite, but singers from France, Austria, the Netherlands and Finland are also causing a stir.`\
 https://nytimes.com/2025/05/16/arts/music/eurovision-song-contest-favorites.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/style/yellowstone-park-tiktok-thirst-traps.html
 **Theater to Stream: ‘Yellow Face,’ Joaquina Kalukango and More**\
 `Watch the Tony nominee Daniel Dae Kim in David Henry Hwang’s comedy, and take in cabaret at 54 Below, all from your living room.`\
 https://nytimes.com/2025/05/16/theater/theater-to-stream-yellow-face-joaquina-kalukango-and-more.html
-
-**How to watch the WNBA in 2025: Broadcast info, streaming schedule and national TV games**\
-`The WNBA broadcast rotation can be confusing, especially as the league expands its streaming presence. Here’s our guide to the 2025 season.`\
-https://nytimes.com/athletic/6353404/2025/05/16/wnba-how-to-watch/
 
