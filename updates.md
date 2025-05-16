@@ -1,3 +1,16 @@
+**Spurs to face Bayern in pre-season friendly in August**\
+`Spurs played Bayern twice last summer as part of their preparations for the 2024-25 campaign. `\
+https://nytimes.com/athletic/6361053/2025/05/16/tottenham-bayern-pre-season-friendly-august-2025/
+
+**Dunk back in Brighton squad for game against Liverpool after hamstring injury**\
+`The 33-year-old captain sat out last Saturday's 2-0 win at Wolverhampton Wanderers as a precaution, because of a minor hamstring issue.`\
+https://nytimes.com/athletic/6361082/2025/05/16/brighton-liverpool-team-news-dunk/
+
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
 **FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
 `Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
 `\
