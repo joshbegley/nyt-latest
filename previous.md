@@ -1,3 +1,19 @@
+**Artist Known for Scaling Buildings Was Arrested at His Show’s Opening**\
+`Isaac Wright took a vertiginous photograph of the Empire State Building after he climbed to the top of its spire — evidence the police may have used to arrest him.`\
+https://nytimes.com/2025/05/16/arts/design/16cul-isaac-wright-arrest.html
+
+**'We didn't take any shortcuts': Flyers outline why new coach Rick Tocchet will thrive**\
+`One skill, in particular, made the Flyers confident that Tocchet is the correct choice to replace John Tortorella.`\
+https://nytimes.com/athletic/6362495/2025/05/16/rick-tocchet-flyers-coach/
+
+**Democrats Who Championed Biden’s Re-election Bid Now Seek Atonement**\
+`With their party facing record low approval ratings, many top Democrats are trying to reposition themselves from Biden boosters to truth-tellers of what really happened in 2024.`\
+https://nytimes.com/2025/05/16/us/politics/democrats-biden-2024.html
+
+**Ari Aster’s ‘Eddington’ Has Critics Squaring Off at Cannes**\
+`Set in the pandemic’s early days, the noted horror director’s Covid comedy satirizes the national mood during lockdown. Reactions have been polarizing.`\
+https://nytimes.com/2025/05/16/movies/eddington-ari-aster-cannes-film-festival.html
+
 **Democrats Move to Block Over $3 Billion in Weapons Sales to Qatar and U.A.E.**\
 `The lawmakers introduced resolutions as anger erupted over a series of deals involving the president, businesses linked to his family and several countries.`\
 https://nytimes.com/2025/05/16/us/politics/trump-democrats-weapons-sales.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/16/us/politics/doge-musk-gao-accountability-office.h
 **New, green Red Sox City Connect uniforms honor Fenway Park**\
 `The newest City Connect uniform will join a Boston uniform rotation that will still include the yellow and blue Boston Marathon-themed set.`\
 https://nytimes.com/athletic/6356482/2025/05/16/red-sox-city-connect-fenway-green/
-
-**Mets-Yankees Subway Series Clash Will Compete for Fans’ Attention**\
-`The first game of the annual regular season event coincides with a crucial Friday night Knicks playoff game against the Celtics.`\
-https://nytimes.com/2025/05/16/sports/yankees-mets-knicks-playoffs.html
-
-**Flashback: Your Weekly History Quiz, May 17, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/05/16/upshot/flashback.html
-
-**New Jersey Transit Strike Leaves Commuters Scrambling**\
-`New Jersey’s commuter rail engineers walked off the job early on Friday after contract talks failed to meet the union’s wage demands, leaving thousands of commuters to seek other means of transportation to and from work.`\
-https://nytimes.com/video/us/100000010174078/new-jersey-transit-strike-leaves-commuters-scrambling.html
-
-**Walter Frankenstein, 100, Dies; Hid From the Nazis All Over Berlin**\
-`With his wife and infant sons, he took refuge in unlikely places, including an opera house, an abandoned car and a subway station converted to a bunker.`\
-https://nytimes.com/2025/05/16/world/europe/walter-frankenstein-dead.html
 
