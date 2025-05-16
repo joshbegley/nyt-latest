@@ -1,3 +1,7 @@
+**Why Are So Many Retirees Filing for Social Security Earlier?**\
+`An additional 276,000 people filed for Social Security benefits so far this fiscal year, up 13% from a year ago. Anxiety appears to be a driver.`\
+https://nytimes.com/2025/05/16/business/social-security-early-retirement.html
+
 **Slot: Players 'deserved' Dubai trip, will be prepared for Brighton game**\
 `The title-winning squad flew to the UAE following last Sunday's 2-2 draw with Arsenal at Anfield before returning to Merseyside on Thursday.`\
 https://nytimes.com/athletic/6361804/2025/05/16/arne-slot-liverpool-dubai/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6361618/2025/05/16/shai-gilgeous-alexander-nikola-j
 **Salman Rushdie’s Attacker Sentenced to Maximum 25 Years in Prison**\
 `Hadi Matar, the defendant, said he believed the acclaimed author to be a hypocrite. Mr. Rushdie had been living under a religious edict calling for his death since 1989.`\
 https://nytimes.com/2025/05/16/nyregion/salman-rushdie-hadi-matar-sentenced.html
-
-**The Windup: Plenty of Rivalry Weekend intrigue**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6360994/2025/05/16/yankees-mets-rivalry-weekend-the-windup/
 

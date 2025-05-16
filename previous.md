@@ -1,40 +1,40 @@
+**Slot: Players 'deserved' Dubai trip, will be prepared for Brighton game**\
+`The title-winning squad flew to the UAE following last Sunday's 2-2 draw with Arsenal at Anfield before returning to Merseyside on Thursday.`\
+https://nytimes.com/athletic/6361804/2025/05/16/arne-slot-liverpool-dubai/
+
+**OpenAI Unveils New Tool for Computer Programmers**\
+`The tool, Codex, will be able to handle multiple tasks at the same time, the company said. OpenAI is also in talks to acquire a coding tool called Windsurf for $3 billion.`\
+https://nytimes.com/2025/05/16/technology/openai-codex-programming-tool.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a deadly train, a Blaxploitation-coded revenge tale, a serial killer seeking justice, and more.`\
+https://nytimes.com/2025/05/16/movies/five-action-movies-to-stream-now.html
+
+**Get Ready for Grilling**\
+`Gather and prepare your gear now for an excellent summer of grilled hamburgers, jerk ribs, cabbage wedges, yakitori, soy-basted chicken thighs. …`\
+https://nytimes.com/2025/05/16/dining/burgers-ribs-chicken-grill-recipes.html
+
+**Wild sign Danila Yurov, bringing top prospect from KHL to North America**\
+`Yurov, who won a KHL championship in 2024, has 41 goals and 88 points in 209 career KHL games.`\
+https://nytimes.com/athletic/6302564/2025/05/16/wild-danila-yurov-signs/
+
+**France captain Dupont joins ownership group of LA rugby franchise**\
+`The 2028 Olympic Games, 2031 Men's Rugby World Cup and 2033 Women's Rugby World Cup are all set to be staged in the U.S.`\
+https://nytimes.com/athletic/6361732/2025/05/16/antoine-dupont-rugby-fc-los-angeles/
+
+**Belichick talks new book, excitement for season, ‘good personal relationship’**\
+`On "Good Morning America," Bill Belichick discussed his new book, coaching philosophy and said he's happy with Jordon Hudson.`\
+https://nytimes.com/athletic/6361610/2025/05/16/belichick-book-relationship-interview-jordon-hudson/
+
+**The Bounce: Will Nikola Jokić or Shai Gilgeous-Alexander come out on top in MVP-centric Game 7?**\
+`Who has the advantage in Sunday's Game 7 between the Thunder and Nuggets? Plus, it's time for WNBA predictions!`\
+https://nytimes.com/athletic/6361618/2025/05/16/shai-gilgeous-alexander-nikola-jokic-thunder-nuggets-mvp-playoffs-nba-the-bounce/
+
+**Salman Rushdie’s Attacker Sentenced to Maximum 25 Years in Prison**\
+`Hadi Matar, the defendant, said he believed the acclaimed author to be a hypocrite. Mr. Rushdie had been living under a religious edict calling for his death since 1989.`\
+https://nytimes.com/2025/05/16/nyregion/salman-rushdie-hadi-matar-sentenced.html
+
 **The Windup: Plenty of Rivalry Weekend intrigue**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6360994/2025/05/16/yankees-mets-rivalry-weekend-the-windup/
-
-**G.O.P. Tax Bill May Hurt the Lowest Earners and Help the Richest**\
-`Even though most Americans may see lower taxes, Republicans’ spending cuts could outweigh those benefits and leave some worse off.`\
-https://nytimes.com/2025/05/16/business/republican-tax-bill-trump.html
-
-**Sean Combs**\
-``\
-https://nytimes.com/spotlight/sean-combs-diddy
-
-**Deion Sanders thanks Mel Kiper for NFL Draft analysis of Shedeur**\
-`Kiper was among Sheduer Sanders' most vocal advocates and expressed surprised at the QB's slide in the draft.`\
-https://nytimes.com/athletic/6361574/2025/05/16/mel-kiper-deion-sanders-shedeur-nfl-draft/
-
-**Panthers and 'demons': What Auston Matthews and Mitch Marner are fighting in Game 6**\
-`Game 6 in Florida provides another opportunity for the Leafs to change the narrative surrounding their response to playoff pressure.  `\
-https://nytimes.com/athletic/6361216/2025/05/16/maple-leafs-panthers-demons-nhl-playoffs/
-
-**Jury discharged in Hockey Canada trial; judge alone will determine outcome**\
-`Judge thanks jurors for their service and tells them they "are free to go." `\
-https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
-
-**Data Centers’ Hunger for Energy Could Raise All Electric Bills**\
-`Individuals and small businesses may end up bearing some of the cost of grid upgrades needed for large electricity users, a new report found.`\
-https://nytimes.com/2025/05/16/business/energy-environment/data-centers-utilities-electricity-bills.html
-
-**A Museum of Migration Celebrates People on the Move**\
-`A new institution in the harbor of Rotterdam, the Netherlands, combines art and artifacts to underscore that migrant journeys are part of a universal human experience.`\
-https://nytimes.com/2025/05/16/arts/design/fenix-museum-migration-rotterdam.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 37?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-ups-gameweek-37/
-
-**‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
-`Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
-https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
 
