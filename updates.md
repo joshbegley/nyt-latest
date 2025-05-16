@@ -1,3 +1,15 @@
+**Giro d'Italia protester charged after almost causing major crash**\
+`Footage released by the Intermarche-Wanty team showed protesters appearing to drag tape across the road as the riders took evasive action.`\
+https://nytimes.com/athletic/6361651/2025/05/16/giro-ditalia-protest-charge-crash/
+
+**Why the offside rule is 'delayed' and will it change after Awoniyi incident?**\
+`Last Sunday's serious injury to Awoniyi has led to criticism of the delayed offside rule - but what exactly is it and could it be revised?`\
+https://nytimes.com/athletic/6361440/2025/05/16/why-the-offside-rule-is-delayed-and-will-it-change-after-taiwo-awoniyi-incident/
+
+**LAFC, Club America to meet in Club World Cup 'play-in' game on May 31**\
+`The match will take place at BMO Stadium in Los Angeles, California with kick off at 7.30pm local time.`\
+https://nytimes.com/athletic/6358597/2025/05/16/club-world-cup-play-in-game-lafc-club-america/
+
 **‘I Don’t Ever Want to Be Free From the Pain of Missing My Children’**\
 `Only by writing could the acclaimed novelist Yiyun Li grapple with the suicides of her two sons. But her new book is no ordinary grief memoir.`\
 https://nytimes.com/2025/05/16/books/yiyun-li-grief-things-in-nature-merely-grow.html
