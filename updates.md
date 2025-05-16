@@ -1,3 +1,19 @@
+**What to Do When a Mountain Gorilla Blocks Your Path**\
+`A winning essay by Tenzing Carvalho, age 17.`\
+https://nytimes.com/2025/05/16/learning/what-to-do-when-a-mountain-gorilla-blocks-your-path.html
+
+**Florian Wirtz is wanted by Liverpool, Man City and Bayern - but which club would he best fit?**\
+`Tactical analysis of how the in-demand Germany international operates — and who might benefit most from adding him to their team`\
+https://nytimes.com/athletic/6361153/2025/05/16/florian-wirtz-analysis-liverpool-man-city-bayern-transfer/
+
+**How to Prepare for a Funeral Portrait**\
+`A winning essay by Hoseok Jeon, age 16.`\
+https://nytimes.com/2025/05/16/learning/how-to-prepare-for-a-funeral-portrait.html
+
+**How to Find Silence in a Noisy World**\
+`A winning essay by Gayatri Srivastava, age 16.`\
+https://nytimes.com/2025/05/16/learning/how-to-find-silence-in-a-noisy-world.html
+
 **What will this strike cost?**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/what-will-this-strike-cost
