@@ -1,3 +1,15 @@
+**As Congress Debates Cutting Medicaid, a Major Study Shows It Saves Lives**\
+`The most extensive research on Medicaid coverage to date found that it reduced the risk of death by 21 percent.`\
+https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html
+
+**‘Is Betty Buckley Still Alive?’ Trump Asked. She Certainly Is.**\
+`“What’s happening these days,” the singer said at the start of a Joe’s Pub residency, “is weird, and not cool.”`\
+https://nytimes.com/2025/05/16/theater/is-betty-buckley-still-alive-trump-asked-she-certainly-is.html
+
+**Everton announce naming rights deal for new stadium**\
+`The new venue — which will replace Goodison Park as the men's team's home from next season — will be known as the Hill Dickinson Stadium.`\
+https://nytimes.com/athletic/6362164/2025/05/16/everton-new-stadium-name-rights-partner/
+
 **Watch: Which teams with strong starts will fade before the MLB playoffs?**\
 `Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
 `\
