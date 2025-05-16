@@ -1,3 +1,7 @@
+**Military Parade in Capital on Trump’s Birthday Could Cost $45 Million, Officials Say**\
+`The parade is scheduled for June 14, the date of the Army’s 250th anniversary, and is billed as the “Army’s birthday celebration.” President Trump turns 79 that day.`\
+https://nytimes.com/2025/05/15/us/politics/trump-parade-army-birthday-cost.html
+
 **Braves takeaways: Red-hot rookies AJ Smith-Shawver, Drake Baldwin; Chris Sale to start in Boston**\
 `Rookie catcher Baldwin continues to sizzle. Can he make Braves fans forgive the team for trading away William Contreras?`\
 https://nytimes.com/athletic/6360544/2025/05/15/braves-takeaways-aj-smith-shawver-drake-baldwin-chris-sale/
