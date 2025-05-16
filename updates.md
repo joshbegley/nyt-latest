@@ -1,3 +1,8 @@
+**FA Cup final odds: Can Palace spoil De Bruyne’s last shot at a trophy with City?**\
+`Julia Ranney takes a look at the best bets and talking points ahead of the FA Cup final between Manchester City and Crystal Palace.
+`\
+https://nytimes.com/athletic/6359331/2025/05/16/fa-cup-final-manchester-city-crystal-palace-betting-preview/
+
 **New Jersey Transit Engineers Go on Strike**\
 `As union workers prepared to strike, Gov. Philip D. Murphy of New Jersey said the state’s transit system was facing a “sobering fiscal reality” and that he hoped for the best.`\
 https://nytimes.com/video/us/100000010173527/njtransit-strike.html
