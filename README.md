@@ -1,3 +1,11 @@
+**Jean-Philippe Mateta: My Game in My Words**\
+`The Crystal Palace striker talks instincts, finishing technique with both feet and that protective headgear ahead of the FA Cup final`\
+https://nytimes.com/athletic/6359116/2025/05/16/jean-philippe-mateta-palace-interview-fa-cup/
+
+**Stephen Colbert on the President’s Trumped-Up Birthday Plans**\
+`A military parade marking the anniversary of the Army’s founding will be held on the president’s birthday. “He wants overwhelming force,” Stephen Colbert said.`\
+https://nytimes.com/2025/05/16/arts/television/stephen-colbert-trump-birthday-parade.html
+
 **Word of the Day: vibrant**\
 `This word has appeared in 929 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/16/learning/word-of-the-day-vibrant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6358970/2025/05/16/everton-greatest-goodison-goals/
 **Sonia Bompastor is Chelsea's ultimate competitor, raising standards and always eyeing history**\
 `That Chelsea's domestic dominance has come under the supervision of a new manager is perhaps the most impressive feat of all this season`\
 https://nytimes.com/athletic/6355160/2025/05/16/sonia-bompastor-profile-chelsea-fa-cup-final/
-
-**It's the end of an era at West Ham as Moyes' 'Band of Brothers' continues to be broken up**\
-`Vladimir Coufal, Lukasz Fabianski, Aaron Cresswell and Danny Ings will bid farewell to West Ham having made over 800 appearances combined`\
-https://nytimes.com/athletic/6358485/2025/05/16/coufal-cresswell-fabianski-west-ham/
-
-**Sean Neave, Newcastle's Carabao Cup winner who has yet to appear for the first team**\
-`Alexander Isak is standing in his way but the teenage centre-forward is highly regarded and has been a regular on the bench recently`\
-https://nytimes.com/athletic/6355098/2025/05/16/sean-neave-newcastle-carabao-cup-winner/
 
