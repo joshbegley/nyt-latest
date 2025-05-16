@@ -1,12 +1,16 @@
+**The Ukraine-Russia Peace Talks That Weren’t**\
+`Trump’s insistence on a cease-fire without addressing what the warring sides really want at this stage has not worked.`\
+https://nytimes.com/live/2025/05/05/opinion/thepoint/ukraine-russia-istanbul-talks
+
 **Kyle Larson suffers second Indy 500 practice crash in less than a month**\
 `Larson was on just his third lap Friday when his car suddenly snapped around entering Turn 3 and crushed the nose into the outside wall.`\
 https://nytimes.com/athletic/6362786/2025/05/16/kyle-larson-indy-500-practice-crash/
 
 **Trump Officials Plan to Release Audio of Biden Special Counsel Interview**\
-`Republicans have demanded that the government release the recording of a 2023 interview in a classified documents inquiry, arguing that it might offer evidence of Joseph R. Biden Jr.’s declining mental acuity.`\
+`Republicans have demanded that the government release the recording of a 2023 interview in a classified documents inquiry, arguing that it might offer evidence of a decline in Joseph R. Biden Jr.’s mental acuity.`\
 https://nytimes.com/2025/05/16/us/politics/trump-hur-biden-special-counsel-audio-age.html
 
-**Peter Lax, Pre-eminent Cold War Mathematician, Dies at 98**\
+**Peter Lax, Pre-eminent Cold War Mathematician, Dies at 99**\
 `As the computer age dawned, he saw how the new technology could be harnessed to mathematics to solve problems in everything from designing weapons to predicting the weather.`\
 https://nytimes.com/2025/05/16/science/peter-lax-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/briefing/supreme-court-deportations-transit-strik
 **Chelsea 1 Man Utd 0 - How close is the Champions League for Maresca? How bad is Amorim's record?**\
 `Analysis of Chelsea's Premier League game at home to Manchester United`\
 https://nytimes.com/athletic/6353907/2025/05/16/chelsea-1-manchester-united-0-highlights/
-
-**MrBeast’s Tour of Maya Ruins Draws Criticism and Legal Threats in Mexico**\
-`Mexico’s culture secretary said her agency was weighing legal action against a production company for video that seemed to show the YouTube star MrBeast violating the rules for visiting Maya ruins.`\
-https://nytimes.com/2025/05/16/world/americas/mrbeast-mexico-ruins.html
 

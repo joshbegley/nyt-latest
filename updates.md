@@ -1,3 +1,7 @@
+**Kyle Larson suffers second Indy 500 practice crash in less than a month**\
+`Larson was on just his third lap Friday when his car suddenly snapped around entering Turn 3 and crushed the nose into the outside wall.`\
+https://nytimes.com/athletic/6362786/2025/05/16/kyle-larson-indy-500-practice-crash/
+
 **Trump Officials Plan to Release Audio of Biden Special Counsel Interview**\
 `Republicans have demanded that the government release the recording of a 2023 interview in a classified documents inquiry, arguing that it might offer evidence of Joseph R. Biden Jr.’s declining mental acuity.`\
 https://nytimes.com/2025/05/16/us/politics/trump-hur-biden-special-counsel-audio-age.html
