@@ -1,3 +1,11 @@
+**The defense is expected continue grilling Cassie on the hotel assault.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/05/16/arts/sean-combs-diddy-trial-cassie/the-defense-is-expected-continue-grilling-cassie-on-the-hotel-assault
+
+**Meet the ex-Secret Service and FBI guys who stop NASCAR's fights from exploding**\
+`Stan Ruffin and Allen Taylor would prefer you not know who they are. But their role defusing NASCAR's fights has made them fan favorites.`\
+https://nytimes.com/athletic/6356419/2025/05/16/nascar-security-team-fights-drivers-secret-service-fbi/
+
 **19 Easy Mother’s Day Brunch Recipes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mothers-day-brunch-recipes
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/your-money/college-savings-529-plans.html
 **How to Pack a Cheaper, Healthier and Better Lunch **\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/heathy-packed-lunches
-
-**The Revenge of the Niche Fashion Magazine**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/niche-fashion-magazines
-
-**In Europe and Japan, Luxury Sleeper Trains**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/travel-luxury-sleeper-trains
 
