@@ -1,3 +1,7 @@
+**What Does ‘86’ Mean? Term Referenced in Comey’s Social Media Post Has Changed Over Time**\
+`Trump administration officials say that the term refers to assassination, but lexicologists say it emerged from diner slang.`\
+https://nytimes.com/2025/05/16/us/politics/james-comey-trump-86-meaning.html
+
 **New Jersey Transit Engineers Strike, Idling Trains and Upending Commutes**\
 `Wages continued to be a sticking point as New Jersey’s first statewide transit strike in 40 years began Friday morning.`\
 https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-amtrak-commute.html
