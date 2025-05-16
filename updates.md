@@ -1,3 +1,11 @@
+**Mysterious New Group’s Likely Mission: Restoring Cuomo to Office**\
+`Restore Sanity NYC, a nonprofit with ties to former Gov. Andrew Cuomo, has begun funding campaign mailers that echo many of his talking points as he runs for mayor.`\
+https://nytimes.com/2025/05/16/nyregion/cuomo-restore-sanity.html
+
+**Summer Travel Slump? Amid Uncertainty, the U.S. Brand ‘Has Taken a Beating.’**\
+`Many airlines, hotels and analysts are forecasting a downbeat tourism season in America, as threats of tariffs and unpopular policy decisions take their toll.`\
+https://nytimes.com/2025/05/16/travel/us-summer-travel-trump.html
+
 **The Road Trips That Changed Their Lives**\
 `Antoni Porowski, Rachel Kushner, Michelle Zauner and others on their most memorable driving vacations, from coastal Maine to the prairies of South Dakota.`\
 https://nytimes.com/2025/05/16/t-magazine/america-road-trips-michelle-zauner-antoni-porowski.html

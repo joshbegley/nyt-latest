@@ -1,3 +1,11 @@
+**Mysterious New Group’s Likely Mission: Restoring Cuomo to Office**\
+`Restore Sanity NYC, a nonprofit with ties to former Gov. Andrew Cuomo, has begun funding campaign mailers that echo many of his talking points as he runs for mayor.`\
+https://nytimes.com/2025/05/16/nyregion/cuomo-restore-sanity.html
+
+**Summer Travel Slump? Amid Uncertainty, the U.S. Brand ‘Has Taken a Beating.’**\
+`Many airlines, hotels and analysts are forecasting a downbeat tourism season in America, as threats of tariffs and unpopular policy decisions take their toll.`\
+https://nytimes.com/2025/05/16/travel/us-summer-travel-trump.html
+
 **The Road Trips That Changed Their Lives**\
 `Antoni Porowski, Rachel Kushner, Michelle Zauner and others on their most memorable driving vacations, from coastal Maine to the prairies of South Dakota.`\
 https://nytimes.com/2025/05/16/t-magazine/america-road-trips-michelle-zauner-antoni-porowski.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/world/middleeast/world-bank-syria-debt-saudi-arab
 **Submit a question for Hunter Patterson's Pistons' offseason mailbag**\
 `What’s on your mind about Detroit as the organization heads into an offseason with legitimate optimism?`\
 https://nytimes.com/athletic/6362108/2025/05/16/detroit-pistons-mailbag-2025-offseason/
-
-**U.S. May Drop Guilty Plea Deal With Boeing Over Deadly Max Crashes, Lawyers Say**\
-`A decision to not pursue a guilty plea from Boeing would be the latest about-face in a long effort to hold the plane maker accountable for the crashes of two 737 Max jets.`\
-https://nytimes.com/2025/05/16/business/boeing-737-max-crashes-guilty-plea.html
-
-**Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
-`“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an opinion essay published on Friday.`\
-https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
 
