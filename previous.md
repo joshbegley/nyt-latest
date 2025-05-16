@@ -1,3 +1,7 @@
+**36 Deaths in Police Custody Should Have Been Called Homicides, Report Finds**\
+`An audit of deaths in Maryland found that in cases of people who died after being restrained by the police, medical examiners often classified the deaths as natural or accidental.`\
+https://nytimes.com/2025/05/15/us/maryland-police-custody-autopsies-audit.html
+
 **Military Parade in Capital on Trump’s Birthday Could Cost $45 Million, Officials Say**\
 `The parade is scheduled for June 14, the date of the Army’s 250th anniversary, and is billed as the “Army’s birthday celebration.” President Trump turns 79 that day.`\
 https://nytimes.com/2025/05/15/us/politics/trump-parade-army-birthday-cost.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/15/us/politics/trump-afrikaners-alabama.html
 **Ex-Girlfriend of Sean Combs is Confronted by His Lawyer Over ‘Freak-Offs’**\
 `During cross-examination, the defense team depicted Casandra Ventura as fully engaged in staging and participating in the marathon sex sessions she says were abusive.`\
 https://nytimes.com/2025/05/15/arts/music/cassie-diddy-trial-combs-defense.html
-
-**She Vanished for 3 Weeks in the Sierra. Then the Phone Rang: ‘Dad, I’m Alive.’**\
-`A search for Tiffany Slaton, 28, covered roughly 600 square miles of mountainous terrain in California. She was found at a cabin, where she waited out a blizzard.`\
-https://nytimes.com/2025/05/15/us/missing-camper-safe-sierra-nevada.html
 

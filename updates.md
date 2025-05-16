@@ -1,3 +1,7 @@
+**36 Deaths in Police Custody Should Have Been Called Homicides, Report Finds**\
+`An audit of deaths in Maryland found that in cases of people who died after being restrained by the police, medical examiners often classified the deaths as natural or accidental.`\
+https://nytimes.com/2025/05/15/us/maryland-police-custody-autopsies-audit.html
+
 **Military Parade in Capital on Trump’s Birthday Could Cost $45 Million, Officials Say**\
 `The parade is scheduled for June 14, the date of the Army’s 250th anniversary, and is billed as the “Army’s birthday celebration.” President Trump turns 79 that day.`\
 https://nytimes.com/2025/05/15/us/politics/trump-parade-army-birthday-cost.html
