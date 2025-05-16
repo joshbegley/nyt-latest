@@ -1,3 +1,11 @@
+**Bears' stadium focus now solely on Arlington Heights after 'significant progress'**\
+`The Bears have shifted focus to Arlington Heights as the site of their new stadium after spending a year trying to make it work downtown.`\
+https://nytimes.com/athletic/6362365/2025/05/16/chicago-bears-stadium-arlington-heights-news/
+
+**NFL owners to vote on reseeding playoff teams in second round at league meetings**\
+`If the proposed rule change was in effect last season, the Vikings would have landed the No. 2 seed rather than the Eagles.`\
+https://nytimes.com/athletic/6362340/2025/05/16/nfl-owners-playoff-seeding-vote-tush-push/
+
 **David Tracy, 86, Theologian Who Rejected Rome’s Supremacy, Dies**\
 `The author of influential books and essays, he was known for a contemporary theory of religion and Catholicism that advocated dialogue, not decrees.`\
 https://nytimes.com/2025/05/16/us/david-tracy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/nyregion/cuomo-restore-sanity.html
 **Summer Travel Slump? Amid Uncertainty, the U.S. Brand ‘Has Taken a Beating.’**\
 `Many airlines, hotels and analysts are forecasting a downbeat tourism season in America, as threats of tariffs and unpopular policy decisions take their toll.`\
 https://nytimes.com/2025/05/16/travel/us-summer-travel-trump.html
-
-**The Road Trips That Changed Their Lives**\
-`Antoni Porowski, Rachel Kushner, Michelle Zauner and others on their most memorable driving vacations, from coastal Maine to the prairies of South Dakota.`\
-https://nytimes.com/2025/05/16/t-magazine/america-road-trips-michelle-zauner-antoni-porowski.html
-
-**NWSLPA director calls for 'bright-line rule' to emergency protocols**\
-`NWSLPA executive director Meghann Burke explains why the league’s current policies need urgent reform following Savy King’s collapse.`\
-https://nytimes.com/athletic/6361354/2025/05/16/nwslpa-new-rule-savy-king-angel-city/
 

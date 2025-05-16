@@ -1,3 +1,11 @@
+**Bears' stadium focus now solely on Arlington Heights after 'significant progress'**\
+`The Bears have shifted focus to Arlington Heights as the site of their new stadium after spending a year trying to make it work downtown.`\
+https://nytimes.com/athletic/6362365/2025/05/16/chicago-bears-stadium-arlington-heights-news/
+
+**NFL owners to vote on reseeding playoff teams in second round at league meetings**\
+`If the proposed rule change was in effect last season, the Vikings would have landed the No. 2 seed rather than the Eagles.`\
+https://nytimes.com/athletic/6362340/2025/05/16/nfl-owners-playoff-seeding-vote-tush-push/
+
 **David Tracy, 86, Theologian Who Rejected Rome’s Supremacy, Dies**\
 `The author of influential books and essays, he was known for a contemporary theory of religion and Catholicism that advocated dialogue, not decrees.`\
 https://nytimes.com/2025/05/16/us/david-tracy-dead.html
