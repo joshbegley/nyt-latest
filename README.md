@@ -1,3 +1,7 @@
+**What will this strike cost?**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/what-will-this-strike-cost
+
 **Jamaican Homes That Showcase the Island’s Creative History**\
 `The hotelier Sally Henzell helped bring reggae to the world. More than 50 years later, history continues to echo through her houses.`\
 https://nytimes.com/2025/05/16/t-magazine/sally-henzell-jamaica-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358537/2025/05/16/the-athletics-friday-football-qu
 **Juan Soto's bat speed is down with Mets. How much? And will it matter?**\
 `Has Soto lost a little bat speed this season? Sure, but it's too simplistic to view one of the game's best hitters through that lens alone.`\
 https://nytimes.com/athletic/6357788/2025/05/16/mets-juan-soto-lower-bat-speed-mlb/
-
-**Yankees are proving they can succeed without Juan Soto: 'We've got firepower'**\
-`“We’ve got good depth up and down this lineup right now,” Aaron Judge said, “and everyone is feeding off each other.”`\
-https://nytimes.com/athletic/6360463/2025/05/16/yankees-success-after-juan-soto/
 
