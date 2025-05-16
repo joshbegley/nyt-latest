@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
 
+**Watch: Which teams with strong starts will fade before the MLB playoffs?**\
+`Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
+`\
+https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
+
 **Alcaraz beats Musetti to set up possible Sinner final in Rome**\
 `The world No. 2 will face the winner of the second semifinal between Sinner and Tommy Paul in Sunday’s final.`\
 https://nytimes.com/athletic/6362041/2025/05/16/italian-open-alcaraz-musetti-result/
