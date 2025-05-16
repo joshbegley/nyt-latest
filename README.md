@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, May 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/16/todays-new-york-times
+
+**My Country Is Falling Into the Abyss**\
+`Romania’s disastrous slide to the far right had been coming.`\
+https://nytimes.com/2025/05/16/opinion/romania-election-simion-dan.html
+
 **Astros' Hunter Brown matches Rangers' Jacob deGrom to punctuate prolific calendar year**\
 `Brown came out on the losing end despite eight brilliant innings against another ace: "This kid's got something."`\
 https://nytimes.com/athletic/6360886/2025/05/16/astros-hunter-brown-prolific-year-jacob-degrom/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6355098/2025/05/16/sean-neave-newcastle-carabao-cup
 **Five Aston Villa players have been on loan to Real Union - we went to Spain to see how it's working**\
 `Inside the arrangement between the two clubs`\
 https://nytimes.com/athletic/6246564/2025/05/16/aston-villa-loanees-real-union/
-
-**Fantasy Premier League: Palmer, Welbeck and Schade,differentials for the run-in**\
-`How to get that differential in the last two gameweeks`\
-https://nytimes.com/athletic/6355270/2025/05/16/fantasy-premier-league-palmer-welbeck-and-schade-the-best-differentials-for-the-run-in/
-
-**Why the FA Cup final may be the last hurrah for Manchester City's golden generation**\
-`What better way to say goodbye than hoisting one more trophy into the sky on a sun-drenched afternoon at Wembley?`\
-https://nytimes.com/athletic/6349751/2025/05/16/manchester-city-fa-cup-golden-generation/
 
