@@ -1,3 +1,19 @@
+**Arsenal transfers: Zubimendi payment plan, lower Gyokeres fee, Garcia pivot? What we're hearing**\
+`It promises to be a busy summer for new sporting director Andrea Berta. Here's the latest...`\
+https://nytimes.com/athletic/6359675/2025/05/16/arsenal-transfers-gyokeres-zubimendi/
+
+**Barca's La Liga-winning squad ranked: The indispensables, briliant back-ups and the future**\
+`Every player in Barca's squad has their role in this season's La Liga-Copa del Rey double. We rate their performances out of 10`\
+https://nytimes.com/athletic/6359488/2025/05/16/barcelona-la-liga-squad-ranked/
+
+**Brazil are a dysfunctional mess. Good luck, Carlo Ancelotti**\
+`The Italian will need all his renowned coaching nous to rouse a failing team, one year out from the World Cup`\
+https://nytimes.com/athletic/6358960/2025/05/16/brazil-are-a-dysfunctional-mess-good-luck-carlo-ancelotti/
+
+**Tottenham are 17th with a positive goal difference. Is this unique?**\
+`Spurs' season has been negative but they have a positive goal difference. What does it tell us about Ange Postecoglou's approach?`\
+https://nytimes.com/athletic/6358882/2025/05/16/tottenham-are-17th-with-a-positive-goal-difference-is-this-unique/
+
 **Phil Giles' decade at Brentford: 'He makes the most complex job in the world look simple'**\
 `Brentford's director of football celebrates 10 years at the club today. Understated, dedicated and ruthless, he's a key figure in their rise`\
 https://nytimes.com/athletic/6355217/2025/05/16/phil-giles-brentford-decade-rise/
