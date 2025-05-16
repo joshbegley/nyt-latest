@@ -1,3 +1,7 @@
+**U.S. May Drop Guilty Plea Deal With Boeing Over Deadly Max Crashes, Lawyers Say**\
+`A decision to not pursue a guilty plea from Boeing would be the latest about-face in a long effort to hold the plane maker accountable for the crashes of two 737 Max jets.`\
+https://nytimes.com/2025/05/16/business/boeing-737-max-crashes-guilty-plea.html
+
 **Trump’s Ukraine Policy Pressured ‘the Victim,’ Former Ambassador Says**\
 `“I cannot stand by while a country is invaded, a democracy bombarded and children killed with impunity,” wrote the former ambassador, Bridget A. Brink, in an op-ed published on Friday.`\
 https://nytimes.com/2025/05/16/us/politics/ukraine-ambassador-brink-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/health/medicaid-cuts-congress.html
 **‘Is Betty Buckley Still Alive?’ Trump Asked. She Certainly Is.**\
 `“What’s happening these days,” the singer said at the start of a Joe’s Pub residency, “is weird, and not cool.”`\
 https://nytimes.com/2025/05/16/theater/is-betty-buckley-still-alive-trump-asked-she-certainly-is.html
-
-**Everton announce naming rights deal for new stadium**\
-`The new venue — which will replace Goodison Park as the men's team's home from next season — will be known as the Hill Dickinson Stadium.`\
-https://nytimes.com/athletic/6362164/2025/05/16/everton-new-stadium-name-rights-partner/
 
