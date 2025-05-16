@@ -1,3 +1,11 @@
+**New Jersey Transit Engineers Strike, Idling Trains and Upending Commutes**\
+`Wages continued to be a sticking point as New Jersey’s first statewide transit strike in 40 years began Friday morning.`\
+https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-amtrak-commute.html
+
+**When a Vaccine Safety Trial Becomes Unethical**\
+`New vaccines are often evaluated in trials in which some participants receive a placebo. But not all studies can be designed this way.`\
+https://nytimes.com/2025/05/16/health/vaccine-placebo-trials.html
+
 **Artist Known for Scaling Buildings Was Arrested at His Show’s Opening**\
 `Isaac Wright took a vertiginous photograph of the Empire State Building after he climbed to the top of its spire — evidence the police may have used to arrest him.`\
 https://nytimes.com/2025/05/16/arts/design/16cul-isaac-wright-arrest.html

@@ -1,3 +1,7 @@
+**What Does ‘86’ Mean? Term Referenced in Comey’s Social Media Post Has Changed Over Time**\
+`Trump administration officials say that the term refers to assassination, but lexicologists say it emerged from diner slang.`\
+https://nytimes.com/2025/05/16/us/politics/james-comey-trump-86-meaning.html
+
 **New Jersey Transit Engineers Strike, Idling Trains and Upending Commutes**\
 `Wages continued to be a sticking point as New Jersey’s first statewide transit strike in 40 years began Friday morning.`\
 https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-amtrak-commute.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/us/pope-leo-grandfather.html
 **Republicans Push to End Immigrant Benefits in Democratic States**\
 `For years, Democratic state leaders believed their immigrant programs were free from federal interference. But Republicans in Washington are now threatening to penalize states that continue them.`\
 https://nytimes.com/2025/05/16/us/immigrant-trump-states-california.html
-
-**Chicago Cubs set to add Kenta Maeda on a minor-league deal**\
-`Maeda, 37, was released by the Tigers earlier this month. He will be a veteran option at Triple A for a Cubs rotation hit hard by injuries.`\
-https://nytimes.com/athletic/6362511/2025/05/16/cubs-kenta-maeda-minor-league-deal/
 
