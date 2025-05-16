@@ -1,3 +1,7 @@
+**The Global Happiness Curve Is Collapsing. What Does That Mean?**\
+`For decades, research showed that the way people experienced happiness across their lifetimes looked like a U-shaped curve: Happiness tended to be high when they were young, then dipped in midlife, only to rise again as they grew old.`\
+https://nytimes.com/video/well/100000010141520/the-global-happiness-curve-is-collapsing-what-does-that-mean.html
+
 **Fighting India Helps Revive the Pakistani Military’s Popularity**\
 `As Pakistan declares victory, confidence in the troubled country’s state institutions is re-emerging, at least for now.`\
 https://nytimes.com/2025/05/16/world/asia/pakistan-military-india.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/nyregion/nasa-office-columbia-seinfeld-toms-resta
 **He Stood Up for the Black Panthers, and He Stood Up for Richard Nixon**\
 `From the tabloid to the highbrow, Murray Kempton was prolific and impossible to pin down. It’s hard to imagine a columnist today who would be allowed to do what he did.`\
 https://nytimes.com/2025/05/16/nyregion/murray-kempton.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/16/crosswords/spelling-bee-forum.html
 
