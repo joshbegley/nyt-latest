@@ -1,3 +1,8 @@
+**Watch: Which teams with strong starts will fade before the MLB playoffs?**\
+`Rates & Barrels discuss which over-performing teams they expect to see fade from the playoff picture throughout the season.
+`\
+https://nytimes.com/athletic/6359322/2025/05/16/rates-barrels-mlb-playoffs-teams-fade/
+
 **Judge Extends Block on Public Health Cuts for More Than 20 States**\
 `The ruling preserves, for now, billions of dollars in grant money for 23 states and the District of Columbia.`\
 https://nytimes.com/2025/05/16/us/politics/judge-covid-public-health-cuts.html

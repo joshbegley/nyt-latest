@@ -1,3 +1,7 @@
+**It’s High Time You Added Sotol to Your Bar Cart**\
+`The traditional spirit tells the story of wherever its plant source has grown across the deserts and forests of Northern Mexico.`\
+https://nytimes.com/2025/05/16/dining/sotol.html
+
 **Team principal quits and a harsh driver change, is there really ‘no trouble’ at Alpine?**\
 `In under two weeks, Alpine has swapped two young drivers and lost yet another team principal, but those on the inside aren't panicking yet`\
 https://nytimes.com/athletic/6361892/2025/05/16/alpine-f1-team-principal-briatore-oakes/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/16/world/europe/karim-khan-icc-sexual-misconduct.htm
 **Inside This Couple’s Decision to ‘Self-Deport’ to Mexico**\
 `Alfredo Linares, an undocumented chef and small business owner who lived in the U.S. for over 20 years, decided to leave America with his American wife amid President Trump’s immigration crackdown.`\
 https://nytimes.com/video/us/100000010152568/immigration-self-deport.html
-
-**The strike comes during Gov. Murphy’s final year in office.**\
-`By Patrick McGeehan`\
-https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/the-strike-comes-during-gov-murphys-final-year-in-office
 
