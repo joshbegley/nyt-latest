@@ -1,3 +1,15 @@
+**Jury discharged in Hockey Canda trial; judge alone will determine outcome**\
+`Judge thanks jurors for their service and tells them they "are free to go." `\
+https://nytimes.com/athletic/6361727/2025/05/16/hockey-canada-sexual-assault-trial-jury-discharged/
+
+**Data Centers’ Hunger for Energy Could Raise All Electric Bills**\
+`Individuals and small businesses may end up bearing some of the cost of grid upgrades needed for large electricity users, a new report found.`\
+https://nytimes.com/2025/05/16/business/energy-environment/data-centers-utilities-electricity-bills.html
+
+**A Museum of Migration Celebrates People on the Move**\
+`A new institution in the harbor of Rotterdam, the Netherlands, combines art and artifacts to underscore that migrant journeys are part of a universal human experience.`\
+https://nytimes.com/2025/05/16/arts/design/fenix-museum-migration-rotterdam.html
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 37?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-ups-gameweek-37/
