@@ -1,3 +1,7 @@
+**The Road Trips That Changed Their Lives**\
+`Antoni Porowski, Rachel Kushner, Michelle Zauner and others on their most memorable driving vacations, from coastal Maine to the prairies of South Dakota.`\
+https://nytimes.com/2025/05/16/t-magazine/america-road-trips-michelle-zauner-antoni-porowski.html
+
 **NWSLPA director calls for 'bright-line rule' to emergency protocols**\
 `NWSLPA executive director Meghann Burke explains why the league’s current policies need urgent reform following Savy King’s collapse.`\
 https://nytimes.com/athletic/6361354/2025/05/16/nwslpa-new-rule-savy-king-angel-city/
