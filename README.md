@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6360886/2025/05/16/astros-hunter-brown-prolific-year-jacob-degrom/
 
 **Connor Hellebuyck's shutout extends Jets' season in Game 5 win over Stars: Takeaways**\
-`With a 3-0 victory, the Jets forced Game 6 in Dallas on Saturday.`\
+`With a 4-0 victory, the Jets forced Game 6 in Dallas on Saturday.`\
 https://nytimes.com/athletic/6360890/2025/05/16/jets-stars-hellebuyck-shutout/
 
 **The Glazers in 2025 - Categorising every Manchester United signing under the owners**\
