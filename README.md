@@ -1,3 +1,11 @@
+**Arsenal transfers: Zubimendi payment plan, lower Gyokeres fee, Garcia pivot? What we're hearing**\
+`It promises to be a busy summer for new sporting director Andrea Berta. Here's the latest...`\
+https://nytimes.com/athletic/6359675/2025/05/16/arsenal-transfers-gyokeres-zubimendi/
+
+**Barca's La Liga-winning squad ranked: The indispensables, briliant back-ups and the future**\
+`Every player in Barca's squad has their role in this season's La Liga-Copa del Rey double. We rate their performances out of 10`\
+https://nytimes.com/athletic/6359488/2025/05/16/barcelona-la-liga-squad-ranked/
+
 **Brazil are a dysfunctional mess. Good luck, Carlo Ancelotti**\
 `The Italian will need all his renowned coaching nous to rouse a failing team, one year out from the World Cup`\
 https://nytimes.com/athletic/6358960/2025/05/16/brazil-are-a-dysfunctional-mess-good-luck-carlo-ancelotti/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/16/world/asia/corgi-dog-china-police.html
 **As Contestants on ‘The Circle,’ It Was Love at First Photo**\
 `Jadejha Edwards and Darian Holt met through the Netflix show and, for three weeks, communicated only by screen.`\
 https://nytimes.com/2025/05/16/style/jadejha-edwards-darian-holt-wedding.html
-
-**Corrections: May 16, 2025**\
-`Corrections that appeared in print on Friday, May 16, 2025.`\
-https://nytimes.com/2025/05/16/pageoneplus/corrections-may-16-2025.html
-
-**She Wrote About ‘The 36 Questions That Lead to Love.’ And Now, to Marriage**\
-`Mandy Catron’s essay about her unconventional first date with Mark Bondyra went viral. Ten years later, they are rewriting the script on marriage, too.`\
-https://nytimes.com/2025/05/16/style/36-questions-love-wedding-mandy-len-catron.html
 
