@@ -1,3 +1,11 @@
+**‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
+`Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
+https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
+
+**How to watch Mets at Yankees, this weekend's Subway Series with Juan Soto back in Bronx**\
+`One of baseball's best interleague rivalries goes down this weekend, with the Yankees hosting the Mets for a "subway series."`\
+https://nytimes.com/athletic/6360201/2025/05/16/mets-yankees-subway-series-juan-soto-new-york-how-to-watch/
+
 **The biggest lesson MacKinnon can learn from Crosby, Fleury**\
 `MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
 https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6361632/2025/05/16/forest-taiwo-awoniyi-latest-nuno
 **Opening Line: Intriguing wagers around Mets-Yankees and more this weekend**\
 `The most intriguing odds and bets from this weekend's biggest games, including Mets-Yankees and Sky-Fever.`\
 https://nytimes.com/athletic/6361436/2025/05/16/intriguing-wagers-mets-yankees-sky-fever-celtics-knicks/
-
-**Wharton fit for Palace for FA Cup final against Man City**\
-`The midfielder, 21, is a key player for Palace but has suffered a stop-start season due to injuries.
-`\
-https://nytimes.com/athletic/6361602/2025/05/16/fa-cup-final-team-news-palace-man-city-wharton/
-
-**Work stoppages can give labor the upper hand for a time, an expert says.**\
-`By Patrick McGeehan`\
-https://nytimes.com/live/2025/05/16/nyregion/nj-transit-strike/work-stoppages-can-give-labor-the-upper-hand-for-a-time-an-expert-says
 
