@@ -1,3 +1,11 @@
+**There’s No NJ Transit Service to Shakira’s Concerts. Should Beyoncé Fans Worry?**\
+`Whenever, wherever, Shakira’s fans were going to find a way to get to her sold-out concert in New Jersey Thursday night. Some had a smooth and efficient experience taking the bus.`\
+https://nytimes.com/2025/05/16/nyregion/shakira-metlife-beyonce.html
+
+**Ed Smylie, Who Saved the Apollo 13 Crew With Duct Tape, Dies at 95**\
+`He and his team of NASA engineers jumped into action to help three astronauts bound for the moon. His quick thinking earned him a shout-out from Richard Nixon.`\
+https://nytimes.com/2025/05/16/science/space/ed-smylie-dead.html
+
 **Forest coach Nuno hopes Awoniyi can attend final game next weekend**\
 `The striker required surgery on an abdominal injury he sustained in the draw with Leicester City last Sunday.`\
 https://nytimes.com/athletic/6361632/2025/05/16/forest-taiwo-awoniyi-latest-nuno/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6356419/2025/05/16/nascar-security-team-fights-driv
 **19 Easy Mother’s Day Brunch Recipes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mothers-day-brunch-recipes
-
-**gws-met-gala-after-party-photos**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/met-gala-after-party-photos
-
-**Budapest**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-budapest
 
