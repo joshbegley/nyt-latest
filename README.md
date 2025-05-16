@@ -1,3 +1,7 @@
+**Mets' Juan Soto met with boos at Yankee Stadium**\
+`Soto doffed his helmet before stepping into the batter’s box before his first plate appearance in the Bronx as a member of the Mets.`\
+https://nytimes.com/athletic/6362931/2025/05/16/juan-soto-boos-yankee-stadium-mets/
+
 **Severe Storms Batter the Midwest**\
 `Severe weather unleashed hail, damaging winds and tornadoes across large portions of the Midwest and the Mid-Atlantic.`\
 https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/arts/design/thaddeus-mosley-karma-gallery.html
 **Investigators See No Criminality by E.P.A. Officials in Case on Biden-Era Grants**\
 `A contentious investigation that questioned the legality of E.P.A. grants has found very little to suggest government employees violated the law.`\
 https://nytimes.com/2025/05/16/us/trump-biden-epa-grants.html
-
-**As Trump Departs the Middle East, He Takes Aim at Critics Back Home**\
-`President Trump went on a social media posting spree after four days overseas, where he basked in the kind of lavish praise that so delights him.`\
-https://nytimes.com/2025/05/16/us/politics/trump-springsteen-critics-internet.html
 
