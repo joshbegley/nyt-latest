@@ -1,3 +1,7 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 37?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6358548/2025/05/16/premier-league-predicted-line-ups-gameweek-37/
+
 **‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
 `Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
 https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/science/space/ed-smylie-dead.html
 **Forest coach Nuno hopes Awoniyi can attend final game next weekend**\
 `The striker required surgery on an abdominal injury he sustained in the draw with Leicester City last Sunday.`\
 https://nytimes.com/athletic/6361632/2025/05/16/forest-taiwo-awoniyi-latest-nuno/
-
-**Opening Line: Intriguing wagers around Mets-Yankees and more this weekend**\
-`The most intriguing odds and bets from this weekend's biggest games, including Mets-Yankees and Sky-Fever.`\
-https://nytimes.com/athletic/6361436/2025/05/16/intriguing-wagers-mets-yankees-sky-fever-celtics-knicks/
 

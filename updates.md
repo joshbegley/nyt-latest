@@ -1,3 +1,15 @@
+**‘Napalm Girl’ Was in the Photo. But Who Was Behind the Camera?**\
+`Questions about the credit for a famous photograph from the Vietnam War have divided the photojournalism community for months.`\
+https://nytimes.com/2025/05/16/business/media/vietnam-war-photo-ap.html
+
+**How to watch Mets at Yankees, this weekend's Subway Series with Juan Soto back in Bronx**\
+`One of baseball's best interleague rivalries goes down this weekend, with the Yankees hosting the Mets for a "subway series."`\
+https://nytimes.com/athletic/6360201/2025/05/16/mets-yankees-subway-series-juan-soto-new-york-how-to-watch/
+
+**The biggest lesson MacKinnon can learn from Crosby, Fleury**\
+`MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
+https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
+
 **Wharton fit for Palace for FA Cup final against Man City**\
 `The midfielder, 21, is a key player for Palace but has suffered a stop-start season due to injuries.
 `\
