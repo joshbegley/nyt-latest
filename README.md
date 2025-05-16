@@ -1,3 +1,7 @@
+**Sean Combs**\
+``\
+https://nytimes.com/spotlight/sean-combs-diddy
+
 **Deion Sanders thanks Mel Kiper for NFL Draft analysis of Shedeur**\
 `Kiper was among Sheduer Sanders' most vocal advocates and expressed surprised at the QB's slide in the draft.`\
 https://nytimes.com/athletic/6361574/2025/05/16/mel-kiper-deion-sanders-shedeur-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360201/2025/05/16/mets-yankees-subway-series-juan-
 **The biggest lesson MacKinnon can learn from Crosby, Fleury**\
 `MacKinnon, still brooding from Colorado's loss to Dallas, will be well served playing alongside Crosby and Fleury in Stockholm.`\
 https://nytimes.com/athletic/6361065/2025/05/16/nathan-mackinnon-sidney-crosby-marc-andre-fleury-canada-world-championships/
-
-**Arteta praises Havertz' 'unbelievable' mindset as Arsenal forward nears return**\
-`The Germany international was involved in Arsenal’s open training session on Wednesday as he steps up his return from injury. `\
-https://nytimes.com/athletic/6361683/2025/05/16/arsenal-team-news-havertz-newcastle/
 
