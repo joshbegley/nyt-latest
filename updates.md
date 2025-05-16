@@ -1,3 +1,11 @@
+**‘I Don’t Ever Want to Be Free From the Pain of Missing My Children’**\
+`Only by writing could the acclaimed novelist Yiyun Li grapple with the suicides of her two sons. But her new book is no ordinary grief memoir.`\
+https://nytimes.com/2025/05/16/books/yiyun-li-grief-things-in-nature-merely-grow.html
+
+**Premier League sides warned of risks of promoting unlicensed gambling sites**\
+`Newcastle, Wolves, Bournemouth, Fulham and Burnley have been warned by the Gambling Commission due to their sponsorship deals.`\
+https://nytimes.com/athletic/6361755/2025/05/16/newcastle-wolves-fulham-gambling-sponsor/
+
 **Why Are So Many Retirees Filing for Social Security Earlier?**\
 `An additional 276,000 people filed for Social Security benefits so far this fiscal year, up 13% from a year ago. Anxiety appears to be a driver.`\
 https://nytimes.com/2025/05/16/business/social-security-early-retirement.html

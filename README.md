@@ -1,3 +1,15 @@
+**Giro d'Italia protester charged after almost causing major crash**\
+`Footage released by the Intermarche-Wanty team showed protesters appearing to drag tape across the road as the riders took evasive action.`\
+https://nytimes.com/athletic/6361651/2025/05/16/giro-ditalia-protest-charge-crash/
+
+**Why the offside rule is 'delayed' and will it change after Awoniyi incident?**\
+`Last Sunday's serious injury to Awoniyi has led to criticism of the delayed offside rule - but what exactly is it and could it be revised?`\
+https://nytimes.com/athletic/6361440/2025/05/16/why-the-offside-rule-is-delayed-and-will-it-change-after-taiwo-awoniyi-incident/
+
+**LAFC, Club America to meet in Club World Cup 'play-in' game on May 31**\
+`The match will take place at BMO Stadium in Los Angeles, California with kick off at 7.30pm local time.`\
+https://nytimes.com/athletic/6358597/2025/05/16/club-world-cup-play-in-game-lafc-club-america/
+
 **‘I Don’t Ever Want to Be Free From the Pain of Missing My Children’**\
 `Only by writing could the acclaimed novelist Yiyun Li grapple with the suicides of her two sons. But her new book is no ordinary grief memoir.`\
 https://nytimes.com/2025/05/16/books/yiyun-li-grief-things-in-nature-merely-grow.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/movies/five-action-movies-to-stream-now.html
 **Get Ready for Grilling**\
 `Gather and prepare your gear now for an excellent summer of grilled hamburgers, jerk ribs, cabbage wedges, yakitori, soy-basted chicken thighs. …`\
 https://nytimes.com/2025/05/16/dining/burgers-ribs-chicken-grill-recipes.html
-
-**Wild sign Danila Yurov, bringing top prospect from KHL to North America**\
-`Yurov, who won a KHL championship in 2024, has 41 goals and 88 points in 209 career KHL games.`\
-https://nytimes.com/athletic/6302564/2025/05/16/wild-danila-yurov-signs/
-
-**France captain Dupont joins ownership group of LA rugby franchise**\
-`The 2028 Olympic Games, 2031 Men's Rugby World Cup and 2033 Women's Rugby World Cup are all set to be staged in the U.S.`\
-https://nytimes.com/athletic/6361732/2025/05/16/antoine-dupont-rugby-fc-los-angeles/
-
-**Belichick talks new book, excitement for season, ‘good personal relationship’**\
-`On "Good Morning America," Bill Belichick discussed his new book, coaching philosophy and said he's happy with Jordon Hudson.`\
-https://nytimes.com/athletic/6361610/2025/05/16/belichick-book-relationship-interview-jordon-hudson/
 

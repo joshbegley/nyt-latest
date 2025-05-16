@@ -1,3 +1,11 @@
+**‘I Don’t Ever Want to Be Free From the Pain of Missing My Children’**\
+`Only by writing could the acclaimed novelist Yiyun Li grapple with the suicides of her two sons. But her new book is no ordinary grief memoir.`\
+https://nytimes.com/2025/05/16/books/yiyun-li-grief-things-in-nature-merely-grow.html
+
+**Premier League sides warned of risks of promoting unlicensed gambling sites**\
+`Newcastle, Wolves, Bournemouth, Fulham and Burnley have been warned by the Gambling Commission due to their sponsorship deals.`\
+https://nytimes.com/athletic/6361755/2025/05/16/newcastle-wolves-fulham-gambling-sponsor/
+
 **Why Are So Many Retirees Filing for Social Security Earlier?**\
 `An additional 276,000 people filed for Social Security benefits so far this fiscal year, up 13% from a year ago. Anxiety appears to be a driver.`\
 https://nytimes.com/2025/05/16/business/social-security-early-retirement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6361732/2025/05/16/antoine-dupont-rugby-fc-los-ange
 **Belichick talks new book, excitement for season, ‘good personal relationship’**\
 `On "Good Morning America," Bill Belichick discussed his new book, coaching philosophy and said he's happy with Jordon Hudson.`\
 https://nytimes.com/athletic/6361610/2025/05/16/belichick-book-relationship-interview-jordon-hudson/
-
-**The Bounce: Will Nikola Jokić or Shai Gilgeous-Alexander come out on top in MVP-centric Game 7?**\
-`Who has the advantage in Sunday's Game 7 between the Thunder and Nuggets? Plus, it's time for WNBA predictions!`\
-https://nytimes.com/athletic/6361618/2025/05/16/shai-gilgeous-alexander-nikola-jokic-thunder-nuggets-mvp-playoffs-nba-the-bounce/
-
-**Salman Rushdie’s Attacker Sentenced to Maximum 25 Years in Prison**\
-`Hadi Matar, the defendant, said he believed the acclaimed author to be a hypocrite. Mr. Rushdie had been living under a religious edict calling for his death since 1989.`\
-https://nytimes.com/2025/05/16/nyregion/salman-rushdie-hadi-matar-sentenced.html
 
