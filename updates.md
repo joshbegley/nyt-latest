@@ -1,3 +1,7 @@
+**Hurricanes eliminate Capitals, advance to Eastern Conference final: Takeaways**\
+`Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
+https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
+
 **New Jersey Transit Strike Set to Begin at Midnight After Talks Break Down**\
 `The strike by the locomotive engineers would disrupt the lives of tens of thousands of commuters in the New York metropolitan region.`\
 https://nytimes.com/2025/05/15/nyregion/njtransit-strike.html

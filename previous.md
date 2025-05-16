@@ -22,7 +22,7 @@ https://nytimes.com/2025/05/15/crosswords/daily-puzzle-2025-05-16.html
 `Shabbos Kestenbaum sued Harvard University over allegations it did not do enough to curb antisemitism. He had continued his lawsuit even after other students settled.`\
 https://nytimes.com/2025/05/15/us/jewish-student-harvard-lawsuit-settlement.html
 
-**Hurricanes eliminate Capitals with late goal in Game 5: Takeaways**\
+**Hurricanes eliminate Capitals, advance to Eastern Conference final: Takeaways**\
 `Carolina awaits the winner of the other Eastern Conference semifinal series between the Toronto Maple Leafs and Florida Panthers.`\
 https://nytimes.com/athletic/6360666/2025/05/15/hurricanes-capitals-nhl-playoffs-2025-game-5-takeaways/
 
