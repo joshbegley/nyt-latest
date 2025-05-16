@@ -1,3 +1,7 @@
+**Opposition Leader Is Arrested in Chad, Accused of Inciting Violence**\
+`A former prime minister and presidential candidate, Succès Masra, was detained by a government that has used the security forces and judiciary to quash opposition.`\
+https://nytimes.com/2025/05/16/world/africa/chad-opposition-leader-succes-masra-arrested.html
+
 **Sinner defeats Paul to set up Rome final against Carlos Alcaraz**\
 `The world No. 1 and home favourite overcame a poor start to defeat the American 1-6, 6-0, 6-3.`\
 https://nytimes.com/athletic/6362581/2025/05/16/italian-open-sinner-paul-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/us/politics/james-comey-trump-86-meaning.html
 **New Jersey Transit Engineers Strike, Idling Trains and Upending Commutes**\
 `Wages continued to be a sticking point as New Jersey’s first statewide transit strike in 40 years began Friday morning.`\
 https://nytimes.com/2025/05/16/nyregion/nj-transit-strike-amtrak-commute.html
-
-**When a Vaccine Safety Trial Becomes Unethical**\
-`New vaccines are often evaluated in trials in which some participants receive a placebo. But not all studies can be designed this way.`\
-https://nytimes.com/2025/05/16/health/vaccine-placebo-trials.html
 
