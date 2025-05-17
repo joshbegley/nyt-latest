@@ -1,3 +1,7 @@
+**Henry Ford’s great-great grandson completes Livingston takeover**\
+`Livingston play in the Scottish Championship, the second tier of Scottish football.`\
+https://nytimes.com/athletic/6363952/2025/05/17/livingston-calvin-ford-chairman/
+
 **Jonnie Boer, Dutch Chef With 3 Michelin Stars, Is Dead at 60**\
 `Long before the New Nordic movement, he saw the value in humble ingredients. So did anyone who ate at De Librije, his acclaimed restaurant in the Netherlands.`\
 https://nytimes.com/2025/05/17/dining/jonnie-boer-dead-chef.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/world/africa/south-africa-shooting.html
 **Young among trio to leave Everton at end of the season**\
 `Backup goalkeepers Asmir Begovic and Joao Virginia will also depart following the expiration of their contracts.`\
 https://nytimes.com/athletic/6363746/2025/05/17/ashley-young-everton-exit/
-
-**'There’s more to go': Inside the players-only meeting that changed the Knicks' direction**\
-`Before their Game 5 loss in Boston, people around the Knicks noticed their lack of intensity. A meeting before Game 6 shifted their focus.`\
-https://nytimes.com/athletic/6363425/2025/05/17/knicks-advance-celtics-conference-finals/
 
