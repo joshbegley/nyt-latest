@@ -1,3 +1,7 @@
+**Why Palace goalkeeper Henderson avoided a red card in FA Cup final**\
+`VAR ruled that the Henderson had not denied an obvious goalscoring opportunity.`\
+https://nytimes.com/athletic/6364052/2025/05/17/dean-henderson-crystal-palace-fa-cup/
+
 **Lewis Hamilton ‘devastated’ by poor Imola GP qualifying in first Ferrari home race**\
 `Ferrari's Lewis Hamilton did not hold back after being eliminated early in F1 qualifying for the Imola GP. He'll start the race in 12th`\
 https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poor-imola-gp-qualifying-in-first-ferrari-home-race/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-final
 **Orioles fire manager Brandon Hyde after 15-28 start to season**\
 `Baltimore made the playoffs in each of the last two seasons, but is 10 1/2 games out of first in the AL East through 43 games.`\
 https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-orioles-manager-news/
-
-**Henry Ford’s great-great grandson completes Livingston takeover**\
-`Livingston play in the Scottish Championship, the second tier of Scottish football.`\
-https://nytimes.com/athletic/6363952/2025/05/17/livingston-calvin-ford-chairman/
 
