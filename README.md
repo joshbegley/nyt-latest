@@ -1,3 +1,7 @@
+**Halve the Last Word**\
+`Garrett Chalfin’s puzzle is greater than the sum of its parts.`\
+https://nytimes.com/2025/05/17/crosswords/daily-puzzle-2025-05-18.html
+
 **Trump Administration Abandons Fight to Ban Powerful Gun Accessory**\
 `The device, called a forced-reset trigger, allows semiautomatic weapons to fire hundreds of rounds. The Biden administration had sought to block them from being sold.`\
 https://nytimes.com/2025/05/17/us/politics/trump-guns-rifles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364177/2025/05/17/kahleah-copper-injury-mercury-wn
 **‘Watch Me,’ Biden Said. But Hearing Him in Hur Interview Is More Revealing.**\
 `The former president’s halting responses to questions by a special counsel show him exactly as a majority of Americans believed him to be — and as Democrats repeatedly insisted he was not.`\
 https://nytimes.com/2025/05/17/us/politics/biden-hur-audio-interview.html
-
-**Finland’s entry shows ‘her sexual power.’**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-finland-erika-vikman-ich-komme
 

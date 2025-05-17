@@ -1,3 +1,7 @@
+**Trump Administration Abandons Fight to Ban Powerful Gun Accessory**\
+`The device, called a forced-reset trigger, allows semiautomatic weapons to fire hundreds of rounds. The Biden administration had sought to block them from being sold.`\
+https://nytimes.com/2025/05/17/us/politics/trump-guns-rifles.html
+
 **Caitlin Clark notches triple-double as Fever blow out Sky in season opener**\
 `A revamped Fever team began its most-anticipated season in franchise history with an emphatic victory.`\
 https://nytimes.com/athletic/6364243/2025/05/17/fever-sky-result-takeaways-caitlin-clark-angel-reese/
