@@ -1,3 +1,7 @@
+**Republican Hypocrisy Reaches Into the Countryside**\
+`You might assume that Trump would prioritize the interests of rural voters.`\
+https://nytimes.com/2025/05/17/opinion/trump-rural-voters-budget.html
+
 **Three Iranians Accused of Targeting People in Britain**\
 `The charges against the men come as concerns have grown about Iranian operatives carrying out operations against British residents and citizens.`\
 https://nytimes.com/2025/05/17/world/europe/britain-arrests-iranians-plot.html

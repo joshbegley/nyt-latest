@@ -1,3 +1,7 @@
+**Dortmund qualify for UCL on final day of Bundesliga season**\
+`Dortmund had been outside the Bundesliga’s top-four since the third game of the season but secured their place on the final day.`\
+https://nytimes.com/athletic/6363937/2025/05/17/dortmund-champions-league-qualify/
+
 **Republican Hypocrisy Reaches Into the Countryside**\
 `You might assume that Trump would prioritize the interests of rural voters.`\
 https://nytimes.com/2025/05/17/opinion/trump-rural-voters-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363326/2025/05/17/wilmer-flores-giants-three-home-
 **Trump Administration Live Updates: Secret Service Questions Comey Over Social Media Post About President**\
 ``\
 https://nytimes.com/live/2025/05/17/us/trump-news
-
-**Conor Bradley signs new four-year Liverpool deal**\
-`Bradley is set to take on a greater role next season with Trent Alexander-Arnold leaving on a free transfer this summer to join Real Madrid.`\
-https://nytimes.com/athletic/6363709/2025/05/17/conor-bradley-liverpool-contract-new/
 
