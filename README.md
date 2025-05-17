@@ -1,3 +1,7 @@
+**Finland’s entry shows ‘her sexual power.’**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-finland-erika-vikman-ich-komme
+
 **Guardiola laments lack of goals in FA Cup final: ‘We did everything’**\
 `Eberechi Eze scored the only goal of the game as Crystal Palace defeated City to win their first ever major trophy.`\
 https://nytimes.com/athletic/6364200/2025/05/17/pep-guardiola-machester-city-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/us/palm-springs-explosion.html
 **Federal Courts’ Emerging Bottom Line: Due Process Rights for Immigrants**\
 `The Trump administration’s aggressive push to deport migrants has run up against resistance from the judiciary.`\
 https://nytimes.com/2025/05/17/us/politics/courts-immigrants-venezuelans-garcia-trump.html
-
-**Which act is the safest bet?**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-favotire-kaj-betting
 
