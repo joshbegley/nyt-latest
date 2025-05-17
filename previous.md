@@ -1,3 +1,15 @@
+**Estonia’s entry, ‘Espresso Macchiato,’ brewed trouble in Italy.**\
+`By Alex Marshall`\
+https://nytimes.com/2025/05/17/arts/music/eurovision-estonia-tommy-cash-coffee.html
+
+**Palm Springs Explosion Damages Fertility Clinic**\
+`Reports of a loud boom in the California city were reported around 11 a.m. local time. The cause of the blast was not immediately known, the mayor said.`\
+https://nytimes.com/2025/05/17/us/palm-springs-explosion.html
+
+**Federal Courts’ Emerging Bottom Line: Due Process Rights for Immigrants**\
+`The Trump administration’s aggressive push to deport migrants has run up against resistance from the judiciary.`\
+https://nytimes.com/2025/05/17/us/politics/courts-immigrants-venezuelans-garcia-trump.html
+
 **Which act is the safest bet?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-favotire-kaj-betting
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision
 **Aberdeen's MacKenzie bloodied after being struck by seat thrown by own fans**\
 `MacKenzie, an unused substitute, received treatment on the pitch after being struck by the projectile from the away section of the stadium.`\
 https://nytimes.com/athletic/6363926/2025/05/17/aberdeen-dundee-united-fan-trouble/
-
-**Switzerland’s 2024 winner hoped to help nonbinary people.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-nemo-nonbinary
-
-**Jasmine Paolini wins Italian Open to become first Italian winner in 40 years**\
-`With the victory, Paolini becomes the world No. 4 ahead of next week's French Open.`\
-https://nytimes.com/athletic/6364063/2025/05/17/jasmine-paolini-italian-open/
-
-**FA Cup final: Palace 1 City 0 – Eze goal, Henderson heroics win first ever trophy**\
-`Crystal Palace won their first major trophy by stunning Manchester City in the FA Cup final at Wembley. We break it down...`\
-https://nytimes.com/athletic/6358480/2025/05/17/fa-cup-final-palace-history-eze-goal/
 

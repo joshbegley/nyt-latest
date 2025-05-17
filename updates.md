@@ -1,3 +1,15 @@
+**Estonia’s entry, ‘Espresso Macchiato,’ brewed trouble in Italy.**\
+`By Alex Marshall`\
+https://nytimes.com/2025/05/17/arts/music/eurovision-estonia-tommy-cash-coffee.html
+
+**Palm Springs Explosion Damages Fertility Clinic**\
+`Reports of a loud boom in the California city were reported around 11 a.m. local time. The cause of the blast was not immediately known, the mayor said.`\
+https://nytimes.com/2025/05/17/us/palm-springs-explosion.html
+
+**Federal Courts’ Emerging Bottom Line: Due Process Rights for Immigrants**\
+`The Trump administration’s aggressive push to deport migrants has run up against resistance from the judiciary.`\
+https://nytimes.com/2025/05/17/us/politics/courts-immigrants-venezuelans-garcia-trump.html
+
 **Which act is the safest bet?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-favotire-kaj-betting
