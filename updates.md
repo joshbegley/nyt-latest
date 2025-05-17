@@ -1,3 +1,11 @@
+**Clayton Kershaw ready for 18th season with Dodgers: 'I want to pitch, and contribute'**\
+`Kershaw arrives at a time when an injury-ravaged staff needs his presence: "I'm excited for the intensity.”`\
+https://nytimes.com/athletic/6363068/2025/05/16/clayton-kershaw-ready-for-18th-season-with-dodgers-i-want-to-pitch-and-contribute/
+
+**Ottawa Charge eliminate Montreal Victoire to reach PWHL Finals: Takeaways**\
+`The Charge will advance to the PWHL Finals after a 2-1 win against the Victoire in Game 4 of the semifinals on Friday night.`\
+https://nytimes.com/athletic/6363086/2025/05/16/ottawa-charge-montreal-victoire-pwhl-playoffs-game-4-takeaways/
+
 **Nuggets' Gordon questionable for Game 7 with hamstring injury: Sources**\
 `Gordon strained the left hamstring in the fourth quarter of Thursday night's Game 6 win over OKC.`\
 https://nytimes.com/athletic/6363032/2025/05/16/aaron-gordon-questionable-hamstring-injury/
