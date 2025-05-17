@@ -1,3 +1,7 @@
+**Conor Bradley signs new four-year Liverpool deal**\
+`Bradley is set to take on a greater role next season with Trent Alexander-Arnold leaving on a free transfer this summer to join Real Madrid.`\
+https://nytimes.com/athletic/6363709/2025/05/17/conor-bradley-liverpool-contract-new/
+
 **Red Bull at 400 races: How five numbers illustrate their Formula One dominance**\
 `Red Bull is set to hit 400 Formula One race starts at this weekend's Imola race. Here's how its successes look in terms of key statistics`\
 https://nytimes.com/athletic/6350594/2025/05/17/red-bull-f1-400-races/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/books/read-like-wind-recommendations.html
 **Mohamed withdraws from Nantes squad over LGBTQ+ initiative**\
 `French clubs will wear rainbow-coloured armbands as part of International Day Against Homophobia, Biphobia and Transphobia, on May 17.`\
 https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-homophobia/
-
-**Watch: Which WNBA teams could surprise this season?**\
-`No Offseason discuss which WNBA teams could surprise us this season.`\
-https://nytimes.com/athletic/6362255/2025/05/17/no-offseason-wnba-surprises-womens-basketball/
 
