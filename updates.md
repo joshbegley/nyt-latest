@@ -1,3 +1,7 @@
+**Leafs stay alive, force Game 7 with win over Panthers: Takeaways**\
+`Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Sunday's Game 7.`\
+https://nytimes.com/athletic/6360716/2025/05/16/maple-leafs-panthers-nhl-playoffs-2025-game-6-takeaways/
+
 **Watch: ‘If we win, then what?’ — A Palace fan previews the FA Cup final**\
 `The Totally Football Show discuss the impact Oliver Glasner has made at Crystal Palace ahead of the FA Cup final`\
 https://nytimes.com/athletic/6361819/2025/05/16/totally-football-show-fa-cup-final-review-crystal-palace/
