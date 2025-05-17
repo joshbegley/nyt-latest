@@ -1,3 +1,11 @@
+**Audio of Special Counsel Interview Adds to Renewed Debate of Biden’s Fitness as President**\
+`A 2023 audio recording released by Axios comes on the heels of other recent disclosures that have prompted recriminations among Democrats over their handling of the matter.`\
+https://nytimes.com/2025/05/16/us/politics/biden-audio-fitness-debate.html
+
+**Paige Bueckers shows promise in WNBA debut as Wings fall to Lynx**\
+`Greatness came in many forms in the opening game of the 2025 season between Dallas and Minnesota.`\
+https://nytimes.com/athletic/6363096/2025/05/16/paige-bueckers-wnba-debut-lynx-wings/
+
 **Leafs stay alive, force Game 7 with win over Panthers in Game 6: Takeaways**\
 `Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Game 7 on Sunday.`\
 https://nytimes.com/athletic/6360716/2025/05/16/maple-leafs-panthers-nhl-playoffs-2025-game-6-takeaways/
