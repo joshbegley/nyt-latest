@@ -1,3 +1,7 @@
+**Rutger Bregman Wants to Save Elites From Their Wasted Lives**\
+`The historian is on a mission to get the best and brightest out of their lucrative jobs and into morally ambitious work.`\
+https://nytimes.com/2025/05/17/magazine/rutger-bregman-interview.html
+
 **Breathe In, Breathe Out, Good Night: TikTok Invites Users to Meditate**\
 `Facing allegations that it knowingly lures young users into late-night scroll sessions, the company unveiled a new guided-meditation feature in the app.`\
 https://nytimes.com/2025/05/17/style/tiktok-guided-meditation-sleep.html
