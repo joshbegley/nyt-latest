@@ -1,3 +1,7 @@
+**How Yankees’ DJ LeMahieu looks different — which is a good thing**\
+`LeMahieu hit his first home run since July and is performing well in the field and at the plate after finally getting healthy.`\
+https://nytimes.com/athletic/6364380/2025/05/17/yankees-dj-lemahieu-subway-series/
+
 **One Person Dead in Explosion Outside Palm Springs Fertility Clinic**\
 `The mayor of Palm Springs, Calif., said it was unclear how or whether the victim was connected to a blast that damaged a fertility clinic.`\
 https://nytimes.com/video/us/100000010176236/palm-springs-explosion-fertility.html
@@ -6,7 +10,7 @@ https://nytimes.com/video/us/100000010176236/palm-springs-explosion-fertility.ht
 `"Every time he comes up to the plate," Cubs catcher Carson Kelly said, "you know something awesome might happen."`\
 https://nytimes.com/athletic/6364378/2025/05/17/pete-crow-armstrong-mvp-season-beginning-chicago-cubs/
 
-**Journalism wins 150th Preakness Stakes**\
+**Journalism claims 150th Preakness Stakes with remarkable comeback**\
 `Journalism, the Kentucky Derby runner-up, was the favorite to win.`\
 https://nytimes.com/athletic/6364365/2025/05/17/journalism-wins-150th-preakness-stakes/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364243/2025/05/17/fever-sky-result-takeaways-caitl
 **Now it’s time to vote.**\
 `By Elisabeth Vincentelli`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/now-its-time-to-vote
-
-**Caitlin Clark receives flagrant for hacking Angel Reese in season opener**\
-`"Nothing malicious about it. It was just a good take foul. Every basketball player knows that," Clark told ESPN after the third quarter.`\
-https://nytimes.com/athletic/6364234/2025/05/17/caitlin-clark-angel-reese-flagrant-foul/
 
