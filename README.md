@@ -1,3 +1,7 @@
+**Estonia’s entry, ‘Espresso Macchiato,’ brewed trouble in Italy.**\
+`By Alex Marshall`\
+https://nytimes.com/2025/05/17/arts/music/eurovision-estonia-tommy-cash-coffee.html
+
 **Palm Springs Explosion Damages Fertility Clinic**\
 `Reports of a loud boom in the California city were reported around 11 a.m. local time. The cause of the blast was not immediately known, the mayor said.`\
 https://nytimes.com/2025/05/17/us/palm-springs-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision
 **Aberdeen's MacKenzie bloodied after being struck by seat thrown by own fans**\
 `MacKenzie, an unused substitute, received treatment on the pitch after being struck by the projectile from the away section of the stadium.`\
 https://nytimes.com/athletic/6363926/2025/05/17/aberdeen-dundee-united-fan-trouble/
-
-**Switzerland’s 2024 winner hoped to help nonbinary people.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-nemo-nonbinary
 
