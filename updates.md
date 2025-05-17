@@ -1,3 +1,15 @@
+**Capital One to Pay $425 Million to Settle Suits Over Savings Accounts**\
+`Depositors said the bank cheated them out of higher interest rates. As part of the settlement, the bank admitted no wrongdoing and agreed to make up for lost interest earnings.`\
+https://nytimes.com/2025/05/17/business/capital-one-settlement-savings-accounts.html
+
+**The 7 steps to winning Eurovision.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-secrets-to-winning
+
+**Trump Urges Walmart to Absorb Tariffs After Retailer Says It Could Raise Prices**\
+`Walmart, the nation’s largest retailer, is just one of several companies that have said they will be forced to pass on the costs of President Trump’s global tariffs to consumers.`\
+https://nytimes.com/2025/05/17/us/politics/trump-walmart-eat-the-tariffs-prices.html
+
 **Deadly Storms Send Tornadoes Spiraling Through Several States**\
 `Several tornadoes tore through Missouri, Kentucky and Virginia, killing at least 23 people.`\
 https://nytimes.com/video/us/100000010175955/tornadoes-missouri-kentucky-storm.html

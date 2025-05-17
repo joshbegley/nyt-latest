@@ -1,3 +1,15 @@
+**Capital One to Pay $425 Million to Settle Suits Over Savings Accounts**\
+`Depositors said the bank cheated them out of higher interest rates. As part of the settlement, the bank admitted no wrongdoing and agreed to make up for lost interest earnings.`\
+https://nytimes.com/2025/05/17/business/capital-one-settlement-savings-accounts.html
+
+**The 7 steps to winning Eurovision.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-secrets-to-winning
+
+**Trump Urges Walmart to Absorb Tariffs After Retailer Says It Could Raise Prices**\
+`Walmart, the nation’s largest retailer, is just one of several companies that have said they will be forced to pass on the costs of President Trump’s global tariffs to consumers.`\
+https://nytimes.com/2025/05/17/us/politics/trump-walmart-eat-the-tariffs-prices.html
+
 **Deadly Storms Send Tornadoes Spiraling Through Several States**\
 `Several tornadoes tore through Missouri, Kentucky and Virginia, killing at least 23 people.`\
 https://nytimes.com/video/us/100000010175955/tornadoes-missouri-kentucky-storm.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6358480/2025/05/17/fa-cup-final-palace-history-eze-
 **Steve Kiner, Linebacker Who Was Open About Drug Use, Dies at 77**\
 `He was a star at the University of Tennessee when he began using LSD, mescaline and other drugs. He said he got clean while playing in the N.F.L.`\
 https://nytimes.com/2025/05/17/sports/football/steve-kiner-dead.html
-
-**When Celine Dion won Eurovision for Switzerland.**\
-`By Elisabeth Vincentelli`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-final/when-celine-dion-won-eurovision-for-switzerland
-
-**Why Palace goalkeeper Henderson avoided a red card in FA Cup final**\
-`VAR ruled that the Henderson had not denied an obvious goalscoring opportunity.`\
-https://nytimes.com/athletic/6364052/2025/05/17/dean-henderson-crystal-palace-fa-cup/
-
-**Lewis Hamilton ‘devastated’ by poor Imola GP qualifying in first Ferrari home race**\
-`Ferrari's Lewis Hamilton did not hold back after being eliminated early in F1 qualifying for the Imola GP. He'll start the race in 12th`\
-https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poor-imola-gp-qualifying-in-first-ferrari-home-race/
 
