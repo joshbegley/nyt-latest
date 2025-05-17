@@ -1,3 +1,7 @@
+**Flick tells Barca players: 'If you can party, you can play'**\
+`Barca clinched the league title on Thursday with a two-goal victory at Espanyol with an open-top bus parade in Barcelona the following day.`\
+https://nytimes.com/athletic/6363624/2025/05/17/barcelona-la-liga-title-celebrations/
+
 **Auston Matthews' big-game moment: How the Leafs captain found the net, redemption and relief**\
 `“We needed that": Auston Matthews comes through with his first ever second-round goal, leading the Maple Leafs home for Game 7.`\
 https://nytimes.com/athletic/6363263/2025/05/17/maple-leafs-auston-matthews-goal-nhl-playoffs/

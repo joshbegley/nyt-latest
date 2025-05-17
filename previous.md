@@ -1,3 +1,7 @@
+**Flick tells Barca players: 'If you can party, you can play'**\
+`Barca clinched the league title on Thursday with a two-goal victory at Espanyol with an open-top bus parade in Barcelona the following day.`\
+https://nytimes.com/athletic/6363624/2025/05/17/barcelona-la-liga-title-celebrations/
+
 **Auston Matthews' big-game moment: How the Leafs captain found the net, redemption and relief**\
 `“We needed that": Auston Matthews comes through with his first ever second-round goal, leading the Maple Leafs home for Game 7.`\
 https://nytimes.com/athletic/6363263/2025/05/17/maple-leafs-auston-matthews-goal-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362255/2025/05/17/no-offseason-wnba-surprises-wome
 **New Jersey Can Show How to Take On Public Sector Strikes**\
 `Don’t panic. Show resilience.`\
 https://nytimes.com/2025/05/17/opinion/new-jersey-transit-strike.html
-
-**The Day Grok Lost Its Mind**\
-`Just don’t ask it about “white genocide.”`\
-https://nytimes.com/2025/05/17/opinion/grok-ai-musk-x-south-africa.html
 
