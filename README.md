@@ -1,3 +1,7 @@
+**After death threats, Lance McCullers Jr. returns with 'step in the right direction'**\
+`McCullers yielded two unearned runs in four innings to help the Astros beat the Rangers on Friday.`\
+https://nytimes.com/athletic/6363313/2025/05/17/lance-mccullers-jr-astros-rangers/
+
 **What's next for Celtics after Jayson Tatum injury and season-ending loss to Knicks?**\
 `"Losing to the Knicks feels like death," Jaylen Brown said. "But I was always taught that there’s life after death." `\
 https://nytimes.com/athletic/6363051/2025/05/17/celtics-nba-playoffs-knicks-loss-jayson-tatum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350239/2025/05/17/luis-diaz-liverpool-striker-tran
 **Ranking Manchester City's modern Wembley cup finals: From Wigan despair to Toure's triumph**\
 `City have played in 11 FA Cup and League Cup finals since 2011 - Thom Harris attempts to put them into some sort of order...`\
 https://nytimes.com/athletic/6358510/2025/05/17/manchester-city-wembley-cup-finals-ranked/
-
-**This is Crystal Palace's opportunity. Now embrace the excitement and make history**\
-`Under Oliver Glasner, the south London club are driven by new-found conviction. Today, they can win the first major trophy in their history`\
-https://nytimes.com/athletic/6349461/2025/05/17/crystal-palace-fa-cup-glasner/
 
