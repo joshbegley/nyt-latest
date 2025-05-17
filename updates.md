@@ -1,3 +1,15 @@
+**When Celine Dion won Eurovision for Switzerland.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/when-celine-dion-won-eurovision-for-switzerland
+
+**Why Palace goalkeeper Henderson avoided a red card in FA Cup final**\
+`VAR ruled that the Henderson had not denied an obvious goalscoring opportunity.`\
+https://nytimes.com/athletic/6364052/2025/05/17/dean-henderson-crystal-palace-fa-cup/
+
+**New Jersey Transit Negotiations Resume a Day Earlier Than Expected**\
+`As the strike entered its second day, the agency’s chief executive, Kris Kolluri, met with union representatives on Saturday afternoon.`\
+https://nytimes.com/2025/05/17/nyregion/nj-transit-strike-negotiations.html
+
 **Lewis Hamilton ‘devastated’ by poor Imola GP qualifying in first Ferrari home race**\
 `Ferrari's Lewis Hamilton did not hold back after being eliminated early in F1 qualifying for the Imola GP. He'll start the race in 12th`\
 https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poor-imola-gp-qualifying-in-first-ferrari-home-race/
