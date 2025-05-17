@@ -1,3 +1,7 @@
+**Why Eurovision can’t escape politics.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-ebu-politics
+
 **Frimpong set for Liverpool medical after agreeing five-year deal**\
 `Frimpong's Leverkusen contract contains a €35million (£29.6m;$39.3m) release clause.`\
 https://nytimes.com/athletic/5843414/2025/05/17/jeremie-frimpong-liverpool-transfer-latest-leverkusen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/dining/jonnie-boer-dead-chef.html
 **Imola GP qualifying: Piastri takes pole, Ferrari's Saturday miseries continue**\
 `An odd qualifying (featuring crashes and delays) ended with a familiar front row and more frustration for the home team`\
 https://nytimes.com/athletic/6363796/2025/05/17/imola-gp-qualifying-2025-result/
-
-**Dortmund qualify for UCL on final day of Bundesliga season**\
-`Dortmund had been outside the Bundesliga’s top-four since the third game of the season but secured their place on the final day.`\
-https://nytimes.com/athletic/6363937/2025/05/17/dortmund-champions-league-qualify/
 
