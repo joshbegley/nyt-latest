@@ -1,3 +1,11 @@
+**Caitlin Clark notches triple-double as Fever blow out Sky in season opener**\
+`A revamped Fever team began its most-anticipated season in franchise history with an emphatic victory.`\
+https://nytimes.com/athletic/6364243/2025/05/17/fever-sky-result-takeaways-caitlin-clark-angel-reese/
+
+**Caitlin Clark receives flagrant for hacking Angel Reese in season opener**\
+`"Nothing malicious about it. It was just a good take foul. Every basketball player knows that," Clark told ESPN after the third quarter.`\
+https://nytimes.com/athletic/6364234/2025/05/17/caitlin-clark-angel-reese-flagrant-foul/
+
 **Now it’s time to vote.**\
 `By Elisabeth Vincentelli`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/now-its-time-to-vote
