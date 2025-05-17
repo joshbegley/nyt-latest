@@ -1,3 +1,7 @@
+**Russian Drone Attack Kills 9 on Shuttle Bus in Ukraine**\
+`The strike came hours after the first face-to-face talks between Ukrainian and Russian delegations since the early days of the war.`\
+https://nytimes.com/2025/05/17/world/europe/russia-ukraine-putin.html
+
 **Bournemouth's Dean Huijsen agrees £50m Real Madrid transfer**\
 `The 20-year-old is one of Europe's most in-demand young players after impressing for Andoni Iraola's Bournemouth side this season.`\
 https://nytimes.com/athletic/6358549/2025/05/17/bournemouth-dean-huijsen-real-madrid-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/crosswords/spelling-bee-forum.html
 **The defensive improvement behind Aston Villa's relentless top-five charge**\
 `A return to the Champions League looked unlikely for Villa mid-season, but Unai Emery tweaked his side's setup and is reaping the benefits`\
 https://nytimes.com/athletic/6361915/2025/05/17/aston-villa-defensive-improvement-top-five-race/
-
-**The New York Knicks, after 25 long, humbling and frustrating seasons, are back**\
-`New York basketball is back, relevant and thriving, and this just might be the beginning of what's to come.`\
-https://nytimes.com/athletic/6363262/2025/05/17/new-york-knicks-beat-boston-celtics-game-6/
 
