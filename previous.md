@@ -1,3 +1,7 @@
+**Israel’s Entrant Survived the Hamas Attacks of Oct. 7**\
+`Not long after the attacks, Yuval Raphael said, she resolved to follow her long-held dream of becoming a professional singer.`\
+https://nytimes.com/2025/05/17/arts/music/yuval-raphael-israel-eurovision-2025.html
+
 **Estonia’s entry, ‘Espresso Macchiato,’ brewed trouble in Italy.**\
 `By Alex Marshall`\
 https://nytimes.com/2025/05/17/arts/music/eurovision-estonia-tommy-cash-coffee.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010175955/tornadoes-missouri-kentucky-storm.h
 **Whatever happened to Joost Klein, last year’s jilted Eurovision star?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-joost-klein
-
-**Aberdeen's MacKenzie bloodied after being struck by seat thrown by own fans**\
-`MacKenzie, an unused substitute, received treatment on the pitch after being struck by the projectile from the away section of the stadium.`\
-https://nytimes.com/athletic/6363926/2025/05/17/aberdeen-dundee-united-fan-trouble/
 
