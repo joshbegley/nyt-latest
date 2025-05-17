@@ -1,3 +1,7 @@
+**The New York Knicks, after 25 long, humbling and frustrating seasons, are back**\
+`New York basketball is back, relevant and thriving, and this just might be the beginning of what's to come.`\
+https://nytimes.com/athletic/6363262/2025/05/17/new-york-knicks-beat-boston-celtics-game-6/
+
 **Club World Cup prices drop, Infantino irks Canada and Mexico, New Zealand-US World Cup? - Inside FIFA's dramatic Congress**\
 `Why Club World Cup prices have been reduced, an innovative idea for the 2038 World Cup and will 64 teams compete in 2030? `\
 https://nytimes.com/athletic/6361850/2025/05/17/infantino-world-cup-new-zealand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363336/2025/05/17/paige-bueckers-wnba-rookie-debut
 **The New York Times in Print for Saturday, May 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/17/todays-new-york-times
-
-**Valkyries drop WNBA opener in a party not even the Sparks could spoil**\
-`This night wasn’t about wins and losses. It was about the dawning of an era.`\
-https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnba-expansion/
 
