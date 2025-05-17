@@ -15,7 +15,7 @@ https://nytimes.com/2025/05/16/us/politics/biden-audio-fitness-debate.html
 https://nytimes.com/athletic/6363096/2025/05/16/paige-bueckers-wnba-debut-lynx-wings/
 
 **Leafs stay alive, force Game 7 with win over Panthers: Takeaways**\
-`Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Game 7 on Sunday.`\
+`Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Sunday's Game 7.`\
 https://nytimes.com/athletic/6360716/2025/05/16/maple-leafs-panthers-nhl-playoffs-2025-game-6-takeaways/
 
 **How Max Homa, Scottie Scheffler rose up the PGA leaderboard in Round 2**\
