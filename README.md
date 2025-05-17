@@ -1,3 +1,15 @@
+**'Football became a site of healing' – How Bradford City helped me feel joy again**\
+`"I have never felt luckier than I did this season, when football became a site of healing."`\
+https://nytimes.com/athletic/6352832/2025/05/17/bradford-city-promotion-mental-health/
+
+**Real Madrid's Raul Asencio and the sex-tape allegations against him - key questions answered**\
+`What are the allegations against him, who else is involved and will Real Madrid and Spain keep picking him?`\
+https://nytimes.com/athletic/6361362/2025/05/17/real-madrid-raul-asencio-sex-tape-allegations/
+
+**A curry, a Carling and a table in front of the TV – touring Wolves manager Pereira's favourite pubs**\
+`Wolves' head coach enjoys a post-match pint with the fans, so what is it like when a Premier League boss calls into your local?`\
+https://nytimes.com/athletic/6347344/2025/05/17/vitor-pereira-pubs-wolverhampton/
+
 **Man United's Leah Galton - Winning FA Cup with fractured leg and chasing a 'bit of revenge' against Chelsea**\
 `Ahead of the FA Cup final, the winger spoke about recovering from injury and attempting to win the trophy again`\
 https://nytimes.com/athletic/6361070/2025/05/17/leah-galton-interview-ratcliffe-injury-chelsea/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6361145/2025/05/17/aston-villa-fans-who-do-you-want
 **West Ham fans: Who do you want to win the Europa League final?**\
 `Next week will see two sides who have underperformed in the Premier League go toe-to-toe in the Europa League final`\
 https://nytimes.com/athletic/6361160/2025/05/17/west-ham-fans-who-do-you-want-to-win-the-europa-league-final/
-
-**Fulham fans: Who do you want to win the Europa League final?**\
-`Next week will see two sides who have underperformed in the Premier League go toe-to-toe in the Europa League final`\
-https://nytimes.com/athletic/6361152/2025/05/17/fulham-fans-who-do-you-want-to-win-the-europa-league-final/
-
-**Southampton fans: Who do you want to win the Europa League final?**\
-`Next week will see two sides who have underperformed in the Premier League go toe-to-toe in the Europa League final`\
-https://nytimes.com/athletic/6361159/2025/05/17/southampton-fans-who-do-you-want-to-win-the-europa-league-final/
-
-**Arsenal fans: Who do you want to win the Europa League final?**\
-`Next week will see two sides who have underperformed in the Premier League go toe-to-toe in the Europa League final`\
-https://nytimes.com/athletic/6361144/2025/05/17/arsenal-fans-who-do-you-want-to-win-the-europa-league-final/
 
