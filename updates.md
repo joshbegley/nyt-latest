@@ -1,3 +1,7 @@
+**Cubs' youth movement out in full force at Wrigley Field with Pete Crow-Armstrong, Cade Horton**\
+`Crow-Armstrong went 4-for-5 with a home run and six RBIs and Horton got the win in Friday's 13-3 victory over the White Sox.`\
+https://nytimes.com/athletic/6362932/2025/05/16/cubs-youth-movement-pete-crow-armstrong-cade-horton/
+
 **Trump’s Push to Defund Harvard Prompts Clash Over Veteran Suicide Research**\
 `The proposed termination of medical research funded by the V.A. is part of the Trump administration’s broader pressure campaign against the university.`\
 https://nytimes.com/2025/05/16/us/politics/trump-harvard-veterans-research.html

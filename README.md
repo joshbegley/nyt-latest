@@ -1,3 +1,7 @@
+**Pitching position players' Shohei Ohtani strikeout balls: Priceless treasures**\
+`Striking out Ohtani is an accomplishment for anyone, but for a position player it's a moment that produces a particularly special keepsake`\
+https://nytimes.com/athletic/6362863/2025/05/16/shohei-ohtani-strikeout-ball-pereda/
+
 **Cubs' youth movement out in full force at Wrigley Field with Pete Crow-Armstrong, Cade Horton**\
 `Crow-Armstrong went 4-for-5 with a home run and six RBIs and Horton got the win in Friday's 13-3 victory over the White Sox.`\
 https://nytimes.com/athletic/6362932/2025/05/16/cubs-youth-movement-pete-crow-armstrong-cade-horton/
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.ht
 **Michael Flynn, a Trump Ally, Sponsors Beethoven at the Kennedy Center**\
 `Following the president’s overhaul of the center, Mr. Flynn, the former national security adviser, has made a substantial gift to the National Symphony Orchestra.`\
 https://nytimes.com/2025/05/16/arts/music/michael-flynn-kennedy-center.html
-
-**How Jhonattan Vegas has come out of nowhere to lead the PGA Championship**\
-`Vegas, a 40-year-old from Venezuela, has one top-25 finish at a major championship in his career, nine years ago.`\
-https://nytimes.com/athletic/6362734/2025/05/16/jhonattan-vegas-pga-championship-lead/
 
