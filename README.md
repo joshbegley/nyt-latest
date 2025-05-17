@@ -1,3 +1,7 @@
+**Rutger Bregman Wants to Save Elites From Their Wasted Lives**\
+`The historian is on a mission to get the best and brightest out of their lucrative jobs and into morally ambitious work.`\
+https://nytimes.com/2025/05/17/magazine/rutger-bregman-interview.html
+
 **Breathe In, Breathe Out, Good Night: TikTok Invites Users to Meditate**\
 `Facing allegations that it knowingly lures young users into late-night scroll sessions, the company unveiled a new guided-meditation feature in the app.`\
 https://nytimes.com/2025/05/17/style/tiktok-guided-meditation-sleep.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/world/europe/trump-iran-nuclear-talks.html
 **His Life Savings Were Mailed to Him by Paper Check. Now, It’s Gone.**\
 `A thief stole 401(k) checks out of the mail. But why was Paychex, a major industry player, using paper at all given how often check fraud happens?`\
 https://nytimes.com/2025/05/17/business/paychex-401k-rollover-checks.html
-
-**‘Whom Shall I Fear?’ In South Texas, Two Bakers Face Trump’s Immigration Wrath.**\
-`A raid on Abby’s Bakery in Los Fresnos heralded the crackdown to come. Ahead of the owners’ trial for “harboring” undocumented workers, the community is seeing the impact of the president’s policies.`\
-https://nytimes.com/2025/05/17/us/politics/trumps-immigration-bakery.html
 
