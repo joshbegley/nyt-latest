@@ -1,3 +1,7 @@
+**India Is Accused of Inhumanely Deporting Rohingya Refugees**\
+`The allegations, which include being pushed into the sea off Myanmar with only life jackets, have prompted a call from the United Nations for an investigation.`\
+https://nytimes.com/2025/05/17/world/asia/india-rohingya-sea-deport.html
+
 **Rutger Bregman Wants to Save Elites From Their Wasted Lives**\
 `The historian is on a mission to get the best and brightest out of their lucrative jobs and into morally ambitious work.`\
 https://nytimes.com/2025/05/17/magazine/rutger-bregman-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/world/asia/india-news-media-misinformation.html
 **Trump Wants a Deal With Iran, but It May Be Weaker Than His Supporters Demand**\
 `Iran rejects any deal that would ban it from any nuclear enrichment, long a demand of U.S. conservatives.`\
 https://nytimes.com/2025/05/17/world/europe/trump-iran-nuclear-talks.html
-
-**His Life Savings Were Mailed to Him by Paper Check. Now, It’s Gone.**\
-`A thief stole 401(k) checks out of the mail. But why was Paychex, a major industry player, using paper at all given how often check fraud happens?`\
-https://nytimes.com/2025/05/17/business/paychex-401k-rollover-checks.html
 
