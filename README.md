@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Secret Service Questions Comey Over Social Media Post About President**\
+``\
+https://nytimes.com/live/2025/05/17/us/trump-news
+
 **Conor Bradley signs new four-year Liverpool deal**\
 `Bradley is set to take on a greater role next season with Trent Alexander-Arnold leaving on a free transfer this summer to join Real Madrid.`\
 https://nytimes.com/athletic/6363709/2025/05/17/conor-bradley-liverpool-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/business/dealbook/runnable-funds-silicon-valley-b
 **2 Books to Bring Key West to Life**\
 `A poet’s letters; a collection of reminiscences.`\
 https://nytimes.com/2025/05/17/books/read-like-wind-recommendations.html
-
-**Mohamed withdraws from Nantes squad over LGBTQ+ initiative**\
-`French clubs will wear rainbow-coloured armbands as part of International Day Against Homophobia, Biphobia and Transphobia, on May 17.`\
-https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-homophobia/
 
