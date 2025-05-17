@@ -1,3 +1,7 @@
+**Auston Matthews' big-game moment: How the Leafs captain found the net, redemption and relief**\
+`“We needed that": Auston Matthews comes through with his first ever second-round goal, leading the Maple Leafs home for Game 7.`\
+https://nytimes.com/athletic/6363263/2025/05/17/maple-leafs-auston-matthews-goal-nhl-playoffs/
+
 **The Pulse: Drastic shakeup for Boston?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6363379/2025/05/17/celtics-knicks-jayson-tatum-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/opinion/new-jersey-transit-strike.html
 **The Day Grok Lost Its Mind**\
 `Just don’t ask it about “white genocide.”`\
 https://nytimes.com/2025/05/17/opinion/grok-ai-musk-x-south-africa.html
-
-**Even at partial strength, Stars' Miro Heiskanen demands an opponent's full attention**\
-`The defenseman recently returned from injury and is eager to expedite the long climb back to midseason form and help extend Dallas' season.`\
-https://nytimes.com/athletic/6362557/2025/05/17/stars-nhl-playoffs-miro-heiskanen/
 

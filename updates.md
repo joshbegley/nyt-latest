@@ -1,3 +1,19 @@
+**The Pulse: Drastic shakeup for Boston?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6363379/2025/05/17/celtics-knicks-jayson-tatum-the-pulse/
+
+**Is Wild coach John Hynes on the hot seat? Could they sign Mitch Marner? Ask Russo and Smith, part 2**\
+`Also: Will the Wild ever win the Cup? What's the plan for Jiricek? What next for Trenin? And, of course, more Rossi questions.`\
+https://nytimes.com/athletic/6362139/2025/05/17/wild-hynes-marner-crosby-mailbag/
+
+**Lowetide: 5 Oilers players who have stepped up during this playoff run**\
+`Here's a look at some key Edmonton players who increased their playing time despite being on the sidelines for Game 1.`\
+https://nytimes.com/athletic/6359507/2025/05/17/edmonton-oilers-stats-ice-time-nhl-playoffs/
+
+**What Has Changed Since Silicon Valley Bank Collapsed? Not Much.**\
+`Two years later, no major legislation or regulation has passed, and the basic problem that caused the crisis persists.`\
+https://nytimes.com/2025/05/17/business/dealbook/runnable-funds-silicon-valley-bank.html
+
 **2 Books to Bring Key West to Life**\
 `A poet’s letters; a collection of reminiscences.`\
 https://nytimes.com/2025/05/17/books/read-like-wind-recommendations.html
