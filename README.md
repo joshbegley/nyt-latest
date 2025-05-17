@@ -1,3 +1,7 @@
+**Kristian Campbell gets work at first base, perhaps opening second base for Marcelo Mayer**\
+`Campbell did first-base drills before Friday's game in Boston while Mayer prepared for his sixth start at second for Triple-A Worcester.`\
+https://nytimes.com/athletic/6363009/2025/05/16/red-sox-kristian-campbell-first-base-marcelo-mayer/
+
 **Pitching position players' Shohei Ohtani strikeout balls: Priceless treasures**\
 `Striking out Ohtani is an accomplishment for anyone, but for a position player it's a moment that produces a particularly special keepsake`\
 https://nytimes.com/athletic/6362863/2025/05/16/shohei-ohtani-strikeout-ball-pereda/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362931/2025/05/16/juan-soto-boos-yankee-stadium-me
 **Severe Storms Batter the Midwest**\
 `Severe weather unleashed hail, damaging winds and tornadoes across large portions of the Midwest and the Mid-Atlantic.`\
 https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.html
-
-**Michael Flynn, a Trump Ally, Sponsors Beethoven at the Kennedy Center**\
-`Following the president’s overhaul of the center, Mr. Flynn, the former national security adviser, has made a substantial gift to the National Symphony Orchestra.`\
-https://nytimes.com/2025/05/16/arts/music/michael-flynn-kennedy-center.html
 
