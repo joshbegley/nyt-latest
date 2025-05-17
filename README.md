@@ -1,3 +1,11 @@
+**Spring Fling**\
+`Spring cleaning clears space in our homes and heads. How will we fill it?`\
+https://nytimes.com/2025/05/17/briefing/spring-fling.html
+
+**Real Madrid’s £50million signing, Dean Huijsen – his story, his style and why Juventus let him go**\
+`Everything you need to know about the first big move of the 2025 summer transfer window, as Huijsen swaps Bournemouth for Real Madrid...`\
+https://nytimes.com/athletic/6362003/2025/05/17/real-madrid-signing-dean-huijsen-analysis/
+
 **A Ministroke Can Have Major Consequences**\
 `So-called transient ischemic attacks can eventually lead to cognitive declines as steep as those following a full-on stroke, new research finds.`\
 https://nytimes.com/2025/05/17/health/elderly-tia-stroke.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6363228/2025/05/17/maple-leafs-nhl-playoffs-game-7/
 **America’s New Ambassador to Canada Tamps Down Annexation Talk**\
 `Despite his friendly tone, Pete Hoekstra offered no indication of when, or if, the United States will remove its tariffs against Canada.`\
 https://nytimes.com/2025/05/17/world/canada/us-ambassador-canada-51st-state.html
-
-**Connections Companion No. 707**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 18, 2025.`\
-https://nytimes.com/2025/05/17/crosswords/connections-companion-707.html
-
-**Wordle Review No. 1,429**\
-`Scroll down for hints and conversation about the puzzle for Sunday, May 18, 2025.`\
-https://nytimes.com/2025/05/17/crosswords/wordle-review-1429.html
 

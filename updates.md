@@ -1,3 +1,19 @@
+**A Ministroke Can Have Major Consequences**\
+`So-called transient ischemic attacks can eventually lead to cognitive declines as steep as those following a full-on stroke, new research finds.`\
+https://nytimes.com/2025/05/17/health/elderly-tia-stroke.html
+
+**Siegel: The Maple Leafs need to win Game 7 to flip the narrative**\
+`A Game 7 win wouldn’t change the past, but it would flip the narrative about this team and its inability to get things done in the clutch.`\
+https://nytimes.com/athletic/6363248/2025/05/17/maple-leafs-game-7-nhl-playoffs/
+
+**London City Lionesses head to WSL with ambition to compete among the elite**\
+`The day after winning promotion, the London City Lionesses owner was already planning what's next.`\
+https://nytimes.com/athletic/6360955/2025/05/17/london-city-lionesses-wsl-promotion-michele-kang/
+
+**Crochet vs. Sale lived up to its billing, but the Red Sox failed their ace again**\
+`The Red Sox's current ace and former ace dueled for seven innings, but Boston missed opportunities to get Crochet a win.`\
+https://nytimes.com/athletic/6363184/2025/05/17/garrett-crochet-chris-sale-red-sox-braves/
+
 **Bryce Harper reaches 1,000 RBIs as he and Phillies stay patient, grind out a win**\
 `It's another shiny stat on his resume. Another display of what Harper was brought to Philly to do. Another step toward where he wants to be.`\
 https://nytimes.com/athletic/6363337/2025/05/17/bryce-harper-1000-rbis-phillies-pirates/
