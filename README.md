@@ -1,3 +1,7 @@
+**‘Watch Me,’ Biden Said. But Hearing Him in Hur Interview Is More Revealing.**\
+`The former president’s halting responses to questions by a special counsel show him exactly as a majority of Americans believed him to be — and as Democrats repeatedly insisted he was not.`\
+https://nytimes.com/2025/05/17/us/politics/biden-hur-audio-interview.html
+
 **Finland’s entry shows ‘her sexual power.’**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-finland-erika-vikman-ich-komme
@@ -30,11 +34,7 @@ https://nytimes.com/2025/05/17/arts/music/yuval-raphael-israel-eurovision-2025.h
 `By Alex Marshall`\
 https://nytimes.com/2025/05/17/arts/music/eurovision-estonia-tommy-cash-coffee.html
 
-**Palm Springs Explosion Damages Fertility Clinic**\
-`Reports of a loud boom in the California city were reported around 11 a.m. local time. The cause of the blast was not immediately known, the mayor said.`\
+**1 Dead as Bomb Damages Palm Springs Fertility Clinic, Mayor Says**\
+`The explosion happened less than a mile from downtown Palm Springs. A bomb was in or near a vehicle by the clinic, Mayor Ron deHarte said.`\
 https://nytimes.com/2025/05/17/us/palm-springs-explosion.html
-
-**Federal Courts’ Emerging Bottom Line: Due Process Rights for Immigrants**\
-`The Trump administration’s aggressive push to deport migrants has run up against resistance from the judiciary.`\
-https://nytimes.com/2025/05/17/us/politics/courts-immigrants-venezuelans-garcia-trump.html
 
