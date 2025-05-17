@@ -1,3 +1,7 @@
+**Auston Matthews' big-game moment: How the Leafs captain found the net, redemption and relief**\
+`“We needed that": Auston Matthews comes through with his first ever second-round goal, leading the Maple Leafs home for Game 7.`\
+https://nytimes.com/athletic/6363263/2025/05/17/maple-leafs-auston-matthews-goal-nhl-playoffs/
+
 **The Pulse: Drastic shakeup for Boston?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6363379/2025/05/17/celtics-knicks-jayson-tatum-the-pulse/
