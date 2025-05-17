@@ -1,3 +1,7 @@
+**How the atmosphere at Chelsea has been transformed in the space of 12 months**\
+`Not every Chelsea supporters has been won over, but internally the Enzo Maresca era at the club is being viewed extremely positively`\
+https://nytimes.com/athletic/6363445/2025/05/17/how-the-atmosphere-at-chelsea-has-been-transformed-in-the-space-of-12-months/
+
 **Spring Fling**\
 `Spring cleaning clears space in our homes and heads. How will we fill it?`\
 https://nytimes.com/2025/05/17/briefing/spring-fling.html
