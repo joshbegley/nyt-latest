@@ -1,3 +1,7 @@
+**Club World Cup prices drop, Infantino irks Canada and Mexico, New Zealand-US World Cup? - Inside FIFA's dramatic Congress**\
+`Why Club World Cup prices have been reduced, an innovative idea for the 2038 World Cup and will 64 teams compete in 2030? `\
+https://nytimes.com/athletic/6361850/2025/05/17/infantino-world-cup-new-zealand/
+
 **Buckley: Celtics cope with ugly defeat and reality that it may be curtains for this roster**\
 `The added penalty to this crushing series loss is that nobody has any idea what the Celtics’ roster will look like next season.`\
 https://nytimes.com/athletic/6363356/2025/05/17/celtics-knicks-nba-playoffs-game-6-rout-jaylen-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/17/todays-new-york-times
 **Valkyries drop WNBA opener in a party not even the Sparks could spoil**\
 `This night wasn’t about wins and losses. It was about the dawning of an era.`\
 https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnba-expansion/
-
-**Matthew Knies injury uncertainty looms for Leafs after forcing Game 7**\
-`“We don’t know right now ... he’s dealing with something,” coach Craig Berube said of Knies’ injury and his status for Game 7 on Sunday.`\
-https://nytimes.com/athletic/6363243/2025/05/17/maple-leafs-matthew-knies-injury-nhl-playoffs/
 
