@@ -1,3 +1,7 @@
+**Which act is the safest bet?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-favotire-kaj-betting
+
 **Capital One to Pay $425 Million to Settle Suits Over Savings Accounts**\
 `Depositors said the bank cheated them out of higher interest rates. As part of the settlement, the bank admitted no wrongdoing and agreed to make up for lost interest earnings.`\
 https://nytimes.com/2025/05/17/business/capital-one-settlement-savings-accounts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364063/2025/05/17/jasmine-paolini-italian-open/
 **FA Cup final: Palace 1 City 0 – Eze goal, Henderson heroics win first ever trophy**\
 `Crystal Palace won their first major trophy by stunning Manchester City in the FA Cup final at Wembley. We break it down...`\
 https://nytimes.com/athletic/6358480/2025/05/17/fa-cup-final-palace-history-eze-goal/
-
-**Steve Kiner, Linebacker Who Was Open About Drug Use, Dies at 77**\
-`He was a star at the University of Tennessee when he began using LSD, mescaline and other drugs. He said he got clean while playing in the N.F.L.`\
-https://nytimes.com/2025/05/17/sports/football/steve-kiner-dead.html
 
