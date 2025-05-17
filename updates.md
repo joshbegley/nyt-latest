@@ -1,3 +1,19 @@
+**Switzerland’s 2024 winner hoped to help nonbinary people.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-nemo-nonbinary
+
+**Jasmine Paolini wins Italian Open to become first Italian winner in 40 years**\
+`With the victory, Paolini becomes the world No. 4 ahead of next week's French Open.`\
+https://nytimes.com/athletic/6364063/2025/05/17/jasmine-paolini-italian-open/
+
+**FA Cup final: Palace 1 City 0 – Eze goal, Henderson heroics win first ever trophy**\
+`Crystal Palace won their first major trophy by stunning Manchester City in the FA Cup final at Wembley. We break it down...`\
+https://nytimes.com/athletic/6358480/2025/05/17/fa-cup-final-palace-history-eze-goal/
+
+**Steve Kiner, Linebacker Who Was Open About Drug Use, Dies at 77**\
+`He was a star at the University of Tennessee when he began using LSD, mescaline and other drugs. He said he got clean while playing in the N.F.L.`\
+https://nytimes.com/2025/05/17/sports/football/steve-kiner-dead.html
+
 **When Celine Dion won Eurovision for Switzerland.**\
 `By Elisabeth Vincentelli`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/when-celine-dion-won-eurovision-for-switzerland
