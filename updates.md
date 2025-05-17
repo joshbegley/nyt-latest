@@ -1,3 +1,15 @@
+**Nuggets' Gordon questionable for Game 7 with hamstring injury: Sources**\
+`Gordon strained the left hamstring in the fourth quarter of Thursday night's Game 6 win over OKC.`\
+https://nytimes.com/athletic/6363032/2025/05/16/aaron-gordon-questionable-hamstring-injury/
+
+**Turn (Up)**\
+`Ryan Judge’s puzzle gives solvers a lot to chew on.`\
+https://nytimes.com/2025/05/16/crosswords/daily-puzzle-2025-05-17.html
+
+**Ottawa Charge eliminate Montreal Victoire to reach PWHL Finals: Takeaways**\
+`The Charge will advance to the PWHL finals after a 2-1 win against the Victoire in Game 4 of the semifinals on Friday night.`\
+https://nytimes.com/athletic/6363086/2025/05/16/ottawa-charge-montreal-victoire-pwhl-playoffs-game-4-takeaways/
+
 **Kristian Campbell gets work at first base, perhaps opening second base for Marcelo Mayer**\
 `Campbell did first-base drills before Friday's game in Boston while Mayer prepared for his sixth start at second for Triple-A Worcester.`\
 https://nytimes.com/athletic/6363009/2025/05/16/red-sox-kristian-campbell-first-base-marcelo-mayer/
