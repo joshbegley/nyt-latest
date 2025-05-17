@@ -1,3 +1,7 @@
+**Aberdeen's MacKenzie bloodied after being struck by seat thrown by own fans**\
+`MacKenzie, an unused substitute, received treatment on the pitch after being struck by the projectile from the away section of the stadium.`\
+https://nytimes.com/athletic/6363926/2025/05/17/aberdeen-dundee-united-fan-trouble/
+
 **Switzerland’s 2024 winner hoped to help nonbinary people.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-nemo-nonbinary
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364047/2025/05/17/mark-scheifele-father-game-6/
 **Why Eurovision can’t escape politics.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-ebu-politics
-
-**Frimpong set for Liverpool medical after agreeing five-year deal**\
-`Frimpong's Leverkusen contract contains a €35million (£29.6m;$39.3m) release clause.`\
-https://nytimes.com/athletic/5843414/2025/05/17/jeremie-frimpong-liverpool-transfer-latest-leverkusen/
 

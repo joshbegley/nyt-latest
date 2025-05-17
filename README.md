@@ -1,3 +1,7 @@
+**Whatever happened to Joost Klein, last year’s jilted Eurovision star?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-joost-klein
+
 **Aberdeen's MacKenzie bloodied after being struck by seat thrown by own fans**\
 `MacKenzie, an unused substitute, received treatment on the pitch after being struck by the projectile from the away section of the stadium.`\
 https://nytimes.com/athletic/6363926/2025/05/17/aberdeen-dundee-united-fan-trouble/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poo
 **Mark Scheifele’s Game 6 status for Jets uncertain following death of his father**\
 `Coach Scott Arniel is scheduled to address reporters at 4:30 p.m. Central.`\
 https://nytimes.com/athletic/6364047/2025/05/17/mark-scheifele-father-game-6/
-
-**Why Eurovision can’t escape politics.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-ebu-politics
 
