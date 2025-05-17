@@ -1,3 +1,15 @@
+**Nuggets' Gordon questionable for Game 7 with hamstring injury: Sources**\
+`Gordon strained the left hamstring in the fourth quarter of Thursday night's Game 6 win over OKC.`\
+https://nytimes.com/athletic/6363032/2025/05/16/aaron-gordon-questionable-hamstring-injury/
+
+**Turn (Up)**\
+`Ryan Judge’s puzzle gives solvers a lot to chew on.`\
+https://nytimes.com/2025/05/16/crosswords/daily-puzzle-2025-05-17.html
+
+**Ottawa Charge eliminate Montreal Victoire to reach PWHL Finals: Takeaways**\
+`The Charge will advance to the PWHL finals after a 2-1 win against the Victoire in Game 4 of the semifinals on Friday night.`\
+https://nytimes.com/athletic/6363086/2025/05/16/ottawa-charge-montreal-victoire-pwhl-playoffs-game-4-takeaways/
+
 **Kristian Campbell gets work at first base, perhaps opening second base for Marcelo Mayer**\
 `Campbell did first-base drills before Friday's game in Boston while Mayer prepared for his sixth start at second for Triple-A Worcester.`\
 https://nytimes.com/athletic/6363009/2025/05/16/red-sox-kristian-campbell-first-base-marcelo-mayer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/16/arts/music/cassie-sean-combs-diddy-trial-testimon
 **You want to get weird? Then this PGA Championship is for you**\
 `Welcome to the 2025 PGA Championship at Quail Hollow, where nothing makes sense and anything is possible.`\
 https://nytimes.com/athletic/6362893/2025/05/16/pga-championship-2025-quail-hollow-weird/
-
-**Audio Data Shows Newark Outage Problems Persisted Longer Than Officials Said**\
-`Times analysis of air traffic recordings and flight data shows that outage-related problems persisted far longer than what the officials have acknowledged.`\
-https://nytimes.com/interactive/2025/05/16/nyregion/newark-airport-outages-audio.html
-
-**Mets' Juan Soto met with boos at Yankee Stadium**\
-`Soto doffed his helmet before stepping into the batter’s box before his first plate appearance in the Bronx as a member of the Mets.`\
-https://nytimes.com/athletic/6362931/2025/05/16/juan-soto-boos-yankee-stadium-mets/
-
-**Severe Storms Batter the Midwest**\
-`Severe weather unleashed hail, damaging winds and tornadoes across large portions of the Midwest and the Mid-Atlantic.`\
-https://nytimes.com/video/weather/100000010175313/storms-midwest-mid-atlantic.html
 
