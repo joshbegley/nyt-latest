@@ -1,3 +1,15 @@
+**Guardiola laments lack of goals in FA Cup final: ‘We did everything’**\
+`Eberechi Eze scored the only goal of the game as Crystal Palace defeated City to win their first ever major trophy.`\
+https://nytimes.com/athletic/6364200/2025/05/17/pep-guardiola-machester-city-fa-cup/
+
+**Claude, representing the Netherlands, is a refugee turned pop star.**\
+`By Claire Moses`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-netherlands-claude
+
+**Celtics' Al Horford not ready to discuss whether he's considering retirement**\
+`"You can’t replace Al,” says Celtics teammate Payton Pritchard of the veteran big man. `\
+https://nytimes.com/athletic/6364151/2025/05/17/celtics-al-horford-retirement-plans-nba-2025-playoffs/
+
 **Liberty raise championship banner, then down Aces to begin title defense**\
 `Newcomer Natasha Cloud impressed with 22 points and nine assists in her Liberty debut.`\
 https://nytimes.com/athletic/6364153/2025/05/17/liberty-aces-wnba-championship-banner/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/17/us/politics/courts-immigrants-venezuelans-garcia-
 **Which act is the safest bet?**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-favotire-kaj-betting
-
-**Capital One to Pay $425 Million to Settle Suits Over Savings Accounts**\
-`Depositors said the bank cheated them out of higher interest rates. As part of the settlement, the bank admitted no wrongdoing and agreed to make up for lost interest earnings.`\
-https://nytimes.com/2025/05/17/business/capital-one-settlement-savings-accounts.html
-
-**The 7 steps to winning Eurovision.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-secrets-to-winning
-
-**Trump Urges Walmart to Absorb Tariffs After Retailer Says It Could Raise Prices**\
-`Walmart, the nation’s largest retailer, is just one of several companies that have said they will be forced to pass on the costs of President Trump’s global tariffs to consumers.`\
-https://nytimes.com/2025/05/17/us/politics/trump-walmart-eat-the-tariffs-prices.html
 
