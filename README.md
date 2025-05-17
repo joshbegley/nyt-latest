@@ -1,3 +1,7 @@
+**Twins extend winning streak to 12 games without Carlos Correa, Byron Buxton in lineup**\
+`Joe Ryan and three relievers struck out 16 batters in a five-hit shutout Friday that improved the Twins' record to 25-20.`\
+https://nytimes.com/athletic/6363280/2025/05/17/twins-extend-winning-streak-12-games-joe-ryan/
+
 **What did Paige Bueckers reveal in her WNBA rookie debut?**\
 `Napheesa Collier starred in the Lynx win, but Dallas was still enamored with the newest UConn star in the WNBA.`\
 https://nytimes.com/athletic/6363336/2025/05/17/paige-bueckers-wnba-rookie-debut-dallas-wings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349461/2025/05/17/crystal-palace-fa-cup-glasner/
 **Brighton's struggle to replace Alexis Mac Allister - what is the solution?**\
 `The midfielder returns to the Amex a title winner. He was always going to be difficult to replace, but there are reasons for optimism`\
 https://nytimes.com/athletic/6358472/2025/05/17/alexis-mac-allister-replacement-brighton/
-
-**Cody Bellinger won't make Yankees fans forget Juan Soto. But he's helping them move on**\
-`In the Subway Series opener, Bellinger extended his hitting streak to 11 games and scored easily on a throw by Soto in a 6-2 win.`\
-https://nytimes.com/athletic/6363175/2025/05/17/yankees-cody-bellinger-juan-soto-subway-series/
 
