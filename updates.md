@@ -1,3 +1,7 @@
+**Russian Drone Attack Kills 9 on Shuttle Bus in Ukraine**\
+`The strike came hours after the first face-to-face talks between Ukrainian and Russian delegations since the early days of the war.`\
+https://nytimes.com/2025/05/17/world/europe/russia-ukraine-putin.html
+
 **Bournemouth's Dean Huijsen agrees £50m Real Madrid transfer**\
 `The 20-year-old is one of Europe's most in-demand young players after impressing for Andoni Iraola's Bournemouth side this season.`\
 https://nytimes.com/athletic/6358549/2025/05/17/bournemouth-dean-huijsen-real-madrid-transfer/
