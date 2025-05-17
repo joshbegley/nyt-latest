@@ -1,3 +1,7 @@
+**Red Bull at 400 races: How five numbers illustrate their Formula One dominance**\
+`Red Bull is set to hit 400 Formula One race starts at this weekend's Imola race. Here's how its successes look in terms of key statistics`\
+https://nytimes.com/athletic/6350594/2025/05/17/red-bull-f1-400-races/
+
 **Flick tells Barca players: 'If you can party, you can play'**\
 `Barca clinched the league title on Thursday with a two-goal victory at Espanyol with an open-top bus parade in Barcelona the following day.`\
 https://nytimes.com/athletic/6363624/2025/05/17/barcelona-la-liga-title-celebrations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-hom
 **Watch: Which WNBA teams could surprise this season?**\
 `No Offseason discuss which WNBA teams could surprise us this season.`\
 https://nytimes.com/athletic/6362255/2025/05/17/no-offseason-wnba-surprises-womens-basketball/
-
-**New Jersey Can Show How to Take On Public Sector Strikes**\
-`Don’t panic. Show resilience.`\
-https://nytimes.com/2025/05/17/opinion/new-jersey-transit-strike.html
 
