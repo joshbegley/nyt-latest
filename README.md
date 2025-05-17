@@ -1,3 +1,7 @@
+**JJ hits some high notes for Austria.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-austria-jj-wasted-love-opera
+
 **Israel’s Entrant Survived the Hamas Attacks of Oct. 7**\
 `Not long after the attacks, Yuval Raphael said, she resolved to follow her long-held dream of becoming a professional singer.`\
 https://nytimes.com/2025/05/17/arts/music/yuval-raphael-israel-eurovision-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/us/politics/trump-walmart-eat-the-tariffs-prices.
 **Deadly Storms Send Tornadoes Spiraling Through Several States**\
 `Several tornadoes tore through Missouri, Kentucky and Virginia, killing at least 23 people.`\
 https://nytimes.com/video/us/100000010175955/tornadoes-missouri-kentucky-storm.html
-
-**Whatever happened to Joost Klein, last year’s jilted Eurovision star?**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-joost-klein
 
