@@ -1,5 +1,5 @@
-**Orioles manager fire Brandon Hyde after 15-28 start to season**\
-`Third base coach Tony Masnolinio will be promoted to interim coach, the team said.`\
+**Orioles fire manager Brandon Hyde after 15-28 start to season**\
+`Baltimore made the playoffs in each of the last two seasons, but is 10 1/2 games out of first in the AL East through 43 games.`\
 https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-orioles-manager-news/
 
 **Henry Ford’s great-great grandson completes Livingston takeover**\
