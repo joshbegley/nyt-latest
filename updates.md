@@ -1,3 +1,7 @@
+**Long Drives and Short Homilies: How Father Bob Became Pope Leo**\
+`A résumé of deep religious education, frontline pastoral experience, parish management and Vatican governance — along with a nudge from Pope Francis — put Robert Prevost on the fast track.`\
+https://nytimes.com/2025/05/17/world/europe/robert-prevost-pope-leo-xiv.html
+
 **India Is Accused of Inhumanely Deporting Rohingya Refugees**\
 `The allegations, which include being pushed into the sea off Myanmar with only life jackets, have prompted a call from the United Nations for an investigation.`\
 https://nytimes.com/2025/05/17/world/asia/india-rohingya-sea-deport.html
