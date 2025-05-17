@@ -1,3 +1,7 @@
+**Mohamed withdraws from Nantes squad over LGBTQ+ initiative**\
+`French clubs will wear rainbow-coloured armbands as part of International Day Against Homophobia, Biphobia and Transphobia, on May 17.`\
+https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-homophobia/
+
 **Watch: Which WNBA teams could surprise this season?**\
 `No Offseason discuss which WNBA teams could surprise us this season.`\
 https://nytimes.com/athletic/6362255/2025/05/17/no-offseason-wnba-surprises-womens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/opinion/black-history-museum-trump.html
 **Signalgate? Here’s an Even Bigger Trump Scandal in Yemen.**\
 `The United States supposedly can’t afford $1 a day to save starving children, but Biden and Trump squandered $7 billion bombing Yemenis.`\
 https://nytimes.com/2025/05/17/opinion/yemen-war-trump.html
-
-**Why We’re Rooting for Germany’s Conservative Chancellor**\
-`Friedrich Merz and Germany’s political establishment must unite the center to ward off the far right.`\
-https://nytimes.com/2025/05/17/opinion/merz-germany-chancellor.html
 
