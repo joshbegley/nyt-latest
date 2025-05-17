@@ -1,3 +1,11 @@
+**Imola GP qualifying: Piastri takes pole, Ferrari's Saturday miseries continue**\
+`An odd qualifying (featuring crashes and delays) ended with a familiar front row and more frustration for the home team`\
+https://nytimes.com/athletic/6363796/2025/05/17/imola-gp-qualifying-2025-result/
+
+**Dortmund qualify for UCL on final day of Bundesliga season**\
+`Dortmund had been outside the Bundesliga’s top-four since the third game of the season but secured their place on the final day.`\
+https://nytimes.com/athletic/6363937/2025/05/17/dortmund-champions-league-qualify/
+
 **Republican Hypocrisy Reaches Into the Countryside**\
 `You might assume that Trump would prioritize the interests of rural voters.`\
 https://nytimes.com/2025/05/17/opinion/trump-rural-voters-budget.html
