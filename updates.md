@@ -1,3 +1,7 @@
+**Knicks wallop Celtics 119-81 for first conference finals berth in 25 years**\
+`The Knicks advance to face the Pacers, who bounced New York from the playoffs last year.`\
+https://nytimes.com/athletic/6362992/2025/05/16/nba-playoffs-takeaways-knicks-celtics-game-6/
+
 **Audio of Special Counsel Interview Adds to Renewed Debate of Biden’s Fitness as President**\
 `A 2023 audio recording released by Axios comes on the heels of other recent disclosures that have prompted recriminations among Democrats over their handling of the matter.`\
 https://nytimes.com/2025/05/16/us/politics/biden-audio-fitness-debate.html

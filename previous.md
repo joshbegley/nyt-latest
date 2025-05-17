@@ -1,3 +1,7 @@
+**Knicks wallop Celtics 119-81 for first conference finals berth in 25 years**\
+`The Knicks advance to face the Pacers, who bounced New York from the playoffs last year.`\
+https://nytimes.com/athletic/6362992/2025/05/16/nba-playoffs-takeaways-knicks-celtics-game-6/
+
 **Audio of Special Counsel Interview Adds to Renewed Debate of Biden’s Fitness as President**\
 `A 2023 audio recording released by Axios comes on the heels of other recent disclosures that have prompted recriminations among Democrats over their handling of the matter.`\
 https://nytimes.com/2025/05/16/us/politics/biden-audio-fitness-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/crosswords/daily-puzzle-2025-05-17.html
 **Ottawa Charge eliminate Montreal Victoire to reach PWHL Finals: Takeaways**\
 `The Charge will advance to the PWHL Finals after a 2-1 win against the Victoire in Game 4 of the semifinals on Friday night.`\
 https://nytimes.com/athletic/6363086/2025/05/16/ottawa-charge-montreal-victoire-pwhl-playoffs-game-4-takeaways/
-
-**Kristian Campbell gets work at first base, perhaps opening second base for Marcelo Mayer**\
-`Campbell did first-base drills before Friday's game in Boston while Mayer prepared for his sixth start at second for Triple-A Worcester.`\
-https://nytimes.com/athletic/6363009/2025/05/16/red-sox-kristian-campbell-first-base-marcelo-mayer/
 
