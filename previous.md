@@ -1,3 +1,7 @@
+**With the Mets bullpen facing adversity, Edwin Díaz is providing the spark**\
+`"He was electric today," Mets first baseman Pete Alonso said after Díaz threw 17 pitches, including 10 strikes, in a 1-2-3 ninth inning.`\
+https://nytimes.com/athletic/6364324/2025/05/17/mets-yankees-bullpen-edwin-diaz/
+
 **‘Not Normal’: Wall of Dust Races Across Central Illinois and Pushes Into Chicago**\
 `Day turned to night in northwest Indiana and north-central Illinois on Friday as a rare dust storm shrouded the skies.`\
 https://nytimes.com/2025/05/17/weather/chicago-dust-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/sweden-eur
 **To stay in the competition, Malta had to change the lyrics.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-malta-miriana-conte-serving
-
-**Mercury lose Kahleah Copper for 4-6 weeks, adding to roster shakeups**\
-`The Mercury will take the floor against the Seattle Storm on Saturday with zero players from 2024, plus three rookies.`\
-https://nytimes.com/athletic/6364177/2025/05/17/kahleah-copper-injury-mercury-wnba-season-opener/
 
