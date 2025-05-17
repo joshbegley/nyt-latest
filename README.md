@@ -1,3 +1,7 @@
+**Republican Hypocrisy Reaches Into the Countryside**\
+`You might assume that Trump would prioritize the interests of rural voters.`\
+https://nytimes.com/2025/05/17/opinion/trump-rural-voters-budget.html
+
 **Three Iranians Accused of Targeting People in Britain**\
 `The charges against the men come as concerns have grown about Iranian operatives carrying out operations against British residents and citizens.`\
 https://nytimes.com/2025/05/17/world/europe/britain-arrests-iranians-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/us/trump-news
 **Conor Bradley signs new four-year Liverpool deal**\
 `Bradley is set to take on a greater role next season with Trent Alexander-Arnold leaving on a free transfer this summer to join Real Madrid.`\
 https://nytimes.com/athletic/6363709/2025/05/17/conor-bradley-liverpool-contract-new/
-
-**Red Bull at 400 races: How five numbers illustrate their Formula One dominance**\
-`Red Bull is set to hit 400 Formula One race starts at this weekend's Imola race. Here's how its successes look in terms of key statistics`\
-https://nytimes.com/athletic/6350594/2025/05/17/red-bull-f1-400-races/
 
