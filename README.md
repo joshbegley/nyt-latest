@@ -1,3 +1,7 @@
+**One Person Dead in Explosion Outside Palm Springs Fertility Clinic**\
+`The mayor of Palm Springs, Calif., said it was unclear how or whether the victim was connected to a blast that damaged a fertility clinic.`\
+https://nytimes.com/video/us/100000010176236/palm-springs-explosion-fertility.html
+
 **The potential Pete Crow-Armstrong MVP season is starting to happen for the Cubs**\
 `"Every time he comes up to the plate," Cubs catcher Carson Kelly said, "you know something awesome might happen."`\
 https://nytimes.com/athletic/6364378/2025/05/17/pete-crow-armstrong-mvp-season-beginning-chicago-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/now-its-ti
 **Caitlin Clark receives flagrant for hacking Angel Reese in season opener**\
 `"Nothing malicious about it. It was just a good take foul. Every basketball player knows that," Clark told ESPN after the third quarter.`\
 https://nytimes.com/athletic/6364234/2025/05/17/caitlin-clark-angel-reese-flagrant-foul/
-
-**France’s act wants to tell her mother she’s OK.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/france-eurovision-louane-maman
 
