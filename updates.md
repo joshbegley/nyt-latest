@@ -1,3 +1,11 @@
+**'There’s more to go': Inside the players-only meeting that changed the Knicks' direction**\
+`Before their Game 5 loss in Boston, people around the Knicks noticed their lack of intensity. A meeting before Game 6 shifted their focus.`\
+https://nytimes.com/athletic/6363425/2025/05/17/knicks-advance-celtics-conference-finals/
+
+**Wilmer Flores joins legendary Giants list with 3 home runs, 8 RBIs in win**\
+`It was the first three-homer and 8 RBI game by a Giant since Joc Pederson in 2022, which itself was the first since Willie Mays' in 1961.`\
+https://nytimes.com/athletic/6363326/2025/05/17/wilmer-flores-giants-three-home-run-game/
+
 **Trump Administration Live Updates: Secret Service Questions Comey Over Social Media Post About President**\
 ``\
 https://nytimes.com/live/2025/05/17/us/trump-news
