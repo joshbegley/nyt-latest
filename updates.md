@@ -1,3 +1,7 @@
+**Now it’s time to vote.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/now-its-time-to-vote
+
 **Caitlin Clark recieves flagrant for hacking Angel Reese in season opener**\
 `"Nothing malicious about it. It was just a good take foul. Every basketball player knows that," Clark told ESPN after the third quarter.`\
 https://nytimes.com/athletic/6364234/2025/05/17/caitlin-clark-angel-reese-flagrant-foul/
