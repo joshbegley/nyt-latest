@@ -1,3 +1,11 @@
+**Another tough night for Tylor Megill raises questions about his sustainability**\
+`Megill looked a lot like the frustrating pitcher he was in the middle of last summer.`\
+https://nytimes.com/athletic/6363189/2025/05/17/mets-tylor-megill-struggles-yankees/
+
+**Afraid of failure? Olympic gold medalist Olivia Smoliga can help**\
+`Editor’s Note: This story is a part of Peak, The Athletic’s new desk covering leadership, personal development and success through the lens of sports.`\
+https://nytimes.com/athletic/6360011/2025/05/17/afraid-of-failure-olympic-gold-medalist-olivia-smoliga-can-help/
+
 **How the atmosphere at Chelsea has been transformed in the space of 12 months**\
 `Not every Chelsea supporters has been won over, but internally the Enzo Maresca era at the club is being viewed extremely positively`\
 https://nytimes.com/athletic/6363445/2025/05/17/how-the-atmosphere-at-chelsea-has-been-transformed-in-the-space-of-12-months/
