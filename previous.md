@@ -1,3 +1,11 @@
+**Deadly Storms Send Tornadoes Spiraling Through Several States**\
+`Several tornadoes tore through Missouri, Kentucky and Virginia, killing at least 23 people.`\
+https://nytimes.com/video/us/100000010175955/tornadoes-missouri-kentucky-storm.html
+
+**Whatever happened to Joost Klein, last year’s jilted Eurovision star?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-joost-klein
+
 **Aberdeen's MacKenzie bloodied after being struck by seat thrown by own fans**\
 `MacKenzie, an unused substitute, received treatment on the pitch after being struck by the projectile from the away section of the stadium.`\
 https://nytimes.com/athletic/6363926/2025/05/17/aberdeen-dundee-united-fan-trouble/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6364052/2025/05/17/dean-henderson-crystal-palace-fa
 **Lewis Hamilton ‘devastated’ by poor Imola GP qualifying in first Ferrari home race**\
 `Ferrari's Lewis Hamilton did not hold back after being eliminated early in F1 qualifying for the Imola GP. He'll start the race in 12th`\
 https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poor-imola-gp-qualifying-in-first-ferrari-home-race/
-
-**Mark Scheifele’s Game 6 status for Jets uncertain following death of his father**\
-`Coach Scott Arniel is scheduled to address reporters at 4:30 p.m. Central.`\
-https://nytimes.com/athletic/6364047/2025/05/17/mark-scheifele-father-game-6/
-
-**Why Eurovision can’t escape politics.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-ebu-politics
 
