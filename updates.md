@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, May 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/17/todays-new-york-times
+
 **Valkyries drop WNBA opener in a party not even the Sparks could spoil**\
 `This night wasn’t about wins and losses. It was about the dawning of an era.`\
 https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnba-expansion/
