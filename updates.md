@@ -1,3 +1,7 @@
+**Henry Ford’s great-great grandson completes Livingston takeover**\
+`Livingston play in the Scottish Championship, the second tier of Scottish football.`\
+https://nytimes.com/athletic/6363952/2025/05/17/livingston-calvin-ford-chairman/
+
 **Jonnie Boer, Dutch Chef With 3 Michelin Stars, Is Dead at 60**\
 `Long before the New Nordic movement, he saw the value in humble ingredients. So did anyone who ate at De Librije, his acclaimed restaurant in the Netherlands.`\
 https://nytimes.com/2025/05/17/dining/jonnie-boer-dead-chef.html
