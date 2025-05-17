@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/16/us/politics/biden-audio-fitness-debate.html
 `Greatness came in many forms in the opening game of the 2025 season between Dallas and Minnesota.`\
 https://nytimes.com/athletic/6363096/2025/05/16/paige-bueckers-wnba-debut-lynx-wings/
 
-**Leafs stay alive, force Game 7 with win over Panthers in Game 6: Takeaways**\
+**Leafs stay alive, force Game 7 with win over Panthers: Takeaways**\
 `Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Game 7 on Sunday.`\
 https://nytimes.com/athletic/6360716/2025/05/16/maple-leafs-panthers-nhl-playoffs-2025-game-6-takeaways/
 
