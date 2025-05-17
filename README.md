@@ -1,3 +1,15 @@
+**Matthew Knies injury uncertainty looms for Leafs after forcing Game 7**\
+`“We don’t know right now ... he’s dealing with something,” coach Craig Berube said of Knies’ injury and his status for Game 7 on Sunday.`\
+https://nytimes.com/athletic/6363243/2025/05/17/maple-leafs-matthew-knies-injury-nhl-playoffs/
+
+**Gunfire in Gaza After Israel Said Its Troops Were Mobilizing**\
+`The shots were heard in central Gaza early Saturday, hours after the Israeli military said its troops were preparing for a major advance into the territory.`\
+https://nytimes.com/2025/05/17/world/middleeast/israel-troops-gaza.html
+
+**Luis Diaz is Liverpool's No 9 for now - but should he stay there?**\
+`It is widely assumed Arne Slot will be in the market for a striker this summer but in the meantime the Colombian is staking his claim `\
+https://nytimes.com/athletic/6350239/2025/05/17/luis-diaz-liverpool-striker-transfer/
+
 **Ranking Manchester City's modern Wembley cup finals: From Wigan despair to Toure's triumph**\
 `City have played in 11 FA Cup and League Cup finals since 2011 - Thom Harris attempts to put them into some sort of order...`\
 https://nytimes.com/athletic/6358510/2025/05/17/manchester-city-wembley-cup-finals-ranked/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6352832/2025/05/17/bradford-city-promotion-mental-h
 **Real Madrid's Raul Asencio and the sex-tape allegations against him - key questions answered**\
 `What are the allegations against him, who else is involved and will Real Madrid and Spain keep picking him?`\
 https://nytimes.com/athletic/6361362/2025/05/17/real-madrid-raul-asencio-sex-tape-allegations/
-
-**A curry, a Carling and a table in front of the TV – touring Wolves manager Pereira's favourite pubs**\
-`Wolves' head coach enjoys a post-match pint with the fans, so what is it like when a Premier League boss calls into your local?`\
-https://nytimes.com/athletic/6347344/2025/05/17/vitor-pereira-pubs-wolverhampton/
-
-**Man United's Leah Galton - Winning FA Cup with fractured leg and chasing a 'bit of revenge' against Chelsea**\
-`Ahead of the FA Cup final, the winger spoke about recovering from injury and attempting to win the trophy again`\
-https://nytimes.com/athletic/6361070/2025/05/17/leah-galton-interview-ratcliffe-injury-chelsea/
-
-**Kepner: Juan Soto gets a ring, Yankees get a win — and the rivalry gets a long-term jolt**\
-`An hour and 20 minutes before first pitch in the Bronx on Friday, Soto, the $765 million Met, got his final gift from the Yankees.`\
-https://nytimes.com/athletic/6363215/2025/05/17/yankees-mets-subway-series-juan-soto/
 
