@@ -1,3 +1,7 @@
+**Long Drives and Short Homilies: How Father Bob Became Pope Leo**\
+`A résumé of deep religious education, frontline pastoral experience, parish management and Vatican governance — along with a nudge from Pope Francis — put Robert Prevost on the fast track.`\
+https://nytimes.com/2025/05/17/world/europe/robert-prevost-pope-leo-xiv.html
+
 **India Is Accused of Inhumanely Deporting Rohingya Refugees**\
 `The allegations, which include being pushed into the sea off Myanmar with only life jackets, have prompted a call from the United Nations for an investigation.`\
 https://nytimes.com/2025/05/17/world/asia/india-rohingya-sea-deport.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/magazine/donald-trump-language-gimme-qatar.html
 **How the Indian Media Amplified Falsehoods in the Drumbeat of War**\
 `During the conflict between India and Pakistan, even some long-trusted outlets reported unverified information and fabricated stories.`\
 https://nytimes.com/2025/05/17/world/asia/india-news-media-misinformation.html
-
-**Trump Wants a Deal With Iran, but It May Be Weaker Than His Supporters Demand**\
-`Iran rejects any deal that would ban it from any nuclear enrichment, long a demand of U.S. conservatives.`\
-https://nytimes.com/2025/05/17/world/europe/trump-iran-nuclear-talks.html
 
