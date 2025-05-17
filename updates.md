@@ -1,3 +1,11 @@
+**How Yankees’ DJ LeMahieu looks different — which is a good thing**\
+`LeMahieu hit his first home run since July and is performing well in the field and at the plate after finally getting healthy.`\
+https://nytimes.com/athletic/6364380/2025/05/17/yankees-dj-lemahieu-subway-series/
+
+**Journalism claims 150th Preakness Stakes with remarkable comeback**\
+`Journalism, the Kentucky Derby runner-up, was the favorite to win.`\
+https://nytimes.com/athletic/6364365/2025/05/17/journalism-wins-150th-preakness-stakes/
+
 **One Person Dead in Explosion Outside Palm Springs Fertility Clinic**\
 `The mayor of Palm Springs, Calif., said it was unclear how or whether the victim was connected to a blast that damaged a fertility clinic.`\
 https://nytimes.com/video/us/100000010176236/palm-springs-explosion-fertility.html
