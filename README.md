@@ -1,3 +1,7 @@
+**How the atmosphere at Chelsea has been transformed in the space of 12 months**\
+`Not every Chelsea supporters has been won over, but internally the Enzo Maresca era at the club is being viewed extremely positively`\
+https://nytimes.com/athletic/6363445/2025/05/17/how-the-atmosphere-at-chelsea-has-been-transformed-in-the-space-of-12-months/
+
 **Spring Fling**\
 `Spring cleaning clears space in our homes and heads. How will we fill it?`\
 https://nytimes.com/2025/05/17/briefing/spring-fling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363184/2025/05/17/garrett-crochet-chris-sale-red-s
 **Mirtle: How the Maple Leafs forced Game 7 — and how they can win it**\
 `The Leafs played like a team with their season on the line in Game 6. Now they have to commit to doing it all over again to win Game 7.`\
 https://nytimes.com/athletic/6363228/2025/05/17/maple-leafs-nhl-playoffs-game-7/
-
-**America’s New Ambassador to Canada Tamps Down Annexation Talk**\
-`Despite his friendly tone, Pete Hoekstra offered no indication of when, or if, the United States will remove its tariffs against Canada.`\
-https://nytimes.com/2025/05/17/world/canada/us-ambassador-canada-51st-state.html
 
