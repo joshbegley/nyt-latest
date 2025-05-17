@@ -1,3 +1,7 @@
+**Frimpong set for Liverpool medical after agreeing five-year deal**\
+`Frimpong's Leverkusen contract contains a €35million (£29.6m;$39.3m) release clause.`\
+https://nytimes.com/athletic/5843414/2025/05/17/jeremie-frimpong-liverpool-transfer-latest-leverkusen/
+
 **Basel swaps high art for high camp.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-basel-switzerland
