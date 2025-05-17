@@ -1,3 +1,7 @@
+**Russian Troops Are War-Weary, but Want to Conquer More of Ukraine**\
+`Many Russian soldiers say they would see a cease-fire along the current front lines as a failure, hinting at the nationalist discontent the Kremlin could face in accepting a cease-fire.`\
+https://nytimes.com/2025/05/17/world/europe/russian-troops-peace-putin.html
+
 **Long Drives and Short Homilies: How Father Bob Became Pope Leo**\
 `A résumé of deep religious education, frontline pastoral experience, parish management and Vatican governance — along with a nudge from Pope Francis — put Robert Prevost on the fast track.`\
 https://nytimes.com/2025/05/17/world/europe/robert-prevost-pope-leo-xiv.html

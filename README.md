@@ -1,3 +1,27 @@
+**Bryce Harper reaches 1,000 RBIs as he and Phillies stay patient, grind out a win**\
+`It's another shiny stat on his resume. Another display of what Harper was brought to Philly to do. Another step toward where he wants to be.`\
+https://nytimes.com/athletic/6363337/2025/05/17/bryce-harper-1000-rbis-phillies-pirates/
+
+**Madrid confirm signing of Bournemouth’s Huijsen in £50m deal**\
+`The 20-year-old is one of Europe's most in-demand young players after impressing for Andoni Iraola's Bournemouth side this season.`\
+https://nytimes.com/athletic/6358549/2025/05/17/bournemouth-dean-huijsen-real-madrid-transfer/
+
+**Mirtle: How the Maple Leafs forced Game 7 — and how they can win it**\
+`The Leafs played like a team with their season on the line in Game 6. Now they have to commit to doing it all over again to win Game 7.`\
+https://nytimes.com/athletic/6363228/2025/05/17/maple-leafs-nhl-playoffs-game-7/
+
+**America’s New Ambassador to Canada Tamps Down Annexation Talk**\
+`Despite his friendly tone, Pete Hoekstra offered no indication of when, or if, the United States will remove its tariffs against Canada.`\
+https://nytimes.com/2025/05/17/world/canada/us-ambassador-canada-51st-state.html
+
+**Connections Companion No. 707**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 18, 2025.`\
+https://nytimes.com/2025/05/17/crosswords/connections-companion-707.html
+
+**Wordle Review No. 1,429**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 18, 2025.`\
+https://nytimes.com/2025/05/17/crosswords/wordle-review-1429.html
+
 **Russian Troops Are War-Weary, but Want to Conquer More of Ukraine**\
 `Many Russian soldiers say they would see a cease-fire along the current front lines as a failure, hinting at the nationalist discontent the Kremlin could face in accepting a cease-fire.`\
 https://nytimes.com/2025/05/17/world/europe/russian-troops-peace-putin.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/17/world/asia/india-rohingya-sea-deport.html
 **Rutger Bregman Wants to Save Elites From Their Wasted Lives**\
 `The historian is on a mission to get the best and brightest out of their lucrative jobs and into morally ambitious work.`\
 https://nytimes.com/2025/05/17/magazine/rutger-bregman-interview.html
-
-**Breathe In, Breathe Out, Good Night: TikTok Invites Users to Meditate**\
-`Facing allegations that it knowingly lures young users into late-night scroll sessions, the company unveiled a new guided-meditation feature in the app.`\
-https://nytimes.com/2025/05/17/style/tiktok-guided-meditation-sleep.html
-
-**Jets at Stars Game 6 picks, odds, how to watch info: Can Winnipeg force a Game 7?**\
-`Dallas gets a second shot to close out Winnipeg, this time at home. Can the Jets force a Game 7 back in Canada?`\
-https://nytimes.com/athletic/6362047/2025/05/17/jets-stars-game-6-picks-odds-how-to-watch/
-
-**Education Secretary Wants Talks With Harvard to Resume, Without Giving Ground**\
-`Linda McMahon, President Trump’s top education official, has played a leading role in pressuring the Ivy League university to comply with the administration’s demands.`\
-https://nytimes.com/2025/05/17/us/politics/linda-mcmahon-harvard-trump.html
-
-**‘A Slap in the Face’: Iranians Watched Trump’s Mideast Tour With Envy**\
-`For some, President Trump’s visits to Arab nations, Iran’s regional rivals, only made their country’s acute energy and economic crises harder to bear.`\
-https://nytimes.com/2025/05/17/world/middleeast/trump-iran-sanctions-energy-mideast.html
-
-**Duffy Blamed Biden for Air Traffic Woes. It’s a Decades-Old Problem.**\
-`The federal government has taken a reactive approach to aviation policy, often leading to delays in modernization efforts and inadequate staffing and funding.`\
-https://nytimes.com/2025/05/17/us/politics/air-traffic-control-faa-newark-biden.html
-
-**‘Gimme’: A Word That Explains the President’s Worldview**\
-`The term helps explain why he sees little difference between accepting a putt and accepting a plane.`\
-https://nytimes.com/2025/05/17/magazine/donald-trump-language-gimme-qatar.html
 

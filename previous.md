@@ -1,3 +1,7 @@
+**Russian Troops Are War-Weary, but Want to Conquer More of Ukraine**\
+`Many Russian soldiers say they would see a cease-fire along the current front lines as a failure, hinting at the nationalist discontent the Kremlin could face in accepting a cease-fire.`\
+https://nytimes.com/2025/05/17/world/europe/russian-troops-peace-putin.html
+
 **Long Drives and Short Homilies: How Father Bob Became Pope Leo**\
 `A résumé of deep religious education, frontline pastoral experience, parish management and Vatican governance — along with a nudge from Pope Francis — put Robert Prevost on the fast track.`\
 https://nytimes.com/2025/05/17/world/europe/robert-prevost-pope-leo-xiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/us/politics/air-traffic-control-faa-newark-biden.
 **‘Gimme’: A Word That Explains the President’s Worldview**\
 `The term helps explain why he sees little difference between accepting a putt and accepting a plane.`\
 https://nytimes.com/2025/05/17/magazine/donald-trump-language-gimme-qatar.html
-
-**How the Indian Media Amplified Falsehoods in the Drumbeat of War**\
-`During the conflict between India and Pakistan, even some long-trusted outlets reported unverified information and fabricated stories.`\
-https://nytimes.com/2025/05/17/world/asia/india-news-media-misinformation.html
 
