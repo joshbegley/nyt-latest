@@ -1,3 +1,11 @@
+**Buckley: Celtics cope with ugly defeat and reality that it may be curtains for this roster**\
+`The added penalty to this crushing series loss is that nobody has any idea what the Celtics’ roster will look like next season.`\
+https://nytimes.com/athletic/6363356/2025/05/17/celtics-knicks-nba-playoffs-game-6-rout-jaylen-brown/
+
+**Who should start for Tottenham Hotspur in the Europa League final on Wednesday?**\
+`Ange Postecoglou rested most of his key players for Spurs' trip to Aston Villa but there are still some important decisions to be made`\
+https://nytimes.com/athletic/6362946/2025/05/17/who-should-start-tottenham-europa-final/
+
 **Another evening in Manchester United's interminable holding pattern ahead of the Europa League final**\
 `United look unlikely to even reach the 40-point mark in the Premier League this season — so it all comes down to Wednesday night in Bilbao`\
 https://nytimes.com/athletic/6363121/2025/05/17/manchester-united-europa-holding-pattern-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnb
 **Matthew Knies injury uncertainty looms for Leafs after forcing Game 7**\
 `“We don’t know right now ... he’s dealing with something,” coach Craig Berube said of Knies’ injury and his status for Game 7 on Sunday.`\
 https://nytimes.com/athletic/6363243/2025/05/17/maple-leafs-matthew-knies-injury-nhl-playoffs/
-
-**Gunfire in Gaza After Israel Said Its Troops Were Mobilizing**\
-`The shots were heard in central Gaza early Saturday, hours after the Israeli military said its troops were preparing for a major advance into the territory.`\
-https://nytimes.com/2025/05/17/world/middleeast/israel-troops-gaza.html
-
-**Luis Diaz is Liverpool's No 9 for now - but should he stay there?**\
-`It is widely assumed Arne Slot will be in the market for a striker this summer but in the meantime the Colombian is staking his claim `\
-https://nytimes.com/athletic/6350239/2025/05/17/luis-diaz-liverpool-striker-transfer/
 
