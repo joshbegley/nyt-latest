@@ -1,3 +1,7 @@
+**Journalism wins 150th Preakness Stakes**\
+`Journalism, the Kentucky Derby runner-up, was the favorite to win.`\
+https://nytimes.com/athletic/6364365/2025/05/17/journalism-wins-150th-preakness-stakes/
+
 **With the Mets bullpen facing adversity, Edwin Díaz is providing the spark**\
 `"He was electric today," Mets first baseman Pete Alonso said after Díaz threw 17 pitches, including 10 strikes, in a 1-2-3 ninth inning.`\
 https://nytimes.com/athletic/6364324/2025/05/17/mets-yankees-bullpen-edwin-diaz/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/france-eur
 **Kaj: A Finnish band, representing Sweden.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/sweden-eurovision-kaj-sauna
-
-**To stay in the competition, Malta had to change the lyrics.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-malta-miriana-conte-serving
 
