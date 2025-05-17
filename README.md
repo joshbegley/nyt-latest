@@ -1,3 +1,7 @@
+**Jonnie Boer, Dutch Chef With 3 Michelin Stars, Is Dead at 60**\
+`Long before the New Nordic movement, he saw the value in humble ingredients. So did anyone who ate at De Librije, his acclaimed restaurant in the Netherlands.`\
+https://nytimes.com/2025/05/17/dining/jonnie-boer-dead-chef.html
+
 **Imola GP qualifying: Piastri takes pole, Ferrari's Saturday miseries continue**\
 `An odd qualifying (featuring crashes and delays) ended with a familiar front row and more frustration for the home team`\
 https://nytimes.com/athletic/6363796/2025/05/17/imola-gp-qualifying-2025-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363746/2025/05/17/ashley-young-everton-exit/
 **'There’s more to go': Inside the players-only meeting that changed the Knicks' direction**\
 `Before their Game 5 loss in Boston, people around the Knicks noticed their lack of intensity. A meeting before Game 6 shifted their focus.`\
 https://nytimes.com/athletic/6363425/2025/05/17/knicks-advance-celtics-conference-finals/
-
-**Wilmer Flores joins legendary Giants list with 3 home runs, 8 RBIs in win**\
-`It was the first three-homer and 8 RBI game by a Giant since Joc Pederson in 2022, which itself was the first since Willie Mays' in 1961.`\
-https://nytimes.com/athletic/6363326/2025/05/17/wilmer-flores-giants-three-home-run-game/
 
