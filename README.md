@@ -1,3 +1,7 @@
+**Now it’s time to vote.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/now-its-time-to-vote
+
 **Caitlin Clark recieves flagrant for hacking Angel Reese in season opener**\
 `"Nothing malicious about it. It was just a good take foul. Every basketball player knows that," Clark told ESPN after the third quarter.`\
 https://nytimes.com/athletic/6364234/2025/05/17/caitlin-clark-angel-reese-flagrant-foul/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364200/2025/05/17/pep-guardiola-machester-city-fa-
 **Claude, representing the Netherlands, is a refugee turned pop star.**\
 `By Claire Moses`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-netherlands-claude
-
-**Celtics' Al Horford not ready to discuss whether he's considering retirement**\
-`"You can’t replace Al,” says Celtics teammate Payton Pritchard of the veteran big man. `\
-https://nytimes.com/athletic/6364151/2025/05/17/celtics-al-horford-retirement-plans-nba-2025-playoffs/
 
