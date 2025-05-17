@@ -1,3 +1,7 @@
+**What did Paige Bueckers reveal in her WNBA rookie debut?**\
+`Napheesa Collier starred in the Lynx win, but Dallas was still enamored with the newest UConn star in the WNBA.`\
+https://nytimes.com/athletic/6363336/2025/05/17/paige-bueckers-wnba-rookie-debut-dallas-wings/
+
 **The New York Times in Print for Saturday, May 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358472/2025/05/17/alexis-mac-allister-replacement-
 **Cody Bellinger won't make Yankees fans forget Juan Soto. But he's helping them move on**\
 `In the Subway Series opener, Bellinger extended his hitting streak to 11 games and scored easily on a throw by Soto in a 6-2 win.`\
 https://nytimes.com/athletic/6363175/2025/05/17/yankees-cody-bellinger-juan-soto-subway-series/
-
-**Archibald Leitch: The forgotten godfather of Goodison Park and Britain's football stadiums**\
-`Archibald Leitch passed away in 1939 but his legacy is still visible at football stadiums throughout Britain`\
-https://nytimes.com/athletic/6358929/2025/05/17/archibald-leitch-goodison-ibrox-football-stadiums/
 

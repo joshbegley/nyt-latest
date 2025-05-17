@@ -1,3 +1,7 @@
+**What did Paige Bueckers reveal in her WNBA rookie debut?**\
+`Napheesa Collier starred in the Lynx win, but Dallas was still enamored with the newest UConn star in the WNBA.`\
+https://nytimes.com/athletic/6363336/2025/05/17/paige-bueckers-wnba-rookie-debut-dallas-wings/
+
 **The New York Times in Print for Saturday, May 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/17/todays-new-york-times
