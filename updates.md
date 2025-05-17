@@ -1,3 +1,7 @@
+**‘Not Normal’: Wall of Dust Races Across Central Illinois and Pushes Into Chicago**\
+`Day turned to night in northwest Indiana and north-central Illinois on Friday as a rare dust storm shrouded the skies.`\
+https://nytimes.com/2025/05/17/weather/chicago-dust-storm.html
+
 **Halve the Last Word**\
 `Garrett Chalfin’s puzzle is greater than the sum of its parts.`\
 https://nytimes.com/2025/05/17/crosswords/daily-puzzle-2025-05-18.html
