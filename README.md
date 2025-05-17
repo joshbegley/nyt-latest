@@ -1,3 +1,11 @@
+**Audio of Special Counsel Interview Adds to Renewed Debate of Biden’s Fitness as President**\
+`A 2023 audio recording released by Axios comes on the heels of other recent disclosures that have prompted recriminations among Democrats over their handling of the matter.`\
+https://nytimes.com/2025/05/16/us/politics/biden-audio-fitness-debate.html
+
+**Paige Bueckers shows promise in WNBA debut as Wings fall to Lynx**\
+`Greatness came in many forms in the opening game of the 2025 season between Dallas and Minnesota.`\
+https://nytimes.com/athletic/6363096/2025/05/16/paige-bueckers-wnba-debut-lynx-wings/
+
 **Leafs stay alive, force Game 7 with win over Panthers in Game 6: Takeaways**\
 `Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Game 7 on Sunday.`\
 https://nytimes.com/athletic/6360716/2025/05/16/maple-leafs-panthers-nhl-playoffs-2025-game-6-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6363086/2025/05/16/ottawa-charge-montreal-victoire-
 **Kristian Campbell gets work at first base, perhaps opening second base for Marcelo Mayer**\
 `Campbell did first-base drills before Friday's game in Boston while Mayer prepared for his sixth start at second for Triple-A Worcester.`\
 https://nytimes.com/athletic/6363009/2025/05/16/red-sox-kristian-campbell-first-base-marcelo-mayer/
-
-**Pitching position players' Shohei Ohtani strikeout balls: Priceless treasures**\
-`Striking out Ohtani is an accomplishment for anyone, but for a position player it's a moment that produces a particularly special keepsake`\
-https://nytimes.com/athletic/6362863/2025/05/16/shohei-ohtani-strikeout-ball-pereda/
-
-**Cubs' youth movement out in full force at Wrigley Field with Pete Crow-Armstrong, Cade Horton**\
-`Crow-Armstrong went 4-for-5 with a home run and six RBIs, and Horton got the win in Friday's 13-3 victory over the White Sox.`\
-https://nytimes.com/athletic/6362932/2025/05/16/cubs-youth-movement-pete-crow-armstrong-cade-horton/
 
