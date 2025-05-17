@@ -1,3 +1,11 @@
+**Bournemouth's Dean Huijsen agrees £50m Real Madrid transfer**\
+`The 20-year-old is one of Europe's most in-demand young players after impressing for Andoni Iraola's Bournemouth side this season.`\
+https://nytimes.com/athletic/6358549/2025/05/17/bournemouth-dean-huijsen-real-madrid-transfer/
+
+**Everton fans: What do you think about the naming of Hill Dickinson Stadium?**\
+`Discuss the naming rights decision for Everton's new stadium here`\
+https://nytimes.com/athletic/6363446/2025/05/17/everton-new-stadium-naming-rights/
+
 **The reality of the new NBA caught up with the Celtics, who might have to find a new way**\
 `The Celtics' season went so well, then fell apart in May. The league is designed to force them to make changes, so how will that take shape?`\
 https://nytimes.com/athletic/6363398/2025/05/17/celtics-lose-game-6-to-knicks/
