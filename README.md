@@ -1,3 +1,7 @@
+**Combs Defense Seeks to Undermine Cassie’s Rape Allegation as Testimony Ends**\
+`The singer spent four days on the stand recounting what she described as an 11-year relationship in which she came to feel more like a sex worker than a girlfriend.`\
+https://nytimes.com/2025/05/16/arts/music/cassie-sean-combs-diddy-trial-testimony.html
+
 **You want to get weird? Then this PGA Championship is for you**\
 `Welcome to the 2025 PGA Championship at Quail Hollow, where nothing makes sense and anything is possible.`\
 https://nytimes.com/athletic/6362893/2025/05/16/pga-championship-2025-quail-hollow-weird/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/16/nyregion/new-jersey-girl-dog-cage.html
 **George has done enough to start up front against Forest — Maresca**\
 `George played as a striker in Chelsea’s 1-0 win over Manchester United on Friday, replacing the suspended Nicolas Jackson.`\
 https://nytimes.com/athletic/6362844/2025/05/16/tyrique-george-striker-chelsea-maresca/
-
-**Cher Wants a Better Home for L.A.’s Elephants. Not Tulsa.**\
-`A lawsuit is seeking to stop Los Angeles Zoo officials from shipping their two surviving elephants to another zoo in Oklahoma. Cher and other advocates want them to go to an animal sanctuary.`\
-https://nytimes.com/2025/05/16/us/elephants-la-zoo-cher.html
 
