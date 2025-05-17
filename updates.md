@@ -1,3 +1,7 @@
+**Mercury lose Kahleah Copper for 4-6 weeks, adding to roster shakeups**\
+`The Mercury will take the floor against the Seattle Storm on Saturday with zero players from 2024, plus three rookies.`\
+https://nytimes.com/athletic/6364177/2025/05/17/kahleah-copper-injury-mercury-wnba-season-opener/
+
 **‘Watch Me,’ Biden Said. But Hearing Him in Hur Interview Is More Revealing.**\
 `The former president’s halting responses to questions by a special counsel show him exactly as a majority of Americans believed him to be — and as Democrats repeatedly insisted he was not.`\
 https://nytimes.com/2025/05/17/us/politics/biden-hur-audio-interview.html
