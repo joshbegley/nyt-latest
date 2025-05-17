@@ -1,3 +1,19 @@
+**Basel swaps high art for high camp.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-basel-switzerland
+
+**New Jersey Transit Negotiations to Resume Saturday Afternoon**\
+`As the strike entered its second day, the agency’s chief executive, Kris Kolluri, said that he planned to meet with union representatives at 1 p.m., a day earlier than planned.`\
+https://nytimes.com/2025/05/17/nyregion/nj-transit-strike-negotiations.html
+
+**Welcome to our Eurovision coverage!**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/welcome-to-our-eurovision-coverage
+
+**Eurovision 2025 Live Updates: What to Expect**\
+`The international song contest is taking place in Basel, Switzerland.`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final
+
 **Orioles fire manager Brandon Hyde after 15-28 start to season**\
 `Baltimore made the playoffs in each of the last two seasons, but is 10 1/2 games out of first in the AL East through 43 games.`\
 https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-orioles-manager-news/
