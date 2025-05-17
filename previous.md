@@ -1,3 +1,15 @@
+**Three Iranians Accused of Targeting People in Britain**\
+`The charges against the men come as concerns have grown about Iranian operatives carrying out operations against British residents and citizens.`\
+https://nytimes.com/2025/05/17/world/europe/britain-arrests-iranians-plot.html
+
+**Leeds in talks over Firpo, Byram contracts; Guilavogui to exit**\
+`The Championship winners have published their retained list with a raft of youth players set to follow Guilavogui out of the club next month`\
+https://nytimes.com/athletic/6363908/2025/05/17/leeds-united-contracts-firpo-byram/
+
+**The Perfect Cake for Those First Berries**\
+`Dorie Greenspan’s blueberry crumb cake is a delightful vehicle for the summer’s first (or the freezer’s standby) blueberries.`\
+https://nytimes.com/2025/05/17/dining/blueberry-crumb-cake-recipe.html
+
 **At Least 8 Dead After Shooting in South Africa**\
 `The police said they had started a manhunt and were investigating a possible motive.`\
 https://nytimes.com/2025/05/17/world/africa/south-africa-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6363709/2025/05/17/conor-bradley-liverpool-contract
 **Red Bull at 400 races: How five numbers illustrate their Formula One dominance**\
 `Red Bull is set to hit 400 Formula One race starts at this weekend's Imola race. Here's how its successes look in terms of key statistics`\
 https://nytimes.com/athletic/6350594/2025/05/17/red-bull-f1-400-races/
-
-**Flick tells Barca players: 'If you can party, you can play'**\
-`Barca clinched the league title on Thursday with a two-goal victory at Espanyol with an open-top bus parade in Barcelona the following day.`\
-https://nytimes.com/athletic/6363624/2025/05/17/barcelona-la-liga-title-celebrations/
-
-**Auston Matthews' big-game moment: How the Leafs captain found the net, redemption and relief**\
-`“We needed that": Auston Matthews comes through with his first ever second-round goal, leading the Maple Leafs home for Game 7.`\
-https://nytimes.com/athletic/6363263/2025/05/17/maple-leafs-auston-matthews-goal-nhl-playoffs/
-
-**The Pulse: Drastic shakeup for Boston?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6363379/2025/05/17/celtics-knicks-jayson-tatum-the-pulse/
 

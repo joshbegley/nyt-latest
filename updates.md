@@ -1,3 +1,15 @@
+**Three Iranians Accused of Targeting People in Britain**\
+`The charges against the men come as concerns have grown about Iranian operatives carrying out operations against British residents and citizens.`\
+https://nytimes.com/2025/05/17/world/europe/britain-arrests-iranians-plot.html
+
+**Leeds in talks over Firpo, Byram contracts; Guilavogui to exit**\
+`The Championship winners have published their retained list with a raft of youth players set to follow Guilavogui out of the club next month`\
+https://nytimes.com/athletic/6363908/2025/05/17/leeds-united-contracts-firpo-byram/
+
+**The Perfect Cake for Those First Berries**\
+`Dorie Greenspan’s blueberry crumb cake is a delightful vehicle for the summer’s first (or the freezer’s standby) blueberries.`\
+https://nytimes.com/2025/05/17/dining/blueberry-crumb-cake-recipe.html
+
 **At Least 8 Dead After Shooting in South Africa**\
 `The police said they had started a manhunt and were investigating a possible motive.`\
 https://nytimes.com/2025/05/17/world/africa/south-africa-shooting.html
