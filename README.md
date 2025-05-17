@@ -1,3 +1,7 @@
+**Watch: ‘If we win, then what?’ — A Palace fan previews the FA Cup final**\
+`The Totally Football Show discuss the impact Oliver Glasner has made at Crystal Palace ahead of the FA Cup final`\
+https://nytimes.com/athletic/6361819/2025/05/16/totally-football-show-fa-cup-final-review-crystal-palace/
+
 **Knicks wallop Celtics 119-81 for first conference finals berth in 25 years**\
 `The Knicks advance to face the Pacers, who bounced New York from the playoffs last year.`\
 https://nytimes.com/athletic/6362992/2025/05/16/nba-playoffs-takeaways-knicks-celtics-game-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363032/2025/05/16/aaron-gordon-questionable-hamstr
 **Turn (Up)**\
 `Ryan Judge’s puzzle gives solvers a lot to chew on.`\
 https://nytimes.com/2025/05/16/crosswords/daily-puzzle-2025-05-17.html
-
-**Ottawa Charge eliminate Montreal Victoire to reach PWHL Finals: Takeaways**\
-`The Charge will advance to the PWHL Finals after a 2-1 win against the Victoire in Game 4 of the semifinals on Friday night.`\
-https://nytimes.com/athletic/6363086/2025/05/16/ottawa-charge-montreal-victoire-pwhl-playoffs-game-4-takeaways/
 
