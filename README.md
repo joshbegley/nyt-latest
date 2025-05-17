@@ -1,40 +1,40 @@
-**Russian Drone Attack Kills 9 on Shuttle Bus in Ukraine**\
-`The strike came hours after the first face-to-face talks between Ukrainian and Russian delegations since the early days of the war.`\
-https://nytimes.com/2025/05/17/world/europe/russia-ukraine-putin.html
+**Breathe In, Breathe Out, Good Night: TikTok Invites Users to Meditate**\
+`Facing allegations that it knowingly lures young users into late-night scroll sessions, the company unveiled a new guided-meditation feature in the app.`\
+https://nytimes.com/2025/05/17/style/tiktok-guided-meditation-sleep.html
 
-**Bournemouth's Dean Huijsen agrees £50m Real Madrid transfer**\
-`The 20-year-old is one of Europe's most in-demand young players after impressing for Andoni Iraola's Bournemouth side this season.`\
-https://nytimes.com/athletic/6358549/2025/05/17/bournemouth-dean-huijsen-real-madrid-transfer/
+**Jets at Stars Game 6 picks, odds, how to watch info: Can Winnipeg force a Game 7?**\
+`Dallas gets a second shot to close out Winnipeg, this time at home. Can the Jets force a Game 7 back in Canada?`\
+https://nytimes.com/athletic/6362047/2025/05/17/jets-stars-game-6-picks-odds-how-to-watch/
 
-**Everton fans: What do you think about the naming of Hill Dickinson Stadium?**\
-`Discuss the naming rights decision for Everton's new stadium here`\
-https://nytimes.com/athletic/6363446/2025/05/17/everton-new-stadium-naming-rights/
+**Education Secretary Wants Talks With Harvard to Resume, Without Giving Ground**\
+`Linda McMahon, President Trump’s top education official, has played a leading role in pressuring the Ivy League university to comply with the administration’s demands.`\
+https://nytimes.com/2025/05/17/us/politics/linda-mcmahon-harvard-trump.html
 
-**The reality of the new NBA caught up with the Celtics, who might have to find a new way**\
-`The Celtics' season went so well, then fell apart in May. The league is designed to force them to make changes, so how will that take shape?`\
-https://nytimes.com/athletic/6363398/2025/05/17/celtics-lose-game-6-to-knicks/
+**‘A Slap in the Face’: Iranians Watched Trump’s Mideast Tour With Envy**\
+`For some, President Trump’s visits to Arab nations, Iran’s regional rivals, only made their country’s acute energy and economic crises harder to bear.`\
+https://nytimes.com/2025/05/17/world/middleeast/trump-iran-sanctions-energy-mideast.html
 
-**Economic Toll of Train Strike Could Ripple Well Beyond New Jersey**\
-`The longer New Jersey Transit engineers are off the job, the more businesses that rely on commuters will suffer.`\
-https://nytimes.com/2025/05/17/nyregion/nj-transit-strike-cost-economy.html
+**Duffy Blamed Biden for Air Traffic Woes. It’s a Decades-Old Problem.**\
+`The federal government has taken a reactive approach to aviation policy, often leading to delays in modernization efforts and inadequate staffing and funding.`\
+https://nytimes.com/2025/05/17/us/politics/air-traffic-control-faa-newark-biden.html
 
-**A Haven for High School Girls’ Wrestling, Filled With Grit and Pride**\
-`The Lucha Wrestling Club in the Bronx provides a safe place for an aggressive sport. The Bronx has more public high school girls’ teams than any other New York City borough.`\
-https://nytimes.com/2025/05/17/nyregion/bronx-girls-wrestling-clubs.html
+**‘Gimme’: A Word That Explains the President’s Worldview**\
+`The term helps explain why he sees little difference between accepting a putt and accepting a plane.`\
+https://nytimes.com/2025/05/17/magazine/donald-trump-language-gimme-qatar.html
 
-**At Combs Trial, Will Sordid Testimony Help Prove a Criminal Conspiracy?**\
-`Casandra Ventura’s description of Sean Comb’s sex marathons and abusive behavior is expected to provide the foundation for the prosecution’s racketeering case.`\
-https://nytimes.com/2025/05/17/nyregion/combs-trial-casandra-ventura-testimony-analysis.html
+**How the Indian Media Amplified Falsehoods in the Drumbeat of War**\
+`During the conflict between India and Pakistan, even some long-trusted outlets reported unverified information and fabricated stories.`\
+https://nytimes.com/2025/05/17/world/asia/india-news-media-misinformation.html
 
-**How a Sustainable Clothing Entrepreneur Spends Her Sundays**\
-`For Sandeep Salter, who co-founded the sustainable goods shop Salter House, Sunday is “family day.” That means scones, pancakes and a daring walk along the Promenade in Brooklyn.`\
-https://nytimes.com/2025/05/17/nyregion/sandeep-salter-house.html
+**Trump Wants a Deal With Iran, but It May Be Weaker Than His Supporters Demand**\
+`Iran rejects any deal that would ban it from any nuclear enrichment, long a demand of U.S. conservatives.`\
+https://nytimes.com/2025/05/17/world/europe/trump-iran-nuclear-talks.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/17/crosswords/spelling-bee-forum.html
+**His Life Savings Were Mailed to Him by Paper Check. Now, It’s Gone.**\
+`A thief stole 401(k) checks out of the mail. But why was Paychex, a major industry player, using paper at all given how often check fraud happens?`\
+https://nytimes.com/2025/05/17/business/paychex-401k-rollover-checks.html
 
-**The defensive improvement behind Aston Villa's relentless top-five charge**\
-`A return to the Champions League looked unlikely for Villa mid-season, but Unai Emery tweaked his side's setup and is reaping the benefits`\
-https://nytimes.com/athletic/6361915/2025/05/17/aston-villa-defensive-improvement-top-five-race/
+**‘Whom Shall I Fear?’ In South Texas, Two Bakers Face Trump’s Immigration Wrath.**\
+`A raid on Abby’s Bakery in Los Fresnos heralded the crackdown to come. Ahead of the owners’ trial for “harboring” undocumented workers, the community is seeing the impact of the president’s policies.`\
+https://nytimes.com/2025/05/17/us/politics/trumps-immigration-bakery.html
 
