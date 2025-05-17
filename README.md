@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, May 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/17/todays-new-york-times
+
 **Valkyries drop WNBA opener in a party not even the Sparks could spoil**\
 `This night wasn’t about wins and losses. It was about the dawning of an era.`\
 https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnba-expansion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363175/2025/05/17/yankees-cody-bellinger-juan-soto
 **Archibald Leitch: The forgotten godfather of Goodison Park and Britain's football stadiums**\
 `Archibald Leitch passed away in 1939 but his legacy is still visible at football stadiums throughout Britain`\
 https://nytimes.com/athletic/6358929/2025/05/17/archibald-leitch-goodison-ibrox-football-stadiums/
-
-**'Football became a site of healing' – How Bradford City helped me feel joy again**\
-`"I have never felt luckier than I did this season, when football became a site of healing."`\
-https://nytimes.com/athletic/6352832/2025/05/17/bradford-city-promotion-mental-health/
 
