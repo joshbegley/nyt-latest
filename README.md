@@ -1,3 +1,15 @@
+**Leafs stay alive, force Game 7 with win over Panthers in Game 6: Takeaways**\
+`Auston Matthews and Max Pacioretty scored for the Leafs as Toronto shut out Florida to force Game 7 on Sunday.`\
+https://nytimes.com/athletic/6360716/2025/05/16/maple-leafs-panthers-nhl-playoffs-2025-game-6-takeaways/
+
+**How Max Homa, Scottie Scheffler rose up the PGA leaderboard in Round 2**\
+`“The Green Mile” at Quail Hollow has lived up to its reputation this week, making for astounding numbers down the stretch.`\
+https://nytimes.com/athletic/6362966/2025/05/16/pga-championship-round-2-homa-scheffler-leaderboard/
+
+**Former Guardian Will Benson helps give Terry Francona win in first game against old team**\
+`Benson's three-run home run in the second inning gave Cincinnati the lead it would never surrender in its 5-4 win over Cleveland.`\
+https://nytimes.com/athletic/6363061/2025/05/16/reds-will-benson-terry-francona-win-guardians/
+
 **Clayton Kershaw ready for 18th season with Dodgers: 'I want to pitch, and contribute'**\
 `Kershaw arrives at a time when an injury-ravaged staff needs his presence: "I'm excited for the intensity.”`\
 https://nytimes.com/athletic/6363068/2025/05/16/clayton-kershaw-ready-for-18th-season-with-dodgers-i-want-to-pitch-and-contribute/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6362863/2025/05/16/shohei-ohtani-strikeout-ball-per
 **Cubs' youth movement out in full force at Wrigley Field with Pete Crow-Armstrong, Cade Horton**\
 `Crow-Armstrong went 4-for-5 with a home run and six RBIs, and Horton got the win in Friday's 13-3 victory over the White Sox.`\
 https://nytimes.com/athletic/6362932/2025/05/16/cubs-youth-movement-pete-crow-armstrong-cade-horton/
-
-**Trump’s Push to Defund Harvard Prompts Clash Over Veteran Suicide Research**\
-`The proposed termination of medical research funded by the V.A. is part of the Trump administration’s broader pressure campaign against the university.`\
-https://nytimes.com/2025/05/16/us/politics/trump-harvard-veterans-research.html
-
-**Ditching the drama: Why a 49ers-Brock Purdy deal was so essential this offseason**\
-`The 49ers are in the midst of a major roster pivot. Which is why Kyle Shanahan wants high attendance, and few distractions, this spring.`\
-https://nytimes.com/athletic/6362940/2025/05/16/brock-purdy-49ers-contract-drama/
-
-**Combs Defense Seeks to Undermine Cassie’s Rape Allegation as Testimony Ends**\
-`The singer spent four days on the stand recounting what she described as an 11-year relationship in which she came to feel more like a sex worker than a girlfriend.`\
-https://nytimes.com/2025/05/16/arts/music/cassie-sean-combs-diddy-trial-testimony.html
 
