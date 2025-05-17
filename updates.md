@@ -1,3 +1,11 @@
+**At Least 8 Dead After Shooting in South Africa**\
+`The police said they had started a manhunt and were investigating a possible motive.`\
+https://nytimes.com/2025/05/17/world/africa/south-africa-shooting.html
+
+**Young among trio to leave Everton at end of the season**\
+`Backup goalkeepers Asmir Begovic and Joao Virginia will also depart following the expiration of their contracts.`\
+https://nytimes.com/athletic/6363746/2025/05/17/ashley-young-everton-exit/
+
 **'There’s more to go': Inside the players-only meeting that changed the Knicks' direction**\
 `Before their Game 5 loss in Boston, people around the Knicks noticed their lack of intensity. A meeting before Game 6 shifted their focus.`\
 https://nytimes.com/athletic/6363425/2025/05/17/knicks-advance-celtics-conference-finals/

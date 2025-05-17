@@ -1,3 +1,11 @@
+**At Least 8 Dead After Shooting in South Africa**\
+`The police said they had started a manhunt and were investigating a possible motive.`\
+https://nytimes.com/2025/05/17/world/africa/south-africa-shooting.html
+
+**Young among trio to leave Everton at end of the season**\
+`Backup goalkeepers Asmir Begovic and Joao Virginia will also depart following the expiration of their contracts.`\
+https://nytimes.com/athletic/6363746/2025/05/17/ashley-young-everton-exit/
+
 **'There’s more to go': Inside the players-only meeting that changed the Knicks' direction**\
 `Before their Game 5 loss in Boston, people around the Knicks noticed their lack of intensity. A meeting before Game 6 shifted their focus.`\
 https://nytimes.com/athletic/6363425/2025/05/17/knicks-advance-celtics-conference-finals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6363263/2025/05/17/maple-leafs-auston-matthews-goal
 **The Pulse: Drastic shakeup for Boston?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6363379/2025/05/17/celtics-knicks-jayson-tatum-the-pulse/
-
-**Is Wild coach John Hynes on the hot seat? Could they sign Mitch Marner? Ask Russo and Smith, part 2**\
-`Also: Will the Wild ever win the Cup? What's the plan for Jiricek? What next for Trenin? And, of course, more Rossi questions.`\
-https://nytimes.com/athletic/6362139/2025/05/17/wild-hynes-marner-crosby-mailbag/
-
-**Lowetide: 5 Oilers players who have stepped up during this playoff run**\
-`Here's a look at some key Edmonton players who increased their playing time despite being on the sidelines for Game 1.`\
-https://nytimes.com/athletic/6359507/2025/05/17/edmonton-oilers-stats-ice-time-nhl-playoffs/
 
