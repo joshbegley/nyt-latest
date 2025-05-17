@@ -1,3 +1,7 @@
+**Halve the Last Word**\
+`Garrett Chalfin’s puzzle is greater than the sum of its parts.`\
+https://nytimes.com/2025/05/17/crosswords/daily-puzzle-2025-05-18.html
+
 **Trump Administration Abandons Fight to Ban Powerful Gun Accessory**\
 `The device, called a forced-reset trigger, allows semiautomatic weapons to fire hundreds of rounds. The Biden administration had sought to block them from being sold.`\
 https://nytimes.com/2025/05/17/us/politics/trump-guns-rifles.html
