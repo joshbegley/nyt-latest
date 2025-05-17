@@ -1,3 +1,7 @@
+**‘Not Normal’: Wall of Dust Races Across Central Illinois and Pushes Into Chicago**\
+`Day turned to night in northwest Indiana and north-central Illinois on Friday as a rare dust storm shrouded the skies.`\
+https://nytimes.com/2025/05/17/weather/chicago-dust-storm.html
+
 **Halve the Last Word**\
 `Garrett Chalfin’s puzzle is greater than the sum of its parts.`\
 https://nytimes.com/2025/05/17/crosswords/daily-puzzle-2025-05-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision
 **Mercury lose Kahleah Copper for 4-6 weeks, adding to roster shakeups**\
 `The Mercury will take the floor against the Seattle Storm on Saturday with zero players from 2024, plus three rookies.`\
 https://nytimes.com/athletic/6364177/2025/05/17/kahleah-copper-injury-mercury-wnba-season-opener/
-
-**‘Watch Me,’ Biden Said. But Hearing Him in Hur Interview Is More Revealing.**\
-`The former president’s halting responses to questions by a special counsel show him exactly as a majority of Americans believed him to be — and as Democrats repeatedly insisted he was not.`\
-https://nytimes.com/2025/05/17/us/politics/biden-hur-audio-interview.html
 
