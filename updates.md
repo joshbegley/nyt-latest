@@ -1,3 +1,7 @@
+**Which act is the safest bet?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-favotire-kaj-betting
+
 **Capital One to Pay $425 Million to Settle Suits Over Savings Accounts**\
 `Depositors said the bank cheated them out of higher interest rates. As part of the settlement, the bank admitted no wrongdoing and agreed to make up for lost interest earnings.`\
 https://nytimes.com/2025/05/17/business/capital-one-settlement-savings-accounts.html
