@@ -1,3 +1,7 @@
+**Kaj: A Finnish band, representing Sweden.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/sweden-eurovision-kaj-sauna
+
 **To stay in the competition, Malta had to change the lyrics.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-malta-miriana-conte-serving
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364153/2025/05/17/liberty-aces-wnba-championship-b
 **JJ hits some high notes for Austria.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-austria-jj-wasted-love-opera
-
-**Israel’s Entrant Survived the Hamas Attacks of Oct. 7**\
-`Not long after the attacks, Yuval Raphael said, she resolved to follow her long-held dream of becoming a professional singer.`\
-https://nytimes.com/2025/05/17/arts/music/yuval-raphael-israel-eurovision-2025.html
 

@@ -1,3 +1,7 @@
+**Kaj: A Finnish band, representing Sweden.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/sweden-eurovision-kaj-sauna
+
 **To stay in the competition, Malta had to change the lyrics.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-malta-miriana-conte-serving
