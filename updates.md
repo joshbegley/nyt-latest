@@ -1,3 +1,7 @@
+**Mohamed withdraws from Nantes squad over LGBTQ+ initiative**\
+`French clubs will wear rainbow-coloured armbands as part of International Day Against Homophobia, Biphobia and Transphobia, on May 17.`\
+https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-homophobia/
+
 **Watch: Which WNBA teams could surprise this season?**\
 `No Offseason discuss which WNBA teams could surprise us this season.`\
 https://nytimes.com/athletic/6362255/2025/05/17/no-offseason-wnba-surprises-womens-basketball/
