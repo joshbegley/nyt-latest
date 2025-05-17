@@ -1,3 +1,7 @@
+**2 Books to Bring Key West to Life**\
+`A poet’s letters; a collection of reminiscences.`\
+https://nytimes.com/2025/05/17/books/read-like-wind-recommendations.html
+
 **Mohamed withdraws from Nantes squad over LGBTQ+ initiative**\
 `French clubs will wear rainbow-coloured armbands as part of International Day Against Homophobia, Biphobia and Transphobia, on May 17.`\
 https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-homophobia/

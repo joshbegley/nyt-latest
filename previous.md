@@ -1,3 +1,7 @@
+**2 Books to Bring Key West to Life**\
+`A poet’s letters; a collection of reminiscences.`\
+https://nytimes.com/2025/05/17/books/read-like-wind-recommendations.html
+
 **Mohamed withdraws from Nantes squad over LGBTQ+ initiative**\
 `French clubs will wear rainbow-coloured armbands as part of International Day Against Homophobia, Biphobia and Transphobia, on May 17.`\
 https://nytimes.com/athletic/6363556/2025/05/17/french-football-ligue-1-anti-homophobia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/opinion/gen-z-american-dream.html
 **The Future of Black History**\
 `A journey to the Smithsonian’s National Museum of African American History and Culture took me places I will not soon forget.`\
 https://nytimes.com/2025/05/17/opinion/black-history-museum-trump.html
-
-**Signalgate? Here’s an Even Bigger Trump Scandal in Yemen.**\
-`The United States supposedly can’t afford $1 a day to save starving children, but Biden and Trump squandered $7 billion bombing Yemenis.`\
-https://nytimes.com/2025/05/17/opinion/yemen-war-trump.html
 
