@@ -1,3 +1,7 @@
+**Jonnie Boer, Dutch Chef With 3 Michelin Stars, Is Dead at 60**\
+`Long before the New Nordic movement, he saw the value in humble ingredients. So did anyone who ate at De Librije, his acclaimed restaurant in the Netherlands.`\
+https://nytimes.com/2025/05/17/dining/jonnie-boer-dead-chef.html
+
 **Imola GP qualifying: Piastri takes pole, Ferrari's Saturday miseries continue**\
 `An odd qualifying (featuring crashes and delays) ended with a familiar front row and more frustration for the home team`\
 https://nytimes.com/athletic/6363796/2025/05/17/imola-gp-qualifying-2025-result/
