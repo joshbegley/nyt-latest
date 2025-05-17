@@ -1,3 +1,11 @@
+**Lewis Hamilton ‘devastated’ by poor Imola GP qualifying in first Ferrari home race**\
+`Ferrari's Lewis Hamilton did not hold back after being eliminated early in F1 qualifying for the Imola GP. He'll start the race in 12th`\
+https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poor-imola-gp-qualifying-in-first-ferrari-home-race/
+
+**Mark Scheifele’s Game 6 status for Jets uncertain following death of his father**\
+`Coach Scott Arniel is scheduled to address reporters at 4:30 p.m. Central.`\
+https://nytimes.com/athletic/6364047/2025/05/17/mark-scheifele-father-game-6/
+
 **Why Eurovision can’t escape politics.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-ebu-politics
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-ori
 **Henry Ford’s great-great grandson completes Livingston takeover**\
 `Livingston play in the Scottish Championship, the second tier of Scottish football.`\
 https://nytimes.com/athletic/6363952/2025/05/17/livingston-calvin-ford-chairman/
-
-**Jonnie Boer, Dutch Chef With 3 Michelin Stars, Is Dead at 60**\
-`Long before the New Nordic movement, he saw the value in humble ingredients. So did anyone who ate at De Librije, his acclaimed restaurant in the Netherlands.`\
-https://nytimes.com/2025/05/17/dining/jonnie-boer-dead-chef.html
-
-**Imola GP qualifying: Piastri takes pole, Ferrari's Saturday miseries continue**\
-`An odd qualifying (featuring crashes and delays) ended with a familiar front row and more frustration for the home team`\
-https://nytimes.com/athletic/6363796/2025/05/17/imola-gp-qualifying-2025-result/
 

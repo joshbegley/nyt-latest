@@ -1,3 +1,11 @@
+**Lewis Hamilton ‘devastated’ by poor Imola GP qualifying in first Ferrari home race**\
+`Ferrari's Lewis Hamilton did not hold back after being eliminated early in F1 qualifying for the Imola GP. He'll start the race in 12th`\
+https://nytimes.com/athletic/6364050/2025/05/17/lewis-hamilton-devastated-by-poor-imola-gp-qualifying-in-first-ferrari-home-race/
+
+**Mark Scheifele’s Game 6 status for Jets uncertain following death of his father**\
+`Coach Scott Arniel is scheduled to address reporters at 4:30 p.m. Central.`\
+https://nytimes.com/athletic/6364047/2025/05/17/mark-scheifele-father-game-6/
+
 **Why Eurovision can’t escape politics.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-ebu-politics
