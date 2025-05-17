@@ -1,3 +1,15 @@
+**Combs Defense Seeks to Undermine Cassie’s Rape Allegation as Testimony Ends**\
+`The singer spent four days on the stand recounting what she described as an 11-year relationship in which she came to feel more like a sex worker than a girlfriend.`\
+https://nytimes.com/2025/05/16/arts/music/cassie-sean-combs-diddy-trial-testimony.html
+
+**You want to get weird? Then this PGA Championship is for you**\
+`Welcome to the 2025 PGA Championship at Quail Hollow, where nothing makes sense and anything is possible.`\
+https://nytimes.com/athletic/6362893/2025/05/16/pga-championship-2025-quail-hollow-weird/
+
+**Audio Data Shows Newark Outage Problems Persisted Longer Than Officials Said**\
+`Times analysis of air traffic recordings and flight data shows that outage-related problems persisted far longer than what the officials have acknowledged.`\
+https://nytimes.com/interactive/2025/05/16/nyregion/newark-airport-outages-audio.html
+
 **Mets' Juan Soto met with boos at Yankee Stadium**\
 `Soto doffed his helmet before stepping into the batter’s box before his first plate appearance in the Bronx as a member of the Mets.`\
 https://nytimes.com/athletic/6362931/2025/05/16/juan-soto-boos-yankee-stadium-mets/
