@@ -1,3 +1,11 @@
+**Trump’s Push to Defund Harvard Prompts Clash Over Veteran Suicide Research**\
+`The proposed termination of medical research funded by the V.A. is part of the Trump administration’s broader pressure campaign against the university.`\
+https://nytimes.com/2025/05/16/us/politics/trump-harvard-veterans-research.html
+
+**Ditching the drama: Why a 49ers-Brock Purdy deal was so essential this offseason**\
+`The 49ers are in the midst of a major roster pivot. Which is why Kyle Shanahan wants high attendance, and few distractions, this spring.`\
+https://nytimes.com/athletic/6362940/2025/05/16/brock-purdy-49ers-contract-drama/
+
 **Combs Defense Seeks to Undermine Cassie’s Rape Allegation as Testimony Ends**\
 `The singer spent four days on the stand recounting what she described as an 11-year relationship in which she came to feel more like a sex worker than a girlfriend.`\
 https://nytimes.com/2025/05/16/arts/music/cassie-sean-combs-diddy-trial-testimony.html

@@ -1,3 +1,11 @@
+**Trump’s Push to Defund Harvard Prompts Clash Over Veteran Suicide Research**\
+`The proposed termination of medical research funded by the V.A. is part of the Trump administration’s broader pressure campaign against the university.`\
+https://nytimes.com/2025/05/16/us/politics/trump-harvard-veterans-research.html
+
+**Ditching the drama: Why a 49ers-Brock Purdy deal was so essential this offseason**\
+`The 49ers are in the midst of a major roster pivot. Which is why Kyle Shanahan wants high attendance, and few distractions, this spring.`\
+https://nytimes.com/athletic/6362940/2025/05/16/brock-purdy-49ers-contract-drama/
+
 **Combs Defense Seeks to Undermine Cassie’s Rape Allegation as Testimony Ends**\
 `The singer spent four days on the stand recounting what she described as an 11-year relationship in which she came to feel more like a sex worker than a girlfriend.`\
 https://nytimes.com/2025/05/16/arts/music/cassie-sean-combs-diddy-trial-testimony.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6362734/2025/05/16/jhonattan-vegas-pga-championship
 **Republican Revolt Reflects a Core Party Divide Over Spending and Debt**\
 `Whether the ultraconservatives dig in and force big changes to the megabill carrying President Trump’s agenda or capitulate, as they have in the past, will determine the fate of their party’s signature legislation.`\
 https://nytimes.com/2025/05/16/us/politics/republican-divide-spending-debt.html
-
-**Couple Imprisoned Girl for 7 Years and Kept Her in Dog Cage, Police Say**\
-`Investigators, who did not identify the teenager, now 18, said they believed she had been sexually abused by her stepfather.`\
-https://nytimes.com/2025/05/16/nyregion/new-jersey-girl-dog-cage.html
-
-**George has done enough to start up front against Forest — Maresca**\
-`George played as a striker in Chelsea’s 1-0 win over Manchester United on Friday, replacing the suspended Nicolas Jackson.`\
-https://nytimes.com/athletic/6362844/2025/05/16/tyrique-george-striker-chelsea-maresca/
 
