@@ -1,3 +1,7 @@
+**The reality of the new NBA caught up with the Celtics, who might have to find a new way**\
+`The Celtics' season went so well, then fell apart in May. The league is designed to force them to make changes, so how will that take shape?`\
+https://nytimes.com/athletic/6363398/2025/05/17/celtics-lose-game-6-to-knicks/
+
 **Economic Toll of Train Strike Could Ripple Well Beyond New Jersey**\
 `The longer New Jersey Transit engineers are off the job, the more businesses that rely on commuters will suffer.`\
 https://nytimes.com/2025/05/17/nyregion/nj-transit-strike-cost-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6361850/2025/05/17/infantino-world-cup-new-zealand/
 **Buckley: Celtics cope with ugly defeat and reality that it may be curtains for this roster**\
 `The added penalty to this crushing series loss is that nobody has any idea what the Celtics’ roster will look like next season.`\
 https://nytimes.com/athletic/6363356/2025/05/17/celtics-knicks-nba-playoffs-game-6-rout-jaylen-brown/
-
-**Who should start for Tottenham Hotspur in the Europa League final on Wednesday?**\
-`Ange Postecoglou rested most of his key players for Spurs' trip to Aston Villa but there are still some important decisions to be made`\
-https://nytimes.com/athletic/6362946/2025/05/17/who-should-start-tottenham-europa-final/
 
