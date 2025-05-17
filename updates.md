@@ -1,3 +1,7 @@
+**Valkyries drop WNBA opener in a party not even the Sparks could spoil**\
+`This night wasn’t about wins and losses. It was about the dawning of an era.`\
+https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnba-expansion/
+
 **Matthew Knies injury uncertainty looms for Leafs after forcing Game 7**\
 `“We don’t know right now ... he’s dealing with something,” coach Craig Berube said of Knies’ injury and his status for Game 7 on Sunday.`\
 https://nytimes.com/athletic/6363243/2025/05/17/maple-leafs-matthew-knies-injury-nhl-playoffs/
