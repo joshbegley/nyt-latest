@@ -1,3 +1,7 @@
+**India Is Accused of Inhumanely Deporting Rohingya Refugees**\
+`The allegations, which include being pushed into the sea off Myanmar with only life jackets, have prompted a call from the United Nations for an investigation.`\
+https://nytimes.com/2025/05/17/world/asia/india-rohingya-sea-deport.html
+
 **Rutger Bregman Wants to Save Elites From Their Wasted Lives**\
 `The historian is on a mission to get the best and brightest out of their lucrative jobs and into morally ambitious work.`\
 https://nytimes.com/2025/05/17/magazine/rutger-bregman-interview.html
