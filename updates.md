@@ -1,3 +1,7 @@
+**Kristian Campbell gets work at first base, perhaps opening second base for Marcelo Mayer**\
+`Campbell did first-base drills before Friday's game in Boston while Mayer prepared for his sixth start at second for Triple-A Worcester.`\
+https://nytimes.com/athletic/6363009/2025/05/16/red-sox-kristian-campbell-first-base-marcelo-mayer/
+
 **Cubs' youth movement out in full force at Wrigley Field with Pete Crow-Armstrong, Cade Horton**\
 `Crow-Armstrong went 4-for-5 with a home run and six RBIs, and Horton got the win in Friday's 13-3 victory over the White Sox.`\
 https://nytimes.com/athletic/6362932/2025/05/16/cubs-youth-movement-pete-crow-armstrong-cade-horton/
