@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Secret Service Questions Comey Over Social Media Post About President**\
+``\
+https://nytimes.com/live/2025/05/17/us/trump-news
+
+**Conor Bradley signs new four-year Liverpool deal**\
+`Bradley is set to take on a greater role next season with Trent Alexander-Arnold leaving on a free transfer this summer to join Real Madrid.`\
+https://nytimes.com/athletic/6363709/2025/05/17/conor-bradley-liverpool-contract-new/
+
 **Red Bull at 400 races: How five numbers illustrate their Formula One dominance**\
 `Red Bull is set to hit 400 Formula One race starts at this weekend's Imola race. Here's how its successes look in terms of key statistics`\
 https://nytimes.com/athletic/6350594/2025/05/17/red-bull-f1-400-races/
