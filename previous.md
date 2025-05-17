@@ -1,3 +1,15 @@
+**Ranking Manchester City's modern Wembley cup finals: From Wigan despair to Toure's triumph**\
+`City have played in 11 FA Cup and League Cup finals since 2011 - Thom Harris attempts to put them into some sort of order...`\
+https://nytimes.com/athletic/6358510/2025/05/17/manchester-city-wembley-cup-finals-ranked/
+
+**This is Crystal Palace's opportunity. Now embrace the excitement and make history**\
+`Under Oliver Glasner, the south London club are driven by new-found conviction. Today, they can win the first major trophy in their history`\
+https://nytimes.com/athletic/6349461/2025/05/17/crystal-palace-fa-cup-glasner/
+
+**Brighton's struggle to replace Alexis Mac Allister - what is the solution?**\
+`The midfielder returns to the Amex a title winner. He was always going to be difficult to replace, but there are reasons for optimism`\
+https://nytimes.com/athletic/6358472/2025/05/17/alexis-mac-allister-replacement-brighton/
+
 **Cody Bellinger won't make Yankees fans forget Juan Soto. But he's helping them move on**\
 `In the Subway Series opener, Bellinger extended his hitting streak to 11 games and scored easily on a throw by Soto in a 6-2 win.`\
 https://nytimes.com/athletic/6363175/2025/05/17/yankees-cody-bellinger-juan-soto-subway-series/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6347344/2025/05/17/vitor-pereira-pubs-wolverhampton
 `Ahead of the FA Cup final, the winger spoke about recovering from injury and attempting to win the trophy again`\
 https://nytimes.com/athletic/6361070/2025/05/17/leah-galton-interview-ratcliffe-injury-chelsea/
 
-**Kepner: Juan Soto gets a ring, the Yankees get a win – and the rivalry gets a long-term jolt**\
-`An hour and 20 minutes before first pitch in the Bronx on Friday, Juan Soto, the $765 million Met, got his final gift from the Yankees.`\
+**Kepner: Juan Soto gets a ring, Yankees get a win — and the rivalry gets a long-term jolt**\
+`An hour and 20 minutes before first pitch in the Bronx on Friday, Soto, the $765 million Met, got his final gift from the Yankees.`\
 https://nytimes.com/athletic/6363215/2025/05/17/yankees-mets-subway-series-juan-soto/
-
-**Field of screams: Capturing the best Juan Soto taunts and chants from Yankee Stadium**\
-`Our intrepid reporter embedded in the right-field stands and scribbled down the bon mots showered upon the former Yankees outfielder.`\
-https://nytimes.com/athletic/6363202/2025/05/17/yankees-mets-juan-soto/
-
-**For Trump, Adulation and No Risk of Protests Made the Gulf a Dream Trip**\
-`At every step of President Trump’s whirlwind tour, he has been treated with the kind of honor and respect he has long desired.`\
-https://nytimes.com/2025/05/17/world/middleeast/trump-uae-qatar-saudi-arabia.html
-
-**Under Fire From Trump’s Tariffs, Ammo Makers in a Balkan Valley Hunker Down**\
-`Companies that make ammunition in the Bosnian city of Gorazde fear they may not survive the tariffs imposed on the goods that they send to their biggest market — the United States.`\
-https://nytimes.com/2025/05/17/world/europe/under-fire-from-trumps-tariffs-ammo-makers-in-a-balkan-valley-hunker-down.html
 
