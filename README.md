@@ -1,3 +1,7 @@
+**Another evening in Manchester United's interminable holding pattern ahead of the Europa League final**\
+`United look unlikely to even reach the 40-point mark in the Premier League this season — so it all comes down to Wednesday night in Bilbao`\
+https://nytimes.com/athletic/6363121/2025/05/17/manchester-united-europa-holding-pattern-chelsea/
+
 **After death threats, Lance McCullers Jr. returns with 'step in the right direction'**\
 `McCullers yielded two unearned runs in four innings to help the Astros beat the Rangers on Friday.`\
 https://nytimes.com/athletic/6363313/2025/05/17/lance-mccullers-jr-astros-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/world/middleeast/israel-troops-gaza.html
 **Luis Diaz is Liverpool's No 9 for now - but should he stay there?**\
 `It is widely assumed Arne Slot will be in the market for a striker this summer but in the meantime the Colombian is staking his claim `\
 https://nytimes.com/athletic/6350239/2025/05/17/luis-diaz-liverpool-striker-transfer/
-
-**Ranking Manchester City's modern Wembley cup finals: From Wigan despair to Toure's triumph**\
-`City have played in 11 FA Cup and League Cup finals since 2011 - Thom Harris attempts to put them into some sort of order...`\
-https://nytimes.com/athletic/6358510/2025/05/17/manchester-city-wembley-cup-finals-ranked/
 

@@ -1,3 +1,11 @@
+**After death threats, Lance McCullers Jr. returns with 'step in the right direction'**\
+`McCullers yielded two unearned runs in four innings to help the Astros beat the Rangers on Friday.`\
+https://nytimes.com/athletic/6363313/2025/05/17/lance-mccullers-jr-astros-rangers/
+
+**What's next for Celtics after Jayson Tatum injury and season-ending loss to Knicks?**\
+`"Losing to the Knicks feels like death," Jaylen Brown said. "But I was always taught that there’s life after death." `\
+https://nytimes.com/athletic/6363051/2025/05/17/celtics-nba-playoffs-knicks-loss-jayson-tatum/
+
 **Twins extend winning streak to 12 games without Carlos Correa, Byron Buxton in lineup**\
 `Joe Ryan and three relievers struck out 16 batters in a five-hit shutout Friday that improved the Twins' record to 25-20.`\
 https://nytimes.com/athletic/6363280/2025/05/17/twins-extend-winning-streak-12-games-joe-ryan/
