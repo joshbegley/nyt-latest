@@ -1,3 +1,11 @@
+**Cody Bellinger won't make Yankees fans forget Juan Soto. But he's helping them move on**\
+`In the Subway Series opener, Bellinger extended his hitting streak to 11 games and scored easily on a throw by Soto in a 6-2 win.`\
+https://nytimes.com/athletic/6363175/2025/05/17/yankees-cody-bellinger-juan-soto-subway-series/
+
+**Archibald Leitch: The forgotten godfather of Goodison Park and Britain's football stadiums**\
+`Archibald Leitch passed away in 1939 but his legacy is still visible at football stadiums throughout Britain`\
+https://nytimes.com/athletic/6358929/2025/05/17/archibald-leitch-goodison-ibrox-football-stadiums/
+
 **'Football became a site of healing' – How Bradford City helped me feel joy again**\
 `"I have never felt luckier than I did this season, when football became a site of healing."`\
 https://nytimes.com/athletic/6352832/2025/05/17/bradford-city-promotion-mental-health/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/17/world/middleeast/trump-uae-qatar-saudi-arabia.htm
 **Under Fire From Trump’s Tariffs, Ammo Makers in a Balkan Valley Hunker Down**\
 `Companies that make ammunition in the Bosnian city of Gorazde fear they may not survive the tariffs imposed on the goods that they send to their biggest market — the United States.`\
 https://nytimes.com/2025/05/17/world/europe/under-fire-from-trumps-tariffs-ammo-makers-in-a-balkan-valley-hunker-down.html
-
-**Aston Villa fans: Who do you want to win the Europa League final?**\
-`Next week will see two sides who have underperformed in the Premier League go toe-to-toe in the Europa League final`\
-https://nytimes.com/athletic/6361145/2025/05/17/aston-villa-fans-who-do-you-want-to-win-the-europa-league-final/
-
-**West Ham fans: Who do you want to win the Europa League final?**\
-`Next week will see two sides who have underperformed in the Premier League go toe-to-toe in the Europa League final`\
-https://nytimes.com/athletic/6361160/2025/05/17/west-ham-fans-who-do-you-want-to-win-the-europa-league-final/
 
