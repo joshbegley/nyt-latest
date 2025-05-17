@@ -1,3 +1,7 @@
+**Orioles manager fire Brandon Hyde after 15-28 start to season**\
+`Third base coach Tony Masnolinio will be promoted to interim coach, the team said.`\
+https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-orioles-manager-news/
+
 **Henry Ford’s great-great grandson completes Livingston takeover**\
 `Livingston play in the Scottish Championship, the second tier of Scottish football.`\
 https://nytimes.com/athletic/6363952/2025/05/17/livingston-calvin-ford-chairman/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/dining/blueberry-crumb-cake-recipe.html
 **At Least 8 Dead After Shooting in South Africa**\
 `The police said they had started a manhunt and were investigating a possible motive.`\
 https://nytimes.com/2025/05/17/world/africa/south-africa-shooting.html
-
-**Young among trio to leave Everton at end of the season**\
-`Backup goalkeepers Asmir Begovic and Joao Virginia will also depart following the expiration of their contracts.`\
-https://nytimes.com/athletic/6363746/2025/05/17/ashley-young-everton-exit/
 

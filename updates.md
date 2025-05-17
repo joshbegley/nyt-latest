@@ -1,3 +1,7 @@
+**Orioles manager fire Brandon Hyde after 15-28 start to season**\
+`Third base coach Tony Masnolinio will be promoted to interim coach, the team said.`\
+https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-orioles-manager-news/
+
 **Henry Ford’s great-great grandson completes Livingston takeover**\
 `Livingston play in the Scottish Championship, the second tier of Scottish football.`\
 https://nytimes.com/athletic/6363952/2025/05/17/livingston-calvin-ford-chairman/
