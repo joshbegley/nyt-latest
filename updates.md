@@ -1,3 +1,7 @@
+**Twins extend winning streak to 12 games without Carlos Correa, Byron Buxton in lineup**\
+`Joe Ryan and three relievers struck out 16 batters in a five-hit shutout Friday that improved the Twins' record to 25-20.`\
+https://nytimes.com/athletic/6363280/2025/05/17/twins-extend-winning-streak-12-games-joe-ryan/
+
 **What did Paige Bueckers reveal in her WNBA rookie debut?**\
 `Napheesa Collier starred in the Lynx win, but Dallas was still enamored with the newest UConn star in the WNBA.`\
 https://nytimes.com/athletic/6363336/2025/05/17/paige-bueckers-wnba-rookie-debut-dallas-wings/
