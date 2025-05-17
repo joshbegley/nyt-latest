@@ -1,3 +1,11 @@
+**Caitlin Clark recieves flagrant for hacking Angel Reese in season opener**\
+`"Nothing malicious about it. It was just a good take foul. Every basketball player knows that," Clark told ESPN after the third quarter.`\
+https://nytimes.com/athletic/6364234/2025/05/17/caitlin-clark-angel-reese-flagrant-foul/
+
+**France’s act wants to tell her mother she’s OK.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/france-eurovision-louane-maman
+
 **Kaj: A Finnish band, representing Sweden.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/sweden-eurovision-kaj-sauna
