@@ -1,3 +1,7 @@
+**Imola GP qualifying: Piastri takes pole, Ferrari's Saturday miseries continue**\
+`An odd qualifying (featuring crashes and delays) ended with a familiar front row and more frustration for the home team`\
+https://nytimes.com/athletic/6363796/2025/05/17/imola-gp-qualifying-2025-result/
+
 **Dortmund qualify for UCL on final day of Bundesliga season**\
 `Dortmund had been outside the Bundesliga’s top-four since the third game of the season but secured their place on the final day.`\
 https://nytimes.com/athletic/6363937/2025/05/17/dortmund-champions-league-qualify/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6363425/2025/05/17/knicks-advance-celtics-conferenc
 **Wilmer Flores joins legendary Giants list with 3 home runs, 8 RBIs in win**\
 `It was the first three-homer and 8 RBI game by a Giant since Joc Pederson in 2022, which itself was the first since Willie Mays' in 1961.`\
 https://nytimes.com/athletic/6363326/2025/05/17/wilmer-flores-giants-three-home-run-game/
-
-**Trump Administration Live Updates: Secret Service Questions Comey Over Social Media Post About President**\
-``\
-https://nytimes.com/live/2025/05/17/us/trump-news
 
