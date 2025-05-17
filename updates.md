@@ -1,5 +1,21 @@
 **Which act is the safest bet?**\
 `By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-favotire-kaj-betting
+
+**The 7 steps to winning Eurovision.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-secrets-to-winning
+
+**Whatever happened to Joost Klein, last year’s jilted Eurovision star?**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-joost-klein
+
+**Switzerland’s 2024 winner hoped to help nonbinary people.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-nemo-nonbinary
+
+**Which act is the safest bet?**\
+`By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-favotire-kaj-betting
 
 **Capital One to Pay $425 Million to Settle Suits Over Savings Accounts**\
