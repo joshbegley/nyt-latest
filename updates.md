@@ -1,3 +1,7 @@
+**JJ hits some high notes for Austria.**\
+`By Alex Marshall`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/eurovision-austria-jj-wasted-love-opera
+
 **Israel’s Entrant Survived the Hamas Attacks of Oct. 7**\
 `Not long after the attacks, Yuval Raphael said, she resolved to follow her long-held dream of becoming a professional singer.`\
 https://nytimes.com/2025/05/17/arts/music/yuval-raphael-israel-eurovision-2025.html
