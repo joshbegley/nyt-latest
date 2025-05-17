@@ -1,3 +1,7 @@
+**Another evening in Manchester United's interminable holding pattern ahead of the Europa League final**\
+`United look unlikely to even reach the 40-point mark in the Premier League this season — so it all comes down to Wednesday night in Bilbao`\
+https://nytimes.com/athletic/6363121/2025/05/17/manchester-united-europa-holding-pattern-chelsea/
+
 **After death threats, Lance McCullers Jr. returns with 'step in the right direction'**\
 `McCullers yielded two unearned runs in four innings to help the Astros beat the Rangers on Friday.`\
 https://nytimes.com/athletic/6363313/2025/05/17/lance-mccullers-jr-astros-rangers/
