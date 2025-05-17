@@ -1,3 +1,7 @@
+**Valkyries drop WNBA opener in a party not even the Sparks could spoil**\
+`This night wasn’t about wins and losses. It was about the dawning of an era.`\
+https://nytimes.com/athletic/6363303/2025/05/17/valkyries-sparks-kelsey-plum-wnba-expansion/
+
 **Matthew Knies injury uncertainty looms for Leafs after forcing Game 7**\
 `“We don’t know right now ... he’s dealing with something,” coach Craig Berube said of Knies’ injury and his status for Game 7 on Sunday.`\
 https://nytimes.com/athletic/6363243/2025/05/17/maple-leafs-matthew-knies-injury-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6358929/2025/05/17/archibald-leitch-goodison-ibrox-
 **'Football became a site of healing' – How Bradford City helped me feel joy again**\
 `"I have never felt luckier than I did this season, when football became a site of healing."`\
 https://nytimes.com/athletic/6352832/2025/05/17/bradford-city-promotion-mental-health/
-
-**Real Madrid's Raul Asencio and the sex-tape allegations against him - key questions answered**\
-`What are the allegations against him, who else is involved and will Real Madrid and Spain keep picking him?`\
-https://nytimes.com/athletic/6361362/2025/05/17/real-madrid-raul-asencio-sex-tape-allegations/
 
