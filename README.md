@@ -1,3 +1,7 @@
+**When Celine Dion won Eurovision for Switzerland.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2025/05/17/arts/eurovision-final/when-celine-dion-won-eurovision-for-switzerland
+
 **Why Palace goalkeeper Henderson avoided a red card in FA Cup final**\
 `VAR ruled that the Henderson had not denied an obvious goalscoring opportunity.`\
 https://nytimes.com/athletic/6364052/2025/05/17/dean-henderson-crystal-palace-fa-cup/
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/5843414/2025/05/17/jeremie-frimpong-liverpool-trans
 `By Alex Marshall`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final/eurovision-basel-switzerland
 
-**New Jersey Transit Negotiations to Resume Saturday Afternoon**\
-`As the strike entered its second day, the agency’s chief executive, Kris Kolluri, said that he planned to meet with union representatives at 1 p.m., a day earlier than planned.`\
+**New Jersey Transit Negotiations Resume a Day Earlier Than Expected**\
+`As the strike entered its second day, the agency’s chief executive, Kris Kolluri, met with union representatives on Saturday afternoon.`\
 https://nytimes.com/2025/05/17/nyregion/nj-transit-strike-negotiations.html
 
 **Welcome to our Eurovision coverage!**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/17/arts/eurovision-final/welcome-to-our-eurovis
 **Eurovision 2025 Live Updates: What to Expect**\
 `The international song contest is taking place in Basel, Switzerland.`\
 https://nytimes.com/live/2025/05/17/arts/eurovision-final
-
-**Orioles fire manager Brandon Hyde after 15-28 start to season**\
-`Baltimore made the playoffs in each of the last two seasons, but is 10 1/2 games out of first in the AL East through 43 games.`\
-https://nytimes.com/athletic/6363973/2025/05/17/brandon-hyde-fired-baltimore-orioles-manager-news/
 
