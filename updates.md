@@ -1,3 +1,7 @@
+**A small, tight-knit religious order molded Pope Leo XIV.**\
+`By Patricia Mazzei and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/a-small-tight-knit-religious-order-molded-pope-leo-xiv
+
 **The legacy of St. Peter, the first pope, will be part of the Mass.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/the-legacy-of-st-peter-the-first-pope-will-be-part-of-the-mass
