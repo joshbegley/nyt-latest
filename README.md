@@ -1,3 +1,11 @@
+**Kristen Stewart Thinks the Critics at Cannes Are Being Too Nice**\
+`Her directorial debut, “The Chronology of Water,” has earned good notices, but after fighting to get it made, the filmmaker wouldn’t mind a battle with reviewers.`\
+https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html
+
+**Angel City's Savy King out of hospital a week after on-field collapse**\
+`King is home after undergoing successful surgery. Teams says it is “prepared to support Savy as she continues her recovery.”`\
+https://nytimes.com/athletic/6365486/2025/05/18/savy-king-out-of-hospital-onfield-collapse/
+
 **Ajax suffered one of the great title chokes - but their fans still saluted them**\
 `From nine points clear to title despair, the Amsterdam giants had a miserable end to the campaign. What happened?`\
 https://nytimes.com/athletic/6365502/2025/05/18/ajax-eredivisie-psv-title/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/18/us/trump-news-updates/democrats-try-to-threa
 **Carlos Alcaraz accelerates away from fading Jannik Sinner to win Italian Open**\
 `After an absorbing first set, Sinner's understandable lack of match toughness saw Alcaraz dance to victory in Rome.`\
 https://nytimes.com/athletic/6365391/2025/05/18/carlos-alcaraz-jannik-sinner-italian-open-result-analysis/
-
-**Trump Envoy Says Iran Must Give Up Nuclear Enrichment Capability**\
-`Steve Witkoff, President Trump’s chief Iran negotiator, offered the clearest outlines of the administration’s position in talks over Tehran’s nuclear program.`\
-https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
-
-**Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
-`The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just a day before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
-https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
 
