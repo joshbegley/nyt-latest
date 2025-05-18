@@ -1,3 +1,7 @@
+**Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
+`Multiple people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
+https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
+
 **The race to 3: More than a trophy is at stake for Scottie Scheffler on Sunday**\
 `Six golfers in the current generation have won two majors. Scheffler can be the first since 2018 to win No. 3.`\
 https://nytimes.com/athletic/6364406/2025/05/17/scottie-scheffler-pga-championship-total-majors/

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6364406/2025/05/17/scottie-scheffler-pga-championship-total-majors/
 
 **Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
-`Multiple people needed help after the accident on Saturday night, the police said. Few details were immediately available.`\
+`Multiple people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
 https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
 
 **Caitlin Clark and Fever deliver statement in opening victory against Sky**\
