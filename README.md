@@ -1,3 +1,11 @@
+**Galatasaray pip Mourinho's Fenerbahce to Super Lig title**\
+`An 3-0 win over Kayserispor gave Okan Buruk's side a record-extending 25th Super Lig title.`\
+https://nytimes.com/athletic/6365319/2025/05/18/galatasaray-win-turkish-league-title/
+
+**Publix Recalls Baby Food Pouches Over Lead Contamination Concerns**\
+`The voluntary recall was prompted after routine testing. It is the second such recall recently of baby food over possible lead contamination.`\
+https://nytimes.com/2025/05/18/business/publix-baby-food-recall-lead.html
+
 **Suspect in Palm Springs Bombing Is Said to Have Died in Blast**\
 `Officials said Guy Edward Bartkus, 25, targeted the fertility clinic in the bombing that damaged the facility and injured four people.`\
 https://nytimes.com/2025/05/18/us/palm-springs-bombing-fertility-clinic-suspect.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010176671/brooklyn-bridge-mexico-ship-crash.h
 **Review: A Game of Light and Shadow in Gounod’s ‘Faust’**\
 `Sara Holdren’s new production for Heartbeat Opera takes its lead from Bulgakov’s Faustian novel “The Master and Margarita.”`\
 https://nytimes.com/2025/05/18/arts/music/heartbeat-opera-faust-review.html
-
-**Skinner 'doesn't know' why Ratcliffe was absent from Women's FA Cup final**\
-`United failed in their FA Cup title defence as they suffered a 3-0 defeat to Women’s Super League winners Chelsea at Wembley on Sunday.`\
-https://nytimes.com/athletic/6365295/2025/05/18/jim-ratcliffe-manchester-united-fa-cup/
-
-**Rangers confirm Barry Ferguson departure after three months**\
-`Ferguson oversaw just six victories in his 15 matches at the helm as Rangers finished 17 points behind Celtic.`\
-https://nytimes.com/athletic/6365253/2025/05/18/rangers-manager-barry-ferguson/
 
