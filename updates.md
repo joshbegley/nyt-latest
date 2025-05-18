@@ -1,3 +1,7 @@
+**Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
+`There were 277 people on board, and three were critically injured, officials said.`\
+https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
+
 **PGA Championship Round 3: How Scottie Scheffler took control**\
 `Scheffler has successfully converted each of his last seven outright 54-hole leads on the PGA Tour.`\
 https://nytimes.com/athletic/6364427/2025/05/17/pga-championship-round-3-how-scottie-scheffler-took-control/
