@@ -1,3 +1,11 @@
+**Sheffield Wednesday's Rohl considering options amid uncertainty over his future**\
+`Southampton have targeted Rohl for the top job previously and he continues to be on their radar after Ivan Juric left St Mary’s.`\
+https://nytimes.com/athletic/6365876/2025/05/18/sheffield-wednesday-danny-rohl-future/
+
+**WNBA looking into allegations of hateful comments toward Angel Reese: Source**\
+`“The WNBA strongly condemns racism, hate, and discrimination in all forms," the league said.`\
+https://nytimes.com/athletic/6365680/2025/05/18/wnba-hate-comments-fan-caitlin-clark-fever-sky/
+
 **Pope Leo XIV Holds Inaugural Mass at the Vatican**\
 `Pope Leo XIV used his homily to plead for peace in warring regions and to call for a more united Roman Catholic Church.`\
 https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.html
@@ -6,12 +14,12 @@ https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.htm
 `The 27-year-old right-hander made six starts for the Astros with a 4.50 ERA and 29 strikeouts over 32 innings.`\
 https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-john-surgery/
 
-**What's at stake in Premier League final week: Champions League spots, Europa League and Golden Boot**\
-`Everything still up for grabs in the last few days of the English top-flight season`\
+**What's at stake in Premier League final week: Champions League, Europa League, Golden Boot and more**\
+`Everything is still up for grabs in the last few days of the English top-flight season`\
 https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
 
 **Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
-`The diagnosis came after doctors found a “small nodule” on Mr. Biden’s prostate that required “further evaluation.”`\
+`The cancer has metastasized to the bone, according to a statement from Mr. Biden’s personal office.`\
 https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
 
 **A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6365633/2025/05/18/isak-newcastle-injury-update/
 **Dodgers release Chris Taylor, cutting ties with another established veteran**\
 `Cutting ties with Taylor likely clears the path for Hyeseong Kim to remain with the big-league club.`\
 https://nytimes.com/athletic/6365611/2025/05/18/dodgers-release-chris-taylor/
-
-**Paul Maurice sends condolences to Mark Scheifele after father's death**\
-`Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
-https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
-
-**Kristen Stewart Thinks the Critics at Cannes Are Being Too Nice**\
-`Her directorial debut, “The Chronology of Water,” has earned good notices, but after fighting to get it made, the filmmaker wouldn’t mind a battle with reviewers.`\
-https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html
 

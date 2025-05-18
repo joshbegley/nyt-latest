@@ -1,3 +1,7 @@
+**Monday Briefing: Trump and Putin Are Set to Talk**\
+`Plus, a Japanese author breaks barriers.`\
+https://nytimes.com/2025/05/18/briefing/trump-putin-talk-biden-cancer-israel-operation-gaza.html
+
 **Sheffield Wednesday's Rohl considering options amid uncertainty over his future**\
 `Southampton have targeted Rohl for the top job previously and he continues to be on their radar after Ivan Juric left St Mary’s.`\
 https://nytimes.com/athletic/6365876/2025/05/18/sheffield-wednesday-danny-rohl-future/
@@ -15,7 +19,7 @@ https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.htm
 https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-john-surgery/
 
 **What's at stake in Premier League final week: Champions League, Europa League, Golden Boot and more**\
-`Everything is still up for grabs in the last few days of the English top-flight season`\
+`Everything that's still up for grabs in the last seven days of this English top-flight season`\
 https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
 
 **Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/world/asia/india-pakistan-clash.html
 **Howe: ‘Unknown’ whether Isak plays crucial final game against Everton**\
 `The Sweden international was left of the squad for Newcastle’s 1-0 defeat at Arsenal on Sunday with a groin issue.`\
 https://nytimes.com/athletic/6365633/2025/05/18/isak-newcastle-injury-update/
-
-**Dodgers release Chris Taylor, cutting ties with another established veteran**\
-`Cutting ties with Taylor likely clears the path for Hyeseong Kim to remain with the big-league club.`\
-https://nytimes.com/athletic/6365611/2025/05/18/dodgers-release-chris-taylor/
 
