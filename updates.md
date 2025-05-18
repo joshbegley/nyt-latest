@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Thunder roll in Game 7, reach Western finals**\
+`Alex Caruso pestered Nikola Jokić and the Thunder ran to the Western Conference finals with a Game 7 rout.`\
+https://nytimes.com/athletic/6365902/2025/05/18/nba-playoffs-takeaways-nuggets-thunder-game-7/
+
 **Ear-to-Ear Expression**\
 `It’s just one thing after another in Kiran Pandey’s puzzle, isn’t it?`\
 https://nytimes.com/2025/05/18/crosswords/daily-puzzle-2025-05-19.html
