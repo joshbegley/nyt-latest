@@ -1,3 +1,7 @@
+**A small, tight-knit religious order molded Pope Leo XIV.**\
+`By Patricia Mazzei and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/a-small-tight-knit-religious-order-molded-pope-leo-xiv
+
 **The legacy of St. Peter, the first pope, will be part of the Mass.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/the-legacy-of-st-peter-the-first-pope-will-be-part-of-the-mass
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/crosswords/spelling-bee-forum.html
 **Clayton Kershaw struggles in 2025 Dodgers debut**\
 `For Kershaw, this game was about more than just the result; it was an emotional moment: “I love being back out there, it’s a special thing.”`\
 https://nytimes.com/athletic/6364710/2025/05/18/dodgers-clayton-kershaw-struggles-2025-debut/
-
-**NWSL commissioner on decision to play after Savy King's collapse: 'All we could do is learn'**\
-`The commissioner reiterated that the game between Angel City FC and the Utah Royals should not have continued after Savy King collapsed.`\
-https://nytimes.com/athletic/6364637/2025/05/18/nwsl-commissioner-on-playing-after-savy-king-collapsed/
 
