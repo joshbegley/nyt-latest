@@ -1,3 +1,7 @@
+**Trump Envoy Says Iran Must Give Up Nuclear Enrichment Capability**\
+`Steve Witkoff, President Trump’s chief Iran negotiator, offered the clearest outlines of the administration’s position in talks over Tehran’s nuclear program.`\
+https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
+
 **Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
 `The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html

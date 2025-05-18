@@ -1,3 +1,11 @@
+**Democrats try to thread a needle in discussing Biden’s 2024 campaign and withdrawal.**\
+`Party leaders are walking a delicate line between defending the former president’s legislative accomplishments and admitting that he should have passed the torch earlier.`\
+https://nytimes.com/live/2025/05/18/us/trump-news-updates/democrats-try-to-thread-a-needle-in-discussing-bidens-2024-campaign-and-withdrawal
+
+**Carlos Alcaraz accelerates away from fading Jannik Sinner to win Italian Open**\
+`After an absorbing first set, Sinner's understandable lack of match toughness saw Alcaraz dance to victory in Rome.`\
+https://nytimes.com/athletic/6365391/2025/05/18/carlos-alcaraz-jannik-sinner-italian-open-result-analysis/
+
 **Trump Envoy Says Iran Must Give Up Nuclear Enrichment Capability**\
 `Steve Witkoff, President Trump’s chief Iran negotiator, offered the clearest outlines of the administration’s position in talks over Tehran’s nuclear program.`\
 https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-
 **Jamie Vardy's 200 goals in 500 Leicester games: How he scored them, who he scored against and the five best**\
 `The striker reached the milestone on Sunday, but how did he score them? How much do other strikers rate him? And which goals are his best?`\
 https://nytimes.com/athletic/6344500/2025/05/18/jamie-vardy-200-leicester-goals/
-
-**Maple Leafs lineup vs. Panthers: Matthew Knies' health and more big questions for Game 7**\
-`Leafs forward Matthew Knies is good to go for Game 7 after sustaining injury in win in Florida.`\
-https://nytimes.com/athletic/6364985/2025/05/18/maple-leafs-lineup-game-7-nhl-playoffs/
-
-**Jennifer Lawrence Gets Her First Cannes Premiere, and It’s a Risky One**\
-`In “Die My Love” with Robert Pattinson, she plays a mother with postpartum depression. She was four months pregnant then and the hormones helped a lot.`\
-https://nytimes.com/2025/05/18/movies/jennifer-lawrence-robert-pattinson-die-my-love-cannes.html
 
