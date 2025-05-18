@@ -3,7 +3,7 @@
 https://nytimes.com/card/2025/05/18/smarter-living/wirecutter/conan-o-briens-mostly-serious-tips-for-traveling-the-world
 
 **Stars eliminate Jets in Game 6 on Thomas Harley's overtime goal: Takeaways**\
-`Dallas now heads to a Western Conference final rematch with Edmonton.`\
+`Dallas now heads to a Western Conference final rematch with Edmonton for the second straight spring.`\
 https://nytimes.com/athletic/6364590/2025/05/17/jets-stars-game-6/
 
 **PGA Championship Round 3: How Scottie Scheffler took control**\
