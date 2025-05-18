@@ -1,3 +1,7 @@
+**In Upset, Centrist Wins Romania’s Presidential Election**\
+`Nicusor Dan, the mayor of Bucharest, defeated George Simion, a nationalist aligned with President Trump who had been seen as the front-runner.`\
+https://nytimes.com/2025/05/18/world/europe/nicusor-dan-romania-election.html
+
 **Dodgers showing urgency, not sentimentality, in cutting Austin Barnes and Chris Taylor**\
 `The emergence of infielder Hyeseong Kim made Taylor expendable as part of what Andrew Friedman called "a very emotional week."`\
 https://nytimes.com/athletic/6365880/2025/05/18/dodgers-austin-barnes-chris-taylor/
