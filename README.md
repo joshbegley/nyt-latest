@@ -1,40 +1,40 @@
-**Conan O’Brien’s (Mostly Serious) Tips for Traveling the World**\
-`Text by Maria Adelmann`\
-https://nytimes.com/card/2025/05/18/smarter-living/wirecutter/conan-o-briens-mostly-serious-tips-for-traveling-the-world
+**How Barcelona celebrated winning La Liga – players cycling to see Torres and 670,000 fans in the streets**\
+`Barcelona won their 28th league title on Thursday night at the home of their city rivals. The celebrations since have been... memorable`\
+https://nytimes.com/athletic/6363680/2025/05/18/barcelona-la-liga-celebrations-torres-flick-casado/
 
-**Stars eliminate Jets in Game 6 on Thomas Harley's overtime goal: Takeaways**\
-`Dallas now heads to a Western Conference final rematch with Edmonton for the second straight spring.`\
-https://nytimes.com/athletic/6364590/2025/05/17/jets-stars-game-6/
+**Do Arsenal have a problem defending corners?**\
+`Mikel Arteta's side are effective with attacking set pieces but have struggled to deal with opposition corners in 2024-25`\
+https://nytimes.com/athletic/6358305/2025/05/18/arsenal-defending-corners-problem/
 
-**PGA Championship Round 3: How Scottie Scheffler took control**\
-`Scheffler has successfully converted each of his last seven outright 54-hole leads on the PGA Tour.`\
-https://nytimes.com/athletic/6364427/2025/05/17/pga-championship-round-3-how-scottie-scheffler-took-control/
+**JD Vance Returns to the Vatican, a Potential Reset for the American Right**\
+`The cardinals’ selection of Pope Leo tests the strained relationship between the bishop of Rome and conservative Catholics.`\
+https://nytimes.com/2025/05/18/us/pope-leo-conservatives.html
 
-**If WNBA wants a true Caitlin Clark-Angel Reese rivalry, the Sky must grow quickly**\
-`Clark recorded a triple-double as the Fever continue to have the Sky's number. `\
-https://nytimes.com/athletic/6364552/2025/05/17/caitlin-clark-angel-reese-wnba-rivalry-fever-sky/
+**Quote of the Day: The Professors Are Using ChatGPT, and Some Students Aren’t Happy About It**\
+`Quote of the Day for Sunday, May 18, 2025`\
+https://nytimes.com/2025/05/18/pageoneplus/quote-of-the-day-the-professors-are-using-chatgpt-and-some-students-arent-happy-about-it.html
 
-**Onlookers Stunned as Boat Hits Brooklyn Bridge**\
-`The masts of a Mexican Navy training sailboat toppled after striking the underside of the Brooklyn Bridge on Saturday evening.`\
-https://nytimes.com/video/nyregion/100000010176320/brooklyn-bridge-boat-crash.html
+**Trump Shrugs Off Netanyahu on Gulf Tour**\
+`On Iran, Gaza, Syria and Yemen, President Trump is moving ahead without Israel, reshaping decades of foreign policy.`\
+https://nytimes.com/2025/05/18/world/middleeast/trump-israel-netanyahu-gulf.html
 
-**The race to 3: More than a trophy is at stake for Scottie Scheffler on Sunday**\
-`Six golfers in the current generation have won two majors. Scheffler can be the first since 2018 to win No. 3.`\
-https://nytimes.com/athletic/6364406/2025/05/17/scottie-scheffler-pga-championship-total-majors/
+**Britain’s Right-Wing News Media Line Up to Attack ‘Surrender Summit’ With E.U.**\
+`Most British people believe Brexit was a mistake. But Prime Minister Keir Starmer’s attempts to edge closer to Europe face huge opposition in the national news media.`\
+https://nytimes.com/2025/05/18/world/europe/uk-brexit-eu-summit.html
 
-**Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
-`There were 277 people on board, and three were critically injured, officials said.`\
-https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
+**How One Woman Is Breaking a Military Stereotype in Ukraine**\
+`Ukraine’s only female combat pilot flies helicopter missions against Russian troops. The military says it wants more women fighting, but sexism remains an obstacle, activists and female soldiers say.`\
+https://nytimes.com/2025/05/18/world/europe/ukraine-woman-combat-pilot.html
 
-**Caitlin Clark and Fever deliver statement in opening victory against Sky**\
-`Clark and the Fever's new additions looked cohesive in their first game. `\
-https://nytimes.com/athletic/6364509/2025/05/17/caitlin-clark-indiana-fever-victory-chicago-sky-wnba/
+**After Brexit, Rapprochement? How Trump’s America Is Reuniting Europe.**\
+`A summit on Monday between Britain and the European Union, expected to include a defense pact, may kick-start a new era.`\
+https://nytimes.com/2025/05/18/world/europe/uk-eu-summit-trump.html
 
-**'Nothing I can do': Bryson DeChambeau tries to move on after late collapse**\
-`“I'm behind the eight ball now,” he said. “I've got to get my guns a-blazing tomorrow.”`\
-https://nytimes.com/athletic/6364409/2025/05/17/pga-championship-2025-bryson-dechambeau-collapse/
+**Connections: Sports Edition Coach: Hints for May 18, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6364587/2025/05/18/connections-sports-edition-hints-for-may-18-2025/
 
-**Comebacks are the difference for 2025 Blue Jays: Call it 'mojo' or 'blue-collar mentality'**\
-`Saturday’s 2-1 walk-off win over the Tigers was the 12th of the season for the Blue Jays. Comebacks represent over half of their total wins.`\
-https://nytimes.com/athletic/6364430/2025/05/17/blue-jays-comebacks/
+**Corrections: May 18, 2025**\
+`Corrections that appeared in print on Sunday, May 18, 2025.`\
+https://nytimes.com/2025/05/18/pageoneplus/corrections-may-18-2025.html
 
