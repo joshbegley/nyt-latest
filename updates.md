@@ -1,3 +1,11 @@
+**A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
+`Rafal Trzaskowski, the Warsaw mayor, appeared to have won the first round of the election. Prime Minister Donald Tusk is hoping his eventual victory will help push through a liberal agenda.`\
+https://nytimes.com/2025/05/18/world/europe/poland-president-election-results.html
+
+**Pakistan Says It Expects Truce to Hold as Hotline to India Stays Open**\
+`The two adversaries have spent the week since the end of the military confrontation making the case that they emerged victorious.`\
+https://nytimes.com/2025/05/18/world/asia/india-pakistan-clash.html
+
 **Howe: ‘Unknown’ whether Isak plays crucial final game against Everton**\
 `The Sweden international was left of the squad for Newcastle’s 1-0 defeat at Arsenal on Sunday with a groin issue.`\
 https://nytimes.com/athletic/6365633/2025/05/18/isak-newcastle-injury-update/
