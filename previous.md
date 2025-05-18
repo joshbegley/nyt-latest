@@ -1,3 +1,7 @@
+**Skinner 'doesn't know' why Ratcliffe was absent from Women's FA Cup final**\
+`United failed in their FA Cup title defence as they suffered a 3-0 defeat to Women’s Super League winners Chelsea at Wembley on Sunday.`\
+https://nytimes.com/athletic/6365295/2025/05/18/jim-ratcliffe-manchester-united-fa-cup/
+
 **Rangers confirm Barry Ferguson departure after three months**\
 `Ferguson oversaw just six victories in his 15 matches at the helm as Rangers finished 17 points behind Celtic.`\
 https://nytimes.com/athletic/6365253/2025/05/18/rangers-manager-barry-ferguson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362824/2025/05/18/matt-savoie-stats-ahl-bakersfiel
 **Amid Cease-Fire Talks, Israel Says It Has Expanded Ground Operations in Gaza**\
 `This new stage of the war is aimed at pressuring Hamas into releasing hostages and ultimately destroying the group or forcing it to surrender.`\
 https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.html
-
-**Maryland Governor Vetoes Reparations Bill**\
-`Wes Moore, the nation’s lone sitting Black governor, diverged from fellow Democratic governors in rejecting a measure that would have studied reparations.`\
-https://nytimes.com/2025/05/18/us/maryland-governor-vetoes-reparations-bill.html
 

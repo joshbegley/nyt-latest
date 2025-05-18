@@ -1,3 +1,7 @@
+**Review: A Game of Light and Shadow in Gounod’s ‘Faust’**\
+`Sara Holdren’s new production for Heartbeat Opera takes its lead from Bulgakov’s Faustian novel “The Master and Margarita.”`\
+https://nytimes.com/2025/05/18/arts/music/heartbeat-opera-faust-review.html
+
 **Skinner 'doesn't know' why Ratcliffe was absent from Women's FA Cup final**\
 `United failed in their FA Cup title defence as they suffered a 3-0 defeat to Women’s Super League winners Chelsea at Wembley on Sunday.`\
 https://nytimes.com/athletic/6365295/2025/05/18/jim-ratcliffe-manchester-united-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365048/2025/05/18/imola-grand-prix-2025-result-max
 **Lowetide: What Oilers' Matt Savoie accomplished in his first AHL season**\
 `In Savoie, the Oilers have a plug-and-play right winger who could slide into the lineup this fall.`\
 https://nytimes.com/athletic/6362824/2025/05/18/matt-savoie-stats-ahl-bakersfield/
-
-**Amid Cease-Fire Talks, Israel Says It Has Expanded Ground Operations in Gaza**\
-`This new stage of the war is aimed at pressuring Hamas into releasing hostages and ultimately destroying the group or forcing it to surrender.`\
-https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.html
 
