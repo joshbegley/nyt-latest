@@ -14,7 +14,7 @@ https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/jd-vance-has-come-to
 `A woman in South Korea was accused of claiming she was pregnant by Son Heung-min, the captain of Tottenham Hotspur, and demanding hush money.`\
 https://nytimes.com/2025/05/18/world/asia/skorea-son-heung-min-blackmail.html
 
-**Smith: Farewell for now, Imola. For all your flaws, I’m going to miss y**\
+**Smith: Farewell for now, Imola. For all your flaws, I’m going to miss you**\
 `F1 history, wonderful fans and a paddock cat — just a few reasons our senior writer will be sad when Imola leaves the F1 calendar soon`\
 https://nytimes.com/athletic/6364614/2025/05/18/f1-imola-gp-final-race-2025/
 
