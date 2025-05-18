@@ -1,3 +1,7 @@
+**Until 60 Years Ago, New Popes Were Crowned**\
+`Pope Leo XIV presided over his inaugural Mass on Sunday. Years ago, it would have included a solemn moment when the pontiff was crowned with an elaborate gold and jewel-encrusted papal tiara.`\
+https://nytimes.com/2025/05/18/world/europe/pope-crown.html
+
 **NBA offseason spending power: What each team has at its disposal this summer**\
 `Unexpected draft lottery results impacted the summer outlook for a few teams, but only one has the space to offer a max deal.`\
 https://nytimes.com/athletic/6353679/2025/05/18/2025-nba-offseason-spending-lakers-warriors-celtics-money/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6359644/2025/05/18/mystics-sun-wnba-how-to-watch/
 **Surgeons Perform First Human Bladder Transplant**\
 `The procedure could be life-changing for some people with debilitating conditions.`\
 https://nytimes.com/2025/05/18/health/bladder-transplant-human.html
-
-**What Desi Arnaz Could Teach Hollywood Today**\
-`Before there was D.E.I., there was Desi Arnaz, rewriting the rules to become Hollywood’s unlikeliest mogul. His success still holds valuable lessons.`\
-https://nytimes.com/2025/05/18/opinion/desi-arnaz-hollywood-rules.html
 
