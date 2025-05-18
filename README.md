@@ -2,7 +2,7 @@
 `Cutting ties with Taylor likely clears the path for Hyeseong Kim to remain with the big-league club.`\
 https://nytimes.com/athletic/6365611/2025/05/18/dodgers-release-chris-taylor/
 
-**Paul Maurice sends condolences to Mark Scheifele after father's death: 'Display of courage and focus'**\
+**Paul Maurice sends condolences to Mark Scheifele after father's death**\
 `Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
 https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
 

@@ -1,3 +1,15 @@
+**Dodgers release Chris Taylor, cutting ties with another established veteran**\
+`Cutting ties with Taylor likely clears the path for Hyeseong Kim to remain with the big-league club.`\
+https://nytimes.com/athletic/6365611/2025/05/18/dodgers-release-chris-taylor/
+
+**Angel City's Savy King out of hospital a week after on-field collapse**\
+`King is home after undergoing successful surgery. The team says it is “prepared to support Savy as she continues her recovery.”`\
+https://nytimes.com/athletic/6365486/2025/05/18/savy-king-out-of-hospital-onfield-collapse/
+
+**Suspect Identified in Palm Springs Bombing and Is Said to Have Died in Blast**\
+`Officials said Guy Edward Bartkus, 25, targeted the fertility clinic in the bombing that damaged the facility and injured four people.`\
+https://nytimes.com/2025/05/18/us/palm-springs-bombing-fertility-clinic-suspect.html
+
 **Paul Maurice sends condolences to Mark Scheifele after father's death: 'Display of courage and focus'**\
 `Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
 https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
