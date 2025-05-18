@@ -1,4 +1,8 @@
-**How Yankees’ DJ LeMahieu looks different — which is a good thing**\
+**F.D.A. Approves Novavax Covid Vaccine With Stricter New Conditions**\
+`The agency narrowed who can get the shot and added new study requirements that could cost the company tens of millions.`\
+https://nytimes.com/2025/05/17/science/fda-novavax-covid-vaccine.html
+
+**How Yankees' DJ LeMahieu looks different — which is a good thing**\
 `LeMahieu hit his first home run since July and is performing well in the field and at the plate after finally getting healthy.`\
 https://nytimes.com/athletic/6364380/2025/05/17/yankees-dj-lemahieu-subway-series/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/17/us/politics/trump-guns-rifles.html
 **Caitlin Clark notches triple-double as Fever blow out Sky in season opener**\
 `A revamped Fever team began its most-anticipated season in franchise history with an emphatic victory.`\
 https://nytimes.com/athletic/6364243/2025/05/17/fever-sky-result-takeaways-caitlin-clark-angel-reese/
-
-**Now it’s time to vote.**\
-`By Elisabeth Vincentelli`\
-https://nytimes.com/live/2025/05/17/arts/eurovision-2025-final-winner/now-its-time-to-vote
 
