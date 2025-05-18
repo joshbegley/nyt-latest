@@ -1,3 +1,7 @@
+**Scottie Scheffler wins PGA Championship, reminding everyone of his greatness**\
+`Scheffler, set to turn 29 next month, has entered the rarest space. The golfer who stands among world’s best athletes.`\
+https://nytimes.com/athletic/6366080/2025/05/18/pga-championship-scottie-scheffler-wins/
+
 **New Jersey Transit and Engineers’ Union Agree to Deal to End Strike**\
 `An announcement by Gov. Philip D. Murphy was expected Sunday night.`\
 https://nytimes.com/2025/05/18/nyregion/new-jersey-transit-strike-agreement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365083/2025/05/18/oliver-glasner-crystal-palace-fu
 **Matic plays for Lyon with LBGTQ+ logo covered up on shirt**\
 `Ligue 1’s campaign against homophobia has been running since 2021 and aims to increase awareness around LGBTQ+ rights in football.`\
 https://nytimes.com/athletic/6365800/2025/05/18/lyon-nemanja-matic-anti-homophobia/
-
-**Monday Briefing: Trump and Putin Are Set to Talk**\
-`Plus, a Japanese author breaks barriers.`\
-https://nytimes.com/2025/05/18/briefing/trump-putin-talk-biden-cancer-israel-operation-gaza.html
 
