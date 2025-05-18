@@ -1,3 +1,7 @@
+**Review: A Game of Light and Shadow in Gounod’s ‘Faust’**\
+`Sara Holdren’s new production for Heartbeat Opera takes its lead from Bulgakov’s Faustian novel “The Master and Margarita.”`\
+https://nytimes.com/2025/05/18/arts/music/heartbeat-opera-faust-review.html
+
 **Skinner 'doesn't know' why Ratcliffe was absent from Women's FA Cup final**\
 `United failed in their FA Cup title defence as they suffered a 3-0 defeat to Women’s Super League winners Chelsea at Wembley on Sunday.`\
 https://nytimes.com/athletic/6365295/2025/05/18/jim-ratcliffe-manchester-united-fa-cup/
