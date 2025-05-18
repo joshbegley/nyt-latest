@@ -1,3 +1,7 @@
+**Feldman: CFB win totals for 2025 I like most, from Clemson to Cal**\
+`Not only is do I feel great about the over on Clemson's win total, but also I think the Tigers could be in the title game.`\
+https://nytimes.com/athletic/6362876/2025/05/18/college-football-win-totals-best-bets-2025-feldman/
+
 **The goalkeeper's view on Henderson v Haaland FA Cup final incident**\
 `Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did.`\
 https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
