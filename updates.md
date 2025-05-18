@@ -1,3 +1,7 @@
+**What's at stake in Premier League final week: Champions League spots, Europa League and Golden Boot**\
+`Everything still up for grabs in the last few days of the English top-flight season`\
+https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
+
 **Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
 `The diagnosis came after doctors found a “small nodule” on Mr. Biden’s prostate that required “further evaluation.”`\
 https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html

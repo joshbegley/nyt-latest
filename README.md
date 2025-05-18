@@ -1,3 +1,11 @@
+**Pope Leo XIV Holds Inaugural Mass at the Vatican**\
+`Pope Leo XIV used his homily to plead for peace in warring regions and to call for a more united Roman Catholic Church.`\
+https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.html
+
+**Astros starter Hayden Wesneski to undergo Tommy John surgery**\
+`The 27-year-old right-hander made six starts for the Astros with a 4.50 ERA and 29 strikeouts over 32 innings.`\
+https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-john-surgery/
+
 **What's at stake in Premier League final week: Champions League spots, Europa League and Golden Boot**\
 `Everything still up for grabs in the last few days of the English top-flight season`\
 https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-le
 **Kristen Stewart Thinks the Critics at Cannes Are Being Too Nice**\
 `Her directorial debut, “The Chronology of Water,” has earned good notices, but after fighting to get it made, the filmmaker wouldn’t mind a battle with reviewers.`\
 https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html
-
-**Angel City's Savy King out of hospital a week after on-field collapse**\
-`King is home after undergoing successful surgery. The team says it is “prepared to support Savy as she continues her recovery.”`\
-https://nytimes.com/athletic/6365486/2025/05/18/savy-king-out-of-hospital-onfield-collapse/
-
-**Ajax suffered one of the great title chokes - but their fans still saluted them**\
-`From nine points clear to title despair, the Amsterdam giants had a miserable end to the campaign. What happened?`\
-https://nytimes.com/athletic/6365502/2025/05/18/ajax-eredivisie-psv-title/
 
