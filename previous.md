@@ -1,3 +1,11 @@
+**The goalkeeper's view on Henderson v Haaland FA Cup final incident**\
+`Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did.`\
+https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
+
+**What is the image of the Virgin Mary near the altar?**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/what-is-the-image-of-the-virgin-mary-near-the-altar
+
 **Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/crosswords/wordle-review-1430.html
 **How I Got Duped by Designer Dupes**\
 `The overwhelming deluge of bag content made me desperate for the luxury my lackluster bank balance would never permit.`\
 https://nytimes.com/2025/05/18/opinion/dupe-counterfeit-designer-bag.html
-
-**Connections Companion No. 708**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 19, 2025.`\
-https://nytimes.com/2025/05/18/crosswords/connections-companion-708.html
-
-**Severe Weather Continues to Threaten the Middle of the U.S.**\
-`Storms capable of producing hail larger than golf balls, strong winds and tornadoes are expected in the Great Plains on Sunday and Monday.`\
-https://nytimes.com/2025/05/18/weather/sunday-tornado-forecast-kansas-oklahoma-storms.html
 

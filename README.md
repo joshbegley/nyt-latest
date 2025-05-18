@@ -1,3 +1,7 @@
+**Feldman: CFB win totals for 2025 I like most, from Clemson to Cal**\
+`Not only is do I feel great about the over on Clemson's win total, but also I think the Tigers could be in the title game.`\
+https://nytimes.com/athletic/6362876/2025/05/18/college-football-win-totals-best-bets-2025-feldman/
+
 **The goalkeeper's view on Henderson v Haaland FA Cup final incident**\
 `Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did.`\
 https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/opinion/country-music-beyonce-lana.html
 **Wordle Review No. 1,430**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 19, 2025.`\
 https://nytimes.com/2025/05/18/crosswords/wordle-review-1430.html
-
-**How I Got Duped by Designer Dupes**\
-`The overwhelming deluge of bag content made me desperate for the luxury my lackluster bank balance would never permit.`\
-https://nytimes.com/2025/05/18/opinion/dupe-counterfeit-designer-bag.html
 

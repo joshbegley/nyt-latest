@@ -1,3 +1,11 @@
+**The goalkeeper's view on Henderson v Haaland FA Cup final incident**\
+`Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did.`\
+https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
+
+**What is the image of the Virgin Mary near the altar?**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/what-is-the-image-of-the-virgin-mary-near-the-altar
+
 **Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity
