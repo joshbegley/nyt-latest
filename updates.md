@@ -1,3 +1,7 @@
+**Will Still leaving position as Lens head coach 'to go back home' to UK**\
+`Still, formerly head coach of Reims, joined Lens on a three-year contract last summer and guided them to an eighth-place finish in Ligue 1.`\
+https://nytimes.com/athletic/6364745/2025/05/18/will-still-manager-lens-france/
+
 **JD Vance has come to greet the new pope, but old tensions loom.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/jd-vance-has-come-to-greet-the-new-pope-but-old-tensions-loom
