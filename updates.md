@@ -1,3 +1,7 @@
+**Free Press, Free People**\
+`An interview with the publisher of The Times.`\
+https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
+
 **Until 60 Years Ago, New Popes Were Crowned**\
 `Pope Leo XIV presided over his inaugural Mass on Sunday. Years ago, it would have included a solemn moment when the pontiff was crowned with an elaborate gold and jewel-encrusted papal tiara.`\
 https://nytimes.com/2025/05/18/world/europe/pope-crown.html
