@@ -1,3 +1,11 @@
+**Mark Scheifele, Winnipeg Jets dealt devastating loss but meet it with courage and heart**\
+`For Scheifele, Game 6 was a way to honour his dad. It ended with heartbreak, but not without courage in the face of a devastating loss.`\
+https://nytimes.com/athletic/6364344/2025/05/18/nhl-playoffs-mark-scheifele-winnipeg-jets/
+
+**A goalkeeper's view on Henderson v Haaland FA Cup final incident**\
+`Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did`\
+https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
+
 **Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
 `By Jason Horowitz`\
 https://nytimes.com/2025/05/18/world/europe/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity.html

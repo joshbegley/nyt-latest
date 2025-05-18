@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6364753/2025/05/18/mazraoui-manchester-united-europ
 `Not only is do I feel great about the over on Clemson's win total, but also I think the Tigers could be in the title game.`\
 https://nytimes.com/athletic/6362876/2025/05/18/college-football-win-totals-best-bets-2025-feldman/
 
-**A goalkeeper's view on Henderson v Haaland FA Cup final incident**\
+**A goalkeeper's view on Henderson vs Haaland FA Cup final incident**\
 `Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did`\
 https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
 

@@ -1,3 +1,7 @@
+**Mark Scheifele, Winnipeg Jets dealt devastating loss but meet it with courage and heart**\
+`For Scheifele, Game 6 was a way to honour his dad. It ended with heartbreak, but not without courage in the face of a devastating loss.`\
+https://nytimes.com/athletic/6364344/2025/05/18/nhl-playoffs-mark-scheifele-winnipeg-jets/
+
 **Free Press, Free People**\
 `An interview with the publisher of The Times.`\
 https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/6364753/2025/05/18/mazraoui-manchester-united-europ
 `Not only is do I feel great about the over on Clemson's win total, but also I think the Tigers could be in the title game.`\
 https://nytimes.com/athletic/6362876/2025/05/18/college-football-win-totals-best-bets-2025-feldman/
 
-**The goalkeeper's view on Henderson v Haaland FA Cup final incident**\
-`Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did.`\
+**A goalkeeper's view on Henderson v Haaland FA Cup final incident**\
+`Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did`\
 https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
 
 **What is the image of the Virgin Mary near the altar?**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/what-is-the-image-of
 **Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
 `By Jason Horowitz`\
 https://nytimes.com/2025/05/18/world/europe/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity.html
-
-**How to watch Mystics at Sun: New-look teams face off in WNBA opening weekend action**\
-`Sunday's WNBA matchup between the Washington Mystics and Connecticut Sun has new coaches and a few rookie debuts.`\
-https://nytimes.com/athletic/6359644/2025/05/18/mystics-sun-wnba-how-to-watch/
 
