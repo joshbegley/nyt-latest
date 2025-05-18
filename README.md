@@ -1,3 +1,23 @@
+**The New York Times in Print for Sunday, May 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/18/todays-new-york-times
+
+**American Graft Didn’t Start With Trump**\
+`American politicians have been for sale for far longer than Donald Trump has been around and in far more ways than he and his family have so far pioneered.`\
+https://nytimes.com/2025/05/18/opinion/trump-politics-corruption.html
+
+**As Europe Speeds By on Rail, America Is Stuck in Traffic**\
+`As Europe embraces the night train, the United States seems to be sleepwalking into a transport dead end.`\
+https://nytimes.com/2025/05/18/opinion/europe-train-travel.html
+
+**Why There’s No Battlefield Solution to India’s Perpetual Pakistan Problem**\
+`This month’s violent escalation reminded the world how India’s gradual rise can be hindered by the troublesome country next door.`\
+https://nytimes.com/2025/05/18/world/asia/india-pakistan-conflict.html
+
+**'Winning is fun': Twins win streak hits 13 with third straight shutout in 18-hit effort**\
+`Even injuries aren't worrying the Twins. Top prospect Carson McCusker is getting called up after Byron Buxton suffered a concussion.`\
+https://nytimes.com/athletic/6364655/2025/05/18/twins-win-13-straight/
+
 **Rafael Devers' first walk-off homer in eventful week brings much-needed Red Sox victory**\
 `Boston rallied from an early 5-0 deficit against Atlanta to end its slide of one-run losses.`\
 https://nytimes.com/athletic/6364642/2025/05/18/rafael-devers-walkoff-red-sox-braves/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6326552/2025/05/18/neom-saudi-football-2034-world-c
 **The origin story of an iconic Anfield banner – and why Slot will soon adorn it**\
 `One of the Kop's most distinctive features will have a facelift next season after the Dutchman's spectacular first season`\
 https://nytimes.com/athletic/6343918/2025/05/18/liverpool-kop-banner-managers-slot/
-
-**How Barcelona celebrated winning La Liga – players cycling to see Torres and 670,000 fans in the streets**\
-`Barcelona won their 28th league title on Thursday night at the home of their city rivals. The celebrations since have been... memorable`\
-https://nytimes.com/athletic/6363680/2025/05/18/barcelona-la-liga-celebrations-torres-flick-casado/
-
-**Do Arsenal have a problem defending corners?**\
-`Mikel Arteta's side are effective with attacking set pieces but have struggled to deal with opposition corners in 2024-25`\
-https://nytimes.com/athletic/6358305/2025/05/18/arsenal-defending-corners-problem/
-
-**JD Vance Returns to the Vatican, a Potential Reset for the American Right**\
-`The cardinals’ selection of Pope Leo tests the strained relationship between the bishop of Rome and conservative Catholics.`\
-https://nytimes.com/2025/05/18/us/pope-leo-conservatives.html
-
-**Quote of the Day: The Professors Are Using ChatGPT, and Some Students Aren’t Happy About It**\
-`Quote of the Day for Sunday, May 18, 2025`\
-https://nytimes.com/2025/05/18/pageoneplus/quote-of-the-day-the-professors-are-using-chatgpt-and-some-students-arent-happy-about-it.html
-
-**Trump Shrugs Off Netanyahu on Gulf Tour**\
-`On Iran, Gaza, Syria and Yemen, President Trump is moving ahead without Israel, reshaping decades of foreign policy.`\
-https://nytimes.com/2025/05/18/world/middleeast/trump-israel-netanyahu-gulf.html
 

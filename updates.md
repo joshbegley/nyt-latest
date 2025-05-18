@@ -1,3 +1,7 @@
+**Rafael Devers' first walk-off homer in eventful week brings much-needed Red Sox victory**\
+`Boston rallied from an early 5-0 deficit against Atlanta to end its slide of one-run losses.`\
+https://nytimes.com/athletic/6364642/2025/05/18/rafael-devers-walkoff-red-sox-braves/
+
 **How it feels for Nottingham Forest to be back in Europe for the first time in 30 years**\
 `Nottingham Forest have qualified for Europe next season. So how does it feel for those connected with the club after such a long absence?`\
 https://nytimes.com/athletic/6363531/2025/05/18/nottingham-forest-europe-30-years/
