@@ -1,3 +1,7 @@
+**Ear-to-Ear Expression**\
+`It’s just one thing after another in Kiran Pandey’s puzzle, isn’t it?`\
+https://nytimes.com/2025/05/18/crosswords/daily-puzzle-2025-05-19.html
+
 **In Upset, Centrist Wins Romania’s Presidential Election**\
 `Nicusor Dan, the mayor of Bucharest, defeated George Simion, a nationalist aligned with President Trump who had been seen as the front-runner.`\
 https://nytimes.com/2025/05/18/world/europe/nicusor-dan-romania-election.html

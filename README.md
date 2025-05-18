@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Thunder roll in Game 7, reach Western finals**\
+`Alex Caruso pestered Nikola Jokić and the Thunder ran to the Western Conference finals with a Game 7 rout.`\
+https://nytimes.com/athletic/6365902/2025/05/18/nba-playoffs-takeaways-nuggets-thunder-game-7/
+
 **Ear-to-Ear Expression**\
 `It’s just one thing after another in Kiran Pandey’s puzzle, isn’t it?`\
 https://nytimes.com/2025/05/18/crosswords/daily-puzzle-2025-05-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365680/2025/05/18/wnba-hate-comments-fan-caitlin-c
 **Pope Leo XIV Holds Inaugural Mass at the Vatican**\
 `Pope Leo XIV used his homily to plead for peace in warring regions and to call for a more united Roman Catholic Church.`\
 https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.html
-
-**Astros starter Hayden Wesneski to undergo Tommy John surgery**\
-`The 27-year-old right-hander made six starts for the Astros with a 4.50 ERA and 29 strikeouts over 32 innings.`\
-https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-john-surgery/
 
