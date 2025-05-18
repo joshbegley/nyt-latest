@@ -1,3 +1,7 @@
+**Smith: Farewell for now, Imola. For all your flaws, I’m going to miss you**\
+`F1 history, wonderful fans and a paddock cat — just a few reasons our senior writer will be sad when Imola leaves the F1 calendar soon`\
+https://nytimes.com/athletic/6364614/2025/05/18/f1-imola-gp-final-race-2025/
+
 **Friends of the pope’s alma mater, Villanova, gather in Rome.**\
 `By Elizabeth Dias`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/friends-of-the-popes-alma-mater-villanova-gather-in-rome
