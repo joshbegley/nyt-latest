@@ -1,4 +1,4 @@
-**Caitlin Clark and Indiana Fever deliver statement in opening victory against Sky**\
+**Caitlin Clark and Fever deliver statement in opening victory against Sky**\
 `Clark and the Fever's new additions looked cohesive in their first game. `\
 https://nytimes.com/athletic/6364509/2025/05/17/caitlin-clark-indiana-fever-victory-chicago-sky-wnba/
 
