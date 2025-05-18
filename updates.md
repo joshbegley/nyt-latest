@@ -1,3 +1,11 @@
+**Jennifer Lawrence Gets Her First Cannes Premiere, and It’s a Risky One**\
+`In “Die My Love” with Robert Pattinson, she plays a mother with postpartum depression. She was four months pregnant then and the hormones helped a lot.`\
+https://nytimes.com/2025/05/18/movies/jennifer-lawrence-robert-pattinson-die-my-love-cannes.html
+
+**Women's FA Cup final: Treble secured, dominant display, Serena Williams in royal box**\
+`Chelsea have completed the domestic treble with victory over cup holders Manchester United at Wembley`\
+https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
+
 **A Simple Shrimp Salad to Welcome Summer**\
 `Mark Bittman’s spicy shrimp salad with mint, a recipe from 1998, still packs a fresh, lemony punch.`\
 https://nytimes.com/2025/05/18/dining/shrimp-salad-recipe.html
