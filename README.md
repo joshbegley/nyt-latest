@@ -1,3 +1,7 @@
+**A Simple Shrimp Salad to Welcome Summer**\
+`Mark Bittman’s spicy shrimp salad with mint, a recipe from 1998, still packs a fresh, lemony punch.`\
+https://nytimes.com/2025/05/18/dining/shrimp-salad-recipe.html
+
 **Verstappen wins with dazzling pass; Ferrari and Williams put on a show — Imola GP briefing**\
 `Verstappen made a stunning move at the start to steal the lead and the win in Red Bull's 400th grand prix`\
 https://nytimes.com/athletic/6365048/2025/05/18/imola-grand-prix-2025-result-max-verstappen-lewis-hamilton-ferrari/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-unite
 **House Republicans Will Vote Again on President Trump’s Legislative Agenda**\
 `A group of fiscal hard-liners on the Budget Committee blocked the bill Friday morning. The group will try again to pass the president’s megabill out of committee Sunday night.`\
 https://nytimes.com/2025/05/18/us/politics/house-republicans-budget-vote-trump-agenda.html
-
-**Trump Administration Live Updates: House Budget Committee Takes Up Trump’s Domestic Policy Bill, Again**\
-``\
-https://nytimes.com/live/2025/05/18/us/trump-news-updates
 
