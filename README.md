@@ -19,7 +19,7 @@ https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.htm
 https://nytimes.com/2025/05/18/us/maryland-governor-vetoes-reparations-bill.html
 
 **Women's FA Cup final: Treble secured, dominant display, Serena Williams in Royal Box**\
-`Chelsea complete the domestic treble with victory over Manchester United in the Women's FA Cup`\
+`Chelsea have completed the domestic treble with victory over cup holders Manchester United at Wembley`\
 https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
 
 **PSV dramatically win Eredivisie title on final day after Ajax run-in collapse**\
