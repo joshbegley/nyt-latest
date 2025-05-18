@@ -1,3 +1,7 @@
+**Howe: ‘Unknown’ whether Isak plays crucial final game against Everton**\
+`The Sweden international was left of the squad for Newcastle’s 1-0 defeat at Arsenal on Sunday with a groin issue.`\
+https://nytimes.com/athletic/6365633/2025/05/18/isak-newcastle-injury-update/
+
 **Dodgers release Chris Taylor, cutting ties with another established veteran**\
 `Cutting ties with Taylor likely clears the path for Hyeseong Kim to remain with the big-league club.`\
 https://nytimes.com/athletic/6365611/2025/05/18/dodgers-release-chris-taylor/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/business/publix-baby-food-recall-lead.html
 **Suspect Identified in Palm Springs Bombing and Is Said to Have Died in Blast**\
 `Officials said Guy Edward Bartkus, 25, targeted the fertility clinic in the bombing that damaged the facility and injured four people.`\
 https://nytimes.com/2025/05/18/us/palm-springs-bombing-fertility-clinic-suspect.html
-
-**The Briefing: Arsenal 1 Newcastle 0 - Rice wraps up CL spot but Howe's side face final-day shootout**\
-`Our writers break down the action as Arsenal sealed Champions League qualification with a brilliant Rice finish.`\
-https://nytimes.com/athletic/6361815/2025/05/18/arsenal-newcastle-rice-arteta-champions-league/
 
