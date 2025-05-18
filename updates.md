@@ -1,3 +1,7 @@
+**Mick Abel shines in history-making Phillies debut after overcoming rocky 2024 season**\
+`“There were times I didn’t think I would be (here last summer),” Abel said. “But there were other times where I would." `\
+https://nytimes.com/athletic/6366091/2025/05/18/mick-abel-phillies-mlb-debut/
+
 **Rookie Robert Shwartzman wins Indianapolis 500 pole in stunning upset**\
 `Shwartzman, making his first-ever oval racing start in any series, tops IndyCar heavyweights with a four-lap average of 232.790 mph.`\
 https://nytimes.com/athletic/6366193/2025/05/18/indianapolis-500-pole-winner-robert-shwartzman/
