@@ -1,3 +1,23 @@
+**The New York Times in Print for Sunday, May 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/18/todays-new-york-times
+
+**American Graft Didn’t Start With Trump**\
+`American politicians have been for sale for far longer than Donald Trump has been around and in far more ways than he and his family have so far pioneered.`\
+https://nytimes.com/2025/05/18/opinion/trump-politics-corruption.html
+
+**As Europe Speeds By on Rail, America Is Stuck in Traffic**\
+`As Europe embraces the night train, the United States seems to be sleepwalking into a transport dead end.`\
+https://nytimes.com/2025/05/18/opinion/europe-train-travel.html
+
+**Why There’s No Battlefield Solution to India’s Perpetual Pakistan Problem**\
+`This month’s violent escalation reminded the world how India’s gradual rise can be hindered by the troublesome country next door.`\
+https://nytimes.com/2025/05/18/world/asia/india-pakistan-conflict.html
+
+**'Winning is fun': Twins win streak hits 13 with third straight shutout in 18-hit effort**\
+`Even injuries aren't worrying the Twins. Top prospect Carson McCusker is getting called up after Byron Buxton suffered a concussion.`\
+https://nytimes.com/athletic/6364655/2025/05/18/twins-win-13-straight/
+
 **Rafael Devers' first walk-off homer in eventful week brings much-needed Red Sox victory**\
 `Boston rallied from an early 5-0 deficit against Atlanta to end its slide of one-run losses.`\
 https://nytimes.com/athletic/6364642/2025/05/18/rafael-devers-walkoff-red-sox-braves/
