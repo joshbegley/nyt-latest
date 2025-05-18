@@ -1,3 +1,7 @@
+**Matic plays for Lyon with LBGTQ+ logo covered up on shirt**\
+`Ligue 1’s campaign against homophobia has been running since 2021 and aims to increase awareness around LGBTQ+ rights in football.`\
+https://nytimes.com/athletic/6365800/2025/05/18/lyon-nemanja-matic-anti-homophobia/
+
 **Monday Briefing: Trump and Putin Are Set to Talk**\
 `Plus, a Japanese author breaks barriers.`\
 https://nytimes.com/2025/05/18/briefing/trump-putin-talk-biden-cancer-israel-operation-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/world/europe/poland-president-election-results.ht
 **Pakistan Says It Expects Truce to Hold as Hotline to India Stays Open**\
 `The two adversaries have spent the week since the end of the military confrontation making the case that they emerged victorious.`\
 https://nytimes.com/2025/05/18/world/asia/india-pakistan-clash.html
-
-**Howe: ‘Unknown’ whether Isak plays crucial final game against Everton**\
-`The Sweden international was left of the squad for Newcastle’s 1-0 defeat at Arsenal on Sunday with a groin issue.`\
-https://nytimes.com/athletic/6365633/2025/05/18/isak-newcastle-injury-update/
 
