@@ -1,3 +1,7 @@
+**Fernandes demands Man Utd team-mates 'step up' with more consistency**\
+`Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equaling fourth time.`\
+https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-united-award/
+
 **House Republicans Will Vote Again on President Trump’s Legislative Agenda**\
 `A group of fiscal hard-liners on the Budget Committee blocked the bill Friday morning. The group will try again to pass the president’s megabill out of committee Sunday night.`\
 https://nytimes.com/2025/05/18/us/politics/house-republicans-budget-vote-trump-agenda.html

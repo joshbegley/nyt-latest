@@ -1,3 +1,7 @@
+**Fernandes demands Man Utd team-mates 'step up' with more consistency**\
+`Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equaling fourth time.`\
+https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-united-award/
+
 **House Republicans Will Vote Again on President Trump’s Legislative Agenda**\
 `A group of fiscal hard-liners on the Budget Committee blocked the bill Friday morning. The group will try again to pass the president’s megabill out of committee Sunday night.`\
 https://nytimes.com/2025/05/18/us/politics/house-republicans-budget-vote-trump-agenda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353679/2025/05/18/2025-nba-offseason-spending-lake
 **De Bruyne says ‘big chance’ he will not play Club World Cup with City**\
 `De Bruyne announced in April that he would leave City after 10 years at the Etihad that saw him win six Premier League titles.`\
 https://nytimes.com/athletic/6364244/2025/05/18/kevin-de-bruyne-club-world-cup/
-
-**Man United's Mazraoui says diet change behind career-best longevity**\
-`The full-back has made 55 appearances for United this campaign, already seven more than his previous highest for Ajax in 2018-19.`\
-https://nytimes.com/athletic/6364753/2025/05/18/mazraoui-manchester-united-europa-league/
 
