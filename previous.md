@@ -1,3 +1,11 @@
+**Amid Cease-Fire Talks, Israel Expands Ground Operations in Gaza**\
+`This new stage of the war is aimed at pressuring Hamas into releasing hostages and ultimately destroying the group or forcing it to surrender.`\
+https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.html
+
+**Maryland Governor Vetoes Reparations Bill**\
+`Wes Moore, the nation’s lone sitting Black governor, diverged from fellow Democratic governors in rejecting a measure that would have studied reparations.`\
+https://nytimes.com/2025/05/18/us/maryland-governor-vetoes-reparations-bill.html
+
 **Women's FA Cup final: Treble secured, Chelsea dominant, Serena Williams in Royal Box**\
 `Chelsea complete the domestic treble with victory over Manchester United in the Women's FA Cup`\
 https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/opinion/josh-hawley-medicaid-cuts.html
 **‘S.N.L.’: A Lucrative Middle East Trip**\
 `This weekend’s broadcast, hosted by Scarlett Johansson and featuring the musical guest Bad Bunny, began with a sendup of President Trump’s recent visit to Saudi Arabia and Qatar.`\
 https://nytimes.com/2025/05/18/arts/television/snl-scarlett-johansson-bad-bunny.html
-
-**Mark Scheifele, Winnipeg Jets dealt devastating loss but meet it with courage and heart**\
-`For Scheifele, Game 6 was a way to honour his dad. It ended with heartbreak, but not without courage in the face of a devastating loss.`\
-https://nytimes.com/athletic/6364344/2025/05/18/nhl-playoffs-mark-scheifele-winnipeg-jets/
-
-**Free Press, Free People**\
-`An interview with the publisher of The Times.`\
-https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
 
