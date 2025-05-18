@@ -1,3 +1,15 @@
+**Two People Held on Charges of Blackmailing a Premier League Soccer Star**\
+`A woman in South Korea was accused of claiming she was pregnant by Son Heung-min, the captain of Tottenham Hotspur, and demanding hush money.`\
+https://nytimes.com/2025/05/18/world/asia/skorea-son-heung-min-blackmail.html
+
+**Smith: Farewell for now, Imola. For all your flaws, I’m going to miss y**\
+`F1 history, wonderful fans and a paddock cat — just a few reasons our senior writer will be sad when Imola leaves the F1 calendar soon`\
+https://nytimes.com/athletic/6364614/2025/05/18/f1-imola-gp-final-race-2025/
+
+**Live Updates: Pope Leo XIV’s Inaugural Mass Draws Leaders and Catholic Faithful**\
+`Vice President JD Vance was expected to be among the dignitaries attending the Mass in St. Peter’s Square. It marks the start of the pontificate of the first American to lead the Roman Catholic Church. Watch and follow live.`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass
+
 **A small, tight-knit religious order molded Pope Leo XIV.**\
 `By Patricia Mazzei and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/a-small-tight-knit-religious-order-molded-pope-leo-xiv
