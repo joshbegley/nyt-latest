@@ -1,3 +1,7 @@
+**Rafael Devers' first walk-off homer in eventful week brings much-needed Red Sox victory**\
+`Boston rallied from an early 5-0 deficit against Atlanta to end its slide of one-run losses.`\
+https://nytimes.com/athletic/6364642/2025/05/18/rafael-devers-walkoff-red-sox-braves/
+
 **How it feels for Nottingham Forest to be back in Europe for the first time in 30 years**\
 `Nottingham Forest have qualified for Europe next season. So how does it feel for those connected with the club after such a long absence?`\
 https://nytimes.com/athletic/6363531/2025/05/18/nottingham-forest-europe-30-years/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/pageoneplus/quote-of-the-day-the-professors-are-u
 **Trump Shrugs Off Netanyahu on Gulf Tour**\
 `On Iran, Gaza, Syria and Yemen, President Trump is moving ahead without Israel, reshaping decades of foreign policy.`\
 https://nytimes.com/2025/05/18/world/middleeast/trump-israel-netanyahu-gulf.html
-
-**Britain’s Right-Wing News Media Line Up to Attack ‘Surrender Summit’ With E.U.**\
-`Most British people believe Brexit was a mistake. But Prime Minister Keir Starmer’s attempts to edge closer to Europe face huge opposition in the national news media.`\
-https://nytimes.com/2025/05/18/world/europe/uk-brexit-eu-summit.html
 

@@ -1,3 +1,7 @@
+**How it feels for Nottingham Forest to be back in Europe for the first time in 30 years**\
+`Nottingham Forest have qualified for Europe next season. So how does it feel for those connected with the club after such a long absence?`\
+https://nytimes.com/athletic/6363531/2025/05/18/nottingham-forest-europe-30-years/
+
 **Erling Haaland and the penalty not taken**\
 `On a day of strange happenings for City in the FA Cup final defeat, Haaland passing up the chance to take a penalty was perhaps the weirdest`\
 https://nytimes.com/athletic/6364169/2025/05/18/haaland-penalty-man-city-fa-cup-finalhaaland-pen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/world/middleeast/trump-israel-netanyahu-gulf.html
 **Britain’s Right-Wing News Media Line Up to Attack ‘Surrender Summit’ With E.U.**\
 `Most British people believe Brexit was a mistake. But Prime Minister Keir Starmer’s attempts to edge closer to Europe face huge opposition in the national news media.`\
 https://nytimes.com/2025/05/18/world/europe/uk-brexit-eu-summit.html
-
-**How One Woman Is Breaking a Military Stereotype in Ukraine**\
-`Ukraine’s only female combat pilot flies helicopter missions against Russian troops. The military says it wants more women fighting, but sexism remains an obstacle, activists and female soldiers say.`\
-https://nytimes.com/2025/05/18/world/europe/ukraine-woman-combat-pilot.html
 

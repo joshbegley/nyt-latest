@@ -1,3 +1,7 @@
+**How it feels for Nottingham Forest to be back in Europe for the first time in 30 years**\
+`Nottingham Forest have qualified for Europe next season. So how does it feel for those connected with the club after such a long absence?`\
+https://nytimes.com/athletic/6363531/2025/05/18/nottingham-forest-europe-30-years/
+
 **Erling Haaland and the penalty not taken**\
 `On a day of strange happenings for City in the FA Cup final defeat, Haaland passing up the chance to take a penalty was perhaps the weirdest`\
 https://nytimes.com/athletic/6364169/2025/05/18/haaland-penalty-man-city-fa-cup-finalhaaland-pen/
