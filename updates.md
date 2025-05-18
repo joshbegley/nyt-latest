@@ -1,3 +1,7 @@
+**Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
+`The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just a day before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
+https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
+
 **The Briefing: Arsenal 1 Newcastle 0 - Rice wraps up CL spot but Howe's side face final-day shootout**\
 `Our writers break down the action as Arsenal sealed Champions League qualification with a brilliant Rice finish.`\
 https://nytimes.com/athletic/6361815/2025/05/18/arsenal-newcastle-rice-arteta-champions-league/
