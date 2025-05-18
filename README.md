@@ -18,7 +18,7 @@ https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.htm
 `Wes Moore, the nation’s lone sitting Black governor, diverged from fellow Democratic governors in rejecting a measure that would have studied reparations.`\
 https://nytimes.com/2025/05/18/us/maryland-governor-vetoes-reparations-bill.html
 
-**Women's FA Cup final: Treble secured, dominant display, Serena Williams in Royal Box**\
+**Women's FA Cup final: Treble secured, dominant display, Serena Williams in royal box**\
 `Chelsea have completed the domestic treble with victory over cup holders Manchester United at Wembley`\
 https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
 

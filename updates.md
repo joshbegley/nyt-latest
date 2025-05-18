@@ -1,3 +1,11 @@
+**A Simple Shrimp Salad to Welcome Summer**\
+`Mark Bittman’s spicy shrimp salad with mint, a recipe from 1998, still packs a fresh, lemony punch.`\
+https://nytimes.com/2025/05/18/dining/shrimp-salad-recipe.html
+
+**Women's FA Cup final: Treble secured, dominant display, Serena Williams in Royal Box**\
+`Chelsea have completed the domestic treble with victory over cup holders Manchester United at Wembley`\
+https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
+
 **Verstappen wins with dazzling pass; Ferrari and Williams put on a show — Imola GP briefing**\
 `Verstappen made a stunning move at the start to steal the lead and the win in Red Bull's 400th grand prix`\
 https://nytimes.com/athletic/6365048/2025/05/18/imola-grand-prix-2025-result-max-verstappen-lewis-hamilton-ferrari/
