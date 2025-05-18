@@ -1,3 +1,15 @@
+**Rookie Robert Shwartzman wins Indianapolis 500 pole in stunning upset**\
+`Shwartzman, making his first-ever oval racing start in any series, tops IndyCar heavyweights with a four-lap average of 232.790 mph.`\
+https://nytimes.com/athletic/6366193/2025/05/18/indianapolis-500-pole-winner-robert-shwartzman/
+
+**After a Deadly Tornado, a Small Kentucky City Starts Picking Up the Pieces**\
+`In London, Ky., the scope of the destruction from a tornado that killed 19 in the state was coming into view as residents tried to process the disaster.`\
+https://nytimes.com/2025/05/18/us/tornado-destruction-kentucky.html
+
+**New Jersey Transit and Engineers’ Union Agree to Deal to End Strike**\
+`The agency said its trains would start running again on Tuesday morning.`\
+https://nytimes.com/2025/05/18/nyregion/new-jersey-transit-strike-agreement.html
+
 **Matt Shaw has made the changes Cubs wanted to see. So, he's likely being recalled**\
 `Shaw still has a leg kick at the plate, but it's less pronounced and he was pounding the ball in Iowa.`\
 https://nytimes.com/athletic/6365816/2025/05/18/chicago-cubs-matt-shaw-recall-iowa/
