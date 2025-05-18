@@ -1,3 +1,11 @@
+**Monday Briefing: Trump and Putin Are Set to Talk**\
+`Plus, a Japanese author breaks barriers.`\
+https://nytimes.com/2025/05/18/briefing/trump-putin-talk-biden-cancer-israel-operation-gaza.html
+
+**What's at stake in Premier League final week: Champions League, Europa League, Golden Boot and more**\
+`Everything that's still up for grabs in the last seven days of this English top-flight season`\
+https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
+
 **Sheffield Wednesday's Rohl considering options amid uncertainty over his future**\
 `Southampton have targeted Rohl for the top job previously and he continues to be on their radar after Ivan Juric left St Mary’s.`\
 https://nytimes.com/athletic/6365876/2025/05/18/sheffield-wednesday-danny-rohl-future/
