@@ -1,3 +1,7 @@
+**Twins takeaways: Brewers end team's win streak at 13, but Royce Lewis is heating up**\
+`The winning streak may be over, but Lewis appears to be locked in at the plate, or very close to it. `\
+https://nytimes.com/athletic/6366045/2025/05/18/twins-win-streak-ends-royce-lewis/
+
 **Arteta set to serve touchline ban for Arsenal's PL finale vs. Southampton**\
 `Arsenal secured Champions League qualification on Sunday with a 1-0 victory over Newcastle.`\
 https://nytimes.com/athletic/6365494/2025/05/18/arsenal-mikel-arteta-touchline-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/briefing/trump-putin-talk-biden-cancer-israel-ope
 **Sheffield Wednesday's Rohl considering options amid uncertainty over his future**\
 `Southampton have targeted Rohl for the top job previously and he continues to be on their radar after Ivan Juric left St Mary’s.`\
 https://nytimes.com/athletic/6365876/2025/05/18/sheffield-wednesday-danny-rohl-future/
-
-**WNBA looking into allegations of hateful comments toward Angel Reese: Source**\
-`“The WNBA strongly condemns racism, hate, and discrimination in all forms," the league said.`\
-https://nytimes.com/athletic/6365680/2025/05/18/wnba-hate-comments-fan-caitlin-clark-fever-sky/
 
