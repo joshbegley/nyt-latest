@@ -1,3 +1,7 @@
+**Ajax suffered one of the great title chokes - but their fans still saluted them**\
+`From nine points clear to title despair, the Amsterdam giants had a miserable end to the campaign. What happened?`\
+https://nytimes.com/athletic/6365502/2025/05/18/ajax-eredivisie-psv-title/
+
 **‘Win it or bin it’: Breaking down Max Verstappen’s magic, race-winning Imola GP pass**\
 `Max Verstappen had one shot at winning F1's 2025 Imola GP and he took it with a thrilling pass that shows his best qualities`\
 https://nytimes.com/athletic/6365481/2025/05/18/max-verstappen-imola-gp-pass-f1-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
 **Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
 `The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just a day before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
-
-**Mexico Navy Sailing Ship on Good Will Tour Crashes Into Brooklyn Bridge**\
-`There were 277 people on board when the ship drifted directly into the underside of the bridge on Saturday night, the authorities said. Two crew members were killed.`\
-https://nytimes.com/video/us/100000010176671/brooklyn-bridge-mexico-ship-crash.html
 
