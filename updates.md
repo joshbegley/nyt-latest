@@ -1,3 +1,11 @@
+**Severe Weather Continues to Threaten the Middle of the U.S.**\
+`Storms capable of producing hail larger than golf balls, strong winds and tornadoes are expected in the Great Plains on Sunday and Monday.`\
+https://nytimes.com/2025/05/18/weather/sunday-tornado-forecast-kansas-oklahoma-storms.html
+
+**The New York Times International Edition in Print for Monday, May 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/18/todays-new-york-times-international-edition
+
 **Leo’s fellow Augustinians are attending the Mass.**\
 `By Elizabeth Dias`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/leos-fellow-augustinians-are-attending-the-mass

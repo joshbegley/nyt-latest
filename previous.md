@@ -1,3 +1,11 @@
+**Severe Weather Continues to Threaten the Middle of the U.S.**\
+`Storms capable of producing hail larger than golf balls, strong winds and tornadoes are expected in the Great Plains on Sunday and Monday.`\
+https://nytimes.com/2025/05/18/weather/sunday-tornado-forecast-kansas-oklahoma-storms.html
+
+**The New York Times International Edition in Print for Monday, May 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/18/todays-new-york-times-international-edition
+
 **Leo’s fellow Augustinians are attending the Mass.**\
 `By Elizabeth Dias`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/leos-fellow-augustinians-are-attending-the-mass
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/us/politics/democrats-2028-presidential-election.
 **One Thing Helping Trump’s Approval Rating: Some People Are Not Paying Attention**\
 `Voters were more likely to approve of President Trump’s job performance if they had not been following some of the major news stories of his first 100 days in office, a recent New York Times/Siena College poll found.`\
 https://nytimes.com/interactive/2025/05/18/polls/trump-job-approval-news-attention.html
-
-**I Searched the World’s Holiest Places for a God**\
-`When I was growing up in India, gods and religions seemed to be everywhere. But I needed to find faith my own way.`\
-https://nytimes.com/2025/05/18/style/seeking-god-india-tishani-doshi.html
-
-**What Is the Future of George Floyd Square?**\
-`Five years after the corner where George Floyd was killed became the epicenter of a national protest movement, the future of the site is unsettled.`\
-https://nytimes.com/interactive/2025/05/18/headway/george-floyd-square-minneapolis.html
 
