@@ -14,7 +14,7 @@ https://nytimes.com/issue/todayspaper/2025/05/18/todays-new-york-times
 `American politicians have been for sale for far longer than Donald Trump has been around and in far more ways than he and his family have so far pioneered.`\
 https://nytimes.com/2025/05/18/opinion/trump-politics-corruption.html
 
-**As Europe Speeds By on Rail, America Is Stuck in Traffic**\
+**Trump Isn’t the First Politician to Sell the Office**\
 `As Europe embraces the night train, the United States seems to be sleepwalking into a transport dead end.`\
 https://nytimes.com/2025/05/18/opinion/europe-train-travel.html
 
