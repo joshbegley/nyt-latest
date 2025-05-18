@@ -19,7 +19,7 @@ https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/the-legacy-of-st-pet
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/heres-the-latest
 
 **Live Updates: Pope Leo XIV’s Inaugural Mass Draws Leaders and Catholic Faithful**\
-`Vice President JD Vance was expected to be among the dignitaries attending the Mass in St. Peter’s Square. It marks the start of the pontificate of the first American to lead the Roman Catholic Church. Watch and follow live.`\
+`Vice President JD Vance was among the dignitaries attending the Mass in St. Peter’s Square. It marks the start of the pontificate of the first American to lead the Roman Catholic Church. Watch and follow live.`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass
 
 **New Jersey, State of Constant Motion, Learns to Live With Immobility**\
