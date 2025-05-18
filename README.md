@@ -12,7 +12,7 @@ https://nytimes.com/2025/05/17/arts/music/eurovision-song-contest-austria-jj.htm
 
 **F.D.A. Approves Novavax Covid Vaccine With Stricter New Conditions**\
 `The agency narrowed who can get the shot and added new study requirements that could cost the company tens of millions.`\
-https://nytimes.com/2025/05/17/science/fda-novavax-covid-vaccine.html
+https://nytimes.com/2025/05/17/health/fda-novavax-covid-vaccine.html
 
 **How Yankees' DJ LeMahieu looks different — which is a good thing**\
 `LeMahieu hit his first home run since July and is performing well in the field and at the plate after finally getting healthy.`\
