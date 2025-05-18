@@ -1,3 +1,7 @@
+**Dodgers showing urgency, not sentimentality, in cutting Austin Barnes and Chris Taylor**\
+`The emergence of infielder Hyeseong Kim made Taylor expendable as part of what Andrew Friedman called "a very emotional week."`\
+https://nytimes.com/athletic/6365880/2025/05/18/dodgers-austin-barnes-chris-taylor/
+
 **Glasner to stay at Palace next season, club must match his ambition — Parish**\
 `Glasner led Palace to the first major trophy in their history on Saturday with a 1-0 victory over Manchester City in the FA Cup final.`\
 https://nytimes.com/athletic/6365083/2025/05/18/oliver-glasner-crystal-palace-future/

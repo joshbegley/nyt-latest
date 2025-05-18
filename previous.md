@@ -1,3 +1,7 @@
+**Dodgers showing urgency, not sentimentality, in cutting Austin Barnes and Chris Taylor**\
+`The emergence of infielder Hyeseong Kim made Taylor expendable as part of what Andrew Friedman called "a very emotional week."`\
+https://nytimes.com/athletic/6365880/2025/05/18/dodgers-austin-barnes-chris-taylor/
+
 **Glasner to stay at Palace next season, club must match his ambition — Parish**\
 `Glasner led Palace to the first major trophy in their history on Saturday with a 1-0 victory over Manchester City in the FA Cup final.`\
 https://nytimes.com/athletic/6365083/2025/05/18/oliver-glasner-crystal-palace-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-
 **Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
 `The cancer has metastasized to the bone, according to a statement from Mr. Biden’s personal office.`\
 https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
-
-**A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
-`Rafal Trzaskowski, the Warsaw mayor, appeared to have won the first round of the election. Prime Minister Donald Tusk is hoping his eventual victory will help push through a liberal agenda.`\
-https://nytimes.com/2025/05/18/world/europe/poland-president-election-results.html
 
