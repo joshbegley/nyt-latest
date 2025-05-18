@@ -1,3 +1,15 @@
+**House Republicans Will Vote Again on President Trump’s Legislative Agenda**\
+`A group of fiscal hard-liners on the Budget Committee blocked the bill Friday morning. The group will try again to pass the president’s megabill out of committee Sunday night.`\
+https://nytimes.com/2025/05/18/us/politics/house-republicans-budget-vote-trump-agenda.html
+
+**Trump Administration Live Updates: House Budget Committee Takes Up Trump’s Domestic Policy Bill, Again**\
+``\
+https://nytimes.com/live/2025/05/18/us/trump-news-updates
+
+**Josh Hawley’s Surprising Plea for Medicaid**\
+`Readers respond to the Missouri senator’s argument for protecting Medicaid from cuts.`\
+https://nytimes.com/2025/05/18/opinion/josh-hawley-medicaid-cuts.html
+
 **‘S.N.L.’: A Lucrative Middle East Trip**\
 `This weekend’s broadcast, hosted by Scarlett Johansson and featuring the musical guest Bad Bunny, began with a sendup of President Trump’s recent visit to Saudi Arabia and Qatar.`\
 https://nytimes.com/2025/05/18/arts/television/snl-scarlett-johansson-bad-bunny.html
