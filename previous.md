@@ -1,3 +1,11 @@
+**Phillies reliever José Alvarado suspended 80 games after positive PED test**\
+`MLB said Alvarado tested for exogenous Testosterone, a banned substance. His 80-game suspension is without pay and effective immediately.`\
+https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
+
+**Jamie Vardy's 200 goals in 500 Leicester games: How he scored them, who he scored against and the five best**\
+`The striker reached the milestone on Sunday, but how did he score them? How much do other strikers rate him? And which goals are his best?`\
+https://nytimes.com/athletic/6344500/2025/05/18/jamie-vardy-200-leicester-goals/
+
 **Maple Leafs lineup vs. Panthers: Matthew Knies' health and more big questions for Game 7**\
 `Leafs forward Matthew Knies is good to go for Game 7 after sustaining injury in win in Florida.`\
 https://nytimes.com/athletic/6364985/2025/05/18/maple-leafs-lineup-game-7-nhl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/us/maryland-governor-vetoes-reparations-bill.html
 **Women's FA Cup final: Treble secured, dominant display, Serena Williams in royal box**\
 `Chelsea have completed the domestic treble with victory over cup holders Manchester United at Wembley`\
 https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
-
-**PSV dramatically win Eredivisie title on final day after Ajax run-in collapse**\
-`Ajax had led PSV by nine points with seven league matches remaining but a remarkable collapse saw Peter Bosz's side pip them to the title.`\
-https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-netherlands/
-
-**Imola Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the race in Imola?`\
-https://nytimes.com/athletic/6365250/2025/05/18/imola-gp-mailbag-f1/
 
