@@ -1,3 +1,7 @@
+**Women's FA Cup final: Treble secured, Chelsea dominant, Serena Williams in Royal Box**\
+`Chelsea complete the domestic treble with victory over Manchester United in the Women's FA Cup`\
+https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
+
 **PSV dramatically win Eredivisie title on final day after Ajax run-in collapse**\
 `Ajax had led PSV by nine points with seven league matches remaining but a remarkable collapse saw Peter Bosz's side pip them to the title.`\
 https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-netherlands/
