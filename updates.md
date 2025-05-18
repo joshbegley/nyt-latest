@@ -1,3 +1,11 @@
+**The Pulse: Pete Rose in the HOF? It's not that simple**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6364693/2025/05/18/will-pete-rose-actually-make-it-to-cooperstown-its-a-tricky-path/
+
+**Fernandes demands Man Utd team-mates 'step up' with more consistency**\
+`Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equalling fourth time.`\
+https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-united-award/
+
 **Fernandes demands Man Utd team-mates 'step up' with more consistency**\
 `Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equaling fourth time.`\
 https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-united-award/

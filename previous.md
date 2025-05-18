@@ -1,5 +1,9 @@
+**The Pulse: Pete Rose in the HOF? It's not that simple**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6364693/2025/05/18/will-pete-rose-actually-make-it-to-cooperstown-its-a-tricky-path/
+
 **Fernandes demands Man Utd team-mates 'step up' with more consistency**\
-`Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equaling fourth time.`\
+`Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equalling fourth time.`\
 https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-united-award/
 
 **House Republicans Will Vote Again on President Trump’s Legislative Agenda**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/world/europe/pope-crown.html
 **NBA offseason spending power: What each team has at its disposal this summer**\
 `Unexpected draft lottery results impacted the summer outlook for a few teams, but only one has the space to offer a max deal.`\
 https://nytimes.com/athletic/6353679/2025/05/18/2025-nba-offseason-spending-lakers-warriors-celtics-money/
-
-**De Bruyne says ‘big chance’ he will not play Club World Cup with City**\
-`De Bruyne announced in April that he would leave City after 10 years at the Etihad that saw him win six Premier League titles.`\
-https://nytimes.com/athletic/6364244/2025/05/18/kevin-de-bruyne-club-world-cup/
 
