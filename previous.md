@@ -1,3 +1,11 @@
+**NWSL commissioner on decision to play after Savy King's collapse: 'All we could do is learn'**\
+`The commissioner reiterated that the game between Angel City FC and the Utah Royals should not have continued after Savy King collapsed.`\
+https://nytimes.com/athletic/6364637/2025/05/18/nwsl-commissioner-on-playing-after-savy-king-collapsed/
+
+**Scenes from Stars' series-clincher: Mason Marchment's humanity, Jake Oettinger's game saver, more**\
+`Oettinger's big save led to the Dallas Stars' celebration — but Marchment took time for a poignant moment.`\
+https://nytimes.com/athletic/6364673/2025/05/18/stars-oettinger-conference-final/
+
 **The New York Times in Print for Sunday, May 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/18/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6363531/2025/05/18/nottingham-forest-europe-30-year
 **Erling Haaland and the penalty not taken**\
 `On a day of strange happenings for City in the FA Cup final defeat, Haaland passing up the chance to take a penalty was perhaps the weirdest`\
 https://nytimes.com/athletic/6364169/2025/05/18/haaland-penalty-man-city-fa-cup-finalhaaland-pen/
-
-**Visiting NEOM, the new Saudi superclub built to rule all others before the 2034 World Cup**\
-`James Montague visited the kingdom to find out more about a club being geared up to take on the world`\
-https://nytimes.com/athletic/6326552/2025/05/18/neom-saudi-football-2034-world-cup/
-
-**The origin story of an iconic Anfield banner – and why Slot will soon adorn it**\
-`One of the Kop's most distinctive features will have a facelift next season after the Dutchman's spectacular first season`\
-https://nytimes.com/athletic/6343918/2025/05/18/liverpool-kop-banner-managers-slot/
 

@@ -1,3 +1,11 @@
+**NWSL commissioner on decision to play after Savy King's collapse: 'All we could do is learn'**\
+`The commissioner reiterated that the game between Angel City FC and the Utah Royals should not have continued after Savy King collapsed.`\
+https://nytimes.com/athletic/6364637/2025/05/18/nwsl-commissioner-on-playing-after-savy-king-collapsed/
+
+**Scenes from Stars' series-clincher: Mason Marchment's humanity, Jake Oettinger's game saver, more**\
+`Oettinger's big save led to the Dallas Stars' celebration — but Marchment took time for a poignant moment.`\
+https://nytimes.com/athletic/6364673/2025/05/18/stars-oettinger-conference-final/
+
 **The New York Times in Print for Sunday, May 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/18/todays-new-york-times
