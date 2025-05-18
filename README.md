@@ -1,3 +1,7 @@
+**Ear-to-Ear Expression**\
+`It’s just one thing after another in Kiran Pandey’s puzzle, isn’t it?`\
+https://nytimes.com/2025/05/18/crosswords/daily-puzzle-2025-05-19.html
+
 **In Upset, Centrist Wins Romania’s Presidential Election**\
 `Nicusor Dan, the mayor of Bucharest, defeated George Simion, a nationalist aligned with President Trump who had been seen as the front-runner.`\
 https://nytimes.com/2025/05/18/world/europe/nicusor-dan-romania-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.htm
 **Astros starter Hayden Wesneski to undergo Tommy John surgery**\
 `The 27-year-old right-hander made six starts for the Astros with a 4.50 ERA and 29 strikeouts over 32 innings.`\
 https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-john-surgery/
-
-**What's at stake in Premier League final week: Champions League, Europa League, Golden Boot and more**\
-`Everything that's still up for grabs in the last seven days of this English top-flight season`\
-https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
 
