@@ -1,3 +1,7 @@
+**Howe: ‘Unknown’ whether Isak plays crucial final game against Everton**\
+`The Sweden international was left of the squad for Newcastle’s 1-0 defeat at Arsenal on Sunday with a groin issue.`\
+https://nytimes.com/athletic/6365633/2025/05/18/isak-newcastle-injury-update/
+
 **Paul Maurice sends condolences to Mark Scheifele after father's death**\
 `Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
 https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
