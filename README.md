@@ -1,3 +1,7 @@
+**JD Vance has come to greet the new pope, but old tensions loom.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/jd-vance-has-come-to-greet-the-new-pope-but-old-tensions-loom
+
 **Two People Held on Charges of Blackmailing a Premier League Soccer Star**\
 `A woman in South Korea was accused of claiming she was pregnant by Son Heung-min, the captain of Tottenham Hotspur, and demanding hush money.`\
 https://nytimes.com/2025/05/18/world/asia/skorea-son-heung-min-blackmail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/nyregion/times-square-black-woman-statue.html
 **Air Traffic Control Problems Are Only the Latest Tap on the Airline Beat**\
 `Air travel was supposed to be just one part of Niraj Chokshi’s assignment at The Times. But then the pandemic started a wave of news that hasn’t really stopped.`\
 https://nytimes.com/2025/05/18/pageoneplus/air-travel-newark.html
-
-**‘She Was Trying to Tie Her Partner’s Bow Tie but Kept Failing’**\
-`Help with a tricky task on the Q, losing an E Street memento and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/05/18/nyregion/metropolitan-diary.html
 

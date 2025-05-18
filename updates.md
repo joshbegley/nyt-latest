@@ -1,3 +1,7 @@
+**Live Updates: Pope Leo XIV’s Inaugural Mass Draws Leaders and Catholic Faithful**\
+`Vice President JD Vance was among the dignitaries attending the Mass in St. Peter’s Square. It marks the start of the pontificate of the first American to lead the Roman Catholic Church. Watch and follow live.`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass
+
 **Two People Held on Charges of Blackmailing a Premier League Soccer Star**\
 `A woman in South Korea was accused of claiming she was pregnant by Son Heung-min, the captain of Tottenham Hotspur, and demanding hush money.`\
 https://nytimes.com/2025/05/18/world/asia/skorea-son-heung-min-blackmail.html
