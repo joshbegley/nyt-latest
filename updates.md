@@ -1,3 +1,7 @@
+**PSV dramatically win Eredivisie title on final day after Ajax run-in collapse**\
+`Ajax had led PSV by nine points with seven league matches remaining but a remarkable collapse saw Peter Bosz's side pip them to the title.`\
+https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-netherlands/
+
 **The Pulse: Pete Rose in the HOF? It's not that simple**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6364693/2025/05/18/will-pete-rose-actually-make-it-to-cooperstown-its-a-tricky-path/

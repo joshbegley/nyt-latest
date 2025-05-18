@@ -1,3 +1,7 @@
+**Women's FA Cup final: Treble secured, Chelsea dominant, Serena Williams in Royal Box**\
+`Chelsea complete the domestic treble with victory over Manchester United in the Women's FA Cup`\
+https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
+
 **PSV dramatically win Eredivisie title on final day after Ajax run-in collapse**\
 `Ajax had led PSV by nine points with seven league matches remaining but a remarkable collapse saw Peter Bosz's side pip them to the title.`\
 https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-netherlands/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364344/2025/05/18/nhl-playoffs-mark-scheifele-winn
 **Free Press, Free People**\
 `An interview with the publisher of The Times.`\
 https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
-
-**Until 60 Years Ago, New Popes Were Crowned**\
-`Pope Leo XIV presided over his inaugural Mass on Sunday. Years ago, it would have included a solemn moment when the pontiff was crowned with an elaborate gold and jewel-encrusted papal tiara.`\
-https://nytimes.com/2025/05/18/world/europe/pope-crown.html
 
