@@ -1,3 +1,7 @@
+**Arteta set to serve touchline ban for Arsenal's PL finale vs. Southampton**\
+`Arsenal secured Champions League qualification on Sunday with a 1-0 victory over Newcastle.`\
+https://nytimes.com/athletic/6365494/2025/05/18/arsenal-mikel-arteta-touchline-ban/
+
 **How Thunder wore down Nuggets to reach Western finals: Takeaways**\
 `Alex Caruso pestered Nikola Jokić and the Thunder ran to the Western Conference finals with a Game 7 rout.`\
 https://nytimes.com/athletic/6365902/2025/05/18/nba-playoffs-takeaways-nuggets-thunder-game-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365876/2025/05/18/sheffield-wednesday-danny-rohl-f
 **WNBA looking into allegations of hateful comments toward Angel Reese: Source**\
 `“The WNBA strongly condemns racism, hate, and discrimination in all forms," the league said.`\
 https://nytimes.com/athletic/6365680/2025/05/18/wnba-hate-comments-fan-caitlin-clark-fever-sky/
-
-**Pope Leo XIV Holds Inaugural Mass at the Vatican**\
-`Pope Leo XIV used his homily to plead for peace in warring regions and to call for a more united Roman Catholic Church.`\
-https://nytimes.com/video/world/europe/100000010176940/pope-leo-vatican-mass.html
 
