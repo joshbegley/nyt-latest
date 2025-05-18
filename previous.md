@@ -32,7 +32,7 @@ https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/what-is-the-image-of
 
 **Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
 `By Jason Horowitz`\
-https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity
+https://nytimes.com/2025/05/18/world/europe/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity.html
 
 **How to watch Mystics at Sun: New-look teams face off in WNBA opening weekend action**\
 `Sunday's WNBA matchup between the Washington Mystics and Connecticut Sun has new coaches and a few rookie debuts.`\

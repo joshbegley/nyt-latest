@@ -1,3 +1,7 @@
+**Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
+`By Jason Horowitz`\
+https://nytimes.com/2025/05/18/world/europe/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity.html
+
 **Free Press, Free People**\
 `An interview with the publisher of The Times.`\
 https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
