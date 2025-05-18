@@ -1,3 +1,7 @@
+**What is the image of the Virgin Mary near the altar?**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/what-is-the-image-of-the-virgin-mary-near-the-altar
+
 **Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/opinion/dupe-counterfeit-designer-bag.html
 **Connections Companion No. 708**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 19, 2025.`\
 https://nytimes.com/2025/05/18/crosswords/connections-companion-708.html
-
-**Severe Weather Continues to Threaten the Middle of the U.S.**\
-`Storms capable of producing hail larger than golf balls, strong winds and tornadoes are expected in the Great Plains on Sunday and Monday.`\
-https://nytimes.com/2025/05/18/weather/sunday-tornado-forecast-kansas-oklahoma-storms.html
 
