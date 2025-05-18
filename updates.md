@@ -1,3 +1,7 @@
+**Rangers confirm Barry Ferguson departure after three months**\
+`Ferguson oversaw just six victories in his 15 matches at the helm as Rangers finished 17 points behind Celtic.`\
+https://nytimes.com/athletic/6365253/2025/05/18/rangers-manager-barry-ferguson/
+
 **Phillies reliever José Alvarado suspended 80 games after positive PED test**\
 `MLB said Alvarado tested for exogenous Testosterone, a banned substance. His 80-game suspension is without pay and effective immediately.`\
 https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/

@@ -1,3 +1,7 @@
+**Rangers confirm Barry Ferguson departure after three months**\
+`Ferguson oversaw just six victories in his 15 matches at the helm as Rangers finished 17 points behind Celtic.`\
+https://nytimes.com/athletic/6365253/2025/05/18/rangers-manager-barry-ferguson/
+
 **Phillies reliever José Alvarado suspended 80 games after positive PED test**\
 `MLB said Alvarado tested for exogenous Testosterone, a banned substance. His 80-game suspension is without pay and effective immediately.`\
 https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.htm
 **Maryland Governor Vetoes Reparations Bill**\
 `Wes Moore, the nation’s lone sitting Black governor, diverged from fellow Democratic governors in rejecting a measure that would have studied reparations.`\
 https://nytimes.com/2025/05/18/us/maryland-governor-vetoes-reparations-bill.html
-
-**Women's FA Cup final: Treble secured, dominant display, Serena Williams in royal box**\
-`Chelsea have completed the domestic treble with victory over cup holders Manchester United at Wembley`\
-https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-man-utd-0/
 
