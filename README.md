@@ -1,3 +1,7 @@
+**Free Press, Free People**\
+`An interview with the publisher of The Times.`\
+https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
+
 **Until 60 Years Ago, New Popes Were Crowned**\
 `Pope Leo XIV presided over his inaugural Mass on Sunday. Years ago, it would have included a solemn moment when the pontiff was crowned with an elaborate gold and jewel-encrusted papal tiara.`\
 https://nytimes.com/2025/05/18/world/europe/pope-crown.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/pope-leo-evokes-his-
 **How to watch Mystics at Sun: New-look teams face off in WNBA opening weekend action**\
 `Sunday's WNBA matchup between the Washington Mystics and Connecticut Sun has new coaches and a few rookie debuts.`\
 https://nytimes.com/athletic/6359644/2025/05/18/mystics-sun-wnba-how-to-watch/
-
-**Surgeons Perform First Human Bladder Transplant**\
-`The procedure could be life-changing for some people with debilitating conditions.`\
-https://nytimes.com/2025/05/18/health/bladder-transplant-human.html
 
