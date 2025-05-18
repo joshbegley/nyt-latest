@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6365391/2025/05/18/carlos-alcaraz-jannik-sinner-ita
 https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
 
 **Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
-`The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
+`The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just a day before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
 
 **Mexico Navy Sailing Ship on Good Will Tour Crashes Into Brooklyn Bridge**\

@@ -1,3 +1,11 @@
+**The Briefing: Arsenal 1 Newcastle 0 - Rice wraps up CL spot but Howe's side face final-day shootout**\
+`Our writers break down the action as Arsenal sealed Champions League qualification with a brilliant Rice finish.`\
+https://nytimes.com/athletic/6361815/2025/05/18/arsenal-newcastle-rice-arteta-champions-league/
+
+**José Alvarado suspended 80 games for PED violation, a big blow to Phillies bullpen**\
+`What it means for the Phillies, who said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
+https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
+
 **Democrats try to thread a needle in discussing Biden’s 2024 campaign and withdrawal.**\
 `Party leaders are walking a delicate line between defending the former president’s legislative accomplishments and admitting that he should have passed the torch earlier.`\
 https://nytimes.com/live/2025/05/18/us/trump-news-updates/democrats-try-to-thread-a-needle-in-discussing-bidens-2024-campaign-and-withdrawal
