@@ -1,3 +1,15 @@
+**Leo’s fellow Augustinians are attending the Mass.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/leos-fellow-augustinians-are-attending-the-mass
+
+**Zelensky attends the Mass after the pope offered the Vatican as a venue for peace talks.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/zelensky-attends-the-mass-after-the-pope-offered-the-vatican-as-a-venue-for-peace-talks
+
+**Di Maria confirms he is leaving Benfica this summer**\
+`The 37-year-old is in his second stint at the Lisbon club, where he has scored 32 goals in 85 appearances since rejoining from Juventus.`\
+https://nytimes.com/athletic/6364765/2025/05/18/angel-di-maria-benfica-transfer/
+
 **World Leaders Attend Pope Leo’s Inaugural Mass**\
 `Vice President JD Vance was among those present at St. Peter’s Square on Sunday.`\
 https://nytimes.com/2025/05/18/world/europe/world-leaders-pope-leo-inaugural-mass.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/18/style/seeking-god-india-tishani-doshi.html
 **What Is the Future of George Floyd Square?**\
 `Five years after the corner where George Floyd was killed became the epicenter of a national protest movement, the future of the site is unsettled.`\
 https://nytimes.com/interactive/2025/05/18/headway/george-floyd-square-minneapolis.html
-
-**Takashi Murakami Casts His Spell Again**\
-`With a new show at the Cleveland Museum, fashion’s favorite artist is back in the conversation.`\
-https://nytimes.com/2025/05/18/style/takashi-murakami-exhibition-cleveland-museum.html
-
-**An Undocumented Life, With Recipes**\
-`In the searing “Dirty Kitchen,” Jill Damatac tells the story of a fight for survival and culture in America.`\
-https://nytimes.com/2025/05/18/books/review/dirty-kitchen-jill-damatac.html
-
-**Panthers at Maple Leafs Game 7 picks, odds, schedule: Elimination time**\
-`The Toronto Maple Leafs escaped elimination Friday and now host the Florida Panthers for Game 7.`\
-https://nytimes.com/athletic/6364091/2025/05/18/panthers-maple-leafs-game-7-picks-odds-schedule/
 

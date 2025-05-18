@@ -1,3 +1,15 @@
+**Leo’s fellow Augustinians are attending the Mass.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/leos-fellow-augustinians-are-attending-the-mass
+
+**Zelensky attends the Mass after the pope offered the Vatican as a venue for peace talks.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/zelensky-attends-the-mass-after-the-pope-offered-the-vatican-as-a-venue-for-peace-talks
+
+**Di Maria confirms he is leaving Benfica this summer**\
+`The 37-year-old is in his second stint at the Lisbon club, where he has scored 32 goals in 85 appearances since rejoining from Juventus.`\
+https://nytimes.com/athletic/6364765/2025/05/18/angel-di-maria-benfica-transfer/
+
 **World Leaders Attend Pope Leo’s Inaugural Mass**\
 `Vice President JD Vance was among those present at St. Peter’s Square on Sunday.`\
 https://nytimes.com/2025/05/18/world/europe/world-leaders-pope-leo-inaugural-mass.html
