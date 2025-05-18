@@ -1,3 +1,5 @@
+
+
 **Review: A Game of Light and Shadow in Gounod’s ‘Faust’**\
 `Sara Holdren’s new production for Heartbeat Opera takes its lead from Bulgakov’s Faustian novel “The Master and Margarita.”`\
 https://nytimes.com/2025/05/18/arts/music/heartbeat-opera-faust-review.html
