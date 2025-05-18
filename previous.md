@@ -1,3 +1,7 @@
+**Glasner to stay at Palace next season, club must match his ambition — Parish**\
+`Glasner led Palace to the first major trophy in their history on Saturday with a 1-0 victory over Manchester City in the FA Cup final.`\
+https://nytimes.com/athletic/6365083/2025/05/18/oliver-glasner-crystal-palace-future/
+
 **Matic plays for Lyon with LBGTQ+ logo covered up on shirt**\
 `Ligue 1’s campaign against homophobia has been running since 2021 and aims to increase awareness around LGBTQ+ rights in football.`\
 https://nytimes.com/athletic/6365800/2025/05/18/lyon-nemanja-matic-anti-homophobia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
 **A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
 `Rafal Trzaskowski, the Warsaw mayor, appeared to have won the first round of the election. Prime Minister Donald Tusk is hoping his eventual victory will help push through a liberal agenda.`\
 https://nytimes.com/2025/05/18/world/europe/poland-president-election-results.html
-
-**Pakistan Says It Expects Truce to Hold as Hotline to India Stays Open**\
-`The two adversaries have spent the week since the end of the military confrontation making the case that they emerged victorious.`\
-https://nytimes.com/2025/05/18/world/asia/india-pakistan-clash.html
 

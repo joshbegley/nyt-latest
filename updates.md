@@ -1,3 +1,7 @@
+**Glasner to stay at Palace next season, club must match his ambition — Parish**\
+`Glasner led Palace to the first major trophy in their history on Saturday with a 1-0 victory over Manchester City in the FA Cup final.`\
+https://nytimes.com/athletic/6365083/2025/05/18/oliver-glasner-crystal-palace-future/
+
 **Matic plays for Lyon with LBGTQ+ logo covered up on shirt**\
 `Ligue 1’s campaign against homophobia has been running since 2021 and aims to increase awareness around LGBTQ+ rights in football.`\
 https://nytimes.com/athletic/6365800/2025/05/18/lyon-nemanja-matic-anti-homophobia/
