@@ -1,3 +1,7 @@
+**Suspect in Palm Springs Bombing Is Said to Have Died in Blast**\
+`Officials said Guy Edward Bartkus, 25, targeted the fertility clinic in the bombing that damaged the facility and injured four people.`\
+https://nytimes.com/2025/05/18/us/palm-springs-bombing-fertility-clinic-suspect.html
+
 **José Alvarado gets 80 game suspension for PED violation**\
 `The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
 https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
