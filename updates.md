@@ -1,3 +1,7 @@
+**José Alvarado suspended 80 games for PED violation, a big blow to Phillies bullpen**\
+`The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
+https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
+
 **Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
 `The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just a day before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
