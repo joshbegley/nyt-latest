@@ -1,3 +1,7 @@
+**Scottie Scheffler wins PGA Championship, reminding everyone of his greatness**\
+`Scheffler, set to turn 29 next month, has entered the rarest space. The golfer who stands among world’s best athletes.`\
+https://nytimes.com/athletic/6366080/2025/05/18/pga-championship-scottie-scheffler-wins/
+
 **New Jersey Transit and Engineers’ Union Agree to Deal to End Strike**\
 `An announcement by Gov. Philip D. Murphy was expected Sunday night.`\
 https://nytimes.com/2025/05/18/nyregion/new-jersey-transit-strike-agreement.html
