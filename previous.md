@@ -1,3 +1,7 @@
+**Maple Leafs lineup vs. Panthers: Matthew Knies' health and more big questions for Game 7**\
+`Leafs forward Matthew Knies is good to go for Game 7 after sustaining injury in win in Florida.`\
+https://nytimes.com/athletic/6364985/2025/05/18/maple-leafs-lineup-game-7-nhl-playoffs/
+
 **Jennifer Lawrence Gets Her First Cannes Premiere, and It’s a Risky One**\
 `In “Die My Love” with Robert Pattinson, she plays a mother with postpartum depression. She was four months pregnant then and the hormones helped a lot.`\
 https://nytimes.com/2025/05/18/movies/jennifer-lawrence-robert-pattinson-die-my-love-cannes.html
@@ -7,14 +11,14 @@ https://nytimes.com/2025/05/18/movies/jennifer-lawrence-robert-pattinson-die-my-
 https://nytimes.com/2025/05/18/dining/shrimp-salad-recipe.html
 
 **Verstappen wins with dazzling pass; Ferrari and Williams put on a show — Imola GP briefing**\
-`Verstappen made a stunning move at the start to steal the lead and the win in Red Bull's 400th grand prix`\
+`Verstappen made a stunning move at the start of the Imola GP to steal the lead and the win in Red Bull's 400th F1 race`\
 https://nytimes.com/athletic/6365048/2025/05/18/imola-grand-prix-2025-result-max-verstappen-lewis-hamilton-ferrari/
 
 **Lowetide: What Oilers' Matt Savoie accomplished in his first AHL season**\
 `In Savoie, the Oilers have a plug-and-play right winger who could slide into the lineup this fall.`\
 https://nytimes.com/athletic/6362824/2025/05/18/matt-savoie-stats-ahl-bakersfield/
 
-**Amid Cease-Fire Talks, Israel Expands Ground Operations in Gaza**\
+**Amid Cease-Fire Talks, Israel Says It Has Expanded Ground Operations in Gaza**\
 `This new stage of the war is aimed at pressuring Hamas into releasing hostages and ultimately destroying the group or forcing it to surrender.`\
 https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-nether
 **Imola Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Imola?`\
 https://nytimes.com/athletic/6365250/2025/05/18/imola-gp-mailbag-f1/
-
-**The Pulse: Pete Rose in the HOF? It's not that simple**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6364693/2025/05/18/will-pete-rose-actually-make-it-to-cooperstown-its-a-tricky-path/
 

@@ -1,3 +1,15 @@
+**Maple Leafs lineup vs. Panthers: Matthew Knies' health and more big questions for Game 7**\
+`Leafs forward Matthew Knies is good to go for Game 7 after sustaining injury in win in Florida.`\
+https://nytimes.com/athletic/6364985/2025/05/18/maple-leafs-lineup-game-7-nhl-playoffs/
+
+**Verstappen wins with dazzling pass; Ferrari and Williams put on a show — Imola GP briefing**\
+`Verstappen made a stunning move at the start of the Imola GP to steal the lead and the win in Red Bull's 400th F1 race`\
+https://nytimes.com/athletic/6365048/2025/05/18/imola-grand-prix-2025-result-max-verstappen-lewis-hamilton-ferrari/
+
+**Amid Cease-Fire Talks, Israel Says It Has Expanded Ground Operations in Gaza**\
+`This new stage of the war is aimed at pressuring Hamas into releasing hostages and ultimately destroying the group or forcing it to surrender.`\
+https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.html
+
 **Imola Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Imola?`\
 https://nytimes.com/athletic/6365250/2025/05/18/imola-gp-mailbag-f1/
