@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6361814/2025/05/18/womens-fa-cup-final-chelsea-3-ma
 `Ajax had led PSV by nine points with seven league matches remaining but a remarkable collapse saw Peter Bosz's side pip them to the title.`\
 https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-netherlands/
 
+**Imola Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Imola?`\
+https://nytimes.com/athletic/6365250/2025/05/18/imola-gp-mailbag-f1/
+
 **The Pulse: Pete Rose in the HOF? It's not that simple**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6364693/2025/05/18/will-pete-rose-actually-make-it-to-cooperstown-its-a-tricky-path/
-
-**Fernandes demands Man Utd team-mates 'step up' with more consistency**\
-`Fernandes this week won the club's Sir Matt Busby Player of the Year award for a record-equalling fourth time.`\
-https://nytimes.com/athletic/6364938/2025/05/18/bruno-fernandes-manchester-united-award/
 
