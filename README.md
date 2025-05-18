@@ -1,3 +1,7 @@
+**Trump Envoy Says Iran Must Give Up Nuclear Enrichment Capability**\
+`Steve Witkoff, President Trump’s chief Iran negotiator, offered the clearest outlines of the administration’s position in talks over Tehran’s nuclear program.`\
+https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
+
 **Russia Unleashes One of Its Largest Drone Barrages of the Ukraine War**\
 `The bombardment, which Ukrainian officials said mostly targeted Kyiv, came just before President Trump was expected to talk with President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364985/2025/05/18/maple-leafs-lineup-game-7-nhl-pl
 **Jennifer Lawrence Gets Her First Cannes Premiere, and It’s a Risky One**\
 `In “Die My Love” with Robert Pattinson, she plays a mother with postpartum depression. She was four months pregnant then and the hormones helped a lot.`\
 https://nytimes.com/2025/05/18/movies/jennifer-lawrence-robert-pattinson-die-my-love-cannes.html
-
-**A Simple Shrimp Salad to Welcome Summer**\
-`Mark Bittman’s spicy shrimp salad with mint, a recipe from 1998, still packs a fresh, lemony punch.`\
-https://nytimes.com/2025/05/18/dining/shrimp-salad-recipe.html
 
