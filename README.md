@@ -1,3 +1,11 @@
+**Verstappen wins with dazzling pass; Ferrari and Williams put on a show — Imola GP briefing**\
+`Verstappen made a stunning move at the start to steal the lead and the win in Red Bull's 400th grand prix`\
+https://nytimes.com/athletic/6365048/2025/05/18/imola-grand-prix-2025-result-max-verstappen-lewis-hamilton-ferrari/
+
+**Lowetide: What Oilers' Matt Savoie accomplished in his first AHL season**\
+`In Savoie, the Oilers have a plug-and-play right winger who could slide into the lineup this fall.`\
+https://nytimes.com/athletic/6362824/2025/05/18/matt-savoie-stats-ahl-bakersfield/
+
 **Amid Cease-Fire Talks, Israel Expands Ground Operations in Gaza**\
 `This new stage of the war is aimed at pressuring Hamas into releasing hostages and ultimately destroying the group or forcing it to surrender.`\
 https://nytimes.com/2025/05/18/world/middleeast/israel-gaza-ground-operation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/us/politics/house-republicans-budget-vote-trump-a
 **Trump Administration Live Updates: House Budget Committee Takes Up Trump’s Domestic Policy Bill, Again**\
 ``\
 https://nytimes.com/live/2025/05/18/us/trump-news-updates
-
-**Josh Hawley’s Surprising Plea for Medicaid**\
-`Readers respond to the Missouri senator’s argument for protecting Medicaid from cuts.`\
-https://nytimes.com/2025/05/18/opinion/josh-hawley-medicaid-cuts.html
-
-**‘S.N.L.’: A Lucrative Middle East Trip**\
-`This weekend’s broadcast, hosted by Scarlett Johansson and featuring the musical guest Bad Bunny, began with a sendup of President Trump’s recent visit to Saudi Arabia and Qatar.`\
-https://nytimes.com/2025/05/18/arts/television/snl-scarlett-johansson-bad-bunny.html
 
