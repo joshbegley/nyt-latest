@@ -1,3 +1,7 @@
+**José Alvarado gets 80 game suspension for PED violation**\
+`The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
+https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
+
 **José Alvarado suspended 80 games for PED violation, a big blow to Phillies bullpen**\
 `The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
 https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/

@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6365295/2025/05/18/jim-ratcliffe-manchester-united-
 `Ferguson oversaw just six victories in his 15 matches at the helm as Rangers finished 17 points behind Celtic.`\
 https://nytimes.com/athletic/6365253/2025/05/18/rangers-manager-barry-ferguson/
 
-**José Alvarado gets 80 game suspension for PED violation**\
-`The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
+**José Alvarado gets 80 game suspension for PED in blow to Phillies bullpen**\
+`The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason.`\
 https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
 
