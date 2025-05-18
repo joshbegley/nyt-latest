@@ -1,4 +1,4 @@
-**NBA playoffs takeaways: Thunder roll in Game 7, reach Western finals**\
+**How Thunder wore down Nuggets to reach Western finals: Takeaways**\
 `Alex Caruso pestered Nikola Jokić and the Thunder ran to the Western Conference finals with a Game 7 rout.`\
 https://nytimes.com/athletic/6365902/2025/05/18/nba-playoffs-takeaways-nuggets-thunder-game-7/
 
