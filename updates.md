@@ -1,3 +1,7 @@
+**Imola Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Imola?`\
+https://nytimes.com/athletic/6365250/2025/05/18/imola-gp-mailbag-f1/
+
 **Jennifer Lawrence Gets Her First Cannes Premiere, and It’s a Risky One**\
 `In “Die My Love” with Robert Pattinson, she plays a mother with postpartum depression. She was four months pregnant then and the hormones helped a lot.`\
 https://nytimes.com/2025/05/18/movies/jennifer-lawrence-robert-pattinson-die-my-love-cannes.html
