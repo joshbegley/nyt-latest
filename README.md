@@ -1,3 +1,7 @@
+**PSV dramatically win Eredivisie title on final day after Ajax run-in collapse**\
+`Ajax had led PSV by nine points with seven league matches remaining but a remarkable collapse saw Peter Bosz's side pip them to the title.`\
+https://nytimes.com/athletic/6365106/2025/05/18/psv-title-ajax-eredivisie-netherlands/
+
 **The Pulse: Pete Rose in the HOF? It's not that simple**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6364693/2025/05/18/will-pete-rose-actually-make-it-to-cooperstown-its-a-tricky-path/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/briefing/ag-sulzberger-free-press.html
 **Until 60 Years Ago, New Popes Were Crowned**\
 `Pope Leo XIV presided over his inaugural Mass on Sunday. Years ago, it would have included a solemn moment when the pontiff was crowned with an elaborate gold and jewel-encrusted papal tiara.`\
 https://nytimes.com/2025/05/18/world/europe/pope-crown.html
-
-**NBA offseason spending power: What each team has at its disposal this summer**\
-`Unexpected draft lottery results impacted the summer outlook for a few teams, but only one has the space to offer a max deal.`\
-https://nytimes.com/athletic/6353679/2025/05/18/2025-nba-offseason-spending-lakers-warriors-celtics-money/
 
