@@ -1,3 +1,11 @@
+**Democrats try to thread a needle in discussing Biden’s 2024 campaign and withdrawal.**\
+`Party leaders are walking a delicate line between defending the former president’s legislative accomplishments and admitting that he should have passed the torch earlier.`\
+https://nytimes.com/live/2025/05/18/us/trump-news-updates/democrats-try-to-thread-a-needle-in-discussing-bidens-2024-campaign-and-withdrawal
+
+**Carlos Alcaraz accelerates away from fading Jannik Sinner to win Italian Open**\
+`After an absorbing first set, Sinner's understandable lack of match toughness saw Alcaraz dance to victory in Rome.`\
+https://nytimes.com/athletic/6365391/2025/05/18/carlos-alcaraz-jannik-sinner-italian-open-result-analysis/
+
 **Trump Envoy Says Iran Must Give Up Nuclear Enrichment Capability**\
 `Steve Witkoff, President Trump’s chief Iran negotiator, offered the clearest outlines of the administration’s position in talks over Tehran’s nuclear program.`\
 https://nytimes.com/2025/05/18/us/politics/trump-witkoff-iran-nuclear.html
