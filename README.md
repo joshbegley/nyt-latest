@@ -1,3 +1,11 @@
+**Two People Held on Charges of Blackmailing a Premier League Soccer Star**\
+`A woman in South Korea was accused of claiming she was pregnant by Son Heung-min, the captain of Tottenham Hotspur, and demanding hush money.`\
+https://nytimes.com/2025/05/18/world/asia/skorea-son-heung-min-blackmail.html
+
+**Smith: Farewell for now, Imola. For all your flaws, I’m going to miss y**\
+`F1 history, wonderful fans and a paddock cat — just a few reasons our senior writer will be sad when Imola leaves the F1 calendar soon`\
+https://nytimes.com/athletic/6364614/2025/05/18/f1-imola-gp-final-race-2025/
+
 **A small, tight-knit religious order molded Pope Leo XIV.**\
 `By Patricia Mazzei and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/a-small-tight-knit-religious-order-molded-pope-leo-xiv
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/pageoneplus/air-travel-newark.html
 **‘She Was Trying to Tie Her Partner’s Bow Tie but Kept Failing’**\
 `Help with a tricky task on the Q, losing an E Street memento and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/05/18/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/18/crosswords/spelling-bee-forum.html
-
-**Clayton Kershaw struggles in 2025 Dodgers debut**\
-`For Kershaw, this game was about more than just the result; it was an emotional moment: “I love being back out there, it’s a special thing.”`\
-https://nytimes.com/athletic/6364710/2025/05/18/dodgers-clayton-kershaw-struggles-2025-debut/
 
