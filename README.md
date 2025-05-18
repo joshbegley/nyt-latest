@@ -1,3 +1,7 @@
+**In Upset, Centrist Wins Romania’s Presidential Election**\
+`Nicusor Dan, the mayor of Bucharest, defeated George Simion, a nationalist aligned with President Trump who had been seen as the front-runner.`\
+https://nytimes.com/2025/05/18/world/europe/nicusor-dan-romania-election.html
+
 **Dodgers showing urgency, not sentimentality, in cutting Austin Barnes and Chris Taylor**\
 `The emergence of infielder Hyeseong Kim made Taylor expendable as part of what Andrew Friedman called "a very emotional week."`\
 https://nytimes.com/athletic/6365880/2025/05/18/dodgers-austin-barnes-chris-taylor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-joh
 **What's at stake in Premier League final week: Champions League, Europa League, Golden Boot and more**\
 `Everything that's still up for grabs in the last seven days of this English top-flight season`\
 https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
-
-**Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
-`The cancer has metastasized to the bone, according to a statement from Mr. Biden’s personal office.`\
-https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
 
