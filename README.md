@@ -1,3 +1,7 @@
+**‘Win it or bin it’: Breaking down Max Verstappen’s magic, race-winning Imola GP pass**\
+`Max Verstappen had one shot at winning F1's 2025 Imola GP and he took it with a thrilling pass that shows his best qualities`\
+https://nytimes.com/athletic/6365481/2025/05/18/max-verstappen-imola-gp-pass-f1-2025/
+
 **Galatasaray pip Mourinho's Fenerbahce to Super Lig title**\
 `An 3-0 win over Kayserispor gave Okan Buruk's side a record-extending 25th Super Lig title.`\
 https://nytimes.com/athletic/6365319/2025/05/18/galatasaray-win-turkish-league-title/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/world/europe/russia-ukraine-drones.html
 **Mexico Navy Sailing Ship on Good Will Tour Crashes Into Brooklyn Bridge**\
 `There were 277 people on board when the ship drifted directly into the underside of the bridge on Saturday night, the authorities said. Two crew members were killed.`\
 https://nytimes.com/video/us/100000010176671/brooklyn-bridge-mexico-ship-crash.html
-
-**Review: A Game of Light and Shadow in Gounod’s ‘Faust’**\
-`Sara Holdren’s new production for Heartbeat Opera takes its lead from Bulgakov’s Faustian novel “The Master and Margarita.”`\
-https://nytimes.com/2025/05/18/arts/music/heartbeat-opera-faust-review.html
 
