@@ -1,3 +1,7 @@
+**'Nothing I can do': Bryson DeChambeau tries to move on after late collapse**\
+`“I'm behind the eight ball now,” he said. “I've got to get my guns a-blazing tomorrow.”`\
+https://nytimes.com/athletic/6364409/2025/05/17/pga-championship-2025-bryson-dechambeau-collapse/
+
 **'Nothing I can do': DeChambeau tries to move on after late collapse**\
 `“I'm behind the 8-ball now,” he said. “I've got to get my guns a-blazing tomorrow.”`\
 https://nytimes.com/athletic/6364409/2025/05/17/pga-championship-2025-bryson-dechambeau-collapse/
