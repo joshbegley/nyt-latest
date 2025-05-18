@@ -1,3 +1,7 @@
+**Friends of the pope’s alma mater, Villanova, gather in Rome.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/friends-of-the-popes-alma-mater-villanova-gather-in-rome
+
 **Will Still leaving position as Lens head coach 'to go back home' to UK**\
 `Still, formerly head coach of Reims, joined Lens on a three-year contract last summer and guided them to an eighth-place finish in Ligue 1.`\
 https://nytimes.com/athletic/6364745/2025/05/18/will-still-manager-lens-france/
