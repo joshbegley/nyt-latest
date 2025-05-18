@@ -1,3 +1,7 @@
+**'Nothing I can do': DeChambeau tries to move on after late collapse**\
+`“I'm behind the 8-ball now,” he said. “I've got to get my guns a-blazing tomorrow.”`\
+https://nytimes.com/athletic/6364409/2025/05/17/pga-championship-2025-bryson-dechambeau-collapse/
+
 **Comebacks are the difference for 2025 Blue Jays: Call it 'mojo' or 'blue-collar mentality'**\
 `Saturday’s 2-1 walk-off win over the Tigers was the 12th of the season for the Blue Jays. Comebacks represent over half of their total wins.`\
 https://nytimes.com/athletic/6364430/2025/05/17/blue-jays-comebacks/
@@ -8,7 +12,7 @@ https://nytimes.com/2025/05/17/arts/music/eurovision-song-contest-austria-jj.htm
 
 **F.D.A. Approves Novavax Covid Vaccine With Stricter New Conditions**\
 `The agency narrowed who can get the shot and added new study requirements that could cost the company tens of millions.`\
-https://nytimes.com/2025/05/17/science/fda-novavax-covid-vaccine.html
+https://nytimes.com/2025/05/17/health/fda-novavax-covid-vaccine.html
 
 **How Yankees' DJ LeMahieu looks different — which is a good thing**\
 `LeMahieu hit his first home run since July and is performing well in the field and at the plate after finally getting healthy.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364324/2025/05/17/mets-yankees-bullpen-edwin-diaz/
 **‘Not Normal’: Wall of Dust Races Across Central Illinois and Pushes Into Chicago**\
 `Day turned to night in northwest Indiana and north-central Illinois on Friday as a rare dust storm shrouded the skies.`\
 https://nytimes.com/2025/05/17/weather/chicago-dust-storm.html
-
-**Halve the Last Word**\
-`Garrett Chalfin’s puzzle is greater than the sum of its parts.`\
-https://nytimes.com/2025/05/17/crosswords/daily-puzzle-2025-05-18.html
 

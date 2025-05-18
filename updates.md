@@ -1,3 +1,11 @@
+**'Nothing I can do': DeChambeau tries to move on after late collapse**\
+`“I'm behind the 8-ball now,” he said. “I've got to get my guns a-blazing tomorrow.”`\
+https://nytimes.com/athletic/6364409/2025/05/17/pga-championship-2025-bryson-dechambeau-collapse/
+
+**F.D.A. Approves Novavax Covid Vaccine With Stricter New Conditions**\
+`The agency narrowed who can get the shot and added new study requirements that could cost the company tens of millions.`\
+https://nytimes.com/2025/05/17/health/fda-novavax-covid-vaccine.html
+
 **Comebacks are the difference for 2025 Blue Jays: Call it 'mojo' or 'blue-collar mentality'**\
 `Saturday’s 2-1 walk-off win over the Tigers was the 12th of the season for the Blue Jays. Comebacks represent over half of their total wins.`\
 https://nytimes.com/athletic/6364430/2025/05/17/blue-jays-comebacks/
