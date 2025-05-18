@@ -1,3 +1,11 @@
+**Conan O’Brien’s (Mostly Serious) Tips for Traveling the World**\
+`Text by Maria Adelmann`\
+https://nytimes.com/card/2025/05/18/smarter-living/wirecutter/conan-o-briens-mostly-serious-tips-for-traveling-the-world
+
+**Stars eliminate Jets in Game 6 on Thomas Harley's overtime goal: Takeaways**\
+`Dallas now heads to a Western Conference final rematch with Edmonton.`\
+https://nytimes.com/athletic/6364590/2025/05/17/jets-stars-game-6/
+
 **Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
 `There were 277 people on board, and three were critically injured, officials said.`\
 https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
