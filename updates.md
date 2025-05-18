@@ -1,3 +1,7 @@
+**Paul Maurice sends condolences to Mark Scheifele after father's death: 'Display of courage and focus'**\
+`Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
+https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
+
 **Kristen Stewart Thinks the Critics at Cannes Are Being Too Nice**\
 `Her directorial debut, “The Chronology of Water,” has earned good notices, but after fighting to get it made, the filmmaker wouldn’t mind a battle with reviewers.`\
 https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html

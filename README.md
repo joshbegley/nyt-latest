@@ -1,3 +1,7 @@
+**Dodgers release Chris Taylor, cutting ties with another established veteran**\
+`Cutting ties with Taylor likely clears the path for Hyeseong Kim to remain with the big-league club.`\
+https://nytimes.com/athletic/6365611/2025/05/18/dodgers-release-chris-taylor/
+
 **Paul Maurice sends condolences to Mark Scheifele after father's death: 'Display of courage and focus'**\
 `Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
 https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-le
 https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html
 
 **Angel City's Savy King out of hospital a week after on-field collapse**\
-`King is home after undergoing successful surgery. Teams says it is “prepared to support Savy as she continues her recovery.”`\
+`King is home after undergoing successful surgery. The team says it is “prepared to support Savy as she continues her recovery.”`\
 https://nytimes.com/athletic/6365486/2025/05/18/savy-king-out-of-hospital-onfield-collapse/
 
 **Ajax suffered one of the great title chokes - but their fans still saluted them**\
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6365319/2025/05/18/galatasaray-win-turkish-league-t
 `The voluntary recall was prompted after routine testing. It is the second such recall recently of baby food over possible lead contamination.`\
 https://nytimes.com/2025/05/18/business/publix-baby-food-recall-lead.html
 
-**Suspect in Palm Springs Bombing Is Said to Have Died in Blast**\
+**Suspect Identified in Palm Springs Bombing and Is Said to Have Died in Blast**\
 `Officials said Guy Edward Bartkus, 25, targeted the fertility clinic in the bombing that damaged the facility and injured four people.`\
 https://nytimes.com/2025/05/18/us/palm-springs-bombing-fertility-clinic-suspect.html
 
 **The Briefing: Arsenal 1 Newcastle 0 - Rice wraps up CL spot but Howe's side face final-day shootout**\
 `Our writers break down the action as Arsenal sealed Champions League qualification with a brilliant Rice finish.`\
 https://nytimes.com/athletic/6361815/2025/05/18/arsenal-newcastle-rice-arteta-champions-league/
-
-**Democrats try to thread a needle in discussing Biden’s 2024 campaign and withdrawal.**\
-`Party leaders are walking a delicate line between defending the former president’s legislative accomplishments and admitting that he should have passed the torch earlier.`\
-https://nytimes.com/live/2025/05/18/us/trump-news-updates/democrats-try-to-thread-a-needle-in-discussing-bidens-2024-campaign-and-withdrawal
 

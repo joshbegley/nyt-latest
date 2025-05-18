@@ -1,3 +1,7 @@
+**Paul Maurice sends condolences to Mark Scheifele after father's death: 'Display of courage and focus'**\
+`Members of the Panthers and Maple Leafs offered their condolences including Maurice, who coached Scheifele for nine seasons in Winnipeg, `\
+https://nytimes.com/athletic/6365513/2025/05/18/mark-scheifele-panthers-maple-leafs-nhl/
+
 **Kristen Stewart Thinks the Critics at Cannes Are Being Too Nice**\
 `Her directorial debut, “The Chronology of Water,” has earned good notices, but after fighting to get it made, the filmmaker wouldn’t mind a battle with reviewers.`\
 https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6361815/2025/05/18/arsenal-newcastle-rice-arteta-ch
 **Democrats try to thread a needle in discussing Biden’s 2024 campaign and withdrawal.**\
 `Party leaders are walking a delicate line between defending the former president’s legislative accomplishments and admitting that he should have passed the torch earlier.`\
 https://nytimes.com/live/2025/05/18/us/trump-news-updates/democrats-try-to-thread-a-needle-in-discussing-bidens-2024-campaign-and-withdrawal
-
-**Carlos Alcaraz accelerates away from fading Jannik Sinner to win Italian Open**\
-`After an absorbing first set, Sinner's understandable lack of match toughness saw Alcaraz dance to victory in Rome.`\
-https://nytimes.com/athletic/6365391/2025/05/18/carlos-alcaraz-jannik-sinner-italian-open-result-analysis/
 
