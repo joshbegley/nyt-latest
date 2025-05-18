@@ -1,3 +1,7 @@
+**Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
+`The diagnosis came after doctors found a “small nodule” on Mr. Biden’s prostate that required “further evaluation.”`\
+https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
+
 **A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
 `Rafal Trzaskowski, the Warsaw mayor, appeared to have won the first round of the election. Prime Minister Donald Tusk is hoping his eventual victory will help push through a liberal agenda.`\
 https://nytimes.com/2025/05/18/world/europe/poland-president-election-results.html

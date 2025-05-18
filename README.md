@@ -1,3 +1,7 @@
+**What's at stake in Premier League final week: Champions League sports, Europa League and Golden Boot**\
+`Everything still up for grabs in the last few days of the English top-flight season`\
+https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
+
 **Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
 `The diagnosis came after doctors found a “small nodule” on Mr. Biden’s prostate that required “further evaluation.”`\
 https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365486/2025/05/18/savy-king-out-of-hospital-onfiel
 **Ajax suffered one of the great title chokes - but their fans still saluted them**\
 `From nine points clear to title despair, the Amsterdam giants had a miserable end to the campaign. What happened?`\
 https://nytimes.com/athletic/6365502/2025/05/18/ajax-eredivisie-psv-title/
-
-**‘Win it or bin it’: Breaking down Max Verstappen’s magic, race-winning Imola GP pass**\
-`Max Verstappen had one shot at winning F1's 2025 Imola GP and he took it with a thrilling pass that shows his best qualities`\
-https://nytimes.com/athletic/6365481/2025/05/18/max-verstappen-imola-gp-pass-f1-2025/
 
