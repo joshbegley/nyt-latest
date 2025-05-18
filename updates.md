@@ -1,3 +1,7 @@
+**JD Vance has come to greet the new pope, but old tensions loom.**\
+`By Emma Bubola`\
+https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/jd-vance-has-come-to-greet-the-new-pope-but-old-tensions-loom
+
 **Live Updates: Pope Leo XIV’s Inaugural Mass Draws Leaders and Catholic Faithful**\
 `Vice President JD Vance was among the dignitaries attending the Mass in St. Peter’s Square. It marks the start of the pontificate of the first American to lead the Roman Catholic Church. Watch and follow live.`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass

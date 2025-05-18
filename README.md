@@ -1,3 +1,7 @@
+**Will Still leaving position as Lens head coach 'to go back home' to UK**\
+`Still, formerly head coach of Reims, joined Lens on a three-year contract last summer and guided them to an eighth-place finish in Ligue 1.`\
+https://nytimes.com/athletic/6364745/2025/05/18/will-still-manager-lens-france/
+
 **JD Vance has come to greet the new pope, but old tensions loom.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/jd-vance-has-come-to-greet-the-new-pope-but-old-tensions-loom
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/nyregion/new-jersey-transportation-plagues.html
 **Times Sq. Sculpture Prompts Racist Backlash. To Some, That’s the Point.**\
 `A 12-foot bronze statue of an anonymous Black woman has become a lightning rod in a fraught American debate about race, representation and diversity.`\
 https://nytimes.com/2025/05/18/nyregion/times-square-black-woman-statue.html
-
-**Air Traffic Control Problems Are Only the Latest Tap on the Airline Beat**\
-`Air travel was supposed to be just one part of Niraj Chokshi’s assignment at The Times. But then the pandemic started a wave of news that hasn’t really stopped.`\
-https://nytimes.com/2025/05/18/pageoneplus/air-travel-newark.html
 
