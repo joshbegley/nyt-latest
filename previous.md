@@ -1,3 +1,7 @@
+**New Jersey Transit and Engineers’ Union Agree to Deal to End Strike**\
+`An announcement by Gov. Philip D. Murphy was expected Sunday night.`\
+https://nytimes.com/2025/05/18/nyregion/new-jersey-transit-strike-agreement.html
+
 **Twins takeaways: Brewers end team's win streak at 13, but Royce Lewis is heating up**\
 `The winning streak may be over, but Lewis appears to be locked in at the plate, or very close to it. `\
 https://nytimes.com/athletic/6366045/2025/05/18/twins-win-streak-ends-royce-lewis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365800/2025/05/18/lyon-nemanja-matic-anti-homophob
 **Monday Briefing: Trump and Putin Are Set to Talk**\
 `Plus, a Japanese author breaks barriers.`\
 https://nytimes.com/2025/05/18/briefing/trump-putin-talk-biden-cancer-israel-operation-gaza.html
-
-**Sheffield Wednesday's Rohl considering options amid uncertainty over his future**\
-`Southampton have targeted Rohl for the top job previously and he continues to be on their radar after Ivan Juric left St Mary’s.`\
-https://nytimes.com/athletic/6365876/2025/05/18/sheffield-wednesday-danny-rohl-future/
 

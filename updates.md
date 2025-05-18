@@ -1,3 +1,7 @@
+**New Jersey Transit and Engineers’ Union Agree to Deal to End Strike**\
+`An announcement by Gov. Philip D. Murphy was expected Sunday night.`\
+https://nytimes.com/2025/05/18/nyregion/new-jersey-transit-strike-agreement.html
+
 **Twins takeaways: Brewers end team's win streak at 13, but Royce Lewis is heating up**\
 `The winning streak may be over, but Lewis appears to be locked in at the plate, or very close to it. `\
 https://nytimes.com/athletic/6366045/2025/05/18/twins-win-streak-ends-royce-lewis/
