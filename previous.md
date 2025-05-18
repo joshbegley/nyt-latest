@@ -1,3 +1,7 @@
+**‘S.N.L.’: A Lucrative Middle East Trip**\
+`This weekend’s broadcast, hosted by Scarlett Johansson and featuring the musical guest Bad Bunny, began with a sendup of President Trump’s recent visit to Saudi Arabia and Qatar.`\
+https://nytimes.com/2025/05/18/arts/television/snl-scarlett-johansson-bad-bunny.html
+
 **Mark Scheifele, Winnipeg Jets dealt devastating loss but meet it with courage and heart**\
 `For Scheifele, Game 6 was a way to honour his dad. It ended with heartbreak, but not without courage in the face of a devastating loss.`\
 https://nytimes.com/athletic/6364344/2025/05/18/nhl-playoffs-mark-scheifele-winnipeg-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-f
 **What is the image of the Virgin Mary near the altar?**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/05/18/world/pope-leo-xiv-mass/what-is-the-image-of-the-virgin-mary-near-the-altar
-
-**Pope Leo evokes his predecessor with a message of inclusivity and unity.**\
-`By Jason Horowitz`\
-https://nytimes.com/2025/05/18/world/europe/pope-leo-evokes-his-predecessor-with-a-message-of-inclusivity-and-unity.html
 

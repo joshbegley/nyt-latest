@@ -1,3 +1,7 @@
+**‘S.N.L.’: A Lucrative Middle East Trip**\
+`This weekend’s broadcast, hosted by Scarlett Johansson and featuring the musical guest Bad Bunny, began with a sendup of President Trump’s recent visit to Saudi Arabia and Qatar.`\
+https://nytimes.com/2025/05/18/arts/television/snl-scarlett-johansson-bad-bunny.html
+
 **A goalkeeper's view on Henderson vs Haaland FA Cup final incident**\
 `Our expert suggests Palace's 'keeper could not have done much better in the situation and understands why officials made the call they did`\
 https://nytimes.com/athletic/6364795/2025/05/18/henderson-haaland-handball-cup-final/
