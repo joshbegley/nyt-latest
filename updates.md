@@ -1,3 +1,11 @@
+**Kristen Stewart Thinks the Critics at Cannes Are Being Too Nice**\
+`Her directorial debut, “The Chronology of Water,” has earned good notices, but after fighting to get it made, the filmmaker wouldn’t mind a battle with reviewers.`\
+https://nytimes.com/2025/05/18/movies/kristen-stewart-chronology-of-water-cannes.html
+
+**Angel City's Savy King out of hospital a week after on-field collapse**\
+`King is home after undergoing successful surgery. Teams says it is “prepared to support Savy as she continues her recovery.”`\
+https://nytimes.com/athletic/6365486/2025/05/18/savy-king-out-of-hospital-onfield-collapse/
+
 **Ajax suffered one of the great title chokes - but their fans still saluted them**\
 `From nine points clear to title despair, the Amsterdam giants had a miserable end to the campaign. What happened?`\
 https://nytimes.com/athletic/6365502/2025/05/18/ajax-eredivisie-psv-title/
