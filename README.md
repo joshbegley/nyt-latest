@@ -1,3 +1,7 @@
+**Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
+`The diagnosis came after doctors found a “small nodule” on Mr. Biden’s prostate that required “further evaluation.”`\
+https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
+
 **A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
 `Rafal Trzaskowski, the Warsaw mayor, appeared to have won the first round of the election. Prime Minister Donald Tusk is hoping his eventual victory will help push through a liberal agenda.`\
 https://nytimes.com/2025/05/18/world/europe/poland-president-election-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365502/2025/05/18/ajax-eredivisie-psv-title/
 **‘Win it or bin it’: Breaking down Max Verstappen’s magic, race-winning Imola GP pass**\
 `Max Verstappen had one shot at winning F1's 2025 Imola GP and he took it with a thrilling pass that shows his best qualities`\
 https://nytimes.com/athletic/6365481/2025/05/18/max-verstappen-imola-gp-pass-f1-2025/
-
-**Galatasaray pip Mourinho's Fenerbahce to Super Lig title**\
-`An 3-0 win over Kayserispor gave Okan Buruk's side a record-extending 25th Super Lig title.`\
-https://nytimes.com/athletic/6365319/2025/05/18/galatasaray-win-turkish-league-title/
 
