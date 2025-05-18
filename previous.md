@@ -1,3 +1,11 @@
+**PGA Championship Round 3: How Scottie Scheffler took control**\
+`Scheffler has successfully converted each of his last seven outright 54-hole leads on the PGA Tour.`\
+https://nytimes.com/athletic/6364427/2025/05/17/pga-championship-round-3-how-scottie-scheffler-took-control/
+
+**If WNBA wants a true Caitlin Clark-Angel Reese rivalry, the Sky must grow quickly**\
+`Clark recorded a triple-double as the Fever continue to have the Sky's number. `\
+https://nytimes.com/athletic/6364552/2025/05/17/caitlin-clark-angel-reese-wnba-rivalry-fever-sky/
+
 **Onlookers Stunned as Boat Hits Brooklyn Bridge**\
 `The masts of a Mexican Navy training sailboat toppled after striking the underside of the Brooklyn Bridge on Saturday evening.`\
 https://nytimes.com/video/nyregion/100000010176320/brooklyn-bridge-boat-crash.html
@@ -7,7 +15,7 @@ https://nytimes.com/video/nyregion/100000010176320/brooklyn-bridge-boat-crash.ht
 https://nytimes.com/athletic/6364406/2025/05/17/scottie-scheffler-pga-championship-total-majors/
 
 **Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
-`Several people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
+`Several people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were critically injured.`\
 https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
 
 **Caitlin Clark and Fever deliver statement in opening victory against Sky**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/17/arts/music/eurovision-song-contest-austria-jj.htm
 **F.D.A. Approves Novavax Covid Vaccine With Stricter New Conditions**\
 `The agency narrowed who can get the shot and added new study requirements that could cost the company tens of millions.`\
 https://nytimes.com/2025/05/17/health/fda-novavax-covid-vaccine.html
-
-**How Yankees' DJ LeMahieu looks different — which is a good thing**\
-`LeMahieu hit his first home run since July and is performing well in the field and at the plate after finally getting healthy.`\
-https://nytimes.com/athletic/6364380/2025/05/17/yankees-dj-lemahieu-subway-series/
-
-**One Person Dead in Explosion Outside Palm Springs Fertility Clinic**\
-`The mayor of Palm Springs, Calif., said it was unclear how or whether the victim was connected to a blast that damaged a fertility clinic.`\
-https://nytimes.com/video/us/100000010176236/palm-springs-explosion-fertility.html
 
