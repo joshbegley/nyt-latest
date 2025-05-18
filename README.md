@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6354612/2025/05/18/astros-hayden-wesneski-tommy-joh
 https://nytimes.com/athletic/6365580/2025/05/18/premier-league-final-week-whats-at-stake/
 
 **Biden Is Diagnosed With an Aggressive Form of Prostate Cancer**\
-`The diagnosis came after doctors found a “small nodule” on Mr. Biden’s prostate that required “further evaluation.”`\
+`The cancer has metastasized to the bone, according to a statement from Mr. Biden’s personal office.`\
 https://nytimes.com/2025/05/18/us/politics/biden-prostate-cancer.html
 
 **A Liberal Takes the Lead in the Critical Vote for Poland’s President**\
