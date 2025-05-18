@@ -1,9 +1,13 @@
+**Onlookers Stunned as Boat Hits Brooklyn Bridge**\
+`The masts of a Mexican Navy training sailboat toppled after striking the underside of the Brooklyn Bridge on Saturday evening.`\
+https://nytimes.com/video/nyregion/100000010176320/brooklyn-bridge-boat-crash.html
+
 **The race to 3: More than a trophy is at stake for Scottie Scheffler on Sunday**\
 `Six golfers in the current generation have won two majors. Scheffler can be the first since 2018 to win No. 3.`\
 https://nytimes.com/athletic/6364406/2025/05/17/scottie-scheffler-pga-championship-total-majors/
 
 **Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
-`Multiple people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
+`Several people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
 https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
 
 **Caitlin Clark and Fever deliver statement in opening victory against Sky**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364380/2025/05/17/yankees-dj-lemahieu-subway-serie
 **One Person Dead in Explosion Outside Palm Springs Fertility Clinic**\
 `The mayor of Palm Springs, Calif., said it was unclear how or whether the victim was connected to a blast that damaged a fertility clinic.`\
 https://nytimes.com/video/us/100000010176236/palm-springs-explosion-fertility.html
-
-**The potential Pete Crow-Armstrong MVP season is starting to happen for the Cubs**\
-`"Every time he comes up to the plate," Cubs catcher Carson Kelly said, "you know something awesome might happen."`\
-https://nytimes.com/athletic/6364378/2025/05/17/pete-crow-armstrong-mvp-season-beginning-chicago-cubs/
 
