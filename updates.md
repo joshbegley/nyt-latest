@@ -1,3 +1,7 @@
+**Caitlin Clark and Indiana Fever deliver statement in opening victory against Sky**\
+`Clark and the Fever's new additions looked cohesive in their first game. `\
+https://nytimes.com/athletic/6364509/2025/05/17/caitlin-clark-indiana-fever-victory-chicago-sky-wnba/
+
 **'Nothing I can do': Bryson DeChambeau tries to move on after late collapse**\
 `“I'm behind the eight ball now,” he said. “I've got to get my guns a-blazing tomorrow.”`\
 https://nytimes.com/athletic/6364409/2025/05/17/pga-championship-2025-bryson-dechambeau-collapse/
