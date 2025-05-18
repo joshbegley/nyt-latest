@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6365295/2025/05/18/jim-ratcliffe-manchester-united-
 https://nytimes.com/athletic/6365253/2025/05/18/rangers-manager-barry-ferguson/
 
 **José Alvarado suspended 80 games for PED violation, a big blow to Phillies bullpen**\
-`What it means for the Phillies, who said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
+`The Phillies said Alvarado tested positive for a banned substance after taking a weight-loss drug in the offseason. `\
 https://nytimes.com/athletic/6365300/2025/05/18/phillies-reliever-jose-alvarado-suspended-80-games-after-positive-ped-test/
 
