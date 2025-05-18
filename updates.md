@@ -1,3 +1,11 @@
+**Onlookers Stunned as Boat Hits Brooklyn Bridge**\
+`The masts of a Mexican Navy training sailboat toppled after striking the underside of the Brooklyn Bridge on Saturday evening.`\
+https://nytimes.com/video/nyregion/100000010176320/brooklyn-bridge-boat-crash.html
+
+**Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
+`Several people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
+https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
+
 **Mexican Navy Sailboat Crashes Into Brooklyn Bridge**\
 `Multiple people needed help after the episode on Saturday night, the police said. There were 277 people on board, and three were seriously injured.`\
 https://nytimes.com/2025/05/17/nyregion/brooklyn-bridge-ship-crash-nyc.html
