@@ -1,3 +1,15 @@
+**Bissouma and Bentancur: An unlikely partnership with two unlikely redemption arcs?**\
+`The pair have both been sanctioned for off-pitch issues, and both have just a year left on their deals, yet they will likely start in Bilbao`\
+https://nytimes.com/athletic/6360359/2025/05/19/bissouma-bentancur/
+
+**Markets Head Lower in Wake of Concerns About U.S. Debt**\
+`A downgrade by Moody’s amplified some existing worries about the cost of President Trump’s policies and the health of the U.S. economy.`\
+https://nytimes.com/2025/05/19/business/stock-markets-moodys-sp500.html
+
+**Siegel: The Shanaplan failed. This should finally be it for the Core Four Leafs**\
+`After yet another Leafs season ended with a whimper rather than a bang, enough has to be enough.`\
+https://nytimes.com/athletic/6366611/2025/05/19/maple-leafs-shanahan-nhl-playoffs-marner/
+
 **Dear Goodison, farewell and thank you**\
 `Everton's players - past and present - and an adoring home support gave Goodison the send-off it deserved. It was not a wake, it was a party`\
 https://nytimes.com/athletic/6365473/2025/05/19/everton-goodison-park-farewell/

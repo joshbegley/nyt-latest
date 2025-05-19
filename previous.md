@@ -1,3 +1,11 @@
+**Bissouma and Bentancur: An unlikely partnership with two unlikely redemption arcs?**\
+`The pair have both been sanctioned for off-pitch issues, and both have just a year left on their deals, yet they will likely start in Bilbao`\
+https://nytimes.com/athletic/6360359/2025/05/19/bissouma-bentancur/
+
+**Markets Head Lower in Wake of Concerns About U.S. Debt**\
+`A downgrade by Moody’s amplified some existing worries about the cost of President Trump’s policies and the health of the U.S. economy.`\
+https://nytimes.com/2025/05/19/business/stock-markets-moodys-sp500.html
+
 **Dear Goodison, farewell and thank you**\
 `Everton's players - past and present - and an adoring home support gave Goodison the send-off it deserved. It was not a wake, it was a party`\
 https://nytimes.com/athletic/6365473/2025/05/19/everton-goodison-park-farewell/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6365449/2025/05/19/forest-togetherness-awoniyi/
 https://nytimes.com/athletic/6365414/2025/05/19/chelsea-domestic-dominance-europe-bompastor/
 
 **Siegel: The Shanaplan failed. This should finally be it for the Core Four Leafs**\
-`After yet another Leafs season that ended with a whimper rather than a bang, enough has to be enough.`\
+`After yet another Leafs season ended with a whimper rather than a bang, enough has to be enough.`\
 https://nytimes.com/athletic/6366611/2025/05/19/maple-leafs-shanahan-nhl-playoffs-marner/
 
 **Question: What is Vitor-ball? Please explain your answer in no more than 1,490 words**\
 `A deep dive into the Wolves' managers style and tactics – and how it turned the season around`\
 https://nytimes.com/athletic/6362187/2025/05/19/what-is-vitor-ball/
-
-**Mikel Arteta has convinced Arsenal fans – their belief remains unwavering**\
-`With no silverware to toast, there could have been an emptiness that filled the stadium - but the manager got the backing he wanted.`\
-https://nytimes.com/athletic/6365827/2025/05/19/arteta-arsenal-fanbase-emirates/
-
-**Charlie Cresswell on leaving Leeds and loving Toulouse: 'I was scared but it's been great'**\
-`The defender stepped out of his comfort zone with a transfer to France. In Ligue 1, he is getting the game time he missed out on with Leeds`\
-https://nytimes.com/athletic/6361787/2025/05/19/charlie-cresswell-toulouse-leeds/
 
