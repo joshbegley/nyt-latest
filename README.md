@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/19/us/navy-admiral-convicted-bribery.html
 
 **Cleared for takeoff: Juan Soto flies on Mets plane, contrary to chatter**\
-`BOSTON — Yes, Juan Soto flies on the team plane with the rest of his teammates, multiple New York Mets team sources confirmed on Monday, refuting a misinterpretation from WFAN morning host Boomer Esiason.`\
+`WFAN morning host Boomer Esiason suggested that Soto travels separately from the team, but that is not the case.`\
 https://nytimes.com/athletic/6368860/2025/05/19/juan-soto-mets-team-plane/
 
 **Louisiana Seeks Escaped Inmates, and Answers About Their Brazen Escape**\
