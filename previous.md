@@ -1,3 +1,19 @@
+**British tennis stars call on U.K. prime minister for grassroots investment**\
+`Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
+https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/
+
+**$800 Million Overhaul of U.S. Open Stadium Will Add Space and Luxury**\
+`Construction on the Arthur Ashe tennis stadium and a new building for players is scheduled to be completed in time for the 2027 U.S. Open.`\
+https://nytimes.com/2025/05/19/nyregion/arthur-ashe-stadium-renovation.html
+
+**Did Usher Write His Own Commencement Speech? (Yeah!)**\
+`Usher told Emory’s Class of 2025 a story about himself that he has rarely shared. Here is how late-night brainstorming, careful editing and last-minute riffing led to that moment.`\
+https://nytimes.com/interactive/2025/05/19/us/usher-commencement-speech-emory.html
+
+**What we learned from Celtics' Brad Stevens on Jayson Tatum, Jaylen Brown and offseason plans**\
+`Stevens says star Tatum has a “long road ahead” in his recovery after rupturing his Achilles tendon.`\
+https://nytimes.com/athletic/6368640/2025/05/19/celtics-brad-stevens-jayson-tatum-jaylen-brown-injury/
+
 **Debt Downgrade Bolsters The Right In Congressional Talks Over Megabill**\
 `Conservatives have been holding out against the major tax and spending cut package to implement President Trump’s agenda, arguing it will swell federal deficits. The Moody’s downgrade underscored their concerns.`\
 https://nytimes.com/2025/05/19/us/politics/debt-downgrade-congress.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/19/briefing/trump-putin-phone-call-ai-miami-classroo
 **Judge Rules That Trump Administration Takeover of Institute of Peace Is Illegal**\
 `Judge Beryl Howell of U.S. District Court in Washington said that the administration, in a “gross usurpation of power,” had acted with “blunt force” against the independent agency.`\
 https://nytimes.com/2025/05/19/us/politics/institute-of-peace-trump.html
-
-**Mac Allister ruled out of Liverpool's final Premier League game**\
-`"He needs rest to recover completely and to be ready for the start next season, that will be no problem," head coach Arne Slot said.`\
-https://nytimes.com/athletic/6368725/2025/05/19/alexis-mac-allister-injury-liverpool/
-
-**Hudson Yards Developer Drops Casino Bid in Face of Political Opposition**\
-`Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
-https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html
-
-**Melania Trump Joins the President to Sign Revenge Porn Bill She Championed**\
-`The bill, known as the Take It Down Act, mandates social media platforms to remove sexually explicit images and videos of others.`\
-https://nytimes.com/2025/05/19/us/melania-trump-take-it-down-act.html
-
-**Ari Aster on ‘Eddington’: It’s ‘About What the Country Felt Like to Me’**\
-`The Covid-era satire has been divisive at Cannes, but the director has not seen the reviews. He’s focused on his fears about where the world is headed.`\
-https://nytimes.com/2025/05/19/movies/ari-aster-eddington-cannes.html
 

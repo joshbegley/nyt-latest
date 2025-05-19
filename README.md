@@ -1,3 +1,7 @@
+**Trump Backs Off His Demand That Russia Declare a Cease-Fire in Ukraine**\
+`President Trump once vowed to broker peace between Russia and Ukraine in 24 hours. Now he says the two sides should work it out themselves.`\
+https://nytimes.com/2025/05/19/us/politics/trump-russia-ukraine-cease-fire.html
+
 **British tennis stars call on U.K. prime minister for grassroots investment**\
 `Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
 https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/theater/trump-kennedy-center-season.html
 **Trump Spoke to Putin for Two Hours**\
 `Also, the nation’s third-largest school district has embraced A.I. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/05/19/briefing/trump-putin-phone-call-ai-miami-classrooms.html
-
-**Judge Rules That Trump Administration Takeover of Institute of Peace Is Illegal**\
-`Judge Beryl Howell of U.S. District Court in Washington said that the administration, in a “gross usurpation of power,” had acted with “blunt force” against the independent agency.`\
-https://nytimes.com/2025/05/19/us/politics/institute-of-peace-trump.html
 
