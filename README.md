@@ -1,3 +1,11 @@
+**Trump’s Kennedy Center Comes Into Focus With Theater and Dance Plans**\
+`Some big shows and troupes will perform, while others will stay away. And in a shift, the center will present some Broadway shows with nonunion casts.`\
+https://nytimes.com/2025/05/19/theater/trump-kennedy-center-season.html
+
+**Trump Spoke to Putin for Two Hours**\
+`Also, the nation’s third-largest school district has embraced A.I. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/05/19/briefing/trump-putin-phone-call-ai-miami-classrooms.html
+
 **Judge Rules That Trump Administration Takeover of Institute of Peace Is Illegal**\
 `Judge Beryl Howell of U.S. District Court in Washington said that the administration, in a “gross usurpation of power,” had acted with “blunt force” against the independent agency.`\
 https://nytimes.com/2025/05/19/us/politics/institute-of-peace-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/world/americas/mexican-navy-ship-cadets-brooklyn-
 **An 'incredible platform' or a risk? Will NWSL's Unwell FC partnership grow the game?**\
 `The fan hype group Unwell FC, a partnership between the NWSL and Alex Cooper's Unwell company, launched at the weekend `\
 https://nytimes.com/athletic/6365375/2025/05/19/nwsl-unwell-fc-partnership-alex-cooper/
-
-**14 Million Books Later, Jim Butcher Thinks His Wizard Detective Needs a Hug**\
-`Now in its 25th year, The Dresden Files and its author have survived the darkness, fictional and otherwise.`\
-https://nytimes.com/2025/05/19/books/jim-butcher-the-dresden-files.html
-
-**Trump Administration Discussing Paying $5 Million to Family of Jan. 6 Rioter**\
-`The payment, if approved, would represent an extraordinary concession by the Justice Department, which prosecuted nearly 1,600 people in connection with the riot.`\
-https://nytimes.com/2025/05/19/us/politics/ashli-babbitt-jan-6-settlement-trump.html
 
