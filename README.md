@@ -1,3 +1,7 @@
+**The issues Barcelona need to solve next season after winning La Liga**\
+`Barcelona are hopeful of a settled summer - but there remain positions that need strengthening and player futures to solve `\
+https://nytimes.com/athletic/6366868/2025/05/19/barcelona-transfers-laporta-flick-la-liga/
+
 **Tornado Rips Through Colorado**\
 `Tornadoes reported in Bennett, Colo., damaged buildings as forecasters said a severe storm system would roll through parts of the Midwest.`\
 https://nytimes.com/video/world/americas/100000010177412/weather-sunday-tornado-forecast-kansas-oklahoma-storms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/learning/word-of-the-day-askance.html
 **Russia Launches One of Its Largest Drone Attacks on Ukraine**\
 `The strike took place a day ahead of an anticipated conversation between President Donald Trump and President Vladimir Putin of Russia.`\
 https://nytimes.com/video/world/europe/100000010177337/russia-ukraine-drones.html
-
-**What we learned about the Yankees in Subway Series win over Mets**\
-`For Juan Soto, love doesn’t live at Yankee Stadium anymore. Jorbit Vivas had the biggest at-bat of Sunday’s win.`\
-https://nytimes.com/athletic/6366787/2025/05/19/yankees-subway-series-win-mets/
 
