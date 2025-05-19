@@ -1,40 +1,40 @@
-**The Sean Combs Trial**\
-`Plus, President Joe Biden’s cancer diagnosis.`\
-https://nytimes.com/2025/05/19/briefing/sean-combs-trial.html
+**Pope Leo meets with JD Vance As U.S. Conservatives Hope for Better Relations**\
+`The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
+https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
 
-**Reds sweep Guardians as Will Benson steals the show against former team: C. Notes**\
-`Since being called up from Triple A, Benson is 11-for-26 with five homers over eight games, and homers in each of the last four games.`\
-https://nytimes.com/athletic/6366164/2025/05/19/c-notes-will-benson-reds-sweep/
+**Twins' banged-up lineup will need unsung hitters to step up in place of sidelined stars**\
+`Without Byron Buxton, Carlos Correa and Matt Wallner, the Twins are turning to a motley crew of journeymen and rookies for lineup help.`\
+https://nytimes.com/athletic/6364467/2025/05/19/twins-lineup-without-byron-buxton-carlos-correa/
 
-**The Pulse: The top 5 moments from a remarkable Sunday**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6366406/2025/05/19/maple-leafs-panthers-thunder-nuggets-game-7-the-pulse/
+**Real Madrid want fitness coach Antonio Pintus to remain at club**\
+`The Spanish club want the 62-year-old Italian to continue in his role as physical trainer under prospective new head coach Xabi Alonso.`\
+https://nytimes.com/athletic/6365426/2025/05/19/antonio-pintus-real-madrid-future/
 
-**Manchester City appoint Hannah Dingley as girls' Head of Academy**\
-`Dingley was previously caretaker manager of Forest Green Rovers, the first woman in charge of a men’s side in England’s top four leagues.`\
-https://nytimes.com/athletic/6366997/2025/05/19/manchester-city-women-hannah-dingley/
+**The Hurricanes don't care if you think they're boring: 'We’re trying to win hockey games'**\
+`The Hurricanes are once again eight wins away from a Stanley Cup, despite many in the hockey world dubbing their playing style "boring."`\
+https://nytimes.com/athletic/6366023/2025/05/19/carolina-hurricanes-nhl-playoffs-boring/
 
-**Farioli announces Ajax exit day after missing out on league title**\
-`Ajax blew a nine-point lead at the top of the table to see rivals PSV win the Eredivisie.`\
-https://nytimes.com/athletic/6367021/2025/05/19/francesco-farioli-ajax-leaves-eredivisie/
+**Jarren Duran's start is mirroring his 2024 campaign — which might be good news for Boston**\
+`Duran doesn't have the eye-opening statline yet that he did in 2024, but his numbers through this point in the season are similar to 2024.`\
+https://nytimes.com/athletic/6365616/2025/05/19/jarren-duran-red-sox-season-start/
 
-**Tyler Batty, a rookie DL for the Vikings and son of a cowboy, is easy to root for**\
-`Batty, an edge rusher from BYU who grew up with horses, is expected to have a good shot of making Minnesota's 53-man roster. `\
-https://nytimes.com/athletic/6362539/2025/05/19/tyler-batty-vikings-byu-cowboy-horses/
+**WNBA power rankings: Kelsey Plum shines for L.A. Sparks, Fever move up after strong start**\
+`The Liberty and Fever game Saturday could shake up the rankings if Indiana pulls out a statement victory.`\
+https://nytimes.com/athletic/6366664/2025/05/19/wnba-power-rankings-kelsey-plum-sparks/
 
-**Why tennis stars are confronting fans as they cross the line on court**\
-`Confrontations between players and spectators in Rome reopened debates over courtside behavior and the benefits of a raucous atmosphere.`\
-https://nytimes.com/athletic/6365289/2025/05/19/tennis-crowds-fans-abuse-betting-etiquette/
+**Atlanta west? In Anaheim, ex-Braves fill the roster and staff as Angels seek winning culture**\
+`“That’s what I think is happening. Trying to build a culture here that creates winning," said ex-Brave and current Angel Travis d'Arnaud.`\
+https://nytimes.com/athletic/6362543/2025/05/19/atlanta-braves-los-angeles-angels-trades/
 
-**Nine numbers that reflect the state of the up-and-down Cleveland Guardians**\
-`From José Ramírez's dominance to disappointments in the pitching staff, these numbers shed some light on the Guardians’ state of play.`\
-https://nytimes.com/athletic/6366246/2025/05/19/guardians-statistics-season-analysis/
+**What we learned about the four teams eliminated in Round 2**\
+`The nature of playoff legacies, the long grind of the postseason and foreseeable issues all came to the fore.`\
+https://nytimes.com/athletic/6366351/2025/05/19/nhl-playoffs-2025-round-2-eliminations/
 
-**The Leafs imploded again. How they lost shows what needs to change: Mirtle**\
-`It's been a long nine years, but at last it's become clear that the Leafs are in need of a heart transplant.`\
-https://nytimes.com/athletic/6366627/2025/05/19/maple-leafs-game-7-nhl-playoffs-shanahan/
+**Five questions about the Raiders as they start OTAs**\
+`Can Wilkins be the player he was before his injury? Will Geno Smith be a difference-maker? What's the pecking order on the interior O-line?`\
+https://nytimes.com/athletic/6359818/2025/05/19/raiders-otas-christian-wilkins-geno-smith/
 
-**Ranking the 25 best college football teams of the 2000s**\
-`All week, The Athletic is looking back at the best of the first 25 years of the 21st century in college football. Who's the best team?`\
-https://nytimes.com/athletic/6361384/2025/05/19/best-college-football-teams-2000s-rankings/
+**Inside Kyle Dubas' quiet, isolated search for the Penguins' next coach**\
+`Dubas is having a unique experience interviewing Penguins coaching candidates while leading Canada at the World Championship in Sweden. `\
+https://nytimes.com/athletic/6365467/2025/05/19/penguins-coaching-search-kyle-dubas/
 
