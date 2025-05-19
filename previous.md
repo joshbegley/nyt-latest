@@ -1,3 +1,15 @@
+**Democrats Pause Their Anger at Biden Over 2024, but Have New Questions**\
+`The former president’s cancer diagnosis prompted an outpouring of well wishes and sympathy, as well as some whispered uncertainties that reflected a lack of trust in what he says about his health.`\
+https://nytimes.com/2025/05/19/us/politics/biden-cancer-democrats-2024-election.html
+
+**In Illness, Biden Deserves Grace**\
+`Readers respond to former President Joe Biden’s prostate cancer diagnosis. Also: A.I. governance; a reality show contest for citizenship?`\
+https://nytimes.com/2025/05/19/opinion/joe-biden-prostate-cancer.html
+
+**David Beckham and Gary Neville on Amorim, Man Utd transfers and Ratcliffe**\
+`Amorim has endured a difficult start to life at Old Trafford but Beckham believes he is a "very good manager" who deserves support.`\
+https://nytimes.com/athletic/6367767/2025/05/19/manchester-united-transfers-amorim-beckham-neville/
+
 **Intriguing inclusions, omissions from preliminary USMNT Gold Cup squad**\
 `Mauricio Pochettino will whittle down this 60-man group to his final 26-man squad for this summer's Concacaf Gold Cup.`\
 https://nytimes.com/athletic/6367890/2025/05/19/usmnt-gold-cup-preliminary-squad-roster-pochettino/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
 **Newcastle set to appoint Palace's Williams as new director of women's football**\
 `Newcastle are targeting promotion to the Women's Super League (WSL).`\
 https://nytimes.com/athletic/6367273/2025/05/19/newcastle-women-grace-williams/
-
-**USMNT Player Tracker: Richards, Turner and Tillman savour success, but woe for Pulisic**\
-`Our weekend roundup also takes in Juventus' progress into the Champions League, and the toils of Gianluca Busio and Venezia in Serie A`\
-https://nytimes.com/athletic/6366166/2025/05/19/usmnt-richards-tillman-tracker/
-
-**Eagles calling teams to lobby for 'tush push' to not be banned: Sources**\
-`For the Packers' proposal to pass, 24 teams would need to vote in favor of banning the play.`\
-https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packers-proposal/
-
-**Lincoln Center Plans a $335 Million Makeover of Its Western Edge**\
-`The center in Manhattan aims to attract new audiences, as it takes down a wall on Amsterdam Avenue and revamps Damrosch Park.`\
-https://nytimes.com/2025/05/19/arts/music/lincoln-center-west-edge-335-million.html
 

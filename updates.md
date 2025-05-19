@@ -1,3 +1,15 @@
+**Democrats Pause Their Anger at Biden Over 2024, but Have New Questions**\
+`The former president’s cancer diagnosis prompted an outpouring of well wishes and sympathy, as well as some whispered uncertainties that reflected a lack of trust in what he says about his health.`\
+https://nytimes.com/2025/05/19/us/politics/biden-cancer-democrats-2024-election.html
+
+**In Illness, Biden Deserves Grace**\
+`Readers respond to former President Joe Biden’s prostate cancer diagnosis. Also: A.I. governance; a reality show contest for citizenship?`\
+https://nytimes.com/2025/05/19/opinion/joe-biden-prostate-cancer.html
+
+**David Beckham and Gary Neville on Amorim, Man Utd transfers and Ratcliffe**\
+`Amorim has endured a difficult start to life at Old Trafford but Beckham believes he is a "very good manager" who deserves support.`\
+https://nytimes.com/athletic/6367767/2025/05/19/manchester-united-transfers-amorim-beckham-neville/
+
 **Intriguing inclusions, omissions from preliminary USMNT Gold Cup squad**\
 `Mauricio Pochettino will whittle down this 60-man group to his final 26-man squad for this summer's Concacaf Gold Cup.`\
 https://nytimes.com/athletic/6367890/2025/05/19/usmnt-gold-cup-preliminary-squad-roster-pochettino/

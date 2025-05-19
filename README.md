@@ -1,3 +1,11 @@
+**Tornadoes Bring Destruction to Great Plains**\
+`Widespread damage was reported on Sunday, after several tornadoes tore through parts of the Great Plains, downing power lines and trees and damaging buildings.`\
+https://nytimes.com/video/us/elections/100000010177936/tornadoes-bring-destruction-to-great-plains.html
+
+**Supreme Court Lets Trump Lift Deportation Protections for Venezuelans**\
+`A federal judge had blocked the administration’s plan to remove the temporary protected status of more than 300,000 immigrants.`\
+https://nytimes.com/2025/05/19/us/politics/supreme-court-protected-status-venezuelans.html
+
 **Democrats Pause Their Anger at Biden Over 2024, but Have New Questions**\
 `The former president’s cancer diagnosis prompted an outpouring of well wishes and sympathy, as well as some whispered uncertainties that reflected a lack of trust in what he says about his health.`\
 https://nytimes.com/2025/05/19/us/politics/biden-cancer-democrats-2024-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6367782/2025/05/19/wnba-mailbag-submit-your-questio
 **2025 Stanley Cup winner odds: Oilers enter conference finals as slight favorites**\
 `The Edmonton Oilers are the slightest of favorites to win the Stanley Cup before the conference finals start, but the odds are very tight. `\
 https://nytimes.com/athletic/6367716/2025/05/19/stanley-cup-winner-odds-oilers-panthers-stars-hurricanes/
-
-**Chelsea's Castledine expecting to leave club permanently this summer**\
-`The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
-https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
-
-**Newcastle set to appoint Palace's Williams as new director of women's football**\
-`Newcastle are targeting promotion to the Women's Super League (WSL).`\
-https://nytimes.com/athletic/6367273/2025/05/19/newcastle-women-grace-williams/
 
