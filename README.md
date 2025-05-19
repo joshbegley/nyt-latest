@@ -1,3 +1,7 @@
+**Which Premier League players are out of contract this summer?**\
+`A look at whose contracts are expiring at every team in the top flight`\
+https://nytimes.com/athletic/6352515/2025/05/19/which-premier-league-players-are-out-of-contract-this-summer/
+
 **South Africa’s President to Challenge Trump on Afrikaner Refugees**\
 `In a visit to the White House, President Cyril Ramaphosa will also highlight business opportunities for Elon Musk.`\
 https://nytimes.com/2025/05/19/world/africa/south-africa-white-genocide-trump-ramaphosa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366545/2025/05/18/thunder-nuggets-game-7-nba-confe
 **Lionel Messi says Inter Miami's second straight loss 'hurts' amid woeful stretch**\
 `The loss brought Miami’s record to just 3-3-6 over its past 12 matches in all competitions.`\
 https://nytimes.com/athletic/6366508/2025/05/18/lionel-messi-inter-miami-loss-comments/
-
-**Padres' offense fueled them last season. Now, they're searching for it**\
-`In 2025, the club's efforts to again fill out an offense on a budget have yet to produce such promising returns.`\
-https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-missing/
 
