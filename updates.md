@@ -1,3 +1,7 @@
+**The issues Barcelona need to solve next season after winning La Liga**\
+`Barcelona are hopeful of a settled summer - but there remain positions that need strengthening and player futures to solve `\
+https://nytimes.com/athletic/6366868/2025/05/19/barcelona-transfers-laporta-flick-la-liga/
+
 **Tornado Rips Through Colorado**\
 `Tornadoes reported in Bennett, Colo., damaged buildings as forecasters said a severe storm system would roll through parts of the Midwest.`\
 https://nytimes.com/video/world/americas/100000010177412/weather-sunday-tornado-forecast-kansas-oklahoma-storms.html
