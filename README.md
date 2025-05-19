@@ -1,3 +1,7 @@
+**What to Know About Israel’s Expanding Ground Offensive in Gaza**\
+`The announcement of a renewed ground operation came after a particularly deadly week for Palestinians in Gaza.`\
+https://nytimes.com/2025/05/19/world/middleeast/israel-gaza-ground-offensive.html
+
 **Red Light: Where do the Leafs go next? Scheifele’s remarkable moment**\
 `We may have seen Mitch Marner's final game as a Toronto Maple Leaf.`\
 https://nytimes.com/athletic/6367592/2025/05/19/maple-leafs-red-light-newsletter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364701/2025/05/19/alexis-ohanian-chelsea-investmen
 **Ange Postecoglou 'always wins things' in his second seasons - this is how he does it**\
 `It is the statement that may come to define Postecoglou's time at Tottenham, but how has he previously found glory in season two of jobs?`\
 https://nytimes.com/athletic/6361894/2025/05/19/posecoglou-second-season-trophy/
-
-**The Best of ‘S.N.L.’ Season 50: Trump, Biden and Domingo**\
-`The just-completed 50th season of “Saturday Night Live” was dominated by anniversary hype, but the new episodes managed to create some memorable moments, too.`\
-https://nytimes.com/2025/05/19/arts/television/snl-season-50-best-moments.html
 

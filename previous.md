@@ -1,3 +1,23 @@
+**Red Light: Where do the Leafs go next? Scheifele’s remarkable moment**\
+`We may have seen Mitch Marner's final game as a Toronto Maple Leaf.`\
+https://nytimes.com/athletic/6367592/2025/05/19/maple-leafs-red-light-newsletter/
+
+**Cubs calling Matt Shaw back up to Chicago after Triple-A corrections: Source**\
+`The Cubs sent Shaw back to Triple-A Iowa on April 15 until he could regain his confidence and make some mechanical changes.`\
+https://nytimes.com/athletic/6367633/2025/05/19/chicago-cubs-matt-shaw-call-up/
+
+**Bove, Top Justice Dept. Official, Is Considered for Circuit Court Nomination**\
+`Emil Bove III has emerged as a top contender to fill a vacancy on the appeals court covering Pennsylvania, New Jersey and Delaware, people familiar with the matter said.`\
+https://nytimes.com/2025/05/19/us/politics/emil-bove-circuit-court-federal-appeals.html
+
+**Alex Freeman, son of an NFL great, runs his own route in MLS – and onto USMNT's radar**\
+`The son of Green Bay Packers great Antonio Freeman is making a name for himself in MLS, and a USMNT call-up may be up next.`\
+https://nytimes.com/athletic/6366691/2025/05/19/alex-freeman-orlando-city-mls-usmnt-antonio/
+
+**The Athletic college baseball top 25: Texas back in top spot as postseason begins**\
+`Vanderbilt, winner of five straight SEC games, is in the top five for the first time this season. `\
+https://nytimes.com/athletic/6366027/2025/05/19/college-baseball-ranking-texas-lsu-arkansas-vanderbilt/
+
 **NBA Draft Combine confidential: What we learned in Chicago**\
 `Who shined in scrimmages? Whose measurements were a surprise, for one reason or another? And who may be headed back to school?`\
 https://nytimes.com/athletic/6366493/2025/05/19/mavericks-2025-nba-draft-combine-confidential/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6361894/2025/05/19/posecoglou-second-season-trophy/
 **The Best of ‘S.N.L.’ Season 50: Trump, Biden and Domingo**\
 `The just-completed 50th season of “Saturday Night Live” was dominated by anniversary hype, but the new episodes managed to create some memorable moments, too.`\
 https://nytimes.com/2025/05/19/arts/television/snl-season-50-best-moments.html
-
-**This Was Odd: These Monkeys Kidnapped Babies From Another Species.**\
-`Male capuchin monkeys on a Panamanian island were documented carrying around infant howler monkeys for no clearly discernible reason.`\
-https://nytimes.com/2025/05/19/science/capuchin-monkeys-kidnapping-abduction.html
-
-**Do You Know These Novels and Their Screen Adaptations?**\
-`So many books have inspired British costume dramas and this quiz gives you a chance to show how many you recognize.`\
-https://nytimes.com/interactive/2025/05/19/books/review/england-novels-quiz.html
-
-**It’s Time to Put Away Your Winter Clothes. Here’s How to Store Them Safely.**\
-`Fashion archivists, designers and home organizers share their best advice for keeping moths, stains and other wardrobe nuisances at bay.`\
-https://nytimes.com/2025/05/19/t-magazine/winter-clothes-storage.html
-
-**‘Such a Great, Easy, Feel-Good Weeknight Dinner’**\
-`My spicy skillet ground turkey and snap peas is a hit with readers (and my own family).`\
-https://nytimes.com/2025/05/19/dining/ground-turkey-peas-recipe.html
-
-**Valencia criticise 'injustice and falsehoods' in Netflix's Vinicius Jr documentary**\
-`The documentary shows footage of the 2023 La Liga match against Valencia and transcribes a chant towards Vinicius Jr as 'mono' (monkey).`\
-https://nytimes.com/athletic/6367176/2025/05/19/vinicius-netflix-real-madrid-valencia/
 
