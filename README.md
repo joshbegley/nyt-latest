@@ -1,3 +1,11 @@
+**Debt Downgrade Bolsters The Right In Congressional Talks Over Megabill**\
+`Conservatives have been holding out against the major tax and spending cut package to implement President Trump’s agenda, arguing it will swell federal deficits. The Moody’s downgrade underscored their concerns.`\
+https://nytimes.com/2025/05/19/us/politics/debt-downgrade-congress.html
+
+**All That Trump Has Changed**\
+`Four months in, the president and his advisers have overwhelmed political opponents who are still grasping for a message and a means with which to fight back.`\
+https://nytimes.com/2025/05/19/us/politics/trump-politics-democrats-republicans.html
+
 **Thousands of Chicks Left in Postal Service Truck Overwhelm a Delaware Shelter**\
 `About 4,000 birds were found dead in the truck, and 10,000 others were stranded there for three days, state officials said. The hatchery that shipped the chicks said it did not know why the shipment had never made it to its destinations.`\
 https://nytimes.com/2025/05/19/us/chicks-usps-animal-shelter-delaware.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/us/melania-trump-take-it-down-act.html
 **Ari Aster on ‘Eddington’: It’s ‘About What the Country Felt Like to Me’**\
 `The Covid-era satire has been divisive at Cannes, but the director has not seen the reviews. He’s focused on his fears about where the world is headed.`\
 https://nytimes.com/2025/05/19/movies/ari-aster-eddington-cannes.html
-
-**Guehi, Wharton to miss Palace's final league games**\
-`Crystal Palace will be without midfielder Adam Wharton and captain Marc Guehi for the final two games of the season after they sustained head injuries in Saturday&#8217;s FA Cup final victory over Manchester City.`\
-https://nytimes.com/athletic/6368260/2025/05/19/marc-guehi-adam-wharton-palace/
-
-**What to Know About the Mexican Navy Ship That Crashed Into the Brooklyn Bridge**\
-`The ship ARM Cuauhtémoc — with 277 people on board, including 175 naval cadets — was on a good-will tour throughout the world.`\
-https://nytimes.com/2025/05/19/world/americas/mexican-navy-ship-cadets-brooklyn-bridge.html
 
