@@ -1,3 +1,7 @@
+**We Tested Seven TSA-Compliant Liquids Bags. The Best One Costs 18 Cents.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-best-tsa-compliant-liquids-bag
+
 **Budget-Friendly Pastas That Don’t Skimp on Flavor**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/cheap-pasta-recipes
