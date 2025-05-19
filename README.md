@@ -10,13 +10,13 @@ https://nytimes.com/athletic/6366166/2025/05/19/usmnt-richards-tillman-tracker/
 `For the Packers' proposal to pass, 24 teams would need to vote in favor of banning the play.`\
 https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packers-proposal/
 
-**Get Ready for a Kinder, Gentler Balenciaga**\
-`Pierpaolo Piccioli is the new creative director of the house, and he wants nothing less than to change the image of fashion.`\
-https://nytimes.com/2025/05/19/style/pierpaolo-piccioli-balenciaga-designer.html
-
 **Lincoln Center Plans a $335 Million Makeover of Its Western Edge**\
 `The center in Manhattan aims to attract new audiences, as it takes down a wall on Amsterdam Avenue and revamps Damrosch Park.`\
 https://nytimes.com/2025/05/19/arts/music/lincoln-center-west-edge-335-million.html
+
+**Get Ready for a Kinder, Gentler Balenciaga**\
+`Pierpaolo Piccioli is the new creative director of the house, and he wants nothing less than to change the image of fashion.`\
+https://nytimes.com/2025/05/19/style/pierpaolo-piccioli-balenciaga-designer.html
 
 **North Wilkesboro, after NASCAR All-Star Race success, has a good kind of problem**\
 `In its critical third year, North Wilkesboro has shown the enthusiasm is still there for NASCAR. Is a points race in its future?`\
