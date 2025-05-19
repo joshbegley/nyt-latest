@@ -1,3 +1,7 @@
+**The Sean Combs Trial**\
+`Plus, President Joe Biden’s cancer diagnosis.`\
+https://nytimes.com/2025/05/19/briefing/sean-combs-trial.html
+
 **Reds sweep Guardians as Will Benson steals the show against former team: C. Notes**\
 `Since being called up from Triple A, Benson is 11-for-26 with five homers over eight games, and homers in each of the last four games.`\
 https://nytimes.com/athletic/6366164/2025/05/19/c-notes-will-benson-reds-sweep/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366627/2025/05/19/maple-leafs-game-7-nhl-playoffs-
 **Ranking the 25 best college football teams of the 2000s**\
 `All week, The Athletic is looking back at the best of the first 25 years of the 21st century in college football. Who's the best team?`\
 https://nytimes.com/athletic/6361384/2025/05/19/best-college-football-teams-2000s-rankings/
-
-**Is Williams F1's ‘best of the rest’ in 2025? Alex Albon’s Imola drive says yes**\
-`Albon's fifth-place finish at Imola, battling Ferrari on merit, solidifies Williams' position as a dominant midfield team `\
-https://nytimes.com/athletic/6366722/2025/05/19/alex-albon-williams-f1-imola-2025/
 
