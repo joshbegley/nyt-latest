@@ -1,3 +1,27 @@
+**Which Premier League players are out of contract this summer?**\
+`A look at whose contracts are expiring at every team in the top flight`\
+https://nytimes.com/athletic/6352515/2025/05/19/which-premier-league-players-are-out-of-contract-this-summer/
+
+**South Africa’s President to Challenge Trump on Afrikaner Refugees**\
+`In a visit to the White House, President Cyril Ramaphosa will also highlight business opportunities for Elon Musk.`\
+https://nytimes.com/2025/05/19/world/africa/south-africa-white-genocide-trump-ramaphosa.html
+
+**Quote of the Day:A Haven for High School Girls’ Wrestling, Filled With Grit and Pride**\
+`Quote of the Day for Monday, May 19, 2025`\
+https://nytimes.com/2025/05/19/pageoneplus/quote-of-the-daya-haven-for-high-school-girls-wrestling-filled-with-grit-and-pride.html
+
+**U.K.-E.U. Summit: What to Know as Officials Gather to Talk Defense, Trade and More**\
+`Top officials from Britain and the European Union will gather in London on Monday. Here’s what to expect.`\
+https://nytimes.com/2025/05/19/world/europe/uk-eu-summit-starmer.html
+
+**Russia Beefs Up Forces Near Finland’s Border**\
+`Tents, shelters for fighter jets and warehouses for military vehicles show increased Russian presence near one of NATO’s newest members.`\
+https://nytimes.com/2025/05/19/world/europe/russia-beefs-up-forces-near-finlands-border.html
+
+**Connections: Sports Edition Coach: Hints for May 19, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6366523/2025/05/19/connections-sports-edition-hints-for-may-19-2025/
+
 **A surprising Nuggets run ended with a fatal flaw exposed. Fixing it might be tricky**\
 `A new NBA revealed itself in the playoffs. You need great players, but also depth. The Nuggets must now find it with limited options.`\
 https://nytimes.com/athletic/6366475/2025/05/18/a-surprising-nuggets-run-ended-with-a-fatal-flaw-exposed-fixing-it-might-be-tricky/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6366545/2025/05/18/thunder-nuggets-game-7-nba-confe
 **Lionel Messi says Inter Miami's second straight loss 'hurts' amid woeful stretch**\
 `The loss brought Miami’s record to just 3-3-6 over its past 12 matches in all competitions.`\
 https://nytimes.com/athletic/6366508/2025/05/18/lionel-messi-inter-miami-loss-comments/
-
-**Padres' offense fueled them last season. Now, they're searching for it**\
-`In 2025, the club's efforts to again fill out an offense on a budget have yet to produce such promising returns.`\
-https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-missing/
-
-**What a Prostate Cancer Diagnosis Like Biden’s Means for Patients**\
-`While prognoses for prostate cancer patients were once measured in months, experts say that advances in treatment and diagnosis now improve survival by years.`\
-https://nytimes.com/2025/05/18/health/joe-biden-diagnosis-prostate-cancer.html
-
-**The 'Jokić Stopper': How Alex Caruso and the Thunder defense snatched Game 7**\
-`After a Game 7 defensive show, Caruso will more than likely see his fair share against Anthony Edwards and Julius Randle.`\
-https://nytimes.com/athletic/6366008/2025/05/18/alex-caruso-thunder-defense-game-7-nuggets/
-
-**2 Dead and 1 Missing After Train Strikes Pedestrians in Ohio**\
-`The episode happened in Fremont, Ohio, on Sunday night. The mayor said at least one person was missing and emergency crews were searching the Sandusky River.`\
-https://nytimes.com/2025/05/18/us/fremont-ohio-train-pedestrians-killed.html
-
-**Panthers eliminate Maple Leafs in Game 7 with dominant second period: Takeaways**\
-`The Leafs lost their sixth straight Game 7 as the Panthers advanced to the Eastern Conference Final.`\
-https://nytimes.com/athletic/6366452/2025/05/18/maple-leafs-panthers-nhl-playoffs-2025-game-7-takeaways/
-
-**How a Mexican Navy Ship Crashed Into the Brooklyn Bridge**\
-`A maritime expert told The Times that the Cuauhtémoc’s propellers may have been running in reverse, pushing it faster toward the Brooklyn Bridge, as a tugboat tried escorting the ship out of a pier.`\
-https://nytimes.com/video/nyregion/100000010177100/brooklyn-bridge-crash-mexico-ship.html
 
