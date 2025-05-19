@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6365474/2025/05/19/liverpool-defeat-brighton-elliot
 
 **Justice Dept. Says It’ll Investigate Chicago After Mayor’s Remarks About Black Hires**\
 `It is the Trump administration’s latest effort to remake the department’s civil rights division, which has historically worked to fight discrimination against minorities.`\
-https://nytimes.com/2025/05/19/us/justice-dept-says-itll-investigate-chicago-after-mayors-remarks-about-black-hires.html
+https://nytimes.com/2025/05/19/us/chicago-mayor-brandon-johnson-doj.html
 
 **Tuesday Briefing: A Trump-Putin Phone Call**\
 `Plus, the return of a spy’s archives.`\

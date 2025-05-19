@@ -1,3 +1,7 @@
+**Justice Dept. Says It’ll Investigate Chicago After Mayor’s Remarks About Black Hires**\
+`It is the Trump administration’s latest effort to remake the department’s civil rights division, which has historically worked to fight discrimination against minorities.`\
+https://nytimes.com/2025/05/19/us/chicago-mayor-brandon-johnson-doj.html
+
 **The Briefing: Brighton 3 Liverpool 2 - Why Slot will have loved Elliott's opener, and Salah shows he's human...**\
 `Liverpool slipped to a surprise defeat away to Brighton after leading at half-time. Our Liverpool writer analyses the key talking points`\
 https://nytimes.com/athletic/6365474/2025/05/19/liverpool-defeat-brighton-elliott-salah-miss/

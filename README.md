@@ -1,3 +1,15 @@
+**An 'incredible platform' or a risk? Will NWSL's Unwell FC partnership grow the game?**\
+`The fan hype group Unwell FC, a partnership between the NWSL and Alex Cooper's Unwell company, launched at the weekend `\
+https://nytimes.com/athletic/6365375/2025/05/19/nwsl-unwell-fc-partnership-alex-cooper/
+
+**14 Million Books Later, Jim Butcher Thinks His Wizard Detective Needs a Hug**\
+`Now in its 25th year, The Dresden Files and its author have survived the darkness, fictional and otherwise.`\
+https://nytimes.com/2025/05/19/books/jim-butcher-the-dresden-files.html
+
+**Trump Administration Discussing Paying $5 Million to Family of Jan. 6 Rioter**\
+`The payment, if approved, would represent an extraordinary concession by the Justice Department, which prosecuted nearly 1,600 people in connection with the riot.`\
+https://nytimes.com/2025/05/19/us/politics/ashli-babbitt-jan-6-settlement-trump.html
+
 **The Briefing: Brighton 3 Liverpool 2 - Why Slot will have loved Elliott's opener, and Salah shows he's human...**\
 `Liverpool slipped to a surprise defeat away to Brighton after leading at half-time. Our Liverpool writer analyses the key talking points`\
 https://nytimes.com/athletic/6365474/2025/05/19/liverpool-defeat-brighton-elliott-salah-miss/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6368056/2025/05/19/the-bat-x-explained-fantasy-base
 **Join ‘The Interview’ at the Tribeca Festival**\
 `Actress Sandra Oh will join Lulu Garcia-Navarro for a special live recording of The Interview podcast on June 12 in New York City.`\
 https://nytimes.com/2025/05/19/podcasts/join-the-interview-at-the-tribeca-festival.html
-
-**Trump Berates Companies for Warning About Tariff Price Increases**\
-`The president recently attacked Walmart, saying it should “eat” the costs rather than pass them on to customers.`\
-https://nytimes.com/2025/05/19/us/politics/trump-tariffs-walmart-mattel-prices.html
-
-**Armed with new contract, Ravens RB Derrick Henry won't stop pushing forward**\
-`The 31-year-old back is currently 19th on the NFL's all-time list with 11,423 rushing yards. `\
-https://nytimes.com/athletic/6368316/2025/05/19/ravens-derrick-henry-contract-extension/
-
-**Therapist Terry Real Wants Men to Be Vulnerable**\
-`“I don’t want women to stand down from their demands; I want men to stand up to meet them,” the couples therapist explained on the Modern Love podcast.`\
-https://nytimes.com/video/podcasts/100000010175113/modern-love-terry-real-couples-therapist.html
 
