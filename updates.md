@@ -1,3 +1,11 @@
+**College baseball week in review: SEC teams jockeying for top seeds in NCAA tourney**\
+`Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
+https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/
+
+**Pep Guardiola's strange tactics hindered Manchester City's cause in the FA Cup final**\
+`Guardiola's overly attacking starting line-up allowed Crystal Palace to exploit City's left flank and caps a disappointing season `\
+https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-guardiola/
+
 **Napoli and Inter to play simultaneously on Friday to decide Serie A title**\
 `League leaders Napoli host 14th-place Cagliari, while Inter, who are a point further back, are go to Como.`\
 https://nytimes.com/athletic/6367171/2025/05/19/napoli-inter-title-serie-a-italy/
