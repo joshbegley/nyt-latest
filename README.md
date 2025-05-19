@@ -1,3 +1,7 @@
+**Angels revel in takedown of rival Dodgers: 'We just swept the best in baseball'**\
+`The Angels saw how they could stack up against the World Series champs. It was lopsided, but not in the way anyone would have expected.`\
+https://nytimes.com/athletic/6366375/2025/05/18/angels-sweep-dodgers/
+
 **Jon Rahm and the comeback-turned-collapse he won't soon forget**\
 `"If there's ever somebody that tells you nerves weren't a part of it, they're clearly lying."`\
 https://nytimes.com/athletic/6366416/2025/05/18/jon-rahm-pga-championship-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/obituaries/greg-cannom-dead.html
 **Children of Dave**\
 `A man tests the theory that a lot of the misery in his life can be traced to a single moment that happened years before he was born.`\
 https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
-
-**Greenberg: Behind another exciting Pete Crow-Armstrong game, Cubs sweep the White Sox**\
-`Cubs star went 8-for-14 with a homer, a double and two triples, 8 RBIs and four runs scored in front of crowds eclipsing 40,000 all weekend.`\
-https://nytimes.com/athletic/6366189/2025/05/18/cubs-white-sox-pete-crow-armstrong-crosstown-classic-series/
 
