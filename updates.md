@@ -1,3 +1,11 @@
+**The Athletic FC: End of a 164-year wait, Inter Miami lose again, Ajax's title choke**\
+`Today in TAFC: Palace break their 164-year major trophy drought, Messi 'hurt' after losing again with Inter Miami.`\
+https://nytimes.com/athletic/6366994/2025/05/19/palace-fa-cup-inter-miami-ajax-title/
+
+**Pope Leo Meets With JD Vance as U.S. Conservatives Hope for Better Relations**\
+`The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
+https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
+
 **In Eastern Europe, Centrists Hold Off 2 Nationalist Challenges**\
 `Presidential elections on Sunday in Romania and Poland halted, or at least slowed, a hard-right breakthrough that many liberals had feared. But discontent with mainstream parties lingers.`\
 https://nytimes.com/2025/05/19/world/europe/in-eastern-europe-centrists-hold-off-2-nationalist-challenges.html

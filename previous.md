@@ -1,8 +1,12 @@
+**The Athletic FC: End of a 164-year wait, Inter Miami lose again, Ajax's title choke**\
+`Today in TAFC: Palace break their 164-year major trophy drought, Messi 'hurt' after losing again with Inter Miami.`\
+https://nytimes.com/athletic/6366994/2025/05/19/palace-fa-cup-inter-miami-ajax-title/
+
 **In Eastern Europe, Centrists Hold Off 2 Nationalist Challenges**\
 `Presidential elections on Sunday in Romania and Poland halted, or at least slowed, a hard-right breakthrough that many liberals had feared. But discontent with mainstream parties lingers.`\
 https://nytimes.com/2025/05/19/world/europe/in-eastern-europe-centrists-hold-off-2-nationalist-challenges.html
 
-**Pope Leo meets with JD Vance As U.S. Conservatives Hope for Better Relations**\
+**Pope Leo Meets With JD Vance as U.S. Conservatives Hope for Better Relations**\
 `The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
 https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366664/2025/05/19/wnba-power-rankings-kelsey-plum-
 **Atlanta west? In Anaheim, ex-Braves fill the roster and staff as Angels seek winning culture**\
 `“That’s what I think is happening. Trying to build a culture here that creates winning," said ex-Brave and current Angel Travis d'Arnaud.`\
 https://nytimes.com/athletic/6362543/2025/05/19/atlanta-braves-los-angeles-angels-trades/
-
-**What we learned about the four teams eliminated in Round 2**\
-`The nature of playoff legacies, the long grind of the postseason and foreseeable issues all came to the fore.`\
-https://nytimes.com/athletic/6366351/2025/05/19/nhl-playoffs-2025-round-2-eliminations/
 
