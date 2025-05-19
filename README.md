@@ -1,3 +1,7 @@
+**Chelsea's Castledine expecting to leave club permanently this summer**\
+`The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
+https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
+
 **Newcastle set to appoint Palace's Williams as new director of women's football**\
 `Newcastle are targeting promotion to the Women's Super League (WSL).`\
 https://nytimes.com/athletic/6367273/2025/05/19/newcastle-women-grace-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367358/2025/05/19/the-bat-x-fantasy-baseball-cheat
 **He Documented the History of New York’s Lower East Side. Where Will His Archives Go?**\
 `Clayton Patterson, the street photographer, has thousands of images, video and paraphernalia from the neighborhood’s conflicts and characters. Now he doesn’t know what to do with them.`\
 https://nytimes.com/2025/05/19/style/clayon-patterson-nyc-photography-history.html
-
-**Central U.S. Faces Another Round of Severe Weather**\
-`Much of Oklahoma is at high risk for tornadoes on Monday, but forecasters warned the region could see additional hazards including very large hail, severe winds and flash flooding.`\
-https://nytimes.com/2025/05/19/weather/kansas-oklahoma-tornado-forecast-monday.html
 
