@@ -1,3 +1,11 @@
+**Angels revel in takedown of rival Dodgers: 'We just swept the best in baseball'**\
+`The Angels saw how they could stack up against the World Series champs. It was lopsided, but not in the way anyone would have expected.`\
+https://nytimes.com/athletic/6366375/2025/05/18/angels-sweep-dodgers/
+
+**Jon Rahm and the comeback-turned-collapse he won't soon forget**\
+`"If there's ever somebody that tells you nerves weren't a part of it, they're clearly lying."`\
+https://nytimes.com/athletic/6366416/2025/05/18/jon-rahm-pga-championship-loss/
+
 **Royals top prospect Jac Caglianone promoted to Triple-A Omaha**\
 `Caglianone hit .322 with nine homers in 38 games for Double-A Northwest Arkansas before the promotion to Triple A.`\
 https://nytimes.com/athletic/6366342/2025/05/18/jac-caglianone-royals-triple-a-promotion/
