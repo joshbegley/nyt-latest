@@ -1,3 +1,27 @@
+**Newcastle set to appoint Palace's Williams as new director of women's football**\
+`Newcastle are targeting promotion to the Women's Super League (WSL).`\
+https://nytimes.com/athletic/6367273/2025/05/19/newcastle-women-grace-williams/
+
+**USMNT Player Tracker: Richards, Turner and Tillman savour success, but woe for Pulisic**\
+`Our weekend roundup also takes in Juventus' progress into the Champions League, and the toils of Gianluca Busio and Venezia in Serie A`\
+https://nytimes.com/athletic/6366166/2025/05/19/usmnt-richards-tillman-tracker/
+
+**Eagles calling teams to lobby for 'tush push' to not be banned: Sources**\
+`For the Packers' proposal to pass, 24 teams would need to vote in favor of banning the play.`\
+https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packers-proposal/
+
+**Get Ready for a Kinder, Gentler Balenciaga**\
+`Pierpaolo Piccioli is the new creative director of the house, and he wants nothing less than to change the image of fashion.`\
+https://nytimes.com/2025/05/19/style/pierpaolo-piccioli-balenciaga-designer.html
+
+**Lincoln Center Plans a $335 Million Makeover of Its Western Edge**\
+`The center in Manhattan aims to attract new audiences, as it takes down a wall on Amsterdam Avenue and revamps Damrosch Park.`\
+https://nytimes.com/2025/05/19/arts/music/lincoln-center-west-edge-335-million.html
+
+**North Wilkesboro, after NASCAR All-Star Race success, has a good kind of problem**\
+`In its critical third year, North Wilkesboro has shown the enthusiasm is still there for NASCAR. Is a points race in its future?`\
+https://nytimes.com/athletic/6367731/2025/05/19/north-wilkesboro-nascar-all-star-race-future-points-race/
+
 **These Are the Dueling Republican Factions Imperiling the Party’s Megabill**\
 `For every group demanding one policy, another equally powerful bloc insists on the opposite. The coalitions encompass the divergent ideological, political and regional interests in the G.O.P.`\
 https://nytimes.com/2025/05/19/us/politics/republican-tax-bill-factions.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/19/style/clayon-patterson-nyc-photography-history.ht
 **Central U.S. Faces Another Round of Severe Weather**\
 `Much of Oklahoma is at high risk for tornadoes on Monday, but forecasters warned the region could see additional hazards including very large hail, severe winds and flash flooding.`\
 https://nytimes.com/2025/05/19/weather/kansas-oklahoma-tornado-forecast-monday.html
-
-**Michele Kang rebrands Lyon Feminin as OL Lyonnes**\
-`Kang also announced the club will build a bespoke performance center designed specifically for female athletes.`\
-https://nytimes.com/athletic/6367616/2025/05/19/lyon-feminin-ol-lyonnes/
-
-**What to Know About Israel’s Expanding Ground Offensive in Gaza**\
-`The announcement of a renewed ground operation came after a particularly deadly week for Palestinians in Gaza.`\
-https://nytimes.com/2025/05/19/world/middleeast/israel-gaza-ground-offensive.html
-
-**Red Light: Where do the Leafs go next? Plus: Scheifele’s remarkable moment**\
-`We may have seen Mitch Marner's final game as a Toronto Maple Leaf.`\
-https://nytimes.com/athletic/6367592/2025/05/19/maple-leafs-red-light-newsletter/
-
-**Cubs calling Matt Shaw back up to Chicago after Triple-A corrections: Source**\
-`The Cubs sent Shaw back to Triple-A Iowa on April 15 until he could regain his confidence and make some mechanical changes.`\
-https://nytimes.com/athletic/6367633/2025/05/19/chicago-cubs-matt-shaw-call-up/
-
-**Bove, Top Justice Dept. Official, Is Considered for Circuit Court Nomination**\
-`Emil Bove III has emerged as a top contender to fill a vacancy on the appeals court covering Pennsylvania, New Jersey and Delaware, people familiar with the matter said.`\
-https://nytimes.com/2025/05/19/us/politics/emil-bove-circuit-court-federal-appeals.html
-
-**Alex Freeman, son of an NFL great, runs his own route in MLS – and onto USMNT's radar**\
-`The son of Green Bay Packers great Antonio Freeman is making a name for himself in MLS, and a USMNT call-up may be up next.`\
-https://nytimes.com/athletic/6366691/2025/05/19/alex-freeman-orlando-city-mls-usmnt-antonio/
 
