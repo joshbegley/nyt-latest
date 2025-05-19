@@ -1,4 +1,8 @@
-**Hudson Yards Drops Casino Bid in Face of Political Opposition**\
+**Mac Allister ruled out of Liverpool's final Premier League game**\
+`"He needs rest to recover completely and to be ready for the start next season, that will be no problem," head coach Arne Slot said.`\
+https://nytimes.com/athletic/6368725/2025/05/19/alexis-mac-allister-injury-liverpool/
+
+**Hudson Yards Developer Drops Casino Bid in Face of Political Opposition**\
 `Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
 https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/us/politics/ashli-babbitt-jan-6-settlement-trump.
 **The Briefing: Brighton 3 Liverpool 2 - Why Slot will have loved Elliott's opener, and Salah shows he's human...**\
 `Liverpool slipped to a surprise defeat away to Brighton after leading at half-time. Our Liverpool writer analyses the key talking points`\
 https://nytimes.com/athletic/6365474/2025/05/19/liverpool-defeat-brighton-elliott-salah-miss/
-
-**Justice Dept. Says It’ll Investigate Chicago After Mayor’s Remarks About Black Hires**\
-`It is the Trump administration’s latest effort to remake the department’s civil rights division, which has historically worked to fight discrimination against minorities.`\
-https://nytimes.com/2025/05/19/us/chicago-mayor-brandon-johnson-doj.html
 
