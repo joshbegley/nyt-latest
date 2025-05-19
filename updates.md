@@ -1,3 +1,7 @@
+**Canada manager Marsch weighs in on Jonathan David's summer transfer**\
+`Jonathan David's next destination is a development of great intrigue for the player, his national team and many European clubs`\
+https://nytimes.com/athletic/6368137/2025/05/19/jonathan-david-jesse-marsch-canada-summer-transfer-gold-cup/
+
 **The Doctor behind the Hurricanes, GM Eric Tulsky's bold moves are paying off — with even bolder ones ahead**\
 `Is he the Doctor or the Gambler? Tulsky went for Mikko Rantanen. He went for Mitch Marner. And he’s got cap space in the coming years.`\
 https://nytimes.com/athletic/6368071/2025/05/19/eric-tulsky-hurricanes-gm-bold-moves/
