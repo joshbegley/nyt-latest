@@ -1,3 +1,15 @@
+**No. 1 Texas A&M forces Game 7 vs. Liberty with trip to super regionals on line**\
+`Game 7 is underway in Bryan-College Station, Texas. The winner advances to the super regional round.`\
+https://nytimes.com/athletic/6366334/2025/05/18/texas-am-liberty-regional-round-elimination-game/
+
+**In Deadly Ship Crash, Questions About What Went Wrong**\
+`A Mexican Navy ship never intended to sail under the Brooklyn Bridge. U.S. and Mexican officials are investigating what led to the accident that killed two crew members.`\
+https://nytimes.com/2025/05/18/nyregion/brooklyn-bridge-ship-crash-causes.html
+
+**Greg Cannom, Who Made Brad Pitt Old and Marlon Wayans White, Dies at 73**\
+`He won five Oscars as a makeup artist on movies in which characters transformed, like “Mrs. Doubtfire,” “White Chicks” and many more.`\
+https://nytimes.com/2025/05/18/obituaries/greg-cannom-dead.html
+
 **Children of Dave**\
 `A man tests the theory that a lot of the misery in his life can be traced to a single moment that happened years before he was born.`\
 https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6365816/2025/05/18/chicago-cubs-matt-shaw-recall-io
 **Scottie Scheffler wins PGA Championship, reminding everyone of his greatness**\
 `Scheffler, set to turn 29 next month, has entered the rarest space. The golfer who stands among world’s best athletes.`\
 https://nytimes.com/athletic/6366080/2025/05/18/pga-championship-scottie-scheffler-wins/
-
-**New Jersey Transit and Engineers’ Union Agree to Deal to End Strike**\
-`The agency said its trains would start running again on Tuesday morning.`\
-https://nytimes.com/2025/05/18/nyregion/new-jersey-transit-strike-agreement.html
-
-**Twins takeaways: Brewers end team's win streak at 13, but Royce Lewis is heating up**\
-`The winning streak may be over, but Lewis appears to be locked in at the plate, or very close to it. `\
-https://nytimes.com/athletic/6366045/2025/05/18/twins-win-streak-ends-royce-lewis/
-
-**Arteta set to serve touchline ban for Arsenal's PL finale vs. Southampton**\
-`Arsenal secured Champions League qualification on Sunday with a 1-0 victory over Newcastle.`\
-https://nytimes.com/athletic/6365494/2025/05/18/arsenal-mikel-arteta-touchline-ban/
 
