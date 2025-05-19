@@ -1,3 +1,15 @@
+**Explaining THE BAT X projections: Using advanced metrics for fantasy baseball and betting**\
+`Derek Carty explains THE BAT X projections, their accuracy and why the system is useful in fantasy baseball. `\
+https://nytimes.com/athletic/6368056/2025/05/19/the-bat-x-explained-fantasy-baseball-betting/
+
+**Join ‘The Interview’ at the Tribeca Festival**\
+`Actress Sandra Oh will join Lulu Garcia-Navarro for a special live recording of The Interview podcast on June 12 in New York City.`\
+https://nytimes.com/2025/05/19/podcasts/join-the-interview-at-the-tribeca-festival.html
+
+**Trump Berates Companies for Warning About Tariff Price Increases**\
+`The president recently attacked Walmart, saying it should “eat” the costs rather than pass them on to customers.`\
+https://nytimes.com/2025/05/19/us/politics/trump-tariffs-walmart-mattel-prices.html
+
 **Armed with new contract, Ravens RB Derrick Henry won't stop pushing forward**\
 `The 31-year-old back is currently 19th on the NFL's all-time list with 11,423 rushing yards. `\
 https://nytimes.com/athletic/6368316/2025/05/19/ravens-derrick-henry-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6368290/2025/05/19/leeds-transfers-cash-injection/
 **Maps: 3.8-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/05/19/us/california-quake-bakersfield.html
-
-**U.S. tennis to spend $800 million on transforming U.S. Open venue in New York City**\
-`The U.S. Open's facelift includes renovations to Arthur Ashe Stadium and a new player facility at the Billie Jean King Tennis Center.`\
-https://nytimes.com/athletic/6368092/2025/05/19/tennis-us-open-stadiums-venue-renovation/
-
-**Man Utd executives hold face-to-face talks with Delap**\
-`Amorim's side are also advancing on a move for Wolves' Matheus Cunha, with talks so far centring on personal terms.`\
-https://nytimes.com/athletic/6368115/2025/05/19/liam-delap-manchester-united/
-
-**Canada manager Marsch weighs in on Jonathan David's summer transfer**\
-`Jonathan David's next destination is a development of great intrigue for the player, his national team and many European clubs`\
-https://nytimes.com/athletic/6368137/2025/05/19/jonathan-david-jesse-marsch-canada-summer-transfer-gold-cup/
 

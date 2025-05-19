@@ -1,3 +1,15 @@
+**Explaining THE BAT X projections: Using advanced metrics for fantasy baseball and betting**\
+`Derek Carty explains THE BAT X projections, their accuracy and why the system is useful in fantasy baseball. `\
+https://nytimes.com/athletic/6368056/2025/05/19/the-bat-x-explained-fantasy-baseball-betting/
+
+**Join ‘The Interview’ at the Tribeca Festival**\
+`Actress Sandra Oh will join Lulu Garcia-Navarro for a special live recording of The Interview podcast on June 12 in New York City.`\
+https://nytimes.com/2025/05/19/podcasts/join-the-interview-at-the-tribeca-festival.html
+
+**Trump Berates Companies for Warning About Tariff Price Increases**\
+`The president recently attacked Walmart, saying it should “eat” the costs rather than pass them on to customers.`\
+https://nytimes.com/2025/05/19/us/politics/trump-tariffs-walmart-mattel-prices.html
+
 **Armed with new contract, Ravens RB Derrick Henry won't stop pushing forward**\
 `The 31-year-old back is currently 19th on the NFL's all-time list with 11,423 rushing yards. `\
 https://nytimes.com/athletic/6368316/2025/05/19/ravens-derrick-henry-contract-extension/
