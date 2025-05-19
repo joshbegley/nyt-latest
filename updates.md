@@ -1,3 +1,7 @@
+**Brad Marchand, the Panthers and the inevitable: Another Game 7 win over Leafs**\
+`Brad Marchand has played five Game 7s against Toronto. His record remains perfect as the Panthers step past the Maple Leafs one more time.`\
+https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-game-7-nhl-playoffs/
+
 **College baseball week in review: SEC teams jockeying for top seeds in NCAA tourney**\
 `Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
 https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/

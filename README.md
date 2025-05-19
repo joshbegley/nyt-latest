@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-
 `League leaders Napoli host 14th-place Cagliari, while Inter, who are a point further back, are go to Como.`\
 https://nytimes.com/athletic/6367171/2025/05/19/napoli-inter-title-serie-a-italy/
 
-**Brad Marchand, the Panthers and the inevitable: Another Game 7 win over Leafs**\
+**Brad Marchand, the Panthers and the inevitable: Another Game 7 win over the Leafs**\
 `Brad Marchand has played five Game 7s against Toronto. His record remains perfect as the Panthers step past the Maple Leafs one more time.`\
 https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-game-7-nhl-playoffs/
 
