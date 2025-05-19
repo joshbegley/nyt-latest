@@ -1,3 +1,7 @@
+**What to Know About Israel’s Expanding Ground Offensive in Gaza**\
+`The announcement of a renewed ground operation came after a particularly deadly week for Palestinians in Gaza.`\
+https://nytimes.com/2025/05/19/world/middleeast/israel-gaza-ground-offensive.html
+
 **Red Light: Where do the Leafs go next? Scheifele’s remarkable moment**\
 `We may have seen Mitch Marner's final game as a Toronto Maple Leaf.`\
 https://nytimes.com/athletic/6367592/2025/05/19/maple-leafs-red-light-newsletter/
