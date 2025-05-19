@@ -1,3 +1,7 @@
+**What to watch in sports this week: Conference finals, Concacaf and Monaco Grand Prix**\
+`Here's what to watch across sports this week, from the NBA and NHL conference finals to Sunday morning's Monaco Grand Prix.`\
+https://nytimes.com/athletic/6366521/2025/05/19/nba-wnba-nhl-concacaf-monaco-grand-prix-how-to-watch/
+
 **The Windup: Questions ahead about the robot umps**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6366764/2025/05/19/abs-robot-umps-accuracy-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365511/2025/05/19/giro-ditalia-week-one-review-cyc
 **My First Thought When I Heard Joe Biden’s News**\
 `What Joe Biden understands about America’s place in the world, even now.`\
 https://nytimes.com/2025/05/19/opinion/joe-biden-cancer-diagnosis.html
-
-**College baseball week in review: SEC teams jockeying for top seeds in NCAA tourney**\
-`Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
-https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/
 

@@ -1,3 +1,7 @@
+**What to watch in sports this week: Conference finals, Concacaf and Monaco Grand Prix**\
+`Here's what to watch across sports this week, from the NBA and NHL conference finals to Sunday morning's Monaco Grand Prix.`\
+https://nytimes.com/athletic/6366521/2025/05/19/nba-wnba-nhl-concacaf-monaco-grand-prix-how-to-watch/
+
 **The Windup: Questions ahead about the robot umps**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6366764/2025/05/19/abs-robot-umps-accuracy-the-windup/
