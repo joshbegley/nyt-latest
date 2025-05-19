@@ -1,3 +1,7 @@
+**Tornado Rips Through Colorado**\
+`Tornadoes reported in Bennett, Colo., damaged buildings as forecasters said a severe storm system would roll through parts of the Midwest.`\
+https://nytimes.com/video/world/americas/100000010177412/weather-sunday-tornado-forecast-kansas-oklahoma-storms.html
+
 **Gary Lineker expected to leave BBC after 26 years**\
 `Lineker, 64, “apologised unreservedly” last week after being heavily criticised for sharing a social media post that included a rat emoji.`\
 https://nytimes.com/athletic/6362097/2025/05/19/gary-lineker-bbc-motd-leaves/
