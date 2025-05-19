@@ -1,3 +1,11 @@
+**Gary Lineker expected to leave BBC after 26 years**\
+`Lineker, 64, “apologised unreservedly” last week after being heavily criticised for sharing a social media post that included a rat emoji.`\
+https://nytimes.com/athletic/6362097/2025/05/19/gary-lineker-bbc-motd-leaves/
+
+**Giants takeaways: Dominant pitching leads to a weekend sweep**\
+`With exceptional pitching, the Giants swept the Athletics over the weekend. The entire A's team drove in only three runs in the series.`\
+https://nytimes.com/athletic/6366459/2025/05/19/giants-takeaways-weekend-sweep/
+
 **Victor Munoz and Gonzalo Garcia: The academy players who shone in Seville for Real Madrid**\
 `Madrid fans were handed a glimpse of the future as two more homegrown 'canteranos' made their mark in the senior team`\
 https://nytimes.com/athletic/6366430/2025/05/19/gonzalo-garcia-victor-munoz-real-madrid-sevilla/
