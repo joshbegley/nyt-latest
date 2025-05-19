@@ -1,3 +1,11 @@
+**Russia Launches One of Its Largest Drone Attacks on Ukraine**\
+`The strike took place a day ahead of an anticipated conversation between President Donald Trump and President Vladimir Putin of Russia.`\
+https://nytimes.com/video/world/europe/100000010177337/russia-ukraine-drones.html
+
+**What we learned about the Yankees in Subway Series win over Mets**\
+`For Juan Soto, love doesn’t live at Yankee Stadium anymore. Jorbit Vivas had the biggest at-bat of Sunday’s win.`\
+https://nytimes.com/athletic/6366787/2025/05/19/yankees-subway-series-win-mets/
+
 **Maple Leafs trudge to yet another disappointing Game 7 loss: 'It's heartbreaking'**\
 `Scenes from the Leafs' sixth straight Game 7 loss, from Craig Berube losing his cool to jerseys hitting the ice.`\
 https://nytimes.com/athletic/6366734/2025/05/19/maple-leafs-game-7-nhl-playoffs-berube-marner/
