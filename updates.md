@@ -1,3 +1,15 @@
+**No. 1 Texas A&M forces Game 7 vs. Liberty with trip to super regionals on line**\
+`Game 7 is underway in Bryan-College Station, Texas. The winner advances to the super regional round.`\
+https://nytimes.com/athletic/6366334/2025/05/18/texas-am-liberty-regional-round-elimination-game/
+
+**In Deadly Ship Crash, Questions About What Went Wrong**\
+`A Mexican Navy ship never intended to sail under the Brooklyn Bridge. U.S. and Mexican officials are investigating what led to the accident that killed two crew members.`\
+https://nytimes.com/2025/05/18/nyregion/brooklyn-bridge-ship-crash-causes.html
+
+**Greg Cannom, Who Made Brad Pitt Old and Marlon Wayans White, Dies at 73**\
+`He won five Oscars as a makeup artist on movies in which characters transformed, like “Mrs. Doubtfire,” “White Chicks” and many more.`\
+https://nytimes.com/2025/05/18/obituaries/greg-cannom-dead.html
+
 **Children of Dave**\
 `A man tests the theory that a lot of the misery in his life can be traced to a single moment that happened years before he was born.`\
 https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
