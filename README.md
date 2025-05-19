@@ -1,3 +1,11 @@
+**Valencia criticise 'injustice and falsehoods' in Netflix's Vinicius Jr documentary**\
+`The documentary shows footage of the 2023 La Liga match against Valencia and transcribes a chant towards Vinicius Jr as 'mono' (monkey).`\
+https://nytimes.com/athletic/6367176/2025/05/19/vinicius-netflix-real-madrid-valencia/
+
+**NBA championship odds: It's all about the Thunder ahead of conference finals**\
+`The Oklahoma City Thunder are the clear favorite to win the NBA title before the conference finals get started.`\
+https://nytimes.com/athletic/6366665/2025/05/19/nba-championship-odds-thunder-pacers-knicks-timberwolves/
+
 **‘Sesame Street,’ Facing Crisis, Signs New Deal With Netflix**\
 `The deal is a much-needed shot in the arm for Sesame Workshop, the nonprofit that produces “Sesame Street” and has been struggling financially.`\
 https://nytimes.com/2025/05/19/business/media/sesame-street-netflix-pbs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/science/richard-garwin-hydrogen-bomb.html
 **Arsenal's Timber to undergo minor procedure on ankle**\
 `The 23-year-old Netherlands international has played the fifth-most minutes for the club this season.`\
 https://nytimes.com/athletic/6367235/2025/05/19/jurrien-timber-injury-ankle-arsenal/
-
-**No Corrections: May 19, 2025**\
-`No corrections appeared in print on Monday, May 19, 2025.`\
-https://nytimes.com/2025/05/19/pageoneplus/no-corrections-may-19-2025.html
-
-**Gary Lineker, the culture wars and why his BBC exit became a sad inevitability**\
-`A refusal to compromise on expressing his political opinions made the striker turned broadcaster's BBC position untenable after 26 years`\
-https://nytimes.com/athletic/6367193/2025/05/19/gary-lineker-leaving-bbc-motd/
 
