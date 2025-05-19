@@ -1,6 +1,14 @@
+**In Eastern Europe, Centrists Hold Off 2 Nationalist Challenges**\
+`Presidential elections on Sunday in Romania and Poland halted, or at least slowed, a hard-right breakthrough that many liberals had feared. But discontent with mainstream parties lingers.`\
+https://nytimes.com/2025/05/19/world/europe/in-eastern-europe-centrists-hold-off-2-nationalist-challenges.html
+
 **Pope Leo meets with JD Vance As U.S. Conservatives Hope for Better Relations**\
 `The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
 https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
+
+**Daulton Varsho's new swing, Anthony Santander's search and more: 4 Blue Jays takeaways**\
+`Varsho has adjusted his swing to be more accurate. Santander, plagued by myriad injuries, went hitless against the Tigers on Sunday.`\
+https://nytimes.com/athletic/6366360/2025/05/19/blue-jays-takeaways-daulton-varsho-anthony-santander/
 
 **Twins' banged-up lineup will need unsung hitters to step up in place of sidelined stars**\
 `Without Byron Buxton, Carlos Correa and Matt Wallner, the Twins are turning to a motley crew of journeymen and rookies for lineup help.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6362543/2025/05/19/atlanta-braves-los-angeles-angel
 **What we learned about the four teams eliminated in Round 2**\
 `The nature of playoff legacies, the long grind of the postseason and foreseeable issues all came to the fore.`\
 https://nytimes.com/athletic/6366351/2025/05/19/nhl-playoffs-2025-round-2-eliminations/
-
-**Five questions about the Raiders as they start OTAs**\
-`Can Wilkins be the player he was before his injury? Will Geno Smith be a difference-maker? What's the pecking order on the interior O-line?`\
-https://nytimes.com/athletic/6359818/2025/05/19/raiders-otas-christian-wilkins-geno-smith/
-
-**Inside Kyle Dubas' quiet, isolated search for the Penguins' next coach**\
-`Dubas is having a unique experience interviewing Penguins coaching candidates while leading Canada at the World Championship in Sweden. `\
-https://nytimes.com/athletic/6365467/2025/05/19/penguins-coaching-search-kyle-dubas/
 

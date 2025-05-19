@@ -1,3 +1,11 @@
+**In Eastern Europe, Centrists Hold Off 2 Nationalist Challenges**\
+`Presidential elections on Sunday in Romania and Poland halted, or at least slowed, a hard-right breakthrough that many liberals had feared. But discontent with mainstream parties lingers.`\
+https://nytimes.com/2025/05/19/world/europe/in-eastern-europe-centrists-hold-off-2-nationalist-challenges.html
+
+**Daulton Varsho's new swing, Anthony Santander's search and more: 4 Blue Jays takeaways**\
+`Varsho has adjusted his swing to be more accurate. Santander, plagued by myriad injuries, went hitless against the Tigers on Sunday.`\
+https://nytimes.com/athletic/6366360/2025/05/19/blue-jays-takeaways-daulton-varsho-anthony-santander/
+
 **Pope Leo meets with JD Vance As U.S. Conservatives Hope for Better Relations**\
 `The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
 https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
