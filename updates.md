@@ -1,3 +1,11 @@
+**NBA Draft Combine confidential: What we learned in Chicago**\
+`Who shined in scrimmages? Whose measurements were a surprise, for one reason or another? And who may be headed back to school?`\
+https://nytimes.com/athletic/6366493/2025/05/19/mavericks-2025-nba-draft-combine-confidential/
+
+**Ange Postecoglou 'always wins things' in his second seasons - this is how he does it**\
+`It is the statement that may come to define Postecoglou's time at Tottenham, but how has he previously found glory in season two of jobs?`\
+https://nytimes.com/athletic/6361894/2025/05/19/posecoglou-second-season-trophy/
+
 **Review: With Last-Minute Conductor Swap, Philharmonic Soldiers On**\
 `Brett Mitchell led the New York Philharmonic in the local premiere of a song cycle by Kevin Puts, featuring the soprano Renée Fleming.`\
 https://nytimes.com/2025/05/19/arts/music/review-new-york-philharmonic-kevin-puts-renee-fleming.html
