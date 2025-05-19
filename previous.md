@@ -1,3 +1,15 @@
+**These Are the Dueling Republican Factions Imperiling the Party’s Megabill**\
+`For every group demanding one policy, another equally powerful bloc insists on the opposite. The coalitions encompass the divergent ideological, political and regional interests in the G.O.P.`\
+https://nytimes.com/2025/05/19/us/politics/republican-tax-bill-factions.html
+
+**THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, stream Jordan Beck and more**\
+`Weekly advice on players to add, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6367358/2025/05/19/the-bat-x-fantasy-baseball-cheat-sheet-exequiel-tovar-jordan-beck/
+
+**He Documented the History of New York’s Lower East Side. Where Will His Archives Go?**\
+`Clayton Patterson, the street photographer, has thousands of images, video and paraphernalia from the neighborhood’s conflicts and characters. Now he doesn’t know what to do with them.`\
+https://nytimes.com/2025/05/19/style/clayon-patterson-nyc-photography-history.html
+
 **Central U.S. Faces Another Round of Severe Weather**\
 `Much of Oklahoma is at high risk for tornadoes on Monday, but forecasters warned the region could see additional hazards including very large hail, severe winds and flash flooding.`\
 https://nytimes.com/2025/05/19/weather/kansas-oklahoma-tornado-forecast-monday.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/19/us/politics/emil-bove-circuit-court-federal-appea
 **Alex Freeman, son of an NFL great, runs his own route in MLS – and onto USMNT's radar**\
 `The son of Green Bay Packers great Antonio Freeman is making a name for himself in MLS, and a USMNT call-up may be up next.`\
 https://nytimes.com/athletic/6366691/2025/05/19/alex-freeman-orlando-city-mls-usmnt-antonio/
-
-**The Athletic college baseball top 25: Texas back in top spot as postseason begins**\
-`Vanderbilt, winner of five straight SEC games, is in the top five for the first time this season. `\
-https://nytimes.com/athletic/6366027/2025/05/19/college-baseball-ranking-texas-lsu-arkansas-vanderbilt/
-
-**NBA Draft Combine confidential: What we learned in Chicago**\
-`Who shined in scrimmages? Whose measurements were a surprise, for one reason or another? And who may be headed back to school?`\
-https://nytimes.com/athletic/6366493/2025/05/19/mavericks-2025-nba-draft-combine-confidential/
-
-**Review: With Last-Minute Conductor Swap, Philharmonic Soldiers On**\
-`Brett Mitchell led the New York Philharmonic in the local premiere of a song cycle by Kevin Puts, featuring the soprano Renée Fleming.`\
-https://nytimes.com/2025/05/19/arts/music/review-new-york-philharmonic-kevin-puts-renee-fleming.html
 

@@ -1,3 +1,15 @@
+**These Are the Dueling Republican Factions Imperiling the Party’s Megabill**\
+`For every group demanding one policy, another equally powerful bloc insists on the opposite. The coalitions encompass the divergent ideological, political and regional interests in the G.O.P.`\
+https://nytimes.com/2025/05/19/us/politics/republican-tax-bill-factions.html
+
+**THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, stream Jordan Beck and more**\
+`Weekly advice on players to add, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6367358/2025/05/19/the-bat-x-fantasy-baseball-cheat-sheet-exequiel-tovar-jordan-beck/
+
+**He Documented the History of New York’s Lower East Side. Where Will His Archives Go?**\
+`Clayton Patterson, the street photographer, has thousands of images, video and paraphernalia from the neighborhood’s conflicts and characters. Now he doesn’t know what to do with them.`\
+https://nytimes.com/2025/05/19/style/clayon-patterson-nyc-photography-history.html
+
 **Central U.S. Faces Another Round of Severe Weather**\
 `Much of Oklahoma is at high risk for tornadoes on Monday, but forecasters warned the region could see additional hazards including very large hail, severe winds and flash flooding.`\
 https://nytimes.com/2025/05/19/weather/kansas-oklahoma-tornado-forecast-monday.html
