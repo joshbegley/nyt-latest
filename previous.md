@@ -1,3 +1,11 @@
+**No Corrections: May 19, 2025**\
+`No corrections appeared in print on Monday, May 19, 2025.`\
+https://nytimes.com/2025/05/19/pageoneplus/no-corrections-may-19-2025.html
+
+**Gary Lineker, the culture wars and why his BBC exit became a sad inevitability**\
+`A refusal to compromise on expressing political opinions made broadcaster's position untenable after 26 years`\
+https://nytimes.com/athletic/6367193/2025/05/19/gary-lineker-leaving-bbc-motd/
+
 **The Bounce: Nuggets' elimination highlights issues around Nikola Jokić. How can Denver improve?**\
 `The Nuggets did their best to push the Thunder in Game 7, but their loss highlights issues around Nikola Jokić`\
 https://nytimes.com/athletic/6367216/2025/05/19/nikola-jokic-nuggets-thunder-alex-caruso-nba-playoffs-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-gam
 **England announce two additions to Wiegman's coaching staff**\
 `Janneke Bijl and Arvid Smit both worked closely with Wiegman during her time as Netherlands head coach.`\
 https://nytimes.com/athletic/6367221/2025/05/19/england-women-coaching-staff-bijl-smit/
-
-**'He doesn't know what quit is': How wrestling helped mold 49ers' Mykel Williams**\
-`Selling Williams on wrestling was tough in football-mad Columbus, Ga. But the sport ended up paying dividends for the defensive end.`\
-https://nytimes.com/athletic/6362538/2025/05/19/mykel-williams-49ers-nfl-wrestling/
-
-**Revisiting Blues bold predictions: 10 from preseason, 10 from midseason**\
-`I made 10 preseason bold predictions and 10 more at midseason. How many of them came true? Well, I kept score. Here are the results.`\
-https://nytimes.com/athletic/6362411/2025/05/19/blues-nhl-predictions-2024-25-season/
 

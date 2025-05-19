@@ -1,3 +1,11 @@
+**No Corrections: May 19, 2025**\
+`No corrections appeared in print on Monday, May 19, 2025.`\
+https://nytimes.com/2025/05/19/pageoneplus/no-corrections-may-19-2025.html
+
+**Gary Lineker, the culture wars and why his BBC exit became a sad inevitability**\
+`A refusal to compromise on expressing political opinions made broadcaster's position untenable after 26 years`\
+https://nytimes.com/athletic/6367193/2025/05/19/gary-lineker-leaving-bbc-motd/
+
 **The Bounce: Nuggets' elimination highlights issues around Nikola Jokić. How can Denver improve?**\
 `The Nuggets did their best to push the Thunder in Game 7, but their loss highlights issues around Nikola Jokić`\
 https://nytimes.com/athletic/6367216/2025/05/19/nikola-jokic-nuggets-thunder-alex-caruso-nba-playoffs-the-bounce/
