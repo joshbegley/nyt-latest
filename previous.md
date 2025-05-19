@@ -1,5 +1,5 @@
-**Victor Munoz and Gonzalo Garcia: The academy players who shone in Sevilla for Real Madrid**\
-`Real Madrid fans were handed a glimpse of the future as two more 'canteranos' made their mark in the senior team against Sevilla`\
+**Victor Munoz and Gonzalo Garcia: The academy players who shone in Seville for Real Madrid**\
+`Madrid fans were handed a glimpse of the future as two more homegrown 'canteranos' made their mark in the senior team`\
 https://nytimes.com/athletic/6366430/2025/05/19/gonzalo-garcia-victor-munoz-real-madrid-sevilla/
 
 **Takeaways From the Weinstein Trial, and a Look Ahead at Week 6**\
