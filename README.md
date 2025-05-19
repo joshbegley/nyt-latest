@@ -1,3 +1,7 @@
+**What to Know About the Mexican Navy Ship That Crashed Into the Brooklyn Bridge**\
+`The ship ARM Cuauhtémoc — with 277 people on board, including 175 naval cadets — was on a good-will tour throughout the world.`\
+https://nytimes.com/2025/05/19/world/americas/mexican-navy-ship-cadets-brooklyn-bridge.html
+
 **An 'incredible platform' or a risk? Will NWSL's Unwell FC partnership grow the game?**\
 `The fan hype group Unwell FC, a partnership between the NWSL and Alex Cooper's Unwell company, launched at the weekend `\
 https://nytimes.com/athletic/6365375/2025/05/19/nwsl-unwell-fc-partnership-alex-cooper/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/05/19/us/chicago-mayor-brandon-johnson-doj.html
 `Plus, the return of a spy’s archives.`\
 https://nytimes.com/2025/05/19/briefing/trump-putin-ukraine-europe-elections-israel-gaza-aid.html
 
-**49ers, Fred Warner agree to contract extension: Source**\
+**49ers, LB Fred Warner agree to contract extension: Source**\
 `The new deal gives Warner the highest annual salary at his position.`\
 https://nytimes.com/athletic/6362731/2025/05/19/49ers-fred-warner-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/business/regeneron-pharmaceuticals-23andme-data.h
 **Explaining THE BAT X projections: Using advanced metrics for fantasy baseball and betting**\
 `Derek Carty explains THE BAT X projections, their accuracy and why the system is useful in fantasy baseball. `\
 https://nytimes.com/athletic/6368056/2025/05/19/the-bat-x-explained-fantasy-baseball-betting/
-
-**Join ‘The Interview’ at the Tribeca Festival**\
-`Actress Sandra Oh will join Lulu Garcia-Navarro for a special live recording of The Interview podcast on June 12 in New York City.`\
-https://nytimes.com/2025/05/19/podcasts/join-the-interview-at-the-tribeca-festival.html
 

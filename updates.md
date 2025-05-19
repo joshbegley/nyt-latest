@@ -1,3 +1,15 @@
+**An 'incredible platform' or a risk? Will NWSL's Unwell FC partnership grow the game?**\
+`The fan hype group Unwell FC, a partnership between the NWSL and Alex Cooper's Unwell company, launched at the weekend `\
+https://nytimes.com/athletic/6365375/2025/05/19/nwsl-unwell-fc-partnership-alex-cooper/
+
+**14 Million Books Later, Jim Butcher Thinks His Wizard Detective Needs a Hug**\
+`Now in its 25th year, The Dresden Files and its author have survived the darkness, fictional and otherwise.`\
+https://nytimes.com/2025/05/19/books/jim-butcher-the-dresden-files.html
+
+**Trump Administration Discussing Paying $5 Million to Family of Jan. 6 Rioter**\
+`The payment, if approved, would represent an extraordinary concession by the Justice Department, which prosecuted nearly 1,600 people in connection with the riot.`\
+https://nytimes.com/2025/05/19/us/politics/ashli-babbitt-jan-6-settlement-trump.html
+
 **Justice Dept. Says It’ll Investigate Chicago After Mayor’s Remarks About Black Hires**\
 `It is the Trump administration’s latest effort to remake the department’s civil rights division, which has historically worked to fight discrimination against minorities.`\
 https://nytimes.com/2025/05/19/us/chicago-mayor-brandon-johnson-doj.html
