@@ -1,3 +1,15 @@
+**Takeaways From the Weinstein Trial, and a Look Ahead at Week 6**\
+`Harvey Weinstein’s retrial on sex charges resumes Monday in Manhattan. Jessica Mann, who testified at his 2020 trial, is expected to take the stand this week.`\
+https://nytimes.com/2025/05/19/nyregion/harvey-weinstein-trial-what-to-know-week-six.html
+
+**Israel and Antisemitism Loom Large as Issues in the N.Y.C. Mayor’s Race**\
+`Andrew Cuomo has attacked opponents, including Jewish ones, as antisemitic, while other candidates believe the issue is being used as a weapon to win Jewish voters.`\
+https://nytimes.com/2025/05/19/nyregion/israel-gaza-antisemitism-mayor-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/19/crosswords/spelling-bee-forum.html
+
 **Giants takeaways: Dominant pitching leads to a weekend sweep**\
 `With exceptional pitching, he Giants swept the Athletics over the weekend. Also, the entire A's team drove in only three runs in the series.`\
 https://nytimes.com/athletic/6366459/2025/05/19/giants-takeaways-weekend-sweep/
