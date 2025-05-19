@@ -1,3 +1,11 @@
+**FPL: Fantasy Premier League: What we learnt from Gameweek 37 (so far) - Isak's injury and Arsenal worries**\
+`Abdul Rehman reviews the main talking points from Gameweek 37 so far in Fantasy Premier League`\
+https://nytimes.com/athletic/6365909/2025/05/19/fantasy-premier-league-gameweek-37-saliba-isak/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
+https://nytimes.com/athletic/6366984/2025/05/19/inside-newcastle-epl-final-day-champions-league/
+
 **Portugal’s Center Right Wins Election but Falls Short of Majority**\
 `The hard-right Chega party surged in the snap election, securing its status as a powerful political contender.`\
 https://nytimes.com/2025/05/19/world/europe/portugal-election-montenegro-chega.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6365426/2025/05/19/antonio-pintus-real-madrid-futur
 **The Hurricanes don't care if you think they're boring: 'We’re trying to win hockey games'**\
 `The Hurricanes are once again eight wins away from a Stanley Cup, despite many in the hockey world dubbing their playing style "boring."`\
 https://nytimes.com/athletic/6366023/2025/05/19/carolina-hurricanes-nhl-playoffs-boring/
-
-**Jarren Duran's start is mirroring his 2024 campaign — which might be good news for Boston**\
-`Duran doesn't have the eye-opening statline yet that he did in 2024, but his numbers through this point in the season are similar to 2024.`\
-https://nytimes.com/athletic/6365616/2025/05/19/jarren-duran-red-sox-season-start/
-
-**WNBA power rankings: Kelsey Plum shines for L.A. Sparks, Fever move up after strong start**\
-`The Liberty and Fever game Saturday could shake up the rankings if Indiana pulls out a statement victory.`\
-https://nytimes.com/athletic/6366664/2025/05/19/wnba-power-rankings-kelsey-plum-sparks/
 
