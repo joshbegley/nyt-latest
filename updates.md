@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/05/19/opinion/thepoint
+
 **The ‘Sell America’ Trade Makes a Comeback**\
 `Investors sold stocks and bonds after Moody’s downgraded the U.S. credit rating, potentially complicating negotiations around Republicans’ tax plan.`\
 https://nytimes.com/2025/05/19/business/dealbook/taxes-trump-moodys-deficit.html

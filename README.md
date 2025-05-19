@@ -1,40 +1,40 @@
+**Brad Marchand, the Panthers and the inevitable: Another Game 7 win over the Leafs**\
+`Brad Marchand has played five Game 7s against Toronto. His record remains perfect as the Panthers step past the Maple Leafs one more time.`\
+https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-game-7-nhl-playoffs/
+
+**England announce two additions to Wiegman's coaching staff**\
+`Janneke Bijl and Arvid Smit both worked closely with Wiegman during her time as Netherlands head coach.`\
+https://nytimes.com/athletic/6367221/2025/05/19/england-women-coaching-staff-bijl-smit/
+
+**'He doesn't know what quit is': How wrestling helped mold 49ers' Mykel Williams**\
+`Selling Williams on wrestling was tough in football-mad Columbus, Ga. But the sport ended up paying dividends for the defensive end.`\
+https://nytimes.com/athletic/6362538/2025/05/19/mykel-williams-49ers-nfl-wrestling/
+
+**Revisiting Blues bold predictions: 10 from preseason, 10 from midseason**\
+`I made 10 preseason bold predictions and 10 more at midseason. How many of them came true? Well, I kept score. Here are the results.`\
+https://nytimes.com/athletic/6362411/2025/05/19/blues-nhl-predictions-2024-25-season/
+
+**'A really tough out now': How the Oilers have changed the narrative during the playoffs**\
+`There were a lot of questions surrounding the Oilers a month ago. Now? Not so much.`\
+https://nytimes.com/athletic/6365797/2025/05/19/edmonton-oilers-nhl-playoffs-2025-narratives/
+
+**How Matthew Liberatore cracked the code and rewarded Cardinals' faith**\
+`Team officials committed to him as a starter and Liberatore vowed to be better prepared: "He created his runway. He changed his trajectory."`\
+https://nytimes.com/athletic/6350253/2025/05/19/how-matthew-liberatore-cracked-the-code-and-rewarded-cardinals-faith/
+
+**Trump Administration Live Updates: President to Call Putin and Push for Ukraine Cease-Fire**\
+``\
+https://nytimes.com/live/2025/05/19/us/trump-news
+
+**High, median and low NHL comparables for Red Wings' top prospects**\
+`Prospects have a wide range of outcomes. Let's break down three comparable NHL players for the Red Wings' top four prospects.`\
+https://nytimes.com/athletic/6365281/2025/05/19/detroit-red-wings-prospect-nhl-comparables/
+
+**Up Next at the Sean Combs Trial: Dawn Richard and Former Employees**\
+`After four days with Casandra Ventura, known as Cassie, on the stand, prosecutors will be seeking to corroborate her testimony with additional witnesses.`\
+https://nytimes.com/2025/05/19/arts/music/sean-combs-diddy-trial.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/05/19/opinion/thepoint
-
-**The ‘Sell America’ Trade Makes a Comeback**\
-`Investors sold stocks and bonds after Moody’s downgraded the U.S. credit rating, potentially complicating negotiations around Republicans’ tax plan.`\
-https://nytimes.com/2025/05/19/business/dealbook/taxes-trump-moodys-deficit.html
-
-**FPL: Fantasy Premier League: What we learnt from Gameweek 37 (so far) - Isak's injury and Arsenal worries**\
-`Abdul Rehman reviews the main talking points from Gameweek 37 so far in Fantasy Premier League`\
-https://nytimes.com/athletic/6365909/2025/05/19/fantasy-premier-league-gameweek-37-saliba-isak/
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`Post your questions and Chris Waugh will endeavour to answer as many as possible between 2pm and 3pm BST (9am and 10am ET)`\
-https://nytimes.com/athletic/6366984/2025/05/19/inside-newcastle-epl-final-day-champions-league/
-
-**Portugal’s Center Right Wins Election but Falls Short of Majority**\
-`The hard-right Chega party surged in the snap election, securing its status as a powerful political contender.`\
-https://nytimes.com/2025/05/19/world/europe/portugal-election-montenegro-chega.html
-
-**The Athletic FC: End of a 164-year wait, Inter Miami lose again, Ajax's title choke**\
-`Today in TAFC: Palace break their 164-year major trophy drought, Messi 'hurt' after losing again with Inter Miami.`\
-https://nytimes.com/athletic/6366994/2025/05/19/palace-fa-cup-inter-miami-ajax-title/
-
-**In Eastern Europe, Centrists Hold Off 2 Nationalist Challenges**\
-`Presidential elections on Sunday in Romania and Poland halted, or at least slowed, a hard-right breakthrough that many liberals had feared. But discontent with mainstream parties lingers.`\
-https://nytimes.com/2025/05/19/world/europe/in-eastern-europe-centrists-hold-off-2-nationalist-challenges.html
-
-**Pope Leo Meets With JD Vance as U.S. Conservatives Hope for Better Relations**\
-`The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
-https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
-
-**Daulton Varsho's new swing, Anthony Santander's search and more: 4 Blue Jays takeaways**\
-`Varsho has adjusted his swing to be more accurate. Santander, plagued by myriad injuries, went hitless against the Tigers on Sunday.`\
-https://nytimes.com/athletic/6366360/2025/05/19/blue-jays-takeaways-daulton-varsho-anthony-santander/
-
-**Twins' banged-up lineup will need unsung hitters to step up in place of sidelined stars**\
-`Without Byron Buxton, Carlos Correa and Matt Wallner, the Twins are turning to a motley crew of journeymen and rookies for lineup help.`\
-https://nytimes.com/athletic/6364467/2025/05/19/twins-lineup-without-byron-buxton-carlos-correa/
 

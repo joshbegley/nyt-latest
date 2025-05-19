@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/05/19/opinion/thepoint
+
 **The ‘Sell America’ Trade Makes a Comeback**\
 `Investors sold stocks and bonds after Moody’s downgraded the U.S. credit rating, potentially complicating negotiations around Republicans’ tax plan.`\
 https://nytimes.com/2025/05/19/business/dealbook/taxes-trump-moodys-deficit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366360/2025/05/19/blue-jays-takeaways-daulton-vars
 **Twins' banged-up lineup will need unsung hitters to step up in place of sidelined stars**\
 `Without Byron Buxton, Carlos Correa and Matt Wallner, the Twins are turning to a motley crew of journeymen and rookies for lineup help.`\
 https://nytimes.com/athletic/6364467/2025/05/19/twins-lineup-without-byron-buxton-carlos-correa/
-
-**Real Madrid want fitness coach Antonio Pintus to remain at club**\
-`The Spanish club want the 62-year-old Italian to continue in his role as physical trainer under prospective new head coach Xabi Alonso.`\
-https://nytimes.com/athletic/6365426/2025/05/19/antonio-pintus-real-madrid-future/
 
