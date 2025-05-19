@@ -1,3 +1,11 @@
+**Thunder stay 'in character,' join a delightfully surprising NBA Final Four**\
+`In this age of parity and second-apron hell that has all been by design, you couldn’t ask for a better flurry at the finish.`\
+https://nytimes.com/athletic/6366545/2025/05/18/thunder-nuggets-game-7-nba-conference-finals-preview/
+
+**Lionel Messi says Inter Miami's second straight loss 'hurts' amid woeful stretch**\
+`The loss brought Miami’s record to just 3-3-6 over its past 12 matches in all competitions.`\
+https://nytimes.com/athletic/6366508/2025/05/18/lionel-messi-inter-miami-loss-comments/
+
 **Padres' offense fueled them last season. Now, they're searching for it**\
 `In 2025, the club's efforts to again fill out an offense on a budget have yet to produce such promising returns.`\
 https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-missing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/18/arts/television/the-last-of-us-recap-season-2-epi
 **Angels revel in takedown of rival Dodgers: 'We just swept the best in baseball'**\
 `The Angels saw how they could stack up against the World Series champs. It was lopsided, but not in the way anyone would have expected.`\
 https://nytimes.com/athletic/6366375/2025/05/18/angels-sweep-dodgers/
-
-**Jon Rahm and the comeback-turned-collapse he won't soon forget**\
-`"If there's ever somebody that tells you nerves weren't a part of it, they're clearly lying."`\
-https://nytimes.com/athletic/6366416/2025/05/18/jon-rahm-pga-championship-loss/
-
-**Royals top prospect Jac Caglianone promoted to Triple-A Omaha**\
-`Caglianone hit .322 with nine homers in 38 games for Double-A Northwest Arkansas before the promotion to Triple A.`\
-https://nytimes.com/athletic/6366342/2025/05/18/jac-caglianone-royals-triple-a-promotion/
 
