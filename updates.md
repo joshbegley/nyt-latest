@@ -1,3 +1,11 @@
+**Ari Aster on ‘Eddington’: It’s ‘About What the Country Felt Like to Me’**\
+`The Covid-era satire has been divisive at Cannes, but the director has not seen the reviews. He’s focused on his fears about where the world is headed.`\
+https://nytimes.com/2025/05/19/movies/ari-aster-eddington-cannes.html
+
+**Guehi, Wharton to miss Palace's final league games**\
+`Crystal Palace will be without midfielder Adam Wharton and captain Marc Guehi for the final two games of the season after they sustained head injuries in Saturday&#8217;s FA Cup final victory over Manchester City.`\
+https://nytimes.com/athletic/6368260/2025/05/19/marc-guehi-adam-wharton-palace/
+
 **What to Know About the Mexican Navy Ship That Crashed Into the Brooklyn Bridge**\
 `The ship ARM Cuauhtémoc — with 277 people on board, including 175 naval cadets — was on a good-will tour throughout the world.`\
 https://nytimes.com/2025/05/19/world/americas/mexican-navy-ship-cadets-brooklyn-bridge.html

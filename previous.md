@@ -1,3 +1,11 @@
+**Ari Aster on ‘Eddington’: It’s ‘About What the Country Felt Like to Me’**\
+`The Covid-era satire has been divisive at Cannes, but the director has not seen the reviews. He’s focused on his fears about where the world is headed.`\
+https://nytimes.com/2025/05/19/movies/ari-aster-eddington-cannes.html
+
+**Guehi, Wharton to miss Palace's final league games**\
+`Crystal Palace will be without midfielder Adam Wharton and captain Marc Guehi for the final two games of the season after they sustained head injuries in Saturday&#8217;s FA Cup final victory over Manchester City.`\
+https://nytimes.com/athletic/6368260/2025/05/19/marc-guehi-adam-wharton-palace/
+
 **What to Know About the Mexican Navy Ship That Crashed Into the Brooklyn Bridge**\
 `The ship ARM Cuauhtémoc — with 277 people on board, including 175 naval cadets — was on a good-will tour throughout the world.`\
 https://nytimes.com/2025/05/19/world/americas/mexican-navy-ship-cadets-brooklyn-bridge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/briefing/trump-putin-ukraine-europe-elections-isr
 **49ers, LB Fred Warner agree to contract extension: Source**\
 `The new deal gives Warner the highest annual salary at his position.`\
 https://nytimes.com/athletic/6362731/2025/05/19/49ers-fred-warner-contract-extension/
-
-**23andMe to Be Bought by Biotech Company for $256 Million**\
-`Regeneron Pharmaceuticals said it would acquire 23andMe, which filed for bankruptcy in March and would continue to offer consumer DNA testing services.`\
-https://nytimes.com/2025/05/19/business/regeneron-pharmaceuticals-23andme-data.html
-
-**Explaining THE BAT X projections: Using advanced metrics for fantasy baseball and betting**\
-`Derek Carty explains THE BAT X projections, their accuracy and why the system is useful in fantasy baseball. `\
-https://nytimes.com/athletic/6368056/2025/05/19/the-bat-x-explained-fantasy-baseball-betting/
 
