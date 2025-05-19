@@ -1,3 +1,7 @@
+**In the Future, China Will Be Dominant. The U.S. Will Be Irrelevant.**\
+`Trump’s fixation on tariffs while he undermines America’s competitive strengths is hastening the onset of the “Chinese Century.”`\
+https://nytimes.com/2025/05/19/opinion/china-us-trade-tariffs.html
+
 **Word of the Day: askance**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/19/learning/word-of-the-day-askance.html
