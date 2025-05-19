@@ -1,3 +1,11 @@
+**The Windup: Questions ahead about the robot umps**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6366764/2025/05/19/abs-robot-umps-accuracy-the-windup/
+
+**PWHL announces expansion draft rules, details on protecting players**\
+`Each of the PWHL's six current teams will lose four players from their 2024-25 roster during the expansion process.`\
+https://nytimes.com/athletic/6367423/2025/05/19/pwhl-expansion-draft-date-rules-seattle-vancouver-players/
+
 **A Scientist Fighting Nuclear Armageddon Hid a 50-Year Secret**\
 `Richard Garwin’s role in designing the hydrogen bomb was obscured from the public, even his family, as he advised presidents and devoted his life to undoing the danger he created.`\
 https://nytimes.com/2025/05/19/science/richard-garwin-hydrogen-bomb.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/opinion/joe-biden-cancer-diagnosis.html
 **College baseball week in review: SEC teams jockeying for top seeds in NCAA tourney**\
 `Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
 https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/
-
-**Pep Guardiola's strange tactics hindered Manchester City in the FA Cup final**\
-`Guardiola's overly attacking starting line-up allowed Crystal Palace to exploit City's left flank and caps a disappointing season `\
-https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-guardiola/
-
-**Napoli and Inter to play simultaneously on Friday to decide Serie A title**\
-`League leaders Napoli host 14th-place Cagliari, while Inter, who are a point further back, are go to Como.`\
-https://nytimes.com/athletic/6367171/2025/05/19/napoli-inter-title-serie-a-italy/
 
