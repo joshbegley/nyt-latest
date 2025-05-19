@@ -1,3 +1,11 @@
+**British tennis stars call on U.K. prime minister for grassroots investment**\
+`Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
+https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/
+
+**$800 Million Overhaul of U.S. Open Stadium Will Add Space and Luxury**\
+`Construction on the Arthur Ashe tennis stadium and a new building for players is scheduled to be completed in time for the 2027 U.S. Open.`\
+https://nytimes.com/2025/05/19/nyregion/arthur-ashe-stadium-renovation.html
+
 **Did Usher Write His Own Commencement Speech? (Yeah!)**\
 `Usher told Emory’s Class of 2025 a story about himself that he has rarely shared. Here is how late-night brainstorming, careful editing and last-minute riffing led to that moment.`\
 https://nytimes.com/interactive/2025/05/19/us/usher-commencement-speech-emory.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/briefing/trump-putin-phone-call-ai-miami-classroo
 **Judge Rules That Trump Administration Takeover of Institute of Peace Is Illegal**\
 `Judge Beryl Howell of U.S. District Court in Washington said that the administration, in a “gross usurpation of power,” had acted with “blunt force” against the independent agency.`\
 https://nytimes.com/2025/05/19/us/politics/institute-of-peace-trump.html
-
-**Mac Allister ruled out of Liverpool's final Premier League game**\
-`"He needs rest to recover completely and to be ready for the start next season, that will be no problem," head coach Arne Slot said.`\
-https://nytimes.com/athletic/6368725/2025/05/19/alexis-mac-allister-injury-liverpool/
-
-**Hudson Yards Developer Drops Casino Bid in Face of Political Opposition**\
-`Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
-https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html
 
