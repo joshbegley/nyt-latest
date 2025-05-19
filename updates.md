@@ -1,3 +1,11 @@
+**The Pulse: The top 5 moments from a remarkable Sunday**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6366406/2025/05/19/maple-leafs-panthers-thunder-nuggets-game-7-the-pulse/
+
+**Why tennis stars are confronting fans as they cross the line on court**\
+`Confrontations between players and spectators in Rome reopened debates over courtside behavior and the benefits of a raucous atmosphere.`\
+https://nytimes.com/athletic/6365289/2025/05/19/tennis-crowds-fans-abuse-betting-etiquette/
+
 **Manchester City appoint Hannah Dingley as girls' Head of Academy**\
 `Dingley was previously caretaker manager of Forest Green Rovers, the first woman in charge of a men’s side in England’s top four leagues.`\
 https://nytimes.com/athletic/6366997/2025/05/19/manchester-city-women-hannah-dingley/

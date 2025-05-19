@@ -1,3 +1,7 @@
+**The Pulse: The top 5 moments from a remarkable Sunday**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6366406/2025/05/19/maple-leafs-panthers-thunder-nuggets-game-7-the-pulse/
+
 **Manchester City appoint Hannah Dingley as girls' Head of Academy**\
 `Dingley was previously caretaker manager of Forest Green Rovers, the first woman in charge of a men’s side in England’s top four leagues.`\
 https://nytimes.com/athletic/6366997/2025/05/19/manchester-city-women-hannah-dingley/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6367021/2025/05/19/francesco-farioli-ajax-leaves-er
 `Batty, an edge rusher from BYU who grew up with horses, is expected to have a good shot of making Minnesota's 53-man roster. `\
 https://nytimes.com/athletic/6362539/2025/05/19/tyler-batty-vikings-byu-cowboy-horses/
 
-**The fine line between partisan support and abusing players in tennis**\
+**Why tennis stars are confronting fans as they cross the line on court**\
 `Confrontations between players and spectators in Rome reopened debates over courtside behavior and the benefits of a raucous atmosphere.`\
 https://nytimes.com/athletic/6365289/2025/05/19/tennis-crowds-fans-abuse-betting-etiquette/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366722/2025/05/19/alex-albon-williams-f1-imola-202
 **Hometown kid Mitch Marner may have just played his last game as a Maple Leaf**\
 `There's a strong chance Marner will be wearing a different jersey the next time the playoffs roll around.`\
 https://nytimes.com/athletic/6366840/2025/05/19/mitch-marner-maple-leafs-free-agency-nhl-playoffs/
-
-**He 'knows how to win.' But what is Bill Belichick's approach to college football at UNC?**\
-`Players and coaches discuss Belichick's UNC program and what might be an adjustment for the six-time Super Bowl-winning head coach.`\
-https://nytimes.com/athletic/6362574/2025/05/19/bill-belichick-unc-first-season/
 
