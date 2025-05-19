@@ -1,3 +1,7 @@
+**What a Prostate Cancer Diagnosis Like Biden’s Means for Patients**\
+`While prognoses for prostate cancer patients were once measured in months, experts say that advances in treatment and diagnosis now improve survival by years.`\
+https://nytimes.com/2025/05/18/health/joe-biden-diagnosis-prostate-cancer.html
+
 **The 'Jokić Stopper': How Alex Caruso and the Thunder defense snatched Game 7**\
 `After a Game 7 defensive clinic, Alex Caruso will more than likely see his fair share against both Anthony Edwards and Julius Randle.`\
 https://nytimes.com/athletic/6366008/2025/05/18/alex-caruso-thunder-defense-game-7-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366342/2025/05/18/jac-caglianone-royals-triple-a-p
 **PGA Championship: How Scottie Scheffler won his third career major championship**\
 `The last six men’s majors have been won by arguably the four best players in the sport.`\
 https://nytimes.com/athletic/6366381/2025/05/18/pga-championship-round-4-scottie-scheffler/
-
-**‘Creditors’ Review: Who Pays the Price for a Bankrupt Marriage?**\
-`Liev Schreiber stars in an update of the bleak Strindberg classic about a husband and wife and the man who seeks to destroy them.`\
-https://nytimes.com/2025/05/18/theater/creditors-review-liev-schreiber.html
 
