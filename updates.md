@@ -1,3 +1,11 @@
+**Intriguing inclusions, omissions from preliminary USMNT Gold Cup squad**\
+`Mauricio Pochettino will whittle down this 60-man group to his final 26-man squad for this summer's Concacaf Gold Cup.`\
+https://nytimes.com/athletic/6367890/2025/05/19/usmnt-gold-cup-preliminary-squad-roster-pochettino/
+
+**Mohsen Mahdawi, Released From ICE Custody, Graduates From Columbia**\
+`Mr. Mahdawi, who led pro-Palestinian demonstrations at Columbia University, was released from detention late last month and allowed to travel from Vermont to get his diploma.`\
+https://nytimes.com/2025/05/19/nyregion/mohsen-mahdawi-columbia-graduation.html
+
 **Review: A New Opera Gives Music to the Unsaid and Unsayable**\
 `Unsuk Chin’s “The Dark Side of the Moon,” a reinterpretation of the Faust myth, reflects a restless mind with constant musical invention.`\
 https://nytimes.com/2025/05/19/arts/music/unsuk-chin-dark-side-of-the-moon-opera-review.html
