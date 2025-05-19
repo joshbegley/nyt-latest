@@ -1,3 +1,11 @@
+**Dear Goodison, farewell and thank you**\
+`Everton's players - past and present - and an adoring home support gave Goodison the send-off it deserved. It was not a wake, it was a party`\
+https://nytimes.com/athletic/6365473/2025/05/19/everton-goodison-park-farewell/
+
+**What did Bernardo Silva mean by the Manchester City 'real ones'?**\
+`The midfielder's comments after City lost in the FA Cup final gave an insight into where things have gone wrong for the club this season`\
+https://nytimes.com/athletic/6364968/2025/05/19/bernardo-real-ones-man-city/
+
 **Mets defensive lapses starting to add up: 'We’re not finishing plays'**\
 `The Subway Series games felt as if there was more on the line than regular-season wins and losses.`\
 https://nytimes.com/athletic/6366692/2025/05/19/mets-yankees-defense-concerns/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6366611/2025/05/19/maple-leafs-shanahan-nhl-playoff
 `A deep dive into the Wolves' managers style and tactics – and how it turned the season around`\
 https://nytimes.com/athletic/6362187/2025/05/19/what-is-vitor-ball/
 
+**Mikel Arteta has convinced Arsenal fans – their belief remains unwavering**\
+`With no silverware to toast, there could have been an emptiness that filled the stadium - but the manager got the backing he wanted.`\
+https://nytimes.com/athletic/6365827/2025/05/19/arteta-arsenal-fanbase-emirates/
+
 **Charlie Cresswell on leaving Leeds and loving Toulouse: 'I was scared but it's been great'**\
 `The defender stepped out of his comfort zone with a transfer to France. In Ligue 1, he is getting the game time he missed out on with Leeds`\
 https://nytimes.com/athletic/6361787/2025/05/19/charlie-cresswell-toulouse-leeds/
-
-**Newcastle set for five-team Champions League shootout - but will Isak be back?**\
-`It all comes down to the final day for Eddie Howe's side as they bid for a return to Europe's top table.`\
-https://nytimes.com/athletic/6365796/2025/05/19/newcastle-champions-league-isak-2/
-
-**Vardy's last party: An emotional ending to one of the Premier League's greatest stories**\
-`As the Leicester legend's career at the club came to an end, players past and present came to say goodbye and thank you with the fans`\
-https://nytimes.com/athletic/6365382/2025/05/19/jamie-vardy-leicester-farewell/
-
-**The Briefing: The 2,500-1 shot that every neutral should love - and what now for City?**\
-`The major talking points from the weekend's football - also featuring Jamie Vardy being Jamie Vardy`\
-https://nytimes.com/athletic/6365808/2025/05/19/crystal-palace-liverpool-newcastle-trophies/
 
