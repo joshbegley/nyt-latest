@@ -1,3 +1,7 @@
+**Tariff Uncertainty Threatens to Drag Down Europe’s Economic Growth**\
+`The European Union scaled back its forecast for growth in 2025 by nearly half a percent, as the jump in tariffs and surrounding chaos bite.`\
+https://nytimes.com/2025/05/19/business/tariffs-european-union-economy-growth.html
+
 **What to watch in sports this week: Conference finals, Concacaf and Monaco Grand Prix**\
 `Here's what to watch across sports this week, from the NBA and NHL conference finals to Sunday morning's Monaco Grand Prix.`\
 https://nytimes.com/athletic/6366521/2025/05/19/nba-wnba-nhl-concacaf-monaco-grand-prix-how-to-watch/

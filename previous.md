@@ -1,3 +1,7 @@
+**Tariff Uncertainty Threatens to Drag Down Europe’s Economic Growth**\
+`The European Union scaled back its forecast for growth in 2025 by nearly half a percent, as the jump in tariffs and surrounding chaos bite.`\
+https://nytimes.com/2025/05/19/business/tariffs-european-union-economy-growth.html
+
 **What to watch in sports this week: Conference finals, Concacaf and Monaco Grand Prix**\
 `Here's what to watch across sports this week, from the NBA and NHL conference finals to Sunday morning's Monaco Grand Prix.`\
 https://nytimes.com/athletic/6366521/2025/05/19/nba-wnba-nhl-concacaf-monaco-grand-prix-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367216/2025/05/19/nikola-jokic-nuggets-thunder-ale
 **Giro d’Italia week one: How the white roads of Tuscany exploded the race for the pink jersey**\
 `We review a dramatic start to the race, featuring dominant Danes, popular redemption arcs, painful crashes and a successful foray to Albania`\
 https://nytimes.com/athletic/6365511/2025/05/19/giro-ditalia-week-one-review-cycling/
-
-**My First Thought When I Heard Joe Biden’s News**\
-`What Joe Biden understands about America’s place in the world, even now.`\
-https://nytimes.com/2025/05/19/opinion/joe-biden-cancer-diagnosis.html
 
