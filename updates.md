@@ -1,3 +1,7 @@
+**The Sean Combs Trial**\
+`Plus, President Joe Biden’s cancer diagnosis.`\
+https://nytimes.com/2025/05/19/briefing/sean-combs-trial.html
+
 **Reds sweep Guardians as Will Benson steals the show against former team: C. Notes**\
 `Since being called up from Triple A, Benson is 11-for-26 with five homers over eight games, and homers in each of the last four games.`\
 https://nytimes.com/athletic/6366164/2025/05/19/c-notes-will-benson-reds-sweep/
