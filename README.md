@@ -1,3 +1,7 @@
+**Canada manager Marsch weighs in on Jonathan David's summer transfer**\
+`Jonathan David's next destination is a development of great intrigue for the player, his national team and many European clubs`\
+https://nytimes.com/athletic/6368137/2025/05/19/jonathan-david-jesse-marsch-canada-summer-transfer-gold-cup/
+
 **The Doctor behind the Hurricanes, GM Eric Tulsky's bold moves are paying off — with even bolder ones ahead**\
 `Is he the Doctor or the Gambler? Tulsky went for Mikko Rantanen. He went for Mitch Marner. And he’s got cap space in the coming years.`\
 https://nytimes.com/athletic/6368071/2025/05/19/eric-tulsky-hurricanes-gm-bold-moves/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/19/us/politics/19dc-scotus-immig.html
 **13-Year-Old Boy Charged in Killing of Girl, 16, in the South Bronx**\
 `Evette Jeffrey was an unintended victim of the shooting on May 12 after a schoolyard fight. Two boys in their early teens have now been charged in the killing.`\
 https://nytimes.com/2025/05/19/nyregion/south-bronx-teen-killing-arrest.html
-
-**Modi’s Government Cracks Down on Dissent Over Pakistan Conflict**\
-`The arrest of a political science professor shows Indian leaders’ sensitivity to the political fallout from the military flare-up.`\
-https://nytimes.com/2025/05/19/world/asia/india-antiwar-dissent-mahmudabad.html
 
