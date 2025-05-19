@@ -1,3 +1,7 @@
+**Portugal’s Center Right Wins Election but Falls Short of Majority**\
+`The hard-right Chega party surged in the snap election, securing its status as a powerful political contender.`\
+https://nytimes.com/2025/05/19/world/europe/portugal-election-montenegro-chega.html
+
 **The Athletic FC: End of a 164-year wait, Inter Miami lose again, Ajax's title choke**\
 `Today in TAFC: Palace break their 164-year major trophy drought, Messi 'hurt' after losing again with Inter Miami.`\
 https://nytimes.com/athletic/6366994/2025/05/19/palace-fa-cup-inter-miami-ajax-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365616/2025/05/19/jarren-duran-red-sox-season-star
 **WNBA power rankings: Kelsey Plum shines for L.A. Sparks, Fever move up after strong start**\
 `The Liberty and Fever game Saturday could shake up the rankings if Indiana pulls out a statement victory.`\
 https://nytimes.com/athletic/6366664/2025/05/19/wnba-power-rankings-kelsey-plum-sparks/
-
-**Atlanta west? In Anaheim, ex-Braves fill the roster and staff as Angels seek winning culture**\
-`“That’s what I think is happening. Trying to build a culture here that creates winning," said ex-Brave and current Angel Travis d'Arnaud.`\
-https://nytimes.com/athletic/6362543/2025/05/19/atlanta-braves-los-angeles-angels-trades/
 
