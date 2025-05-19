@@ -1,3 +1,23 @@
+**The Briefing: Brighton 3 Liverpool 2 - Why Slot will have loved Elliott's opener, and Salah shows he's human...**\
+`Liverpool slipped to a surprise defeat away to Brighton after leading at half-time. Our Liverpool writer analyses the key talking points`\
+https://nytimes.com/athletic/6365474/2025/05/19/liverpool-defeat-brighton-elliott-salah-miss/
+
+**Justice Dept. Says It’ll Investigate Chicago After Mayor’s Remarks About Black Hires**\
+`It is the Trump administration’s latest effort to remake the department’s civil rights division, which has historically worked to fight discrimination against minorities.`\
+https://nytimes.com/2025/05/19/us/justice-dept-says-itll-investigate-chicago-after-mayors-remarks-about-black-hires.html
+
+**Tuesday Briefing: A Trump-Putin Phone Call**\
+`Plus, the return of a spy’s archives.`\
+https://nytimes.com/2025/05/19/briefing/trump-putin-ukraine-europe-elections-israel-gaza-aid.html
+
+**49ers, Fred Warner agree to contract extension: Source**\
+`The new deal gives Warner the highest annual salary at his position.`\
+https://nytimes.com/athletic/6362731/2025/05/19/49ers-fred-warner-contract-extension/
+
+**23andMe to Be Bought by Biotech Company for $256 Million**\
+`Regeneron Pharmaceuticals said it would acquire 23andMe, which filed for bankruptcy in March and would continue to offer consumer DNA testing services.`\
+https://nytimes.com/2025/05/19/business/regeneron-pharmaceuticals-23andme-data.html
+
 **Explaining THE BAT X projections: Using advanced metrics for fantasy baseball and betting**\
 `Derek Carty explains THE BAT X projections, their accuracy and why the system is useful in fantasy baseball. `\
 https://nytimes.com/athletic/6368056/2025/05/19/the-bat-x-explained-fantasy-baseball-betting/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6368316/2025/05/19/ravens-derrick-henry-contract-ex
 **Therapist Terry Real Wants Men to Be Vulnerable**\
 `“I don’t want women to stand down from their demands; I want men to stand up to meet them,” the couples therapist explained on the Modern Love podcast.`\
 https://nytimes.com/video/podcasts/100000010175113/modern-love-terry-real-couples-therapist.html
-
-**Submit your questions for Josh Kendall's Falcons mailbag**\
-`The NFL Draft, rookie minicamp and the schedule release are behind us with OTAs coming up next week. What's on your mind?`\
-https://nytimes.com/athletic/6368445/2025/05/19/falcons-mailbag-questions-12/
-
-**Queens Man Described as Delusional Convicted in Paramedic’s Killing**\
-`Alison Russo was stabbed repeatedly in Astoria in an explosion of violence caught on video. Peter Zisopoulos was found guilty of the crime.`\
-https://nytimes.com/2025/05/19/nyregion/queens-emt-murder-verdit.html
-
-**Trump Turns a Blind Eye to Climate Change**\
-`Nearly every other government in the world has recognized that a hotter planet poses a profound threat to humans and ecosystems.`\
-https://nytimes.com/2025/05/19/climate/trum-climate-change-policy.html
-
-**Leeds owners to issue £120m of new shares, earmarked for transfer window**\
-`Some investors declined the chance to spend more but the target amount was reached by others who have been in the ownership group.`\
-https://nytimes.com/athletic/6368290/2025/05/19/leeds-transfers-cash-injection/
-
-**Maps: 3.8-Magnitude Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/05/19/us/california-quake-bakersfield.html
 
