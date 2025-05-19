@@ -1,3 +1,7 @@
+**Giro d’Italia week one: How the white roads of Tuscany exploded the race for the pink jersey**\
+`We review a dramatic start to the race, featuring dominant Danes, popular redemption arcs, painful crashes and a successful foray to Albania`\
+https://nytimes.com/athletic/6365511/2025/05/19/giro-ditalia-week-one-review-cycling/
+
 **My First Thought When I Heard Joe Biden’s News**\
 `What Joe Biden understands about America’s place in the world, even now.`\
 https://nytimes.com/2025/05/19/opinion/joe-biden-cancer-diagnosis.html

@@ -1,3 +1,7 @@
+**The Bounce: Nuggets' elimination highlights issues around Nikola Jokić. How can Denver improve?**\
+`The Nuggets did their best to push the Thunder in Game 7, but their loss highlights issues around Nikola Jokić`\
+https://nytimes.com/athletic/6367216/2025/05/19/nikola-jokic-nuggets-thunder-alex-caruso-nba-playoffs-the-bounce/
+
 **Giro d’Italia week one: How the white roads of Tuscany exploded the race for the pink jersey**\
 `We review a dramatic start to the race, featuring dominant Danes, popular redemption arcs, painful crashes and a successful foray to Albania`\
 https://nytimes.com/athletic/6365511/2025/05/19/giro-ditalia-week-one-review-cycling/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/05/19/opinion/joe-biden-cancer-diagnosis.html
 `Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
 https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/
 
-**Pep Guardiola's strange tactics hindered Manchester City's cause in the FA Cup final**\
+**Pep Guardiola's strange tactics hindered Manchester City in the FA Cup final**\
 `Guardiola's overly attacking starting line-up allowed Crystal Palace to exploit City's left flank and caps a disappointing season `\
 https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-guardiola/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6362538/2025/05/19/mykel-williams-49ers-nfl-wrestli
 **Revisiting Blues bold predictions: 10 from preseason, 10 from midseason**\
 `I made 10 preseason bold predictions and 10 more at midseason. How many of them came true? Well, I kept score. Here are the results.`\
 https://nytimes.com/athletic/6362411/2025/05/19/blues-nhl-predictions-2024-25-season/
-
-**'A really tough out now': How the Oilers have changed the narrative during the playoffs**\
-`There were a lot of questions surrounding the Oilers a month ago. Now? Not so much.`\
-https://nytimes.com/athletic/6365797/2025/05/19/edmonton-oilers-nhl-playoffs-2025-narratives/
 
