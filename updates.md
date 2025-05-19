@@ -1,3 +1,11 @@
+**Giants takeaways: Dominant pitching leads to a weekend sweep**\
+`With exceptional pitching, he Giants swept the Athletics over the weekend. Also, the entire A's team drove in only three runs in the series.`\
+https://nytimes.com/athletic/6366459/2025/05/19/giants-takeaways-weekend-sweep/
+
+**Maple Leafs trudge to yet another disappointing Game 7 loss: 'It's heartbreaking'**\
+`Scenes from the Leafs' seventh straight Game 7 loss, from Craig Berube losing his cool to jerseys hitting the ice.`\
+https://nytimes.com/athletic/6366734/2025/05/19/maple-leafs-game-7-nhl-playoffs-berube-marner/
+
 **In the Future, China Will Be Dominant. The U.S. Will Be Irrelevant.**\
 `Trump’s fixation on tariffs while he undermines America’s competitive strengths is hastening the onset of the “Chinese Century.”`\
 https://nytimes.com/2025/05/19/opinion/china-us-trade-tariffs.html
