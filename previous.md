@@ -1,3 +1,7 @@
+**Maple Leafs trudge to yet another disappointing Game 7 loss: 'It's heartbreaking'**\
+`Scenes from the Leafs' sixth straight Game 7 loss, from Craig Berube losing his cool to jerseys hitting the ice.`\
+https://nytimes.com/athletic/6366734/2025/05/19/maple-leafs-game-7-nhl-playoffs-berube-marner/
+
 **The New York Times in Print for Monday, May 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/19/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364968/2025/05/19/bernardo-real-ones-man-city/
 **Mets defensive lapses starting to add up: 'We’re not finishing plays'**\
 `The Subway Series games felt as if there was more on the line than regular-season wins and losses.`\
 https://nytimes.com/athletic/6366692/2025/05/19/mets-yankees-defense-concerns/
-
-**Another West Ham defeat leaves fans with little optimism for next season: 'It looks bleak'**\
-`A final home match was a time for fans to reflect and look ahead. Their feeling is Graham Potter has a lot of work to do`\
-https://nytimes.com/athletic/6364970/2025/05/19/west-ham-next-season-fans/
 

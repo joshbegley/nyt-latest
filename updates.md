@@ -1,3 +1,7 @@
+**Maple Leafs trudge to yet another disappointing Game 7 loss: 'It's heartbreaking'**\
+`Scenes from the Leafs' sixth straight Game 7 loss, from Craig Berube losing his cool to jerseys hitting the ice.`\
+https://nytimes.com/athletic/6366734/2025/05/19/maple-leafs-game-7-nhl-playoffs-berube-marner/
+
 **The New York Times in Print for Monday, May 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/19/todays-new-york-times
