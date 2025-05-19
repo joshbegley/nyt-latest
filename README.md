@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6365449/2025/05/19/forest-togetherness-awoniyi/
 https://nytimes.com/athletic/6365414/2025/05/19/chelsea-domestic-dominance-europe-bompastor/
 
 **Siegel: The Shanaplan failed. This should finally be it for the Core Four Leafs**\
-`After yet another Leafs season that ended with a whimper rather than a bang, enough has to be enough.`\
+`After yet another Leafs season ended with a whimper rather than a bang, enough has to be enough.`\
 https://nytimes.com/athletic/6366611/2025/05/19/maple-leafs-shanahan-nhl-playoffs-marner/
 
 **Question: What is Vitor-ball? Please explain your answer in no more than 1,490 words**\
