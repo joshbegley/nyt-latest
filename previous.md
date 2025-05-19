@@ -1,3 +1,7 @@
+**What Scottie Scheffler’s PGA Championship celebration tells us about the man**\
+`Scheffler is not just the best golfer in the world but a humble Texas family man who refuses to let the sport be his identity.`\
+https://nytimes.com/athletic/6366574/2025/05/18/scottie-scheffler-pga-championship-son-family/
+
 **Thunder stay 'in character,' join a delightfully surprising NBA Final Four**\
 `In this age of parity and second-apron hell that has all been by design, you couldn’t ask for a better flurry at the finish.`\
 https://nytimes.com/athletic/6366545/2025/05/18/thunder-nuggets-game-7-nba-conference-finals-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010177100/brooklyn-bridge-crash-mexico-
 **‘The Last of Us’ Season 2, Episode 6: Like Father**\
 `A series of flashbacks traced the evolution of Joel and Ellie’s relationship in Jackson, Wyo., filling in some blanks about her current state of mind.`\
 https://nytimes.com/2025/05/18/arts/television/the-last-of-us-recap-season-2-episode-6.html
-
-**Angels revel in takedown of rival Dodgers: 'We just swept the best in baseball'**\
-`The Angels saw how they could stack up against the World Series champs. It was lopsided, but not in the way anyone would have expected.`\
-https://nytimes.com/athletic/6366375/2025/05/18/angels-sweep-dodgers/
 

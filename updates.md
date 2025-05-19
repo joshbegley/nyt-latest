@@ -1,3 +1,7 @@
+**What Scottie Scheffler’s PGA Championship celebration tells us about the man**\
+`Scheffler is not just the best golfer in the world but a humble Texas family man who refuses to let the sport be his identity.`\
+https://nytimes.com/athletic/6366574/2025/05/18/scottie-scheffler-pga-championship-son-family/
+
 **Thunder stay 'in character,' join a delightfully surprising NBA Final Four**\
 `In this age of parity and second-apron hell that has all been by design, you couldn’t ask for a better flurry at the finish.`\
 https://nytimes.com/athletic/6366545/2025/05/18/thunder-nuggets-game-7-nba-conference-finals-preview/
