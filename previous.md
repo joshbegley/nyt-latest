@@ -1,3 +1,7 @@
+**A surprising Nuggets run ended with a fatal flaw exposed. Fixing it might be tricky**\
+`A new NBA revealed itself in the playoffs. You need great players, but also depth. The Nuggets must now find it with limited options.`\
+https://nytimes.com/athletic/6366475/2025/05/18/a-surprising-nuggets-run-ended-with-a-fatal-flaw-exposed-fixing-it-might-be-tricky/
+
 **What Scottie Scheffler’s PGA Championship celebration tells us about the man**\
 `Scheffler is not just the best golfer in the world but a humble Texas family man who refuses to let the sport be his identity.`\
 https://nytimes.com/athletic/6366574/2025/05/18/scottie-scheffler-pga-championship-son-family/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366452/2025/05/18/maple-leafs-panthers-nhl-playoff
 **How a Mexican Navy Ship Crashed Into the Brooklyn Bridge**\
 `A maritime expert told The Times that the Cuauhtémoc’s propellers may have been running in reverse, pushing it faster toward the Brooklyn Bridge, as a tugboat tried escorting the ship out of a pier.`\
 https://nytimes.com/video/nyregion/100000010177100/brooklyn-bridge-crash-mexico-ship.html
-
-**‘The Last of Us’ Season 2, Episode 6: Like Father**\
-`A series of flashbacks traced the evolution of Joel and Ellie’s relationship in Jackson, Wyo., filling in some blanks about her current state of mind.`\
-https://nytimes.com/2025/05/18/arts/television/the-last-of-us-recap-season-2-episode-6.html
 

@@ -1,3 +1,7 @@
+**A surprising Nuggets run ended with a fatal flaw exposed. Fixing it might be tricky**\
+`A new NBA revealed itself in the playoffs. You need great players, but also depth. The Nuggets must now find it with limited options.`\
+https://nytimes.com/athletic/6366475/2025/05/18/a-surprising-nuggets-run-ended-with-a-fatal-flaw-exposed-fixing-it-might-be-tricky/
+
 **What Scottie Scheffler’s PGA Championship celebration tells us about the man**\
 `Scheffler is not just the best golfer in the world but a humble Texas family man who refuses to let the sport be his identity.`\
 https://nytimes.com/athletic/6366574/2025/05/18/scottie-scheffler-pga-championship-son-family/
