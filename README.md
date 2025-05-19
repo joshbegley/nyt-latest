@@ -1,3 +1,7 @@
+**How Pickle Lemonade Took Over the Group Chat**\
+`One thing’s clear: This sweet-tart drink, with cousins around the world, elicits strong opinions.`\
+https://nytimes.com/2025/05/19/dining/pickle-lemonade.html
+
 **Prominent Anti-Corruption Lawyer Is Arrested in El Salvador**\
 `Ruth López was detained Sunday in what rights groups say represents a ‘dangerous escalation’ in President Nayib Bukele’s crackdown on dissent. The attorney general confirmed the arrest.`\
 https://nytimes.com/2025/05/19/world/americas/elsalvador-bukele-arrest-lawyer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/business/airbnb-listings-spain.html
 **Stolen Bust From Jim Morrison’s Gravesite Is Recovered in Paris**\
 `The 300-pound bust was stolen from Père-Lachaise cemetery in 1988 and was found when the police were conducting an unrelated search.`\
 https://nytimes.com/2025/05/19/world/europe/jim-morrison-statue-recovered.html
-
-**Indy 500: Penske's Josef Newgarden, Will Power penalized, moved to back of field**\
-`Josef Newgarden and Will Power will start from the back at the Indy 500 after the latest rules violation involving Team Penske.`\
-https://nytimes.com/athletic/6368008/2025/05/19/indy-500-penske-josef-newgarden-will-power-penalty/
 

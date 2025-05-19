@@ -1,3 +1,7 @@
+**Prominent Anti-Corruption Lawyer Is Arrested in El Salvador**\
+`Ruth López was detained Sunday in what rights groups say represents a ‘dangerous escalation’ in President Nayib Bukele’s crackdown on dissent. The attorney general confirmed the arrest.`\
+https://nytimes.com/2025/05/19/world/americas/elsalvador-bukele-arrest-lawyer.html
+
 **Trump Wants to Fulfill His ‘No Tax On Tips’ Promise. The Details Get Tricky.**\
 `The idea is politically popular, but the tax benefits may not go as far for low-income workers as many may think.`\
 https://nytimes.com/2025/05/19/business/trump-taxes-tips.html
