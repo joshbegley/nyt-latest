@@ -1,3 +1,7 @@
+**Trump and Putin Set to Discuss Ukraine War in High-Stakes Call**\
+`A telephone call between the two leaders would be the latest chapter in a flurry of diplomatic maneuvering over ending the three-year conflict.`\
+https://nytimes.com/2025/05/19/world/europe/trump-putin-ukraine.html
+
 **Israel Announced a New Invasion of Gaza. Is It Bluffing?**\
 `After warning of a major ground operation, Israel has bombarded Gaza but has yet to start a big advance. The threat to do so may be an attempt to force Hamas to compromise in cease-fire talks.`\
 https://nytimes.com/2025/05/19/world/middleeast/israel-new-invasion-of-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/opinion/moodys-downgrade.html
 **The Sailing Ship That Went in the Wrong Direction**\
 `The Cuauhtémo hit the Brooklyn Bridge, killing two crew members. It had intended to sail the other way.`\
 https://nytimes.com/2025/05/19/nyregion/the-sailing-ship-that-went-in-the-wrong-direction.html
-
-**Help! How Do I Make Sense of All These Trends?**\
-`As new fads crop up faster and faster, it can be hard to decide what to buy. Our critic offers a solution: developing your personal style.`\
-https://nytimes.com/2025/05/19/fashion/help-how-do-i-make-sense-of-all-these-trends.html
 

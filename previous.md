@@ -1,3 +1,19 @@
+**Israel Announced a New Invasion of Gaza. Is It Bluffing?**\
+`After warning of a major ground operation, Israel has bombarded Gaza but has yet to start a big advance. The threat to do so may be an attempt to force Hamas to compromise in cease-fire talks.`\
+https://nytimes.com/2025/05/19/world/middleeast/israel-new-invasion-of-gaza.html
+
+**The New York Times International Edition in Print for Tuesday, May 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/19/todays-new-york-times-international-edition
+
+**How to Ice Skate Without Faceplanting (or Looking Like a Panicked Penguin)**\
+`A winning essay by Yip Pei Yuan Erica, age 18.`\
+https://nytimes.com/2025/05/19/learning/how-to-ice-skate-without-faceplanting-or-looking-like-a-panicked-penguin.html
+
+**How to Bargain Like a Pro in Thai Street Markets**\
+`A winning essay by Preyahathai Aroonvanichporn, age 16.`\
+https://nytimes.com/2025/05/19/learning/how-to-bargain-like-a-pro-in-thai-street-markets.html
+
 **Britain and E.U. Strike Landmark Brexit Reset Deal**\
 `As leaders gathered in London for a long awaited summit, a senior British minister said his country had secured a new agreement with the bloc.`\
 https://nytimes.com/2025/05/19/world/europe/uk-eu-deal-brexit-reset.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/19/nyregion/the-sailing-ship-that-went-in-the-wrong-
 **Help! How Do I Make Sense of All These Trends?**\
 `As new fads crop up faster and faster, it can be hard to decide what to buy. Our critic offers a solution: developing your personal style.`\
 https://nytimes.com/2025/05/19/fashion/help-how-do-i-make-sense-of-all-these-trends.html
-
-**‘The Order,’ ‘The Outrun’ and More Streaming Gems**\
-`A handful of last year’s best (yet overlooked) indies are among this month’s hidden treasures on your subscription streamers.`\
-https://nytimes.com/2025/05/19/movies/offbeat-movies-streaming.html
-
-**Panthers rookie TE Mitchell Evans 'versatile guy' who's ready to do whatever it takes**\
-`Dave Canales touts Mitchell Evans' versatility — he played QB in high school — after catching a team-best 43 passes last season.`\
-https://nytimes.com/athletic/6351033/2025/05/19/panthers-mitchell-evans-rookie-tight-end-notre-dame/
-
-**New York’s Spring Auctions Aimed for Trophies. They Got Troubles.**\
-`Performing below their low estimates, the auction houses bet on a “flight to quality” but found little interest from bidders on top lots.`\
-https://nytimes.com/2025/05/19/arts/design/new-york-art-auctions-assess.html
-
-**Missteps and Party Fissures Bedevil Pittsburgh Mayor’s Re-election Run**\
-`The Democratic primary for mayor of Pittsburgh on Tuesday has become something of a proxy for the national struggle over the party’s future direction.`\
-https://nytimes.com/2025/05/19/us/politics/pittsburgh-mayor-election-gainey-oconnor.html
 

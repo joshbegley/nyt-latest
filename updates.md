@@ -1,3 +1,19 @@
+**Israel Announced a New Invasion of Gaza. Is It Bluffing?**\
+`After warning of a major ground operation, Israel has bombarded Gaza but has yet to start a big advance. The threat to do so may be an attempt to force Hamas to compromise in cease-fire talks.`\
+https://nytimes.com/2025/05/19/world/middleeast/israel-new-invasion-of-gaza.html
+
+**The New York Times International Edition in Print for Tuesday, May 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/19/todays-new-york-times-international-edition
+
+**How to Ice Skate Without Faceplanting (or Looking Like a Panicked Penguin)**\
+`A winning essay by Yip Pei Yuan Erica, age 18.`\
+https://nytimes.com/2025/05/19/learning/how-to-ice-skate-without-faceplanting-or-looking-like-a-panicked-penguin.html
+
+**How to Bargain Like a Pro in Thai Street Markets**\
+`A winning essay by Preyahathai Aroonvanichporn, age 16.`\
+https://nytimes.com/2025/05/19/learning/how-to-bargain-like-a-pro-in-thai-street-markets.html
+
 **Britain and E.U. Strike Landmark Brexit Reset Deal**\
 `As leaders gathered in London for a long awaited summit, a senior British minister said his country had secured a new agreement with the bloc.`\
 https://nytimes.com/2025/05/19/world/europe/uk-eu-deal-brexit-reset.html
