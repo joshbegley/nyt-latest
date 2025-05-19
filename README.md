@@ -22,7 +22,7 @@ https://nytimes.com/issue/todayspaper/2025/05/19/todays-new-york-times
 `A mini series starring Meghann Fahy comes to Netflix. Two HBO shows wrap up their seasons.`\
 https://nytimes.com/2025/05/19/arts/television/watch-on-tv-this-week-sirens.html
 
-**Trump Doesn’t Realize China Is Pulling Ahead of the U.S.**\
+**In the Future, China Will Be Dominant. The U.S. Will Be Irrelevant.**\
 `Trump’s fixation on tariffs while he undermines America’s competitive strengths is hastening the onset of the “Chinese Century.”`\
 https://nytimes.com/2025/05/19/opinion/china-us-trade-tariffs.html
 
