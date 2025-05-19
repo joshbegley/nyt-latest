@@ -1,3 +1,7 @@
+**Democrats Pause Their Anger at Biden Over 2024, but Have New Questions**\
+`The former president’s cancer diagnosis prompted an outpouring of well wishes and sympathy, as well as some whispered uncertainties that reflected a lack of trust in what he says about his health.`\
+https://nytimes.com/2025/05/19/us/politics/biden-cancer-democrats-2024-election.html
+
 **In Illness, Biden Deserves Grace**\
 `Readers respond to former President Joe Biden’s prostate cancer diagnosis. Also: A.I. governance; a reality show contest for citizenship?`\
 https://nytimes.com/2025/05/19/opinion/joe-biden-prostate-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
 **Newcastle set to appoint Palace's Williams as new director of women's football**\
 `Newcastle are targeting promotion to the Women's Super League (WSL).`\
 https://nytimes.com/athletic/6367273/2025/05/19/newcastle-women-grace-williams/
-
-**USMNT Player Tracker: Richards, Turner and Tillman savour success, but woe for Pulisic**\
-`Our weekend roundup also takes in Juventus' progress into the Champions League, and the toils of Gianluca Busio and Venezia in Serie A`\
-https://nytimes.com/athletic/6366166/2025/05/19/usmnt-richards-tillman-tracker/
 
