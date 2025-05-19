@@ -1,3 +1,15 @@
+**The Windup: Questions ahead about the robot umps**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6366764/2025/05/19/abs-robot-umps-accuracy-the-windup/
+
+**PWHL announces expansion draft rules, details on protecting players**\
+`Each of the PWHL's six current teams will lose four players from their 2024-25 roster during the expansion process.`\
+https://nytimes.com/athletic/6367423/2025/05/19/pwhl-expansion-draft-date-rules-seattle-vancouver-players/
+
+**A Scientist Fighting Nuclear Armageddon Hid a 50-Year Secret**\
+`Richard Garwin’s role in designing the hydrogen bomb was obscured from the public, even his family, as he advised presidents and devoted his life to undoing the danger he created.`\
+https://nytimes.com/2025/05/19/science/richard-garwin-hydrogen-bomb.html
+
 **Arsenal's Timber to undergo minor procedure on ankle**\
 `The 23-year-old Netherlands international has played the fifth-most minutes for the club this season.`\
 https://nytimes.com/athletic/6367235/2025/05/19/jurrien-timber-injury-ankle-arsenal/
