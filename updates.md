@@ -1,3 +1,15 @@
+**Louisiana Seeks Escaped Inmates, and Answers About Their Brazen Escape**\
+`The manhunt for seven men, including some accused of violent crimes, has alarmed the city and brought new attention to New Orleans’s troubled jail.`\
+https://nytimes.com/2025/05/19/us/new-orleans-louisiana-jail-escape.html
+
+**NCAA softball tournament regional recap: How 2 top-10 teams went out**\
+`An historic regional round set up eight great super regional matchups.`\
+https://nytimes.com/athletic/6366720/2025/05/19/ncaa-softball-tournament-regional-recap-lookahead/
+
+**Trump Backs Off His Demand That Russia Declare a Cease-Fire in Ukraine**\
+`President Trump once vowed to broker peace between Russia and Ukraine in 24 hours. Now he says the two sides should work it out themselves.`\
+https://nytimes.com/2025/05/19/us/politics/trump-russia-ukraine-cease-fire.html
+
 **British tennis stars call on U.K. prime minister for grassroots investment**\
 `Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
 https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/

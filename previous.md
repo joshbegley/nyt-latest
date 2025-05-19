@@ -1,3 +1,15 @@
+**Louisiana Seeks Escaped Inmates, and Answers About Their Brazen Escape**\
+`The manhunt for seven men, including some accused of violent crimes, has alarmed the city and brought new attention to New Orleans’s troubled jail.`\
+https://nytimes.com/2025/05/19/us/new-orleans-louisiana-jail-escape.html
+
+**NCAA softball tournament regional recap: How 2 top-10 teams went out**\
+`An historic regional round set up eight great super regional matchups.`\
+https://nytimes.com/athletic/6366720/2025/05/19/ncaa-softball-tournament-regional-recap-lookahead/
+
+**Trump Backs Off His Demand That Russia Declare a Cease-Fire in Ukraine**\
+`President Trump once vowed to broker peace between Russia and Ukraine in 24 hours. Now he says the two sides should work it out themselves.`\
+https://nytimes.com/2025/05/19/us/politics/trump-russia-ukraine-cease-fire.html
+
 **British tennis stars call on U.K. prime minister for grassroots investment**\
 `Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
 https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/19/us/politics/trump-politics-democrats-republicans.
 **Thousands of Chicks Left in Postal Service Truck Overwhelm a Delaware Shelter**\
 `About 4,000 birds were found dead in the truck, and 10,000 others were stranded there for three days, state officials said. The hatchery that shipped the chicks said it did not know why the shipment had never made it to its destinations.`\
 https://nytimes.com/2025/05/19/us/chicks-usps-animal-shelter-delaware.html
-
-**Trump’s Kennedy Center Comes Into Focus With Theater and Dance Plans**\
-`Some big shows and troupes will perform, while others will stay away. And in a shift, the center will present some Broadway shows with nonunion casts.`\
-https://nytimes.com/2025/05/19/theater/trump-kennedy-center-season.html
-
-**Trump Spoke to Putin for Two Hours**\
-`Also, the nation’s third-largest school district has embraced A.I. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/05/19/briefing/trump-putin-phone-call-ai-miami-classrooms.html
-
-**Judge Rules That Trump Administration Takeover of Institute of Peace Is Illegal**\
-`Judge Beryl Howell of U.S. District Court in Washington said that the administration, in a “gross usurpation of power,” had acted with “blunt force” against the independent agency.`\
-https://nytimes.com/2025/05/19/us/politics/institute-of-peace-trump.html
 
