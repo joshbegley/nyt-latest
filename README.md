@@ -1,40 +1,40 @@
-**Leeds owners to issue £120m of new shares, earmarked for transfer window**\
-`Some investors declined the chance to spend more but the target amount was reached by others who have been in the ownership group.`\
-https://nytimes.com/athletic/6368290/2025/05/19/leeds-transfers-cash-injection/
-
-**Maps: 3.8-Magnitude Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/05/19/us/california-quake-bakersfield.html
-
-**U.S. tennis to spend $800 million on transforming U.S. Open venue in New York City**\
-`The U.S. Open's facelift includes renovations to Arthur Ashe Stadium and a new player facility at the Billie Jean King Tennis Center.`\
-https://nytimes.com/athletic/6368092/2025/05/19/tennis-us-open-stadiums-venue-renovation/
-
 **Man Utd executives hold face-to-face talks with Delap**\
 `Amorim's side are also advancing on a move for Wolves' Matheus Cunha, with talks so far centring on personal terms.`\
 https://nytimes.com/athletic/6368115/2025/05/19/liam-delap-manchester-united/
 
-**Canada manager Marsch weighs in on Jonathan David's summer transfer**\
-`Jonathan David's next destination is a development of great intrigue for the player, his national team and many European clubs`\
-https://nytimes.com/athletic/6368137/2025/05/19/jonathan-david-jesse-marsch-canada-summer-transfer-gold-cup/
+**We Tested Seven TSA-Compliant Liquids Bags. The Best One Costs 18 Cents.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-best-tsa-compliant-liquids-bag
 
-**The Doctor behind the Hurricanes, GM Eric Tulsky's bold moves are paying off — with even bolder ones ahead**\
-`Is he the Doctor or the Gambler? Tulsky went for Mikko Rantanen. He went for Mitch Marner. And he’s got cap space in the coming years.`\
-https://nytimes.com/athletic/6368071/2025/05/19/eric-tulsky-hurricanes-gm-bold-moves/
+**Budget-Friendly Pastas That Don’t Skimp on Flavor**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/cheap-pasta-recipes
 
-**A Genetic Clue to Why Men Are Taller Than Women**\
-`Researchers studied data from a million people and found evidence that a height gene shared by both sexes is amplified in men.`\
-https://nytimes.com/2025/05/19/health/height-men-women-genes.html
+**How West African Textiles Shaped a Southern California Bungalow**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/susan-nwankpa-gillespie-architect-home
 
-**Israel Recovers Troves of Documents Belonging to Its Most Famous Spy**\
-`Israel has long sought to bring home from Syria the remains of Eli Cohen, whose spying work is credited with helping Israel win the Arab-Israeli War of 1967.`\
-https://nytimes.com/2025/05/19/world/middleeast/eli-cohen-spy-israel-syria.html
+**36 Hours in Carmel, California**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-carmel
 
-**Mexico's Aguirre lauds USMNT's Pochettino, eyes potential Gold Cup showdown**\
-`Javier Aguirre once replaced Mauricio Pochettino at the club level; now he's eyeing triumph over him in another Concacaf competition`\
-https://nytimes.com/athletic/6368127/2025/05/19/javier-aguirre-mauricio-pochettino-mexico-usa-gold-cup/
+**David Beckham and Gary Neville on Amorim, Man Utd transfers and Ratcliffe**\
+`Amorim has endured a difficult start to life at Old Trafford but Beckham believes he is a "very good manager" who deserves support.`\
+https://nytimes.com/athletic/6367767/2025/05/19/manchester-united-transfers-amorim-beckham-neville/
 
-**How Pickle Lemonade Took Over the Group Chat**\
-`One thing’s clear: This sweet-tart drink, with cousins around the world, elicits strong opinions.`\
-https://nytimes.com/2025/05/19/dining/pickle-lemonade.html
+**Intriguing inclusions, omissions from preliminary USMNT Gold Cup squad**\
+`Mauricio Pochettino will whittle down this 60-man group to his final 26-man squad for this summer's Concacaf Gold Cup.`\
+https://nytimes.com/athletic/6367890/2025/05/19/usmnt-gold-cup-preliminary-squad-roster-pochettino/
+
+**Chelsea's Castledine expecting to leave club permanently this summer**\
+`The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
+https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
+
+**Eagles calling teams to lobby for 'tush push' to not be banned: Sources**\
+`For the Packers' proposal to pass, 24 teams would need to vote in favor of banning the play.`\
+https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packers-proposal/
+
+**North Wilkesboro, after NASCAR All-Star Race success, has a good kind of problem**\
+`In its critical third year, North Wilkesboro has shown the enthusiasm is still there for NASCAR. Is a points race in its future?`\
+https://nytimes.com/athletic/6367731/2025/05/19/north-wilkesboro-nascar-all-star-race-future-points-race/
 
