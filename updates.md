@@ -1,3 +1,7 @@
+**Victor Munoz and Gonzalo Garcia: The academy players who shone in Sevilla for Real Madrid**\
+`Real Madrid fans were handed a glimpse of the future as two more 'canteranos' made their mark in the senior team against Sevilla`\
+https://nytimes.com/athletic/6366430/2025/05/19/gonzalo-garcia-victor-munoz-real-madrid-sevilla/
+
 **Takeaways From the Weinstein Trial, and a Look Ahead at Week 6**\
 `Harvey Weinstein’s retrial on sex charges resumes Monday in Manhattan. Jessica Mann, who testified at his 2020 trial, is expected to take the stand this week.`\
 https://nytimes.com/2025/05/19/nyregion/harvey-weinstein-trial-what-to-know-week-six.html
