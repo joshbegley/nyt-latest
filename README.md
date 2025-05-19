@@ -1,3 +1,7 @@
+**Napoli and Inter to play simultaneously on Friday to decide Serie A title**\
+`League leaders Napoli host 14th-place Cagliari, while Inter, who are a point further back, are go to Como.`\
+https://nytimes.com/athletic/6367171/2025/05/19/napoli-inter-title-serie-a-italy/
+
 **Brad Marchand, the Panthers and the inevitable: Another Game 7 win over the Leafs**\
 `Brad Marchand has played five Game 7s against Toronto. His record remains perfect as the Panthers step past the Maple Leafs one more time.`\
 https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-game-7-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365281/2025/05/19/detroit-red-wings-prospect-nhl-c
 **Up Next at the Sean Combs Trial: Dawn Richard and Former Employees**\
 `After four days with Casandra Ventura, known as Cassie, on the stand, prosecutors will be seeking to corroborate her testimony with additional witnesses.`\
 https://nytimes.com/2025/05/19/arts/music/sean-combs-diddy-trial.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/05/19/opinion/thepoint
 
