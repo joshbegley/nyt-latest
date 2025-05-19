@@ -1,3 +1,7 @@
+**Portugal’s Center Right Wins Election but Falls Short of Majority**\
+`The hard-right Chega party surged in the snap election, securing its status as a powerful political contender.`\
+https://nytimes.com/2025/05/19/world/europe/portugal-election-montenegro-chega.html
+
 **The Athletic FC: End of a 164-year wait, Inter Miami lose again, Ajax's title choke**\
 `Today in TAFC: Palace break their 164-year major trophy drought, Messi 'hurt' after losing again with Inter Miami.`\
 https://nytimes.com/athletic/6366994/2025/05/19/palace-fa-cup-inter-miami-ajax-title/
