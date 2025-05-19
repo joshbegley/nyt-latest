@@ -1,3 +1,11 @@
+**‘Sesame Street,’ Facing Crisis, Signs New Deal With Netflix**\
+`The deal is a much-needed shot in the arm for Sesame Workshop, the nonprofit that produces “Sesame Street” and has been struggling financially.`\
+https://nytimes.com/2025/05/19/business/media/sesame-street-netflix-pbs.html
+
+**Head of CBS News to Depart Amid Tensions With Trump**\
+`Wendy McMahon, the president of CBS News and Stations, had allied herself with Bill Owens, the “60 Minutes” executive producer who recently resigned.`\
+https://nytimes.com/2025/05/19/business/media/cbs-60-minutes-trump-wendy-mcmahon.html
+
 **Tariff Uncertainty Threatens to Drag Down Europe’s Economic Growth**\
 `The European Union scaled back its forecast for growth in 2025 by nearly half a percent, as the jump in tariffs and surrounding chaos bite.`\
 https://nytimes.com/2025/05/19/business/tariffs-european-union-economy-growth.html

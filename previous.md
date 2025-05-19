@@ -1,3 +1,11 @@
+**‘Sesame Street,’ Facing Crisis, Signs New Deal With Netflix**\
+`The deal is a much-needed shot in the arm for Sesame Workshop, the nonprofit that produces “Sesame Street” and has been struggling financially.`\
+https://nytimes.com/2025/05/19/business/media/sesame-street-netflix-pbs.html
+
+**Head of CBS News to Depart Amid Tensions With Trump**\
+`Wendy McMahon, the president of CBS News and Stations, had allied herself with Bill Owens, the “60 Minutes” executive producer who recently resigned.`\
+https://nytimes.com/2025/05/19/business/media/cbs-60-minutes-trump-wendy-mcmahon.html
+
 **Tariff Uncertainty Threatens to Drag Down Europe’s Economic Growth**\
 `The European Union scaled back its forecast for growth in 2025 by nearly half a percent, as the jump in tariffs and surrounding chaos bite.`\
 https://nytimes.com/2025/05/19/business/tariffs-european-union-economy-growth.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/pageoneplus/no-corrections-may-19-2025.html
 **Gary Lineker, the culture wars and why his BBC exit became a sad inevitability**\
 `A refusal to compromise on expressing his political opinions made the striker turned broadcaster's BBC position untenable after 26 years`\
 https://nytimes.com/athletic/6367193/2025/05/19/gary-lineker-leaving-bbc-motd/
-
-**The Bounce: Nuggets' elimination highlights issues around Nikola Jokić. How can Denver improve?**\
-`The Nuggets did their best to push the Thunder in Game 7, but their loss highlights issues around Nikola Jokić`\
-https://nytimes.com/athletic/6367216/2025/05/19/nikola-jokic-nuggets-thunder-alex-caruso-nba-playoffs-the-bounce/
-
-**Giro d’Italia week one: How the white roads of Tuscany exploded the race for the pink jersey**\
-`We review a dramatic start to the race, featuring dominant Danes, popular redemption arcs, painful crashes and a successful foray to Albania`\
-https://nytimes.com/athletic/6365511/2025/05/19/giro-ditalia-week-one-review-cycling/
 
