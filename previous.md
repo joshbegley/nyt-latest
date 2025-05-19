@@ -1,40 +1,40 @@
-**The issues Barcelona need to solve next season after winning La Liga**\
-`Barcelona are hopeful of a settled summer - but there remain positions that need strengthening and player futures to solve `\
-https://nytimes.com/athletic/6366868/2025/05/19/barcelona-transfers-laporta-flick-la-liga/
+**If Cowboys get George Pickens' best in 2025, what would that mean for 2026 and beyond?**\
+`Pickens, 24, is entering the final year of his rookie deal and is set to be an unrestricted free agent in 2026.`\
+https://nytimes.com/athletic/6365359/2025/05/19/cowboys-george-pickens-contract-future/
 
-**Tornado Rips Through Colorado**\
-`Tornadoes reported in Bennett, Colo., damaged buildings as forecasters said a severe storm system would roll through parts of the Midwest.`\
-https://nytimes.com/video/world/americas/100000010177412/weather-sunday-tornado-forecast-kansas-oklahoma-storms.html
+**Packers with most to prove: 7 players, including Jordan Love, facing pivotal seasons**\
+`Which Packers are under the most pressure to up their game this coming season? The starting quarterback is one of them.`\
+https://nytimes.com/athletic/6365390/2025/05/19/packers-key-players-jordan-love-jayden-reed/
 
-**Gary Lineker expected to leave BBC after 26 years**\
-`Lineker, 64, “apologised unreservedly” last week after being heavily criticised for sharing a social media post that included a rat emoji.`\
-https://nytimes.com/athletic/6362097/2025/05/19/gary-lineker-bbc-motd-leaves/
+**The Moody’s Downgrade Is an Alarm. Washington Better Pay Attention.**\
+`Moody’s announcement last week means that not one of the firms that rate America’s debt still consider it pristine.`\
+https://nytimes.com/2025/05/19/opinion/moodys-downgrade.html
 
-**Victor Munoz and Gonzalo Garcia: The academy players who shone in Seville for Real Madrid**\
-`Madrid fans were handed a glimpse of the future as two more homegrown 'canteranos' made their mark in the senior team`\
-https://nytimes.com/athletic/6366430/2025/05/19/gonzalo-garcia-victor-munoz-real-madrid-sevilla/
+**The Sailing Ship That Went in the Wrong Direction**\
+`The Cuauhtémo hit the Brooklyn Bridge, killing two crew members. It had intended to sail the other way.`\
+https://nytimes.com/2025/05/19/nyregion/the-sailing-ship-that-went-in-the-wrong-direction.html
 
-**Takeaways From the Weinstein Trial, and a Look Ahead at Week 6**\
-`Harvey Weinstein’s retrial on sex charges resumes Monday in Manhattan. Jessica Mann, who testified at his 2020 trial, is expected to take the stand this week.`\
-https://nytimes.com/2025/05/19/nyregion/harvey-weinstein-trial-what-to-know-week-six.html
+**Help! How Do I Make Sense of All These Trends?**\
+`As new fads crop up faster and faster, it can be hard to decide what to buy. Our critic offers a solution: developing your personal style.`\
+https://nytimes.com/2025/05/19/fashion/help-how-do-i-make-sense-of-all-these-trends.html
 
-**Israel and Antisemitism Loom Large as Issues in the N.Y.C. Mayor’s Race**\
-`Andrew Cuomo has attacked opponents, including Jewish ones, as antisemitic, while other candidates believe the issue is being used as a weapon to win Jewish voters.`\
-https://nytimes.com/2025/05/19/nyregion/israel-gaza-antisemitism-mayor-nyc.html
+**‘The Order,’ ‘The Outrun’ and More Streaming Gems**\
+`A handful of last year’s best (yet overlooked) indies are among this month’s hidden treasures on your subscription streamers.`\
+https://nytimes.com/2025/05/19/movies/offbeat-movies-streaming.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/19/crosswords/spelling-bee-forum.html
+**Panthers rookie TE Mitchell Evans 'versatile guy' who's ready to do whatever it takes**\
+`Dave Canales touts Mitchell Evans' versatility — he played QB in high school — after catching a team-best 43 passes last season.`\
+https://nytimes.com/athletic/6351033/2025/05/19/panthers-mitchell-evans-rookie-tight-end-notre-dame/
 
-**Giants takeaways: Dominant pitching leads to a weekend sweep**\
-`With exceptional pitching, the Giants swept the Athletics over the weekend. The entire A's team drove in only three runs in the series.`\
-https://nytimes.com/athletic/6366459/2025/05/19/giants-takeaways-weekend-sweep/
+**New York’s Spring Auctions Aimed for Trophies. They Got Troubles.**\
+`Performing below their low estimates, the auction houses bet on a “flight to quality” but found little interest from bidders on top lots.`\
+https://nytimes.com/2025/05/19/arts/design/new-york-art-auctions-assess.html
 
-**Word of the Day: askance**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/19/learning/word-of-the-day-askance.html
+**Missteps and Party Fissures Bedevil Pittsburgh Mayor’s Re-election Run**\
+`The Democratic primary for mayor of Pittsburgh on Tuesday has become something of a proxy for the national struggle over the party’s future direction.`\
+https://nytimes.com/2025/05/19/us/politics/pittsburgh-mayor-election-gainey-oconnor.html
 
-**Russia Launches One of Its Largest Drone Attacks on Ukraine**\
-`The strike took place a day ahead of an anticipated conversation between President Donald Trump and President Vladimir Putin of Russia.`\
-https://nytimes.com/video/world/europe/100000010177337/russia-ukraine-drones.html
+**4 Audiobooks To Listen To Now**\
+`Lauren Christensen, an editor at the New York Times Book Review, recommends four of her favorite audiobooks.`\
+https://nytimes.com/video/books/100000010171660/4-audiobooks-to-listen-to-now.html
 
