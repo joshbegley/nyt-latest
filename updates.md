@@ -1,3 +1,11 @@
+**Mac Allister ruled out of Liverpool's final Premier League game**\
+`"He needs rest to recover completely and to be ready for the start next season, that will be no problem," head coach Arne Slot said.`\
+https://nytimes.com/athletic/6368725/2025/05/19/alexis-mac-allister-injury-liverpool/
+
+**Hudson Yards Developer Drops Casino Bid in Face of Political Opposition**\
+`Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
+https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html
+
 **Hudson Yards Drops Casino Bid in Face of Political Opposition**\
 `Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
 https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html

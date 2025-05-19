@@ -1,3 +1,7 @@
+**Judge Rules That Trump Administration Takeover of Institute of Peace Is Illegal**\
+`Judge Beryl Howell of U.S. District Court in Washington said that the administration, in a “gross usurpation of power,” had acted with “blunt force” against the independent agency.`\
+https://nytimes.com/2025/05/19/us/politics/institute-of-peace-trump.html
+
 **Mac Allister ruled out of Liverpool's final Premier League game**\
 `"He needs rest to recover completely and to be ready for the start next season, that will be no problem," head coach Arne Slot said.`\
 https://nytimes.com/athletic/6368725/2025/05/19/alexis-mac-allister-injury-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/books/jim-butcher-the-dresden-files.html
 **Trump Administration Discussing Paying $5 Million to Family of Jan. 6 Rioter**\
 `The payment, if approved, would represent an extraordinary concession by the Justice Department, which prosecuted nearly 1,600 people in connection with the riot.`\
 https://nytimes.com/2025/05/19/us/politics/ashli-babbitt-jan-6-settlement-trump.html
-
-**The Briefing: Brighton 3 Liverpool 2 - Why Slot will have loved Elliott's opener, and Salah shows he's human...**\
-`Liverpool slipped to a surprise defeat away to Brighton after leading at half-time. Our Liverpool writer analyses the key talking points`\
-https://nytimes.com/athletic/6365474/2025/05/19/liverpool-defeat-brighton-elliott-salah-miss/
 
