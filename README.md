@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, May 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/19/todays-new-york-times
+
+**‘Sirens,’ Plus 7 Things to Watch on TV this Week**\
+`A mini series starring Meghann Fahy comes to Netflix. Two HBO shows wrap up their seasons.`\
+https://nytimes.com/2025/05/19/arts/television/watch-on-tv-this-week-sirens.html
+
+**Trump Doesn’t Realize China Is Pulling Ahead of the U.S.**\
+`Trump’s fixation on tariffs while he undermines America’s competitive strengths is hastening the onset of the “Chinese Century.”`\
+https://nytimes.com/2025/05/19/opinion/china-us-trade-tariffs.html
+
 **Monday Briefing**\
 `Talks between Putin and Trump.`\
 https://nytimes.com/2025/05/19/briefing/putin-trump-talks-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6366692/2025/05/19/mets-yankees-defense-concerns/
 **Another West Ham defeat leaves fans with little optimism for next season: 'It looks bleak'**\
 `A final home match was a time for fans to reflect and look ahead. Their feeling is Graham Potter has a lot of work to do`\
 https://nytimes.com/athletic/6364970/2025/05/19/west-ham-next-season-fans/
-
-**Forest's tribute to Awoniyi showed their unity under Nuno. It was clear in the performance, too**\
-`Forest have given themselves a final-day Champions League chance after recovering from a slump in form to beat West Ham`\
-https://nytimes.com/athletic/6365449/2025/05/19/forest-togetherness-awoniyi/
-
-**Chelsea's domestic dominance still won’t be considered enough until Europe is conquered, too**\
-`Chelsea are getting stronger – a treble and an unbeaten domestic season prove that - but they still need a star striker to succeed in Europe`\
-https://nytimes.com/athletic/6365414/2025/05/19/chelsea-domestic-dominance-europe-bompastor/
-
-**Siegel: The Shanaplan failed. This should finally be it for the Core Four Leafs**\
-`After yet another Leafs season ended with a whimper rather than a bang, enough has to be enough.`\
-https://nytimes.com/athletic/6366611/2025/05/19/maple-leafs-shanahan-nhl-playoffs-marner/
 
