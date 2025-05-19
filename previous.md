@@ -1,3 +1,7 @@
+**Britain and E.U. Strike Landmark Brexit Reset Deal**\
+`As leaders gathered in London for a long awaited summit, a senior British minister said his country had secured a new agreement with the bloc.`\
+https://nytimes.com/2025/05/19/world/europe/uk-eu-deal-brexit-reset.html
+
 **If Cowboys get George Pickens' best in 2025, what would that mean for 2026 and beyond?**\
 `Pickens, 24, is entering the final year of his rookie deal and is set to be an unrestricted free agent in 2026.`\
 https://nytimes.com/athletic/6365359/2025/05/19/cowboys-george-pickens-contract-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/arts/design/new-york-art-auctions-assess.html
 **Missteps and Party Fissures Bedevil Pittsburgh Mayor’s Re-election Run**\
 `The Democratic primary for mayor of Pittsburgh on Tuesday has become something of a proxy for the national struggle over the party’s future direction.`\
 https://nytimes.com/2025/05/19/us/politics/pittsburgh-mayor-election-gainey-oconnor.html
-
-**4 Audiobooks To Listen To Now**\
-`Lauren Christensen, an editor at the New York Times Book Review, recommends four of her favorite audiobooks.`\
-https://nytimes.com/video/books/100000010171660/4-audiobooks-to-listen-to-now.html
 
