@@ -1,3 +1,11 @@
+**Children of Dave**\
+`A man tests the theory that a lot of the misery in his life can be traced to a single moment that happened years before he was born.`\
+https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
+
+**Greenberg: Behind another exciting Pete Crow-Armstrong game, Cubs sweep the White Sox**\
+`Cubs star went 8-for-14 with a homer, a double and two triples, 8 RBIs and four runs scored in front of crowds eclipsing 40,000 all weekend.`\
+https://nytimes.com/athletic/6366189/2025/05/18/cubs-white-sox-pete-crow-armstrong-crosstown-classic-series/
+
 **Mick Abel shines in history-making Phillies debut after overcoming rocky 2024 season**\
 `“There were times I didn’t think I would be (here last summer),” Abel said. “But there were other times where I would." `\
 https://nytimes.com/athletic/6366091/2025/05/18/mick-abel-phillies-mlb-debut/
