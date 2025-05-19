@@ -1,3 +1,7 @@
+**Tornado Rips Through Colorado**\
+`Tornadoes reported in Bennett, Colo., damaged buildings as forecasters said a severe storm system would roll through parts of the Midwest.`\
+https://nytimes.com/video/world/americas/100000010177412/weather-sunday-tornado-forecast-kansas-oklahoma-storms.html
+
 **Gary Lineker expected to leave BBC after 26 years**\
 `Lineker, 64, “apologised unreservedly” last week after being heavily criticised for sharing a social media post that included a rat emoji.`\
 https://nytimes.com/athletic/6362097/2025/05/19/gary-lineker-bbc-motd-leaves/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010177337/russia-ukraine-drones.htm
 **What we learned about the Yankees in Subway Series win over Mets**\
 `For Juan Soto, love doesn’t live at Yankee Stadium anymore. Jorbit Vivas had the biggest at-bat of Sunday’s win.`\
 https://nytimes.com/athletic/6366787/2025/05/19/yankees-subway-series-win-mets/
-
-**Maple Leafs trudge to yet another disappointing Game 7 loss: 'It's heartbreaking'**\
-`Scenes from the Leafs' seventh straight Game 7 loss, from Craig Berube losing his cool to jerseys hitting the ice.`\
-https://nytimes.com/athletic/6366734/2025/05/19/maple-leafs-game-7-nhl-playoffs-berube-marner/
 
