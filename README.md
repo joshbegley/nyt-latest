@@ -1,3 +1,11 @@
+**Intriguing inclusions, omissions from preliminary USMNT Gold Cup squad**\
+`Mauricio Pochettino will whittle down this 60-man group to his final 26-man squad for this summer's Concacaf Gold Cup.`\
+https://nytimes.com/athletic/6367890/2025/05/19/usmnt-gold-cup-preliminary-squad-roster-pochettino/
+
+**Mohsen Mahdawi, Released From ICE Custody, Graduates From Columbia**\
+`Mr. Mahdawi, who led pro-Palestinian demonstrations at Columbia University, was released from detention late last month and allowed to travel from Vermont to get his diploma.`\
+https://nytimes.com/2025/05/19/nyregion/mohsen-mahdawi-columbia-graduation.html
+
 **Review: A New Opera Gives Music to the Unsaid and Unsayable**\
 `Unsuk Chin’s “The Dark Side of the Moon,” a reinterpretation of the Faust myth, reflects a restless mind with constant musical invention.`\
 https://nytimes.com/2025/05/19/arts/music/unsuk-chin-dark-side-of-the-moon-opera-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packer
 **Lincoln Center Plans a $335 Million Makeover of Its Western Edge**\
 `The center in Manhattan aims to attract new audiences, as it takes down a wall on Amsterdam Avenue and revamps Damrosch Park.`\
 https://nytimes.com/2025/05/19/arts/music/lincoln-center-west-edge-335-million.html
-
-**Get Ready for a Kinder, Gentler Balenciaga**\
-`Pierpaolo Piccioli is the new creative director of the house, and he wants nothing less than to change the image of fashion.`\
-https://nytimes.com/2025/05/19/style/pierpaolo-piccioli-balenciaga-designer.html
-
-**North Wilkesboro, after NASCAR All-Star Race success, has a good kind of problem**\
-`In its critical third year, North Wilkesboro has shown the enthusiasm is still there for NASCAR. Is a points race in its future?`\
-https://nytimes.com/athletic/6367731/2025/05/19/north-wilkesboro-nascar-all-star-race-future-points-race/
 

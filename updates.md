@@ -1,3 +1,15 @@
+**Review: A New Opera Gives Music to the Unsaid and Unsayable**\
+`Unsuk Chin’s “The Dark Side of the Moon,” a reinterpretation of the Faust myth, reflects a restless mind with constant musical invention.`\
+https://nytimes.com/2025/05/19/arts/music/unsuk-chin-dark-side-of-the-moon-opera-review.html
+
+**WNBA mailbag: Submit your questions for No Offseason podcast**\
+`Get expert advice from our reporters and podcast experts. `\
+https://nytimes.com/athletic/6367782/2025/05/19/wnba-mailbag-submit-your-questions-for-no-offseason-podcast/
+
+**2025 Stanley Cup winner odds: Oilers enter conference finals as slight favorites**\
+`The Edmonton Oilers are the slightest of favorites to win the Stanley Cup before the conference finals start, but the odds are very tight. `\
+https://nytimes.com/athletic/6367716/2025/05/19/stanley-cup-winner-odds-oilers-panthers-stars-hurricanes/
+
 **Chelsea's Castledine expecting to leave club permanently this summer**\
 `The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
 https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
