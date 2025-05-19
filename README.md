@@ -1,3 +1,7 @@
+**My First Thought When I Heard Joe Biden’s News**\
+`What Joe Biden understands about America’s place in the world, even now.`\
+https://nytimes.com/2025/05/19/opinion/joe-biden-cancer-diagnosis.html
+
 **College baseball week in review: SEC teams jockeying for top seeds in NCAA tourney**\
 `Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
 https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365797/2025/05/19/edmonton-oilers-nhl-playoffs-202
 **How Matthew Liberatore cracked the code and rewarded Cardinals' faith**\
 `Team officials committed to him as a starter and Liberatore vowed to be better prepared: "He created his runway. He changed his trajectory."`\
 https://nytimes.com/athletic/6350253/2025/05/19/how-matthew-liberatore-cracked-the-code-and-rewarded-cardinals-faith/
-
-**Trump Administration Live Updates: President to Call Putin and Push for Ukraine Cease-Fire**\
-``\
-https://nytimes.com/live/2025/05/19/us/trump-news
 
