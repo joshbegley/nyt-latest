@@ -1,3 +1,7 @@
+**A Scientist Fighting Nuclear Armageddon Hid a 50-Year Secret**\
+`Richard Garwin’s role in designing the hydrogen bomb was obscured from the public, even his family, as he advised presidents and devoted his life to undoing the danger he created.`\
+https://nytimes.com/2025/05/19/science/richard-garwin-hydrogen-bomb.html
+
 **Arsenal's Timber to undergo minor procedure on ankle**\
 `The 23-year-old Netherlands international has played the fifth-most minutes for the club this season.`\
 https://nytimes.com/athletic/6367235/2025/05/19/jurrien-timber-injury-ankle-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-
 **Napoli and Inter to play simultaneously on Friday to decide Serie A title**\
 `League leaders Napoli host 14th-place Cagliari, while Inter, who are a point further back, are go to Como.`\
 https://nytimes.com/athletic/6367171/2025/05/19/napoli-inter-title-serie-a-italy/
-
-**Brad Marchand, the Panthers and the inevitable: Another Game 7 win over the Leafs**\
-`Brad Marchand has played five Game 7s against Toronto. His record remains perfect as the Panthers step past the Maple Leafs one more time.`\
-https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-game-7-nhl-playoffs/
 
