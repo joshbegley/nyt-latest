@@ -1,3 +1,7 @@
+**The ‘Sell America’ Trade Makes a Comeback**\
+`Investors sold stocks and bonds after Moody’s downgraded the U.S. credit rating, potentially complicating negotiations around Republicans’ tax plan.`\
+https://nytimes.com/2025/05/19/business/dealbook/taxes-trump-moodys-deficit.html
+
 **FPL: Fantasy Premier League: What we learnt from Gameweek 37 (so far) - Isak's injury and Arsenal worries**\
 `Abdul Rehman reviews the main talking points from Gameweek 37 so far in Fantasy Premier League`\
 https://nytimes.com/athletic/6365909/2025/05/19/fantasy-premier-league-gameweek-37-saliba-isak/

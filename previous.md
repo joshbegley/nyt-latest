@@ -1,3 +1,7 @@
+**The ‘Sell America’ Trade Makes a Comeback**\
+`Investors sold stocks and bonds after Moody’s downgraded the U.S. credit rating, potentially complicating negotiations around Republicans’ tax plan.`\
+https://nytimes.com/2025/05/19/business/dealbook/taxes-trump-moodys-deficit.html
+
 **FPL: Fantasy Premier League: What we learnt from Gameweek 37 (so far) - Isak's injury and Arsenal worries**\
 `Abdul Rehman reviews the main talking points from Gameweek 37 so far in Fantasy Premier League`\
 https://nytimes.com/athletic/6365909/2025/05/19/fantasy-premier-league-gameweek-37-saliba-isak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6364467/2025/05/19/twins-lineup-without-byron-buxto
 **Real Madrid want fitness coach Antonio Pintus to remain at club**\
 `The Spanish club want the 62-year-old Italian to continue in his role as physical trainer under prospective new head coach Xabi Alonso.`\
 https://nytimes.com/athletic/6365426/2025/05/19/antonio-pintus-real-madrid-future/
-
-**The Hurricanes don't care if you think they're boring: 'We’re trying to win hockey games'**\
-`The Hurricanes are once again eight wins away from a Stanley Cup, despite many in the hockey world dubbing their playing style "boring."`\
-https://nytimes.com/athletic/6366023/2025/05/19/carolina-hurricanes-nhl-playoffs-boring/
 
