@@ -1,3 +1,7 @@
+**Arsenal's Timber to undergo minor procedure on ankle**\
+`The 23-year-old Netherlands international has played the fifth-most minutes for the club this season.`\
+https://nytimes.com/athletic/6367235/2025/05/19/jurrien-timber-injury-ankle-arsenal/
+
 **Gary Lineker, the culture wars and why his BBC exit became a sad inevitability**\
 `A refusal to compromise on expressing his political opinions made the striker turned broadcaster's BBC position untenable after 26 years`\
 https://nytimes.com/athletic/6367193/2025/05/19/gary-lineker-leaving-bbc-motd/

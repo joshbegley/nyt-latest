@@ -1,3 +1,7 @@
+**Arsenal's Timber to undergo minor procedure on ankle**\
+`The 23-year-old Netherlands international has played the fifth-most minutes for the club this season.`\
+https://nytimes.com/athletic/6367235/2025/05/19/jurrien-timber-injury-ankle-arsenal/
+
 **No Corrections: May 19, 2025**\
 `No corrections appeared in print on Monday, May 19, 2025.`\
 https://nytimes.com/2025/05/19/pageoneplus/no-corrections-may-19-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367171/2025/05/19/napoli-inter-title-serie-a-italy
 **Brad Marchand, the Panthers and the inevitable: Another Game 7 win over the Leafs**\
 `Brad Marchand has played five Game 7s against Toronto. His record remains perfect as the Panthers step past the Maple Leafs one more time.`\
 https://nytimes.com/athletic/6367118/2025/05/19/brad-marchand-panthers-leafs-game-7-nhl-playoffs/
-
-**England announce two additions to Wiegman's coaching staff**\
-`Janneke Bijl and Arvid Smit both worked closely with Wiegman during her time as Netherlands head coach.`\
-https://nytimes.com/athletic/6367221/2025/05/19/england-women-coaching-staff-bijl-smit/
 
