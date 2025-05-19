@@ -1,3 +1,11 @@
+**The Doctor behind the Hurricanes, GM Eric Tulsky's bold moves are paying off — with even bolder ones ahead**\
+`Is he the Doctor or the Gambler? Tulsky went for Mikko Rantanen. He went for Mitch Marner. And he’s got cap space in the coming years.`\
+https://nytimes.com/athletic/6368071/2025/05/19/eric-tulsky-hurricanes-gm-bold-moves/
+
+**A Genetic Clue to Why Men Are Taller Than Women**\
+`Researchers studied data from a million people and found evidence that a height gene shared by both sexes is amplified in men.`\
+https://nytimes.com/2025/05/19/health/height-men-women-genes.html
+
 **Israel Recovers Troves of Documents Belonging to Its Most Famous Spy**\
 `Israel has long sought to bring home from Syria the remains of Eli Cohen, whose spying work is credited with helping Israel win the Arab-Israeli War of 1967.`\
 https://nytimes.com/2025/05/19/world/middleeast/eli-cohen-spy-israel-syria.html
