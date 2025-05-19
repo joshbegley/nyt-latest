@@ -1,3 +1,7 @@
+**Gary Lineker, the culture wars and why his BBC exit became a sad inevitability**\
+`A refusal to compromise on expressing his political opinions made the striker turned broadcaster's BBC position untenable after 26 years`\
+https://nytimes.com/athletic/6367193/2025/05/19/gary-lineker-leaving-bbc-motd/
+
 **No Corrections: May 19, 2025**\
 `No corrections appeared in print on Monday, May 19, 2025.`\
 https://nytimes.com/2025/05/19/pageoneplus/no-corrections-may-19-2025.html
