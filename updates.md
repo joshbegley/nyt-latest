@@ -1,3 +1,7 @@
+**Hudson Yards Drops Casino Bid in Face of Political Opposition**\
+`Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
+https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html
+
 **Melania Trump Joins the President to Sign Revenge Porn Bill She Championed**\
 `The bill, known as the Take It Down Act, mandates social media platforms to remove sexually explicit images and videos of others.`\
 https://nytimes.com/2025/05/19/us/melania-trump-take-it-down-act.html
