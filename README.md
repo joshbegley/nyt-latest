@@ -1,3 +1,7 @@
+**College baseball week in review: SEC teams jockeying for top seeds in NCAA tourney**\
+`Georgia Tech wins ACC title in Danny Hall's final season. Oregon, UCLA share Big Ten crown. Northeastern extends winning streak to 24. `\
+https://nytimes.com/athletic/6365535/2025/05/19/college-baseball-sec-texas-arkansas-lsu-vanderbilt/
+
 **Pep Guardiola's strange tactics hindered Manchester City's cause in the FA Cup final**\
 `Guardiola's overly attacking starting line-up allowed Crystal Palace to exploit City's left flank and caps a disappointing season `\
 https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350253/2025/05/19/how-matthew-liberatore-cracked-t
 **Trump Administration Live Updates: President to Call Putin and Push for Ukraine Cease-Fire**\
 ``\
 https://nytimes.com/live/2025/05/19/us/trump-news
-
-**High, median and low NHL comparables for Red Wings' top prospects**\
-`Prospects have a wide range of outcomes. Let's break down three comparable NHL players for the Red Wings' top four prospects.`\
-https://nytimes.com/athletic/6365281/2025/05/19/detroit-red-wings-prospect-nhl-comparables/
 
