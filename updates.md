@@ -1,3 +1,15 @@
+**Map: 3.8-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/05/19/us/california-quake-bakersfield.html
+
+**U.S. tennis to spend $800 million on transforming U.S. Open venue in New York City**\
+`The U.S. Open's facelift includes renovations to Arthur Ashe Stadium and a new player facility at the Billie Jean King Tennis Center.`\
+https://nytimes.com/athletic/6368092/2025/05/19/tennis-us-open-stadiums-venue-renovation/
+
+**Man Utd executives hold face-to-face talks with Delap**\
+`Amorim's side are also advancing on a move for Wolves' Matheus Cunha, with talks so far centring on personal terms.`\
+https://nytimes.com/athletic/6368115/2025/05/19/liam-delap-manchester-united/
+
 **Canada manager Marsch weighs in on Jonathan David's summer transfer**\
 `Jonathan David's next destination is a development of great intrigue for the player, his national team and many European clubs`\
 https://nytimes.com/athletic/6368137/2025/05/19/jonathan-david-jesse-marsch-canada-summer-transfer-gold-cup/
