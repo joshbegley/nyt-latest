@@ -1,3 +1,15 @@
+**Central U.S. Faces Another Round of Severe Weather**\
+`Much of Oklahoma is at high risk for tornadoes on Monday, but forecasters warned the region could see additional hazards including very large hail, severe winds and flash flooding.`\
+https://nytimes.com/2025/05/19/weather/kansas-oklahoma-tornado-forecast-monday.html
+
+**Michele Kang rebrands Lyon Feminin as OL Lyonnes**\
+`Kang also announced the club will build a bespoke performance center designed specifically for female athletes.`\
+https://nytimes.com/athletic/6367616/2025/05/19/lyon-feminin-ol-lyonnes/
+
+**Red Light: Where do the Leafs go next? Plus: Scheifele’s remarkable moment**\
+`We may have seen Mitch Marner's final game as a Toronto Maple Leaf.`\
+https://nytimes.com/athletic/6367592/2025/05/19/maple-leafs-red-light-newsletter/
+
 **What to Know About Israel’s Expanding Ground Offensive in Gaza**\
 `The announcement of a renewed ground operation came after a particularly deadly week for Palestinians in Gaza.`\
 https://nytimes.com/2025/05/19/world/middleeast/israel-gaza-ground-offensive.html
