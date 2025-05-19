@@ -1,3 +1,15 @@
+**Thunder stay 'in character,' join a delightfully surprising NBA Final Four**\
+`In this age of parity and second-apron hell that has all been by design, you couldn’t ask for a better flurry at the finish.`\
+https://nytimes.com/athletic/6366545/2025/05/18/thunder-nuggets-game-7-nba-conference-finals-preview/
+
+**Lionel Messi says Inter Miami's second straight loss 'hurts' amid woeful stretch**\
+`The loss brought Miami’s record to just 3-3-6 over its past 12 matches in all competitions.`\
+https://nytimes.com/athletic/6366508/2025/05/18/lionel-messi-inter-miami-loss-comments/
+
+**The 'Jokić Stopper': How Alex Caruso and the Thunder defense snatched Game 7**\
+`After a Game 7 defensive show, Caruso will more than likely see his fair share against Anthony Edwards and Julius Randle.`\
+https://nytimes.com/athletic/6366008/2025/05/18/alex-caruso-thunder-defense-game-7-nuggets/
+
 **Padres' offense fueled them last season. Now, they're searching for it**\
 `In 2025, the club's efforts to again fill out an offense on a budget have yet to produce such promising returns.`\
 https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-missing/
