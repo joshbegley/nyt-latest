@@ -1,3 +1,7 @@
+**Children of Dave**\
+`A man tests the theory that a lot of the misery in his life can be traced to a single moment that happened years before he was born.`\
+https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
+
 **Greenberg: Behind another exciting Pete Crow-Armstrong game, Cubs sweep the White Sox**\
 `Cubs star went 8-for-14 with a homer, a double and two triples, 8 RBIs and four runs scored in front of crowds eclipsing 40,000 all weekend.`\
 https://nytimes.com/athletic/6366189/2025/05/18/cubs-white-sox-pete-crow-armstrong-crosstown-classic-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366045/2025/05/18/twins-win-streak-ends-royce-lewi
 **Arteta set to serve touchline ban for Arsenal's PL finale vs. Southampton**\
 `Arsenal secured Champions League qualification on Sunday with a 1-0 victory over Newcastle.`\
 https://nytimes.com/athletic/6365494/2025/05/18/arsenal-mikel-arteta-touchline-ban/
-
-**How Thunder wore down Nuggets to reach Western finals: Takeaways**\
-`Alex Caruso pestered Nikola Jokić and the Thunder ran to the Western Conference finals with a Game 7 rout.`\
-https://nytimes.com/athletic/6365902/2025/05/18/nba-playoffs-takeaways-nuggets-thunder-game-7/
 
