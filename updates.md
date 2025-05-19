@@ -1,3 +1,11 @@
+**Debt Downgrade Bolsters The Right In Congressional Talks Over Megabill**\
+`Conservatives have been holding out against the major tax and spending cut package to implement President Trump’s agenda, arguing it will swell federal deficits. The Moody’s downgrade underscored their concerns.`\
+https://nytimes.com/2025/05/19/us/politics/debt-downgrade-congress.html
+
+**All That Trump Has Changed**\
+`Four months in, the president and his advisers have overwhelmed political opponents who are still grasping for a message and a means with which to fight back.`\
+https://nytimes.com/2025/05/19/us/politics/trump-politics-democrats-republicans.html
+
 **Thousands of Chicks Left in Postal Service Truck Overwhelm a Delaware Shelter**\
 `About 4,000 birds were found dead in the truck, and 10,000 others were stranded there for three days, state officials said. The hatchery that shipped the chicks said it did not know why the shipment had never made it to its destinations.`\
 https://nytimes.com/2025/05/19/us/chicks-usps-animal-shelter-delaware.html

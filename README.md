@@ -1,3 +1,11 @@
+**Did Usher Write His Own Commencement Speech? (Yeah!)**\
+`Usher told Emory’s Class of 2025 a story about himself that he has rarely shared. Here is how late-night brainstorming, careful editing and last-minute riffing led to that moment.`\
+https://nytimes.com/interactive/2025/05/19/us/usher-commencement-speech-emory.html
+
+**What we learned from Celtics' Brad Stevens on Jayson Tatum, Jaylen Brown and offseason plans**\
+`Stevens says star Tatum has a “long road ahead” in his recovery after rupturing his Achilles tendon.`\
+https://nytimes.com/athletic/6368640/2025/05/19/celtics-brad-stevens-jayson-tatum-jaylen-brown-injury/
+
 **Debt Downgrade Bolsters The Right In Congressional Talks Over Megabill**\
 `Conservatives have been holding out against the major tax and spending cut package to implement President Trump’s agenda, arguing it will swell federal deficits. The Moody’s downgrade underscored their concerns.`\
 https://nytimes.com/2025/05/19/us/politics/debt-downgrade-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6368725/2025/05/19/alexis-mac-allister-injury-liver
 **Hudson Yards Developer Drops Casino Bid in Face of Political Opposition**\
 `Shortly after Wynn Resorts withdrew from a casino bid on Manhattan’s Far West Side, Related Companies formally pulled the plug and announced a new housing plan.`\
 https://nytimes.com/2025/05/19/nyregion/wynn-casino-hudson-yards.html
-
-**Melania Trump Joins the President to Sign Revenge Porn Bill She Championed**\
-`The bill, known as the Take It Down Act, mandates social media platforms to remove sexually explicit images and videos of others.`\
-https://nytimes.com/2025/05/19/us/melania-trump-take-it-down-act.html
-
-**Ari Aster on ‘Eddington’: It’s ‘About What the Country Felt Like to Me’**\
-`The Covid-era satire has been divisive at Cannes, but the director has not seen the reviews. He’s focused on his fears about where the world is headed.`\
-https://nytimes.com/2025/05/19/movies/ari-aster-eddington-cannes.html
 
