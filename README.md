@@ -1,3 +1,15 @@
+**Newcastle set for five-team Champions League shootout - but will Isak be back?**\
+`It all comes down to the final day for Eddie Howe's side as they bid for a return to Europe's top table.`\
+https://nytimes.com/athletic/6365796/2025/05/19/newcastle-champions-league-isak-2/
+
+**Vardy's last party: An emotional ending to one of the Premier League's greatest stories**\
+`As the Leicester legend's career at the club came to an end, players past and present came to say goodbye and thank you with the fans`\
+https://nytimes.com/athletic/6365382/2025/05/19/jamie-vardy-leicester-farewell/
+
+**The Briefing: The 2,500-1 shot that every neutral should love - and what now for City?**\
+`The major talking points from the weekend's football - also featuring Jamie Vardy being Jamie Vardy`\
+https://nytimes.com/athletic/6365808/2025/05/19/crystal-palace-liverpool-newcastle-trophies/
+
 **Liverpool’s lost fans and the title they never got to see**\
 `Families of fans who suffered during the Covid-19 pandemic reveal what they lost and why Liverpool's title win is bittersweet`\
 https://nytimes.com/athletic/6352126/2025/05/19/liverpool-title-covid-fans-died/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/19/world/africa/south-africa-white-genocide-trump-ra
 **Quote of the Day:A Haven for High School Girls’ Wrestling, Filled With Grit and Pride**\
 `Quote of the Day for Monday, May 19, 2025`\
 https://nytimes.com/2025/05/19/pageoneplus/quote-of-the-daya-haven-for-high-school-girls-wrestling-filled-with-grit-and-pride.html
-
-**U.K.-E.U. Summit: What to Know as Officials Gather to Talk Defense, Trade and More**\
-`Top officials from Britain and the European Union will gather in London on Monday. Here’s what to expect.`\
-https://nytimes.com/2025/05/19/world/europe/uk-eu-summit-starmer.html
-
-**Russia Beefs Up Forces Near Finland’s Border**\
-`Tents, shelters for fighter jets and warehouses for military vehicles show increased Russian presence near one of NATO’s newest members.`\
-https://nytimes.com/2025/05/19/world/europe/russia-beefs-up-forces-near-finlands-border.html
-
-**Connections: Sports Edition Coach: Hints for May 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6366523/2025/05/19/connections-sports-edition-hints-for-may-19-2025/
 
