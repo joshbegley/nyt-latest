@@ -1,3 +1,15 @@
+**The Supreme Court Order**\
+`The Supreme Court Order`\
+https://nytimes.com/interactive/2025/05/19/us/politics/19dc-scotus-immig.html
+
+**13-Year-Old Boy Charged in Killing of Girl, 16, in the South Bronx**\
+`Evette Jeffrey was an unintended victim of the shooting on May 12 after a schoolyard fight. Two boys in their early teens have now been charged in the killing.`\
+https://nytimes.com/2025/05/19/nyregion/south-bronx-teen-killing-arrest.html
+
+**Modi’s Government Cracks Down on Dissent Over Pakistan Conflict**\
+`The arrest of a political science professor shows Indian leaders’ sensitivity to the political fallout from the military flare-up.`\
+https://nytimes.com/2025/05/19/world/asia/india-antiwar-dissent-mahmudabad.html
+
 **Lowetide: How the Oilers are diminishing criticism that they lack a rugged edge**\
 `The Oilers are moving the puck quickly, winning more battles and spending less energy chasing.`\
 https://nytimes.com/athletic/6365383/2025/05/19/edmonton-oilers-stats-nhl-playoffs-2025/

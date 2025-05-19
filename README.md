@@ -22,7 +22,7 @@ https://nytimes.com/2025/05/19/business/trump-spac-deals.html
 `The government is widening a crackdown on tourist rentals as it seeks to alleviate a painful housing crunch.`\
 https://nytimes.com/2025/05/19/business/airbnb-listings-spain.html
 
-**Long-Lost Bust of Jim Morrison Is Recovered in Paris**\
+**Stolen Bust From Jim Morrison’s Gravesite Is Recovered in Paris**\
 `The 300-pound bust was stolen from Père-Lachaise cemetery in 1988 and was found when the police were conducting an unrelated search.`\
 https://nytimes.com/2025/05/19/world/europe/jim-morrison-statue-recovered.html
 
