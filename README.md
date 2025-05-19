@@ -1,3 +1,11 @@
+**Retired Navy Admiral Is Convicted on Bribery Charges**\
+`Robert P. Burke, who was the Navy’s second-highest-ranking officer, was accused of steering a contract to a company that offered him a lucrative job.`\
+https://nytimes.com/2025/05/19/us/navy-admiral-convicted-bribery.html
+
+**Cleared for takeoff: Juan Soto flies on Mets plane, contrary to chatter**\
+`BOSTON — Yes, Juan Soto flies on the team plane with the rest of his teammates, multiple New York Mets team sources confirmed on Monday, refuting a misinterpretation from WFAN morning host Boomer Esiason.`\
+https://nytimes.com/athletic/6368860/2025/05/19/juan-soto-mets-team-plane/
+
 **Louisiana Seeks Escaped Inmates, and Answers About Their Brazen Escape**\
 `The manhunt for seven men, including some accused of violent crimes, has alarmed the city and brought new attention to New Orleans’s troubled jail.`\
 https://nytimes.com/2025/05/19/us/new-orleans-louisiana-jail-escape.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6368640/2025/05/19/celtics-brad-stevens-jayson-tatu
 **Debt Downgrade Bolsters The Right In Congressional Talks Over Megabill**\
 `Conservatives have been holding out against the major tax and spending cut package to implement President Trump’s agenda, arguing it will swell federal deficits. The Moody’s downgrade underscored their concerns.`\
 https://nytimes.com/2025/05/19/us/politics/debt-downgrade-congress.html
-
-**All That Trump Has Changed**\
-`Four months in, the president and his advisers have overwhelmed political opponents who are still grasping for a message and a means with which to fight back.`\
-https://nytimes.com/2025/05/19/us/politics/trump-politics-democrats-republicans.html
-
-**Thousands of Chicks Left in Postal Service Truck Overwhelm a Delaware Shelter**\
-`About 4,000 birds were found dead in the truck, and 10,000 others were stranded there for three days, state officials said. The hatchery that shipped the chicks said it did not know why the shipment had never made it to its destinations.`\
-https://nytimes.com/2025/05/19/us/chicks-usps-animal-shelter-delaware.html
 
