@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6367767/2025/05/19/manchester-united-transfers-amor
 `Mauricio Pochettino will whittle down this 60-man group to his final 26-man squad for this summer's Concacaf Gold Cup.`\
 https://nytimes.com/athletic/6367890/2025/05/19/usmnt-gold-cup-preliminary-squad-roster-pochettino/
 
+**Chelsea's Castledine expecting to leave club permanently this summer**\
+`The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
+https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
+
 **Eagles calling teams to lobby for 'tush push' to not be banned: Sources**\
 `For the Packers' proposal to pass, 24 teams would need to vote in favor of banning the play.`\
 https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packers-proposal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367535/2025/05/19/eagles-lobbying-tush-push-packer
 **North Wilkesboro, after NASCAR All-Star Race success, has a good kind of problem**\
 `In its critical third year, North Wilkesboro has shown the enthusiasm is still there for NASCAR. Is a points race in its future?`\
 https://nytimes.com/athletic/6367731/2025/05/19/north-wilkesboro-nascar-all-star-race-future-points-race/
-
-**THE BAT X fantasy baseball cheat sheet: Add Ezequiel Tovar, stream Jordan Beck and more**\
-`Weekly advice on players to add, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6367358/2025/05/19/the-bat-x-fantasy-baseball-cheat-sheet-exequiel-tovar-jordan-beck/
 

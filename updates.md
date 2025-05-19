@@ -1,3 +1,7 @@
+**Chelsea's Castledine expecting to leave club permanently this summer**\
+`The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
+https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
+
 **We Tested Seven TSA-Compliant Liquids Bags. The Best One Costs 18 Cents.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-best-tsa-compliant-liquids-bag
