@@ -1,3 +1,7 @@
+**Jon Rahm and the comeback-turned-collapse he won't soon forget**\
+`"If there's ever somebody that tells you nerves weren't a part of it, they're clearly lying."`\
+https://nytimes.com/athletic/6366416/2025/05/18/jon-rahm-pga-championship-loss/
+
 **Royals top prospect Jac Caglianone promoted to Triple-A Omaha**\
 `Caglianone hit .322 with nine homers in 38 games for Double-A Northwest Arkansas before the promotion to Triple A.`\
 https://nytimes.com/athletic/6366342/2025/05/18/jac-caglianone-royals-triple-a-promotion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
 **Greenberg: Behind another exciting Pete Crow-Armstrong game, Cubs sweep the White Sox**\
 `Cubs star went 8-for-14 with a homer, a double and two triples, 8 RBIs and four runs scored in front of crowds eclipsing 40,000 all weekend.`\
 https://nytimes.com/athletic/6366189/2025/05/18/cubs-white-sox-pete-crow-armstrong-crosstown-classic-series/
-
-**Mick Abel shines in history-making Phillies debut after overcoming rocky 2024 season**\
-`“There were times I didn’t think I would be (here last summer),” Abel said. “But there were other times where I would." `\
-https://nytimes.com/athletic/6366091/2025/05/18/mick-abel-phillies-mlb-debut/
 
