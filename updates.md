@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, May 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/19/todays-new-york-times
+
+**‘Sirens,’ Plus 7 Things to Watch on TV this Week**\
+`A mini series starring Meghann Fahy comes to Netflix. Two HBO shows wrap up their seasons.`\
+https://nytimes.com/2025/05/19/arts/television/watch-on-tv-this-week-sirens.html
+
+**Trump Doesn’t Realize China Is Pulling Ahead of the U.S.**\
+`Trump’s fixation on tariffs while he undermines America’s competitive strengths is hastening the onset of the “Chinese Century.”`\
+https://nytimes.com/2025/05/19/opinion/china-us-trade-tariffs.html
+
+**Monday Briefing**\
+`Talks between Putin and Trump.`\
+https://nytimes.com/2025/05/19/briefing/putin-trump-talks-gaza.html
+
 **Bissouma and Bentancur: An unlikely partnership with two unlikely redemption arcs?**\
 `The pair have both been sanctioned for off-pitch issues, and both have just a year left on their deals, yet they will likely start in Bilbao`\
 https://nytimes.com/athletic/6360359/2025/05/19/bissouma-bentancur/
