@@ -1,3 +1,7 @@
+**Word of the Day: askance**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/19/learning/word-of-the-day-askance.html
+
 **Russia Launches One of Its Largest Drone Attacks on Ukraine**\
 `The strike took place a day ahead of an anticipated conversation between President Donald Trump and President Vladimir Putin of Russia.`\
 https://nytimes.com/video/world/europe/100000010177337/russia-ukraine-drones.html
