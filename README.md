@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6366994/2025/05/19/palace-fa-cup-inter-miami-ajax-t
 `Presidential elections on Sunday in Romania and Poland halted, or at least slowed, a hard-right breakthrough that many liberals had feared. But discontent with mainstream parties lingers.`\
 https://nytimes.com/2025/05/19/world/europe/in-eastern-europe-centrists-hold-off-2-nationalist-challenges.html
 
-**Pope Leo meets with JD Vance As U.S. Conservatives Hope for Better Relations**\
+**Pope Leo Meets With JD Vance as U.S. Conservatives Hope for Better Relations**\
 `The talks took place as some on the American Right who had clashed with Pope Francis, Leo’s predecessor, seek better ties with the papacy.`\
 https://nytimes.com/2025/05/19/us/pope-leo-jd-vance-meeting.html
 
