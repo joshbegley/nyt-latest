@@ -1,3 +1,11 @@
+**Lowetide: How the Oilers are diminishing criticism that they lack a rugged edge**\
+`The Oilers are moving the puck quickly, winning more battles and spending less energy chasing.`\
+https://nytimes.com/athletic/6365383/2025/05/19/edmonton-oilers-stats-nhl-playoffs-2025/
+
+**Wall Street’s Riskiest Stock Deals Are Back, With a Trump Bump**\
+`President Trump’s associates and crypto entrepreneurs are rushing back to the market for the once-hot, but mostly troubled, investment vehicles called special purpose acquisition companies.`\
+https://nytimes.com/2025/05/19/business/trump-spac-deals.html
+
 **Spain Orders Airbnb to Take Down 66,000 Rental Listings**\
 `The government is widening a crackdown on tourist rentals as it seeks to alleviate a painful housing crunch.`\
 https://nytimes.com/2025/05/19/business/airbnb-listings-spain.html
