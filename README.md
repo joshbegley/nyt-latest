@@ -1,3 +1,7 @@
+**Reds sweep Guardians as Will Benson steals the show against former team: C. Notes**\
+`Since being called up from Triple A, Benson is 11-for-26 with five homers over eight games, and homers in each of the last four games.`\
+https://nytimes.com/athletic/6366164/2025/05/19/c-notes-will-benson-reds-sweep/
+
 **The Pulse: The top 5 moments from a remarkable Sunday**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6366406/2025/05/19/maple-leafs-panthers-thunder-nuggets-game-7-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6361384/2025/05/19/best-college-football-teams-2000
 **Is Williams F1's ‘best of the rest’ in 2025? Alex Albon’s Imola drive says yes**\
 `Albon's fifth-place finish at Imola, battling Ferrari on merit, solidifies Williams' position as a dominant midfield team `\
 https://nytimes.com/athletic/6366722/2025/05/19/alex-albon-williams-f1-imola-2025/
-
-**Hometown kid Mitch Marner may have just played his last game as a Maple Leaf**\
-`There's a strong chance Marner will be wearing a different jersey the next time the playoffs roll around.`\
-https://nytimes.com/athletic/6366840/2025/05/19/mitch-marner-maple-leafs-free-agency-nhl-playoffs/
 
