@@ -1,3 +1,7 @@
+**Trump and Putin Set to Discuss Ukraine War in High-Stakes Call**\
+`A telephone call between the two leaders would be the latest chapter in a flurry of diplomatic maneuvering over ending the three-year conflict.`\
+https://nytimes.com/2025/05/19/world/europe/trump-putin-ukraine.html
+
 **Israel Announced a New Invasion of Gaza. Is It Bluffing?**\
 `After warning of a major ground operation, Israel has bombarded Gaza but has yet to start a big advance. The threat to do so may be an attempt to force Hamas to compromise in cease-fire talks.`\
 https://nytimes.com/2025/05/19/world/middleeast/israel-new-invasion-of-gaza.html
