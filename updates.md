@@ -1,3 +1,15 @@
+**Armed with new contract, Ravens RB Derrick Henry won't stop pushing forward**\
+`The 31-year-old back is currently 19th on the NFL's all-time list with 11,423 rushing yards. `\
+https://nytimes.com/athletic/6368316/2025/05/19/ravens-derrick-henry-contract-extension/
+
+**Therapist Terry Real Wants Men to Be Vulnerable**\
+`“I don’t want women to stand down from their demands; I want men to stand up to meet them,” the couples therapist explained on the Modern Love podcast.`\
+https://nytimes.com/video/podcasts/100000010175113/modern-love-terry-real-couples-therapist.html
+
+**Submit your questions for Josh Kendall's Falcons mailbag**\
+`The NFL Draft, rookie minicamp and the schedule release are behind us with OTAs coming up next week. What's on your mind?`\
+https://nytimes.com/athletic/6368445/2025/05/19/falcons-mailbag-questions-12/
+
 **The Doctor behind the Hurricanes, GM Eric Tulsky's bold moves are paying off — with bolder ones ahead**\
 `Is he the Doctor or the Gambler? Tulsky went for Mikko Rantanen. He went for Mitch Marner. And he’s got cap space in the coming years.`\
 https://nytimes.com/athletic/6368071/2025/05/19/eric-tulsky-hurricanes-gm-bold-moves/
