@@ -1,3 +1,7 @@
+**Chelsea's Castledine expecting to leave club permanently this summer**\
+`The 20-year-old made his Chelsea debut last season and played 26 times for Shrewsbury before a back injury ended his loan spell in February.`\
+https://nytimes.com/athletic/6367843/2025/05/19/leo-castledine-chelsea-transfer/
+
 **Newcastle set to appoint Palace's Williams as new director of women's football**\
 `Newcastle are targeting promotion to the Women's Super League (WSL).`\
 https://nytimes.com/athletic/6367273/2025/05/19/newcastle-women-grace-williams/
