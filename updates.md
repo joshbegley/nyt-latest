@@ -1,3 +1,7 @@
+**The Doctor behind the Hurricanes, GM Eric Tulsky's bold moves are paying off — with bolder ones ahead**\
+`Is he the Doctor or the Gambler? Tulsky went for Mikko Rantanen. He went for Mitch Marner. And he’s got cap space in the coming years.`\
+https://nytimes.com/athletic/6368071/2025/05/19/eric-tulsky-hurricanes-gm-bold-moves/
+
 **Queens Man Described as Delusional Convicted in Paramedic’s Killing**\
 `Alison Russo was stabbed repeatedly in Astoria in an explosion of violence caught on video. Peter Zisopoulos was found guilty of the crime.`\
 https://nytimes.com/2025/05/19/nyregion/queens-emt-murder-verdit.html
