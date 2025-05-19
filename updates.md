@@ -1,3 +1,7 @@
+**Padres' offense fueled them last season. Now, they're searching for it**\
+`In 2025, the club's efforts to again fill out an offense on a budget have yet to produce such promising returns.`\
+https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-missing/
+
 **What a Prostate Cancer Diagnosis Like Biden’s Means for Patients**\
 `While prognoses for prostate cancer patients were once measured in months, experts say that advances in treatment and diagnosis now improve survival by years.`\
 https://nytimes.com/2025/05/18/health/joe-biden-diagnosis-prostate-cancer.html

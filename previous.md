@@ -1,3 +1,7 @@
+**Padres' offense fueled them last season. Now, they're searching for it**\
+`In 2025, the club's efforts to again fill out an offense on a budget have yet to produce such promising returns.`\
+https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-missing/
+
 **What a Prostate Cancer Diagnosis Like Biden’s Means for Patients**\
 `While prognoses for prostate cancer patients were once measured in months, experts say that advances in treatment and diagnosis now improve survival by years.`\
 https://nytimes.com/2025/05/18/health/joe-biden-diagnosis-prostate-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366416/2025/05/18/jon-rahm-pga-championship-loss/
 **Royals top prospect Jac Caglianone promoted to Triple-A Omaha**\
 `Caglianone hit .322 with nine homers in 38 games for Double-A Northwest Arkansas before the promotion to Triple A.`\
 https://nytimes.com/athletic/6366342/2025/05/18/jac-caglianone-royals-triple-a-promotion/
-
-**PGA Championship: How Scottie Scheffler won his third career major championship**\
-`The last six men’s majors have been won by arguably the four best players in the sport.`\
-https://nytimes.com/athletic/6366381/2025/05/18/pga-championship-round-4-scottie-scheffler/
 

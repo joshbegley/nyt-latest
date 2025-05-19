@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6365858/2025/05/18/padres-lose-mariners-offense-mis
 https://nytimes.com/2025/05/18/health/joe-biden-diagnosis-prostate-cancer.html
 
 **The 'Jokić Stopper': How Alex Caruso and the Thunder defense snatched Game 7**\
-`After a Game 7 defensive clinic, Alex Caruso will more than likely see his fair share against both Anthony Edwards and Julius Randle.`\
+`After a Game 7 defensive show, Caruso will more than likely see his fair share against Anthony Edwards and Julius Randle.`\
 https://nytimes.com/athletic/6366008/2025/05/18/alex-caruso-thunder-defense-game-7-nuggets/
 
 **2 Dead and 1 Missing After Train Strikes Pedestrians in Ohio**\
