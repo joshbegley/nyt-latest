@@ -1,3 +1,7 @@
+**Melania Trump Joins the President to Sign Revenge Porn Bill She Championed**\
+`The bill, known as the Take It Down Act, mandates social media platforms to remove sexually explicit images and videos of others.`\
+https://nytimes.com/2025/05/19/us/melania-trump-take-it-down-act.html
+
 **Ari Aster on ‘Eddington’: It’s ‘About What the Country Felt Like to Me’**\
 `The Covid-era satire has been divisive at Cannes, but the director has not seen the reviews. He’s focused on his fears about where the world is headed.`\
 https://nytimes.com/2025/05/19/movies/ari-aster-eddington-cannes.html
