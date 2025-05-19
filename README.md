@@ -1,3 +1,7 @@
+**Gary Lineker expected to leave BBC after 26 years**\
+`Lineker, 64, “apologised unreservedly” last week after being heavily criticised for sharing a social media post that included a rat emoji.`\
+https://nytimes.com/athletic/6362097/2025/05/19/gary-lineker-bbc-motd-leaves/
+
 **Victor Munoz and Gonzalo Garcia: The academy players who shone in Seville for Real Madrid**\
 `Madrid fans were handed a glimpse of the future as two more homegrown 'canteranos' made their mark in the senior team`\
 https://nytimes.com/athletic/6366430/2025/05/19/gonzalo-garcia-victor-munoz-real-madrid-sevilla/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/05/19/nyregion/israel-gaza-antisemitism-mayor-nyc.html
 https://nytimes.com/2025/05/19/crosswords/spelling-bee-forum.html
 
 **Giants takeaways: Dominant pitching leads to a weekend sweep**\
-`With exceptional pitching, he Giants swept the Athletics over the weekend. Also, the entire A's team drove in only three runs in the series.`\
+`With exceptional pitching, the Giants swept the Athletics over the weekend. The entire A's team drove in only three runs in the series.`\
 https://nytimes.com/athletic/6366459/2025/05/19/giants-takeaways-weekend-sweep/
 
 **Word of the Day: askance**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366787/2025/05/19/yankees-subway-series-win-mets/
 **Maple Leafs trudge to yet another disappointing Game 7 loss: 'It's heartbreaking'**\
 `Scenes from the Leafs' seventh straight Game 7 loss, from Craig Berube losing his cool to jerseys hitting the ice.`\
 https://nytimes.com/athletic/6366734/2025/05/19/maple-leafs-game-7-nhl-playoffs-berube-marner/
-
-**The New York Times in Print for Monday, May 19, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/19/todays-new-york-times
 
