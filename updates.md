@@ -1,3 +1,11 @@
+**What to Know About the Mexican Navy Ship That Crashed Into the Brooklyn Bridge**\
+`The ship ARM Cuauhtémoc — with 277 people on board, including 175 naval cadets — was on a good-will tour throughout the world.`\
+https://nytimes.com/2025/05/19/world/americas/mexican-navy-ship-cadets-brooklyn-bridge.html
+
+**49ers, LB Fred Warner agree to contract extension: Source**\
+`The new deal gives Warner the highest annual salary at his position.`\
+https://nytimes.com/athletic/6362731/2025/05/19/49ers-fred-warner-contract-extension/
+
 **An 'incredible platform' or a risk? Will NWSL's Unwell FC partnership grow the game?**\
 `The fan hype group Unwell FC, a partnership between the NWSL and Alex Cooper's Unwell company, launched at the weekend `\
 https://nytimes.com/athletic/6365375/2025/05/19/nwsl-unwell-fc-partnership-alex-cooper/
