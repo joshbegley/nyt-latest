@@ -1,3 +1,7 @@
+**‘The Last of Us’ Season 2, Episode 6: Like Father**\
+`A series of flashbacks traced the evolution of Joel and Ellie’s relationship in Jackson, Wyo., filling in some blanks about her current state of mind.`\
+https://nytimes.com/2025/05/18/arts/television/the-last-of-us-recap-season-2-episode-6.html
+
 **Angels revel in takedown of rival Dodgers: 'We just swept the best in baseball'**\
 `The Angels saw how they could stack up against the World Series champs. It was lopsided, but not in the way anyone would have expected.`\
 https://nytimes.com/athletic/6366375/2025/05/18/angels-sweep-dodgers/

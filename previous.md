@@ -1,3 +1,7 @@
+**‘The Last of Us’ Season 2, Episode 6: Like Father**\
+`A series of flashbacks traced the evolution of Joel and Ellie’s relationship in Jackson, Wyo., filling in some blanks about her current state of mind.`\
+https://nytimes.com/2025/05/18/arts/television/the-last-of-us-recap-season-2-episode-6.html
+
 **Angels revel in takedown of rival Dodgers: 'We just swept the best in baseball'**\
 `The Angels saw how they could stack up against the World Series champs. It was lopsided, but not in the way anyone would have expected.`\
 https://nytimes.com/athletic/6366375/2025/05/18/angels-sweep-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/18/nyregion/brooklyn-bridge-ship-crash-causes.html
 **Greg Cannom, Who Made Brad Pitt Old and Marlon Wayans White, Dies at 73**\
 `He won five Oscars as a makeup artist on movies in which characters transformed, like “Mrs. Doubtfire,” “White Chicks” and many more.`\
 https://nytimes.com/2025/05/18/obituaries/greg-cannom-dead.html
-
-**Children of Dave**\
-`A man tests the theory that a lot of the misery in his life can be traced to a single moment that happened years before he was born.`\
-https://nytimes.com/2025/05/18/podcasts/children-of-dave.html
 
