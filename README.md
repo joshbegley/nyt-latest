@@ -1,3 +1,7 @@
+**Word of the Day: askance**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/19/learning/word-of-the-day-askance.html
+
 **Russia Launches One of Its Largest Drone Attacks on Ukraine**\
 `The strike took place a day ahead of an anticipated conversation between President Donald Trump and President Vladimir Putin of Russia.`\
 https://nytimes.com/video/world/europe/100000010177337/russia-ukraine-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6360359/2025/05/19/bissouma-bentancur/
 **Markets Head Lower in Wake of Concerns About U.S. Debt**\
 `A downgrade by Moody’s amplified some existing worries about the cost of President Trump’s policies and the health of the U.S. economy.`\
 https://nytimes.com/2025/05/19/business/stock-markets-moodys-sp500.html
-
-**Dear Goodison, farewell and thank you**\
-`Everton's players - past and present - and an adoring home support gave Goodison the send-off it deserved. It was not a wake, it was a party`\
-https://nytimes.com/athletic/6365473/2025/05/19/everton-goodison-park-farewell/
 
