@@ -1,3 +1,11 @@
+**Trump Wants to Fulfill His ‘No Tax On Tips’ Promise. The Details Get Tricky.**\
+`The idea is politically popular, but the tax benefits may not go as far for low-income workers as many may think.`\
+https://nytimes.com/2025/05/19/business/trump-taxes-tips.html
+
+**Stolen Bust From Jim Morrison’s Gravesite Is Recovered in Paris**\
+`The 300-pound bust was stolen from Père-Lachaise cemetery in 1988 and was found when the police were conducting an unrelated search.`\
+https://nytimes.com/2025/05/19/world/europe/jim-morrison-statue-recovered.html
+
 **The Supreme Court Order**\
 `The Supreme Court Order`\
 https://nytimes.com/interactive/2025/05/19/us/politics/19dc-scotus-immig.html
