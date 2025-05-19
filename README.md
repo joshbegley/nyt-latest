@@ -1,3 +1,11 @@
+**Panthers eliminate Maple Leafs in Game 7 with dominant second period: Takeaways**\
+`The Leafs lost their sixth straight Game 7 as the Panthers advanced to the Eastern Conference Final.`\
+https://nytimes.com/athletic/6366452/2025/05/18/maple-leafs-panthers-nhl-playoffs-2025-game-7-takeaways/
+
+**How a Mexican Navy Ship Crashed Into the Brooklyn Bridge**\
+`A maritime expert told The Times that the Cuauhtémoc’s propellers may have been running in reverse, pushing it faster toward the Brooklyn Bridge, as a tugboat tried escorting the ship out of a pier.`\
+https://nytimes.com/video/nyregion/100000010177100/brooklyn-bridge-crash-mexico-ship.html
+
 **‘The Last of Us’ Season 2, Episode 6: Like Father**\
 `A series of flashbacks traced the evolution of Joel and Ellie’s relationship in Jackson, Wyo., filling in some blanks about her current state of mind.`\
 https://nytimes.com/2025/05/18/arts/television/the-last-of-us-recap-season-2-episode-6.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6366374/2025/05/18/like-rory-mcilroy-scottie-scheff
 **No. 1 Texas A&M forces Game 7 vs. Liberty with trip to super regionals on line**\
 `Game 7 is underway in Bryan-College Station, Texas. The winner advances to the super regional round.`\
 https://nytimes.com/athletic/6366334/2025/05/18/texas-am-liberty-regional-round-elimination-game/
-
-**In Deadly Ship Crash, Questions About What Went Wrong**\
-`A Mexican Navy ship never intended to sail under the Brooklyn Bridge. U.S. and Mexican officials are investigating what led to the accident that killed two crew members.`\
-https://nytimes.com/2025/05/18/nyregion/brooklyn-bridge-ship-crash-causes.html
-
-**Greg Cannom, Who Made Brad Pitt Old and Marlon Wayans White, Dies at 73**\
-`He won five Oscars as a makeup artist on movies in which characters transformed, like “Mrs. Doubtfire,” “White Chicks” and many more.`\
-https://nytimes.com/2025/05/18/obituaries/greg-cannom-dead.html
 
