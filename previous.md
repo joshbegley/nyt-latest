@@ -1,3 +1,15 @@
+**What a Prostate Cancer Diagnosis Like Biden’s Means for Patients**\
+`While prognoses for prostate cancer patients were once measured in months, experts say that advances in treatment and diagnosis now improve survival by years.`\
+https://nytimes.com/2025/05/18/health/joe-biden-diagnosis-prostate-cancer.html
+
+**The 'Jokić Stopper': How Alex Caruso and the Thunder defense snatched Game 7**\
+`After a Game 7 defensive clinic, Alex Caruso will more than likely see his fair share against both Anthony Edwards and Julius Randle.`\
+https://nytimes.com/athletic/6366008/2025/05/18/alex-caruso-thunder-defense-game-7-nuggets/
+
+**2 Dead and 1 Missing After Train Strikes Pedestrians in Ohio**\
+`The episode happened in Fremont, Ohio, on Sunday night. The mayor said at least one person was missing and emergency crews were searching the Sandusky River.`\
+https://nytimes.com/2025/05/18/us/fremont-ohio-train-pedestrians-killed.html
+
 **Panthers eliminate Maple Leafs in Game 7 with dominant second period: Takeaways**\
 `The Leafs lost their sixth straight Game 7 as the Panthers advanced to the Eastern Conference Final.`\
 https://nytimes.com/athletic/6366452/2025/05/18/maple-leafs-panthers-nhl-playoffs-2025-game-7-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6366342/2025/05/18/jac-caglianone-royals-triple-a-p
 **PGA Championship: How Scottie Scheffler won his third career major championship**\
 `The last six men’s majors have been won by arguably the four best players in the sport.`\
 https://nytimes.com/athletic/6366381/2025/05/18/pga-championship-round-4-scottie-scheffler/
-
-**‘Creditors’ Review: Who Pays the Price for a Bankrupt Marriage?**\
-`Liev Schreiber stars in an update of the bleak Strindberg classic about a husband and wife and the man who seeks to destroy them.`\
-https://nytimes.com/2025/05/18/theater/creditors-review-liev-schreiber.html
-
-**Like Rory McIlroy, Scottie Scheffler's driver was ruled nonconforming before PGA**\
-`"I think, if we're going to do it, we might as well do it right, get more robust and get even more strict,” Scheffler said.`\
-https://nytimes.com/athletic/6366374/2025/05/18/like-rory-mcilroy-scottie-schefflers-driver-was-ruled-nonconforming-before-pga/
-
-**No. 1 Texas A&M forces Game 7 vs. Liberty with trip to super regionals on line**\
-`Game 7 is underway in Bryan-College Station, Texas. The winner advances to the super regional round.`\
-https://nytimes.com/athletic/6366334/2025/05/18/texas-am-liberty-regional-round-elimination-game/
 
