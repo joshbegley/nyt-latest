@@ -1,3 +1,11 @@
+**The Bounce: Nuggets' elimination highlights issues around Nikola Jokić. How can Denver improve?**\
+`The Nuggets did their best to push the Thunder in Game 7, but their loss highlights issues around Nikola Jokić`\
+https://nytimes.com/athletic/6367216/2025/05/19/nikola-jokic-nuggets-thunder-alex-caruso-nba-playoffs-the-bounce/
+
+**Pep Guardiola's strange tactics hindered Manchester City in the FA Cup final**\
+`Guardiola's overly attacking starting line-up allowed Crystal Palace to exploit City's left flank and caps a disappointing season `\
+https://nytimes.com/athletic/6366950/2025/05/19/manchester-city-analysis-fa-cup-guardiola/
+
 **Giro d’Italia week one: How the white roads of Tuscany exploded the race for the pink jersey**\
 `We review a dramatic start to the race, featuring dominant Danes, popular redemption arcs, painful crashes and a successful foray to Albania`\
 https://nytimes.com/athletic/6365511/2025/05/19/giro-ditalia-week-one-review-cycling/
