@@ -1,3 +1,7 @@
+**Ukrainians Brace for a Lonelier Fight as Trump Backs Off Cease-Fire Call**\
+`President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
+https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
+
 **Pistons offseason mailbag: Re-signing Malik Beasley, potential free-agent targets and more**\
 `After making the playoffs this season, the Pistons' offseason will be a big one in an Eastern Conference that seems as wide open as ever.`\
 https://nytimes.com/athletic/6369015/2025/05/20/detroit-pistons-mailbag-malik-beasley/
