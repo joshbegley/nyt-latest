@@ -1,3 +1,11 @@
+**Israel’s Allies Denounce Its New Gaza Offensive**\
+`Britain, France and Canada, all powerful supporters of Israel, called plans for an escalation of the Gaza war “disproportionate” and “egregious.”`\
+https://nytimes.com/2025/05/20/world/middleeast/israel-allies-denounce-gaza-offensive.html
+
+**Leeds fans - get your questions in now for Beren Cross**\
+`Jump in the comments and ask away, with Beren Cross answering them for you next week`\
+https://nytimes.com/athletic/6369574/2025/05/20/leeds-fans-get-your-questions-in-now-for-beren-cross/
+
 **Weekly Student News Quiz: Refugees, Medical Breakthrough, Alligator**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/05/20/learning/20StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6368238/2025/05/20/book-excerpt-dawn-staley-uncommo
 **Progress on an NHL postseason salary cap, expansion, concussion protocol and more: Bill Daly Q&A**\
 `In an exclusive with The Athletic, the deputy commissioner said the NHL and NHLPA have "made progress" on closing the LTIR playoff loophole.`\
 https://nytimes.com/athletic/6368325/2025/05/20/nhl-postseason-salary-cap-expansion/
-
-**Greenberg: Pope Leo XIV's attendance at the World Series is now a part of White Sox lore**\
-`The team unveiled a mural outside Section 140, where then-Father Robert Prevost was among fans who watched the Sox defeat Houston in Game 1.`\
-https://nytimes.com/athletic/6369106/2025/05/20/pope-leo-xiv-white-sox-mural-world-series-2005/
-
-**How the 49ers struck gold with Brock Purdy — after a big swing and miss**\
-`A book excerpt from Michael Silver reveals how quickly Mike Shanahan — father of Kyle Shanahan — was sold on Purdy. `\
-https://nytimes.com/athletic/6362820/2025/05/20/nfl-49ers-purdy-football-book/
 
