@@ -1,3 +1,11 @@
+**The Inside Story of Trump’s Search for a New Air Force One**\
+`Qatar had been trying to sell off a luxury jet for years, with no luck. Then President Trump’s team set its sights on it.`\
+https://nytimes.com/2025/05/19/us/politics/trump-air-force-one-qatar-jet.html
+
+**Justice Dept. to Use False Claims Act to Pursue Institutions Over Diversity Efforts**\
+`The department’s use of the law is all but certain to be met with legal challenges.`\
+https://nytimes.com/2025/05/19/us/politics/false-claims-act-dei-harvard.html
+
 **In Reversal, Trump Officials Will Allow Huge Offshore N.Y. Wind Farm to Proceed**\
 `The Trump administration had issued a highly unusual stop-work order on the Empire Wind project last month, leading to intense pushback from officials in New York.`\
 https://nytimes.com/2025/05/19/climate/empire-wind-new-york-hochul.html
