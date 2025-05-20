@@ -1,3 +1,35 @@
+**Trump Administration Live Updates: I.R.S. Nominee to Face Scrutiny Over Questionable Advice to Taxpayers**\
+``\
+https://nytimes.com/live/2025/05/20/us/trump-news
+
+**Art Basel Announces New Fair in Qatar**\
+`With its enormous wealth, the Middle East has long been viewed by the international art trade as a prime market for expansion.`\
+https://nytimes.com/2025/05/20/arts/design/art-basel-doha-qatar.html
+
+**Who is most important to the Chargers’ success in 2025? Counting down 20 through 11**\
+`Third-year edge rusher Tuli Tuipulotu and rookie running back Omarion Hampton will be among the key players this season.`\
+https://nytimes.com/athletic/6368665/2025/05/20/chargers-most-important-players-2025-part-1/
+
+**Why these Oilers are different — and better — heading into rematch with the Stars**\
+`The Oilers dispatched the Stars in six games in the Western Conference final last season. Can they improve on that performance this year?`\
+https://nytimes.com/athletic/6368971/2025/05/20/oilers-nhl-playoffs-conference-final-rematch-stars/
+
+**Rookies Logan Stankoven, Jackson Blake ‘not afraid’ of Hurricanes’ moment**\
+`Two of the youngest players on the Hurricanes are already valued members of the postseason run.`\
+https://nytimes.com/athletic/6369036/2025/05/20/hurricanes-rookies-jackson-blake-logan-stankoven-nhl-playoffs/
+
+**What should Rangers do with Kreider? Who might Sullivan name to his staff? Mailbag, part 1**\
+`Plus reader questions on Artemi Panarin, Mika Zibanejad, and more crucial decisions facing Rangers GM Chris Drury this offseason. `\
+https://nytimes.com/athletic/6368017/2025/05/20/rangers-coaches-sullivan-kreider-nhl-mailbag/
+
+**At the Combs Trial, Cassie’s Mother and Others to Testify About Abuse**\
+`Prosecutors are aiming to fill in the picture of the mogul’s relationship with Casandra Ventura by questioning his former assistant and Ms. Ventura’s mother.`\
+https://nytimes.com/2025/05/20/arts/music/sean-combs-diddy-trial-assistant-cassie-mother.html
+
+**Explaining why Yamal's new Barcelona contract is a 'special case'**\
+`There had been an understanding that Yamal would sign new terms when he turns 18 in July but his performances have raised expectations.`\
+https://nytimes.com/athletic/6369497/2025/05/20/lamine-yamal-barcelona-contract-number/
+
 **Network Outage Hits Spain, Weeks After Extensive Blackout**\
 `The outage Tuesday knocked out emergency phone lines in several parts of the country for several hours.`\
 https://nytimes.com/2025/05/20/world/europe/spain-telefonica-outage.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/05/20/world/europe/spain-telefonica-outage.html
 **Creator of ‘Dilbert’ Says He Has the Same Cancer as Biden**\
 `Scott Adams shared the news on his podcast and expressed sympathy for the former president. “My life expectancy is maybe this summer,” he said.`\
 https://nytimes.com/2025/05/20/us/scott-adams-dilbert-prostate-cancer-biden.html
-
-**Market Jitters Over a ‘Big, Beautiful’ Bill**\
-`Investors burned by President Trump’s trade fight now have to contend with a spending megabill that risks swelling the federal deficit.`\
-https://nytimes.com/2025/05/20/business/dealbook/markets-trump-spending-tax-cuts.html
-
-**Israel’s Allies Denounce Its New Gaza Offensive**\
-`Britain, France and Canada, all powerful supporters of Israel, called plans for an escalation of the Gaza war “disproportionate” and “egregious.”`\
-https://nytimes.com/2025/05/20/world/middleeast/israel-allies-denounce-gaza-offensive.html
-
-**Leeds fans - get your questions in now for Beren Cross**\
-`Jump in the comments and ask away, with Beren Cross answering them for you next week`\
-https://nytimes.com/athletic/6369574/2025/05/20/leeds-fans-get-your-questions-in-now-for-beren-cross/
-
-**Weekly Student News Quiz: Refugees, Medical Breakthrough, Alligator**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/05/20/learning/20StudentNewsQuiz.html
-
-**Frida Maanum signs new Arsenal contract**\
-`The 25-year-old has scored 40 goals in 150 appearances for Arsenal since joining from Swedish side Linkoping FC four years ago.`\
-https://nytimes.com/athletic/6369385/2025/05/20/frida-maanum-arsenal-contract-new/
-
-**The Athletic FC: Secretive Saudi club built to rule, Man Utd in talks with Delap, Cunha**\
-`Today in TAFC: The brand new Saudi club targeting the 2029 Club World Cup, Delap and Cunha in talks with Manchester United.`\
-https://nytimes.com/athletic/6369425/2025/05/20/neom-saudi-world-cup-man-utd-delap-cunha/
-
-**Lloyd: This Cavs roster will have to strengthen up, break through as options are limited**\
-`Team president Koby Altman is stressing patience, partly because CBA won't allow any big moves but also to give roster a chance to succeed.`\
-https://nytimes.com/athletic/6368867/2025/05/20/cleveland-cavaliers-president-koby-altman-roster/
-
-**Reds Mailbag, Part 2: How to assess wear, WAR and pink belts**\
-`The Reds have injuries. So does everyone else. Understanding what's causing them, and what changes could stop them, takes some digging.`\
-https://nytimes.com/athletic/6368369/2025/05/20/reds-mailbag-injuries-uniforms-stats/
 
