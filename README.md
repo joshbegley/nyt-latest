@@ -1,3 +1,7 @@
+**Timberwolves at Thunder Game 1 picks, odds, how to watch: OKC favored in opener**\
+`The Western Conference finals begin Tuesday, with Anthony Edwards and Minnesota underdogs on the road in Game 1.`\
+https://nytimes.com/athletic/6368134/2025/05/20/timberwolves-thunder-picks-odds-game-1-how-to-watch/
+
 **How will 'fire and ice' rookies Xavier Watts, Billy Bowman Jr. fit in Falcons' secondary?**\
 `The Falcons think rookie defensive backs Watts and Bowman could be starters by the end of this season.`\
 https://nytimes.com/athletic/6367993/2025/05/20/falcons-rookies-xavier-watts-billy-bowman-jr/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/learning/should-the-us-government-fund-scientific
 **‘Bus Stop’ Review: Travelers Find Shelter From a Storm**\
 `Intimacy is at the heart of this rare revival of William Inge’s 1955 play, about stranded passengers learning from one another and about themselves.`\
 https://nytimes.com/2025/05/20/theater/bus-stop-review-classic-stage.html
-
-**Michelle Goldberg: ‘More Democrats Need to Be Doing This’**\
-`Democrats have a lot of problems. But they are getting some things right.`\
-https://nytimes.com/2025/05/20/opinion/democrats-future-aoc-bernie.html
 

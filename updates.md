@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-ma
 `\
 https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
 
+**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
+`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
+`\
+https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+
 **2nd Man Charged Over Fires at Homes Linked to U.K. Prime Minister**\
 `The British police said they had charged a Romanian national, Stanislav Carpiuc, with conspiracy to commit arson. Fires struck two buildings and a car linked to Prime Minister Keir Starmer.`\
 https://nytimes.com/2025/05/20/world/europe/fires-keir-starmer.html
