@@ -1,3 +1,5 @@
+
+
 **Bruins GM Don Sweeney signs two-year extension**\
 `Sweeney’s mandate is to turn around a club that finished with the fifth-worst record and missed the playoffs for the first time since 2016.`\
 https://nytimes.com/athletic/6370135/2025/05/20/bruins-don-sweeney-extension/
