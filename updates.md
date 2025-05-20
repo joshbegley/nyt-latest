@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-ma
 `\
 https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
 
+**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
+`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
+`\
+https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+
 **Europe is a target, not an obsession for Brighton - and the dream is still alive**\
 `A 3-2 win over champions Liverpool leaves Brighton's European qualification hopes in their own hands. They will cherish the opportunity`\
 https://nytimes.com/athletic/6364762/2025/05/20/brighton-europe-conference-league-liverpool/
