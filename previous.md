@@ -1,3 +1,7 @@
+**F.D.A. Poised to Restrict Access to Covid Vaccines**\
+`Agency leaders said there was evidence to justify approval only for older people and those with medical conditions. Many others may not be able to get the shots.`\
+https://nytimes.com/2025/05/20/health/fda-covid-vaccines.html
+
 **Vlastimil Hort, a Memorably Selfless Chess Grandmaster, Dies at 81**\
 `He could have advanced toward a title when his opponent, Boris Spassky, took ill. Instead, he displayed one of the game’s greatest acts of sportsmanship.`\
 https://nytimes.com/2025/05/20/sports/vlastimil-hort-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/us/politics/elon-musk-trump-political-spending.ht
 **Mexican second-tier clubs file suit vs. Liga MX, FMF to resume pro-rel**\
 `Promotion-relegation in Mexico was supposed to resume later this year following a pause instituted in 2020, but not all clubs are convinced`\
 https://nytimes.com/athletic/6369111/2025/05/20/liga-mx-fmf-lawsuit-promotion-relegation-mexico/
-
-**My Father Prosecuted History’s Crimes. Then He Died in One.**\
-`He was a Nazi hunter — and was killed in the Lockerbie bombing. What does it mean to seek justice for his death?`\
-https://nytimes.com/2025/05/20/magazine/lockerbie-bombing-justice-father.html
 
