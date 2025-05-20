@@ -1,3 +1,7 @@
+**Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
+`At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that Republicans seem to have. Yes, there’s a price tag.`\
+https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
+
 **Sands staying at St. Pauli on season-long loan for 2025-26**\
 `Sands initially joined the German club in January on a loan deal for the remainder of the 2024-25 campaign from New York City FC.`\
 https://nytimes.com/athletic/6369965/2025/05/20/james-sands-st-pauli-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369911/2025/05/20/abdoulaye-doucoure-everton-exit/
 **Rodri cleared to make Man City return after eight months out with ACL injury**\
 `After Tuesday's game against Bournemouth, City travel to Fulham next Sunday before playing in the Club World Cup next month.`\
 https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
-
-**Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
-`O'Ward, never one to do anything halfway, has made a home as IndyCar's rising star. He'll start on the front row on Sunday in Indianapolis`\
-https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
 
