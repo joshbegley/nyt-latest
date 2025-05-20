@@ -1,3 +1,15 @@
+**Leicester referred to independent commission for alleged 2023-24 PSR breach**\
+`Leicester have also been referred over their obligation to provide their accounts by December 31 and assisting the league in its inquiries.`\
+https://nytimes.com/athletic/6369420/2025/05/20/leicester-psr-premier-league-championship/
+
+**UEFA accused of 'excluding' disabled fans from Europa League final**\
+`Level Playing Field has highlighted that the number of wheelchair and easy access spaces made available falls well below UEFA guidelines.`\
+https://nytimes.com/athletic/6369383/2025/05/20/europa-league-final-disabled-fans/
+
+**How the Phillies will navigate a bullpen without José Alvarado — in the short and longer term**\
+`How the Phillies handle the loss of Alvarado now will be different than how they confront it in July and perhaps October.`\
+https://nytimes.com/athletic/6369232/2025/05/20/phillies-bullpen-management-trades-jose-alvarado-suspension/
+
 **The Pulse: Ranking the best playoff series left**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6368016/2025/05/20/ranking-the-best-playoff-series-left-plus-an-argument-over-college-football-rankings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6368875/2025/05/20/carson-kelly-matthew-boyd-connec
 **Under coach Tom Thibodeau, the Knicks are still standing**\
 `Some say Thibodeau played his starters too many minutes. Some say he's stubborn. Well, the Knicks are still standing.`\
 https://nytimes.com/athletic/6367842/2025/05/20/tom-thibodeau-knicks-nba-playoffs/
-
-**How the Browns could split reps among their 4 QBs competing this offseason**\
-`As OTA sessions near, how will Cleveland approach its quarterback battle that includes two veterans and two rookies?`\
-https://nytimes.com/athletic/6368255/2025/05/20/browns-quarterbacks-joe-flacco-shedeur-sanders-nfl-schedule/
-
-**Explaining the NFL playoffs reseeding proposal: How would a rule change impact the postseason?**\
-`Owners are set to discuss a possible rule change this week.`\
-https://nytimes.com/athletic/6367984/2025/05/20/nfl-playoff-reseeding-proposal/
-
-**Hurricanes killer Matthew Tkachuk is 'back' — but is this a different Tkachuk?**\
-`Tkachuk's game has been building since his return from surgery. If he's really 100 percent, the Canes know better than anyone what it means.`\
-https://nytimes.com/athletic/6368417/2025/05/20/matthew-tkachuk-panthers-hurricanes-nhl-playoffs/
 
