@@ -1,3 +1,7 @@
+**Submit your Raptors questions for Eric Koreen’s offseason mailbag**\
+`The Toronto Raptors did not get lucky in the NBA Draft lottery, falling from their seventh slot to No.`\
+https://nytimes.com/athletic/6370707/2025/05/20/raptors-mailbag-offseason/
+
 **State of the Arts in 2025: Precarious, Promising, or a Bit of Both?**\
 `At the Art for Tomorrow conference in Milan, participants faced sobering financial and geopolitical realities, while still finding reasons for hope and joy.`\
 https://nytimes.com/2025/05/20/arts/design/art-for-tomorrow-conference.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/nyregion/nyc-mayor-primary.html
 **Google Unveils A.I. Chatbot, Signaling a New Era for Search**\
 `The tech giant is taking its next big step in artificial intelligence by adding interactive capabilities to its flagship product.`\
 https://nytimes.com/2025/05/20/technology/personaltech/google-ai-mode-search.html
-
-**Pennsylvania Primary Election Results**\
-`Get live results and maps from the 2025 Pennsylvania primary elections.`\
-https://nytimes.com/interactive/2025/05/20/us/elections/results-pennsylvania-primary.html
 
