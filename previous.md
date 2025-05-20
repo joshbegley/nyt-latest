@@ -1,3 +1,7 @@
+**Serie B in limbo as Brescia investigation delays relegation play-off**\
+`Brescia were issued the post-season deduction over an irregularity in their payment of salaries and tax contributions in February.`\
+https://nytimes.com/athletic/6365332/2025/05/20/brescia-relegated-sampdoria-italian-football/
+
 **What we know about F1's future schedule: 24 races, a Thailand Grand Prix and calendar rotation**\
 `F1's CEO tells The Athletic he feels the growth of the sport's calendar had been handled in a manageable way`\
 https://nytimes.com/athletic/6367840/2025/05/20/f1-schedule-24-races-thailand-grand-prix/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/20/nyregion/mahmoud-khalil-detention-judge.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/20/crosswords/spelling-bee-forum.html
-
-**Brighton's Joao Pedro and Lamptey doubts for PL finale against Spurs**\
-`Joao Pedro missed Monday's 3-2 home win over Liverpool for personal reasons, while Lamptey was ruled out of the match through injury.`\
-https://nytimes.com/athletic/6369290/2025/05/20/brighton-joao-pedro-lamptey-update/
 
