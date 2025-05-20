@@ -1,3 +1,19 @@
+**Mexican Ship in Fatal Crash Accelerated Before Hitting Brooklyn Bridge**\
+`As a federal investigation began, officials said the Cuauhtémoc backed into the bridge, killing two, less than five minutes after leaving a Manhattan pier.`\
+https://nytimes.com/2025/05/19/nyregion/nyc-ship-brooklyn-bridge-mexican-navy.html
+
+**Rep. McIver Charged With Assault Over Clash Outside Newark ICE Center**\
+`The Department of Justice also announced it was dropping a criminal charge against the city’s mayor stemming from the same episode.`\
+https://nytimes.com/2025/05/19/nyregion/new-jersey-congress-ice-charges.html
+
+**Trump Targets Harris Campaign’s Links to Oprah Winfrey, Beyoncé and Bruce Springsteen**\
+`The president claimed without evidence on Monday that Kamala Harris had violated campaign-finance law, essentially by paying superstars for endorsements “under the guise of paying for entertainment.”`\
+https://nytimes.com/2025/05/19/us/politics/trump-harris-springsteen-beyonce-oprah.html
+
+**Trump Suggests Biden’s Cancer Diagnosis Was Hidden From Public**\
+`Mr. Biden’s office said he had been diagnosed with Stage 4 prostate cancer that had spread to his bones.`\
+https://nytimes.com/2025/05/19/us/politics/trump-biden-cancer-prostate.html
+
 **Met Museum Surrenders Artifacts Thought Looted From Iraq**\
 `The Manhattan district attorney’s office said the objects had been identified as illicit during an investigation of an art dealer suspected of having trafficked in stolen antiquities.`\
 https://nytimes.com/2025/05/19/arts/met-museum-iraq-looted-artifacts.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6368708/2025/05/19/cleveland-browns-shedeur-sanders
 **Retired Navy Admiral Is Convicted on Bribery Charges**\
 `Robert P. Burke, who was the Navy’s second-highest-ranking officer, was accused of steering a contract to a company that offered him a lucrative job.`\
 https://nytimes.com/2025/05/19/us/navy-admiral-convicted-bribery.html
-
-**Cleared for takeoff: Juan Soto flies on Mets plane, contrary to chatter**\
-`WFAN morning host Boomer Esiason suggested that Soto travels separately from the team, but that is not the case.`\
-https://nytimes.com/athletic/6368860/2025/05/19/juan-soto-mets-team-plane/
-
-**Louisiana Seeks Escaped Inmates, and Answers About Their Brazen Escape**\
-`The manhunt for seven men, including some accused of violent crimes, has alarmed the city and brought new attention to New Orleans’s troubled jail.`\
-https://nytimes.com/2025/05/19/us/new-orleans-louisiana-jail-escape.html
-
-**NCAA softball tournament regional recap: How 2 top-10 teams went out**\
-`An historic regional round set up eight great super regional matchups.`\
-https://nytimes.com/athletic/6366720/2025/05/19/ncaa-softball-tournament-regional-recap-lookahead/
-
-**Trump Backs Off His Demand That Russia Declare a Cease-Fire in Ukraine**\
-`President Trump once vowed to broker peace between Russia and Ukraine in 24 hours. Now he says the two sides should work it out themselves.`\
-https://nytimes.com/2025/05/19/us/politics/trump-russia-ukraine-cease-fire.html
 
