@@ -1,3 +1,19 @@
+**Micky van de Ven: The centre back of the future who Tottenham can't live without**\
+`Those who worked with the great Johan Cruyff say Van de Ven has 'Cruyffian' qualities - and they have helped Spurs make it to Bilbao`\
+https://nytimes.com/athletic/6356242/2025/05/20/micky-van-de-ven-cruyff-tottenham/
+
+**Red Sox bats get to Kodai Senga early; bullpen comes up big in key win over Mets**\
+`The Red Sox showed the tantalizing potential they possess when firing on all cylinders as they held down the Mets 3-1.`\
+https://nytimes.com/athletic/6369114/2025/05/20/red-sox-mets-jarren-duran-kodai-senga/
+
+**Arsenal, Declan Rice and their need for a press-resistant No 6**\
+`The defensive base is stable, now Mikel Arteta simply must find room for a technical No 6 if Arsenal are to evolve`\
+https://nytimes.com/athletic/6367045/2025/05/20/arsenal-declan-rice-midfielder-zubimendi/
+
+**Goodbye Goodison, hello 'Hickory Dickory Dock'? Everton fans battle with new stadium name**\
+`Everton's new home will be known as the Hill Dickinson Stadium - the predominant reaction is of rationalisation, as The Athletic found out`\
+https://nytimes.com/athletic/6365343/2025/05/20/everton-stadium-name-fans/
+
 **Tuesday Briefing**\
 `President Trump’s conversation with Vladimir Putin.`\
 https://nytimes.com/2025/05/20/briefing/trump-putin-gaza-israel.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/20/world/europe/uk-starmer-eu-deal.html
 **Connections: Sports Edition Coach: Hints for May 20, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6369159/2025/05/20/connections-sports-edition-hints-for-may-20-2025/
-
-**Corrections: May 20, 2025**\
-`Corrections that appeared in print on Tuesday, May 20, 2025.`\
-https://nytimes.com/2025/05/20/pageoneplus/corrections-may-20-2025.html
-
-**Quote of the Day: Shattered by Tornado, Kentucky City Regroups**\
-`Quotation of the Day for Tuesday, May 20, 2025.`\
-https://nytimes.com/2025/05/19/pageoneplus/quote-of-the-day-shattered-by-tornado-kentucky-city-regroups.html
-
-**Juan Soto's version of 'hustling pretty hard' draws scrutiny in Mets' loss**\
-`Analysis: Soto eased out of the batter's box and wound up with a 347-foot single, violating the first rule of hustling.`\
-https://nytimes.com/athletic/6369115/2025/05/19/mets-juan-soto-hustle/
-
-**Phillies' Kyle Schwarber hits 466-foot blast for 300th career home run**\
-`Schwarber's 300th homer traveled 466 feet — the third-longest homer in MLB this season. `\
-https://nytimes.com/athletic/6369142/2025/05/19/kyle-schwarber-300th-home-run-phillies/
 
