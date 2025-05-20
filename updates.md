@@ -1,3 +1,15 @@
+**Bruins GM Don Sweeney signs two-year extension**\
+`Sweeney’s mandate is to turn around a club that finished with the fifth-worst record and missed the playoffs for the first time since 2016.`\
+https://nytimes.com/athletic/6370135/2025/05/20/bruins-don-sweeney-extension/
+
+**Are You a European in a Housing Crunch? We Want to Hear From You.**\
+`To help us report on the housing crisis in Europe, we want to learn about the housing pressures you are dealing with, how they are affecting your community and how they are being solved.`\
+https://nytimes.com/2025/05/20/business/europe-housing-crunch.html
+
+**Trump Squeezes His Party on Domestic Policy Bill**\
+`The president visited the weekly meeting of House Republicans to make the case for the legislation and pressure members of his party to fall into line.`\
+https://nytimes.com/2025/05/20/us/politics/trump-big-beautiful-bill.html
+
 **Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
 `At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that helped President Trump win. Yes, there’s a price tag.`\
 https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
