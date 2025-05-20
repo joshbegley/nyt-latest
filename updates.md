@@ -1,3 +1,15 @@
+**Late Night Is Concerned About (the Truth Behind) Biden’s Health**\
+`“They used to say it’s not the crime, it’s the cover-up, but it’s starting to feel like politics is all cover-up,” Jon Stewart said.`\
+https://nytimes.com/2025/05/20/arts/television/late-night-biden-cancer.html
+
+**Mirtle: Should the Maple Leafs bring John Tavares back? Or is it over?**\
+`Can Toronto accommodate its former captain? Could Tavares be headed back to free agency as one of the top players available?`\
+https://nytimes.com/athletic/6369045/2025/05/20/maple-leafs-john-tavares-nhl/
+
+**Maresca: Jorgensen to start UECL final, ‘unhappy’ with Betis scheduling**\
+`Jorgensen has started 13 of Chelsea's 14 Conference League matches, keeping five clean sheets.`\
+https://nytimes.com/athletic/6369633/2025/05/20/jorgensen-chelsea-goalkeeper-conference-league-final/
+
 **Global Economic Officials Gather Amid Headwinds From Trump’s Trade War**\
 `Treasury Secretary Scott Bessent will meet his international counterparts at a G7 finance ministers meeting in Canada.`\
 https://nytimes.com/2025/05/20/us/politics/g7-canada-trump-trade-war.html
