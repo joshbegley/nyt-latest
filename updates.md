@@ -1,3 +1,19 @@
+**Emiliano Martinez: Is his Aston Villa career coming to an emotional end?**\
+`The 'world's no 1' is a modern Villa legend but his emotional reaction at the final home game of the season spoke volumes - this is why`\
+https://nytimes.com/athletic/6367126/2025/05/20/emiliano-martinez-aston-villa-transfer/
+
+**Chelsea's away form has cost them lately. Now they must deliver when it matters most**\
+`Enzo Maresca's team have struggled on the road in 2025 and now face two massive games away from Stamford Bridge to end the season`\
+https://nytimes.com/athletic/6367067/2025/05/20/chelsea-away-form-premier-league-conference-league/
+
+**Inside Newcastle Q&A: Isak mind games? Summer signing ambitions? Trafford still top goalkeeper target?**\
+`Chris Waugh answers your questions, from transfer window expectations to the future of Sean Longstaff`\
+https://nytimes.com/athletic/6366920/2025/05/20/inside-newcastle-isak-trafford-longstaff-delap/
+
+**The rise of Eintracht Frankfurt: 'We are showing that big things are possible'**\
+`An impressive third-place finish in the Bundesliga has secured Champions League football for a club proving innovative on and off the pitch`\
+https://nytimes.com/athletic/6367063/2025/05/20/eintracht-frankfurt-bundesliga-champions-league/
+
 **Micky van de Ven: The centre back of the future who Tottenham can't live without**\
 `Those who worked with the great Johan Cruyff say Van de Ven has 'Cruyffian' qualities - and they have helped Spurs make it to Bilbao`\
 https://nytimes.com/athletic/6356242/2025/05/20/micky-van-de-ven-cruyff-tottenham/
