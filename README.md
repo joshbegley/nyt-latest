@@ -1,3 +1,7 @@
+**Kennedy’s Allies Against Pesticides: Environmentalists, Moms and Manly Men**\
+`An unlikely group is coalescing around the health secretary’s drive for restrictions on atrazine, which is linked to cancer, birth defects and low sperm counts.`\
+https://nytimes.com/2025/05/20/climate/atrazine-manosphere-maha-kennedy.html
+
 **Gen Z Imagines the Future of Fashion**\
 `Text by Kellina Moore and Hiroko Masuike`\
 https://nytimes.com/card/2025/05/20/style/parsons-bfa-runway-gen-z-designers
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6368156/2025/05/20/manchester-united-europa-league-
 **How Spurs reached the Europa League final against a backdrop of Premier League pain**\
 `Despite a woeful domestic season, Spurs have managed to navigate their way to the Europa League final. Now they are one game from redemption`\
 https://nytimes.com/athletic/6368431/2025/05/20/how-spurs-reached-the-europa-league-final-against-a-backdrop-of-premier-league-pain/
-
-**Coming to City Center: A Flurry of Dance From Around the World**\
-`Fall for Dance will have its most international lineup since the pandemic; and the center’s 2025-26 season will feature Paris Opera Ballet and Dutch National Ballet.`\
-https://nytimes.com/2025/05/20/arts/dance/city-center-2025-25-season-international-dance.html
 
