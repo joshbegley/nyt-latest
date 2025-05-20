@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**What is Habeas Corpus, the Basic Right That Trump Officials Are Talking About Suspending?**\
+`Administration officials have suggested suspending a legal principle that protects against unlawful detention, and struggled to accurately define it.`\
+https://nytimes.com/2025/05/20/us/politics/what-is-habeas-corpus-trump-kristi-noem.html
+
 **U.S. Debt Is on Pace to Set a Record. (The Data Goes Back to 1790.)**\
 `If Republicans pass their tax and spending megabill, the record will arrive even sooner — putting America’s debt at more than 113 percent of the size of its entire economy.`\
 https://nytimes.com/2025/05/20/upshot/record-debt-republicans-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-tran
 **George Wendt, a.k.a. Norm From ‘Cheers,’ Is Dead at 76**\
 `A burly, easygoing Chicago native, he became a staple of living rooms across the country for more than a decade as one of America’s favorite barflies.`\
 https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
-
-**What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
-`The Patriots' second-year QB struggled to start OTAs, but it's only May with plenty of football ahead.`\
-https://nytimes.com/athletic/6371003/2025/05/20/new-england-patriots-otas-drake-maye-christian-gonzalez/
 

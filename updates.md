@@ -1,3 +1,11 @@
+**U.S. Debt Is on Pace to Set a Record. (The Data Goes Back to 1790.)**\
+`If Republicans pass their tax and spending megabill, the record will arrive even sooner — putting America’s debt at more than 113 percent of the size of its entire economy.`\
+https://nytimes.com/2025/05/20/upshot/record-debt-republicans-bill.html
+
+**What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
+`The Patriots' second-year QB struggled to start OTAs, but it's only May with plenty of football ahead.`\
+https://nytimes.com/athletic/6371003/2025/05/20/new-england-patriots-otas-drake-maye-christian-gonzalez/
+
 **Elections**\
 ``\
 https://nytimes.com/section/us/elections

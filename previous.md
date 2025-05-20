@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**U.S. Debt Is on Pace to Set a Record. (The Data Goes Back to 1790.)**\
+`If Republicans pass their tax and spending megabill, the record will arrive even sooner — putting America’s debt at more than 113 percent of the size of its entire economy.`\
+https://nytimes.com/2025/05/20/upshot/record-debt-republicans-bill.html
+
 **Elections**\
 ``\
 https://nytimes.com/section/us/elections
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-tran
 https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
 
 **What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
-`The Patriots' second-year QB struggled to start OTAs, but it's only May with plenty football ahead.`\
+`The Patriots' second-year QB struggled to start OTAs, but it's only May with plenty of football ahead.`\
 https://nytimes.com/athletic/6371003/2025/05/20/new-england-patriots-otas-drake-maye-christian-gonzalez/
-
-**Venezuela Frees an Air Force Veteran the U.S. Says Was Wrongfully Held**\
-`The family of Joseph St. Clair confirmed his release. The move comes as the United States threatens to choke off Venezuela’s critical oil revenue.`\
-https://nytimes.com/2025/05/20/world/americas/venezuela-us-air-force-veteran-release.html
 
