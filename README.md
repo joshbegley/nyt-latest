@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Trump Unveils Plans for ‘Golden Dome’ Missile Defense System**\
+`The project has been a priority for President Trump since he took office, having promised during the campaign to build a defense system against foreign threats similar to Israel’s Iron Dome.`\
+https://nytimes.com/2025/05/20/us/politics/trump-golden-dome.html
+
+**Ex-Tennessee guard Zakai Zeigler suing NCAA for a fifth year of eligibility**\
+`Zeigler's suit differs from other recent lawsuits regarding eligibility, in that it focuses on challenging current redshirt rules.`\
+https://nytimes.com/athletic/6371353/2025/05/20/tennessee-zakai-zeigler-suing-ncaa-eligibility/
+
+**NASCAR Hall of Fame 2026: Why I voted for Kurt Busch, Jeff Burton over Harry Gant**\
+`Kurt Busch and Harry Gant on Tuesday won election to NASCAR's Hall of Fame, with Jeff Burton finishing third. Here's how I voted.`\
+https://nytimes.com/athletic/6371048/2025/05/20/nascar-hall-of-fame-2026-kurt-busch-jeff-burton-harry-gant/
+
 **Country Is Having (Another!) Rap Moment**\
 `After Morgan Wallen, Lil Nas X and Shaboozey, Nashville is going hip-hop yet again. “Oil Money” by Graham Barham is the latest example of a long lineage, our critic explains from the driver’s seat.`\
 https://nytimes.com/video/podcasts/100000010180577/country-is-having-another-rap-moment.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/20/us/santa-fe-jail-released-prisoner-deaths.html
 **Hegseth Orders a New Review of U.S. Withdrawal From Afghanistan**\
 `The defense secretary’s decision to select his chief spokesman to lead the inquiry into the chaotic end of the war was highly unusual.`\
 https://nytimes.com/2025/05/20/us/politics/hegseth-afghan-war-review.html
-
-**Prosecutors probe inconsistencies in teammate's testimony in Hockey Canada trial**\
-`Prosecutors asked witness Brett Howden to refer to statements he had made in previous investigations to refresh his memory. `\
-https://nytimes.com/athletic/6370479/2025/05/20/hockey-canada-sexual-assault-trial-testimony-3/
-
-**Biden Did Not Get Prostate Cancer Diagnosis Before Last Week, Spokesman Says**\
-`Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
-https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
-
-**Trump Told Republicans to Get in Line**\
-`Also, Israel’s allies told it to stop its expanded Gaza offensive. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
 

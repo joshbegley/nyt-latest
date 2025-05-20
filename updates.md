@@ -1,3 +1,11 @@
+**Country Is Having (Another!) Rap Moment**\
+`After Morgan Wallen, Lil Nas X and Shaboozey, Nashville is going hip-hop yet again. “Oil Money” by Graham Barham is the latest example of a long lineage, our critic explains from the driver’s seat.`\
+https://nytimes.com/video/podcasts/100000010180577/country-is-having-another-rap-moment.html
+
+**In Approving Soda Ban for Food Stamps, U.S.D.A. Reverses Decades of Policy**\
+`The Trump administration approved a first of its kind waiver for Nebraska, allowing a ban on soda purchases through the Supplemental Nutrition Assistance Program, starting next year.`\
+https://nytimes.com/2025/05/20/us/politics/nebraska-bans-soda-snap-benefits-usda.html
+
 **Spotlight intensifying on Juan Soto's struggles with Mets: 'There is a lot of noise right now'**\
 `Mendoza attributed Soto’s postgame comments Monday to “frustration.”`\
 https://nytimes.com/athletic/6371331/2025/05/20/juan-soto-mets-hustle-struggle/
