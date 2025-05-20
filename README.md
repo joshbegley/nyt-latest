@@ -1,3 +1,15 @@
+**Quote of the Day: Shattered by Tornado, Kentucky City Regroups**\
+`Quotation of the Day for Tuesday, May 20, 2025.`\
+https://nytimes.com/2025/05/19/pageoneplus/quote-of-the-day-shattered-by-tornado-kentucky-city-regroups.html
+
+**Juan Soto's version of 'hustling pretty hard' draws scrutiny in Mets' loss**\
+`Analysis: Soto eased out of the batter’s box and wound up with a a 347-foot single, violating the first rule of hustling.`\
+https://nytimes.com/athletic/6369115/2025/05/19/mets-juan-soto-hustle/
+
+**Phillies' Kyle Schwarber hits 466-foot blast for 300th career home run**\
+`Schwarber's 300th homer traveled 466 feet — the third-longest homer in MLB this season. `\
+https://nytimes.com/athletic/6369142/2025/05/19/kyle-schwarber-300th-home-run-phillies/
+
 **How the Trade War Shaped a Chinese Battery Giant’s Hong Kong Debut**\
 `Shares of the company, CATL, surged in their first day of trading. Onshore U.S. investors were blocked from buying its stock as a “decoupling” of finance continued.`\
 https://nytimes.com/2025/05/19/business/china-battery-hong-kong-catl.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/19/us/politics/senate-crypto-regulation-bill.html
 **The Inside Story of Trump’s Search for a New Air Force One**\
 `Qatar had been trying to sell off a luxury jet for years, with no luck. Then President Trump’s team set its sights on it.`\
 https://nytimes.com/2025/05/19/us/politics/trump-air-force-one-qatar-jet.html
-
-**Justice Dept. to Use False Claims Act to Pursue Institutions Over Diversity Efforts**\
-`The department’s use of the law is all but certain to be met with legal challenges.`\
-https://nytimes.com/2025/05/19/us/politics/false-claims-act-dei-harvard.html
-
-**In Reversal, Trump Officials Will Allow Huge Offshore N.Y. Wind Farm to Proceed**\
-`The Trump administration had issued a highly unusual stop-work order on the Empire Wind project last month, leading to intense pushback from officials in New York.`\
-https://nytimes.com/2025/05/19/climate/empire-wind-new-york-hochul.html
-
-**Mexican Ship in Fatal Crash Accelerated Before Hitting Brooklyn Bridge**\
-`As a federal investigation began, officials said the Cuauhtémoc backed into the bridge, killing two, less than five minutes after leaving a Manhattan pier.`\
-https://nytimes.com/2025/05/19/nyregion/nyc-ship-brooklyn-bridge-mexican-navy.html
 

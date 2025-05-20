@@ -1,3 +1,7 @@
+**How the Trade War Shaped a Chinese Battery Giant’s Hong Kong Debut**\
+`Shares of the company, CATL, surged in their first day of trading. Onshore U.S. investors were blocked from buying its stock as a “decoupling” of finance continued.`\
+https://nytimes.com/2025/05/19/business/china-battery-hong-kong-catl.html
+
 **Mets may have 'more stern' conversation about approach as RISP woes continue**\
 `Carlos Mendoza said the Mets lineup has been too passive early in counts and too aggressive later.`\
 https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
