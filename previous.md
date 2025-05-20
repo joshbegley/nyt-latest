@@ -1,3 +1,23 @@
+**The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
+`My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
+https://nytimes.com/wirecutter/reviews/felco-2-review/
+
+**Joao Pedro missed Brighton's Liverpool win after training altercation with Van Hecke**\
+`Brighton head coach Fabian Hurzeler said at full time the Brazil international was missing due to "private reasons".`\
+https://nytimes.com/athletic/6370477/2025/05/20/joao-pedro-van-hecke-brighton-altercation/
+
+**Can a Restaurant Be Both Glamorous and Comforting? Cafe Zaffri Is.**\
+`This new all-day Levantine restaurant near Union Square aims to accommodate every kind of customer, and still manages to innovate.`\
+https://nytimes.com/2025/05/20/dining/can-a-restaurant-be-both-glamorous-and-comforting-cafe-zaffri-is.html
+
+**Trump Canceled Deportation Protections. Here’s Where Legal Challenges Stand.**\
+`The Supreme Court allowed the Trump administration to lift protections for thousands of Venezuelans, leaving them potentially vulnerable to deportation. What about people from other countries?`\
+https://nytimes.com/2025/05/20/us/politics/trump-deportation-protections-venezuelans-refugees.html
+
+**Angel Reese say she's supported by Sky, WNBA during investigation of 'hateful fan comments'**\
+`"I think I have a great support system. I'm loved by so many people," Reese said Tuesday about the investigation into the incident.`\
+https://nytimes.com/athletic/6370677/2025/05/20/angel-reese-wnba-investigation-fan-comments/
+
 **The best Kobe Bryant cards to collect**\
 `Bryant is still one of the most widely collected basketball players today`\
 https://nytimes.com/athletic/6359072/2025/05/20/kobe-bryant-rookie-cards-autographs/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/20/movies/los-angeles-film-industry.html
 **USA's Hilary Knight plans to make 2026 Milan final Olympics appearance**\
 `Knight still plans to play in the PWHL after Milan, according to USA Today.`\
 https://nytimes.com/athletic/6370663/2025/05/20/hilary-knight-2026-milan-olympics/
-
-**Submit your Raptors questions for Eric Koreen’s offseason mailbag**\
-`The Toronto Raptors did not get lucky in the NBA Draft lottery, falling from their seventh slot to No.`\
-https://nytimes.com/athletic/6370707/2025/05/20/raptors-mailbag-offseason/
-
-**State of the Arts in 2025: Precarious, Promising, or a Bit of Both?**\
-`At the Art for Tomorrow conference in Milan, participants faced sobering financial and geopolitical realities, while still finding reasons for hope and joy.`\
-https://nytimes.com/2025/05/20/arts/design/art-for-tomorrow-conference.html
-
-**U.S. Says Lawmaker Assaulted 2 Agents, as Democrats Object to Charges**\
-`Representative LaMonica McIver, Democrat of New Jersey, faces assault charges after a clash outside a migrant detention center in Newark. She has denied the government’s depiction of events.`\
-https://nytimes.com/2025/05/20/nyregion/new-jersey-congress-ice-mciver.html
-
-**Limited Aid Enters Gaza After Two-Month Blockade**\
-`The United Nations said that the handful of trucks allowed through the Kerem Shalom Crossing were not enough amid a dire humanitarian situation in the Palestinian encalve.`\
-https://nytimes.com/video/world/middleeast/100000010180029/gaza-israel-aid.html
-
-**Sausage Rolls, England’s Favorite Pastries, Are Better Than Ever**\
-`We asked creative Londoners to share their favorite takes on the beloved snack around the city.`\
-https://nytimes.com/2025/05/20/t-magazine/best-sausage-rolls-london.html
 
