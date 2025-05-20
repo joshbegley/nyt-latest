@@ -1,3 +1,7 @@
+**Met Museum Surrenders Artifacts Thought Looted From Iraq**\
+`The Manhattan district attorney’s office said the objects had been identified as illicit during an investigation of an art dealer suspected of having trafficked in stolen antiquities.`\
+https://nytimes.com/2025/05/19/arts/met-museum-iraq-looted-artifacts.html
+
 **The Trump-Supporting Christians Accusing Jews of Antisemitism**\
 `Ultra-Zionist gentiles are transforming America into something out of Jewish nightmares, pretending they’re trying to ensure Jewish safety.`\
 https://nytimes.com/2025/05/19/opinion/antisemitism-israel-palestine-esther.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6366720/2025/05/19/ncaa-softball-tournament-regiona
 **Trump Backs Off His Demand That Russia Declare a Cease-Fire in Ukraine**\
 `President Trump once vowed to broker peace between Russia and Ukraine in 24 hours. Now he says the two sides should work it out themselves.`\
 https://nytimes.com/2025/05/19/us/politics/trump-russia-ukraine-cease-fire.html
-
-**British tennis stars call on U.K. prime minister for grassroots investment**\
-`Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
-https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/
 

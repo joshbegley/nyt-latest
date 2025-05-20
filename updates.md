@@ -1,3 +1,7 @@
+**Met Museum Surrenders Artifacts Thought Looted From Iraq**\
+`The Manhattan district attorney’s office said the objects had been identified as illicit during an investigation of an art dealer suspected of having trafficked in stolen antiquities.`\
+https://nytimes.com/2025/05/19/arts/met-museum-iraq-looted-artifacts.html
+
 **The Trump-Supporting Christians Accusing Jews of Antisemitism**\
 `Ultra-Zionist gentiles are transforming America into something out of Jewish nightmares, pretending they’re trying to ensure Jewish safety.`\
 https://nytimes.com/2025/05/19/opinion/antisemitism-israel-palestine-esther.html
