@@ -1,3 +1,7 @@
+**Ukrainians Brace for a Lonelier Fight as Trump Backs Off Cease-Fire Call**\
+`President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
+https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
+
 **Pistons offseason mailbag: Re-signing Malik Beasley, potential free-agent targets and more**\
 `After making the playoffs this season, the Pistons' offseason will be a big one in an Eastern Conference that seems as wide open as ever.`\
 https://nytimes.com/athletic/6369015/2025/05/20/detroit-pistons-mailbag-malik-beasley/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/arts/design/art-basel-doha-qatar.html
 **Who is most important to the Chargers’ success in 2025? Counting down 20 through 11**\
 `Third-year edge rusher Tuli Tuipulotu and rookie running back Omarion Hampton will be among the key players this season.`\
 https://nytimes.com/athletic/6368665/2025/05/20/chargers-most-important-players-2025-part-1/
-
-**Why these Oilers are different — and better — heading into rematch with the Stars**\
-`The Oilers dispatched the Stars in six games in the Western Conference final last season. Can they improve on that performance this year?`\
-https://nytimes.com/athletic/6368971/2025/05/20/oilers-nhl-playoffs-conference-final-rematch-stars/
 

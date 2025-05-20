@@ -1,3 +1,7 @@
+**Pistons offseason mailbag: Re-signing Malik Beasley, potential free-agent targets and more**\
+`After making the playoffs this season, the Pistons' offseason will be a big one in an Eastern Conference that seems as wide open as ever.`\
+https://nytimes.com/athletic/6369015/2025/05/20/detroit-pistons-mailbag-malik-beasley/
+
 **Late Night Is Concerned About (the Truth Behind) Biden’s Health**\
 `“They used to say it’s not the crime, it’s the cover-up, but it’s starting to feel like politics is all cover-up,” Jon Stewart said.`\
 https://nytimes.com/2025/05/20/arts/television/late-night-biden-cancer.html

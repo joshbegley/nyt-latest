@@ -1,3 +1,7 @@
+**Pistons offseason mailbag: Re-signing Malik Beasley, potential free-agent targets and more**\
+`After making the playoffs this season, the Pistons' offseason will be a big one in an Eastern Conference that seems as wide open as ever.`\
+https://nytimes.com/athletic/6369015/2025/05/20/detroit-pistons-mailbag-malik-beasley/
+
 **Late Night Is Concerned About (the Truth Behind) Biden’s Health**\
 `“They used to say it’s not the crime, it’s the cover-up, but it’s starting to feel like politics is all cover-up,” Jon Stewart said.`\
 https://nytimes.com/2025/05/20/arts/television/late-night-biden-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6368665/2025/05/20/chargers-most-important-players-
 **Why these Oilers are different — and better — heading into rematch with the Stars**\
 `The Oilers dispatched the Stars in six games in the Western Conference final last season. Can they improve on that performance this year?`\
 https://nytimes.com/athletic/6368971/2025/05/20/oilers-nhl-playoffs-conference-final-rematch-stars/
-
-**Rookies Logan Stankoven, Jackson Blake ‘not afraid’ of Hurricanes’ moment**\
-`Two of the youngest players on the Hurricanes are already valued members of the postseason run.`\
-https://nytimes.com/athletic/6369036/2025/05/20/hurricanes-rookies-jackson-blake-logan-stankoven-nhl-playoffs/
 
