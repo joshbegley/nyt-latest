@@ -1,3 +1,7 @@
+**Europe is a target, not an obsession for Brighton - and the dream is still alive**\
+`A 3-2 win over champions Liverpool leaves Brighton's European qualification hopes in their own hands. They will cherish the opportunity`\
+https://nytimes.com/athletic/6364762/2025/05/20/brighton-europe-conference-league-liverpool/
+
 **China’s Fighter Jets and Missiles Get a Boost From the India-Pakistan Clash**\
 `The reported success of Chinese-made fighter jets and air-to-air missiles in the conflict has fed nationalist pride in China, and has renewed warnings to Taiwan.`\
 https://nytimes.com/2025/05/20/world/asia/china-military-jets-india-pakistan.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6369290/2025/05/20/brighton-joao-pedro-lamptey-upda
 **'Battling with what we got': Dodgers' pitching continues to crater in latest loss**\
 `After getting hit hard Monday in a 9-5 loss to the Diamondbacks, the Dodgers' team ERA of 4.28 ranks 22nd in baseball.`\
 https://nytimes.com/athletic/6369263/2025/05/20/dodgers-pitching-continues-to-crater-diamondbacks-loss/
-
-**Liverpool's proactive summer is under way - and they're recruiting from a position of strength**\
-`Winning the Premier League title has allowed Liverpool to take their foot off the gas on the pitch. Off it, they're going full throttle `\
-https://nytimes.com/athletic/6367315/2025/05/20/liverpool-summer-transfers-frimpong-kerkez-hato/
 
