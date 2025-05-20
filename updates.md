@@ -1,3 +1,15 @@
+**Prosecutors probe inconsistencies in teammate's testimony in Hockey Canada trial**\
+`Prosecutors asked witness Brett Howden to refer to statements he had made in previous investigations to refresh his memory. `\
+https://nytimes.com/athletic/6370479/2025/05/20/hockey-canada-sexual-assault-trial-testimony-3/
+
+**Biden Did Not Get Prostate Cancer Diagnosis Before Last Week, Spokesman Says**\
+`Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
+https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
+
+**Siegel: For Mitch Marner and the Maple Leafs, a breakup is for the best**\
+`All signs are pointing to Marner leaving Toronto in free agency. Why it's the best thing for all involved.`\
+https://nytimes.com/athletic/6370682/2025/05/20/mitch-marner-maple-leafs-contract-nhl/
+
 **Biden Was Not Diagnosed With Prostate Cancer Before Last Week, Spokesman Says**\
 `Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
 https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
