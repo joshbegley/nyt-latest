@@ -1,3 +1,15 @@
+**Real Madrid planning for Bellingham shoulder surgery after Club World Cup**\
+`Specialists consulted by The Athletic indicated Bellingham will likely be sidelined for around 12 weeks.`\
+https://nytimes.com/athletic/6312511/2025/05/20/jude-bellingham-shoulder-surgery-club-world-cup/
+
+**Maple Leafs exit interviews: Takeaways from Matthews, Marner, Tavares, Knies and more**\
+`What we learned in our last chance to hear from the Maple Leafs' players and coach this season.`\
+https://nytimes.com/athletic/6370763/2025/05/20/maple-leafs-matthews-marner-tavares/
+
+**Cubs place reliever Porter Hodge on 15-day IL, activate Ian Happ (oblique)**\
+`Through 21 games, Hodge posted a 5.12 ERA, with 19 strikeouts against 11 walks over 19 1/3 innings pitched. `\
+https://nytimes.com/athletic/6370935/2025/05/20/chicago-cubs-porter-hodge-injured-list/
+
 **Supreme Court Orders Maine House to Restore Voting Power to Censured Lawmaker, for Now**\
 `State Representative Laurel Libby, a Republican, had been banned from voting over comments opposing transgender athletes in girls’ sports.`\
 https://nytimes.com/2025/05/20/us/politics/supreme-court-maine-legislator.html
