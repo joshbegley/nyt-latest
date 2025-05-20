@@ -1,3 +1,11 @@
+**Tyrese Haliburton invites heckled Pacers fan to conference finals Game 4**\
+`Knicks fan Hans Perez was harassed by Knicks fans and hit with bags of garbage while wearing a Tyrese Haliburton jersey in New York City.`\
+https://nytimes.com/athletic/6370218/2025/05/20/tyrese-haliburton-pacers-fan-eastern-conference-finals-game-4/
+
+**Former Liverpool, Spain goalkeeper Reina announces retirement**\
+`Reina made over 900 appearances in a senior career spanning 25 years.`\
+https://nytimes.com/athletic/6370192/2025/05/20/pepe-reina-goalkeeper-retirement/
+
 **Kennedy’s Allies Against Pesticides: Environmentalists, Moms and Manly Men**\
 `An unlikely group is coalescing around the health secretary’s drive for restrictions on atrazine, which is linked to cancer, birth defects and low sperm counts.`\
 https://nytimes.com/2025/05/20/climate/atrazine-manosphere-maha-kennedy.html
@@ -11,7 +19,7 @@ https://nytimes.com/card/2025/05/20/style/parsons-bfa-runway-gen-z-designers
 https://nytimes.com/athletic/6370411/2025/05/20/ange-postecoglou-tottenham-europa/
 
 **Leafs captain Auston Matthews played through injury all season, won't need surgery**\
-`Maple Leafs captain did not comment on specifics about the injury, but said it was a "very tough season."`\
+`The Maple Leafs' captain did not comment on specifics about the injury, but said it was a "very tough season."`\
 https://nytimes.com/athletic/6370315/2025/05/20/maple-leafs-auston-matthews-injury-nhl-playoffs/
 
 **Spike Lee May Be in Cannes, but His Heart Is Courtside With the Knicks**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/20/dining/nyc-restaurant-news.html
 **Blackburn women’s team relegated after owners opt against required funding**\
 `The Lancashire club was given until Monday to state its intention to finance the licensing criteria and retain their tier-two status.`\
 https://nytimes.com/athletic/6366991/2025/05/20/blackburn-rovers-women-team-relegated/
-
-**Glory for Mourinho, heartbreak for Solskjaer - stories of Manchester United's Europa League finals**\
-`After 13 league defeats Ruben Amorim needs a win. What can he learn from United's managers in 2017 and 2021?`\
-https://nytimes.com/athletic/6368156/2025/05/20/manchester-united-europa-league-record/
-
-**How Spurs reached the Europa League final against a backdrop of Premier League pain**\
-`Despite a woeful domestic season, Spurs have managed to navigate their way to the Europa League final. Now they are one game from redemption`\
-https://nytimes.com/athletic/6368431/2025/05/20/how-spurs-reached-the-europa-league-final-against-a-backdrop-of-premier-league-pain/
 
