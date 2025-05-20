@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Elections**\
+``\
+https://nytimes.com/section/us/elections
+
 **Wednesday Briefing: Israel’s Allies Tell It to Stop**\
 `Plus, the International Booker Prize.`\
 https://nytimes.com/2025/05/20/briefing/israel-ukraine-pakistan-india-china.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/05/20/us/politics/trump-ukraine-russia.html
 https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-transfer/
 
 **George Wendt, a.k.a. Norm From ‘Cheers,’ Is Dead at 76**\
-`The burly, easygoing Chicago native became a staple of living rooms for more than a decade as one of America’s favorite barflies.`\
+`A burly, easygoing Chicago native, he became a staple of living rooms across the country for more than a decade as one of America’s favorite barflies.`\
 https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
 
 **What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371003/2025/05/20/new-england-patriots-otas-drake-
 **Venezuela Frees an Air Force Veteran the U.S. Says Was Wrongfully Held**\
 `The family of Joseph St. Clair confirmed his release. The move comes as the United States threatens to choke off Venezuela’s critical oil revenue.`\
 https://nytimes.com/2025/05/20/world/americas/venezuela-us-air-force-veteran-release.html
-
-**Unlocking the Mysteries of Antony Gormley’s Art**\
-`The British artist, whose early lead works are on display at a London gallery, explains the discoveries that drew him to sculpture and his use of his own body as his model.`\
-https://nytimes.com/2025/05/20/arts/design/antony-gormley-sculpture-white-cube.html
 

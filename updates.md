@@ -1,3 +1,11 @@
+**Elections**\
+``\
+https://nytimes.com/section/us/elections
+
+**George Wendt, a.k.a. Norm From ‘Cheers,’ Is Dead at 76**\
+`A burly, easygoing Chicago native, he became a staple of living rooms across the country for more than a decade as one of America’s favorite barflies.`\
+https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
+
 **Wednesday Briefing: Israel’s Allies Tell It to Stop**\
 `Plus, the International Booker Prize.`\
 https://nytimes.com/2025/05/20/briefing/israel-ukraine-pakistan-india-china.html
