@@ -1,3 +1,7 @@
+**Leicester's PSR referral: How many points could they be docked? Would it take effect in the EFL? Transfer embargo?**\
+`The Premier League has referred the club to a commission over an alleged breach of PSR for the 2023-24 season. Here's what it means...`\
+https://nytimes.com/athletic/6369932/2025/05/20/leicesters-psr-points-deductions-explained-2/
+
 **Glory for Mourinho, heartbreak for Solskjaer - stories of Manchester United's Europa League finals**\
 `After 13 league defeats Ruben Amorim needs a win. What can he learn from United's managers in 2017 and 2021?`\
 https://nytimes.com/athletic/6368156/2025/05/20/manchester-united-europa-league-record/

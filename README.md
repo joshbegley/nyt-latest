@@ -1,3 +1,7 @@
+**Blackburn women’s team relegated after owners opt against required funding**\
+`The Lancashire club was given until Monday to state its intention to finance the licensing criteria and retain their tier-two status.`\
+https://nytimes.com/athletic/6366991/2025/05/20/blackburn-rovers-women-team-relegated/
+
 **Glory for Mourinho, heartbreak for Solskjaer - stories of Manchester United's Europa League finals**\
 `After 13 league defeats Ruben Amorim needs a win. What can he learn from United's managers in 2017 and 2021?`\
 https://nytimes.com/athletic/6368156/2025/05/20/manchester-united-europa-league-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369932/2025/05/20/leicesters-psr-points-deductions
 **Is Whole Milk Propaganda? What About Gracie Abrams?**\
 `TikTok users are building eye-catching lists of their dislikes and are labeling them as propaganda that they’re “not falling for.”`\
 https://nytimes.com/2025/05/20/style/tiktok-propaganda-im-not-falling-for.html
-
-**Shane Doyle, Founder of a Storied East Village Venue, Dies at 73**\
-`An Irish expatriate, he created Sin-é, a bare-bones cafe that became an unlikely magnet for stars like Sinead O’Connor, Bono of U2 and Iggy Pop.`\
-https://nytimes.com/2025/05/20/arts/music/shane-doyle-dead.html
 
