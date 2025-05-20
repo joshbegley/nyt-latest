@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, May 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/20/todays-new-york-times
+
+**Ukraine Is Europe’s War. Isn’t It?**\
+`The United States can stand up to the Kremlin in Ukraine now or later. But the cost of waiting could be high.`\
+https://nytimes.com/2025/05/20/opinion/ukraine-putin-trump.html
+
 **Emiliano Martinez: Is his Aston Villa career coming to an emotional end?**\
 `The 'world's no 1' is a modern Villa legend but his emotional reaction at the final home game of the season spoke volumes - this is why`\
 https://nytimes.com/athletic/6367126/2025/05/20/emiliano-martinez-aston-villa-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6367045/2025/05/20/arsenal-declan-rice-midfielder-z
 **Goodbye Goodison, hello 'Hickory Dickory Dock'? Everton fans battle with new stadium name**\
 `Everton's new home will be known as the Hill Dickinson Stadium - the predominant reaction is of rationalisation, as The Athletic found out`\
 https://nytimes.com/athletic/6365343/2025/05/20/everton-stadium-name-fans/
-
-**Tuesday Briefing**\
-`President Trump’s conversation with Vladimir Putin.`\
-https://nytimes.com/2025/05/20/briefing/trump-putin-gaza-israel.html
-
-**Europa League final is vital to the Ruben Amorim project, even if it will not fix Man Utd's flaws**\
-`For all the talk of free midweeks or gradual rebuilds, winning on Wednesday night is vital for the Amorim project`\
-https://nytimes.com/athletic/6367686/2025/05/20/ruben-amorim-europa-league-final/
 
