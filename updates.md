@@ -1,3 +1,7 @@
+**Wednesday Briefing: Israel’s Allies Tell It to Stop**\
+`Plus, the International Booker Prize.`\
+https://nytimes.com/2025/05/20/briefing/israel-ukraine-pakistan-india-china.html
+
 **In a First, a Story Collection Wins the International Booker Prize**\
 `Banu Mushtaq’s “Heart Lamp,” translated by Deepa Bhasthi, had received little notice in Britain or the United States before Tuesday. Now, it’s won the major award for translated fiction.`\
 https://nytimes.com/2025/05/20/books/review/international-booker-prize-winner.html
