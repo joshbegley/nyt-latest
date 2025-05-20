@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Prosecutors probe inconsistencies in teammate's testimony in Hockey Canada trial**\
+`Prosecutors asked witness Brett Howden to refer to statements he had made in previous investigations to refresh his memory. `\
+https://nytimes.com/athletic/6370479/2025/05/20/hockey-canada-sexual-assault-trial-testimony-3/
+
 **Biden Did Not Get Prostate Cancer Diagnosis Before Last Week, Spokesman Says**\
 `Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
 https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
 https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
 
 **Siegel: For Mitch Marner and the Maple Leafs, a breakup is for the best**\
-`All signs are pointing to Mitch Marner leaving Toronto in free agency. Why it's the best thing for all involved.`\
+`All signs are pointing to Marner leaving Toronto in free agency. Why it's the best thing for all involved.`\
 https://nytimes.com/athletic/6370682/2025/05/20/mitch-marner-maple-leafs-contract-nhl/
 
 **Everybody Knew His Name: ‘Norm!’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/opinion/golden-dome-trump-iron-dome.html
 **Trump Administration Caps Flights in and Out of Newark Airport**\
 `Recent technology outages, staffing shortages among air traffic controllers and runway construction have caused significant disruptions and raised concerns about passenger safety.`\
 https://nytimes.com/2025/05/20/us/newark-airport-flights-cap-faa.html
-
-**What It Looked Like Inside the Thomas Indian School**\
-`Archival photos show what life was like in the boarding school for Native American children.`\
-https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-archival-photographs.html
 
