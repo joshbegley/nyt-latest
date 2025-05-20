@@ -1,3 +1,15 @@
+**The Briefing: Manchester City 3 Bournemouth 1 - Mixed farewell for De Bruyne and Marmoush's rocket**\
+`All the key talking points from Pep Guardiola's side's victory over Bournemouth evaluated `\
+https://nytimes.com/athletic/6365482/2025/05/20/manchester-city-3-bournemouth-1-marmoush-de-bruyne/
+
+**Trump’s New Position on the War in Ukraine: Not My Problem**\
+`In a reversal, President Trump appears to have backed off joining a European push for new sanctions on Russia, seemingly eager to move on to doing business deals with it.`\
+https://nytimes.com/2025/05/20/us/politics/trump-ukraine-russia.html
+
+**Real Madrid in talks with Benfica over Carreras move**\
+`If a move for Carreras is successful, Madrid expect him to be available for this summer's Club World Cup.`\
+https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-transfer/
+
 **The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/

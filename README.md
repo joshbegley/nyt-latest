@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-tran
 `The burly, easygoing Chicago native became a staple of living rooms for more than a decade as one of America’s favorite barflies.`\
 https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
 
-**What we learned from the first Patriots OTA: Drake Maye struggles, Christian Gonzalez shines**\
+**What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
 `The Patriots' second-year QB struggled to start OTAs, but it's only May with plenty football ahead.`\
 https://nytimes.com/athletic/6371003/2025/05/20/new-england-patriots-otas-drake-maye-christian-gonzalez/
 
