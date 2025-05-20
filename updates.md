@@ -1,3 +1,7 @@
+**Doucoure confirms Everton exit at end of 2024-25**\
+`Doucoure, 32, was offered a new contract by Everton last week, but a deal could not be struck.`\
+https://nytimes.com/athletic/6369911/2025/05/20/abdoulaye-doucoure-everton-exit/
+
 **Rodri cleared to make Man City return after eight months out with ACL injury**\
 `It is yet to be confirmed if Rodri will partake in Spain's Nations League semi-final against France on June 5.`\
 https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
