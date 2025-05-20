@@ -1,3 +1,7 @@
+**Manchester United trio Zirkzee, Dalot and Yoro fit for Europa League final, says Amorim**\
+`Boost for Manchester United as three players return to squad for Europa League final against Tottenham Hotspur in Bilbao`\
+https://nytimes.com/athletic/6370879/2025/05/20/manchester-united-zirkzee-dalot-yoro-fit-final/
+
 **Real Madrid planning for Bellingham shoulder surgery after Club World Cup**\
 `Specialists consulted by The Athletic indicated Bellingham will likely be sidelined for around 12 weeks.`\
 https://nytimes.com/athletic/6312511/2025/05/20/jude-bellingham-shoulder-surgery-club-world-cup/

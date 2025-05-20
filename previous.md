@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Manchester United trio Zirkzee, Dalot and Yoro fit for Europa League final, says Amorim**\
+`Boost for Manchester United as three players return to squad for Europa League final against Tottenham Hotspur in Bilbao`\
+https://nytimes.com/athletic/6370879/2025/05/20/manchester-united-zirkzee-dalot-yoro-fit-final/
+
 **Real Madrid planning for Bellingham shoulder surgery after Club World Cup**\
 `Specialists consulted by The Athletic indicated Bellingham will likely be sidelined for around 12 weeks.`\
 https://nytimes.com/athletic/6312511/2025/05/20/jude-bellingham-shoulder-surgery-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/us/politics/trump-deportation-protections-venezue
 **Angel Reese say she's supported by Sky, WNBA during investigation of 'hateful fan comments'**\
 `"I think I have a great support system. I'm loved by so many people," Reese said Tuesday about the investigation into the incident.`\
 https://nytimes.com/athletic/6370677/2025/05/20/angel-reese-wnba-investigation-fan-comments/
-
-**The best Kobe Bryant cards to collect**\
-`Bryant is still one of the most widely collected basketball players today`\
-https://nytimes.com/athletic/6359072/2025/05/20/kobe-bryant-rookie-cards-autographs/
 
