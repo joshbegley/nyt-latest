@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**The Briefing: Manchester City 3 Bournemouth 1 - Mixed farewell for De Bruyne and Marmoush's rocket**\
+`All the key talking points from Pep Guardiola's side's victory over Bournemouth evaluated `\
+https://nytimes.com/athletic/6365482/2025/05/20/manchester-city-3-bournemouth-1-marmoush-de-bruyne/
+
+**Trump’s New Position on the War in Ukraine: Not My Problem**\
+`In a reversal, President Trump appears to have backed off joining a European push for new sanctions on Russia, seemingly eager to move on to doing business deals with it.`\
+https://nytimes.com/2025/05/20/us/politics/trump-ukraine-russia.html
+
+**Real Madrid in talks with Benfica over Carreras move**\
+`If a move for Carreras is successful, Madrid expect him to be available for this summer's Club World Cup.`\
+https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-transfer/
+
 **George Wendt, a.k.a. Norm From ‘Cheers,’ Is Dead at 76**\
 `The burly, easygoing Chicago native became a staple of living rooms for more than a decade as one of America’s favorite barflies.`\
 https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6370983/2025/05/20/pochettino-sees-great-opportunit
 **NFL players can try out for flag football at 2028 LA Olympics, owners vote**\
 `Six countries will be represented for men's and women’s flag football at the 2028 Olympics in Los Angeles.`\
 https://nytimes.com/athletic/6360022/2025/05/20/nfl-olympics-flag-football-owners-vote-players/
-
-**Hochul Apologizes to Native Americans for Boarding School Atrocities**\
-`Gov. Kathy Hochul of New York visited Seneca land on Tuesday to apologize for the state’s operation of a boarding school that “sanctioned ethnic cleansing” of Native American children.`\
-https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-apology.html
-
-**Michael A. Ledeen, Reagan Adviser Involved in Iran-Contra, Dies at 83**\
-`A neoconservative who fervidly opposed Communism and the fundamentalist regime in Iran, he wrote many books and articles, some of whose theories were later discredited.`\
-https://nytimes.com/2025/05/20/obituaries/michael-a-ledeen-dead.html
-
-**Southampton close to appointing Still as new head coach**\
-`Talks between the two parties are at an advanced stage and progressing well.`\
-https://nytimes.com/athletic/6364784/2025/05/20/will-still-southampton-head-coach/
 
