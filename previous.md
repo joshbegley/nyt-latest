@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Hegseth Orders a New Review of U.S. Withdrawal From Afghanistan**\
+`The defense secretary’s decision to select his chief spokesman to lead the inquiry into the chaotic end of the war was highly unusual.`\
+https://nytimes.com/2025/05/20/us/politics/hegseth-afghan-war-review.html
+
 **Prosecutors probe inconsistencies in teammate's testimony in Hockey Canada trial**\
 `Prosecutors asked witness Brett Howden to refer to statements he had made in previous investigations to refresh his memory. `\
 https://nytimes.com/athletic/6370479/2025/05/20/hockey-canada-sexual-assault-trial-testimony-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371188/2025/05/20/manchester-city-kevin-de-bruyne-
 **The Reality of Trump’s Golden Dome**\
 `We don’t know all the details of Trump’s plan to build an Iron Dome-like defense system. What we do know is it wouldn’t come cheap, easy or soon.`\
 https://nytimes.com/2025/05/20/opinion/golden-dome-trump-iron-dome.html
-
-**Trump Administration Caps Flights in and Out of Newark Airport**\
-`Recent technology outages, staffing shortages among air traffic controllers and runway construction have caused significant disruptions and raised concerns about passenger safety.`\
-https://nytimes.com/2025/05/20/us/newark-airport-flights-cap-faa.html
 
