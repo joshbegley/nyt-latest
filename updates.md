@@ -1,3 +1,15 @@
+**E.U. to Lift Economic Sanctions on Syria in a Bid to Bolster Stability**\
+`European Union foreign ministers on Tuesday agreed to lift the remaining economic curbs on the war-torn country, amid concerns it could slip back into conflict.`\
+https://nytimes.com/2025/05/20/world/europe/eu-syria-sanctions.html
+
+**How to watch Dream at Fever: Caitlin Clark and Indiana seek 2-0 start Tuesday night**\
+`Let's see what Caitlin Clark has in store for Tuesday, with her Indiana Fever as home favorites against the new-look Atlanta Dream.`\
+https://nytimes.com/athletic/6370803/2025/05/20/dream-fever-caitlin-clark-wnba-how-to-watch/
+
+**Trump Scolded Companies for Raising Prices. Do They Have a Choice?**\
+`Economists say companies generally have to pass along the cost of tariffs. But populists on the left and right say the president may have a point.`\
+https://nytimes.com/2025/05/20/business/trump-tariffs-price-increases.html
+
 **Manchester United trio Zirkzee, Dalot and Yoro fit for Europa League final, says Amorim**\
 `Boost for Manchester United as three players return to squad for Europa League final against Tottenham Hotspur in Bilbao`\
 https://nytimes.com/athletic/6370879/2025/05/20/manchester-united-zirkzee-dalot-yoro-fit-final/

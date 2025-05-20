@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**E.U. to Lift Economic Sanctions on Syria in a Bid to Bolster Stability**\
+`European Union foreign ministers on Tuesday agreed to lift the remaining economic curbs on the war-torn country, amid concerns it could slip back into conflict.`\
+https://nytimes.com/2025/05/20/world/europe/eu-syria-sanctions.html
+
+**How to watch Dream at Fever: Caitlin Clark and Indiana seek 2-0 start Tuesday night**\
+`Let's see what Caitlin Clark has in store for Tuesday, with her Indiana Fever as home favorites against the new-look Atlanta Dream.`\
+https://nytimes.com/athletic/6370803/2025/05/20/dream-fever-caitlin-clark-wnba-how-to-watch/
+
+**Trump Scolded Companies for Raising Prices. Do They Have a Choice?**\
+`Economists say companies generally have to pass along the cost of tariffs. But populists on the left and right say the president may have a point.`\
+https://nytimes.com/2025/05/20/business/trump-tariffs-price-increases.html
+
 **Manchester United trio Zirkzee, Dalot and Yoro fit for Europa League final, says Amorim**\
 `Boost for Manchester United as three players return to squad for Europa League final against Tottenham Hotspur in Bilbao`\
 https://nytimes.com/athletic/6370879/2025/05/20/manchester-united-zirkzee-dalot-yoro-fit-final/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/20/us/politics/supreme-court-maine-legislator.html
 **Joao Pedro missed Brighton's Liverpool win after training altercation with Van Hecke**\
 `Brighton head coach Fabian Hurzeler said at full time the Brazil international was missing due to "private reasons".`\
 https://nytimes.com/athletic/6370477/2025/05/20/joao-pedro-van-hecke-brighton-altercation/
-
-**Can a Restaurant Be Both Glamorous and Comforting? Cafe Zaffri Is.**\
-`This new all-day Levantine restaurant near Union Square aims to accommodate every kind of customer, and still manages to innovate.`\
-https://nytimes.com/2025/05/20/dining/can-a-restaurant-be-both-glamorous-and-comforting-cafe-zaffri-is.html
-
-**Trump Canceled Deportation Protections. Here’s Where Legal Challenges Stand.**\
-`The Supreme Court allowed the Trump administration to lift protections for thousands of Venezuelans, leaving them potentially vulnerable to deportation. What about people from other countries?`\
-https://nytimes.com/2025/05/20/us/politics/trump-deportation-protections-venezuelans-refugees.html
-
-**Angel Reese say she's supported by Sky, WNBA during investigation of 'hateful fan comments'**\
-`"I think I have a great support system. I'm loved by so many people," Reese said Tuesday about the investigation into the incident.`\
-https://nytimes.com/athletic/6370677/2025/05/20/angel-reese-wnba-investigation-fan-comments/
 
