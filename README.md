@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/20/health/joe-biden-prostate-cancer-diagnosis-screening.html
 
 **Leafs goalie Anthony Stolarz discusses Sam Bennett hit, says he suffered concussion**\
-`Maple Leafs goalie left Game 1 after suffering injury in 'unfortunate incident' with former teammate. He did not play again in the series.`\
+`Stolarz left Game 1 after suffering an injury in an 'unfortunate incident' with a former teammate. He did not play again in the series.`\
 https://nytimes.com/athletic/6370375/2025/05/20/leafs-anthony-stolarz-concussion-sam-bennett/
 
 **What does Bruins' Don Sweeney extension mean? Faith in aggressive moves to come**\
