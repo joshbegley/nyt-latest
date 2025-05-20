@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Real Madrid planning for Bellingham shoulder surgery after Club World Cup**\
+`Specialists consulted by The Athletic indicated Bellingham will likely be sidelined for around 12 weeks.`\
+https://nytimes.com/athletic/6312511/2025/05/20/jude-bellingham-shoulder-surgery-club-world-cup/
+
+**Maple Leafs exit interviews: Takeaways from Matthews, Marner, Tavares, Knies and more**\
+`What we learned in our last chance to hear from the Maple Leafs' players and coach this season.`\
+https://nytimes.com/athletic/6370763/2025/05/20/maple-leafs-matthews-marner-tavares/
+
+**Cubs place reliever Porter Hodge on 15-day IL, activate Ian Happ (oblique)**\
+`Through 21 games, Hodge posted a 5.12 ERA, with 19 strikeouts against 11 walks over 19 1/3 innings pitched. `\
+https://nytimes.com/athletic/6370935/2025/05/20/chicago-cubs-porter-hodge-injured-list/
+
 **Supreme Court Orders Maine House to Restore Voting Power to Censured Lawmaker, for Now**\
 `State Representative Laurel Libby, a Republican, had been banned from voting over comments opposing transgender athletes in girls’ sports.`\
 https://nytimes.com/2025/05/20/us/politics/supreme-court-maine-legislator.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6370677/2025/05/20/angel-reese-wnba-investigation-f
 **The best Kobe Bryant cards to collect**\
 `Bryant is still one of the most widely collected basketball players today`\
 https://nytimes.com/athletic/6359072/2025/05/20/kobe-bryant-rookie-cards-autographs/
-
-**A New System Aims to Save Injured Brains and Lives**\
-`Nearly 100 neurology experts collaborated on the creation of a new method of evaluating patients with traumatic brain injuries.`\
-https://nytimes.com/2025/05/20/health/traumatic-brain-injury-tbi-guidelines.html
-
-**Cleveland Guardians' Travis Bazzana to miss 2 months with oblique strain**\
-`Bazzana suffered the injury May 14 in a game against the Chesapeake Baysox.`\
-https://nytimes.com/athletic/6370720/2025/05/20/cleveland-guardians-travis-bazzana-oblique-strain/
-
-**Los Angeles Mayor Seeks to Lure Filming Back by Cutting Red Tape**\
-`With film and TV production in Los Angeles down by roughly one-third in recent years, Mayor Karen Bass took steps to make it easier to shoot at top locations.`\
-https://nytimes.com/2025/05/20/movies/los-angeles-film-industry.html
 
