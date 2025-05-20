@@ -1,11 +1,3 @@
-**G.M. Stops Exporting Cars to China**\
-`The decision affects relatively few vehicles because the vast majority that General Motors sells there are made in that country.`\
-https://nytimes.com/2025/05/19/business/general-motors-gm-china-exports.html
-
-**Browns' Shedeur Sanders signs 4-year, $4.6 million rookie contract**\
-`Sanders' fall to the fifth round in the 2025 NFL Draft cost him financially. No. 1 pick Cam Ward is projected to make nearly $80 million.`\
-https://nytimes.com/athletic/6368708/2025/05/19/cleveland-browns-shedeur-sanders-rookie-contract/
-
 **Retired Navy Admiral Is Convicted on Bribery Charges**\
 `Robert P. Burke, who was the Navy’s second-highest-ranking officer, was accused of steering a contract to a company that offered him a lucrative job.`\
 https://nytimes.com/2025/05/19/us/navy-admiral-convicted-bribery.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/05/19/nyregion/arthur-ashe-stadium-renovation.html
 **Did Usher Write His Own Commencement Speech? (Yeah!)**\
 `Usher told Emory’s Class of 2025 a story about himself that he has rarely shared. Here is how late-night brainstorming, careful editing and last-minute riffing led to that moment.`\
 https://nytimes.com/interactive/2025/05/19/us/usher-commencement-speech-emory.html
+
+**What we learned from Celtics' Brad Stevens on Jayson Tatum, Jaylen Brown and offseason plans**\
+`Stevens says star Tatum has a “long road ahead” in his recovery after rupturing his Achilles tendon.`\
+https://nytimes.com/athletic/6368640/2025/05/19/celtics-brad-stevens-jayson-tatum-jaylen-brown-injury/
+
+**Debt Downgrade Bolsters The Right In Congressional Talks Over Megabill**\
+`Conservatives have been holding out against the major tax and spending cut package to implement President Trump’s agenda, arguing it will swell federal deficits. The Moody’s downgrade underscored their concerns.`\
+https://nytimes.com/2025/05/19/us/politics/debt-downgrade-congress.html
 
