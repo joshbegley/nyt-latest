@@ -1,3 +1,7 @@
+**Liverpool's proactive summer is under way - and they're recruiting from a position of strength**\
+`Winning the Premier League title has allowed Liverpool to take their foot off the gas on the pitch. Off it, they're going full throttle `\
+https://nytimes.com/athletic/6367315/2025/05/20/liverpool-summer-transfers-frimpong-kerkez-hato/
+
 **Word of the Day: ransack**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/20/learning/word-of-the-day-ransack.html

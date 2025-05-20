@@ -1,3 +1,7 @@
+**Liverpool's proactive summer is under way - and they're recruiting from a position of strength**\
+`Winning the Premier League title has allowed Liverpool to take their foot off the gas on the pitch. Off it, they're going full throttle `\
+https://nytimes.com/athletic/6367315/2025/05/20/liverpool-summer-transfers-frimpong-kerkez-hato/
+
 **Word of the Day: ransack**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/20/learning/word-of-the-day-ransack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6356242/2025/05/20/micky-van-de-ven-cruyff-tottenha
 **Red Sox bats get to Kodai Senga early; bullpen comes up big in key win over Mets**\
 `The Red Sox showed the tantalizing potential they possess when firing on all cylinders as they held down the Mets 3-1.`\
 https://nytimes.com/athletic/6369114/2025/05/20/red-sox-mets-jarren-duran-kodai-senga/
-
-**Arsenal, Declan Rice and their need for a press-resistant No 6**\
-`The defensive base is stable, now Mikel Arteta simply must find room for a technical No 6 if Arsenal are to evolve`\
-https://nytimes.com/athletic/6367045/2025/05/20/arsenal-declan-rice-midfielder-zubimendi/
 
