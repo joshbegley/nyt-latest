@@ -1,3 +1,5 @@
+
+
 **Tales of Rejection and Acceptance**\
 `Readers respond to a column by David Brooks about “the most rejected generation.” Also: Who is running the country?; flying the flag.`\
 https://nytimes.com/2025/05/20/opinion/rejection-acceptance-youth.html
