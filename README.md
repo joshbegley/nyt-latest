@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`President Trump’s conversation with Vladimir Putin.`\
+https://nytimes.com/2025/05/20/briefing/trump-putin-gaza-israel.html
+
+**Europa League final is vital to the Ruben Amorim project, even if it will not fix Man Utd's flaws**\
+`For all the talk of free midweeks or gradual rebuilds, winning on Wednesday night is vital for the Amorim project`\
+https://nytimes.com/athletic/6367686/2025/05/20/ruben-amorim-europa-league-final/
+
 **The English football history Man Utd and Tottenham fans will find at Europa League final**\
 `Bilbao's links to the English game are numerous and stretch right back to the club's origins`\
 https://nytimes.com/athletic/6364031/2025/05/20/man-utd-tottenham-europa-league-bilbao-athletic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6369115/2025/05/19/mets-juan-soto-hustle/
 **Phillies' Kyle Schwarber hits 466-foot blast for 300th career home run**\
 `Schwarber's 300th homer traveled 466 feet — the third-longest homer in MLB this season. `\
 https://nytimes.com/athletic/6369142/2025/05/19/kyle-schwarber-300th-home-run-phillies/
-
-**How the Trade War Shaped a Chinese Battery Giant’s Hong Kong Debut**\
-`Shares of the company, CATL, surged in their first day of trading. Onshore U.S. investors were blocked from buying its stock as a “decoupling” of finance continued.`\
-https://nytimes.com/2025/05/19/business/china-battery-hong-kong-catl.html
-
-**Mets may have 'more stern' conversation about approach as RISP woes continue**\
-`Carlos Mendoza said the Mets lineup has been too passive early in counts and too aggressive later.`\
-https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
 
