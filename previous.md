@@ -1,3 +1,15 @@
+**Network Outage Hits Spain, Weeks After Extensive Blackout**\
+`The outage Tuesday knocked out emergency phone lines in several parts of the country for several hours.`\
+https://nytimes.com/2025/05/20/world/europe/spain-telefonica-outage.html
+
+**Creator of ‘Dilbert’ Says He Has the Same Cancer as Biden**\
+`Scott Adams shared the news on his podcast and expressed sympathy for the former president. “My life expectancy is maybe this summer,” he said.`\
+https://nytimes.com/2025/05/20/us/scott-adams-dilbert-prostate-cancer-biden.html
+
+**Market Jitters Over a ‘Big, Beautiful’ Bill**\
+`Investors burned by President Trump’s trade fight now have to contend with a spending megabill that risks swelling the federal deficit.`\
+https://nytimes.com/2025/05/20/business/dealbook/markets-trump-spending-tax-cuts.html
+
 **Israel’s Allies Denounce Its New Gaza Offensive**\
 `Britain, France and Canada, all powerful supporters of Israel, called plans for an escalation of the Gaza war “disproportionate” and “egregious.”`\
 https://nytimes.com/2025/05/20/world/middleeast/israel-allies-denounce-gaza-offensive.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6368867/2025/05/20/cleveland-cavaliers-president-ko
 **Reds Mailbag, Part 2: How to assess wear, WAR and pink belts**\
 `The Reds have injuries. So does everyone else. Understanding what's causing them, and what changes could stop them, takes some digging.`\
 https://nytimes.com/athletic/6368369/2025/05/20/reds-mailbag-injuries-uniforms-stats/
-
-**Five young MLB starting pitchers with good stuff and bad results ... so far**\
-`These starters could be headed for better days but if their results don't improve, they could end up on minor-league rosters soon.`\
-https://nytimes.com/athletic/6356672/2025/05/20/mlb-young-starting-pitchers-good-stuff-bad-results/
-
-**Book excerpt: Dawn Staley's 'Uncommon Favor' explores her basketball career and life lessons**\
-`The South Carolina coach talks about what she learned from her mother while growing up in North Philly.`\
-https://nytimes.com/athletic/6368238/2025/05/20/book-excerpt-dawn-staley-uncommon-favor/
-
-**Progress on an NHL postseason salary cap, expansion, concussion protocol and more: Bill Daly Q&A**\
-`In an exclusive with The Athletic, the deputy commissioner said the NHL and NHLPA have "made progress" on closing the LTIR playoff loophole.`\
-https://nytimes.com/athletic/6368325/2025/05/20/nhl-postseason-salary-cap-expansion/
 

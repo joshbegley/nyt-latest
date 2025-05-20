@@ -1,3 +1,15 @@
+**Network Outage Hits Spain, Weeks After Extensive Blackout**\
+`The outage Tuesday knocked out emergency phone lines in several parts of the country for several hours.`\
+https://nytimes.com/2025/05/20/world/europe/spain-telefonica-outage.html
+
+**Creator of ‘Dilbert’ Says He Has the Same Cancer as Biden**\
+`Scott Adams shared the news on his podcast and expressed sympathy for the former president. “My life expectancy is maybe this summer,” he said.`\
+https://nytimes.com/2025/05/20/us/scott-adams-dilbert-prostate-cancer-biden.html
+
+**Market Jitters Over a ‘Big, Beautiful’ Bill**\
+`Investors burned by President Trump’s trade fight now have to contend with a spending megabill that risks swelling the federal deficit.`\
+https://nytimes.com/2025/05/20/business/dealbook/markets-trump-spending-tax-cuts.html
+
 **Israel’s Allies Denounce Its New Gaza Offensive**\
 `Britain, France and Canada, all powerful supporters of Israel, called plans for an escalation of the Gaza war “disproportionate” and “egregious.”`\
 https://nytimes.com/2025/05/20/world/middleeast/israel-allies-denounce-gaza-offensive.html
