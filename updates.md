@@ -1,3 +1,11 @@
+**In a First, a Story Collection Wins the International Booker Prize**\
+`Banu Mushtaq’s “Heart Lamp,” translated by Deepa Bhasthi, had received little notice in Britain or the United States before Tuesday. Now, it’s won the major award for translated fiction.`\
+https://nytimes.com/2025/05/20/books/review/international-booker-prize-winner.html
+
+**What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
+`The Patriots' second-year QB struggled to start OTAs, but it's only May with plenty football ahead.`\
+https://nytimes.com/athletic/6371003/2025/05/20/new-england-patriots-otas-drake-maye-christian-gonzalez/
+
 **The Briefing: Manchester City 3 Bournemouth 1 - Mixed farewell for De Bruyne and Marmoush's rocket**\
 `All the key talking points from Pep Guardiola's side's victory over Bournemouth evaluated `\
 https://nytimes.com/athletic/6365482/2025/05/20/manchester-city-3-bournemouth-1-marmoush-de-bruyne/
