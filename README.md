@@ -1,3 +1,11 @@
+**The Pulse: Ranking the best playoff series left**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6368016/2025/05/20/ranking-the-best-playoff-series-left-plus-an-argument-over-college-football-rankings/
+
+**In Trump Call, Putin Notches a Diplomatic Win, With an Economic Caveat**\
+`The Kremlin has withstood pressure for an immediate cease-fire as a precondition for peace talks, but the Russian president’s push for normalizing relations with the United States appears in limbo.`\
+https://nytimes.com/2025/05/20/world/europe/russia-putin-ukraine-ceasefire.html
+
 **U.S. Bill Named for Iranian Deported to Panama Aims to Shield Asylum Seekers**\
 `A lawmaker is introducing a bill named for Artemis Ghasemzadeh, an Iranian Christian convert, that seeks to stop the expedited removal of people fleeing countries that persecute religious minorities.`\
 https://nytimes.com/2025/05/20/world/middleeast/us-bill-iran-panama-asylum.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6367984/2025/05/20/nfl-playoff-reseeding-proposal/
 **Hurricanes killer Matthew Tkachuk is 'back' — but is this a different Tkachuk?**\
 `Tkachuk's game has been building since his return from surgery. If he's really 100 percent, the Canes know better than anyone what it means.`\
 https://nytimes.com/athletic/6368417/2025/05/20/matthew-tkachuk-panthers-hurricanes-nhl-playoffs/
-
-**A new direction is charted as Hockey Canada sexual assault trial enters fifth week**\
-`Justice Maria Carroccia was a criminal defense attorney before her judicial appointment, which may give her insight into a case like this.`\
-https://nytimes.com/athletic/6367648/2025/05/20/hockey-canada-sexual-assault-trial-judge-alone/
-
-**Geno Smith on Geno Smith: Raiders QB breaks down his film as he begins new chapter**\
-`Smith's understanding of defensive assignments gives him an advantage to reach a new level under offensive coordinator Chip Kelly.`\
-https://nytimes.com/athletic/6354689/2025/05/20/geno-smith-raiders-qb-film-review/
 
