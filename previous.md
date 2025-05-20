@@ -1,8 +1,16 @@
+**The Trump-Supporting Christians Accusing Jews of Antisemitism**\
+`Ultra-Zionist gentiles are transforming America into something out of Jewish nightmares, pretending they’re trying to ensure Jewish safety.`\
+https://nytimes.com/2025/05/19/opinion/antisemitism-israel-palestine-esther.html
+
+**Clark says hatred has 'no place' in WNBA amid probe of alleged fan comments**\
+`The WNBA is investigating “alleged hateful fan comments” that were made toward the Chicago Sky on Saturday.`\
+https://nytimes.com/athletic/6368634/2025/05/19/caitlin-clark-comments-wnba-investigation-angel-reese-hateful-comments/
+
 **G.M. Stops Exporting Cars to China**\
 `The decision affects relatively few vehicles because the vast majority that General Motors sells there are made in that country.`\
 https://nytimes.com/2025/05/19/business/general-motors-gm-china-exports.html
 
-**Browns' Shedeur Sanders signs 4-year, $4.6 million rookie contract**\
+**Draft drop proves costly: Browns' Shedeur Sanders signs 4-year, $4.6M deal**\
 `Sanders' fall to the fifth round in the 2025 NFL Draft cost him financially. No. 1 pick Cam Ward is projected to make nearly $80 million.`\
 https://nytimes.com/athletic/6368708/2025/05/19/cleveland-browns-shedeur-sanders-rookie-contract/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/us/politics/trump-russia-ukraine-cease-fire.html
 **British tennis stars call on U.K. prime minister for grassroots investment**\
 `Jack Draper and Katie Boulter are among British tennis players calling for more investment in indoor sports facilities in the U.K.`\
 https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-grassroots-sport/
-
-**$800 Million Overhaul of U.S. Open Stadium Will Add Space and Luxury**\
-`Construction on the Arthur Ashe tennis stadium and a new building for players is scheduled to be completed in time for the 2027 U.S. Open.`\
-https://nytimes.com/2025/05/19/nyregion/arthur-ashe-stadium-renovation.html
-
-**Did Usher Write His Own Commencement Speech? (Yeah!)**\
-`Usher told Emory’s Class of 2025 a story about himself that he has rarely shared. Here is how late-night brainstorming, careful editing and last-minute riffing led to that moment.`\
-https://nytimes.com/interactive/2025/05/19/us/usher-commencement-speech-emory.html
 

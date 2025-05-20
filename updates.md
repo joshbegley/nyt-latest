@@ -1,3 +1,15 @@
+**The Trump-Supporting Christians Accusing Jews of Antisemitism**\
+`Ultra-Zionist gentiles are transforming America into something out of Jewish nightmares, pretending they’re trying to ensure Jewish safety.`\
+https://nytimes.com/2025/05/19/opinion/antisemitism-israel-palestine-esther.html
+
+**Clark says hatred has 'no place' in WNBA amid probe of alleged fan comments**\
+`The WNBA is investigating “alleged hateful fan comments” that were made toward the Chicago Sky on Saturday.`\
+https://nytimes.com/athletic/6368634/2025/05/19/caitlin-clark-comments-wnba-investigation-angel-reese-hateful-comments/
+
+**Draft drop proves costly: Browns' Shedeur Sanders signs 4-year, $4.6M deal**\
+`Sanders' fall to the fifth round in the 2025 NFL Draft cost him financially. No. 1 pick Cam Ward is projected to make nearly $80 million.`\
+https://nytimes.com/athletic/6368708/2025/05/19/cleveland-browns-shedeur-sanders-rookie-contract/
+
 **G.M. Stops Exporting Cars to China**\
 `The decision affects relatively few vehicles because the vast majority that General Motors sells there are made in that country.`\
 https://nytimes.com/2025/05/19/business/general-motors-gm-china-exports.html
