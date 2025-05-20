@@ -1,5 +1,5 @@
 **Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
-`At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that Republicans seem to have. Yes, there’s a price tag.`\
+`At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that helped President Trump win. Yes, there’s a price tag.`\
 https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
 
 **Sands staying at St. Pauli on season-long loan for 2025-26**\
@@ -7,7 +7,7 @@ https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
 https://nytimes.com/athletic/6369965/2025/05/20/james-sands-st-pauli-loan/
 
 **Breuer Building Gets Landmark Status Before Sotheby’s Moves In**\
-`The modernist former home of the Whitney Museum on Madison Avenue had its interior designated for protection by the New York City Landmarks Preservation Commission.`\
+`The modernist former home of the Whitney Museum of American Art on Madison Avenue had its interior designated for protection by the New York City Landmarks Preservation Commission.`\
 https://nytimes.com/2025/05/20/arts/design/breuer-building-landmark-status-sothebys.html
 
 **Bears agree to 2-year contract extension with All-Pro guard Joe Thuney**\
