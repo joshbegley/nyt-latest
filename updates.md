@@ -1,3 +1,8 @@
+**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
+`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
+`\
+https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+
 **China’s Fighter Jets and Missiles Get a Boost From the India-Pakistan Clash**\
 `The reported success of Chinese-made fighter jets and air-to-air missiles in the conflict has fed nationalist pride in China, and has renewed warnings to Taiwan.`\
 https://nytimes.com/2025/05/20/world/asia/china-military-jets-india-pakistan.html
