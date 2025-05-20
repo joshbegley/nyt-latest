@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Chip Roy, Demanding More Spending Cuts, Reprises Role as Ringleader of G.O.P. Rebels**\
+`The Texas Republican is leading the conservative revolt against what his party calls its “big, beautiful bill.” Whether he will dig in or relent could determine the measure’s fate.`\
+https://nytimes.com/2025/05/20/us/politics/roy-spending-cuts-trump.html
+
 **Trump Unveils Plans for ‘Golden Dome’ Missile Defense System**\
 `The project has been a priority for President Trump since he took office, having promised during the campaign to build a defense system against foreign threats similar to Israel’s Iron Dome.`\
 https://nytimes.com/2025/05/20/us/politics/trump-golden-dome.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/science/humpback-whale-vision-collisions.html
 **Santa Fe Looks at New Release Policies to Prevent Prisoner Deaths**\
 `After a New York Times report found five deaths and several injuries among prisoners who walked along a remote highway after their release, county officials are weighing a range of safety options.`\
 https://nytimes.com/2025/05/20/us/santa-fe-jail-released-prisoner-deaths.html
-
-**Hegseth Orders a New Review of U.S. Withdrawal From Afghanistan**\
-`The defense secretary’s decision to select his chief spokesman to lead the inquiry into the chaotic end of the war was highly unusual.`\
-https://nytimes.com/2025/05/20/us/politics/hegseth-afghan-war-review.html
 
