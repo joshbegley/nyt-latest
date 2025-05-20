@@ -1,3 +1,5 @@
+
+
 **E.U. to Lift Economic Sanctions on Syria in a Bid to Bolster Stability**\
 `European Union foreign ministers on Tuesday agreed to lift the remaining economic curbs on the war-torn country, amid concerns it could slip back into conflict.`\
 https://nytimes.com/2025/05/20/world/europe/eu-syria-sanctions.html
