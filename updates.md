@@ -1,3 +1,7 @@
+**Shane Doyle, Founder of a Storied East Village Venue, Dies at 73**\
+`An Irish expatriate, he created Sin-é, a bare-bones cafe that became an unlikely magnet for stars like Sinead O’Connor, Bono of U2 and Iggy Pop.`\
+https://nytimes.com/2025/05/20/arts/music/shane-doyle-dead.html
+
 **Are Bicycle Bells Passive-Aggressive?**\
 `A ruling on the best way to boss pedestrians around from the saddle.`\
 https://nytimes.com/interactive/2025/05/20/magazine/11mag-hodgmanquiz.html
