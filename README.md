@@ -1,3 +1,7 @@
+**A 7-Song, 130-Minute Jam Band Primer**\
+`Listen to noodling tracks by Dave Matthews Band, Grateful Dead, Goose and more.`\
+https://nytimes.com/2025/05/20/arts/music/amplifier-newletter-jam-bands.html
+
 **The Politics of a Parade and a Peek at Dante de Blasio’s Ballot**\
 `Plus: A pollster analyzes the strength of Andrew Cuomo’s lead in the mayoral primary, with just five weeks to go.`\
 https://nytimes.com/2025/05/20/nyregion/nyc-mayor-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/20/us/elections/results-pennsylvania-may
 **The Athletic's end-of-season awards, 2024-25: Men's football**\
 `We reveal the winners of The Athletic's end-of-season awards for 2024-25, covering the Premier League, Championship and Europe`\
 https://nytimes.com/athletic/6336642/2025/05/20/athletic-end-of-season-awards-2024-25-men/
-
-**The Athletic's end-of-season awards, 2024-25: Women's football**\
-`We reveal the winners of The Athletic's end-of-season awards for 2024-25, covering the WSL and European competition`\
-https://nytimes.com/athletic/6352235/2025/05/20/athletic-end-of-season-awards-2024-25-women/
 
