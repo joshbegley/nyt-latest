@@ -1,3 +1,15 @@
+**Spotlight intensifying on Juan Soto's struggles: 'There is a lot of noise right now'**\
+`Mendoza attributed Soto’s postgame comments Monday to “frustration.”`\
+https://nytimes.com/athletic/6371331/2025/05/20/juan-soto-mets-hustle-struggle/
+
+**Humpback Whales May Not See Their Most Dangerous Threats**\
+`These gentle giants have poor eyesight and may not be able to see fishnets and boats with which they have fatal encounters.`\
+https://nytimes.com/2025/05/20/science/humpback-whale-vision-collisions.html
+
+**Santa Fe Looks at New Release Policies to Prevent Prisoner Deaths**\
+`After a New York Times report found five deaths and several injuries among prisoners who walked along a remote highway after their release, county officials are weighing a range of safety options.`\
+https://nytimes.com/2025/05/20/us/santa-fe-jail-released-prisoner-deaths.html
+
 **Hegseth Orders a New Review of U.S. Withdrawal From Afghanistan**\
 `The defense secretary’s decision to select his chief spokesman to lead the inquiry into the chaotic end of the war was highly unusual.`\
 https://nytimes.com/2025/05/20/us/politics/hegseth-afghan-war-review.html
