@@ -1,3 +1,11 @@
+**Rodri cleared to make Man City return after eight months out with ACL injury**\
+`It is yet to be confirmed if Rodri will partake in Spain's Nations League semi-final against France on June 5.`\
+https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
+
+**Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
+`O'Ward, never one to do anything halfway, has made a home as IndyCar's rising star. He'll start on the front row on Sunday in Indianapolis`\
+https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
+
 **Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
 `O'Ward is caught between two racing worlds: Making authentic connections with IndyCar fans while keeping his F1 future open with McLaren`\
 https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
