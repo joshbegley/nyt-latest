@@ -1,3 +1,7 @@
+**Word of the Day: ransack**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/20/learning/word-of-the-day-ransack.html
+
 **The New York Times in Print for Tuesday, May 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/20/todays-new-york-times
