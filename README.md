@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**The Reality of Trump’s Golden Dome**\
+`We don’t know all the details of Trump’s plan to build an Iron Dome-like defense system. What we do know is it wouldn’t come cheap, easy or soon.`\
+https://nytimes.com/2025/05/20/opinion/golden-dome-trump-iron-dome.html
+
+**Trump Administration Caps Flights in and Out of Newark Airport**\
+`Recent technology outages, staffing shortages among air traffic controllers and runway construction have caused significant disruptions and raised concerns about passenger safety.`\
+https://nytimes.com/2025/05/20/us/newark-airport-flights-cap-faa.html
+
+**What It Looked Like Inside the Thomas Indian School**\
+`Archival photos show what life was like in the boarding school for Native American children.`\
+https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-archival-photographs.html
+
 **Juan Soto was impressed with Red Sox free-agency pursuit: 'They showed a lot of love'**\
 `Soto ultimately signed with the Mets but said the Red Sox made a strong case: "I was surprised how hard they tried."`\
 https://nytimes.com/athletic/6371192/2025/05/20/juan-soto-red-sox-free-agency-pursuit/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/20/upshot/record-debt-republicans-bill.html
 **Elections**\
 `See the latest results and news from local, national and international elections.`\
 https://nytimes.com/section/us/elections
-
-**Wednesday Briefing: Israel’s Allies Tell It to Stop**\
-`Plus, the International Booker Prize.`\
-https://nytimes.com/2025/05/20/briefing/israel-ukraine-pakistan-india-china.html
-
-**In a First, a Story Collection Wins the International Booker Prize**\
-`Banu Mushtaq’s “Heart Lamp,” translated by Deepa Bhasthi, had received little notice in Britain or the United States before Tuesday. Now, it’s won the major award for translated fiction.`\
-https://nytimes.com/2025/05/20/books/review/international-booker-prize-winner.html
-
-**The Briefing: Manchester City 3 Bournemouth 1 - Mixed farewell for De Bruyne and Marmoush's rocket**\
-`All the key talking points from Pep Guardiola's side's victory over Bournemouth evaluated `\
-https://nytimes.com/athletic/6365482/2025/05/20/manchester-city-3-bournemouth-1-marmoush-de-bruyne/
 
