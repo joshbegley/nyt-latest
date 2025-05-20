@@ -1,3 +1,11 @@
+**Israel’s Allies Denounce Its New Gaza Offensive**\
+`Britain, France and Canada, all powerful supporters of Israel, called plans for an escalation of the Gaza war “disproportionate” and “egregious.”`\
+https://nytimes.com/2025/05/20/world/middleeast/israel-allies-denounce-gaza-offensive.html
+
+**Leeds fans - get your questions in now for Beren Cross**\
+`Jump in the comments and ask away, with Beren Cross answering them for you next week`\
+https://nytimes.com/athletic/6369574/2025/05/20/leeds-fans-get-your-questions-in-now-for-beren-cross/
+
 **Weekly Student News Quiz: Refugees, Medical Breakthrough, Alligator**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/05/20/learning/20StudentNewsQuiz.html
