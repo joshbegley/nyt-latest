@@ -1,3 +1,7 @@
+**Can Marvin Harrison Jr. make a Year 2 leap? Cardinals' playoff hopes may hinge on it**\
+`The Cardinals are hoping this is the year they return to the postseason. Their second-year wideout's development is a key part of the plan.`\
+https://nytimes.com/athletic/6368723/2025/05/19/marvin-harrison-jr-arizona-cardinals-wide-receiver-year-2/
+
 **On the Up and Up**\
 `Rena Cohen gives us the spiel.`\
 https://nytimes.com/2025/05/19/crosswords/daily-puzzle-2025-05-20.html

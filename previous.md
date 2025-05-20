@@ -1,3 +1,7 @@
+**Can Marvin Harrison Jr. make a Year 2 leap? Cardinals' playoff hopes may hinge on it**\
+`The Cardinals are hoping this is the year they return to the postseason. Their second-year wideout's development is a key part of the plan.`\
+https://nytimes.com/athletic/6368723/2025/05/19/marvin-harrison-jr-arizona-cardinals-wide-receiver-year-2/
+
 **On the Up and Up**\
 `Rena Cohen gives us the spiel.`\
 https://nytimes.com/2025/05/19/crosswords/daily-puzzle-2025-05-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/us/politics/trump-harris-springsteen-beyonce-opra
 **Trump Suggests Biden’s Cancer Diagnosis Was Hidden From Public**\
 `Mr. Biden’s office said he had been diagnosed with Stage 4 prostate cancer that had spread to his bones.`\
 https://nytimes.com/2025/05/19/us/politics/trump-biden-cancer-prostate.html
-
-**Met Museum Surrenders Artifacts Thought Looted From Iraq**\
-`The Manhattan district attorney’s office said the objects had been identified as illicit during an investigation of an art dealer suspected of having trafficked in stolen antiquities.`\
-https://nytimes.com/2025/05/19/arts/met-museum-iraq-looted-artifacts.html
 
