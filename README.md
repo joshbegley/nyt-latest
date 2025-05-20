@@ -1,3 +1,7 @@
+**What we know about F1's future schedule: 24 races, a Thailand Grand Prix and calendar rotation**\
+`F1's CEO tells The Athletic he feels the growth of the sport's calendar had been handled in a manageable way`\
+https://nytimes.com/athletic/6367840/2025/05/20/f1-schedule-24-races-thailand-grand-prix/
+
 **Europe is a target, not an obsession for Brighton - and the dream is still alive**\
 `A 3-2 win over champions Liverpool leaves Brighton's European qualification hopes in their own hands. They will cherish the opportunity`\
 https://nytimes.com/athletic/6364762/2025/05/20/brighton-europe-conference-league-liverpool/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/20/crosswords/spelling-bee-forum.html
 **Brighton's Joao Pedro and Lamptey doubts for PL finale against Spurs**\
 `Joao Pedro missed Monday's 3-2 home win over Liverpool for personal reasons, while Lamptey was ruled out of the match through injury.`\
 https://nytimes.com/athletic/6369290/2025/05/20/brighton-joao-pedro-lamptey-update/
-
-**'Battling with what we got': Dodgers' pitching continues to crater in latest loss**\
-`After getting hit hard Monday in a 9-5 loss to the Diamondbacks, the Dodgers' team ERA of 4.28 ranks 22nd in baseball.`\
-https://nytimes.com/athletic/6369263/2025/05/20/dodgers-pitching-continues-to-crater-diamondbacks-loss/
 
