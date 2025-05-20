@@ -1,3 +1,11 @@
+**‘Pernille’ Is a Brilliant Norwegian Dramedy**\
+`The series, about an endearingly ordinary woman who works in child welfare, is a lot like Pamela Adlon’s spirited FX dramedy “Better Things.”`\
+https://nytimes.com/2025/05/20/arts/television/pernille-netflix-norwegian-dramedy.html
+
+**A 7-Song, 130-Minute Jam Band Primer**\
+`Listen to noodling tracks by Dave Matthews Band, Grateful Dead, Goose and more.`\
+https://nytimes.com/2025/05/20/arts/music/amplifier-newletter-jam-bands.html
+
 **The Politics of a Parade and a Peek at Dante de Blasio’s Ballot**\
 `Plus: A pollster analyzes the strength of Andrew Cuomo’s lead in the mayoral primary, with just five weeks to go.`\
 https://nytimes.com/2025/05/20/nyregion/nyc-mayor-primary.html
