@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Trump Told Republicans to Get in Line**\
+`Also, Israel’s allies told it to stop its expanded Gaza offensive. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
+
 **Siegel: For Mitch Marner and the Maple Leafs, a breakup is for the best**\
 `All signs are pointing to Mitch Marner leaving Toronto in free agency. Why it's the best thing for all involved.`\
 https://nytimes.com/athletic/6370682/2025/05/20/mitch-marner-maple-leafs-contract-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-archival-photograph
 **Juan Soto impressed with Red Sox free-agency pursuit: 'They showed a lot of love'**\
 `Soto ultimately signed with the Mets but said the Red Sox made a strong case: "I was surprised how hard they tried."`\
 https://nytimes.com/athletic/6371192/2025/05/20/juan-soto-red-sox-free-agency-pursuit/
-
-**Is Red Meat Bad for Your Heart? It May Depend on Who Funded the Study.**\
-`A new analysis found that red meat studies with industry links were more likely to report favorable results than those without them.`\
-https://nytimes.com/2025/05/20/well/eat/red-meat-heart-health.html
 
