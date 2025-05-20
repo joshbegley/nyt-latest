@@ -1,3 +1,11 @@
+**Global Economic Officials Gather Amid Headwinds From Trump’s Trade War**\
+`Treasury Secretary Scott Bessent will meet his international counterparts at a G7 finance ministers meeting in Canada.`\
+https://nytimes.com/2025/05/20/us/politics/g7-canada-trump-trade-war.html
+
+**The Jets deserve praise, but must keep pushing forward this offseason**\
+`Breaking down Winnipeg's biggest victory and biggest problem this year, and the contract decisions to come.`\
+https://nytimes.com/athletic/6366210/2025/05/20/winnipeg-jets-offseason-priorities/
+
 **Trump Administration Live Updates: I.R.S. Nominee to Face Scrutiny Over Questionable Advice to Taxpayers**\
 ``\
 https://nytimes.com/live/2025/05/20/us/trump-news
