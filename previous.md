@@ -1,41 +1,40 @@
-**2nd Man Charged Over Fires at Homes Linked to U.K. Prime Minister**\
-`The British police said they had charged a Romanian national, Stanislav Carpiuc, with conspiracy to commit arson. Fires struck two buildings and a car linked to Prime Minister Keir Starmer.`\
-https://nytimes.com/2025/05/20/world/europe/fires-keir-starmer.html
+**Timberwolves at Thunder Game 1 picks, odds, how to watch: OKC favored in opener**\
+`The Western Conference finals begin Tuesday, with Anthony Edwards and Minnesota underdogs on the road in Game 1.`\
+https://nytimes.com/athletic/6368134/2025/05/20/timberwolves-thunder-picks-odds-game-1-how-to-watch/
 
-**Serie B in limbo as Brescia investigation delays relegation play-off**\
-`Brescia were issued the post-season deduction over an irregularity in their payment of salaries and tax contributions in February.`\
-https://nytimes.com/athletic/6365332/2025/05/20/brescia-relegated-sampdoria-italian-football/
+**How will 'fire and ice' rookies Xavier Watts, Billy Bowman Jr. fit in Falcons' secondary?**\
+`The Falcons think rookie defensive backs Watts and Bowman could be starters by the end of this season.`\
+https://nytimes.com/athletic/6367993/2025/05/20/falcons-rookies-xavier-watts-billy-bowman-jr/
 
-**What we know about F1's future schedule: 24 races, a Thailand Grand Prix and calendar rotation**\
-`F1's CEO tells The Athletic he feels the growth of the sport's calendar had been handled in a manageable way`\
-https://nytimes.com/athletic/6367840/2025/05/20/f1-schedule-24-races-thailand-grand-prix/
+**Joe Biden Has a Chance to Do Something Astounding**\
+`A cancer diagnosis could be a chance to rebuild trust.`\
+https://nytimes.com/2025/05/20/opinion/biden-reagan-cancer.html
 
-**Europe is a target, not an obsession for Brighton - and the dream is still alive**\
-`A 3-2 win over champions Liverpool leaves Brighton's European qualification hopes in their own hands. They will cherish the opportunity`\
-https://nytimes.com/athletic/6364762/2025/05/20/brighton-europe-conference-league-liverpool/
+**The President Will Destroy You Now**\
+`Trump’s wanton attacks on institutions and individuals have a specific purpose.`\
+https://nytimes.com/2025/05/20/opinion/trump-musk-doge-government.html
 
-**China’s Fighter Jets and Missiles Get a Boost From the India-Pakistan Clash**\
-`The reported success of Chinese-made fighter jets and air-to-air missiles in the conflict has fed nationalist pride in China, and has renewed warnings to Taiwan.`\
-https://nytimes.com/2025/05/20/world/asia/china-military-jets-india-pakistan.html
+**Trump’s Pick to Lead I.R.S. Promoted a Nonexistent Tax Credit**\
+`Billy Long’s effort to promote the credit, along with his pushing of a fraud-ridden pandemic-era tax break, will be under close scrutiny during his Senate confirmation hearing.`\
+https://nytimes.com/2025/05/20/us/politics/billy-long-irs-confirmation-trump.html
 
-**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
-`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
-`\
-https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+**The Interior Designer Amy Lau’s Apartment Is Listed for $1.6 Millon**\
+`Ms. Lau, who had a string of high-profile clients, died in January. She put her signature stamp on her prewar unit.`\
+https://nytimes.com/2025/05/20/realestate/amy-lau-apartment-for-sale.html
 
-**From Brazil to Belgrade: Those who found Forest's stars - what they felt then, and now**\
-`The people who found - and watched - Forest's history-makers recall the moments they knew the boy before them would become a star`\
-https://nytimes.com/athletic/6336831/2025/05/20/nottingham-forest-first-scouts-european-football/
+**A Plane Crash in Brooklyn Overshadowed Her Childhood**\
+`Marty Ross-Dolen’s grandparents died in a devastating collision in 1960. Her mother never talked about it.`\
+https://nytimes.com/2025/05/20/nyregion/plane-crash-brooklyn-memoir.html
 
-**To Bring Van Gogh to Life, They Just Needed Sunflowers**\
-`The New York Botanical Garden’s new exhibit draws inspiration from Vincent van Gogh for a colorful explosion of 18,000 sunflowers and other plants.`\
-https://nytimes.com/2025/05/20/nyregion/new-york-botanical-garden-van-gogh.html
+**The Weirdo Talk Show That Has Suddenly Found Its Way**\
+`“Everybody’s Live With John Mulaney” understands what’s wrong with the genre. Still, it took time to hit on the ambitious free-for-all it is now.`\
+https://nytimes.com/2025/05/20/arts/television/everybodys-live-with-john-mulaney-netflix.html
 
-**Bill Belichick Was Always in Control. Then He Met His Gen Z Girlfriend.**\
-`The romance between Mr. Belichick, the 73-year-old former coach of the New England Patriots, and his girlfriend Jordon Hudson, 24, has roiled the worlds of professional and collegiate athletics.`\
-https://nytimes.com/2025/05/20/sports/bill-belichick-age-girlfriend-jordon-hudson.html
+**Should the U.S. Government Fund Scientific Research?**\
+`American investment in science has led to important breakthroughs, but the Trump administration is slashing its funding. What is your reaction?`\
+https://nytimes.com/2025/05/20/learning/should-the-us-government-fund-scientific-research.html
 
-**Why Mahmoud Khalil Remains in Detention as Other Protesters Are Freed**\
-`The judge in the case, Michael E. Farbiarz, has yet to weigh in fully on the issues of free speech and due process as Mr. Khalil passes the weeks in Jena, La.`\
-https://nytimes.com/2025/05/20/nyregion/mahmoud-khalil-detention-judge.html
+**‘Bus Stop’ Review: Travelers Find Shelter From a Storm**\
+`Intimacy is at the heart of this rare revival of William Inge’s 1955 play, about stranded passengers learning from one another and about themselves.`\
+https://nytimes.com/2025/05/20/theater/bus-stop-review-classic-stage.html
 
