@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Supreme Court Orders Maine House to Restore Voting Power to Censured Lawmaker, for Now**\
+`State Representative Laurel Libby, a Republican, had been banned from voting over comments opposing transgender athletes in girls’ sports.`\
+https://nytimes.com/2025/05/20/us/politics/supreme-court-maine-legislator.html
+
 **Joao Pedro missed Brighton's Liverpool win after training altercation with Van Hecke**\
 `Brighton head coach Fabian Hurzeler said at full time the Brazil international was missing due to "private reasons".`\
 https://nytimes.com/athletic/6370477/2025/05/20/joao-pedro-van-hecke-brighton-altercation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6370720/2025/05/20/cleveland-guardians-travis-bazza
 **Los Angeles Mayor Seeks to Lure Filming Back by Cutting Red Tape**\
 `With film and TV production in Los Angeles down by roughly one-third in recent years, Mayor Karen Bass took steps to make it easier to shoot at top locations.`\
 https://nytimes.com/2025/05/20/movies/los-angeles-film-industry.html
-
-**USA's Hilary Knight plans to make 2026 Milan final Olympics appearance**\
-`Knight still plans to play in the PWHL after Milan, according to USA Today.`\
-https://nytimes.com/athletic/6370663/2025/05/20/hilary-knight-2026-milan-olympics/
 
