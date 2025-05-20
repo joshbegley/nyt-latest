@@ -1,3 +1,32 @@
+**China’s Fighter Jets and Missiles Get a Boost From the India-Pakistan Clash**\
+`The reported success of Chinese-made fighter jets and air-to-air missiles in the conflict has fed nationalist pride in China, and has renewed warnings to Taiwan.`\
+https://nytimes.com/2025/05/20/world/asia/china-military-jets-india-pakistan.html
+
+**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
+`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
+`\
+https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+
+**From Brazil to Belgrade: Those who found Forest's stars - what they felt then, and now**\
+`The people who found - and watched - Forest's history-makers recall the moments they knew the boy before them would become a star`\
+https://nytimes.com/athletic/6336831/2025/05/20/nottingham-forest-first-scouts-european-football/
+
+**To Bring Van Gogh to Life, They Just Needed Sunflowers**\
+`The New York Botanical Garden’s new exhibit draws inspiration from Vincent van Gogh for a colorful explosion of 18,000 sunflowers and other plants.`\
+https://nytimes.com/2025/05/20/nyregion/new-york-botanical-garden-van-gogh.html
+
+**Bill Belichick Was Always in Control. Then He Met His Gen Z Girlfriend.**\
+`The romance between Mr. Belichick, the 73-year-old former coach of the New England Patriots, and his girlfriend Jordon Hudson, 24, has roiled the worlds of professional and collegiate athletics.`\
+https://nytimes.com/2025/05/20/sports/bill-belichick-age-girlfriend-jordon-hudson.html
+
+**Why Mahmoud Khalil Remains in Detention as Other Protesters Are Freed**\
+`The judge in the case, Michael E. Farbiarz, has yet to weigh in fully on the issues of free speech and due process as Mr. Khalil passes the weeks in Jena, La.`\
+https://nytimes.com/2025/05/20/nyregion/mahmoud-khalil-detention-judge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/20/crosswords/spelling-bee-forum.html
+
 **Brighton's Joao Pedro and Lamptey doubts for PL finale against Spurs**\
 `Joao Pedro missed Monday's 3-2 home win over Liverpool for personal reasons, while Lamptey was ruled out of the match through injury.`\
 https://nytimes.com/athletic/6369290/2025/05/20/brighton-joao-pedro-lamptey-update/
@@ -9,32 +38,4 @@ https://nytimes.com/athletic/6369263/2025/05/20/dodgers-pitching-continues-to-cr
 **Liverpool's proactive summer is under way - and they're recruiting from a position of strength**\
 `Winning the Premier League title has allowed Liverpool to take their foot off the gas on the pitch. Off it, they're going full throttle `\
 https://nytimes.com/athletic/6367315/2025/05/20/liverpool-summer-transfers-frimpong-kerkez-hato/
-
-**Word of the Day: ransack**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/20/learning/word-of-the-day-ransack.html
-
-**The New York Times in Print for Tuesday, May 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/20/todays-new-york-times
-
-**Ukraine Is Europe’s War. Isn’t It?**\
-`The United States can stand up to the Kremlin in Ukraine now or later. But the cost of waiting could be high.`\
-https://nytimes.com/2025/05/20/opinion/ukraine-putin-trump.html
-
-**Emiliano Martinez: Is his Aston Villa career coming to an emotional end?**\
-`The 'world's no 1' is a modern Villa legend but his emotional reaction at the final home game of the season spoke volumes - this is why`\
-https://nytimes.com/athletic/6367126/2025/05/20/emiliano-martinez-aston-villa-transfer/
-
-**Chelsea's away form has cost them lately. Now they must deliver when it matters most**\
-`Enzo Maresca's team have struggled on the road in 2025 and now face two massive games away from Stamford Bridge to end the season`\
-https://nytimes.com/athletic/6367067/2025/05/20/chelsea-away-form-premier-league-conference-league/
-
-**Inside Newcastle Q&A: Isak mind games? Summer signing ambitions? Trafford still top goalkeeper target?**\
-`Chris Waugh answers your questions, from transfer window expectations to the future of Sean Longstaff`\
-https://nytimes.com/athletic/6366920/2025/05/20/inside-newcastle-isak-trafford-longstaff-delap/
-
-**The rise of Eintracht Frankfurt: 'We are showing that big things are possible'**\
-`An impressive third-place finish in the Bundesliga has secured Champions League football for a club proving innovative on and off the pitch`\
-https://nytimes.com/athletic/6367063/2025/05/20/eintracht-frankfurt-bundesliga-champions-league/
 
