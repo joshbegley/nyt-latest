@@ -1,3 +1,7 @@
+**The Inside Story of Trump’s Search for a New Air Force One**\
+`Qatar had been trying to sell off a luxury jet for years, with no luck. Then President Trump’s team set its sights on it.`\
+https://nytimes.com/2025/05/19/us/politics/trump-air-force-one-qatar-jet.html
+
 **Justice Dept. to Use False Claims Act to Pursue Institutions Over Diversity Efforts**\
 `The department’s use of the law is all but certain to be met with legal challenges.`\
 https://nytimes.com/2025/05/19/us/politics/false-claims-act-dei-harvard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/opinion/antisemitism-israel-palestine-esther.html
 **Clark says hatred has 'no place' in WNBA amid probe of alleged fan comments**\
 `The WNBA is investigating “alleged hateful fan comments” that were made toward the Chicago Sky on Saturday.`\
 https://nytimes.com/athletic/6368634/2025/05/19/caitlin-clark-comments-wnba-investigation-angel-reese-hateful-comments/
-
-**G.M. Stops Exporting Cars to China**\
-`The decision affects relatively few vehicles because the vast majority that General Motors sells there are made in that country.`\
-https://nytimes.com/2025/05/19/business/general-motors-gm-china-exports.html
 
