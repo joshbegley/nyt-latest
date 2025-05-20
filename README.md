@@ -1,3 +1,15 @@
+**Pato O'Ward is the Indy 500's rock star. Why F1's door closing led to unexpected fame**\
+`O'Ward is caught between two racing worlds: Making authentic connections with IndyCar fans while keeping his F1 future open with McLaren`\
+https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
+
+**The Bounce: Do the Timberwolves fear the Thunder? 3 keys to winning West Finals matchup**\
+`Have the Thunder learned enough this postseason to reach their first finals since 2012? Plus, Michael Beasley's funny trade demand`\
+https://nytimes.com/athletic/6369536/2025/05/20/anthony-edwards-timberwolves-shai-gilgeous-alexander-thunder-playoffs-nba-the-bounce/
+
+**Yu Zidi: 12-year-old Chinese swimmer sets 200m record**\
+`Yu's time would have reached the semi-final stage of last year's Olympics and puts her in the frame for this year's World Championships.`\
+https://nytimes.com/athletic/6369630/2025/05/20/yu-zidi-china-swimming/
+
 **What might the Sharks do with the No. 2 draft pick?**\
 `The Sharks could have a lot to think about – or nothing to ponder at all.`\
 https://nytimes.com/athletic/6368651/2025/05/20/san-jose-sharks-draft-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6369045/2025/05/20/maple-leafs-john-tavares-nhl/
 **Maresca: Jorgensen to start UECL final, ‘unhappy’ with Betis scheduling**\
 `Jorgensen has started 13 of Chelsea's 14 Conference League matches, keeping five clean sheets.`\
 https://nytimes.com/athletic/6369633/2025/05/20/jorgensen-chelsea-goalkeeper-conference-league-final/
-
-**Global Economic Officials Gather Amid Headwinds From Trump’s Trade War**\
-`Treasury Secretary Scott Bessent will meet his international counterparts at a G7 finance ministers meeting in Canada.`\
-https://nytimes.com/2025/05/20/us/politics/g7-canada-trump-trade-war.html
-
-**The Jets deserve praise, but must keep pushing forward this offseason**\
-`Breaking down Winnipeg's biggest victory and biggest problem this year, and the contract decisions to come.`\
-https://nytimes.com/athletic/6366210/2025/05/20/winnipeg-jets-offseason-priorities/
-
-**Trump Administration Live Updates: I.R.S. Nominee to Face Scrutiny Over Questionable Advice to Taxpayers**\
-``\
-https://nytimes.com/live/2025/05/20/us/trump-news
 
