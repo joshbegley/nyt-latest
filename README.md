@@ -1,3 +1,7 @@
+**China’s Fighter Jets and Missiles Get a Boost From the India-Pakistan Clash**\
+`The reported success of Chinese-made fighter jets and air-to-air missiles in the conflict has fed nationalist pride in China, and has renewed warnings to Taiwan.`\
+https://nytimes.com/2025/05/20/world/asia/china-military-jets-india-pakistan.html
+
 **Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
 `Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6369263/2025/05/20/dodgers-pitching-continues-to-cr
 **Liverpool's proactive summer is under way - and they're recruiting from a position of strength**\
 `Winning the Premier League title has allowed Liverpool to take their foot off the gas on the pitch. Off it, they're going full throttle `\
 https://nytimes.com/athletic/6367315/2025/05/20/liverpool-summer-transfers-frimpong-kerkez-hato/
-
-**Word of the Day: ransack**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/20/learning/word-of-the-day-ransack.html
 
