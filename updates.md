@@ -1,3 +1,7 @@
+**In Reversal, Trump Officials Will Allow Huge Offshore N.Y. Wind Farm to Proceed**\
+`The Trump administration had issued a highly unusual stop-work order on the Empire Wind project last month, leading to intense pushback from officials in New York.`\
+https://nytimes.com/2025/05/19/climate/empire-wind-new-york-hochul.html
+
 **Rep. McIver Charged With Assault Over Clash Outside Newark ICE Center**\
 `The Department of Justice also announced it was dropping a trespass charge against the city’s mayor stemming from the same episode.`\
 https://nytimes.com/2025/05/19/nyregion/new-jersey-congress-ice-charges.html
