@@ -1,3 +1,11 @@
+**A New French Jewel Opens in the Village**\
+`Alexia Duchêne is opening Le Chêne on Carmine Street, summer openings in the Hamptons and more restaurant news.`\
+https://nytimes.com/2025/05/20/dining/nyc-restaurant-news.html
+
+**Blackburn women’s team relegated after owners opt against required funding**\
+`The Lancashire club was given until Monday to state its intention to finance the licensing criteria and retain their tier-two status.`\
+https://nytimes.com/athletic/6366991/2025/05/20/blackburn-rovers-women-team-relegated/
+
 **Leicester's PSR referral: How many points could they be docked? Would it take effect in the EFL? Transfer embargo?**\
 `The Premier League has referred the club to a commission over an alleged breach of PSR for the 2023-24 season. Here's what it means...`\
 https://nytimes.com/athletic/6369932/2025/05/20/leicesters-psr-points-deductions-explained-2/
