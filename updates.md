@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, May 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/20/todays-new-york-times
+
+**Ukraine Is Europe’s War. Isn’t It?**\
+`The United States can stand up to the Kremlin in Ukraine now or later. But the cost of waiting could be high.`\
+https://nytimes.com/2025/05/20/opinion/ukraine-putin-trump.html
+
 **Emiliano Martinez: Is his Aston Villa career coming to an emotional end?**\
 `The 'world's no 1' is a modern Villa legend but his emotional reaction at the final home game of the season spoke volumes - this is why`\
 https://nytimes.com/athletic/6367126/2025/05/20/emiliano-martinez-aston-villa-transfer/
