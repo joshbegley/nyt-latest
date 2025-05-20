@@ -1,3 +1,15 @@
+**Vlastimil Hort, a Memorably Selfless Chess Grandmaster, Dies at 81**\
+`He could have advanced toward a title when his opponent, Boris Spassky, took ill. Instead, he displayed one of the game’s greatest acts of sportsmanship.`\
+https://nytimes.com/2025/05/20/sports/vlastimil-hort-dead.html
+
+**Leicester's PSR referral: How many points could they be docked? Would it take effect in EFL? Transfer embargo?**\
+`The Premier League has referred the club to a commission over an alleged breach of PSR for the 2023-24 season. Here's what it means.`\
+https://nytimes.com/athletic/6369932/2025/05/20/leicesters-psr-points-deductions-explained-2/
+
+**Is Whole Milk Propaganda? What About Gracie Abrams?**\
+`TikTok users are building eye-catching lists of their dislikes and are labeling them as propaganda that they’re “not falling for.”`\
+https://nytimes.com/2025/05/20/style/tiktok-propaganda-im-not-falling-for.html
+
 **Shane Doyle, Founder of a Storied East Village Venue, Dies at 73**\
 `An Irish expatriate, he created Sin-é, a bare-bones cafe that became an unlikely magnet for stars like Sinead O’Connor, Bono of U2 and Iggy Pop.`\
 https://nytimes.com/2025/05/20/arts/music/shane-doyle-dead.html
