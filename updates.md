@@ -1,3 +1,11 @@
+**Mets may have 'more stern' conversation about approach as RISP woes continue**\
+`Carlos Mendoza said the Mets lineup was too passive early in counts and too aggressive later.`\
+https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
+
+**Full Time: NWSL’s Unwell era arrives**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6369088/2025/05/19/nwsl-alex-cooper-unwell-full-time/
+
 **Can Marvin Harrison Jr. make a Year 2 leap? Cardinals' playoff hopes may hinge on it**\
 `The Cardinals are hoping this is the year they return to the postseason. Their second-year wideout's development is a key part of the plan.`\
 https://nytimes.com/athletic/6368723/2025/05/19/marvin-harrison-jr-arizona-cardinals-wide-receiver-year-2/

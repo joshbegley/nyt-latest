@@ -1,3 +1,11 @@
+**Mets may have 'more stern' conversation about approach as RISP woes continue**\
+`Carlos Mendoza said the Mets lineup was too passive early in counts and too aggressive later.`\
+https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
+
+**Full Time: NWSL’s Unwell era arrives**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6369088/2025/05/19/nwsl-alex-cooper-unwell-full-time/
+
 **Can Marvin Harrison Jr. make a Year 2 leap? Cardinals' playoff hopes may hinge on it**\
 `The Cardinals are hoping this is the year they return to the postseason. Their second-year wideout's development is a key part of the plan.`\
 https://nytimes.com/athletic/6368723/2025/05/19/marvin-harrison-jr-arizona-cardinals-wide-receiver-year-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/19/nyregion/nyc-ship-brooklyn-bridge-mexican-navy.ht
 **Rep. McIver Charged With Assault Over Clash Outside Newark ICE Center**\
 `The Department of Justice also announced it was dropping a trespass charge against the city’s mayor stemming from the same episode.`\
 https://nytimes.com/2025/05/19/nyregion/new-jersey-congress-ice-charges.html
-
-**Trump Targets Harris Campaign’s Links to Oprah Winfrey, Beyoncé and Bruce Springsteen**\
-`The president claimed without evidence on Monday that Kamala Harris had violated campaign-finance law, essentially by paying superstars for endorsements “under the guise of paying for entertainment.”`\
-https://nytimes.com/2025/05/19/us/politics/trump-harris-springsteen-beyonce-oprah.html
-
-**Trump Suggests Biden’s Cancer Diagnosis Was Hidden From Public**\
-`Mr. Biden’s office said he had been diagnosed with Stage 4 prostate cancer that had spread to his bones.`\
-https://nytimes.com/2025/05/19/us/politics/trump-biden-cancer-prostate.html
 
