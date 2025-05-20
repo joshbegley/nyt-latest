@@ -1,3 +1,15 @@
+**Trump Unveils Plans for ‘Golden Dome’ Missile Defense System**\
+`The project has been a priority for President Trump since he took office, having promised during the campaign to build a defense system against foreign threats similar to Israel’s Iron Dome.`\
+https://nytimes.com/2025/05/20/us/politics/trump-golden-dome.html
+
+**Ex-Tennessee guard Zakai Zeigler suing NCAA for a fifth year of eligibility**\
+`Zeigler's suit differs from other recent lawsuits regarding eligibility, in that it focuses on challenging current redshirt rules.`\
+https://nytimes.com/athletic/6371353/2025/05/20/tennessee-zakai-zeigler-suing-ncaa-eligibility/
+
+**NASCAR Hall of Fame 2026: Why I voted for Kurt Busch, Jeff Burton over Harry Gant**\
+`Kurt Busch and Harry Gant on Tuesday won election to NASCAR's Hall of Fame, with Jeff Burton finishing third. Here's how I voted.`\
+https://nytimes.com/athletic/6371048/2025/05/20/nascar-hall-of-fame-2026-kurt-busch-jeff-burton-harry-gant/
+
 **Country Is Having (Another!) Rap Moment**\
 `After Morgan Wallen, Lil Nas X and Shaboozey, Nashville is going hip-hop yet again. “Oil Money” by Graham Barham is the latest example of a long lineage, our critic explains from the driver’s seat.`\
 https://nytimes.com/video/podcasts/100000010180577/country-is-having-another-rap-moment.html
