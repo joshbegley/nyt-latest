@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: Refugees, Medical Breakthrough, Alligator**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/05/20/learning/20StudentNewsQuiz.html
+
+**Frida Maanum signs new Arsenal contract**\
+`The 25-year-old has scored 40 goals in 150 appearances for Arsenal since joining from Swedish side Linkoping FC four years ago.`\
+https://nytimes.com/athletic/6369385/2025/05/20/frida-maanum-arsenal-contract-new/
+
+**How the 49ers struck gold with Brock Purdy — after a big swing and miss**\
+`A book excerpt from Michael Silver reveals how quickly Mike Shanahan — father of Kyle Shanahan — was sold on Purdy. `\
+https://nytimes.com/athletic/6362820/2025/05/20/nfl-49ers-purdy-football-book/
+
 **The Athletic FC: Secretive Saudi club built to rule, Man Utd in talks with Delap, Cunha**\
 `Today in TAFC: The brand new Saudi club targeting the 2029 Club World Cup, Delap and Cunha in talks with Manchester United.`\
 https://nytimes.com/athletic/6369425/2025/05/20/neom-saudi-world-cup-man-utd-delap-cunha/

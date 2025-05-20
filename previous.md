@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: Refugees, Medical Breakthrough, Alligator**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/05/20/learning/20StudentNewsQuiz.html
+
+**Frida Maanum signs new Arsenal contract**\
+`The 25-year-old has scored 40 goals in 150 appearances for Arsenal since joining from Swedish side Linkoping FC four years ago.`\
+https://nytimes.com/athletic/6369385/2025/05/20/frida-maanum-arsenal-contract-new/
+
 **The Athletic FC: Secretive Saudi club built to rule, Man Utd in talks with Delap, Cunha**\
 `Today in TAFC: The brand new Saudi club targeting the 2029 Club World Cup, Delap and Cunha in talks with Manchester United.`\
 https://nytimes.com/athletic/6369425/2025/05/20/neom-saudi-world-cup-man-utd-delap-cunha/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6368325/2025/05/20/nhl-postseason-salary-cap-expans
 `The team unveiled a mural outside Section 140, where then-Father Robert Prevost was among fans who watched the Sox defeat Houston in Game 1.`\
 https://nytimes.com/athletic/6369106/2025/05/20/pope-leo-xiv-white-sox-mural-world-series-2005/
 
-**What stands out about the rosters of the 4 NHL conference final teams?**\
-`A look at the ice time leaders on the conference finalists and what it tells rival teams about achieving success.`\
-https://nytimes.com/athletic/6368251/2025/05/20/nhl-conference-finals-rosters-oilers-panthers-stars-hurricanes/
-
-**The ultimate NHL team name rankings: Where do the Utah Mammoth rank? And who's No. 1?**\
-`What makes a great sports team name? Which ones are iconic and which ones are bad? We rank all 32 team names with your help.`\
-https://nytimes.com/athletic/6365596/2025/05/20/nhl-team-name-rankings/
-
-**The rise of Manchester United's Leny Yoro - as told by his mum: 'When Leny wants to do something, he'll do it'**\
-`‘For me, it's not Leny Yoro the footballer, it's always Leny. He's still my son,’ his mother Flore Baugnies speaks about his character`\
-https://nytimes.com/athletic/6368945/2025/05/20/leny-yoro-mum/
+**How the 49ers struck gold with Brock Purdy — after a big swing and miss**\
+`A book excerpt from Michael Silver reveals how quickly Mike Shanahan — father of Kyle Shanahan — was sold on Purdy. `\
+https://nytimes.com/athletic/6362820/2025/05/20/nfl-49ers-purdy-football-book/
 
