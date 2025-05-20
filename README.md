@@ -1,3 +1,7 @@
+**Shane Doyle, Founder of a Storied East Village Venue, Dies at 73**\
+`An Irish expatriate, he created Sin-é, a bare-bones cafe that became an unlikely magnet for stars like Sinead O’Connor, Bono of U2 and Iggy Pop.`\
+https://nytimes.com/2025/05/20/arts/music/shane-doyle-dead.html
+
 **Are Bicycle Bells Passive-Aggressive?**\
 `A ruling on the best way to boss pedestrians around from the saddle.`\
 https://nytimes.com/interactive/2025/05/20/magazine/11mag-hodgmanquiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/arts/music/grace-potter-medicine.html
 **USWNT roster: Naomi Girma returns, Lo’eau LaBonta debuts**\
 `Emma Hayes named her 24-player roster Tuesday for two upcoming friendlies against China on May 31 and Jamaica on June 3.`\
 https://nytimes.com/athletic/6369196/2025/05/20/naomi-girma-uswnt-roster-return/
-
-**Bruins GM Don Sweeney signs 2-year extension**\
-`Sweeney’s mandate is to turn around a club that finished with the fifth-worst record and missed the playoffs for the first time since 2016.`\
-https://nytimes.com/athletic/6370135/2025/05/20/bruins-don-sweeney-extension/
 

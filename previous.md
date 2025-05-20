@@ -1,3 +1,19 @@
+**Are Bicycle Bells Passive-Aggressive?**\
+`A ruling on the best way to boss pedestrians around from the saddle.`\
+https://nytimes.com/interactive/2025/05/20/magazine/11mag-hodgmanquiz.html
+
+**Fever vs. Sky most-viewed WNBA regular season game in 25 years**\
+`A trend from last year continued when the WNBA had 22 regular-season games that averaged more than 1 million viewers.`\
+https://nytimes.com/athletic/6370191/2025/05/20/caitlin-clark-angel-reese-sky-fever-viewership-wnba/
+
+**Prime Tire: Q&A with the fan who made Piastri out of pizza. Plus: Can Ferrari rebound?**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6369954/2025/05/20/oscar-piastri-pizza-fan-f1-prime-tire-newsletter/
+
+**Elon Musk Suggests He Will Spend ‘a Lot Less’ on Political Donations**\
+`The world’s richest person, who spent more money than anyone else last year as he helped elect President Trump, has indicated lately that he wants to turn back toward his business empire.`\
+https://nytimes.com/2025/05/20/us/politics/elon-musk-trump-political-spending.html
+
 **Mexican second-tier clubs file suit vs. Liga MX, FMF to resume pro-rel**\
 `Promotion-relegation in Mexico was supposed to resume later this year following a pause instituted in 2020, but not all clubs are convinced`\
 https://nytimes.com/athletic/6369111/2025/05/20/liga-mx-fmf-lawsuit-promotion-relegation-mexico/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6369196/2025/05/20/naomi-girma-uswnt-roster-return/
 **Bruins GM Don Sweeney signs 2-year extension**\
 `Sweeney’s mandate is to turn around a club that finished with the fifth-worst record and missed the playoffs for the first time since 2016.`\
 https://nytimes.com/athletic/6370135/2025/05/20/bruins-don-sweeney-extension/
-
-**Are You a European in a Housing Crunch? We Want to Hear From You.**\
-`To help us report on the housing crisis in Europe, we want to learn about the housing pressures you are dealing with, how they are affecting your community and how they are being solved.`\
-https://nytimes.com/2025/05/20/business/europe-housing-crunch.html
-
-**Trump Squeezes His Party on Domestic Policy Bill**\
-`The president visited the weekly meeting of House Republicans to make the case for the legislation and pressure members of his party to fall into line.`\
-https://nytimes.com/2025/05/20/us/politics/trump-big-beautiful-bill.html
-
-**Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
-`At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that helped President Trump win. Yes, there’s a price tag.`\
-https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
-
-**Sands staying at St. Pauli on season-long loan for 2025-26**\
-`Sands initially joined the German club in January on a loan deal for the remainder of the 2024-25 campaign from New York City FC.`\
-https://nytimes.com/athletic/6369965/2025/05/20/james-sands-st-pauli-loan/
 
