@@ -1,3 +1,7 @@
+**Leafs goalie Anthony Stolarz discusses Sam Bennett hit, says he suffered concussion**\
+`Stolarz left Game 1 after suffering an injury in an 'unfortunate incident' with a former teammate. He did not play again in the series.`\
+https://nytimes.com/athletic/6370375/2025/05/20/leafs-anthony-stolarz-concussion-sam-bennett/
+
 **Prostate Experts See Familiar Scenario in Biden’s Cancer Diagnosis**\
 `Guidelines advise no screening after age 70, and doctors say that even men who test diligently may develop an aggressive cancer after none was found at a recent checkup.`\
 https://nytimes.com/2025/05/20/health/joe-biden-prostate-cancer-diagnosis-screening.html
