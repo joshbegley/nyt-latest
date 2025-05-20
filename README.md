@@ -1,3 +1,11 @@
+**What might the Sharks do with the No. 2 draft pick?**\
+`The Sharks could have a lot to think about – or nothing to ponder at all.`\
+https://nytimes.com/athletic/6368651/2025/05/20/san-jose-sharks-draft-2025/
+
+**Rocking Pink and Ready to Party**\
+`A special occasion called for a cheerful outfit.`\
+https://nytimes.com/2025/05/20/style/street-style-look-pink-clothes.html
+
 **Ukrainians Brace for a Lonelier Fight as Trump Backs Off Cease-Fire Call**\
 `President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
 https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6366210/2025/05/20/winnipeg-jets-offseason-prioriti
 **Trump Administration Live Updates: I.R.S. Nominee to Face Scrutiny Over Questionable Advice to Taxpayers**\
 ``\
 https://nytimes.com/live/2025/05/20/us/trump-news
-
-**Art Basel Announces New Fair in Qatar**\
-`With its enormous wealth, the Middle East has long been viewed by the international art trade as a prime market for expansion.`\
-https://nytimes.com/2025/05/20/arts/design/art-basel-doha-qatar.html
-
-**Who is most important to the Chargers’ success in 2025? Counting down 20 through 11**\
-`Third-year edge rusher Tuli Tuipulotu and rookie running back Omarion Hampton will be among the key players this season.`\
-https://nytimes.com/athletic/6368665/2025/05/20/chargers-most-important-players-2025-part-1/
 
