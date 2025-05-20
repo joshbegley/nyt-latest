@@ -1,3 +1,7 @@
+**Senate Advances Crypto Regulation Bill With Bipartisan Support**\
+`Democrats who had sided with the rest of their party last week to block the measure over concerns that President Trump could benefit dropped their objections. They argued that regulating the industry was urgent.`\
+https://nytimes.com/2025/05/19/us/politics/senate-crypto-regulation-bill.html
+
 **The Inside Story of Trump’s Search for a New Air Force One**\
 `Qatar had been trying to sell off a luxury jet for years, with no luck. Then President Trump’s team set its sights on it.`\
 https://nytimes.com/2025/05/19/us/politics/trump-air-force-one-qatar-jet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/arts/met-museum-iraq-looted-artifacts.html
 **The Trump-Supporting Christians Accusing Jews of Antisemitism**\
 `Ultra-Zionist gentiles are transforming America into something out of Jewish nightmares, pretending they’re trying to ensure Jewish safety.`\
 https://nytimes.com/2025/05/19/opinion/antisemitism-israel-palestine-esther.html
-
-**Clark says hatred has 'no place' in WNBA amid probe of alleged fan comments**\
-`The WNBA is investigating “alleged hateful fan comments” that were made toward the Chicago Sky on Saturday.`\
-https://nytimes.com/athletic/6368634/2025/05/19/caitlin-clark-comments-wnba-investigation-angel-reese-hateful-comments/
 

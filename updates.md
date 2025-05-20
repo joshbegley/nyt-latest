@@ -1,3 +1,7 @@
+**Senate Advances Crypto Regulation Bill With Bipartisan Support**\
+`Democrats who had sided with the rest of their party last week to block the measure over concerns that President Trump could benefit dropped their objections. They argued that regulating the industry was urgent.`\
+https://nytimes.com/2025/05/19/us/politics/senate-crypto-regulation-bill.html
+
 **The Inside Story of Trump’s Search for a New Air Force One**\
 `Qatar had been trying to sell off a luxury jet for years, with no luck. Then President Trump’s team set its sights on it.`\
 https://nytimes.com/2025/05/19/us/politics/trump-air-force-one-qatar-jet.html
