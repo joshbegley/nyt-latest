@@ -1,3 +1,7 @@
+**2nd Man Charged Over Fires at Homes Linked to U.K. Prime Minister**\
+`The British police said they had charged a Romanian national, Stanislav Carpiuc, with conspiracy to commit arson. Fires struck two buildings and a car linked to Prime Minister Keir Starmer.`\
+https://nytimes.com/2025/05/20/world/europe/fires-keir-starmer.html
+
 **Serie B in limbo as Brescia investigation delays relegation play-off**\
 `Brescia were issued the post-season deduction over an irregularity in their payment of salaries and tax contributions in February.`\
 https://nytimes.com/athletic/6365332/2025/05/20/brescia-relegated-sampdoria-italian-football/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/20/sports/bill-belichick-age-girlfriend-jordon-hudso
 **Why Mahmoud Khalil Remains in Detention as Other Protesters Are Freed**\
 `The judge in the case, Michael E. Farbiarz, has yet to weigh in fully on the issues of free speech and due process as Mr. Khalil passes the weeks in Jena, La.`\
 https://nytimes.com/2025/05/20/nyregion/mahmoud-khalil-detention-judge.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/20/crosswords/spelling-bee-forum.html
 
