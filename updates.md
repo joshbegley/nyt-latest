@@ -1,3 +1,11 @@
+**G.M. Stops Exporting Cars to China**\
+`The decision affects relatively few vehicles because the vast majority that General Motors sells there are made in that country.`\
+https://nytimes.com/2025/05/19/business/general-motors-gm-china-exports.html
+
+**Browns' Shedeur Sanders signs 4-year, $4.6 million rookie contract**\
+`Sanders' fall to the fifth round in the 2025 NFL Draft cost him financially. No. 1 pick Cam Ward is projected to make nearly $80 million.`\
+https://nytimes.com/athletic/6368708/2025/05/19/cleveland-browns-shedeur-sanders-rookie-contract/
+
 **Retired Navy Admiral Is Convicted on Bribery Charges**\
 `Robert P. Burke, who was the Navy’s second-highest-ranking officer, was accused of steering a contract to a company that offered him a lucrative job.`\
 https://nytimes.com/2025/05/19/us/navy-admiral-convicted-bribery.html

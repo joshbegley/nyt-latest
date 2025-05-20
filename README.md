@@ -1,3 +1,7 @@
+**Clark says hatred has 'no place' in WNBA amid probe of alleged fan comments**\
+`The WNBA is investigating “alleged hateful fan comments” that were made toward the Chicago Sky on Saturday.`\
+https://nytimes.com/athletic/6368634/2025/05/19/caitlin-clark-comments-wnba-investigation-angel-reese-hateful-comments/
+
 **G.M. Stops Exporting Cars to China**\
 `The decision affects relatively few vehicles because the vast majority that General Motors sells there are made in that country.`\
 https://nytimes.com/2025/05/19/business/general-motors-gm-china-exports.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367897/2025/05/19/tennis-britain-court-facilities-
 **$800 Million Overhaul of U.S. Open Stadium Will Add Space and Luxury**\
 `Construction on the Arthur Ashe tennis stadium and a new building for players is scheduled to be completed in time for the 2027 U.S. Open.`\
 https://nytimes.com/2025/05/19/nyregion/arthur-ashe-stadium-renovation.html
-
-**Did Usher Write His Own Commencement Speech? (Yeah!)**\
-`Usher told Emory’s Class of 2025 a story about himself that he has rarely shared. Here is how late-night brainstorming, careful editing and last-minute riffing led to that moment.`\
-https://nytimes.com/interactive/2025/05/19/us/usher-commencement-speech-emory.html
 
