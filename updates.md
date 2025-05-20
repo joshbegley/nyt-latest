@@ -1,3 +1,5 @@
+
+
 **Cleveland Guardians' Travis Bazzana to miss 2 months with oblique strain**\
 `Bazzana suffered the injury May 14 in a game against the Chesapeake Baysox.`\
 https://nytimes.com/athletic/6370720/2025/05/20/cleveland-guardians-travis-bazzana-oblique-strain/
