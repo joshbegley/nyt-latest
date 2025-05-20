@@ -1,6 +1,14 @@
+**Sands staying at St. Pauli on season-long loan for 2025-26**\
+`Sands initially joined the German club in January on a loan deal for the remainder of the 2024-25 campaign from New York City FC.`\
+https://nytimes.com/athletic/6369965/2025/05/20/james-sands-st-pauli-loan/
+
+**Breuer Building Gets Landmark Status Before Sotheby’s Moves In**\
+`The modernist former home of the Whitney Museum on Madison Avenue had its interior designated for protection by the New York City Landmarks Preservation Commission.`\
+https://nytimes.com/2025/05/20/arts/design/breuer-building-landmark-status-sothebys.html
+
 **Bears agree to 2-year contract extension with All-Pro guard Joe Thuney**\
 `Acquired from the Chiefs in March, Thuney will get $33.5 million guaranteed at signing and average $17.5 million over three years.`\
-https://nytimes.com/athletic/6370007/2025/05/20/chicago-bears-agree-to-2-year-contract-extension-with-all-pro-guard-joe-thuney/
+https://nytimes.com/athletic/6370007/2025/05/20/chicago-bears-joe-thuney-contract-extension/
 
 **A Knicks Superfan With a Résumé to Prove It**\
 `Tim Chalamet, an unknown teenager, was with the Knicks in the hard times. Timothée Chalamet, the famous actor, is loving every second of the team’s deep playoff run.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-inj
 **Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
 `O'Ward, never one to do anything halfway, has made a home as IndyCar's rising star. He'll start on the front row on Sunday in Indianapolis`\
 https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
-
-**The Bounce: Do the Timberwolves fear the Thunder? 3 keys to winning West Finals matchup**\
-`Have the Thunder learned enough this postseason to reach their first finals since 2012? Plus, Michael Beasley's funny trade demand`\
-https://nytimes.com/athletic/6369536/2025/05/20/anthony-edwards-timberwolves-shai-gilgeous-alexander-thunder-playoffs-nba-the-bounce/
-
-**Yu Zidi: 12-year-old Chinese swimmer sets 200m record**\
-`Yu's time would have reached the semi-final stage of last year's Olympics and puts her in the frame for this year's World Championships.`\
-https://nytimes.com/athletic/6369630/2025/05/20/yu-zidi-china-swimming/
 

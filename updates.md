@@ -1,3 +1,15 @@
+**Bears agree to 2-year contract extension with All-Pro guard Joe Thuney**\
+`Acquired from the Chiefs in March, Thuney will get $33.5 million guaranteed at signing and average $17.5 million over three years.`\
+https://nytimes.com/athletic/6370007/2025/05/20/chicago-bears-agree-to-2-year-contract-extension-with-all-pro-guard-joe-thuney/
+
+**A Knicks Superfan With a Résumé to Prove It**\
+`Tim Chalamet, an unknown teenager, was with the Knicks in the hard times. Timothée Chalamet, the famous actor, is loving every second of the team’s deep playoff run.`\
+https://nytimes.com/2025/05/20/style/timothee-chalamet-knicks-playoffs.html
+
+**Carlsen vs The World: chess master draws game against 143,000 players**\
+`The game set a new record for a player facing the biggest number of opponents in an online chess match.`\
+https://nytimes.com/athletic/6369842/2025/05/20/magnus-carlsen-chess-vs-the-world/
+
 **Rodri cleared to make Man City return after eight months out with ACL injury**\
 `After Tuesday's game against Bournemouth, City travel to Fulham next Sunday before playing in the Club World Cup next month.`\
 https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/

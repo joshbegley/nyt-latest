@@ -1,3 +1,15 @@
+**Bears agree to 2-year contract extension with All-Pro guard Joe Thuney**\
+`Acquired from the Chiefs in March, Thuney will get $33.5 million guaranteed at signing and average $17.5 million over three years.`\
+https://nytimes.com/athletic/6370007/2025/05/20/chicago-bears-agree-to-2-year-contract-extension-with-all-pro-guard-joe-thuney/
+
+**A Knicks Superfan With a Résumé to Prove It**\
+`Tim Chalamet, an unknown teenager, was with the Knicks in the hard times. Timothée Chalamet, the famous actor, is loving every second of the team’s deep playoff run.`\
+https://nytimes.com/2025/05/20/style/timothee-chalamet-knicks-playoffs.html
+
+**Carlsen vs The World: chess master draws game against 143,000 players**\
+`The game set a new record for a player facing the biggest number of opponents in an online chess match.`\
+https://nytimes.com/athletic/6369842/2025/05/20/magnus-carlsen-chess-vs-the-world/
+
 **The E.U. Is Still Ramping Up Sanctions on Russia. Here’s How.**\
 `The European Union has now targeted Moscow’s fleet of covert oil tankers and plans more restrictions, as the Trump administration’s approach to the war shifts.`\
 https://nytimes.com/2025/05/20/world/europe/european-union-russia-sanctions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6369536/2025/05/20/anthony-edwards-timberwolves-sha
 **Yu Zidi: 12-year-old Chinese swimmer sets 200m record**\
 `Yu's time would have reached the semi-final stage of last year's Olympics and puts her in the frame for this year's World Championships.`\
 https://nytimes.com/athletic/6369630/2025/05/20/yu-zidi-china-swimming/
-
-**What might the Sharks do with the No. 2 draft pick?**\
-`The Sharks could have a lot to think about – or nothing to ponder at all.`\
-https://nytimes.com/athletic/6368651/2025/05/20/san-jose-sharks-draft-2025/
-
-**Rocking Pink and Ready to Party**\
-`A special occasion called for a cheerful outfit.`\
-https://nytimes.com/2025/05/20/style/street-style-look-pink-clothes.html
-
-**Ukrainians Brace for a Longer War as Trump Backs Off Cease-Fire Call**\
-`President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
-https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
 
