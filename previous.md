@@ -1,3 +1,23 @@
+**Pato O'Ward is the Indy 500's rock star. Why F1's door closing led to unexpected fame**\
+`O'Ward is caught between two racing worlds: Making authentic connections with IndyCar fans while keeping his F1 future open with McLaren`\
+https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
+
+**The Bounce: Do the Timberwolves fear the Thunder? 3 keys to winning West Finals matchup**\
+`Have the Thunder learned enough this postseason to reach their first finals since 2012? Plus, Michael Beasley's funny trade demand`\
+https://nytimes.com/athletic/6369536/2025/05/20/anthony-edwards-timberwolves-shai-gilgeous-alexander-thunder-playoffs-nba-the-bounce/
+
+**Yu Zidi: 12-year-old Chinese swimmer sets 200m record**\
+`Yu's time would have reached the semi-final stage of last year's Olympics and puts her in the frame for this year's World Championships.`\
+https://nytimes.com/athletic/6369630/2025/05/20/yu-zidi-china-swimming/
+
+**What might the Sharks do with the No. 2 draft pick?**\
+`The Sharks could have a lot to think about – or nothing to ponder at all.`\
+https://nytimes.com/athletic/6368651/2025/05/20/san-jose-sharks-draft-2025/
+
+**Rocking Pink and Ready to Party**\
+`A special occasion called for a cheerful outfit.`\
+https://nytimes.com/2025/05/20/style/street-style-look-pink-clothes.html
+
 **Ukrainians Brace for a Lonelier Fight as Trump Backs Off Cease-Fire Call**\
 `President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
 https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6369045/2025/05/20/maple-leafs-john-tavares-nhl/
 **Maresca: Jorgensen to start UECL final, ‘unhappy’ with Betis scheduling**\
 `Jorgensen has started 13 of Chelsea's 14 Conference League matches, keeping five clean sheets.`\
 https://nytimes.com/athletic/6369633/2025/05/20/jorgensen-chelsea-goalkeeper-conference-league-final/
-
-**Global Economic Officials Gather Amid Headwinds From Trump’s Trade War**\
-`Treasury Secretary Scott Bessent will meet his international counterparts at a G7 finance ministers meeting in Canada.`\
-https://nytimes.com/2025/05/20/us/politics/g7-canada-trump-trade-war.html
-
-**The Jets deserve praise, but must keep pushing forward this offseason**\
-`Breaking down Winnipeg's biggest victory and biggest problem this year, and the contract decisions to come.`\
-https://nytimes.com/athletic/6366210/2025/05/20/winnipeg-jets-offseason-priorities/
-
-**Trump Administration Live Updates: I.R.S. Nominee to Face Scrutiny Over Questionable Advice to Taxpayers**\
-``\
-https://nytimes.com/live/2025/05/20/us/trump-news
-
-**Art Basel Announces New Fair in Qatar**\
-`With its enormous wealth, the Middle East has long been viewed by the international art trade as a prime market for expansion.`\
-https://nytimes.com/2025/05/20/arts/design/art-basel-doha-qatar.html
-
-**Who is most important to the Chargers’ success in 2025? Counting down 20 through 11**\
-`Third-year edge rusher Tuli Tuipulotu and rookie running back Omarion Hampton will be among the key players this season.`\
-https://nytimes.com/athletic/6368665/2025/05/20/chargers-most-important-players-2025-part-1/
 
