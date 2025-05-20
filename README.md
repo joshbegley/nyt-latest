@@ -1,3 +1,7 @@
+**Trump Squeezes His Party on Domestic Policy Bill**\
+`The president visited the weekly meeting of House Republicans to make the case for the legislation and pressure members of his party to fall into line.`\
+https://nytimes.com/2025/05/20/us/politics/trump-big-beautiful-bill.html
+
 **Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
 `At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that helped President Trump win. Yes, there’s a price tag.`\
 https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369840/2025/05/20/jalen-williams-fine-shirt-thunde
 **Doucoure confirms Everton exit at end of 2024-25**\
 `Doucoure, 32, was offered a new contract by Everton last week, but a deal could not be struck.`\
 https://nytimes.com/athletic/6369911/2025/05/20/abdoulaye-doucoure-everton-exit/
-
-**Rodri cleared to make Man City return after eight months out with ACL injury**\
-`After Tuesday's game against Bournemouth, City travel to Fulham next Sunday before playing in the Club World Cup next month.`\
-https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
 
