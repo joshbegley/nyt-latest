@@ -1,9 +1,29 @@
+**The English football history Man Utd and Tottenham fans will find at Europa League final**\
+`Bilbao's links to the English game are numerous and stretch right back to the club's origins`\
+https://nytimes.com/athletic/6364031/2025/05/20/man-utd-tottenham-europa-league-bilbao-athletic/
+
+**What happened in other all-English European finals?**\
+`As Manchester United and Tottenham prepare for the sixth all-English European cup final, we look at how the previous five finals played out`\
+https://nytimes.com/athletic/6349464/2025/05/20/europa-league-final-all-english-european-finals/
+
+**A Squeezed Britain Ekes Out 3 Trade Deals. But Are They Any Good?**\
+`Prime Minister Keir Starmer’s government had to make some politically fraught concessions, reflecting the country’s status as a midsize economy in a volatile market.`\
+https://nytimes.com/2025/05/20/world/europe/uk-starmer-eu-deal.html
+
+**Connections: Sports Edition Coach: Hints for May 20, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6369159/2025/05/20/connections-sports-edition-hints-for-may-20-2025/
+
+**Corrections: May 20, 2025**\
+`Corrections that appeared in print on Tuesday, May 20, 2025.`\
+https://nytimes.com/2025/05/20/pageoneplus/corrections-may-20-2025.html
+
 **Quote of the Day: Shattered by Tornado, Kentucky City Regroups**\
 `Quotation of the Day for Tuesday, May 20, 2025.`\
 https://nytimes.com/2025/05/19/pageoneplus/quote-of-the-day-shattered-by-tornado-kentucky-city-regroups.html
 
 **Juan Soto's version of 'hustling pretty hard' draws scrutiny in Mets' loss**\
-`Analysis: Soto eased out of the batter’s box and wound up with a a 347-foot single, violating the first rule of hustling.`\
+`Analysis: Soto eased out of the batter's box and wound up with a 347-foot single, violating the first rule of hustling.`\
 https://nytimes.com/athletic/6369115/2025/05/19/mets-juan-soto-hustle/
 
 **Phillies' Kyle Schwarber hits 466-foot blast for 300th career home run**\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/19/business/china-battery-hong-kong-catl.html
 **Mets may have 'more stern' conversation about approach as RISP woes continue**\
 `Carlos Mendoza said the Mets lineup has been too passive early in counts and too aggressive later.`\
 https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
-
-**Full Time: NWSL’s Unwell era arrives**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6369088/2025/05/19/nwsl-alex-cooper-unwell-full-time/
-
-**Can Marvin Harrison Jr. make a Year 2 leap? Cardinals' playoff hopes may hinge on it**\
-`The Cardinals are hoping this is the year they return to the postseason. Their second-year wideout's development is a key part of the plan.`\
-https://nytimes.com/athletic/6368723/2025/05/19/marvin-harrison-jr-arizona-cardinals-wide-receiver-year-2/
-
-**On the Up and Up**\
-`Rena Cohen gives us the spiel.`\
-https://nytimes.com/2025/05/19/crosswords/daily-puzzle-2025-05-20.html
-
-**Senate Advances Crypto Regulation Bill With Bipartisan Support**\
-`Democrats who had sided with the rest of their party last week to block the measure over concerns that President Trump could benefit dropped their objections. They argued that regulating the industry was urgent.`\
-https://nytimes.com/2025/05/19/us/politics/senate-crypto-regulation-bill.html
-
-**The Inside Story of Trump’s Search for a New Air Force One**\
-`Qatar had been trying to sell off a luxury jet for years, with no luck. Then President Trump’s team set its sights on it.`\
-https://nytimes.com/2025/05/19/us/politics/trump-air-force-one-qatar-jet.html
 
