@@ -1,3 +1,15 @@
+**Cleveland Guardians' Travis Bazzana to miss 2 months with oblique strain**\
+`Bazzana suffered the injury May 14 in a game against the Chesapeake Baysox.`\
+https://nytimes.com/athletic/6370720/2025/05/20/cleveland-guardians-travis-bazzana-oblique-strain/
+
+**Los Angeles Mayor Seeks to Lure Filming Back by Cutting Red Tape**\
+`With film and TV production in Los Angeles down by roughly one-third in recent years, Mayor Karen Bass took steps to make it easier to shoot at top locations.`\
+https://nytimes.com/2025/05/20/movies/los-angeles-film-industry.html
+
+**USA's Hilary Knight plans to make 2026 Milan final Olympics appearance**\
+`Knight still plans to play in the PWHL after Milan, according to USA Today.`\
+https://nytimes.com/athletic/6370663/2025/05/20/hilary-knight-2026-milan-olympics/
+
 **Noem Incorrectly Defines Habeas Corpus as the President’s Right to Deport People**\
 `The right allows people to legally challenge their detentions by the government and is guaranteed in the Constitution.`\
 https://nytimes.com/2025/05/20/us/politics/kristi-noem-habeas-corpus-deportations.html
