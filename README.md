@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/19/nyregion/nyc-ship-brooklyn-bridge-mexican-navy.html
 
 **Rep. McIver Charged With Assault Over Clash Outside Newark ICE Center**\
-`The Department of Justice also announced it was dropping a criminal charge against the city’s mayor stemming from the same episode.`\
+`The Department of Justice also announced it was dropping a trespass charge against the city’s mayor stemming from the same episode.`\
 https://nytimes.com/2025/05/19/nyregion/new-jersey-congress-ice-charges.html
 
 **Trump Targets Harris Campaign’s Links to Oprah Winfrey, Beyoncé and Bruce Springsteen**\
