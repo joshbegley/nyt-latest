@@ -1,5 +1,5 @@
 **F.D.A. Poised to Restrict Access to Covid Vaccines**\
-`Agency leaders said they wanted to restore trust in the shots with further studies. But the proposed criteria may reduce access to the vaccines for many people who want them.`\
+`Agency leaders said there was evidence to justify approval only for older people and those with medical conditions. Many others may not be able to get the shots.`\
 https://nytimes.com/2025/05/20/health/fda-covid-vaccines.html
 
 **Vlastimil Hort, a Memorably Selfless Chess Grandmaster, Dies at 81**\
