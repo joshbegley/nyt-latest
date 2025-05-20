@@ -1,4 +1,12 @@
 **Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
+`At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that helped President Trump win. Yes, there’s a price tag.`\
+https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
+
+**Breuer Building Gets Landmark Status Before Sotheby’s Moves In**\
+`The modernist former home of the Whitney Museum of American Art on Madison Avenue had its interior designated for protection by the New York City Landmarks Preservation Commission.`\
+https://nytimes.com/2025/05/20/arts/design/breuer-building-landmark-status-sothebys.html
+
+**Democrats Throw Money at a Problem: Countering G.O.P. Clout Online**\
 `At private gatherings, strategists and donors are swapping ideas to help the party capture the digital mojo that Republicans seem to have. Yes, there’s a price tag.`\
 https://nytimes.com/2025/05/20/us/politics/democrats-influencers-trump.html
 
