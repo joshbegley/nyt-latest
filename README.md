@@ -1,3 +1,11 @@
+**Bruins GM Don Sweeney signs two-year extension**\
+`Sweeney’s mandate is to turn around a club that finished with the fifth-worst record and missed the playoffs for the first time since 2016.`\
+https://nytimes.com/athletic/6370135/2025/05/20/bruins-don-sweeney-extension/
+
+**Are You a European in a Housing Crunch? We Want to Hear From You.**\
+`To help us report on the housing crisis in Europe, we want to learn about the housing pressures you are dealing with, how they are affecting your community and how they are being solved.`\
+https://nytimes.com/2025/05/20/business/europe-housing-crunch.html
+
 **Trump Squeezes His Party on Domestic Policy Bill**\
 `The president visited the weekly meeting of House Republicans to make the case for the legislation and pressure members of his party to fall into line.`\
 https://nytimes.com/2025/05/20/us/politics/trump-big-beautiful-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6369842/2025/05/20/magnus-carlsen-chess-vs-the-worl
 **The E.U. Is Still Ramping Up Sanctions on Russia. Here’s How.**\
 `The European Union has now targeted Moscow’s fleet of covert oil tankers and plans more restrictions, as the Trump administration’s approach to the war shifts.`\
 https://nytimes.com/2025/05/20/world/europe/european-union-russia-sanctions.html
-
-**Thunder's Jalen Williams fined $25,000 for profane language on his shirt**\
-`Williams wore the shirt during Sunday's postgame media session following the Thunder's win over the Nuggets in Game 7.`\
-https://nytimes.com/athletic/6369840/2025/05/20/jalen-williams-fine-shirt-thunder/
-
-**Doucoure confirms Everton exit at end of 2024-25**\
-`Doucoure, 32, was offered a new contract by Everton last week, but a deal could not be struck.`\
-https://nytimes.com/athletic/6369911/2025/05/20/abdoulaye-doucoure-everton-exit/
 
