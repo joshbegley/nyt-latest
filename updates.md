@@ -1,3 +1,11 @@
+**Brighton's Joao Pedro and Lamptey doubts for PL finale against Spurs**\
+`Joao Pedro missed Monday's 3-2 home win over Liverpool for personal reasons, while Lamptey was ruled out of the match through injury.`\
+https://nytimes.com/athletic/6369290/2025/05/20/brighton-joao-pedro-lamptey-update/
+
+**'Battling with what we got': Dodgers' pitching continues to crater in latest loss**\
+`After getting hit hard Monday in a 9-5 loss to the Diamondbacks, the Dodgers' team ERA of 4.28 ranks 22nd in baseball.`\
+https://nytimes.com/athletic/6369263/2025/05/20/dodgers-pitching-continues-to-crater-diamondbacks-loss/
+
 **Liverpool's proactive summer is under way - and they're recruiting from a position of strength**\
 `Winning the Premier League title has allowed Liverpool to take their foot off the gas on the pitch. Off it, they're going full throttle `\
 https://nytimes.com/athletic/6367315/2025/05/20/liverpool-summer-transfers-frimpong-kerkez-hato/
