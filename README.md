@@ -1,3 +1,7 @@
+**Doucoure confirms Everton exit at end of 2024-25**\
+`Doucoure, 32, was offered a new contract by Everton last week, but a deal could not be struck.`\
+https://nytimes.com/athletic/6369911/2025/05/20/abdoulaye-doucoure-everton-exit/
+
 **Rodri cleared to make Man City return after eight months out with ACL injury**\
 `It is yet to be confirmed if Rodri will partake in Spain's Nations League semi-final against France on June 5.`\
 https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369015/2025/05/20/detroit-pistons-mailbag-malik-be
 **Late Night Is Concerned About (the Truth Behind) Biden’s Health**\
 `“They used to say it’s not the crime, it’s the cover-up, but it’s starting to feel like politics is all cover-up,” Jon Stewart said.`\
 https://nytimes.com/2025/05/20/arts/television/late-night-biden-cancer.html
-
-**Mirtle: Should the Maple Leafs bring John Tavares back? Or is it over?**\
-`Can Toronto accommodate its former captain? Could Tavares be headed back to free agency as one of the top players available?`\
-https://nytimes.com/athletic/6369045/2025/05/20/maple-leafs-john-tavares-nhl/
 
