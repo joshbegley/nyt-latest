@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Country Is Having (Another!) Rap Moment**\
+`After Morgan Wallen, Lil Nas X and Shaboozey, Nashville is going hip-hop yet again. “Oil Money” by Graham Barham is the latest example of a long lineage, our critic explains from the driver’s seat.`\
+https://nytimes.com/video/podcasts/100000010180577/country-is-having-another-rap-moment.html
+
+**In Approving Soda Ban for Food Stamps, U.S.D.A. Reverses Decades of Policy**\
+`The Trump administration approved a first of its kind waiver for Nebraska, allowing a ban on soda purchases through the Supplemental Nutrition Assistance Program, starting next year.`\
+https://nytimes.com/2025/05/20/us/politics/nebraska-bans-soda-snap-benefits-usda.html
+
 **Spotlight intensifying on Juan Soto's struggles with Mets: 'There is a lot of noise right now'**\
 `Mendoza attributed Soto’s postgame comments Monday to “frustration.”`\
 https://nytimes.com/athletic/6371331/2025/05/20/juan-soto-mets-hustle-struggle/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
 **Trump Told Republicans to Get in Line**\
 `Also, Israel’s allies told it to stop its expanded Gaza offensive. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
-
-**Siegel: For Mitch Marner and the Maple Leafs, a breakup is for the best**\
-`All signs are pointing to Marner leaving Toronto in free agency. Why it's the best thing for all involved.`\
-https://nytimes.com/athletic/6370682/2025/05/20/mitch-marner-maple-leafs-contract-nhl/
-
-**Everybody Knew His Name: ‘Norm!’**\
-`George Wendt of “Cheers,” who died on Tuesday, could walk into a bar and imply his character’s entire life outside it.`\
-https://nytimes.com/2025/05/20/arts/television/george-wendt-norm-cheers.html
 
