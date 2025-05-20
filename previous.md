@@ -1,5 +1,5 @@
 **Mets may have 'more stern' conversation about approach as RISP woes continue**\
-`Carlos Mendoza said the Mets lineup was too passive early in counts and too aggressive later.`\
+`Carlos Mendoza said the Mets lineup has been too passive early in counts and too aggressive later.`\
 https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
 
 **Full Time: NWSL’s Unwell era arrives**\
