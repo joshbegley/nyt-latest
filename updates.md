@@ -1,3 +1,11 @@
+**Rodri cleared to make Man City return after eight months out with ACL injury**\
+`After Tuesday's game against Bournemouth, City travel to Fulham next Sunday before playing in the Club World Cup next month.`\
+https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
+
+**Ukrainians Brace for a Longer War as Trump Backs Off Cease-Fire Call**\
+`President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
+https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
+
 **The E.U. Is Still Ramping Up Sanctions on Russia. Here’s How.**\
 `The European Union has now targeted Moscow’s fleet of covert oil tankers and plans more restrictions, as the Trump administration’s approach to the war shifts.`\
 https://nytimes.com/2025/05/20/world/europe/european-union-russia-sanctions.html

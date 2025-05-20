@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6369840/2025/05/20/jalen-williams-fine-shirt-thunde
 https://nytimes.com/athletic/6369911/2025/05/20/abdoulaye-doucoure-everton-exit/
 
 **Rodri cleared to make Man City return after eight months out with ACL injury**\
-`It is yet to be confirmed if Rodri will partake in Spain's Nations League semi-final against France on June 5.`\
+`After Tuesday's game against Bournemouth, City travel to Fulham next Sunday before playing in the Club World Cup next month.`\
 https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
 
 **Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6368651/2025/05/20/san-jose-sharks-draft-2025/
 `A special occasion called for a cheerful outfit.`\
 https://nytimes.com/2025/05/20/style/street-style-look-pink-clothes.html
 
-**Ukrainians Brace for a Lonelier Fight as Trump Backs Off Cease-Fire Call**\
+**Ukrainians Brace for a Longer War as Trump Backs Off Cease-Fire Call**\
 `President Trump appears to be stepping back from trying to end the war in Ukraine. Many in the country see little choice but to battle on.`\
 https://nytimes.com/2025/05/20/world/europe/ukraine-trump-reaction.html
 
