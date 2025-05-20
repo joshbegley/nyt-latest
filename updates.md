@@ -1,3 +1,19 @@
+**Aid Trickles Into Gaza as Israel Eases Two-Month Blockade**\
+`Trucks were seen heading toward the Gazan side of the Kerem Shalom border crossing with Israel on Tuesday morning after other humanitarian help had reached the territory the previous day.`\
+https://nytimes.com/video/world/middleeast/100000010179649/aid-gaza-israel-lifts-months-long-blockade.html
+
+**The New York Times International Edition in Print for Wednesday, May 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/20/todays-new-york-times-international-edition
+
+**How to Make Two-Minute Noodles the Right Way**\
+`A winning essay by Rudransh Kohli, age 16.`\
+https://nytimes.com/2025/05/20/learning/how-to-make-two-minute-noodles-the-right-way.html
+
+**How to Come Out to Your Friend**\
+`A winning essay by Zixuan Wang, age 18.`\
+https://nytimes.com/2025/05/20/learning/how-to-come-out-to-your-friend.html
+
 **Timberwolves at Thunder Game 1 picks, odds, how to watch: OKC favored in opener**\
 `The Western Conference finals begin Tuesday, with Anthony Edwards and Minnesota underdogs on the road in Game 1.`\
 https://nytimes.com/athletic/6368134/2025/05/20/timberwolves-thunder-picks-odds-game-1-how-to-watch/
