@@ -1,3 +1,11 @@
+**Global Economic Officials Gather Amid Headwinds From Trump’s Trade War**\
+`Treasury Secretary Scott Bessent will meet his international counterparts at a G7 finance ministers meeting in Canada.`\
+https://nytimes.com/2025/05/20/us/politics/g7-canada-trump-trade-war.html
+
+**The Jets deserve praise, but must keep pushing forward this offseason**\
+`Breaking down Winnipeg's biggest victory and biggest problem this year, and the contract decisions to come.`\
+https://nytimes.com/athletic/6366210/2025/05/20/winnipeg-jets-offseason-priorities/
+
 **Trump Administration Live Updates: I.R.S. Nominee to Face Scrutiny Over Questionable Advice to Taxpayers**\
 ``\
 https://nytimes.com/live/2025/05/20/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/20/arts/music/sean-combs-diddy-trial-assistant-cassi
 **Explaining why Yamal's new Barcelona contract is a 'special case'**\
 `There had been an understanding that Yamal would sign new terms when he turns 18 in July but his performances have raised expectations.`\
 https://nytimes.com/athletic/6369497/2025/05/20/lamine-yamal-barcelona-contract-number/
-
-**Network Outage Hits Spain, Weeks After Extensive Blackout**\
-`The outage Tuesday knocked out emergency phone lines in several parts of the country for several hours.`\
-https://nytimes.com/2025/05/20/world/europe/spain-telefonica-outage.html
-
-**Creator of ‘Dilbert’ Says He Has the Same Cancer as Biden**\
-`Scott Adams shared the news on his podcast and expressed sympathy for the former president. “My life expectancy is maybe this summer,” he said.`\
-https://nytimes.com/2025/05/20/us/scott-adams-dilbert-prostate-cancer-biden.html
 
