@@ -1,3 +1,7 @@
+**Spotlight intensifying on Juan Soto's struggles with Mets: 'There is a lot of noise right now'**\
+`Mendoza attributed Soto’s postgame comments Monday to “frustration.”`\
+https://nytimes.com/athletic/6371331/2025/05/20/juan-soto-mets-hustle-struggle/
+
 **Spotlight intensifying on Juan Soto's struggles: 'There is a lot of noise right now'**\
 `Mendoza attributed Soto’s postgame comments Monday to “frustration.”`\
 https://nytimes.com/athletic/6371331/2025/05/20/juan-soto-mets-hustle-struggle/
