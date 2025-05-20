@@ -2,7 +2,7 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
-**Biden Was Not Diagnosed With Prostate Cancer Before Last Week, Spokesman Says**\
+**Biden Did Not Get Prostate Cancer Diagnosis Before Last Week, Spokesman Says**\
 `Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
 https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
 

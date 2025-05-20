@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Biden Was Not Diagnosed With Prostate Cancer Before Last Week, Spokesman Says**\
+`Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
+https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
+
 **Trump Told Republicans to Get in Line**\
 `Also, Israel’s allies told it to stop its expanded Gaza offensive. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/us/newark-airport-flights-cap-faa.html
 **What It Looked Like Inside the Thomas Indian School**\
 `Archival photos show what life was like in the boarding school for Native American children.`\
 https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-archival-photographs.html
-
-**Juan Soto impressed with Red Sox free-agency pursuit: 'They showed a lot of love'**\
-`Soto ultimately signed with the Mets but said the Red Sox made a strong case: "I was surprised how hard they tried."`\
-https://nytimes.com/athletic/6371192/2025/05/20/juan-soto-red-sox-free-agency-pursuit/
 

@@ -1,3 +1,7 @@
+**Biden Was Not Diagnosed With Prostate Cancer Before Last Week, Spokesman Says**\
+`Former President Joseph R. Biden Jr.’s office pushed back on speculation that there had been a coverup around the illness.`\
+https://nytimes.com/2025/05/20/us/politics/biden-prostate-cancer-psa-test.html
+
 **Trump Told Republicans to Get in Line**\
 `Also, Israel’s allies told it to stop its expanded Gaza offensive. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
