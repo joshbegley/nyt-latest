@@ -1,3 +1,7 @@
+**What is Habeas Corpus, the Basic Right That Trump Officials Are Talking About Suspending?**\
+`Administration officials have suggested suspending a legal principle that protects against unlawful detention, and struggled to accurately define it.`\
+https://nytimes.com/2025/05/20/us/politics/what-is-habeas-corpus-trump-kristi-noem.html
+
 **U.S. Debt Is on Pace to Set a Record. (The Data Goes Back to 1790.)**\
 `If Republicans pass their tax and spending megabill, the record will arrive even sooner — putting America’s debt at more than 113 percent of the size of its entire economy.`\
 https://nytimes.com/2025/05/20/upshot/record-debt-republicans-bill.html
