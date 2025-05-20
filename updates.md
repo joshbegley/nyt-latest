@@ -1,3 +1,7 @@
+**Noem Incorrectly Defines Habeas Corpus as the President’s Right to Deport People**\
+`The right allows people to legally challenge their detentions by the government and is guaranteed in the Constitution.`\
+https://nytimes.com/2025/05/20/us/politics/kristi-noem-habeas-corpus-deportations.html
+
 **Submit your Raptors questions for Eric Koreen’s offseason mailbag**\
 `The Toronto Raptors did not get lucky in the NBA Draft lottery, falling from their seventh slot to No.`\
 https://nytimes.com/athletic/6370707/2025/05/20/raptors-mailbag-offseason/
