@@ -1,4 +1,4 @@
-**Pato O'Ward is the Indy 500's rock star. Why F1's door closing led to unexpected fame**\
+**Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
 `O'Ward is caught between two racing worlds: Making authentic connections with IndyCar fans while keeping his F1 future open with McLaren`\
 https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
 

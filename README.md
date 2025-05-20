@@ -1,5 +1,9 @@
+**Rodri cleared to make Man City return after eight months out with ACL injury**\
+`It is yet to be confirmed if Rodri will partake in Spain's Nations League semi-final against France on June 5.`\
+https://nytimes.com/athletic/6369480/2025/05/20/rodri-return-man-city-update-injury-news/
+
 **Pato O'Ward is the Indy 500's rock star: Why fading F1 dreams led to racing fame**\
-`O'Ward is caught between two racing worlds: Making authentic connections with IndyCar fans while keeping his F1 future open with McLaren`\
+`O'Ward, never one to do anything halfway, has made a home as IndyCar's rising star. He'll start on the front row on Sunday in Indianapolis`\
 https://nytimes.com/athletic/6367963/2025/05/20/pato-oward-indy-500-mclaren-f1/
 
 **The Bounce: Do the Timberwolves fear the Thunder? 3 keys to winning West Finals matchup**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/arts/television/late-night-biden-cancer.html
 **Mirtle: Should the Maple Leafs bring John Tavares back? Or is it over?**\
 `Can Toronto accommodate its former captain? Could Tavares be headed back to free agency as one of the top players available?`\
 https://nytimes.com/athletic/6369045/2025/05/20/maple-leafs-john-tavares-nhl/
-
-**Maresca: Jorgensen to start UECL final, ‘unhappy’ with Betis scheduling**\
-`Jorgensen has started 13 of Chelsea's 14 Conference League matches, keeping five clean sheets.`\
-https://nytimes.com/athletic/6369633/2025/05/20/jorgensen-chelsea-goalkeeper-conference-league-final/
 
