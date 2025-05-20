@@ -20,7 +20,7 @@ https://nytimes.com/2025/05/20/t-magazine/best-sausage-rolls-london.html
 
 **Noem Incorrectly Defines Habeas Corpus as the President’s Right to Deport People**\
 `The right allows people to legally challenge their detentions by the government and is guaranteed in the Constitution.`\
-https://nytimes.com/2025/05/20/us/politics/noem-incorrectly-defines-habeas-corpus-as-the-presidents-right-to-deport-people.html
+https://nytimes.com/2025/05/20/us/politics/kristi-noem-habeas-corpus-deportations.html
 
 **‘Pernille’ Is a Brilliant Norwegian Dramedy**\
 `The series, about an endearingly ordinary woman who works in child welfare, is a lot like Pamela Adlon’s spirited FX dramedy “Better Things.”`\
