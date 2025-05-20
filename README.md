@@ -1,3 +1,7 @@
+**How the Trade War Shaped a Chinese Battery Giant’s Hong Kong Debut**\
+`Shares of the company, CATL, surged in their first day of trading. Onshore U.S. investors were blocked from buying its stock as a “decoupling” of finance continued.`\
+https://nytimes.com/2025/05/19/business/china-battery-hong-kong-catl.html
+
 **Mets may have 'more stern' conversation about approach as RISP woes continue**\
 `Carlos Mendoza said the Mets lineup has been too passive early in counts and too aggressive later.`\
 https://nytimes.com/athletic/6369085/2025/05/19/mets-offense-risp-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/19/climate/empire-wind-new-york-hochul.html
 **Mexican Ship in Fatal Crash Accelerated Before Hitting Brooklyn Bridge**\
 `As a federal investigation began, officials said the Cuauhtémoc backed into the bridge, killing two, less than five minutes after leaving a Manhattan pier.`\
 https://nytimes.com/2025/05/19/nyregion/nyc-ship-brooklyn-bridge-mexican-navy.html
-
-**Rep. McIver Charged With Assault Over Clash Outside Newark ICE Center**\
-`The Department of Justice also announced it was dropping a trespass charge against the city’s mayor stemming from the same episode.`\
-https://nytimes.com/2025/05/19/nyregion/new-jersey-congress-ice-charges.html
 
