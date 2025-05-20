@@ -1,3 +1,15 @@
+**The Reality of Trump’s Golden Dome**\
+`We don’t know all the details of Trump’s plan to build an Iron Dome-like defense system. What we do know is it wouldn’t come cheap, easy or soon.`\
+https://nytimes.com/2025/05/20/opinion/golden-dome-trump-iron-dome.html
+
+**Trump Administration Caps Flights in and Out of Newark Airport**\
+`Recent technology outages, staffing shortages among air traffic controllers and runway construction have caused significant disruptions and raised concerns about passenger safety.`\
+https://nytimes.com/2025/05/20/us/newark-airport-flights-cap-faa.html
+
+**What It Looked Like Inside the Thomas Indian School**\
+`Archival photos show what life was like in the boarding school for Native American children.`\
+https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-archival-photographs.html
+
 **Juan Soto was impressed with Red Sox free-agency pursuit: 'They showed a lot of love'**\
 `Soto ultimately signed with the Mets but said the Red Sox made a strong case: "I was surprised how hard they tried."`\
 https://nytimes.com/athletic/6371192/2025/05/20/juan-soto-red-sox-free-agency-pursuit/
