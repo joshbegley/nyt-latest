@@ -1,3 +1,7 @@
+**On the Up and Up**\
+`Rena Cohen gives us the spiel.`\
+https://nytimes.com/2025/05/19/crosswords/daily-puzzle-2025-05-20.html
+
 **Senate Advances Crypto Regulation Bill With Bipartisan Support**\
 `Democrats who had sided with the rest of their party last week to block the measure over concerns that President Trump could benefit dropped their objections. They argued that regulating the industry was urgent.`\
 https://nytimes.com/2025/05/19/us/politics/senate-crypto-regulation-bill.html
