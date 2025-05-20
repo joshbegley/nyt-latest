@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-ma
 `\
 https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
 
+**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
+`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
+`\
+https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+
 **Serie B in limbo as Brescia investigation delays relegation play-off**\
 `Brescia were issued the post-season deduction over an irregularity in their payment of salaries and tax contributions in February.`\
 https://nytimes.com/athletic/6365332/2025/05/20/brescia-relegated-sampdoria-italian-football/
