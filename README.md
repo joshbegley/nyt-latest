@@ -1,3 +1,7 @@
+**Word of the Day: ransack**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/20/learning/word-of-the-day-ransack.html
+
 **The New York Times in Print for Tuesday, May 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/20/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369114/2025/05/20/red-sox-mets-jarren-duran-kodai-
 **Arsenal, Declan Rice and their need for a press-resistant No 6**\
 `The defensive base is stable, now Mikel Arteta simply must find room for a technical No 6 if Arsenal are to evolve`\
 https://nytimes.com/athletic/6367045/2025/05/20/arsenal-declan-rice-midfielder-zubimendi/
-
-**Goodbye Goodison, hello 'Hickory Dickory Dock'? Everton fans battle with new stadium name**\
-`Everton's new home will be known as the Hill Dickinson Stadium - the predominant reaction is of rationalisation, as The Athletic found out`\
-https://nytimes.com/athletic/6365343/2025/05/20/everton-stadium-name-fans/
 
