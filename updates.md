@@ -1,3 +1,12 @@
+**What we know about F1's future schedule: 24 races, a Thailand Grand Prix and calendar rotation**\
+`F1's CEO tells The Athletic he feels the growth of the sport's calendar had been handled in a manageable way`\
+https://nytimes.com/athletic/6367840/2025/05/20/f1-schedule-24-races-thailand-grand-prix/
+
+**Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
+`Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
+`\
+https://nytimes.com/athletic/6367443/2025/05/20/europa-league-final-tottenham-manchester-united-odds-predictions/
+
 **Spurs vs Man United Europa League final odds: Weird wagers, funky stats, fun narratives**\
 `Julia Ranney, Sam Tighe and Brett Koremenos outline weird and wacky bets to make a bad Europa League final fun.
 `\
