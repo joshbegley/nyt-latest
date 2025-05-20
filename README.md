@@ -1,3 +1,23 @@
+**Gen Z Imagines the Future of Fashion**\
+`Text by Kellina Moore and Hiroko Masuike`\
+https://nytimes.com/card/2025/05/20/style/parsons-bfa-runway-gen-z-designers
+
+**Postecoglou says he wants to 'see through' work at Tottenham**\
+`"I certainly feel like there is some growth there. We can take this club to where it needs to be," he said ahead of the Europa League final.`\
+https://nytimes.com/athletic/6370411/2025/05/20/ange-postecoglou-tottenham-europa/
+
+**Leafs captain Auston Matthews played through injury all season, won't need surgery**\
+`Maple Leafs captain did not comment on specifics about the injury, but said it was a "very tough season."`\
+https://nytimes.com/athletic/6370315/2025/05/20/maple-leafs-auston-matthews-injury-nhl-playoffs/
+
+**Spike Lee May Be in Cannes, but His Heart Is Courtside With the Knicks**\
+`The director brought his latest collaboration with Denzel Washington, “Highest 2 Lowest,” to the festival, but he really wanted to talk basketball.`\
+https://nytimes.com/2025/05/20/movies/spike-lee-denzel-washington-highest-2-lowest-cannes.html
+
+**LA Galaxy extending Greg Vanney now sends a wrong and telling message**\
+`Amid a record winless streak to start the MLS season, the Galaxy did something unthinkable elsewhere around the globe`\
+https://nytimes.com/athletic/6368406/2025/05/20/greg-vanney-la-galaxy-winless-new-contract/
+
 **A New French Jewel Opens in the Village**\
 `Alexia Duchêne is opening Le Chêne on Carmine Street, summer openings in the Hamptons and more restaurant news.`\
 https://nytimes.com/2025/05/20/dining/nyc-restaurant-news.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6368431/2025/05/20/how-spurs-reached-the-europa-lea
 **Coming to City Center: A Flurry of Dance From Around the World**\
 `Fall for Dance will have its most international lineup since the pandemic; and the center’s 2025-26 season will feature Paris Opera Ballet and Dutch National Ballet.`\
 https://nytimes.com/2025/05/20/arts/dance/city-center-2025-25-season-international-dance.html
-
-**‘Lilo & Stitch’ Review: Creature Chaos**\
-`The live-action remake of the hit 2002 Disney film is mostly serviceable and often adorable, even if the best parts of the original got left behind.`\
-https://nytimes.com/2025/05/20/movies/lilo-and-stitch-review.html
-
-**New Orleans Jail Employee Is Arrested and Charged With Helping 10 Inmates Escape**\
-`A maintenance worker shut off water at the jail, allowing the inmates to remove a toilet and sink fixture from a cell wall, according to the Louisiana attorney general’s office.`\
-https://nytimes.com/2025/05/20/us/new-orleans-jail-escape-worker-arrested.html
-
-**F.D.A. Poised to Restrict Access to Covid Vaccines**\
-`Agency leaders said there was evidence to justify approval only for older people and those with medical conditions. Many others may not be able to get the shots.`\
-https://nytimes.com/2025/05/20/health/fda-covid-vaccines.html
-
-**Vlastimil Hort, a Memorably Selfless Chess Grandmaster, Dies at 81**\
-`He could have advanced toward a title when his opponent, Boris Spassky, took ill. Instead, he displayed one of the game’s greatest acts of sportsmanship.`\
-https://nytimes.com/2025/05/20/sports/vlastimil-hort-dead.html
-
-**Leicester's PSR referral: How many points could they be docked? Would it take effect in the EFL? Transfer embargo?**\
-`The Premier League has referred the club to a commission over an alleged breach of PSR for the 2023-24 season. Here's what it means...`\
-https://nytimes.com/athletic/6369932/2025/05/20/leicesters-psr-points-deductions-explained-2/
 
