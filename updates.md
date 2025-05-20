@@ -1,3 +1,19 @@
+**Tyrese Haliburton invites heckled Pacers fan to conference finals Game 4**\
+`Knicks fan Hans Perez was harassed by Knicks fans and hit with bags of garbage while wearing a Tyrese Haliburton jersey in New York City.`\
+https://nytimes.com/athletic/6370218/2025/05/20/tyrese-haliburton-pacers-fan-eastern-conference-finals-game-4/
+
+**Former Liverpool, Spain goalkeeper Reina announces retirement**\
+`Reina made over 900 appearances in a senior career spanning 25 years.`\
+https://nytimes.com/athletic/6370192/2025/05/20/pepe-reina-goalkeeper-retirement/
+
+**Kennedy’s Allies Against Pesticides: Environmentalists, Moms and Manly Men**\
+`An unlikely group is coalescing around the health secretary’s drive for restrictions on atrazine, which is linked to cancer, birth defects and low sperm counts.`\
+https://nytimes.com/2025/05/20/climate/atrazine-manosphere-maha-kennedy.html
+
+**Leafs captain Auston Matthews played through injury all season, won't need surgery**\
+`The Maple Leafs' captain did not comment on specifics about the injury, but said it was a "very tough season."`\
+https://nytimes.com/athletic/6370315/2025/05/20/maple-leafs-auston-matthews-injury-nhl-playoffs/
+
 **Gen Z Imagines the Future of Fashion**\
 `Text by Kellina Moore and Hiroko Masuike`\
 https://nytimes.com/card/2025/05/20/style/parsons-bfa-runway-gen-z-designers

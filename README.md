@@ -1,5 +1,5 @@
 **Tyrese Haliburton invites heckled Pacers fan to conference finals Game 4**\
-`Knicks fan Hans Perez was harassed by Knicks fans and hit with bags of garbage while wearing a Tyrese Haliburton jersey in New York City.`\
+`Pacers fan Hans Perez was harassed by Knicks fans and hit with bags of garbage while wearing a Tyrese Haliburton jersey in New York City.`\
 https://nytimes.com/athletic/6370218/2025/05/20/tyrese-haliburton-pacers-fan-eastern-conference-finals-game-4/
 
 **Former Liverpool, Spain goalkeeper Reina announces retirement**\
