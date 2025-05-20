@@ -1,3 +1,7 @@
+**Vlastimil Hort, a Memorably Selfless Chess Grandmaster, Dies at 81**\
+`He could have advanced toward a title when his opponent, Boris Spassky, took ill. Instead, he displayed one of the game’s greatest acts of sportsmanship.`\
+https://nytimes.com/2025/05/20/sports/vlastimil-hort-dead.html
+
 **Leicester's PSR referral: How many points could they be docked? Would it take effect in EFL? Transfer embargo?**\
 `The Premier League has referred the club to a commission over an alleged breach of PSR for the 2023-24 season. Here's what it means.`\
 https://nytimes.com/athletic/6369932/2025/05/20/leicesters-psr-points-deductions-explained-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369111/2025/05/20/liga-mx-fmf-lawsuit-promotion-re
 **My Father Prosecuted History’s Crimes. Then He Died in One.**\
 `He was a Nazi hunter — and was killed in the Lockerbie bombing. What does it mean to seek justice for his death?`\
 https://nytimes.com/2025/05/20/magazine/lockerbie-bombing-justice-father.html
-
-**Meet My House Asparagus**\
-`Melissa Clark’s miso-chile asparagus with tofu will be on repeat in my kitchen, the go-to recipe for those springtime spears.`\
-https://nytimes.com/2025/05/20/dining/meet-my-house-asparagus.html
 
