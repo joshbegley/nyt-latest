@@ -2,6 +2,26 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Trump Told Republicans to Get in Line**\
+`Also, Israel’s allies told it to stop its expanded Gaza offensive. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/05/20/briefing/trump-republicans-capitol-hill-israel-gaza.html
+
+**Siegel: For Mitch Marner and the Maple Leafs, a breakup is for the best**\
+`All signs are pointing to Mitch Marner leaving Toronto in free agency. Why it's the best thing for all involved.`\
+https://nytimes.com/athletic/6370682/2025/05/20/mitch-marner-maple-leafs-contract-nhl/
+
+**Everybody Knew His Name: ‘Norm!’**\
+`George Wendt of “Cheers,” who died on Tuesday, could walk into a bar and imply his character’s entire life outside it.`\
+https://nytimes.com/2025/05/20/arts/television/george-wendt-norm-cheers.html
+
+**Judge Says Deportation to South Sudan Appears to Have Violated Court Order**\
+`The judge ordered a Justice Department lawyer to track down the plane apparently carrying a Burmese migrant and see whether it could be turned around midflight. He also threatened officials with contempt.`\
+https://nytimes.com/2025/05/20/us/politics/trump-immigration-deportations-south-sudan.html
+
+**Manchester City plan De Bruyne statue outside the Etihad**\
+`Tuesday marked De Bruyne's final City home game as he prepares to leave the club this summer.`\
+https://nytimes.com/athletic/6371188/2025/05/20/manchester-city-kevin-de-bruyne-statue/
+
 **The Reality of Trump’s Golden Dome**\
 `We don’t know all the details of Trump’s plan to build an Iron Dome-like defense system. What we do know is it wouldn’t come cheap, easy or soon.`\
 https://nytimes.com/2025/05/20/opinion/golden-dome-trump-iron-dome.html
@@ -14,27 +34,7 @@ https://nytimes.com/2025/05/20/us/newark-airport-flights-cap-faa.html
 `Archival photos show what life was like in the boarding school for Native American children.`\
 https://nytimes.com/2025/05/20/nyregion/thomas-indian-school-archival-photographs.html
 
-**Juan Soto was impressed with Red Sox free-agency pursuit: 'They showed a lot of love'**\
+**Juan Soto impressed with Red Sox free-agency pursuit: 'They showed a lot of love'**\
 `Soto ultimately signed with the Mets but said the Red Sox made a strong case: "I was surprised how hard they tried."`\
 https://nytimes.com/athletic/6371192/2025/05/20/juan-soto-red-sox-free-agency-pursuit/
-
-**Is Red Meat Bad for Your Heart? It May Depend on Who Funded the Study.**\
-`A new analysis found that red meat studies with industry links were more likely to report favorable results than those without them.`\
-https://nytimes.com/2025/05/20/well/eat/red-meat-heart-health.html
-
-**Fortnite’s Darth Vader Is A.I.-Powered. Voice Actors Are Rebelling.**\
-`The actors’ union that began striking against video game companies last summer has filed an unfair labor practice charge against Epic Games, the creator of Fortnite.`\
-https://nytimes.com/2025/05/20/arts/fortnite-darth-vader-ai-voice.html
-
-**What is Habeas Corpus, the Basic Right That Trump Officials Are Talking About Suspending?**\
-`Administration officials have suggested suspending a legal principle that protects against unlawful detention, and struggled to accurately define it.`\
-https://nytimes.com/2025/05/20/us/politics/what-is-habeas-corpus-trump-kristi-noem.html
-
-**U.S. Debt Is on Pace to Set a Record. (The Data Goes Back to 1790.)**\
-`If Republicans pass their tax and spending megabill, the record will arrive even sooner — putting America’s debt at more than 113 percent of the size of its entire economy.`\
-https://nytimes.com/2025/05/20/upshot/record-debt-republicans-bill.html
-
-**Elections**\
-`See the latest results and news from local, national and international elections.`\
-https://nytimes.com/section/us/elections
 
