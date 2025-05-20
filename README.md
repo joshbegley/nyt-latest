@@ -27,7 +27,7 @@ https://nytimes.com/2025/05/20/us/politics/trump-ukraine-russia.html
 https://nytimes.com/athletic/6093960/2025/05/20/alvaro-carreras-real-madrid-transfer/
 
 **George Wendt, a.k.a. Norm From ‘Cheers,’ Is Dead at 76**\
-`The burly, easygoing Chicago native became a staple of living rooms for more than a decade as one of America’s favorite barflies.`\
+`A burly, easygoing Chicago native, he became a staple of living rooms across the country for more than a decade as one of America’s favorite barflies.`\
 https://nytimes.com/2025/05/20/arts/television/george-wendt-dead.html
 
 **What we learned from first Patriots OTA: Drake Maye struggles, Christian Gonzalez impresses**\
