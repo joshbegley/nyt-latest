@@ -1,3 +1,11 @@
+**The Pulse: Ranking the best playoff series left**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6368016/2025/05/20/ranking-the-best-playoff-series-left-plus-an-argument-over-college-football-rankings/
+
+**In Trump Call, Putin Notches a Diplomatic Win, With an Economic Caveat**\
+`The Kremlin has withstood pressure for an immediate cease-fire as a precondition for peace talks, but the Russian president’s push for normalizing relations with the United States appears in limbo.`\
+https://nytimes.com/2025/05/20/world/europe/russia-putin-ukraine-ceasefire.html
+
 **U.S. Bill Named for Iranian Deported to Panama Aims to Shield Asylum Seekers**\
 `A lawmaker is introducing a bill named for Artemis Ghasemzadeh, an Iranian Christian convert, that seeks to stop the expedited removal of people fleeing countries that persecute religious minorities.`\
 https://nytimes.com/2025/05/20/world/middleeast/us-bill-iran-panama-asylum.html
