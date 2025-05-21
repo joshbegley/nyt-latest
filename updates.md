@@ -1,3 +1,19 @@
+**Johnston: What I'm hearing about Brendan Shanahan's future with the Maple Leafs — and possibly elsewhere**\
+`The MLSE board of directors will meet Thursday to start charting a path forward, according to league sources briefed on the agenda.`\
+https://nytimes.com/athletic/6372760/2025/05/21/brendan-shanahan-maple-leafs-future/
+
+**Flick signs two-year contract extension at Barcelona**\
+`The new terms, which will extend his stay at the the club until 2027, are a reward for a highly successful first season.`\
+https://nytimes.com/athletic/6349640/2025/05/21/hansi-flick-barcelona-contract/
+
+**The Windup: Angels get own category in this ranking**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6371910/2025/05/21/angels-dodgers-ownership-trying-the-windup/
+
+**Tiny Love Stories: ‘No One’s Choosing to Walk Out’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/21/style/tiny-modern-love-stories-i-was-off-the-rocker-unwell.html
+
 **Cuts in Research, and a Scientist Brain Drain**\
 `Readers discuss the Trump administration’s effects on American research and science. Also: Joe Biden’s cancer; what Democrats need; false manhood.`\
 https://nytimes.com/2025/05/21/opinion/research-cuts-scientists-brain-drain.html

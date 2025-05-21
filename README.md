@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**‘White Lotus’ Ladies, Tom Sachs and Reality Stars Lit Up the Whitney**\
+`A surprise musical performance capped the annual gala at the Whitney Museum of American Art, honoring the artist Amy Sherald.`\
+https://nytimes.com/2025/05/21/style/whitney-museum-gala-2025-celebrities.html
+
 **Johnston: What I'm hearing about Brendan Shanahan's future with the Maple Leafs — and possibly elsewhere**\
 `The MLSE board of directors will meet Thursday to start charting a path forward, according to league sources briefed on the agenda.`\
 https://nytimes.com/athletic/6372760/2025/05/21/brendan-shanahan-maple-leafs-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6372855/2025/05/21/nwsl-executives-to-depart-under-
 **OpenAI Unites With Jony Ive in $6.5 Billion Deal to Create A.I. Devices**\
 `OpenAI said it was buying io, a start-up founded by Mr. Ive, the designer of the iPhone, to usher in a new era of artificial intelligence hardware.`\
 https://nytimes.com/2025/05/21/technology/openai-jony-ive-deal.html
-
-**What the 'Tush Push' ruling means for the fantasy football values of Hurts, Barkley**\
-`How the Tush Push ruling impacts the fantasy value of Jalen Hurts, Saquon Barkley and even Josh Allen.`\
-https://nytimes.com/athletic/6372388/2025/05/21/tush-push-ruling-fantasy-football-jalen-hurts-saquon-barkley/
 
