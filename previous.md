@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6372827/2025/05/21/real-madrid-endrick-injury-hamst
 `A surprise musical performance capped the annual gala at the Whitney Museum of American Art, honoring the artist Amy Sherald.`\
 https://nytimes.com/2025/05/21/style/whitney-museum-gala-2025-celebrities.html
 
-**Johnston: What I'm hearing about Brendan Shanahan's future with the Maple Leafs — and possibly elsewhere**\
+**Johnston: What I'm hearing about Shanahan's future with the Leafs — and possibly elsewhere**\
 `The MLSE board of directors will meet Thursday to start charting a path forward, according to league sources briefed on the agenda.`\
 https://nytimes.com/athletic/6372760/2025/05/21/brendan-shanahan-maple-leafs-future/
 

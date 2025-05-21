@@ -1,3 +1,7 @@
+**Johnston: What I'm hearing about Shanahan's future with the Leafs — and possibly elsewhere**\
+`The MLSE board of directors will meet Thursday to start charting a path forward, according to league sources briefed on the agenda.`\
+https://nytimes.com/athletic/6372760/2025/05/21/brendan-shanahan-maple-leafs-future/
+
 **Why the Tush Push, or Brotherly Shove, still belongs in the NFL**\
 `The vote on whether to ban the play did not pass.`\
 https://nytimes.com/athletic/6372357/2025/05/21/tush-push-ban-brotherly-shove-nfl/
