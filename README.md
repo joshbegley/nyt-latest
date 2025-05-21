@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**O’Connor Wins Democratic Primary for Pittsburgh Mayor, Defeating Incumbent**\
+`The outcome is the latest in a string of losses in deep-blue cities that has raised questions about the power of progressive officeholders.`\
+https://nytimes.com/2025/05/20/us/pittsburgh-mayor-democratic-primary.html
+
 **Put on a Schedule**\
 `Ilana Levene and Scott Hogan are here to make friends.`\
 https://nytimes.com/2025/05/20/crosswords/daily-puzzle-2025-05-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/climate/minnesota-green-crew-climate-anxiety.html
 **Virginians Are Restoring a Forest Economy Built on Herbs and Tradition**\
 `Farmers have banded together to make the market for herbal supplements and remedies, part of Appalachia’s cultural heritage, more sustainable and more profitable.`\
 https://nytimes.com/2025/05/20/climate/virginia-farmers-herbs-appalachia.html
-
-**What Helped Clean Up Oklahoma Waters? Getting Cows to Use a Different Washroom.**\
-`Haunted by memories of the Dust Bowl, Oklahoma farmers have adopted conservation practices that have helped to revive about 100 streams.`\
-https://nytimes.com/2025/05/20/climate/oklahomas-cows-clean-waterways.html
 
