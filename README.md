@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**What We Know About the Escape From a New Orleans Jail**\
+`The Louisiana authorities are still searching for five of the 10 inmates who escaped from the Orleans Parish Justice Center last week.`\
+https://nytimes.com/2025/05/21/us/new-orleans-jail-escape-inmates.html
+
 **British Retailer M&S Says Cyberattack Will Cost It $400 Million**\
 `The company also said it would take several more weeks to resolve issues relating to the attack, which came to light last month.`\
 https://nytimes.com/2025/05/21/business/marks-spencer-cyberattack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/learning/what-did-you-think-of-our-new-conversati
 **Submit your questions for Will Guillory’s Pelicans mailbag**\
 `<p>A few weeks ago, the New Orleans Pelicans were hopeful about getting one of the top picks in this year&#8217;s star-studded NBA Draft.`\
 https://nytimes.com/athletic/6372449/2025/05/21/pelicans-mailbag-2025-nba-draft/
-
-**Why Pacers' toe-tapping Aaron Nesmith tops conference finals X-factors**\
-`Mitchell Robinson, Cason Wallace and Jaden McDaniels could also help swing these conference finals.`\
-https://nytimes.com/athletic/6347010/2025/05/21/nba-conference-finals-x-factors-aaron-nesmith-mitchell-robinson/
 
