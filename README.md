@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Cuts in Research, and a Scientist Brain Drain**\
+`Readers discuss the Trump administration’s effects on American research and science. Also: Joe Biden’s cancer; what Democrats need; false manhood.`\
+https://nytimes.com/2025/05/21/opinion/research-cuts-scientists-brain-drain.html
+
+**C.E.O.s Mind Their Language to Avoid Landing on Trump’s Radar**\
+`Public companies are obligated to tell investors how tariffs could affect corporate financial results. But some are trying to do it with euphemisms to avoid the president’s anger.`\
+https://nytimes.com/2025/05/21/business/trump-tariffs-ceos-prices.html
+
 **Two NWSL executives set to depart following restructuring by commissioner Berman**\
 `Julie Haddon, the chief marketing and commercial officer, and Tatjana Haenni, the chief sporting director, are set to depart this year.`\
 https://nytimes.com/athletic/6372855/2025/05/21/nwsl-executives-to-depart-under-berman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6372142/2025/05/21/knicks-pacers-playoff-rivalry/
 **Trump Administration Asks Supreme Court to Shield DOGE From Releasing Records**\
 `Government lawyers asked the justices to block a lower court order that Elon Musk’s team and the Office of Management and Budget turn over internal documents.`\
 https://nytimes.com/2025/05/21/us/politics/supreme-court-doge-foia.html
-
-**Judge Scrutinizes U.S. Deportation Flight Said to Be Headed to South Sudan**\
-`Homeland Security officials said the U.S. deported eight migrants convicted of crimes, but refused to say where they were sent. People familiar with the plane said it had landed for now in Djibouti.`\
-https://nytimes.com/2025/05/21/us/south-sudan-deportation.html
-
-**Springsteen Releases EP Including Remarks That Angered Trump**\
-`After Bruce Springsteen criticized the Trump administration on tour, the president said he should “KEEP HIS MOUTH SHUT.” Instead, Mr. Springsteen included his comments on a new release.`\
-https://nytimes.com/2025/05/21/arts/music/bruce-springsteen-e-street-band-ep-trump.html
 
