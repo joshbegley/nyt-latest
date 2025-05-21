@@ -1,3 +1,7 @@
+**Word of the Day: pedagogue**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/21/learning/word-of-the-day-pedagogue.html
+
 **De Bruyne will leave City in a privileged position - but this exit must still be painful**\
 `Kevin De Bruyne will leave Manchester City at the end of the season and the club paid tribute to him on Tuesday night`\
 https://nytimes.com/athletic/6371302/2025/05/21/kevin-de-bruyne-man-city-exit/
