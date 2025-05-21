@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6373063/2025/05/21/eagles-tush-push-vote-campaign-i
 `The Inflation Reduction Act was once hailed as the biggest climate law in U.S. history. But as supporters try to save it, they’ve stopped talking about the environment altogether.`\
 https://nytimes.com/2025/05/21/climate/inflation-reduction-act-lobbying-climate.html
 
-**Judge Strikes Down Trump’s Firings of Civil Liberties Watchdog Board Members**\
+**Trump’s Firings of Rights Watchdog Board Members Were Illegal, Judge Rules**\
 `A federal court ruled that President Trump’s removals were illegal and arbitrary and ordered two board members reinstated.`\
 https://nytimes.com/2025/05/21/us/politics/civil-liberties-oversight-board-trump-firings.html
 

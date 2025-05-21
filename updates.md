@@ -1,3 +1,7 @@
+**Trump’s Firings of Rights Watchdog Board Members Were Illegal, Judge Rules**\
+`A federal court ruled that President Trump’s removals were illegal and arbitrary and ordered two board members reinstated.`\
+https://nytimes.com/2025/05/21/us/politics/civil-liberties-oversight-board-trump-firings.html
+
 **How Did You Grow and Change This School Year?**\
 `In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
 https://nytimes.com/2025/05/21/learning/how-did-you-grow-and-change-this-school-year.html
