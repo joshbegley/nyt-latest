@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Former tennis star Jelena Dokic confirms death of estranged father, Damir Dokic**\
+`Dokic has recounted sustained physical and emotional abuse by her father, who coached her in her early years as a professional.`\
+https://nytimes.com/athletic/6372121/2025/05/21/tennis-jelena-dokic-father-damir-death/
+
+**Key NFL committees recommend 'Tush Push' ban ahead of vote on Eagles' signature play: Sources**\
+`The Packers originally submitted a proposal to the NFL’s competition committee in February.`\
+https://nytimes.com/athletic/6370096/2025/05/21/nfl-tush-push-banned-owners-vote/
+
 **Target Sees Sales Falling This Year as Turnaround Falters**\
 `The retailer’s sales fell short of expectations, and it slashed its full-year financial forecast, citing a “challenging” economy and backlash over its pullback from diversity policies.`\
 https://nytimes.com/2025/05/21/business/target-retail-tariffs-walmart-home-depot.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6372208/2025/05/21/arsenal-injuries-saliba-timber/
 **Jacob Murphy interview: ‘I hope England are casting an eye on what I’m doing’**\
 `The Newcastle winger on his international ambitions at age 30, winning a trophy and a circuitous route to the top`\
 https://nytimes.com/athletic/6369813/2025/05/21/jacob-murphy-interview-newcastle-england/
-
-**Blues' top offseason priority? Center options? Match a Joel Hofer offer sheet? Mailbag, part 1**\
-`Also in the mailbag: Any takers for Justin Faulk? Could Torey Krug's cap hit still be a trade chip? Trade and free-agent options?`\
-https://nytimes.com/athletic/6368418/2025/05/21/blues-free-agency-trades-offer-sheets-mailbag/
-
-**What Jeff Blashill could bring to Blackhawks as head coach**\
-`The Blackhawks have been linked to Blashill, the former Detroit Red Wings coach. Here's what he would offer to Chicago if hired.`\
-https://nytimes.com/athletic/6370492/2025/05/21/blackhawks-coaching-search-jeff-blashill-nhl/
 
