@@ -1,3 +1,7 @@
+**Wolves can't beat the Thunder if Naz Reid and their bench are going to play like this**\
+`Depth was a strength for Minnesota all year, including these playoffs. In Game 1 of the West finals, things went haywire.`\
+https://nytimes.com/athletic/6371526/2025/05/21/naz-reid-timberwolves-playoffs-game-1-thunder-bench/
+
 **The Pulse: Let's pick an Olympic flag football team**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6370150/2025/05/21/nfl-olympic-flag-football-team-the-pulse/
