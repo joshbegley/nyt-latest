@@ -2,8 +2,20 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
-**Silver: 'Tush push' ban fresh off Eagles’ title would’ve been bad look for NFL**\
-`Maybe the “tush push” should eventually go away, but doing it now would've been a motivational gift to the league’s most talented team.`\
+**Florida Prosecutors Are Investigating a Charity Tied to Casey DeSantis**\
+`The Hope Florida Foundation came under scrutiny this spring when Republican state lawmakers and news reporters drew attention to  contributions it had made to political committees.`\
+https://nytimes.com/2025/05/21/us/casey-desantis-florida-charity-investigation.html
+
+**PWHL names Meghan Turner general manager for Seattle expansion franchise**\
+`The PWHL has hired Meghan Turner as general manager for its newest franchise in Seattle, the league announced Wednesday.`\
+https://nytimes.com/athletic/6373084/2025/05/21/pwhl-seattle-general-manager-meghan-turner/
+
+**Why Does It Matter Whether Covid Came Out of a Lab?**\
+`The shifting consensus says more about our politics than the science of Covid.`\
+https://nytimes.com/2025/05/21/opinion/covid-lab-leak.html
+
+**Silver: Tush push ban fresh off Eagles’ title would’ve been bad look for NFL**\
+`Maybe the tush push should eventually go away, but doing it now would've been a motivational gift to the league’s most talented team.`\
 https://nytimes.com/athletic/6372993/2025/05/21/nfl-tush-push-vote-eagles-ban/
 
 **Submit a question for Eric Nehm's Milwaukee Bucks offseason mailbag**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/21/us/politics/civil-liberties-oversight-board-trump
 **American Breakfast Cereals Are Becoming Less Healthy, Study Finds**\
 `They contain increasing amounts of sugar, fat and sodium and decreasing amounts of protein and fiber.`\
 https://nytimes.com/2025/05/21/health/cereal-nutrients-unhealthy.html
-
-**Republican Bill Sets Stage for a New Global Tax Fight**\
-`Retaliatory taxes on foreign companies operating in the U.S. could open the door for a broader economic conflict.`\
-https://nytimes.com/2025/05/21/us/politics/global-minimum-tax-bill.html
-
-**Three Sentenced for Luring Gay-Bar Robbery Victims to Their Deaths**\
-`The men were convicted of murder, robbery and conspiracy in what prosecutors described as a “deadly hustle” that targeted patrons at night spots in Manhattan.`\
-https://nytimes.com/2025/05/21/nyregion/gay-bar-murder-sentencing.html
-
-**Israeli Soldiers Fire in Air to Disperse Western Diplomats in West Bank**\
-`The event in Jenin, in the Israeli-occupied West Bank, came amid rising tensions between Israel and its foreign partners.`\
-https://nytimes.com/2025/05/21/world/middleeast/israel-warning-shots-west-bank.html
 
