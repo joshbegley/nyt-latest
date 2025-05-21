@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Wednesday Briefing**\
+`A rebuke from Israel’s allies.`\
+https://nytimes.com/2025/05/21/briefing/israel-ukraine-golden-dome.html
+
+**How fate gave Brighton's cousins 'surreal' moment to treasure against Liverpool**\
+`The story of the 'pinch me' moment when two cousins helped beat Premier League champions Liverpool`\
+https://nytimes.com/athletic/6369346/2025/05/21/how-fate-gave-brightons-cousins-hinshelwood-and-howell-surreal-moment-to-treasure/
+
 **Europa League final: Which club needs it more - and who do rival fans want to win?**\
 `The Athletic assess which of the two managers, squads, fanbases and bank balances need this one more...`\
 https://nytimes.com/athletic/6368620/2025/05/21/europa-league-final-spurs-man-utd/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6370543/2025/05/21/max-dowman-arsenal-england-15/
 **What's next for Jonathan David?**\
 `The Canada No 9 is leaving Lille when his contract expires in June. We look at what he offers and the clubs who have been tracking him...`\
 https://nytimes.com/athletic/6367121/2025/05/21/jonathan-david-transfer-future-analysis/
-
-**My 34-hour ferry trip to the Europa League final: Singing Angels, a pub quiz and dreaming of dry land**\
-`Jack Pitt-Brooke joined Spurs and Man United fans on the slow route to Bilbao. All was well, until the quiz`\
-https://nytimes.com/athletic/6361201/2025/05/21/ferry-europa-league-final-tottenham-manchester-united/
-
-**So your club didn't land Dean Huijsen this summer. Who should they target instead?**\
-`We run through some tactically appropriate alternatives to the much-coveted Spanish central defender who is on his way to Real Madrid`\
-https://nytimes.com/athletic/6369423/2025/05/21/dean-huijsen-alternatives-premier-league/
 

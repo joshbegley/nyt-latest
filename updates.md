@@ -1,3 +1,39 @@
+**Europa League final: Which club needs it more - and who do rival fans want to win?**\
+`The Athletic assess which of the two managers, squads, fanbases and bank balances need this one more...`\
+https://nytimes.com/athletic/6368620/2025/05/21/europa-league-final-spurs-man-utd/
+
+**'I was just hoping he didn't play': How it feels to face Salah**\
+`Opponents of the Liverpool striker, newly-crowned as The Athletic's men's player of the year, reveal what makes him so special`\
+https://nytimes.com/athletic/6356246/2025/05/21/mohamed-salah-liverpool-opponents/
+
+**Are FIFA and UEFA in a forever war?**\
+`Football's two most powerful bodies are competing for economic and political control of the global game. Just look at the Club World Cup`\
+https://nytimes.com/athletic/6367628/2025/05/21/fifa-uefa-infantino-club-world-cup-champions-league/
+
+**Tributes to Tottenham Hotspur's Europa League finalists from the people who know them best**\
+`As the Spurs squad prepare for the Europa League final, a mix of friends, family, former coaches and team-mates offer unique insight`\
+https://nytimes.com/athletic/6367123/2025/05/21/tributes-to-tottenham-hotspurs-europa-league-finalists-from-the-people-who-know-them-best/
+
+**Drama, pintxos and a massive tifo - Man Utd's remarkable 20-game run to the Europa League final**\
+`United have gone unbeaten in 20 games through two competitions to reach this final, scoring in every one. Here's how they got there...`\
+https://nytimes.com/athletic/6370255/2025/05/21/manchester-united-europa-league-final-story/
+
+**Close control, turns and lessons learnt - how Arsenal's Dowman, 15, played for England U17s**\
+`The highly-rated Arsenal teenager made an encouraging start to the Under-17s European Championship - and there is more to come`\
+https://nytimes.com/athletic/6370543/2025/05/21/max-dowman-arsenal-england-15/
+
+**What's next for Jonathan David?**\
+`The Canada No 9 is leaving Lille when his contract expires in June. We look at what he offers and the clubs who have been tracking him...`\
+https://nytimes.com/athletic/6367121/2025/05/21/jonathan-david-transfer-future-analysis/
+
+**My 34-hour ferry trip to the Europa League final: Singing Angels, a pub quiz and dreaming of dry land**\
+`Jack Pitt-Brooke joined Spurs and Man United fans on the slow route to Bilbao. All was well, until the quiz`\
+https://nytimes.com/athletic/6361201/2025/05/21/ferry-europa-league-final-tottenham-manchester-united/
+
+**So your club didn't land Dean Huijsen this summer. Who should they target instead?**\
+`We run through some tactically appropriate alternatives to the much-coveted Spanish central defender who is on his way to Real Madrid`\
+https://nytimes.com/athletic/6369423/2025/05/21/dean-huijsen-alternatives-premier-league/
+
 **Panthers in Cup form in East final Game 1 rout packed with 'heated' confrontations, controversy: Takeaways**\
 `So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
 https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
