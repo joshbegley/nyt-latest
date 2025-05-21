@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**How Yankees' injured ace Gerrit Cole has helped Will Warren's surge**\
+`The Yankees rookie posted a career-best 10 strikeouts in 5 2/3 innings in a 5-2 win over the Rangers on Tuesday.`\
+https://nytimes.com/athletic/6371767/2025/05/21/yankees-gerrit-cole-helps-will-warren-surge/
+
+**Senator Corrects Noem’s Habeas Corpus Definition**\
+`During a Senate hearing, Kristi Noem, the homeland security secretary, falsely described habeas corpus as the president’s “constitutional right” to deport people.`\
+https://nytimes.com/video/us/politics/100000010181903/kristi-noem-habeas-corpus-deportations.html
+
 **Tell Us How the Tariff Uncertainty Is Affecting Your Business**\
 `The New York Times wants to talk to business owners about President Trump’s trade war.`\
 https://nytimes.com/2025/05/21/business/trump-tariffs-asia-businesses.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6369346/2025/05/21/how-fate-gave-brightons-cousins-
 **Europa League final: Which club needs it more - and who do rival fans want to win?**\
 `The Athletic assess which of the two managers, squads, fanbases and bank balances need this one more...`\
 https://nytimes.com/athletic/6368620/2025/05/21/europa-league-final-spurs-man-utd/
-
-**'I was just hoping he didn't play': How it feels to face Salah**\
-`Opponents of the Liverpool striker, newly-crowned as The Athletic's men's player of the year, reveal what makes him so special`\
-https://nytimes.com/athletic/6356246/2025/05/21/mohamed-salah-liverpool-opponents/
-
-**Are FIFA and UEFA in a forever war?**\
-`Football's two most powerful bodies are competing for economic and political control of the global game. Just look at the Club World Cup`\
-https://nytimes.com/athletic/6367628/2025/05/21/fifa-uefa-infantino-club-world-cup-champions-league/
 
