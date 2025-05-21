@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Connections: Sports Edition Coach: Hints for May 21, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6371777/2025/05/21/connections-sports-edition-hints-for-may-21-2025/
+
 **Wednesday Briefing**\
 `A rebuke from Israel’s allies.`\
 https://nytimes.com/2025/05/21/briefing/israel-ukraine-golden-dome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6370255/2025/05/21/manchester-united-europa-league-
 **Close control, turns and lessons learnt - how Arsenal's Dowman, 15, played for England U17s**\
 `The highly-rated Arsenal teenager made an encouraging start to the Under-17s European Championship - and there is more to come`\
 https://nytimes.com/athletic/6370543/2025/05/21/max-dowman-arsenal-england-15/
-
-**What's next for Jonathan David?**\
-`The Canada No 9 is leaving Lille when his contract expires in June. We look at what he offers and the clubs who have been tracking him...`\
-https://nytimes.com/athletic/6367121/2025/05/21/jonathan-david-transfer-future-analysis/
 
