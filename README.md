@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Dodgers ensure they don't waste Yamamoto's brilliant night as they snap skid**\
+`Yamamoto produced the kind of performance against the Diamondbacks the Dodgers shelled out $325 million for.`\
+https://nytimes.com/athletic/6371891/2025/05/21/dodgers-diamondbacks-yamamoto/
+
 **FIFA planning dynamic pricing model for 2026 World Cup tickets**\
 `FIFA said that ticket sales for the World Cup are expected to begin in the third quarter of 2025.`\
 https://nytimes.com/athletic/6371142/2025/05/21/fifa-world-cup-tickets-dynamic-pricing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/pageoneplus/tornadoes-spring-forecasting.html
 **A Church Wants a Homeless Shelter. The Mayor Wants Space for Pickleball.**\
 `Toms River, N.J., is poised to use eminent domain to raze an Episcopal church to build a park. The church had wanted to set up a 17-bed shelter.`\
 https://nytimes.com/2025/05/21/nyregion/eminent-domain-homeless-church.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/21/crosswords/spelling-bee-forum.html
 
