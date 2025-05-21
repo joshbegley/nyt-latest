@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Word of the Day: pedagogue**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/21/learning/word-of-the-day-pedagogue.html
+
 **De Bruyne will leave City in a privileged position - but this exit must still be painful**\
 `Kevin De Bruyne will leave Manchester City at the end of the season and the club paid tribute to him on Tuesday night`\
 https://nytimes.com/athletic/6371302/2025/05/21/kevin-de-bruyne-man-city-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371777/2025/05/21/connections-sports-edition-hints
 **Wednesday Briefing**\
 `A rebuke from Israel’s allies.`\
 https://nytimes.com/2025/05/21/briefing/israel-ukraine-golden-dome.html
-
-**How fate gave Brighton's cousins 'surreal' moment to treasure against Liverpool**\
-`The story of the 'pinch me' moment when two cousins helped beat Premier League champions Liverpool`\
-https://nytimes.com/athletic/6369346/2025/05/21/how-fate-gave-brightons-cousins-hinshelwood-and-howell-surreal-moment-to-treasure/
 

@@ -1,3 +1,7 @@
+**De Bruyne will leave City in a privileged position - but this exit must still be painful**\
+`Kevin De Bruyne will leave Manchester City at the end of the season and the club paid tribute to him on Tuesday night`\
+https://nytimes.com/athletic/6371302/2025/05/21/kevin-de-bruyne-man-city-exit/
+
 **How Yankees' injured ace Gerrit Cole has helped Will Warren's surge**\
 `The Yankees rookie posted a career-best 10 strikeouts in 5 2/3 innings in a 5-2 win over the Rangers on Tuesday.`\
 https://nytimes.com/athletic/6371767/2025/05/21/yankees-gerrit-cole-helps-will-warren-surge/
