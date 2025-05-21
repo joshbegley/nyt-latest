@@ -1,3 +1,5 @@
+
+
 **Word of the Day: pedagogue**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/21/learning/word-of-the-day-pedagogue.html
