@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**'He's really sharp, man': Kelvin Sheppard's ascent into coaching was one many saw coming**\
+`Dan Campbell saw the potential back when the two were with the Dolphins.`\
+https://nytimes.com/athletic/6371036/2025/05/21/lions-kelvin-sheppard-defensive-coordinator/
+
 **Saliba, Timber to miss Arsenal's final game of season with injury**\
 `Both players are set to be sidelined for "a few weeks" according to manager Mikel Arteta.`\
 https://nytimes.com/athletic/6372208/2025/05/21/arsenal-injuries-saliba-timber/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/world/asia/pakistan-school-bus-bombing.html
 **Trump Administration Live Updates: Republicans Hold Overnight Debate on President’s Spending Bill**\
 ``\
 https://nytimes.com/live/2025/05/21/us/trump-news
-
-**For Iowa Wild, winning is 'not the mandate' — but how does that affect player development?**\
-`Why can't the Wild's AHL affiliate win? Is it talent? Is it coaching? Is it culture? The Athletic spent time in Iowa to get a better read.`\
-https://nytimes.com/athletic/6367762/2025/05/21/wild-prospects-iowa-development-playoffs/
 
