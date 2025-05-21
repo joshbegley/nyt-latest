@@ -1,3 +1,7 @@
+**O’Connor Wins Democratic Primary for Pittsburgh Mayor, Defeating Incumbent**\
+`The outcome is the latest in a string of losses in deep-blue cities that has raised questions about the power of progressive officeholders.`\
+https://nytimes.com/2025/05/20/us/pittsburgh-mayor-democratic-primary.html
+
 **Put on a Schedule**\
 `Ilana Levene and Scott Hogan are here to make friends.`\
 https://nytimes.com/2025/05/20/crosswords/daily-puzzle-2025-05-21.html
