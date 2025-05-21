@@ -1,3 +1,23 @@
+**How Did You Grow and Change This School Year?**\
+`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
+https://nytimes.com/2025/05/21/learning/how-did-you-grow-and-change-this-school-year.html
+
+**Florida Prosecutors Are Investigating a Charity Tied to Casey DeSantis**\
+`The Hope Florida Foundation came under scrutiny this spring when Republican state lawmakers and news reporters drew attention to  contributions it had made to political committees.`\
+https://nytimes.com/2025/05/21/us/casey-desantis-florida-charity-investigation.html
+
+**PWHL names Meghan Turner general manager for Seattle expansion franchise**\
+`The PWHL has hired Meghan Turner as general manager for its newest franchise in Seattle, the league announced Wednesday.`\
+https://nytimes.com/athletic/6373084/2025/05/21/pwhl-seattle-general-manager-meghan-turner/
+
+**Why Does It Matter Whether Covid Came Out of a Lab?**\
+`The shifting consensus says more about our politics than the science of Covid.`\
+https://nytimes.com/2025/05/21/opinion/covid-lab-leak.html
+
+**Silver: Tush push ban fresh off Eagles’ title would’ve been bad look for NFL**\
+`Maybe the tush push should eventually go away, but doing it now would've been a motivational gift to the league’s most talented team.`\
+https://nytimes.com/athletic/6372993/2025/05/21/nfl-tush-push-vote-eagles-ban/
+
 **Silver: 'Tush push' ban fresh off Eagles’ title would’ve been bad look for NFL**\
 `Maybe the “tush push” should eventually go away, but doing it now would've been a motivational gift to the league’s most talented team.`\
 https://nytimes.com/athletic/6372993/2025/05/21/nfl-tush-push-vote-eagles-ban/
