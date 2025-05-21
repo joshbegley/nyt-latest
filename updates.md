@@ -1,3 +1,7 @@
+**U.S. Takes a Another Step Toward Opening the Seabed for Mining**\
+`The Interior Department said it would review a new proposal for operations off the coast of American Samoa.`\
+https://nytimes.com/2025/05/21/climate/trump-seabed-mining-impossible-metals-american-samoa.html
+
 **What We Know About the Escape From a New Orleans Jail**\
 `The Louisiana authorities are still searching for five of the 10 inmates who escaped from the Orleans Parish Justice Center last week.`\
 https://nytimes.com/2025/05/21/us/new-orleans-jail-escape-inmates.html
