@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6371543/2025/05/20/timberwolves-thunder-nba-playoff
 `Police allege Ethan Kirkwood bought beer for Kavan Markwood, 20, who was critically injured in fall.`\
 https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
 
-**Panthers in Cup form in East final Game 1 packed with 'heated' confrontations,  controversy: Takeaways**\
+**Panthers in Cup form in East final Game 1 rout packed with 'heated' confrontations, controversy: Takeaways**\
 `So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
 https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
 
