@@ -1,3 +1,11 @@
+**What We Know About the Escape From a New Orleans Jail**\
+`The Louisiana authorities are still searching for five of the 10 inmates who escaped from the Orleans Parish Justice Center last week.`\
+https://nytimes.com/2025/05/21/us/new-orleans-jail-escape-inmates.html
+
+**British Retailer M&S Says Cyberattack Will Cost It $400 Million**\
+`The company also said it would take several more weeks to resolve issues relating to the attack, which came to light last month.`\
+https://nytimes.com/2025/05/21/business/marks-spencer-cyberattack.html
+
 **Lowetide: What Oilers did (and didn't do) well against Stars in 2024 series**\
 `If you're an Oilers fan expecting a repeat of last year's conference final, it would be wise to reset expectations`\
 https://nytimes.com/athletic/6369887/2025/05/21/oilers-stars-nhl-playoffs-series-stats/
