@@ -1,3 +1,43 @@
+**The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
+`My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
+https://nytimes.com/wirecutter/reviews/felco-2-review/
+
+**F1 mailbag: Decoding Red Bull's win, McLaren's choices and Monaco GP predictions**\
+`Before the paddock heads to Monaco for the second race of this European tripleheader, we answered your post-race questions from Imola`\
+https://nytimes.com/athletic/6371296/2025/05/21/red-bull-mclaren-f1-monaco-gp-mailbag/
+
+**Gilgeous-Alexander, the MVP elect, draws up perfect script with Game 1 win**\
+`Gilgeous-Alexander looks set to be named MVP a day after his spectacular second half spurred the Thunder on to an opening victory.`\
+https://nytimes.com/athletic/6371875/2025/05/21/gilgeous-alexander-mvp-thunder-timberwolves-game-1/
+
+**Nvidia’s Chief Says U.S. Chip Controls on China Have Backfired**\
+`Jensen Huang, the chipmaker’s top executive, said the attempt to cut off the flow of advanced A.I. chips spurred Chinese companies to “accelerate their development.”`\
+https://nytimes.com/2025/05/21/business/nvidia-china-washington-chip-controls-failure.html
+
+**Fortnite Returns to Apple’s App Store After Scoring a Legal Victory**\
+`Apple kicked the popular game out of the App Store nearly five years ago, prompting a court battle that was partially resolved on Tuesday.`\
+https://nytimes.com/2025/05/21/business/apple-epic-fortnite-ios-app-store.html
+
+**For U.S. Meteorologists, Springtime Chaos Is a Regular Thing**\
+`A land that sprawls across 3,000 miles in the middle latitudes is the optimal meeting place for the forces of seasonal change.`\
+https://nytimes.com/2025/05/21/pageoneplus/tornadoes-spring-forecasting.html
+
+**A Church Wants a Homeless Shelter. The Mayor Wants Space for Pickleball.**\
+`Toms River, N.J., is poised to use eminent domain to raze an Episcopal church to build a park. The church had wanted to set up a 17-bed shelter.`\
+https://nytimes.com/2025/05/21/nyregion/eminent-domain-homeless-church.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/21/crosswords/spelling-bee-forum.html
+
+**Nervous Corporate Sponsors Retreat from New York Pride**\
+`About 25 percent of corporate donors to New York Pride have canceled or scaled back their support, citing economic uncertainty and fear of retribution from the Trump administration.`\
+https://nytimes.com/2025/05/21/nyregion/nyc-pride-sponsors-trump-tariffs.html
+
+**Will a Federal Investigation Help or Hurt Andrew Cuomo’s Mayoral Bid?**\
+`Even Mr. Cuomo’s rivals are not sure how news that the Justice Department is criminally investigating the former governor will affect his chances.`\
+https://nytimes.com/2025/05/21/nyregion/cuomo-investigation-mayor.html
+
 
 
 **The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
