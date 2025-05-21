@@ -1,3 +1,7 @@
+**Two NWSL executives set to depart following restructuring by commissioner Berman**\
+`Julie Haddon, the chief marketing and commercial officer, and Tatjana Haenni, the chief sporting director, are set to depart this year.`\
+https://nytimes.com/athletic/6372855/2025/05/21/nwsl-executives-to-depart-under-berman/
+
 **OpenAI Unites With Jony Ive in $6.5 Billion Deal to Create A.I. Devices**\
 `OpenAI said it was buying io, a start-up founded by Mr. Ive, the designer of the iPhone, to usher in a new era of artificial intelligence hardware.`\
 https://nytimes.com/2025/05/21/technology/openai-jony-ive-deal.html
