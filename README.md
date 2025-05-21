@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**NBA playoffs: Gilgeous-Alexander leads Thunder to win over Timberwolves**\
+`Shai Gilgeous-Alexander led the Thunder in scoring with 31 points, adding nine assists and five rebounds.`\
+https://nytimes.com/athletic/6371543/2025/05/20/timberwolves-thunder-nba-playoffs-takeaways/
+
 **Man charged with giving beer to underaged Pirates fan who fell from stands**\
 `Police allege Ethan Kirkwood bought beer for Kavan Markwood, 20, who was critically injured in fall.`\
 https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/crosswords/daily-puzzle-2025-05-21.html
 **Review: How Music Came Down to Earth, in ‘Goddess’**\
 `Amber Iman lives up to the title of a musical about the divine gift of song.`\
 https://nytimes.com/2025/05/20/theater/goddess-review-ali-iman.html
-
-**Senate Democrats Grill Defiant Rubio on Trump Policies**\
-`There was shouting and gavel banging as Marco Rubio and his former Senate Democratic colleagues clashed over U.S. foreign aid.`\
-https://nytimes.com/2025/05/20/us/politics/rubio-democrats-foreign-aid.html
 
