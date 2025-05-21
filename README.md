@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Hong Kong’s Beleaguered Journalists Say Their Taxes Are Now Under Scrutiny**\
+`Several news outlets have been unreasonably subjected to tax investigations, according to the city’s journalists’ association, adding to pressures on press freedom.`\
+https://nytimes.com/2025/05/21/world/asia/hong-kong-media-tax-harassment.html
+
+**Why Cowboys think they will get the best of George Pickens**\
+`Brian Schottenheimer says the new addition has some catching up to do but his time with Pickens "has been just incredible."`\
+https://nytimes.com/athletic/6371480/2025/05/21/george-pickens-first-ota-practice-dallas-cowboys/
+
 **Bills' 2026 draft needs: An early look at potential positions to address**\
 `Some parts of the roster are already shaping up to be areas of need.`\
 https://nytimes.com/athletic/6370979/2025/05/21/bills-draft-needs-2026-wide-receiver/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/world/asia/russia-putin-kursk.html
 **Will Ohio State's 2025 season be defined by the Michigan game? How fans are feeling**\
 `Ohio State got national championship redemption after another rivalry loss to Michigan. So how do Buckeyes fans feel about the program now?`\
 https://nytimes.com/athletic/6369546/2025/05/21/ohio-state-football-2025-fan-survey/
-
-**Tessmann: That Man Utd loss, Lyon's coach ban and fighting for a USMNT spot**\
-`Tanner Tessmann made 34 appearances for his club this season, helping them reach Europe. He continues to defy expectations`\
-https://nytimes.com/athletic/6370671/2025/05/21/tanner-tessmann-interview-usmnt-lyon/
-
-**‘The sourdough starter’: Bowden Francis’ game-day routine is a hit in Blue Jays clubhouse**\
-`What started as a treat morphed into part of the pitcher’s game-day tradition — and perhaps a little superstition.`\
-https://nytimes.com/athletic/6371638/2025/05/21/blue-jays-pitcher-bowden-francis-sourdough/
 
