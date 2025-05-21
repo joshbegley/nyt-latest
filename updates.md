@@ -1,3 +1,11 @@
+**The Pulse: Let's pick an Olympic flag football team**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6370150/2025/05/21/nfl-olympic-flag-football-team-the-pulse/
+
+**How college softball became 'offense-first, built for big hitters'**\
+`The yellow ball has made softball a hitters’ sport, with players throughout the lineup regularly smashing home runs.`\
+https://nytimes.com/athletic/6369933/2025/05/21/college-softball-hitting-yellow-ball/
+
 **The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
