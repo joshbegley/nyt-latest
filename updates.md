@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints for May 21, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6371777/2025/05/21/connections-sports-edition-hints-for-may-21-2025/
+
 **Wednesday Briefing**\
 `A rebuke from Israel’s allies.`\
 https://nytimes.com/2025/05/21/briefing/israel-ukraine-golden-dome.html
