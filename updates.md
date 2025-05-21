@@ -1,3 +1,15 @@
+**The Edmonton Oilers look better than ever on defence — and might improve soon**\
+`Edmonton allowed a total of only 10 goals against Vegas, and Mattias Ekholm's return looms.`\
+https://nytimes.com/athletic/6371352/2025/05/21/oilers-ekholm-defence-stars/
+
+**Don’t Let ‘Pronatalists’ Define What’s Family-Friendly**\
+`Pronatalist policies are unsupported by data, too narrow and, frankly, weird.`\
+https://nytimes.com/2025/05/21/opinion/pronatalist-trump.html
+
+**Is It OK to Let Our Teenage Son Hang Out in His Room With His Boyfriend?**\
+`A reader’s husband accused her of hypocrisy because she wouldn’t permit the same behavior if their son were straight.`\
+https://nytimes.com/2025/05/21/style/parenting-gay-teenager-privacy.html
+
 **Former tennis star Jelena Dokic confirms death of estranged father, Damir Dokic**\
 `Dokic has recounted sustained physical and emotional abuse by her father, who coached her in her early years as a professional.`\
 https://nytimes.com/athletic/6372121/2025/05/21/tennis-jelena-dokic-father-damir-death/
