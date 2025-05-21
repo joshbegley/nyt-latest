@@ -1,3 +1,11 @@
+**Why the Tush Push, or Brotherly Shove, still belongs in the NFL**\
+`The vote on whether to ban the play did not pass.`\
+https://nytimes.com/athletic/6372357/2025/05/21/tush-push-ban-brotherly-shove-nfl/
+
+**Madrid expect Endrick to miss Club World Cup with hamstring injury**\
+`The 18-year-old is expected to face eight weeks out. `\
+https://nytimes.com/athletic/6372827/2025/05/21/real-madrid-endrick-injury-hamstring/
+
 **‘White Lotus’ Ladies, Tom Sachs and Reality Stars Lit Up the Whitney**\
 `A surprise musical performance capped the annual gala at the Whitney Museum of American Art, honoring the artist Amy Sherald.`\
 https://nytimes.com/2025/05/21/style/whitney-museum-gala-2025-celebrities.html
