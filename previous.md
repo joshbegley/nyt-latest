@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**How Ottawa Charge defeated Minnesota Frost in Game 1 of PWHL Finals: Takeaways**\
+`For Ottawa, the series opener was yet another one-goal game. The Charge have now won 13 one-goal games, the most in the PWHL.`\
+https://nytimes.com/athletic/6371634/2025/05/20/ottawa-charge-minnesota-wild-pwhl-finals-game-1-takeaways/
+
 **O’Connor Wins Democratic Primary for Pittsburgh Mayor, Defeating Incumbent**\
 `The outcome is the latest in a string of losses in deep-blue cities that has raised questions about the power of progressive officeholders.`\
 https://nytimes.com/2025/05/20/us/pittsburgh-mayor-democratic-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/climate/oregon-vegan-portland-climate.html
 **Minnesota Teens Are Fighting Climate Anxiety With Shovels**\
 `Run by teenagers, for teenagers, the Green Crew helps students get their hands dirty with projects like tree planting, trail restoration and invasive species removal.`\
 https://nytimes.com/2025/05/20/climate/minnesota-green-crew-climate-anxiety.html
-
-**Virginians Are Restoring a Forest Economy Built on Herbs and Tradition**\
-`Farmers have banded together to make the market for herbal supplements and remedies, part of Appalachia’s cultural heritage, more sustainable and more profitable.`\
-https://nytimes.com/2025/05/20/climate/virginia-farmers-herbs-appalachia.html
 

@@ -1,3 +1,7 @@
+**How Ottawa Charge defeated Minnesota Frost in Game 1 of PWHL Finals: Takeaways**\
+`For Ottawa, the series opener was yet another one-goal game. The Charge have now won 13 one-goal games, the most in the PWHL.`\
+https://nytimes.com/athletic/6371634/2025/05/20/ottawa-charge-minnesota-wild-pwhl-finals-game-1-takeaways/
+
 **O’Connor Wins Democratic Primary for Pittsburgh Mayor, Defeating Incumbent**\
 `The outcome is the latest in a string of losses in deep-blue cities that has raised questions about the power of progressive officeholders.`\
 https://nytimes.com/2025/05/20/us/pittsburgh-mayor-democratic-primary.html
