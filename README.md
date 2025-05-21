@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Why the Tush Push, or Brotherly Shove, still belongs in the NFL**\
+`The vote on whether to ban the play did not pass.`\
+https://nytimes.com/athletic/6372357/2025/05/21/tush-push-ban-brotherly-shove-nfl/
+
+**Madrid expect Endrick to miss Club World Cup with hamstring injury**\
+`The 18-year-old is expected to face eight weeks out. `\
+https://nytimes.com/athletic/6372827/2025/05/21/real-madrid-endrick-injury-hamstring/
+
 **‘White Lotus’ Ladies, Tom Sachs and Reality Stars Lit Up the Whitney**\
 `A surprise musical performance capped the annual gala at the Whitney Museum of American Art, honoring the artist Amy Sherald.`\
 https://nytimes.com/2025/05/21/style/whitney-museum-gala-2025-celebrities.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/opinion/research-cuts-scientists-brain-drain.html
 **C.E.O.s Mind Their Language to Avoid Landing on Trump’s Radar**\
 `Public companies are obligated to tell investors how tariffs could affect corporate financial results. But some are trying to do it with euphemisms to avoid the president’s anger.`\
 https://nytimes.com/2025/05/21/business/trump-tariffs-ceos-prices.html
-
-**Two NWSL executives set to depart following restructuring by commissioner Berman**\
-`Julie Haddon, the chief marketing and commercial officer, and Tatjana Haenni, the chief sporting director, are set to depart this year.`\
-https://nytimes.com/athletic/6372855/2025/05/21/nwsl-executives-to-depart-under-berman/
-
-**OpenAI Unites With Jony Ive in $6.5 Billion Deal to Create A.I. Devices**\
-`OpenAI said it was buying io, a start-up founded by Mr. Ive, the designer of the iPhone, to usher in a new era of artificial intelligence hardware.`\
-https://nytimes.com/2025/05/21/technology/openai-jony-ive-deal.html
 
