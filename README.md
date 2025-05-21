@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**U.S. Takes a Another Step Toward Opening the Seabed for Mining**\
+`The Interior Department said it would review a new proposal for operations off the coast of American Samoa.`\
+https://nytimes.com/2025/05/21/climate/trump-seabed-mining-impossible-metals-american-samoa.html
+
 **What We Know About the Escape From a New Orleans Jail**\
 `The Louisiana authorities are still searching for five of the 10 inmates who escaped from the Orleans Parish Justice Center last week.`\
 https://nytimes.com/2025/05/21/us/new-orleans-jail-escape-inmates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/dining/these-jam-bars-are-my-jam.html
 **What Did You Think of Our New ‘Conversations With Journalists’ Feature?**\
 `Did you or your students take part? What worked? What didn’t? How could we make this feature better for next school year?`\
 https://nytimes.com/2025/05/21/learning/what-did-you-think-of-our-new-conversations-with-journalists-feature.html
-
-**Submit your questions for Will Guillory’s Pelicans mailbag**\
-`<p>A few weeks ago, the New Orleans Pelicans were hopeful about getting one of the top picks in this year&#8217;s star-studded NBA Draft.`\
-https://nytimes.com/athletic/6372449/2025/05/21/pelicans-mailbag-2025-nba-draft/
 
