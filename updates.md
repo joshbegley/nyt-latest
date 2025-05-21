@@ -1,3 +1,7 @@
+**Put on a Schedule**\
+`Ilana Levene and Scott Hogan are here to make friends.`\
+https://nytimes.com/2025/05/20/crosswords/daily-puzzle-2025-05-21.html
+
 **Review: How Music Came Down to Earth, in ‘Goddess’**\
 `Amber Iman lives up to the title of a musical about the divine gift of song.`\
 https://nytimes.com/2025/05/20/theater/goddess-review-ali-iman.html
