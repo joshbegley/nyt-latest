@@ -3,7 +3,7 @@
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
 **Man charged with giving beer to underaged Pirates fan who fell from stands**\
-`Man charged with two third-degree misdemeanor counts of furnishing alcohol to an underage person.`\
+`Police allege Ethan Kirkwood bought beer for Kavan Markwood, 20, who was critically injured in fall.`\
 https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
 
 **Panthers show Stanley Cup form with rout of Hurricanes to open East final: Takeaways**\
