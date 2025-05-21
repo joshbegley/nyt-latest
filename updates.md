@@ -1,3 +1,11 @@
+**Bills' 2026 draft needs: An early look at potential positions to address**\
+`Some parts of the roster are already shaping up to be areas of need.`\
+https://nytimes.com/athletic/6370979/2025/05/21/bills-draft-needs-2026-wide-receiver/
+
+**Roger Goodell expected to receive contract extension approval from NFL owners: Sources**\
+`Goodell, 66, has served as the league's commissioner since 2006.`\
+https://nytimes.com/athletic/6371776/2025/05/21/nfl-roger-goodell-new-contract-extension/
+
 **Did Soccer Originate in Scotland? New Claim Draws Jeers in England.**\
 `The discovery of a 17th-century “foot-ball” pitch in Scotland would relocate the birthplace of the modern game.`\
 https://nytimes.com/2025/05/21/science/archaeology-soccer-england-scotland.html
