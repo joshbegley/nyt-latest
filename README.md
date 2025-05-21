@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Wolves can't beat the Thunder if Naz Reid and their bench are going to play like this**\
+`Depth was a strength for Minnesota all year, including these playoffs. In Game 1 of the West finals, things went haywire.`\
+https://nytimes.com/athletic/6371526/2025/05/21/naz-reid-timberwolves-playoffs-game-1-thunder-bench/
+
 **The Pulse: Let's pick an Olympic flag football team**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6370150/2025/05/21/nfl-olympic-flag-football-team-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6365531/2025/05/21/max-verstappen-f1-2025-fernando-
 **Marchand: How ESPN's 'Around the Horn' lost its way**\
 `As "Around the Horn" airs its finale this week, The Athletic's Andrew Marchand examines its 23-year run and legacy.`\
 https://nytimes.com/athletic/6371457/2025/05/21/marchand-espn-around-the-horn/
-
-**Five winners and losers of Packers offseason: Keisean Nixon up, 2 WRs down**\
-`The arrival of Matthew Golden and Savion Williams probably means less playing time, if any, for Bo Melton and Malik Heath.`\
-https://nytimes.com/athletic/6370595/2025/05/21/green-bay-packers-offseason-winners-losers/
 
