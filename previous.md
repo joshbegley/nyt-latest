@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Walker Buehler, Alex Cora tossed from Red Sox-Mets game after testy exchange with umpire**\
+`Buehler was ejected after arguing an apparent missed strike call in an at-bat against Juan Soto in the third inning.`\
+https://nytimes.com/athletic/6371470/2025/05/20/walker-buehler-alex-cora-ejection/
+
 **From Oregon, a Chocolate Cake That Changes Hearts and Minds**\
 `The Portland area is a hot spot for vegans, who have the most environmentally friendly diets. It has also yielded a game-changing dessert.`\
 https://nytimes.com/2025/05/20/climate/oregon-vegan-portland-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/us/politics/andrew-cuomo-investigation-doj.html
 **Chip Roy, Demanding More Spending Cuts, Reprises Role as Ringleader of G.O.P. Rebels**\
 `The Texas Republican is leading the conservative revolt against what his party calls its “big, beautiful bill.” Whether he will dig in or relent could determine the measure’s fate.`\
 https://nytimes.com/2025/05/20/us/politics/roy-spending-cuts-trump.html
-
-**Trump Unveils Plans for ‘Golden Dome’ Missile Defense System**\
-`The project has been a priority for President Trump since he took office, having promised during the campaign to build a defense system against foreign threats similar to Israel’s Iron Dome.`\
-https://nytimes.com/2025/05/20/us/politics/trump-golden-dome.html
 

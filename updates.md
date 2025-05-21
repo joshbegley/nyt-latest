@@ -1,3 +1,7 @@
+**Walker Buehler, Alex Cora tossed from Red Sox-Mets game after testy exchange with umpire**\
+`Buehler was ejected after arguing an apparent missed strike call in an at-bat against Juan Soto in the third inning.`\
+https://nytimes.com/athletic/6371470/2025/05/20/walker-buehler-alex-cora-ejection/
+
 **From Oregon, a Chocolate Cake That Changes Hearts and Minds**\
 `The Portland area is a hot spot for vegans, who have the most environmentally friendly diets. It has also yielded a game-changing dessert.`\
 https://nytimes.com/2025/05/20/climate/oregon-vegan-portland-climate.html
