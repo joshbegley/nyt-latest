@@ -1,3 +1,7 @@
+**Panthers in Cup form in East final Game 1 rout packed with 'heated' confrontations, controversy: Takeaways**\
+`So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
+https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
+
 **How to watch Manchested United vs. Tottenham Hotspur in Europa League final**\
 `It's been a dreadful Premier League campaign for both, but Man United and Spurs can qualify for the Champions League with a win Wednesday.`\
 https://nytimes.com/athletic/6368609/2025/05/21/europa-league-manchester-united-tottenham-how-to-watch/
