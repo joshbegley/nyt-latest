@@ -1,3 +1,11 @@
+**How Yankees' injured ace Gerrit Cole has helped Will Warren's surge**\
+`The Yankees rookie posted a career-best 10 strikeouts in 5 2/3 innings in a 5-2 win over the Rangers on Tuesday.`\
+https://nytimes.com/athletic/6371767/2025/05/21/yankees-gerrit-cole-helps-will-warren-surge/
+
+**Senator Corrects Noem’s Habeas Corpus Definition**\
+`During a Senate hearing, Kristi Noem, the homeland security secretary, falsely described habeas corpus as the president’s “constitutional right” to deport people.`\
+https://nytimes.com/video/us/politics/100000010181903/kristi-noem-habeas-corpus-deportations.html
+
 **Tell Us How the Tariff Uncertainty Is Affecting Your Business**\
 `The New York Times wants to talk to business owners about President Trump’s trade war.`\
 https://nytimes.com/2025/05/21/business/trump-tariffs-asia-businesses.html
