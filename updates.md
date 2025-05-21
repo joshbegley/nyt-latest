@@ -1,3 +1,11 @@
+**Ex-Arsenal player admits to involvement in £600k cannabis smuggling plot**\
+`The 34-year-old was detained in September after 60kg of drugs were detected in suitcases which had arrived on a flight from Bangkok.`\
+https://nytimes.com/athletic/6372467/2025/05/21/jay-emmanuel-thomas-cannabis-guilty/
+
+**Trump Administration Pulls Back From Local Police Oversight Across U.S.**\
+`The Justice Department said that it would abandon efforts to overhaul local policing in Minneapolis and other cities with histories of civil rights violations.`\
+https://nytimes.com/2025/05/21/us/trump-police-consent-decrees.html
+
 **A Blood Test for Alzheimer’s: What to Know**\
 `The test may make it easier to identify whether people with memory and thinking problems have Alzheimer’s or not.`\
 https://nytimes.com/2025/05/21/health/blood-test-alzheimers.html
