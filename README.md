@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Bills' 2026 draft needs: An early look at potential positions to address**\
+`Some parts of the roster are already shaping up to be areas of need.`\
+https://nytimes.com/athletic/6370979/2025/05/21/bills-draft-needs-2026-wide-receiver/
+
+**Roger Goodell expected to receive contract extension approval from NFL owners: Sources**\
+`Goodell, 66, has served as the league's commissioner since 2006.`\
+https://nytimes.com/athletic/6371776/2025/05/21/nfl-roger-goodell-new-contract-extension/
+
 **Did Soccer Originate in Scotland? New Claim Draws Jeers in England.**\
 `The discovery of a 17th-century “foot-ball” pitch in Scotland would relocate the birthplace of the modern game.`\
 https://nytimes.com/2025/05/21/science/archaeology-soccer-england-scotland.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6370671/2025/05/21/tanner-tessmann-interview-usmnt-
 **‘The sourdough starter’: Bowden Francis’ game-day routine is a hit in Blue Jays clubhouse**\
 `What started as a treat morphed into part of the pitcher’s game-day tradition — and perhaps a little superstition.`\
 https://nytimes.com/athletic/6371638/2025/05/21/blue-jays-pitcher-bowden-francis-sourdough/
-
-**Casemiro and the final chapter of a renaissance in the Europa League**\
-`A veteran midfielder who at first looked unsuited to Ruben Amorim's demands, Casemiro's quality has shone through in the Europa League`\
-https://nytimes.com/athletic/6355205/2025/05/21/casemiro-manchester-united-europa-league/
-
-**‘It’s been perfect’: With Crosby by his side, Fleury pens storybook farewell**\
-`Fleury and Crosby are together again in Sweden, making the most of a serendipitous reunion as Fleury finishes his playing career.`\
-https://nytimes.com/athletic/6365514/2025/05/21/marc-andre-fleury-retirement-sidney-crosby-canada-hockey/
 
