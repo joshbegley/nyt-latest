@@ -1,3 +1,7 @@
+**Kennedy’s War on Pesticides Riles Farmers and a G.O.P. Senator**\
+`A health report commissioned by President Trump has been causing angst within the agriculture industry who fear the chemicals will be identified as a driver of childhood disease.`\
+https://nytimes.com/2025/05/20/us/politics/rfk-pesticides-farmers-hyde-smith.html
+
 **Walker Buehler, Alex Cora tossed from Red Sox-Mets game after testy exchange with umpire**\
 `Buehler was ejected after arguing an apparent missed strike call in an at-bat against Juan Soto in the third inning.`\
 https://nytimes.com/athletic/6371470/2025/05/20/walker-buehler-alex-cora-ejection/

@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Kennedy’s War on Pesticides Riles Farmers and a G.O.P. Senator**\
+`A health report commissioned by President Trump has been causing angst within the agriculture industry who fear the chemicals will be identified as a driver of childhood disease.`\
+https://nytimes.com/2025/05/20/us/politics/rfk-pesticides-farmers-hyde-smith.html
+
 **Walker Buehler, Alex Cora tossed from Red Sox-Mets game after testy exchange with umpire**\
 `Buehler was ejected after arguing an apparent missed strike call in an at-bat against Juan Soto in the third inning.`\
 https://nytimes.com/athletic/6371470/2025/05/20/walker-buehler-alex-cora-ejection/
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010131548/how-these-windows-are-saving-b
 **Justice Dept. Opens Inquiry Into Cuomo, Singling Out Another Political Target**\
 `After killing a criminal case against Mayor Eric Adams, the Trump administration has begun investigating his chief rival in the New York City mayoral race over his testimony about the pandemic.`\
 https://nytimes.com/2025/05/20/us/politics/andrew-cuomo-investigation-doj.html
-
-**Chip Roy, Demanding More Spending Cuts, Reprises Role as Ringleader of G.O.P. Rebels**\
-`The Texas Republican is leading the conservative revolt against what his party calls its “big, beautiful bill.” Whether he will dig in or relent could determine the measure’s fate.`\
-https://nytimes.com/2025/05/20/us/politics/roy-spending-cuts-trump.html
 
