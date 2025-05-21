@@ -1,3 +1,5 @@
+
+
 **For U.S. Meteorologists, Springtime Chaos Is a Regular Thing**\
 `A land that sprawls across 3,000 miles in the middle latitudes is the optimal meeting place for the forces of seasonal change.`\
 https://nytimes.com/2025/05/21/pageoneplus/tornadoes-spring-forecasting.html
