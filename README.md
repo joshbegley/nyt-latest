@@ -2,6 +2,26 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Watch: How the Thunder rallied to dismantle the Timberwolves in an important Game 1**\
+`"The Athletic NBA Daily" discussed how Oklahoma City took Game 1 of the Western Conference finals Tuesday against Minnesota.`\
+https://nytimes.com/athletic/6372193/2025/05/21/thunder-timberwolves-nba-daily-western-conference-finals/
+
+**Why is the Championship playoff final kicking off at 3.01pm on Saturday?**\
+`The EFL will support the ‘Every Minute Matters’ campaign by altering the kick-off times of its three playoff finals this weekend.`\
+https://nytimes.com/athletic/6372730/2025/05/21/championship-playoff-final-kick-off-news/
+
+**NFL adjusts onside kick rule, Detroit withdraws playoff proposal**\
+`Teams can now declare an onside kick at any point in a game if they are trailing, as opposed to only in the fourth quarter.`\
+https://nytimes.com/athletic/6372577/2025/05/21/nfl-onside-kick-rule-playoff-proposal/
+
+**Gunmen Kill Former Ukrainian Politician in Spain**\
+`Andriy Portnov was a senior aide to Ukraine’s former president Viktor F. Yanukovych, who was ousted in a 2014 uprising over his alignment with Moscow.`\
+https://nytimes.com/2025/05/21/world/europe/andriy-portnov-spain-ukrainian.html
+
+**What’s in Our Queue? ‘Romeo + Juliet’ and More **\
+`Text by Claire Cain Miller`\
+https://nytimes.com/card/2025/05/21/arts/editors-recommendations-romeojuliet
+
 **How Do You Follow One of the Craziest Cannes Movies Ever?**\
 `Julia Ducournau, who won the Palme d’Or for “Titane,” returns with the body-horror tale “Alpha.” The critical reception has not been kind.`\
 https://nytimes.com/2025/05/21/movies/julia-ducournau-titane-cannes-alpha.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/21/us/politics/qatar-plane-trump-air-force-one.html
 **Pope Calls for Humanitarian Aid and Peace in Gaza**\
 `Pope Leo XIV made a renewed appeal to end the humanitarian crisis in Gaza during his first general audience at the Vatican.`\
 https://nytimes.com/video/world/europe/100000010182518/pope-vatican-gaza-aid.html
-
-**South Africa’s President Brings Pro Golfers to the White House to Defuse Tension**\
-`When President Cyril Ramaphosa meets with President Trump on Wednesday, he will be joined by two fellow South Africans well acquainted with Mr. Trump: the golfers Ernie Els and Retief Goosen.`\
-https://nytimes.com/2025/05/21/us/politics/ernie-els-retief-goosen-south-africa-trump.html
-
-**Pope Leo XIV Calls for Aid to Enter Gaza**\
-`Calling the hunger crisis in the war-torn territory “heart-rending,” the pope used his first general audience to highlight the issue.`\
-https://nytimes.com/2025/05/21/world/europe/pope-leo-gaza-israel-aid.html
-
-**Morgan Wallen Retreats Into Sadness, While His Protégés Party On**\
-`The country superstar’s “I’m the Problem” is a despondent self-portrait. But a generation of singers blending Southern rap and Nashville songwriting are thriving.`\
-https://nytimes.com/2025/05/21/arts/music/morgan-wallen-im-the-problem.html
-
-**An Expensive Alzheimer’s Lifestyle Plan Offers False Hope, Experts Say**\
-`Thousands of people have paid for Dale Bredesen’s unconventional program to reverse Alzheimer’s symptoms. The medical establishment says there’s little to no proof it works.`\
-https://nytimes.com/2025/05/21/well/alzheimer-symptoms-reversal-dale-bredesen.html
-
-**‘Lights Out: Nat “King” Cole’ Review: Dimming a Great Talent**\
-`Dulé Hill stars as the silky crooner in a play about the last broadcast of his variety show, in 1957.`\
-https://nytimes.com/2025/05/21/theater/lights-out-nat-king-cole-review.html
 
