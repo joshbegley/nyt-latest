@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**A.I. Is Poised to Revolutionize Weather Forecasting. A New Tool Shows Promise.**\
+`A Microsoft model can make accurate 10-day forecasts quickly, an analysis found. And, it’s designed to predict more than weather.`\
+https://nytimes.com/2025/05/21/climate/ai-weather-models-aurora-microsoft.html
+
 **Watch: How the Thunder rallied to dismantle the Timberwolves in an important Game 1**\
 `"The Athletic NBA Daily" discussed how Oklahoma City took Game 1 of the Western Conference finals Tuesday against Minnesota.`\
 https://nytimes.com/athletic/6372193/2025/05/21/thunder-timberwolves-nba-daily-western-conference-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/us/politics/trump-justice-department-ed-martin-we
 **U.S. Formally Accepts Luxury Jet From Qatar for Trump**\
 `The Air Force has been asked to figure out a way to upgrade it so it can be put into use as a new Air Force One for the president.`\
 https://nytimes.com/2025/05/21/us/politics/qatar-plane-trump-air-force-one.html
-
-**Pope Calls for Humanitarian Aid and Peace in Gaza**\
-`Pope Leo XIV made a renewed appeal to end the humanitarian crisis in Gaza during his first general audience at the Vatican.`\
-https://nytimes.com/video/world/europe/100000010182518/pope-vatican-gaza-aid.html
 
