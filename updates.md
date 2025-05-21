@@ -1,3 +1,11 @@
+**How Vani Hari, the Blogging ‘Food Babe,’ Became a Trump-Era Megastar**\
+`A former Democrat who started out dispensing tips on diet and fitness is now a major voice in the administration’s healthy-food agenda.`\
+https://nytimes.com/2025/05/21/dining/food-babe-maha-vani-hari.html
+
+**The New York Times in Print for Wednesday, May 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/21/todays-new-york-times
+
 **Connections: Sports Edition Coach: Hints for May 21, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6371777/2025/05/21/connections-sports-edition-hints-for-may-21-2025/
