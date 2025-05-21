@@ -1,3 +1,11 @@
+**OpenAI Unites With Jony Ive in $6.5 Billion Deal to Create A.I. Devices**\
+`OpenAI said it was buying io, a start-up founded by Mr. Ive, the designer of the iPhone, to usher in a new era of artificial intelligence hardware.`\
+https://nytimes.com/2025/05/21/technology/openai-jony-ive-deal.html
+
+**What the 'Tush Push' ruling means for the fantasy football values of Hurts, Barkley**\
+`How the Tush Push ruling impacts the fantasy value of Jalen Hurts, Saquon Barkley and even Josh Allen.`\
+https://nytimes.com/athletic/6372388/2025/05/21/tush-push-ruling-fantasy-football-jalen-hurts-saquon-barkley/
+
 **Graduates Boo Columbia’s President at Commencement After a Fraught Year**\
 `Claire Shipman, the university’s acting president, noted the absence of Mahmoud Khalil, a graduate who continues to be detained by immigration authorities.`\
 https://nytimes.com/2025/05/21/nyregion/columbia-president-booed-commencement.html

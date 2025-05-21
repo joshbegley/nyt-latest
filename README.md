@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Two NWSL executives set to depart following restructuring by commissioner Berman**\
+`Julie Haddon, the chief marketing and commercial officer, and Tatjana Haenni, the chief sporting director, are set to depart this year.`\
+https://nytimes.com/athletic/6372855/2025/05/21/nwsl-executives-to-depart-under-berman/
+
 **OpenAI Unites With Jony Ive in $6.5 Billion Deal to Create A.I. Devices**\
 `OpenAI said it was buying io, a start-up founded by Mr. Ive, the designer of the iPhone, to usher in a new era of artificial intelligence hardware.`\
 https://nytimes.com/2025/05/21/technology/openai-jony-ive-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/us/south-sudan-deportation.html
 **Springsteen Releases EP Including Remarks That Angered Trump**\
 `After Bruce Springsteen criticized the Trump administration on tour, the president said he should “KEEP HIS MOUTH SHUT.” Instead, Mr. Springsteen included his comments on a new release.`\
 https://nytimes.com/2025/05/21/arts/music/bruce-springsteen-e-street-band-ep-trump.html
-
-**German Police Arrest Five Teenagers in Domestic Terrorism Raid**\
-`The group planned and carried out arson attacks on buildings housing asylum seekers, authorities said, warning that far-right extremist organizations are increasingly attracting young people.`\
-https://nytimes.com/2025/05/21/world/europe/germany-youth-far-right.html
 

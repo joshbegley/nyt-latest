@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**OpenAI Unites With Jony Ive in $6.5 Billion Deal to Create A.I. Devices**\
+`OpenAI said it was buying io, a start-up founded by Mr. Ive, the designer of the iPhone, to usher in a new era of artificial intelligence hardware.`\
+https://nytimes.com/2025/05/21/technology/openai-jony-ive-deal.html
+
+**What the 'Tush Push' ruling means for the fantasy football values of Hurts, Barkley**\
+`How the Tush Push ruling impacts the fantasy value of Jalen Hurts, Saquon Barkley and even Josh Allen.`\
+https://nytimes.com/athletic/6372388/2025/05/21/tush-push-ruling-fantasy-football-jalen-hurts-saquon-barkley/
+
 **Graduates Boo Columbia’s President at Commencement After a Fraught Year**\
 `Claire Shipman, the university’s acting president, noted the absence of Mahmoud Khalil, a graduate who continues to be detained by immigration authorities.`\
 https://nytimes.com/2025/05/21/nyregion/columbia-president-booed-commencement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/arts/music/bruce-springsteen-e-street-band-ep-tru
 **German Police Arrest Five Teenagers in Domestic Terrorism Raid**\
 `The group planned and carried out arson attacks on buildings housing asylum seekers, authorities said, warning that far-right extremist organizations are increasingly attracting young people.`\
 https://nytimes.com/2025/05/21/world/europe/germany-youth-far-right.html
-
-**Why the legacy of 'Around The Horn' is its talent development: MoneyCall**\
-`Also in this week's sports business newsletter: The NFL's billion-dollar decision, soccer's $100 million game and more.`\
-https://nytimes.com/athletic/6372146/2025/05/21/around-the-horn-tony-reali-nfl-flag-europa-moneycall/
-
-**A.I. Is Poised to Revolutionize Weather Forecasting. A New Tool Shows Promise.**\
-`A Microsoft model can make accurate 10-day forecasts quickly, an analysis found. And, it’s designed to predict more than weather.`\
-https://nytimes.com/2025/05/21/climate/ai-weather-models-aurora-microsoft.html
 
