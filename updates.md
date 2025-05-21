@@ -1,3 +1,11 @@
+**Review: How Music Came Down to Earth, in ‘Goddess’**\
+`Amber Iman lives up to the title of a musical about the divine gift of song.`\
+https://nytimes.com/2025/05/20/theater/goddess-review-ali-iman.html
+
+**Senate Democrats Grill Defiant Rubio on Trump Policies**\
+`There was shouting and gavel banging as Marco Rubio and his former Senate Democratic colleagues clashed over U.S. foreign aid.`\
+https://nytimes.com/2025/05/20/us/politics/rubio-democrats-foreign-aid.html
+
 **Kennedy’s War on Pesticides Riles Farmers and a G.O.P. Senator**\
 `A health report commissioned by President Trump has been causing angst within the agriculture industry who fear the chemicals will be identified as a driver of childhood disease.`\
 https://nytimes.com/2025/05/20/us/politics/rfk-pesticides-farmers-hyde-smith.html
