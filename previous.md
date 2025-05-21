@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Graduates Boo Columbia’s President at Commencement After a Fraught Year**\
+`Claire Shipman, the university’s acting president, noted the absence of Mahmoud Khalil, a graduate who continues to be detained by immigration authorities.`\
+https://nytimes.com/2025/05/21/nyregion/columbia-president-booed-commencement.html
+
 **Ex-Nuggets coach Mike Malone says SGA ‘showed why he’s the MVP’**\
 `“Shai Gilgeous-Alexander, he showed why he’s the MVP,” said Malone, who will be featured on ESPN this postseason.`\
 https://nytimes.com/athletic/6372706/2025/05/21/nba-mvp-mike-malone-sga-jokic-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6372146/2025/05/21/around-the-horn-tony-reali-nfl-f
 **A.I. Is Poised to Revolutionize Weather Forecasting. A New Tool Shows Promise.**\
 `A Microsoft model can make accurate 10-day forecasts quickly, an analysis found. And, it’s designed to predict more than weather.`\
 https://nytimes.com/2025/05/21/climate/ai-weather-models-aurora-microsoft.html
-
-**Watch: How the Thunder rallied to dismantle the Timberwolves in an important Game 1**\
-`"The Athletic NBA Daily" discussed how Oklahoma City took Game 1 of the Western Conference finals Tuesday against Minnesota.`\
-https://nytimes.com/athletic/6372193/2025/05/21/thunder-timberwolves-nba-daily-western-conference-finals/
 

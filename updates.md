@@ -1,3 +1,7 @@
+**Graduates Boo Columbia’s President at Commencement After a Fraught Year**\
+`Claire Shipman, the university’s acting president, noted the absence of Mahmoud Khalil, a graduate who continues to be detained by immigration authorities.`\
+https://nytimes.com/2025/05/21/nyregion/columbia-president-booed-commencement.html
+
 **Ex-Nuggets coach Mike Malone says SGA ‘showed why he’s the MVP’**\
 `“Shai Gilgeous-Alexander, he showed why he’s the MVP,” said Malone, who will be featured on ESPN this postseason.`\
 https://nytimes.com/athletic/6372706/2025/05/21/nba-mvp-mike-malone-sga-jokic-nuggets/
