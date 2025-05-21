@@ -1,3 +1,7 @@
+**Tell Us How the Tariff Uncertainty Is Affecting Your Business**\
+`The New York Times wants to talk to business owners about President Trump’s trade war.`\
+https://nytimes.com/2025/05/21/business/trump-tariffs-asia-businesses.html
+
 **How Vani Hari, the Blogging ‘Food Babe,’ Became a Trump-Era Megastar**\
 `A former Democrat who started out dispensing tips on diet and fitness is now a major voice in the administration’s healthy-food agenda.`\
 https://nytimes.com/2025/05/21/dining/food-babe-maha-vani-hari.html
