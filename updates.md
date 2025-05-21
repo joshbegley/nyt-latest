@@ -1,3 +1,15 @@
+**Morgan Wallen Retreats Into Sadness, While His Protégés Party On**\
+`The country superstar’s “I’m the Problem” is a despondent self-portrait. But a generation of singers blending Southern rap and Nashville songwriting are thriving.`\
+https://nytimes.com/2025/05/21/arts/music/morgan-wallen-im-the-problem.html
+
+**An Expensive Alzheimer’s Lifestyle Plan Offers False Hope, Experts Say**\
+`Thousands of people have paid for Dale Bredesen’s unconventional program to reverse Alzheimer’s symptoms. The medical establishment says there’s little to no proof it works.`\
+https://nytimes.com/2025/05/21/well/alzheimer-symptoms-reversal-dale-bredesen.html
+
+**‘Lights Out: Nat “King” Cole’ Review: Dimming a Great Talent**\
+`Dulé Hill stars as the silky crooner in a play about the last broadcast of his variety show, in 1957.`\
+https://nytimes.com/2025/05/21/theater/lights-out-nat-king-cole-review.html
+
 **Hans Noë, Architect, Sculptor and Proprietor of a Famed Bar, Dies at 96**\
 `He designed innovative houses and sculptures, but his most visible role in New York City’s cultural life was as an accidental restaurateur, running the venerable Fanelli Cafe.`\
 https://nytimes.com/2025/05/21/arts/design/hans-noe-dead.html

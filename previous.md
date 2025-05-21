@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Morgan Wallen Retreats Into Sadness, While His Protégés Party On**\
+`The country superstar’s “I’m the Problem” is a despondent self-portrait. But a generation of singers blending Southern rap and Nashville songwriting are thriving.`\
+https://nytimes.com/2025/05/21/arts/music/morgan-wallen-im-the-problem.html
+
+**An Expensive Alzheimer’s Lifestyle Plan Offers False Hope, Experts Say**\
+`Thousands of people have paid for Dale Bredesen’s unconventional program to reverse Alzheimer’s symptoms. The medical establishment says there’s little to no proof it works.`\
+https://nytimes.com/2025/05/21/well/alzheimer-symptoms-reversal-dale-bredesen.html
+
+**‘Lights Out: Nat “King” Cole’ Review: Dimming a Great Talent**\
+`Dulé Hill stars as the silky crooner in a play about the last broadcast of his variety show, in 1957.`\
+https://nytimes.com/2025/05/21/theater/lights-out-nat-king-cole-review.html
+
 **Hans Noë, Architect, Sculptor and Proprietor of a Famed Bar, Dies at 96**\
 `He designed innovative houses and sculptures, but his most visible role in New York City’s cultural life was as an accidental restaurateur, running the venerable Fanelli Cafe.`\
 https://nytimes.com/2025/05/21/arts/design/hans-noe-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/21/magazine/retirement-layoffs-jobs-ethics.html
 **When Trump Was the One Taking Land From Farmers**\
 `The president has railed against South Africa’s seizures of land from white farmers. But during his first term, he pushed to take land for his border wall using eminent domain.`\
 https://nytimes.com/2025/05/21/us/politics/trump-ramaphosa-south-africa-eminent-domain.html
-
-**WATCH: How Tyrese Haliburton breaks the conventions of basketball**\
-`Why is Tyrese Haliburton such a great playmaker? Because nobody — not now, not ever — plays the game quite like him. `\
-https://nytimes.com/athletic/6372602/2025/05/21/video-tyrese-haliburton-pacers-passing-playoffs/
-
-**U.S. Takes a Another Step Toward Opening the Seabed for Mining**\
-`The Interior Department said it would review a new proposal for operations off the coast of American Samoa.`\
-https://nytimes.com/2025/05/21/climate/trump-seabed-mining-impossible-metals-american-samoa.html
-
-**What We Know About the Escape From a New Orleans Jail**\
-`The Louisiana authorities are still searching for five of the 10 inmates who escaped from the Orleans Parish Justice Center last week.`\
-https://nytimes.com/article/new-orleans-jail-escape-inmates.html
 
