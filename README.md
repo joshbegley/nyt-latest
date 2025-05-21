@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**The Pulse: Let's pick an Olympic flag football team**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6370150/2025/05/21/nfl-olympic-flag-football-team-the-pulse/
+
+**How college softball became 'offense-first, built for big hitters'**\
+`The yellow ball has made softball a hitters’ sport, with players throughout the lineup regularly smashing home runs.`\
+https://nytimes.com/athletic/6369933/2025/05/21/college-softball-hitting-yellow-ball/
+
 **Hungry Gazans Left Waiting Despite Ease on Israeli Blockade**\
 `For many, the hope of food arriving has become like the endless reports of an imminent cease-fire: constantly trumpeted as just around the corner yet still out of reach.`\
 https://nytimes.com/2025/05/21/world/middleeast/israel-gaza-blockade-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6371457/2025/05/21/marchand-espn-around-the-horn/
 **Five winners and losers of Packers offseason: Keisean Nixon up, 2 WRs down**\
 `The arrival of Matthew Golden and Savion Williams probably means less playing time, if any, for Bo Melton and Malik Heath.`\
 https://nytimes.com/athletic/6370595/2025/05/21/green-bay-packers-offseason-winners-losers/
-
-**Which MLB teams are actually trying? Charting a divided league's haves-and-have-nots**\
-`What does breaking down MLB teams by spending and winning percentage show us?  `\
-https://nytimes.com/athletic/6370765/2025/05/21/mlb-chart-haves-and-have-nots/
-
-**IndyCar champ Álex Palou on motivation, his keys to success and more: 12 Questions**\
-`Defending IndyCar champion and current points leader Álex Palou talks about lessons learned, Chip Ganassi's dinner habits and more.`\
-https://nytimes.com/athletic/6362056/2025/05/21/alex-palou-indy-500-indycar-champion-12-questions/
 
