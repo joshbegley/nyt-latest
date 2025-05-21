@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`A rebuke from Israel’s allies.`\
+https://nytimes.com/2025/05/21/briefing/israel-ukraine-golden-dome.html
+
+**How fate gave Brighton's cousins 'surreal' moment to treasure against Liverpool**\
+`The story of the 'pinch me' moment when two cousins helped beat Premier League champions Liverpool`\
+https://nytimes.com/athletic/6369346/2025/05/21/how-fate-gave-brightons-cousins-hinshelwood-and-howell-surreal-moment-to-treasure/
+
 **Europa League final: Which club needs it more - and who do rival fans want to win?**\
 `The Athletic assess which of the two managers, squads, fanbases and bank balances need this one more...`\
 https://nytimes.com/athletic/6368620/2025/05/21/europa-league-final-spurs-man-utd/
