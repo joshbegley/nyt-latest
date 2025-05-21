@@ -1,3 +1,15 @@
+**Did Soccer Originate in Scotland? New Claim Draws Jeers in England.**\
+`The discovery of a 17th-century “foot-ball” pitch in Scotland would relocate the birthplace of the modern game.`\
+https://nytimes.com/2025/05/21/science/archaeology-soccer-england-scotland.html
+
+**Trump’s Tax Policy Collides with Market Reality**\
+`Another spike in Treasury bond yields puts lawmakers in a tricky spot as they push for big cuts that could drastically swell America’s debt pile.`\
+https://nytimes.com/2025/05/21/business/dealbook/trump-tax-spending-markets-bonds.html
+
+**After 21 years in MLB, LaTroy Hawkins graduates from college**\
+`“Greatness doesn’t retire — it evolves,” the Twins' LaTroy Hawkins said about why he chose to pursue a degree at age 47. `\
+https://nytimes.com/athletic/6371280/2025/05/21/latroy-hawkins-graduates-college-minnesota-twins/
+
 **Putin Visits Kursk for First Time Since Russia Drove Out Ukrainian Forces**\
 `The Russian leader traveled to the region in the west of the country where a surprise incursion last year embarrassed Moscow.`\
 https://nytimes.com/2025/05/21/world/asia/russia-putin-kursk.html
