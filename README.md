@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Man charged with giving beer to underaged Pirates fan who fell from stands**\
+`Man charged with two third-degree misdemeanor counts of furnishing alcohol to an underage person.`\
+https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
+
 **Panthers show Stanley Cup form with rout of Hurricanes to open East final: Takeaways**\
 `So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
 https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/20/theater/goddess-review-ali-iman.html
 **Senate Democrats Grill Defiant Rubio on Trump Policies**\
 `There was shouting and gavel banging as Marco Rubio and his former Senate Democratic colleagues clashed over U.S. foreign aid.`\
 https://nytimes.com/2025/05/20/us/politics/rubio-democrats-foreign-aid.html
-
-**Kennedy’s War on Pesticides Riles Farmers and a G.O.P. Senator**\
-`A health report commissioned by President Trump has been causing angst within the agriculture industry who fear the chemicals will be identified as a driver of childhood disease.`\
-https://nytimes.com/2025/05/20/us/politics/rfk-pesticides-farmers-hyde-smith.html
 
