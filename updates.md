@@ -1,3 +1,7 @@
+**NBA playoffs: Gilgeous-Alexander leads Thunder to win over Timberwolves**\
+`Shai Gilgeous-Alexander led the Thunder in scoring with 31 points, adding nine assists and five rebounds.`\
+https://nytimes.com/athletic/6371543/2025/05/20/timberwolves-thunder-nba-playoffs-takeaways/
+
 **Man charged with giving beer to underaged Pirates fan who fell from stands**\
 `Police allege Ethan Kirkwood bought beer for Kavan Markwood, 20, who was critically injured in fall.`\
 https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
