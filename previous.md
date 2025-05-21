@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**American Breakfast Cereals Are Becoming Less Healthy, Study Finds**\
+`They contain increasing amounts of sugar, fat and sodium and decreasing amounts of protein and fiber.`\
+https://nytimes.com/2025/05/21/health/cereal-nutrients-unhealthy.html
+
+**Republican Bill Sets Stage for a New Global Tax Fight**\
+`Retaliatory taxes on foreign companies operating in the U.S. could open the door for a broader economic conflict.`\
+https://nytimes.com/2025/05/21/us/politics/global-minimum-tax-bill.html
+
 **Three Sentenced for Luring Gay-Bar Robbery Victims to Their Deaths**\
 `The men were convicted of murder, robbery and conspiracy in what prosecutors described as a “deadly hustle” that targeted patrons at night spots in Manhattan.`\
 https://nytimes.com/2025/05/21/nyregion/gay-bar-murder-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/business/monroe-milstein-dead.html
 **Pete Hegseth Leads Christian Prayer Service in the Pentagon**\
 `The event was held in the Pentagon’s auditorium during working hours and featured Mr. Hegseth’s pastor.`\
 https://nytimes.com/2025/05/21/us/politics/pete-hegseth-prayer-pentagon.html
-
-**Why the Tush Push, or Brotherly Shove, still belongs in the NFL**\
-`The vote on whether to ban the play did not pass.`\
-https://nytimes.com/athletic/6372357/2025/05/21/tush-push-ban-brotherly-shove-nfl/
-
-**Madrid expect Endrick to miss Club World Cup with hamstring injury**\
-`The 18-year-old is expected to face eight weeks out. `\
-https://nytimes.com/athletic/6372827/2025/05/21/real-madrid-endrick-injury-hamstring/
 

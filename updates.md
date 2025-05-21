@@ -1,3 +1,11 @@
+**American Breakfast Cereals Are Becoming Less Healthy, Study Finds**\
+`They contain increasing amounts of sugar, fat and sodium and decreasing amounts of protein and fiber.`\
+https://nytimes.com/2025/05/21/health/cereal-nutrients-unhealthy.html
+
+**Republican Bill Sets Stage for a New Global Tax Fight**\
+`Retaliatory taxes on foreign companies operating in the U.S. could open the door for a broader economic conflict.`\
+https://nytimes.com/2025/05/21/us/politics/global-minimum-tax-bill.html
+
 **Three Sentenced for Luring Gay-Bar Robbery Victims to Their Deaths**\
 `The men were convicted of murder, robbery and conspiracy in what prosecutors described as a “deadly hustle” that targeted patrons at night spots in Manhattan.`\
 https://nytimes.com/2025/05/21/nyregion/gay-bar-murder-sentencing.html
