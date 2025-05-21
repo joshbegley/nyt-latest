@@ -1,3 +1,7 @@
+**Dodgers ensure they don't waste Yamamoto's brilliant night as they snap skid**\
+`Yamamoto produced the kind of performance against the Diamondbacks the Dodgers shelled out $325 million for.`\
+https://nytimes.com/athletic/6371891/2025/05/21/dodgers-diamondbacks-yamamoto/
+
 **FIFA planning dynamic pricing model for 2026 World Cup tickets**\
 `FIFA said that ticket sales for the World Cup are expected to begin in the third quarter of 2025.`\
 https://nytimes.com/athletic/6371142/2025/05/21/fifa-world-cup-tickets-dynamic-pricing/

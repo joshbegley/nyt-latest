@@ -2,39 +2,39 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
-**Dodgers ensure they don't waste Yamamoto's brilliant night as they snap skid**\
-`Yamamoto produced the kind of performance against the Diamondbacks the Dodgers shelled out $325 million for.`\
-https://nytimes.com/athletic/6371891/2025/05/21/dodgers-diamondbacks-yamamoto/
+**NFL 'Dream Team': Who should be on the 2028 U.S. Olympic flag football roster?**\
+`With flag football on the docket for the 2028 Summer Games in Los Angeles, the NFL has OK'd the use of its players. So who'll make the team?`\
+https://nytimes.com/athletic/6371303/2025/05/21/nfl-dream-team-us-olympic-flag-football-2028/
 
-**FIFA planning dynamic pricing model for 2026 World Cup tickets**\
-`FIFA said that ticket sales for the World Cup are expected to begin in the third quarter of 2025.`\
-https://nytimes.com/athletic/6371142/2025/05/21/fifa-world-cup-tickets-dynamic-pricing/
+**How Groupthink Protected Biden and Re-elected Trump**\
+`Was there a Joe Biden cover-up? Jake Tapper examines the people and institutions that made the former president’s re-election campaign possible.`\
+https://nytimes.com/2025/05/21/opinion/ezra-klein-podcast-jake-tapper.html
 
-**Dynamic pricing is coming to the 2026 World Cup. What is it exactly?**\
-`World Cup fans are about to experience a fluctuating pricing structure for the first time at the 2026 tournament.`\
-https://nytimes.com/athletic/6371386/2025/05/21/world-cup-dynamic-pricing-2026-fifa/
+**Student Band**\
+`An annual big-band festival brought the world’s best high school jazz musicians to New York. Would you want to be a part of a school orchestra or band?`\
+https://nytimes.com/2025/05/21/learning/student-band.html
 
-**F1 mailbag: Decoding Red Bull's win, McLaren's choices and Monaco GP predictions**\
-`Before the paddock heads to Monaco for the second race of this European tripleheader, we answered your post-race questions from Imola`\
-https://nytimes.com/athletic/6371296/2025/05/21/red-bull-mclaren-f1-monaco-gp-mailbag/
+**Senate Fight Over Gas-Powered Vehicles Is Also a Filibuster Showdown**\
+`Republicans have readied a plan to overturn California’s law phasing out gas-powered vehicles, using a statute aimed at striking down federal regulations. Democrats say it’s an end run around Senate rules.`\
+https://nytimes.com/2025/05/21/us/politics/senate-filibuster-gas-vehicles-california.html
 
-**Gilgeous-Alexander, the MVP elect, draws up perfect script with Game 1 win**\
-`Gilgeous-Alexander looks set to be named MVP a day after his spectacular second half spurred the Thunder on to an opening victory.`\
-https://nytimes.com/athletic/6371875/2025/05/21/gilgeous-alexander-mvp-thunder-timberwolves-game-1/
+**Hope for the Best, but Plan for the Worst While President**\
+`What others should learn from Joe Biden.`\
+https://nytimes.com/2025/05/21/opinion/biden-cancer-diagnosis.html
 
-**Nvidia’s Chief Says U.S. Chip Controls on China Have Backfired**\
-`Jensen Huang, the chipmaker’s top executive, said the attempt to cut off the flow of advanced A.I. chips spurred Chinese companies to “accelerate their development.”`\
-https://nytimes.com/2025/05/21/business/nvidia-china-washington-chip-controls-failure.html
+**How Do You Prepare for a Big Moment?**\
+`The Times asked actors, comedians and musicians about how they warm up before their gigs. What can we learn from their pregame rituals?`\
+https://nytimes.com/2025/05/21/learning/how-do-you-prepare-for-a-big-moment.html
 
-**Fortnite Returns to Apple’s App Store After Scoring a Legal Victory**\
-`Apple kicked the popular game out of the App Store nearly five years ago, prompting a court battle that was partially resolved on Tuesday.`\
-https://nytimes.com/2025/05/21/business/apple-epic-fortnite-ios-app-store.html
+**Trump to Press South Africa’s President to Pare Back Racial Equity Laws**\
+`In a White House meeting, the U.S. president is expected to point to alleged discrimination against white South Africans, a week after welcoming a group of them as refugees.`\
+https://nytimes.com/2025/05/21/us/politics/trump-ramaphosa-south-africa-visit.html
 
-**For U.S. Meteorologists, Springtime Chaos Is a Regular Thing**\
-`A land that sprawls across 3,000 miles in the middle latitudes is the optimal meeting place for the forces of seasonal change.`\
-https://nytimes.com/2025/05/21/pageoneplus/tornadoes-spring-forecasting.html
+**Suddenly Trump Is No Longer Buying What Bibi Has Been Selling**\
+`Is the Netanyahu-Trump honeymoon over?`\
+https://nytimes.com/2025/05/21/opinion/trump-netanyahu-israel.html
 
-**A Church Wants a Homeless Shelter. The Mayor Wants Space for Pickleball.**\
-`Toms River, N.J., is poised to use eminent domain to raze an Episcopal church to build a park. The church had wanted to set up a 17-bed shelter.`\
-https://nytimes.com/2025/05/21/nyregion/eminent-domain-homeless-church.html
+**Federal Cuts Become ‘All Consuming’ at Harvard’s Public Health School**\
+`At the T.H. Chan School of Public Health, which relies heavily on federal support, a crisis response is underway and a reshaping of the institution feels inevitable.`\
+https://nytimes.com/2025/05/21/us/federal-cuts-become-all-consuming-at-harvards-public-health-school.html
 
