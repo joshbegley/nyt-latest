@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**A Blood Test for Alzheimer’s: What to Know**\
+`The test may make it easier to identify whether people with memory and thinking problems have Alzheimer’s or not.`\
+https://nytimes.com/2025/05/21/health/blood-test-alzheimers.html
+
+**Can Shoplifting Be Justified? This Artist Wants You to Decide.**\
+`Dries Verhoeven has constructed a replica grocery store for his latest provocative performance.`\
+https://nytimes.com/2025/05/21/arts/design/dires-verhoeven.html
+
 **The Giants need more salary cap space. Here's how they can free some up**\
 `Which Giants could see their contracts restructured, and which could soon be asked to take a pay cut? `\
 https://nytimes.com/athletic/6370957/2025/05/21/new-york-giants-salary-cap-restructure-pay-cuts-brian-burns/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/us/gerald-connolly-dead.html
 **The Edmonton Oilers look better than ever on defence — and might improve soon**\
 `Edmonton allowed a total of only 10 goals against Vegas, and Mattias Ekholm's return looms.`\
 https://nytimes.com/athletic/6371352/2025/05/21/oilers-ekholm-defence-stars/
-
-**Don’t Let ‘Pronatalists’ Define What’s Family-Friendly**\
-`Pronatalist policies are unsupported by data, too narrow and, frankly, weird.`\
-https://nytimes.com/2025/05/21/opinion/pronatalist-trump.html
-
-**Is It OK to Let Our Teenage Son Hang Out in His Room With His Boyfriend?**\
-`A reader’s husband accused her of hypocrisy because she wouldn’t permit the same behavior if their son were straight.`\
-https://nytimes.com/2025/05/21/style/parenting-gay-teenager-privacy.html
 

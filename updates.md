@@ -1,3 +1,11 @@
+**A Blood Test for Alzheimer’s: What to Know**\
+`The test may make it easier to identify whether people with memory and thinking problems have Alzheimer’s or not.`\
+https://nytimes.com/2025/05/21/health/blood-test-alzheimers.html
+
+**Can Shoplifting Be Justified? This Artist Wants You to Decide.**\
+`Dries Verhoeven has constructed a replica grocery store for his latest provocative performance.`\
+https://nytimes.com/2025/05/21/arts/design/dires-verhoeven.html
+
 **The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
