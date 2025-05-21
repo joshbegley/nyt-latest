@@ -1,3 +1,15 @@
+**Hans Noë, Architect, Sculptor and Proprietor of a Famed Bar, Dies at 96**\
+`He designed innovative houses and sculptures, but his most visible role in New York City’s cultural life was as an accidental restaurateur, running the venerable Fanelli Cafe.`\
+https://nytimes.com/2025/05/21/arts/design/hans-noe-dead.html
+
+**Team Penske fires senior leadership team in wake of cheating scandal**\
+`No replacements were announced for a team that had entered May as the prohibitive favorites to win Penske his 21st Indy 500.`\
+https://nytimes.com/athletic/6372661/2025/05/21/penske-fired-indycar-indianapolis-500/
+
+**Angel City FC signs Iceland forward Sveindís Jónsdóttir through 2027**\
+`Sveindís Jónsdóttir said she was excited to play for Alex Straus who previously coached her rivals Bayern Munich in the Frauen Bundesliga`\
+https://nytimes.com/athletic/6371618/2025/05/21/angel-city-fc-sveindis-jonsdottir-through-2027-2/
+
 **India’s Security Forces Kill Dozens in a Bid to Crush Leftist Rebels**\
 `Military operations have intensified in recent weeks as the government has set a deadline of next year to defeat a decades-old Maoist insurgency.`\
 https://nytimes.com/2025/05/21/world/asia/india-maoists-naxalites.html
