@@ -1,3 +1,5 @@
+
+
 **'He's really sharp, man': Kelvin Sheppard's ascent into coaching was one many saw coming**\
 `Dan Campbell saw the potential back when the two were with the Dolphins.`\
 https://nytimes.com/athletic/6371036/2025/05/21/lions-kelvin-sheppard-defensive-coordinator/
