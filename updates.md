@@ -1,4 +1,8 @@
 **Man charged with giving beer to underaged Pirates fan who fell from stands**\
+`Police allege Ethan Kirkwood bought beer for Kavan Markwood, 20, who was critically injured in fall.`\
+https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
+
+**Man charged with giving beer to underaged Pirates fan who fell from stands**\
 `Man charged with two third-degree misdemeanor counts of furnishing alcohol to an underage person.`\
 https://nytimes.com/athletic/6371704/2025/05/20/man-charged-alcohol-underage-pirates-fan-fell-stands/
 
