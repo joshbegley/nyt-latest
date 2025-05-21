@@ -1,3 +1,11 @@
+**Hong Kong’s Beleaguered Journalists Say Their Taxes Are Now Under Scrutiny**\
+`Several news outlets have been unreasonably subjected to tax investigations, according to the city’s journalists’ association, adding to pressures on press freedom.`\
+https://nytimes.com/2025/05/21/world/asia/hong-kong-media-tax-harassment.html
+
+**Why Cowboys think they will get the best of George Pickens**\
+`Brian Schottenheimer says the new addition has some catching up to do but his time with Pickens "has been just incredible."`\
+https://nytimes.com/athletic/6371480/2025/05/21/george-pickens-first-ota-practice-dallas-cowboys/
+
 **Bills' 2026 draft needs: An early look at potential positions to address**\
 `Some parts of the roster are already shaping up to be areas of need.`\
 https://nytimes.com/athletic/6370979/2025/05/21/bills-draft-needs-2026-wide-receiver/
