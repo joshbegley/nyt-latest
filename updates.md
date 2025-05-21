@@ -1,3 +1,23 @@
+**India’s Security Forces Kill Dozens in a Bid to Crush Leftist Rebels**\
+`Military operations have intensified in recent weeks as the government has set a deadline of next year to defeat a decades-old Maoist insurgency.`\
+https://nytimes.com/2025/05/21/world/asia/india-maoists-naxalites.html
+
+**Should I Retire if My Fellow Federal Employees Are Facing Layoffs?**\
+`I’m eligible for retirement, but I love my job. Can I keep working?`\
+https://nytimes.com/2025/05/21/magazine/retirement-layoffs-jobs-ethics.html
+
+**When Trump Was the One Taking Land From Farmers**\
+`The president has railed against South Africa’s seizures of land from white farmers. But during his first term, he pushed to take land for his border wall using eminent domain.`\
+https://nytimes.com/2025/05/21/us/politics/trump-ramaphosa-south-africa-eminent-domain.html
+
+**WATCH: How Tyrese Haliburton breaks the conventions of basketball**\
+`Why is Tyrese Haliburton such a great playmaker? Because nobody — not now, not ever — plays the game quite like him. `\
+https://nytimes.com/athletic/6372602/2025/05/21/video-tyrese-haliburton-pacers-passing-playoffs/
+
+**What We Know About the Escape From a New Orleans Jail**\
+`The Louisiana authorities are still searching for five of the 10 inmates who escaped from the Orleans Parish Justice Center last week.`\
+https://nytimes.com/article/new-orleans-jail-escape-inmates.html
+
 **U.S. Takes a Another Step Toward Opening the Seabed for Mining**\
 `The Interior Department said it would review a new proposal for operations off the coast of American Samoa.`\
 https://nytimes.com/2025/05/21/climate/trump-seabed-mining-impossible-metals-american-samoa.html
