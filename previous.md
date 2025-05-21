@@ -2,6 +2,14 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**FIFA planning dynamic pricing model for 2026 World Cup tickets**\
+`FIFA said that ticket sales for the World Cup are expected to begin in the third quarter of 2025.`\
+https://nytimes.com/athletic/6371142/2025/05/21/fifa-world-cup-tickets-dynamic-pricing/
+
+**Dynamic pricing is coming to the 2026 World Cup. What is it exactly?**\
+`World Cup fans are about to experience a fluctuating pricing structure for the first time at the 2026 tournament.`\
+https://nytimes.com/athletic/6371386/2025/05/21/world-cup-dynamic-pricing-2026-fifa/
+
 **F1 mailbag: Decoding Red Bull's win, McLaren's choices and Monaco GP predictions**\
 `Before the paddock heads to Monaco for the second race of this European tripleheader, we answered your post-race questions from Imola`\
 https://nytimes.com/athletic/6371296/2025/05/21/red-bull-mclaren-f1-monaco-gp-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/nyregion/eminent-domain-homeless-church.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/21/crosswords/spelling-bee-forum.html
-
-**Nervous Corporate Sponsors Retreat from New York Pride**\
-`About 25 percent of corporate donors to New York Pride have canceled or scaled back their support, citing economic uncertainty and fear of retribution from the Trump administration.`\
-https://nytimes.com/2025/05/21/nyregion/nyc-pride-sponsors-trump-tariffs.html
-
-**Will a Federal Investigation Help or Hurt Andrew Cuomo’s Mayoral Bid?**\
-`Even Mr. Cuomo’s rivals are not sure how news that the Justice Department is criminally investigating the former governor will affect his chances.`\
-https://nytimes.com/2025/05/21/nyregion/cuomo-investigation-mayor.html
 
