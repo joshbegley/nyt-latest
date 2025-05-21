@@ -2,6 +2,30 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**How Do You Follow One of the Craziest Cannes Movies Ever?**\
+`Julia Ducournau, who won the Palme d’Or for “Titane,” returns with the body-horror tale “Alpha.” The critical reception has not been kind.`\
+https://nytimes.com/2025/05/21/movies/julia-ducournau-titane-cannes-alpha.html
+
+**If We Can’t Prosecute Trump’s Foes, We’ll ‘Shame’ Them, Justice Dept. Official Says**\
+`Few, if any, of those singled out have done anything to invite conventional prosecutorial scrutiny, much less committed crimes to warrant an indictment under federal law.`\
+https://nytimes.com/2025/05/21/us/politics/trump-justice-department-ed-martin-weaponization.html
+
+**U.S. Formally Accepts Luxury Jet From Qatar for Trump**\
+`The Air Force has been asked to figure out a way to upgrade it so it can be put into use as a new Air Force One for the president.`\
+https://nytimes.com/2025/05/21/us/politics/qatar-plane-trump-air-force-one.html
+
+**Pope Calls for Humanitarian Aid and Peace in Gaza**\
+`Pope Leo XIV made a renewed appeal to end the humanitarian crisis in Gaza during his first general audience at the Vatican.`\
+https://nytimes.com/video/world/europe/100000010182518/pope-vatican-gaza-aid.html
+
+**South Africa’s President Brings Pro Golfers to the White House to Defuse Tension**\
+`When President Cyril Ramaphosa meets with President Trump on Wednesday, he will be joined by two fellow South Africans well acquainted with Mr. Trump: the golfers Ernie Els and Retief Goosen.`\
+https://nytimes.com/2025/05/21/us/politics/ernie-els-retief-goosen-south-africa-trump.html
+
+**Pope Leo XIV Calls for Aid to Enter Gaza**\
+`Calling the hunger crisis in the war-torn territory “heart-rending,” the pope used his first general audience to highlight the issue.`\
+https://nytimes.com/2025/05/21/world/europe/pope-leo-gaza-israel-aid.html
+
 **Morgan Wallen Retreats Into Sadness, While His Protégés Party On**\
 `The country superstar’s “I’m the Problem” is a despondent self-portrait. But a generation of singers blending Southern rap and Nashville songwriting are thriving.`\
 https://nytimes.com/2025/05/21/arts/music/morgan-wallen-im-the-problem.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/21/well/alzheimer-symptoms-reversal-dale-bredesen.ht
 **‘Lights Out: Nat “King” Cole’ Review: Dimming a Great Talent**\
 `Dulé Hill stars as the silky crooner in a play about the last broadcast of his variety show, in 1957.`\
 https://nytimes.com/2025/05/21/theater/lights-out-nat-king-cole-review.html
-
-**Hans Noë, Architect, Sculptor and Proprietor of a Famed Bar, Dies at 96**\
-`He designed innovative houses and sculptures, but his most visible role in New York City’s cultural life was as an accidental restaurateur, running the venerable Fanelli Cafe.`\
-https://nytimes.com/2025/05/21/arts/design/hans-noe-dead.html
-
-**Team Penske fires senior leadership team in wake of cheating scandal**\
-`No replacements were announced for a team that had entered May as the prohibitive favorites to win Penske his 21st Indy 500.`\
-https://nytimes.com/athletic/6372661/2025/05/21/penske-fired-indycar-indianapolis-500/
-
-**Angel City FC signs Iceland forward Sveindís Jónsdóttir through 2027**\
-`Sveindís Jónsdóttir said she was excited to play for Alex Straus who previously coached her rivals Bayern Munich in the Frauen Bundesliga`\
-https://nytimes.com/athletic/6371618/2025/05/21/angel-city-fc-sveindis-jonsdottir-through-2027-2/
-
-**India’s Security Forces Kill Dozens in a Bid to Crush Leftist Rebels**\
-`Military operations have intensified in recent weeks as the government has set a deadline of next year to defeat a decades-old Maoist insurgency.`\
-https://nytimes.com/2025/05/21/world/asia/india-maoists-naxalites.html
-
-**Should I Retire if My Fellow Federal Employees Are Facing Layoffs?**\
-`I’m eligible for retirement, but I love my job. Can I keep working?`\
-https://nytimes.com/2025/05/21/magazine/retirement-layoffs-jobs-ethics.html
-
-**When Trump Was the One Taking Land From Farmers**\
-`The president has railed against South Africa’s seizures of land from white farmers. But during his first term, he pushed to take land for his border wall using eminent domain.`\
-https://nytimes.com/2025/05/21/us/politics/trump-ramaphosa-south-africa-eminent-domain.html
 
