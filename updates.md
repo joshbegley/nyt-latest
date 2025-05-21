@@ -1,3 +1,11 @@
+**Cuts in Research, and a Scientist Brain Drain**\
+`Readers discuss the Trump administration’s effects on American research and science. Also: Joe Biden’s cancer; what Democrats need; false manhood.`\
+https://nytimes.com/2025/05/21/opinion/research-cuts-scientists-brain-drain.html
+
+**C.E.O.s Mind Their Language to Avoid Landing on Trump’s Radar**\
+`Public companies are obligated to tell investors how tariffs could affect corporate financial results. But some are trying to do it with euphemisms to avoid the president’s anger.`\
+https://nytimes.com/2025/05/21/business/trump-tariffs-ceos-prices.html
+
 **Two NWSL executives set to depart following restructuring by commissioner Berman**\
 `Julie Haddon, the chief marketing and commercial officer, and Tatjana Haenni, the chief sporting director, are set to depart this year.`\
 https://nytimes.com/athletic/6372855/2025/05/21/nwsl-executives-to-depart-under-berman/
