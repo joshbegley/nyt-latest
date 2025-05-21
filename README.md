@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**How Did You Grow and Change This School Year?**\
+`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
+https://nytimes.com/2025/05/21/learning/how-did-you-grow-and-change-this-school-year.html
+
 **Florida Prosecutors Are Investigating a Charity Tied to Casey DeSantis**\
 `The Hope Florida Foundation came under scrutiny this spring when Republican state lawmakers and news reporters drew attention to  contributions it had made to political committees.`\
 https://nytimes.com/2025/05/21/us/casey-desantis-florida-charity-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/climate/inflation-reduction-act-lobbying-climate.
 **Judge Strikes Down Trump’s Firings of Civil Liberties Watchdog Board Members**\
 `A federal court ruled that President Trump’s removals were illegal and arbitrary and ordered two board members reinstated.`\
 https://nytimes.com/2025/05/21/us/politics/civil-liberties-oversight-board-trump-firings.html
-
-**American Breakfast Cereals Are Becoming Less Healthy, Study Finds**\
-`They contain increasing amounts of sugar, fat and sodium and decreasing amounts of protein and fiber.`\
-https://nytimes.com/2025/05/21/health/cereal-nutrients-unhealthy.html
 
