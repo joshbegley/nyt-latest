@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**'Hard Knocks' will feature Bills for first time in franchise history**\
+`The show's premiere is set for Aug. 5 on HBO Max.`\
+https://nytimes.com/athletic/6373049/2025/05/21/buffalo-bills-hard-knocks-hbo-nfl/
+
+**Monroe Milstein, Burlington Coat Factory Founder, Dies at 98**\
+`His was not exactly a rags-to-riches story, but his family made $1.3 billion from an original down payment of $75,000 in savings.`\
+https://nytimes.com/2025/05/21/business/monroe-milstein-dead.html
+
+**Pete Hegseth Leads Christian Prayer Service in the Pentagon**\
+`The event was held in the Pentagon’s auditorium during working hours and featured Mr. Hegseth’s pastor.`\
+https://nytimes.com/2025/05/21/us/politics/pete-hegseth-prayer-pentagon.html
+
 **Why the Tush Push, or Brotherly Shove, still belongs in the NFL**\
 `The vote on whether to ban the play did not pass.`\
 https://nytimes.com/athletic/6372357/2025/05/21/tush-push-ban-brotherly-shove-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6349640/2025/05/21/hansi-flick-barcelona-contract/
 **The Windup: Angels get own category in this ranking**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6371910/2025/05/21/angels-dodgers-ownership-trying-the-windup/
-
-**Tiny Love Stories: ‘No One’s Choosing to Walk Out’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/05/21/style/tiny-modern-love-stories-i-was-off-the-rocker-unwell.html
-
-**Cuts in Research, and a Scientist Brain Drain**\
-`Readers discuss the Trump administration’s effects on American research and science. Also: Joe Biden’s cancer; what Democrats need; false manhood.`\
-https://nytimes.com/2025/05/21/opinion/research-cuts-scientists-brain-drain.html
-
-**C.E.O.s Mind Their Language to Avoid Landing on Trump’s Radar**\
-`Public companies are obligated to tell investors how tariffs could affect corporate financial results. But some are trying to do it with euphemisms to avoid the president’s anger.`\
-https://nytimes.com/2025/05/21/business/trump-tariffs-ceos-prices.html
 
