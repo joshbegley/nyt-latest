@@ -2,6 +2,18 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Submit your questions for Will Guillory’s Pelicans mailbag**\
+`<p>A few weeks ago, the New Orleans Pelicans were hopeful about getting one of the top picks in this year&#8217;s star-studded NBA Draft.`\
+https://nytimes.com/athletic/6372449/2025/05/21/pelicans-mailbag-2025-nba-draft/
+
+**Why Pacers' toe-tapping Aaron Nesmith tops conference finals X-factors**\
+`Mitchell Robinson, Cason Wallace and Jaden McDaniels could also help swing these conference finals.`\
+https://nytimes.com/athletic/6347010/2025/05/21/nba-conference-finals-x-factors-aaron-nesmith-mitchell-robinson/
+
+**The Last Lucille Roberts**\
+`A forgotten fitness pioneer built an empire on the idea of creating a space for everyday women. Her devotees are still sweating through workouts at a faded gym in Queens.`\
+https://nytimes.com/2025/05/21/style/the-last-lucille-roberts.html
+
 **The Bounce: How can the Wolves overcome the Thunder dominating in third quarters?**\
 `The third quarter has been a torture chamber for the Thunder’s opponents. Can the Wolves escape it? And are NBA Draft prospects shrinking?`\
 https://nytimes.com/athletic/6372371/2025/05/21/anthony-edwards-timberwolves-thunder-shai-gilgeous-alexander-nba-playoffs-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6370957/2025/05/21/new-york-giants-salary-cap-restr
 **Trump Administration Pulls Back From Local Police Oversight Across U.S.**\
 `The Justice Department said that it would abandon efforts to overhaul local policing in Minneapolis and other cities with histories of civil rights violations.`\
 https://nytimes.com/2025/05/21/us/trump-police-consent-decrees.html
-
-**Chris Brown Released on $6 Million Bail by London Court**\
-`The R&B singer was charged last week with grievous bodily harm over a 2023 incident in England. His release from custody means he can proceed with a world tour.`\
-https://nytimes.com/2025/05/21/world/europe/chris-brown-bail-court-london.html
-
-**E.U. Offers Emergency Funding for Radio Free Europe After Trump Cuts**\
-`The European Union said it would provide short-term financing for Radio Free Europe, but the amount falls short of what the news outlet says it needs to stay afloat.`\
-https://nytimes.com/2025/05/21/world/europe/radio-free-europe-funding-eu.html
-
-**Tom Hanks Wrote a Play, and Will Star in It Off Broadway This Fall**\
-`“This World of Tomorrow,” based on the actor’s 2017 short story collection, is scheduled to begin performances in October at the Shed.`\
-https://nytimes.com/2025/05/21/theater/tom-hanks-play-this-world-of-tomorrow.html
 
