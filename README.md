@@ -2,6 +2,10 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**De Bruyne will leave City in a privileged position - but this exit must still be painful**\
+`Kevin De Bruyne will leave Manchester City at the end of the season and the club paid tribute to him on Tuesday night`\
+https://nytimes.com/athletic/6371302/2025/05/21/kevin-de-bruyne-man-city-exit/
+
 **How Yankees' injured ace Gerrit Cole has helped Will Warren's surge**\
 `The Yankees rookie posted a career-best 10 strikeouts in 5 2/3 innings in a 5-2 win over the Rangers on Tuesday.`\
 https://nytimes.com/athletic/6371767/2025/05/21/yankees-gerrit-cole-helps-will-warren-surge/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/briefing/israel-ukraine-golden-dome.html
 **How fate gave Brighton's cousins 'surreal' moment to treasure against Liverpool**\
 `The story of the 'pinch me' moment when two cousins helped beat Premier League champions Liverpool`\
 https://nytimes.com/athletic/6369346/2025/05/21/how-fate-gave-brightons-cousins-hinshelwood-and-howell-surreal-moment-to-treasure/
-
-**Europa League final: Which club needs it more - and who do rival fans want to win?**\
-`The Athletic assess which of the two managers, squads, fanbases and bank balances need this one more...`\
-https://nytimes.com/athletic/6368620/2025/05/21/europa-league-final-spurs-man-utd/
 
