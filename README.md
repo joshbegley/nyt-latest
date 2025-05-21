@@ -2,6 +2,26 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
+**Lowetide: What Oilers did (and didn't do) well against Stars in 2024 series**\
+`If you're an Oilers fan expecting a repeat of last year's conference final, it would be wise to reset expectations`\
+https://nytimes.com/athletic/6369887/2025/05/21/oilers-stars-nhl-playoffs-series-stats/
+
+**Jaedyn Shaw, Mia Fishel, Korbin Albert called to USWNT U-23 camp**\
+`Senior USWNT head coach Emma Hayes has prioritized the development of this age group since taking the helm last May.`\
+https://nytimes.com/athletic/6371614/2025/05/21/uswnt-u-23-camp-roster/
+
+**New Canada faces get chance to impress as Marsch reshuffles roster**\
+`The absences of Alphonso Davies and Moise Bombito due to injury will provide new starting opportunities for emerging players.`\
+https://nytimes.com/athletic/6371031/2025/05/21/canada-roster-ukraine-ivory-coast/
+
+**The Monster-Slaying Game You Can Play Almost Anywhere**\
+`For decades, tech enthusiasts have made the 1993 video game Doom playable on screens of all sizes, including treadmills, calculators and pregnancy tests. (Even this article.)`\
+https://nytimes.com/2025/05/21/arts/play-doom-ports.html
+
+**These Jam Bars Are My Jam**\
+`Use any thick jam in Yewande Komolafe’s strawberry jam bars with cardamom — ideally something tart to balance that sweet crumbly topping.`\
+https://nytimes.com/2025/05/21/dining/these-jam-bars-are-my-jam.html
+
 **What Did You Think of Our New ‘Conversations With Journalists’ Feature?**\
 `Did you or your students take part? What worked? What didn’t? How could we make this feature better for next school year?`\
 https://nytimes.com/2025/05/21/learning/what-did-you-think-of-our-new-conversations-with-journalists-feature.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6347010/2025/05/21/nba-conference-finals-x-factors-
 **The Last Lucille Roberts**\
 `A forgotten fitness pioneer built an empire on the idea of creating a space for everyday women. Her devotees are still sweating through workouts at a faded gym in Queens.`\
 https://nytimes.com/2025/05/21/style/the-last-lucille-roberts.html
-
-**The Bounce: How can the Wolves overcome the Thunder dominating in third quarters?**\
-`The third quarter has been a torture chamber for the Thunder’s opponents. Can the Wolves escape it? And are NBA Draft prospects shrinking?`\
-https://nytimes.com/athletic/6372371/2025/05/21/anthony-edwards-timberwolves-thunder-shai-gilgeous-alexander-nba-playoffs-the-bounce/
-
-**Ex-Arsenal player admits to involvement in £600k cannabis smuggling plot**\
-`The 34-year-old was detained in September after 60kg of drugs were detected in suitcases which had arrived on a flight from Bangkok.`\
-https://nytimes.com/athletic/6372467/2025/05/21/jay-emmanuel-thomas-cannabis-guilty/
-
-**A Blood Test for Alzheimer’s: What to Know**\
-`The test may make it easier to identify whether people with memory and thinking problems have Alzheimer’s or not.`\
-https://nytimes.com/2025/05/21/health/blood-test-alzheimers.html
-
-**Can Shoplifting Be Justified? This Artist Wants You to Decide.**\
-`Dries Verhoeven has constructed a replica grocery store for his latest provocative performance.`\
-https://nytimes.com/2025/05/21/arts/design/dires-verhoeven.html
-
-**The Giants need more salary cap space. Here's how they can free some up**\
-`Which Giants could see their contracts restructured, and which could soon be asked to take a pay cut? `\
-https://nytimes.com/athletic/6370957/2025/05/21/new-york-giants-salary-cap-restructure-pay-cuts-brian-burns/
 
