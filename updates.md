@@ -1,3 +1,11 @@
+**Chet Holmgren and the Thunder's smaller depth engulf Timberwolves in Game 1 win**\
+`A level of raw and untapped skill that resides within Holmgren, even in a non-featured role, was evident in the Game 1 victory.`\
+https://nytimes.com/athletic/6371532/2025/05/21/chet-holmgren-thunder-game-1-win/
+
+**Japanese Farm Minister Resigns After Saying He’d Never Bought Rice**\
+`The remark came in the midst of a rice shortage that has infuriated voters. “Frankly, my supporters give me quite a lot of rice,” said the minister, Taku Eto.`\
+https://nytimes.com/2025/05/21/world/asia/japan-rice-minister-resigns.html
+
 **The Best Gardening Tool I’ve Ever Owned Is My Grandmother’s 30-Year-Old Pair of Pruners**\
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
