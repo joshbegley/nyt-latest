@@ -2,7 +2,7 @@
 `My late grandmother loved to garden. So much so that, at the age of 60, she decided to channel her passion into a part-time career. She took a Master Gardener course, bought a red ’96 Ford Ranger, and let me tag along as she tended the stately gardens of Mount Desert Island, Maine. After we...`\
 https://nytimes.com/wirecutter/reviews/felco-2-review/
 
-**Panthers flash Stanley Cup form with rout of Hurricanes to open East final**\
+**Panthers show Stanley Cup form with rout of Hurricanes to open East final: Takeaways**\
 `So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
 https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
 

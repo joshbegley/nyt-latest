@@ -1,3 +1,7 @@
+**Panthers show Stanley Cup form with rout of Hurricanes to open East final: Takeaways**\
+`So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
+https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
+
 **Panthers flash Stanley Cup form with rout of Hurricanes to open East final**\
 `So much for being physically and emotionally fatigued after opening the East final only two nights after a Game 7 win in Toronto.`\
 https://nytimes.com/athletic/6371667/2025/05/20/panthers-hurricanes-nhl-playoffs-2025-game-1-takeaways/
