@@ -1,3 +1,7 @@
+**Simon Mann, Mercenary Who Sought to Overthrow African Leader, Dies at 72**\
+`After Eton and a successful career in the British Army, he became the go-to guy for military coups, he said. The rewards (and risks) were enormous.`\
+https://nytimes.com/2025/05/22/world/africa/simon-mann-dead.html
+
 **At Cannes, Can You Trust the Length of a Standing Ovation?**\
 `The applause at premieres like “Mission: Impossible” or “The History of Sound” is often timed and reported breathlessly. But there’s more to the story.`\
 https://nytimes.com/2025/05/22/movies/cannes-standing-ovation.html
