@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
 
 **What We Know About the Accused Gunman in Washington**\
-`The suspect, Elias Rodriguez, has been charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
+`The suspect, Elias Rodriguez, was charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
 https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-aides.html
 
 **Brendan Shanahan's 11-year Maple Leafs odyssey: Vision, hope, stubborn belief and failure**\
