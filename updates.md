@@ -1,3 +1,15 @@
+**Keefer: With death of Jim Irsay, Colts lost a lifer and Indianapolis lost an icon**\
+`From late-night phone calls to his sometimes stunning honesty in front of cameras and microphones, the Irsay Experience was an adventure.`\
+https://nytimes.com/athletic/6374099/2025/05/22/jim-irsay-phone-calls-colts-keefer/
+
+**Kathryn Wylde, Connector of New York’s Powerful, Is Retiring**\
+`Ms. Wylde, the longtime leader of the Partnership for New York City, has been a behind-the-scenes power broker for decades, working on behalf of the business and political elite.`\
+https://nytimes.com/2025/05/22/nyregion/kathryn-wylde-retire-nyc.html
+
+**Live Updates: Gunman Kills 2 Israeli Embassy Aides in Washington**\
+`The shooting occurred outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc
+
 **China’s BYD Outsells Tesla in Europe for First Time**\
 `Despite steep tariffs, the Chinese carmaker leapfrogged Tesla in April, in what an analyst called a “watershed moment” for the continent’s auto market.`\
 https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html

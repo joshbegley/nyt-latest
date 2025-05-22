@@ -1,3 +1,15 @@
+**Keefer: With death of Jim Irsay, Colts lost a lifer and Indianapolis lost an icon**\
+`From late-night phone calls to his sometimes stunning honesty in front of cameras and microphones, the Irsay Experience was an adventure.`\
+https://nytimes.com/athletic/6374099/2025/05/22/jim-irsay-phone-calls-colts-keefer/
+
+**Kathryn Wylde, Connector of New York’s Powerful, Is Retiring**\
+`Ms. Wylde, the longtime leader of the Partnership for New York City, has been a behind-the-scenes power broker for decades, working on behalf of the business and political elite.`\
+https://nytimes.com/2025/05/22/nyregion/kathryn-wylde-retire-nyc.html
+
+**Live Updates: Gunman Kills 2 Israeli Embassy Aides in Washington**\
+`The shooting occurred outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc
+
 **China’s BYD Outsells Tesla in Europe for First Time**\
 `Despite steep tariffs, the Chinese carmaker leapfrogged Tesla in April, in what an analyst called a “watershed moment” for the continent’s auto market.`\
 https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie
 **How plausible is the idea of Sabres pursuing Mitch Marner in free agency?**\
 `Adding a 100-point player like Marner is a rare opportunity and one worth exploring for Buffalo.`\
 https://nytimes.com/athletic/6373334/2025/05/22/sabres-mitch-marner-nhl-free-agency/
-
-**Nick Emmanwori is embracing Kam Chancellor comps. Will the Seahawks use him the same way?**\
-`It's far too early to expect Emmanwori to have a Chancellor-level impact, but Mike Macdonald could deploy the rookie similarly.`\
-https://nytimes.com/athletic/6349199/2025/05/22/nick-emmanwori-seahawks-kam-chancellor/
-
-**Parity has reached the NBA playoffs; you should enjoy watching the new leading men on stage**\
-`The days of the dynasties are over as the NBA has leveled the playing field across the league. `\
-https://nytimes.com/athletic/6370692/2025/05/22/parity-2025-nba-playoffs-thunder-wolves-knicks-pacers/
-
-**Who is most important to the Chargers’ success in 2025? Counting down the top 10**\
-`As is almost always the case, quarterback Justin Herbert is the most important player. But who else cracks the top 10? `\
-https://nytimes.com/athletic/6371576/2025/05/22/chargers-most-important-2025-part-2/
 
