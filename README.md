@@ -1,3 +1,7 @@
+**In Firing Watchdogs, Trump Sidesteps Laws and Moves to Expand Power**\
+`The abrupt, premature dismissals of agency officials has teed up a Supreme Court decision that, if delivered in the president's favor, could give him substantially more authority.`\
+https://nytimes.com/interactive/2025/05/22/us/politics/trump-firings-supreme-court.html
+
 **Are You Smarter Than a Billionaire?**\
 `The difference between two similar looking paintings can be millions of dollars. Can you spot the most expensive ones from New York’s recent auction week?`\
 https://nytimes.com/interactive/2025/05/23/arts/design/auction-quiz.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/05/22/arts/television/sirens-netflix.html
 
 **Trump Administration Opens Investigation Into Diversity Efforts at Virginia School**\
 `The inquiry is the latest attempt to apply the Supreme Court’s affirmative action ban to K-12 education.`\
-https://nytimes.com/2025/05/22/us/trump-fairfax-schools-investigation.html
+https://nytimes.com/2025/05/22/us/trump-fairfax-virginia-schools-investigation.html
 
 **A Revealing Joke in the Oval Office About Getting in Trump’s Good Graces**\
 `The president of South Africa’s wisecrack about a free plane spoke volumes.`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/22/us/rodriguez-aff.html
 **Liam Hendriks reveals in Instagram post that he's received death threats**\
 `Hendriks called out fans making threats to himself and his family: "Threats against my life and my wife’s life are horrible and cruel."`\
 https://nytimes.com/athletic/6376120/2025/05/22/red-sox-liam-hendriks-threats-instagram-post/
-
-**Judge weighs text evidence after Brett Howden's emotional testimony**\
-`Judge's ruling on whether the former Canadian junior team member's text message will be admissible is expected Friday morning.`\
-https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/
 

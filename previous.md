@@ -1,6 +1,6 @@
 **Are You Smarter Than a Billionaire?**\
 `The difference between two similar looking paintings can be millions of dollars. Can you spot the most expensive ones from New York’s recent auction week?`\
-https://nytimes.com/interactive/2025/05/22/arts/design/auction-quiz.html
+https://nytimes.com/interactive/2025/05/23/arts/design/auction-quiz.html
 
 **Supreme Court Lets Trump, for Now, Remove Agency Leaders**\
 `An appeals court previously ruled that a key 1935 precedent, long in the cross hairs of the conservative legal movement, meant the officials could keep their jobs.`\
