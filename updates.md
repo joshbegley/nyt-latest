@@ -1,3 +1,7 @@
+**Israeli Embassy Aides Killed in Washington**\
+`The young couple were soon to be engaged and had been at the Capital Jewish Museum when a man, who shouted pro-Palestinian slogans, opened fire, the authorities said.`\
+https://nytimes.com/video/us/politics/100000010184293/israel-embassy-staffers-killed.html
+
 **Oilers out of their depth as Matt Duchene and Stars' other scorers finally step up**\
 `The Stars didn't need to rely on Mikko Rantanen (or Jake Oettinger) to carry them to victory — and that's good news for Dallas.`\
 https://nytimes.com/athletic/6374227/2025/05/22/oilers-stars-duchene-game-1/
