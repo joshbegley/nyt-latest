@@ -1,3 +1,7 @@
+**Southwest Airlines to Tighten Restrictions on Portable Batteries on Flights**\
+`The carrier will require passengers to keep lithium batteries visible while in use in order to allow flight crews to respond more quickly in case one catches fire.`\
+https://nytimes.com/2025/05/22/business/southwest-airlines-portable-batteries.html
+
 **A Very Old Tower’s Much Newer Roof Collapses, Raising Questions in China**\
 `The Drum Tower in Fengyang County, which dates to the 14th century, is one of many historical sites that have been renovated as cultural tourism has boomed.`\
 https://nytimes.com/2025/05/22/world/asia/china-drum-tower-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374528/2025/05/22/bruno-fernandes-manchester-unite
 **Futures of Martinelli and Trossard may prove key if Arsenal need to sell to buy**\
 `Mikel Arteta would like to keep both wide forwards at Arsenal, but things could change if a big offer came in`\
 https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-martinelli-and-trossard-may-prove-key-to-summer-plans/
-
-**Pragmatic, adaptable, victorious - Tottenham's success is a triumph of management for Postecoglou**\
-`So long a byword for banter, this is the story of how Spurs became laser-focused on European success at the epense of the league`\
-https://nytimes.com/athletic/6374384/2025/05/22/ange-postecoglou-tottenham-europa-league-winners/
 

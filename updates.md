@@ -1,3 +1,7 @@
+**Southwest Airlines to Tighten Restrictions on Portable Batteries on Flights**\
+`The carrier will require passengers to keep lithium batteries visible while in use in order to allow flight crews to respond more quickly in case one catches fire.`\
+https://nytimes.com/2025/05/22/business/southwest-airlines-portable-batteries.html
+
 **Fernandes says he wants to stay at Man Utd, understands if club were to 'cash in'**\
 `“I’ve always said I will be here until the club says to me that it’s time to go,” Fernandes said after United's Europa League final loss.`\
 https://nytimes.com/athletic/6374528/2025/05/22/bruno-fernandes-manchester-united-future/
