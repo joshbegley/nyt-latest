@@ -1,3 +1,7 @@
+**Yankees lose key reliever as Fernando Cruz headed to 15-day IL**\
+`Yankees manager Aaron Boone said Wednesday that Cruz was dealing with 'shoulder stuff'.`\
+https://nytimes.com/athletic/6374336/2025/05/22/yankees-fernando-cruz-injured-list/
+
 **‘Choke 2.0’: After Knicks’ epic collapse to Pacers, New Yorkers confront painful memories**\
 `New York's infamous backpages have all drawn the parallel between what Tyrese Haliburton did and what Reggie Miller did 30 years ago.`\
 https://nytimes.com/athletic/6374984/2025/05/22/tyrese-haliburton-choke-gesture-reggie-miller-pacers-knicks-playoffs-nba/

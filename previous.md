@@ -1,3 +1,7 @@
+**Yankees lose key reliever as Fernando Cruz headed to 15-day IL**\
+`Yankees manager Aaron Boone said Wednesday that Cruz was dealing with 'shoulder stuff'.`\
+https://nytimes.com/athletic/6374336/2025/05/22/yankees-fernando-cruz-injured-list/
+
 **‘Choke 2.0’: After Knicks’ epic collapse to Pacers, New Yorkers confront painful memories**\
 `New York's infamous backpages have all drawn the parallel between what Tyrese Haliburton did and what Reggie Miller did 30 years ago.`\
 https://nytimes.com/athletic/6374984/2025/05/22/tyrese-haliburton-choke-gesture-reggie-miller-pacers-knicks-playoffs-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374841/2025/05/22/rugby-world-cup-tv-united-states
 **Republicans Pass Strictest Medicaid Work Requirement They Have Ever Put Forward**\
 `A new hurdle for poor Americans, approved by the House, would cause millions to lose coverage, including many who are working but can’t meet reporting rules.`\
 https://nytimes.com/2025/05/22/upshot/medicaid-republicans-work-requirement.html
-
-**Federal agents descend on the suspect’s apartment building in Chicago.**\
-`By Robert Chiarito and Claire Moses`\
-https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/federal-agents-descend-on-the-suspects-apartment-building-in-chicago
 
