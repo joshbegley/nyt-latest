@@ -1,3 +1,19 @@
+**After More Than a Century in Skorts and Skirts, Ireland’s Camogie Allows Shorts**\
+`A committee vote on Thursday approved a measure that would allow players in the women’s sport to choose between shorts or skorts during official play.`\
+https://nytimes.com/2025/05/22/world/europe/camogie-skorts-shorts-vote-ireland.html
+
+**France leave Renard, Le Sommer and Dali out of Nations League squad**\
+`The trio have a combined total of 444 caps for the national side.`\
+https://nytimes.com/athletic/6376158/2025/05/22/france-women-nations-league-squad/
+
+**Venezuelan Man Is Arrested After Posing as a High School Student in Ohio**\
+`A 24-year-old has been charged with forgery after enrolling in an Ohio high school as a 16-year-old student, the federal authorities said.`\
+https://nytimes.com/2025/05/22/us/venezuelan-man-identity-fraud-ohio.html
+
+**James Corden, Neil Patrick Harris and Bobby Cannavale Lead Broadway ‘Art’**\
+`The three actors will star in a revival of Yasmina Reza’s 1994 play, which begins performances at the end of August.`\
+https://nytimes.com/2025/05/22/theater/corden-cannavale-harris-broadway-art.html
+
 **Trump Makes False Genocide Claims. South Africans Respond With Humor.**\
 `The jokes mask a deep-seated anger over the legacy of apartheid and the inequality that many Black people say continues to define life in their country.`\
 https://nytimes.com/2025/05/22/world/africa/trump-false-genocide-claims-south-africans-respond-humor.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/sarah-milgrims
 **Maple Leafs part ways with president Brendan Shanahan**\
 `Toronto built a strong regular-season team, but won only two playoff rounds in Brendan Shanahan’s 11 seasons as team president.`\
 https://nytimes.com/athletic/6368883/2025/05/22/maple-leafs-brendan-shanahan-part-ways/
-
-**Killings Echo Earlier Assassination of Israeli Diplomat**\
-`In 1973, Col. Yosef Alon, an Israeli military attaché, was gunned down in front of his home in suburban Maryland. The gunman was never identified despite an extensive F.B.I. investigation.`\
-https://nytimes.com/2025/05/22/us/politics/israeli-yosef-alon-killing-dc-shooting.html
-
-**A ‘Mission: Impossible’ Movie Game**\
-`We picked 20 movies, including the new “Mission: Impossible,” and found the headlines that ran with each New York Times review. Your mission, should you choose to accept it, is to pair them correctly. The world is counting on you.`\
-https://nytimes.com/interactive/2025/05/22/movies/mission-impossible-game.html
-
-**Why Lucali (Still) Isn’t On Our Best Pizza List**\
-`The Brooklyn spot beloved by celebrities isn’t worth your time.`\
-https://nytimes.com/2025/05/22/dining/why-lucali-still-isnt-on-our-best-pizza-list.html
-
-**Before they were killed, the two diplomats had attended a reception on humanitarian diplomacy.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/before-they-were-killed-the-two-diplomats-had-attended-a-reception-on-humanitarian-diplomacy
 
