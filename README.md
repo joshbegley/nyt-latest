@@ -1,3 +1,7 @@
+**A Times Square Office Tower Will Be Converted Into Apartments**\
+`The 38-story building in the heart of Midtown Manhattan will be turned into 1,250 apartments.`\
+https://nytimes.com/2025/05/22/nyregion/5-times-square-conversion.html
+
 **Small Plane Crashes in San Diego Neighborhood**\
 `A small jet crashed into a San Diego neighborhood early Thursday morning, killing the people on board and destroying several homes, officials said.`\
 https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374598/2025/05/22/analysis-postecoglou-tactics-eur
 **Winners of an ‘Exclusive Invitation’ to Dine With Trump Will Gather Tonight**\
 `The sale of access to the president to investors in his memecoin has been assailed by Democrats and even some Republicans as unethical.`\
 https://nytimes.com/2025/05/22/us/politics/trump-memecoin-dinner.html
-
-**Tuna Salad, but Make It Pasta**\
-`The gang’s all here: crunchy chopped celery and onion, fresh herbs and sweet peas, tangy yogurt and lemon.`\
-https://nytimes.com/2025/05/22/dining/tuna-pasta-salad-recipe-for-memorial-day.html
 

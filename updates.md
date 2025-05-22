@@ -1,3 +1,7 @@
+**Small Plane Crashes in San Diego Neighborhood**\
+`A small jet crashed into a San Diego neighborhood early Thursday morning, killing the people on board and destroying several homes, officials said.`\
+https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html
+
 **A Peaceful Protest. A Counterprotest. 5 Years Later, a Town Is Still Shaken.**\
 `It was the summer of 2020, in the wake of the murder of George Floyd. Lynden, Wash., a small town known for its politeness, continues to grapple with what happened.`\
 https://nytimes.com/2025/05/22/us/george-floyd-anniversary-protests.html
