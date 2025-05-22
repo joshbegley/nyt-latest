@@ -1,3 +1,15 @@
+**They Were Days From Getting Engaged. Then They Were Killed in D.C.**\
+`Sarah Milgrim and Yaron Lischinsky met while working at the Israeli Embassy in Washington, her father said. Mr. Lischinsky had just bought an engagement ring, an official said.`\
+https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victims-sarah-milgrim-yaron-lischinsky.html
+
+**The House Passed Trump’s Megabill. Bond Investors Are Worried.**\
+`Republicans brought the president’s tax cuts one step closer to reality, but Wall Street remains on edge about the fiscal costs.`\
+https://nytimes.com/2025/05/22/business/dealbook/house-spending-bill-trump-bond-markets.html
+
+**How Every House Member Voted on the G.O.P. Megabill**\
+`The House voted 215 to 214 to pass the domestic policy bill that will deliver President Trump’s domestic agenda.`\
+https://nytimes.com/interactive/2025/05/22/us/politics/house-gop-megabill-vote.html
+
 **Leah Williamson, Arsenal, and juggling the emotions of playing in a final for the club you support**\
 `Williamson was a mascot the last time Arsenal's women played a European final. On Saturday, she walks out as the current team's heartbeat`\
 https://nytimes.com/athletic/6358429/2025/05/22/leah-williamson-arsenal-champions-league-final-barcelona/
