@@ -1,3 +1,15 @@
+**Is It Ever OK to Touch a Stranger?**\
+`A tense exchange between the actor Denzel Washington and a photographer at Cannes is raising questions about laying hands on someone you don’t know.`\
+https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
+
+**Fantasy bullpen report featuring Andrew Kittredge, Luke Jackson, Trevor Megill and more**\
+`Greg Jewett offers top-notch fantasy baseball advice on the state of team bullpens, along with players to target and those with concerns. `\
+https://nytimes.com/athletic/6375634/2025/05/22/fantasy-bullpen-report-featuring-andrew-kittredge-luke-jackson-trevor-megill-and-more/
+
+**End of the Penny Grows Near**\
+`The cost of producing a penny skyrocketed in recent years, reaching 3.69 cents, according to the Treasury Department.`\
+https://nytimes.com/2025/05/22/us/politics/penny-manufacturing.html
+
 **Fantasy baseball waiver wire pickups featuring Jake Burger, Will Warren and more**\
 `John Laghezza crunches the numbers so you don't have to, ranking the top fantasy baseball waiver wire pickups this week.`\
 https://nytimes.com/athletic/6373284/2025/05/22/fantasy-baseball-waiver-wire-pickups-featuring-jake-burger-will-warren-and-more/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/22/books/review/new-books-recommendations.html
 **Medicaid, Welfare and a Work Requirement**\
 `Readers respond to a guest essay by four Trump administration officials. Also: President Trump’s contentious meeting with the South African president.`\
 https://nytimes.com/2025/05/22/opinion/medicaid-welfare-work-requirement.html
-
-**‘Icks’ or ‘the best racing movie of all-time’? What drivers think of the F1 movie**\
-`F1 drivers have now seen an early screening of the upcoming F1 movie. Here's how they rate it (without spoilers)`\
-https://nytimes.com/athletic/6375568/2025/05/22/f1-movie-brad-pitt-formula-1-drivers/
-
-**Former Indianapolis Colts players, coaches react to Jim Irsay's death**\
-`Peyton Manning, Andrew Luck, Jonathan Taylor and T.Y. Hilton were among those who shared condolences. `\
-https://nytimes.com/athletic/6375360/2025/05/22/jim-irsay-indianapolis-colts-death-reactions/
-
-**Slaying Outside D.C. Jewish Museum Is Part of Global Surge in Antisemitism**\
-`Anti-Jewish attacks have increased since the Oct. 7 attacks by Hamas in 2023, and have remained high during Israel’s bombardment of Gaza, according to groups that monitor hate crimes around the world.`\
-https://nytimes.com/2025/05/22/world/europe/shooting-dc-jewish-museum-antisemitism.html
 
