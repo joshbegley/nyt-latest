@@ -1,3 +1,11 @@
+**With Garrett Crochet on a short leash, Liam Hendriks voices frustration about usage in loss**\
+`Hendriks, who has appeared in 11 games this season, expressed a desire to pitch more frequently.`\
+https://nytimes.com/athletic/6374134/2025/05/22/red-sox-garrett-crochet-liam-hendriks-mets/
+
+**Rory Delap's long throw rattled the Premier League's elite - and was discovered by accident**\
+`Liam Delap has made a name for himself in the top flight this season - as his dad, Rory, and Stoke did with a bullet like long throw`\
+https://nytimes.com/athletic/6364786/2025/05/22/long-throws-premier-league-rory-delap/
+
 **Jude Bellingham's shoulder surgery: What impact will it have on Real Madrid? Might they buy a midfielder?**\
 `Madrid are planning for the midfielder to undergo shoulder surgery after the Club World Cup, which is likely to keep him out for 12 weeks`\
 https://nytimes.com/athletic/6372360/2025/05/22/jude-bellingham-shoulder-surgery-real-madrid-impact/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/us/politics/bill-would-give-newborns-1000-in-trum
 **NBA takeaways: Pacers beat Knicks in OT thriller**\
 `The Knicks were ahead by double digits in the fourth quarter, but the Pacers stayed close enough to make a charge in the final minute.`\
 https://nytimes.com/athletic/6373881/2025/05/21/nba-playoffs-takeaways-knicks-pacers/
-
-**Two Israeli Embassy Staffers Shot and Killed Outside Event in Washington, Officials Say**\
-`Homeland Security Secretary Kristi Noem said that the shooting occurred near an event held at the Capital Jewish Museum.`\
-https://nytimes.com/2025/05/21/us/politics/israel-embassy-staffers-killed.html
-
-**Shades of Reggie Miller: Haliburton, Pacers hand Knicks fresh heartbreak**\
-`Tyrese Haliburton helped the Pacers rally from a 17-point deficit to stun the Knicks in overtime in Game 1 of the Eastern Conference finals.`\
-https://nytimes.com/athletic/6374111/2025/05/21/pacers-upset-knicks-heartbreak-tyrese-haliburton/
 

@@ -1,3 +1,11 @@
+**Jude Bellingham's shoulder surgery: What impact will it have on Real Madrid? Might they buy a midfielder?**\
+`Madrid are planning for the midfielder to undergo shoulder surgery after the Club World Cup, which is likely to keep him out for 12 weeks`\
+https://nytimes.com/athletic/6372360/2025/05/22/jude-bellingham-shoulder-surgery-real-madrid-impact/
+
+**The teams who never win have won this season - and football is better for it**\
+`Spurs waited 17 years, Newcastle 70 and Crystal Palace had never won a trophy - surely that is better than 'Big Six' dominance?`\
+https://nytimes.com/athletic/6371988/2025/05/22/newcastle-palace-kane-trophies/
+
 **Lynx best Bueckers, Wings, 85-81, in No. 1 pick's homecoming**\
 `Early MVP candidate Napheesa Collier led Minnesota with 28 points`\
 https://nytimes.com/athletic/6374079/2025/05/22/lynx-best-paige-bueckers-wings/
