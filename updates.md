@@ -1,3 +1,27 @@
+**'We’ve got to be an awful lot more mature': Oilers bemoan loss of control in Game 1**\
+`The Oilers held a two-goal lead over the Stars going into the third period, but a leaky penalty kill sent them to defeat.`\
+https://nytimes.com/athletic/6374311/2025/05/22/oilers-stars-game-1-penalties/
+
+**The New York Times in Print for Thursday, May 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/22/todays-new-york-times
+
+**Short of Prison Space, U.K. Looks to U.S. Model of Time Off for Good Conduct**\
+`An official review commissioned by the British government calls for criminals to earn earlier release, and cites Texas as a particular example.`\
+https://nytimes.com/2025/05/22/world/europe/prisons-britain-texas.html
+
+**White Afrikaners Are Trump’s Kind of Oppressed Minority**\
+`The race-baiting grift is alive and well in South Africa.`\
+https://nytimes.com/2025/05/22/opinion/south-africa-white-afrikaner-trump.html
+
+**An Unstable Panama Could Be a Disaster for the United States**\
+`By pushing Panama’s president for one concession after the next, Trump is weakening a government closely aligned with the United States.`\
+https://nytimes.com/2025/05/22/opinion/panama-canal-trump-mulino.html
+
+**The World Now Has a Word(le)-Loving Pope**\
+`Pope Leo’s fluency in English, Spanish and Italian will help him govern the global church — and the Vatican.`\
+https://nytimes.com/2025/05/22/opinion/pope-leo-english-spanish-italian.html
+
 **Israeli Embassy Aides Killed in Washington**\
 `The young couple were soon to be engaged and had been at the Capital Jewish Museum when a man, who shouted pro-Palestinian slogans, opened fire, the authorities said.`\
 https://nytimes.com/video/us/politics/100000010184293/israel-embassy-staffers-killed.html
