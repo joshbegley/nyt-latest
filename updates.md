@@ -1,3 +1,7 @@
+**An Officer Said She Was Disabled. Prosecutors Said She Ran, Skied and Danced.**\
+`Prosecutors said that Nicole Brown, 39, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
+https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
+
 **What We Know About the Accused Gunman in Washington**\
 `The suspect, Elias Rodriguez, has been charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
 https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-aides.html
