@@ -1,3 +1,15 @@
+**Millions Could Lose Food Stamp Benefits Under Republican Bill, Analysis Finds**\
+`Others could see their monthly benefits reduced if the bill were to become law, according to the nonpartisan Congressional Budget Office.`\
+https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
+
+**Gunman Fired Repeatedly at Young Couple Outside Jewish Museum, F.B.I. Says**\
+`The authorities said the shooter was motivated by opposition to the war in Gaza when he killed two young Israeli Embassy employees in Washington.`\
+https://nytimes.com/2025/05/22/us/dc-shooting-jewish-museum-israel-embassy.html
+
+**NC State lands Texas Tech transfer Darrion Williams in big recruiting win**\
+`Wolfpack's new coach beats out Kansas in landing All-Big 12 forward.`\
+https://nytimes.com/athletic/6376406/2025/05/22/nc-state-will-wade-transfer-darrion-williams/
+
 **The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
 `Breakout players such as Lukes can lift a baseball team from middling to October.`\
 https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
