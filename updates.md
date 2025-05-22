@@ -1,3 +1,11 @@
+**Native Tribes to Sue U.S. Over Abuse and Deaths at Boarding Schools**\
+`A class-action lawsuit to be filed in Pennsylvania will argue that Native tribes have never been compensated for the child abuse or for money taken from tribal trust funds to operate the schools.`\
+https://nytimes.com/2025/05/22/us/indian-boarding-schools-lawsuit.html
+
+**Life on TikTok Gave Him the Illusion of Love and a Sad, Brutal End**\
+`Sam Nordquist was an ebullient trans man who longed for love and fame. He drove halfway across the country to be with a woman he fell for online, certain he was fulfilling both dreams.`\
+https://nytimes.com/2025/05/22/nyregion/sam-nordquist-trans-man-murder.html
+
 **The Windup: Best MLB players since 2000**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6374530/2025/05/22/best-mlb-players-century-the-windup/

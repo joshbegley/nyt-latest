@@ -1,3 +1,11 @@
+**Native Tribes to Sue U.S. Over Abuse and Deaths at Boarding Schools**\
+`A class-action lawsuit to be filed in Pennsylvania will argue that Native tribes have never been compensated for the child abuse or for money taken from tribal trust funds to operate the schools.`\
+https://nytimes.com/2025/05/22/us/indian-boarding-schools-lawsuit.html
+
+**Life on TikTok Gave Him the Illusion of Love and a Sad, Brutal End**\
+`Sam Nordquist was an ebullient trans man who longed for love and fame. He drove halfway across the country to be with a woman he fell for online, certain he was fulfilling both dreams.`\
+https://nytimes.com/2025/05/22/nyregion/sam-nordquist-trans-man-murder.html
+
 **The Windup: Best MLB players since 2000**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6374530/2025/05/22/best-mlb-players-century-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/nyregion/kathryn-wylde-retire-nyc.html
 **Live Updates: Gunman Kills 2 Israeli Embassy Aides in Washington**\
 `The shooting occurred outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc
-
-**China’s BYD Outsells Tesla in Europe for First Time**\
-`Despite steep tariffs, the Chinese carmaker leapfrogged Tesla in April, in what an analyst called a “watershed moment” for the continent’s auto market.`\
-https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html
-
-**Enhanced Games claims swimmer broke two world records**\
-`Organisers said Greek swimmer Kristian Gkolomeev, who finished fifth at the Olympics, set two world records in the 50m freestyle.`\
-https://nytimes.com/athletic/6374748/2025/05/22/enhanced-games-world-records-kristian-gkolomeev/
 
