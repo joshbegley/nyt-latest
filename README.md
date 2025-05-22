@@ -1,3 +1,15 @@
+**Scoop City: How (and why) the Eagles pushed back**\
+`How the controversial play barely survived a league vote, plus a tribute to Colts owner Jim Irsay, who died Wednesday`\
+https://nytimes.com/athletic/6375357/2025/05/22/eagles-tush-push-ban-jim-irsay-death-colts-nfl-scoop-city/
+
+**Global Forest Loss Hit a Record Last Year as Fires Raged**\
+`Forests around the world disappeared at a rate of 18 soccer fields every minute, a global survey found. Fires accounted for nearly half of the losses.`\
+https://nytimes.com/2025/05/22/climate/deforestation-wri-report.html
+
+**Read the Full ‘Make America Healthy Again’ Report**\
+`The White House released an expansive report that blames a crisis of chronic disease in children on ultraprocessed foods, chemical exposures, lack of physical activity, stress and excessive use of prescription drugs.`\
+https://nytimes.com/interactive/2025/05/22/us/maha-master-docdocx.html
+
 **French Open draw: A gauntlet title defense for Iga Swiatek and first-round blockbusters galore**\
 `The French Open returns to Roland Garros for 2025, with a tough draw for Iga Świątek and a kinder one for Carlos Alcaraz.`\
 https://nytimes.com/athletic/6374868/2025/05/22/french-open-draw-2025-swiatek-alcaraz-djokovic-sabalenka/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6375410/2025/05/22/raul-real-madrid-castilla/
 **CFP management committee meeting to possibly switch to straight seeding format**\
 `The expected change would have the seeds match the selection committee’s final rankings, regardless of conference affiliation.`\
 https://nytimes.com/athletic/6375284/2025/05/22/cfp-commissioners-straight-seeding-2025/
-
-**'He failed and we won,' - Watching Ruben Amorim's Europa League final in the city he left behind**\
-`With Amorim 900km away in Bilbao, every table in a Lisbon city centre restaurant was reserved for fans to watch their local hero in a final`\
-https://nytimes.com/athletic/6373907/2025/05/22/ruben-amorim-watching-europa-league-final-in-lisbon-tottenham-manchester-united/
-
-**‘Fountain of Youth’ Review: John Krasinski Goes Continent Hopping**\
-`An adventurer enlists his disapproving sister (Natalie Portman) in this Guy Ritchie movie with a hint of Indiana Jones.`\
-https://nytimes.com/2025/05/22/movies/fountain-of-youth-review.html
-
-**The Old Man and the iPhone**\
-`Our modern conveniences are exhaustingly inconvenient.`\
-https://nytimes.com/2025/05/22/opinion/the-old-man-and-the-iphone.html
-
-**Knick of time: A look at how the Pacers rallied in the final minutes of Game 1**\
-`After an amazing fourth quarter, Indiana outscored New York 13-10 in overtime to prevail 138-135.`\
-https://nytimes.com/athletic/6375258/2025/05/22/pacers-knicks-comeback-game-1-nba-playoffs/
 
