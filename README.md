@@ -1,3 +1,7 @@
+**French Open draw: A gauntlet title defense for Iga Swiatek and first-round blockbusters galore**\
+`The French Open returns to Roland Garros for 2025, with a tough draw for Iga Świątek and a kinder one for Carlos Alcaraz.`\
+https://nytimes.com/athletic/6374868/2025/05/22/french-open-draw-2025-swiatek-alcaraz-djokovic-sabalenka/
+
 **It’s Early in Formula 1, and Ferrari Has Already Faded**\
 `The team and its drivers, Charles Leclerc and Lewis Hamilton, have struggled.`\
 https://nytimes.com/2025/05/22/sports/autoracing/f1-ferrari-monaco-leclerc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/opinion/the-old-man-and-the-iphone.html
 **Knick of time: A look at how the Pacers rallied in the final minutes of Game 1**\
 `After an amazing fourth quarter, Indiana outscored New York 13-10 in overtime to prevail 138-135.`\
 https://nytimes.com/athletic/6375258/2025/05/22/pacers-knicks-comeback-game-1-nba-playoffs/
-
-**Blackhawks hire Jeff Blashill as head coach: Why he's getting another shot**\
-`Blashill, 51, has been hired as the Blackhawks' head coach, a league source said, making him the 42nd head coach in franchise history.`\
-https://nytimes.com/athletic/6369049/2025/05/22/blackhawks-coach-jeff-blashill-hire-nhl/
 
