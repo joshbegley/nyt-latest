@@ -1,3 +1,15 @@
+**A New View of John Singer Sargent’s American Socialites**\
+`The rich expatriates Sargent painted in London were dismissed as “dollar princesses.” A new exhibition looks beyond that label to their achievements and inner lives.`\
+https://nytimes.com/2025/05/22/arts/design/john-singer-sargent-exhibit-kenwood-house.html
+
+**49ers' Tariq Ahmad goes deep on Nick Martin, CJ West and the entire draft class**\
+`Ahmad said two combine interviews stood out in this year's draft cycle. One of them was the team's top pick, defensive end Mykel Williams.`\
+https://nytimes.com/athletic/6374038/2025/05/22/49ers-nfl-draft-class-evaluations-tariq-ahmad/
+
+**Shooting of Israeli Embassy Employees Shakes Washington**\
+`The shooting occurred on a street outside the Capital Jewish Museum in Washington.`\
+https://nytimes.com/video/us/politics/100000010184415/shooting-of-israeli-embassy-employees-shakes-washington.html
+
 **Shooting of Israeli Embassy Employees Shakes Washington**\
 `The shooting occurred on a street outside the Capital Jewish Museum, near the heard of official Washington, where the American Jewish Committee was hosting a reception for young diplomats. The suspect shouted “Free, free Palestine” after he was detained.`\
 https://nytimes.com/video/us/politics/100000010184415/shooting-of-israeli-embassy-employees-shakes-washington.html
