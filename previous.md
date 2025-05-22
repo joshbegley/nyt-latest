@@ -1,3 +1,19 @@
+**Judge Blocks Trump Administration From Dismantling Education Department**\
+`The order issued by a federal judge in Boston also directs officials to reinstate thousands of fired employees.`\
+https://nytimes.com/2025/05/22/us/politics/judge-education-department.html
+
+**In Trump Era, Taiwan Defense Chief Says U.S. Still Is a Check on China**\
+`Wellington Koo says the Trump administration has a shared interest in security in the region, but Taiwan must also ready its own forces for asymmetric warfare.`\
+https://nytimes.com/2025/05/22/world/asia/trump-china-taiwan-security.html
+
+**Fresh Recipes for Touching Grass**\
+`Naan-o paneer-o sabzi, cauliflower salad sandwiches and pimento cheese taste even better outdoors.`\
+https://nytimes.com/2025/05/22/dining/vegetarian-recipes-to-eat-outdoors.html
+
+**Ukraine Fires Hundreds of Drones at Russia, Moscow Says**\
+`One of the biggest barrages of the war targeted 10 Russian regions, including Moscow, according to the Ministry of Defense, but it was not clear how much damage the attack did.`\
+https://nytimes.com/2025/05/22/world/europe/ukraine-russia-drones.html
+
 **Toyin Ojih Odutola Is Drawing Up Worlds**\
 `The Nigerian American artist takes pencil and pastel to monumental scale. Her newest works are her most personal yet, and her most universal.`\
 https://nytimes.com/2025/05/22/arts/design/toyin-ojih-odutola-jack-shainman-gallery.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6375357/2025/05/22/eagles-tush-push-ban-jim-irsay-d
 **Global Forest Loss Hit a Record Last Year as Fires Raged**\
 `Forests around the world disappeared at a rate of 18 soccer fields every minute, a global survey found. Fires accounted for nearly half of the losses.`\
 https://nytimes.com/2025/05/22/climate/deforestation-wri-report.html
-
-**Read the Full ‘Make America Healthy Again’ Report**\
-`The White House released an expansive report that blames a crisis of chronic disease in children on ultraprocessed foods, chemical exposures, lack of physical activity, stress and excessive use of prescription drugs.`\
-https://nytimes.com/interactive/2025/05/22/us/maha-master-docdocx.html
-
-**French Open draw: A gauntlet title defense for Iga Światek and first-round blockbusters galore**\
-`The French Open returns to Roland Garros for 2025, with a tough draw for Iga Świątek and a kinder one for Carlos Alcaraz.`\
-https://nytimes.com/athletic/6374868/2025/05/22/french-open-draw-2025-swiatek-alcaraz-djokovic-sabalenka/
-
-**It’s Early in Formula 1, and Ferrari Has Already Faded**\
-`The team and its drivers, Charles Leclerc and Lewis Hamilton, have struggled.`\
-https://nytimes.com/2025/05/22/sports/autoracing/f1-ferrari-monaco-leclerc.html
-
-**Formula 1 Tries to Make the Monaco Grand Prix More Exciting**\
-`Because overtaking is rare, the race can be dull. So the sport has ruled that two pit stops are now mandatory in a bid to spice things up.`\
-https://nytimes.com/2025/05/22/sports/autoracing/f1-monaco-grand-prix-pit-stops.html
 

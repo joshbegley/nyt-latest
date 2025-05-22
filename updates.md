@@ -1,3 +1,19 @@
+**Judge Blocks Trump Administration From Dismantling Education Department**\
+`The order issued by a federal judge in Boston also directs officials to reinstate thousands of fired employees.`\
+https://nytimes.com/2025/05/22/us/politics/judge-education-department.html
+
+**In Trump Era, Taiwan Defense Chief Says U.S. Still Is a Check on China**\
+`Wellington Koo says the Trump administration has a shared interest in security in the region, but Taiwan must also ready its own forces for asymmetric warfare.`\
+https://nytimes.com/2025/05/22/world/asia/trump-china-taiwan-security.html
+
+**Fresh Recipes for Touching Grass**\
+`Naan-o paneer-o sabzi, cauliflower salad sandwiches and pimento cheese taste even better outdoors.`\
+https://nytimes.com/2025/05/22/dining/vegetarian-recipes-to-eat-outdoors.html
+
+**Ukraine Fires Hundreds of Drones at Russia, Moscow Says**\
+`One of the biggest barrages of the war targeted 10 Russian regions, including Moscow, according to the Ministry of Defense, but it was not clear how much damage the attack did.`\
+https://nytimes.com/2025/05/22/world/europe/ukraine-russia-drones.html
+
 **Toyin Ojih Odutola Is Drawing Up Worlds**\
 `The Nigerian American artist takes pencil and pastel to monumental scale. Her newest works are her most personal yet, and her most universal.`\
 https://nytimes.com/2025/05/22/arts/design/toyin-ojih-odutola-jack-shainman-gallery.html
