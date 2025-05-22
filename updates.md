@@ -1,3 +1,11 @@
+**Toyin Ojih Odutola Is Drawing Up Worlds**\
+`The Nigerian American artist takes pencil and pastel to monumental scale. Her newest works are her most personal yet, and her most universal.`\
+https://nytimes.com/2025/05/22/arts/design/toyin-ojih-odutola-jack-shainman-gallery.html
+
+**AS-CELLREASEARCH-Q225**\
+`CELLRESEARCH Summer 25`\
+https://nytimes.com/paidpost/consumer-health-pte-ltd/summer-2025/as-cellreasearch-q225.html
+
 **Prosecutors Won’t Retry Michigan Officer for Murder After Mistrial**\
 `A former Grand Rapids, Mich., police officer, Christopher Schurr, will not face a new murder trial in the 2022 killing of Patrick Lyoya after a jury failed to reach a verdict this month.`\
 https://nytimes.com/2025/05/22/us/michigan-christopher-schurr-murder-mistrial.html
