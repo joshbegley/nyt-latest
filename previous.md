@@ -1,3 +1,11 @@
+**Fantasy baseball waiver wire pickups featuring Jake Burger, Will Warren and more**\
+`John Laghezza crunches the numbers so you don't have to, ranking the top fantasy baseball waiver wire pickups this week.`\
+https://nytimes.com/athletic/6373284/2025/05/22/fantasy-baseball-waiver-wire-pickups-featuring-jake-burger-will-warren-and-more/
+
+**Who Is Julius Malema, the South African Politician in the White House Video?**\
+`President Trump surprised a South African delegation with a video montage of apartheid-era chants from Mr. Malema.`\
+https://nytimes.com/2025/05/22/world/africa/julius-malema-south-africa-white-house-video.html
+
 **Scarlett Johansson Unveils Her Newest Role at Cannes: Filmmaker**\
 `The star came across the script for “Eleanor the Great,” already starring June Squibb, and instantly realized, “I know how to make it.” Now she wants to direct again.`\
 https://nytimes.com/2025/05/22/movies/scarlett-johansson-cannes-eleanor-the-great.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6375360/2025/05/22/jim-irsay-indianapolis-colts-dea
 **Slaying Outside D.C. Jewish Museum Is Part of Global Surge in Antisemitism**\
 `Anti-Jewish attacks have increased since the Oct. 7 attacks by Hamas in 2023, and have remained high during Israel’s bombardment of Gaza, according to groups that monitor hate crimes around the world.`\
 https://nytimes.com/2025/05/22/world/europe/shooting-dc-jewish-museum-antisemitism.html
-
-**Over $420,000 worth of fines levied on Wolves' Anthony Edwards this season**\
-`The NBA fined Edwards $50,000 on Thursday for "using profane language during a media interview" after Game 1 of the West finals.`\
-https://nytimes.com/athletic/6375704/2025/05/22/anthony-edwards-fines-timberwolves-nba-season/
-
-**4 Key Takeaways from a New White House Report on Children’s Health**\
-`The report echoes many of Health Secretary Robert F. Kennedy Jr.’s talking points on ultraprocessed foods and vaccines, but with some notable omissions.`\
-https://nytimes.com/2025/05/22/well/rfk-jr-maha-report-takeaways.html
 

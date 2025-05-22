@@ -1,3 +1,11 @@
+**Fantasy baseball waiver wire pickups featuring Jake Burger, Will Warren and more**\
+`John Laghezza crunches the numbers so you don't have to, ranking the top fantasy baseball waiver wire pickups this week.`\
+https://nytimes.com/athletic/6373284/2025/05/22/fantasy-baseball-waiver-wire-pickups-featuring-jake-burger-will-warren-and-more/
+
+**Who Is Julius Malema, the South African Politician in the White House Video?**\
+`President Trump surprised a South African delegation with a video montage of apartheid-era chants from Mr. Malema.`\
+https://nytimes.com/2025/05/22/world/africa/julius-malema-south-africa-white-house-video.html
+
 **Scarlett Johansson Unveils Her Newest Role at Cannes: Filmmaker**\
 `The star came across the script for “Eleanor the Great,” already starring June Squibb, and instantly realized, “I know how to make it.” Now she wants to direct again.`\
 https://nytimes.com/2025/05/22/movies/scarlett-johansson-cannes-eleanor-the-great.html
