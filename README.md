@@ -1,3 +1,7 @@
+**Man Utd's awful Europa League final - Amorim's vow, Garnacho tensions, Glazer and Ratcliffe booed at staff party**\
+`The fallout from a tense evening in Bilbao when Manchester United's hopes of saving their season evaporated `\
+https://nytimes.com/athletic/6374097/2025/05/22/manchester-united-europa-league-fallout/
+
 **Futures of Martinelli and Trossard may prove key if Arsenal need to sell to buy**\
 `Mikel Arteta would like to keep both wide forwards at Arsenal, but things could change if a big offer came in`\
 https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-martinelli-and-trossard-may-prove-key-to-summer-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374311/2025/05/22/oilers-stars-game-1-penalties/
 **The New York Times in Print for Thursday, May 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/22/todays-new-york-times
-
-**Short of Prison Space, U.K. Looks to U.S. Model of Time Off for Good Conduct**\
-`An official review commissioned by the British government calls for criminals to earn earlier release, and cites Texas as a particular example.`\
-https://nytimes.com/2025/05/22/world/europe/prisons-britain-texas.html
 
