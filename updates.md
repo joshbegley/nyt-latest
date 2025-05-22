@@ -1,3 +1,19 @@
+**Are You Smarter Than a Billionaire?**\
+`The difference between two similar looking paintings can be millions of dollars. Can you spot the most expensive ones from New York’s recent auction week?`\
+https://nytimes.com/interactive/2025/05/22/arts/design/auction-quiz.html
+
+**Supreme Court Lets Trump, for Now, Remove Agency Leaders**\
+`An appeals court previously ruled that a key 1935 precedent, long in the cross hairs of the conservative legal movement, meant the officials could keep their jobs.`\
+https://nytimes.com/2025/05/22/us/supreme-court-trump-agency-firings.html
+
+**‘Sirens’ Is a Poppy Summer Getaway**\
+`The new Netflix series, starring Meghann Fahy, Milly Alcock and Julianne Moore, isn’t breaking any boundaries, but it is often entertaining.`\
+https://nytimes.com/2025/05/22/arts/television/sirens-netflix.html
+
+**Trump Administration Opens Investigation Into Diversity Efforts at Virginia School**\
+`The inquiry is the latest attempt to apply the Supreme Court’s affirmative action ban to K-12 education.`\
+https://nytimes.com/2025/05/22/us/trump-fairfax-schools-investigation.html
+
 **Judge weighs text evidence after Brett Howden's emotional testimony**\
 `Judge's ruling on whether the former Canadian junior team member's text message will be admissible is expected Friday morning.`\
 https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/
