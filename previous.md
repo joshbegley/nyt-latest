@@ -1,3 +1,7 @@
+**Bond Market Shudders as Tax Bill Deepens Deficit Worries**\
+`Financial markets are looking for more “fiscal discipline” from Washington, a top official at the Federal Reserve warned.`\
+https://nytimes.com/2025/05/22/us/politics/bond-market-debt-deficit.html
+
 **A New View of John Singer Sargent’s American Socialites**\
 `The rich expatriates Sargent painted in London were dismissed as “dollar princesses.” A new exhibition looks beyond that label to their achievements and inner lives.`\
 https://nytimes.com/2025/05/22/arts/design/john-singer-sargent-exhibit-kenwood-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374748/2025/05/22/enhanced-games-world-records-kri
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6374720/2025/05/22/ask-ornstein-qa-our-football-insider-answers-your-questions-27/
-
-**Indy 500's Penske cheating scandal explained: Why the IndyCar power was penalized**\
-`Two Penske favorites and former champions will start at the back Sunday in the Indy 500 after a violation. Here's what you need to know.`\
-https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-penske-explained/
 
