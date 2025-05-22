@@ -1,3 +1,15 @@
+**Killings Echo Earlier Assassination of Israeli Diplomat**\
+`In 1973, Col. Yosef Alon, an Israeli military attaché, was gunned down in front of his home in suburban Maryland. The gunman was never identified despite an extensive F.B.I. investigation.`\
+https://nytimes.com/2025/05/22/us/politics/israeli-yosef-alon-killing-dc-shooting.html
+
+**A Mission: Impossible Movie Headline Game**\
+`We picked 20 movies, including the new “Mission: Impossible,” and found the headlines that ran with each New York Times review. Your mission, should you choose to accept it, is to pair them correctly. The world is counting on you.`\
+https://nytimes.com/interactive/2025/05/22/movies/mission-impossible-game.html
+
+**Why Lucali (Still) Isn’t On Our Best Pizza List**\
+`The Brooklyn spot beloved by celebrities isn’t worth your time.`\
+https://nytimes.com/2025/05/22/dining/why-lucali-still-isnt-on-our-best-pizza-list.html
+
 **Before they were killed, the two diplomats had attended a reception on humanitarian diplomacy.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/before-they-were-killed-the-two-diplomats-had-attended-a-reception-on-humanitarian-diplomacy
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
 **Mobley and Daniels top 2 vote-getters on NBA's All-Defensive First Team**\
 `For the second year, the NBA employed “positionless” voting, asking voters to select the most deserving players, regardless of position.`\
 https://nytimes.com/athletic/6375450/2025/05/22/nba-all-defensive-team-evan-mobley/
-
-**David Adelman named head coach of Nuggets**\
-`Adelman coached the final three games of the regular season and through two rounds of the postseason.`\
-https://nytimes.com/athletic/6376011/2025/05/22/david-adelman-nuggets-head-coach-hired/
-
-**Mets takeaways: Huascar Brazobán's confidence, power outage for 2 sluggers and more**\
-`Brazobán barely made the Opening Day roster. Now he's one of Carlos Mendoza's most-trusted high-leverage relievers. `\
-https://nytimes.com/athletic/6375843/2025/05/22/mets-huascar-brazoban-mark-vientos-francisco-alvarez/
-
-**Regulators Are Investigating Whether Media Matters Colluded With Advertisers**\
-`Elon Musk previously sued the advocacy group over critical research on his social media platform X over claims it drove away advertisers.`\
-https://nytimes.com/2025/05/22/technology/ftc-investigates-media-matters.html
 
