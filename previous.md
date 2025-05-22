@@ -1,3 +1,11 @@
+**What I'm hearing about the Maple Leafs, Brad Treliving's role and replacing Brendan Shanahan**\
+`The Leafs are in no hurry to replace Shanahan at the top of their front office, sources said, and will not change Treliving's GM role.`\
+https://nytimes.com/athletic/6376345/2025/05/22/brad-treliving-maple-leafs-brendan-shanahan/
+
+**Can the Oilers rebound after their Game 1 loss? History is on their side**\
+`Falling behind 1-0 in a series is nothing new for Edmonton in the Connor McDavid era.`\
+https://nytimes.com/athletic/6376287/2025/05/22/oilers-playoffs-stars-game-2/
+
 **U.S. to Impose Sanctions on Sudan Over Use of Chemical Weapons**\
 `The State Department’s announcement comes months after U.S. officials found evidence that Sudan’s military had used chemical weapons against its paramilitary rival.`\
 https://nytimes.com/2025/05/22/world/africa/us-sanctions-sudan-chemical-weapons.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6376379/2025/05/22/chicago-cubs-all-star-game-wrigl
 `Democrats have argued that House Republicans’ measure would rob courts of their power by stripping away any consequences for officials who ignore judges’ rulings.`\
 https://nytimes.com/2025/05/22/us/politics/trump-policy-bill-judges-contempt.html
 
-**Yankees might face good problem with Jazz Chisholm Jr.'s nearing return**\
+**Yankees might face good problem with Jazz Chisholm Jr. nearing a return**\
 `DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
 `\
 https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/22/us/shooting-cia-headquarters-virginia.html
 **For Washington’s Jewish community, the killings are ‘the nightmare that we’ve all been afraid of.’**\
 `By Juliet Macur`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/for-washingtons-jewish-community-the-killings-are-the-nightmare-that-weve-all-been-afraid-of
-
-**YouTube poaches ESPN executive Justin Connolly to lead sports: Source**\
-`By hiring Connolly, YouTube is indicating it could be going into sports overdrive.`\
-https://nytimes.com/athletic/6376290/2025/05/22/youtube-hires-espn-executive-justin-connolly/
-
-**Trump’s New Penalty for Undocumented Immigrants: Billions of Dollars in Fines**\
-`The financial penalties are part of an effort to get people to “self-deport.”`\
-https://nytimes.com/2025/05/22/us/politics/trump-administration-fine-undocument-immigrants.html
 

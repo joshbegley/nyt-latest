@@ -1,3 +1,15 @@
+**If This Movie Wins the Palme d’Or, It Will Extend a Staggering Streak**\
+`The distributor Neon has been on a run at the Cannes Film Festival, and it has three movies, including “Sentimental Value,” considered front-runners.`\
+https://nytimes.com/2025/05/22/movies/cannes-neon-sentimental-value-elle-fanning.html
+
+**The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
+`Breakout players like Lukes can lift a baseball team from middling to October.`\
+https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
+
+**Cargo Ship Crashes Into Norway Man’s Backyard**\
+`A retiree living in a small house on the shore of a fjord woke up on Thursday morning because his neighbor was pounding on his door, telling him to look outside.`\
+https://nytimes.com/2025/05/22/world/europe/norway-ship-crash-backyard.html
+
 **What I'm hearing about the Maple Leafs, Brad Treliving's role and replacing Brendan Shanahan**\
 `The Leafs are in no hurry to replace Shanahan at the top of their front office, sources said, and will not change Treliving's GM role.`\
 https://nytimes.com/athletic/6376345/2025/05/22/brad-treliving-maple-leafs-brendan-shanahan/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-
 **A Mayor’s Son Prepares to Inherit the Job His Father Never Got to Finish**\
 `In Pittsburgh, Corey O’Connor’s victory in the Democratic primary represents a turn from progressive policies — and a chance for him to run the city his father once led.`\
 https://nytimes.com/2025/05/22/us/corey-oconnor-pittsburgh-democrat-candidate-mayor.html
-
-**Judith Hope Blau, Who Turned Bagels Into Art, Dies at 87**\
-`She began selling necklaces strung with mini-bagels on a dare from her husband. Bagelmania (and a career as a toy designer) ensued.`\
-https://nytimes.com/2025/05/22/arts/design/judith-hope-blau-dead.html
-
-**Woman Is Shot After Driving Onto C.I.A. Grounds, Officials Say**\
-`The F.B.I. said there was “no ongoing threat.” The woman, whose injuries were not life-threatening, was believed to have been driving under the influence, according to people briefed on the episode.`\
-https://nytimes.com/2025/05/22/us/shooting-cia-headquarters-virginia.html
-
-**For Washington’s Jewish community, the killings are ‘the nightmare that we’ve all been afraid of.’**\
-`By Juliet Macur`\
-https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/for-washingtons-jewish-community-the-killings-are-the-nightmare-that-weve-all-been-afraid-of
 

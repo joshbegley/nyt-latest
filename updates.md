@@ -1,3 +1,16 @@
+**What I'm hearing about the Maple Leafs, Brad Treliving's role and replacing Brendan Shanahan**\
+`The Leafs are in no hurry to replace Shanahan at the top of their front office, sources said, and will not change Treliving's GM role.`\
+https://nytimes.com/athletic/6376345/2025/05/22/brad-treliving-maple-leafs-brendan-shanahan/
+
+**Can the Oilers rebound after their Game 1 loss? History is on their side**\
+`Falling behind 1-0 in a series is nothing new for Edmonton in the Connor McDavid era.`\
+https://nytimes.com/athletic/6376287/2025/05/22/oilers-playoffs-stars-game-2/
+
+**Yankees might face good problem with Jazz Chisholm Jr. nearing a return**\
+`DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
+`\
+https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
+
 **U.S. to Impose Sanctions on Sudan Over Use of Chemical Weapons**\
 `The State Department’s announcement comes months after U.S. officials found evidence that Sudan’s military had used chemical weapons against its paramilitary rival.`\
 https://nytimes.com/2025/05/22/world/africa/us-sanctions-sudan-chemical-weapons.html
