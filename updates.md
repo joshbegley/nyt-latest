@@ -1,3 +1,7 @@
+**A Very Old Tower’s Much Newer Roof Collapses, Raising Questions in China**\
+`The Drum Tower in Fengyang County, which dates to the 14th century, is one of many historical sites that have been renovated as cultural tourism has boomed.`\
+https://nytimes.com/2025/05/22/world/asia/china-drum-tower-collapse.html
+
 **Inside the Knicks' biggest collapse ever**\
 `Knicks fans have seen it all. They've never seen this, though: a loss so jaw-dropping that it somehow silenced the city that never sleeps.`\
 https://nytimes.com/athletic/6374350/2025/05/22/knicks-biggest-collapse-ever-pacers-game-1/
