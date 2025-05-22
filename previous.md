@@ -1,3 +1,7 @@
+**At Cannes, Can You Trust the Length of a Standing Ovation?**\
+`The applause at premieres like “Mission: Impossible” or “The History of Sound” is often timed and reported breathlessly. But there’s more to the story.`\
+https://nytimes.com/2025/05/22/movies/cannes-standing-ovation.html
+
 **Pacers Pull Off All-Time Comeback to Steal Game 1**\
 `The Indiana team trailed the New York Knicks by 14 points with 2:50 remaining before going on to victory.`\
 https://nytimes.com/video/homepage/100000010184837/pacers-pull-off-all-time-comeback-to-steal-game-1.html
@@ -29,8 +33,4 @@ https://nytimes.com/paidpost/consumer-health-pte-ltd/summer-2025/as-cellreasearc
 **Prosecutors Won’t Retry Michigan Officer for Murder After Mistrial**\
 `A former Grand Rapids, Mich., police officer, Christopher Schurr, will not face a new murder trial in the 2022 killing of Patrick Lyoya after a jury failed to reach a verdict this month.`\
 https://nytimes.com/2025/05/22/us/michigan-christopher-schurr-murder-mistrial.html
-
-**Scoop City: How (and why) the Eagles pushed back**\
-`How the controversial play barely survived a league vote, plus a tribute to Colts owner Jim Irsay, who died Wednesday`\
-https://nytimes.com/athletic/6375357/2025/05/22/eagles-tush-push-ban-jim-irsay-death-colts-nfl-scoop-city/
 

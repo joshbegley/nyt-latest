@@ -1,3 +1,7 @@
+**At Cannes, Can You Trust the Length of a Standing Ovation?**\
+`The applause at premieres like “Mission: Impossible” or “The History of Sound” is often timed and reported breathlessly. But there’s more to the story.`\
+https://nytimes.com/2025/05/22/movies/cannes-standing-ovation.html
+
 **Pacers Pull Off All-Time Comeback to Steal Game 1**\
 `The Indiana team trailed the New York Knicks by 14 points with 2:50 remaining before going on to victory.`\
 https://nytimes.com/video/homepage/100000010184837/pacers-pull-off-all-time-comeback-to-steal-game-1.html
