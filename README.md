@@ -1,3 +1,7 @@
+**Airplane Stowaway Is Convicted of Infiltrating Flight to Paris**\
+`Svetlana Dali scooted from bathroom to bathroom in the Boeing and wandered its aisles. She testified in her own behalf and interrupted the trial repeatedly.`\
+https://nytimes.com/2025/05/22/nyregion/svetlana-dali-stowaway-convicted.html
+
 **Aid Finally Arrives in Gaza After Two-Month Israeli Blockade**\
 `The United Nations said about 90 truckloads of aid had entered Gaza by Thursday, the first major delivery of food that Israel has allowed in after a two-month blockade that caused widespread hunger and deepened the humanitarian crisis.`\
 https://nytimes.com/video/world/middleeast/100000010185077/gaza-aid-trucks.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-p
 `The billionaire’s marriage to David Armstrong ended with the familiar “irreconcilable differences.” Is Mr. Geffen’s fortune in jeopardy?`\
 https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
 
-**Mobley and Daniels top 2 vote getters on NBA's All-Defensive First Team**\
+**Mobley and Daniels top 2 vote-getters on NBA's All-Defensive First Team**\
 `For the second year, the NBA employed “positionless” voting, asking voters to select the most deserving players, regardless of position.`\
 https://nytimes.com/athletic/6375450/2025/05/22/nba-all-defensive-team-evan-mobley/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/opinion/uh-language-change-linguistics.html
 **Pochettino uses USMNT Gold Cup squad to send a pointed message**\
 `With so many squad regulars out for varying reasons and a sense of urgency only growing as the World Cup nears, the U.S. manager has his say`\
 https://nytimes.com/athletic/6375841/2025/05/22/usmnt-gold-cup-roster-mauricio-pochettino-message/
-
-**Is It Ever OK to Touch a Stranger?**\
-`A tense exchange between the actor Denzel Washington and a photographer at Cannes is raising questions about laying hands on someone you don’t know.`\
-https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
 

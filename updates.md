@@ -1,3 +1,11 @@
+**Aid Finally Arrives in Gaza After Two-Month Israeli Blockade**\
+`The United Nations said about 90 truckloads of aid had entered Gaza by Thursday, the first major delivery of food that Israel has allowed in after a two-month blockade that caused widespread hunger and deepened the humanitarian crisis.`\
+https://nytimes.com/video/world/middleeast/100000010185077/gaza-aid-trucks.html
+
+**Mets takeaways: Huascar Brazobán's confidence, power outage for 2 sluggers and more**\
+`Brazobán barely made the Opening Day roster. Now he's one of Carlos Mendoza's most-trusted high-leverage relievers. `\
+https://nytimes.com/athletic/6375843/2025/05/22/mets-huascar-brazoban-mark-vientos-francisco-alvarez/
+
 **What the Giants can expect from Jordan Hicks out of the bullpen**\
 `Moving back to the bullpen was always Plan B after the Giants signed Hicks. Now that he's a reliever again, how will he fit in the bullpen?`\
 https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-profile/
