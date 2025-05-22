@@ -1,3 +1,15 @@
+**Is It Ever OK to Touch a Stranger?**\
+`A tense exchange between the actor Denzel Washington and a photographer at Cannes is raising questions about laying hands on someone you don’t know.`\
+https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
+
+**Fantasy bullpen report featuring Andrew Kittredge, Luke Jackson, Trevor Megill and more**\
+`Greg Jewett offers top-notch fantasy baseball advice on the state of team bullpens, along with players to target and those with concerns. `\
+https://nytimes.com/athletic/6375634/2025/05/22/fantasy-bullpen-report-featuring-andrew-kittredge-luke-jackson-trevor-megill-and-more/
+
+**End of the Penny Grows Near**\
+`The cost of producing a penny skyrocketed in recent years, reaching 3.69 cents, according to the Treasury Department.`\
+https://nytimes.com/2025/05/22/us/politics/penny-manufacturing.html
+
 **Fantasy baseball waiver wire pickups featuring Jake Burger, Will Warren and more**\
 `John Laghezza crunches the numbers so you don't have to, ranking the top fantasy baseball waiver wire pickups this week.`\
 https://nytimes.com/athletic/6373284/2025/05/22/fantasy-baseball-waiver-wire-pickups-featuring-jake-burger-will-warren-and-more/
