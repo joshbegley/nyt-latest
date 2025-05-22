@@ -1,3 +1,11 @@
+**Gotham, Tigres advance to Concacaf Champions Cup Final**\
+`Gotham and Tigres move on to Saturday's match with emphatic victories over Club América and the Portland Thorns.`\
+https://nytimes.com/athletic/6374312/2025/05/22/gotham-tigres-advance-concacaf-champions-cup-final/
+
+**Why Yankees’ Jasson Domínguez impressed Aaron Judge before walk-off home run vs. Rangers**\
+`Domínguez's solo homer in the ninth inning gave the Yankees a 4-3 win over the Rangers and sent Yankee Stadium into a frenzy.`\
+https://nytimes.com/athletic/6374229/2025/05/22/yankees-jasson-dominguez-aaron-judge-walk-off-home-run-rangers/
+
 **Thursday Briefing**\
 `A fraught White House meeting.`\
 https://nytimes.com/2025/05/22/briefing/trump-south-africa-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/opinion/pope-leo-english-spanish-italian.html
 **Israeli Embassy Aides Killed in Washington**\
 `The young couple were soon to be engaged and had been at the Capital Jewish Museum when a man, who shouted pro-Palestinian slogans, opened fire, the authorities said.`\
 https://nytimes.com/video/us/politics/100000010184293/israel-embassy-staffers-killed.html
-
-**Oilers out of their depth as Matt Duchene and Stars' other scorers finally step up**\
-`The Stars didn't need to rely on Mikko Rantanen (or Jake Oettinger) to carry them to victory — and that's good news for Dallas.`\
-https://nytimes.com/athletic/6374227/2025/05/22/oilers-stars-duchene-game-1/
-
-**Connections: Sports Edition Coach: Hints for May 22, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6374259/2025/05/22/connections-sports-edition-hints-for-may-22-2025/
 
