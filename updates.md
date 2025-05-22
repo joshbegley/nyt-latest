@@ -1,3 +1,7 @@
+**Here are some of the changes to the House bill unveiled Wednesday night.**\
+`By The New York Times`\
+https://nytimes.com/2025/05/21/us/politics/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night.html
+
 **Stars turn former weakness into strength, rally to beat Oilers in Game 1: Takeaways**\
 `Dallas, trailing by two goals to start the third period, earned a 6-3 victory to open the Western Conference final.`\
 https://nytimes.com/athletic/6374112/2025/05/21/stars-oilers-game-1/
