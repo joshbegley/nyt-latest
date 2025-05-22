@@ -1,3 +1,15 @@
+**Lynx best Bueckers, Wings, 85-81, in No. 1 pick's homecoming**\
+`Early MVP candidate Napheesa Collier led Minnesota with 28 points`\
+https://nytimes.com/athletic/6374079/2025/05/22/lynx-best-paige-bueckers-wings/
+
+**What Trump’s Apple Threat Means for India’s Tariff Negotiations**\
+`Apple and India have invested years and billions of dollars in teaming up against China. India sees it as a strength. To President Trump, it looks like leverage.`\
+https://nytimes.com/2025/05/22/business/trump-tariffs-india-apple.html
+
+**Corrections: May 22, 2025**\
+`Corrections that appeared in print on Thursday, May 22, 2025.`\
+https://nytimes.com/2025/05/22/pageoneplus/corrections-may-22-2025.html
+
 **Quote of the Day: George Wendt, 76, Who Played One of America’s Favorite Barflies, Dies**\
 `Quotation of the Day for Thursday, May 22, 2025.”`\
 https://nytimes.com/2025/05/21/pageoneplus/quote-of-the-day-george-wendt-76-who-played-one-of-americas-favorite-barflies-dies.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6374106/2025/05/21/blue-jays-kevin-gausman-splitter
 **Stars turn former weakness into strength, rally to beat Oilers in Game 1: Takeaways**\
 `Dallas, trailing by two goals to start the third period, earned a 6-3 victory to open the Western Conference final.`\
 https://nytimes.com/athletic/6374112/2025/05/21/stars-oilers-game-1/
-
-**Here are some of the changes to the House bill unveiled Wednesday night.**\
-`By The New York Times`\
-https://nytimes.com/live/2025/05/21/us/trump-news/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night
-
-**Trump Casts Himself as a Protector of Persecuted White People**\
-`President Trump publicly dressed down the president of South Africa based on a fringe conspiracy theory, providing a vivid distillation of his views on race.`\
-https://nytimes.com/2025/05/21/us/politics/trump-race-south-africa.html
-
-**Christian Pulisic missing Gold Cup: Bad look for the player, bad break for USMNT**\
-`At a time when the USMNT needs an uptick in fortune, form and vibes, its on-field leader won't be in uniform.`\
-https://nytimes.com/athletic/6373974/2025/05/21/christian-pulisic-out-gold-cup-usmnt-impact-pochettino/
 
