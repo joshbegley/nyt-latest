@@ -1,3 +1,11 @@
+**Without a Prenup, David Geffen’s Divorce Could Get Interesting**\
+`The billionaire’s marriage to David Armstrong ended with the familiar “irreconcilable differences.” Is Mr. Geffen’s fortune in jeopardy?`\
+https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
+
+**Mobley and Daniels top 2 vote getters on NBA's All-Defensive First Team**\
+`For the second year, the NBA employed “positionless” voting, asking voters to select the most deserving players, regardless of position.`\
+https://nytimes.com/athletic/6375450/2025/05/22/nba-all-defensive-team-evan-mobley/
+
 **David Adelman named head coach of Nuggets**\
 `Adelman coached the final three games of the regular season and through two rounds of the postseason.`\
 https://nytimes.com/athletic/6376011/2025/05/22/david-adelman-nuggets-head-coach-hired/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
 https://nytimes.com/athletic/6375634/2025/05/22/fantasy-bullpen-report-featuring-andrew-kittredge-luke-jackson-trevor-megill-and-more/
 
 **End of the Penny Grows Near**\
-`The cost of producing a penny skyrocketed in recent years, reaching 3.69 cents, according to the Treasury Department.`\
+`The cost of producing a penny has skyrocketed in recent years, reaching 3.69 cents, according to the Treasury Department.`\
 https://nytimes.com/2025/05/22/us/politics/penny-manufacturing.html
-
-**Fantasy baseball waiver wire pickups featuring Jake Burger, Will Warren and more**\
-`John Laghezza crunches the numbers so you don't have to, ranking the top fantasy baseball waiver wire pickups this week.`\
-https://nytimes.com/athletic/6373284/2025/05/22/fantasy-baseball-waiver-wire-pickups-featuring-jake-burger-will-warren-and-more/
-
-**Who Is Julius Malema, the South African Politician in the White House Video?**\
-`President Trump surprised a South African delegation with a video montage of apartheid-era chants from Mr. Malema.`\
-https://nytimes.com/2025/05/22/world/africa/julius-malema-south-africa-white-house-video.html
 
