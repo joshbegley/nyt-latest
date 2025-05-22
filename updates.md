@@ -1,3 +1,7 @@
+**What the Giants can expect from Jordan Hicks out of the bullpen**\
+`Moving back to the bullpen was always Plan B after the Giants signed Hicks. Now that he's a reliever again, how will he fit in the bullpen?`\
+https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-profile/
+
 **Without a Prenup, David Geffen’s Divorce Could Get Interesting**\
 `The billionaire’s marriage to David Armstrong ended with the familiar “irreconcilable differences.” Is Mr. Geffen’s fortune in jeopardy?`\
 https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
