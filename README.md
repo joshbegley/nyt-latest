@@ -1,3 +1,7 @@
+**G7 Finance Ministers Show Unity in Support of Ukraine Against Russia**\
+`Top economic officials avoided a condemnation of U.S. tariffs but committed to trying to reduce “economic policy uncertainty.”`\
+https://nytimes.com/2025/05/22/us/politics/g7-unity-ukraine-against-russia.html
+
 **Blashill brings hope to Blackhawks but faces daunting task**\
 `Will Blashill be the coach who returns the Blackhawks to glory or will he be another franchise footnote?`\
 https://nytimes.com/athletic/6376063/2025/05/22/blackhawks-coach-jeff-blashill-rebuild-nhl/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6368883/2025/05/22/maple-leafs-brendan-shanahan-par
 `In 1973, Col. Yosef Alon, an Israeli military attaché, was gunned down in front of his home in suburban Maryland. The gunman was never identified despite an extensive F.B.I. investigation.`\
 https://nytimes.com/2025/05/22/us/politics/israeli-yosef-alon-killing-dc-shooting.html
 
-**A Mission: Impossible Movie Headline Game**\
+**A ‘Mission: Impossible’ Movie Game**\
 `We picked 20 movies, including the new “Mission: Impossible,” and found the headlines that ran with each New York Times review. Your mission, should you choose to accept it, is to pair them correctly. The world is counting on you.`\
 https://nytimes.com/interactive/2025/05/22/movies/mission-impossible-game.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/before-they-we
 **House Bill Would Derail Biden’s Signature Climate Law**\
 `If passed, a bill from the House of Representatives would sharply curtail the tax credits that have spurred a rise in clean energy investments.`\
 https://nytimes.com/2025/05/22/climate/house-bill-would-derail-bidens-signature-climate-law.html
-
-**Woman Who Sneaked Aboard Paris Flight and Hid in Bathrooms Is Convicted**\
-`Svetlana Dali scooted from bathroom to bathroom in the Boeing and wandered its aisles. She testified in her own behalf and interrupted the trial repeatedly.`\
-https://nytimes.com/2025/05/22/nyregion/svetlana-dali-stowaway-convicted.html
 
