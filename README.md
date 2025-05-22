@@ -1,3 +1,15 @@
+**Federal agents descend on the suspect’s apartment building in Chicago.**\
+`By Robert Chiarito and Claire Moses`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/federal-agents-descend-on-the-suspects-apartment-building-in-chicago
+
+**Adrienne Adams, Invoking Father’s Death, Says Cuomo Mismanaged Pandemic**\
+`In a deeply personal speech, Ms. Adams, who is running for mayor, will speak about her father’s death from Covid in 2020. She says that as governor, Mr. Cuomo “failed him.”`\
+https://nytimes.com/2025/05/22/nyregion/adrienne-adams-nyc-mayor-cuomo-covid.html
+
+**Eagles selling tush push T-shirts to celebrate NFL owners vote**\
+`Customers will press the "push here" button instead of “add to cart” when buying the shirt off the Eagles' website.`\
+https://nytimes.com/athletic/6375084/2025/05/22/eagles-tush-push-shirt/
+
 **The Bounce: The Pacers' mastery of late-game playoff comebacks has one comparison: Zombies!**\
 `Tyrese Haliburton and the Pacers continue stunning the basketball world with late-game comebacks. And we finally have an MVP announcement!`\
 https://nytimes.com/athletic/6374895/2025/05/22/tyrese-haliburton-pacers-knicks-nba-playoffs-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/22/arts/design/new-frida-kahlo-museum-mexico-city.ht
 **Native Tribes to Sue U.S. Over Abuse and Deaths at Boarding Schools**\
 `A class-action lawsuit to be filed in Pennsylvania will argue that Native tribes have never been compensated for the child abuse or for money taken from tribal trust funds to operate the schools.`\
 https://nytimes.com/2025/05/22/us/indian-boarding-schools-lawsuit.html
-
-**Life on TikTok Gave Him the Illusion of Love and a Sad, Brutal End**\
-`Sam Nordquist was an ebullient trans man who longed for love and fame. He drove halfway across the country to be with a woman he fell for online, certain he was fulfilling both dreams.`\
-https://nytimes.com/2025/05/22/nyregion/sam-nordquist-trans-man-murder.html
-
-**The Windup: Best MLB players since 2000**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6374530/2025/05/22/best-mlb-players-century-the-windup/
-
-**Bond Market Shudders as Tax Bill Deepens Deficit Worries**\
-`Financial markets are looking for more “fiscal discipline” from Washington, a top official at the Federal Reserve warned.`\
-https://nytimes.com/2025/05/22/us/politics/bond-market-debt-deficit.html
 
