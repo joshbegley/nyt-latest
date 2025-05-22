@@ -1,3 +1,7 @@
+**South Africans React to Ramaphosa’s Meeting With Trump**\
+`Some South Africans defended President Cyril Ramaphosa’s handling of President Trump’s false claims during a confrontational meeting in the Oval Office while others expressed dismay.`\
+https://nytimes.com/video/world/100000010184321/south-africa-trump-oval-office-genocide.html
+
 **Southwest Airlines to Tighten Restrictions on Portable Batteries on Flights**\
 `The carrier will require passengers to keep lithium batteries visible while in use in order to allow flight crews to respond more quickly in case one catches fire.`\
 https://nytimes.com/2025/05/22/business/southwest-airlines-portable-batteries.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374097/2025/05/22/manchester-united-europa-league-
 **Fernandes says he wants to stay at Man Utd, understands if club were to 'cash in'**\
 `“I’ve always said I will be here until the club says to me that it’s time to go,” Fernandes said after United's Europa League final loss.`\
 https://nytimes.com/athletic/6374528/2025/05/22/bruno-fernandes-manchester-united-future/
-
-**Futures of Martinelli and Trossard may prove key if Arsenal need to sell to buy**\
-`Mikel Arteta would like to keep both wide forwards at Arsenal, but things could change if a big offer came in`\
-https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-martinelli-and-trossard-may-prove-key-to-summer-plans/
 
