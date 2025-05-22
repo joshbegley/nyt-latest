@@ -1,3 +1,7 @@
+**South Africans React to Ramaphosa’s Meeting With Trump**\
+`Some South Africans defended President Cyril Ramaphosa’s handling of President Trump’s false claims during a confrontational meeting in the Oval Office while others expressed dismay.`\
+https://nytimes.com/video/world/100000010184321/south-africa-trump-oval-office-genocide.html
+
 **Southwest Airlines to Tighten Restrictions on Portable Batteries on Flights**\
 `The carrier will require passengers to keep lithium batteries visible while in use in order to allow flight crews to respond more quickly in case one catches fire.`\
 https://nytimes.com/2025/05/22/business/southwest-airlines-portable-batteries.html
