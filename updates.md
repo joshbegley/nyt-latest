@@ -1,3 +1,15 @@
+**Killings Echo Earlier Assassination of Israeli Diplomat**\
+`In 1973, Col. Yosef Alon, an Israeli military attaché, was gunned down in front of his home in suburban Maryland. The gunman was never identified despite an extensive F.B.I. investigation.`\
+https://nytimes.com/2025/05/22/us/politics/israeli-yosef-alon-killing-dc-shooting.html
+
+**A Mission: Impossible Movie Headline Game**\
+`We picked 20 movies, including the new “Mission: Impossible,” and found the headlines that ran with each New York Times review. Your mission, should you choose to accept it, is to pair them correctly. The world is counting on you.`\
+https://nytimes.com/interactive/2025/05/22/movies/mission-impossible-game.html
+
+**Why Lucali (Still) Isn’t On Our Best Pizza List**\
+`The Brooklyn spot beloved by celebrities isn’t worth your time.`\
+https://nytimes.com/2025/05/22/dining/why-lucali-still-isnt-on-our-best-pizza-list.html
+
 **Before they were killed, the two diplomats had attended a reception on humanitarian diplomacy.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/before-they-were-killed-the-two-diplomats-had-attended-a-reception-on-humanitarian-diplomacy
