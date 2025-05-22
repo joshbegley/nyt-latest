@@ -1,3 +1,7 @@
+**A Wonderfully Petulant Example of How Language Changes**\
+`Sometimes change comes not in the form of a new word but in the form of an “uh.”`\
+https://nytimes.com/2025/05/22/opinion/a-wonderfully-petulant-example-of-how-language-changes.html
+
 **Pochettino uses USMNT Gold Cup squad to send a pointed message**\
 `With so many squad regulars out for varying reasons and a sense of urgency only growing as the World Cup nears, the U.S. manager has his say`\
 https://nytimes.com/athletic/6375841/2025/05/22/usmnt-gold-cup-roster-mauricio-pochettino-message/

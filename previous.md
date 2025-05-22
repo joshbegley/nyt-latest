@@ -1,3 +1,7 @@
+**A Wonderfully Petulant Example of How Language Changes**\
+`Sometimes change comes not in the form of a new word but in the form of an “uh.”`\
+https://nytimes.com/2025/05/22/opinion/a-wonderfully-petulant-example-of-how-language-changes.html
+
 **Pochettino uses USMNT Gold Cup squad to send a pointed message**\
 `With so many squad regulars out for varying reasons and a sense of urgency only growing as the World Cup nears, the U.S. manager has his say`\
 https://nytimes.com/athletic/6375841/2025/05/22/usmnt-gold-cup-roster-mauricio-pochettino-message/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374626/2025/05/22/raphinha-barcelona-contract-exte
 **For Shai Gilgeous-Alexander and his NBA MVP rise, a childhood dream became reality**\
 `"I dreamt about (winning MVP) as a kid, but as a kid, it's a fake dream," Gilgeous-Alexander said during Wednesday's MVP acceptance speech.`\
 https://nytimes.com/athletic/6371534/2025/05/22/shai-gilgeous-alexander-thunder-nba-mvp/
-
-**9 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/05/22/books/review/new-books-recommendations.html
 
