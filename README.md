@@ -1,3 +1,7 @@
+**Blackhawks hire Jeff Blashill as head coach: Why he's getting another shot**\
+`Blashill, 51, has been hired as the Blackhawks' head coach, a league source said, making him the 42nd head coach in franchise history.`\
+https://nytimes.com/athletic/6369049/2025/05/22/blackhawks-coach-jeff-blashill-hire-nhl/
+
 **Inside a Harrowing, Hail-Damaged Flight: ‘We Thought It Was Our Last’**\
 `When an IndiGo flight from New Delhi ran into a severe hailstorm, a passenger described several terrifying minutes: “They were calling their gods, we were calling our gods.”`\
 https://nytimes.com/2025/05/22/world/europe/indigo-flight-hailstorm.html
@@ -30,11 +34,7 @@ https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html
 `It was the summer of 2020, in the wake of the murder of George Floyd. Lynden, Wash., a small town known for its politeness, continues to grapple with what happened.`\
 https://nytimes.com/2025/05/22/us/george-floyd-anniversary-protests.html
 
-**Arsenal transfer targets latest? Man Utd plans impacted by Europa League loss? - Ask Ornstein**\
-`David has pulled together his favourite questions and answers from today's exclusive Q&A session`\
+**Arsenal transfer targets latest? Man Utd's plans impacted by Europa final loss? - Ask Ornstein**\
+`David Ornstein has pulled together his favourite questions and answers from today's exclusive Q&A session`\
 https://nytimes.com/athletic/6375082/2025/05/22/transfer-news-manchester-united-arsenal-latest-chelsea/
-
-**Senate Republicans Kill California’s Ban on Gas-Powered Cars**\
-`In 50 years, California’s authority to set environmental rules that are tougher than national standards had never been challenged by Congress. Until now.`\
-https://nytimes.com/2025/05/22/climate/senate-republicans-electric-vehicles-california.html
 
