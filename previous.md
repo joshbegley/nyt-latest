@@ -1,3 +1,35 @@
+**Will the Wild's Gustavsson-Wallstedt goalie tandem be a 'rivalry' or partnership?**\
+`How the dynamic between the two netminders plays out, and how they perform, could go a long way in determining the Wild’s fate in 2025-26.`\
+https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie-dynamic/
+
+**How plausible is the idea of Sabres pursuing Mitch Marner in free agency?**\
+`Adding a 100-point player like Marner is a rare opportunity and one worth exploring for Buffalo.`\
+https://nytimes.com/athletic/6373334/2025/05/22/sabres-mitch-marner-nhl-free-agency/
+
+**Parity has reached the NBA playoffs; you should enjoy watching the new leading men on stage**\
+`The days of the dynasties are over as the NBA has leveled the playing field across the league. `\
+https://nytimes.com/athletic/6370692/2025/05/22/parity-2025-nba-playoffs-thunder-wolves-knicks-pacers/
+
+**Who is most important to the Chargers’ success in 2025? Counting down the top 10**\
+`As is almost always the case, quarterback Justin Herbert is the most important player. But who else cracks the top 10? `\
+https://nytimes.com/athletic/6371576/2025/05/22/chargers-most-important-2025-part-2/
+
+**Red Wings offseason targets: Mitch Marner, Sam Bennett lead the list**\
+`The Red Wings have some clearly defined needs as they look to snap a nine-year playoff drought. Here's who could fill them.`\
+https://nytimes.com/athletic/6371158/2025/05/22/red-wings-offseason-targets-mitch-marner-sam-bennett/
+
+**Dissecting Manchester United's nightmare season: Heartbreak in Europe and nowhere in the league**\
+`Why has Man Utd's season been awful? What are the reasons for hope? What are the biggest concerns? What's next?`\
+https://nytimes.com/athletic/6286795/2025/05/22/manchester-united-explained-transfers/
+
+**Jaccob Slavin, 'a walking manual for how to play defense,' has earned this moment**\
+`Slavin's star has been on the rise since the 4 Nations Face-Off and his playoff opponents are in full support.`\
+https://nytimes.com/athletic/6370140/2025/05/22/jaccob-slavin-hurricanes-defense-nhl-playoffs/
+
+**Kid Cudi Is Expected to Testify in the Sean Combs Trial**\
+`The rapper is scheduled to take the stand on Thursday to describe how his car was “blown up” after a threat by a jealous Mr. Combs.`\
+https://nytimes.com/2025/05/22/arts/music/kid-cudi-sean-combs-diddy-trial.html
+
 **They Were Days From Getting Engaged. Then They Were Killed in D.C.**\
 `Sarah Milgrim and Yaron Lischinsky met while working at the Israeli Embassy in Washington, her father said. Mr. Lischinsky had just bought an engagement ring, an official said.`\
 https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victims-sarah-milgrim-yaron-lischinsky.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victi
 **The House Passed Trump’s Megabill. Bond Investors Are Worried.**\
 `Republicans brought the president’s tax cuts one step closer to reality, but Wall Street remains on edge about the fiscal costs.`\
 https://nytimes.com/2025/05/22/business/dealbook/house-spending-bill-trump-bond-markets.html
-
-**Leah Williamson, Arsenal, and juggling the emotions of playing in a final for the club you support**\
-`Williamson was a mascot the last time Arsenal's women played a European final. On Saturday, she walks out as the current team's heartbeat`\
-https://nytimes.com/athletic/6358429/2025/05/22/leah-williamson-arsenal-champions-league-final-barcelona/
-
-**How Every House Member Voted on the G.O.P. Megabill**\
-`The House voted 215 to 214 to pass the domestic policy bill that will deliver President Trump’s domestic agenda.`\
-https://nytimes.com/interactive/2025/05/22/us/politics/house-gop-megabill-vote.html
-
-**The Athletic FC: Postecoglou delivers - but what now? Plus: Pulisic out of Gold Cup, Slot exclusive**\
-`Today in TAFC: Postecoglou breaks Tottenham's 17-year trophy drought, Pulisic out of Gold Cup squad, exclusive interview with Slot.`\
-https://nytimes.com/athletic/6374639/2025/05/22/postecoglou-delivers-but-what-now-for-tottenham-plus-pulisic-out-of-gold-cup-slot-exclusive/
-
-**Premier League 2 final misses out on broadcast after Man City, Southampton venue dispute**\
-`The disagreement followed City breaching Premier League 2 rules by not having the Etihad Stadium available to host the fixture.`\
-https://nytimes.com/athletic/6373627/2025/05/22/manchester-city-southampton-venue-dispute/
-
-**Phillies observations on Taijuan Walker, Jesús Luzardo, lefty masher Kyle Schwarber and more**\
-`Once Aaron Nola returns, the Phillies are leaning toward committing to a set role for Walker. Plus, what's next for Edmundo Sosa?`\
-https://nytimes.com/athletic/6374275/2025/05/22/phillies-taijuan-walker-kyle-schwarber-jesus-luzardo/
-
-**Joey Votto and Steph Curry found a secret to workplace happiness. You can, too**\
-`Michigan professor Jane Dutton believes brief, positive interactions between colleagues can change an organization's culture.`\
-https://nytimes.com/athletic/6368286/2025/05/22/joey-votto-steph-curry-workplace-happiness/
-
-**An appreciation of Van de Ven and Romero, Tottenham's Europa League-winning rocks**\
-`The Dutch defender's remarkable clearance and his Argentine team-mate's physical battles were key to Spurs' success in Bilbao`\
-https://nytimes.com/athletic/6373909/2025/05/22/romero-van-de-ven-tottenham-europa-league/
-
-**This Week in Sports Trivia: May 22, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6373024/2025/05/22/this-week-in-sports-trivia-may-22-2025/
 

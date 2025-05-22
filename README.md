@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie
 `Adding a 100-point player like Marner is a rare opportunity and one worth exploring for Buffalo.`\
 https://nytimes.com/athletic/6373334/2025/05/22/sabres-mitch-marner-nhl-free-agency/
 
+**Nick Emmanwori is embracing Kam Chancellor comps. Will the Seahawks use him the same way?**\
+`It's far too early to expect Emmanwori to have a Chancellor-level impact, but Mike Macdonald could deploy the rookie similarly.`\
+https://nytimes.com/athletic/6349199/2025/05/22/nick-emmanwori-seahawks-kam-chancellor/
+
 **Parity has reached the NBA playoffs; you should enjoy watching the new leading men on stage**\
 `The days of the dynasties are over as the NBA has leveled the playing field across the league. `\
 https://nytimes.com/athletic/6370692/2025/05/22/parity-2025-nba-playoffs-thunder-wolves-knicks-pacers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/arts/music/kid-cudi-sean-combs-diddy-trial.html
 **They Were Days From Getting Engaged. Then They Were Killed in D.C.**\
 `Sarah Milgrim and Yaron Lischinsky met while working at the Israeli Embassy in Washington, her father said. Mr. Lischinsky had just bought an engagement ring, an official said.`\
 https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victims-sarah-milgrim-yaron-lischinsky.html
-
-**The House Passed Trump’s Megabill. Bond Investors Are Worried.**\
-`Republicans brought the president’s tax cuts one step closer to reality, but Wall Street remains on edge about the fiscal costs.`\
-https://nytimes.com/2025/05/22/business/dealbook/house-spending-bill-trump-bond-markets.html
 
