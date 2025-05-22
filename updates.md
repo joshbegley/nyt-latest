@@ -1,3 +1,11 @@
+**CBS Sports acquires U.S. broadcast rights for men's and women's Rugby World Cups**\
+`The deal encompasses the men's World Cup in 2027 and the next two women's World Cups, which will be held this year and 2029.`\
+https://nytimes.com/athletic/6374841/2025/05/22/rugby-world-cup-tv-united-states/
+
+**Republicans Pass Strictest Medicaid Work Requirement They Have Ever Put Forward**\
+`A new hurdle for poor Americans, approved by the House, would cause millions to lose coverage, including many who are working but can’t meet reporting rules.`\
+https://nytimes.com/2025/05/22/upshot/medicaid-republicans-work-requirement.html
+
 **Federal agents descend on the suspect’s apartment building in Chicago.**\
 `By Robert Chiarito and Claire Moses`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/federal-agents-descend-on-the-suspects-apartment-building-in-chicago
