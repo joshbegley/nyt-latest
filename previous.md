@@ -1,3 +1,15 @@
+**Kim Jong-un Vents Fury After Botched Launch of North Korean Destroyer**\
+`He vows to punish as criminals those responsible for the failure, in which the ship had its hull torn open and ended up on its side in the water.`\
+https://nytimes.com/2025/05/22/world/asia/north-korea-destroyer-accident.html
+
+**The New York Times International Edition in Print for Friday, May 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/22/todays-new-york-times-international-edition
+
+**Israelis Shocked and Horrified by Embassy Shooting**\
+`Israeli leaders were quick to point fingers at their political opponents, suggesting that they were ultimately responsible for the shooting.`\
+https://nytimes.com/2025/05/22/world/asia/israelis-shooting-reaction.html
+
 **Britain Records Sharp Fall in Immigration**\
 `Net migration dropped by 50 percent in 2024, official data showed on Thursday, suggesting that a period of soaring immigration may be ending.`\
 https://nytimes.com/2025/05/22/world/europe/uk-net-migration-data.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/22/world/africa/south-africa-trump-oval-office-genoc
 **The Man Who Knew When to Step Down**\
 `David Souter set an example more leaders should follow. `\
 https://nytimes.com/2025/05/22/opinion/souter-biden-resignation-age.html
-
-**She Traded Brooklyn for Jackson Heights With $300,000 to Spend. Was It Enough for a One-Bedroom?**\
-`After bouncing through seven rentals in 10 years, an immigration lawyer set her sights on the diverse Queens neighborhood — a ‘microcosm of the whole world.’`\
-https://nytimes.com/interactive/2025/05/22/realestate/queens-jackson-heights-apartment-sale.html
-
-**Pen and Pencil**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/05/22/learning/pen-and-pencil.html
-
-**Why Banana Is Summer’s Freshest Fragrance**\
-`Plus: an exhibition of Paul Thek’s paintings, a stylish cottage on Lake Michigan and more recommendations from T Magazine.`\
-https://nytimes.com/2025/05/22/t-magazine/fragrance-banana-scents.html
 
