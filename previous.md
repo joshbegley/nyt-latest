@@ -1,3 +1,7 @@
+**NBA takeaways: Pacers beat Knicks in OT thriller**\
+`The Knicks were ahead by double digits in the fourth quarter, but the Pacers stayed close enough to make a charge in the final minute.`\
+https://nytimes.com/athletic/6373881/2025/05/21/nba-playoffs-takeaways-knicks-pacers/
+
 **Two Israeli Embassy Staffers Shot and Killed Outside Event in Washington, Officials Say**\
 `Homeland Security Secretary Kristi Noem said that the shooting occurred near an event held at the Capital Jewish Museum.`\
 https://nytimes.com/2025/05/21/us/politics/israel-embassy-staffers-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/crosswords/daily-puzzle-2025-05-22.html
 **Twins takeaways: Splitting in the rain, progress for Carlos Correa, Byron Buxton, Matt Wallner**\
 `After repeatedly coming through during the 13-game winning streak, Kody Clemens delivered a walk-off winner in the rain Wednesday.`\
 https://nytimes.com/athletic/6373745/2025/05/21/twins-takeaways-guardians-split-carlos-correa-byron-buxton/
-
-**Trump Claimed a Social Media Video Showed ‘Burial Sites’ of White Farmers. It Didn’t.**\
-`During a meeting with South Africa’s president, President Trump played the video as evidence of racial persecution. A Times analysis found he misrepresented the contents of the video.`\
-https://nytimes.com/2025/05/21/us/politics/trump-south-africa-president-white-farmers-video.html
 

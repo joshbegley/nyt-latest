@@ -1,3 +1,7 @@
+**NBA takeaways: Pacers beat Knicks in OT thriller**\
+`The Knicks were ahead by double digits in the fourth quarter, but the Pacers stayed close enough to make a charge in the final minute.`\
+https://nytimes.com/athletic/6373881/2025/05/21/nba-playoffs-takeaways-knicks-pacers/
+
 **Two Israeli Embassy Staffers Shot and Killed Outside Event in Washington, Officials Say**\
 `Homeland Security Secretary Kristi Noem said that the shooting occurred near an event held at the Capital Jewish Museum.`\
 https://nytimes.com/2025/05/21/us/politics/israel-embassy-staffers-killed.html
