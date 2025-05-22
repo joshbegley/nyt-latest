@@ -1,3 +1,7 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6374720/2025/05/22/ask-ornstein-qa-our-football-insider-answers-your-questions-27/
+
 **Indy 500's Penske cheating scandal explained: Why the IndyCar power was penalized**\
 `Two Penske favorites and former champions will start at the back Sunday in the Indy 500 after a violation. Here's what you need to know.`\
 https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-penske-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371158/2025/05/22/red-wings-offseason-targets-mitc
 **Dissecting Manchester United's nightmare season: Heartbreak in Europe and nowhere in the league**\
 `Why has Man Utd's season been awful? What are the reasons for hope? What are the biggest concerns? What's next?`\
 https://nytimes.com/athletic/6286795/2025/05/22/manchester-united-explained-transfers/
-
-**Jaccob Slavin, 'a walking manual for how to play defense,' has earned this moment**\
-`Slavin's star has been on the rise since the 4 Nations Face-Off and his playoff opponents are in full support.`\
-https://nytimes.com/athletic/6370140/2025/05/22/jaccob-slavin-hurricanes-defense-nhl-playoffs/
 

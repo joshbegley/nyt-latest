@@ -1,3 +1,7 @@
+**Indy 500's Penske cheating scandal explained: Why the IndyCar power was penalized**\
+`Two Penske favorites and former champions will start at the back Sunday in the Indy 500 after a violation. Here's what you need to know.`\
+https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-penske-explained/
+
 **Why absolutely stunning comebacks are suddenly the Pacers' thing**\
 `How do these Pacers keep doing this?`\
 https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
