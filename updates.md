@@ -1,3 +1,11 @@
+**Prosecutors Won’t Retry Michigan Officer for Murder After Mistrial**\
+`A former Grand Rapids, Mich., police officer, Christopher Schurr, will not face a new murder trial in the 2022 killing of Patrick Lyoya after a jury failed to reach a verdict this month.`\
+https://nytimes.com/2025/05/22/us/michigan-christopher-schurr-murder-mistrial.html
+
+**French Open draw: A gauntlet title defense for Iga Światek and first-round blockbusters galore**\
+`The French Open returns to Roland Garros for 2025, with a tough draw for Iga Świątek and a kinder one for Carlos Alcaraz.`\
+https://nytimes.com/athletic/6374868/2025/05/22/french-open-draw-2025-swiatek-alcaraz-djokovic-sabalenka/
+
 **Scoop City: How (and why) the Eagles pushed back**\
 `How the controversial play barely survived a league vote, plus a tribute to Colts owner Jim Irsay, who died Wednesday`\
 https://nytimes.com/athletic/6375357/2025/05/22/eagles-tush-push-ban-jim-irsay-death-colts-nfl-scoop-city/

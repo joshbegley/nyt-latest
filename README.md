@@ -1,3 +1,11 @@
+**Toyin Ojih Odutola Is Drawing Up Worlds**\
+`The Nigerian American artist takes pencil and pastel to monumental scale. Her newest works are her most personal yet, and her most universal.`\
+https://nytimes.com/2025/05/22/arts/design/toyin-ojih-odutola-jack-shainman-gallery.html
+
+**AS-CELLREASEARCH-Q225**\
+`CELLRESEARCH Summer 25`\
+https://nytimes.com/paidpost/consumer-health-pte-ltd/summer-2025/as-cellreasearch-q225.html
+
 **Prosecutors Won’t Retry Michigan Officer for Murder After Mistrial**\
 `A former Grand Rapids, Mich., police officer, Christopher Schurr, will not face a new murder trial in the 2022 killing of Patrick Lyoya after a jury failed to reach a verdict this month.`\
 https://nytimes.com/2025/05/22/us/michigan-christopher-schurr-murder-mistrial.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/05/22/sports/autoracing/f1-ferrari-monaco-leclerc.html
 **Formula 1 Tries to Make the Monaco Grand Prix More Exciting**\
 `Because overtaking is rare, the race can be dull. So the sport has ruled that two pit stops are now mandatory in a bid to spice things up.`\
 https://nytimes.com/2025/05/22/sports/autoracing/f1-monaco-grand-prix-pit-stops.html
-
-**Live MLB Draft chat with Keith Law at 2pm ET today!**\
-`<p>This morning, Keith Law released his 2025 MLB Draft Big Board with his top 100 prospects for this year&#8217;s draft.`\
-https://nytimes.com/athletic/6375316/2025/05/22/mlb-draft-big-board-qanda-keith-law/
-
-**Real Madrid Castilla manager Raul set to leave the team**\
-`The 47-year-old has been in charge of Real Madrid Castilla since 2019 when he replaced Manolo Diaz. `\
-https://nytimes.com/athletic/6375410/2025/05/22/raul-real-madrid-castilla/
 
