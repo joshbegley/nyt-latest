@@ -1,3 +1,15 @@
+**Without a Prenup, David Geffen’s Divorce Could Get Interesting**\
+`The billionaire’s marriage to David Armstrong ended with the familiar “irreconcilable differences.” Is Mr. Geffen’s fortune in jeopardy?`\
+https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
+
+**Mobley and Daniels top 2 vote getters on NBA's All-Defensive First Team**\
+`For the second year, the NBA employed “positionless” voting, asking voters to select the most deserving players, regardless of position.`\
+https://nytimes.com/athletic/6375450/2025/05/22/nba-all-defensive-team-evan-mobley/
+
+**End of the Penny Grows Near**\
+`The cost of producing a penny has skyrocketed in recent years, reaching 3.69 cents, according to the Treasury Department.`\
+https://nytimes.com/2025/05/22/us/politics/penny-manufacturing.html
+
 **David Adelman named head coach of Nuggets**\
 `Adelman coached the final three games of the regular season and through two rounds of the postseason.`\
 https://nytimes.com/athletic/6376011/2025/05/22/david-adelman-nuggets-head-coach-hired/
