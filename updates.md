@@ -1,3 +1,23 @@
+**Trump Confirms Attempted Deportation of Migrants to South Sudan**\
+`The deportees are stuck in Djibouti amid a legal fight over their expulsions. A lawyer for some of the men said she was concerned for their health and welfare.`\
+https://nytimes.com/2025/05/22/us/politics/trump-deportations-south-sudan.html
+
+**PL gets government concession over regulator financial distribution deal**\
+`The government has made a late concession to the Premier League by agreeing to let English football’s new independent regulator impose a compromise financial distribution deal on the game, as opposed to having to pick one of two proposals.`\
+https://nytimes.com/athletic/6376330/2025/05/22/premier-league-uk-government-financial-distribution/
+
+**If This Movie Wins the Palme d’Or, It Will Extend a Staggering Streak**\
+`The distributor Neon has been on a run at the Cannes Film Festival, and it has three movies, including “Sentimental Value,” considered front-runners.`\
+https://nytimes.com/2025/05/22/movies/cannes-neon-sentimental-value-elle-fanning.html
+
+**The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
+`Breakout players like Lukes can lift a baseball team from middling to October.`\
+https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
+
+**Cargo Ship Crashes Into Norway Man’s Backyard**\
+`A retiree living in a small house on the shore of a fjord woke up on Thursday morning because his neighbor was pounding on his door, telling him to look outside.`\
+https://nytimes.com/2025/05/22/world/europe/norway-ship-crash-backyard.html
+
 **Yankees might face good problem with Jazz Chisholm Jr. nearing a return**\
 `DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
 `\
