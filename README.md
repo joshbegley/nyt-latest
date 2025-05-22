@@ -1,3 +1,7 @@
+**Lions' Aidan Hutchinson cleared to return after recovering from broken leg**\
+`Through the first six weeks of the season prior to his injury, Hutchinson led the league in sacks, pressures and pass-rush win rate.`\
+https://nytimes.com/athletic/6375725/2025/05/22/lions-aidan-hutchinson-return-leg-injury/
+
 **What a White House Report Says (and Doesn’t Say) About Pesticides and Health**\
 `The report on children’s health calls attention to glyphosate and atrazine, which are widely used on U.S. crops.`\
 https://nytimes.com/2025/05/22/well/rfk-jr-maha-report-pesticides-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/politics/judge-education-department.html
 **In Trump Era, Taiwan Defense Chief Says U.S. Still Is a Check on China**\
 `Wellington Koo says the Trump administration has a shared interest in security in the region, but Taiwan must also ready its own forces for asymmetric warfare.`\
 https://nytimes.com/2025/05/22/world/asia/trump-china-taiwan-security.html
-
-**Fresh Recipes for Touching Grass**\
-`Naan-o paneer-o sabzi, cauliflower salad sandwiches and pimento cheese taste even better outdoors.`\
-https://nytimes.com/2025/05/22/dining/vegetarian-recipes-to-eat-outdoors.html
 
