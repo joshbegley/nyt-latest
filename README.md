@@ -1,6 +1,18 @@
+**Shedding Light on Journalism’s ‘Gray Areas’**\
+`Philip B. Corbett, who is retiring this month after almost 35 years at The New York Times, including 14 years as the Standards editor, reflects on the newspaper’s evolution.`\
+https://nytimes.com/2025/05/22/insider/standards-editor.html
+
+**For These New Yorkers, Brutal Apartment Hunts Make Good Content**\
+`Creators are documenting their searches on YouTube, giving viewers advice, a window into city life and sometimes a dose of schadenfreude.`\
+https://nytimes.com/2025/05/22/nyregion/apartment-hunting-youtube.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/22/crosswords/spelling-bee-forum.html
+
 **Roof of Ancient Tower in China Collapses**\
 `Tourists fled and dust filled the air as the roof of the Drum Tower in Fengyang County crumbled.`\
-https://nytimes.com/video/world/asia/100000010184200/china-tower-roof-collapse.html
+https://nytimes.com/video/world/asia/100000010184200/china-drum-tower-collapse.html
 
 **Man Utd's awful Europa League final - Amorim's vow, Garnacho tensions, Glazer and Ratcliffe booed at staff party**\
 `The fallout from a tense evening in Bilbao when Manchester United's hopes of saving their season evaporated `\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6374278/2025/05/22/charles-barkley-tyrese-haliburto
 **Gotham, Tigres advance to Concacaf W Champions Cup Final**\
 `Gotham and Tigres move on to Saturday's match with emphatic victories over Club América and the Portland Thorns.`\
 https://nytimes.com/athletic/6374312/2025/05/22/gotham-tigres-advance-concacaf-champions-cup-final/
-
-**Why Yankees' Jasson Domínguez impressed Aaron Judge before walk-off home run vs. Rangers**\
-`Domínguez's solo homer in the ninth inning gave the Yankees a 4-3 win over the Rangers and sent Yankee Stadium into a frenzy.`\
-https://nytimes.com/athletic/6374229/2025/05/22/yankees-jasson-dominguez-aaron-judge-walk-off-home-run-rangers/
-
-**Thursday Briefing**\
-`A fraught White House meeting.`\
-https://nytimes.com/2025/05/22/briefing/trump-south-africa-gaza.html
-
-**'We’ve got to be an awful lot more mature': Oilers bemoan loss of control in Game 1**\
-`The Oilers held a two-goal lead over the Stars going into the third period, but a leaky penalty kill sent them to defeat.`\
-https://nytimes.com/athletic/6374311/2025/05/22/oilers-stars-game-1-penalties/
 
