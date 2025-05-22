@@ -1,3 +1,7 @@
+**Millions Could Lose Food Stamp Benefits Under Republican Bill, Analysis Finds**\
+`Others could see their monthly benefits reduced if the bill were to become law, according to the nonpartisan Congressional Budget Office.`\
+https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
+
 **Gunman Fired Repeatedly at Young Couple Outside Jewish Museum, F.B.I. Says**\
 `The authorities said the shooter was motivated by opposition to the war in Gaza when he killed two young Israeli Embassy employees in Washington.`\
 https://nytimes.com/2025/05/22/us/dc-shooting-jewish-museum-israel-embassy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6376345/2025/05/22/brad-treliving-maple-leafs-brend
 **Can the Oilers rebound after their Game 1 loss? History is on their side**\
 `Falling behind 1-0 in a series is nothing new for Edmonton in the Connor McDavid era.`\
 https://nytimes.com/athletic/6376287/2025/05/22/oilers-playoffs-stars-game-2/
-
-**U.S. to Impose Sanctions on Sudan Over Use of Chemical Weapons**\
-`The State Department’s announcement comes months after U.S. officials found evidence that Sudan’s military had used chemical weapons against its paramilitary rival.`\
-https://nytimes.com/2025/05/22/world/africa/us-sanctions-sudan-chemical-weapons.html
 
