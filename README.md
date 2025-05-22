@@ -1,3 +1,7 @@
+**Manchester United's new reality is going to hurt**\
+`Man Utd in 2024-25 are not the club that they have they have claimed to be. It will take hard work and good decisions to correct that`\
+https://nytimes.com/athletic/6361320/2025/05/22/manchester-united-new-reality/
+
 **Trump Administration Live Updates: House Nears a Vote on G.O.P. Domestic Policy Bill**\
 ``\
 https://nytimes.com/live/2025/05/22/us/trump-news-updates
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371987/2025/05/22/nba-europe-british-basketball-ci
 **How much better did the Patriots' new-look offensive line get this offseason?**\
 `After signing a new right tackle and center and drafting left tackle Will Campbell, just how improved should the New England line be?`\
 https://nytimes.com/athletic/6372748/2025/05/22/patriots-offensive-line-cole-strange/
-
-**Falcons mailbag: Can they stop the run? Why so many prime-time games?**\
-`Our latest Falcons mailbag touches on everything from the pass rush to undrafted rookies and the Kirk Cousins factor.`\
-https://nytimes.com/athletic/6373129/2025/05/22/falcons-mailbag-run-defense-michael-penix-jr/
 
