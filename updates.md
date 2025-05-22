@@ -1,3 +1,7 @@
+**A Mayor’s Son Prepares to Inherit the Job His Father Never Got to Finish**\
+`In Pittsburgh, Corey O’Connor’s victory in the Democratic primary represents a turn from progressive policies — and a chance for him to run the city his father once led.`\
+https://nytimes.com/2025/05/22/us/corey-oconnor-pittsburgh-democrat-candidate-mayor.html
+
 **Judith Hope Blau, Who Turned Bagels Into Art, Dies at 87**\
 `She began selling necklaces strung with mini-bagels on a dare from her husband. Bagelmania (and a career as a toy designer) ensued.`\
 https://nytimes.com/2025/05/22/arts/design/judith-hope-blau-dead.html

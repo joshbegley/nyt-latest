@@ -1,3 +1,7 @@
+**A Mayor’s Son Prepares to Inherit the Job His Father Never Got to Finish**\
+`In Pittsburgh, Corey O’Connor’s victory in the Democratic primary represents a turn from progressive policies — and a chance for him to run the city his father once led.`\
+https://nytimes.com/2025/05/22/us/corey-oconnor-pittsburgh-democrat-candidate-mayor.html
+
 **Judith Hope Blau, Who Turned Bagels Into Art, Dies at 87**\
 `She began selling necklaces strung with mini-bagels on a dare from her husband. Bagelmania (and a career as a toy designer) ensued.`\
 https://nytimes.com/2025/05/22/arts/design/judith-hope-blau-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/world/middleeast/israel-netanyahu-shin-bet-zini.h
 **Man Charged With Murder in Killing of Israeli Embassy Aides**\
 `Also, Trump officials blocked Harvard from enrolling foreign students. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/22/briefing/charges-israel-embassy-shooting-harvard-students.html
-
-**Canada shocked by Denmark in World Championship quarterfinals**\
-`Denmark scored two goals in the game's last 2:17 to win 2-1 and eliminate Canada from the tournament.`\
-https://nytimes.com/athletic/6376242/2025/05/22/canada-iihf-world-championship-loss-denmark-hockey/
 
