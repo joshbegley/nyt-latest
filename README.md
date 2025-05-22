@@ -1,3 +1,11 @@
+**Man Charged With Murder in Killing of Israeli Embassy Aides**\
+`Also, Trump officials blocked Harvard from enrolling foreign students. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/05/22/briefing/charges-israel-embassy-shooting-harvard-students.html
+
+**Canada shocked by Denmark in World Championship quarterfinals**\
+`Denmark scored two goals in the game's last 2:17 to win 2-1 and eliminate Canada from the tournament.`\
+https://nytimes.com/athletic/6376242/2025/05/22/canada-iihf-world-championship-loss-denmark-hockey/
+
 **In Firing Watchdogs, Trump Sidesteps Laws and Moves to Expand Power**\
 `The abrupt, premature dismissals of agency officials has teed up a Supreme Court decision that, if delivered in the president's favor, could give him substantially more authority.`\
 https://nytimes.com/interactive/2025/05/22/us/politics/trump-firings-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/briefing/israel-embassy-staff-killing-gaza-aid-al
 **Can We Please Stop Lying About Obama?**\
 `The problem with arguing that neoliberals left American workers behind is that it’s mostly untrue.`\
 https://nytimes.com/2025/05/22/opinion/american-workers-neoliberalism-obama.html
-
-**Read the F.B.I. Affidavit**\
-`The Justice Department charged Elias Rodriguez, of Chicago, with murder of foreign officials, first-degree murder and other crimes in the shooting deaths of two Israeli Embassy employees in Washington.`\
-https://nytimes.com/interactive/2025/05/22/us/rodriguez-aff.html
-
-**Liam Hendriks reveals in Instagram post that he's received death threats**\
-`Hendriks called out fans making threats to himself and his family: "Threats against my life and my wife’s life are horrible and cruel."`\
-https://nytimes.com/athletic/6376120/2025/05/22/red-sox-liam-hendriks-threats-instagram-post/
 
