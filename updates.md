@@ -1,3 +1,11 @@
+**‘Choke 2.0’: After Knicks’ epic collapse to Pacers, New Yorkers confront painful memories**\
+`New York's infamous backpages have all drawn the parallel between what Tyrese Haliburton did and what Reggie Miller did 30 years ago.`\
+https://nytimes.com/athletic/6374984/2025/05/22/tyrese-haliburton-choke-gesture-reggie-miller-pacers-knicks-playoffs-nba/
+
+**Red Light: Toronto’s thorny offseason ahead. Plus: Updated Conn Smythe rankings**\
+`Is this the end of the Shanaplan?`\
+https://nytimes.com/athletic/6375314/2025/05/22/maple-leafs-conn-smythe-red-light-newsletter/
+
 **Small Plane Crashes in San Diego, Setting Homes Ablaze**\
 `The plane, a Cessna 550, crashed near the Tierrasanta neighborhood, officials said. There was no immediate information about casualties.`\
 https://nytimes.com/2025/05/22/us/san-diego-plane-crash-tierrasanta.html
