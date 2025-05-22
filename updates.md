@@ -1,3 +1,11 @@
+**In Firing Watchdogs, Trump Sidesteps Laws and Moves to Expand Power**\
+`The abrupt, premature dismissals of agency officials has teed up a Supreme Court decision that, if delivered in the president's favor, could give him substantially more authority.`\
+https://nytimes.com/interactive/2025/05/22/us/politics/trump-firings-supreme-court.html
+
+**Trump Administration Opens Investigation Into Diversity Efforts at Virginia School**\
+`The inquiry is the latest attempt to apply the Supreme Court’s affirmative action ban to K-12 education.`\
+https://nytimes.com/2025/05/22/us/trump-fairfax-virginia-schools-investigation.html
+
 **Are You Smarter Than a Billionaire?**\
 `The difference between two similar looking paintings can be millions of dollars. Can you spot the most expensive ones from New York’s recent auction week?`\
 https://nytimes.com/interactive/2025/05/23/arts/design/auction-quiz.html
