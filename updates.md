@@ -1,3 +1,8 @@
+**Yankees might face good problem with Jazz Chisholm Jr.'s nearing return**\
+`DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
+`\
+https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
+
 **Chicago Cubs aiming to secure 2027 All-Star Game for Wrigley Field **\
 `Wrigley Field last hosted the All-Star Game in 1990.`\
 https://nytimes.com/athletic/6376379/2025/05/22/chicago-cubs-all-star-game-wrigley-field/

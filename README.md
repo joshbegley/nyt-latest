@@ -1,3 +1,7 @@
+**U.S. to Impose Sanctions on Sudan Over Use of Chemical Weapons**\
+`The State Department’s announcement comes months after U.S. officials found evidence that Sudan’s military had used chemical weapons against its paramilitary rival.`\
+https://nytimes.com/2025/05/22/world/africa/us-sanctions-sudan-chemical-weapons.html
+
 **Chicago Cubs aiming to secure 2027 All-Star Game for Wrigley Field **\
 `Wrigley Field last hosted the All-Star Game in 1990.`\
 https://nytimes.com/athletic/6376379/2025/05/22/chicago-cubs-all-star-game-wrigley-field/
@@ -27,15 +31,11 @@ https://nytimes.com/2025/05/22/us/shooting-cia-headquarters-virginia.html
 `By Juliet Macur`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/for-washingtons-jewish-community-the-killings-are-the-nightmare-that-weve-all-been-afraid-of
 
-**YouTube poaches top ESPN executive Justin Connolly to lead sports efforts**\
-`It is the latest move from Google to deepen its relationship with viewers across video, streaming and TV through sports.`\
+**YouTube poaches ESPN executive Justin Connolly to lead sports: Source**\
+`By hiring Connolly, YouTube is indicating it could be going into sports overdrive.`\
 https://nytimes.com/athletic/6376290/2025/05/22/youtube-hires-espn-executive-justin-connolly/
 
 **Trump’s New Penalty for Undocumented Immigrants: Billions of Dollars in Fines**\
 `The financial penalties are part of an effort to get people to “self-deport.”`\
 https://nytimes.com/2025/05/22/us/politics/trump-administration-fine-undocument-immigrants.html
-
-**Boston Legacy in advanced talks to hire Benfica's Patao as their first head coach**\
-`Benfica are currently participating in the inaugural World Sevens Football (W7F) tournament, expected to be Patao's final games in charge.`\
-https://nytimes.com/athletic/6376233/2025/05/22/boston-legacy-filipa-patao-benfica/
 
