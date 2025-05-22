@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: House Nears a Vote on G.O.P. Domestic Policy Bill**\
+``\
+https://nytimes.com/live/2025/05/22/us/trump-news-updates
+
+**Late Night Thinks Trump’s ‘White Genocide’ Video Was a Bit Much**\
+`“The guy who couldn’t find South Africa on a map of Africa” subjected its leader to an extremely dubious video about his own country, Jimmy Kimmel said.`\
+https://nytimes.com/2025/05/22/arts/television/late-night-trump-south-africa.html
+
 **Kim Jong-un Vents Fury After Botched Launch of North Korean Destroyer**\
 `He vows to punish as criminals those responsible for the failure, in which the ship had its hull torn open and ended up on its side in the water.`\
 https://nytimes.com/2025/05/22/world/asia/north-korea-destroyer-accident.html
