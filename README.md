@@ -1,8 +1,16 @@
+**They Were Days From Getting Engaged. Then They Were Killed in D.C.**\
+`Sarah Milgrim and Yaron Lischinsky met while working at the Israeli Embassy in Washington, her father said. Mr. Lischinsky had just bought an engagement ring, an official said.`\
+https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victims-sarah-milgrim-yaron-lischinsky.html
+
+**The House Passed Trump’s Megabill. Bond Investors Are Worried.**\
+`Republicans brought the president’s tax cuts one step closer to reality, but Wall Street remains on edge about the fiscal costs.`\
+https://nytimes.com/2025/05/22/business/dealbook/house-spending-bill-trump-bond-markets.html
+
 **Leah Williamson, Arsenal, and juggling the emotions of playing in a final for the club you support**\
 `Williamson was a mascot the last time Arsenal's women played a European final. On Saturday, she walks out as the current team's heartbeat`\
 https://nytimes.com/athletic/6358429/2025/05/22/leah-williamson-arsenal-champions-league-final-barcelona/
 
-**How Every Member Voted on the G.O.P. Megabill**\
+**How Every House Member Voted on the G.O.P. Megabill**\
 `The House voted 215 to 214 to pass the domestic policy bill that will deliver President Trump’s domestic agenda.`\
 https://nytimes.com/interactive/2025/05/22/us/politics/house-gop-megabill-vote.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6373909/2025/05/22/romero-van-de-ven-tottenham-euro
 **This Week in Sports Trivia: May 22, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6373024/2025/05/22/this-week-in-sports-trivia-may-22-2025/
-
-**What do NHL's best forecheckers look like? Just watch Panthers and Hurricanes**\
-`Forechecking is a big reason the Panthers and Hurricanes are the last two teams standing in the Eastern Conference.`\
-https://nytimes.com/athletic/6368367/2025/05/22/nhl-playoffs-panthers-hurricanes-conference-final-forechecking/
-
-**House Passes Trump’s Domestic Policy Bill, Overcoming Last-Minute Resistance**\
-`The victory for Republicans came after Speaker Mike Johnson made concessions to holdouts in several factions and President Trump pressured the party to fall in line.`\
-https://nytimes.com/2025/05/22/us/politics/trump-bill-house-vote-passes.html
 
