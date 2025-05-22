@@ -26,6 +26,10 @@ https://nytimes.com/video/world/asia/100000010184200/china-drum-tower-collapse.h
 `The fallout from a tense evening in Bilbao when Manchester United's hopes of saving their season evaporated `\
 https://nytimes.com/athletic/6374097/2025/05/22/manchester-united-europa-league-fallout/
 
+**Fernandes says he wants to stay at Man Utd, understands if club were to 'cash in'**\
+`“I’ve always said I will be here until the club says to me that it’s time to go,” Fernandes said after United's Europa League final loss.`\
+https://nytimes.com/athletic/6374528/2025/05/22/bruno-fernandes-manchester-united-future/
+
 **Futures of Martinelli and Trossard may prove key if Arsenal need to sell to buy**\
 `Mikel Arteta would like to keep both wide forwards at Arsenal, but things could change if a big offer came in`\
 https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-martinelli-and-trossard-may-prove-key-to-summer-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-mar
 **Pragmatic, adaptable, victorious - Tottenham's success is a triumph of management for Postecoglou**\
 `So long a byword for banter, this is the story of how Spurs became laser-focused on European success at the epense of the league`\
 https://nytimes.com/athletic/6374384/2025/05/22/ange-postecoglou-tottenham-europa-league-winners/
-
-**Word of the Day: horticulturalist**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/22/learning/word-of-the-day-horticulturalist.html
 
