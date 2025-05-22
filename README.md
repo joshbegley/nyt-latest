@@ -1,3 +1,7 @@
+**Quote of the Day: George Wendt, 76, Who Played One of America’s Favorite Barflies, Dies**\
+`Quotation of the Day for Thursday, May 22, 2025.”`\
+https://nytimes.com/2025/05/21/pageoneplus/quote-of-the-day-george-wendt-76-who-played-one-of-americas-favorite-barflies-dies.html
+
 **Bill Would Give Newborns $1,000 in ‘Trump Accounts’**\
 `The money would be invested on children’s behalf in the financial markets for them to use once they had grown up.`\
 https://nytimes.com/2025/05/21/us/politics/bill-would-give-newborns-1000-in-trump-accounts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/21/us/politics/trump-race-south-africa.html
 **Christian Pulisic missing Gold Cup: Bad look for the player, bad break for USMNT**\
 `At a time when the USMNT needs an uptick in fortune, form and vibes, its on-field leader won't be in uniform.`\
 https://nytimes.com/athletic/6373974/2025/05/21/christian-pulisic-out-gold-cup-usmnt-impact-pochettino/
-
-**Formally Picks**\
-`David J. Kahn returns with an epic Thursday.`\
-https://nytimes.com/2025/05/21/crosswords/daily-puzzle-2025-05-22.html
 

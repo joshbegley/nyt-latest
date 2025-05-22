@@ -1,3 +1,11 @@
+**Bill Would Give Newborns $1,000 in ‘Trump Accounts’**\
+`The money would be invested on children’s behalf in the financial markets for them to use once they had grown up.`\
+https://nytimes.com/2025/05/21/us/politics/bill-would-give-newborns-1000-in-trump-accounts.html
+
+**Shades of Reggie Miller: Haliburton, Pacers hand Knicks fresh heartbreak**\
+`Tyrese Haliburton helped the Pacers rally from a 17-point deficit to stun the Knicks in overtime in Game 1 of the Eastern Conference finals.`\
+https://nytimes.com/athletic/6374111/2025/05/21/pacers-upset-knicks-heartbreak-tyrese-haliburton/
+
 **NBA takeaways: Pacers beat Knicks in OT thriller**\
 `The Knicks were ahead by double digits in the fourth quarter, but the Pacers stayed close enough to make a charge in the final minute.`\
 https://nytimes.com/athletic/6373881/2025/05/21/nba-playoffs-takeaways-knicks-pacers/
