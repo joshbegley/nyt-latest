@@ -1,3 +1,11 @@
+**Sarah Milgrim’s faith was nurtured by the Jewish community around Kansas City.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/sarah-milgrims-faith-was-nurtured-by-the-jewish-community-around-kansas-city
+
+**Maple Leafs part ways with president Brendan Shanahan**\
+`Toronto built a strong regular-season team, but won only two playoff rounds in Brendan Shanahan’s 11 seasons as team president.`\
+https://nytimes.com/athletic/6368883/2025/05/22/maple-leafs-brendan-shanahan-part-ways/
+
 **Killings Echo Earlier Assassination of Israeli Diplomat**\
 `In 1973, Col. Yosef Alon, an Israeli military attaché, was gunned down in front of his home in suburban Maryland. The gunman was never identified despite an extensive F.B.I. investigation.`\
 https://nytimes.com/2025/05/22/us/politics/israeli-yosef-alon-killing-dc-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010185077/gaza-aid-trucks.html
 **What the Giants can expect from Jordan Hicks out of the bullpen**\
 `Moving back to the bullpen was always Plan B after the Giants signed Hicks. Now that he's a reliever again, how will he fit in the bullpen?`\
 https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-profile/
-
-**Without a Prenup, David Geffen’s Divorce Could Get Interesting**\
-`The billionaire’s marriage to David Armstrong ended with the familiar “irreconcilable differences.” Is Mr. Geffen’s fortune in jeopardy?`\
-https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
-
-**Mobley and Daniels top 2 vote-getters on NBA's All-Defensive First Team**\
-`For the second year, the NBA employed “positionless” voting, asking voters to select the most deserving players, regardless of position.`\
-https://nytimes.com/athletic/6375450/2025/05/22/nba-all-defensive-team-evan-mobley/
 
