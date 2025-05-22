@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6376330/2025/05/22/premier-league-uk-government-fin
 https://nytimes.com/2025/05/22/movies/cannes-neon-sentimental-value-elle-fanning.html
 
 **The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
-`Breakout players like Lukes can lift a baseball team from middling to October.`\
+`Breakout players such as Lukes can lift a baseball team from middling to October.`\
 https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
 
 **Cargo Ship Crashes Into Norway Man’s Backyard**\

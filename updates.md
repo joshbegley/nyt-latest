@@ -1,3 +1,7 @@
+**The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
+`Breakout players such as Lukes can lift a baseball team from middling to October.`\
+https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
+
 **Trump Confirms Attempted Deportation of Migrants to South Sudan**\
 `The deportees are stuck in Djibouti amid a legal fight over their expulsions. A lawyer for some of the men said she was concerned for their health and welfare.`\
 https://nytimes.com/2025/05/22/us/politics/trump-deportations-south-sudan.html

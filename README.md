@@ -1,3 +1,11 @@
+**Gunman Fired Repeatedly at Young Couple Outside Jewish Museum, F.B.I. Says**\
+`The authorities said the shooter was motivated by opposition to the war in Gaza when he killed two young Israeli Embassy employees in Washington.`\
+https://nytimes.com/2025/05/22/us/dc-shooting-jewish-museum-israel-embassy.html
+
+**NC State lands Texas Tech transfer Darrion Williams in big recruiting win**\
+`Wolfpack's new coach beats out Kansas in landing All-Big 12 forward.`\
+https://nytimes.com/athletic/6376406/2025/05/22/nc-state-will-wade-transfer-darrion-williams/
+
 **Trump Confirms Attempted Deportation of Migrants to South Sudan**\
 `The deportees are stuck in Djibouti amid a legal fight over their expulsions. A lawyer for some of the men said she was concerned for their health and welfare.`\
 https://nytimes.com/2025/05/22/us/politics/trump-deportations-south-sudan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6376287/2025/05/22/oilers-playoffs-stars-game-2/
 **U.S. to Impose Sanctions on Sudan Over Use of Chemical Weapons**\
 `The State Department’s announcement comes months after U.S. officials found evidence that Sudan’s military had used chemical weapons against its paramilitary rival.`\
 https://nytimes.com/2025/05/22/world/africa/us-sanctions-sudan-chemical-weapons.html
-
-**Chicago Cubs aiming to secure 2027 All-Star Game for Wrigley Field **\
-`Wrigley Field last hosted the All-Star Game in 1990.`\
-https://nytimes.com/athletic/6376379/2025/05/22/chicago-cubs-all-star-game-wrigley-field/
-
-**Republican Bill Would Limit Judges’ Contempt Power**\
-`Democrats have argued that House Republicans’ measure would rob courts of their power by stripping away any consequences for officials who ignore judges’ rulings.`\
-https://nytimes.com/2025/05/22/us/politics/trump-policy-bill-judges-contempt.html
 
