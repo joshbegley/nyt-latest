@@ -1,3 +1,19 @@
+**G7 Finance Ministers Show Unity in Support of Ukraine Against Russia**\
+`Top economic officials avoided a condemnation of U.S. tariffs but committed to trying to reduce “economic policy uncertainty.”`\
+https://nytimes.com/2025/05/22/us/politics/g7-unity-ukraine-against-russia.html
+
+**Blashill brings hope to Blackhawks but faces daunting task**\
+`Will Blashill be the coach who returns the Blackhawks to glory or will he be another franchise footnote?`\
+https://nytimes.com/athletic/6376063/2025/05/22/blackhawks-coach-jeff-blashill-rebuild-nhl/
+
+**Cookies: the Book!**\
+`Give future you the gift of many, many (many) excellent cookies.`\
+https://nytimes.com/2025/05/22/dining/cookies-the-book.html
+
+**A ‘Mission: Impossible’ Movie Game**\
+`We picked 20 movies, including the new “Mission: Impossible,” and found the headlines that ran with each New York Times review. Your mission, should you choose to accept it, is to pair them correctly. The world is counting on you.`\
+https://nytimes.com/interactive/2025/05/22/movies/mission-impossible-game.html
+
 **Sarah Milgrim’s faith was nurtured by the Jewish community around Kansas City.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/sarah-milgrims-faith-was-nurtured-by-the-jewish-community-around-kansas-city

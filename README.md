@@ -1,3 +1,7 @@
+**Trump Makes False Genocide Claims. South Africans Respond With Humor.**\
+`The jokes mask a deep-seated anger over the legacy of apartheid and the inequality that many Black people say continues to define life in their country.`\
+https://nytimes.com/2025/05/22/world/africa/trump-false-genocide-claims-south-africans-respond-humor.html
+
 **G7 Finance Ministers Show Unity in Support of Ukraine Against Russia**\
 `Top economic officials avoided a condemnation of U.S. tariffs but committed to trying to reduce “economic policy uncertainty.”`\
 https://nytimes.com/2025/05/22/us/politics/g7-unity-ukraine-against-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/dining/why-lucali-still-isnt-on-our-best-pizza-li
 **Before they were killed, the two diplomats had attended a reception on humanitarian diplomacy.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/before-they-were-killed-the-two-diplomats-had-attended-a-reception-on-humanitarian-diplomacy
-
-**House Bill Would Derail Biden’s Signature Climate Law**\
-`If passed, a bill from the House of Representatives would sharply curtail the tax credits that have spurred a rise in clean energy investments.`\
-https://nytimes.com/2025/05/22/climate/house-bill-would-derail-bidens-signature-climate-law.html
 
