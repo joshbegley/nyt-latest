@@ -1,3 +1,7 @@
+**An Officer Said She Was Disabled. Prosecutors Said She Ran, Skied and Danced.**\
+`Prosecutors say that Nicole Brown, 29, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
+https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
+
 **What We Know About the Accused Gunman in Washington**\
 `The suspect, Elias Rodriguez, has been charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
 https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-aides.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/movies/cannes-neon-sentimental-value-elle-fanning
 **The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
 `Breakout players such as Lukes can lift a baseball team from middling to October.`\
 https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
-
-**Cargo Ship Crashes Into Norway Man’s Backyard**\
-`A retiree living in a small house on the shore of a fjord woke up on Thursday morning because his neighbor was pounding on his door, telling him to look outside.`\
-https://nytimes.com/2025/05/22/world/europe/norway-ship-crash-backyard.html
 

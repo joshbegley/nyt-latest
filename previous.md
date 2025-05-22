@@ -1,3 +1,11 @@
+**What We Know About the Accused Gunman in Washington**\
+`The suspect, Elias Rodriguez, has been charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
+https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-aides.html
+
+**Brendan Shanahan's 11-year Maple Leafs odyssey: Vision, hope, stubborn belief and failure**\
+`After 11 years as Maple Leafs president, Brendan Shanahan is out. How did a tenure that began with so much promise grow so stale?`\
+https://nytimes.com/athletic/5489947/2025/05/22/maple-leafs-brendan-shanahan-era-ends/
+
 **Millions Could Lose Food Stamp Benefits Under Republican Bill, Analysis Finds**\
 `Others could see their monthly benefits reduced if the bill were to become law, according to the nonpartisan Congressional Budget Office.`\
 https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
 **Cargo Ship Crashes Into Norway Man’s Backyard**\
 `A retiree living in a small house on the shore of a fjord woke up on Thursday morning because his neighbor was pounding on his door, telling him to look outside.`\
 https://nytimes.com/2025/05/22/world/europe/norway-ship-crash-backyard.html
-
-**What I'm hearing about the Maple Leafs, Brad Treliving's role and replacing Brendan Shanahan**\
-`The Leafs are in no hurry to replace Shanahan at the top of their front office, sources said, and will not change Treliving's GM role.`\
-https://nytimes.com/athletic/6376345/2025/05/22/brad-treliving-maple-leafs-brendan-shanahan/
-
-**Can the Oilers rebound after their Game 1 loss? History is on their side**\
-`Falling behind 1-0 in a series is nothing new for Edmonton in the Connor McDavid era.`\
-https://nytimes.com/athletic/6376287/2025/05/22/oilers-playoffs-stars-game-2/
 

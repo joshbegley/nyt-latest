@@ -1,3 +1,11 @@
+**What We Know About the Accused Gunman in Washington**\
+`The suspect, Elias Rodriguez, has been charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
+https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-aides.html
+
+**Brendan Shanahan's 11-year Maple Leafs odyssey: Vision, hope, stubborn belief and failure**\
+`After 11 years as Maple Leafs president, Brendan Shanahan is out. How did a tenure that began with so much promise grow so stale?`\
+https://nytimes.com/athletic/5489947/2025/05/22/maple-leafs-brendan-shanahan-era-ends/
+
 **Millions Could Lose Food Stamp Benefits Under Republican Bill, Analysis Finds**\
 `Others could see their monthly benefits reduced if the bill were to become law, according to the nonpartisan Congressional Budget Office.`\
 https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
