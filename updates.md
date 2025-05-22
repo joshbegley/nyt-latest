@@ -1,3 +1,11 @@
+**Leah Williamson, Arsenal, and juggling the emotions of playing in a final for the club you support**\
+`Williamson was a mascot the last time Arsenal's women played a European final. On Saturday, she walks out as the current team's heartbeat`\
+https://nytimes.com/athletic/6358429/2025/05/22/leah-williamson-arsenal-champions-league-final-barcelona/
+
+**How Every Member Voted on the G.O.P. Megabill**\
+`The House voted 215 to 214 to pass the domestic policy bill that will deliver President Trump’s domestic agenda.`\
+https://nytimes.com/interactive/2025/05/22/us/politics/house-gop-megabill-vote.html
+
 **The Athletic FC: Postecoglou delivers - but what now? Plus: Pulisic out of Gold Cup, Slot exclusive**\
 `Today in TAFC: Postecoglou breaks Tottenham's 17-year trophy drought, Pulisic out of Gold Cup squad, exclusive interview with Slot.`\
 https://nytimes.com/athletic/6374639/2025/05/22/postecoglou-delivers-but-what-now-for-tottenham-plus-pulisic-out-of-gold-cup-slot-exclusive/

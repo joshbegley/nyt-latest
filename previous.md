@@ -1,3 +1,11 @@
+**Leah Williamson, Arsenal, and juggling the emotions of playing in a final for the club you support**\
+`Williamson was a mascot the last time Arsenal's women played a European final. On Saturday, she walks out as the current team's heartbeat`\
+https://nytimes.com/athletic/6358429/2025/05/22/leah-williamson-arsenal-champions-league-final-barcelona/
+
+**How Every Member Voted on the G.O.P. Megabill**\
+`The House voted 215 to 214 to pass the domestic policy bill that will deliver President Trump’s domestic agenda.`\
+https://nytimes.com/interactive/2025/05/22/us/politics/house-gop-megabill-vote.html
+
 **The Athletic FC: Postecoglou delivers - but what now? Plus: Pulisic out of Gold Cup, Slot exclusive**\
 `Today in TAFC: Postecoglou breaks Tottenham's 17-year trophy drought, Pulisic out of Gold Cup squad, exclusive interview with Slot.`\
 https://nytimes.com/athletic/6374639/2025/05/22/postecoglou-delivers-but-what-now-for-tottenham-plus-pulisic-out-of-gold-cup-slot-exclusive/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6368367/2025/05/22/nhl-playoffs-panthers-hurricanes
 **House Passes Trump’s Domestic Policy Bill, Overcoming Last-Minute Resistance**\
 `The victory for Republicans came after Speaker Mike Johnson made concessions to holdouts in several factions and President Trump pressured the party to fall in line.`\
 https://nytimes.com/2025/05/22/us/politics/trump-bill-house-vote-passes.html
-
-**How Ottawa Charge, an unconventional women's hockey market, built a PWHL championship contender**\
-`Ottawa's rise to a team that’s two wins away from winning the Walter Cup began with a trade deadline that many viewed as a head-scratcher.`\
-https://nytimes.com/athletic/6374019/2025/05/22/ottawa-charge-pwhl-championship-playoffs/
-
-**AL Central roundtable: Taking stock of the division's contenders in a wide-open AL**\
-`With four of the AL Central’s five teams firmly in the playoff picture, Dan Hayes, Zack Meisel and Cody Stavenhagen discussed the race.`\
-https://nytimes.com/athletic/6373692/2025/05/22/american-league-central-playoff-race/
 
