@@ -1,3 +1,12 @@
+**Deportees Went Where?**\
+`We examine the government’s deportation policies.`\
+https://nytimes.com/2025/05/22/briefing/deportees-went-where.html
+
+**Europa League final fallout: Betting on the future of Man Utd & Spurs**\
+`Sam Tighe analyses the betting permutations of Tottenham Hotspur’s Europa League final win over Manchester United.
+`\
+https://nytimes.com/athletic/6374752/2025/05/22/europa-league-final-reaction-betting-tips-predictions-odds/
+
 **Europa League final fallout: Betting on the future of Man Utd & Spurs**\
 `Sam Tighe analyses the betting permutations of Tottenham Hotspur’s Europa League final win over Manchester United.
 `\

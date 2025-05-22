@@ -1,3 +1,7 @@
+**Deportees Went Where?**\
+`We examine the government’s deportation policies.`\
+https://nytimes.com/2025/05/22/briefing/deportees-went-where.html
+
 **One lesson the Lakers can learn from each NBA conference finalist**\
 `Replicating the Knicks, Pacers and Thunder won't be easy for LA. But each team offers something instructive for the offseason. `\
 https://nytimes.com/athletic/6368852/2025/05/22/lakers-roster-offseason-lessons-knicks-thunder-pacers/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6373531/2025/05/22/bears-ota-ben-johnson-caleb-will
 **Will Buxton, known for F1 and 'Drive to Survive,' embraces new role as Fox Indy 500 voice**\
 `INDIANAPOLIS — When millions of viewers tune in for Sunday&#8217;s Indianapolis 500, the first one broadcast by Fox Sports, they might be surprised by a familiar face.`\
 https://nytimes.com/athletic/6365829/2025/05/22/will-buxton-indy-500-fox-f1-drive-to-survive/
-
-**J.J. McCarthy, roster health and other ingredients key to Vikings success in 2025**\
-`There will be a lot riding on the first-year starting QB, and the Vikings' aging roster must stay relatively healthy to be competitive.`\
-https://nytimes.com/athletic/6373244/2025/05/22/vikings-roster-jj-mccarthy/
 

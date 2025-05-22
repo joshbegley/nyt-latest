@@ -1,41 +1,40 @@
-**Deportees Went Where?**\
-`We examine the government’s deportation policies.`\
-https://nytimes.com/2025/05/22/briefing/deportees-went-where.html
+**Joey Votto and Steph Curry found a secret to workplace happiness. You can, too**\
+`Michigan professor Jane Dutton believes brief, positive interactions between colleagues can change an organization's culture.`\
+https://nytimes.com/athletic/6368286/2025/05/22/joey-votto-steph-curry-workplace-happiness/
 
-**One lesson the Lakers can learn from each NBA conference finalist**\
-`Replicating the Knicks, Pacers and Thunder won't be easy for LA. But each team offers something instructive for the offseason. `\
-https://nytimes.com/athletic/6368852/2025/05/22/lakers-roster-offseason-lessons-knicks-thunder-pacers/
+**An appreciation of Van de Ven and Romero, Tottenham's Europa League-winning rocks**\
+`The Dutch defender's remarkable clearance and his Argentine team-mate's physical battles were key to Spurs' success in Bilbao`\
+https://nytimes.com/athletic/6373909/2025/05/22/romero-van-de-ven-tottenham-europa-league/
 
-**Europa League final fallout: Betting on the future of Man Utd & Spurs**\
-`Sam Tighe analyses the betting permutations of Tottenham Hotspur’s Europa League final win over Manchester United.
-`\
-https://nytimes.com/athletic/6374752/2025/05/22/europa-league-final-reaction-betting-tips-predictions-odds/
+**This Week in Sports Trivia: May 22, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6373024/2025/05/22/this-week-in-sports-trivia-may-22-2025/
 
-**What I’m seeing from Canucks' top prospects in AHL playoffs**\
-`Victor Mancini is playing spectacularly as an all-situations workhorse while Jonathan Lekkerimäki is heating up.`\
-https://nytimes.com/athletic/6374547/2025/05/22/abbotsford-canucks-ahl-playoffs-prospects/
+**What do NHL's best forecheckers look like? Just watch Panthers and Hurricanes**\
+`Forechecking is a big reason the Panthers and Hurricanes are the last two teams standing in the Eastern Conference.`\
+https://nytimes.com/athletic/6368367/2025/05/22/nhl-playoffs-panthers-hurricanes-conference-final-forechecking/
 
-**Why Ferrari's Charles Leclerc is happy being F1's renaissance man**\
-`Ferrari driver Charles Leclerc explains his non-racing passion projects, some of which are inspired by his home grand prix in Monaco`\
-https://nytimes.com/athletic/6372692/2025/05/22/charles-leclerc-ferrari/
+**House Passes Trump’s Domestic Policy Bill, Overcoming Last-Minute Resistance**\
+`The victory for Republicans came after Speaker Mike Johnson made concessions to holdouts in several factions and President Trump pressured the party to fall in line.`\
+https://nytimes.com/2025/05/22/us/politics/trump-bill-house-vote-passes.html
 
-**The Pulse: An overtime stunner at MSG**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6373022/2025/05/22/knicks-pacers-haliburton-choke-the-pulse/
+**How Ottawa Charge, an unconventional women's hockey market, built a PWHL championship contender**\
+`Ottawa's rise to a team that’s two wins away from winning the Walter Cup began with a trade deadline that many viewed as a head-scratcher.`\
+https://nytimes.com/athletic/6374019/2025/05/22/ottawa-charge-pwhl-championship-playoffs/
 
-**Presenting the MLB All-Quarter Century Team, the very best in baseball since 2000**\
-`Selecting the starting position players, a rotation and the closer for a team honoring the best of the best since 2000. Tough calls abound.`\
-https://nytimes.com/athletic/6372926/2025/05/22/mlb-quarter-century-team-2000-2025/
+**AL Central roundtable: Taking stock of the division's contenders in a wide-open AL**\
+`With four of the AL Central’s five teams firmly in the playoff picture, Dan Hayes, Zack Meisel and Cody Stavenhagen discussed the race.`\
+https://nytimes.com/athletic/6373692/2025/05/22/american-league-central-playoff-race/
 
-**Knicks fans inside, outside Madison Square Garden watch Game 1 collapse in stunned silence**\
-`Knicks fans were ready to celebrate a certain Game 1 win. Then there was an inexplicable and painful loss as the party turned into a wake.`\
-https://nytimes.com/athletic/6374286/2025/05/22/knicks-collapse-pacers-game-1/
+**Huge paydays. Millions more in fines. 2 baseball agencies went to war, exposing a cutthroat industry**\
+`When WME Sports wanted to grow its baseball business, it went after two top agents at rival Excel. The outcome stunned the industry.`\
+https://nytimes.com/athletic/6373719/2025/05/22/wme-excel-agent-poaching-contracts-ruling/
 
-**A fiery Ben Johnson, Caleb Williams' footwork, Joe Thuney's extension: Bears OTA takeaways**\
-`At the Bears' first OTA open to the media, head coach Johnson showed off his intensity, and we saw Williams' new shotgun setup`\
-https://nytimes.com/athletic/6373531/2025/05/22/bears-ota-ben-johnson-caleb-williams/
+**Why Broncos' draft was about sustaining one of the NFL's best defensive fronts**\
+`The Broncos return almost everyone from a breakout pass rush, but rookies Sai'vion Jones and Que Robinson are critical to future plans.`\
+https://nytimes.com/athletic/6370469/2025/05/22/broncos-defensive-front-draft-saivion-jones/
 
-**Will Buxton, known for F1 and 'Drive to Survive,' embraces new role as Fox Indy 500 voice**\
-`INDIANAPOLIS — When millions of viewers tune in for Sunday&#8217;s Indianapolis 500, the first one broadcast by Fox Sports, they might be surprised by a familiar face.`\
-https://nytimes.com/athletic/6365829/2025/05/22/will-buxton-indy-500-fox-f1-drive-to-survive/
+**LeBrun: Why Kings could go big-game hunting this offseason — catching up with Ken Holland**\
+`The Kings' new general manager is eager to get to work on his roster: "I plan to be aggressive. Ownership is prepared to go to the cap."`\
+https://nytimes.com/athletic/6373087/2025/05/22/ken-holland-kings-gm-offseason-plans/
 
