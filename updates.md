@@ -1,3 +1,11 @@
+**Roof of Ancient Tower in China Collapses**\
+`Tourists fled and dust filled the air as the roof of the Drum Tower in Fengyang County crumbled.`\
+https://nytimes.com/video/world/asia/100000010184200/china-tower-roof-collapse.html
+
+**Man Utd's awful Europa League final - Amorim's vow, Garnacho tensions, Glazer and Ratcliffe booed at staff party**\
+`The fallout from a tense evening in Bilbao when Manchester United's hopes of saving their season evaporated `\
+https://nytimes.com/athletic/6374097/2025/05/22/manchester-united-europa-league-fallout/
+
 **Futures of Martinelli and Trossard may prove key if Arsenal need to sell to buy**\
 `Mikel Arteta would like to keep both wide forwards at Arsenal, but things could change if a big offer came in`\
 https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-martinelli-and-trossard-may-prove-key-to-summer-plans/
