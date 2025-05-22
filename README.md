@@ -1,3 +1,11 @@
+**‘Choke 2.0’: After Knicks’ epic collapse to Pacers, New Yorkers confront painful memories**\
+`New York's infamous backpages have all drawn the parallel between what Tyrese Haliburton did and what Reggie Miller did 30 years ago.`\
+https://nytimes.com/athletic/6374984/2025/05/22/tyrese-haliburton-choke-gesture-reggie-miller-pacers-knicks-playoffs-nba/
+
+**Red Light: Toronto’s thorny offseason ahead. Plus: Updated Conn Smythe rankings**\
+`Is this the end of the Shanaplan?`\
+https://nytimes.com/athletic/6375314/2025/05/22/maple-leafs-conn-smythe-red-light-newsletter/
+
 **Small Plane Crashes in San Diego, Setting Homes Ablaze**\
 `The plane, a Cessna 550, crashed near the Tierrasanta neighborhood, officials said. There was no immediate information about casualties.`\
 https://nytimes.com/2025/05/22/us/san-diego-plane-crash-tierrasanta.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/upshot/medicaid-republicans-work-requirement.html
 **Federal agents descend on the suspect’s apartment building in Chicago.**\
 `By Robert Chiarito and Claire Moses`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/federal-agents-descend-on-the-suspects-apartment-building-in-chicago
-
-**Adrienne Adams, Invoking Father’s Death, Says Cuomo Mismanaged Pandemic**\
-`In a deeply personal speech, Ms. Adams, who is running for mayor, will speak about her father’s death from Covid in 2020. She says that as governor, Mr. Cuomo “failed him.”`\
-https://nytimes.com/2025/05/22/nyregion/adrienne-adams-nyc-mayor-cuomo-covid.html
-
-**Eagles selling tush push T-shirts to celebrate NFL owners vote**\
-`Customers will press the "push here" button instead of “add to cart” when buying the shirt off the Eagles' website.`\
-https://nytimes.com/athletic/6375084/2025/05/22/eagles-tush-push-shirt/
 
