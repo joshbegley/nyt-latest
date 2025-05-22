@@ -1,3 +1,7 @@
+**The Windup: Best MLB players since 2000**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6374530/2025/05/22/best-mlb-players-century-the-windup/
+
 **Bond Market Shudders as Tax Bill Deepens Deficit Worries**\
 `Financial markets are looking for more “fiscal discipline” from Washington, a top official at the Federal Reserve warned.`\
 https://nytimes.com/2025/05/22/us/politics/bond-market-debt-deficit.html

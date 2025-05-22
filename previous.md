@@ -1,3 +1,7 @@
+**The Windup: Best MLB players since 2000**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6374530/2025/05/22/best-mlb-players-century-the-windup/
+
 **Bond Market Shudders as Tax Bill Deepens Deficit Worries**\
 `Financial markets are looking for more “fiscal discipline” from Washington, a top official at the Federal Reserve warned.`\
 https://nytimes.com/2025/05/22/us/politics/bond-market-debt-deficit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html
 **Enhanced Games claims swimmer broke two world records**\
 `Organisers said Greek swimmer Kristian Gkolomeev, who finished fifth at the Olympics, set two world records in the 50m freestyle.`\
 https://nytimes.com/athletic/6374748/2025/05/22/enhanced-games-world-records-kristian-gkolomeev/
-
-**Ask Ornstein Q&A: Our football insider answers your questions**\
-`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
-https://nytimes.com/athletic/6374720/2025/05/22/ask-ornstein-qa-our-football-insider-answers-your-questions-27/
 
