@@ -1,3 +1,11 @@
+**Read the F.B.I. Affidavit**\
+`The Justice Department charged Elias Rodriguez, of Chicago, with murder of foreign officials, first-degree murder and other crimes in the shooting deaths of two Israeli Embassy employees in Washington.`\
+https://nytimes.com/interactive/2025/05/22/us/rodriguez-aff.html
+
+**Liam Hendriks reveals in Instagram post that he's received death threats**\
+`Hendriks called out fans making threats to himself and his family: "Threats against my life and my wife’s life are horrible and cruel."`\
+https://nytimes.com/athletic/6376120/2025/05/22/red-sox-liam-hendriks-threats-instagram-post/
+
 **Judge weighs text evidence after Brett Howden's emotional testimony**\
 `Judge's ruling on whether the former Canadian Junior team member's text message will be admissible is expected Friday morning. `\
 https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/

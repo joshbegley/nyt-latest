@@ -1,3 +1,11 @@
+**Read the F.B.I. Affidavit**\
+`The Justice Department charged Elias Rodriguez, of Chicago, with murder of foreign officials, first-degree murder and other crimes in the shooting deaths of two Israeli Embassy employees in Washington.`\
+https://nytimes.com/interactive/2025/05/22/us/rodriguez-aff.html
+
+**Liam Hendriks reveals in Instagram post that he's received death threats**\
+`Hendriks called out fans making threats to himself and his family: "Threats against my life and my wife’s life are horrible and cruel."`\
+https://nytimes.com/athletic/6376120/2025/05/22/red-sox-liam-hendriks-threats-instagram-post/
+
 **Judge weighs text evidence after Brett Howden's emotional testimony**\
 `Judge's ruling on whether the former Canadian Junior team member's text message will be admissible is expected Friday morning. `\
 https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/world/africa/trump-false-genocide-claims-south-af
 **G7 Finance Ministers Show Unity in Support of Ukraine Against Russia**\
 `Top economic officials avoided a condemnation of U.S. tariffs but committed to trying to reduce “economic policy uncertainty.”`\
 https://nytimes.com/2025/05/22/us/politics/g7-unity-ukraine-against-russia.html
-
-**Blashill brings hope to Blackhawks but faces daunting task**\
-`Will Blashill be the coach who returns the Blackhawks to glory or will he be another franchise footnote?`\
-https://nytimes.com/athletic/6376063/2025/05/22/blackhawks-coach-jeff-blashill-rebuild-nhl/
-
-**Cookies: the Book!**\
-`Give future you the gift of many, many (many) excellent cookies.`\
-https://nytimes.com/2025/05/22/dining/cookies-the-book.html
 
