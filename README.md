@@ -1,3 +1,7 @@
+**It’s Early in Formula 1, and Ferrari Has Already Faded**\
+`The team and its drivers, Charles Leclerc and Lewis Hamilton, have struggled.`\
+https://nytimes.com/2025/05/22/sports/autoracing/f1-ferrari-monaco-leclerc.html
+
 **Formula 1 Tries to Make the Monaco Grand Prix More Exciting**\
 `Because overtaking is rare, the race can be dull. So the sport has ruled that two pit stops are now mandatory in a bid to spice things up.`\
 https://nytimes.com/2025/05/22/sports/autoracing/f1-monaco-grand-prix-pit-stops.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375258/2025/05/22/pacers-knicks-comeback-game-1-nb
 **Blackhawks hire Jeff Blashill as head coach: Why he's getting another shot**\
 `Blashill, 51, has been hired as the Blackhawks' head coach, a league source said, making him the 42nd head coach in franchise history.`\
 https://nytimes.com/athletic/6369049/2025/05/22/blackhawks-coach-jeff-blashill-hire-nhl/
-
-**Inside a Harrowing, Hail-Damaged Flight: ‘We Thought It Was Our Last’**\
-`When an IndiGo flight from New Delhi ran into a severe hailstorm, a passenger described several terrifying minutes: “They were calling their gods, we were calling our gods.”`\
-https://nytimes.com/2025/05/22/world/europe/indigo-flight-hailstorm.html
 
