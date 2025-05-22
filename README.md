@@ -1,3 +1,19 @@
+**Are You Smarter Than a Billionaire?**\
+`The difference between two similar looking paintings can be millions of dollars. Can you spot the most expensive ones from New York’s recent auction week?`\
+https://nytimes.com/interactive/2025/05/22/arts/design/auction-quiz.html
+
+**Supreme Court Lets Trump, for Now, Remove Agency Leaders**\
+`An appeals court previously ruled that a key 1935 precedent, long in the cross hairs of the conservative legal movement, meant the officials could keep their jobs.`\
+https://nytimes.com/2025/05/22/us/supreme-court-trump-agency-firings.html
+
+**‘Sirens’ Is a Poppy Summer Getaway**\
+`The new Netflix series, starring Meghann Fahy, Milly Alcock and Julianne Moore, isn’t breaking any boundaries, but it is often entertaining.`\
+https://nytimes.com/2025/05/22/arts/television/sirens-netflix.html
+
+**Trump Administration Opens Investigation Into Diversity Efforts at Virginia School**\
+`The inquiry is the latest attempt to apply the Supreme Court’s affirmative action ban to K-12 education.`\
+https://nytimes.com/2025/05/22/us/trump-fairfax-schools-investigation.html
+
 **A Revealing Joke in the Oval Office About Getting in Trump’s Good Graces**\
 `The president of South Africa’s wisecrack about a free plane spoke volumes.`\
 https://nytimes.com/2025/05/22/us/politics/trump-plane-south-africa-gifts.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6376120/2025/05/22/red-sox-liam-hendriks-threats-in
 **Judge weighs text evidence after Brett Howden's emotional testimony**\
 `Judge's ruling on whether the former Canadian junior team member's text message will be admissible is expected Friday morning.`\
 https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/
-
-**Now That House Republicans Took the Plunge, It’s the Senate’s Turn**\
-`Senate Republicans say changes are coming for the sprawling domestic policy bill carrying President Trump’s agenda. Their colleagues who took political risks to push it through the House might not like them.`\
-https://nytimes.com/2025/05/22/us/politics/senate-republicans-budget-vote.html
-
-**After More Than a Century in Skorts and Skirts, Ireland’s Camogie Allows Shorts**\
-`A committee vote on Thursday approved a measure that would allow players in the women’s sport to choose between shorts or skorts during official play.`\
-https://nytimes.com/2025/05/22/world/europe/camogie-skorts-shorts-vote-ireland.html
-
-**France leave Renard, Le Sommer and Dali out of Nations League squad**\
-`The trio have a combined total of 444 caps for the national side.`\
-https://nytimes.com/athletic/6376158/2025/05/22/france-women-nations-league-squad/
-
-**Venezuelan Man Is Arrested After Posing as a High School Student in Ohio**\
-`A 24-year-old has been charged with forgery after enrolling in an Ohio high school as a 16-year-old student, the federal authorities said.`\
-https://nytimes.com/2025/05/22/us/venezuelan-man-identity-fraud-ohio.html
 
