@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints for May 22, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6374259/2025/05/22/connections-sports-edition-hints-for-may-22-2025/
+
 **This Filipino Chicken Soup Heals and Restores**\
 `The gingery, sweet heat of chicken tinola rewards patience.`\
 https://nytimes.com/2025/05/22/magazine/filipino-chicken-soup-tinola.html
