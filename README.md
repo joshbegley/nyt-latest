@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6374112/2025/05/21/stars-oilers-game-1/
 
 **Here are some of the changes to the House bill unveiled Wednesday night.**\
 `By The New York Times`\
-https://nytimes.com/live/2025/05/21/us/trump-news/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night
+https://nytimes.com/2025/05/21/us/politics/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night.html
 
 **Trump Casts Himself as a Protector of Persecuted White People**\
 `President Trump publicly dressed down the president of South Africa based on a fringe conspiracy theory, providing a vivid distillation of his views on race.`\
