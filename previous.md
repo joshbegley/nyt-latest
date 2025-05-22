@@ -1,3 +1,7 @@
+**The Pulse: An overtime stunner at MSG**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6373022/2025/05/22/knicks-pacers-haliburton-choke-the-pulse/
+
 **Presenting the MLB All-Quarter Century Team, the very best in baseball since 2000**\
 `Selecting the starting position players, a rotation and the closer for a team honoring the best of the best since 2000. Tough calls abound.`\
 https://nytimes.com/athletic/6372926/2025/05/22/mlb-quarter-century-team-2000-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/podcasts/the-headlines/dc-shooting-jewish-museum-
 **Ranking college football's top 25 games of the 2000s**\
 `Vince Young delivered a national title to Texas with one of the greatest individual performances in the history of the sport. `\
 https://nytimes.com/athletic/6350610/2025/05/22/college-football-best-games-vince-young-rose-bowl/
-
-**What We Know About the Deadly Shooting Outside the Jewish Museum in D.C.**\
-`Two employees of the Israeli Embassy in Washington were killed, officials said. A suspect was in custody.`\
-https://nytimes.com/2025/05/22/us/israeli-embassy-shooting-washington-dc.html
 
