@@ -1,3 +1,7 @@
+**Pochettino uses USMNT Gold Cup squad to send a pointed message**\
+`With so many squad regulars out for varying reasons and a sense of urgency only growing as the World Cup nears, the U.S. manager has his say`\
+https://nytimes.com/athletic/6375841/2025/05/22/usmnt-gold-cup-roster-mauricio-pochettino-message/
+
 **Is It Ever OK to Touch a Stranger?**\
 `A tense exchange between the actor Denzel Washington and a photographer at Cannes is raising questions about laying hands on someone you don’t know.`\
 https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html

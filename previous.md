@@ -1,3 +1,7 @@
+**Pochettino uses USMNT Gold Cup squad to send a pointed message**\
+`With so many squad regulars out for varying reasons and a sense of urgency only growing as the World Cup nears, the U.S. manager has his say`\
+https://nytimes.com/athletic/6375841/2025/05/22/usmnt-gold-cup-roster-mauricio-pochettino-message/
+
 **Is It Ever OK to Touch a Stranger?**\
 `A tense exchange between the actor Denzel Washington and a photographer at Cannes is raising questions about laying hands on someone you don’t know.`\
 https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371534/2025/05/22/shai-gilgeous-alexander-thunder-
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/05/22/books/review/new-books-recommendations.html
-
-**Medicaid, Welfare and a Work Requirement**\
-`Readers respond to a guest essay by four Trump administration officials. Also: President Trump’s contentious meeting with the South African president.`\
-https://nytimes.com/2025/05/22/opinion/medicaid-welfare-work-requirement.html
 
