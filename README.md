@@ -1,3 +1,11 @@
+**What I’m seeing from Canucks' top prospects in AHL playoffs**\
+`Victor Mancini is playing spectacularly as an all-situations workhorse while Jonathan Lekkerimäki is heating up.`\
+https://nytimes.com/athletic/6374547/2025/05/22/abbotsford-canucks-ahl-playoffs-prospects/
+
+**Why Ferrari's Charles Leclerc is happy being F1's renaissance man**\
+`Ferrari driver Charles Leclerc explains his non-racing passion projects, some of which are inspired by his home grand prix in Monaco`\
+https://nytimes.com/athletic/6372692/2025/05/22/charles-leclerc-ferrari/
+
 **The Pulse: An overtime stunner at MSG**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6373022/2025/05/22/knicks-pacers-haliburton-choke-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6370068/2025/05/22/confessions-espn-worst-around-th
 **Silver: Remembering Jim Irsay, a sweet, generous soul and steely steward of the sport**\
 `In a world of amplified noise, instant takes and a whole lot of groupthink, Irsay grew accustomed to having his essence misunderstood.`\
 https://nytimes.com/athletic/6373970/2025/05/22/jim-irsay-colts-appreciation/
-
-**D.C. Shooting Kills 2 at Jewish Museum, and Trump’s Uncomfortable Oval Office Meeting**\
-`Plus, breakfast cereals are getting less healthy.`\
-https://nytimes.com/2025/05/22/podcasts/the-headlines/dc-shooting-jewish-museum-trump.html
-
-**Ranking college football's top 25 games of the 2000s**\
-`Vince Young delivered a national title to Texas with one of the greatest individual performances in the history of the sport. `\
-https://nytimes.com/athletic/6350610/2025/05/22/college-football-best-games-vince-young-rose-bowl/
 
