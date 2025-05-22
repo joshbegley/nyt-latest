@@ -1,3 +1,12 @@
+**One lesson the Lakers can learn from each NBA conference finalist**\
+`Replicating the Knicks, Pacers and Thunder won't be easy for LA. But each team offers something instructive for the offseason. `\
+https://nytimes.com/athletic/6368852/2025/05/22/lakers-roster-offseason-lessons-knicks-thunder-pacers/
+
+**Europa League final fallout: Betting on the future of Man Utd & Spurs**\
+`Sam Tighe analyses the betting permutations of Tottenham Hotspur’s Europa League final win over Manchester United.
+`\
+https://nytimes.com/athletic/6374752/2025/05/22/europa-league-final-reaction-betting-tips-predictions-odds/
+
 **What I’m seeing from Canucks' top prospects in AHL playoffs**\
 `Victor Mancini is playing spectacularly as an all-situations workhorse while Jonathan Lekkerimäki is heating up.`\
 https://nytimes.com/athletic/6374547/2025/05/22/abbotsford-canucks-ahl-playoffs-prospects/

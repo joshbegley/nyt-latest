@@ -1,3 +1,12 @@
+**One lesson the Lakers can learn from each NBA conference finalist**\
+`Replicating the Knicks, Pacers and Thunder won't be easy for LA. But each team offers something instructive for the offseason. `\
+https://nytimes.com/athletic/6368852/2025/05/22/lakers-roster-offseason-lessons-knicks-thunder-pacers/
+
+**Europa League final fallout: Betting on the future of Man Utd & Spurs**\
+`Sam Tighe analyses the betting permutations of Tottenham Hotspur’s Europa League final win over Manchester United.
+`\
+https://nytimes.com/athletic/6374752/2025/05/22/europa-league-final-reaction-betting-tips-predictions-odds/
+
 **What I’m seeing from Canucks' top prospects in AHL playoffs**\
 `Victor Mancini is playing spectacularly as an all-situations workhorse while Jonathan Lekkerimäki is heating up.`\
 https://nytimes.com/athletic/6374547/2025/05/22/abbotsford-canucks-ahl-playoffs-prospects/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6365829/2025/05/22/will-buxton-indy-500-fox-f1-driv
 **J.J. McCarthy, roster health and other ingredients key to Vikings success in 2025**\
 `There will be a lot riding on the first-year starting QB, and the Vikings' aging roster must stay relatively healthy to be competitive.`\
 https://nytimes.com/athletic/6373244/2025/05/22/vikings-roster-jj-mccarthy/
-
-**Confessions of ESPN's worst 'Around the Horn' participant of all time**\
-`As ESPN's daily debate show ends its run after 23 years and 4,953 episodes, Dan Shanoff reflects on his all-too-brief career as a panelist.`\
-https://nytimes.com/athletic/6370068/2025/05/22/confessions-espn-worst-around-the-horn-participant/
-
-**Silver: Remembering Jim Irsay, a sweet, generous soul and steely steward of the sport**\
-`In a world of amplified noise, instant takes and a whole lot of groupthink, Irsay grew accustomed to having his essence misunderstood.`\
-https://nytimes.com/athletic/6373970/2025/05/22/jim-irsay-colts-appreciation/
 
