@@ -1,3 +1,7 @@
+**China’s BYD Outsells Tesla in Europe for First Time**\
+`Despite steep tariffs, the Chinese carmaker leapfrogged Tesla in April, in what an analyst called a “watershed moment” for the continent’s auto market.`\
+https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html
+
 **Enhanced Games claims swimmer broke two world records**\
 `Organisers said Greek swimmer Kristian Gkolomeev, who finished fifth at the Olympics, set two world records in the 50m freestyle.`\
 https://nytimes.com/athletic/6374748/2025/05/22/enhanced-games-world-records-kristian-gkolomeev/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6370692/2025/05/22/parity-2025-nba-playoffs-thunder
 **Who is most important to the Chargers’ success in 2025? Counting down the top 10**\
 `As is almost always the case, quarterback Justin Herbert is the most important player. But who else cracks the top 10? `\
 https://nytimes.com/athletic/6371576/2025/05/22/chargers-most-important-2025-part-2/
-
-**Red Wings offseason targets: Mitch Marner, Sam Bennett lead the list**\
-`The Red Wings have some clearly defined needs as they look to snap a nine-year playoff drought. Here's who could fill them.`\
-https://nytimes.com/athletic/6371158/2025/05/22/red-wings-offseason-targets-mitch-marner-sam-bennett/
 

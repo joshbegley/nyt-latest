@@ -1,3 +1,7 @@
+**China’s BYD Outsells Tesla in Europe for First Time**\
+`Despite steep tariffs, the Chinese carmaker leapfrogged Tesla in April, in what an analyst called a “watershed moment” for the continent’s auto market.`\
+https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html
+
 **Enhanced Games claims swimmer broke two world records**\
 `Organisers said Greek swimmer Kristian Gkolomeev, who finished fifth at the Olympics, set two world records in the 50m freestyle.`\
 https://nytimes.com/athletic/6374748/2025/05/22/enhanced-games-world-records-kristian-gkolomeev/
