@@ -1,3 +1,11 @@
+**Jude Bellingham's shoulder surgery: What impact will it have on Real Madrid? Might they buy a midfielder?**\
+`Madrid are planning for the midfielder to undergo shoulder surgery after the Club World Cup, which is likely to keep him out for 12 weeks`\
+https://nytimes.com/athletic/6372360/2025/05/22/jude-bellingham-shoulder-surgery-real-madrid-impact/
+
+**The teams who never win have won this season - and football is better for it**\
+`Spurs waited 17 years, Newcastle 70 and Crystal Palace had never won a trophy - surely that is better than 'Big Six' dominance?`\
+https://nytimes.com/athletic/6371988/2025/05/22/newcastle-palace-kane-trophies/
+
 **Lynx best Bueckers, Wings, 85-81, in No. 1 pick's homecoming**\
 `Early MVP candidate Napheesa Collier led Minnesota with 28 points`\
 https://nytimes.com/athletic/6374079/2025/05/22/lynx-best-paige-bueckers-wings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/21/us/politics/israel-embassy-staffers-killed.html
 **Shades of Reggie Miller: Haliburton, Pacers hand Knicks fresh heartbreak**\
 `Tyrese Haliburton helped the Pacers rally from a 17-point deficit to stun the Knicks in overtime in Game 1 of the Eastern Conference finals.`\
 https://nytimes.com/athletic/6374111/2025/05/21/pacers-upset-knicks-heartbreak-tyrese-haliburton/
-
-**Blue Jays' Kevin Gausman searched for his old splitter, and he might have finally found it**\
-`Gausman unintentionally changed the splitter's movement profile. His attempts to rectify it are paying off.`\
-https://nytimes.com/athletic/6374106/2025/05/21/blue-jays-kevin-gausman-splitter-return/
-
-**Stars turn former weakness into strength, rally to beat Oilers in Game 1: Takeaways**\
-`Dallas, trailing by two goals to start the third period, earned a 6-3 victory to open the Western Conference final.`\
-https://nytimes.com/athletic/6374112/2025/05/21/stars-oilers-game-1/
 
