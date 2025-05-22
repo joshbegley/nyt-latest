@@ -1,3 +1,11 @@
+**Two Israeli Embassy Staffers Shot and Killed Outside Event in Washington, Officials Say**\
+`Homeland Security Secretary Kristi Noem said that the shooting occurred near an event held at the Capital Jewish Museum.`\
+https://nytimes.com/2025/05/21/us/politics/israel-embassy-staffers-killed.html
+
+**Pacers stun Knicks in OT thriller as Haliburton delivers Miller-esque moment**\
+`Tyrese Haliburton helped the Pacers rally from a 17-point deficit to stun the Knicks in overtime in Game 1 of the Eastern Conference finals.`\
+https://nytimes.com/athletic/6374111/2025/05/21/pacers-upset-knicks-heartbreak-tyrese-haliburton/
+
 **Blue Jays' Kevin Gausman searched for his old splitter, and he might have finally found it**\
 `Gausman unintentionally changed the splitter's movement profile. His attempts to rectify it are paying off.`\
 https://nytimes.com/athletic/6374106/2025/05/21/blue-jays-kevin-gausman-splitter-return/
