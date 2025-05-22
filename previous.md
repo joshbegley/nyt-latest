@@ -1,8 +1,16 @@
+**Pragmatic, adaptable, victorious - Tottenham's success is a triumph of management for Postecoglou**\
+`So long a byword for banter, this is the story of how Spurs became laser-focused on European success at the epense of the league`\
+https://nytimes.com/athletic/6374384/2025/05/22/ange-postecoglou-tottenham-europa-league-winners/
+
+**Word of the Day: horticulturalist**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/22/learning/word-of-the-day-horticulturalist.html
+
 **Barkley lobbies for Haliburton's dad to be able to attend Games 3, 4 against Knicks after ban**\
 `John Haliburton has been banned from games since storming the court and waving a towel in Giannis Antetokounmpo's face.`\
 https://nytimes.com/athletic/6374278/2025/05/22/charles-barkley-tyrese-haliburton-father-banned/
 
-**Gotham, Tigres advance to Concacaf Champions Cup Final**\
+**Gotham, Tigres advance to Concacaf W Champions Cup Final**\
 `Gotham and Tigres move on to Saturday's match with emphatic victories over Club América and the Portland Thorns.`\
 https://nytimes.com/athletic/6374312/2025/05/22/gotham-tigres-advance-concacaf-champions-cup-final/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/world/europe/prisons-britain-texas.html
 **White Afrikaners Are Trump’s Kind of Oppressed Minority**\
 `The race-baiting grift is alive and well in South Africa.`\
 https://nytimes.com/2025/05/22/opinion/south-africa-white-afrikaner-trump.html
-
-**An Unstable Panama Could Be a Disaster for the United States**\
-`By pushing Panama’s president for one concession after the next, Trump is weakening a government closely aligned with the United States.`\
-https://nytimes.com/2025/05/22/opinion/panama-canal-trump-mulino.html
-
-**The World Now Has a Word(le)-Loving Pope**\
-`Pope Leo’s fluency in English, Spanish and Italian will help him govern the global church — and the Vatican.`\
-https://nytimes.com/2025/05/22/opinion/pope-leo-english-spanish-italian.html
 
