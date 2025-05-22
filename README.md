@@ -1,3 +1,7 @@
+**Why absolutely stunning comebacks are suddenly the Pacers' thing**\
+`How do these Pacers keep doing this?`\
+https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
+
 **Will the Wild's Gustavsson-Wallstedt goalie tandem be a 'rivalry' or partnership?**\
 `How the dynamic between the two netminders plays out, and how they perform, could go a long way in determining the Wild’s fate in 2025-26.`\
 https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie-dynamic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6370140/2025/05/22/jaccob-slavin-hurricanes-defense
 **Kid Cudi Is Expected to Testify in the Sean Combs Trial**\
 `The rapper is scheduled to take the stand on Thursday to describe how his car was “blown up” after a threat by a jealous Mr. Combs.`\
 https://nytimes.com/2025/05/22/arts/music/kid-cudi-sean-combs-diddy-trial.html
-
-**They Were Days From Getting Engaged. Then They Were Killed in D.C.**\
-`Sarah Milgrim and Yaron Lischinsky met while working at the Israeli Embassy in Washington, her father said. Mr. Lischinsky had just bought an engagement ring, an official said.`\
-https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victims-sarah-milgrim-yaron-lischinsky.html
 
