@@ -1,3 +1,7 @@
+**Futures of Martinelli and Trossard may prove key if Arsenal need to sell to buy**\
+`Mikel Arteta would like to keep both wide forwards at Arsenal, but things could change if a big offer came in`\
+https://nytimes.com/athletic/6372237/2025/05/22/arsenal-transfers-futures-of-martinelli-and-trossard-may-prove-key-to-summer-plans/
+
 **Pragmatic, adaptable, victorious - Tottenham's success is a triumph of management for Postecoglou**\
 `So long a byword for banter, this is the story of how Spurs became laser-focused on European success at the epense of the league`\
 https://nytimes.com/athletic/6374384/2025/05/22/ange-postecoglou-tottenham-europa-league-winners/
