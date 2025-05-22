@@ -1,3 +1,16 @@
+**Chicago Cubs aiming to secure 2027 All-Star Game for Wrigley Field **\
+`Wrigley Field last hosted the All-Star Game in 1990.`\
+https://nytimes.com/athletic/6376379/2025/05/22/chicago-cubs-all-star-game-wrigley-field/
+
+**Republican Bill Would Limit Judges’ Contempt Power**\
+`Democrats have argued that House Republicans’ measure would rob courts of their power by stripping away any consequences for officials who ignore judges’ rulings.`\
+https://nytimes.com/2025/05/22/us/politics/trump-policy-bill-judges-contempt.html
+
+**Yankees might face good problem with Jazz Chisholm Jr.'s nearing return**\
+`DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
+`\
+https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
+
 **A Mayor’s Son Prepares to Inherit the Job His Father Never Got to Finish**\
 `In Pittsburgh, Corey O’Connor’s victory in the Democratic primary represents a turn from progressive policies — and a chance for him to run the city his father once led.`\
 https://nytimes.com/2025/05/22/us/corey-oconnor-pittsburgh-democrat-candidate-mayor.html
