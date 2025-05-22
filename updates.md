@@ -1,3 +1,11 @@
+**Knick of time: A look at how the Pacers rallied in the final minutes of Game 1**\
+`After an amazing fourth quarter, Indiana outscored New York 13-10 in overtime to prevail 138-135.`\
+https://nytimes.com/athletic/6375258/2025/05/22/pacers-knicks-comeback-game-1-nba-playoffs/
+
+**NOAA Predicts ‘Above Average’ Hurricane Season**\
+`The National Oceanic and Atmospheric Administration is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
+https://nytimes.com/2025/05/22/weather/noaa-forecast-hurricane-season.html
+
 **NOAA Predicts ‘Above Average’ Hurricane Season**\
 `The National Oceanic and Atmospheric Agency is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
 https://nytimes.com/2025/05/22/weather/noaa-forecast-hurricane-season.html
