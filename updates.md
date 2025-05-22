@@ -1,3 +1,7 @@
+**Netanyahu Names New Domestic Spy Chief After Clash With the Last One**\
+`The appointment of Maj. Gen. David Zini to head Shin Bet, Israel’s domestic intelligence agency, still faces a fraught legal process.`\
+https://nytimes.com/2025/05/22/world/middleeast/israel-netanyahu-shin-bet-zini.html
+
 **Man Charged With Murder in Killing of Israeli Embassy Aides**\
 `Also, Trump officials blocked Harvard from enrolling foreign students. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/22/briefing/charges-israel-embassy-shooting-harvard-students.html

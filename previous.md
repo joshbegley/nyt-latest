@@ -1,3 +1,7 @@
+**Netanyahu Names New Domestic Spy Chief After Clash With the Last One**\
+`The appointment of Maj. Gen. David Zini to head Shin Bet, Israel’s domestic intelligence agency, still faces a fraught legal process.`\
+https://nytimes.com/2025/05/22/world/middleeast/israel-netanyahu-shin-bet-zini.html
+
 **Man Charged With Murder in Killing of Israeli Embassy Aides**\
 `Also, Trump officials blocked Harvard from enrolling foreign students. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/22/briefing/charges-israel-embassy-shooting-harvard-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/politics/trump-plane-south-africa-gifts.html
 **Friday Briefing: Two Israeli Embassy Staff Killed**\
 `Plus, books to look forward to.`\
 https://nytimes.com/2025/05/22/briefing/israel-embassy-staff-killing-gaza-aid-alberta-canada-secession.html
-
-**Can We Please Stop Lying About Obama?**\
-`The problem with arguing that neoliberals left American workers behind is that it’s mostly untrue.`\
-https://nytimes.com/2025/05/22/opinion/american-workers-neoliberalism-obama.html
 
