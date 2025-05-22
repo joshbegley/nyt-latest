@@ -1,3 +1,27 @@
+**'We’ve got to be an awful lot more mature': Oilers bemoan loss of control in Game 1**\
+`The Oilers held a two-goal lead over the Stars going into the third period, but a leaky penalty kill sent them to defeat.`\
+https://nytimes.com/athletic/6374311/2025/05/22/oilers-stars-game-1-penalties/
+
+**The New York Times in Print for Thursday, May 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/22/todays-new-york-times
+
+**Short of Prison Space, U.K. Looks to U.S. Model of Time Off for Good Conduct**\
+`An official review commissioned by the British government calls for criminals to earn earlier release, and cites Texas as a particular example.`\
+https://nytimes.com/2025/05/22/world/europe/prisons-britain-texas.html
+
+**White Afrikaners Are Trump’s Kind of Oppressed Minority**\
+`The race-baiting grift is alive and well in South Africa.`\
+https://nytimes.com/2025/05/22/opinion/south-africa-white-afrikaner-trump.html
+
+**An Unstable Panama Could Be a Disaster for the United States**\
+`By pushing Panama’s president for one concession after the next, Trump is weakening a government closely aligned with the United States.`\
+https://nytimes.com/2025/05/22/opinion/panama-canal-trump-mulino.html
+
+**The World Now Has a Word(le)-Loving Pope**\
+`Pope Leo’s fluency in English, Spanish and Italian will help him govern the global church — and the Vatican.`\
+https://nytimes.com/2025/05/22/opinion/pope-leo-english-spanish-italian.html
+
 **Israeli Embassy Aides Killed in Washington**\
 `The young couple were soon to be engaged and had been at the Capital Jewish Museum when a man, who shouted pro-Palestinian slogans, opened fire, the authorities said.`\
 https://nytimes.com/video/us/politics/100000010184293/israel-embassy-staffers-killed.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6374259/2025/05/22/connections-sports-edition-hints
 **This Filipino Chicken Soup Heals and Restores**\
 `The gingery, sweet heat of chicken tinola rewards patience.`\
 https://nytimes.com/2025/05/22/magazine/filipino-chicken-soup-tinola.html
-
-**How Marc Cucurella became an important element of Chelsea's attack**\
-`Defensively, Cucurella plays in one position for Chelsea. Offensively, it's a completely different story...`\
-https://nytimes.com/athletic/6369357/2025/05/22/marc-cucurella-chelsea-attack-goals/
-
-**Paige Bueckers' pro debut in Minnesota was a reflection of her roots and inspiration**\
-`The Wings lost to the Lynx, but Bueckers' fans basked in her homecoming. `\
-https://nytimes.com/athletic/6374217/2025/05/22/paige-bueckers-return-minnesota-wnba-dallas-wings/
-
-**Leeds' inner-city pitch saved by Bielsa and viewed as Elland Road's little sister**\
-`After a six-year battle, TV Harrison Sports Ground Association and its supporters are confident the pitch has been saved for years to come`\
-https://nytimes.com/athletic/6372131/2025/05/22/wortley-wembley-leeds-united-marcelo-bielsa/
-
-**Southampton fans: How satisfied are you with their 2024-25 season?**\
-`We are asking supporters of every Premier League club to tell us whether they are happy with how their team have performed this season`\
-https://nytimes.com/athletic/6365746/2025/05/22/southampton-fans-satisfaction-survey/
-
-**Fulham fans: How satisfied are you with their 2024-25 season?**\
-`We are asking supporters of every Premier League club to tell us whether they are happy with how their team have performed this season`\
-https://nytimes.com/athletic/6362010/2025/05/22/fulham-fans-satisfaction-survey/
-
-**Nottingham Forest fans: How satisfied are you with their 2024-25 season?**\
-`We are asking supporters of every Premier League club to tell us whether they are happy with how their team have performed this season`\
-https://nytimes.com/athletic/6365735/2025/05/22/nottingham-forest-fans-satisfaction-survey/
 
