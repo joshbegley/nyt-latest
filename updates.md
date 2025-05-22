@@ -1,3 +1,7 @@
+**Why Yankees' Jasson Domínguez impressed Aaron Judge before walk-off home run vs. Rangers**\
+`Domínguez's solo homer in the ninth inning gave the Yankees a 4-3 win over the Rangers and sent Yankee Stadium into a frenzy.`\
+https://nytimes.com/athletic/6374229/2025/05/22/yankees-jasson-dominguez-aaron-judge-walk-off-home-run-rangers/
+
 **Barkley lobbies for Haliburton's dad to be able to attend Games 3, 4 against Knicks after ban**\
 `John Haliburton has been banned from games since storming the court and waving a towel in Giannis Antetokounmpo's face.`\
 https://nytimes.com/athletic/6374278/2025/05/22/charles-barkley-tyrese-haliburton-father-banned/
