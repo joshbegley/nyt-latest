@@ -1,3 +1,7 @@
+**Knick of time: A look at how the Pacers rallied in the final minutes of Game 1**\
+`After an amazing fourth quarter, Indiana outscored New York 13-10 in overtime to prevail 138-135.`\
+https://nytimes.com/athletic/6375258/2025/05/22/pacers-knicks-comeback-game-1-nba-playoffs/
+
 **Blackhawks hire Jeff Blashill as head coach: Why he's getting another shot**\
 `Blashill, 51, has been hired as the Blackhawks' head coach, a league source said, making him the 42nd head coach in franchise history.`\
 https://nytimes.com/athletic/6369049/2025/05/22/blackhawks-coach-jeff-blashill-hire-nhl/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/05/22/world/europe/indigo-flight-hailstorm.html
 https://nytimes.com/2025/05/22/us/politics/trump-federal-funds-gao.html
 
 **NOAA Predicts ‘Above Average’ Hurricane Season**\
-`The National Oceanic and Atmospheric Agency is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
+`The National Oceanic and Atmospheric Administration is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
 https://nytimes.com/2025/05/22/weather/noaa-forecast-hurricane-season.html
 
 **Bat speed risers and fallers and their fantasy baseball outlooks**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html
 **A Peaceful Protest. A Counterprotest. 5 Years Later, a Town Is Still Shaken.**\
 `It was the summer of 2020, in the wake of the murder of George Floyd. Lynden, Wash., a small town known for its politeness, continues to grapple with what happened.`\
 https://nytimes.com/2025/05/22/us/george-floyd-anniversary-protests.html
-
-**Arsenal transfer targets latest? Man Utd's plans impacted by Europa final loss? - Ask Ornstein**\
-`David Ornstein has pulled together his favourite questions and answers from today's exclusive Q&A session`\
-https://nytimes.com/athletic/6375082/2025/05/22/transfer-news-manchester-united-arsenal-latest-chelsea/
 

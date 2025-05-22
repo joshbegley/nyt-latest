@@ -11,7 +11,7 @@ https://nytimes.com/2025/05/22/world/europe/indigo-flight-hailstorm.html
 https://nytimes.com/2025/05/22/us/politics/trump-federal-funds-gao.html
 
 **NOAA Predicts ‘Above Average’ Hurricane Season**\
-`The National Oceanic and Atmospheric agency is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
+`The National Oceanic and Atmospheric Agency is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
 https://nytimes.com/2025/05/22/weather/noaa-forecast-hurricane-season.html
 
 **Bat speed risers and fallers and their fantasy baseball outlooks**\

@@ -1,3 +1,7 @@
+**NOAA Predicts ‘Above Average’ Hurricane Season**\
+`The National Oceanic and Atmospheric Agency is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
+https://nytimes.com/2025/05/22/weather/noaa-forecast-hurricane-season.html
+
 **Blackhawks hire Jeff Blashill as head coach: Why he's getting another shot**\
 `Blashill, 51, has been hired as the Blackhawks' head coach, a league source said, making him the 42nd head coach in franchise history.`\
 https://nytimes.com/athletic/6369049/2025/05/22/blackhawks-coach-jeff-blashill-hire-nhl/
