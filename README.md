@@ -1,3 +1,7 @@
+**Small Plane Crashes in San Diego Neighborhood**\
+`A small jet crashed into a San Diego neighborhood early Thursday morning, killing the people on board and destroying several homes, officials said.`\
+https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html
+
 **A Peaceful Protest. A Counterprotest. 5 Years Later, a Town Is Still Shaken.**\
 `It was the summer of 2020, in the wake of the murder of George Floyd. Lynden, Wash., a small town known for its politeness, continues to grapple with what happened.`\
 https://nytimes.com/2025/05/22/us/george-floyd-anniversary-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/politics/trump-memecoin-dinner.html
 **Tuna Salad, but Make It Pasta**\
 `The gang’s all here: crunchy chopped celery and onion, fresh herbs and sweet peas, tangy yogurt and lemon.`\
 https://nytimes.com/2025/05/22/dining/tuna-pasta-salad-recipe-for-memorial-day.html
-
-**USMNT Gold Cup squad: Pulisic, Musah not the only high-profile absences**\
-`The big-name omissions overshadow the arrival of fresh, intriguing faces and the return of some previously injured stars.`\
-https://nytimes.com/athletic/6375224/2025/05/22/usmnt-gold-cup-squad-pulisic-antonee-robinson-out-berhalter-pochettino/
 
