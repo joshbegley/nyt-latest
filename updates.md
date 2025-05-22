@@ -1,3 +1,7 @@
+**4 Key Takeaways from a New White House Report on Children’s Health**\
+`The report echoes many of Health Secretary Robert F. Kennedy Jr.’s talking points on ultraprocessed foods and vaccines, but with some notable omissions.`\
+https://nytimes.com/2025/05/22/well/rfk-jr-maha-report-takeaways.html
+
 **Lions' Aidan Hutchinson cleared to return after recovering from broken leg**\
 `Through the first six weeks of the season prior to his injury, Hutchinson led the league in sacks, pressures and pass-rush win rate.`\
 https://nytimes.com/athletic/6375725/2025/05/22/lions-aidan-hutchinson-return-leg-injury/
