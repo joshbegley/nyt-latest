@@ -1,3 +1,16 @@
+**U.S. to Impose Sanctions on Sudan Over Use of Chemical Weapons**\
+`The State Department’s announcement comes months after U.S. officials found evidence that Sudan’s military had used chemical weapons against its paramilitary rival.`\
+https://nytimes.com/2025/05/22/world/africa/us-sanctions-sudan-chemical-weapons.html
+
+**Yankees might face good problem with Jazz Chisholm Jr.'s nearing return**\
+`DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
+`\
+https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
+
+**YouTube poaches ESPN executive Justin Connolly to lead sports: Source**\
+`By hiring Connolly, YouTube is indicating it could be going into sports overdrive.`\
+https://nytimes.com/athletic/6376290/2025/05/22/youtube-hires-espn-executive-justin-connolly/
+
 **Yankees might face good problem with Jazz Chisholm Jr.'s nearing return**\
 `DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
 `\
