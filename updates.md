@@ -1,3 +1,7 @@
+**Pacers Pull Off All-Time Comeback to Steal Game 1**\
+`The Indiana team trailed the New York Knicks by 14 points with 2:50 remaining before going on to victory.`\
+https://nytimes.com/video/homepage/100000010184837/pacers-pull-off-all-time-comeback-to-steal-game-1.html
+
 **Judge Blocks Trump Administration From Dismantling Education Department**\
 `The order issued by a federal judge in Boston also directs officials to reinstate thousands of fired employees.`\
 https://nytimes.com/2025/05/22/us/politics/judge-education-department.html

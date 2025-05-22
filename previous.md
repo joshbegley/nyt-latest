@@ -1,3 +1,7 @@
+**Pacers Pull Off All-Time Comeback to Steal Game 1**\
+`The Indiana team trailed the New York Knicks by 14 points with 2:50 remaining before going on to victory.`\
+https://nytimes.com/video/homepage/100000010184837/pacers-pull-off-all-time-comeback-to-steal-game-1.html
+
 **Judge Blocks Trump Administration From Dismantling Education Department**\
 `The order issued by a federal judge in Boston also directs officials to reinstate thousands of fired employees.`\
 https://nytimes.com/2025/05/22/us/politics/judge-education-department.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/05/22/us/michigan-christopher-schurr-murder-mistrial.ht
 **Scoop City: How (and why) the Eagles pushed back**\
 `How the controversial play barely survived a league vote, plus a tribute to Colts owner Jim Irsay, who died Wednesday`\
 https://nytimes.com/athletic/6375357/2025/05/22/eagles-tush-push-ban-jim-irsay-death-colts-nfl-scoop-city/
-
-**Global Forest Loss Hit a Record Last Year as Fires Raged**\
-`Forests around the world disappeared at a rate of 18 soccer fields every minute, a global survey found. Fires accounted for nearly half of the losses.`\
-https://nytimes.com/2025/05/22/climate/deforestation-wri-report.html
 
