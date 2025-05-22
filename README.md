@@ -1,3 +1,7 @@
+**Now That House Republicans Took the Plunge, It’s the Senate’s Turn**\
+`Senate Republicans say changes are coming for the sprawling domestic policy bill carrying President Trump’s agenda. Their colleagues who took political risks to push it through the House might not like them.`\
+https://nytimes.com/2025/05/22/us/politics/senate-republicans-budget-vote.html
+
 **After More Than a Century in Skorts and Skirts, Ireland’s Camogie Allows Shorts**\
 `A committee vote on Thursday approved a measure that would allow players in the women’s sport to choose between shorts or skorts during official play.`\
 https://nytimes.com/2025/05/22/world/europe/camogie-skorts-shorts-vote-ireland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/dining/cookies-the-book.html
 **Sarah Milgrim’s faith was nurtured by the Jewish community around Kansas City.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/sarah-milgrims-faith-was-nurtured-by-the-jewish-community-around-kansas-city
-
-**Maple Leafs part ways with president Brendan Shanahan**\
-`Toronto built a strong regular-season team, but won only two playoff rounds in Brendan Shanahan’s 11 seasons as team president.`\
-https://nytimes.com/athletic/6368883/2025/05/22/maple-leafs-brendan-shanahan-part-ways/
 
