@@ -1,3 +1,19 @@
+**Presenting the MLB All-Quarter Century Team, the very best in baseball since 2000**\
+`Selecting the starting position players, a rotation and the closer for a team honoring the best of the best since 2000. Tough calls abound.`\
+https://nytimes.com/athletic/6372926/2025/05/22/mlb-quarter-century-team-2000-2025/
+
+**Knicks fans inside, outside Madison Square Garden watch Game 1 collapse in stunned silence**\
+`Knicks fans were ready to celebrate a certain Game 1 win. Then there was an inexplicable and painful loss as the party turned into a wake.`\
+https://nytimes.com/athletic/6374286/2025/05/22/knicks-collapse-pacers-game-1/
+
+**A fiery Ben Johnson, Caleb Williams' footwork, Joe Thuney's extension: Bears OTA takeaways**\
+`At the Bears' first OTA open to the media, head coach Johnson showed off his intensity, and we saw Williams' new shotgun setup`\
+https://nytimes.com/athletic/6373531/2025/05/22/bears-ota-ben-johnson-caleb-williams/
+
+**Will Buxton, known for F1 and 'Drive to Survive,' embraces new role as Fox Indy 500 voice**\
+`INDIANAPOLIS — When millions of viewers tune in for Sunday&#8217;s Indianapolis 500, the first one broadcast by Fox Sports, they might be surprised by a familiar face.`\
+https://nytimes.com/athletic/6365829/2025/05/22/will-buxton-indy-500-fox-f1-drive-to-survive/
+
 **J.J. McCarthy, roster health and other ingredients key to Vikings success in 2025**\
 `There will be a lot riding on the first-year starting QB, and the Vikings' aging roster must stay relatively healthy to be competitive.`\
 https://nytimes.com/athletic/6373244/2025/05/22/vikings-roster-jj-mccarthy/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6350610/2025/05/22/college-football-best-games-vinc
 **What We Know About the Deadly Shooting Outside the Jewish Museum in D.C.**\
 `Two employees of the Israeli Embassy in Washington were killed, officials said. A suspect was in custody.`\
 https://nytimes.com/2025/05/22/us/israeli-embassy-shooting-washington-dc.html
-
-**How a lawyer heeded one Pat Summitt tenet to become Tennessee’s winningest coach**\
-`After co-coaching with her husband for 20-plus years, Karen Weekly unlocked a paradigm shift`\
-https://nytimes.com/athletic/6372928/2025/05/22/tennessee-softball-coach-karen-weekly-wcws/
-
-**WNBA's Liberty have raised capital at a record valuation of $450 million**\
-`The money is believed to be part of a capital raise to help build a new practice facility.`\
-https://nytimes.com/athletic/6373611/2025/05/22/new-york-liberty-450-million-valuation-wnba/
-
-**How Justin Fields looked, and perfect attendance on a rainy day: Observations from Jets OTAs**\
-`Plus, Garrett Wilson's contract situation, Will McDonald's new look, and more from the new-look Jets.`\
-https://nytimes.com/athletic/6373468/2025/05/22/new-york-jets-practice-report-justin-fields/
-
-**Manchester United's new reality is going to hurt**\
-`Man Utd in 2024-25 are not the club that they have they have claimed to be. It will take hard work and good decisions to correct that`\
-https://nytimes.com/athletic/6361320/2025/05/22/manchester-united-new-reality/
 
