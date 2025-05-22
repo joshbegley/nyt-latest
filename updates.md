@@ -1,3 +1,7 @@
+**Trump Makes False Genocide Claims. South Africans Respond With Humor.**\
+`The jokes mask a deep-seated anger over the legacy of apartheid and the inequality that many Black people say continues to define life in their country.`\
+https://nytimes.com/2025/05/22/world/africa/trump-false-genocide-claims-south-africans-respond-humor.html
+
 **G7 Finance Ministers Show Unity in Support of Ukraine Against Russia**\
 `Top economic officials avoided a condemnation of U.S. tariffs but committed to trying to reduce “economic policy uncertainty.”`\
 https://nytimes.com/2025/05/22/us/politics/g7-unity-ukraine-against-russia.html
