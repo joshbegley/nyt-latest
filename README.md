@@ -1,5 +1,5 @@
 **An Officer Said She Was Disabled. Prosecutors Said She Ran, Skied and Danced.**\
-`Prosecutors say that Nicole Brown, 29, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
+`Prosecutors said that Nicole Brown, 39, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
 https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
 
 **What We Know About the Accused Gunman in Washington**\
