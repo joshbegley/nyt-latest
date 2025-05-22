@@ -1,3 +1,11 @@
+**Gotham, Tigres advance to Concacaf Champions Cup Final**\
+`Gotham and Tigres move on to Saturday's match with emphatic victories over Club América and the Portland Thorns.`\
+https://nytimes.com/athletic/6374312/2025/05/22/gotham-tigres-advance-concacaf-champions-cup-final/
+
+**Why Yankees’ Jasson Domínguez impressed Aaron Judge before walk-off home run vs. Rangers**\
+`Domínguez's solo homer in the ninth inning gave the Yankees a 4-3 win over the Rangers and sent Yankee Stadium into a frenzy.`\
+https://nytimes.com/athletic/6374229/2025/05/22/yankees-jasson-dominguez-aaron-judge-walk-off-home-run-rangers/
+
 **Thursday Briefing**\
 `A fraught White House meeting.`\
 https://nytimes.com/2025/05/22/briefing/trump-south-africa-gaza.html
