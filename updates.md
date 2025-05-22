@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`A fraught White House meeting.`\
+https://nytimes.com/2025/05/22/briefing/trump-south-africa-gaza.html
+
 **'We’ve got to be an awful lot more mature': Oilers bemoan loss of control in Game 1**\
 `The Oilers held a two-goal lead over the Stars going into the third period, but a leaky penalty kill sent them to defeat.`\
 https://nytimes.com/athletic/6374311/2025/05/22/oilers-stars-game-1-penalties/
