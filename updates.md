@@ -1,3 +1,19 @@
+**David Adelman named head coach of Nuggets**\
+`Adelman coached the final three games of the regular season and through two rounds of the postseason.`\
+https://nytimes.com/athletic/6376011/2025/05/22/david-adelman-nuggets-head-coach-hired/
+
+**Mets takeaways: Huascar Brazobán's confidence, power outage for two sluggers and more**\
+`Brazobán barely made the Opening Day roster. Now he's one of Carlos Mendoza's most-trusted high-leverage relievers. `\
+https://nytimes.com/athletic/6375843/2025/05/22/mets-huascar-brazoban-mark-vientos-francisco-alvarez/
+
+**Regulators Are Investigating Whether Media Matters Colluded With Advertisers**\
+`Elon Musk previously sued the advocacy group over critical research on his social media platform X over claims it drove away advertisers.`\
+https://nytimes.com/2025/05/22/technology/ftc-investigates-media-matters.html
+
+**A Wonderfully Petulant Example of How Language Changes**\
+`Sometimes change comes not in the form of a new word but in the form of an “uh.”`\
+https://nytimes.com/2025/05/22/opinion/uh-language-change-linguistics.html
+
 **A Wonderfully Petulant Example of How Language Changes**\
 `Sometimes change comes not in the form of a new word but in the form of an “uh.”`\
 https://nytimes.com/2025/05/22/opinion/a-wonderfully-petulant-example-of-how-language-changes.html
