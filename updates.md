@@ -1,3 +1,7 @@
+**The Athletic FC: Postecoglou delivers - but what now? Plus: Pulisic out of Gold Cup, Slot exclusive**\
+`Today in TAFC: Postecoglou breaks Tottenham's 17-year trophy drought, Pulisic out of Gold Cup squad, exclusive interview with Slot.`\
+https://nytimes.com/athletic/6374639/2025/05/22/postecoglou-delivers-but-what-now-for-tottenham-plus-pulisic-out-of-gold-cup-slot-exclusive/
+
 **Premier League 2 final misses out on broadcast after Man City, Southampton venue dispute**\
 `The disagreement followed City breaching Premier League 2 rules by not having the Etihad Stadium available to host the fixture.`\
 https://nytimes.com/athletic/6373627/2025/05/22/manchester-city-southampton-venue-dispute/
