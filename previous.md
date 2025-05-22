@@ -1,3 +1,7 @@
+**Why absolutely stunning comebacks are suddenly the Pacers' thing**\
+`How do these Pacers keep doing this?`\
+https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
+
 **Will the Wild's Gustavsson-Wallstedt goalie tandem be a 'rivalry' or partnership?**\
 `How the dynamic between the two netminders plays out, and how they perform, could go a long way in determining the Wild’s fate in 2025-26.`\
 https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie-dynamic/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie
 **How plausible is the idea of Sabres pursuing Mitch Marner in free agency?**\
 `Adding a 100-point player like Marner is a rare opportunity and one worth exploring for Buffalo.`\
 https://nytimes.com/athletic/6373334/2025/05/22/sabres-mitch-marner-nhl-free-agency/
+
+**Nick Emmanwori is embracing Kam Chancellor comps. Will the Seahawks use him the same way?**\
+`It's far too early to expect Emmanwori to have a Chancellor-level impact, but Mike Macdonald could deploy the rookie similarly.`\
+https://nytimes.com/athletic/6349199/2025/05/22/nick-emmanwori-seahawks-kam-chancellor/
 
 **Parity has reached the NBA playoffs; you should enjoy watching the new leading men on stage**\
 `The days of the dynasties are over as the NBA has leveled the playing field across the league. `\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6370140/2025/05/22/jaccob-slavin-hurricanes-defense
 **Kid Cudi Is Expected to Testify in the Sean Combs Trial**\
 `The rapper is scheduled to take the stand on Thursday to describe how his car was “blown up” after a threat by a jealous Mr. Combs.`\
 https://nytimes.com/2025/05/22/arts/music/kid-cudi-sean-combs-diddy-trial.html
-
-**They Were Days From Getting Engaged. Then They Were Killed in D.C.**\
-`Sarah Milgrim and Yaron Lischinsky met while working at the Israeli Embassy in Washington, her father said. Mr. Lischinsky had just bought an engagement ring, an official said.`\
-https://nytimes.com/2025/05/22/world/middleeast/israel-embassy-dc-shooting-victims-sarah-milgrim-yaron-lischinsky.html
-
-**The House Passed Trump’s Megabill. Bond Investors Are Worried.**\
-`Republicans brought the president’s tax cuts one step closer to reality, but Wall Street remains on edge about the fiscal costs.`\
-https://nytimes.com/2025/05/22/business/dealbook/house-spending-bill-trump-bond-markets.html
 

@@ -1,3 +1,7 @@
+**Indy 500's Penske cheating scandal explained: Why the IndyCar power was penalized**\
+`Two Penske favorites and former champions will start at the back Sunday in the Indy 500 after a violation. Here's what you need to know.`\
+https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-penske-explained/
+
 **Why absolutely stunning comebacks are suddenly the Pacers' thing**\
 `How do these Pacers keep doing this?`\
 https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6286795/2025/05/22/manchester-united-explained-tran
 **Jaccob Slavin, 'a walking manual for how to play defense,' has earned this moment**\
 `Slavin's star has been on the rise since the 4 Nations Face-Off and his playoff opponents are in full support.`\
 https://nytimes.com/athletic/6370140/2025/05/22/jaccob-slavin-hurricanes-defense-nhl-playoffs/
-
-**Kid Cudi Is Expected to Testify in the Sean Combs Trial**\
-`The rapper is scheduled to take the stand on Thursday to describe how his car was “blown up” after a threat by a jealous Mr. Combs.`\
-https://nytimes.com/2025/05/22/arts/music/kid-cudi-sean-combs-diddy-trial.html
 

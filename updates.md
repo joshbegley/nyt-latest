@@ -1,3 +1,11 @@
+**Why absolutely stunning comebacks are suddenly the Pacers' thing**\
+`How do these Pacers keep doing this?`\
+https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
+
+**Nick Emmanwori is embracing Kam Chancellor comps. Will the Seahawks use him the same way?**\
+`It's far too early to expect Emmanwori to have a Chancellor-level impact, but Mike Macdonald could deploy the rookie similarly.`\
+https://nytimes.com/athletic/6349199/2025/05/22/nick-emmanwori-seahawks-kam-chancellor/
+
 **Will the Wild's Gustavsson-Wallstedt goalie tandem be a 'rivalry' or partnership?**\
 `How the dynamic between the two netminders plays out, and how they perform, could go a long way in determining the Wild’s fate in 2025-26.`\
 https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie-dynamic/
