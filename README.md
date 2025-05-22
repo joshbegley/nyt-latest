@@ -1,3 +1,7 @@
+**Enhanced Games claims swimmer broke two world records**\
+`Organisers said Greek swimmer Kristian Gkolomeev, who finished fifth at the Olympics, set two world records in the 50m freestyle.`\
+https://nytimes.com/athletic/6374748/2025/05/22/enhanced-games-world-records-kristian-gkolomeev/
+
 **Ask Ornstein Q&A: Our football insider answers your questions**\
 `Here is your opportunity to ask David Ornstein anything you want about the world of football`\
 https://nytimes.com/athletic/6374720/2025/05/22/ask-ornstein-qa-our-football-insider-answers-your-questions-27/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371576/2025/05/22/chargers-most-important-2025-par
 **Red Wings offseason targets: Mitch Marner, Sam Bennett lead the list**\
 `The Red Wings have some clearly defined needs as they look to snap a nine-year playoff drought. Here's who could fill them.`\
 https://nytimes.com/athletic/6371158/2025/05/22/red-wings-offseason-targets-mitch-marner-sam-bennett/
-
-**Dissecting Manchester United's nightmare season: Heartbreak in Europe and nowhere in the league**\
-`Why has Man Utd's season been awful? What are the reasons for hope? What are the biggest concerns? What's next?`\
-https://nytimes.com/athletic/6286795/2025/05/22/manchester-united-explained-transfers/
 

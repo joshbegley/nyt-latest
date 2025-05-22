@@ -1,3 +1,7 @@
+**Ask Ornstein Q&A: Our football insider answers your questions**\
+`Here is your opportunity to ask David Ornstein anything you want about the world of football`\
+https://nytimes.com/athletic/6374720/2025/05/22/ask-ornstein-qa-our-football-insider-answers-your-questions-27/
+
 **Indy 500's Penske cheating scandal explained: Why the IndyCar power was penalized**\
 `Two Penske favorites and former champions will start at the back Sunday in the Indy 500 after a violation. Here's what you need to know.`\
 https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-penske-explained/
