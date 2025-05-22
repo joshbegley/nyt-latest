@@ -1,3 +1,7 @@
+**Judith Hope Blau, Who Turned Bagels Into Art, Dies at 87**\
+`She began selling necklaces strung with mini-bagels on a dare from her husband. Bagelmania (and a career as a toy designer) ensued.`\
+https://nytimes.com/2025/05/22/arts/design/judith-hope-blau-dead.html
+
 **Woman Is Shot After Driving Onto C.I.A. Grounds, Officials Say**\
 `The F.B.I. said there was “no ongoing threat.” The woman, whose injuries were not life-threatening, was believed to have been driving under the influence, according to people briefed on the episode.`\
 https://nytimes.com/2025/05/22/us/shooting-cia-headquarters-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/briefing/charges-israel-embassy-shooting-harvard-
 **Canada shocked by Denmark in World Championship quarterfinals**\
 `Denmark scored two goals in the game's last 2:17 to win 2-1 and eliminate Canada from the tournament.`\
 https://nytimes.com/athletic/6376242/2025/05/22/canada-iihf-world-championship-loss-denmark-hockey/
-
-**In Firing Watchdogs, Trump Sidesteps Laws and Moves to Expand Power**\
-`The abrupt, premature dismissals of agency officials has teed up a Supreme Court decision that, if delivered in the president's favor, could give him substantially more authority.`\
-https://nytimes.com/interactive/2025/05/22/us/politics/trump-firings-supreme-court.html
 
