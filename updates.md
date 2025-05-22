@@ -1,3 +1,7 @@
+**Twins takeaways: Splitting in the rain, progress for Carlos Correa, Byron Buxton, Matt Wallner**\
+`After repeatedly coming through during the 13-game winning streak, Kody Clemens delivered a walk-off winner in the rain Wednesday.`\
+https://nytimes.com/athletic/6373745/2025/05/21/twins-takeaways-guardians-split-carlos-correa-byron-buxton/
+
 **Formally Picks**\
 `David J. Kahn returns with an epic Thursday.`\
 https://nytimes.com/2025/05/21/crosswords/daily-puzzle-2025-05-22.html

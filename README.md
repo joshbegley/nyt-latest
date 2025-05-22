@@ -1,3 +1,19 @@
+**Stars turn former weakness into strength, rally to beat Oilers in Game 1: Takeaways**\
+`Dallas, trailing by two goals to start the third period, earned a 6-3 victory to open the Western Conference final.`\
+https://nytimes.com/athletic/6374112/2025/05/21/stars-oilers-game-1/
+
+**Here are some of the changes to the House bill unveiled Wednesday night.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/05/21/us/trump-news/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night
+
+**Trump Casts Himself as a Protector of Persecuted White People**\
+`President Trump publicly dressed down the president of South Africa based on a fringe conspiracy theory, providing a vivid distillation of his views on race.`\
+https://nytimes.com/2025/05/21/us/politics/trump-race-south-africa.html
+
+**Christian Pulisic missing Gold Cup: Bad look for the player, bad break for USMNT**\
+`At a time when the USMNT needs an uptick in fortune, form and vibes, its on-field leader won't be in uniform.`\
+https://nytimes.com/athletic/6373974/2025/05/21/christian-pulisic-out-gold-cup-usmnt-impact-pochettino/
+
 **Formally Picks**\
 `David J. Kahn returns with an epic Thursday.`\
 https://nytimes.com/2025/05/21/crosswords/daily-puzzle-2025-05-22.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6373264/2025/05/21/indianapolis-500-roger-penske-co
 **Inspector Let Recruits Who Failed Psychological Exam Join the N.Y.P.D.**\
 `Terrell Anderson, the former head of a unit charged with assessing candidates, has been transferred. He has been praised as an innovative officer.`\
 https://nytimes.com/2025/05/21/nyregion/nypd-inspector-transferred-psychological-test.html
-
-**Jim Irsay, Longtime Owner of the Indianapolis Colts, Dies at 65**\
-`He took over the business from his father in 1997 and turned the team into one of the best in the league, with a Super Bowl win during the 2006 season.`\
-https://nytimes.com/2025/05/21/sports/football/jim-irsay-dead.html
-
-**Titans sign No. 1 pick Cam Ward to rookie deal worth $48.7 million**\
-`QB is set to make much more than Shedeur Sanders, the player he was compared to the most ahead of the draft, who fell to the fifth round.`\
-https://nytimes.com/athletic/6373704/2025/05/21/titans-sign-cam-ward-rookie-deal/
-
-**WATCH: The skills that make NBA MVP Shai Gilgeous-Alexander so special**\
-`In winning the 2025 NBA, Gilgeous-Alexander showed off skills that have been years in the making. `\
-https://nytimes.com/athletic/6373757/2025/05/21/video-shai-gilgeous-alexander-nba-mvp-thunder/
-
-**BYU QB Jake Retzlaff accused of sexual assault and battery in civil lawsuit**\
-`Incident is alleged to have occurred in November 2023 at player's apartment in Provo, Utah.`\
-https://nytimes.com/athletic/6373546/2025/05/21/byu-quarterback-jake-retzlaff-civil-lawsuit/
 
