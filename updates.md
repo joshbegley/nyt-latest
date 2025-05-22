@@ -1,3 +1,11 @@
+**Man Charged With Murder in Killing of Israeli Embassy Aides**\
+`Also, Trump officials blocked Harvard from enrolling foreign students. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/05/22/briefing/charges-israel-embassy-shooting-harvard-students.html
+
+**Canada shocked by Denmark in World Championship quarterfinals**\
+`Denmark scored two goals in the game's last 2:17 to win 2-1 and eliminate Canada from the tournament.`\
+https://nytimes.com/athletic/6376242/2025/05/22/canada-iihf-world-championship-loss-denmark-hockey/
+
 **In Firing Watchdogs, Trump Sidesteps Laws and Moves to Expand Power**\
 `The abrupt, premature dismissals of agency officials has teed up a Supreme Court decision that, if delivered in the president's favor, could give him substantially more authority.`\
 https://nytimes.com/interactive/2025/05/22/us/politics/trump-firings-supreme-court.html
