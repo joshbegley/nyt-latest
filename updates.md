@@ -1,3 +1,8 @@
+**Yankees might face good problem with Jazz Chisholm Jr. nearing a return**\
+`DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
+`\
+https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
+
 **What I'm hearing about the Maple Leafs, Brad Treliving's role and replacing Brendan Shanahan**\
 `The Leafs are in no hurry to replace Shanahan at the top of their front office, sources said, and will not change Treliving's GM role.`\
 https://nytimes.com/athletic/6376345/2025/05/22/brad-treliving-maple-leafs-brendan-shanahan/

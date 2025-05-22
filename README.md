@@ -1,3 +1,11 @@
+**Trump Confirms Attempted Deportation of Migrants to South Sudan**\
+`The deportees are stuck in Djibouti amid a legal fight over their expulsions. A lawyer for some of the men said she was concerned for their health and welfare.`\
+https://nytimes.com/2025/05/22/us/politics/trump-deportations-south-sudan.html
+
+**PL gets government concession over regulator financial distribution deal**\
+`The government has made a late concession to the Premier League by agreeing to let English football’s new independent regulator impose a compromise financial distribution deal on the game, as opposed to having to pick one of two proposals.`\
+https://nytimes.com/athletic/6376330/2025/05/22/premier-league-uk-government-financial-distribution/
+
 **If This Movie Wins the Palme d’Or, It Will Extend a Staggering Streak**\
 `The distributor Neon has been on a run at the Cannes Film Festival, and it has three movies, including “Sentimental Value,” considered front-runners.`\
 https://nytimes.com/2025/05/22/movies/cannes-neon-sentimental-value-elle-fanning.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6376379/2025/05/22/chicago-cubs-all-star-game-wrigl
 **Republican Bill Would Limit Judges’ Contempt Power**\
 `Democrats have argued that House Republicans’ measure would rob courts of their power by stripping away any consequences for officials who ignore judges’ rulings.`\
 https://nytimes.com/2025/05/22/us/politics/trump-policy-bill-judges-contempt.html
-
-**Yankees might face good problem with Jazz Chisholm Jr. nearing a return**\
-`DJ LeMahieu has looked rejuvenated. But the Yankees can't play him and Chisholm at second base at the same time.
-`\
-https://nytimes.com/athletic/6376240/2025/05/22/yankees-jazz-chisholm-jr-return-second-base-dj-lemahieu/
-
-**A Mayor’s Son Prepares to Inherit the Job His Father Never Got to Finish**\
-`In Pittsburgh, Corey O’Connor’s victory in the Democratic primary represents a turn from progressive policies — and a chance for him to run the city his father once led.`\
-https://nytimes.com/2025/05/22/us/corey-oconnor-pittsburgh-democrat-candidate-mayor.html
 
