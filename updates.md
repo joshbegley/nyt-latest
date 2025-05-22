@@ -1,3 +1,7 @@
+**Blue Jays' Kevin Gausman searched for his old splitter, and he might have finally found it**\
+`Gausman unintentionally changed the splitter's movement profile. His attempts to rectify it are paying off.`\
+https://nytimes.com/athletic/6374106/2025/05/21/blue-jays-kevin-gausman-splitter-return/
+
 **Here are some of the changes to the House bill unveiled Wednesday night.**\
 `By The New York Times`\
 https://nytimes.com/live/2025/05/21/us/trump-news/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night

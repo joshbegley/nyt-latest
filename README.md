@@ -1,3 +1,11 @@
+**Two Israeli Embassy Staffers Shot and Killed Outside Event in Washington, Officials Say**\
+`Homeland Security Secretary Kristi Noem said that the shooting occurred near an event held at the Capital Jewish Museum.`\
+https://nytimes.com/2025/05/21/us/politics/israel-embassy-staffers-killed.html
+
+**Pacers stun Knicks in OT thriller as Haliburton delivers Miller-esque moment**\
+`Tyrese Haliburton helped the Pacers rally from a 17-point deficit to stun the Knicks in overtime in Game 1 of the Eastern Conference finals.`\
+https://nytimes.com/athletic/6374111/2025/05/21/pacers-upset-knicks-heartbreak-tyrese-haliburton/
+
 **Blue Jays' Kevin Gausman searched for his old splitter, and he might have finally found it**\
 `Gausman unintentionally changed the splitter's movement profile. His attempts to rectify it are paying off.`\
 https://nytimes.com/athletic/6374106/2025/05/21/blue-jays-kevin-gausman-splitter-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6373745/2025/05/21/twins-takeaways-guardians-split-
 **Trump Claimed a Social Media Video Showed ‘Burial Sites’ of White Farmers. It Didn’t.**\
 `During a meeting with South Africa’s president, President Trump played the video as evidence of racial persecution. A Times analysis found he misrepresented the contents of the video.`\
 https://nytimes.com/2025/05/21/us/politics/trump-south-africa-president-white-farmers-video.html
-
-**Israeli Soldiers Fire at Diplomats in West Bank**\
-`A group of Western diplomats were touring Jenin, in the Israeli-occupied West Bank, on Wednesday when Israeli soldiers fired at least seven shots to disperse the visiting officials.`\
-https://nytimes.com/video/world/middleeast/100000010183816/israeli-soldiers-fire-at-diplomats-in-west-bank.html
-
-**Gluck: Indy 500 controversy puts Roger Penske's legacy of integrity under scrutiny**\
-`Roger Penske has always had a pristine reputation. But another scandal with the team he owns in the series he owns has raised new questions.`\
-https://nytimes.com/athletic/6373264/2025/05/21/indianapolis-500-roger-penske-controversy-indycar-scandal-integrity/
 
