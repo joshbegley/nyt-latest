@@ -1,3 +1,7 @@
+**A New View of John Singer Sargent’s American Socialites**\
+`The rich expatriates Sargent painted in London were dismissed as “dollar princesses.” A new exhibition looks beyond that label to their achievements and inner lives.`\
+https://nytimes.com/2025/05/22/arts/design/john-singer-sargent-exhibit-kenwood-house.html
+
 **49ers' Tariq Ahmad goes deep on Nick Martin, CJ West and the entire draft class**\
 `Ahmad said two combine interviews stood out in this year's draft cycle. One of them was the team's top pick, defensive end Mykel Williams.`\
 https://nytimes.com/athletic/6374038/2025/05/22/49ers-nfl-draft-class-evaluations-tariq-ahmad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374720/2025/05/22/ask-ornstein-qa-our-football-ins
 **Indy 500's Penske cheating scandal explained: Why the IndyCar power was penalized**\
 `Two Penske favorites and former champions will start at the back Sunday in the Indy 500 after a violation. Here's what you need to know.`\
 https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-penske-explained/
-
-**Why absolutely stunning comebacks are suddenly the Pacers' thing**\
-`How do these Pacers keep doing this?`\
-https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
 
