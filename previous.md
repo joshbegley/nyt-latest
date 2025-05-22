@@ -1,3 +1,7 @@
+**Barkley lobbies for Haliburton's dad to be able to attend Games 3, 4 against Knicks after ban**\
+`John Haliburton has been banned from games since storming the court and waving a towel in Giannis Antetokounmpo's face.`\
+https://nytimes.com/athletic/6374278/2025/05/22/charles-barkley-tyrese-haliburton-father-banned/
+
 **Gotham, Tigres advance to Concacaf Champions Cup Final**\
 `Gotham and Tigres move on to Saturday's match with emphatic victories over Club América and the Portland Thorns.`\
 https://nytimes.com/athletic/6374312/2025/05/22/gotham-tigres-advance-concacaf-champions-cup-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/opinion/panama-canal-trump-mulino.html
 **The World Now Has a Word(le)-Loving Pope**\
 `Pope Leo’s fluency in English, Spanish and Italian will help him govern the global church — and the Vatican.`\
 https://nytimes.com/2025/05/22/opinion/pope-leo-english-spanish-italian.html
-
-**Israeli Embassy Aides Killed in Washington**\
-`The young couple were soon to be engaged and had been at the Capital Jewish Museum when a man, who shouted pro-Palestinian slogans, opened fire, the authorities said.`\
-https://nytimes.com/video/us/politics/100000010184293/israel-embassy-staffers-killed.html
 

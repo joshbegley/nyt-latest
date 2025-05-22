@@ -1,3 +1,7 @@
+**Barkley lobbies for Haliburton's dad to be able to attend Games 3, 4 against Knicks after ban**\
+`John Haliburton has been banned from games since storming the court and waving a towel in Giannis Antetokounmpo's face.`\
+https://nytimes.com/athletic/6374278/2025/05/22/charles-barkley-tyrese-haliburton-father-banned/
+
 **Gotham, Tigres advance to Concacaf Champions Cup Final**\
 `Gotham and Tigres move on to Saturday's match with emphatic victories over Club América and the Portland Thorns.`\
 https://nytimes.com/athletic/6374312/2025/05/22/gotham-tigres-advance-concacaf-champions-cup-final/
