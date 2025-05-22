@@ -6,6 +6,10 @@ https://nytimes.com/2025/05/22/world/europe/uk-net-migration-data.html
 `With their contracts set to expire at the end of the 2025-26 season, could Brentford's Bryan Mbeumo and Yoane Wissa be on the move?`\
 https://nytimes.com/athletic/6367440/2025/05/22/bryan-mbeumo-yoane-wissa-brentford-transfer-premier-league/
 
+**NBA Europe is coming but British basketball is locked in a civil war. What will it mean?**\
+`The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
+https://nytimes.com/athletic/6371987/2025/05/22/nba-europe-british-basketball-civil-war/
+
 **How much better did the Patriots' new-look offensive line get this offseason?**\
 `After signing a new right tackle and center and drafting left tackle Will Campbell, just how improved should the New England line be?`\
 https://nytimes.com/athletic/6372748/2025/05/22/patriots-offensive-line-cole-strange/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/learning/pen-and-pencil.html
 **Why Banana Is Summer’s Freshest Fragrance**\
 `Plus: an exhibition of Paul Thek’s paintings, a stylish cottage on Lake Michigan and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/22/t-magazine/fragrance-banana-scents.html
-
-**The Boys Are Not OK**\
-`Wesley Morris on ‘Adolescence,’ the Netflix show parents can’t stop talking about.`\
-https://nytimes.com/2025/05/22/podcasts/the-boys-are-not-ok.html
 

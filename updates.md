@@ -1,3 +1,7 @@
+**NBA Europe is coming but British basketball is locked in a civil war. What will it mean?**\
+`The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
+https://nytimes.com/athletic/6371987/2025/05/22/nba-europe-british-basketball-civil-war/
+
 **Britain Records Sharp Fall in Immigration**\
 `Net migration dropped by 50 percent in 2024, official data showed on Thursday, suggesting that a period of soaring immigration may be ending.`\
 https://nytimes.com/2025/05/22/world/europe/uk-net-migration-data.html
