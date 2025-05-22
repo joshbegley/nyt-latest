@@ -1,3 +1,7 @@
+**Premier League 2 final misses out on broadcast after Man City, Southampton venue dispute**\
+`The disagreement followed City breaching Premier League 2 rules by not having the Etihad Stadium available to host the fixture.`\
+https://nytimes.com/athletic/6373627/2025/05/22/manchester-city-southampton-venue-dispute/
+
 **Phillies observations on Taijuan Walker, Jesús Luzardo, lefty masher Kyle Schwarber and more**\
 `Once Aaron Nola returns, the Phillies are leaning toward committing to a set role for Walker. Plus, what's next for Edmundo Sosa?`\
 https://nytimes.com/athletic/6374275/2025/05/22/phillies-taijuan-walker-kyle-schwarber-jesus-luzardo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6373692/2025/05/22/american-league-central-playoff-
 **Huge paydays. Millions more in fines. 2 baseball agencies went to war, exposing a cutthroat industry**\
 `When WME Sports wanted to grow its baseball business, it went after two top agents at rival Excel. The outcome stunned the industry.`\
 https://nytimes.com/athletic/6373719/2025/05/22/wme-excel-agent-poaching-contracts-ruling/
-
-**Why Broncos' draft was about sustaining one of the NFL's best defensive fronts**\
-`The Broncos return almost everyone from a breakout pass rush, but rookies Sai'vion Jones and Que Robinson are critical to future plans.`\
-https://nytimes.com/athletic/6370469/2025/05/22/broncos-defensive-front-draft-saivion-jones/
 
