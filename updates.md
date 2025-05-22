@@ -1,3 +1,7 @@
+**Oilers out of their depth as Matt Duchene and Stars' other scorers finally step up**\
+`The Stars didn't need to rely on Mikko Rantanen (or Jake Oettinger) to carry them to victory — and that's good news for Dallas.`\
+https://nytimes.com/athletic/6374227/2025/05/22/oilers-stars-duchene-game-1/
+
 **Connections: Sports Edition Coach: Hints for May 22, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6374259/2025/05/22/connections-sports-edition-hints-for-may-22-2025/
