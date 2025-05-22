@@ -1,3 +1,7 @@
+**Judge weighs text evidence after Brett Howden's emotional testimony**\
+`Judge's ruling on whether the former Canadian junior team member's text message will be admissible is expected Friday morning.`\
+https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/
+
 **A Revealing Joke in the Oval Office About Getting in Trump’s Good Graces**\
 `The president of South Africa’s wisecrack about a free plane spoke volumes.`\
 https://nytimes.com/2025/05/22/us/politics/trump-plane-south-africa-gifts.html
