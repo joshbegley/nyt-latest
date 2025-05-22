@@ -1,3 +1,7 @@
+**Blue Jays' Kevin Gausman searched for his old splitter, and he might have finally found it**\
+`Gausman unintentionally changed the splitter's movement profile. His attempts to rectify it are paying off.`\
+https://nytimes.com/athletic/6374106/2025/05/21/blue-jays-kevin-gausman-splitter-return/
+
 **Stars turn former weakness into strength, rally to beat Oilers in Game 1: Takeaways**\
 `Dallas, trailing by two goals to start the third period, earned a 6-3 victory to open the Western Conference final.`\
 https://nytimes.com/athletic/6374112/2025/05/21/stars-oilers-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010183816/israeli-soldiers-fire
 **Gluck: Indy 500 controversy puts Roger Penske's legacy of integrity under scrutiny**\
 `Roger Penske has always had a pristine reputation. But another scandal with the team he owns in the series he owns has raised new questions.`\
 https://nytimes.com/athletic/6373264/2025/05/21/indianapolis-500-roger-penske-controversy-indycar-scandal-integrity/
-
-**Inspector Let Recruits Who Failed Psychological Exam Join the N.Y.P.D.**\
-`Terrell Anderson, the former head of a unit charged with assessing candidates, has been transferred. He has been praised as an innovative officer.`\
-https://nytimes.com/2025/05/21/nyregion/nypd-inspector-transferred-psychological-test.html
 

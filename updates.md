@@ -1,5 +1,9 @@
 **Here are some of the changes to the House bill unveiled Wednesday night.**\
 `By The New York Times`\
+https://nytimes.com/live/2025/05/21/us/trump-news/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night
+
+**Here are some of the changes to the House bill unveiled Wednesday night.**\
+`By The New York Times`\
 https://nytimes.com/2025/05/21/us/politics/here-are-some-of-the-changes-to-the-house-bill-unveiled-wednesday-night.html
 
 **Stars turn former weakness into strength, rally to beat Oilers in Game 1: Takeaways**\
