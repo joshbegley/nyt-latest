@@ -1,5 +1,33 @@
-**Yankees lose key reliever as Fernando Cruz headed to 15-day IL**\
-`Yankees manager Aaron Boone said Wednesday that Cruz was dealing with 'shoulder stuff'.`\
+**Analysis: How Postecoglou perfected Tottenham's defensive setup to win the Europa League**\
+`Spurs didn't need their plan for keeping Manchester United at bay in Wednesday's final to be pretty, it just had to be effective`\
+https://nytimes.com/athletic/6374598/2025/05/22/analysis-postecoglou-tactics-europa-league-final/
+
+**Winners of an ‘Exclusive Invitation’ to Dine With Trump Will Gather Tonight**\
+`The sale of access to the president to investors in his memecoin has been assailed by Democrats and even some Republicans as unethical.`\
+https://nytimes.com/2025/05/22/us/politics/trump-memecoin-dinner.html
+
+**Tuna Salad, but Make It Pasta**\
+`The gang’s all here: crunchy chopped celery and onion, fresh herbs and sweet peas, tangy yogurt and lemon.`\
+https://nytimes.com/2025/05/22/dining/tuna-pasta-salad-recipe-for-memorial-day.html
+
+**USMNT Gold Cup squad: Pulisic, Musah not the only high-profile absences**\
+`The big-name omissions overshadow the arrival of fresh, intriguing faces and the return of some previously injured stars.`\
+https://nytimes.com/athletic/6375224/2025/05/22/usmnt-gold-cup-squad-pulisic-antonee-robinson-out-berhalter-pochettino/
+
+**Sleep-Deprived Lawmakers Stay Up All Night to Pass the ‘Big, Beautiful’ Bill**\
+`Some napped, others pulled all-nighters, and most were bleary-eyed as they slogged to the end of a marathon House debate over President Trump’s signature domestic policy legislation.`\
+https://nytimes.com/2025/05/22/us/politics/house-lawmakers-sleep-all-nighters.html
+
+**Kneecap Member Is Charged With Terror Offense Over Flag at London Concert**\
+`A member of the Northern Irish rap group Kneecap was accused of illegally displaying a flag in support of Hezbollah. Kneecap denied the offense.`\
+https://nytimes.com/2025/05/22/world/europe/kneecap-charged-terrorism-hezbollah.html
+
+**Suspect in Israeli Embassy Murders Had Protested for Palestinian Rights**\
+`The man detained after the shooting at the Capital Jewish Museum in Washington is from Chicago, where he had marched in pro-Palestinian demonstrations.`\
+https://nytimes.com/2025/05/22/us/politics/israeli-embassy-shooting-suspect.html
+
+**Yankees lose key reliever as Fernando Cruz is placed on 15-day IL**\
+`Yankees manager Aaron Boone said Wednesday that Cruz was dealing with "shoulder stuff."`\
 https://nytimes.com/athletic/6374336/2025/05/22/yankees-fernando-cruz-injured-list/
 
 **‘Choke 2.0’: After Knicks’ epic collapse to Pacers, New Yorkers confront painful memories**\
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6374984/2025/05/22/tyrese-haliburton-choke-gesture-
 **Red Light: Toronto’s thorny offseason ahead. Plus: Updated Conn Smythe rankings**\
 `Is this the end of the Shanaplan?`\
 https://nytimes.com/athletic/6375314/2025/05/22/maple-leafs-conn-smythe-red-light-newsletter/
-
-**Small Plane Crashes in San Diego, Setting Homes Ablaze**\
-`The plane, a Cessna 550, crashed near the Tierrasanta neighborhood, officials said. There was no immediate information about casualties.`\
-https://nytimes.com/2025/05/22/us/san-diego-plane-crash-tierrasanta.html
-
-**Have You Seen Evidence of Trade Crime? We Want to Hear From You.**\
-`The New York Times is looking to talk to business owners and employees who have seen evidence of tariff dodging or customs fraud.`\
-https://nytimes.com/2025/05/22/business/economy/have-you-seen-evidence-of-trade-crime-we-want-to-hear-from-you.html
-
-**Mahmoud Khalil Meets With Infant Son Before Immigration Hearing**\
-`The activist, who has been detained in Louisiana for two months, was allowed to meet privately with his wife and baby. He is fighting deportation.`\
-https://nytimes.com/2025/05/22/nyregion/mahmoud-khalil-dentention-hearing-baby.html
-
-**Little Treats for Tough Days: Recommendations From Teenagers**\
-`Students share the things they do to lift their spirits when they’re feeling down.`\
-https://nytimes.com/2025/05/22/learning/little-treats-for-tough-days-recommendations-from-teenagers.html
-
-**Divided Supreme Court Rejects Bid for Religious Charter School in Oklahoma**\
-`In a 4-to-4 decision, the court upheld a ruling by the Oklahoma Supreme Court that blocked the school.`\
-https://nytimes.com/2025/05/22/us/politics/supreme-court-religious-charter-school-oklahoma.html
-
-**CBS Sports acquires U.S. broadcast rights for men's and women's Rugby World Cups**\
-`The deal encompasses the men's World Cup in 2027 and the next two women's World Cups, which will be held this year and 2029.`\
-https://nytimes.com/athletic/6374841/2025/05/22/rugby-world-cup-tv-united-states/
-
-**Republicans Pass Strictest Medicaid Work Requirement They Have Ever Put Forward**\
-`A new hurdle for poor Americans, approved by the House, would cause millions to lose coverage, including many who are working but can’t meet reporting rules.`\
-https://nytimes.com/2025/05/22/upshot/medicaid-republicans-work-requirement.html
 
