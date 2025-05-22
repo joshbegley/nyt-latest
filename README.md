@@ -1,3 +1,7 @@
+**Live Updates: Gunman Kills 2 Israeli Embassy Aides in Washington**\
+`The shooting occurred outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-staffers-killed
+
 **China’s BYD Outsells Tesla in Europe for First Time**\
 `Despite steep tariffs, the Chinese carmaker leapfrogged Tesla in April, in what an analyst called a “watershed moment” for the continent’s auto market.`\
 https://nytimes.com/2025/05/22/business/china-byd-tesla-sales-ev-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349199/2025/05/22/nick-emmanwori-seahawks-kam-chan
 **Parity has reached the NBA playoffs; you should enjoy watching the new leading men on stage**\
 `The days of the dynasties are over as the NBA has leveled the playing field across the league. `\
 https://nytimes.com/athletic/6370692/2025/05/22/parity-2025-nba-playoffs-thunder-wolves-knicks-pacers/
-
-**Who is most important to the Chargers’ success in 2025? Counting down the top 10**\
-`As is almost always the case, quarterback Justin Herbert is the most important player. But who else cracks the top 10? `\
-https://nytimes.com/athletic/6371576/2025/05/22/chargers-most-important-2025-part-2/
 
