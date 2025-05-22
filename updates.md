@@ -1,3 +1,11 @@
+**Bills arrive as content darlings, but 'Hard Knocks' a spotlight they've long wanted to avoid**\
+`The series is an invasive look at NFL teams, which can be a bad thing.`\
+https://nytimes.com/athletic/6374576/2025/05/22/bills-hard-knocks-hallmark-movie/
+
+**A Times Square Office Tower Will Be Converted Into Apartments**\
+`The 38-story building in the heart of Midtown Manhattan will be turned into 1,250 apartments.`\
+https://nytimes.com/2025/05/22/nyregion/5-times-square-conversion.html
+
 **Small Plane Crashes in San Diego Neighborhood**\
 `A small jet crashed into a San Diego neighborhood early Thursday morning, killing the people on board and destroying several homes, officials said.`\
 https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html

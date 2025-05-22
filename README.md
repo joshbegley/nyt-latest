@@ -1,3 +1,19 @@
+**Inside a Harrowing, Hail-Damaged Flight: ‘We Thought It Was Our Last’**\
+`When an IndiGo flight from New Delhi ran into a severe hailstorm, a passenger described several terrifying minutes: “They were calling their gods, we were calling our gods.”`\
+https://nytimes.com/2025/05/22/world/europe/indigo-flight-hailstorm.html
+
+**Trump Administration Wrongly Impounded Infrastructure Aid, Watchdog Finds**\
+`The findings appeared to inch the government closer to a constitutional showdown, as President Trump increasingly looks to claim expansive powers over the nation’s purse strings.`\
+https://nytimes.com/2025/05/22/us/politics/trump-federal-funds-gao.html
+
+**NOAA Predicts ‘Above Average’ Hurricane Season**\
+`The National Oceanic and Atmospheric agency is forecasting a range of 13 to 19 total named storms during the Atlantic hurricane season, which runs from June 1 through November.`\
+https://nytimes.com/2025/05/22/weather/noaa-forecast-hurricane-season.html
+
+**Bat speed risers and fallers and their fantasy baseball outlooks**\
+`Owen Poindexter shares his rest-of-season expectations for some of the top bat speed gainers and losers, including a quartet of Mets.`\
+https://nytimes.com/athletic/6373938/2025/05/22/fantasy-baseball-2025-player-outlook-bat-speed/
+
 **Bills arrive as content darlings, but 'Hard Knocks' a spotlight they've long wanted to avoid**\
 `The series is an invasive look at NFL teams, which can be a bad thing.`\
 https://nytimes.com/athletic/6374576/2025/05/22/bills-hard-knocks-hallmark-movie/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6375082/2025/05/22/transfer-news-manchester-united-
 **Senate Republicans Kill California’s Ban on Gas-Powered Cars**\
 `In 50 years, California’s authority to set environmental rules that are tougher than national standards had never been challenged by Congress. Until now.`\
 https://nytimes.com/2025/05/22/climate/senate-republicans-electric-vehicles-california.html
-
-**LPGA names Craig Kessler as new commissioner**\
-`Kessler, 39, replaces interim commissioner Liz Moore, who stepped in when Mollie Marcoux Samaan resigned in December.`\
-https://nytimes.com/athletic/6375361/2025/05/22/craig-kessler-lpga-commissioner/
-
-**Aid Deliveries Begin to Reach Gazans After Days of Delays**\
-`The U.N. said about 90 truckloads of supplies had begun to arrive at warehouses and other sites in the devastated territory. It was the first significant influx after a two-month Israeli blockade.`\
-https://nytimes.com/2025/05/22/world/gaza-aid-delays-israel.html
-
-**How ‘The Queen of Spades’ Brought Two Tchaikovsky Brothers Together**\
-`The composer’s brother Modest long wanted to collaborate. They didn’t mean to, but got their chance to bring Pushkin to the opera stage.`\
-https://nytimes.com/2025/05/22/arts/music/tchaikovsky-the-queen-of-spades-opera.html
-
-**Analysis: How Postecoglou perfected Tottenham's defensive setup to win the Europa League**\
-`Spurs didn't need their plan for keeping Manchester United at bay in Wednesday's final to be pretty, it just had to be effective`\
-https://nytimes.com/athletic/6374598/2025/05/22/analysis-postecoglou-tactics-europa-league-final/
 

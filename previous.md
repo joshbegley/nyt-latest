@@ -1,3 +1,11 @@
+**Bills arrive as content darlings, but 'Hard Knocks' a spotlight they've long wanted to avoid**\
+`The series is an invasive look at NFL teams, which can be a bad thing.`\
+https://nytimes.com/athletic/6374576/2025/05/22/bills-hard-knocks-hallmark-movie/
+
+**A Times Square Office Tower Will Be Converted Into Apartments**\
+`The 38-story building in the heart of Midtown Manhattan will be turned into 1,250 apartments.`\
+https://nytimes.com/2025/05/22/nyregion/5-times-square-conversion.html
+
 **Small Plane Crashes in San Diego Neighborhood**\
 `A small jet crashed into a San Diego neighborhood early Thursday morning, killing the people on board and destroying several homes, officials said.`\
 https://nytimes.com/video/us/100000010184951/san-diego-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/arts/music/tchaikovsky-the-queen-of-spades-opera.
 **Analysis: How Postecoglou perfected Tottenham's defensive setup to win the Europa League**\
 `Spurs didn't need their plan for keeping Manchester United at bay in Wednesday's final to be pretty, it just had to be effective`\
 https://nytimes.com/athletic/6374598/2025/05/22/analysis-postecoglou-tactics-europa-league-final/
-
-**Winners of an ‘Exclusive Invitation’ to Dine With Trump Will Gather Tonight**\
-`The sale of access to the president to investors in his memecoin has been assailed by Democrats and even some Republicans as unethical.`\
-https://nytimes.com/2025/05/22/us/politics/trump-memecoin-dinner.html
-
-**Tuna Salad, but Make It Pasta**\
-`The gang’s all here: crunchy chopped celery and onion, fresh herbs and sweet peas, tangy yogurt and lemon.`\
-https://nytimes.com/2025/05/22/dining/tuna-pasta-salad-recipe-for-memorial-day.html
 
