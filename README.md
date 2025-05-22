@@ -1,5 +1,9 @@
+**49ers' Tariq Ahmad goes deep on Nick Martin, CJ West and the entire draft class**\
+`Ahmad said two combine interviews stood out in this year's draft cycle. One of them was the team's top pick, defensive end Mykel Williams.`\
+https://nytimes.com/athletic/6374038/2025/05/22/49ers-nfl-draft-class-evaluations-tariq-ahmad/
+
 **Shooting of Israeli Embassy Employees Shakes Washington**\
-`The shooting occurred on a street outside the Capital Jewish Museum, near the heard of official Washington, where the American Jewish Committee was hosting a reception for young diplomats. The suspect shouted “Free, free Palestine” after he was detained.`\
+`The shooting occurred on a street outside the Capital Jewish Museum in Washington.`\
 https://nytimes.com/video/us/politics/100000010184415/shooting-of-israeli-embassy-employees-shakes-washington.html
 
 **Keefer: With death of Jim Irsay, Colts lost a lifer and Indianapolis lost an icon**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374031/2025/05/22/indy-500-cheating-scandal-team-p
 **Why absolutely stunning comebacks are suddenly the Pacers' thing**\
 `How do these Pacers keep doing this?`\
 https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-pacers-comeback-knicks-game-1/
-
-**Will the Wild's Gustavsson-Wallstedt goalie tandem be a 'rivalry' or partnership?**\
-`How the dynamic between the two netminders plays out, and how they perform, could go a long way in determining the Wild’s fate in 2025-26.`\
-https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie-dynamic/
 

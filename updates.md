@@ -1,3 +1,7 @@
+**Shooting of Israeli Embassy Employees Shakes Washington**\
+`The shooting occurred on a street outside the Capital Jewish Museum, near the heard of official Washington, where the American Jewish Committee was hosting a reception for young diplomats. The suspect shouted “Free, free Palestine” after he was detained.`\
+https://nytimes.com/video/us/politics/100000010184415/shooting-of-israeli-embassy-employees-shakes-washington.html
+
 **Keefer: With death of Jim Irsay, Colts lost a lifer and Indianapolis lost an icon**\
 `From late-night phone calls to his sometimes stunning honesty in front of cameras and microphones, the Irsay Experience was an adventure.`\
 https://nytimes.com/athletic/6374099/2025/05/22/jim-irsay-phone-calls-colts-keefer/

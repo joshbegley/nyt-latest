@@ -1,3 +1,7 @@
+**Shooting of Israeli Embassy Employees Shakes Washington**\
+`The shooting occurred on a street outside the Capital Jewish Museum, near the heard of official Washington, where the American Jewish Committee was hosting a reception for young diplomats. The suspect shouted “Free, free Palestine” after he was detained.`\
+https://nytimes.com/video/us/politics/100000010184415/shooting-of-israeli-embassy-employees-shakes-washington.html
+
 **Keefer: With death of Jim Irsay, Colts lost a lifer and Indianapolis lost an icon**\
 `From late-night phone calls to his sometimes stunning honesty in front of cameras and microphones, the Irsay Experience was an adventure.`\
 https://nytimes.com/athletic/6374099/2025/05/22/jim-irsay-phone-calls-colts-keefer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374771/2025/05/22/aaron-nesmith-tyrese-haliburton-
 **Will the Wild's Gustavsson-Wallstedt goalie tandem be a 'rivalry' or partnership?**\
 `How the dynamic between the two netminders plays out, and how they perform, could go a long way in determining the Wild’s fate in 2025-26.`\
 https://nytimes.com/athletic/6373215/2025/05/22/wild-gustavsson-wallstedt-goalie-dynamic/
-
-**How plausible is the idea of Sabres pursuing Mitch Marner in free agency?**\
-`Adding a 100-point player like Marner is a rare opportunity and one worth exploring for Buffalo.`\
-https://nytimes.com/athletic/6373334/2025/05/22/sabres-mitch-marner-nhl-free-agency/
 
