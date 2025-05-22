@@ -1,3 +1,7 @@
+**What the Giants can expect from Jordan Hicks out of the bullpen**\
+`Moving back to the bullpen was always Plan B after the Giants signed Hicks. Now that he's a reliever again, how will he fit in the bullpen?`\
+https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-profile/
+
 **Without a Prenup, David Geffen’s Divorce Could Get Interesting**\
 `The billionaire’s marriage to David Armstrong ended with the familiar “irreconcilable differences.” Is Mr. Geffen’s fortune in jeopardy?`\
 https://nytimes.com/2025/05/22/style/david-geffen-divorce-prenup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
 **Fantasy bullpen report featuring Andrew Kittredge, Luke Jackson, Trevor Megill and more**\
 `Greg Jewett offers top-notch fantasy baseball advice on the state of team bullpens, along with players to target and those with concerns. `\
 https://nytimes.com/athletic/6375634/2025/05/22/fantasy-bullpen-report-featuring-andrew-kittredge-luke-jackson-trevor-megill-and-more/
-
-**End of the Penny Grows Near**\
-`The cost of producing a penny has skyrocketed in recent years, reaching 3.69 cents, according to the Treasury Department.`\
-https://nytimes.com/2025/05/22/us/politics/penny-manufacturing.html
 
