@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6374099/2025/05/22/jim-irsay-phone-calls-colts-keef
 `Ms. Wylde, the longtime leader of the Partnership for New York City, has been a behind-the-scenes power broker for decades, working on behalf of the business and political elite.`\
 https://nytimes.com/2025/05/22/nyregion/kathryn-wylde-retire-nyc.html
 
-**Live Updates: Gunman Kills 2 Israeli Embassy Aides in Washington**\
-`The shooting occurred outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
+**Live Updates: F.B.I. Enters Suspect’s Home After 2 Israeli Embassy Aides Are Killed in Washington**\
+`The shooting occurred Wednesday night outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc
 

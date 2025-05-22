@@ -1,3 +1,7 @@
+**Live Updates: F.B.I. Enters Suspect’s Home After 2 Israeli Embassy Aides Are Killed in Washington**\
+`The shooting occurred Wednesday night outside the Capital Jewish Museum. A suspect shouted “Free, free Palestine” after he was taken into custody, officials said.`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc
+
 **Native Tribes to Sue U.S. Over Abuse and Deaths at Boarding Schools**\
 `A class-action lawsuit to be filed in Pennsylvania will argue that Native tribes have never been compensated for the child abuse or for money taken from tribal trust funds to operate the schools.`\
 https://nytimes.com/2025/05/22/us/indian-boarding-schools-lawsuit.html
