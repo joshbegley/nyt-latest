@@ -1,3 +1,11 @@
+**What I’m seeing from Canucks' top prospects in AHL playoffs**\
+`Victor Mancini is playing spectacularly as an all-situations workhorse while Jonathan Lekkerimäki is heating up.`\
+https://nytimes.com/athletic/6374547/2025/05/22/abbotsford-canucks-ahl-playoffs-prospects/
+
+**Why Ferrari's Charles Leclerc is happy being F1's renaissance man**\
+`Ferrari driver Charles Leclerc explains his non-racing passion projects, some of which are inspired by his home grand prix in Monaco`\
+https://nytimes.com/athletic/6372692/2025/05/22/charles-leclerc-ferrari/
+
 **The Pulse: An overtime stunner at MSG**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6373022/2025/05/22/knicks-pacers-haliburton-choke-the-pulse/
