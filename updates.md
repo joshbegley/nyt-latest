@@ -1,3 +1,15 @@
+**A Revealing Joke in the Oval Office About Getting in Trump’s Good Graces**\
+`The president of South Africa’s wisecrack about a free plane spoke volumes.`\
+https://nytimes.com/2025/05/22/us/politics/trump-plane-south-africa-gifts.html
+
+**Friday Briefing: Two Israeli Embassy Staff Killed**\
+`Plus, books to look forward to.`\
+https://nytimes.com/2025/05/22/briefing/israel-embassy-staff-killing-gaza-aid-alberta-canada-secession.html
+
+**Can We Please Stop Lying About Obama?**\
+`The problem with arguing that neoliberals left American workers behind is that it’s mostly untrue.`\
+https://nytimes.com/2025/05/22/opinion/american-workers-neoliberalism-obama.html
+
 **Read the F.B.I. Affidavit**\
 `The Justice Department charged Elias Rodriguez, of Chicago, with murder of foreign officials, first-degree murder and other crimes in the shooting deaths of two Israeli Embassy employees in Washington.`\
 https://nytimes.com/interactive/2025/05/22/us/rodriguez-aff.html

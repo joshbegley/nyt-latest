@@ -1,3 +1,15 @@
+**A Revealing Joke in the Oval Office About Getting in Trump’s Good Graces**\
+`The president of South Africa’s wisecrack about a free plane spoke volumes.`\
+https://nytimes.com/2025/05/22/us/politics/trump-plane-south-africa-gifts.html
+
+**Friday Briefing: Two Israeli Embassy Staff Killed**\
+`Plus, books to look forward to.`\
+https://nytimes.com/2025/05/22/briefing/israel-embassy-staff-killing-gaza-aid-alberta-canada-secession.html
+
+**Can We Please Stop Lying About Obama?**\
+`The problem with arguing that neoliberals left American workers behind is that it’s mostly untrue.`\
+https://nytimes.com/2025/05/22/opinion/american-workers-neoliberalism-obama.html
+
 **Read the F.B.I. Affidavit**\
 `The Justice Department charged Elias Rodriguez, of Chicago, with murder of foreign officials, first-degree murder and other crimes in the shooting deaths of two Israeli Embassy employees in Washington.`\
 https://nytimes.com/interactive/2025/05/22/us/rodriguez-aff.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6376158/2025/05/22/france-women-nations-league-squa
 **Venezuelan Man Is Arrested After Posing as a High School Student in Ohio**\
 `A 24-year-old has been charged with forgery after enrolling in an Ohio high school as a 16-year-old student, the federal authorities said.`\
 https://nytimes.com/2025/05/22/us/venezuelan-man-identity-fraud-ohio.html
-
-**James Corden, Neil Patrick Harris and Bobby Cannavale Lead Broadway ‘Art’**\
-`The three actors will star in a revival of Yasmina Reza’s 1994 play, which begins performances at the end of August.`\
-https://nytimes.com/2025/05/22/theater/corden-cannavale-harris-broadway-art.html
-
-**Trump Makes False Genocide Claims. South Africans Respond With Humor.**\
-`The jokes mask a deep-seated anger over the legacy of apartheid and the inequality that many Black people say continues to define life in their country.`\
-https://nytimes.com/2025/05/22/world/africa/trump-false-genocide-claims-south-africans-respond-humor.html
-
-**G7 Finance Ministers Show Unity in Support of Ukraine Against Russia**\
-`Top economic officials avoided a condemnation of U.S. tariffs but committed to trying to reduce “economic policy uncertainty.”`\
-https://nytimes.com/2025/05/22/us/politics/g7-unity-ukraine-against-russia.html
 
