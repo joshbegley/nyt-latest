@@ -1,3 +1,11 @@
+**Blashill brings hope to Blackhawks but faces daunting task**\
+`Will Blashill be the coach who returns the Blackhawks to glory or will he be another franchise footnote?`\
+https://nytimes.com/athletic/6376063/2025/05/22/blackhawks-coach-jeff-blashill-rebuild-nhl/
+
+**Cookies: the Book!**\
+`Give future you the gift of many, many (many) excellent cookies.`\
+https://nytimes.com/2025/05/22/dining/cookies-the-book.html
+
 **Sarah Milgrim’s faith was nurtured by the Jewish community around Kansas City.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/sarah-milgrims-faith-was-nurtured-by-the-jewish-community-around-kansas-city
@@ -26,15 +34,7 @@ https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/before-they-we
 `If passed, a bill from the House of Representatives would sharply curtail the tax credits that have spurred a rise in clean energy investments.`\
 https://nytimes.com/2025/05/22/climate/house-bill-would-derail-bidens-signature-climate-law.html
 
-**Airplane Stowaway Is Convicted of Infiltrating Flight to Paris**\
+**Woman Who Sneaked Aboard Paris Flight and Hid in Bathrooms Is Convicted**\
 `Svetlana Dali scooted from bathroom to bathroom in the Boeing and wandered its aisles. She testified in her own behalf and interrupted the trial repeatedly.`\
 https://nytimes.com/2025/05/22/nyregion/svetlana-dali-stowaway-convicted.html
-
-**Aid Finally Arrives in Gaza After Two-Month Israeli Blockade**\
-`The United Nations said about 90 truckloads of aid had entered Gaza by Thursday, the first major delivery of food that Israel has allowed in after a two-month blockade that caused widespread hunger and deepened the humanitarian crisis.`\
-https://nytimes.com/video/world/middleeast/100000010185077/gaza-aid-trucks.html
-
-**What the Giants can expect from Jordan Hicks out of the bullpen**\
-`Moving back to the bullpen was always Plan B after the Giants signed Hicks. Now that he's a reliever again, how will he fit in the bullpen?`\
-https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-profile/
 

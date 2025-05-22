@@ -1,3 +1,11 @@
+**Sarah Milgrim’s faith was nurtured by the Jewish community around Kansas City.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2025/05/22/us/israel-embassy-shooting-dc/sarah-milgrims-faith-was-nurtured-by-the-jewish-community-around-kansas-city
+
+**Maple Leafs part ways with president Brendan Shanahan**\
+`Toronto built a strong regular-season team, but won only two playoff rounds in Brendan Shanahan’s 11 seasons as team president.`\
+https://nytimes.com/athletic/6368883/2025/05/22/maple-leafs-brendan-shanahan-part-ways/
+
 **Killings Echo Earlier Assassination of Israeli Diplomat**\
 `In 1973, Col. Yosef Alon, an Israeli military attaché, was gunned down in front of his home in suburban Maryland. The gunman was never identified despite an extensive F.B.I. investigation.`\
 https://nytimes.com/2025/05/22/us/politics/israeli-yosef-alon-killing-dc-shooting.html
