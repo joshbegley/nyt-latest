@@ -1,3 +1,7 @@
+**Judge weighs text evidence after Brett Howden's emotional testimony**\
+`Judge's ruling on whether the former Canadian Junior team member's text message will be admissible is expected Friday morning. `\
+https://nytimes.com/athletic/6375468/2025/05/22/hockey-canada-sexual-assault-trial-brett-howden-testifies/
+
 **Now That House Republicans Took the Plunge, It’s the Senate’s Turn**\
 `Senate Republicans say changes are coming for the sprawling domestic policy bill carrying President Trump’s agenda. Their colleagues who took political risks to push it through the House might not like them.`\
 https://nytimes.com/2025/05/22/us/politics/senate-republicans-budget-vote.html
