@@ -1,3 +1,5 @@
+
+
 **CBS Sports acquires U.S. broadcast rights for men's and women's Rugby World Cups**\
 `The deal encompasses the men's World Cup in 2027 and the next two women's World Cups, which will be held this year and 2029.`\
 https://nytimes.com/athletic/6374841/2025/05/22/rugby-world-cup-tv-united-states/
