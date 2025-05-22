@@ -1,3 +1,7 @@
+**Fernandes says he wants to stay at Man Utd, understands if club were to 'cash in'**\
+`“I’ve always said I will be here until the club says to me that it’s time to go,” Fernandes said after United's Europa League final loss.`\
+https://nytimes.com/athletic/6374528/2025/05/22/bruno-fernandes-manchester-united-future/
+
 **A Very Old Tower’s Much Newer Roof Collapses, Raising Questions in China**\
 `The Drum Tower in Fengyang County, which dates to the 14th century, is one of many historical sites that have been renovated as cultural tourism has boomed.`\
 https://nytimes.com/2025/05/22/world/asia/china-drum-tower-collapse.html
