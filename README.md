@@ -1,3 +1,7 @@
+**Aid Finally Arrives in Gaza After Two-Month Israeli Blockade**\
+`The United Nations said about 90 truckloads of aid had entered Gaza by Thursday, the first major delivery of food that Israel has allowed in after a two-month blockade that caused widespread hunger and deepened the humanitarian crisis.`\
+https://nytimes.com/video/world/middleeast/100000010185077/gaza-aid-trucks.html
+
 **What the Giants can expect from Jordan Hicks out of the bullpen**\
 `Moving back to the bullpen was always Plan B after the Giants signed Hicks. Now that he's a reliever again, how will he fit in the bullpen?`\
 https://nytimes.com/athletic/6373138/2025/05/22/jordan-hicks-sf-giants-bullpen-profile/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6375450/2025/05/22/nba-all-defensive-team-evan-mobl
 `Adelman coached the final three games of the regular season and through two rounds of the postseason.`\
 https://nytimes.com/athletic/6376011/2025/05/22/david-adelman-nuggets-head-coach-hired/
 
-**Mets takeaways: Huascar Brazobán's confidence, power outage for two sluggers and more**\
+**Mets takeaways: Huascar Brazobán's confidence, power outage for 2 sluggers and more**\
 `Brazobán barely made the Opening Day roster. Now he's one of Carlos Mendoza's most-trusted high-leverage relievers. `\
 https://nytimes.com/athletic/6375843/2025/05/22/mets-huascar-brazoban-mark-vientos-francisco-alvarez/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375841/2025/05/22/usmnt-gold-cup-roster-mauricio-p
 **Is It Ever OK to Touch a Stranger?**\
 `A tense exchange between the actor Denzel Washington and a photographer at Cannes is raising questions about laying hands on someone you don’t know.`\
 https://nytimes.com/2025/05/22/well/dont-touch-me-stranger.html
-
-**Fantasy bullpen report featuring Andrew Kittredge, Luke Jackson, Trevor Megill and more**\
-`Greg Jewett offers top-notch fantasy baseball advice on the state of team bullpens, along with players to target and those with concerns. `\
-https://nytimes.com/athletic/6375634/2025/05/22/fantasy-bullpen-report-featuring-andrew-kittredge-luke-jackson-trevor-megill-and-more/
 
