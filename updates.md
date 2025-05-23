@@ -1,3 +1,15 @@
+**Jason Ayto leaves Arsenal after interim spell as sporting director**\
+`Ayto had been assistant to former Arsenal sporting director Edu, who left the club in November, before temporarily holding the position.`\
+https://nytimes.com/athletic/6183061/2025/05/23/arsenal-sporting-director-ayto-exit/
+
+**The Supreme Court Ruled in Favor of Trump. And That Is OK.**\
+`Those worried about how the court will confront Trump should save their outrage for other cases.`\
+https://nytimes.com/2025/05/23/opinion/the-supreme-court-trump-executive-agencies.html
+
+**Billy Joel Announces Brain Disorder and Cancels All Concerts**\
+`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
+https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
+
 **Yuri Grigorivich, Giant of Soviet Ballet, Is Dead at 98**\
 `Among the 20th century’s most significant choreographers, he led the Bolshoi Ballet for more than 30 years, creating epic ballets like “Spartacus.”`\
 https://nytimes.com/2025/05/23/arts/dance/yuri-grigorivich-dead.html
