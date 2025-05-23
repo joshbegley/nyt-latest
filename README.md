@@ -1,6 +1,6 @@
 **Maresca fears Chelsea squad may struggle with fatigue due to summer schedule**\
 `The Conference League final, Club World Cup and international commitments have Maresca fearing for his players' fitness over the summer.`\
-https://nytimes.com/athletic/6377125/2025/05/23/enzo-maresca-fears-chelsea-squad-may-struggle-with-fatigue-due-to-summer-schedule/
+https://nytimes.com/athletic/6377125/2025/05/23/chelsea-summer-schedule-maresca/
 
 **Jimmy Kimmel Digests Trump’s Crypto Dinner**\
 `“Listen, he’s only corrupt in his free time, guys,” Kimmel said of the president. “When he’s in the Oval Office, he’s by the book. This is all completely on the up and up.”`\
