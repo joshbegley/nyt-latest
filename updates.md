@@ -28,6 +28,16 @@ https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-ba
 `\
 https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
 
+**UWCL final odds: Arsenal and Barca on the cusp of making history**\
+`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
+`\
+https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+
+**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
+`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
+`\
+https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+
 **Toney set to be recalled to England squad for first time since Euro 2024**\
 `The former Brentford forward is set to be rewarded by Thomas Tuchel for an impressive first season for Saudi Pro League club Al Ahli.`\
 https://nytimes.com/athletic/6377069/2025/05/23/england-squad-ivan-toney-call-up/
