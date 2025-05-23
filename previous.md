@@ -1,40 +1,42 @@
+**UWCL final odds: Arsenal and Barca on the cusp of making history**\
+`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
+`\
+https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+
+**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
+`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
+`\
+https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+
+**Could a Brooklyn City Councilwoman Lose Because of Her Stance on Gaza?**\
+`Shahana Hanif, the incumbent in an upcoming Democratic primary race, has been an outspoken advocate of the Palestinian cause, rattling some of the residents in her progressive district.`\
+https://nytimes.com/2025/05/23/nyregion/shahana-hanif-maya-kornberg-council-race.html
+
+**New Studies Dismiss Signs of Life on Distant Planet**\
+`In April, astronomers said they had detected a possible signature of life on the exoplanet K2-18b. Now, three independent analyses discount the evidence.`\
+https://nytimes.com/2025/05/23/science/astronomy-extraterrestrial-life-k218b.html
+
+**People Long to Believe, Both Inside and Outside Religion**\
+`A New York Times series is exploring how religion and spirituality shape our lives. The reporter behind it found examples in houses of worship, in sports stadiums and at Taylor Swift concerts.`\
+https://nytimes.com/2025/05/23/insider/people-long-to-believe-both-inside-and-outside-religion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/23/crosswords/spelling-bee-forum.html
+
+**A Slob, a Witch, a Lifelong Friend: New Yorkers’ Best Roommate Stories**\
+`This time of year, the city becomes crowded with young people in search of roommates to share the rent. Nearly everyone ends up with at least one wild tale to tell.`\
+https://nytimes.com/2025/05/23/nyregion/new-york-city-roommate-tales.html
+
+**Final Premier League top-five picks: Forest, Chelsea doomed; City, Villa, Toons in Europe**\
+`Brett Koremenos outlines the latest top-five betting permutations ahead of the final Premier League weekend of the season.`\
+https://nytimes.com/athletic/6375119/2025/05/23/final-weekend-premier-league-top-five-betting-predictions/
+
+**Word of the Day: gimmick**\
+`This word has appeared in 258 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/23/learning/word-of-the-day-gimmick.html
+
 **The Nuno you do not see at Forest: Handpan player, diver, horse lover, 'maniac', worm dancer**\
 `Nuno is cautious and collected in front of the media. But what is the Nottingham Forest manager like behind the scenes?`\
 https://nytimes.com/athletic/6363660/2025/05/23/nuno-nottingham-forest-diver-worm-handpan/
-
-**'Yeah, that's a lot of points': Liberty rain down WNBA-record 19 3s on Sky**\
-`The defending champion Liberty shot 55.2 percent for the game in a 99-74 victory in the Sky's home opener.`\
-https://nytimes.com/athletic/6376941/2025/05/23/chicago-sky-new-york-liberty-wnba-record/
-
-**Judge Extends Order Blocking Trump’s Planned Mass Layoffs**\
-`The ruling, which covers 22 agencies and also prohibits shutting down programs or offices, effectively pauses the president’s plans for reshaping much of the government while the case plays out.`\
-https://nytimes.com/2025/05/23/us/politics/court-ruling-federal-layoffs-trump.html
-
-**As Astros' rotation depth dwindles, Lance McCullers Jr.'s importance intensifies**\
-`Placing Ronel Blanco on the injured list Thursday means three-fifths of Houston's season-opening starting rotation is sidelined.`\
-https://nytimes.com/athletic/6376952/2025/05/23/astros-starting-pitching-lance-mccullers-injuries/
-
-**Ex-Nuggets coach Mike Malone says Nikola Jokić was his pick for MVP**\
-`Gilgeous-Alexander was announced as the NBA's MVP Wednesday.`\
-https://nytimes.com/athletic/6376936/2025/05/23/nuggets-coach-mike-malone-nikola-jokic-mvp-shai-gilgeous-alexander/
-
-**The New York Times in Print for Friday, May 23, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/23/todays-new-york-times
-
-**Trump Got What He Wanted From South Africa, and Damaged America**\
-`The president clearly planned to ambush Cyril Ramaphosa.`\
-https://nytimes.com/2025/05/23/opinion/trump-ramaphosa-meeting-south-africa.html
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/05/23/briefing/aides-israel-gaza-south-africa.html
-
-**United have had darker days but I’ve never felt so low about them**\
-`Next season will look remarkably different from all but one in the previous 34 for United: one without European football`\
-https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-europa/
-
-**Aston Villa's record against Man United is terrible, even under Emery - he must fix it on Sunday**\
-`Villa's poor track record against Man Utd analysed. They must correct it`\
-https://nytimes.com/athletic/6367160/2025/05/23/aston-villa-record-against-manchester-united/
 
