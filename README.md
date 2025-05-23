@@ -1,4 +1,8 @@
-**Realigned Phillies bullpen finds its footing in 5 days following Alvarado suspension**\
+**Panthers star Sam Reinhart leaves Game 2 vs. Hurricanes after collision, won't return**\
+`Reinhart, who scored 39 goals and 81 points this season, was injured on a Sebastian Aho hip check in the first period Thursday.`\
+https://nytimes.com/athletic/6376701/2025/05/22/panthers-sam-reinhart-injured-nhl-playoffs/
+
+**Realigned Phillies bullpen finds its footing in 5 days after José Alvarado suspension**\
 `No one will read too much into the solid stretch because greater tests await. But it was some validation for a group under scrutiny. `\
 https://nytimes.com/athletic/6376599/2025/05/22/phillies-bullpen-adjusts-jose-alvarado-suspension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/brian-williams-la-bomb-threat-guilty.html
 **Braves expected to activate Ronald Acuña Jr. on Friday: Source**\
 `Acuña was scratched from the lineup for Triple-A Gwinnett's game on Thursday. He played his first full rehab game on Wednesday.`\
 https://nytimes.com/athletic/6376556/2025/05/22/braves-ronald-acuna-return/
-
-**An Officer Said She Was Disabled. Prosecutors Said She Ran, Skied and Danced.**\
-`Prosecutors said that Nicole Brown, 39, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
-https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
 

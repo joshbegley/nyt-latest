@@ -1,3 +1,11 @@
+**Realigned Phillies bullpen finds its footing in 5 days following Alvarado suspension**\
+`No one will read too much into the solid stretch because greater tests await. But it was some validation for a group under scrutiny. `\
+https://nytimes.com/athletic/6376599/2025/05/22/phillies-bullpen-adjusts-jose-alvarado-suspension/
+
+**Ex-McKinsey Partner Sentenced in Obstruction Case**\
+`The consultant had deleted records involving McKinsey’s role in pushing OxyContin sales and driving the opioid crisis.`\
+https://nytimes.com/2025/05/22/business/mckinsey-obstruction-opioids.html
+
 **Former MLB player Darin Ruf sues Reds over career-ending injury**\
 `Ruf's lawsuit cites an unpadded metal roller: "Players shouldn't have to worry about hidden hazards like that on a major-league field."`\
 https://nytimes.com/athletic/6376620/2025/05/22/darin-ruf-lawsuit-reds-tarp/

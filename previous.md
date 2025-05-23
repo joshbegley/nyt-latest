@@ -1,3 +1,11 @@
+**Realigned Phillies bullpen finds its footing in 5 days following Alvarado suspension**\
+`No one will read too much into the solid stretch because greater tests await. But it was some validation for a group under scrutiny. `\
+https://nytimes.com/athletic/6376599/2025/05/22/phillies-bullpen-adjusts-jose-alvarado-suspension/
+
+**Ex-McKinsey Partner Sentenced in Obstruction Case**\
+`The consultant had deleted records involving McKinsey’s role in pushing OxyContin sales and driving the opioid crisis.`\
+https://nytimes.com/2025/05/22/business/mckinsey-obstruction-opioids.html
+
 **Former MLB player Darin Ruf sues Reds over career-ending injury**\
 `Ruf's lawsuit cites an unpadded metal roller: "Players shouldn't have to worry about hidden hazards like that on a major-league field."`\
 https://nytimes.com/athletic/6376620/2025/05/22/darin-ruf-lawsuit-reds-tarp/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6376556/2025/05/22/braves-ronald-acuna-return/
 **An Officer Said She Was Disabled. Prosecutors Said She Ran, Skied and Danced.**\
 `Prosecutors said that Nicole Brown, 39, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
 https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
-
-**What We Know About the Accused Gunman in Washington**\
-`The suspect, Elias Rodriguez, was charged with gunning down two Israeli Embassy workers outside a Jewish museum in Washington. Here is what we know about him.`\
-https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-aides.html
-
-**Brendan Shanahan's 11-year Maple Leafs odyssey: Vision, hope, stubborn belief and failure**\
-`After 11 years as Maple Leafs president, Brendan Shanahan is out. How did a tenure that began with so much promise grow so stale?`\
-https://nytimes.com/athletic/5489947/2025/05/22/maple-leafs-brendan-shanahan-era-ends/
 
