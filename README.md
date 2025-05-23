@@ -1,3 +1,8 @@
+**Listen: Why Europa League success secures Son Heung-min's legacy**\
+`The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
+`\
+https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
+
 **Trump Takes on Apple — and Harvard, BlackRock and the E.U.**\
 `The president escalated battles with prominent American companies and institutions, as well as a key trading partner. The damage could be extensive.`\
 https://nytimes.com/2025/05/23/business/dealbook/trump-apple-harvard-blackrock-eu.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6376802/2025/05/23/mick-abel-offseason-phillies-202
 **Winnipeg Jets 2025-26 roster decisions: Who stays and who goes this offseason?**\
 `Will Ehlers stay? Will he go? What about the rest of the Jets — whether they need new contracts or not — as Winnipeg's offseason begins?`\
 https://nytimes.com/athletic/6371613/2025/05/23/winnipeg-jets-who-stays-who-goes/
-
-**Were Ruben Amorim's tactics to blame for Man United's Europa League final loss or was it the players?**\
-`A squad overhaul and more time on the training pitch are necessary and Wednesday’s performance highlighted the issues United and Amorim face`\
-https://nytimes.com/athletic/6375696/2025/05/23/amorim-tactics-man-united-europa/
 

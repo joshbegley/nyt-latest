@@ -1,3 +1,11 @@
+**Trump Takes on Apple — and Harvard, BlackRock and the E.U.**\
+`The president escalated battles with prominent American companies and institutions, as well as a key trading partner. The damage could be extensive.`\
+https://nytimes.com/2025/05/23/business/dealbook/trump-apple-harvard-blackrock-eu.html
+
+**Trump Administration Live Updates: President Threatens E.U. With 50% Tariffs**\
+``\
+https://nytimes.com/live/2025/05/23/us/trump-news
+
 **At the Combs Trial, the Elusive Victim-3 and Other Unsettled Questions**\
 `The major outlines of the prosecution of the music mogul Sean Combs have taken shape in a Manhattan courtroom. But several issues at the core of the case remain unanswered.`\
 https://nytimes.com/2025/05/23/arts/music/sean-combs-trial-testimony-questions.html
