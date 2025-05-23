@@ -1,3 +1,11 @@
+**Supreme Court, for Now, Shields DOGE from Turning Over Records**\
+`The chief justice put a temporary hold on a lower court ruling that Elon Musk’s government efficiency team and the Office of Management and Budget turn over internal records.`\
+https://nytimes.com/2025/05/23/us/politics/supreme-court-doge-records.html
+
+**The 5.25.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/23/the-52525-issue
+
 **Losers of 9 straight, A's shake up roster with 5 promotions, option JJ Bleday**\
 `The A's have the longest losing streak in MLB so far this season, thanks in part to a porous defense and a leaky bullpen.`\
 https://nytimes.com/athletic/6378569/2025/05/23/athletics-roster-shakeup-jj-bleday-seth-brown/

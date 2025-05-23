@@ -1,3 +1,11 @@
+**Supreme Court, for Now, Shields DOGE from Turning Over Records**\
+`The chief justice put a temporary hold on a lower court ruling that Elon Musk’s government efficiency team and the Office of Management and Budget turn over internal records.`\
+https://nytimes.com/2025/05/23/us/politics/supreme-court-doge-records.html
+
+**The 5.25.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/23/the-52525-issue
+
 **Losers of 9 straight, A's shake up roster with 5 promotions, option JJ Bleday**\
 `The A's have the longest losing streak in MLB so far this season, thanks in part to a porous defense and a leaky bullpen.`\
 https://nytimes.com/athletic/6378569/2025/05/23/athletics-roster-shakeup-jj-bleday-seth-brown/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/arts/television/art-spiegelman-documentary-edited
 **U.S. Steel to Form ‘Partnership’ With Nippon, Trump Says**\
 `President Trump’s statement appeared to approve a deal linking the U.S. and Japanese steel makers that had been blocked on national security grounds.`\
 https://nytimes.com/2025/05/23/business/us-steel-nippon-trump.html
-
-**Reds pitcher Rhett Lowder's rehab assignment paused due to oblique strain**\
-`Lowder’s rehab assignment has been paused after an MRI showed a left oblique strain following his shortened outing Thursday.`\
-https://nytimes.com/athletic/6378552/2025/05/23/reds-rhett-lowder-rehab-injury/
-
-**Prime Tire: Why the Indy 500 scandal matters in F1 too. Plus, the key to staying dry in Monaco**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6375533/2025/05/23/indy-500-scandal-f1-monaco-prime-tire-newsletter/
 
