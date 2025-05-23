@@ -1,3 +1,11 @@
+**Prime Tire: Why the Indy 500 scandal matters in F1 too. Plus, the key to staying dry in Monaco**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6375533/2025/05/23/indy-500-scandal-f1-monaco-prime-tire-newsletter/
+
+**Napoli win Serie A as final-day victory pips Inter to title**\
+`The league title went down to the final matchday with Antonio Conte's side one point clear of Inter, who won at Como.`\
+https://nytimes.com/athletic/6349268/2025/05/23/napoli-serie-a-title-mctominay-lukaku/
+
 **Karol G’s Ode to Curves, Plus 7 More New Songs**\
 `Hear tracks by Alejandro Sanz and Shakira, St. Vincent, Stereolab and others.`\
 https://nytimes.com/2025/05/23/arts/music/playlist-karol-g-shakira-alejandro-sanz.html

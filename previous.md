@@ -1,3 +1,11 @@
+**Prime Tire: Why the Indy 500 scandal matters in F1 too. Plus, the key to staying dry in Monaco**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6375533/2025/05/23/indy-500-scandal-f1-monaco-prime-tire-newsletter/
+
+**Napoli win Serie A as final-day victory pips Inter to title**\
+`The league title went down to the final matchday with Antonio Conte's side one point clear of Inter, who won at Como.`\
+https://nytimes.com/athletic/6349268/2025/05/23/napoli-serie-a-title-mctominay-lukaku/
+
 **Karol G’s Ode to Curves, Plus 7 More New Songs**\
 `Hear tracks by Alejandro Sanz and Shakira, St. Vincent, Stereolab and others.`\
 https://nytimes.com/2025/05/23/arts/music/playlist-karol-g-shakira-alejandro-sanz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
 **MLSE boss Keith Pelley discusses Maple Leafs' future: What we learned**\
 `Brendan Shanahan won't be replaced as president — at least for now.`\
 https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
-
-**Bayern win $2.5M at inaugural World Sevens Football tournament**\
-`Runners-up Manchester United win $1M for their efforts in the inaugural tournament `\
-https://nytimes.com/athletic/6378380/2025/05/23/bayern-munich-world-sevens-football-final/
-
-**The Windup: What it would take to trade Paul Skenes**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6377037/2025/05/23/paul-skenes-trade-pirates-the-windup/
 
