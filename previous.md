@@ -1,3 +1,23 @@
+**Slot 'wasn't completely happy' with Alexander-Arnold training at start of season**\
+`"In my opinion in certain moments he could do a bit more to say it mildly," Slot said of the departing Liverpool right-back.`\
+https://nytimes.com/athletic/6377189/2025/05/23/alexander-arnold-training-slot-liverpool/
+
+**Telegraph Takeover Drama Ends With Deal to Sell U.K. Newspaper to Private Equity**\
+`After years in limbo, the British newspaper is set to be bought by RedBird Capital, an American investment firm with many sports, media and entertainment holdings.`\
+https://nytimes.com/2025/05/23/business/daily-telegraph-uk-sale-redbird-capital.html
+
+**Biggest Bills questions heading into OTAs: James Cook, Dalton Kincaid, Keon Coleman and more**\
+`Plus, what to do with all of the defensive ends.`\
+https://nytimes.com/athletic/6376162/2025/05/23/bills-otas-james-cook-dalton-kincaid-keon-coleman/
+
+**Lions ahead of OTAs: Aidan Hutchinson cleared, Sam LaPorta and DJ Reader focus on team goals**\
+`Aidan Hutchinson hadn't been heard from for a long time since his injury.`\
+https://nytimes.com/athletic/6376338/2025/05/23/lions-aidan-hutchinson-sam-laporta-dj-reader/
+
+**The New York Times International Edition in Print for Saturday, May 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/23/todays-new-york-times-international-edition
+
 **Maresca fears Chelsea squad may struggle with fatigue due to summer schedule**\
 `The Conference League final, Club World Cup and international commitments have Maresca fearing for his players' fitness over the summer.`\
 https://nytimes.com/athletic/6377125/2025/05/23/chelsea-summer-schedule-maresca/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6374632/2025/05/23/daphne-van-domselaar-arsenal-bar
 **Trump’s Big Budget Bomb**\
 `We are all in the blast radius of Trump’s tax-cut bill, which Catherine Rampell calls ‘transfer of wealth from the poor to the rich, from the young to the old and from the future to the past.’`\
 https://nytimes.com/2025/05/23/opinion/ezra-klein-podcast-catherine-rampell.html
-
-**The New York Times News Quiz, May 23, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/05/23/briefing/quiz-biden-brooklyn-george-wendt.html
-
-**A Complete List of Everything in the Republican Bill, and How Much It Would Cost or Save**\
-`We highlighted the substantive changes made by House Republicans to secure the support of several holdout members.`\
-https://nytimes.com/interactive/2025/05/23/upshot/budget-table.html
-
-**This Is the Tragic Consequence of Conflating Jews and Israel**\
-`The horrific killings of Yaron Lischinsky and Sarah Milgrim were shocking, but should not come as a surprise.`\
-https://nytimes.com/2025/05/23/opinion/israel-embassy-staff-killed.html
-
-**How to Stop Being So Judgy**\
-`Here’s what you should do instead.`\
-https://nytimes.com/2025/05/23/well/stop-being-judgemental.html
-
-**Trump's Big Budget Bomb**\
-`We are all in the blast radius of Trump’s tax-cut bill.`\
-https://nytimes.com/video/opinion/100000010186562/trumps-big-budget-bomb.html
 
