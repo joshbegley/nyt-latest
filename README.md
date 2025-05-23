@@ -1,3 +1,11 @@
+**Howe: Isak has 'a chance' of being fit for Newcastle vs Everton**\
+`The striker missed Newcastle's 1-0 defeat at Arsenal last Sunday, which left them fourth in the Premier League heading into the final day.`\
+https://nytimes.com/athletic/6377116/2025/05/23/alexander-isak-newcastle-everton/
+
+**Disney+ secures Women’s Champions League broadcast rights**\
+`Disney+ has agreed a five-year deal with the competition and will show every single match in the tournament.`\
+https://nytimes.com/athletic/6376400/2025/05/23/disney-womens-champions-league/
+
 **Toney set to be recalled to England squad for first time since Euro 2024**\
 `The former Brentford forward is set to be rewarded by Thomas Tuchel for an impressive first season for Saudi Pro League club Al Ahli.`\
 https://nytimes.com/athletic/6377069/2025/05/23/england-squad-ivan-toney-call-up/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/05/23/science/astronomy-extraterrestrial-life-k218b.htm
 **People Long to Believe, Both Inside and Outside Religion**\
 `A New York Times series is exploring how religion and spirituality shape our lives. The reporter behind it found examples in houses of worship, in sports stadiums and at Taylor Swift concerts.`\
 https://nytimes.com/2025/05/23/insider/people-long-to-believe-both-inside-and-outside-religion.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/23/crosswords/spelling-bee-forum.html
-
-**A Slob, a Witch, a Lifelong Friend: New Yorkers’ Best Roommate Stories**\
-`This time of year, the city becomes crowded with young people in search of roommates to share the rent. Nearly everyone ends up with at least one wild tale to tell.`\
-https://nytimes.com/2025/05/23/nyregion/new-york-city-roommate-tales.html
 
