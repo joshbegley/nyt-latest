@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Judge Extends Pause on Mass Federal Layoffs**\
+``\
+https://nytimes.com/live/2025/05/23/us/trump-news
+
+**Father's Day**\
+``\
+https://nytimes.com/spotlight/fathers-day
+
 **Ukraine and Russia Set to Begin Largest Prisoner Exchange of War**\
 `President Trump trumpeted the event with a post on social networks.`\
 https://nytimes.com/2025/05/23/world/europe/ukraine-russia-prisoner-swap.html
