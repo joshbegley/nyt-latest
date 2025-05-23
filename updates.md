@@ -1,3 +1,15 @@
+**Historic Shipwrecks Come to Light in the Great Lakes**\
+`With an underwater drone named Rhody, archaeologists are mapping some of the dozens of sunken vessels in Lake Ontario.`\
+https://nytimes.com/2025/05/23/science/archaeology-lake-ontario-shipwrecks.html
+
+**Container Ship Crashes Into Man’s Yard in Norway**\
+`Johan Helberg, a retired museum director in Norway, woke up to find the NCL Salten, a cargo ship, beached in his front yard.`\
+https://nytimes.com/video/world/europe/100000010187161/container-ship-crashes-into-mans-yard-in-norway.html
+
+**Why Brad Marchand’s teammates are shooting rats at him, injury updates, more Hurricanes-Panthers notes**\
+`Paul Maurice after witnessing the Marchand tradition firsthand Thursday: "They're shooting them as hard as they can … It is funny as hell."`\
+https://nytimes.com/athletic/6377966/2025/05/23/brad-marchand-rat-panthers-teammates/
+
 **The Little Giveaways Tucked Into the Big Republican Bill**\
 `In their fiscal package, Republicans have slipped in a hodgepodge of tweaks that are, at times, only tangentially related to the rest of the bill.`\
 https://nytimes.com/2025/05/23/us/politics/giveaways-republican-policy-bill.html
