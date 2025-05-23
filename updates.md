@@ -1,3 +1,7 @@
+**As Astros' rotation depth dwindles, Lance McCullers Jr.'s importance intensifies**\
+`Placing Ronel Blanco on the injured list Thursday means three-fifths of Houston's season-opening starting rotation is sidelined.`\
+https://nytimes.com/athletic/6376952/2025/05/23/astros-starting-pitching-lance-mccullers-injuries/
+
 **Ex-Nuggets coach Mike Malone says Nikola Jokić was his pick for MVP**\
 `Gilgeous-Alexander was announced as the NBA's MVP Wednesday.`\
 https://nytimes.com/athletic/6376936/2025/05/23/nuggets-coach-mike-malone-nikola-jokic-mvp-shai-gilgeous-alexander/
