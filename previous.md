@@ -1,3 +1,7 @@
+**'Yeah, that's a lot of points': Liberty rain down WNBA-record 19 3s on Sky**\
+`The defending champion Liberty shot 55.2 percent for the game in a 99-74 victory in the Sky's home opener.`\
+https://nytimes.com/athletic/6376941/2025/05/23/chicago-sky-new-york-liberty-wnba-record/
+
 **Judge Extends Order Blocking Trump’s Planned Mass Layoffs**\
 `The ruling, which covers 22 agencies and also prohibits shutting down programs or offices, effectively pauses the president’s plans for reshaping much of the government while the case plays out.`\
 https://nytimes.com/2025/05/23/us/politics/court-ruling-federal-layoffs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367160/2025/05/23/aston-villa-record-against-manch
 **Arsenal, three second places, and a time for self-assessment**\
 `The players need to work out for themselves how to get over the line, as the last Arsenal squad to finish second three times in a row did.`\
 https://nytimes.com/athletic/6375306/2025/05/23/arsenal-second-place-premier-league/
-
-**FPL: Every burning question answered ahead of Gameweek 38**\
-`From what to do with Alexander Isak to how best to chase rank, Abdul Rehman explains how to navigate the final gameweek of the FPL season`\
-https://nytimes.com/athletic/6372720/2025/05/23/fantasy-premier-league-gameweek-38-guide-isak-saliba/
 

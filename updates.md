@@ -1,3 +1,7 @@
+**'Yeah, that's a lot of points': Liberty rain down WNBA-record 19 3s on Sky**\
+`The defending champion Liberty shot 55.2 percent for the game in a 99-74 victory in the Sky's home opener.`\
+https://nytimes.com/athletic/6376941/2025/05/23/chicago-sky-new-york-liberty-wnba-record/
+
 **Judge Extends Order Blocking Trump’s Planned Mass Layoffs**\
 `The ruling, which covers 22 agencies and also prohibits shutting down programs or offices, effectively pauses the president’s plans for reshaping much of the government while the case plays out.`\
 https://nytimes.com/2025/05/23/us/politics/court-ruling-federal-layoffs-trump.html
