@@ -1,3 +1,19 @@
+**Ex-Nuggets coach Mike Malone says Nikola Jokić was his pick for MVP**\
+`Gilgeous-Alexander was announced as the NBA's MVP Wednesday.`\
+https://nytimes.com/athletic/6376936/2025/05/23/nuggets-coach-mike-malone-nikola-jokic-mvp-shai-gilgeous-alexander/
+
+**The New York Times in Print for Friday, May 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/23/todays-new-york-times
+
+**Trump Got What He Wanted From South Africa, and Damaged America**\
+`The president clearly planned to ambush Cyril Ramaphosa.`\
+https://nytimes.com/2025/05/23/opinion/trump-ramaphosa-meeting-south-africa.html
+
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/05/23/briefing/aides-israel-gaza-south-africa.html
+
 **United have had darker days but I’ve never felt so low about them**\
 `Next season will look remarkably different from all but one in the previous 34 for United: one without European football.`\
 https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-europa/

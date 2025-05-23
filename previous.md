@@ -1,3 +1,19 @@
+**Ex-Nuggets coach Mike Malone says Nikola Jokić was his pick for MVP**\
+`Gilgeous-Alexander was announced as the NBA's MVP Wednesday.`\
+https://nytimes.com/athletic/6376936/2025/05/23/nuggets-coach-mike-malone-nikola-jokic-mvp-shai-gilgeous-alexander/
+
+**The New York Times in Print for Friday, May 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/23/todays-new-york-times
+
+**Trump Got What He Wanted From South Africa, and Damaged America**\
+`The president clearly planned to ambush Cyril Ramaphosa.`\
+https://nytimes.com/2025/05/23/opinion/trump-ramaphosa-meeting-south-africa.html
+
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/05/23/briefing/aides-israel-gaza-south-africa.html
+
 **United have had darker days but I’ve never felt so low about them**\
 `Next season will look remarkably different from all but one in the previous 34 for United: one without European football.`\
 https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-europa/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6375950/2025/05/23/tottenham-europa-celebrations-pa
 **How Real Madrid won the race to sign Dean Huijsen - despite interest from Arsenal, Liverpool, Chelsea and more**\
 `Arsenal promised game time, Liverpool had the lure of Van Dijk and Newcastle were firmly in the mix — but here is how Madrid sealed the deal`\
 https://nytimes.com/athletic/6374725/2025/05/23/real-madrid-dean-huijsen-deal-arsenal-liverpool-chelsea-barcelona/
-
-**Sunderland: A club reformed, revived and one game from a Premier League return**\
-`The Wearsiders have worked towards self-sustainability and, under Regis Le Bris, have thrived with the youngest squad in the Championship`\
-https://nytimes.com/athletic/6372554/2025/05/23/sunderland-championship-dreyfus-playoff-bris/
-
-**Kevin, the creator: Analysing the four distinct eras of De Bruyne's time with Manchester City**\
-`Sam Lee celebrates the Belgian's decade of artistry and sheer destruction in a Manchester City shirt`\
-https://nytimes.com/athletic/6336609/2025/05/23/kevin-de-bruyne-man-city-career-analysis/
-
-**How Niko Kovac propelled Borussia Dortmund to the Champions League - and what happens next**\
-`Dortmund will go into another summer of significant change bolstered by the revenue guaranteed by participation in UEFA's elite competition`\
-https://nytimes.com/athletic/6374969/2025/05/23/borussia-dortmund-kovac-champions-league/
-
-**Gutierrez interview, 10 years on: Cancer, his Newcastle exit and being loved by Maradona**\
-`Saturday marks a decade since the midfielder scored his first goal after his cancer diagnosis, securing Newcastle's Premier League survival`\
-https://nytimes.com/athletic/6371934/2025/05/23/onas-gutierrez-interview-newcastle/
 
