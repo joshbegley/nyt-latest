@@ -1,3 +1,7 @@
+**The Nuno you do not see at Forest: Handpan player, diver, horse lover, 'maniac', worm dancer**\
+`Nuno is cautious and collected in front of the media. But what is the Nottingham Forest manager like behind the scenes?`\
+https://nytimes.com/athletic/6363660/2025/05/23/nuno-nottingham-forest-diver-worm-handpan/
+
 **'Yeah, that's a lot of points': Liberty rain down WNBA-record 19 3s on Sky**\
 `The defending champion Liberty shot 55.2 percent for the game in a 99-74 victory in the Sky's home opener.`\
 https://nytimes.com/athletic/6376941/2025/05/23/chicago-sky-new-york-liberty-wnba-record/

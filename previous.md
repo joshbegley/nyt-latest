@@ -1,3 +1,7 @@
+**The Nuno you do not see at Forest: Handpan player, diver, horse lover, 'maniac', worm dancer**\
+`Nuno is cautious and collected in front of the media. But what is the Nottingham Forest manager like behind the scenes?`\
+https://nytimes.com/athletic/6363660/2025/05/23/nuno-nottingham-forest-diver-worm-handpan/
+
 **'Yeah, that's a lot of points': Liberty rain down WNBA-record 19 3s on Sky**\
 `The defending champion Liberty shot 55.2 percent for the game in a 99-74 victory in the Sky's home opener.`\
 https://nytimes.com/athletic/6376941/2025/05/23/chicago-sky-new-york-liberty-wnba-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-eur
 **Aston Villa's record against Man United is terrible, even under Emery - he must fix it on Sunday**\
 `Villa's poor track record against Man Utd analysed. They must correct it`\
 https://nytimes.com/athletic/6367160/2025/05/23/aston-villa-record-against-manchester-united/
-
-**Arsenal, three second places, and a time for self-assessment**\
-`The players need to work out for themselves how to get over the line, as the last Arsenal squad to finish second three times in a row did.`\
-https://nytimes.com/athletic/6375306/2025/05/23/arsenal-second-place-premier-league/
 
