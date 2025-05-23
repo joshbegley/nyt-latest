@@ -1,3 +1,11 @@
+**Man Utd staff informed of 200 redundancies after Europa League final loss**\
+`Staff were informed by email they would be finding out their fate less than 48 hours after the Europa League final loss to Tottenham.`\
+https://nytimes.com/athletic/6377554/2025/05/23/manchester-united-redundancy-staff/
+
+**Belinda Bencic withdraws from French Open, scratching first-round match with Elena Rybakina**\
+`Bencic had been set to play one of the most interesting opening matches of the 2025 French Open.`\
+https://nytimes.com/athletic/6377650/2025/05/23/belinda-bencic-french-open-out-injury-rybakina/
+
 **William Byron, Hendrick Motorsports agree to contract extension through 2029**\
 `Byron, a rising star in the Cup Series, will stay with the only NASCAR organization he's known for another four seasons.`\
 https://nytimes.com/athletic/6377476/2025/05/23/william-byron-hendrick-motorsports-contract-extension/
