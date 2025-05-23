@@ -1,3 +1,7 @@
+**Shock at Harvard After Government Says International Students Must Go**\
+`Fear and confusion mounted quickly on Thursday as international students, who make up more than a quarter of the university’s enrollment, sought clarity or reassurance.`\
+https://nytimes.com/2025/05/22/us/shock-at-harvard-after-government-says-international-students-must-go.html
+
 **How Can the Government Stop Harvard From Enrolling International Students?**\
 `The Trump administration is relying on an obscure bureaucratic lever to stop the school, the latest in a series of aggressive moves.`\
 https://nytimes.com/2025/05/22/us/harvard-international-students-trump-sevis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5489947/2025/05/22/maple-leafs-brendan-shanahan-era
 **Millions Could Lose Food Stamp Benefits Under Republican Bill, Analysis Finds**\
 `Others could see their monthly benefits reduced if the bill were to become law, according to the nonpartisan Congressional Budget Office.`\
 https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
-
-**Gunman Fired Repeatedly at Young Couple Outside Jewish Museum, F.B.I. Says**\
-`The authorities said the shooter was motivated by opposition to the war in Gaza when he killed two young Israeli Embassy employees in Washington.`\
-https://nytimes.com/2025/05/22/us/dc-shooting-jewish-museum-israel-embassy.html
 
