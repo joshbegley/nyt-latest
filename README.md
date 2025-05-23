@@ -1,3 +1,7 @@
+**Toney set to be recalled to England squad for first time since Euro 2024**\
+`The former Brentford forward is set to be rewarded by Thomas Tuchel for an impressive first season for Saudi Pro League club Al Ahli.`\
+https://nytimes.com/athletic/6377069/2025/05/23/england-squad-ivan-toney-call-up/
+
 **In Attacks on Harvard, Chinese See Yet Another Reason to Write Off the U.S.**\
 `Beyond the shock for students, President Trump’s moves against higher education are being seen in China as a blow to one of the last admirable American institutions.`\
 https://nytimes.com/2025/05/23/world/asia/harvard-china-trump.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/05/23/crosswords/spelling-bee-forum.html
 **A Slob, a Witch, a Lifelong Friend: New Yorkers’ Best Roommate Stories**\
 `This time of year, the city becomes crowded with young people in search of roommates to share the rent. Nearly everyone ends up with at least one wild tale to tell.`\
 https://nytimes.com/2025/05/23/nyregion/new-york-city-roommate-tales.html
-
-**Final Premier League top-five picks: Forest, Chelsea doomed; City, Villa, Toons in Europe**\
-`Brett Koremenos outlines the latest top-five betting permutations ahead of the final Premier League weekend of the season.`\
-https://nytimes.com/athletic/6375119/2025/05/23/final-weekend-premier-league-top-five-betting-predictions/
 
