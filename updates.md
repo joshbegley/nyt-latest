@@ -1,3 +1,7 @@
+**Liverpool receive Wirtz boost with Bayern believing he won't join them**\
+`Wirtz has been targeted by both clubs but is believed to favour Liverpool — although they would still need to agree a deal with Leverkusen.`\
+https://nytimes.com/athletic/6367666/2025/05/23/liverpool-florian-wirtz-transfer-bayern-munich/
+
 **How Ivan Toney's form in Saudi Arabia led to his England recall: 'From February, he changed'**\
 `The story of the striker's season with Al Ahli - and why it convinced Thomas Tuchel`\
 https://nytimes.com/athletic/6377472/2025/05/23/ivan-toney-england-recall-saudi-arabia-al-ahli/
