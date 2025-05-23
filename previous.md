@@ -28,7 +28,7 @@ https://nytimes.com/2025/05/23/arts/television/two-miss-austens-asterix-and-obel
 
 **Harvard Sues Trump Administration Over Move to Bar International Students**\
 `Less than 24 hours earlier, the Trump administration had said it would block current and future international students from attending the university.`\
-https://nytimes.com/2025/05/23/us/harvard-university-trump-administration-alan-garber.html
+https://nytimes.com/2025/05/23/us/harvard-sues-trump-international-students-garber.html
 
 **Watch: The race for European football - and the benefit of not being involved**\
 `The Totally Football Show discusses why Nottingham Forest should not be disappointed should they miss out on a top-five spot.`\

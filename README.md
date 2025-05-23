@@ -1,3 +1,7 @@
+**Markets Drop on Trump’s Latest Tariff Threats**\
+`President Trump said he would impose steep tariffs on goods from the European Union and targeted Apple with a tax on foreign-made iPhones.`\
+https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple-stock-markets.html
+
 **Williams given suspended 14-month prison sentence for dangerous driving**\
 `The 24-year-old defender has been also been banned from driving for three years and ordered to do 180 hours of community service.`\
 https://nytimes.com/athletic/6377518/2025/05/23/brandon-williams-case-speeding-manchester-united/
@@ -33,9 +37,4 @@ https://nytimes.com/2025/05/23/us/harvard-sues-trump-international-students-garb
 **Watch: The race for European football - and the benefit of not being involved**\
 `The Totally Football Show discusses why Nottingham Forest should not be disappointed should they miss out on a top-five spot.`\
 https://nytimes.com/athletic/6375476/2025/05/23/totally-football-show-nottingham-forest-champions-league/
-
-**Listen: Why Europa League success secures Son Heung-min's legacy**\
-`The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
-`\
-https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
 
