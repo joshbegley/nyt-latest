@@ -1,3 +1,7 @@
+**Gloves Lincoln Wore to Ford’s Theater Sell for $1.5 Million at Auction**\
+`More than 100 relics connected to President Abraham Lincoln brought in $7.9 million, auctioneers said. The proceeds will help a presidential foundation repay a loan.`\
+https://nytimes.com/2025/05/23/us/abraham-lincoln-stained-gloves-auction.html
+
 **National Security Council Will Be Cut by Half**\
 `The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
 https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html

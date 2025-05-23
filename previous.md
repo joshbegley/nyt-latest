@@ -1,3 +1,7 @@
+**Gloves Lincoln Wore to Ford’s Theater Sell for $1.5 Million at Auction**\
+`More than 100 relics connected to President Abraham Lincoln brought in $7.9 million, auctioneers said. The proceeds will help a presidential foundation repay a loan.`\
+https://nytimes.com/2025/05/23/us/abraham-lincoln-stained-gloves-auction.html
+
 **National Security Council Will Be Cut by Half**\
 `The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
 https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6378637/2025/05/23/dodgers-shohei-ohtani-pitching-f
 **What to Know About Trump Officials’ Latest Move Against Columbia**\
 `The federal government formally accused the university of violating civil rights law by failing to protect Jewish students.`\
 https://nytimes.com/2025/05/23/nyregion/columbia-trump-jewish-students.html
-
-**Trump’s Order Targeting Jenner & Block Was Unconstitutional, Judge Rules**\
-`The decision was nearly identical to another involving the law firm Perkins Coie. Judges in both cases found the orders coercive.`\
-https://nytimes.com/2025/05/23/us/politics/trump-jenner-block-law-firm.html
 
