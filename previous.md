@@ -1,3 +1,11 @@
+**The Little Giveaways Tucked Into the Big Republican Bill**\
+`In their fiscal package, Republicans have slipped in a hodgepodge of tweaks that are, at times, only tangentially related to the rest of the bill.`\
+https://nytimes.com/2025/05/23/us/politics/giveaways-republican-policy-bill.html
+
+**Record Number of Americans Apply for British Citizenship**\
+`New data from the U.K. government showed applications surged in the first three months of this year, which some analysts attributed to the political climate in the United States.`\
+https://nytimes.com/2025/05/23/world/europe/americans-british-citizenship-applications-record.html
+
 **Bloomberg Will Have to Pay Up for a Broken Promise to His 2020 Staff**\
 `When Michael Bloomberg ran for president in 2020, his employees were told they would be paid through November. They were not, several sued, and one just won his demand for the back pay.`\
 https://nytimes.com/2025/05/23/us/politics/bloomberg-2020-staff-pay-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/05/23/smarter-living/wirecutter/the-best-gifts-for
 **Is Trump’s ‘Made in America’ iPhone a Fantasy?**\
 `Apple has resisted pressure to make its most important product in the United States since 2016, and instead has moved some production to India.`\
 https://nytimes.com/2025/05/23/technology/apple-iphone-trump-india-china.html
-
-**Billy Joel Announces Brain Disorder and Cancels All Concerts**\
-`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
-https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
-
-**After White House Row, South Africa Sets the Stage for Starlink Approval**\
-`A proposed regulatory change would allow Elon Musk’s satellite company and others like it to get a license without having to sell shares to Black South Africans.`\
-https://nytimes.com/2025/05/23/world/africa/south-africa-elon-musk-trump-starlink-white-house.html
 

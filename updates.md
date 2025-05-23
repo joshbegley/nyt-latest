@@ -1,3 +1,11 @@
+**The Little Giveaways Tucked Into the Big Republican Bill**\
+`In their fiscal package, Republicans have slipped in a hodgepodge of tweaks that are, at times, only tangentially related to the rest of the bill.`\
+https://nytimes.com/2025/05/23/us/politics/giveaways-republican-policy-bill.html
+
+**Record Number of Americans Apply for British Citizenship**\
+`New data from the U.K. government showed applications surged in the first three months of this year, which some analysts attributed to the political climate in the United States.`\
+https://nytimes.com/2025/05/23/world/europe/americans-british-citizenship-applications-record.html
+
 **Bloomberg Will Have to Pay Up for a Broken Promise to His 2020 Staff**\
 `When Michael Bloomberg ran for president in 2020, his employees were told they would be paid through November. They were not, several sued, and one just won his demand for the back pay.`\
 https://nytimes.com/2025/05/23/us/politics/bloomberg-2020-staff-pay-lawsuit.html
