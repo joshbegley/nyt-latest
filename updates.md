@@ -1,3 +1,7 @@
+**Bayern win $2.5M at inaugural World Sevens Football tournament**\
+`Runners-up Manchester United win $1M for their efforts in the inaugural tournament `\
+https://nytimes.com/athletic/6378380/2025/05/23/bayern-munich-world-sevens-football-final/
+
 **A California Wildlife Center’s Attempt to Keep ‘Baby Bear’ Wild**\
 `The human caretakers of the 3-month-old American black bear cub wear fur coats and camouflage Ghillie masks to prevent him from becoming reliant on humans.`\
 https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html

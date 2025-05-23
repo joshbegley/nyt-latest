@@ -10,8 +10,8 @@ https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
 `Brendan Shanahan won't be replaced as president — at least for now. How the Leafs will run, according to MLSE CEO Keith Pelley.`\
 https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
 
-**Bayern Munich win $2.5M at inaugural World Sevens Football tournament**\
-`Bayern wins the inaugural tournament, walking away with $2.5 million`\
+**Bayern win $2.5M at inaugural World Sevens Football tournament**\
+`Runners-up Manchester United win $1M for their efforts in the inaugural tournament `\
 https://nytimes.com/athletic/6378380/2025/05/23/bayern-munich-world-sevens-football-final/
 
 **The Windup: What it would take to trade Paul Skenes**\
