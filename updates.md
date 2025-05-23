@@ -1,3 +1,7 @@
+**Shock at Harvard After Government Says International Students Must Go**\
+`Fear and confusion mounted quickly on Thursday as international students, who make up more than a quarter of the university’s enrollment, sought clarity or reassurance.`\
+https://nytimes.com/2025/05/22/us/harvard-international-students-trump.html
+
 **Panthers star Sam Reinhart leaves Game 2 after Sebastian Aho hit, won't return**\
 `Reinhart, who scored 39 goals and 81 points this season, was injured on a Sebastian Aho hip check in the first period Thursday.`\
 https://nytimes.com/athletic/6376701/2025/05/22/panthers-sam-reinhart-injured-nhl-playoffs/
