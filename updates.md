@@ -1,7 +1,3 @@
-**Braves expected to activate Ronald Acuña Jr. on Friday**\
-`Acuña was scratched from the lineup for Triple-A Gwinnett's game on Thursday. He played his first full rehab game on Wednesday.`\
-https://nytimes.com/athletic/6376556/2025/05/22/braves-ronald-acuna-return/
-
 **An Officer Said She Was Disabled. Prosecutors Said She Ran, Skied and Danced.**\
 `Prosecutors said that Nicole Brown, 39, of the Westminster Police Department in California, falsely said that she wasn’t able to work, receiving her salary and benefits while engaging in strenuous activities.`\
 https://nytimes.com/2025/05/22/us/officer-partying-fake-injury.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6376330/2025/05/22/premier-league-uk-government-fin
 **If This Movie Wins the Palme d’Or, It Will Extend a Staggering Streak**\
 `The distributor Neon has been on a run at the Cannes Film Festival, and it has three movies, including “Sentimental Value,” considered front-runners.`\
 https://nytimes.com/2025/05/22/movies/cannes-neon-sentimental-value-elle-fanning.html
+
+**The 2025 Blue Jays need good stories. Nathan Lukes is providing one**\
+`Breakout players such as Lukes can lift a baseball team from middling to October.`\
+https://nytimes.com/athletic/6376363/2025/05/22/blue-jays-nathan-lukes-walk-off/
 
