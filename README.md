@@ -1,3 +1,11 @@
+**A California Wildlife Center’s Attempt to Keep ‘Baby Bear’ Wild**\
+`The human caretakers of the 3-month-old American black bear cub wear fur coats and camouflage Ghillie masks to prevent him from becoming reliant on humans.`\
+https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
+
+**Byford, Once New York’s ‘Train Daddy,’ to Lead Penn Station Overhaul**\
+`If approved for the job by the Amtrak board, Andy Byford will take the helm of one of the most high-profile, complex and expensive construction projects in the country.`\
+https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
+
 **MLSE boss Keith Pelley discusses Maple Leafs' future: What we learned**\
 `Brendan Shanahan won't be replaced as president — at least for now. How the Leafs will run, according to MLSE CEO Keith Pelley.`\
 https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/world/europe/hamburg-germany-knife-attack.html
 **How the NASCAR sponsorship model is changing: 'A massive shift' in Amazon era**\
 `Gone are the days of season-long sponsorships. But a new TV deal and international expansion have team execs seeing increased interest.`\
 https://nytimes.com/athletic/6377324/2025/05/23/nascar-sponsorship-model-shift-amazon/
-
-**Liverpool open Wirtz transfer talks with Leverkusen**\
-`Communications between the clubs had already been opened after an agreement was reached for Liverpool to sign Jeremie Frimpong.`\
-https://nytimes.com/athletic/6378005/2025/05/23/florian-wirtz-liverpool-transfer/
-
-**Aryna Sabalenka Wants to Win the French Open for the First Time. Iga Swiatek Still Stands in Her Way.**\
-`Sabalenka has had success on clay, but Swiatek can be dominant.`\
-https://nytimes.com/2025/05/23/sports/tennis/aryna-sabalenka-french-open.html
 

@@ -1,3 +1,19 @@
+**MLSE boss Keith Pelley discusses Maple Leafs' future: What we learned**\
+`Brendan Shanahan won't be replaced as president — at least for now. How the Leafs will run, according to MLSE CEO Keith Pelley.`\
+https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
+
+**Bayern Munich win $2.5M at inaugural World Sevens Football tournament**\
+`Bayern wins the inaugural tournament, walking away with $2.5 million`\
+https://nytimes.com/athletic/6378380/2025/05/23/bayern-munich-world-sevens-football-final/
+
+**The Windup: What it would take to trade Paul Skenes**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6377037/2025/05/23/paul-skenes-trade-pirates-the-windup/
+
+**‘Commander Butcher’ Who Led Neo-Nazi Group Faces Charges in Brooklyn**\
+`Michail Chkhikvishvili, arrested in Moldova, had plotted to have someone dressed as Santa Claus hand out poisoned candy in New York, prosecutors say.`\
+https://nytimes.com/2025/05/23/nyregion/chkhikvishvili-maniac-murder-cult-brooklyn-court.html
+
 **Boeing Reaches Deal With U.S. to Avoid Guilty Plea Over 737 Max Crashes**\
 `The deal between the plane maker and the Justice Department, which was opposed by the families of those who died in the crashes, includes paying millions into a victims’ fund.`\
 https://nytimes.com/2025/05/23/business/boeing-doj-737-max-crashes.html
