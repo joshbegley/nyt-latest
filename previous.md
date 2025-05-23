@@ -1,3 +1,15 @@
+**Who Won a Seat at Trump’s Crypto Dinner?**\
+`The New York Times reviewed a guest list and social media posts to identify who was invited to President Trump’s private event for customers of his cryptocurrency business on Thursday and a White House tour on Friday. Here are some of them.`\
+https://nytimes.com/2025/05/23/us/politics/trump-crypto-dinner-attendees.html
+
+**Emery optimistic on Tielemans for Man Utd trip**\
+`The Villa manager also refused to confirm or deny whether goalkeeper Emi Martinez has asked to leave.`\
+https://nytimes.com/athletic/6377751/2025/05/23/aston-villa-tielemans-martinez-emery/
+
+**England to use Spain trip to begin preparations for World Cup heat**\
+`England will face difficult conditions of heat and humidity at the World Cup in USA, Canada and Mexico next summer.`\
+https://nytimes.com/athletic/6377722/2025/05/23/england-world-cup-2026-heat/
+
 **A Judge Halted Trump’s Move to Bar International Students at Harvard**\
 `Also, Russia and Ukraine began their largest prisoner exchange of the war. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/23/briefing/trump-harvard-lawsuit-great-lakes-shipwrecks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6349268/2025/05/23/napoli-serie-a-title-mctominay-l
 **Karol G’s Ode to Curves, Plus 7 More New Songs**\
 `Hear tracks by Alejandro Sanz and Shakira, St. Vincent, Stereolab and others.`\
 https://nytimes.com/2025/05/23/arts/music/playlist-karol-g-shakira-alejandro-sanz.html
-
-**Flashback: Your Weekly History Quiz, May 24, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/05/23/upshot/flashback.html
-
-**‘Baby Bear’ Learns How to Be Wild From Humans in Fur**\
-`At a wildlife center in San Diego, caretakers of a black bear cub are using extraordinary measures to keep him from becoming reliant on humans, including donning masks and vintage fur coats.`\
-https://nytimes.com/2025/05/23/us/bear-cub-wildlife-california.html
-
-**Messi, Suarez led Inter Miami players-only meeting after Orlando loss**\
-`The embarrassing loss to a state rival Miami was the team’s fifth defeat in seven games.`\
-https://nytimes.com/athletic/6378516/2025/05/23/messi-suarez-inter-miami-meeting/
 

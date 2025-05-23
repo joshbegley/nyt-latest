@@ -1,3 +1,15 @@
+**Who Won a Seat at Trump’s Crypto Dinner?**\
+`The New York Times reviewed a guest list and social media posts to identify who was invited to President Trump’s private event for customers of his cryptocurrency business on Thursday and a White House tour on Friday. Here are some of them.`\
+https://nytimes.com/2025/05/23/us/politics/trump-crypto-dinner-attendees.html
+
+**Emery optimistic on Tielemans for Man Utd trip**\
+`The Villa manager also refused to confirm or deny whether goalkeeper Emi Martinez has asked to leave.`\
+https://nytimes.com/athletic/6377751/2025/05/23/aston-villa-tielemans-martinez-emery/
+
+**England to use Spain trip to begin preparations for World Cup heat**\
+`England will face difficult conditions of heat and humidity at the World Cup in USA, Canada and Mexico next summer.`\
+https://nytimes.com/athletic/6377722/2025/05/23/england-world-cup-2026-heat/
+
 **A Judge Halted Trump’s Move to Bar International Students at Harvard**\
 `Also, Russia and Ukraine began their largest prisoner exchange of the war. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/23/briefing/trump-harvard-lawsuit-great-lakes-shipwrecks.html
