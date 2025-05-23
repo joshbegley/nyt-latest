@@ -1,3 +1,11 @@
+**United have had darker days but I’ve never felt so low about them**\
+`Next season will look remarkably different from all but one in the previous 34 for United: one without European football.`\
+https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-europa/
+
+**Aston Villa's record against Man United is terrible, even under Emery - he must fix it on Sunday**\
+`Villa's poor track record against Man Utd analysed. They must correct it`\
+https://nytimes.com/athletic/6367160/2025/05/23/aston-villa-record-against-manchester-united/
+
 **Arsenal, three second places, and a time for self-assessment**\
 `The players need to work out for themselves how to get over the line, as the last Arsenal squad to finish second three times in a row did.`\
 https://nytimes.com/athletic/6375306/2025/05/23/arsenal-second-place-premier-league/
