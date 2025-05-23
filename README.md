@@ -1,3 +1,11 @@
+**Brush Fire Near Popular California Lake Prompts Evacuations**\
+`The Inn fire had grown to over 700 acres to the northwest of Mono Lake, near the Nevada border. It’s one of several brush fires that have erupted in California in the last week as the weather has gotten warmer.`\
+https://nytimes.com/2025/05/23/us/brush-fire-mono-lake-california.html
+
+**Shohei Ohtani to face hitters for first time since 2023 elbow surgery**\
+`Ohtani will take an important step in his mission to return to the mound at Citi Field on Saturday.`\
+https://nytimes.com/athletic/6378637/2025/05/23/dodgers-shohei-ohtani-pitching-facing-hitters/
+
 **What to Know About Trump Officials’ Latest Move Against Columbia**\
 `The federal government formally accused the university of violating civil rights law by failing to protect Jewish students.`\
 https://nytimes.com/2025/05/23/nyregion/columbia-trump-jewish-students.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/athletic/tnt/roland-garros-tournament.html
 **Infantino says 'there are discussions' for Ronaldo to play in CWC**\
 `Ronaldo has been in negotiations to extend his contract with Al Nassr and there are no plans for a loan transfer.`\
 https://nytimes.com/athletic/6378611/2025/05/23/cristiano-ronaldo-club-world-cup/
-
-**Supreme Court, for Now, Shields DOGE from Turning Over Records**\
-`The chief justice put a temporary hold on a lower court ruling that Elon Musk’s government efficiency team and the Office of Management and Budget turn over internal records.`\
-https://nytimes.com/2025/05/23/us/politics/supreme-court-doge-records.html
-
-**The 5.25.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/05/23/the-52525-issue
 
