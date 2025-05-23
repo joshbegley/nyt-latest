@@ -1,40 +1,40 @@
-**Slot 'wasn't completely happy' with Alexander-Arnold training at start of season**\
-`"In my opinion in certain moments he could do a bit more to say it mildly," Slot said of the departing Liverpool right-back.`\
-https://nytimes.com/athletic/6377189/2025/05/23/alexander-arnold-training-slot-liverpool/
+**Presenting the Braves' All-Quarter Century Team, the best in Atlanta since 2000**\
+`Chipper Jones and The Big Three are among the Braves who bring Cooperstown credentials to this star-studded squad.`\
+https://nytimes.com/athletic/6376024/2025/05/23/atlanta-braves-quarter-century-team/
 
-**Telegraph Takeover Drama Ends With Deal to Sell U.K. Newspaper to Private Equity**\
-`After years in limbo, the British newspaper is set to be bought by RedBird Capital, an American investment firm with many sports, media and entertainment holdings.`\
-https://nytimes.com/2025/05/23/business/daily-telegraph-uk-sale-redbird-capital.html
+**'This is part of my legacy now': Dion Dawkins makes legends proud with Protector Award**\
+`Dion Dawkins felt strongly that offensive lineman deserved to be recognized.`\
+https://nytimes.com/athletic/6376834/2025/05/23/nfl-offensive-lineman-protector-award-dion-dawkins/
 
-**Biggest Bills questions heading into OTAs: James Cook, Dalton Kincaid, Keon Coleman and more**\
-`Plus, what to do with all of the defensive ends.`\
-https://nytimes.com/athletic/6376162/2025/05/23/bills-otas-james-cook-dalton-kincaid-keon-coleman/
+**Guardians' black hole in right field, and who could maybe, finally, fix it**\
+`Right field has long been a land of platoon bats, repositioned infielders and patchwork free-agent signings for Cleveland.`\
+https://nytimes.com/athletic/6369785/2025/05/23/guardians-black-hole-right-field/
 
-**Lions ahead of OTAs: Aidan Hutchinson cleared, Sam LaPorta and DJ Reader focus on team goals**\
-`Aidan Hutchinson hadn't been heard from for a long time since his injury.`\
-https://nytimes.com/athletic/6376338/2025/05/23/lions-aidan-hutchinson-sam-laporta-dj-reader/
+**Jim Irsay said the NFL would keep rolling after he died, so what's next for Colts?**\
+`Carlie Irsay-Gordon, Casey Foyt and Kalen Jackson are expected to take control of the franchise as co-owners.`\
+https://nytimes.com/athletic/6374751/2025/05/23/jim-irsay-colts-owner-died-nfl-future/
 
-**The New York Times International Edition in Print for Saturday, May 24, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/23/todays-new-york-times-international-edition
+**The 10 key moments that defined the Maple Leafs' Shanaplan era**\
+`Shanahan leaves in his wake a number of memorable moments and key decisions that still impact the team on and off the ice.`\
+https://nytimes.com/athletic/6376451/2025/05/23/maple-leafs-brendan-shanahan-era/
 
-**Maresca fears Chelsea squad may struggle with fatigue due to summer schedule**\
-`The Conference League final, Club World Cup and international commitments have Maresca fearing for his players' fitness over the summer.`\
-https://nytimes.com/athletic/6377125/2025/05/23/chelsea-summer-schedule-maresca/
+**Josef Newgarden, in face of controversy, doubles down on Indy 500 history hopes**\
+`Josef Newgarden thinks he still can win a third straight Indy 500, even after this week's penalty. "I just see a bigger mountain," he says.`\
+https://nytimes.com/athletic/6375387/2025/05/23/josef-newgarden-indy-500-penske-controversy-history/
 
-**Jimmy Kimmel Digests Trump’s Crypto Dinner**\
-`“Listen, he’s only corrupt in his free time, guys,” Kimmel said of the president. “When he’s in the Oval Office, he’s by the book. This is all completely on the up and up.”`\
-https://nytimes.com/2025/05/23/arts/television/jimmy-kimmel-trump-crypto-dinner.html
+**Cubs are instilling a winning mentality in Pete Crow-Armstrong **\
+`This Cubs team is connected, with players eager to exchange information and stay in tune with the game's rhythms.`\
+https://nytimes.com/athletic/6376456/2025/05/23/cubs-pete-crow-armstrong-winning-mentality/
 
-**Real Madrid confirm Ancelotti exit after Brazil appointment**\
-`Ancelotti's final game in charge will be against Real Sociedad at the Bernabeu on Sunday.`\
-https://nytimes.com/athletic/6317289/2025/05/23/carlo-ancelotti-real-madrid-exit/
+**Who's the best college football program of the 2000s? Ranking the top 25**\
+`Which college football programs have been the best over the past 25 years? Ohio State and Alabama provide a tough debate at the top.`\
+https://nytimes.com/athletic/6375442/2025/05/23/college-football-best-program-rankings-2000s/
 
-**How crosswords became a vital part of Arsenal's pre-match preparations**\
-`Arsenal face Barcelona in the Women's Champions League final and Daphne van Domselaar hasn't forgotten to pack her crossword puzzles`\
-https://nytimes.com/athletic/6374632/2025/05/23/daphne-van-domselaar-arsenal-barcelona-womens-champions-league-final/
+**Sam Bennett-led top line shreds Hurricanes in Panthers' dominant Game 2 win**\
+`“It's fun when you're on the road and it goes quiet and feels like we're doing our job,” Carter Verhaeghe said after the 5-0 victory.`\
+https://nytimes.com/athletic/6376977/2025/05/23/bennett-tkachuk-verhaeghe-panthers-nhl-playoffs-hurricanes/
 
-**Trump’s Big Budget Bomb**\
-`We are all in the blast radius of Trump’s tax-cut bill, which Catherine Rampell calls ‘transfer of wealth from the poor to the rich, from the young to the old and from the future to the past.’`\
-https://nytimes.com/2025/05/23/opinion/ezra-klein-podcast-catherine-rampell.html
+**Why the middle is fine and optimism is optional: Raptors mailbag**\
+`No, the salary cap is not too low; the Raptors' rebuild has been an outlier. `\
+https://nytimes.com/athletic/6373442/2025/05/23/raptors-mailbag-scottie-barnes-rj-barrett/
 

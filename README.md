@@ -1,3 +1,7 @@
+**Julius Randle's first playoff clunker comes at worst possible time for humbled Wolves**\
+`Randle had been a major driver of Minnesota's push to the West finals. His struggles in Game 2 are one reason the Wolves are in trouble.`\
+https://nytimes.com/athletic/6376625/2025/05/23/julius-randle-timberwolves-west-finals-thunder/
+
 **Presenting the Braves' All-Quarter Century Team, the best in Atlanta since 2000**\
 `Chipper Jones and The Big Three are among the Braves who bring Cooperstown credentials to this star-studded squad.`\
 https://nytimes.com/athletic/6376024/2025/05/23/atlanta-braves-quarter-century-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375442/2025/05/23/college-football-best-program-ra
 **Sam Bennett-led top line shreds Hurricanes in Panthers' dominant Game 2 win**\
 `“It's fun when you're on the road and it goes quiet and feels like we're doing our job,” Carter Verhaeghe said after the 5-0 victory.`\
 https://nytimes.com/athletic/6376977/2025/05/23/bennett-tkachuk-verhaeghe-panthers-nhl-playoffs-hurricanes/
-
-**Why the middle is fine and optimism is optional: Raptors mailbag**\
-`No, the salary cap is not too low; the Raptors' rebuild has been an outlier. `\
-https://nytimes.com/athletic/6373442/2025/05/23/raptors-mailbag-scottie-barnes-rj-barrett/
 
