@@ -1,3 +1,11 @@
+**One Type of Mammogram Proves Better for Women With Dense Breasts**\
+`Contrast-enhanced mammography identified tumors as accurately as more expensive scans. But it is not widely used for screening in the United States.`\
+https://nytimes.com/2025/05/23/health/dense-breasts-cancer-mammograms.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s evils lurk around a bend in the road, behind a locked door and on the prom dance floor.`\
+https://nytimes.com/2025/05/23/movies/five-horror-movies-to-stream-now.html
+
 **Review: Dudamel Unveils a Love Letter to the Philharmonic**\
 `Kate Soper’s tender, whimsical “Orpheus Orchestra Opus Onus,” a tribute to the orchestra, had its premiere on Thursday with its composer as soloist.`\
 https://nytimes.com/2025/05/23/arts/music/gustavo-dudamel-kate-soper-new-york-philharmonic.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6377497/2025/05/23/shai-gilgeous-alexander-thunder-
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
-
-**Glasner: 'I'm 100 per cent committed' to Crystal Palace**\
-`Glasner's contract runs until June 2026, and he has led Palace to their highest Premier League points total and first major trophy.`\
-https://nytimes.com/athletic/6377740/2025/05/23/oliver-glasner-crystal-palace-future-contract/
-
-**Thunder were 'sharpened' by Nuggets series. Against Wolves, they have look of inevitability**\
-`"Our resolve in that series is what got sharpened," coach Mark Daigneault said, adding, "Now we have a different challenge."`\
-https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-playoffs-wolves/
 

@@ -1,3 +1,11 @@
+**One Type of Mammogram Proves Better for Women With Dense Breasts**\
+`Contrast-enhanced mammography identified tumors as accurately as more expensive scans. But it is not widely used for screening in the United States.`\
+https://nytimes.com/2025/05/23/health/dense-breasts-cancer-mammograms.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s evils lurk around a bend in the road, behind a locked door and on the prom dance floor.`\
+https://nytimes.com/2025/05/23/movies/five-horror-movies-to-stream-now.html
+
 **Review: Dudamel Unveils a Love Letter to the Philharmonic**\
 `Kate Soper’s tender, whimsical “Orpheus Orchestra Opus Onus,” a tribute to the orchestra, had its premiere on Thursday with its composer as soloist.`\
 https://nytimes.com/2025/05/23/arts/music/gustavo-dudamel-kate-soper-new-york-philharmonic.html
