@@ -1,3 +1,7 @@
+**Eric Trump Starts Nonprofit to Build His Father’s Presidential Library**\
+`Meta and ABC News have already pledged a combined $37 million in funding for the library to settle lawsuits President Trump filed against them before taking office.`\
+https://nytimes.com/2025/05/23/us/elections/eric-trump-presidential-library-foundation.html
+
 **Brush Fire Near Popular California Lake Prompts Evacuations**\
 `The Inn fire had grown to over 700 acres to the northwest of Mono Lake, near the Nevada border. It’s one of several brush fires that have erupted in California in the last week as the weather has gotten warmer.`\
 https://nytimes.com/2025/05/23/us/brush-fire-mono-lake-california.html
