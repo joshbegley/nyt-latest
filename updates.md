@@ -1,3 +1,7 @@
+**Judge Extends Order Blocking Trump’s Planned Mass Layoffs**\
+`The ruling, which covers 22 agencies and also prohibits shutting down programs or offices, effectively pauses the president’s plans for reshaping much of the government while the case plays out.`\
+https://nytimes.com/2025/05/23/us/politics/court-ruling-federal-layoffs-trump.html
+
 **As Astros' rotation depth dwindles, Lance McCullers Jr.'s importance intensifies**\
 `Placing Ronel Blanco on the injured list Thursday means three-fifths of Houston's season-opening starting rotation is sidelined.`\
 https://nytimes.com/athletic/6376952/2025/05/23/astros-starting-pitching-lance-mccullers-injuries/
