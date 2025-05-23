@@ -1,3 +1,15 @@
+**William Byron, Hendrick Motorsports agree to contract extension through 2029**\
+`Byron, a rising star in the Cup Series, will stay with the only NASCAR organization he's known for another four seasons.`\
+https://nytimes.com/athletic/6377476/2025/05/23/william-byron-hendrick-motorsports-contract-extension/
+
+**Wharton, Nwaneri, Elliott in England Under-21 squad for Euros**\
+`England men's manager Thomas Tuchel said Wharton's exclusion from the senior side was to allow him to be a leading figure for the Under-21s.`\
+https://nytimes.com/athletic/6377532/2025/05/23/england-under-21-squad-wharton-nwaneri-elliott/
+
+**How to watch the Dodgers at Mets series, an NLCS rematch starring Ohtani and Alonso**\
+`We're getting a top-shelf series with three national broadcasts. The Dodgers' big bats visit the Mets and their league-best ERA.`\
+https://nytimes.com/athletic/6376254/2025/05/23/dodgers-mets-la-ny-ohtani-betts-alonso-lindor-how-to-watch/
+
 **Markets Drop on Trump’s Latest Tariff Threats**\
 `President Trump said he would impose steep tariffs on goods from the European Union and targeted Apple with a tax on foreign-made iPhones.`\
 https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple-stock-markets.html
