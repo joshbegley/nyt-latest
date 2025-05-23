@@ -1,3 +1,7 @@
+**Kermit the Frog Addresses University of Maryland Students**\
+`Kermit took the podium in a muppet-size formal cap and gown on Thursday to deliver a commencement speech at the University of Maryland, the alma mater of his creator, Jim Henson.`\
+https://nytimes.com/video/us/100000010186849/kermit-the-frog-commencement-address.html
+
 **The Best Movies of 2025, So Far**\
 `Our critics picked 10 films that you might have missed but that are worth your time on this long holiday weekend.`\
 https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html

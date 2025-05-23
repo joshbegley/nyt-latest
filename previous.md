@@ -6,7 +6,7 @@ https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
 `The cheery muppet donned a tiny cap and gown to inspire students at the University of Maryland. “Life is like a movie. Write your own ending,” he said.`\
 https://nytimes.com/2025/05/23/us/kermit-the-frog-commencement-speech-university-maryland.html
 
-**Kermit the Frog Delivers Commencement Address**\
+**Kermit the Frog Addresses University of Maryland Students**\
 `Kermit took the podium in a muppet-size formal cap and gown on Thursday to deliver a commencement speech at the University of Maryland, the alma mater of his creator, Jim Henson.`\
 https://nytimes.com/video/us/100000010186849/kermit-the-frog-commencement-address.html
 
