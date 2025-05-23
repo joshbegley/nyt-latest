@@ -1,3 +1,11 @@
+**Byford, Once New York’s ‘Train Daddy,’ Picked to Run Penn Station Overhaul**\
+`If approved for the job by the Amtrak board, Andy Byford will take the helm of one of the most high-profile, complex and expensive construction projects in the country.`\
+https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
+
+**MLSE boss Keith Pelley discusses Maple Leafs' future: What we learned**\
+`Brendan Shanahan won't be replaced as president — at least for now.`\
+https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
+
 **Bayern win $2.5M at inaugural World Sevens Football tournament**\
 `Runners-up Manchester United win $1M for their efforts in the inaugural tournament `\
 https://nytimes.com/athletic/6378380/2025/05/23/bayern-munich-world-sevens-football-final/

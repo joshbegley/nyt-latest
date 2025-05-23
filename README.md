@@ -1,5 +1,21 @@
+**Flashback: Your Weekly History Quiz, May 24, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/23/upshot/flashback.html
+
+**‘Baby Bear’ Learns How to Be Wild From Humans in Fur**\
+`At a wildlife center in San Diego, caretakers of a black bear cub are using extraordinary measures to keep him from becoming reliant on humans, including donning masks and vintage fur coats.`\
+https://nytimes.com/2025/05/23/us/bear-cub-wildlife-california.html
+
+**Messi, Suarez led Inter Miami players-only meeting after Orlando loss**\
+`The embarrassing loss to a state rival Miami was the team’s fifth defeat in seven games.`\
+https://nytimes.com/athletic/6378516/2025/05/23/messi-suarez-inter-miami-meeting/
+
+**Florida Republicans Break With Trump Over Venezuelan Deportations**\
+`Three G.O.P. members of Congress whose families fled Cuba are objecting to the Trump administration’s move to strip hundreds of thousands of Venezuelans of deportation protections.`\
+https://nytimes.com/2025/05/23/us/florida-republicans-venezuelan-deportations.html
+
 **A California Wildlife Center’s Attempt to Keep ‘Baby Bear’ Wild**\
-`The human caretakers of the 3-month-old American black bear cub wear fur coats and camouflage Ghillie masks to prevent him from becoming reliant on humans.`\
+`The human caretakers of a black bear cub known as Baby Bear wear fur coats and camouflage masks to keep him from becoming too reliant on humans.`\
 https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
 
 **Byford, Once New York’s ‘Train Daddy,’ Picked to Run Penn Station Overhaul**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6377037/2025/05/23/paul-skenes-trade-pirates-the-wi
 **‘Commander Butcher’ Who Led Neo-Nazi Group Faces Charges in Brooklyn**\
 `Michail Chkhikvishvili, arrested in Moldova, had plotted to have someone dressed as Santa Claus hand out poisoned candy in New York, prosecutors say.`\
 https://nytimes.com/2025/05/23/nyregion/chkhikvishvili-maniac-murder-cult-brooklyn-court.html
-
-**Boeing Reaches Deal With U.S. to Avoid Guilty Plea Over 737 Max Crashes**\
-`The deal between the plane maker and the Justice Department, which was opposed by the families of those who died in the crashes, includes paying millions into a victims’ fund.`\
-https://nytimes.com/2025/05/23/business/boeing-doj-737-max-crashes.html
-
-**Trump Orders Faster Build-Out of Nuclear Power Plants**\
-`Among a flurry of executive actions, Mr. Trump directed the nation’s nuclear safety regulator to speed up approvals for new reactors.`\
-https://nytimes.com/2025/05/23/climate/trump-executive-order-nuclear-power.html
-
-**Knife Attack at Train Station in Hamburg, Germany, Wounds at Least 17**\
-`Four of the victims are in critical condition. The police say they believe a 39-year-old woman carried out the attack, for which no motive has yet been given.`\
-https://nytimes.com/2025/05/23/world/europe/hamburg-germany-knife-attack.html
-
-**How the NASCAR sponsorship model is changing: 'A massive shift' in Amazon era**\
-`Gone are the days of season-long sponsorships. But a new TV deal and international expansion have team execs seeing increased interest.`\
-https://nytimes.com/athletic/6377324/2025/05/23/nascar-sponsorship-model-shift-amazon/
 
