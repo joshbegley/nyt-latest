@@ -1,3 +1,11 @@
+**Judges Keep Calling Trump’s Actions Illegal, but Undoing Them Is Hard**\
+`Courts are serving as a rare check on President Trump, but judicial orders to unwind his actions can be easier said than done.`\
+https://nytimes.com/2025/05/23/us/politics/trump-administration-courts-judges-law.html
+
+**Billy Joel Announces Brain Disorder and Cancels All Concerts**\
+`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision, and balance.”`\
+https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
+
 **The Best Gifts for Co-Workers**\
 `Text by Samantha Schoech and Mari Uyehara`\
 https://nytimes.com/card/2025/05/23/smarter-living/wirecutter/the-best-gifts-for-co-workers
