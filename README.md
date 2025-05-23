@@ -1,3 +1,7 @@
+**Maresca fears Chelsea squad may struggle with fatigue due to summer schedule**\
+`The Conference League final, Club World Cup and international commitments have Maresca fearing for his players' fitness over the summer.`\
+https://nytimes.com/athletic/6377125/2025/05/23/enzo-maresca-fears-chelsea-squad-may-struggle-with-fatigue-due-to-summer-schedule/
+
 **Jimmy Kimmel Digests Trump’s Crypto Dinner**\
 `“Listen, he’s only corrupt in his free time, guys,” Kimmel said of the president. “When he’s in the Oval Office, he’s by the book. This is all completely on the up and up.”`\
 https://nytimes.com/2025/05/23/arts/television/jimmy-kimmel-trump-crypto-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/well/stop-being-judgemental.html
 **Trump's Big Budget Bomb**\
 `We are all in the blast radius of Trump’s tax-cut bill.`\
 https://nytimes.com/video/opinion/100000010186562/trumps-big-budget-bomb.html
-
-**Josh Hart’s Children’s Playroom, Mini Basketball Hoop Included**\
-`The Knicks player Josh Hart and his wife, Shannon Hart, commissioned Greenwich Play to design a multifaceted playroom for their twin boys.`\
-https://nytimes.com/2025/05/23/realestate/josh-hart-playroom-design.html
 
