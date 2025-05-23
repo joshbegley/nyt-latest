@@ -1,3 +1,11 @@
+**Teachers Protest Shuts Down Mexico City’s International Airport**\
+`Flights were briefly halted, delaying travel for thousands, as security forces swarmed into passenger terminals in an effort to assert order.`\
+https://nytimes.com/2025/05/23/world/americas/mexico-city-teachers-protest-airport-shutdown.html
+
+**Why Harvard Has No Way Out**\
+`Even against one of the nation’s oldest institutions, the Trump administration holds the levers of power — and it’s using them aggressively.`\
+https://nytimes.com/2025/05/23/us/politics/trump-harvard-international-students.html
+
 **No. 12 Texas Tech knocks off No. 5 seed Florida State to advance to first WCWS**\
 `Star pitcher Canady allowed just one run and five hits across the Red Raiders' back-to-back wins in the Tallahassee super regional.`\
 https://nytimes.com/athletic/6378718/2025/05/23/texas-tech-florida-state-super-regionals-womens-college-world-series/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/opinion/sarah-milgrim-dc-shooting-legacy.html
 **Read Harvard’s Lawsuit Against Trump**\
 `Harvard University sued the Trump administration after it moved to block international students from enrolling.`\
 https://nytimes.com/interactive/2025/05/23/us/harvard-trump-lawsuit.html
-
-**Jeff Goldblum Is ‘Not a Performance’**\
-`The actor and musician Jeff Goldblum spoke with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, and insisted that the immutable Jeff Goldblum persona was not an act — it’s his lifeblood.`\
-https://nytimes.com/video/podcasts/100000010188567/jeff-goldblum-popcast.html
-
-**Drummer and Music Agent Among 6 Killed in San Diego Plane Crash**\
-`Friends paid tribute to Daniel Williams, a former drummer for the metalcore band The Devil Wears Prada, and Dave Shapiro, a music agent who worked with Sum 41, Hanson and other bands.`\
-https://nytimes.com/2025/05/23/us/san-diego-plane-crash-daniel-williams-dave-shapiro.html
 

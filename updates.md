@@ -1,3 +1,11 @@
+**Teachers Protest Shuts Down Mexico City’s International Airport**\
+`Flights were briefly halted, delaying travel for thousands, as security forces swarmed into passenger terminals in an effort to assert order.`\
+https://nytimes.com/2025/05/23/world/americas/mexico-city-teachers-protest-airport-shutdown.html
+
+**Why Harvard Has No Way Out**\
+`Even against one of the nation’s oldest institutions, the Trump administration holds the levers of power — and it’s using them aggressively.`\
+https://nytimes.com/2025/05/23/us/politics/trump-harvard-international-students.html
+
 **No. 12 Texas Tech knocks off No. 5 seed Florida State to advance to first WCWS**\
 `Star pitcher Canady allowed just one run and five hits across the Red Raiders' back-to-back wins in the Tallahassee super regional.`\
 https://nytimes.com/athletic/6378718/2025/05/23/texas-tech-florida-state-super-regionals-womens-college-world-series/
