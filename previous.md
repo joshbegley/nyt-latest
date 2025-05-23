@@ -1,4 +1,4 @@
-**Panthers hand Hurricanes 14th straight conference finals loss with Game 2 rout**\
+**Panthers hand Hurricanes 14th straight conference finals loss with Game 2 rout: Takeaways**\
 `The Canes' losing streak with Rod Brind’Amour as captain or coach reached 14 games after the Canes were swept in 2009, 2019 and 2023.`\
 https://nytimes.com/athletic/6376769/2025/05/22/panthers-hurricanes-nhl-playoffs-2025-game-2-takeaways/
 
