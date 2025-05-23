@@ -1,3 +1,7 @@
+**Panthers hand Hurricanes 14th straight conference finals loss with Game 2 rout**\
+`The Canes' losing streak with Rod Brind’Amour as captain or coach reached 14 games after the Canes were swept in 2009, 2019 and 2023.`\
+https://nytimes.com/athletic/6376769/2025/05/22/panthers-hurricanes-nhl-playoffs-2025-game-2-takeaways/
+
 **Britta Curl-Salemme plays villain as Frost pull even with Charge in PWHL Finals: Takeaways**\
 `The Frost pulled off a dramatic late-game comeback to tie it up before winning Game 2 in overtime. `\
 https://nytimes.com/athletic/6376718/2025/05/22/minnesota-frost-ottawa-chargepwhl-finals-game-2/

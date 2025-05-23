@@ -1,3 +1,7 @@
+**Panthers hand Hurricanes 14th straight conference finals loss with Game 2 rout**\
+`The Canes' losing streak with Rod Brind’Amour as captain or coach reached 14 games after the Canes were swept in 2009, 2019 and 2023.`\
+https://nytimes.com/athletic/6376769/2025/05/22/panthers-hurricanes-nhl-playoffs-2025-game-2-takeaways/
+
 **Britta Curl-Salemme plays villain as Frost pull even with Charge in PWHL Finals: Takeaways**\
 `The Frost pulled off a dramatic late-game comeback to tie it up before winning Game 2 in overtime. `\
 https://nytimes.com/athletic/6376718/2025/05/22/minnesota-frost-ottawa-chargepwhl-finals-game-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/harvard-international-students-trump.html
 **How Can the Government Stop Harvard From Enrolling International Students?**\
 `The Trump administration is relying on an obscure bureaucratic lever to stop the school, the latest in a series of aggressive moves.`\
 https://nytimes.com/2025/05/22/us/harvard-international-students-trump-sevis.html
-
-**Judge Blocks Trump Administration From Revoking Student Visas**\
-`Judge Jeffrey White of the Northern District of California provided temporary relief to some international students while a legal battle continues.`\
-https://nytimes.com/2025/05/22/us/politics/trump-international-student-visas.html
 
