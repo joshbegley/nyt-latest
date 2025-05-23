@@ -1,3 +1,11 @@
+**Losers of 9 straight, A's shake up roster with 5 promotions, option JJ Bleday**\
+`The A's have the longest losing streak in MLB so far this season, thanks in part to a porous defense and a leaky bullpen.`\
+https://nytimes.com/athletic/6378569/2025/05/23/athletics-roster-shakeup-jj-bleday-seth-brown/
+
+**Karen Dunn and Other Top Lawyers Depart Paul Weiss to Start Firm**\
+`They are leaving a few months after Paul Weiss cut a deal with the White House to avoid an executive order that would have restricted its business.`\
+https://nytimes.com/2025/05/23/business/karen-dunn-paul-weiss-partners.html
+
 **Who Won a Seat at Trump’s Crypto Dinner?**\
 `The New York Times reviewed a guest list and social media posts to identify who was invited to President Trump’s private event for customers of his cryptocurrency business on Thursday and a White House tour on Friday. Here are some of them.`\
 https://nytimes.com/2025/05/23/us/politics/trump-crypto-dinner-attendees.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6378552/2025/05/23/reds-rhett-lowder-rehab-injury/
 **Prime Tire: Why the Indy 500 scandal matters in F1 too. Plus, the key to staying dry in Monaco**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6375533/2025/05/23/indy-500-scandal-f1-monaco-prime-tire-newsletter/
-
-**Napoli win Serie A as final-day victory pips Inter to title**\
-`The league title went down to the final matchday with Antonio Conte's side one point clear of Inter, who won at Como.`\
-https://nytimes.com/athletic/6349268/2025/05/23/napoli-serie-a-title-mctominay-lukaku/
-
-**Karol G’s Ode to Curves, Plus 7 More New Songs**\
-`Hear tracks by Alejandro Sanz and Shakira, St. Vincent, Stereolab and others.`\
-https://nytimes.com/2025/05/23/arts/music/playlist-karol-g-shakira-alejandro-sanz.html
 
