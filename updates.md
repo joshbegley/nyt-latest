@@ -1,3 +1,11 @@
+**Julius Randle's first playoff clunker comes at worst possible time for humbled Wolves**\
+`Randle had been a major driver of Minnesota's push to the West finals. His struggles in Game 2 are one reason the Wolves are in trouble.`\
+https://nytimes.com/athletic/6376625/2025/05/23/julius-randle-timberwolves-west-finals-thunder/
+
+**For better or worse, this is the Knicks' true identity**\
+`As we've seen this season and in the playoffs, the Knicks too often require a kick in the behind when they struggle against the top teams.`\
+https://nytimes.com/athletic/6375927/2025/05/23/knicks-pacers-eastern-conference-finals-nba/
+
 **Presenting the Braves' All-Quarter Century Team, the best in Atlanta since 2000**\
 `Chipper Jones and The Big Three are among the Braves who bring Cooperstown credentials to this star-studded squad.`\
 https://nytimes.com/athletic/6376024/2025/05/23/atlanta-braves-quarter-century-team/
