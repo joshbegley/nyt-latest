@@ -1,3 +1,11 @@
+**National Security Council Will Be Cut by Half**\
+`The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
+https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html
+
+**Shai Gilgeous-Alexander, Nikola Jokić headline first All-NBA team**\
+`Cade Cunningham, 23, was named to the All-NBA third team, increasing the value of the contract extension he signed last summer.`\
+https://nytimes.com/athletic/6378813/2025/05/23/all-nba-team-shai-gilgeous-alexander-nikola-jokic-2025/
+
 **Teachers Protest Shuts Down Mexico City’s International Airport**\
 `Flights were briefly halted, delaying travel for thousands, as security forces swarmed into passenger terminals in an effort to assert order.`\
 https://nytimes.com/2025/05/23/world/americas/mexico-city-teachers-protest-airport-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/nyregion/columbia-trump-jewish-students.html
 **Trump’s Order Targeting Jenner & Block Was Unconstitutional, Judge Rules**\
 `The decision was nearly identical to another involving the law firm Perkins Coie. Judges in both cases found the orders coercive.`\
 https://nytimes.com/2025/05/23/us/politics/trump-jenner-block-law-firm.html
-
-**Sarah Milgrim’s Death Was a Tragedy. Distorting Her Legacy Would Be Another.**\
-`The woman I knew worked for peaceful coexistence.`\
-https://nytimes.com/2025/05/23/opinion/sarah-milgrim-dc-shooting-legacy.html
-
-**Read Harvard’s Lawsuit Against Trump**\
-`Harvard University sued the Trump administration after it moved to block international students from enrolling.`\
-https://nytimes.com/interactive/2025/05/23/us/harvard-trump-lawsuit.html
 
