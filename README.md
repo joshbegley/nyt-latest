@@ -1,3 +1,7 @@
+**NBA playoffs: Thunder clamp down on Timberwolves to take 2-0 series lead**\
+`The series will now shift to Minneapolis for Game 3. Will the Timberwolves respond? `\
+https://nytimes.com/athletic/6376766/2025/05/22/nba-playoffs-takeaways-thunder-timberwolves/
+
 **Columbia Violated Jewish Students’ Civil Rights, Trump Administration Finds**\
 `The university has previously been the target of more $400 million in federal funding cuts.`\
 https://nytimes.com/2025/05/22/us/politics/trump-administration-columbia-accusation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/business/mckinsey-obstruction-opioids.html
 **Former MLB player Darin Ruf sues Reds over career-ending injury**\
 `Ruf's lawsuit cites an unpadded metal roller: "Players shouldn't have to worry about hidden hazards like that on a major-league field."`\
 https://nytimes.com/athletic/6376620/2025/05/22/darin-ruf-lawsuit-reds-tarp/
-
-**Shock at Harvard After Government Says International Students Must Go**\
-`Fear and confusion mounted quickly on Thursday as international students, who make up more than a quarter of the university’s enrollment, sought clarity or reassurance.`\
-https://nytimes.com/2025/05/22/us/harvard-international-students-trump.html
 
