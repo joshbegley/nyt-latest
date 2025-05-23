@@ -1,3 +1,7 @@
+**Review: Dudamel Unveils a Love Letter to the Philharmonic**\
+`Kate Soper’s tender, whimsical “Orpheus Orchestra Opus Onus,” a tribute to the orchestra, had its premiere on Thursday with its composer as soloist.`\
+https://nytimes.com/2025/05/23/arts/music/gustavo-dudamel-kate-soper-new-york-philharmonic.html
+
 **They’re 15. Wait Until You Read Their Newspaper.**\
 `The Ditch Weekly, a paper by middle and high schoolers in Long Island, is covering the Hamptons from a new angle.`\
 https://nytimes.com/2025/05/23/style/ditch-weekly-montauk-newspaper-hamptons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377740/2025/05/23/oliver-glasner-crystal-palace-fu
 **Thunder were 'sharpened' by Nuggets series. Against Wolves, they have look of inevitability**\
 `"Our resolve in that series is what got sharpened," coach Mark Daigneault said, adding, "Now we have a different challenge."`\
 https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-playoffs-wolves/
-
-**U.S. sprinter Kerley suspended by Grand Slam Track following battery charge**\
-`The 30-year-old also missed the meet in Miami at the start of the month.`\
-https://nytimes.com/athletic/6372437/2025/05/23/fred-kerley-arrest-grand-slam-track/
 

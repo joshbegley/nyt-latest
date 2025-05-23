@@ -1,3 +1,11 @@
+**They’re 15. Wait Until You Read Their Newspaper.**\
+`The Ditch Weekly, a paper by middle and high schoolers in Long Island, is covering the Hamptons from a new angle.`\
+https://nytimes.com/2025/05/23/style/ditch-weekly-montauk-newspaper-hamptons.html
+
+**Tajín Grilled Chicken and Beer Brats; Pickle Lemonade and Ranch Water**\
+`All the things you’ll want to eat (and drink) this Memorial Day weekend.`\
+https://nytimes.com/2025/05/23/dining/tajin-grilled-chicken-and-beer-brats-pickle-lemonade-and-ranch-water.html
+
 **Kermit the Frog Addresses University of Maryland Students**\
 `Kermit took the podium in a muppet-size formal cap and gown on Thursday to deliver a commencement speech at the University of Maryland, the alma mater of his creator, Jim Henson.`\
 https://nytimes.com/video/us/100000010186849/kermit-the-frog-commencement-address.html

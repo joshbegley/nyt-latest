@@ -1,3 +1,11 @@
+**They’re 15. Wait Until You Read Their Newspaper.**\
+`The Ditch Weekly, a paper by middle and high schoolers in Long Island, is covering the Hamptons from a new angle.`\
+https://nytimes.com/2025/05/23/style/ditch-weekly-montauk-newspaper-hamptons.html
+
+**Tajín Grilled Chicken and Beer Brats; Pickle Lemonade and Ranch Water**\
+`All the things you’ll want to eat (and drink) this Memorial Day weekend.`\
+https://nytimes.com/2025/05/23/dining/tajin-grilled-chicken-and-beer-brats-pickle-lemonade-and-ranch-water.html
+
 **The Best Movies of 2025, So Far**\
 `Our critics picked 10 films that you might have missed but that are worth your time on this long holiday weekend.`\
 https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-play
 **U.S. sprinter Kerley suspended by Grand Slam Track following battery charge**\
 `The 30-year-old also missed the meet in Miami at the start of the month.`\
 https://nytimes.com/athletic/6372437/2025/05/23/fred-kerley-arrest-grand-slam-track/
-
-**Bangladesh’s Leader Threatens to Resign Over Election Pressure**\
-`Muhammad Yunus has struggled to navigate between the army, career politicians and the protest movement that overthrew the country’s authoritarian leader last year.`\
-https://nytimes.com/2025/05/23/world/asia/bangladesh-leader-yusuf-threat.html
-
-**Man Utd inform football staff of redundancy risk 48 hours after Europa League final**\
-`Staff were informed by email they would be finding out their fate less than 48 hours after the Europa League final loss to Tottenham.`\
-https://nytimes.com/athletic/6377554/2025/05/23/manchester-united-redundancy-staff/
 
