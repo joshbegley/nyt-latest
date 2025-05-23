@@ -1,3 +1,7 @@
+**Billy Joel Announces Brain Disorder and Cancels All Concerts**\
+`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
+https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
+
 **After White House Row, South Africa Sets the Stage for Starlink Approval**\
 `A proposed regulatory change would allow Elon Musk’s satellite company and others like it to get a license without having to sell shares to Black South Africans.`\
 https://nytimes.com/2025/05/23/world/africa/south-africa-elon-musk-trump-starlink-white-house.html
