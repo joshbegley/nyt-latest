@@ -1,3 +1,7 @@
+**United have had darker days but I’ve never felt so low about them**\
+`Next season will look remarkably different from all but one in the previous 34 for United: one without European football`\
+https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-europa/
+
 **The Nuno you do not see at Forest: Handpan player, diver, horse lover, 'maniac', worm dancer**\
 `Nuno is cautious and collected in front of the media. But what is the Nottingham Forest manager like behind the scenes?`\
 https://nytimes.com/athletic/6363660/2025/05/23/nuno-nottingham-forest-diver-worm-handpan/

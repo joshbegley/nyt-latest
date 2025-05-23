@@ -31,7 +31,7 @@ https://nytimes.com/2025/05/23/opinion/trump-ramaphosa-meeting-south-africa.html
 https://nytimes.com/2025/05/23/briefing/aides-israel-gaza-south-africa.html
 
 **United have had darker days but I’ve never felt so low about them**\
-`Next season will look remarkably different from all but one in the previous 34 for United: one without European football.`\
+`Next season will look remarkably different from all but one in the previous 34 for United: one without European football`\
 https://nytimes.com/athletic/6376037/2025/05/23/manchester-united-supporters-europa/
 
 **Aston Villa's record against Man United is terrible, even under Emery - he must fix it on Sunday**\
