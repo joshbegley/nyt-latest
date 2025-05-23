@@ -1,3 +1,19 @@
+**Jimmy Kimmel Digests Trump’s Crypto Dinner**\
+`“Listen, he’s only corrupt in his free time, guys,” Kimmel said of the president. “When he’s in the Oval Office, he’s by the book. This is all completely on the up and up.”`\
+https://nytimes.com/2025/05/23/arts/television/jimmy-kimmel-trump-crypto-dinner.html
+
+**Real Madrid confirm Ancelotti exit after Brazil appointment**\
+`Ancelotti's final game in charge will be against Real Sociedad at the Bernabeu on Sunday.`\
+https://nytimes.com/athletic/6317289/2025/05/23/carlo-ancelotti-real-madrid-exit/
+
+**How crosswords became a vital part of Arsenal's pre-match preparations**\
+`Arsenal face Barcelona in the Women's Champions League final and Daphne van Domselaar hasn't forgotten to pack her crossword puzzles`\
+https://nytimes.com/athletic/6374632/2025/05/23/daphne-van-domselaar-arsenal-barcelona-womens-champions-league-final/
+
+**Trump’s Big Budget Bomb**\
+`We are all in the blast radius of Trump’s tax-cut bill, which Catherine Rampell calls ‘transfer of wealth from the poor to the rich, from the young to the old and from the future to the past.’`\
+https://nytimes.com/2025/05/23/opinion/ezra-klein-podcast-catherine-rampell.html
+
 **The New York Times News Quiz, May 23, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/05/23/briefing/quiz-biden-brooklyn-george-wendt.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010186562/trumps-big-budget-bomb.html
 **Josh Hart’s Children’s Playroom, Mini Basketball Hoop Included**\
 `The Knicks player Josh Hart and his wife, Shannon Hart, commissioned Greenwich Play to design a multifaceted playroom for their twin boys.`\
 https://nytimes.com/2025/05/23/realestate/josh-hart-playroom-design.html
-
-**Everyone Now Has an Opinion on Jake Tapper**\
-`A book the CNN host co-wrote has received positive reviews and appears to be a sales hit. But it has also generated intense scrutiny of him and his work.`\
-https://nytimes.com/2025/05/23/business/media/everyone-now-has-an-opinion-on-jake-tapper.html
-
-**Pro-Palestinian Movement Faces an Uncertain Path After Embassy Attack**\
-`The slaying of two Israeli Embassy workers cast a harsh spotlight on pro-Palestinian groups in the United States. Activists, who were already being scrutinized, could face further pushback.`\
-https://nytimes.com/2025/05/23/us/pro-palestinian-movement-embassy-attack.html
-
-**In ‘Cancer Alley,’ a Battle Over Who Gets to Measure Air Pollution**\
-`Community groups are fighting an unusual Louisiana law that restricts how they use data from air-quality monitors, saying it violates free speech.`\
-https://nytimes.com/2025/05/23/climate/cancer-alley-air-pollution-free-speech.html
-
-**Graduation**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/05/23/learning/graduation.html
 
