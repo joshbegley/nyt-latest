@@ -1,3 +1,7 @@
+**As Astros' rotation depth dwindles, Lance McCullers Jr.'s importance intensifies**\
+`Placing Ronel Blanco on the injured list Thursday means three-fifths of Houston's season-opening starting rotation is sidelined.`\
+https://nytimes.com/athletic/6376952/2025/05/23/astros-starting-pitching-lance-mccullers-injuries/
+
 **Ex-Nuggets coach Mike Malone says Nikola Jokić was his pick for MVP**\
 `Gilgeous-Alexander was announced as the NBA's MVP Wednesday.`\
 https://nytimes.com/athletic/6376936/2025/05/23/nuggets-coach-mike-malone-nikola-jokic-mvp-shai-gilgeous-alexander/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6372720/2025/05/23/fantasy-premier-league-gameweek-
 **Confetti cannons, cigars and Wonderwall - How Spurs celebrated first trophy in 17 years**\
 `A rousing speech from Postecoglou, a party long into the night and a lot of singing - Spurs players marked their Europa League win in style`\
 https://nytimes.com/athletic/6375950/2025/05/23/tottenham-europa-celebrations-party/
-
-**How Real Madrid won the race to sign Dean Huijsen - despite interest from Arsenal, Liverpool, Chelsea and more**\
-`Arsenal promised game time, Liverpool had the lure of Van Dijk and Newcastle were firmly in the mix — but here is how Madrid sealed the deal`\
-https://nytimes.com/athletic/6374725/2025/05/23/real-madrid-dean-huijsen-deal-arsenal-liverpool-chelsea-barcelona/
 
