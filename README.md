@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Judge Extends Pause on Mass Federal Layoffs**\
+``\
+https://nytimes.com/live/2025/05/23/us/trump-news
+
 **Father's Day**\
 ``\
 https://nytimes.com/spotlight/fathers-day
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375458/2025/05/23/city-connect-mlb-uniform-2025/
 **Man United post-Bilbao live Q&A: Carl Anka answers your questions**\
 `After the disappointment of Bilbao, get your questions in now and I'll be with you between 2-3pm BST (10-11am ET) to answer as many as I can`\
 https://nytimes.com/athletic/6375970/2025/05/23/man-united-amorim-future-transfers/
-
-**Mitch Marner makes little sense for the Flyers. But another top pending free agent does**\
-`The days of the Flyers going after a bright shiny object, as they did for so many years previously, are over.`\
-https://nytimes.com/athletic/6376281/2025/05/23/flyers-free-agency-marner-bennett/
 
