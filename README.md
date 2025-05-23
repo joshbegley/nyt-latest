@@ -1,3 +1,11 @@
+**Man Utd staff informed of 200 redundancies after Europa League final loss**\
+`Staff were informed by email they would be finding out their fate less than 48 hours after the Europa League final loss to Tottenham.`\
+https://nytimes.com/athletic/6377554/2025/05/23/manchester-united-redundancy-staff/
+
+**Belinda Bencic withdraws from French Open, scratching first-round match with Elena Rybakina**\
+`Bencic had been set to play one of the most interesting opening matches of the 2025 French Open.`\
+https://nytimes.com/athletic/6377650/2025/05/23/belinda-bencic-french-open-out-injury-rybakina/
+
 **William Byron, Hendrick Motorsports agree to contract extension through 2029**\
 `Byron, a rising star in the Cup Series, will stay with the only NASCAR organization he's known for another four seasons.`\
 https://nytimes.com/athletic/6377476/2025/05/23/william-byron-hendrick-motorsports-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6377407/2025/05/23/nottingham-forest-champions-leag
 **Why Tax Shelters Aren’t Just for Billionaires**\
 `The swelling budget deficit makes future tax increases likely, our columnist says, even if taxes are going down now. Hedge your bets with a concept from investing — diversification.`\
 https://nytimes.com/2025/05/23/business/tax-shelters-budget-retirement.html
-
-**The most intriguing wagers for a packed Memorial Day sports weekend**\
-`The WWE-esque Knicks-Pacers drama kicks off a juicy long weekend of sports, capped by the Indy 500.`\
-https://nytimes.com/athletic/6377491/2025/05/23/knicks-pacers-dodgers-mets-champions-league-drama-here-are-most-intriguing-weekend-wagers/
-
-**Trump Escalates Tariff Threats, Targeting Europe and Apple**\
-`The president threatened both Apple and the European Union with higher tariffs on social media Friday morning, saying that trade talks with the Europeans had stalled.`\
-https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple.html
 
