@@ -1,3 +1,7 @@
+**U.S. Steel to Form ‘Partnership’ With Nippon, Trump Says**\
+`President Trump’s statement appeared to approve a deal linking the U.S. and Japanese steel makers that had been blocked on national security grounds.`\
+https://nytimes.com/2025/05/23/business/us-steel-nippon-trump.html
+
 **Reds pitcher Rhett Lowder's rehab assignment paused due to oblique strain**\
 `Lowder’s rehab assignment has been paused after an MRI showed a left oblique strain following his shortened outing Thursday.`\
 https://nytimes.com/athletic/6378552/2025/05/23/reds-rhett-lowder-rehab-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/us/florida-republicans-venezuelan-deportations.ht
 **A California Wildlife Center’s Attempt to Keep ‘Baby Bear’ Wild**\
 `The human caretakers of a black bear cub known as Baby Bear wear fur coats and camouflage masks to keep him from becoming too reliant on humans.`\
 https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
-
-**Byford, Once New York’s ‘Train Daddy,’ Set to Lead Penn Station Overhaul**\
-`If approved for the job by the Amtrak board, Andy Byford will take the helm of one of the most high-profile, complex and expensive construction projects in the country.`\
-https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
 
