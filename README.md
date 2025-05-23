@@ -1,3 +1,15 @@
+**Lebanon Moves to Disarm Palestinian Groups, a Test Run for Hezbollah**\
+`After war with Israel weakened Iran-backed militias across the Middle East, including the Lebanese group Hezbollah, Lebanon’s government has moved to assert its authority over armed groups.`\
+https://nytimes.com/2025/05/23/world/middleeast/lebanon-hezbollah-palestinian-refugee-camps.html
+
+**The Chocolate Cake That Made a Times Reporter Go Vegan**\
+`A recipe for a vegan cake from a food blogger in Oregon helped a Times reporter to realize that plant-based eating could be delicious.`\
+https://nytimes.com/2025/05/23/climate/vegan-chocolate-cake.html
+
+**Read the document**\
+`Magistrate Judge André Espinosa of U.S. District Court, District of New Jersey, offered lengthy comments, critical of the government, before agreeing to dismiss federal trespassing charges against Ras J. Baraka, the mayor of Newark.`\
+https://nytimes.com/interactive/2025/05/23/us/mayor-baraka-judge-dismissal.html
+
 **Harvard sports face uncertainty over Trump effort to block foreign students**\
 `Harvard’s 919 athletes may not have much time to decide their next steps, depending on their sport.`\
 https://nytimes.com/athletic/6378103/2025/05/23/trump-harvard-international-student-athletes/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6377683/2025/05/23/cara-gardner-morey-general-manag
 **At Cannes, Sneaky Period Pieces and Film Lovers’ Delights Rule the Screen**\
 `Movies from China, Brazil, Iran and elsewhere prove that there’s so much more to cinema than Hollywood would have us believe.`\
 https://nytimes.com/2025/05/23/movies/cannes-film-festival-resurrection-magellan.html
-
-**2025 French Open odds: Carlos Alcaraz, Aryna Sabalenka enter as favorites**\
-`Familiar names are at the top of the odds ahead of the French Open, although there are some noteworthy shifts among the order.`\
-https://nytimes.com/athletic/6377999/2025/05/23/french-open-odds-alcaraz-sabalenka-swiatek/
-
-**Sebastião Salgado, Acclaimed Brazilian Photographer, Is Dead at 81**\
-`Known for his powerfully impactful images of nature and the human condition, he was widely regarded as one of the most important documentary photographers of his time.`\
-https://nytimes.com/2025/05/23/arts/sebastiao-salgado-dead.html
-
-**Religious Education Lost at the Supreme Court. But It’s Winning Everywhere Else.**\
-`The court rejected a religious charter school, but conservatives may get much of what they want in a school voucher program that passed the House this week.`\
-https://nytimes.com/2025/05/23/us/religious-charter-school-movement.html
 
