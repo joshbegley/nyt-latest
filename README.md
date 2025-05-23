@@ -1,3 +1,7 @@
+**Caroline Garcia to play last French Open before retirement from tennis**\
+`Garcia, a former world No. 4, has said the 2025 French Open will be her last appearance at Roland Garros.`\
+https://nytimes.com/athletic/6377067/2025/05/23/tennis-caroline-garcia-retirement-french-open/
+
 **UWCL final odds: Arsenal and Barca on the cusp of making history**\
 `Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6375119/2025/05/23/final-weekend-premier-league-top
 **Word of the Day: gimmick**\
 `This word has appeared in 258 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/23/learning/word-of-the-day-gimmick.html
-
-**The Nuno you do not see at Forest: Handpan player, diver, horse lover, 'maniac', worm dancer**\
-`Nuno is cautious and collected in front of the media. But what is the Nottingham Forest manager like behind the scenes?`\
-https://nytimes.com/athletic/6363660/2025/05/23/nuno-nottingham-forest-diver-worm-handpan/
 

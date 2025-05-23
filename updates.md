@@ -58,6 +58,16 @@ https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-ba
 `\
 https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
 
+**UWCL final odds: Arsenal and Barca on the cusp of making history**\
+`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
+`\
+https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+
+**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
+`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
+`\
+https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+
 **Could a Brooklyn City Councilwoman Lose Because of Her Stance on Gaza?**\
 `Shahana Hanif, the incumbent in an upcoming Democratic primary race, has been an outspoken advocate of the Palestinian cause, rattling some of the residents in her progressive district.`\
 https://nytimes.com/2025/05/23/nyregion/shahana-hanif-maya-kornberg-council-race.html
