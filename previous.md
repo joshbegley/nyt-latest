@@ -1,3 +1,7 @@
+**In Attacks on Harvard, Chinese See Yet Another Reason to Write Off the U.S.**\
+`Beyond the shock for students, President Trump’s moves against higher education are being seen in China as a blow to one of the last admirable American institutions.`\
+https://nytimes.com/2025/05/23/world/asia/harvard-china-trump.html
+
 **Caroline Garcia to play last French Open before retirement from tennis**\
 `Garcia, a former world No. 4, has said the 2025 French Open will be her last appearance at Roland Garros.`\
 https://nytimes.com/athletic/6377067/2025/05/23/tennis-caroline-garcia-retirement-french-open/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/05/23/nyregion/new-york-city-roommate-tales.html
 **Final Premier League top-five picks: Forest, Chelsea doomed; City, Villa, Toons in Europe**\
 `Brett Koremenos outlines the latest top-five betting permutations ahead of the final Premier League weekend of the season.`\
 https://nytimes.com/athletic/6375119/2025/05/23/final-weekend-premier-league-top-five-betting-predictions/
-
-**Word of the Day: gimmick**\
-`This word has appeared in 258 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/23/learning/word-of-the-day-gimmick.html
 
