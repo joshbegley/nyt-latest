@@ -1,3 +1,13 @@
+**UWCL final odds: Arsenal and Barca on the cusp of making history**\
+`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
+`\
+https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+
+**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
+`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
+`\
+https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+
 **Howe: Isak has 'a chance' of being fit for Newcastle vs Everton**\
 `The striker missed Newcastle's 1-0 defeat at Arsenal last Sunday, which left them fourth in the Premier League heading into the final day.`\
 https://nytimes.com/athletic/6377116/2025/05/23/alexander-isak-newcastle-everton/
