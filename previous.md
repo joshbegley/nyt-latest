@@ -1,3 +1,11 @@
+**Boeing Reaches Deal With U.S. to Avoid Guilty Plea Over 737 Max Crashes**\
+`The deal between the plane maker and the Justice Department, which was opposed by the families of those who died in the crashes, includes paying millions into a victims’ fund.`\
+https://nytimes.com/2025/05/23/business/boeing-doj-737-max-crashes.html
+
+**Trump Orders Faster Build-Out of Nuclear Power Plants**\
+`Among a flurry of executive actions, Mr. Trump directed the nation’s nuclear safety regulator to speed up approvals for new reactors.`\
+https://nytimes.com/2025/05/23/climate/trump-executive-order-nuclear-power.html
+
 **Knife Attack at Train Station in Hamburg, Germany, Wounds at Least 17**\
 `Four of the victims are in critical condition. The police say they believe a 39-year-old woman carried out the attack, for which no motive has yet been given.`\
 https://nytimes.com/2025/05/23/world/europe/hamburg-germany-knife-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6378126/2025/05/23/gary-neville-nottingham-forest-b
 **Billy Joel Has Normal Pressure Hydrocephalus. What Is It?**\
 `The singer canceled his upcoming concerts because of the brain disorder. Here’s what to know about the symptoms, prognosis and treatment.`\
 https://nytimes.com/2025/05/23/well/billy-joel-normal-pressure-hydrocephalus.html
-
-**18 Soldiers Are Suspended After Blanks Were Fired at a Crowded Florida Beach**\
-`The Army Rangers were near Fort Walton Beach for an annual pirate festival.`\
-https://nytimes.com/2025/05/23/us/army-rangers-suspended-blanks-florida.html
-
-**Lebanon Moves to Disarm Palestinian Groups, a Test Run for Hezbollah**\
-`After war with Israel weakened Iran-backed militias across the Middle East, including the Lebanese group Hezbollah, Lebanon’s government has moved to assert its authority over armed groups.`\
-https://nytimes.com/2025/05/23/world/middleeast/lebanon-hezbollah-palestinian-refugee-camps.html
 
