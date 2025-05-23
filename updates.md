@@ -1,3 +1,11 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
+
+**Glasner: 'I'm 100 per cent committed' to Crystal Palace**\
+`Glasner's contract runs until June 2026, and he has led Palace to their highest Premier League points total and first major trophy.`\
+https://nytimes.com/athletic/6377740/2025/05/23/oliver-glasner-crystal-palace-future-contract/
+
 **Thunder were 'sharpened' by Nuggets series. Against Wolves, they have look of inevitability**\
 `"Our resolve in that series is what got sharpened," coach Mark Daigneault said, adding, "Now we have a different challenge."`\
 https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-playoffs-wolves/
