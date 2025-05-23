@@ -1,3 +1,15 @@
+**Has the Thunder's pressure already broken the Timberwolves' will? 'You can feel it'**\
+`OKC's swarming defense has it in complete control of the Western Conference finals, while Minnesota is searching for answers.`\
+https://nytimes.com/athletic/6377058/2025/05/23/thunder-timberwolves-game-2-pressure/
+
+**Aaron Nesmith's historic heater flipped Game 1. He's only been rehearsing the moment for years**\
+`"Every team in the NBA wants a guy like Aaron Nesmith," Pacers teammate Tyrese Haliburton said of the Game 1 hero. `\
+https://nytimes.com/athletic/6376474/2025/05/23/aaron-nesmith-pacers-knicks-game-2-nba-playoffs-2025/
+
+**The Pulse: An impossible streak continues**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6375826/2025/05/23/hurricanes-panthers-streak-the-pulse/
+
 **Julius Randle's first playoff clunker comes at worst possible time for humbled Wolves**\
 `Randle had been a major driver of Minnesota's push to the West finals. His struggles in Game 2 are one reason the Wolves are in trouble.`\
 https://nytimes.com/athletic/6376625/2025/05/23/julius-randle-timberwolves-west-finals-thunder/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6374751/2025/05/23/jim-irsay-colts-owner-died-nfl-f
 **The 10 key moments that defined the Maple Leafs' Shanaplan era**\
 `Shanahan leaves in his wake a number of memorable moments and key decisions that still impact the team on and off the ice.`\
 https://nytimes.com/athletic/6376451/2025/05/23/maple-leafs-brendan-shanahan-era/
-
-**Josef Newgarden, in face of controversy, doubles down on Indy 500 history hopes**\
-`Josef Newgarden thinks he still can win a third straight Indy 500, even after this week's penalty. "I just see a bigger mountain," he says.`\
-https://nytimes.com/athletic/6375387/2025/05/23/josef-newgarden-indy-500-penske-controversy-history/
-
-**Cubs are instilling a winning mentality in Pete Crow-Armstrong **\
-`This Cubs team is connected, with players eager to exchange information and stay in tune with the game's rhythms.`\
-https://nytimes.com/athletic/6376456/2025/05/23/cubs-pete-crow-armstrong-winning-mentality/
-
-**Who's the best college football program of the 2000s? Ranking the top 25**\
-`Which college football programs have been the best over the past 25 years? Ohio State and Alabama provide a tough debate at the top.`\
-https://nytimes.com/athletic/6375442/2025/05/23/college-football-best-program-rankings-2000s/
 
