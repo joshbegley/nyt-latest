@@ -1,3 +1,7 @@
+**The Athletic FC: Journeyman Captain America's big day, Pochettino and Slot's pointed comments**\
+`Today in TAFC: An American journeyman goes for glory in Germany, Pochettino explains his Gold Cup squad and it's farewell Luka Modric.`\
+https://nytimes.com/athletic/6377130/2025/05/23/pokal-corboz-slot-trent-pochettino-usmnt/
+
 **Has the Thunder's pressure already broken the Timberwolves' will? 'You can feel it'**\
 `OKC's swarming defense has it in complete control of the Western Conference finals, while Minnesota is searching for answers.`\
 https://nytimes.com/athletic/6377058/2025/05/23/thunder-timberwolves-game-2-pressure/
