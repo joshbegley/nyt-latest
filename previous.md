@@ -1,3 +1,15 @@
+**How Ivan Toney's form in Saudi Arabia led to his England recall: 'From February, he changed'**\
+`The story of the striker's season with Al Ahli - and why it convinced Thomas Tuchel`\
+https://nytimes.com/athletic/6377472/2025/05/23/ivan-toney-england-recall-saudi-arabia-al-ahli/
+
+**Judge rules against Crown's bid to have Brett Howden's text admitted**\
+`Prosecutors appealed the judge's ruling and are seeking a new application to get the potential evidence admitted.`\
+https://nytimes.com/athletic/6377859/2025/05/23/judge-rules-against-crowns-bid-to-have-brett-howdens-text-admitted/
+
+**How to watch the Golden State Valkyries: Broadcast and streaming info for inaugural season**\
+`The WNBA broadcast rotation can be confusing, especially as it expands its presence. Here’s our 2025 guide for the Golden State Valkyries.`\
+https://nytimes.com/athletic/6371125/2025/05/23/golden-state-valkyries-wnba-how-to-watch/
+
 **One Type of Mammogram Proves Better for Women With Dense Breasts**\
 `Contrast-enhanced mammography identified tumors as accurately as more expensive scans. But it is not widely used for screening in the United States.`\
 https://nytimes.com/2025/05/23/health/dense-breasts-cancer-mammograms.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
 **‘Leap Together’: Kermit the Frog Gives a Graduation Speech**\
 `The cheery muppet donned a tiny cap and gown to inspire students at the University of Maryland. “Life is like a movie. Write your own ending,” he said.`\
 https://nytimes.com/2025/05/23/us/kermit-the-frog-commencement-speech-university-maryland.html
-
-**Kermit the Frog Addresses University of Maryland Students**\
-`Kermit took the podium in a muppet-size formal cap and gown on Thursday to deliver a commencement speech at the University of Maryland, the alma mater of his creator, Jim Henson.`\
-https://nytimes.com/video/us/100000010186849/kermit-the-frog-commencement-address.html
-
-**The Bounce: With Thunder up 2-0, are Timberwolves running out of ideas and time?**\
-`In the third quarter, they separated themselves from Minnesota once again. Can the Wolves find a way to get into the series?`\
-https://nytimes.com/athletic/6377497/2025/05/23/shai-gilgeous-alexander-thunder-anthony-edwards-timberwolves-nba-playoffs-the-bounce/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
 
