@@ -1,3 +1,11 @@
+**Wharton, Nwaneri, Elliott in England Under-21 squad for Euros**\
+`England men's manager Thomas Tuchel said Wharton's exclusion from the senior side was to allow him to be a leading figure for the Under-21s.`\
+https://nytimes.com/athletic/6377532/2025/05/23/england-under-21-squad-wharton-nwaneri-elliott/
+
+**How to watch the Dodgers at Mets series, an NLCS rematch starring Ohtani and Alonso**\
+`We're getting a top-shelf series with three national broadcasts. The Dodgers' big bats visit the Mets and their league-best ERA.`\
+https://nytimes.com/athletic/6376254/2025/05/23/dodgers-mets-la-ny-ohtani-betts-alonso-lindor-how-to-watch/
+
 **Markets Drop on Trump’s Latest Tariff Threats**\
 `President Trump said he would impose steep tariffs on goods from the European Union and targeted Apple with a tax on foreign-made iPhones.`\
 https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple-stock-markets.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple.html
 **Two Miss Austens, Asterix & Obelix and Robot Chambermaids**\
 `New international series include a drama about Jane Austen and her sister, a Netflix reboot of a French institution and a whimsical sci-fi anime.`\
 https://nytimes.com/2025/05/23/arts/television/two-miss-austens-asterix-and-obelix-netflix.html
-
-**Harvard Sues Trump Administration Over Move to Bar International Students**\
-`Less than 24 hours earlier, the Trump administration had said it would block current and future international students from attending the university.`\
-https://nytimes.com/2025/05/23/us/harvard-sues-trump-international-students-garber.html
-
-**Watch: The race for European football - and the benefit of not being involved**\
-`The Totally Football Show discusses why Nottingham Forest should not be disappointed should they miss out on a top-five spot.`\
-https://nytimes.com/athletic/6375476/2025/05/23/totally-football-show-nottingham-forest-champions-league/
 

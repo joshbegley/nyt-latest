@@ -1,3 +1,7 @@
+**Markets Drop on Trump’s Latest Tariff Threats**\
+`President Trump said he would impose steep tariffs on goods from the European Union and targeted Apple with a tax on foreign-made iPhones.`\
+https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple-stock-markets.html
+
 **Harvard Sues Trump Administration Over Move to Bar International Students**\
 `Less than 24 hours earlier, the Trump administration had said it would block current and future international students from attending the university.`\
 https://nytimes.com/2025/05/23/us/harvard-sues-trump-international-students-garber.html
