@@ -1,3 +1,7 @@
+**Karol G’s Ode to Curves, Plus 7 More New Songs**\
+`Hear tracks by Alejandro Sanz and Shakira, St. Vincent, Stereolab and others.`\
+https://nytimes.com/2025/05/23/arts/music/playlist-karol-g-shakira-alejandro-sanz.html
+
 **Flashback: Your Weekly History Quiz, May 24, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/05/23/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6378380/2025/05/23/bayern-munich-world-sevens-footb
 **The Windup: What it would take to trade Paul Skenes**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6377037/2025/05/23/paul-skenes-trade-pirates-the-windup/
-
-**‘Commander Butcher’ Who Led Neo-Nazi Group Faces Charges in Brooklyn**\
-`Michail Chkhikvishvili, arrested in Moldova, had plotted to have someone dressed as Santa Claus hand out poisoned candy in New York, prosecutors say.`\
-https://nytimes.com/2025/05/23/nyregion/chkhikvishvili-maniac-murder-cult-brooklyn-court.html
 

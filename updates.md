@@ -1,3 +1,7 @@
+**Karol G’s Ode to Curves, Plus 7 More New Songs**\
+`Hear tracks by Alejandro Sanz and Shakira, St. Vincent, Stereolab and others.`\
+https://nytimes.com/2025/05/23/arts/music/playlist-karol-g-shakira-alejandro-sanz.html
+
 **Flashback: Your Weekly History Quiz, May 24, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/05/23/upshot/flashback.html
