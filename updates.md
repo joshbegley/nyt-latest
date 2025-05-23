@@ -1,3 +1,11 @@
+**A Judge Halted Trump’s Move to Bar International Students at Harvard**\
+`Also, Russia and Ukraine began their largest prisoner exchange of the war. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/23/briefing/trump-harvard-lawsuit-great-lakes-shipwrecks.html
+
+**Criticism of Trump Was Removed From Documentary on Public Television**\
+`A segment in a documentary about the cartoonist Art Spiegelman was edited two weeks before it was set to air on public television stations across the country.`\
+https://nytimes.com/2025/05/23/arts/television/art-spiegelman-documentary-edited.html
+
 **U.S. Steel to Form ‘Partnership’ With Nippon, Trump Says**\
 `President Trump’s statement appeared to approve a deal linking the U.S. and Japanese steel makers that had been blocked on national security grounds.`\
 https://nytimes.com/2025/05/23/business/us-steel-nippon-trump.html

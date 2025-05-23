@@ -1,3 +1,11 @@
+**A Judge Halted Trump’s Move to Bar International Students at Harvard**\
+`Also, Russia and Ukraine began their largest prisoner exchange of the war. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/23/briefing/trump-harvard-lawsuit-great-lakes-shipwrecks.html
+
+**Criticism of Trump Was Removed From Documentary on Public Television**\
+`A segment in a documentary about the cartoonist Art Spiegelman was edited two weeks before it was set to air on public television stations across the country.`\
+https://nytimes.com/2025/05/23/arts/television/art-spiegelman-documentary-edited.html
+
 **U.S. Steel to Form ‘Partnership’ With Nippon, Trump Says**\
 `President Trump’s statement appeared to approve a deal linking the U.S. and Japanese steel makers that had been blocked on national security grounds.`\
 https://nytimes.com/2025/05/23/business/us-steel-nippon-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/us/bear-cub-wildlife-california.html
 **Messi, Suarez led Inter Miami players-only meeting after Orlando loss**\
 `The embarrassing loss to a state rival Miami was the team’s fifth defeat in seven games.`\
 https://nytimes.com/athletic/6378516/2025/05/23/messi-suarez-inter-miami-meeting/
-
-**Florida Republicans Break With Trump Over Venezuelan Deportations**\
-`Three G.O.P. members of Congress whose families fled Cuba are objecting to the Trump administration’s move to strip hundreds of thousands of Venezuelans of deportation protections.`\
-https://nytimes.com/2025/05/23/us/florida-republicans-venezuelan-deportations.html
-
-**A California Wildlife Center’s Attempt to Keep ‘Baby Bear’ Wild**\
-`The human caretakers of a black bear cub known as Baby Bear wear fur coats and camouflage masks to keep him from becoming too reliant on humans.`\
-https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
 
