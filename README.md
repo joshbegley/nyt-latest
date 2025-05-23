@@ -1,3 +1,11 @@
+**Billy Joel Has Normal Pressure Hydrocephalus. What Is It?**\
+`The singer canceled his upcoming concerts because of the brain disorder. Here’s what to know about the symptoms, prognosis and treatment.`\
+https://nytimes.com/2025/05/23/well/billy-joel-normal-pressure-hydrocephalus.html
+
+**18 Soldiers Are Suspended After Blanks Were Fired at a Crowded Florida Beach**\
+`The Army Rangers were near Fort Walton Beach for an annual pirate festival.`\
+https://nytimes.com/2025/05/23/us/army-rangers-suspended-blanks-florida.html
+
 **Lebanon Moves to Disarm Palestinian Groups, a Test Run for Hezbollah**\
 `After war with Israel weakened Iran-backed militias across the Middle East, including the Lebanese group Hezbollah, Lebanon’s government has moved to assert its authority over armed groups.`\
 https://nytimes.com/2025/05/23/world/middleeast/lebanon-hezbollah-palestinian-refugee-camps.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/world/europe/kim-kardashian-paris-robbery-trial-v
 **Liam Hendriks speaks out about online threats: 'This is almost a daily occurrence'**\
 `Hendriks says players deal with threats constantly, especially connected to fans’ gambling: “(A)t some point, someone has to make a stand.”`\
 https://nytimes.com/athletic/6378091/2025/05/23/liam-hendriks-red-sox-online-threats-sports-gambling/
-
-**PWHL names Cara Gardner Morey as GM of Vancouver expansion franchise**\
-`Gardner Morey spent the last 14 years at Princeton, including eight as head coach of the Tigers.`\
-https://nytimes.com/athletic/6377683/2025/05/23/cara-gardner-morey-general-manager-vancouver-pwhl/
-
-**At Cannes, Sneaky Period Pieces and Film Lovers’ Delights Rule the Screen**\
-`Movies from China, Brazil, Iran and elsewhere prove that there’s so much more to cinema than Hollywood would have us believe.`\
-https://nytimes.com/2025/05/23/movies/cannes-film-festival-resurrection-magellan.html
 

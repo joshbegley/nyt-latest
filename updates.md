@@ -1,3 +1,15 @@
+**Lebanon Moves to Disarm Palestinian Groups, a Test Run for Hezbollah**\
+`After war with Israel weakened Iran-backed militias across the Middle East, including the Lebanese group Hezbollah, Lebanon’s government has moved to assert its authority over armed groups.`\
+https://nytimes.com/2025/05/23/world/middleeast/lebanon-hezbollah-palestinian-refugee-camps.html
+
+**The Chocolate Cake That Made a Times Reporter Go Vegan**\
+`A recipe for a vegan cake from a food blogger in Oregon helped a Times reporter to realize that plant-based eating could be delicious.`\
+https://nytimes.com/2025/05/23/climate/vegan-chocolate-cake.html
+
+**Read the document**\
+`Magistrate Judge André Espinosa of U.S. District Court, District of New Jersey, offered lengthy comments, critical of the government, before agreeing to dismiss federal trespassing charges against Ras J. Baraka, the mayor of Newark.`\
+https://nytimes.com/interactive/2025/05/23/us/mayor-baraka-judge-dismissal.html
+
 **Harvard sports face uncertainty over Trump effort to block foreign students**\
 `Harvard’s 919 athletes may not have much time to decide their next steps, depending on their sport.`\
 https://nytimes.com/athletic/6378103/2025/05/23/trump-harvard-international-student-athletes/
