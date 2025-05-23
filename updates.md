@@ -1,3 +1,12 @@
+**Trump Escalates Tariff Threats, Targeting Europe and Apple**\
+`The president threatened both Apple and the European Union with higher tariffs on social media Friday morning, saying that trade talks with the Europeans had stalled.`\
+https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple.html
+
+**Listen: Why Europa League success secures Son Heung-min's legacy**\
+`The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
+`\
+https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
+
 **Listen: Why Europa League success secures Son Heung-min's legacy**\
 `The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
 `\

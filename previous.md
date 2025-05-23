@@ -1,3 +1,7 @@
+**Trump Escalates Tariff Threats, Targeting Europe and Apple**\
+`The president threatened both Apple and the European Union with higher tariffs on social media Friday morning, saying that trade talks with the Europeans had stalled.`\
+https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple.html
+
 **Two Miss Austens, Asterix & Obelix and Robot Chambermaids**\
 `New international series include a drama about Jane Austen and her sister, a Netflix reboot of a French institution and a whimsical sci-fi anime.`\
 https://nytimes.com/2025/05/23/arts/television/two-miss-austens-asterix-and-obelix-netflix.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6376021/2025/05/23/padres-lose-blue-jays-six-game-s
 **Trump Administration Live Updates: President Threatens E.U. and Apple With New Tariffs**\
 ``\
 https://nytimes.com/live/2025/05/23/us/trump-news
-
-**Father's Day**\
-``\
-https://nytimes.com/spotlight/fathers-day
 

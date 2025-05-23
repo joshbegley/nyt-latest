@@ -1,3 +1,7 @@
+**The most intriguing wagers for a packed Memorial Day sports weekend**\
+`The WWE-esque Knicks-Pacers drama kicks off a juicy long weekend of sports, capped by the Indy 500.`\
+https://nytimes.com/athletic/6377491/2025/05/23/knicks-pacers-dodgers-mets-champions-league-drama-here-are-most-intriguing-weekend-wagers/
+
 **Trump Escalates Tariff Threats, Targeting Europe and Apple**\
 `The president threatened both Apple and the European Union with higher tariffs on social media Friday morning, saying that trade talks with the Europeans had stalled.`\
 https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6373734/2025/05/23/edmonton-oilers-nhl-playoffs-202
 **Six numbers to ponder after Padres' losing streak reaches 6 games**\
 `Is the sky falling again for San Diego? Probably not. But a difficult June schedule is almost here.`\
 https://nytimes.com/athletic/6376021/2025/05/23/padres-lose-blue-jays-six-game-streak/
-
-**Trump Administration Live Updates: President Threatens E.U. and Apple With New Tariffs**\
-``\
-https://nytimes.com/live/2025/05/23/us/trump-news
 
