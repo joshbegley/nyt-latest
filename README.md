@@ -1,3 +1,7 @@
+**Can a Jazz Bassist Who Served Time on Terror Charges Revive His Career?**\
+`Tarik Shah, who played with jazz greats in his youth, spent years behind bars after pleading guilty to plotting to teach martial arts to Qaeda fighters. Now he is out and working on a comeback.`\
+https://nytimes.com/2025/05/23/nyregion/jazz-bassist-tarik-shah-terror-charges.html
+
 **Liverpool receive Wirtz boost with Bayern believing he won't join them**\
 `Wirtz has been targeted by both clubs but is believed to favour Liverpool — although they would still need to agree a deal with Leverkusen.`\
 https://nytimes.com/athletic/6367666/2025/05/23/liverpool-florian-wirtz-transfer-bayern-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/style/ditch-weekly-montauk-newspaper-hamptons.htm
 **Tajín Grilled Chicken and Beer Brats; Pickle Lemonade and Ranch Water**\
 `All the things you’ll want to eat (and drink) this Memorial Day weekend.`\
 https://nytimes.com/2025/05/23/dining/tajin-grilled-chicken-and-beer-brats-pickle-lemonade-and-ranch-water.html
-
-**The Best Movies of 2025, So Far**\
-`Our critics picked 10 films that you might have missed but that are worth your time on this long holiday weekend.`\
-https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
 
