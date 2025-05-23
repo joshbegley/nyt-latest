@@ -1,3 +1,12 @@
+**Watch: The race for European football - and the benefit of not being involved**\
+`The Totally Football Show discusses why Nottingham Forest should not be disappointed should they miss out on a top-five spot.`\
+https://nytimes.com/athletic/6375476/2025/05/23/totally-football-show-nottingham-forest-champions-league/
+
+**Listen: Why Europa League success secures Son Heung-min's legacy**\
+`The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
+`\
+https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
+
 **Trump Takes on Apple — and Harvard, BlackRock and the E.U.**\
 `The president escalated battles with prominent American companies and institutions, as well as a key trading partner. The damage could be extensive.`\
 https://nytimes.com/2025/05/23/business/dealbook/trump-apple-harvard-blackrock-eu.html
