@@ -1,3 +1,11 @@
+**Yuri Grigorivich, Giant of Soviet Ballet, Is Dead at 98**\
+`Among the 20th century’s most significant choreographers, he led the Bolshoi Ballet for more than 30 years, creating epic ballets like “Spartacus.”`\
+https://nytimes.com/2025/05/23/arts/dance/yuri-grigorivich-dead.html
+
+**Alison Bechdel Is Finally at Peace Mixing Fiction and Memoir**\
+`The lauded cartoonist talks about the process behind her autobiographical new graphic novel, “Spent.”`\
+https://nytimes.com/2025/05/23/books/review/alison-bechdel-is-finally-at-peace-mixing-fiction-and-memoir.html
+
 **Judges Keep Calling Trump’s Actions Illegal, but Undoing Them Is Hard**\
 `Courts are serving as a rare check on President Trump, but judicial orders to unwind his actions can be easier said than done.`\
 https://nytimes.com/2025/05/23/us/politics/trump-administration-courts-judges-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/nyregion/nyc-mental-health-911.html
 **Trump Showed Images of ‘Genocide’ in South Africa. One Was From the War in Congo.**\
 `During a meeting with President Cyril Ramaphosa of South Africa, President Trump presented images, videos and news clippings that he said were evidence of genocide in South Africa. Fact-checking debunks the claims.`\
 https://nytimes.com/2025/05/23/us/politics/trump-south-africa-white-farmers-congo-fact-check.html
-
-**Florian Wirtz: How would he fit in at Liverpool and how does he play?**\
-`Liverpool have received a boost in their pursuit of Wirtz — but how does the playmaker perform on the pitch?`\
-https://nytimes.com/athletic/6377914/2025/05/23/florian-wirtz-liverpool-analysis-transfer-latest/
-
-**Ryan Gravenberch: 'Adapting to my new Liverpool role might have looked easy, but it was not'**\
-`The Netherlands midfielder has been a revelation as a No 6 under Arne Slot this season, and puts his transformation down to hard work`\
-https://nytimes.com/athletic/6374756/2025/05/23/gravenberch-role-slot-title-analysis/
 
