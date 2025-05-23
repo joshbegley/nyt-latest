@@ -1,3 +1,15 @@
+**Knife Attack at Train Station in Hamburg, Germany, Wounds at Least 17**\
+`Four of the victims are in critical condition. The police say they believe a 39-year-old woman carried out the attack, for which no motive has yet been given.`\
+https://nytimes.com/2025/05/23/world/europe/hamburg-germany-knife-attack.html
+
+**How the NASCAR sponsorship model is changing: 'A massive shift' in Amazon era**\
+`Gone are the days of season-long sponsorships. But a new TV deal and international expansion have team execs seeing increased interest.`\
+https://nytimes.com/athletic/6377324/2025/05/23/nascar-sponsorship-model-shift-amazon/
+
+**Liverpool open Wirtz transfer talks with Leverkusen**\
+`Communications between the clubs had already been opened after an agreement was reached for Liverpool to sign Jeremie Frimpong.`\
+https://nytimes.com/athletic/6378005/2025/05/23/florian-wirtz-liverpool-transfer/
+
 **Aryna Sabalenka Wants to Win the French Open for the First Time. Iga Swiatek Still Stands in Her Way.**\
 `Sabalenka has had success on clay, but Swiatek can be dominant.`\
 https://nytimes.com/2025/05/23/sports/tennis/aryna-sabalenka-french-open.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/23/us/army-rangers-suspended-blanks-florida.html
 **Lebanon Moves to Disarm Palestinian Groups, a Test Run for Hezbollah**\
 `After war with Israel weakened Iran-backed militias across the Middle East, including the Lebanese group Hezbollah, Lebanon’s government has moved to assert its authority over armed groups.`\
 https://nytimes.com/2025/05/23/world/middleeast/lebanon-hezbollah-palestinian-refugee-camps.html
-
-**The Chocolate Cake That Made a Times Reporter Go Vegan**\
-`A recipe for a vegan cake from a food blogger in Oregon helped a Times reporter to realize that plant-based eating could be delicious.`\
-https://nytimes.com/2025/05/23/climate/vegan-chocolate-cake.html
-
-**Read the document**\
-`Magistrate Judge André Espinosa of U.S. District Court, District of New Jersey, offered lengthy comments, critical of the government, before agreeing to dismiss federal trespassing charges against Ras J. Baraka, the mayor of Newark.`\
-https://nytimes.com/interactive/2025/05/23/us/mayor-baraka-judge-dismissal.html
-
-**Harvard sports face uncertainty over Trump effort to block foreign students**\
-`Harvard’s 919 athletes may not have much time to decide their next steps, depending on their sport.`\
-https://nytimes.com/athletic/6378103/2025/05/23/trump-harvard-international-student-athletes/
 
