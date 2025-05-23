@@ -1,3 +1,15 @@
+**Judge Blocks Trump Administration From Revoking Student Visas**\
+`Judge Jeffrey White of the Northern District of California provided temporary relief to some international students while a legal battle continues.`\
+https://nytimes.com/2025/05/22/us/politics/trump-international-student-visas.html
+
+**Woman Arrested for Spitting on Trump Justice Department Official**\
+`Ed Martin, the former interim U.S. attorney for Washington, stepped down from the position earlier this month.`\
+https://nytimes.com/2025/05/22/us/politics/ed-martin-spit-woman-arrest.html
+
+**Braves expected to activate Ronald Acuña Jr. on Friday: Source**\
+`Acuña was scratched from the lineup for Triple-A Gwinnett's game on Thursday. He played his first full rehab game on Wednesday.`\
+https://nytimes.com/athletic/6376556/2025/05/22/braves-ronald-acuna-return/
+
 **Former Los Angeles Deputy Mayor Agrees to Plead Guilty in Bomb Threat Case**\
 `The former City Hall aide, considered by colleagues a steady presence, faces a sentence of up to 10 years in prison.`\
 https://nytimes.com/2025/05/22/us/brian-williams-la-bomb-threat-guilty.html
