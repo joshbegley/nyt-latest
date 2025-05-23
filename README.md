@@ -1,3 +1,7 @@
+**Gary Neville banned by Forest in 'unprecedented and unwelcome step'**\
+`Neville was scheduled to be involved in Sky's coverage for Forest's home match against Chelsea on Sunday but was denied media accreditation.`\
+https://nytimes.com/athletic/6378126/2025/05/23/gary-neville-nottingham-forest-ban-sky/
+
 **Billy Joel Has Normal Pressure Hydrocephalus. What Is It?**\
 `The singer canceled his upcoming concerts because of the brain disorder. Here’s what to know about the symptoms, prognosis and treatment.`\
 https://nytimes.com/2025/05/23/well/billy-joel-normal-pressure-hydrocephalus.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/05/23/magazine/marriage-unplanned-pregnancy-ethics.html
 `Harvard University sued the Trump administration after it moved to block international students from enrolling.`\
 https://nytimes.com/video/us/politics/100000010187613/harvard-trump-international-students.html
 
-**Eight Found Guilty in Paris Over 2016 Robbery of Kim Kardashian**\
+**Paris Court Convicts Eight in 2016 Robbery of Kim Kardashian**\
 `The reality TV star was held at gunpoint as jewelry worth millions was stolen by men nicknamed the “grandpa robbers” because of their age.`\
 https://nytimes.com/2025/05/23/world/europe/kim-kardashian-paris-robbery-trial-verdict.html
-
-**Liam Hendriks speaks out about online threats: 'This is almost a daily occurrence'**\
-`Hendriks says players deal with threats constantly, especially connected to fans’ gambling: “(A)t some point, someone has to make a stand.”`\
-https://nytimes.com/athletic/6378091/2025/05/23/liam-hendriks-red-sox-online-threats-sports-gambling/
 
