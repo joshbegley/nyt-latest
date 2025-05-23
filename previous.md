@@ -1,3 +1,7 @@
+**The Bounce: With Thunder up 2-0, are Timberwolves running out of ideas and time?**\
+`In the third quarter, they separated themselves from Minnesota once again. Can the Wolves find a way to get into the series?`\
+https://nytimes.com/athletic/6377497/2025/05/23/shai-gilgeous-alexander-thunder-anthony-edwards-timberwolves-nba-playoffs-the-bounce/
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6372437/2025/05/23/fred-kerley-arrest-grand-slam-tr
 `Muhammad Yunus has struggled to navigate between the army, career politicians and the protest movement that overthrew the country’s authoritarian leader last year.`\
 https://nytimes.com/2025/05/23/world/asia/bangladesh-leader-yusuf-threat.html
 
-**Man Utd inform staff of redundancies after Europa League final loss**\
+**Man Utd inform football staff of redundancy risk 48 hours after Europa League final**\
 `Staff were informed by email they would be finding out their fate less than 48 hours after the Europa League final loss to Tottenham.`\
 https://nytimes.com/athletic/6377554/2025/05/23/manchester-united-redundancy-staff/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377476/2025/05/23/william-byron-hendrick-motorspor
 **Wharton, Nwaneri, Elliott in England Under-21 squad for Euros**\
 `England men's manager Thomas Tuchel said Wharton's exclusion from the senior side was to allow him to be a leading figure for the Under-21s.`\
 https://nytimes.com/athletic/6377532/2025/05/23/england-under-21-squad-wharton-nwaneri-elliott/
-
-**How to watch the Dodgers at Mets series, an NLCS rematch starring Ohtani and Alonso**\
-`We're getting a top-shelf series with three national broadcasts. The Dodgers' big bats visit the Mets and their league-best ERA.`\
-https://nytimes.com/athletic/6376254/2025/05/23/dodgers-mets-la-ny-ohtani-betts-alonso-lindor-how-to-watch/
 

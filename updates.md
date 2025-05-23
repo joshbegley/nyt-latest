@@ -1,3 +1,11 @@
+**The Bounce: With Thunder up 2-0, are Timberwolves running out of ideas and time?**\
+`In the third quarter, they separated themselves from Minnesota once again. Can the Wolves find a way to get into the series?`\
+https://nytimes.com/athletic/6377497/2025/05/23/shai-gilgeous-alexander-thunder-anthony-edwards-timberwolves-nba-playoffs-the-bounce/
+
+**Man Utd inform football staff of redundancy risk 48 hours after Europa League final**\
+`Staff were informed by email they would be finding out their fate less than 48 hours after the Europa League final loss to Tottenham.`\
+https://nytimes.com/athletic/6377554/2025/05/23/manchester-united-redundancy-staff/
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
