@@ -1,3 +1,11 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
+
+**Glasner: 'I'm 100 per cent committed' to Crystal Palace**\
+`Glasner's contract runs until June 2026, and he has led Palace to their highest Premier League points total and first major trophy.`\
+https://nytimes.com/athletic/6377740/2025/05/23/oliver-glasner-crystal-palace-future-contract/
+
 **Thunder were 'sharpened' by Nuggets series. Against Wolves, they have look of inevitability**\
 `"Our resolve in that series is what got sharpened," coach Mark Daigneault said, adding, "Now we have a different challenge."`\
 https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-playoffs-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6377532/2025/05/23/england-under-21-squad-wharton-n
 **How to watch the Dodgers at Mets series, an NLCS rematch starring Ohtani and Alonso**\
 `We're getting a top-shelf series with three national broadcasts. The Dodgers' big bats visit the Mets and their league-best ERA.`\
 https://nytimes.com/athletic/6376254/2025/05/23/dodgers-mets-la-ny-ohtani-betts-alonso-lindor-how-to-watch/
-
-**Markets Drop on Trump’s Latest Tariff Threats**\
-`President Trump said he would impose steep tariffs on goods from the European Union and targeted Apple with a tax on foreign-made iPhones.`\
-https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple-stock-markets.html
-
-**Williams given suspended 14-month prison sentence for dangerous driving**\
-`The 24-year-old defender has been also been banned from driving for three years and ordered to do 180 hours of community service.`\
-https://nytimes.com/athletic/6377518/2025/05/23/brandon-williams-case-speeding-manchester-united/
 
