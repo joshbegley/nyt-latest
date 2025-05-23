@@ -1,3 +1,7 @@
+**No. 12 Texas Tech knocks off No. 5 seed Florida State to advance to first WCWS**\
+`Star pitcher Canady allowed just one run and five hits across the Red Raiders' back-to-back wins in the Tallahassee super regional.`\
+https://nytimes.com/athletic/6378718/2025/05/23/texas-tech-florida-state-super-regionals-womens-college-world-series/
+
 **Eric Trump Starts Nonprofit to Build His Father’s Presidential Library**\
 `Meta and ABC News have already pledged a combined $37 million in funding for the library to settle lawsuits President Trump filed against them before taking office.`\
 https://nytimes.com/2025/05/23/us/elections/eric-trump-presidential-library-foundation.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010188567/jeff-goldblum-popcast.html
 **Drummer and Music Agent Among 6 Killed in San Diego Plane Crash**\
 `Friends paid tribute to Daniel Williams, a former drummer for the metalcore band The Devil Wears Prada, and Dave Shapiro, a music agent who worked with Sum 41, Hanson and other bands.`\
 https://nytimes.com/2025/05/23/us/san-diego-plane-crash-daniel-williams-dave-shapiro.html
-
-**Roland Garros and Me**\
-`Chris Eubanks explains what makes Roland-Garros so unique`\
-https://nytimes.com/paidpost/athletic/tnt/roland-garros-tournament.html
 
