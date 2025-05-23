@@ -1,3 +1,11 @@
+**Britta Curl-Salemme plays villain as Frost pull even with Charge in PWHL Finals: Takeaways**\
+`The Frost pulled off a dramatic late-game comeback to tie it up before winning Game 2 in overtime. `\
+https://nytimes.com/athletic/6376718/2025/05/22/minnesota-frost-ottawa-chargepwhl-finals-game-2/
+
+**Rockies tally MLB's worst record through 50 games since 1901**\
+`Colorado's record-breaking defeat wrapped up a series sweep for the NL-leading Phillies.`\
+https://nytimes.com/athletic/6376753/2025/05/22/rockies-colorado-mlbs-worst-record/
+
 **Place for a Cabin**\
 `Kate Hawkins opens our solving weekend.`\
 https://nytimes.com/2025/05/22/crosswords/daily-puzzle-2025-05-23.html

@@ -1,3 +1,11 @@
+**Britta Curl-Salemme plays villain as Frost pull even with Charge in PWHL Finals: Takeaways**\
+`The Frost pulled off a dramatic late-game comeback to tie it up before winning Game 2 in overtime. `\
+https://nytimes.com/athletic/6376718/2025/05/22/minnesota-frost-ottawa-chargepwhl-finals-game-2/
+
+**Rockies tally MLB's worst record through 50 games since 1901**\
+`Colorado's record-breaking defeat wrapped up a series sweep for the NL-leading Phillies.`\
+https://nytimes.com/athletic/6376753/2025/05/22/rockies-colorado-mlbs-worst-record/
+
 **Place for a Cabin**\
 `Kate Hawkins opens our solving weekend.`\
 https://nytimes.com/2025/05/22/crosswords/daily-puzzle-2025-05-23.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/us/harvard-international-students-trump-sevis.htm
 **Judge Blocks Trump Administration From Revoking Student Visas**\
 `Judge Jeffrey White of the Northern District of California provided temporary relief to some international students while a legal battle continues.`\
 https://nytimes.com/2025/05/22/us/politics/trump-international-student-visas.html
-
-**Woman Arrested for Spitting on Trump Justice Department Official**\
-`Ed Martin, the former interim U.S. attorney for Washington, stepped down from the position earlier this month.`\
-https://nytimes.com/2025/05/22/us/politics/ed-martin-spit-woman-arrest.html
-
-**Former Los Angeles Deputy Mayor Agrees to Plead Guilty in Bomb Threat Case**\
-`The former City Hall aide, considered by colleagues a steady presence, faces a sentence of up to 10 years in prison.`\
-https://nytimes.com/2025/05/22/us/brian-williams-la-bomb-threat-guilty.html
 
