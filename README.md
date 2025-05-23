@@ -1,3 +1,19 @@
+**Williams given suspended 14-month prison sentence for dangerous driving**\
+`The 24-year-old defender has been also been banned from driving for three years and ordered to do 180 hours of community service.`\
+https://nytimes.com/athletic/6377518/2025/05/23/brandon-williams-case-speeding-manchester-united/
+
+**Canucks offseason needs: How Vancouver measures up to NHL’s conference finalists**\
+`The Canucks will have to do a lot if they're going to catch up, and surpass these Stanley Cup contenders.`\
+https://nytimes.com/athletic/6377013/2025/05/23/canucks-nhl-conference-finals-2025/
+
+**Nottingham Forest Q&A: Nuno press conference, Champions League hopes**\
+`Nottingham Forest have one final opportunity to achieve their Champions League dreams when Chelsea visit the City Ground on Sunday.`\
+https://nytimes.com/athletic/6377407/2025/05/23/nottingham-forest-champions-league-hopes/
+
+**Why Tax Shelters Aren’t Just for Billionaires**\
+`The swelling budget deficit makes future tax increases likely, our columnist says, even if taxes are going down now. Hedge your bets with a concept from investing — diversification.`\
+https://nytimes.com/2025/05/23/business/tax-shelters-budget-retirement.html
+
 **The most intriguing wagers for a packed Memorial Day sports weekend**\
 `The WWE-esque Knicks-Pacers drama kicks off a juicy long weekend of sports, capped by the Indy 500.`\
 https://nytimes.com/athletic/6377491/2025/05/23/knicks-pacers-dodgers-mets-champions-league-drama-here-are-most-intriguing-weekend-wagers/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6375476/2025/05/23/totally-football-show-nottingham
 `The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
 `\
 https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
-
-**Trump Takes on Apple — and Harvard, BlackRock and the E.U.**\
-`The president escalated battles with prominent American companies and institutions, as well as a key trading partner. The damage could be extensive.`\
-https://nytimes.com/2025/05/23/business/dealbook/trump-apple-harvard-blackrock-eu.html
-
-**At the Combs Trial, the Elusive Victim-3 and Other Unsettled Questions**\
-`The major outlines of the prosecution of the music mogul Sean Combs have taken shape in a Manhattan courtroom. But several issues at the core of the case remain unanswered.`\
-https://nytimes.com/2025/05/23/arts/music/sean-combs-trial-testimony-questions.html
-
-**Lowetide: How the Oilers' playoff run informs potential offseason moves to come**\
-`As it stands now, several current Oilers may be playing their final games with the organization.`\
-https://nytimes.com/athletic/6373734/2025/05/23/edmonton-oilers-nhl-playoffs-2025-offseason-moves/
-
-**Six numbers to ponder after Padres' losing streak reaches 6 games**\
-`Is the sky falling again for San Diego? Probably not. But a difficult June schedule is almost here.`\
-https://nytimes.com/athletic/6376021/2025/05/23/padres-lose-blue-jays-six-game-streak/
 
