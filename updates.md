@@ -1,3 +1,19 @@
+**Aryna Sabalenka Wants to Win the French Open for the First Time. Iga Swiatek Still Stands in Her Way.**\
+`Sabalenka has had success on clay, but Swiatek can be dominant.`\
+https://nytimes.com/2025/05/23/sports/tennis/aryna-sabalenka-french-open.html
+
+**Tennis Was Once Ruled by Teenagers. Now, Not So Much.**\
+`Chris Evert, Steffi Graf, Bjorn Borg and Boris Becker grabbed the sport young. Today, it’s Joāo Fonseca and Mirra Andreeva.`\
+https://nytimes.com/2025/05/23/sports/tennis/french-open-teenage-players.html
+
+**Cleveland Guardians starter Ben Lively to undergo Tommy John surgery**\
+`The journeyman pitcher will have surgery in the coming days and is expected to miss 12 to 16 months. `\
+https://nytimes.com/athletic/6378249/2025/05/23/cleveland-guardians-starter-ben-lively-tommy-john/
+
+**Gary Neville banned by Forest in 'unprecedented and unwelcome step'**\
+`Neville was scheduled to be involved in Sky's coverage for Forest's home match against Chelsea on Sunday but was denied media accreditation.`\
+https://nytimes.com/athletic/6378126/2025/05/23/gary-neville-nottingham-forest-ban-sky/
+
 **Billy Joel Has Normal Pressure Hydrocephalus. What Is It?**\
 `The singer canceled his upcoming concerts because of the brain disorder. Here’s what to know about the symptoms, prognosis and treatment.`\
 https://nytimes.com/2025/05/23/well/billy-joel-normal-pressure-hydrocephalus.html

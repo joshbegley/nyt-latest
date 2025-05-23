@@ -1,3 +1,19 @@
+**Aryna Sabalenka Wants to Win the French Open for the First Time. Iga Swiatek Still Stands in Her Way.**\
+`Sabalenka has had success on clay, but Swiatek can be dominant.`\
+https://nytimes.com/2025/05/23/sports/tennis/aryna-sabalenka-french-open.html
+
+**Tennis Was Once Ruled by Teenagers. Now, Not So Much.**\
+`Chris Evert, Steffi Graf, Bjorn Borg and Boris Becker grabbed the sport young. Today, it’s Joāo Fonseca and Mirra Andreeva.`\
+https://nytimes.com/2025/05/23/sports/tennis/french-open-teenage-players.html
+
+**Cleveland Guardians starter Ben Lively to undergo Tommy John surgery**\
+`The journeyman pitcher will have surgery in the coming days and is expected to miss 12 to 16 months. `\
+https://nytimes.com/athletic/6378249/2025/05/23/cleveland-guardians-starter-ben-lively-tommy-john/
+
+**Gary Neville banned by Forest in 'unprecedented and unwelcome step'**\
+`Neville was scheduled to be involved in Sky's coverage for Forest's home match against Chelsea on Sunday but was denied media accreditation.`\
+https://nytimes.com/athletic/6378126/2025/05/23/gary-neville-nottingham-forest-ban-sky/
+
 **Billy Joel Has Normal Pressure Hydrocephalus. What Is It?**\
 `The singer canceled his upcoming concerts because of the brain disorder. Here’s what to know about the symptoms, prognosis and treatment.`\
 https://nytimes.com/2025/05/23/well/billy-joel-normal-pressure-hydrocephalus.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/05/23/us/mayor-baraka-judge-dismissal.html
 **Harvard sports face uncertainty over Trump effort to block foreign students**\
 `Harvard’s 919 athletes may not have much time to decide their next steps, depending on their sport.`\
 https://nytimes.com/athletic/6378103/2025/05/23/trump-harvard-international-student-athletes/
-
-**Does My Spouse Get a Say in Whether to Carry an Unplanned Pregnancy?**\
-`We already have three kids; my husband doesn’t want a fourth. How much do I have to take his concerns into account when I don’t share them?`\
-https://nytimes.com/2025/05/23/magazine/marriage-unplanned-pregnancy-ethics.html
-
-**Judge Blocks Trump Move to Ban Foreign Students at Harvard**\
-`Harvard University sued the Trump administration after it moved to block international students from enrolling.`\
-https://nytimes.com/video/us/politics/100000010187613/harvard-trump-international-students.html
-
-**Eight Found Guilty in Paris Over 2016 Robbery of Kim Kardashian**\
-`The reality TV star was held at gunpoint as jewelry worth millions was stolen by men nicknamed the “grandpa robbers” because of their age.`\
-https://nytimes.com/2025/05/23/world/europe/kim-kardashian-paris-robbery-trial-verdict.html
-
-**Liam Hendriks speaks out about online threats: 'This is almost a daily occurrence'**\
-`Hendriks says players deal with threats constantly, especially connected to fans’ gambling: “(A)t some point, someone has to make a stand.”`\
-https://nytimes.com/athletic/6378091/2025/05/23/liam-hendriks-red-sox-online-threats-sports-gambling/
 
