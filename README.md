@@ -1,3 +1,7 @@
+**Billy Joel Announces Brain Disorder and Cancels All Concerts**\
+`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
+https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
+
 **After White House Row, South Africa Sets the Stage for Starlink Approval**\
 `A proposed regulatory change would allow Elon Musk’s satellite company and others like it to get a license without having to sell shares to Black South Africans.`\
 https://nytimes.com/2025/05/23/world/africa/south-africa-elon-musk-trump-starlink-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6367666/2025/05/23/liverpool-florian-wirtz-transfer
 **How Ivan Toney's form in Saudi Arabia led to his England recall: 'From February, he changed'**\
 `The story of the striker's season with Al Ahli - and why it convinced Thomas Tuchel`\
 https://nytimes.com/athletic/6377472/2025/05/23/ivan-toney-england-recall-saudi-arabia-al-ahli/
-
-**Judge rules against Crown's bid to have Brett Howden's text admitted**\
-`Prosecutors appealed the judge's ruling and are seeking a new application to get the potential evidence admitted.`\
-https://nytimes.com/athletic/6377859/2025/05/23/judge-rules-against-crowns-bid-to-have-brett-howdens-text-admitted/
 
