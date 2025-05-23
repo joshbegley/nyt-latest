@@ -1,3 +1,15 @@
+**Florian Wirtz: How would he fit in at Liverpool and how does he play?**\
+`Liverpool have received a boost in their pursuit of Wirtz — but how does the playmaker perform on the pitch?`\
+https://nytimes.com/athletic/6377914/2025/05/23/florian-wirtz-liverpool-analysis-transfer-latest/
+
+**Ryan Gravenberch: 'Adapting to my new Liverpool role might have looked easy, but it was not'**\
+`The Netherlands midfielder has been a revelation as a No 6 under Arne Slot this season, and puts his transformation down to hard work`\
+https://nytimes.com/athletic/6374756/2025/05/23/gravenberch-role-slot-title-analysis/
+
+**Can a Jazz Bassist Who Served Time on Terror Charges Revive His Career?**\
+`Tarik Shah, who played with jazz greats in his youth, spent years behind bars after pleading guilty to plotting to teach martial arts to Qaeda fighters. Now he is out and working on a comeback.`\
+https://nytimes.com/2025/05/23/nyregion/jazz-bassist-tarik-shah-terror-charges.html
+
 **Liverpool receive Wirtz boost with Bayern believing he won't join them**\
 `Wirtz has been targeted by both clubs but is believed to favour Liverpool — although they would still need to agree a deal with Leverkusen.`\
 https://nytimes.com/athletic/6367666/2025/05/23/liverpool-florian-wirtz-transfer-bayern-munich/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/23/movies/five-horror-movies-to-stream-now.html
 **Review: Dudamel Unveils a Love Letter to the Philharmonic**\
 `Kate Soper’s tender, whimsical “Orpheus Orchestra Opus Onus,” a tribute to the orchestra, had its premiere on Thursday with its composer as soloist.`\
 https://nytimes.com/2025/05/23/arts/music/gustavo-dudamel-kate-soper-new-york-philharmonic.html
-
-**They’re 15. Wait Until You Read Their Newspaper.**\
-`The Ditch Weekly, a paper by middle and high schoolers in Long Island, is covering the Hamptons from a new angle.`\
-https://nytimes.com/2025/05/23/style/ditch-weekly-montauk-newspaper-hamptons.html
-
-**Tajín Grilled Chicken and Beer Brats; Pickle Lemonade and Ranch Water**\
-`All the things you’ll want to eat (and drink) this Memorial Day weekend.`\
-https://nytimes.com/2025/05/23/dining/tajin-grilled-chicken-and-beer-brats-pickle-lemonade-and-ranch-water.html
-
-**The Best Movies of 2025, So Far**\
-`Our critics picked 10 films that you might have missed but that are worth your time on this long holiday weekend.`\
-https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
 
