@@ -1,3 +1,15 @@
+**After White House Row, South Africa Sets the Stage for Starlink Approval**\
+`A proposed regulatory change would allow Elon Musk’s satellite company and others like it to get a license without having to sell shares to Black South Africans.`\
+https://nytimes.com/2025/05/23/world/africa/south-africa-elon-musk-trump-starlink-white-house.html
+
+**A Surreal Night on the French Riviera With Jeff Bezos and Duran Duran**\
+`Heidi Klum, Colman Domingo, Kimberly Guilfoyle and more attended the lavish amfAR gala, held at the end of the Cannes Film Festival.`\
+https://nytimes.com/2025/05/23/style/cannes-amfar-gala-celebrities.html
+
+**New York City’s Mental Health Crisis Response Falls Short, Audit Finds**\
+`A program that sends health professionals, instead of police officers, to respond to 911 calls about people in mental distress has struggled to meet demand.`\
+https://nytimes.com/2025/05/23/nyregion/nyc-mental-health-911.html
+
 **Trump Showed Images of ‘Genocide’ in South Africa. One Was From the War in Congo.**\
 `During a meeting with President Cyril Ramaphosa of South Africa, President Trump presented images, videos and news clippings that he said were evidence of genocide in South Africa. Fact-checking debunks the claims.`\
 https://nytimes.com/2025/05/23/us/politics/trump-south-africa-white-farmers-congo-fact-check.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6377472/2025/05/23/ivan-toney-england-recall-saudi-
 **Judge rules against Crown's bid to have Brett Howden's text admitted**\
 `Prosecutors appealed the judge's ruling and are seeking a new application to get the potential evidence admitted.`\
 https://nytimes.com/athletic/6377859/2025/05/23/judge-rules-against-crowns-bid-to-have-brett-howdens-text-admitted/
-
-**How to watch the Golden State Valkyries: Broadcast and streaming info for inaugural season**\
-`The WNBA broadcast rotation can be confusing, especially as it expands its presence. Here’s our 2025 guide for the Golden State Valkyries.`\
-https://nytimes.com/athletic/6371125/2025/05/23/golden-state-valkyries-wnba-how-to-watch/
-
-**One Type of Mammogram Proves Better for Women With Dense Breasts**\
-`Contrast-enhanced mammography identified tumors as accurately as more expensive scans. But it is not widely used for screening in the United States.`\
-https://nytimes.com/2025/05/23/health/dense-breasts-cancer-mammograms.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s evils lurk around a bend in the road, behind a locked door and on the prom dance floor.`\
-https://nytimes.com/2025/05/23/movies/five-horror-movies-to-stream-now.html
 
