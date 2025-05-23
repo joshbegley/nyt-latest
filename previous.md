@@ -1,3 +1,15 @@
+**At the Combs Trial, the Elusive Victim-3 and Other Unsettled Questions**\
+`The major outlines of the prosecution of the music mogul Sean Combs have taken shape in a Manhattan courtroom. But several issues at the core of the case remain unanswered.`\
+https://nytimes.com/2025/05/23/arts/music/sean-combs-trial-testimony-questions.html
+
+**Lowetide: How the Oilers' playoff run informs potential offseason moves to come**\
+`As it stands now, several current Oilers may be playing their final games with the organization.`\
+https://nytimes.com/athletic/6373734/2025/05/23/edmonton-oilers-nhl-playoffs-2025-offseason-moves/
+
+**Six numbers to ponder after Padres' losing streak reaches 6 games**\
+`Is the sky falling again for San Diego? Probably not. But a difficult June schedule is almost here.`\
+https://nytimes.com/athletic/6376021/2025/05/23/padres-lose-blue-jays-six-game-streak/
+
 **Trump Administration Live Updates: Judge Extends Pause on Mass Federal Layoffs**\
 ``\
 https://nytimes.com/live/2025/05/23/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6375696/2025/05/23/amorim-tactics-man-united-europa
 **Two former Seahawks stars challenged each other. They show how relationships really grow**\
 `Bobby Wagner and K.J. Wright are close friends who also held each other accountable as teammates for nine seasons with the Seahawks.`\
 https://nytimes.com/athletic/6371130/2025/05/23/two-former-seahawks-stars-challenged-each-other-they-show-how-relationships-really-grow/
-
-**WNBA's familiar faces in new places: Assessing Kelsey Plum, DeWanna Bonner, more**\
-`Several impact players changed teams in the offseason. How are they fitting in with their new squads?`\
-https://nytimes.com/athletic/6376855/2025/05/23/wnba-new-fits-kelsey-plum-dewanna-bonner/
-
-**Were this year's City Connect uniforms an upgrade or downgrade? We grade all eight**\
-`Eight teams introduced new editions of City Connect uniforms this season. How do their new efforts stack up against their previous kits? `\
-https://nytimes.com/athletic/6375458/2025/05/23/city-connect-mlb-uniform-2025/
-
-**Man United post-Bilbao live Q&A: Carl Anka answers your questions**\
-`After the disappointment of Bilbao, get your questions in now and I'll be with you between 2-3pm BST (10-11am ET) to answer as many as I can`\
-https://nytimes.com/athletic/6375970/2025/05/23/man-united-amorim-future-transfers/
 

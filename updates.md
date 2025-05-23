@@ -1,3 +1,15 @@
+**At the Combs Trial, the Elusive Victim-3 and Other Unsettled Questions**\
+`The major outlines of the prosecution of the music mogul Sean Combs have taken shape in a Manhattan courtroom. But several issues at the core of the case remain unanswered.`\
+https://nytimes.com/2025/05/23/arts/music/sean-combs-trial-testimony-questions.html
+
+**Lowetide: How the Oilers' playoff run informs potential offseason moves to come**\
+`As it stands now, several current Oilers may be playing their final games with the organization.`\
+https://nytimes.com/athletic/6373734/2025/05/23/edmonton-oilers-nhl-playoffs-2025-offseason-moves/
+
+**Six numbers to ponder after Padres' losing streak reaches 6 games**\
+`Is the sky falling again for San Diego? Probably not. But a difficult June schedule is almost here.`\
+https://nytimes.com/athletic/6376021/2025/05/23/padres-lose-blue-jays-six-game-streak/
+
 **Trump Administration Live Updates: Judge Extends Pause on Mass Federal Layoffs**\
 ``\
 https://nytimes.com/live/2025/05/23/us/trump-news

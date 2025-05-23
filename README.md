@@ -1,3 +1,7 @@
+**Trump Takes on Apple — and Harvard, BlackRock and the E.U.**\
+`The president escalated battles with prominent American companies and institutions, as well as a key trading partner. The damage could be extensive.`\
+https://nytimes.com/2025/05/23/business/dealbook/trump-apple-harvard-blackrock-eu.html
+
 **At the Combs Trial, the Elusive Victim-3 and Other Unsettled Questions**\
 `The major outlines of the prosecution of the music mogul Sean Combs have taken shape in a Manhattan courtroom. But several issues at the core of the case remain unanswered.`\
 https://nytimes.com/2025/05/23/arts/music/sean-combs-trial-testimony-questions.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6373734/2025/05/23/edmonton-oilers-nhl-playoffs-202
 `Is the sky falling again for San Diego? Probably not. But a difficult June schedule is almost here.`\
 https://nytimes.com/athletic/6376021/2025/05/23/padres-lose-blue-jays-six-game-streak/
 
-**Trump Administration Live Updates: Judge Extends Pause on Mass Federal Layoffs**\
+**Trump Administration Live Updates: President Threatens E.U. With 50% Tariffs**\
 ``\
 https://nytimes.com/live/2025/05/23/us/trump-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371613/2025/05/23/winnipeg-jets-who-stays-who-goes
 **Were Ruben Amorim's tactics to blame for Man United's Europa League final loss or was it the players?**\
 `A squad overhaul and more time on the training pitch are necessary and Wednesday’s performance highlighted the issues United and Amorim face`\
 https://nytimes.com/athletic/6375696/2025/05/23/amorim-tactics-man-united-europa/
-
-**Two former Seahawks stars challenged each other. They show how relationships really grow**\
-`Bobby Wagner and K.J. Wright are close friends who also held each other accountable as teammates for nine seasons with the Seahawks.`\
-https://nytimes.com/athletic/6371130/2025/05/23/two-former-seahawks-stars-challenged-each-other-they-show-how-relationships-really-grow/
 
