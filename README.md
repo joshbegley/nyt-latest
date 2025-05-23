@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6376620/2025/05/22/darin-ruf-lawsuit-reds-tarp/
 
 **Shock at Harvard After Government Says International Students Must Go**\
 `Fear and confusion mounted quickly on Thursday as international students, who make up more than a quarter of the university’s enrollment, sought clarity or reassurance.`\
-https://nytimes.com/2025/05/22/us/shock-at-harvard-after-government-says-international-students-must-go.html
+https://nytimes.com/2025/05/22/us/harvard-international-students-trump.html
 
 **How Can the Government Stop Harvard From Enrolling International Students?**\
 `The Trump administration is relying on an obscure bureaucratic lever to stop the school, the latest in a series of aggressive moves.`\
