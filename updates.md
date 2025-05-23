@@ -1,3 +1,13 @@
+**UWCL final odds: Arsenal and Barca on the cusp of making history**\
+`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
+`\
+https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+
+**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
+`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
+`\
+https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+
 **In Attacks on Harvard, Chinese See Yet Another Reason to Write Off the U.S.**\
 `Beyond the shock for students, President Trump’s moves against higher education are being seen in China as a blow to one of the last admirable American institutions.`\
 https://nytimes.com/2025/05/23/world/asia/harvard-china-trump.html
