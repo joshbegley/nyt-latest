@@ -1,3 +1,7 @@
+**Trump Showed Images of ‘Genocide’ in South Africa. One Was From the War in Congo.**\
+`During a meeting with President Cyril Ramaphosa of South Africa, President Trump presented images, videos and news clippings that he said were evidence of genocide in South Africa. Fact-checking debunks the claims.`\
+https://nytimes.com/2025/05/23/us/politics/trump-south-africa-white-farmers-congo-fact-check.html
+
 **Florian Wirtz: How would he fit in at Liverpool and how does he play?**\
 `Liverpool have received a boost in their pursuit of Wirtz — but how does the playmaker perform on the pitch?`\
 https://nytimes.com/athletic/6377914/2025/05/23/florian-wirtz-liverpool-analysis-transfer-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/health/dense-breasts-cancer-mammograms.html
 **Five Horror Movies to Stream Now**\
 `This month’s evils lurk around a bend in the road, behind a locked door and on the prom dance floor.`\
 https://nytimes.com/2025/05/23/movies/five-horror-movies-to-stream-now.html
-
-**Review: Dudamel Unveils a Love Letter to the Philharmonic**\
-`Kate Soper’s tender, whimsical “Orpheus Orchestra Opus Onus,” a tribute to the orchestra, had its premiere on Thursday with its composer as soloist.`\
-https://nytimes.com/2025/05/23/arts/music/gustavo-dudamel-kate-soper-new-york-philharmonic.html
 
