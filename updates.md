@@ -1,3 +1,8 @@
+**Listen: Why Europa League success secures Son Heung-min's legacy**\
+`The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
+`\
+https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
+
 **The most intriguing wagers for a packed Memorial Day sports weekend**\
 `The WWE-esque Knicks-Pacers drama kicks off a juicy long weekend of sports, capped by the Indy 500.`\
 https://nytimes.com/athletic/6377491/2025/05/23/knicks-pacers-dodgers-mets-champions-league-drama-here-are-most-intriguing-weekend-wagers/
