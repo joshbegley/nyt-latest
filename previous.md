@@ -1,3 +1,15 @@
+**The Best Movies of 2025, So Far**\
+`Our critics picked 10 films that you might have missed but that are worth your time on this long holiday weekend.`\
+https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
+
+**‘Leap Together’: Kermit the Frog Gives a Graduation Speech**\
+`The cheery muppet donned a tiny cap and gown to inspire students at the University of Maryland. “Life is like a movie. Write your own ending,” he said.`\
+https://nytimes.com/2025/05/23/us/kermit-the-frog-commencement-speech-university-maryland.html
+
+**Kermit the Frog Delivers Commencement Address**\
+`Kermit took the podium in a muppet-size formal cap and gown on Thursday to deliver a commencement speech at the University of Maryland, the alma mater of his creator, Jim Henson.`\
+https://nytimes.com/video/us/100000010186849/kermit-the-frog-commencement-address.html
+
 **The Bounce: With Thunder up 2-0, are Timberwolves running out of ideas and time?**\
 `In the third quarter, they separated themselves from Minnesota once again. Can the Wolves find a way to get into the series?`\
 https://nytimes.com/athletic/6377497/2025/05/23/shai-gilgeous-alexander-thunder-anthony-edwards-timberwolves-nba-playoffs-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/23/world/asia/bangladesh-leader-yusuf-threat.html
 **Man Utd inform football staff of redundancy risk 48 hours after Europa League final**\
 `Staff were informed by email they would be finding out their fate less than 48 hours after the Europa League final loss to Tottenham.`\
 https://nytimes.com/athletic/6377554/2025/05/23/manchester-united-redundancy-staff/
-
-**Belinda Bencic withdraws from French Open, scratching first-round match with Elena Rybakina**\
-`Bencic had been set to play one of the most interesting opening matches of the 2025 French Open.`\
-https://nytimes.com/athletic/6377650/2025/05/23/belinda-bencic-french-open-out-injury-rybakina/
-
-**William Byron, Hendrick Motorsports agree to contract extension through 2029**\
-`Byron, a rising star in the Cup Series, will stay with the only NASCAR organization he's known for another four seasons.`\
-https://nytimes.com/athletic/6377476/2025/05/23/william-byron-hendrick-motorsports-contract-extension/
-
-**Wharton, Nwaneri, Elliott in England Under-21 squad for Euros**\
-`England men's manager Thomas Tuchel said Wharton's exclusion from the senior side was to allow him to be a leading figure for the Under-21s.`\
-https://nytimes.com/athletic/6377532/2025/05/23/england-under-21-squad-wharton-nwaneri-elliott/
 
