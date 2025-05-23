@@ -1,3 +1,11 @@
+**The Best Gifts for Co-Workers**\
+`Text by Samantha Schoech and Mari Uyehara`\
+https://nytimes.com/card/2025/05/23/smarter-living/wirecutter/the-best-gifts-for-co-workers
+
+**Is Trump’s ‘Made in America’ iPhone a Fantasy?**\
+`Apple has resisted pressure to make its most important product in the United States since 2016, and instead has moved some production to India.`\
+https://nytimes.com/2025/05/23/technology/apple-iphone-trump-india-china.html
+
 **Billy Joel Announces Brain Disorder and Cancels All Concerts**\
 `Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
 https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html

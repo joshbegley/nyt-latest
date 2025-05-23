@@ -1,3 +1,11 @@
+**The Best Gifts for Co-Workers**\
+`Text by Samantha Schoech and Mari Uyehara`\
+https://nytimes.com/card/2025/05/23/smarter-living/wirecutter/the-best-gifts-for-co-workers
+
+**Is Trump’s ‘Made in America’ iPhone a Fantasy?**\
+`Apple has resisted pressure to make its most important product in the United States since 2016, and instead has moved some production to India.`\
+https://nytimes.com/2025/05/23/technology/apple-iphone-trump-india-china.html
+
 **Billy Joel Announces Brain Disorder and Cancels All Concerts**\
 `Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
 https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6374756/2025/05/23/gravenberch-role-slot-title-anal
 **Can a Jazz Bassist Who Served Time on Terror Charges Revive His Career?**\
 `Tarik Shah, who played with jazz greats in his youth, spent years behind bars after pleading guilty to plotting to teach martial arts to Qaeda fighters. Now he is out and working on a comeback.`\
 https://nytimes.com/2025/05/23/nyregion/jazz-bassist-tarik-shah-terror-charges.html
-
-**Liverpool receive Wirtz boost with Bayern believing he won't join them**\
-`Wirtz has been targeted by both clubs but is believed to favour Liverpool — although they would still need to agree a deal with Leverkusen.`\
-https://nytimes.com/athletic/6367666/2025/05/23/liverpool-florian-wirtz-transfer-bayern-munich/
-
-**How Ivan Toney's form in Saudi Arabia led to his England recall: 'From February, he changed'**\
-`The story of the striker's season with Al Ahli - and why it convinced Thomas Tuchel`\
-https://nytimes.com/athletic/6377472/2025/05/23/ivan-toney-england-recall-saudi-arabia-al-ahli/
 

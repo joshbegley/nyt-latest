@@ -1,3 +1,7 @@
+**Judges Keep Calling Trump’s Actions Illegal, but Undoing Them Is Hard**\
+`Courts are serving as a rare check on President Trump, but judicial orders to unwind his actions can be easier said than done.`\
+https://nytimes.com/2025/05/23/us/politics/trump-administration-courts-judges-law.html
+
 **The Best Gifts for Co-Workers**\
 `Text by Samantha Schoech and Mari Uyehara`\
 https://nytimes.com/card/2025/05/23/smarter-living/wirecutter/the-best-gifts-for-co-workers
@@ -7,7 +11,7 @@ https://nytimes.com/card/2025/05/23/smarter-living/wirecutter/the-best-gifts-for
 https://nytimes.com/2025/05/23/technology/apple-iphone-trump-india-china.html
 
 **Billy Joel Announces Brain Disorder and Cancels All Concerts**\
-`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision and balance.”`\
+`Joel said he had normal pressure hydrocephalus, which has led to “problems with hearing, vision, and balance.”`\
 https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
 
 **After White House Row, South Africa Sets the Stage for Starlink Approval**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377914/2025/05/23/florian-wirtz-liverpool-analysis
 **Ryan Gravenberch: 'Adapting to my new Liverpool role might have looked easy, but it was not'**\
 `The Netherlands midfielder has been a revelation as a No 6 under Arne Slot this season, and puts his transformation down to hard work`\
 https://nytimes.com/athletic/6374756/2025/05/23/gravenberch-role-slot-title-analysis/
-
-**Can a Jazz Bassist Who Served Time on Terror Charges Revive His Career?**\
-`Tarik Shah, who played with jazz greats in his youth, spent years behind bars after pleading guilty to plotting to teach martial arts to Qaeda fighters. Now he is out and working on a comeback.`\
-https://nytimes.com/2025/05/23/nyregion/jazz-bassist-tarik-shah-terror-charges.html
 
