@@ -1,3 +1,7 @@
+**Liverpool receive Wirtz boost with Bayern believing he won't join them**\
+`Wirtz has been targeted by both clubs but is believed to favour Liverpool — although they would still need to agree a deal with Leverkusen.`\
+https://nytimes.com/athletic/6367666/2025/05/23/liverpool-florian-wirtz-transfer-bayern-munich/
+
 **How Ivan Toney's form in Saudi Arabia led to his England recall: 'From February, he changed'**\
 `The story of the striker's season with Al Ahli - and why it convinced Thomas Tuchel`\
 https://nytimes.com/athletic/6377472/2025/05/23/ivan-toney-england-recall-saudi-arabia-al-ahli/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/dining/tajin-grilled-chicken-and-beer-brats-pickl
 **The Best Movies of 2025, So Far**\
 `Our critics picked 10 films that you might have missed but that are worth your time on this long holiday weekend.`\
 https://nytimes.com/2025/05/23/movies/best-movies-2025-so-far.html
-
-**‘Leap Together’: Kermit the Frog Gives a Graduation Speech**\
-`The cheery muppet donned a tiny cap and gown to inspire students at the University of Maryland. “Life is like a movie. Write your own ending,” he said.`\
-https://nytimes.com/2025/05/23/us/kermit-the-frog-commencement-speech-university-maryland.html
 
