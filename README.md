@@ -1,3 +1,7 @@
+**Judge Extends Order Blocking Trump’s Planned Mass Layoffs**\
+`The ruling, which covers 22 agencies and also prohibits shutting down programs or offices, effectively pauses the president’s plans for reshaping much of the government while the case plays out.`\
+https://nytimes.com/2025/05/23/us/politics/court-ruling-federal-layoffs-trump.html
+
 **As Astros' rotation depth dwindles, Lance McCullers Jr.'s importance intensifies**\
 `Placing Ronel Blanco on the injured list Thursday means three-fifths of Houston's season-opening starting rotation is sidelined.`\
 https://nytimes.com/athletic/6376952/2025/05/23/astros-starting-pitching-lance-mccullers-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375306/2025/05/23/arsenal-second-place-premier-lea
 **FPL: Every burning question answered ahead of Gameweek 38**\
 `From what to do with Alexander Isak to how best to chase rank, Abdul Rehman explains how to navigate the final gameweek of the FPL season`\
 https://nytimes.com/athletic/6372720/2025/05/23/fantasy-premier-league-gameweek-38-guide-isak-saliba/
-
-**Confetti cannons, cigars and Wonderwall - How Spurs celebrated first trophy in 17 years**\
-`A rousing speech from Postecoglou, a party long into the night and a lot of singing - Spurs players marked their Europa League win in style`\
-https://nytimes.com/athletic/6375950/2025/05/23/tottenham-europa-celebrations-party/
 
