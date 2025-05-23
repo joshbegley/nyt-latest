@@ -1,40 +1,40 @@
-**How to Understand Trump’s Latest Deportation Tactics**\
-`This week saw a dramatic court showdown and a mysterious flight to Djibouti.`\
-https://nytimes.com/2025/05/23/world/how-to-understand-trumps-latest-deportation-tactics.html
+**How Phillies' Mick Abel found himself, raised his game and made the 'little wins' big**\
+`The path to Abel's debut started in an exit meeting after last season. He was helped — and challenged — along the way by coach Caleb Cotham.`\
+https://nytimes.com/athletic/6376802/2025/05/23/mick-abel-offseason-phillies-2025/
 
-**California Man Is Found Guilty of Starting Line Fire**\
-`Justin Halstenberg faces life in prison, prosecutors said, for starting a blaze that burned nearly 44,000 acres in Southern California last fall.`\
-https://nytimes.com/2025/05/23/us/line-fire-california-man-arson.html
+**Winnipeg Jets 2025-26 roster decisions: Who stays and who goes this offseason?**\
+`Will Ehlers stay? Will he go? What about the rest of the Jets — whether they need new contracts or not — as Winnipeg's offseason begins?`\
+https://nytimes.com/athletic/6371613/2025/05/23/winnipeg-jets-who-stays-who-goes/
 
-**MLB manager May-hem: Weird & Wild endings, and beginnings — for 3 new hires**\
-`The three new managers — Don Kelly (Pirates), Warren Schaeffer (Rockies) and Tony Mansolino (Orioles) — started a combined 4-19. Ouch!`\
-https://nytimes.com/athletic/6376136/2025/05/23/mlb-managers-may-firings-hirings-ejections/
+**Were Ruben Amorim's tactics to blame for Man United's Europa League final loss or was it the players?**\
+`A squad overhaul and more time on the training pitch are necessary and Wednesday’s performance highlighted the issues United and Amorim face`\
+https://nytimes.com/athletic/6375696/2025/05/23/amorim-tactics-man-united-europa/
 
-**Five Years After Floyd**\
-`We look at what has changed since George Floyd’s murder.`\
-https://nytimes.com/2025/05/23/briefing/five-years-after-floyd.html
+**Two former Seahawks stars challenged each other. They show how relationships really grow**\
+`Bobby Wagner and K.J. Wright are close friends who also held each other accountable as teammates for nine seasons with the Seahawks.`\
+https://nytimes.com/athletic/6371130/2025/05/23/two-former-seahawks-stars-challenged-each-other-they-show-how-relationships-really-grow/
 
-**Weird & Wild: The Pereda-Ohtani strikeout, Pirates' 5-run drought and a bonkers walk-off**\
-`The Pereda-Ohtani strikeout ranked way, way up there on the list of Most Unpredictable Baseball Moments. Let's get into all the reasons why.`\
-https://nytimes.com/athletic/6376564/2025/05/23/jhonny-pereda-strikes-out-ohtani-pirates-5-run-streak/
+**WNBA's familiar faces in new places: Assessing Kelsey Plum, DeWanna Bonner, more**\
+`Several impact players changed teams in the offseason. How are they fitting in with their new squads?`\
+https://nytimes.com/athletic/6376855/2025/05/23/wnba-new-fits-kelsey-plum-dewanna-bonner/
 
-**Joao Pedro to miss Brighton's final game of season after training altercation**\
-`Head coach Fabian Hurzeler confirmed the forward would not be selected for the trip to Tottenham.`\
-https://nytimes.com/athletic/6377327/2025/05/23/joao-pedro-brighton-tottenham-discipline/
+**Were this year's City Connect uniforms an upgrade or downgrade? We grade all eight**\
+`Eight teams introduced new editions of City Connect uniforms this season. How do their new efforts stack up against their previous kits? `\
+https://nytimes.com/athletic/6375458/2025/05/23/city-connect-mlb-uniform-2025/
 
-**Rhys Hoskins is sturdy and surging; a broadcasting bible comes home to Cooperstown and more Sliders**\
-`Plus a passion project for Padres manager Mike Shildt and a toast to the great George Wendt. `\
-https://nytimes.com/athletic/6373608/2025/05/23/rhys-hoskins-brewers-joe-garagiola-sliders/
+**Man United post-Bilbao live Q&A: Carl Anka answers your questions**\
+`After the disappointment of Bilbao, get your questions in now and I'll be with you between 2-3pm BST (10-11am ET) to answer as many as I can`\
+https://nytimes.com/athletic/6375970/2025/05/23/man-united-amorim-future-transfers/
 
-**The Athletic FC: Journeyman Captain America's big day, Pochettino and Slot's pointed comments**\
-`Today in TAFC: An American journeyman goes for glory in Germany, Pochettino explains his Gold Cup squad and it's farewell Luka Modric.`\
-https://nytimes.com/athletic/6377130/2025/05/23/pokal-corboz-slot-trent-pochettino-usmnt/
+**Mitch Marner makes little sense for the Flyers. But another top pending free agent does**\
+`The days of the Flyers going after a bright shiny object, as they did for so many years previously, are over.`\
+https://nytimes.com/athletic/6376281/2025/05/23/flyers-free-agency-marner-bennett/
 
-**Has the Thunder's pressure already broken the Timberwolves' will? 'You can feel it'**\
-`OKC's swarming defense has it in complete control of the Western Conference finals, while Minnesota is searching for answers.`\
-https://nytimes.com/athletic/6377058/2025/05/23/thunder-timberwolves-game-2-pressure/
+**The Athletic’s Friday football quiz question #56**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6377173/2025/05/23/the-athletics-friday-football-quiz-question-56/
 
-**Aaron Nesmith's historic heater flipped Game 1. He's only been rehearsing the moment for years**\
-`"Every team in the NBA wants a guy like Aaron Nesmith," Pacers teammate Tyrese Haliburton said of the Game 1 hero. `\
-https://nytimes.com/athletic/6376474/2025/05/23/aaron-nesmith-pacers-knicks-game-2-nba-playoffs-2025/
+**Olympic champion Noah Lyles to race 100m at London Diamond League**\
+`Lyles has not raced over that distance since the Olympic final last August, a title he won by one five-thousandths of a second.`\
+https://nytimes.com/athletic/6377278/2025/05/23/noah-lyles-diamond-league-london/
 

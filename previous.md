@@ -1,3 +1,31 @@
+**How to Understand Trump’s Latest Deportation Tactics**\
+`This week saw a dramatic court showdown and a mysterious flight to Djibouti.`\
+https://nytimes.com/2025/05/23/world/how-to-understand-trumps-latest-deportation-tactics.html
+
+**California Man Is Found Guilty of Starting Line Fire**\
+`Justin Halstenberg faces life in prison, prosecutors said, for starting a blaze that burned nearly 44,000 acres in Southern California last fall.`\
+https://nytimes.com/2025/05/23/us/line-fire-california-man-arson.html
+
+**MLB manager May-hem: Weird & Wild endings, and beginnings — for 3 new hires**\
+`The three new managers — Don Kelly (Pirates), Warren Schaeffer (Rockies) and Tony Mansolino (Orioles) — started a combined 4-19. Ouch!`\
+https://nytimes.com/athletic/6376136/2025/05/23/mlb-managers-may-firings-hirings-ejections/
+
+**Five Years After Floyd**\
+`We look at what has changed since George Floyd’s murder.`\
+https://nytimes.com/2025/05/23/briefing/five-years-after-floyd.html
+
+**Weird & Wild: The Pereda-Ohtani strikeout, Pirates' 5-run drought and a bonkers walk-off**\
+`The Pereda-Ohtani strikeout ranked way, way up there on the list of Most Unpredictable Baseball Moments. Let's get into all the reasons why.`\
+https://nytimes.com/athletic/6376564/2025/05/23/jhonny-pereda-strikes-out-ohtani-pirates-5-run-streak/
+
+**Joao Pedro to miss Brighton's final game of season after training altercation**\
+`Head coach Fabian Hurzeler confirmed the forward would not be selected for the trip to Tottenham.`\
+https://nytimes.com/athletic/6377327/2025/05/23/joao-pedro-brighton-tottenham-discipline/
+
+**Rhys Hoskins is sturdy and surging; a broadcasting bible comes home to Cooperstown and more Sliders**\
+`Plus a passion project for Padres manager Mike Shildt and a toast to the great George Wendt. `\
+https://nytimes.com/athletic/6373608/2025/05/23/rhys-hoskins-brewers-joe-garagiola-sliders/
+
 **The Athletic FC: Journeyman Captain America's big day, Pochettino and Slot's pointed comments**\
 `Today in TAFC: An American journeyman goes for glory in Germany, Pochettino explains his Gold Cup squad and it's farewell Luka Modric.`\
 https://nytimes.com/athletic/6377130/2025/05/23/pokal-corboz-slot-trent-pochettino-usmnt/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6377058/2025/05/23/thunder-timberwolves-game-2-pres
 **Aaron Nesmith's historic heater flipped Game 1. He's only been rehearsing the moment for years**\
 `"Every team in the NBA wants a guy like Aaron Nesmith," Pacers teammate Tyrese Haliburton said of the Game 1 hero. `\
 https://nytimes.com/athletic/6376474/2025/05/23/aaron-nesmith-pacers-knicks-game-2-nba-playoffs-2025/
-
-**The Pulse: An impossible streak continues**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6375826/2025/05/23/hurricanes-panthers-streak-the-pulse/
-
-**Julius Randle's first playoff clunker comes at worst possible time for humbled Wolves**\
-`Randle had been a major driver of Minnesota's push to the West finals. His struggles in Game 2 are one reason the Wolves are in trouble.`\
-https://nytimes.com/athletic/6376625/2025/05/23/julius-randle-timberwolves-west-finals-thunder/
-
-**For better or worse, this is the Knicks' true identity**\
-`As we've seen this season and in the playoffs, the Knicks too often require a kick in the behind when they struggle against the top teams.`\
-https://nytimes.com/athletic/6375927/2025/05/23/knicks-pacers-eastern-conference-finals-nba/
-
-**Presenting the Braves' All-Quarter Century Team, the best in Atlanta since 2000**\
-`Chipper Jones and The Big Three are among the Braves who bring Cooperstown credentials to this star-studded squad.`\
-https://nytimes.com/athletic/6376024/2025/05/23/atlanta-braves-quarter-century-team/
-
-**'This is part of my legacy now': Dion Dawkins makes legends proud with Protector Award**\
-`Dion Dawkins felt strongly that offensive lineman deserved to be recognized.`\
-https://nytimes.com/athletic/6376834/2025/05/23/nfl-offensive-lineman-protector-award-dion-dawkins/
-
-**Guardians' black hole in right field, and who could maybe, finally, fix it**\
-`Right field has long been a land of platoon bats, repositioned infielders and patchwork free-agent signings for Cleveland.`\
-https://nytimes.com/athletic/6369785/2025/05/23/guardians-black-hole-right-field/
-
-**Jim Irsay said the NFL would keep rolling after he died, so what's next for Colts?**\
-`Carlie Irsay-Gordon, Casey Foyt and Kalen Jackson are expected to take control of the franchise as co-owners.`\
-https://nytimes.com/athletic/6374751/2025/05/23/jim-irsay-colts-owner-died-nfl-future/
 
