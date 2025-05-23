@@ -1,3 +1,7 @@
+**Bloomberg Will Have to Pay Up for a Broken Promise to His 2020 Staff**\
+`When Michael Bloomberg ran for president in 2020, his employees were told they would be paid through November. They were not, several sued, and one just won his demand for the back pay.`\
+https://nytimes.com/2025/05/23/us/politics/bloomberg-2020-staff-pay-lawsuit.html
+
 **Jason Ayto leaves Arsenal after interim spell as sporting director**\
 `Ayto had been assistant to former Arsenal sporting director Edu, who left the club in November, before temporarily holding the position.`\
 https://nytimes.com/athletic/6183061/2025/05/23/arsenal-sporting-director-ayto-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/arts/music/billy-joel-brain-disorder-nph.html
 **After White House Row, South Africa Sets the Stage for Starlink Approval**\
 `A proposed regulatory change would allow Elon Musk’s satellite company and others like it to get a license without having to sell shares to Black South Africans.`\
 https://nytimes.com/2025/05/23/world/africa/south-africa-elon-musk-trump-starlink-white-house.html
-
-**A Surreal Night on the French Riviera With Jeff Bezos and Duran Duran**\
-`Heidi Klum, Colman Domingo, Kimberly Guilfoyle and more attended the lavish amfAR gala, held at the end of the Cannes Film Festival.`\
-https://nytimes.com/2025/05/23/style/cannes-amfar-gala-celebrities.html
 

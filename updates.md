@@ -1,3 +1,7 @@
+**Bloomberg Will Have to Pay Up for a Broken Promise to His 2020 Staff**\
+`When Michael Bloomberg ran for president in 2020, his employees were told they would be paid through November. They were not, several sued, and one just won his demand for the back pay.`\
+https://nytimes.com/2025/05/23/us/politics/bloomberg-2020-staff-pay-lawsuit.html
+
 **Jason Ayto leaves Arsenal after interim spell as sporting director**\
 `Ayto had been assistant to former Arsenal sporting director Edu, who left the club in November, before temporarily holding the position.`\
 https://nytimes.com/athletic/6183061/2025/05/23/arsenal-sporting-director-ayto-exit/
