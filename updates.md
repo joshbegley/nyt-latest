@@ -1,3 +1,31 @@
+**Arsenal, three second places, and a time for self-assessment**\
+`The players need to work out for themselves how to get over the line, as the last Arsenal squad to finish second three times in a row did.`\
+https://nytimes.com/athletic/6375306/2025/05/23/arsenal-second-place-premier-league/
+
+**FPL: Every burning question answered ahead of Gameweek 38**\
+`From what to do with Alexander Isak to how best to chase rank, Abdul Rehman explains how to navigate the final gameweek of the FPL season`\
+https://nytimes.com/athletic/6372720/2025/05/23/fantasy-premier-league-gameweek-38-guide-isak-saliba/
+
+**Confetti cannons, cigars and Wonderwall - How Spurs celebrated first trophy in 17 years**\
+`A rousing speech from Postecoglou, a party long into the night and a lot of singing - Spurs players marked their Europa League win in style`\
+https://nytimes.com/athletic/6375950/2025/05/23/tottenham-europa-celebrations-party/
+
+**How Real Madrid won the race to sign Dean Huijsen - despite interest from Arsenal, Liverpool, Chelsea and more**\
+`Arsenal promised game time, Liverpool had the lure of Van Dijk and Newcastle were firmly in the mix — but here is how Madrid sealed the deal`\
+https://nytimes.com/athletic/6374725/2025/05/23/real-madrid-dean-huijsen-deal-arsenal-liverpool-chelsea-barcelona/
+
+**Sunderland: A club reformed, revived and one game from a Premier League return**\
+`The Wearsiders have worked towards self-sustainability and, under Regis Le Bris, have thrived with the youngest squad in the Championship`\
+https://nytimes.com/athletic/6372554/2025/05/23/sunderland-championship-dreyfus-playoff-bris/
+
+**Kevin, the creator: Analysing the four distinct eras of De Bruyne's time with Manchester City**\
+`Sam Lee celebrates the Belgian's decade of artistry and sheer destruction in a Manchester City shirt`\
+https://nytimes.com/athletic/6336609/2025/05/23/kevin-de-bruyne-man-city-career-analysis/
+
+**How Niko Kovac propelled Borussia Dortmund to the Champions League - and what happens next**\
+`Dortmund will go into another summer of significant change bolstered by the revenue guaranteed by participation in UEFA's elite competition`\
+https://nytimes.com/athletic/6374969/2025/05/23/borussia-dortmund-kovac-champions-league/
+
 **Gutierrez interview, 10 years on: Cancer, his Newcastle exit and being loved by Maradona**\
 `Saturday marks a decade since the midfielder scored his first goal after his cancer diagnosis, securing Newcastle's Premier League survival`\
 https://nytimes.com/athletic/6371934/2025/05/23/onas-gutierrez-interview-newcastle/
