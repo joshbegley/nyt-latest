@@ -34,7 +34,7 @@ https://nytimes.com/2025/05/23/us/florida-republicans-venezuelan-deportations.ht
 `The human caretakers of a black bear cub known as Baby Bear wear fur coats and camouflage masks to keep him from becoming too reliant on humans.`\
 https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
 
-**Byford, Once New York’s ‘Train Daddy,’ Picked to Run Penn Station Overhaul**\
+**Byford, Once New York’s ‘Train Daddy,’ Set to Lead Penn Station Overhaul**\
 `If approved for the job by the Amtrak board, Andy Byford will take the helm of one of the most high-profile, complex and expensive construction projects in the country.`\
 https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
 
