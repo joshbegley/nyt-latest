@@ -1,3 +1,11 @@
+**Roland Garros and Me**\
+`Chris Eubanks explains what makes Roland-Garros so unique`\
+https://nytimes.com/paidpost/athletic/tnt/roland-garros-and-me.html
+
+**Infantino says 'there are discussions' for Ronaldo to play in CWC**\
+`Ronaldo has been in negotiations to extend his contract with Al Nassr and there are no plans for a loan transfer.`\
+https://nytimes.com/athletic/6378611/2025/05/23/cristiano-ronaldo-club-world-cup/
+
 **Supreme Court, for Now, Shields DOGE from Turning Over Records**\
 `The chief justice put a temporary hold on a lower court ruling that Elon Musk’s government efficiency team and the Office of Management and Budget turn over internal records.`\
 https://nytimes.com/2025/05/23/us/politics/supreme-court-doge-records.html
