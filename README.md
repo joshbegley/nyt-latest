@@ -1,3 +1,7 @@
+**Thunder were 'sharpened' by Nuggets series. Against Wolves, they have look of inevitability**\
+`"Our resolve in that series is what got sharpened," coach Mark Daigneault said, adding, "Now we have a different challenge."`\
+https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-playoffs-wolves/
+
 **U.S. sprinter Kerley suspended by Grand Slam Track following battery charge**\
 `The 30-year-old also missed the meet in Miami at the start of the month.`\
 https://nytimes.com/athletic/6372437/2025/05/23/fred-kerley-arrest-grand-slam-track/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/us/politics/trump-tariffs-eu-apple-stock-markets.
 **Williams given suspended 14-month prison sentence for dangerous driving**\
 `The 24-year-old defender has been also been banned from driving for three years and ordered to do 180 hours of community service.`\
 https://nytimes.com/athletic/6377518/2025/05/23/brandon-williams-case-speeding-manchester-united/
-
-**Canucks offseason needs: How Vancouver measures up to NHL’s conference finalists**\
-`The Canucks will have to do a lot if they're going to catch up, and surpass these Stanley Cup contenders.`\
-https://nytimes.com/athletic/6377013/2025/05/23/canucks-nhl-conference-finals-2025/
 
