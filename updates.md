@@ -1,3 +1,13 @@
+**UWCL final odds: Arsenal and Barca on the cusp of making history**\
+`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
+`\
+https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+
+**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
+`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
+`\
+https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+
 **Caroline Garcia to play last French Open before retirement from tennis**\
 `Garcia, a former world No. 4, has said the 2025 French Open will be her last appearance at Roland Garros.`\
 https://nytimes.com/athletic/6377067/2025/05/23/tennis-caroline-garcia-retirement-french-open/
