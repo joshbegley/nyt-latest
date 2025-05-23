@@ -1,8 +1,16 @@
+**Judge Blocks Trump Administration From Revoking Student Visas**\
+`Judge Jeffrey White of the Northern District of California provided temporary relief to some international students while a legal battle continues.`\
+https://nytimes.com/2025/05/22/us/politics/trump-international-student-visas.html
+
+**Woman Arrested for Spitting on Trump Justice Department Official**\
+`Ed Martin, the former interim U.S. attorney for Washington, stepped down from the position earlier this month.`\
+https://nytimes.com/2025/05/22/us/politics/ed-martin-spit-woman-arrest.html
+
 **Former Los Angeles Deputy Mayor Agrees to Plead Guilty in Bomb Threat Case**\
 `The former City Hall aide, considered by colleagues a steady presence, faces a sentence of up to 10 years in prison.`\
 https://nytimes.com/2025/05/22/us/brian-williams-la-bomb-threat-guilty.html
 
-**Braves expected to activate Ronald Acuña Jr. on Friday**\
+**Braves expected to activate Ronald Acuña Jr. on Friday: Source**\
 `Acuña was scratched from the lineup for Triple-A Gwinnett's game on Thursday. He played his first full rehab game on Wednesday.`\
 https://nytimes.com/athletic/6376556/2025/05/22/braves-ronald-acuna-return/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/22/us/dc-shooting-jewish-museum-israel-embassy.html
 **NC State lands Texas Tech transfer Darrion Williams in big recruiting win**\
 `Wolfpack's new coach beats out Kansas in landing All-Big 12 forward.`\
 https://nytimes.com/athletic/6376406/2025/05/22/nc-state-will-wade-transfer-darrion-williams/
-
-**Trump Confirms Attempted Deportation of Migrants to South Sudan**\
-`The deportees are stuck in Djibouti amid a legal fight over their expulsions. A lawyer for some of the men said she was concerned for their health and welfare.`\
-https://nytimes.com/2025/05/22/us/politics/trump-deportations-south-sudan.html
-
-**PL gets government concession over regulator financial distribution deal**\
-`The government has made a late concession to the Premier League by agreeing to let English football’s new independent regulator impose a compromise financial distribution deal on the game, as opposed to having to pick one of two proposals.`\
-https://nytimes.com/athletic/6376330/2025/05/22/premier-league-uk-government-financial-distribution/
 
