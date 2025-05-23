@@ -1,3 +1,15 @@
+**Gutierrez interview, 10 years on: Cancer, his Newcastle exit and being loved by Maradona**\
+`Saturday marks a decade since the midfielder scored his first goal after his cancer diagnosis, securing Newcastle's Premier League survival`\
+https://nytimes.com/athletic/6371934/2025/05/23/onas-gutierrez-interview-newcastle/
+
+**Premier League race for top five: Forest vs Chelsea pivotal as five teams chase three Champions League spots on last day**\
+`Updates and analysis as the race to to qualify for next season's Champions League reaches an exciting climax on Sunday`\
+https://nytimes.com/athletic/6374676/2025/05/23/premier-league-top-five-race-man-cityy-chelsea-forest/
+
+**Should one match change the fate of Postecoglou or Amorim?**\
+`One win/defeat, and a scrappy goal has changed the outlook for Postecoglou and Amorim. But is that fair in the broader picture?`\
+https://nytimes.com/athletic/6374827/2025/05/23/tottenham-postecoglou-manchester-united-amorim/
+
 **Connections: Sports Edition Coach: Hints for May 23, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6376610/2025/05/23/connections-sports-edition-hints-for-may-23-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/23/style/modern-love-how-a-fake-bird-got-my-groove-b
 **Corrections: May 23, 2025**\
 `Corrections that appeared in print on Friday, May 23, 2025.`\
 https://nytimes.com/2025/05/22/pageoneplus/corrections-may-23-2025.html
-
-**Quote of the Day: A.I. May Make Weather Forecasting Faster and More Exac**\
-`Quotation of the Day for Friday, May 23, 2025.`\
-https://nytimes.com/2025/05/22/pageoneplus/quote-of-the-day-ai-may-make-weather-forecasting-faster-and-more-exac.html
-
-**NBA playoffs: Thunder clamp down on Timberwolves to take 2-0 series lead**\
-`The series will now shift to Minneapolis for Game 3. Will the Timberwolves respond? `\
-https://nytimes.com/athletic/6376766/2025/05/22/nba-playoffs-takeaways-thunder-timberwolves/
-
-**Columbia Violated Jewish Students’ Civil Rights, Trump Administration Finds**\
-`The university has previously been the target of more $400 million in federal funding cuts.`\
-https://nytimes.com/2025/05/22/us/politics/trump-administration-columbia-accusation.html
 
