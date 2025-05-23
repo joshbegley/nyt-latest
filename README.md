@@ -1,3 +1,7 @@
+**Father's Day**\
+``\
+https://nytimes.com/spotlight/fathers-day
+
 **Ukraine and Russia Set to Begin Largest Prisoner Exchange of War**\
 `President Trump trumpeted the event with a post on social networks.`\
 https://nytimes.com/2025/05/23/world/europe/ukraine-russia-prisoner-swap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375970/2025/05/23/man-united-amorim-future-transfe
 **Mitch Marner makes little sense for the Flyers. But another top pending free agent does**\
 `The days of the Flyers going after a bright shiny object, as they did for so many years previously, are over.`\
 https://nytimes.com/athletic/6376281/2025/05/23/flyers-free-agency-marner-bennett/
-
-**The Athletic’s Friday football quiz question #56**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6377173/2025/05/23/the-athletics-friday-football-quiz-question-56/
 
