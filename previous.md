@@ -1,3 +1,7 @@
+**Former MLB player Darin Ruf sues Reds over career-ending injury**\
+`Ruf's lawsuit cites an unpadded metal roller: "Players shouldn't have to worry about hidden hazards like that on a major-league field."`\
+https://nytimes.com/athletic/6376620/2025/05/22/darin-ruf-lawsuit-reds-tarp/
+
 **Shock at Harvard After Government Says International Students Must Go**\
 `Fear and confusion mounted quickly on Thursday as international students, who make up more than a quarter of the university’s enrollment, sought clarity or reassurance.`\
 https://nytimes.com/2025/05/22/us/shock-at-harvard-after-government-says-international-students-must-go.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/politics/dc-shooting-suspect-israel-embassy-ai
 **Brendan Shanahan's 11-year Maple Leafs odyssey: Vision, hope, stubborn belief and failure**\
 `After 11 years as Maple Leafs president, Brendan Shanahan is out. How did a tenure that began with so much promise grow so stale?`\
 https://nytimes.com/athletic/5489947/2025/05/22/maple-leafs-brendan-shanahan-era-ends/
-
-**Millions Could Lose Food Stamp Benefits Under Republican Bill, Analysis Finds**\
-`Others could see their monthly benefits reduced if the bill were to become law, according to the nonpartisan Congressional Budget Office.`\
-https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
 
