@@ -1,3 +1,7 @@
+**Trump Showed Images of ‘Genocide’ in South Africa. One Was From the War in Congo.**\
+`During a meeting with President Cyril Ramaphosa of South Africa, President Trump presented images, videos and news clippings that he said were evidence of genocide in South Africa. Fact-checking debunks the claims.`\
+https://nytimes.com/2025/05/23/us/politics/trump-south-africa-white-farmers-congo-fact-check.html
+
 **Florian Wirtz: How would he fit in at Liverpool and how does he play?**\
 `Liverpool have received a boost in their pursuit of Wirtz — but how does the playmaker perform on the pitch?`\
 https://nytimes.com/athletic/6377914/2025/05/23/florian-wirtz-liverpool-analysis-transfer-latest/
