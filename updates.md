@@ -1,3 +1,11 @@
+**A California Wildlife Center’s Attempt to Keep ‘Baby Bear’ Wild**\
+`The human caretakers of the 3-month-old American black bear cub wear fur coats and camouflage Ghillie masks to prevent him from becoming reliant on humans.`\
+https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
+
+**Byford, Once New York’s ‘Train Daddy,’ to Lead Penn Station Overhaul**\
+`If approved for the job by the Amtrak board, Andy Byford will take the helm of one of the most high-profile, complex and expensive construction projects in the country.`\
+https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
+
 **MLSE boss Keith Pelley discusses Maple Leafs' future: What we learned**\
 `Brendan Shanahan won't be replaced as president — at least for now. How the Leafs will run, according to MLSE CEO Keith Pelley.`\
 https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
