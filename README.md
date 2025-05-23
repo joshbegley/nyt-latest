@@ -1,3 +1,7 @@
+**How Can the Government Stop Harvard From Enrolling International Students?**\
+`The Trump administration is relying on an obscure bureaucratic lever to stop the school, the latest in a series of aggressive moves.`\
+https://nytimes.com/2025/05/22/us/harvard-international-students-trump-sevis.html
+
 **Judge Blocks Trump Administration From Revoking Student Visas**\
 `Judge Jeffrey White of the Northern District of California provided temporary relief to some international students while a legal battle continues.`\
 https://nytimes.com/2025/05/22/us/politics/trump-international-student-visas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/politics/food-stamps-trump-tax-bill.html
 **Gunman Fired Repeatedly at Young Couple Outside Jewish Museum, F.B.I. Says**\
 `The authorities said the shooter was motivated by opposition to the war in Gaza when he killed two young Israeli Embassy employees in Washington.`\
 https://nytimes.com/2025/05/22/us/dc-shooting-jewish-museum-israel-embassy.html
-
-**NC State lands Texas Tech transfer Darrion Williams in big recruiting win**\
-`Wolfpack's new coach beats out Kansas in landing All-Big 12 forward.`\
-https://nytimes.com/athletic/6376406/2025/05/22/nc-state-will-wade-transfer-darrion-williams/
 
