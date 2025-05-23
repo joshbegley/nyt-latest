@@ -1,4 +1,4 @@
-**Panthers star Sam Reinhart leaves Game 2 vs. Hurricanes after collision, won't return**\
+**Panthers star Sam Reinhart leaves Game 2 after Sebastian Aho hit, won't return**\
 `Reinhart, who scored 39 goals and 81 points this season, was injured on a Sebastian Aho hip check in the first period Thursday.`\
 https://nytimes.com/athletic/6376701/2025/05/22/panthers-sam-reinhart-injured-nhl-playoffs/
 

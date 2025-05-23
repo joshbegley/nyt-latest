@@ -1,3 +1,11 @@
+**Panthers star Sam Reinhart leaves Game 2 vs. Hurricanes after collision, won't return**\
+`Reinhart, who scored 39 goals and 81 points this season, was injured on a Sebastian Aho hip check in the first period Thursday.`\
+https://nytimes.com/athletic/6376701/2025/05/22/panthers-sam-reinhart-injured-nhl-playoffs/
+
+**Realigned Phillies bullpen finds its footing in 5 days after José Alvarado suspension**\
+`No one will read too much into the solid stretch because greater tests await. But it was some validation for a group under scrutiny. `\
+https://nytimes.com/athletic/6376599/2025/05/22/phillies-bullpen-adjusts-jose-alvarado-suspension/
+
 **Realigned Phillies bullpen finds its footing in 5 days following Alvarado suspension**\
 `No one will read too much into the solid stretch because greater tests await. But it was some validation for a group under scrutiny. `\
 https://nytimes.com/athletic/6376599/2025/05/22/phillies-bullpen-adjusts-jose-alvarado-suspension/
