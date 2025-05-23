@@ -1,3 +1,7 @@
+**Place for a Cabin**\
+`Kate Hawkins opens our solving weekend.`\
+https://nytimes.com/2025/05/22/crosswords/daily-puzzle-2025-05-23.html
+
 **Shock at Harvard After Government Says International Students Must Go**\
 `Fear and confusion mounted quickly on Thursday as international students, who make up more than a quarter of the university’s enrollment, sought clarity or reassurance.`\
 https://nytimes.com/2025/05/22/us/harvard-international-students-trump.html
