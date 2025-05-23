@@ -1,3 +1,7 @@
+**Watch: The race for European football - and the benefit of not being involved**\
+`The Totally Football Show discusses why Nottingham Forest should not be disappointed should they miss out on a top-five spot.`\
+https://nytimes.com/athletic/6375476/2025/05/23/totally-football-show-nottingham-forest-champions-league/
+
 **Listen: Why Europa League success secures Son Heung-min's legacy**\
 `The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/23/world/europe/ukraine-russia-prisoner-swap.html
 **How Phillies' Mick Abel found himself, raised his game and made the 'little wins' big**\
 `The path to Abel's debut started in an exit meeting after last season. He was helped — and challenged — along the way by coach Caleb Cotham.`\
 https://nytimes.com/athletic/6376802/2025/05/23/mick-abel-offseason-phillies-2025/
-
-**Winnipeg Jets 2025-26 roster decisions: Who stays and who goes this offseason?**\
-`Will Ehlers stay? Will he go? What about the rest of the Jets — whether they need new contracts or not — as Winnipeg's offseason begins?`\
-https://nytimes.com/athletic/6371613/2025/05/23/winnipeg-jets-who-stays-who-goes/
 
