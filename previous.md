@@ -1,42 +1,40 @@
-**Howe: Isak has 'a chance' of being fit for Newcastle vs Everton**\
-`The striker missed Newcastle's 1-0 defeat at Arsenal last Sunday, which left them fourth in the Premier League heading into the final day.`\
-https://nytimes.com/athletic/6377116/2025/05/23/alexander-isak-newcastle-everton/
+**The New York Times News Quiz, May 23, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/05/23/briefing/quiz-biden-brooklyn-george-wendt.html
 
-**Disney+ secures Women’s Champions League broadcast rights**\
-`Disney+ has agreed a five-year deal with the competition and will show every single match in the tournament.`\
-https://nytimes.com/athletic/6376400/2025/05/23/disney-womens-champions-league/
+**A Complete List of Everything in the Republican Bill, and How Much It Would Cost or Save**\
+`We highlighted the substantive changes made by House Republicans to secure the support of several holdout members.`\
+https://nytimes.com/interactive/2025/05/23/upshot/budget-table.html
 
-**Toney set to be recalled to England squad for first time since Euro 2024**\
-`The former Brentford forward is set to be rewarded by Thomas Tuchel for an impressive first season for Saudi Pro League club Al Ahli.`\
-https://nytimes.com/athletic/6377069/2025/05/23/england-squad-ivan-toney-call-up/
+**This Is the Tragic Consequence of Conflating Jews and Israel**\
+`The horrific killings of Yaron Lischinsky and Sarah Milgrim were shocking, but should not come as a surprise.`\
+https://nytimes.com/2025/05/23/opinion/israel-embassy-staff-killed.html
 
-**In Attacks on Harvard, Chinese See Yet Another Reason to Write Off the U.S.**\
-`Beyond the shock for students, President Trump’s moves against higher education are being seen in China as a blow to one of the last admirable American institutions.`\
-https://nytimes.com/2025/05/23/world/asia/harvard-china-trump.html
+**How to Stop Being So Judgy**\
+`Here’s what you should do instead.`\
+https://nytimes.com/2025/05/23/well/stop-being-judgemental.html
 
-**Caroline Garcia to play last French Open before retirement from tennis**\
-`Garcia, a former world No. 4, has said the 2025 French Open will be her last appearance at Roland Garros.`\
-https://nytimes.com/athletic/6377067/2025/05/23/tennis-caroline-garcia-retirement-french-open/
+**Trump's Big Budget Bomb**\
+`We are all in the blast radius of Trump’s tax-cut bill.`\
+https://nytimes.com/video/opinion/100000010186562/trumps-big-budget-bomb.html
 
-**UWCL final odds: Arsenal and Barca on the cusp of making history**\
-`Maryam Clark outlines the best odds around this Saturday’s Women’s Champions League final between Arsenal and Barcelona. 
-`\
-https://nytimes.com/athletic/6372536/2025/05/23/womens-champions-league-final-barcelona-arsenal-betting-predictions/
+**Josh Hart’s Children’s Playroom, Mini Basketball Hoop Included**\
+`The Knicks player Josh Hart and his wife, Shannon Hart, commissioned Greenwich Play to design a multifaceted playroom for their twin boys.`\
+https://nytimes.com/2025/05/23/realestate/josh-hart-playroom-design.html
 
-**Championship play-off final bets: Hamer shots, Hume fouls and an upset win?**\
-`Sam Tighe explores the best bets around this Saturday’s Championship play-off final between Sunderland and Sheffield United.
-`\
-https://nytimes.com/athletic/6375092/2025/05/23/championship-playoff-final-betting-predictions-odds/
+**Everyone Now Has an Opinion on Jake Tapper**\
+`A book the CNN host co-wrote has received positive reviews and appears to be a sales hit. But it has also generated intense scrutiny of him and his work.`\
+https://nytimes.com/2025/05/23/business/media/everyone-now-has-an-opinion-on-jake-tapper.html
 
-**Could a Brooklyn City Councilwoman Lose Because of Her Stance on Gaza?**\
-`Shahana Hanif, the incumbent in an upcoming Democratic primary race, has been an outspoken advocate of the Palestinian cause, rattling some of the residents in her progressive district.`\
-https://nytimes.com/2025/05/23/nyregion/shahana-hanif-maya-kornberg-council-race.html
+**Pro-Palestinian Movement Faces an Uncertain Path After Embassy Attack**\
+`The slaying of two Israeli Embassy workers cast a harsh spotlight on pro-Palestinian groups in the United States. Activists, who were already being scrutinized, could face further pushback.`\
+https://nytimes.com/2025/05/23/us/pro-palestinian-movement-embassy-attack.html
 
-**New Studies Dismiss Signs of Life on Distant Planet**\
-`In April, astronomers said they had detected a possible signature of life on the exoplanet K2-18b. Now, three independent analyses discount the evidence.`\
-https://nytimes.com/2025/05/23/science/astronomy-extraterrestrial-life-k218b.html
+**In ‘Cancer Alley,’ a Battle Over Who Gets to Measure Air Pollution**\
+`Community groups are fighting an unusual Louisiana law that restricts how they use data from air-quality monitors, saying it violates free speech.`\
+https://nytimes.com/2025/05/23/climate/cancer-alley-air-pollution-free-speech.html
 
-**People Long to Believe, Both Inside and Outside Religion**\
-`A New York Times series is exploring how religion and spirituality shape our lives. The reporter behind it found examples in houses of worship, in sports stadiums and at Taylor Swift concerts.`\
-https://nytimes.com/2025/05/23/insider/people-long-to-believe-both-inside-and-outside-religion.html
+**Graduation**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/05/23/learning/graduation.html
 
