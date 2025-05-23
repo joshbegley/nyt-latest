@@ -1,3 +1,11 @@
+**Corrections: May 23, 2025**\
+`Corrections that appeared in print on Friday, May 23, 2025.`\
+https://nytimes.com/2025/05/22/pageoneplus/corrections-may-23-2025.html
+
+**Quote of the Day: A.I. May Make Weather Forecasting Faster and More Exac**\
+`Quotation of the Day for Friday, May 23, 2025.`\
+https://nytimes.com/2025/05/22/pageoneplus/quote-of-the-day-ai-may-make-weather-forecasting-faster-and-more-exac.html
+
 **NBA playoffs: Thunder clamp down on Timberwolves to take 2-0 series lead**\
 `The series will now shift to Minneapolis for Game 3. Will the Timberwolves respond? `\
 https://nytimes.com/athletic/6376766/2025/05/22/nba-playoffs-takeaways-thunder-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6376701/2025/05/22/panthers-sam-reinhart-injured-nh
 **Realigned Phillies bullpen finds its footing in 5 days after José Alvarado suspension**\
 `No one will read too much into the solid stretch because greater tests await. But it was some validation for a group under scrutiny. `\
 https://nytimes.com/athletic/6376599/2025/05/22/phillies-bullpen-adjusts-jose-alvarado-suspension/
-
-**Ex-McKinsey Partner Sentenced in Obstruction Case**\
-`The consultant had deleted records involving McKinsey’s role in pushing OxyContin sales and driving the opioid crisis.`\
-https://nytimes.com/2025/05/22/business/mckinsey-obstruction-opioids.html
-
-**Former MLB player Darin Ruf sues Reds over career-ending injury**\
-`Ruf's lawsuit cites an unpadded metal roller: "Players shouldn't have to worry about hidden hazards like that on a major-league field."`\
-https://nytimes.com/athletic/6376620/2025/05/22/darin-ruf-lawsuit-reds-tarp/
 
