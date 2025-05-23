@@ -1,3 +1,12 @@
+**Two Miss Austens, Asterix & Obelix and Robot Chambermaids**\
+`New international series include a drama about Jane Austen and her sister, a Netflix reboot of a French institution and a whimsical sci-fi anime.`\
+https://nytimes.com/2025/05/23/arts/television/two-miss-austens-asterix-and-obelix-netflix.html
+
+**Listen: Why Europa League success secures Son Heung-min's legacy**\
+`The View From The Lane discuss how winning the Europa League firmly cemented Son Heung-min’s legendary status at Tottenham.
+`\
+https://nytimes.com/athletic/6377126/2025/05/23/view-from-the-lane-son-heung-min-europa-league-trophy/
+
 **Harvard Sues Trump Administration Over Move to Bar International Students**\
 `Less than 24 hours earlier, the Trump administration had said it would block current and future international students from attending the university.`\
 https://nytimes.com/2025/05/23/us/harvard-university-trump-administration-alan-garber.html

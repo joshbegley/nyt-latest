@@ -1,3 +1,7 @@
+**Two Miss Austens, Asterix & Obelix and Robot Chambermaids**\
+`New international series include a drama about Jane Austen and her sister, a Netflix reboot of a French institution and a whimsical sci-fi anime.`\
+https://nytimes.com/2025/05/23/arts/television/two-miss-austens-asterix-and-obelix-netflix.html
+
 **Harvard Sues Trump Administration Over Move to Bar International Students**\
 `Less than 24 hours earlier, the Trump administration had said it would block current and future international students from attending the university.`\
 https://nytimes.com/2025/05/23/us/harvard-university-trump-administration-alan-garber.html
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/05/23/us/trump-news
 **Father's Day**\
 ``\
 https://nytimes.com/spotlight/fathers-day
-
-**Ukraine and Russia Set to Begin Largest Prisoner Exchange of War**\
-`President Trump trumpeted the event with a post on social networks.`\
-https://nytimes.com/2025/05/23/world/europe/ukraine-russia-prisoner-swap.html
 
