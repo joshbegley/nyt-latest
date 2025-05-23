@@ -1,3 +1,7 @@
+**Reds pitcher Rhett Lowder's rehab assignment paused due to oblique strain**\
+`Lowder’s rehab assignment has been paused after an MRI showed a left oblique strain following his shortened outing Thursday.`\
+https://nytimes.com/athletic/6378552/2025/05/23/reds-rhett-lowder-rehab-injury/
+
 **Prime Tire: Why the Indy 500 scandal matters in F1 too. Plus, the key to staying dry in Monaco**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6375533/2025/05/23/indy-500-scandal-f1-monaco-prime-tire-newsletter/

@@ -1,3 +1,7 @@
+**Reds pitcher Rhett Lowder's rehab assignment paused due to oblique strain**\
+`Lowder’s rehab assignment has been paused after an MRI showed a left oblique strain following his shortened outing Thursday.`\
+https://nytimes.com/athletic/6378552/2025/05/23/reds-rhett-lowder-rehab-injury/
+
 **Prime Tire: Why the Indy 500 scandal matters in F1 too. Plus, the key to staying dry in Monaco**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6375533/2025/05/23/indy-500-scandal-f1-monaco-prime-tire-newsletter/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010188407/baby-bear-rescue-california.html
 **Byford, Once New York’s ‘Train Daddy,’ Picked to Run Penn Station Overhaul**\
 `If approved for the job by the Amtrak board, Andy Byford will take the helm of one of the most high-profile, complex and expensive construction projects in the country.`\
 https://nytimes.com/2025/05/23/nyregion/andy-byford-penn-station.html
-
-**MLSE boss Keith Pelley discusses Maple Leafs' future: What we learned**\
-`Brendan Shanahan won't be replaced as president — at least for now.`\
-https://nytimes.com/athletic/6378287/2025/05/23/maple-leafs-mlse-keith-pelley-shanahan-treliving/
 
