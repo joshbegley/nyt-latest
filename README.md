@@ -1,3 +1,7 @@
+**Ukraine and Russia Set to Begin Largest Prisoner Exchange of War**\
+`President Trump trumpeted the event with a post on social networks.`\
+https://nytimes.com/2025/05/23/world/europe/ukraine-russia-prisoner-swap.html
+
 **How Phillies' Mick Abel found himself, raised his game and made the 'little wins' big**\
 `The path to Abel's debut started in an exit meeting after last season. He was helped — and challenged — along the way by coach Caleb Cotham.`\
 https://nytimes.com/athletic/6376802/2025/05/23/mick-abel-offseason-phillies-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6376281/2025/05/23/flyers-free-agency-marner-bennet
 **The Athletic’s Friday football quiz question #56**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6377173/2025/05/23/the-athletics-friday-football-quiz-question-56/
-
-**Olympic champion Noah Lyles to race 100m at London Diamond League**\
-`Lyles has not raced over that distance since the Olympic final last August, a title he won by one five-thousandths of a second.`\
-https://nytimes.com/athletic/6377278/2025/05/23/noah-lyles-diamond-league-london/
 
