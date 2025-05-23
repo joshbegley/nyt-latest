@@ -1,3 +1,7 @@
+**Sebastião Salgado: A Life in Pictures**\
+`The celebrated Brazilian photojournalist depicted the world in stark contrasts, from the depths of human suffering to the monumental grandeur of nature.`\
+https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html
+
 **Matt Vierling is back, and the Tigers are getting reinforcements at the right time**\
 `Vierling was activated from the IL on Friday. Teammates Parker Meadows and Wenceel Pérez could soon join him in Detroit. `\
 https://nytimes.com/athletic/6378761/2025/05/23/matt-vierling-return-detroit-tigers-reinforcements/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6378761/2025/05/23/matt-vierling-return-detroit-tig
 `More than 100 relics connected to President Abraham Lincoln brought in $7.9 million, auctioneers said. The proceeds will help a presidential foundation repay a loan.`\
 https://nytimes.com/2025/05/23/us/abraham-lincoln-stained-gloves-auction.html
 
-**National Security Council Will Be Cut by Half**\
+**National Security Council Staff Will Be Cut by Half**\
 `The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
 https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/us/elections/eric-trump-presidential-library-foun
 **Brush Fire Near Popular California Lake Prompts Evacuations**\
 `The Inn fire had grown to over 700 acres to the northwest of Mono Lake, near the Nevada border. It’s one of several brush fires that have erupted in California in the last week as the weather has gotten warmer.`\
 https://nytimes.com/2025/05/23/us/brush-fire-mono-lake-california.html
-
-**Shohei Ohtani to face hitters for first time since 2023 elbow surgery**\
-`Ohtani will take an important step in his mission to return to the mound at Citi Field on Saturday.`\
-https://nytimes.com/athletic/6378637/2025/05/23/dodgers-shohei-ohtani-pitching-facing-hitters/
 
