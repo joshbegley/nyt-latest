@@ -1,3 +1,7 @@
+**Place for a Cabin**\
+`Kate Hawkins opens our solving weekend.`\
+https://nytimes.com/2025/05/22/crosswords/daily-puzzle-2025-05-23.html
+
 **Panthers star Sam Reinhart leaves Game 2 after Sebastian Aho hit, won't return**\
 `Reinhart, who scored 39 goals and 81 points this season, was injured on a Sebastian Aho hip check in the first period Thursday.`\
 https://nytimes.com/athletic/6376701/2025/05/22/panthers-sam-reinhart-injured-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/22/us/politics/ed-martin-spit-woman-arrest.html
 **Former Los Angeles Deputy Mayor Agrees to Plead Guilty in Bomb Threat Case**\
 `The former City Hall aide, considered by colleagues a steady presence, faces a sentence of up to 10 years in prison.`\
 https://nytimes.com/2025/05/22/us/brian-williams-la-bomb-threat-guilty.html
-
-**Braves expected to activate Ronald Acuña Jr. on Friday: Source**\
-`Acuña was scratched from the lineup for Triple-A Gwinnett's game on Thursday. He played his first full rehab game on Wednesday.`\
-https://nytimes.com/athletic/6376556/2025/05/22/braves-ronald-acuna-return/
 
