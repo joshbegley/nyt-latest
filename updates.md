@@ -1,3 +1,7 @@
+**Thunder were 'sharpened' by Nuggets series. Against Wolves, they have look of inevitability**\
+`"Our resolve in that series is what got sharpened," coach Mark Daigneault said, adding, "Now we have a different challenge."`\
+https://nytimes.com/athletic/6376884/2025/05/23/thunder-lessons-nuggets-nba-playoffs-wolves/
+
 **U.S. sprinter Kerley suspended by Grand Slam Track following battery charge**\
 `The 30-year-old also missed the meet in Miami at the start of the month.`\
 https://nytimes.com/athletic/6372437/2025/05/23/fred-kerley-arrest-grand-slam-track/
