@@ -1,3 +1,7 @@
+**How to watch the Golden State Valkyries: Broadcast and streaming info for inaugural season**\
+`The WNBA broadcast rotation can be confusing, especially as it expands its presence. Here’s our 2025 guide for the Golden State Valkyries.`\
+https://nytimes.com/athletic/6371125/2025/05/23/golden-state-valkyries-wnba-how-to-watch/
+
 **One Type of Mammogram Proves Better for Women With Dense Breasts**\
 `Contrast-enhanced mammography identified tumors as accurately as more expensive scans. But it is not widely used for screening in the United States.`\
 https://nytimes.com/2025/05/23/health/dense-breasts-cancer-mammograms.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010186849/kermit-the-frog-commencement-addres
 **The Bounce: With Thunder up 2-0, are Timberwolves running out of ideas and time?**\
 `In the third quarter, they separated themselves from Minnesota once again. Can the Wolves find a way to get into the series?`\
 https://nytimes.com/athletic/6377497/2025/05/23/shai-gilgeous-alexander-thunder-anthony-edwards-timberwolves-nba-playoffs-the-bounce/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 38?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/6372595/2025/05/23/premier-league-predicted-line-ups-gameweek-38/
 
