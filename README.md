@@ -1,3 +1,7 @@
+**The Athletic FC: Journeyman Captain America's big day, Pochettino and Slot's pointed comments**\
+`Today in TAFC: An American journeyman goes for glory in Germany, Pochettino explains his Gold Cup squad and it's farewell Luka Modric.`\
+https://nytimes.com/athletic/6377130/2025/05/23/pokal-corboz-slot-trent-pochettino-usmnt/
+
 **Has the Thunder's pressure already broken the Timberwolves' will? 'You can feel it'**\
 `OKC's swarming defense has it in complete control of the Western Conference finals, while Minnesota is searching for answers.`\
 https://nytimes.com/athletic/6377058/2025/05/23/thunder-timberwolves-game-2-pressure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369785/2025/05/23/guardians-black-hole-right-field
 **Jim Irsay said the NFL would keep rolling after he died, so what's next for Colts?**\
 `Carlie Irsay-Gordon, Casey Foyt and Kalen Jackson are expected to take control of the franchise as co-owners.`\
 https://nytimes.com/athletic/6374751/2025/05/23/jim-irsay-colts-owner-died-nfl-future/
-
-**The 10 key moments that defined the Maple Leafs' Shanaplan era**\
-`Shanahan leaves in his wake a number of memorable moments and key decisions that still impact the team on and off the ice.`\
-https://nytimes.com/athletic/6376451/2025/05/23/maple-leafs-brendan-shanahan-era/
 
