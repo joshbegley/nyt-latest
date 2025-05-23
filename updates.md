@@ -1,3 +1,7 @@
+**Review: Dudamel Unveils a Love Letter to the Philharmonic**\
+`Kate Soper’s tender, whimsical “Orpheus Orchestra Opus Onus,” a tribute to the orchestra, had its premiere on Thursday with its composer as soloist.`\
+https://nytimes.com/2025/05/23/arts/music/gustavo-dudamel-kate-soper-new-york-philharmonic.html
+
 **They’re 15. Wait Until You Read Their Newspaper.**\
 `The Ditch Weekly, a paper by middle and high schoolers in Long Island, is covering the Hamptons from a new angle.`\
 https://nytimes.com/2025/05/23/style/ditch-weekly-montauk-newspaper-hamptons.html
