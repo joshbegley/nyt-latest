@@ -1,5 +1,13 @@
+**How to Understand Trump’s Latest Deportation Tactics**\
+`This week saw a dramatic court showdown and a mysterious flight to Djibouti.`\
+https://nytimes.com/2025/05/23/world/how-to-understand-trumps-latest-deportation-tactics.html
+
+**California Man Is Found Guilty of Starting Line Fire**\
+`Justin Halstenberg faces life in prison, prosecutors said, for starting a blaze that burned nearly 44,000 acres in Southern California last fall.`\
+https://nytimes.com/2025/05/23/us/line-fire-california-man-arson.html
+
 **MLB manager May-hem: Weird & Wild endings, and beginnings — for 3 new hires**\
-`The three new managers — Don Kelly (Pirates), Warren Schaeffer (Rockies) and Tony Mansolino (Orioles) — started a combined 4-19. Good times.`\
+`The three new managers — Don Kelly (Pirates), Warren Schaeffer (Rockies) and Tony Mansolino (Orioles) — started a combined 4-19. Ouch!`\
 https://nytimes.com/athletic/6376136/2025/05/23/mlb-managers-may-firings-hirings-ejections/
 
 **Five Years After Floyd**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6377058/2025/05/23/thunder-timberwolves-game-2-pres
 **Aaron Nesmith's historic heater flipped Game 1. He's only been rehearsing the moment for years**\
 `"Every team in the NBA wants a guy like Aaron Nesmith," Pacers teammate Tyrese Haliburton said of the Game 1 hero. `\
 https://nytimes.com/athletic/6376474/2025/05/23/aaron-nesmith-pacers-knicks-game-2-nba-playoffs-2025/
-
-**The Pulse: An impossible streak continues**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6375826/2025/05/23/hurricanes-panthers-streak-the-pulse/
-
-**Julius Randle's first playoff clunker comes at worst possible time for humbled Wolves**\
-`Randle had been a major driver of Minnesota's push to the West finals. His struggles in Game 2 are one reason the Wolves are in trouble.`\
-https://nytimes.com/athletic/6376625/2025/05/23/julius-randle-timberwolves-west-finals-thunder/
 
