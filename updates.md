@@ -1,3 +1,15 @@
+**This Dress Is Dividing the Internet**\
+`A Lululemon “2-in-1” maxi dress has become a lightning rod for debate. It is also mostly sold out.`\
+https://nytimes.com/2025/05/23/style/lululemon-maxi-dress-debate-tiktok.html
+
+**Islanders name Mathieu Darche as general manager: Sources**\
+`Darche has served as the Lightning's assistant GM for the past three seasons and worked for Tampa Bay for years.`\
+https://nytimes.com/athletic/6378120/2025/05/23/mathieu-darche-general-manager-islanders/
+
+**Republican Lawmakers and Agriculture Groups Question MAHA Report**\
+`The G.O.P. chairmen of the House and Senate agriculture committees said they were “troubled” by the Make America Healthy Again Commission’s findings and urged it to use sounder science.`\
+https://nytimes.com/2025/05/23/us/politics/republican-agriculture-pesticides-kennedy-maha-report.html
+
 **Historic Shipwrecks Come to Light in the Great Lakes**\
 `With an underwater drone named Rhody, archaeologists are mapping some of the dozens of sunken vessels in Lake Ontario.`\
 https://nytimes.com/2025/05/23/science/archaeology-lake-ontario-shipwrecks.html

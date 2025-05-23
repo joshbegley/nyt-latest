@@ -1,3 +1,15 @@
+**This Dress Is Dividing the Internet**\
+`A Lululemon “2-in-1” maxi dress has become a lightning rod for debate. It is also mostly sold out.`\
+https://nytimes.com/2025/05/23/style/lululemon-maxi-dress-debate-tiktok.html
+
+**Islanders name Mathieu Darche as general manager: Sources**\
+`Darche has served as the Lightning's assistant GM for the past three seasons and worked for Tampa Bay for years.`\
+https://nytimes.com/athletic/6378120/2025/05/23/mathieu-darche-general-manager-islanders/
+
+**Republican Lawmakers and Agriculture Groups Question MAHA Report**\
+`The G.O.P. chairmen of the House and Senate agriculture committees said they were “troubled” by the Make America Healthy Again Commission’s findings and urged it to use sounder science.`\
+https://nytimes.com/2025/05/23/us/politics/republican-agriculture-pesticides-kennedy-maha-report.html
+
 **Historic Shipwrecks Come to Light in the Great Lakes**\
 `With an underwater drone named Rhody, archaeologists are mapping some of the dozens of sunken vessels in Lake Ontario.`\
 https://nytimes.com/2025/05/23/science/archaeology-lake-ontario-shipwrecks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/23/us/politics/bloomberg-2020-staff-pay-lawsuit.html
 **Jason Ayto leaves Arsenal after interim spell as sporting director**\
 `Ayto had been assistant to former Arsenal sporting director Edu, who left the club in November, before temporarily holding the position.`\
 https://nytimes.com/athletic/6183061/2025/05/23/arsenal-sporting-director-ayto-exit/
-
-**The Supreme Court Ruled in Favor of Trump. And That Is OK.**\
-`Those worried about how the court will confront Trump should save their outrage for other cases.`\
-https://nytimes.com/2025/05/23/opinion/the-supreme-court-trump-executive-agencies.html
-
-**Yuri Grigorivich, Giant of Soviet Ballet, Is Dead at 98**\
-`Among the 20th century’s most significant choreographers, he led the Bolshoi Ballet for more than 30 years, creating epic ballets like “Spartacus.”`\
-https://nytimes.com/2025/05/23/arts/dance/yuri-grigorivich-dead.html
-
-**Alison Bechdel Is Finally at Peace Mixing Fiction and Memoir**\
-`The lauded cartoonist talks about the process behind her autobiographical new graphic novel, “Spent.”`\
-https://nytimes.com/2025/05/23/books/review/alison-bechdel-is-finally-at-peace-mixing-fiction-and-memoir.html
 
