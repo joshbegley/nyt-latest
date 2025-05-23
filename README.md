@@ -1,3 +1,11 @@
+**Roland Garros and Me**\
+`Chris Eubanks explains what makes Roland-Garros so unique`\
+https://nytimes.com/paidpost/athletic/tnt/roland-garros-and-me.html
+
+**Infantino says 'there are discussions' for Ronaldo to play in CWC**\
+`Ronaldo has been in negotiations to extend his contract with Al Nassr and there are no plans for a loan transfer.`\
+https://nytimes.com/athletic/6378611/2025/05/23/cristiano-ronaldo-club-world-cup/
+
 **Supreme Court, for Now, Shields DOGE from Turning Over Records**\
 `The chief justice put a temporary hold on a lower court ruling that Elon Musk’s government efficiency team and the Office of Management and Budget turn over internal records.`\
 https://nytimes.com/2025/05/23/us/politics/supreme-court-doge-records.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6377722/2025/05/23/england-world-cup-2026-heat/
 **A Judge Halted Trump’s Move to Bar International Students at Harvard**\
 `Also, Russia and Ukraine began their largest prisoner exchange of the war. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/05/23/briefing/trump-harvard-lawsuit-great-lakes-shipwrecks.html
-
-**Criticism of Trump Was Removed From Documentary on Public Television**\
-`A segment in a documentary about the cartoonist Art Spiegelman was edited two weeks before it was set to air on public television stations across the country.`\
-https://nytimes.com/2025/05/23/arts/television/art-spiegelman-documentary-edited.html
-
-**U.S. Steel to Form ‘Partnership’ With Nippon, Trump Says**\
-`President Trump’s statement appeared to approve a deal linking the U.S. and Japanese steel makers that had been blocked on national security grounds.`\
-https://nytimes.com/2025/05/23/business/us-steel-nippon-trump.html
 
