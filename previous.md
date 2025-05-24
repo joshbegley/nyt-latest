@@ -1,3 +1,7 @@
+**Postecoglou says no talks on Spurs future since UEL win**\
+`Postecoglou led Tottenham to their first major trophy since 2008 and their first European triumph since the UEFA Cup in 1984.`\
+https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-future/
+
 **Wilshere leaves Norwich after spell as interim head coach**\
 `The former Arsenal and England midfielder oversaw the club's final two games of the Championship season, picking up four points.`\
 https://nytimes.com/athletic/6317355/2025/05/24/jack-wilshere-manager-norwich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6368422/2025/05/24/blues-doug-armstrong-maple-leafs
 **Brad Treliving has the keys to the Maple Leafs. Is he up to the task?**\
 `With the Leafs in Treliving’s hands now, the GM has a lot on his plate and will be tested more than ever this offseason.`\
 https://nytimes.com/athletic/6377907/2025/05/24/maple-leafs-brad-treliving-nhl-gm/
-
-**Power Outage Hits Cannes Area During Film Festival**\
-`Organizers said that the festival quickly switched over to backup power and that its closing ceremony on Saturday would not be disrupted. The cause of the outage was not immediately clear.`\
-https://nytimes.com/2025/05/24/world/europe/cannes-festival-power-outage.html
 

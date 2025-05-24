@@ -1,3 +1,7 @@
+**Postecoglou says no talks on Spurs future since UEL win**\
+`Postecoglou led Tottenham to their first major trophy since 2008 and their first European triumph since the UEFA Cup in 1984.`\
+https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-future/
+
 **Wilshere leaves Norwich after spell as interim head coach**\
 `The former Arsenal and England midfielder oversaw the club's final two games of the Championship season, picking up four points.`\
 https://nytimes.com/athletic/6317355/2025/05/24/jack-wilshere-manager-norwich/
