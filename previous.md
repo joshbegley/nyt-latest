@@ -1,3 +1,7 @@
+**Until Saturday: New CFP luck of the Irish**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6379481/2025/05/24/notre-dame-college-football-playoff-byes-until-saturday/
+
 **The Pulse: $200 million up for grabs**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6379122/2025/05/24/premier-league-standings-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/books/read-like-wind-recommendations.html
 **Hamburg Stabbing Attack Victims Are in Stable Condition, Police Say**\
 `The police said they believed the violence, which injured 18 people during Friday’s evening rush hour, was not politically motivated.`\
 https://nytimes.com/2025/05/24/world/europe/germany-hamburg-stabbing.html
-
-**What Cade Cunningham's All-NBA honor means for Pistons' financial future**\
-`By making the All-NBA Third Team, Cade Cunningham earned a raise, which could complicate Detroit's finances.`\
-https://nytimes.com/athletic/6378933/2025/05/24/cade-cunningham-all-nba-pistons-salary-cap/
 

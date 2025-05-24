@@ -1,3 +1,7 @@
+**Until Saturday: New CFP luck of the Irish**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6379481/2025/05/24/notre-dame-college-football-playoff-byes-until-saturday/
+
 **The Pulse: $200 million up for grabs**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6379122/2025/05/24/premier-league-standings-the-pulse/
