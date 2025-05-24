@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conference-finals-skid/
 
+**What's behind Hurricanes' 14-game conference finals skid? How can they end it?**\
+`Looking into some of the numbers behind the bleak streak offers a glimpse of what needs to go right for Carolina in Game 3 to snap it.
+`\
+https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conference-finals-skid/
+
 **What Cade Cunningham's All-NBA honor means for Pistons' financial future**\
 `By making the All-NBA Third Team, Cade Cunningham earned a raise, which could complicate Detroit's finances.`\
 https://nytimes.com/athletic/6378933/2025/05/24/cade-cunningham-all-nba-pistons-salary-cap/
