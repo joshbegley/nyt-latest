@@ -1,3 +1,7 @@
+**The Sparkle**\
+`A carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
+https://nytimes.com/video/opinion/100000009382195/the-sparkle.html
+
 **Trump Administration Live Updates: Trump Gives Commencement Address at West Point**\
 ``\
 https://nytimes.com/live/2025/05/24/us/trump-news
