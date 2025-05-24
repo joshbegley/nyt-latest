@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6379336/2025/05/24/liverpool-jurgen-klopp-alexander-arnold-booing/
 
 **Postecoglou leaves fans wanting more as Spurs celebrate Europa League victory**\
-`The Spurs manager got the loudest cheers as he and his players paraded their newly-won trophy to fans outside the club's stadium`\
+`The Spurs manager got the loudest cheers as he and his players paraded their newly won trophy to fans outside the club's stadium`\
 https://nytimes.com/athletic/6378878/2025/05/24/spurs-parade-europa-league-postecoglou/
 
 **New York’s Crackdown on E-bikes Is Unfair Enforcement, Critics Say**\
