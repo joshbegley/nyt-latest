@@ -1,3 +1,7 @@
+**Plastic Spoons, Umbrellas, Violins: A Guide to What Americans Buy From China**\
+`The things the U.S. imports a lot, the things it doesn’t and everything in between.`\
+https://nytimes.com/interactive/2025/05/24/upshot/china-imports.html
+
 **Judge Orders Trump Officials to Seek Return of Guatemalan Man to U.S.**\
 `Judge Brian Murphy criticized the government for errors in the case and said the man, who feared persecution if he was deported, was likely to show “his removal lacked any semblance of due process.”`\
 https://nytimes.com/2025/05/24/us/politics/trump-deportation-court-mexico.html
