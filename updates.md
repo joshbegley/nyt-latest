@@ -1,3 +1,7 @@
+**The Pulse: $200 million up for grabs**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6379122/2025/05/24/premier-league-standings-the-pulse/
+
 **Pascal Siakam's 'special game' puts Pacers in driver's seat as they head home for Game 3**\
 `Siakam's 39 points were a career-playoff high as the veteran forward has been a steady presence on the court and in the locker room.`\
 https://nytimes.com/athletic/6379333/2025/05/24/pascal-siakam-pacers-knicks-game-2/
