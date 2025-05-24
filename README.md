@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6379643/2025/05/24/manchester-united-alejandro-garn
 `The film, “Un Simple Accident,” was directed by Jafar Panahi, a longtime festival favorite. The award capped a contest that was widely seen as the strongest in years.`\
 https://nytimes.com/2025/05/24/movies/cannes-palme-d-or-it-was-just-an-accident.html
 
-**Clark, Fever fall in final seconds to Liberty after controversial no-call**\
+**Clark, Fever fall to Liberty after controversial no-call in final seconds**\
 `With 2.2 seconds left, Clark had her game-winning 3-point attempt stripped by Liberty guard Natasha Cloud as the clock ran out.`\
 https://nytimes.com/athletic/6380084/2025/05/24/caitlin-clark-fever-liberty-sabrina-ionescu/
 
