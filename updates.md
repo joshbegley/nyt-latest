@@ -1,3 +1,11 @@
+**Crypto Investor Charged With Kidnapping and Torturing Man for Weeks**\
+`The investor, 37-year-old John Woeltz, was arrested Friday after the man escaped the downtown Manhattan townhouse where the police say he had been held and assaulted.`\
+https://nytimes.com/2025/05/24/nyregion/crypto-investor-torture-italian-tourist.html
+
+**Special treatment for Oilers' Connor McDavid? Kris Knoblauch thinks it's the opposite. Plus, Game 3 lineup notes**\
+`Knoblauch pushed back against comments from the Dallas Stars after Roope Hintz's injury in Game 2 from a Darnell Nurse slash.`\
+https://nytimes.com/athletic/6379265/2025/05/24/oilers-stars-mcdavid-hintz-nurse-game-3/
+
 **Ten Hag reaches agreement in principle to become Leverkusen coach**\
 `The Dutchman had been out of football since leaving United in October and has reached an agreement in principle to replace Xabi Alonso.`\
 https://nytimes.com/athletic/6355721/2025/05/24/ten-hag-leverkusen-manager/
