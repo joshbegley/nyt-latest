@@ -1,3 +1,7 @@
+**Clark, Fever fall to Liberty after controversial no-call in final seconds**\
+`With 2.2 seconds left, Clark had her game-winning 3-point attempt stripped by Liberty guard Natasha Cloud as the clock ran out.`\
+https://nytimes.com/athletic/6380084/2025/05/24/caitlin-clark-fever-liberty-sabrina-ionescu/
+
 **Manchester United selling Alejandro Garnacho feels inevitable, but is it right?**\
 `Following the Europa League final loss on Wednesday, Ruben Amorim told Alejandro Garnacho to find a new club in a meeting with the squad`\
 https://nytimes.com/athletic/6379643/2025/05/24/manchester-united-alejandro-garnacho-transfer/
