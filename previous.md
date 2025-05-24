@@ -1,3 +1,11 @@
+**Senators Visit Canada, Seeking a Reset Amid Trump’s Provocations**\
+`Democrats and one Republican made the trip, seeking to stabilize the U.S.-Canada relationship after President Trump imposed tariffs on Canada and suggested it should become the 51st state.`\
+https://nytimes.com/2025/05/23/us/senators-canada-meeting-trade.html
+
+**U.S. Sues Four New Jersey Cities Over ‘Sanctuary’ Policies**\
+`Justice Department lawyers say in a lawsuit that Newark, Jersey City, Hoboken and Paterson are shielding illegal immigrants from lawful prosecution.`\
+https://nytimes.com/2025/05/23/us/politics/new-jersey-sanctuary-city-lawsuit.html
+
 **Trump Seeks Extensive Student Data in Pressure Campaign to Control Harvard**\
 `Harvard and the federal government are locked in a battle that boils down to turning over records on international students. But Harvard says it is also about the First Amendment.`\
 https://nytimes.com/2025/05/23/us/trump-harvard-international-student-records.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html
 **Matt Vierling is back, and the Tigers are getting reinforcements at the right time**\
 `Vierling was activated from the IL on Friday. Teammates Parker Meadows and Wenceel Pérez could soon join him in Detroit. `\
 https://nytimes.com/athletic/6378761/2025/05/23/matt-vierling-return-detroit-tigers-reinforcements/
-
-**Gloves Lincoln Wore to Ford’s Theater Sell for $1.5 Million at Auction**\
-`More than 100 relics connected to President Abraham Lincoln brought in $7.9 million, auctioneers said. The proceeds will help a presidential foundation repay a loan.`\
-https://nytimes.com/2025/05/23/us/abraham-lincoln-stained-gloves-auction.html
-
-**National Security Council Staff Will Be Cut by Half**\
-`The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
-https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html
 

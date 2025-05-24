@@ -1,3 +1,11 @@
+**Senators Visit Canada, Seeking a Reset Amid Trump’s Provocations**\
+`Democrats and one Republican made the trip, seeking to stabilize the U.S.-Canada relationship after President Trump imposed tariffs on Canada and suggested it should become the 51st state.`\
+https://nytimes.com/2025/05/23/us/senators-canada-meeting-trade.html
+
+**U.S. Sues Four New Jersey Cities Over ‘Sanctuary’ Policies**\
+`Justice Department lawyers say in a lawsuit that Newark, Jersey City, Hoboken and Paterson are shielding illegal immigrants from lawful prosecution.`\
+https://nytimes.com/2025/05/23/us/politics/new-jersey-sanctuary-city-lawsuit.html
+
 **Trump Seeks Extensive Student Data in Pressure Campaign to Control Harvard**\
 `Harvard and the federal government are locked in a battle that boils down to turning over records on international students. But Harvard says it is also about the First Amendment.`\
 https://nytimes.com/2025/05/23/us/trump-harvard-international-student-records.html
