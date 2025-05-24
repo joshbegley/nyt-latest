@@ -1,4 +1,8 @@
-**Red Sox call up prospect Marcelo Mayer: Source**\
+**Trump Gives Commencement Address at West Point, Stressing a New Era**\
+`The president said the graduating cadets would enter a service no longer subject to “absurd ideological experiments” or “nation-building crusades.”`\
+https://nytimes.com/2025/05/24/us/politics/trump-speech-west-point-commencement.html
+
+**Red Sox call up top prospect Marcelo Mayer: Source**\
 `Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
 https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379540/2025/05/24/freddie-andersen-hurricanes-game
 **The 'Big Three,' his favorite events and his best seasons: Novak Djokovic's 100 titles**\
 `Djokovic's Geneva Open win ticks off yet another entry on one of the most remarkable records in tennis.`\
 https://nytimes.com/athletic/6237964/2025/05/24/novak-djokovic-100-titles-tennis-record/
-
-**Michael Schumacher Ferrari breaks record with $18m sale at auction**\
-`The F2001 becomes the most expensive F1 car driven by the legendary German driver ever sold at auction.`\
-https://nytimes.com/athletic/6379790/2025/05/24/michael-schumacher-ferrari-f1-car-sale-auction/
 
