@@ -1,3 +1,7 @@
+**Hurricanes bench Freddie Andersen for Game 3. Is Pyotr Kochetkov the answer?**\
+`Andersen has allowed nine goals on 36 shots against the Panthers — saving about 5.5 goals below expected.`\
+https://nytimes.com/athletic/6379540/2025/05/24/freddie-andersen-hurricanes-game-3-nhl-playoffs/
+
 **Panthers bench Freddie Andersen for Game 3. Is Pyotr Kochetkov the answer?**\
 `Andersen has allowed nine goals on 36 shots against the Panthers — saving about 5.5 goals below expected.`\
 https://nytimes.com/athletic/6379540/2025/05/24/freddie-andersen-hurricanes-game-3-nhl-playoffs/
