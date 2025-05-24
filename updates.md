@@ -1,3 +1,11 @@
+**Roord leaves Man City for FC Twente on permanent deal**\
+`Twente were recently crowned Dutch champions for the third time in the last four seasons.`\
+https://nytimes.com/athletic/6379438/2025/05/24/man-city-women-transfers-jill-roord/
+
+**Chet Holmgren comes home to Minnesota, the place he learned to be himself**\
+`As he returns to his home state, Chet Holmgren is reminded of how his career carries forward his father’s experiences.`\
+https://nytimes.com/athletic/6378703/2025/05/24/chet-holmgren-minnesota-thunder-timberwolves/
+
 **Working Out**\
 `Reorganizing your week just might make it possible to reorient your relationship with time.`\
 https://nytimes.com/2025/05/24/briefing/working-out.html

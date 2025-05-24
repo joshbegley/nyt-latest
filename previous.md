@@ -1,3 +1,11 @@
+**Roord leaves Man City for FC Twente on permanent deal**\
+`Twente were recently crowned Dutch champions for the third time in the last four seasons.`\
+https://nytimes.com/athletic/6379438/2025/05/24/man-city-women-transfers-jill-roord/
+
+**Chet Holmgren comes home to Minnesota, the place he learned to be himself**\
+`As he returns to his home state, Chet Holmgren is reminded of how his career carries forward his father’s experiences.`\
+https://nytimes.com/athletic/6378703/2025/05/24/chet-holmgren-minnesota-thunder-timberwolves/
+
 **Working Out**\
 `Reorganizing your week just might make it possible to reorient your relationship with time.`\
 https://nytimes.com/2025/05/24/briefing/working-out.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6334990/2025/05/24/anthony-edwards-wristband-promis
 **Bayern to sign Tah on free transfer from Leverkusen**\
 `The Germany international will leave Leverkusen after 10 years at the club.`\
 https://nytimes.com/athletic/6301591/2025/05/24/bayern-munich-transfers-jonathan-tah/
-
-**Russia and Ukraine Exchange Air Assaults Amid Major Prisoner Swap**\
-`The hourslong raids, involving hundreds of drones, were a reminder that any diplomatic resolution to the conflict remains far off.`\
-https://nytimes.com/2025/05/24/world/europe/ukraine-russia-prisoner-swap.html
-
-**Indy 500 odds, predictions: Will we see a three-peat or 'The Double'?**\
-`Memorial Day Weekend brings us the 109th running of "the greatest spectacle in racing" — the Indianapolis 500.`\
-https://nytimes.com/athletic/6377904/2025/05/24/indy-500-odds-predictions-penske-larson/
 
