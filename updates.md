@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, May 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/24/todays-new-york-times
+
 **Ronald Acuña Jr. blasts 467-foot homer on first pitch after nearly a year away**\
 `Still, a costly mistake by Eli White upended the good vibes as the Padres beat the Braves for the seventh consecutive time.`\
 https://nytimes.com/athletic/6379131/2025/05/24/braves-ronald-acuna-home-run-return/

@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, May 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/24/todays-new-york-times
+
 **Ronald Acuña Jr. blasts 467-foot homer on first pitch after nearly a year away**\
 `Still, a costly mistake by Eli White upended the good vibes as the Padres beat the Braves for the seventh consecutive time.`\
 https://nytimes.com/athletic/6379131/2025/05/24/braves-ronald-acuna-home-run-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377441/2025/05/24/richards-palace-fa-cup-usmnt/
 **Why Jose Mourinho isn't going to be sacked by Fenerbahce... yet**\
 `Why are the club keeping faith with him after a season that has not just been bad, but at times farcical? Nick Miller explains...`\
 https://nytimes.com/athletic/6377300/2025/05/24/jose-mourinho-fenerbahce-future-job/
-
-**Why the Championship play-off final is the most lucrative match in world football**\
-`Winning the Championship play-off final guarantees a club at least £200m - and likely plenty more than that`\
-https://nytimes.com/athletic/6361225/2025/05/24/championship-play-off-final-finance-explained/
 
