@@ -1,3 +1,7 @@
+**U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
+`By Isabela Espadas Barros Leal and James C. McKinley Jr.`\
+https://nytimes.com/live/2025/05/24/us/trump-news/us-temporarily-lifts-some-sanctions-on-syria-fulfilling-a-trump-pledge
+
 **Michael Roemer, Maker of Acclaimed but Little-Seen Films, Dies at 97**\
 `His “Nothing but a Man” and “The Plot Against Harry” drew critical praise but never found an audience. He said he took “a certain pride in not having been a success.”`\
 https://nytimes.com/2025/05/24/movies/michael-roemer-dead.html
