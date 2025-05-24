@@ -1,3 +1,7 @@
+**Ronald Acuña Jr. blasts 467-foot homer on first pitch after nearly a year away**\
+`Still, a costly mistake by Eli White upended the good vibes as the Padres beat the Braves for the seventh consecutive time.`\
+https://nytimes.com/athletic/6379131/2025/05/24/braves-ronald-acuna-home-run-return/
+
 **With Stars' offense dormant — and Roope Hintz possibly out — it's time for Mikko Rantanen to carry them again**\
 `Rantanen hasn't scored a goal in five consecutive games — a problem mostly because the Stars' other forwards aren't stepping up enough.`\
 https://nytimes.com/athletic/6379133/2025/05/24/stars-game-2-oilers-rantanen/
