@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Judge Orders Officials to Seek Return of Man Sent to Mexico**\
+``\
+https://nytimes.com/live/2025/05/24/us/trump-news
+
 **Until Saturday: New CFP luck of the Irish**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6379481/2025/05/24/notre-dame-college-football-playoff-byes-until-saturday/

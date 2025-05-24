@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Judge Orders Officials to Seek Return of Man Sent to Mexico**\
+``\
+https://nytimes.com/live/2025/05/24/us/trump-news
+
 **Until Saturday: New CFP luck of the Irish**\
 `Until Saturday is The Athletic's college football newsletter.`\
 https://nytimes.com/athletic/6379481/2025/05/24/notre-dame-college-football-playoff-byes-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/world/europe/cannes-festival-power-outage.html
 **2 Novels of America at Particular, Peculiar Moments**\
 `Florida in the early 1960s; California in the mid-1980s.`\
 https://nytimes.com/2025/05/24/books/read-like-wind-recommendations.html
-
-**Hamburg Stabbing Attack Victims Are in Stable Condition, Police Say**\
-`The police said they believed the violence, which injured 18 people during Friday’s evening rush hour, was not politically motivated.`\
-https://nytimes.com/2025/05/24/world/europe/germany-hamburg-stabbing.html
 
