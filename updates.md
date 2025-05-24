@@ -1,3 +1,7 @@
+**Indy 500 odds, predictions: Will we see a three-peat or 'The Double'?**\
+`Memorial Day Weekend brings us the 109th running of "the greatest spectacle in racing" — the Indianapolis 500.`\
+https://nytimes.com/athletic/6377904/2025/05/24/indy-500-odds-predictions-penske-larson/
+
 **NASCAR at Charlotte odds, predictions: Kyle Larson's 'Double' attempt, long shots and more**\
 `Kyle Larson is the favorite to win the Coca-Cola 600. But will his attempt to complete "The Double" foil a first-place finish?`\
 https://nytimes.com/athletic/6377877/2025/05/24/nascar-cup-series-at-charlotte-odds-predictions-kyle-larson-double/

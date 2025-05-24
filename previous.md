@@ -1,3 +1,7 @@
+**Indy 500 odds, predictions: Will we see a three-peat or 'The Double'?**\
+`Memorial Day Weekend brings us the 109th running of "the greatest spectacle in racing" — the Indianapolis 500.`\
+https://nytimes.com/athletic/6377904/2025/05/24/indy-500-odds-predictions-penske-larson/
+
 **NASCAR at Charlotte odds, predictions: Kyle Larson's 'Double' attempt, long shots and more**\
 `Kyle Larson is the favorite to win the Coca-Cola 600. But will his attempt to complete "The Double" foil a first-place finish?`\
 https://nytimes.com/athletic/6377877/2025/05/24/nascar-cup-series-at-charlotte-odds-predictions-kyle-larson-double/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010180648/we-tracked-police-killings
 **French Open storylines: Nadal's tribute, Swiatek's record and line judges' last stand**\
 `A pursuit of history, a celebration of a legacy — and the tennis debate that has dominated clay-court season. It's all on at Roland Garros.`\
 https://nytimes.com/athletic/6377388/2025/05/24/french-open-storylines-swiatek-nadal-line-judges-clay-line-calling/
-
-**Since George Floyd’s Murder, Police Killings Keep Rising, Not Falling**\
-`The number of people killed by the police has risen every year since the murder of Mr. Floyd by a Minneapolis officer in 2020.`\
-https://nytimes.com/2025/05/24/us/police-killings-george-floyd.html
 

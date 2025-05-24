@@ -1,3 +1,7 @@
+**Russia and Ukraine Exchange Air Assaults Amid Major Prisoner Swap**\
+`The hourslong raids, involving hundreds of drones, were a reminder that any diplomatic resolution to the conflict remains far off.`\
+https://nytimes.com/2025/05/24/world/europe/ukraine-russia-prisoner-swap.html
+
 **Indy 500 odds, predictions: Will we see a three-peat or 'The Double'?**\
 `Memorial Day Weekend brings us the 109th running of "the greatest spectacle in racing" — the Indianapolis 500.`\
 https://nytimes.com/athletic/6377904/2025/05/24/indy-500-odds-predictions-penske-larson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/us/george-floyd-derek-chauvin-republicans.html
 **We Tracked Police Killings 5 Years After George Floyd**\
 `Killings by the police didn’t go down after George Floyd’s death and the protests that followed — they went up. Steven Rich, a data reporter, explains his findings and what may have contributed to the increase.`\
 https://nytimes.com/video/us/politics/100000010180648/we-tracked-police-killings-5-years-after-george-floyd.html
-
-**French Open storylines: Nadal's tribute, Swiatek's record and line judges' last stand**\
-`A pursuit of history, a celebration of a legacy — and the tennis debate that has dominated clay-court season. It's all on at Roland Garros.`\
-https://nytimes.com/athletic/6377388/2025/05/24/french-open-storylines-swiatek-nadal-line-judges-clay-line-calling/
 
