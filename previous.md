@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6379790/2025/05/24/michael-schumacher-ferrari-f1-ca
 `Djokovic defeated Hurkacz for the eighth time in a row to bring up the milestone.`\
 https://nytimes.com/athletic/6379607/2025/05/24/novak-djokovic-tennis-100-titles-hurkacz-geneva/
 
-**Panthers star Sam Reinhart to miss Game 3 of Eastern Conference finals**\
+**Panthers star Sam Reinhart to miss Game 3 of Eastern Conference final**\
 `Panthers coach Paul Maurice said forward Jesper Boqvist will replace Reinhart, who the team considers day-to-day.`\
 https://nytimes.com/athletic/6379726/2025/05/24/nhl-panthers-sam-reinhart-injury-game-3/
 
