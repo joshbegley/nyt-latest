@@ -1,3 +1,7 @@
+**Army Report Links Pentagon Equipment Glitch to Aborted Landings at D.C. Airport**\
+`The diversion of two commercial flights on May 1 has raised new questions about equipment and safety in some of Washington’s busiest airspace.`\
+https://nytimes.com/2025/05/23/us/politics/army-black-hawk-aborted-landings-dc-airport.html
+
 **Senators Visit Canada, Seeking a Reset Amid Trump’s Provocations**\
 `Democrats and one Republican made the trip, seeking to stabilize the U.S.-Canada relationship after President Trump imposed tariffs on Canada and suggested it should become the 51st state.`\
 https://nytimes.com/2025/05/23/us/senators-canada-meeting-trade.html
