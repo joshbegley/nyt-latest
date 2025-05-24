@@ -1,3 +1,7 @@
+**Amorim informs Man United squad he's staying, tells Garnacho to find new club**\
+`Amorim addressed players at the club's Carrington training ground on Saturday to inform them of his own plans and of those for Garnacho.`\
+https://nytimes.com/athletic/6379494/2025/05/24/manchester-united-ruben-amorim-garnacho-future/
+
 **Postecoglou says no talks on Spurs future since UEL win**\
 `Postecoglou led Tottenham to their first major trophy since 2008 and their first European triumph since the UEFA Cup in 1984.`\
 https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6378889/2025/05/24/f1-monaco-grand-prix-gp-date-cha
 **Would Blues let Doug Armstrong go to Maple Leafs? Coaching staff changes? Mailbag, Part 2**\
 `Also in the mailbag: Will the team have a new-look jersey in 2025-26? Could it bring back David Perron? Why was Faulk on against the Jets?`\
 https://nytimes.com/athletic/6368422/2025/05/24/blues-doug-armstrong-maple-leafs-mailbag/
-
-**Brad Treliving has the keys to the Maple Leafs. Is he up to the task?**\
-`With the Leafs in Treliving’s hands now, the GM has a lot on his plate and will be tested more than ever this offseason.`\
-https://nytimes.com/athletic/6377907/2025/05/24/maple-leafs-brad-treliving-nhl-gm/
 

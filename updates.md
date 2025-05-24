@@ -1,3 +1,7 @@
+**Amorim informs Man United squad he's staying, tells Garnacho to find new club**\
+`Amorim addressed players at the club's Carrington training ground on Saturday to inform them of his own plans and of those for Garnacho.`\
+https://nytimes.com/athletic/6379494/2025/05/24/manchester-united-ruben-amorim-garnacho-future/
+
 **Postecoglou says no talks on Spurs future since UEL win**\
 `Postecoglou led Tottenham to their first major trophy since 2008 and their first European triumph since the UEFA Cup in 1984.`\
 https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-future/
