@@ -1,3 +1,11 @@
+**Leslie Epstein, Writer Who Could Both Do and Teach, Dies at 87**\
+`His Holocaust novel “King of the Jews” was widely praised. He also wrote about his show-business family and taught writing at Boston University.`\
+https://nytimes.com/2025/05/23/books/leslie-epstein-dead.html
+
+**Trump's Big Budget Bomb**\
+`The journalist Catherine Rampell discusses how Trump’s tax-cut bill will impact Americans.`\
+https://nytimes.com/video/opinion/100000010186721/trumps-big-budget-bomb.html
+
 **Sebastião Salgado: A Life in Pictures**\
 `The celebrated Brazilian photojournalist depicted the world in stark contrasts, from the depths of human suffering to the monumental grandeur of nature.`\
 https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html

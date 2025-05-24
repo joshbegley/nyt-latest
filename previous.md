@@ -1,3 +1,11 @@
+**Leslie Epstein, Writer Who Could Both Do and Teach, Dies at 87**\
+`His Holocaust novel “King of the Jews” was widely praised. He also wrote about his show-business family and taught writing at Boston University.`\
+https://nytimes.com/2025/05/23/books/leslie-epstein-dead.html
+
+**Trump's Big Budget Bomb**\
+`The journalist Catherine Rampell discusses how Trump’s tax-cut bill will impact Americans.`\
+https://nytimes.com/video/opinion/100000010186721/trumps-big-budget-bomb.html
+
 **Sebastião Salgado: A Life in Pictures**\
 `The celebrated Brazilian photojournalist depicted the world in stark contrasts, from the depths of human suffering to the monumental grandeur of nature.`\
 https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/23/us/politics/trump-harvard-international-students.
 **No. 12 Texas Tech knocks off No. 5 seed Florida State to advance to first WCWS**\
 `Star pitcher Canady allowed just one run and five hits across the Red Raiders' back-to-back wins in the Tallahassee super regional.`\
 https://nytimes.com/athletic/6378718/2025/05/23/texas-tech-florida-state-super-regionals-womens-college-world-series/
-
-**Eric Trump Starts Nonprofit to Build His Father’s Presidential Library**\
-`Meta and ABC News have already pledged a combined $37 million in funding for the library to settle lawsuits President Trump filed against them before taking office.`\
-https://nytimes.com/2025/05/23/us/elections/eric-trump-presidential-library-foundation.html
-
-**Brush Fire Near Popular California Lake Prompts Evacuations**\
-`The Inn fire had grown to over 700 acres to the northwest of Mono Lake, near the Nevada border. It’s one of several brush fires that have erupted in California in the last week as the weather has gotten warmer.`\
-https://nytimes.com/2025/05/23/us/brush-fire-mono-lake-california.html
 
