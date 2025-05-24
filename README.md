@@ -1,9 +1,13 @@
+**1 Dead After Explosion on Boat Near Manhattan Sewage Plant**\
+`The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
+https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html
+
 **Frank Moore, a Top Aide to Jimmy Carter, Is Dead at 89**\
 `After serving as chief of staff when Carter was governor of Georgia, he followed him to Washington, where both men encountered a hostile political establishment.`\
 https://nytimes.com/2025/05/24/us/politics/frank-moore-dead.html
 
 **The Briefing: Arsenal 1 Barcelona 0 - Second-half changes earn second Champions League title**\
-`Arsenal defeat reigning champions Barcelona to earn second Women's Champions League title`\
+`We analyse the key takeaways from Lisbon as Arsenal made European history against perennial winners Barcelona`\
 https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champions-league-title/
 
 **U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379607/2025/05/24/novak-djokovic-tennis-100-titles
 **Panthers star Sam Reinhart to miss Game 3 of Eastern Conference final**\
 `Panthers coach Paul Maurice said forward Jesper Boqvist will replace Reinhart, who the team considers day-to-day.`\
 https://nytimes.com/athletic/6379726/2025/05/24/nhl-panthers-sam-reinhart-injury-game-3/
-
-**Sheffield United 1 Sunderland 2 - Departing Tommy Watson's £200m goal secures Premier League promotion**\
-`Analysis of a dramatic Championship play-off final`\
-https://nytimes.com/athletic/6379594/2025/05/24/sheffield-united-sunderland-premier-league/
 
