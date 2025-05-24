@@ -1,3 +1,15 @@
+**'Motorsports Christmas' is canceled. Writers on the end of Monaco, Indy and NASCAR's shared day**\
+`Monaco is moving to June, separating it from the Indy 500 and NASCAR’s Coca-Cola 600. Our writers bid farewell to the greatest day in racing`\
+https://nytimes.com/athletic/6378889/2025/05/24/f1-monaco-grand-prix-gp-date-changing/
+
+**Would Blues let Doug Armstrong go to Maple Leafs? Coaching staff changes? Mailbag, Part 2**\
+`Also in the mailbag: Will the team have a new-look jersey in 2025-26? Could it bring back David Perron? Why was Faulk on against the Jets?`\
+https://nytimes.com/athletic/6368422/2025/05/24/blues-doug-armstrong-maple-leafs-mailbag/
+
+**Brad Treliving has the keys to the Maple Leafs. Is he up to the task?**\
+`With the Leafs in Treliving’s hands now, the GM has a lot on his plate and will be tested more than ever this offseason.`\
+https://nytimes.com/athletic/6377907/2025/05/24/maple-leafs-brad-treliving-nhl-gm/
+
 **Power Outage Hits Cannes Area During Film Festival**\
 `Organizers said that the festival quickly switched over to backup power and that its closing ceremony on Saturday would not be disrupted. The cause of the outage was not immediately clear.`\
 https://nytimes.com/2025/05/24/world/europe/cannes-festival-power-outage.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conferen
 **A women’s hockey player drew ire for her social media activity. Fans won’t let her forget it**\
 `Curl-Salemme has emerged as one of the stars of the PWHL Finals. She has also been booed every time she touches the puck. `\
 https://nytimes.com/athletic/6378962/2025/05/24/minnesota-frost-social-media-posts-britta-curl-salemme/
-
-**Dance$ With Emolument$**\
-`Trump, selling the presidency to the highest bidders.`\
-https://nytimes.com/2025/05/24/opinion/trump-emoluments-crypto.html
-
-**Trump Is Immensely Vulnerable**\
-`If critics focus on his economic failures, corruption and manipulation — and get their own houses in order.`\
-https://nytimes.com/2025/05/24/opinion/trump-authoritarianism-resistance.html
-
-**Meet Blake Montgomery, the Sens prospect taking one 'big step' after another**\
-`Montgomery, a fourth-round pick by Ottawa in 2024, is now playing in the Memorial Cup with the London Knights.`\
-https://nytimes.com/athletic/6375302/2025/05/24/blake-montgomery-ottawa-senators-london-knights/
 
