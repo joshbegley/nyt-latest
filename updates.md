@@ -1,3 +1,15 @@
+**Red Sox call up prospect Marcelo Mayer: Source**\
+`Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
+https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
+
+**Bryson DeChambeau Q&A at Indy 500: On parallels between golfers and drivers**\
+`Golf star Bryson DeChambeau took a lap around the Indy 500 track Saturday. "I think it's very similar," he says of golfing and driving.`\
+https://nytimes.com/athletic/6379918/2025/05/24/bryson-dechambeau-qa-indy-500-golfers-drivers/
+
+**The Briefing: Arsenal 1 Barcelona 0 - Second-half changes earn second Champions League title**\
+`We analyse the key talking points from Lisbon as Arsenal made European history against perennial winners Barcelona`\
+https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champions-league-title/
+
 **1 Dead After Explosion on Barge Near Manhattan Sewage Plant**\
 `The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
 https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html
