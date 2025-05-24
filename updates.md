@@ -1,3 +1,7 @@
+**Michael Roemer, Maker of Acclaimed but Little-Seen Films, Dies at 97**\
+`His “Nothing but a Man” and “The Plot Against Harry” drew critical praise but never found an audience. He said he took “a certain pride in not having been a success.”`\
+https://nytimes.com/2025/05/24/movies/michael-roemer-dead.html
+
 **Panthers star Sam Reinhart to miss Game 3 of Eastern Conference final**\
 `Panthers coach Paul Maurice said forward Jesper Boqvist will replace Reinhart, who the team considers day-to-day.`\
 https://nytimes.com/athletic/6379726/2025/05/24/nhl-panthers-sam-reinhart-injury-game-3/

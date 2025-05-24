@@ -1,3 +1,7 @@
+**Michael Roemer, Maker of Acclaimed but Little-Seen Films, Dies at 97**\
+`His “Nothing but a Man” and “The Plot Against Harry” drew critical praise but never found an audience. He said he took “a certain pride in not having been a success.”`\
+https://nytimes.com/2025/05/24/movies/michael-roemer-dead.html
+
 **Hurricanes bench Freddie Andersen for Game 3. Is Pyotr Kochetkov the answer?**\
 `Andersen has allowed nine goals on 36 shots against the Panthers — saving about 5.5 goals below expected.`\
 https://nytimes.com/athletic/6379540/2025/05/24/freddie-andersen-hurricanes-game-3-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379265/2025/05/24/oilers-stars-mcdavid-hintz-nurse
 **Ten Hag reaches agreement in principle to become Leverkusen coach**\
 `The Dutchman had been out of football since leaving United in October and has reached an agreement in principle to replace Xabi Alonso.`\
 https://nytimes.com/athletic/6355721/2025/05/24/ten-hag-leverkusen-manager/
-
-**Kyle Busch returning to Richard Childress Racing in 2026, continuing in No. 8**\
-`Busch currently ranks 17th in the standings, seven points behind RFK Racing’s Ryan Preece for the last provisional playoff spot.`\
-https://nytimes.com/athletic/6379674/2025/05/24/nascar-kyle-busch-rcr-return-2026/
 
