@@ -1,3 +1,11 @@
+**U.S. Man Who Lived Abroad With Family’s Nanny Is Charged in Wife’s Murder**\
+`A man who appeared to be a grieving husband after he found his wife fatally shot at their Georgia business in 2006 was arrested this week and charged in her killing, officials said.`\
+https://nytimes.com/2025/05/24/us/georgia-murder-doris-worrell.html
+
+**Travel Bug**\
+`Dylan Schiff’s puzzle might be highly theoretical, but its mind-bending nature is real.`\
+https://nytimes.com/2025/05/24/crosswords/daily-puzzle-2025-05-25.html
+
 **Amorim to address fans, Man United players to do lap of honour after final game**\
 `United host Aston Villa at Old Trafford to conclude a hugely disappointing season.`\
 https://nytimes.com/athletic/6379690/2025/05/24/manchester-united-final-game-ruben-amorim/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-own
 **A Veteran Vintage Dealer Tries On Manhattan**\
 `Tommy Dorr, the owner of Mothfood, has been in the business for more than two decades. But it wasn’t until this month that he brought the shop to his most discerning shoppers: New Yorkers.`\
 https://nytimes.com/2025/05/24/style/mothfood-vintage-tommy-dorr.html
-
-**Trump Gives Commencement Address at West Point, Stressing a New Era**\
-`The president said the graduating cadets would enter a service no longer subject to “absurd ideological experiments” or “nation-building crusades.”`\
-https://nytimes.com/2025/05/24/us/politics/trump-speech-west-point-commencement.html
-
-**Red Sox call up top prospect Marcelo Mayer: Source**\
-`Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
-https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
 

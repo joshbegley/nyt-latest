@@ -1,3 +1,11 @@
+**U.S. Man Who Lived Abroad With Family’s Nanny Is Charged in Wife’s Murder**\
+`A man who appeared to be a grieving husband after he found his wife fatally shot at their Georgia business in 2006 was arrested this week and charged in her killing, officials said.`\
+https://nytimes.com/2025/05/24/us/georgia-murder-doris-worrell.html
+
+**Travel Bug**\
+`Dylan Schiff’s puzzle might be highly theoretical, but its mind-bending nature is real.`\
+https://nytimes.com/2025/05/24/crosswords/daily-puzzle-2025-05-25.html
+
 **Amorim to address fans, Man United players to do lap of honour after final game**\
 `United host Aston Villa at Old Trafford to conclude a hugely disappointing season.`\
 https://nytimes.com/athletic/6379690/2025/05/24/manchester-united-final-game-ruben-amorim/
