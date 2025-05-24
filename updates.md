@@ -1,3 +1,19 @@
+**New York’s Crackdown on E-bikes Is Unfair Enforcement, Critics Say**\
+`In what they say is a new safety campaign, the police are issuing summonses that may lead to arrest for cyclists who break the city’s traffic laws.`\
+https://nytimes.com/2025/05/24/nyregion/ebikes-scooters-cyclists-nyc.html
+
+**How Sarita Choudhury Spends Her Sundays**\
+`The “And Just Like That …” star lifts her spirits by grabbing coffee with friends, then escapes the world for an hour with acupuncture.`\
+https://nytimes.com/2025/05/24/nyregion/sarita-choudhury-and-just-like-that.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/24/crosswords/spelling-bee-forum.html
+
+**The Knicks' starting unit is hurting New York's chance at an NBA championship**\
+`The Knicks' starting unit is a combined minus-29 against the Pacers. They've lost two games by a combined 8 points. Is it time for change?`\
+https://nytimes.com/athletic/6379239/2025/05/24/new-york-knicks-starting-five-struggling-pacers/
+
 **Plastic Spoons, Umbrellas, Violins: A Guide to What Americans Buy From China**\
 `The things the U.S. imports a lot, the things it doesn’t and everything in between.`\
 https://nytimes.com/interactive/2025/05/24/upshot/china-imports.html

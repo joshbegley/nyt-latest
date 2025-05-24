@@ -1,3 +1,19 @@
+**New York’s Crackdown on E-bikes Is Unfair Enforcement, Critics Say**\
+`In what they say is a new safety campaign, the police are issuing summonses that may lead to arrest for cyclists who break the city’s traffic laws.`\
+https://nytimes.com/2025/05/24/nyregion/ebikes-scooters-cyclists-nyc.html
+
+**How Sarita Choudhury Spends Her Sundays**\
+`The “And Just Like That …” star lifts her spirits by grabbing coffee with friends, then escapes the world for an hour with acupuncture.`\
+https://nytimes.com/2025/05/24/nyregion/sarita-choudhury-and-just-like-that.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/24/crosswords/spelling-bee-forum.html
+
+**The Knicks' starting unit is hurting New York's chance at an NBA championship**\
+`The Knicks' starting unit is a combined minus-29 against the Pacers. They've lost two games by a combined 8 points. Is it time for change?`\
+https://nytimes.com/athletic/6379239/2025/05/24/new-york-knicks-starting-five-struggling-pacers/
+
 **Plastic Spoons, Umbrellas, Violins: A Guide to What Americans Buy From China**\
 `The things the U.S. imports a lot, the things it doesn’t and everything in between.`\
 https://nytimes.com/interactive/2025/05/24/upshot/china-imports.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6376410/2025/05/24/carlos-correa-twins-ty-france-wa
 **The New York Times in Print for Saturday, May 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/24/todays-new-york-times
-
-**Ronald Acuña Jr. blasts 467-foot homer on first pitch after nearly a year away**\
-`Still, a costly mistake by Eli White upended the good vibes as the Padres beat the Braves for the seventh consecutive time.`\
-https://nytimes.com/athletic/6379131/2025/05/24/braves-ronald-acuna-home-run-return/
-
-**With Stars' offense dormant — and Roope Hintz possibly out — it's time for Mikko Rantanen to carry them again**\
-`Rantanen hasn't scored a goal in five consecutive games — a problem mostly because the Stars' other forwards aren't stepping up enough.`\
-https://nytimes.com/athletic/6379133/2025/05/24/stars-game-2-oilers-rantanen/
-
-**Liverpool season review: Slot makes history, Salah makes headlines and Nunez's big moment**\
-`Looking back at the highs and lows of an historic 2024-025 campaign as the club claimed a 30th league title`\
-https://nytimes.com/athletic/6369595/2025/05/24/liverpool-2024-25-season-review/
-
-**Farewell to Kevin De Bruyne and Trent Alexander-Arnold, the Premier League's two best crossers**\
-`Both players have a right foot of the quality we tend to associate with a left foot. And there's no higher praise than that.`\
-https://nytimes.com/athletic/6377117/2025/05/24/de-bruyne-alexander-arnold-premier-league-crossing/
 
