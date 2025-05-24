@@ -1,3 +1,7 @@
+**Klopp disappointed at Alexander-Arnold booing: 'I switched the telly off'**\
+`Alexander-Arnold's every touch was booed by a vocal section of home supporters during the draw with Arsenal on May 11.`\
+https://nytimes.com/athletic/6379336/2025/05/24/liverpool-jurgen-klopp-alexander-arnold-booing/
+
 **Postecoglou leaves fans wanting more as Spurs celebrate Europa League victory**\
 `The Spurs manager got the loudest cheers as he and his players paraded their newly-won trophy to fans outside the club's stadium`\
 https://nytimes.com/athletic/6378878/2025/05/24/spurs-parade-europa-league-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379244/2025/05/24/oilers-stars-game-2-skinner/
 **In 'searching for a win', Knicks go away from Karl-Anthony Towns**\
 `Why did the Knicks bench their All-NBA big man when they most needed a rally? "The group that was in there gave us a chance."`\
 https://nytimes.com/athletic/6379172/2025/05/24/knicks-pacers-karl-anthony-towns-benched/
-
-**Carlos Correa impresses in return from concussion, leads Twins to 15th win in 17 games**\
-`Ty France delivered a walk-off homer for an increasingly healthy Twins lineup that might soon add Byron Buxton and Matt Wallner.`\
-https://nytimes.com/athletic/6376410/2025/05/24/carlos-correa-twins-ty-france-walkoff-win/
 
