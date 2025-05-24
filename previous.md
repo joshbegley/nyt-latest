@@ -1,6 +1,10 @@
+**Manchester United selling Alejandro Garnacho feels inevitable, but is it right?**\
+`Following the Europa League final loss on Wednesday, Ruben Amorim told Alejandro Garnacho to find a new club in a meeting with the squad`\
+https://nytimes.com/athletic/6379643/2025/05/24/manchester-united-alejandro-garnacho-transfer/
+
 **Iranian Movie Shot in Secret Wins Palme d’Or at Cannes Film Festival**\
 `The film, “Un Simple Accident,” was directed by Jafar Panahi, a longtime festival favorite. The award capped a contest that was widely seen as the strongest in years.`\
-https://nytimes.com/2025/05/24/movies/it-was-just-an-accident-palme-d-or-cannes.html
+https://nytimes.com/2025/05/24/movies/cannes-palme-d-or-it-was-just-an-accident.html
 
 **Clark, Fever fall in final seconds to Liberty after controversial no-call**\
 `With 2.2 seconds left, Clark had her game-winning 3-point attempt stripped by Liberty guard Natasha Cloud as the clock ran out.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
 **Bryson DeChambeau Q&A at Indy 500: On parallels between golfers and drivers**\
 `Golf star Bryson DeChambeau took a lap around the Indy 500 track Saturday. "I think it's very similar," he says of golfing and driving.`\
 https://nytimes.com/athletic/6379918/2025/05/24/bryson-dechambeau-qa-indy-500-golfers-drivers/
-
-**1 Dead After Explosion on Barge Near Manhattan Sewage Plant**\
-`The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
-https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html
 
