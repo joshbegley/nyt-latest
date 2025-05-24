@@ -1,3 +1,7 @@
+**Sheffield United 1 Sunderland 2 - Departing Tommy Watson's £200m goal secures Premier League promotion**\
+`Analysis of a dramatic Championship play-off final`\
+https://nytimes.com/athletic/6379594/2025/05/24/sheffield-united-sunderland-premier-league/
+
 **Crypto Investor Charged With Kidnapping and Torturing Man for Weeks**\
 `The investor, 37-year-old John Woeltz, was arrested Friday after the man escaped the downtown Manhattan townhouse where the police say he had been held and assaulted.`\
 https://nytimes.com/2025/05/24/nyregion/crypto-investor-torture-italian-tourist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/opinion/carnival-quebec-dreams.html
 **‘Economical, Adaptable and Endlessly Forgiving’**\
 `Would that every dish could be as kind — and delicious and riffable and filling — as this chickpea fatteh.`\
 https://nytimes.com/2025/05/24/dining/this-chickpea-fatteh-recipe-is-riffable-and-filling.html
-
-**The Sparkle**\
-`A carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
-https://nytimes.com/video/opinion/100000009382195/the-sparkle.html
 
