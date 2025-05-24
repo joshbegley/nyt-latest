@@ -1,5 +1,5 @@
-**Pascal Siakam dominates as Knicks face 0-2 hole: Takeaways from Pacers' Game 2 win**\
-`Pascal Siakam's career-high 39 points gave the Pacers a 114-109 win and a 2-0 series lead coming home. Here's what we learned.`\
+**Pascal Siakam dominates as Knicks face 2-0 hole: Takeaways from Pacers' Game 2 win**\
+`Siakam's career-high 39 points gave the Pacers a 114-109 win and a 2-0 series lead coming home. Here's what we learned.`\
 https://nytimes.com/athletic/6379008/2025/05/23/knicks-pacers-nba-playoffs-results-takeaways/
 
 **Corrections: May 24, 2025**\
