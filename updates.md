@@ -1,3 +1,11 @@
+**Elena Rybakina wins first title in over a year, thanks banned coach Stefano Vukov**\
+`Rybakina beat Liudmila Samsonova in three sets to lift the trophy in Strasbourg, France.`\
+https://nytimes.com/athletic/6379588/2025/05/24/tennis-elena-rybakina-titles-vukov-coach-banned/
+
+**Monaco GP qualifying: Lando Norris earns last-gasp pole ahead of Charles Leclerc**\
+`Norris used a last-second push lap to take pole away from home favorite Leclerc in Monaco`\
+https://nytimes.com/athletic/6379580/2025/05/24/monaco-gp-qualifying-2025-result/
+
 **Trump’s Big, Beautiful Bill Is the Same Old Republican Gruel**\
 `The Republican tax and benefit cuts are two sides of the same coin.`\
 https://nytimes.com/2025/05/24/opinion/tax-bill-snap-medicaid-trump.html
