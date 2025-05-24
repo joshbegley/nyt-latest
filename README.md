@@ -1,3 +1,7 @@
+**The Sparkle**\
+`A carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
+https://nytimes.com/video/opinion/100000009382195/the-sparkle.html
+
 **Amorim informs Man United squad he's staying, tells Garnacho to find new club**\
 `Amorim addressed players at the club's Carrington training ground on Saturday to inform them of his own plans and of those for Garnacho.`\
 https://nytimes.com/athletic/6379494/2025/05/24/manchester-united-ruben-amorim-garnacho-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379462/2025/05/24/barcelona-transfers-luis-diaz-ra
 **'Motorsports Christmas' is canceled. Writers on the end of Monaco, Indy and NASCAR's shared day**\
 `Monaco is moving to June, separating it from the Indy 500 and NASCAR’s Coca-Cola 600. Our writers bid farewell to the greatest day in racing`\
 https://nytimes.com/athletic/6378889/2025/05/24/f1-monaco-grand-prix-gp-date-changing/
-
-**Would Blues let Doug Armstrong go to Maple Leafs? Coaching staff changes? Mailbag, Part 2**\
-`Also in the mailbag: Will the team have a new-look jersey in 2025-26? Could it bring back David Perron? Why was Faulk on against the Jets?`\
-https://nytimes.com/athletic/6368422/2025/05/24/blues-doug-armstrong-maple-leafs-mailbag/
 
