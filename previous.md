@@ -1,3 +1,7 @@
+**Postecoglou leaves fans wanting more as Spurs celebrate Europa League victory**\
+`The Spurs manager got the loudest cheers as he and his players paraded their newly-won trophy to fans outside the club's stadium`\
+https://nytimes.com/athletic/6378878/2025/05/24/spurs-parade-europa-league-postecoglou/
+
 **New York’s Crackdown on E-bikes Is Unfair Enforcement, Critics Say**\
 `In what they say is a new safety campaign, the police are issuing summonses that may lead to arrest for cyclists who break the city’s traffic laws.`\
 https://nytimes.com/2025/05/24/nyregion/ebikes-scooters-cyclists-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379172/2025/05/24/knicks-pacers-karl-anthony-towns
 **Carlos Correa impresses in return from concussion, leads Twins to 15th win in 17 games**\
 `Ty France delivered a walk-off homer for an increasingly healthy Twins lineup that might soon add Byron Buxton and Matt Wallner.`\
 https://nytimes.com/athletic/6376410/2025/05/24/carlos-correa-twins-ty-france-walkoff-win/
-
-**The New York Times in Print for Saturday, May 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/24/todays-new-york-times
 

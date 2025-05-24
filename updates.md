@@ -1,3 +1,7 @@
+**Postecoglou leaves fans wanting more as Spurs celebrate Europa League victory**\
+`The Spurs manager got the loudest cheers as he and his players paraded their newly-won trophy to fans outside the club's stadium`\
+https://nytimes.com/athletic/6378878/2025/05/24/spurs-parade-europa-league-postecoglou/
+
 **New York’s Crackdown on E-bikes Is Unfair Enforcement, Critics Say**\
 `In what they say is a new safety campaign, the police are issuing summonses that may lead to arrest for cyclists who break the city’s traffic laws.`\
 https://nytimes.com/2025/05/24/nyregion/ebikes-scooters-cyclists-nyc.html
