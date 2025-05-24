@@ -1,3 +1,11 @@
+**Novak Djokovic wins 100th tennis title with victory over Hubert Hurkacz in Geneva**\
+`Djokovic defeated Hurkacz for the eighth time in a row to bring up the milestone.`\
+https://nytimes.com/athletic/6379607/2025/05/24/novak-djokovic-tennis-100-titles-hurkacz-geneva/
+
+**Panthers star Sam Reinhart to miss Game 3 of Eastern Conference finals**\
+`Panthers coach Paul Maurice said forward Jesper Boqvist will replace Reinhart, who the team considers day-to-day.`\
+https://nytimes.com/athletic/6379726/2025/05/24/nhl-panthers-sam-reinhart-injury-game-3/
+
 **Sheffield United 1 Sunderland 2 - Departing Tommy Watson's £200m goal secures Premier League promotion**\
 `Analysis of a dramatic Championship play-off final`\
 https://nytimes.com/athletic/6379594/2025/05/24/sheffield-united-sunderland-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6379580/2025/05/24/monaco-gp-qualifying-2025-result
 **Trump’s Big, Beautiful Bill Is the Same Old Republican Gruel**\
 `The Republican tax and benefit cuts are two sides of the same coin.`\
 https://nytimes.com/2025/05/24/opinion/tax-bill-snap-medicaid-trump.html
-
-**They Make Dreams Come True. But What About Their Own?**\
-`In “The Sparkle,” a carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
-https://nytimes.com/2025/05/24/opinion/carnival-quebec-dreams.html
-
-**‘Economical, Adaptable and Endlessly Forgiving’**\
-`Would that every dish could be as kind — and delicious and riffable and filling — as this chickpea fatteh.`\
-https://nytimes.com/2025/05/24/dining/this-chickpea-fatteh-recipe-is-riffable-and-filling.html
 
