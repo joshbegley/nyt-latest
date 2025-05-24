@@ -1,3 +1,7 @@
+**Ronald Acuña Jr. blasts 467-foot homer on first pitch after nearly a year away**\
+`Still, a costly mistake by Eli White upended the good vibes as the Padres beat the Braves for the seventh consecutive time.`\
+https://nytimes.com/athletic/6379131/2025/05/24/braves-ronald-acuna-home-run-return/
+
 **With Stars' offense dormant — and Roope Hintz possibly out — it's time for Mikko Rantanen to carry them again**\
 `Rantanen hasn't scored a goal in five consecutive games — a problem mostly because the Stars' other forwards aren't stepping up enough.`\
 https://nytimes.com/athletic/6379133/2025/05/24/stars-game-2-oilers-rantanen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377300/2025/05/24/jose-mourinho-fenerbahce-future-
 **Why the Championship play-off final is the most lucrative match in world football**\
 `Winning the Championship play-off final guarantees a club at least £200m - and likely plenty more than that`\
 https://nytimes.com/athletic/6361225/2025/05/24/championship-play-off-final-finance-explained/
-
-**Are we witnessing the end of the Premier League's 'big six' hierarchy?**\
-`Manchester United have lost their fear factor at the same time as the Premier League’s middle class are feeling more ambitious than ever`\
-https://nytimes.com/athletic/6377839/2025/05/24/premier-league-rise-middle-class-clubs-big-six/
 
