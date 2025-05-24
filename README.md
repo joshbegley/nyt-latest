@@ -1,3 +1,11 @@
+**Ten Hag reaches agreement in principle to become Leverkusen coach**\
+`The Dutchman had been out of football since leaving United in October and has reached an agreement in principle to replace Xabi Alonso.`\
+https://nytimes.com/athletic/6355721/2025/05/24/ten-hag-leverkusen-manager/
+
+**Kyle Busch returning to Richard Childress Racing in 2026, continuing in No. 8**\
+`Busch currently ranks 17th in the standings, seven points behind RFK Racing’s Ryan Preece for the last provisional playoff spot.`\
+https://nytimes.com/athletic/6379674/2025/05/24/nascar-kyle-busch-rcr-return-2026/
+
 **Elena Rybakina wins first title in over a year, thanks banned coach Stefano Vukov**\
 `Rybakina beat Liudmila Samsonova in three sets to lift the trophy in Strasbourg, France.`\
 https://nytimes.com/athletic/6379588/2025/05/24/tennis-elena-rybakina-titles-vukov-coach-banned/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6379494/2025/05/24/manchester-united-ruben-amorim-g
 **Postecoglou says no talks on Spurs future since UEL win**\
 `Postecoglou led Tottenham to their first major trophy since 2008 and their first European triumph since the UEFA Cup in 1984.`\
 https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-future/
-
-**Wilshere leaves Norwich after spell as interim head coach**\
-`The former Arsenal and England midfielder oversaw the club's final two games of the Championship season, picking up four points.`\
-https://nytimes.com/athletic/6317355/2025/05/24/jack-wilshere-manager-norwich/
-
-**Trump Administration Live Updates: Trump Gives Commencement Address at West Point**\
-``\
-https://nytimes.com/live/2025/05/24/us/trump-news
 
