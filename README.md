@@ -1,3 +1,7 @@
+**Army Report Links Pentagon Equipment Glitch to Aborted Landings at D.C. Airport**\
+`The diversion of two commercial flights on May 1 has raised new questions about equipment and safety in some of Washington’s busiest airspace.`\
+https://nytimes.com/2025/05/23/us/politics/army-black-hawk-aborted-landings-dc-airport.html
+
 **Senators Visit Canada, Seeking a Reset Amid Trump’s Provocations**\
 `Democrats and one Republican made the trip, seeking to stabilize the U.S.-Canada relationship after President Trump imposed tariffs on Canada and suggested it should become the 51st state.`\
 https://nytimes.com/2025/05/23/us/senators-canada-meeting-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010186721/trumps-big-budget-bomb.html
 **Sebastião Salgado: A Life in Pictures**\
 `The celebrated Brazilian photojournalist depicted the world in stark contrasts, from the depths of human suffering to the monumental grandeur of nature.`\
 https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html
-
-**Matt Vierling is back, and the Tigers are getting reinforcements at the right time**\
-`Vierling was activated from the IL on Friday. Teammates Parker Meadows and Wenceel Pérez could soon join him in Detroit. `\
-https://nytimes.com/athletic/6378761/2025/05/23/matt-vierling-return-detroit-tigers-reinforcements/
 
