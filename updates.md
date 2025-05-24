@@ -1,3 +1,15 @@
+**Trump’s Big, Beautiful Bill Is the Same Old Republican Gruel**\
+`The Republican tax and benefit cuts are two sides of the same coin.`\
+https://nytimes.com/2025/05/24/opinion/tax-bill-snap-medicaid-trump.html
+
+**They Make Dreams Come True. But What About Their Own?**\
+`In “The Sparkle,” a carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
+https://nytimes.com/2025/05/24/opinion/carnival-quebec-dreams.html
+
+**‘Economical, Adaptable and Endlessly Forgiving’**\
+`Would that every dish could be as kind — and delicious and riffable and filling — as this chickpea fatteh.`\
+https://nytimes.com/2025/05/24/dining/this-chickpea-fatteh-recipe-is-riffable-and-filling.html
+
 **The Sparkle**\
 `A carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
 https://nytimes.com/video/opinion/100000009382195/the-sparkle.html
