@@ -1,3 +1,7 @@
+**Zack Wheeler extends scoreless streak on minor-league mound that felt 'like cement'**\
+`Wheeler posted zeroes even in an a less-than-ideal environment in Sacramento.`\
+https://nytimes.com/athletic/6379289/2025/05/24/phillies-streak-zack-wheeler-sutter-health-park/
+
 **Dodgers' pitching staff continues heavy workload, but holds on in 13-inning win**\
 `The Dodgers' bullpen eventually got it done in New York in a marathon contest that ended at 12:56 a.m. local time.`\
 https://nytimes.com/athletic/6379281/2025/05/24/dodgers-mets-result-pitching-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379239/2025/05/24/new-york-knicks-starting-five-st
 **Plastic Spoons, Umbrellas, Violins: A Guide to What Americans Buy From China**\
 `The things the U.S. imports a lot, the things it doesn’t and everything in between.`\
 https://nytimes.com/interactive/2025/05/24/upshot/china-imports.html
-
-**Judge Orders Trump Officials to Seek Return of Guatemalan Man to U.S.**\
-`Judge Brian Murphy criticized the government for errors in the case and said the man, who feared persecution if he was deported, was likely to show “his removal lacked any semblance of due process.”`\
-https://nytimes.com/2025/05/24/us/politics/trump-deportation-court-mexico.html
 
