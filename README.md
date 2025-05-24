@@ -1,3 +1,7 @@
+**Trump Seeks Extensive Student Data in Pressure Campaign to Control Harvard**\
+`Harvard and the federal government are locked in a battle that boils down to turning over records on international students. But Harvard says it is also about the First Amendment.`\
+https://nytimes.com/2025/05/23/us/trump-harvard-international-student-records.html
+
 **These Are the U.S. Universities Most Dependent on International Students**\
 `What was once a sign of international renown now looks like a vulnerability.`\
 https://nytimes.com/2025/05/23/upshot/harvard-trump-international-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/us/abraham-lincoln-stained-gloves-auction.html
 **National Security Council Staff Will Be Cut by Half**\
 `The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
 https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html
-
-**Shai Gilgeous-Alexander, Nikola Jokić headline first All-NBA team**\
-`Cade Cunningham, 23, was named to the All-NBA third team, increasing the value of the contract extension he signed last summer.`\
-https://nytimes.com/athletic/6378813/2025/05/23/all-nba-team-shai-gilgeous-alexander-nikola-jokic-2025/
 
