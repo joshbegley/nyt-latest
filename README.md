@@ -1,3 +1,7 @@
+**Send Flying**\
+`Gene Louise de Vera’s latest puzzle is packed with adventure.`\
+https://nytimes.com/2025/05/23/crosswords/daily-puzzle-2025-05-24.html
+
 **Army Report Links Pentagon Equipment Glitch to Aborted Landings at D.C. Airport**\
 `The diversion of two commercial flights on May 1 has raised new questions about equipment and safety in some of Washington’s busiest airspace.`\
 https://nytimes.com/2025/05/23/us/politics/army-black-hawk-aborted-landings-dc-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/books/leslie-epstein-dead.html
 **Trump's Big Budget Bomb**\
 `The journalist Catherine Rampell discusses how Trump’s tax-cut bill will impact Americans.`\
 https://nytimes.com/video/opinion/100000010186721/trumps-big-budget-bomb.html
-
-**Sebastião Salgado: A Life in Pictures**\
-`The celebrated Brazilian photojournalist depicted the world in stark contrasts, from the depths of human suffering to the monumental grandeur of nature.`\
-https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html
 
