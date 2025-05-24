@@ -1,3 +1,11 @@
+**Milan ultras stage choreographed 'Go Home' protest against club owners**\
+`Protests were held ahead of the match outside the club's Casa Milan headquarters with a mass walkout in the 15th-minute of the game.`\
+https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-owners/
+
+**A Veteran Vintage Dealer Tries On Manhattan**\
+`Tommy Dorr, the owner of Mothfood, has been in the business for more than two decades. But it wasn’t until this month that he brought the shop to his most discerning shoppers: New Yorkers.`\
+https://nytimes.com/2025/05/24/style/mothfood-vintage-tommy-dorr.html
+
 **Trump Gives Commencement Address at West Point, Stressing a New Era**\
 `The president said the graduating cadets would enter a service no longer subject to “absurd ideological experiments” or “nation-building crusades.”`\
 https://nytimes.com/2025/05/24/us/politics/trump-speech-west-point-commencement.html
