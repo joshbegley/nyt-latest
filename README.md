@@ -1,3 +1,11 @@
+**Crypto Investor Charged With Kidnapping and Torturing Man for Weeks**\
+`The investor, 37-year-old John Woeltz, was arrested Friday after the man escaped the downtown Manhattan townhouse where the police say he had been held and assaulted.`\
+https://nytimes.com/2025/05/24/nyregion/crypto-investor-torture-italian-tourist.html
+
+**Special treatment for Oilers' Connor McDavid? Kris Knoblauch thinks it's the opposite. Plus, Game 3 lineup notes**\
+`Knoblauch pushed back against comments from the Dallas Stars after Roope Hintz's injury in Game 2 from a Darnell Nurse slash.`\
+https://nytimes.com/athletic/6379265/2025/05/24/oilers-stars-mcdavid-hintz-nurse-game-3/
+
 **Ten Hag reaches agreement in principle to become Leverkusen coach**\
 `The Dutchman had been out of football since leaving United in October and has reached an agreement in principle to replace Xabi Alonso.`\
 https://nytimes.com/athletic/6355721/2025/05/24/ten-hag-leverkusen-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/24/dining/this-chickpea-fatteh-recipe-is-riffable-an
 **The Sparkle**\
 `A carnival worker dreams of leaving what he knows behind to follow his passion. What is there for him on the other side?`\
 https://nytimes.com/video/opinion/100000009382195/the-sparkle.html
-
-**Amorim informs Man United squad he's staying, tells Garnacho to find new club**\
-`Amorim addressed players at the club's Carrington training ground on Saturday to inform them of his own plans and of those for Garnacho.`\
-https://nytimes.com/athletic/6379494/2025/05/24/manchester-united-ruben-amorim-garnacho-future/
-
-**Postecoglou says no talks on Spurs future since UEL win**\
-`Postecoglou led Tottenham to their first major trophy since 2008 and their first European triumph since the UEFA Cup in 1984.`\
-https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-future/
 
