@@ -1,3 +1,11 @@
+**Judge Orders Trump Officials to Seek Return of Guatemalan Man to U.S.**\
+`Judge Brian Murphy criticized the government for errors in the case and said the man, who feared persecution if he was deported, was likely to show “his removal lacked any semblance of due process.”`\
+https://nytimes.com/2025/05/24/us/politics/trump-deportation-court-mexico.html
+
+**Naples cranks up the noise to help Antonio Conte's Napoli over the line**\
+`A fanbase can make themselves felt just as much as players. They can play a role in a game, a season, in the climax of a title race...`\
+https://nytimes.com/athletic/6365431/2025/05/24/napoli-conte-scudetto-serie-a/
+
 **Oilers 'punch back' with strong Game 2 — and with Stuart Skinner back in shutout form**\
 `Edmonton showed no ill effects from its Game 1 meltdown and controlled the game Friday night with a 3-0 win.`\
 https://nytimes.com/athletic/6379244/2025/05/24/oilers-stars-game-2-skinner/
