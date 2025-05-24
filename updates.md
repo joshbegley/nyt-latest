@@ -1,3 +1,11 @@
+**Ten Hag reaches agreement in principle to become Leverkusen coach**\
+`The Dutchman had been out of football since leaving United in October and has reached an agreement in principle to replace Xabi Alonso.`\
+https://nytimes.com/athletic/6355721/2025/05/24/ten-hag-leverkusen-manager/
+
+**Kyle Busch returning to Richard Childress Racing in 2026, continuing in No. 8**\
+`Busch currently ranks 17th in the standings, seven points behind RFK Racing’s Ryan Preece for the last provisional playoff spot.`\
+https://nytimes.com/athletic/6379674/2025/05/24/nascar-kyle-busch-rcr-return-2026/
+
 **Elena Rybakina wins first title in over a year, thanks banned coach Stefano Vukov**\
 `Rybakina beat Liudmila Samsonova in three sets to lift the trophy in Strasbourg, France.`\
 https://nytimes.com/athletic/6379588/2025/05/24/tennis-elena-rybakina-titles-vukov-coach-banned/
