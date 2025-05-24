@@ -1,3 +1,11 @@
+**In 'searching for a win', Knicks go away from Karl-Anthony Towns**\
+`Why did the Knicks bench their All-NBA big man when they most needed a rally? "The group that was in there gave us a chance."`\
+https://nytimes.com/athletic/6379172/2025/05/24/knicks-pacers-karl-anthony-towns-benched/
+
+**Carlos Correa impresses in return from concussion, leads Twins to 15th win in 17 games**\
+`Ty France delivered a walk-off homer for an increasingly healthy Twins lineup that may soon add Byron Buxton and Matt Wallner.`\
+https://nytimes.com/athletic/6376410/2025/05/24/carlos-correa-twins-ty-france-walkoff-win/
+
 **The New York Times in Print for Saturday, May 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/24/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6103168/2025/05/24/rodri-real-madrid-acl-clinic/
 **Liverpool 30, Arsenal 29, Ipswich 10 - How Premier League TV picks work and how many times each team was chosen**\
 `Explaining how much every team has been shown on TV this season and in recent seasons - and how it all works`\
 https://nytimes.com/athletic/6377463/2025/05/24/premier-league-liverpool-tv-games/
-
-**What it's like to watch your son win the FA Cup - by Chris Richards' parents**\
-`The Crystal Palace and USMNT defender's parents, Carrie and Ken, were at Wembley to witness the historic victory last weekend`\
-https://nytimes.com/athletic/6377441/2025/05/24/richards-palace-fa-cup-usmnt/
-
-**Why Jose Mourinho isn't going to be sacked by Fenerbahce... yet**\
-`Why are the club keeping faith with him after a season that has not just been bad, but at times farcical? Nick Miller explains...`\
-https://nytimes.com/athletic/6377300/2025/05/24/jose-mourinho-fenerbahce-future-job/
 
