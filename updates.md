@@ -1,3 +1,15 @@
+**The big talking points at your Premier League club on the final day of the season**\
+`From celebrating rare silverware to letting the team know what you think of them, there will be a lot to discuss as the season concludes...`\
+https://nytimes.com/athletic/6374677/2025/05/24/premier-league-final-day-talking-points-by-club/
+
+**What Luka Modric means to Real Madrid and football — explained by his team-mates and coaches**\
+`Modric will leave Real Madrid this summer as a club legend. Here, Jose Mourinho and more figures from his career explain his impact`\
+https://nytimes.com/athletic/6375470/2025/05/24/luka-modric-real-madrid-tributes/
+
+**How to watch Women's Champions League final 2025: What's at stake for Arsenal, Barcelona**\
+`Everything you need to know ahead of Saturday's European finale.`\
+https://nytimes.com/athletic/6378641/2025/05/24/champions-league-final-2025-womens-barcelona-arsenal/
+
 **Europe’s Been Negotiating by the Book, but Trump’s Tearing It Up**\
 `The Trump administration sees tariff talks as a chance to pressure a rival into concessions. E.U. officials have acted as though they were dealing with an ally.`\
 https://nytimes.com/2025/05/24/world/europe/europe-trade-trump-50-percent-threat.html
