@@ -1,3 +1,20 @@
+**'Motorsports Christmas' is canceled. Writers on the end of Monaco, Indy and NASCAR's shared day**\
+`Monaco is moving to June, separating it from the Indy 500 and NASCAR’s Coca-Cola 600. Our writers bid farewell to the greatest day in racing`\
+https://nytimes.com/athletic/6378889/2025/05/24/f1-monaco-grand-prix-gp-date-changing/
+
+**Would Blues let Doug Armstrong go to Maple Leafs? Coaching staff changes? Mailbag, Part 2**\
+`Also in the mailbag: Will the team have a new-look jersey in 2025-26? Could it bring back David Perron? Why was Faulk on against the Jets?`\
+https://nytimes.com/athletic/6368422/2025/05/24/blues-doug-armstrong-maple-leafs-mailbag/
+
+**Brad Treliving has the keys to the Maple Leafs. Is he up to the task?**\
+`With the Leafs in Treliving’s hands now, the GM has a lot on his plate and will be tested more than ever this offseason.`\
+https://nytimes.com/athletic/6377907/2025/05/24/maple-leafs-brad-treliving-nhl-gm/
+
+**What's behind Hurricanes' 14-game conference finals skid? How can they end it?**\
+`Looking into some of the numbers behind the bleak streak offers a glimpse of what needs to go right for Carolina in Game 3 to snap it.
+`\
+https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conference-finals-skid/
+
 **What's behind Hurricanes' 14-game conference finals skid? How can they end it?**\
 `Looking into some of the numbers behind the bleak streak offers a glimpse of what needs to go right for Carolina in Game 3 to snap it.
 `\
