@@ -1,3 +1,7 @@
+**Farewell to Kevin De Bruyne and Trent Alexander-Arnold, the Premier League's two best crossers**\
+`Both players have a right foot of the quality we tend to associate with a left foot. And there's no higher praise than that.`\
+https://nytimes.com/athletic/6377117/2025/05/24/de-bruyne-alexander-arnold-premier-league-crossing/
+
 **Brandon Williams and a case that highlights football’s laughing gas issue**\
 `Nitrous oxide - or laughing gas - has been used by some footballers in recent years but it is now a banned substance in the UK`\
 https://nytimes.com/athletic/6305246/2025/05/24/laughing-gas-football-brandon-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374677/2025/05/24/premier-league-final-day-talking
 **What Luka Modric means to Real Madrid and football — explained by his team-mates and coaches**\
 `Modric will leave Real Madrid this summer as a club legend. Here, Jose Mourinho and more figures from his career explain his impact`\
 https://nytimes.com/athletic/6375470/2025/05/24/luka-modric-real-madrid-tributes/
-
-**How to watch Women's Champions League final 2025: What's at stake for Arsenal, Barcelona**\
-`Everything you need to know ahead of Saturday's European finale.`\
-https://nytimes.com/athletic/6378641/2025/05/24/champions-league-final-2025-womens-barcelona-arsenal/
 
