@@ -1,3 +1,11 @@
+**With Stars' offense dormant — and Roope Hintz possibly out — it's time for Mikko Rantanen to carry them again**\
+`Rantanen hasn't scored a goal in five consecutive games — a problem mostly because the Stars' other forwards aren't stepping up enough.`\
+https://nytimes.com/athletic/6379133/2025/05/24/stars-game-2-oilers-rantanen/
+
+**Liverpool season review: Slot makes history, Salah makes headlines and Nunez's big moment**\
+`Looking back at the highs and lows of an historic 2024-025 campaign as the club claimed a 30th league title`\
+https://nytimes.com/athletic/6369595/2025/05/24/liverpool-2024-25-season-review/
+
 **Farewell to Kevin De Bruyne and Trent Alexander-Arnold, the Premier League's two best crossers**\
 `Both players have a right foot of the quality we tend to associate with a left foot. And there's no higher praise than that.`\
 https://nytimes.com/athletic/6377117/2025/05/24/de-bruyne-alexander-arnold-premier-league-crossing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6361225/2025/05/24/championship-play-off-final-fina
 **Are we witnessing the end of the Premier League's 'big six' hierarchy?**\
 `Manchester United have lost their fear factor at the same time as the Premier League’s middle class are feeling more ambitious than ever`\
 https://nytimes.com/athletic/6377839/2025/05/24/premier-league-rise-middle-class-clubs-big-six/
-
-**The big talking points at your Premier League club on the final day of the season**\
-`From celebrating rare silverware to letting the team know what you think of them, there will be a lot to discuss as the season concludes...`\
-https://nytimes.com/athletic/6374677/2025/05/24/premier-league-final-day-talking-points-by-club/
-
-**What Luka Modric means to Real Madrid and football — explained by his team-mates and coaches**\
-`Modric will leave Real Madrid this summer as a club legend. Here, Jose Mourinho and more figures from his career explain his impact`\
-https://nytimes.com/athletic/6375470/2025/05/24/luka-modric-real-madrid-tributes/
 
