@@ -1,3 +1,11 @@
+**2 Novels of America at Particular, Peculiar Moments**\
+`Florida in the early 1960s; California in the mid-1980s.`\
+https://nytimes.com/2025/05/24/books/read-like-wind-recommendations.html
+
+**Hamburg Stabbing Attack Victims Are in Stable Condition, Police Say**\
+`The police said they believed the violence, which injured 18 people during Friday’s evening rush hour, was not politically motivated.`\
+https://nytimes.com/2025/05/24/world/europe/germany-hamburg-stabbing.html
+
 **What Cade Cunningham's All-NBA honor means for Pistons' financial future**\
 `By making the All-NBA Third Team, Cade Cunningham earned a raise, which could complicate Detroit's finances.`\
 https://nytimes.com/athletic/6378933/2025/05/24/cade-cunningham-all-nba-pistons-salary-cap/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6375302/2025/05/24/blake-montgomery-ottawa-senators
 **A Brain-Dead Woman Is Being Kept on Machines to Gestate a Fetus. It Was Inevitable.**\
 `Abortion laws did not consider what happens if a woman dies while her fetus has a heartbeat.`\
 https://nytimes.com/2025/05/24/opinion/georgia-abortion-brain-dead.html
-
-**Why Must Tom Cruise Keep Dangling From Biplanes?**\
-`It’s hard to suspend disbelief watching a movie when you’re thinking about how much Tiger Balm went into its making.`\
-https://nytimes.com/2025/05/24/opinion/tom-cruise-mission-impossible.html
-
-**The Way You Build Muscle Is the Way You Build a Life**\
-`Our muscles, ourselves.`\
-https://nytimes.com/2025/05/24/opinion/muscles-bodies-fathers-daughters.html
 
