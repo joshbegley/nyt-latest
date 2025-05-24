@@ -1,3 +1,11 @@
+**Oilers 'punch back' with strong Game 2 response — and with Stuart Skinner back in shutout form**\
+`Edmonton showed no ill effects from their Game 1 meltdown and controlled the game on Friday night.`\
+https://nytimes.com/athletic/6379244/2025/05/24/oilers-stars-game-2-skinner/
+
+**Carlos Correa impresses in return from concussion, leads Twins to 15th win in 17 games**\
+`Ty France delivered a walk-off homer for an increasingly healthy Twins lineup that might soon add Byron Buxton and Matt Wallner.`\
+https://nytimes.com/athletic/6376410/2025/05/24/carlos-correa-twins-ty-france-walkoff-win/
+
 **In 'searching for a win', Knicks go away from Karl-Anthony Towns**\
 `Why did the Knicks bench their All-NBA big man when they most needed a rally? "The group that was in there gave us a chance."`\
 https://nytimes.com/athletic/6379172/2025/05/24/knicks-pacers-karl-anthony-towns-benched/
