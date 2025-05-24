@@ -1,3 +1,7 @@
+**Michael Schumacher Ferrari breaks record with $18m sale at auction**\
+`The F2001 becomes the most expensive F1 car driven by the legendary German driver ever sold at auction.`\
+https://nytimes.com/athletic/6379790/2025/05/24/michael-schumacher-ferrari-f1-car-sale-auction/
+
 **Novak Djokovic wins 100th tennis title with victory over Hubert Hurkacz in Geneva**\
 `Djokovic defeated Hurkacz for the eighth time in a row to bring up the milestone.`\
 https://nytimes.com/athletic/6379607/2025/05/24/novak-djokovic-tennis-100-titles-hurkacz-geneva/
