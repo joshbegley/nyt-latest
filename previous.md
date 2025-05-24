@@ -1,4 +1,8 @@
-**Kyle Larson, another Indy 500/NASCAR 'Double' try, and a GOAT legacy in reach**\
+**Arsenal spent years building their Women's Champions League upset over Barcelona**\
+`Eighteen years after becoming the first English side to win the Champions League, Arsenal are back at the pinnacle of European football`\
+https://nytimes.com/athletic/6379350/2025/05/24/inside-arsenal-second-womens-champions-league-trophy/
+
+**Kyle Larson, another Indy 500/NASCAR 'Double' try and a GOAT legacy in reach**\
 `Is Kyle Larson the greatest driver in the world? What he's attempting Sunday — an 1,110-mile marathon — is a chance to stamp his legacy.`\
 https://nytimes.com/athletic/6380010/2025/05/24/kyle-larson-indy-500-nascar-double-goat-legacy/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/world/middleeast/israel-gaza-aid-plan.html
 **Guardians promote pitcher Nic Enright less than 3 years after cancer diagnosis**\
 `The Tigers, coincidentally, are hosting “Strike Out Cancer Weekend” the night Enright is set to debut.`\
 https://nytimes.com/athletic/6379732/2025/05/24/guardians-nic-enright-promotion-cancer-diagnosis/
-
-**Milan ultras stage choreographed 'Go Home' protest against club owners**\
-`Protests were held ahead of the match outside the club's Casa Milan headquarters with a mass walkout in the 15th-minute of the game.`\
-https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-owners/
 
