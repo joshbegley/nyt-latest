@@ -1,3 +1,7 @@
+**Power Outage Hits Cannes Area During Film Festival**\
+`Organizers said that the festival quickly switched over to backup power and that its closing ceremony on Saturday would not be disrupted. The cause of the outage was not immediately clear.`\
+https://nytimes.com/2025/05/24/world/europe/cannes-festival-power-outage.html
+
 **2 Novels of America at Particular, Peculiar Moments**\
 `Florida in the early 1960s; California in the mid-1980s.`\
 https://nytimes.com/2025/05/24/books/read-like-wind-recommendations.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/24/opinion/trump-authoritarianism-resistance.html
 **Meet Blake Montgomery, the Sens prospect taking one 'big step' after another**\
 `Montgomery, a fourth-round pick by Ottawa in 2024, is now playing in the Memorial Cup with the London Knights.`\
 https://nytimes.com/athletic/6375302/2025/05/24/blake-montgomery-ottawa-senators-london-knights/
-
-**A Brain-Dead Woman Is Being Kept on Machines to Gestate a Fetus. It Was Inevitable.**\
-`Abortion laws did not consider what happens if a woman dies while her fetus has a heartbeat.`\
-https://nytimes.com/2025/05/24/opinion/georgia-abortion-brain-dead.html
 
