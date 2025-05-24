@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6379350/2025/05/24/inside-arsenal-second-womens-champions-league-trophy/
 
 **Kyle Larson, another Indy 500/NASCAR 'Double' try and a GOAT legacy in reach**\
-`Is Kyle Larson the greatest driver in the world? What he's attempting Sunday — an 1,110-mile marathon — is a chance to stamp his legacy.`\
+`Is Larson the greatest driver in the world? What he's attempting Sunday — an 1,110-mile marathon — is a chance to stamp his legacy.`\
 https://nytimes.com/athletic/6380010/2025/05/24/kyle-larson-indy-500-nascar-double-goat-legacy/
 
 **U.S. Man Who Lived Abroad With Family’s Nanny Is Charged in Wife’s Murder**\
