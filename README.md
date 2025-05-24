@@ -1,3 +1,15 @@
+**Iranian Movie Shot in Secret Wins Palme d’Or at Cannes Film Festival**\
+`The film, “Un Simple Accident,” was directed by Jafar Panahi, a longtime festival favorite. The award capped a contest that was widely seen as the strongest in years.`\
+https://nytimes.com/2025/05/24/movies/it-was-just-an-accident-palme-d-or-cannes.html
+
+**Clark, Fever fall in final seconds to Liberty after controversial no-call**\
+`With 2.2 seconds left, Clark had her game-winning 3-point attempt stripped by Liberty guard Natasha Cloud as the clock ran out.`\
+https://nytimes.com/athletic/6380084/2025/05/24/caitlin-clark-fever-liberty-sabrina-ionescu/
+
+**New Gaza Aid Plan, Bypassing U.N. and Billed as Neutral, Originated in Israel**\
+`Foreign contractors are set to carry out a contentious new food aid system in Gaza, displacing experienced aid agencies like the United Nations. It was conceived and largely developed by Israelis as a way to undermine Hamas.`\
+https://nytimes.com/2025/05/24/world/middleeast/israel-gaza-aid-plan.html
+
 **Guardians promote pitcher Nic Enright less than 3 years after cancer diagnosis**\
 `The Tigers, coincidentally, are hosting “Strike Out Cancer Weekend” the night Enright is set to debut.`\
 https://nytimes.com/athletic/6379732/2025/05/24/guardians-nic-enright-promotion-cancer-diagnosis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6379918/2025/05/24/bryson-dechambeau-qa-indy-500-go
 **1 Dead After Explosion on Barge Near Manhattan Sewage Plant**\
 `The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
 https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html
-
-**Frank Moore, a Top Aide to Jimmy Carter, Is Dead at 89**\
-`After serving as chief of staff when Carter was governor of Georgia, he followed him to Washington, where both men encountered a hostile political establishment.`\
-https://nytimes.com/2025/05/24/us/politics/frank-moore-dead.html
-
-**The Briefing: Arsenal 1 Barcelona 0 - Second-half changes earn second Champions League title**\
-`We analyse the key talking points from Lisbon as Arsenal made European history against perennial winners Barcelona`\
-https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champions-league-title/
-
-**U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
-`By Isabela Espadas Barros Leal and James C. McKinley Jr.`\
-https://nytimes.com/live/2025/05/24/us/trump-news/us-temporarily-lifts-some-sanctions-on-syria-fulfilling-a-trump-pledge
 
