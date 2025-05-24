@@ -1,3 +1,7 @@
+**1 Dead After Explosion on Barge Near Manhattan Sewage Plant**\
+`The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
+https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html
+
 **1 Dead After Explosion on Boat Near Manhattan Sewage Plant**\
 `The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
 https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html

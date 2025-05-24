@@ -1,3 +1,11 @@
+**Red Sox call up prospect Marcelo Mayer: Source**\
+`Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
+https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
+
+**Bryson DeChambeau Q&A at Indy 500: On parallels between golfers and drivers**\
+`Golf star Bryson DeChambeau took a lap around the Indy 500 track Saturday. "I think it's very similar," he says of golfing and driving.`\
+https://nytimes.com/athletic/6379918/2025/05/24/bryson-dechambeau-qa-indy-500-golfers-drivers/
+
 **1 Dead After Explosion on Barge Near Manhattan Sewage Plant**\
 `The victim, who worked at the plant, was transporting raw sewage on the boat when part of it exploded on Saturday, the Fire Department said. The cause is under investigation.`\
 https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/05/24/nyregion/explosion-north-river-wastewater-plant.h
 https://nytimes.com/2025/05/24/us/politics/frank-moore-dead.html
 
 **The Briefing: Arsenal 1 Barcelona 0 - Second-half changes earn second Champions League title**\
-`We analyse the key takeaways from Lisbon as Arsenal made European history against perennial winners Barcelona`\
+`We analyse the key talking points from Lisbon as Arsenal made European history against perennial winners Barcelona`\
 https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champions-league-title/
 
 **U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6237964/2025/05/24/novak-djokovic-100-titles-tennis
 **Michael Schumacher Ferrari breaks record with $18m sale at auction**\
 `The F2001 becomes the most expensive F1 car driven by the legendary German driver ever sold at auction.`\
 https://nytimes.com/athletic/6379790/2025/05/24/michael-schumacher-ferrari-f1-car-sale-auction/
-
-**Novak Djokovic wins 100th tennis title with victory over Hubert Hurkacz in Geneva**\
-`Djokovic defeated Hurkacz for the eighth time in a row to bring up the milestone.`\
-https://nytimes.com/athletic/6379607/2025/05/24/novak-djokovic-tennis-100-titles-hurkacz-geneva/
-
-**Panthers star Sam Reinhart to miss Game 3 of Eastern Conference final**\
-`Panthers coach Paul Maurice said forward Jesper Boqvist will replace Reinhart, who the team considers day-to-day.`\
-https://nytimes.com/athletic/6379726/2025/05/24/nhl-panthers-sam-reinhart-injury-game-3/
 
