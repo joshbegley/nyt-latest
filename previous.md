@@ -1,3 +1,11 @@
+**Frank Moore, a Top Aide to Jimmy Carter, Is Dead at 89**\
+`After serving as chief of staff when Carter was governor of Georgia, he followed him to Washington, where both men encountered a hostile political establishment.`\
+https://nytimes.com/2025/05/24/us/politics/frank-moore-dead.html
+
+**The Briefing: Arsenal 1 Barcelona 0 - Second-half changes earn second Champions League title**\
+`Arsenal defeat reigning champions Barcelona to earn second Women's Champions League title`\
+https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champions-league-title/
+
 **U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
 `By Isabela Espadas Barros Leal and James C. McKinley Jr.`\
 https://nytimes.com/live/2025/05/24/us/trump-news/us-temporarily-lifts-some-sanctions-on-syria-fulfilling-a-trump-pledge
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6379726/2025/05/24/nhl-panthers-sam-reinhart-injury
 **Sheffield United 1 Sunderland 2 - Departing Tommy Watson's £200m goal secures Premier League promotion**\
 `Analysis of a dramatic Championship play-off final`\
 https://nytimes.com/athletic/6379594/2025/05/24/sheffield-united-sunderland-premier-league/
-
-**Crypto Investor Charged With Kidnapping and Torturing Man for Weeks**\
-`The investor, 37-year-old John Woeltz, was arrested Friday after the man escaped the downtown Manhattan townhouse where the police say he had been held and assaulted.`\
-https://nytimes.com/2025/05/24/nyregion/crypto-investor-torture-italian-tourist.html
-
-**Special treatment for Oilers' Connor McDavid? Kris Knoblauch thinks it's the opposite. Plus, Game 3 lineup notes**\
-`Knoblauch pushed back against comments from the Dallas Stars after Roope Hintz's injury in Game 2 from a Darnell Nurse slash.`\
-https://nytimes.com/athletic/6379265/2025/05/24/oilers-stars-mcdavid-hintz-nurse-game-3/
 

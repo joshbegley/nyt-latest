@@ -1,3 +1,11 @@
+**Frank Moore, a Top Aide to Jimmy Carter, Is Dead at 89**\
+`After serving as chief of staff when Carter was governor of Georgia, he followed him to Washington, where both men encountered a hostile political establishment.`\
+https://nytimes.com/2025/05/24/us/politics/frank-moore-dead.html
+
+**The Briefing: Arsenal 1 Barcelona 0 - Second-half changes earn second Champions League title**\
+`Arsenal defeat reigning champions Barcelona to earn second Women's Champions League title`\
+https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champions-league-title/
+
 **U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
 `By Isabela Espadas Barros Leal and James C. McKinley Jr.`\
 https://nytimes.com/live/2025/05/24/us/trump-news/us-temporarily-lifts-some-sanctions-on-syria-fulfilling-a-trump-pledge
