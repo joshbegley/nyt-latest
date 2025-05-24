@@ -1,3 +1,7 @@
+**Trump Seeks Extensive Student Data in Pressure Campaign to Control Harvard**\
+`Harvard and the federal government are locked in a battle that boils down to turning over records on international students. But Harvard says it is also about the First Amendment.`\
+https://nytimes.com/2025/05/23/us/trump-harvard-international-student-records.html
+
 **These Are the U.S. Universities Most Dependent on International Students**\
 `What was once a sign of international renown now looks like a vulnerability.`\
 https://nytimes.com/2025/05/23/upshot/harvard-trump-international-students.html
