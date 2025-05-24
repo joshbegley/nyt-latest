@@ -1,3 +1,7 @@
+**Wilshere leaves Norwich after spell as interim head coach**\
+`The former Arsenal and England midfielder oversaw the club's final two games of the Championship season, picking up four points.`\
+https://nytimes.com/athletic/6317355/2025/05/24/jack-wilshere-manager-norwich/
+
 **Trump Administration Live Updates: Judge Orders Officials to Seek Return of Man Sent to Mexico**\
 ``\
 https://nytimes.com/live/2025/05/24/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377907/2025/05/24/maple-leafs-brad-treliving-nhl-g
 **Power Outage Hits Cannes Area During Film Festival**\
 `Organizers said that the festival quickly switched over to backup power and that its closing ceremony on Saturday would not be disrupted. The cause of the outage was not immediately clear.`\
 https://nytimes.com/2025/05/24/world/europe/cannes-festival-power-outage.html
-
-**2 Novels of America at Particular, Peculiar Moments**\
-`Florida in the early 1960s; California in the mid-1980s.`\
-https://nytimes.com/2025/05/24/books/read-like-wind-recommendations.html
 
