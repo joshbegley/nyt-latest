@@ -1,3 +1,7 @@
+**Amorim to address fans, Man United players to do lap of honour after final game**\
+`United host Aston Villa at Old Trafford to conclude a hugely disappointing season.`\
+https://nytimes.com/athletic/6379690/2025/05/24/manchester-united-final-game-ruben-amorim/
+
 **Manchester United selling Alejandro Garnacho feels inevitable, but is it right?**\
 `Following the Europa League final loss on Wednesday, Ruben Amorim told Alejandro Garnacho to find a new club in a meeting with the squad`\
 https://nytimes.com/athletic/6379643/2025/05/24/manchester-united-alejandro-garnacho-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/us/politics/trump-speech-west-point-commencement.
 **Red Sox call up top prospect Marcelo Mayer: Source**\
 `Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
 https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
-
-**Bryson DeChambeau Q&A at Indy 500: On parallels between golfers and drivers**\
-`Golf star Bryson DeChambeau took a lap around the Indy 500 track Saturday. "I think it's very similar," he says of golfing and driving.`\
-https://nytimes.com/athletic/6379918/2025/05/24/bryson-dechambeau-qa-indy-500-golfers-drivers/
 
