@@ -1,3 +1,11 @@
+**Pascal Siakam's 'special game' puts Pacers in driver's seat as they head home for Game 3**\
+`Siakam's 39 points were a career-playoff high as the veteran forward has been a steady presence on the court and in the locker room.`\
+https://nytimes.com/athletic/6379333/2025/05/24/pascal-siakam-pacers-knicks-game-2/
+
+**Diaz, Rashford 'fantastic players' with Barça targeting 'more quality', Flick says**\
+`Flick is keen for reinforcements with sporting director Deco confirming the club's interest in both Diaz and Rashford this week.`\
+https://nytimes.com/athletic/6379462/2025/05/24/barcelona-transfers-luis-diaz-rashford/
+
 **'Motorsports Christmas' is canceled. Writers on the end of Monaco, Indy and NASCAR's shared day**\
 `Monaco is moving to June, separating it from the Indy 500 and NASCAR’s Coca-Cola 600. Our writers bid farewell to the greatest day in racing`\
 https://nytimes.com/athletic/6378889/2025/05/24/f1-monaco-grand-prix-gp-date-changing/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6378933/2025/05/24/cade-cunningham-all-nba-pistons-
 **Inside World Sevens Football women's tournament: 'It's like when we were kids again'**\
 `The three-day seven-a-side tournament is embracing 'chaos' and aiming to bring 'fun' back to football`\
 https://nytimes.com/athletic/6378692/2025/05/24/world-sevens-football-tournament-soccer/
-
-**What's behind Hurricanes' 14-game conference finals skid? How can they end it?**\
-`Looking into some of the numbers behind the bleak streak offers a glimpse of what needs to go right for Carolina in Game 3 to snap it.
-`\
-https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conference-finals-skid/
-
-**A women’s hockey player drew ire for her social media activity. Fans won’t let her forget it**\
-`Curl-Salemme has emerged as one of the stars of the PWHL Finals. She has also been booed every time she touches the puck. `\
-https://nytimes.com/athletic/6378962/2025/05/24/minnesota-frost-social-media-posts-britta-curl-salemme/
 

@@ -1,3 +1,11 @@
+**Pascal Siakam's 'special game' puts Pacers in driver's seat as they head home for Game 3**\
+`Siakam's 39 points were a career-playoff high as the veteran forward has been a steady presence on the court and in the locker room.`\
+https://nytimes.com/athletic/6379333/2025/05/24/pascal-siakam-pacers-knicks-game-2/
+
+**Diaz, Rashford 'fantastic players' with Barça targeting 'more quality', Flick says**\
+`Flick is keen for reinforcements with sporting director Deco confirming the club's interest in both Diaz and Rashford this week.`\
+https://nytimes.com/athletic/6379462/2025/05/24/barcelona-transfers-luis-diaz-rashford/
+
 **What's behind Hurricanes' 14-game conference finals skid? How can they end it?**\
 `Looking into some of the numbers behind the bleak streak offers a glimpse of what needs to go right for Carolina in Game 3 to snap it.
 `\
