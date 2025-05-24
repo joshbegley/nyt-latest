@@ -1,3 +1,7 @@
+**Kyle Larson, another Indy 500/NASCAR 'Double' try, and a GOAT legacy in reach**\
+`Is Kyle Larson the greatest driver in the world? What he's attempting Sunday — an 1,110-mile marathon — is a chance to stamp his legacy.`\
+https://nytimes.com/athletic/6380010/2025/05/24/kyle-larson-indy-500-nascar-double-goat-legacy/
+
 **U.S. Man Who Lived Abroad With Family’s Nanny Is Charged in Wife’s Murder**\
 `A man who appeared to be a grieving husband after he found his wife fatally shot at their Georgia business in 2006 was arrested this week and charged in her killing, officials said.`\
 https://nytimes.com/2025/05/24/us/georgia-murder-doris-worrell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379732/2025/05/24/guardians-nic-enright-promotion-
 **Milan ultras stage choreographed 'Go Home' protest against club owners**\
 `Protests were held ahead of the match outside the club's Casa Milan headquarters with a mass walkout in the 15th-minute of the game.`\
 https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-owners/
-
-**A Veteran Vintage Dealer Tries On Manhattan**\
-`Tommy Dorr, the owner of Mothfood, has been in the business for more than two decades. But it wasn’t until this month that he brought the shop to his most discerning shoppers: New Yorkers.`\
-https://nytimes.com/2025/05/24/style/mothfood-vintage-tommy-dorr.html
 
