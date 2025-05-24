@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Trump Gives Commencement Address at West Point**\
+``\
+https://nytimes.com/live/2025/05/24/us/trump-news
+
 **Amorim informs Man United squad he's staying, tells Garnacho to find new club**\
 `Amorim addressed players at the club's Carrington training ground on Saturday to inform them of his own plans and of those for Garnacho.`\
 https://nytimes.com/athletic/6379494/2025/05/24/manchester-united-ruben-amorim-garnacho-future/

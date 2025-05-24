@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6379517/2025/05/24/ange-postecoglou-tottenham-futur
 `The former Arsenal and England midfielder oversaw the club's final two games of the Championship season, picking up four points.`\
 https://nytimes.com/athletic/6317355/2025/05/24/jack-wilshere-manager-norwich/
 
-**Trump Administration Live Updates: Judge Orders Officials to Seek Return of Man Sent to Mexico**\
+**Trump Administration Live Updates: Trump Gives Commencement Address at West Point**\
 ``\
 https://nytimes.com/live/2025/05/24/us/trump-news
 
