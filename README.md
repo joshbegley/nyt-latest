@@ -1,3 +1,7 @@
+**Alex Bregman injury concern lingers after Red Sox wallop Orioles in 19-5 victory**\
+`The Red Sox do not plan to move Rafael Devers back to third base if Bregman needs to go on the IL.`\
+https://nytimes.com/athletic/6378848/2025/05/23/alex-bregman-injury-orioles-19-5-victory/
+
 **Juan Soto embraces batting third as Mets alter lineup: 'I feel comfortable'**\
 `Soto rolled with suggestion from Carlos Mendoza, who said: “It’s an easier decision for me when there’s no hesitation from those guys."`\
 https://nytimes.com/athletic/6378834/2025/05/23/mets-juan-soto-batting-third/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6378813/2025/05/23/all-nba-team-shai-gilgeous-alexa
 **Teachers Protest Shuts Down Mexico City’s International Airport**\
 `Flights were briefly halted, delaying travel for thousands, as security forces swarmed into passenger terminals in an effort to assert order.`\
 https://nytimes.com/2025/05/23/world/americas/mexico-city-teachers-protest-airport-shutdown.html
-
-**Why Harvard Has No Way Out**\
-`Even against one of the nation’s oldest institutions, the Trump administration holds the levers of power — and it’s using them aggressively.`\
-https://nytimes.com/2025/05/23/us/politics/trump-harvard-international-students.html
 
