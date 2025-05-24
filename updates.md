@@ -1,3 +1,7 @@
+**Russia and Ukraine Exchange Air Assaults Amid Major Prisoner Swap**\
+`The hourslong raids, involving hundreds of drones, were a reminder that any diplomatic resolution to the conflict remains far off.`\
+https://nytimes.com/2025/05/24/world/europe/ukraine-russia-prisoner-swap.html
+
 **Indy 500 odds, predictions: Will we see a three-peat or 'The Double'?**\
 `Memorial Day Weekend brings us the 109th running of "the greatest spectacle in racing" — the Indianapolis 500.`\
 https://nytimes.com/athletic/6377904/2025/05/24/indy-500-odds-predictions-penske-larson/
