@@ -1,3 +1,11 @@
+**Dodgers' pitching staff continues heavy workload, but holds on in 13-inning win**\
+`The Dodgers' bullpen eventually got it done in New York in a marathon contest that ended at 12:56 a.m. local time.`\
+https://nytimes.com/athletic/6379281/2025/05/24/dodgers-mets-result-pitching-bullpen/
+
+**Burn signs Newcastle contract extension to 2027**\
+`The England international has become a firm fan favourite since joining from Brighton & Hove Albion in 2022.`\
+https://nytimes.com/athletic/6379354/2025/05/24/newcastle-dan-burn-contract-new/
+
 **Klopp disappointed at Alexander-Arnold booing: 'I switched the telly off'**\
 `Alexander-Arnold's every touch was booed by a vocal section of home supporters during the draw with Arsenal on May 11.`\
 https://nytimes.com/athletic/6379336/2025/05/24/liverpool-jurgen-klopp-alexander-arnold-booing/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/05/24/upshot/china-imports.html
 **Judge Orders Trump Officials to Seek Return of Guatemalan Man to U.S.**\
 `Judge Brian Murphy criticized the government for errors in the case and said the man, who feared persecution if he was deported, was likely to show “his removal lacked any semblance of due process.”`\
 https://nytimes.com/2025/05/24/us/politics/trump-deportation-court-mexico.html
-
-**Oilers 'punch back' with strong Game 2 — and with Stuart Skinner back in shutout form**\
-`Edmonton showed no ill effects from its Game 1 meltdown and controlled the game Friday night with a 3-0 win.`\
-https://nytimes.com/athletic/6379244/2025/05/24/oilers-stars-game-2-skinner/
-
-**In 'searching for a win', Knicks go away from Karl-Anthony Towns**\
-`Why did the Knicks bench their All-NBA big man when they most needed a rally? "The group that was in there gave us a chance."`\
-https://nytimes.com/athletic/6379172/2025/05/24/knicks-pacers-karl-anthony-towns-benched/
 

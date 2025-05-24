@@ -1,3 +1,11 @@
+**Dodgers' pitching staff continues heavy workload, but holds on in 13-inning win**\
+`The Dodgers' bullpen eventually got it done in New York in a marathon contest that ended at 12:56 a.m. local time.`\
+https://nytimes.com/athletic/6379281/2025/05/24/dodgers-mets-result-pitching-bullpen/
+
+**Burn signs Newcastle contract extension to 2027**\
+`The England international has become a firm fan favourite since joining from Brighton & Hove Albion in 2022.`\
+https://nytimes.com/athletic/6379354/2025/05/24/newcastle-dan-burn-contract-new/
+
 **Postecoglou leaves fans wanting more as Spurs celebrate Europa League victory**\
 `The Spurs manager got the loudest cheers as he and his players paraded their newly won trophy to fans outside the club's stadium`\
 https://nytimes.com/athletic/6378878/2025/05/24/spurs-parade-europa-league-postecoglou/
