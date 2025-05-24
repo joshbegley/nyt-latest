@@ -1,3 +1,11 @@
+**Sebastião Salgado: A Life in Pictures**\
+`The celebrated Brazilian photojournalist depicted the world in stark contrasts, from the depths of human suffering to the monumental grandeur of nature.`\
+https://nytimes.com/2025/05/23/arts/sebastiao-salgado-photos.html
+
+**National Security Council Staff Will Be Cut by Half**\
+`The dramatic restructuring was revealed by Marco Rubio, who is acting as the national security adviser.`\
+https://nytimes.com/2025/05/23/us/politics/national-security-council-cuts.html
+
 **Matt Vierling is back, and the Tigers are getting reinforcements at the right time**\
 `Vierling was activated from the IL on Friday. Teammates Parker Meadows and Wenceel Pérez could soon join him in Detroit. `\
 https://nytimes.com/athletic/6378761/2025/05/23/matt-vierling-return-detroit-tigers-reinforcements/
