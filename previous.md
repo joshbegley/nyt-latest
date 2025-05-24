@@ -1,3 +1,7 @@
+**Pascal Siakam dominates as Knicks face 0-2 hole: Takeaways from Pacers' Game 2 win**\
+`Pascal Siakam's career high 39 points gave the Pacers a 114-109 win and a 2-0 series lead coming home. Here's what we learned.`\
+https://nytimes.com/athletic/6379008/2025/05/23/knicks-pacers-nba-playoffs-results-takeaways/
+
 **Corrections: May 24, 2025**\
 `Corrections that appeared in print on Saturday, May 24, 2025.`\
 https://nytimes.com/2025/05/23/pageoneplus/corrections-may-24-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/23/upshot/harvard-trump-international-students.html
 **Alex Bregman injury concern lingers after Red Sox wallop Orioles in 19-5 victory**\
 `The Red Sox do not plan to move Rafael Devers back to third base if Bregman needs to go on the IL.`\
 https://nytimes.com/athletic/6378848/2025/05/23/alex-bregman-injury-orioles-19-5-victory/
-
-**Juan Soto embraces batting third as Mets alter lineup: 'I feel comfortable'**\
-`Soto rolled with suggestion from Carlos Mendoza, who said: “It’s an easier decision for me when there’s no hesitation from those guys."`\
-https://nytimes.com/athletic/6378834/2025/05/23/mets-juan-soto-batting-third/
 
