@@ -1,3 +1,11 @@
+**Trump Gives Commencement Address at West Point, Stressing a New Era**\
+`The president said the graduating cadets would enter a service no longer subject to “absurd ideological experiments” or “nation-building crusades.”`\
+https://nytimes.com/2025/05/24/us/politics/trump-speech-west-point-commencement.html
+
+**Red Sox call up top prospect Marcelo Mayer: Source**\
+`Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
+https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/
+
 **Red Sox call up prospect Marcelo Mayer: Source**\
 `Mayer came into the season as the No. 3 Red Sox prospect and the No. 28 prospect in baseball, according to The Athletic's Keith Law.`\
 https://nytimes.com/athletic/6379736/2025/05/24/marcelo-mayer-red-sox-mlb-debut/

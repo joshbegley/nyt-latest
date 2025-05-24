@@ -1,3 +1,11 @@
+**Milan ultras stage choreographed 'Go Home' protest against club owners**\
+`Protests were held ahead of the match outside the club's Casa Milan headquarters with a mass walkout in the 15th-minute of the game.`\
+https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-owners/
+
+**A Veteran Vintage Dealer Tries On Manhattan**\
+`Tommy Dorr, the owner of Mothfood, has been in the business for more than two decades. But it wasn’t until this month that he brought the shop to his most discerning shoppers: New Yorkers.`\
+https://nytimes.com/2025/05/24/style/mothfood-vintage-tommy-dorr.html
+
 **Trump Gives Commencement Address at West Point, Stressing a New Era**\
 `The president said the graduating cadets would enter a service no longer subject to “absurd ideological experiments” or “nation-building crusades.”`\
 https://nytimes.com/2025/05/24/us/politics/trump-speech-west-point-commencement.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/05/24/us/trump-news/us-temporarily-lifts-some-sanc
 **Michael Roemer, Maker of Acclaimed but Little-Seen Films, Dies at 97**\
 `His “Nothing but a Man” and “The Plot Against Harry” drew critical praise but never found an audience. He said he took “a certain pride in not having been a success.”`\
 https://nytimes.com/2025/05/24/movies/michael-roemer-dead.html
-
-**Hurricanes bench Freddie Andersen for Game 3. Is Pyotr Kochetkov the answer?**\
-`Andersen has allowed nine goals on 36 shots against the Panthers — saving about 5.5 goals below expected.`\
-https://nytimes.com/athletic/6379540/2025/05/24/freddie-andersen-hurricanes-game-3-nhl-playoffs/
-
-**The 'Big Three,' his favorite events and his best seasons: Novak Djokovic's 100 titles**\
-`Djokovic's Geneva Open win ticks off yet another entry on one of the most remarkable records in tennis.`\
-https://nytimes.com/athletic/6237964/2025/05/24/novak-djokovic-100-titles-tennis-record/
 
