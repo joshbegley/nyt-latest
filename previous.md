@@ -1,3 +1,7 @@
+**Guardians promote pitcher Nic Enright less than 3 years after cancer diagnosis**\
+`The Tigers, coincidentally, are hosting “Strike Out Cancer Weekend” the night Enright is set to debut.`\
+https://nytimes.com/athletic/6379732/2025/05/24/guardians-nic-enright-promotion-cancer-diagnosis/
+
 **Milan ultras stage choreographed 'Go Home' protest against club owners**\
 `Protests were held ahead of the match outside the club's Casa Milan headquarters with a mass walkout in the 15th-minute of the game.`\
 https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-owners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6372809/2025/05/24/arsenal-win-second-womens-champi
 **U.S. temporarily lifts some sanctions on Syria, fulfilling a Trump pledge.**\
 `By Isabela Espadas Barros Leal and James C. McKinley Jr.`\
 https://nytimes.com/live/2025/05/24/us/trump-news/us-temporarily-lifts-some-sanctions-on-syria-fulfilling-a-trump-pledge
-
-**Michael Roemer, Maker of Acclaimed but Little-Seen Films, Dies at 97**\
-`His “Nothing but a Man” and “The Plot Against Harry” drew critical praise but never found an audience. He said he took “a certain pride in not having been a success.”`\
-https://nytimes.com/2025/05/24/movies/michael-roemer-dead.html
 

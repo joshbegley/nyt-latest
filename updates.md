@@ -1,3 +1,7 @@
+**Guardians promote pitcher Nic Enright less than 3 years after cancer diagnosis**\
+`The Tigers, coincidentally, are hosting “Strike Out Cancer Weekend” the night Enright is set to debut.`\
+https://nytimes.com/athletic/6379732/2025/05/24/guardians-nic-enright-promotion-cancer-diagnosis/
+
 **Milan ultras stage choreographed 'Go Home' protest against club owners**\
 `Protests were held ahead of the match outside the club's Casa Milan headquarters with a mass walkout in the 15th-minute of the game.`\
 https://nytimes.com/athletic/6380032/2025/05/24/milan-ultras-protest-redbird-owners/
