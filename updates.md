@@ -1,3 +1,11 @@
+**These Are the U.S. Universities Most Dependent on International Students**\
+`What was once a sign of international renown now looks like a vulnerability.`\
+https://nytimes.com/2025/05/23/upshot/harvard-trump-international-students.html
+
+**Alex Bregman injury concern lingers after Red Sox wallop Orioles in 19-5 victory**\
+`The Red Sox do not plan to move Rafael Devers back to third base if Bregman needs to go on the IL.`\
+https://nytimes.com/athletic/6378848/2025/05/23/alex-bregman-injury-orioles-19-5-victory/
+
 **Juan Soto embraces batting third as Mets alter lineup: 'I feel comfortable'**\
 `Soto rolled with suggestion from Carlos Mendoza, who said: “It’s an easier decision for me when there’s no hesitation from those guys."`\
 https://nytimes.com/athletic/6378834/2025/05/23/mets-juan-soto-batting-third/
