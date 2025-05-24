@@ -1,3 +1,7 @@
+**Amorim to address fans, Man United players to do lap of honour after final game**\
+`United host Aston Villa at Old Trafford to conclude a hugely disappointing season.`\
+https://nytimes.com/athletic/6379690/2025/05/24/manchester-united-final-game-ruben-amorim/
+
 **Clark, Fever fall to Liberty after controversial no-call in final seconds**\
 `With 2.2 seconds left, Clark had her game-winning 3-point attempt stripped by Liberty guard Natasha Cloud as the clock ran out.`\
 https://nytimes.com/athletic/6380084/2025/05/24/caitlin-clark-fever-liberty-sabrina-ionescu/
