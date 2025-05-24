@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conferen
 `\
 https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conference-finals-skid/
 
+**What's behind Hurricanes' 14-game conference finals skid? How can they end it?**\
+`Looking into some of the numbers behind the bleak streak offers a glimpse of what needs to go right for Carolina in Game 3 to snap it.
+`\
+https://nytimes.com/athletic/6379004/2025/05/24/hurricanes-nhl-playoffs-conference-finals-skid/
+
 **'Motorsports Christmas' is canceled. Writers on the end of Monaco, Indy and NASCAR's shared day**\
 `Monaco is moving to June, separating it from the Indy 500 and NASCAR’s Coca-Cola 600. Our writers bid farewell to the greatest day in racing`\
 https://nytimes.com/athletic/6378889/2025/05/24/f1-monaco-grand-prix-gp-date-changing/
