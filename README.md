@@ -1,9 +1,13 @@
+**Oilers 'punch back' with strong Game 2 response — and with Stuart Skinner back in shutout form**\
+`Edmonton showed no ill effects from their Game 1 meltdown and controlled the game on Friday night.`\
+https://nytimes.com/athletic/6379244/2025/05/24/oilers-stars-game-2-skinner/
+
 **In 'searching for a win', Knicks go away from Karl-Anthony Towns**\
 `Why did the Knicks bench their All-NBA big man when they most needed a rally? "The group that was in there gave us a chance."`\
 https://nytimes.com/athletic/6379172/2025/05/24/knicks-pacers-karl-anthony-towns-benched/
 
 **Carlos Correa impresses in return from concussion, leads Twins to 15th win in 17 games**\
-`Ty France delivered a walk-off homer for an increasingly healthy Twins lineup that may soon add Byron Buxton and Matt Wallner.`\
+`Ty France delivered a walk-off homer for an increasingly healthy Twins lineup that might soon add Byron Buxton and Matt Wallner.`\
 https://nytimes.com/athletic/6376410/2025/05/24/carlos-correa-twins-ty-france-walkoff-win/
 
 **The New York Times in Print for Saturday, May 24, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6305246/2025/05/24/laughing-gas-football-brandon-wi
 **Inside the ACL clinic that treats Rodri and Real Madrid stars**\
 `Dr Leyes is one of the most respected ACL surgeons in Spain who operated on Rodri. He gives The Athletic a peak behind the operating curtain`\
 https://nytimes.com/athletic/6103168/2025/05/24/rodri-real-madrid-acl-clinic/
-
-**Liverpool 30, Arsenal 29, Ipswich 10 - How Premier League TV picks work and how many times each team was chosen**\
-`Explaining how much every team has been shown on TV this season and in recent seasons - and how it all works`\
-https://nytimes.com/athletic/6377463/2025/05/24/premier-league-liverpool-tv-games/
 
