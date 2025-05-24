@@ -1,3 +1,7 @@
+**Corrections: May 24, 2025**\
+`Corrections that appeared in print on Saturday, May 24, 2025.`\
+https://nytimes.com/2025/05/23/pageoneplus/corrections-may-24-2025.html
+
 **Oilers stay out of their own way, shut out Stars in Game 2 to even series: Takeaways**\
 `Edmonton took command in a flash and leveled the series at 1-1 with a thorough 3-0 victory over Dallas in the Western Conference final.`\
 https://nytimes.com/athletic/6378751/2025/05/23/oilers-stars-nhl-playoffs-2025-game-2-takeaways/
