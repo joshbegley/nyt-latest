@@ -1,5 +1,5 @@
-**Oilers 'punch back' with strong Game 2 response — and with Stuart Skinner back in shutout form**\
-`Edmonton showed no ill effects from their Game 1 meltdown and controlled the game on Friday night.`\
+**Oilers 'punch back' with strong Game 2 — and with Stuart Skinner back in shutout form**\
+`Edmonton showed no ill effects from its Game 1 meltdown and controlled the game Friday night with a 3-0 win.`\
 https://nytimes.com/athletic/6379244/2025/05/24/oilers-stars-game-2-skinner/
 
 **In 'searching for a win', Knicks go away from Karl-Anthony Towns**\
