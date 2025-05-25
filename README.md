@@ -1,3 +1,19 @@
+**Inside a Trump Family Project in Vietnam**\
+`As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
+https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-vietnam.html
+
+**French Open 2025: How to watch this weekend's singles opener at Roland Garros**\
+`Carlos Alcaraz begins his title defense on the men's side, while Iga Świątek pursues a fourth straight Roland Garros triumph.`\
+https://nytimes.com/athletic/6378504/2025/05/25/french-open-roland-garros-singles-first-round-how-to-watch/
+
+**Why Vietnam Ignored Its Own Laws to Fast-Track a Trump Family Golf Complex**\
+`As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
+https://nytimes.com/2025/05/25/world/asia/trump-vietnam-golf-project.html
+
+**Connections: Sports Edition Coach: Hints for May 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6380514/2025/05/25/connections-sports-edition-hints-for-may-25-2025/
+
 **Anthony Edwards, Wolves emphatically join series: Takeaways from Game 3 blowout of Thunder**\
 `Game 3 was always going to bring a level of desperation from a Wolves team looking to avoid a 3-0 deficit. Here's what we learned.`\
 https://nytimes.com/athletic/6380350/2025/05/24/nba-playoffs-takeaways-timberwolves-thunder/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6380355/2025/05/24/astros-christian-walker-mustache
 **Panthers' Eetu Luostarinen ejected for hit driving Hurricanes' Jackson Blake headfirst into boards**\
 `Blake, a 21-year-old rookie, left the game after the hit with 3:01 remaining in the first period. He returned to start the second period.`\
 https://nytimes.com/athletic/6380382/2025/05/24/eetu-luostarinen-jackson-blake-hit-nhl-playoffs/
-
-**The Beaches Are Open in New York City. So Are the Lifeguard Chairs.**\
-`Beach season began Saturday with 280 lifeguards, well short of what the city needs, amid a yearslong staffing shortage. But more will come by summer’s peak.`\
-https://nytimes.com/2025/05/24/nyregion/beaches-open-lifeguard-shortage.html
-
-**Alex Bregman is injured, but Rafael Devers will stay at DH. Who will play third for Boston?**\
-`It would seem a natural fit for Devers to move back to third, but the Red Sox don't want to mess with what's been working for Devers as DH.`\
-https://nytimes.com/athletic/6380299/2025/05/24/red-sox-third-base-rafael-devers-alex-bregman/
-
-**Susan Brownmiller, Who Reshaped Views About Rape, Dies at 90**\
-`Her book “Against Our Will” argued that rape was a crime of power and violence, not passion; it led to laws that made it easier to prosecute rapists.`\
-https://nytimes.com/2025/05/24/books/susan-brownmiller-dead.html
-
-**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champs Liberty**\
-`Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
-https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
 
