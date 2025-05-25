@@ -1,3 +1,15 @@
+**San Diego FC, LA Galaxy condemn violence after Snapdragon Stadium incident**\
+`"Any behavior found to be in violation of the MLS Fan Code of Conduct will result in disciplinary action," the clubs wrote.`\
+https://nytimes.com/athletic/6380636/2025/05/25/san-diego-fc-la-galaxy-violence-snapdragon-stadium/
+
+**The New York Times in Print for Sunday, May 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/25/todays-new-york-times
+
+**What I Like About Zombies**\
+`When I think about the zombie apocalypse on “The Last of Us,” I am not thinking about the possibly apocalyptic things that are really taking place in 2025.`\
+https://nytimes.com/2025/05/25/opinion/last-of-us-finale.html
+
 **Juan Soto's clutch hit and a 'big boy' performance power Mets past Dodgers**\
 `The Mets went 4-for-11 with runners in scoring position, including two hits from Brett Baty.`\
 https://nytimes.com/athletic/6380596/2025/05/25/mets-juan-soto-david-peterson/

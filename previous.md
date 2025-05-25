@@ -1,3 +1,15 @@
+**San Diego FC, LA Galaxy condemn violence after Snapdragon Stadium incident**\
+`"Any behavior found to be in violation of the MLS Fan Code of Conduct will result in disciplinary action," the clubs wrote.`\
+https://nytimes.com/athletic/6380636/2025/05/25/san-diego-fc-la-galaxy-violence-snapdragon-stadium/
+
+**The New York Times in Print for Sunday, May 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/25/todays-new-york-times
+
+**What I Like About Zombies**\
+`When I think about the zombie apocalypse on “The Last of Us,” I am not thinking about the possibly apocalyptic things that are really taking place in 2025.`\
+https://nytimes.com/2025/05/25/opinion/last-of-us-finale.html
+
 **Juan Soto's clutch hit and a 'big boy' performance power Mets past Dodgers**\
 `The Mets went 4-for-11 with runners in scoring position, including two hits from Brett Baty.`\
 https://nytimes.com/athletic/6380596/2025/05/25/mets-juan-soto-david-peterson/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-
 **French Open 2025: How to watch this weekend's singles opener at Roland Garros**\
 `Carlos Alcaraz begins his title defense on the men's side, while Iga Świątek pursues a fourth straight Roland Garros triumph.`\
 https://nytimes.com/athletic/6378504/2025/05/25/french-open-roland-garros-singles-first-round-how-to-watch/
-
-**Why Vietnam Ignored Its Own Laws to Fast-Track a Trump Family Golf Complex**\
-`As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
-https://nytimes.com/2025/05/25/world/asia/trump-vietnam-golf-project.html
-
-**Connections: Sports Edition Coach: Hints for May 25, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6380514/2025/05/25/connections-sports-edition-hints-for-may-25-2025/
-
-**Anthony Edwards, Wolves emphatically join series: Takeaways from Game 3 blowout of Thunder**\
-`Game 3 was always going to bring a level of desperation from a Wolves team looking to avoid a 3-0 deficit. Here's what we learned.`\
-https://nytimes.com/athletic/6380350/2025/05/24/nba-playoffs-takeaways-timberwolves-thunder/
 

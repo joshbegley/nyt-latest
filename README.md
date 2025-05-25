@@ -1,3 +1,7 @@
+**Qatari Push to Dominate Another Sport, Table Tennis, Draws Scrutiny**\
+`A wealthy Qatari businessman’s campaign to lead the sport’s global body is being investigated. One of his critics was detained and interrogated in Doha.`\
+https://nytimes.com/2025/05/25/world/middleeast/qatar-table-tennis.html
+
 **San Diego FC, LA Galaxy condemn violence after Snapdragon Stadium incident**\
 `"Any behavior found to be in violation of the MLS Fan Code of Conduct will result in disciplinary action," the clubs wrote.`\
 https://nytimes.com/athletic/6380636/2025/05/25/san-diego-fc-la-galaxy-violence-snapdragon-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377444/2025/05/25/premier-league-next-season-kit/
 **Inside a Trump Family Project in Vietnam**\
 `As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
 https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-vietnam.html
-
-**French Open 2025: How to watch this weekend's singles opener at Roland Garros**\
-`Carlos Alcaraz begins his title defense on the men's side, while Iga Świątek pursues a fourth straight Roland Garros triumph.`\
-https://nytimes.com/athletic/6378504/2025/05/25/french-open-roland-garros-singles-first-round-how-to-watch/
 
