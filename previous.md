@@ -1,3 +1,7 @@
+**Sunderland have been remodelled and revived - they have exceeded all expectations**\
+`Promotion to the Premier League is a dream end to the season for a club which has reached some low ebbs in recent years`\
+https://nytimes.com/athletic/6380257/2025/05/25/sunderland-promotion-premier-league-playoff-final/
+
 **Gotham FC wins inaugural Concacaf Champions Cup, 1-0 over Tigres UANL**\
 `Gotham striker Esther González scored in the in the 82nd minute to secure Gotham the 1-0 win.`\
 https://nytimes.com/athletic/6380571/2025/05/25/gotham-fc-tigres-uanl-concacaf-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377727/2025/05/25/premier-league-champions-europa-
 **How does Champions League status impact Premier League transfer plans?**\
 `Manchester City, Newcastle, Chelsea, Aston Villa and Nottingham Forest are all competing for the three remaining English slots for next year`\
 https://nytimes.com/athletic/6375538/2025/05/25/champions-league-transfer-premier-league-plans/
-
-**Why are some teams wearing next season's kit already?**\
-`Deciding whether to wear next season's kit on the final weekend can have big implications`\
-https://nytimes.com/athletic/6377444/2025/05/25/premier-league-next-season-kit/
 
