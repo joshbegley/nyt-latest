@@ -1,3 +1,7 @@
+**Alex Bregman is injured but Rafael Devers will remain at DH. Who will play third for Boston?**\
+`It would seem a natural fit for Devers to move back to third but the Red Sox don't want to mess with what's been working for Devers as a DH.`\
+https://nytimes.com/athletic/6380299/2025/05/24/red-sox-third-base-rafael-devers-alex-bregman/
+
 **Susan Brownmiller, Who Reshaped Views About Rape, Dies at 90**\
 `Her book “Against Our Will” argued that rape was a crime of power and violence, not passion; it led to laws that made it easier to prosecute rapists.`\
 https://nytimes.com/2025/05/24/books/susan-brownmiller-dead.html
