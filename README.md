@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-n
 https://nytimes.com/2025/05/25/briefing/a-fringe-movement.html
 
 **The Timberwolves needed more than a win; they needed a win just like this**\
-`What Minnesota did to Oklahoma City in Game 3 on Saturday night is what needed to happen for this series to even begin to feel different.`\
+`What Minnesota did to Oklahoma City in Game 3 Saturday night is what needed to happen for this series to even begin to feel different.`\
 https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
 
 **Blue Jays pitching notes: Alek Manoah's return, losing Yimi García, Jeff Hoffman's command**\
