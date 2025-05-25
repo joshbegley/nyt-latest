@@ -1,3 +1,7 @@
+**Tears from Perez and talks with Alonso: How Ancelotti said farewell to Real Madrid**\
+`Saturday was an emotional day at the Bernabeu as the reign of the club's most successful manager came to an end`\
+https://nytimes.com/athletic/6380094/2025/05/25/carlo-ancelotti-real-madrid-farewell/
+
 **Spurs, Newcastle, Palace trophies are motivation for Brighton - Hurzeler**\
 `Brighton haven't won a major trophy in their 124-year history.`\
 https://nytimes.com/athletic/6377587/2025/05/25/tottenham-newcastle-palace-trophy-brighton-hurzeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380596/2025/05/25/mets-juan-soto-david-peterson/
 **Calculating what every Premier League place is worth and what each team could earn**\
 `Exact figures won’t be known until the Premier League release them but there’s enough information available to take an educated guess`\
 https://nytimes.com/athletic/6376361/2025/05/25/calculating-what-every-premier-league-place-is-worth-and-what-each-team-earned-this-season/
-
-**Predicting what will happen in the Premier League's final-day fight for European qualification**\
-`The biggest plot line on the final day of the season is the battle for European qualification. Five writers take a guess at what will happen`\
-https://nytimes.com/athletic/6377727/2025/05/25/premier-league-champions-europa-qualification/
 
