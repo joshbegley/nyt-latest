@@ -1,3 +1,7 @@
+**Xabi Alonso and Real Madrid: Learning from Mourinho, two shock exits and a timely return**\
+`Alonso's relationship with the club he played for from 2009-14 and then was a youth-academy coach has not always been straightforward`\
+https://nytimes.com/athletic/6369513/2025/05/25/xabi-alonso-real-madrid-relationship/
+
 **Madrid confirm Alonso as new head coach**\
 `The former Spain international replaces Carlo Ancelotti, who has departed to become head coach of the Brazil national team.`\
 https://nytimes.com/athletic/6064080/2025/05/25/real-madrid-xabi-alonso-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380691/2025/05/25/hurricanes-nhl-playoffs-brink-el
 **Why Is This Supreme Court Handing Trump More and More Power?**\
 `The Supreme Court bears a heavy dose of responsibility for plunging the legal world into chaos.`\
 https://nytimes.com/2025/05/25/opinion/supreme-court-trump-power.html
-
-**Knicks vs. Hicks: Let Us Praise Old-Fashioned Contempt**\
-`Society’s antagonisms can find a graceful outlet on the hardwood.`\
-https://nytimes.com/2025/05/25/opinion/indiana-pacers-new-york-knicks-playoff.html
 
