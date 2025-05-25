@@ -1,3 +1,7 @@
+**Red Sox roster takeaways: Team mixing and matching with rookie-heavy lineup**\
+`The Red Sox are down two of their mainstay veteran infielders and a third is struggling badly, so rookies are taking centerstage. `\
+https://nytimes.com/athletic/6381480/2025/05/25/red-sox-takeaways-roster-adjustments-marcelo-mayer/
+
 **American Charged With Trying to Firebomb Embassy Building in Tel Aviv**\
 `Joseph Neumeyer, 28, is also accused of threatening President Trump. He appeared in federal court in Brooklyn on Sunday.`\
 https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381891/2025/05/25/indy-500-chaos-kyle-larson-scott
 **Postecoglou says he 'shouldn’t be sat here talking about my future' at Spurs**\
 `Spurs’ 4-1 loss to Brighton on Sunday was their 22nd defeat in the Premier League this season and meant that they finished 17th.`\
 https://nytimes.com/athletic/6381855/2025/05/25/ange-postecoglou-tottenham-manager/
-
-**Baseball pulled Nic Enright out of the darkness. Now, finally, he's a big-league pitcher**\
-`Nearly two and a half years after getting diagnosed with Hodgkin lymphoma, Enright made his major-league debut for the Guardians.`\
-https://nytimes.com/athletic/6379028/2025/05/25/guardians-nic-enright-mlb-debut/
 

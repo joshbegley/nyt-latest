@@ -1,3 +1,7 @@
+**American Charged With Trying to Firebomb Embassy Building in Tel Aviv**\
+`Joseph Neumeyer, 28, is also accused of threatening President Trump. He appeared in federal court in Brooklyn on Sunday.`\
+https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing.html
+
 **Tony Bechara, Painter Who Championed Latino Artists, Dies at 83**\
 `He turned away from a potential career in the law or international relations to produce abstract paintings, and he headed El Museo del Barrio.`\
 https://nytimes.com/2025/05/25/obituaries/tony-bechara-painter-who-championed-latino-artists-dies-at-83.html
