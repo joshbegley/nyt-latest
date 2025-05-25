@@ -1,3 +1,11 @@
+**McDavid scores twice, Skinner sharp again as Oilers beat Stars in Game 3: Takeaways**\
+`The Oilers controlled the game throughout again to take a 2-1 series lead in the Western Conference final.`\
+https://nytimes.com/athletic/6382199/2025/05/25/oilers-stars-mcdavid-game-3/
+
+**Choir Member**\
+`Ari Halpern keeps a close watch.`\
+https://nytimes.com/2025/05/25/crosswords/daily-puzzle-2025-05-26.html
+
 **Remembering George Floyd**\
 `Text by Ernesto Londoño`\
 https://nytimes.com/card/2025/05/25/us/george-floyd-anniversary
