@@ -1,4 +1,4 @@
-**Monaco GP: Lando Norris wins hectic race; Mercedes drivers finish last**\
+**Monaco GP: Lando Norris wins hectic race; Mercedes frustrated by Williams cars**\
 `The mandatory two-stop strategy meant drivers had to push the limits up front and back up the field behind — creating some intrigue`\
 https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
 
