@@ -1,3 +1,11 @@
+**After Childbirth Put Me in a Coma, I Couldn’t Remember My Faith**\
+`Life-threatening complications changed how I prayed and everything I believed.`\
+https://nytimes.com/2025/05/25/style/after-childbirth-put-me-in-a-coma-i-couldnt-remember-my-faith.html
+
+**Barcelona seemed destined for a third straight Champions League triumph. What went wrong?**\
+`The Spanish side have been European football's dominant force over a sustained period but they came up short against Arsenal`\
+https://nytimes.com/athletic/6380830/2025/05/25/barcelona-champions-league-final-arsenal/
+
 **Max Lazar joins the ride as Phillies make it nine straight with marathon win**\
 `The Phillies needed 11 innings in 3 hours and 45 minutes to keep up their streak. Right now, they are flexing.`\
 https://nytimes.com/athletic/6380861/2025/05/25/phillies-athletics-win-streak-max-lazar/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380616/2025/05/25/thunder-game-3-tony-jones/
 **A Punk-Rock Past Comes With Unwanted Baggage for a N.Y. Politician**\
 `Justin Brannan, a city comptroller candidate, expressed remorse for decades-old messages where he appeared to use the Columbine shootings to promote his band.`\
 https://nytimes.com/2025/05/25/nyregion/justin-brannan-columbine.html
-
-**What a Reporter Learned From Over 100 Wild Roommate Tales**\
-`The Metro section recently asked New Yorkers to share their roommate stories. Tales of maggots, emergency bathtub bunking and lifelong friendships ensued.`\
-https://nytimes.com/2025/05/25/insider/new-york-roommate-horror-stories.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/25/crosswords/spelling-bee-forum.html
 
