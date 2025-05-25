@@ -1,3 +1,15 @@
+**It’s Time for Outdoor Potatoes**\
+`In the form of this lemon potato salad with mint, a five-star Melissa Clark classic.`\
+https://nytimes.com/2025/05/25/dining/a-healthy-lemon-potato-salad-recipe.html
+
+**Monaco GP: Lando Norris wins hectic race; Mercedes frustrated by Williams cars**\
+`The mandatory two-stop strategy meant drivers had to push the limits up front and back up the field behind — creating some intrigue`\
+https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
+
+**Israeli Airstrike Kills at Least 7 of a Doctor’s Children, Gaza Officials Say**\
+`Two more children were missing, while her husband and one other child were injured in the strike on Friday, the officials said. Israel said it was checking if it had harmed “uninvolved civilians.”`\
+https://nytimes.com/2025/05/25/world/middleeast/israel-gaza-doctor-children.html
+
 **Monaco GP: Lando Norris wins hectic race; Mercedes drivers finish last**\
 `The mandatory two-stop strategy meant drivers had to push the limits up front and back up the field behind — creating some intrigue`\
 https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
