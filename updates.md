@@ -1,3 +1,7 @@
+**Israeli Airstrike Kills at Least 7 of a Doctor’s Children, Gaza Officials Say**\
+`Two more children were missing, while her husband and one other child were injured in the strike on Friday, the officials said. Israel said it was checking if it had harmed “uninvolved civilians.”`\
+https://nytimes.com/2025/05/25/world/middleeast/israeli-airstrike-kills-at-least-7-of-a-doctors-children-gaza-officials-say.html
+
 **Lowetide: A complete look at the Oilers' prospects in spring 2025**\
 `With the Oilers pushing for the Stanley Cup, the organization must avoid a prospects "Death Valley."`\
 https://nytimes.com/athletic/6379710/2025/05/25/edmonton-oilers-prospects-spring-2025/
