@@ -1,3 +1,7 @@
+**Severe Storms Threaten Parts of the Southern Plains**\
+`There was an enhanced risk for severe thunderstorms in parts of Texas and Oklahoma on Sunday, forecasters said. They warned of hail of up to three inches in diameter and of winds up to 80 miles per hour.`\
+https://nytimes.com/2025/05/25/weather/oklahoma-tornado-weather-forecast.html
+
 **Southampton appoint Still as new manager**\
 `The 32-year-old is set to lead the club’s 2025-26 campaign in the Championship`\
 https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-still/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/briefing/a-fringe-movement.html
 **The Timberwolves needed more than a win; they needed a win just like this**\
 `What Minnesota did to Oklahoma City in Game 3 Saturday night is what needed to happen for this series to even begin to feel different.`\
 https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
-
-**Blue Jays pitching notes: Alek Manoah's return, losing Yimi García, Jeff Hoffman's command**\
-`Manoah could be an important part of this season's future, while Mason Fluharty may get a chance now for Toronto.`\
-https://nytimes.com/athletic/6380487/2025/05/25/toronto-blue-jays-pitching-yimi-garcia/
 
