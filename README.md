@@ -1,3 +1,7 @@
+**Katy Knoll plays triple-OT hero as Frost take series lead over Charge in PWHL Finals: Takeaways**\
+`After a 2-1 win in Game 3, Minnesota is now one win away from becoming back-to-back Walter Cup champions.`\
+https://nytimes.com/athletic/6380305/2025/05/24/minnesota-frost-ottawa-charge-pwhl-finals-game-3/
+
 **After homering (again), Ronald Acuña Jr. feels good about his knee and Braves' chances**\
 `The Braves have another player clicking now, and it's an extremely talented one. Acuña is back. Man, is he back.`\
 https://nytimes.com/athletic/6380356/2025/05/24/ronald-acuna-jr-homer-second-game-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379350/2025/05/24/inside-arsenal-second-womens-cha
 **Kyle Larson, another Indy 500/NASCAR 'Double' try and a GOAT legacy in reach**\
 `Is Larson the greatest driver in the world? What he's attempting Sunday — an 1,110-mile marathon — is a chance to stamp his legacy.`\
 https://nytimes.com/athletic/6380010/2025/05/24/kyle-larson-indy-500-nascar-double-goat-legacy/
-
-**U.S. Man Who Lived Abroad With Family’s Nanny Is Charged in Wife’s Murder**\
-`A man who appeared to be a grieving husband after he found his wife fatally shot at their Georgia business in 2006 was arrested this week and charged in her killing, officials said.`\
-https://nytimes.com/2025/05/24/us/georgia-murder-doris-worrell.html
 
