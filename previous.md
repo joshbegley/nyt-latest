@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 0 Everton 1 - Eddie Howe's side lose but still seal return to the Champions League**\
+`Chris Waugh analyses the main talking points as Newcastle qualify for the Champions League - but only just`\
+https://nytimes.com/athletic/6378442/2025/05/25/newcastle-everton-analysis/
+
+**Chelsea, Newcastle qualify for Champions League; Aston Villa miss out**\
+`The final European qualification spots were decided on the last day of the Premier League season.`\
+https://nytimes.com/athletic/6381293/2025/05/25/champions-league-qualification-dates-draw-when/
+
 **The Briefing: Tottenham 1 Brighton 4 - European celebrations but another defeat, so what now for Postecoglou?**\
 `Spurs suffered their 10th home defeat of a miserable Premier League season, but still found time to celebrate their Europa League success`\
 https://nytimes.com/athletic/6378443/2025/05/25/tottenham-brighton-postecoglou-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/25/sports/nino-benvenuti-dead.html
 **It’s Time for Outdoor Potatoes**\
 `In the form of this lemon potato salad with mint, a five-star Melissa Clark classic.`\
 https://nytimes.com/2025/05/25/dining/a-healthy-lemon-potato-salad-recipe.html
-
-**Monaco GP: Lando Norris wins hectic race, Mercedes frustrated by Williams tactics**\
-`The new mandatory Monaco strategy meant drivers had to push the limits up front and back up the field behind, creating some intrigue`\
-https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
-
-**Israeli Airstrike Kills at Least 7 of a Doctor’s Children, Gaza Officials Say**\
-`Two more children were missing, while her husband and one other child were injured in the strike on Friday, the officials said. Israel said it was checking if it had harmed “uninvolved civilians.”`\
-https://nytimes.com/2025/05/25/world/middleeast/israel-gaza-doctor-children.html
 
