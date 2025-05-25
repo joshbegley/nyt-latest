@@ -1,3 +1,11 @@
+**After Childbirth Put Me in a Coma, I Couldn’t Remember My Faith**\
+`Life-threatening complications changed how I prayed and everything I believed.`\
+https://nytimes.com/2025/05/25/style/after-childbirth-put-me-in-a-coma-i-couldnt-remember-my-faith.html
+
+**Barcelona seemed destined for a third straight Champions League triumph. What went wrong?**\
+`The Spanish side have been European football's dominant force over a sustained period but they came up short against Arsenal`\
+https://nytimes.com/athletic/6380830/2025/05/25/barcelona-champions-league-final-arsenal/
+
 **Max Lazar joins the ride as Phillies make it nine straight with marathon win**\
 `The Phillies needed 11 innings in 3 hours and 45 minutes to keep up their streak. Right now, they are flexing.`\
 https://nytimes.com/athletic/6380861/2025/05/25/phillies-athletics-win-streak-max-lazar/
