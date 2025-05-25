@@ -1,3 +1,15 @@
+**The Briefing: Tottenham 1 Brighton 4 - European celebrations but another defeat, so what now for Postecoglou?**\
+`Spurs suffered their 10th home defeat of a miserable Premier League season, but still found time to celebrate their Europa League success`\
+https://nytimes.com/athletic/6378443/2025/05/25/tottenham-brighton-postecoglou-briefing/
+
+**The Briefing: Forest 0 Chelsea 1 - Colwill goal seals CL spot as Nuno settles for seventh**\
+`Our writers break down the action as European places were decided at the City Ground.`\
+https://nytimes.com/athletic/6372811/2025/05/25/nottingham-forest-chelsea-european-qualification/
+
+**Southampton 1 Arsenal 2 - Tierney signs off in style but more set piece struggles**\
+`Kieran Tierney said a fond farewell to Arsenal as Martin Odegaard grabbed victory. James McNicholas and Dan Sheldon analyse the key points`\
+https://nytimes.com/athletic/6372810/2025/05/25/southampton-1-arsenal-2-kieran-tierney-david-raya-martin-odegaard/
+
 **Arsenal's Raya, Forest's Sels win Premier League Golden Glove**\
 `They were tied on 13 clean sheets going into the final round of the Premier League on Sunday but both conceded during those games.`\
 https://nytimes.com/athletic/6377426/2025/05/25/premier-league-awards-golden-glove-raya-sels/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-la
 **Israeli Airstrike Kills at Least 7 of a Doctor’s Children, Gaza Officials Say**\
 `Two more children were missing, while her husband and one other child were injured in the strike on Friday, the officials said. Israel said it was checking if it had harmed “uninvolved civilians.”`\
 https://nytimes.com/2025/05/25/world/middleeast/israel-gaza-doctor-children.html
-
-**Lowetide: A complete look at the Oilers' prospects in spring 2025**\
-`With the Oilers pushing for the Stanley Cup, the organization must avoid a prospects "Death Valley."`\
-https://nytimes.com/athletic/6379710/2025/05/25/edmonton-oilers-prospects-spring-2025/
-
-**Severe Storms Threaten Parts of the Southern Plains**\
-`There was an enhanced risk for severe thunderstorms in parts of Texas and Oklahoma on Sunday, forecasters said. They warned of hail of up to three inches in diameter and of winds up to 80 miles per hour.`\
-https://nytimes.com/2025/05/25/weather/oklahoma-tornado-weather-forecast.html
-
-**Southampton appoint Still as new manager**\
-`The 32-year-old is set to lead the club’s 2025-26 campaign in the Championship`\
-https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-still/
 
