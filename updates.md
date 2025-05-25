@@ -1,3 +1,15 @@
+**Seeing a Tide of Fascism: Flee or Fight?**\
+`Readers respond to a video about three Yale professors who are leaving for Canada. Also: A West Point book ban; cooperation on the environment.`\
+https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html
+
+**Teachers Saved My Life. Why Do We Treat Them So Poorly?**\
+`The Trump administration is trying to unravel one of our greatest national achievements.`\
+https://nytimes.com/2025/05/25/opinion/teachers-education-trump-administration.html
+
+**The Pulse: A new tennis world begins now**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6380274/2025/05/25/french-open-favorites-the-pulse/
+
 **The Timberwolves needed more than a win; they needed a win just like this**\
 `What Minnesota did to Oklahoma City in Game 3 Saturday night is what needed to happen for this series to even begin to feel different.`\
 https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/

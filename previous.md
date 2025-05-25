@@ -1,3 +1,15 @@
+**Seeing a Tide of Fascism: Flee or Fight?**\
+`Readers respond to a video about three Yale professors who are leaving for Canada. Also: A West Point book ban; cooperation on the environment.`\
+https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html
+
+**Teachers Saved My Life. Why Do We Treat Them So Poorly?**\
+`The Trump administration is trying to unravel one of our greatest national achievements.`\
+https://nytimes.com/2025/05/25/opinion/teachers-education-trump-administration.html
+
+**The Pulse: A new tennis world begins now**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6380274/2025/05/25/french-open-favorites-the-pulse/
+
 **As Taylor Ward goes, so do the red-hot Los Angeles Angels**\
 `"It’s very satisfying to be in this position right now and doing what I’ve been doing," Ward said.`\
 https://nytimes.com/athletic/6379868/2025/05/25/taylor-ward-red-hot-angels/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6380208/2025/05/25/chloe-kelly-arsenal-champions-le
 **How Jack Nesbitt became a 2025 NHL Draft riser**\
 `Nesbitt's blend of size, skill and physicality could make him a rare profile in the modern game.`\
 https://nytimes.com/athletic/6360485/2025/05/25/nhl-draft-2025-jack-nesbitt/
-
-**Xabi Alonso and Real Madrid: Learning from Mourinho, two shock exits and a timely return**\
-`Alonso's relationship with the club he played for from 2009-14 and then was a youth-academy coach has not always been straightforward`\
-https://nytimes.com/athletic/6369513/2025/05/25/xabi-alonso-real-madrid-relationship/
-
-**Madrid confirm Alonso as new head coach**\
-`The former Spain international replaces Carlo Ancelotti, who has departed to become head coach of the Brazil national team.`\
-https://nytimes.com/athletic/6064080/2025/05/25/real-madrid-xabi-alonso-confirmed/
-
-**Miguel Amaya injured in Cubs loss, a blow to one of MLB's best catching duos**\
-`For batters with at least 80 plate appearances, Carson Kelly leads catchers with a 188 wRC+. Amaya is 10th at 126.`\
-https://nytimes.com/athletic/6378723/2025/05/25/chicago-cubs-catcher-duo-analysis/
 
