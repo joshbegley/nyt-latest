@@ -1,3 +1,7 @@
+**Panthers' Eetu Luostarinen ejected for hit driving Hurricanes' Jackson Blake head-first into boards**\
+`Blake, a 21-year-old rookie, left the game after the hit with 3:01 remaining in the first period. He returned to start the second period.`\
+https://nytimes.com/athletic/6380382/2025/05/24/eetu-luostarinen-jackson-blake-hit-nhl-playoffs/
+
 **Alex Bregman is injured, but Rafael Devers will stay at DH. Who will play third for Boston?**\
 `It would seem a natural fit for Devers to move back to third, but the Red Sox don't want to mess with what's been working for Devers as DH.`\
 https://nytimes.com/athletic/6380299/2025/05/24/red-sox-third-base-rafael-devers-alex-bregman/

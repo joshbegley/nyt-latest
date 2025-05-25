@@ -1,3 +1,7 @@
+**Panthers' Eetu Luostarinen ejected for hit driving Hurricanes' Jackson Blake head-first into boards**\
+`Blake, a 21-year-old rookie, left the game after the hit with 3:01 remaining in the first period. He returned to start the second period.`\
+https://nytimes.com/athletic/6380382/2025/05/24/eetu-luostarinen-jackson-blake-hit-nhl-playoffs/
+
 **The Beaches Are Open in New York City. So Are the Lifeguard Chairs.**\
 `Beach season began Saturday with 280 lifeguards, well short of what the city needs, amid a yearslong staffing shortage. But more will come by summer’s peak.`\
 https://nytimes.com/2025/05/24/nyregion/beaches-open-lifeguard-shortage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/crosswords/daily-puzzle-2025-05-25.html
 **Amorim to address fans, Man United players to do lap of honour after final game**\
 `United host Aston Villa at Old Trafford to conclude a hugely disappointing season.`\
 https://nytimes.com/athletic/6379690/2025/05/24/manchester-united-final-game-ruben-amorim/
-
-**Manchester United selling Alejandro Garnacho feels inevitable, but is it right?**\
-`Following the Europa League final loss on Wednesday, Ruben Amorim told Alejandro Garnacho to find a new club in a meeting with the squad`\
-https://nytimes.com/athletic/6379643/2025/05/24/manchester-united-alejandro-garnacho-transfer/
 
