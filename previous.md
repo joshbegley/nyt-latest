@@ -1,4 +1,8 @@
-**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champ Liberty**\
+**Susan Brownmiller, Who Reshaped Views About Rape, Dies at 90**\
+`Her book “Against Our Will” argued that rape was a crime of power and violence, not passion; it led to laws that made it easier to prosecute rapists.`\
+https://nytimes.com/2025/05/24/books/susan-brownmiller-dead.html
+
+**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champs Liberty**\
 `Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
 https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/movies/cannes-palme-d-or-it-was-just-an-accident.
 **Clark, Fever fall to Liberty after controversial no-call in final seconds**\
 `With 2.2 seconds left, Clark had her game-winning 3-point attempt stripped by Liberty guard Natasha Cloud as the clock ran out.`\
 https://nytimes.com/athletic/6380084/2025/05/24/caitlin-clark-fever-liberty-sabrina-ionescu/
-
-**New Gaza Aid Plan, Bypassing U.N. and Billed as Neutral, Originated in Israel**\
-`Foreign contractors are set to carry out a contentious new food aid system in Gaza, displacing experienced aid agencies like the United Nations. It was conceived and largely developed by Israelis as a way to undermine Hamas.`\
-https://nytimes.com/2025/05/24/world/middleeast/israel-gaza-aid-plan.html
 

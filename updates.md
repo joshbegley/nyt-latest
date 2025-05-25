@@ -1,3 +1,11 @@
+**Susan Brownmiller, Who Reshaped Views About Rape, Dies at 90**\
+`Her book “Against Our Will” argued that rape was a crime of power and violence, not passion; it led to laws that made it easier to prosecute rapists.`\
+https://nytimes.com/2025/05/24/books/susan-brownmiller-dead.html
+
+**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champs Liberty**\
+`Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
+https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
+
 **Caitlin Clark and Fever learn hard lesson after narrow loss to defending champ Liberty**\
 `Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
 https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
