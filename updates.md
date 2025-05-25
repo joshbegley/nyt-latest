@@ -1,3 +1,11 @@
+**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another Guardiola full-back tweak, De Bruyne’s final goodbye**\
+`We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
+https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
+
+**Fiscal Hawks in Senate Balk at House’s Bill to Deliver Trump’s Agenda**\
+`Senator Ron Johnson of Wisconsin and Senator Rand Paul of Kentucky both indicated that they would seek major changes to the bill that passed the House.`\
+https://nytimes.com/2025/05/25/us/politics/fiscal-hawks-senate-house-bill.html
+
 **Man Utd 2 Aston Villa 0 - Rogers goal controversially disallowed as Emery's side miss out on Champions League**\
 `Analysis of Manchester United v Aston Villa on the final day of the Premier League`\
 https://nytimes.com/athletic/6378445/2025/05/25/man-utd-villa-rogers-goal-disallowed/

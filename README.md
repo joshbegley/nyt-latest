@@ -1,4 +1,8 @@
-**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another Guardiola full-back tweak, De Bruyne’s final goodbye**\
+**‘Queen of Spades’ Review: A Fiery Soprano Breaks Through**\
+`At the Metropolitan Opera’s season premiere of Elijah Moshinsky’s production, it was the women who led, while a strong cast carried the patchwork plot.`\
+https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
+
+**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another full-back tweak, De Bruyne’s final goodbye**\
 `We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
 https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377426/2025/05/25/premier-league-awards-golden-glo
 **Fiscal Hawks in Senate Balk at House’s Bill to Deliver Trump’s Agenda**\
 `Senator Ron Johnson of Wisconsin and Senator Rand Paul of Kentucky both indicated that they would seek major changes to the bill that passed the House.`\
 https://nytimes.com/2025/05/25/us/politics/fiscal-hawks-senate-house-bill.html
-
-**For Trump, Civil Rights Protections Should Help White Men**\
-`Administration officials pick and choose which civil rights protections they want to enforce, and for whom.`\
-https://nytimes.com/2025/05/25/us/politics/trump-race-civil-right-white-men.html
 
