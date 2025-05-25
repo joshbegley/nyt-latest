@@ -6,8 +6,8 @@ https://nytimes.com/2025/05/25/sports/nino-benvenuti-dead.html
 `In the form of this lemon potato salad with mint, a five-star Melissa Clark classic.`\
 https://nytimes.com/2025/05/25/dining/a-healthy-lemon-potato-salad-recipe.html
 
-**Monaco GP: Lando Norris wins hectic race; Mercedes frustrated by Williams tactics**\
-`The new mandatory Monaco strategy meant drivers had to push the limits up front and back up the field behind — creating some intrigue`\
+**Monaco GP: Lando Norris wins hectic race, Mercedes frustrated by Williams tactics**\
+`The new mandatory Monaco strategy meant drivers had to push the limits up front and back up the field behind, creating some intrigue`\
 https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
 
 **Israeli Airstrike Kills at Least 7 of a Doctor’s Children, Gaza Officials Say**\
