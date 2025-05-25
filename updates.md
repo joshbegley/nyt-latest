@@ -1,3 +1,7 @@
+**Lowetide: A complete look at the Oilers' prospects in spring 2025**\
+`With the Oilers pushing for the Stanley Cup, the organization must avoid a prospects "Death Valley."`\
+https://nytimes.com/athletic/6379710/2025/05/25/edmonton-oilers-prospects-spring-2025/
+
 **Severe Storms Threaten Parts of the Southern Plains**\
 `There was an enhanced risk for severe thunderstorms in parts of Texas and Oklahoma on Sunday, forecasters said. They warned of hail of up to three inches in diameter and of winds up to 80 miles per hour.`\
 https://nytimes.com/2025/05/25/weather/oklahoma-tornado-weather-forecast.html
