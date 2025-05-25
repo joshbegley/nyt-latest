@@ -1,3 +1,7 @@
+**Kyle Larson's double attempt ends as he crashes out of chaotic Indy 500**\
+`In addition to Larson's accident, Scott McLaughlin, Alexander Rossi and Robert Shwartzman were among those to exit the race early.`\
+https://nytimes.com/athletic/6381891/2025/05/25/indy-500-chaos-kyle-larson-scott-mclaughlin-alexander-rossi/
+
 **Postecoglou says he 'shouldn’t be sat here talking about my future' at Spurs**\
 `Spurs’ 4-1 loss to Brighton on Sunday was their 22nd defeat in the Premier League this season and meant that they finished 17th.`\
 https://nytimes.com/athletic/6381855/2025/05/25/ange-postecoglou-tottenham-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381009/2025/05/25/jack-grealish-manchester-city-gu
 **Maresca on Chelsea critics after securing Champions League spot: 'F off to all of them'**\
 `The Champions League winners in 2020-21 return to the competition next season for the first time in three years.`\
 https://nytimes.com/athletic/6381706/2025/05/25/chelsea-champions-league-enzo-maresca-critics/
-
-**‘Lilo & Stitch’ and Tom Cruise Add to a Box Office Boomlet**\
-`Moviegoing in the United States and Canada has rebounded over the last two months. Theater owners credit a wider variety of releases.`\
-https://nytimes.com/2025/05/25/business/media/lilo-stitch-mission-impossible-sinners-box-office.html
 
