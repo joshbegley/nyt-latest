@@ -1,3 +1,15 @@
+**Amorim apologises to Man Utd fans, insists 'good days are coming'**\
+`Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\
+https://nytimes.com/athletic/6381579/2025/05/25/ruben-amorim-manchester-united-apology-speech/
+
+**‘Queen of Spades’ Review: A Fiery Soprano Breaks Through**\
+`At the Metropolitan Opera’s season premiere of Elijah Moshinsky’s production, it was the women who led, while a strong cast carried the patchwork plot.`\
+https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
+
+**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another full-back tweak, De Bruyne’s final goodbye**\
+`We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
+https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
+
 **The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another Guardiola full-back tweak, De Bruyne’s final goodbye**\
 `We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
 https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/

@@ -1,4 +1,12 @@
-**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another Guardiola full-back tweak, De Bruyne’s final goodbye**\
+**Amorim apologises to Man Utd fans, insists 'good days are coming'**\
+`Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\
+https://nytimes.com/athletic/6381579/2025/05/25/ruben-amorim-manchester-united-apology-speech/
+
+**‘Queen of Spades’ Review: A Fiery Soprano Breaks Through**\
+`At the Metropolitan Opera’s season premiere of Elijah Moshinsky’s production, it was the women who led, while a strong cast carried the patchwork plot.`\
+https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
+
+**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another full-back tweak, De Bruyne’s final goodbye**\
 `We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
 https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6372810/2025/05/25/southampton-1-arsenal-2-kieran-t
 **Arsenal's Raya, Forest's Sels win Premier League Golden Glove**\
 `They were tied on 13 clean sheets going into the final round of the Premier League on Sunday but both conceded during those games.`\
 https://nytimes.com/athletic/6377426/2025/05/25/premier-league-awards-golden-glove-raya-sels/
-
-**Fiscal Hawks in Senate Balk at House’s Bill to Deliver Trump’s Agenda**\
-`Senator Ron Johnson of Wisconsin and Senator Rand Paul of Kentucky both indicated that they would seek major changes to the bill that passed the House.`\
-https://nytimes.com/2025/05/25/us/politics/fiscal-hawks-senate-house-bill.html
-
-**For Trump, Civil Rights Protections Should Help White Men**\
-`Administration officials pick and choose which civil rights protections they want to enforce, and for whom.`\
-https://nytimes.com/2025/05/25/us/politics/trump-race-civil-right-white-men.html
 
