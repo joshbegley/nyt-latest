@@ -1,3 +1,7 @@
+**Topsy-turvy tennis comebacks, speedy second serves and wild card wins: French Open day 1 takeaways**\
+`The first day of the French Open at Roland Garros brought a topsy-turvy injury comeback, two wild card wins and a very fast second serve.`\
+https://nytimes.com/athletic/6381245/2025/05/25/french-open-recap-topsy-turvy-tennis-comebacks-speedy-second-serves-and-two-wild-card-wins/
+
 **Slot insists Liverpool must strengthen but no 'radical changes' to squad**\
 `Liverpool have lined up a £30m deal to sign Jeremie Frimpong from Bayer Leverkusen and are in talks to sign his team-mate Florian Wirtz.`\
 https://nytimes.com/athletic/6382172/2025/05/25/arne-slot-liverpool-transfer-news-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-le
 **Liverpool's perfect Anfield day, 35 years in the making**\
 `Finally, Liverpool supporters had the chance to celebrate their team winning a league title in person again - and they did it in style`\
 https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
-
-**Brad Marchand's mid-game DQ Blizzard, Matthew Tkachuk's revenge, more Hurricanes-Panthers notes**\
-`Is Dairy Queen fueling the Panthers' playoff run? With the series 3-0, coach Paul Maurice addressed the big question Sunday.`\
-https://nytimes.com/athletic/6381333/2025/05/25/brad-marchand-matthew-tkachuk-panthers-hurricanes-nhl-playoffs/
 

@@ -1,3 +1,7 @@
+**Slot insists Liverpool must strengthen but no 'radical changes' to squad**\
+`Liverpool have lined up a £30m deal to sign Jeremie Frimpong from Bayer Leverkusen and are in talks to sign his team-mate Florian Wirtz.`\
+https://nytimes.com/athletic/6382172/2025/05/25/arne-slot-liverpool-transfer-news-update/
+
 **McDavid scores twice, Skinner sharp again as Oilers beat Stars in Game 3: Takeaways**\
 `The Oilers controlled the game throughout again to take a 2-1 series lead in the Western Conference final.`\
 https://nytimes.com/athletic/6382199/2025/05/25/oilers-stars-mcdavid-game-3/
