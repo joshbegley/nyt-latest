@@ -1,3 +1,11 @@
+**Calculating what every Premier League place is worth and what each team could earn**\
+`Exact figures won’t be known until the Premier League release them but there’s enough information available to take an educated guess`\
+https://nytimes.com/athletic/6376361/2025/05/25/calculating-what-every-premier-league-place-is-worth-and-what-each-team-earned-this-season/
+
+**Predicting what will happen in the Premier League's final-day fight for European qualification**\
+`The biggest plot line on the final day of the season is the battle for European qualification. Five writers take a guess at what will happen`\
+https://nytimes.com/athletic/6377727/2025/05/25/premier-league-champions-europa-qualification/
+
 **How does Champions League status impact Premier League transfer plans?**\
 `Manchester City, Newcastle, Chelsea, Aston Villa and Nottingham Forest are all competing for the three remaining English slots for next year`\
 https://nytimes.com/athletic/6375538/2025/05/25/champions-league-transfer-premier-league-plans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380350/2025/05/24/nba-playoffs-takeaways-timberwol
 **Panthers on brink of 3rd straight Stanley Cup Final appearance after another rout of Hurricanes: Takeaways**\
 `A game that was tied 1-1 after two periods ended up lopsided as the Canes dropped their 15th straight conference-final game.`\
 https://nytimes.com/athletic/6380482/2025/05/24/panthers-hurricanes-nhl-playoffs-2025-game-3-takeaways/
-
-**Katy Knoll plays triple-OT hero as Frost take series lead over Charge in PWHL Finals: Takeaways**\
-`After a 2-1 win in Game 3, Minnesota is now one win away from becoming back-to-back Walter Cup champions.`\
-https://nytimes.com/athletic/6380305/2025/05/24/minnesota-frost-ottawa-charge-pwhl-finals-game-3/
-
-**After homering (again), Ronald Acuña Jr. feels good about his knee and Braves' chances**\
-`The Braves have another player clicking now, and it's an extremely talented one. Acuña is back. Man, is he back.`\
-https://nytimes.com/athletic/6380356/2025/05/24/ronald-acuna-jr-homer-second-game-knee/
 
