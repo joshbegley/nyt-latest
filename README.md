@@ -1,3 +1,7 @@
+**Postecoglou says he 'shouldn’t be sat here talking about my future' at Spurs**\
+`Spurs’ 4-1 loss to Brighton on Sunday was their 22nd defeat in the Premier League this season and meant that they finished 17th.`\
+https://nytimes.com/athletic/6381855/2025/05/25/ange-postecoglou-tottenham-manager/
+
 **Baseball pulled Nic Enright out of the darkness. Now, finally, he's a big-league pitcher**\
 `Nearly two and a half years after getting diagnosed with Hodgkin lymphoma, Enright made his major-league debut for the Guardians.`\
 https://nytimes.com/athletic/6379028/2025/05/25/guardians-nic-enright-mlb-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381706/2025/05/25/chelsea-champions-league-enzo-ma
 **‘Lilo & Stitch’ and Tom Cruise Add to a Box Office Boomlet**\
 `Moviegoing in the United States and Canada has rebounded over the last two months. Theater owners credit a wider variety of releases.`\
 https://nytimes.com/2025/05/25/business/media/lilo-stitch-mission-impossible-sinners-box-office.html
-
-**Van Nistelrooy reveals no Leicester future talks, Monga among teens close to new deals**\
-`Jeremy Monga, Jake Evans and Olabade Aluko are all close to signing new Leicester deals.`\
-https://nytimes.com/athletic/6381646/2025/05/25/leicester-manager-van-nistelrooy-contract-monga/
 
