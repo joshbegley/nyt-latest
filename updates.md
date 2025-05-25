@@ -1,3 +1,15 @@
+**‘Lilo & Stitch’ and Tom Cruise Add to a Box Office Boomlet**\
+`Moviegoing in the United States and Canada has rebounded over the last two months. Theater owners credit a wider variety of releases.`\
+https://nytimes.com/2025/05/25/business/media/lilo-stitch-mission-impossible-sinners-box-office.html
+
+**Rafael Nadal's French Open ceremony brings Federer, Djokovic and Murray back to Roland Garros**\
+`Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
+https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadal-roland-garros-ceremony-tennis-big-four/
+
+**Explaining Rogers' controversially disallowed goal as Aston Villa miss out on Champions League**\
+`Analysis of Manchester United v Aston Villa on the final day of the Premier League`\
+https://nytimes.com/athletic/6378445/2025/05/25/man-utd-villa-rogers-goal-disallowed/
+
 **Van Nistelrooy reveals no Leicester future talks, Monga among teens close to new deals**\
 `Jeremy Monga, Jake Evans and Olabade Aluko are all close to signing new Leicester deals.`\
 https://nytimes.com/athletic/6381646/2025/05/25/leicester-manager-van-nistelrooy-contract-monga/
