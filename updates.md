@@ -1,3 +1,7 @@
+**Trump Delays E.U. Tariffs Until July 9**\
+`President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
+https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
+
 **Trump Delays E.U. Tariff Until July 9**\
 `President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
 https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
