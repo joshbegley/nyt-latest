@@ -1,3 +1,7 @@
+**Qatari Push to Dominate Another Sport, Table Tennis, Draws Scrutiny**\
+`A wealthy Qatari businessman’s campaign to lead the sport’s global body is being investigated. One of his critics was detained and interrogated in Doha.`\
+https://nytimes.com/2025/05/25/world/middleeast/qatar-table-tennis.html
+
 **San Diego FC, LA Galaxy condemn violence after Snapdragon Stadium incident**\
 `"Any behavior found to be in violation of the MLS Fan Code of Conduct will result in disciplinary action," the clubs wrote.`\
 https://nytimes.com/athletic/6380636/2025/05/25/san-diego-fc-la-galaxy-violence-snapdragon-stadium/
