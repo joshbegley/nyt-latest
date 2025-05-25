@@ -1,3 +1,7 @@
+**Trump Delays E.U. Tariff Until July 9**\
+`President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
+https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
+
 **Topsy-turvy tennis comebacks, speedy second serves and wild card wins: French Open day 1 takeaways**\
 `The first day at Roland Garros brought a remarkable recovery, serve inspiration and proof that wild cards don't have to be a lottery.`\
 https://nytimes.com/athletic/6381245/2025/05/25/french-open-recap-results-analysis-day-1/
