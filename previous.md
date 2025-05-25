@@ -1,3 +1,7 @@
+**Remembering George Floyd**\
+`Text by Ernesto Londoño`\
+https://nytimes.com/card/2025/05/25/us/george-floyd-anniversary
+
 **U.S. wins first World hockey title since 1933 as OT goal downs Switzerland**\
 `Denmark's upset of Canada in the quarterfinals helped clear the way for a deep U.S. team.`\
 https://nytimes.com/athletic/6382063/2025/05/25/usa-switzerland-iihf-world-championship-final-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list
 **Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
 `Palou is first driver since A.J. Foyt in 1979 to win five of the first six races of the season.`\
 https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
-
-**Red Sox roster takeaways: Team mixing and matching with rookie-heavy lineup**\
-`The Red Sox are down two of their mainstay veteran infielders and a third is struggling badly, so rookies are taking centerstage. `\
-https://nytimes.com/athletic/6381480/2025/05/25/red-sox-takeaways-roster-adjustments-marcelo-mayer/
 

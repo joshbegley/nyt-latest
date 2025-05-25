@@ -1,3 +1,11 @@
+**McDavid scores twice, Skinner sharp again as Oilers beat Stars in Game 3: Takeaways**\
+`The Oilers controlled the game throughout again to take a 2-1 series lead in the Western Conference final.`\
+https://nytimes.com/athletic/6382199/2025/05/25/oilers-stars-mcdavid-game-3/
+
+**Choir Member**\
+`Ari Halpern keeps a close watch.`\
+https://nytimes.com/2025/05/25/crosswords/daily-puzzle-2025-05-26.html
+
 **Remembering George Floyd**\
 `Text by Ernesto Londoño`\
 https://nytimes.com/card/2025/05/25/us/george-floyd-anniversary
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6381333/2025/05/25/brad-marchand-matthew-tkachuk-pa
 **A Quiet Funeral in Israel for Victim of Washington Shooting**\
 `Yaron Lischinsky, 30, was buried on Sunday in the small town where his family lived.`\
 https://nytimes.com/2025/05/25/world/middleeast/israel-funeral-dc-shooting.html
-
-**Padres top starter Michael King is placed on injured list with shoulder inflammation**\
-`King has a 2.59 ERA in 10 starts this season.`\
-https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list/
-
-**Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
-`Palou is first driver since A.J. Foyt in 1979 to win five of the first six races of the season.`\
-https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
 

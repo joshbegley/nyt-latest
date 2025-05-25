@@ -1,3 +1,7 @@
+**Remembering George Floyd**\
+`Text by Ernesto Londoño`\
+https://nytimes.com/card/2025/05/25/us/george-floyd-anniversary
+
 **Tigers' Tarik Skubal keeps staking his claim as MLB's best pitcher**\
 `Skubal threw the first shoutout of his career Sunday, striking out 13 batters and going nine innings in only 94 pitches. `\
 https://nytimes.com/athletic/6382052/2025/05/25/tigers-tarik-skubal-best-pitcher-in-baseball/
