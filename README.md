@@ -1,3 +1,7 @@
+**What players, others around NHL are saying about Blackhawks hiring Jeff Blashill as coach**\
+`From Panthers GM Bill Zito to current Blackhawks Tyler Bertuzzi and Joe Veleno, those who have worked with Blashill share their thoughts.`\
+https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-nhl/
+
 **A Fringe Movement**\
 `We explain the ideology behind a recent attack.`\
 https://nytimes.com/2025/05/25/briefing/a-fringe-movement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6378723/2025/05/25/chicago-cubs-catcher-duo-analysi
 **Marcelo Mayer's chaotic MLB debut: Lost keys, a long car ride and a standing ovation**\
 `Mayer learned he was heading to Boston for Game 2 of the doubleheader, but there was one problem: He couldn't find his keys.`\
 https://nytimes.com/athletic/6380419/2025/05/25/red-sox-marcelo-mayer-mlb-debut/
-
-**Indianapolis 500 by day, Pacers-Knicks by night: A city set for 2 Sunday sports spectacles**\
-`Rest will be at a minimum for die-hard fans of the Pacers and IndyCar — especially those in Indianapolis brave enough to attend both events.`\
-https://nytimes.com/athletic/6379734/2025/05/25/indianapolis-500-pacers-knicks-nba-indycar-sunday/
 
