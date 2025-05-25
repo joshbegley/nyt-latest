@@ -1,3 +1,7 @@
+**How dramatic final day showdown for Champions League qualification unfolded**\
+`A five-team battle for three spots in Europe's premier competition was full of twists, turns and controversy `\
+https://nytimes.com/athletic/6381151/2025/05/25/how-race-for-the-champions-league-unfolded/
+
 **Grealish exclusion from Man City's final game 'not personal' - Guardiola**\
 `Following the FA Cup final, Guardiola said the club's hierarchy would hold talks with Grealish's representatives in the summer.`\
 https://nytimes.com/athletic/6381009/2025/05/25/jack-grealish-manchester-city-guardiola/
