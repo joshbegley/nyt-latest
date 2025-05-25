@@ -1,3 +1,7 @@
+**Max Lazar joins the ride as Phillies make it nine straight with marathon win**\
+`The Phillies needed 11 innings in 3 hours and 45 minutes to keep up their streak. Right now, they are flexing.`\
+https://nytimes.com/athletic/6380861/2025/05/25/phillies-athletics-win-streak-max-lazar/
+
 **Neville tells Amorim to stop speculating on Man Utd future**\
 `Amorim suggested he would leave without holding talks over compensation if the Old Trafford hierarchy believed a change was for the best.`\
 https://nytimes.com/athletic/6379916/2025/05/25/ruben-amorim-manchester-united-manager-neville/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/insider/new-york-roommate-horror-stories.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/25/crosswords/spelling-bee-forum.html
-
-**Tears from Perez and talks with Alonso: How Ancelotti said farewell to Real Madrid**\
-`Saturday was an emotional day at the Bernabeu as the reign of the club's most successful manager came to an end`\
-https://nytimes.com/athletic/6380094/2025/05/25/carlo-ancelotti-real-madrid-farewell/
 
