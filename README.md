@@ -1,3 +1,7 @@
+**Fiscal hawks in the Senate balk at the House’s bill to deliver Trump’s agenda.**\
+`By Catie Edmondson and Minho Kim`\
+https://nytimes.com/live/2025/05/25/us/trump-news/fiscal-hawks-senate-house-bill
+
 **For Trump, Civil Rights Protections Should Help White Men**\
 `Administration officials pick and choose which civil rights protections they want to enforce, and for whom.`\
 https://nytimes.com/2025/05/25/us/politics/trump-race-civil-right-white-men.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-st
 **Trump Administration Live Updates: Documents Show E.P.A. Wants to Erase Greenhouse Gas Limits on Power Plants**\
 ``\
 https://nytimes.com/live/2025/05/25/us/trump-news
-
-**Seeing a Tide of Fascism: Flee or Fight?**\
-`Readers respond to a video about three Yale professors who are leaving for Canada. Also: A West Point book ban; cooperation on the environment.`\
-https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html
 
