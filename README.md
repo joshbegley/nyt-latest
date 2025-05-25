@@ -3,7 +3,7 @@
 https://nytimes.com/2025/05/24/nyregion/beaches-open-lifeguard-shortage.html
 
 **Alex Bregman is injured, but Rafael Devers will stay at DH. Who will play third for Boston?**\
-`It would seem a natural fit for Devers to move back to third but the Red Sox don't want to mess with what's been working for Devers as a DH.`\
+`It would seem a natural fit for Devers to move back to third, but the Red Sox don't want to mess with what's been working for Devers as DH.`\
 https://nytimes.com/athletic/6380299/2025/05/24/red-sox-third-base-rafael-devers-alex-bregman/
 
 **Susan Brownmiller, Who Reshaped Views About Rape, Dies at 90**\
