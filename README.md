@@ -1,3 +1,7 @@
+**The Pulse: A new tennis world begins now**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6380274/2025/05/25/french-open-favorites-the-pulse/
+
 **As Taylor Ward goes, so do the red-hot Los Angeles Angels**\
 `"It’s very satisfying to be in this position right now and doing what I’ve been doing," Ward said.`\
 https://nytimes.com/athletic/6379868/2025/05/25/taylor-ward-red-hot-angels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369513/2025/05/25/xabi-alonso-real-madrid-relation
 **Madrid confirm Alonso as new head coach**\
 `The former Spain international replaces Carlo Ancelotti, who has departed to become head coach of the Brazil national team.`\
 https://nytimes.com/athletic/6064080/2025/05/25/real-madrid-xabi-alonso-confirmed/
-
-**Miguel Amaya injured in Cubs loss, a blow to one of MLB's best catching duos**\
-`For batters with at least 80 plate appearances, Carson Kelly leads catchers with a 188 wRC+. Amaya is 10th at 126.`\
-https://nytimes.com/athletic/6378723/2025/05/25/chicago-cubs-catcher-duo-analysis/
 
