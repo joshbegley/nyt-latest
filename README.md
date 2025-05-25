@@ -1,3 +1,7 @@
+**Monday Briefing: Russia Bombards Ukraine**\
+`Plus, Mexico City’s artistic eras.`\
+https://nytimes.com/2025/05/25/briefing/russia-attacks-ukraine-venezuela-guyana-trump-vietnam.html
+
 **Juventus qualify for UCL ahead of Roma, Lazio on final day of Serie A**\
 `Igor Tudor's side secured a nervy 3-2 victory at Venezia, whose relegation was confirmed by the result, to pip Roma into fourth place.`\
 https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-league-serie-a/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing
 **Tony Bechara, Painter Who Championed Latino Artists, Dies at 83**\
 `He turned away from a potential career in the law or international relations to produce abstract paintings, and he headed El Museo del Barrio.`\
 https://nytimes.com/2025/05/25/obituaries/tony-bechara-painter-who-championed-latino-artists-dies-at-83.html
-
-**Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
-`Spurs have achieved glory and unity. So sacking Postecoglou now might risk it all, hoping the grass is greener with a different manager`\
-https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
 
