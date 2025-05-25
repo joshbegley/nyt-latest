@@ -1,3 +1,7 @@
+**Arsenal's Raya, Forest's Sels win Premier League Golden Glove**\
+`They were tied on 13 clean sheets going into the final round of the Premier League on Sunday but both conceded during those games.`\
+https://nytimes.com/athletic/6377426/2025/05/25/premier-league-awards-golden-glove-raya-sels/
+
 **Fiscal hawks in the Senate balk at the House’s bill to deliver Trump’s agenda.**\
 `By Catie Edmondson and Minho Kim`\
 https://nytimes.com/live/2025/05/25/us/trump-news/fiscal-hawks-senate-house-bill
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/weather/oklahoma-tornado-weather-forecast.html
 **Southampton appoint Still as new manager**\
 `The 32-year-old is set to lead the club’s 2025-26 campaign in the Championship`\
 https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-still/
-
-**Trump Administration Live Updates: Documents Show E.P.A. Wants to Erase Greenhouse Gas Limits on Power Plants**\
-``\
-https://nytimes.com/live/2025/05/25/us/trump-news
 
