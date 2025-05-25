@@ -1,3 +1,7 @@
+**Max Lazar joins the ride as Phillies make it nine straight with marathon win**\
+`The Phillies needed 11 innings in 3 hours and 45 minutes to keep up their streak. Right now, they are flexing.`\
+https://nytimes.com/athletic/6380861/2025/05/25/phillies-athletics-win-streak-max-lazar/
+
 **Neville tells Amorim to stop speculating on Man Utd future**\
 `Amorim suggested he would leave without holding talks over compensation if the Old Trafford hierarchy believed a change was for the best.`\
 https://nytimes.com/athletic/6379916/2025/05/25/ruben-amorim-manchester-united-manager-neville/
