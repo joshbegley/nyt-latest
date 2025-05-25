@@ -1,3 +1,7 @@
+**Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
+`The Dodgers looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
+https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
+
 **Lineker emotionally signs off final MOTD ahead of BBC exit**\
 `Lineker, 64, has presented Match of the Day since 1999, but will now leave the corporation altogether following Sunday's show.`\
 https://nytimes.com/athletic/6382187/2025/05/25/gary-lineker-bbc-motd-exit/
