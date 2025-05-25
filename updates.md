@@ -1,3 +1,7 @@
+**The Timberwolves needed more than a win; they needed a win just like this**\
+`What Minnesota did to Oklahoma City in Game 3 on Saturday night is what needed to happen for this series to even begin to feel different.`\
+https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
+
 **Blue Jays pitching notes: Alek Manoah's return, losing Yimi García, Jeff Hoffman's command**\
 `Manoah could be an important part of this season's future, while Mason Fluharty may get a chance now for Toronto.`\
 https://nytimes.com/athletic/6380487/2025/05/25/toronto-blue-jays-pitching-yimi-garcia/
