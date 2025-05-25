@@ -1,40 +1,40 @@
-**After Childbirth Put Me in a Coma, I Couldn’t Remember My Faith**\
-`Life-threatening complications changed how I prayed and everything I believed.`\
-https://nytimes.com/2025/05/25/style/after-childbirth-put-me-in-a-coma-i-couldnt-remember-my-faith.html
+**Everyone knew Anthony Edwards had to be better. He knew it, too**\
+`Edwards was well aware that Minnesota's only way out of a 0-2 hole was for him to lead the way out. He emphatically did.`\
+https://nytimes.com/athletic/6380798/2025/05/25/timberwolves-thunder-game-3-anthony-edwards/
 
-**Barcelona seemed destined for a third straight Champions League triumph. What went wrong?**\
-`The Spanish side have been European football's dominant force over a sustained period but they came up short against Arsenal`\
-https://nytimes.com/athletic/6380830/2025/05/25/barcelona-champions-league-final-arsenal/
+**In the Shadow of a Tainted Election, Maduro Asks Venezuelans to Vote Again**\
+`Some in the opposition say the only way to protest is to abstain. Others say doing so will let the government “say they won without resistance.”`\
+https://nytimes.com/2025/05/25/world/americas/maduro-venezuela-election.html
 
-**Max Lazar joins the ride as Phillies make it nine straight with marathon win**\
-`The Phillies needed 11 innings in 3 hours and 45 minutes to keep up their streak. Right now, they are flexing.`\
-https://nytimes.com/athletic/6380861/2025/05/25/phillies-athletics-win-streak-max-lazar/
+**'Put on a good show': Gaël Monfils and the spectacular inheritance of French men's tennis**\
+`A tennis nation with an eye for the spectacular is getting closer to refuting the idea that it is all showmanship and no substance`\
+https://nytimes.com/athletic/6378148/2025/05/25/tennis-french-open-history-style-monfils/
 
-**Neville tells Amorim to stop speculating on Man Utd future**\
-`Amorim suggested he would leave without holding talks over compensation if the Old Trafford hierarchy believed a change was for the best.`\
-https://nytimes.com/athletic/6379916/2025/05/25/ruben-amorim-manchester-united-manager-neville/
+**These Plants Protect Larvae From Wildfires**\
+`Growths on plants formed by parasitic weevils help their offspring hunker down on a Brazilian savanna and outlast the flames.`\
+https://nytimes.com/2025/05/25/science/weevils-wildfires-galls-brazil.html
 
-**​North Korea Makes Arrests Over Failed Ship Launch That Angered Kim Jong-un**\
-`Three shipyard officials were arrested, including the chief engineer, state media said. The North Korean leader was watching as the launch of a navy destroyer went wrong.`\
-https://nytimes.com/2025/05/25/world/asia/north-korea-ship-launch-arrests.html
+**As Trumps Monetize Presidency, Profits Outstrip Protests**\
+`The president and his family have monetized the White House more than any other occupant, normalizing activities that once would have provoked heavy blowback and official investigations.`\
+https://nytimes.com/2025/05/25/us/politics/trump-money-plane-crypto.html
 
-**Sinkholes, Bane of Today’s Drivers, Offer Peek Into a Lost Mining Past**\
-`A part of Interstate 80 in New Jersey passes near and over abandoned iron mines, remnants of a thriving ore-and-mineral industry that began before the American Revolution.`\
-https://nytimes.com/2025/05/25/nyregion/nj-sinkholes-mines.html
+**5 Years After George Floyd’s Murder, the Backlash Takes Hold**\
+`The Black Lives Matter movement, kicked into high gear after Mr. Floyd’s murder on May 25, 2020, has given way to the politics of “white grievance” championed by President Trump.`\
+https://nytimes.com/2025/05/25/us/politics/george-floyd-trump.html
 
-**When a Press Pass Fails to Protect**\
-`A Times reporter was struck by a rubber bullet while covering protests in Quebec in 2001.`\
-https://nytimes.com/2025/05/25/insider/when-a-press-pass-fails-to-protect.html
+**A ‘Mission: Impossible’ Fan Favorite Returns 3 Decades Later. Even He’s Surprised.**\
+`Rolf Saxon thought he was being pranked when the director of the new film contacted him for a role that actually expanded during production.`\
+https://nytimes.com/2025/05/25/movies/mission-impossible-the-final-reckoning-william-donloe-rolf-saxon.html
 
-**‘When I Got to the Class, the Tall Man Who Was Filling In Glanced at Me’**\
-`A reunion of teacher and student in Riverdale, a deli order faux pas and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/05/25/nyregion/metropolitan-diary.html
+**How Donald Trump Has Remade America’s Political Landscape**\
+`The steady march to the right across a vast number of counties reveals the extent of the nation's transformation in the Trump era, and the seriousness of the Democrats' problems.`\
+https://nytimes.com/interactive/2025/05/25/us/politics/trump-politics-democrats.html
 
-**Was Game 3 a respite for the Thunder, or will it be a turning point?**\
-`Game 3 was the first time in this playoff run that Oklahoma City has been pushed around for 48 minutes.`\
-https://nytimes.com/athletic/6380616/2025/05/25/thunder-game-3-tony-jones/
+**Some Sneaky Fees Can No Longer Hide. But Watch Out for Others.**\
+`Resort fees, cleaning fees, service fees: Those charges now must be disclosed upfront. But the fight against “junk fees” is far from over.`\
+https://nytimes.com/2025/05/25/technology/personaltech/hotel-ticket-fees-changes.html
 
-**A Punk-Rock Past Comes With Unwanted Baggage for a N.Y. Politician**\
-`Justin Brannan, a city comptroller candidate, expressed remorse for decades-old messages where he appeared to use the Columbine shootings to promote his band.`\
-https://nytimes.com/2025/05/25/nyregion/justin-brannan-columbine.html
+**Is There a Good Way for Religious Garments to Be Discarded?**\
+`Celestial Recycling is helping answer that very question for members of the Church of Jesus Christ of Latter-day Saints.`\
+https://nytimes.com/2025/05/25/style/religious-garments-disposal-mormons.html
 
