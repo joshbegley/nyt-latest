@@ -1,3 +1,7 @@
+**A Fringe Movement**\
+`We explain the ideology behind a recent attack.`\
+https://nytimes.com/2025/05/25/briefing/a-fringe-movement.html
+
 **The Timberwolves needed more than a win; they needed a win just like this**\
 `What Minnesota did to Oklahoma City in Game 3 on Saturday night is what needed to happen for this series to even begin to feel different.`\
 https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380419/2025/05/25/red-sox-marcelo-mayer-mlb-debut/
 **Indianapolis 500 by day, Pacers-Knicks by night: A city set for 2 Sunday sports spectacles**\
 `Rest will be at a minimum for die-hard fans of the Pacers and IndyCar — especially those in Indianapolis brave enough to attend both events.`\
 https://nytimes.com/athletic/6379734/2025/05/25/indianapolis-500-pacers-knicks-nba-indycar-sunday/
-
-**Mandel: Big Ten, SEC plans for Playoff would damage college football**\
-`Possible College Football Playoff expansion to 16 teams in 2026 is far more complicated than it needs to be. Blame the Big Ten and SEC.`\
-https://nytimes.com/athletic/6379486/2025/05/25/college-football-playoff-format-big-ten-sec/
 
