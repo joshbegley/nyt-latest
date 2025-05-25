@@ -1,3 +1,7 @@
+**Spurs, Newcastle, Palace trophies are motivation for Brighton - Hurzeler**\
+`Brighton haven't won a major trophy in their 124-year history.`\
+https://nytimes.com/athletic/6377587/2025/05/25/tottenham-newcastle-palace-trophy-brighton-hurzeler/
+
 **Sunderland have been remodelled and revived - they have exceeded all expectations**\
 `Promotion to the Premier League is a dream end to the season for a club which has reached some low ebbs in recent years`\
 https://nytimes.com/athletic/6380257/2025/05/25/sunderland-promotion-premier-league-playoff-final/
