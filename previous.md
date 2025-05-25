@@ -1,3 +1,11 @@
+**Grealish exclusion from Man City's final game 'not personal' - Guardiola**\
+`Following the FA Cup final, Guardiola said the club's hierarchy would hold talks with Grealish's representatives in the summer.`\
+https://nytimes.com/athletic/6381009/2025/05/25/jack-grealish-manchester-city-guardiola/
+
+**Maresca on Chelsea critics after securing Champions League spot: 'F off to all of them'**\
+`The Champions League winners in 2020-21 return to the competition next season for the first time in three years.`\
+https://nytimes.com/athletic/6381706/2025/05/25/chelsea-champions-league-enzo-maresca-critics/
+
 **‘Lilo & Stitch’ and Tom Cruise Add to a Box Office Boomlet**\
 `Moviegoing in the United States and Canada has rebounded over the last two months. Theater owners credit a wider variety of releases.`\
 https://nytimes.com/2025/05/25/business/media/lilo-stitch-mission-impossible-sinners-box-office.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
 **The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another full-back tweak, De Bruyne’s final goodbye**\
 `We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
 https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
-
-**Explaining Rogers' controversially disallowed goal as Aston Villa miss out on Champions League**\
-`Analysis of Manchester United v Aston Villa on the final day of the Premier League`\
-https://nytimes.com/athletic/6378445/2025/05/25/man-utd-villa-rogers-goal-disallowed/
-
-**The Briefing: Newcastle 0 Everton 1 - Eddie Howe's side lose but still seal return to the Champions League**\
-`Chris Waugh analyses the main talking points as Newcastle qualify for the Champions League - but only just`\
-https://nytimes.com/athletic/6378442/2025/05/25/newcastle-everton-analysis/
 

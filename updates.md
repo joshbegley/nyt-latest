@@ -1,3 +1,11 @@
+**Grealish exclusion from Man City's final game 'not personal' - Guardiola**\
+`Following the FA Cup final, Guardiola said the club's hierarchy would hold talks with Grealish's representatives in the summer.`\
+https://nytimes.com/athletic/6381009/2025/05/25/jack-grealish-manchester-city-guardiola/
+
+**Maresca on Chelsea critics after securing Champions League spot: 'F off to all of them'**\
+`The Champions League winners in 2020-21 return to the competition next season for the first time in three years.`\
+https://nytimes.com/athletic/6381706/2025/05/25/chelsea-champions-league-enzo-maresca-critics/
+
 **‘Lilo & Stitch’ and Tom Cruise Add to a Box Office Boomlet**\
 `Moviegoing in the United States and Canada has rebounded over the last two months. Theater owners credit a wider variety of releases.`\
 https://nytimes.com/2025/05/25/business/media/lilo-stitch-mission-impossible-sinners-box-office.html
