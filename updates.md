@@ -1,3 +1,7 @@
+**Tigers' Tarik Skubal keeps staking his claim as the best pitcher in baseball **\
+`Skubal threw the first shoutout of his career Sunday, striking out 13 batters and going nine innings in only 94 pitches. `\
+https://nytimes.com/athletic/6382052/2025/05/25/tigers-tarik-skubal-best-pitcher-in-baseball/
+
 **Liverpool's perfect Anfield day, 35 years in the making**\
 `Finally, Liverpool supporters had the chance to celebrate their team winning a league title in person again - and they did it in style`\
 https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
