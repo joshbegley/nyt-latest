@@ -1,3 +1,11 @@
+**Russia Bombards Ukraine With One of Largest Air Assaults of the War**\
+`The attack involved nearly 370 missiles and drones, according to Ukraine’s Air Force. At least 12 people were killed.`\
+https://nytimes.com/2025/05/25/world/europe/russia-ukraine-kyiv.html
+
+**The New York Times International Edition in Print for Monday, May 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/25/todays-new-york-times-international-edition
+
 **Arsenal forward Stina Blackstenius is a subtle striker, who 'turns up in big moments'**\
 `Blackstenius has made a habit of scoring big-time goals, but she's still getting used to the spotlight`\
 https://nytimes.com/athletic/6380353/2025/05/25/arsenal-champions-league-stina-blackstenius/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/25/us/politics/trump-money-plane-crypto.html
 **5 Years After George Floyd’s Murder, the Backlash Takes Hold**\
 `The Black Lives Matter movement, kicked into high gear after Mr. Floyd’s murder on May 25, 2020, has given way to the politics of “white grievance” championed by President Trump.`\
 https://nytimes.com/2025/05/25/us/politics/george-floyd-trump.html
-
-**A ‘Mission: Impossible’ Fan Favorite Returns 3 Decades Later. Even He’s Surprised.**\
-`Rolf Saxon thought he was being pranked when the director of the new film contacted him for a role that actually expanded during production.`\
-https://nytimes.com/2025/05/25/movies/mission-impossible-the-final-reckoning-william-donloe-rolf-saxon.html
-
-**How Donald Trump Has Remade America’s Political Landscape**\
-`The steady march to the right across a vast number of counties reveals the extent of the nation's transformation in the Trump era, and the seriousness of the Democrats' problems.`\
-https://nytimes.com/interactive/2025/05/25/us/politics/trump-politics-democrats.html
 

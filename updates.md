@@ -1,3 +1,11 @@
+**Russia Bombards Ukraine With One of Largest Air Assaults of the War**\
+`The attack involved nearly 370 missiles and drones, according to Ukraine’s Air Force. At least 12 people were killed.`\
+https://nytimes.com/2025/05/25/world/europe/russia-ukraine-kyiv.html
+
+**The New York Times International Edition in Print for Monday, May 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/25/todays-new-york-times-international-edition
+
 **Arsenal forward Stina Blackstenius is a subtle striker, who 'turns up in big moments'**\
 `Blackstenius has made a habit of scoring big-time goals, but she's still getting used to the spotlight`\
 https://nytimes.com/athletic/6380353/2025/05/25/arsenal-champions-league-stina-blackstenius/
