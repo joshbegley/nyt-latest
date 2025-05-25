@@ -1,3 +1,7 @@
+**Liverpool's perfect Anfield day, 35 years in the making**\
+`Finally, Liverpool supporters had the chance to celebrate their team winning a league title in person again - and they did it in style`\
+https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
+
 **Monday Briefing: Russia Bombards Ukraine**\
 `Plus, Mexico City’s artistic eras.`\
 https://nytimes.com/2025/05/25/briefing/russia-attacks-ukraine-venezuela-guyana-trump-vietnam.html

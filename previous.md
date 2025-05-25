@@ -7,7 +7,7 @@ https://nytimes.com/2025/05/25/briefing/russia-attacks-ukraine-venezuela-guyana-
 https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-league-serie-a/
 
 **Liverpool's perfect Anfield day, 35 years in the making**\
-`Finally, the club's supporters had the chance to celebrate their team winning a top-flight title in person - and they did it in style`\
+`Finally, Liverpool supporters had the chance to celebrate their team winning a league title in person again - and they did it in style`\
 https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
 
 **Brad Marchand's mid-game DQ Blizzard, Matthew Tkachuk's revenge and more Hurricanes-Panthers notes**\
