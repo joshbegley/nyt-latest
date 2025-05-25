@@ -1,3 +1,7 @@
+**Gotham FC wins inaugural Concacaf Champions Cup, 1-0 over Tigres UANL**\
+`Gotham striker Esther González scored in the in the 82nd minute to secure Gotham the 1-0 win.`\
+https://nytimes.com/athletic/6380571/2025/05/25/gotham-fc-tigres-uanl-concacaf-cup/
+
 **Gotham FC wins inaugural Concacaf Champions Cup with win over Tigres UANL**\
 `Gotham striker Esther González scored in the in the 82nd minute to secure Gotham the 1-0 win.`\
 https://nytimes.com/athletic/6380571/2025/05/25/gotham-fc-tigres-uanl-concacaf-cup/
