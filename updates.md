@@ -1,3 +1,11 @@
+**Man Utd 2 Aston Villa 0 - Rogers goal controversially disallowed as Emery's side miss out on Champions League**\
+`Analysis of Manchester United v Aston Villa on the final day of the Premier League`\
+https://nytimes.com/athletic/6378445/2025/05/25/man-utd-villa-rogers-goal-disallowed/
+
+**Southampton 1 Arsenal 2 - Tierney signs off in style but more set-piece struggles**\
+`Kieran Tierney said a fond farewell to Arsenal as Martin Odegaard grabbed victory. James McNicholas and Dan Sheldon analyse the key points`\
+https://nytimes.com/athletic/6372810/2025/05/25/southampton-1-arsenal-2-kieran-tierney-david-raya-martin-odegaard/
+
 **The Briefing: Newcastle 0 Everton 1 - Eddie Howe's side lose but still seal return to the Champions League**\
 `Chris Waugh analyses the main talking points as Newcastle qualify for the Champions League - but only just`\
 https://nytimes.com/athletic/6378442/2025/05/25/newcastle-everton-analysis/

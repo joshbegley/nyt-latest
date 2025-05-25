@@ -1,3 +1,7 @@
+**The Briefing: Fulham 0 Man City 2 - Marmoush’s versatility, another Guardiola full-back tweak, De Bruyne’s final goodbye**\
+`We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
+https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
+
 **Man Utd 2 Aston Villa 0 - Rogers goal controversially disallowed as Emery's side miss out on Champions League**\
 `Analysis of Manchester United v Aston Villa on the final day of the Premier League`\
 https://nytimes.com/athletic/6378445/2025/05/25/man-utd-villa-rogers-goal-disallowed/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6372810/2025/05/25/southampton-1-arsenal-2-kieran-t
 `They were tied on 13 clean sheets going into the final round of the Premier League on Sunday but both conceded during those games.`\
 https://nytimes.com/athletic/6377426/2025/05/25/premier-league-awards-golden-glove-raya-sels/
 
-**Fiscal hawks in the Senate balk at the House’s bill to deliver Trump’s agenda.**\
-`By Catie Edmondson and Minho Kim`\
-https://nytimes.com/live/2025/05/25/us/trump-news/fiscal-hawks-senate-house-bill
+**Fiscal Hawks in Senate Balk at House’s Bill to Deliver Trump’s Agenda**\
+`Senator Ron Johnson of Wisconsin and Senator Rand Paul of Kentucky both indicated that they would seek major changes to the bill that passed the House.`\
+https://nytimes.com/2025/05/25/us/politics/fiscal-hawks-senate-house-bill.html
 
 **For Trump, Civil Rights Protections Should Help White Men**\
 `Administration officials pick and choose which civil rights protections they want to enforce, and for whom.`\
 https://nytimes.com/2025/05/25/us/politics/trump-race-civil-right-white-men.html
-
-**Nino Benvenuti, Olympic Boxer Who Ruled the Ring in Italy, Dies at 87**\
-`A 1960 gold medalist in Rome, he overshadowed a young Muhammad Ali, then known as Cassius Clay. He was celebrated as much for his charisma as his boxing skills.`\
-https://nytimes.com/2025/05/25/sports/nino-benvenuti-dead.html
 
