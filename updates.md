@@ -1,3 +1,11 @@
+**Van Nistelrooy reveals no Leicester future talks, Monga among teens close to new deals**\
+`Jeremy Monga, Jake Evans and Olabade Aluko are all close to signing new Leicester deals.`\
+https://nytimes.com/athletic/6381646/2025/05/25/leicester-manager-van-nistelrooy-contract-monga/
+
+**Rafael Nadal's French Open ceremony brings Big Four back to Roland Garros**\
+`Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
+https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadal-roland-garros-ceremony-tennis-big-four/
+
 **Villa to lodge complaint over referee appointment for Man Utd game**\
 `Villa missed out on a top-five place after losing 2-0 at Old Trafford, having seen a goal controversially disallowed with the score level.`\
 https://nytimes.com/athletic/6381670/2025/05/25/aston-villa-rogers-thomas-bramall/
