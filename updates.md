@@ -1,3 +1,7 @@
+**As Taylor Ward goes, so do the red-hot Los Angeles Angels**\
+`"It’s very satisfying to be in this position right now and doing what I’ve been doing," Ward said.`\
+https://nytimes.com/athletic/6379868/2025/05/25/taylor-ward-red-hot-angels/
+
 **What players, others around NHL are saying about Blackhawks hiring Jeff Blashill as coach**\
 `From Panthers GM Bill Zito to current Blackhawks Tyler Bertuzzi and Joe Veleno, those who have worked with Blashill share their thoughts.`\
 https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-nhl/
