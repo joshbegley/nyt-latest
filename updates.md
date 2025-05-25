@@ -1,3 +1,7 @@
+**Padres top starter Michael King is placed on injured list with shoulder inflammation**\
+`King has a 2.59 ERA in 10 starts this season.`\
+https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list/
+
 **Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
 `Palou, a 28-year-old from Spain, took the lead from ex-Formula One driver Marcus Ericsson with 14 laps remaining.`\
 https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/

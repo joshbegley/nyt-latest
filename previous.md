@@ -1,3 +1,7 @@
+**Padres top starter Michael King is placed on injured list with shoulder inflammation**\
+`King has a 2.59 ERA in 10 starts this season.`\
+https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list/
+
 **Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
 `Palou, a 28-year-old from Spain, took the lead from ex-Formula One driver Marcus Ericsson with 14 laps remaining.`\
 https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381865/2025/05/25/oneil-cruz-home-run-hardest-hit-
 **Inside Manchester United's worst Premier League season: Amorim's emotions, Ratcliffe's ideas and what's next**\
 `An emotional head coach and a co-owner driven to make an impact have delivered a tumultuous season on and off the pitch at Old Trafford`\
 https://nytimes.com/athletic/6379454/2025/05/25/manchester-united-amorim-ratcliffe-season/
-
-**Kyle Larson's 'Double' attempt ends as he crashes out of chaotic Indy 500**\
-`In addition to Larson's accident, Scott McLaughlin, Alexander Rossi and Robert Shwartzman were among those to exit the race early.`\
-https://nytimes.com/athletic/6381891/2025/05/25/indy-500-chaos-kyle-larson-scott-mclaughlin-alexander-rossi/
 

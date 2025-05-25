@@ -1,3 +1,7 @@
+**A Quiet Funeral in Israel for Victim of Washington Shooting**\
+`Yaron Lischinsky’s funeral was held on Sunday in the small town where his family lived.`\
+https://nytimes.com/2025/05/25/world/middleeast/israel-funeral-dc-shooting.html
+
 **Padres top starter Michael King is placed on injured list with shoulder inflammation**\
 `King has a 2.59 ERA in 10 starts this season.`\
 https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-atta
 **Pirates' Oneil Cruz crushes HR, records hardest hit ball in Statcast era**\
 `Cruz sent a home run sailing out of PNC Park against the Milwaukee Brewers on Sunday afternoon.`\
 https://nytimes.com/athletic/6381865/2025/05/25/oneil-cruz-home-run-hardest-hit-statcast/
-
-**Inside Manchester United's worst Premier League season: Amorim's emotions, Ratcliffe's ideas and what's next**\
-`An emotional head coach and a co-owner driven to make an impact have delivered a tumultuous season on and off the pitch at Old Trafford`\
-https://nytimes.com/athletic/6379454/2025/05/25/manchester-united-amorim-ratcliffe-season/
 
