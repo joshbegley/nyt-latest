@@ -1,3 +1,7 @@
+**Why Swayman's World Championship run is the Bruins' most important 2025 development yet**\
+`Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
+https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championship-gold-bruins/
+
 **Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
 `The Dodgers looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
 https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/

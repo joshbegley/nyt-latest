@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
 https://nytimes.com/athletic/6382187/2025/05/25/gary-lineker-bbc-motd-exit/
 
 **Why Swayman's World Championship run is the Bruins' most important 2025 development yet**\
-`Jeremy Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
+`Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
 https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championship-gold-bruins/
 
 **Trump Says He’s ‘Not Happy’ With Putin’s Escalation of Ukraine Attacks**\
