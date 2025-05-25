@@ -1,3 +1,7 @@
+**Tony Bechara, Painter Who Championed Latino Artists, Dies at 83**\
+`He turned away from a potential career in the law or international relations to produce abstract paintings, and he headed El Museo del Barrio.`\
+https://nytimes.com/2025/05/25/obituaries/tony-bechara-painter-who-championed-latino-artists-dies-at-83.html
+
 **Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
 `Spurs have achieved glory and unity. So sacking the manager now might risk it all, hoping the grass is greener with a different manager`\
 https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379028/2025/05/25/guardians-nic-enright-mlb-debut/
 **Esse 'knows why' he was substituted vs. Liverpool, Glasner claims**\
 `The 20-year-old was introduced after 79 minutes at Anfield only to be taken off in the third minute of stoppage time.`\
 https://nytimes.com/athletic/6381866/2025/05/25/crystal-palace-liverpool-romain-esse-sub/
-
-**Monaco’s F1 racing 'fix' missed the mark — and drivers say the real issues got louder**\
-`F1 tried new one-off rules for the 2025 Monaco Grand Prix to try and avoid another dull race here. The early reviews suggest this failed`\
-https://nytimes.com/athletic/6381491/2025/05/25/monaco-gp-driver-reactions-f1/
 
