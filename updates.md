@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Documents Show E.P.A. Wants to Erase Greenhouse Gas Limits on Power Plants**\
+``\
+https://nytimes.com/live/2025/05/25/us/trump-news
+
 **Seeing a Tide of Fascism: Flee or Fight?**\
 `Readers respond to a video about three Yale professors who are leaving for Canada. Also: A West Point book ban; cooperation on the environment.`\
 https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html

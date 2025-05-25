@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Documents Show E.P.A. Wants to Erase Greenhouse Gas Limits on Power Plants**\
+``\
+https://nytimes.com/live/2025/05/25/us/trump-news
+
 **Seeing a Tide of Fascism: Flee or Fight?**\
 `Readers respond to a video about three Yale professors who are leaving for Canada. Also: A West Point book ban; cooperation on the environment.`\
 https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380487/2025/05/25/toronto-blue-jays-pitching-yimi-
 **Kelly says she 'found happiness at Arsenal after being in a dark place'**\
 `Kelly, who started Saturday's Champions League final victory over Barcelona, has said she has re-found her "happiness" at Arsenal.`\
 https://nytimes.com/athletic/6380208/2025/05/25/chloe-kelly-arsenal-champions-league/
-
-**How Jack Nesbitt became a 2025 NHL Draft riser**\
-`Nesbitt's blend of size, skill and physicality could make him a rare profile in the modern game.`\
-https://nytimes.com/athletic/6360485/2025/05/25/nhl-draft-2025-jack-nesbitt/
 
