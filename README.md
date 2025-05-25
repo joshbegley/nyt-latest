@@ -1,3 +1,7 @@
+**American Charged With Trying to Firebomb Embassy Building in Tel Aviv**\
+`Joseph Neumeyer, 28, is also accused of threatening President Trump. He appeared in federal court in Brooklyn on Sunday.`\
+https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing.html
+
 **Tony Bechara, Painter Who Championed Latino Artists, Dies at 83**\
 `He turned away from a potential career in the law or international relations to produce abstract paintings, and he headed El Museo del Barrio.`\
 https://nytimes.com/2025/05/25/obituaries/tony-bechara-painter-who-championed-latino-artists-dies-at-83.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381855/2025/05/25/ange-postecoglou-tottenham-manag
 **Baseball pulled Nic Enright out of the darkness. Now, finally, he's a big-league pitcher**\
 `Nearly two and a half years after getting diagnosed with Hodgkin lymphoma, Enright made his major-league debut for the Guardians.`\
 https://nytimes.com/athletic/6379028/2025/05/25/guardians-nic-enright-mlb-debut/
-
-**Esse 'knows why' he was substituted vs. Liverpool, Glasner claims**\
-`The 20-year-old was introduced after 79 minutes at Anfield only to be taken off in the third minute of stoppage time.`\
-https://nytimes.com/athletic/6381866/2025/05/25/crystal-palace-liverpool-romain-esse-sub/
 
