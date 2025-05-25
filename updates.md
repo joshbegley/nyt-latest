@@ -1,3 +1,7 @@
+**Monday Briefing: Russia Bombards Ukraine**\
+`Plus, Mexico City’s artistic eras.`\
+https://nytimes.com/2025/05/25/briefing/russia-attacks-ukraine-venezuela-guyana-trump-vietnam.html
+
 **Juventus qualify for UCL ahead of Roma, Lazio on final day of Serie A**\
 `Igor Tudor's side secured a nervy 3-2 victory at Venezia, whose relegation was confirmed by the result, to pip Roma into fourth place.`\
 https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-league-serie-a/
