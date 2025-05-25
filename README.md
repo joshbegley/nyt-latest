@@ -1,3 +1,7 @@
+**For Trump, Civil Rights Protections Should Help White Men**\
+`Administration officials pick and choose which civil rights protections they want to enforce, and for whom.`\
+https://nytimes.com/2025/05/25/us/politics/trump-race-civil-right-white-men.html
+
 **Nino Benvenuti, Olympic Boxer Who Ruled the Ring in Italy, Dies at 87**\
 `A 1960 gold medalist in Rome, he overshadowed a young Muhammad Ali, then known as Cassius Clay. He was celebrated as much for his charisma as his boxing skills.`\
 https://nytimes.com/2025/05/25/sports/nino-benvenuti-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/25/us/trump-news
 **Seeing a Tide of Fascism: Flee or Fight?**\
 `Readers respond to a video about three Yale professors who are leaving for Canada. Also: A West Point book ban; cooperation on the environment.`\
 https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html
-
-**Teachers Saved My Life. Why Do We Treat Them So Poorly?**\
-`The Trump administration is trying to unravel one of our greatest national achievements.`\
-https://nytimes.com/2025/05/25/opinion/teachers-education-trump-administration.html
 
