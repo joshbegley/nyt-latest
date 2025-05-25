@@ -1,3 +1,7 @@
+**Gotham FC wins inaugural Concacaf Champions Cup with win over Tigres UANL**\
+`Gotham striker Esther González scored in the in the 82nd minute to secure Gotham the 1-0 win.`\
+https://nytimes.com/athletic/6380571/2025/05/25/gotham-fc-tigres-uanl-concacaf-cup/
+
 **Qatari Push to Dominate Another Sport, Table Tennis, Draws Scrutiny**\
 `A wealthy Qatari businessman’s campaign to lead the sport’s global body is being investigated. One of his critics was detained and interrogated in Doha.`\
 https://nytimes.com/2025/05/25/world/middleeast/qatar-table-tennis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375538/2025/05/25/champions-league-transfer-premie
 **Why are some teams wearing next season's kit already?**\
 `Deciding whether to wear next season's kit on the final weekend can have big implications`\
 https://nytimes.com/athletic/6377444/2025/05/25/premier-league-next-season-kit/
-
-**Inside a Trump Family Project in Vietnam**\
-`As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
-https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-vietnam.html
 
