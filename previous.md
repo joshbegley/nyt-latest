@@ -1,3 +1,7 @@
+**Southampton appoint Still as new manager**\
+`The 32-year-old is set to lead the club’s 2025-26 campaign in the Championship`\
+https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-still/
+
 **Trump Administration Live Updates: Documents Show E.P.A. Wants to Erase Greenhouse Gas Limits on Power Plants**\
 ``\
 https://nytimes.com/live/2025/05/25/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-
 **Blue Jays pitching notes: Alek Manoah's return, losing Yimi García, Jeff Hoffman's command**\
 `Manoah could be an important part of this season's future, while Mason Fluharty may get a chance now for Toronto.`\
 https://nytimes.com/athletic/6380487/2025/05/25/toronto-blue-jays-pitching-yimi-garcia/
-
-**Kelly says she 'found happiness at Arsenal after being in a dark place'**\
-`Kelly, who started Saturday's Champions League final victory over Barcelona, has said she has re-found her "happiness" at Arsenal.`\
-https://nytimes.com/athletic/6380208/2025/05/25/chloe-kelly-arsenal-champions-league/
 

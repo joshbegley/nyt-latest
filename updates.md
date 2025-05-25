@@ -1,3 +1,7 @@
+**Southampton appoint Still as new manager**\
+`The 32-year-old is set to lead the club’s 2025-26 campaign in the Championship`\
+https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-still/
+
 **Trump Administration Live Updates: Documents Show E.P.A. Wants to Erase Greenhouse Gas Limits on Power Plants**\
 ``\
 https://nytimes.com/live/2025/05/25/us/trump-news
