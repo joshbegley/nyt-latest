@@ -1,3 +1,7 @@
+**The Beaches Are Open in New York City. So Are the Lifeguard Chairs.**\
+`Beach season began Saturday with 280 lifeguards, well short of what the city needs, amid a yearslong staffing shortage. But more will come by summer’s peak.`\
+https://nytimes.com/2025/05/24/nyregion/beaches-open-lifeguard-shortage.html
+
 **Alex Bregman is injured but Rafael Devers will remain at DH. Who will play third for Boston?**\
 `It would seem a natural fit for Devers to move back to third but the Red Sox don't want to mess with what's been working for Devers as a DH.`\
 https://nytimes.com/athletic/6380299/2025/05/24/red-sox-third-base-rafael-devers-alex-bregman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379690/2025/05/24/manchester-united-final-game-rub
 **Manchester United selling Alejandro Garnacho feels inevitable, but is it right?**\
 `Following the Europa League final loss on Wednesday, Ruben Amorim told Alejandro Garnacho to find a new club in a meeting with the squad`\
 https://nytimes.com/athletic/6379643/2025/05/24/manchester-united-alejandro-garnacho-transfer/
-
-**Iranian Movie Shot in Secret Wins Palme d’Or at Cannes Film Festival**\
-`The film, “Un Simple Accident,” was directed by Jafar Panahi, a longtime festival favorite. The award capped a contest that was widely seen as the strongest in years.`\
-https://nytimes.com/2025/05/24/movies/cannes-palme-d-or-it-was-just-an-accident.html
 
