@@ -1,3 +1,11 @@
+**How does Champions League status impact Premier League transfer plans?**\
+`Manchester City, Newcastle, Chelsea, Aston Villa and Nottingham Forest are all competing for the three remaining English slots for next year`\
+https://nytimes.com/athletic/6375538/2025/05/25/champions-league-transfer-premier-league-plans/
+
+**Why are some teams wearing next season's kit already?**\
+`Deciding whether to wear next season's kit on the final weekend can have big implications`\
+https://nytimes.com/athletic/6377444/2025/05/25/premier-league-next-season-kit/
+
 **Inside a Trump Family Project in Vietnam**\
 `As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
 https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-vietnam.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380305/2025/05/24/minnesota-frost-ottawa-charge-pw
 **After homering (again), Ronald Acuña Jr. feels good about his knee and Braves' chances**\
 `The Braves have another player clicking now, and it's an extremely talented one. Acuña is back. Man, is he back.`\
 https://nytimes.com/athletic/6380356/2025/05/24/ronald-acuna-jr-homer-second-game-knee/
-
-**Switching lockers and shaving mustaches, Christian Walker is trying anything to get spark**\
-`Walker is doing everything possible, “within reason,” to get his game on track and calm frustrated fans.`\
-https://nytimes.com/athletic/6380355/2025/05/24/astros-christian-walker-mustache-locker/
-
-**Panthers' Eetu Luostarinen ejected for hit driving Hurricanes' Jackson Blake headfirst into boards**\
-`Blake, a 21-year-old rookie, left the game after the hit with 3:01 remaining in the first period. He returned to start the second period.`\
-https://nytimes.com/athletic/6380382/2025/05/24/eetu-luostarinen-jackson-blake-hit-nhl-playoffs/
 

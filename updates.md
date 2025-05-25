@@ -1,3 +1,11 @@
+**How does Champions League status impact Premier League transfer plans?**\
+`Manchester City, Newcastle, Chelsea, Aston Villa and Nottingham Forest are all competing for the three remaining English slots for next year`\
+https://nytimes.com/athletic/6375538/2025/05/25/champions-league-transfer-premier-league-plans/
+
+**Why are some teams wearing next season's kit already?**\
+`Deciding whether to wear next season's kit on the final weekend can have big implications`\
+https://nytimes.com/athletic/6377444/2025/05/25/premier-league-next-season-kit/
+
 **Inside a Trump Family Project in Vietnam**\
 `As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
 https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-vietnam.html
