@@ -1,3 +1,7 @@
+**Nino Benvenuti, Olympic Boxer Who Ruled the Ring in Italy, Dies at 87**\
+`A 1960 gold medalist in Rome, he overshadowed a young Muhammad Ali, then known as Cassius Clay. He was celebrated as much for his charisma as his boxing skills.`\
+https://nytimes.com/2025/05/25/sports/nino-benvenuti-dead.html
+
 **It’s Time for Outdoor Potatoes**\
 `In the form of this lemon potato salad with mint, a five-star Melissa Clark classic.`\
 https://nytimes.com/2025/05/25/dining/a-healthy-lemon-potato-salad-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/opinion/fascism-flee-fight.html
 **Teachers Saved My Life. Why Do We Treat Them So Poorly?**\
 `The Trump administration is trying to unravel one of our greatest national achievements.`\
 https://nytimes.com/2025/05/25/opinion/teachers-education-trump-administration.html
-
-**The Pulse: A new tennis world begins now**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6380274/2025/05/25/french-open-favorites-the-pulse/
 

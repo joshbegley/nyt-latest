@@ -1,3 +1,7 @@
+**Nino Benvenuti, Olympic Boxer Who Ruled the Ring in Italy, Dies at 87**\
+`A 1960 gold medalist in Rome, he overshadowed a young Muhammad Ali, then known as Cassius Clay. He was celebrated as much for his charisma as his boxing skills.`\
+https://nytimes.com/2025/05/25/sports/nino-benvenuti-dead.html
+
 **Monaco GP: Lando Norris wins hectic race; Mercedes frustrated by Williams tactics**\
 `The mandatory two-stop strategy meant drivers had to push the limits up front and back up the field behind — creating some intrigue`\
 https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
