@@ -1,3 +1,7 @@
+**The Timberwolves needed more than a win; they needed a win just like this**\
+`What Minnesota did to Oklahoma City in Game 3 Saturday night is what needed to happen for this series to even begin to feel different.`\
+https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
+
 **As Taylor Ward goes, so do the red-hot Los Angeles Angels**\
 `"It’s very satisfying to be in this position right now and doing what I’ve been doing," Ward said.`\
 https://nytimes.com/athletic/6379868/2025/05/25/taylor-ward-red-hot-angels/
