@@ -1,3 +1,7 @@
+**The Timberwolves needed more than a win; they needed a win just like this**\
+`What Minnesota did to Oklahoma City in Game 3 on Saturday night is what needed to happen for this series to even begin to feel different.`\
+https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
+
 **Blue Jays pitching notes: Alek Manoah's return, losing Yimi García, Jeff Hoffman's command**\
 `Manoah could be an important part of this season's future, while Mason Fluharty may get a chance now for Toronto.`\
 https://nytimes.com/athletic/6380487/2025/05/25/toronto-blue-jays-pitching-yimi-garcia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379734/2025/05/25/indianapolis-500-pacers-knicks-n
 **Mandel: Big Ten, SEC plans for Playoff would damage college football**\
 `Possible College Football Playoff expansion to 16 teams in 2026 is far more complicated than it needs to be. Blame the Big Ten and SEC.`\
 https://nytimes.com/athletic/6379486/2025/05/25/college-football-playoff-format-big-ten-sec/
-
-**Panthers stay true to their hard, mean and nasty identity with their eyes on the prize**\
-`The Panthers, who are on the brink of making the Stanley Cup Final, look to have pushed the Hurricanes to a breaking point.`\
-https://nytimes.com/athletic/6380733/2025/05/25/panthers-hurricanes-nhl-playoffs-game-3/
 

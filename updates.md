@@ -1,3 +1,15 @@
+**Blue Jays pitching notes: Alek Manoah's return, losing Yimi García, Jeff Hoffman's command**\
+`Manoah could be an important part of this season's future, while Mason Fluharty may get a chance now for Toronto.`\
+https://nytimes.com/athletic/6380487/2025/05/25/toronto-blue-jays-pitching-yimi-garcia/
+
+**Kelly says she 'found happiness at Arsenal after being in a dark place'**\
+`Kelly, who started Saturday's Champions League final victory over Barcelona, has said she has re-found her "happiness" at Arsenal.`\
+https://nytimes.com/athletic/6380208/2025/05/25/chloe-kelly-arsenal-champions-league/
+
+**How Jack Nesbitt became a 2025 NHL Draft riser**\
+`Nesbitt's blend of size, skill and physicality could make him a rare profile in the modern game.`\
+https://nytimes.com/athletic/6360485/2025/05/25/nhl-draft-2025-jack-nesbitt/
+
 **Xabi Alonso and Real Madrid: Learning from Mourinho, two shock exits and a timely return**\
 `Alonso's relationship with the club he played for from 2009-14 and then was a youth-academy coach has not always been straightforward`\
 https://nytimes.com/athletic/6369513/2025/05/25/xabi-alonso-real-madrid-relationship/
