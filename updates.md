@@ -1,3 +1,7 @@
+**Juan Soto's clutch hit and a 'big boy' performance power Mets past Dodgers**\
+`The Mets went 4-for-11 with runners in scoring position, including two hits from Brett Baty.`\
+https://nytimes.com/athletic/6380596/2025/05/25/mets-juan-soto-david-peterson/
+
 **Calculating what every Premier League place is worth and what each team could earn**\
 `Exact figures won’t be known until the Premier League release them but there’s enough information available to take an educated guess`\
 https://nytimes.com/athletic/6376361/2025/05/25/calculating-what-every-premier-league-place-is-worth-and-what-each-team-earned-this-season/

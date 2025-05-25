@@ -1,3 +1,7 @@
+**Juan Soto's clutch hit and a 'big boy' performance power Mets past Dodgers**\
+`The Mets went 4-for-11 with runners in scoring position, including two hits from Brett Baty.`\
+https://nytimes.com/athletic/6380596/2025/05/25/mets-juan-soto-david-peterson/
+
 **Calculating what every Premier League place is worth and what each team could earn**\
 `Exact figures won’t be known until the Premier League release them but there’s enough information available to take an educated guess`\
 https://nytimes.com/athletic/6376361/2025/05/25/calculating-what-every-premier-league-place-is-worth-and-what-each-team-earned-this-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380514/2025/05/25/connections-sports-edition-hints
 **Anthony Edwards, Wolves emphatically join series: Takeaways from Game 3 blowout of Thunder**\
 `Game 3 was always going to bring a level of desperation from a Wolves team looking to avoid a 3-0 deficit. Here's what we learned.`\
 https://nytimes.com/athletic/6380350/2025/05/24/nba-playoffs-takeaways-timberwolves-thunder/
-
-**Panthers on brink of 3rd straight Stanley Cup Final appearance after another rout of Hurricanes: Takeaways**\
-`A game that was tied 1-1 after two periods ended up lopsided as the Canes dropped their 15th straight conference-final game.`\
-https://nytimes.com/athletic/6380482/2025/05/24/panthers-hurricanes-nhl-playoffs-2025-game-3-takeaways/
 
