@@ -1,6 +1,18 @@
+**Madrid confirm Alonso as new head coach**\
+`The former Spain international replaces Carlo Ancelotti, who has departed to become head coach of the Brazil national team.`\
+https://nytimes.com/athletic/6064080/2025/05/25/real-madrid-xabi-alonso-confirmed/
+
+**Miguel Amaya injured in Cubs loss, a blow to one of MLB's best catching duos**\
+`For batters with at least 80 plate appearances, Carson Kelly leads catchers with a 188 wRC+. Amaya is 10th at 126.`\
+https://nytimes.com/athletic/6378723/2025/05/25/chicago-cubs-catcher-duo-analysis/
+
 **Marcelo Mayer's chaotic MLB debut: Lost keys, a long car ride and a standing ovation**\
 `Mayer learned he was heading to Boston for Game 2 of the doubleheader, but there was one problem: He couldn't find his keys.`\
 https://nytimes.com/athletic/6380419/2025/05/25/red-sox-marcelo-mayer-mlb-debut/
+
+**Indianapolis 500 by day, Pacers-Knicks by night: A city set for 2 Sunday sports spectacles**\
+`Rest will be at a minimum for die-hard fans of the Pacers and IndyCar — especially those in Indianapolis brave enough to attend both events.`\
+https://nytimes.com/athletic/6379734/2025/05/25/indianapolis-500-pacers-knicks-nba-indycar-sunday/
 
 **Mandel: Big Ten, SEC plans for Playoff would damage college football**\
 `Possible College Football Playoff expansion to 16 teams in 2026 is far more complicated than it needs to be. Blame the Big Ten and SEC.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/25/opinion/supreme-court-trump-power.html
 **Knicks vs. Hicks: Let Us Praise Old-Fashioned Contempt**\
 `Society’s antagonisms can find a graceful outlet on the hardwood.`\
 https://nytimes.com/2025/05/25/opinion/indiana-pacers-new-york-knicks-playoff.html
-
-**Bruce Springsteen Will Never Surrender to Donald Trump**\
-`Trump’s anger at Springsteen is driven by their two opposing visions of the American dream.`\
-https://nytimes.com/2025/05/25/opinion/bruce-springsteen-trump-conflict.html
-
-**Wordle Review No. 1,437**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 26, 2025.`\
-https://nytimes.com/2025/05/25/crosswords/wordle-review-1437.html
-
-**The Church Could Use an American Pope**\
-`The experience of Catholics in the United States has now become the default condition of the faith worldwide.`\
-https://nytimes.com/2025/05/25/opinion/pope-leo-american-catholic.html
 
