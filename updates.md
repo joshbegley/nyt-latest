@@ -1,4 +1,8 @@
 **Topsy-turvy tennis comebacks, speedy second serves and wild card wins: French Open day 1 takeaways**\
+`The first day at Roland Garros brought a remarkable recovery, serve inspiration and proof that wild cards don't have to be a lottery.`\
+https://nytimes.com/athletic/6381245/2025/05/25/french-open-recap-results-analysis-day-1/
+
+**Topsy-turvy tennis comebacks, speedy second serves and wild card wins: French Open day 1 takeaways**\
 `The first day of the French Open at Roland Garros brought a topsy-turvy injury comeback, two wild card wins and a very fast second serve.`\
 https://nytimes.com/athletic/6381245/2025/05/25/french-open-recap-results-analysis-day-1/
 
