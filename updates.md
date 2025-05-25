@@ -1,3 +1,15 @@
+**Monaco’s F1 racing 'fix' missed the mark — and drivers say the real issues got louder**\
+`F1 tried new one-off rules for the 2025 Monaco Grand Prix to try and avoid another dull race here. The early reviews suggest this failed`\
+https://nytimes.com/athletic/6381491/2025/05/25/monaco-gp-driver-reactions-f1/
+
+**The Athletic’s 2024-25 Alternative Premier League Awards**\
+`We delve deep into the numbers to give kudos to teams and players who may not have been recognised by the mainstream - but deserve to be`\
+https://nytimes.com/athletic/6377291/2025/05/25/alternative-premier-league-awards-athletic/
+
+**Hurzeler says late Milner substitution was a 'thank-you'**\
+`Milner, 39, was making his first appearance for Brighton since August. The Englishman and the club remain in contract talks.`\
+https://nytimes.com/athletic/6381858/2025/05/25/brighton-hurzeler-james-milner/
+
 **How dramatic final day showdown for Champions League qualification unfolded**\
 `A five-team battle for three spots in Europe's premier competition was full of twists, turns and controversy `\
 https://nytimes.com/athletic/6381151/2025/05/25/how-race-for-the-champions-league-unfolded/

@@ -1,3 +1,15 @@
+**Monaco’s F1 racing 'fix' missed the mark — and drivers say the real issues got louder**\
+`F1 tried new one-off rules for the 2025 Monaco Grand Prix to try and avoid another dull race here. The early reviews suggest this failed`\
+https://nytimes.com/athletic/6381491/2025/05/25/monaco-gp-driver-reactions-f1/
+
+**The Athletic’s 2024-25 Alternative Premier League Awards**\
+`We delve deep into the numbers to give kudos to teams and players who may not have been recognised by the mainstream - but deserve to be`\
+https://nytimes.com/athletic/6377291/2025/05/25/alternative-premier-league-awards-athletic/
+
+**Hurzeler says late Milner substitution was a 'thank-you'**\
+`Milner, 39, was making his first appearance for Brighton since August. The Englishman and the club remain in contract talks.`\
+https://nytimes.com/athletic/6381858/2025/05/25/brighton-hurzeler-james-milner/
+
 **How dramatic final day showdown for Champions League qualification unfolded**\
 `A five-team battle for three spots in Europe's premier competition was full of twists, turns and controversy `\
 https://nytimes.com/athletic/6381151/2025/05/25/how-race-for-the-champions-league-unfolded/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6381670/2025/05/25/aston-villa-rogers-thomas-bramal
 **Rafael Nadal's French Open ceremony brings Federer, Djokovic and Murray back to Roland Garros**\
 `Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
 https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadal-roland-garros-ceremony-tennis-big-four/
-
-**Amorim apologises to Man Utd fans, insists 'good days are coming'**\
-`Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\
-https://nytimes.com/athletic/6381579/2025/05/25/ruben-amorim-manchester-united-apology-speech/
-
-**Man United confirm Lindelof, Eriksen and Evans exits**\
-`Lindelof is one of United's longest-serving players, having signed from Benfica in 2017 and making 270 appearances for the club.`\
-https://nytimes.com/athletic/6174480/2025/05/25/manchester-united-transfer-lindelof-eriksen-evans/
-
-**‘Queen of Spades’ Review: A Fiery Soprano Breaks Through**\
-`At the Metropolitan Opera’s season premiere of Elijah Moshinsky’s production, it was the women who led, while a strong cast carried the patchwork plot.`\
-https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
 
