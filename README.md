@@ -1,3 +1,7 @@
+**As Taylor Ward goes, so do the red-hot Los Angeles Angels**\
+`"It’s very satisfying to be in this position right now and doing what I’ve been doing," Ward said.`\
+https://nytimes.com/athletic/6379868/2025/05/25/taylor-ward-red-hot-angels/
+
 **What players, others around NHL are saying about Blackhawks hiring Jeff Blashill as coach**\
 `From Panthers GM Bill Zito to current Blackhawks Tyler Bertuzzi and Joe Veleno, those who have worked with Blashill share their thoughts.`\
 https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6064080/2025/05/25/real-madrid-xabi-alonso-confirme
 **Miguel Amaya injured in Cubs loss, a blow to one of MLB's best catching duos**\
 `For batters with at least 80 plate appearances, Carson Kelly leads catchers with a 188 wRC+. Amaya is 10th at 126.`\
 https://nytimes.com/athletic/6378723/2025/05/25/chicago-cubs-catcher-duo-analysis/
-
-**Marcelo Mayer's chaotic MLB debut: Lost keys, a long car ride and a standing ovation**\
-`Mayer learned he was heading to Boston for Game 2 of the doubleheader, but there was one problem: He couldn't find his keys.`\
-https://nytimes.com/athletic/6380419/2025/05/25/red-sox-marcelo-mayer-mlb-debut/
 

@@ -1,3 +1,7 @@
+**What players, others around NHL are saying about Blackhawks hiring Jeff Blashill as coach**\
+`From Panthers GM Bill Zito to current Blackhawks Tyler Bertuzzi and Joe Veleno, those who have worked with Blashill share their thoughts.`\
+https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-nhl/
+
 **A Fringe Movement**\
 `We explain the ideology behind a recent attack.`\
 https://nytimes.com/2025/05/25/briefing/a-fringe-movement.html
