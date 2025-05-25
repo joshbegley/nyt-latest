@@ -1,3 +1,7 @@
+**Inside Manchester United's worst Premier League season: Amorim's emotions, Ratcliffe's ideas and what's next**\
+`An emotional head coach and a co-owner driven to make an impact have delivered a tumultuous season on and off the pitch at Old Trafford`\
+https://nytimes.com/athletic/6379454/2025/05/25/manchester-united-amorim-ratcliffe-season/
+
 **Kyle Larson's double attempt ends as he crashes out of chaotic Indy 500**\
 `In addition to Larson's accident, Scott McLaughlin, Alexander Rossi and Robert Shwartzman were among those to exit the race early.`\
 https://nytimes.com/athletic/6381891/2025/05/25/indy-500-chaos-kyle-larson-scott-mclaughlin-alexander-rossi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381151/2025/05/25/how-race-for-the-champions-leagu
 **Grealish exclusion from Man City's final game 'not personal' - Guardiola**\
 `Following the FA Cup final, Guardiola said the club's hierarchy would hold talks with Grealish's representatives in the summer.`\
 https://nytimes.com/athletic/6381009/2025/05/25/jack-grealish-manchester-city-guardiola/
-
-**Maresca on Chelsea critics after securing Champions League spot: 'F off to all of them'**\
-`The Champions League winners in 2020-21 return to the competition next season for the first time in three years.`\
-https://nytimes.com/athletic/6381706/2025/05/25/chelsea-champions-league-enzo-maresca-critics/
 
