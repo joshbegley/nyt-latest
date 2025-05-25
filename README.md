@@ -1,3 +1,7 @@
+**Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
+`Palou, a 28-year-old from Spain, took the lead from ex-Formula One driver Marcus Ericsson with 14 laps remaining.`\
+https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
+
 **Red Sox roster takeaways: Team mixing and matching with rookie-heavy lineup**\
 `The Red Sox are down two of their mainstay veteran infielders and a third is struggling badly, so rookies are taking centerstage. `\
 https://nytimes.com/athletic/6381480/2025/05/25/red-sox-takeaways-roster-adjustments-marcelo-mayer/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing
 https://nytimes.com/2025/05/25/obituaries/tony-bechara-painter-who-championed-latino-artists-dies-at-83.html
 
 **Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
-`Spurs have achieved glory and unity. So sacking the manager now might risk it all, hoping the grass is greener with a different manager`\
+`Spurs have achieved glory and unity. So sacking Postecoglou now might risk it all, hoping the grass is greener with a different manager`\
 https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
 
 **Florida Man Sentenced to 30 Days for Shooting and Poisoning Dolphins**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379454/2025/05/25/manchester-united-amorim-ratclif
 **Kyle Larson's 'Double' attempt ends as he crashes out of chaotic Indy 500**\
 `In addition to Larson's accident, Scott McLaughlin, Alexander Rossi and Robert Shwartzman were among those to exit the race early.`\
 https://nytimes.com/athletic/6381891/2025/05/25/indy-500-chaos-kyle-larson-scott-mclaughlin-alexander-rossi/
-
-**Postecoglou says he 'shouldn’t be sat here talking about my future' at Spurs**\
-`Spurs’ 4-1 loss to Brighton on Sunday was their 22nd defeat in the Premier League this season and meant that they finished 17th.`\
-https://nytimes.com/athletic/6381855/2025/05/25/ange-postecoglou-tottenham-manager/
 
