@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadals-french-open-ceremo
 `Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\
 https://nytimes.com/athletic/6381579/2025/05/25/ruben-amorim-manchester-united-apology-speech/
 
+**Man United confirm Lindelof, Eriksen and Evans exits**\
+`Lindelof is one of United's longest-serving players, having signed from Benfica in 2017 and making 270 appearances for the club.`\
+https://nytimes.com/athletic/6174480/2025/05/25/manchester-united-transfer-lindelof-eriksen-evans/
+
 **‘Queen of Spades’ Review: A Fiery Soprano Breaks Through**\
 `At the Metropolitan Opera’s season premiere of Elijah Moshinsky’s production, it was the women who led, while a strong cast carried the patchwork plot.`\
 https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381293/2025/05/25/champions-league-qualification-d
 **The Briefing: Tottenham 1 Brighton 4 - European celebrations but another defeat, so what now for Postecoglou?**\
 `Spurs suffered their 10th home defeat of a miserable Premier League season, but still found time to celebrate their Europa League success`\
 https://nytimes.com/athletic/6378443/2025/05/25/tottenham-brighton-postecoglou-briefing/
-
-**The Briefing: Forest 0 Chelsea 1 - Colwill goal seals CL spot as Nuno settles for seventh**\
-`Our writers break down the action as European places were decided at the City Ground.`\
-https://nytimes.com/athletic/6372811/2025/05/25/nottingham-forest-chelsea-european-qualification/
 
