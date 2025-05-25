@@ -1,3 +1,7 @@
+**Neville tells Amorim to stop speculating on Man Utd future**\
+`Amorim suggested he would leave without holding talks over compensation if the Old Trafford hierarchy believed a change was for the best.`\
+https://nytimes.com/athletic/6379916/2025/05/25/ruben-amorim-manchester-united-manager-neville/
+
 **​North Korea Makes Arrests Over Failed Ship Launch That Angered Kim Jong-un**\
 `Three shipyard officials were arrested, including the chief engineer, state media said. The North Korean leader was watching as the launch of a navy destroyer went wrong.`\
 https://nytimes.com/2025/05/25/world/asia/north-korea-ship-launch-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/crosswords/spelling-bee-forum.html
 **Tears from Perez and talks with Alonso: How Ancelotti said farewell to Real Madrid**\
 `Saturday was an emotional day at the Bernabeu as the reign of the club's most successful manager came to an end`\
 https://nytimes.com/athletic/6380094/2025/05/25/carlo-ancelotti-real-madrid-farewell/
-
-**Spurs, Newcastle, Palace trophies are motivation for Brighton - Hurzeler**\
-`Brighton haven't won a major trophy in their 124-year history.`\
-https://nytimes.com/athletic/6377587/2025/05/25/tottenham-newcastle-palace-trophy-brighton-hurzeler/
 

@@ -1,3 +1,7 @@
+**Neville tells Amorim to stop speculating on Man Utd future**\
+`Amorim suggested he would leave without holding talks over compensation if the Old Trafford hierarchy believed a change was for the best.`\
+https://nytimes.com/athletic/6379916/2025/05/25/ruben-amorim-manchester-united-manager-neville/
+
 **​North Korea Makes Arrests Over Failed Ship Launch That Angered Kim Jong-un**\
 `Three shipyard officials were arrested, including the chief engineer, state media said. The North Korean leader was watching as the launch of a navy destroyer went wrong.`\
 https://nytimes.com/2025/05/25/world/asia/north-korea-ship-launch-arrests.html
