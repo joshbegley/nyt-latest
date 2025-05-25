@@ -1,3 +1,7 @@
+**‘Lilo & Stitch’ and Tom Cruise Add to a Box Office Boomlet**\
+`Moviegoing in the United States and Canada has rebounded over the last two months. Theater owners credit a wider variety of releases.`\
+https://nytimes.com/2025/05/25/business/media/lilo-stitch-mission-impossible-sinners-box-office.html
+
 **Van Nistelrooy reveals no Leicester future talks, Monga among teens close to new deals**\
 `Jeremy Monga, Jake Evans and Olabade Aluko are all close to signing new Leicester deals.`\
 https://nytimes.com/athletic/6381646/2025/05/25/leicester-manager-van-nistelrooy-contract-monga/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6381646/2025/05/25/leicester-manager-van-nistelrooy
 `Villa missed out on a top-five place after losing 2-0 at Old Trafford, having seen a goal controversially disallowed with the score level.`\
 https://nytimes.com/athletic/6381670/2025/05/25/aston-villa-rogers-thomas-bramall/
 
-**Rafael Nadal's French Open ceremony brings Big Four back to Roland Garros**\
+**Rafael Nadal's French Open ceremony brings Federer, Djokovic and Murray back to Roland Garros**\
 `Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
 https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadal-roland-garros-ceremony-tennis-big-four/
 
@@ -26,15 +30,11 @@ https://nytimes.com/2025/05/25/arts/music/queen-of-spades-review.html
 `We analyse the key talking points from Craven Cottage as Man City confirm Champions League qualification following victory over Fulham`\
 https://nytimes.com/athletic/6372826/2025/05/25/manchester-city-marmoush-premier-league-de-bruyne/
 
-**Man Utd 2 Aston Villa 0 - Rogers goal controversially disallowed as Emery's side miss out on Champions League**\
+**Explaining Rogers' controversially disallowed goal as Aston Villa miss out on Champions League**\
 `Analysis of Manchester United v Aston Villa on the final day of the Premier League`\
 https://nytimes.com/athletic/6378445/2025/05/25/man-utd-villa-rogers-goal-disallowed/
 
 **The Briefing: Newcastle 0 Everton 1 - Eddie Howe's side lose but still seal return to the Champions League**\
 `Chris Waugh analyses the main talking points as Newcastle qualify for the Champions League - but only just`\
 https://nytimes.com/athletic/6378442/2025/05/25/newcastle-everton-analysis/
-
-**Chelsea, Newcastle qualify for Champions League; Aston Villa miss out**\
-`The final European qualification spots were decided on the last day of the Premier League season.`\
-https://nytimes.com/athletic/6381293/2025/05/25/champions-league-qualification-dates-draw-when/
 
