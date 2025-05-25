@@ -1,3 +1,11 @@
+**Arsenal forward Stina Blackstenius is a subtle striker, who 'turns up in big moments'**\
+`Blackstenius has made a habit of scoring big-time goals, but she's still getting used to the spotlight`\
+https://nytimes.com/athletic/6380353/2025/05/25/arsenal-champions-league-stina-blackstenius/
+
+**Monaco GP's exclusive trophy trunk is now standard in F1… and League of Legends**\
+`Since the beginning of 2025, the winning trophy for each Formula One event has been displayed on the grid ahead of the race start`\
+https://nytimes.com/athletic/6379953/2025/05/25/why-monaco-gps-exclusive-trophy-trunk-is-now-standard-in-f1-and-league-of-legends/
+
 **Everyone knew Anthony Edwards had to be better. He knew it, too**\
 `Edwards was well aware that Minnesota's only way out of a 0-2 hole was for him to lead the way out. He emphatically did.`\
 https://nytimes.com/athletic/6380798/2025/05/25/timberwolves-thunder-game-3-anthony-edwards/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/25/movies/mission-impossible-the-final-reckoning-wil
 **How Donald Trump Has Remade America’s Political Landscape**\
 `The steady march to the right across a vast number of counties reveals the extent of the nation's transformation in the Trump era, and the seriousness of the Democrats' problems.`\
 https://nytimes.com/interactive/2025/05/25/us/politics/trump-politics-democrats.html
-
-**Some Sneaky Fees Can No Longer Hide. But Watch Out for Others.**\
-`Resort fees, cleaning fees, service fees: Those charges now must be disclosed upfront. But the fight against “junk fees” is far from over.`\
-https://nytimes.com/2025/05/25/technology/personaltech/hotel-ticket-fees-changes.html
-
-**Is There a Good Way for Religious Garments to Be Discarded?**\
-`Celestial Recycling is helping answer that very question for members of the Church of Jesus Christ of Latter-day Saints.`\
-https://nytimes.com/2025/05/25/style/religious-garments-disposal-mormons.html
 
