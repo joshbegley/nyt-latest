@@ -1,3 +1,11 @@
+**Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
+`Spurs have achieved glory and unity. So sacking the manager now might risk it all, hoping the grass is greener with a different manager`\
+https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
+
+**Florida Man Sentenced to 30 Days for Shooting and Poisoning Dolphins**\
+`A charter boat captain used pesticide-laced bait and a shotgun to target dolphins interfering with his clients’ fishing lines, prosecutors said.`\
+https://nytimes.com/2025/05/25/us/dolphin-shooting-florida-sentencing.html
+
 **Russian Bombardment Kills at Least a Dozen People in Ukraine**\
 `An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
 https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6381866/2025/05/25/crystal-palace-liverpool-romain-
 **Monaco’s F1 racing 'fix' missed the mark — and drivers say the real issues got louder**\
 `F1 tried new one-off rules for the 2025 Monaco Grand Prix to try and avoid another dull race here. The early reviews suggest this failed`\
 https://nytimes.com/athletic/6381491/2025/05/25/monaco-gp-driver-reactions-f1/
-
-**The Athletic’s 2024-25 Alternative Premier League Awards**\
-`We delve deep into the numbers to give kudos to teams and players who may not have been recognised by the mainstream - but deserve to be`\
-https://nytimes.com/athletic/6377291/2025/05/25/alternative-premier-league-awards-athletic/
-
-**Hurzeler says late Milner substitution was a 'thank-you'**\
-`Milner, 39, was making his first appearance for Brighton since August. The Englishman and the club remain in contract talks.`\
-https://nytimes.com/athletic/6381858/2025/05/25/brighton-hurzeler-james-milner/
 

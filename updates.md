@@ -1,3 +1,11 @@
+**Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
+`Spurs have achieved glory and unity. So sacking the manager now might risk it all, hoping the grass is greener with a different manager`\
+https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
+
+**Florida Man Sentenced to 30 Days for Shooting and Poisoning Dolphins**\
+`A charter boat captain used pesticide-laced bait and a shotgun to target dolphins interfering with his clients’ fishing lines, prosecutors said.`\
+https://nytimes.com/2025/05/25/us/dolphin-shooting-florida-sentencing.html
+
 **Russian Bombardment Kills at Least a Dozen People in Ukraine**\
 `An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
 https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
