@@ -1,3 +1,7 @@
+**U.S. wins first World hockey title since 1933 as OT goal downs Switzerland**\
+`Denmark's upset of Canada in the quarterfinals helped clear the way for a deep U.S. team.`\
+https://nytimes.com/athletic/6382063/2025/05/25/usa-switzerland-iihf-world-championship-final-score/
+
 **Tigers' Tarik Skubal keeps staking his claim as the best pitcher in baseball **\
 `Skubal threw the first shoutout of his career Sunday, striking out 13 batters and going nine innings in only 94 pitches. `\
 https://nytimes.com/athletic/6382052/2025/05/25/tigers-tarik-skubal-best-pitcher-in-baseball/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-le
 `Finally, Liverpool supporters had the chance to celebrate their team winning a league title in person again - and they did it in style`\
 https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
 
-**Brad Marchand's mid-game DQ Blizzard, Matthew Tkachuk's revenge and more Hurricanes-Panthers notes**\
+**Brad Marchand's mid-game DQ Blizzard, Matthew Tkachuk's revenge, more Hurricanes-Panthers notes**\
 `Is Dairy Queen fueling the Panthers' playoff run? With the series 3-0, coach Paul Maurice addressed the big question Sunday.`\
 https://nytimes.com/athletic/6381333/2025/05/25/brad-marchand-matthew-tkachuk-panthers-hurricanes-nhl-playoffs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-pal
 **Red Sox roster takeaways: Team mixing and matching with rookie-heavy lineup**\
 `The Red Sox are down two of their mainstay veteran infielders and a third is struggling badly, so rookies are taking centerstage. `\
 https://nytimes.com/athletic/6381480/2025/05/25/red-sox-takeaways-roster-adjustments-marcelo-mayer/
-
-**American Charged With Trying to Firebomb Embassy Building in Tel Aviv**\
-`Joseph Neumeyer, 28, is also accused of threatening President Trump. He appeared in federal court in Brooklyn on Sunday.`\
-https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing.html
 

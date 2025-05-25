@@ -2,7 +2,7 @@
 `Denmark's upset of Canada in the quarterfinals helped clear the way for a deep U.S. team.`\
 https://nytimes.com/athletic/6382063/2025/05/25/usa-switzerland-iihf-world-championship-final-score/
 
-**Tigers' Tarik Skubal keeps staking his claim as the best pitcher in baseball **\
+**Tigers' Tarik Skubal keeps staking his claim as MLB's best pitcher**\
 `Skubal threw the first shoutout of his career Sunday, striking out 13 batters and going nine innings in only 94 pitches. `\
 https://nytimes.com/athletic/6382052/2025/05/25/tigers-tarik-skubal-best-pitcher-in-baseball/
 
