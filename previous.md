@@ -1,3 +1,7 @@
+**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champ Liberty**\
+`Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
+https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
+
 **Arsenal spent years building their Women's Champions League upset over Barcelona**\
 `Eighteen years after becoming the first English side to win the Champions League, Arsenal are back at the pinnacle of European football`\
 https://nytimes.com/athletic/6379350/2025/05/24/inside-arsenal-second-womens-champions-league-trophy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380084/2025/05/24/caitlin-clark-fever-liberty-sabr
 **New Gaza Aid Plan, Bypassing U.N. and Billed as Neutral, Originated in Israel**\
 `Foreign contractors are set to carry out a contentious new food aid system in Gaza, displacing experienced aid agencies like the United Nations. It was conceived and largely developed by Israelis as a way to undermine Hamas.`\
 https://nytimes.com/2025/05/24/world/middleeast/israel-gaza-aid-plan.html
-
-**Guardians promote pitcher Nic Enright less than 3 years after cancer diagnosis**\
-`The Tigers, coincidentally, are hosting “Strike Out Cancer Weekend” the night Enright is set to debut.`\
-https://nytimes.com/athletic/6379732/2025/05/24/guardians-nic-enright-promotion-cancer-diagnosis/
 

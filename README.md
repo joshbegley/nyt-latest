@@ -1,4 +1,4 @@
-**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champ Liberty**\
+**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champs Liberty**\
 `Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
 https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
 

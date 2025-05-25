@@ -1,3 +1,7 @@
+**Caitlin Clark and Fever learn hard lesson after narrow loss to defending champ Liberty**\
+`Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
+https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
+
 **Arsenal spent years building their Women's Champions League upset over Barcelona**\
 `Eighteen years after becoming the first English side to win the Champions League, Arsenal are back at the pinnacle of European football`\
 https://nytimes.com/athletic/6379350/2025/05/24/inside-arsenal-second-womens-champions-league-trophy/
