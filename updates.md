@@ -1,3 +1,15 @@
+**Lineker emotionally signs off final MOTD ahead of BBC exit**\
+`Lineker, 64, has presented Match of the Day since 1999, but will now leave the corporation altogether following Sunday's show.`\
+https://nytimes.com/athletic/6382187/2025/05/25/gary-lineker-bbc-motd-exit/
+
+**Why Swayman's World Championship run is the Bruins' most important 2025 development yet**\
+`Jeremy Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
+https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championship-gold-bruins/
+
+**Trump Says He’s ‘Not Happy’ With Putin’s Escalation of Ukraine Attacks**\
+`“He’s sending rockets into cities and killing people, and I don’t like it at all,” President Trump said of his Russian counterpart.`\
+https://nytimes.com/2025/05/25/us/politics/trump-putin-ukraine-attacks.html
+
 **Trump Delays E.U. Tariffs Until July 9**\
 `President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
 https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html

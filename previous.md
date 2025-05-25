@@ -1,3 +1,15 @@
+**Lineker emotionally signs off final MOTD ahead of BBC exit**\
+`Lineker, 64, has presented Match of the Day since 1999, but will now leave the corporation altogether following Sunday's show.`\
+https://nytimes.com/athletic/6382187/2025/05/25/gary-lineker-bbc-motd-exit/
+
+**Why Swayman's World Championship run is the Bruins' most important 2025 development yet**\
+`Jeremy Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
+https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championship-gold-bruins/
+
+**Trump Says He’s ‘Not Happy’ With Putin’s Escalation of Ukraine Attacks**\
+`“He’s sending rockets into cities and killing people, and I don’t like it at all,” President Trump said of his Russian counterpart.`\
+https://nytimes.com/2025/05/25/us/politics/trump-putin-ukraine-attacks.html
+
 **Trump Delays E.U. Tariffs Until July 9**\
 `President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
 https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
@@ -25,16 +37,4 @@ https://nytimes.com/card/2025/05/25/us/george-floyd-anniversary
 **U.S. wins first World hockey title since 1933 as OT goal downs Switzerland**\
 `Denmark's upset of Canada in the quarterfinals helped clear the way for a deep U.S. team.`\
 https://nytimes.com/athletic/6382063/2025/05/25/usa-switzerland-iihf-world-championship-final-score/
-
-**Tigers' Tarik Skubal keeps staking his claim as MLB's best pitcher**\
-`Skubal threw the first shoutout of his career Sunday, striking out 13 batters and going nine innings in only 94 pitches. `\
-https://nytimes.com/athletic/6382052/2025/05/25/tigers-tarik-skubal-best-pitcher-in-baseball/
-
-**Monday Briefing: Russia Bombards Ukraine**\
-`Plus, Mexico City’s artistic eras.`\
-https://nytimes.com/2025/05/25/briefing/russia-attacks-ukraine-venezuela-guyana-trump-vietnam.html
-
-**Juventus qualify for UCL ahead of Roma, Lazio on final day of Serie A**\
-`Igor Tudor's side secured a nervy 3-2 victory at Venezia, whose relegation was confirmed by the result, to pip Roma into fourth place.`\
-https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-league-serie-a/
 
