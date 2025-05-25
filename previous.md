@@ -1,40 +1,40 @@
-**Stay Ready with MassMutual & Madison Keys**\
-`MassMutual teamed up with Flau’Jae Johnson, Christen Press, and Madison Keys to talk about the power of preparation. On the court. And off.`\
-https://nytimes.com/paidpost/athletic/massmutual/stay-ready-madison-keys.html
+**Madrid confirm Alonso as new head coach**\
+`The former Spain international replaces Carlo Ancelotti, who has departed to become head coach of the Brazil national team.`\
+https://nytimes.com/athletic/6064080/2025/05/25/real-madrid-xabi-alonso-confirmed/
 
-**Russia Bombards Ukraine With One of Largest Air Assaults of the War**\
-`The attack involved nearly 370 missiles and drones, according to Ukraine’s Air Force. At least 12 people were killed.`\
-https://nytimes.com/2025/05/25/world/europe/russia-ukraine-kyiv.html
+**Miguel Amaya injured in Cubs loss, a blow to one of MLB's best catching duos**\
+`For batters with at least 80 plate appearances, Carson Kelly leads catchers with a 188 wRC+. Amaya is 10th at 126.`\
+https://nytimes.com/athletic/6378723/2025/05/25/chicago-cubs-catcher-duo-analysis/
 
-**The New York Times International Edition in Print for Monday, May 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/25/todays-new-york-times-international-edition
+**Marcelo Mayer's chaotic MLB debut: Lost keys, a long car ride and a standing ovation**\
+`Mayer learned he was heading to Boston for Game 2 of the doubleheader, but there was one problem: He couldn't find his keys.`\
+https://nytimes.com/athletic/6380419/2025/05/25/red-sox-marcelo-mayer-mlb-debut/
 
-**Arsenal forward Stina Blackstenius is a subtle striker, who 'turns up in big moments'**\
-`Blackstenius has made a habit of scoring big-time goals, but she's still getting used to the spotlight`\
-https://nytimes.com/athletic/6380353/2025/05/25/arsenal-champions-league-stina-blackstenius/
+**Indianapolis 500 by day, Pacers-Knicks by night: A city set for 2 Sunday sports spectacles**\
+`Rest will be at a minimum for die-hard fans of the Pacers and IndyCar — especially those in Indianapolis brave enough to attend both events.`\
+https://nytimes.com/athletic/6379734/2025/05/25/indianapolis-500-pacers-knicks-nba-indycar-sunday/
 
-**Monaco GP's exclusive trophy trunk is now standard in F1… and League of Legends**\
-`Since the beginning of 2025, the winning trophy for each Formula One event has been displayed on the grid ahead of the race start`\
-https://nytimes.com/athletic/6379953/2025/05/25/why-monaco-gps-exclusive-trophy-trunk-is-now-standard-in-f1-and-league-of-legends/
+**Mandel: Big Ten, SEC plans for Playoff would damage college football**\
+`Possible College Football Playoff expansion to 16 teams in 2026 is far more complicated than it needs to be. Blame the Big Ten and SEC.`\
+https://nytimes.com/athletic/6379486/2025/05/25/college-football-playoff-format-big-ten-sec/
 
-**Everyone knew Anthony Edwards had to be better. He knew it, too**\
-`Edwards was well aware that Minnesota's only way out of a 0-2 hole was for him to lead the way out. He emphatically did.`\
-https://nytimes.com/athletic/6380798/2025/05/25/timberwolves-thunder-game-3-anthony-edwards/
+**Panthers stay true to their hard, mean and nasty identity with their eyes on the prize**\
+`The Panthers, who are on the brink of making the Stanley Cup Final, look to have pushed the Hurricanes to a breaking point.`\
+https://nytimes.com/athletic/6380733/2025/05/25/panthers-hurricanes-nhl-playoffs-game-3/
 
-**In the Shadow of a Tainted Election, Maduro Asks Venezuelans to Vote Again**\
-`Some in the opposition say the only way to protest is to abstain. Others say doing so will let the government “say they won without resistance.”`\
-https://nytimes.com/2025/05/25/world/americas/maduro-venezuela-election.html
+**How the Ravages of Age Are Ravaging the Democratic Party**\
+`Democrats need to figure out how to elevate new voices.`\
+https://nytimes.com/2025/05/25/opinion/biden-democrats-age.html
 
-**'Put on a good show': Gaël Monfils and the spectacular inheritance of French men's tennis**\
-`A tennis nation with an eye for the spectacular is getting closer to refuting the idea that it is all showmanship and no substance`\
-https://nytimes.com/athletic/6378148/2025/05/25/tennis-french-open-history-style-monfils/
+**Gentille: The Hurricanes are out of answers — and nearly out of time**\
+`When you’re down 3-0 to a team that, with each day, looks more and more like a fully functional Death Star, what else is there to do?`\
+https://nytimes.com/athletic/6380691/2025/05/25/hurricanes-nhl-playoffs-brink-elimination/
 
-**These Plants Protect Larvae From Wildfires**\
-`Growths on plants formed by parasitic weevils help their offspring hunker down on a Brazilian savanna and outlast the flames.`\
-https://nytimes.com/2025/05/25/science/weevils-wildfires-galls-brazil.html
+**Why Is This Supreme Court Handing Trump More and More Power?**\
+`The Supreme Court bears a heavy dose of responsibility for plunging the legal world into chaos.`\
+https://nytimes.com/2025/05/25/opinion/supreme-court-trump-power.html
 
-**As Trumps Monetize Presidency, Profits Outstrip Protests**\
-`The president and his family have monetized the White House more than any other occupant, normalizing activities that once would have provoked heavy blowback and official investigations.`\
-https://nytimes.com/2025/05/25/us/politics/trump-money-plane-crypto.html
+**Knicks vs. Hicks: Let Us Praise Old-Fashioned Contempt**\
+`Society’s antagonisms can find a graceful outlet on the hardwood.`\
+https://nytimes.com/2025/05/25/opinion/indiana-pacers-new-york-knicks-playoff.html
 
