@@ -1,3 +1,7 @@
+**Gotham FC wins inaugural Concacaf Champions Cup with win over Tigres UANL**\
+`Gotham striker Esther González scored in the in the 82nd minute to secure Gotham the 1-0 win.`\
+https://nytimes.com/athletic/6380571/2025/05/25/gotham-fc-tigres-uanl-concacaf-cup/
+
 **Qatari Push to Dominate Another Sport, Table Tennis, Draws Scrutiny**\
 `A wealthy Qatari businessman’s campaign to lead the sport’s global body is being investigated. One of his critics was detained and interrogated in Doha.`\
 https://nytimes.com/2025/05/25/world/middleeast/qatar-table-tennis.html
