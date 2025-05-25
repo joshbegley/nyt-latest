@@ -2,7 +2,7 @@
 `Beach season began Saturday with 280 lifeguards, well short of what the city needs, amid a yearslong staffing shortage. But more will come by summer’s peak.`\
 https://nytimes.com/2025/05/24/nyregion/beaches-open-lifeguard-shortage.html
 
-**Alex Bregman is injured but Rafael Devers will remain at DH. Who will play third for Boston?**\
+**Alex Bregman is injured, but Rafael Devers will stay at DH. Who will play third for Boston?**\
 `It would seem a natural fit for Devers to move back to third but the Red Sox don't want to mess with what's been working for Devers as a DH.`\
 https://nytimes.com/athletic/6380299/2025/05/24/red-sox-third-base-rafael-devers-alex-bregman/
 
