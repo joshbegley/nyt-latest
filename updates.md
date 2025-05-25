@@ -1,3 +1,7 @@
+**Switching lockers and shaving mustaches, Christian Walker is trying anything to get spark**\
+`Walker is doing everything possible, “within reason,” to get his game on track and calm frustrated fans.`\
+https://nytimes.com/athletic/6380355/2025/05/24/astros-christian-walker-mustache-locker/
+
 **Switching lockers and shaving mustaches, Christian Walker is trying anything to get a spark**\
 `Walker is doing everything possible, “within reason,” to get his game on track and calm a frustrated fan base.`\
 https://nytimes.com/athletic/6380355/2025/05/24/astros-christian-walker-mustache-locker/
