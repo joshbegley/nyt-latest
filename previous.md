@@ -1,6 +1,18 @@
+**Villa to lodge complaint over referee appointment for Man Utd game**\
+`Villa missed out on a top-five place after losing 2-0 at Old Trafford, having seen a goal controversially disallowed with the score level.`\
+https://nytimes.com/athletic/6381670/2025/05/25/aston-villa-rogers-thomas-bramall/
+
+**Rafael Nadal's French Open ceremony brings Big Four back to Roland Garros**\
+`Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
+https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadals-french-open-ceremony-brings-federer-djokovic-and-murray-back-to-roland-garros/
+
 **Amorim apologises to Man Utd fans, insists 'good days are coming'**\
 `Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\
 https://nytimes.com/athletic/6381579/2025/05/25/ruben-amorim-manchester-united-apology-speech/
+
+**Man United confirm Lindelof, Eriksen and Evans exits**\
+`Lindelof is one of United's longest-serving players, having signed from Benfica in 2017 and making 270 appearances for the club.`\
+https://nytimes.com/athletic/6174480/2025/05/25/manchester-united-transfer-lindelof-eriksen-evans/
 
 **‘Queen of Spades’ Review: A Fiery Soprano Breaks Through**\
 `At the Metropolitan Opera’s season premiere of Elijah Moshinsky’s production, it was the women who led, while a strong cast carried the patchwork plot.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6381293/2025/05/25/champions-league-qualification-d
 **The Briefing: Tottenham 1 Brighton 4 - European celebrations but another defeat, so what now for Postecoglou?**\
 `Spurs suffered their 10th home defeat of a miserable Premier League season, but still found time to celebrate their Europa League success`\
 https://nytimes.com/athletic/6378443/2025/05/25/tottenham-brighton-postecoglou-briefing/
-
-**The Briefing: Forest 0 Chelsea 1 - Colwill goal seals CL spot as Nuno settles for seventh**\
-`Our writers break down the action as European places were decided at the City Ground.`\
-https://nytimes.com/athletic/6372811/2025/05/25/nottingham-forest-chelsea-european-qualification/
-
-**Southampton 1 Arsenal 2 - Tierney signs off in style but more set-piece struggles**\
-`Kieran Tierney said a fond farewell to Arsenal as Martin Odegaard grabbed victory. James McNicholas and Dan Sheldon analyse the key points`\
-https://nytimes.com/athletic/6372810/2025/05/25/southampton-1-arsenal-2-kieran-tierney-david-raya-martin-odegaard/
-
-**Arsenal's Raya, Forest's Sels win Premier League Golden Glove**\
-`They were tied on 13 clean sheets going into the final round of the Premier League on Sunday but both conceded during those games.`\
-https://nytimes.com/athletic/6377426/2025/05/25/premier-league-awards-golden-glove-raya-sels/
 

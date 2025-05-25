@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6381670/2025/05/25/aston-villa-rogers-thomas-bramal
 
 **Rafael Nadal's French Open ceremony brings Big Four back to Roland Garros**\
 `Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
-https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadals-french-open-ceremony-brings-federer-djokovic-and-murray-back-to-roland-garros/
+https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadal-roland-garros-ceremony-tennis-big-four/
 
 **Amorim apologises to Man Utd fans, insists 'good days are coming'**\
 `Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\

@@ -1,3 +1,15 @@
+**Villa to lodge complaint over referee appointment for Man Utd game**\
+`Villa missed out on a top-five place after losing 2-0 at Old Trafford, having seen a goal controversially disallowed with the score level.`\
+https://nytimes.com/athletic/6381670/2025/05/25/aston-villa-rogers-thomas-bramall/
+
+**Rafael Nadal's French Open ceremony brings Big Four back to Roland Garros**\
+`Nadal, a 14-time Roland Garros champion whose record may never be surpassed, was honored by tennis rivals Novak Djokovic and Roger Federer.`\
+https://nytimes.com/athletic/6381408/2025/05/25/rafael-nadals-french-open-ceremony-brings-federer-djokovic-and-murray-back-to-roland-garros/
+
+**Man United confirm Lindelof, Eriksen and Evans exits**\
+`Lindelof is one of United's longest-serving players, having signed from Benfica in 2017 and making 270 appearances for the club.`\
+https://nytimes.com/athletic/6174480/2025/05/25/manchester-united-transfer-lindelof-eriksen-evans/
+
 **Amorim apologises to Man Utd fans, insists 'good days are coming'**\
 `Amorim made the promise while addressing the fans at Old Trafford on the pitch after Sunday's final-day victory over Aston Villa.`\
 https://nytimes.com/athletic/6381579/2025/05/25/ruben-amorim-manchester-united-apology-speech/
