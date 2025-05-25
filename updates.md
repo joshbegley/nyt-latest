@@ -1,3 +1,11 @@
+**Russian Bombardment Kills at Least a Dozen People in Ukraine**\
+`An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
+https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
+
+**Kyle Larson's 'Double' attempt ends as he crashes out of chaotic Indy 500**\
+`In addition to Larson's accident, Scott McLaughlin, Alexander Rossi and Robert Shwartzman were among those to exit the race early.`\
+https://nytimes.com/athletic/6381891/2025/05/25/indy-500-chaos-kyle-larson-scott-mclaughlin-alexander-rossi/
+
 **Russian Bombards Ukraine, Killing at Least a Dozen People**\
 `An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
 https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
