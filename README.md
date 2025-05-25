@@ -1,3 +1,7 @@
+**Lowetide: A complete look at the Oilers' prospects in spring 2025**\
+`With the Oilers pushing for the Stanley Cup, the organization must avoid a prospects "Death Valley."`\
+https://nytimes.com/athletic/6379710/2025/05/25/edmonton-oilers-prospects-spring-2025/
+
 **Severe Storms Threaten Parts of the Southern Plains**\
 `There was an enhanced risk for severe thunderstorms in parts of Texas and Oklahoma on Sunday, forecasters said. They warned of hail of up to three inches in diameter and of winds up to 80 miles per hour.`\
 https://nytimes.com/2025/05/25/weather/oklahoma-tornado-weather-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-n
 **A Fringe Movement**\
 `We explain the ideology behind a recent attack.`\
 https://nytimes.com/2025/05/25/briefing/a-fringe-movement.html
-
-**The Timberwolves needed more than a win; they needed a win just like this**\
-`What Minnesota did to Oklahoma City in Game 3 Saturday night is what needed to happen for this series to even begin to feel different.`\
-https://nytimes.com/athletic/6380201/2025/05/25/timberwolves-game-3-thunder-nba-playoffs-series/
 

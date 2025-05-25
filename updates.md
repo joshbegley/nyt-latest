@@ -1,3 +1,7 @@
+**Severe Storms Threaten Parts of the Southern Plains**\
+`There was an enhanced risk for severe thunderstorms in parts of Texas and Oklahoma on Sunday, forecasters said. They warned of hail of up to three inches in diameter and of winds up to 80 miles per hour.`\
+https://nytimes.com/2025/05/25/weather/oklahoma-tornado-weather-forecast.html
+
 **Southampton appoint Still as new manager**\
 `The 32-year-old is set to lead the club’s 2025-26 campaign in the Championship`\
 https://nytimes.com/athletic/6371929/2025/05/25/southampton-manager-next-will-still/
