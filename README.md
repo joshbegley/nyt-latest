@@ -1,4 +1,4 @@
-**Russian Bombards Ukraine, Killing at Least a Dozen People**\
+**Russian Bombardment Kills at Least a Dozen People in Ukraine**\
 `An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
 https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
 

@@ -1,3 +1,11 @@
+**Russian Bombards Ukraine, Killing at Least a Dozen People**\
+`An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
+https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
+
+**Pirates' Oneil Cruz crushes HR, records hardest hit ball in Statcast era**\
+`Cruz sent a home run sailing out of PNC Park against the Milwaukee Brewers on Sunday afternoon.`\
+https://nytimes.com/athletic/6381865/2025/05/25/oneil-cruz-home-run-hardest-hit-statcast/
+
 **Inside Manchester United's worst Premier League season: Amorim's emotions, Ratcliffe's ideas and what's next**\
 `An emotional head coach and a co-owner driven to make an impact have delivered a tumultuous season on and off the pitch at Old Trafford`\
 https://nytimes.com/athletic/6379454/2025/05/25/manchester-united-amorim-ratcliffe-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6377291/2025/05/25/alternative-premier-league-award
 **Hurzeler says late Milner substitution was a 'thank-you'**\
 `Milner, 39, was making his first appearance for Brighton since August. The Englishman and the club remain in contract talks.`\
 https://nytimes.com/athletic/6381858/2025/05/25/brighton-hurzeler-james-milner/
-
-**How dramatic final day showdown for Champions League qualification unfolded**\
-`A five-team battle for three spots in Europe's premier competition was full of twists, turns and controversy `\
-https://nytimes.com/athletic/6381151/2025/05/25/how-race-for-the-champions-league-unfolded/
-
-**Grealish exclusion from Man City's final game 'not personal' - Guardiola**\
-`Following the FA Cup final, Guardiola said the club's hierarchy would hold talks with Grealish's representatives in the summer.`\
-https://nytimes.com/athletic/6381009/2025/05/25/jack-grealish-manchester-city-guardiola/
 
