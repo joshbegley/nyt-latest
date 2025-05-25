@@ -1,3 +1,19 @@
+**Inside a Trump Family Project in Vietnam**\
+`As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
+https://nytimes.com/video/world/asia/100000010182265/trump-organization-project-vietnam.html
+
+**French Open 2025: How to watch this weekend's singles opener at Roland Garros**\
+`Carlos Alcaraz begins his title defense on the men's side, while Iga Świątek pursues a fourth straight Roland Garros triumph.`\
+https://nytimes.com/athletic/6378504/2025/05/25/french-open-roland-garros-singles-first-round-how-to-watch/
+
+**Why Vietnam Ignored Its Own Laws to Fast-Track a Trump Family Golf Complex**\
+`As President Trump blurs the lines between politics and business — and threatens steep tariffs on trade partners — governments feel compelled to favor Trump-related projects.`\
+https://nytimes.com/2025/05/25/world/asia/trump-vietnam-golf-project.html
+
+**Connections: Sports Edition Coach: Hints for May 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6380514/2025/05/25/connections-sports-edition-hints-for-may-25-2025/
+
 **Panthers on brink of 3rd straight Stanley Cup Final appearance after another rout of Hurricanes: Takeaways**\
 `A game that was tied 1-1 after two periods ended up lopsided as the Canes dropped their 15th straight conference-final game.`\
 https://nytimes.com/athletic/6380482/2025/05/24/panthers-hurricanes-nhl-playoffs-2025-game-3-takeaways/
