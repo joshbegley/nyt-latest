@@ -1,3 +1,7 @@
+**Juventus qualify for UCL ahead of Roma, Lazio on final day of Serie A**\
+`Igor Tudor's side secured a nervy 3-2 victory at Venezia, whose relegation was confirmed by the result, to pip Roma into fourth place.`\
+https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-league-serie-a/
+
 **Liverpool's perfect Anfield day, 35 years in the making**\
 `Finally, the club's supporters had the chance to celebrate their team winning a top-flight title in person - and they did it in style`\
 https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/obituaries/tony-bechara-painter-who-championed-la
 **Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
 `Spurs have achieved glory and unity. So sacking Postecoglou now might risk it all, hoping the grass is greener with a different manager`\
 https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
-
-**Florida Man Sentenced to 30 Days for Shooting and Poisoning Dolphins**\
-`A charter boat captain used pesticide-laced bait and a shotgun to target dolphins interfering with his clients’ fishing lines, prosecutors said.`\
-https://nytimes.com/2025/05/25/us/dolphin-shooting-florida-sentencing.html
 

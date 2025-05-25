@@ -1,9 +1,21 @@
+**Liverpool's perfect Anfield day, 35 years in the making**\
+`Finally, the club's supporters had the chance to celebrate their team winning a top-flight title in person - and they did it in style`\
+https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
+
+**Brad Marchand's mid-game DQ Blizzard, Matthew Tkachuk's revenge and more Hurricanes-Panthers notes**\
+`Is Dairy Queen fueling the Panthers' playoff run? With the series 3-0, coach Paul Maurice addressed the big question Sunday.`\
+https://nytimes.com/athletic/6381333/2025/05/25/brad-marchand-matthew-tkachuk-panthers-hurricanes-nhl-playoffs/
+
+**A Quiet Funeral in Israel for Victim of Washington Shooting**\
+`Yaron Lischinsky, 30, was buried on Sunday in the small town where his family lived.`\
+https://nytimes.com/2025/05/25/world/middleeast/israel-funeral-dc-shooting.html
+
 **Padres top starter Michael King is placed on injured list with shoulder inflammation**\
 `King has a 2.59 ERA in 10 starts this season.`\
 https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list/
 
 **Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
-`Palou, a 28-year-old from Spain, took the lead from ex-Formula One driver Marcus Ericsson with 14 laps remaining.`\
+`Palou is first driver since A.J. Foyt in 1979 to win five of the first six races of the season.`\
 https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
 
 **Red Sox roster takeaways: Team mixing and matching with rookie-heavy lineup**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decis
 **Florida Man Sentenced to 30 Days for Shooting and Poisoning Dolphins**\
 `A charter boat captain used pesticide-laced bait and a shotgun to target dolphins interfering with his clients’ fishing lines, prosecutors said.`\
 https://nytimes.com/2025/05/25/us/dolphin-shooting-florida-sentencing.html
-
-**Russian Bombardment Kills at Least a Dozen People in Ukraine**\
-`An hourslong assault on Ukraine by Russia with missiles and drones underscored how months of diplomatic efforts to broker a cease-fire have failed to yield a breakthrough.`\
-https://nytimes.com/video/world/europe/100000010190215/ukraine-russia-drone-attack.html
-
-**Pirates' Oneil Cruz crushes HR, records hardest hit ball in Statcast era**\
-`Cruz sent a home run sailing out of PNC Park against the Milwaukee Brewers on Sunday afternoon.`\
-https://nytimes.com/athletic/6381865/2025/05/25/oneil-cruz-home-run-hardest-hit-statcast/
-
-**Inside Manchester United's worst Premier League season: Amorim's emotions, Ratcliffe's ideas and what's next**\
-`An emotional head coach and a co-owner driven to make an impact have delivered a tumultuous season on and off the pitch at Old Trafford`\
-https://nytimes.com/athletic/6379454/2025/05/25/manchester-united-amorim-ratcliffe-season/
 

@@ -1,3 +1,19 @@
+**Liverpool's perfect Anfield day, 35 years in the making**\
+`Finally, the club's supporters had the chance to celebrate their team winning a top-flight title in person - and they did it in style`\
+https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
+
+**Brad Marchand's mid-game DQ Blizzard, Matthew Tkachuk's revenge and more Hurricanes-Panthers notes**\
+`Is Dairy Queen fueling the Panthers' playoff run? With the series 3-0, coach Paul Maurice addressed the big question Sunday.`\
+https://nytimes.com/athletic/6381333/2025/05/25/brad-marchand-matthew-tkachuk-panthers-hurricanes-nhl-playoffs/
+
+**A Quiet Funeral in Israel for Victim of Washington Shooting**\
+`Yaron Lischinsky, 30, was buried on Sunday in the small town where his family lived.`\
+https://nytimes.com/2025/05/25/world/middleeast/israel-funeral-dc-shooting.html
+
+**Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
+`Palou is first driver since A.J. Foyt in 1979 to win five of the first six races of the season.`\
+https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
+
 **Padres top starter Michael King is placed on injured list with shoulder inflammation**\
 `King has a 2.59 ERA in 10 starts this season.`\
 https://nytimes.com/athletic/6382045/2025/05/25/padres-michael-king-injured-list/
