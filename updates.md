@@ -1,3 +1,15 @@
+**Alex Palou wins Indy 500 for first time, holding off Marcus Ericsson**\
+`Palou, a 28-year-old from Spain, took the lead from ex-Formula One driver Marcus Ericsson with 14 laps remaining.`\
+https://nytimes.com/athletic/6382013/2025/05/25/indianapolis-500-winner-alex-palou/
+
+**Red Sox roster takeaways: Team mixing and matching with rookie-heavy lineup**\
+`The Red Sox are down two of their mainstay veteran infielders and a third is struggling badly, so rookies are taking centerstage. `\
+https://nytimes.com/athletic/6381480/2025/05/25/red-sox-takeaways-roster-adjustments-marcelo-mayer/
+
+**Levy is facing the biggest decision of his chairmanship - what to do with Postecoglou**\
+`Spurs have achieved glory and unity. So sacking Postecoglou now might risk it all, hoping the grass is greener with a different manager`\
+https://nytimes.com/athletic/6374056/2025/05/25/tottenham-postecoglou-levy-decision/
+
 **American Charged With Trying to Firebomb Embassy Building in Tel Aviv**\
 `Joseph Neumeyer, 28, is also accused of threatening President Trump. He appeared in federal court in Brooklyn on Sunday.`\
 https://nytimes.com/2025/05/25/nyregion/joseph-neumeyer-tel-aviv-embassy-bombing.html
