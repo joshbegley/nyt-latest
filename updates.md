@@ -1,3 +1,7 @@
+**Panthers on brink of their 3rd straight Stanley Cup Final after another rout of Hurricanes: Takeaways**\
+`A game that was tied 1-1 after two periods ended up lopsided as the Canes dropped their 15th straight conference-final game.`\
+https://nytimes.com/athletic/6380482/2025/05/24/panthers-hurricanes-nhl-playoffs-2025-game-3-takeaways/
+
 **Katy Knoll plays triple-OT hero as Frost take series lead over Charge in PWHL Finals: Takeaways**\
 `After a 2-1 win in Game 3, Minnesota is now one win away from becoming back-to-back Walter Cup champions.`\
 https://nytimes.com/athletic/6380305/2025/05/24/minnesota-frost-ottawa-charge-pwhl-finals-game-3/

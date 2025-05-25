@@ -1,4 +1,8 @@
-**Panthers on brink of their 3rd straight Stanley Cup Final after another rout of Hurricanes: Takeaways**\
+**Anthony Edwards, Wolves emphatically join series: Takeaways from Game 3 blowout of Thunder**\
+`Game 3 was always going to bring a level of desperation from a Wolves team looking to avoid a 3-0 deficit. Here's what we learned.`\
+https://nytimes.com/athletic/6380350/2025/05/24/nba-playoffs-takeaways-timberwolves-thunder/
+
+**Panthers on brink of 3rd straight Stanley Cup Final appearance after another rout of Hurricanes**\
 `A game that was tied 1-1 after two periods ended up lopsided as the Canes dropped their 15th straight conference-final game.`\
 https://nytimes.com/athletic/6380482/2025/05/24/panthers-hurricanes-nhl-playoffs-2025-game-3-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/24/books/susan-brownmiller-dead.html
 **Caitlin Clark and Fever learn hard lesson after narrow loss to defending champs Liberty**\
 `Clark and coach Stephanie White criticized officials, but the Fever realize they need to keep close games from slipping away.`\
 https://nytimes.com/athletic/6380256/2025/05/24/caitlin-clark-fever-loss-liberty/
-
-**Arsenal spent years building their Women's Champions League upset over Barcelona**\
-`Eighteen years after becoming the first English side to win the Champions League, Arsenal are back at the pinnacle of European football`\
-https://nytimes.com/athletic/6379350/2025/05/24/inside-arsenal-second-womens-champions-league-trophy/
 
