@@ -2,7 +2,7 @@
 `Game 3 was always going to bring a level of desperation from a Wolves team looking to avoid a 3-0 deficit. Here's what we learned.`\
 https://nytimes.com/athletic/6380350/2025/05/24/nba-playoffs-takeaways-timberwolves-thunder/
 
-**Panthers on brink of 3rd straight Stanley Cup Final appearance after another rout of Hurricanes**\
+**Panthers on brink of 3rd straight Stanley Cup Final appearance after another rout of Hurricanes: Takeaways**\
 `A game that was tied 1-1 after two periods ended up lopsided as the Canes dropped their 15th straight conference-final game.`\
 https://nytimes.com/athletic/6380482/2025/05/24/panthers-hurricanes-nhl-playoffs-2025-game-3-takeaways/
 
