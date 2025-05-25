@@ -1,3 +1,7 @@
+**Trump Delays E.U. Tariff Until July 9**\
+`President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
+https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
+
 **Topsy-turvy tennis comebacks, speedy second serves and wild card wins: French Open day 1 takeaways**\
 `The first day at Roland Garros brought a remarkable recovery, serve inspiration and proof that wild cards don't have to be a lottery.`\
 https://nytimes.com/athletic/6381245/2025/05/25/french-open-recap-results-analysis-day-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/25/briefing/russia-attacks-ukraine-venezuela-guyana-
 **Juventus qualify for UCL ahead of Roma, Lazio on final day of Serie A**\
 `Igor Tudor's side secured a nervy 3-2 victory at Venezia, whose relegation was confirmed by the result, to pip Roma into fourth place.`\
 https://nytimes.com/athletic/6377944/2025/05/25/juventus-roma-lazio-champions-league-serie-a/
-
-**Liverpool's perfect Anfield day, 35 years in the making**\
-`Finally, Liverpool supporters had the chance to celebrate their team winning a league title in person again - and they did it in style`\
-https://nytimes.com/athletic/6381383/2025/05/25/liverpool-title-celebrations-trophy-anfield/
 
