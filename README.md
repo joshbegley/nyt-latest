@@ -1,6 +1,10 @@
+**Monaco GP: Lando Norris wins hectic race; Mercedes drivers finish last**\
+`The mandatory two-stop strategy meant drivers had to push the limits up front and back up the field behind — creating some intrigue`\
+https://nytimes.com/athletic/6381189/2025/05/25/monaco-grand-prix-2025-result-lando-norris-win-mercedes/
+
 **Israeli Airstrike Kills at Least 7 of a Doctor’s Children, Gaza Officials Say**\
 `Two more children were missing, while her husband and one other child were injured in the strike on Friday, the officials said. Israel said it was checking if it had harmed “uninvolved civilians.”`\
-https://nytimes.com/2025/05/25/world/middleeast/israeli-airstrike-kills-at-least-7-of-a-doctors-children-gaza-officials-say.html
+https://nytimes.com/2025/05/25/world/middleeast/israeli-airstrike-kills-doctors-children-gaza-officials-say.html
 
 **Lowetide: A complete look at the Oilers' prospects in spring 2025**\
 `With the Oilers pushing for the Stanley Cup, the organization must avoid a prospects "Death Valley."`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380274/2025/05/25/french-open-favorites-the-pulse/
 **As Taylor Ward goes, so do the red-hot Los Angeles Angels**\
 `"It’s very satisfying to be in this position right now and doing what I’ve been doing," Ward said.`\
 https://nytimes.com/athletic/6379868/2025/05/25/taylor-ward-red-hot-angels/
-
-**What players, others around NHL are saying about Blackhawks hiring Jeff Blashill as coach**\
-`From Panthers GM Bill Zito to current Blackhawks Tyler Bertuzzi and Joe Veleno, those who have worked with Blashill share their thoughts.`\
-https://nytimes.com/athletic/6375155/2025/05/25/blackhawks-jeff-blashill-coach-nhl/
 
