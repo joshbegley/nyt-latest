@@ -1,3 +1,7 @@
+**Marcel Ophuls, Myth-Shattering War Documentarian, Is Dead at 97**\
+`He was best-known for “The Sorrow and the Pity,” a landmark film that debunked ideas of vast French resistance to the Nazi occupation.`\
+https://nytimes.com/2025/05/26/movies/marcel-ophuls-dead.html
+
 **With Knicks on the ropes, the Pacers let go — and let New York back into series**\
 `Indiana has been here before in these playoffs. The Pacers better hope Tuesday's Game 4 brings familiar vibes as well.`\
 https://nytimes.com/athletic/6382180/2025/05/26/nba-playoffs-pacers-knicks-comeback-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374749/2025/05/26/joao-pedro-brighton-future-trans
 **How to fix West Ham: Transfer targets, Potter's behind-the-scenes changes and squad overhaul**\
 `West Ham have had a disappointing season — this is how they are planning to avoid a repeat next time around`\
 https://nytimes.com/athletic/6369519/2025/05/26/west-ham-potter-transfers-overhaul-recruitment/
-
-**Fresh hope from Friedkin takeover, Moyes' return, Tarkowskiiiii - Everton's review of 2024-25**\
-`It has been a tumultuous season for Everton - new owners, a new (old) manager and unexpectedly simple path to safety. Plus a '2-2 derby win'`\
-https://nytimes.com/athletic/6367798/2025/05/26/everton-season-review-friedkin-moyes-tarkowski/
 

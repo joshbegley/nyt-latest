@@ -1,3 +1,7 @@
+**Marcel Ophuls, Myth-Shattering War Documentarian, Is Dead at 97**\
+`He was best-known for “The Sorrow and the Pity,” a landmark film that debunked ideas of vast French resistance to the Nazi occupation.`\
+https://nytimes.com/2025/05/26/movies/marcel-ophuls-dead.html
+
 **With Knicks on the ropes, the Pacers let go — and let New York back into series**\
 `Indiana has been here before in these playoffs. The Pacers better hope Tuesday's Game 4 brings familiar vibes as well.`\
 https://nytimes.com/athletic/6382180/2025/05/26/nba-playoffs-pacers-knicks-comeback-game-3/
