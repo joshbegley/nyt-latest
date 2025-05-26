@@ -1,3 +1,11 @@
+**Republican Vote Against E.V. Mandate Was Also a Vote Against California**\
+`For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
+https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
+
+**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
+`The police said they had detained a 53-year-old white man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
+https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
+
 **Trump Praises Military Service, and His Return to Office, in Memorial Day Remarks**\
 `In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
 https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
