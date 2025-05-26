@@ -1,3 +1,7 @@
+**Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
+`The Dodgers star looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
+https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
+
 **Topsy-turvy comebacks, speedy second serves and wild-card wins: French Open day 1 takeaways**\
 `The first day at Roland Garros brought a remarkable recovery, serve inspiration and proof that wild cards don't have to be a lottery.`\
 https://nytimes.com/athletic/6381245/2025/05/25/french-open-recap-results-analysis-day-1/
