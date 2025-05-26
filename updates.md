@@ -1,3 +1,19 @@
+**Who made the biggest Villa mistake? Is Maresca most Chelsea's likeable face? Why pick Liverpool over Newcastle? - The Briefing**\
+`The key talking points from the final weekend of the 2024-25 Premier League`\
+https://nytimes.com/athletic/6381946/2025/05/26/villa-mistake-briefing/
+
+**Premier League roundtable: The best and worst of 2024-25**\
+`Our writers reflect on the highs, the lows and the more unusual moments of the season`\
+https://nytimes.com/athletic/6374589/2025/05/26/premier-league-review-2024-2025/
+
+**Will Sunderland and the newly-promoted teams fare better than this season's instant returns?**\
+`The Wearsiders brought noise and colour to Wembley, but they, Leeds and Burnley will face a tough task to establish themselves in the elite`\
+https://nytimes.com/athletic/6381132/2025/05/26/sunderland-premier-league-leeds-burnley-promoted/
+
+**Inside the deal that took Alonso back to Real Madrid as Ancelotti's successor**\
+`The Spaniard's return to Madrid has been on the cards for a long time - this is the story of how his appointment as head coach developed`\
+https://nytimes.com/athletic/6381046/2025/05/26/xabi-alonso-real-madrid-appointment/
+
 **As South Korea Gets Ready to Vote, Women Don’t Like the Choices**\
 `Women took the lead in the protests against South Korea’s last president. But the men running to replace him are saying little about the discrimination they face.`\
 https://nytimes.com/2025/05/26/world/asia/south-korean-women-election.html
