@@ -1,3 +1,11 @@
+**Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
+`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the trip.`\
+https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
+
+**Watch out, NHL: The goals have started going in for Connor McDavid again**\
+`McDavid makes things happen for the Oilers, but so far this offseason few pucks had gone in the net off his stick.`\
+https://nytimes.com/athletic/6382582/2025/05/25/connor-mcdavid-oilers-scoring-nhl-playoffs-stars/
+
 **LeBrun: Nobody demands perfection from Stuart Skinner — but this is the version the Oilers need**\
 `Skinner has "finally found his groove now," according to Hockey Hall of Fame goalie Martin Brodeur.`\
 https://nytimes.com/athletic/6382585/2025/05/25/oilers-skinner-stanley-cup-stars/
