@@ -1,3 +1,7 @@
+**Europe Secured a Tariff Delay From Trump, but Can It Now Make a Deal?**\
+`Officials from the European Union and the United States will start a new negotiating push on Monday, after President Trump delayed until July 9 the 50 percent tariffs he imposed on the bloc.`\
+https://nytimes.com/2025/05/26/world/europe/tariffs-european-union-trump.html
+
 **Chelsea interested in Frankfurt striker Ekitike**\
 `The 22-year-old ended the season with 22 goals and 12 assists in 48 appearances across all competitions.`\
 https://nytimes.com/athletic/6383260/2025/05/26/hugo-ekitike-chelsea-eintracht-frankfurt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383135/2025/05/26/wubben-moy-england-bright/
 **Newcastle's Wilson says he experienced 'suicidal moments' during difficult childhood**\
 `The 33-year-old spoke about foster care, being moved from school to school and senior figures in his life dealing with alcoholism.`\
 https://nytimes.com/athletic/6383063/2025/05/26/newcastle-callum-wilson-mental-health/
-
-**No Corrections: May 26, 2025**\
-`No corrections appeared in print on Monday, May 26, 2025.`\
-https://nytimes.com/2025/05/26/pageoneplus/no-corrections-may-26-2025.html
 
