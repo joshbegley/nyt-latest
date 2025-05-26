@@ -1,3 +1,7 @@
+**Police on Scene After Car Plows Into Crowd in Liverpool**\
+`Local police said they detained a man in connection with a car that was driven through a crowd of people attending a soccer parade on Monday.`\
+https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plowing.html
+
 **Caitlin Clark to miss at least 2 weeks with left quad injury**\
 `Indiana is 2-2 and will be without Clark for at least its next three games.`\
 https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
@@ -33,9 +37,5 @@ https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-
 
 **House Bill Takes Aim at Tax Break for Sports Owners**\
 `The legislation cuts in half a tax write-off potentially worth hundreds of millions to some professional sports team owners.`\
-https://nytimes.com/2025/05/26/business/house-bill-takes-aim-at-tax-break-for-sports-owners.html
-
-**The N.B.A.’s Age of Dynasties Is Over. Will That Hurt Its Business?**\
-`This year’s playoff ratings are excellent. But is a small-market problem looming?`\
-https://nytimes.com/2025/05/26/business/nba-playoffs-thunder-small-markets.html
+https://nytimes.com/2025/05/26/business/house-budget-bill-taxes-sports-owners.html
 

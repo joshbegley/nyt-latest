@@ -1,3 +1,16 @@
+**Police on Scene After Car Plows Into Crowd in Liverpool**\
+`Local police said they detained a man in connection with a car that was driven through a crowd of people attending a soccer parade on Monday.`\
+https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plowing.html
+
+**Champions League final betting: Four unlikely goalscorers who could make history**\
+`Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
+
+**House Bill Takes Aim at Tax Break for Sports Owners**\
+`The legislation cuts in half a tax write-off potentially worth hundreds of millions to some professional sports team owners.`\
+https://nytimes.com/2025/05/26/business/house-budget-bill-taxes-sports-owners.html
+
 **Champions League final betting: Four unlikely goalscorers who could make history**\
 `Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
 `\
