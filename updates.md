@@ -1,3 +1,7 @@
+**Tuesday Briefing: U.S. and E.U. Talk Trade**\
+`Plus, defining Sweden’s culture.`\
+https://nytimes.com/2025/05/26/briefing/us-eu-trade-russia-ukraine-attacks-south-korea-women-politics.html
+
 **Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
 `The police said they had detained a 53-year-old British man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
 https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html

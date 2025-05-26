@@ -1,3 +1,7 @@
+**Tuesday Briefing: U.S. and E.U. Talk Trade**\
+`Plus, defining Sweden’s culture.`\
+https://nytimes.com/2025/05/26/briefing/us-eu-trade-russia-ukraine-attacks-south-korea-women-politics.html
+
 **Casemiro and Antony earn Brazil recall in Carlo Ancelotti's first squad**\
 `There is also a recall for Tottenham forward Richarlison for June's World Cup qualifiers against Ecuador and Paraguay.`\
 https://nytimes.com/athletic/6383750/2025/05/26/casemiro-antony-ancelotti-brazil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-st
 **Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
 `The police said they had detained a 53-year-old British man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
 https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
-
-**Trump Suggests Giving Trade Schools Money Taken From Harvard**\
-`In a social media post, the president mused about redirecting $3 billion in research grant funding that his administration has frozen or withdrawn, but he gave no details.`\
-https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
 
