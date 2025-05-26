@@ -6,7 +6,7 @@ https://nytimes.com/2025/05/25/arts/television/the-last-of-us-recap-season-2-fin
 `Brian Snitker said the Braves "have all the confidence in the world" they will got on track after a lackluster series against the Padres.`\
 https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
 
-**Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
+**Phillies takeaways: Matt Strahm's hiccup, Aaron Nola's delayed return, and a lineup shuffle?**\
 `Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
 https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
 

@@ -1,3 +1,7 @@
+**Phillies takeaways: Matt Strahm's hiccup, Aaron Nola's delayed return, and a lineup shuffle?**\
+`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
+https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
+
 **Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
 `Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
 https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
