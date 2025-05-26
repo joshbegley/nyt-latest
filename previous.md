@@ -1,3 +1,7 @@
+**Man detained after road traffic collision at Liverpool's Premier League trophy parade**\
+`Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
+https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
+
 **What to Know About the Deportees the U.S. Is Trying to Send to South Sudan**\
 `Experts say the administration may be trying to shape the behavior of immigrants through fear.`\
 https://nytimes.com/2025/05/26/world/africa/trump-deportations-south-sudan.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6383303/2025/05/26/ncaa-college-baseball-bracket-re
 **Trump Condemns Putin Over Russia’s Recent Attacks on Ukraine**\
 `President Trump said he was not happy with President Vladimir V. Putin’s decision to unleash one of the largest offensives in Russia’s war against Ukraine.`\
 https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukraine.html
-
-**Trump Condemns Putin’s Killings in Ukraine, But Doesn’t Make Him Pay a Price**\
-`President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
-https://nytimes.com/2025/05/26/us/politics/trump-putin.html
 

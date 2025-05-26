@@ -1,3 +1,7 @@
+**Trump Suggests Giving Trade Schools Money Taken From Harvard**\
+`In a social media post, the president mused about redirecting $3 billion in research grant funding that his administration has frozen or withdrawn, but he gave no details.`\
+https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
+
 **Man detained after road traffic collision at Liverpool's Premier League trophy parade**\
 `Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
 https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6383367/2025/05/26/naomi-osaka-french-open-news-con
 **NCAA baseball tournament field revealed: Vanderbilt earns No. 1 seed**\
 `The Commodores have won eight consecutive games, including three straight to capture the SEC tournament title. `\
 https://nytimes.com/athletic/6383303/2025/05/26/ncaa-college-baseball-bracket-reveal-selection-tournament-2/
-
-**Trump Condemns Putin Over Russia’s Recent Attacks on Ukraine**\
-`President Trump said he was not happy with President Vladimir V. Putin’s decision to unleash one of the largest offensives in Russia’s war against Ukraine.`\
-https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukraine.html
 
