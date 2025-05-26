@@ -1,3 +1,7 @@
+**Tyrese Haliburton's dad allowed to attend Pacers home games**\
+`John Haliburton missed the Pacers’ second-round series against the Cavs following an on-court confrontation with Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/6383415/2025/05/26/tyrese-haliburton-father-pacers-knicks-game-4/
+
 **Manchester United's season reviewed: Lyon, Amorim and the 'worst team in history'**\
 `Carl Anka reluctantly looks back... and hopes much of what happened stays in the past`\
 https://nytimes.com/athletic/6320637/2025/05/26/manchester-united-season-review-2025/

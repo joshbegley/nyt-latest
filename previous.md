@@ -1,3 +1,7 @@
+**Tyrese Haliburton's dad allowed to attend Pacers home games**\
+`John Haliburton missed the Pacers’ second-round series against the Cavs following an on-court confrontation with Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/6383415/2025/05/26/tyrese-haliburton-father-pacers-knicks-game-4/
+
 **Manchester United's season reviewed: Lyon, Amorim and the 'worst team in history'**\
 `Carl Anka reluctantly looks back... and hopes much of what happened stays in the past`\
 https://nytimes.com/athletic/6320637/2025/05/26/manchester-united-season-review-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/world/europe/macron-wife-brigitte-shove-video.htm
 **President Macron’s Wife Pushes Him in the Face**\
 `A video showed President Emmanuel Macron of France being pushed in the face by his wife, Brigitte, moments before they stepped off a plane in Vietnam.`\
 https://nytimes.com/video/world/europe/100000010190896/macron-wife-face-push.html
-
-**Harrison returns to Leeds, Everton remain in talks with Alcaraz**\
-`Everton also confirmed fellow loan signings Jesper Lindstrom, Orel Mangala and Armando Broja would return to their respective parent clubs.`\
-https://nytimes.com/athletic/6383217/2025/05/26/harrison-alcaraz-everton-transfer/
 
