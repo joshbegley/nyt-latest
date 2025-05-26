@@ -1,3 +1,7 @@
+**Man arrested after car collides with pedestrians at Liverpool's Premier League trophy parade**\
+`Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
+https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
+
 **Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
 `The police said they had detained a 53-year-old man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
 https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html

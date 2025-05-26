@@ -30,7 +30,7 @@ https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
 `In a social media post, the president mused about redirecting $3 billion in research grant funding that his administration has frozen or withdrawn, but he gave no details.`\
 https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
 
-**Man detained after car collides with pedestrians at Liverpool's Premier League trophy parade**\
+**Man arrested after car collides with pedestrians at Liverpool's Premier League trophy parade**\
 `Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
 https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
 
