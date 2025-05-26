@@ -1,3 +1,11 @@
+**Salah: Saudi Pro League talks were 'serious'**\
+`Salah broke the record previously held by Thierry Henry (44) for goal involvements in a 38-game Premier League season.`\
+https://nytimes.com/athletic/6382982/2025/05/26/salah-saudi-pro-league-liverpool/
+
+**What Is Swedish Culture? An Attempt to Answer Stirs Debate.**\
+`Is it Abba? Saunas? Plays by Strindberg? A government initiative to define an official cultural canon has unsettled many in the arts scene.`\
+https://nytimes.com/2025/05/26/arts/sweden-culture-canon.html
+
 **Twins takeaways: Buxton, Wallner almost back, Matthews steps forward, McCusker collects dust**\
 `After back-to-back walk-off wins and a series victory over the Royals, the Twins have won 16 of 19 games, with more help coming soon.`\
 https://nytimes.com/athletic/6380344/2025/05/26/twins-byron-buxton-matt-wallner-almost-back-zebby-matthews/

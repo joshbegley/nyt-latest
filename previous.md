@@ -1,3 +1,11 @@
+**Salah: Saudi Pro League talks were 'serious'**\
+`Salah broke the record previously held by Thierry Henry (44) for goal involvements in a 38-game Premier League season.`\
+https://nytimes.com/athletic/6382982/2025/05/26/salah-saudi-pro-league-liverpool/
+
+**What Is Swedish Culture? An Attempt to Answer Stirs Debate.**\
+`Is it Abba? Saunas? Plays by Strindberg? A government initiative to define an official cultural canon has unsettled many in the arts scene.`\
+https://nytimes.com/2025/05/26/arts/sweden-culture-canon.html
+
 **Twins takeaways: Buxton, Wallner almost back, Matthews steps forward, McCusker collects dust**\
 `After back-to-back walk-off wins and a series victory over the Royals, the Twins have won 16 of 19 games, with more help coming soon.`\
 https://nytimes.com/athletic/6380344/2025/05/26/twins-byron-buxton-matt-wallner-almost-back-zebby-matthews/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6381672/2025/05/26/nhl-playoffs-conned-smythe-trade
 **New side of Brad Marchand: How the iconic Bruin fit in so well, and quickly, with Panthers**\
 `Marchand has had run-ins with many Panthers in the past, including Sam Bennett: "Uhhhhh, he's got a good right hook."`\
 https://nytimes.com/athletic/6381852/2025/05/26/brad-marchand-panthers-bruins-fit/
-
-**Wheeler: Ranking the 2025 NHL Draft class' top 15 overagers**\
-`Each year, overage players — or re-entry players — account for roughly one of the NHL Draft's seven rounds of picks.`\
-https://nytimes.com/athletic/6353285/2025/05/26/2025-nhl-draft-ranking-overagers/
-
-**What to Read this Summer**\
-`We have a list from an editor of the Book Review.`\
-https://nytimes.com/2025/05/26/briefing/summer-reading.html
 
