@@ -1,3 +1,7 @@
+**PJ Haggerty, former Memphis guard, commits to Kansas State**\
+`Haggerty won the 2024-25 AAC Player of the Year award following his solid season with Memphis.`\
+https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitment-transfer/
+
 **Republican Vote Against E.V. Mandate Was Also a Vote Against California**\
 `For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
 https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-coll
 **What to Know About the Deportees the U.S. Is Trying to Send to South Sudan**\
 `Experts say the administration may be trying to shape the behavior of immigrants through fear.`\
 https://nytimes.com/2025/05/26/world/africa/trump-deportations-south-sudan.html
-
-**Hurricanes turn back to Frederik Andersen in net for do-or-die Game 4 vs. Panthers**\
-`Coach Rod Brind'Amour announced that Andersen will start Monday after being pulled in Game 2 and benched in Game 3.`\
-https://nytimes.com/athletic/6383558/2025/05/26/frederik-andersen-hurricanes-start-game-4-nhl-playoffs/
 
