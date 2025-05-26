@@ -1,4 +1,8 @@
 **Ozzie Albies' surge, Austin Riley errors and more: 4 Braves takeaways**\
+`Brian Snitker said the Braves "have all the confidence in the world" they will got on track after a lackluster series against the Padres.`\
+https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
+
+**Ozzie Albies' surge, Austin Riley errors and more: 4 Braves takeaways**\
 `Brian Snitker said the Braves 'have all the confidence in the world' they will got on track after a lackluster series against the Padres.`\
 https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
 
