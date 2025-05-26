@@ -1,3 +1,11 @@
+**Quote of the Day: Israel’s Top-Down Eurovision Campaign**\
+`Quotation of the Day for Monday, May 26, 2025.`\
+https://nytimes.com/2025/05/25/pageoneplus/quote-of-the-day-israels-top-down-eurovision-campaign.html
+
+**Phil Robertson, ‘Duck Dynasty’ Patriarch, Dies at 79**\
+`He founded the duck-call business that became the foundation of his family’s reality television empire.`\
+https://nytimes.com/2025/05/25/arts/phil-robertson-dead.html
+
 **A wild Knicks-Pacers series takes another thrilling turn in Game 3**\
 `There have been six comebacks of 20 or more points in the 2025 playoffs, and the Knicks have three.`\
 https://nytimes.com/athletic/6382677/2025/05/25/knicks-pacers-karl-anthony-towns-comeback/

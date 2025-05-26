@@ -1,3 +1,11 @@
+**Quote of the Day: Israel’s Top-Down Eurovision Campaign**\
+`Quotation of the Day for Monday, May 26, 2025.`\
+https://nytimes.com/2025/05/25/pageoneplus/quote-of-the-day-israels-top-down-eurovision-campaign.html
+
+**Phil Robertson, ‘Duck Dynasty’ Patriarch, Dies at 79**\
+`He founded the duck-call business that became the foundation of his family’s reality television empire.`\
+https://nytimes.com/2025/05/25/arts/phil-robertson-dead.html
+
 **A wild Knicks-Pacers series takes another thrilling turn in Game 3**\
 `There have been six comebacks of 20 or more points in the 2025 playoffs, and the Knicks have three.`\
 https://nytimes.com/athletic/6382677/2025/05/25/knicks-pacers-karl-anthony-towns-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6382582/2025/05/25/connor-mcdavid-oilers-scoring-nh
 **LeBrun: Nobody demands perfection from Stuart Skinner — but this is the version the Oilers need**\
 `Skinner has "finally found his groove now," according to Hockey Hall of Fame goalie Martin Brodeur.`\
 https://nytimes.com/athletic/6382585/2025/05/25/oilers-skinner-stanley-cup-stars/
-
-**Reds score early, lose late as Cubs take series: 4 takeaways**\
-`The Reds led after six innings in both losses in the series. Once the lead goes, Cincinnati's bats have gone silent.`\
-https://nytimes.com/athletic/6382467/2025/05/25/reds-lose-series-cubs-takeaways/
-
-**Seven trends to watch as Cardinals soar season-best 7 games over .500**\
-`Nolan Arenado returning to his Gold Glove form ranks among the many surprises during the Cardinals' hot start. `\
-https://nytimes.com/athletic/6381708/2025/05/25/cardinals-trends-to-watch/
 
