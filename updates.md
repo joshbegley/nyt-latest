@@ -1,3 +1,11 @@
+**What We Know About the Car-Ramming at the Liverpool Parade in England**\
+`Almost 50 people, including four children, were injured on Monday after a driver plowed into a crowd that had been celebrating Liverpool F.C.’s Premier League title.`\
+https://nytimes.com/2025/05/26/world/europe/uk-liverpool-parade-car-crash.html
+
+**Big stars play on tiny courts in Paris, to fans' delight: French Open day 2 takeaways**\
+`The French Open's packed schedule led to some of the top players in the world playing on the smallest courts at Roland Garros.`\
+https://nytimes.com/athletic/6383007/2025/05/26/french-open-recap-schedule-results-day-2/
+
 **Trump Praises Military, and His Return to Office, in Memorial Day Remarks**\
 `In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
 https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html

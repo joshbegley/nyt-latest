@@ -1,3 +1,11 @@
+**What We Know About the Car-Ramming at the Liverpool Parade in England**\
+`Almost 50 people, including four children, were injured on Monday after a driver plowed into a crowd that had been celebrating Liverpool F.C.’s Premier League title.`\
+https://nytimes.com/2025/05/26/world/europe/uk-liverpool-parade-car-crash.html
+
+**Big stars play on tiny courts in Paris, to fans' delight: French Open day 2 takeaways**\
+`The French Open's packed schedule led to some of the top players in the world playing on the smallest courts at Roland Garros.`\
+https://nytimes.com/athletic/6383007/2025/05/26/french-open-recap-schedule-results-day-2/
+
 **At Memorial Day, the Cubs look dangerous and are primed for a fun summer**\
 `At 33-21, the Cubs are 12 games over .500 before June for the first time since 2016. `\
 https://nytimes.com/athletic/6383901/2025/05/26/chicago-cubs-memorial-day-check-in/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-fare
 **PJ Haggerty, former Memphis guard, commits to Kansas State**\
 `Haggerty won the 2024-25 AAC Player of the Year award following his solid season with Memphis.`\
 https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitment-transfer/
-
-**Republican Vote Against E.V. Mandate Felt Like an Attack on California, Democrats Say**\
-`For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
-https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
-
-**Trump Praises Military, and His Return to Office, in Memorial Day Remarks**\
-`In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
-https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
 
