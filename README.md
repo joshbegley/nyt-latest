@@ -1,3 +1,7 @@
+**Trump’s Comments on Gaza Reflect Israel’s Growing Isolation**\
+`For months, Israel’s strongest allies had been reluctant to join a wave of global censure against the war. Now, even the Trump administration appears to be growing impatient.`\
+https://nytimes.com/2025/05/26/world/middleeast/israel-gaza-trump-isolation.html
+
 **Roland Garros night slot based on what’s better for fans, says French tennis chief**\
 `Speaking at Roland Garros, a French tennis official said that scheduling decisions that have favored men's matches benefit spectators.`\
 https://nytimes.com/athletic/6382953/2025/05/26/french-open-night-session-tennis-gender-equality/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6378087/2025/05/26/2025-tracker-awards-usmnt/
 **The Pulse: Another unbelievable comeback**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6382645/2025/05/26/knicks-pacers-comeback-game-3-the-pulse/
-
-**Salah: Saudi Pro League talks were 'serious'**\
-`Salah broke the record previously held by Thierry Henry (44) for goal involvements in a 38-game Premier League season.`\
-https://nytimes.com/athletic/6382982/2025/05/26/salah-saudi-pro-league-liverpool/
 

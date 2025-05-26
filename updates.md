@@ -1,3 +1,7 @@
+**Roland Garros night slot based on what’s better for fans, says French tennis chief**\
+`Speaking at Roland Garros, a French tennis official said that scheduling decisions that have favored men's matches benefit spectators.`\
+https://nytimes.com/athletic/6382953/2025/05/26/french-open-night-session-tennis-gender-equality/
+
 **Kyle Larson's latest 'Double' gut punch leaves him uncertain about trying again**\
 `Last year, it was weather. This year, crashes. Will Kyle Larson try the Indy 500/Coke 600 "Double" again? "(It's) logistically too tough."`\
 https://nytimes.com/athletic/6382783/2025/05/26/kyle-larson-indy-500-nascar-600-double-crash/
