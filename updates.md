@@ -1,3 +1,7 @@
+**With Knicks on the ropes, the Pacers let go — and let New York back into series**\
+`Indiana has been here before in these playoffs. The Pacers better hope Tuesday's Game 4 brings familiar vibes as well.`\
+https://nytimes.com/athletic/6382180/2025/05/26/nba-playoffs-pacers-knicks-comeback-game-3/
+
 **Venezuela’s Government Claims Victory in Polls Boycotted by Opposition Leader**\
 `Polling places in Caracas, the capital, and other cities were sparsely populated but officials claimed turnout was higher than 40 percent.`\
 https://nytimes.com/2025/05/26/world/americas/venezuela-maduro-regional-election.html
