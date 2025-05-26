@@ -1,3 +1,15 @@
+**Manchester United's season reviewed: Lyon, Amorim and the 'worst team in history'**\
+`Carl Anka reluctantly looks back... and hopes much of what happened stays in the past`\
+https://nytimes.com/athletic/6320637/2025/05/26/manchester-united-season-review-2025/
+
+**Barca review of 2024-25: Flick's great entertainers are just getting started**\
+`Flick has succeeded in restoring pride to Barcelona. The future looks very bright`\
+https://nytimes.com/athletic/6374649/2025/05/26/barcelona-hansi-flick-season-review/
+
+**Charles B. Rangel, Longtime Harlem Congressman, Dies at 94**\
+`As the dean of New York’s delegation and the first Black chairman of the House Ways and Means Committee, he was a powerful political force for decades.`\
+https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead.html
+
 **THE BAT X fantasy baseball cheat sheet: Add Brenton Doyle, stream or start Trevor Larnach**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6377735/2025/05/26/the-bat-x-fantasy-baseball-cheat-sheet-player-name/
