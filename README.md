@@ -1,3 +1,7 @@
+**The N.B.A.’s Age of Dynasties Is Over. Will That Hurt Its Business?**\
+`This year’s playoff ratings are excellent. But is a small-market problem looming?`\
+https://nytimes.com/2025/05/26/business/nba-playoffs-thunder-small-markets.html
+
 **Osaka says coach will wonder 'what the f--- this is'  after French Open loss**\
 `Osaka has endured a series of close defeats to high-ranked players at Grand Slams since her return to tennis in 2024.`\
 https://nytimes.com/athletic/6383367/2025/05/26/naomi-osaka-french-open-news-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374649/2025/05/26/barcelona-hansi-flick-season-rev
 **Charles B. Rangel, Longtime Harlem Congressman, Dies at 94**\
 `As the dean of New York’s delegation and the first Black chairman of the House Ways and Means Committee, he was a powerful political force for decades.`\
 https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead.html
-
-**THE BAT X fantasy baseball cheat sheet: Add Brenton Doyle, stream or start Trevor Larnach**\
-`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6377735/2025/05/26/the-bat-x-fantasy-baseball-cheat-sheet-player-name/
 
