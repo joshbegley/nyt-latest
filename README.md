@@ -7,7 +7,7 @@ https://nytimes.com/2025/05/26/world/asia/gaza-aid-wood-independence-resigns.htm
 https://nytimes.com/athletic/6382572/2025/05/26/trent-alexander-arnold-leaving-liverpool/
 
 **Karl-Anthony Towns' Game 3 gem — a gift to his late mother**\
-`Towns took the Knicks' season off life support, on Dominican Mother's Day no less.`\
+`Towns didn’t just save the Knicks’ season on Sunday. Each shot was a gift to his mother.`\
 https://nytimes.com/athletic/6382725/2025/05/26/karl-anthony-towns-game-3-gift-to-late-mother/
 
 **Breaking down the decision Aston Villa felt cost them the Champions League**\
