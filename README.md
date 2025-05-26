@@ -1,3 +1,23 @@
+**Josh Hart spoke his new role into existence and then helped the Knicks win Game 3**\
+`Rumors had Hart being benched after Game 2. Hart was on the bench at the start of Game 3, but played 34 crucial minutes in the comeback win.`\
+https://nytimes.com/athletic/6382761/2025/05/26/josh-hart-knicks-starting-lineup/
+
+**He Went to Minneapolis and Never Really Left**\
+`A photographer covered protests in the city after George Floyd was murdered. Five years later, he is still working on the story of a city.`\
+https://nytimes.com/2025/05/26/insider/george-floyd-photographs.html
+
+**New to Congress, She’s in the Cross Hairs of Trump’s Justice Department**\
+`Representative LaMonica McIver faces assault charges after a clash outside a migrant detention center in Newark, the city where she rose to political power.`\
+https://nytimes.com/2025/05/26/nyregion/lamonica-mciver-newark-assault-charges.html
+
+**In the U.S., Archaeology Stares Down an Uncertain Future**\
+`Federal layoffs and grant terminations threaten efforts to understand and preserve the nation’s past. “We are getting cut off at the knees,” said one archaeologist.`\
+https://nytimes.com/2025/05/26/science/archaeology-trump-federal-budget.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/26/crosswords/spelling-bee-forum.html
+
 **Head of New Gaza Aid System Resigns Over Lack of Autonomy**\
 `Jake Wood quit the Gaza Humanitarian Foundation, saying it was “not possible” to implement a new Israeli-backed aid system in the enclave while remaining neutral and independent.`\
 https://nytimes.com/2025/05/26/world/asia/gaza-aid-wood-independence-resigns.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-brama
 **Marcel Ophuls, Myth-Shattering War Documentarian, Is Dead at 97**\
 `He was best-known for “The Sorrow and the Pity,” a landmark film that debunked ideas of vast French resistance to the Nazi occupation.`\
 https://nytimes.com/2025/05/26/movies/marcel-ophuls-dead.html
-
-**With Knicks on the ropes, the Pacers let go — and let New York back into series**\
-`Indiana has been here before in these playoffs. The Pacers better hope Tuesday's Game 4 brings familiar vibes as well.`\
-https://nytimes.com/athletic/6382180/2025/05/26/nba-playoffs-pacers-knicks-comeback-game-3/
-
-**Venezuela’s Government Claims Victory in Polls Boycotted by Opposition Leader**\
-`Polling places in Caracas, the capital, and other cities were sparsely populated but officials claimed turnout was higher than 40 percent.`\
-https://nytimes.com/2025/05/26/world/americas/venezuela-maduro-regional-election.html
-
-**Monday Briefing: Trump Delayed E.U. Tariffs**\
-`Plus, Mexico City’s artistic eras.`\
-https://nytimes.com/2025/05/26/briefing/trump-eu-tariffs-russia-ukraine-venezuela.html
-
-**The ‘Summer House’ Reunion, Plus 9 Things to Watch on TV This Week**\
-`The ninth season of the Bravo show wraps up, and Jesse Armstrong’s movie “Mountainhead” airs on HBO.`\
-https://nytimes.com/2025/05/26/arts/television/summer-house-reunion.html
-
-**The New York Times in Print for Monday, May 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/26/todays-new-york-times
 
