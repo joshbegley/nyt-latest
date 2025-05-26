@@ -1,3 +1,11 @@
+**Trump Condemns Putin Over Russia’s Recent Attacks on Ukraine**\
+`President Trump said he was not happy with President Vladimir V. Putin’s decision to unleash one of the largest offensives in Russia’s war against Ukraine.`\
+https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukraine.html
+
+**Brad Marchand ends Blizzard-gate, says midgame snack was honey, not ice cream**\
+`Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
+https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
+
 **Giddy Up, Cowboy Caviar**\
 `It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
 https://nytimes.com/2025/05/26/dining/texas-caviar-recipe.html

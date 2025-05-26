@@ -1,8 +1,12 @@
+**Trump Condemns Putin Over Russia’s Recent Attacks on Ukraine**\
+`President Trump said he was not happy with President Vladimir V. Putin’s decision to unleash one of the largest offensives in Russia’s war against Ukraine.`\
+https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukraine.html
+
 **Trump Condemns Putin’s Killings in Ukraine, But Doesn’t Make Him Pay a Price**\
 `President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
 https://nytimes.com/2025/05/26/us/politics/trump-putin.html
 
-**Brad Marchand ends Blizzard-gate, says midgame snack was honey: 'Growing up, I loved Winnie the Pooh'**\
+**Brad Marchand ends Blizzard-gate, says midgame snack was honey, not ice cream**\
 `Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
 https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/arts/design/chiharu-shiota-boston-ica.html
 **Giddy Up, Cowboy Caviar**\
 `It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
 https://nytimes.com/2025/05/26/dining/texas-caviar-recipe.html
-
-**Canucks free-agent targets: 12 pending RFAs worth tendering an offer sheet**\
-`Let's go over some of the restricted free agent candidates that the Canucks could consider this summer.`\
-https://nytimes.com/athletic/6382756/2025/05/26/canucks-free-agent-targets-2025-rfas/
 
