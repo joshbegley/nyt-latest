@@ -1,3 +1,7 @@
+**The N.B.A.’s Age of Dynasties Is Over. Will That Hurt Its Business?**\
+`This year’s playoff ratings are excellent. But is a small-market problem looming?`\
+https://nytimes.com/2025/05/26/business/nba-playoffs-thunder-small-markets.html
+
 **Osaka says coach will wonder 'what the f--- this is'  after French Open loss**\
 `Osaka has endured a series of close defeats to high-ranked players at Grand Slams since her return to tennis in 2024.`\
 https://nytimes.com/athletic/6383367/2025/05/26/naomi-osaka-french-open-news-conference/
