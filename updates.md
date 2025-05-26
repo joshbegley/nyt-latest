@@ -1,3 +1,11 @@
+**Trent Alexander-Arnold and the leaving of Liverpool**\
+`The emotional rollercoaster of Alexander-Arnold's final weeks illustrate what he stands to lose, whatever the obvious attractions of Madrid.`\
+https://nytimes.com/athletic/6382572/2025/05/26/trent-alexander-arnold-leaving-liverpool/
+
+**Karl-Anthony Towns' Game 3 gem — a gift to his late mother**\
+`Towns took the Knicks' season off life support, on Dominican Mother's Day no less.`\
+https://nytimes.com/athletic/6382725/2025/05/26/karl-anthony-towns-game-3-gift-to-late-mother/
+
 **Breaking down the decision Aston Villa felt cost them the Champions League**\
 `Why was decision made? Why couldn't VAR intervene? What does it mean for Villa?`\
 https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-bramall/
