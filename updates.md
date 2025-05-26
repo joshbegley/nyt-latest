@@ -1,3 +1,7 @@
+**What to Read this Summer**\
+`We have a list from an editor of the Book Review.`\
+https://nytimes.com/2025/05/26/briefing/summer-reading.html
+
 **Rosicky expected to make full recovery after being hospitalised with heart-related issue**\
 `The club confirmed that he did not require surgery, but he is expected to make a full recovery `\
 https://nytimes.com/athletic/6382959/2025/05/26/arsenal-tomas-rosicky-hospital-sparta-prague/
