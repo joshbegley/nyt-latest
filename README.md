@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6380455/2025/05/26/packers-matthew-golden-jordan-lo
 `A season which promised so much for Madrid is one fans now want to forget as soon as possible`\
 https://nytimes.com/athletic/6367852/2025/05/26/real-madrid-2024-25-mbappe-ancelotti/
 
+**How Champions League winners Arsenal benefited from top coaching and a tight league table**\
+`The appointment of Renee Slegers proved timely, with the WSL testing Arsenal's ability to grind out results to stand them in good stead`\
+https://nytimes.com/athletic/6380082/2025/05/26/arsenal-slegers-champions-league-barcelona/
+
 **Connections Companion No. 716**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 27, 2025.`\
 https://nytimes.com/2025/05/26/crosswords/connections-companion-716.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/05/26/todays-new-york-times-internatio
 **Man United's head of performance analysis Brand to leave after 12 years**\
 `The 37-year-old feels it is the right time to seek a new challenge, and United will be sad to see him go.`\
 https://nytimes.com/athletic/6382910/2025/05/26/man-united-paul-brand-departure/
-
-**Ten Hag appointed as Leverkusen head coach: What post-Alonso future holds**\
-`Ten Hag has been out of work since his sacking by Manchester United in October and has signed a deal until 2027.`\
-https://nytimes.com/athletic/6379764/2025/05/26/erik-ten-hag-leverkusen-manager/
 
