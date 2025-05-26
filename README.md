@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
 
 **Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
-`It was not immediately clear if there were injuries. The police said they detained a man in connection with the crash.`\
+`It was not immediately clear if there were injuries. The police said they detained a man in connection with the crash as crowds gathered to celebrate a Premier League title.`\
 https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
 
 **Trump Suggests Giving Trade Schools Money Taken From Harvard**\

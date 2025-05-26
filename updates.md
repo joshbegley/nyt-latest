@@ -1,3 +1,24 @@
+**Caitlin Clark to miss at least two weeks with left quad injury**\
+`Indiana is 2-2 and will be without Clark for at least its next three games.`\
+https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
+
+**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
+`It was not immediately clear if there were injuries. The police said they detained a man in connection with the crash.`\
+https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
+
+**Trump Suggests Giving Trade Schools Money Taken From Harvard**\
+`In a social media post, the president mused about redirecting $3 billion in research grant funding that his administration has frozen or withdrawn, but he gave no details.`\
+https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
+
+**Man detained after car collides with pedestrians at Liverpool's Premier League trophy parade**\
+`Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
+https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
+
+**Champions League final betting: Four unlikely goalscorers who could make history**\
+`Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
+
 **Champions League final betting: Four unlikely goalscorers who could make history**\
 `Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
 `\

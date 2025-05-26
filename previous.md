@@ -1,4 +1,16 @@
-**Man detained after road traffic collision at Liverpool's Premier League trophy parade**\
+**Caitlin Clark to miss at least two weeks with left quad injury**\
+`Indiana is 2-2 and will be without Clark for at least its next three games.`\
+https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
+
+**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
+`It was not immediately clear if there were injuries. The police said they detained a man in connection with the crash.`\
+https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
+
+**Trump Suggests Giving Trade Schools Money Taken From Harvard**\
+`In a social media post, the president mused about redirecting $3 billion in research grant funding that his administration has frozen or withdrawn, but he gave no details.`\
+https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
+
+**Man detained after car collides with pedestrians at Liverpool's Premier League trophy parade**\
 `Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
 https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
 
@@ -26,16 +38,4 @@ https://nytimes.com/2025/05/26/business/house-bill-takes-aim-at-tax-break-for-sp
 **The N.B.A.’s Age of Dynasties Is Over. Will That Hurt Its Business?**\
 `This year’s playoff ratings are excellent. But is a small-market problem looming?`\
 https://nytimes.com/2025/05/26/business/nba-playoffs-thunder-small-markets.html
-
-**Osaka says coach will wonder 'what the f--- this is'  after French Open loss**\
-`Osaka has endured a series of close defeats to high-ranked players at Grand Slams since her return to tennis in 2024.`\
-https://nytimes.com/athletic/6383367/2025/05/26/naomi-osaka-french-open-news-conference/
-
-**NCAA baseball tournament field revealed: Vanderbilt earns No. 1 seed**\
-`The Commodores have won eight consecutive games, including three straight to capture the SEC tournament title. `\
-https://nytimes.com/athletic/6383303/2025/05/26/ncaa-college-baseball-bracket-reveal-selection-tournament-2/
-
-**Trump Condemns Putin Over Russia’s Recent Attacks on Ukraine**\
-`President Trump said he was not happy with President Vladimir V. Putin’s decision to unleash one of the largest offensives in Russia’s war against Ukraine.`\
-https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukraine.html
 
