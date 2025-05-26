@@ -33,7 +33,7 @@ https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-
 
 **House Bill Takes Aim at Tax Break for Sports Owners**\
 `The legislation cuts in half a tax write-off potentially worth hundreds of millions to some professional sports team owners.`\
-https://nytimes.com/2025/05/26/business/house-bill-takes-aim-at-tax-break-for-sports-owners.html
+https://nytimes.com/2025/05/26/business/house-budget-bill-taxes-sports-owners.html
 
 **The N.B.A.’s Age of Dynasties Is Over. Will That Hurt Its Business?**\
 `This year’s playoff ratings are excellent. But is a small-market problem looming?`\
