@@ -1,3 +1,11 @@
+**Hurricanes turn back to Frederik Andersen in net for do-or-die Game 4 vs. Panthers**\
+`Coach Rod Brind'Amour announced that Andersen will start Monday after being pulled in Game 2 and benched in Game 3.`\
+https://nytimes.com/athletic/6383558/2025/05/26/frederik-andersen-hurricanes-start-game-4-nhl-playoffs/
+
+**Former Austrian Chancellor Cleared of Perjury, but Legal Woes Remain**\
+`Sebastian Kurz, who became Austria’s youngest chancellor when he took office in December 2017 at 31, led two troubled governments.`\
+https://nytimes.com/2025/05/26/world/europe/sebastian-kurz-austria-perjury.html
+
 **Champions League final betting: Four unlikely goalscorers who could make history**\
 `Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/26/us/politics/trump-putin.html
 **Brad Marchand ends Blizzard-gate, says midgame snack was honey, not ice cream**\
 `Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
 https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
-
-**Tyrese Haliburton's dad allowed to attend Pacers home games**\
-`John Haliburton missed the Pacers’ second-round series against the Cavs following an on-court confrontation with Giannis Antetokounmpo.`\
-https://nytimes.com/athletic/6383415/2025/05/26/tyrese-haliburton-father-pacers-knicks-game-4/
-
-**Manchester United's season reviewed: Lyon, Amorim and the 'worst team in history'**\
-`Carl Anka reluctantly looks back... and hopes much of what happened stays in the past`\
-https://nytimes.com/athletic/6320637/2025/05/26/manchester-united-season-review-2025/
 
