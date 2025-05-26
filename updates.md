@@ -1,3 +1,7 @@
+**Red Light: On track to repeat history. Plus: Who's primed to be the ultimate loser?**\
+`The conference finals haven’t exactly been big on drama so far and we could be headed for a repeat of last year's Stanley Cup Final.`\
+https://nytimes.com/athletic/6383049/2025/05/26/on-track-to-repeat-history-plus-whos-primed-to-be-the-ultimate-loser/
+
 **Lowetide: Oilers pushing for Cup shows off the soul of Edmonton**\
 `Should this year's Oilers win it all, several generations of fans will take part in the celebration.`\
 https://nytimes.com/athletic/6381542/2025/05/26/edmonton-oilers-nhl-playoffs-2025-soul/
