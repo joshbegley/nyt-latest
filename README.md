@@ -7,7 +7,7 @@ https://nytimes.com/2025/05/25/arts/television/the-last-of-us-recap-season-2-fin
 https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
 
 **Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
-`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the trip.`\
+`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
 https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
 
 **Watch out, NHL: The goals have started going in for Connor McDavid again**\
