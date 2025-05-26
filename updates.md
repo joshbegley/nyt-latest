@@ -1,3 +1,7 @@
+**Newcastle's Wilson says he experienced 'suicidal moments' during difficult childhood**\
+`The 33-year-old spoke about foster care, being moved from school to school and senior figures in his life dealing with alcoholism.`\
+https://nytimes.com/athletic/6383063/2025/05/26/newcastle-callum-wilson-mental-health/
+
 **No Corrections: May 26, 2025**\
 `No corrections appeared in print on Monday, May 26, 2025.`\
 https://nytimes.com/2025/05/26/pageoneplus/no-corrections-may-26-2025.html
