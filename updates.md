@@ -1,3 +1,16 @@
+**Caitlin Clark to miss at least 2 weeks with left quad injury**\
+`Indiana is 2-2 and will be without Clark for at least its next three games.`\
+https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
+
+**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
+`It was not immediately clear if there were injuries. The police said they detained a man in connection with the crash as crowds gathered to celebrate a Premier League title.`\
+https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
+
+**Champions League final betting: Four unlikely goalscorers who could make history**\
+`Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
+
 **Champions League final betting: Four unlikely goalscorers who could make history**\
 `Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
 `\
