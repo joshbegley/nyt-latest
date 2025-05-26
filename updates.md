@@ -1,3 +1,11 @@
+**Reds score early, lose late as Cubs take series: 4 takeaways**\
+`The Reds led after six innings in both losses in the series. Once the lead goes, Cincinnati's bats have gone silent.`\
+https://nytimes.com/athletic/6382467/2025/05/25/reds-lose-series-cubs-takeaways/
+
+**Seven trends to watch as Cardinals soar season-best 7 games over .500**\
+`Nolan Arenado returning to his Gold Glove form ranks among the many surprises during the Cardinals' hot start. `\
+https://nytimes.com/athletic/6381708/2025/05/25/cardinals-trends-to-watch/
+
 **Texas Doctor Who Filed $118 Million in Fraudulent Medical Claims Gets 10 Years in Prison**\
 `Jorge Zamora-Quezada falsely diagnosed patients with a chronic disease and subjected them to unnecessary treatments to help fund his lavish lifestyle, officials said.`\
 https://nytimes.com/2025/05/25/us/texas-doctor-fraud-scheme.html
