@@ -1,3 +1,7 @@
+**Winnipeg Jets offseason priorities: Get clarity on Nikolaj Ehlers, seek term with RFAs**\
+`Here are the Jets’ eight biggest offseason priorities.`\
+https://nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/
+
 **Noem Visits Israel Amid Tensions Between Trump and Netanyahu**\
 `Kristi Noem, the homeland security secretary, expressed continued U.S. support for Israel despite recent disagreements.`\
 https://nytimes.com/2025/05/26/us/politics/noem-israel-trump-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/26/us/trump-news
 **Mirtle: How can the Leafs get better while losing a star player (or 2) this offseason?**\
 `This will be the most complex offseason the Leafs have had in a long time. They need to make smart decisions, be cutthroat and creative.`\
 https://nytimes.com/athletic/6376929/2025/05/26/maple-leafs-mitch-marner-john-tavares-offseason/
-
-**USMNT Tracker Awards: Player of the season? Best XI? Who disappointed?**\
-`Who will win the coveted (sort of) Ballon d’Tracker?`\
-https://nytimes.com/athletic/6378087/2025/05/26/2025-tracker-awards-usmnt/
 

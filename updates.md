@@ -1,3 +1,7 @@
+**Noem Visits Israel Amid Tensions Between Trump and Netanyahu**\
+`Kristi Noem, the homeland security secretary, expressed continued U.S. support for Israel despite recent disagreements.`\
+https://nytimes.com/2025/05/26/us/politics/noem-israel-trump-netanyahu.html
+
 **Trump’s Comments on Gaza Reflect Israel’s Growing Isolation**\
 `For months, Israel’s strongest allies had been reluctant to join a wave of global censure against the war. Now, even the Trump administration appears to be growing impatient.`\
 https://nytimes.com/2025/05/26/world/middleeast/israel-gaza-trump-isolation.html
