@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitm
 `For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
 https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
 
-**Trump Praises Military Service, and His Return to Office, in Memorial Day Remarks**\
+**Trump Praises Military, and His Return to Office, in Memorial Day Remarks**\
 `In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
 https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
 

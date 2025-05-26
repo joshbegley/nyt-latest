@@ -1,3 +1,7 @@
+**Trump Praises Military, and His Return to Office, in Memorial Day Remarks**\
+`In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
+https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
+
 **At Memorial Day, the Cubs look dangerous and are primed for a fun summer**\
 `At 33-21, the Cubs are 12 games over .500 before June for the first time since 2016. `\
 https://nytimes.com/athletic/6383901/2025/05/26/chicago-cubs-memorial-day-check-in/
