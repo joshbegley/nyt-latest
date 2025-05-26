@@ -1,3 +1,7 @@
+**THE BAT X fantasy baseball cheat sheet: Add Brenton Doyle, stream or start Trevor Larnach**\
+`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6377735/2025/05/26/the-bat-x-fantasy-baseball-cheat-sheet-player-name/
+
 **Building a Home From 100 Miles of Cord**\
 `Chiharu Shiota, a Berlin-based artist, has conjured a multitude of immigrant stories in “Home Less Home,” her largest museum show in the U.S.`\
 https://nytimes.com/2025/05/26/arts/design/chiharu-shiota-boston-ica.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383260/2025/05/26/hugo-ekitike-chelsea-eintracht-f
 **Judge in Hockey Canada case delivers another blow to critical piece of evidence for Crown**\
 `Justice Maria Carroccia ruled Monday that Brett Howden's text message will not be admissible in the Hockey Canada sexual assault trial.`\
 https://nytimes.com/athletic/6383200/2025/05/26/hockey-canada-trial-brett-howden-text-message/
-
-**American men's No. 1 Taylor Fritz exits French Open in first-round upset**\
-`Fritz, the world No. 4, has struggled this season as he tries to manage an abdominal injury.`\
-https://nytimes.com/athletic/6383240/2025/05/26/tennis-taylor-fritz-french-open-daniel-altmaier-result-analysis/
 

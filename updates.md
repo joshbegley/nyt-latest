@@ -1,3 +1,7 @@
+**THE BAT X fantasy baseball cheat sheet: Add Brenton Doyle, stream or start Trevor Larnach**\
+`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6377735/2025/05/26/the-bat-x-fantasy-baseball-cheat-sheet-player-name/
+
 **Building a Home From 100 Miles of Cord**\
 `Chiharu Shiota, a Berlin-based artist, has conjured a multitude of immigrant stories in “Home Less Home,” her largest museum show in the U.S.`\
 https://nytimes.com/2025/05/26/arts/design/chiharu-shiota-boston-ica.html
