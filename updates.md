@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-
 `\
 https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
 
+**Champions League final betting: Four unlikely goalscorers who could make history**\
+`Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
+
 **House Bill Takes Aim at Tax Break for Sports Owners**\
 `The legislation cuts in half a tax write-off potentially worth hundreds of millions to some professional sports team owners.`\
 https://nytimes.com/2025/05/26/business/house-bill-takes-aim-at-tax-break-for-sports-owners.html
