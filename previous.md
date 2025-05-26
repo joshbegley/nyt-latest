@@ -1,3 +1,7 @@
+**Man United's head of performance analysis Brand to leave after 12 years**\
+`The 37-year-old feels it is the right time to seek a new challenge, and United will be sad to see him go.`\
+https://nytimes.com/athletic/6382910/2025/05/26/man-united-paul-brand-departure/
+
 **Ten Hag appointed as Leverkusen head coach: What post-Alonso future holds**\
 `Ten Hag has been out of work since his sacking by Manchester United in October and has signed a deal until 2027.`\
 https://nytimes.com/athletic/6379764/2025/05/26/erik-ten-hag-leverkusen-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/arts/music/sean-combs-trial-lines-courthouse.html
 **Trump Says Retailers Should ‘Eat the Tariffs.’ Good Luck With That.**\
 `Companies can’t deny reality.`\
 https://nytimes.com/2025/05/26/opinion/trump-walmart-tariffs.html
-
-**50 Years After Saigon’s Fall, ‘the Wall’ Reflects and Collects a Nation’s Trauma**\
-`The Vietnam Veterans Memorial is a place of unexplainable power, many visitors say. Volunteer guides often speak of it as “Wall magic.”`\
-https://nytimes.com/2025/05/26/us/vietnam-war-memorial-veterans.html
 

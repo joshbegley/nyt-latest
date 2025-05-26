@@ -1,3 +1,7 @@
+**Man United's head of performance analysis Brand to leave after 12 years**\
+`The 37-year-old feels it is the right time to seek a new challenge, and United will be sad to see him go.`\
+https://nytimes.com/athletic/6382910/2025/05/26/man-united-paul-brand-departure/
+
 **Ten Hag appointed as Leverkusen head coach: What post-Alonso future holds**\
 `Ten Hag has been out of work since his sacking by Manchester United in October and has signed a deal until 2027.`\
 https://nytimes.com/athletic/6379764/2025/05/26/erik-ten-hag-leverkusen-manager/
