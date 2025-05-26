@@ -1,3 +1,7 @@
+**The Pulse: Another unbelievable comeback**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6382645/2025/05/26/knicks-pacers-comeback-game-3-the-pulse/
+
 **Salah: Saudi Pro League talks were 'serious'**\
 `Salah broke the record previously held by Thierry Henry (44) for goal involvements in a 38-game Premier League season.`\
 https://nytimes.com/athletic/6382982/2025/05/26/salah-saudi-pro-league-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382132/2025/05/26/giro-ditalia-week-two-del-toro/
 **Which NHL team should win the 2025 Conned Smythe for worst trade with a contender?**\
 `When it comes to NHL trades, some work out for both sides. Some not so much, and that's where the Conned Smythe comes in.`\
 https://nytimes.com/athletic/6381672/2025/05/26/nhl-playoffs-conned-smythe-trade-2025/
-
-**New side of Brad Marchand: How the iconic Bruin fit in so well, and quickly, with Panthers**\
-`Marchand has had run-ins with many Panthers in the past, including Sam Bennett: "Uhhhhh, he's got a good right hook."`\
-https://nytimes.com/athletic/6381852/2025/05/26/brad-marchand-panthers-bruins-fit/
 

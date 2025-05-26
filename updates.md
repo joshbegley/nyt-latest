@@ -1,3 +1,7 @@
+**The Pulse: Another unbelievable comeback**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6382645/2025/05/26/knicks-pacers-comeback-game-3-the-pulse/
+
 **Salah: Saudi Pro League talks were 'serious'**\
 `Salah broke the record previously held by Thierry Henry (44) for goal involvements in a 38-game Premier League season.`\
 https://nytimes.com/athletic/6382982/2025/05/26/salah-saudi-pro-league-liverpool/
