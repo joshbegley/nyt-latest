@@ -1,3 +1,11 @@
+**Rosicky expected to make full recovery after being hospitalised with heart-related issue**\
+`The club confirmed that he did not require surgery, but he is expected to make a full recovery `\
+https://nytimes.com/athletic/6382959/2025/05/26/arsenal-tomas-rosicky-hospital-sparta-prague/
+
+**Newcastle opt against taking up Wilson option, in talks over new deal**\
+`The 33-year-old has largely played a secondary role this term, acting as back-up to Alexander Isak.`\
+https://nytimes.com/athletic/6302416/2025/05/26/newcastle-callum-wilson-contract-option/
+
 **Commanders ahead of OTAs: Potential awards to hand out during practice sessions**\
 `As Washington prepares for its first of three voluntary OTA weeks, we list — in our own way — some key things to watch before training camp.`\
 https://nytimes.com/athletic/6376627/2025/05/26/commanders-2025-organized-team-activity-awards/

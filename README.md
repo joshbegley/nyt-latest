@@ -1,3 +1,7 @@
+**What to Read this Summer**\
+`We have a list from an editor of the Book Review.`\
+https://nytimes.com/2025/05/26/briefing/summer-reading.html
+
 **Rosicky expected to make full recovery after being hospitalised with heart-related issue**\
 `The club confirmed that he did not require surgery, but he is expected to make a full recovery `\
 https://nytimes.com/athletic/6382959/2025/05/26/arsenal-tomas-rosicky-hospital-sparta-prague/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/crosswords/connections-companion-716.html
 **Wordle Review No. 1,438**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 27, 2025.`\
 https://nytimes.com/2025/05/26/crosswords/wordle-review-1438.html
-
-**As Ravens prepare for OTAs, the focus will be on the rookies and unsettled roles**\
-`OTAs will provide the first extended look at the 2025 Ravens. Which veterans will show up, and will the rookies look the part early on?`\
-https://nytimes.com/athletic/6378616/2025/05/26/ravens-2025-organized-team-activities/
 
