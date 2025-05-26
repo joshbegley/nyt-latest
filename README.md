@@ -1,3 +1,11 @@
+**Trent Alexander-Arnold and the leaving of Liverpool**\
+`The emotional rollercoaster of Alexander-Arnold's final weeks illustrate what he stands to lose, whatever the obvious attractions of Madrid.`\
+https://nytimes.com/athletic/6382572/2025/05/26/trent-alexander-arnold-leaving-liverpool/
+
+**Karl-Anthony Towns' Game 3 gem — a gift to his late mother**\
+`Towns took the Knicks' season off life support, on Dominican Mother's Day no less.`\
+https://nytimes.com/athletic/6382725/2025/05/26/karl-anthony-towns-game-3-gift-to-late-mother/
+
 **Breaking down the decision Aston Villa felt cost them the Champions League**\
 `Why was decision made? Why couldn't VAR intervene? What does it mean for Villa?`\
 https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-bramall/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/05/26/todays-new-york-times
 **We Are Not Being Asked to Run Into Cannon Fire. We Just Need to Speak Up.**\
 `At a time of national crisis, Memorial Day reminds us to honor past sacrifices by standing up for democracy.`\
 https://nytimes.com/2025/05/26/opinion/memorial-day-democracy-crisis.html
-
-**Erdogan Might Have Finally Gone Too Far**\
-`The international community does not seem poised to prevent Erdogan from setting Turkey on the path to autocracy. Nevertheless, he might still fail.`\
-https://nytimes.com/2025/05/26/opinion/turkey-erdogan-imamoglu.html
-
-**What to do about Joao Pedro...**\
-`Selling Joao Pedro if a big offer materialises and reinvesting the money on squad strengthening could be tempting in the circumstances`\
-https://nytimes.com/athletic/6374749/2025/05/26/joao-pedro-brighton-future-transfer/
 
