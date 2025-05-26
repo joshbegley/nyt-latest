@@ -1,3 +1,7 @@
+**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
+`The police said they had detained a 53-year-old man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
+https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
+
 **PJ Haggerty, former Memphis guard, commits to Kansas State**\
 `Haggerty won the 2024-25 AAC Player of the Year award following his solid season with Memphis.`\
 https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitment-transfer/
