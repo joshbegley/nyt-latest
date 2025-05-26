@@ -1,3 +1,7 @@
+**Napoli sporting director says club can 'see the finish line' in De Bruyne talks**\
+`Napoli owner Aurelio De Laurentiis said the deal was not yet finalised but that he held positive discussions with De Bruyne on Monday.`\
+https://nytimes.com/athletic/6383806/2025/05/26/kevin-de-bruyne-napoli-talks/
+
 **Tuesday Briefing: U.S. and E.U. Talk Trade**\
 `Plus, defining Sweden’s culture.`\
 https://nytimes.com/2025/05/26/briefing/us-eu-trade-russia-ukraine-attacks-south-korea-women-politics.html
