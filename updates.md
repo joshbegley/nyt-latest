@@ -1,3 +1,19 @@
+**U.S. envoy says the Syrian government will help find missing Americans or their remains.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-government-will-help-find-missing-americans-or-their-remains
+
+**Trump Administration Live Updates: President Delays E.U. Tariffs to Allow More Time for Negotiations**\
+``\
+https://nytimes.com/live/2025/05/26/us/trump-news
+
+**Mirtle: How can the Leafs get better while losing a star player (or 2) this offseason?**\
+`This will be the most complex offseason the Leafs have had in a long time. They need to make smart decisions, be cutthroat and creative.`\
+https://nytimes.com/athletic/6376929/2025/05/26/maple-leafs-mitch-marner-john-tavares-offseason/
+
+**USMNT Tracker Awards: Player of the season? Best XI? Who disappointed?**\
+`Who will win the coveted (sort of) Ballon d’Tracker?`\
+https://nytimes.com/athletic/6378087/2025/05/26/2025-tracker-awards-usmnt/
+
 **The Pulse: Another unbelievable comeback**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6382645/2025/05/26/knicks-pacers-comeback-game-3-the-pulse/

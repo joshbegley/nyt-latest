@@ -1,3 +1,19 @@
+**U.S. envoy says the Syrian government will help find missing Americans or their remains.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-government-will-help-find-missing-americans-or-their-remains
+
+**Trump Administration Live Updates: President Delays E.U. Tariffs to Allow More Time for Negotiations**\
+``\
+https://nytimes.com/live/2025/05/26/us/trump-news
+
+**Mirtle: How can the Leafs get better while losing a star player (or 2) this offseason?**\
+`This will be the most complex offseason the Leafs have had in a long time. They need to make smart decisions, be cutthroat and creative.`\
+https://nytimes.com/athletic/6376929/2025/05/26/maple-leafs-mitch-marner-john-tavares-offseason/
+
+**USMNT Tracker Awards: Player of the season? Best XI? Who disappointed?**\
+`Who will win the coveted (sort of) Ballon d’Tracker?`\
+https://nytimes.com/athletic/6378087/2025/05/26/2025-tracker-awards-usmnt/
+
 **The Pulse: Another unbelievable comeback**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6382645/2025/05/26/knicks-pacers-comeback-game-3-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6382224/2025/05/26/why-the-2025-blue-jays-are-still
 **Van Dijk says it was his idea to have Hansen present Premier League trophy**\
 `"I was very determined to make sure that he was going to be the one who handed the trophy to me," Van Dijk said.`\
 https://nytimes.com/athletic/6382981/2025/05/26/liverpool-van-dijk-hansen/
-
-**Star who best fits in Toronto, overpaying free agents and more: Raptors mailbag**\
-`How long will Toronto's core be in place?`\
-https://nytimes.com/athletic/6378003/2025/05/26/toronto-raptors-brandon-ingram-mailbag-nba/
-
-**College baseball coaches must be stopped from abusing pitchers' arms: Law**\
-`MLB seems to want colleges to replace some of their player development. That's a dangerous idea with the track record of college coaches.`\
-https://nytimes.com/athletic/6380136/2025/05/26/college-baseball-pitcher-usage-abuse/
-
-**Giro d’Italia week two: Can Mexico's starlet Del Toro hold pink jersey to Rome?**\
-`The 21-year-old's surge is a positive for Latin American cycling, but is causing some slight issues among his team...`\
-https://nytimes.com/athletic/6382132/2025/05/26/giro-ditalia-week-two-del-toro/
-
-**Which NHL team should win the 2025 Conned Smythe for worst trade with a contender?**\
-`When it comes to NHL trades, some work out for both sides. Some not so much, and that's where the Conned Smythe comes in.`\
-https://nytimes.com/athletic/6381672/2025/05/26/nhl-playoffs-conned-smythe-trade-2025/
 
