@@ -1,3 +1,7 @@
+**Four Former VW Managers Found Guilty in Emissions Trial**\
+`The men were accused of conspiring to conceal excess diesel emissions from regulators, helping to provoke a costly scandal.`\
+https://nytimes.com/2025/05/26/business/volkswagen-emissions-trial.html
+
 **Winnipeg Jets offseason priorities: Get clarity on Nikolaj Ehlers, seek term with RFAs**\
 `Here are the Jets’ eight biggest offseason priorities.`\
 https://nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/
