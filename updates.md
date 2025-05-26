@@ -1,3 +1,7 @@
+**Understanding Lapses in Learning**\
+`Readers, including Gov. Jared Polis of Colorado, discuss the state of education in America. Also: Better robots or better humans?`\
+https://nytimes.com/2025/05/26/opinion/education-learning.html
+
 **Four Former VW Managers Found Guilty in Emissions Trial**\
 `The men were accused of conspiring to conceal excess diesel emissions from regulators, helping to provoke a costly scandal.`\
 https://nytimes.com/2025/05/26/business/volkswagen-emissions-trial.html

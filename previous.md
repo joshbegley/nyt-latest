@@ -1,3 +1,7 @@
+**Understanding Lapses in Learning**\
+`Readers, including Gov. Jared Polis of Colorado, discuss the state of education in America. Also: Better robots or better humans?`\
+https://nytimes.com/2025/05/26/opinion/education-learning.html
+
 **Four Former VW Managers Found Guilty in Emissions Trial**\
 `The men were accused of conspiring to conceal excess diesel emissions from regulators, helping to provoke a costly scandal.`\
 https://nytimes.com/2025/05/26/business/volkswagen-emissions-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382912/2025/05/26/pacers-loss-game-3-knicks-nba-pl
 **U.S. envoy says the Syrian government will help find missing Americans or their remains.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-government-will-help-find-missing-americans-or-their-remains
-
-**Trump Administration Live Updates: President Delays E.U. Tariffs to Allow More Time for Negotiations**\
-``\
-https://nytimes.com/live/2025/05/26/us/trump-news
 
