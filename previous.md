@@ -32,7 +32,7 @@ https://nytimes.com/2025/05/26/arts/design/chiharu-shiota-boston-ica.html
 
 **Giddy Up, Cowboy Caviar**\
 `It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
-https://nytimes.com/2025/05/26/dining/easy-cowboy-caviar-recipe-to-feed-a-crowd.html
+https://nytimes.com/2025/05/26/dining/texas-caviar-recipe.html
 
 **Canucks free-agent targets: 12 pending RFAs worth tendering an offer sheet**\
 `Let's go over some of the restricted free agent candidates that the Canucks could consider this summer.`\

@@ -2,7 +2,7 @@
 `President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
 https://nytimes.com/2025/05/26/us/politics/trump-putin.html
 
-**Brad Marchand ends Blizzard-gate, says midgame snack was honey: 'Growing up, I loved Winnie the Pooh'**\
+**Brad Marchand ends Blizzard-gate, says midgame snack was honey, not ice cream**\
 `Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
 https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
 

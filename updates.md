@@ -1,3 +1,7 @@
+**Giddy Up, Cowboy Caviar**\
+`It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
+https://nytimes.com/2025/05/26/dining/texas-caviar-recipe.html
+
 **Trump Condemns Putin’s Killings in Ukraine, But Doesn’t Make Him Pay a Price**\
 `President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
 https://nytimes.com/2025/05/26/us/politics/trump-putin.html
