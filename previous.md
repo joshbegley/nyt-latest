@@ -1,3 +1,11 @@
+**Trump Praises Military Service, and His Return to Office, in Memorial Day Remarks**\
+`In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
+https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
+
+**Indy 500 runner-up Marcus Ericsson dropped to 31st after failed inspection**\
+`Ericsson's car was one of three penalized after race. Each team was docked its race earnings and fined $100,000.`\
+https://nytimes.com/athletic/6383639/2025/05/26/indy-500-marcus-ericsson-penalty/
+
 **Police on Scene After Car Plows Into Crowd in Liverpool**\
 `Local police said they detained a man in connection with a car that was driven through a crowd of people attending a soccer parade on Monday.`\
 https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plowing.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6383558/2025/05/26/frederik-andersen-hurricanes-sta
 **Former Austrian Chancellor Cleared of Perjury, but Legal Woes Remain**\
 `Sebastian Kurz, who became Austria’s youngest chancellor when he took office in December 2017 at 31, led two troubled governments.`\
 https://nytimes.com/2025/05/26/world/europe/sebastian-kurz-austria-perjury.html
-
-**Champions League final betting: Four unlikely goalscorers who could make history**\
-`Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
-`\
-https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
-
-**House Bill Takes Aim at Tax Break for Sports Owners**\
-`The legislation cuts in half a tax write-off potentially worth hundreds of millions to some professional sports team owners.`\
-https://nytimes.com/2025/05/26/business/house-budget-bill-taxes-sports-owners.html
 

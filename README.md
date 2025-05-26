@@ -1,3 +1,7 @@
+**Republican Vote Against E.V. Mandate Was Also a Vote Against California**\
+`For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
+https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
+
 **Trump Praises Military Service, and His Return to Office, in Memorial Day Remarks**\
 `In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
 https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
@@ -15,7 +19,7 @@ https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plow
 https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
 
 **Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
-`It was not immediately clear if there were injuries. The police said they detained a man in connection with the crash as crowds gathered to celebrate a Premier League title.`\
+`The police said they had detained a 53-year-old white man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
 https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
 
 **Trump Suggests Giving Trade Schools Money Taken From Harvard**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/world/africa/trump-deportations-south-sudan.html
 **Hurricanes turn back to Frederik Andersen in net for do-or-die Game 4 vs. Panthers**\
 `Coach Rod Brind'Amour announced that Andersen will start Monday after being pulled in Game 2 and benched in Game 3.`\
 https://nytimes.com/athletic/6383558/2025/05/26/frederik-andersen-hurricanes-start-game-4-nhl-playoffs/
-
-**Former Austrian Chancellor Cleared of Perjury, but Legal Woes Remain**\
-`Sebastian Kurz, who became Austria’s youngest chancellor when he took office in December 2017 at 31, led two troubled governments.`\
-https://nytimes.com/2025/05/26/world/europe/sebastian-kurz-austria-perjury.html
 
