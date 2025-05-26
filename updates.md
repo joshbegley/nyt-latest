@@ -1,3 +1,7 @@
+**PJ Haggerty, former Memphis guard, commits to Kansas State**\
+`Haggerty won the 2024-25 AAC Player of the Year award following his solid season with Memphis.`\
+https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitment-transfer/
+
 **Republican Vote Against E.V. Mandate Was Also a Vote Against California**\
 `For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
 https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
