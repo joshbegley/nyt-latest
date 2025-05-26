@@ -1,3 +1,7 @@
+**Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
+`The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will he return change things?`\
+https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
+
 **Indy 500 makes history on the track — and with TV viewership**\
 `INDIANAPOLIS — Fox Sports CEO Eric Shanks had major aspirations for how his network could transform the Indy 500 in its first year as partners.`\
 https://nytimes.com/athletic/6383797/2025/05/26/indy-500-viewership-ratings-fox-sports/

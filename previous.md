@@ -1,3 +1,7 @@
+**Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
+`The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will he return change things?`\
+https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
+
 **Indy 500 makes history on the track — and with TV viewership**\
 `INDIANAPOLIS — Fox Sports CEO Eric Shanks had major aspirations for how his network could transform the Indy 500 in its first year as partners.`\
 https://nytimes.com/athletic/6383797/2025/05/26/indy-500-viewership-ratings-fox-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
 **Indy 500 runner-up Marcus Ericsson dropped to 31st after failed inspection**\
 `Ericsson's car was one of three penalized after race. Each team was docked its race earnings and fined $100,000.`\
 https://nytimes.com/athletic/6383639/2025/05/26/indy-500-marcus-ericsson-penalty/
-
-**Police on Scene After Car Plows Into Crowd in Liverpool**\
-`Local police said they detained a man in connection with a car that was driven through a crowd of people attending a soccer parade on Monday.`\
-https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plowing.html
 
