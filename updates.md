@@ -1,3 +1,11 @@
+**Indy 500, Coke 600 takeaways: Long live the 'Double,' Ross Chastain's rise and more**\
+`We need more 'Double' tries, not fewer. Ross Chastain gets a big win. Álex Palou caps his dominance. And more from motorsports' big weekend.`\
+https://nytimes.com/athletic/6383041/2025/05/26/indy-500-nascar-coke-600-double-kyle-larson-ross-chastain/
+
+**How a Booker Prize-Winning Work From India Redefined Translation**\
+`An extraordinary author-translator collaboration produced a book, “Heart Lamp,” that was lauded for enriching the English language.`\
+https://nytimes.com/2025/05/26/world/asia/booker-prize-2025-winner-banu-mushtaq-heart-lamp.html
+
 **Wubben-Moy called up to England's Nations League squad as Bright drops out**\
 `Bright, 31, leaves the camp to undertake an "extended period of recovery," per an England statement.`\
 https://nytimes.com/athletic/6383135/2025/05/26/wubben-moy-england-bright/

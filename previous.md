@@ -1,3 +1,11 @@
+**Indy 500, Coke 600 takeaways: Long live the 'Double,' Ross Chastain's rise and more**\
+`We need more 'Double' tries, not fewer. Ross Chastain gets a big win. Álex Palou caps his dominance. And more from motorsports' big weekend.`\
+https://nytimes.com/athletic/6383041/2025/05/26/indy-500-nascar-coke-600-double-kyle-larson-ross-chastain/
+
+**How a Booker Prize-Winning Work From India Redefined Translation**\
+`An extraordinary author-translator collaboration produced a book, “Heart Lamp,” that was lauded for enriching the English language.`\
+https://nytimes.com/2025/05/26/world/asia/booker-prize-2025-winner-banu-mushtaq-heart-lamp.html
+
 **Wubben-Moy called up to England's Nations League squad as Bright drops out**\
 `Bright, 31, leaves the camp to undertake an "extended period of recovery," per an England statement.`\
 https://nytimes.com/athletic/6383135/2025/05/26/wubben-moy-england-bright/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-prioriti
 **Noem Visits Israel Amid Tensions Between Trump and Netanyahu**\
 `Kristi Noem, the homeland security secretary, expressed continued U.S. support for Israel despite recent disagreements.`\
 https://nytimes.com/2025/05/26/us/politics/noem-israel-trump-netanyahu.html
-
-**Trump’s Comments on Gaza Reflect Israel’s Growing Isolation**\
-`For months, Israel’s strongest allies had been reluctant to join a wave of global censure against the war. Now, even the Trump administration appears to be growing impatient.`\
-https://nytimes.com/2025/05/26/world/middleeast/israel-gaza-trump-isolation.html
-
-**Roland Garros night slot based on what’s better for fans, says French tennis chief**\
-`Speaking at the French Open, he said that decisions that have shut women's matches out of the night session are good for spectators.`\
-https://nytimes.com/athletic/6382953/2025/05/26/french-open-night-session-tennis-gender-equality/
 
