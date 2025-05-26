@@ -31,7 +31,7 @@ https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plow
 https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
 
 **Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
-`The police said they had detained a 53-year-old man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
+`The police said they had detained a 53-year-old British man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
 https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
 
 **Trump Suggests Giving Trade Schools Money Taken From Harvard**\
