@@ -1,40 +1,40 @@
-**Why do Barcelona feel they need to sign more attacking players?**\
-`Barca believe planning for next season with only one preferred line-up, featuring the Raphinha-Lewandowski-Yamal trio, is a mistake.`\
-https://nytimes.com/athletic/6382482/2025/05/26/barcelona-transfers-rashford-diaz-flick/
+**Ten Hag appointed as Leverkusen head coach: What post-Alonso future holds**\
+`Ten Hag has been out of work since his sacking by Manchester United in October and has signed a deal until 2027.`\
+https://nytimes.com/athletic/6379764/2025/05/26/erik-ten-hag-leverkusen-manager/
 
-**Josh Hart spoke his new role into existence and then helped the Knicks win Game 3**\
-`Rumors had Hart being benched after Game 2. Hart was on the bench at the start of Game 3, but played 34 crucial minutes in the comeback win.`\
-https://nytimes.com/athletic/6382761/2025/05/26/josh-hart-knicks-starting-lineup/
+**Russia Intensifies Attacks on Ukraine as U.S. Steps Back**\
+`With diplomatic efforts to reach a cease-fire appearing remote, and President Trump apparently abandoning the process, Russia has been escalating its assaults on Ukrainian cities and on the battlefield.`\
+https://nytimes.com/2025/05/26/world/europe/russia-ukraine-war-new-phase.html
 
-**He Went to Minneapolis and Never Really Left**\
-`A photographer covered protests in the city after George Floyd was murdered. Five years later, he is still working on the story of a city.`\
-https://nytimes.com/2025/05/26/insider/george-floyd-photographs.html
+**Last Year’s Cannes Winners Won Big at Oscars. Can the 2025 Crop Do the Same?**\
+`The most likely movies to grab academy voters are “Un Simple Accident,” “Sentimental Value” and “Nouvelle Vague.” But none are primarily in English.`\
+https://nytimes.com/2025/05/26/movies/cannes-winners-oscars-un-simple-accident.html
 
-**New to Congress, She’s in the Cross Hairs of Trump’s Justice Department**\
-`Representative LaMonica McIver faces assault charges after a clash outside a migrant detention center in Newark, the city where she rose to political power.`\
-https://nytimes.com/2025/05/26/nyregion/lamonica-mciver-newark-assault-charges.html
+**Tech’s Trump Whisperer, Tim Cook, Goes Quiet as His Influence Fades**\
+`Apple’s chief executive has gone from winning President Trump’s praise to drawing his ire, deepening the company’s woes in a very bad year.`\
+https://nytimes.com/2025/05/26/technology/techs-trump-whisperer-tim-cook-goes-quiet-as-his-influence-fades.html
 
-**In the U.S., Archaeology Stares Down an Uncertain Future**\
-`Federal layoffs and grant terminations threaten efforts to understand and preserve the nation’s past. “We are getting cut off at the knees,” said one archaeologist.`\
-https://nytimes.com/2025/05/26/science/archaeology-trump-federal-budget.html
+**Members Only: A New Trump Club, Ned’s Club and the Enduring Old Guard**\
+`In a Washington rived by political differences, four private clubs reflect the sorting of the city’s establishment into separate corners at a turbulent time.`\
+https://nytimes.com/2025/05/26/us/politics/trump-washington-private-clubs.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/26/crosswords/spelling-bee-forum.html
+**From the Creator of ‘Succession,’ a Delicious Satire of the Tech Right**\
+`Much of the pleasure of “Mountainhead” is the way it reflects our preposterous nightmare world.`\
+https://nytimes.com/2025/05/26/opinion/succession-mountainhead-tech.html
 
-**Head of New Gaza Aid System Resigns Over Lack of Autonomy**\
-`Jake Wood quit the Gaza Humanitarian Foundation, saying it was “not possible” to implement a new Israeli-backed aid system in the enclave while remaining neutral and independent.`\
-https://nytimes.com/2025/05/26/world/asia/gaza-aid-wood-independence-resigns.html
+**How Can I Help My Children Make Appropriate Clothing Choices?**\
+`Choosing clothes is one of the simplest forms of self-expression. Our critic offers advice for guiding kids without constricting them.`\
+https://nytimes.com/2025/05/26/fashion/children-kid-clothes-trends.html
 
-**Trent Alexander-Arnold and the leaving of Liverpool**\
-`The emotional rollercoaster of Alexander-Arnold's final weeks illustrate what he stands to lose, whatever the obvious attractions of Madrid.`\
-https://nytimes.com/athletic/6382572/2025/05/26/trent-alexander-arnold-leaving-liverpool/
+**If You Want a Seat at the Trial of Sean Combs, Leave Yesterday**\
+`Without any livestreaming of the often graphic testimony, securing space inside the federal courtroom has meant long lines and long waits.`\
+https://nytimes.com/2025/05/26/arts/music/sean-combs-trial-lines-courthouse.html
 
-**Karl-Anthony Towns' Game 3 gem — a gift to his late mother**\
-`Towns didn’t just save the Knicks’ season on Sunday. Each shot was a gift to his mother.`\
-https://nytimes.com/athletic/6382725/2025/05/26/karl-anthony-towns-game-3-gift-to-late-mother/
+**Trump Says Retailers Should ‘Eat the Tariffs.’ Good Luck With That.**\
+`Companies can’t deny reality.`\
+https://nytimes.com/2025/05/26/opinion/trump-walmart-tariffs.html
 
-**Breaking down the decision Aston Villa felt cost them the Champions League**\
-`Why was decision made? Why couldn't VAR intervene? What does it mean for Villa?`\
-https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-bramall/
+**50 Years After Saigon’s Fall, ‘the Wall’ Reflects and Collects a Nation’s Trauma**\
+`The Vietnam Veterans Memorial is a place of unexplainable power, many visitors say. Volunteer guides often speak of it as “Wall magic.”`\
+https://nytimes.com/2025/05/26/us/vietnam-war-memorial-veterans.html
 
