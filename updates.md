@@ -1,4 +1,8 @@
 **Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
+`The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will his return change things?`\
+https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
+
+**Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
 `The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will he return change things?`\
 https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
 
