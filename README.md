@@ -1,3 +1,12 @@
+**Champions League final betting: Four unlikely goalscorers who could make history**\
+`Brett Koremenos picks four unlikely goalscorers worth punting on ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6383436/2025/05/26/champions-league-final-unlikely-goalscorer-betting-predictions/
+
+**House Bill Takes Aim at Tax Break for Sports Owners**\
+`The legislation cuts in half a tax write-off potentially worth hundreds of millions to some professional sports team owners.`\
+https://nytimes.com/2025/05/26/business/house-bill-takes-aim-at-tax-break-for-sports-owners.html
+
 **The N.B.A.’s Age of Dynasties Is Over. Will That Hurt Its Business?**\
 `This year’s playoff ratings are excellent. But is a small-market problem looming?`\
 https://nytimes.com/2025/05/26/business/nba-playoffs-thunder-small-markets.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6383415/2025/05/26/tyrese-haliburton-father-pacers-
 **Manchester United's season reviewed: Lyon, Amorim and the 'worst team in history'**\
 `Carl Anka reluctantly looks back... and hopes much of what happened stays in the past`\
 https://nytimes.com/athletic/6320637/2025/05/26/manchester-united-season-review-2025/
-
-**Barca review of 2024-25: Flick's great entertainers are just getting started**\
-`Flick has succeeded in restoring pride to Barcelona. The future looks very bright`\
-https://nytimes.com/athletic/6374649/2025/05/26/barcelona-hansi-flick-season-review/
-
-**Charles B. Rangel, Longtime Harlem Congressman, Dies at 94**\
-`As the dean of New York’s delegation and the first Black chairman of the House Ways and Means Committee, he was a powerful political force for decades.`\
-https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead.html
 
