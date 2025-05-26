@@ -1,3 +1,7 @@
+**Wubben-Moy called up to England's Nations League squad as Bright drops out**\
+`Bright, 31, leaves the camp to undertake an "extended period of recovery," per an England statement.`\
+https://nytimes.com/athletic/6383135/2025/05/26/wubben-moy-england-bright/
+
 **Newcastle's Wilson says he experienced 'suicidal moments' during difficult childhood**\
 `The 33-year-old spoke about foster care, being moved from school to school and senior figures in his life dealing with alcoholism.`\
 https://nytimes.com/athletic/6383063/2025/05/26/newcastle-callum-wilson-mental-health/
