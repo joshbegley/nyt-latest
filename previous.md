@@ -1,3 +1,15 @@
+**Chelsea interested in Frankfurt striker Ekitike**\
+`The 22-year-old ended the season with 22 goals and 12 assists in 48 appearances across all competitions.`\
+https://nytimes.com/athletic/6383260/2025/05/26/hugo-ekitike-chelsea-eintracht-frankfurt/
+
+**Judge in Hockey Canada case delivers another blow to critical piece of evidence for Crown**\
+`Justice Maria Carroccia ruled Monday that Brett Howden's text message will not be admissible in the Hockey Canada sexual assault trial.`\
+https://nytimes.com/athletic/6383200/2025/05/26/hockey-canada-trial-brett-howden-text-message/
+
+**American men's No. 1 Taylor Fritz exits French Open in first-round upset**\
+`Fritz, the world No. 4, has struggled this season as he tries to manage an abdominal injury.`\
+https://nytimes.com/athletic/6383240/2025/05/26/tennis-taylor-fritz-french-open-daniel-altmaier-result-analysis/
+
 **Red Light: On track to repeat history. Plus: Who's primed to be the ultimate loser?**\
 `The conference finals haven’t exactly been big on drama so far and we could be headed for a repeat of last year's Stanley Cup Final.`\
 https://nytimes.com/athletic/6383049/2025/05/26/on-track-to-repeat-history-plus-whos-primed-to-be-the-ultimate-loser/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6383063/2025/05/26/newcastle-callum-wilson-mental-h
 **No Corrections: May 26, 2025**\
 `No corrections appeared in print on Monday, May 26, 2025.`\
 https://nytimes.com/2025/05/26/pageoneplus/no-corrections-may-26-2025.html
-
-**Corrections: May 25, 2025**\
-`Corrections that appeared in print on Sunday, May 25, 2025.`\
-https://nytimes.com/2025/05/26/pageoneplus/corrections-may-25-2025.html
-
-**Understanding Lapses in Learning**\
-`Readers, including Gov. Jared Polis of Colorado, discuss the state of education in America. Also: Better robots or better humans?`\
-https://nytimes.com/2025/05/26/opinion/education-learning.html
-
-**Four Former VW Managers Found Guilty in Emissions Trial**\
-`The men were accused of conspiring to conceal excess diesel emissions from regulators, helping to provoke a costly scandal.`\
-https://nytimes.com/2025/05/26/business/volkswagen-emissions-trial.html
 
