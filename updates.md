@@ -1,3 +1,7 @@
+**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
+`The police said they had detained a 53-year-old British man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
+https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
+
 **Novak Djokovic hopes to receive similar farewell as rival Rafael Nadal**\
 `Seeing Nadal, Federer and Murray retire in the last few years has prompted Djokovic to think more about his own mortality.`\
 https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-farewell-ceremony-comments/
