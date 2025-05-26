@@ -1,3 +1,11 @@
+**Trump Condemns Putin’s Killings in Ukraine, But Doesn’t Make Him Pay a Price**\
+`President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
+https://nytimes.com/2025/05/26/us/politics/trump-putin.html
+
+**Brad Marchand ends Blizzard-gate, says midgame snack was honey: 'Growing up, I loved Winnie the Pooh'**\
+`Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
+https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
+
 **Tyrese Haliburton's dad allowed to attend Pacers home games**\
 `John Haliburton missed the Pacers’ second-round series against the Cavs following an on-court confrontation with Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/6383415/2025/05/26/tyrese-haliburton-father-pacers-knicks-game-4/

@@ -1,3 +1,11 @@
+**Trump Condemns Putin’s Killings in Ukraine, But Doesn’t Make Him Pay a Price**\
+`President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
+https://nytimes.com/2025/05/26/us/politics/trump-putin.html
+
+**Brad Marchand ends Blizzard-gate, says midgame snack was honey: 'Growing up, I loved Winnie the Pooh'**\
+`Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
+https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
+
 **Tyrese Haliburton's dad allowed to attend Pacers home games**\
 `John Haliburton missed the Pacers’ second-round series against the Cavs following an on-court confrontation with Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/6383415/2025/05/26/tyrese-haliburton-father-pacers-knicks-game-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/26/dining/easy-cowboy-caviar-recipe-to-feed-a-crowd.
 **Canucks free-agent targets: 12 pending RFAs worth tendering an offer sheet**\
 `Let's go over some of the restricted free agent candidates that the Canucks could consider this summer.`\
 https://nytimes.com/athletic/6382756/2025/05/26/canucks-free-agent-targets-2025-rfas/
-
-**‘It’s Nonsense’: Macron Plays Down Video of Shove From Wife**\
-`The French president, Emmanuel Macron, was pushed in the face as he left a plane in Vietnam. The bigger issue, he said, was the reaction, part of a string of disinformation by “crazy people.”`\
-https://nytimes.com/2025/05/26/world/europe/macron-wife-brigitte-shove-video.html
-
-**President Macron’s Wife Pushes Him in the Face**\
-`A video showed President Emmanuel Macron of France being pushed in the face by his wife, Brigitte, moments before they stepped off a plane in Vietnam.`\
-https://nytimes.com/video/world/europe/100000010190896/macron-wife-face-push.html
 
