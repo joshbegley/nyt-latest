@@ -1,3 +1,7 @@
+**With Knicks on the ropes, the Pacers let go — and let New York back into series**\
+`Indiana has been here before in these playoffs. The Pacers better hope Tuesday's Game 4 brings familiar vibes as well.`\
+https://nytimes.com/athletic/6382180/2025/05/26/nba-playoffs-pacers-knicks-comeback-game-3/
+
 **Venezuela’s Government Claims Victory in Polls Boycotted by Opposition Leader**\
 `Polling places in Caracas, the capital, and other cities were sparsely populated but officials claimed turnout was higher than 40 percent.`\
 https://nytimes.com/2025/05/26/world/americas/venezuela-maduro-regional-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369519/2025/05/26/west-ham-potter-transfers-overha
 **Fresh hope from Friedkin takeover, Moyes' return, Tarkowskiiiii - Everton's review of 2024-25**\
 `It has been a tumultuous season for Everton - new owners, a new (old) manager and unexpectedly simple path to safety. Plus a '2-2 derby win'`\
 https://nytimes.com/athletic/6367798/2025/05/26/everton-season-review-friedkin-moyes-tarkowski/
-
-**How Forest returned to Europe after 30 years: Building blocks, unity and... Ludo**\
-`Forest have made history by earning a European place after fighting relegation last season. Here's how they did it...`\
-https://nytimes.com/athletic/6375968/2025/05/26/nottingham-forest-europe-return/
 
