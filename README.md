@@ -1,3 +1,11 @@
+**Osaka says coach will wonder 'what the f--- this is'  after French Open loss**\
+`Osaka has endured a series of close defeats to high-ranked players at Grand Slams since her return to tennis in 2024.`\
+https://nytimes.com/athletic/6383367/2025/05/26/naomi-osaka-french-open-news-conference/
+
+**NCAA baseball tournament field revealed: Vanderbilt earns No. 1 seed**\
+`The Commodores have won eight consecutive games, including three straight to capture the SEC tournament title. `\
+https://nytimes.com/athletic/6383303/2025/05/26/ncaa-college-baseball-bracket-reveal-selection-tournament-2/
+
 **Trump Condemns Putin Over Russia’s Recent Attacks on Ukraine**\
 `President Trump said he was not happy with President Vladimir V. Putin’s decision to unleash one of the largest offensives in Russia’s war against Ukraine.`\
 https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead.html
 **THE BAT X fantasy baseball cheat sheet: Add Brenton Doyle, stream or start Trevor Larnach**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6377735/2025/05/26/the-bat-x-fantasy-baseball-cheat-sheet-player-name/
-
-**Building a Home From 100 Miles of Cord**\
-`Chiharu Shiota, a Berlin-based artist, has conjured a multitude of immigrant stories in “Home Less Home,” her largest museum show in the U.S.`\
-https://nytimes.com/2025/05/26/arts/design/chiharu-shiota-boston-ica.html
-
-**Giddy Up, Cowboy Caviar**\
-`It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
-https://nytimes.com/2025/05/26/dining/texas-caviar-recipe.html
 
