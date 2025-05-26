@@ -1,3 +1,7 @@
+**A wild Knicks-Pacers series takes another thrilling turn in Game 3**\
+`There have been six comebacks of 20 or more points in the 2025 playoffs, and the Knicks have three.`\
+https://nytimes.com/athletic/6382677/2025/05/25/knicks-pacers-karl-anthony-towns-comeback/
+
 **NBA playoffs takeaways: Home team still winless in Knicks-Pacers after New York's rally**\
 `Coming back from 20-point deficits is nothing new for the Knicks this postseason. It happened again Sunday.`\
 https://nytimes.com/athletic/6382587/2025/05/25/nba-playoffs-takeaways-knicks-pacers-game-3/
