@@ -1,4 +1,4 @@
-**Caitlin Clark to miss at least two weeks with left quad injury**\
+**Caitlin Clark to miss at least 2 weeks with left quad injury**\
 `Indiana is 2-2 and will be without Clark for at least its next three games.`\
 https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
 
