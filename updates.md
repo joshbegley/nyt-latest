@@ -1,3 +1,7 @@
+**Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
+`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
+https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
+
 **‘The Last of Us’ Season 2 Finale Recap: The Monster at the End**\
 `Dina learns the truth. Ellie learns a hard lesson about the unintended consequences of vengeance.`\
 https://nytimes.com/2025/05/25/arts/television/the-last-of-us-recap-season-2-finale.html
