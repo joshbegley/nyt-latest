@@ -1,3 +1,7 @@
+**Four Former VW Managers Found Guilty in Emissions Trial**\
+`The men were accused of conspiring to conceal excess diesel emissions from regulators, helping to provoke a costly scandal.`\
+https://nytimes.com/2025/05/26/business/volkswagen-emissions-trial.html
+
 **Winnipeg Jets offseason priorities: Get clarity on Nikolaj Ehlers, seek term with RFAs**\
 `Here are the Jets’ eight biggest offseason priorities.`\
 https://nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-gover
 **Trump Administration Live Updates: President Delays E.U. Tariffs to Allow More Time for Negotiations**\
 ``\
 https://nytimes.com/live/2025/05/26/us/trump-news
-
-**Mirtle: How can the Leafs get better while losing a star player (or 2) this offseason?**\
-`This will be the most complex offseason the Leafs have had in a long time. They need to make smart decisions, be cutthroat and creative.`\
-https://nytimes.com/athletic/6376929/2025/05/26/maple-leafs-mitch-marner-john-tavares-offseason/
 
