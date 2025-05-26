@@ -1,3 +1,7 @@
+**Casemiro and Antony earn Brazil recall in Carlo Ancelotti's first squad**\
+`There is also a recall for Tottenham forward Richarlison for June's World Cup qualifiers against Ecuador and Paraguay.`\
+https://nytimes.com/athletic/6383750/2025/05/26/casemiro-antony-ancelotti-brazil/
+
 **Novak Djokovic hopes to receive similar farewell as rival Rafael Nadal**\
 `Seeing Nadal, Federer and Murray all retire in the last few years has prompted Djokovic to think more about his own mortality.`\
 https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-farewell-ceremony-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
 **Trump Suggests Giving Trade Schools Money Taken From Harvard**\
 `In a social media post, the president mused about redirecting $3 billion in research grant funding that his administration has frozen or withdrawn, but he gave no details.`\
 https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
-
-**Man arrested after car collides with pedestrians at Liverpool's Premier League trophy parade**\
-`Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
-https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
 

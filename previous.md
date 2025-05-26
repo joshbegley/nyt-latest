@@ -1,3 +1,7 @@
+**Novak Djokovic hopes to receive similar farewell as rival Rafael Nadal**\
+`Seeing Nadal, Federer and Murray all retire in the last few years has prompted Djokovic to think more about his own mortality.`\
+https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-farewell-ceremony-comments/
+
 **PJ Haggerty, former Memphis guard, commits to Kansas State**\
 `Haggerty won the 2024-25 AAC Player of the Year award following his solid season with Memphis.`\
 https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitment-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/us/harvard-trump-trade-schools.html
 **Man arrested after car collides with pedestrians at Liverpool's Premier League trophy parade**\
 `Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
 https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
-
-**What to Know About the Deportees the U.S. Is Trying to Send to South Sudan**\
-`Experts say the administration may be trying to shape the behavior of immigrants through fear.`\
-https://nytimes.com/2025/05/26/world/africa/trump-deportations-south-sudan.html
 

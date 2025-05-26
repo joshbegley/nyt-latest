@@ -1,3 +1,7 @@
+**Novak Djokovic hopes to receive similar farewell as rival Rafael Nadal**\
+`Seeing Nadal, Federer and Murray all retire in the last few years has prompted Djokovic to think more about his own mortality.`\
+https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-farewell-ceremony-comments/
+
 **Man arrested after car collides with pedestrians at Liverpool's Premier League trophy parade**\
 `Merseyside Police say emergency services are at the scene after the incident on Water Street.`\
 https://nytimes.com/athletic/6383580/2025/05/26/liverpool-title-parade-road-collision/
