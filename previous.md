@@ -1,3 +1,7 @@
+**Giddy Up, Cowboy Caviar**\
+`It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
+https://nytimes.com/2025/05/26/dining/easy-cowboy-caviar-recipe-to-feed-a-crowd.html
+
 **Canucks free-agent targets: 12 pending RFAs worth tendering an offer sheet**\
 `Let's go over some of the restricted free agent candidates that the Canucks could consider this summer.`\
 https://nytimes.com/athletic/6382756/2025/05/26/canucks-free-agent-targets-2025-rfas/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6382756/2025/05/26/canucks-free-agent-targets-2025-
 `The French president, Emmanuel Macron, was pushed in the face as he left a plane in Vietnam. The bigger issue, he said, was the reaction, part of a string of disinformation by “crazy people.”`\
 https://nytimes.com/2025/05/26/world/europe/macron-wife-brigitte-shove-video.html
 
-**Emmanuel Macron of France Is Seemingly Pushed Away by His Wife**\
-`A video appeared to show President Emmanuel Macron of France being pushed in the face by his wife, Brigitte, moments before they stepped off a plane in Vietnam.`\
+**President Macron’s Wife Pushes Him in the Face**\
+`A video showed President Emmanuel Macron of France being pushed in the face by his wife, Brigitte, moments before they stepped off a plane in Vietnam.`\
 https://nytimes.com/video/world/europe/100000010190896/macron-wife-face-push.html
 
 **Harrison returns to Leeds, Everton remain in talks with Alcaraz**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383240/2025/05/26/tennis-taylor-fritz-french-open-
 **Red Light: On track to repeat history. Plus: Who's primed to be the ultimate loser?**\
 `The conference finals haven’t exactly been big on drama so far and we could be headed for a repeat of last year's Stanley Cup Final.`\
 https://nytimes.com/athletic/6383049/2025/05/26/on-track-to-repeat-history-plus-whos-primed-to-be-the-ultimate-loser/
-
-**Lowetide: Oilers pushing for Cup shows off the soul of Edmonton**\
-`Should this year's Oilers win it all, several generations of fans will take part in the celebration.`\
-https://nytimes.com/athletic/6381542/2025/05/26/edmonton-oilers-nhl-playoffs-2025-soul/
 

@@ -1,3 +1,11 @@
+**Giddy Up, Cowboy Caviar**\
+`It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
+https://nytimes.com/2025/05/26/dining/easy-cowboy-caviar-recipe-to-feed-a-crowd.html
+
+**President Macron’s Wife Pushes Him in the Face**\
+`A video showed President Emmanuel Macron of France being pushed in the face by his wife, Brigitte, moments before they stepped off a plane in Vietnam.`\
+https://nytimes.com/video/world/europe/100000010190896/macron-wife-face-push.html
+
 **Canucks free-agent targets: 12 pending RFAs worth tendering an offer sheet**\
 `Let's go over some of the restricted free agent candidates that the Canucks could consider this summer.`\
 https://nytimes.com/athletic/6382756/2025/05/26/canucks-free-agent-targets-2025-rfas/
