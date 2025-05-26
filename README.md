@@ -1,3 +1,11 @@
+**Rosicky expected to make full recovery after being hospitalised with heart-related issue**\
+`The club confirmed that he did not require surgery, but he is expected to make a full recovery `\
+https://nytimes.com/athletic/6382959/2025/05/26/arsenal-tomas-rosicky-hospital-sparta-prague/
+
+**Newcastle opt against taking up Wilson option, in talks over new deal**\
+`The 33-year-old has largely played a secondary role this term, acting as back-up to Alexander Isak.`\
+https://nytimes.com/athletic/6302416/2025/05/26/newcastle-callum-wilson-contract-option/
+
 **Commanders ahead of OTAs: Potential awards to hand out during practice sessions**\
 `As Washington prepares for its first of three voluntary OTA weeks, we list — in our own way — some key things to watch before training camp.`\
 https://nytimes.com/athletic/6376627/2025/05/26/commanders-2025-organized-team-activity-awards/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/26/crosswords/wordle-review-1438.html
 **As Ravens prepare for OTAs, the focus will be on the rookies and unsettled roles**\
 `OTAs will provide the first extended look at the 2025 Ravens. Which veterans will show up, and will the rookies look the part early on?`\
 https://nytimes.com/athletic/6378616/2025/05/26/ravens-2025-organized-team-activities/
-
-**The New York Times International Edition in Print for Tuesday, May 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/26/todays-new-york-times-international-edition
-
-**Man United's head of performance analysis Brand to leave after 12 years**\
-`The 37-year-old feels it is the right time to seek a new challenge, and United will be sad to see him go.`\
-https://nytimes.com/athletic/6382910/2025/05/26/man-united-paul-brand-departure/
 
