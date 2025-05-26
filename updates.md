@@ -1,3 +1,23 @@
+**Josh Hart spoke his new role into existence and then helped the Knicks win Game 3**\
+`Rumors had Hart being benched after Game 2. Hart was on the bench at the start of Game 3, but played 34 crucial minutes in the comeback win.`\
+https://nytimes.com/athletic/6382761/2025/05/26/josh-hart-knicks-starting-lineup/
+
+**He Went to Minneapolis and Never Really Left**\
+`A photographer covered protests in the city after George Floyd was murdered. Five years later, he is still working on the story of a city.`\
+https://nytimes.com/2025/05/26/insider/george-floyd-photographs.html
+
+**New to Congress, She’s in the Cross Hairs of Trump’s Justice Department**\
+`Representative LaMonica McIver faces assault charges after a clash outside a migrant detention center in Newark, the city where she rose to political power.`\
+https://nytimes.com/2025/05/26/nyregion/lamonica-mciver-newark-assault-charges.html
+
+**In the U.S., Archaeology Stares Down an Uncertain Future**\
+`Federal layoffs and grant terminations threaten efforts to understand and preserve the nation’s past. “We are getting cut off at the knees,” said one archaeologist.`\
+https://nytimes.com/2025/05/26/science/archaeology-trump-federal-budget.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/26/crosswords/spelling-bee-forum.html
+
 **Head of New Gaza Aid System Resigns Over Lack of Autonomy**\
 `Jake Wood quit the Gaza Humanitarian Foundation, saying it was “not possible” to implement a new Israeli-backed aid system in the enclave while remaining neutral and independent.`\
 https://nytimes.com/2025/05/26/world/asia/gaza-aid-wood-independence-resigns.html
