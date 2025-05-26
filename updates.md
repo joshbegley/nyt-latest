@@ -1,3 +1,11 @@
+**No Corrections: May 26, 2025**\
+`No corrections appeared in print on Monday, May 26, 2025.`\
+https://nytimes.com/2025/05/26/pageoneplus/no-corrections-may-26-2025.html
+
+**Corrections: May 25, 2025**\
+`Corrections that appeared in print on Sunday, May 25, 2025.`\
+https://nytimes.com/2025/05/26/pageoneplus/corrections-may-25-2025.html
+
 **Understanding Lapses in Learning**\
 `Readers, including Gov. Jared Polis of Colorado, discuss the state of education in America. Also: Better robots or better humans?`\
 https://nytimes.com/2025/05/26/opinion/education-learning.html

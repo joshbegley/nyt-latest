@@ -1,3 +1,11 @@
+**No Corrections: May 26, 2025**\
+`No corrections appeared in print on Monday, May 26, 2025.`\
+https://nytimes.com/2025/05/26/pageoneplus/no-corrections-may-26-2025.html
+
+**Corrections: May 25, 2025**\
+`Corrections that appeared in print on Sunday, May 25, 2025.`\
+https://nytimes.com/2025/05/26/pageoneplus/corrections-may-25-2025.html
+
 **Understanding Lapses in Learning**\
 `Readers, including Gov. Jared Polis of Colorado, discuss the state of education in America. Also: Better robots or better humans?`\
 https://nytimes.com/2025/05/26/opinion/education-learning.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6382783/2025/05/26/kyle-larson-indy-500-nascar-600-
 **Manhunt Underway for Former Police Chief Imprisoned for Murder and Rape**\
 `Grant Hardin, 56, escaped on Sunday from a high-security prison in Arkansas, where he was serving a decades-long sentence for first-degree murder and rape.`\
 https://nytimes.com/2025/05/26/us/arkansas-grant-hardin-prison-escape.html
-
-**Pacers lose momentum and huge lead against Knicks: 'We just gotta play our way'**\
-`Indiana found itself on the other end of a big comeback and continued its trend of losing Game 3.`\
-https://nytimes.com/athletic/6382912/2025/05/26/pacers-loss-game-3-knicks-nba-playoffs-haliburton/
-
-**U.S. envoy says the Syrian government will help find missing Americans or their remains.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-government-will-help-find-missing-americans-or-their-remains
 
