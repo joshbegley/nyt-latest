@@ -1,3 +1,7 @@
+**A wild Knicks-Pacers series takes another thrilling turn in Game 3**\
+`There have been six comebacks of 20 or more points in the 2025 playoffs, and the Knicks have three.`\
+https://nytimes.com/athletic/6382677/2025/05/25/knicks-pacers-karl-anthony-towns-comeback/
+
 **NBA playoffs takeaways: Home team still winless in Knicks-Pacers after New York's rally**\
 `Coming back from 20-point deficits is nothing new for the Knicks this postseason. It happened again Sunday.`\
 https://nytimes.com/athletic/6382587/2025/05/25/nba-playoffs-takeaways-knicks-pacers-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382467/2025/05/25/reds-lose-series-cubs-takeaways/
 **Seven trends to watch as Cardinals soar season-best 7 games over .500**\
 `Nolan Arenado returning to his Gold Glove form ranks among the many surprises during the Cardinals' hot start. `\
 https://nytimes.com/athletic/6381708/2025/05/25/cardinals-trends-to-watch/
-
-**Texas Doctor Who Filed $118 Million in Fraudulent Medical Claims Gets 10 Years in Prison**\
-`Jorge Zamora-Quezada falsely diagnosed patients with a chronic disease and subjected them to unnecessary treatments to help fund his lavish lifestyle, officials said.`\
-https://nytimes.com/2025/05/25/us/texas-doctor-fraud-scheme.html
 
