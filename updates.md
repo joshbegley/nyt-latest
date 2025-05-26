@@ -1,3 +1,15 @@
+**As South Korea Gets Ready to Vote, Women Don’t Like the Choices**\
+`Women took the lead in the protests against South Korea’s last president. But the men running to replace him are saying little about the discrimination they face.`\
+https://nytimes.com/2025/05/26/world/asia/south-korean-women-election.html
+
+**How Arsenal became European champions for a second time: Pressing, doubling up and smart subs**\
+`It's difficult to think of a more comprehensive tactical performance in a European final.`\
+https://nytimes.com/athletic/6380945/2025/05/26/arsenal-women-champions-league-analysis/
+
+**Connections: Sports Edition Coach: Hints for May 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6382682/2025/05/26/connections-sports-edition-hints-for-may-26-2025/
+
 **Quote of the Day: Israel’s Top-Down Eurovision Campaign**\
 `Quotation of the Day for Monday, May 26, 2025.`\
 https://nytimes.com/2025/05/25/pageoneplus/quote-of-the-day-israels-top-down-eurovision-campaign.html

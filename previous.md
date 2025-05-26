@@ -1,3 +1,15 @@
+**As South Korea Gets Ready to Vote, Women Don’t Like the Choices**\
+`Women took the lead in the protests against South Korea’s last president. But the men running to replace him are saying little about the discrimination they face.`\
+https://nytimes.com/2025/05/26/world/asia/south-korean-women-election.html
+
+**How Arsenal became European champions for a second time: Pressing, doubling up and smart subs**\
+`It's difficult to think of a more comprehensive tactical performance in a European final.`\
+https://nytimes.com/athletic/6380945/2025/05/26/arsenal-women-champions-league-analysis/
+
+**Connections: Sports Edition Coach: Hints for May 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6382682/2025/05/26/connections-sports-edition-hints-for-may-26-2025/
+
 **Quote of the Day: Israel’s Top-Down Eurovision Campaign**\
 `Quotation of the Day for Monday, May 26, 2025.`\
 https://nytimes.com/2025/05/25/pageoneplus/quote-of-the-day-israels-top-down-eurovision-campaign.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/25/arts/television/the-last-of-us-recap-season-2-fin
 **Ozzie Albies' surge, Austin Riley errors and more: 4 Braves takeaways**\
 `Brian Snitker said the Braves "have all the confidence in the world" they will got on track after a lackluster series against the Padres.`\
 https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
-
-**Phillies takeaways: Matt Strahm's hiccup, Aaron Nola's delayed return, and a lineup shuffle?**\
-`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
-https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
-
-**Watch out, NHL: The goals have started going in for Connor McDavid again**\
-`McDavid makes things happen for the Oilers, but so far this offseason few pucks had gone in the net off his stick.`\
-https://nytimes.com/athletic/6382582/2025/05/25/connor-mcdavid-oilers-scoring-nhl-playoffs-stars/
-
-**LeBrun: Nobody demands perfection from Stuart Skinner — but this is the version the Oilers need**\
-`Skinner has "finally found his groove now," according to Hockey Hall of Fame goalie Martin Brodeur.`\
-https://nytimes.com/athletic/6382585/2025/05/25/oilers-skinner-stanley-cup-stars/
 
