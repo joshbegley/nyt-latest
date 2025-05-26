@@ -1,3 +1,7 @@
+**At Memorial Day, the Cubs look dangerous and are primed for a fun summer**\
+`At 33-21, the Cubs are 12 games over .500 before June for the first time since 2016. `\
+https://nytimes.com/athletic/6383901/2025/05/26/chicago-cubs-memorial-day-check-in/
+
 **Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
 `The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will his return change things?`\
 https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/

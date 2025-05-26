@@ -1,3 +1,7 @@
+**At Memorial Day, the Cubs look dangerous and are primed for a fun summer**\
+`At 33-21, the Cubs are 12 games over .500 before June for the first time since 2016. `\
+https://nytimes.com/athletic/6383901/2025/05/26/chicago-cubs-memorial-day-check-in/
+
 **Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
 `The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will his return change things?`\
 https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
 **Trump Praises Military Service, and His Return to Office, in Memorial Day Remarks**\
 `In a speech at Arlington National Cemetery, President Trump highlighted the sacrifices of soldiers and their families but also his own achievements.`\
 https://nytimes.com/2025/05/26/us/politics/trump-memorial-day-arlington.html
-
-**Indy 500 runner-up Marcus Ericsson dropped to 31st after failed inspection**\
-`Ericsson's car was one of three penalized after race. Each team was docked its race earnings and fined $100,000.`\
-https://nytimes.com/athletic/6383639/2025/05/26/indy-500-marcus-ericsson-penalty/
 
