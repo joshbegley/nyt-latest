@@ -1,3 +1,7 @@
+**Winnipeg Jets offseason priorities: Get clarity on Nikolaj Ehlers, seek term with RFAs**\
+`Here are the Jets’ eight biggest offseason priorities.`\
+https://nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/
+
 **Noem Visits Israel Amid Tensions Between Trump and Netanyahu**\
 `Kristi Noem, the homeland security secretary, expressed continued U.S. support for Israel despite recent disagreements.`\
 https://nytimes.com/2025/05/26/us/politics/noem-israel-trump-netanyahu.html
