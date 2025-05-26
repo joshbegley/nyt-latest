@@ -1,3 +1,7 @@
+**Building a Home From 100 Miles of Cord**\
+`Chiharu Shiota, a Berlin-based artist, has conjured a multitude of immigrant stories in “Home Less Home,” her largest museum show in the U.S.`\
+https://nytimes.com/2025/05/26/arts/design/chiharu-shiota-boston-ica.html
+
 **Giddy Up, Cowboy Caviar**\
 `It’s the trifecta of party dishes: delicious, easy and a crowd favorite.`\
 https://nytimes.com/2025/05/26/dining/easy-cowboy-caviar-recipe-to-feed-a-crowd.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383200/2025/05/26/hockey-canada-trial-brett-howden
 **American men's No. 1 Taylor Fritz exits French Open in first-round upset**\
 `Fritz, the world No. 4, has struggled this season as he tries to manage an abdominal injury.`\
 https://nytimes.com/athletic/6383240/2025/05/26/tennis-taylor-fritz-french-open-daniel-altmaier-result-analysis/
-
-**Red Light: On track to repeat history. Plus: Who's primed to be the ultimate loser?**\
-`The conference finals haven’t exactly been big on drama so far and we could be headed for a repeat of last year's Stanley Cup Final.`\
-https://nytimes.com/athletic/6383049/2025/05/26/on-track-to-repeat-history-plus-whos-primed-to-be-the-ultimate-loser/
 
