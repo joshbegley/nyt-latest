@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Home team still winless in Knicks-Pacers after New York's rally**\
+`Coming back from 20-point deficits is nothing new for the Knicks this postseason. It happened again Sunday.`\
+https://nytimes.com/athletic/6382587/2025/05/25/nba-playoffs-takeaways-knicks-pacers-game-3/
+
 **NCAA softball super regionals recap: Texas Tech sweeps Florida State**\
 `No. 12 Texas Tech swept No. 5 Florida State in the Tallahassee super regionals behind star ace NiJaree Canady.`\
 https://nytimes.com/athletic/6382630/2025/05/25/ncaa-softball-tournament-super-regionals-recap-texas-tech/
