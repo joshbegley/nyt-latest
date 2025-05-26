@@ -1,3 +1,11 @@
+**Ten Hag appointed as Leverkusen head coach: What post-Alonso future holds**\
+`Ten Hag has been out of work since his sacking by Manchester United in October and has signed a deal until 2027.`\
+https://nytimes.com/athletic/6379764/2025/05/26/erik-ten-hag-leverkusen-manager/
+
+**Russia Intensifies Attacks on Ukraine as U.S. Steps Back**\
+`With diplomatic efforts to reach a cease-fire appearing remote, and President Trump apparently abandoning the process, Russia has been escalating its assaults on Ukrainian cities and on the battlefield.`\
+https://nytimes.com/2025/05/26/world/europe/russia-ukraine-war-new-phase.html
+
 **Last Year’s Cannes Winners Won Big at Oscars. Can the 2025 Crop Do the Same?**\
 `The most likely movies to grab academy voters are “Un Simple Accident,” “Sentimental Value” and “Nouvelle Vague.” But none are primarily in English.`\
 https://nytimes.com/2025/05/26/movies/cannes-winners-oscars-un-simple-accident.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/26/opinion/trump-walmart-tariffs.html
 **50 Years After Saigon’s Fall, ‘the Wall’ Reflects and Collects a Nation’s Trauma**\
 `The Vietnam Veterans Memorial is a place of unexplainable power, many visitors say. Volunteer guides often speak of it as “Wall magic.”`\
 https://nytimes.com/2025/05/26/us/vietnam-war-memorial-veterans.html
-
-**What to Know About King Charles’s Visit to Canada. (Hint: Trump Is a Factor.)**\
-`The British monarch, who is Canada’s official head of state, is coming at a moment when President Trump has threatened the country’s sovereignty.`\
-https://nytimes.com/2025/05/26/world/canada/king-charles-canada-visit-trump.html
-
-**NATO Wants a Cordial Summit, but Trump or Zelensky Could Disrupt It**\
-`NATO’s leader is looking for little drama and a focus on new spending goals, not disagreements over Ukraine.`\
-https://nytimes.com/2025/05/26/world/europe/nato-summit-trump-ukraine.html
 
