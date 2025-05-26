@@ -1,3 +1,7 @@
+**What to Know About the Deportees the U.S. Is Trying to Send to South Sudan**\
+`Experts say the administration may be trying to shape the behavior of immigrants through fear.`\
+https://nytimes.com/2025/05/26/world/africa/trump-deportations-south-sudan.html
+
 **Hurricanes turn back to Frederik Andersen in net for do-or-die Game 4 vs. Panthers**\
 `Coach Rod Brind'Amour announced that Andersen will start Monday after being pulled in Game 2 and benched in Game 3.`\
 https://nytimes.com/athletic/6383558/2025/05/26/frederik-andersen-hurricanes-start-game-4-nhl-playoffs/
@@ -34,8 +38,4 @@ https://nytimes.com/video/world/europe/100000010191056/trump-putin-russia-ukrain
 **Trump Condemns Putin’s Killings in Ukraine, But Doesn’t Make Him Pay a Price**\
 `President Trump says that the Russian president has “gone absolutely CRAZY’’ with attacks in Ukraine, but has so far refused to join Europe with its newest sanctions.`\
 https://nytimes.com/2025/05/26/us/politics/trump-putin.html
-
-**Brad Marchand ends Blizzard-gate, says midgame snack was honey, not ice cream**\
-`Marchand joked after Game 3 that he'd had a chocolate chip cookie dough Blizzard during the second intermission of the Panthers' 6-2 win.`\
-https://nytimes.com/athletic/6383418/2025/05/26/brad-marchand-blizzard-honey-winnie-the-pooh/
 
