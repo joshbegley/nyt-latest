@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championshi
 https://nytimes.com/2025/05/25/us/politics/trump-putin-ukraine-attacks.html
 
 **Trump Delays E.U. Tariffs Until July 9**\
-`President Trump said he would give the European Union more time to negotiate a trade deal before 50 percent tariffs take effect.`\
+`President Trump said he would give the European Union more time to negotiate a trade deal before a 50 percent tariff takes effect.`\
 https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
 
 **Topsy-turvy tennis comebacks, speedy second serves and wild card wins: French Open day 1 takeaways**\
