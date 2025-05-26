@@ -1,3 +1,7 @@
+**Breaking down the decision Aston Villa felt cost them the Champions League**\
+`Why was decision made? Why couldn't VAR intervene? What does it mean for Villa?`\
+https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-bramall/
+
 **Marcel Ophuls, Myth-Shattering War Documentarian, Is Dead at 97**\
 `He was best-known for “The Sorrow and the Pity,” a landmark film that debunked ideas of vast French resistance to the Nazi occupation.`\
 https://nytimes.com/2025/05/26/movies/marcel-ophuls-dead.html

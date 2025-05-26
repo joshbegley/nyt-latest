@@ -1,3 +1,7 @@
+**Breaking down the decision Aston Villa felt cost them the Champions League**\
+`Why was decision made? Why couldn't VAR intervene? What does it mean for Villa?`\
+https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-bramall/
+
 **Marcel Ophuls, Myth-Shattering War Documentarian, Is Dead at 97**\
 `He was best-known for “The Sorrow and the Pity,” a landmark film that debunked ideas of vast French resistance to the Nazi occupation.`\
 https://nytimes.com/2025/05/26/movies/marcel-ophuls-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/opinion/turkey-erdogan-imamoglu.html
 **What to do about Joao Pedro...**\
 `Selling Joao Pedro if a big offer materialises and reinvesting the money on squad strengthening could be tempting in the circumstances`\
 https://nytimes.com/athletic/6374749/2025/05/26/joao-pedro-brighton-future-transfer/
-
-**How to fix West Ham: Transfer targets, Potter's behind-the-scenes changes and squad overhaul**\
-`West Ham have had a disappointing season — this is how they are planning to avoid a repeat next time around`\
-https://nytimes.com/athletic/6369519/2025/05/26/west-ham-potter-transfers-overhaul-recruitment/
 
