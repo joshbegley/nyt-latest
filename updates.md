@@ -1,3 +1,7 @@
+**Lowetide: Oilers pushing for Cup shows off the soul of Edmonton**\
+`Should this year's Oilers win it all, several generations of fans will take part in the celebration.`\
+https://nytimes.com/athletic/6381542/2025/05/26/edmonton-oilers-nhl-playoffs-2025-soul/
+
 **Indy 500, Coke 600 takeaways: Long live the 'Double,' Ross Chastain's rise and more**\
 `We need more 'Double' tries, not fewer. Ross Chastain gets a big win. Álex Palou caps his dominance. And more from motorsports' big weekend.`\
 https://nytimes.com/athletic/6383041/2025/05/26/indy-500-nascar-coke-600-double-kyle-larson-ross-chastain/
