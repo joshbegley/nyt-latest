@@ -1,3 +1,7 @@
+**Texas Doctor Who Filed $118 Million in Fraudulent Medical Claims Gets 10 Years in Prison**\
+`Jorge Zamora-Quezada falsely diagnosed patients with a chronic disease and subjected them to unnecessary treatments to help fund his lavish lifestyle, officials said.`\
+https://nytimes.com/2025/05/25/us/texas-doctor-fraud-scheme.html
+
 **Suddenly: A Mirror!**\
 `People who are suddenly confronted with who they are.`\
 https://nytimes.com/2025/05/25/podcasts/suddenly-a-mirror-this-american-life-nyt-audio.html
