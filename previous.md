@@ -1,3 +1,7 @@
+**Why do Barcelona feel they need to sign more attacking players?**\
+`Barca believe planning for next season with only one preferred line-up, featuring the Raphinha-Lewandowski-Yamal trio, is a mistake.`\
+https://nytimes.com/athletic/6382482/2025/05/26/barcelona-transfers-rashford-diaz-flick/
+
 **Josh Hart spoke his new role into existence and then helped the Knicks win Game 3**\
 `Rumors had Hart being benched after Game 2. Hart was on the bench at the start of Game 3, but played 34 crucial minutes in the comeback win.`\
 https://nytimes.com/athletic/6382761/2025/05/26/josh-hart-knicks-starting-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382725/2025/05/26/karl-anthony-towns-game-3-gift-t
 **Breaking down the decision Aston Villa felt cost them the Champions League**\
 `Why was decision made? Why couldn't VAR intervene? What does it mean for Villa?`\
 https://nytimes.com/athletic/6381642/2025/05/26/aston-villa-referee-thomas-bramall/
-
-**Marcel Ophuls, Myth-Shattering War Documentarian, Is Dead at 97**\
-`He was best-known for “The Sorrow and the Pity,” a landmark film that debunked ideas of vast French resistance to the Nazi occupation.`\
-https://nytimes.com/2025/05/26/movies/marcel-ophuls-dead.html
 

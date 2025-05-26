@@ -1,3 +1,7 @@
+**Why do Barcelona feel they need to sign more attacking players?**\
+`Barca believe planning for next season with only one preferred line-up, featuring the Raphinha-Lewandowski-Yamal trio, is a mistake.`\
+https://nytimes.com/athletic/6382482/2025/05/26/barcelona-transfers-rashford-diaz-flick/
+
 **Josh Hart spoke his new role into existence and then helped the Knicks win Game 3**\
 `Rumors had Hart being benched after Game 2. Hart was on the bench at the start of Game 3, but played 34 crucial minutes in the comeback win.`\
 https://nytimes.com/athletic/6382761/2025/05/26/josh-hart-knicks-starting-lineup/
