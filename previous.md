@@ -1,9 +1,13 @@
+**Head of New Gaza Aid System Resigns Over Lack of Autonomy**\
+`Jake Wood quit the Gaza Humanitarian Foundation, saying it was “not possible” to implement a new Israeli-backed aid system in the enclave while remaining neutral and independent.`\
+https://nytimes.com/2025/05/26/world/asia/gaza-aid-wood-independence-resigns.html
+
 **Trent Alexander-Arnold and the leaving of Liverpool**\
 `The emotional rollercoaster of Alexander-Arnold's final weeks illustrate what he stands to lose, whatever the obvious attractions of Madrid.`\
 https://nytimes.com/athletic/6382572/2025/05/26/trent-alexander-arnold-leaving-liverpool/
 
 **Karl-Anthony Towns' Game 3 gem — a gift to his late mother**\
-`Towns took the Knicks' season off life support, on Dominican Mother's Day no less.`\
+`Towns didn’t just save the Knicks’ season on Sunday. Each shot was a gift to his mother.`\
 https://nytimes.com/athletic/6382725/2025/05/26/karl-anthony-towns-game-3-gift-to-late-mother/
 
 **Breaking down the decision Aston Villa felt cost them the Champions League**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/arts/television/summer-house-reunion.html
 **The New York Times in Print for Monday, May 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/26/todays-new-york-times
-
-**We Are Not Being Asked to Run Into Cannon Fire. We Just Need to Speak Up.**\
-`At a time of national crisis, Memorial Day reminds us to honor past sacrifices by standing up for democracy.`\
-https://nytimes.com/2025/05/26/opinion/memorial-day-democracy-crisis.html
 
