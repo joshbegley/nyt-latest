@@ -1,3 +1,11 @@
+**Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
+`Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the trip.`\
+https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
+
+**Watch out, NHL: The goals have started going in for Connor McDavid again**\
+`McDavid makes things happen for the Oilers, but so far this offseason few pucks had gone in the net off his stick.`\
+https://nytimes.com/athletic/6382582/2025/05/25/connor-mcdavid-oilers-scoring-nhl-playoffs-stars/
+
 **LeBrun: Nobody demands perfection from Stuart Skinner — but this is the version the Oilers need**\
 `Skinner has "finally found his groove now," according to Hockey Hall of Fame goalie Martin Brodeur.`\
 https://nytimes.com/athletic/6382585/2025/05/25/oilers-skinner-stanley-cup-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6382187/2025/05/25/gary-lineker-bbc-motd-exit/
 **Why Swayman's World Championship run is the Bruins' most important 2025 development yet**\
 `Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
 https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championship-gold-bruins/
-
-**Trump Says He’s ‘Not Happy’ With Putin’s Escalation of Ukraine Attacks**\
-`“He’s sending rockets into cities and killing people, and I don’t like it at all,” President Trump said of his Russian counterpart.`\
-https://nytimes.com/2025/05/25/us/politics/trump-putin-ukraine-attacks.html
-
-**Trump Delays E.U. Tariffs Until July 9**\
-`President Trump said he would give the European Union more time to negotiate a trade deal before 50 percent tariffs take effect.`\
-https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
 
