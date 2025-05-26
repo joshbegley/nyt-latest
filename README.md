@@ -1,3 +1,7 @@
+**Charles B. Rangel, Longtime Harlem Congressman, Dies at 94**\
+`As the dean of New York’s delegation and the first Black chairman of the House Ways and Means Committee, he was a powerful political force for decades.`\
+https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead.html
+
 **THE BAT X fantasy baseball cheat sheet: Add Brenton Doyle, stream or start Trevor Larnach**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6377735/2025/05/26/the-bat-x-fantasy-baseball-cheat-sheet-player-name/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/world/europe/tariffs-european-union-trump.html
 **Chelsea interested in Frankfurt striker Ekitike**\
 `The 22-year-old ended the season with 22 goals and 12 assists in 48 appearances across all competitions.`\
 https://nytimes.com/athletic/6383260/2025/05/26/hugo-ekitike-chelsea-eintracht-frankfurt/
-
-**Judge in Hockey Canada case delivers another blow to critical piece of evidence for Crown**\
-`Justice Maria Carroccia ruled Monday that Brett Howden's text message will not be admissible in the Hockey Canada sexual assault trial.`\
-https://nytimes.com/athletic/6383200/2025/05/26/hockey-canada-trial-brett-howden-text-message/
 
