@@ -1,3 +1,7 @@
+**Texas Doctor Who Filed $118 Million in Fraudulent Medical Claims Gets 10 Years in Prison**\
+`Jorge Zamora-Quezada falsely diagnosed patients with a chronic disease and subjected them to unnecessary treatments to help fund his lavish lifestyle, officials said.`\
+https://nytimes.com/2025/05/25/us/texas-doctor-fraud-scheme.html
+
 **Suddenly: A Mirror!**\
 `People who are suddenly confronted with who they are.`\
 https://nytimes.com/2025/05/25/podcasts/suddenly-a-mirror-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382172/2025/05/25/arne-slot-liverpool-transfer-new
 **McDavid scores twice, Skinner sharp again as Oilers beat Stars in Game 3: Takeaways**\
 `The Oilers controlled the game throughout again to take a 2-1 series lead in the Western Conference final.`\
 https://nytimes.com/athletic/6382199/2025/05/25/oilers-stars-mcdavid-game-3/
-
-**Choir Member**\
-`Ari Halpern keeps a close watch.`\
-https://nytimes.com/2025/05/25/crosswords/daily-puzzle-2025-05-26.html
 

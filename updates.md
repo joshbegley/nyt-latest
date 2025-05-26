@@ -1,3 +1,11 @@
+**Suddenly: A Mirror!**\
+`People who are suddenly confronted with who they are.`\
+https://nytimes.com/2025/05/25/podcasts/suddenly-a-mirror-this-american-life-nyt-audio.html
+
+**Trump Delays E.U. Tariffs Until July 9**\
+`President Trump said he would give the European Union more time to negotiate a trade deal before 50 percent tariffs take effect.`\
+https://nytimes.com/2025/05/25/us/politics/trump-european-union-tariff.html
+
 **Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
 `The Dodgers looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
 https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
