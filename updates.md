@@ -1,3 +1,15 @@
+**Kyle Larson's latest 'Double' gut punch leaves him uncertain about trying again**\
+`Last year, it was weather. This year, crashes. Will Kyle Larson try the Indy 500/Coke 600 "Double" again? "(It's) logistically too tough."`\
+https://nytimes.com/athletic/6382783/2025/05/26/kyle-larson-indy-500-nascar-600-double-crash/
+
+**Manhunt Underway for Former Police Chief Imprisoned for Murder and Rape**\
+`Grant Hardin, 56, escaped on Sunday from a high-security prison in Arkansas, where he was serving a decades-long sentence for first-degree murder and rape.`\
+https://nytimes.com/2025/05/26/us/arkansas-grant-hardin-prison-escape.html
+
+**Pacers lose momentum and huge lead against Knicks: 'We just gotta play our way'**\
+`Indiana found itself on the other end of a big comeback and continued its trend of losing Game 3.`\
+https://nytimes.com/athletic/6382912/2025/05/26/pacers-loss-game-3-knicks-nba-playoffs-haliburton/
+
 **U.S. envoy says the Syrian government will help find missing Americans or their remains.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-government-will-help-find-missing-americans-or-their-remains

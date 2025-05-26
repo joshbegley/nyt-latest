@@ -1,3 +1,15 @@
+**Kyle Larson's latest 'Double' gut punch leaves him uncertain about trying again**\
+`Last year, it was weather. This year, crashes. Will Kyle Larson try the Indy 500/Coke 600 "Double" again? "(It's) logistically too tough."`\
+https://nytimes.com/athletic/6382783/2025/05/26/kyle-larson-indy-500-nascar-600-double-crash/
+
+**Manhunt Underway for Former Police Chief Imprisoned for Murder and Rape**\
+`Grant Hardin, 56, escaped on Sunday from a high-security prison in Arkansas, where he was serving a decades-long sentence for first-degree murder and rape.`\
+https://nytimes.com/2025/05/26/us/arkansas-grant-hardin-prison-escape.html
+
+**Pacers lose momentum and huge lead against Knicks: 'We just gotta play our way'**\
+`Indiana found itself on the other end of a big comeback and continued its trend of losing Game 3.`\
+https://nytimes.com/athletic/6382912/2025/05/26/pacers-loss-game-3-knicks-nba-playoffs-haliburton/
+
 **U.S. envoy says the Syrian government will help find missing Americans or their remains.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2025/05/26/us/trump-news/us-envoy-says-the-syrian-government-will-help-find-missing-americans-or-their-remains
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6382982/2025/05/26/salah-saudi-pro-league-liverpool
 **What Is Swedish Culture? An Attempt to Answer Stirs Debate.**\
 `Is it Abba? Saunas? Plays by Strindberg? A government initiative to define an official cultural canon has unsettled many in the arts scene.`\
 https://nytimes.com/2025/05/26/arts/sweden-culture-canon.html
-
-**Twins takeaways: Buxton, Wallner almost back, Matthews steps forward, McCusker collects dust**\
-`After back-to-back walk-off wins and a series victory over the Royals, the Twins have won 16 of 19 games, with more help coming soon.`\
-https://nytimes.com/athletic/6380344/2025/05/26/twins-byron-buxton-matt-wallner-almost-back-zebby-matthews/
-
-**Why the 2025 Blue Jays are still searching for their ‘true identity’**\
-`“We got to get better at being more consistent," Toronto manager John Schneider said.`\
-https://nytimes.com/athletic/6382224/2025/05/26/why-the-2025-blue-jays-are-still-searching-for-their-true-identity/
-
-**Van Dijk says it was his idea to have Hansen present Premier League trophy**\
-`"I was very determined to make sure that he was going to be the one who handed the trophy to me," Van Dijk said.`\
-https://nytimes.com/athletic/6382981/2025/05/26/liverpool-van-dijk-hansen/
 
