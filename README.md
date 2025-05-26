@@ -1,3 +1,7 @@
+**Newcastle's Wilson says he experienced 'suicidal moments' during difficult childhood**\
+`The 33-year-old spoke about foster care, being moved from school to school and senior figures in his life dealing with alcoholism.`\
+https://nytimes.com/athletic/6383063/2025/05/26/newcastle-callum-wilson-mental-health/
+
 **No Corrections: May 26, 2025**\
 `No corrections appeared in print on Monday, May 26, 2025.`\
 https://nytimes.com/2025/05/26/pageoneplus/no-corrections-may-26-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382953/2025/05/26/french-open-night-session-tennis
 **Kyle Larson's latest 'Double' gut punch leaves him uncertain about trying again**\
 `Last year, it was weather. This year, crashes. Will Kyle Larson try the Indy 500/Coke 600 "Double" again? "(It's) logistically too tough."`\
 https://nytimes.com/athletic/6382783/2025/05/26/kyle-larson-indy-500-nascar-600-double-crash/
-
-**Manhunt Underway for Former Police Chief Imprisoned for Murder and Rape**\
-`Grant Hardin, 56, escaped on Sunday from a high-security prison in Arkansas, where he was serving a decades-long sentence for first-degree murder and rape.`\
-https://nytimes.com/2025/05/26/us/arkansas-grant-hardin-prison-escape.html
 
