@@ -1,3 +1,7 @@
+**Casemiro and Antony earn Brazil recall in Carlo Ancelotti's first squad**\
+`There is also a recall for Tottenham forward Richarlison for June's World Cup qualifiers against Ecuador and Paraguay.`\
+https://nytimes.com/athletic/6383750/2025/05/26/casemiro-antony-ancelotti-brazil/
+
 **Novak Djokovic hopes to receive similar farewell as rival Rafael Nadal**\
 `Seeing Nadal, Federer and Murray all retire in the last few years has prompted Djokovic to think more about his own mortality.`\
 https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-farewell-ceremony-comments/
