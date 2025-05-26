@@ -15,7 +15,7 @@ https://nytimes.com/2025/05/25/us/texas-doctor-fraud-scheme.html
 https://nytimes.com/2025/05/25/podcasts/suddenly-a-mirror-this-american-life-nyt-audio.html
 
 **Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
-`The Dodgers looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
+`The Dodgers star looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
 https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
 
 **Lineker emotionally signs off final MOTD ahead of BBC exit**\
