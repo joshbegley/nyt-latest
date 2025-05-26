@@ -1,3 +1,7 @@
+**Napoli sporting director says club can 'see the finish line' in De Bruyne talks**\
+`Napoli owner Aurelio De Laurentiis said the deal was not yet finalised but that he held positive discussions with De Bruyne on Monday.`\
+https://nytimes.com/athletic/6383806/2025/05/26/kevin-de-bruyne-napoli-talks/
+
 **Tuesday Briefing: U.S. and E.U. Talk Trade**\
 `Plus, defining Sweden’s culture.`\
 https://nytimes.com/2025/05/26/briefing/us-eu-trade-russia-ukraine-attacks-south-korea-women-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010191264/liverpool-parade-car-plow
 **Caitlin Clark to miss at least 2 weeks with left quad injury**\
 `Indiana is 2-2 and will be without Clark for at least its next three games.`\
 https://nytimes.com/athletic/6383525/2025/05/26/caitlin-clark-fever-left-quad-strain-injury/
-
-**Driver Plows Car Into Crowd Along Parade Route in Liverpool**\
-`The police said they had detained a 53-year-old British man in connection with the crash. Prime Minister Keir Starmer of Britain said “the scenes in Liverpool are appalling.”`\
-https://nytimes.com/2025/05/26/world/europe/liverpool-parade-car-crash.html
 
