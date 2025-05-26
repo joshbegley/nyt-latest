@@ -1,3 +1,11 @@
+**Indy 500 makes history on the track — and with TV viewership**\
+`INDIANAPOLIS — Fox Sports CEO Eric Shanks had major aspirations for how his network could transform the Indy 500 in its first year as partners.`\
+https://nytimes.com/athletic/6383797/2025/05/26/indy-500-viewership-ratings-fox-sports/
+
+**Republican Vote Against E.V. Mandate Felt Like an Attack on California, Democrats Say**\
+`For decades, California has been able to adopt its own emissions regulations, effectively setting the bar for carmakers nationally. And for just as long, Republicans have resented the state’s outsize influence.`\
+https://nytimes.com/2025/05/26/us/trump-california-environment-gas-cars.html
+
 **Napoli sporting director says club can 'see the finish line' in De Bruyne talks**\
 `Napoli owner Aurelio De Laurentiis said the deal was not yet finalised but that he held positive discussions with De Bruyne on Monday.`\
 https://nytimes.com/athletic/6383806/2025/05/26/kevin-de-bruyne-napoli-talks/
