@@ -1,3 +1,7 @@
+**LeBrun: Nobody demands perfection from Stuart Skinner — but this is the version the Oilers need**\
+`Skinner has "finally found his groove now," according to Hockey Hall of Fame goalie Martin Brodeur.`\
+https://nytimes.com/athletic/6382585/2025/05/25/oilers-skinner-stanley-cup-stars/
+
 **Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
 `The Dodgers star looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
 https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
