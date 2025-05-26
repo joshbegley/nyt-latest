@@ -1,3 +1,11 @@
+**Memorial Day Storms Cause Delays for Holiday Travelers**\
+`Thunderstorms in the south and central United States caused flight delays during Memorial Day weekend, the beginning of the summer travel season.`\
+https://nytimes.com/2025/05/26/us/memorial-day-storms-travel-delays.html
+
+**Giants takeaways: A third of the way through the season, run scoring remains the issue**\
+`The Giants' red-hot start with runners in scoring position has predictably fallen off. What does that tell us about their playoff chances?`\
+https://nytimes.com/athletic/6383728/2025/05/26/sf-giants-takeaways-offensive-struggles/
+
 **What We Know About the Car-Ramming at the Liverpool Parade in England**\
 `Almost 50 people, including four children, were injured on Monday after a driver plowed into a crowd that had been celebrating Liverpool F.C.’s Premier League title.`\
 https://nytimes.com/2025/05/26/world/europe/uk-liverpool-parade-car-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/26/briefing/us-eu-trade-russia-ukraine-attacks-south
 **Casemiro and Antony earn Brazil recall in Carlo Ancelotti's first squad**\
 `There is also a recall for Tottenham forward Richarlison for June's World Cup qualifiers against Ecuador and Paraguay.`\
 https://nytimes.com/athletic/6383750/2025/05/26/casemiro-antony-ancelotti-brazil/
-
-**Novak Djokovic hopes to receive similar farewell as rival Rafael Nadal**\
-`Seeing Nadal, Federer and Murray retire in the last few years has prompted Djokovic to think more about his own mortality.`\
-https://nytimes.com/athletic/6383706/2025/05/26/novak-djokovic-rafael-nadal-farewell-ceremony-comments/
-
-**PJ Haggerty, former Memphis guard, commits to Kansas State**\
-`Haggerty won the 2024-25 AAC Player of the Year award following his solid season with Memphis.`\
-https://nytimes.com/athletic/6383630/2025/05/26/pj-haggerty-kansas-state-commitment-transfer/
 
