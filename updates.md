@@ -1,3 +1,11 @@
+**Trump’s Comments on Gaza Reflect Israel’s Growing Isolation**\
+`For months, Israel’s strongest allies had been reluctant to join a wave of global censure against the war. Now, even the Trump administration appears to be growing impatient.`\
+https://nytimes.com/2025/05/26/world/middleeast/israel-gaza-trump-isolation.html
+
+**Roland Garros night slot based on what’s better for fans, says French tennis chief**\
+`Speaking at the French Open, he said that decisions that have shut women's matches out of the night session are good for spectators.`\
+https://nytimes.com/athletic/6382953/2025/05/26/french-open-night-session-tennis-gender-equality/
+
 **Roland Garros night slot based on what’s better for fans, says French tennis chief**\
 `Speaking at Roland Garros, a French tennis official said that scheduling decisions that have favored men's matches benefit spectators.`\
 https://nytimes.com/athletic/6382953/2025/05/26/french-open-night-session-tennis-gender-equality/

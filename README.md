@@ -1,3 +1,7 @@
+**Noem Visits Israel Amid Tensions Between Trump and Netanyahu**\
+`Kristi Noem, the homeland security secretary, expressed continued U.S. support for Israel despite recent disagreements.`\
+https://nytimes.com/2025/05/26/us/politics/noem-israel-trump-netanyahu.html
+
 **Trump’s Comments on Gaza Reflect Israel’s Growing Isolation**\
 `For months, Israel’s strongest allies had been reluctant to join a wave of global censure against the war. Now, even the Trump administration appears to be growing impatient.`\
 https://nytimes.com/2025/05/26/world/middleeast/israel-gaza-trump-isolation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6376929/2025/05/26/maple-leafs-mitch-marner-john-ta
 **USMNT Tracker Awards: Player of the season? Best XI? Who disappointed?**\
 `Who will win the coveted (sort of) Ballon d’Tracker?`\
 https://nytimes.com/athletic/6378087/2025/05/26/2025-tracker-awards-usmnt/
-
-**The Pulse: Another unbelievable comeback**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6382645/2025/05/26/knicks-pacers-comeback-game-3-the-pulse/
 
