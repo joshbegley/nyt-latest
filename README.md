@@ -1,3 +1,7 @@
+**Suddenly: A Mirror!**\
+`People who are suddenly confronted with who they are.`\
+https://nytimes.com/2025/05/25/podcasts/suddenly-a-mirror-this-american-life-nyt-audio.html
+
 **Shohei Ohtani touches 97 mph facing hitters in batting practice, homers in first at-bat**\
 `The Dodgers looked sharp in facing hitters for the first time since undergoing a second major elbow operation.`\
 https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382199/2025/05/25/oilers-stars-mcdavid-game-3/
 **Choir Member**\
 `Ari Halpern keeps a close watch.`\
 https://nytimes.com/2025/05/25/crosswords/daily-puzzle-2025-05-26.html
-
-**Remembering George Floyd**\
-`Text by Ernesto Londoño`\
-https://nytimes.com/card/2025/05/25/us/george-floyd-anniversary
 
