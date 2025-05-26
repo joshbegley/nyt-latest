@@ -1,3 +1,7 @@
+**Ozzie Albies' surge, Austin Riley errors and more: 4 Braves takeaways**\
+`Brian Snitker said the Braves 'have all the confidence in the world' they will got on track after a lackluster series against the Padres.`\
+https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
+
 **Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
 `Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the trip.`\
 https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382436/2025/05/25/shohei-ohtani-dodgers-pitching/
 **Lineker emotionally signs off final MOTD ahead of BBC exit**\
 `Lineker, 64, has presented Match of the Day since 1999, but will now leave the corporation altogether following Sunday's show.`\
 https://nytimes.com/athletic/6382187/2025/05/25/gary-lineker-bbc-motd-exit/
-
-**Why Swayman's World Championship run is the Bruins' most important 2025 development yet**\
-`Swayman backstopped Team USA to its first gold at worlds since 1933 with a 7-0 record and two shutouts.`\
-https://nytimes.com/athletic/6382412/2025/05/25/jeremy-swayman-world-championship-gold-bruins/
 

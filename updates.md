@@ -1,3 +1,7 @@
+**Ozzie Albies' surge, Austin Riley errors and more: 4 Braves takeaways**\
+`Brian Snitker said the Braves 'have all the confidence in the world' they will got on track after a lackluster series against the Padres.`\
+https://nytimes.com/athletic/6382586/2025/05/25/braves-ozzie-albies-austin-riley/
+
 **Phillies takeaways: Is a lineup shuffle near? Strahm's hiccup, Nola's delayed return**\
 `Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the trip.`\
 https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
