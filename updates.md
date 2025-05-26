@@ -1,3 +1,7 @@
+**NCAA softball super regionals recap: Texas Tech sweeps Florida State**\
+`No. 12 Texas Tech swept No. 5 Florida State in the Tallahassee super regionals behind star ace NiJaree Canady.`\
+https://nytimes.com/athletic/6382630/2025/05/25/ncaa-softball-tournament-super-regionals-recap-texas-tech/
+
 **Phillies takeaways: Matt Strahm's hiccup, Aaron Nola's delayed return, and a lineup shuffle?**\
 `Meanwhile, Tanner Banks, the second lefty behind Strahm, looks sharp, and Orion Kerkering regained some confidence during the road trip.`\
 https://nytimes.com/athletic/6382577/2025/05/25/phillies-takeaways-matt-strahm-aaron-nola/
