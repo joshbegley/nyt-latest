@@ -1,3 +1,11 @@
+**A Union That Pushed Cuomo to Resign Spends $1 Million to Elect Him**\
+`Plus: the candidates for New York City mayor hit the campaign trail with just four weeks to go until the Democratic primary.`\
+https://nytimes.com/2025/05/27/nyregion/nyc-mayor-race-cuomo-union.html
+
+**Man Utd make contact with Wolves to sign Cunha**\
+`Cunha has a release clause worth £62.5million, which United have asked to pay over five years rather than the required two.`\
+https://nytimes.com/athletic/6385533/2025/05/27/manchester-united-transfers-matheus-cunha/
+
 **Robert Campbell, Architecture Critic in Love With Boston, Dies at 88**\
 `A Pulitzer Prize winner, he wrote with humanity and zest for The Boston Globe for more than 40 years.`\
 https://nytimes.com/2025/05/27/arts/design/robert-campbell-dead.html
@@ -6,8 +14,8 @@ https://nytimes.com/2025/05/27/arts/design/robert-campbell-dead.html
 `Lillo, Carlos Vicens and Inigo Dominguez are all moving on from the Etihad with Guardiola set to make several new coaching appointments.`\
 https://nytimes.com/athletic/6385410/2025/05/27/juanma-lillo-manchester-city-guardiola-staff/
 
-**Stocks Rally on What Some Call the ‘TACO Trade’**\
-`The tongue-in-cheek term adopted by analysts and commentators describes how markets tumble on President Trump’s tariff threats, only to rebound when he relents.`\
+**Stocks Rally on the ‘TACO Trade’**\
+`The tongue-in-cheek term adopted by some analysts and commentators describes how markets tumble on President Trump’s tariff threats, only to rebound when he relents.`\
 https://nytimes.com/2025/05/27/business/stock-market-trump-tariffs.html
 
 **Ronnie Dugger, Crusading Texas Journalist, Dies at 95**\
@@ -30,13 +38,4 @@ https://nytimes.com/athletic/6385362/2025/05/27/f1-monaco-gp-drivers-championshi
 **Judge Temporarily Blocks White House From Ending Congestion Pricing**\
 `The ruling effectively keeps the New York City tolling program, the first of its kind in the United States, running through June 9. President Trump has long vowed to kill the program.`\
 https://nytimes.com/2025/05/27/nyregion/nyc-congestion-pricing-trump.html
-
-**Listen: Do Aston Villa need to sell before they buy this summer?**\
-`Ayo Akinwolere was joined by Jacob Tanswell and Dan Bardell to discuss how missing out on the top five could alter the club’s summer plans`\
-https://nytimes.com/athletic/6384458/2025/05/27/athletic-fc-podcast-aston-villa-summer-transfers/
-
-**PSG vs Inter UCL final betting: History says take the under, should you?**\
-`Sam Tighe explains why betting on the under in this weekend’s Champions League final might be a smart pick.
-`\
-https://nytimes.com/athletic/6385423/2025/05/27/psg-inter-champions-league-final-under-betting-odds/
 
