@@ -1,3 +1,11 @@
+**They Inhaled a Gas and Scaled Everest in Days. Is It the Future of Mountaineering?**\
+`A group of British men went from London to the summit of Everest and back in less than a week with the help of xenon gas. Mountaineers and the Nepalese government weren’t pleased.`\
+https://nytimes.com/2025/05/27/world/europe/mount-everest-xenon-gas-nepal-uk-climbers.html
+
+**The New York Times International Edition in Print for Wednesday, May 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/27/todays-new-york-times-international-edition
+
 **Naomi Osaka's return to Roland Garros and the ebbs and flows of a tennis comeback**\
 `Osaka's tears in a news conference brought back memories of the 2021 French Open, and her many climbs back into the sport.`\
 https://nytimes.com/athletic/6383907/2025/05/27/naomi-osaka-tennis-mental-health-press-conferences/
