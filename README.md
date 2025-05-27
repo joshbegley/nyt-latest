@@ -1,40 +1,40 @@
-**In Nashville, Volunteers Are Figuring Out How to Counter ICE**\
-`In early May, Immigration and Customs Enforcement agents were spotted alongside Tennessee State Highway Patrol troopers in areas of Nashville.`\
-https://nytimes.com/2025/05/27/world/americas/ice-nashville-volunteers.html
+**With Stefon Diggs, did the Patriots do enough to upgrade at wide receiver?**\
+`There are some new veterans, a Day 2 draft pick and new coaches. But did New England do enough to improve at wide receiver?`\
+https://nytimes.com/athletic/6377826/2025/05/27/stefon-diggs-patriots-upgrade-wide-receiver/
 
-**ICE Agents and State Troopers Team Up in Nashville Operation**\
-`In early May, Immigration and Customs Enforcement agents were spotted alongside Tennessee State Highway Patrol troopers in areas of Nashville, partnering up for a weeklong operation that turned routine traffic stops into immigration arrests.`\
-https://nytimes.com/video/world/americas/100000010163668/ice-state-troopers-nashville.html
+**Satellite Images Suggest a Russian Plan to Restart Seized Ukrainian Nuclear Plant**\
+`Snaking power lines are part of Moscow’s goal to harness the power of the Zaporizhzhia facility, according to Greenpeace.`\
+https://nytimes.com/2025/05/27/world/europe/russia-ukraine-nuclear-zaporizhzhia.html
 
-**Amorim outlines 'advantage' of no European football for Man Utd**\
-`United’s 15th place finish and failure to win the Europa League means they missed out on Champions League qualification.`\
-https://nytimes.com/athletic/6384452/2025/05/27/manchester-united-champions-league-ruben-amorim/
+**A French Pedophile Doctor Abused Hundreds in His Care. Why Wasn’t He Stopped?**\
+`Years before Joël Le Scouarnec was charged with abusing 299 former patients, he was convicted of downloading child sexual abuse imagery.`\
+https://nytimes.com/2025/05/27/world/europe/joel-le-scouarnec-france-doctor-pedophile.html
 
-**Police Quickly Gave Details on Liverpool Car Ramming, Aiming to Prevent Rumors**\
-`Just hours after the episode, the police announced that the driver was a white British man. After previous violence, false anti-Muslim speculation had been spread online.`\
-https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-police-suspect.html
+**Blue Man Group’s Longtime Home Will Stage Off Broadway Dramas**\
+`A commercial producer active on Broadway and in the West End has signed a long-term lease for Astor Place Theater with plans for shows there.`\
+https://nytimes.com/2025/05/27/theater/astor-place-no-guarantees-schwarzman.html
 
-**Red Bull Italy SailGP team acquired by Grazioli-Venier's Muse Sport consortium**\
-`Alongside consortium partners Gian Luca Passi de Preposulo and Jimmy Spithill, she will become the first woman to lead a SailGP team`\
-https://nytimes.com/athletic/6382902/2025/05/27/grazioli-veniers-muse-sport-consortium-red-bull-italy-sailgp-team/
+**She Was Addicted to Romance. So She Gave Up Sex.**\
+`The writer Melissa Febos has a taste for extremes. Her new book, “The Dry Season,” chronicles a bold experiment in her search for self-knowledge.`\
+https://nytimes.com/2025/05/27/style/melissa-febos-dry-season-celibacy-profile.html
 
-**Weinstein Trial to Shift to Defense After 3rd Accuser’s Striking Account**\
-`Jessica Mann broke down while testifying at the disgraced film mogul Harvey Weinstein’s sex crimes trial. His lawyers are expected to begin making their case this week.`\
-https://nytimes.com/2025/05/27/nyregion/harvey-weinstein-trial-what-to-know.html
+**Trump’s China Tariffs Are Having a ‘Massive Impact’ on Small Business**\
+`A small Vermont business that sells water bottles used by cyclists and others is struggling to adapt to President Trump’s tariffs even after they were temporarily lowered.`\
+https://nytimes.com/2025/05/27/business/trumps-china-tariffs-small-businesses.html
 
-**Why Andrew Cuomo’s Critics Say He’s Just Like Eric Adams**\
-`Former Gov. Andrew M. Cuomo is the front-runner in the New York City mayor’s race. His critics say his mayoralty would be similar to a second term for the incumbent, Eric Adams.`\
-https://nytimes.com/2025/05/27/nyregion/andrew-cuomo-eric-adams.html
+**Military Parade Concerns Dissolve With a More Acquiescent Pentagon**\
+`There will be 28 Abrams tanks, 6,700 soldiers, 50 helicopters, 34 horses, two mules and a dog, according to the Army’s plans for the June 14 event.`\
+https://nytimes.com/2025/05/27/us/politics/military-parade-trump.html
 
-**Word of the Day: besmirch**\
-`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/27/learning/word-of-the-day-besmirch.html
+**This California Highway Is Now a Park. The Cars Are Gone, but Not the Anger.**\
+`The transformation of a two-mile stretch of San Francisco’s Great Highway into a pedestrian promenade has set off a clash over the city’s anti-car culture.`\
+https://nytimes.com/2025/05/27/us/san-francisco-highway-park.html
 
-**Unpacking Truths Behind Mental Health Trends**\
-`In her Psych 101 column, Christina Caron debunks mental health misinformation and offers readers solutions to common challenges.`\
-https://nytimes.com/2025/05/27/insider/mental-health-trends-column.html
+**Ramón Rodríguez Shoots and Scores**\
+`After years of typecasting and smaller roles, the actor has broken through as the damaged but gifted title character of “Will Trent,” a popular ABC procedural.`\
+https://nytimes.com/2025/05/27/arts/television/will-trent-ramon-rodriguez.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/27/crosswords/spelling-bee-forum.html
+**Remember Enron and WorldCom? Let’s Not Do That Again.**\
+`A proposal by Republican lawmakers to eliminate an auditing watchdog would make the next corporate disaster more likely.`\
+https://nytimes.com/2025/05/27/opinion/enron-worldcom-fraud-pcaob.html
 
