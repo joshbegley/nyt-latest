@@ -1,3 +1,11 @@
+**Test Your Spelling Skills**\
+`Do you think you have what it takes to compete with these Scripps Spelling Bee whizzes?`\
+https://nytimes.com/interactive/2025/05/27/us/scripps-spelling-bee-quiz.html
+
+**University of Florida Approves New President, Recruited From Michigan**\
+`Santa Ono, the president of the University of Michigan, was unanimously approved by Florida’s board despite criticism from conservatives of his past views on diversity programs.`\
+https://nytimes.com/2025/05/27/us/university-of-florida-president-santa-ono.html
+
 **A Union That Pushed Cuomo to Resign Spends $1 Million to Elect Him**\
 `Plus: the candidates for New York City mayor hit the campaign trail with just four weeks to go until the Democratic primary.`\
 https://nytimes.com/2025/05/27/nyregion/nyc-mayor-race-cuomo-union.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-c
 **18 Intriguing Animal Photos to Get Your Students Thinking**\
 `A collection of some of our favorite “What’s Going On in This Picture?” images featuring encounters between animals and people.`\
 https://nytimes.com/2025/05/27/learning/18-intriguing-animal-photos-to-get-your-students-thinking.html
-
-**Prime Tire: F1's title fight regains momentum. Plus, what to do about Monaco**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6385362/2025/05/27/f1-monaco-gp-drivers-championship-prime-tire-newsletter/
-
-**Judge Temporarily Blocks White House From Ending Congestion Pricing**\
-`The ruling effectively keeps the New York City tolling program, the first of its kind in the United States, running through June 9. President Trump has long vowed to kill the program.`\
-https://nytimes.com/2025/05/27/nyregion/nyc-congestion-pricing-trump.html
 
