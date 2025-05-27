@@ -1,3 +1,7 @@
+**PGA Tour adjusting its Tour Championship format**\
+`The PGA Tour plans to lose the "starting strokes" format for the 2025 Tour Championship.`\
+https://nytimes.com/athletic/6386504/2025/05/27/pga-tour-championship-starting-strokes-format/
+
 **Marshals’ Data Shows Spike in Threats Against Federal Judges**\
 `Data gathered by the law enforcement agency responsible for judicial security showed 162 judges faced threats between March 1 and April 14.`\
 https://nytimes.com/2025/05/27/us/politics/federal-judges-threats.html
