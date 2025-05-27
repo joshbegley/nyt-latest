@@ -1,3 +1,7 @@
+**ICE, Shifting Tactics, Detains High School Student at N.Y.C. Courthouse**\
+`The detention of a 20-year-old Venezuelan appears to be the first reported instance of immigration officials apprehending a student in the city this year.`\
+https://nytimes.com/2025/05/27/nyregion/new-york-student-arrested-ice.html
+
 **PGA Tour adjusting its Tour Championship format**\
 `The PGA Tour plans to lose the "starting strokes" format for the 2025 Tour Championship.`\
 https://nytimes.com/athletic/6386504/2025/05/27/pga-tour-championship-starting-strokes-format/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386362/2025/05/27/wnba-concludes-investigation-rac
 **A Gardener Stumbles Upon Hidden Treasure in a Vermont Park**\
 `Kelly Wakefield found a rock with a skull and crossbones in the same park last fall, but she didn’t realize that it was a clue to much more.`\
 https://nytimes.com/2025/05/27/us/buried-treasure-vermont-garden.html
-
-**Jewish Community in Kansas City Mourns a ‘Radiant Link’ for Peace**\
-`At the funeral for Sarah Milgrim, who was killed outside a Jewish museum in Washington last week, the Israeli embassy aide was mourned as someone who wanted to help everyone.`\
-https://nytimes.com/2025/05/27/us/sarah-milgrim-funeral-embassy-attack.html
 
