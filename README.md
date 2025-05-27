@@ -1,6 +1,26 @@
+**Easy Chicken-Taco Tuesday**\
+`Easy to make, easy to eat and easy to love.`\
+https://nytimes.com/2025/05/27/dining/easy-chicken-taco-recipe-and-more-weeknight-dinners.html
+
+**Trump Pardoned Tax Cheat After Mother Attended $1 Million Dinner**\
+`Paul Walczak’s pardon application cited his mother’s support for the president, including raising millions of dollars and a connection to a plot to publicize a Biden family diary.`\
+https://nytimes.com/2025/05/27/us/politics/trump-pardon-paul-walczak-tax-crimes.html
+
+**The Bounce: Thunder near NBA Finals, but stupid rule rears its head again as playoff drama grows**\
+`While the Thunder absolutely earned their Game 4 win, the ending was once again devoid of drama. How does the NBA correct this?`\
+https://nytimes.com/athletic/6384834/2025/05/27/shai-gilgeous-alexander-thunder-nba-finals-playoffs-the-bounce/
+
+**Jeremiah Smith, Ryan Williams featured on cover of EA Sports' CFB26**\
+`Smith and Williams were in the unique position last year of being among the best players in the country as true freshmen.`\
+https://nytimes.com/athletic/6384153/2025/05/27/college-football-26-video-game-cover-jeremiah-smith-ryan-williams/
+
 **Congo’s Former President Returns Home, Accused of Treason**\
 `Joseph Kabila was accused of supporting the Rwanda-backed militia M23. Days later he arrived in Goma, a city held by the militia, so he remains out of prosecutors’ reach.`\
 https://nytimes.com/2025/05/27/world/africa/congo-kabila-returns-treason.html
+
+**Packers proposed restructured contract to CB Jaire Alexander: Source**\
+`Alexander plans to report to Lambeau Field for mandatory minicamp in a couple weeks, even if his contract situation isn't resolved.`\
+https://nytimes.com/athletic/6385119/2025/05/27/packers-restructured-contract-jaire-alexander/
 
 **After Curator’s Death, Venice Biennale Will Realize Her Vision**\
 `Koyo Kouoh had spent nearly seven months preparing the art event’s main exhibition before she died this month. Her team will complete the work and open the show in May 2026.`\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6384933/2025/05/27/reds-singer-india-florida-gators
 **How a Generation’s Struggle Led to a Record Surge in Homelessness**\
 `Late baby boomers have endured challenges that have left many economically vulnerable and dependent on parents for help. With their parents dying, they are ending up on the streets in growing numbers.`\
 https://nytimes.com/2025/05/27/us/politics/homelessness-baby-boomers.html
-
-**Conflicting Claims Over Israel-Hamas Cease-Fire Talks Sow Confusion**\
-`Israel, Hamas and the Trump administration have issued different messages about where efforts to reach a truce stand.`\
-https://nytimes.com/2025/05/27/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
-
-**This Medieval Greek Fortress Is a Tourist Idyll. Would a Cable Car Spoil It?**\
-`The authorities in Monemvasia, founded in the sixth century, say people with limited mobility need access to the town’s peak. But critics say the project would destroy the identity of the site.`\
-https://nytimes.com/2025/05/27/world/europe/greece-monemvasia-cable-car.html
-
-**No Corrections: May 27, 2025**\
-`No corrections appeared in print on Tuesday, May 27, 2025.`\
-https://nytimes.com/2025/05/27/pageoneplus/no-corrections-may-27-2025.html
-
-**KC Current owners purchase Danish club HB Koge**\
-`The Longs follow Michele Kang in building out a portfolio of women's clubs around the world `\
-https://nytimes.com/athletic/6380248/2025/05/27/kc-current-purchase-danish-club-hb-koge/
-
-**Nottingham Forest review of 2024-25: A remarkable season that could have been even better**\
-`While Forest ultimately missed out on a place in the Champions League, their seventh-place finish still ranks as a significant achievement`\
-https://nytimes.com/athletic/6384584/2025/05/27/nottingham-forest-season-review-2024-25/
 

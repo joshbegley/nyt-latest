@@ -1,3 +1,11 @@
+**Congo’s Former President Returns Home, Accused of Treason**\
+`Joseph Kabila was accused of supporting the Rwanda-backed militia M23. Days later he arrived in Goma, a city held by the militia, so he remains out of prosecutors’ reach.`\
+https://nytimes.com/2025/05/27/world/africa/congo-kabila-returns-treason.html
+
+**After Curator’s Death, Venice Biennale Will Realize Her Vision**\
+`Koyo Kouoh had spent nearly seven months preparing the art event’s main exhibition before she died this month. Her team will complete the work and open the show in May 2026.`\
+https://nytimes.com/2025/05/27/arts/design/venice-biennale-koyo-kouoh-minor-keys.html
+
 **Do You Know Where in the World These Books Are Set?**\
 `Canada has a rich literary culture and many of its recent novelists have achieved international acclaim. See if you can match these five books to locations set within the country.`\
 https://nytimes.com/interactive/2025/05/27/books/review/canada-novel-locations.html
