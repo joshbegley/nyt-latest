@@ -1,3 +1,7 @@
+**Japan Will Spend $6.3 Billion to Shield Its Economy From Trump Tariffs**\
+`Lawmakers approved a plan to help companies and consumers as officials bargain in Washington for relief from debilitating auto levies.`\
+https://nytimes.com/2025/05/27/business/japan-economy-trump-tariffs.html
+
 **How North Korea Botched the Launch of a Warship**\
 `Satellite images and videos show how launching a 5,000-ton warship into the water sideways can cause it to capsize if done incorrectly.`\
 https://nytimes.com/2025/05/27/world/asia/north-korea-warship-destroyer.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6383554/2025/05/27/what-we-learned-from-xabi-alonso
 https://nytimes.com/athletic/6383284/2025/05/27/arsenal-champions-league-celebrations/
 
 **Liverpool parade horror - Two seriously injured, including one child, after car ploughs into crowd**\
-`Twenty-seven people were taken to hospital after the incident on Monday, with one adult and one child seriously hurt.`\
+`Twenty-seven people were taken to hospital after the incident on Monday`\
 https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-collision/
 
 **There were highlights, but sloppy play costs Twins in 7-2 loss to Tampa Bay**\
 `The Twins strayed from their recent 13-game winning streak form for the first time since a disastrous eighth inning in Boston on May 2.`\
 https://nytimes.com/athletic/6384227/2025/05/27/twins-lose-to-tampa-bay/
-
-**Antony's revival at Real Betis: How a €95m Man United outcast has been one of the best players in Spain**\
-`Antony has been a standout player for Betis in their run to the Conference League final after moving on loan from Man United in January`\
-https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loan-conference-league/
 
