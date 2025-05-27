@@ -1,3 +1,7 @@
+**Palestinians Rush to New Aid Distribution Center in Gaza**\
+`As hundreds of Palestinians converged on an Israeli-backed aid distribution center in Rafah, Gaza, short bursts of gunfire caused the crowd to panic. The Israeli military said it fired warning shots near the compound.`\
+https://nytimes.com/video/world/middleeast/100000010192986/gaza-food-aid-chaos.html
+
 **WNBA unable to substantiate reports of racist behavior at Sky-Fever game**\
 `The WNBA had been investigating reports of allegedly racist comments directed at Chicago's Angel Reese.`\
 https://nytimes.com/athletic/6386362/2025/05/27/wnba-concludes-investigation-racist-behavior-sky-fever/

@@ -1,3 +1,7 @@
+**Palestinians Rush to New Aid Distribution Center in Gaza**\
+`As hundreds of Palestinians converged on an Israeli-backed aid distribution center in Rafah, Gaza, short bursts of gunfire caused the crowd to panic. The Israeli military said it fired warning shots near the compound.`\
+https://nytimes.com/video/world/middleeast/100000010192986/gaza-food-aid-chaos.html
+
 **WNBA unable to substantiate reports of racist behavior at Sky-Fever game**\
 `The WNBA had been investigating reports of allegedly racist comments directed at Chicago's Angel Reese.`\
 https://nytimes.com/athletic/6386362/2025/05/27/wnba-concludes-investigation-racist-behavior-sky-fever/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-b
 **Travis Hunter gaining reps on offense, defense at Jaguars OTAs**\
 `Hunter's two-way prowess helped him earn the Heisman Trophy while he starred on offense and defense at Colorado in 2024`\
 https://nytimes.com/athletic/6385996/2025/05/27/travis-hunter-jacksonville-jaguars-otas-offense-defense/
-
-**Judge Strikes Down Trump Order Targeting WilmerHale**\
-`The judge concluded that the firm was targeted over its association with Robert S. Mueller III, and that the order “must be struck down in its entirety.”`\
-https://nytimes.com/2025/05/27/us/politics/trump-law-firms-wilmerhale.html
 
