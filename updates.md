@@ -1,3 +1,7 @@
+**For the first time in his career, Jacob deGrom failed to record a single strikeout**\
+`deGrom, a two-time Cy Young Award winner, entered Monday with 1,728 career strikeouts over 229 starts.`\
+https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-strikeouts/
+
 **Charles B. Rangel: A Life in Pictures**\
 `The congressman from Harlem was a force on Capitol Hill — and a familiar presence on the streets he represented for decades.`\
 https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html

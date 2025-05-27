@@ -1,3 +1,7 @@
+**For the first time in his career, Jacob deGrom failed to record a single strikeout**\
+`deGrom, a two-time Cy Young Award winner, entered Monday with 1,728 career strikeouts over 229 starts.`\
+https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-strikeouts/
+
 **Charles B. Rangel: A Life in Pictures**\
 `The congressman from Harlem was a force on Capitol Hill — and a familiar presence on the streets he represented for decades.`\
 https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383901/2025/05/26/chicago-cubs-memorial-day-check-
 **Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
 `The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will his return change things?`\
 https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
-
-**Indy 500 makes history on the track — and with TV viewership**\
-`INDIANAPOLIS — Fox Sports CEO Eric Shanks had major aspirations for how his network could transform the Indy 500 in its first year as partners.`\
-https://nytimes.com/athletic/6383797/2025/05/26/indy-500-viewership-ratings-fox-sports/
 
