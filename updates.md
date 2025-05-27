@@ -1,3 +1,11 @@
+**'Don't walk away': SEC's Greg Sankey urges teams to play non-conference games**\
+`The message comes amid an era where the CFP selection committee seems to ding teams for losses more than it rewards teams for good wins.`\
+https://nytimes.com/athletic/6384081/2025/05/26/sec-commissioner-greg-sankey-cfp-format/
+
+**Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
+`With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
+https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
+
 **For the first time in his career, Jacob deGrom failed to record a single strikeout**\
 `deGrom, a two-time Cy Young Award winner, entered Monday with 1,728 career strikeouts over 229 starts.`\
 https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-strikeouts/

@@ -1,3 +1,7 @@
+**'Don't walk away': SEC's Greg Sankey urges teams to play non-conference games**\
+`The message comes amid an era where the CFP selection committee seems to ding teams for losses more than it rewards teams for good wins.`\
+https://nytimes.com/athletic/6384081/2025/05/26/sec-commissioner-greg-sankey-cfp-format/
+
 **For the first time in his career, Jacob deGrom failed to record a single strikeout**\
 `deGrom, a two-time Cy Young Award winner, entered Monday with 1,728 career strikeouts over 229 starts.`\
 https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-strikeouts/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-
 https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
 
 **Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
-`With a 2-1 overtime victory, the Frost won back-to-back PWHL championships on Monday — and this time, they did it on home ice. `\
+`With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
 https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
 
 **'It was time': Chris Taylor talks Dodgers release, fresh start with Angels**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383007/2025/05/26/french-open-recap-schedule-resul
 **At Memorial Day, the Cubs look dangerous and are primed for a fun summer**\
 `At 33-21, the Cubs are 12 games over .500 before June for the first time since 2016. `\
 https://nytimes.com/athletic/6383901/2025/05/26/chicago-cubs-memorial-day-check-in/
-
-**Oilers will happily welcome back Mattias Ekholm — even if it creates a 'difficult situation'**\
-`The Oilers have won 10 of their last 12 games. Even though Ekholm is valuable, will his return change things?`\
-https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
 
