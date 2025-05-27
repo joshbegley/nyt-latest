@@ -1,3 +1,7 @@
+**Minnesota Frost repeat as Walter Cup champions with OT win vs. Ottawa Charge**\
+`With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
+https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
+
 **Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: 'Really incredible'**\
 `With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
 https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
