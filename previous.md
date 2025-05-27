@@ -1,3 +1,7 @@
+**England goalkeeper Earps announces international retirement before Euro 2025**\
+`Earps was capped 53 times by the national team.`\
+https://nytimes.com/athletic/6384495/2025/05/27/mary-earps-england-retirement/
+
 **They Inhaled a Gas and Scaled Everest in Days. Is It the Future of Mountaineering?**\
 `A group of British men went from London to the summit of Everest and back in less than a week with the help of xenon gas. Mountaineers and the Nepalese government weren’t pleased.`\
 https://nytimes.com/2025/05/27/world/europe/mount-everest-xenon-gas-nepal-uk-climbers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/theater/astor-place-no-guarantees-schwarzman.html
 **She Was Addicted to Romance. So She Gave Up Sex.**\
 `The writer Melissa Febos has a taste for extremes. Her new book, “The Dry Season,” chronicles a bold experiment in her search for self-knowledge.`\
 https://nytimes.com/2025/05/27/style/melissa-febos-dry-season-celibacy-profile.html
-
-**Trump’s China Tariffs Are Having a ‘Massive Impact’ on Small Business**\
-`A small Vermont business that sells water bottles used by cyclists and others is struggling to adapt to President Trump’s tariffs even after they were temporarily lowered.`\
-https://nytimes.com/2025/05/27/business/trumps-china-tariffs-small-businesses.html
 
