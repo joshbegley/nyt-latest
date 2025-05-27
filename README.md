@@ -1,3 +1,7 @@
+**At the Edge of Brooklyn, Whiskey’s New Frontier**\
+`How the small-batch craft distillery Widow Jane walks its own line.`\
+https://nytimes.com/paidpost/widow-jane/at-the-edge-of-brooklyn-whiskeys-new-frontier.html
+
 **How a Day of Soccer Celebrations Turned to Chaos in Liverpool**\
 `After a car plowed into crowds celebrating their team’s Premier League title, camaraderie and jubilation dissolved into dread.`\
 https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-car-crash.html
@@ -33,9 +37,4 @@ https://nytimes.com/2025/05/27/business/media/npr-trump-lawsuit-executive-order-
 **Mitchell leaves role as Newcastle sporting director**\
 `Mitchell spent less than 12 months in the role after being appointed in July of last year.`\
 https://nytimes.com/athletic/5756366/2025/05/27/newcastle-paul-mitchell-leaves/
-
-**Submit your questions for Murat Ates' Winnipeg Jets offseason mailbag**\
-`<p>With the Jets&#8217; offseason underway and <a href="https://www.nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/">lots of uncertainty ahead</a>, it&#8217;s time to answer your pressing question. Drop them here and they will be answered in an upcoming mailbag,</p>
-`\
-https://nytimes.com/athletic/6383666/2025/05/27/submit-your-questions-for-murat-ates-winnipeg-jets-offseason-mailbag/
 

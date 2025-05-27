@@ -1,3 +1,7 @@
+**How a Day of Soccer Celebrations Turned to Chaos in Liverpool**\
+`After a car plowed into crowds celebrating their team’s Premier League title, camaraderie and jubilation dissolved into dread.`\
+https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-car-crash.html
+
 **The Windup: Boston’s quandary returns**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6384389/2025/05/27/red-sox-third-base-the-windup/
