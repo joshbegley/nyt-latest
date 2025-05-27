@@ -1,3 +1,11 @@
+**Texas Rangers' All-Quarter Century Team, a 26-man roster of the club's best since 2000**\
+`From no-brainers like Adrían Beltré to surprise picks, the Rangers' All-Quarter Century Team is filled with Texas luminaries.`\
+https://nytimes.com/athletic/6370696/2025/05/27/texas-rangers-all-quarter-century-team-2020-2025/
+
+**Led by SGA, the Thunder are growing into a great playoff team**\
+`After a Game 3 beatdown, Gilgeous-Alexander and Oklahoma City withstood the Timberwolves punches to grab a 3-1 series lead.`\
+https://nytimes.com/athletic/6384327/2025/05/27/shai-gilgeous-alexander-thunder-game-4-west-finals/
+
 **Once their biggest question, the Astros' bullpen is now their bedrock**\
 `Houston's relievers have posted the best ERA and lowest opponents' batting average of any relief corps in the American League.`\
 https://nytimes.com/athletic/6383811/2025/05/27/astros-bullpen-bedrock/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6357922/2025/05/27/james-hagens-nhl-draft-2025-isla
 **Rosenthal: Nationals remain among MLB's bottom feeders despite lengthy rebuild**\
 `Despite a strong return for Juan Soto, the Nationals haven't vaulted themselves back into contention due to several organizational failures.`\
 https://nytimes.com/athletic/6384096/2025/05/27/washington-nationals-rebuild/
-
-**Predicting the first 3 weeks of the 2025 college football TV schedule**\
-`Conferences reveal their complete kickoff time and network placement schedules for the first three weeks of the season Thursday.`\
-https://nytimes.com/athletic/6383530/2025/05/27/college-football-season-tv-schedule-predictions-september-2025/
-
-**I was a first-round MLB bust. Here are 5 lessons I learned**\
-`Matt Antonelli was a first-round pick of the San Diego Padres whose shortcomings in baseball gave him the tools to live an impactful life.`\
-https://nytimes.com/athletic/6370308/2025/05/27/first-round-bust-lessons-learned-mlb/
 
