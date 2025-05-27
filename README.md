@@ -1,3 +1,15 @@
+**What is the Unity Cup and why could it be a big cultural moment in England?**\
+`Nigeria, Ghana, Jamaica and Trinidad and Tobago are taking part in a tournament at Brentford's Gtech Stadium - but what's it all about?`\
+https://nytimes.com/athletic/6383273/2025/05/27/unity-cup-nigeria-ghana-jamaica-trinidad/
+
+**The Jeweler Behind Zendaya’s Blingy Engagement Ring**\
+`Jessica McCormack, the London jeweler with a knack for injecting cool-girl energy into top-dollar pieces, has opened a shop in Manhattan.`\
+https://nytimes.com/2025/05/27/style/jessica-mccormack-cult-jeweler-london.html
+
+**Dandy Attire for a Night at the Opera**\
+`Looking the part of a gentleman in a double-breasted blazer and pleated trousers.`\
+https://nytimes.com/2025/05/27/style/street-style-look-dandy-attire.html
+
 **Primoz Roglic abandons Giro d’Italia after stage 16 crash**\
 `A former winner of the Giro in 2023, and a four-time champion of the Vuelta a Espana, he entered this Grand Tour as the pre-race favourite.`\
 https://nytimes.com/athletic/6384794/2025/05/27/giro-ditalia-primoz-roglic-crash-out/
@@ -26,16 +38,4 @@ https://nytimes.com/2025/05/27/us/politics/trump-scott-jenkins-pardon-virginia-s
 **Trump Administration Live Updates: Government Aims to Cut All Contracts With Harvard**\
 ``\
 https://nytimes.com/live/2025/05/27/us/trump-news
-
-**How Tim Cook Could Build an ‘Off-Ramp’ to Placate Trump**\
-`Apple’s chief executive may have wiggle room to get back in the president’s good graces. It starts with the iPhone.`\
-https://nytimes.com/2025/05/27/business/dealbook/cook-apple-trump.html
-
-**New Islanders general manager Mathieu Darche faces extensive to-do list atop front office**\
-`Leading the Islanders into a new era is no light task. Darche will have to make decisions that affect nearly every aspect of the franchise.`\
-https://nytimes.com/athletic/6383937/2025/05/27/mathieu-darche-islanders-gm-nhl/
-
-**Cap court: Evaluating contract projections on pending Senators free agents**\
-`With the help of AFP Analytics' contract projections and Sean McIndoe, we evaluate a few potential contracts for some pending Sens UFAs.`\
-https://nytimes.com/athletic/6362349/2025/05/27/senators-free-agents-contract-projections/
 
