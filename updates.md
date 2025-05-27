@@ -1,3 +1,7 @@
+**'It was time': Chris Taylor reflects on Dodgers release, fresh start with Angels**\
+`The Angels signed Taylor to a one-year contract on Monday and will pay him the prorated MLB minimum.`\
+https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodgers/
+
 **Memorial Day Storms Cause Delays for Holiday Travelers**\
 `Thunderstorms in the south and central United States caused flight delays during Memorial Day weekend, the beginning of the summer travel season.`\
 https://nytimes.com/2025/05/26/us/memorial-day-storms-travel-delays.html
