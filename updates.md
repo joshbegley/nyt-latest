@@ -1,3 +1,11 @@
+**Brett Howden, defense attorney clash during pointed cross-examination**\
+`Howden said it's unfair to be asked to recall specifics. Attorney Julianna Greenspan countered: "Things aren’t fair, are they Mr. Howden?"`\
+https://nytimes.com/athletic/6384889/2025/05/27/hockey-canada-sexual-assault-trial-4/
+
+**Southwest Airlines Sets Baggage Fees**\
+`Until now, it was the only major U.S. airline that allowed passengers to check two bags at no extra cost. On May 28, most passengers will start paying $35 for their first bag.`\
+https://nytimes.com/2025/05/27/travel/southwest-airlines-baggage-fees.html
+
 **Mary Earps and the end of an England career that was a testament to willpower**\
 `Much of women's football's skyward trajectory is down to incorrigible female forces like Mary Earps`\
 https://nytimes.com/athletic/6385134/2025/05/27/mary-earps-england-retirement-profile/

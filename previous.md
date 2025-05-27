@@ -1,3 +1,11 @@
+**Brett Howden, defense attorney clash during pointed cross-examination**\
+`Howden said it's unfair to be asked to recall specifics. Attorney Julianna Greenspan countered: "Things aren’t fair, are they Mr. Howden?"`\
+https://nytimes.com/athletic/6384889/2025/05/27/hockey-canada-sexual-assault-trial-4/
+
+**Southwest Airlines Sets Baggage Fees**\
+`Until now, it was the only major U.S. airline that allowed passengers to check two bags at no extra cost. On May 28, most passengers will start paying $35 for their first bag.`\
+https://nytimes.com/2025/05/27/travel/southwest-airlines-baggage-fees.html
+
 **Mary Earps and the end of an England career that was a testament to willpower**\
 `Much of women's football's skyward trajectory is down to incorrigible female forces like Mary Earps`\
 https://nytimes.com/athletic/6385134/2025/05/27/mary-earps-england-retirement-profile/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/business/trump-media-bitcoin.html
 **Chelsea's Mudryk to attend Conference League final**\
 `Mudryk has not played for Chelsea since being provisionally suspended in December for testing positive for meldonium, a banned substance.`\
 https://nytimes.com/athletic/6385150/2025/05/27/chelsea-mykhailo-mudryk-conference-league-final/
-
-**Liverpool parade latest - 50 hospitalised, man arrested on suspicion of attempted murder**\
-`The collision is being treated as an isolated incident and police are not looking for anyone else in relation to the incident.`\
-https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-collision/
-
-**Bettors like Aaron Judge to do something that hasn't been done since 1941**\
-`Can Aaron Judge finish the season batting .400? You can bet on it.`\
-https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batting-average/
 
