@@ -1,3 +1,11 @@
+**Faith and Credit**\
+`We try to demystify the bond market.`\
+https://nytimes.com/2025/05/27/briefing/us-bond-market.html
+
+**Resilient all season, Timberwolves face their biggest test against relentless Thunder**\
+`Minnesota has played best this season when its back is against the wall. Going down 3-1 to OKC presents a daunting task.`\
+https://nytimes.com/athletic/6384044/2025/05/27/timberwolves-game-4-west-finals-loss-thunder/
+
 **9 free-agent defenders who could complete the Canucks' blue-line**\
 `The Canucks will clearly pool resources reimagining their forward group this offseason, but that doesn't mean the back-end is finished.`\
 https://nytimes.com/athletic/6383884/2025/05/27/vancouver-canucks-free-agent-targets/

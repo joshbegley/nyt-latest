@@ -1,3 +1,11 @@
+**Faith and Credit**\
+`We try to demystify the bond market.`\
+https://nytimes.com/2025/05/27/briefing/us-bond-market.html
+
+**Resilient all season, Timberwolves face their biggest test against relentless Thunder**\
+`Minnesota has played best this season when its back is against the wall. Going down 3-1 to OKC presents a daunting task.`\
+https://nytimes.com/athletic/6384044/2025/05/27/timberwolves-game-4-west-finals-loss-thunder/
+
 **9 free-agent defenders who could complete the Canucks' blue-line**\
 `The Canucks will clearly pool resources reimagining their forward group this offseason, but that doesn't mean the back-end is finished.`\
 https://nytimes.com/athletic/6383884/2025/05/27/vancouver-canucks-free-agent-targets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6383824/2025/05/27/cowboys-culture-brian-schottenhe
 **Everything finally came together for the Hurricanes. Is it enough?**\
 `The Hurricanes' prospects are still fairly grim, but thanks to two young stars, they finally broke their conference final losing streak.`\
 https://nytimes.com/athletic/6384339/2025/05/27/hurricanes-nikishin-nhl-playoffs-game-4-panthers/
-
-**The PWHL just crowned a champion, but the league’s next step will be ‘heartbreaking’ for many**\
-`The Minnesota Frost won a second consecutive Walter Cup on Monday. Amid the celebration, the reality of PWHL expansion is setting in.`\
-https://nytimes.com/athletic/6384257/2025/05/27/pwhl-walter-cup-championship-expansion-draft/
-
-**A New Front Line for Abortion Rights**\
-`A grand jury in Louisiana indicted a New York doctor for sending abortion pills to a Louisiana resident.`\
-https://nytimes.com/2025/05/27/podcasts/the-daily/abortion-pill-shield-law.html
 

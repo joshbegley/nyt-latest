@@ -1,40 +1,40 @@
-**Faith and Credit**\
-`We try to demystify the bond market.`\
-https://nytimes.com/2025/05/27/briefing/us-bond-market.html
+**Once their biggest question, the Astros' bullpen is now their bedrock**\
+`Houston's relievers have posted the best ERA and lowest opponents' batting average of any relief corps in the American League.`\
+https://nytimes.com/athletic/6383811/2025/05/27/astros-bullpen-bedrock/
 
-**Resilient all season, Timberwolves face their biggest test against relentless Thunder**\
-`Minnesota has played best this season when its back is against the wall. Going down 3-1 to OKC presents a daunting task.`\
-https://nytimes.com/athletic/6384044/2025/05/27/timberwolves-game-4-west-finals-loss-thunder/
+**Why these 5 restricted free agents could become trade candidates this offseason**\
+`As always, unrestricted free agents garner plenty of attention, but this summer's crop of RFAs is worth keeping an eye on too.`\
+https://nytimes.com/athletic/6380402/2025/05/27/nhl-restricted-free-agent-trade-candidates-2025/
 
-**9 free-agent defenders who could complete the Canucks' blue-line**\
-`The Canucks will clearly pool resources reimagining their forward group this offseason, but that doesn't mean the back-end is finished.`\
-https://nytimes.com/athletic/6383884/2025/05/27/vancouver-canucks-free-agent-targets/
+**Presenting the Yankees' All-Quarter Century Team, the Bronx Bombers' best since 2000**\
+`The Yankees enjoyed a ton of success in the 2000s, making the All-Quarter Century team a representation of the best of the Bronx Bombers.`\
+https://nytimes.com/athletic/6377955/2025/05/27/yankees-all-quarter-century-team-2000-2025/
 
-**The Pulse: The impossible streak gets spiked**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6384109/2025/05/27/hurricanes-panthers-streak-nhl-the-pulse/
+**FIFA reforms criticised 10 years on from corruption raid**\
+`A joint statement accuses football’s global governing body of being “more poorly governed" now than it was at the time of the 2015 raid.`\
+https://nytimes.com/athletic/6384548/2025/05/27/fifa-reforms-zurich-raid-statement/
 
-**'There was a chance I wouldn't come back' - James Milner on his injury nightmare**\
-`The 39-year-old midfielder returned from nine months out on Sunday, and says his aim is to continue playing for Brighton next season`\
-https://nytimes.com/athletic/6382069/2025/05/27/milner-injury-brighton/
+**Pope Leo XIV's popularity with U.S. sports fans may extend to a rabbi near you**\
+`Like many who feel a connection with the new pope, Rabbi Joseph Schultz believes his familiarity with sports can help bring people closer.`\
+https://nytimes.com/athletic/6376893/2025/05/27/pope-leo-xiv-white-sox-sports-fans-rabbi/
 
-**Caught Between Russia and the U.S., Germany Aims to Be a Stronger Force in NATO**\
-`As Germany’s new chancellor increases military spending, he has presided over the activation of a German tank brigade based in Lithuania and raised alarms about the threat from Russia.`\
-https://nytimes.com/2025/05/27/world/europe/germany-military-russia-trump.html
+**Zion trade rumors, Willie Green's status and draft targets: Pelicans mailbag**\
+`Should Joe Dumars make an immediate coaching change instead of hoping he can align with Willie Green?`\
+https://nytimes.com/athletic/6379371/2025/05/27/new-orleans-pelicans-zion-williamson-nba-draft-mailbag/
 
-**What the Bears are getting in DE Dayo Odeyingbo: 'This dude wants to be remembered'**\
-`The Bears signed Odeyingbo, the former Colt, in free agency. Learn about what drives him, his football journey and what drew him to Chicago`\
-https://nytimes.com/athletic/6378433/2025/05/27/bears-dayo-odeyingbo-motivation/
+**Why James Hagens dropped down draft boards, and the Islanders' unique predicament**\
+`Despite a good draft season, Hagens isn't in the conversation for the best player in the 2025 class anymore.`\
+https://nytimes.com/athletic/6357922/2025/05/27/james-hagens-nhl-draft-2025-islanders/
 
-**Blue Jays All-Quarter Century Team: Toronto’s best since 2000**\
-`Sticking to production since 2000, here is a roster of Toronto’s top talent this century.`\
-https://nytimes.com/athletic/6381601/2025/05/27/blue-jays-all-quarter-century-team/
+**Rosenthal: Nationals remain among MLB's bottom feeders despite lengthy rebuild**\
+`Despite a strong return for Juan Soto, the Nationals haven't vaulted themselves back into contention due to several organizational failures.`\
+https://nytimes.com/athletic/6384096/2025/05/27/washington-nationals-rebuild/
 
-**How the Cowboys are building a new culture with communication and fun competition**\
-`A new energy around The Star is noticeable as Brian Schottenheimer tries to "create one of the greatest cultures in professional sports."`\
-https://nytimes.com/athletic/6383824/2025/05/27/cowboys-culture-brian-schottenheimer/
+**Predicting the first 3 weeks of the 2025 college football TV schedule**\
+`Conferences reveal their complete kickoff time and network placement schedules for the first three weeks of the season Thursday.`\
+https://nytimes.com/athletic/6383530/2025/05/27/college-football-season-tv-schedule-predictions-september-2025/
 
-**Everything finally came together for the Hurricanes. Is it enough?**\
-`The Hurricanes' prospects are still fairly grim, but thanks to two young stars, they finally broke their conference final losing streak.`\
-https://nytimes.com/athletic/6384339/2025/05/27/hurricanes-nikishin-nhl-playoffs-game-4-panthers/
+**I was a first-round MLB bust. Here are 5 lessons I learned**\
+`Matt Antonelli was a first-round pick of the San Diego Padres whose shortcomings in baseball gave him the tools to live an impactful life.`\
+https://nytimes.com/athletic/6370308/2025/05/27/first-round-bust-lessons-learned-mlb/
 
