@@ -1,3 +1,7 @@
+**Max Muncy, Dodgers looking to work through third baseman's defensive woes**\
+`"I see him working consistently every day. So that's what I'm going to keep betting on," Dodgers manager Dave Roberts said.`\
+https://nytimes.com/athletic/6384155/2025/05/26/dodgers-max-muncy-defensive-issues/
+
 **Hurricanes avoid sweep vs. Panthers, snap their 15-game conference-finals skid**\
 `Logan Stankoven scored and Frederik Andersen made 20 saves for a shutout as the Hurricanes forced Game 5 on Wednesday in Raleigh.`\
 https://nytimes.com/athletic/6384189/2025/05/26/hurricanes-panthers-nhl-playoffs-2025-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodger
 **Memorial Day Storms Cause Delays for Holiday Travelers**\
 `Thunderstorms in the south and central United States caused flight delays during Memorial Day weekend, the beginning of the summer travel season.`\
 https://nytimes.com/2025/05/26/us/memorial-day-storms-travel-delays.html
-
-**Giants takeaways: A third of the way through the season, run scoring remains the issue**\
-`The Giants' red-hot start with runners in scoring position has predictably fallen off. What does that tell us about their playoff chances?`\
-https://nytimes.com/athletic/6383728/2025/05/26/sf-giants-takeaways-offensive-struggles/
 
