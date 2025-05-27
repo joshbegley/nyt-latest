@@ -1,4 +1,4 @@
-**'It was time': Chris Taylor reflects on Dodgers release, fresh start with Angels**\
+**'It was time': Chris Taylor talks Dodgers release, fresh start with Angels**\
 `The Angels signed Taylor to a one-year contract on Monday and will pay him the prorated MLB minimum.`\
 https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodgers/
 
