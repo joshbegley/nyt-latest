@@ -1,3 +1,11 @@
+**Judge Strikes Down Trump Order Targeting WilmerHale**\
+`The judge concluded that the firm was targeted over its association with Robert S. Mueller III, and that the order “must be struck down in its entirety.”`\
+https://nytimes.com/2025/05/27/us/politics/trump-law-firms-wilmerhale.html
+
+**Trump Accuses Putin of ‘Playing With Fire’ as He Mulls Sanctions**\
+`It remained to be seen whether President Trump’s latest comments indicated a new aggressive phase against Russia.`\
+https://nytimes.com/2025/05/27/us/politics/trump-putin-ukraine-russia-sanctions.html
+
 **Wednesday Briefing: Chaos at a Gaza Aid Site**\
 `Plus, climbing Mount Everest with a performance enhancer.`\
 https://nytimes.com/2025/05/27/briefing/gaza-aid-chaos-ukraine-germany-king-charles-canada.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/us/washington-dc-budget.html
 **Texas Requires Apple and Google to Verify Ages for App Downloads**\
 `The state’s governor signed a new law that will give parents more control over the apps that minors download, part of a raft of new legislation.`\
 https://nytimes.com/2025/05/27/technology/apple-google-age-verification-apps-texas.html
-
-**Senator Tommy Tuberville of Alabama Will Run for Governor**\
-`The Alabama Republican is the latest federal lawmaker to seek elected office back at home.`\
-https://nytimes.com/2025/05/27/us/politics/tommy-tuberville-alabama-governor.html
-
-**SpaceX to Try Starship Test Launch After 2 Explosive Failures**\
-`Much is riding on Flight 9 for Elon Musk’s giant moon and Mars rocket after debris from January and March flights fell into the Atlantic Ocean, disrupting air travel.`\
-https://nytimes.com/2025/05/27/science/spacex-starship-launch-elon-musk-mars.html
 
