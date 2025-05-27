@@ -1,3 +1,7 @@
+**Watch: Was Game 4 the best the Thunder's 'big 3' have been all season?**\
+`"The Athletic NBA Daily discussed the Oklahoma City Thunder's Game 4 win over the Minnesota Timberwolves to take a 3-1 series lead.`\
+https://nytimes.com/athletic/6385409/2025/05/27/thunder-nba-daily-big-three-playoffs/
+
 **Trump Threatens California Over Transgender Athletes’ Participation in Sports**\
 `The president said he would withhold federal funding, saying it was “totally unfair” for transgender athletes to compete in girls’ and women’s sports.`\
 https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california.html
