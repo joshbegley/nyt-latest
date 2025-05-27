@@ -1,3 +1,11 @@
+**Trump Threatens California Over Transgender Athletes’ Participation in Sports**\
+`The president said he would withhold federal funding, saying it was “totally unfair” for transgender athletes to compete in girls’ and women’s sports.`\
+https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california.html
+
+**Yamal signs new Barcelona contract until 2031**\
+`The teenager has developed into one of the best young footballers in the world and played all seven matches when Spain won Euro 2024.`\
+https://nytimes.com/athletic/6176984/2025/05/27/lamine-yamal-barcelona-contract-signed/
+
 **Justices Allow School to Bar Student From Wearing ‘Only Two Genders’ Shirt**\
 `Conservative justices dissented as the Supreme Court denied review in that case and one on religious objections to mining on sacred Indian land.`\
 https://nytimes.com/2025/05/27/us/politics/supreme-court-two-genders-shirt.html
@@ -11,7 +19,7 @@ https://nytimes.com/2025/05/27/business/eeoc-funding-states.html
 https://nytimes.com/video/world/canada/100000010192502/king-charles-canada-parliament-speech.html
 
 **U.S. Will Receive ‘Golden Share’ in Steel Deal**\
-`The federal government will also have say over U.S. board members in a tie-up between Japans Nippon Steel and U.S. Steel, according to a lawmaker.`\
+`The federal government will also have say over U.S. board members in a tie-up between Japan’s Nippon Steel and U.S. Steel, according to a lawmaker.`\
 https://nytimes.com/2025/05/27/us/politics/trump-nippon-steel-deal.html
 
 **Mitch Love and Marco Sturm are finalists for Bruins coaching position: Source**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/arts/music/amplifier-newsletter-lollapalooza-1995
 **Test Your Spelling Skills**\
 `Do you think you have what it takes to compete with these Scripps Spelling Bee whizzes?`\
 https://nytimes.com/interactive/2025/05/27/us/scripps-spelling-bee-quiz.html
-
-**University of Florida Approves New President, Recruited From Michigan**\
-`Santa Ono, the president of the University of Michigan, was unanimously approved by Florida’s board despite criticism from conservatives of his past views on diversity programs.`\
-https://nytimes.com/2025/05/27/us/university-of-florida-president-santa-ono.html
-
-**A Union That Pushed Cuomo to Resign Spends $1 Million to Elect Him**\
-`Plus: the candidates for New York City mayor hit the campaign trail with just four weeks to go until the Democratic primary.`\
-https://nytimes.com/2025/05/27/nyregion/nyc-mayor-race-cuomo-union.html
 

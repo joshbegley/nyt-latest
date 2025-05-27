@@ -1,3 +1,15 @@
+**Trump Threatens California Over Transgender Athletes’ Participation in Sports**\
+`The president said he would withhold federal funding, saying it was “totally unfair” for transgender athletes to compete in girls’ and women’s sports.`\
+https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california.html
+
+**Yamal signs new Barcelona contract until 2031**\
+`The teenager has developed into one of the best young footballers in the world and played all seven matches when Spain won Euro 2024.`\
+https://nytimes.com/athletic/6176984/2025/05/27/lamine-yamal-barcelona-contract-signed/
+
+**U.S. Will Receive ‘Golden Share’ in Steel Deal**\
+`The federal government will also have say over U.S. board members in a tie-up between Japan’s Nippon Steel and U.S. Steel, according to a lawmaker.`\
+https://nytimes.com/2025/05/27/us/politics/trump-nippon-steel-deal.html
+
 **Justices Allow School to Bar Student From Wearing ‘Only Two Genders’ Shirt**\
 `Conservative justices dissented as the Supreme Court denied review in that case and one on religious objections to mining on sacred Indian land.`\
 https://nytimes.com/2025/05/27/us/politics/supreme-court-two-genders-shirt.html
