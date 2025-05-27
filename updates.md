@@ -1,3 +1,7 @@
+**Slot thanks emergency services after 'shocking incident' at Liverpool title parade**\
+`Slot did not attend Tuesday's LMA awards dinner in solidarity with those impacted by Monday's incident at the club's title parade.`\
+https://nytimes.com/athletic/6386429/2025/05/27/slot-liverpool-title-parade-car-collision/
+
 **Carlos Vela, MLS MVP and LAFC star, announces retirement**\
 `Vela was once among the most touted prospects in the sport, coming up through Chivas Guadalajara's ranks`\
 https://nytimes.com/athletic/6386365/2025/05/27/carlos-vela-lafc-soccer-retirement/
