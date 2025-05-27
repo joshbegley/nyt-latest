@@ -1,4 +1,8 @@
-**Conflicting Claims Over Israel-Hamas Cease-fire Talks Sow Confusion**\
+**How a Generation’s Struggle Led to a Record Surge in Homelessness**\
+`Late baby boomers have endured challenges that have left many economically vulnerable and dependent on parents for help. With their parents dying, they are ending up on the streets in growing numbers.`\
+https://nytimes.com/2025/05/27/us/politics/homelessness-baby-boomers.html
+
+**Conflicting Claims Over Israel-Hamas Cease-Fire Talks Sow Confusion**\
 `Israel, Hamas and the Trump administration have issued different messages about where efforts to reach a truce stand.`\
 https://nytimes.com/2025/05/27/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/widow-jane/at-the-edge-of-brooklyn-whiskeys-new-fro
 **How a Day of Soccer Celebrations Turned to Chaos in Liverpool**\
 `After a car plowed into crowds celebrating their team’s Premier League title, camaraderie and jubilation dissolved into dread.`\
 https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-car-crash.html
-
-**The Windup: Boston’s quandary returns**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6384389/2025/05/27/red-sox-third-base-the-windup/
 
