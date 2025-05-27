@@ -1,3 +1,11 @@
+**Cunha given permission by Wolves to undergo Man Utd medical**\
+`United have also held face-to-face talks over a summer move for Ipswich striker Liam Delap.`\
+https://nytimes.com/athletic/6298609/2025/05/27/cunha-manchester-united-transfer/
+
+**Harry, Hermione and Ron Are Cast for HBO’s ‘Harry Potter’**\
+`After tens of thousands of auditions, three newcomers were selected to play the television show’s leading roles.`\
+https://nytimes.com/2025/05/27/arts/television/harry-potter-casting-news.html
+
 **Republican Calls for Russia Sanctions Intensify Amid Escalating Strikes**\
 `A group of G.O.P. senators has grown more vocal about urging penalties on Russia for its aggression against Ukraine, offering a counterpoint to President Trump’s hands-off stance.`\
 https://nytimes.com/2025/05/27/us/politics/trump-russia-ukraine-strikes.html

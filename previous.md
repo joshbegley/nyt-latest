@@ -1,3 +1,11 @@
+**Cunha given permission by Wolves to undergo Man Utd medical**\
+`United have also held face-to-face talks over a summer move for Ipswich striker Liam Delap.`\
+https://nytimes.com/athletic/6298609/2025/05/27/cunha-manchester-united-transfer/
+
+**Harry, Hermione and Ron Are Cast for HBO’s ‘Harry Potter’**\
+`After tens of thousands of auditions, three newcomers were selected to play the television show’s leading roles.`\
+https://nytimes.com/2025/05/27/arts/television/harry-potter-casting-news.html
+
 **Republican Calls for Russia Sanctions Intensify Amid Escalating Strikes**\
 `A group of G.O.P. senators has grown more vocal about urging penalties on Russia for its aggression against Ukraine, offering a counterpoint to President Trump’s hands-off stance.`\
 https://nytimes.com/2025/05/27/us/politics/trump-russia-ukraine-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6176984/2025/05/27/lamine-yamal-barcelona-contract-
 **Justices Allow School to Bar Student From Wearing ‘Only Two Genders’ Shirt**\
 `Conservative justices dissented as the Supreme Court denied review in that case and one on religious objections to mining on sacred Indian land.`\
 https://nytimes.com/2025/05/27/us/politics/supreme-court-two-genders-shirt.html
-
-**Trump Administration Tells State Regulators It Won’t Back Some Discrimination Claims**\
-`The E.E.O.C. said it would stop paying state and local civil rights agencies for claims from transgender employees or those based on “disparate impact.”`\
-https://nytimes.com/2025/05/27/business/eeoc-funding-states.html
-
-**‘The True North Is Indeed Strong and Free’: King Charles III to Canada**\
-`King Charles III addressed the Canadian Parliament during his first visit to the country since his coronation.`\
-https://nytimes.com/video/world/canada/100000010192502/king-charles-canada-parliament-speech.html
 
