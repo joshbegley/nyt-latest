@@ -1,3 +1,7 @@
+**Hurricanes avoid sweep vs. Panthers, snap their 15-game conference-finals skid: Takeaways**\
+`Logan Stankoven scored and Frederik Andersen made 20 saves for a shutout as the Hurricanes forced Game 5 on Wednesday in Raleigh.`\
+https://nytimes.com/athletic/6384189/2025/05/26/hurricanes-panthers-nhl-playoffs-2025-game-4-takeaways/
+
 **Scoop City: Getting back to the Patriot way**\
 `Inside: The Patriots aim to make a quick return to the postseason, plus a health checkup on Aidan Hutchinson, Brandon Aiyuk, and a spotlight on the 2025 Bills.`\
 https://nytimes.com/athletic/6383607/2025/05/26/nfl-patriots-playoffs-scoop-city/
