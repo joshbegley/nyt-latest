@@ -1,3 +1,7 @@
+**Caught Between Russia and the U.S., Germany Aims to Be a Stronger Force in NATO**\
+`As Germany’s new chancellor increases military spending, he has presided over the activation of a German tank brigade based in Lithuania and raised alarms about the threat from Russia.`\
+https://nytimes.com/2025/05/27/world/europe/germany-military-russia-trump.html
+
 **What the Bears are getting in DE Dayo Odeyingbo: 'This dude wants to be remembered'**\
 `The Bears signed Odeyingbo, the former Colt, in free agency. Learn about what drives him, his football journey and what drew him to Chicago`\
 https://nytimes.com/athletic/6378433/2025/05/27/bears-dayo-odeyingbo-motivation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383875/2025/05/27/oilers-bowman-roster-stanley-cup
 **F1 mailbag: Solving Monaco’s racing problem, and when Charles Leclerc might win again**\
 `Our readers had lots of questions about whether Monaco was suitable as a modern F1 track`\
 https://nytimes.com/athletic/6383779/2025/05/27/f1-mailbag-tmonaco-gp-charles-leclerc/
-
-**Wordle Review No. 1,439**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 28, 2025.`\
-https://nytimes.com/2025/05/27/crosswords/wordle-review-1439.html
 

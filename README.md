@@ -1,3 +1,7 @@
+**'There was a chance I wouldn't come back' - James Milner on his injury nightmare**\
+`The 39-year-old midfielder returned from nine months out on Sunday, and says his aim is to continue playing for Brighton next season`\
+https://nytimes.com/athletic/6382069/2025/05/27/milner-injury-brighton/
+
 **Caught Between Russia and the U.S., Germany Aims to Be a Stronger Force in NATO**\
 `As Germany’s new chancellor increases military spending, he has presided over the activation of a German tank brigade based in Lithuania and raised alarms about the threat from Russia.`\
 https://nytimes.com/2025/05/27/world/europe/germany-military-russia-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383916/2025/05/27/karl-anthony-towns-knicks-pacers
 **LeBrun: Oilers GM Stan Bowman on 'tense moments,' his goalies and adding final roster pieces**\
 `The Oilers look strong now, but it's been a season of difficult choices and challenges for Bowman and his team.`\
 https://nytimes.com/athletic/6383875/2025/05/27/oilers-bowman-roster-stanley-cup/
-
-**F1 mailbag: Solving Monaco’s racing problem, and when Charles Leclerc might win again**\
-`Our readers had lots of questions about whether Monaco was suitable as a modern F1 track`\
-https://nytimes.com/athletic/6383779/2025/05/27/f1-mailbag-tmonaco-gp-charles-leclerc/
 

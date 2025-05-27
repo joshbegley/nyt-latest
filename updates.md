@@ -1,3 +1,7 @@
+**Caught Between Russia and the U.S., Germany Aims to Be a Stronger Force in NATO**\
+`As Germany’s new chancellor increases military spending, he has presided over the activation of a German tank brigade based in Lithuania and raised alarms about the threat from Russia.`\
+https://nytimes.com/2025/05/27/world/europe/germany-military-russia-trump.html
+
 **What the Bears are getting in DE Dayo Odeyingbo: 'This dude wants to be remembered'**\
 `The Bears signed Odeyingbo, the former Colt, in free agency. Learn about what drives him, his football journey and what drew him to Chicago`\
 https://nytimes.com/athletic/6378433/2025/05/27/bears-dayo-odeyingbo-motivation/
