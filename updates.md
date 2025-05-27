@@ -1,3 +1,15 @@
+**Second Suspect Is Arrested in Bitcoin Kidnapping and Torture Case**\
+`The man, William Duplessie, surrendered to the police Tuesday morning. Authorities have said the victim was an Italian man who was tormented in a luxury Manhattan townhouse for weeks.`\
+https://nytimes.com/2025/05/27/nyregion/crypto-investor-torture-arrest.html
+
+**Zelensky Is Expected in Berlin as Merz Steps Forward as Key Backer of Ukraine**\
+`A likely focus of talks between the two leaders will be military aid and whether Germany will provide Ukraine with the Taurus cruise missile.`\
+https://nytimes.com/2025/05/27/world/europe/zelensky-germany-trip.html
+
+**What is the Unity Cup and why could it be a big cultural moment in England?**\
+`Nigeria, Ghana, Jamaica and Trinidad & Tobago are taking part in a tournament at Brentford's Gtech Stadium - but what's it all about?`\
+https://nytimes.com/athletic/6383273/2025/05/27/unity-cup-nigeria-ghana-jamaica-trinidad/
+
 **At the Edge of Brooklyn, Whiskey’s New Frontier**\
 `How the small-batch craft distillery Widow Jane walks its own line.`\
 https://nytimes.com/paidpost/widow-jane/at-the-edge-of-brooklyn-whiskeys-new-frontier.html
