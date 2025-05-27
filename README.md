@@ -1,3 +1,23 @@
+**‘Adults’ Is ‘Friends’ for a More Anxious Generation**\
+`A new FX comedy follows a crew of aimless 20-somethings living together in Queens.`\
+https://nytimes.com/2025/05/27/arts/television/adults-friends-review.html
+
+**D.C. Mayor Unveils Budget Plan Aimed at Easing Pain of Congressional Cuts**\
+`Local officials announced trims, spending freezes and other fixes to blunt the effects of a billion-dollar budget cut that Congress forced on the city.`\
+https://nytimes.com/2025/05/27/us/washington-dc-budget.html
+
+**Texas Requires Apple and Google to Verify Ages for App Downloads**\
+`The state’s governor signed a new law that will give parents more control over the apps that minors download, part of a raft of new legislation.`\
+https://nytimes.com/2025/05/27/technology/texas-requires-apple-and-google-to-verify-ages-for-app-downloads.html
+
+**Senator Tommy Tuberville of Alabama Will Run for Governor**\
+`The Alabama Republican is the latest federal lawmaker to seek elected office back at home.`\
+https://nytimes.com/2025/05/27/us/politics/tommy-tuberville-alabama-governor.html
+
+**SpaceX to Try Starship Test Launch After 2 Explosive Failures**\
+`Much is riding on Flight 9 for Elon Musk’s giant moon and Mars rocket after debris from January and March flights fell into the Atlantic Ocean, disrupting air travel.`\
+https://nytimes.com/2025/05/27/science/spacex-starship-launch-elon-musk-mars.html
+
 **Chaos Mars Opening of Israeli-Backed Aid Distribution Site in Gaza**\
 `Starvation looming, desperate Palestinians surged toward an aid center that Israel says was designed to circumvent Hamas.`\
 https://nytimes.com/2025/05/27/world/middleeast/gaza-aid-site-israel.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6385859/2025/05/27/josh-allen-otas-upcoming-wedding
 **Battle-tested Blashill ready for Blackhawks’ next chapter**\
 `Once a rising star coach, Blashill brings vast experience that the Blackhawks believe is the right fit for their rebuild's next phase.`\
 https://nytimes.com/athletic/6385569/2025/05/27/blackhawks-coach-jeff-blashill-nhl/
-
-**Until Saturday: Leave postseason alone for once**\
-`Welcome to Until Saturday, The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6386021/2025/05/27/college-football-postseason-format-until-saturday/
-
-**Meta’s Fate Now Rests With a Judge**\
-`A landmark antitrust trial accusing the social media giant of cementing its dominance through acquiring Instagram and WhatsApp has concluded.`\
-https://nytimes.com/2025/05/27/technology/meta-antitrust-trial-concludes.html
-
-**French Crypto Chiefs Step Up Security After String of Violent Kidnappings**\
-`​Big players in the crypto sector argue that new European cryptocurrency rules may be enabling recent abductions and are demanding changes and more security.`\
-https://nytimes.com/2025/05/27/world/europe/france-crypto-kidnappings.html
-
-**Stream These Movies and TV Shows Before They Leave Netflix in June**\
-`A handful of great titles are leaving as early as the first weekend of the month. Catch them while you can.`\
-https://nytimes.com/2025/05/27/arts/television/netflix-leaving-june.html
-
-**The Amazon Loses One of Its Most Celebrated Chroniclers**\
-`Sebastião Salgado, a renowned photojournalist who died last week, spent decades capturing an Amazon that is fast disappearing.`\
-https://nytimes.com/2025/05/27/climate/amazon-sebastiao-salgado-deforestsation.html
 
