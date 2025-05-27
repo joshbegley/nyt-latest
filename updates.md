@@ -1,3 +1,15 @@
+**Justices Allow School to Bar Student From Wearing ‘Only Two Genders’ Shirt**\
+`Conservative justices dissented as the Supreme Court denied review in that case and one on religious objections to mining on sacred Indian land.`\
+https://nytimes.com/2025/05/27/us/politics/supreme-court-two-genders-shirt.html
+
+**Trump Administration Tells State Regulators It Won’t Back Some Discrimination Claims**\
+`The E.E.O.C. said it would stop paying state and local civil rights agencies for claims from transgender employees or those based on “disparate impact.”`\
+https://nytimes.com/2025/05/27/business/eeoc-funding-states.html
+
+**U.S. Will Receive ‘Golden Share’ in Steel Deal**\
+`The federal government will also have say over U.S. board members in a tie-up between Japans Nippon Steel and U.S. Steel, according to a lawmaker.`\
+https://nytimes.com/2025/05/27/us/politics/trump-nippon-steel-deal.html
+
 **‘The True North Is Indeed Strong and Free’: King Charles III to Canada**\
 `King Charles III addressed the Canadian Parliament during his first visit to the country since his coronation.`\
 https://nytimes.com/video/world/canada/100000010192502/king-charles-canada-parliament-speech.html
