@@ -1,3 +1,7 @@
+**PGA Tour adjusting its Tour Championship format**\
+`The PGA Tour plans to lose the "starting strokes" format for the 2025 Tour Championship.`\
+https://nytimes.com/athletic/6386504/2025/05/27/pga-tour-championship-starting-strokes-format/
+
 **Marshals’ Data Shows Spike in Threats Against Federal Judges**\
 `Data gathered by the law enforcement agency responsible for judicial security showed 162 judges faced threats between March 1 and April 14.`\
 https://nytimes.com/2025/05/27/us/politics/federal-judges-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/us/buried-treasure-vermont-garden.html
 **Jewish Community in Kansas City Mourns a ‘Radiant Link’ for Peace**\
 `At the funeral for Sarah Milgrim, who was killed outside a Jewish museum in Washington last week, the Israeli embassy aide was mourned as someone who wanted to help everyone.`\
 https://nytimes.com/2025/05/27/us/sarah-milgrim-funeral-embassy-attack.html
-
-**Trump Asks Supreme Court to Let Him Send Migrants to South Sudan**\
-`Government lawyers said a federal judge in Boston had overstepped his authority by requiring hearings before deportations to countries other than the migrants’ own.`\
-https://nytimes.com/2025/05/27/us/politics/trump-deportations-south-sudan.html
 
