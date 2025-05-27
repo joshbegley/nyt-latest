@@ -1,3 +1,11 @@
+**Do You Know Where in the World These Books Are Set?**\
+`Canada has a rich literary culture and many of its recent novelists have achieved international acclaim. See if you can match these five books to locations set within the country.`\
+https://nytimes.com/interactive/2025/05/27/books/review/canada-novel-locations.html
+
+**C. Notes: Brady Singer's Florida Gators reunion, what players do with giveaway items**\
+`Plus injury updates and a look at how the minor leaguers are doing.`\
+https://nytimes.com/athletic/6384933/2025/05/27/reds-singer-india-florida-gators/
+
 **How a Generation’s Struggle Led to a Record Surge in Homelessness**\
 `Late baby boomers have endured challenges that have left many economically vulnerable and dependent on parents for help. With their parents dying, they are ending up on the streets in growing numbers.`\
 https://nytimes.com/2025/05/27/us/politics/homelessness-baby-boomers.html
@@ -19,7 +27,7 @@ https://nytimes.com/2025/05/27/pageoneplus/no-corrections-may-27-2025.html
 https://nytimes.com/athletic/6380248/2025/05/27/kc-current-purchase-danish-club-hb-koge/
 
 **Nottingham Forest review of 2024-25: A remarkable season that could have been even better**\
-`Nottingham Forest have qualified for the Conference League after a great season`\
+`While Forest ultimately missed out on a place in the Champions League, their seventh-place finish still ranks as a significant achievement`\
 https://nytimes.com/athletic/6384584/2025/05/27/nottingham-forest-season-review-2024-25/
 
 **Second Suspect Is Arrested in Bitcoin Kidnapping and Torture Case**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/nyregion/crypto-investor-torture-arrest.html
 **Zelensky Is Expected in Berlin as Merz Steps Forward as Key Backer of Ukraine**\
 `A likely focus of talks between the two leaders will be military aid and whether Germany will provide Ukraine with the Taurus cruise missile.`\
 https://nytimes.com/2025/05/27/world/europe/zelensky-germany-trip.html
-
-**At the Edge of Brooklyn, Whiskey’s New Frontier**\
-`How the small-batch craft distillery Widow Jane walks its own line.`\
-https://nytimes.com/paidpost/widow-jane/at-the-edge-of-brooklyn-whiskeys-new-frontier.html
-
-**How a Day of Soccer Celebrations Turned to Chaos in Liverpool**\
-`After a car plowed into crowds celebrating their team’s Premier League title, camaraderie and jubilation dissolved into dread.`\
-https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-car-crash.html
 
