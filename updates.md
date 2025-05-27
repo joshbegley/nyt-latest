@@ -1,3 +1,7 @@
+**Jac Caglianone adjusting to outfield in Triple A, pleased with Royals' development plan**\
+`Caglianone has homered five times in six Triple-A games, but he's not worried about his MLB debut. “It’ll happen when it happens."`\
+https://nytimes.com/athletic/6386000/2025/05/27/jac-caglianone-royals-development/
+
 **Josh Allen — franchise quarterback and groom to be — makes a statement by attending Bills OTAs**\
 `Allen has skipped in past years, but (reportedly) days before his wedding the QB was at Tuesday's voluntary workout.`\
 https://nytimes.com/athletic/6385859/2025/05/27/josh-allen-otas-upcoming-wedding/
