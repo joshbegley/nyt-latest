@@ -1,3 +1,11 @@
+**Republican Calls for Russia Sanctions Intensify Amid Escalating Strikes**\
+`A group of G.O.P. senators has grown more vocal about urging penalties on Russia for its aggression against Ukraine, offering a counterpoint to President Trump’s hands-off stance.`\
+https://nytimes.com/2025/05/27/us/politics/trump-russia-ukraine-strikes.html
+
+**NBA's foul-up-3 discourse isn't as simple as you think. Neither are the solutions**\
+`The real problem is that coaches keep messing up the strategy and botching a hugely favorable win-probability scenario.`\
+https://nytimes.com/athletic/6385590/2025/05/27/nba-playoffs-fouls-late-leads-thunder-timberwolves/
+
 **Jussie Smollett Donates $50,000 to Arts Center to Settle Chicago’s Lawsuit**\
 `Although the actor’s conviction for filing a false police report was overturned because of a previous deal with prosecutors, the city wanted him to pay for its hate crime investigation.`\
 https://nytimes.com/2025/05/27/arts/television/jussie-smollett-donation-chicago-lawsuit.html
