@@ -1,3 +1,7 @@
+**Her Books and Movies Provoked France. Will Her Plays Do the Same?**\
+`Virginie Despentes is pivoting to theater. Playgoers “really show up, even for demanding or radical works,” she says.`\
+https://nytimes.com/2025/05/27/theater/virginie-despentes-theater.html
+
 **U.S. Will No Longer Recommend Covid Shots for Children and Pregnant Women**\
 `Health Secretary Robert F. Kennedy Jr. announced that the vaccine would not be included as part of the immunization schedule for healthy children.`\
 https://nytimes.com/2025/05/27/health/covid-vaccines-children-pregnant-women-rfk-jr.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/arts/music/janacek-opera-jenufa-cleveland.html
 **Carapaz on brink of pink jersey after nightmare day for UAE**\
 `With no time-trialling remaining, and 22,000m of climbing scheduled for the final week, Carapaz is now arguably the race favourite.`\
 https://nytimes.com/athletic/6385334/2025/05/27/giro-ditalia-richard-carapaz-stage-16/
-
-**Caitlin Clark injury shifts WNBA MVP odds; Napheesa Collier new favorite**\
-`Clark will be sidelined for at least two weeks and four games with a left quadriceps strain.`\
-https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-wnba-mvp-odds/
 
