@@ -1,3 +1,7 @@
+**WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
+`How does a 6-2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
+https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
+
 **Milos Uzan will withdraw from NBA Draft to return to Houston**\
 `The decision cements last year's national runner-up as one of the preseason national title favorites.`\
 https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
