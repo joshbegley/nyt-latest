@@ -1,3 +1,7 @@
+**Judge Criticizes Government Inaction in Case of Migrants Held in Djibouti**\
+`Judge Brian E. Murphy had ordered the Trump administration to offer due process to a group of men whom the government was trying to send to South Sudan.`\
+https://nytimes.com/2025/05/26/us/politics/judge-deportations-south-sudan-trump.html
+
 **Scoop City: Getting back to the Patriot way**\
 `Inside: The Patriots aim to make a quick return to the postseason, plus a health checkup on Aidan Hutchinson, Brandon Aiyuk, and a spotlight on the 2025 Bills.`\
 https://nytimes.com/athletic/6383607/2025/05/26/nfl-patriots-playoffs-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
 **Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
 `With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
 https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
-
-**'It was time': Chris Taylor talks Dodgers release, fresh start with Angels**\
-`The Angels signed Taylor to a one-year contract on Monday and will pay him the prorated MLB minimum.`\
-https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodgers/
 
