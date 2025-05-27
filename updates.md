@@ -1,3 +1,7 @@
+**Severe Storms Knock Out Power to Swaths of Texas**\
+`Heavy rain inundated Texas, leaving about 150,000 customers without power. More severe weather, and possible flooding, is expected on Tuesday.`\
+https://nytimes.com/2025/05/27/us/texas-storms-centerpoint-entergy-power-outages.html
+
 **Read the Trump Administration Letter About Harvard Contracts**\
 `Here is a draft of the letter expected to be sent today to federal agencies asking them to cancel any remaining contracts with the university.`\
 https://nytimes.com/interactive/2025/05/27/us/harvard-contractsletterfinaldocx.html
