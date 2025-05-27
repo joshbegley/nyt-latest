@@ -1,3 +1,7 @@
+**Primoz Roglic abandons Giro d’Italia after stage 16 crash**\
+`A former winner of the Giro in 2023, and a four-time champion of the Vuelta a Espana, he entered this Grand Tour as the pre-race favourite.`\
+https://nytimes.com/athletic/6384794/2025/05/27/giro-ditalia-primoz-roglic-crash-out/
+
 **How to Hide a 350-Foot Megayacht**\
 `Russian oligarchs use the offshore system to shield their luxury assets. The Trump Administration is ending an effort to find and seize them.`\
 https://nytimes.com/2025/05/27/magazine/trump-offshore-money-russia-oligarchs.html
