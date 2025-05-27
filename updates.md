@@ -1,3 +1,7 @@
+**How North Korea Botched the Launch of a Warship**\
+`Satellite images and videos show how launching a 5,000-ton warship into the water sideways can cause it to capsize if done incorrectly.`\
+https://nytimes.com/2025/05/27/world/asia/north-korea-warship-destroyer.html
+
 **Tuesday Briefing: U.S. and E.U. Talk Trade**\
 `Plus, redefining Sweden’s culture.`\
 https://nytimes.com/2025/05/27/briefing/united-states-european-union-trade-talks-ukraine-russia-trump-liverpool-crash.html
