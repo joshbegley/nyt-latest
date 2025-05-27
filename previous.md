@@ -1,3 +1,23 @@
+**Josh Allen — franchise quarterback and groom to be — makes a statement by attending Bills OTAs**\
+`Allen has skipped in past years, but (reportedly) days before his wedding the QB was at Tuesday's voluntary workout.`\
+https://nytimes.com/athletic/6385859/2025/05/27/josh-allen-otas-upcoming-wedding/
+
+**Battle-tested Blashill ready for Blackhawks’ next chapter**\
+`Once a rising star coach, Blashill brings vast experience that the Blackhawks believe is the right fit for their rebuild's next phase.`\
+https://nytimes.com/athletic/6385569/2025/05/27/blackhawks-coach-jeff-blashill-nhl/
+
+**Until Saturday: Leave postseason alone for once**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6386021/2025/05/27/college-football-postseason-format-until-saturday/
+
+**Meta’s Fate Now Rests With a Judge**\
+`A landmark antitrust trial accusing the social media giant of cementing its dominance through acquiring Instagram and WhatsApp has concluded.`\
+https://nytimes.com/2025/05/27/technology/meta-antitrust-trial-concludes.html
+
+**French Crypto Chiefs Step Up Security After String of Violent Kidnappings**\
+`​Big players in the crypto sector argue that new European cryptocurrency rules may be enabling recent abductions and are demanding changes and more security.`\
+https://nytimes.com/2025/05/27/world/europe/france-crypto-kidnappings.html
+
 **Stream These Movies and TV Shows Before They Leave Netflix in June**\
 `A handful of great titles are leaving as early as the first weekend of the month. Catch them while you can.`\
 https://nytimes.com/2025/05/27/arts/television/netflix-leaving-june.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6385977/2025/05/27/aston-villa-transfer-news-redmon
 **Cunha given permission by Wolves to undergo Man Utd medical**\
 `United have also held face-to-face talks over a summer move for Ipswich striker Liam Delap.`\
 https://nytimes.com/athletic/6298609/2025/05/27/cunha-manchester-united-transfer/
-
-**Harry, Hermione and Ron Are Cast for HBO’s ‘Harry Potter’**\
-`After tens of thousands of auditions, three newcomers were selected to play the television show’s leading roles.`\
-https://nytimes.com/2025/05/27/arts/television/harry-potter-casting-news.html
-
-**Republican Calls for Russia Sanctions Intensify Amid Escalating Strikes**\
-`A group of G.O.P. senators has grown more vocal about urging penalties on Russia for its aggression against Ukraine, offering a counterpoint to President Trump’s hands-off stance.`\
-https://nytimes.com/2025/05/27/us/politics/trump-russia-ukraine-strikes.html
-
-**NBA's foul-up-3 discourse isn't as simple as you think. Neither are the solutions**\
-`The real problem is that coaches keep messing up the strategy and botching a hugely favorable win-probability scenario.`\
-https://nytimes.com/athletic/6385590/2025/05/27/nba-playoffs-fouls-late-leads-thunder-timberwolves/
-
-**Jussie Smollett Donates $50,000 to Arts Center to Settle Chicago’s Lawsuit**\
-`Although the actor’s conviction for filing a false police report was overturned because of a previous deal with prosecutors, the city wanted him to pay for its hate crime investigation.`\
-https://nytimes.com/2025/05/27/arts/television/jussie-smollett-donation-chicago-lawsuit.html
-
-**Maresca backs Jackson to make amends to Chelsea team-mates in UCL final**\
-`Jackson is available for selection again having missed the last two Premier League games of the campaign through suspension.`\
-https://nytimes.com/athletic/6385860/2025/05/27/jackson-chelsea-conference-league-final/
 
