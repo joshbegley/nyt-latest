@@ -1,3 +1,19 @@
+**Antony's revival at Real Betis: How a €95m Man United outcast has been one of the best players in Spain**\
+`Antony has been a standout player for Betis in their run to the Conference League final after moving on loan from Man United in January`\
+https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loan-conference-league/
+
+**Why failing in the Premier League doesn’t make you a bad player**\
+`Mkhitaryan, Darmian and Vitinha could all play in the Champions League final. But why didn't they make it in the Premier League?`\
+https://nytimes.com/athletic/6369350/2025/05/27/premier-league-players-champions-league/
+
+**Premier League tactical trends 2024-25: Goalkeeper long passes, inswinging corners and fast breaks**\
+`Plus, the importance of dynamic duos and an increase in physical intensity - we take a look at what worked this season`\
+https://nytimes.com/athletic/6381784/2025/05/27/premier-league-tactical-trends-2024-25/
+
+**Explained: The Club World Cup transfer window and how contracts will work**\
+`FIFA's inaugural expanded Club World Cup brings with it new rules around player transfers and contracts - so what are they?`\
+https://nytimes.com/athletic/6353237/2025/05/27/club-world-cup-transfer-window-contracts-explained/
+
 **Inside Newcastle's 'unicorn' season: A summer hangover, a crucial crossroads and Howe's diary**\
 `In the end Eddie Howe's side won a trophy and qualified for the Champions League - but in December they were teetering towards a precipice`\
 https://nytimes.com/athletic/6383179/2025/05/27/inside-story-newcastle-season/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/27/business/china-unemployment-jobs.html
 **Toy Company Still In Crisis Despite Reduced Tariffs on China**\
 `A Chinese toy factory has gotten little relief after the United States and China agreed to temporarily lower tariffs. The company has been sitting on boxes of unshipped goods and unable to rehire staff.`\
 https://nytimes.com/video/business/100000010173533/china-tariff-toy-factory.html
-
-**Flavio Cobolli is a rising Italian tennis talent — who could have played for Roma**\
-`The 23-year-old has had an inconsistent start to 2025, but hopes that the biggest title of his career to date will be a spur in Paris.`\
-https://nytimes.com/athletic/6381211/2025/05/27/tennis-flavio-cobolli-italy-footballer-as-roma/
-
-**A Science Fiction Writer Wrestles With China’s Rise, and His Own Decline**\
-`In his stories, Han Song explores the disorientation accompanying China’s modernization, sometimes writing of unthinkable things that later came true.`\
-https://nytimes.com/2025/05/27/world/asia/a-science-fiction-writer-wrestles-with-chinas-rise-and-his-own-decline.html
-
-**Connections: Sports Edition Coach: Hints for May 27, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6384214/2025/05/27/connections-sports-edition-hints-for-may-27-2025/
-
-**Quote of the Day: Luck Floats On Like a Butterfly**\
-`Quotation of the Day for Tuesday, May 27, 2025`\
-https://nytimes.com/2025/05/26/pageoneplus/quote-of-the-day-luck-floats-on-like-a-butterfly.html
 
