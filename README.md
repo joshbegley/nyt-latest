@@ -1,3 +1,11 @@
+**Mary Earps and the end of an England career that was a testament to willpower**\
+`Much of women's football's skyward trajectory is down to incorrigible female forces like Mary Earps`\
+https://nytimes.com/athletic/6385134/2025/05/27/mary-earps-england-retirement-profile/
+
+**Why Isn’t My Favorite Composer More Popular?**\
+`I love the operas of Leos Janacek. So do audiences — when they go to see them. But the works remain stubbornly on the outskirts of the repertory.`\
+https://nytimes.com/2025/05/27/arts/music/janacek-opera-jenufa-cleveland.html
+
 **Carapaz on brink of pink jersey after nightmare day for UAE**\
 `With no time-trialling remaining, and 22,000m of climbing scheduled for the final week, Carapaz is now arguably the race favourite.`\
 https://nytimes.com/athletic/6385334/2025/05/27/giro-ditalia-richard-carapaz-stage-16/
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-w
 
 **Harvard Professor Who Studied Honesty Loses Tenure Amid Accusations of Falsifying Data**\
 `Francesca Gino, a prominent behavioral scientist at Harvard Business School, was accused of manipulating data in papers.`\
-https://nytimes.com/2025/05/27/education/harvard-professor-who-studied-honesty-loses-tenure-amid-accusations-of-falsifying-data.html
+https://nytimes.com/2025/05/27/education/harvard-business-professor-tenure-revoked.html
 
 **'It destroyed a perfect day' - How Liverpool's Premier League title parade turned into chaos**\
 `A 53-year-old man has been arrested on suspicion of attempted murder, dangerous driving offences and driving while unfit through drugs`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-coll
 **Bettors like Aaron Judge to do something that hasn't been done since 1941**\
 `Can Aaron Judge finish the season batting .400? You can bet on it.`\
 https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batting-average/
-
-**Olympic gymnastics champion Mary Lou Retton facing DUI charge**\
-`Retton, 57, was arrested in West Virginia and later released after posting a $1,500 bond on May 17.`\
-https://nytimes.com/athletic/6385128/2025/05/27/mary-lou-retton-dui-arrest/
-
-**WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
-`How does a 6-2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
-https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
 
