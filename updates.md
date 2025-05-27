@@ -1,3 +1,11 @@
+**Amorim outlines 'advantage' of no European football for Man Utd**\
+`United’s 15th place finish and failure to win the Europa League means they missed out on Champions League qualification.`\
+https://nytimes.com/athletic/6384452/2025/05/27/manchester-united-champions-league-ruben-amorim/
+
+**Police Quickly Gave Details on Liverpool Car Ramming, Aiming to Prevent Rumors**\
+`Just hours after the episode, the police announced that the driver was a white British man. After previous violence, false anti-Muslim speculation had been spread online.`\
+https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-police-suspect.html
+
 **Red Bull Italy SailGP team acquired by Grazioli-Venier's Muse Sport consortium**\
 `Alongside consortium partners Gian Luca Passi de Preposulo and Jimmy Spithill, she will become the first woman to lead a SailGP team`\
 https://nytimes.com/athletic/6382902/2025/05/27/grazioli-veniers-muse-sport-consortium-red-bull-italy-sailgp-team/
