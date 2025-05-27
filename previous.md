@@ -1,3 +1,7 @@
+**Red Bull Italy SailGP team acquired by Grazioli-Venier's Muse Sport consortium**\
+`Alongside consortium partners Gian Luca Passi de Preposulo and Jimmy Spithill, she will become the first woman to lead a SailGP team`\
+https://nytimes.com/athletic/6382902/2025/05/27/grazioli-veniers-muse-sport-consortium-red-bull-italy-sailgp-team/
+
 **Weinstein Trial to Shift to Defense After 3rd Accuser’s Striking Account**\
 `Jessica Mann broke down while testifying at the disgraced film mogul Harvey Weinstein’s sex crimes trial. His lawyers are expected to begin making their case this week.`\
 https://nytimes.com/2025/05/27/nyregion/harvey-weinstein-trial-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/briefing/united-states-european-union-trade-talks
 **The New York Times in Print for Tuesday, May 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/27/todays-new-york-times
-
-**Style, set-pieces and yellow cards: Assessing Fabian Hurzeler's first season in charge of Brighton**\
-`The Athletic looks back to some of the key messages in Hurzeler's opening press conference to see if he delivered on his promises`\
-https://nytimes.com/athletic/6349811/2025/05/27/fabian-hurzeler-first-season-brighton/
 

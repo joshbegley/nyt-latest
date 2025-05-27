@@ -1,3 +1,7 @@
+**Red Bull Italy SailGP team acquired by Grazioli-Venier's Muse Sport consortium**\
+`Alongside consortium partners Gian Luca Passi de Preposulo and Jimmy Spithill, she will become the first woman to lead a SailGP team`\
+https://nytimes.com/athletic/6382902/2025/05/27/grazioli-veniers-muse-sport-consortium-red-bull-italy-sailgp-team/
+
 **Weinstein Trial to Shift to Defense After 3rd Accuser’s Striking Account**\
 `Jessica Mann broke down while testifying at the disgraced film mogul Harvey Weinstein’s sex crimes trial. His lawyers are expected to begin making their case this week.`\
 https://nytimes.com/2025/05/27/nyregion/harvey-weinstein-trial-what-to-know.html
