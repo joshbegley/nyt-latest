@@ -1,3 +1,7 @@
+**Conflicting Claims Over Israel-Hamas Cease-fire Talks Sow Confusion**\
+`Israel, Hamas and the Trump administration have issued different messages about where efforts to reach a truce stand.`\
+https://nytimes.com/2025/05/27/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
+
 **This Medieval Greek Fortress Is a Tourist Idyll. Would a Cable Car Spoil It?**\
 `The authorities in Monemvasia, founded in the sixth century, say people with limited mobility need access to the town’s peak. But critics say the project would destroy the identity of the site.`\
 https://nytimes.com/2025/05/27/world/europe/greece-monemvasia-cable-car.html

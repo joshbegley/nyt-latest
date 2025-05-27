@@ -1,3 +1,7 @@
+**Conflicting Claims Over Israel-Hamas Cease-fire Talks Sow Confusion**\
+`Israel, Hamas and the Trump administration have issued different messages about where efforts to reach a truce stand.`\
+https://nytimes.com/2025/05/27/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
+
 **This Medieval Greek Fortress Is a Tourist Idyll. Would a Cable Car Spoil It?**\
 `The authorities in Monemvasia, founded in the sixth century, say people with limited mobility need access to the town’s peak. But critics say the project would destroy the identity of the site.`\
 https://nytimes.com/2025/05/27/world/europe/greece-monemvasia-cable-car.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-car-crash.html
 **The Windup: Boston’s quandary returns**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6384389/2025/05/27/red-sox-third-base-the-windup/
-
-**What is the Unity Cup and why could it be a big cultural moment in England?**\
-`Nigeria, Ghana, Jamaica and Trinidad & Tobago are taking part in a tournament at Brentford's Gtech Stadium - but what's it all about?`\
-https://nytimes.com/athletic/6383273/2025/05/27/unity-cup-nigeria-ghana-jamaica-trinidad/
 
