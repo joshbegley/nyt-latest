@@ -1,3 +1,8 @@
+**PSG vs Inter UCL final betting: History says take the under, should you?**\
+`Sam Tighe explains why betting on the under in this weekend’s Champions League final might be a smart pick.
+`\
+https://nytimes.com/athletic/6385423/2025/05/27/psg-inter-champions-league-final-under-betting-odds/
+
 **18 Intriguing Animal Photos to Get Your Students Thinking**\
 `A collection of some of our favorite “What’s Going On in This Picture?” images featuring encounters between animals and people.`\
 https://nytimes.com/2025/05/27/learning/18-intriguing-animal-photos-to-get-your-students-thinking.html
