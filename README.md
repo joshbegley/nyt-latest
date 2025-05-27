@@ -1,3 +1,7 @@
+**U.S. Will No Longer Recommend Covid Shots for Children and Pregnant Women**\
+`Health Secretary Robert F. Kennedy Jr. announced that the vaccine would not be included as part of the immunization schedule for healthy children.`\
+https://nytimes.com/2025/05/27/health/covid-vaccines-children-pregnant-women-rfk-jr.html
+
 **King Charles Describes a ‘Dangerous and Uncertain’ World**\
 `The king was invited to open Canada’s Parliament as a subtle rebuke to President Trump’s economic and annexation threats against Canada.`\
 https://nytimes.com/2025/05/27/world/canada/king-charles-canada-parliament-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385334/2025/05/27/giro-ditalia-richard-carapaz-sta
 **Caitlin Clark injury shifts WNBA MVP odds; Napheesa Collier new favorite**\
 `Clark will be sidelined for at least two weeks and four games with a left quadriceps strain.`\
 https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-wnba-mvp-odds/
-
-**Harvard Professor Who Studied Honesty Loses Tenure Amid Accusations of Falsifying Data**\
-`Francesca Gino, a prominent behavioral scientist at Harvard Business School, was accused of manipulating data in papers.`\
-https://nytimes.com/2025/05/27/education/harvard-business-professor-tenure-revoked.html
 

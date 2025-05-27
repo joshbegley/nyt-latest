@@ -1,3 +1,15 @@
+**King Charles Describes a ‘Dangerous and Uncertain’ World**\
+`The king was invited to open Canada’s Parliament as a subtle rebuke to President Trump’s economic and annexation threats against Canada.`\
+https://nytimes.com/2025/05/27/world/canada/king-charles-canada-parliament-speech.html
+
+**Watch: How impressive is Conte's latest Serie A title success?**\
+`The Totally Football Show debate just how impressive Antonio Conte's latest Serie A title is.`\
+https://nytimes.com/athletic/6384969/2025/05/27/totally-football-show-antonio-conte-serie-a-napoli/
+
+**Old Trafford given two-star food hygiene rating after mouse droppings found**\
+`The report found that seven different areas of the stadium contained rodent's dropping.`\
+https://nytimes.com/athletic/6385183/2025/05/27/manchester-united-old-trafford-food-hygiene-rating/
+
 **Brett Howden, defense attorney clash during pointed cross-examination**\
 `Howden said it's unfair to be asked to recall specifics. Attorney Julianna Greenspan countered: "Things aren’t fair, are they Mr. Howden?"`\
 https://nytimes.com/athletic/6384889/2025/05/27/hockey-canada-sexual-assault-trial-4/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-w
 **Harvard Professor Who Studied Honesty Loses Tenure Amid Accusations of Falsifying Data**\
 `Francesca Gino, a prominent behavioral scientist at Harvard Business School, was accused of manipulating data in papers.`\
 https://nytimes.com/2025/05/27/education/harvard-business-professor-tenure-revoked.html
-
-**'It destroyed a perfect day' - How Liverpool's Premier League title parade turned into chaos**\
-`A 53-year-old man has been arrested on suspicion of attempted murder, dangerous driving offences and driving while unfit through drugs`\
-https://nytimes.com/athletic/6371956/2025/05/27/liverpool-parade-car-collision-title/
-
-**Trump Media Raises Money to Buy $2.5 Billion in Bitcoin**\
-`The deal is the latest move by companies partly owned by President Trump and his family members to invest in crypto currency.`\
-https://nytimes.com/2025/05/27/business/trump-media-bitcoin.html
-
-**Chelsea's Mudryk to attend Conference League final**\
-`Mudryk has not played for Chelsea since being provisionally suspended in December for testing positive for meldonium, a banned substance.`\
-https://nytimes.com/athletic/6385150/2025/05/27/chelsea-mykhailo-mudryk-conference-league-final/
 
