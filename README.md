@@ -1,3 +1,7 @@
+**Villa agree deal to sign Feyenoord's Redmond as free agent**\
+`The striker was in Birmingham last week with his representatives to conclude a deal ahead of joining Villa at the start of July.`\
+https://nytimes.com/athletic/6385977/2025/05/27/aston-villa-transfer-news-redmond/
+
 **Cunha given permission by Wolves to undergo Man Utd medical**\
 `United have also held face-to-face talks over a summer move for Ipswich striker Liam Delap.`\
 https://nytimes.com/athletic/6298609/2025/05/27/cunha-manchester-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california
 **Yamal signs new Barcelona contract until 2031**\
 `The teenager has developed into one of the best young footballers in the world and played all seven matches when Spain won Euro 2024.`\
 https://nytimes.com/athletic/6176984/2025/05/27/lamine-yamal-barcelona-contract-signed/
-
-**Justices Allow School to Bar Student From Wearing ‘Only Two Genders’ Shirt**\
-`Conservative justices dissented as the Supreme Court denied review in that case and one on religious objections to mining on sacred Indian land.`\
-https://nytimes.com/2025/05/27/us/politics/supreme-court-two-genders-shirt.html
 
