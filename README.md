@@ -1,3 +1,11 @@
+**Tuesday Briefing: U.S. and E.U. Talk Trade**\
+`Plus, redefining Sweden’s culture.`\
+https://nytimes.com/2025/05/27/briefing/united-states-european-union-trade-talks-ukraine-russia-trump-liverpool-crash.html
+
+**The New York Times in Print for Tuesday, May 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/27/todays-new-york-times
+
 **Style, set-pieces and yellow cards: Assessing Fabian Hurzeler's first season in charge of Brighton**\
 `The Athletic looks back to some of the key messages in Hurzeler's opening press conference to see if he delivered on his promises`\
 https://nytimes.com/athletic/6349811/2025/05/27/fabian-hurzeler-first-season-brighton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loa
 **Why failing in the Premier League doesn’t make you a bad player**\
 `Mkhitaryan, Darmian and Vitinha could all play in the Champions League final. But why didn't they make it in the Premier League?`\
 https://nytimes.com/athletic/6369350/2025/05/27/premier-league-players-champions-league/
-
-**Premier League tactical trends 2024-25: Goalkeeper long passes, inswinging corners and fast breaks**\
-`Plus, the importance of dynamic duos and an increase in physical intensity - we take a look at what worked this season`\
-https://nytimes.com/athletic/6381784/2025/05/27/premier-league-tactical-trends-2024-25/
-
-**Explained: The Club World Cup transfer window and how contracts will work**\
-`FIFA's inaugural expanded Club World Cup brings with it new rules around player transfers and contracts - so what are they?`\
-https://nytimes.com/athletic/6353237/2025/05/27/club-world-cup-transfer-window-contracts-explained/
 
