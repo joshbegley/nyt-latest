@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-combinations-inter-psg/
 
+**Unexpected betting combos that could hit in the Inter vs PSG Champions League final**\
+`Brett Koremenos has a look at some intriguing betting combinations ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-combinations-inter-psg/
+
 **Test Your Spelling Skills**\
 `Do you think you have what it takes to compete with these Scripps Spelling Bee whizzes?`\
 https://nytimes.com/interactive/2025/05/27/us/scripps-spelling-bee-quiz.html

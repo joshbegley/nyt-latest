@@ -1,3 +1,23 @@
+**‘The True North Is Indeed Strong and Free’: King Charles III to Canada**\
+`King Charles III addressed the Canadian Parliament during his first visit to the country since his coronation.`\
+https://nytimes.com/video/world/canada/100000010192502/king-charles-canada-parliament-speech.html
+
+**U.S. Will Receive ‘Golden Share’ in Steel Deal**\
+`The federal government will also have say over U.S. board members in a tie-up between Japans’ Nippon Steel and U.S. Steel, according to a lawmaker.`\
+https://nytimes.com/2025/05/27/us/politics/trump-nippon-steel-deal.html
+
+**Mitch Love and Marco Sturm are finalists for Bruins coaching position: Source**\
+`Other finalists are unknown. Sweeney noted earlier this offseason that interim coach Joe Sacco would be part of a final group of coaches.`\
+https://nytimes.com/athletic/6385786/2025/05/27/bruins-coaching-finalists-mitch-love-marco-sturm/
+
+**Trade Crime Is Soaring, U.S. Firms Say, as Trump’s Tariffs Incentivize Fraud**\
+`President Trump’s steep global tariffs have supercharged efforts to evade them. Some U.S. companies say the government is ill-equipped to keep up.`\
+https://nytimes.com/2025/05/27/business/economy/trump-tariffs-trade-crime.html
+
+**Looking Back at Lollapalooza 1995**\
+`Revisit a peak music festival with songs by Hole, Beck, Elastica and more.`\
+https://nytimes.com/2025/05/27/arts/music/amplifier-newsletter-lollapalooza-1995.html
+
 **Test Your Spelling Skills**\
 `Do you think you have what it takes to compete with these Scripps Spelling Bee whizzes?`\
 https://nytimes.com/interactive/2025/05/27/us/scripps-spelling-bee-quiz.html
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6385533/2025/05/27/manchester-united-transfers-math
 **Robert Campbell, Architecture Critic in Love With Boston, Dies at 88**\
 `A Pulitzer Prize winner, he wrote with humanity and zest for The Boston Globe for more than 40 years.`\
 https://nytimes.com/2025/05/27/arts/design/robert-campbell-dead.html
-
-**Guardiola reshuffles Man City coaching staff with Lillo among exits**\
-`Lillo, Carlos Vicens and Inigo Dominguez are all moving on from the Etihad with Guardiola set to make several new coaching appointments.`\
-https://nytimes.com/athletic/6385410/2025/05/27/juanma-lillo-manchester-city-guardiola-staff/
-
-**Stocks Rally on the ‘TACO Trade’**\
-`The tongue-in-cheek term adopted by some analysts and commentators describes how markets tumble on President Trump’s tariff threats, only to rebound when he relents.`\
-https://nytimes.com/2025/05/27/business/stock-market-trump-tariffs.html
-
-**Ronnie Dugger, Crusading Texas Journalist, Dies at 95**\
-`As founding editor of The Texas Observer, he fought bigotry and exposed corporate greed, political chicanery and government corruption.`\
-https://nytimes.com/2025/05/27/business/media/ronnie-dugger-dead.html
-
-**Unexpected betting combos that could hit in the Inter vs PSG Champions League final**\
-`Brett Koremenos has a look at some intriguing betting combinations ahead of this weekend’s Champions League final.
-`\
-https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-combinations-inter-psg/
-
-**18 Intriguing Animal Photos to Get Your Students Thinking**\
-`A collection of some of our favorite “What’s Going On in This Picture?” images featuring encounters between animals and people.`\
-https://nytimes.com/2025/05/27/learning/18-intriguing-animal-photos-to-get-your-students-thinking.html
 
