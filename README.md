@@ -1,3 +1,7 @@
+**Carapaz on brink of pink jersey after nightmare day for UAE**\
+`With no time-trialling remaining, and 22,000m of climbing scheduled for the final week, Carapaz is now arguably the race favourite.`\
+https://nytimes.com/athletic/6385334/2025/05/27/giro-ditalia-richard-carapaz-stage-16/
+
 **Caitlin Clark injury shifts WNBA MVP odds; Napheesa Collier new favorite**\
 `Clark will be sidelined for at least two weeks and four games with a left quadriceps strain.`\
 https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-wnba-mvp-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385128/2025/05/27/mary-lou-retton-dui-arrest/
 **WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
 `How does a 6-2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
 https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
-
-**Design Finds**\
-``\
-https://nytimes.com/spotlight/design-finds
 
