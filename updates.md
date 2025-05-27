@@ -1,3 +1,12 @@
+**18 Intriguing Animal Photos to Get Your Students Thinking**\
+`A collection of some of our favorite “What’s Going On in This Picture?” images featuring encounters between animals and people.`\
+https://nytimes.com/2025/05/27/learning/18-intriguing-animal-photos-to-get-your-students-thinking.html
+
+**PSG vs Inter UCL final betting: History says take the under, should you?**\
+`Sam Tighe explains why betting on the under in this weekend’s Champions League final might be a smart pick.
+`\
+https://nytimes.com/athletic/6385423/2025/05/27/psg-inter-champions-league-final-under-betting-odds/
+
 **Prime Tire: F1's title fight regains momentum. Plus, what to do about Monaco**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6385362/2025/05/27/f1-monaco-gp-drivers-championship-prime-tire-newsletter/

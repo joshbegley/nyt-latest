@@ -1,3 +1,7 @@
+**18 Intriguing Animal Photos to Get Your Students Thinking**\
+`A collection of some of our favorite “What’s Going On in This Picture?” images featuring encounters between animals and people.`\
+https://nytimes.com/2025/05/27/learning/18-intriguing-animal-photos-to-get-your-students-thinking.html
+
 **Prime Tire: F1's title fight regains momentum. Plus, what to do about Monaco**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6385362/2025/05/27/f1-monaco-gp-drivers-championship-prime-tire-newsletter/
@@ -34,8 +38,4 @@ https://nytimes.com/newsgraphics/card-story/food-grocery-shopping
 **Hot-Plate Heroes: How Restaurants Work Wonders With No Kitchen**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/restaurants-with-no-kitchen
-
-**The Fitness Trends That Experts Hate**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/fitness-trends-tiktok-instagram
 
