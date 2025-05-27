@@ -1,3 +1,11 @@
+**Jussie Smollett Donates $50,000 to Arts Center to Settle Chicago’s Lawsuit**\
+`Although the actor’s conviction for filing a false police report was overturned because of a previous deal with prosecutors, the city wanted him to pay for its hate crime investigation.`\
+https://nytimes.com/2025/05/27/arts/television/jussie-smollett-donation-chicago-lawsuit.html
+
+**Maresca backs Jackson to make amends to Chelsea team-mates in UCL final**\
+`Jackson is available for selection again having missed the last two Premier League games of the campaign through suspension.`\
+https://nytimes.com/athletic/6385860/2025/05/27/jackson-chelsea-conference-league-final/
+
 **Watch: Was Game 4 the best the Thunder's 'big 3' have been all season?**\
 `"The Athletic NBA Daily discussed the Oklahoma City Thunder's Game 4 win over the Minnesota Timberwolves to take a 3-1 series lead.`\
 https://nytimes.com/athletic/6385409/2025/05/27/thunder-nba-daily-big-three-playoffs/
