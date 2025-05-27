@@ -1,3 +1,7 @@
+**Robert Campbell, Architecture Critic in Love With Boston, Dies at 88**\
+`A Pulitzer Prize winner, he wrote with humanity and zest for The Boston Globe for more than 40 years.`\
+https://nytimes.com/2025/05/27/arts/design/robert-campbell-dead.html
+
 **Guardiola reshuffles Man City coaching staff with Lillo among exits**\
 `Lillo, Carlos Vicens and Inigo Dominguez are all moving on from the Etihad with Guardiola set to make several new coaching appointments.`\
 https://nytimes.com/athletic/6385410/2025/05/27/juanma-lillo-manchester-city-guardiola-staff/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6384458/2025/05/27/athletic-fc-podcast-aston-villa-
 `Sam Tighe explains why betting on the under in this weekend’s Champions League final might be a smart pick.
 `\
 https://nytimes.com/athletic/6385423/2025/05/27/psg-inter-champions-league-final-under-betting-odds/
-
-**Marlow East Brings Southern Charm Uptown**\
-`April Bloomfield expands her portfolio to Texas, Minuto Bauli brings its Twinkie-adjacent Italian treats to New York and more restaurant news.`\
-https://nytimes.com/2025/05/27/dining/nyc-restaurant-news.html
 

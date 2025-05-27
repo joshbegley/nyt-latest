@@ -1,3 +1,7 @@
+**Guardiola reshuffles Man City coaching staff with Lillo among exits**\
+`Lillo, Carlos Vicens and Inigo Dominguez are all moving on from the Etihad with Guardiola set to make several new coaching appointments.`\
+https://nytimes.com/athletic/6385410/2025/05/27/juanma-lillo-manchester-city-guardiola-staff/
+
 **Stocks Rally on What Some Call the ‘TACO Trade’**\
 `The tongue-in-cheek term adopted by analysts and commentators describes how markets tumble on President Trump’s tariff threats, only to rebound when he relents.`\
 https://nytimes.com/2025/05/27/business/stock-market-trump-tariffs.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6385423/2025/05/27/psg-inter-champions-league-final
 **Marlow East Brings Southern Charm Uptown**\
 `April Bloomfield expands her portfolio to Texas, Minuto Bauli brings its Twinkie-adjacent Italian treats to New York and more restaurant news.`\
 https://nytimes.com/2025/05/27/dining/nyc-restaurant-news.html
-
-**We Tried to Find a Perfect Dupe for the Black Honey Almost Lipstick. We Couldn’t.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-clinique-almost-lipstick-review
 
