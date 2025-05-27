@@ -1,3 +1,11 @@
+**Crystal Gazer**\
+`Ginny Too spreads the good word.`\
+https://nytimes.com/2025/05/26/crosswords/daily-puzzle-2025-05-27.html
+
+**Sankey: SEC has rising interest in 16-team CFP, but issues with auto bids**\
+`The SEC commissioner opened spring meetings Monday with a 45-minute news conference, most of it related to CFP issues.`\
+https://nytimes.com/athletic/6384040/2025/05/26/sankey-sec-16-team-cfp-automatic-bids/
+
 **Sankey: SEC has rising interest in 16-team CFP, but issues with auto bids**\
 `Commissioner Greg Sankey opened SEC spring meetings Monday with about a 45-minute news conference, most of it related to CFP issues.`\
 https://nytimes.com/athletic/6384040/2025/05/26/sankey-sec-16-team-cfp-automatic-bids/
