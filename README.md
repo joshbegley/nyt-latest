@@ -1,3 +1,7 @@
+**The C.D.C. Now Says Healthy Kids Don’t Need Covid Shots. Is That True?**\
+`Here’s what the data tells us about Covid’s risks to children — and the benefits of vaccination.`\
+https://nytimes.com/2025/05/27/well/rfk-jr-cdc-children-covid-vaccines-data.html
+
 **How to Create a Food Budget**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/food-grocery-shopping
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/denver-sustainable-hotels-populus
 **Monsters Plague Japan. But What Do They Mean?**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/monsters-godzilla-japan
-
-**gws-tina-knowles-beyonce-solange-matriarch-book**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tina-knowles-beyonce-solange-matriarch-book
 
