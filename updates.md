@@ -1,3 +1,23 @@
+**Bettors like Aaron Judge to do something that hasn't been done since 1941**\
+`Can Aaron Judge finish the season batting .400? You can bet on it.`\
+https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batting-average/
+
+**Olympic gymnastics champion Mary Lou Retton facing DUI charge**\
+`Retton, 57, was arrested in West Virginia and later released after posting a $1,500 bond on May 17.`\
+https://nytimes.com/athletic/6385128/2025/05/27/mary-lou-retton-dui-arrest/
+
+**WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
+`How does a 6'2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
+https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
+
+**Design Finds**\
+``\
+https://nytimes.com/spotlight/design-finds
+
+**Milos Uzan withdraws from NBA Draft to return to Houston: Source**\
+`The decision cements last year's national runner-up as one of the preseason national title favorites.`\
+https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
+
 **Easy Chicken-Taco Tuesday**\
 `Easy to make, easy to eat and easy to love.`\
 https://nytimes.com/2025/05/27/dining/easy-chicken-taco-recipe-and-more-weeknight-dinners.html

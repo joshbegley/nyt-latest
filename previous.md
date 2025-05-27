@@ -1,3 +1,23 @@
+**Bettors like Aaron Judge to do something that hasn't been done since 1941**\
+`Can Aaron Judge finish the season batting .400? You can bet on it.`\
+https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batting-average/
+
+**Olympic gymnastics champion Mary Lou Retton facing DUI charge**\
+`Retton, 57, was arrested in West Virginia and later released after posting a $1,500 bond on May 17.`\
+https://nytimes.com/athletic/6385128/2025/05/27/mary-lou-retton-dui-arrest/
+
+**WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
+`How does a 6'2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
+https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
+
+**Design Finds**\
+``\
+https://nytimes.com/spotlight/design-finds
+
+**Milos Uzan withdraws from NBA Draft to return to Houston: Source**\
+`The decision cements last year's national runner-up as one of the preseason national title favorites.`\
+https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
+
 **Easy Chicken-Taco Tuesday**\
 `Easy to make, easy to eat and easy to love.`\
 https://nytimes.com/2025/05/27/dining/easy-chicken-taco-recipe-and-more-weeknight-dinners.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6384153/2025/05/27/college-football-26-video-game-c
 **Congo’s Former President Returns Home, Accused of Treason**\
 `Joseph Kabila was accused of supporting the Rwanda-backed militia M23. Days later he arrived in Goma, a city held by the militia, so he remains out of prosecutors’ reach.`\
 https://nytimes.com/2025/05/27/world/africa/congo-kabila-returns-treason.html
-
-**Packers proposed restructured contract to CB Jaire Alexander: Source**\
-`Alexander plans to report to Lambeau Field for mandatory minicamp in a couple weeks, even if his contract situation isn't resolved.`\
-https://nytimes.com/athletic/6385119/2025/05/27/packers-restructured-contract-jaire-alexander/
-
-**After Curator’s Death, Venice Biennale Will Realize Her Vision**\
-`Koyo Kouoh had spent nearly seven months preparing the art event’s main exhibition before she died this month. Her team will complete the work and open the show in May 2026.`\
-https://nytimes.com/2025/05/27/arts/design/venice-biennale-koyo-kouoh-minor-keys.html
-
-**Do You Know Where in the World These Books Are Set?**\
-`Canada has a rich literary culture and many of its recent novelists have achieved international acclaim. See if you can match these five books to locations set within the country.`\
-https://nytimes.com/interactive/2025/05/27/books/review/canada-novel-locations.html
-
-**C. Notes: Brady Singer's Florida Gators reunion, what players do with giveaway items**\
-`Plus injury updates and a look at how the minor leaguers are doing.`\
-https://nytimes.com/athletic/6384933/2025/05/27/reds-singer-india-florida-gators/
-
-**How a Generation’s Struggle Led to a Record Surge in Homelessness**\
-`Late baby boomers have endured challenges that have left many economically vulnerable and dependent on parents for help. With their parents dying, they are ending up on the streets in growing numbers.`\
-https://nytimes.com/2025/05/27/us/politics/homelessness-baby-boomers.html
 
