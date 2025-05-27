@@ -1,3 +1,7 @@
+**Chaos Mars Opening of Israeli-Backed Aid Distribution Site in Gaza**\
+`Starvation looming, desperate Palestinians surged toward an aid center that Israel says was designed to circumvent Hamas.`\
+https://nytimes.com/2025/05/27/world/middleeast/gaza-aid-site-israel.html
+
 **Rape Charge Is Dropped Against Former Tech C.E.O. Dan Price**\
 `The owner of Gravity Payments became a prominent progressive figure on social media after raising the minimum pay at his company to $70,000.`\
 https://nytimes.com/2025/05/27/technology/dan-price-gravity-payments-rape-charge-dropped.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/arts/television/netflix-leaving-june.html
 **The Amazon Loses One of Its Most Celebrated Chroniclers**\
 `Sebastião Salgado, a renowned photojournalist who died last week, spent decades capturing an Amazon that is fast disappearing.`\
 https://nytimes.com/2025/05/27/climate/amazon-sebastiao-salgado-deforestsation.html
-
-**Leave a Maple Leafs question for James Mirtle’s next mailbag**\
-`Well, there&#8217;s certainly no shortage of things going on in Toronto these days with the Maple Leafs.`\
-https://nytimes.com/athletic/6385982/2025/05/27/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag-2/
 
