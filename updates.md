@@ -1,3 +1,15 @@
+**What is the Unity Cup and why could it be a big cultural moment in England?**\
+`Nigeria, Ghana, Jamaica and Trinidad and Tobago are taking part in a tournament at Brentford's Gtech Stadium - but what's it all about?`\
+https://nytimes.com/athletic/6383273/2025/05/27/unity-cup-nigeria-ghana-jamaica-trinidad/
+
+**The Jeweler Behind Zendaya’s Blingy Engagement Ring**\
+`Jessica McCormack, the London jeweler with a knack for injecting cool-girl energy into top-dollar pieces, has opened a shop in Manhattan.`\
+https://nytimes.com/2025/05/27/style/jessica-mccormack-cult-jeweler-london.html
+
+**Dandy Attire for a Night at the Opera**\
+`Looking the part of a gentleman in a double-breasted blazer and pleated trousers.`\
+https://nytimes.com/2025/05/27/style/street-style-look-dandy-attire.html
+
 **Primoz Roglic abandons Giro d’Italia after stage 16 crash**\
 `A former winner of the Giro in 2023, and a four-time champion of the Vuelta a Espana, he entered this Grand Tour as the pre-race favourite.`\
 https://nytimes.com/athletic/6384794/2025/05/27/giro-ditalia-primoz-roglic-crash-out/
