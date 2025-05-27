@@ -1,40 +1,40 @@
-**Quote of the Day: Luck Floats On Like a Butterfly**\
-`Quotation of the Day for Tuesday, May 27, 2025`\
-https://nytimes.com/2025/05/26/pageoneplus/quote-of-the-day-luck-floats-on-like-a-butterfly.html
+**Antony's revival at Real Betis: How a €95m Man United outcast has been one of the best players in Spain**\
+`Antony has been a standout player for Betis in their run to the Conference League final after moving on loan from Man United in January`\
+https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loan-conference-league/
 
-**Judge Criticizes Government Inaction in Case of Migrants Held in Djibouti**\
-`Judge Brian E. Murphy had ordered the Trump administration to offer due process to a group of men whom the government was trying to send to South Sudan.`\
-https://nytimes.com/2025/05/26/us/politics/judge-deportations-south-sudan-trump.html
+**Why failing in the Premier League doesn’t make you a bad player**\
+`Mkhitaryan, Darmian and Vitinha could all play in the Champions League final. But why didn't they make it in the Premier League?`\
+https://nytimes.com/athletic/6369350/2025/05/27/premier-league-players-champions-league/
 
-**Scoop City: Getting back to the Patriot way**\
-`Inside: The Patriots aim to make a quick return to the postseason, plus a health checkup on Aidan Hutchinson, Brandon Aiyuk, and a spotlight on the 2025 Bills.`\
-https://nytimes.com/athletic/6383607/2025/05/26/nfl-patriots-playoffs-scoop-city/
+**Premier League tactical trends 2024-25: Goalkeeper long passes, inswinging corners and fast breaks**\
+`Plus, the importance of dynamic duos and an increase in physical intensity - we take a look at what worked this season`\
+https://nytimes.com/athletic/6381784/2025/05/27/premier-league-tactical-trends-2024-25/
 
-**Max Muncy, Dodgers looking to work through third baseman's defensive woes**\
-`"I see him working consistently every day. So that's what I'm going to keep betting on," Dodgers manager Dave Roberts said.`\
-https://nytimes.com/athletic/6384155/2025/05/26/dodgers-max-muncy-defensive-issues/
+**Explained: The Club World Cup transfer window and how contracts will work**\
+`FIFA's inaugural expanded Club World Cup brings with it new rules around player transfers and contracts - so what are they?`\
+https://nytimes.com/athletic/6353237/2025/05/27/club-world-cup-transfer-window-contracts-explained/
 
-**Hurricanes avoid sweep vs. Panthers, snap their 15-game conference-finals skid: Takeaways**\
-`Logan Stankoven scored and Frederik Andersen made 20 saves for a shutout as the Hurricanes forced Game 5 on Wednesday in Raleigh.`\
-https://nytimes.com/athletic/6384189/2025/05/26/hurricanes-panthers-nhl-playoffs-2025-game-4-takeaways/
+**Inside Newcastle's 'unicorn' season: A summer hangover, a crucial crossroads and Howe's diary**\
+`In the end Eddie Howe's side won a trophy and qualified for the Champions League - but in December they were teetering towards a precipice`\
+https://nytimes.com/athletic/6383179/2025/05/27/inside-story-newcastle-season/
 
-**Crystal Gazer**\
-`Ginny Too spreads the good word.`\
-https://nytimes.com/2025/05/26/crosswords/daily-puzzle-2025-05-27.html
+**After Forest denied Gary Neville access to City Ground, what could implications be for broadcasters?**\
+`The Sky Sports broadcaster was not granted accreditation to cover Sunday's game after previously being critical of Forest's owner.`\
+https://nytimes.com/athletic/6383147/2025/05/27/neville-forest-sky-maranakis/
 
-**Sankey: SEC has rising interest in 16-team CFP, but issues with auto bids**\
-`The SEC commissioner opened spring meetings Monday with a 45-minute news conference, most of it related to CFP issues.`\
-https://nytimes.com/athletic/6384040/2025/05/26/sankey-sec-16-team-cfp-automatic-bids/
+**Chelsea can become the first club to win all four major UEFA trophies - but who else could complete the set?**\
+`Sixty-one clubs have won a major UEFA competition. Here's a breakdown and a look at which can still win all four of them`\
+https://nytimes.com/athletic/6371965/2025/05/27/winning-all-four-european-trophies-chelsea/
 
-**'Don't walk away': SEC's Greg Sankey urges teams to play non-conference games**\
-`The message comes amid an era where the CFP selection committee seems to ding teams for losses more than it rewards teams for good wins.`\
-https://nytimes.com/athletic/6384081/2025/05/26/sec-commissioner-greg-sankey-cfp-format/
+**NBA playoffs takeaways: Thunder take Game 4; SGA, Jalen Williams impress vs. Wolves**\
+`Oklahoma City is a win away from an NBA Finals appearance after big performances from Gilgeous-Alexander and Williams.`\
+https://nytimes.com/athletic/6384235/2025/05/27/thunder-timberwolves-nba-playoffs-takeaways/
 
-**Jacob deGrom fails to record a strikeout for first time in his career**\
-`deGrom, a two-time Cy Young Award winner, entered Monday with 1,728 career strikeouts over 229 starts.`\
-https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-strikeouts/
+**China’s Soft Spot in Trade War With Trump: Risk of Huge Job Loss**\
+`A chronic housing slowdown and high youth unemployment rate have made China more vulnerable than it was in President Trump’s first term.`\
+https://nytimes.com/2025/05/27/business/china-unemployment-jobs.html
 
-**Charles B. Rangel: A Life in Pictures**\
-`The congressman from Harlem was a force on Capitol Hill — and a familiar presence on the streets he represented for decades.`\
-https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
+**Toy Company Still In Crisis Despite Reduced Tariffs on China**\
+`A Chinese toy factory has gotten little relief after the United States and China agreed to temporarily lower tariffs. The company has been sitting on boxes of unshipped goods and unable to rehire staff.`\
+https://nytimes.com/video/business/100000010173533/china-tariff-toy-factory.html
 

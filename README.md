@@ -1,3 +1,7 @@
+**There were highlights, but sloppy play costs Twins in 7-2 loss to Tampa Bay**\
+`The Twins strayed from their recent 13-game winning streak form for the first time since a disastrous eighth inning in Boston on May 2.`\
+https://nytimes.com/athletic/6384227/2025/05/27/twins-lose-to-tampa-bay/
+
 **Antony's revival at Real Betis: How a €95m Man United outcast has been one of the best players in Spain**\
 `Antony has been a standout player for Betis in their run to the Conference League final after moving on loan from Man United in January`\
 https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loan-conference-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384235/2025/05/27/thunder-timberwolves-nba-playoff
 **China’s Soft Spot in Trade War With Trump: Risk of Huge Job Loss**\
 `A chronic housing slowdown and high youth unemployment rate have made China more vulnerable than it was in President Trump’s first term.`\
 https://nytimes.com/2025/05/27/business/china-unemployment-jobs.html
-
-**Toy Company Still In Crisis Despite Reduced Tariffs on China**\
-`A Chinese toy factory has gotten little relief after the United States and China agreed to temporarily lower tariffs. The company has been sitting on boxes of unshipped goods and unable to rehire staff.`\
-https://nytimes.com/video/business/100000010173533/china-tariff-toy-factory.html
 
