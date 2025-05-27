@@ -1,3 +1,7 @@
+**Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
+`With a 2-1 overtime victory, the Frost won back-to-back PWHL championships on Monday — and this time, they did it on home ice. `\
+https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
+
 **'It was time': Chris Taylor talks Dodgers release, fresh start with Angels**\
 `The Angels signed Taylor to a one-year contract on Monday and will pay him the prorated MLB minimum.`\
 https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodgers/

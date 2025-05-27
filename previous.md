@@ -1,3 +1,7 @@
+**Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
+`With a 2-1 overtime victory, the Frost won back-to-back PWHL championships on Monday — and this time, they did it on home ice. `\
+https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
+
 **'It was time': Chris Taylor talks Dodgers release, fresh start with Angels**\
 `The Angels signed Taylor to a one-year contract on Monday and will pay him the prorated MLB minimum.`\
 https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383797/2025/05/26/indy-500-viewership-ratings-fox-
 **Napoli sporting director says club can 'see the finish line' in De Bruyne talks**\
 `Napoli owner Aurelio De Laurentiis said the deal was not yet finalised but that he held positive discussions with De Bruyne on Monday.`\
 https://nytimes.com/athletic/6383806/2025/05/26/kevin-de-bruyne-napoli-talks/
-
-**Tuesday Briefing: U.S. and E.U. Talk Trade**\
-`Plus, defining Sweden’s culture.`\
-https://nytimes.com/2025/05/26/briefing/us-eu-trade-russia-ukraine-attacks-south-korea-women-politics.html
 
