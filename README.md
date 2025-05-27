@@ -1,3 +1,23 @@
+**Harvard Professor Who Studied Honesty Loses Tenure Amid Accusations of Falsifying Data**\
+`Francesca Gino, a prominent behavioral scientist at Harvard Business School, was accused of manipulating data in papers.`\
+https://nytimes.com/2025/05/27/education/harvard-professor-who-studied-honesty-loses-tenure-amid-accusations-of-falsifying-data.html
+
+**'It destroyed a perfect day' - How Liverpool's Premier League title parade turned into chaos**\
+`A 53-year-old man has been arrested on suspicion of attempted murder, dangerous driving offences and driving while unfit through drugs`\
+https://nytimes.com/athletic/6371956/2025/05/27/liverpool-parade-car-collision-title/
+
+**Trump Media Raises Money to Buy $2.5 Billion in Bitcoin**\
+`The deal is the latest move by companies partly owned by President Trump and his family members to invest in crypto currency.`\
+https://nytimes.com/2025/05/27/business/trump-media-bitcoin.html
+
+**Chelsea's Mudryk to attend Conference League final**\
+`Mudryk has not played for Chelsea since being provisionally suspended in December for testing positive for meldonium, a banned substance.`\
+https://nytimes.com/athletic/6385150/2025/05/27/chelsea-mykhailo-mudryk-conference-league-final/
+
+**Liverpool parade latest - 50 hospitalised, man arrested on suspicion of attempted murder**\
+`The collision is being treated as an isolated incident and police are not looking for anyone else in relation to the incident.`\
+https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-collision/
+
 **Bettors like Aaron Judge to do something that hasn't been done since 1941**\
 `Can Aaron Judge finish the season batting .400? You can bet on it.`\
 https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batting-average/
@@ -17,24 +37,4 @@ https://nytimes.com/spotlight/design-finds
 **Milos Uzan will withdraw from NBA Draft to return to Houston**\
 `The decision cements last year's national runner-up as one of the preseason national title favorites.`\
 https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
-
-**Easy Chicken-Taco Tuesday**\
-`Easy to make, easy to eat and easy to love.`\
-https://nytimes.com/2025/05/27/dining/chicken-taco-recipe-weeknight-dinners.html
-
-**Trump Pardoned Tax Cheat After Mother Attended $1 Million Dinner**\
-`Paul Walczak’s pardon application cited his mother’s support for the president, including raising millions of dollars and a connection to a plot to publicize a Biden family diary.`\
-https://nytimes.com/2025/05/27/us/politics/trump-pardon-paul-walczak-tax-crimes.html
-
-**The Bounce: Thunder near NBA Finals, but stupid rule rears its head again as playoff drama grows**\
-`While the Thunder absolutely earned their Game 4 win, the ending was once again devoid of drama. How does the NBA correct this?`\
-https://nytimes.com/athletic/6384834/2025/05/27/shai-gilgeous-alexander-thunder-nba-finals-playoffs-the-bounce/
-
-**Jeremiah Smith, Ryan Williams featured on cover of EA Sports' CFB26**\
-`Smith and Williams were in the unique position last year of being among the best players in the country as true freshmen.`\
-https://nytimes.com/athletic/6384153/2025/05/27/college-football-26-video-game-cover-jeremiah-smith-ryan-williams/
-
-**Congo’s Former President Returns Home, Accused of Treason**\
-`Joseph Kabila was accused of supporting the Rwanda-backed militia M23. Days later he arrived in Goma, a city held by the militia, so he remains out of prosecutors’ reach.`\
-https://nytimes.com/2025/05/27/world/africa/congo-kabila-returns-treason.html
 
