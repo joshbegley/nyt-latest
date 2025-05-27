@@ -1,3 +1,7 @@
+**Carlos Vela, MLS MVP and LAFC star, announces retirement**\
+`Vela was once among the most touted prospects in the sport, coming up through Chivas Guadalajara's ranks`\
+https://nytimes.com/athletic/6386365/2025/05/27/carlos-vela-lafc-soccer-retirement/
+
 **Gael Monfils' late-night resurrection and Coco Gauff's missing rackets: French Open day 3**\
 `The Philippe-Chatrier roof took center stage during Djokovic's match as the rain and wind howled, before Monfils performed another miracle.`\
 https://nytimes.com/athletic/6385920/2025/05/27/gael-monfils-french-open-comeback-recap-day-3/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/well/family/maternal-mental-health-study.html
 **An Antiwar Movement Is Stirring in Israel**\
 `Israelis and Gazans both feel trapped by leaders they no longer trust.`\
 https://nytimes.com/2025/05/27/opinion/israel-gaza-netanyahu.html
-
-**Fantasy baseball buy, sell, hold advice on Mookie Betts, Gunnar Henderson and more**\
-`Michael Salfino identifies profile changes for some hitters in 2025 and advises whether we should view these bats differently going forward.`\
-https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-betts-gunnar/
 

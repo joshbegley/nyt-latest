@@ -1,3 +1,7 @@
+**Slot thanks emergency services after 'shocking incident' at Liverpool title parade**\
+`Slot did not attend Tuesday's LMA awards dinner in solidarity with those impacted by Monday's incident at the club's title parade.`\
+https://nytimes.com/athletic/6386429/2025/05/27/slot-liverpool-title-parade-car-collision/
+
 **Carlos Vela, MLS MVP and LAFC star, announces retirement**\
 `Vela was once among the most touted prospects in the sport, coming up through Chivas Guadalajara's ranks`\
 https://nytimes.com/athletic/6386365/2025/05/27/carlos-vela-lafc-soccer-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/briefing/covid-vaccines-federal-contracts-harvard
 **Study Finds a Steep Drop in Mothers’ Mental Health**\
 `New research involving nearly 200,000 mothers found that one in 12 rated her mental health as fair or poor.`\
 https://nytimes.com/2025/05/27/well/family/maternal-mental-health-study.html
-
-**An Antiwar Movement Is Stirring in Israel**\
-`Israelis and Gazans both feel trapped by leaders they no longer trust.`\
-https://nytimes.com/2025/05/27/opinion/israel-gaza-netanyahu.html
 
