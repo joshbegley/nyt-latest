@@ -1,3 +1,7 @@
+**Caitlin Clark injury shifts WNBA MVP odds; Napheesa Collier new favorite**\
+`Clark will be sidelined for at least two weeks and four games with a left quadriceps strain.`\
+https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-wnba-mvp-odds/
+
 **Harvard Professor Who Studied Honesty Loses Tenure Amid Accusations of Falsifying Data**\
 `Francesca Gino, a prominent behavioral scientist at Harvard Business School, was accused of manipulating data in papers.`\
 https://nytimes.com/2025/05/27/education/harvard-professor-who-studied-honesty-loses-tenure-amid-accusations-of-falsifying-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-st
 **Design Finds**\
 ``\
 https://nytimes.com/spotlight/design-finds
-
-**Milos Uzan will withdraw from NBA Draft to return to Houston**\
-`The decision cements last year's national runner-up as one of the preseason national title favorites.`\
-https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
 
