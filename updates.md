@@ -1,3 +1,7 @@
+**Judge Criticizes Government Inaction in Case of Migrants Held in Djibouti**\
+`Judge Brian E. Murphy had ordered the Trump administration to offer due process to a group of men whom the government was trying to send to South Sudan.`\
+https://nytimes.com/2025/05/26/us/politics/judge-deportations-south-sudan-trump.html
+
 **Hurricanes avoid sweep vs. Panthers, snap their 15-game conference-finals skid: Takeaways**\
 `Logan Stankoven scored and Frederik Andersen made 20 saves for a shutout as the Hurricanes forced Game 5 on Wednesday in Raleigh.`\
 https://nytimes.com/athletic/6384189/2025/05/26/hurricanes-panthers-nhl-playoffs-2025-game-4-takeaways/
