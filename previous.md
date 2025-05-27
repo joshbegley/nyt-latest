@@ -1,3 +1,7 @@
+**Rape Charge Is Dropped Against Former Tech C.E.O. Dan Price**\
+`The owner of Gravity Payments became a prominent progressive figure on social media after raising the minimum pay at his company to $70,000.`\
+https://nytimes.com/2025/05/27/technology/dan-price-gravity-payments-rape-charge-dropped.html
+
 **Jac Caglianone adjusting to outfield in Triple A, pleased with Royals' development plan**\
 `Caglianone has homered five times in six Triple-A games, but he's not worried about his MLB debut. “It’ll happen when it happens."`\
 https://nytimes.com/athletic/6386000/2025/05/27/jac-caglianone-royals-development/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/climate/amazon-sebastiao-salgado-deforestsation.h
 **Leave a Maple Leafs question for James Mirtle’s next mailbag**\
 `Well, there&#8217;s certainly no shortage of things going on in Toronto these days with the Maple Leafs.`\
 https://nytimes.com/athletic/6385982/2025/05/27/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag-2/
-
-**Villa agree deal to sign Feyenoord's Redmond as free agent**\
-`The striker was in Birmingham last week with his representatives to conclude a deal ahead of joining Villa at the start of July.`\
-https://nytimes.com/athletic/6385977/2025/05/27/aston-villa-transfer-news-redmond/
 

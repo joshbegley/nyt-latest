@@ -1,3 +1,7 @@
+**Rape Charge Is Dropped Against Former Tech C.E.O. Dan Price**\
+`The owner of Gravity Payments became a prominent progressive figure on social media after raising the minimum pay at his company to $70,000.`\
+https://nytimes.com/2025/05/27/technology/dan-price-gravity-payments-rape-charge-dropped.html
+
 **Jac Caglianone adjusting to outfield in Triple A, pleased with Royals' development plan**\
 `Caglianone has homered five times in six Triple-A games, but he's not worried about his MLB debut. “It’ll happen when it happens."`\
 https://nytimes.com/athletic/6386000/2025/05/27/jac-caglianone-royals-development/
