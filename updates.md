@@ -1,3 +1,11 @@
+**Tuesday Briefing: U.S. and E.U. Talk Trade**\
+`Plus, redefining Sweden’s culture.`\
+https://nytimes.com/2025/05/27/briefing/united-states-european-union-trade-talks-ukraine-russia-trump-liverpool-crash.html
+
+**The New York Times in Print for Tuesday, May 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/27/todays-new-york-times
+
 **Liverpool parade horror - Two seriously injured, including one child, after car ploughs into crowd**\
 `Twenty-seven people were taken to hospital after the incident on Monday, with one adult and one child seriously hurt.`\
 https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-collision/
