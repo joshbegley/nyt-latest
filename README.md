@@ -1,3 +1,7 @@
+**How North Korea Botched the Launch of a Warship**\
+`Satellite images and videos show how launching a 5,000-ton warship into the water sideways can cause it to capsize if done incorrectly.`\
+https://nytimes.com/2025/05/27/world/asia/north-korea-warship-destroyer.html
+
 **Tuesday Briefing: U.S. and E.U. Talk Trade**\
 `Plus, redefining Sweden’s culture.`\
 https://nytimes.com/2025/05/27/briefing/united-states-european-union-trade-talks-ukraine-russia-trump-liverpool-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384227/2025/05/27/twins-lose-to-tampa-bay/
 **Antony's revival at Real Betis: How a €95m Man United outcast has been one of the best players in Spain**\
 `Antony has been a standout player for Betis in their run to the Conference League final after moving on loan from Man United in January`\
 https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loan-conference-league/
-
-**Why failing in the Premier League doesn’t make you a bad player**\
-`Mkhitaryan, Darmian and Vitinha could all play in the Champions League final. But why didn't they make it in the Premier League?`\
-https://nytimes.com/athletic/6369350/2025/05/27/premier-league-players-champions-league/
 
