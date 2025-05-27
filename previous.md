@@ -1,3 +1,16 @@
+**Stocks Rally on What Some Call the ‘TACO Trade’**\
+`The tongue-in-cheek term adopted by analysts and commentators describes how markets tumble on President Trump’s tariff threats, only to rebound when he relents.`\
+https://nytimes.com/2025/05/27/business/stock-market-trump-tariffs.html
+
+**Ronnie Dugger, Crusading Texas Journalist, Dies at 95**\
+`As founding editor of The Texas Observer, he fought bigotry and exposed corporate greed, political chicanery and government corruption.`\
+https://nytimes.com/2025/05/27/business/media/ronnie-dugger-dead.html
+
+**Unexpected betting combos that could hit in the Inter vs PSG Champions League final**\
+`Brett Koremenos has a look at some intriguing betting combinations ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-combinations-inter-psg/
+
 **18 Intriguing Animal Photos to Get Your Students Thinking**\
 `A collection of some of our favorite “What’s Going On in This Picture?” images featuring encounters between animals and people.`\
 https://nytimes.com/2025/05/27/learning/18-intriguing-animal-photos-to-get-your-students-thinking.html
@@ -26,16 +39,4 @@ https://nytimes.com/2025/05/27/dining/nyc-restaurant-news.html
 **We Tried to Find a Perfect Dupe for the Black Honey Almost Lipstick. We Couldn’t.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-clinique-almost-lipstick-review
-
-**The C.D.C. Now Says Healthy Kids Don’t Need Covid Shots. Is That True?**\
-`Here’s what the data tells us about Covid’s risks to children — and the benefits of vaccination.`\
-https://nytimes.com/2025/05/27/well/rfk-jr-cdc-children-covid-vaccines-data.html
-
-**How to Create a Food Budget**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/food-grocery-shopping
-
-**Hot-Plate Heroes: How Restaurants Work Wonders With No Kitchen**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/restaurants-with-no-kitchen
 
