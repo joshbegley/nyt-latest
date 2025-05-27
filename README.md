@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6383554/2025/05/27/what-we-learned-from-xabi-alonso
 `From Lisbon to London, how the party went down`\
 https://nytimes.com/athletic/6383284/2025/05/27/arsenal-champions-league-celebrations/
 
+**Liverpool parade horror - Two seriously injured, including one child, after car ploughs into crowd**\
+`Twenty-seven people were taken to hospital after the incident on Monday, with one adult and one child seriously hurt.`\
+https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-collision/
+
 **There were highlights, but sloppy play costs Twins in 7-2 loss to Tampa Bay**\
 `The Twins strayed from their recent 13-game winning streak form for the first time since a disastrous eighth inning in Boston on May 2.`\
 https://nytimes.com/athletic/6384227/2025/05/27/twins-lose-to-tampa-bay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381784/2025/05/27/premier-league-tactical-trends-2
 **Explained: The Club World Cup transfer window and how contracts will work**\
 `FIFA's inaugural expanded Club World Cup brings with it new rules around player transfers and contracts - so what are they?`\
 https://nytimes.com/athletic/6353237/2025/05/27/club-world-cup-transfer-window-contracts-explained/
-
-**Inside Newcastle's 'unicorn' season: A summer hangover, a crucial crossroads and Howe's diary**\
-`In the end Eddie Howe's side won a trophy and qualified for the Champions League - but in December they were teetering towards a precipice`\
-https://nytimes.com/athletic/6383179/2025/05/27/inside-story-newcastle-season/
 
