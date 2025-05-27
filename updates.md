@@ -1,3 +1,11 @@
+**Sankey: SEC has rising interest in 16-team CFP, but issues with auto bids**\
+`Commissioner Greg Sankey opened SEC spring meetings Monday with about a 45-minute news conference, most of it related to CFP issues.`\
+https://nytimes.com/athletic/6384040/2025/05/26/sankey-sec-16-team-cfp-automatic-bids/
+
+**Jacob deGrom fails to record a strikeout for first time in his career**\
+`deGrom, a two-time Cy Young Award winner, entered Monday with 1,728 career strikeouts over 229 starts.`\
+https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-strikeouts/
+
 **'Don't walk away': SEC's Greg Sankey urges teams to play non-conference games**\
 `The message comes amid an era where the CFP selection committee seems to ding teams for losses more than it rewards teams for good wins.`\
 https://nytimes.com/athletic/6384081/2025/05/26/sec-commissioner-greg-sankey-cfp-format/
