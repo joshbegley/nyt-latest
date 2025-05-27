@@ -1,3 +1,7 @@
+**Scoop City: Getting back to the Patriot way**\
+`Inside: The Patriots aim to make a quick return to the postseason, plus a health checkup on Aidan Hutchinson, Brandon Aiyuk, and a spotlight on the 2025 Bills.`\
+https://nytimes.com/athletic/6383607/2025/05/26/nfl-patriots-playoffs-scoop-city/
+
 **Max Muncy, Dodgers looking to work through third baseman's defensive woes**\
 `"I see him working consistently every day. So that's what I'm going to keep betting on," Dodgers manager Dave Roberts said.`\
 https://nytimes.com/athletic/6384155/2025/05/26/dodgers-max-muncy-defensive-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pw
 **'It was time': Chris Taylor talks Dodgers release, fresh start with Angels**\
 `The Angels signed Taylor to a one-year contract on Monday and will pay him the prorated MLB minimum.`\
 https://nytimes.com/athletic/6383827/2025/05/26/chris-taylor-signs-angels-dodgers/
-
-**Memorial Day Storms Cause Delays for Holiday Travelers**\
-`Thunderstorms in the south and central United States caused flight delays during Memorial Day weekend, the beginning of the summer travel season.`\
-https://nytimes.com/2025/05/26/us/memorial-day-storms-travel-delays.html
 

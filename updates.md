@@ -1,3 +1,7 @@
+**Scoop City: Getting back to the Patriot way**\
+`Inside: The Patriots aim to make a quick return to the postseason, plus a health checkup on Aidan Hutchinson, Brandon Aiyuk, and a spotlight on the 2025 Bills.`\
+https://nytimes.com/athletic/6383607/2025/05/26/nfl-patriots-playoffs-scoop-city/
+
 **Max Muncy, Dodgers looking to work through third baseman's defensive woes**\
 `"I see him working consistently every day. So that's what I'm going to keep betting on," Dodgers manager Dave Roberts said.`\
 https://nytimes.com/athletic/6384155/2025/05/26/dodgers-max-muncy-defensive-issues/
