@@ -1,3 +1,7 @@
+**The Windup: Boston’s quandary returns**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6384389/2025/05/27/red-sox-third-base-the-windup/
+
 **What is the Unity Cup and why could it be a big cultural moment in England?**\
 `Nigeria, Ghana, Jamaica and Trinidad and Tobago are taking part in a tournament at Brentford's Gtech Stadium - but what's it all about?`\
 https://nytimes.com/athletic/6383273/2025/05/27/unity-cup-nigeria-ghana-jamaica-trinidad/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6383666/2025/05/27/submit-your-questions-for-murat-
 **Trump Pardons Former Virginia Sheriff Convicted of Bribery**\
 `The ex-sheriff, Scott Jenkins, was convicted of federal bribery charges and sentenced to 10 years in prison. President Trump claimed the case was politically motivated.`\
 https://nytimes.com/2025/05/27/us/politics/trump-scott-jenkins-pardon-virginia-sheriff.html
-
-**Trump Administration Live Updates: Government Aims to Cut All Contracts With Harvard**\
-``\
-https://nytimes.com/live/2025/05/27/us/trump-news
 
