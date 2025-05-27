@@ -1,3 +1,7 @@
+**An Antiwar Movement Is Stirring in Israel**\
+`Israelis and Gazans both feel trapped by leaders they no longer trust.`\
+https://nytimes.com/2025/05/27/opinion/israel-gaza-netanyahu.html
+
 **Fantasy baseball buy, sell, hold advice on Mookie Betts, Gunnar Henderson and more**\
 `Michael Salfino identifies profile changes for some hitters in 2025 and advises whether we should view these bats differently going forward.`\
 https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-betts-gunnar/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/theater/patti-lupone-audra-mcdonald-kecia-lewis.h
 **Bright on England squad withdrawal: 'Mentally and physically I’m at my limits'**\
 `Bright, 31, has been a mainstay under Sarina Wiegman for the Euro 2022 success and captaining the side to the World Cup final in 2023.`\
 https://nytimes.com/athletic/6384601/2025/05/27/millie-bright-england-squad/
-
-**‘Adults’ Is ‘Friends’ for a More Anxious Generation**\
-`A new FX comedy follows a crew of aimless 20-somethings living together in Queens.`\
-https://nytimes.com/2025/05/27/arts/television/adults-friends-review.html
 

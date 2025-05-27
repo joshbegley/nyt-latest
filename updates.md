@@ -1,3 +1,7 @@
+**An Antiwar Movement Is Stirring in Israel**\
+`Israelis and Gazans both feel trapped by leaders they no longer trust.`\
+https://nytimes.com/2025/05/27/opinion/israel-gaza-netanyahu.html
+
 **Fantasy baseball buy, sell, hold advice on Mookie Betts, Gunnar Henderson and more**\
 `Michael Salfino identifies profile changes for some hitters in 2025 and advises whether we should view these bats differently going forward.`\
 https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-betts-gunnar/

@@ -1,3 +1,7 @@
+**Study Finds a Steep Drop in Mothers’ Mental Health**\
+`New research involving nearly 200,000 mothers found that one in 12 rated her mental health as fair or poor.`\
+https://nytimes.com/2025/05/27/well/family/maternal-mental-health-study.html
+
 **An Antiwar Movement Is Stirring in Israel**\
 `Israelis and Gazans both feel trapped by leaders they no longer trust.`\
 https://nytimes.com/2025/05/27/opinion/israel-gaza-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386080/2025/05/27/panthers-hurricanes-nhl-playoffs
 **The Patti LuPone Drama With Audra McDonald and Kecia Lewis, Explained**\
 `The offstage tensions between three Broadway stars became public after a dispute over sound levels, an Instagram post and a much-talked-about magazine article.`\
 https://nytimes.com/2025/05/27/theater/patti-lupone-audra-mcdonald-kecia-lewis.html
-
-**Bright on England squad withdrawal: 'Mentally and physically I’m at my limits'**\
-`Bright, 31, has been a mainstay under Sarina Wiegman for the Euro 2022 success and captaining the side to the World Cup final in 2023.`\
-https://nytimes.com/athletic/6384601/2025/05/27/millie-bright-england-squad/
 
