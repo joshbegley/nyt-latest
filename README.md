@@ -1,3 +1,7 @@
+**Hurricanes avoid sweep vs. Panthers, snap their 15-game conference-finals skid**\
+`Logan Stankoven scored and Frederik Andersen made 20 saves for a shutout as the Hurricanes forced Game 5 on Wednesday in Raleigh.`\
+https://nytimes.com/athletic/6384189/2025/05/26/hurricanes-panthers-nhl-playoffs-2025-game-4-takeaways/
+
 **Crystal Gazer**\
 `Ginny Too spreads the good word.`\
 https://nytimes.com/2025/05/26/crosswords/daily-puzzle-2025-05-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/26/us/memorial-day-storms-travel-delays.html
 **Giants takeaways: A third of the way through the season, run scoring remains the issue**\
 `The Giants' red-hot start with runners in scoring position has predictably fallen off. What does that tell us about their playoff chances?`\
 https://nytimes.com/athletic/6383728/2025/05/26/sf-giants-takeaways-offensive-struggles/
-
-**What We Know About the Car-Ramming at the Liverpool Parade in England**\
-`Almost 50 people, including four children, were injured on Monday after a driver plowed into a crowd that had been celebrating Liverpool F.C.’s Premier League title.`\
-https://nytimes.com/2025/05/26/world/europe/uk-liverpool-parade-car-crash.html
 
