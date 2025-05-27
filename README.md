@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-
 `The congressman from Harlem was a force on Capitol Hill — and a familiar presence on the streets he represented for decades.`\
 https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
 
-**Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
+**Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: 'Really incredible'**\
 `With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
 https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
 
