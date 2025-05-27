@@ -1,3 +1,11 @@
+**Amorim outlines 'advantage' of no European football for Man Utd**\
+`United’s 15th place finish and failure to win the Europa League means they missed out on Champions League qualification.`\
+https://nytimes.com/athletic/6384452/2025/05/27/manchester-united-champions-league-ruben-amorim/
+
+**Police Quickly Gave Details on Liverpool Car Ramming, Aiming to Prevent Rumors**\
+`Just hours after the episode, the police announced that the driver was a white British man. After previous violence, false anti-Muslim speculation had been spread online.`\
+https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-police-suspect.html
+
 **Red Bull Italy SailGP team acquired by Grazioli-Venier's Muse Sport consortium**\
 `Alongside consortium partners Gian Luca Passi de Preposulo and Jimmy Spithill, she will become the first woman to lead a SailGP team`\
 https://nytimes.com/athletic/6382902/2025/05/27/grazioli-veniers-muse-sport-consortium-red-bull-italy-sailgp-team/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/business/japan-economy-trump-tariffs.html
 **How North Korea Botched the Launch of a Warship**\
 `Satellite images and videos show how launching a 5,000-ton warship into the water sideways can cause it to capsize if done incorrectly.`\
 https://nytimes.com/2025/05/27/world/asia/north-korea-warship-destroyer.html
-
-**Tuesday Briefing: U.S. and E.U. Talk Trade**\
-`Plus, redefining Sweden’s culture.`\
-https://nytimes.com/2025/05/27/briefing/united-states-european-union-trade-talks-ukraine-russia-trump-liverpool-crash.html
-
-**The New York Times in Print for Tuesday, May 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/27/todays-new-york-times
 
