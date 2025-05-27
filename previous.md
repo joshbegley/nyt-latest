@@ -1,3 +1,7 @@
+**Fiorentina’s Zaniolo accused of physical altercation with Roma youth players**\
+`Zaniolo said that he was “insulted” by the players and opted to leave.`\
+https://nytimes.com/athletic/6384461/2025/05/27/nicolo-zaniolo-fiorentina-roma/
+
 **With Stefon Diggs, did the Patriots do enough to upgrade at wide receiver?**\
 `There are some new veterans, a Day 2 draft pick and new coaches. But did New England do enough to improve at wide receiver?`\
 https://nytimes.com/athletic/6377826/2025/05/27/stefon-diggs-patriots-upgrade-wide-receiver/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/us/san-francisco-highway-park.html
 **Ramón Rodríguez Shoots and Scores**\
 `After years of typecasting and smaller roles, the actor has broken through as the damaged but gifted title character of “Will Trent,” a popular ABC procedural.`\
 https://nytimes.com/2025/05/27/arts/television/will-trent-ramon-rodriguez.html
-
-**Remember Enron and WorldCom? Let’s Not Do That Again.**\
-`A proposal by Republican lawmakers to eliminate an auditing watchdog would make the next corporate disaster more likely.`\
-https://nytimes.com/2025/05/27/opinion/enron-worldcom-fraud-pcaob.html
 

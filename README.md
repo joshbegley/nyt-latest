@@ -1,3 +1,7 @@
+**Naomi Osaka's return to Roland Garros and the ebbs and flows of a tennis comeback**\
+`Osaka's tears in a news conference brought back memories of the 2021 French Open, and her many climbs back into the sport.`\
+https://nytimes.com/athletic/6383907/2025/05/27/naomi-osaka-tennis-mental-health-press-conferences/
+
 **Fiorentina’s Zaniolo accused of physical altercation with Roma youth players**\
 `Zaniolo said that he was “insulted” by the players and opted to leave.`\
 https://nytimes.com/athletic/6384461/2025/05/27/nicolo-zaniolo-fiorentina-roma/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/us/politics/military-parade-trump.html
 **This California Highway Is Now a Park. The Cars Are Gone, but Not the Anger.**\
 `The transformation of a two-mile stretch of San Francisco’s Great Highway into a pedestrian promenade has set off a clash over the city’s anti-car culture.`\
 https://nytimes.com/2025/05/27/us/san-francisco-highway-park.html
-
-**Ramón Rodríguez Shoots and Scores**\
-`After years of typecasting and smaller roles, the actor has broken through as the damaged but gifted title character of “Will Trent,” a popular ABC procedural.`\
-https://nytimes.com/2025/05/27/arts/television/will-trent-ramon-rodriguez.html
 
