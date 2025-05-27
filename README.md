@@ -1,3 +1,7 @@
+**Gael Monfils' late-night resurrection and Coco Gauff's missing rackets: French Open day 3**\
+`The Philippe-Chatrier roof took center stage during Djokovic's match as the rain and wind howled, before Monfils performed another miracle.`\
+https://nytimes.com/athletic/6385920/2025/05/27/gael-monfils-french-open-comeback-recap-day-3/
+
 **Palestinians Rush to New Aid Distribution Center in Gaza**\
 `As hundreds of Palestinians converged on an Israeli-backed aid distribution center in Rafah, Gaza, short bursts of gunfire caused the crowd to panic. The Israeli military said it fired warning shots near the compound.`\
 https://nytimes.com/video/world/middleeast/100000010192986/gaza-food-aid-chaos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/opinion/israel-gaza-netanyahu.html
 **Fantasy baseball buy, sell, hold advice on Mookie Betts, Gunnar Henderson and more**\
 `Michael Salfino identifies profile changes for some hitters in 2025 and advises whether we should view these bats differently going forward.`\
 https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-betts-gunnar/
-
-**Travis Hunter gaining reps on offense, defense at Jaguars OTAs**\
-`Hunter's two-way prowess helped him earn the Heisman Trophy while he starred on offense and defense at Colorado in 2024`\
-https://nytimes.com/athletic/6385996/2025/05/27/travis-hunter-jacksonville-jaguars-otas-offense-defense/
 
