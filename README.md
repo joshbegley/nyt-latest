@@ -1,3 +1,11 @@
+**NPR Sues Trump Over Order to Cut Funding**\
+`The lawsuit, filed in federal court in Washington by NPR and other public radio organizations, said President Trump’s executive order violated the Constitution and the First Amendment.`\
+https://nytimes.com/2025/05/27/business/media/npr-trump-lawsuit-executive-order-funding.html
+
+**Mitchell leaves role as Newcastle sporting director**\
+`Mitchell was appointed Newcastle's new sporting director in July of last year.`\
+https://nytimes.com/athletic/5756366/2025/05/27/newcastle-paul-mitchell-leaves/
+
 **Submit your questions for Murat Ates' Winnipeg Jets offseason mailbag**\
 `<p>With the Jets&#8217; offseason underway and <a href="https://www.nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/">lots of uncertainty ahead</a>, it&#8217;s time to answer your pressing question. Drop them here and they will be answered in an upcoming mailbag,</p>
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6378330/2025/05/27/jake-moody-49ers-kicker-competit
 **Big questions for the Devils' offseason: Bottom-six shakeup? RFA deals?**\
 `What do the restricted free agents get? What can New Jersey expect from its prospects? What about the third Hughes brother?`\
 https://nytimes.com/athletic/6377811/2025/05/27/new-jersey-devils-nhl-offseason/
-
-**Presenting the Dodgers' All-Quarter Century Team, the best in Los Angeles since 2000**\
-`Clayton Kershaw and Matt Kemp are among the star-studded names who have powered the Dodgers over the past 25 years.`\
-https://nytimes.com/athletic/6383925/2025/05/27/dodgers-clayton-kershaw-quarter-century/
-
-**The Maple Leafs should be looking for a new president. Here's what they need**\
-`CEO and president Keith Pelley walked into a high-pressure quandary last season when taking the job. The pressure hasn't lessened since.`\
-https://nytimes.com/athletic/6383699/2025/05/27/maple-leafs-president-pelley-treliving/
 
