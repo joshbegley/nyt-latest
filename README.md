@@ -1,3 +1,7 @@
+**Watch: Was Game 4 the best the Thunder's 'big 3' have been all season?**\
+`"The Athletic NBA Daily discussed the Oklahoma City Thunder's Game 4 win over the Minnesota Timberwolves to take a 3-1 series lead.`\
+https://nytimes.com/athletic/6385409/2025/05/27/thunder-nba-daily-big-three-playoffs/
+
 **Trump Threatens California Over Transgender Athletes’ Participation in Sports**\
 `The president said he would withhold federal funding, saying it was “totally unfair” for transgender athletes to compete in girls’ and women’s sports.`\
 https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/business/economy/trump-tariffs-trade-crime.html
 **Looking Back at Lollapalooza 1995**\
 `Revisit a peak music festival with songs by Hole, Beck, Elastica and more.`\
 https://nytimes.com/2025/05/27/arts/music/amplifier-newsletter-lollapalooza-1995.html
-
-**Test Your Spelling Skills**\
-`Do you think you have what it takes to compete with these Scripps Spelling Bee whizzes?`\
-https://nytimes.com/interactive/2025/05/27/us/scripps-spelling-bee-quiz.html
 
