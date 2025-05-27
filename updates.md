@@ -1,3 +1,11 @@
+**Stream These Movies and TV Shows Before They Leave Netflix in June**\
+`A handful of great titles are leaving as early as the first weekend of the month. Catch them while you can.`\
+https://nytimes.com/2025/05/27/arts/television/netflix-leaving-june.html
+
+**The Amazon Loses One of Its Most Celebrated Chroniclers**\
+`Sebastião Salgado, a renowned photojournalist who died last week, spent decades capturing an Amazon that is fast disappearing.`\
+https://nytimes.com/2025/05/27/climate/amazon-sebastiao-salgado-deforestsation.html
+
 **Leave a Maple Leafs question for James Mirtle’s next mailbag**\
 `Well, there&#8217;s certainly no shortage of things going on in Toronto these days with the Maple Leafs.`\
 https://nytimes.com/athletic/6385982/2025/05/27/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag-2/
