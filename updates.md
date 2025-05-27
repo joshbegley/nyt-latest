@@ -1,3 +1,7 @@
+**Quote of the Day: Luck Floats On Like a Butterfly**\
+`Quotation of the Day for Tuesday, May 27, 2025`\
+https://nytimes.com/2025/05/26/pageoneplus/quote-of-the-day-luck-floats-on-like-a-butterfly.html
+
 **Minnesota Frost repeat as Walter Cup champions with OT win vs. Ottawa Charge**\
 `With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
 https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
