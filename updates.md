@@ -1,3 +1,7 @@
+**Leave a Maple Leafs question for James Mirtle’s next mailbag**\
+`Well, there&#8217;s certainly no shortage of things going on in Toronto these days with the Maple Leafs.`\
+https://nytimes.com/athletic/6385982/2025/05/27/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag-2/
+
 **Villa agree deal to sign Feyenoord's Redmond as free agent**\
 `The striker was in Birmingham last week with his representatives to conclude a deal ahead of joining Villa at the start of July.`\
 https://nytimes.com/athletic/6385977/2025/05/27/aston-villa-transfer-news-redmond/
