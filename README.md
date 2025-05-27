@@ -1,3 +1,11 @@
+**In Nashville, Volunteers Are Figuring Out How to Counter ICE**\
+`In early May, Immigration and Customs Enforcement agents were spotted alongside Tennessee State Highway Patrol troopers in areas of Nashville.`\
+https://nytimes.com/2025/05/27/world/americas/ice-nashville-volunteers.html
+
+**ICE Agents and State Troopers Team Up in Nashville Operation**\
+`In early May, Immigration and Customs Enforcement agents were spotted alongside Tennessee State Highway Patrol troopers in areas of Nashville, partnering up for a weeklong operation that turned routine traffic stops into immigration arrests.`\
+https://nytimes.com/video/world/americas/100000010163668/ice-state-troopers-nashville.html
+
 **Amorim outlines 'advantage' of no European football for Man Utd**\
 `United’s 15th place finish and failure to win the Europa League means they missed out on Champions League qualification.`\
 https://nytimes.com/athletic/6384452/2025/05/27/manchester-united-champions-league-ruben-amorim/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/insider/mental-health-trends-column.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/27/crosswords/spelling-bee-forum.html
-
-**Japan Will Spend $6.3 Billion to Shield Its Economy From Trump’s Tariffs**\
-`Lawmakers approved a plan to help companies and consumers as officials bargain in Washington for relief from debilitating auto levies.`\
-https://nytimes.com/2025/05/27/business/japan-economy-trump-tariffs.html
-
-**How North Korea Botched the Launch of a Warship**\
-`Satellite images and videos show how launching a 5,000-ton warship into the water sideways can cause it to capsize if done incorrectly.`\
-https://nytimes.com/2025/05/27/world/asia/north-korea-warship-destroyer.html
 
