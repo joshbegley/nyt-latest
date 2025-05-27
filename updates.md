@@ -1,3 +1,11 @@
+**Fantasy baseball buy, sell, hold advice on Mookie Betts, Gunnar Henderson and more**\
+`Michael Salfino identifies profile changes for some hitters in 2025 and advises whether we should view these bats differently going forward.`\
+https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-betts-gunnar/
+
+**Travis Hunter gaining reps on offense, defense at Jaguars OTAs**\
+`Hunter's two-way prowess helped him earn the Heisman Trophy while he starred on offense and defense at Colorado in 2024`\
+https://nytimes.com/athletic/6385996/2025/05/27/travis-hunter-jacksonville-jaguars-otas-offense-defense/
+
 **Judge Strikes Down Trump Order Targeting WilmerHale**\
 `The judge concluded that the firm was targeted over its association with Robert S. Mueller III, and that the order “must be struck down in its entirety.”`\
 https://nytimes.com/2025/05/27/us/politics/trump-law-firms-wilmerhale.html
