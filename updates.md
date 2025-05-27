@@ -1,3 +1,7 @@
+**Bitten by Alligator, Man Is Killed After Charging at Deputies, Sheriff Says**\
+`The authorities say that Timothy Schulz, 42, of Mulberry, Fla., swam across an alligator-filled lake before a violent encounter with deputies in the neighborhood.`\
+https://nytimes.com/2025/05/27/us/florida-man-alligator-bite-killed.html
+
 **Slot thanks emergency services after 'shocking incident' at Liverpool title parade**\
 `Slot did not attend Tuesday's LMA awards dinner in solidarity with those impacted by Monday's incident at the club's title parade.`\
 https://nytimes.com/athletic/6386429/2025/05/27/slot-liverpool-title-parade-car-collision/

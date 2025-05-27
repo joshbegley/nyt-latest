@@ -1,3 +1,7 @@
+**Marshals’ Data Shows Spike in Threats Against Federal Judges**\
+`Data gathered by the law enforcement agency responsible for judicial security showed 162 judges faced threats between March 1 and April 14.`\
+https://nytimes.com/2025/05/27/us/politics/federal-judges-threats.html
+
 **Bitten by Alligator, Man Is Killed After Charging at Deputies, Sheriff Says**\
 `The authorities say that Timothy Schulz, 42, of Mulberry, Fla., swam across an alligator-filled lake before a violent encounter with deputies in the neighborhood.`\
 https://nytimes.com/2025/05/27/us/florida-man-alligator-bite-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/us/sarah-milgrim-funeral-embassy-attack.html
 **Trump Asks Supreme Court to Let Him Send Migrants to South Sudan**\
 `Government lawyers said a federal judge in Boston had overstepped his authority by requiring hearings before deportations to countries other than the migrants’ own.`\
 https://nytimes.com/2025/05/27/us/politics/trump-deportations-south-sudan.html
-
-**The U.S. Ended Some Covid Vaccine Recommendations**\
-`Also, chaos overran an aid site in Gaza. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/05/27/briefing/covid-vaccines-federal-contracts-harvard.html
 
