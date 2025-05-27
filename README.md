@@ -1,3 +1,7 @@
+**Leave a Maple Leafs question for James Mirtle’s next mailbag**\
+`Well, there&#8217;s certainly no shortage of things going on in Toronto these days with the Maple Leafs.`\
+https://nytimes.com/athletic/6385982/2025/05/27/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag-2/
+
 **Villa agree deal to sign Feyenoord's Redmond as free agent**\
 `The striker was in Birmingham last week with his representatives to conclude a deal ahead of joining Villa at the start of July.`\
 https://nytimes.com/athletic/6385977/2025/05/27/aston-villa-transfer-news-redmond/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385409/2025/05/27/thunder-nba-daily-big-three-play
 **Trump Threatens California Over Transgender Athletes’ Participation in Sports**\
 `The president said he would withhold federal funding, saying it was “totally unfair” for transgender athletes to compete in girls’ and women’s sports.`\
 https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california.html
-
-**Yamal signs new Barcelona contract until 2031**\
-`The teenager has developed into one of the best young footballers in the world and played all seven matches when Spain won Euro 2024.`\
-https://nytimes.com/athletic/6176984/2025/05/27/lamine-yamal-barcelona-contract-signed/
 

@@ -1,3 +1,7 @@
+**Villa agree deal to sign Feyenoord's Redmond as free agent**\
+`The striker was in Birmingham last week with his representatives to conclude a deal ahead of joining Villa at the start of July.`\
+https://nytimes.com/athletic/6385977/2025/05/27/aston-villa-transfer-news-redmond/
+
 **Cunha given permission by Wolves to undergo Man Utd medical**\
 `United have also held face-to-face talks over a summer move for Ipswich striker Liam Delap.`\
 https://nytimes.com/athletic/6298609/2025/05/27/cunha-manchester-united-transfer/
