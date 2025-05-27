@@ -1,3 +1,11 @@
+**Wednesday Briefing: Chaos at a Gaza Aid Site**\
+`Plus, climbing Mount Everest with a performance enhancer.`\
+https://nytimes.com/2025/05/27/briefing/gaza-aid-chaos-ukraine-germany-king-charles-canada.html
+
+**The One Way Trump Hasn’t Changed the G.O.P.**\
+`Why Republicans still write budgets like it’s 2012.`\
+https://nytimes.com/2025/05/27/opinion/trump-republican-budget.html
+
 **How does Paul Maurice get Panthers back on track after loss? 'I call them names' — and more East final notes**\
 `Also ahead of Game 5: What's behind the Panthers' power outage, injury updates and a zinger from Seth Jarvis.`\
 https://nytimes.com/athletic/6386080/2025/05/27/panthers-hurricanes-nhl-playoffs-paul-maurice-insults/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/us/politics/tommy-tuberville-alabama-governor.htm
 **SpaceX to Try Starship Test Launch After 2 Explosive Failures**\
 `Much is riding on Flight 9 for Elon Musk’s giant moon and Mars rocket after debris from January and March flights fell into the Atlantic Ocean, disrupting air travel.`\
 https://nytimes.com/2025/05/27/science/spacex-starship-launch-elon-musk-mars.html
-
-**Chaos Mars Opening of Israeli-Backed Aid Distribution Site in Gaza**\
-`Starvation looming, desperate Palestinians surged toward an aid center that Israel says was designed to circumvent Hamas.`\
-https://nytimes.com/2025/05/27/world/middleeast/gaza-aid-site-israel.html
-
-**Rape Charge Is Dropped Against Former Tech C.E.O. Dan Price**\
-`The owner of Gravity Payments became a prominent progressive figure on social media after raising the minimum pay at his company to $70,000.`\
-https://nytimes.com/2025/05/27/technology/dan-price-gravity-payments-rape-charge-dropped.html
 

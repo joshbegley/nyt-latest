@@ -1,3 +1,11 @@
+**Wednesday Briefing: Chaos at a Gaza Aid Site**\
+`Plus, climbing Mount Everest with a performance enhancer.`\
+https://nytimes.com/2025/05/27/briefing/gaza-aid-chaos-ukraine-germany-king-charles-canada.html
+
+**The One Way Trump Hasn’t Changed the G.O.P.**\
+`Why Republicans still write budgets like it’s 2012.`\
+https://nytimes.com/2025/05/27/opinion/trump-republican-budget.html
+
 **How does Paul Maurice get Panthers back on track after loss? 'I call them names' — and more East final notes**\
 `Also ahead of Game 5: What's behind the Panthers' power outage, injury updates and a zinger from Seth Jarvis.`\
 https://nytimes.com/athletic/6386080/2025/05/27/panthers-hurricanes-nhl-playoffs-paul-maurice-insults/
