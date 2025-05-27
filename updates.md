@@ -1,3 +1,7 @@
+**9 free-agent defenders who could complete the Canucks' blue-line**\
+`The Canucks will clearly pool resources reimagining their forward group this offseason, but that doesn't mean the back-end is finished.`\
+https://nytimes.com/athletic/6383884/2025/05/27/vancouver-canucks-free-agent-targets/
+
 **The Pulse: The impossible streak gets spiked**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6384109/2025/05/27/hurricanes-panthers-streak-nhl-the-pulse/
