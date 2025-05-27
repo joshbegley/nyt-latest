@@ -1,3 +1,11 @@
+**How to Hide a 350-Foot Megayacht**\
+`Russian oligarchs use the offshore system to shield their luxury assets. The Trump Administration is ending an effort to find and seize them.`\
+https://nytimes.com/2025/05/27/magazine/trump-offshore-money-russia-oligarchs.html
+
+**Mitchell leaves role as Newcastle sporting director**\
+`Mitchell spent less than 12 months in the role after being appointed in July of last year.`\
+https://nytimes.com/athletic/5756366/2025/05/27/newcastle-paul-mitchell-leaves/
+
 **NPR Sues Trump Over Order to Cut Funding**\
 `The lawsuit, filed in federal court in Washington by NPR and other public radio organizations, said President Trump’s executive order violated the Constitution and the First Amendment.`\
 https://nytimes.com/2025/05/27/business/media/npr-trump-lawsuit-executive-order-funding.html
