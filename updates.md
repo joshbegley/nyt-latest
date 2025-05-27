@@ -1,3 +1,11 @@
+**NPR Sues Trump Over Order to Cut Funding**\
+`The lawsuit, filed in federal court in Washington by NPR and other public radio organizations, said President Trump’s executive order violated the Constitution and the First Amendment.`\
+https://nytimes.com/2025/05/27/business/media/npr-trump-lawsuit-executive-order-funding.html
+
+**Mitchell leaves role as Newcastle sporting director**\
+`Mitchell was appointed Newcastle's new sporting director in July of last year.`\
+https://nytimes.com/athletic/5756366/2025/05/27/newcastle-paul-mitchell-leaves/
+
 **Submit your questions for Murat Ates' Winnipeg Jets offseason mailbag**\
 `<p>With the Jets&#8217; offseason underway and <a href="https://www.nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/">lots of uncertainty ahead</a>, it&#8217;s time to answer your pressing question. Drop them here and they will be answered in an upcoming mailbag,</p>
 `\
