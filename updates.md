@@ -1,3 +1,11 @@
+**The Pulse: The impossible streak gets spiked**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6384109/2025/05/27/hurricanes-panthers-streak-nhl-the-pulse/
+
+**'There was a chance I wouldn't come back' - James Milner on his injury nightmare**\
+`The 39-year-old midfielder returned from nine months out on Sunday, and says his aim is to continue playing for Brighton next season`\
+https://nytimes.com/athletic/6382069/2025/05/27/milner-injury-brighton/
+
 **Caught Between Russia and the U.S., Germany Aims to Be a Stronger Force in NATO**\
 `As Germany’s new chancellor increases military spending, he has presided over the activation of a German tank brigade based in Lithuania and raised alarms about the threat from Russia.`\
 https://nytimes.com/2025/05/27/world/europe/germany-military-russia-trump.html

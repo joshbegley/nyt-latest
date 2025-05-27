@@ -1,3 +1,7 @@
+**9 free-agent defenders who could complete the Canucks' blue-line**\
+`The Canucks will clearly pool resources reimagining their forward group this offseason, but that doesn't mean the back-end is finished.`\
+https://nytimes.com/athletic/6383884/2025/05/27/vancouver-canucks-free-agent-targets/
+
 **The Pulse: The impossible streak gets spiked**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6384109/2025/05/27/hurricanes-panthers-streak-nhl-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384257/2025/05/27/pwhl-walter-cup-championship-exp
 **A New Front Line for Abortion Rights**\
 `A grand jury in Louisiana indicted a New York doctor for sending abortion pills to a Louisiana resident.`\
 https://nytimes.com/2025/05/27/podcasts/the-daily/abortion-pill-shield-law.html
-
-**This is what a focused Karl-Anthony Towns looks like**\
-`One quarter became a declaration: This is why the Knicks traded for him. Now, which Towns shows up for the rest of the conference finals?`\
-https://nytimes.com/athletic/6383916/2025/05/27/karl-anthony-towns-knicks-pacers-focus-nba-playoffs/
 
