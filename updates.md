@@ -1,3 +1,16 @@
+**Test Your Spelling Skills**\
+`Do you think you have what it takes to compete with these Scripps Spelling Bee whizzes?`\
+https://nytimes.com/interactive/2025/05/27/us/scripps-spelling-bee-quiz.html
+
+**University of Florida Approves New President, Recruited From Michigan**\
+`Santa Ono, the president of the University of Michigan, was unanimously approved by Florida’s board despite criticism from conservatives of his past views on diversity programs.`\
+https://nytimes.com/2025/05/27/us/university-of-florida-president-santa-ono.html
+
+**Unexpected betting combos that could hit in the Inter vs PSG Champions League final**\
+`Brett Koremenos has a look at some intriguing betting combinations ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-combinations-inter-psg/
+
 **Unexpected betting combos that could hit in the Inter vs PSG Champions League final**\
 `Brett Koremenos has a look at some intriguing betting combinations ahead of this weekend’s Champions League final.
 `\
