@@ -1,3 +1,7 @@
+**Liverpool parade horror - Two seriously injured, including one child, after car ploughs into crowd**\
+`Twenty-seven people were taken to hospital after the incident on Monday, with one adult and one child seriously hurt.`\
+https://nytimes.com/athletic/6383580/2025/05/27/liverpool-title-parade-road-collision/
+
 **Style, set-pieces and yellow cards: Assessing Fabian Hurzeler's first season in charge of Brighton**\
 `The Athletic looks back to some of the key messages in Hurzeler's opening press conference to see if he delivered on his promises`\
 https://nytimes.com/athletic/6349811/2025/05/27/fabian-hurzeler-first-season-brighton/
