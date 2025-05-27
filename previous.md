@@ -1,3 +1,19 @@
+**A New ‘Carbon-Positive’ Hotel in Denver Takes Sustainability a Step Further**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/denver-sustainable-hotels-populus
+
+**Monsters Plague Japan. But What Do They Mean?**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/monsters-godzilla-japan
+
+**gws-tina-knowles-beyonce-solange-matriarch-book**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tina-knowles-beyonce-solange-matriarch-book
+
+**Her Books and Movies Provoked France. Will Her Plays Do the Same?**\
+`Virginie Despentes is pivoting to theater. Playgoers “really show up, even for demanding or radical works,” she says.`\
+https://nytimes.com/2025/05/27/theater/virginie-despentes-theater.html
+
 **U.S. Will No Longer Recommend Covid Shots for Children and Pregnant Women**\
 `Health Secretary Robert F. Kennedy Jr. announced that the vaccine would not be included as part of the immunization schedule for healthy children.`\
 https://nytimes.com/2025/05/27/health/covid-vaccines-children-pregnant-women-rfk-jr.html
@@ -7,7 +23,7 @@ https://nytimes.com/2025/05/27/health/covid-vaccines-children-pregnant-women-rfk
 https://nytimes.com/2025/05/27/world/canada/king-charles-canada-parliament-speech.html
 
 **Watch: How impressive is Conte's latest Serie A title success?**\
-`The Totally Football Show debate just how impressive Antonio Conte's latest Serie A title is.`\
+`James Richardson was joined by James Horncastle and Julien Laurens to reflect on just how impressive Antonio Conte’s latest Scudetto is`\
 https://nytimes.com/athletic/6384969/2025/05/27/totally-football-show-antonio-conte-serie-a-napoli/
 
 **Old Trafford given two-star food hygiene rating after mouse droppings found**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6384889/2025/05/27/hockey-canada-sexual-assault-tri
 **Southwest Airlines Sets Baggage Fees**\
 `Until now, it was the only major U.S. airline that allowed passengers to check two bags at no extra cost. On May 28, most passengers will start paying $35 for their first bag.`\
 https://nytimes.com/2025/05/27/travel/southwest-airlines-baggage-fees.html
-
-**Mary Earps and the end of an England career that was a testament to willpower**\
-`Much of women's football's skyward trajectory is down to incorrigible female forces like Mary Earps`\
-https://nytimes.com/athletic/6385134/2025/05/27/mary-earps-england-retirement-profile/
-
-**Why Isn’t My Favorite Composer More Popular?**\
-`I love the operas of Leos Janacek. So do audiences — when they go to see them. But the works remain stubbornly on the outskirts of the repertory.`\
-https://nytimes.com/2025/05/27/arts/music/janacek-opera-jenufa-cleveland.html
-
-**Carapaz on brink of pink jersey after nightmare day for UAE**\
-`With no time-trialling remaining, and 22,000m of climbing scheduled for the final week, Carapaz is now arguably the race favourite.`\
-https://nytimes.com/athletic/6385334/2025/05/27/giro-ditalia-richard-carapaz-stage-16/
-
-**Caitlin Clark injury shifts WNBA MVP odds; Napheesa Collier new favorite**\
-`Clark will be sidelined for at least two weeks and four games with a left quadriceps strain.`\
-https://nytimes.com/athletic/6385092/2025/05/27/caitlin-clark-napheesa-collier-wnba-mvp-odds/
 

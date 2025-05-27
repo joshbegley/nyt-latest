@@ -1,3 +1,23 @@
+**A New ‘Carbon-Positive’ Hotel in Denver Takes Sustainability a Step Further**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/denver-sustainable-hotels-populus
+
+**Monsters Plague Japan. But What Do They Mean?**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/monsters-godzilla-japan
+
+**gws-tina-knowles-beyonce-solange-matriarch-book**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tina-knowles-beyonce-solange-matriarch-book
+
+**Her Books and Movies Provoked France. Will Her Plays Do the Same?**\
+`Virginie Despentes is pivoting to theater. Playgoers “really show up, even for demanding or radical works,” she says.`\
+https://nytimes.com/2025/05/27/theater/virginie-despentes-theater.html
+
+**Watch: How impressive is Conte's latest Serie A title success?**\
+`James Richardson was joined by James Horncastle and Julien Laurens to reflect on just how impressive Antonio Conte’s latest Scudetto is`\
+https://nytimes.com/athletic/6384969/2025/05/27/totally-football-show-antonio-conte-serie-a-napoli/
+
 **U.S. Will No Longer Recommend Covid Shots for Children and Pregnant Women**\
 `Health Secretary Robert F. Kennedy Jr. announced that the vaccine would not be included as part of the immunization schedule for healthy children.`\
 https://nytimes.com/2025/05/27/health/covid-vaccines-children-pregnant-women-rfk-jr.html
