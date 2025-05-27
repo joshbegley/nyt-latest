@@ -1,3 +1,11 @@
+**Congo’s Former President Returns Home, Accused of Treason**\
+`Joseph Kabila was accused of supporting the Rwanda-backed militia M23. Days later he arrived in Goma, a city held by the militia, so he remains out of prosecutors’ reach.`\
+https://nytimes.com/2025/05/27/world/africa/congo-kabila-returns-treason.html
+
+**After Curator’s Death, Venice Biennale Will Realize Her Vision**\
+`Koyo Kouoh had spent nearly seven months preparing the art event’s main exhibition before she died this month. Her team will complete the work and open the show in May 2026.`\
+https://nytimes.com/2025/05/27/arts/design/venice-biennale-koyo-kouoh-minor-keys.html
+
 **Do You Know Where in the World These Books Are Set?**\
 `Canada has a rich literary culture and many of its recent novelists have achieved international acclaim. See if you can match these five books to locations set within the country.`\
 https://nytimes.com/interactive/2025/05/27/books/review/canada-novel-locations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380248/2025/05/27/kc-current-purchase-danish-club-
 **Nottingham Forest review of 2024-25: A remarkable season that could have been even better**\
 `While Forest ultimately missed out on a place in the Champions League, their seventh-place finish still ranks as a significant achievement`\
 https://nytimes.com/athletic/6384584/2025/05/27/nottingham-forest-season-review-2024-25/
-
-**Second Suspect Is Arrested in Bitcoin Kidnapping and Torture Case**\
-`The man, William Duplessie, surrendered to the police Tuesday morning. Authorities have said the victim was an Italian man who was tormented in a luxury Manhattan townhouse for weeks.`\
-https://nytimes.com/2025/05/27/nyregion/crypto-investor-torture-arrest.html
-
-**Zelensky Is Expected in Berlin as Merz Steps Forward as Key Backer of Ukraine**\
-`A likely focus of talks between the two leaders will be military aid and whether Germany will provide Ukraine with the Taurus cruise missile.`\
-https://nytimes.com/2025/05/27/world/europe/zelensky-germany-trip.html
 
