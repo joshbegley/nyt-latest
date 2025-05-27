@@ -1,3 +1,11 @@
+**Texas Rangers' All-Quarter Century Team, a 26-man roster of the club's best since 2000**\
+`From no-brainers like Adrían Beltré to surprise picks, the Rangers' All-Quarter Century Team is filled with Texas luminaries.`\
+https://nytimes.com/athletic/6370696/2025/05/27/texas-rangers-all-quarter-century-team-2020-2025/
+
+**Led by SGA, the Thunder are growing into a great playoff team**\
+`After a Game 3 beatdown, Gilgeous-Alexander and Oklahoma City withstood the Timberwolves punches to grab a 3-1 series lead.`\
+https://nytimes.com/athletic/6384327/2025/05/27/shai-gilgeous-alexander-thunder-game-4-west-finals/
+
 **Once their biggest question, the Astros' bullpen is now their bedrock**\
 `Houston's relievers have posted the best ERA and lowest opponents' batting average of any relief corps in the American League.`\
 https://nytimes.com/athletic/6383811/2025/05/27/astros-bullpen-bedrock/
