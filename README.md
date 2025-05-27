@@ -1,3 +1,11 @@
+**Fantasy baseball buy, sell, hold advice on Mookie Betts, Gunnar Henderson and more**\
+`Michael Salfino identifies profile changes for some hitters in 2025 and advises whether we should view these bats differently going forward.`\
+https://nytimes.com/athletic/6385960/2025/05/27/fantasy-baseball-buy-sell-hold-betts-gunnar/
+
+**Travis Hunter gaining reps on offense, defense at Jaguars OTAs**\
+`Hunter's two-way prowess helped him earn the Heisman Trophy while he starred on offense and defense at Colorado in 2024`\
+https://nytimes.com/athletic/6385996/2025/05/27/travis-hunter-jacksonville-jaguars-otas-offense-defense/
+
 **Judge Strikes Down Trump Order Targeting WilmerHale**\
 `The judge concluded that the firm was targeted over its association with Robert S. Mueller III, and that the order “must be struck down in its entirety.”`\
 https://nytimes.com/2025/05/27/us/politics/trump-law-firms-wilmerhale.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6384601/2025/05/27/millie-bright-england-squad/
 **‘Adults’ Is ‘Friends’ for a More Anxious Generation**\
 `A new FX comedy follows a crew of aimless 20-somethings living together in Queens.`\
 https://nytimes.com/2025/05/27/arts/television/adults-friends-review.html
-
-**D.C. Mayor Unveils Budget Plan Aimed at Easing Pain of Congressional Cuts**\
-`Local officials announced trims, spending freezes and other fixes to blunt the effects of a billion-dollar budget cut that Congress forced on the city.`\
-https://nytimes.com/2025/05/27/us/washington-dc-budget.html
-
-**Texas Requires Apple and Google to Verify Ages for App Downloads**\
-`The state’s governor signed a new law that will give parents more control over the apps that minors download, part of a raft of new legislation.`\
-https://nytimes.com/2025/05/27/technology/apple-google-age-verification-apps-texas.html
 

@@ -1,3 +1,11 @@
+**Judge Strikes Down Trump Order Targeting WilmerHale**\
+`The judge concluded that the firm was targeted over its association with Robert S. Mueller III, and that the order “must be struck down in its entirety.”`\
+https://nytimes.com/2025/05/27/us/politics/trump-law-firms-wilmerhale.html
+
+**Trump Accuses Putin of ‘Playing With Fire’ as He Mulls Sanctions**\
+`It remained to be seen whether President Trump’s latest comments indicated a new aggressive phase against Russia.`\
+https://nytimes.com/2025/05/27/us/politics/trump-putin-ukraine-russia-sanctions.html
+
 **Wednesday Briefing: Chaos at a Gaza Aid Site**\
 `Plus, climbing Mount Everest with a performance enhancer.`\
 https://nytimes.com/2025/05/27/briefing/gaza-aid-chaos-ukraine-germany-king-charles-canada.html
