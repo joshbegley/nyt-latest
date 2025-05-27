@@ -1,3 +1,15 @@
+**Jewish Community in Kansas City Mourns a ‘Radiant Link’ for Peace**\
+`At the funeral for Sarah Milgrim, who was killed outside a Jewish museum in Washington last week, the Israeli embassy aide was mourned as someone who wanted to help everyone.`\
+https://nytimes.com/2025/05/27/us/sarah-milgrim-funeral-embassy-attack.html
+
+**Trump Asks Supreme Court to Let Him Send Migrants to South Sudan**\
+`Government lawyers said a federal judge in Boston had overstepped his authority by requiring hearings before deportations to countries other than the migrants’ own.`\
+https://nytimes.com/2025/05/27/us/politics/trump-deportations-south-sudan.html
+
+**The U.S. Ended Some Covid Vaccine Recommendations**\
+`Also, chaos overran an aid site in Gaza. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/05/27/briefing/covid-vaccines-federal-contracts-harvard.html
+
 **Study Finds a Steep Drop in Mothers’ Mental Health**\
 `New research involving nearly 200,000 mothers found that one in 12 rated her mental health as fair or poor.`\
 https://nytimes.com/2025/05/27/well/family/maternal-mental-health-study.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/27/us/politics/trump-putin-ukraine-russia-sanctions.
 **Wednesday Briefing: Chaos at a Gaza Aid Site**\
 `Plus, climbing Mount Everest with a performance enhancer.`\
 https://nytimes.com/2025/05/27/briefing/gaza-aid-chaos-ukraine-germany-king-charles-canada.html
-
-**The One Way Trump Hasn’t Changed the G.O.P.**\
-`Why Republicans still write budgets like it’s 2012.`\
-https://nytimes.com/2025/05/27/opinion/trump-republican-budget.html
-
-**How does Paul Maurice get Panthers back on track after loss? 'I call them names' — and more East final notes**\
-`Also ahead of Game 5: What's behind the Panthers' power outage, injury updates and a zinger from Seth Jarvis.`\
-https://nytimes.com/athletic/6386080/2025/05/27/panthers-hurricanes-nhl-playoffs-paul-maurice-insults/
-
-**The Patti LuPone Drama With Audra McDonald and Kecia Lewis, Explained**\
-`The offstage tensions between three Broadway stars became public after a dispute over sound levels, an Instagram post and a much-talked-about magazine article.`\
-https://nytimes.com/2025/05/27/theater/patti-lupone-audra-mcdonald-kecia-lewis.html
 
