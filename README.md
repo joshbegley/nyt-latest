@@ -1,3 +1,7 @@
+**The Pulse: The impossible streak gets spiked**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6384109/2025/05/27/hurricanes-panthers-streak-nhl-the-pulse/
+
 **'There was a chance I wouldn't come back' - James Milner on his injury nightmare**\
 `The 39-year-old midfielder returned from nine months out on Sunday, and says his aim is to continue playing for Brighton next season`\
 https://nytimes.com/athletic/6382069/2025/05/27/milner-injury-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/podcasts/the-daily/abortion-pill-shield-law.html
 **This is what a focused Karl-Anthony Towns looks like**\
 `One quarter became a declaration: This is why the Knicks traded for him. Now, which Towns shows up for the rest of the conference finals?`\
 https://nytimes.com/athletic/6383916/2025/05/27/karl-anthony-towns-knicks-pacers-focus-nba-playoffs/
-
-**LeBrun: Oilers GM Stan Bowman on 'tense moments,' his goalies and adding final roster pieces**\
-`The Oilers look strong now, but it's been a season of difficult choices and challenges for Bowman and his team.`\
-https://nytimes.com/athletic/6383875/2025/05/27/oilers-bowman-roster-stanley-cup/
 
