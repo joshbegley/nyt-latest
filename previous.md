@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
 
 **Easy Chicken-Taco Tuesday**\
 `Easy to make, easy to eat and easy to love.`\
-https://nytimes.com/2025/05/27/dining/easy-chicken-taco-recipe-and-more-weeknight-dinners.html
+https://nytimes.com/2025/05/27/dining/chicken-taco-recipe-weeknight-dinners.html
 
 **Trump Pardoned Tax Cheat After Mother Attended $1 Million Dinner**\
 `Paul Walczak’s pardon application cited his mother’s support for the president, including raising millions of dollars and a connection to a plot to publicize a Biden family diary.`\

@@ -1,3 +1,7 @@
+**Easy Chicken-Taco Tuesday**\
+`Easy to make, easy to eat and easy to love.`\
+https://nytimes.com/2025/05/27/dining/chicken-taco-recipe-weeknight-dinners.html
+
 **WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
 `How does a 6-2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
 https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
