@@ -1,3 +1,7 @@
+**Read the Trump Administration Letter About Harvard Contracts**\
+`Here is a draft of the letter expected to be sent today to federal agencies asking them to cancel any remaining contracts with the university.`\
+https://nytimes.com/interactive/2025/05/27/us/harvard-contractsletterfinaldocx.html
+
 **Texas Rangers' All-Quarter Century Team, a 26-man roster of the club's best since 2000**\
 `From no-brainers like Adrían Beltré to surprise picks, the Rangers' All-Quarter Century Team is filled with Texas luminaries.`\
 https://nytimes.com/athletic/6370696/2025/05/27/texas-rangers-all-quarter-century-team-2020-2025/

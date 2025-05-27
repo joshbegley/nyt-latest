@@ -1,3 +1,7 @@
+**Severe Storms Knock Out Power to Swaths of Texas**\
+`Heavy rain inundated Texas, leaving about 150,000 customers without power. More severe weather, and possible flooding, is expected on Tuesday.`\
+https://nytimes.com/2025/05/27/us/texas-storms-centerpoint-entergy-power-outages.html
+
 **Read the Trump Administration Letter About Harvard Contracts**\
 `Here is a draft of the letter expected to be sent today to federal agencies asking them to cancel any remaining contracts with the university.`\
 https://nytimes.com/interactive/2025/05/27/us/harvard-contractsletterfinaldocx.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6376893/2025/05/27/pope-leo-xiv-white-sox-sports-fa
 **Zion trade rumors, Willie Green's status and draft targets: Pelicans mailbag**\
 `Should Joe Dumars make an immediate coaching change instead of hoping he can align with Willie Green?`\
 https://nytimes.com/athletic/6379371/2025/05/27/new-orleans-pelicans-zion-williamson-nba-draft-mailbag/
-
-**Why James Hagens dropped down draft boards, and the Islanders' unique predicament**\
-`Despite a good draft season, Hagens isn't in the conversation for the best player in the 2025 class anymore.`\
-https://nytimes.com/athletic/6357922/2025/05/27/james-hagens-nhl-draft-2025-islanders/
 
