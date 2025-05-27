@@ -1,9 +1,13 @@
+**How to Hide a 350-Foot Megayacht**\
+`Russian oligarchs use the offshore system to shield their luxury assets. The Trump Administration is ending an effort to find and seize them.`\
+https://nytimes.com/2025/05/27/magazine/trump-offshore-money-russia-oligarchs.html
+
 **NPR Sues Trump Over Order to Cut Funding**\
 `The lawsuit, filed in federal court in Washington by NPR and other public radio organizations, said President Trump’s executive order violated the Constitution and the First Amendment.`\
 https://nytimes.com/2025/05/27/business/media/npr-trump-lawsuit-executive-order-funding.html
 
 **Mitchell leaves role as Newcastle sporting director**\
-`Mitchell was appointed Newcastle's new sporting director in July of last year.`\
+`Mitchell spent less than 12 months in the role after being appointed in July of last year.`\
 https://nytimes.com/athletic/5756366/2025/05/27/newcastle-paul-mitchell-leaves/
 
 **Submit your questions for Murat Ates' Winnipeg Jets offseason mailbag**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6362349/2025/05/27/senators-free-agents-contract-pr
 **49ers K Jake Moody aims to trade distance for accuracy with new approach**\
 `Moody's is switching from a three-step approach on his kicks to two steps in hopes of shaking off a rough 2024 season.`\
 https://nytimes.com/athletic/6378330/2025/05/27/jake-moody-49ers-kicker-competition-changes/
-
-**Big questions for the Devils' offseason: Bottom-six shakeup? RFA deals?**\
-`What do the restricted free agents get? What can New Jersey expect from its prospects? What about the third Hughes brother?`\
-https://nytimes.com/athletic/6377811/2025/05/27/new-jersey-devils-nhl-offseason/
 
