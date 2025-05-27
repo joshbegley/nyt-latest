@@ -1,3 +1,7 @@
+**Primoz Roglic abandons Giro d’Italia after stage 16 crash**\
+`A former winner of the Giro in 2023, and a four-time champion of the Vuelta a Espana, he entered this Grand Tour as the pre-race favourite.`\
+https://nytimes.com/athletic/6384794/2025/05/27/giro-ditalia-primoz-roglic-crash-out/
+
 **How to Hide a 350-Foot Megayacht**\
 `Russian oligarchs use the offshore system to shield their luxury assets. The Trump Administration is ending an effort to find and seize them.`\
 https://nytimes.com/2025/05/27/magazine/trump-offshore-money-russia-oligarchs.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6383937/2025/05/27/mathieu-darche-islanders-gm-nhl/
 **Cap court: Evaluating contract projections on pending Senators free agents**\
 `With the help of AFP Analytics' contract projections and Sean McIndoe, we evaluate a few potential contracts for some pending Sens UFAs.`\
 https://nytimes.com/athletic/6362349/2025/05/27/senators-free-agents-contract-projections/
-
-**49ers K Jake Moody aims to trade distance for accuracy with new approach**\
-`Moody's is switching from a three-step approach on his kicks to two steps in hopes of shaking off a rough 2024 season.`\
-https://nytimes.com/athletic/6378330/2025/05/27/jake-moody-49ers-kicker-competition-changes/
 
