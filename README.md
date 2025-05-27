@@ -1,3 +1,7 @@
+**Charles B. Rangel: A Life in Pictures**\
+`The congressman from Harlem was a force on Capitol Hill — and a familiar presence on the streets he represented for decades.`\
+https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
+
 **Minnesota Frost down Ottawa Charge to repeat as Walter Cup champions: Takeaways**\
 `With a 2-1 overtime victory, the Frost won back-to-back PWHL championships on Monday — and this time, they did it on home ice. `\
 https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383812/2025/05/26/oilers-ekholm-game-4-stars/
 **Indy 500 makes history on the track — and with TV viewership**\
 `INDIANAPOLIS — Fox Sports CEO Eric Shanks had major aspirations for how his network could transform the Indy 500 in its first year as partners.`\
 https://nytimes.com/athletic/6383797/2025/05/26/indy-500-viewership-ratings-fox-sports/
-
-**Napoli sporting director says club can 'see the finish line' in De Bruyne talks**\
-`Napoli owner Aurelio De Laurentiis said the deal was not yet finalised but that he held positive discussions with De Bruyne on Monday.`\
-https://nytimes.com/athletic/6383806/2025/05/26/kevin-de-bruyne-napoli-talks/
 
