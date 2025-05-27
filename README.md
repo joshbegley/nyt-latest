@@ -1,5 +1,9 @@
+**Crystal Gazer**\
+`Ginny Too spreads the good word.`\
+https://nytimes.com/2025/05/26/crosswords/daily-puzzle-2025-05-27.html
+
 **Sankey: SEC has rising interest in 16-team CFP, but issues with auto bids**\
-`Commissioner Greg Sankey opened SEC spring meetings Monday with about a 45-minute news conference, most of it related to CFP issues.`\
+`The SEC commissioner opened spring meetings Monday with a 45-minute news conference, most of it related to CFP issues.`\
 https://nytimes.com/athletic/6384040/2025/05/26/sankey-sec-16-team-cfp-automatic-bids/
 
 **'Don't walk away': SEC's Greg Sankey urges teams to play non-conference games**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383728/2025/05/26/sf-giants-takeaways-offensive-st
 **What We Know About the Car-Ramming at the Liverpool Parade in England**\
 `Almost 50 people, including four children, were injured on Monday after a driver plowed into a crowd that had been celebrating Liverpool F.C.’s Premier League title.`\
 https://nytimes.com/2025/05/26/world/europe/uk-liverpool-parade-car-crash.html
-
-**Big stars play on tiny courts in Paris, to fans' delight: French Open day 2 takeaways**\
-`The French Open's packed schedule led to some of the top players in the world playing on the smallest courts at Roland Garros.`\
-https://nytimes.com/athletic/6383007/2025/05/26/french-open-recap-schedule-results-day-2/
 
