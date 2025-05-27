@@ -1,3 +1,11 @@
+**WNBA unable to substantiate reports of racist behavior at Sky-Fever game**\
+`The WNBA had been investigating reports of allegedly racist comments directed at Chicago's Angel Reese.`\
+https://nytimes.com/athletic/6386362/2025/05/27/wnba-concludes-investigation-racist-behavior-sky-fever/
+
+**A Gardener Stumbles Upon Hidden Treasure in a Vermont Park**\
+`Kelly Wakefield found a rock with a skull and crossbones in the same park last fall, but she didn’t realize that it was a clue to much more.`\
+https://nytimes.com/2025/05/27/us/buried-treasure-vermont-garden.html
+
 **Jewish Community in Kansas City Mourns a ‘Radiant Link’ for Peace**\
 `At the funeral for Sarah Milgrim, who was killed outside a Jewish museum in Washington last week, the Israeli embassy aide was mourned as someone who wanted to help everyone.`\
 https://nytimes.com/2025/05/27/us/sarah-milgrim-funeral-embassy-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6385996/2025/05/27/travis-hunter-jacksonville-jagua
 **Judge Strikes Down Trump Order Targeting WilmerHale**\
 `The judge concluded that the firm was targeted over its association with Robert S. Mueller III, and that the order “must be struck down in its entirety.”`\
 https://nytimes.com/2025/05/27/us/politics/trump-law-firms-wilmerhale.html
-
-**Trump Accuses Putin of ‘Playing With Fire’ as He Mulls Sanctions**\
-`It remained to be seen whether President Trump’s latest comments indicated a new aggressive phase against Russia.`\
-https://nytimes.com/2025/05/27/us/politics/trump-putin-ukraine-russia-sanctions.html
-
-**Wednesday Briefing: Chaos at a Gaza Aid Site**\
-`Plus, climbing Mount Everest with a performance enhancer.`\
-https://nytimes.com/2025/05/27/briefing/gaza-aid-chaos-ukraine-germany-king-charles-canada.html
 
