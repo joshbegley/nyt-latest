@@ -1,3 +1,17 @@
+**Robert Campbell, Architecture Critic in Love With Boston, Dies at 88**\
+`A Pulitzer Prize winner, he wrote with humanity and zest for The Boston Globe for more than 40 years.`\
+https://nytimes.com/2025/05/27/arts/design/robert-campbell-dead.html
+
+**Unexpected betting combos that could hit in the Inter vs PSG Champions League final**\
+`Brett Koremenos has a look at some intriguing betting combinations ahead of this weekend’s Champions League final.
+`\
+https://nytimes.com/athletic/6385477/2025/05/27/champions-league-final-betting-combinations-inter-psg/
+
+**PSG vs Inter UCL final betting: History says take the under, should you?**\
+`Sam Tighe explains why betting on the under in this weekend’s Champions League final might be a smart pick.
+`\
+https://nytimes.com/athletic/6385423/2025/05/27/psg-inter-champions-league-final-under-betting-odds/
+
 **Guardiola reshuffles Man City coaching staff with Lillo among exits**\
 `Lillo, Carlos Vicens and Inigo Dominguez are all moving on from the Etihad with Guardiola set to make several new coaching appointments.`\
 https://nytimes.com/athletic/6385410/2025/05/27/juanma-lillo-manchester-city-guardiola-staff/
