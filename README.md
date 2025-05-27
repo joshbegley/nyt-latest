@@ -1,3 +1,7 @@
+**How a Day of Soccer Celebrations Turned to Chaos in Liverpool**\
+`After a car plowed into crowds celebrating their team’s Premier League title, camaraderie and jubilation dissolved into dread.`\
+https://nytimes.com/2025/05/27/world/europe/uk-liverpool-parade-car-crash.html
+
 **The Windup: Boston’s quandary returns**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6384389/2025/05/27/red-sox-third-base-the-windup/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5756366/2025/05/27/newcastle-paul-mitchell-leaves/
 `<p>With the Jets&#8217; offseason underway and <a href="https://www.nytimes.com/athletic/6381504/2025/05/26/winnipeg-jets-offseason-priorities-2/">lots of uncertainty ahead</a>, it&#8217;s time to answer your pressing question. Drop them here and they will be answered in an upcoming mailbag,</p>
 `\
 https://nytimes.com/athletic/6383666/2025/05/27/submit-your-questions-for-murat-ates-winnipeg-jets-offseason-mailbag/
-
-**Trump Pardons Former Virginia Sheriff Convicted of Bribery**\
-`The ex-sheriff, Scott Jenkins, was convicted of federal bribery charges and sentenced to 10 years in prison. President Trump claimed the case was politically motivated.`\
-https://nytimes.com/2025/05/27/us/politics/trump-scott-jenkins-pardon-virginia-sheriff.html
 
