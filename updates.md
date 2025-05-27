@@ -1,3 +1,7 @@
+**Milos Uzan will withdraw from NBA Draft to return to Houston**\
+`The decision cements last year's national runner-up as one of the preseason national title favorites.`\
+https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
+
 **Bettors like Aaron Judge to do something that hasn't been done since 1941**\
 `Can Aaron Judge finish the season batting .400? You can bet on it.`\
 https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batting-average/

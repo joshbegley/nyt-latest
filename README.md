@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6384932/2025/05/27/aaron-judge-betting-history-batt
 https://nytimes.com/athletic/6385128/2025/05/27/mary-lou-retton-dui-arrest/
 
 **WATCH: What is Jalen Brunson's basketball superpower? His brakes**\
-`How does a 6'2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
+`How does a 6-2 guard who isn't fast and almost never dunks dominate one-on-one? For Jalen Brunson, it's all about how he stops. `\
 https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-stops-knicks-nba-playoffs/
 
 **Design Finds**\

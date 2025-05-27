@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6385082/2025/05/27/video-jalen-brunson-highlight-st
 ``\
 https://nytimes.com/spotlight/design-finds
 
-**Milos Uzan withdraws from NBA Draft to return to Houston: Source**\
+**Milos Uzan will withdraw from NBA Draft to return to Houston**\
 `The decision cements last year's national runner-up as one of the preseason national title favorites.`\
 https://nytimes.com/athletic/6385062/2025/05/27/milos-uzan-houston-nba-draft/
 
