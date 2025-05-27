@@ -1,3 +1,11 @@
+**Stream These Movies and TV Shows Before They Leave Netflix in June**\
+`A handful of great titles are leaving as early as the first weekend of the month. Catch them while you can.`\
+https://nytimes.com/2025/05/27/arts/television/netflix-leaving-june.html
+
+**The Amazon Loses One of Its Most Celebrated Chroniclers**\
+`Sebastião Salgado, a renowned photojournalist who died last week, spent decades capturing an Amazon that is fast disappearing.`\
+https://nytimes.com/2025/05/27/climate/amazon-sebastiao-salgado-deforestsation.html
+
 **Leave a Maple Leafs question for James Mirtle’s next mailbag**\
 `Well, there&#8217;s certainly no shortage of things going on in Toronto these days with the Maple Leafs.`\
 https://nytimes.com/athletic/6385982/2025/05/27/leave-a-maple-leafs-question-for-james-mirtles-next-mailbag-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/arts/television/jussie-smollett-donation-chicago-
 **Maresca backs Jackson to make amends to Chelsea team-mates in UCL final**\
 `Jackson is available for selection again having missed the last two Premier League games of the campaign through suspension.`\
 https://nytimes.com/athletic/6385860/2025/05/27/jackson-chelsea-conference-league-final/
-
-**Watch: Was Game 4 the best the Thunder's 'big 3' have been all season?**\
-`"The Athletic NBA Daily discussed the Oklahoma City Thunder's Game 4 win over the Minnesota Timberwolves to take a 3-1 series lead.`\
-https://nytimes.com/athletic/6385409/2025/05/27/thunder-nba-daily-big-three-playoffs/
-
-**Trump Threatens California Over Transgender Athletes’ Participation in Sports**\
-`The president said he would withhold federal funding, saying it was “totally unfair” for transgender athletes to compete in girls’ and women’s sports.`\
-https://nytimes.com/2025/05/27/us/politics/transgender-athletes-trump-california.html
 
