@@ -1,3 +1,7 @@
+**Read the Trump Administration Letter About Harvard Contracts**\
+`Here is a draft of the letter expected to be sent today to federal agencies asking them to cancel any remaining contracts with the university.`\
+https://nytimes.com/interactive/2025/05/27/us/harvard-contractsletterfinaldocx.html
+
 **Texas Rangers' All-Quarter Century Team, a 26-man roster of the club's best since 2000**\
 `From no-brainers like Adrían Beltré to surprise picks, the Rangers' All-Quarter Century Team is filled with Texas luminaries.`\
 https://nytimes.com/athletic/6370696/2025/05/27/texas-rangers-all-quarter-century-team-2020-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6379371/2025/05/27/new-orleans-pelicans-zion-willia
 **Why James Hagens dropped down draft boards, and the Islanders' unique predicament**\
 `Despite a good draft season, Hagens isn't in the conversation for the best player in the 2025 class anymore.`\
 https://nytimes.com/athletic/6357922/2025/05/27/james-hagens-nhl-draft-2025-islanders/
-
-**Rosenthal: Nationals remain among MLB's bottom feeders despite lengthy rebuild**\
-`Despite a strong return for Juan Soto, the Nationals haven't vaulted themselves back into contention due to several organizational failures.`\
-https://nytimes.com/athletic/6384096/2025/05/27/washington-nationals-rebuild/
 
