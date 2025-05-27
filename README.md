@@ -1,3 +1,7 @@
+**Quote of the Day: Luck Floats On Like a Butterfly**\
+`Quotation of the Day for Tuesday, May 27, 2025`\
+https://nytimes.com/2025/05/26/pageoneplus/quote-of-the-day-luck-floats-on-like-a-butterfly.html
+
 **Judge Criticizes Government Inaction in Case of Migrants Held in Djibouti**\
 `Judge Brian E. Murphy had ordered the Trump administration to offer due process to a group of men whom the government was trying to send to South Sudan.`\
 https://nytimes.com/2025/05/26/us/politics/judge-deportations-south-sudan-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384097/2025/05/26/texas-rangers-jacob-degrom-zero-
 **Charles B. Rangel: A Life in Pictures**\
 `The congressman from Harlem was a force on Capitol Hill — and a familiar presence on the streets he represented for decades.`\
 https://nytimes.com/2025/05/26/nyregion/charles-rangel-dead-photos.html
-
-**Minnesota Frost repeat as Walter Cup champions with OT win vs. Ottawa Charge**\
-`With a 2-1 overtime victory, the Frost won a second consecutive PWHL championship — and this time, they did it on home ice. `\
-https://nytimes.com/athletic/6384045/2025/05/26/minnesota-frost-ottawa-charge-pwhl-finals-game-4-takeaways/
 
