@@ -1,3 +1,7 @@
+**There were highlights, but sloppy play costs Twins in 7-2 loss to Tampa Bay**\
+`The Twins strayed from their recent 13-game winning streak form for the first time since a disastrous eighth inning in Boston on May 2.`\
+https://nytimes.com/athletic/6384227/2025/05/27/twins-lose-to-tampa-bay/
+
 **Antony's revival at Real Betis: How a €95m Man United outcast has been one of the best players in Spain**\
 `Antony has been a standout player for Betis in their run to the Conference League final after moving on loan from Man United in January`\
 https://nytimes.com/athletic/6367082/2025/05/27/antony-real-betis-man-united-loan-conference-league/
