@@ -1,3 +1,7 @@
+**Madrid's player of 2024-25: Kylian Mbappe shines in a season defined by disappointment**\
+`Madrid won none of La Liga, the Copa del Rey or the Champions League but Mbappe finished as their highest-scoring debutant`\
+https://nytimes.com/athletic/6385421/2025/05/28/real-madrid-player-of-the-season-mbappe/
+
 **Luis Enrique and his daughter Xana, the star that guides him**\
 `Six years after Xana's death, it is clear that the PSG coach carries his daughter with him — not merely as a memory but as a presence`\
 https://nytimes.com/athletic/6383610/2025/05/28/luis-enrique-daughter-xana/
@@ -33,8 +37,4 @@ https://nytimes.com/article/manhattanhenge-2025-time-how-to-watch.html
 **After winning more matches than most in 2025, Victoria Mboko takes her next step**\
 `Mboko has won 41 matches in 2025, and goes in search of her second at a Grand Slam tournament in Paris. But she's here for the long haul.`\
 https://nytimes.com/athletic/6381379/2025/05/28/tennis-victoria-mboko-results-record/
-
-**Chelsea Conference League final key questions: How important is it? Who starts? Predictions?**\
-`The Athletic's Simon Johnson and Liam Twomey had one of their cosy chats before Chelsea's Conference League final `\
-https://nytimes.com/athletic/6384082/2025/05/28/chelsea-conference-league-final-analysis/
 
