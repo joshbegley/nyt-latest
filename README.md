@@ -1,3 +1,7 @@
+**The Knicks' season is on life support. Do they have one more trick left?**\
+`The Knicks have made the impossible possible all playoffs. Facing a 3-1 series deficit against the Pacers, can they do it again?`\
+https://nytimes.com/athletic/6387143/2025/05/28/knicks-pacers-game-4-eastern-conference-finals/
+
 **Wednesday Briefing: Chaos at a Gaza Aid Site**\
 `Plus, climbing Mount Everest with a performance enhancer.`\
 https://nytimes.com/2025/05/28/briefing/gaza-germany-ukraine-king-charles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6352906/2025/05/28/west-ham-season-review-2024-25/
 **Nottingham Forest's player of the season: Nikola Milenkovic**\
 `Milenkovic has already established himself as a transformative figure, and his presence has made the Forest defence even more disciplined`\
 https://nytimes.com/athletic/6385337/2025/05/28/nottingham-forest-nikola-milenkovic-player-season/
-
-**Manchester City's player of the season: Josko Gvardiol - Pep Guardiola's wildcard**\
-`He feels essential to the next evolution at the Etihad`\
-https://nytimes.com/athletic/6375635/2025/05/28/manchester-city-player-of-season-josko-gvardiol/
 
