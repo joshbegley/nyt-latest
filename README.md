@@ -1,3 +1,7 @@
+**Rick Derringer, 77, Who Sang ‘Hang On Sloopy’ and ‘Rock and Roll, Hoochie Koo,’ Dies**\
+`A Zelig-like rocker, the guitarist, singer and songwriter collaborated with the likes of Barbra Streisand and Peter Frampton and composed Hulk Hogan’s “Real American” theme.`\
+https://nytimes.com/2025/05/27/arts/music/rick-derringer-dead-hang-on-sloopy.html
+
 **Bryce Harper exits Phillies-Braves game with elbow contusion after hit-by-pitch**\
 `Spencer Strider hit Harper on the right elbow with a 95.3 mph fastball in the first inning. The Phillies said X-rays were negative. `\
 https://nytimes.com/athletic/6386533/2025/05/27/bryce-harper-exits-phillies-braves-game-with-elbow-contusion-after-hit-by-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386429/2025/05/27/slot-liverpool-title-parade-car-
 **Carlos Vela, MLS MVP and LAFC star, announces retirement**\
 `Vela was once among the most touted prospects in the sport, coming up through Chivas Guadalajara's ranks`\
 https://nytimes.com/athletic/6386365/2025/05/27/carlos-vela-lafc-soccer-retirement/
-
-**Gael Monfils' late-night resurrection and Coco Gauff's missing rackets: French Open day 3**\
-`The Philippe-Chatrier roof took center stage during Djokovic's match as the rain and wind howled, before Monfils performed another miracle.`\
-https://nytimes.com/athletic/6385920/2025/05/27/gael-monfils-french-open-comeback-recap-day-3/
 
