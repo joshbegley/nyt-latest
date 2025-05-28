@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6386972/2025/05/27/mary-earps-england-retire-full-t
 https://nytimes.com/2025/05/27/us/politics/trump-student-visas-interviews.html
 
 **With dad in arena, Pacers' Tyrese Haliburton burns Knicks with triple-double**\
-`Haliburton is the third player in NBA history to have more than 30 points, 10 rebounds and 15 assists in a playoff game.`\
+`Haliburton is the first player in NBA playoff history to score at least 30 points with at least 15 assists and zero turnovers.`\
 https://nytimes.com/athletic/6386792/2025/05/27/tyrese-haliburton-triple-double-game-4-pacers-knicks/
 
 **Michael Conforto found a good night amid a brutal start: 'It'll all click'**\
