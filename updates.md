@@ -1,3 +1,7 @@
+**The Knicks' season is on life support. Do they have one more trick left?**\
+`The Knicks have made the impossible possible all playoffs. Facing a 3-1 series deficit against the Pacers, can they do it again?`\
+https://nytimes.com/athletic/6387143/2025/05/28/knicks-pacers-game-4-eastern-conference-finals/
+
 **Wednesday Briefing: Chaos at a Gaza Aid Site**\
 `Plus, climbing Mount Everest with a performance enhancer.`\
 https://nytimes.com/2025/05/28/briefing/gaza-germany-ukraine-king-charles.html
