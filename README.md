@@ -1,3 +1,7 @@
+**What’s in Our Queue? Sturgill Simpson and More **\
+`Text by Tripp Mickle`\
+https://nytimes.com/card/2025/05/28/arts/editors-recommendations-sturgillsimpson
+
 **Australia’s Skies Glow Orange as Powerful Winds Pull Dust From Parched Land**\
 `A dust storm clogged the sky this week, days after flooding devastated another part of the same region.`\
 https://nytimes.com/2025/05/28/weather/australia-dust-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388033/2025/05/28/mexico-promotion-relegation-liga
 **Crime Rings Plotted to Trade Cocaine for Syrian Weapons, Prosecutors Say**\
 `The intricate scheme, spanning four continents, appears to justify concerns that the military arsenal of Bashar al-Assad, the deposed Syrian dictator, could fall into dangerous hands.`\
 https://nytimes.com/2025/05/28/world/middleeast/syria-eln-cocaine-weapons.html
-
-**The Bounce: About Tyrese Haliburton's superstar leap**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6387890/2025/05/28/tyrese-haliburton-pacers-knicks-the-bounce/
 
