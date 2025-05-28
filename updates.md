@@ -1,3 +1,7 @@
+**French Doctor Who Sexually Abused Children Gets Maximum Sentence**\
+`Joël Le Scouarnec, a former surgeon, confessed to abusing at least 299 people, mostly children, and was sentenced to 20 years in prison. Some of the abuse victims expressed disappointment, saying they had hoped that Mr. Le Scouarnec would receive an exemplary sentence.`\
+https://nytimes.com/video/world/europe/100000010194745/france-doctor-child-abuse-sentencing.html
+
 **Your Cat May or May Not Love You, but It Knows Your Scent**\
 `Scientists found a way to get 30 kitties to cooperate with a study exploring the power of the feline scent of smell.`\
 https://nytimes.com/2025/05/28/science/cat-scent-humans.html
