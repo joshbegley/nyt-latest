@@ -1,3 +1,7 @@
+**Full Time: A stunning goalkeeper retirement**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6386972/2025/05/27/mary-earps-england-retire-full-time/
+
 **State Department Halts Interviews Abroad for Student and Exchange Visas**\
 `Secretary of State Marco Rubio issued a cable ordering the pause as the department seeks an overhaul of its review of applicants’ social media accounts.`\
 https://nytimes.com/2025/05/27/us/politics/trump-student-visas-interviews.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
 **Trump’s Attacks Have Helped Heal a Deeply Divided Harvard**\
 `Once at odds over the war in Gaza and questions about free speech, some people on Harvard’s campus have found a reason to come together.`\
 https://nytimes.com/2025/05/27/us/trump-attacks-unify-divided-harvard.html
-
-**Cubs are open to negotiating extension for Pete Crow-Armstrong even in-season**\
-`While Jed Hoyer will defer to Crow-Armstrong’s preferences, the Cubs do not have a strict policy against in-season negotiations.`\
-https://nytimes.com/athletic/6386765/2025/05/27/cubs-pete-crow-armstrong-extension-in-season/
 
