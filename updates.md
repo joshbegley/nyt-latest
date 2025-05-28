@@ -1,3 +1,19 @@
+**Manhattanhenge Through a Lens: Tips for Getting the Perfect Shot**\
+`A professional photographer shares his best lessons from a decade of capturing Manhattanhenge.`\
+https://nytimes.com/2025/05/28/nyregion/manhattanhenge-photography-tips.html
+
+**Giants remove Ryan Walker from closer's role, turn back to Camilo Doval**\
+`Walker took over the closer's role from Doval last season but he's struggled while Doval has dominated thus far this year.`\
+https://nytimes.com/athletic/6389048/2025/05/28/sf-giants-closer-ryan-walker-camilo-doval/
+
+**Watch: Is Tyrese Haliburton proving his NBA doubters wrong?**\
+`"The Athletic NBA Daily" discussed the Indiana Pacers' Game 4 win over the New York Knicks to take a 3-1 series lead.`\
+https://nytimes.com/athletic/6388319/2025/05/28/tyrese-haliburton-pacers-knicks-nba-daily/
+
+**A.I. Chipmaker Nvidia’s Revenue Jumps 69% to $44.1 Billion**\
+`The company continued to grow fast in its most recent quarter despite new rules restricting the sale of A.I chips to China.`\
+https://nytimes.com/2025/05/28/technology/nvidia-earnings-ai-chips.html
+
 **The Milliner Behind TV’s Wildest Hats**\
 `Plus: home goods featuring paintings by beloved Greek artist, a Danish watch brand’s comeback and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/28/t-magazine/maryam-keyhani-hats.html

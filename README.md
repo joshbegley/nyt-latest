@@ -1,3 +1,11 @@
+**Lawyer Murdered Client in 2013 to Delay Start of Her Divorce Trial, Prosecutors Say**\
+`Prosecutors said the former lawyer, Gregory J. Moore, 51, had also sought to avoid court dates by feigning illnesses, getting into a car crash and calling in bomb threats.`\
+https://nytimes.com/2025/05/28/us/ohio-divorce-lawyer-stabbing-charges.html
+
+**Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
+
 **Manhattanhenge Through a Lens: Tips for Getting the Perfect Shot**\
 `A professional photographer shares his best lessons from a decade of capturing Manhattanhenge.`\
 https://nytimes.com/2025/05/28/nyregion/manhattanhenge-photography-tips.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/insider/over-portfolio-reviews-art-directors-and-
 **Justice Department Investigates California Over Trans Athlete Policies**\
 `The latest Trump administration inquiry appears to focus on a competitor entered in this weekend’s state track and field championships.`\
 https://nytimes.com/2025/05/28/us/trump-california-trans-athletes-doj-investigation.html
-
-**U.N. Condemns Israeli-Backed Aid Distribution Program in Gaza**\
-`United Nations officials said that the new system, known as the Gaza Humanitarian Foundation, violated humanitarian principles by requiring many Palestinians to travel miles to obtain aid.`\
-https://nytimes.com/video/world/middleeast/100000010194314/israel-un-aid-gaza.html
-
-**Mount Everest’s Record-Setting Sherpa Sees a Future of Snowless Mountains and Fewer Guides**\
-`Kami Rita Sherpa scaled Mount Everest for the 31st time on Tuesday. We spoke to him about what is next for the mountain.`\
-https://nytimes.com/2025/05/28/world/europe/mount-everest-xenon-sherpa-climate-change.html
 
