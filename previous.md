@@ -1,3 +1,7 @@
+**Judge Finds Government Acted Illegally in Russian Scientist Case**\
+`The judge said a customs officer had acted improperly in stripping Kseniia Petrova, a researcher at Harvard Medical School, of her visa after she failed to declare research samples she was carrying into the country.`\
+https://nytimes.com/2025/05/28/science/russian-scientist-harvard-charges.html
+
 **French Doctor Who Sexually Abused Children Gets Maximum Sentence**\
 `Joël Le Scouarnec, a former surgeon, confessed to abusing at least 299 people, mostly children, and was sentenced to 20 years in prison. Some of the abuse victims expressed disappointment, saying they had hoped that Mr. Le Scouarnec would receive an exemplary sentence.`\
 https://nytimes.com/video/world/europe/100000010194745/france-doctor-child-abuse-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388418/2025/05/28/sam-reinhart-panthers-hurricanes
 **A Missouri Town Was Solidly Behind Trump. Then Carol Was Detained.**\
 `For 20 years, Carol Hui has served waffles, raised her children and embraced the small town of Kennett, Mo. Her detention and pending deportation to Hong Kong has hit the community hard.`\
 https://nytimes.com/2025/05/28/us/missouri-immigrant-trump.html
-
-**What’s in Our Queue? Sturgill Simpson and More **\
-`Text by Tripp Mickle`\
-https://nytimes.com/card/2025/05/28/arts/editors-recommendations-sturgillsimpson
 
