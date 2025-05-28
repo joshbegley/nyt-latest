@@ -1,3 +1,11 @@
+**Australia’s Skies Glow Orange as Powerful Winds Pull Dust From Parched Land**\
+`A dust storm clogged the sky this week, days after flooding devastated another part of the same region.`\
+https://nytimes.com/2025/05/28/weather/australia-dust-storm.html
+
+**Everton hoping to complete Alcaraz deal by end of May**\
+`The 22-year-old's loan deal from Brazilian side Flamengo contained a €15m purchase option, which runs out at the end of the month.`\
+https://nytimes.com/athletic/6388384/2025/05/28/carlos-alcaraz-everton-transfer-latest/
+
 **Dust Storm Turns Australian Skies Orange**\
 `A dust storm this week turned the skies in South Australia a hazy orange, reducing visibility and prompting health warnings.`\
 https://nytimes.com/video/world/australia/100000010194419/dust-storm-turns-australian-skies-orange.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/world/middleeast/syria-eln-cocaine-weapons.html
 **The Bounce: About Tyrese Haliburton's superstar leap**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6387890/2025/05/28/tyrese-haliburton-pacers-knicks-the-bounce/
-
-**Scott McTominay has conquered Serie A and met the Pope. It's been some week**\
-`McTominay was named MVP as Napoli won the title, and the former Man United player has celebrated accordingly - including at the Vatican`\
-https://nytimes.com/athletic/6387612/2025/05/28/scott-mctominay-meet-pope-napoli-celebrations/
-
-**'It's part of an ambush': Why every tennis champion needs a drop shot in their arsenal**\
-`Once seen as a cop-out or a party trick, the drop shot has become a vital tactic in the men's and women's game.`\
-https://nytimes.com/athletic/6384608/2025/05/28/tennis-drop-shot-how-why-best-players/
 

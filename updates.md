@@ -1,3 +1,11 @@
+**Dust Storm Turns Australian Skies Orange**\
+`A dust storm this week turned the skies in South Australia a hazy orange, reducing visibility and prompting health warnings.`\
+https://nytimes.com/video/world/australia/100000010194419/dust-storm-turns-australian-skies-orange.html
+
+**Mike White to Return to ‘Survivor’ for Its 50th Season**\
+`The “White Lotus” creator and noted reality-television aficionado first competed on the show in 2018.`\
+https://nytimes.com/2025/05/28/arts/television/survivor-50-cast-mike-white.html
+
 **Looking back to look forward: Champions League final trends you can bet on**\
 `Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
 `\
