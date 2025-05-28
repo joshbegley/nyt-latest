@@ -1,3 +1,7 @@
+**Cubs are open to negotiating extension for Pete Crow-Armstrong even in-season**\
+`While Jed Hoyer will defer to Crow-Armstrong’s preferences, the Cubs do not have a strict policy against in-season negotiations.`\
+https://nytimes.com/athletic/6386765/2025/05/27/cubs-pete-crow-armstrong-extension-in-season/
+
 **Oilers' Zach Hyman ruled out of Game 4 with injury**\
 `Hyman left Game 4 of the Western Conference final after a collision in the first period.`\
 https://nytimes.com/athletic/6386711/2025/05/27/zach-hyman-injury-oilers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/27/nyregion/new-york-student-arrested-ice.html
 **PGA Tour adjusting its Tour Championship format**\
 `The PGA Tour plans to lose the "starting strokes" format for the 2025 Tour Championship.`\
 https://nytimes.com/athletic/6386504/2025/05/27/pga-tour-championship-starting-strokes-format/
-
-**Marshals’ Data Shows Spike in Threats Against Federal Judges**\
-`Data gathered by the law enforcement agency responsible for judicial security showed 162 judges faced threats between March 1 and April 14.`\
-https://nytimes.com/2025/05/27/us/politics/federal-judges-threats.html
 

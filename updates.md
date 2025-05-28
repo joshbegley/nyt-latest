@@ -1,3 +1,7 @@
+**Cubs are open to negotiating extension for Pete Crow-Armstrong even in-season**\
+`While Jed Hoyer will defer to Crow-Armstrong’s preferences, the Cubs do not have a strict policy against in-season negotiations.`\
+https://nytimes.com/athletic/6386765/2025/05/27/cubs-pete-crow-armstrong-extension-in-season/
+
 **Oilers' Zach Hyman ruled out of Game 4 with injury**\
 `Hyman left Game 4 of the Western Conference final after a collision in the first period.`\
 https://nytimes.com/athletic/6386711/2025/05/27/zach-hyman-injury-oilers/
