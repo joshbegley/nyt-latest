@@ -1,3 +1,11 @@
+**Marlins' Ronny Simon grateful for support after teary, 3-error night**\
+`Simon committed three errors over three innings, unintentionally helping the Padres rally to an 8-6 win Tuesday night.`\
+https://nytimes.com/athletic/6388439/2025/05/28/ronny-simon-errors-support-marlins/
+
+**Giants OTAs kick off: How did Russell Wilson, Jameis Winston, Jaxson Dart fare?**\
+`The veteran Wilson took the majority of first team snaps Wednesday as Brian Daboll begins sorting out the QB pecking order.`\
+https://nytimes.com/athletic/6388822/2025/05/28/giants-otas-russell-wilson-jameis-winston-jaxson-dart/
+
 **Bears QB Caleb Williams insists 'I wanted to come here' in response to book details**\
 `Williams acknowledged Seth Wickersham's upcoming book has been a distraction, so he wanted to address it on Wednesday.`\
 https://nytimes.com/athletic/6388834/2025/05/28/bears-caleb-williams-book-response/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-rin
 **Without Zach Hyman, the Oilers must patch a major gap. One veteran already has been doing the job**\
 `The Oilers might have to get creative with their lineup, minus Hyman. At least they have options.`\
 https://nytimes.com/athletic/6388666/2025/05/28/oilers-hyman-surgery-lineup/
-
-**In Countersuit, Smokey Robinson Accuses Housekeepers of Defamation**\
-`Four of Mr. Robinson’s former employees had sued the Motown singer, saying he sexually assaulted them for many years. He argues their anonymity is a reason to dismiss their suit.`\
-https://nytimes.com/2025/05/28/arts/music/smokey-robinson-lawsuit-defamation.html
-
-**High-Demand Section of Brooklyn Will Be Redesigned, Adding 4,600 Homes**\
-`The plan, approved by the City Council, focuses on boosting residential development and job growth in a 21-block area along Atlantic Avenue in Crown Heights and Bedford-Stuyvesant.`\
-https://nytimes.com/2025/05/28/nyregion/atlantic-avenue-apartments.html
 

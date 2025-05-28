@@ -1,3 +1,11 @@
+**Bears QB Caleb Williams insists 'I wanted to come here' in response to book details**\
+`Williams acknowledged Seth Wickersham's upcoming book has been a distraction, so he wanted to address it on Wednesday.`\
+https://nytimes.com/athletic/6388834/2025/05/28/bears-caleb-williams-book-response/
+
+**LSU coach Brian Kelly: 'We want to play Big Ten schools'**\
+`The SEC and Big Ten have discussed a scheduling agreement that would increase the frequency teams from those two super conferences meet.`\
+https://nytimes.com/athletic/6388547/2025/05/28/brian-kelly-big-ten-sec-football-schedule/
+
 **Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
