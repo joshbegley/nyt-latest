@@ -1,3 +1,7 @@
+**St. Louis City fires coach Olof Mellberg, seeks return to 'winning culture'**\
+`Coach's style didn't fit "DNA" MLS franchise was trying to establish, leaving team in search of a new coach for second consecutive season.`\
+https://nytimes.com/athletic/6386827/2025/05/27/st-louis-city-fires-coach-olof-mellberg-15-games/
+
 **With dad in arena, Pacers' Tyrese Haliburton burns Knicks with triple-double**\
 `Haliburton is the first player in NBA playoff history to score at least 30 points with at least 15 assists and zero turnovers.`\
 https://nytimes.com/athletic/6386792/2025/05/27/tyrese-haliburton-triple-double-game-4-pacers-knicks/

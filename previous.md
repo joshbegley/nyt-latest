@@ -1,3 +1,7 @@
+**St. Louis City fires coach Olof Mellberg, seeks return to 'winning culture'**\
+`Coach's style didn't fit "DNA" MLS franchise was trying to establish, leaving team in search of a new coach for second consecutive season.`\
+https://nytimes.com/athletic/6386827/2025/05/27/st-louis-city-fires-coach-olof-mellberg-15-games/
+
 **Full Time: A stunning goalkeeper retirement**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6386972/2025/05/27/mary-earps-england-retire-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386597/2025/05/27/minnesota-twins-sale-pohlad-fami
 **Turned Aside**\
 `What goes up must come down in this puzzle by Peter A. Collins.`\
 https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
-
-**Trump’s Attacks Have Helped Heal a Deeply Divided Harvard**\
-`Once at odds over the war in Gaza and questions about free speech, some people on Harvard’s campus have found a reason to come together.`\
-https://nytimes.com/2025/05/27/us/trump-attacks-unify-divided-harvard.html
 
