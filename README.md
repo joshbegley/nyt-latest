@@ -1,3 +1,7 @@
+**Turned Aside**\
+`What goes up must come down in this puzzle by Peter A. Collins.`\
+https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
+
 **Trump’s Attacks Have Helped Heal a Deeply Divided Harvard**\
 `Once at odds over the war in Gaza and questions about free speech, some people on Harvard’s campus have found a reason to come together.`\
 https://nytimes.com/2025/05/27/us/trump-attacks-unify-divided-harvard.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386551/2025/05/27/demaryius-thomas-broncos-ring-of
 **SEC making alternative plans to keep key rivalries in an 8-game schedule**\
 `But whether SEC opts for an eight- or nine-game schedule could depend on automatic bids in future CFP format.`\
 https://nytimes.com/athletic/6386563/2025/05/27/sec-rivalry-games-alternative-plans-schedule/
-
-**ICE, Shifting Tactics, Detains High School Student at N.Y.C. Courthouse**\
-`The detention of a 20-year-old Venezuelan appears to be the first reported instance of immigration officials apprehending a student in the city this year.`\
-https://nytimes.com/2025/05/27/nyregion/new-york-student-arrested-ice.html
 
