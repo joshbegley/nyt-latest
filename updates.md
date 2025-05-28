@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, May 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/28/todays-new-york-times-international-edition
+
 **How to watch Fever at Mystics: Indiana plays first game after Caitlin Clark's injury**\
 `Indiana plays its first game without Caitlin Clark. The young Washington Mystics look promising with two strong rookies.`\
 https://nytimes.com/athletic/6385887/2025/05/28/fever-mystics-caitlin-clark-injury-how-to-watch/

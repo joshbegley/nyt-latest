@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, May 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/28/todays-new-york-times-international-edition
+
 **How to watch Fever at Mystics: Indiana plays first game after Caitlin Clark's injury**\
 `Indiana plays its first game without Caitlin Clark. The young Washington Mystics look promising with two strong rookies.`\
 https://nytimes.com/athletic/6385887/2025/05/28/fever-mystics-caitlin-clark-injury-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/arts/music/what-its-like-on-the-ground-at-the-sea
 **Harvard Relents After Protracted Fight Over Slave Photos**\
 `A legal battle between Harvard and a woman who says two slave portraits are of her ancestors will end in a settlement, with the photos going to a Black history museum in South Carolina.`\
 https://nytimes.com/2025/05/28/harvard-slavery-daguerreotypes-lawsuit.html
-
-**First Love Mixtape: Side A (Encore)**\
-`What is the song you were obsessed with as a teenager?`\
-https://nytimes.com/2025/05/28/podcasts/love-soundtrack-music.html
 
