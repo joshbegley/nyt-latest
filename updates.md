@@ -1,3 +1,7 @@
+**With dad in arena, Pacers' Tyrese Haliburton burns Knicks with triple-double**\
+`Haliburton is the first player in NBA playoff history to score at least 30 points with at least 15 assists and zero turnovers.`\
+https://nytimes.com/athletic/6386792/2025/05/27/tyrese-haliburton-triple-double-game-4-pacers-knicks/
+
 **State Department Halts Interviews for Student and Exchange Visas**\
 `Secretary of State Marco Rubio issued a cable ordering a pause as the department expands its review of applicants’ social media accounts.`\
 https://nytimes.com/2025/05/27/us/politics/trump-student-visas-interviews.html
