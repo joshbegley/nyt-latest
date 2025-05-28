@@ -1,3 +1,7 @@
+**Trump vs. Harvard**\
+`Inside the president’s battle with the university.`\
+https://nytimes.com/2025/05/28/briefing/harvard-trump-funding.html
+
 **After winning more matches than most in 2025, Victoria Mboko takes her next step**\
 `Mboko has won 42 matches in 2025, two of those at a Grand Slam tournament in Paris. But she's here for the long haul.`\
 https://nytimes.com/athletic/6381379/2025/05/28/tennis-victoria-mboko-results-record/
