@@ -1,3 +1,11 @@
+**Lea Michele Resuscitated ‘Funny Girl.’ Her Next Move Is ‘Chess.’**\
+`The “Glee” star will join Aaron Tveit and Nicholas Christopher next fall in a Broadway revival of an Abba-adjacent Cold War musical.`\
+https://nytimes.com/2025/05/28/theater/chess-broadway-lea-michele.html
+
+**I Am Struggling With Infertility. Can I Skip My Sister-in-Law’s Baby Shower?**\
+`A reader worries that a celebration for her pregnant sister-in-law, with whom she once commiserated about fertility woes, may be too much to handle.`\
+https://nytimes.com/2025/05/28/style/infertility-baby-showers.html
+
 **French Doctor Who Molested Hundreds of Children Is Sentenced**\
 `A former surgeon confessed to abusing at least 299 people, mostly children, in what is considered the largest case of its kind in French history.`\
 https://nytimes.com/2025/05/28/joel-le-scouarnec-france-doctor-abuse-sentence.html

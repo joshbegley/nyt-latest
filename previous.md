@@ -1,3 +1,11 @@
+**Lea Michele Resuscitated ‘Funny Girl.’ Her Next Move Is ‘Chess.’**\
+`The “Glee” star will join Aaron Tveit and Nicholas Christopher next fall in a Broadway revival of an Abba-adjacent Cold War musical.`\
+https://nytimes.com/2025/05/28/theater/chess-broadway-lea-michele.html
+
+**I Am Struggling With Infertility. Can I Skip My Sister-in-Law’s Baby Shower?**\
+`A reader worries that a celebration for her pregnant sister-in-law, with whom she once commiserated about fertility woes, may be too much to handle.`\
+https://nytimes.com/2025/05/28/style/infertility-baby-showers.html
+
 **French Doctor Who Molested Hundreds of Children Is Sentenced**\
 `A former surgeon confessed to abusing at least 299 people, mostly children, in what is considered the largest case of its kind in French history.`\
 https://nytimes.com/2025/05/28/joel-le-scouarnec-france-doctor-abuse-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6386520/2025/05/28/seattle-seahawks-cooper-kupp-jal
 **Brooks Lee is starting to earn key Twins at-bats and manager Rocco Baldelli’s trust**\
 `Baldelli believes Lee is making major strides offensively even if the switch-hitting sophomore's overall numbers don't show it yet.`\
 https://nytimes.com/athletic/6380441/2025/05/28/twins-brooks-lee-rocco-baldelli/
-
-**Trump Administration Live Updates: U.S. Suspends Visa Interviews for Foreign Students**\
-``\
-https://nytimes.com/live/2025/05/28/us/trump-news
-
-**'Blackhawks hit a home run': Why Jon Cooper thinks Jeff Blashill will succeed in Chicago**\
-`The three seasons Blashill spent as an assistant coach with Cooper and the Lightning were very important and influential to him.`\
-https://nytimes.com/athletic/6386142/2025/05/28/blackhawks-coach-jeff-blashill-jon-cooper/
 
