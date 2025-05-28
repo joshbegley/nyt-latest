@@ -1,3 +1,11 @@
+**Isaac del Toro extends Giro d'Italia lead after winning stage 17**\
+`The 21-year-old's lead is now 41 seconds to Richard Carapaz, who finished third on the stage.`\
+https://nytimes.com/athletic/6388238/2025/05/28/del-toro-giro-ditalia-standings/
+
+**Ronel Blanco to undergo season-ending elbow surgery, deepening Astros' needs**\
+`Blanco is the third Astros starting pitcher to suffer a significant injury within the season’s first two months.`\
+https://nytimes.com/athletic/6386473/2025/05/28/astros-ronel-blanco-elbow-surgery/
+
 **A Friend Bought Crypto for My Newborn Baby. Do I Have to Hold on to It?**\
 `He’s a crypto bro, and I am extremely skeptical.`\
 https://nytimes.com/2025/05/28/magazine/crypto-bitcoin-gift-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/science/bats-white-nose-fungus.html
 **Morris suffers ACL injury on first senior England call-up**\
 `Manchester City midfielder Laura Blindkilde Brown has been called up to replace the 22-year-old.`\
 https://nytimes.com/athletic/6388103/2025/05/28/england-squad-ella-morris-injury/
-
-**Quick build-ups are different to counter-attacks – and on the rise in the Premier League**\
-`Quick build-ups are different to counter-attacks. Here's how they work, and why they are on the rise in the Premier League.`\
-https://nytimes.com/athletic/6382888/2025/05/28/quick-build-ups-counter-attacks-rise-premier-league/
-
-**Japan’s Debt, Now Twice the Size of Its Economy, Forces Hard Choices**\
-`Japan’s government faces pressure to curtail debt-fueled spending that some argue has staved off populist waves.`\
-https://nytimes.com/2025/05/28/business/japan-debt.html
 

@@ -1,3 +1,15 @@
+**A Friend Bought Crypto for My Newborn Baby. Do I Have to Hold on to It?**\
+`He’s a crypto bro, and I am extremely skeptical.`\
+https://nytimes.com/2025/05/28/magazine/crypto-bitcoin-gift-ethics.html
+
+**Arsenal mailbag: Zubimendi latest, Nwaneri, Lewis-Skelly contracts, Martinez links**\
+`What's happening with Zubimendi? Is a wide forward an option in addition to a central striker? What are the goalkeeper options?`\
+https://nytimes.com/athletic/6388028/2025/05/28/arsenal-transfers-zubimendi-nwaneri/
+
+**Oilers' Zach Hyman likely to miss rest of playoffs after surgery**\
+`Hyman left Game 4 of the Western Conference final on Tuesday night with an upper-body injury.`\
+https://nytimes.com/athletic/6388215/2025/05/28/zach-hyman-surgery-oilers/
+
 **Tariffs Turn Porsche’s Headwinds Into a ‘Violent Storm’**\
 `The storied sports car maker, which was facing challenges from China and slumping demand for electric cars, now has to grapple with tariffs from the Trump administration.`\
 https://nytimes.com/2025/05/28/business/porsche-tariffs-volkswagen-trump.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6382888/2025/05/28/quick-build-ups-counter-attacks-
 **Japan’s Debt, Now Twice the Size of Its Economy, Forces Hard Choices**\
 `Japan’s government faces pressure to curtail debt-fueled spending that some argue has staved off populist waves.`\
 https://nytimes.com/2025/05/28/business/japan-debt.html
-
-**The Ballet Kids of ‘Midsummer’ Bring Magic to the Bugs**\
-`It could be that the youngest dancers are the real stars of “A Midsummer Night’s Dream” at New York City Ballet.`\
-https://nytimes.com/2025/05/28/arts/dance/midsummer-nights-dream-balanchine-kids-bugs.html
-
-**A Clever One-Pot Salmon Dinner to Make Again and Again**\
-`This miso-turmeric salmon with coconut rice has a smart structure that you can retool to your liking.`\
-https://nytimes.com/2025/05/28/dining/a-clever-one-pot-salmon-dinner-to-make-again-and-again.html
 
