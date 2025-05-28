@@ -1,3 +1,7 @@
+**Austin Wells has Yankees' first facial hair superstition since beard policy change**\
+`Before Opening Day, Wells and catching coach Tanner Swanson made a pact. They would only shave when the team lost a series.`\
+https://nytimes.com/athletic/6387239/2025/05/28/austin-wells-yankees-facial-hair-superstition/
+
 **Cronuts and ‘Pizza Rat’: New York, as Told Through Its Dining Scene**\
 `A new project by the Food section explores how events, trends, restaurants and chefs have defined the city’s culinary scene in the 21st century (so far).`\
 https://nytimes.com/2025/05/28/insider/new-york-restaurants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/business/europe-companies-china.html
 **LeBrun: The Dallas Stars are built to score. So what's going on?**\
 `"A little bit of the same story, right?" coach Pete DeBoer said after the Stars faltered again in their Game 4 loss to the Oilers.`\
 https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
-
-**Zelensky Heads to Berlin in Latest Sign of a Warming Relationship**\
-`The  president of Ukraine will talk with Germany’s chancellor in their third meeting in as many weeks.`\
-https://nytimes.com/2025/05/28/world/europe/zelensky-merz-berlin-visit.html
 
