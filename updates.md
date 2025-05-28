@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
+
 **Manchester United in Kuala Lumpur: Defeat, boos and... an open-top bus?**\
 `Laurie Whitwell reports from United's tired post-season tour, where fans voiced their disappointment`\
 https://nytimes.com/athletic/6388577/2025/05/28/manchester-united-in-kuala-lumpur/

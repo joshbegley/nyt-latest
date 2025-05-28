@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
+
 **Manchester United in Kuala Lumpur: Defeat, boos and... an open-top bus?**\
 `Laurie Whitwell reports from United's tired post-season tour, where fans voiced their disappointment`\
 https://nytimes.com/athletic/6388577/2025/05/28/manchester-united-in-kuala-lumpur/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/australia/100000010194758/storm-winds-blanket-au
 **Tiger Woods' son Charlie wins his first AJGA tournament**\
 `With scores of 70-65-66, Woods' victory at the top-level junior event marks his best accomplishment in amateur golf thus far.`\
 https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-junior-golf/
-
-**Crime Has Plummeted. So Why Don’t Americans Feel Safe?**\
-`We are learning an important lesson about the politics of crime.`\
-https://nytimes.com/2025/05/28/opinion/murder-crime-safety.html
 
