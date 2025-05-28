@@ -1,3 +1,7 @@
+**Turkey Cracks Down on Fliers Who Stand Up Too Soon, Threatening Fines**\
+`As of this month, passengers who stand before planes fully stop may be fined by the Turkish government.`\
+https://nytimes.com/2025/05/28/world/europe/turkey-airplane-passengers-fine-stand-up.html
+
 **Fulham and USMNT's Robinson undergoes minor knee surgery**\
 `Fulham confirmed the 27-year-old had undergone the operation on his right knee on Tuesday.`\
 https://nytimes.com/athletic/6387779/2025/05/28/antonee-robinson-knee-surgery/
