@@ -1,3 +1,20 @@
+**The Bounce: About Tyrese Haliburton's superstar leap**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6387890/2025/05/28/tyrese-haliburton-pacers-knicks-the-bounce/
+
+**Scott McTominay has conquered Serie A and met the Pope. It's been some week**\
+`McTominay was named MVP as Napoli won the title, and the former Man United player has celebrated accordingly - including at the Vatican`\
+https://nytimes.com/athletic/6387612/2025/05/28/scott-mctominay-meet-pope-napoli-celebrations/
+
+**'It's part of an ambush': Why every tennis champion needs a drop shot in their arsenal**\
+`Once seen as a cop-out or a party trick, the drop shot has become a vital tactic in the men's and women's game.`\
+https://nytimes.com/athletic/6384608/2025/05/28/tennis-drop-shot-how-why-best-players/
+
+**Looking back to look forward: Champions League final trends you can bet on**\
+`Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
+`\
+https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
+
 **Looking back to look forward: Champions League final trends you can bet on**\
 `Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
 `\
