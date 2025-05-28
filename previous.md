@@ -1,3 +1,7 @@
+**Inside Paul Mitchell's Newcastle exit: Internal shock, Reuben's reluctance and the Howe dynamic**\
+`The sporting director's absence was first discussed internally weeks ago but even those who knew it was possible were taken aback`\
+https://nytimes.com/athletic/6387324/2025/05/28/paul-mitchell-newcastle-exit-inside-story/
+
 **Lea Michele Resuscitated ‘Funny Girl.’ Her Next Move Is ‘Chess.’**\
 `The “Glee” star will join Aaron Tveit and Nicholas Christopher next fall in a Broadway revival of an Abba-adjacent Cold War musical.`\
 https://nytimes.com/2025/05/28/theater/chess-broadway-lea-michele.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385971/2025/05/28/san-francisco-49ers-ricky-pearsa
 **Four remaining offseason questions as Seahawks begin OTAs**\
 `How Milroe and Kupp will be used in Seattle's new-look offense might begin to unfold at OTAs.`\
 https://nytimes.com/athletic/6386520/2025/05/28/seattle-seahawks-cooper-kupp-jalen-milroe-otas/
-
-**Brooks Lee is starting to earn key Twins at-bats and manager Rocco Baldelli’s trust**\
-`Baldelli believes Lee is making major strides offensively even if the switch-hitting sophomore's overall numbers don't show it yet.`\
-https://nytimes.com/athletic/6380441/2025/05/28/twins-brooks-lee-rocco-baldelli/
 
