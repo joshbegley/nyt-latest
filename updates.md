@@ -1,3 +1,7 @@
+**Oilers celebrate but know things would be tough without Zach Hyman: 'He means everything'**\
+`"Part of it felt like we were doing it for Zach," Ryan Nugent-Hopkins said of the victory over the Stars.`\
+https://nytimes.com/athletic/6387253/2025/05/28/oilers-hyman-injury-game-4/
+
 **Doing Business in China Is Getting Harder, but Its Exports Are Hard to Resist**\
 `European companies operating in China say the market has become increasingly challenging because of weak economic demand and opaque government rules on business.`\
 https://nytimes.com/2025/05/28/business/europe-companies-china.html
