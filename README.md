@@ -1,3 +1,7 @@
+**U.N. Condemns Israel’s New Aid Program in Gaza, After Chaotic Start**\
+`The new operation is intended to bypass both the United Nations and Hamas, but aid groups say even if it works as intended, it is dangerously inadequate.`\
+https://nytimes.com/2025/05/28/world/middleeast/israel-un-aid-gaza.html
+
 **Ronaldo agrees to sell majority stake in Valladolid**\
 `The former Brazil international's time in charge of Valladolid has been turbulent, with relegations from La Liga in 2021, 2023 and 2025.`\
 https://nytimes.com/athletic/6378006/2025/05/28/ronaldo-owner-valladolid-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388118/2025/05/28/caitlin-clark-injury-sec-big-ten
 **China to Launch Mission to Capture Pieces of an Unusual Asteroid**\
 `The robotic Tianwen-2 spacecraft will collect samples from Kamoʻoalewa, which some scientists suspect is a fragment of the moon.`\
 https://nytimes.com/2025/05/28/science/china-asteroid-tianwen-2.html
-
-**A Fungus Devastated North American Bats. A New Species Could Deliver a Killer Blow.**\
-`Scientists have learned that another species of fungus found in Europe and Asia causes white-nose disease, which has ravaged bat populations in the United States and Canada.`\
-https://nytimes.com/2025/05/28/science/bats-white-nose-fungus.html
 
