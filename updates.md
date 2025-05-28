@@ -1,3 +1,11 @@
+**Yankees pitcher Ryan Yarbrough expected to get World Series ring from Dodgers this weekend**\
+`The Dodgers traded Yarbrough to the Blue Jays three months before winning the Fall Classic in 2024. `\
+https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-ring-ryan-yarbrough/
+
+**Without Zach Hyman, the Oilers must patch a major gap. One veteran already has been doing the job**\
+`The Oilers might have to get creative with their lineup, minus Hyman. At least they have options.`\
+https://nytimes.com/athletic/6388666/2025/05/28/oilers-hyman-surgery-lineup/
+
 **In Countersuit, Smokey Robinson Accuses Housekeepers of Defamation**\
 `Four of Mr. Robinson’s former employees had sued the Motown singer, saying he sexually assaulted them for many years. He argues their anonymity is a reason to dismiss their suit.`\
 https://nytimes.com/2025/05/28/arts/music/smokey-robinson-lawsuit-defamation.html

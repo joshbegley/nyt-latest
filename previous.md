@@ -1,3 +1,11 @@
+**Yankees pitcher Ryan Yarbrough expected to get World Series ring from Dodgers this weekend**\
+`The Dodgers traded Yarbrough to the Blue Jays three months before winning the Fall Classic in 2024. `\
+https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-ring-ryan-yarbrough/
+
+**Without Zach Hyman, the Oilers must patch a major gap. One veteran already has been doing the job**\
+`The Oilers might have to get creative with their lineup, minus Hyman. At least they have options.`\
+https://nytimes.com/athletic/6388666/2025/05/28/oilers-hyman-surgery-lineup/
+
 **In Countersuit, Smokey Robinson Accuses Housekeepers of Defamation**\
 `Four of Mr. Robinson’s former employees had sued the Motown singer, saying he sexually assaulted them for many years. He argues their anonymity is a reason to dismiss their suit.`\
 https://nytimes.com/2025/05/28/arts/music/smokey-robinson-lawsuit-defamation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html
 **Fed ‘Well Positioned’ to Wait on Rate Cuts Even as Economic Risks Rise, Minutes Show**\
 `Officials at the Federal Reserve have adopted a wait-and-see approach to policy moves amid extreme uncertainty about the economic outlook.`\
 https://nytimes.com/2025/05/28/business/fed-interest-rates-inflation-tariffs.html
-
-**Lane Kiffin has a simple solution for CFP expansion, but SEC leaders disagree**\
-`Looming College Football Playoff expansion has been the hottest topic at the SEC meetings this week.`\
-https://nytimes.com/athletic/6388394/2025/05/28/sec-college-football-playoff-expansion-lane-kiffin/
-
-**Bruce Logan, Who Blew Up the Death Star in ‘Star Wars,’ Dies at 78**\
-`A special effects artist and cinematographer, he also worked on “2001: A Space Odyssey” and “Tron,” took a detour to comedy with “Airplane!”`\
-https://nytimes.com/2025/05/28/movies/bruce-logan-dead.html
 
