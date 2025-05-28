@@ -1,3 +1,7 @@
+**Trump to Pardon Reality-Show Couple Convicted of $36 Million Fraud**\
+`The clemency for Todd and Julie Chrisley, the stars of “Chrisley Knows Best,” is Mr. Trump’s latest gift to people he calls victims of a weaponized justice system.`\
+https://nytimes.com/2025/05/27/us/politics/trump-chrisley-pardon.html
+
 **Trump to Pardon Reality-Show Moguls Convicted of $36 Million Fraud**\
 `The clemency for Todd and Julie Chrisley, the stars of “Chrisley Knows Best,” is Mr. Trump’s latest gift to people he calls victims of a weaponized justice system.`\
 https://nytimes.com/2025/05/27/us/politics/trump-chrisley-pardon.html
