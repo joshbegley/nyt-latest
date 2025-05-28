@@ -1,3 +1,11 @@
+**Musk ‘Disappointed’ With Major Trump Policy Bill, Saying It Will Increase Deficit**\
+`Elon Musk also said the Republican bill, which passed the House last week, would undermine the work of his DOGE group.`\
+https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-spending-bill-doge.html
+
+**Lowetide: Stuart Skinner's story of struggles and a chance at redemption**\
+`Skinner started the playoffs poorly, but with the Oilers on the verge of the Stanley Cup Final, all is forgotten now.`\
+https://nytimes.com/athletic/6385296/2025/05/28/oilers-stuart-skinner-stats-nhl-playoffs-2025/
+
 **Japan Welcomes a New Sumo Champ. Surprise: He’s Japanese.**\
 `Onosato Daiki became the first Japanese man in eight years to be named a yokozuna, or grand champion, the highest title in the sport.`\
 https://nytimes.com/2025/05/28/world/asia/sumo-yokozuna-onosato-daiki-japan.html
