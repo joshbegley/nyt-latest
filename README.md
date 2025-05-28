@@ -1,3 +1,11 @@
+**State Department Halts Interviews Abroad for Student and Exchange Visas**\
+`Secretary of State Marco Rubio issued a cable ordering the pause as the department seeks an overhaul of its review of applicants’ social media accounts.`\
+https://nytimes.com/2025/05/27/us/politics/trump-student-visas-interviews.html
+
+**Pacers' Tyrese Haliburton dazzles with triple-double in win over Knicks**\
+`Haliburton is the third player in NBA history to have more than 30 points, 10 rebounds and 15 assists in a playoff game.`\
+https://nytimes.com/athletic/6386792/2025/05/27/tyrese-haliburton-triple-double-game-4-pacers-knicks/
+
 **Michael Conforto found a good night amid a brutal start: 'It'll all click'**\
 `Conforto smacked his first home run since April 5 thanks in part to some work with coaches behind the scenes.`\
 https://nytimes.com/athletic/6386832/2025/05/27/dodgers-michael-conforto-guardians/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/27/us/trump-attacks-unify-divided-harvard.html
 **Cubs are open to negotiating extension for Pete Crow-Armstrong even in-season**\
 `While Jed Hoyer will defer to Crow-Armstrong’s preferences, the Cubs do not have a strict policy against in-season negotiations.`\
 https://nytimes.com/athletic/6386765/2025/05/27/cubs-pete-crow-armstrong-extension-in-season/
-
-**Oilers' Zach Hyman ruled out of Game 4 with injury**\
-`Hyman left Game 4 of the Western Conference final after a collision in the first period.`\
-https://nytimes.com/athletic/6386711/2025/05/27/zach-hyman-injury-oilers/
-
-**Chargers OTA observations: No Rashawn Slater; CB competition heats up**\
-`Only three players missed Tuesday’s optional practice: tackle Rashawn Slater, offensive lineman Trey Pipkins III and edge rusher Bud Dupree.`\
-https://nytimes.com/athletic/6386630/2025/05/27/chargers-ota-rashawn-slater-cornerback-competition/
 
