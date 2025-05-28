@@ -1,3 +1,7 @@
+**Trump’s Attacks Have Helped Heal a Deeply Divided Harvard**\
+`Once at odds over the war in Gaza and questions about free speech, some people on Harvard’s campus have found a reason to come together.`\
+https://nytimes.com/2025/05/27/us/trump-attacks-unify-divided-harvard.html
+
 **Cubs are open to negotiating extension for Pete Crow-Armstrong even in-season**\
 `While Jed Hoyer will defer to Crow-Armstrong’s preferences, the Cubs do not have a strict policy against in-season negotiations.`\
 https://nytimes.com/athletic/6386765/2025/05/27/cubs-pete-crow-armstrong-extension-in-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386563/2025/05/27/sec-rivalry-games-alternative-pl
 **ICE, Shifting Tactics, Detains High School Student at N.Y.C. Courthouse**\
 `The detention of a 20-year-old Venezuelan appears to be the first reported instance of immigration officials apprehending a student in the city this year.`\
 https://nytimes.com/2025/05/27/nyregion/new-york-student-arrested-ice.html
-
-**PGA Tour adjusting its Tour Championship format**\
-`The PGA Tour plans to lose the "starting strokes" format for the 2025 Tour Championship.`\
-https://nytimes.com/athletic/6386504/2025/05/27/pga-tour-championship-starting-strokes-format/
 
