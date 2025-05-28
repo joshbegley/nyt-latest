@@ -1,3 +1,11 @@
+**U.N. Condemns Israel’s New Aid Program in Gaza, After Chaotic Start**\
+`The new operation is intended to bypass both the United Nations and Hamas, but aid groups say even if it works as intended, it is dangerously inadequate.`\
+https://nytimes.com/2025/05/28/world/middleeast/israel-un-aid-gaza.html
+
+**Ronaldo agrees to sell majority stake in Valladolid**\
+`The former Brazil international's time in charge of Valladolid has been turbulent, with relegations from La Liga in 2021, 2023 and 2025.`\
+https://nytimes.com/athletic/6378006/2025/05/28/ronaldo-owner-valladolid-sale/
+
 **Isaac del Toro extends Giro d'Italia lead after winning stage 17**\
 `The 21-year-old's lead is now 41 seconds to Richard Carapaz, who finished third on the stage.`\
 https://nytimes.com/athletic/6388238/2025/05/28/del-toro-giro-ditalia-standings/
