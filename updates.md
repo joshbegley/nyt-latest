@@ -1,3 +1,7 @@
+**Rabbi Sholom Lipskar, 78, Dies; Transformed Miami and Helped Jews in Prison**\
+`A charismatic figure in the Chabad-Lubavitch movement, he opened a synagogue in South Florida, unifying the Jewish community there, and founded the Aleph Institute.`\
+https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
+
 **Maradona trial in doubt as judge steps down after 'acting like an actress'**\
 `Judge Julieta Makintach said she had “no choice” but to leave the case after appearing in the trailer for the forthcoming documentary series`\
 https://nytimes.com/athletic/6387685/2025/05/28/diego-maradona-trial-judge/

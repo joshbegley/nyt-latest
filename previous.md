@@ -1,3 +1,7 @@
+**Rabbi Sholom Lipskar, 78, Dies; Transformed Miami and Helped Jews in Prison**\
+`A charismatic figure in the Chabad-Lubavitch movement, he opened a synagogue in South Florida, unifying the Jewish community there, and founded the Aleph Institute.`\
+https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
+
 **Maradona trial in doubt as judge steps down after 'acting like an actress'**\
 `Judge Julieta Makintach said she had “no choice” but to leave the case after appearing in the trailer for the forthcoming documentary series`\
 https://nytimes.com/athletic/6387685/2025/05/28/diego-maradona-trial-judge/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/weather/australia-dust-storm.html
 **Everton hoping to complete Alcaraz deal by end of May**\
 `The 22-year-old's loan deal from Brazilian side Flamengo contained a €15m purchase option, which runs out at the end of the month.`\
 https://nytimes.com/athletic/6388384/2025/05/28/carlos-alcaraz-everton-transfer-latest/
-
-**Dust Storm Turns Australian Skies Orange**\
-`A dust storm this week turned the skies in South Australia a hazy orange, reducing visibility and prompting health warnings.`\
-https://nytimes.com/video/world/australia/100000010194419/dust-storm-turns-australian-skies-orange.html
 
