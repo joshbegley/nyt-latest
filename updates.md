@@ -1,3 +1,11 @@
+**Trump Said He Was ‘Not Happy’ With Putin**\
+`Also, Haiti hired an American military contractor to fight gangs. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/05/28/briefing/trump-putin-haiti-gangs-met-new-wing.html
+
+**Glacier Collapse in the Swiss Alps Destroys Most of a Village**\
+`At least one person was missing after a landslide wiped out 90 percent of Blatten, which was home to roughly 300 residents who were evacuated on May 19.`\
+https://nytimes.com/2025/05/28/world/europe/glacier-swiss-alps-landslide.html
+
 **Kevin Costner Is Sued by ‘Horizon’ Actor Over Rape Scene**\
 `A stunt double said she was left with trauma by an unscripted scene that did not include an intimacy coordinator. Mr. Costner’s lawyer said the claims were meritless.`\
 https://nytimes.com/2025/05/28/movies/kevin-costner-horizon-lawsuit-stunt-performer.html
