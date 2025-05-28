@@ -1,5 +1,5 @@
 **Trump to Pardon Reality-Show Moguls Convicted of $36 Million Fraud**\
-`The clemency for Todd and Julie Chrisley, the stars of “Chrisley Knows Best,” is Mr. Trump’s latest gift to people he call victims of a weaponized justice system.`\
+`The clemency for Todd and Julie Chrisley, the stars of “Chrisley Knows Best,” is Mr. Trump’s latest gift to people he calls victims of a weaponized justice system.`\
 https://nytimes.com/2025/05/27/us/politics/trump-chrisley-pardon.html
 
 **Rick Derringer, 77, Who Sang ‘Hang On Sloopy’ and ‘Rock and Roll, Hoochie Koo,’ Dies**\
