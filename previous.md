@@ -1,3 +1,7 @@
+**Fulham and USMNT's Robinson undergoes minor knee surgery**\
+`Fulham confirmed the 27-year-old had undergone the operation on his right knee on Tuesday.`\
+https://nytimes.com/athletic/6387779/2025/05/28/antonee-robinson-knee-surgery/
+
 **Inside Paul Mitchell's Newcastle exit: Internal shock, Reuben's reluctance and the Howe dynamic**\
 `The sporting director's absence was first discussed internally weeks ago but even those who knew it was possible were taken aback`\
 https://nytimes.com/athletic/6387324/2025/05/28/paul-mitchell-newcastle-exit-inside-story/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6380088/2025/05/28/houston-astros-quarter-century-t
 **Opportunity knocks: Ricky Pearsall and 7 other young 49ers poised to break out**\
 `Pearsall wasn't the only young 49ers wide receiver who spent the offseason training with quarterback Brock Purdy.`\
 https://nytimes.com/athletic/6385971/2025/05/28/san-francisco-49ers-ricky-pearsall-2025-season/
-
-**Four remaining offseason questions as Seahawks begin OTAs**\
-`How Milroe and Kupp will be used in Seattle's new-look offense might begin to unfold at OTAs.`\
-https://nytimes.com/athletic/6386520/2025/05/28/seattle-seahawks-cooper-kupp-jalen-milroe-otas/
 
