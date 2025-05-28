@@ -1,3 +1,11 @@
+**16 States Sue Trump Over $1.4 Billion in Science Cuts**\
+`A group of attorneys general, led by Letitia James of New York, argues that National Science Foundation programs are critical for leading in science and technology.`\
+https://nytimes.com/2025/05/28/nyregion/trump-science-funding-lawsuit.html
+
+**Tom Robbins, Versatile Muckraker for The Village Voice, Dies at 76**\
+`He exposed corrupt officials and greedy landlords, and his reporting on prison violence was a finalist for the Pulitzer Prize.`\
+https://nytimes.com/2025/05/28/business/media/tom-robbins-dead.html
+
 **Trump Said He Was ‘Not Happy’ With Putin**\
 `Also, Haiti hired an American military contractor to fight gangs. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/05/28/briefing/trump-putin-haiti-gangs-met-new-wing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/us/ohio-divorce-lawyer-stabbing-charges.html
 **Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
-
-**Manhattanhenge Through a Lens: Tips for Getting the Perfect Shot**\
-`A professional photographer shares his best lessons from a decade of capturing Manhattanhenge.`\
-https://nytimes.com/2025/05/28/nyregion/manhattanhenge-photography-tips.html
-
-**Giants remove Ryan Walker from closer's role, turn back to Camilo Doval**\
-`Walker took over the closer's role from Doval last season but he's struggled while Doval has dominated thus far this year.`\
-https://nytimes.com/athletic/6389048/2025/05/28/sf-giants-closer-ryan-walker-camilo-doval/
 
