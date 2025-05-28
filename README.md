@@ -1,3 +1,7 @@
+**Turkey Cracks Down on Fliers Who Stand Up Too Soon, Threatening Fines**\
+`As of this month, passengers who stand before planes fully stop may be fined by the Turkish government.`\
+https://nytimes.com/2025/05/28/world/europe/turkey-airplane-passengers-fine-stand-up.html
+
 **Fulham and USMNT's Robinson undergoes minor knee surgery**\
 `Fulham confirmed the 27-year-old had undergone the operation on his right knee on Tuesday.`\
 https://nytimes.com/athletic/6387779/2025/05/28/antonee-robinson-knee-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6387429/2025/05/28/pacers-game-4-knicks-east-finals
 **Presenting the Astros' All-Quarter Century Team, the best in Houston since 2000**\
 `With the Killer B's and the talented World Series-winning teams from recent seasons, it's difficult to choose who should be on this squad. `\
 https://nytimes.com/athletic/6380088/2025/05/28/houston-astros-quarter-century-team/
-
-**Opportunity knocks: Ricky Pearsall and 7 other young 49ers poised to break out**\
-`Pearsall wasn't the only young 49ers wide receiver who spent the offseason training with quarterback Brock Purdy.`\
-https://nytimes.com/athletic/6385971/2025/05/28/san-francisco-49ers-ricky-pearsall-2025-season/
 
