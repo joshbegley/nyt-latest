@@ -1,3 +1,7 @@
+**Maradona trial in doubt as judge steps down after 'acting like an actress'**\
+`Judge Julieta Makintach said she had “no choice” but to leave the case after appearing in the trailer for the forthcoming documentary series`\
+https://nytimes.com/athletic/6387685/2025/05/28/diego-maradona-trial-judge/
+
 **Breece Hall, Bucky Irving and more fantasy football dynasty league buys and sells**\
 `Jeff Haverlack offers up his top players to be looking to buy or sell in dynasty leagues ahead of the 2025 fantasy football campaign.`\
 https://nytimes.com/athletic/6388227/2025/05/28/fantasy-football-dynasty-buys-sells/
