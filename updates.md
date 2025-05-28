@@ -1,3 +1,7 @@
+**High-Demand Section of Brooklyn Will Be Redesigned, Adding 4,600 Homes**\
+`The plan, approved by the City Council, focuses on boosting residential development and job growth in a 21-block area along Atlantic Avenue in Crown Heights and Bedford-Stuyvesant.`\
+https://nytimes.com/2025/05/28/nyregion/atlantic-avenue-apartments.html
+
 **Storm Winds Blanket Australia in Thick Dust**\
 `A dust storm filled Australian skies with an orange haze caused by long-term drought conditions in parts of Australia.`\
 https://nytimes.com/video/world/australia/100000010194758/storm-winds-blanket-australia-in-thick-dust.html
