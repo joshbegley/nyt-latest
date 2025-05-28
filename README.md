@@ -1,3 +1,11 @@
+**Watch: Is Tyrese Haliburton proving his NBA doubters wrong?**\
+`"The Athletic NBA Daily" discussed the Indiana Pacers' Game 4 win over the New York Knicks to take a 3-1 series lead.`\
+https://nytimes.com/athletic/6388319/2025/05/28/tyrese-haliburton-pacers-knicks-nba-daily/
+
+**A.I. Chipmaker Nvidia’s Revenue Jumps 69% to $44.1 Billion**\
+`The company continued to grow fast in its most recent quarter despite new rules restricting the sale of A.I chips to China.`\
+https://nytimes.com/2025/05/28/technology/nvidia-earnings-ai-chips.html
+
 **The Milliner Behind TV’s Wildest Hats**\
 `Plus: home goods featuring paintings by beloved Greek artist, a Danish watch brand’s comeback and more recommendations from T Magazine.`\
 https://nytimes.com/2025/05/28/t-magazine/maryam-keyhani-hats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388733/2025/05/28/chelsea-real-betis-result-report
 **Kristian Campbell expected to start at first base this weekend: 'Credit to him'**\
 `Campbell has moved around the field as a rookie but he's never played a professional game at any level at first base.`\
 https://nytimes.com/athletic/6388641/2025/05/28/kristian-campbell-red-sox-first-base-debut/
-
-**Canada Wants to Kill 400 Ostriches. Kennedy and Dr. Oz Want to Save Them.**\
-`Ostriches on a British Columbia farm have died of the avian flu. Canada ordered hundreds of others to be culled. But two top Trump administration officials have objected.`\
-https://nytimes.com/2025/05/28/world/canada/ostriches-avian-flu-rfk-jr-dr-oz.html
-
-**Judge Declines to Block Transfer of Death Row Inmates Granted Clemency by Biden to ‘Supermax’ Facility**\
-`President Joseph R. Biden Jr. commuted dozens of men’s sentences to life without parole, but the Trump administration has sought to move the inmates to a notoriously tough prison.`\
-https://nytimes.com/2025/05/28/us/politics/death-row-inmates-biden.html
 
