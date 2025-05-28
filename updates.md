@@ -1,3 +1,7 @@
+**Turned Aside**\
+`What goes up must come down in this puzzle by Peter A. Collins.`\
+https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
+
 **Trump’s Attacks Have Helped Heal a Deeply Divided Harvard**\
 `Once at odds over the war in Gaza and questions about free speech, some people on Harvard’s campus have found a reason to come together.`\
 https://nytimes.com/2025/05/27/us/trump-attacks-unify-divided-harvard.html
