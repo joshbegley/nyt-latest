@@ -1,40 +1,40 @@
-**The Allure (and Complications) of ‘Golden Shares’**\
-`The White House would like some control of U.S. Steel if it approves its sale to Nippon Steel. Such deals could alter foreign investment in the United States.`\
-https://nytimes.com/2025/05/28/business/dealbook/us-steel-golden-share-us-investments.html
+**Presenting the Astros' All-Quarter Century Team, the best in Houston since 2000**\
+`With the Killer B's and the talented World Series-winning teams from recent seasons, it's difficult to choose who should be on this squad. `\
+https://nytimes.com/athletic/6380088/2025/05/28/houston-astros-quarter-century-team/
 
-**Pirates don’t want to trade Paul Skenes. But they'd have to weigh these 5 prospect packages**\
-`What types of trade offers would it take for the Pirates to even consider trading the 22-year-old ace? Here are five potential packages. `\
-https://nytimes.com/athletic/6387091/2025/05/28/paul-skenes-pirates-mlb-trade-proposals/
+**Opportunity knocks: Ricky Pearsall and 7 other young 49ers poised to break out**\
+`Pearsall wasn't the only young 49ers wide receiver who spent the offseason training with quarterback Brock Purdy.`\
+https://nytimes.com/athletic/6385971/2025/05/28/san-francisco-49ers-ricky-pearsall-2025-season/
 
-**Ferdinand leaving TNT Sports after 12 years**\
-`Ferdinand has been a pundit for TNT Sports, formerly BT Sport, since 2013, featuring in its Premier League and Champions League coverage.`\
-https://nytimes.com/athletic/6387564/2025/05/28/rio-ferdinand-tnt-sports-exit/
+**Four remaining offseason questions as Seahawks begin OTAs**\
+`How Milroe and Kupp will be used in Seattle's new-look offense might begin to unfold at OTAs.`\
+https://nytimes.com/athletic/6386520/2025/05/28/seattle-seahawks-cooper-kupp-jalen-milroe-otas/
 
-**Henry: Arsenal should have won more under Arteta**\
-`Arteta won the FA Cup in his first season at the club but has failed to reach a final since then.`\
-https://nytimes.com/athletic/6387603/2025/05/28/thierry-henry-mikel-arteta-arsenal/
+**Brooks Lee is starting to earn key Twins at-bats and manager Rocco Baldelli’s trust**\
+`Baldelli believes Lee is making major strides offensively even if the switch-hitting sophomore's overall numbers don't show it yet.`\
+https://nytimes.com/athletic/6380441/2025/05/28/twins-brooks-lee-rocco-baldelli/
 
-**What you need to know about Ohio State's offense: 43 thoughts on 43 playesr**\
-`With both transfer portal windows closed, the Ohio State football roster is likely set. Here's how the new-look offense is shaping up.`\
-https://nytimes.com/athletic/6384904/2025/05/28/ohio-state-football-roster-2025-offense/
+**Trump Administration Live Updates: U.S. Suspends Visa Interviews for Foreign Students**\
+``\
+https://nytimes.com/live/2025/05/28/us/trump-news
 
-**Ranking Michigan's top 10 transfers of the portal era**\
-`Initially reluctant when it opened in 2018, Michigan has become a savvy shopper in the college football transfer portall.`\
-https://nytimes.com/athletic/6386125/2025/05/28/michigan-football-best-transfer-portal-rankings/
+**'Blackhawks hit a home run': Why Jon Cooper thinks Jeff Blashill will succeed in Chicago**\
+`The three seasons Blashill spent as an assistant coach with Cooper and the Lightning were very important and influential to him.`\
+https://nytimes.com/athletic/6386142/2025/05/28/blackhawks-coach-jeff-blashill-jon-cooper/
 
-**How Jays prospect Gage Stanifer is throwing more strikes: cleaner mechanics and clearer vision**\
-`For the first time, Gage Stanifer can see the catcher’s mitt clearly, and the pitching prospect is seeing results`\
-https://nytimes.com/athletic/6386589/2025/05/28/gage-stanifer-blue-jays-glasses/
+**Fixing Sabres' defense: Trade Byram, sign Ekblad and other options to explore**\
+`Here are the questions and potential solutions facing Buffalo's blue line this summer.`\
+https://nytimes.com/athletic/6385634/2025/05/28/sabres-defense-bowen-byram-salary-cap/
 
-**Greenberg: With the wind in their face, Cubs showing they can handle the pressure**\
-`With Tuesday’s come-from-behind win against Colorado, the Cubs are 16-8 this month and have a three-game lead on St. Louis in the division.`\
-https://nytimes.com/athletic/6387113/2025/05/28/cubs-rockies-craig-counsell-wrigley-field-wind/
+**Craig Button on Wild's offseason, prospects, what to do with Marco Rossi: 'Be careful about trading skill'**\
+`The former NHL GM and TSN's head of scouting offered his assessment on Rossi, Zeev Buium, David Jiricek, Danila Yurov Liam Ohgren and more.`\
+https://nytimes.com/athletic/6385420/2025/05/28/wild-rossi-yurov-ohgren-buium-jiricek/
 
-**When the majors and minors collide: Buying a ticket and spending a night with the A's**\
-`Our reporter walked up, bought a ticket and spent the night in the stands to live the A's experience in Sacramento. `\
-https://nytimes.com/athletic/6386761/2025/05/28/sacramento-athletics-majors-minors-ballpark/
+**What Hurricanes must replicate to win Game 5 against Panthers**\
+`What does Carolina need to do to recreate its success from Game 4 in Wednesday’s Game 5 in Raleigh? Here’s a road map.`\
+https://nytimes.com/athletic/6387003/2025/05/28/hurricanes-panthers-nhl-playoffs-game-5/
 
-**NHL playoffs vibe check: Jaccob Slavin's defensive excellence, concern in Dallas and more**\
-`With the conference finals rolling along, let's check in on some important takeaways after each Game 4.`\
-https://nytimes.com/athletic/6385804/2025/05/28/nhl-playoffs-2025-jaccob-slavin-stars/
+**Three Red Wings offseason scenarios, from the big fish to preserving flexibility**\
+`The Red Wings have roughly $22 million in cap space going into the summer. What's the best way for them to use it?`\
+https://nytimes.com/athletic/6386051/2025/05/28/red-wings-offseason-mitch-marner/
 
