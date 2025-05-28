@@ -1,3 +1,7 @@
+**Japan Welcomes a New Sumo Champ. Surprise: He’s Japanese.**\
+`Onosato Daiki became the first Japanese man in eight years to be named a yokozuna, or grand champion, the highest title in the sport.`\
+https://nytimes.com/2025/05/28/world/asia/sumo-yokozuna-onosato-daiki-japan.html
+
 **Farewell to the New Look. Or Ghosts of Dior Past**\
 `Assessing Maria Grazia Chiuri’s likely final collection — and how she changed Dior.`\
 https://nytimes.com/2025/05/28/style/dior-cruise-maria-grazia-chiuri-final-show.html

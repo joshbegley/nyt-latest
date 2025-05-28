@@ -1,3 +1,7 @@
+**Japan Welcomes a New Sumo Champ. Surprise: He’s Japanese.**\
+`Onosato Daiki became the first Japanese man in eight years to be named a yokozuna, or grand champion, the highest title in the sport.`\
+https://nytimes.com/2025/05/28/world/asia/sumo-yokozuna-onosato-daiki-japan.html
+
 **Farewell to the New Look. Or Ghosts of Dior Past**\
 `Assessing Maria Grazia Chiuri’s likely final collection — and how she changed Dior.`\
 https://nytimes.com/2025/05/28/style/dior-cruise-maria-grazia-chiuri-final-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/world/middleeast/israel-yemen-sana-airport-houthi
 **Upper Deck adds new measure to combat NHL card 'patch swapping'**\
 `Upper Deck is hoping to combat a growing type of fraud impacting the sports card hobby`\
 https://nytimes.com/athletic/6385327/2025/05/28/upper-deck-the-cup-patch-swapping/
-
-**Pacers keep foot on gas, stay perfect in Game 4s as they push Knicks to brink**\
-`After blowing a big lead in Game 3, Indiana got back to its style. "Let's get it in, and let's run."`\
-https://nytimes.com/athletic/6387429/2025/05/28/pacers-game-4-knicks-east-finals-tyrese-haliburton/
 
