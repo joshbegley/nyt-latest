@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6383233/2025/05/28/nhl-playoffs-2025-busts-auston-matthews-connor-hellebuyck/
 
+**Auston Matthews and Connor Hellebuyck lead the 2025 NHL playoffs all-bust team**\
+`Presenting the annual all-disappointment team, where we build a roster of players who let us down this spring, plus a coach and GM.
+`\
+https://nytimes.com/athletic/6383233/2025/05/28/nhl-playoffs-2025-busts-auston-matthews-connor-hellebuyck/
+
 **The most conversation-worthy NFL games on the 2025 schedule: Does your team make the cut?**\
 `A lot of Chiefs, a lot of Eagles and an unprecedented range of TV networks define the most anticipated NFL games coming in 2025.`\
 https://nytimes.com/athletic/6383354/2025/05/28/nfl-tv-games-most-watchable-kansas-city-chiefs-dallas-cowboys-2025/
