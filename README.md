@@ -1,3 +1,11 @@
+**Everton's player of the season: Idrissa Gueye - into autumn of his career and never better**\
+`The Senegal midfielder is 36 in September - he's had the best season of his Everton career`\
+https://nytimes.com/athletic/6369554/2025/05/28/evertons-player-of-the-season-idrissa-gueye/
+
+**Tottenham's player of 2024-25: Pedro Porro - nobody gave them more**\
+`Through the turmoil and the triumphs, the Spanish right-back has been one constant on the pitch for Spurs this season`\
+https://nytimes.com/athletic/6382200/2025/05/28/tottenham-player-of-the-season-porro/
+
 **West Ham review of 2024-25: One of their worst seasons in recent history**\
 `West Ham have had a difficult campaign, getting through three managers while finishing in 14th place`\
 https://nytimes.com/athletic/6352906/2025/05/28/west-ham-season-review-2024-25/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380819/2025/05/28/crystal-palace-tifo-fa-cup-final
 **Why Villa should be proud of Europa League qualification after a challenging season**\
 `That Villa were in Champions League contention on the final day shows they are now a side consistently able to challenge for Europe`\
 https://nytimes.com/athletic/6367259/2025/05/28/aston-villa-season-review-champions-league-europa-league/
-
-**Madrid's player of 2024-25: Kylian Mbappe shines in a season defined by disappointment**\
-`Madrid won none of La Liga, the Copa del Rey or the Champions League but Mbappe finished as their highest-scoring debutant`\
-https://nytimes.com/athletic/6385421/2025/05/28/real-madrid-player-of-the-season-mbappe/
-
-**Luis Enrique and his daughter Xana, the star that guides him**\
-`Six years after Xana's death, it is clear that the PSG coach carries his daughter with him — not merely as a memory but as a presence`\
-https://nytimes.com/athletic/6383610/2025/05/28/luis-enrique-daughter-xana/
 
