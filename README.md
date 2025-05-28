@@ -1,3 +1,7 @@
+**Kevin Stefanski, Browns not concerned with QB depth chart at this point of OTAs**\
+`“All these reps add up, and they’re being graded on every play," Stefanski said. "We just love the opportunity to be on the practice field."`\
+https://nytimes.com/athletic/6388823/2025/05/28/browns-kenny-pickett-joe-flacco-organized-team-activities/
+
 **Marlins' Ronny Simon grateful for support after teary, 3-error night**\
 `Simon committed three errors over three innings, unintentionally helping the Padres rally to an 8-6 win Tuesday night.`\
 https://nytimes.com/athletic/6388439/2025/05/28/ronny-simon-errors-support-marlins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6259242/2025/05/28/caoimhin-kelleher-liverpool-bren
 **Yankees pitcher Ryan Yarbrough expected to get World Series ring from Dodgers this weekend**\
 `The Dodgers traded Yarbrough to the Blue Jays three months before winning the Fall Classic in 2024. `\
 https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-ring-ryan-yarbrough/
-
-**Without Zach Hyman, the Oilers must patch a major gap. One veteran already has been doing the job**\
-`The Oilers might have to get creative with their lineup, minus Hyman. At least they have options.`\
-https://nytimes.com/athletic/6388666/2025/05/28/oilers-hyman-surgery-lineup/
 
