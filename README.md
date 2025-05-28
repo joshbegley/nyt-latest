@@ -1,3 +1,15 @@
+**Quote of the Day: A Mother’s Fear Spurs a Return To Venezuela**\
+`Quotation of the Day for Wednesday, May 28, 2025.`\
+https://nytimes.com/2025/05/27/pageoneplus/quote-of-the-day-a-mothers-fear-spurs-a-return-to-venezuela.html
+
+**Pacers 1 win from NBA Finals as Knicks flounder in Game 4: Takeaways**\
+`Haliburton’s outing helped move the Pacers within one victory of their first NBA Finals appearance since 2000.`\
+https://nytimes.com/athletic/6387043/2025/05/27/pacers-knicks-game-4-tyrese-haliburton-results-takeaways/
+
+**Justin Steele’s post-surgery timeline and outlook, as he watches the first-place Cubs**\
+`As he recovers from surgery, Steele and his family schedule their days around what time the first-place Cubs' games start on TV.`\
+https://nytimes.com/athletic/6387012/2025/05/27/cubs-justin-steele-post-surgery-timeline/
+
 **St. Louis City fires coach Olof Mellberg, seeks return to 'winning culture'**\
 `Coach's style didn't fit "DNA" MLS franchise was trying to establish, leaving team in search of a new coach for second consecutive season.`\
 https://nytimes.com/athletic/6386827/2025/05/27/st-louis-city-fires-coach-olof-mellberg-15-games/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6386099/2025/05/27/red-sox-offense-woes/
 **After long wait, Wenceel Pérez provides Tigers another sublime moment**\
 `Pérez returned from the 60-day injured list and promptly homered in his first at-bat of the season.`\
 https://nytimes.com/athletic/6386867/2025/05/27/wenceel-perez-tigers-sublime-moment/
-
-**Oilers overcome loss of Hyman in Game 4, move within 1 win of Stanley Cup Final: Takeaways**\
-`Leon Draisaitl and Corey Perry scored power-play goals as the Oilers won 4-1 and took a 3-1 series lead.`\
-https://nytimes.com/athletic/6386882/2025/05/27/oilers-stars-game-4/
-
-**Twins making 'progress' on sale of club, Pohlads sticking to $1.7B price: Sources**\
-`Though the Twins are making progress in finding potential buyers, the Pohlad family remains firm in its desire for a $1.7 billion price tag.`\
-https://nytimes.com/athletic/6386597/2025/05/27/minnesota-twins-sale-pohlad-family-1-7-billion/
-
-**Turned Aside**\
-`What goes up must come down in this puzzle by Peter A. Collins.`\
-https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
 
