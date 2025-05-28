@@ -1,3 +1,7 @@
+**Bills OTAs observations: Bosa already sidelined, Bishop starts fresh, Puntapalooza is on**\
+`Coach Sean McDermott acknowledged that Joey Bosa's spring setback is "concerning," plus the Bills' new receivers looked good in practice.`\
+https://nytimes.com/athletic/6386124/2025/05/28/bills-otas-joey-bosa-cole-bishop/
+
 **The New York Times International Edition in Print for Thursday, May 29, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/05/28/todays-new-york-times-international-edition

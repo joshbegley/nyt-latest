@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6385826/2025/05/28/memorial-tournament-odds-dfs-pic
 https://nytimes.com/athletic/6386064/2025/05/28/falcons-kicking-competition-younghoe-koo-lenny-krieg/
 
 **Bills OTAs observations: Bosa already sidelined, Bishop starts fresh, Puntapalooza is on**\
-`Coach Sean McDermott acknowledged that Joey Bosa's spring setback is "concerning, plus the Bills' new receivers looked good in practice.`\
+`Coach Sean McDermott acknowledged that Joey Bosa's spring setback is "concerning," plus the Bills' new receivers looked good in practice.`\
 https://nytimes.com/athletic/6386124/2025/05/28/bills-otas-joey-bosa-cole-bishop/
 
 **As Aaron Rodgers saga continues, Mason Rudolph leads Steelers offense ... for now**\
