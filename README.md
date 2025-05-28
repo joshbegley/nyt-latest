@@ -1,3 +1,7 @@
+**How to watch Fever at Mystics: Indiana plays first game after Caitlin Clark's injury**\
+`Indiana plays its first game without Caitlin Clark. The young Washington Mystics look promising with two strong rookies.`\
+https://nytimes.com/athletic/6385887/2025/05/28/fever-mystics-caitlin-clark-injury-how-to-watch/
+
 **2025 Memorial Tournament odds, DFS picks: Who might challenge Scottie Scheffler?**\
 `Dennis Esser breaks down the field for the PGA Tour's next signature event, starting Thursday.`\
 https://nytimes.com/athletic/6385826/2025/05/28/memorial-tournament-odds-dfs-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/harvard-slavery-daguerreotypes-lawsuit.html
 **First Love Mixtape: Side A (Encore)**\
 `What is the song you were obsessed with as a teenager?`\
 https://nytimes.com/2025/05/28/podcasts/love-soundtrack-music.html
-
-**Another Arrest in Crypto Kidnapping and Torture Case**\
-`The authorities said a man was held captive and tortured in a Manhattan townhouse for weeks by people seeking the password to his Bitcoin wallet.`\
-https://nytimes.com/2025/05/28/nyregion/bitcoin-kidnapping-torture-arrest.html
 
