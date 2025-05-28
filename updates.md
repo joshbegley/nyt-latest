@@ -1,3 +1,11 @@
+**Lawyer Murdered Client in 2013 to Delay Start of Her Divorce Trial, Prosecutors Say**\
+`Prosecutors said the former lawyer, Gregory J. Moore, 51, had also sought to avoid court dates by feigning illnesses, getting into a car crash and calling in bomb threats.`\
+https://nytimes.com/2025/05/28/us/ohio-divorce-lawyer-stabbing-charges.html
+
+**Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
+
 **Manhattanhenge Through a Lens: Tips for Getting the Perfect Shot**\
 `A professional photographer shares his best lessons from a decade of capturing Manhattanhenge.`\
 https://nytimes.com/2025/05/28/nyregion/manhattanhenge-photography-tips.html
