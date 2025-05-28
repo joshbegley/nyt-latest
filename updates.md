@@ -1,3 +1,23 @@
+**Madrid's player of 2024-25: Kylian Mbappe shines in a season defined by disappointment**\
+`Madrid won none of La Liga, the Copa del Rey or the Champions League but Mbappe finished as their highest-scoring debutant`\
+https://nytimes.com/athletic/6385421/2025/05/28/real-madrid-player-of-the-season-mbappe/
+
+**Luis Enrique and his daughter Xana, the star that guides him**\
+`Six years after Xana's death, it is clear that the PSG coach carries his daughter with him — not merely as a memory but as a presence`\
+https://nytimes.com/athletic/6383610/2025/05/28/luis-enrique-daughter-xana/
+
+**The Premier League satisfaction-o-meter 2024-25: Joy, misery and gallows humour**\
+`We surveyed our subscribers for every Premier League club asking them how they felt this season had gone`\
+https://nytimes.com/athletic/6384799/2025/05/28/premier-league-satisfaction-o-meter-2024-25/
+
+**Wrexham are looking to Premier League players to get them promoted for fourth year in a row**\
+`Manager Phil Parkinson explains the pros and cons of making loan signings from the top flight to help his 2025-26 Championship challenge`\
+https://nytimes.com/athletic/6382889/2025/05/28/parkinson-wrexham-loans-premier-league/
+
+**Lamine Yamal's new Barcelona contract - inside the deal that could be worth nearly €40m a year**\
+`Yamal does not turn 18 until July 13 but he has signed a new deal until 2031 that with bonuses can make him Barcelona's highest paid player`\
+https://nytimes.com/athletic/6384986/2025/05/28/lamine-yamal-new-barcelona-contract-40m/
+
 **What happens when clubs are obsessed with winning a first Champions League**\
 `PSG have been driven by dreams of European glory for years, like plenty of clubs before them. Now, they have the chance to end the long wait`\
 https://nytimes.com/athletic/6384836/2025/05/28/psg-champions-league-first-time-winners/
