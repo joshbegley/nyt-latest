@@ -1,3 +1,7 @@
+**Twins making 'progress' on sale of club, Pohlads sticking to $1.7 billion price: Source**\
+`Though the Twins are making progress in finding potential buyers, the Pohlad family remains firm in its desire for a $1.7 billion price tag.`\
+https://nytimes.com/athletic/6386597/2025/05/27/minnesota-twins-sale-pohlad-family-1-7-billion/
+
 **Turned Aside**\
 `What goes up must come down in this puzzle by Peter A. Collins.`\
 https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386533/2025/05/27/bryce-harper-exits-phillies-brav
 **Demaryius Thomas, who died in 2021, elected into Broncos Ring of Honor**\
 `Thomas, who died of a seizure disorder, was inducted into the Ring of Fame in his first year of eligibility.`\
 https://nytimes.com/athletic/6386551/2025/05/27/demaryius-thomas-broncos-ring-of-honor/
-
-**SEC making alternative plans to keep key rivalries in an 8-game schedule**\
-`But whether SEC opts for an eight- or nine-game schedule could depend on automatic bids in future CFP format.`\
-https://nytimes.com/athletic/6386563/2025/05/27/sec-rivalry-games-alternative-plans-schedule/
 
