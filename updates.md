@@ -1,3 +1,11 @@
+**What you need to know about Ohio State's offense: 43 thoughts on 43 playesr**\
+`With both transfer portal windows closed, the Ohio State football roster is likely set. Here's how the new-look offense is shaping up.`\
+https://nytimes.com/athletic/6384904/2025/05/28/ohio-state-football-roster-2025-offense/
+
+**Ranking Michigan's top 10 transfers of the portal era**\
+`Initially reluctant when it opened in 2018, Michigan has become a savvy shopper in the college football transfer portall.`\
+https://nytimes.com/athletic/6386125/2025/05/28/michigan-football-best-transfer-portal-rankings/
+
 **How Jays prospect Gage Stanifer is throwing more strikes: cleaner mechanics and clearer vision**\
 `For the first time, Gage Stanifer can see the catcher’s mitt clearly, and the pitching prospect is seeing results`\
 https://nytimes.com/athletic/6386589/2025/05/28/gage-stanifer-blue-jays-glasses/
