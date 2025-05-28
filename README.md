@@ -1,3 +1,11 @@
+**Bears QB Caleb Williams insists 'I wanted to come here' in response to book details**\
+`Williams acknowledged Seth Wickersham's upcoming book has been a distraction, so he wanted to address it on Wednesday.`\
+https://nytimes.com/athletic/6388834/2025/05/28/bears-caleb-williams-book-response/
+
+**LSU coach Brian Kelly: 'We want to play Big Ten schools'**\
+`The SEC and Big Ten have discussed a scheduling agreement that would increase the frequency teams from those two super conferences meet.`\
+https://nytimes.com/athletic/6388547/2025/05/28/brian-kelly-big-ten-sec-football-schedule/
+
 **Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/arts/music/smokey-robinson-lawsuit-defamation.htm
 **High-Demand Section of Brooklyn Will Be Redesigned, Adding 4,600 Homes**\
 `The plan, approved by the City Council, focuses on boosting residential development and job growth in a 21-block area along Atlantic Avenue in Crown Heights and Bedford-Stuyvesant.`\
 https://nytimes.com/2025/05/28/nyregion/atlantic-avenue-apartments.html
-
-**Storm Winds Blanket Australia in Thick Dust**\
-`A dust storm filled Australian skies with an orange haze caused by long-term drought conditions in parts of Australia.`\
-https://nytimes.com/video/world/australia/100000010194758/storm-winds-blanket-australia-in-thick-dust.html
-
-**Tiger Woods' son Charlie wins his first AJGA tournament**\
-`With scores of 70-65-66, Woods' victory at the top-level junior event marks his best accomplishment in amateur golf thus far.`\
-https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-junior-golf/
 
