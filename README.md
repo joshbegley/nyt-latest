@@ -1,40 +1,40 @@
-**Iga Swiatek returns to the French Open and finds her best tennis self to start**\
-`Roland Garros is integral to Świątek's tennis self. So far in her title defense, she has looked much more like it.`\
-https://nytimes.com/athletic/6383579/2025/05/28/tennis-iga-swiatek-french-open-record-analysis/
+**'The brutal, honest truth' about the Falcons' international kicking competition**\
+`Falcons veteran kicker Younghoe Koo has some interesting competition this offseason — 22-year-old Lenny Krieg from Germany.`\
+https://nytimes.com/athletic/6386064/2025/05/28/falcons-kicking-competition-younghoe-koo-lenny-krieg/
 
-**Fernando Tatis Jr.’s recent slump is a ‘good combination’ of the mechanical and mental**\
-`Tatis ended a career-long streak of games without multiple hits in Tuesday's 8-6 win over the Marlins.`\
-https://nytimes.com/athletic/6384150/2025/05/28/padres-fernando-tatis-jr-slump/
+**Bills OTAs observations: Bosa already sidelined, Bishop starts fresh, Puntapalooza is on**\
+`Coach Sean McDermott acknowledged that Joey Bosa's spring setback is "concerning, plus the Bills' new receivers looked good in practice.`\
+https://nytimes.com/athletic/6386124/2025/05/28/bills-otas-joey-bosa-cole-bishop/
 
-**Austin Wells has Yankees' first facial hair superstition since beard policy change**\
-`Before Opening Day, Wells and catching coach Tanner Swanson made a pact. They would only shave when the team lost a series.`\
-https://nytimes.com/athletic/6387239/2025/05/28/austin-wells-yankees-facial-hair-superstition/
+**As Aaron Rodgers saga continues, Mason Rudolph leads Steelers offense ... for now**\
+`The 29-year-old Rudolph is back with the Steelers, but as OTAs get underway and amid the Rodgers rumors, how long will he remain QB1?`\
+https://nytimes.com/athletic/6386220/2025/05/28/steelers-qb-aaron-rodgers-mason-rudolph/
 
-**Cronuts and ‘Pizza Rat’: New York, as Told Through Its Dining Scene**\
-`A new project by the Food section explores how events, trends, restaurants and chefs have defined the city’s culinary scene in the 21st century (so far).`\
-https://nytimes.com/2025/05/28/insider/new-york-restaurants.html
+**The Growing Scandal of $TRUMP**\
+`The investigative reporter Zeke Faux traces the crypto ventures of President Trump and his family.`\
+https://nytimes.com/2025/05/28/opinion/ezra-klein-podcast-zeke-faux.html
 
-**Word of the Day: tempestuous**\
-`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/28/learning/word-of-the-day-tempestuous.html
+**Cuomo Proposes $20 Minimum Wage for New York City**\
+`Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, will announce a plan to raise the city’s minimum wage to $20 an hour by 2027.`\
+https://nytimes.com/2025/05/28/nyregion/cuomo-minimum-wage-20-dollar.html
 
-**Mamdani Has a Thin Legislative Record but Is a Forceful Voice in Albany**\
-`In Assemblyman Zohran Mamdani’s four-plus years in the New York State Capitol, only three of his bills have become law. His influence is comparatively greater.`\
-https://nytimes.com/2025/05/28/nyregion/mamdani-record-albany-mayor.html
+**What It’s Like on the Ground at the Sean Combs Trial**\
+`Now entering its third week, the complex case can only be experienced directly by those at the courthouse each day. Our reporters break it down.`\
+https://nytimes.com/2025/05/28/arts/music/what-its-like-on-the-ground-at-the-sean-combs-trial.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/28/crosswords/spelling-bee-forum.html
+**Harvard Relents After Protracted Fight Over Slave Photos**\
+`A legal battle between Harvard and a woman who says two slave portraits are of her ancestors will end in a settlement, with the photos going to a Black history museum in South Carolina.`\
+https://nytimes.com/2025/05/28/harvard-slavery-daguerreotypes-lawsuit.html
 
-**SpaceX’s Starship Has Smooth Launch but Uncontrolled Reentry**\
-`The spacecraft sprang a propellant leak, causing it to break apart and scatter debris in the Indian Ocean.`\
-https://nytimes.com/video/science/space/100000010193649/spacex-starship-launch-elon-musk-mars.html
+**First Love Mixtape: Side A (Encore)**\
+`What is the song you were obsessed with as a teenager?`\
+https://nytimes.com/2025/05/28/podcasts/love-soundtrack-music.html
 
-**Kirsten Heukels - Manchester United 'body language' expert criticised by Ratcliffe tells of her role in FA Cup glory**\
-`Ratcliffe spoke dismissively of United's 'body language consultant' but Kirsten Heukels tells The Athletic she is proud of what she achieved`\
-https://nytimes.com/athletic/6380839/2025/05/28/kirsten-heukels-manchester-united-body-language-expert-criticised-by-ratcliffe-tells-of-her-role-in-fa-cup-glory/
+**Another Arrest in Crypto Kidnapping and Torture Case**\
+`The authorities said a man was held captive and tortured in a Manhattan townhouse for weeks by people seeking the password to his Bitcoin wallet.`\
+https://nytimes.com/2025/05/28/nyregion/bitcoin-kidnapping-torture-arrest.html
 
-**Oilers celebrate but know things will be tough without Zach Hyman: 'He means everything'**\
-`"Part of it felt like we were doing it for Zach," Ryan Nugent-Hopkins said of the victory over the Stars.`\
-https://nytimes.com/athletic/6387253/2025/05/28/oilers-hyman-injury-game-4/
+**‘The Counterfeit Opera’ Comes Together Like a Madcap Caper**\
+`Little Island’s season opens with a musical, inspired by “The Beggar’s Opera” and “The Threepenny Opera,” that was essentially written in six months.`\
+https://nytimes.com/2025/05/28/arts/music/counterfeit-opera-little-island.html
 
