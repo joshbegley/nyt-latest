@@ -1,3 +1,7 @@
+**Farewell to the New Look. Or Ghosts of Dior Past**\
+`Assessing Maria Grazia Chiuri’s likely final collection — and how she changed Dior.`\
+https://nytimes.com/2025/05/28/style/dior-cruise-maria-grazia-chiuri-final-show.html
+
 **Turkey Cracks Down on Fliers Who Stand Up Too Soon, Threatening Fines**\
 `As of this month, passengers who stand before planes fully stop may be fined by the Turkish government.`\
 https://nytimes.com/2025/05/28/world/europe/turkey-airplane-passengers-fine-stand-up.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385327/2025/05/28/upper-deck-the-cup-patch-swappin
 **Pacers keep foot on gas, stay perfect in Game 4s as they push Knicks to brink**\
 `After blowing a big lead in Game 3, Indiana got back to its style. "Let's get it in, and let's run."`\
 https://nytimes.com/athletic/6387429/2025/05/28/pacers-game-4-knicks-east-finals-tyrese-haliburton/
-
-**Presenting the Astros' All-Quarter Century Team, the best in Houston since 2000**\
-`With the Killer B's and the talented World Series-winning teams from recent seasons, it's difficult to choose who should be on this squad. `\
-https://nytimes.com/athletic/6380088/2025/05/28/houston-astros-quarter-century-team/
 
