@@ -1,3 +1,11 @@
+**Oilers' Zach Hyman ruled out of Game 4 with injury**\
+`Hyman left Game 4 of the Western Conference final after a collision in the first period.`\
+https://nytimes.com/athletic/6386711/2025/05/27/zach-hyman-injury-oilers/
+
+**Chargers OTA observations: No Rashawn Slater; CB competition heats up**\
+`Only three players missed Tuesday’s optional practice: tackle Rashawn Slater, offensive lineman Trey Pipkins III and edge rusher Bud Dupree.`\
+https://nytimes.com/athletic/6386630/2025/05/27/chargers-ota-rashawn-slater-cornerback-competition/
+
 **Trump to Pardon Reality-Show Couple Convicted of $36 Million Fraud**\
 `The clemency for Todd and Julie Chrisley, the stars of “Chrisley Knows Best,” is Mr. Trump’s latest gift to people he calls victims of a weaponized justice system.`\
 https://nytimes.com/2025/05/27/us/politics/trump-chrisley-pardon.html

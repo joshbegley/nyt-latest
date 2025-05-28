@@ -1,3 +1,11 @@
+**Oilers' Zach Hyman ruled out of Game 4 with injury**\
+`Hyman left Game 4 of the Western Conference final after a collision in the first period.`\
+https://nytimes.com/athletic/6386711/2025/05/27/zach-hyman-injury-oilers/
+
+**Chargers OTA observations: No Rashawn Slater; CB competition heats up**\
+`Only three players missed Tuesday’s optional practice: tackle Rashawn Slater, offensive lineman Trey Pipkins III and edge rusher Bud Dupree.`\
+https://nytimes.com/athletic/6386630/2025/05/27/chargers-ota-rashawn-slater-cornerback-competition/
+
 **Trump to Pardon Reality-Show Couple Convicted of $36 Million Fraud**\
 `The clemency for Todd and Julie Chrisley, the stars of “Chrisley Knows Best,” is Mr. Trump’s latest gift to people he calls victims of a weaponized justice system.`\
 https://nytimes.com/2025/05/27/us/politics/trump-chrisley-pardon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6386504/2025/05/27/pga-tour-championship-starting-s
 **Marshals’ Data Shows Spike in Threats Against Federal Judges**\
 `Data gathered by the law enforcement agency responsible for judicial security showed 162 judges faced threats between March 1 and April 14.`\
 https://nytimes.com/2025/05/27/us/politics/federal-judges-threats.html
-
-**Bitten by Alligator, Man Is Killed After Charging at Deputies, Sheriff Says**\
-`The authorities say that Timothy Schulz, 42, of Mulberry, Fla., swam across an alligator-filled lake before a violent encounter with deputies in the neighborhood.`\
-https://nytimes.com/2025/05/27/us/florida-man-alligator-bite-killed.html
-
-**Slot thanks emergency services after 'shocking incident' at Liverpool title parade**\
-`Slot did not attend Tuesday's LMA awards dinner in solidarity with those impacted by Monday's incident at the club's title parade.`\
-https://nytimes.com/athletic/6386429/2025/05/27/slot-liverpool-title-parade-car-collision/
 
