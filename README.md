@@ -1,3 +1,11 @@
+**Crime Has Plummeted. So Why Don’t Americans Feel Safe?**\
+`We are learning an important lesson about the politics of crime.`\
+https://nytimes.com/2025/05/28/opinion/murder-crime-safety.html
+
+**German Court Dismisses a Climate Suit but Opens the Door to Future Cases**\
+`The judges ruled that German civil law could be used to hold companies accountable for the worldwide effects of their emissions.`\
+https://nytimes.com/2025/05/28/climate/rwe-lawsuit-peru-farmer-germany.html
+
 **Checks on Migrant Children by Homeland Security Agents Stir Fear**\
 `Agents are showing up unannounced to interview minors in what the government calls “wellness checks.” Critics see the visits as part of the immigration crackdown.`\
 https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388501/2025/05/28/nba-phoenix-suns-coach-candidate
 **Judge Finds Government Acted Illegally in Russian Scientist Case**\
 `The judge said a customs officer had acted improperly in stripping Kseniia Petrova, a researcher at Harvard Medical School, of her visa after she failed to declare research samples she was carrying into the country.`\
 https://nytimes.com/2025/05/28/science/russian-scientist-harvard-charges.html
-
-**French Doctor Who Sexually Abused Children Gets Maximum Sentence**\
-`Joël Le Scouarnec, a former surgeon, confessed to abusing at least 299 people, mostly children, and was sentenced to 20 years in prison. Some of the abuse victims expressed disappointment, saying they had hoped that Mr. Le Scouarnec would receive an exemplary sentence.`\
-https://nytimes.com/video/world/europe/100000010194745/france-doctor-child-abuse-sentencing.html
-
-**Your Cat May or May Not Love You, but It Knows Your Scent**\
-`Scientists found a way to get 30 kitties to cooperate with a study exploring the power of the feline scent of smell.`\
-https://nytimes.com/2025/05/28/science/cat-scent-humans.html
 

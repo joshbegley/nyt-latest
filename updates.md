@@ -1,3 +1,7 @@
+**Checks on Migrant Children by Homeland Security Agents Stir Fear**\
+`Agents are showing up unannounced to interview minors in what the government calls “wellness checks.” Critics see the visits as part of the immigration crackdown.`\
+https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html
+
 **Fed ‘Well Positioned’ to Wait on Rate Cuts Even as Economic Risks Rise, Minutes Show**\
 `Officials at the Federal Reserve have adopted a wait-and-see approach to policy moves amid extreme uncertainty about the economic outlook.`\
 https://nytimes.com/2025/05/28/business/fed-interest-rates-inflation-tariffs.html

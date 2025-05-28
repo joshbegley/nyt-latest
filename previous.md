@@ -1,3 +1,7 @@
+**Checks on Migrant Children by Homeland Security Agents Stir Fear**\
+`Agents are showing up unannounced to interview minors in what the government calls “wellness checks.” Critics see the visits as part of the immigration crackdown.`\
+https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html
+
 **Fed ‘Well Positioned’ to Wait on Rate Cuts Even as Economic Risks Rise, Minutes Show**\
 `Officials at the Federal Reserve have adopted a wait-and-see approach to policy moves amid extreme uncertainty about the economic outlook.`\
 https://nytimes.com/2025/05/28/business/fed-interest-rates-inflation-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010194745/france-doctor-child-abuse
 **Your Cat May or May Not Love You, but It Knows Your Scent**\
 `Scientists found a way to get 30 kitties to cooperate with a study exploring the power of the feline scent of smell.`\
 https://nytimes.com/2025/05/28/science/cat-scent-humans.html
-
-**Rabbi Sholom Lipskar, 78, Dies; Transformed Miami and Helped Jews in Prison**\
-`A charismatic figure in the Chabad-Lubavitch movement, he opened a synagogue in South Florida, unifying the Jewish community there, and founded the Aleph Institute.`\
-https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
 
