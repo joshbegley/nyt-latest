@@ -1,3 +1,19 @@
+**Trump Says Harvard Should Limit Acceptance of International Students**\
+`The school has so far resisted considerable pressure from the Trump administration to enact other policy changes.`\
+https://nytimes.com/2025/05/28/us/politics/trump-harvard-international-students.html
+
+**U.S. Pauses Exports of Jet Engine Technology and Chip Software to China**\
+`President Trump has stopped some critical products and technologies made only in the United States from flowing to China, flexing the government’s power over global supply chains.`\
+https://nytimes.com/2025/05/28/business/economy/jet-engine-chip-software-exports-to-china.html
+
+**Jerome Ringo, Outspoken Advocate for Environmental Justice, Dies at 70**\
+`After working in the petrochemical industry, he devoted himself to environmental activism — and to creating an inclusive movement that looked “more like America.”`\
+https://nytimes.com/2025/05/28/climate/jerome-ringo-dead.html
+
+**Commanders OTA practice features a 'little bit thicker' version of Jayden Daniels**\
+`The 2024 Offensive Rookie of the Year appeared a smidge bulkier at the start of Washington's organized team activities. `\
+https://nytimes.com/athletic/6389061/2025/05/28/commanders-jayden-daniels-organized-team-activities/
+
 **Harvard Fight Illustrates Trump’s Worldview: If He Attacks, It’s Your Fault**\
 `Since regaining the White House, President Trump has been fixated on making an example of those who push back against him.`\
 https://nytimes.com/2025/05/28/us/politics/harvard-university-trump-administration.html
