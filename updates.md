@@ -1,3 +1,11 @@
+**Storm Winds Blanket Australia in Thick Dust**\
+`A dust storm filled Australian skies with an orange haze caused by long-term drought conditions in parts of Australia.`\
+https://nytimes.com/video/world/australia/100000010194758/storm-winds-blanket-australia-in-thick-dust.html
+
+**Tiger Woods' son Charlie wins his first American Junior Golf tournament**\
+`With scores of 70-65-66, Woods' victory at the top-level junior event marks his best accomplishment in amateur golf thus far.`\
+https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-junior-golf/
+
 **Crime Has Plummeted. So Why Don’t Americans Feel Safe?**\
 `We are learning an important lesson about the politics of crime.`\
 https://nytimes.com/2025/05/28/opinion/murder-crime-safety.html
