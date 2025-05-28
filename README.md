@@ -1,3 +1,7 @@
+**Breece Hall, Bucky Irving and more fantasy football dynasty league buys and sells**\
+`Jeff Haverlack offers up his top players to be looking to buy or sell in dynasty leagues ahead of the 2025 fantasy football campaign.`\
+https://nytimes.com/athletic/6388227/2025/05/28/fantasy-football-dynasty-buys-sells/
+
 **Welcome to Wrexham documentary series renewed for fifth season**\
 `Broadcast in the U.S. on FX and on Disney+ in the UK, the show has proved a huge hit since first airing in 2022.`\
 https://nytimes.com/athletic/6388444/2025/05/28/welcome-to-wrexham-documentary-season-five/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/australia/100000010194419/dust-storm-turns-austr
 **Mike White to Return to ‘Survivor’ for Its 50th Season**\
 `The “White Lotus” creator and noted reality-television aficionado first competed on the show in 2018.`\
 https://nytimes.com/2025/05/28/arts/television/survivor-50-cast-mike-white.html
-
-**The Windup: What's it really like in Sacramento?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6387278/2025/05/28/sacramento-as-stadium-tickets-the-windup/
 
