@@ -1,3 +1,7 @@
+**Giants takeaways: They are a lot like the Tigers, except for one big thing**\
+`The Giants and Tigers have a lot of commonalities on their rosters, but their success with first-round picks sets the Tigers apart.`\
+https://nytimes.com/athletic/6388581/2025/05/28/sf-giants-tigers-comparison/
+
 **Santos’s Treasurer Avoids Prison for Her Role in His Schemes**\
 `Nancy Marks was sentenced to probation after pleading guilty to one count of criminal conspiracy in connection with her work for former Representative George Santos.`\
 https://nytimes.com/2025/05/28/nyregion/nancy-marks-santos-bookkeeper.html

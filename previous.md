@@ -1,3 +1,7 @@
+**Giants takeaways: They are a lot like the Tigers, except for one big thing**\
+`The Giants and Tigers have a lot of commonalities on their rosters, but their success with first-round picks sets the Tigers apart.`\
+https://nytimes.com/athletic/6388581/2025/05/28/sf-giants-tigers-comparison/
+
 **Santos’s Treasurer Avoids Prison for Her Role in His Schemes**\
 `Nancy Marks was sentenced to probation after pleading guilty to one count of criminal conspiracy in connection with her work for former Representative George Santos.`\
 https://nytimes.com/2025/05/28/nyregion/nancy-marks-santos-bookkeeper.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6387881/2025/05/28/hockey-canada-sexual-assault-tri
 **To Win Pardons, Trump Allies Echo His Claims of Political Prosecutions**\
 `The president is increasingly using his clemency powers to undermine Justice Department cases against his supporters.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons-clemency.html
-
-**Judge Says Law Used to Detain Khalil Is Probably Unconstitutional**\
-`Mahmoud Khalil, a Columbia graduate, was targeted for deportation because the Trump administration said he impeded its foreign policy. He will still be held in Louisiana.`\
-https://nytimes.com/2025/05/28/nyregion/mahmoud-khalil-deportation-ruling.html
 
