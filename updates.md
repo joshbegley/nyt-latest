@@ -1,3 +1,19 @@
+**Morris suffers ACL injury on first senior England call-up**\
+`Morris, 22, was given her first call-up for England's Nations League matches against Portugal on May 30 and against Spain four days later.`\
+https://nytimes.com/athletic/6388103/2025/05/28/england-squad-ella-morris-injury/
+
+**Japan’s Debt, Now Twice the Size of Its Economy, Forces Hard Choices**\
+`Japan’s government faces pressure to curtail debt-fueled spending that some argue has staved off populist waves.`\
+https://nytimes.com/2025/05/28/business/japan-debt.html
+
+**The Ballet Kids of ‘Midsummer’ Bring Magic to the Bugs**\
+`It could be that the youngest dancers are the real stars of “A Midsummer Night’s Dream” at New York City Ballet.`\
+https://nytimes.com/2025/05/28/arts/dance/midsummer-nights-dream-balanchine-kids-bugs.html
+
+**A Clever One-Pot Salmon Dinner to Make Again and Again**\
+`This miso-turmeric salmon with coconut rice has a smart structure that you can retool to your liking.`\
+https://nytimes.com/2025/05/28/dining/a-clever-one-pot-salmon-dinner-to-make-again-and-again.html
+
 **Musk ‘Disappointed’ With Major Trump Policy Bill, Saying It Will Increase Deficit**\
 `Elon Musk also said the Republican bill, which passed the House last week, would undermine the work of his DOGE group.`\
 https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-spending-bill-doge.html

@@ -1,3 +1,19 @@
+**Morris suffers ACL injury on first senior England call-up**\
+`Morris, 22, was given her first call-up for England's Nations League matches against Portugal on May 30 and against Spain four days later.`\
+https://nytimes.com/athletic/6388103/2025/05/28/england-squad-ella-morris-injury/
+
+**Japan’s Debt, Now Twice the Size of Its Economy, Forces Hard Choices**\
+`Japan’s government faces pressure to curtail debt-fueled spending that some argue has staved off populist waves.`\
+https://nytimes.com/2025/05/28/business/japan-debt.html
+
+**The Ballet Kids of ‘Midsummer’ Bring Magic to the Bugs**\
+`It could be that the youngest dancers are the real stars of “A Midsummer Night’s Dream” at New York City Ballet.`\
+https://nytimes.com/2025/05/28/arts/dance/midsummer-nights-dream-balanchine-kids-bugs.html
+
+**A Clever One-Pot Salmon Dinner to Make Again and Again**\
+`This miso-turmeric salmon with coconut rice has a smart structure that you can retool to your liking.`\
+https://nytimes.com/2025/05/28/dining/a-clever-one-pot-salmon-dinner-to-make-again-and-again.html
+
 **Musk ‘Disappointed’ With Major Trump Policy Bill, Saying It Will Increase Deficit**\
 `Elon Musk also said the Republican bill, which passed the House last week, would undermine the work of his DOGE group.`\
 https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-spending-bill-doge.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/05/28/style/dior-cruise-maria-grazia-chiuri-final-show.
 **Turkey Cracks Down on Fliers Who Stand Up Too Soon, Threatening Fines**\
 `As of this month, passengers who stand before planes fully stop may be fined by the Turkish government.`\
 https://nytimes.com/2025/05/28/world/europe/turkey-airplane-passengers-fine-stand-up.html
-
-**Fulham and USMNT's Robinson undergoes minor knee surgery**\
-`Fulham confirmed the 27-year-old had undergone the operation on his right knee on Tuesday.`\
-https://nytimes.com/athletic/6387779/2025/05/28/antonee-robinson-knee-surgery/
-
-**Inside Paul Mitchell's Newcastle exit: Internal shock, Reuben's reluctance and the Howe dynamic**\
-`The sporting director's absence was first discussed internally weeks ago but even those who knew it was possible were taken aback`\
-https://nytimes.com/athletic/6387324/2025/05/28/paul-mitchell-newcastle-exit-inside-story/
-
-**Lea Michele Resuscitated ‘Funny Girl.’ Her Next Move Is ‘Chess.’**\
-`The “Glee” star will join Aaron Tveit and Nicholas Christopher next fall in a Broadway revival of an Abba-adjacent Cold War musical.`\
-https://nytimes.com/2025/05/28/theater/chess-broadway-lea-michele.html
-
-**I Am Struggling With Infertility. Can I Skip My Sister-in-Law’s Baby Shower?**\
-`A reader worries that a celebration for her pregnant sister-in-law, with whom she once commiserated about fertility woes, may be too much to handle.`\
-https://nytimes.com/2025/05/28/style/infertility-baby-showers.html
 

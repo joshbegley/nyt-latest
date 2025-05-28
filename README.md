@@ -1,5 +1,9 @@
+**A Fungus Devastated North American Bats. A New Species Could Deliver a Killer Blow.**\
+`Scientists have learned that another species of fungus found in Europe and Asia causes white-nose disease, which has ravaged bat populations in the United States and Canada.`\
+https://nytimes.com/2025/05/28/science/bats-white-nose-fungus.html
+
 **Morris suffers ACL injury on first senior England call-up**\
-`Morris, 22, was given her first call-up for England's Nations League matches against Portugal on May 30 and against Spain four days later.`\
+`Manchester City midfielder Laura Blindkilde Brown has been called up to replace the 22-year-old.`\
 https://nytimes.com/athletic/6388103/2025/05/28/england-squad-ella-morris-injury/
 
 **Japan’s Debt, Now Twice the Size of Its Economy, Forces Hard Choices**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/05/28/world/asia/sumo-yokozuna-onosato-daiki-japan.html
 **Farewell to the New Look. Or Ghosts of Dior Past**\
 `Assessing Maria Grazia Chiuri’s likely final collection — and how she changed Dior.`\
 https://nytimes.com/2025/05/28/style/dior-cruise-maria-grazia-chiuri-final-show.html
-
-**Turkey Cracks Down on Fliers Who Stand Up Too Soon, Threatening Fines**\
-`As of this month, passengers who stand before planes fully stop may be fined by the Turkish government.`\
-https://nytimes.com/2025/05/28/world/europe/turkey-airplane-passengers-fine-stand-up.html
 
