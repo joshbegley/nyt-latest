@@ -1,3 +1,19 @@
+**Luis Enrique and his daughter Xana, the star that guides him**\
+`Six years after Xana's death, it is clear that the PSG coach carries his daughter with him — not merely as a memory but as a presence`\
+https://nytimes.com/athletic/6383610/2025/05/28/luis-enrique-daughter-xana/
+
+**The Premier League satisfaction-o-meter 2024-25: Joy, misery and gallows humour**\
+`We surveyed our subscribers for every Premier League club asking them how they felt this season had gone`\
+https://nytimes.com/athletic/6384799/2025/05/28/premier-league-satisfaction-o-meter-2024-25/
+
+**Wrexham are looking to Premier League players to get them promoted for fourth year in a row**\
+`Manager Phil Parkinson explains the pros and cons of making loan signings from the top flight to help his 2025-26 Championship challenge`\
+https://nytimes.com/athletic/6382889/2025/05/28/parkinson-wrexham-loans-premier-league/
+
+**Lamine Yamal's new Barcelona contract - inside the deal that could be worth nearly €40m a year**\
+`Yamal does not turn 18 until July 13 but he has signed a new deal until 2031 that with bonuses can make him Barcelona's highest paid player`\
+https://nytimes.com/athletic/6384986/2025/05/28/lamine-yamal-new-barcelona-contract-40m/
+
 **What happens when clubs are obsessed with winning a first Champions League**\
 `PSG have been driven by dreams of European glory for years, like plenty of clubs before them. Now, they have the chance to end the long wait`\
 https://nytimes.com/athletic/6384836/2025/05/28/psg-champions-league-first-time-winners/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6381379/2025/05/28/tennis-victoria-mboko-results-re
 **Chelsea Conference League final key questions: How important is it? Who starts? Predictions?**\
 `The Athletic's Simon Johnson and Liam Twomey had one of their cosy chats before Chelsea's Conference League final `\
 https://nytimes.com/athletic/6384082/2025/05/28/chelsea-conference-league-final-analysis/
-
-**How Russia’s Invasion of Ukraine Transformed a Fake War in Oklahoma**\
-`In the U.S., the re-enactment of historical battles has long been a niche hobby. But fake battles that echo an ongoing war are a relatively recent phenomenon.`\
-https://nytimes.com/2025/05/28/us/russia-ukraine-war-military-simulation-oklahoma.html
-
-**As Trump Seeks Iran Deal, Israel Again Raises Possible Strikes on Nuclear Sites**\
-`Prime Minister Benjamin Netanyahu, wary of a diplomatic solution to curbing Iran’s nuclear program, continues to press for military action that would upend President Trump’s push for a negotiated deal.`\
-https://nytimes.com/2025/05/28/us/politics/as-trump-seeks-iran-deal-israel-again-raises-possible-strikes-on-nuclear-sites.html
-
-**Surviving a Fake War in Oklahoma**\
-`An airsoft event revealed to a reporter a “strange level of dissonance” among participants, some of whom wore the uniforms of Russian soldiers.`\
-https://nytimes.com/2025/05/28/insider/surviving-a-fake-war-in-oklahoma.html
-
-**Connections: Sports Edition Coach: Hints for May 28, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6386186/2025/05/28/connections-sports-edition-hints-for-may-28-2025/
 
