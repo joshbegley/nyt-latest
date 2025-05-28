@@ -1,3 +1,7 @@
+**Dust Storm Turns Australian Skies Orange**\
+`A dust storm this week turned the skies in South Australia a hazy orange, reducing visibility and prompting health warnings.`\
+https://nytimes.com/video/world/australia/100000010194419/dust-storm-turns-australian-skies-orange.html
+
 **Mike White to Return to ‘Survivor’ for Its 50th Season**\
 `The “White Lotus” creator and noted reality-television aficionado first competed on the show in 2018.`\
 https://nytimes.com/2025/05/28/arts/television/survivor-50-cast-mike-white.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6387612/2025/05/28/scott-mctominay-meet-pope-napoli
 **'It's part of an ambush': Why every tennis champion needs a drop shot in their arsenal**\
 `Once seen as a cop-out or a party trick, the drop shot has become a vital tactic in the men's and women's game.`\
 https://nytimes.com/athletic/6384608/2025/05/28/tennis-drop-shot-how-why-best-players/
-
-**Looking back to look forward: Champions League final trends you can bet on**\
-`Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
-`\
-https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
 
