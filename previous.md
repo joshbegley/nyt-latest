@@ -1,3 +1,7 @@
+**Crime Rings Plotted to Trade Cocaine for Syrian Weapons, Prosecutors Say**\
+`The intricate scheme, spanning four continents, appears to justify concerns that the military arsenal of Bashar al-Assad, the deposed Syrian dictator, could fall into dangerous hands.`\
+https://nytimes.com/2025/05/28/world/middleeast/syria-eln-cocaine-weapons.html
+
 **The Bounce: About Tyrese Haliburton's superstar leap**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6387890/2025/05/28/tyrese-haliburton-pacers-knicks-the-bounce/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6386473/2025/05/28/astros-ronel-blanco-elbow-surger
 **A Friend Bought Crypto for My Newborn Baby. Do I Have to Hold on to It?**\
 `He’s a crypto bro, and I am extremely skeptical.`\
 https://nytimes.com/2025/05/28/magazine/crypto-bitcoin-gift-ethics.html
-
-**Arsenal mailbag: Zubimendi latest, Nwaneri, Lewis-Skelly contracts, Martinez links**\
-`What's happening with Zubimendi? Is a wide forward an option in addition to a central striker? What are the goalkeeper options?`\
-https://nytimes.com/athletic/6388028/2025/05/28/arsenal-transfers-zubimendi-nwaneri/
 
