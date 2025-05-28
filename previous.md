@@ -1,3 +1,11 @@
+**Sam Reinhart expected back for Game 5 as Panthers get positive injury news — and Hurricanes do not**\
+`Niko Mikkola and A.J. Greer are also expected back for Florida while Jalen Chatfield and Sean Walker are not for Carolina.`\
+https://nytimes.com/athletic/6388418/2025/05/28/sam-reinhart-panthers-hurricanes-injuries/
+
+**A Missouri Town Was Solidly Behind Trump. Then Carol Was Detained.**\
+`For 20 years, Carol Hui has served waffles, raised her children and embraced the small town of Kennett, Mo. Her detention and pending deportation to Hong Kong has hit the community hard.`\
+https://nytimes.com/2025/05/28/us/missouri-immigrant-trump.html
+
 **What’s in Our Queue? Sturgill Simpson and More **\
 `Text by Tripp Mickle`\
 https://nytimes.com/card/2025/05/28/arts/editors-recommendations-sturgillsimpson
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/theater/willem-dafoe-venice-theater-biennale.html
 **Shawn Kemp may face jail time after guilty plea for role in 2023 shooting**\
 `Kemp pleaded guilty to second-degree assault for shooting at two men in a vehicle while trying to recover his stolen property.`\
 https://nytimes.com/athletic/6388040/2025/05/28/shawn-kemp-plea-guilty-assault-shooting/
-
-**Mexican clubs allege FMF retaliation amid fight to reinstate pro-rel**\
-`Liga MX and the FMF have a battle on their hands with the remaining Liga Expansión clubs that are part of a suit filed to CAS.`\
-https://nytimes.com/athletic/6388033/2025/05/28/mexico-promotion-relegation-liga-mx-expansion/
-
-**Crime Rings Plotted to Trade Cocaine for Syrian Weapons, Prosecutors Say**\
-`The intricate scheme, spanning four continents, appears to justify concerns that the military arsenal of Bashar al-Assad, the deposed Syrian dictator, could fall into dangerous hands.`\
-https://nytimes.com/2025/05/28/world/middleeast/syria-eln-cocaine-weapons.html
 

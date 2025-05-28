@@ -1,3 +1,11 @@
+**Sam Reinhart expected back for Game 5 as Panthers get positive injury news — and Hurricanes do not**\
+`Niko Mikkola and A.J. Greer are also expected back for Florida while Jalen Chatfield and Sean Walker are not for Carolina.`\
+https://nytimes.com/athletic/6388418/2025/05/28/sam-reinhart-panthers-hurricanes-injuries/
+
+**A Missouri Town Was Solidly Behind Trump. Then Carol Was Detained.**\
+`For 20 years, Carol Hui has served waffles, raised her children and embraced the small town of Kennett, Mo. Her detention and pending deportation to Hong Kong has hit the community hard.`\
+https://nytimes.com/2025/05/28/us/missouri-immigrant-trump.html
+
 **What’s in Our Queue? Sturgill Simpson and More **\
 `Text by Tripp Mickle`\
 https://nytimes.com/card/2025/05/28/arts/editors-recommendations-sturgillsimpson
