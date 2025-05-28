@@ -1,3 +1,11 @@
+**Manhattanhenge Through a Lens: Tips for Getting the Perfect Shot**\
+`A professional photographer shares his best lessons from a decade of capturing Manhattanhenge.`\
+https://nytimes.com/2025/05/28/nyregion/manhattanhenge-photography-tips.html
+
+**Giants remove Ryan Walker from closer's role, turn back to Camilo Doval**\
+`Walker took over the closer's role from Doval last season but he's struggled while Doval has dominated thus far this year.`\
+https://nytimes.com/athletic/6389048/2025/05/28/sf-giants-closer-ryan-walker-camilo-doval/
+
 **Watch: Is Tyrese Haliburton proving his NBA doubters wrong?**\
 `"The Athletic NBA Daily" discussed the Indiana Pacers' Game 4 win over the New York Knicks to take a 3-1 series lead.`\
 https://nytimes.com/athletic/6388319/2025/05/28/tyrese-haliburton-pacers-knicks-nba-daily/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010194314/israel-un-aid-gaza.ht
 **Mount Everest’s Record-Setting Sherpa Sees a Future of Snowless Mountains and Fewer Guides**\
 `Kami Rita Sherpa scaled Mount Everest for the 31st time on Tuesday. We spoke to him about what is next for the mountain.`\
 https://nytimes.com/2025/05/28/world/europe/mount-everest-xenon-sherpa-climate-change.html
-
-**The Briefing - Chelsea 4 Real Betis 1: Conference League completes the set**\
-`Chelsea won the Conference League on Wednesday night by beating Real Betis 4-1`\
-https://nytimes.com/athletic/6388733/2025/05/28/chelsea-real-betis-result-report-analysis/
-
-**Kristian Campbell expected to start at first base this weekend: 'Credit to him'**\
-`Campbell has moved around the field as a rookie but he's never played a professional game at any level at first base.`\
-https://nytimes.com/athletic/6388641/2025/05/28/kristian-campbell-red-sox-first-base-debut/
 
