@@ -1,3 +1,11 @@
+**Iga Swiatek returns to the French Open and finds her best tennis self to start**\
+`Roland Garros is integral to Świątek's tennis self. So far in her title defense, she has looked much more like it.`\
+https://nytimes.com/athletic/6383579/2025/05/28/tennis-iga-swiatek-french-open-record-analysis/
+
+**Fernando Tatis Jr.’s recent slump is a ‘good combination’ of the mechanical and mental**\
+`Tatis ended a career-long streak of games without multiple hits in Tuesday's 8-6 win over the Marlins.`\
+https://nytimes.com/athletic/6384150/2025/05/28/padres-fernando-tatis-jr-slump/
+
 **Austin Wells has Yankees' first facial hair superstition since beard policy change**\
 `Before Opening Day, Wells and catching coach Tanner Swanson made a pact. They would only shave when the team lost a series.`\
 https://nytimes.com/athletic/6387239/2025/05/28/austin-wells-yankees-facial-hair-superstition/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6380839/2025/05/28/kirsten-heukels-manchester-unite
 **Oilers celebrate but know things will be tough without Zach Hyman: 'He means everything'**\
 `"Part of it felt like we were doing it for Zach," Ryan Nugent-Hopkins said of the victory over the Stars.`\
 https://nytimes.com/athletic/6387253/2025/05/28/oilers-hyman-injury-game-4/
-
-**Doing Business in China Is Getting Harder, but Its Exports Are Hard to Resist**\
-`European companies operating in China say the market has become increasingly challenging because of weak economic demand and opaque government rules on business.`\
-https://nytimes.com/2025/05/28/business/europe-companies-china.html
-
-**LeBrun: The Dallas Stars are built to score. So what's going on?**\
-`"A little bit of the same story, right?" coach Pete DeBoer said after the Stars faltered again in their Game 4 loss to the Oilers.`\
-https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
 

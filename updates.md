@@ -1,3 +1,11 @@
+**Iga Swiatek returns to the French Open and finds her best tennis self to start**\
+`Roland Garros is integral to Świątek's tennis self. So far in her title defense, she has looked much more like it.`\
+https://nytimes.com/athletic/6383579/2025/05/28/tennis-iga-swiatek-french-open-record-analysis/
+
+**Fernando Tatis Jr.’s recent slump is a ‘good combination’ of the mechanical and mental**\
+`Tatis ended a career-long streak of games without multiple hits in Tuesday's 8-6 win over the Marlins.`\
+https://nytimes.com/athletic/6384150/2025/05/28/padres-fernando-tatis-jr-slump/
+
 **Austin Wells has Yankees' first facial hair superstition since beard policy change**\
 `Before Opening Day, Wells and catching coach Tanner Swanson made a pact. They would only shave when the team lost a series.`\
 https://nytimes.com/athletic/6387239/2025/05/28/austin-wells-yankees-facial-hair-superstition/
