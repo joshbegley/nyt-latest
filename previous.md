@@ -1,3 +1,7 @@
+**Fed ‘Well Positioned’ to Wait on Rate Cuts Even as Economic Risks Rise, Minutes Show**\
+`Officials at the Federal Reserve have adopted a wait-and-see approach to policy moves amid extreme uncertainty about the economic outlook.`\
+https://nytimes.com/2025/05/28/business/fed-interest-rates-inflation-tariffs.html
+
 **Lane Kiffin has a simple solution for CFP expansion, but SEC leaders disagree**\
 `Looming College Football Playoff expansion has been the hottest topic at the SEC meetings this week.`\
 https://nytimes.com/athletic/6388394/2025/05/28/sec-college-football-playoff-expansion-lane-kiffin/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/science/cat-scent-humans.html
 **Rabbi Sholom Lipskar, 78, Dies; Transformed Miami and Helped Jews in Prison**\
 `A charismatic figure in the Chabad-Lubavitch movement, he opened a synagogue in South Florida, unifying the Jewish community there, and founded the Aleph Institute.`\
 https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
-
-**Maradona trial in doubt as judge steps down after 'acting like an actress'**\
-`Judge Julieta Makintach said she had “no choice” but to leave the case after appearing in the trailer for the forthcoming documentary series`\
-https://nytimes.com/athletic/6387685/2025/05/28/diego-maradona-trial-judge/
 
