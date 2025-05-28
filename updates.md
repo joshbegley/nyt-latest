@@ -1,3 +1,7 @@
+**Henry: Arsenal should have won more under Arteta**\
+`Arteta won the FA Cup in his first season at the club but has failed to reach a final since then.`\
+https://nytimes.com/athletic/6387603/2025/05/28/thierry-henry-mikel-arteta-arsenal/
+
 **What you need to know about Ohio State's offense: 43 thoughts on 43 playesr**\
 `With both transfer portal windows closed, the Ohio State football roster is likely set. Here's how the new-look offense is shaping up.`\
 https://nytimes.com/athletic/6384904/2025/05/28/ohio-state-football-roster-2025-offense/
