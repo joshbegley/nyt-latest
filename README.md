@@ -1,3 +1,11 @@
+**The Bounce: About Tyrese Haliburton's superstar leap**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6387890/2025/05/28/tyrese-haliburton-pacers-knicks-the-bounce/
+
+**Scott McTominay has conquered Serie A and met the Pope. It's been some week**\
+`McTominay was named MVP as Napoli won the title, and the former Man United player has celebrated accordingly - including at the Vatican`\
+https://nytimes.com/athletic/6387612/2025/05/28/scott-mctominay-meet-pope-napoli-celebrations/
+
 **'It's part of an ambush': Why every tennis champion needs a drop shot in their arsenal**\
 `Once seen as a cop-out or a party trick, the drop shot has become a vital tactic in the men's and women's game.`\
 https://nytimes.com/athletic/6384608/2025/05/28/tennis-drop-shot-how-why-best-players/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/28/magazine/crypto-bitcoin-gift-ethics.html
 **Arsenal mailbag: Zubimendi latest, Nwaneri, Lewis-Skelly contracts, Martinez links**\
 `What's happening with Zubimendi? Is a wide forward an option in addition to a central striker? What are the goalkeeper options?`\
 https://nytimes.com/athletic/6388028/2025/05/28/arsenal-transfers-zubimendi-nwaneri/
-
-**Oilers' Zach Hyman likely to miss rest of playoffs after surgery**\
-`Hyman left Game 4 of the Western Conference final on Tuesday night with an upper-body injury.`\
-https://nytimes.com/athletic/6388215/2025/05/28/zach-hyman-surgery-oilers/
-
-**Tariffs Turn Porsche’s Headwinds Into a ‘Violent Storm’**\
-`The storied sports car maker, which was facing challenges from China and slumping demand for electric cars, now has to grapple with tariffs from the Trump administration.`\
-https://nytimes.com/2025/05/28/business/porsche-tariffs-volkswagen-trump.html
 
