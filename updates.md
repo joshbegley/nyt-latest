@@ -1,3 +1,11 @@
+**16 States Sue Trump Over $1.4 Billion in Science Cuts**\
+`A group of attorneys general, led by Letitia James of New York, argues that National Science Foundation programs are critical for leading in science and technology.`\
+https://nytimes.com/2025/05/28/nyregion/trump-science-funding-lawsuit.html
+
+**Tom Robbins, Versatile Muckraker for The Village Voice, Dies at 76**\
+`He exposed corrupt officials and greedy landlords, and his reporting on prison violence was a finalist for the Pulitzer Prize.`\
+https://nytimes.com/2025/05/28/business/media/tom-robbins-dead.html
+
 **Trump Said He Was ‘Not Happy’ With Putin**\
 `Also, Haiti hired an American military contractor to fight gangs. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/05/28/briefing/trump-putin-haiti-gangs-met-new-wing.html
