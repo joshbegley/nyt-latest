@@ -1,3 +1,7 @@
+**How to watch Fever at Mystics: Indiana plays first game after Caitlin Clark's injury**\
+`Indiana plays its first game without Caitlin Clark. The young Washington Mystics look promising with two strong rookies.`\
+https://nytimes.com/athletic/6385887/2025/05/28/fever-mystics-caitlin-clark-injury-how-to-watch/
+
 **2025 Memorial Tournament odds, DFS picks: Who might challenge Scottie Scheffler?**\
 `Dennis Esser breaks down the field for the PGA Tour's next signature event, starting Thursday.`\
 https://nytimes.com/athletic/6385826/2025/05/28/memorial-tournament-odds-dfs-picks/
