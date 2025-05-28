@@ -1,40 +1,40 @@
-**St. Louis City fires coach Olof Mellberg, seeks return to 'winning culture'**\
-`Coach's style didn't fit "DNA" MLS franchise was trying to establish, leaving team in search of a new coach for second consecutive season.`\
-https://nytimes.com/athletic/6386827/2025/05/27/st-louis-city-fires-coach-olof-mellberg-15-games/
+**Ronaldo, Alexander-Arnold, Pogba and more: Transfers that might happen before Club World Cup**\
+`The Club World Cup starts on June 14, and FIFA have introduced an extra transfer window for teams to sign players ahead of the tournament`\
+https://nytimes.com/athletic/6384488/2025/05/28/club-world-cup-transfer-players-latest/
 
-**Full Time: A stunning goalkeeper retirement**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6386972/2025/05/27/mary-earps-england-retire-full-time/
+**Manhattanhenge Is Back for 2025: When, Where and How to Watch**\
+`It is time once again to head to your nearest crosstown view for New York City’s best annual sunsets, if the weather cooperates.`\
+https://nytimes.com/article/manhattanhenge-2025-time-how-to-watch.html
 
-**State Department Halts Interviews for Student and Exchange Visas**\
-`Secretary of State Marco Rubio issued a cable ordering a pause as the department expands its review of applicants’ social media accounts.`\
-https://nytimes.com/2025/05/27/us/politics/trump-student-visas-interviews.html
+**After winning more matches than most in 2025, Victoria Mboko takes her next step**\
+`Mboko has won 41 matches in 2025, and goes in search of her second at a Grand Slam tournament in Paris. But she's here for the long haul.`\
+https://nytimes.com/athletic/6381379/2025/05/28/tennis-victoria-mboko-results-record/
 
-**With dad in arena, Pacers' Tyrese Haliburton burns Knicks with triple-double**\
-`Haliburton is the first player in NBA playoff history to score at least 30 points with at least 15 assists and zero turnovers.`\
-https://nytimes.com/athletic/6386792/2025/05/27/tyrese-haliburton-triple-double-game-4-pacers-knicks/
+**Chelsea Conference League final key questions: How important is it? Who starts? Predictions?**\
+`The Athletic's Simon Johnson and Liam Twomey had one of their cosy chats before Chelsea's Conference League final `\
+https://nytimes.com/athletic/6384082/2025/05/28/chelsea-conference-league-final-analysis/
 
-**Michael Conforto found a good night amid a brutal start: 'It'll all click'**\
-`Conforto smacked his first home run since April 5 thanks in part to some work with coaches behind the scenes.`\
-https://nytimes.com/athletic/6386832/2025/05/27/dodgers-michael-conforto-guardians/
+**How Russia’s Invasion of Ukraine Transformed a Fake War in Oklahoma**\
+`In the U.S., the re-enactment of historical battles has long been a niche hobby. But fake battles that echo an ongoing war are a relatively recent phenomenon.`\
+https://nytimes.com/2025/05/28/us/russia-ukraine-war-military-simulation-oklahoma.html
 
-**Can the Red Sox fix what ails their broken offense?**\
-`The Red Sox managed just one run in 10 innings in a heartbreaking loss to Milwaukee, continuing a trend of offensive underperformance.`\
-https://nytimes.com/athletic/6386099/2025/05/27/red-sox-offense-woes/
+**As Trump Seeks Iran Deal, Israel Again Raises Possible Strikes on Nuclear Sites**\
+`Prime Minister Benjamin Netanyahu, wary of a diplomatic solution to curbing Iran’s nuclear program, continues to press for military action that would upend President Trump’s push for a negotiated deal.`\
+https://nytimes.com/2025/05/28/us/politics/as-trump-seeks-iran-deal-israel-again-raises-possible-strikes-on-nuclear-sites.html
 
-**After long wait, Wenceel Pérez provides Tigers another sublime moment**\
-`Pérez returned from the 60-day injured list and promptly homered in his first at-bat of the season.`\
-https://nytimes.com/athletic/6386867/2025/05/27/wenceel-perez-tigers-sublime-moment/
+**Surviving a Fake War in Oklahoma**\
+`An airsoft event revealed to a reporter a “strange level of dissonance” among participants, some of whom wore the uniforms of Russian soldiers.`\
+https://nytimes.com/2025/05/28/insider/surviving-a-fake-war-in-oklahoma.html
 
-**Oilers overcome loss of Hyman in Game 4, move within 1 win of Stanley Cup Final: Takeaways**\
-`Leon Draisaitl and Corey Perry scored power-play goals as the Oilers won 4-1 and took a 3-1 series lead.`\
-https://nytimes.com/athletic/6386882/2025/05/27/oilers-stars-game-4/
+**Connections: Sports Edition Coach: Hints for May 28, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6386186/2025/05/28/connections-sports-edition-hints-for-may-28-2025/
 
-**Twins making 'progress' on sale of club, Pohlads sticking to $1.7B price: Sources**\
-`Though the Twins are making progress in finding potential buyers, the Pohlad family remains firm in its desire for a $1.7 billion price tag.`\
-https://nytimes.com/athletic/6386597/2025/05/27/minnesota-twins-sale-pohlad-family-1-7-billion/
+**Corrections: May 28, 2025**\
+`Corrections that appeared in print on Wednesday, May 28, 2025.`\
+https://nytimes.com/2025/05/28/pageoneplus/corrections-may-28-2025.html
 
-**Turned Aside**\
-`What goes up must come down in this puzzle by Peter A. Collins.`\
-https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
+**Quote of the Day: A Mother’s Fear Spurs a Return To Venezuela**\
+`Quotation of the Day for Wednesday, May 28, 2025.`\
+https://nytimes.com/2025/05/27/pageoneplus/quote-of-the-day-a-mothers-fear-spurs-a-return-to-venezuela.html
 

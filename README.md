@@ -1,3 +1,11 @@
+**What happens when clubs are obsessed with winning a first Champions League**\
+`PSG have been driven by dreams of European glory for years, like plenty of clubs before them. Now, they have the chance to end the long wait`\
+https://nytimes.com/athletic/6384836/2025/05/28/psg-champions-league-first-time-winners/
+
+**Inside Mary Earps' shock England retirement: Anger from Wiegman, mixed feelings from team-mates**\
+`At a meeting with the squad Wiegman, in front of Earps, expressed her frustration and disappointment`\
+https://nytimes.com/athletic/6385923/2025/05/28/mary-earps-shock-england-retirement/
+
 **Ronaldo, Alexander-Arnold, Pogba and more: Transfers that might happen before Club World Cup**\
 `The Club World Cup starts on June 14, and FIFA have introduced an extra transfer window for teams to sign players ahead of the tournament`\
 https://nytimes.com/athletic/6384488/2025/05/28/club-world-cup-transfer-players-latest/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/insider/surviving-a-fake-war-in-oklahoma.html
 **Connections: Sports Edition Coach: Hints for May 28, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6386186/2025/05/28/connections-sports-edition-hints-for-may-28-2025/
-
-**Corrections: May 28, 2025**\
-`Corrections that appeared in print on Wednesday, May 28, 2025.`\
-https://nytimes.com/2025/05/28/pageoneplus/corrections-may-28-2025.html
-
-**Quote of the Day: A Mother’s Fear Spurs a Return To Venezuela**\
-`Quotation of the Day for Wednesday, May 28, 2025.`\
-https://nytimes.com/2025/05/27/pageoneplus/quote-of-the-day-a-mothers-fear-spurs-a-return-to-venezuela.html
 
