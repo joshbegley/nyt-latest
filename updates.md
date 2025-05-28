@@ -1,3 +1,7 @@
+**Breece Hall, Bucky Irving and more fantasy football dynasty league buys and sells**\
+`Jeff Haverlack offers up his top players to be looking to buy or sell in dynasty leagues ahead of the 2025 fantasy football campaign.`\
+https://nytimes.com/athletic/6388227/2025/05/28/fantasy-football-dynasty-buys-sells/
+
 **Welcome to Wrexham documentary series renewed for fifth season**\
 `Broadcast in the U.S. on FX and on Disney+ in the UK, the show has proved a huge hit since first airing in 2022.`\
 https://nytimes.com/athletic/6388444/2025/05/28/welcome-to-wrexham-documentary-season-five/
