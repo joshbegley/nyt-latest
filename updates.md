@@ -1,3 +1,11 @@
+**A Fungus Devastated North American Bats. A New Species Could Deliver a Killer Blow.**\
+`Scientists have learned that another species of fungus found in Europe and Asia causes white-nose disease, which has ravaged bat populations in the United States and Canada.`\
+https://nytimes.com/2025/05/28/science/bats-white-nose-fungus.html
+
+**Morris suffers ACL injury on first senior England call-up**\
+`Manchester City midfielder Laura Blindkilde Brown has been called up to replace the 22-year-old.`\
+https://nytimes.com/athletic/6388103/2025/05/28/england-squad-ella-morris-injury/
+
 **Morris suffers ACL injury on first senior England call-up**\
 `Morris, 22, was given her first call-up for England's Nations League matches against Portugal on May 30 and against Spain four days later.`\
 https://nytimes.com/athletic/6388103/2025/05/28/england-squad-ella-morris-injury/
