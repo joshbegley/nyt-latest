@@ -1,3 +1,19 @@
+**Cronuts and ‘Pizza Rat’: New York, as Told Through Its Dining Scene**\
+`A new project by the Food section explores how events, trends, restaurants and chefs have defined the city’s culinary scene in the 21st century (so far).`\
+https://nytimes.com/2025/05/28/insider/new-york-restaurants.html
+
+**Word of the Day: tempestuous**\
+`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/28/learning/word-of-the-day-tempestuous.html
+
+**Mamdani Has a Thin Legislative Record but Is a Forceful Voice in Albany**\
+`In Assemblyman Zohran Mamdani’s four-plus years in the New York State Capitol, only three of his bills have become law. His influence is comparatively greater.`\
+https://nytimes.com/2025/05/28/nyregion/mamdani-record-albany-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/28/crosswords/spelling-bee-forum.html
+
 **SpaceX’s Starship Has Smooth Launch but Uncontrolled Reentry**\
 `The spacecraft sprang a propellant leak, causing it to break apart and scatter debris in the Indian Ocean.`\
 https://nytimes.com/video/science/space/100000010193649/spacex-starship-launch-elon-musk-mars.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
 **Zelensky Heads to Berlin in Latest Sign of a Warming Relationship**\
 `The  president of Ukraine will talk with Germany’s chancellor in their third meeting in as many weeks.`\
 https://nytimes.com/2025/05/28/world/europe/zelensky-merz-berlin-visit.html
-
-**The Knicks' season is on life support. Do they have one more trick left?**\
-`The Knicks have made the impossible possible all playoffs. Facing a 3-1 series deficit against the Pacers, can they do it again?`\
-https://nytimes.com/athletic/6387143/2025/05/28/knicks-pacers-game-4-eastern-conference-finals/
-
-**Wednesday Briefing: Chaos at a Gaza Aid Site**\
-`Plus, climbing Mount Everest with a performance enhancer.`\
-https://nytimes.com/2025/05/28/briefing/gaza-germany-ukraine-king-charles.html
-
-**Syrian Freedom Is Dangerously Incomplete**\
-`Syria’s deeply flawed interim Constitution should be replaced with one that reflects our values: freedom, equality and self-governance.`\
-https://nytimes.com/2025/05/28/opinion/syria-kurds-rojava-autonomy.html
-
-**The New York Times in Print for Wednesday, May 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/28/todays-new-york-times
 
