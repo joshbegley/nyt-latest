@@ -1,3 +1,8 @@
+**Looking back to look forward: Champions League final trends you can bet on**\
+`Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
+`\
+https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
+
 **U.N. Condemns Israel’s New Aid Program in Gaza, After Chaotic Start**\
 `The new operation is intended to bypass both the United Nations and Hamas, but aid groups say even if it works as intended, it is dangerously inadequate.`\
 https://nytimes.com/2025/05/28/world/middleeast/israel-un-aid-gaza.html
@@ -33,8 +38,4 @@ https://nytimes.com/2025/05/28/business/porsche-tariffs-volkswagen-trump.html
 **What can Caitlin Clark's injury absence tell us about her importance to the WNBA's business?**\
 `In this week's MoneyCall: Clark's injury absence, CFP drama, Yamal's new deal, analyzing the PWHL and more sports-business insights.`\
 https://nytimes.com/athletic/6388118/2025/05/28/caitlin-clark-injury-sec-big-ten-yamal-pwhl-moneycall/
-
-**China to Launch Mission to Capture Pieces of an Unusual Asteroid**\
-`The robotic Tianwen-2 spacecraft will collect samples from Kamoʻoalewa, which some scientists suspect is a fragment of the moon.`\
-https://nytimes.com/2025/05/28/science/china-asteroid-tianwen-2.html
 

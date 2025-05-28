@@ -1,3 +1,7 @@
+**'It's part of an ambush': Why every tennis champion needs a drop shot in their arsenal**\
+`Once seen as a cop-out or a party trick, the drop shot has become a vital tactic in the men's and women's game.`\
+https://nytimes.com/athletic/6384608/2025/05/28/tennis-drop-shot-how-why-best-players/
+
 **Looking back to look forward: Champions League final trends you can bet on**\
 `Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6388215/2025/05/28/zach-hyman-surgery-oilers/
 **Tariffs Turn Porsche’s Headwinds Into a ‘Violent Storm’**\
 `The storied sports car maker, which was facing challenges from China and slumping demand for electric cars, now has to grapple with tariffs from the Trump administration.`\
 https://nytimes.com/2025/05/28/business/porsche-tariffs-volkswagen-trump.html
-
-**What can Caitlin Clark's injury absence tell us about her importance to the WNBA's business?**\
-`In this week's MoneyCall: Clark's injury absence, CFP drama, Yamal's new deal, analyzing the PWHL and more sports-business insights.`\
-https://nytimes.com/athletic/6388118/2025/05/28/caitlin-clark-injury-sec-big-ten-yamal-pwhl-moneycall/
 
