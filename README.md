@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6386972/2025/05/27/mary-earps-england-retire-full-t
 `Secretary of State Marco Rubio issued a cable ordering the pause as the department seeks an overhaul of its review of applicants’ social media accounts.`\
 https://nytimes.com/2025/05/27/us/politics/trump-student-visas-interviews.html
 
-**Pacers' Tyrese Haliburton dazzles with triple-double in win over Knicks**\
+**Pacers' Tyrese Haliburton burns Knicks with triple-double in dad's return**\
 `Haliburton is the third player in NBA history to have more than 30 points, 10 rebounds and 15 assists in a playoff game.`\
 https://nytimes.com/athletic/6386792/2025/05/27/tyrese-haliburton-triple-double-game-4-pacers-knicks/
 
