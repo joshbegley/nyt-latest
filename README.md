@@ -1,3 +1,11 @@
+**Musk ‘Disappointed’ With Major Trump Policy Bill, Saying It Will Increase Deficit**\
+`Elon Musk also said the Republican bill, which passed the House last week, would undermine the work of his DOGE group.`\
+https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-spending-bill-doge.html
+
+**Lowetide: Stuart Skinner's story of struggles and a chance at redemption**\
+`Skinner started the playoffs poorly, but with the Oilers on the verge of the Stanley Cup Final, all is forgotten now.`\
+https://nytimes.com/athletic/6385296/2025/05/28/oilers-stuart-skinner-stats-nhl-playoffs-2025/
+
 **Japan Welcomes a New Sumo Champ. Surprise: He’s Japanese.**\
 `Onosato Daiki became the first Japanese man in eight years to be named a yokozuna, or grand champion, the highest title in the sport.`\
 https://nytimes.com/2025/05/28/world/asia/sumo-yokozuna-onosato-daiki-japan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/style/infertility-baby-showers.html
 **French Doctor Who Molested Hundreds of Children Is Sentenced**\
 `A former surgeon confessed to abusing at least 299 people, mostly children, in what is considered the largest case of its kind in French history.`\
 https://nytimes.com/2025/05/28/joel-le-scouarnec-france-doctor-abuse-sentence.html
-
-**Israeli Jets Strike Yemen’s Main Airport Again After Houthi Attacks**\
-`Israel said the bombing of the airport, which was targeted for the second time this month, had destroyed the last plane used by the Iran-backed Houthi militia.`\
-https://nytimes.com/2025/05/28/world/middleeast/israel-yemen-sana-airport-houthis.html
-
-**Upper Deck adds new measure to combat NHL card 'patch swapping'**\
-`Upper Deck is hoping to combat a growing type of fraud impacting the sports card hobby`\
-https://nytimes.com/athletic/6385327/2025/05/28/upper-deck-the-cup-patch-swapping/
 
