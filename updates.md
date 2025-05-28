@@ -1,3 +1,7 @@
+**LeBrun: The Dallas Stars are built to score. So what's going on?**\
+`"A little bit of the same story, right?" coach Pete DeBoer said after the Stars faltered again in their Game 4 loss to the Oilers.`\
+https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
+
 **Zelensky Heads to Berlin in Latest Sign of a Warming Relationship**\
 `The  president of Ukraine will talk with Germany’s chancellor in their third meeting in as many weeks.`\
 https://nytimes.com/2025/05/28/world/europe/zelensky-merz-berlin-visit.html

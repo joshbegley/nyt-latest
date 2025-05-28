@@ -1,3 +1,7 @@
+**LeBrun: The Dallas Stars are built to score. So what's going on?**\
+`"A little bit of the same story, right?" coach Pete DeBoer said after the Stars faltered again in their Game 4 loss to the Oilers.`\
+https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
+
 **Zelensky Heads to Berlin in Latest Sign of a Warming Relationship**\
 `The  president of Ukraine will talk with Germany’s chancellor in their third meeting in as many weeks.`\
 https://nytimes.com/2025/05/28/world/europe/zelensky-merz-berlin-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6369554/2025/05/28/evertons-player-of-the-season-id
 **Tottenham's player of 2024-25: Pedro Porro - nobody gave them more**\
 `Through the turmoil and the triumphs, the Spanish right-back has been one constant on the pitch for Spurs this season`\
 https://nytimes.com/athletic/6382200/2025/05/28/tottenham-player-of-the-season-porro/
-
-**West Ham review of 2024-25: One of their worst seasons in recent history**\
-`West Ham have had a difficult campaign, getting through three managers while finishing in 14th place`\
-https://nytimes.com/athletic/6352906/2025/05/28/west-ham-season-review-2024-25/
 
