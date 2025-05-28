@@ -1,3 +1,7 @@
+**Your Cat May or May Not Love You, but It Knows Your Scent**\
+`Scientists found a way to get 30 kitties to cooperate with a study exploring the power of the feline scent of smell.`\
+https://nytimes.com/2025/05/28/science/cat-scent-humans.html
+
 **Rabbi Sholom Lipskar, 78, Dies; Transformed Miami and Helped Jews in Prison**\
 `A charismatic figure in the Chabad-Lubavitch movement, he opened a synagogue in South Florida, unifying the Jewish community there, and founded the Aleph Institute.`\
 https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/05/28/arts/editors-recommendations-sturgillsimpson
 **Australia’s Skies Glow Orange as Powerful Winds Pull Dust From Parched Land**\
 `A dust storm clogged the sky this week, days after flooding devastated another part of the same region.`\
 https://nytimes.com/2025/05/28/weather/australia-dust-storm.html
-
-**Everton hoping to complete Alcaraz deal by end of May**\
-`The 22-year-old's loan deal from Brazilian side Flamengo contained a €15m purchase option, which runs out at the end of the month.`\
-https://nytimes.com/athletic/6388384/2025/05/28/carlos-alcaraz-everton-transfer-latest/
 

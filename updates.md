@@ -1,3 +1,7 @@
+**Your Cat May or May Not Love You, but It Knows Your Scent**\
+`Scientists found a way to get 30 kitties to cooperate with a study exploring the power of the feline scent of smell.`\
+https://nytimes.com/2025/05/28/science/cat-scent-humans.html
+
 **Rabbi Sholom Lipskar, 78, Dies; Transformed Miami and Helped Jews in Prison**\
 `A charismatic figure in the Chabad-Lubavitch movement, he opened a synagogue in South Florida, unifying the Jewish community there, and founded the Aleph Institute.`\
 https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
