@@ -1,3 +1,7 @@
+**NBA YoungBoy Says He Will ‘Keep Building’ After President’s Pardon**\
+`The popular Louisiana rapper recently announced a 32-date U.S. tour to begin in September.`\
+https://nytimes.com/2025/05/28/us/politics/trump-pardons-nba-youngboy.html
+
 **Packers WR Jayden Reed clarifies report about role: 'A lot of people misinterpreted that'**\
 `There are only so many targets to go around in a talented and deep Packers wide receiver room. Might that lead to unhealthy tension?`\
 https://nytimes.com/athletic/6389208/2025/05/28/packers-wr-jayden-reed-otas/
