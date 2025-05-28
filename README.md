@@ -1,3 +1,19 @@
+**The Milliner Behind TV’s Wildest Hats**\
+`Plus: home goods featuring paintings by beloved Greek artist, a Danish watch brand’s comeback and more recommendations from T Magazine.`\
+https://nytimes.com/2025/05/28/t-magazine/maryam-keyhani-hats.html
+
+**Thursday Briefing: Aid Chaos Grows in Gaza**\
+`Plus, the Met’s new wondrous space.`\
+https://nytimes.com/2025/05/28/briefing/israel-gaza-aid-ukraine-germany-international-students-us.html
+
+**Over Portfolio Reviews, Art Directors and Illustrators Connect**\
+`The Times is inviting artists from around the world to submit their work for feedback.`\
+https://nytimes.com/2025/05/28/insider/over-portfolio-reviews-art-directors-and-illustrators-connect.html
+
+**Justice Department Investigates California Over Trans Athlete Policies**\
+`The latest Trump administration inquiry appears to focus on a competitor entered in this weekend’s state track and field championships.`\
+https://nytimes.com/2025/05/28/us/trump-california-trans-athletes-doj-investigation.html
+
 **U.N. Condemns Israeli-Backed Aid Distribution Program in Gaza**\
 `United Nations officials said that the new system, known as the Gaza Humanitarian Foundation, violated humanitarian principles by requiring many Palestinians to travel miles to obtain aid.`\
 https://nytimes.com/video/world/middleeast/100000010194314/israel-un-aid-gaza.html
@@ -14,27 +30,11 @@ https://nytimes.com/athletic/6388733/2025/05/28/chelsea-real-betis-result-report
 `Campbell has moved around the field as a rookie but he's never played a professional game at any level at first base.`\
 https://nytimes.com/athletic/6388641/2025/05/28/kristian-campbell-red-sox-first-base-debut/
 
-**Canada Wants to Kill 400 Ostriches. RFK Jr. and Dr. Oz Want to Save Them.**\
+**Canada Wants to Kill 400 Ostriches. Kennedy and Dr. Oz Want to Save Them.**\
 `Ostriches on a British Columbia farm have died of the avian flu. Canada ordered hundreds of others to be culled. But two top Trump administration officials have objected.`\
 https://nytimes.com/2025/05/28/world/canada/ostriches-avian-flu-rfk-jr-dr-oz.html
 
 **Judge Declines to Block Transfer of Death Row Inmates Granted Clemency by Biden to ‘Supermax’ Facility**\
 `President Joseph R. Biden Jr. commuted dozens of men’s sentences to life without parole, but the Trump administration has sought to move the inmates to a notoriously tough prison.`\
 https://nytimes.com/2025/05/28/us/politics/death-row-inmates-biden.html
-
-**Reconciliation Bill to Deliver Trump’s Agenda**\
-`The House approved a domestic policy bill to enact President Trump’s agenda. The legislation includes a large tax cut, as well as more money for defense and immigration enforcement, financed in part by slashing health, nutrition, education and clean energy programs.`\
-https://nytimes.com/news-event/budget-reconciliation-2025
-
-**Kevin Stefanski, Browns not concerned with QB depth chart at this point of OTAs**\
-`“All these reps add up, and they’re being graded on every play," Stefanski said. "We just love the opportunity to be on the practice field."`\
-https://nytimes.com/athletic/6388823/2025/05/28/browns-kenny-pickett-joe-flacco-organized-team-activities/
-
-**Marlins' Ronny Simon grateful for support after teary, 3-error night**\
-`Simon committed three errors over three innings, unintentionally helping the Padres rally to an 8-6 win Tuesday night.`\
-https://nytimes.com/athletic/6388439/2025/05/28/ronny-simon-errors-support-marlins/
-
-**Giants OTAs kick off: How did Russell Wilson, Jameis Winston, Jaxson Dart fare?**\
-`The veteran Wilson took the majority of first team snaps Wednesday as Brian Daboll begins sorting out the QB pecking order.`\
-https://nytimes.com/athletic/6388822/2025/05/28/giants-otas-russell-wilson-jameis-winston-jaxson-dart/
 

@@ -1,3 +1,23 @@
+**U.N. Condemns Israeli-Backed Aid Distribution Program in Gaza**\
+`United Nations officials said that the new system, known as the Gaza Humanitarian Foundation, violated humanitarian principles by requiring many Palestinians to travel miles to obtain aid.`\
+https://nytimes.com/video/world/middleeast/100000010194314/israel-un-aid-gaza.html
+
+**Mount Everest’s Record-Setting Sherpa Sees a Future of Snowless Mountains and Fewer Guides**\
+`Kami Rita Sherpa scaled Mount Everest for the 31st time on Tuesday. We spoke to him about what is next for the mountain.`\
+https://nytimes.com/2025/05/28/world/europe/mount-everest-xenon-sherpa-climate-change.html
+
+**The Briefing - Chelsea 4 Real Betis 1: Conference League completes the set**\
+`Chelsea won the Conference League on Wednesday night by beating Real Betis 4-1`\
+https://nytimes.com/athletic/6388733/2025/05/28/chelsea-real-betis-result-report-analysis/
+
+**Kristian Campbell expected to start at first base this weekend: 'Credit to him'**\
+`Campbell has moved around the field as a rookie but he's never played a professional game at any level at first base.`\
+https://nytimes.com/athletic/6388641/2025/05/28/kristian-campbell-red-sox-first-base-debut/
+
+**Judge Declines to Block Transfer of Death Row Inmates Granted Clemency by Biden to ‘Supermax’ Facility**\
+`President Joseph R. Biden Jr. commuted dozens of men’s sentences to life without parole, but the Trump administration has sought to move the inmates to a notoriously tough prison.`\
+https://nytimes.com/2025/05/28/us/politics/death-row-inmates-biden.html
+
 **Canada Wants to Kill 400 Ostriches. RFK Jr. and Dr. Oz Want to Save Them.**\
 `Ostriches on a British Columbia farm have died of the avian flu. Canada ordered hundreds of others to be culled. But two top Trump administration officials have objected.`\
 https://nytimes.com/2025/05/28/world/canada/ostriches-avian-flu-rfk-jr-dr-oz.html
