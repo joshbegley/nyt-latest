@@ -1,3 +1,11 @@
+**Marlins' Ronny Simon grateful for support after teary, 3-error night**\
+`Simon committed three errors over three innings, unintentionally helping the Padres rally to an 8-6 win Tuesday night.`\
+https://nytimes.com/athletic/6388439/2025/05/28/ronny-simon-errors-support-marlins/
+
+**Giants OTAs kick off: How did Russell Wilson, Jameis Winston, Jaxson Dart fare?**\
+`The veteran Wilson took the majority of first team snaps Wednesday as Brian Daboll begins sorting out the QB pecking order.`\
+https://nytimes.com/athletic/6388822/2025/05/28/giants-otas-russell-wilson-jameis-winston-jaxson-dart/
+
 **Bears QB Caleb Williams insists 'I wanted to come here' in response to book details**\
 `Williams acknowledged Seth Wickersham's upcoming book has been a distraction, so he wanted to address it on Wednesday.`\
 https://nytimes.com/athletic/6388834/2025/05/28/bears-caleb-williams-book-response/
