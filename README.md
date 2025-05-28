@@ -1,3 +1,7 @@
+**Mike White to Return to ‘Survivor’ for Its 50th Season**\
+`The “White Lotus” creator and noted reality-television aficionado first competed on the show in 2018.`\
+https://nytimes.com/2025/05/28/arts/television/survivor-50-cast-mike-white.html
+
 **The Windup: What's it really like in Sacramento?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6387278/2025/05/28/sacramento-as-stadium-tickets-the-windup/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6384608/2025/05/28/tennis-drop-shot-how-why-best-pl
 `Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
 `\
 https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
-
-**U.N. Condemns Israel’s New Aid Program in Gaza, After Chaotic Start**\
-`The new operation is intended to bypass both the United Nations and Hamas, but aid groups say even if it works as intended, it is dangerously inadequate.`\
-https://nytimes.com/2025/05/28/world/middleeast/israel-un-aid-gaza.html
 

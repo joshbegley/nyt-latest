@@ -1,3 +1,19 @@
+**The Windup: What's it really like in Sacramento?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6387278/2025/05/28/sacramento-as-stadium-tickets-the-windup/
+
+**Willem Dafoe Returns to His Stage Roots at the Venice Theater Biennale**\
+`The Hollywood star is the artistic director of this year’s event. He is using the opportunity to spotlight experimental theater that shaped his career.`\
+https://nytimes.com/2025/05/28/theater/willem-dafoe-venice-theater-biennale.html
+
+**Shawn Kemp may face jail time after guilty plea for role in 2023 shooting**\
+`Kemp pleaded guilty to second-degree assault for shooting at two men in a vehicle while trying to recover his stolen property.`\
+https://nytimes.com/athletic/6388040/2025/05/28/shawn-kemp-plea-guilty-assault-shooting/
+
+**Mexican clubs allege FMF retaliation amid fight to reinstate pro-rel**\
+`Liga MX and the FMF have a battle on their hands with the remaining Liga Expansión clubs that are part of a suit filed to CAS.`\
+https://nytimes.com/athletic/6388033/2025/05/28/mexico-promotion-relegation-liga-mx-expansion/
+
 **Crime Rings Plotted to Trade Cocaine for Syrian Weapons, Prosecutors Say**\
 `The intricate scheme, spanning four continents, appears to justify concerns that the military arsenal of Bashar al-Assad, the deposed Syrian dictator, could fall into dangerous hands.`\
 https://nytimes.com/2025/05/28/world/middleeast/syria-eln-cocaine-weapons.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-t
 **U.N. Condemns Israel’s New Aid Program in Gaza, After Chaotic Start**\
 `The new operation is intended to bypass both the United Nations and Hamas, but aid groups say even if it works as intended, it is dangerously inadequate.`\
 https://nytimes.com/2025/05/28/world/middleeast/israel-un-aid-gaza.html
-
-**Ronaldo agrees to sell majority stake in Valladolid**\
-`The former Brazil international's time in charge of Valladolid has been turbulent, with relegations from La Liga in 2021, 2023 and 2025.`\
-https://nytimes.com/athletic/6378006/2025/05/28/ronaldo-owner-valladolid-sale/
-
-**Isaac del Toro extends Giro d'Italia lead after winning stage 17**\
-`The 21-year-old's lead is now 41 seconds to Richard Carapaz, who finished third on the stage.`\
-https://nytimes.com/athletic/6388238/2025/05/28/del-toro-giro-ditalia-standings/
-
-**Ronel Blanco to undergo season-ending elbow surgery, deepening Astros' needs**\
-`Blanco is the third Astros starting pitcher to suffer a significant injury within the season’s first two months.`\
-https://nytimes.com/athletic/6386473/2025/05/28/astros-ronel-blanco-elbow-surgery/
-
-**A Friend Bought Crypto for My Newborn Baby. Do I Have to Hold on to It?**\
-`He’s a crypto bro, and I am extremely skeptical.`\
-https://nytimes.com/2025/05/28/magazine/crypto-bitcoin-gift-ethics.html
 

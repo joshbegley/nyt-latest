@@ -1,3 +1,24 @@
+**The Windup: What's it really like in Sacramento?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6387278/2025/05/28/sacramento-as-stadium-tickets-the-windup/
+
+**Willem Dafoe Returns to His Stage Roots at the Venice Theater Biennale**\
+`The Hollywood star is the artistic director of this year’s event. He is using the opportunity to spotlight experimental theater that shaped his career.`\
+https://nytimes.com/2025/05/28/theater/willem-dafoe-venice-theater-biennale.html
+
+**Shawn Kemp may face jail time after guilty plea for role in 2023 shooting**\
+`Kemp pleaded guilty to second-degree assault for shooting at two men in a vehicle while trying to recover his stolen property.`\
+https://nytimes.com/athletic/6388040/2025/05/28/shawn-kemp-plea-guilty-assault-shooting/
+
+**Mexican clubs allege FMF retaliation amid fight to reinstate pro-rel**\
+`Liga MX and the FMF have a battle on their hands with the remaining Liga Expansión clubs that are part of a suit filed to CAS.`\
+https://nytimes.com/athletic/6388033/2025/05/28/mexico-promotion-relegation-liga-mx-expansion/
+
+**Looking back to look forward: Champions League final trends you can bet on**\
+`Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
+`\
+https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
+
 **Looking back to look forward: Champions League final trends you can bet on**\
 `Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
 `\
