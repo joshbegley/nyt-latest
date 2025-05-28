@@ -1,3 +1,11 @@
+**What you need to know about Ohio State's offense: 43 thoughts on 43 playesr**\
+`With both transfer portal windows closed, the Ohio State football roster is likely set. Here's how the new-look offense is shaping up.`\
+https://nytimes.com/athletic/6384904/2025/05/28/ohio-state-football-roster-2025-offense/
+
+**Ranking Michigan's top 10 transfers of the portal era**\
+`Initially reluctant when it opened in 2018, Michigan has become a savvy shopper in the college football transfer portall.`\
+https://nytimes.com/athletic/6386125/2025/05/28/michigan-football-best-transfer-portal-rankings/
+
 **How Jays prospect Gage Stanifer is throwing more strikes: cleaner mechanics and clearer vision**\
 `For the first time, Gage Stanifer can see the catcher’s mitt clearly, and the pitching prospect is seeing results`\
 https://nytimes.com/athletic/6386589/2025/05/28/gage-stanifer-blue-jays-glasses/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6382465/2025/05/28/lando-norris-f1/
 **After winning more matches than most in 2025, Victoria Mboko takes her next step**\
 `Mboko has won 42 matches in 2025, two of those at a Grand Slam tournament in Paris. But she's here for the long haul.`\
 https://nytimes.com/athletic/6381379/2025/05/28/tennis-victoria-mboko-results-record/
-
-**Arsenal live Q&A: James McNicholas answers your questions**\
-`Get your questions in now for James McNicholas, who will provide the answers from 2pm BST/9am ET`\
-https://nytimes.com/athletic/6384650/2025/05/28/arsenal-transfers-arteta-berta/
-
-**How the Mets became the best in baseball at limiting extra-base hits**\
-`Tylor Megill and the rest of the Mets starters are 'purposeful' about game-planning against an opposing team's power. `\
-https://nytimes.com/athletic/6386784/2025/05/28/mets-limit-extra-base-hits/
 
