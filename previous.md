@@ -1,3 +1,23 @@
+**Lane Kiffin has a simple solution for CFP expansion, but SEC leaders disagree**\
+`Looming College Football Playoff expansion has been the hottest topic at the SEC meetings this week.`\
+https://nytimes.com/athletic/6388394/2025/05/28/sec-college-football-playoff-expansion-lane-kiffin/
+
+**Bruce Logan, Who Blew Up the Death Star in ‘Star Wars,’ Dies at 78**\
+`A special effects artist and cinematographer, he also worked on “2001: A Space Odyssey” and “Tron,” took a detour to comedy with “Airplane!”`\
+https://nytimes.com/2025/05/28/movies/bruce-logan-dead.html
+
+**U.K. Authorizes Rape Charges Against Andrew Tate and His Brother**\
+`The charges include allegations of human trafficking and assault, and come after a separate criminal inquiry in Romania.`\
+https://nytimes.com/2025/05/28/world/europe/andrew-tate-brothers-rape-trafficking-charges.html
+
+**Baylor football redshirt freshman Alex Foster dies at 18**\
+`Foster, a redshirt freshman, was a three-star recruit in the Bears' Class of 2024 and was expected to play a key role on Baylor's defense.`\
+https://nytimes.com/athletic/6388551/2025/05/28/baylor-football-player-dies-alex-foster/
+
+**Suns narrow coach search, invite 5 candidates for interviews: Sources**\
+`The new head coach will mark Phoenix's fourth in as many seasons.`\
+https://nytimes.com/athletic/6388501/2025/05/28/nba-phoenix-suns-coach-candidate-interviews/
+
 **Judge Finds Government Acted Illegally in Russian Scientist Case**\
 `The judge said a customs officer had acted improperly in stripping Kseniia Petrova, a researcher at Harvard Medical School, of her visa after she failed to declare research samples she was carrying into the country.`\
 https://nytimes.com/2025/05/28/science/russian-scientist-harvard-charges.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/28/us/rabbi-sholom-lipskar-dead.html
 **Maradona trial in doubt as judge steps down after 'acting like an actress'**\
 `Judge Julieta Makintach said she had “no choice” but to leave the case after appearing in the trailer for the forthcoming documentary series`\
 https://nytimes.com/athletic/6387685/2025/05/28/diego-maradona-trial-judge/
-
-**Breece Hall, Bucky Irving and more fantasy football dynasty league buys and sells**\
-`Jeff Haverlack offers up his top players to be looking to buy or sell in dynasty leagues ahead of the 2025 fantasy football campaign.`\
-https://nytimes.com/athletic/6388227/2025/05/28/fantasy-football-dynasty-buys-sells/
-
-**Welcome to Wrexham documentary series renewed for fifth season**\
-`Broadcast in the U.S. on FX and on Disney+ in the UK, the show has proved a huge hit since first airing in 2022.`\
-https://nytimes.com/athletic/6388444/2025/05/28/welcome-to-wrexham-documentary-season-five/
-
-**Gene Editing: The Lessons of a Medical Breakthrough**\
-`Readers respond to an article about gene editing and object to cuts in research funding. Also: The Covid vaccine; Senator John Fetterman.`\
-https://nytimes.com/2025/05/28/opinion/gene-editing.html
-
-**Sam Reinhart expected back for Game 5 as Panthers get positive injury news — and Hurricanes do not**\
-`Niko Mikkola and A.J. Greer are also expected back for Florida while Jalen Chatfield and Sean Walker are not for Carolina.`\
-https://nytimes.com/athletic/6388418/2025/05/28/sam-reinhart-panthers-hurricanes-injuries/
-
-**A Missouri Town Was Solidly Behind Trump. Then Carol Was Detained.**\
-`For 20 years, Carol Hui has served waffles, raised her children and embraced the small town of Kennett, Mo. Her detention and pending deportation to Hong Kong has hit the community hard.`\
-https://nytimes.com/2025/05/28/us/missouri-immigrant-trump.html
 
