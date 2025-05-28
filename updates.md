@@ -1,3 +1,12 @@
+**The Pulse: The finals are (almost) set**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6385280/2025/05/28/tyrese-haliburton-knicks-triple-double-the-pulse/
+
+**Auston Matthews and Connor Hellebuyck lead the 2025 NHL playoffs all-bust team**\
+`Presenting the annual all-disappointment team, where we build a roster of players who let us down this spring, plus a coach and GM.
+`\
+https://nytimes.com/athletic/6383233/2025/05/28/nhl-playoffs-2025-busts-auston-matthews-connor-hellebuyck/
+
 **Auston Matthews and Connor Hellebuyck lead the 2025 NHL playoffs all-bust team**\
 `Presenting the annual all-disappointment team, where we build a roster of players who let us down this spring, plus a coach and GM.
 `\

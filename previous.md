@@ -1,3 +1,7 @@
+**The Pulse: The finals are (almost) set**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6385280/2025/05/28/tyrese-haliburton-knicks-triple-double-the-pulse/
+
 **The most conversation-worthy NFL games on the 2025 schedule: Does your team make the cut?**\
 `A lot of Chiefs, a lot of Eagles and an unprecedented range of TV networks define the most anticipated NFL games coming in 2025.`\
 https://nytimes.com/athletic/6383354/2025/05/28/nfl-tv-games-most-watchable-kansas-city-chiefs-dallas-cowboys-2025/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6383233/2025/05/28/nhl-playoffs-2025-busts-auston-m
 **NHL Mock Draft 2025: Pronman, Wheeler and Bultman play GM and pick Round 1**\
 `Here’s how Corey Pronman, Scott Wheeler and Max Bultman would run the draft if they were in charge of each team’s board.`\
 https://nytimes.com/athletic/6373785/2025/05/28/nhl-mock-draft-2025-round-1-gm/
-
-**What to watch at Packers OTAs: Contract situations, lineup decisions, WR vibes**\
-`Wednesday marks the first chance this offseason for reporters to watch the Packers practice as a full team.`\
-https://nytimes.com/athletic/6385730/2025/05/28/packers-otas-what-to-watch/
 
