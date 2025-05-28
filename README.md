@@ -1,3 +1,15 @@
+**French Doctor Who Molested Hundreds of Children Is Sentenced**\
+`A former surgeon confessed to abusing at least 299 people, mostly children, in what is considered the largest case of its kind in French history.`\
+https://nytimes.com/2025/05/28/joel-le-scouarnec-france-doctor-abuse-sentence.html
+
+**Israeli Jets Strike Yemen’s Main Airport Again After Houthi Attacks**\
+`Israel said the bombing of the airport, which was targeted for the second time this month, had destroyed the last plane used by the Iran-backed Houthi militia.`\
+https://nytimes.com/2025/05/28/world/middleeast/israel-yemen-sana-airport-houthis.html
+
+**Upper Deck adds new measure to combat NHL card 'patch swapping'**\
+`Upper Deck is hoping to combat a growing type of fraud impacting the sports card hobby`\
+https://nytimes.com/athletic/6385327/2025/05/28/upper-deck-the-cup-patch-swapping/
+
 **Pacers keep foot on gas, stay perfect in Game 4s as they push Knicks to brink**\
 `After blowing a big lead in Game 3, Indiana got back to its style. "Let's get it in, and let's run."`\
 https://nytimes.com/athletic/6387429/2025/05/28/pacers-game-4-knicks-east-finals-tyrese-haliburton/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/05/28/us/trump-news
 **'Blackhawks hit a home run': Why Jon Cooper thinks Jeff Blashill will succeed in Chicago**\
 `The three seasons Blashill spent as an assistant coach with Cooper and the Lightning were very important and influential to him.`\
 https://nytimes.com/athletic/6386142/2025/05/28/blackhawks-coach-jeff-blashill-jon-cooper/
-
-**Fixing Sabres' defense: Trade Byram, sign Ekblad and other options to explore**\
-`Here are the questions and potential solutions facing Buffalo's blue line this summer.`\
-https://nytimes.com/athletic/6385634/2025/05/28/sabres-defense-bowen-byram-salary-cap/
-
-**Craig Button on Wild's offseason, prospects, what to do with Marco Rossi: 'Be careful about trading skill'**\
-`The former NHL GM and TSN's head of scouting offered his assessment on Rossi, Zeev Buium, David Jiricek, Danila Yurov Liam Ohgren and more.`\
-https://nytimes.com/athletic/6385420/2025/05/28/wild-rossi-yurov-ohgren-buium-jiricek/
-
-**What Hurricanes must replicate to win Game 5 against Panthers**\
-`What does Carolina need to do to recreate its success from Game 4 in Wednesday’s Game 5 in Raleigh? Here’s a road map.`\
-https://nytimes.com/athletic/6387003/2025/05/28/hurricanes-panthers-nhl-playoffs-game-5/
 
