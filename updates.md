@@ -1,3 +1,7 @@
+**Spencer Strider, Braves' bats not good enough against rival Phillies**\
+`It was the first loss for Strider in nine decisions covering 11 regular-season games against the Phillies, including 10 starts.`\
+https://nytimes.com/athletic/6387031/2025/05/28/spencer-strider-braves-offense-phillies/
+
 **Everton's player of the season: Idrissa Gueye - into autumn of his career and never better**\
 `The Senegal midfielder is 36 in September - he's had the best season of his Everton career`\
 https://nytimes.com/athletic/6369554/2025/05/28/evertons-player-of-the-season-idrissa-gueye/
