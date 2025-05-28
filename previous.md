@@ -1,3 +1,7 @@
+**In Countersuit, Smokey Robinson Accuses Housekeepers of Defamation**\
+`Four of Mr. Robinson’s former employees had sued the Motown singer, saying he sexually assaulted them for many years. He argues their anonymity is a reason to dismiss their suit.`\
+https://nytimes.com/2025/05/28/arts/music/smokey-robinson-lawsuit-defamation.html
+
 **High-Demand Section of Brooklyn Will Be Redesigned, Adding 4,600 Homes**\
 `The plan, approved by the City Council, focuses on boosting residential development and job growth in a 21-block area along Atlantic Avenue in Crown Heights and Bedford-Stuyvesant.`\
 https://nytimes.com/2025/05/28/nyregion/atlantic-avenue-apartments.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/05/28/nyregion/atlantic-avenue-apartments.html
 `A dust storm filled Australian skies with an orange haze caused by long-term drought conditions in parts of Australia.`\
 https://nytimes.com/video/world/australia/100000010194758/storm-winds-blanket-australia-in-thick-dust.html
 
-**Tiger Woods' son Charlie wins his first American Junior Golf tournament**\
+**Tiger Woods' son Charlie wins his first AJGA tournament**\
 `With scores of 70-65-66, Woods' victory at the top-level junior event marks his best accomplishment in amateur golf thus far.`\
 https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-junior-golf/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388394/2025/05/28/sec-college-football-playoff-exp
 **Bruce Logan, Who Blew Up the Death Star in ‘Star Wars,’ Dies at 78**\
 `A special effects artist and cinematographer, he also worked on “2001: A Space Odyssey” and “Tron,” took a detour to comedy with “Airplane!”`\
 https://nytimes.com/2025/05/28/movies/bruce-logan-dead.html
-
-**U.K. Authorizes Rape Charges Against Andrew Tate and His Brother**\
-`The charges include allegations of human trafficking and assault, and come after a separate criminal inquiry in Romania.`\
-https://nytimes.com/2025/05/28/world/europe/andrew-tate-brothers-rape-trafficking-charges.html
 

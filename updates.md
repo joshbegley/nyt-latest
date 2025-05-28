@@ -1,3 +1,11 @@
+**In Countersuit, Smokey Robinson Accuses Housekeepers of Defamation**\
+`Four of Mr. Robinson’s former employees had sued the Motown singer, saying he sexually assaulted them for many years. He argues their anonymity is a reason to dismiss their suit.`\
+https://nytimes.com/2025/05/28/arts/music/smokey-robinson-lawsuit-defamation.html
+
+**Tiger Woods' son Charlie wins his first AJGA tournament**\
+`With scores of 70-65-66, Woods' victory at the top-level junior event marks his best accomplishment in amateur golf thus far.`\
+https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-junior-golf/
+
 **High-Demand Section of Brooklyn Will Be Redesigned, Adding 4,600 Homes**\
 `The plan, approved by the City Council, focuses on boosting residential development and job growth in a 21-block area along Atlantic Avenue in Crown Heights and Bedford-Stuyvesant.`\
 https://nytimes.com/2025/05/28/nyregion/atlantic-avenue-apartments.html
