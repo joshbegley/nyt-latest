@@ -1,3 +1,7 @@
+**Twins making 'progress' on sale of club, Pohlads sticking to $1.7 billion price: Source**\
+`Though the Twins are making progress in finding potential buyers, the Pohlad family remains firm in its desire for a $1.7 billion price tag.`\
+https://nytimes.com/athletic/6386597/2025/05/27/minnesota-twins-sale-pohlad-family-1-7-billion/
+
 **Turned Aside**\
 `What goes up must come down in this puzzle by Peter A. Collins.`\
 https://nytimes.com/2025/05/27/crosswords/daily-puzzle-2025-05-28.html
