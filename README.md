@@ -1,3 +1,7 @@
+**2025 Memorial Tournament odds, DFS picks: Who might challenge Scottie Scheffler?**\
+`Dennis Esser breaks down the field for the PGA Tour's next signature event, starting Thursday.`\
+https://nytimes.com/athletic/6385826/2025/05/28/memorial-tournament-odds-dfs-picks/
+
 **'The brutal, honest truth' about the Falcons' international kicking competition**\
 `Falcons veteran kicker Younghoe Koo has some interesting competition this offseason — 22-year-old Lenny Krieg from Germany.`\
 https://nytimes.com/athletic/6386064/2025/05/28/falcons-kicking-competition-younghoe-koo-lenny-krieg/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/podcasts/love-soundtrack-music.html
 **Another Arrest in Crypto Kidnapping and Torture Case**\
 `The authorities said a man was held captive and tortured in a Manhattan townhouse for weeks by people seeking the password to his Bitcoin wallet.`\
 https://nytimes.com/2025/05/28/nyregion/bitcoin-kidnapping-torture-arrest.html
-
-**‘The Counterfeit Opera’ Comes Together Like a Madcap Caper**\
-`Little Island’s season opens with a musical, inspired by “The Beggar’s Opera” and “The Threepenny Opera,” that was essentially written in six months.`\
-https://nytimes.com/2025/05/28/arts/music/counterfeit-opera-little-island.html
 
