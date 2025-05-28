@@ -1,3 +1,7 @@
+**Farewell to the New Look. Or Ghosts of Dior Past**\
+`Assessing Maria Grazia Chiuri’s likely final collection — and how she changed Dior.`\
+https://nytimes.com/2025/05/28/style/dior-cruise-maria-grazia-chiuri-final-show.html
+
 **Turkey Cracks Down on Fliers Who Stand Up Too Soon, Threatening Fines**\
 `As of this month, passengers who stand before planes fully stop may be fined by the Turkish government.`\
 https://nytimes.com/2025/05/28/world/europe/turkey-airplane-passengers-fine-stand-up.html
