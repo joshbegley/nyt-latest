@@ -1,3 +1,15 @@
+**Kalinauckas: Lando Norris is resurgent, but his biggest test yet arrives in Spain**\
+`Lando Norris has closed the F1 points gap to Oscar Piastri. But the 2025 Spanish Grand Prix could indicate how their title battle finishes`\
+https://nytimes.com/athletic/6382465/2025/05/28/lando-norris-f1/
+
+**Arsenal live Q&A: James McNicholas answers your questions**\
+`Get your questions in now for James McNicholas, who will provide the answers from 2pm BST/9am ET`\
+https://nytimes.com/athletic/6384650/2025/05/28/arsenal-transfers-arteta-berta/
+
+**How the Mets became the best in baseball at limiting extra-base hits**\
+`Tylor Megill and the rest of the Mets starters are 'purposeful' about game-planning against an opposing team's power. `\
+https://nytimes.com/athletic/6386784/2025/05/28/mets-limit-extra-base-hits/
+
 **The Pulse: The finals are (almost) set**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6385280/2025/05/28/tyrese-haliburton-knicks-triple-double-the-pulse/
