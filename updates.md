@@ -1,3 +1,7 @@
+**The Allure (and Complications) of ‘Golden Shares’**\
+`The White House would like some control of U.S. Steel if it approves its sale to Nippon Steel. Such deals could alter foreign investment in the United States.`\
+https://nytimes.com/2025/05/28/business/dealbook/us-steel-golden-share-us-investments.html
+
 **Pirates don’t want to trade Paul Skenes. But they'd have to weigh these 5 prospect packages**\
 `What types of trade offers would it take for the Pirates to even consider trading the 22-year-old ace? Here are five potential packages. `\
 https://nytimes.com/athletic/6387091/2025/05/28/paul-skenes-pirates-mlb-trade-proposals/
