@@ -1,3 +1,23 @@
+**The Milliner Behind TV’s Wildest Hats**\
+`Plus: home goods featuring paintings by beloved Greek artist, a Danish watch brand’s comeback and more recommendations from T Magazine.`\
+https://nytimes.com/2025/05/28/t-magazine/maryam-keyhani-hats.html
+
+**Thursday Briefing: Aid Chaos Grows in Gaza**\
+`Plus, the Met’s new wondrous space.`\
+https://nytimes.com/2025/05/28/briefing/israel-gaza-aid-ukraine-germany-international-students-us.html
+
+**Over Portfolio Reviews, Art Directors and Illustrators Connect**\
+`The Times is inviting artists from around the world to submit their work for feedback.`\
+https://nytimes.com/2025/05/28/insider/over-portfolio-reviews-art-directors-and-illustrators-connect.html
+
+**Justice Department Investigates California Over Trans Athlete Policies**\
+`The latest Trump administration inquiry appears to focus on a competitor entered in this weekend’s state track and field championships.`\
+https://nytimes.com/2025/05/28/us/trump-california-trans-athletes-doj-investigation.html
+
+**Canada Wants to Kill 400 Ostriches. Kennedy and Dr. Oz Want to Save Them.**\
+`Ostriches on a British Columbia farm have died of the avian flu. Canada ordered hundreds of others to be culled. But two top Trump administration officials have objected.`\
+https://nytimes.com/2025/05/28/world/canada/ostriches-avian-flu-rfk-jr-dr-oz.html
+
 **U.N. Condemns Israeli-Backed Aid Distribution Program in Gaza**\
 `United Nations officials said that the new system, known as the Gaza Humanitarian Foundation, violated humanitarian principles by requiring many Palestinians to travel miles to obtain aid.`\
 https://nytimes.com/video/world/middleeast/100000010194314/israel-un-aid-gaza.html
