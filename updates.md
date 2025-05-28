@@ -1,3 +1,23 @@
+**How Jays prospect Gage Stanifer is throwing more strikes: cleaner mechanics and clearer vision**\
+`For the first time, Gage Stanifer can see the catcher’s mitt clearly, and the pitching prospect is seeing results`\
+https://nytimes.com/athletic/6386589/2025/05/28/gage-stanifer-blue-jays-glasses/
+
+**Greenberg: With the wind in their face, Cubs showing they can handle the pressure**\
+`With Tuesday’s come-from-behind win against Colorado, the Cubs are 16-8 this month and have a three-game lead on St. Louis in the division.`\
+https://nytimes.com/athletic/6387113/2025/05/28/cubs-rockies-craig-counsell-wrigley-field-wind/
+
+**When the majors and minors collide: Buying a ticket and spending a night with the A's**\
+`Our reporter walked up, bought a ticket and spent the night in the stands to live the A's experience in Sacramento. `\
+https://nytimes.com/athletic/6386761/2025/05/28/sacramento-athletics-majors-minors-ballpark/
+
+**NHL playoffs vibe check: Jaccob Slavin's defensive excellence, concern in Dallas and more**\
+`With the conference finals rolling along, let's check in on some important takeaways after each Game 4.`\
+https://nytimes.com/athletic/6385804/2025/05/28/nhl-playoffs-2025-jaccob-slavin-stars/
+
+**Sergei Bobrovsky's Olympic weightlifting and the shocking game-day routine behind Panthers' Big Game Bob**\
+`Big Game Bob is playing to his historic standard in the conference final, and those who see how he prepares for this stage aren't surprised.`\
+https://nytimes.com/athletic/6385541/2025/05/28/sergei-bobrovsky-olympic-weightlifting-panthers-nhl-playoffs/
+
 **Trump vs. Harvard**\
 `Inside the president’s battle with the university.`\
 https://nytimes.com/2025/05/28/briefing/harvard-trump-funding.html

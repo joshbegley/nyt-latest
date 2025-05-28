@@ -1,3 +1,23 @@
+**How Jays prospect Gage Stanifer is throwing more strikes: cleaner mechanics and clearer vision**\
+`For the first time, Gage Stanifer can see the catcher’s mitt clearly, and the pitching prospect is seeing results`\
+https://nytimes.com/athletic/6386589/2025/05/28/gage-stanifer-blue-jays-glasses/
+
+**Greenberg: With the wind in their face, Cubs showing they can handle the pressure**\
+`With Tuesday’s come-from-behind win against Colorado, the Cubs are 16-8 this month and have a three-game lead on St. Louis in the division.`\
+https://nytimes.com/athletic/6387113/2025/05/28/cubs-rockies-craig-counsell-wrigley-field-wind/
+
+**When the majors and minors collide: Buying a ticket and spending a night with the A's**\
+`Our reporter walked up, bought a ticket and spent the night in the stands to live the A's experience in Sacramento. `\
+https://nytimes.com/athletic/6386761/2025/05/28/sacramento-athletics-majors-minors-ballpark/
+
+**NHL playoffs vibe check: Jaccob Slavin's defensive excellence, concern in Dallas and more**\
+`With the conference finals rolling along, let's check in on some important takeaways after each Game 4.`\
+https://nytimes.com/athletic/6385804/2025/05/28/nhl-playoffs-2025-jaccob-slavin-stars/
+
+**Sergei Bobrovsky's Olympic weightlifting and the shocking game-day routine behind Panthers' Big Game Bob**\
+`Big Game Bob is playing to his historic standard in the conference final, and those who see how he prepares for this stage aren't surprised.`\
+https://nytimes.com/athletic/6385541/2025/05/28/sergei-bobrovsky-olympic-weightlifting-panthers-nhl-playoffs/
+
 **Trump vs. Harvard**\
 `Inside the president’s battle with the university.`\
 https://nytimes.com/2025/05/28/briefing/harvard-trump-funding.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6384650/2025/05/28/arsenal-transfers-arteta-berta/
 **How the Mets became the best in baseball at limiting extra-base hits**\
 `Tylor Megill and the rest of the Mets starters are 'purposeful' about game-planning against an opposing team's power. `\
 https://nytimes.com/athletic/6386784/2025/05/28/mets-limit-extra-base-hits/
-
-**The Pulse: The finals are (almost) set**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6385280/2025/05/28/tyrese-haliburton-knicks-triple-double-the-pulse/
-
-**The most conversation-worthy NFL games on the 2025 schedule: Does your team make the cut?**\
-`A lot of Chiefs, a lot of Eagles and an unprecedented range of TV networks define the most anticipated NFL games coming in 2025.`\
-https://nytimes.com/athletic/6383354/2025/05/28/nfl-tv-games-most-watchable-kansas-city-chiefs-dallas-cowboys-2025/
-
-**Quizzing Carlos Santana about his 15 years in the big leagues: 'OK, I feel old now'**\
-`Santana made his big-league debut against the Washington Nationals on June 11, 2010. His teammates often call him “Grandpa.”`\
-https://nytimes.com/athletic/6380322/2025/05/28/guardians-carlos-santana-15-years/
-
-**Vikings offseason winners and losers: As OTAs begin, who is worth watching?**\
-`We examine four winners and four losers based on the Vikings' offseason activity who should be front and center beginning this week.`\
-https://nytimes.com/athletic/6385678/2025/05/28/vikings-offseason-otas-jonathan-greenard/
-
-**Thunder's poise puts Wolves — and future challengers — on notice: 'Sign of a mature team'**\
-`"These experiences are so rich for us," coach Mark Daigneault says as the Thunder keep growing in the postseason. `\
-https://nytimes.com/athletic/6386472/2025/05/28/thunder-maturity-nba-playoffs-timberwolves/
 
