@@ -1,3 +1,7 @@
+**Doing Business in China Is Getting Harder, but Its Exports Are Hard to Resist**\
+`European companies operating in China say the market has become increasingly challenging because of weak economic demand and opaque government rules on business.`\
+https://nytimes.com/2025/05/28/business/europe-companies-china.html
+
 **LeBrun: The Dallas Stars are built to score. So what's going on?**\
 `"A little bit of the same story, right?" coach Pete DeBoer said after the Stars faltered again in their Game 4 loss to the Oilers.`\
 https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6387031/2025/05/28/spencer-strider-braves-offense-p
 **Everton's player of the season: Idrissa Gueye - into autumn of his career and never better**\
 `The Senegal midfielder is 36 in September - he's had the best season of his Everton career`\
 https://nytimes.com/athletic/6369554/2025/05/28/evertons-player-of-the-season-idrissa-gueye/
-
-**Tottenham's player of 2024-25: Pedro Porro - nobody gave them more**\
-`Through the turmoil and the triumphs, the Spanish right-back has been one constant on the pitch for Spurs this season`\
-https://nytimes.com/athletic/6382200/2025/05/28/tottenham-player-of-the-season-porro/
 
