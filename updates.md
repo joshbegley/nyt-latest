@@ -1,3 +1,15 @@
+**Canada Wants to Kill 400 Ostriches. RFK Jr. and Dr. Oz Want to Save Them.**\
+`Ostriches on a British Columbia farm have died of the avian flu. Canada ordered hundreds of others to be culled. But two top Trump administration officials have objected.`\
+https://nytimes.com/2025/05/28/world/canada/ostriches-avian-flu-rfk-jr-dr-oz.html
+
+**Judge Declines to Block Transfer of Death Row Inmates Granted Clemency by Biden to ‘Supermax’ Facility**\
+`After former President Joseph R. Biden Jr. commuted dozens of men’s sentences to life without parole, the Trump administration has sought to move the inmates to a notoriously tough prison.`\
+https://nytimes.com/2025/05/28/us/politics/death-row-inmates-biden.html
+
+**Reconciliation Bill to Deliver Trump’s Agenda**\
+`The House approved a domestic policy bill to enact President Trump’s agenda. The legislation includes a large tax cut, as well as more money for defense and immigration enforcement, financed in part by slashing health, nutrition, education and clean energy programs.`\
+https://nytimes.com/news-event/budget-reconciliation-2025
+
 **Kevin Stefanski, Browns not concerned with QB depth chart at this point of OTAs**\
 `“All these reps add up, and they’re being graded on every play," Stefanski said. "We just love the opportunity to be on the practice field."`\
 https://nytimes.com/athletic/6388823/2025/05/28/browns-kenny-pickett-joe-flacco-organized-team-activities/

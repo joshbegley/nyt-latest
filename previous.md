@@ -1,3 +1,15 @@
+**Canada Wants to Kill 400 Ostriches. RFK Jr. and Dr. Oz Want to Save Them.**\
+`Ostriches on a British Columbia farm have died of the avian flu. Canada ordered hundreds of others to be culled. But two top Trump administration officials have objected.`\
+https://nytimes.com/2025/05/28/world/canada/ostriches-avian-flu-rfk-jr-dr-oz.html
+
+**Judge Declines to Block Transfer of Death Row Inmates Granted Clemency by Biden to ‘Supermax’ Facility**\
+`After former President Joseph R. Biden Jr. commuted dozens of men’s sentences to life without parole, the Trump administration has sought to move the inmates to a notoriously tough prison.`\
+https://nytimes.com/2025/05/28/us/politics/death-row-inmates-biden.html
+
+**Reconciliation Bill to Deliver Trump’s Agenda**\
+`The House approved a domestic policy bill to enact President Trump’s agenda. The legislation includes a large tax cut, as well as more money for defense and immigration enforcement, financed in part by slashing health, nutrition, education and clean energy programs.`\
+https://nytimes.com/news-event/budget-reconciliation-2025
+
 **Kevin Stefanski, Browns not concerned with QB depth chart at this point of OTAs**\
 `“All these reps add up, and they’re being graded on every play," Stefanski said. "We just love the opportunity to be on the practice field."`\
 https://nytimes.com/athletic/6388823/2025/05/28/browns-kenny-pickett-joe-flacco-organized-team-activities/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-m
 **Manchester United in Kuala Lumpur: Defeat, boos and... an open-top bus?**\
 `Laurie Whitwell reports from United's tired post-season tour, where fans voiced their disappointment`\
 https://nytimes.com/athletic/6388577/2025/05/28/manchester-united-in-kuala-lumpur/
-
-**Trump Says He’ll Nominate Bove to Federal Appeals Court**\
-`The president tapped his former defense lawyer to join the U.S. Court of Appeals for the Third Circuit, which covers Pennsylvania, New Jersey and Delaware.`\
-https://nytimes.com/2025/05/28/us/politics/trump-emil-bove-judge.html
-
-**Liverpool want more than £20m for Kelleher, Brentford interested**\
-`Kelleher joined Liverpool from Ringmahon in 2015 and rose through the youth ranks before being utilised as a back-up goalkeeper to Alisson.`\
-https://nytimes.com/athletic/6259242/2025/05/28/caoimhin-kelleher-liverpool-brentford/
-
-**Yankees pitcher Ryan Yarbrough expected to get World Series ring from Dodgers this weekend**\
-`The Dodgers traded Yarbrough to the Blue Jays three months before winning the Fall Classic in 2024. `\
-https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-ring-ryan-yarbrough/
 
