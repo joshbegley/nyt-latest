@@ -1,3 +1,7 @@
+**Twins win again: Carlos Correa shines in the field, at plate as Joe Ryan stymies Rays**\
+`With Correa’s confidence soaring once again, the Twins are flourishing and winning games they couldn’t close out a month ago.`\
+https://nytimes.com/athletic/6387129/2025/05/28/twins-win-carlos-correa-joe-ryan/
+
 **Spencer Strider, Braves' bats not good enough against rival Phillies**\
 `It was the first loss for Strider in nine decisions covering 11 regular-season games against the Phillies, including 10 starts.`\
 https://nytimes.com/athletic/6387031/2025/05/28/spencer-strider-braves-offense-phillies/

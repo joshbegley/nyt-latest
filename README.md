@@ -1,3 +1,15 @@
+**Wednesday Briefing: Chaos at a Gaza Aid Site**\
+`Plus, climbing Mount Everest with a performance enhancer.`\
+https://nytimes.com/2025/05/28/briefing/gaza-germany-ukraine-king-charles.html
+
+**Syrian Freedom Is Dangerously Incomplete**\
+`Syria’s deeply flawed interim Constitution should be replaced with one that reflects our values: freedom, equality and self-governance.`\
+https://nytimes.com/2025/05/28/opinion/syria-kurds-rojava-autonomy.html
+
+**The New York Times in Print for Wednesday, May 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/28/todays-new-york-times
+
 **Twins win again: Carlos Correa shines in the field, at plate as Joe Ryan stymies Rays**\
 `With Correa’s confidence soaring once again, the Twins are flourishing and winning games they couldn’t close out a month ago.`\
 https://nytimes.com/athletic/6387129/2025/05/28/twins-win-carlos-correa-joe-ryan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6385337/2025/05/28/nottingham-forest-nikola-milenko
 **Manchester City's player of the season: Josko Gvardiol - Pep Guardiola's wildcard**\
 `He feels essential to the next evolution at the Etihad`\
 https://nytimes.com/athletic/6375635/2025/05/28/manchester-city-player-of-season-josko-gvardiol/
-
-**Arsenal's player of the season: Jurrien Timber - a beacon of consistency**\
-`If this was Timber's tune-up season following that ACL injury on his 2023 debut, just imagine how good he could be in the next one`\
-https://nytimes.com/athletic/6367499/2025/05/28/arsenal-player-of-the-season-jurrien-timber/
-
-**Bayern missing out on Wirtz is difficult to spin positively - but there could be benefits**\
-`An outstanding German talent declining Bayern will leave a bruise, even more so given that this was not just a financial decision`\
-https://nytimes.com/athletic/6381160/2025/05/28/florian-wirtz-bayern-munich-analysis/
-
-**Wolves' player of the season: This was the year of Matheus Cunha - for good and bad**\
-`The Brazilian has never been far from the headlines, whether that has been scoring great goals or losing his temper `\
-https://nytimes.com/athletic/6359946/2025/05/28/matheus-cunha-wolves-player-season/
 

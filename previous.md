@@ -1,3 +1,7 @@
+**Twins win again: Carlos Correa shines in the field, at plate as Joe Ryan stymies Rays**\
+`With Correa’s confidence soaring once again, the Twins are flourishing and winning games they couldn’t close out a month ago.`\
+https://nytimes.com/athletic/6387129/2025/05/28/twins-win-carlos-correa-joe-ryan/
+
 **Spencer Strider, Braves' bats not good enough against rival Phillies**\
 `It was the first loss for Strider in nine decisions covering 11 regular-season games against the Phillies, including 10 starts.`\
 https://nytimes.com/athletic/6387031/2025/05/28/spencer-strider-braves-offense-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6381160/2025/05/28/florian-wirtz-bayern-munich-anal
 **Wolves' player of the season: This was the year of Matheus Cunha - for good and bad**\
 `The Brazilian has never been far from the headlines, whether that has been scoring great goals or losing his temper `\
 https://nytimes.com/athletic/6359946/2025/05/28/matheus-cunha-wolves-player-season/
-
-**Palace's FA Cup final tifo went viral. It brought two brothers closer**\
-`The Tifo from before the FA Cup final showed the two Wealleans brothers embracing their dad, who had since passed away`\
-https://nytimes.com/athletic/6380819/2025/05/28/crystal-palace-tifo-fa-cup-final-brothers/
 
