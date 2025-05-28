@@ -1,3 +1,11 @@
+**The most conversation-worthy NFL games on the 2025 schedule: Does your team make the cut?**\
+`A lot of Chiefs, a lot of Eagles and an unprecedented range of TV networks define the most anticipated NFL games coming in 2025.`\
+https://nytimes.com/athletic/6383354/2025/05/28/nfl-tv-games-most-watchable-kansas-city-chiefs-dallas-cowboys-2025/
+
+**Quizzing Carlos Santana about his 15 years in the big leagues: 'OK, I feel old now'**\
+`Santana made his big-league debut against the Washington Nationals on June 11, 2010. His teammates often call him “Grandpa.”`\
+https://nytimes.com/athletic/6380322/2025/05/28/guardians-carlos-santana-15-years/
+
 **Vikings offseason winners and losers: As OTAs begin, who is worth watching?**\
 `We examine four winners and four losers based on the Vikings' offseason activity who should be front and center beginning this week.`\
 https://nytimes.com/athletic/6385678/2025/05/28/vikings-offseason-otas-jonathan-greenard/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6373785/2025/05/28/nhl-mock-draft-2025-round-1-gm/
 **What to watch at Packers OTAs: Contract situations, lineup decisions, WR vibes**\
 `Wednesday marks the first chance this offseason for reporters to watch the Packers practice as a full team.`\
 https://nytimes.com/athletic/6385730/2025/05/28/packers-otas-what-to-watch/
-
-**R.F.K. Jr. Sends a Message on Vaccines**\
-`The health secretary announced that Covid shots would no longer be recommended for children and pregnant women.`\
-https://nytimes.com/2025/05/28/podcasts/the-daily/rfk-jr-covid-vaccine-children.html
-
-**New Tensions Between the White House and Israel, and a Surge of Homeless Seniors**\
-`Plus, a faster way up Mount Everest.`\
-https://nytimes.com/2025/05/28/podcasts/the-headlines/israel-white-house-homeless-seniors-everest.html
 
