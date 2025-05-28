@@ -1,3 +1,7 @@
+**Santos’s Treasurer Avoids Prison for Her Role in His Schemes**\
+`Nancy Marks was sentenced to probation after pleading guilty to one count of criminal conspiracy in connection with her work for former Representative George Santos.`\
+https://nytimes.com/2025/05/28/nyregion/nancy-marks-santos-bookkeeper.html
+
 **Ravens' Mark Andrews moving on from tumultuous offseason: 'I'm very thankful to be here'**\
 `The three-time Pro Bowler made his first comments to a group of Baltimore-area reporters in more than four months. `\
 https://nytimes.com/athletic/6389187/2025/05/28/ravens-mark-andrews-organized-team-activities/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/trump-pardons-clemency.html
 **Judge Says Law Used to Detain Khalil Is Probably Unconstitutional**\
 `Mahmoud Khalil, a Columbia graduate, was targeted for deportation because the Trump administration said he impeded its foreign policy. He will still be held in Louisiana.`\
 https://nytimes.com/2025/05/28/nyregion/mahmoud-khalil-deportation-ruling.html
-
-**Trump Says Harvard Should Limit Acceptance of International Students**\
-`The school has so far resisted considerable pressure from the Trump administration to enact other policy changes.`\
-https://nytimes.com/2025/05/28/us/politics/trump-harvard-international-students.html
 
