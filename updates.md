@@ -1,3 +1,11 @@
+**Manchester United in Kuala Lumpur: Defeat, boos and... an open-top bus?**\
+`Laurie Whitwell reports from United's tired post-season tour, where fans voiced their disappointment`\
+https://nytimes.com/athletic/6388577/2025/05/28/manchester-united-in-kuala-lumpur/
+
+**Trump Says He’ll Nominate Bove to Federal Appeals Court**\
+`The president tapped his former defense lawyer to join the U.S. Court of Appeals for the Third Circuit, which covers Pennsylvania, New Jersey and Delaware.`\
+https://nytimes.com/2025/05/28/us/politics/trump-emil-bove-judge.html
+
 **Liverpool want more than £20m for Kelleher, Brentford interested**\
 `Kelleher joined Liverpool from Ringmahon in 2015 and rose through the youth ranks before being utilised as a back-up goalkeeper to Alisson.`\
 https://nytimes.com/athletic/6259242/2025/05/28/caoimhin-kelleher-liverpool-brentford/

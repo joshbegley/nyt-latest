@@ -1,3 +1,11 @@
+**Manchester United in Kuala Lumpur: Defeat, boos and... an open-top bus?**\
+`Laurie Whitwell reports from United's tired post-season tour, where fans voiced their disappointment`\
+https://nytimes.com/athletic/6388577/2025/05/28/manchester-united-in-kuala-lumpur/
+
+**Trump Says He’ll Nominate Bove to Federal Appeals Court**\
+`The president tapped his former defense lawyer to join the U.S. Court of Appeals for the Third Circuit, which covers Pennsylvania, New Jersey and Delaware.`\
+https://nytimes.com/2025/05/28/us/politics/trump-emil-bove-judge.html
+
 **Liverpool want more than £20m for Kelleher, Brentford interested**\
 `Kelleher joined Liverpool from Ringmahon in 2015 and rose through the youth ranks before being utilised as a back-up goalkeeper to Alisson.`\
 https://nytimes.com/athletic/6259242/2025/05/28/caoimhin-kelleher-liverpool-brentford/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-juni
 **Crime Has Plummeted. So Why Don’t Americans Feel Safe?**\
 `We are learning an important lesson about the politics of crime.`\
 https://nytimes.com/2025/05/28/opinion/murder-crime-safety.html
-
-**German Court Dismisses a Climate Suit but Opens the Door to Future Cases**\
-`The judges ruled that German civil law could be used to hold companies accountable for the worldwide effects of their emissions.`\
-https://nytimes.com/2025/05/28/climate/rwe-lawsuit-peru-farmer-germany.html
-
-**Checks on Migrant Children by Homeland Security Agents Stir Fear**\
-`Agents are showing up unannounced to interview minors in what the government calls “wellness checks.” Critics see the visits as part of the immigration crackdown.`\
-https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html
 
