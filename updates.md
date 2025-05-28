@@ -1,3 +1,11 @@
+**Isaac del Toro extends Giro d'Italia lead after winning stage 17**\
+`The 21-year-old's lead is now 41 seconds to Richard Carapaz, who finished third on the stage.`\
+https://nytimes.com/athletic/6388238/2025/05/28/del-toro-giro-ditalia-standings/
+
+**Ronel Blanco to undergo season-ending elbow surgery, deepening Astros' needs**\
+`Blanco is the third Astros starting pitcher to suffer a significant injury within the season’s first two months.`\
+https://nytimes.com/athletic/6386473/2025/05/28/astros-ronel-blanco-elbow-surgery/
+
 **A Friend Bought Crypto for My Newborn Baby. Do I Have to Hold on to It?**\
 `He’s a crypto bro, and I am extremely skeptical.`\
 https://nytimes.com/2025/05/28/magazine/crypto-bitcoin-gift-ethics.html
