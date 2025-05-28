@@ -1,3 +1,7 @@
+**Maradona trial in doubt as judge steps down after 'acting like an actress'**\
+`Judge Julieta Makintach said she had “no choice” but to leave the case after appearing in the trailer for the forthcoming documentary series`\
+https://nytimes.com/athletic/6387685/2025/05/28/diego-maradona-trial-judge/
+
 **Breece Hall, Bucky Irving and more fantasy football dynasty league buys and sells**\
 `Jeff Haverlack offers up his top players to be looking to buy or sell in dynasty leagues ahead of the 2025 fantasy football campaign.`\
 https://nytimes.com/athletic/6388227/2025/05/28/fantasy-football-dynasty-buys-sells/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388384/2025/05/28/carlos-alcaraz-everton-transfer-
 **Dust Storm Turns Australian Skies Orange**\
 `A dust storm this week turned the skies in South Australia a hazy orange, reducing visibility and prompting health warnings.`\
 https://nytimes.com/video/world/australia/100000010194419/dust-storm-turns-australian-skies-orange.html
-
-**Mike White to Return to ‘Survivor’ for Its 50th Season**\
-`The “White Lotus” creator and noted reality-television aficionado first competed on the show in 2018.`\
-https://nytimes.com/2025/05/28/arts/television/survivor-50-cast-mike-white.html
 
