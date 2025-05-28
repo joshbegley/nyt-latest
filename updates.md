@@ -1,3 +1,8 @@
+**Looking back to look forward: Champions League final trends you can bet on**\
+`Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
+`\
+https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
+
 **The Bounce: About Tyrese Haliburton's superstar leap**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6387890/2025/05/28/tyrese-haliburton-pacers-knicks-the-bounce/
