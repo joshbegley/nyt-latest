@@ -1,3 +1,7 @@
+**Doing Business in China Is Getting Harder, but Its Exports Are Hard to Resist**\
+`European companies operating in China say the market has become increasingly challenging because of weak economic demand and opaque government rules on business.`\
+https://nytimes.com/2025/05/28/business/europe-companies-china.html
+
 **LeBrun: The Dallas Stars are built to score. So what's going on?**\
 `"A little bit of the same story, right?" coach Pete DeBoer said after the Stars faltered again in their Game 4 loss to the Oilers.`\
 https://nytimes.com/athletic/6387214/2025/05/28/stars-oilers-rantanen-goals/
