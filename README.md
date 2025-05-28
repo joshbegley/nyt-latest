@@ -1,3 +1,11 @@
+**Welcome to Wrexham documentary series renewed for fifth season**\
+`Broadcast in the U.S. on FX and on Disney+ in the UK, the show has proved a huge hit since first airing in 2022.`\
+https://nytimes.com/athletic/6388444/2025/05/28/welcome-to-wrexham-documentary-season-five/
+
+**Gene Editing: The Lessons of a Medical Breakthrough**\
+`Readers respond to an article about gene editing and object to cuts in research funding. Also: The Covid vaccine; Senator John Fetterman.`\
+https://nytimes.com/2025/05/28/opinion/gene-editing.html
+
 **Sam Reinhart expected back for Game 5 as Panthers get positive injury news — and Hurricanes do not**\
 `Niko Mikkola and A.J. Greer are also expected back for Florida while Jalen Chatfield and Sean Walker are not for Carolina.`\
 https://nytimes.com/athletic/6388418/2025/05/28/sam-reinhart-panthers-hurricanes-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/arts/television/survivor-50-cast-mike-white.html
 **The Windup: What's it really like in Sacramento?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6387278/2025/05/28/sacramento-as-stadium-tickets-the-windup/
-
-**Willem Dafoe Returns to His Stage Roots at the Venice Theater Biennale**\
-`The Hollywood star is the artistic director of this year’s event. He is using the opportunity to spotlight experimental theater that shaped his career.`\
-https://nytimes.com/2025/05/28/theater/willem-dafoe-venice-theater-biennale.html
-
-**Shawn Kemp may face jail time after guilty plea for role in 2023 shooting**\
-`Kemp pleaded guilty to second-degree assault for shooting at two men in a vehicle while trying to recover his stolen property.`\
-https://nytimes.com/athletic/6388040/2025/05/28/shawn-kemp-plea-guilty-assault-shooting/
 
