@@ -1,3 +1,7 @@
+**Trump Says Harvard Should Limit Acceptance of International Students**\
+`The school has so far resisted considerable pressure from the Trump administration to enact other policy changes.`\
+https://nytimes.com/2025/05/28/us/politics/trump-harvard-international-students.html
+
 **U.S. Pauses Exports of Jet Engine Technology and Chip Software to China**\
 `President Trump has stopped some critical products and technologies made only in the United States from flowing to China, flexing the government’s power over global supply chains.`\
 https://nytimes.com/2025/05/28/business/economy/jet-engine-chip-software-exports-to-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/world/europe/glacier-swiss-alps-landslide.html
 **Kevin Costner Is Sued by ‘Horizon’ Actor Over Rape Scene**\
 `A stunt double said she was left with trauma by an unscripted scene that did not include an intimacy coordinator. Mr. Costner’s lawyer said the claims were meritless.`\
 https://nytimes.com/2025/05/28/movies/kevin-costner-horizon-lawsuit-stunt-performer.html
-
-**Nine Premier League clubs in top 20 richest in Europe, report says**\
-`Real Madrid are the top valued club, with Manchester City and Manchester United rounding out the top three.`\
-https://nytimes.com/athletic/6388655/2025/05/28/premier-league-clubs-value/
 
