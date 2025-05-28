@@ -34,7 +34,3 @@ https://nytimes.com/2025/05/28/theater/chess-broadway-lea-michele.html
 `A reader worries that a celebration for her pregnant sister-in-law, with whom she once commiserated about fertility woes, may be too much to handle.`\
 https://nytimes.com/2025/05/28/style/infertility-baby-showers.html
 
-**French Doctor Who Molested Hundreds of Children Is Sentenced**\
-`A former surgeon confessed to abusing at least 299 people, mostly children, in what is considered the largest case of its kind in French history.`\
-https://nytimes.com/2025/05/28/joel-le-scouarnec-france-doctor-abuse-sentence.html
-
