@@ -1,3 +1,7 @@
+**Harvard Fight Illustrates Trump’s Worldview: If He Attacks, It’s Your Fault**\
+`Since regaining the White House, President Trump has been fixated on making an example of those who push back against him.`\
+https://nytimes.com/2025/05/28/us/politics/harvard-university-trump-administration.html
+
 **16 States Sue Trump Over $1.4 Billion in Science Cuts**\
 `A group of attorneys general, led by Letitia James of New York, argues that National Science Foundation programs are critical for leading in science and technology.`\
 https://nytimes.com/2025/05/28/nyregion/trump-science-funding-lawsuit.html

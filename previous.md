@@ -1,3 +1,7 @@
+**Harvard Fight Illustrates Trump’s Worldview: If He Attacks, It’s Your Fault**\
+`Since regaining the White House, President Trump has been fixated on making an example of those who push back against him.`\
+https://nytimes.com/2025/05/28/us/politics/harvard-university-trump-administration.html
+
 **16 States Sue Trump Over $1.4 Billion in Science Cuts**\
 `A group of attorneys general, led by Letitia James of New York, argues that National Science Foundation programs are critical for leading in science and technology.`\
 https://nytimes.com/2025/05/28/nyregion/trump-science-funding-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388796/2025/05/28/johnny-cardoso-betis-chelsea-eur
 **Lawyer Murdered Client in 2013 to Delay Start of Her Divorce Trial, Prosecutors Say**\
 `Prosecutors said the former lawyer, Gregory J. Moore, 51, had also sought to avoid court dates by feigning illnesses, getting into a car crash and calling in bomb threats.`\
 https://nytimes.com/2025/05/28/us/ohio-divorce-lawyer-stabbing-charges.html
-
-**Tiny Love Stories: ‘He Left Me for a Much Younger Woman’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/05/28/style/tiny-modern-love-stories-he-left-me-for-a-much-younger-woman.html
 
