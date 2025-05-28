@@ -1,3 +1,7 @@
+**Liverpool want more than £20m for Kelleher, Brentford interested**\
+`Kelleher joined Liverpool from Ringmahon in 2015 and rose through the youth ranks before being utilised as a back-up goalkeeper to Alisson.`\
+https://nytimes.com/athletic/6259242/2025/05/28/caoimhin-kelleher-liverpool-brentford/
+
 **Yankees pitcher Ryan Yarbrough expected to get World Series ring from Dodgers this weekend**\
 `The Dodgers traded Yarbrough to the Blue Jays three months before winning the Fall Classic in 2024. `\
 https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-ring-ryan-yarbrough/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/climate/rwe-lawsuit-peru-farmer-germany.html
 **Checks on Migrant Children by Homeland Security Agents Stir Fear**\
 `Agents are showing up unannounced to interview minors in what the government calls “wellness checks.” Critics see the visits as part of the immigration crackdown.`\
 https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html
-
-**Fed ‘Well Positioned’ to Wait on Rate Cuts Even as Economic Risks Rise, Minutes Show**\
-`Officials at the Federal Reserve have adopted a wait-and-see approach to policy moves amid extreme uncertainty about the economic outlook.`\
-https://nytimes.com/2025/05/28/business/fed-interest-rates-inflation-tariffs.html
 

@@ -1,3 +1,7 @@
+**Liverpool want more than £20m for Kelleher, Brentford interested**\
+`Kelleher joined Liverpool from Ringmahon in 2015 and rose through the youth ranks before being utilised as a back-up goalkeeper to Alisson.`\
+https://nytimes.com/athletic/6259242/2025/05/28/caoimhin-kelleher-liverpool-brentford/
+
 **Yankees pitcher Ryan Yarbrough expected to get World Series ring from Dodgers this weekend**\
 `The Dodgers traded Yarbrough to the Blue Jays three months before winning the Fall Classic in 2024. `\
 https://nytimes.com/athletic/6388598/2025/05/28/yankees-dodgers-world-series-ring-ryan-yarbrough/
