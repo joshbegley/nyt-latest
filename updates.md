@@ -1,3 +1,11 @@
+**Crime Has Plummeted. So Why Don’t Americans Feel Safe?**\
+`We are learning an important lesson about the politics of crime.`\
+https://nytimes.com/2025/05/28/opinion/murder-crime-safety.html
+
+**German Court Dismisses a Climate Suit but Opens the Door to Future Cases**\
+`The judges ruled that German civil law could be used to hold companies accountable for the worldwide effects of their emissions.`\
+https://nytimes.com/2025/05/28/climate/rwe-lawsuit-peru-farmer-germany.html
+
 **Checks on Migrant Children by Homeland Security Agents Stir Fear**\
 `Agents are showing up unannounced to interview minors in what the government calls “wellness checks.” Critics see the visits as part of the immigration crackdown.`\
 https://nytimes.com/2025/05/28/us/trump-ice-migrant-children-welfare-checks.html

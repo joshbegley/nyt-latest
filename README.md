@@ -1,3 +1,7 @@
+**Tiger Woods' son Charlie wins his first American Junior Golf tournament**\
+`With scores of 70-65-66, Woods' victory at the top-level junior event marks his best accomplishment in amateur golf thus far.`\
+https://nytimes.com/athletic/6388640/2025/05/28/tiger-woods-son-charlie-win-junior-golf/
+
 **Crime Has Plummeted. So Why Don’t Americans Feel Safe?**\
 `We are learning an important lesson about the politics of crime.`\
 https://nytimes.com/2025/05/28/opinion/murder-crime-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388551/2025/05/28/baylor-football-player-dies-alex
 **Suns narrow coach search, invite 5 candidates for interviews: Sources**\
 `The new head coach will mark Phoenix's fourth in as many seasons.`\
 https://nytimes.com/athletic/6388501/2025/05/28/nba-phoenix-suns-coach-candidate-interviews/
-
-**Judge Finds Government Acted Illegally in Russian Scientist Case**\
-`The judge said a customs officer had acted improperly in stripping Kseniia Petrova, a researcher at Harvard Medical School, of her visa after she failed to declare research samples she was carrying into the country.`\
-https://nytimes.com/2025/05/28/science/russian-scientist-harvard-charges.html
 
