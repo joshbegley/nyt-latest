@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
 
+**Looking back to look forward: Champions League final trends you can bet on**\
+`Sam Tighe looks back through the last 10 Champions League finals in search of advantageous betting trends.
+`\
+https://nytimes.com/athletic/6387461/2025/05/28/champions-league-final-betting-trends-predictions-odds-psg-inter/
+
 **Crime Rings Plotted to Trade Cocaine for Syrian Weapons, Prosecutors Say**\
 `The intricate scheme, spanning four continents, appears to justify concerns that the military arsenal of Bashar al-Assad, the deposed Syrian dictator, could fall into dangerous hands.`\
 https://nytimes.com/2025/05/28/world/middleeast/syria-eln-cocaine-weapons.html
