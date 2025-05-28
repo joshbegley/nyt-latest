@@ -1,3 +1,11 @@
+**SpaceX’s Starship Has Smooth Launch but Uncontrolled Reentry**\
+`The spacecraft sprang a propellant leak, causing it to break apart and scatter debris in the Indian Ocean.`\
+https://nytimes.com/video/science/space/100000010193649/spacex-starship-launch-elon-musk-mars.html
+
+**Kirsten Heukels - Manchester United 'body language' expert criticised by Ratcliffe tells of her role in FA Cup glory**\
+`Ratcliffe spoke dismissively of United's 'body language consultant' but Kirsten Heukels tells The Athletic she is proud of what she achieved`\
+https://nytimes.com/athletic/6380839/2025/05/28/kirsten-heukels-manchester-united-body-language-expert-criticised-by-ratcliffe-tells-of-her-role-in-fa-cup-glory/
+
 **Oilers celebrate but know things will be tough without Zach Hyman: 'He means everything'**\
 `"Part of it felt like we were doing it for Zach," Ryan Nugent-Hopkins said of the victory over the Stars.`\
 https://nytimes.com/athletic/6387253/2025/05/28/oilers-hyman-injury-game-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/opinion/syria-kurds-rojava-autonomy.html
 **The New York Times in Print for Wednesday, May 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/28/todays-new-york-times
-
-**Twins win again: Carlos Correa shines in the field, at plate as Joe Ryan stymies Rays**\
-`With Correa’s confidence soaring once again, the Twins are flourishing and winning games they couldn’t close out a month ago.`\
-https://nytimes.com/athletic/6387129/2025/05/28/twins-win-carlos-correa-joe-ryan/
-
-**Spencer Strider, Braves' bats not good enough against rival Phillies**\
-`It was the first loss for Strider in nine decisions covering 11 regular-season games against the Phillies, including 10 starts.`\
-https://nytimes.com/athletic/6387031/2025/05/28/spencer-strider-braves-offense-phillies/
 
