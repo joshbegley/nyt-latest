@@ -1,3 +1,11 @@
+**Pirates don’t want to trade Paul Skenes. But they'd have to weigh these 5 prospect packages**\
+`What types of trade offers would it take for the Pirates to even consider trading the 22-year-old ace? Here are five potential packages. `\
+https://nytimes.com/athletic/6387091/2025/05/28/paul-skenes-pirates-mlb-trade-proposals/
+
+**Ferdinand leaving TNT Sports after 12 years**\
+`Ferdinand has been a pundit for TNT Sports, formerly BT Sport, since 2013, featuring in its Premier League and Champions League coverage.`\
+https://nytimes.com/athletic/6387564/2025/05/28/rio-ferdinand-tnt-sports-exit/
+
 **Henry: Arsenal should have won more under Arteta**\
 `Arteta won the FA Cup in his first season at the club but has failed to reach a final since then.`\
 https://nytimes.com/athletic/6387603/2025/05/28/thierry-henry-mikel-arteta-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6385804/2025/05/28/nhl-playoffs-2025-jaccob-slavin-
 **Sergei Bobrovsky's Olympic weightlifting and the shocking game-day routine behind Panthers' Big Game Bob**\
 `Big Game Bob is playing to his historic standard in the conference final, and those who see how he prepares for this stage aren't surprised.`\
 https://nytimes.com/athletic/6385541/2025/05/28/sergei-bobrovsky-olympic-weightlifting-panthers-nhl-playoffs/
-
-**Trump vs. Harvard**\
-`Inside the president’s battle with the university.`\
-https://nytimes.com/2025/05/28/briefing/harvard-trump-funding.html
-
-**Kalinauckas: Lando Norris is resurgent, but his biggest test yet arrives in Spain**\
-`Lando Norris has closed the F1 points gap to Oscar Piastri. But the 2025 Spanish Grand Prix could indicate how their title battle finishes`\
-https://nytimes.com/athletic/6382465/2025/05/28/lando-norris-f1/
 

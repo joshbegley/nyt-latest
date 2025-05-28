@@ -1,3 +1,7 @@
+**The Allure (and Complications) of ‘Golden Shares’**\
+`The White House would like some control of U.S. Steel if it approves its sale to Nippon Steel. Such deals could alter foreign investment in the United States.`\
+https://nytimes.com/2025/05/28/business/dealbook/us-steel-golden-share-us-investments.html
+
 **Pirates don’t want to trade Paul Skenes. But they'd have to weigh these 5 prospect packages**\
 `What types of trade offers would it take for the Pirates to even consider trading the 22-year-old ace? Here are five potential packages. `\
 https://nytimes.com/athletic/6387091/2025/05/28/paul-skenes-pirates-mlb-trade-proposals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386761/2025/05/28/sacramento-athletics-majors-mino
 **NHL playoffs vibe check: Jaccob Slavin's defensive excellence, concern in Dallas and more**\
 `With the conference finals rolling along, let's check in on some important takeaways after each Game 4.`\
 https://nytimes.com/athletic/6385804/2025/05/28/nhl-playoffs-2025-jaccob-slavin-stars/
-
-**Sergei Bobrovsky's Olympic weightlifting and the shocking game-day routine behind Panthers' Big Game Bob**\
-`Big Game Bob is playing to his historic standard in the conference final, and those who see how he prepares for this stage aren't surprised.`\
-https://nytimes.com/athletic/6385541/2025/05/28/sergei-bobrovsky-olympic-weightlifting-panthers-nhl-playoffs/
 
