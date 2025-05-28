@@ -1,3 +1,15 @@
+**Wednesday Briefing: Chaos at a Gaza Aid Site**\
+`Plus, climbing Mount Everest with a performance enhancer.`\
+https://nytimes.com/2025/05/28/briefing/gaza-germany-ukraine-king-charles.html
+
+**Syrian Freedom Is Dangerously Incomplete**\
+`Syria’s deeply flawed interim Constitution should be replaced with one that reflects our values: freedom, equality and self-governance.`\
+https://nytimes.com/2025/05/28/opinion/syria-kurds-rojava-autonomy.html
+
+**The New York Times in Print for Wednesday, May 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/28/todays-new-york-times
+
 **Twins win again: Carlos Correa shines in the field, at plate as Joe Ryan stymies Rays**\
 `With Correa’s confidence soaring once again, the Twins are flourishing and winning games they couldn’t close out a month ago.`\
 https://nytimes.com/athletic/6387129/2025/05/28/twins-win-carlos-correa-joe-ryan/
