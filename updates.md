@@ -1,3 +1,11 @@
+**Pardons Become the Latest Trump Flex**\
+`The usual rules of politics seem no match for the president’s desire to exploit an unchecked executive power.`\
+https://nytimes.com/2025/05/28/us/politics/trump-pardons.html
+
+**Twins takeaways: Hard-hit luck, Lewis' slump, McCusker's moment, injury updates**\
+`As they took stock of a loss to the Rays, the Twins recognized they deserved better after suffering their first series defeat in a month. `\
+https://nytimes.com/athletic/6389227/2025/05/28/twins-rays-royce-lewis-matt-wallner-carson-mccusker/
+
 **Giants takeaways: They are a lot like the Tigers, except for one big thing**\
 `The Giants and Tigers have a lot of commonalities on their rosters, but their success with first-round picks sets the Tigers apart.`\
 https://nytimes.com/athletic/6388581/2025/05/28/sf-giants-tigers-comparison/

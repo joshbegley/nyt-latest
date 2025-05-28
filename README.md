@@ -1,3 +1,11 @@
+**Plane Is Diverted After Man Assaults Crew Member, U.S. Says**\
+`An American Airlines jet, which was flying from Connecticut to Chicago, returned to Connecticut after a passenger grabbed a flight attendant, threw the person to the ground and spoke incoherently, prosecutors said.`\
+https://nytimes.com/2025/05/28/us/american-airlines-flight-crew-assault.html
+
+**Missouri Supreme Court Effectively Blocks Access to Abortion, at Least for Now**\
+`The ruling helps undercut a new amendment to the State Constitution that ensures abortion rights.`\
+https://nytimes.com/2025/05/28/us/politics/abortion-missouri-supreme-court.html
+
 **Pardons Become the Latest Trump Flex**\
 `The usual rules of politics seem no match for the president’s desire to exploit an unchecked executive power.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6389208/2025/05/28/packers-wr-jayden-reed-otas/
 **Trump Commutes Federal Life Sentences of Larry Hoover, Chicago Gang Leader**\
 `Mr. Hoover, a drug kingpin who was convicted of leading a vast street gang from inside an Illinois prison, has also been convicted of murder.`\
 https://nytimes.com/2025/05/28/us/politics/trump-larry-hoover-chicago-gang-leader.html
-
-**Trump Pardons Former N.Y. Representative Who Pleaded Guilty to Tax Fraud**\
-`Michael G. Grimm, a Republican, represented Staten Island and part of Brooklyn from 2011 until he resigned in 2015.`\
-https://nytimes.com/2025/05/28/us/politics/trump-pardons-michael-grimm.html
-
-**A New Generation Is Loving Steve Madden, and He Is Here for It**\
-`The shoe designer has had his share of controversies, but his blunt answers on a podcast have made him a man of the moment. “It’s nice to be appreciated,” he said.`\
-https://nytimes.com/2025/05/28/style/steve-madden-cutting-room-floor-podcast.html
 

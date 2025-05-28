@@ -1,3 +1,11 @@
+**Pardons Become the Latest Trump Flex**\
+`The usual rules of politics seem no match for the president’s desire to exploit an unchecked executive power.`\
+https://nytimes.com/2025/05/28/us/politics/trump-pardons.html
+
+**Twins takeaways: Hard-hit luck, Lewis' slump, McCusker's moment, injury updates**\
+`As they took stock of a loss to the Rays, the Twins recognized they deserved better after suffering their first series defeat in a month. `\
+https://nytimes.com/athletic/6389227/2025/05/28/twins-rays-royce-lewis-matt-wallner-carson-mccusker/
+
 **Giants takeaways: They are a lot like the Tigers, except for one big thing**\
 `The Giants and Tigers have a lot of commonalities on their rosters, but their success with first-round picks sets the Tigers apart.`\
 https://nytimes.com/athletic/6388581/2025/05/28/sf-giants-tigers-comparison/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/trump-pardons-michael-grimm.html
 **A New Generation Is Loving Steve Madden, and He Is Here for It**\
 `The shoe designer has had his share of controversies, but his blunt answers on a podcast have made him a man of the moment. “It’s nice to be appreciated,” he said.`\
 https://nytimes.com/2025/05/28/style/steve-madden-cutting-room-floor-podcast.html
-
-**Potential of a surprise Crown witness sparks courtroom spat at Hockey Canada trial**\
-`In earlier testimony, a police investigator detailed the reasoning behind the decision to not pursue criminal charges in 2018. `\
-https://nytimes.com/athletic/6387881/2025/05/28/hockey-canada-sexual-assault-trial-surprise-witness/
-
-**To Win Pardons, Trump Allies Echo His Claims of Political Prosecutions**\
-`The president is increasingly using his clemency powers to undermine Justice Department cases against his supporters.`\
-https://nytimes.com/2025/05/28/us/politics/trump-pardons-clemency.html
 
