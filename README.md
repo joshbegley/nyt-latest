@@ -1,3 +1,7 @@
+**Zelensky Heads to Berlin in Latest Sign of a Warming Relationship**\
+`The  president of Ukraine will talk with Germany’s chancellor in their third meeting in as many weeks.`\
+https://nytimes.com/2025/05/28/world/europe/zelensky-merz-berlin-visit.html
+
 **The Knicks' season is on life support. Do they have one more trick left?**\
 `The Knicks have made the impossible possible all playoffs. Facing a 3-1 series deficit against the Pacers, can they do it again?`\
 https://nytimes.com/athletic/6387143/2025/05/28/knicks-pacers-game-4-eastern-conference-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6382200/2025/05/28/tottenham-player-of-the-season-p
 **West Ham review of 2024-25: One of their worst seasons in recent history**\
 `West Ham have had a difficult campaign, getting through three managers while finishing in 14th place`\
 https://nytimes.com/athletic/6352906/2025/05/28/west-ham-season-review-2024-25/
-
-**Nottingham Forest's player of the season: Nikola Milenkovic**\
-`Milenkovic has already established himself as a transformative figure, and his presence has made the Forest defence even more disciplined`\
-https://nytimes.com/athletic/6385337/2025/05/28/nottingham-forest-nikola-milenkovic-player-season/
 
