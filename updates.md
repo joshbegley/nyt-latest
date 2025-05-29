@@ -1,3 +1,11 @@
+**Trump Administration Agrees to Return Guatemalan Man to U.S.**\
+`A federal judge in Massachusetts had ordered officials to “facilitate” his return. The United States is still holding a group of other deportees at a base in Djibouti.`\
+https://nytimes.com/2025/05/28/us/politics/trump-deportations-guatemala-migrant.html
+
+**Trump Tariffs Ruled Illegal by Federal Judicial Panel**\
+`U.S. Court of International Trade said the president had overstepped his authority under the federal emergency powers law he invoked.`\
+https://nytimes.com/2025/05/28/business/trump-tariffs-blocked-federal-court.html
+
 **Plane Is Diverted After Man Assaults Crew Member, U.S. Says**\
 `An American Airlines jet, which was flying from Connecticut to Chicago, returned to Connecticut after a passenger grabbed a flight attendant, threw the person to the ground and spoke incoherently, prosecutors said.`\
 https://nytimes.com/2025/05/28/us/american-airlines-flight-crew-assault.html

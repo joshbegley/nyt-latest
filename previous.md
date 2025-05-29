@@ -1,3 +1,11 @@
+**Trump Administration Agrees to Return Guatemalan Man to U.S.**\
+`A federal judge in Massachusetts had ordered officials to “facilitate” his return. The United States is still holding a group of other deportees at a base in Djibouti.`\
+https://nytimes.com/2025/05/28/us/politics/trump-deportations-guatemala-migrant.html
+
+**Trump Tariffs Ruled Illegal by Federal Judicial Panel**\
+`U.S. Court of International Trade said the president had overstepped his authority under the federal emergency powers law he invoked.`\
+https://nytimes.com/2025/05/28/business/trump-tariffs-blocked-federal-court.html
+
 **Plane Is Diverted After Man Assaults Crew Member, U.S. Says**\
 `An American Airlines jet, which was flying from Connecticut to Chicago, returned to Connecticut after a passenger grabbed a flight attendant, threw the person to the ground and spoke incoherently, prosecutors said.`\
 https://nytimes.com/2025/05/28/us/american-airlines-flight-crew-assault.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6389187/2025/05/28/ravens-mark-andrews-organized-te
 **NBA YoungBoy Says He Will ‘Keep Building’ After President’s Pardon**\
 `The popular Louisiana rapper recently announced a 32-date U.S. tour to begin in September.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons-nba-youngboy.html
-
-**Packers WR Jayden Reed clarifies report about role: 'A lot of people misinterpreted that'**\
-`There are only so many targets to go around in a talented and deep Packers wide receiver room. Might that lead to unhealthy tension?`\
-https://nytimes.com/athletic/6389208/2025/05/28/packers-wr-jayden-reed-otas/
-
-**Trump Commutes Federal Life Sentences of Larry Hoover, Chicago Gang Leader**\
-`Mr. Hoover, a drug kingpin who was convicted of leading a vast street gang from inside an Illinois prison, has also been convicted of murder.`\
-https://nytimes.com/2025/05/28/us/politics/trump-larry-hoover-chicago-gang-leader.html
 
