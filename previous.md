@@ -1,3 +1,7 @@
+**The key to Yankees’ Mark Leiter Jr.’s dominant start? Work with his dad**\
+`Leiter's second save of an impressive season gave the Yankees a 1-0 win over the Angels on Wednesday night.`\
+https://nytimes.com/athletic/6389966/2025/05/29/yankees-mark-leiter-jr-angels-save/
+
 **Knicks and the City: Rhapsody in Blue and Orange**\
 `Thousands of New Yorkers are flocking to iconic indoor and outdoor venues to cheer on the best Knicks team in decades. Will the party end tonight?`\
 https://nytimes.com/2025/05/29/nyregion/knicks-pacers-eastern-conference-finals-fans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/briefing/israel-criticism-ukraine-germany.html
 **Children in Gaza Are Starving. Let the U.N. Do Its Job.**\
 `The new plan to get aid into the territory could lead to a catastrophe.`\
 https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
-
-**The New York Times in Print for Thursday, May 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/29/todays-new-york-times
 
