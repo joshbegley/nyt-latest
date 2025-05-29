@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Alvin**\
+`See the likely path and wind arrival times for Alvin.`\
+https://nytimes.com/interactive/2025/05/29/weather/alvin-map-path-tracker.html
+
+**What I'm hearing about final stages of Penguins' coaching search**\
+`The Penguins are getting close to Kyle Dubas' June 1 deadline of naming a new coach. `\
+https://nytimes.com/athletic/6389690/2025/05/29/penguins-coaching-search-nhl-mitch-love/
+
 **Google’s New A.I.-Powered Search Has Arrived. Proceed With Caution.**\
 `AI Mode excels at tasks like product research for online shopping. But it falls short on basic web searches.`\
 https://nytimes.com/2025/05/29/technology/personaltech/google-ai-mode-search.html
