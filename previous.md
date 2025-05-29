@@ -1,3 +1,7 @@
+**Juventus open new memorial to mark 40 years since Heysel Stadium disaster**\
+`Thirty-nine people died at the Heysel Stadium in Brussels, Belgium, ahead of the 1985 European Cup final between Juventus and Liverpool.`\
+https://nytimes.com/athletic/6390123/2025/05/29/heysel-stadium-memorial-juventus-anniversary/
+
 **Why Ben Johnson worked with Caleb Williams on body language: Bears OTA takeaways**\
 `Our observations from Halas Hall include rookie Ozzy Trapilo protecting Williams' blindside as he alternates with Kiran Amegadjie.`\
 https://nytimes.com/athletic/6389131/2025/05/29/bears-otas-ben-johnson-caleb-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6389894/2025/05/29/hurricanes-aleksander-barkov-nhl
 **Sando: My favorite offseason move by every NFL team**\
 `The Bengals kept their key players happy, while the Raiders could double their win total from 2024 after adding Pete Carroll and Geno Smith.`\
 https://nytimes.com/athletic/6388467/2025/05/29/nfl-offseason-draft-free-agency-2025/
-
-**College baseball NCAA Regional predictions: Who advances to the College World Series?**\
-`A record 13 SEC teams made the NCAA Tournament. How many will reach the CWS in Omaha?`\
-https://nytimes.com/athletic/6385381/2025/05/29/college-world-series-predictions-2025/
 

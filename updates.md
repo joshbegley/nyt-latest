@@ -1,3 +1,7 @@
+**Juventus open new memorial to mark 40 years since Heysel Stadium disaster**\
+`Thirty-nine people died at the Heysel Stadium in Brussels, Belgium, ahead of the 1985 European Cup final between Juventus and Liverpool.`\
+https://nytimes.com/athletic/6390123/2025/05/29/heysel-stadium-memorial-juventus-anniversary/
+
 **Why Ben Johnson worked with Caleb Williams on body language: Bears OTA takeaways**\
 `Our observations from Halas Hall include rookie Ozzy Trapilo protecting Williams' blindside as he alternates with Kiran Amegadjie.`\
 https://nytimes.com/athletic/6389131/2025/05/29/bears-otas-ben-johnson-caleb-williams/
