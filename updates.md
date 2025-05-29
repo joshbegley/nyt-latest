@@ -1,3 +1,7 @@
+**Garcia Joins Generational Fight Among House Democrats**\
+`The 47-year-old Democrat is facing another younger colleague and two septuagenarians in a contest next month to lead their party on the Oversight Committee.`\
+https://nytimes.com/2025/05/29/us/house-oversight-democrats.html
+
 **Orioles in discussions with John Mabry to join coaching staff: Sources**\
 `The team has effectively been down two coaches after the firings of manager Brandon Hyde and field coordinato Tim Cossins.`\
 https://nytimes.com/athletic/6391114/2025/05/29/john-mabry-baltimore-orioles-coaching-staff/

@@ -1,3 +1,15 @@
+**Capitals refute team email claiming Alex Ovechkin will leave NHL after 2025-26 season**\
+`The team said a message to season-ticket holders "mistakenly alluded" to Ovechkin's final season with the Capitals.`\
+https://nytimes.com/athletic/6391226/2025/05/29/ovechkin-capitals-final-season-email/
+
+**New Likely Dwarf Planet Discovered in Remote Region of Solar System**\
+`The small world was found during a search for the hypothetical Planet Nine, and astronomers say the next time it will reach its closest point to the sun is in the year 26186.`\
+https://nytimes.com/2025/05/29/science/dwarf-planet-nine-discovery.html
+
+**Some Glaciers Will Vanish No Matter What, Study Finds**\
+`Glacial ice will melt for centuries even if global temperatures stop rising now, according to new research.`\
+https://nytimes.com/2025/05/29/climate/glacier-loss-global-warming.html
+
 **Garcia Joins Generational Fight Among House Democrats**\
 `The 47-year-old Democrat is facing another younger colleague and two septuagenarians in a contest next month to lead their party on the Oversight Committee.`\
 https://nytimes.com/2025/05/29/us/house-oversight-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6387338/2025/05/29/liverpool-parade-suspect-named-c
 **Washington 1, Elon 0**\
 `For all the drama and trauma he wrought, driving out federal workers and hollowing out agencies, Elon Musk got nowhere near his goals and is already done.`\
 https://nytimes.com/live/2025/05/19/opinion/thepoint/elon-musk-doge-leaving-washington
-
-**Charlie Baker unfazed by speculation of SEC leaving NCAA**\
-`“I tend to believe what I hear from people when I speak to them directly,” Baker said Thursday during the Big 12 spring meetings.`\
-https://nytimes.com/athletic/6390963/2025/05/29/ncaa-sec-future-ncaa-tournament/
-
-**British Man Faces 7 Charges Over Liverpool Parade Car Crash**\
-`Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd at a soccer parade.`\
-https://nytimes.com/2025/05/29/world/europe/uk-liverpool-crash-charges.html
-
-**Inside Chelsea's Conference League win: Half-time team talk, after-party & Palmer's award mix-up**\
-`Chelsea won the Conference League on Wednesday night. This is the story of their 24 hours around the game`\
-https://nytimes.com/athletic/6390166/2025/05/29/chelsea-conference-league-win-inside-story/
 
