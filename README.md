@@ -1,3 +1,7 @@
+**The ‘spell-off’ is now optional, and other changes at this year’s spelling bee.**\
+`By Isabela Espadas Barros Leal`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/the-spell-off-is-now-optional-and-other-changes-at-this-years-spelling-bee
+
 **For Federal Workers, Musk’s Chain Saw Still Reverberates**\
 `Employees of federal agencies continue to wrestle with the shocks of Elon Musk’s drive to purge the government of diversity programs and slash employment even as the billionaire leaves Washington.`\
 https://nytimes.com/2025/05/29/us/politics/federal-workers-musk-doge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/us/politics/trump-tariffs-trade-policy.html
 **Harrison Ruffin Tyler, Grandson of the 10th President, Is Dead at 96**\
 `He was the last of three generations spanning nearly the entire history of the United States: When his grandfather was born, George Washington had just become president.`\
 https://nytimes.com/2025/05/29/us/politics/harrison-ruffin-tyler-dead.html
-
-**Trump Hits an Obstacle: the Courts**\
-`Also, Russia’s summer offensive appears to be underway. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/05/29/briefing/trump-courts-glaciers-spelling-bee-finals.html
 
