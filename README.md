@@ -1,3 +1,7 @@
+**Give Height, as a Hairdo**\
+`John Kugelman lifts our spirits and a few other things with today’s clever Thursday puzzle.`\
+https://nytimes.com/2025/05/28/crosswords/daily-puzzle-2025-05-29.html
+
 **Ngugi wa Thiong’o, Writer Who Condemned Colonists and Elites, Dies at 87**\
 `Mr. Ngugi composed the first modern novel in the Gikuyu language on prison toilet paper while being held by Kenyan authorities. He spent many prolific years in exile.`\
 https://nytimes.com/2025/05/28/books/ngugi-wa-thiongo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/us/larry-hoover-trump-chicago-gang.html
 **French Open recap: Bad luck for Casper Ruud at Roland Garros continues**\
 `The two-time French Open finalist was struck down by a parasite in last year's semifinal. This year, an injury saw him exit early.`\
 https://nytimes.com/athletic/6387370/2025/05/28/french-open-recap-results-analysis-day-4/
-
-**Rams' Kyren Williams at OTAs amid 'healthy' ongoing contract talks; other notes**\
-`Last year's leading rusher is entering the final season on his rookie contract and his third as the starting running back.`\
-https://nytimes.com/athletic/6389112/2025/05/28/rams-kyren-williams-at-otas-amid-healthy-ongoing-contract-talks-other-notes/
 
