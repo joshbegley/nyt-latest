@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`One determined student is just a few brain-busting correct answers from lifting the Scripps Cup in the final round of the competition’s centennial year.`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/here-is-the-latest
+
+**Live Updates: Spelling Bee Celebrates 100 Years Since First Contest**\
+`The Scripps National Spelling Bee, first held in 1925, will choose a new champion during Thursday night’s finals.`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee
+
 **Top Officials Overseeing Deportations Leave Their Roles at ICE**\
 `Kenneth Genalo, the top ICE deportation official, is retiring, and two other officials are moving on to different roles, the Department of Homeland Security announced.`\
 https://nytimes.com/2025/05/29/us/politics/ice-deportations-officials-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391630/2025/05/29/shacarri-richardson-joins-womens
 **Dodgers acquire former All-Star closer Alexis Díaz from Reds**\
 `Díaz saved 75 games for the Reds, who optioned him to Triple-A Louisville on May 1.`\
 https://nytimes.com/athletic/6391818/2025/05/29/dodgers-alexis-diaz-trade-reds/
-
-**Milan sack Sergio Conceicao after just five months**\
-`The 50-year-old was appointed in December to replace Paulo Fonseca, who himself had only six months in charge of the team.`\
-https://nytimes.com/athletic/6359208/2025/05/29/sergio-conceicao-milan-manager-sacked/
-
-**Trump Makes a New Push to ‘Decouple’ U.S. From China**\
-`Trump administration officials are getting a second chance to try to sever ties with China by starting a trade war, imposing export controls and revoking student visas.`\
-https://nytimes.com/2025/05/29/us/politics/trump-china-visas-tariffs.html
 
