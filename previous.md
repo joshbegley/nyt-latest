@@ -1,4 +1,4 @@
-**Chinese Paraglider Reaches Near-Record Heights — Over 28,000 Feet — by Accident**\
+**Chinese Paraglider Reaches Near-Record Heights, Over 28,000 Feet, by Accident**\
 `After video of the incident went viral, showing a face and body covered in ice, the local sporting authority said it had banned the paraglider from the sport for six months.`\
 https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meters.html
 
