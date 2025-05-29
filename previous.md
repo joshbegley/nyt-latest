@@ -1,3 +1,11 @@
+**Fox exec explains Texas' veto of moving Ohio State opener to Sunday**\
+`Texas athletic director Chris Del Conte told reporters at SEC meetings this week he was the one who shot down the opportunity.`\
+https://nytimes.com/athletic/6390765/2025/05/29/texas-ohio-state-kickoff-fox-noon-sunday/
+
+**Review: Ayodele Casel Links Tap to Her Hip-Hop Beginnings**\
+`The tap choreographer and dancer returns to the Joyce Theater with “The Remix,” a glorious gathering of artists, sound and soul.`\
+https://nytimes.com/2025/05/29/arts/dance/review-ayodele-casel-the-remix.html
+
 **Red Light: Panthers punch ticket to Stanley Cup Final — is Connor McDavid next?**\
 `Plus: The Hurricanes have some soul-searching to do.`\
 https://nytimes.com/athletic/6390885/2025/05/29/red-light-newsletter-stanley-cup-final-panthers-mcdavid/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/opinion/trump-truth.html
 **Harvard Wins Initial Court Fight to Keep Its International Students**\
 `A federal judge heard arguments from Harvard and Trump administration lawyers after the government ended the school’s ability to enroll international students.`\
 https://nytimes.com/2025/05/29/us/harvard-international-students-trumps.html
-
-**Maple Leafs GM Brad Treliving on the Mitch Marner contract 'process,' team's DNA**\
-`Leafs GM says "process" with star forward is still playing out; believes "there's some DNA that has to change."`\
-https://nytimes.com/athletic/6390516/2025/05/29/maple-leafs-gm-brad-treliving-mitch-marner/
-
-**Your Summer Grilling Showstopper Involves a Lot of Wine and a Lot of Salt**\
-`With South American roots, lomo al trapo is an easy way to win this season’s cookouts.`\
-https://nytimes.com/2025/05/29/dining/lomo-al-trapo-grilling-recipe.html
 

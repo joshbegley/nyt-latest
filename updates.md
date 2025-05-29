@@ -1,3 +1,11 @@
+**Fox exec explains Texas' veto of moving Ohio State opener to Sunday**\
+`Texas athletic director Chris Del Conte told reporters at SEC meetings this week he was the one who shot down the opportunity.`\
+https://nytimes.com/athletic/6390765/2025/05/29/texas-ohio-state-kickoff-fox-noon-sunday/
+
+**Review: Ayodele Casel Links Tap to Her Hip-Hop Beginnings**\
+`The tap choreographer and dancer returns to the Joyce Theater with “The Remix,” a glorious gathering of artists, sound and soul.`\
+https://nytimes.com/2025/05/29/arts/dance/review-ayodele-casel-the-remix.html
+
 **Red Light: Panthers punch ticket to Stanley Cup Final — is Connor McDavid next?**\
 `Plus: The Hurricanes have some soul-searching to do.`\
 https://nytimes.com/athletic/6390885/2025/05/29/red-light-newsletter-stanley-cup-final-panthers-mcdavid/
