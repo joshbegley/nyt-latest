@@ -1,3 +1,19 @@
+**British Man Faces 7 Charges Over Liverpool Parade Car Crash**\
+`Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd of soccer fans.`\
+https://nytimes.com/2025/05/29/world/europe/uk-liverpool-crash-charges.html
+
+**Inside Chelsea's Conference League win: Half-time team talk, after-party & Palmer's award mix-up**\
+`Chelsea won the Conference League on Wednesday night. This is the story of their 24 hours around the game`\
+https://nytimes.com/athletic/6390166/2025/05/29/chelsea-conference-league-win-inside-story/
+
+**A Pasta Salad in Grain Salad’s Clothing**\
+`This herby recipe is perfect for all that farmers’ market produce you bought without any plan.`\
+https://nytimes.com/2025/05/29/dining/a-pasta-salad-in-grain-salads-clothing.html
+
+**U.S. Cancels Contract With Moderna to Develop Bird Flu Vaccine**\
+`Health Secretary Robert F. Kennedy Jr. has repeatedly questioned the safety of mRNA technology, which is used in the company’s shot.`\
+https://nytimes.com/2025/05/29/health/us-cancels-contract-with-moderna-to-develop-bird-flu-vaccine.html
+
 **As the Epic Struggle for Harvard Unfolds**\
 `Readers discuss the confrontation between President Trump and Harvard. Also: Standing up to Vladimir Putin; silencing authors; self-driving trucks.`\
 https://nytimes.com/2025/05/29/opinion/harvard-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/29/us/trump-international-students.html
 **Fox exec explains Texas' veto of moving Ohio State opener to Sunday**\
 `Texas athletic director Chris Del Conte told reporters at SEC meetings this week he was the one who shot down the opportunity.`\
 https://nytimes.com/athletic/6390765/2025/05/29/texas-ohio-state-kickoff-fox-noon-sunday/
-
-**Review: Ayodele Casel Links Tap to Her Hip-Hop Beginnings**\
-`The tap choreographer and dancer returns to the Joyce Theater with “The Remix,” a glorious gathering of artists, sound and soul.`\
-https://nytimes.com/2025/05/29/arts/dance/review-ayodele-casel-the-remix.html
-
-**Red Light: Panthers punch ticket to Stanley Cup Final — is Connor McDavid next?**\
-`Plus: The Hurricanes have some soul-searching to do.`\
-https://nytimes.com/athletic/6390885/2025/05/29/red-light-newsletter-stanley-cup-final-panthers-mcdavid/
-
-**Nebraska football scheduled to play two Friday games in 2025**\
-`The Huskers will play at Minnesota in Week 7, in addition to their traditional Black Friday game against Iowa. `\
-https://nytimes.com/athletic/6390333/2025/05/29/nebraska-football-schedule-friday-2025/
-
-**NWSL Denver hires Curt Johnson as GM following stint with North Carolina Courage**\
-`Johnson's time at the Courage overlapped with the downfall of disgraced former coach Paul Riley.`\
-https://nytimes.com/athletic/6389792/2025/05/29/nwsl-denver-gm-curt-johnson-courage/
 
