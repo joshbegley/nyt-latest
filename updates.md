@@ -1,3 +1,15 @@
+**U.S. Will ‘Aggressively’ Revoke Visas of Many Chinese Students, Rubio Says**\
+`Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
+https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
+
+**Lloyd: Browns' best QB after Day 1 is Joe Flacco, but who'll start Game 1 is complicated**\
+`Do you play the old man, even if it's counterintuitive to the high draft pick you covet next year? Or play the kids and see what you have?`\
+https://nytimes.com/athletic/6389348/2025/05/28/browns-qbs-joe-flacco-shedeur-sanders-otas/
+
+**Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
+`Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
+https://nytimes.com/2025/05/28/us/politics/trump-imaad-zuberi-commute-sentence.html
+
 **Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
 `Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
 https://nytimes.com/2025/05/28/us/politics/trump-imaad-suberi-commute-sentence.html

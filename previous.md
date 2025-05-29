@@ -1,6 +1,14 @@
+**U.S. Will ‘Aggressively’ Revoke Visas of Many Chinese Students, Rubio Says**\
+`Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
+https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
+
+**Lloyd: Browns' best QB after Day 1 is Joe Flacco, but who'll start Game 1 is complicated**\
+`Do you play the old man, even if it's counterintuitive to the high draft pick you covet next year? Or play the kids and see what you have?`\
+https://nytimes.com/athletic/6389348/2025/05/28/browns-qbs-joe-flacco-shedeur-sanders-otas/
+
 **Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
 `Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
-https://nytimes.com/2025/05/28/us/politics/trump-imaad-suberi-commute-sentence.html
+https://nytimes.com/2025/05/28/us/politics/trump-imaad-zuberi-commute-sentence.html
 
 **Larry Hoover, Former Chicago Gang Leader, Wins Commutation From Trump**\
 `Mr. Hoover was accused of directing the Gangster Disciples even after he went to prison in the 1970s. The federal commutation will not change his state prison sentence.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/business/trump-tariffs-blocked-federal-court.html
 **Plane Is Diverted After Man Assaults Crew Member, U.S. Says**\
 `An American Airlines jet, which was flying from Connecticut to Chicago, returned to Connecticut after a passenger grabbed a flight attendant, threw the person to the ground and spoke incoherently, prosecutors said.`\
 https://nytimes.com/2025/05/28/us/american-airlines-flight-crew-assault.html
-
-**Missouri Supreme Court Effectively Blocks Access to Abortion, at Least for Now**\
-`The ruling helps undercut a new amendment to the State Constitution that ensures abortion rights.`\
-https://nytimes.com/2025/05/28/us/politics/abortion-missouri-supreme-court.html
-
-**Pardons Become the Latest Trump Flex**\
-`The usual rules of politics seem no match for the president’s desire to exploit an unchecked executive power.`\
-https://nytimes.com/2025/05/28/us/politics/trump-pardons.html
 
