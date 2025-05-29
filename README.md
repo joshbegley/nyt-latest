@@ -1,3 +1,27 @@
+**The Democrats’ 20-Million-Dollar-Man Problem**\
+`To reach the manosphere, you have to know the manosphere.`\
+https://nytimes.com/2025/05/29/opinion/manosphere-democrats-peterson-men.html
+
+**Progressives Are Driving Themselves Into Extinction**\
+`What would make you want to have more children?`\
+https://nytimes.com/2025/05/29/opinion/dating-marriage-children-fertility.html
+
+**After 50 Years in the Same Rental, She Grabbed Her Chance to Buy a Place**\
+`A longtime Upper West Side denizen had up to $600,000 to spend on a studio or a one-bedroom: ‘The thing is, if not now, when?’`\
+https://nytimes.com/interactive/2025/05/29/realestate/manhattan-west-side-co-op-sale.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Brooklyn Rider’s exploration of the four elements, miniatures by Kurtag and the Anzû Quartet’s debut recording are among the highlights.`\
+https://nytimes.com/2025/05/29/arts/music/best-classical-music-recordings-may-2025.html
+
+**If Trump Walks Away From Ukraine Now, Putin Wins**\
+`The president is right about wanting to end the war in Ukraine but wrong about threatening to walk away from cease-fire talks.`\
+https://nytimes.com/2025/05/29/opinion/trump-ukraine-russia-ceasefire.html
+
+**Cuomo’s Plan for a $20 Minimum Wage in New York City**\
+`Former Gov. Andrew Cuomo, who is the front-runner in the Democratic mayoral primary, announced a plan to increase the city’s minimum wage if he is elected.`\
+https://nytimes.com/2025/05/29/nyregion/cuomos-plan-for-a-20-minimum-wage-in-new-york-city.html
+
 **How China Uses Work to Reshape Uyghur Identity and Control a Strategic Region**\
 `State labor programs were aimed at lifting one of the nation’s poorest regions out of poverty, but they have also served as a tool to erode resistance to Chinese rule.`\
 https://nytimes.com/2025/05/29/world/asia/china-uyghur-labor.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/29/arts/television/dept-q-review-netflix.html
 **The Techno-Futuristic Philosophy Behind Elon Musk’s Mania**\
 `From the White House to Mars, the tech billionaire has his sights set on the long term.`\
 https://nytimes.com/2025/05/29/business/elon-musk-longtermism-effective-altruism-doge.html
-
-**Harvard and Trump Lawyers to Face Off in Court in Foreign Student Case**\
-`With the future of thousands of students at stake, the two sides will argue in person as the Trump administration pushes Harvard to comply with its demands.`\
-https://nytimes.com/2025/05/29/us/harvard-trump-lawyers-hearing-foreign-students.html
-
-**Why Should Columbia Keep Out Its Neighbors?**\
-`A campus in the city isn’t being of the city.`\
-https://nytimes.com/2025/05/29/opinion/columbia-university-college-walk.html
-
-**10 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/05/29/books/review/10-new-books-we-recommend-this-week.html
-
-**The Filibuster, a Staple of the Modern Senate, Is on the Ropes**\
-`The Senate skirting the filibuster to strike down California’s plan to phase out gas-powered vehicles was the latest wound to a tactic in decline.`\
-https://nytimes.com/2025/05/29/us/politics/senate-filibuster-california-air.html
-
-**Trump’s Attacks on Black History Betray America**\
-`The president’s attempts to erase Black history hurt all Americans.`\
-https://nytimes.com/2025/05/29/opinion/black-history-trump.html
-
-**36 Hours in Marseille**\
-`Marseille is a port city, constantly in motion. But the city’s wild streak remains.`\
-https://nytimes.com/interactive/2025/05/29/travel/things-to-do-Marseille.html
 
