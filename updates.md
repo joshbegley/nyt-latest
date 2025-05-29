@@ -1,3 +1,7 @@
+**Delap prefers Chelsea transfer, rival clubs told he won't join them**\
+`Subject to agreement on personal terms and the requirements of the £30m release clause being met, the 22-year-old will move to Chelsea.`\
+https://nytimes.com/athletic/6267400/2025/05/29/chelsea-transfers-liam-delap/
+
 **Ray Dalio’s Prescription for Avoiding Fiscal Catastrophe**\
 `The hedge fund billionaire’s take on how to fix America’s fiscal woes is getting a warm reception in Washington, even as he suggests drastic changes.`\
 https://nytimes.com/2025/05/29/business/dealbook/dalio-deficit-taxes-interest-rates.html

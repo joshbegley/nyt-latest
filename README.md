@@ -14,7 +14,7 @@ https://nytimes.com/live/2025/05/29/us/harvard-trump
 `By Dana Goldstein`\
 https://nytimes.com/live/2025/05/29/us/harvard-trump/heres-what-to-know-about-the-fight-with-trump
 
-**Israel Intensely Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
+**Israel Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
 `Israeli attacks on Gaza have killed more than 60 people over the past day, according to local health officials.`\
 https://nytimes.com/2025/05/29/world/middleeast/israel-gaza.html
 
