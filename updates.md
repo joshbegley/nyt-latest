@@ -1,3 +1,15 @@
+**'There will be change': Analyzing Maple Leafs GM Brad Treliving's boldest end-of-season quotes**\
+`Leafs GM says team's DNA needs to change as he fields questions about futures of Mitch Marner, John Tavares, Matthew Knies and more.`\
+https://nytimes.com/athletic/6391035/2025/05/29/maple-leafs-gm-brad-treliving-nhl-analysis/
+
+**Federal Judge Dismisses Case Against Michigan Trooper Charged in Man’s Death**\
+`The judge ruled that the trooper was shielded from charges under the Supremacy Clause of the U.S. Constitution because he was working on a federal task force.`\
+https://nytimes.com/2025/05/29/us/michigan-trooper-case-dismissed-samuel-sterling.html
+
+**Gabriel close to agreeing new long-term Arsenal contract**\
+`Sporting director Andrea Berta made talks with Gabriel’s camp a priority shortly after starting at Arsenal in March.`\
+https://nytimes.com/athletic/6391558/2025/05/29/arsenal-gabriel-new-contract/
+
 **Cryptocurrency Seems Futuristic. The Crimes Around It Are Not.**\
 `Mayor Eric Adams wants New York City to be “the crypto capital of the globe.” The torture of a man for his Bitcoin wallet surely isn’t what he had in mind.`\
 https://nytimes.com/2025/05/29/nyregion/nyc-crypto-townhouse-torture-adams.html

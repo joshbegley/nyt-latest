@@ -1,3 +1,15 @@
+**'There will be change': Analyzing Maple Leafs GM Brad Treliving's boldest end-of-season quotes**\
+`Leafs GM says team's DNA needs to change as he fields questions about futures of Mitch Marner, John Tavares, Matthew Knies and more.`\
+https://nytimes.com/athletic/6391035/2025/05/29/maple-leafs-gm-brad-treliving-nhl-analysis/
+
+**Federal Judge Dismisses Case Against Michigan Trooper Charged in Man’s Death**\
+`The judge ruled that the trooper was shielded from charges under the Supremacy Clause of the U.S. Constitution because he was working on a federal task force.`\
+https://nytimes.com/2025/05/29/us/michigan-trooper-case-dismissed-samuel-sterling.html
+
+**Gabriel close to agreeing new long-term Arsenal contract**\
+`Sporting director Andrea Berta made talks with Gabriel’s camp a priority shortly after starting at Arsenal in March.`\
+https://nytimes.com/athletic/6391558/2025/05/29/arsenal-gabriel-new-contract/
+
 **Cryptocurrency Seems Futuristic. The Crimes Around It Are Not.**\
 `Mayor Eric Adams wants New York City to be “the crypto capital of the globe.” The torture of a man for his Bitcoin wallet surely isn’t what he had in mind.`\
 https://nytimes.com/2025/05/29/nyregion/nyc-crypto-townhouse-torture-adams.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6390454/2025/05/29/timberwolves-nba-daily-thunder-a
 **Chicken and Rice Forever**\
 `The pairing is unbeatable, whether in the form of congee, katsu don or a classic halal cart combo.`\
 https://nytimes.com/2025/05/29/dining/chicken-and-rice-forever.html
-
-**White House Puts Cease-Fire Proposal to Hamas as Pressure on Israel Grows**\
-`The U.S. has sent an Israeli-backed cease-fire proposal that would allow the flow of aid into Gaza. Hamas appeared skeptical of the offer.`\
-https://nytimes.com/2025/05/29/us/politics/israel-gaza-cease-fire-trump.html
-
-**NWSL suspends Racing Louisville’s Kayla Fischer two additional matches for pulling player’s hair**\
-`Racing occupies the eighth spot in the NWSL table, narrowly inside playoff contention.`\
-https://nytimes.com/athletic/6391452/2025/05/29/nwsl-suspends-racing-louisville-kayla-fischer-pulling-hair/
-
-**Energy Dept. Unveils Supercomputer That Merges With A.I.**\
-`The new supercomputer shows the increasing desire of government labs to adopt more technologies from commercial artificial intelligence systems.`\
-https://nytimes.com/2025/05/29/technology/energy-department-supercomputer-ai.html
 
