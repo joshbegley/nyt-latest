@@ -1,3 +1,11 @@
+**A Disillusioned Musk, Distanced From Trump, Says He’s Exiting Washington**\
+`The billionaire has made clear he is frustrated with the obstacles he encountered as he tried to upend the federal bureaucracy.`\
+https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-doge.html
+
+**Leader of Smuggling Ring Gets 10 Years After Indian Family Froze to Death**\
+`The family of four that used the network got disoriented and lost their way in 2022 while trying to reach the United States from Canada on foot in blizzard conditions.`\
+https://nytimes.com/2025/05/28/us/human-smuggling-indian-family-canada-border.html
+
 **The Times Confirms More Names on Trump’s Crypto Dinner Guest List**\
 `Some were identified through photos as they entered the event. Others posted about their evening on social media.`\
 https://nytimes.com/2025/05/28/us/politics/trump-crypto-dinner-guest-list.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6389112/2025/05/28/rams-kyren-williams-at-otas-amid
 **Harvard Says Many of Its Foreign Students Are Seeking to Transfer**\
 `The Trump administration is trying to block Harvard from enrolling international students. A Harvard official said the move is already creating major disruptions.`\
 https://nytimes.com/2025/05/28/us/harvard-international-students-transfers.html
-
-**Trump Administration Agrees to Return Guatemalan Man to U.S.**\
-`A federal judge in Massachusetts had ordered officials to “facilitate” his return. The United States is still holding a group of other deportees at a base in Djibouti.`\
-https://nytimes.com/2025/05/28/us/politics/trump-deportations-guatemala-migrant.html
-
-**Trump Tariffs Ruled Illegal by Federal Judicial Panel**\
-`The U.S. Court of International Trade said the president had overstepped his authority under the federal emergency powers law he invoked.`\
-https://nytimes.com/2025/05/28/business/trump-tariffs-blocked-federal-court.html
 
