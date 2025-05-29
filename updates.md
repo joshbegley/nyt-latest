@@ -1,3 +1,7 @@
+**NBA playoffs results and takeaways: Thunder earn trip to NBA Finals with rout of Wolves**\
+`The Thunder return to the NBA Finals for the first time since 2012. Shai Gilgeous-Alexander was named Western Conference finals MVP.`\
+https://nytimes.com/athletic/6389628/2025/05/28/thunder-timberwolves-game-5-shai-gilgeous-alexander-results-takeaways/
+
 **Trump Gives Clemency to More Than Two Dozen, Including Political Allies**\
 `A blitz of pardons and commutations included those who have expressed political support or echoed the president in claiming they had been unfairly targeted.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.html
