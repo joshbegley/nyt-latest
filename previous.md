@@ -1,3 +1,7 @@
+**Bayern announce signing of Tah**\
+`The 29-year-old has signed a four-year deal and will wear the number four shirt.`\
+https://nytimes.com/athletic/6390053/2025/05/29/jonathan-tah-bayern-transfer/
+
 **Glacier Landslide Buries a Swiss Village**\
 `A mass of ice, rocks and mud tumbled down a mountain, smothering the village of Blatten, Switzerland.`\
 https://nytimes.com/video/climate/100000010195800/glacier-swiss-alps-landslide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/nyregion/onetaste-orgasmic-meditation-trial-coerc
 **This Timberwolves meltdown tears at the fabric of an otherwise impressive season: 'It hurts'**\
 `Can one game ruin an entire season? Probably not, but Game 5 was a meltdown so complete and so embarrassing that it bears asking.`\
 https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thunder-nba-playoffs/
-
-**Thursday Briefing**\
-`Mounting criticism of Israel.`\
-https://nytimes.com/2025/05/29/briefing/israel-criticism-ukraine-germany.html
 

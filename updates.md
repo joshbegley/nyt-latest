@@ -1,3 +1,7 @@
+**Bayern announce signing of Tah**\
+`The 29-year-old has signed a four-year deal and will wear the number four shirt.`\
+https://nytimes.com/athletic/6390053/2025/05/29/jonathan-tah-bayern-transfer/
+
 **Glacier Landslide Buries a Swiss Village**\
 `A mass of ice, rocks and mud tumbled down a mountain, smothering the village of Blatten, Switzerland.`\
 https://nytimes.com/video/climate/100000010195800/glacier-swiss-alps-landslide.html
