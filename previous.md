@@ -1,5 +1,21 @@
+**Sha'Carri Richardson joins Athlos as founding adviser-owner**\
+`Alongside Gabby Thomas and Tara Davis-Woodhall, Richardson joins an effort to expand Athlos into a team-based league.`\
+https://nytimes.com/athletic/6391630/2025/05/29/shacarri-richardson-joins-womens-track-league-athlos-as-founding-adviser-owner/
+
+**Dodgers acquire former All-Star closer Alexis Díaz from Reds**\
+`Díaz saved 75 games for the Reds, who optioned him to Triple-A Louisville on May 1.`\
+https://nytimes.com/athletic/6391818/2025/05/29/dodgers-alexis-diaz-trade-reds/
+
+**Milan sack Sergio Conceicao after just five months**\
+`The 50-year-old was appointed in December to replace Paulo Fonseca, who himself had only six months in charge of the team.`\
+https://nytimes.com/athletic/6359208/2025/05/29/sergio-conceicao-milan-manager-sacked/
+
+**Trump Makes a New Push to ‘Decouple’ U.S. From China**\
+`Trump administration officials are getting a second chance to try to sever ties with China by starting a trade war, imposing export controls and revoking student visas.`\
+https://nytimes.com/2025/05/29/us/politics/trump-china-visas-tariffs.html
+
 **White House Health Report Included Fake Citations**\
-`A report on children’s health, released by the Make America Healthy Again Commission, referred to scientific papers that did not exist.`\
+`A report on children’s health released by the Make America Healthy Again Commission referred to scientific papers that did not exist.`\
 https://nytimes.com/2025/05/29/well/maha-report-citations.html
 
 **Jay Leach a finalist for Bruins coaching position: Source**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/05/29/briefing/trump-tariffs-court-russia-ukraine-china
 **How to Make a Mild Guy Really Angry**\
 `Trumpism can be seen as a giant attempt to amputate the highest aspirations of the human spirit and to reduce us to our most primitive, atavistic tendencies.`\
 https://nytimes.com/2025/05/29/opinion/trump-vance-morality.html
-
-**Chaos rules Roland Garros with crowds, comebacks and curious scheduling on day 5**\
-`The French Open ignites at Roland Garros with thrilling comebacks, crowd chaos and the Philippe-Chatrier night session debate.`\
-https://nytimes.com/athletic/6390113/2025/05/29/french-open-recap-comebacks-french-crowds-schedule-night-session/
-
-**Rhode, Hailey Bieber’s Beauty Brand, Sells in Billion-Dollar Deal**\
-`E.L.F. Beauty acquired Mrs. Bieber’s cosmetics brand for $800 million in cash and stock upfront, with another $200 million contingent on future growth.`\
-https://nytimes.com/2025/05/29/style/hailey-bieber-rhode-elf-beauty.html
-
-**The Giants’ All-Quarter Century Team: Barry Bonds and the rest of the best since 2000**\
-`The last 25 years of Giants baseball have been a lot of fun. Not surprisingly, it was easy to pick an All-Quarter-Century team.`\
-https://nytimes.com/athletic/6391014/2025/05/29/sf-giants-all-2000s-team/
-
-**'There will be change': Analyzing Leafs GM Brad Treliving's boldest end-of-season quotes**\
-`Leafs GM says team's DNA needs to change as he fields questions about futures of Mitch Marner, John Tavares, Matthew Knies and more.`\
-https://nytimes.com/athletic/6391035/2025/05/29/maple-leafs-gm-brad-treliving-nhl-analysis/
 
