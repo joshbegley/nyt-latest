@@ -1,5 +1,5 @@
 **N.Y. Natural Gas Pipelines Get a Second Chance Under Trump**\
-`Williams, a pipeline company, said it was reviving pipelines that had been blocked on environmental grounds, as the Trump administration pushes states to accept more fossil fuel projects.`\
+`An energy company plans to revive pipelines that had been blocked on environmental grounds, as President Trump pushes states on fossil fuel projects.`\
 https://nytimes.com/2025/05/29/business/energy-environment/constitution-pipeline-hochul-trump.html
 
 **Oilers shuffle forwards after Zach Hyman's injury, get Mattias Ekholm back for Game 5**\
