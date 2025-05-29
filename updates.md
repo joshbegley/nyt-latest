@@ -1,3 +1,7 @@
+**Browns OTA observations: What I saw from Joe Flacco, Shedeur Sanders and others**\
+`In Cleveland's first OTA session open to reporters, we got a glimpse at the early QB battle, Flacco's connection with Jerry Jeudy and more.`\
+https://nytimes.com/athletic/6389206/2025/05/29/browns-2025-organized-team-activities/
+
 **Ayuso withdraws from Giro after bee sting: 'I can’t see out my right eye'**\
 `The Spanish rider had also been suffering with a knee injury, having lost almost 50 minutes on the GC over the last two days.`\
 https://nytimes.com/athletic/6390622/2025/05/29/juan-ayuso-bee-giro-ditalia/

@@ -1,3 +1,7 @@
+**Delap has told your club he will not be joining this summer - who should they sign instead?**\
+`Ipswich striker Delap has let teams interested in signing him know that he'd prefer a move to Chelsea - so who might be their Plan B?`\
+https://nytimes.com/athletic/6390430/2025/05/29/liam-delap-transfer-striker-alternatives-analysis/
+
 **Browns OTA observations: What I saw from Joe Flacco, Shedeur Sanders and others**\
 `In Cleveland's first OTA session open to reporters, we got a glimpse at the early QB battle, Flacco's connection with Jerry Jeudy and more.`\
 https://nytimes.com/athletic/6389206/2025/05/29/browns-2025-organized-team-activities/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/business/trump-tariffs-trade-strategy.html
 **United Airlines Will Return to J.F.K. Through a Deal With JetBlue**\
 `The partnership comes after Newark’s airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
 https://nytimes.com/2025/05/29/business/united-airlines-jetblue-jfk-newark.html
-
-**At This N.Y.C. Sumo Club, ‘Everybody Gets Thrown’**\
-`After three years of work, the New York Sumo Club held its first tournament for amateur students of the ancient combat sport.`\
-https://nytimes.com/2025/05/29/nyregion/new-york-sumo-club-amateur.html
 
