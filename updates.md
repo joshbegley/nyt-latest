@@ -1,3 +1,15 @@
+**Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
+`Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
+https://nytimes.com/2025/05/28/us/politics/trump-imaad-suberi-commute-sentence.html
+
+**Larry Hoover, Former Chicago Gang Leader, Wins Commutation From Trump**\
+`Mr. Hoover was accused of directing the Gangster Disciples even after he went to prison in the 1970s. The federal commutation will not change his state prison sentence.`\
+https://nytimes.com/2025/05/28/us/larry-hoover-trump-chicago-gang.html
+
+**French Open recap: Bad luck for Casper Ruud at Roland Garros continues**\
+`The two-time French Open finalist was struck down by a parasite in last year's semifinal. This year, an injury saw him exit early.`\
+https://nytimes.com/athletic/6387370/2025/05/28/french-open-recap-results-analysis-day-4/
+
 **Rams' Kyren Williams at OTAs amid 'healthy' ongoing contract talks; other notes**\
 `Last year's leading rusher is entering the final season on his rookie contract and his third as the starting running back.`\
 https://nytimes.com/athletic/6389112/2025/05/28/rams-kyren-williams-at-otas-amid-healthy-ongoing-contract-talks-other-notes/
