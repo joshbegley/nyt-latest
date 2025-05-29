@@ -1,3 +1,7 @@
+**Thousands Evacuate in Canada as Multiple Wildfires Rage**\
+`Officials declared a state of emergency for the entire province of Manitoba on Wednesday as out-of-control fires threatened several communities.`\
+https://nytimes.com/2025/05/29/us/canada-wildfires-manitoba-evacuations.html
+
 **Chaos vs. Hope: America’s Trading Partners React Cautiously to Tariff Block**\
 `President Trump’s threat to impose big charges — including 50 percent on the European Union — was in question after judges blocked his across-the-board levies.`\
 https://nytimes.com/2025/05/29/world/europe/us-trade-tariffs-court-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388041/2025/05/29/pacers-tyrese-haliburton-stats-n
 **Chris Burke, former Houston Astros hero, is a college baseball broadcasting star**\
 `Burke, a former All-America shortstop at Tennessee, will be in the booth for his fourth consecutive College World Series finals. `\
 https://nytimes.com/athletic/6350014/2025/05/29/chris-burke-college-baseball-announcer-espn-sec/
-
-**Wheeler: 30 prospects who just missed the cut for my 2025 NHL Draft board**\
-`Scouting reports for 30 players who were considered but not placed on Wheeler's upcoming draft ranking.`\
-https://nytimes.com/athletic/6353477/2025/05/29/nhl-draft-2025-prospects-top-100-cut/
 

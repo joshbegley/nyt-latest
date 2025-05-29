@@ -1,3 +1,7 @@
+**Thousands Evacuate in Canada as Multiple Wildfires Rage**\
+`Officials declared a state of emergency for the entire province of Manitoba on Wednesday as out-of-control fires threatened several communities.`\
+https://nytimes.com/2025/05/29/us/canada-wildfires-manitoba-evacuations.html
+
 **Chaos vs. Hope: America’s Trading Partners React Cautiously to Tariff Block**\
 `President Trump’s threat to impose big charges — including 50 percent on the European Union — was in question after judges blocked his across-the-board levies.`\
 https://nytimes.com/2025/05/29/world/europe/us-trade-tariffs-court-decision.html
