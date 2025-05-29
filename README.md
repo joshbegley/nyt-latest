@@ -1,3 +1,7 @@
+**Faizan Zaki, Last Year’s Runner-Up, Is a Favorite to Win This Year’s Spelling Bee**\
+`The 13-year-old from Plano, Texas, was the only 2024 finalist who advanced to the 2025 finals.`\
+https://nytimes.com/2025/05/29/us/faizan-zaki-spelling-bee-final.html
+
 **San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
 `Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
 https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meter
 **South African Woman Gets Life Sentence for Selling 6-Year-Old Daughter**\
 `The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for about $1,100.`\
 https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.html
-
-**Raiders OTAs: Geno Smith, Chip Kelly building rapport; Malcolm Koonce returns**\
-`The Raiders hope they’ve found their QB/OC pairing for the foreseeable future and that it will bring about more consistency on offense.`\
-https://nytimes.com/athletic/6391679/2025/05/29/raiders-otas-geno-smith-chip-kelly/
 
