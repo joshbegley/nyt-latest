@@ -1,3 +1,15 @@
+**Braves' AJ Smith-Shawver leaves game after hearing 'pop' in elbow, will get MRI**\
+`The Braves placed Smith-Shawver on the 15-day injured list after the game.`\
+https://nytimes.com/athletic/6391849/2025/05/29/braves-aj-smith-shawver-elbow-pop-mri/
+
+**Broncos QB Bo Nix is comfortable heading into Year 2 but insists, 'I have a lot to prove'**\
+`Nix took an extended break from throwing at the start of his offseason so he could "build the body back right."`\
+https://nytimes.com/athletic/6391459/2025/05/29/broncos-otas-qb-bo-nix/
+
+**Trump Administration Targets Brazilian Judge for ‘Censorship’**\
+`A new State Department policy to restrict visas from foreign officials who censor voices online appears written for a specific Brazilian Supreme Court justice.`\
+https://nytimes.com/2025/05/29/world/americas/trump-brazil-judge-censorship.html
+
 **Sha'Carri Richardson joins Athlos as founding adviser-owner**\
 `Alongside Gabby Thomas and Tara Davis-Woodhall, Richardson joins an effort to expand Athlos into a team-based league.`\
 https://nytimes.com/athletic/6391630/2025/05/29/shacarri-richardson-joins-womens-track-league-athlos-as-founding-adviser-owner/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6391615/2025/05/29/jay-leach-finalist-bruins-coach/
 **Freeman: Notre Dame-USC series should continue every year**\
 `Notre Dame and USC do not have a scheduling agreement beyond 2025. Marcus Freeman made his rivalry stance clear on Thursday.`\
 https://nytimes.com/athletic/6391540/2025/05/29/notre-dame-usc-rivalry-marcus-freeman/
-
-**Why Israel’s Aid Delivery in Gaza Has Led to Chaos**\
-`Following a nearly three-month Israeli blockade on food going into Gaza, a new and contentious Israeli-backed aid distribution system has been unveiled in the territory.`\
-https://nytimes.com/video/world/middleeast/100000010194220/gaza-aid-distribution-system-explained.html
-
-**Friday Briefing: Trump Battles the Court**\
-`Plus, join our creativity challenge.`\
-https://nytimes.com/2025/05/29/briefing/trump-tariffs-court-russia-ukraine-china-uyghurs.html
-
-**How to Make a Mild Guy Really Angry**\
-`Trumpism can be seen as a giant attempt to amputate the highest aspirations of the human spirit and to reduce us to our most primitive, atavistic tendencies.`\
-https://nytimes.com/2025/05/29/opinion/trump-vance-morality.html
 
