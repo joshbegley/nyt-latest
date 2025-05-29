@@ -1,3 +1,7 @@
+**This Timberwolves meltdown tears at the fabric of an otherwise impressive season: 'It hurts'**\
+`Can one game ruin an entire season? Probably not, but Game 5 was a meltdown so complete and so embarrassing that it bears asking.`\
+https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thunder-nba-playoffs/
+
 **Thursday Briefing**\
 `Mounting criticism of Israel.`\
 https://nytimes.com/2025/05/29/briefing/israel-criticism-ukraine-germany.html
@@ -9,6 +13,10 @@ https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
 **The New York Times in Print for Thursday, May 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/29/todays-new-york-times
+
+**How would Martin Zubimendi fit in Arsenal’s midfield?**\
+`Press resistance? Passing tendencies? What does he offer defensively and going forward? This is what Zubimendi would bring to Arsenal`\
+https://nytimes.com/athletic/6387446/2025/05/29/martin-zubimendi-arsenal-midfield-analysis/
 
 **Tottenham Hotspur squad audit: How the team is set ahead of the transfer window**\
 `The Athletic breaks down the state of Tottenham’s squad and what should happen next ahead of what could be a busy summer`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6376108/2025/05/29/leeds-united-mailbag-red-bull-tr
 **A PSR scramble, Howe's pneumonia and a 70-year wait ended – Newcastle's season in review**\
 `This season will go down in Newcastle folklore. George Caulkin reflects on the highs and lows`\
 https://nytimes.com/athletic/6374781/2025/05/29/newcastle-united-season-review-2024-2025/
-
-**'Relentless' planning and a 'hidden magic' - How Moyes masterminded Everton's turnaround**\
-`The Athletic spoke to Moyes' assistant Billy McKinlay for insight into what the Scot has changed at Goodison Park `\
-https://nytimes.com/athletic/6387515/2025/05/29/david-moyes-everton-premier-league/
-
-**Khvicha Kvaratskhelia, PSG's Georgian artist whose football skills saved his father's life**\
-`Told from Georgia, this is the tale of Khvicha Kvaratskhelia, featuring Agatha Christie, Cristiano Ronaldo, Virgil van Dijk and a life saved`\
-https://nytimes.com/athletic/6384756/2025/05/29/khvicha-kvaratskhelia-father-saved-life/
 
