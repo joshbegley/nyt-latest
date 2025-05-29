@@ -1,3 +1,43 @@
+**Young but mature Thunder were ready for this moment**\
+`Oklahoma City validated its 68-win regular season by reaching the NBA Finals, showing poise beyond its years.`\
+https://nytimes.com/athletic/6389858/2025/05/29/okc-thunder-west-finals-game-5-gilgeous-alexander-nba-finals/
+
+**2015 Blackhawks-Ducks revisited: Head-butt, heroics, heartbreak**\
+`Participants in the chaos of the 2015 Western Conference final recall punishing hits, eye-popping feats of endurance and one famous no-goal.`\
+https://nytimes.com/athletic/6388211/2025/05/29/blackhawks-ducks-2015-nhl-western-conference-final/
+
+**Oneil Cruz is already a Statcast legend. Can the rest of his game catch up?**\
+`'He’s kind of a Rubik’s Cube up there,' Andrew McCutchen said. 'You see hints of it at times. But you also see the youthful side of it.'`\
+https://nytimes.com/athletic/6389431/2025/05/29/oneil-cruz-pittsburgh-pirates/
+
+**'Go by what we see': How 2 rookie tryout players earned offseason shots with Broncos**\
+`Wide receiver Kyrese White and inside linebacker Jordan Turner impressed during a tryout.`\
+https://nytimes.com/athletic/6388945/2025/05/29/broncos-kyrese-white-jordan-turner/
+
+**NHL offseason trade board: An early look at the summer's top targets, from Kreider to Rossi to Ehlers**\
+`With the cap rising and more demand than supply in the free-agent market, there’s every reason to expect a fertile trade market this summer.`\
+https://nytimes.com/athletic/6388794/2025/05/29/nhl-offseason-trade-board-kreider-rossi-ehlers/
+
+**Tyrese Haliburton is doing all the little things to complement his gaudy numbers**\
+`By contributing on defense and the glass, the Pacers star is allowing his teammates to thrive.`\
+https://nytimes.com/athletic/6388041/2025/05/29/pacers-tyrese-haliburton-stats-nba-2025-playoffs/
+
+**Chris Burke, former Houston Astros hero, is a college baseball broadcasting star**\
+`Burke, a former All-America shortstop at Tennessee, will be in the booth for his fourth consecutive College World Series finals. `\
+https://nytimes.com/athletic/6350014/2025/05/29/chris-burke-college-baseball-announcer-espn-sec/
+
+**Wheeler: 30 prospects who just missed the cut for my 2025 NHL Draft board**\
+`Scouting reports for 30 players who were considered but not placed on Wheeler's upcoming draft ranking.`\
+https://nytimes.com/athletic/6353477/2025/05/29/nhl-draft-2025-prospects-top-100-cut/
+
+**Projecting which players each PWHL team will protect ahead of the expansion draft**\
+`With Vancouver and Seattle set to join the league next season, teams can each protect three players from the draft. But which ones?`\
+https://nytimes.com/athletic/6388918/2025/05/29/pwhl-protected-players-projection-expansion-draft/
+
+**The latest intel on Jonathan Kuminga and his uncertain Warriors' future**\
+`The Warriors enter a complicated month with a big decision to make on the franchise's third-leading scorer after an up-and-down season. `\
+https://nytimes.com/athletic/6367921/2025/05/29/golden-state-warriors-jonathan-kuminga-future-nba/
+
 **As 'NBA on TNT' prepares for its finale, an appreciation for its legacy and contribution**\
 `TNT treated NBA viewers like adults, even while having a great time delivering a truly distinctive brand of league coverage.`\
 https://nytimes.com/athletic/6387994/2025/05/29/nba-on-tnt-finale-craig-sager-inside-appreciation/

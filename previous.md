@@ -1,40 +1,40 @@
-**The Athletic FC: Luis Enrique's guiding light, Chelsea complete Euro set, Liga MX's legal battle**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
-https://nytimes.com/athletic/6390069/2025/05/29/luis-enriqe-psg-daughter-champions-league/
+**Young but mature Thunder were ready for this moment**\
+`Oklahoma City validated its 68-win regular season by reaching the NBA Finals, showing poise beyond its years.`\
+https://nytimes.com/athletic/6389858/2025/05/29/okc-thunder-west-finals-game-5-gilgeous-alexander-nba-finals/
 
-**Phillies minors notes: Aidan Miller trusted his plan, Seth Johnson's bullpen move and more**\
-`Plus Mick Abel keeps rolling, two top 2024 draft picks who are searching for power, two undrafted standouts to watch and more. `\
-https://nytimes.com/athletic/6389412/2025/05/29/phillies-prospects-aidan-miller-seth-johnson/
+**2015 Blackhawks-Ducks revisited: Head-butt, heroics, heartbreak**\
+`Participants in the chaos of the 2015 Western Conference final recall punishing hits, eye-popping feats of endurance and one famous no-goal.`\
+https://nytimes.com/athletic/6388211/2025/05/29/blackhawks-ducks-2015-nhl-western-conference-final/
 
-**As 'NBA on TNT' prepares for its finale, an appreciation for its legacy and contribution**\
-`TNT treated NBA viewers like adults, even while having a great time delivering a truly distinctive brand of league coverage.`\
-https://nytimes.com/athletic/6387994/2025/05/29/nba-on-tnt-finale-craig-sager-inside-appreciation/
+**Oneil Cruz is already a Statcast legend. Can the rest of his game catch up?**\
+`'He’s kind of a Rubik’s Cube up there,' Andrew McCutchen said. 'You see hints of it at times. But you also see the youthful side of it.'`\
+https://nytimes.com/athletic/6389431/2025/05/29/oneil-cruz-pittsburgh-pirates/
 
-**The Pulse: The most anonymous dominant season ever?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6388557/2025/05/29/thunder-nba-finals-the-pulse/
+**'Go by what we see': How 2 rookie tryout players earned offseason shots with Broncos**\
+`Wide receiver Kyrese White and inside linebacker Jordan Turner impressed during a tryout.`\
+https://nytimes.com/athletic/6388945/2025/05/29/broncos-kyrese-white-jordan-turner/
 
-**Stocks Jump After Court Blocks Trump’s Tariffs**\
-`The ruling added to uncertainty, but investors were encouraged that it could slow momentum for a trade war that threatens economic and corporate growth.`\
-https://nytimes.com/2025/05/29/business/stocks-trump-tariffs.html
+**NHL offseason trade board: An early look at the summer's top targets, from Kreider to Rossi to Ehlers**\
+`With the cap rising and more demand than supply in the free-agent market, there’s every reason to expect a fertile trade market this summer.`\
+https://nytimes.com/athletic/6388794/2025/05/29/nhl-offseason-trade-board-kreider-rossi-ehlers/
 
-**Juventus open new memorial to mark 40 years since Heysel Stadium disaster**\
-`Thirty-nine people died at the Heysel Stadium in Brussels, Belgium, ahead of the 1985 European Cup final between Juventus and Liverpool.`\
-https://nytimes.com/athletic/6390123/2025/05/29/heysel-stadium-memorial-juventus-anniversary/
+**Tyrese Haliburton is doing all the little things to complement his gaudy numbers**\
+`By contributing on defense and the glass, the Pacers star is allowing his teammates to thrive.`\
+https://nytimes.com/athletic/6388041/2025/05/29/pacers-tyrese-haliburton-stats-nba-2025-playoffs/
 
-**Why Ben Johnson worked with Caleb Williams on body language: Bears OTA takeaways**\
-`Our observations from Halas Hall include rookie Ozzy Trapilo protecting Williams' blindside as he alternates with Kiran Amegadjie.`\
-https://nytimes.com/athletic/6389131/2025/05/29/bears-otas-ben-johnson-caleb-williams/
+**Chris Burke, former Houston Astros hero, is a college baseball broadcasting star**\
+`Burke, a former All-America shortstop at Tennessee, will be in the booth for his fourth consecutive College World Series finals. `\
+https://nytimes.com/athletic/6350014/2025/05/29/chris-burke-college-baseball-announcer-espn-sec/
 
-**Vikings QB J.J. McCarthy impresses in first competitive practice since torn meniscus**\
-`In his first competitive practice since last summer's injury, McCarthy's arm, comfort and command looked to be right on target.`\
-https://nytimes.com/athletic/6389202/2025/05/29/jj-mccarthy-vikings-ota-practice-injury/
+**Wheeler: 30 prospects who just missed the cut for my 2025 NHL Draft board**\
+`Scouting reports for 30 players who were considered but not placed on Wheeler's upcoming draft ranking.`\
+https://nytimes.com/athletic/6353477/2025/05/29/nhl-draft-2025-prospects-top-100-cut/
 
-**Trump’s Flurry of Pardons, and Musk’s Goodbye**\
-`Plus, the rise of crypto kidnappings.`\
-https://nytimes.com/2025/05/29/podcasts/the-headlines/trumps-pardons-musk-cryptocurrency-kidnappings.html
+**Projecting which players each PWHL team will protect ahead of the expansion draft**\
+`With Vancouver and Seattle set to join the league next season, teams can each protect three players from the draft. But which ones?`\
+https://nytimes.com/athletic/6388918/2025/05/29/pwhl-protected-players-projection-expansion-draft/
 
-**NBA Draft withdrawal deadline takeaways: Florida gets stronger, Duke goes to Plan B**\
-`We now have better clarity on who will (and won’t) be suiting up in college next season.`\
-https://nytimes.com/athletic/6389546/2025/05/29/nba-draft-withdrawal-deadline-college-decisions/
+**The latest intel on Jonathan Kuminga and his uncertain Warriors' future**\
+`The Warriors enter a complicated month with a big decision to make on the franchise's third-leading scorer after an up-and-down season. `\
+https://nytimes.com/athletic/6367921/2025/05/29/golden-state-warriors-jonathan-kuminga-future-nba/
 
