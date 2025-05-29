@@ -1,3 +1,11 @@
+**U.S. Ports Grapple With On-Again, Off-Again Tariffs**\
+`Court rulings overturning and then at least temporarily allowing President Trump’s tariffs add to the uncertainty disrupting business at U.S. ports.`\
+https://nytimes.com/2025/05/29/us/politics/tariffs-ruling-ports.html
+
+**Man Who Threatened to Kill Election Officials Gets More Than 3 Years in Prison**\
+`Teak Ty Brockbank, 46, of Colorado, blamed his actions on exposure to far-right political rhetoric.`\
+https://nytimes.com/2025/05/29/us/politics/colorado-arizona-election-officials-threats-sentencing.html
+
 **The ‘spell-off’ is now optional, and other changes at this year’s spelling bee.**\
 `By Isabela Espadas Barros Leal`\
 https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/the-spell-off-is-now-optional-and-other-changes-at-this-years-spelling-bee
