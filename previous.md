@@ -1,3 +1,15 @@
+**N.Y. Natural Gas Pipelines Get a Second Chance Under Trump**\
+`An energy company plans to revive pipelines that had been blocked on environmental grounds, as President Trump pushes states on fossil fuel projects.`\
+https://nytimes.com/2025/05/29/business/energy-environment/constitution-pipeline-hochul-trump.html
+
+**Oilers shuffle forwards after Zach Hyman's injury, get Mattias Ekholm back for Game 5**\
+`Ekholm will make his 2025 playoff debut as the Oilers attempt to advance to the Stanley Cup Final`\
+https://nytimes.com/athletic/6391314/2025/05/29/oilers-ekholm-game-5-lineup/
+
+**Chicago Museum Director to Return to Work After Airplane Incident**\
+`The Art Institute of Chicago had opened an independent investigation after James Rondeau, the director, stripped off his clothes during a flight to Germany.`\
+https://nytimes.com/2025/05/29/arts/design/chicago-museum-director-airplane-incident.html
+
 **Trump Meets With Powell After Months of Disparaging the Fed**\
 `Jerome H. Powell stressed in his first meeting since the president returned to the White House that policy decisions would be “based solely on careful, objective and nonpolitical analysis.”`\
 https://nytimes.com/2025/05/29/us/politics/trump-powell-meeting-fed-economy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6391114/2025/05/29/john-mabry-baltimore-orioles-coa
 **New U.S. Envoy Makes First and Symbolic Trip to Syria**\
 `Thomas Barrack raised the American flag over the U.S. ambassador’s residence in Damascus, amid broader efforts by the Trump administration to improve ties.`\
 https://nytimes.com/2025/05/29/world/europe/syria-damascus-envoy-barrack-israel.html
-
-**Stefanos Tsitsipas hires Goran Ivanisevic, Novak Djokovic's former coach**\
-`Ivanišević most recently worked with Elena Rybakina, the 2022 Wimbledon champion.`\
-https://nytimes.com/athletic/6280462/2025/05/29/stefanos-tsitsipas-tennis-coach-goran-ivanisevic/
-
-**For These Trump Voters, a Rubber-Stamp Congress Is a Key Demand**\
-`In a recent pair of focus groups, voters loyal to President Trump judged members of Congress almost entirely according to whether they backed him — and rejected lawmakers who dared to dissent.`\
-https://nytimes.com/2025/05/29/us/politics/trump-voters-congress.html
-
-**Man named, charged with seven serious offences after Liverpool title parade incident**\
-`Paul Doyle, 53, will appear at Liverpool Magistrates' Court on Friday.`\
-https://nytimes.com/athletic/6387338/2025/05/29/liverpool-parade-suspect-named-charged/
 
