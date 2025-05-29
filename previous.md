@@ -1,3 +1,7 @@
+**San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
+`Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
+https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html
+
 **U.S. Ports Grapple With On-Again, Off-Again Tariffs**\
 `Court rulings overturning and then at least temporarily allowing President Trump’s tariffs add to the uncertainty disrupting business at U.S. ports.`\
 https://nytimes.com/2025/05/29/us/politics/tariffs-ruling-ports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.ht
 **Raiders OTAs: Geno Smith, Chip Kelly building rapport; Malcolm Koonce returns**\
 `The Raiders hope they’ve found their QB/OC pairing for the foreseeable future and that it will bring about more consistency on offense.`\
 https://nytimes.com/athletic/6391679/2025/05/29/raiders-otas-geno-smith-chip-kelly/
-
-**SEC shows its cards on schedule strength, setting stage for CFP clash**\
-`On the final day of its spring meetings, the conference didn’t reveal its CFP preference, but it made clear its priority: schedule strength.`\
-https://nytimes.com/athletic/6391783/2025/05/29/sec-cfp-schedule-strength-greg-sankey/
 

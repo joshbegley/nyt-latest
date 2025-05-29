@@ -1,3 +1,7 @@
+**San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
+`Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
+https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html
+
 **U.S. Ports Grapple With On-Again, Off-Again Tariffs**\
 `Court rulings overturning and then at least temporarily allowing President Trump’s tariffs add to the uncertainty disrupting business at U.S. ports.`\
 https://nytimes.com/2025/05/29/us/politics/tariffs-ruling-ports.html
