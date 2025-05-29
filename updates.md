@@ -1,3 +1,43 @@
+**Live Updates: Trump’s Attacks Loom Over Harvard Graduation**\
+`As students collect diplomas, the university’s lawyers are expected to fight the Trump administration in court over a ban on foreign students.`\
+https://nytimes.com/live/2025/05/29/us/harvard-trump
+
+**Here’s what to know about the fight with Trump.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2025/05/29/us/harvard-trump/heres-what-to-know-about-the-fight-with-trump
+
+**Israel Intensely Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
+`Israeli attacks on Gaza have killed more than 60 people over the past day, according to local health officials.`\
+https://nytimes.com/2025/05/29/world/middleeast/israel-gaza.html
+
+**Wiegman ‘disappointed and sad’ by Earps’ retirement; Williamson ‘devastated’**\
+`"That must have been a really hard decision for her and so it is for us. She has done such a great job for England," Wiegman added.`\
+https://nytimes.com/athletic/6390292/2025/05/29/earps-england-wiegman-williamson/
+
+**Trump Administration Live Updates: President Gives Clemency to 25 People, Including His Political Allies**\
+``\
+https://nytimes.com/live/2025/05/29/us/trump-news
+
+**Ranking Canucks' most efficient contracts 2025: Steals, fair value – and 1 millstone**\
+`Here we rank every Canucks contract that's on the books going into this offseason by how much value a player provides relative to his deal.`\
+https://nytimes.com/athletic/6389926/2025/05/29/canucks-contracts-2025-quinn-hughes/
+
+**Bucks mailbag: Damian Lillard salary exception, re-signing two bigs and building depth**\
+`What personnel moves can the Bucks make this offseason? We tackled some of those questions in this edition of the mailbag.`\
+https://nytimes.com/athletic/6386329/2025/05/29/damian-lillard-bucks-trades-signings/
+
+**New MLB-backed pro softball league eager to capitalize on sport's surging popularity**\
+`The AUSL will begin June 7 with four teams playing 24-game regular seasons, barnstorming across 10 cities over seven weeks.`\
+https://nytimes.com/athletic/6387741/2025/05/29/mlb-pro-softball-league-athletes-unlimited/
+
+**How Francisco Lindor strengthens bonds one little chat a time**\
+`Lindor makes a habit of bouncing from locker to locker after games as a way of deepening team chemistry. `\
+https://nytimes.com/athletic/6389497/2025/05/29/mets-francisco-lindor-leadership/
+
+**Rangers offseason depth chart 1.0: Who's under contract? Who needs a new one?**\
+`New coach Mike Sullivan won't know his full roster for a while. But the Rangers have pressing needs and less than $8.5 million to spend.`\
+https://nytimes.com/athletic/6387937/2025/05/29/new-york-rangers-depth-chart-contract-offseason-nhl/
+
 **Thousands Evacuate in Canada as Multiple Wildfires Rage**\
 `Officials declared a state of emergency for the entire province of Manitoba on Wednesday as out-of-control fires threatened several communities.`\
 https://nytimes.com/2025/05/29/us/canada-wildfires-manitoba-evacuations.html

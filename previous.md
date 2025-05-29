@@ -1,40 +1,40 @@
-**Thousands Evacuate in Canada as Multiple Wildfires Rage**\
-`Officials declared a state of emergency for the entire province of Manitoba on Wednesday as out-of-control fires threatened several communities.`\
-https://nytimes.com/2025/05/29/us/canada-wildfires-manitoba-evacuations.html
+**Live Updates: Trump’s Attacks Loom Over Harvard Graduation**\
+`As students collect diplomas, the university’s lawyers are expected to fight the Trump administration in court over a ban on foreign students.`\
+https://nytimes.com/live/2025/05/29/us/harvard-trump
 
-**Chaos vs. Hope: America’s Trading Partners React Cautiously to Tariff Block**\
-`President Trump’s threat to impose big charges — including 50 percent on the European Union — was in question after judges blocked his across-the-board levies.`\
-https://nytimes.com/2025/05/29/world/europe/us-trade-tariffs-court-decision.html
+**Here’s what to know about the fight with Trump.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2025/05/29/us/harvard-trump/heres-what-to-know-about-the-fight-with-trump
 
-**Royce Lewis' prolonged struggles have left a huge hole in the middle of Twins' lineup**\
-`What began as the first big slump of Lewis' career last August has carried into this season, raising bigger questions about the 25-year-old.`\
-https://nytimes.com/athletic/6384780/2025/05/29/royce-lewis-slump-twins/
+**Israel Intensely Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
+`Israeli attacks on Gaza have killed more than 60 people over the past day, according to local health officials.`\
+https://nytimes.com/2025/05/29/world/middleeast/israel-gaza.html
 
-**Young but mature Thunder were ready for this moment**\
-`Oklahoma City validated its 68-win regular season by reaching the NBA Finals, showing poise beyond its years.`\
-https://nytimes.com/athletic/6389858/2025/05/29/okc-thunder-west-finals-game-5-gilgeous-alexander-nba-finals/
+**Wiegman ‘disappointed and sad’ by Earps’ retirement; Williamson ‘devastated’**\
+`"That must have been a really hard decision for her and so it is for us. She has done such a great job for England," Wiegman added.`\
+https://nytimes.com/athletic/6390292/2025/05/29/earps-england-wiegman-williamson/
 
-**2015 Blackhawks-Ducks revisited: Head-butt, heroics, heartbreak**\
-`Participants in the chaos of the 2015 Western Conference final recall punishing hits, eye-popping feats of endurance and one famous no-goal.`\
-https://nytimes.com/athletic/6388211/2025/05/29/blackhawks-ducks-2015-nhl-western-conference-final/
+**Trump Administration Live Updates: President Gives Clemency to 25 People, Including His Political Allies**\
+``\
+https://nytimes.com/live/2025/05/29/us/trump-news
 
-**Oneil Cruz is already a Statcast legend. Can the rest of his game catch up?**\
-`'He’s kind of a Rubik’s Cube up there,' Andrew McCutchen said. 'You see hints of it at times. But you also see the youthful side of it.'`\
-https://nytimes.com/athletic/6389431/2025/05/29/oneil-cruz-pittsburgh-pirates/
+**Ranking Canucks' most efficient contracts 2025: Steals, fair value – and 1 millstone**\
+`Here we rank every Canucks contract that's on the books going into this offseason by how much value a player provides relative to his deal.`\
+https://nytimes.com/athletic/6389926/2025/05/29/canucks-contracts-2025-quinn-hughes/
 
-**'Go by what we see': How 2 rookie tryout players earned offseason shots with Broncos**\
-`Wide receiver Kyrese White and inside linebacker Jordan Turner impressed during a tryout.`\
-https://nytimes.com/athletic/6388945/2025/05/29/broncos-kyrese-white-jordan-turner/
+**Bucks mailbag: Damian Lillard salary exception, re-signing two bigs and building depth**\
+`What personnel moves can the Bucks make this offseason? We tackled some of those questions in this edition of the mailbag.`\
+https://nytimes.com/athletic/6386329/2025/05/29/damian-lillard-bucks-trades-signings/
 
-**NHL offseason trade board: An early look at the summer's top targets, from Kreider to Rossi to Ehlers**\
-`With the cap rising and more demand than supply in the free-agent market, there’s every reason to expect a fertile trade market this summer.`\
-https://nytimes.com/athletic/6388794/2025/05/29/nhl-offseason-trade-board-kreider-rossi-ehlers/
+**New MLB-backed pro softball league eager to capitalize on sport's surging popularity**\
+`The AUSL will begin June 7 with four teams playing 24-game regular seasons, barnstorming across 10 cities over seven weeks.`\
+https://nytimes.com/athletic/6387741/2025/05/29/mlb-pro-softball-league-athletes-unlimited/
 
-**Tyrese Haliburton is doing all the little things to complement his gaudy numbers**\
-`By contributing on defense and the glass, the Pacers star is allowing his teammates to thrive.`\
-https://nytimes.com/athletic/6388041/2025/05/29/pacers-tyrese-haliburton-stats-nba-2025-playoffs/
+**How Francisco Lindor strengthens bonds one little chat a time**\
+`Lindor makes a habit of bouncing from locker to locker after games as a way of deepening team chemistry. `\
+https://nytimes.com/athletic/6389497/2025/05/29/mets-francisco-lindor-leadership/
 
-**Chris Burke, former Houston Astros hero, is a college baseball broadcasting star**\
-`Burke, a former All-America shortstop at Tennessee, will be in the booth for his fourth consecutive College World Series finals. `\
-https://nytimes.com/athletic/6350014/2025/05/29/chris-burke-college-baseball-announcer-espn-sec/
+**Rangers offseason depth chart 1.0: Who's under contract? Who needs a new one?**\
+`New coach Mike Sullivan won't know his full roster for a while. But the Rangers have pressing needs and less than $8.5 million to spend.`\
+https://nytimes.com/athletic/6387937/2025/05/29/new-york-rangers-depth-chart-contract-offseason-nhl/
 
