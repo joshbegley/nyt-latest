@@ -1,3 +1,11 @@
+**Phillies minors notes: Aidan Miller trusted his plan, Seth Johnson's bullpen move and more**\
+`Plus Mick Abel keeps rolling, two top 2024 draft picks who are searching for power, two undrafted standouts to watch and more. `\
+https://nytimes.com/athletic/6389412/2025/05/29/phillies-prospects-aidan-miller-seth-johnson/
+
+**As the NBA on TNT prepares for its finale, an appreciation for its legacy and contribution**\
+`TNT treated NBA viewers like adults, even while having a great time delivering a truly distinctive brand of league coverage.`\
+https://nytimes.com/athletic/6387994/2025/05/29/nba-on-tnt-finale-craig-sager-inside-appreciation/
+
 **The Pulse: The most anonymous dominant season ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6388557/2025/05/29/thunder-nba-finals-the-pulse/
