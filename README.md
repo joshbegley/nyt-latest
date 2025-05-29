@@ -1,3 +1,7 @@
+**For Federal Workers, Musk’s Chain Saw Still Reverberates**\
+`Employees of federal agencies continue to wrestle with the shocks of Elon Musk’s drive to purge the government of diversity programs and slash employment even as the billionaire leaves Washington.`\
+https://nytimes.com/2025/05/29/us/politics/federal-workers-musk-doge.html
+
 **Five top tips from a spelling bee coach.**\
 `By Adeel Hassan`\
 https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/five-top-tips-from-a-spelling-bee-coach
@@ -11,7 +15,7 @@ https://nytimes.com/video/podcasts/100000010197295/song-of-summer-get-jiggy.html
 https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meters.html
 
 **South African Woman Gets Life Sentence for Selling 6-Year-Old Daughter**\
-`The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for 20,000 rand, about $1,100.`\
+`The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for about $1,100.`\
 https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.html
 
 **Raiders OTAs: Geno Smith, Chip Kelly building rapport; Malcolm Koonce returns**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/us/politics/harrison-ruffin-tyler-dead.html
 **Trump Hits an Obstacle: the Courts**\
 `Also, Russia’s summer offensive appears to be underway. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/29/briefing/trump-courts-glaciers-spelling-bee-finals.html
-
-**Tariff Ruling Gives Businesses Hope, but They’re Soon Unmoored Again**\
-`Companies welcomed a court decision striking down President Trump’s tariffs. Then a stay of that ruling left no one breathing easy.`\
-https://nytimes.com/2025/05/29/business/economy/trump-tariffs-ruling-businesses.html
 
