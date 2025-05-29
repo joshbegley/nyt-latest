@@ -1,3 +1,11 @@
+**Tariff Rulings Inject New Uncertainty Into Trump Trade Strategy**\
+`A court ruling invalidating President Trump’s sweeping tariffs was halted hours later, throwing into question the administration’s overall approach to trade.`\
+https://nytimes.com/2025/05/29/us/politics/trump-tariffs-trade-policy.html
+
+**Harrison Ruffin Tyler, Grandson of the 10th President, Is Dead at 96**\
+`He was the last of three generations spanning nearly the entire history of the United States: When his grandfather was born, George Washington had just become president.`\
+https://nytimes.com/2025/05/29/us/politics/harrison-ruffin-tyler-dead.html
+
 **Trump Hits an Obstacle: the Courts**\
 `Also, Russia’s summer offensive appears to be underway. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/05/29/briefing/trump-courts-glaciers-spelling-bee-finals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/us/politics/trump-judges-attacks-tariffs.html
 **Braves' AJ Smith-Shawver leaves game after hearing 'pop' in elbow**\
 `The Braves placed Smith-Shawver on the 15-day injured list after the game.`\
 https://nytimes.com/athletic/6391849/2025/05/29/braves-aj-smith-shawver-elbow-pop-mri/
-
-**Broncos QB Bo Nix is comfortable heading into Year 2 but insists, 'I have a lot to prove'**\
-`Nix took an extended break from throwing at the start of his offseason so he could "build the body back right."`\
-https://nytimes.com/athletic/6391459/2025/05/29/broncos-otas-qb-bo-nix/
-
-**Trump Administration Targets Brazilian Judge for ‘Censorship’**\
-`A new State Department policy to restrict visas from foreign officials who censor voices online appears written for a specific Brazilian Supreme Court justice.`\
-https://nytimes.com/2025/05/29/world/americas/trump-brazil-judge-censorship.html
 

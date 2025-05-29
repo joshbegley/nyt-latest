@@ -1,3 +1,19 @@
+**Trump Hits an Obstacle: the Courts**\
+`Also, Russia’s summer offensive appears to be underway. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/05/29/briefing/trump-courts-glaciers-spelling-bee-finals.html
+
+**Tariff Ruling Gives Businesses Hope, but They’re Soon Unmoored Again**\
+`Companies welcomed a court decision striking down President Trump’s tariffs. Then a stay of that ruling left no one breathing easy.`\
+https://nytimes.com/2025/05/29/business/economy/trump-tariffs-ruling-businesses.html
+
+**Here is the latest.**\
+`One determined student is just a few brain-busting correct answers from lifting the Scripps Cup in the final round of the competition’s centennial year.`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/here-is-the-latest
+
+**Live Updates: Spelling Bee Celebrates 100 Years Since First Contest**\
+`The Scripps National Spelling Bee, first held in 1925, will choose a new champion during Thursday night’s finals.`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee
+
 **Top Officials Overseeing Deportations Leave Their Roles at ICE**\
 `Kenneth Genalo, the top ICE deportation official, is retiring, and two other officials are moving on to different roles, the Department of Homeland Security announced.`\
 https://nytimes.com/2025/05/29/us/politics/ice-deportations-officials-trump.html
