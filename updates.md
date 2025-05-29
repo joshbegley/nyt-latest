@@ -1,3 +1,11 @@
+**Children in Gaza Are Starving. Let the U.N. Do Its Job.**\
+`The new plan to get aid into the territory could lead to a catastrophe.`\
+https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
+
+**The New York Times in Print for Thursday, May 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/29/todays-new-york-times
+
 **Tottenham Hotspur squad audit: How the team is set ahead of the transfer window**\
 `The Athletic breaks down the state of Tottenham’s squad and what should happen next ahead of what could be a busy summer`\
 https://nytimes.com/athletic/6387355/2025/05/29/tottenham-hotspur-squad-audit-how-the-squad-is-set-ahead-of-the-transfer-window/
