@@ -1,3 +1,7 @@
+**U.S. Ports Grapple With On-Again, Off-Again Tariffs**\
+`Court rulings overturning and then at least temporarily allowing President Trump’s tariffs add to the uncertainty disrupting business at U.S. ports.`\
+https://nytimes.com/2025/05/29/us/politics/tariffs-ruling-ports.html
+
 **Man Who Threatened to Kill Election Officials Gets More Than 3 Years in Prison**\
 `Teak Ty Brockbank, 46, of Colorado, blamed his actions on exposure to far-right political rhetoric.`\
 https://nytimes.com/2025/05/29/us/politics/colorado-arizona-election-officials-threats-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391679/2025/05/29/raiders-otas-geno-smith-chip-kel
 **SEC shows its cards on schedule strength, setting stage for CFP clash**\
 `On the final day of its spring meetings, the conference didn’t reveal its CFP preference, but it made clear its priority: schedule strength.`\
 https://nytimes.com/athletic/6391783/2025/05/29/sec-cfp-schedule-strength-greg-sankey/
-
-**Tariff Rulings Inject New Uncertainty Into Trump Trade Strategy**\
-`A court ruling invalidating President Trump’s sweeping tariffs was halted hours later, throwing into question the administration’s overall approach to trade.`\
-https://nytimes.com/2025/05/29/us/politics/trump-tariffs-trade-policy.html
 
