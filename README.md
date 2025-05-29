@@ -1,3 +1,11 @@
+**Chaos rules Roland Garros with crowds, comebacks and curious scheduling on day 5**\
+`The French Open ignites at Roland Garros with thrilling comebacks, crowd chaos and the Philippe-Chatrier night session debate.`\
+https://nytimes.com/athletic/6390113/2025/05/29/french-open-recap-comebacks-french-crowds-schedule-night-session/
+
+**Rhode, Hailey Bieber’s Beauty Brand, Sells in Billion-Dollar Deal**\
+`E.L.F. Beauty acquired Mrs. Bieber’s cosmetics brand for $800 million in cash and stock upfront, with another $200 million contingent on future growth.`\
+https://nytimes.com/2025/05/29/style/hailey-bieber-rhode-elf-beauty.html
+
 **The Giants’ All-Quarter Century Team: Barry Bonds and the rest of the best since 2000**\
 `The last 25 years of Giants baseball have been a lot of fun. Not surprisingly, it was easy to pick an All-Quarter-Century team.`\
 https://nytimes.com/athletic/6391014/2025/05/29/sf-giants-all-2000s-team/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010197707/harvard-commencement-trump
 **Mahomes at the L.A. Olympics? 'I'll probably leave that to the younger guys'**\
 `Mahomes, who enters his ninth NFL season and will turn 30 in September, will be 32 when the 2028 Los Angeles Games begin.`\
 https://nytimes.com/athletic/6391383/2025/05/29/patrick-mahomes-la-olympics-flag-football/
-
-**How We Photographed Coyotes in San Francisco**\
-`A photographer’s patient technique revealed that the wild canines are flourishing in the city.`\
-https://nytimes.com/2025/05/29/insider/coyotes-photography.html
-
-**Watch: The Timberwolves are out of the NBA playoffs. How do they build from this season?**\
-`"The Athletic NBA Daily" discussed the Minnesota Timberwolves' Game 5, series-ending loss to the Oklahoma City Thunder.`\
-https://nytimes.com/athletic/6390454/2025/05/29/timberwolves-nba-daily-thunder-anthony-edwards/
 

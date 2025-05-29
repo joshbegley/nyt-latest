@@ -1,3 +1,7 @@
+**The Giants’ All-Quarter Century Team: Barry Bonds and the rest of the best since 2000**\
+`The last 25 years of Giants baseball have been a lot of fun. Not surprisingly, it was easy to pick an All-Quarter-Century team.`\
+https://nytimes.com/athletic/6391014/2025/05/29/sf-giants-all-2000s-team/
+
 **'There will be change': Analyzing Maple Leafs GM Brad Treliving's boldest end-of-season quotes**\
 `Leafs GM says team's DNA needs to change as he fields questions about futures of Mitch Marner, John Tavares, Matthew Knies and more.`\
 https://nytimes.com/athletic/6391035/2025/05/29/maple-leafs-gm-brad-treliving-nhl-analysis/
