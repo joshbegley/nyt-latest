@@ -1,3 +1,19 @@
+**Victoria’s Secret Website Goes Dark After Security Breach**\
+`The cyberattack disrupted online sales for days and sent the lingerie company’s share price lower.`\
+https://nytimes.com/2025/05/29/business/victorias-secret-security-incident-cyberattack.html
+
+**First Time Home Buyers**\
+``\
+https://nytimes.com/spotlight/first-time-home-buyers
+
+**Wharton out of England U21s squad for Euros, will continue concussion recovery**\
+`The 21-year-old was named in the preliminary training squad for the tournament in Slovakia but will now instead focus on rest and recovery.`\
+https://nytimes.com/athletic/6390287/2025/05/29/adam-wharton-england-u21s-euros-concussion/
+
+**Trump is not a TACO fan, it seems.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2025/05/29/us/trump-news/trump-is-not-a-taco-fan-it-seems
+
 **Trump is not a taco fan, it seems.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2025/05/29/us/trump-news/trump-is-not-a-taco-fan-it-seems
