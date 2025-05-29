@@ -1,3 +1,7 @@
+**Rams' Kyren Williams at OTAs amid 'healthy' ongoing contract talks; other notes**\
+`Last year's leading rusher is entering the final season on his rookie contract and his third as the starting running back.`\
+https://nytimes.com/athletic/6389112/2025/05/28/rams-kyren-williams-at-otas-amid-healthy-ongoing-contract-talks-other-notes/
+
 **Harvard Says Many of Its Foreign Students Are Seeking to Transfer**\
 `The Trump administration is trying to block Harvard from enrolling international students. A Harvard official said the move is already creating major disruptions.`\
 https://nytimes.com/2025/05/28/us/harvard-international-students-transfers.html

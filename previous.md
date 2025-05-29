@@ -1,3 +1,7 @@
+**Rams' Kyren Williams at OTAs amid 'healthy' ongoing contract talks; other notes**\
+`Last year's leading rusher is entering the final season on his rookie contract and his third as the starting running back.`\
+https://nytimes.com/athletic/6389112/2025/05/28/rams-kyren-williams-at-otas-amid-healthy-ongoing-contract-talks-other-notes/
+
 **Harvard Says Many of Its Foreign Students Are Seeking to Transfer**\
 `The Trump administration is trying to block Harvard from enrolling international students. A Harvard official said the move is already creating major disruptions.`\
 https://nytimes.com/2025/05/28/us/harvard-international-students-transfers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388581/2025/05/28/sf-giants-tigers-comparison/
 **Santos’s Treasurer Avoids Prison for Her Role in His Schemes**\
 `Nancy Marks was sentenced to probation after pleading guilty to one count of criminal conspiracy in connection with her work for former Representative George Santos.`\
 https://nytimes.com/2025/05/28/nyregion/nancy-marks-santos-bookkeeper.html
-
-**Ravens' Mark Andrews moving on from tumultuous offseason: 'I'm very thankful to be here'**\
-`The three-time Pro Bowler made his first comments to a group of Baltimore-area reporters in more than four months. `\
-https://nytimes.com/athletic/6389187/2025/05/28/ravens-mark-andrews-organized-team-activities/
 
