@@ -1,3 +1,7 @@
+**Barcelona's title-winners – by the early coaches who helped shape them**\
+`To mark their superb double-winning season, we spoke to coaches who played pivotal roles in the early years of Barca's stars`\
+https://nytimes.com/athletic/6387449/2025/05/29/barcelona-la-liga-winners-young-coaches/
+
 **How would Martin Zubimendi fit in Arsenal’s midfield?**\
 `Press resistance? Passing tendencies? What does he offer defensively and going forward? This is what Zubimendi would bring to Arsenal`\
 https://nytimes.com/athletic/6387446/2025/05/29/martin-zubimendi-arsenal-midfield-analysis/

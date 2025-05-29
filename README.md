@@ -1,3 +1,15 @@
+**Khvicha Kvaratskhelia, PSG's Georgian artist whose football skills saved his father's life**\
+`Told from Georgia, this is the tale of Khvicha Kvaratskhelia, featuring Agatha Christie, Cristiano Ronaldo, Virgil van Dijk and a life saved`\
+https://nytimes.com/athletic/6384756/2025/05/29/khvicha-kvaratskhelia-father-saved-life/
+
+**'He turned from water into wine' - Matheus Cunha, by those who knew him growing up**\
+`Friends, former team-mates and a futsal coach who recruited him after playing against his team tell the story of Cunha's rise`\
+https://nytimes.com/athletic/6340092/2025/05/29/matheus-cunha-manchester-united-transfer/
+
+**How 'Slot-ball' propelled Liverpool to the Premier League title at the first time of asking**\
+`Coaches, analysts and former players turned pundits scrutinise how Arne Slot's football differed from that of Jurgen Klopp this season`\
+https://nytimes.com/athletic/6329011/2025/05/29/liverpool-arne-slot-slotball-title-analysis/
+
 **Barcelona's title-winners – by the early coaches who helped shape them**\
 `To mark their superb double-winning season, we spoke to coaches who played pivotal roles in the early years of Barca's stars`\
 https://nytimes.com/athletic/6387449/2025/05/29/barcelona-la-liga-winners-young-coaches/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6389392/2025/05/29/connections-sports-edition-hints
 **The Rise of the Japanese Toilet**\
 `Having conquered its home market, the Japanese toilet-maker Toto is selling more bidets in the United States. Toto’s president says not even tariffs will halt its advance.`\
 https://nytimes.com/2025/05/29/business/toto-toilet-japan-bidet.html
-
-**Quote of the Day: Pulling Off Plan For L.A. Games Is a Feat in Itself**\
-`Quotation of the Day for Thursday, May 29, 2025.`\
-https://nytimes.com/2025/05/28/pageoneplus/quote-of-the-day-pulling-off-plan-for-la-games-is-a-feat-in-itself.html
-
-**NBA playoffs results and takeaways: Thunder earn trip to NBA Finals with rout of Wolves**\
-`The Thunder return to the NBA Finals for the first time since 2012. Shai Gilgeous-Alexander was named Western Conference finals MVP.`\
-https://nytimes.com/athletic/6389628/2025/05/28/thunder-timberwolves-game-5-shai-gilgeous-alexander-results-takeaways/
-
-**Trump Gives Clemency to More Than Two Dozen, Including Political Allies**\
-`A blitz of pardons and commutations included those who have expressed political support or echoed the president in claiming they had been unfairly targeted.`\
-https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.html
 
