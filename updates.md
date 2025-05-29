@@ -1,3 +1,7 @@
+**Trump Gives Clemency to More Than Two Dozen, Including Political Allies**\
+`A blitz of pardons and commutations included those who have expressed political support or echoed the president in claiming they had been unfairly targeted.`\
+https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.html
+
 **Panthers advance to Stanley Cup Final for third straight year, eliminate Hurricanes: Takeaways**\
 `For the sixth straight year, the Stanley Cup will run through Florida after the Panthers' 5-3 Game 5 win over the Hurricanes on Wednesday.`\
 https://nytimes.com/athletic/6389616/2025/05/28/panthers-hurricanes-nhl-playoffs-2025-game-5-takeaways/

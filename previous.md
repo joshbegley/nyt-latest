@@ -1,3 +1,7 @@
+**Trump Gives Clemency to More Than Two Dozen, Including Political Allies**\
+`A blitz of pardons and commutations included those who have expressed political support or echoed the president in claiming they had been unfairly targeted.`\
+https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.html
+
 **Panthers advance to Stanley Cup Final for third straight year, eliminate Hurricanes: Takeaways**\
 `For the sixth straight year, the Stanley Cup will run through Florida after the Panthers' 5-3 Game 5 win over the Hurricanes on Wednesday.`\
 https://nytimes.com/athletic/6389616/2025/05/28/panthers-hurricanes-nhl-playoffs-2025-game-5-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/us/human-smuggling-indian-family-canada-border.ht
 **The Times Confirms More Names on Trump’s Crypto Dinner Guest List**\
 `Some were identified through photos as they entered the event. Others posted about their evening on social media.`\
 https://nytimes.com/2025/05/28/us/politics/trump-crypto-dinner-guest-list.html
-
-**U.S. Will ‘Aggressively’ Revoke Visas of Chinese Students, Rubio Says**\
-`Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
-https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
 
