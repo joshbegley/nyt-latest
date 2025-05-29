@@ -1,3 +1,27 @@
+**Knicks and the City: Rhapsody in Blue and Orange**\
+`Thousands of New Yorkers are flocking to iconic indoor and outdoor venues to cheer on the best Knicks team in decades. Will the party end tonight?`\
+https://nytimes.com/2025/05/29/nyregion/knicks-pacers-eastern-conference-finals-fans.html
+
+**The Hiker Who Couldn’t Be Found**\
+`Forest rangers rescue almost every hiker who gets lost or injured in the Adirondack Mountains. A 22-year-old college student was the rare exception.`\
+https://nytimes.com/2025/05/29/nyregion/adirondack-hiker-leo-dufour.html
+
+**Word of the Day: bioluminescent**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/05/29/learning/word-of-the-day-bioluminescent.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/29/crosswords/spelling-bee-forum.html
+
+**At the Canadian Border, One Wrong Turn Leads to Immigration Limbo**\
+`An accidental trip over the Peace Bridge in Buffalo typically means a toll and a loss of time. But for Victor and Johanna, crossing an international border carried a higher cost.`\
+https://nytimes.com/2025/05/29/nyregion/border-deportation-peace-bridge.html
+
+**‘Orgasmic Meditation’ Case Raises Question of What Constitutes Coercion**\
+`Prosecutors say OneTaste extracted labor from its members. Former employees testified that they worked for the company because they feared spiritual harm.`\
+https://nytimes.com/2025/05/29/nyregion/onetaste-orgasmic-meditation-trial-coercion.html
+
 **This Timberwolves meltdown tears at the fabric of an otherwise impressive season: 'It hurts'**\
 `Can one game ruin an entire season? Probably not, but Game 5 was a meltdown so complete and so embarrassing that it bears asking.`\
 https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thunder-nba-playoffs/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
 **The New York Times in Print for Thursday, May 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/29/todays-new-york-times
-
-**Andreia Jacinto: Portugal’s young starlet carrying a nation’s Euro hopes**\
-`The 22-year-old’s enormous talent will be on show at Wembley on Friday as Portugal take on European Champions England in the Nations League`\
-https://nytimes.com/athletic/6317211/2025/05/29/andreia-jacinto-portugal-england-nations-league/
-
-**How would Martin Zubimendi fit in Arsenal’s midfield?**\
-`Press resistance? Passing tendencies? What does he offer defensively and going forward? This is what Zubimendi would bring to Arsenal`\
-https://nytimes.com/athletic/6387446/2025/05/29/martin-zubimendi-arsenal-midfield-analysis/
-
-**Tottenham Hotspur squad audit: How the team is set ahead of the transfer window**\
-`The Athletic breaks down the state of Tottenham’s squad and what should happen next ahead of what could be a busy summer`\
-https://nytimes.com/athletic/6387355/2025/05/29/tottenham-hotspur-squad-audit-how-the-squad-is-set-ahead-of-the-transfer-window/
-
-**Brighton's player of the season: Danny Welbeck - the club's record Premier League scorer**\
-`In a season disrupted by injuries across the squad, the striker provided Fabian Hurzeler with welcome consistency`\
-https://nytimes.com/athletic/6320630/2025/05/29/brighton-player-of-the-season-danny-welbeck/
-
-**Villa's 2024-25 reviewed: Beating Bayern, the Wembley fail and a half-time spat that backfired**\
-`A return to European glory, but it was just a step too far come the last day of the season`\
-https://nytimes.com/athletic/6341813/2025/05/29/aston-villa-2024-2025-season-reviewed/
-
-**Leeds United mailbag: Transfer strategy? Red Bull shares? Internal replacements?**\
-`Players might be on holiday, but that does not mean the intrigue around Elland Road has come to an end`\
-https://nytimes.com/athletic/6376108/2025/05/29/leeds-united-mailbag-red-bull-transfers/
 
