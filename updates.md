@@ -1,3 +1,7 @@
+**Man City should have been more 'aggressive' in transfers last year, says chairman**\
+`Khaldoon Al Mubarak intimated that further additions could be arriving soon, with the Club World Cup in the US only three weeks away.`\
+https://nytimes.com/athletic/6390382/2025/05/29/man-city-transfers-khaldoon/
+
 **Western U.S. Is About to See Its First Major Heat of the Year**\
 `The National Weather Service warned of “dangerously hot conditions” from Friday through Sunday.`\
 https://nytimes.com/2025/05/29/weather/california-nevada-heat-forecast.html
