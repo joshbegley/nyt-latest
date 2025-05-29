@@ -1,3 +1,11 @@
+**Children in Gaza Are Starving. Let the U.N. Do Its Job.**\
+`The new plan to get aid into the territory could lead to a catastrophe.`\
+https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
+
+**The New York Times in Print for Thursday, May 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/29/todays-new-york-times
+
 **Tottenham Hotspur squad audit: How the team is set ahead of the transfer window**\
 `The Athletic breaks down the state of Tottenham’s squad and what should happen next ahead of what could be a busy summer`\
 https://nytimes.com/athletic/6387355/2025/05/29/tottenham-hotspur-squad-audit-how-the-squad-is-set-ahead-of-the-transfer-window/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6384756/2025/05/29/khvicha-kvaratskhelia-father-sav
 **'He turned from water into wine' - Matheus Cunha, by those who knew him growing up**\
 `Friends, former team-mates and a futsal coach who recruited him after playing against his team tell the story of Cunha's rise`\
 https://nytimes.com/athletic/6340092/2025/05/29/matheus-cunha-manchester-united-transfer/
-
-**How 'Slot-ball' propelled Liverpool to the Premier League title at the first time of asking**\
-`Coaches, analysts and former players turned pundits scrutinise how Arne Slot's football differed from that of Jurgen Klopp this season`\
-https://nytimes.com/athletic/6329011/2025/05/29/liverpool-arne-slot-slotball-title-analysis/
-
-**Barcelona's title-winners – by the early coaches who helped shape them**\
-`To mark their superb double-winning season, we spoke to coaches who played pivotal roles in the early years of Barca's stars`\
-https://nytimes.com/athletic/6387449/2025/05/29/barcelona-la-liga-winners-young-coaches/
 
