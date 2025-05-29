@@ -1,3 +1,15 @@
+**Man named, charged with seven serious offences after Liverpool title parade incident**\
+`Paul Doyle, 53, will appear at Liverpool Magistrates' Court on Friday.`\
+https://nytimes.com/athletic/6387338/2025/05/29/liverpool-parade-suspect-named-charged/
+
+**Washington 1, Elon 0**\
+`For all the drama and trauma he wrought, driving out federal workers and hollowing out agencies, Elon Musk got nowhere near his goals and is already done.`\
+https://nytimes.com/live/2025/05/19/opinion/thepoint/elon-musk-doge-leaving-washington
+
+**Charlie Baker unfazed by speculation of SEC leaving NCAA**\
+`“I tend to believe what I hear from people when I speak to them directly,” Baker said Thursday during the Big 12 spring meetings.`\
+https://nytimes.com/athletic/6390963/2025/05/29/ncaa-sec-future-ncaa-tournament/
+
 **British Man Faces 7 Charges Over Liverpool Parade Car Crash**\
 `Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd of soccer fans.`\
 https://nytimes.com/2025/05/29/world/europe/uk-liverpool-crash-charges.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6389965/2025/05/29/sandy-alcantara-marlins-the-wind
 **Harvard’s Graduation Day Blends Protests and Pride**\
 `As students gathered with family and friends for commencement, signs of the university’s fight with the Trump administration took many forms.`\
 https://nytimes.com/2025/05/29/us/harvards-graduation-ceremony.html
-
-**CFB Hall of Fame changes coach criteria, making Mike Leach eligible**\
-`The College Football Hall of Fame lowered its win percentage requirement from .600 to .595, making Mike Leach eligible for consideration.`\
-https://nytimes.com/athletic/6390996/2025/05/29/college-football-hall-of-fame-mike-leach-eligibility/
-
-**Why Is the White House Targeting International Students?**\
-`In its fight with Harvard, the Trump administration has focused on international students, who are critical to universities’ bottom lines and campus life.`\
-https://nytimes.com/2025/05/29/us/trump-international-students.html
-
-**Fox exec explains Texas' veto of moving Ohio State opener to Sunday**\
-`Texas athletic director Chris Del Conte told reporters at SEC meetings this week he was the one who shot down the opportunity.`\
-https://nytimes.com/athletic/6390765/2025/05/29/texas-ohio-state-kickoff-fox-noon-sunday/
 
