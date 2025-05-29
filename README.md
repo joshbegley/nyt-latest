@@ -1,3 +1,11 @@
+**Trump Hits an Obstacle: the Courts**\
+`Also, Russia’s summer offensive appears to be underway. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/05/29/briefing/trump-courts-glaciers-spelling-bee-finals.html
+
+**Tariff Ruling Gives Businesses Hope, but They’re Soon Unmoored Again**\
+`Companies welcomed a court decision striking down President Trump’s tariffs. Then a stay of that ruling left no one breathing easy.`\
+https://nytimes.com/2025/05/29/business/economy/trump-tariffs-ruling-businesses.html
+
 **Here is the latest.**\
 `One determined student is just a few brain-busting correct answers from lifting the Scripps Cup in the final round of the competition’s centennial year.`\
 https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/here-is-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391459/2025/05/29/broncos-otas-qb-bo-nix/
 **Trump Administration Targets Brazilian Judge for ‘Censorship’**\
 `A new State Department policy to restrict visas from foreign officials who censor voices online appears written for a specific Brazilian Supreme Court justice.`\
 https://nytimes.com/2025/05/29/world/americas/trump-brazil-judge-censorship.html
-
-**Sha'Carri Richardson joins Athlos as founding adviser-owner**\
-`Alongside Gabby Thomas and Tara Davis-Woodhall, Richardson joins an effort to expand Athlos into a team-based league.`\
-https://nytimes.com/athletic/6391630/2025/05/29/shacarri-richardson-joins-womens-track-league-athlos-as-founding-adviser-owner/
-
-**Dodgers acquire former All-Star closer Alexis Díaz from Reds**\
-`Díaz saved 75 games for the Reds, who optioned him to Triple-A Louisville on May 1.`\
-https://nytimes.com/athletic/6391818/2025/05/29/dodgers-alexis-diaz-trade-reds/
 
