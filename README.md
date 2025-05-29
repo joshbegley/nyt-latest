@@ -1,3 +1,7 @@
+**Google’s New A.I.-Powered Search Has Arrived. Proceed With Caution.**\
+`AI Mode excels at tasks like product research for online shopping. But it falls short on basic web searches.`\
+https://nytimes.com/2025/05/29/technology/personaltech/google-ai-mode-search.html
+
 **Trump Officials Give Harvard 30 Days to Rebut Foreign Student Ban**\
 `The announcement of the delay came in a legal filing on Thursday as the two sides faced off in a Boston courtroom.`\
 https://nytimes.com/2025/05/29/us/trump-harvard-international-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/arts/music/this-house-opera-theater-st-louis-lynn
 **Got Mavericks questions? Submit to Christian Clark for the upcoming mailbag**\
 `The NBA Draft Lottery on May 12 yielded a pleasant surprise for a beaten-down Dallas Mavericks fan base.`\
 https://nytimes.com/athletic/6390718/2025/05/29/mavericks-mailbag-cooper-flagg-kyrie-anthony-davis/
-
-**The NBA Finals-bound Thunder are here to stay: 'These guys are uncommon'**\
-`Sam Presti's vision for Oklahoma City has worked to perfection, and it seems built to last.`\
-https://nytimes.com/athletic/6390085/2025/05/29/oklahoma-city-thunder-sam-presti-daigneault/
 
