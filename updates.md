@@ -1,3 +1,7 @@
+**Robert Jarvik, 79, Dies; a Designer of the First Permanent Artificial Heart**\
+`He worked with a team at the University of Utah to create a mechanical heart. It was later used in patients awaiting an organ transplant.`\
+https://nytimes.com/2025/05/29/science/robert-jarvik-dead.html
+
 **Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
 `Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns in Oakland.`\
 https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/

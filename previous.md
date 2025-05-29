@@ -1,3 +1,7 @@
+**Robert Jarvik, 79, Dies; a Designer of the First Permanent Artificial Heart**\
+`He worked with a team at the University of Utah to create a mechanical heart. It was later used in patients awaiting an organ transplant.`\
+https://nytimes.com/2025/05/29/science/robert-jarvik-dead.html
+
 **Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
 `Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns in Oakland.`\
 https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/us/politics/trump-powell-meeting-fed-economy.html
 **Caps refute team email claiming Ovechkin will leave NHL after '25-26 season**\
 `The team said a message to season-ticket holders "mistakenly alluded" to Ovechkin's final season with the Capitals.`\
 https://nytimes.com/athletic/6391226/2025/05/29/ovechkin-capitals-final-season-email/
-
-**New Likely Dwarf Planet Discovered in Remote Region of Solar System**\
-`The small world was found during a search for the hypothetical Planet Nine, and astronomers say the next time it will reach its closest point to the sun is in the year 26186.`\
-https://nytimes.com/2025/05/29/science/dwarf-planet-nine-discovery.html
 
