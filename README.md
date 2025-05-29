@@ -1,3 +1,11 @@
+**How would Martin Zubimendi fit in Arsenal’s midfield?**\
+`Press resistance? Passing tendencies? What does he offer defensively and going forward? This is what Zubimendi would bring to Arsenal`\
+https://nytimes.com/athletic/6387446/2025/05/29/martin-zubimendi-arsenal-midfield-analysis/
+
+**How Paris Saint-Germain lost Mbappe, Neymar and Messi - and became a better team**\
+`Luis Enrique was tasked with enacting a culture change at the French champions. Their run to the Champions League final shows it's worked`\
+https://nytimes.com/athletic/6374924/2025/05/29/psg-culture-change-mbappe-messi-neymar-enrique/
+
 **FPL season review: Sensational Salah, the joy of Beto and looking at Leeds for 2025-26**\
 `Holly Shand and Abdul Rehman look back on the 2024-25 season and make some bold predictions for next time `\
 https://nytimes.com/athletic/6387621/2025/05/29/fpl-season-review-2024-25-salah-mbeumo/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.h
 **Panthers advance to Stanley Cup Final for third straight year, eliminate Hurricanes: Takeaways**\
 `For the sixth straight year, the Stanley Cup will run through Florida after the Panthers' 5-3 Game 5 win over the Hurricanes on Wednesday.`\
 https://nytimes.com/athletic/6389616/2025/05/28/panthers-hurricanes-nhl-playoffs-2025-game-5-takeaways/
-
-**F.B.I. Memo Sheds Light on Dispute Over Venezuelan Gang**\
-`The remaining intelligence agencies disagree with the F.B.I.’s analysis tying the gang, Tren de Aragua, to Venezuela’s government.`\
-https://nytimes.com/2025/05/28/us/fbi-tren-de-aragua-venezuela-deportations.html
-
-**SEC examining tweaks to field-storming rules to get 'best of both worlds'**\
-`The SEC appears to be moving on from trying to completely stop field and court storming. The effort now may be focused on managing it.`\
-https://nytimes.com/athletic/6389417/2025/05/28/sec-crowd-court-storming-rules-fines/
 
