@@ -1,3 +1,27 @@
+**Nebraska football scheduled to play two Friday games in 2025**\
+`The Huskers will play at Minnesota in Week 7, in addition to their traditional Black Friday game against Iowa. `\
+https://nytimes.com/athletic/6390333/2025/05/29/nebraska-football-schedule-friday-2025/
+
+**NWSL Denver hires Curt Johnson as GM following stint with North Carolina Courage**\
+`Johnson's time at the Courage overlapped with the downfall of disgraced former coach Paul Riley.`\
+https://nytimes.com/athletic/6389792/2025/05/29/nwsl-denver-gm-curt-johnson-courage/
+
+**Inside the Big Ten's TV draft: How Fox, NBC and CBS split up the 2025 schedule**\
+`'We hold our breath waiting for every pick,' said Dan Weinberg, CBS’ executive vice president of programming.`\
+https://nytimes.com/athletic/6389813/2025/05/29/big-ten-football-tv-schedule-draft-fox-nbc-cbs/
+
+**Live chat with Keith Law on MLB prospects at 2pm ET today!**\
+`Chat with Keith Law about his news MLB top prospects list!`\
+https://nytimes.com/athletic/6389429/2025/05/29/keith-law-mlb-prospects-live-chat-may-29/
+
+**Oil Companies Are Sued Over Death of Woman in 2021 Heat Wave**\
+`Experts said it is the first wrongful death case targeting fossil fuel companies over their role in global warming.`\
+https://nytimes.com/2025/05/29/climate/oil-companies-wrongful-death-lawsuit-heat-dome.html
+
+**Trump’s Fiercest War Is on Reality Itself**\
+`The president’s storytelling is in an unscrupulous league of its own.`\
+https://nytimes.com/2025/05/29/opinion/trump-truth.html
+
 **Harvard Wins Initial Court Fight to Keep Its International Students**\
 `A federal judge heard arguments from Harvard and Trump administration lawyers after the government ended the school’s ability to enroll international students.`\
 https://nytimes.com/2025/05/29/us/harvard-international-students-trumps.html
@@ -14,28 +38,4 @@ https://nytimes.com/2025/05/29/dining/lomo-al-trapo-grilling-recipe.html
 `Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
 `\
 https://nytimes.com/athletic/6390170/2025/05/29/champions-league-final-best-bets-predictions-odds/
-
-**Tracking Tropical Storm Alvin**\
-`See the likely path and wind arrival times for Alvin.`\
-https://nytimes.com/interactive/2025/05/29/weather/alvin-map-path-tracker.html
-
-**What I'm hearing about final stages of Penguins' coaching search**\
-`The Penguins are getting close to Kyle Dubas' June 1 deadline of naming a new coach. `\
-https://nytimes.com/athletic/6389690/2025/05/29/penguins-coaching-search-nhl-mitch-love/
-
-**Google’s New A.I.-Powered Search Has Arrived. Proceed With Caution.**\
-`AI Mode excels at tasks like product research for online shopping. But it falls short on basic web searches.`\
-https://nytimes.com/2025/05/29/technology/personaltech/google-ai-mode-search.html
-
-**Trump Officials Give Harvard 30 Days to Rebut Foreign Student Ban**\
-`The announcement of the delay came in a legal filing on Thursday as the two sides faced off in a Boston courtroom.`\
-https://nytimes.com/2025/05/29/us/trump-harvard-international-students.html
-
-**New Romance Novels Brimming With Unhinged Wish Fulfillment**\
-`Our columnist on the month’s best new releases.`\
-https://nytimes.com/2025/05/29/books/review/new-romance-books.html
-
-**Brandon Nimmo on hitting at Citi Field: 'I just try to stay sane'**\
-`Nimmo's power numbers take a dive in the Mets' home ballpark and he struggles to cope with the frustration.`\
-https://nytimes.com/athletic/6389553/2025/05/29/mets-brandon-nimmo-citi-field/
 

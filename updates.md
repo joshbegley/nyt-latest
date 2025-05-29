@@ -1,3 +1,16 @@
+**Harvard Wins Initial Court Fight to Keep Its International Students**\
+`A federal judge heard arguments from Harvard and Trump administration lawyers after the government ended the school’s ability to enroll international students.`\
+https://nytimes.com/2025/05/29/us/harvard-international-students-trumps.html
+
+**Maple Leafs GM Brad Treliving on the Mitch Marner contract 'process,' team's DNA**\
+`Leafs GM says "process" with star forward is still playing out; believes "there's some DNA that has to change."`\
+https://nytimes.com/athletic/6390516/2025/05/29/maple-leafs-gm-brad-treliving-mitch-marner/
+
+**PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
+`Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
+`\
+https://nytimes.com/athletic/6390170/2025/05/29/champions-league-final-best-bets-predictions-odds/
+
 **PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
 `Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
 `\

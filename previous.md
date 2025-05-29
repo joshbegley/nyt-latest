@@ -1,3 +1,11 @@
+**Harvard Wins Initial Court Fight to Keep Its International Students**\
+`A federal judge heard arguments from Harvard and Trump administration lawyers after the government ended the school’s ability to enroll international students.`\
+https://nytimes.com/2025/05/29/us/harvard-international-students-trumps.html
+
+**Maple Leafs GM Brad Treliving on the Mitch Marner contract 'process,' team's DNA**\
+`Leafs GM says "process" with star forward is still playing out; believes "there's some DNA that has to change."`\
+https://nytimes.com/athletic/6390516/2025/05/29/maple-leafs-gm-brad-treliving-mitch-marner/
+
 **Your Summer Grilling Showstopper Involves a Lot of Wine and a Lot of Salt**\
 `With South American roots, lomo al trapo is an easy way to win this season’s cookouts.`\
 https://nytimes.com/2025/05/29/dining/lomo-al-trapo-grilling-recipe.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/05/29/books/review/new-romance-books.html
 **Brandon Nimmo on hitting at Citi Field: 'I just try to stay sane'**\
 `Nimmo's power numbers take a dive in the Mets' home ballpark and he struggles to cope with the frustration.`\
 https://nytimes.com/athletic/6389553/2025/05/29/mets-brandon-nimmo-citi-field/
-
-**Eddie Howe isn't celebrating Paul Mitchell's exit. Uncertainty is a team-killer**\
-`Howe knew what he would be getting with Mitchell — a headache. Now he doesn’t know again.`\
-https://nytimes.com/athletic/6390257/2025/05/29/eddie-howe-paul-mitchell-uncertainty/
-
-**Ben Shahn’s Social Realist Art Feels Relevant Again in Landmark Survey**\
-`An old master of the Great Depression painted a portrait of America as it still may be.`\
-https://nytimes.com/2025/05/29/arts/design/ben-shahn-jewish-museum.html
 
