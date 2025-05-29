@@ -1,3 +1,31 @@
+**How would Martin Zubimendi fit in Arsenal’s midfield?**\
+`Press resistance? Passing tendencies? What does he offer defensively and going forward? This is what Zubimendi would bring to Arsenal`\
+https://nytimes.com/athletic/6387446/2025/05/29/martin-zubimendi-arsenal-midfield-analysis/
+
+**How Paris Saint-Germain lost Mbappe, Neymar and Messi - and became a better team**\
+`Luis Enrique was tasked with enacting a culture change at the French champions. Their run to the Champions League final shows it's worked`\
+https://nytimes.com/athletic/6374924/2025/05/29/psg-culture-change-mbappe-messi-neymar-enrique/
+
+**FPL season review: Sensational Salah, the joy of Beto and looking at Leeds for 2025-26**\
+`Holly Shand and Abdul Rehman look back on the 2024-25 season and make some bold predictions for next time `\
+https://nytimes.com/athletic/6387621/2025/05/29/fpl-season-review-2024-25-salah-mbeumo/
+
+**U.K. Weighs Sanctions on 2 Israeli Cabinet Ministers as Gaza Crisis Worsens**\
+`Facing rising pressure over the acute suffering of civilians in Gaza, the British government is considering sanctions on two far-right ministers, Itamar Ben-Gvir and Bezalel Smotrich.`\
+https://nytimes.com/2025/05/29/world/europe/gaza-deaths-uk-sanctions-far-right-israel.html
+
+**Connections: Sports Edition Coach: Hints for May 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6389392/2025/05/29/connections-sports-edition-hints-for-may-29-2025/
+
+**The Rise of the Japanese Toilet**\
+`Having conquered its home market, the Japanese toilet-maker Toto is selling more bidets in the United States. Toto’s president says not even tariffs will halt its advance.`\
+https://nytimes.com/2025/05/29/business/toto-toilet-japan-bidet.html
+
+**Quote of the Day: Pulling Off Plan For L.A. Games Is a Feat in Itself**\
+`Quotation of the Day for Thursday, May 29, 2025.`\
+https://nytimes.com/2025/05/28/pageoneplus/quote-of-the-day-pulling-off-plan-for-la-games-is-a-feat-in-itself.html
+
 **NBA playoffs results and takeaways: Thunder earn trip to NBA Finals with rout of Wolves**\
 `The Thunder return to the NBA Finals for the first time since 2012. Shai Gilgeous-Alexander was named Western Conference finals MVP.`\
 https://nytimes.com/athletic/6389628/2025/05/28/thunder-timberwolves-game-5-shai-gilgeous-alexander-results-takeaways/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.h
 **Panthers advance to Stanley Cup Final for third straight year, eliminate Hurricanes: Takeaways**\
 `For the sixth straight year, the Stanley Cup will run through Florida after the Panthers' 5-3 Game 5 win over the Hurricanes on Wednesday.`\
 https://nytimes.com/athletic/6389616/2025/05/28/panthers-hurricanes-nhl-playoffs-2025-game-5-takeaways/
-
-**F.B.I. Memo Sheds Light on Dispute Over Venezuelan Gang**\
-`The remaining intelligence agencies disagree with the F.B.I.’s analysis tying the gang, Tren de Aragua, to Venezuela’s government.`\
-https://nytimes.com/2025/05/28/us/fbi-tren-de-aragua-venezuela-deportations.html
-
-**SEC examining tweaks to field-storming rules to get 'best of both worlds'**\
-`The SEC appears to be moving on from trying to completely stop field and court storming. The effort now may be focused on managing it.`\
-https://nytimes.com/athletic/6389417/2025/05/28/sec-crowd-court-storming-rules-fines/
-
-**Judge Blocks Shutdown of Biden-Era Migrant Entry Programs**\
-`The sweeping order applied to hundreds of thousands of people legally in the country through programs put in place for Ukrainians, Afghans and others.`\
-https://nytimes.com/2025/05/28/us/politics/judge-blocks-shutdown-migrant-entry-programs.html
-
-**Give Height, as a Hairdo**\
-`John Kugelman lifts our spirits and a few other things with today’s clever Thursday puzzle.`\
-https://nytimes.com/2025/05/28/crosswords/daily-puzzle-2025-05-29.html
-
-**Ngugi wa Thiong’o, Writer Who Condemned Colonists and Elites, Dies at 87**\
-`Mr. Ngugi composed the first modern novel in the Gikuyu language on prison toilet paper while being held by Kenyan authorities. He spent many prolific years in exile.`\
-https://nytimes.com/2025/05/28/books/ngugi-wa-thiongo-dead.html
-
-**A Disillusioned Musk, Distanced From Trump, Says He’s Exiting Washington**\
-`The billionaire has made clear he is frustrated with the obstacles he encountered as he tried to upend the federal bureaucracy.`\
-https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-doge.html
-
-**Leader of Smuggling Ring Gets 10 Years After Indian Family Froze to Death**\
-`The family of four that used the network got disoriented and lost their way in 2022 while trying to reach the United States from Canada on foot in blizzard conditions.`\
-https://nytimes.com/2025/05/28/us/human-smuggling-indian-family-canada-border.html
 
