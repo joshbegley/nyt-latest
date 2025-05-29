@@ -1,3 +1,11 @@
+**A Disillusioned Musk, Distanced From Trump, Says He’s Exiting Washington**\
+`The billionaire has made clear he is frustrated with the obstacles he encountered as he tried to upend the federal bureaucracy.`\
+https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-doge.html
+
+**Leader of Smuggling Ring Gets 10 Years After Indian Family Froze to Death**\
+`The family of four that used the network got disoriented and lost their way in 2022 while trying to reach the United States from Canada on foot in blizzard conditions.`\
+https://nytimes.com/2025/05/28/us/human-smuggling-indian-family-canada-border.html
+
 **The Times Confirms More Names on Trump’s Crypto Dinner Guest List**\
 `Some were identified through photos as they entered the event. Others posted about their evening on social media.`\
 https://nytimes.com/2025/05/28/us/politics/trump-crypto-dinner-guest-list.html
