@@ -1,3 +1,11 @@
+**Ayuso withdraws from Giro after bee sting: 'I can’t see out my right eye'**\
+`The Spanish rider had also been suffering with a knee injury, having lost almost 50 minutes on the GC over the last two days.`\
+https://nytimes.com/athletic/6390622/2025/05/29/juan-ayuso-bee-giro-ditalia/
+
+**United Airlines Will Return to J.F.K. Through a Deal With JetBlue**\
+`The partnership comes after Newark’s airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
+https://nytimes.com/2025/05/29/business/united-airlines-jetblue-jfk-newark.html
+
 **Victoria’s Secret Website Goes Dark After Security Breach**\
 `The cyberattack disrupted online sales for days and sent the lingerie company’s share price lower.`\
 https://nytimes.com/2025/05/29/business/victorias-secret-security-incident-cyberattack.html

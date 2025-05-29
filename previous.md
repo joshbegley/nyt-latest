@@ -1,3 +1,7 @@
+**Ayuso withdraws from Giro after bee sting: 'I can’t see out my right eye'**\
+`The Spanish rider had also been suffering with a knee injury, having lost almost 50 minutes on the GC over the last two days.`\
+https://nytimes.com/athletic/6390622/2025/05/29/juan-ayuso-bee-giro-ditalia/
+
 **Victoria’s Secret Website Goes Dark After Security Breach**\
 `The cyberattack disrupted online sales for days and sent the lingerie company’s share price lower.`\
 https://nytimes.com/2025/05/29/business/victorias-secret-security-incident-cyberattack.html
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/6390345/2025/05/29/loeau-labonta-uswnt-debut-kansas
 `The administration immediately petitioned a court to allow the United States to continue imposing stiff tariffs.`\
 https://nytimes.com/2025/05/29/business/trump-tariffs-trade-strategy.html
 
-**United Airlines Will Return to JFK Through a Deal With JetBlue**\
-`The partnership comes after Newark airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
+**United Airlines Will Return to J.F.K. Through a Deal With JetBlue**\
+`The partnership comes after Newark’s airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
 https://nytimes.com/2025/05/29/business/united-airlines-jetblue-jfk-newark.html
 
 **At This N.Y.C. Sumo Club, ‘Everybody Gets Thrown’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/nyregion/new-york-sumo-club-amateur.html
 **Fake My Run Is Exactly What It Sounds Like**\
 `The man behind a program that lets you trick apps like Strava with fake workouts is trying to make a larger point. “I feel like I’m poking at a very real problem,” he said.`\
 https://nytimes.com/2025/05/29/style/fake-my-run-strava.html
-
-**Yes, Inter and PSG are great pressers - but their real brilliance is technical quality in midfield**\
-`The two Champions League finalists are renowned for being good off the ball, but their quality when in possession should not be overlooked`\
-https://nytimes.com/athletic/6388075/2025/05/29/inter-psg-midfield-champions-league-final/
 
