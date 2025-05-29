@@ -1,3 +1,11 @@
+**Trump Meets With Powell After Months of Disparaging the Fed**\
+`Jerome H. Powell stressed in his first meeting since the president returned to the White House that policy decisions would be “based solely on careful, objective and nonpolitical analysis.”`\
+https://nytimes.com/2025/05/29/us/politics/trump-powell-meeting-fed-economy.html
+
+**Caps refute team email claiming Ovechkin will leave NHL after '25-26 season**\
+`The team said a message to season-ticket holders "mistakenly alluded" to Ovechkin's final season with the Capitals.`\
+https://nytimes.com/athletic/6391226/2025/05/29/ovechkin-capitals-final-season-email/
+
 **Capitals refute team email claiming Alex Ovechkin will leave NHL after 2025-26 season**\
 `The team said a message to season-ticket holders "mistakenly alluded" to Ovechkin's final season with the Capitals.`\
 https://nytimes.com/athletic/6391226/2025/05/29/ovechkin-capitals-final-season-email/
