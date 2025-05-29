@@ -1,3 +1,11 @@
+**For Federal Workers, Musk’s Chain Saw Still Reverberates**\
+`Employees of federal agencies continue to wrestle with the shocks of Elon Musk’s drive to purge the government of diversity programs and slash employment even as the billionaire leaves Washington.`\
+https://nytimes.com/2025/05/29/us/politics/federal-workers-musk-doge.html
+
+**South African Woman Gets Life Sentence for Selling 6-Year-Old Daughter**\
+`The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for about $1,100.`\
+https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.html
+
 **Five top tips from a spelling bee coach.**\
 `By Adeel Hassan`\
 https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/five-top-tips-from-a-spelling-bee-coach
