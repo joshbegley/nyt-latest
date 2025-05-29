@@ -1,3 +1,11 @@
+**Ray Dalio’s Prescription for Avoiding Fiscal Catastrophe**\
+`The hedge fund billionaire’s take on how to fix America’s fiscal woes is getting a warm reception in Washington, even as he suggests drastic changes.`\
+https://nytimes.com/2025/05/29/business/dealbook/dalio-deficit-taxes-interest-rates.html
+
+**Rival clubs informed that Delap wants to join Chelsea**\
+`Subject to agreement on personal terms and the requirements of the £30m release clause being met, the 22-year-old will move to Chelsea.`\
+https://nytimes.com/athletic/6267400/2025/05/29/chelsea-transfers-liam-delap/
+
 **Live Updates: Trump’s Attacks Loom Over Harvard Graduation**\
 `As students collect diplomas, the university’s lawyers are expected to fight the Trump administration in court over a ban on foreign students.`\
 https://nytimes.com/live/2025/05/29/us/harvard-trump
