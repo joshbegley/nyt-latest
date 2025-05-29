@@ -1,3 +1,7 @@
+**Your Summer Grilling Showstopper Involves a Lot of Wine and a Lot of Salt**\
+`With South American roots, lomo al trapo is an easy way to win this season’s cookouts.`\
+https://nytimes.com/2025/05/29/dining/lomo-al-trapo-grilling-recipe.html
+
 **PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
 `Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6390257/2025/05/29/eddie-howe-paul-mitchell-uncerta
 **Ben Shahn’s Social Realist Art Feels Relevant Again in Landmark Survey**\
 `An old master of the Great Depression painted a portrait of America as it still may be.`\
 https://nytimes.com/2025/05/29/arts/design/ben-shahn-jewish-museum.html
-
-**‘Crazy Easy’ Rhubarb Crisp**\
-`Save your strawberries. Mark Bittman’s classic recipe lets rhubarb shine all on its own.`\
-https://nytimes.com/2025/05/29/dining/crazy-easy-rhubarb-crisp.html
 

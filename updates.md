@@ -1,3 +1,12 @@
+**Your Summer Grilling Showstopper Involves a Lot of Wine and a Lot of Salt**\
+`With South American roots, lomo al trapo is an easy way to win this season’s cookouts.`\
+https://nytimes.com/2025/05/29/dining/lomo-al-trapo-grilling-recipe.html
+
+**PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
+`Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
+`\
+https://nytimes.com/athletic/6390170/2025/05/29/champions-league-final-best-bets-predictions-odds/
+
 **PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
 `Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
 `\
