@@ -1,3 +1,11 @@
+**Harvard’s Graduation Day Blends Protests and Pride**\
+`As students gathered with family and friends for commencement, signs of the university’s fight with the Trump administration took many forms.`\
+https://nytimes.com/2025/05/29/us/harvards-graduation-ceremony.html
+
+**CFB Hall of Fame changes coach criteria, making Mike Leach eligible**\
+`The College Football Hall of Fame lowered its win percentage requirement from .600 to .595, making Mike Leach eligible for consideration.`\
+https://nytimes.com/athletic/6390996/2025/05/29/college-football-hall-of-fame-mike-leach-eligibility/
+
 **Why Is the White House Targeting International Students?**\
 `In its fight with Harvard, the Trump administration has focused on international students, who are critical to universities’ bottom lines and campus life.`\
 https://nytimes.com/2025/05/29/us/trump-international-students.html

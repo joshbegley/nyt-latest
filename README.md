@@ -1,3 +1,11 @@
+**As the Epic Struggle for Harvard Unfolds**\
+`Readers discuss the confrontation between President Trump and Harvard. Also: Standing up to Vladimir Putin; silencing authors; self-driving trucks.`\
+https://nytimes.com/2025/05/29/opinion/harvard-trump.html
+
+**The Windup: Marlins in awkward spot with Alcantara**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6389965/2025/05/29/sandy-alcantara-marlins-the-windup/
+
 **Harvard’s Graduation Day Blends Protests and Pride**\
 `As students gathered with family and friends for commencement, signs of the university’s fight with the Trump administration took many forms.`\
 https://nytimes.com/2025/05/29/us/harvards-graduation-ceremony.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6390333/2025/05/29/nebraska-football-schedule-frida
 **NWSL Denver hires Curt Johnson as GM following stint with North Carolina Courage**\
 `Johnson's time at the Courage overlapped with the downfall of disgraced former coach Paul Riley.`\
 https://nytimes.com/athletic/6389792/2025/05/29/nwsl-denver-gm-curt-johnson-courage/
-
-**Inside the Big Ten's TV draft: How Fox, NBC and CBS split up the 2025 schedule**\
-`'We hold our breath waiting for every pick,' said Dan Weinberg, CBS’ executive vice president of programming.`\
-https://nytimes.com/athletic/6389813/2025/05/29/big-ten-football-tv-schedule-draft-fox-nbc-cbs/
-
-**Live chat with Keith Law on MLB prospects at 2pm ET today!**\
-`Chat with Keith Law about his news MLB top prospects list!`\
-https://nytimes.com/athletic/6389429/2025/05/29/keith-law-mlb-prospects-live-chat-may-29/
 
