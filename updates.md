@@ -1,3 +1,7 @@
+**The Times Confirms More Names on Trump’s Crypto Dinner Guest List**\
+`Some were identified through photos as they entered the event. Others posted about their evening on social media.`\
+https://nytimes.com/2025/05/28/us/politics/trump-crypto-dinner-guest-list.html
+
 **U.S. Will ‘Aggressively’ Revoke Visas of Many Chinese Students, Rubio Says**\
 `Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
 https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
