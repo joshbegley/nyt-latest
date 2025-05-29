@@ -1,3 +1,7 @@
+**How Lo’eau LaBonta can take advantage of her long-awaited USWNT call-up**\
+`Simmering beneath the happiness and the steady stream of jokes, LaBonta is motivated to make her USWNT mark.`\
+https://nytimes.com/athletic/6390345/2025/05/29/loeau-labonta-uswnt-debut-kansas-city-current/
+
 **Court Ruling on Tariffs Upends Centerpiece of Trump’s Trade Strategy**\
 `The administration immediately petitioned a court to allow the United States to continue imposing stiff tariffs.`\
 https://nytimes.com/2025/05/29/business/court-ruling-on-tariffs-upends-centerpiece-of-trumps-trade-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/business/media/new-york-times-amazon-ai-licensing
 **Asked About ‘TACO’ and Tariffs, Trump Lashes Out at Reporter**\
 `The term “TACO,” short for Trump Always Chickens Out, has been used to describe how markets tumble on the president’s tariff threats, then rebound when he gives way.`\
 https://nytimes.com/2025/05/29/us/politics/trump-taco-trade-question.html
-
-**Large Numbers of Aid-Seekers Storm U.N. Warehouse in Gaza**\
-`Scores of desperate Palestinians could be seen trying to enter the cavernous warehouse after more than two months of Israeli aid blockages put Gaza at high risk of famine.`\
-https://nytimes.com/video/world/middleeast/100000010196253/large-numbers-of-aid-seekers-storm-un-warehouse-in-gaza.html
 

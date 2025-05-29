@@ -1,3 +1,7 @@
+**Court Ruling on Tariffs Upends Centerpiece of Trump’s Trade Strategy**\
+`The administration immediately petitioned a court to allow the United States to continue imposing stiff tariffs.`\
+https://nytimes.com/2025/05/29/business/court-ruling-on-tariffs-upends-centerpiece-of-trumps-trade-strategy.html
+
 **United Airlines Will Return to JFK Through a Deal With JetBlue**\
 `The partnership comes after Newark airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
 https://nytimes.com/2025/05/29/business/united-airlines-jetblue-jfk-newark.html
