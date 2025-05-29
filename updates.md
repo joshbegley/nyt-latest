@@ -1,3 +1,11 @@
+**Musk Leaves Washington Behind but With Powerful Friends in Place**\
+`The world’s richest man created disruption and fear before giving up on revamping government. But his companies will now face less oversight.`\
+https://nytimes.com/2025/05/29/us/politics/musk-washington-efficiency-departure.html
+
+**Faizan Zaki, Last Year’s Runner-Up, Is a Favorite to Win This Year’s Spelling Bee**\
+`The 13-year-old from Plano, Texas, was the only 2024 finalist who advanced to the 2025 finals.`\
+https://nytimes.com/2025/05/29/us/faizan-zaki-spelling-bee-final.html
+
 **San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
 `Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
 https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html

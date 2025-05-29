@@ -1,3 +1,11 @@
+**Musk Leaves Washington Behind but With Powerful Friends in Place**\
+`The world’s richest man created disruption and fear before giving up on revamping government. But his companies will now face less oversight.`\
+https://nytimes.com/2025/05/29/us/politics/musk-washington-efficiency-departure.html
+
+**Faizan Zaki, Last Year’s Runner-Up, Is a Favorite to Win This Year’s Spelling Bee**\
+`The 13-year-old from Plano, Texas, was the only 2024 finalist who advanced to the 2025 finals.`\
+https://nytimes.com/2025/05/29/us/faizan-zaki-spelling-bee-final.html
+
 **San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
 `Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
 https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010197295/song-of-summer-get-jiggy.html
 **Chinese Paraglider Reaches Near-Record Heights, Over 28,000 Feet, by Accident**\
 `After video of the incident went viral, showing a face and body covered in ice, the local sporting authority said it had banned the paraglider from the sport for six months.`\
 https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meters.html
-
-**South African Woman Gets Life Sentence for Selling 6-Year-Old Daughter**\
-`The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for about $1,100.`\
-https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.html
-
-**Raiders OTAs: Geno Smith, Chip Kelly building rapport; Malcolm Koonce returns**\
-`The Raiders hope they’ve found their QB/OC pairing for the foreseeable future and that it will bring about more consistency on offense.`\
-https://nytimes.com/athletic/6391679/2025/05/29/raiders-otas-geno-smith-chip-kelly/
 
