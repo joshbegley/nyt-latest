@@ -1,3 +1,7 @@
+**Give Height, as a Hairdo**\
+`John Kugelman lifts our spirits and a few other things with today’s clever Thursday puzzle.`\
+https://nytimes.com/2025/05/28/crosswords/daily-puzzle-2025-05-29.html
+
 **Ngugi wa Thiong’o, Writer Who Condemned Colonists and Elites, Dies at 87**\
 `Mr. Ngugi composed the first modern novel in the Gikuyu language on prison toilet paper while being held by Kenyan authorities. He spent many prolific years in exile.`\
 https://nytimes.com/2025/05/28/books/ngugi-wa-thiongo-dead.html
