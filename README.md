@@ -1,3 +1,7 @@
+**The Giants’ All-Quarter Century Team: Barry Bonds and the rest of the best since 2000**\
+`The last 25 years of Giants baseball have been a lot of fun. Not surprisingly, it was easy to pick an All-Quarter-Century team.`\
+https://nytimes.com/athletic/6391014/2025/05/29/sf-giants-all-2000s-team/
+
 **'There will be change': Analyzing Maple Leafs GM Brad Treliving's boldest end-of-season quotes**\
 `Leafs GM says team's DNA needs to change as he fields questions about futures of Mitch Marner, John Tavares, Matthew Knies and more.`\
 https://nytimes.com/athletic/6391035/2025/05/29/maple-leafs-gm-brad-treliving-nhl-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/insider/coyotes-photography.html
 **Watch: The Timberwolves are out of the NBA playoffs. How do they build from this season?**\
 `"The Athletic NBA Daily" discussed the Minnesota Timberwolves' Game 5, series-ending loss to the Oklahoma City Thunder.`\
 https://nytimes.com/athletic/6390454/2025/05/29/timberwolves-nba-daily-thunder-anthony-edwards/
-
-**Chicken and Rice Forever**\
-`The pairing is unbeatable, whether in the form of congee, katsu don or a classic halal cart combo.`\
-https://nytimes.com/2025/05/29/dining/chicken-and-rice-forever.html
 
