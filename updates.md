@@ -1,3 +1,11 @@
+**Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
+`Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns in Oakland.`\
+https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
+
+**They’re Exquisite. They’re Divine. They’re Incomprehensible. Why?**\
+`Opera’s greatest composers wanted us to understand the words. English, please!`\
+https://nytimes.com/2025/05/29/opinion/culture/opera-english-latin-language.html
+
 **2025 NFL preseason full schedule, nationally-televised games**\
 `The preseason will kick off with the Hall of Fame Game between the Detroit Lions and the Los Angeles Chargers on July 31.`\
 https://nytimes.com/athletic/6391113/2025/05/29/2025-nfl-preseason-schedule/
