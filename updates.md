@@ -1,3 +1,11 @@
+**NWSL suspends Racing Louisville’s Kayla Fischer two additional matches for pulling player’s hair**\
+`Racing occupies the eighth spot in the NWSL table, narrowly inside playoff contention.`\
+https://nytimes.com/athletic/6391452/2025/05/29/nwsl-suspends-racing-louisville-kayla-fischer-pulling-hair/
+
+**Energy Dept. Unveils Supercomputer That Merges With A.I.**\
+`The new supercomputer shows the increasing desire of government labs to adopt more technologies from commercial artificial intelligence systems.`\
+https://nytimes.com/2025/05/29/technology/energy-department-supercomputer-ai.html
+
 **Brescia docked points and relegated to Serie C, Sampdoria in relegation play-off**\
 `Frosinone, who were originally schedule to play Salernitana in the play-off, move up one place as a result and are now safe from relegation.`\
 https://nytimes.com/athletic/6375159/2025/05/29/serie-b-brescia-relegation/

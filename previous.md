@@ -1,3 +1,11 @@
+**NWSL suspends Racing Louisville’s Kayla Fischer two additional matches for pulling player’s hair**\
+`Racing occupies the eighth spot in the NWSL table, narrowly inside playoff contention.`\
+https://nytimes.com/athletic/6391452/2025/05/29/nwsl-suspends-racing-louisville-kayla-fischer-pulling-hair/
+
+**Energy Dept. Unveils Supercomputer That Merges With A.I.**\
+`The new supercomputer shows the increasing desire of government labs to adopt more technologies from commercial artificial intelligence systems.`\
+https://nytimes.com/2025/05/29/technology/energy-department-supercomputer-ai.html
+
 **Brescia docked points and relegated to Serie C, Sampdoria in relegation play-off**\
 `Frosinone, who were originally schedule to play Salernitana in the play-off, move up one place as a result and are now safe from relegation.`\
 https://nytimes.com/athletic/6375159/2025/05/29/serie-b-brescia-relegation/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/opinion/culture/opera-english-latin-language.html
 **2025 NFL preseason full schedule, nationally-televised games**\
 `The preseason will kick off with the Hall of Fame Game between the Detroit Lions and the Los Angeles Chargers on July 31.`\
 https://nytimes.com/athletic/6391113/2025/05/29/2025-nfl-preseason-schedule/
-
-**Max Homa using Chipotle burrito wrapper head cover in PGA event after it quickly sold out**\
-`Originally sold for $90 each, the head cover is now selling for $200 or more on the secondary market`\
-https://nytimes.com/athletic/6387780/2025/05/29/chipotle-max-homa-golf/
-
-**N.Y. Natural Gas Pipelines Get a Second Chance Under Trump**\
-`An energy company plans to revive pipelines that had been blocked on environmental grounds, as President Trump pushes states on fossil fuel projects.`\
-https://nytimes.com/2025/05/29/business/energy-environment/constitution-pipeline-hochul-trump.html
 
