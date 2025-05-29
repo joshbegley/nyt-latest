@@ -1,3 +1,7 @@
+**U.S. Will ‘Aggressively’ Revoke Visas of Chinese Students, Rubio Says**\
+`Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
+https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
+
 **Give Height, as a Hairdo**\
 `John Kugelman lifts our spirits and a few other things with today’s clever Thursday puzzle.`\
 https://nytimes.com/2025/05/28/crosswords/daily-puzzle-2025-05-29.html
