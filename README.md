@@ -15,7 +15,7 @@ https://nytimes.com/live/2025/05/19/opinion/thepoint/elon-musk-doge-leaving-wash
 https://nytimes.com/athletic/6390963/2025/05/29/ncaa-sec-future-ncaa-tournament/
 
 **British Man Faces 7 Charges Over Liverpool Parade Car Crash**\
-`Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd of soccer fans.`\
+`Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd at a soccer parade.`\
 https://nytimes.com/2025/05/29/world/europe/uk-liverpool-crash-charges.html
 
 **Inside Chelsea's Conference League win: Half-time team talk, after-party & Palmer's award mix-up**\
