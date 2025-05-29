@@ -1,3 +1,7 @@
+**British Man Faces 7 Charges Over Liverpool Parade Car Crash**\
+`Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd at a soccer parade.`\
+https://nytimes.com/2025/05/29/world/europe/uk-liverpool-crash-charges.html
+
 **For These Trump Voters, a Rubber-Stamp Congress Is a Key Demand**\
 `In a recent pair of focus groups, voters loyal to President Trump judged members of Congress almost entirely according to whether they backed him — and rejected lawmakers who dared to dissent.`\
 https://nytimes.com/2025/05/29/us/politics/trump-voters-congress.html
