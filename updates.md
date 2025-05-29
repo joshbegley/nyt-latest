@@ -1,3 +1,15 @@
+**This Timberwolves meltdown tears at the fabric of an otherwise impressive season: 'It hurts'**\
+`Can one game ruin an entire season? Probably not, but Game 5 was a meltdown so complete and so embarrassing that it bears asking.`\
+https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thunder-nba-playoffs/
+
+**Thursday Briefing**\
+`Mounting criticism of Israel.`\
+https://nytimes.com/2025/05/29/briefing/israel-criticism-ukraine-germany.html
+
+**How would Martin Zubimendi fit in Arsenal’s midfield?**\
+`Press resistance? Passing tendencies? What does he offer defensively and going forward? This is what Zubimendi would bring to Arsenal`\
+https://nytimes.com/athletic/6387446/2025/05/29/martin-zubimendi-arsenal-midfield-analysis/
+
 **Children in Gaza Are Starving. Let the U.N. Do Its Job.**\
 `The new plan to get aid into the territory could lead to a catastrophe.`\
 https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
