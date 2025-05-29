@@ -1,3 +1,7 @@
+**NBA playoffs results and takeaways: Thunder earn trip to NBA Finals with rout of Wolves**\
+`The Thunder return to the NBA Finals for the first time since 2012. Shai Gilgeous-Alexander was named Western Conference finals MVP.`\
+https://nytimes.com/athletic/6389628/2025/05/28/thunder-timberwolves-game-5-shai-gilgeous-alexander-results-takeaways/
+
 **Trump Gives Clemency to More Than Two Dozen, Including Political Allies**\
 `A blitz of pardons and commutations included those who have expressed political support or echoed the president in claiming they had been unfairly targeted.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons-hoover-grimm-chrisley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-doge.html
 **Leader of Smuggling Ring Gets 10 Years After Indian Family Froze to Death**\
 `The family of four that used the network got disoriented and lost their way in 2022 while trying to reach the United States from Canada on foot in blizzard conditions.`\
 https://nytimes.com/2025/05/28/us/human-smuggling-indian-family-canada-border.html
-
-**The Times Confirms More Names on Trump’s Crypto Dinner Guest List**\
-`Some were identified through photos as they entered the event. Others posted about their evening on social media.`\
-https://nytimes.com/2025/05/28/us/politics/trump-crypto-dinner-guest-list.html
 
