@@ -1,3 +1,11 @@
+**Export Controls Are Endangering the Fragile U.S.-China Truce**\
+`Just two-and-a-half weeks after agreeing to suspend tariffs, both countries are using export controls to disrupt each other’s key industries.`\
+https://nytimes.com/2025/05/29/business/china-us-export-controls.html
+
+**The New York Times International Edition in Print for Friday, May 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/29/todays-new-york-times-international-edition
+
 **Russia Appears to Launch New Offensive in Ukraine Amid Peace Talks**\
 `Moscow’s dual campaign of intensified frontline attacks and bombardment of Ukrainian cities has further reduced the prospects for an end to the fighting.`\
 https://nytimes.com/2025/05/29/world/europe/russia-ukraine-war-offensive.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/nyregion/cuomos-plan-for-a-20-minimum-wage-in-new
 **How China Uses Work to Reshape Uyghur Identity and Control a Strategic Region**\
 `State labor programs were aimed at lifting one of the nation’s poorest regions out of poverty, but they have also served as a tool to erode resistance to Chinese rule.`\
 https://nytimes.com/2025/05/29/world/asia/china-uyghur-labor.html
-
-**Tom Friedman: Will Israel’s War Ever End?**\
-`After his latest trip to Israel, the columnist shares how it has changed in the past six months.`\
-https://nytimes.com/2025/05/29/opinion/gaza-israel-future.html
-
-**‘Dept. Q’ Review: Netflix’s Nordic-British-American Noir**\
-`Matthew Goode plays a traumatized Edinburgh detective in a complicated cold-case series that’s less than the sum of its influences.`\
-https://nytimes.com/2025/05/29/arts/television/dept-q-review-netflix.html
 
