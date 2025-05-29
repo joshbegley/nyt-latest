@@ -1,9 +1,13 @@
+**Harvard Says Many of Its Foreign Students Are Seeking to Transfer**\
+`The Trump administration is trying to block Harvard from enrolling international students. A Harvard official said the move is already creating major disruptions.`\
+https://nytimes.com/2025/05/28/us/harvard-international-students-transfers.html
+
 **Trump Administration Agrees to Return Guatemalan Man to U.S.**\
 `A federal judge in Massachusetts had ordered officials to “facilitate” his return. The United States is still holding a group of other deportees at a base in Djibouti.`\
 https://nytimes.com/2025/05/28/us/politics/trump-deportations-guatemala-migrant.html
 
 **Trump Tariffs Ruled Illegal by Federal Judicial Panel**\
-`U.S. Court of International Trade said the president had overstepped his authority under the federal emergency powers law he invoked.`\
+`The U.S. Court of International Trade said the president had overstepped his authority under the federal emergency powers law he invoked.`\
 https://nytimes.com/2025/05/28/business/trump-tariffs-blocked-federal-court.html
 
 **Plane Is Diverted After Man Assaults Crew Member, U.S. Says**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/nyregion/nancy-marks-santos-bookkeeper.html
 **Ravens' Mark Andrews moving on from tumultuous offseason: 'I'm very thankful to be here'**\
 `The three-time Pro Bowler made his first comments to a group of Baltimore-area reporters in more than four months. `\
 https://nytimes.com/athletic/6389187/2025/05/28/ravens-mark-andrews-organized-team-activities/
-
-**NBA YoungBoy Says He Will ‘Keep Building’ After President’s Pardon**\
-`The popular Louisiana rapper recently announced a 32-date U.S. tour to begin in September.`\
-https://nytimes.com/2025/05/28/us/politics/trump-pardons-nba-youngboy.html
 
