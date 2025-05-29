@@ -1,3 +1,15 @@
+**No Corrections: May 29, 2025**\
+`No corrections appeared in print on Thursday, May 29, 2025.`\
+https://nytimes.com/2025/05/29/pageoneplus/no-corrections-may-29-2025.html
+
+**The Times and Amazon Announce A.I. Licensing Deal**\
+`In 2023, The Times sued OpenAI and Microsoft for copyright infringement. Now its editorial content will appear across Amazon platforms.`\
+https://nytimes.com/2025/05/29/business/media/new-york-times-amazon-ai-licensing.html
+
+**Asked About ‘TACO’ and Tariffs, Trump Lashes Out at Reporter**\
+`The term “TACO,” short for Trump Always Chickens Out, has been used to describe how markets tumble on the president’s tariff threats, then rebound when he gives way.`\
+https://nytimes.com/2025/05/29/us/politics/trump-taco-trade-question.html
+
 **Large Numbers of Aid-Seekers Storm U.N. Warehouse in Gaza**\
 `Scores of desperate Palestinians could be seen trying to enter the cavernous warehouse after more than two months of Israeli aid blockages put Gaza at high risk of famine.`\
 https://nytimes.com/video/world/middleeast/100000010196253/large-numbers-of-aid-seekers-storm-un-warehouse-in-gaza.html
