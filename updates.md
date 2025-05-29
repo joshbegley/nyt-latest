@@ -1,3 +1,11 @@
+**As the Epic Struggle for Harvard Unfolds**\
+`Readers discuss the confrontation between President Trump and Harvard. Also: Standing up to Vladimir Putin; silencing authors; self-driving trucks.`\
+https://nytimes.com/2025/05/29/opinion/harvard-trump.html
+
+**The Windup: Marlins in awkward spot with Alcantara**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6389965/2025/05/29/sandy-alcantara-marlins-the-windup/
+
 **Harvard’s Graduation Day Blends Protests and Pride**\
 `As students gathered with family and friends for commencement, signs of the university’s fight with the Trump administration took many forms.`\
 https://nytimes.com/2025/05/29/us/harvards-graduation-ceremony.html
