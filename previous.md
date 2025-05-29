@@ -1,3 +1,23 @@
+**United Airlines Will Return to JFK Through a Deal With JetBlue**\
+`The partnership comes after Newark airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
+https://nytimes.com/2025/05/29/business/united-airlines-jetblue-jfk-newark.html
+
+**At This N.Y.C. Sumo Club, ‘Everybody Gets Thrown’**\
+`After three years of work, the New York Sumo Club held its first tournament for amateur students of the ancient combat sport.`\
+https://nytimes.com/2025/05/29/nyregion/new-york-sumo-club-amateur.html
+
+**Fake My Run Is Exactly What It Sounds Like**\
+`The man behind a program that lets you trick apps like Strava with fake workouts is trying to make a larger point. “I feel like I’m poking at a very real problem,” he said.`\
+https://nytimes.com/2025/05/29/style/fake-my-run-strava.html
+
+**Yes, Inter and PSG are great pressers - but their real brilliance is technical quality in midfield**\
+`The two Champions League finalists are renowned for being good off the ball, but their quality when in possession should not be overlooked`\
+https://nytimes.com/athletic/6388075/2025/05/29/inter-psg-midfield-champions-league-final/
+
+**T206 Honus Wagner auction attracting multi-million dollar bids**\
+`For the first time in more than a year, an example of one of the most famous baseball cards of all time is on the auction block`\
+https://nytimes.com/athletic/6389493/2025/05/29/t206-honus-wagner-card-auction/
+
 **No Corrections: May 29, 2025**\
 `No corrections appeared in print on Thursday, May 29, 2025.`\
 https://nytimes.com/2025/05/29/pageoneplus/no-corrections-may-29-2025.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010196253/large-numbers-of-aid-
 **Man City should have been more 'aggressive' in transfers last year, says chairman**\
 `Khaldoon Al Mubarak intimated that further additions could be arriving soon, with the Club World Cup in the U.S. only three weeks away.`\
 https://nytimes.com/athletic/6390382/2025/05/29/man-city-transfers-khaldoon/
-
-**Western U.S. Is About to See Its First Major Heat of the Year**\
-`The National Weather Service warned of “dangerously hot conditions” from Friday through Sunday.`\
-https://nytimes.com/2025/05/29/weather/california-nevada-heat-forecast.html
-
-**Ray Dalio’s Prescription for Avoiding Fiscal Catastrophe**\
-`The hedge fund billionaire’s take on how to fix America’s fiscal woes is getting a warm reception in Washington, even as he suggests drastic changes.`\
-https://nytimes.com/2025/05/29/business/dealbook/dalio-deficit-taxes-interest-rates.html
-
-**Delap prefers Chelsea transfer, rival clubs told he won't join them**\
-`Subject to agreement on personal terms and the requirements of the £30m release clause being met, the 22-year-old will move to Chelsea.`\
-https://nytimes.com/athletic/6267400/2025/05/29/chelsea-transfers-liam-delap/
-
-**Live Updates: Trump’s Attacks Loom Over Harvard Graduation**\
-`As students collect diplomas, the university’s lawyers are expected to fight the Trump administration in court over a ban on foreign students.`\
-https://nytimes.com/live/2025/05/29/us/harvard-trump
-
-**Here’s what to know about the fight with Trump.**\
-`By Dana Goldstein`\
-https://nytimes.com/live/2025/05/29/us/harvard-trump/heres-what-to-know-about-the-fight-with-trump
 
