@@ -1,3 +1,7 @@
+**Trump is not a taco fan, it seems.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2025/05/29/us/trump-news/trump-is-not-a-taco-fan-it-seems
+
 **How Lo’eau LaBonta can take advantage of her long-awaited USWNT call-up**\
 `Simmering beneath the happiness and the steady stream of jokes, LaBonta is motivated to make her USWNT mark.`\
 https://nytimes.com/athletic/6390345/2025/05/29/loeau-labonta-uswnt-debut-kansas-city-current/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/pageoneplus/no-corrections-may-29-2025.html
 **The Times and Amazon Announce A.I. Licensing Deal**\
 `In 2023, The Times sued OpenAI and Microsoft for copyright infringement. Now its editorial content will appear across Amazon platforms.`\
 https://nytimes.com/2025/05/29/business/media/new-york-times-amazon-ai-licensing.html
-
-**Asked About ‘TACO’ and Tariffs, Trump Lashes Out at Reporter**\
-`The term “TACO,” short for Trump Always Chickens Out, has been used to describe how markets tumble on the president’s tariff threats, then rebound when he gives way.`\
-https://nytimes.com/2025/05/29/us/politics/trump-taco-trade-question.html
 

@@ -1,4 +1,12 @@
-**Trump is not a taco fan, it seems.**\
+**First Time Home Buyers**\
+``\
+https://nytimes.com/spotlight/first-time-home-buyers
+
+**Wharton out of England U21s squad for Euros, will continue concussion recovery**\
+`The 21-year-old was named in the preliminary training squad for the tournament in Slovakia but will now instead focus on rest and recovery.`\
+https://nytimes.com/athletic/6390287/2025/05/29/adam-wharton-england-u21s-euros-concussion/
+
+**Trump is not a TACO fan, it seems.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2025/05/29/us/trump-news/trump-is-not-a-taco-fan-it-seems
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388075/2025/05/29/inter-psg-midfield-champions-lea
 **T206 Honus Wagner auction attracting multi-million dollar bids**\
 `For the first time in more than a year, an example of one of the most famous baseball cards of all time is on the auction block`\
 https://nytimes.com/athletic/6389493/2025/05/29/t206-honus-wagner-card-auction/
-
-**No Corrections: May 29, 2025**\
-`No corrections appeared in print on Thursday, May 29, 2025.`\
-https://nytimes.com/2025/05/29/pageoneplus/no-corrections-may-29-2025.html
-
-**The Times and Amazon Announce A.I. Licensing Deal**\
-`In 2023, The Times sued OpenAI and Microsoft for copyright infringement. Now its editorial content will appear across Amazon platforms.`\
-https://nytimes.com/2025/05/29/business/media/new-york-times-amazon-ai-licensing.html
 

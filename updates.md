@@ -1,3 +1,7 @@
+**Trump is not a taco fan, it seems.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2025/05/29/us/trump-news/trump-is-not-a-taco-fan-it-seems
+
 **Court Ruling on Tariffs Upends Centerpiece of Trump’s Trade Strategy**\
 `The administration immediately petitioned a court to allow the United States to continue imposing stiff tariffs.`\
 https://nytimes.com/2025/05/29/business/trump-tariffs-trade-strategy.html
