@@ -1,3 +1,11 @@
+**‘Malditos’ Is a Brooding, Operatic French Drama**\
+`Set amid a traveler community in southern France, the Max series is a fresh and surprising story about family, superstition and a legacy of violence.`\
+https://nytimes.com/2025/05/29/arts/television/malditos-max.html
+
+**Their Families Are Famous. Or So They Say.**\
+`As part of a social media trend, some people are revealing themselves as the children of celebrities or heirs to big businesses. The catch? A lot of them are joking.`\
+https://nytimes.com/2025/05/29/style/holy-airball-nepo-babies-tiktok.html
+
 **Robert Jarvik, 79, Dies; a Designer of the First Permanent Artificial Heart**\
 `He worked with a team at the University of Utah to create a mechanical heart. It was later used in patients awaiting an organ transplant.`\
 https://nytimes.com/2025/05/29/science/robert-jarvik-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391314/2025/05/29/oilers-ekholm-game-5-lineup/
 **Chicago Museum Director to Return to Work After Airplane Incident**\
 `The Art Institute of Chicago had opened an independent investigation after James Rondeau, the director, stripped off his clothes during a flight to Germany.`\
 https://nytimes.com/2025/05/29/arts/design/chicago-museum-director-airplane-incident.html
-
-**Trump Meets With Powell After Months of Disparaging the Fed**\
-`Jerome H. Powell stressed in his first meeting since the president returned to the White House that policy decisions would be “based solely on careful, objective and nonpolitical analysis.”`\
-https://nytimes.com/2025/05/29/us/politics/trump-powell-meeting-fed-economy.html
-
-**Caps refute team email claiming Ovechkin will leave NHL after '25-26 season**\
-`The team said a message to season-ticket holders "mistakenly alluded" to Ovechkin's final season with the Capitals.`\
-https://nytimes.com/athletic/6391226/2025/05/29/ovechkin-capitals-final-season-email/
 
