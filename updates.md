@@ -1,3 +1,7 @@
+**Max Homa using Chipotle burrito wrapper head cover in PGA event after it quickly sold out**\
+`Originally sold for $90 each, the head cover is now selling for $200 or more on the secondary market`\
+https://nytimes.com/athletic/6387780/2025/05/29/chipotle-max-homa-golf/
+
 **N.Y. Natural Gas Pipelines Get a Second Chance Under Trump**\
 `An energy company plans to revive pipelines that had been blocked on environmental grounds, as President Trump pushes states on fossil fuel projects.`\
 https://nytimes.com/2025/05/29/business/energy-environment/constitution-pipeline-hochul-trump.html
