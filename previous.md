@@ -1,3 +1,15 @@
+**Amad wants Garnacho to stay at Man Utd**\
+`Garnacho was told by Ruben Amorim that he should look for a new club during an address to his squad after the Europa League final.`\
+https://nytimes.com/athletic/6390650/2025/05/29/manchester-united-garnacho-future-amad/
+
+**Harbaugh says Ravens releasing Tucker was 'multi-layered decision'**\
+`Since January, Tucker has been accused of inappropriate sexual behavior by 16 Baltimore-area massage therapists from eight different spas.`\
+https://nytimes.com/athletic/6390557/2025/05/29/ravens-justin-tucker-release-harbaugh-decision/
+
+**Delap has told your club he will not be joining this summer - who should they sign instead?**\
+`Ipswich striker Delap has let teams interested in signing him know that he'd prefer a move to Chelsea - so who might be their Plan B?`\
+https://nytimes.com/athletic/6390430/2025/05/29/liam-delap-transfer-striker-alternatives-analysis/
+
 **Browns OTA observations: What I saw from Joe Flacco, Shedeur Sanders and others**\
 `In Cleveland's first OTA session open to reporters, we got a glimpse at the early QB battle, Flacco's connection with Jerry Jeudy and more.`\
 https://nytimes.com/athletic/6389206/2025/05/29/browns-2025-organized-team-activities/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/05/29/us/trump-news/trump-is-not-a-taco-fan-it-see
 **How Lo’eau LaBonta can take advantage of her long-awaited USWNT call-up**\
 `Simmering beneath the happiness and the steady stream of jokes, LaBonta is motivated to make her USWNT mark.`\
 https://nytimes.com/athletic/6390345/2025/05/29/loeau-labonta-uswnt-debut-kansas-city-current/
-
-**Court Ruling on Tariffs Upends Centerpiece of Trump’s Trade Strategy**\
-`The administration immediately petitioned a court to allow the United States to continue imposing stiff tariffs.`\
-https://nytimes.com/2025/05/29/business/trump-tariffs-trade-strategy.html
-
-**United Airlines Will Return to J.F.K. Through a Deal With JetBlue**\
-`The partnership comes after Newark’s airport, where United has a big hub, suffered long delays because of air traffic control problems.`\
-https://nytimes.com/2025/05/29/business/united-airlines-jetblue-jfk-newark.html
-
-**At This N.Y.C. Sumo Club, ‘Everybody Gets Thrown’**\
-`After three years of work, the New York Sumo Club held its first tournament for amateur students of the ancient combat sport.`\
-https://nytimes.com/2025/05/29/nyregion/new-york-sumo-club-amateur.html
 

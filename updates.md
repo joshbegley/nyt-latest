@@ -1,3 +1,15 @@
+**Amad wants Garnacho to stay at Man Utd**\
+`Garnacho was told by Ruben Amorim that he should look for a new club during an address to his squad after the Europa League final.`\
+https://nytimes.com/athletic/6390650/2025/05/29/manchester-united-garnacho-future-amad/
+
+**Harbaugh says Ravens releasing Tucker was 'multi-layered decision'**\
+`Since January, Tucker has been accused of inappropriate sexual behavior by 16 Baltimore-area massage therapists from eight different spas.`\
+https://nytimes.com/athletic/6390557/2025/05/29/ravens-justin-tucker-release-harbaugh-decision/
+
+**Delap has told your club he will not be joining this summer - who should they sign instead?**\
+`Ipswich striker Delap has let teams interested in signing him know that he'd prefer a move to Chelsea - so who might be their Plan B?`\
+https://nytimes.com/athletic/6390430/2025/05/29/liam-delap-transfer-striker-alternatives-analysis/
+
 **Browns OTA observations: What I saw from Joe Flacco, Shedeur Sanders and others**\
 `In Cleveland's first OTA session open to reporters, we got a glimpse at the early QB battle, Flacco's connection with Jerry Jeudy and more.`\
 https://nytimes.com/athletic/6389206/2025/05/29/browns-2025-organized-team-activities/
