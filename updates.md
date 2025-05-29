@@ -1,3 +1,7 @@
+**Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
+`Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns for the A's.`\
+https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
+
 **Chicken and Rice Forever**\
 `The pairing is unbeatable, whether in the form of congee, katsu don or a classic halal cart combo.`\
 https://nytimes.com/2025/05/29/dining/chicken-and-rice-forever.html

@@ -35,6 +35,6 @@ https://nytimes.com/2025/05/29/style/holy-airball-nepo-babies-tiktok.html
 https://nytimes.com/2025/05/29/science/robert-jarvik-dead.html
 
 **Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
-`Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns in Oakland.`\
+`Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns for the A's.`\
 https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
 
