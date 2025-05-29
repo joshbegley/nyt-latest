@@ -1,4 +1,8 @@
-**Two Killed as South Korean Navy Airplane Crashes into Hillside**\
+**‘They Make People Too Scared’: Chinese Students Reckon With U.S. Visa Bans**\
+`Helplessness and frustration are setting in as student applicants in China wait to see how sweeping the new U.S. action might be.`\
+https://nytimes.com/2025/05/29/world/asia/china-student-visas.html
+
+**Two Killed as South Korean Navy Airplane Crashes Into Hillside**\
 `The authorities were still searching for the two other people who were aboard the turboprop when the accident occurred Thursday.`\
 https://nytimes.com/2025/05/29/world/asia/skorea-navy-plane-crash.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/learning/word-of-the-day-bioluminescent.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/05/29/crosswords/spelling-bee-forum.html
-
-**At the Canadian Border, One Wrong Turn Leads to Immigration Limbo**\
-`An accidental trip over the Peace Bridge in Buffalo typically means a toll and a loss of time. But for Victor and Johanna, crossing an international border carried a higher cost.`\
-https://nytimes.com/2025/05/29/nyregion/border-deportation-peace-bridge.html
 

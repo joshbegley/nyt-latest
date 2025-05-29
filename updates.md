@@ -1,3 +1,11 @@
+**‘They Make People Too Scared’: Chinese Students Reckon With U.S. Visa Bans**\
+`Helplessness and frustration are setting in as student applicants in China wait to see how sweeping the new U.S. action might be.`\
+https://nytimes.com/2025/05/29/world/asia/china-student-visas.html
+
+**Two Killed as South Korean Navy Airplane Crashes Into Hillside**\
+`The authorities were still searching for the two other people who were aboard the turboprop when the accident occurred Thursday.`\
+https://nytimes.com/2025/05/29/world/asia/skorea-navy-plane-crash.html
+
 **Two Killed as South Korean Navy Airplane Crashes into Hillside**\
 `The authorities were still searching for the two other people who were aboard the turboprop when the accident occurred Thursday.`\
 https://nytimes.com/2025/05/29/world/asia/skorea-navy-plane-crash.html
