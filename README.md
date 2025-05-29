@@ -1,3 +1,7 @@
+**No. 2 Oklahoma beats No. 7 Tennessee on walk-off homer in WCWS**\
+`Oklahoma has yet to lose a game in this year's playoffs as it vyes for its fifth straight title.`\
+https://nytimes.com/athletic/6391984/2025/05/29/oklahoma-tennessee-womens-college-world-series-results/
+
 **Musk Leaves Washington Behind but With Powerful Friends in Place**\
 `The world’s richest man created disruption and fear before giving up on revamping government. But his companies will now face less oversight.`\
 https://nytimes.com/2025/05/29/us/politics/musk-washington-efficiency-departure.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/five-top-tips-from-a
 **Is ‘Get Jiggy’ This Year’s Song of the Summer?**\
 `In his latest driver’s-seat review, our critic Jon Caramanica makes a case for a new, vintage-feeling rap track as a possible song of the summer.`\
 https://nytimes.com/video/podcasts/100000010197295/song-of-summer-get-jiggy.html
-
-**Chinese Paraglider Reaches Near-Record Heights, Over 28,000 Feet, by Accident**\
-`After video of the incident went viral, showing a face and body covered in ice, the local sporting authority said it had banned the paraglider from the sport for six months.`\
-https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meters.html
 
