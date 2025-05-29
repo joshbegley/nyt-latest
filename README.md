@@ -1,3 +1,7 @@
+**Royce Lewis' prolonged struggles have left a huge hole in the middle of Twins' lineup**\
+`What began as the first big slump of Lewis' career last August has carried into this season, raising bigger questions about the 25-year-old.`\
+https://nytimes.com/athletic/6384780/2025/05/29/royce-lewis-slump-twins/
+
 **Young but mature Thunder were ready for this moment**\
 `Oklahoma City validated its 68-win regular season by reaching the NBA Finals, showing poise beyond its years.`\
 https://nytimes.com/athletic/6389858/2025/05/29/okc-thunder-west-finals-game-5-gilgeous-alexander-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6353477/2025/05/29/nhl-draft-2025-prospects-top-100
 **Projecting which players each PWHL team will protect ahead of the expansion draft**\
 `With Vancouver and Seattle set to join the league next season, teams can each protect three players from the draft. But which ones?`\
 https://nytimes.com/athletic/6388918/2025/05/29/pwhl-protected-players-projection-expansion-draft/
-
-**The latest intel on Jonathan Kuminga and his uncertain Warriors' future**\
-`The Warriors enter a complicated month with a big decision to make on the franchise's third-leading scorer after an up-and-down season. `\
-https://nytimes.com/athletic/6367921/2025/05/29/golden-state-warriors-jonathan-kuminga-future-nba/
 
