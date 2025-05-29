@@ -1,3 +1,11 @@
+**SEC examining tweaks to field-storming rules to get 'best of both worlds'**\
+`The SEC appears to be moving on from trying to completely stop field and court storming. The effort now may be focused on managing it.`\
+https://nytimes.com/athletic/6389417/2025/05/28/sec-crowd-court-storming-rules-fines/
+
+**Judge Blocks Shutdown of Biden-Era Migrant Entry Programs**\
+`The sweeping order applied to hundreds of thousands of people legally in the country through programs put in place for Ukrainians, Afghans and others.`\
+https://nytimes.com/2025/05/28/us/politics/judge-blocks-shutdown-migrant-entry-programs.html
+
 **Give Height, as a Hairdo**\
 `John Kugelman lifts our spirits and a few other things with today’s clever Thursday puzzle.`\
 https://nytimes.com/2025/05/28/crosswords/daily-puzzle-2025-05-29.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6389348/2025/05/28/browns-qbs-joe-flacco-shedeur-sa
 **Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
 `Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
 https://nytimes.com/2025/05/28/us/politics/trump-imaad-zuberi-commute-sentence.html
-
-**Larry Hoover, Former Chicago Gang Leader, Wins Commutation From Trump**\
-`Mr. Hoover was accused of directing the Gangster Disciples even after he went to prison in the 1970s. The federal commutation will not change his state prison sentence.`\
-https://nytimes.com/2025/05/28/us/larry-hoover-trump-chicago-gang.html
-
-**French Open recap: Bad luck for Casper Ruud at Roland Garros continues**\
-`The two-time French Open finalist was struck down by a parasite in last year's semifinal. This year, an injury saw him exit early.`\
-https://nytimes.com/athletic/6387370/2025/05/28/french-open-recap-results-analysis-day-4/
 

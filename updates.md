@@ -1,3 +1,11 @@
+**SEC examining tweaks to field-storming rules to get 'best of both worlds'**\
+`The SEC appears to be moving on from trying to completely stop field and court storming. The effort now may be focused on managing it.`\
+https://nytimes.com/athletic/6389417/2025/05/28/sec-crowd-court-storming-rules-fines/
+
+**Judge Blocks Shutdown of Biden-Era Migrant Entry Programs**\
+`The sweeping order applied to hundreds of thousands of people legally in the country through programs put in place for Ukrainians, Afghans and others.`\
+https://nytimes.com/2025/05/28/us/politics/judge-blocks-shutdown-migrant-entry-programs.html
+
 **U.S. Will ‘Aggressively’ Revoke Visas of Chinese Students, Rubio Says**\
 `Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
 https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
