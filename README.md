@@ -1,3 +1,7 @@
+**Russia Appears to Launch New Offensive in Ukraine Amid Peace Talks**\
+`Moscow’s dual campaign of intensified frontline attacks and bombardment of Ukrainian cities has further reduced the prospects for an end to the fighting.`\
+https://nytimes.com/2025/05/29/world/europe/russia-ukraine-war-offensive.html
+
 **The Democrats’ 20-Million-Dollar-Man Problem**\
 `To reach the manosphere, you have to know the manosphere.`\
 https://nytimes.com/2025/05/29/opinion/manosphere-democrats-peterson-men.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/opinion/gaza-israel-future.html
 **‘Dept. Q’ Review: Netflix’s Nordic-British-American Noir**\
 `Matthew Goode plays a traumatized Edinburgh detective in a complicated cold-case series that’s less than the sum of its influences.`\
 https://nytimes.com/2025/05/29/arts/television/dept-q-review-netflix.html
-
-**The Techno-Futuristic Philosophy Behind Elon Musk’s Mania**\
-`From the White House to Mars, the tech billionaire has his sights set on the long term.`\
-https://nytimes.com/2025/05/29/business/elon-musk-longtermism-effective-altruism-doge.html
 
