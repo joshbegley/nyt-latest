@@ -1,9 +1,17 @@
+**Five top tips from a spelling bee coach.**\
+`By Adeel Hassan`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/five-top-tips-from-a-spelling-bee-coach
+
+**Is ‘Get Jiggy’ This Year’s Song of the Summer?**\
+`In his latest driver’s-seat review, our critic Jon Caramanica makes a case for a new, vintage-feeling rap track as a possible song of the summer.`\
+https://nytimes.com/video/podcasts/100000010197295/song-of-summer-get-jiggy.html
+
 **Chinese Paraglider Reaches Near-Record Heights, Over 28,000 Feet, by Accident**\
 `After video of the incident went viral, showing a face and body covered in ice, the local sporting authority said it had banned the paraglider from the sport for six months.`\
 https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meters.html
 
 **South African Woman Gets Life Sentence for Selling 6-Year-Old Daughter**\
-`The girl, Joshlin Smith is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for 20,000 rand, about $1,100.`\
+`The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for 20,000 rand, about $1,100.`\
 https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.html
 
 **Raiders OTAs: Geno Smith, Chip Kelly building rapport; Malcolm Koonce returns**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/briefing/trump-courts-glaciers-spelling-bee-final
 **Tariff Ruling Gives Businesses Hope, but They’re Soon Unmoored Again**\
 `Companies welcomed a court decision striking down President Trump’s tariffs. Then a stay of that ruling left no one breathing easy.`\
 https://nytimes.com/2025/05/29/business/economy/trump-tariffs-ruling-businesses.html
-
-**Here is the latest.**\
-`One determined student is just a few brain-busting correct answers from lifting the Scripps Cup in the final round of the competition’s centennial year.`\
-https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/here-is-the-latest
-
-**Live Updates: Spelling Bee Celebrates 100 Years Since First Contest**\
-`The Scripps National Spelling Bee, first held in 1925, will choose a new champion during Thursday night’s finals.`\
-https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee
 
