@@ -1,3 +1,7 @@
+**Russia Appears to Launch New Offensive in Ukraine Amid Peace Talks**\
+`Moscow’s dual campaign of intensified frontline attacks and bombardment of Ukrainian cities has further reduced the prospects for an end to the fighting.`\
+https://nytimes.com/2025/05/29/world/europe/russia-ukraine-war-offensive.html
+
 **The Democrats’ 20-Million-Dollar-Man Problem**\
 `To reach the manosphere, you have to know the manosphere.`\
 https://nytimes.com/2025/05/29/opinion/manosphere-democrats-peterson-men.html
