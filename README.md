@@ -1,3 +1,11 @@
+**Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
+`Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns in Oakland.`\
+https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
+
+**They’re Exquisite. They’re Divine. They’re Incomprehensible. Why?**\
+`Opera’s greatest composers wanted us to understand the words. English, please!`\
+https://nytimes.com/2025/05/29/opinion/culture/opera-english-latin-language.html
+
 **2025 NFL preseason full schedule, nationally-televised games**\
 `The preseason will kick off with the Hall of Fame Game between the Detroit Lions and the Los Angeles Chargers on July 31.`\
 https://nytimes.com/athletic/6391113/2025/05/29/2025-nfl-preseason-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391226/2025/05/29/ovechkin-capitals-final-season-e
 **New Likely Dwarf Planet Discovered in Remote Region of Solar System**\
 `The small world was found during a search for the hypothetical Planet Nine, and astronomers say the next time it will reach its closest point to the sun is in the year 26186.`\
 https://nytimes.com/2025/05/29/science/dwarf-planet-nine-discovery.html
-
-**Some Glaciers Will Vanish No Matter What, Study Finds**\
-`Glacial ice will melt for centuries even if global temperatures stop rising now, according to new research.`\
-https://nytimes.com/2025/05/29/climate/glacier-loss-global-warming.html
-
-**Garcia Joins Generational Fight Among House Democrats**\
-`The 47-year-old Democrat is facing another younger colleague and two septuagenarians in a contest next month to lead their party on the Oversight Committee.`\
-https://nytimes.com/2025/05/29/us/house-oversight-democrats.html
 
