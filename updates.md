@@ -1,3 +1,11 @@
+**Chicken and Rice Forever**\
+`The pairing is unbeatable, whether in the form of congee, katsu don or a classic halal cart combo.`\
+https://nytimes.com/2025/05/29/dining/chicken-and-rice-forever.html
+
+**White House Puts Cease-Fire Proposal to Hamas as Pressure on Israel Grows**\
+`The U.S. has sent an Israeli-backed cease-fire proposal that would allow the flow of aid into Gaza. Hamas appeared skeptical of the offer.`\
+https://nytimes.com/2025/05/29/us/politics/israel-gaza-cease-fire-trump.html
+
 **NWSL suspends Racing Louisville’s Kayla Fischer two additional matches for pulling player’s hair**\
 `Racing occupies the eighth spot in the NWSL table, narrowly inside playoff contention.`\
 https://nytimes.com/athletic/6391452/2025/05/29/nwsl-suspends-racing-louisville-kayla-fischer-pulling-hair/
