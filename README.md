@@ -1,3 +1,11 @@
+**The Pulse: The most anonymous dominant season ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6388557/2025/05/29/thunder-nba-finals-the-pulse/
+
+**Stocks Jump After Court Blocks Trump’s Tariffs**\
+`The ruling added to uncertainty, but investors were encouraged that it could slow momentum for a trade war that threatens economic and corporate growth.`\
+https://nytimes.com/2025/05/29/business/stocks-trump-tariffs.html
+
 **Juventus open new memorial to mark 40 years since Heysel Stadium disaster**\
 `Thirty-nine people died at the Heysel Stadium in Brussels, Belgium, ahead of the 1985 European Cup final between Juventus and Liverpool.`\
 https://nytimes.com/athletic/6390123/2025/05/29/heysel-stadium-memorial-juventus-anniversary/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6388219/2025/05/29/presenting-the-reds-all-quarter-
 **Meet the NBA's trash-talking group of All-Stars and the antagonist who holds them together**\
 `Are today's NBA players too friendly? For one fraternity of stars and the trainer that unites them, that's the key to their competitiveness.`\
 https://nytimes.com/athletic/6386659/2025/05/29/tyrese-haliburton-trainer-drew-hanlen-nba-playoffs/
-
-**The Hurricanes are still missing something — and Aleksander Barkov gave them proof**\
-`“Their best player made an elite play,” Hurricanes coach Rod Brind’Amour said.`\
-https://nytimes.com/athletic/6389894/2025/05/29/hurricanes-aleksander-barkov-nhl-playoffs/
-
-**Sando: My favorite offseason move by every NFL team**\
-`The Bengals kept their key players happy, while the Raiders could double their win total from 2024 after adding Pete Carroll and Geno Smith.`\
-https://nytimes.com/athletic/6388467/2025/05/29/nfl-offseason-draft-free-agency-2025/
 
