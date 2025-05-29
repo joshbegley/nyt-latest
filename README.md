@@ -1,3 +1,11 @@
+**The NBA Finals-bound Thunder are here to stay: 'These guys are uncommon'**\
+`Sam Presti's vision for Oklahoma City has worked to perfection, and it seems built to last.`\
+https://nytimes.com/athletic/6390085/2025/05/29/oklahoma-city-thunder-sam-presti-daigneault/
+
+**If at first you do succeed, try, try again: The rise, fall and rise of tennis at Roland Garros**\
+`Ascending to the top of tennis quickly or early is one thing. Climbing back to the top after being forced back down is another.`\
+https://nytimes.com/athletic/6388732/2025/05/29/tennis-comeback-injury-ranking-anisimova-vondrousova/
+
 **Youth Climate Activists Sue Trump Administration Over Executive Orders**\
 `The complaint argues that orders aimed at increasing American fossil fuel production infringe on the rights of young people to a healthy environment.`\
 https://nytimes.com/2025/05/29/climate/youth-climate-lawsuit-trump-executive-orders.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6390557/2025/05/29/ravens-justin-tucker-release-har
 **Delap has told your club he will not be joining this summer - who should they sign instead?**\
 `Ipswich striker Delap has let teams interested in signing him know that he'd prefer a move to Chelsea - so who might be their Plan B?`\
 https://nytimes.com/athletic/6390430/2025/05/29/liam-delap-transfer-striker-alternatives-analysis/
-
-**Browns OTA observations: What I saw from Joe Flacco, Shedeur Sanders and others**\
-`In Cleveland's first OTA session open to reporters, we got a glimpse at the early QB battle, Flacco's connection with Jerry Jeudy and more.`\
-https://nytimes.com/athletic/6389206/2025/05/29/browns-2025-organized-team-activities/
-
-**Ayuso withdraws from Giro after bee sting: 'I can’t see out my right eye'**\
-`The Spanish rider had also been suffering with a knee injury, having lost almost 50 minutes on the GC over the last two days.`\
-https://nytimes.com/athletic/6390622/2025/05/29/juan-ayuso-bee-giro-ditalia/
 

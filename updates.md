@@ -1,3 +1,7 @@
+**Youth Climate Activists Sue Trump Administration Over Executive Orders**\
+`The complaint argues that orders aimed at increasing American fossil fuel production infringe on the rights of young people to a healthy environment.`\
+https://nytimes.com/2025/05/29/climate/youth-climate-lawsuit-trump-executive-orders.html
+
 **The Internet Wants You To Take Creatine. Should You?**\
 `Creatine has long been a popular supplement among athletes and body builders. But on social media, claims about creatine go beyond the weight room. Julia Calderone, an editor for Well, explains.`\
 https://nytimes.com/video/well/100000010195472/the-internet-wants-you-to-take-creatine-should-you.html
