@@ -1,3 +1,11 @@
+**Cryptocurrency Seems Futuristic. The Crimes Around It Are Not.**\
+`Mayor Eric Adams wants New York City to be “the crypto capital of the globe.” The torture of a man for his Bitcoin wallet surely isn’t what he had in mind.`\
+https://nytimes.com/2025/05/29/nyregion/nyc-crypto-townhouse-torture-adams.html
+
+**The Growing Legal Battle Over Climate Change**\
+`Oil and gas companies are facing a wave of new lawsuits over their role in global warming.`\
+https://nytimes.com/2025/05/29/climate/the-growing-legal-battle-over-climate-change.html
+
 **Harvard Commencement Speaker Congratulates and Thanks Graduates**\
 `The university’s commencement speaker, Dr. Abraham Verghese, acknowledged the current conflict with the Trump administration.`\
 https://nytimes.com/video/us/politics/100000010197707/harvard-commencement-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391452/2025/05/29/nwsl-suspends-racing-louisville-
 **Energy Dept. Unveils Supercomputer That Merges With A.I.**\
 `The new supercomputer shows the increasing desire of government labs to adopt more technologies from commercial artificial intelligence systems.`\
 https://nytimes.com/2025/05/29/technology/energy-department-supercomputer-ai.html
-
-**Brescia docked points and relegated to Serie C, Sampdoria in relegation play-off**\
-`Frosinone, who were originally schedule to play Salernitana in the play-off, move up one place as a result and are now safe from relegation.`\
-https://nytimes.com/athletic/6375159/2025/05/29/serie-b-brescia-relegation/
-
-**Police Investigate Detective Who Worked at House in Crypto Torture Case**\
-`Roberto Cordero, who has also served on Mayor Eric Adams’s protection detail, was placed on modified duty.`\
-https://nytimes.com/2025/05/29/nyregion/nypd-detective-crypto-kidnapping.html
 
