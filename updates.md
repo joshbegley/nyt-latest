@@ -1,3 +1,7 @@
+**Andreia Jacinto: Portugal’s young starlet carrying a nation’s Euro hopes**\
+`The 22-year-old’s enormous talent will be on show at Wembley on Friday as Portugal take on European Champions England in the Nations League`\
+https://nytimes.com/athletic/6317211/2025/05/29/andreia-jacinto-portugal-england-nations-league/
+
 **This Timberwolves meltdown tears at the fabric of an otherwise impressive season: 'It hurts'**\
 `Can one game ruin an entire season? Probably not, but Game 5 was a meltdown so complete and so embarrassing that it bears asking.`\
 https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thunder-nba-playoffs/
