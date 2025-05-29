@@ -1,3 +1,7 @@
+**Glacier Landslide Buries a Swiss Village**\
+`A mass of ice, rocks and mud tumbled down a mountain, smothering the village of Blatten, Switzerland.`\
+https://nytimes.com/video/climate/100000010195800/glacier-swiss-alps-landslide.html
+
 **The key to Yankees’ Mark Leiter Jr.’s dominant start? Work with his dad**\
 `Leiter's second save of an impressive season gave the Yankees a 1-0 win over the Angels on Wednesday night.`\
 https://nytimes.com/athletic/6389966/2025/05/29/yankees-mark-leiter-jr-angels-save/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thu
 **Thursday Briefing**\
 `Mounting criticism of Israel.`\
 https://nytimes.com/2025/05/29/briefing/israel-criticism-ukraine-germany.html
-
-**Children in Gaza Are Starving. Let the U.N. Do Its Job.**\
-`The new plan to get aid into the territory could lead to a catastrophe.`\
-https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
 
