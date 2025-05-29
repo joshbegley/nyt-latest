@@ -1,3 +1,11 @@
+**Two Killed as South Korean Navy Airplane Crashes into Hillside**\
+`The authorities were still searching for the two other people who were aboard the turboprop when the accident occurred Thursday.`\
+https://nytimes.com/2025/05/29/world/asia/skorea-navy-plane-crash.html
+
+**The twilight of the tennis sandwich generation falls on the French Open**\
+`The generation of men's players born in the 1990s who looked set to challenge Federer, Nadal and Djokovic have seen tennis pass them by.`\
+https://nytimes.com/athletic/6388673/2025/05/29/tennis-sandwich-generation-men-1990s-big-three-alcaraz-sinner/
+
 **Bayern announce signing of Tah**\
 `The 29-year-old has signed a four-year deal and will wear the number four shirt.`\
 https://nytimes.com/athletic/6390053/2025/05/29/jonathan-tah-bayern-transfer/
