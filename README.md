@@ -1,3 +1,7 @@
+**Man Who Threatened to Kill Election Officials Gets More Than 3 Years in Prison**\
+`Teak Ty Brockbank, 46, of Colorado, blamed his actions on exposure to far-right political rhetoric.`\
+https://nytimes.com/2025/05/29/us/politics/colorado-arizona-election-officials-threats-sentencing.html
+
 **The ‘spell-off’ is now optional, and other changes at this year’s spelling bee.**\
 `By Isabela Espadas Barros Leal`\
 https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/the-spell-off-is-now-optional-and-other-changes-at-this-years-spelling-bee
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391783/2025/05/29/sec-cfp-schedule-strength-greg-s
 **Tariff Rulings Inject New Uncertainty Into Trump Trade Strategy**\
 `A court ruling invalidating President Trump’s sweeping tariffs was halted hours later, throwing into question the administration’s overall approach to trade.`\
 https://nytimes.com/2025/05/29/us/politics/trump-tariffs-trade-policy.html
-
-**Harrison Ruffin Tyler, Grandson of the 10th President, Is Dead at 96**\
-`He was the last of three generations spanning nearly the entire history of the United States: When his grandfather was born, George Washington had just become president.`\
-https://nytimes.com/2025/05/29/us/politics/harrison-ruffin-tyler-dead.html
 
