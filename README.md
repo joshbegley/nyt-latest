@@ -1,3 +1,11 @@
+**Phillies minors notes: Aidan Miller trusted his plan, Seth Johnson's bullpen move and more**\
+`Plus Mick Abel keeps rolling, two top 2024 draft picks who are searching for power, two undrafted standouts to watch and more. `\
+https://nytimes.com/athletic/6389412/2025/05/29/phillies-prospects-aidan-miller-seth-johnson/
+
+**As the NBA on TNT prepares for its finale, an appreciation for its legacy and contribution**\
+`TNT treated NBA viewers like adults, even while having a great time delivering a truly distinctive brand of league coverage.`\
+https://nytimes.com/athletic/6387994/2025/05/29/nba-on-tnt-finale-craig-sager-inside-appreciation/
+
 **The Pulse: The most anonymous dominant season ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6388557/2025/05/29/thunder-nba-finals-the-pulse/
@@ -26,15 +34,7 @@ https://nytimes.com/2025/05/29/podcasts/the-headlines/trumps-pardons-musk-crypto
 `We now have better clarity on who will (and won’t) be suiting up in college next season.`\
 https://nytimes.com/athletic/6389546/2025/05/29/nba-draft-withdrawal-deadline-college-decisions/
 
-**Without Caitlin Clark, the Fever must avoid spiraling. Here are 3 pieces of advice**\
-`Indiana fell to the Washington Mystics in its first game without Clark. `\
-https://nytimes.com/athletic/6389768/2025/05/29/caitlin-clark-injury-indiana-fever-wnba-advice/
-
 **Presenting the Reds' All-Quarter Century Team, the best in Cincinnati since 2000**\
 `While the Reds haven’t won a playoff series in this quarter century, the franchise has had some standout players who are worth highlighting.`\
 https://nytimes.com/athletic/6388219/2025/05/29/presenting-the-reds-all-quarter-century-team-the-best-in-cincinnati-since-2000/
-
-**Meet the NBA's trash-talking group of All-Stars and the antagonist who holds them together**\
-`Are today's NBA players too friendly? For one fraternity of stars and the trainer that unites them, that's the key to their competitiveness.`\
-https://nytimes.com/athletic/6386659/2025/05/29/tyrese-haliburton-trainer-drew-hanlen-nba-playoffs/
 

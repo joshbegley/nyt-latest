@@ -1,3 +1,11 @@
+**The Pulse: The most anonymous dominant season ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6388557/2025/05/29/thunder-nba-finals-the-pulse/
+
+**Stocks Jump After Court Blocks Trump’s Tariffs**\
+`The ruling added to uncertainty, but investors were encouraged that it could slow momentum for a trade war that threatens economic and corporate growth.`\
+https://nytimes.com/2025/05/29/business/stocks-trump-tariffs.html
+
 **Juventus open new memorial to mark 40 years since Heysel Stadium disaster**\
 `Thirty-nine people died at the Heysel Stadium in Brussels, Belgium, ahead of the 1985 European Cup final between Juventus and Liverpool.`\
 https://nytimes.com/athletic/6390123/2025/05/29/heysel-stadium-memorial-juventus-anniversary/
