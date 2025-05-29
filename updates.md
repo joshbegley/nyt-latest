@@ -1,3 +1,15 @@
+**Orioles in discussions with John Mabry to join coaching staff: Sources**\
+`The team has effectively been down two coaches after the firings of manager Brandon Hyde and field coordinato Tim Cossins.`\
+https://nytimes.com/athletic/6391114/2025/05/29/john-mabry-baltimore-orioles-coaching-staff/
+
+**New U.S. Envoy Makes First and Symbolic Trip to Syria**\
+`Thomas Barrack raised the American flag over the U.S. ambassador’s residence in Damascus, amid broader efforts by the Trump administration to improve ties.`\
+https://nytimes.com/2025/05/29/world/europe/syria-damascus-envoy-barrack-israel.html
+
+**Stefanos Tsitsipas hires Goran Ivanisevic, Novak Djokovic's former coach**\
+`Ivanišević most recently worked with Elena Rybakina, the 2022 Wimbledon champion.`\
+https://nytimes.com/athletic/6280462/2025/05/29/stefanos-tsitsipas-tennis-coach-goran-ivanisevic/
+
 **British Man Faces 7 Charges Over Liverpool Parade Car Crash**\
 `Paul Doyle, 53, was accused of dangerous driving and other assault charges after almost 80 people were injured when a vehicle plowed into a crowd at a soccer parade.`\
 https://nytimes.com/2025/05/29/world/europe/uk-liverpool-crash-charges.html

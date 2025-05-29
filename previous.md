@@ -1,3 +1,15 @@
+**Orioles in discussions with John Mabry to join coaching staff: Sources**\
+`The team has effectively been down two coaches after the firings of manager Brandon Hyde and field coordinato Tim Cossins.`\
+https://nytimes.com/athletic/6391114/2025/05/29/john-mabry-baltimore-orioles-coaching-staff/
+
+**New U.S. Envoy Makes First and Symbolic Trip to Syria**\
+`Thomas Barrack raised the American flag over the U.S. ambassador’s residence in Damascus, amid broader efforts by the Trump administration to improve ties.`\
+https://nytimes.com/2025/05/29/world/europe/syria-damascus-envoy-barrack-israel.html
+
+**Stefanos Tsitsipas hires Goran Ivanisevic, Novak Djokovic's former coach**\
+`Ivanišević most recently worked with Elena Rybakina, the 2022 Wimbledon champion.`\
+https://nytimes.com/athletic/6280462/2025/05/29/stefanos-tsitsipas-tennis-coach-goran-ivanisevic/
+
 **For These Trump Voters, a Rubber-Stamp Congress Is a Key Demand**\
 `In a recent pair of focus groups, voters loyal to President Trump judged members of Congress almost entirely according to whether they backed him — and rejected lawmakers who dared to dissent.`\
 https://nytimes.com/2025/05/29/us/politics/trump-voters-congress.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6390166/2025/05/29/chelsea-conference-league-win-in
 **A Pasta Salad in Grain Salad’s Clothing**\
 `This herby recipe is perfect for all that farmers’ market produce you bought without any plan.`\
 https://nytimes.com/2025/05/29/dining/a-pasta-salad-in-grain-salads-clothing.html
-
-**U.S. Cancels Contract With Moderna to Develop Bird Flu Vaccine**\
-`Health Secretary Robert F. Kennedy Jr. has repeatedly questioned the safety of mRNA technology, which is used in the company’s shot.`\
-https://nytimes.com/2025/05/29/health/us-cancels-contract-with-moderna-to-develop-bird-flu-vaccine.html
-
-**As the Epic Struggle for Harvard Unfolds**\
-`Readers discuss the confrontation between President Trump and Harvard. Also: Standing up to Vladimir Putin; silencing authors; self-driving trucks.`\
-https://nytimes.com/2025/05/29/opinion/harvard-trump.html
-
-**The Windup: Marlins in awkward spot with Alcantara**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6389965/2025/05/29/sandy-alcantara-marlins-the-windup/
 
