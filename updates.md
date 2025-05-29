@@ -1,3 +1,7 @@
+**Braves' AJ Smith-Shawver leaves game after hearing 'pop' in elbow**\
+`The Braves placed Smith-Shawver on the 15-day injured list after the game.`\
+https://nytimes.com/athletic/6391849/2025/05/29/braves-aj-smith-shawver-elbow-pop-mri/
+
 **Braves' AJ Smith-Shawver leaves game after hearing 'pop' in elbow, will get MRI**\
 `The Braves placed Smith-Shawver on the 15-day injured list after the game.`\
 https://nytimes.com/athletic/6391849/2025/05/29/braves-aj-smith-shawver-elbow-pop-mri/
