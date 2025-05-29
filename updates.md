@@ -1,3 +1,7 @@
+**The Internet Wants You To Take Creatine. Should You?**\
+`Creatine has long been a popular supplement among athletes and body builders. But on social media, claims about creatine go beyond the weight room. Julia Calderone, an editor for Well, explains.`\
+https://nytimes.com/video/well/100000010195472/the-internet-wants-you-to-take-creatine-should-you.html
+
 **Supreme Court Curbs Scope of Environmental Reviews**\
 `The question for the justices was whether an agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
 https://nytimes.com/2025/05/29/us/politics/supreme-court-environmental-reviews.html
