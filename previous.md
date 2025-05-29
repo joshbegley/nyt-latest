@@ -1,3 +1,7 @@
+**Western U.S. Is About to See Its First Major Heat of the Year**\
+`The National Weather Service warned of “dangerously hot conditions” from Friday through Sunday.`\
+https://nytimes.com/2025/05/29/weather/california-nevada-heat-forecast.html
+
 **Ray Dalio’s Prescription for Avoiding Fiscal Catastrophe**\
 `The hedge fund billionaire’s take on how to fix America’s fiscal woes is getting a warm reception in Washington, even as he suggests drastic changes.`\
 https://nytimes.com/2025/05/29/business/dealbook/dalio-deficit-taxes-interest-rates.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2025/05/29/us/harvard-trump
 `By Dana Goldstein`\
 https://nytimes.com/live/2025/05/29/us/harvard-trump/heres-what-to-know-about-the-fight-with-trump
 
-**Israel Intensely Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
+**Israel Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
 `Israeli attacks on Gaza have killed more than 60 people over the past day, according to local health officials.`\
 https://nytimes.com/2025/05/29/world/middleeast/israel-gaza.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6389926/2025/05/29/canucks-contracts-2025-quinn-hug
 **Bucks mailbag: Damian Lillard salary exception, re-signing two bigs and building depth**\
 `What personnel moves can the Bucks make this offseason? We tackled some of those questions in this edition of the mailbag.`\
 https://nytimes.com/athletic/6386329/2025/05/29/damian-lillard-bucks-trades-signings/
-
-**New MLB-backed pro softball league eager to capitalize on sport's surging popularity**\
-`The AUSL will begin June 7 with four teams playing 24-game regular seasons, barnstorming across 10 cities over seven weeks.`\
-https://nytimes.com/athletic/6387741/2025/05/29/mlb-pro-softball-league-athletes-unlimited/
 

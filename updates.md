@@ -1,3 +1,11 @@
+**Western U.S. Is About to See Its First Major Heat of the Year**\
+`The National Weather Service warned of “dangerously hot conditions” from Friday through Sunday.`\
+https://nytimes.com/2025/05/29/weather/california-nevada-heat-forecast.html
+
+**Israel Bombards Gaza Amid Chaos Surrounding Aid Handouts**\
+`Israeli attacks on Gaza have killed more than 60 people over the past day, according to local health officials.`\
+https://nytimes.com/2025/05/29/world/middleeast/israel-gaza.html
+
 **Delap prefers Chelsea transfer, rival clubs told he won't join them**\
 `Subject to agreement on personal terms and the requirements of the £30m release clause being met, the 22-year-old will move to Chelsea.`\
 https://nytimes.com/athletic/6267400/2025/05/29/chelsea-transfers-liam-delap/
