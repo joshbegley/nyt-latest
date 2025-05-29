@@ -1,3 +1,7 @@
+**2025 NFL preseason full schedule, nationally-televised games**\
+`The preseason will kick off with the Hall of Fame Game between the Detroit Lions and the Los Angeles Chargers on July 31.`\
+https://nytimes.com/athletic/6391113/2025/05/29/2025-nfl-preseason-schedule/
+
 **Max Homa using Chipotle burrito wrapper head cover in PGA event after it quickly sold out**\
 `Originally sold for $90 each, the head cover is now selling for $200 or more on the secondary market`\
 https://nytimes.com/athletic/6387780/2025/05/29/chipotle-max-homa-golf/
