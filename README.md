@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Mounting criticism of Israel.`\
+https://nytimes.com/2025/05/29/briefing/israel-criticism-ukraine-germany.html
+
 **Children in Gaza Are Starving. Let the U.N. Do Its Job.**\
 `The new plan to get aid into the territory could lead to a catastrophe.`\
 https://nytimes.com/2025/05/29/opinion/gaza-aid-unicef-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6387515/2025/05/29/david-moyes-everton-premier-leag
 **Khvicha Kvaratskhelia, PSG's Georgian artist whose football skills saved his father's life**\
 `Told from Georgia, this is the tale of Khvicha Kvaratskhelia, featuring Agatha Christie, Cristiano Ronaldo, Virgil van Dijk and a life saved`\
 https://nytimes.com/athletic/6384756/2025/05/29/khvicha-kvaratskhelia-father-saved-life/
-
-**'He turned from water into wine' - Matheus Cunha, by those who knew him growing up**\
-`Friends, former team-mates and a futsal coach who recruited him after playing against his team tell the story of Cunha's rise`\
-https://nytimes.com/athletic/6340092/2025/05/29/matheus-cunha-manchester-united-transfer/
 
