@@ -1,3 +1,15 @@
+**Chaos rules Roland Garros with crowds, comebacks and curious scheduling on day 5**\
+`The French Open ignites at Roland Garros with thrilling comebacks, crowd chaos and the Philippe-Chatrier night session debate.`\
+https://nytimes.com/athletic/6390113/2025/05/29/french-open-recap-comebacks-french-crowds-schedule-night-session/
+
+**Rhode, Hailey Bieber’s Beauty Brand, Sells in Billion-Dollar Deal**\
+`E.L.F. Beauty acquired Mrs. Bieber’s cosmetics brand for $800 million in cash and stock upfront, with another $200 million contingent on future growth.`\
+https://nytimes.com/2025/05/29/style/hailey-bieber-rhode-elf-beauty.html
+
+**'There will be change': Analyzing Leafs GM Brad Treliving's boldest end-of-season quotes**\
+`Leafs GM says team's DNA needs to change as he fields questions about futures of Mitch Marner, John Tavares, Matthew Knies and more.`\
+https://nytimes.com/athletic/6391035/2025/05/29/maple-leafs-gm-brad-treliving-nhl-analysis/
+
 **The Giants’ All-Quarter Century Team: Barry Bonds and the rest of the best since 2000**\
 `The last 25 years of Giants baseball have been a lot of fun. Not surprisingly, it was easy to pick an All-Quarter-Century team.`\
 https://nytimes.com/athletic/6391014/2025/05/29/sf-giants-all-2000s-team/
