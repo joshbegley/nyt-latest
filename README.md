@@ -1,3 +1,7 @@
+**CFB Hall of Fame changes coach criteria, making Mike Leach eligible**\
+`The College Football Hall of Fame lowered its win percentage requirement from .600 to .595, making Mike Leach eligible for consideration.`\
+https://nytimes.com/athletic/6390996/2025/05/29/college-football-hall-of-fame-mike-leach-eligibility/
+
 **Why Is the White House Targeting International Students?**\
 `In its fight with Harvard, the Trump administration has focused on international students, who are critical to universities’ bottom lines and campus life.`\
 https://nytimes.com/2025/05/29/us/trump-international-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6389429/2025/05/29/keith-law-mlb-prospects-live-cha
 **Oil Companies Are Sued Over Death of Woman in 2021 Heat Wave**\
 `Experts said it is the first wrongful death case targeting fossil fuel companies over their role in global warming.`\
 https://nytimes.com/2025/05/29/climate/oil-companies-wrongful-death-lawsuit-heat-dome.html
-
-**Trump’s Fiercest War Is on Reality Itself**\
-`The president’s storytelling is in an unscrupulous league of its own.`\
-https://nytimes.com/2025/05/29/opinion/trump-truth.html
 

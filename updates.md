@@ -1,3 +1,7 @@
+**Why Is the White House Targeting International Students?**\
+`In its fight with Harvard, the Trump administration has focused on international students, who are critical to universities’ bottom lines and campus life.`\
+https://nytimes.com/2025/05/29/us/trump-international-students.html
+
 **Fox exec explains Texas' veto of moving Ohio State opener to Sunday**\
 `Texas athletic director Chris Del Conte told reporters at SEC meetings this week he was the one who shot down the opportunity.`\
 https://nytimes.com/athletic/6390765/2025/05/29/texas-ohio-state-kickoff-fox-noon-sunday/
