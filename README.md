@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Alvin**\
+`See the likely path and wind arrival times for Alvin.`\
+https://nytimes.com/interactive/2025/05/29/weather/alvin-map-path-tracker.html
+
+**What I'm hearing about final stages of Penguins' coaching search**\
+`The Penguins are getting close to Kyle Dubas' June 1 deadline of naming a new coach. `\
+https://nytimes.com/athletic/6389690/2025/05/29/penguins-coaching-search-nhl-mitch-love/
+
 **Google’s New A.I.-Powered Search Has Arrived. Proceed With Caution.**\
 `AI Mode excels at tasks like product research for online shopping. But it falls short on basic web searches.`\
 https://nytimes.com/2025/05/29/technology/personaltech/google-ai-mode-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/dining/crazy-easy-rhubarb-crisp.html
 **After F1 driver criticism, what next for Monaco GP's two pit stop rule?**\
 `F1, the FIA and the 10 teams agreed to introduce two mandatory stops for this year’s Grand Prix to try and improve the on-track spectacle.`\
 https://nytimes.com/athletic/6390730/2025/05/29/f1-monaco-pit-stops/
-
-**An Intimate, Intergenerational Opera That Is Also a Family Affair**\
-`Ricky Ian Gordon and Lynn Nottage tell the story of three generations in a Harlem home. Enter a second Nottage generation, her daughter, on the creative team.`\
-https://nytimes.com/2025/05/29/arts/music/this-house-opera-theater-st-louis-lynn-nottage.html
-
-**Got Mavericks questions? Submit to Christian Clark for the upcoming mailbag**\
-`The NBA Draft Lottery on May 12 yielded a pleasant surprise for a beaten-down Dallas Mavericks fan base.`\
-https://nytimes.com/athletic/6390718/2025/05/29/mavericks-mailbag-cooper-flagg-kyrie-anthony-davis/
 
