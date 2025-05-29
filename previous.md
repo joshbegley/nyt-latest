@@ -1,3 +1,11 @@
+**Panthers advance to Stanley Cup Final for third straight year, eliminate Hurricanes: Takeaways**\
+`For the sixth straight year, the Stanley Cup will run through Florida after the Panthers' 5-3 Game 5 win over the Hurricanes on Wednesday.`\
+https://nytimes.com/athletic/6389616/2025/05/28/panthers-hurricanes-nhl-playoffs-2025-game-5-takeaways/
+
+**F.B.I. Memo Sheds Light on Dispute Over Venezuelan Gang**\
+`The remaining intelligence agencies disagree with the F.B.I.’s analysis tying the gang, Tren de Aragua, to Venezuela’s government.`\
+https://nytimes.com/2025/05/28/us/fbi-tren-de-aragua-venezuela-deportations.html
+
 **SEC examining tweaks to field-storming rules to get 'best of both worlds'**\
 `The SEC appears to be moving on from trying to completely stop field and court storming. The effort now may be focused on managing it.`\
 https://nytimes.com/athletic/6389417/2025/05/28/sec-crowd-court-storming-rules-fines/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/trump-crypto-dinner-guest-list.html
 **U.S. Will ‘Aggressively’ Revoke Visas of Chinese Students, Rubio Says**\
 `Secretary of State Marco Rubio said the students who will have their visas canceled include people with ties to the Chinese Communist Party and those studying in “critical fields.”`\
 https://nytimes.com/2025/05/28/us/politics/china-student-visas-revoke.html
-
-**Lloyd: Browns' best QB after Day 1 is Joe Flacco, but who'll start Game 1 is complicated**\
-`Do you play the old man, even if it's counterintuitive to the high draft pick you covet next year? Or play the kids and see what you have?`\
-https://nytimes.com/athletic/6389348/2025/05/28/browns-qbs-joe-flacco-shedeur-sanders-otas/
-
-**Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
-`Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
-https://nytimes.com/2025/05/28/us/politics/trump-imaad-zuberi-commute-sentence.html
 
