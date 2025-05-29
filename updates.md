@@ -1,3 +1,19 @@
+**Brandon Nimmo on hitting at Citi Field: 'I just try to stay sane'**\
+`Nimmo's power numbers take a dive in the Mets' home ballpark and he struggles to cope with the frustration.`\
+https://nytimes.com/athletic/6389553/2025/05/29/mets-brandon-nimmo-citi-field/
+
+**Eddie Howe isn't celebrating Paul Mitchell's exit. Uncertainty is a team-killer**\
+`Howe knew what he would be getting with Mitchell — a headache. Now he doesn’t know again.`\
+https://nytimes.com/athletic/6390257/2025/05/29/eddie-howe-paul-mitchell-uncertainty/
+
+**Ben Shahn’s Social Realist Art Feels Relevant Again in Landmark Survey**\
+`An old master of the Great Depression painted a portrait of America as it still may be.`\
+https://nytimes.com/2025/05/29/arts/design/ben-shahn-jewish-museum.html
+
+**‘Crazy Easy’ Rhubarb Crisp**\
+`Save your strawberries. Mark Bittman’s classic recipe lets rhubarb shine all on its own.`\
+https://nytimes.com/2025/05/29/dining/crazy-easy-rhubarb-crisp.html
+
 **After F1 driver criticism, what next for Monaco GP's two pit stop rule?**\
 `F1, the FIA and the 10 teams agreed to introduce two mandatory stops for this year’s Grand Prix to try and improve the on-track spectacle.`\
 https://nytimes.com/athletic/6390730/2025/05/29/f1-monaco-pit-stops/
