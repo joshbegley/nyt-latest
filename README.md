@@ -1,3 +1,7 @@
+**Why Is the White House Targeting International Students?**\
+`In its fight with Harvard, the Trump administration has focused on international students, who are critical to universities’ bottom lines and campus life.`\
+https://nytimes.com/2025/05/29/us/trump-international-students.html
+
 **Fox exec explains Texas' veto of moving Ohio State opener to Sunday**\
 `Texas athletic director Chris Del Conte told reporters at SEC meetings this week he was the one who shot down the opportunity.`\
 https://nytimes.com/athletic/6390765/2025/05/29/texas-ohio-state-kickoff-fox-noon-sunday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/climate/oil-companies-wrongful-death-lawsuit-heat
 **Trump’s Fiercest War Is on Reality Itself**\
 `The president’s storytelling is in an unscrupulous league of its own.`\
 https://nytimes.com/2025/05/29/opinion/trump-truth.html
-
-**Harvard Wins Initial Court Fight to Keep Its International Students**\
-`A federal judge heard arguments from Harvard and Trump administration lawyers after the government ended the school’s ability to enroll international students.`\
-https://nytimes.com/2025/05/29/us/harvard-international-students-trumps.html
 
