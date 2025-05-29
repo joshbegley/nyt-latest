@@ -1,3 +1,8 @@
+**PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
+`Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
+`\
+https://nytimes.com/athletic/6390170/2025/05/29/champions-league-final-best-bets-predictions-odds/
+
 **Tracking Tropical Storm Alvin**\
 `See the likely path and wind arrival times for Alvin.`\
 https://nytimes.com/interactive/2025/05/29/weather/alvin-map-path-tracker.html

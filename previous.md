@@ -1,3 +1,8 @@
+**PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
+`Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
+`\
+https://nytimes.com/athletic/6390170/2025/05/29/champions-league-final-best-bets-predictions-odds/
+
 **Tracking Tropical Storm Alvin**\
 `See the likely path and wind arrival times for Alvin.`\
 https://nytimes.com/interactive/2025/05/29/weather/alvin-map-path-tracker.html
@@ -33,8 +38,4 @@ https://nytimes.com/2025/05/29/arts/design/ben-shahn-jewish-museum.html
 **‘Crazy Easy’ Rhubarb Crisp**\
 `Save your strawberries. Mark Bittman’s classic recipe lets rhubarb shine all on its own.`\
 https://nytimes.com/2025/05/29/dining/crazy-easy-rhubarb-crisp.html
-
-**After F1 driver criticism, what next for Monaco GP's two pit stop rule?**\
-`F1, the FIA and the 10 teams agreed to introduce two mandatory stops for this year’s Grand Prix to try and improve the on-track spectacle.`\
-https://nytimes.com/athletic/6390730/2025/05/29/f1-monaco-pit-stops/
 
