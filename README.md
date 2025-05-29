@@ -1,3 +1,7 @@
+**Trump Commutes Sentence of Major Donor to his 2017 Inauguration**\
+`Imaad Zuberi had been a major donor to Democrats, including former President Barack Obama and Hillary Clinton, before shifting his support to Mr. Trump after his 2016 victory.`\
+https://nytimes.com/2025/05/28/us/politics/trump-imaad-suberi-commute-sentence.html
+
 **Larry Hoover, Former Chicago Gang Leader, Wins Commutation From Trump**\
 `Mr. Hoover was accused of directing the Gangster Disciples even after he went to prison in the 1970s. The federal commutation will not change his state prison sentence.`\
 https://nytimes.com/2025/05/28/us/larry-hoover-trump-chicago-gang.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/28/us/politics/abortion-missouri-supreme-court.html
 **Pardons Become the Latest Trump Flex**\
 `The usual rules of politics seem no match for the president’s desire to exploit an unchecked executive power.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons.html
-
-**Twins takeaways: Hard-hit luck, Lewis' slump, McCusker's moment, injury updates**\
-`As they took stock of a loss to the Rays, the Twins recognized they deserved better after suffering their first series defeat in a month. `\
-https://nytimes.com/athletic/6389227/2025/05/28/twins-rays-royce-lewis-matt-wallner-carson-mccusker/
 
