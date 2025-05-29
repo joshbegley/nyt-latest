@@ -1,3 +1,7 @@
+**Red Light: Panthers punch ticket to Stanley Cup Final — is Connor McDavid next?**\
+`Plus: The Hurricanes have some soul-searching to do.`\
+https://nytimes.com/athletic/6390885/2025/05/29/red-light-newsletter-stanley-cup-final-panthers-mcdavid/
+
 **Nebraska football scheduled to play two Friday games in 2025**\
 `The Huskers will play at Minnesota in Week 7, in addition to their traditional Black Friday game against Iowa. `\
 https://nytimes.com/athletic/6390333/2025/05/29/nebraska-football-schedule-friday-2025/

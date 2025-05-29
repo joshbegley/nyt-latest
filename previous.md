@@ -1,3 +1,7 @@
+**Red Light: Panthers punch ticket to Stanley Cup Final — is Connor McDavid next?**\
+`Plus: The Hurricanes have some soul-searching to do.`\
+https://nytimes.com/athletic/6390885/2025/05/29/red-light-newsletter-stanley-cup-final-panthers-mcdavid/
+
 **Nebraska football scheduled to play two Friday games in 2025**\
 `The Huskers will play at Minnesota in Week 7, in addition to their traditional Black Friday game against Iowa. `\
 https://nytimes.com/athletic/6390333/2025/05/29/nebraska-football-schedule-friday-2025/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6390516/2025/05/29/maple-leafs-gm-brad-treliving-mi
 **Your Summer Grilling Showstopper Involves a Lot of Wine and a Lot of Salt**\
 `With South American roots, lomo al trapo is an easy way to win this season’s cookouts.`\
 https://nytimes.com/2025/05/29/dining/lomo-al-trapo-grilling-recipe.html
-
-**PSG vs Inter UCL final best bets: Hakimi racking up the shots? Corners galore?**\
-`Brett Koremenos and Sam Tighe outline their favourite Champions League final bets to chase up ahead of this Saturday’s showdown in Munich.
-`\
-https://nytimes.com/athletic/6390170/2025/05/29/champions-league-final-best-bets-predictions-odds/
 
