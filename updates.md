@@ -1,3 +1,7 @@
+**Court Ruling on Tariffs Upends Centerpiece of Trump’s Trade Strategy**\
+`The administration immediately petitioned a court to allow the United States to continue imposing stiff tariffs.`\
+https://nytimes.com/2025/05/29/business/trump-tariffs-trade-strategy.html
+
 **How Lo’eau LaBonta can take advantage of her long-awaited USWNT call-up**\
 `Simmering beneath the happiness and the steady stream of jokes, LaBonta is motivated to make her USWNT mark.`\
 https://nytimes.com/athletic/6390345/2025/05/29/loeau-labonta-uswnt-debut-kansas-city-current/
