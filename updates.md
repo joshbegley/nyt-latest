@@ -1,3 +1,19 @@
+**Brescia docked points and relegated to Serie C, Sampdoria in relegation play-off**\
+`Frosinone, who were originally schedule to play Salernitana in the play-off, move up one place as a result and are now safe from relegation.`\
+https://nytimes.com/athletic/6375159/2025/05/29/serie-b-brescia-relegation/
+
+**Police Investigate Detective Who Worked at House in Crypto Torture Case**\
+`Roberto Cordero, who has also served on Mayor Eric Adams’s protection detail, was placed on modified duty.`\
+https://nytimes.com/2025/05/29/nyregion/nypd-detective-crypto-kidnapping.html
+
+**‘Malditos’ Is a Brooding, Operatic French Drama**\
+`Set amid a traveler community in southern France, the Max series is a fresh and surprising story about family, superstition and a legacy of violence.`\
+https://nytimes.com/2025/05/29/arts/television/malditos-max.html
+
+**Their Families Are Famous. Or So They Say.**\
+`As part of a social media trend, some people are revealing themselves as the children of celebrities or heirs to big businesses. The catch? A lot of them are joking.`\
+https://nytimes.com/2025/05/29/style/holy-airball-nepo-babies-tiktok.html
+
 **Robert Jarvik, 79, Dies; a Designer of the First Permanent Artificial Heart**\
 `He worked with a team at the University of Utah to create a mechanical heart. It was later used in patients awaiting an organ transplant.`\
 https://nytimes.com/2025/05/29/science/robert-jarvik-dead.html
