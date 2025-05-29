@@ -1,3 +1,11 @@
+**Plane Is Diverted After Man Assaults Crew Member, U.S. Says**\
+`An American Airlines jet, which was flying from Connecticut to Chicago, returned to Connecticut after a passenger grabbed a flight attendant, threw the person to the ground and spoke incoherently, prosecutors said.`\
+https://nytimes.com/2025/05/28/us/american-airlines-flight-crew-assault.html
+
+**Missouri Supreme Court Effectively Blocks Access to Abortion, at Least for Now**\
+`The ruling helps undercut a new amendment to the State Constitution that ensures abortion rights.`\
+https://nytimes.com/2025/05/28/us/politics/abortion-missouri-supreme-court.html
+
 **Pardons Become the Latest Trump Flex**\
 `The usual rules of politics seem no match for the president’s desire to exploit an unchecked executive power.`\
 https://nytimes.com/2025/05/28/us/politics/trump-pardons.html
