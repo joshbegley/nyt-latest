@@ -1,3 +1,15 @@
+**After F1 driver criticism, what next for Monaco GP's two pit stop rule?**\
+`F1, the FIA and the 10 teams agreed to introduce two mandatory stops for this year’s Grand Prix to try and improve the on-track spectacle.`\
+https://nytimes.com/athletic/6390730/2025/05/29/f1-monaco-pit-stops/
+
+**An Intimate, Intergenerational Opera That Is Also a Family Affair**\
+`Ricky Ian Gordon and Lynn Nottage tell the story of three generations in a Harlem home. Enter a second Nottage generation, her daughter, on the creative team.`\
+https://nytimes.com/2025/05/29/arts/music/this-house-opera-theater-st-louis-lynn-nottage.html
+
+**Got Mavericks questions? Submit to Christian Clark for the upcoming mailbag**\
+`The NBA Draft Lottery on May 12 yielded a pleasant surprise for a beaten-down Dallas Mavericks fan base.`\
+https://nytimes.com/athletic/6390718/2025/05/29/mavericks-mailbag-cooper-flagg-kyrie-anthony-davis/
+
 **The NBA Finals-bound Thunder are here to stay: 'These guys are uncommon'**\
 `Sam Presti's vision for Oklahoma City has worked to perfection, and it seems built to last.`\
 https://nytimes.com/athletic/6390085/2025/05/29/oklahoma-city-thunder-sam-presti-daigneault/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6390521/2025/05/29/hockey-canada-sexual-assault-tri
 **The Bounce: Meet the Thunder, your NBA Finals favorites. Does any other team stand a chance?**\
 `The Thunder should be here a long time with its talented youth and deep draft capital. And what's next for the Wolves?`\
 https://nytimes.com/athletic/6390357/2025/05/29/shai-gilgeous-alexander-thunder-nba-playoffs-finals-mvp-the-bounce/
-
-**Amad wants Garnacho to stay at Man Utd**\
-`Garnacho was told by Ruben Amorim that he should look for a new club during an address to his squad after the Europa League final.`\
-https://nytimes.com/athletic/6390650/2025/05/29/manchester-united-garnacho-future-amad/
-
-**Harbaugh says Ravens releasing Tucker was 'multi-layered decision'**\
-`Since January, Tucker has been accused of inappropriate sexual behavior by 16 Baltimore-area massage therapists from eight different spas.`\
-https://nytimes.com/athletic/6390557/2025/05/29/ravens-justin-tucker-release-harbaugh-decision/
-
-**Delap has told your club he will not be joining this summer - who should they sign instead?**\
-`Ipswich striker Delap has let teams interested in signing him know that he'd prefer a move to Chelsea - so who might be their Plan B?`\
-https://nytimes.com/athletic/6390430/2025/05/29/liam-delap-transfer-striker-alternatives-analysis/
 

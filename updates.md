@@ -1,3 +1,11 @@
+**The NBA Finals-bound Thunder are here to stay: 'These guys are uncommon'**\
+`Sam Presti's vision for Oklahoma City has worked to perfection, and it seems built to last.`\
+https://nytimes.com/athletic/6390085/2025/05/29/oklahoma-city-thunder-sam-presti-daigneault/
+
+**If at first you do succeed, try, try again: The rise, fall and rise of tennis at Roland Garros**\
+`Ascending to the top of tennis quickly or early is one thing. Climbing back to the top after being forced back down is another.`\
+https://nytimes.com/athletic/6388732/2025/05/29/tennis-comeback-injury-ranking-anisimova-vondrousova/
+
 **Youth Climate Activists Sue Trump Administration Over Executive Orders**\
 `The complaint argues that orders aimed at increasing American fossil fuel production infringe on the rights of young people to a healthy environment.`\
 https://nytimes.com/2025/05/29/climate/youth-climate-lawsuit-trump-executive-orders.html
