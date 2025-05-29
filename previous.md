@@ -1,3 +1,7 @@
+**The Athletic FC: Luis Enrique's guiding light, Chelsea complete Euro set, Liga MX's legal battle**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
+https://nytimes.com/athletic/6390069/2025/05/29/luis-enriqe-psg-daughter-champions-league/
+
 **Phillies minors notes: Aidan Miller trusted his plan, Seth Johnson's bullpen move and more**\
 `Plus Mick Abel keeps rolling, two top 2024 draft picks who are searching for power, two undrafted standouts to watch and more. `\
 https://nytimes.com/athletic/6389412/2025/05/29/phillies-prospects-aidan-miller-seth-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/podcasts/the-headlines/trumps-pardons-musk-crypto
 **NBA Draft withdrawal deadline takeaways: Florida gets stronger, Duke goes to Plan B**\
 `We now have better clarity on who will (and won’t) be suiting up in college next season.`\
 https://nytimes.com/athletic/6389546/2025/05/29/nba-draft-withdrawal-deadline-college-decisions/
-
-**Presenting the Reds' All-Quarter Century Team, the best in Cincinnati since 2000**\
-`While the Reds haven’t won a playoff series in this quarter century, the franchise has had some standout players who are worth highlighting.`\
-https://nytimes.com/athletic/6388219/2025/05/29/presenting-the-reds-all-quarter-century-team-the-best-in-cincinnati-since-2000/
 

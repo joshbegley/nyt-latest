@@ -1,3 +1,7 @@
+**The Athletic FC: Luis Enrique's guiding light, Chelsea complete Euro set, Liga MX's legal battle**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
+https://nytimes.com/athletic/6390069/2025/05/29/luis-enriqe-psg-daughter-champions-league/
+
 **Phillies minors notes: Aidan Miller trusted his plan, Seth Johnson's bullpen move and more**\
 `Plus Mick Abel keeps rolling, two top 2024 draft picks who are searching for power, two undrafted standouts to watch and more. `\
 https://nytimes.com/athletic/6389412/2025/05/29/phillies-prospects-aidan-miller-seth-johnson/
