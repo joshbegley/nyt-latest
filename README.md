@@ -1,40 +1,40 @@
-**‘They Make People Too Scared’: Chinese Students Reckon With U.S. Visa Bans**\
-`Helplessness and frustration are setting in as student applicants in China wait to see how sweeping the new U.S. action might be.`\
-https://nytimes.com/2025/05/29/world/asia/china-student-visas.html
+**How China Uses Work to Reshape Uyghur Identity and Control a Strategic Region**\
+`State labor programs were aimed at lifting one of the nation’s poorest regions out of poverty, but they have also served as a tool to erode resistance to Chinese rule.`\
+https://nytimes.com/2025/05/29/world/asia/china-uyghur-labor.html
 
-**Two Killed as South Korean Navy Airplane Crashes Into Hillside**\
-`The authorities were still searching for the two other people who were aboard the turboprop when the accident occurred Thursday.`\
-https://nytimes.com/2025/05/29/world/asia/skorea-navy-plane-crash.html
+**Tom Friedman: Will Israel’s War Ever End?**\
+`After his latest trip to Israel, the columnist shares how it has changed in the past six months.`\
+https://nytimes.com/2025/05/29/opinion/gaza-israel-future.html
 
-**The twilight of the tennis sandwich generation falls on the French Open**\
-`The generation of men's players born in the 1990s who looked set to challenge Federer, Nadal and Djokovic have seen tennis pass them by.`\
-https://nytimes.com/athletic/6388673/2025/05/29/tennis-sandwich-generation-men-1990s-big-three-alcaraz-sinner/
+**‘Dept. Q’ Review: Netflix’s Nordic-British-American Noir**\
+`Matthew Goode plays a traumatized Edinburgh detective in a complicated cold-case series that’s less than the sum of its influences.`\
+https://nytimes.com/2025/05/29/arts/television/dept-q-review-netflix.html
 
-**Bayern announce signing of Tah**\
-`The 29-year-old has signed a four-year deal and will wear the number four shirt.`\
-https://nytimes.com/athletic/6390053/2025/05/29/jonathan-tah-bayern-transfer/
+**The Techno-Futuristic Philosophy Behind Elon Musk’s Mania**\
+`From the White House to Mars, the tech billionaire has his sights set on the long term.`\
+https://nytimes.com/2025/05/29/business/elon-musk-longtermism-effective-altruism-doge.html
 
-**Glacier Landslide Buries a Swiss Village**\
-`A mass of ice, rocks and mud tumbled down a mountain, smothering the village of Blatten, Switzerland.`\
-https://nytimes.com/video/climate/100000010195800/glacier-swiss-alps-landslide.html
+**Harvard and Trump Lawyers to Face Off in Court in Foreign Student Case**\
+`With the future of thousands of students at stake, the two sides will argue in person as the Trump administration pushes Harvard to comply with its demands.`\
+https://nytimes.com/2025/05/29/us/harvard-trump-lawyers-hearing-foreign-students.html
 
-**The key to Yankees’ Mark Leiter Jr.’s dominant start? Work with his dad**\
-`Leiter's second save of an impressive season gave the Yankees a 1-0 win over the Angels on Wednesday night.`\
-https://nytimes.com/athletic/6389966/2025/05/29/yankees-mark-leiter-jr-angels-save/
+**Why Should Columbia Keep Out Its Neighbors?**\
+`A campus in the city isn’t being of the city.`\
+https://nytimes.com/2025/05/29/opinion/columbia-university-college-walk.html
 
-**Knicks and the City: Rhapsody in Blue and Orange**\
-`Thousands of New Yorkers are flocking to iconic indoor and outdoor venues to cheer on the best Knicks team in decades. Will the party end tonight?`\
-https://nytimes.com/2025/05/29/nyregion/knicks-pacers-eastern-conference-finals-fans.html
+**10 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/05/29/books/review/10-new-books-we-recommend-this-week.html
 
-**The Hiker Who Couldn’t Be Found**\
-`Forest rangers rescue almost every hiker who gets lost or injured in the Adirondack Mountains. A 22-year-old college student was the rare exception.`\
-https://nytimes.com/2025/05/29/nyregion/adirondack-hiker-leo-dufour.html
+**The Filibuster, a Staple of the Modern Senate, Is on the Ropes**\
+`The Senate skirting the filibuster to strike down California’s plan to phase out gas-powered vehicles was the latest wound to a tactic in decline.`\
+https://nytimes.com/2025/05/29/us/politics/senate-filibuster-california-air.html
 
-**Word of the Day: bioluminescent**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/29/learning/word-of-the-day-bioluminescent.html
+**Trump’s Attacks on Black History Betray America**\
+`The president’s attempts to erase Black history hurt all Americans.`\
+https://nytimes.com/2025/05/29/opinion/black-history-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/29/crosswords/spelling-bee-forum.html
+**36 Hours in Marseille**\
+`Marseille is a port city, constantly in motion. But the city’s wild streak remains.`\
+https://nytimes.com/interactive/2025/05/29/travel/things-to-do-Marseille.html
 
