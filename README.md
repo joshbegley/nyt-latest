@@ -1,3 +1,11 @@
+**Two Killed as South Korean Navy Airplane Crashes into Hillside**\
+`The authorities were still searching for the two other people who were aboard the turboprop when the accident occurred Thursday.`\
+https://nytimes.com/2025/05/29/world/asia/skorea-navy-plane-crash.html
+
+**The twilight of the tennis sandwich generation falls on the French Open**\
+`The generation of men's players born in the 1990s who looked set to challenge Federer, Nadal and Djokovic have seen tennis pass them by.`\
+https://nytimes.com/athletic/6388673/2025/05/29/tennis-sandwich-generation-men-1990s-big-three-alcaraz-sinner/
+
 **Bayern announce signing of Tah**\
 `The 29-year-old has signed a four-year deal and will wear the number four shirt.`\
 https://nytimes.com/athletic/6390053/2025/05/29/jonathan-tah-bayern-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/crosswords/spelling-bee-forum.html
 **At the Canadian Border, One Wrong Turn Leads to Immigration Limbo**\
 `An accidental trip over the Peace Bridge in Buffalo typically means a toll and a loss of time. But for Victor and Johanna, crossing an international border carried a higher cost.`\
 https://nytimes.com/2025/05/29/nyregion/border-deportation-peace-bridge.html
-
-**‘Orgasmic Meditation’ Case Raises Question of What Constitutes Coercion**\
-`Prosecutors say OneTaste extracted labor from its members. Former employees testified that they worked for the company because they feared spiritual harm.`\
-https://nytimes.com/2025/05/29/nyregion/onetaste-orgasmic-meditation-trial-coercion.html
-
-**This Timberwolves meltdown tears at the fabric of an otherwise impressive season: 'It hurts'**\
-`Can one game ruin an entire season? Probably not, but Game 5 was a meltdown so complete and so embarrassing that it bears asking.`\
-https://nytimes.com/athletic/6389372/2025/05/29/timberwolves-game-5-meltdown-thunder-nba-playoffs/
 
