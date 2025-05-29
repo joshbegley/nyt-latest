@@ -1,3 +1,15 @@
+**Five top tips from a spelling bee coach.**\
+`By Adeel Hassan`\
+https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/five-top-tips-from-a-spelling-bee-coach
+
+**Is ‘Get Jiggy’ This Year’s Song of the Summer?**\
+`In his latest driver’s-seat review, our critic Jon Caramanica makes a case for a new, vintage-feeling rap track as a possible song of the summer.`\
+https://nytimes.com/video/podcasts/100000010197295/song-of-summer-get-jiggy.html
+
+**South African Woman Gets Life Sentence for Selling 6-Year-Old Daughter**\
+`The girl, Joshlin Smith, is still missing, and the case has haunted South Africa. Prosecutors said that the mother was addicted to drugs and had sold the girl for 20,000 rand, about $1,100.`\
+https://nytimes.com/2025/05/29/world/africa/south-africa-trafficking-daughter.html
+
 **Chinese Paraglider Reaches Near-Record Heights, Over 28,000 Feet, by Accident**\
 `After video of the incident went viral, showing a face and body covered in ice, the local sporting authority said it had banned the paraglider from the sport for six months.`\
 https://nytimes.com/2025/05/29/world/asia/chinese-paraglider-accident-8000-meters.html
