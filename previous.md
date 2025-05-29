@@ -1,3 +1,19 @@
+**Harvard Commencement Speaker Congratulates and Thanks Graduates**\
+`The university’s commencement speaker, Dr. Abraham Verghese, acknowledged the current conflict with the Trump administration.`\
+https://nytimes.com/video/us/politics/100000010197707/harvard-commencement-trump.html
+
+**Mahomes at the L.A. Olympics? 'I'll probably leave that to the younger guys'**\
+`Mahomes, who enters his ninth NFL season and will turn 30 in September, will be 32 when the 2028 Los Angeles Games begin.`\
+https://nytimes.com/athletic/6391383/2025/05/29/patrick-mahomes-la-olympics-flag-football/
+
+**How We Photographed Coyotes in San Francisco**\
+`A photographer’s patient technique revealed that the wild canines are flourishing in the city.`\
+https://nytimes.com/2025/05/29/insider/coyotes-photography.html
+
+**Watch: The Timberwolves are out of the NBA playoffs. How do they build from this season?**\
+`"The Athletic NBA Daily" discussed the Minnesota Timberwolves' Game 5, series-ending loss to the Oklahoma City Thunder.`\
+https://nytimes.com/athletic/6390454/2025/05/29/timberwolves-nba-daily-thunder-anthony-edwards/
+
 **Chicken and Rice Forever**\
 `The pairing is unbeatable, whether in the form of congee, katsu don or a classic halal cart combo.`\
 https://nytimes.com/2025/05/29/dining/chicken-and-rice-forever.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6375159/2025/05/29/serie-b-brescia-relegation/
 **Police Investigate Detective Who Worked at House in Crypto Torture Case**\
 `Roberto Cordero, who has also served on Mayor Eric Adams’s protection detail, was placed on modified duty.`\
 https://nytimes.com/2025/05/29/nyregion/nypd-detective-crypto-kidnapping.html
-
-**‘Malditos’ Is a Brooding, Operatic French Drama**\
-`Set amid a traveler community in southern France, the Max series is a fresh and surprising story about family, superstition and a legacy of violence.`\
-https://nytimes.com/2025/05/29/arts/television/malditos-max.html
-
-**Their Families Are Famous. Or So They Say.**\
-`As part of a social media trend, some people are revealing themselves as the children of celebrities or heirs to big businesses. The catch? A lot of them are joking.`\
-https://nytimes.com/2025/05/29/style/holy-airball-nepo-babies-tiktok.html
-
-**Robert Jarvik, 79, Dies; a Designer of the First Permanent Artificial Heart**\
-`He worked with a team at the University of Utah to create a mechanical heart. It was later used in patients awaiting an organ transplant.`\
-https://nytimes.com/2025/05/29/science/robert-jarvik-dead.html
-
-**Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
-`Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns for the A's.`\
-https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
 

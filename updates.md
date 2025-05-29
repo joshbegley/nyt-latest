@@ -1,3 +1,19 @@
+**Harvard Commencement Speaker Congratulates and Thanks Graduates**\
+`The university’s commencement speaker, Dr. Abraham Verghese, acknowledged the current conflict with the Trump administration.`\
+https://nytimes.com/video/us/politics/100000010197707/harvard-commencement-trump.html
+
+**Mahomes at the L.A. Olympics? 'I'll probably leave that to the younger guys'**\
+`Mahomes, who enters his ninth NFL season and will turn 30 in September, will be 32 when the 2028 Los Angeles Games begin.`\
+https://nytimes.com/athletic/6391383/2025/05/29/patrick-mahomes-la-olympics-flag-football/
+
+**How We Photographed Coyotes in San Francisco**\
+`A photographer’s patient technique revealed that the wild canines are flourishing in the city.`\
+https://nytimes.com/2025/05/29/insider/coyotes-photography.html
+
+**Watch: The Timberwolves are out of the NBA playoffs. How do they build from this season?**\
+`"The Athletic NBA Daily" discussed the Minnesota Timberwolves' Game 5, series-ending loss to the Oklahoma City Thunder.`\
+https://nytimes.com/athletic/6390454/2025/05/29/timberwolves-nba-daily-thunder-anthony-edwards/
+
 **Fantasy bullpen report features concern for closers Mason Miller and Tanner Scott**\
 `Greg Jewett updates all the movement across MLB bullpens impacting fantasy baseball managers, including closer concerns for the A's.`\
 https://nytimes.com/athletic/6390755/2025/05/29/fantasy-bullpen-report-closer-concerns-mason-miller/
