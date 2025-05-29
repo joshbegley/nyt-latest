@@ -1,3 +1,7 @@
+**Ngugi wa Thiong’o, Writer Who Condemned Colonists and Elites, Dies at 87**\
+`Mr. Ngugi composed the first modern novel in the Gikuyu language on prison toilet paper while being held by Kenyan authorities. He spent many prolific years in exile.`\
+https://nytimes.com/2025/05/28/books/ngugi-wa-thiongo-dead.html
+
 **A Disillusioned Musk, Distanced From Trump, Says He’s Exiting Washington**\
 `The billionaire has made clear he is frustrated with the obstacles he encountered as he tried to upend the federal bureaucracy.`\
 https://nytimes.com/2025/05/28/us/politics/elon-musk-trump-doge.html
