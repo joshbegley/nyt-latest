@@ -1,3 +1,15 @@
+**Google’s New A.I.-Powered Search Has Arrived. Proceed With Caution.**\
+`AI Mode excels at tasks like product research for online shopping. But it falls short on basic web searches.`\
+https://nytimes.com/2025/05/29/technology/personaltech/google-ai-mode-search.html
+
+**Trump Officials Give Harvard 30 Days to Rebut Foreign Student Ban**\
+`The announcement of the delay came in a legal filing on Thursday as the two sides faced off in a Boston courtroom.`\
+https://nytimes.com/2025/05/29/us/trump-harvard-international-students.html
+
+**New Romance Novels Brimming With Unhinged Wish Fulfillment**\
+`Our columnist on the month’s best new releases.`\
+https://nytimes.com/2025/05/29/books/review/new-romance-books.html
+
 **Brandon Nimmo on hitting at Citi Field: 'I just try to stay sane'**\
 `Nimmo's power numbers take a dive in the Mets' home ballpark and he struggles to cope with the frustration.`\
 https://nytimes.com/athletic/6389553/2025/05/29/mets-brandon-nimmo-citi-field/
