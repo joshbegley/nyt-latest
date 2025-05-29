@@ -1,40 +1,40 @@
-**Export Controls Are Endangering the Fragile U.S.-China Truce**\
-`Just two-and-a-half weeks after agreeing to suspend tariffs, both countries are using export controls to disrupt each other’s key industries.`\
-https://nytimes.com/2025/05/29/business/china-us-export-controls.html
+**Why Ben Johnson worked with Caleb Williams on body language: Bears OTA takeaways**\
+`Our observations from Halas Hall include rookie Ozzy Trapilo protecting Williams' blindside as he alternates with Kiran Amegadjie.`\
+https://nytimes.com/athletic/6389131/2025/05/29/bears-otas-ben-johnson-caleb-williams/
 
-**The New York Times International Edition in Print for Friday, May 30, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/05/29/todays-new-york-times-international-edition
+**Vikings QB J.J. McCarthy impresses in first competitive practice since torn meniscus**\
+`In his first competitive practice since last summer's injury, McCarthy's arm, comfort and command looked to be right on target.`\
+https://nytimes.com/athletic/6389202/2025/05/29/jj-mccarthy-vikings-ota-practice-injury/
 
-**Russia Appears to Launch New Offensive in Ukraine Amid Peace Talks**\
-`Moscow’s dual campaign of intensified frontline attacks and bombardment of Ukrainian cities has further reduced the prospects for an end to the fighting.`\
-https://nytimes.com/2025/05/29/world/europe/russia-ukraine-war-offensive.html
+**Trump’s Flurry of Pardons, and Musk’s Goodbye**\
+`Plus, the rise of crypto kidnappings.`\
+https://nytimes.com/2025/05/29/podcasts/the-headlines/trumps-pardons-musk-cryptocurrency-kidnappings.html
 
-**The Democrats’ 20-Million-Dollar-Man Problem**\
-`To reach the manosphere, you have to know the manosphere.`\
-https://nytimes.com/2025/05/29/opinion/manosphere-democrats-peterson-men.html
+**NBA Draft withdrawal deadline takeaways: Florida gets stronger, Duke goes to Plan B**\
+`We now have better clarity on who will (and won’t) be suiting up in college next season.`\
+https://nytimes.com/athletic/6389546/2025/05/29/nba-draft-withdrawal-deadline-college-decisions/
 
-**Progressives Are Driving Themselves Into Extinction**\
-`What would make you want to have more children?`\
-https://nytimes.com/2025/05/29/opinion/dating-marriage-children-fertility.html
+**Without Caitlin Clark, the Fever must avoid spiraling. Here are 3 pieces of advice**\
+`Indiana fell to the Washington Mystics in its first game without Clark. `\
+https://nytimes.com/athletic/6389768/2025/05/29/caitlin-clark-injury-indiana-fever-wnba-advice/
 
-**After 50 Years in the Same Rental, She Grabbed Her Chance to Buy a Place**\
-`A longtime Upper West Side denizen had up to $600,000 to spend on a studio or a one-bedroom: ‘The thing is, if not now, when?’`\
-https://nytimes.com/interactive/2025/05/29/realestate/manhattan-west-side-co-op-sale.html
+**Presenting the Reds' All-Quarter Century Team, the best in Cincinnati since 2000**\
+`While the Reds haven’t won a playoff series in this quarter century, the franchise has had some standout players who are worth highlighting.`\
+https://nytimes.com/athletic/6388219/2025/05/29/presenting-the-reds-all-quarter-century-team-the-best-in-cincinnati-since-2000/
 
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Brooklyn Rider’s exploration of the four elements, miniatures by Kurtag and the Anzû Quartet’s debut recording are among the highlights.`\
-https://nytimes.com/2025/05/29/arts/music/best-classical-music-recordings-may-2025.html
+**Meet the NBA's trash-talking group of All-Stars and the antagonist who holds them together**\
+`Are today's NBA players too friendly? For one fraternity of stars and the trainer that unites them, that's the key to their competitiveness.`\
+https://nytimes.com/athletic/6386659/2025/05/29/tyrese-haliburton-trainer-drew-hanlen-nba-playoffs/
 
-**If Trump Walks Away From Ukraine Now, Putin Wins**\
-`The president is right about wanting to end the war in Ukraine but wrong about threatening to walk away from cease-fire talks.`\
-https://nytimes.com/2025/05/29/opinion/trump-ukraine-russia-ceasefire.html
+**The Hurricanes are still missing something — and Aleksander Barkov gave them proof**\
+`“Their best player made an elite play,” Hurricanes coach Rod Brind’Amour said.`\
+https://nytimes.com/athletic/6389894/2025/05/29/hurricanes-aleksander-barkov-nhl-playoffs/
 
-**Cuomo’s Plan for a $20 Minimum Wage in New York City**\
-`Former Gov. Andrew Cuomo, who is the front-runner in the Democratic mayoral primary, announced a plan to increase the city’s minimum wage if he is elected.`\
-https://nytimes.com/2025/05/29/nyregion/cuomos-plan-for-a-20-minimum-wage-in-new-york-city.html
+**Sando: My favorite offseason move by every NFL team**\
+`The Bengals kept their key players happy, while the Raiders could double their win total from 2024 after adding Pete Carroll and Geno Smith.`\
+https://nytimes.com/athletic/6388467/2025/05/29/nfl-offseason-draft-free-agency-2025/
 
-**How China Uses Work to Reshape Uyghur Identity and Control a Strategic Region**\
-`State labor programs were aimed at lifting one of the nation’s poorest regions out of poverty, but they have also served as a tool to erode resistance to Chinese rule.`\
-https://nytimes.com/2025/05/29/world/asia/china-uyghur-labor.html
+**College baseball NCAA Regional predictions: Who advances to the College World Series?**\
+`A record 13 SEC teams made the NCAA Tournament. How many will reach the CWS in Omaha?`\
+https://nytimes.com/athletic/6385381/2025/05/29/college-world-series-predictions-2025/
 
