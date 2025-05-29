@@ -1,5 +1,9 @@
+**Large Numbers of Aid-Seekers Storm U.N. Warehouse in Gaza**\
+`Scores of desperate Palestinians could be seen trying to enter the cavernous warehouse after more than two months of Israeli aid blockages put Gaza at high risk of famine.`\
+https://nytimes.com/video/world/middleeast/100000010196253/large-numbers-of-aid-seekers-storm-un-warehouse-in-gaza.html
+
 **Man City should have been more 'aggressive' in transfers last year, says chairman**\
-`Khaldoon Al Mubarak intimated that further additions could be arriving soon, with the Club World Cup in the US only three weeks away.`\
+`Khaldoon Al Mubarak intimated that further additions could be arriving soon, with the Club World Cup in the U.S. only three weeks away.`\
 https://nytimes.com/athletic/6390382/2025/05/29/man-city-transfers-khaldoon/
 
 **Western U.S. Is About to See Its First Major Heat of the Year**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6390292/2025/05/29/earps-england-wiegman-williamson
 **Trump Administration Live Updates: President Gives Clemency to 25 People, Including His Political Allies**\
 ``\
 https://nytimes.com/live/2025/05/29/us/trump-news
-
-**Ranking Canucks' most efficient contracts 2025: Steals, fair value – and 1 millstone**\
-`Here we rank every Canucks contract that's on the books going into this offseason by how much value a player provides relative to his deal.`\
-https://nytimes.com/athletic/6389926/2025/05/29/canucks-contracts-2025-quinn-hughes/
 

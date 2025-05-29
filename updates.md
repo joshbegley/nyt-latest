@@ -1,3 +1,11 @@
+**Large Numbers of Aid-Seekers Storm U.N. Warehouse in Gaza**\
+`Scores of desperate Palestinians could be seen trying to enter the cavernous warehouse after more than two months of Israeli aid blockages put Gaza at high risk of famine.`\
+https://nytimes.com/video/world/middleeast/100000010196253/large-numbers-of-aid-seekers-storm-un-warehouse-in-gaza.html
+
+**Man City should have been more 'aggressive' in transfers last year, says chairman**\
+`Khaldoon Al Mubarak intimated that further additions could be arriving soon, with the Club World Cup in the U.S. only three weeks away.`\
+https://nytimes.com/athletic/6390382/2025/05/29/man-city-transfers-khaldoon/
+
 **Man City should have been more 'aggressive' in transfers last year, says chairman**\
 `Khaldoon Al Mubarak intimated that further additions could be arriving soon, with the Club World Cup in the US only three weeks away.`\
 https://nytimes.com/athletic/6390382/2025/05/29/man-city-transfers-khaldoon/
