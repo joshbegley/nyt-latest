@@ -1,3 +1,7 @@
+**Chaos vs. Hope: America’s Trading Partners React Cautiously to Tariff Block**\
+`President Trump’s threat to impose big charges — including 50 percent on the European Union — was in question after judges blocked his across-the-board levies.`\
+https://nytimes.com/2025/05/29/world/europe/us-trade-tariffs-court-decision.html
+
 **Royce Lewis' prolonged struggles have left a huge hole in the middle of Twins' lineup**\
 `What began as the first big slump of Lewis' career last August has carried into this season, raising bigger questions about the 25-year-old.`\
 https://nytimes.com/athletic/6384780/2025/05/29/royce-lewis-slump-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6350014/2025/05/29/chris-burke-college-baseball-ann
 **Wheeler: 30 prospects who just missed the cut for my 2025 NHL Draft board**\
 `Scouting reports for 30 players who were considered but not placed on Wheeler's upcoming draft ranking.`\
 https://nytimes.com/athletic/6353477/2025/05/29/nhl-draft-2025-prospects-top-100-cut/
-
-**Projecting which players each PWHL team will protect ahead of the expansion draft**\
-`With Vancouver and Seattle set to join the league next season, teams can each protect three players from the draft. But which ones?`\
-https://nytimes.com/athletic/6388918/2025/05/29/pwhl-protected-players-projection-expansion-draft/
 

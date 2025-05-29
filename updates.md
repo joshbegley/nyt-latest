@@ -1,3 +1,7 @@
+**Chaos vs. Hope: America’s Trading Partners React Cautiously to Tariff Block**\
+`President Trump’s threat to impose big charges — including 50 percent on the European Union — was in question after judges blocked his across-the-board levies.`\
+https://nytimes.com/2025/05/29/world/europe/us-trade-tariffs-court-decision.html
+
 **Royce Lewis' prolonged struggles have left a huge hole in the middle of Twins' lineup**\
 `What began as the first big slump of Lewis' career last August has carried into this season, raising bigger questions about the 25-year-old.`\
 https://nytimes.com/athletic/6384780/2025/05/29/royce-lewis-slump-twins/
