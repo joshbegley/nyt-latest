@@ -1,3 +1,7 @@
+**Supreme Court Curbs Scope of Environmental Reviews**\
+`The question for the justices was whether an agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
+https://nytimes.com/2025/05/29/us/politics/supreme-court-environmental-reviews.html
+
 **Carter Hart takes the stand in Hockey Canada trial after Crown concludes its case**\
 `Crown prosecutors decided not to call a final witness and instead told the judge they had concluded their case. `\
 https://nytimes.com/athletic/6390521/2025/05/29/hockey-canada-sexual-assault-trial-prosecution-rests/
