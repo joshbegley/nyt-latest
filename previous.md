@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6390069/2025/05/29/luis-enriqe-psg-daughter-champio
 `Plus Mick Abel keeps rolling, two top 2024 draft picks who are searching for power, two undrafted standouts to watch and more. `\
 https://nytimes.com/athletic/6389412/2025/05/29/phillies-prospects-aidan-miller-seth-johnson/
 
-**As the NBA on TNT prepares for its finale, an appreciation for its legacy and contribution**\
+**As 'NBA on TNT' prepares for its finale, an appreciation for its legacy and contribution**\
 `TNT treated NBA viewers like adults, even while having a great time delivering a truly distinctive brand of league coverage.`\
 https://nytimes.com/athletic/6387994/2025/05/29/nba-on-tnt-finale-craig-sager-inside-appreciation/
 

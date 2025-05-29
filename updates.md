@@ -1,3 +1,7 @@
+**As 'NBA on TNT' prepares for its finale, an appreciation for its legacy and contribution**\
+`TNT treated NBA viewers like adults, even while having a great time delivering a truly distinctive brand of league coverage.`\
+https://nytimes.com/athletic/6387994/2025/05/29/nba-on-tnt-finale-craig-sager-inside-appreciation/
+
 **The Athletic FC: Luis Enrique's guiding light, Chelsea complete Euro set, Liga MX's legal battle**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6390069/2025/05/29/luis-enriqe-psg-daughter-champions-league/

@@ -1,3 +1,7 @@
+**The Future of the Filibuster**\
+`We explore how the parliamentary maneuver is changing.`\
+https://nytimes.com/2025/05/29/briefing/congress-filibuster-future.html
+
 **The Athletic FC: Luis Enrique's guiding light, Chelsea complete Euro set, Liga MX's legal battle**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6390069/2025/05/29/luis-enriqe-psg-daughter-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6389202/2025/05/29/jj-mccarthy-vikings-ota-practice
 **Trump’s Flurry of Pardons, and Musk’s Goodbye**\
 `Plus, the rise of crypto kidnappings.`\
 https://nytimes.com/2025/05/29/podcasts/the-headlines/trumps-pardons-musk-cryptocurrency-kidnappings.html
-
-**NBA Draft withdrawal deadline takeaways: Florida gets stronger, Duke goes to Plan B**\
-`We now have better clarity on who will (and won’t) be suiting up in college next season.`\
-https://nytimes.com/athletic/6389546/2025/05/29/nba-draft-withdrawal-deadline-college-decisions/
 
