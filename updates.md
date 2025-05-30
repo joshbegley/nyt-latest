@@ -1,3 +1,15 @@
+**Ernst’s Remark About Medicaid Cuts Draws Jeers at Iowa Town Hall**\
+`In an exchange about the effects of Trump’s domestic policy bill, Senator Joni Ernst told constituents, ‘We all are going to die.’`\
+https://nytimes.com/2025/05/30/us/politics/medicaid-cuts-joni-ernst-iowa-town-hall.html
+
+**It’s Still South by Southwest, but This Time It’s in London**\
+`The music, tech and film festival, long known for being in Austin, Texas, expands to Europe for the first time.`\
+https://nytimes.com/2025/05/30/arts/sxsw-london-festival.html
+
+**‘Mountainhead’ Review: While We Go Down, They Bro Down**\
+`The creator of “Succession” skewers tech billionaires in a dark comedy that is intelligent but feels a bit artificial.`\
+https://nytimes.com/2025/05/30/arts/television/mountainhead-review-jesse-armstrong.html
+
 **Waiting for Gustavo Dudamel, the Philharmonic Is Doing Just Fine**\
 `Between music directors this season, the orchestra has been sounding fresh, engaged and more cohesive.`\
 https://nytimes.com/2025/05/30/arts/music/new-york-philharmonic-season.html
