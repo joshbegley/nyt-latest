@@ -1,3 +1,7 @@
+**S.E.C. Drops Lawsuit Against Binance, a Crypto Exchange**\
+`The dismissal of charges against Binance and its founder, Changpeng Zhao, is the Trump administration’s latest pullback in cryptocurrency enforcement.`\
+https://nytimes.com/2025/05/29/business/sec-binance-lawsuit-dropped.html
+
 **No. 2 Oklahoma beats No. 7 Tennessee on walk-off homer in WCWS**\
 `Oklahoma has yet to lose a game in this year's playoffs as it vies for its fifth straight title.`\
 https://nytimes.com/athletic/6391984/2025/05/29/oklahoma-tennessee-womens-college-world-series-results/
