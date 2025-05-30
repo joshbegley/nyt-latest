@@ -1,3 +1,11 @@
+**Waiting for Gustavo Dudamel, the Philharmonic Is Doing Just Fine**\
+`Between music directors this season, the orchestra has been sounding fresh, engaged and more cohesive.`\
+https://nytimes.com/2025/05/30/arts/music/new-york-philharmonic-season.html
+
+**Taylor Swift Buys Back Rights to Her First 6 Albums**\
+`The master recordings to the pop superstar’s earliest work were sold to Scooter Braun in 2019, and acquired a year later by the investing firm Shamrock Capital.`\
+https://nytimes.com/2025/05/30/arts/music/taylor-swift-buys-masters.html
+
 **London Brings Its Own Musical Touch to South by Southwest**\
 `The festival, which has a long association with music, presents an opportunity for London acts to perform on a bigger stage.`\
 https://nytimes.com/2025/05/30/arts/music/sxsw-london-music-shoreditch.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6393131/2025/05/30/womens-tennis-ons-jabeur-french-
 **How ICE Is Seeking to Ramp Up Deportations Through Courthouse Arrests**\
 `Officials had largely steered clear of arrests at immigration courts out of concern that they would deter people from showing up for hearings.`\
 https://nytimes.com/2025/05/30/us/politics/ice-courthouse-arrests.html
-
-**‘No one will trust this club again’: Tears, anger and the fall of Blackburn Rovers Women**\
-`On Tuesday, May 20, Blackburn Rovers announced their senior women’s team were to be demoted from Women’s Super League 2`\
-https://nytimes.com/athletic/6382886/2025/05/30/inside-blackburn-rovers-women-relegation/
-
-**Supreme Court Allows Trump Administration, for Now, to End Biden-Era Migrant Program**\
-`The Trump administration had asked the court to allow it to end deportation protections for more than 500,000 people facing dire humanitarian crises in their home countries.`\
-https://nytimes.com/2025/05/30/us/politics/trump-immigration-supreme-court.html
 

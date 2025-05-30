@@ -1,3 +1,11 @@
+**Waiting for Gustavo Dudamel, the Philharmonic Is Doing Just Fine**\
+`Between music directors this season, the orchestra has been sounding fresh, engaged and more cohesive.`\
+https://nytimes.com/2025/05/30/arts/music/new-york-philharmonic-season.html
+
+**Taylor Swift Buys Back Rights to Her First 6 Albums**\
+`The master recordings to the pop superstar’s earliest work were sold to Scooter Braun in 2019, and acquired a year later by the investing firm Shamrock Capital.`\
+https://nytimes.com/2025/05/30/arts/music/taylor-swift-buys-masters.html
+
 **London Brings Its Own Musical Touch to South by Southwest**\
 `The festival, which has a long association with music, presents an opportunity for London acts to perform on a bigger stage.`\
 https://nytimes.com/2025/05/30/arts/music/sxsw-london-music-shoreditch.html
