@@ -1,40 +1,40 @@
-**Trump’s Tariffs and the Courts**\
-`We explore tariffs and presidential power.`\
-https://nytimes.com/2025/05/30/briefing/trump-tariffs-court-presidential-power.html
+**‘Bellwether of Risks’: What ‘Buy Now, Pay Later’ Defaults Say About the Consumer**\
+`An increase in deferred pay-later loans has raised alarms, as the Trump administration seeks to gut the agency tasked with policing the sector.`\
+https://nytimes.com/2025/05/30/business/dealbook/buy-now-pay-later-defaults.html
 
-**Ukraine Accuses Russia of Stalling Peace Negotiations**\
-`Both Kyiv and Moscow have been maneuvering to set the terms and tempo of any talks to end the fighting.`\
-https://nytimes.com/2025/05/30/world/europe/ukraine-russia-peace-talks.html
+**Yordan Alvarez's expected return to Astros' lineup prompts questions**\
+`Whether Alvarez can play pain-free, or where he will hit within a surging batting order, is unknown as he seems near to a potential return.`\
+https://nytimes.com/athletic/6392235/2025/05/30/yordan-alvarez-astros-lineup-questions/
 
-**The Athletic FC: Why Delap to Chelsea makes sense, Fernandes' £80m Saudi dilemma**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
-https://nytimes.com/athletic/6392513/2025/05/30/transfers-delap-chelsea-bruno-fernandes-saudi/
+**Listen: Did Conference League victory signify a coming-of-age moment for Chelsea?**\
+`The Athletic FC Podcast discuss whether Chelsea's strong end to the season makes them contenders in 2025-26`\
+https://nytimes.com/athletic/6392559/2025/05/30/did-conference-league-victory-signify-a-coming-of-age-moment-for-chelsea/
 
-**The Pulse: The playoffs’ best series gets new life**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6391267/2025/05/30/knicks-pacers-game-5-the-pulse/
+**The Athletic’s Friday football quiz question #57**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6391316/2025/05/30/the-athletics-friday-football-quiz-question-57/
 
-**The Real Madrid awaiting Alexander-Arnold is very different to when they made their move**\
-`Alexander-Arnold is heading to Madrid - but the club's outlook has changed compared to this time last year`\
-https://nytimes.com/athletic/6327783/2025/05/30/trent-alexander-arnold-real-madrid-different/
+**Lightning are a lock to go deep, and other lessons from the playoffs prediction contest**\
+`We're down to two. No, not teams in the playoffs: two contenders left to win our prediction contest.`\
+https://nytimes.com/athletic/6388163/2025/05/30/nhl-playoffs-prediction-contest-lightning/
 
-**Sliders: As he nears 3,000 Ks, Clayton Kershaw shares thoughts on the future of his craft**\
-`Plus Francisco Lindor's switch hitting tips, Cubs reliever Drew Pomeranz's return to the majors after three seasons and more. `\
-https://nytimes.com/athletic/6390659/2025/05/30/clayton-kershaw-francisco-lindor-sliders/
+**Presenting the Mets' All-Quarter Century team, Queens' best of the 2000s**\
+`Jacob deGrom leads a potent pitching staff and David Wright bats cleanup on this squad of best Mets from the past 25 years.`\
+https://nytimes.com/athletic/6391389/2025/05/30/mets-quarter-century-team/
 
-**Battle of the $100 million rotations: How the Dodgers' and Yankees' starters stack up**\
-`Last season's World Series teams have pitching philosophies that vary slightly but have a lot in common.`\
-https://nytimes.com/athletic/6385644/2025/05/30/dodgers-yankees-100-million-rotations-comparison/
+**Mirtle: The NHL’s Sun Belt ‘problem’ has no easy solution. But does it need one?**\
+`Warm-weather teams are decidedly on the upswing in recent seasons, shaping the NHL's present and future in obvious and subtle ways.`\
+https://nytimes.com/athletic/6391469/2025/05/30/nhl-stanley-cup-playoffs-sunbelt-mirtle/
 
-**Phillies takeaways: Zack Wheeler vs. Braves, Rafael Marchan's big day, bullpen tryouts**\
-`Over 16 starts against Atlanta from 2020-24, Wheeler owned a 2.07 ERA in 104 1/3 innings. This season has been a different story. `\
-https://nytimes.com/athletic/6392428/2025/05/30/phillies-takeaways-zack-wheeler-vs-braves-rafael-marchans-big-day-bullpen-tryouts/
+**Retaking the 5th: Dodgers, Yankees recount the inning that swung the World Series**\
+`The Yankees' ill-fated 5-0 lead in Game 5 remains fresh as the teams gear up for a regular-season rematch in Los Angeles.`\
+https://nytimes.com/athletic/6391520/2025/05/30/dodgers-yankees-world-series-game-5-rewind/
 
-**After 'surprise' DFA, Kody Clemens quickly made Twins' clubhouse feel like home**\
-`Though he arrived in a trade from the Phillies in April, Clemens' new teammates talk as he's long been a fixture in the Twins' clubhouse.`\
-https://nytimes.com/athletic/6392255/2025/05/30/kody-clemens-twins-trade-clubhouse/
+**Johnston: Why Leafs GM Brad Treliving is playing nice over Mitch Marner talks**\
+`Mitch Marner's approach to his contract has been disruptive to the team as it enters a critical offseason, but there's reason to be civil.`\
+https://nytimes.com/athletic/6391377/2025/05/30/maple-leafs-mitch-marner-breakup-watch-treliving-contract/
 
-**Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
-`The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
-https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
+**What fuels the Panthers’ Stanley Cup machine? It starts in the room**\
+`The Panthers' brotherhood has taken them to new heights, but, as their GM said, "The journey isn’t over."`\
+https://nytimes.com/athletic/6391228/2025/05/30/panthers-stanley-cup-nhl-culture/
 
