@@ -1,3 +1,7 @@
+**At a Legendary Manhattan Townhouse, a Party With Great Art and Great Shoes**\
+`The founder of the footwear brand Le Monde Béryl hosted a 100-plus-person gathering at her artist sister’s home in Harlem.`\
+https://nytimes.com/2025/05/30/t-magazine/le-monde-beryl-party-shoes.html
+
 **Do You Need to Send a Holiday Card to Receive One?**\
 `A ruling on what it takes to get knocked off the list.`\
 https://nytimes.com/interactive/2025/05/30/magazine/holiday-cards-hodgman.html
