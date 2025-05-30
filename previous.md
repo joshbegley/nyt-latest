@@ -1,3 +1,7 @@
+**Judge Hears Final Arguments on How to Fix Google’s Search Monopoly**\
+`A judge queried lawyers during closing arguments on Friday about how A.I. should factor into his decision, which is expected by August.`\
+https://nytimes.com/2025/05/30/technology/google-search-antitrust-chrome.html
+
 **U.S. Oil Companies Are ‘Battening Down the Hatches’**\
 `The industry is bracing for the OPEC Plus oil cartel’s meeting on Saturday, which is widely expected to further increase oil production despite weak demand.`\
 https://nytimes.com/2025/05/30/business/energy-environment/oil-companies-production-prices-opec.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/world/europe/uk-liverpool-car-ramming-paul-doyle.
 **Trump Has Targeted a Plane China Sees as a ‘Power’ Symbol**\
 `Beijing has high hopes for its C919 single-aisle jet after years of delay, but the plane depends on engines, avionics and other gear from Western companies.`\
 https://nytimes.com/2025/05/30/business/china-comac-c919-trump.html
-
-**NASCAR free agency: What we're hearing about Trackhouse, Connor Zilisch, Kaulig and more**\
-`This edition of NASCAR's Silly Season may not have any headline-grabbing moves, but there is still plenty to sort out for 2026.`\
-https://nytimes.com/athletic/6392500/2025/05/30/nascar-free-agency-trackhouse-connor-zilisch-kaulig/
 
