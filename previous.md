@@ -1,3 +1,11 @@
+**Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
+`The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
+https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
+
+**The New York Times International Edition in Print for Saturday, May 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/30/todays-new-york-times-international-edition
+
 **USWNT and Portland Thorns midfielder Sam Coffey leading with devotion**\
 `Coffey draws on her faith to guide her leadership style.`\
 https://nytimes.com/athletic/6392007/2025/05/30/uswnt-portland-thorns-sam-coffey-devotion/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/travel/dollar-airfares-deals.html
 **As ‘Pretty Little Baby’ Goes Viral, Connie Francis Is Joining TikTok**\
 `With a forgotten song becoming an unlikely hit, the 87-year-old singer is happy to be back in the spotlight.`\
 https://nytimes.com/2025/05/30/style/connie-francis-pretty-little-baby-tiktok.html
-
-**In Emaciated Children, Gaza’s Hunger Is Laid Bare**\
-`Aid began to trickle into the territory this week. But there is never enough.`\
-https://nytimes.com/2025/05/30/world/middleeast/gaza-children-hunger.html
-
-**Does a Lion Concern Itself With Memes?**\
-`A familiar phrase has been incorporated into brain rot, leading it in some surprising directions.`\
-https://nytimes.com/2025/05/30/style/sigma-lion-meme.html
 

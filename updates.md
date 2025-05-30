@@ -1,3 +1,11 @@
+**Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
+`The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
+https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
+
+**The New York Times International Edition in Print for Saturday, May 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/05/30/todays-new-york-times-international-edition
+
 **USWNT and Portland Thorns midfielder Sam Coffey leading with devotion**\
 `Coffey draws on her faith to guide her leadership style.`\
 https://nytimes.com/athletic/6392007/2025/05/30/uswnt-portland-thorns-sam-coffey-devotion/
