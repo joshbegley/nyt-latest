@@ -1,3 +1,7 @@
+**Pro-Trump Kennedy Center Executive Says He Was Fired**\
+`Floyd Brown said his dismissal happened about two hours after CNN contacted him for comment on his past statements on homosexuality and marriage.`\
+https://nytimes.com/2025/05/29/us/politics/kennedy-center-executive-fired.html
+
 **NBA playoffs takeaways: Jalen Brunson-led Knicks top Pacers, force Game 6**\
 `With their season on the line, the Knicks came out desperate and beat the Pacers 111-94 Thursday night at Madison Square Garden. `\
 https://nytimes.com/athletic/6392109/2025/05/29/nba-playoffs-takeaways-pacers-knicks-game-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head
 **JD Vance’s Campaign Plane Is Being Used for Migrant Deportation Flights**\
 `The Boeing 737 has been chartered more than a dozen times this year by the federal government to deport migrants to several countries in Central America.`\
 https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.html
-
-**Nelly Korda and the weight — and wait — of the U.S. Open**\
-`Korda entered this week carrying all these hopes and dreams, and she kept herself in it. `\
-https://nytimes.com/athletic/6392167/2025/05/29/nelly-korda-and-the-weight-and-wait-of-the-u-s-open/
 
