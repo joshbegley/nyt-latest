@@ -1,3 +1,7 @@
+**Chinese Students Rattled by Trump Plan to ‘Aggressively’ Revoke Visas**\
+`Students said the latest move had upended their plans and intensified their fears.`\
+https://nytimes.com/2025/05/29/us/politics/chinese-students-rattled-by-trump-plan-to-aggressively-revoke-visas.html
+
 **S.E.C. Drops Lawsuit Against Binance, a Crypto Exchange**\
 `The dismissal of charges against Binance and its founder, Changpeng Zhao, is the Trump administration’s latest pullback in cryptocurrency enforcement.`\
 https://nytimes.com/2025/05/29/business/sec-binance-lawsuit-dropped.html

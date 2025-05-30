@@ -1,3 +1,7 @@
+**Chinese Students Rattled by Trump Plan to ‘Aggressively’ Revoke Visas**\
+`Students said the latest move had upended their plans and intensified their fears.`\
+https://nytimes.com/2025/05/29/us/politics/chinese-students-rattled-by-trump-plan-to-aggressively-revoke-visas.html
+
 **S.E.C. Drops Lawsuit Against Binance, a Crypto Exchange**\
 `The dismissal of charges against Binance and its founder, Changpeng Zhao, is the Trump administration’s latest pullback in cryptocurrency enforcement.`\
 https://nytimes.com/2025/05/29/business/sec-binance-lawsuit-dropped.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/the-spell-off-is-now
 **For Federal Workers, Musk’s Chain Saw Still Reverberates**\
 `Employees of federal agencies continue to wrestle with the shocks of Elon Musk’s drive to purge the government of diversity programs and slash employment even as the billionaire leaves Washington.`\
 https://nytimes.com/2025/05/29/us/politics/federal-workers-musk-doge.html
-
-**Five top tips from a spelling bee coach.**\
-`By Adeel Hassan`\
-https://nytimes.com/live/2025/05/29/us/scripps-spelling-bee/five-top-tips-from-a-spelling-bee-coach
 
