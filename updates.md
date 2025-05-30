@@ -1,3 +1,7 @@
+**Watch Live: Elon Musk and President Trump Deliver Remarks**\
+`Earlier this week, Mr. Musk announced that he was ending his work with the government to spend more time on his companies.`\
+https://nytimes.com/video/us/politics/100000010199139/watch-live-elon-musk-and-president-trump-deliver-remarks.html
+
 **Macron, Infuriating Israel, Says It Can’t ‘Have Its Way’ in Gaza**\
 `A series of exchanges marked a new low point in the relationship between France and Israel, which accused the French president of “a crusade against the Jewish state.”`\
 https://nytimes.com/2025/05/30/world/europe/france-macron-israel-netanyahu.html
