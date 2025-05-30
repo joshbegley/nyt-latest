@@ -1,3 +1,11 @@
+**Recipe for Home Ownership: How to Make a House Into a Home**\
+`Progressive Insurance launches dinner-themed video series to support first generation homebuyers.`\
+https://nytimes.com/paidpost/progressive/progressive-30106802/recipe-for-home-ownership-how-to-make-a-house-into-a-home.html
+
+**A Black Eye at the White House: Who Punched Elon?**\
+`The list of possible suspects seemed long.`\
+https://nytimes.com/2025/05/30/us/politics/elon-musk-black-eye.html
+
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `Among other highlights for U.S. subscribers, “Squid Game” is coming back (already) for its third and final season.`\
 https://nytimes.com/2025/05/30/arts/television/netflix-new-june.html
