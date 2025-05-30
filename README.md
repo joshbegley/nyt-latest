@@ -1,3 +1,15 @@
+**Senators Visit Ukraine, Pushing for Crippling Sanctions on Russia**\
+`A bipartisan duo met with the Ukrainian president and made the case for Congress to impose harsh economic penalties on Moscow for its continuing offensive.`\
+https://nytimes.com/2025/05/30/us/politics/ukraine-russia-sanctions.html
+
+**Pelicans' Zion Williamson accused of rape in lawsuit, denies claims**\
+`The woman, identified as Jane Doe in the civil lawsuit, is seeking an unspecified amount in damages from Williamson.`\
+https://nytimes.com/athletic/6393336/2025/05/30/zion-williamson-lawsuit-complaint-pelicans/
+
+**Inzaghi says he is 'happy at Inter' ahead of CL final**\
+`Inter were involved in the Serie A title race throughout the season but ended up in second place, one point behind eventual champions Napoli`\
+https://nytimes.com/athletic/6393414/2025/05/30/simone-inzaghi-inter-future/
+
 **Peter Seiffert, Acclaimed Star of Wagner’s Operas, Is Dead at 71**\
 `A German tenor, he was admired for his clear, powerful voice and his exceptional stamina during hourslong performances.`\
 https://nytimes.com/2025/05/30/arts/music/peter-seiffert-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/30/magazine/lawn-pesticides-chemicals-ethics.html
 **Smoke From Wildfires in Canada Wafts Into the Upper Midwest**\
 `States across the border issued air advisories about particulate pollution that are expected to last for several days.`\
 https://nytimes.com/2025/05/30/weather/wildfires-canada-smoke.html
-
-**C.D.C. Contradicts Kennedy and Keeps Advice That Children May Get Covid Shots**\
-`Health Secretary Robert F. Kennedy Jr. said on Tuesday that the vaccine would no longer appear on the childhood immunization schedule. C.D.C.’s update counters his policy.`\
-https://nytimes.com/2025/05/30/health/cdc-covid-vaccines-children-pregnant-women.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 5/30 at 3:00 p.m. ET**\
-`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
-https://nytimes.com/athletic/6393530/2025/05/30/sarris-live-chat-mlb-fantasy-baseball-5-30/
-
-**Why did a Manute Bol basketball card sell for more than $20,000 this week?**\
-`A possible explanation for why a Manute Bol card sold for more than the Michael Jordan card from the same set`\
-https://nytimes.com/athletic/6393208/2025/05/30/manute-bol-fleer-basketball-card/
 

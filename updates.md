@@ -1,3 +1,11 @@
+**Peter Seiffert, Acclaimed Star of Wagner’s Operas, Is Dead at 71**\
+`A German tenor, he was admired for his clear, powerful voice and his exceptional stamina during hourslong performances.`\
+https://nytimes.com/2025/05/30/arts/music/peter-seiffert-dead.html
+
+**Delap set for Monday medical ahead of £30m Chelsea transfer**\
+`The England Under-21 international had multiple suitors after scoring 12 goals in 40 matches for Ipswich in his first season at the club.`\
+https://nytimes.com/athletic/6393488/2025/05/30/chelsea-delap-medical-update/
+
 **Real Madrid begin talks to renew teenager Fortea's contract**\
 `Following Arbeloa’s promotion to coach Real Madrid Castilla, both parties are now keen to extend the 18-year-old’s deal. `\
 https://nytimes.com/athletic/6393682/2025/05/30/real-madrid-jesus-foreta-contract-talks/
