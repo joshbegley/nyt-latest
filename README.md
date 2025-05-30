@@ -1,3 +1,11 @@
+**Liverpool submit €130m transfer offer for Florian Wirtz**\
+`Wirtz, 22, has emerged as a key target for Liverpool and the Germany international playmaker is keen on a move to Anfield.`\
+https://nytimes.com/athletic/6379410/2025/05/30/liverpool-florian-wirtz-transfer-fee/
+
+**Israel Seeks to Clear Much of Northern Gaza, Warning of Dangerous Combat to Come**\
+`Many in the area have already been displaced at least once during the war and little humanitarian aid is arriving amid widespread hunger.`\
+https://nytimes.com/2025/05/30/world/middleeast/israel-gaza-evacuation-order.html
+
 **Inside the Mets' new outfield ritual: 'That's a Juan thing'**\
 `Soto got the idea from from former teammate Kyle Schwarber, who told him outfielders "should have each other's backs."`\
 https://nytimes.com/athletic/6392239/2025/05/30/mets-juan-soto-outfield-ritual/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392482/2025/05/30/canucks-trade-targets-14-options
 **Whitecaps' Champions Cup run crests at the perfect time for Canadian soccer**\
 `With Canada cohosting the 2026 World Cup and the men's national team on the rise, the Whitecaps' stellar CCC run is hitting some key notes`\
 https://nytimes.com/athletic/6390127/2025/05/30/vancouver-whitecaps-concacaf-champions-cup-final-canada-soccer/
-
-**Champions League final Q&A: Our writers answer your questions on PSG v Inter**\
-`After 188 games, the 2024-25 Champions League comes to its conclusion on Saturday night in Munich as Paris Saint-Germain face Inter`\
-https://nytimes.com/athletic/6390230/2025/05/30/champions-league-final-psg-inter/
-
-**Red Wings fan survey: Sound off on Detroit's direction**\
-`Make your voice heard on the Red Wings' direction, management and more by taking this survey.`\
-https://nytimes.com/athletic/6391583/2025/05/30/red-wings-offseason-survey-steve-yzerman/
 
