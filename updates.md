@@ -1,3 +1,11 @@
+**Tigers place Jackson Jobe on IL with flexor strain, promote RHP Dylan Smith**\
+`Jobe's velocity was down in his most recent start, when he allowed three earned runs over 4 2/3 innings against the Giants.`\
+https://nytimes.com/athletic/6393906/2025/05/30/tigers-jackson-jobe-injury-dylan-smith/
+
+**Trump Bids Farewell to Musk**\
+`Also, ISIS claimed responsibility for attacks in Syria. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/30/briefing/trump-musk-oval-office-china-us-trade.html
+
 **USWNT approaches next phase of development under Emma Hayes**\
 `Hayes praised her 'great group of senior players' who have continued to establish benchmarks for newcomers to meet.`\
 https://nytimes.com/athletic/6393497/2025/05/30/emma-hayes-uswnt-on-track-development-deadline/
