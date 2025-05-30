@@ -3,6 +3,10 @@
 `\
 https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
 
+**Tyrese Haliburton owns Game 5 clunker in New York: 'I'll be better in Game 6'**\
+`"It was a rough showing for us tonight," Haliburton said of the Pacers' 111-94 loss to the New York Knicks.`\
+https://nytimes.com/athletic/6392457/2025/05/30/pacers-lose-knicks-tyrese-haliburton-game-5/
+
 **Word of the Day: autumnal**\
 `This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/30/learning/word-of-the-day-autumnal.html
@@ -34,8 +38,4 @@ https://nytimes.com/issue/todayspaper/2025/05/30/todays-new-york-times
 **The U.S. Deported This Chinese Scientist, in a Decision That Changed World History**\
 `Qian Xuesen was a Chinese rocket scientist whose work was central to American military power. His exile had world-altering effects.`\
 https://nytimes.com/2025/05/30/opinion/visas-china-rockets-scientist-technology.html
-
-**‘Well, This Is Surprising’: Top Moments From the National Spelling Bee**\
-`Faizan Zaki, last year’s runner-up, won the coveted award after surviving two dramatic final rounds and calling the pronouncer, “bro.”`\
-https://nytimes.com/2025/05/30/us/well-that-was-surprising-top-moments-from-the-national-spelling-bee.html
 

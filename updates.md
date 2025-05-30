@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
 
+**UCL betting: How European glory for PSG or Inter could shape the future**\
+`Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
+`\
+https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
+
 **Word of the Day: autumnal**\
 `This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/05/30/learning/word-of-the-day-autumnal.html
