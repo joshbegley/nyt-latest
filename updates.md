@@ -1,3 +1,11 @@
+**‘No one will trust this club again’: Tears, anger and the fall of Blackburn Rovers Women**\
+`On Tuesday, May 20, Blackburn Rovers announced their senior women’s team were to be demoted from Women’s Super League 2`\
+https://nytimes.com/athletic/6382886/2025/05/30/inside-blackburn-rovers-women-relegation/
+
+**Supreme Court Allows Trump Administration, for Now, to End Biden-Era Migrant Program**\
+`The Trump administration had asked the court to allow it to end deportation protections for more than 500,000 people facing dire humanitarian crises in their home countries.`\
+https://nytimes.com/2025/05/30/us/politics/trump-immigration-supreme-court.html
+
 **Judge Hears Final Arguments on How to Fix Google’s Search Monopoly**\
 `A judge queried lawyers during closing arguments on Friday about how A.I. should factor into his decision, which is expected by August.`\
 https://nytimes.com/2025/05/30/technology/google-search-antitrust-chrome.html

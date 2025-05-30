@@ -1,3 +1,11 @@
+**‘No one will trust this club again’: Tears, anger and the fall of Blackburn Rovers Women**\
+`On Tuesday, May 20, Blackburn Rovers announced their senior women’s team were to be demoted from Women’s Super League 2`\
+https://nytimes.com/athletic/6382886/2025/05/30/inside-blackburn-rovers-women-relegation/
+
+**Supreme Court Allows Trump Administration, for Now, to End Biden-Era Migrant Program**\
+`The Trump administration had asked the court to allow it to end deportation protections for more than 500,000 people facing dire humanitarian crises in their home countries.`\
+https://nytimes.com/2025/05/30/us/politics/trump-immigration-supreme-court.html
+
 **Judge Hears Final Arguments on How to Fix Google’s Search Monopoly**\
 `A judge queried lawyers during closing arguments on Friday about how A.I. should factor into his decision, which is expected by August.`\
 https://nytimes.com/2025/05/30/technology/google-search-antitrust-chrome.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/world/asia/indonesia-landslide-west-java.html
 **Justin Fields says he 'can be great' within retooled Jets: 'Sky's the limit'**\
 `"I think the sky’s the limit for this team, this offense, but we do have a long way to go," Fields said.`\
 https://nytimes.com/athletic/6393036/2025/05/30/justin-fields-jets-offense-potential/
-
-**British Man Appears in Court Over Liverpool Car Ramming**\
-`Paul Doyle is accused of deliberately driving his vehicle into crowds in Liverpool, northwestern England, injuring 79 people, including four children.`\
-https://nytimes.com/2025/05/30/world/europe/uk-liverpool-car-ramming-paul-doyle.html
-
-**Trump Has Targeted a Plane China Sees as a ‘Power’ Symbol**\
-`Beijing has high hopes for its C919 single-aisle jet after years of delay, but the plane depends on engines, avionics and other gear from Western companies.`\
-https://nytimes.com/2025/05/30/business/china-comac-c919-trump.html
 
