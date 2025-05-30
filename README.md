@@ -1,3 +1,7 @@
+**Row Z end of season special: Gianni Infantino takes on Cristiano Ronaldo for the humility award**\
+`Our 2024-25 wrap also takes in Tim Walter's sacking at Hull City, and there's even a much-needed award for Manchester United`\
+https://nytimes.com/athletic/6392533/2025/05/30/ronaldo-infantino-fifa-hull-row-z/
+
 **Ohio State roster audit: What to expect from every defensive player**\
 `Here are 46 thoughts on Ohio State’s 46 scholarship defensive and special teams players entering the 2025 season.`\
 https://nytimes.com/athletic/6390637/2025/05/30/ohio-state-football-defense-roster-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388163/2025/05/30/nhl-playoffs-prediction-contest-
 **Presenting the Mets' All-Quarter Century team, Queens' best of the 2000s**\
 `Jacob deGrom leads a potent pitching staff and David Wright bats cleanup on this squad of best Mets from the past 25 years.`\
 https://nytimes.com/athletic/6391389/2025/05/30/mets-quarter-century-team/
-
-**Mirtle: The NHL’s Sun Belt ‘problem’ has no easy solution. But does it need one?**\
-`Warm-weather teams are decidedly on the upswing in recent seasons, shaping the NHL's present and future in obvious and subtle ways.`\
-https://nytimes.com/athletic/6391469/2025/05/30/nhl-stanley-cup-playoffs-sunbelt-mirtle/
 
