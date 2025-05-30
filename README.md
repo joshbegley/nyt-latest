@@ -1,3 +1,7 @@
+**Watch Live: Elon Musk and President Trump Deliver Remarks**\
+`Earlier this week, Mr. Musk announced that he was ending his work with the government to spend more time on his companies.`\
+https://nytimes.com/video/us/politics/100000010199139/watch-live-elon-musk-and-president-trump-deliver-remarks.html
+
 **Macron, Infuriating Israel, Says It Can’t ‘Have Its Way’ in Gaza**\
 `A series of exchanges marked a new low point in the relationship between France and Israel, which accused the French president of “a crusade against the Jewish state.”`\
 https://nytimes.com/2025/05/30/world/europe/france-macron-israel-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393182/2025/05/30/champions-league-final-inter-psg
 **U.S. tennis president Lew Sherr to leave USTA for New York Mets**\
 `Sherr led an overhaul of the U.S. player development program and the coming renovation of Arthur Ashe Stadium at the U.S. Open.`\
 https://nytimes.com/athletic/6393368/2025/05/30/lew-sherr-usta-tennis-new-york-mets/
-
-**The New Mexico Town That’s Still a Beacon for Artists**\
-`Where to find the best small inns, chile relleno and secluded hot springs in and around Taos.`\
-https://nytimes.com/2025/05/30/t-magazine/taos-new-mexico-hotel-food-guide.html
 
