@@ -1,3 +1,7 @@
+**West Ham fined £120,000 after homophobic chanting against Chelsea**\
+`An investigation into the incident suggested a "very significant number" of supporters in the West Ham section had been involved.`\
+https://nytimes.com/athletic/6392858/2025/05/30/west-ham-chelsea-homophobic-chanting/
+
 **The Windup: Dodgers-Yankees is back! Read up**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6392497/2025/05/30/yankees-dodgers-world-series-rematch-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6390894/2025/05/30/buffalo-sabres-prospects-rochest
 **How Oli Marmol balances development and playing time during Cardinals' torrid May**\
 `Alec Burleson and Iván Herrera are among the Cardinals players who have knocked down the door for more at-bats.`\
 https://nytimes.com/athletic/6391318/2025/05/30/cardinals-oli-marmol-playing-time/
-
-**Maple Leafs top prospect Easton Cowan is shining in Memorial Cup spotlight. Is he NHL-ready?**\
-`Easton Cowan and the OHL champion London Knights are set to play in the Memorial Cup semifinal Friday night.`\
-https://nytimes.com/athletic/6384907/2025/05/30/maple-leafs-prospect-easton-cowan-memorial-cup/
 
