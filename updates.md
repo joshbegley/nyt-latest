@@ -1,3 +1,15 @@
+**NASCAR free agency: What we're hearing about Trackhouse, Connor Zilisch, Kaulig and more**\
+`This edition of NASCAR's Silly Season may not have any headline-grabbing moves, but there is still plenty to sort out for 2026.`\
+https://nytimes.com/athletic/6392500/2025/05/30/nascar-free-agency-trackhouse-connor-zilisch-kaulig/
+
+**Haribo Recalls Cola Candy in the Netherlands After Cannabis Is Found**\
+`The Dutch food authority said cannabis had been detected in samples of the candy, and the police said it had made several people ill.`\
+https://nytimes.com/2025/05/30/world/europe/haribo-netherlands-cannabis-recall.html
+
+**Trump Accuses China of Breaking Trade Truce**\
+`President Trump said that Beijing was not honoring the terms of a temporary agreement and warned of further confrontation.`\
+https://nytimes.com/2025/05/30/us/politics/trump-china-trade.html
+
 **Jonathan Aranda, Jacob Wilson and more top waiver wire adds for fantasy baseball**\
 `Owen Poindexter weighs in on the most added hitting and pitching options this week on the fantasy baseball waiver wire.`\
 https://nytimes.com/athletic/6391603/2025/05/30/fantasy-baseball-waiver-wire-pickups-aranda-wilson/
