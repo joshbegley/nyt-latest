@@ -1,3 +1,11 @@
+**French Open head Mauresmo 'will not accept' criticism of night session scheduling**\
+`The French Open tournament director says match length is why the event has not a women's match in the night session since 2023.`\
+https://nytimes.com/athletic/6392699/2025/05/30/tennis-french-open-night-session-womens-matches-schedule/
+
+**Brentford reject Leverkusen bid of around €9m for Flekken**\
+`Brentford are open to selling the Netherlands international but value him at closer to €13m and want to secure a replacement first.`\
+https://nytimes.com/athletic/6392843/2025/05/30/mark-flekken-brentford-leverkusen-bid/
+
 **Alexander-Arnold x Bellingham: The bromance set for Real Madrid**\
 `The friendship between two of England's best young players adds an intriguing sub-plot to Real Madrid's latest transfer`\
 https://nytimes.com/athletic/6392727/2025/05/30/alexander-arnold-real-madrid-bellingham-bromance/
