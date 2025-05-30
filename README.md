@@ -1,3 +1,11 @@
+**Loretta Swit a.k.a. Hot Lips of TV’s ‘M*A*S*H,’ Dies at 87**\
+`She won two Emmy Awards for her sympathetic portrayal of an Army major on the hit TV show and had a long career in TV and theater.`\
+https://nytimes.com/2025/05/30/obituaries/loretta-swit-dead.html
+
+**Sydney Sweeney’s Fans Wanted Her Bath Water. Now They Can Buy It.**\
+`Calling the requests “weird in the best way,” the actress worked with Dr. Squatch on a soap that has a manly scent and just a touch of her actual bath water.`\
+https://nytimes.com/2025/05/30/style/sydney-sweeney-bathwater-soap.html
+
 **Senators Visit Ukraine, Pushing for Crippling Sanctions on Russia**\
 `A bipartisan duo met with the Ukrainian president and made the case for Congress to impose harsh economic penalties on Moscow for its continuing offensive.`\
 https://nytimes.com/2025/05/30/us/politics/ukraine-russia-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/world/americas/mexico-judges-social-media.html
 **Nathan Fielder, Creator of ‘The Rehearsal,’ Calls the F.A.A. ‘Dumb’**\
 `In a CNN interview to discuss the recent season’s focus on pilot safety, Fielder responded to a Federal Aviation Administration statement and criticized training standards.`\
 https://nytimes.com/2025/05/30/arts/television/nathan-fielder-faa-cnn.html
-
-**I’m Selling My Condo. Do I Tell Buyers What’s Being Used on the Lawn?**\
-`My homeowner’s association uses toxic landscaping products.`\
-https://nytimes.com/2025/05/30/magazine/lawn-pesticides-chemicals-ethics.html
-
-**Smoke From Wildfires in Canada Wafts Into the Upper Midwest**\
-`States across the border issued air advisories about particulate pollution that are expected to last for several days.`\
-https://nytimes.com/2025/05/30/weather/wildfires-canada-smoke.html
 
