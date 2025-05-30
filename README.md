@@ -1,3 +1,7 @@
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/05/30/movies/new-movies-this-week-critics.html
+
 **Book Club: Read ‘Mrs. Dalloway,’ by Virginia Woolf, with the Book Review**\
 `In June, the Book Review Book Club will read and discuss “Mrs. Dalloway,” Virginia Woolf’s classic novel about one day in the life of an London woman in 1923.`\
 https://nytimes.com/2025/05/30/books/review/mrs-dalloway-virginia-woolf-book-club.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/us/politics/trump-china-trade.html
 **Jonathan Aranda, Jacob Wilson and more top waiver wire adds for fantasy baseball**\
 `Owen Poindexter weighs in on the most added hitting and pitching options this week on the fantasy baseball waiver wire.`\
 https://nytimes.com/athletic/6391603/2025/05/30/fantasy-baseball-waiver-wire-pickups-aranda-wilson/
-
-**Who Should Consider Getting Flood Insurance? These Days, Almost Everyone.**\
-`Inland areas have suffered severe flooding in recent years, experts note. And standard homeowner policies don’t cover flood damage.`\
-https://nytimes.com/2025/05/30/your-money/flood-insurance-homeowners-hurricanes.html
 
