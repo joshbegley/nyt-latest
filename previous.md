@@ -1,3 +1,11 @@
+**Trump to Give Elon Musk an Oval Office Farewell**\
+`Mr. Musk, who says he will devote more time to his private companies, never came close to achieving his goal of cutting $1 trillion from the federal budget.`\
+https://nytimes.com/2025/05/30/us/politics/trump-elon-musk.html
+
+**Share Your Experiences With School Police Officers in Texas**\
+`The New York Times wants to hear from students, school employees and community members who have interacted with school police officers in Texas, as well as law enforcement officials who have worked on school campuses.`\
+https://nytimes.com/2025/05/30/us/share-your-experiences-with-school-police-officers-in-texas.html
+
 **Should Manchester United sell Fernandes or keep him? Carl Anka debates himself**\
 `United captain Fernandes is wanted by Saudi Pro League side Al Hilal, and he is considering the move`\
 https://nytimes.com/athletic/6392629/2025/05/30/manchester-united-bruno-fernandes-transfer-analysis/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6393101/2025/05/30/weekend-wagers-most-intriguing-b
 https://nytimes.com/athletic/6393321/2025/05/30/sabres-jarmo-kekalainen-hired/
 
 **Defending Medicaid Cuts, Ernst Tells Iowans, ‘We All Are Going to Die’**\
-`In an exchange about the effects of Trump’s domestic policy bill, Senator Joni Ernst told constituents, ‘We all are going to die.’`\
+`Senator Joni Ernst's flip response in an exchange with constituents about the effects of Trump’s domestic policy bill quickly spread online.`\
 https://nytimes.com/2025/05/30/us/politics/medicaid-cuts-joni-ernst-iowa-town-hall.html
 
 **It’s Still South by Southwest, but This Time It’s in London**\
 `The music, tech and film festival, long known for being in Austin, Texas, expands to Europe for the first time.`\
 https://nytimes.com/2025/05/30/arts/sxsw-london-festival.html
-
-**‘Mountainhead’ Review: While We Go Down, They Bro Down**\
-`The creator of “Succession” skewers tech billionaires in a dark comedy that is intelligent but feels a bit artificial.`\
-https://nytimes.com/2025/05/30/arts/television/mountainhead-review-jesse-armstrong.html
-
-**Waiting for Gustavo Dudamel, the Philharmonic Is Doing Just Fine**\
-`Between music directors this season, the orchestra has been sounding fresh, engaged and more cohesive.`\
-https://nytimes.com/2025/05/30/arts/music/new-york-philharmonic-season.html
 
