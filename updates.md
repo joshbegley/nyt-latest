@@ -1,3 +1,11 @@
+**Braves' AJ Smith-Shawver diagnosed with torn UCL**\
+`Smith-Shawver will consult with a specialist before he's expected to have season-ending surgery.`\
+https://nytimes.com/athletic/6393893/2025/05/30/braves-aj-smith-shawver-injury-torn-ucl/
+
+**Trump Pledges to Double Tariffs on Foreign Steel to 50%**\
+`President Trump made the announcement at a U.S. Steel factory outside Pittsburgh.`\
+https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
+
 **‘Prognosis Is Good,’ Biden Says in First Remarks About Cancer Diagnosis**\
 `The former president said he was taking a single pill daily to treat aggressive prostate cancer.`\
 https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html

@@ -1,3 +1,7 @@
+**Braves' AJ Smith-Shawver diagnosed with torn UCL**\
+`Smith-Shawver will consult with a specialist before he's expected to have season-ending surgery.`\
+https://nytimes.com/athletic/6393893/2025/05/30/braves-aj-smith-shawver-injury-torn-ucl/
+
 **‘Prognosis Is Good,’ Biden Says in First Remarks About Cancer Diagnosis**\
 `The former president said he was taking a single pill daily to treat aggressive prostate cancer.`\
 https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
 `Every team faces injuries, but not to nearly every player who recently joined the club.`\
 https://nytimes.com/athletic/6393951/2025/05/30/santander-blue-jays-offseason-addition-injured-list/
 
-**Trump to Double Tariffs on Foreign Steel to 50%**\
+**Trump Pledges to Double Tariffs on Foreign Steel to 50%**\
 `President Trump made the announcement at a U.S. Steel factory outside Pittsburgh.`\
 https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393911/2025/05/30/bryce-harper-hit-by-pitch-update
 **Hiker Survives After He’s Struck by 700-Pound Boulder**\
 `A 61-year-old man was airlifted to safety after he survived a 700-pound boulder crashing into him on a hike in Alaska.`\
 https://nytimes.com/video/us/100000010200290/alaska-hiker-boulder-crash.html
-
-**Businessman Accused of Orchestrating Attacks on Journalists**\
-`The journalists, who worked at New Hampshire Public Radio, had investigated claims of sexual misconduct against him.`\
-https://nytimes.com/2025/05/30/business/eric-spofford-new-hampshire-vandalism.html
 
