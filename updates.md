@@ -1,3 +1,7 @@
+**Madrid to pay Liverpool €10m for Alexander-Arnold to join for Club World Cup**\
+`The England international has signed a six-year contract with Madrid, leaving the team he has played for since 2004. `\
+https://nytimes.com/athletic/6334302/2025/05/30/trent-alexander-arnold-real-madrid-transfers-liverpool-club-world-cup/
+
 **Knicks' message to Pacers in Game 5: Don't let it get to a Game 7**\
 `"We never give up," Josh Hart said.`\
 https://nytimes.com/athletic/6392462/2025/05/30/knicks-pacers-game-5/
