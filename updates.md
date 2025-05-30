@@ -1,3 +1,11 @@
+**Filled With Bad Words**\
+`Just kidding — Rafael Musa gives us the good words.`\
+https://nytimes.com/2025/05/29/crosswords/daily-puzzle-2025-05-30.html
+
+**Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69**\
+`Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
+https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
+
 **Bernard Kerik, Disgraced Former Police Commissioner, Dies at 69**\
 `Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
 https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
