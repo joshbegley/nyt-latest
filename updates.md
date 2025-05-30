@@ -1,3 +1,11 @@
+**The Bounce: 3 questions about Knicks' ability to pull off 3-1 comeback against Pacers**\
+`Although the odds favor the Pacers to reach the NBA Finals, could the Knicks pull off a surprise comeback?`\
+https://nytimes.com/athletic/6393002/2025/05/30/knicks-pacers-east-finals-playoffs-nba-the-bounce/
+
+**Vikings, general manager Kwesi Adofo-Mensah agree to multiyear extension**\
+`The deal comes four months after the Vikings agreed to terms on a new contract with head coach Kevin O’Connell.`\
+https://nytimes.com/athletic/6113354/2025/05/30/kwesi-adofo-mensah-vikings-gm-extension/
+
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2025/05/30/movies/new-movies-this-week-critics.html

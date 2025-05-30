@@ -1,3 +1,7 @@
+**U.S. Oil Companies Are ‘Battening Down the Hatches’**\
+`The industry is bracing for the OPEC Plus oil cartel’s meeting on Saturday, which is widely expected to further increase oil production despite weak demand.`\
+https://nytimes.com/2025/05/30/business/energy-environment/oil-companies-production-prices-opec.html
+
 **The Bounce: 3 questions about Knicks' ability to pull off 3-1 comeback against Pacers**\
 `Although the odds favor the Pacers to reach the NBA Finals, could the Knicks pull off a surprise comeback?`\
 https://nytimes.com/athletic/6393002/2025/05/30/knicks-pacers-east-finals-playoffs-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/business/china-comac-c919-trump.html
 **NASCAR free agency: What we're hearing about Trackhouse, Connor Zilisch, Kaulig and more**\
 `This edition of NASCAR's Silly Season may not have any headline-grabbing moves, but there is still plenty to sort out for 2026.`\
 https://nytimes.com/athletic/6392500/2025/05/30/nascar-free-agency-trackhouse-connor-zilisch-kaulig/
-
-**Haribo Recalls Cola Candy in the Netherlands After Cannabis Is Found**\
-`The Dutch food authority said cannabis had been detected in samples of the candy, and the police said it had made several people ill.`\
-https://nytimes.com/2025/05/30/world/europe/haribo-netherlands-cannabis-recall.html
 

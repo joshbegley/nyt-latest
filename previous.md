@@ -1,3 +1,11 @@
+**The Bounce: 3 questions about Knicks' ability to pull off 3-1 comeback against Pacers**\
+`Although the odds favor the Pacers to reach the NBA Finals, could the Knicks pull off a surprise comeback?`\
+https://nytimes.com/athletic/6393002/2025/05/30/knicks-pacers-east-finals-playoffs-nba-the-bounce/
+
+**Vikings, general manager Kwesi Adofo-Mensah agree to multiyear extension**\
+`The deal comes four months after the Vikings agreed to terms on a new contract with head coach Kevin O’Connell.`\
+https://nytimes.com/athletic/6113354/2025/05/30/kwesi-adofo-mensah-vikings-gm-extension/
+
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2025/05/30/movies/new-movies-this-week-critics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392500/2025/05/30/nascar-free-agency-trackhouse-co
 **Haribo Recalls Cola Candy in the Netherlands After Cannabis Is Found**\
 `The Dutch food authority said cannabis had been detected in samples of the candy, and the police said it had made several people ill.`\
 https://nytimes.com/2025/05/30/world/europe/haribo-netherlands-cannabis-recall.html
-
-**Trump Accuses China of Breaking Trade Truce**\
-`President Trump said that Beijing was not honoring the terms of a temporary agreement and warned of further confrontation.`\
-https://nytimes.com/2025/05/30/us/politics/trump-china-trade.html
-
-**Jonathan Aranda, Jacob Wilson and more top waiver wire adds for fantasy baseball**\
-`Owen Poindexter weighs in on the most added hitting and pitching options this week on the fantasy baseball waiver wire.`\
-https://nytimes.com/athletic/6391603/2025/05/30/fantasy-baseball-waiver-wire-pickups-aranda-wilson/
 
