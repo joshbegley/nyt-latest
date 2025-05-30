@@ -1,3 +1,11 @@
+**Conte decides to stay at Napoli after winning Serie A**\
+`Napoli clinched their second league title in three seasons last Friday, beating Inter by a point.`\
+https://nytimes.com/athletic/6341927/2025/05/30/antonio-conte-napoli-manager-stays/
+
+**Pacers remain confident despite Game 5 dud vs. Knicks: 'We just weren't us'**\
+`After its worst shooting performance of this year's playoffs, Indiana heads home for a pivotal Game 6 on Saturday.`\
+https://nytimes.com/athletic/6392518/2025/05/30/pacers-game-5-knicks-east-finals-loss-haliburton/
+
 **‘Bellwether of Risks’: What ‘Buy Now, Pay Later’ Defaults Say About the Consumer**\
 `An increase in deferred pay-later loans has raised alarms, as the Trump administration seeks to gut the agency tasked with policing the sector.`\
 https://nytimes.com/2025/05/30/business/dealbook/buy-now-pay-later-defaults.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391469/2025/05/30/nhl-stanley-cup-playoffs-sunbelt
 **Retaking the 5th: Dodgers, Yankees recount the inning that swung the World Series**\
 `The Yankees' ill-fated 5-0 lead in Game 5 remains fresh as the teams gear up for a regular-season rematch in Los Angeles.`\
 https://nytimes.com/athletic/6391520/2025/05/30/dodgers-yankees-world-series-game-5-rewind/
-
-**Johnston: Why Leafs GM Brad Treliving is playing nice over Mitch Marner talks**\
-`Mitch Marner's approach to his contract has been disruptive to the team as it enters a critical offseason, but there's reason to be civil.`\
-https://nytimes.com/athletic/6391377/2025/05/30/maple-leafs-mitch-marner-breakup-watch-treliving-contract/
-
-**What fuels the Panthers’ Stanley Cup machine? It starts in the room**\
-`The Panthers' brotherhood has taken them to new heights, but, as their GM said, "The journey isn’t over."`\
-https://nytimes.com/athletic/6391228/2025/05/30/panthers-stanley-cup-nhl-culture/
 
