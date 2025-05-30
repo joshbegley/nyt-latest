@@ -1,3 +1,11 @@
+**Row Z end of season special: Gianni Infantino takes on Cristiano Ronaldo for the humility award**\
+`Our 2024-25 wrap also takes in Tim Walter's sacking at Hull City, and there's even a much-needed award for Manchester United`\
+https://nytimes.com/athletic/6392533/2025/05/30/ronaldo-infantino-fifa-hull-row-z/
+
+**Ohio State roster audit: What to expect from every defensive player**\
+`Here are 46 thoughts on Ohio State’s 46 scholarship defensive and special teams players entering the 2025 season.`\
+https://nytimes.com/athletic/6390637/2025/05/30/ohio-state-football-defense-roster-2025/
+
 **Conte decides to stay at Napoli after winning Serie A**\
 `Napoli clinched their second league title in three seasons last Friday, beating Inter by a point.`\
 https://nytimes.com/athletic/6341927/2025/05/30/antonio-conte-napoli-manager-stays/
