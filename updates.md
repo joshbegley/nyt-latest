@@ -1,3 +1,11 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 5/30 at 3:00 p.m. ET**\
+`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
+https://nytimes.com/athletic/6393530/2025/05/30/sarris-live-chat-mlb-fantasy-baseball-5-30/
+
+**Why did a Manute Bol basketball card sell for more than $20,000 this week?**\
+`A possible explanation for why a Manute Bol card sold for more than the Michael Jordan card from the same set`\
+https://nytimes.com/athletic/6393208/2025/05/30/manute-bol-fleer-basketball-card/
+
 **The 6.1.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/30/the-612025-issue
