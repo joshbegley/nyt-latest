@@ -1,3 +1,7 @@
+**JD Vance’s Campaign Plane Is Being Used for Migrant Deportation Flights**\
+`The Boeing 737 has been chartered more than a dozen times this year by the federal government to deport migrants to several countries in Central America.`\
+https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.html
+
 **Nelly Korda and the weight — and wait — of the U.S. Open**\
 `Korda entered this week carrying all these hopes and dreams, and she kept herself in it. `\
 https://nytimes.com/athletic/6392167/2025/05/29/nelly-korda-and-the-weight-and-wait-of-the-u-s-open/

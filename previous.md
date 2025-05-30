@@ -1,3 +1,7 @@
+**JD Vance’s Campaign Plane Is Being Used for Migrant Deportation Flights**\
+`The Boeing 737 has been chartered more than a dozen times this year by the federal government to deport migrants to several countries in Central America.`\
+https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.html
+
 **Nelly Korda and the weight — and wait — of the U.S. Open**\
 `Korda entered this week carrying all these hopes and dreams, and she kept herself in it. `\
 https://nytimes.com/athletic/6392167/2025/05/29/nelly-korda-and-the-weight-and-wait-of-the-u-s-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/us/faizan-zaki-spelling-bee-final.html
 **San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
 `Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
 https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html
-
-**U.S. Ports Grapple With On-Again, Off-Again Tariffs**\
-`Court rulings overturning and then at least temporarily allowing President Trump’s tariffs add to the uncertainty disrupting business at U.S. ports.`\
-https://nytimes.com/2025/05/29/us/politics/tariffs-ruling-ports.html
 
