@@ -1,3 +1,7 @@
+**Lazerus: By pulling Jake Oettinger, Pete DeBoer tried to spark the Stars. Instead, he burned them**\
+`DeBoer didn't back down from the goalie swap, saying the "status quo had not been working."`\
+https://nytimes.com/athletic/6392382/2025/05/29/oettinger-deboer-stars-game-5/
+
 **Pro-Trump Kennedy Center Executive Says He Was Fired**\
 `Floyd Brown said his dismissal happened about two hours after CNN contacted him for comment on his past statements on homosexuality and marriage.`\
 https://nytimes.com/2025/05/29/us/politics/kennedy-center-executive-fired.html

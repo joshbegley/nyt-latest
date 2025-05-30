@@ -1,3 +1,7 @@
+**Lazerus: By pulling Jake Oettinger, Pete DeBoer tried to spark the Stars. Instead, he burned them**\
+`DeBoer didn't back down from the goalie swap, saying the "status quo had not been working."`\
+https://nytimes.com/athletic/6392382/2025/05/29/oettinger-deboer-stars-game-5/
+
 **Pro-Trump Kennedy Center Executive Says He Was Fired**\
 `Floyd Brown said his dismissal happened about two hours after CNN contacted him for comment on his past statements on homosexuality and marriage.`\
 https://nytimes.com/2025/05/29/us/politics/kennedy-center-executive-fired.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392226/2025/05/29/angels-mike-trout-knee-bruise-up
 **Kraken name Lane Lambert as new head coach**\
 `Lambert, the former Islanders head coach and Leafs associate coach, will be the third head coach of a young Seattle franchise.`\
 https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head-coach/
-
-**JD Vance’s Campaign Plane Is Being Used for Migrant Deportation Flights**\
-`The Boeing 737 has been chartered more than a dozen times this year by the federal government to deport migrants to several countries in Central America.`\
-https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.html
 
