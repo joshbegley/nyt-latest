@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
 
+**UCL betting: How European glory for PSG or Inter could shape the future**\
+`Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
+`\
+https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
+
 **Fernandes giving serious consideration to Al Hilal approach**\
 `The offer is expected to be worth €25million a year net while Al Hilal are said to be prepared to pay an £80m fee.`\
 https://nytimes.com/athletic/6392568/2025/05/30/manchester-united-transfers-bruno-fernandes-al-hilal/

@@ -1,3 +1,7 @@
+**Listen: The making of Sunderland 'Til I Die - but why promotion is unlikely to spark its return**\
+`The FC Podcast discuss how Sunderland 'Til I Die came to life and whether a new season could be on the cards.`\
+https://nytimes.com/athletic/6391015/2025/05/30/athletic-fc-podcast-sunderland-til-i-die/
+
 **Fernandes giving serious consideration to Al Hilal approach**\
 `The offer is expected to be worth €25million a year net while Al Hilal are said to be prepared to pay an £80m fee.`\
 https://nytimes.com/athletic/6392568/2025/05/30/manchester-united-transfers-bruno-fernandes-al-hilal/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/30/nyregion/school-mascots-trump-civil-rights.html
 **'Game over': How Connor McDavid rescued the Oilers with one of his best-ever moments**\
 `As the Stars made a major push in Game 5, McDavid scored a memorable game-winning goal.`\
 https://nytimes.com/athletic/6392472/2025/05/30/mcdavid-oilers-goal-stanley-cup/
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/05/30/briefing/trump-tariffs-uyghurs.html
 
