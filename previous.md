@@ -1,3 +1,15 @@
+**Should Manchester United sell Fernandes or keep him? Carl Anka debates himself**\
+`United captain Fernandes is wanted by Saudi Pro League side Al Hilal, and he is considering the move`\
+https://nytimes.com/athletic/6392629/2025/05/30/manchester-united-bruno-fernandes-transfer-analysis/
+
+**Liverpool sign Jeremie Frimpong from Bayer Leverkusen on five-year contract**\
+`Frimpong agreed a five-year deal to join the Premier League champions, who activated his €35million (£29.6m; $39.3m) release clause.`\
+https://nytimes.com/athletic/6365141/2025/05/30/jeremie-frimpong-liverpool-transfer/
+
+**Champions League TV coverage in 2024-25: What worked? What didn't? And what next?**\
+`Broadcasters have spoken to The Athletic about their existing coverage and if any changes need to be made`\
+https://nytimes.com/athletic/6390671/2025/05/30/champions-league-tv-coverage-cbs-prime-video/
+
 **1 Killed and at Least 7 Are Injured in Tornado in Kentucky, Officials Say**\
 `The Washington County Sheriff’s Office said there was severe damage.`\
 https://nytimes.com/2025/05/30/us/tornado-kentucky-death-injuries.html
@@ -10,7 +22,7 @@ https://nytimes.com/athletic/6393101/2025/05/30/weekend-wagers-most-intriguing-b
 `Kekäläinen will report to Buffalo general manager Kevyn Adams and assist in all aspects of the hockey department.`\
 https://nytimes.com/athletic/6393321/2025/05/30/sabres-jarmo-kekalainen-hired/
 
-**Ernst’s Remark About Medicaid Cuts Draws Jeers at Iowa Town Hall**\
+**Defending Medicaid Cuts, Ernst Tells Iowans, ‘We All Are Going to Die’**\
 `In an exchange about the effects of Trump’s domestic policy bill, Senator Joni Ernst told constituents, ‘We all are going to die.’`\
 https://nytimes.com/2025/05/30/us/politics/medicaid-cuts-joni-ernst-iowa-town-hall.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/30/arts/television/mountainhead-review-jesse-armstro
 **Waiting for Gustavo Dudamel, the Philharmonic Is Doing Just Fine**\
 `Between music directors this season, the orchestra has been sounding fresh, engaged and more cohesive.`\
 https://nytimes.com/2025/05/30/arts/music/new-york-philharmonic-season.html
-
-**Taylor Swift Buys Back Rights to Her First 6 Albums**\
-`The master recordings to the pop superstar’s earliest work were sold to Scooter Braun in 2019, and acquired a year later by the investing firm Shamrock Capital.`\
-https://nytimes.com/2025/05/30/arts/music/taylor-swift-buys-masters.html
-
-**London Brings Its Own Musical Touch to South by Southwest**\
-`The festival, which has a long association with music, presents an opportunity for London acts to perform on a bigger stage.`\
-https://nytimes.com/2025/05/30/arts/music/sxsw-london-music-shoreditch.html
-
-**A ‘Nurse Action Movie’ Might Be Different, but That’s the Point**\
-`From TV series to art house films, Leonie Benesch brings a quiet intensity to the screen, including her latest movie.`\
-https://nytimes.com/2025/05/30/movies/leonie-benesch-nurse-night-shift.html
 
