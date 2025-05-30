@@ -1,3 +1,11 @@
+**Alexander-Arnold x Bellingham: The bromance set for Real Madrid**\
+`The friendship between two of England's best young players adds an intriguing sub-plot to Real Madrid's latest transfer`\
+https://nytimes.com/athletic/6392727/2025/05/30/alexander-arnold-real-madrid-bellingham-bromance/
+
+**The 2024-25 FPL champion on how he beat 11.5m players and why he's thankful to Glasner**\
+`The 2024-25 FPL world number one tells Abdul Rehman how it feels to win it all and what he considers the keys to his success`\
+https://nytimes.com/athletic/6389987/2025/05/30/fantasy-premier-league-champion-interview/
+
 **Row Z end of season special: Gianni Infantino takes on Cristiano Ronaldo for the humility award**\
 `Our 2024-25 wrap also takes in Tim Walter's sacking at Hull City, and there's even a much-needed award for Manchester United`\
 https://nytimes.com/athletic/6392533/2025/05/30/ronaldo-infantino-fifa-hull-row-z/
