@@ -1,3 +1,7 @@
+**After 'surprise' DFA, Kody Clemens quickly made Twins' clubhouse feel like home**\
+`Though he arrived in a trade from the Phillies in April, Clemens' new teammates talk as he's long been a fixture in the Twins' clubhouse.`\
+https://nytimes.com/athletic/6392255/2025/05/30/kody-clemens-twins-trade-clubhouse/
+
 **A renovated Arrowhead or a dome in Kansas? Inside the Chiefs’ stadium decision looming over the state line**\
 `The Chiefs will soon decide which side of the state line, Missouri or Kansas, they will play their home games after 2030.`\
 https://nytimes.com/athletic/6285464/2025/05/30/chiefs-stadium-decision-arrowhead-missouri-kansas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391740/2025/05/30/tigers-first-place-skubal-greene
 **Recruiting thoughts: Clemson's surge, QB dominoes, New York's elite prospect**\
 `What's with Florida's slow start? Is Notre Dame commit Thomas Davis Jr. a threat to flip to Georgia? When will Alabama and LSU land QBs?`\
 https://nytimes.com/athletic/6391433/2025/05/30/college-football-recruiting-june-visits-clemson/
-
-**Did a Wine Importer Just Sink Trump’s Trade War?**\
-`A federal court ruled that President Trump’s tariffs were illegal. We speak to the lead plaintiff.`\
-https://nytimes.com/2025/05/30/podcasts/the-daily/did-a-wine-importer-just-sink-trumps-trade-war.html
 
