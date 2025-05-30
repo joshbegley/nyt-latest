@@ -1,3 +1,11 @@
+**Tigers place Jackson Jobe on IL with flexor strain, promote RHP Dylan Smith**\
+`Jobe's velocity was down in his most recent start, when he allowed three earned runs over 4 2/3 innings against the Giants.`\
+https://nytimes.com/athletic/6393906/2025/05/30/tigers-jackson-jobe-injury-dylan-smith/
+
+**Trump Bids Farewell to Musk**\
+`Also, ISIS claimed responsibility for attacks in Syria. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/05/30/briefing/trump-musk-oval-office-china-us-trade.html
+
 **Smokey Robinson Faced a Sexual Assault Allegation in 2015**\
 `No charges were filed because of what the authorities said was insufficient evidence. The singer has been accused in a lawsuit of sexually abusing four women, which he denies.`\
 https://nytimes.com/2025/05/30/arts/music/smokey-robinson-sexual-assault-allegation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391086/2025/05/30/pep-lijnders-manchester-city/
 **Mikaela Shiffrin says she questioned returning to skiing after crash**\
 `"It was almost as though I was no longer in control of my body," Shiffrin wrote about her return after the crash.`\
 https://nytimes.com/athletic/6393676/2025/05/30/mikaela-shiffrin-crash-mental-health/
-
-**250 Million Honeybees Escape After a Truck Rolls Over in Washington State**\
-`Several emergency responders were stung after the truck flipped in a sparsely populated area of Whatcom County. Efforts were underway to recapture the bees.`\
-https://nytimes.com/2025/05/30/us/washington-bees-escape-truck-crash.html
-
-**USWNT approaches next phase of development under Emma Hayes**\
-`Hayes praised her 'great group of senior players' who have continued to establish benchmarks for newcomers to meet.`\
-https://nytimes.com/athletic/6393497/2025/05/30/emma-hayes-uswnt-on-track-development-deadline/
 
