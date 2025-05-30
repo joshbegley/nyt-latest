@@ -38,6 +38,11 @@ https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-p
 `\
 https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
 
+**UCL betting: How European glory for PSG or Inter could shape the future**\
+`Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
+`\
+https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
+
 **Di Maria to return to boyhood club Rosario Central after Club World Cup**\
 `Di Maria, 37, will join Rosario as a free agent after announcing his Benfica departure.`\
 https://nytimes.com/athletic/6392514/2025/05/30/angel-di-maria-rosario-central-transfer/
