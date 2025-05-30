@@ -1,3 +1,5 @@
+
+
 **Fed’s Preferred Inflation Gauge Subdued in April as Spending Slows**\
 `The Federal Reserve has put interest rate cuts on hold until it has more clarity about President Trump’s policies.`\
 https://nytimes.com/2025/05/30/business/fed-inflation-consumer-spending.html
