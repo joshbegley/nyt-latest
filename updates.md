@@ -1,3 +1,7 @@
+**‘Well, This Is Surprising’: Top Moments From the National Spelling Bee**\
+`Faizan Zaki, last year’s runner-up, won the coveted award after surviving two dramatic final rounds and calling the pronouncer, “bro.”`\
+https://nytimes.com/2025/05/30/us/well-that-was-surprising-top-moments-from-the-national-spelling-bee.html
+
 **Faizan Zaki Wins Spelling Bee**\
 `The 13-year-old champion dropped to the floor after correctly spelling the word “éclaircissement,” taking home the Scripps National Spelling Bee trophy.`\
 https://nytimes.com/video/us/100000010198474/scripps-spelling-bee.html
