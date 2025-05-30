@@ -1,3 +1,7 @@
+**Christian McCaffrey looks like his 2023 self as energized 49ers begin OTAs**\
+`Asked which young players have stood out to him, Fred Warner cited first-round draft pick Mykel Williams and third rounder Nick Martin.`\
+https://nytimes.com/athletic/6392118/2025/05/29/christian-mccaffrey-san-francisco-49ers-otas/
+
 **Kraken name Lane Lambert as new head coach**\
 `Lambert, the former Islanders head coach and Leafs associate coach, will be the third head coach of a young Seattle franchise.`\
 https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head-coach/
