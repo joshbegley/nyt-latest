@@ -1,3 +1,15 @@
+**The Best Women’s Swimsuits **\
+`(No description)`\
+https://nytimes.com/card/2025/05/30/smarter-living/wirecutter/the-best-womens-swimsuits
+
+**Liam Hendriks heads to the IL as Red Sox injury woes continue**\
+`Hendriks is the ninth player to be placed on the Red Sox's IL and the fifth since the start of May.`\
+https://nytimes.com/athletic/6393734/2025/05/30/liam-hendriks-red-sox-injured-list/
+
+**Arthur Fils withdraws from French Open with back injury after Suzanne-Lenglen heroics**\
+`Top-ranked French men's player Fils performed miracles to beat Jaume Munar with a back injury, but he cannot continue at Roland Garros.`\
+https://nytimes.com/athletic/6393715/2025/05/30/tennis-french-open-arthur-fils-out-injury/
+
 **Loretta Swit a.k.a. Hot Lips of TV’s ‘M*A*S*H,’ Dies at 87**\
 `She won two Emmy Awards for her sympathetic portrayal of an Army major on the hit TV show and had a long career in TV and theater.`\
 https://nytimes.com/2025/05/30/obituaries/loretta-swit-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/30/arts/music/peter-seiffert-dead.html
 **Delap set for Monday medical ahead of £30m Chelsea transfer**\
 `The England Under-21 international had multiple suitors after scoring 12 goals in 40 matches for Ipswich in his first season at the club.`\
 https://nytimes.com/athletic/6393488/2025/05/30/chelsea-delap-medical-update/
-
-**Real Madrid begin talks to renew teenager Fortea's contract**\
-`Following Arbeloa’s promotion to coach Real Madrid Castilla, both parties are now keen to extend the 18-year-old’s deal. `\
-https://nytimes.com/athletic/6393682/2025/05/30/real-madrid-jesus-foreta-contract-talks/
-
-**Judicial Candidates Try TikTok and Tinder in Mexico’s Sprawling Elections**\
-`For the first time, Mexico will elect judges nationwide, from the highest to the lowest courts. Campaign restrictions pushed many candidates to campaign on social media, sometimes in divisive ways.`\
-https://nytimes.com/2025/05/30/world/americas/mexico-judges-social-media.html
-
-**Nathan Fielder, Creator of ‘The Rehearsal,’ Calls the F.A.A. ‘Dumb’**\
-`In a CNN interview to discuss the recent season’s focus on pilot safety, Fielder responded to a Federal Aviation Administration statement and criticized training standards.`\
-https://nytimes.com/2025/05/30/arts/television/nathan-fielder-faa-cnn.html
 
