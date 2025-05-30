@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
 
+**UCL betting: How European glory for PSG or Inter could shape the future**\
+`Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
+`\
+https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
+
 **Listen: The making of Sunderland 'Til I Die - but why promotion is unlikely to spark its return**\
 `The FC Podcast discuss how Sunderland 'Til I Die came to life and whether a new season could be on the cards.`\
 https://nytimes.com/athletic/6391015/2025/05/30/athletic-fc-podcast-sunderland-til-i-die/

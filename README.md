@@ -1,41 +1,40 @@
-**Listen: The making of Sunderland 'Til I Die - but why promotion is unlikely to spark its return**\
-`The FC Podcast discuss how Sunderland 'Til I Die came to life and whether a new season could be on the cards.`\
-https://nytimes.com/athletic/6391015/2025/05/30/athletic-fc-podcast-sunderland-til-i-die/
+**USWNT and Portland Thorns midfielder Sam Coffey leading with devotion**\
+`Coffey draws on her faith to guide her leadership style.`\
+https://nytimes.com/athletic/6392007/2025/05/30/uswnt-portland-thorns-sam-coffey-devotion/
 
-**Fernandes giving serious consideration to Al Hilal approach**\
-`The offer is expected to be worth €25million a year net while Al Hilal are said to be prepared to pay an £80m fee.`\
-https://nytimes.com/athletic/6392568/2025/05/30/manchester-united-transfers-bruno-fernandes-al-hilal/
+**Elon Musk’s Legacy Is Disease, Starvation and Death**\
+`His decimation of U.S.A.I.D. has had fatal consequences.`\
+https://nytimes.com/2025/05/30/opinion/elon-musk-doge-usaid.html
 
-**Di Maria to return to boyhood club Rosario Central after Club World Cup**\
-`Di Maria, 37, will join Rosario as a free agent after announcing his Benfica departure.`\
-https://nytimes.com/athletic/6392514/2025/05/30/angel-di-maria-rosario-central-transfer/
+**The New York Times News Quiz, May 30, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/05/30/briefing/trump-trade-war-macron-elon-musk-news-quiz.html
 
-**UCL betting: How European glory for PSG or Inter could shape the future**\
-`Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
-`\
-https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
+**4 Ways to Trick Yourself Into Taking a Walk**\
+`You don’t need to hit 10,000 daily steps to reap benefits.`\
+https://nytimes.com/2025/05/30/well/step-goal-walking.html
 
-**Tyrese Haliburton owns Game 5 clunker in New York: 'I'll be better in Game 6'**\
-`"It was a rough showing for us tonight," Haliburton said of the Pacers' 111-94 loss to the New York Knicks.`\
-https://nytimes.com/athletic/6392457/2025/05/30/pacers-lose-knicks-tyrese-haliburton-game-5/
+**The Birkin Inspires Yet Another Homage**\
+`The Boatkin, a new handbag, marries the design of the Hermès Birkin and the material of L.L. Bean’s Boat and Tote.`\
+https://nytimes.com/2025/05/30/style/boatkin-bag-birkin-boat-tote.html
 
-**Word of the Day: autumnal**\
-`This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/05/30/learning/word-of-the-day-autumnal.html
+**‘Good Night, and Good Luck’ Remembers When TV Had a Conscience, and a Spine**\
+`A TV critic looks at George Clooney’s play about CBS News standing up to political pressure, even as its current ownership might succumb to it.`\
+https://nytimes.com/2025/05/30/arts/television/good-night-and-good-luck-cbs-paramount.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/05/30/crosswords/spelling-bee-forum.html
+**Is It Cheaper, or More Expensive, to Travel Now? Both, It Turns Out.**\
+`How falling airfares and foreign exchange rates influence where to look for deals this summer.`\
+https://nytimes.com/2025/05/30/travel/dollar-airfares-deals.html
 
-**Trump’s Deportations Haunt Workers in the Fields of Rural New York**\
-`Foreign-born workers on New York’s fruit and dairy farms have sequestered themselves to avoid the administration’s deportation net.`\
-https://nytimes.com/2025/05/30/nyregion/immigrants-farms-deportations-trump.html
+**As ‘Pretty Little Baby’ Goes Viral, Connie Francis Is Joining TikTok**\
+`With a forgotten song becoming an unlikely hit, the 87-year-old singer is happy to be back in the spotlight.`\
+https://nytimes.com/2025/05/30/style/connie-francis-pretty-little-baby-tiktok.html
 
-**Under Trump, a Native American Mascot Debate Is Turned Upside Down**\
-`Earlier administrations investigated whether Native American school mascots were discriminatory. The Trump administration defends them, reflecting a broader shift.`\
-https://nytimes.com/2025/05/30/nyregion/school-mascots-trump-civil-rights.html
+**In Emaciated Children, Gaza’s Hunger Is Laid Bare**\
+`Aid began to trickle into the territory this week. But there is never enough.`\
+https://nytimes.com/2025/05/30/world/middleeast/gaza-children-hunger.html
 
-**'Game over': How Connor McDavid rescued the Oilers with one of his best-ever moments**\
-`As the Stars made a major push in Game 5, McDavid scored a memorable game-winning goal.`\
-https://nytimes.com/athletic/6392472/2025/05/30/mcdavid-oilers-goal-stanley-cup/
+**Does a Lion Concern Itself With Memes?**\
+`A familiar phrase has been incorporated into brain rot, leading it in some surprising directions.`\
+https://nytimes.com/2025/05/30/style/sigma-lion-meme.html
 
