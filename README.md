@@ -1,3 +1,11 @@
+**Alexander-Arnold x Bellingham: The bromance set for new Real Madrid chapter**\
+`The friendship between two of England's best young players adds an intriguing sub-plot to Real Madrid's latest transfer`\
+https://nytimes.com/athletic/6392727/2025/05/30/alexander-arnold-real-madrid-bellingham-bromance/
+
+**The 2024-25 FPL champion on how he beat 11.5m players and why he's thankful to Glasner**\
+`The 2024-25 FPL world number one tells Abdul Rehman how it feels to win it all and what he considers the keys to his success`\
+https://nytimes.com/athletic/6389987/2025/05/30/fantasy-premier-league-champion-interview/
+
 **Row Z end of season special: Gianni Infantino takes on Cristiano Ronaldo for the humility award**\
 `Our 2024-25 wrap also takes in Tim Walter's sacking at Hull City, and there's even a much-needed award for Manchester United`\
 https://nytimes.com/athletic/6392533/2025/05/30/ronaldo-infantino-fifa-hull-row-z/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392559/2025/05/30/did-conference-league-victory-si
 **The Athletic’s Friday football quiz question #57**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6391316/2025/05/30/the-athletics-friday-football-quiz-question-57/
-
-**Lightning are a lock to go deep, and other lessons from the playoffs prediction contest**\
-`We're down to two. No, not teams in the playoffs: two contenders left to win our prediction contest.`\
-https://nytimes.com/athletic/6388163/2025/05/30/nhl-playoffs-prediction-contest-lightning/
-
-**Presenting the Mets' All-Quarter Century team, Queens' best of the 2000s**\
-`Jacob deGrom leads a potent pitching staff and David Wright bats cleanup on this squad of best Mets from the past 25 years.`\
-https://nytimes.com/athletic/6391389/2025/05/30/mets-quarter-century-team/
 
