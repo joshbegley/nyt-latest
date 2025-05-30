@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in June**\
+`Among other highlights for U.S. subscribers, “Squid Game” is coming back (already) for its third and final season.`\
+https://nytimes.com/2025/05/30/arts/television/netflix-new-june.html
+
+**Former Liverpool assistant Lijnders agrees deal to join Guardiola's Man City staff**\
+`The 42-year-old spent nine-and-a-half years at Anfield across two spells.`\
+https://nytimes.com/athletic/6391086/2025/05/30/pep-lijnders-manchester-city/
+
 **Mikaela Shiffrin says she questioned returning to skiing after crash**\
 `"It was almost as though I was no longer in control of my body," Shiffrin wrote about her return after the crash.`\
 https://nytimes.com/athletic/6393676/2025/05/30/mikaela-shiffrin-crash-mental-health/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/climate/science-livestream-budget-cuts.html
 **The Best Women’s Swimsuits **\
 `(No description)`\
 https://nytimes.com/card/2025/05/30/smarter-living/wirecutter/the-best-womens-swimsuits
-
-**Liam Hendriks heads to the IL as Red Sox injury woes continue**\
-`Hendriks is the ninth player to be placed on the Red Sox's IL and the fifth since the start of May.`\
-https://nytimes.com/athletic/6393734/2025/05/30/liam-hendriks-red-sox-injured-list/
-
-**Arthur Fils withdraws from French Open with back injury after Suzanne-Lenglen heroics**\
-`Top-ranked French men's player Fils performed miracles to beat Jaume Munar with a back injury, but he cannot continue at Roland Garros.`\
-https://nytimes.com/athletic/6393715/2025/05/30/tennis-french-open-arthur-fils-out-injury/
 
