@@ -1,3 +1,15 @@
+**FIFA 'far away' from a deal with league unions over football calendar, says PL board member**\
+`European Leagues and FIFPro filed a formal complaint in October against world football’s governing body at the European Commission.`\
+https://nytimes.com/athletic/6393294/2025/05/30/fifpro-player-workload-fifa/
+
+**Stanley Cup Final odds: Oilers given an early edge against defending champion Panthers**\
+`The Oilers are a very small favorite against the Panthers before the Stanley Cup Final starts next week.`\
+https://nytimes.com/athletic/6393260/2025/05/30/stanley-cup-final-odds-oilers-panthers/
+
+**Lorde’s Anthem of Transformation, and 9 More New Songs**\
+`Hear tracks by Miley Cyrus featuring Brittany Howard, Thom Yorke, Kaitlyn Aurelia Smith and others.`\
+https://nytimes.com/2025/05/30/arts/music/playlist-lorde-miley-cyrus-thom-yorke.html
+
 **Watch Live: Elon Musk and President Trump Deliver Remarks**\
 `Earlier this week, Mr. Musk announced that he was ending his work with the government to spend more time on his companies.`\
 https://nytimes.com/video/us/politics/100000010199139/watch-live-elon-musk-and-president-trump-deliver-remarks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/30/opinion/ice-immigrants-nashville.html
 **Trump Administration Says New York Mascot Ban Violates Civil Rights Law**\
 `After the state forced a Long Island school district to abandon its “Chief” mascot, federal education officials said the policy discriminated against Native Americans.`\
 https://nytimes.com/2025/05/30/nyregion/native-american-mascot-massapequa-trump.html
-
-**Flooding in Nigeria Flattens a Town, Killing at Least 56**\
-`Nigerian authorities said they had expected flooding as part of the rainy season but were surprised by the extent of the damage.`\
-https://nytimes.com/2025/05/30/world/africa/flooding-nigeria-africa-mokwa.html
-
-**Champions League final Q&A with Michael Cox and James Horncastle: Where will PSG-Inter be won and lost?**\
-`The highlights of Michael Cox and James Horncastle's live analysis of the Champions League's Paris Saint-Germain vs nter final`\
-https://nytimes.com/athletic/6393182/2025/05/30/champions-league-final-inter-psg-horncastle-cox/
-
-**U.S. tennis president Lew Sherr to leave USTA for New York Mets**\
-`Sherr led an overhaul of the U.S. player development program and the coming renovation of Arthur Ashe Stadium at the U.S. Open.`\
-https://nytimes.com/athletic/6393368/2025/05/30/lew-sherr-usta-tennis-new-york-mets/
 
