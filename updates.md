@@ -1,3 +1,7 @@
+**Jonathan Aranda, Jacob Wilson and more top waiver wire adds for fantasy baseball**\
+`Owen Poindexter weighs in on the most added hitting and pitching options this week on the fantasy baseball waiver wire.`\
+https://nytimes.com/athletic/6391603/2025/05/30/fantasy-baseball-waiver-wire-pickups-aranda-wilson/
+
 **Who Should Consider Getting Flood Insurance? These Days, Almost Everyone.**\
 `Inland areas have suffered severe flooding in recent years, experts note. And standard homeowner policies don’t cover flood damage.`\
 https://nytimes.com/2025/05/30/your-money/flood-insurance-homeowners-hurricanes.html
