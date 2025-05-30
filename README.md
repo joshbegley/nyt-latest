@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6393951/2025/05/30/santander-blue-jays-offseason-ad
 https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
 
 **Lions OTAs: Jared Goff-John Morton relationship, more Jameson Williams hype**\
-`While the QB and new OC build build rapport, head coach Dan Campbell dishes on a tough 2025 schedule for the Lions.`\
+`While the QB and new OC build rapport, coach Dan Campbell discusses a tough 2025 schedule for the Lions.`\
 https://nytimes.com/athletic/6393885/2025/05/30/detroit-lions-otas-jared-goff-jameson-williams/
 
 **Reigning major champ Mao Saigo may be proving she's the real deal at the U.S. Open**\
