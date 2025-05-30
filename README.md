@@ -1,3 +1,7 @@
+**Trump’s Tariffs and the Courts**\
+`We explore tariffs and presidential power.`\
+https://nytimes.com/2025/05/30/briefing/trump-tariffs-court-presidential-power.html
+
 **Ukraine Accuses Russia of Stalling Peace Negotiations**\
 `Both Kyiv and Moscow have been maneuvering to set the terms and tempo of any talks to end the fighting.`\
 https://nytimes.com/2025/05/30/world/europe/ukraine-russia-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392255/2025/05/30/kody-clemens-twins-trade-clubhou
 **Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
 `The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
 https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
-
-**A renovated Arrowhead or a dome in Kansas? Inside the Chiefs’ stadium decision looming over the state line**\
-`The Chiefs will soon decide which side of the state line, Missouri or Kansas, they will play their home games after 2030.`\
-https://nytimes.com/athletic/6285464/2025/05/30/chiefs-stadium-decision-arrowhead-missouri-kansas/
 
