@@ -1,3 +1,11 @@
+**Book Club: Read ‘Mrs. Dalloway,’ by Virginia Woolf, with the Book Review**\
+`In June, the Book Review Book Club will read and discuss “Mrs. Dalloway,” Virginia Woolf’s classic novel about one day in the life of an London woman in 1923.`\
+https://nytimes.com/2025/05/30/books/review/mrs-dalloway-virginia-woolf-book-club.html
+
+**Landslide at Quarry in Indonesia Kills at Least 10**\
+`Officials halted rescue operations on Friday evening after poor lighting and the possibility of more landslides put rescue workers at risk.`\
+https://nytimes.com/2025/05/30/world/asia/indonesia-landslide-west-java.html
+
 **Justin Fields says he 'can be great' within retooled Jets: 'Sky's the limit'**\
 `"I think the sky’s the limit for this team, this offense, but we do have a long way to go," Fields said.`\
 https://nytimes.com/athletic/6393036/2025/05/30/justin-fields-jets-offense-potential/
