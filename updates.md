@@ -1,3 +1,15 @@
+**The 6.1.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/30/the-612025-issue
+
+**Crown lawyer presses Carter Hart on players' efforts 'keep her in the room'**\
+`In cross-examination of Carter Hart at Hockey Canada sexual assault trial, prosecutor suggests players took steps "to keep the party going."`\
+https://nytimes.com/athletic/6393225/2025/05/30/hockey-canada-sexual-assault-trial-week-carter-hart-testimony/
+
+**Video Game Union Reaches Deal on Industry-First Contract at Microsoft**\
+`The agreement includes across-the-board wage increases of 13.5 percent.`\
+https://nytimes.com/2025/05/30/business/microsoft-video-game-union.html
+
 **Videogame Union Reaches Deal on Industry-First Contract at Microsoft**\
 `The agreement includes across-the-board wage increases of 13.5 percent.`\
 https://nytimes.com/2025/05/30/business/microsoft-video-game-union.html

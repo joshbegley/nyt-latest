@@ -1,3 +1,11 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 5/30 at 3:00 p.m. ET**\
+`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
+https://nytimes.com/athletic/6393530/2025/05/30/sarris-live-chat-mlb-fantasy-baseball-5-30/
+
+**Why did a Manute Bol basketball card sell for more than $20,000 this week?**\
+`A possible explanation for why a Manute Bol card sold for more than the Michael Jordan card from the same set`\
+https://nytimes.com/athletic/6393208/2025/05/30/manute-bol-fleer-basketball-card/
+
 **The 6.1.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/30/the-612025-issue
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/05/30/magazine/holiday-cards-hodgman.html
 **Denying Visas to Chinese Students Will Backfire on America**\
 `Protecting the borders from espionage is essential. It’s something else to deny students because they are Chinese and hope to pursue a STEM degree in the United States.`\
 https://nytimes.com/2025/05/30/business/china-student-visas-trump.html
-
-**Watch: Knicks stayed alive in Game 5. Can they force a Game 7 vs. Pacers?**\
-`"The Athletic NBA Daily" discussed the New York Knicks' Game 5 win over the Indiana Pacers and what both teams will need to do in Game 6.`\
-https://nytimes.com/athletic/6392956/2025/05/30/knicks-pacers-nba-daily-game-5/
-
-**Byron Buxton, off concussion list, rejoins Twins; Matt Wallner nears return**\
-`Buxton, tied for second on the team in WAR, was hitting .309 in his last 78 plate appearances before sustaining the injury.`\
-https://nytimes.com/athletic/6393458/2025/05/30/byron-buxton-rejoins-twins-concussion-list/
 

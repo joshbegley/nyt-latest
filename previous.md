@@ -1,4 +1,12 @@
-**Videogame Union Reaches Deal on Industry-First Contract at Microsoft**\
+**The 6.1.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/05/30/the-612025-issue
+
+**Crown lawyer presses Carter Hart on players' efforts 'keep her in the room'**\
+`In cross-examination of Carter Hart at Hockey Canada sexual assault trial, prosecutor suggests players took steps "to keep the party going."`\
+https://nytimes.com/athletic/6393225/2025/05/30/hockey-canada-sexual-assault-trial-week-carter-hart-testimony/
+
+**Video Game Union Reaches Deal on Industry-First Contract at Microsoft**\
 `The agreement includes across-the-board wage increases of 13.5 percent.`\
 https://nytimes.com/2025/05/30/business/microsoft-video-game-union.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392956/2025/05/30/knicks-pacers-nba-daily-game-5/
 **Byron Buxton, off concussion list, rejoins Twins; Matt Wallner nears return**\
 `Buxton, tied for second on the team in WAR, was hitting .309 in his last 78 plate appearances before sustaining the injury.`\
 https://nytimes.com/athletic/6393458/2025/05/30/byron-buxton-rejoins-twins-concussion-list/
-
-**FIFA 'far away' from a deal with player's union over football calendar, says PL exec**\
-`European Leagues and FIFPro filed a formal complaint in October against world football’s governing body at the European Commission.`\
-https://nytimes.com/athletic/6393294/2025/05/30/fifpro-player-workload-fifa/
-
-**Stanley Cup Final odds: Oilers given an early edge against defending champion Panthers**\
-`The Oilers are a very small favorite against the Panthers before the Stanley Cup Final starts next week.`\
-https://nytimes.com/athletic/6393260/2025/05/30/stanley-cup-final-odds-oilers-panthers/
 
