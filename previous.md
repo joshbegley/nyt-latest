@@ -1,3 +1,15 @@
+**‘Prognosis Is Good,’ Biden Says in First Remarks About Cancer Diagnosis**\
+`The former president said he was taking a single pill daily to treat aggressive prostate cancer.`\
+https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
+
+**Anthony Santander becomes latest Blue Jays offseason addition to hit the IL**\
+`Every team faces injuries, but not to nearly every player who recently joined the club.`\
+https://nytimes.com/athletic/6393951/2025/05/30/santander-blue-jays-offseason-addition-injured-list/
+
+**Trump to Double Tariffs on Foreign Steel to 50%**\
+`President Trump made the announcement at a U.S. Steel factory outside Pittsburgh.`\
+https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
+
 **Lions OTAs: Jared Goff-John Morton relationship, more Jameson Williams hype**\
 `While the QB and new OC build build rapport, head coach Dan Campbell dishes on a tough 2025 schedule for the Lions.`\
 https://nytimes.com/athletic/6393885/2025/05/30/detroit-lions-otas-jared-goff-jameson-williams/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010200290/alaska-hiker-boulder-crash.html
 **Businessman Accused of Orchestrating Attacks on Journalists**\
 `The journalists, who worked at New Hampshire Public Radio, had investigated claims of sexual misconduct against him.`\
 https://nytimes.com/2025/05/30/business/eric-spofford-new-hampshire-vandalism.html
-
-**Trump Praises Elon Musk in Oval Office Farewell**\
-`The billionaire owner of Tesla and SpaceX stepped down from his role in the Department of Government Efficiency as his term as a special government employee came to an end.`\
-https://nytimes.com/video/us/politics/100000010200007/elon-musk-trump-doge.html
-
-**A defending champion avoids their nemesis before the strangest match so far: French Open recap**\
-`Four-time Roland Garros champion Swiatek will not have to face nemesis Ostapenko at her favorite tournament...`\
-https://nytimes.com/athletic/6392791/2025/05/30/tennis-french-open-recap-swiatek-ostapenko-head-to-head/
-
-**Tigers place Jackson Jobe on IL with flexor strain, promote RHP Dylan Smith**\
-`Jobe's velocity was down in his most recent start, when he allowed three earned runs over 4 2/3 innings against the Giants.`\
-https://nytimes.com/athletic/6393906/2025/05/30/tigers-jackson-jobe-injury-dylan-smith/
 

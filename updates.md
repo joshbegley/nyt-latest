@@ -1,3 +1,15 @@
+**‘Prognosis Is Good,’ Biden Says in First Remarks About Cancer Diagnosis**\
+`The former president said he was taking a single pill daily to treat aggressive prostate cancer.`\
+https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
+
+**Anthony Santander becomes latest Blue Jays offseason addition to hit the IL**\
+`Every team faces injuries, but not to nearly every player who recently joined the club.`\
+https://nytimes.com/athletic/6393951/2025/05/30/santander-blue-jays-offseason-addition-injured-list/
+
+**Trump to Double Tariffs on Foreign Steel to 50%**\
+`President Trump made the announcement at a U.S. Steel factory outside Pittsburgh.`\
+https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
+
 **Lions OTAs: Jared Goff-John Morton relationship, more Jameson Williams hype**\
 `While the QB and new OC build build rapport, head coach Dan Campbell dishes on a tough 2025 schedule for the Lions.`\
 https://nytimes.com/athletic/6393885/2025/05/30/detroit-lions-otas-jared-goff-jameson-williams/
