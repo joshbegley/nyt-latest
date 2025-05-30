@@ -1,3 +1,11 @@
+**Liverpool submit €130m transfer offer for Florian Wirtz**\
+`Wirtz, 22, has emerged as a key target for Liverpool and the Germany international playmaker is keen on a move to Anfield.`\
+https://nytimes.com/athletic/6379410/2025/05/30/liverpool-florian-wirtz-transfer-fee/
+
+**Israel Seeks to Clear Much of Northern Gaza, Warning of Dangerous Combat to Come**\
+`Many in the area have already been displaced at least once during the war and little humanitarian aid is arriving amid widespread hunger.`\
+https://nytimes.com/2025/05/30/world/middleeast/israel-gaza-evacuation-order.html
+
 **Inside the Mets' new outfield ritual: 'That's a Juan thing'**\
 `Soto got the idea from from former teammate Kyle Schwarber, who told him outfielders "should have each other's backs."`\
 https://nytimes.com/athletic/6392239/2025/05/30/mets-juan-soto-outfield-ritual/
