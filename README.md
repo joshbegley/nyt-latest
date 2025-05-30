@@ -1,4 +1,4 @@
-**Bernard Kerik, Disgraced Former Police Commissioner, Dies at 69**\
+**Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69**\
 `Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
 https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
 
