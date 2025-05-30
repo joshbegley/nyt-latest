@@ -1,3 +1,11 @@
+**Smoke From Wildfires in Canada Wafts Into the Upper Midwest**\
+`States across the border issued air advisories about particulate pollution that are expected to last for several days.`\
+https://nytimes.com/2025/05/30/weather/wildfires-canada-smoke.html
+
+**C.D.C. Contradicts Kennedy and Keeps Advice That Children May Get Covid Shots**\
+`Health Secretary Robert F. Kennedy Jr. said Covid shots were coming off the childhood vaccine schedule. A memo sent by the agency Friday contradicted that.`\
+https://nytimes.com/2025/05/30/health/cdc-covid-vaccines-children-pregnant-women.html
+
 **Prime Tire: Farewell to F1’s lab track? Plus, Piastri sets the early pace in Spain**\
 `This is The Athletic’s twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/6393540/2025/05/30/prime-tire-farewell-to-f1s-lab-track-plus-piastri-sets-the-early-pace-in-spain/
