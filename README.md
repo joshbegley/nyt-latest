@@ -1,3 +1,7 @@
+**'Game over': How Connor McDavid rescued the Oilers with one of his best-ever moments**\
+`As the Stars made a major push in Game 5, McDavid scored a memorable game-winning goal.`\
+https://nytimes.com/athletic/6392472/2025/05/30/mcdavid-oilers-goal-stanley-cup/
+
 **Friday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/05/30/briefing/trump-tariffs-uyghurs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388529/2025/05/30/liverpool-unsung-heroes-title-wi
 **West Ham's 2024-25 player of the season: Aaron Wan-Bissaka - defending so good fans stand and applaud**\
 `West Ham had a difficult season but new right-back Wan-Bissaka consistently impressed for them`\
 https://nytimes.com/athletic/6352925/2025/05/30/west-ham-player-aaron-wan-bissaka/
-
-**Crystal Palace's player of the season: Daniel Munoz - the wizard of transitions**\
-`Palace should look forward to their high-energy right wing-back making a name for himself in the Europa League next season`\
-https://nytimes.com/athletic/6384735/2025/05/30/crystal-palace-player-of-the-season-daniel-munoz/
 
