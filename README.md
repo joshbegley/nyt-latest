@@ -1,4 +1,4 @@
-**Alexander-Arnold x Bellingham: The bromance set for new Real Madrid chapter**\
+**Alexander-Arnold x Bellingham: The bromance set for Real Madrid**\
 `The friendship between two of England's best young players adds an intriguing sub-plot to Real Madrid's latest transfer`\
 https://nytimes.com/athletic/6392727/2025/05/30/alexander-arnold-real-madrid-bellingham-bromance/
 
