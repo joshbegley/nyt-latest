@@ -1,3 +1,7 @@
+**Faizan Zaki Wins Spelling Bee**\
+`The 13-year-old champion dropped to the floor after correctly spelling the word “éclaircissement,” taking home the Scripps National Spelling Bee trophy.`\
+https://nytimes.com/video/us/100000010198474/scripps-spelling-bee.html
+
 **History for Chris Sale, struggles for Zack Wheeler, more: 4 Braves takeaways**\
 `Sale passed Randy Johnson as the fastest to notch 2,500 career strikeouts. Key takeaways from Braves-Phillies series.`\
 https://nytimes.com/athletic/6392400/2025/05/30/braves-takeaways-chris-sale-zack-wheeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6390308/2025/05/30/nottingham-forest-conference-lea
 **What led to Arsenal's injury problems this season?**\
 `Are there controllable factors that contributed to Arsenal’s injury issues this season? And if yes, how can they improve on them next time?`\
 https://nytimes.com/athletic/6390171/2025/05/30/arsenal-injuries-arteta-saka/
-
-**Manchester United's other post-season tours - Tottman, parachutist, and an armed robber**\
-`Post-season tours are nothing new for United, who have also visited the U.S, the Caribbean, Australia and Tehran on some eventful trips`\
-https://nytimes.com/athletic/6388977/2025/05/30/manchester-uniteds-other-post-season-tours-tottman-parachutist-and-armed-robber/
 
