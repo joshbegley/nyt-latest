@@ -1,3 +1,7 @@
+**Paris Saint-Germain are in the Champions League final, but has Qatar already won?**\
+`Qatar has hosted a World Cup and on Saturday could win a first Champions League through its ownership of PSG`\
+https://nytimes.com/athletic/6390615/2025/05/30/paris-saint-germain-qatar-champions-league/
+
 **Ranking the favourites for the Ballon d’Or 2025: Has McTominay overtaken Mbappe?**\
 `The top 10 contenders for men's football's biggest individual prize`\
 https://nytimes.com/athletic/6385255/2025/05/30/ranking-the-favourites-for-the-ballon-dor-2025-has-mctominay-overtaken-mbappe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/style/modern-love-we-had-to-break-up-he-refused.h
 **Bonding Over Politics and ‘Tiger King’**\
 `Eloisa Melendez was on the Norwalk City Council when Justin Papp, a reporter, first covered it. When Covid hit they joked about Netflix’ shows on Zoom.`\
 https://nytimes.com/2025/05/30/style/eloisa-melendez-justin-papp-wedding.html
-
-**Their Rule While Dating: No Movies or Restaurants**\
-`Jennifer Mills and Jonathan Ritzman, longtime acquaintances, had their first date in 2023, “and things just grew and grew,” Mr. Ritzman said of their evolving relationship.`\
-https://nytimes.com/2025/05/30/style/jennifer-mills-jonathan-ritzman-wedding.html
 

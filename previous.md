@@ -1,40 +1,40 @@
-**Lazerus: By pulling Jake Oettinger, Pete DeBoer tried to spark the Stars. Instead, he burned them**\
-`DeBoer didn't back down from the goalie swap, saying the "status quo had not been working."`\
-https://nytimes.com/athletic/6392382/2025/05/29/oettinger-deboer-stars-game-5/
+**Ranking the favourites for the Ballon d’Or 2025: Has McTominay overtaken Mbappe?**\
+`The top 10 contenders for men's football's biggest individual prize`\
+https://nytimes.com/athletic/6385255/2025/05/30/ranking-the-favourites-for-the-ballon-dor-2025-has-mctominay-overtaken-mbappe/
 
-**Pro-Trump Kennedy Center Executive Says He Was Fired**\
-`Floyd Brown said his dismissal happened about two hours after CNN contacted him for comment on his past statements on homosexuality and marriage.`\
-https://nytimes.com/2025/05/29/us/politics/kennedy-center-executive-fired.html
+**Delap to Chelsea: How he plays, how he'll fit in and what he'll bring to Maresca's side**\
+`Chelsea have agreed terms for the transfer of Liam Delap from Ipswich Town`\
+https://nytimes.com/athletic/6391033/2025/05/30/liam-delap-transfer-chelsea-latest-analysis/
 
-**NBA playoffs takeaways: Jalen Brunson-led Knicks top Pacers, force Game 6**\
-`With their season on the line, the Knicks came out desperate and beat the Pacers 111-94 Thursday night at Madison Square Garden. `\
-https://nytimes.com/athletic/6392109/2025/05/29/nba-playoffs-takeaways-pacers-knicks-game-5/
+**In South Korea, Desperate Workers Take Their Grievances Into the Sky**\
+`The plight of temporary workers like Kim Hyoung-su, who’s been protesting for months at the top of a tower, has become an issue in Tuesday’s presidential election.`\
+https://nytimes.com/2025/05/30/world/asia/south-korea-labor-election.html
 
-**Oilers ride fast start to Game 5 win, return to Stanley Cup Final: Takeaways**\
-`Edmonton took a 3-0 lead, held on to win 6-3 and earned a championship rematch against the Florida Panthers.`\
-https://nytimes.com/athletic/6392310/2025/05/29/oilers-stars-stanley-cup-final/
+**Quote of the Day: The Toilet That Won the Heart of Japan**\
+`Quotation of the Day for Friday, May 30, 2025.`\
+https://nytimes.com/2025/05/30/pageoneplus/quote-of-the-day-the-toilet-that-won-the-heart-of-japan.html
 
-**Filled With Bad Words**\
-`Just kidding — Rafael Musa gives us the good words.`\
-https://nytimes.com/2025/05/29/crosswords/daily-puzzle-2025-05-30.html
+**Under Pressure From China, Myanmar Rebels Cede Hard-Won Territory**\
+`Beijing has intervened significantly in Myanmar’s civil war to protect its substantial investments in the country, handing a setback to resistance forces.`\
+https://nytimes.com/2025/05/30/world/asia/china-myanmar-rebels-withdraw-lashio.html
 
-**Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69**\
-`His meteoric rise to become New York City’s chief law enforcement officer was later tarnished after he pleaded guilty to federal corruption and tax crimes.`\
-https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
+**Twisty Path to a Deal: Is Nippon Steel Finally About to Land U.S. Steel?**\
+`A planned merger of the Japanese and American giants, announced in 2023, has traveled through an election, two presidents and strong union opposition.`\
+https://nytimes.com/2025/05/30/business/nippon-steel-us-steel-trump.html
 
-**‘And Just Like That …’ Season 3 Premiere Recap: Outlook Good**\
-`The new season opener found most of the women prioritizing their men’s needs over their own. That didn’t seem likely to last.`\
-https://nytimes.com/2025/05/29/arts/television/and-just-like-that-recap-season-3-premiere.html
+**Corrections: May 30, 2025**\
+`Corrections that appeared in print on Friday, May 30, 2025.`\
+https://nytimes.com/2025/05/30/pageoneplus/corrections-may-30-2025.html
 
-**Trump Nominates a Former Far-Right Podcast Host to Head an Ethics Watchdog**\
-`The president picked Paul Ingrassia, the current White House liaison to the Department of Homeland Security, to lead the Office of Special Counsel, which examines public corruption.`\
-https://nytimes.com/2025/05/29/us/politics/ingrassia-office-special-counsel.html
+**We Had to Break Up. He Refused.**\
+`“I love you,” I told him, “but this is over.”`\
+https://nytimes.com/2025/05/30/style/modern-love-we-had-to-break-up-he-refused.html
 
-**Angels set to activate Mike Trout after nearly month-long absence with knee injury**\
-`Trout has been on the injured list with a bone bruise in his left knee since May 1.`\
-https://nytimes.com/athletic/6392226/2025/05/29/angels-mike-trout-knee-bruise-update/
+**Bonding Over Politics and ‘Tiger King’**\
+`Eloisa Melendez was on the Norwalk City Council when Justin Papp, a reporter, first covered it. When Covid hit they joked about Netflix’ shows on Zoom.`\
+https://nytimes.com/2025/05/30/style/eloisa-melendez-justin-papp-wedding.html
 
-**Kraken name Lane Lambert as new head coach**\
-`Lambert, the former Islanders head coach and Leafs associate coach, will be the third head coach of a young Seattle franchise.`\
-https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head-coach/
+**Their Rule While Dating: No Movies or Restaurants**\
+`Jennifer Mills and Jonathan Ritzman, longtime acquaintances, had their first date in 2023, “and things just grew and grew,” Mr. Ritzman said of their evolving relationship.`\
+https://nytimes.com/2025/05/30/style/jennifer-mills-jonathan-ritzman-wedding.html
 
