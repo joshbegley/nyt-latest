@@ -1,3 +1,7 @@
+**Real Madrid begin talks to renew teenager Fortea's contract**\
+`Following Arbeloa’s promotion to coach Real Madrid Castilla, both parties are now keen to extend the 18-year-old’s deal. `\
+https://nytimes.com/athletic/6393682/2025/05/30/real-madrid-jesus-foreta-contract-talks/
+
 **Judicial Candidates Try TikTok and Tinder in Mexico’s Sprawling Elections**\
 `For the first time, Mexico will elect judges nationwide, from the highest to the lowest courts. Campaign restrictions pushed many candidates to campaign on social media, sometimes in divisive ways.`\
 https://nytimes.com/2025/05/30/world/americas/mexico-judges-social-media.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/05/30/magazine/lawn-pesticides-chemicals-ethics.html
 https://nytimes.com/2025/05/30/weather/wildfires-canada-smoke.html
 
 **C.D.C. Contradicts Kennedy and Keeps Advice That Children May Get Covid Shots**\
-`Health Secretary Robert F. Kennedy Jr. said Covid shots were coming off the childhood vaccine schedule. A memo sent by the agency Friday contradicted that.`\
+`Health Secretary Robert F. Kennedy Jr. said on Tuesday that the vaccine would no longer appear on the childhood immunization schedule. C.D.C.’s update counters his policy.`\
 https://nytimes.com/2025/05/30/health/cdc-covid-vaccines-children-pregnant-women.html
 
 **Live Q&A: Talking baseball with Eno Sarris on Friday 5/30 at 3:00 p.m. ET**\
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6393208/2025/05/30/manute-bol-fleer-basketball-card
 ``\
 https://nytimes.com/issue/magazine/2025/05/30/the-612025-issue
 
-**Crown lawyer presses Carter Hart on players’ efforts ‘keep her in the room’**\
+**Crown lawyer presses Carter Hart on players’ efforts to ‘keep her in the room’**\
 `In cross-examination of Carter Hart at Hockey Canada sexual assault trial, prosecutor suggests players took steps "to keep the party going."`\
 https://nytimes.com/athletic/6393225/2025/05/30/hockey-canada-sexual-assault-trial-week-carter-hart-testimony/
-
-**Video Game Union Reaches Deal on Industry-First Contract at Microsoft**\
-`The agreement includes across-the-board wage increases of 13.5 percent.`\
-https://nytimes.com/2025/05/30/business/microsoft-video-game-union.html
 
