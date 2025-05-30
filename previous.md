@@ -1,3 +1,7 @@
+**Ukraine Accuses Russia of Stalling Peace Negotiations**\
+`Both Kyiv and Moscow have been maneuvering to set the terms and tempo of any talks to end the fighting.`\
+https://nytimes.com/2025/05/30/world/europe/ukraine-russia-peace-talks.html
+
 **The Athletic FC: Why Delap to Chelsea makes sense, Fernandes' £80m Saudi dilemma**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6392513/2025/05/30/transfers-delap-chelsea-bruno-fernandes-saudi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lengl
 **A renovated Arrowhead or a dome in Kansas? Inside the Chiefs’ stadium decision looming over the state line**\
 `The Chiefs will soon decide which side of the state line, Missouri or Kansas, they will play their home games after 2030.`\
 https://nytimes.com/athletic/6285464/2025/05/30/chiefs-stadium-decision-arrowhead-missouri-kansas/
-
-**Ranking MLB’s 25 best games of the 2000s, from October no-hitters to gripping Game 7s**\
-`There have been more than 60,000 MLB games played since 2000. Which are the wildest, the most memorable, the most thrilling, the best? `\
-https://nytimes.com/athletic/6388908/2025/05/30/best-mlb-games-2000s-ranking/
 

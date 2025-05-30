@@ -1,3 +1,7 @@
+**Ukraine Accuses Russia of Stalling Peace Negotiations**\
+`Both Kyiv and Moscow have been maneuvering to set the terms and tempo of any talks to end the fighting.`\
+https://nytimes.com/2025/05/30/world/europe/ukraine-russia-peace-talks.html
+
 **The Athletic FC: Why Delap to Chelsea makes sense, Fernandes' £80m Saudi dilemma**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox.`\
 https://nytimes.com/athletic/6392513/2025/05/30/transfers-delap-chelsea-bruno-fernandes-saudi/
