@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
 `Every team faces injuries, but not to nearly every player who recently joined the club.`\
 https://nytimes.com/athletic/6393951/2025/05/30/santander-blue-jays-offseason-addition-injured-list/
 
-**Trump to Double Tariffs on Foreign Steel to 50%**\
+**Trump Pledges to Double Tariffs on Foreign Steel to 50%**\
 `President Trump made the announcement at a U.S. Steel factory outside Pittsburgh.`\
 https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
 
