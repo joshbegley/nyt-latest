@@ -1,3 +1,19 @@
+**London Brings Its Own Musical Touch to South by Southwest**\
+`The festival, which has a long association with music, presents an opportunity for London acts to perform on a bigger stage.`\
+https://nytimes.com/2025/05/30/arts/music/sxsw-london-music-shoreditch.html
+
+**A ‘Nurse Action Movie’ Might Be Different, but That’s the Point**\
+`From TV series to art house films, Leonie Benesch brings a quiet intensity to the screen, including her latest movie.`\
+https://nytimes.com/2025/05/30/movies/leonie-benesch-nurse-night-shift.html
+
+**For This Director, Iranian Films Can Be About More Than Despair**\
+`Amirali Navaee’s new film, “Sunshine Express,” screening next at South by Southwest London, is a project more focused on hope than politics.`\
+https://nytimes.com/2025/05/30/movies/sxsw-london-amirali-navaee.html
+
+**Islamic State Says It Targeted Syrian Forces in Bombings**\
+`The extremist group claimed responsibility for two attacks, its first against the new government since the fall of Bashar al-Assad, a war monitoring group said.`\
+https://nytimes.com/2025/05/30/world/middleeast/islamic-state-attacks-syria.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include a Chinese martial arts movie, an Indonesian political thriller, a documentary about a Norwegian family that stumbles upon a long-hidden secret and more.`\
 https://nytimes.com/2025/05/30/movies/international-movies-streaming.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6382886/2025/05/30/inside-blackburn-rovers-women-re
 **Supreme Court Allows Trump Administration, for Now, to End Biden-Era Migrant Program**\
 `The Trump administration had asked the court to allow it to end deportation protections for more than 500,000 people facing dire humanitarian crises in their home countries.`\
 https://nytimes.com/2025/05/30/us/politics/trump-immigration-supreme-court.html
-
-**Judge Hears Final Arguments on How to Fix Google’s Search Monopoly**\
-`A judge queried lawyers during closing arguments on Friday about how A.I. should factor into his decision, which is expected by August.`\
-https://nytimes.com/2025/05/30/technology/google-search-antitrust-chrome.html
-
-**U.S. Oil Companies Are ‘Battening Down the Hatches’**\
-`The industry is bracing for the OPEC Plus oil cartel’s meeting on Saturday, which is widely expected to further increase oil production despite weak demand.`\
-https://nytimes.com/2025/05/30/business/energy-environment/oil-companies-production-prices-opec.html
-
-**The Bounce: 3 questions about Knicks' ability to pull off 3-1 comeback against Pacers**\
-`Although the odds favor the Pacers to reach the NBA Finals, could the Knicks pull off a surprise comeback?`\
-https://nytimes.com/athletic/6393002/2025/05/30/knicks-pacers-east-finals-playoffs-nba-the-bounce/
-
-**Vikings, general manager Kwesi Adofo-Mensah agree to multiyear extension**\
-`The deal comes four months after the Vikings agreed to terms on a new contract with head coach Kevin O’Connell.`\
-https://nytimes.com/athletic/6113354/2025/05/30/kwesi-adofo-mensah-vikings-gm-extension/
 
