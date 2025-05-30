@@ -1,3 +1,11 @@
+**Phillies takeaways: Zack Wheeler vs. Braves, Rafael Marchan's big day, bullpen tryouts**\
+`Over 16 starts against Atlanta from 2020-24, Wheeler owned a 2.07 ERA in 104 1/3 innings. This season has been a different story. `\
+https://nytimes.com/athletic/6392428/2025/05/30/phillies-takeaways-zack-wheeler-vs-braves-rafael-marchans-big-day-bullpen-tryouts/
+
+**Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
+`The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
+https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
+
 **After 'surprise' DFA, Kody Clemens quickly made Twins' clubhouse feel like home**\
 `Though he arrived in a trade from the Phillies in April, Clemens' new teammates talk as he's long been a fixture in the Twins' clubhouse.`\
 https://nytimes.com/athletic/6392255/2025/05/30/kody-clemens-twins-trade-clubhouse/
