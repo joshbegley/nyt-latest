@@ -1,3 +1,11 @@
+**Bernard Kerik, Disgraced Former Police Commissioner, Dies at 69**\
+`Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
+https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
+
+**‘And Just Like That …’ Season 3 Premiere Recap: Outlook Good**\
+`The new season opener found most of the women prioritizing their men’s needs over their own. That didn’t seem likely to last.`\
+https://nytimes.com/2025/05/29/arts/television/and-just-like-that-recap-season-3-premiere.html
+
 **Trump Nominates a Former Far-Right Podcast Host to Head an Ethics Watchdog**\
 `The president picked Paul Ingrassia, the current White House liaison to the Department of Homeland Security, to lead the Office of Special Counsel, which examines public corruption.`\
 https://nytimes.com/2025/05/29/us/politics/ingrassia-office-special-counsel.html

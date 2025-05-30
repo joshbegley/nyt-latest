@@ -1,3 +1,11 @@
+**Bernard Kerik, Disgraced Former Police Commissioner, Dies at 69**\
+`Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
+https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
+
+**‘And Just Like That …’ Season 3 Premiere Recap: Outlook Good**\
+`The new season opener found most of the women prioritizing their men’s needs over their own. That didn’t seem likely to last.`\
+https://nytimes.com/2025/05/29/arts/television/and-just-like-that-recap-season-3-premiere.html
+
 **Trump Nominates a Former Far-Right Podcast Host to Head an Ethics Watchdog**\
 `The president picked Paul Ingrassia, the current White House liaison to the Department of Homeland Security, to lead the Office of Special Counsel, which examines public corruption.`\
 https://nytimes.com/2025/05/29/us/politics/ingrassia-office-special-counsel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392119/2025/05/29/ea-sports-college-football-26-5-
 **Chinese Students Rattled by Trump Plan to ‘Aggressively’ Revoke Visas**\
 `Students said the latest move had upended their plans and intensified their fears.`\
 https://nytimes.com/2025/05/29/us/politics/chinese-students-rattled-by-trump-plan-to-aggressively-revoke-visas.html
-
-**S.E.C. Drops Lawsuit Against Binance, a Crypto Exchange**\
-`The dismissal of charges against Binance and its founder, Changpeng Zhao, is the Trump administration’s latest pullback in cryptocurrency enforcement.`\
-https://nytimes.com/2025/05/29/business/sec-binance-lawsuit-dropped.html
-
-**No. 2 Oklahoma beats No. 7 Tennessee on walk-off homer in WCWS**\
-`Oklahoma has yet to lose a game in this year's playoffs as it vies for its fifth straight title.`\
-https://nytimes.com/athletic/6391984/2025/05/29/oklahoma-tennessee-womens-college-world-series-results/
 
