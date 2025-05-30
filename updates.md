@@ -1,3 +1,15 @@
+**Assessing Trump’s Send-Off for Elon Musk**\
+`An Oval Office news conference signaled an end to a remarkable period of upheaval across the federal bureaucracy, supervised by Mr. Musk and his cost-cutting initiative.`\
+https://nytimes.com/2025/05/30/us/politics/fact-check-elon-musk-trump.html
+
+**Phillies' Bryce Harper does not expect IL stint after hit-by-pitch**\
+`Including Friday night's scheduled contest, Harper has missed three games after taking an errant 95 mph fastball to the elbow.`\
+https://nytimes.com/athletic/6393911/2025/05/30/phillies-bryce-harper-does-not-expect-il-stint-after-hit-by-pitch/
+
+**Trump Praises Elon Musk in Oval Office Farewell**\
+`The billionaire owner of Tesla and SpaceX stepped down from his role in the Department of Government Efficiency as his term as a special government employee came to an end.`\
+https://nytimes.com/video/us/politics/100000010200007/elon-musk-trump-doge.html
+
 **Hiker Survives After He’s Struck by 700-Pound Boulder**\
 `A 61-year-old man was airlifted to safety after he survived a 700-pound boulder crashing into him on a hike in Alaska.`\
 https://nytimes.com/video/us/100000010200290/alaska-hiker-boulder-crash.html
