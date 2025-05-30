@@ -1,3 +1,7 @@
+**Justin Fields says he 'can be great' within retooled Jets: 'Sky's the limit'**\
+`"I think the sky’s the limit for this team, this offense, but we do have a long way to go," Fields said.`\
+https://nytimes.com/athletic/6393036/2025/05/30/justin-fields-jets-offense-potential/
+
 **British Man Appears in Court Over Liverpool Car Ramming**\
 `Paul Doyle is accused of deliberately driving his vehicle into crowds in Liverpool, northwestern England, injuring 79 people, including four children.`\
 https://nytimes.com/2025/05/30/world/europe/uk-liverpool-car-ramming-paul-doyle.html
