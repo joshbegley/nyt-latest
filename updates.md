@@ -1,3 +1,11 @@
+**'Game over': How Connor McDavid rescued the Oilers with one of his best-ever moments**\
+`As the Stars made a major push in Game 5, McDavid scored a memorable game-winning goal.`\
+https://nytimes.com/athletic/6392472/2025/05/30/mcdavid-oilers-goal-stanley-cup/
+
+**The U.S. Deported This Chinese Scientist, in a Decision That Changed World History**\
+`Qian Xuesen was a Chinese rocket scientist whose work was central to American military power. His exile had world-altering effects.`\
+https://nytimes.com/2025/05/30/opinion/visas-china-rockets-scientist-technology.html
+
 **Friday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/05/30/briefing/trump-tariffs-uyghurs.html
