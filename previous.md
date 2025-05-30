@@ -1,5 +1,5 @@
 **No. 2 Oklahoma beats No. 7 Tennessee on walk-off homer in WCWS**\
-`Oklahoma has yet to lose a game in this year's playoffs as it vyes for its fifth straight title.`\
+`Oklahoma has yet to lose a game in this year's playoffs as it vies for its fifth straight title.`\
 https://nytimes.com/athletic/6391984/2025/05/29/oklahoma-tennessee-womens-college-world-series-results/
 
 **Musk Leaves Washington Behind but With Powerful Friends in Place**\
