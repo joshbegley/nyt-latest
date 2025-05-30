@@ -1,3 +1,7 @@
+**How ICE Is Seeking to Ramp Up Deportations Through Courthouse Arrests**\
+`Officials had largely steered clear of arrests at immigration courts out of concern that they would deter people from showing up for hearings.`\
+https://nytimes.com/2025/05/30/us/politics/ice-courthouse-arrests.html
+
 **‘No one will trust this club again’: Tears, anger and the fall of Blackburn Rovers Women**\
 `On Tuesday, May 20, Blackburn Rovers announced their senior women’s team were to be demoted from Women’s Super League 2`\
 https://nytimes.com/athletic/6382886/2025/05/30/inside-blackburn-rovers-women-relegation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/books/review/mrs-dalloway-virginia-woolf-book-clu
 **Landslide at Quarry in Indonesia Kills at Least 10**\
 `Officials halted rescue operations on Friday evening after poor lighting and the possibility of more landslides put rescue workers at risk.`\
 https://nytimes.com/2025/05/30/world/asia/indonesia-landslide-west-java.html
-
-**Justin Fields says he 'can be great' within retooled Jets: 'Sky's the limit'**\
-`"I think the sky’s the limit for this team, this offense, but we do have a long way to go," Fields said.`\
-https://nytimes.com/athletic/6393036/2025/05/30/justin-fields-jets-offense-potential/
 

@@ -1,3 +1,7 @@
+**How ICE Is Seeking to Ramp Up Deportations Through Courthouse Arrests**\
+`Officials had largely steered clear of arrests at immigration courts out of concern that they would deter people from showing up for hearings.`\
+https://nytimes.com/2025/05/30/us/politics/ice-courthouse-arrests.html
+
 **‘No one will trust this club again’: Tears, anger and the fall of Blackburn Rovers Women**\
 `On Tuesday, May 20, Blackburn Rovers announced their senior women’s team were to be demoted from Women’s Super League 2`\
 https://nytimes.com/athletic/6382886/2025/05/30/inside-blackburn-rovers-women-relegation/
