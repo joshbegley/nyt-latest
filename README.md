@@ -1,3 +1,7 @@
+**Filled With Bad Words**\
+`Just kidding — Rafael Musa gives us the good words.`\
+https://nytimes.com/2025/05/29/crosswords/daily-puzzle-2025-05-30.html
+
 **Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69**\
 `Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
 https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392118/2025/05/29/christian-mccaffrey-san-francisc
 **EA Sports College Football 26: The 5 biggest changes in game's new version**\
 `From real coaches to dynasty cross-play, EA Sports College Football 26 comes with several interesting and fun tweaks.`\
 https://nytimes.com/athletic/6392119/2025/05/29/ea-sports-college-football-26-5-big-changes/
-
-**Chinese Students Rattled by Trump Plan to ‘Aggressively’ Revoke Visas**\
-`Students said the latest move had upended their plans and intensified their fears.`\
-https://nytimes.com/2025/05/29/us/politics/chinese-students-rattled-by-trump-plan-to-aggressively-revoke-visas.html
 
