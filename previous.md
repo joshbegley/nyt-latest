@@ -1,3 +1,7 @@
+**Do You Need to Send a Holiday Card to Receive One?**\
+`A ruling on what it takes to get knocked off the list.`\
+https://nytimes.com/interactive/2025/05/30/magazine/holiday-cards-hodgman.html
+
 **Denying Visas to Chinese Students Will Backfire on America**\
 `Protecting the borders from espionage is essential. It’s something else to deny students because they are Chinese and hope to pursue a STEM degree in the United States.`\
 https://nytimes.com/2025/05/30/business/china-student-visas-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/world/europe/france-macron-israel-netanyahu.html
 **Book Club: Let’s Talk About ‘The Safekeep’**\
 `Yael van der Wouden’s novel, shortlisted for the 2024 Booker Prize, is the topic of this month’s discussion.`\
 https://nytimes.com/2025/05/30/books/review/podcast-the-safekeep-book-club.html
-
-**Flash Floods Kill Dozens in Western Nigeria**\
-`Torrential rainfall triggered devastating floods in a western Nigerian town, according to local officials, who said the severity of the flood had taken them by surprise.`\
-https://nytimes.com/video/world/africa/100000010199339/nigeria-deadly-flash-floods.html
 

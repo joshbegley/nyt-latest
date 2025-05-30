@@ -1,3 +1,7 @@
+**Do You Need to Send a Holiday Card to Receive One?**\
+`A ruling on what it takes to get knocked off the list.`\
+https://nytimes.com/interactive/2025/05/30/magazine/holiday-cards-hodgman.html
+
 **Denying Visas to Chinese Students Will Backfire on America**\
 `Protecting the borders from espionage is essential. It’s something else to deny students because they are Chinese and hope to pursue a STEM degree in the United States.`\
 https://nytimes.com/2025/05/30/business/china-student-visas-trump.html
