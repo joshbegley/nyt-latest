@@ -1,4 +1,8 @@
-**Mar-a-Lago on the Potomac: the Meaning of MAGA Style**\
+**George E. Smith, Nobel Winner Who Created a Digital Eye, Dies at 95**\
+`Together with Willard S. Boyle, he invented an imaging device that is an essential part of nearly every telescope, photocopier and digital camera used today.`\
+https://nytimes.com/2025/05/30/science/george-e-smith-dead.html
+
+**Mar-a-Lago on the Potomac: The Meaning of MAGA Style**\
 `The Times’s chief fashion critic unravels the Trump-inspired style that has spread quickly across Washington.`\
 https://nytimes.com/2025/05/30/us/politics/trump-maga-style.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393885/2025/05/30/detroit-lions-otas-jared-goff-ja
 **Reigning major champ Mao Saigo may be proving she's the real deal at the U.S. Open**\
 `Saigo wants to play her way. And Friday, she was indeed a thrilling watch.`\
 https://nytimes.com/athletic/6393896/2025/05/30/mao-saigo-real-deal-us-open/
-
-**A Bruised Musk Leaves Washington: Takeaways From the Trump News Conference**\
-`President Trump gave Elon Musk a send-off in the Oval Office.`\
-https://nytimes.com/2025/05/30/us/politics/trump-elon-musk-takeaways.html
 
