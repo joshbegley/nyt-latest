@@ -1,3 +1,11 @@
+**Fed’s Preferred Inflation Gauge Subdued in April as Spending Slows**\
+`The Federal Reserve has put interest rate cuts on hold until it has more clarity about President Trump’s policies.`\
+https://nytimes.com/2025/05/30/business/fed-inflation-consumer-spending.html
+
+**The Athletic Hockey Show NHL Draft debate: A collaborative — and combative — ranking**\
+`What happens when four prospect analysts have to form a list via debate, persuasion and compromise? The Athletic Hockey Show found out.`\
+https://nytimes.com/athletic/6391668/2025/05/30/nhl-draft-2025-top-prospects-ranking-podcast/
+
 **West Ham fined £120,000 after homophobic chanting against Chelsea**\
 `An investigation into the incident suggested a "very significant number" of supporters in the West Ham section had been involved.`\
 https://nytimes.com/athletic/6392858/2025/05/30/west-ham-chelsea-homophobic-chanting/

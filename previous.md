@@ -1,3 +1,11 @@
+**Fed’s Preferred Inflation Gauge Subdued in April as Spending Slows**\
+`The Federal Reserve has put interest rate cuts on hold until it has more clarity about President Trump’s policies.`\
+https://nytimes.com/2025/05/30/business/fed-inflation-consumer-spending.html
+
+**The Athletic Hockey Show NHL Draft debate: A collaborative — and combative — ranking**\
+`What happens when four prospect analysts have to form a list via debate, persuasion and compromise? The Athletic Hockey Show found out.`\
+https://nytimes.com/athletic/6391668/2025/05/30/nhl-draft-2025-top-prospects-ranking-podcast/
+
 **West Ham fined £120,000 after homophobic chanting against Chelsea**\
 `An investigation into the incident suggested a "very significant number" of supporters in the West Ham section had been involved.`\
 https://nytimes.com/athletic/6392858/2025/05/30/west-ham-chelsea-homophobic-chanting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392262/2025/05/30/carolina-hurricanes-offseason-tr
 **Ousmane Dembele, the 'paranormal' PSG talent who knows all about the Bolsheviks**\
 `Dembele has been a driving force behind PSG's run to the Champions League final, having rejuvenated his career under Luis Enrique`\
 https://nytimes.com/athletic/6390558/2025/05/30/ousmane-dembele-psg-champions-league/
-
-**What we saw from the Sabres' prospects during Rochester's AHL playoff run**\
-`The Amerks lost to Laval in the Calder Cup playoffs, but it was another strong season for Buffalo's AHL affiliate.`\
-https://nytimes.com/athletic/6390894/2025/05/30/buffalo-sabres-prospects-rochester-americans-playoffs-2025/
-
-**How Oli Marmol balances development and playing time during Cardinals' torrid May**\
-`Alec Burleson and Iván Herrera are among the Cardinals players who have knocked down the door for more at-bats.`\
-https://nytimes.com/athletic/6391318/2025/05/30/cardinals-oli-marmol-playing-time/
 
