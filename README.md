@@ -1,3 +1,7 @@
+**Ohio State roster audit: What to expect from every defensive player**\
+`Here are 46 thoughts on Ohio State’s 46 scholarship defensive and special teams players entering the 2025 season.`\
+https://nytimes.com/athletic/6390637/2025/05/30/ohio-state-football-defense-roster-2025/
+
 **Conte decides to stay at Napoli after winning Serie A**\
 `Napoli clinched their second league title in three seasons last Friday, beating Inter by a point.`\
 https://nytimes.com/athletic/6341927/2025/05/30/antonio-conte-napoli-manager-stays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391389/2025/05/30/mets-quarter-century-team/
 **Mirtle: The NHL’s Sun Belt ‘problem’ has no easy solution. But does it need one?**\
 `Warm-weather teams are decidedly on the upswing in recent seasons, shaping the NHL's present and future in obvious and subtle ways.`\
 https://nytimes.com/athletic/6391469/2025/05/30/nhl-stanley-cup-playoffs-sunbelt-mirtle/
-
-**Retaking the 5th: Dodgers, Yankees recount the inning that swung the World Series**\
-`The Yankees' ill-fated 5-0 lead in Game 5 remains fresh as the teams gear up for a regular-season rematch in Los Angeles.`\
-https://nytimes.com/athletic/6391520/2025/05/30/dodgers-yankees-world-series-game-5-rewind/
 

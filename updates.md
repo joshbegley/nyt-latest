@@ -1,3 +1,11 @@
+**Conte decides to stay at Napoli after winning Serie A**\
+`Napoli clinched their second league title in three seasons last Friday, beating Inter by a point.`\
+https://nytimes.com/athletic/6341927/2025/05/30/antonio-conte-napoli-manager-stays/
+
+**Pacers remain confident despite Game 5 dud vs. Knicks: 'We just weren't us'**\
+`After its worst shooting performance of this year's playoffs, Indiana heads home for a pivotal Game 6 on Saturday.`\
+https://nytimes.com/athletic/6392518/2025/05/30/pacers-game-5-knicks-east-finals-loss-haliburton/
+
 **‘Bellwether of Risks’: What ‘Buy Now, Pay Later’ Defaults Say About the Consumer**\
 `An increase in deferred pay-later loans has raised alarms, as the Trump administration seeks to gut the agency tasked with policing the sector.`\
 https://nytimes.com/2025/05/30/business/dealbook/buy-now-pay-later-defaults.html
