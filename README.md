@@ -1,3 +1,11 @@
+**French Open head Mauresmo 'will not accept' criticism of night session scheduling**\
+`The French Open tournament director says match length is why the event has not a women's match in the night session since 2023.`\
+https://nytimes.com/athletic/6392699/2025/05/30/tennis-french-open-night-session-womens-matches-schedule/
+
+**Brentford reject Leverkusen bid of around €9m for Flekken**\
+`Brentford are open to selling the Netherlands international but value him at closer to €13m and want to secure a replacement first.`\
+https://nytimes.com/athletic/6392843/2025/05/30/mark-flekken-brentford-leverkusen-bid/
+
 **Alexander-Arnold x Bellingham: The bromance set for Real Madrid**\
 `The friendship between two of England's best young players adds an intriguing sub-plot to Real Madrid's latest transfer`\
 https://nytimes.com/athletic/6392727/2025/05/30/alexander-arnold-real-madrid-bellingham-bromance/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/business/dealbook/buy-now-pay-later-defaults.html
 **Yordan Alvarez's expected return to Astros' lineup prompts questions**\
 `Whether Alvarez can play pain-free, or where he will hit within a surging batting order, is unknown as he seems near to a potential return.`\
 https://nytimes.com/athletic/6392235/2025/05/30/yordan-alvarez-astros-lineup-questions/
-
-**Listen: Did Conference League victory signify a coming-of-age moment for Chelsea?**\
-`The Athletic FC Podcast discuss whether Chelsea's strong end to the season makes them contenders in 2025-26`\
-https://nytimes.com/athletic/6392559/2025/05/30/did-conference-league-victory-signify-a-coming-of-age-moment-for-chelsea/
-
-**The Athletic’s Friday football quiz question #57**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6391316/2025/05/30/the-athletics-friday-football-quiz-question-57/
 
