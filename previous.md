@@ -1,3 +1,15 @@
+**Smokey Robinson Faced a Sexual Assault Allegation in 2015**\
+`No charges were filed because of what the authorities said was insufficient evidence. The singer has been accused in a lawsuit of sexually abusing four women, which he denies.`\
+https://nytimes.com/2025/05/30/arts/music/smokey-robinson-sexual-assault-allegation.html
+
+**Yasunao Tone, Composer Whose Métier Was ‘Anti-Music,’ Dies at 90**\
+`A Japanese-born multimedia artist whose associates included John Cage and Yoko Ono, he pushed digital music past its breaking point.`\
+https://nytimes.com/2025/05/30/arts/music/yasunao-tone-dead.html
+
+**Trump Says He Fired Director of National Portrait Gallery, Citing D.E.I.**\
+`Kim Sajet, the director of the Smithsonian museum for more than 12 years, has tried to bring in more contemporary artists.`\
+https://nytimes.com/2025/05/30/arts/design/trump-smithsonian-kim-sajet-fired.html
+
 **Recipe for Home Ownership: How to Make a House Into a Home**\
 `Progressive Insurance launches dinner-themed video series to support first generation homebuyers.`\
 https://nytimes.com/paidpost/progressive/progressive-30106802/recipe-for-home-ownership-how-to-make-a-house-into-a-home.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/30/us/washington-bees-escape-truck-crash.html
 **USWNT approaches next phase of development under Emma Hayes**\
 `Hayes praised her "great group of senior players" who have continued to establish benchmarks for newcomers to meet.`\
 https://nytimes.com/athletic/6393497/2025/05/30/emma-hayes-uswnt-on-track-development-deadline/
-
-**Flashback: Your Weekly History Quiz, May 31, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/05/30/upshot/flashback.html
-
-**Watch: Tobin Heath talks World Sevens Football with 'Full Time'**\
-`"Full Time" sat down with Tobin Heath to discuss the future of World Sevens Football (W7F) and what might come next.`\
-https://nytimes.com/athletic/6392670/2025/05/30/tobin-heath-world-sevens-football-uswnt-full-time/
-
-**PBS Sues Trump Over Order to Cut Funding**\
-`The lawsuit, filed in federal court in Washington by PBS and a Minnesota public TV station, said President Trump’s executive order was unconstitutional.`\
-https://nytimes.com/2025/05/30/business/media/pbs-trump-lawsuit-funding.html
 

@@ -1,3 +1,15 @@
+**Smokey Robinson Faced a Sexual Assault Allegation in 2015**\
+`No charges were filed because of what the authorities said was insufficient evidence. The singer has been accused in a lawsuit of sexually abusing four women, which he denies.`\
+https://nytimes.com/2025/05/30/arts/music/smokey-robinson-sexual-assault-allegation.html
+
+**Yasunao Tone, Composer Whose Métier Was ‘Anti-Music,’ Dies at 90**\
+`A Japanese-born multimedia artist whose associates included John Cage and Yoko Ono, he pushed digital music past its breaking point.`\
+https://nytimes.com/2025/05/30/arts/music/yasunao-tone-dead.html
+
+**Trump Says He Fired Director of National Portrait Gallery, Citing D.E.I.**\
+`Kim Sajet, the director of the Smithsonian museum for more than 12 years, has tried to bring in more contemporary artists.`\
+https://nytimes.com/2025/05/30/arts/design/trump-smithsonian-kim-sajet-fired.html
+
 **Recipe for Home Ownership: How to Make a House Into a Home**\
 `Progressive Insurance launches dinner-themed video series to support first generation homebuyers.`\
 https://nytimes.com/paidpost/progressive/progressive-30106802/recipe-for-home-ownership-how-to-make-a-house-into-a-home.html
