@@ -1,6 +1,14 @@
+**Phillies takeaways: Zack Wheeler vs. Braves, Rafael Marchan's big day, bullpen tryouts**\
+`Over 16 starts against Atlanta from 2020-24, Wheeler owned a 2.07 ERA in 104 1/3 innings. This season has been a different story. `\
+https://nytimes.com/athletic/6392428/2025/05/30/phillies-takeaways-zack-wheeler-vs-braves-rafael-marchans-big-day-bullpen-tryouts/
+
 **After 'surprise' DFA, Kody Clemens quickly made Twins' clubhouse feel like home**\
 `Though he arrived in a trade from the Phillies in April, Clemens' new teammates talk as he's long been a fixture in the Twins' clubhouse.`\
 https://nytimes.com/athletic/6392255/2025/05/30/kody-clemens-twins-trade-clubhouse/
+
+**Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
+`The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
+https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
 
 **A renovated Arrowhead or a dome in Kansas? Inside the Chiefs’ stadium decision looming over the state line**\
 `The Chiefs will soon decide which side of the state line, Missouri or Kansas, they will play their home games after 2030.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391916/2025/05/30/timberwolves-future-ownership-nb
 **A New York pizzeria offers slice of home for Napoli's title celebration**\
 `Napoli's Serie A title triumph sparked an outpouring of joy, all the way across the globe in New York City`\
 https://nytimes.com/athletic/6391458/2025/05/30/napoli-serie-a-title-ribalta-pizza-new-york-city/
-
-**Merging old school grind with new ways of thinking, the Detroit Tigers are here to stay**\
-`The Tigers do things a little bit differently, and now they've combined that edge with a focused determination to surpass last season.  `\
-https://nytimes.com/athletic/6391740/2025/05/30/tigers-first-place-skubal-greene-hinch/
-
-**Recruiting thoughts: Clemson's surge, QB dominoes, New York's elite prospect**\
-`What's with Florida's slow start? Is Notre Dame commit Thomas Davis Jr. a threat to flip to Georgia? When will Alabama and LSU land QBs?`\
-https://nytimes.com/athletic/6391433/2025/05/30/college-football-recruiting-june-visits-clemson/
 
