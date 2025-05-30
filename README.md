@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/05/30/briefing/trump-tariffs-uyghurs.html
+
+**The New York Times in Print for Friday, May 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/30/todays-new-york-times
+
+**The U.S. Made a Terrible Mistake When It Deported This Scientist**\
+`Qian Xuesen was a Chinese rocket scientist whose work was central to American military power. His exile had world-altering effects.`\
+https://nytimes.com/2025/05/30/opinion/visas-china-rockets-scientist-technology.html
+
 **‘Well, This Is Surprising’: Top Moments From the National Spelling Bee**\
 `Faizan Zaki, last year’s runner-up, won the coveted award after surviving two dramatic final rounds and calling the pronouncer, “bro.”`\
 https://nytimes.com/2025/05/30/us/well-that-was-surprising-top-moments-from-the-national-spelling-bee.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6352925/2025/05/30/west-ham-player-aaron-wan-bissak
 **Crystal Palace's player of the season: Daniel Munoz - the wizard of transitions**\
 `Palace should look forward to their high-energy right wing-back making a name for himself in the Europa League next season`\
 https://nytimes.com/athletic/6384735/2025/05/30/crystal-palace-player-of-the-season-daniel-munoz/
-
-**Newcastle's players of the season: Burn and Tonali led their team to history**\
-`George Caulkin and Chris Waugh debate the top five contenders, but fail to agree on a winner...`\
-https://nytimes.com/athletic/6361900/2025/05/30/newcastle-player-of-the-season-burn-tonali/
-
-**Aston Villa's player of the season: Youri Tielemans - fitter than ever, better than ever**\
-`Even when the team's performances were flatlining, the midfielder was a cut above`\
-https://nytimes.com/athletic/6349894/2025/05/30/aston-villa-player-of-the-season-youri-tielemans/
-
-**Nottingham Forest Conference League explainer: Dates, potential opponents and prize money**\
-`All you need to know about the club's return to continental football next season after a 29-year absence`\
-https://nytimes.com/athletic/6390308/2025/05/30/nottingham-forest-conference-league-explainer/
 
