@@ -1,3 +1,11 @@
+**Trump Nominates a Former Far-Right Podcast Host to Head an Ethics Watchdog**\
+`The president picked Paul Ingrassia, the current White House liaison to the Department of Homeland Security, to lead the Office of Special Counsel, which examines public corruption.`\
+https://nytimes.com/2025/05/29/us/politics/ingrassia-office-special-counsel.html
+
+**Angels set to activate Mike Trout after nearly month-long absence with knee injury**\
+`Trout has been on the injured list with a bone bruise in his left knee since May 1.`\
+https://nytimes.com/athletic/6392226/2025/05/29/angels-mike-trout-knee-bruise-update/
+
 **Christian McCaffrey looks like his 2023 self as energized 49ers begin OTAs**\
 `Asked which young players have stood out to him, Fred Warner cited first-round draft pick Mykel Williams and third rounder Nick Martin.`\
 https://nytimes.com/athletic/6392118/2025/05/29/christian-mccaffrey-san-francisco-49ers-otas/

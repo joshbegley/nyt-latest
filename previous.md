@@ -1,3 +1,11 @@
+**Trump Nominates a Former Far-Right Podcast Host to Head an Ethics Watchdog**\
+`The president picked Paul Ingrassia, the current White House liaison to the Department of Homeland Security, to lead the Office of Special Counsel, which examines public corruption.`\
+https://nytimes.com/2025/05/29/us/politics/ingrassia-office-special-counsel.html
+
+**Angels set to activate Mike Trout after nearly month-long absence with knee injury**\
+`Trout has been on the injured list with a bone bruise in his left knee since May 1.`\
+https://nytimes.com/athletic/6392226/2025/05/29/angels-mike-trout-knee-bruise-update/
+
 **Kraken name Lane Lambert as new head coach**\
 `Lambert, the former Islanders head coach and Leafs associate coach, will be the third head coach of a young Seattle franchise.`\
 https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/29/business/sec-binance-lawsuit-dropped.html
 **No. 2 Oklahoma beats No. 7 Tennessee on walk-off homer in WCWS**\
 `Oklahoma has yet to lose a game in this year's playoffs as it vies for its fifth straight title.`\
 https://nytimes.com/athletic/6391984/2025/05/29/oklahoma-tennessee-womens-college-world-series-results/
-
-**Musk Leaves Washington Behind but With Powerful Friends in Place**\
-`The world’s richest man created disruption and fear before giving up on revamping government. But his companies will now face less oversight.`\
-https://nytimes.com/2025/05/29/us/politics/musk-washington-efficiency-departure.html
-
-**Faizan Zaki, Last Year’s Runner-Up, Is a Favorite to Win This Year’s Spelling Bee**\
-`The 13-year-old from Plano, Texas, was the only 2024 finalist who advanced to the 2025 finals.`\
-https://nytimes.com/2025/05/29/us/faizan-zaki-spelling-bee-final.html
 
