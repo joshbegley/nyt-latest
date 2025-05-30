@@ -1,3 +1,7 @@
+**U.S. Oil Companies Are ‘Battening Down the Hatches’**\
+`The industry is bracing for the OPEC Plus oil cartel’s meeting on Saturday, which is widely expected to further increase oil production despite weak demand.`\
+https://nytimes.com/2025/05/30/business/energy-environment/oil-companies-production-prices-opec.html
+
 **The Bounce: 3 questions about Knicks' ability to pull off 3-1 comeback against Pacers**\
 `Although the odds favor the Pacers to reach the NBA Finals, could the Knicks pull off a surprise comeback?`\
 https://nytimes.com/athletic/6393002/2025/05/30/knicks-pacers-east-finals-playoffs-nba-the-bounce/
