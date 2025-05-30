@@ -1,3 +1,7 @@
+**Denying Visas to Chinese Students Will Backfire on America**\
+`Protecting the borders from espionage is essential. It’s something else to deny students because they are Chinese and hope to pursue a STEM degree in the United States.`\
+https://nytimes.com/2025/05/30/business/china-student-visas-trump.html
+
 **Watch: Knicks stayed alive in Game 5. Can they force a Game 7 vs. Pacers?**\
 `"The Athletic NBA Daily" discussed the New York Knicks' Game 5 win over the Indiana Pacers and what both teams will need to do in Game 6.`\
 https://nytimes.com/athletic/6392956/2025/05/30/knicks-pacers-nba-daily-game-5/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/books/review/podcast-the-safekeep-book-club.html
 **Flash Floods Kill Dozens in Western Nigeria**\
 `Torrential rainfall triggered devastating floods in a western Nigerian town, according to local officials, who said the severity of the flood had taken them by surprise.`\
 https://nytimes.com/video/world/africa/100000010199339/nigeria-deadly-flash-floods.html
-
-**'This run has felt different': Why the Oilers believe they're better positioned to win the Stanley Cup**\
-`"We’re starting to see some of our best hockey," Connor McDavid said after the Oilers earned a rematch against the Florida Panthers.`\
-https://nytimes.com/athletic/6393384/2025/05/30/oilers-stanley-cup-rematch-panthers/
 
