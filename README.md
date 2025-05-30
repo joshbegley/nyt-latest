@@ -1,3 +1,11 @@
+**Allegri returns to Milan to replace Conceicao as head coach**\
+`Former Porto head coach Conceicao was sacked after just five months in charge on Thursday.`\
+https://nytimes.com/athletic/6382233/2025/05/30/allegri-milan-manager-conceicao/
+
+**Russell Brand Pleads Not Guilty to Rape and Sexual Assault Charges**\
+`The comedian, actor and YouTuber is now scheduled to face a trial in June 2026.`\
+https://nytimes.com/2025/05/30/arts/russell-brand-pleads-not-guilty-rape.html
+
 **Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
 `The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
 https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/style/boatkin-bag-birkin-boat-tote.html
 **‘Good Night, and Good Luck’ Remembers When TV Had a Conscience, and a Spine**\
 `A TV critic looks at George Clooney’s play about CBS News standing up to political pressure, even as its current ownership might succumb to it.`\
 https://nytimes.com/2025/05/30/arts/television/good-night-and-good-luck-cbs-paramount.html
-
-**Is It Cheaper, or More Expensive, to Travel Now? Both, It Turns Out.**\
-`How falling airfares and foreign exchange rates influence where to look for deals this summer.`\
-https://nytimes.com/2025/05/30/travel/dollar-airfares-deals.html
-
-**As ‘Pretty Little Baby’ Goes Viral, Connie Francis Is Joining TikTok**\
-`With a forgotten song becoming an unlikely hit, the 87-year-old singer is happy to be back in the spotlight.`\
-https://nytimes.com/2025/05/30/style/connie-francis-pretty-little-baby-tiktok.html
 
