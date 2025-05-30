@@ -1,3 +1,11 @@
+**Recipe for Home Ownership: How to Make a House Into a Home**\
+`Progressive Insurance launches dinner-themed video series to support first generation homebuyers.`\
+https://nytimes.com/paidpost/progressive/progressive-30106802/recipe-for-home-ownership-how-to-make-a-house-into-a-home.html
+
+**A Black Eye at the White House: Who Punched Elon?**\
+`The list of possible suspects seemed long.`\
+https://nytimes.com/2025/05/30/us/politics/elon-musk-black-eye.html
+
 **The Best Movies and TV Shows Coming to Netflix in June**\
 `Among other highlights for U.S. subscribers, “Squid Game” is coming back (already) for its third and final season.`\
 https://nytimes.com/2025/05/30/arts/television/netflix-new-june.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6392670/2025/05/30/tobin-heath-world-sevens-footbal
 **PBS Sues Trump Over Order to Cut Funding**\
 `The lawsuit, filed in federal court in Washington by PBS and a Minnesota public TV station, said President Trump’s executive order was unconstitutional.`\
 https://nytimes.com/2025/05/30/business/media/pbs-trump-lawsuit-funding.html
-
-**Alarmed by Trump Cuts, Scientists Are Talking Science. For 100 Hours.**\
-`Meteorologists and climate researchers aim to run a livestream for 100 hours in protest of the Trump administration’s cuts to weather and climate research.`\
-https://nytimes.com/2025/05/30/climate/science-livestream-budget-cuts.html
-
-**The Best Women’s Swimsuits **\
-`(No description)`\
-https://nytimes.com/card/2025/05/30/smarter-living/wirecutter/the-best-womens-swimsuits
 
