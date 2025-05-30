@@ -1,3 +1,19 @@
+**Middle Schoolers Welcome Tiny Eels After a 1,000-Mile Journey**\
+`Each spring small, transparent (and surprisingly cute) baby eels make their way up the Hudson River. Student scientists are there to count them.`\
+https://nytimes.com/2025/05/30/magazine/eels-student-science-hudson-river.html
+
+**Padres to call up top relief prospect Bradgley Rodriguez: Source**\
+`Rodriguez was the Padres’ No. 13 prospect before the season and he is widely considered the organization’s best relief prospect.`\
+https://nytimes.com/athletic/6383711/2025/05/30/padres-call-up-bradgley-rodriguez/
+
+**Energy Dept. Cuts $3.7 Billion for New Technologies to Lower Emissions**\
+`The 24 canceled awards would have gone to a range of companies trying in novel ways to reduce the pollution that is heating the planet.`\
+https://nytimes.com/2025/05/30/climate/energy-dept-climate-tech-awards-cut.html
+
+**Complaints Languished as Johnson’s Delays Hobbled House Watchdog**\
+`The speaker waited more than four months to constitute the Office of Congressional Conduct, preventing it from investigating lawmakers. He has yet to name enough members to allow it to operate at full strength.`\
+https://nytimes.com/2025/05/30/us/politics/johnson-office-of-congressional-conduct.html
+
 **Trump to Give Elon Musk an Oval Office Farewell**\
 `Mr. Musk, who says he will devote more time to his private companies, never came close to achieving his goal of cutting $1 trillion from the federal budget.`\
 https://nytimes.com/2025/05/30/us/politics/trump-elon-musk.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6390671/2025/05/30/champions-league-tv-coverage-cbs
 **1 Killed and at Least 7 Are Injured in Tornado in Kentucky, Officials Say**\
 `The Washington County Sheriff’s Office said there was severe damage.`\
 https://nytimes.com/2025/05/30/us/tornado-kentucky-death-injuries.html
-
-**Weekend Wagers: What the Knicks, Andor and Daniel Day Lewis can teach us about this week's bets**\
-`Here are fun ways to bet on this weekend's biggest games, including Pacers-Knicks and the Champions League Final.`\
-https://nytimes.com/athletic/6393101/2025/05/30/weekend-wagers-most-intriguing-bets-yankees-dodgers-pacers-knicks-wnba/
-
-**Sabres hire former Blue Jackets GM Jarmo Kekäläinen as senior adviser**\
-`Kekäläinen will report to Buffalo general manager Kevyn Adams and assist in all aspects of the hockey department.`\
-https://nytimes.com/athletic/6393321/2025/05/30/sabres-jarmo-kekalainen-hired/
-
-**Defending Medicaid Cuts, Ernst Tells Iowans, ‘We All Are Going to Die’**\
-`Senator Joni Ernst's flip response in an exchange with constituents about the effects of Trump’s domestic policy bill quickly spread online.`\
-https://nytimes.com/2025/05/30/us/politics/medicaid-cuts-joni-ernst-iowa-town-hall.html
-
-**It’s Still South by Southwest, but This Time It’s in London**\
-`The music, tech and film festival, long known for being in Austin, Texas, expands to Europe for the first time.`\
-https://nytimes.com/2025/05/30/arts/sxsw-london-festival.html
 
