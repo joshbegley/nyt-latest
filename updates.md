@@ -1,3 +1,7 @@
+**Oilers ride fast start to Game 5 win, return to Stanley Cup Final: Takeaways**\
+`Edmonton took a 3-0 lead, held on to win 6-3 and earned a championship rematch against the Florida Panthers.`\
+https://nytimes.com/athletic/6392310/2025/05/29/oilers-stars-stanley-cup-final/
+
 **Filled With Bad Words**\
 `Just kidding — Rafael Musa gives us the good words.`\
 https://nytimes.com/2025/05/29/crosswords/daily-puzzle-2025-05-30.html
