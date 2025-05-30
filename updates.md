@@ -1,3 +1,11 @@
+**Paige Bueckers enters concussion protocol, will miss next 2 Dallas Wings games**\
+`Bueckers was placed in the protocol after Thursday’s loss to the Chicago Sky.`\
+https://nytimes.com/athletic/6394001/2025/05/30/paige-bueckers-dallas-wings-concussion-protocol/
+
+**‘Prognosis Is Good,’ Biden Says in First Remarks About Cancer Diagnosis**\
+`The former president said on Friday that he was taking a single pill daily to treat aggressive prostate cancer.`\
+https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
+
 **George E. Smith, Nobel Winner Who Created a Digital Eye, Dies at 95**\
 `Together with Willard S. Boyle, he invented an imaging device that is an essential part of nearly every telescope, photocopier and digital camera used today.`\
 https://nytimes.com/2025/05/30/science/george-e-smith-dead.html

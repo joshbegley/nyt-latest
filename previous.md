@@ -1,3 +1,7 @@
+**Paige Bueckers enters concussion protocol, will miss next 2 Dallas Wings games**\
+`Bueckers was placed in the protocol after Thursday’s loss to the Chicago Sky.`\
+https://nytimes.com/athletic/6394001/2025/05/30/paige-bueckers-dallas-wings-concussion-protocol/
+
 **George E. Smith, Nobel Winner Who Created a Digital Eye, Dies at 95**\
 `Together with Willard S. Boyle, he invented an imaging device that is an essential part of nearly every telescope, photocopier and digital camera used today.`\
 https://nytimes.com/2025/05/30/science/george-e-smith-dead.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6393918/2025/05/30/cubs-opener-ben-brown-pitching-r
 https://nytimes.com/athletic/6393893/2025/05/30/braves-aj-smith-shawver-injury-torn-ucl/
 
 **‘Prognosis Is Good,’ Biden Says in First Remarks About Cancer Diagnosis**\
-`The former president said he was taking a single pill daily to treat aggressive prostate cancer.`\
+`The former president said on Friday that he was taking a single pill daily to treat aggressive prostate cancer.`\
 https://nytimes.com/2025/05/30/us/biden-cancer-diagnosis-speech.html
 
 **Anthony Santander becomes latest Blue Jays offseason addition to hit the IL**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
 **Lions OTAs: Jared Goff-John Morton relationship, more Jameson Williams hype**\
 `While the QB and new OC build rapport, coach Dan Campbell discusses a tough 2025 schedule for the Lions.`\
 https://nytimes.com/athletic/6393885/2025/05/30/detroit-lions-otas-jared-goff-jameson-williams/
-
-**Reigning major champ Mao Saigo may be proving she's the real deal at the U.S. Open**\
-`Saigo wants to play her way. And Friday, she was indeed a thrilling watch.`\
-https://nytimes.com/athletic/6393896/2025/05/30/mao-saigo-real-deal-us-open/
 
