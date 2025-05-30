@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in June**\
+`Among other highlights for U.S. subscribers, “Squid Game” is coming back (already) for its third and final season.`\
+https://nytimes.com/2025/05/30/arts/television/netflix-new-june.html
+
+**Former Liverpool assistant Lijnders agrees deal to join Guardiola's Man City staff**\
+`The 42-year-old spent nine-and-a-half years at Anfield across two spells.`\
+https://nytimes.com/athletic/6391086/2025/05/30/pep-lijnders-manchester-city/
+
 **Mikaela Shiffrin says she questioned returning to skiing after crash**\
 `"It was almost as though I was no longer in control of my body," Shiffrin wrote about her return after the crash.`\
 https://nytimes.com/athletic/6393676/2025/05/30/mikaela-shiffrin-crash-mental-health/
