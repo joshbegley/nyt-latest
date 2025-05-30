@@ -1,3 +1,7 @@
+**Trump’s Tariffs and the Courts**\
+`We explore tariffs and presidential power.`\
+https://nytimes.com/2025/05/30/briefing/trump-tariffs-court-presidential-power.html
+
 **Ukraine Accuses Russia of Stalling Peace Negotiations**\
 `Both Kyiv and Moscow have been maneuvering to set the terms and tempo of any talks to end the fighting.`\
 https://nytimes.com/2025/05/30/world/europe/ukraine-russia-peace-talks.html
