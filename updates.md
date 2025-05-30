@@ -1,3 +1,7 @@
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/05/30/movies/new-movies-this-week-critics.html
+
 **Book Club: Read ‘Mrs. Dalloway,’ by Virginia Woolf, with the Book Review**\
 `In June, the Book Review Book Club will read and discuss “Mrs. Dalloway,” Virginia Woolf’s classic novel about one day in the life of an London woman in 1923.`\
 https://nytimes.com/2025/05/30/books/review/mrs-dalloway-virginia-woolf-book-club.html
