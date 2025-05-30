@@ -1,3 +1,15 @@
+**West Ham fined £120,000 after homophobic chanting against Chelsea**\
+`An investigation into the incident suggested a "very significant number" of supporters in the West Ham section had been involved.`\
+https://nytimes.com/athletic/6392858/2025/05/30/west-ham-chelsea-homophobic-chanting/
+
+**The Windup: Dodgers-Yankees is back! Read up**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6392497/2025/05/30/yankees-dodgers-world-series-rematch-the-windup/
+
+**What Marcus Freeman has learned and what it means for Notre Dame's biggest questions**\
+`On Thursday, Freeman met with a small group of reporters to talk Notre Dame's QB battle, what the Ohio State loss showed and more.`\
+https://nytimes.com/athletic/6392860/2025/05/30/notre-dame-marcus-freeman-interview-quarterbacks/
+
 **Liverpool submit €130m transfer offer for Florian Wirtz**\
 `Wirtz, 22, has emerged as a key target for Liverpool and the Germany international playmaker is keen on a move to Anfield.`\
 https://nytimes.com/athletic/6379410/2025/05/30/liverpool-florian-wirtz-transfer-fee/
