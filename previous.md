@@ -1,3 +1,7 @@
+**Kraken name Lane Lambert as new head coach**\
+`Lambert, the former Islanders head coach and Leafs associate coach, will be the third head coach of a young Seattle franchise.`\
+https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head-coach/
+
 **JD Vance’s Campaign Plane Is Being Used for Migrant Deportation Flights**\
 `The Boeing 737 has been chartered more than a dozen times this year by the federal government to deport migrants to several countries in Central America.`\
 https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/us/politics/musk-washington-efficiency-departure.
 **Faizan Zaki, Last Year’s Runner-Up, Is a Favorite to Win This Year’s Spelling Bee**\
 `The 13-year-old from Plano, Texas, was the only 2024 finalist who advanced to the 2025 finals.`\
 https://nytimes.com/2025/05/29/us/faizan-zaki-spelling-bee-final.html
-
-**San Francisco Leader Faces Recall After Drivers Lost Their Great Highway**\
-`Joel Engardio, an elected city supervisor, angered thousands of voters by helping to convert a major thoroughfare into a coastal park.`\
-https://nytimes.com/2025/05/29/us/san-francisco-recall-great-highway-park.html
 

@@ -1,3 +1,7 @@
+**Kraken name Lane Lambert as new head coach**\
+`Lambert, the former Islanders head coach and Leafs associate coach, will be the third head coach of a young Seattle franchise.`\
+https://nytimes.com/athletic/6392176/2025/05/29/lane-lambert-seattle-kraken-head-coach/
+
 **JD Vance’s Campaign Plane Is Being Used for Migrant Deportation Flights**\
 `The Boeing 737 has been chartered more than a dozen times this year by the federal government to deport migrants to several countries in Central America.`\
 https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.html
