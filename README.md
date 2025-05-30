@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/30/briefing/trump-tariffs-uyghurs.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/30/todays-new-york-times
 
-**The U.S. Made a Terrible Mistake When It Deported This Scientist**\
+**The U.S. Deported This Chinese Scientist, in a Decision That Changed World History**\
 `Qian Xuesen was a Chinese rocket scientist whose work was central to American military power. His exile had world-altering effects.`\
 https://nytimes.com/2025/05/30/opinion/visas-china-rockets-scientist-technology.html
 
