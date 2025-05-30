@@ -1,3 +1,7 @@
+**Alarmed by Trump Cuts, Scientists Are Talking Science. For 100 Hours.**\
+`Meteorologists and climate researchers aim to run a livestream for 100 hours in protest of the Trump administration’s cuts to weather and climate research.`\
+https://nytimes.com/2025/05/30/climate/science-livestream-budget-cuts.html
+
 **The Best Women’s Swimsuits **\
 `(No description)`\
 https://nytimes.com/card/2025/05/30/smarter-living/wirecutter/the-best-womens-swimsuits
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393414/2025/05/30/simone-inzaghi-inter-future/
 **Peter Seiffert, Acclaimed Star of Wagner’s Operas, Is Dead at 71**\
 `A German tenor, he was admired for his clear, powerful voice and his exceptional stamina during hourslong performances.`\
 https://nytimes.com/2025/05/30/arts/music/peter-seiffert-dead.html
-
-**Delap set for Monday medical ahead of £30m Chelsea transfer**\
-`The England Under-21 international had multiple suitors after scoring 12 goals in 40 matches for Ipswich in his first season at the club.`\
-https://nytimes.com/athletic/6393488/2025/05/30/chelsea-delap-medical-update/
 
