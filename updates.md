@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-p
 `\
 https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
 
+**UCL betting: How European glory for PSG or Inter could shape the future**\
+`Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
+`\
+https://nytimes.com/athletic/6391124/2025/05/30/champions-league-final-betting-predictions-future-odds/
+
 **Tyrese Haliburton owns Game 5 clunker in New York: 'I'll be better in Game 6'**\
 `"It was a rough showing for us tonight," Haliburton said of the Pacers' 111-94 loss to the New York Knicks.`\
 https://nytimes.com/athletic/6392457/2025/05/30/pacers-lose-knicks-tyrese-haliburton-game-5/

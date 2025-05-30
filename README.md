@@ -1,3 +1,7 @@
+**Di Maria to return to boyhood club Rosario Central after Club World Cup**\
+`Di Maria, 37, will join Rosario as a free agent after announcing his Benfica departure.`\
+https://nytimes.com/athletic/6392514/2025/05/30/angel-di-maria-rosario-central-transfer/
+
 **UCL betting: How European glory for PSG or Inter could shape the future**\
 `Brett Koremenos and Sam Tighe provide their thoughts on the betting ramifications around winning a Champions League final.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/30/briefing/trump-tariffs-uyghurs.html
 **The New York Times in Print for Friday, May 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/05/30/todays-new-york-times
-
-**The U.S. Deported This Chinese Scientist, in a Decision That Changed World History**\
-`Qian Xuesen was a Chinese rocket scientist whose work was central to American military power. His exile had world-altering effects.`\
-https://nytimes.com/2025/05/30/opinion/visas-china-rockets-scientist-technology.html
 
