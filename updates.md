@@ -1,3 +1,15 @@
+**Knicks' message to Pacers in Game 5: Don't let it get to a Game 7**\
+`"We never give up," Josh Hart said.`\
+https://nytimes.com/athletic/6392462/2025/05/30/knicks-pacers-game-5/
+
+**Allegri returns to Milan to replace Conceicao as head coach**\
+`Former Porto head coach Conceicao was sacked after just five months in charge on Thursday.`\
+https://nytimes.com/athletic/6382233/2025/05/30/allegri-milan-manager-conceicao/
+
+**Russell Brand Pleads Not Guilty to Rape and Sexual Assault Charges**\
+`The comedian, actor and YouTuber is now scheduled to face a trial in June 2026.`\
+https://nytimes.com/2025/05/30/arts/russell-brand-pleads-not-guilty-rape.html
+
 **Welcome to Court Suzanne-Lenglen, the French Open's amphitheatre of heaven and hell**\
 `The second show court at Roland Garros is a rocket booster for French players and a washing machine for their opponents.`\
 https://nytimes.com/athletic/6391725/2025/05/30/tennis-french-open-suzanne-lenglen-roland-garros-crowd-atmosphere-etiquette/

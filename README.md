@@ -1,3 +1,7 @@
+**Madrid to pay Liverpool €10m for Alexander-Arnold to join for Club World Cup**\
+`The England international has signed a six-year contract with Madrid, leaving the team he has played for since 2004. `\
+https://nytimes.com/athletic/6334302/2025/05/30/trent-alexander-arnold-real-madrid-transfers-liverpool-club-world-cup/
+
 **Knicks' message to Pacers in Game 5: Don't let it get to a Game 7**\
 `"We never give up," Josh Hart said.`\
 https://nytimes.com/athletic/6392462/2025/05/30/knicks-pacers-game-5/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/05/30/briefing/trump-trade-war-macron-elon-
 **4 Ways to Trick Yourself Into Taking a Walk**\
 `You don’t need to hit 10,000 daily steps to reap benefits.`\
 https://nytimes.com/2025/05/30/well/step-goal-walking.html
-
-**The Birkin Inspires Yet Another Homage**\
-`The Boatkin, a new handbag, marries the design of the Hermès Birkin and the material of L.L. Bean’s Boat and Tote.`\
-https://nytimes.com/2025/05/30/style/boatkin-bag-birkin-boat-tote.html
 
