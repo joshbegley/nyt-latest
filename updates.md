@@ -1,3 +1,11 @@
+**NBA playoffs takeaways: Jalen Brunson-led Knicks top Pacers, force Game 6**\
+`With their season on the line, the Knicks came out desperate and beat the Pacers 111-94 Thursday night at Madison Square Garden. `\
+https://nytimes.com/athletic/6392109/2025/05/29/nba-playoffs-takeaways-pacers-knicks-game-5/
+
+**Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69**\
+`His meteoric rise to become New York City’s chief law enforcement officer was later tarnished after he pleaded guilty to federal corruption and tax crimes.`\
+https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
+
 **Oilers ride fast start to Game 5 win, return to Stanley Cup Final: Takeaways**\
 `Edmonton took a 3-0 lead, held on to win 6-3 and earned a championship rematch against the Florida Panthers.`\
 https://nytimes.com/athletic/6392310/2025/05/29/oilers-stars-stanley-cup-final/
