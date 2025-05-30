@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6393676/2025/05/30/mikaela-shiffrin-crash-mental-he
 https://nytimes.com/2025/05/30/us/washington-bees-escape-truck-crash.html
 
 **USWNT approaches next phase of development under Emma Hayes**\
-`Hayes praised her "great group of senior players" who have continued to establish benchmarks for newcomers to meet.`\
+`Hayes praised her 'great group of senior players' who have continued to establish benchmarks for newcomers to meet.`\
 https://nytimes.com/athletic/6393497/2025/05/30/emma-hayes-uswnt-on-track-development-deadline/
 
