@@ -1,3 +1,11 @@
+**Assessing Trump’s Send-Off for Elon Musk**\
+`An Oval Office news conference signaled an end to a remarkable period of upheaval across the federal bureaucracy, supervised by Mr. Musk and his cost-cutting initiative.`\
+https://nytimes.com/2025/05/30/us/politics/fact-check-elon-musk-trump.html
+
+**Phillies' Bryce Harper does not expect IL stint after hit-by-pitch**\
+`Including Friday night's scheduled contest, Harper has missed three games after taking an errant 95 mph fastball to the elbow.`\
+https://nytimes.com/athletic/6393911/2025/05/30/phillies-bryce-harper-does-not-expect-il-stint-after-hit-by-pitch/
+
 **Hiker Survives After He’s Struck by 700-Pound Boulder**\
 `A 61-year-old man was airlifted to safety after he survived a 700-pound boulder crashing into him on a hike in Alaska.`\
 https://nytimes.com/video/us/100000010200290/alaska-hiker-boulder-crash.html
@@ -7,7 +15,7 @@ https://nytimes.com/video/us/100000010200290/alaska-hiker-boulder-crash.html
 https://nytimes.com/2025/05/30/business/eric-spofford-new-hampshire-vandalism.html
 
 **Trump Praises Elon Musk in Oval Office Farewell**\
-`The billionaire owner of Tesla and SpaceX has stepped down from his role in the Department of Government Efficiency amid tension with both the president and shareholders of his companies.`\
+`The billionaire owner of Tesla and SpaceX stepped down from his role in the Department of Government Efficiency as his term as a special government employee came to an end.`\
 https://nytimes.com/video/us/politics/100000010200007/elon-musk-trump-doge.html
 
 **A defending champion avoids their nemesis before the strangest match so far: French Open recap**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/30/arts/music/smokey-robinson-sexual-assault-allegat
 **Yasunao Tone, Composer Whose Métier Was ‘Anti-Music,’ Dies at 90**\
 `A Japanese-born multimedia artist whose associates included John Cage and Yoko Ono, he pushed digital music past its breaking point.`\
 https://nytimes.com/2025/05/30/arts/music/yasunao-tone-dead.html
-
-**Trump Says He Fired Director of National Portrait Gallery, Citing D.E.I.**\
-`Kim Sajet, the director of the Smithsonian museum for more than 12 years, has tried to bring in more contemporary artists.`\
-https://nytimes.com/2025/05/30/arts/design/trump-smithsonian-kim-sajet-fired.html
-
-**Recipe for Home Ownership: How to Make a House Into a Home**\
-`Progressive Insurance launches dinner-themed video series to support first generation homebuyers.`\
-https://nytimes.com/paidpost/progressive/progressive-30106802/recipe-for-home-ownership-how-to-make-a-house-into-a-home.html
 
