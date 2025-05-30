@@ -1,3 +1,7 @@
+**NBA playoffs takeaways: Jalen Brunson-led Knicks top Pacers, force Game 6**\
+`With their season on the line, the Knicks came out desperate and beat the Pacers 111-94 Thursday night at Madison Square Garden. `\
+https://nytimes.com/athletic/6392109/2025/05/29/nba-playoffs-takeaways-pacers-knicks-game-5/
+
 **Oilers ride fast start to Game 5 win, return to Stanley Cup Final: Takeaways**\
 `Edmonton took a 3-0 lead, held on to win 6-3 and earned a championship rematch against the Florida Panthers.`\
 https://nytimes.com/athletic/6392310/2025/05/29/oilers-stars-stanley-cup-final/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6392310/2025/05/29/oilers-stars-stanley-cup-final/
 https://nytimes.com/2025/05/29/crosswords/daily-puzzle-2025-05-30.html
 
 **Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69**\
-`Before his career imploded, he rose meteorically to become New York City’s chief law enforcement officer under Mayor Rudolph W. Giuliani.`\
+`His meteoric rise to become New York City’s chief law enforcement officer was later tarnished after he pleaded guilty to federal corruption and tax crimes.`\
 https://nytimes.com/2025/05/29/obituaries/bernard-kerik-dead.html
 
 **‘And Just Like That …’ Season 3 Premiere Recap: Outlook Good**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.ht
 **Nelly Korda and the weight — and wait — of the U.S. Open**\
 `Korda entered this week carrying all these hopes and dreams, and she kept herself in it. `\
 https://nytimes.com/athletic/6392167/2025/05/29/nelly-korda-and-the-weight-and-wait-of-the-u-s-open/
-
-**Christian McCaffrey looks like his 2023 self as energized 49ers begin OTAs**\
-`Asked which young players have stood out to him, Fred Warner cited first-round draft pick Mykel Williams and third rounder Nick Martin.`\
-https://nytimes.com/athletic/6392118/2025/05/29/christian-mccaffrey-san-francisco-49ers-otas/
 
