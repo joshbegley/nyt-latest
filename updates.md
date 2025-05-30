@@ -1,3 +1,15 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a Chinese martial arts movie, an Indonesian political thriller, a documentary about a Norwegian family that stumbles upon a long-hidden secret and more.`\
+https://nytimes.com/2025/05/30/movies/international-movies-streaming.html
+
+**Got a Can of Curry Paste? Make Pad Prik King.**\
+`Alexa Weibel’s recipe, adapted from the Toronto chef Nuit Regular, turns tablespoons of red curry paste into a lush, salty-sweet chicken dinner.`\
+https://nytimes.com/2025/05/30/dining/got-a-can-of-curry-paste-make-pad-prik-king.html
+
+**'Many choose not to look': Jabeur criticizes double standards in women's tennis**\
+`The three-time Grand Slam finalist took aim at the way men's and women's achievements in tennis are portrayed.`\
+https://nytimes.com/athletic/6393131/2025/05/30/womens-tennis-ons-jabeur-french-open/
+
 **How ICE Is Seeking to Ramp Up Deportations Through Courthouse Arrests**\
 `Officials had largely steered clear of arrests at immigration courts out of concern that they would deter people from showing up for hearings.`\
 https://nytimes.com/2025/05/30/us/politics/ice-courthouse-arrests.html

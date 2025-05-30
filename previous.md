@@ -1,3 +1,15 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a Chinese martial arts movie, an Indonesian political thriller, a documentary about a Norwegian family that stumbles upon a long-hidden secret and more.`\
+https://nytimes.com/2025/05/30/movies/international-movies-streaming.html
+
+**Got a Can of Curry Paste? Make Pad Prik King.**\
+`Alexa Weibel’s recipe, adapted from the Toronto chef Nuit Regular, turns tablespoons of red curry paste into a lush, salty-sweet chicken dinner.`\
+https://nytimes.com/2025/05/30/dining/got-a-can-of-curry-paste-make-pad-prik-king.html
+
+**'Many choose not to look': Jabeur criticizes double standards in women's tennis**\
+`The three-time Grand Slam finalist took aim at the way men's and women's achievements in tennis are portrayed.`\
+https://nytimes.com/athletic/6393131/2025/05/30/womens-tennis-ons-jabeur-french-open/
+
 **How ICE Is Seeking to Ramp Up Deportations Through Courthouse Arrests**\
 `Officials had largely steered clear of arrests at immigration courts out of concern that they would deter people from showing up for hearings.`\
 https://nytimes.com/2025/05/30/us/politics/ice-courthouse-arrests.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6393002/2025/05/30/knicks-pacers-east-finals-playof
 **Vikings, general manager Kwesi Adofo-Mensah agree to multiyear extension**\
 `The deal comes four months after the Vikings agreed to terms on a new contract with head coach Kevin O’Connell.`\
 https://nytimes.com/athletic/6113354/2025/05/30/kwesi-adofo-mensah-vikings-gm-extension/
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2025/05/30/movies/new-movies-this-week-critics.html
-
-**Book Club: Read ‘Mrs. Dalloway,’ by Virginia Woolf, with the Book Review**\
-`In June, the Book Review Book Club will read and discuss “Mrs. Dalloway,” Virginia Woolf’s classic novel about one day in the life of an London woman in 1923.`\
-https://nytimes.com/2025/05/30/books/review/mrs-dalloway-virginia-woolf-book-club.html
-
-**Landslide at Quarry in Indonesia Kills at Least 10**\
-`Officials halted rescue operations on Friday evening after poor lighting and the possibility of more landslides put rescue workers at risk.`\
-https://nytimes.com/2025/05/30/world/asia/indonesia-landslide-west-java.html
 
