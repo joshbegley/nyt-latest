@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, May 31, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/30/upshot/flashback.html
+
 **Watch: Tobin Heath talks World Sevens Football with 'Full Time'**\
 `"Full Time" sat down with Tobin Heath to discuss the future of World Sevens Football (W7F) and what might come next.`\
 https://nytimes.com/athletic/6392670/2025/05/30/tobin-heath-world-sevens-football-uswnt-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/style/sydney-sweeney-bathwater-soap.html
 **Senators Visit Ukraine, Pushing for Crippling Sanctions on Russia**\
 `A bipartisan duo met with the Ukrainian president and made the case for Congress to impose harsh economic penalties on Moscow for its continuing offensive.`\
 https://nytimes.com/2025/05/30/us/politics/ukraine-russia-sanctions.html
-
-**Pelicans' Zion Williamson accused of rape in lawsuit, denies claims**\
-`The woman, identified as Jane Doe in the civil lawsuit, is seeking an unspecified amount in damages from Williamson.`\
-https://nytimes.com/athletic/6393336/2025/05/30/zion-williamson-lawsuit-complaint-pelicans/
 
