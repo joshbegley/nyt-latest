@@ -1,3 +1,7 @@
+**Macron, Infuriating Israel, Says It Can’t ‘Have Its Way’ in Gaza**\
+`A series of exchanges marked a new low point in the relationship between France and Israel, which accused the French president of “a crusade against the Jewish state.”`\
+https://nytimes.com/2025/05/30/world/europe/france-macron-israel-netanyahu.html
+
 **Book Club: Let’s Talk About ‘The Safekeep’**\
 `Yael van der Wouden’s novel, shortlisted for the 2024 Booker Prize, is the topic of this month’s discussion.`\
 https://nytimes.com/2025/05/30/books/review/podcast-the-safekeep-book-club.html

@@ -1,3 +1,7 @@
+**Macron, Infuriating Israel, Says It Can’t ‘Have Its Way’ in Gaza**\
+`A series of exchanges marked a new low point in the relationship between France and Israel, which accused the French president of “a crusade against the Jewish state.”`\
+https://nytimes.com/2025/05/30/world/europe/france-macron-israel-netanyahu.html
+
 **Book Club: Let’s Talk About ‘The Safekeep’**\
 `Yael van der Wouden’s novel, shortlisted for the 2024 Booker Prize, is the topic of this month’s discussion.`\
 https://nytimes.com/2025/05/30/books/review/podcast-the-safekeep-book-club.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393368/2025/05/30/lew-sherr-usta-tennis-new-york-m
 **The New Mexico Town That’s Still a Beacon for Artists**\
 `Where to find the best small inns, chile relleno and secluded hot springs in and around Taos.`\
 https://nytimes.com/2025/05/30/t-magazine/taos-new-mexico-hotel-food-guide.html
-
-**A Ramshackle House on Nantucket, Brought Back to Shipshape**\
-`A woman moved to the island with her two children during the pandemic, and then stayed, settling into the community of Sconset.`\
-https://nytimes.com/2025/05/30/realestate/living-small-nantucket-ivy-lodge.html
 
