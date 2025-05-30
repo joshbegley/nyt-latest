@@ -1,3 +1,7 @@
+**‘Well, This Is Surprising’: Top Moments From the National Spelling Bee**\
+`Faizan Zaki, last year’s runner-up, won the coveted award after surviving two dramatic final rounds and calling the pronouncer, “bro.”`\
+https://nytimes.com/2025/05/30/us/well-that-was-surprising-top-moments-from-the-national-spelling-bee.html
+
 **Faizan Zaki Wins Spelling Bee**\
 `The 13-year-old champion dropped to the floor after correctly spelling the word “éclaircissement,” taking home the Scripps National Spelling Bee trophy.`\
 https://nytimes.com/video/us/100000010198474/scripps-spelling-bee.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6349894/2025/05/30/aston-villa-player-of-the-season
 **Nottingham Forest Conference League explainer: Dates, potential opponents and prize money**\
 `All you need to know about the club's return to continental football next season after a 29-year absence`\
 https://nytimes.com/athletic/6390308/2025/05/30/nottingham-forest-conference-league-explainer/
-
-**What led to Arsenal's injury problems this season?**\
-`Are there controllable factors that contributed to Arsenal’s injury issues this season? And if yes, how can they improve on them next time?`\
-https://nytimes.com/athletic/6390171/2025/05/30/arsenal-injuries-arteta-saka/
 
