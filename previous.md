@@ -1,3 +1,15 @@
+**West Ham's 2024-25 player of the season: Aaron Wan-Bissaka - defending so good fans stand and applaud**\
+`West Ham had a difficult season but new right-back Wan-Bissaka consistently impressed for them`\
+https://nytimes.com/athletic/6352925/2025/05/30/west-ham-player-aaron-wan-bissaka/
+
+**Crystal Palace's player of the season: Daniel Munoz - the wizard of transitions**\
+`Palace should look forward to their high-energy right wing-back making a name for himself in the Europa League next season`\
+https://nytimes.com/athletic/6384735/2025/05/30/crystal-palace-player-of-the-season-daniel-munoz/
+
+**Nottingham Forest Conference League explainer: Dates, potential opponents and prize money**\
+`All you need to know about the club's return to continental football next season after a 29-year absence`\
+https://nytimes.com/athletic/6390308/2025/05/30/nottingham-forest-conference-league-explainer/
+
 **What led to Arsenal's injury problems this season?**\
 `Are there controllable factors that contributed to Arsenal’s injury issues this season? And if yes, how can they improve on them next time?`\
 https://nytimes.com/athletic/6390171/2025/05/30/arsenal-injuries-arteta-saka/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6385255/2025/05/30/ranking-the-favourites-for-the-b
 **Delap to Chelsea: How he plays, how he'll fit in and what he'll bring to Maresca's side**\
 `Chelsea have agreed terms for the transfer of Liam Delap from Ipswich Town`\
 https://nytimes.com/athletic/6391033/2025/05/30/liam-delap-transfer-chelsea-latest-analysis/
-
-**In South Korea, Desperate Workers Take Their Grievances Into the Sky**\
-`The plight of temporary workers like Kim Hyoung-su, who’s been protesting for months at the top of a tower, has become an issue in Tuesday’s presidential election.`\
-https://nytimes.com/2025/05/30/world/asia/south-korea-labor-election.html
-
-**Quote of the Day: The Toilet That Won the Heart of Japan**\
-`Quotation of the Day for Friday, May 30, 2025.`\
-https://nytimes.com/2025/05/30/pageoneplus/quote-of-the-day-the-toilet-that-won-the-heart-of-japan.html
-
-**Under Pressure From China, Myanmar Rebels Cede Hard-Won Territory**\
-`Beijing has intervened significantly in Myanmar’s civil war to protect its substantial investments in the country, handing a setback to resistance forces.`\
-https://nytimes.com/2025/05/30/world/asia/china-myanmar-rebels-withdraw-lashio.html
 
