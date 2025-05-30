@@ -1,3 +1,15 @@
+**Mar-a-Lago on the Potomac: the Meaning of MAGA Style**\
+`The Times’s chief fashion critic unravels the Trump-inspired style that has spread quickly across Washington.`\
+https://nytimes.com/2025/05/30/us/politics/trump-maga-style.html
+
+**Trump, Bashing the Federalist Society, Asserts Autonomy on Judge Picks**\
+`The president has grown increasingly angry at court rulings blocking parts of his agenda, including by judges he appointed.`\
+https://nytimes.com/2025/05/30/us/politics/trump-judges-nominations.html
+
+**Cubs go with an opener Saturday as Ben Brown's struggles put his rotation spot in flux**\
+`Drew Pomeranz is set to start Saturday for the Cubs against the Reds.`\
+https://nytimes.com/athletic/6393918/2025/05/30/cubs-opener-ben-brown-pitching-rotation-drew-pomeranz/
+
 **Braves' AJ Smith-Shawver diagnosed with torn UCL**\
 `Smith-Shawver will consult with a specialist before he's expected to have season-ending surgery.`\
 https://nytimes.com/athletic/6393893/2025/05/30/braves-aj-smith-shawver-injury-torn-ucl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6393896/2025/05/30/mao-saigo-real-deal-us-open/
 **A Bruised Musk Leaves Washington: Takeaways From the Trump News Conference**\
 `President Trump gave Elon Musk a send-off in the Oval Office.`\
 https://nytimes.com/2025/05/30/us/politics/trump-elon-musk-takeaways.html
-
-**Assessing Trump’s Send-Off for Elon Musk**\
-`An Oval Office news conference signaled an end to a remarkable period of upheaval across the federal bureaucracy, supervised by Mr. Musk and his cost-cutting initiative.`\
-https://nytimes.com/2025/05/30/us/politics/fact-check-elon-musk-trump.html
-
-**Phillies' Bryce Harper does not expect IL stint after hit-by-pitch**\
-`Including Friday night's scheduled contest, Harper has missed three games after taking an errant 95 mph fastball to the elbow.`\
-https://nytimes.com/athletic/6393911/2025/05/30/bryce-harper-hit-by-pitch-update/
-
-**Hiker Survives After He’s Struck by 700-Pound Boulder**\
-`A 61-year-old man was airlifted to safety after he survived a 700-pound boulder crashing into him on a hike in Alaska.`\
-https://nytimes.com/video/us/100000010200290/alaska-hiker-boulder-crash.html
 
