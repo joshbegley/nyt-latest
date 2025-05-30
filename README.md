@@ -1,3 +1,7 @@
+**Oilers ride fast start to Game 5 win, return to Stanley Cup Final: Takeaways**\
+`Edmonton took a 3-0 lead, held on to win 6-3 and earned a championship rematch against the Florida Panthers.`\
+https://nytimes.com/athletic/6392310/2025/05/29/oilers-stars-stanley-cup-final/
+
 **Filled With Bad Words**\
 `Just kidding — Rafael Musa gives us the good words.`\
 https://nytimes.com/2025/05/29/crosswords/daily-puzzle-2025-05-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392167/2025/05/29/nelly-korda-and-the-weight-and-w
 **Christian McCaffrey looks like his 2023 self as energized 49ers begin OTAs**\
 `Asked which young players have stood out to him, Fred Warner cited first-round draft pick Mykel Williams and third rounder Nick Martin.`\
 https://nytimes.com/athletic/6392118/2025/05/29/christian-mccaffrey-san-francisco-49ers-otas/
-
-**EA Sports College Football 26: The 5 biggest changes in game's new version**\
-`From real coaches to dynasty cross-play, EA Sports College Football 26 comes with several interesting and fun tweaks.`\
-https://nytimes.com/athletic/6392119/2025/05/29/ea-sports-college-football-26-5-big-changes/
 
