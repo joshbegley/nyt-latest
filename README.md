@@ -1,3 +1,15 @@
+**Mikaela Shiffrin says she questioned returning to skiing after crash**\
+`"It was almost as though I was no longer in control of my body," Shiffrin wrote about her return after the crash.`\
+https://nytimes.com/athletic/6393676/2025/05/30/mikaela-shiffrin-crash-mental-health/
+
+**250 Million Honeybees Escape After a Truck Rolls Over in Washington State**\
+`Several emergency responders were stung after the truck flipped in a sparsely populated area of Whatcom County. Efforts were underway to recapture the bees.`\
+https://nytimes.com/2025/05/30/us/washington-bees-escape-truck-crash.html
+
+**USWNT approaches next phase of development under Emma Hayes**\
+`Hayes praised her "great group of senior players" who have continued to establish benchmarks for newcomers to meet.`\
+https://nytimes.com/athletic/6393497/2025/05/30/emma-hayes-uswnt-on-track-development-deadline/
+
 **Flashback: Your Weekly History Quiz, May 31, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/05/30/upshot/flashback.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6393734/2025/05/30/liam-hendriks-red-sox-injured-li
 **Arthur Fils withdraws from French Open with back injury after Suzanne-Lenglen heroics**\
 `Top-ranked French men's player Fils performed miracles to beat Jaume Munar with a back injury, but he cannot continue at Roland Garros.`\
 https://nytimes.com/athletic/6393715/2025/05/30/tennis-french-open-arthur-fils-out-injury/
-
-**Loretta Swit a.k.a. Hot Lips of TV’s ‘M*A*S*H,’ Dies at 87**\
-`She won two Emmy Awards for her sympathetic portrayal of an Army major on the hit TV show and had a long career in TV and theater.`\
-https://nytimes.com/2025/05/30/obituaries/loretta-swit-dead.html
-
-**Sydney Sweeney’s Fans Wanted Her Bath Water. Now They Can Buy It.**\
-`Calling the requests “weird in the best way,” the actress worked with Dr. Squatch on a soap that has a manly scent and just a touch of her actual bath water.`\
-https://nytimes.com/2025/05/30/style/sydney-sweeney-bathwater-soap.html
-
-**Senators Visit Ukraine, Pushing for Crippling Sanctions on Russia**\
-`A bipartisan duo met with the Ukrainian president and made the case for Congress to impose harsh economic penalties on Moscow for its continuing offensive.`\
-https://nytimes.com/2025/05/30/us/politics/ukraine-russia-sanctions.html
 
