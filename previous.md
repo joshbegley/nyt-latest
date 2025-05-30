@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About ‘The Safekeep’**\
+`Yael van der Wouden’s novel, shortlisted for the 2024 Booker Prize, is the topic of this month’s discussion.`\
+https://nytimes.com/2025/05/30/books/review/podcast-the-safekeep-book-club.html
+
 **Flash Floods Kill Dozens in Western Nigeria**\
 `Torrential rainfall triggered devastating floods in a western Nigerian town, according to local officials, who said the severity of the flood had taken them by surprise.`\
 https://nytimes.com/video/world/africa/100000010199339/nigeria-deadly-flash-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/30/t-magazine/taos-new-mexico-hotel-food-guide.html
 **A Ramshackle House on Nantucket, Brought Back to Shipshape**\
 `A woman moved to the island with her two children during the pandemic, and then stayed, settling into the community of Sconset.`\
 https://nytimes.com/2025/05/30/realestate/living-small-nantucket-ivy-lodge.html
-
-**Cuomo Loses Another $675,000 Over Suspected Super PAC Coordination**\
-`The penalty came as New York City’s campaign board awarded $2 million in public matching funds to Adrienne Adams, a rival candidate for mayor.`\
-https://nytimes.com/2025/05/30/nyregion/cuomo-super-pac-funds.html
 
