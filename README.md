@@ -1,3 +1,7 @@
+**At a Legendary Manhattan Townhouse, a Party With Great Art and Great Shoes**\
+`The founder of the footwear brand Le Monde Béryl hosted a 100-plus-person gathering at her artist sister’s home in Harlem.`\
+https://nytimes.com/2025/05/30/t-magazine/le-monde-beryl-party-shoes.html
+
 **Do You Need to Send a Holiday Card to Receive One?**\
 `A ruling on what it takes to get knocked off the list.`\
 https://nytimes.com/interactive/2025/05/30/magazine/holiday-cards-hodgman.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010199139/watch-live-elon-musk-and-p
 **Macron, Infuriating Israel, Says It Can’t ‘Have Its Way’ in Gaza**\
 `A series of exchanges marked a new low point in the relationship between France and Israel, which accused the French president of “a crusade against the Jewish state.”`\
 https://nytimes.com/2025/05/30/world/europe/france-macron-israel-netanyahu.html
-
-**Book Club: Let’s Talk About ‘The Safekeep’**\
-`Yael van der Wouden’s novel, shortlisted for the 2024 Booker Prize, is the topic of this month’s discussion.`\
-https://nytimes.com/2025/05/30/books/review/podcast-the-safekeep-book-club.html
 
