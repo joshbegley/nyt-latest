@@ -1,40 +1,40 @@
-**French Open head Mauresmo 'will not accept' criticism of night session scheduling**\
-`The French Open tournament director says match length is why the event has not a women's match in the night session since 2023.`\
-https://nytimes.com/athletic/6392699/2025/05/30/tennis-french-open-night-session-womens-matches-schedule/
+**Inside the Mets' new outfield ritual: 'That's a Juan thing'**\
+`Soto got the idea from from former teammate Kyle Schwarber, who told him outfielders "should have each other's backs."`\
+https://nytimes.com/athletic/6392239/2025/05/30/mets-juan-soto-outfield-ritual/
 
-**Brentford reject Leverkusen bid of around €9m for Flekken**\
-`Brentford are open to selling the Netherlands international but value him at closer to €13m and want to secure a replacement first.`\
-https://nytimes.com/athletic/6392843/2025/05/30/mark-flekken-brentford-leverkusen-bid/
+**With a wealth of options, Hurricanes have ingredients for a memorable summer**\
+`As the dust starts to settle after the Eastern Conference final, GM Eric Tulsky is well-positioned to shape the roster for next season.`\
+https://nytimes.com/athletic/6392262/2025/05/30/carolina-hurricanes-offseason-trades-free-agency/
 
-**Alexander-Arnold x Bellingham: The bromance set for Real Madrid**\
-`The friendship between two of England's best young players adds an intriguing sub-plot to Real Madrid's latest transfer`\
-https://nytimes.com/athletic/6392727/2025/05/30/alexander-arnold-real-madrid-bellingham-bromance/
+**Ousmane Dembele, the 'paranormal' PSG talent who knows all about the Bolsheviks**\
+`Dembele has been a driving force behind PSG's run to the Champions League final, having rejuvenated his career under Luis Enrique`\
+https://nytimes.com/athletic/6390558/2025/05/30/ousmane-dembele-psg-champions-league/
 
-**The 2024-25 FPL champion on how he beat 11.5m players and why he's thankful to Glasner**\
-`The 2024-25 FPL world number one tells Abdul Rehman how it feels to win it all and what he considers the keys to his success`\
-https://nytimes.com/athletic/6389987/2025/05/30/fantasy-premier-league-champion-interview/
+**What we saw from the Sabres' prospects during Rochester's AHL playoff run**\
+`The Amerks lost to Laval in the Calder Cup playoffs, but it was another strong season for Buffalo's AHL affiliate.`\
+https://nytimes.com/athletic/6390894/2025/05/30/buffalo-sabres-prospects-rochester-americans-playoffs-2025/
 
-**Row Z end of season special: Gianni Infantino takes on Cristiano Ronaldo for the humility award**\
-`Our 2024-25 wrap also takes in Tim Walter's sacking at Hull City, and there's even a much-needed award for Manchester United`\
-https://nytimes.com/athletic/6392533/2025/05/30/ronaldo-infantino-fifa-hull-row-z/
+**How Oli Marmol balances development and playing time during Cardinals' torrid May**\
+`Alec Burleson and Iván Herrera are among the Cardinals players who have knocked down the door for more at-bats.`\
+https://nytimes.com/athletic/6391318/2025/05/30/cardinals-oli-marmol-playing-time/
 
-**Ohio State roster audit: What to expect from every defensive player**\
-`Here are 46 thoughts on Ohio State’s 46 scholarship defensive and special teams players entering the 2025 season.`\
-https://nytimes.com/athletic/6390637/2025/05/30/ohio-state-football-defense-roster-2025/
+**Maple Leafs top prospect Easton Cowan is shining in Memorial Cup spotlight. Is he NHL-ready?**\
+`Easton Cowan and the OHL champion London Knights are set to play in the Memorial Cup semifinal Friday night.`\
+https://nytimes.com/athletic/6384907/2025/05/30/maple-leafs-prospect-easton-cowan-memorial-cup/
 
-**Conte decides to stay at Napoli after winning Serie A**\
-`Napoli clinched their second league title in three seasons last Friday, beating Inter by a point.`\
-https://nytimes.com/athletic/6341927/2025/05/30/antonio-conte-napoli-manager-stays/
+**Canucks trade targets: 14 top-six forwards who could boost Vancouver's attack**\
+`Vancouver are going to try and be "all in" this summer. So who could they target?`\
+https://nytimes.com/athletic/6392482/2025/05/30/canucks-trade-targets-14-options/
 
-**Pacers remain confident despite Game 5 dud vs. Knicks: 'We just weren't us'**\
-`After its worst shooting performance of this year's playoffs, Indiana heads home for a pivotal Game 6 on Saturday.`\
-https://nytimes.com/athletic/6392518/2025/05/30/pacers-game-5-knicks-east-finals-loss-haliburton/
+**Whitecaps' Champions Cup run crests at the perfect time for Canadian soccer**\
+`With Canada cohosting the 2026 World Cup and the men's national team on the rise, the Whitecaps' stellar CCC run is hitting some key notes`\
+https://nytimes.com/athletic/6390127/2025/05/30/vancouver-whitecaps-concacaf-champions-cup-final-canada-soccer/
 
-**‘Bellwether of Risks’: What ‘Buy Now, Pay Later’ Defaults Say About the Consumer**\
-`An increase in deferred pay-later loans has raised alarms, as the Trump administration seeks to gut the agency tasked with policing the sector.`\
-https://nytimes.com/2025/05/30/business/dealbook/buy-now-pay-later-defaults.html
+**Champions League final Q&A: Our writers answer your questions on PSG v Inter**\
+`After 188 games, the 2024-25 Champions League comes to its conclusion on Saturday night in Munich as Paris Saint-Germain face Inter`\
+https://nytimes.com/athletic/6390230/2025/05/30/champions-league-final-psg-inter/
 
-**Yordan Alvarez's expected return to Astros' lineup prompts questions**\
-`Whether Alvarez can play pain-free, or where he will hit within a surging batting order, is unknown as he seems near to a potential return.`\
-https://nytimes.com/athletic/6392235/2025/05/30/yordan-alvarez-astros-lineup-questions/
+**Red Wings fan survey: Sound off on Detroit's direction**\
+`Make your voice heard on the Red Wings' direction, management and more by taking this survey.`\
+https://nytimes.com/athletic/6391583/2025/05/30/red-wings-offseason-survey-steve-yzerman/
 
