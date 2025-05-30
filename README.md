@@ -10,7 +10,7 @@ https://nytimes.com/2025/05/29/us/politics/jd-vance-plane-deportation-flights.ht
 `Korda entered this week carrying all these hopes and dreams, and she kept herself in it. `\
 https://nytimes.com/athletic/6392167/2025/05/29/nelly-korda-and-the-weight-and-wait-of-the-u-s-open/
 
-**Christian McCaffrey looks like his 2023 self as re-energized 49ers begin OTAs**\
+**Christian McCaffrey looks like his 2023 self as energized 49ers begin OTAs**\
 `Asked which young players have stood out to him, Fred Warner cited first-round draft pick Mykel Williams and third rounder Nick Martin.`\
 https://nytimes.com/athletic/6392118/2025/05/29/christian-mccaffrey-san-francisco-49ers-otas/
 
