@@ -1,3 +1,7 @@
+**A Court Debates Whether a Climate Lawsuit Threatens National Security**\
+`The judge asked lawyers how a suit by Charleston, S.C., claiming oil companies misled people about climate risks, might be affected by a Trump executive order blasting cases like these.`\
+https://nytimes.com/2025/05/30/climate/charleston-oil-companies-lawsuit.html
+
 **Paige Bueckers enters concussion protocol, will miss next 2 Dallas Wings games**\
 `Bueckers was placed in the protocol after Thursday’s loss to the Chicago Sky.`\
 https://nytimes.com/athletic/6394001/2025/05/30/paige-bueckers-dallas-wings-concussion-protocol/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393951/2025/05/30/santander-blue-jays-offseason-ad
 **Trump Pledges to Double Tariffs on Foreign Steel to 50%**\
 `President Trump made the announcement at a U.S. Steel factory outside Pittsburgh.`\
 https://nytimes.com/2025/05/30/us/politics/trump-steel-tariffs-nippon.html
-
-**Lions OTAs: Jared Goff-John Morton relationship, more Jameson Williams hype**\
-`While the QB and new OC build rapport, coach Dan Campbell discusses a tough 2025 schedule for the Lions.`\
-https://nytimes.com/athletic/6393885/2025/05/30/detroit-lions-otas-jared-goff-jameson-williams/
 
