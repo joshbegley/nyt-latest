@@ -1,3 +1,11 @@
+**The Windup: Dodgers-Yankees is back! Read up**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6392497/2025/05/30/yankees-dodgers-world-series-rematch-the-windup/
+
+**What Marcus Freeman has learned and what it means for Notre Dame's biggest questions**\
+`On Thursday, Freeman met with a small group of reporters to talk Notre Dame's QB battle, what the Ohio State loss showed and more.`\
+https://nytimes.com/athletic/6392860/2025/05/30/notre-dame-marcus-freeman-interview-quarterbacks/
+
 **Liverpool submit €130m transfer offer for Florian Wirtz**\
 `Wirtz, 22, has emerged as a key target for Liverpool and the Germany international playmaker is keen on a move to Anfield.`\
 https://nytimes.com/athletic/6379410/2025/05/30/liverpool-florian-wirtz-transfer-fee/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391318/2025/05/30/cardinals-oli-marmol-playing-tim
 **Maple Leafs top prospect Easton Cowan is shining in Memorial Cup spotlight. Is he NHL-ready?**\
 `Easton Cowan and the OHL champion London Knights are set to play in the Memorial Cup semifinal Friday night.`\
 https://nytimes.com/athletic/6384907/2025/05/30/maple-leafs-prospect-easton-cowan-memorial-cup/
-
-**Canucks trade targets: 14 top-six forwards who could boost Vancouver's attack**\
-`Vancouver are going to try and be "all in" this summer. So who could they target?`\
-https://nytimes.com/athletic/6392482/2025/05/30/canucks-trade-targets-14-options/
-
-**Whitecaps' Champions Cup run crests at the perfect time for Canadian soccer**\
-`With Canada cohosting the 2026 World Cup and the men's national team on the rise, the Whitecaps' stellar CCC run is hitting some key notes`\
-https://nytimes.com/athletic/6390127/2025/05/30/vancouver-whitecaps-concacaf-champions-cup-final-canada-soccer/
 
