@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, May 31, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/05/30/upshot/flashback.html
+
+**Watch: Tobin Heath talks World Sevens Football with 'Full Time'**\
+`"Full Time" sat down with Tobin Heath to discuss the future of World Sevens Football (W7F) and what might come next.`\
+https://nytimes.com/athletic/6392670/2025/05/30/tobin-heath-world-sevens-football-uswnt-full-time/
+
+**PBS Sues Trump Over Order to Cut Funding**\
+`The lawsuit, filed in federal court in Washington by PBS and a Minnesota public TV station, said President Trump’s executive order was unconstitutional.`\
+https://nytimes.com/2025/05/30/business/media/pbs-trump-lawsuit-funding.html
+
 **Alarmed by Trump Cuts, Scientists Are Talking Science. For 100 Hours.**\
 `Meteorologists and climate researchers aim to run a livestream for 100 hours in protest of the Trump administration’s cuts to weather and climate research.`\
 https://nytimes.com/2025/05/30/climate/science-livestream-budget-cuts.html
