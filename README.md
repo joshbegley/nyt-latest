@@ -1,3 +1,15 @@
+**1 Killed and at Least 7 Are Injured in Tornado in Kentucky, Officials Say**\
+`The Washington County Sheriff’s Office said there was severe damage.`\
+https://nytimes.com/2025/05/30/us/tornado-kentucky-death-injuries.html
+
+**Weekend Wagers: What the Knicks, Andor and Daniel Day Lewis can teach us about this week's bets**\
+`Here are fun ways to bet on this weekend's biggest games, including Pacers-Knicks and the Champions League Final.`\
+https://nytimes.com/athletic/6393101/2025/05/30/weekend-wagers-most-intriguing-bets-yankees-dodgers-pacers-knicks-wnba/
+
+**Sabres hire former Blue Jackets GM Jarmo Kekäläinen as senior adviser**\
+`Kekäläinen will report to Buffalo general manager Kevyn Adams and assist in all aspects of the hockey department.`\
+https://nytimes.com/athletic/6393321/2025/05/30/sabres-jarmo-kekalainen-hired/
+
 **Ernst’s Remark About Medicaid Cuts Draws Jeers at Iowa Town Hall**\
 `In an exchange about the effects of Trump’s domestic policy bill, Senator Joni Ernst told constituents, ‘We all are going to die.’`\
 https://nytimes.com/2025/05/30/us/politics/medicaid-cuts-joni-ernst-iowa-town-hall.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/30/arts/music/sxsw-london-music-shoreditch.html
 **A ‘Nurse Action Movie’ Might Be Different, but That’s the Point**\
 `From TV series to art house films, Leonie Benesch brings a quiet intensity to the screen, including her latest movie.`\
 https://nytimes.com/2025/05/30/movies/leonie-benesch-nurse-night-shift.html
-
-**For This Director, Iranian Films Can Be About More Than Despair**\
-`Amirali Navaee’s new film, “Sunshine Express,” screening next at South by Southwest London, is a project more focused on hope than politics.`\
-https://nytimes.com/2025/05/30/movies/sxsw-london-amirali-navaee.html
-
-**Islamic State Says It Targeted Syrian Forces in Bombings**\
-`The extremist group claimed responsibility for two attacks, its first against the new government since the fall of Bashar al-Assad, a war monitoring group said.`\
-https://nytimes.com/2025/05/30/world/middleeast/islamic-state-attacks-syria.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a Chinese martial arts movie, an Indonesian political thriller, a documentary about a Norwegian family that stumbles upon a long-hidden secret and more.`\
-https://nytimes.com/2025/05/30/movies/international-movies-streaming.html
 
