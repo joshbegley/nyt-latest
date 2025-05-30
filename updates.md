@@ -1,3 +1,15 @@
+**Champions League final Q&A with Michael Cox and James Horncastle: Where will PSG-Inter be won and lost?**\
+`The highlights of Michael Cox and James Horncastle's live analysis of the Champions League's Paris Saint-Germain vs nter final`\
+https://nytimes.com/athletic/6393182/2025/05/30/champions-league-final-inter-psg-horncastle-cox/
+
+**U.S. tennis president Lew Sherr to leave USTA for New York Mets**\
+`Sherr led an overhaul of the U.S. player development program and the coming renovation of Arthur Ashe Stadium at the U.S. Open.`\
+https://nytimes.com/athletic/6393368/2025/05/30/lew-sherr-usta-tennis-new-york-mets/
+
+**The New Mexico Town That’s Still a Beacon for Artists**\
+`Where to find the best small inns, chile relleno and secluded hot springs in and around Taos.`\
+https://nytimes.com/2025/05/30/t-magazine/taos-new-mexico-hotel-food-guide.html
+
 **A Ramshackle House on Nantucket, Brought Back to Shipshape**\
 `A woman moved to the island with her two children during the pandemic, and then stayed, settling into the community of Sconset.`\
 https://nytimes.com/2025/05/30/realestate/living-small-nantucket-ivy-lodge.html
