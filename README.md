@@ -1,3 +1,7 @@
+**Jonathan Aranda, Jacob Wilson and more top waiver wire adds for fantasy baseball**\
+`Owen Poindexter weighs in on the most added hitting and pitching options this week on the fantasy baseball waiver wire.`\
+https://nytimes.com/athletic/6391603/2025/05/30/fantasy-baseball-waiver-wire-pickups-aranda-wilson/
+
 **Who Should Consider Getting Flood Insurance? These Days, Almost Everyone.**\
 `Inland areas have suffered severe flooding in recent years, experts note. And standard homeowner policies don’t cover flood damage.`\
 https://nytimes.com/2025/05/30/your-money/flood-insurance-homeowners-hurricanes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392858/2025/05/30/west-ham-chelsea-homophobic-chan
 **The Windup: Dodgers-Yankees is back! Read up**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6392497/2025/05/30/yankees-dodgers-world-series-rematch-the-windup/
-
-**What Marcus Freeman has learned and what it means for Notre Dame's biggest questions**\
-`On Thursday, Freeman met with a small group of reporters to talk Notre Dame's QB battle, what the Ohio State loss showed and more.`\
-https://nytimes.com/athletic/6392860/2025/05/30/notre-dame-marcus-freeman-interview-quarterbacks/
 
