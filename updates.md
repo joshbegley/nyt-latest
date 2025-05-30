@@ -1,3 +1,15 @@
+**FIFA 'far away' from a deal with league unions over football calendar, says PL board member**\
+`European Leagues and FIFPro filed a formal complaint in October against world football’s governing body at the European Commission.`\
+https://nytimes.com/athletic/6393294/2025/05/30/fifpro-player-workload-fifa/
+
+**Stanley Cup Final odds: Oilers given an early edge against defending champion Panthers**\
+`The Oilers are a very small favorite against the Panthers before the Stanley Cup Final starts next week.`\
+https://nytimes.com/athletic/6393260/2025/05/30/stanley-cup-final-odds-oilers-panthers/
+
+**Lorde’s Anthem of Transformation, and 9 More New Songs**\
+`Hear tracks by Miley Cyrus featuring Brittany Howard, Thom Yorke, Kaitlyn Aurelia Smith and others.`\
+https://nytimes.com/2025/05/30/arts/music/playlist-lorde-miley-cyrus-thom-yorke.html
+
 **Watch Live: Elon Musk and President Trump Deliver Remarks**\
 `Earlier this week, Mr. Musk announced that he was ending his work with the government to spend more time on his companies.`\
 https://nytimes.com/video/us/politics/100000010199139/watch-live-elon-musk-and-president-trump-deliver-remarks.html
