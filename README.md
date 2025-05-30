@@ -1,3 +1,11 @@
+**Smoke From Wildfires in Canada Wafts Into the Upper Midwest**\
+`States across the border issued air advisories about particulate pollution that are expected to last for several days.`\
+https://nytimes.com/2025/05/30/weather/wildfires-canada-smoke.html
+
+**C.D.C. Contradicts Kennedy and Keeps Advice That Children May Get Covid Shots**\
+`Health Secretary Robert F. Kennedy Jr. said Covid shots were coming off the childhood vaccine schedule. A memo sent by the agency Friday contradicted that.`\
+https://nytimes.com/2025/05/30/health/cdc-covid-vaccines-children-pregnant-women.html
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 5/30 at 3:00 p.m. ET**\
 `Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
 https://nytimes.com/athletic/6393530/2025/05/30/sarris-live-chat-mlb-fantasy-baseball-5-30/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6393540/2025/05/30/prime-tire-farewell-to-f1s-lab-t
 **At a Legendary Manhattan Townhouse, a Party With Great Art and Great Shoes**\
 `The founder of the footwear brand Le Monde Béryl hosted a 100-plus-person gathering at her artist sister’s home in Harlem.`\
 https://nytimes.com/2025/05/30/t-magazine/le-monde-beryl-party-shoes.html
-
-**Do You Need to Send a Holiday Card to Receive One?**\
-`A ruling on what it takes to get knocked off the list.`\
-https://nytimes.com/interactive/2025/05/30/magazine/holiday-cards-hodgman.html
-
-**Denying Visas to Chinese Students Will Backfire on America**\
-`Protecting the borders from espionage is essential. It’s something else to deny students because they are Chinese and hope to pursue a STEM degree in the United States.`\
-https://nytimes.com/2025/05/30/business/china-student-visas-trump.html
 
