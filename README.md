@@ -1,3 +1,7 @@
+**Delap set for Monday medical ahead of £30m Chelsea transfer**\
+`The England Under-21 international had multiple suitors after scoring 12 goals in 40 matches for Ipswich in his first season at the club.`\
+https://nytimes.com/athletic/6393488/2025/05/30/liam-delap-set-for-monday-medical-ahead-of-30m-chelsea-transfer/
+
 **Real Madrid begin talks to renew teenager Fortea's contract**\
 `Following Arbeloa’s promotion to coach Real Madrid Castilla, both parties are now keen to extend the 18-year-old’s deal. `\
 https://nytimes.com/athletic/6393682/2025/05/30/real-madrid-jesus-foreta-contract-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393208/2025/05/30/manute-bol-fleer-basketball-card
 **The 6.1.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/05/30/the-612025-issue
-
-**Crown lawyer presses Carter Hart on players’ efforts to ‘keep her in the room’**\
-`In cross-examination of Carter Hart at Hockey Canada sexual assault trial, prosecutor suggests players took steps "to keep the party going."`\
-https://nytimes.com/athletic/6393225/2025/05/30/hockey-canada-sexual-assault-trial-week-carter-hart-testimony/
 
