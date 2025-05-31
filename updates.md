@@ -1,3 +1,7 @@
+**Two-Person Shot**\
+`Adam Aaronson and Ricky Cruz deliver a one-two punch.`\
+https://nytimes.com/2025/05/30/crosswords/daily-puzzle-2025-05-31.html
+
 **Trump Administration Ends Program Critical to Search for an H.I.V. Vaccine**\
 `The termination is the latest in a series of cuts to H.I.V. research and programs to prevent the disease.`\
 https://nytimes.com/2025/05/30/health/trump-hiv-cuts.html
