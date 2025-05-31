@@ -1,40 +1,40 @@
-**Best Practices**\
-`Establishing a streak is a low-pressure way to generate feelings of pride and self-respect around the things you’re already doing in your everyday life.`\
-https://nytimes.com/2025/05/31/briefing/best-practices.html
+**Lazerus: For Oilers, Panthers and other truly elite teams, the regular season doesn't matter much**\
+`Getting to the playoffs healthy is what matters most, even if it means coasting at times.`\
+https://nytimes.com/athletic/6391748/2025/05/31/oilers-panthers-stanley-cup-standings/
 
-**Fernando Alonso is point-less so far in F1 2025. But he isn't thinking of retirement yet**\
-`Fernando Alonso has equalled his worst start ever to a Formula One season in 2025. But he's not about to give up on his career yet`\
-https://nytimes.com/athletic/6393494/2025/05/31/fernando-alonso-f1-retirement/
+**Where did this Blue Jays offence come from?**\
+`"We did a very, very good job against the starting pitching," manager John Schneider said of Friday's 11-7 win over the Athletics.`\
+https://nytimes.com/athletic/6394187/2025/05/31/blue-jays-win-athletics-offensive-explosion/
 
-**What’s the best way to coach youth sports? We asked 3 former pros turned coaches**\
-`We checked in with three former professional athletes who now coach youth sports to see what advice they had for other coaches or parents.`\
-https://nytimes.com/athletic/6393190/2025/05/31/best-way-coach-youth-sports/
+**Matthijs de Ligt interview: Amorim's honesty, playing in a back three and a Kuala Lumpur bus tour**\
+`The defender explains why he appreciates Ruben Amorim's man management and his desire to help United turn things around next season`\
+https://nytimes.com/athletic/6394299/2025/05/31/matthijs-de-ligt-interview-amorim-manchester-united/
 
-**A Trade Court Rebuke of Trump’s Tariffs Offers Little Relief to Canada**\
-`This week’s ruling blocking many of the president’s tariffs will not lift those on Canadian cars, steel and aluminum. A trade expert explains what’s next.`\
-https://nytimes.com/2025/05/31/world/canada/trade-court-tariffs-canada.html
+**Bill Belichick's UNC buyout drops on June 1. Here's what it means**\
+`June 1 was highlighted as a significant date for Bill Belichick when his North Carolina contract was released. So what's actually changing?`\
+https://nytimes.com/athletic/6393295/2025/05/31/bill-belichick-unc-contract-buyout-june-1/
 
-**Connections Companion No. 721**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 1, 2025.`\
-https://nytimes.com/2025/05/31/crosswords/connections-companion-721.html
+**Really, Secretary Rubio? I’m Lying About the Kids Dying Under Trump?**\
+`Many thousands of children are dying because of cuts in American humanitarian aid, and denials by Elon Musk and Marco Rubio don’t change that reality.`\
+https://nytimes.com/2025/05/31/opinion/rubio-usaid-africa.html
 
-**Wordle Review No. 1,443**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 1, 2025.`\
-https://nytimes.com/2025/05/31/crosswords/wordle-review-1443.html
+**Tech Bro Had to Go**\
+`Two emperors of chaos decide that two is one too many.`\
+https://nytimes.com/2025/05/31/opinion/elon-musk-doge-trump.html
 
-**How to watch the USWNT vs. China in Saturday's international friendly**\
-`The USWNT has five international friendlies coming up, beginning with Saturday's match against China.`\
-https://nytimes.com/athletic/6393556/2025/05/31/uswnt-china-soccer-how-to-watch/
+**How NHL combine participants prep for their 'biggest job interview': Wingate, weighted chin-ups, more**\
+`From not puking on the Wingate cycle test to not stumbling on the 5-10-5, prospects must send the right message to potential NHL employers.`\
+https://nytimes.com/athletic/6377797/2025/05/31/nhl-draft-scouting-combine-preparation/
 
-**Miley Cyrus Told Us to Ask Her Anything**\
-`The Grammy-winning singer on overcoming child stardom, accepting her parents and being in control.`\
-https://nytimes.com/2025/05/31/magazine/miley-cyrus-interview.html
+**Harvard as Symbol and Target**\
+`Readers react to Steven Pinker’s essay on the Trump administration’s conflict with the university and its repercussions.`\
+https://nytimes.com/2025/05/31/opinion/harvard-steven-pinker.html
 
-**Miley Cyrus Told Us to Ask Her Anything**\
-`The Grammy-winning singer on overcoming child stardom, accepting her parents and being in control.`\
-https://nytimes.com/video/podcasts/100000010185169/miley-cyrus-told-us-to-ask-her-anything.html
+**How Far Can We Degrade Our Hurricane Forecasting Before People End Up Dead?**\
+`It’s only a matter of time before the next Milton is at our doorstep. But with our weather intelligence severely compromised, will we know it?`\
+https://nytimes.com/2025/05/31/opinion/hurricanes-florida-forecasting-national-weather-service.html
 
-**A Federal List of Immigrant ‘Sanctuaries’ Nets Trump Allies and Foes Alike**\
-`Cities and counties that have strongly backed the administration’s immigration crackdown nonetheless found themselves on a lengthy list of locales being warned to change their policies.`\
-https://nytimes.com/2025/05/31/us/politics/sanctuary-cities-trump.html
+**Why Trump Is Resilient**\
+`Chickening out is crucial to his political success.`\
+https://nytimes.com/2025/05/31/opinion/trump-taco-resilient.html
 
