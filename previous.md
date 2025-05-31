@@ -1,3 +1,7 @@
+**Lance Stroll out of Spanish GP, to undergo procedure after hand and wrist pain**\
+`A statement from his Aston Martin team indicated the 26-year-old has been experiencing pain for the past six weeks.`\
+https://nytimes.com/athletic/6394804/2025/05/31/f1-spanish-grand-prix-lance-stroll-out/
+
 **Alaska Man Survives 3 Hours Pinned Face Down Under a 700-Pound Boulder**\
 `Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face first in a creek as his wife held his head out of the water.`\
 https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/canada-wildfires-2025.html
 **Peter David, Comic Book Writer Who Repopularized the Hulk, Dies at 68**\
 `His long run with that venerable character was the highlight of a career that also encompassed Spider-Man, Aquaman and best-selling “Star Trek” novels.`\
 https://nytimes.com/2025/05/31/arts/peter-david-dead.html
-
-**Man Utd named world’s 2nd most valuable football club; 8 MLS teams in top 30**\
-`United are valued at $6.6billion (£5.2bn) with Real Madrid topping the global list for a fourth successive year at $6.75bn.`\
-https://nytimes.com/athletic/6394581/2025/05/31/manchester-united-value-forbes-list-real-madrid/
 

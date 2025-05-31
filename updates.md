@@ -1,3 +1,7 @@
+**Lance Stroll out of Spanish GP, to undergo procedure after hand and wrist pain**\
+`A statement from his Aston Martin team indicated the 26-year-old has been experiencing pain for the past six weeks.`\
+https://nytimes.com/athletic/6394804/2025/05/31/f1-spanish-grand-prix-lance-stroll-out/
+
 **Alaska Man Survives 3 Hours Pinned Face Down Under a 700-Pound Boulder**\
 `Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face first in a creek as his wife held his head out of the water.`\
 https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
