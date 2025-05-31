@@ -1,3 +1,7 @@
+**Oscar Piastri secures pole as McLaren dominates in Spain**\
+`Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates with a one-two on the front row `\
+https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
+
 **Oscar Piastri secures pole as McLaren dominates**\
 `Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates`\
 https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
