@@ -1,3 +1,11 @@
+**Miley Cyrus Told Us to Ask Her Anything**\
+`The Grammy-winning singer on overcoming child stardom, accepting her parents and being in control.`\
+https://nytimes.com/2025/05/31/magazine/miley-cyrus-interview.html
+
+**Miley Cyrus Told Us to Ask Her Anything**\
+`The Grammy-winning singer on overcoming child stardom, accepting her parents and being in control.`\
+https://nytimes.com/video/podcasts/100000010185169/miley-cyrus-told-us-to-ask-her-anything.html
+
 **A Federal List of Immigrant ‘Sanctuaries’ Nets Trump Allies and Foes Alike**\
 `Cities and counties that have strongly backed the administration’s immigration crackdown nonetheless found themselves on a lengthy list of locales being warned to change their policies.`\
 https://nytimes.com/2025/05/31/us/politics/sanctuary-cities-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/31/us/politics/wes-moore-tim-walz-south-carolina-dem
 **This ‘Mountainhead’ Star Only Looks Like a Nihilist**\
 `In this film by Jesse Armstrong (“Succession”), Cory Michael Smith plays a tech god who thinks that destroying the world would be pretty funny.`\
 https://nytimes.com/2025/05/31/arts/television/mountainhead-cory-michael-smith.html
-
-**Gen Z Doesn’t Want to Start a Bar Tab**\
-`To the chagrin of bartenders, many 20-something bargoers prefer to close out and pay after every single drink, no matter how many they might order during an outing.`\
-https://nytimes.com/2025/05/31/business/gen-z-bar-etiquette.html
-
-**How They Pulled Off That Wild ‘Mission: Impossible’ Plane Stunt**\
-`Creating Tom Cruise’s pivotal scene for “The Final Reckoning,” required months of grit, G-force training and a little hypothermia.`\
-https://nytimes.com/2025/05/31/movies/mission-impossible-plane-scene.html
 
