@@ -1,3 +1,7 @@
+**A Global Community Joins ‘the Conversation’ at the Met’s Rockefeller Wing**\
+`A dinner commemorated the reopening of the wing and its revamped collection of work from Africa, the ancient Americas and Oceania.`\
+https://nytimes.com/2025/05/31/style/michael-rockefeller-metropolitan-party-gala.html
+
 **What We Know About the Conflict Over a Trans Athlete in a California Track Meet**\
 `The final day of the high school championships is Saturday, and the athlete was the top performer in three preliminary events, adding to the national debate about fairness and inclusion.`\
 https://nytimes.com/2025/05/31/us/california-track-field-transgender-trump.html
@@ -22,8 +26,8 @@ https://nytimes.com/2025/05/31/business/opec-plus-oil-production.html
 ``\
 https://nytimes.com/live/2025/05/31/us/trump-news
 
-**Diddy, Cassie and the Allure of Victim Blaming**\
-`His supporters prey on a public that does not understand how abuse works.`\
+**What Diddy’s Defenders Ignore**\
+`Why victim blaming persists in spite of the evidence.`\
 https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
 
 **When a tennis court comes to life: The living clay of Roland Garros**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-wea
 **Gay-Themed Forum Is Canceled in Malaysia**\
 `The public criticism from the government and online attacks that prompted its organizers to back down are the latest examples of the increasing influence of religious conservatism.`\
 https://nytimes.com/2025/05/31/world/asia/gay-themed-forum-is-canceled-in-malaysia.html
-
-**Everton complete permanent signing of Alcaraz from Flamengo**\
-`The 22-year-old has signed a two-year deal, which will see him stay at the club until the summer of 2027.`\
-https://nytimes.com/athletic/6394365/2025/05/31/everton-alcaraz-permanent-signing/
 

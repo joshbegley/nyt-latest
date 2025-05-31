@@ -1,3 +1,11 @@
+**A Global Community Joins ‘the Conversation’ at the Met’s Rockefeller Wing**\
+`A dinner commemorated the reopening of the wing and its revamped collection of work from Africa, the ancient Americas and Oceania.`\
+https://nytimes.com/2025/05/31/style/michael-rockefeller-metropolitan-party-gala.html
+
+**What Diddy’s Defenders Ignore**\
+`Why victim blaming persists in spite of the evidence.`\
+https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
+
 **When a tennis court comes to life: The living clay of Roland Garros**\
 `Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
 https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
