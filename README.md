@@ -1,3 +1,7 @@
+**Iran Has Ramped Up Uranium Enrichment While Continuing Nuclear Talks**\
+`Tehran now has the capability to produce bomb-grade fuel for roughly 10 weapons, according to a confidential United Nations report.`\
+https://nytimes.com/2025/05/31/us/politics/iran-nuclear.html
+
 **Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
 `The group did not say whether it had accepted or rejected the deal to halt fighting for at least two months and ensure the release of some of the remaining hostages.`\
 https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/us/california-track-field-transgender-trump.html
 **Salmonella Outbreak Linked to Cucumbers Sickens 45 People**\
 `The outbreak, which was traced to a grower in Florida, has spread to 18 states, according to the C.D.C. Several distributors and stores, including Target, have recalled products containing cucumbers.`\
 https://nytimes.com/2025/05/31/health/cucumbers-recall-salmonella-outbreak.html
-
-**Étienne-Émile Baulieu, Father of the Abortion Pill, Is Dead at 98**\
-`He became an advocate of a woman’s right to choose and once said, “It is always tragic when politics takes the most vulnerable hostage — in this case, women.”`\
-https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
 
