@@ -1,3 +1,7 @@
+**As Phillies search for bullpen answers, it could be time for Taijuan Walker's new role**\
+`The Phillies had to move Walker back into their rotation just as they discussed making him a late-inning reliever for the first time.`\
+https://nytimes.com/athletic/6394160/2025/05/30/taijuan-walker-bullpen-role-phillies/
+
 **Big night for Francisco Lindor, solid steps for Juan Soto in Mets' win**\
 `Lindor homered from both sides of the plate in the Mets' win over the Rockies on Friday night.`\
 https://nytimes.com/athletic/6394153/2025/05/30/francisco-lindor-juan-soto-mets-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394070/2025/05/30/mexico-united-states-womens-worl
 **Bipartisan duo of senators condemned the cancellation of temporary legal status for Afghans.**\
 `By Adeel Hassan`\
 https://nytimes.com/live/2025/05/30/us/trump-news/bipartisan-duo-of-senators-condemned-the-cancellation-of-temporary-legal-status-for-afghans
-
-**Federal agents contacting NFL, MLB players as part of investigation related to licensing firm**\
-`The players involved are not targets of the investigation, sources said.`\
-https://nytimes.com/athletic/6393997/2025/05/30/federal-agents-investigation-mlbpa-nflpa-oneteam/
 
