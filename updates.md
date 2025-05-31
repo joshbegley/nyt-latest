@@ -1,3 +1,11 @@
+**Michael Harris II is an elite defender, but Braves are still hoping for offensive resurgence**\
+`The Braves know Harris is a much better hitter than he's shown this season, and for much of 2024, because he's done it before.`\
+https://nytimes.com/athletic/6394120/2025/05/30/michael-harris-ii-elite-defender-braves-offensive-slump/
+
+**Mookie Betts to get x-rays, Evan Phillips to undergo Tommy John surgery**\
+`The Dodgers' IL list is currently 14 names long.`\
+https://nytimes.com/athletic/6394017/2025/05/30/dodgers-mookie-betts-evan-phillips-injuries-dodgers/
+
 **Two-Person Shot**\
 `Adam Aaronson and Ricky Cruz deliver a one-two punch.`\
 https://nytimes.com/2025/05/30/crosswords/daily-puzzle-2025-05-31.html
