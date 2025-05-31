@@ -1,3 +1,7 @@
+**Rare Early June Rainfall Could Reach Phoenix**\
+`Measurable rainfall in the first week of June has only been recorded 21 times since 1896, according to weather records. The rain would be welcome after a winter of below-normal precipitation.`\
+https://nytimes.com/2025/05/31/weather/phoenix-rain-weather.html
+
 **Lance Stroll out of Spanish GP, to undergo procedure after hand and wrist pain**\
 `A statement from his Aston Martin team indicated the 26-year-old has been experiencing pain for the past six weeks.`\
 https://nytimes.com/athletic/6394804/2025/05/31/f1-spanish-grand-prix-lance-stroll-out/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/us/politics/supreme-court-immigrants.html
 **Wildfires Are Raging in the Canadian Prairies. Here’s What to Know.**\
 `Michigan, Wisconsin and Minnesota are already seeing air quality deteriorate because of smoke from the fires in Manitoba and Saskatchewan.`\
 https://nytimes.com/article/canada-wildfires-2025.html
-
-**Peter David, Comic Book Writer Who Repopularized the Hulk, Dies at 68**\
-`His long run with that venerable character was the highlight of a career that also encompassed Spider-Man, Aquaman and best-selling “Star Trek” novels.`\
-https://nytimes.com/2025/05/31/arts/peter-david-dead.html
 

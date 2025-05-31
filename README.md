@@ -1,3 +1,11 @@
+**Yordan Alvarez's 'small' hand fracture adds another chapter to Astros' ambiguous medical history**\
+`The team first described Alvarez’s injury as a muscle strain on the top of his right hand.`\
+https://nytimes.com/athletic/6394793/2025/05/31/yordan-alvarez-injury-astros-medical-history/
+
+**Aide to Rep. Nadler Is Handcuffed Amid Confrontation With Federal Agents**\
+`Captured on video, the episode occurred in the congressman’s Manhattan office, shortly after the aide observed agents detaining immigrants outside a courtroom.`\
+https://nytimes.com/2025/05/31/nyregion/nadler-aide-handcuffed-federal-agents.html
+
 **Rare Early June Rainfall Could Reach Phoenix**\
 `Measurable rainfall in the first week of June has only been recorded 21 times since 1896, according to weather records. The rain would be welcome after a winter of below-normal precipitation.`\
 https://nytimes.com/2025/05/31/weather/phoenix-rain-weather.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6394695/2025/05/31/womens-champions-league-us-tv-cb
 **Lynn Freed, South African Writer With a Wry Style, Dies at 79**\
 `In seven novels, dozens of essays and a collection of short stories, she explored her Jewish upbringing during apartheid and the ways women negotiate sexual desire.`\
 https://nytimes.com/2025/05/31/books/lynn-freed-dead.html
-
-**How the Supreme Court Made Legal Immigrants Vulnerable to Deportation**\
-`The court decisions are an abrupt turnaround for a population that entered the country legally and shared detailed information about their whereabouts with the government.`\
-https://nytimes.com/2025/05/31/us/politics/supreme-court-immigrants.html
-
-**Wildfires Are Raging in the Canadian Prairies. Here’s What to Know.**\
-`Michigan, Wisconsin and Minnesota are already seeing air quality deteriorate because of smoke from the fires in Manitoba and Saskatchewan.`\
-https://nytimes.com/article/canada-wildfires-2025.html
 
