@@ -1,3 +1,7 @@
+**F1's new flexi-wing rules 'wasted everyone's money', Hamilton says**\
+`McLaren has still dominated in Barcelona with Oscar Piastri taking pole position for Sunday's Spanish Grand Prix.`\
+https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilton/
+
 **USWNT match-worn jerseys to be auctioned off while they’re being worn**\
 `During the USWNT’s friendly against China on Saturday, MatchWornShirts will launch its first live auction tied to a game.`\
 https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/

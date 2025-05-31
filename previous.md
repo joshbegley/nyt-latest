@@ -1,3 +1,7 @@
+**F1's new flexi-wing rules 'wasted everyone's money', Hamilton says**\
+`McLaren has still dominated in Barcelona with Oscar Piastri taking pole position for Sunday's Spanish Grand Prix.`\
+https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilton/
+
 **USWNT match-worn jerseys to be auctioned off while they’re being worn**\
 `During the USWNT’s friendly against China on Saturday, MatchWornShirts will launch its first live auction tied to a game.`\
 https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394481/2025/05/31/giro-ditalia-standings-simon-yat
 **A Global Community Joins ‘the Conversation’ at the Met’s Rockefeller Wing**\
 `A dinner commemorated the reopening of the wing and its revamped collection of work from Africa, the ancient Americas and Oceania.`\
 https://nytimes.com/2025/05/31/style/michael-rockefeller-metropolitan-party-gala.html
-
-**What We Know About the Conflict Over a Trans Athlete in a California Track Meet**\
-`The final day of the high school championships is Saturday, and the athlete was the top performer in three preliminary events, adding to the national debate about fairness and inclusion.`\
-https://nytimes.com/2025/05/31/us/california-track-field-transgender-trump.html
 
