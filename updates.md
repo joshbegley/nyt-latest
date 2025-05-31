@@ -1,3 +1,16 @@
+**Étienne-Émile Baulieu, Father of the Abortion Pill, Is Dead at 98**\
+`He became an advocate of a woman’s right to choose and once said, “It is always tragic when politics takes the most vulnerable hostage — in this case, women.”`\
+https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
+
+**New Ajax coach Heitinga: Slot's sidekick and Gravenberch's 'mentor' who had big ambitions**\
+`Johnny Heitinga was a key part of Liverpool's title winning backroom staff. But he always had ambitions to become Ajax's head coach...`\
+https://nytimes.com/athletic/6394350/2025/05/31/heitinga-ajax-coach-slot-gravenberch/
+
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
 `This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
 `\

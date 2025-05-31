@@ -1,3 +1,11 @@
+**Étienne-Émile Baulieu, Father of the Abortion Pill, Is Dead at 98**\
+`He became an advocate of a woman’s right to choose and once said, “It is always tragic when politics takes the most vulnerable hostage — in this case, women.”`\
+https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
+
+**New Ajax coach Heitinga: Slot's sidekick and Gravenberch's 'mentor' who had big ambitions**\
+`Johnny Heitinga was a key part of Liverpool's title winning backroom staff. But he always had ambitions to become Ajax's head coach...`\
+https://nytimes.com/athletic/6394350/2025/05/31/heitinga-ajax-coach-slot-gravenberch/
+
 **OPEC Plus Members Say They Will Fast-Track Oil Output**\
 `Saudi Arabia and the United Arab Emirates see a chance to ratchet up production in July, the third consecutive month of accelerated increases.`\
 https://nytimes.com/2025/05/31/business/opec-plus-oil-production.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6392173/2025/05/31/winnipeg-jets-stanley-cup-final-
 `This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
 `\
 https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
-
-**Lowetide: The tweak that could change Oilers' rematch vs. Panthers**\
-`The Oilers will need to defeat the Panthers' suffocating forecheck and fantastic skill on quick turnovers.`\
-https://nytimes.com/athletic/6389143/2025/05/31/oilers-panthers-stanley-cup-final-matchup/
-
-**Lane Hutson's next contract with Canadiens is minefield that might need to wait**\
-`Hutson, coming off a historic rookie season, is eligible to sign a contract extension on July 1. But it might not happen that soon.`\
-https://nytimes.com/athletic/6393579/2025/05/31/canadiens-lane-hutson-contract/
 
