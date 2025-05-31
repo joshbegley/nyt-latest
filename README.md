@@ -1,3 +1,7 @@
+**Lawyers for Migrants Press Appeals Court to Stop Trump’s Use of Alien Enemies Act**\
+`It was an opening salvo in what is likely to be the decisive legal battle over the president’s attempts to employ the rarely used wartime law as a centerpiece of his aggressive deportation agenda.`\
+https://nytimes.com/2025/05/31/us/politics/aclu-trump-venezuelan-immigrants-alien-enemies-act.html
+
 **LSU Shreveport ends historic 59-0 season to win NAIA baseball championship**\
 `Earlier this season, LSU Shreveport broke the record for most consecutive wins, 46, previously held by Division II Savannah State.`\
 https://nytimes.com/athletic/6393136/2025/05/31/undefeated-lsu-shreveport-naia-baseball-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392684/2025/05/31/psg-ultras-champions-league-fina
 **Cristiano Ronaldo's future is unclear. Could he join one of the teams at the Club World Cup?**\
 `Ronaldo's future at Al Nassr is up in the air after a disappointing season and with his contract set to expire at the end of June`\
 https://nytimes.com/athletic/6390416/2025/05/31/cristiano-ronaldo-transfer-latest-club-world-cup/
-
-**Why have U.S. owners become so commonplace in Scottish football?**\
-`Five of the 12 teams in the Scottish Premiership and seven overall will be owned by Americans next season`\
-https://nytimes.com/athletic/6356935/2025/05/31/us-american-owners-scotland-scottish-football/
 
