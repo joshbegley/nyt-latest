@@ -1,3 +1,7 @@
+**Yankees fan says he was hit by falling concrete at Dodger Stadium**\
+`Several stadium security guards and a police officer visited with the fan, who also received medical attention.`\
+https://nytimes.com/athletic/6394232/2025/05/31/yankees-fan-hit-falling-concrete-dodger-stadium/
+
 **Yankees fan hit by falling concrete at Dodger Stadium**\
 `Several stadium security guards and a police officer visited with the fan, who also received medical attention.`\
 https://nytimes.com/athletic/6394232/2025/05/31/yankees-fan-hit-falling-concrete-dodger-stadium/
