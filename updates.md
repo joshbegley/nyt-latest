@@ -1,3 +1,7 @@
+**Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
+`She had memorable roles on TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
+https://nytimes.com/2025/05/31/arts/valerie-mahaffey-dead.html
+
 **Alaska Man Survives Being Pinned Down by a 700-Pound Boulder for 3 Hours**\
 `Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face down in a creek, with a boulder on his back and his wife holding his head out of the water.`\
 https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
