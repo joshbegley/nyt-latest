@@ -1,3 +1,11 @@
+**Luis Enrique's PSG produced a footballing exhibition to destroy Inter and win Champions League**\
+`In a way, football came home on Saturday night. This tournament was invented in Paris in 1954. And now, finally, PSG have won it... `\
+https://nytimes.com/athletic/6394848/2025/05/31/psg-champions-league-win-inter-enrique/
+
+**Making Arrangements**\
+`Sam Brody mixes things up in his Times puzzle debut.`\
+https://nytimes.com/2025/05/31/crosswords/daily-puzzle-2025-06-01.html
+
 **Patti LuPone Is Doing Something Unusual. She’s Apologizing.**\
 `LuPone said she was “deeply sorry for the words” she used in her criticism of Kecia Lewis and Audra McDonald when asked about a dispute over Broadway noise levels.`\
 https://nytimes.com/2025/05/31/theater/patti-lupone-apology-audra-mcdonald.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6394804/2025/05/31/f1-spanish-grand-prix-lance-stro
 **Alaska Man Survives 3 Hours Pinned Face Down Under a 700-Pound Boulder**\
 `Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face first in a creek as his wife held his head out of the water.`\
 https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
-
-**Dodgers install protective netting under spot where concrete chunk fell on fan**\
-`The netting covered an approximately two-foot section that comprises the top deck at the stadium.`\
-https://nytimes.com/athletic/6394764/2025/05/31/dodger-stadium-concrete-fall-fan-yankees/
-
-**Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
-`She had memorable roles on TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
-https://nytimes.com/2025/05/31/arts/valerie-mahaffey-dead.html
 
