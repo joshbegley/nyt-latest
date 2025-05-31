@@ -1,3 +1,8 @@
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **OPEC Plus Members Say They Will Fast-Track Oil Output**\
 `Saudi Arabia and the United Arab Emirates see a chance to ratchet up production in July, the third consecutive month of accelerated increases.`\
 https://nytimes.com/2025/05/31/business/opec-plus-oil-production.html
