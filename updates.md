@@ -1,3 +1,11 @@
+**Trump’s Proposed Budget Would Cut a Major Ecology Program**\
+`From bee science to understanding the impact of a warming world on plant life, here’s what the Ecosystems Mission Area does.`\
+https://nytimes.com/2025/05/31/climate/ecosystems-mission-area-usgs-trump-budget.html
+
+**Mariners set to promote top-50 prospect Cole Young: Source**\
+`Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
+https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
+
 **F1's new flexi-wing rules 'wasted everyone's money', Hamilton says**\
 `McLaren has still dominated in Barcelona with Oscar Piastri taking pole position for Sunday's Spanish Grand Prix.`\
 https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilton/
