@@ -1,3 +1,7 @@
+**Can they do it on a cold rainy day at Roland Garros? Why every tennis match on clay is different**\
+`Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
+https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
+
 **Gay-Themed Forum Is Canceled in Malaysia**\
 `The public criticism from the government and online attacks that prompted its organizers to back down are the latest examples of the increasing influence of religious conservatism.`\
 https://nytimes.com/2025/05/31/world/asia/gay-themed-forum-is-canceled-in-malaysia.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6394277/2025/05/31/dodgers-shohei-ohtani-yankees-wo
 **The Pulse: Can MLB's surprise top team keep going?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6394216/2025/05/31/detroit-tigers-mlb-records-the-pulse/
-
-**2 Books About Hotel Life**\
-`The Ritz Carlton; a decidedly unwhimsical Turkish inn.`\
-https://nytimes.com/2025/05/31/books/read-like-the-wind-book-recommendations.html
 
