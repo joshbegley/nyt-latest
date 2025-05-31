@@ -1,3 +1,11 @@
+**Yankees fan hit by falling concrete at Dodger Stadium**\
+`Several stadium security guards and a police officer visited with the fan, who also received medical attention.`\
+https://nytimes.com/athletic/6394232/2025/05/31/yankees-fan-hit-falling-concrete-dodger-stadium/
+
+**Hegseth, at Security Forum, Vows to Strengthen America’s Asian Alliances**\
+`In a world rattled by President Trump’s tariffs and his scorn for Western allies, the defense secretary struck a rare note of continuity on security partnerships.`\
+https://nytimes.com/2025/05/31/world/asia/hegseth-security-allies-china.html
+
 **Astros' Framber Valdez 'the best I've seen him' in 83-pitch complete game masterpiece**\
 `"That's (Valdez's) game, and he was going to stay out there, and he was going to decide the fate of his own game," manager Joe Espada said.`\
 https://nytimes.com/athletic/6394230/2025/05/31/astros-framber-valdez-83-pitch-complete-game/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6390405/2025/05/31/ben-breenhalgh-inter-champions-l
 **The player we can't write about and football's 'systemic failure' with sexual violence**\
 `A Premier League player is representing his club despite facing accusations of sexual violence. And nobody can talk or do anything about it.`\
 https://nytimes.com/athletic/6372172/2025/05/31/the-player-we-cant-write-about-and-footballs-systemic-failure-to-deal-with-sexual-violence/
-
-**Is Champions League money making Europe's domestic football uncompetitive?**\
-`PSG are battling Inter for a €140+ pot in Munich this weekend - will that money make them impossible for other French sides to beat?`\
-https://nytimes.com/athletic/6372180/2025/05/31/uefa-prize-money-impact-on-domestic-leagues/
-
-**Exile to ecstasy: How PSG's ultras made their city seen and heard**\
-`PSG's most dedicated supporters will be in the stands at Saturday's Champions League final in Munich`\
-https://nytimes.com/athletic/6392684/2025/05/31/psg-ultras-champions-league-final/
 
