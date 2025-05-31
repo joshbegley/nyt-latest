@@ -1,3 +1,7 @@
+**Manchester United's post-season tour: Autographs, drinks, swearing and a swift exit from Asia**\
+`There was gallows humour at times as United completed gruelling post-season commitments in three countries `\
+https://nytimes.com/athletic/6394265/2025/05/31/manchester-united-tour-hong-kong-indonesia/
+
 **How Megan Hilty, a Tony Nominee, Spends Her Show Days**\
 `Ms. Hilty, who is nominated for her work in “Death Becomes Her,” runs from a breakfast date with her husband to red light therapy before a Friday night of singing and dancing on Broadway.`\
 https://nytimes.com/2025/05/31/nyregion/megan-hilty-tony-awards.html

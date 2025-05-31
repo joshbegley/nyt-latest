@@ -1,3 +1,7 @@
+**Manchester United's post-season tour: Autographs, drinks, swearing and a swift exit from Asia**\
+`There was gallows humour at times as United completed gruelling post-season commitments in three countries `\
+https://nytimes.com/athletic/6394265/2025/05/31/manchester-united-tour-hong-kong-indonesia/
+
 **How Megan Hilty, a Tony Nominee, Spends Her Show Days**\
 `Ms. Hilty, who is nominated for her work in “Death Becomes Her,” runs from a breakfast date with her husband to red light therapy before a Friday night of singing and dancing on Broadway.`\
 https://nytimes.com/2025/05/31/nyregion/megan-hilty-tony-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394230/2025/05/31/astros-framber-valdez-83-pitch-c
 **Lawyers for Migrants Press Appeals Court to Stop Trump’s Use of Alien Enemies Act**\
 `It was an opening salvo in what is likely to be the decisive legal battle over the president’s attempts to employ the rarely used wartime law as a centerpiece of his aggressive deportation agenda.`\
 https://nytimes.com/2025/05/31/us/politics/aclu-trump-venezuelan-immigrants-alien-enemies-act.html
-
-**LSU Shreveport ends historic 59-0 season to win NAIA baseball championship**\
-`Earlier this season, LSU Shreveport broke the record for most consecutive wins, 46, previously held by Division II Savannah State.`\
-https://nytimes.com/athletic/6393136/2025/05/31/undefeated-lsu-shreveport-naia-baseball-title/
 
