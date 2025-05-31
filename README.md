@@ -1,3 +1,7 @@
+**Chelsea's 2024-25 player of the season: Moises Caicedo**\
+`The Ecuador international has been called the best defensive midfielder in the world by his club head coach Enzo Maresca`\
+https://nytimes.com/athletic/6382517/2025/05/31/moises-caicedo-chelsea-player-season/
+
 **The ultimate Champions League final guide - PSG's pacy pressing vs Inter's intelligent defensive unit**\
 `The Athletic unpacks where the final is likely to be won or lost`\
 https://nytimes.com/athletic/6390270/2025/05/31/champions-league-guide-inter-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/world/europe/poland-election-trzaskowski-nawrocki
 **India and Pakistan’s Air Battle Is Over. Their Water War Has Begun.**\
 `Though the two neighbors declared a cease-fire this month, a crucial water-sharing treaty remains at risk.`\
 https://nytimes.com/2025/05/31/world/asia/india-pakistan-indus-water-dispute.html
-
-**World Scientists Look Elsewhere as U.S. Labs Stagger Under Trump Cuts**\
-`With the welcome mat withdrawn for promising researchers from around the world, America is at risk of losing its longstanding pre-eminence in the sciences.`\
-https://nytimes.com/2025/05/31/world/asia/us-science-cuts.html
 
