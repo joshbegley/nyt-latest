@@ -1,3 +1,7 @@
+**Patti LuPone Is Doing Something Unusual. She’s Apologizing.**\
+`LuPone said she was “deeply sorry for the words” she used in her criticism of Kecia Lewis and Audra McDonald when asked about a dispute over Broadway noise levels.`\
+https://nytimes.com/2025/05/31/theater/patti-lupone-apology-audra-mcdonald.html
+
 **The Briefing: Champions League final, PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
 `The Athletic's writers analyse Paris Saint-Germain's historic victory in the 2025 Champions League final`\
 https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter-analysis/
