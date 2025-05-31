@@ -1,3 +1,7 @@
+**Mexico will co-host 2031 Women's World Cup with U.S.**\
+`It’s unclear how matches will be split between the co-hosts and whether other Concacaf nations will be added to the mix.`\
+https://nytimes.com/athletic/6394070/2025/05/30/mexico-united-states-womens-world-cup-2031/
+
 **Bipartisan duo of senators condemned the cancellation of temporary legal status for Afghans.**\
 `By Adeel Hassan`\
 https://nytimes.com/live/2025/05/30/us/trump-news/bipartisan-duo-of-senators-condemned-the-cancellation-of-temporary-legal-status-for-afghans
