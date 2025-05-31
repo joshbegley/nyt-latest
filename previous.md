@@ -1,3 +1,7 @@
+**The Briefing: Champions League final: PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
+`The Athletic's writers analyse Paris Saint-Germain's historic victory in the 2025 Champions League final`\
+https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter-analysis/
+
 **Yordan Alvarez's 'small' hand fracture adds another chapter to Astros' ambiguous medical history**\
 `The team first described Alvarez’s injury as a muscle strain on the top of his right hand.`\
 https://nytimes.com/athletic/6394793/2025/05/31/yordan-alvarez-injury-astros-medical-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-hamas-israel.htm
 **CBS Sports strikes deal for Women's Champions League in U.S.**\
 `The new deal will see the broadcaster, and streaming service Paramount+, screen all 75 matches from the tournament exclusively through 2030.`\
 https://nytimes.com/athletic/6394695/2025/05/31/womens-champions-league-us-tv-cbs-sports/
-
-**Lynn Freed, South African Writer With a Wry Style, Dies at 79**\
-`In seven novels, dozens of essays and a collection of short stories, she explored her Jewish upbringing during apartheid and the ways women negotiate sexual desire.`\
-https://nytimes.com/2025/05/31/books/lynn-freed-dead.html
 

@@ -1,3 +1,7 @@
+**The Briefing: Champions League final: PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
+`The Athletic's writers analyse Paris Saint-Germain's historic victory in the 2025 Champions League final`\
+https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter-analysis/
+
 **Yordan Alvarez's 'small' hand fracture adds another chapter to Astros' ambiguous medical history**\
 `The team first described Alvarez’s injury as a muscle strain on the top of his right hand.`\
 https://nytimes.com/athletic/6394793/2025/05/31/yordan-alvarez-injury-astros-medical-history/
