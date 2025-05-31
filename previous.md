@@ -1,3 +1,7 @@
+**Man Utd named world’s 2nd most valuable football club; 8 MLS teams in top 30**\
+`United are valued at $6.6billion (£5.2bn) with Real Madrid topping the global list for a fourth successive year at $6.75bn.`\
+https://nytimes.com/athletic/6394581/2025/05/31/manchester-united-value-forbes-list-real-madrid/
+
 **Trump’s Proposed Budget Would Cut a Major Ecology Program**\
 `From bee science to understanding the impact of a warming world on plant life, here’s what the Ecosystems Mission Area does.`\
 https://nytimes.com/2025/05/31/climate/ecosystems-mission-area-usgs-trump-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/insider/early-sketches-point-to-reimagined-pages.
 **Pickle Lemonade? Pickle Lemonade!**\
 `Kasia Pilat’s recipe is perfectly balanced, thirst-quenching and easy to love.`\
 https://nytimes.com/2025/05/31/dining/pickle-lemonade.html
-
-**Israel Bars Arab Foreign Ministers From High-Level West Bank Visit**\
-`The trip had been planned for Sunday ahead of a June conference, backed by France and Saudi Arabia, to urge the creation of a Palestinian state.`\
-https://nytimes.com/2025/05/31/world/middleeast/israel-arab-ministers-west-bank.html
 
