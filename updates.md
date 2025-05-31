@@ -1,3 +1,11 @@
+**Washington Spirit coach Jonatan Giráldez set to take OL Lyonnes job in France**\
+`Assistant coach González will take over as head coach upon Giráldez's departure.`\
+https://nytimes.com/athletic/6394812/2025/05/31/spirit-coach-jonatan-giraldez-ol-lyonnes-job/
+
+**'Not the right time' to talk about Inter future, Inzaghi insists**\
+`Saudi Pro League side Al Hilal have presented the 49-year-old Italian with a lucrative offer to leave San Siro.`\
+https://nytimes.com/athletic/6394790/2025/05/31/simone-inzaghi-inter-manager-champions-league-final/
+
 **Luis Enrique's PSG produced a footballing exhibition to destroy Inter and win Champions League**\
 `In a way, football came home on Saturday night. This tournament was invented in Paris in 1954. And now, finally, PSG have won it... `\
 https://nytimes.com/athletic/6394848/2025/05/31/psg-champions-league-win-inter-enrique/
