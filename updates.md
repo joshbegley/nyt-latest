@@ -1,3 +1,7 @@
+**USWNT match-worn jerseys to be auctioned off while they’re being worn**\
+`During the USWNT’s friendly against China on Saturday, MatchWornShirts will launch its first live auction tied to a game.`\
+https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/
+
 **Iran Has Ramped Up Uranium Enrichment While Continuing Nuclear Talks**\
 `Tehran now has the capability to produce bomb-grade fuel for roughly 10 weapons, according to a confidential United Nations report.`\
 https://nytimes.com/2025/05/31/us/politics/iran-nuclear.html

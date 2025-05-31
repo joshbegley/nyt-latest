@@ -1,3 +1,7 @@
+**USWNT match-worn jerseys to be auctioned off while they’re being worn**\
+`During the USWNT’s friendly against China on Saturday, MatchWornShirts will launch its first live auction tied to a game.`\
+https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/
+
 **Iran Has Ramped Up Uranium Enrichment While Continuing Nuclear Talks**\
 `Tehran now has the capability to produce bomb-grade fuel for roughly 10 weapons, according to a confidential United Nations report.`\
 https://nytimes.com/2025/05/31/us/politics/iran-nuclear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/style/michael-rockefeller-metropolitan-party-gala
 **What We Know About the Conflict Over a Trans Athlete in a California Track Meet**\
 `The final day of the high school championships is Saturday, and the athlete was the top performer in three preliminary events, adding to the national debate about fairness and inclusion.`\
 https://nytimes.com/2025/05/31/us/california-track-field-transgender-trump.html
-
-**Salmonella Outbreak Linked to Cucumbers Sickens 45 People**\
-`The outbreak, which was traced to a grower in Florida, has spread to 18 states, according to the C.D.C. Several distributors and stores, including Target, have recalled products containing cucumbers.`\
-https://nytimes.com/2025/05/31/health/cucumbers-recall-salmonella-outbreak.html
 
