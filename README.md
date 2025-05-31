@@ -26,7 +26,7 @@ https://nytimes.com/live/2025/05/31/us/trump-news
 `His supporters prey on a public that does not understand how abuse works.`\
 https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
 
-**Can they do it on a cold rainy day at Roland Garros? Why no two clay courts are the same**\
+**When a tennis court comes to life: The living clay of Roland Garros**\
 `Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
 https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
 
