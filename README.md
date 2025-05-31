@@ -1,3 +1,7 @@
+**Patti LuPone Is Doing Something Unusual. She’s Apologizing.**\
+`LuPone said she was “deeply sorry for the words” she used in her criticism of Kecia Lewis and Audra McDonald when asked about a dispute over Broadway noise levels.`\
+https://nytimes.com/2025/05/31/theater/patti-lupone-apology-audra-mcdonald.html
+
 **Trump to Withdraw Musk’s Ally as Nominee for Top NASA Job**\
 `Jared Isaacman was a close associate of Elon Musk, whose SpaceX company has multiple contracts with NASA.`\
 https://nytimes.com/2025/05/31/us/politics/trump-nasa-nominee-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394764/2025/05/31/dodger-stadium-concrete-fall-fan
 **Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
 `She had memorable roles on TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
 https://nytimes.com/2025/05/31/arts/valerie-mahaffey-dead.html
-
-**Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
-`He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
-https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-hamas-israel.html
 
