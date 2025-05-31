@@ -2,7 +2,7 @@
 `Jared Isaacman was a close associate of Elon Musk, whose SpaceX company has multiple contracts with NASA.`\
 https://nytimes.com/2025/05/31/us/politics/trump-nasa-nominee-musk.html
 
-**The Briefing: Champions League final: PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
+**The Briefing: Champions League final, PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
 `The Athletic's writers analyse Paris Saint-Germain's historic victory in the 2025 Champions League final`\
 https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter-analysis/
 
