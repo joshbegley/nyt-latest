@@ -1,3 +1,8 @@
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Étienne-Émile Baulieu, Father of the Abortion Pill, Is Dead at 98**\
 `He became an advocate of a woman’s right to choose and once said, “It is always tragic when politics takes the most vulnerable hostage — in this case, women.”`\
 https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
