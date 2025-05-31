@@ -1,3 +1,11 @@
+**Trump’s Proposed Budget Would Cut a Major Ecology Program**\
+`From bee science to understanding the impact of a warming world on plant life, here’s what the Ecosystems Mission Area does.`\
+https://nytimes.com/2025/05/31/climate/ecosystems-mission-area-usgs-trump-budget.html
+
+**Mariners set to promote top-50 prospect Cole Young: Source**\
+`Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
+https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
+
 **F1's new flexi-wing rules 'wasted everyone's money', Hamilton says**\
 `McLaren has still dominated in Barcelona with Oscar Piastri taking pole position for Sunday's Spanish Grand Prix.`\
 https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilton/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/31/dining/pickle-lemonade.html
 **Israel Bars Arab Foreign Ministers From High-Level West Bank Visit**\
 `The trip had been planned for Sunday ahead of a June conference, backed by France and Saudi Arabia, to urge the creation of a Palestinian state.`\
 https://nytimes.com/2025/05/31/world/middleeast/israel-arab-ministers-west-bank.html
-
-**Simon Yates stuns field, slays ghosts to seize Giro d’Italia lead**\
-`The 32-year-old is now on the verge of a second Grand Tour win, and the first for a British rider since Tao Geoghegan Hart’s Giro in 2020.`\
-https://nytimes.com/athletic/6394481/2025/05/31/giro-ditalia-standings-simon-yates/
-
-**A Global Community Joins ‘the Conversation’ at the Met’s Rockefeller Wing**\
-`A dinner commemorated the reopening of the wing and its revamped collection of work from Africa, the ancient Americas and Oceania.`\
-https://nytimes.com/2025/05/31/style/michael-rockefeller-metropolitan-party-gala.html
 
