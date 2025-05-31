@@ -1,3 +1,11 @@
+**Patrolling the High Arctic, Rifles and Snow Shoes at the Ready**\
+`We traveled to Canada’s harsh Northwest Territories to report on a joint U.S.-Canadian military exercise aimed at projecting strength in region undergoing change.`\
+https://nytimes.com/card/2025/05/31/world/americas/us-canada-nato-arctic
+
+**Arthur Fils withdraws from French Open with back injury after Suzanne-Lenglen heroics**\
+`Top-ranked French men's player Fils performed miracles to beat Jaume Munar with a back injury, but he cannot continue at Roland Garros.`\
+https://nytimes.com/athletic/6393715/2025/05/31/tennis-french-open-arthur-fils-out-injury/
+
 **England's rampant attack renders the goalkeeper narrative obsolete**\
 `Life in a post-Mary Earps world looked certain to be the story of England's game against Portugal - and then they won 6-0`\
 https://nytimes.com/athletic/6394146/2025/05/31/england-women-portugal-hampton-earps-nations-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/31/nyregion/nyc-bacon-egg-and-cheese.html
 **Yankees fan says he was hit by falling concrete at Dodger Stadium**\
 `Several stadium security guards and a police officer visited with the fan, who also received medical attention.`\
 https://nytimes.com/athletic/6394232/2025/05/31/yankees-fan-hit-falling-concrete-dodger-stadium/
-
-**Hegseth, at Security Forum, Vows to Strengthen America’s Asian Alliances**\
-`In a world rattled by President Trump’s tariffs and his scorn for Western allies, the defense secretary struck a rare note of continuity on security partnerships.`\
-https://nytimes.com/2025/05/31/world/asia/hegseth-security-allies-china.html
-
-**Astros' Framber Valdez 'the best I've seen him' in 83-pitch complete game masterpiece**\
-`"That's (Valdez's) game, and he was going to stay out there, and he was going to decide the fate of his own game," manager Joe Espada said.`\
-https://nytimes.com/athletic/6394230/2025/05/31/astros-framber-valdez-83-pitch-complete-game/
 
