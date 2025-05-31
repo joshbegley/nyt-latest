@@ -1,3 +1,15 @@
+**Ben Greenhalgh won a TV show, joined Mourinho's Inter and lost his Champions League medal on a golf course**\
+`Aged 17, he won a six-month deal with Inter the year they won the treble. Ahead of the 2025 final, Greenhalgh tells his remarkable story...`\
+https://nytimes.com/athletic/6390405/2025/05/31/ben-breenhalgh-inter-champions-league-tv-show-mourinho/
+
+**The player we can't write about and football's 'systemic failure' with sexual violence**\
+`A Premier League player is representing his club despite facing accusations of sexual violence. And nobody can talk or do anything about it.`\
+https://nytimes.com/athletic/6372172/2025/05/31/the-player-we-cant-write-about-and-footballs-systemic-failure-to-deal-with-sexual-violence/
+
+**Is Champions League money making Europe's domestic football uncompetitive?**\
+`PSG are battling Inter for a €140+ pot in Munich this weekend - will that money make them impossible for other French sides to beat?`\
+https://nytimes.com/athletic/6372180/2025/05/31/uefa-prize-money-impact-on-domestic-leagues/
+
 **Exile to ecstasy: How PSG's ultras made their city seen and heard**\
 `PSG's most dedicated supporters will be in the stands at Saturday's Champions League final in Munich`\
 https://nytimes.com/athletic/6392684/2025/05/31/psg-ultras-champions-league-final/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/05/31/world/asia/us-science-cuts.html
 **Connections: Sports Edition Coach: Hints for May 31, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6393835/2025/05/31/connections-sports-edition-hints-for-may-31-2025-puzzle-no-250/
-
-**Experts Who Warn of Risks Posed by Chinese Students Are Skeptical of Trump Plan**\
-`Some former spy-hunters see the State Department’s plan to revoke visas of some Chinese college students as heavy-handed and counterproductive.`\
-https://nytimes.com/2025/05/31/us/politics/trump-china-student-visas-crackdown-risks.html
-
-**Corrections: May 31, 2025**\
-`Corrections that appeared in print on Saturday, May 31, 2025.`\
-https://nytimes.com/2025/05/31/pageoneplus/corrections-may-31-2025.html
-
-**Quote of the Day: Pardons Prop Up Crimes of a Certain Collar**\
-`Quotation of the Day for Saturday, May 31 2025.`\
-https://nytimes.com/2025/05/30/pageoneplus/quote-of-the-day-pardons-prop-up-crimes-of-a-certain-collar.html
 

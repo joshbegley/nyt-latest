@@ -1,3 +1,7 @@
+**The ultimate Champions League final guide - PSG's pacy pressing vs Inter's intelligent defensive unit**\
+`The Athletic unpacks where the final is likely to be won or lost`\
+https://nytimes.com/athletic/6390270/2025/05/31/champions-league-guide-inter-psg/
+
 **Ben Greenhalgh won a TV show, joined Mourinho's Inter and lost his Champions League medal on a golf course**\
 `Aged 17, he won a six-month deal with Inter the year they won the treble. Ahead of the 2025 final, Greenhalgh tells his remarkable story...`\
 https://nytimes.com/athletic/6390405/2025/05/31/ben-breenhalgh-inter-champions-league-tv-show-mourinho/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/world/asia/india-pakistan-indus-water-dispute.htm
 **World Scientists Look Elsewhere as U.S. Labs Stagger Under Trump Cuts**\
 `With the welcome mat withdrawn for promising researchers from around the world, America is at risk of losing its longstanding pre-eminence in the sciences.`\
 https://nytimes.com/2025/05/31/world/asia/us-science-cuts.html
-
-**Connections: Sports Edition Coach: Hints for May 31, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6393835/2025/05/31/connections-sports-edition-hints-for-may-31-2025-puzzle-no-250/
 

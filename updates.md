@@ -1,3 +1,15 @@
+**Ben Greenhalgh won a TV show, joined Mourinho's Inter and lost his Champions League medal on a golf course**\
+`Aged 17, he won a six-month deal with Inter the year they won the treble. Ahead of the 2025 final, Greenhalgh tells his remarkable story...`\
+https://nytimes.com/athletic/6390405/2025/05/31/ben-breenhalgh-inter-champions-league-tv-show-mourinho/
+
+**The player we can't write about and football's 'systemic failure' with sexual violence**\
+`A Premier League player is representing his club despite facing accusations of sexual violence. And nobody can talk or do anything about it.`\
+https://nytimes.com/athletic/6372172/2025/05/31/the-player-we-cant-write-about-and-footballs-systemic-failure-to-deal-with-sexual-violence/
+
+**Is Champions League money making Europe's domestic football uncompetitive?**\
+`PSG are battling Inter for a €140+ pot in Munich this weekend - will that money make them impossible for other French sides to beat?`\
+https://nytimes.com/athletic/6372180/2025/05/31/uefa-prize-money-impact-on-domestic-leagues/
+
 **Exile to ecstasy: How PSG's ultras made their city seen and heard**\
 `PSG's most dedicated supporters will be in the stands at Saturday's Champions League final in Munich`\
 https://nytimes.com/athletic/6392684/2025/05/31/psg-ultras-champions-league-final/
