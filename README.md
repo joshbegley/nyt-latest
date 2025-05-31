@@ -1,3 +1,7 @@
+**USWNT midfield stands out in 3-0 win over China**\
+`Hayes also gave 32-year-old Lo'eau LaBonta her first U.S. minutes.`\
+https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
+
 **With contributions coming in unexpected ways, Cubs bullpen has emerged as trusted unit**\
 `The Cubs bullpen has allowed zero earned runs in 22 innings of work on the homestand.`\
 https://nytimes.com/athletic/6394963/2025/05/31/cubs-bullpen-drew-pomeranz-brad-keller-daniel-palencia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394848/2025/05/31/psg-champions-league-win-inter-e
 **Making Arrangements**\
 `Sam Brody mixes things up in his Times puzzle debut.`\
 https://nytimes.com/2025/05/31/crosswords/daily-puzzle-2025-06-01.html
-
-**Patti LuPone Is Doing Something Unusual. She’s Apologizing.**\
-`LuPone said she was “deeply sorry for the words” she used in her criticism of Kecia Lewis and Audra McDonald when asked about a dispute over Broadway noise levels.`\
-https://nytimes.com/2025/05/31/theater/patti-lupone-apology-audra-mcdonald.html
 
