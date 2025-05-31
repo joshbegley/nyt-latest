@@ -1,3 +1,11 @@
+**Luis Enrique's PSG produced a footballing exhibition to destroy Inter and win Champions League**\
+`In a way, football came home on Saturday night. This tournament was invented in Paris in 1954. And now, finally, PSG have won it... `\
+https://nytimes.com/athletic/6394848/2025/05/31/psg-champions-league-win-inter-enrique/
+
+**Making Arrangements**\
+`Sam Brody mixes things up in his Times puzzle debut.`\
+https://nytimes.com/2025/05/31/crosswords/daily-puzzle-2025-06-01.html
+
 **Patti LuPone Is Doing Something Unusual. She’s Apologizing.**\
 `LuPone said she was “deeply sorry for the words” she used in her criticism of Kecia Lewis and Audra McDonald when asked about a dispute over Broadway noise levels.`\
 https://nytimes.com/2025/05/31/theater/patti-lupone-apology-audra-mcdonald.html
