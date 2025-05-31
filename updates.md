@@ -1,3 +1,7 @@
+**Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
+`Officials said Hamas was demanding changes, including on guarantees to end the war, which has long been the main sticking point with Israel.`\
+https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html
+
 **How the Supreme Court Made Legal Immigrants Vulnerable to Deportation**\
 `The court decisions are an abrupt turnaround for a population that entered the country legally and shared detailed information about their whereabouts with the government.`\
 https://nytimes.com/2025/05/31/us/politics/supreme-court-immigrants.html
