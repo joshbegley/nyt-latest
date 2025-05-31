@@ -1,40 +1,40 @@
-**As Phillies search for bullpen answers, it could be time for Taijuan Walker's new role**\
-`The Phillies had to move Walker back into their rotation just as they discussed making him a late-inning reliever for the first time.`\
-https://nytimes.com/athletic/6394160/2025/05/30/taijuan-walker-bullpen-role-phillies/
+**Exile to ecstasy: How PSG's ultras made their city seen and heard**\
+`PSG's most dedicated supporters will be in the stands at Saturday's Champions League final in Munich`\
+https://nytimes.com/athletic/6392684/2025/05/31/psg-ultras-champions-league-final/
 
-**Big night for Francisco Lindor, solid steps for Juan Soto in Mets' win**\
-`Lindor homered from both sides of the plate in the Mets' win over the Rockies on Friday night.`\
-https://nytimes.com/athletic/6394153/2025/05/30/francisco-lindor-juan-soto-mets-rockies/
+**Cristiano Ronaldo's future is unclear. Could he join one of the teams at the Club World Cup?**\
+`Ronaldo's future at Al Nassr is up in the air after a disappointing season and with his contract set to expire at the end of June`\
+https://nytimes.com/athletic/6390416/2025/05/31/cristiano-ronaldo-transfer-latest-club-world-cup/
 
-**Blow to Biden-era Program Plunges Migrants Into Further Uncertainty**\
-`A Supreme Court ruling on Friday ended temporary humanitarian protections for hundreds of thousands of people. But it is unclear how quickly many could be deported.`\
-https://nytimes.com/2025/05/30/us/migrants-deportation-supreme-court-trump.html
+**Why have U.S. owners become so commonplace in Scottish football?**\
+`Five of the 12 teams in the Scottish Premiership and seven overall will be owned by Americans next season`\
+https://nytimes.com/athletic/6356935/2025/05/31/us-american-owners-scotland-scottish-football/
 
-**White House Unveils New Details of Stark Budget Cuts**\
-`The new blueprint shows that a vast array of education, health, housing and labor programs would be hit, including aid for college and cancer research.`\
-https://nytimes.com/2025/05/30/us/politics/white-house-budget-trump.html
+**In Poland, Presidential Hopefuls Battle for Young Voters Who Don’t Like Them**\
+`A runoff election on Sunday pits a centrist against a nationalist who represent mainstream parties. The outcome is unclear given that many under 30 prefer candidates on the political fringes.`\
+https://nytimes.com/2025/05/31/world/europe/poland-election-trzaskowski-nawrocki-young-voters.html
 
-**Michael Harris II is an elite defender, but Braves are still hoping for offensive resurgence**\
-`The Braves know Harris is a much better hitter than he's shown this season, and for much of 2024, because he's done it before.`\
-https://nytimes.com/athletic/6394120/2025/05/30/michael-harris-ii-elite-defender-braves-offensive-slump/
+**India and Pakistan’s Air Battle Is Over. Their Water War Has Begun.**\
+`Though the two neighbors declared a cease-fire this month, a crucial water-sharing treaty remains at risk.`\
+https://nytimes.com/2025/05/31/world/asia/india-pakistan-indus-water-dispute.html
 
-**Mookie Betts to get x-rays, Evan Phillips to undergo Tommy John surgery**\
-`The Dodgers' IL list is currently 14 names long.`\
-https://nytimes.com/athletic/6394017/2025/05/30/dodgers-mookie-betts-evan-phillips-injuries-dodgers/
+**World Scientists Look Elsewhere as U.S. Labs Stagger Under Trump Cuts**\
+`With the welcome mat withdrawn for promising researchers from around the world, America is at risk of losing its longstanding pre-eminence in the sciences.`\
+https://nytimes.com/2025/05/31/world/asia/us-science-cuts.html
 
-**Two-Person Shot**\
-`Adam Aaronson and Ricky Cruz deliver a one-two punch.`\
-https://nytimes.com/2025/05/30/crosswords/daily-puzzle-2025-05-31.html
+**Connections: Sports Edition Coach: Hints for May 31, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6393835/2025/05/31/connections-sports-edition-hints-for-may-31-2025-puzzle-no-250/
 
-**Trump Administration Ends Program Critical to Search for an H.I.V. Vaccine**\
-`The termination is the latest in a series of cuts to H.I.V. research and programs to prevent the disease.`\
-https://nytimes.com/2025/05/30/health/trump-hiv-cuts.html
+**Experts Who Warn of Risks Posed by Chinese Students Are Skeptical of Trump Plan**\
+`Some former spy-hunters see the State Department’s plan to revoke visas of some Chinese college students as heavy-handed and counterproductive.`\
+https://nytimes.com/2025/05/31/us/politics/trump-china-student-visas-crackdown-risks.html
 
-**Mexico will co-host 2031 FIFA Women’s World Cup with United States**\
-`It’s unclear how matches will be split between the co-hosts and whether other Concacaf nations will be added to the mix.`\
-https://nytimes.com/athletic/6394070/2025/05/30/mexico-united-states-womens-world-cup-2031/
+**Corrections: May 31, 2025**\
+`Corrections that appeared in print on Saturday, May 31, 2025.`\
+https://nytimes.com/2025/05/31/pageoneplus/corrections-may-31-2025.html
 
-**Bipartisan duo of senators condemned the cancellation of temporary legal status for Afghans.**\
-`By Adeel Hassan`\
-https://nytimes.com/live/2025/05/30/us/trump-news/bipartisan-duo-of-senators-condemned-the-cancellation-of-temporary-legal-status-for-afghans
+**Quote of the Day: Pardons Prop Up Crimes of a Certain Collar**\
+`Quotation of the Day for Saturday, May 31 2025.`\
+https://nytimes.com/2025/05/30/pageoneplus/quote-of-the-day-pardons-prop-up-crimes-of-a-certain-collar.html
 
