@@ -1,3 +1,7 @@
+**'She's always here': Luis Enrique on late daughter after UCL final win**\
+`Xana died aged nine in 2019 after a battle with bone cancer.`\
+https://nytimes.com/athletic/6394903/2025/05/31/luis-enrique-daughter-psg-champions-league/
+
 **Washington Spirit coach Jonatan Giráldez set to take OL Lyonnes job in France**\
 `Assistant coach González will take over as head coach upon Giráldez's departure.`\
 https://nytimes.com/athletic/6394812/2025/05/31/spirit-coach-jonatan-giraldez-ol-lyonnes-job/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394793/2025/05/31/yordan-alvarez-injury-astros-med
 **Aide to Rep. Nadler Is Handcuffed Amid Confrontation With Federal Agents**\
 `Captured on video, the episode occurred in the congressman’s Manhattan office, shortly after the aide observed agents detaining immigrants outside a courtroom.`\
 https://nytimes.com/2025/05/31/nyregion/nadler-aide-handcuffed-federal-agents.html
-
-**Rare Early June Rainfall Could Reach Phoenix**\
-`Measurable rainfall in the first week of June has only been recorded 21 times since 1896, according to weather records. The rain would be welcome after a winter of below-normal precipitation.`\
-https://nytimes.com/2025/05/31/weather/phoenix-rain-weather.html
 

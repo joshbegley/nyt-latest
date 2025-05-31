@@ -1,3 +1,7 @@
+**'She's always here': Luis Enrique on late daughter after UCL final win**\
+`Xana died aged nine in 2019 after a battle with bone cancer.`\
+https://nytimes.com/athletic/6394903/2025/05/31/luis-enrique-daughter-psg-champions-league/
+
 **Washington Spirit coach Jonatan Giráldez set to take OL Lyonnes job in France**\
 `Assistant coach González will take over as head coach upon Giráldez's departure.`\
 https://nytimes.com/athletic/6394812/2025/05/31/spirit-coach-jonatan-giraldez-ol-lyonnes-job/

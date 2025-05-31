@@ -1,3 +1,7 @@
+**Lois Boisson reaches second week after Roland Garros nightmare last year: French Open recap**\
+`How the French tennis prospect came back from a torn ACL just weeks before what was meant to be her Roland Garros debut in 2024.`\
+https://nytimes.com/athletic/6394442/2025/05/31/tennis-lois-boisson-french-open-results-harriet-dart/
+
 **'She's always here': Luis Enrique on late daughter after UCL final win**\
 `Xana died aged nine in 2019 after a battle with bone cancer.`\
 https://nytimes.com/athletic/6394903/2025/05/31/luis-enrique-daughter-psg-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter
 **Yordan Alvarez's 'small' hand fracture adds another chapter to Astros' ambiguous medical history**\
 `The team first described Alvarez’s injury as a muscle strain on the top of his right hand.`\
 https://nytimes.com/athletic/6394793/2025/05/31/yordan-alvarez-injury-astros-medical-history/
-
-**Aide to Rep. Nadler Is Handcuffed Amid Confrontation With Federal Agents**\
-`Captured on video, the episode occurred in the congressman’s Manhattan office, shortly after the aide observed agents detaining immigrants outside a courtroom.`\
-https://nytimes.com/2025/05/31/nyregion/nadler-aide-handcuffed-federal-agents.html
 
