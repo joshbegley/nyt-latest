@@ -1,3 +1,7 @@
+**England's rampant attack renders the goalkeeper narrative obsolete**\
+`Life in a post-Mary Earps world looked certain to be the story of England's game against Portugal - and then they won 6-0`\
+https://nytimes.com/athletic/6394146/2025/05/31/england-women-portugal-hampton-earps-nations-league/
+
 **Manchester United's post-season tour: Autographs, drinks, swearing and a swift exit from Asia**\
 `There was gallows humour at times as United completed gruelling post-season commitments in three countries `\
 https://nytimes.com/athletic/6394265/2025/05/31/manchester-united-tour-hong-kong-indonesia/

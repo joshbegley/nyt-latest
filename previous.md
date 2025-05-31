@@ -1,3 +1,7 @@
+**England's rampant attack renders the goalkeeper narrative obsolete**\
+`Life in a post-Mary Earps world looked certain to be the story of England's game against Portugal - and then they won 6-0`\
+https://nytimes.com/athletic/6394146/2025/05/31/england-women-portugal-hampton-earps-nations-league/
+
 **Manchester United's post-season tour: Autographs, drinks, swearing and a swift exit from Asia**\
 `There was gallows humour at times as United completed gruelling post-season commitments in three countries `\
 https://nytimes.com/athletic/6394265/2025/05/31/manchester-united-tour-hong-kong-indonesia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/world/asia/hegseth-security-allies-china.html
 **Astros' Framber Valdez 'the best I've seen him' in 83-pitch complete game masterpiece**\
 `"That's (Valdez's) game, and he was going to stay out there, and he was going to decide the fate of his own game," manager Joe Espada said.`\
 https://nytimes.com/athletic/6394230/2025/05/31/astros-framber-valdez-83-pitch-complete-game/
-
-**Lawyers for Migrants Press Appeals Court to Stop Trump’s Use of Alien Enemies Act**\
-`It was an opening salvo in what is likely to be the decisive legal battle over the president’s attempts to employ the rarely used wartime law as a centerpiece of his aggressive deportation agenda.`\
-https://nytimes.com/2025/05/31/us/politics/aclu-trump-venezuelan-immigrants-alien-enemies-act.html
 
