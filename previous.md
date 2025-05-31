@@ -1,3 +1,7 @@
+**Trump to Withdraw Musk’s Ally as Nominee for Top NASA Job**\
+`Jared Isaacman was a close associate of Elon Musk, whose SpaceX company has multiple contracts with NASA.`\
+https://nytimes.com/2025/05/31/us/politics/trump-nasa-nominee-musk.html
+
 **The Briefing: Champions League final: PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
 `The Athletic's writers analyse Paris Saint-Germain's historic victory in the 2025 Champions League final`\
 https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/arts/valerie-mahaffey-dead.html
 **Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
 `He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
 https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-hamas-israel.html
-
-**CBS Sports strikes deal for Women's Champions League in U.S.**\
-`The new deal will see the broadcaster, and streaming service Paramount+, screen all 75 matches from the tournament exclusively through 2030.`\
-https://nytimes.com/athletic/6394695/2025/05/31/womens-champions-league-us-tv-cbs-sports/
 
