@@ -1,3 +1,11 @@
+**Yordan Alvarez's 'small' hand fracture adds another chapter to Astros' ambiguous medical history**\
+`The team first described Alvarez’s injury as a muscle strain on the top of his right hand.`\
+https://nytimes.com/athletic/6394793/2025/05/31/yordan-alvarez-injury-astros-medical-history/
+
+**Aide to Rep. Nadler Is Handcuffed Amid Confrontation With Federal Agents**\
+`Captured on video, the episode occurred in the congressman’s Manhattan office, shortly after the aide observed agents detaining immigrants outside a courtroom.`\
+https://nytimes.com/2025/05/31/nyregion/nadler-aide-handcuffed-federal-agents.html
+
 **Rare Early June Rainfall Could Reach Phoenix**\
 `Measurable rainfall in the first week of June has only been recorded 21 times since 1896, according to weather records. The rain would be welcome after a winter of below-normal precipitation.`\
 https://nytimes.com/2025/05/31/weather/phoenix-rain-weather.html
