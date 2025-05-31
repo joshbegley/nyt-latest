@@ -1,3 +1,7 @@
+**Salmonella Outbreak Linked to Cucumbers Sickens 45 People**\
+`The outbreak, which was traced to a grower in Florida, has spread to 18 states, according to the C.D.C. Several distributors and stores, including Target, have recalled products containing cucumbers.`\
+https://nytimes.com/2025/05/31/health/cucumbers-recall-salmonella-outbreak.html
+
 **Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
 `This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
 `\

@@ -1,3 +1,7 @@
+**Salmonella Outbreak Linked to Cucumbers Sickens 45 People**\
+`The outbreak, which was traced to a grower in Florida, has spread to 18 states, according to the C.D.C. Several distributors and stores, including Target, have recalled products containing cucumbers.`\
+https://nytimes.com/2025/05/31/health/cucumbers-recall-salmonella-outbreak.html
+
 **Étienne-Émile Baulieu, Father of the Abortion Pill, Is Dead at 98**\
 `He became an advocate of a woman’s right to choose and once said, “It is always tragic when politics takes the most vulnerable hostage — in this case, women.”`\
 https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6394365/2025/05/31/everton-alcaraz-permanent-signin
 **Five lessons the Jets can learn from the Stanley Cup finalists**\
 `What can Winnipeg learn from the Oilers and Panthers — the two best teams in the Stanley Cup playoffs?`\
 https://nytimes.com/athletic/6392173/2025/05/31/winnipeg-jets-stanley-cup-final-nhl/
-
-**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
-`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
-`\
-https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
 
