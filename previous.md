@@ -1,3 +1,7 @@
+**Climate Scientists Join 100-Hour Livestream to Protest Trump’s Cuts**\
+`The livestream featuring hundreds of meteorologists and climate scientists began on May 28 and is scheduled to run through June 1, the first day of the Atlantic hurricane season.`\
+https://nytimes.com/video/climate/100000010201141/climate-scientists-livestream.html
+
 **Former Member of Murderous Manson Crew Is Recommended for Parole**\
 `Patricia Krenwinkel, 77, who was part of what was known as the Manson family, was convicted of seven counts of murder in 1971. A California panel said she posed little risk of reoffending.`\
 https://nytimes.com/2025/05/31/us/manson-family-patricia-krenwinkel-parole.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/theater/patti-lupone-apology-audra-mcdonald.html
 **Trump to Withdraw Musk’s Ally as Nominee for Top NASA Job**\
 `Jared Isaacman was a close associate of Elon Musk, whose SpaceX company has multiple contracts with NASA.`\
 https://nytimes.com/2025/05/31/us/politics/trump-nasa-nominee-musk.html
-
-**The Briefing: Champions League final, PSG 5 Inter 0 - Desire Doue stars as Parisians end long wait to become European champions**\
-`The Athletic's writers analyse Paris Saint-Germain's historic victory in the 2025 Champions League final`\
-https://nytimes.com/athletic/6391432/2025/05/31/champions-league-final-psg-inter-analysis/
 
