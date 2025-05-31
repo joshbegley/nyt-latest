@@ -1,3 +1,12 @@
+**Diddy, Cassie and the Allure of Victim Blaming**\
+`His supporters prey on a public that does not understand how abuse works.`\
+https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
+
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
 `This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
 `\

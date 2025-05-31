@@ -1,3 +1,7 @@
+**Diddy, Cassie and the Allure of Victim Blaming**\
+`His supporters prey on a public that does not understand how abuse works.`\
+https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
+
 **Can they do it on a cold rainy day at Roland Garros? Why no two clay courts are the same**\
 `Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
 https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/05/31/business/dealbook/mountainhead-house.html
 **Dodgers, Shohei Ohtani rekindle some World Series magic in rematch with Yankees**\
 `MLB's reigning NL and AL MVPs provided some immediate fireworks in the latest chapter of a storied rivalry.`\
 https://nytimes.com/athletic/6394277/2025/05/31/dodgers-shohei-ohtani-yankees-world-series-rematch/
-
-**The Pulse: Can MLB's surprise top team keep going?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6394216/2025/05/31/detroit-tigers-mlb-records-the-pulse/
 

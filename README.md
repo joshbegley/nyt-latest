@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Doubles Foreign Steel Tariffs**\
+``\
+https://nytimes.com/live/2025/05/31/us/trump-news
+
 **Diddy, Cassie and the Allure of Victim Blaming**\
 `His supporters prey on a public that does not understand how abuse works.`\
 https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6393579/2025/05/31/canadiens-lane-hutson-contract/
 **What Does Ultra Wealth Look Like?**\
 `In HBO’s “Mountainhead,” the “Succession” creator Jesse Armstrong uses subtle status symbols — and a secluded $65 million ski chalet — to convey hierarchy among the 0.001 percent.`\
 https://nytimes.com/2025/05/31/business/dealbook/mountainhead-house.html
-
-**Dodgers, Shohei Ohtani rekindle some World Series magic in rematch with Yankees**\
-`MLB's reigning NL and AL MVPs provided some immediate fireworks in the latest chapter of a storied rivalry.`\
-https://nytimes.com/athletic/6394277/2025/05/31/dodgers-shohei-ohtani-yankees-world-series-rematch/
 
