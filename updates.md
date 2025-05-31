@@ -1,3 +1,7 @@
+**Simon Yates stuns field, slays ghosts to seize Giro d’Italia lead**\
+`The 32-year-old is now on the verge of a second Grand Tour win, and the first for a British rider since Tao Geoghegan Hart’s Giro in 2020.`\
+https://nytimes.com/athletic/6394481/2025/05/31/giro-ditalia-standings-simon-yates/
+
 **A Global Community Joins ‘the Conversation’ at the Met’s Rockefeller Wing**\
 `A dinner commemorated the reopening of the wing and its revamped collection of work from Africa, the ancient Americas and Oceania.`\
 https://nytimes.com/2025/05/31/style/michael-rockefeller-metropolitan-party-gala.html
