@@ -1,3 +1,23 @@
+**How Megan Hilty, a Tony Nominee, Spends Her Show Days**\
+`Ms. Hilty, who is nominated for her work in “Death Becomes Her,” runs from a breakfast date with her husband to red light therapy before a Friday night of singing and dancing on Broadway.`\
+https://nytimes.com/2025/05/31/nyregion/megan-hilty-tony-awards.html
+
+**Jalen Brunson Could Be the King of New York. He Just Needs the Crown.**\
+`The Knicks are better than they have been in decades, and the city has fallen for the team’s unassuming but sharpshooting point guard.`\
+https://nytimes.com/2025/05/31/nyregion/jalen-brunson-knicks.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/05/31/crosswords/spelling-bee-forum.html
+
+**N.Y.P.D. Is Helping Federal Agents Investigate Migrants. Should It?**\
+`A Palestinian woman accused of overstaying her visa has been detained in Texas. Her case has raised questions about whether the police should cooperate with the Trump administration.`\
+https://nytimes.com/2025/05/31/nyregion/nypd-kordia-federal-cooperation.html
+
+**How Inflation Is Hitting a New York City Breakfast Staple**\
+`At a bodega in the East Flatbush neighborhood of Brooklyn, the price of the breakfast staple (on a roll) recently rose to $5, up from $4.50.`\
+https://nytimes.com/2025/05/31/nyregion/nyc-bacon-egg-and-cheese.html
+
 **Yankees fan says he was hit by falling concrete at Dodger Stadium**\
 `Several stadium security guards and a police officer visited with the fan, who also received medical attention.`\
 https://nytimes.com/athletic/6394232/2025/05/31/yankees-fan-hit-falling-concrete-dodger-stadium/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/05/31/us/politics/aclu-trump-venezuelan-immigrants-alie
 **LSU Shreveport ends historic 59-0 season to win NAIA baseball championship**\
 `Earlier this season, LSU Shreveport broke the record for most consecutive wins, 46, previously held by Division II Savannah State.`\
 https://nytimes.com/athletic/6393136/2025/05/31/undefeated-lsu-shreveport-naia-baseball-title/
-
-**The New York Times in Print for Saturday, May 31, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/05/31/todays-new-york-times
-
-**Chelsea's 2024-25 player of the season: Moises Caicedo**\
-`The Ecuador international has been called the best defensive midfielder in the world by his club head coach Enzo Maresca`\
-https://nytimes.com/athletic/6382517/2025/05/31/moises-caicedo-chelsea-player-season/
-
-**The ultimate Champions League final guide - PSG's pacy pressing vs Inter's intelligent defensive unit**\
-`The Athletic unpacks where the final is likely to be won or lost`\
-https://nytimes.com/athletic/6390270/2025/05/31/champions-league-guide-inter-psg/
-
-**Ben Greenhalgh won a TV show, joined Mourinho's Inter and lost his Champions League medal on a golf course**\
-`Aged 17, he won a six-month deal with Inter the year they won the treble. Ahead of the 2025 final, Greenhalgh tells his remarkable story...`\
-https://nytimes.com/athletic/6390405/2025/05/31/ben-breenhalgh-inter-champions-league-tv-show-mourinho/
-
-**The player we can't write about and football's 'systemic failure' with sexual violence**\
-`A Premier League player is representing his club despite facing accusations of sexual violence. And nobody can talk or do anything about it.`\
-https://nytimes.com/athletic/6372172/2025/05/31/the-player-we-cant-write-about-and-footballs-systemic-failure-to-deal-with-sexual-violence/
 
