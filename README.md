@@ -1,3 +1,11 @@
+**LSU Shreveport ends historic 59-0 season to win NAIA baseball championship**\
+`Earlier this season, LSU Shreveport broke the record for most consecutive wins, 46, previously held by Division II Savannah State.`\
+https://nytimes.com/athletic/6393136/2025/05/31/undefeated-lsu-shreveport-naia-baseball-title/
+
+**The New York Times in Print for Saturday, May 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/31/todays-new-york-times
+
 **Chelsea's 2024-25 player of the season: Moises Caicedo**\
 `The Ecuador international has been called the best defensive midfielder in the world by his club head coach Enzo Maresca`\
 https://nytimes.com/athletic/6382517/2025/05/31/moises-caicedo-chelsea-player-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6390416/2025/05/31/cristiano-ronaldo-transfer-lates
 **Why have U.S. owners become so commonplace in Scottish football?**\
 `Five of the 12 teams in the Scottish Premiership and seven overall will be owned by Americans next season`\
 https://nytimes.com/athletic/6356935/2025/05/31/us-american-owners-scotland-scottish-football/
-
-**In Poland, Presidential Hopefuls Battle for Young Voters Who Don’t Like Them**\
-`A runoff election on Sunday pits a centrist against a nationalist who represent mainstream parties. The outcome is unclear given that many under 30 prefer candidates on the political fringes.`\
-https://nytimes.com/2025/05/31/world/europe/poland-election-trzaskowski-nawrocki-young-voters.html
-
-**India and Pakistan’s Air Battle Is Over. Their Water War Has Begun.**\
-`Though the two neighbors declared a cease-fire this month, a crucial water-sharing treaty remains at risk.`\
-https://nytimes.com/2025/05/31/world/asia/india-pakistan-indus-water-dispute.html
 
