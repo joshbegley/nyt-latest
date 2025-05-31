@@ -1,3 +1,15 @@
+**Early Sketches Point to Reimagined Pages**\
+`Louis Silverstein modernized the look of The New York Times. His drawings, some of which are stored in the archives, memorialize his creative process.`\
+https://nytimes.com/2025/05/31/insider/early-sketches-point-to-reimagined-pages.html
+
+**Pickle Lemonade? Pickle Lemonade!**\
+`Kasia Pilat’s recipe is perfectly balanced, thirst-quenching and easy to love.`\
+https://nytimes.com/2025/05/31/dining/pickle-lemonade-pickle-lemonade.html
+
+**Israel Bars Arab Foreign Ministers From High-Level West Bank Visit**\
+`The trip had been planned for Sunday ahead of a June conference, backed by France and Saudi Arabia, to urge the creation of a Palestinian state.`\
+https://nytimes.com/2025/05/31/world/middleeast/israel-arab-ministers-west-bank.html
+
 **Simon Yates stuns field, slays ghosts to seize Giro d’Italia lead**\
 `The 32-year-old is now on the verge of a second Grand Tour win, and the first for a British rider since Tao Geoghegan Hart’s Giro in 2020.`\
 https://nytimes.com/athletic/6394481/2025/05/31/giro-ditalia-standings-simon-yates/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6394350/2025/05/31/heitinga-ajax-coach-slot-gravenb
 **OPEC Plus Members Say They Will Fast-Track Oil Output**\
 `Saudi Arabia and the United Arab Emirates see a chance to ratchet up production in July, the third consecutive month of accelerated increases.`\
 https://nytimes.com/2025/05/31/business/opec-plus-oil-production.html
-
-**Trump Administration Live Updates: A.C.L.U. Asks Appeals Court to Halt Alien Enemies Act Deportations**\
-``\
-https://nytimes.com/live/2025/05/31/us/trump-news
-
-**What Diddy’s Defenders Ignore**\
-`Why victim blaming persists in spite of the evidence.`\
-https://nytimes.com/2025/05/31/opinion/diddy-cassie-victim-blaming.html
-
-**When a tennis court comes to life: The living clay of Roland Garros**\
-`Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
-https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
 
