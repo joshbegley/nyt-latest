@@ -1,3 +1,7 @@
+**Chelsea's 2024-25 player of the season: Moises Caicedo**\
+`The Ecuador international has been called the best defensive midfielder in the world by his club head coach Enzo Maresca`\
+https://nytimes.com/athletic/6382517/2025/05/31/moises-caicedo-chelsea-player-season/
+
 **The ultimate Champions League final guide - PSG's pacy pressing vs Inter's intelligent defensive unit**\
 `The Athletic unpacks where the final is likely to be won or lost`\
 https://nytimes.com/athletic/6390270/2025/05/31/champions-league-guide-inter-psg/
