@@ -1,3 +1,7 @@
+**Mariners set to promote top-50 prospect Cole Young, reinstate Bryce Miller**\
+`Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
+https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
+
 **Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
 `Officials said Hamas was demanding changes, including on guarantees to end the war, which has long been the main sticking point with Israel.`\
 https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html

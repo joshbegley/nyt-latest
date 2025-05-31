@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6394581/2025/05/31/manchester-united-value-forbes-l
 `From bee science to understanding the impact of a warming world on plant life, here’s what the Ecosystems Mission Area does.`\
 https://nytimes.com/2025/05/31/climate/ecosystems-mission-area-usgs-trump-budget.html
 
-**Mariners set to promote top-50 prospect Cole Young: Source**\
+**Mariners set to promote top-50 prospect Cole Young, reinstate Bryce Miller**\
 `Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
 https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
 
