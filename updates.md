@@ -1,3 +1,11 @@
+**Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
+`The group did not say whether it had accepted or rejected the deal to halt fighting for at least two months and ensure the release of some of the remaining hostages.`\
+https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html
+
+**Oscar Piastri secures another pole as McLaren dominates in Spain**\
+`Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates with a one-two on the front row `\
+https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
+
 **Oscar Piastri secures pole as McLaren dominates in Spain**\
 `Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates with a one-two on the front row `\
 https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
