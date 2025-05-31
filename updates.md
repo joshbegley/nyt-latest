@@ -1,3 +1,11 @@
+**Oscar Piastri secures pole as McLaren dominates**\
+`Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates`\
+https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
+
+**Pickle Lemonade? Pickle Lemonade!**\
+`Kasia Pilat’s recipe is perfectly balanced, thirst-quenching and easy to love.`\
+https://nytimes.com/2025/05/31/dining/pickle-lemonade.html
+
 **Early Sketches Point to Reimagined Pages**\
 `Louis Silverstein modernized the look of The New York Times. His drawings, some of which are stored in the archives, memorialize his creative process.`\
 https://nytimes.com/2025/05/31/insider/early-sketches-point-to-reimagined-pages.html

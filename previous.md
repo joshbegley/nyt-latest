@@ -1,10 +1,14 @@
+**Oscar Piastri secures pole as McLaren dominates**\
+`Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates`\
+https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
+
 **Early Sketches Point to Reimagined Pages**\
 `Louis Silverstein modernized the look of The New York Times. His drawings, some of which are stored in the archives, memorialize his creative process.`\
 https://nytimes.com/2025/05/31/insider/early-sketches-point-to-reimagined-pages.html
 
 **Pickle Lemonade? Pickle Lemonade!**\
 `Kasia Pilat’s recipe is perfectly balanced, thirst-quenching and easy to love.`\
-https://nytimes.com/2025/05/31/dining/pickle-lemonade-pickle-lemonade.html
+https://nytimes.com/2025/05/31/dining/pickle-lemonade.html
 
 **Israel Bars Arab Foreign Ministers From High-Level West Bank Visit**\
 `The trip had been planned for Sunday ahead of a June conference, backed by France and Saudi Arabia, to urge the creation of a Palestinian state.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
 **New Ajax coach Heitinga: Slot's sidekick and Gravenberch's 'mentor' who had big ambitions**\
 `Johnny Heitinga was a key part of Liverpool's title winning backroom staff. But he always had ambitions to become Ajax's head coach...`\
 https://nytimes.com/athletic/6394350/2025/05/31/heitinga-ajax-coach-slot-gravenberch/
-
-**OPEC Plus Members Say They Will Fast-Track Oil Output**\
-`Saudi Arabia and the United Arab Emirates see a chance to ratchet up production in July, the third consecutive month of accelerated increases.`\
-https://nytimes.com/2025/05/31/business/opec-plus-oil-production.html
 
