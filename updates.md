@@ -1,3 +1,12 @@
+**Can they do it on a cold rainy day at Roland Garros? Why no two clay courts are the same**\
+`Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
+https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
+
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
 `This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
 `\
