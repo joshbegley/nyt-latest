@@ -1,3 +1,7 @@
+**Gay-Themed Forum Is Canceled in Malaysia**\
+`The public criticism from the government and online attacks that prompted its organizers to back down are the latest examples of the increasing influence of religious conservatism.`\
+https://nytimes.com/2025/05/31/world/asia/gay-themed-forum-is-canceled-in-malaysia.html
+
 **Everton complete permanent signing of Alcaraz from Flamengo**\
 `The 22-year-old has signed a two-year deal, which will see him stay at the club until the summer of 2027.`\
 https://nytimes.com/athletic/6394365/2025/05/31/everton-alcaraz-permanent-signing/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6394216/2025/05/31/detroit-tigers-mlb-records-the-p
 **2 Books About Hotel Life**\
 `The Ritz Carlton; a decidedly unwhimsical Turkish inn.`\
 https://nytimes.com/2025/05/31/books/read-like-the-wind-book-recommendations.html
-
-**Liverpool announce Heitinga is leaving club to become Ajax head coach**\
-`Liverpool don’t have a replacement for Heitinga lined up, but the search for a new addition to Slot’s staff is already underway.`\
-https://nytimes.com/athletic/6386426/2025/05/31/liverpool-heitinga-ajax-manager/
 
