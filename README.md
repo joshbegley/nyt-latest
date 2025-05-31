@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6394764/2025/05/31/dodger-stadium-concrete-fall-fan
 
 **Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
 `She had memorable roles on TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
-https://nytimes.com/2025/05/31/obituaries/valerie-mahaffey-dead.html
+https://nytimes.com/2025/05/31/arts/valerie-mahaffey-dead.html
 
 **Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
 `He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
