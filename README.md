@@ -1,3 +1,7 @@
+**How to watch the USWNT vs. China in Saturday's international friendly**\
+`The USWNT has five international friendlies coming up, beginning with Saturday's match against China.`\
+https://nytimes.com/athletic/6393556/2025/05/31/uswnt-china-soccer-how-to-watch/
+
 **Miley Cyrus Told Us to Ask Her Anything**\
 `The Grammy-winning singer on overcoming child stardom, accepting her parents and being in control.`\
 https://nytimes.com/2025/05/31/magazine/miley-cyrus-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/style/molly-jong-fast-memoir-erica-jong.html
 **Wes Moore and Tim Walz Go to a Fish Fry and Spatter 2028 Gossip Everywhere**\
 `As the two governors made buzzy appearances in South Carolina, Democrats in the influential state were already looking to the next election and wondering: Who can win?`\
 https://nytimes.com/2025/05/31/us/politics/wes-moore-tim-walz-south-carolina-democrats.html
-
-**This ‘Mountainhead’ Star Only Looks Like a Nihilist**\
-`In this film by Jesse Armstrong (“Succession”), Cory Michael Smith plays a tech god who thinks that destroying the world would be pretty funny.`\
-https://nytimes.com/2025/05/31/arts/television/mountainhead-cory-michael-smith.html
 
