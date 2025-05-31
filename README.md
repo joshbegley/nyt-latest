@@ -1,3 +1,7 @@
+**Astros' Framber Valdez 'the best I've seen him' in 83-pitch complete game masterpiece**\
+`"That's (Valdez's) game, and he was going to stay out there, and he was going to decide the fate of his own game," manager Joe Espada said.`\
+https://nytimes.com/athletic/6394230/2025/05/31/astros-framber-valdez-83-pitch-complete-game/
+
 **Lawyers for Migrants Press Appeals Court to Stop Trump’s Use of Alien Enemies Act**\
 `It was an opening salvo in what is likely to be the decisive legal battle over the president’s attempts to employ the rarely used wartime law as a centerpiece of his aggressive deportation agenda.`\
 https://nytimes.com/2025/05/31/us/politics/aclu-trump-venezuelan-immigrants-alien-enemies-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6372180/2025/05/31/uefa-prize-money-impact-on-domes
 **Exile to ecstasy: How PSG's ultras made their city seen and heard**\
 `PSG's most dedicated supporters will be in the stands at Saturday's Champions League final in Munich`\
 https://nytimes.com/athletic/6392684/2025/05/31/psg-ultras-champions-league-final/
-
-**Cristiano Ronaldo's future is unclear. Could he join one of the teams at the Club World Cup?**\
-`Ronaldo's future at Al Nassr is up in the air after a disappointing season and with his contract set to expire at the end of June`\
-https://nytimes.com/athletic/6390416/2025/05/31/cristiano-ronaldo-transfer-latest-club-world-cup/
 
