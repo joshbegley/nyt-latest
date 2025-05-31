@@ -1,3 +1,8 @@
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Trump Administration Live Updates: President Doubles Foreign Steel Tariffs**\
 ``\
 https://nytimes.com/live/2025/05/31/us/trump-news
