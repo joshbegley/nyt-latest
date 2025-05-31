@@ -1,3 +1,7 @@
+**Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
+`He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
+https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-killed-by-israel.html
+
 **CBS Sports strikes deal for Women's Champions League in U.S.**\
 `The new deal will see the broadcaster, and streaming service Paramount+, screen all 75 matches from the tournament exclusively through 2030.`\
 https://nytimes.com/athletic/6394695/2025/05/31/womens-champions-league-us-tv-cbs-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
 **F1's new flexi-wing rules 'wasted everyone's money', Hamilton says**\
 `McLaren has still dominated in Barcelona with Oscar Piastri taking pole position for Sunday's Spanish Grand Prix.`\
 https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilton/
-
-**USWNT match-worn jerseys to be auctioned off while they’re being worn**\
-`During the USWNT’s friendly against China on Saturday, MatchWornShirts will launch its first live auction tied to a game.`\
-https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/
 
