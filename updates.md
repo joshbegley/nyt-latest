@@ -1,3 +1,11 @@
+**LSU Shreveport ends historic 59-0 season to win NAIA baseball championship**\
+`Earlier this season, LSU Shreveport broke the record for most consecutive wins, 46, previously held by Division II Savannah State.`\
+https://nytimes.com/athletic/6393136/2025/05/31/undefeated-lsu-shreveport-naia-baseball-title/
+
+**The New York Times in Print for Saturday, May 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/05/31/todays-new-york-times
+
 **Chelsea's 2024-25 player of the season: Moises Caicedo**\
 `The Ecuador international has been called the best defensive midfielder in the world by his club head coach Enzo Maresca`\
 https://nytimes.com/athletic/6382517/2025/05/31/moises-caicedo-chelsea-player-season/
