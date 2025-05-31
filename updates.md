@@ -1,3 +1,11 @@
+**Skulls of 19 Black Americans Return to New Orleans After 150 Years in Germany**\
+`The remains, used in the 19th century as part of now discredited racial science, are being laid to rest on Saturday in a traditional jazz funeral.`\
+https://nytimes.com/2025/05/30/us/black-americans-skulls-new-orleans-memorial-service.html
+
+**250 Million Honeybees Escape From Truck in Washington**\
+`Emergency workers responded after a tractor-trailer carrying 70,000 pounds of pollinator hives rolled over on a country road near Lynden, Wash., releasing an eye-popping number of honeybees.`\
+https://nytimes.com/video/us/100000010200526/washington-honeybees-escape.html
+
 **A Court Debates Whether a Climate Lawsuit Threatens National Security**\
 `The judge asked lawyers how a suit by Charleston, S.C., claiming oil companies misled people about climate risks, might be affected by a Trump executive order blasting cases like these.`\
 https://nytimes.com/2025/05/30/climate/charleston-oil-companies-lawsuit.html
