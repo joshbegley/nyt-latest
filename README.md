@@ -1,3 +1,11 @@
+**CBS Sports strikes deal for Women's Champions League in U.S.**\
+`The new deal will see the broadcaster, and streaming service Paramount+, screen all 75 matches from the tournament exclusively through 2030.`\
+https://nytimes.com/athletic/6394695/2025/05/31/womens-champions-league-us-tv-cbs-sports/
+
+**Lynn Freed, South African Writer With a Wry Style, Dies at 79**\
+`In seven novels, dozens of essays and a collection of short stories, she explored her Jewish upbringing during apartheid and the ways women negotiate sexual desire.`\
+https://nytimes.com/2025/05/31/books/lynn-freed-dead.html
+
 **How the Supreme Court Made Legal Immigrants Vulnerable to Deportation**\
 `The court decisions are an abrupt turnaround for a population that entered the country legally and shared detailed information about their whereabouts with the government.`\
 https://nytimes.com/2025/05/31/us/politics/supreme-court-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilt
 **USWNT match-worn jerseys to be auctioned off while they’re being worn**\
 `During the USWNT’s friendly against China on Saturday, MatchWornShirts will launch its first live auction tied to a game.`\
 https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/
-
-**Iran Has Ramped Up Uranium Enrichment While Continuing Nuclear Talks**\
-`Tehran now has the capability to produce bomb-grade fuel for roughly 10 weapons, according to a confidential United Nations report.`\
-https://nytimes.com/2025/05/31/us/politics/iran-nuclear.html
-
-**Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
-`Officials said Hamas was demanding changes, including on guarantees to end the war, which has long been the main sticking point with Israel.`\
-https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html
 
