@@ -1,3 +1,12 @@
+**Gay-Themed Forum Is Canceled in Malaysia**\
+`The public criticism from the government and online attacks that prompted its organizers to back down are the latest examples of the increasing influence of religious conservatism.`\
+https://nytimes.com/2025/05/31/world/asia/gay-themed-forum-is-canceled-in-malaysia.html
+
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
 `This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
 `\
