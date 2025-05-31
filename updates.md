@@ -1,3 +1,11 @@
+**Bipartisan duo of senators condemned the cancellation of temporary legal status for Afghans.**\
+`By Adeel Hassan`\
+https://nytimes.com/live/2025/05/30/us/trump-news/bipartisan-duo-of-senators-condemned-the-cancellation-of-temporary-legal-status-for-afghans
+
+**Federal agents contacting NFL, MLB players as part of investigation related to licensing firm**\
+`The players involved are not targets of the investigation, sources said.`\
+https://nytimes.com/athletic/6393997/2025/05/30/federal-agents-investigation-mlbpa-nflpa-oneteam/
+
 **Skulls of 19 Black Americans Return to New Orleans After 150 Years in Germany**\
 `The remains, used in the 19th century as part of now discredited racial science, are being laid to rest on Saturday in a traditional jazz funeral.`\
 https://nytimes.com/2025/05/30/us/black-americans-skulls-new-orleans-memorial-service.html
