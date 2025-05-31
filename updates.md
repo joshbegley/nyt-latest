@@ -1,3 +1,11 @@
+**How the Supreme Court Made Legal Immigrants Vulnerable to Deportation**\
+`The court decisions are an abrupt turnaround for a population that entered the country legally and shared detailed information about their whereabouts with the government.`\
+https://nytimes.com/2025/05/31/us/politics/supreme-court-immigrants.html
+
+**Wildfires Are Raging in the Canadian Prairies. Here’s What to Know.**\
+`Michigan, Wisconsin and Minnesota are already seeing air quality deteriorate because of smoke from the fires in Manitoba and Saskatchewan.`\
+https://nytimes.com/article/canada-wildfires-2025.html
+
 **Peter David, Comic Book Writer Who Repopularized the Hulk, Dies at 68**\
 `His long run with that venerable character was the highlight of a career that also encompassed Spider-Man, Aquaman and best-selling “Star Trek” novels.`\
 https://nytimes.com/2025/05/31/arts/peter-david-dead.html

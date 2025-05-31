@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6394543/2025/05/31/uswnt-match-worn-jersey-auction/
 https://nytimes.com/2025/05/31/us/politics/iran-nuclear.html
 
 **Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
-`The group did not say whether it had accepted or rejected the deal to halt fighting for at least two months and ensure the release of some of the remaining hostages.`\
+`Officials said Hamas was demanding changes, including on guarantees to end the war, which has long been the main sticking point with Israel.`\
 https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html
 
