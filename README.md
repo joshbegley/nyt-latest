@@ -1,6 +1,6 @@
 **Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
 `He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
-https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-killed-by-israel.html
+https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-hamas-israel.html
 
 **CBS Sports strikes deal for Women's Champions League in U.S.**\
 `The new deal will see the broadcaster, and streaming service Paramount+, screen all 75 matches from the tournament exclusively through 2030.`\

@@ -1,3 +1,15 @@
+**Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
+`He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
+https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-killed-by-israel.html
+
+**CBS Sports strikes deal for Women's Champions League in U.S.**\
+`The new deal will see the broadcaster, and streaming service Paramount+, screen all 75 matches from the tournament exclusively through 2030.`\
+https://nytimes.com/athletic/6394695/2025/05/31/womens-champions-league-us-tv-cbs-sports/
+
+**Lynn Freed, South African Writer With a Wry Style, Dies at 79**\
+`In seven novels, dozens of essays and a collection of short stories, she explored her Jewish upbringing during apartheid and the ways women negotiate sexual desire.`\
+https://nytimes.com/2025/05/31/books/lynn-freed-dead.html
+
 **Mariners set to promote top-50 prospect Cole Young, reinstate Bryce Miller**\
 `Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
 https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
