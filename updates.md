@@ -1,3 +1,7 @@
+**Peter David, Comic Book Writer Who Repopularized the Hulk, Dies at 68**\
+`His long run with that venerable character was the highlight of a career that also encompassed Spider-Man, Aquaman and best-selling “Star Trek” novels.`\
+https://nytimes.com/2025/05/31/arts/peter-david-dead.html
+
 **Man Utd named world’s 2nd most valuable football club; 8 MLS teams in top 30**\
 `United are valued at $6.6billion (£5.2bn) with Real Madrid topping the global list for a fourth successive year at $6.75bn.`\
 https://nytimes.com/athletic/6394581/2025/05/31/manchester-united-value-forbes-list-real-madrid/
