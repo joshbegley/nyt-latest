@@ -1,3 +1,7 @@
+**When a tennis court comes to life: The living clay of Roland Garros**\
+`Clay-court tennis is a dialogue between players, the ball, the court and the weather. In Paris in spring, the conversation is like no other.`\
+https://nytimes.com/athletic/6393215/2025/05/31/tennis-clay-court-conditions-weather-strategy/
+
 **What We Know About the Conflict Over a Trans Athlete in a California Track Meet**\
 `The final day of the high school championships is Saturday, and the athlete was the top performer in three preliminary events, adding to the national debate about fairness and inclusion.`\
 https://nytimes.com/2025/05/31/us/california-track-field-transgender-trump.html
