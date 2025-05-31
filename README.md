@@ -1,5 +1,13 @@
+**Alaska Man Survives Being Pinned Down by a 700-Pound Boulder for 3 Hours**\
+`Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face down in a creek, with a boulder on his back and his wife holding his head out of the water.`\
+https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
+
+**Dodgers install protective netting under spot where concrete chunk fell on fan**\
+`The netting covered an approximately two-foot section that comprises the top deck at the stadium.`\
+https://nytimes.com/athletic/6394764/2025/05/31/dodger-stadium-concrete-fall-fan-yankees/
+
 **Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
-`She had memorable roles in TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
+`She had memorable roles on TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
 https://nytimes.com/2025/05/31/obituaries/valerie-mahaffey-dead.html
 
 **Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/31/arts/peter-david-dead.html
 **Man Utd named world’s 2nd most valuable football club; 8 MLS teams in top 30**\
 `United are valued at $6.6billion (£5.2bn) with Real Madrid topping the global list for a fourth successive year at $6.75bn.`\
 https://nytimes.com/athletic/6394581/2025/05/31/manchester-united-value-forbes-list-real-madrid/
-
-**Trump’s Proposed Budget Would Cut a Major Ecology Program**\
-`From bee science to understanding the impact of a warming world on plant life, here’s what the Ecosystems Mission Area does.`\
-https://nytimes.com/2025/05/31/climate/ecosystems-mission-area-usgs-trump-budget.html
-
-**Mariners promote top-50 prospect Cole Young, reinstate Bryce Miller**\
-`Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
-https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
 
