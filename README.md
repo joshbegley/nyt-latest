@@ -1,3 +1,11 @@
+**The Pulse: Can MLB's surprise top team keep going?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6394216/2025/05/31/detroit-tigers-mlb-records-the-pulse/
+
+**2 Books About Hotel Life**\
+`The Ritz Carlton; a decidedly unwhimsical Turkish inn.`\
+https://nytimes.com/2025/05/31/books/read-like-the-wind-book-recommendations.html
+
 **Liverpool announce Heitinga is leaving club to become Ajax head coach**\
 `Liverpool don’t have a replacement for Heitinga lined up, but the search for a new addition to Slot’s staff is already underway.`\
 https://nytimes.com/athletic/6386426/2025/05/31/liverpool-heitinga-ajax-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/05/31/opinion/rubio-usaid-africa.html
 **Tech Bro Had to Go**\
 `Two emperors of chaos decide that two is one too many.`\
 https://nytimes.com/2025/05/31/opinion/elon-musk-doge-trump.html
-
-**How NHL combine participants prep for their 'biggest job interview': Wingate, weighted chin-ups, more**\
-`From not puking on the Wingate cycle test to not stumbling on the 5-10-5, prospects must send the right message to potential NHL employers.`\
-https://nytimes.com/athletic/6377797/2025/05/31/nhl-draft-scouting-combine-preparation/
-
-**Harvard as Symbol and Target**\
-`Readers react to Steven Pinker’s essay on the Trump administration’s conflict with the university and its repercussions.`\
-https://nytimes.com/2025/05/31/opinion/harvard-steven-pinker.html
 
