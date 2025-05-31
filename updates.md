@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
 
+**Leafs' offseason to-do list: Cement Matthew Knies into core, play hardball with John Tavares**\
+`This summer will establish a new direction for the franchise with GM Brad Treliving now leading the charge.
+`\
+https://nytimes.com/athletic/6391222/2025/05/31/maple-leafs-offseason-matthew-knies-contract/
+
 **Everton complete permanent signing of Alcaraz from Flamengo**\
 `The 22-year-old has signed a two-year deal, which will see him stay at the club until the summer of 2027.`\
 https://nytimes.com/athletic/6394365/2025/05/31/everton-alcaraz-permanent-signing/
