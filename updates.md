@@ -1,3 +1,7 @@
+**Astros' Framber Valdez 'the best I've seen him' in 83-pitch complete game masterpiece**\
+`"That's (Valdez's) game, and he was going to stay out there, and he was going to decide the fate of his own game," manager Joe Espada said.`\
+https://nytimes.com/athletic/6394230/2025/05/31/astros-framber-valdez-83-pitch-complete-game/
+
 **Lawyers for Migrants Press Appeals Court to Stop Trump’s Use of Alien Enemies Act**\
 `It was an opening salvo in what is likely to be the decisive legal battle over the president’s attempts to employ the rarely used wartime law as a centerpiece of his aggressive deportation agenda.`\
 https://nytimes.com/2025/05/31/us/politics/aclu-trump-venezuelan-immigrants-alien-enemies-act.html
