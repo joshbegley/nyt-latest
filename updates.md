@@ -1,3 +1,11 @@
+**Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
+`She had memorable roles in TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
+https://nytimes.com/2025/05/31/obituaries/valerie-mahaffey-dead.html
+
+**Mariners promote top-50 prospect Cole Young, reinstate Bryce Miller**\
+`Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
+https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
+
 **Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
 `He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
 https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-hamas-israel.html

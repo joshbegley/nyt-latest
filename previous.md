@@ -1,3 +1,7 @@
+**Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
+`She had memorable roles in TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
+https://nytimes.com/2025/05/31/obituaries/valerie-mahaffey-dead.html
+
 **Muhammad Sinwar, a Top Military Leader of Hamas, Is Dead, Israel Says**\
 `He was the younger brother of Yahya Sinwar, the former Hamas leader killed by Israel last year. Hamas did not immediately respond to the claim of his death.`\
 https://nytimes.com/2025/05/31/world/middleeast/muhammad-sinwar-hamas-israel.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6394581/2025/05/31/manchester-united-value-forbes-l
 `From bee science to understanding the impact of a warming world on plant life, here’s what the Ecosystems Mission Area does.`\
 https://nytimes.com/2025/05/31/climate/ecosystems-mission-area-usgs-trump-budget.html
 
-**Mariners set to promote top-50 prospect Cole Young, reinstate Bryce Miller**\
+**Mariners promote top-50 prospect Cole Young, reinstate Bryce Miller**\
 `Young, 21, ranked No. 36 on Keith Law's latest MLB top 50 prospect ranking.`\
 https://nytimes.com/athletic/6394622/2025/05/31/cole-young-mariners-mlb-debut/
-
-**F1's new flexi-wing rules 'wasted everyone's money', Hamilton says**\
-`McLaren has still dominated in Barcelona with Oscar Piastri taking pole position for Sunday's Spanish Grand Prix.`\
-https://nytimes.com/athletic/6394632/2025/05/31/f1-flexi-wing-rules-lewis-hamilton/
 
