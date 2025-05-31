@@ -1,3 +1,7 @@
+**Hamas Responds to U.S. Cease-Fire Proposal for Gaza**\
+`The group did not say whether it had accepted or rejected the deal to halt fighting for at least two months and ensure the release of some of the remaining hostages.`\
+https://nytimes.com/2025/05/31/world/middleeast/israel-gaza-hamas-ceasefire-proposal.html
+
 **Oscar Piastri secures another pole as McLaren dominates in Spain**\
 `Oscar Piastri secures pole for the Spanish Grand Prix as McLaren dominates with a one-two on the front row `\
 https://nytimes.com/athletic/6394391/2025/05/31/f1-spanish-grand-prix-qualifying-oscar-piastri-pole/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/05/31/health/cucumbers-recall-salmonella-outbreak.html
 **Étienne-Émile Baulieu, Father of the Abortion Pill, Is Dead at 98**\
 `He became an advocate of a woman’s right to choose and once said, “It is always tragic when politics takes the most vulnerable hostage — in this case, women.”`\
 https://nytimes.com/2025/05/31/health/etienne-emile-baulieu-dead.html
-
-**New Ajax coach Heitinga: Slot's sidekick and Gravenberch's 'mentor' who had big ambitions**\
-`Johnny Heitinga was a key part of Liverpool's title winning backroom staff. But he always had ambitions to become Ajax's head coach...`\
-https://nytimes.com/athletic/6394350/2025/05/31/heitinga-ajax-coach-slot-gravenberch/
 
