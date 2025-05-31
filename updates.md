@@ -1,3 +1,7 @@
+**Alaska Man Survives 3 Hours Pinned Face Down Under a 700-Pound Boulder**\
+`Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face first in a creek as his wife held his head out of the water.`\
+https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
+
 **Valerie Mahaffey, Actress Who Played Quirky Villains, Dies at 71**\
 `She had memorable roles on TV shows like “Desperate Housewives” and “Northern Exposure,” and in the dark comedy film “French Exit.”`\
 https://nytimes.com/2025/05/31/arts/valerie-mahaffey-dead.html

@@ -1,5 +1,5 @@
-**Alaska Man Survives Being Pinned Down by a 700-Pound Boulder for 3 Hours**\
-`Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face down in a creek, with a boulder on his back and his wife holding his head out of the water.`\
+**Alaska Man Survives 3 Hours Pinned Face Down Under a 700-Pound Boulder**\
+`Rescuers found Kell Morris with hypothermia, wavering in and out of consciousness, face first in a creek as his wife held his head out of the water.`\
 https://nytimes.com/2025/05/31/us/alaska-man-700-pound-boulder.html
 
 **Dodgers install protective netting under spot where concrete chunk fell on fan**\
