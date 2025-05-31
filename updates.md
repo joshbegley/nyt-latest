@@ -1,3 +1,11 @@
+**What We Know About the Conflict Over a Trans Athlete in a California Track Meet**\
+`The final day of the high school championships is Saturday, and the athlete was the top performer in three preliminary events, adding to the national debate about fairness and inclusion.`\
+https://nytimes.com/2025/05/31/us/california-track-field-transgender-trump.html
+
+**Trump Administration Live Updates: A.C.L.U. Asks Appeals Court to Halt Alien Enemies Act Deportations**\
+``\
+https://nytimes.com/live/2025/05/31/us/trump-news
+
 **Salmonella Outbreak Linked to Cucumbers Sickens 45 People**\
 `The outbreak, which was traced to a grower in Florida, has spread to 18 states, according to the C.D.C. Several distributors and stores, including Target, have recalled products containing cucumbers.`\
 https://nytimes.com/2025/05/31/health/cucumbers-recall-salmonella-outbreak.html
