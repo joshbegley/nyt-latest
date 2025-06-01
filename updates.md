@@ -1,3 +1,11 @@
+**The best Connor McDavid cards to collect**\
+`Whether you budget is $50 or $300,000, there's a McDavid rookie card for every fan.`\
+https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
+
+**Phillies shake up bullpen, rotation in hopes of addressing pitching holes**\
+`The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
+https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
+
 **Max Verstappen on verge of F1 race ban after penalty for George Russell clash in Spain**\
 `Max Verstappen faces an uphill battle to avoid a race ban as he’ll need to navigate a clean Canadian and Austrian Grands Prix`\
 https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ban-spanish-grand-prix/
