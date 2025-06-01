@@ -1,3 +1,7 @@
+**The USWNT basks in the return of Naomi Girma - their 'security blanket'**\
+`The Chelsea center-back returned to USWNT action against China and offered a reminder of her qualities as Emma Hayes' side dominated`\
+https://nytimes.com/athletic/6395291/2025/06/01/uswnt-naomi-girma-hayes-china/
+
 **Battle of the Broadcasts: Reviewing TNT, CBS Sports' Champions League final**\
 `The UEFA Champions League final was presented in far different ways on either side of the Atlantic.`\
 https://nytimes.com/athletic/6394965/2025/06/01/uefa-champions-league-final-psg-inter-milan-tnt-cbs-sports-tv-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/crosswords/connections-companion-722.html
 **LAFC's CWC play-in triumph was culminating moment, says coach Cherundolo**\
 `A thrilling play-in game bodes well for the impending Club World Cup.`\
 https://nytimes.com/athletic/6395423/2025/06/01/lafc-club-world-cup-america-cherundolo/
-
-**Hurricane Season Is Starting. Here’s Everything to Know.**\
-`Sunday marks the official start of the Atlantic hurricane season.`\
-https://nytimes.com/article/atlantic-hurricane-season-forecast-2025.html
 
