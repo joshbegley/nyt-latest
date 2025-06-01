@@ -1,3 +1,7 @@
+**Spanish Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our writers after the race in Spain?`\
+https://nytimes.com/athletic/6396137/2025/06/01/spanish-grand-prix-submit-your-questions-for-our-f1-mailbag/
+
 **Trump Is Said to Have Known About NASA Nominee’s Donations Before Picking Him**\
 `President Trump withdrew his nomination of Jared Isaacman, an ally of Elon Musk, because of donations he had made to Democrats. But people with knowledge of the events say Mr. Isaacman had disclosed the contributions.`\
 https://nytimes.com/2025/06/01/us/politics/trump-musk-isaacman-nasa.html
