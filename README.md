@@ -1,3 +1,7 @@
+**Defending champion Iga Swiatek fights through at the French Open against Elena Rybakina**\
+`Four-time French Open champion Iga Świątek fights through a swinging third set against Elena Rybakina to reach the French Open quarterfinal.`\
+https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-rybakina-result-analysis/
+
 **Al Foster, Master of the Jazz Drums, Is Dead at 82**\
 `He was probably best known for his long tenure with Miles Davis, who praised his ability to “keep the groove going forever.”`\
 https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395434/2025/06/01/pascal-siakam-pacers-nba-finals/
 **Exercise Extends Life for People With Cancer, Study Shows**\
 `The trial, in people treated for colon cancer, showed clear evidence that an exercise program lowered the risk of disease recurrence and death.`\
 https://nytimes.com/2025/06/01/well/exercise-colon-cancer-study.html
-
-**Drug-Defying Breast Cancers Spotted Early in Blood Test Study**\
-`A clinical trial found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
-https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
 
