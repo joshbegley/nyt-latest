@@ -1,3 +1,15 @@
+**Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling**\
+`One official said that the president is unlikely to delay his initial 90-day pause on some of his highest rates.`\
+https://nytimes.com/2025/06/01/us/politics/trump-tariffs-court-lutnick-bessent.html
+
+**Oscar Piastri wins as Max Verstappen given 10-second penalty**\
+`Championship leader Oscar Piastri wins the Spanish Grand Prix from pole as teammate Lando Norris is second`\
+https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-oscar-piastri-wins/
+
+**Defending champion Iga Swiatek fights through at the French Open against Elena Rybakina**\
+`Four-time French Open champion Iga Świątek fights through a swinging third set against Elena Rybakina to reach the French Open quarterfinal.`\
+https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-rybakina-result-analysis/
+
 **Trump Administration Live Updates: President’s Top Aides Insist Tariffs Are Here to Stay**\
 ``\
 https://nytimes.com/live/2025/06/01/us/trump-news

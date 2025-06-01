@@ -1,3 +1,7 @@
+**Lowetide: The importance of playoff healthy scratches, now and in the future**\
+`Why would the Oilers keep players like Matt Savoie, Noah Philp and Olivier Rodrigue around?`\
+https://nytimes.com/athletic/6394610/2025/06/01/oilers-nhl-playoffs-rookies-scratches/
+
 **Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling**\
 `One official said that the president is unlikely to delay his initial 90-day pause on some of his highest rates.`\
 https://nytimes.com/2025/06/01/us/politics/trump-tariffs-court-lutnick-bessent.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/01/us/trump-news
 **Steel drums, beef patties and a penalty shootout: Nigeria win Unity Cup in 'carnival-like' atmosphere**\
 `The first Unity Cup since 2004 brought communities together in west London, with food, music and flags central to finals day.`\
 https://nytimes.com/athletic/6395437/2025/06/01/unity-cup-final-nigeria-jamaica/
-
-**The Politics and Perils of Pornography**\
-`Readers respond to an Opinion guest essay by Christine Emba. Also: Investing in war.`\
-https://nytimes.com/2025/06/01/opinion/pornography-politics-peril.html
 

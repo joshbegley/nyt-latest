@@ -1,3 +1,15 @@
+**Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling**\
+`One official said that the president is unlikely to delay his initial 90-day pause on some of his highest rates.`\
+https://nytimes.com/2025/06/01/us/politics/trump-tariffs-court-lutnick-bessent.html
+
+**Oscar Piastri wins as Max Verstappen given 10-second penalty**\
+`Championship leader Oscar Piastri wins the Spanish Grand Prix from pole as teammate Lando Norris is second`\
+https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-oscar-piastri-wins/
+
+**Defending champion Iga Swiatek fights through at the French Open against Elena Rybakina**\
+`Four-time French Open champion Iga Świątek fights through a swinging third set against Elena Rybakina to reach the French Open quarterfinal.`\
+https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-rybakina-result-analysis/
+
 **Al Foster, Master of the Jazz Drums, Is Dead at 82**\
 `He was probably best known for his long tenure with Miles Davis, who praised his ability to “keep the groove going forever.”`\
 https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6395437/2025/06/01/unity-cup-final-nigeria-jamaica/
 **The Politics and Perils of Pornography**\
 `Readers respond to an Opinion guest essay by Christine Emba. Also: Investing in war.`\
 https://nytimes.com/2025/06/01/opinion/pornography-politics-peril.html
-
-**Pascal Siakam leans on his championship credentials to will Pacers into NBA Finals**\
-`This was the moment for which Pascal Siakam was brought to Indianapolis. “When we brought him here, we had a vision,” Tyrese Haliburton said`\
-https://nytimes.com/athletic/6395434/2025/06/01/pascal-siakam-pacers-nba-finals/
-
-**Exercise Extends Life for People With Cancer, Study Shows**\
-`The trial, in people treated for colon cancer, showed clear evidence that an exercise program lowered the risk of disease recurrence and death.`\
-https://nytimes.com/2025/06/01/well/exercise-colon-cancer-study.html
-
-**Drug-Defying Breast Cancers Spotted Early in Blood Test Study**\
-`A clinical trial found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
-https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
 
