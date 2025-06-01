@@ -1,3 +1,7 @@
+**Ukraine Strikes Russian Air Bases in Large-Scale Drone Attack**\
+`Ukraine launched one of its broadest assaults of the war against air bases inside Russia, targeting sites from eastern Siberia to Russia’s western border.`\
+https://nytimes.com/video/world/europe/100000010201931/ukraine-strikes-russian-air-bases-in-large-scale-drone-attack.html
+
 **Police Respond to Attack at a Colorado Event Raising Awareness of Israeli Hostages**\
 `A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at walkers at the event.`\
 https://nytimes.com/2025/06/01/us/boulder-colorado-attack.html
