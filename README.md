@@ -1,5 +1,5 @@
 **The Knicks' season comes to an end, and Game 1 will haunt them for a while**\
-`Game 1 of the Eastern Conference Finals will haunt New York for a while. Maybe forever. `\
+`Game 1 of the Eastern Conference finals will haunt New York for a while. Maybe forever. `\
 https://nytimes.com/athletic/6395280/2025/06/01/knicks-eliminated-game-6-missed-opportunity/
 
 **The New York Times in Print for Sunday, June 1, 2025**\
