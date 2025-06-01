@@ -1,3 +1,7 @@
+**Stanley Fischer, Who Helped Defuse Financial Crises, Dies at 81**\
+`He was the No. 2 at the Federal Reserve and the I.M.F. during periods of economic turmoil, and he mentored future economic leaders, like Ben Bernanke.`\
+https://nytimes.com/2025/06/01/business/stanley-fischer-dead.html
+
 **Transfers TLDR: Cunha to Manchester United – all you need to know**\
 `United have announced their first summer signing has been agreed - here's all you need to know about Matheus Cunha.`\
 https://nytimes.com/athletic/6384845/2025/06/01/transfers-matheus-cunha-manchester-united/
