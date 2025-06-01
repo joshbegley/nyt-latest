@@ -1,3 +1,23 @@
+**Man Utd announce Matheus Cunha transfer agreement**\
+`United have confirmed the 26-year-old Brazilian international as their first signing of the summer transfer window.`\
+https://nytimes.com/athletic/6387292/2025/06/01/matheus-cunha-manchester-united-transfer-wolves/
+
+**The Pulse: A messy CFB offseason explained**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6395269/2025/06/01/college-footballs-truly-messy-offseason-explained-plus-indy-fights-off-the-knicks/
+
+**Trump Administration Live Updates: Trump to Withdraw Elon Musk’s Ally as Nominee for Top NASA Job**\
+``\
+https://nytimes.com/live/2025/06/01/us/trump-news
+
+**Steel drums, beef patties and a penalty shootout: Nigeria win Unity Cup in 'carnival-like' atmosphere**\
+`The first Unity Cup since 2004 brought communities together in west London, with food, music and flags central to finals day.`\
+https://nytimes.com/athletic/6395437/2025/06/01/unity-cup-final-nigeria-jamaica/
+
+**The Politics and Perils of Pornography**\
+`Readers respond to an Opinion guest essay by Christine Emba. Also: Investing in war.`\
+https://nytimes.com/2025/06/01/opinion/pornography-politics-peril.html
+
 **Pascal Siakam leans on his championship credentials to will Pacers into NBA Finals**\
 `This was the moment for which Pascal Siakam was brought to Indianapolis. “When we brought him here, we had a vision,” Tyrese Haliburton said`\
 https://nytimes.com/athletic/6395434/2025/06/01/pascal-siakam-pacers-nba-finals/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6394918/2025/06/01/senny-mayulu-psg-champions-leagu
 **Ukraine Says Russian Strike on Military Base Killed 12 Soldiers**\
 `In a rare statement acknowledging casualties within its ranks, the Ukrainian military also said that 60 other soldiers were wounded.`\
 https://nytimes.com/2025/06/01/world/europe/russia-ukraine-strikes.html
-
-**Two dead and 100s injured across France after PSG's UCL victory**\
-`Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
-https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
-
-**Get Creative**\
-`A new Times project wants us to nurture our creative side.`\
-https://nytimes.com/2025/06/01/briefing/creativity-challenge.html
-
-**Thomas Bryant emerges as unlikely hero to help Pacers into NBA Finals**\
-`“There were times I never thought I’d see the court again," said the former Indiana University star after his huge moment for the Pacers.`\
-https://nytimes.com/athletic/6395512/2025/06/01/thomas-bryant-pacers-knicks-game-6-nba-playoffs/
-
-**'The boys are here': At Gaudreau Family 5K, memory of late brothers Johnny and Matthew shines bright**\
-`Nine months after the brothers were killed while riding bicycles, more than a thousand people gathered to run and walk in their honor.`\
-https://nytimes.com/athletic/6394772/2025/06/01/johnny-gaudreau-brothers-death-matthew-family-5k/
-
-**Why Jackson Smith's 2-way upside makes him an exciting 2025 draft prospect**\
-`Smith has the attributes teams are looking for in playoff-style defensemen. Can he figure out the risk-reward balance to become one?`\
-https://nytimes.com/athletic/6376490/2025/06/01/nhl-draft-2025-jackson-smith/
 
