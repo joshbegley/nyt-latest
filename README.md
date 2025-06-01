@@ -1,3 +1,7 @@
+**Atalanta's Gasperini leaves club after nine years in charge**\
+`Gasperini, 67, has transformed Atalanta into a regular in the Champions League and guided the club to Europa League success in 2023-24.`\
+https://nytimes.com/athletic/6385855/2025/06/01/atalanta-manager-news-gasperini/
+
 **Liverpool accept £18m Brentford bid for goalkeeper Kelleher**\
 `The move comes with Brentford close to agreeing a €10m (£8.4m) deal to sell No 1 Mark Flekken to Bayer Leverkusen.`\
 https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-brentford/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/us/politics/trump-tariffs-court-lutnick-bessent.h
 **Oscar Piastri wins as Max Verstappen given 10-second penalty for Russell clash**\
 `Championship leader Oscar Piastri wins the Spanish Grand Prix from pole as teammate Lando Norris is second`\
 https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-oscar-piastri-wins/
-
-**Defending champion Iga Swiatek fights through at the French Open against Elena Rybakina**\
-`Four-time French Open champion Iga Świątek fights through a swinging third set against Elena Rybakina to reach the French Open quarterfinal.`\
-https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-rybakina-result-analysis/
 

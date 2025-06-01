@@ -1,3 +1,7 @@
+**Liverpool accept £18m Brentford bid for goalkeeper Kelleher**\
+`The move comes with Brentford close to agreeing a €10m (£8.4m) deal to sell No 1 Mark Flekken to Bayer Leverkusen.`\
+https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-brentford/
+
 **Oscar Piastri wins as Max Verstappen given 10-second penalty for Russell clash**\
 `Championship leader Oscar Piastri wins the Spanish Grand Prix from pole as teammate Lando Norris is second`\
 https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-oscar-piastri-wins/
