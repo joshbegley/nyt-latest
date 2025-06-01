@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, June 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/01/todays-new-york-times
+
+**Living to Die Well**\
+`Even as we die, our bodies are capable of more than devolution from illness.`\
+https://nytimes.com/2025/06/01/opinion/dying-well-planning-life.html
+
 **Yankees downplay early losses to Dodgers in World Series rematch: ‘Every game is the same’**\
 `The loss Saturday ensured the Yankees would lose their first series after winning their previous seven in a row.`\
 https://nytimes.com/athletic/6395284/2025/06/01/yankees-downplay-losses-dodgers-world-series-rematch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/01/world/europe/hospital-fire-hamburg-germany.html
 **​South Korea’s Election Likely to Reset Ties With China**\
 `Both of the main candidates support the alliance with the United States, but the front-runner favors diplomacy with North Korea and China to improve strained relations.`\
 https://nytimes.com/2025/06/01/world/asia/south-korea-china-election.html
-
-**The U.S. Right Loathes the E.U. How Are They Going to Negotiate Trade?**\
-`The Trump administration and the European Union are fast-tracking discussions toward a trade deal, but America’s right sometimes treats the bloc as more foe than friend.`\
-https://nytimes.com/2025/06/01/world/europe/europe-us-maga-trump.html
-
-**A Close Polish Election Is a Bellwether for Populists**\
-`Here’s what to know about Poland’s presidential runoff, which sets up a showdown between the governing party and resurgent nationalists.`\
-https://nytimes.com/2025/06/01/world/europe/poland-presidential-runoff-election-trump.html
 
