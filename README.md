@@ -1,3 +1,11 @@
+**LAFC's CWC play-in triumph was culminating moment, says coach Cherundolo**\
+`A thrilling play-in game bodes well for the impending Club World Cup.`\
+https://nytimes.com/athletic/6395423/2025/06/01/lafc-club-world-cup-america-cherundolo/
+
+**Hurricane Season Is Starting. Here’s Everything to Know.**\
+`Sunday marks the official start of the Atlantic hurricane season.`\
+https://nytimes.com/article/atlantic-hurricane-season-forecast-2025.html
+
 **The New York Times International Edition in Print for Monday, June 2, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/01/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/01/world/americas/mexico-judicial-election-dangers.h
 **A 355-Year-Old Company That Once Owned One-Third of Canada Is Shutting Down**\
 `Bargain hunters picked over what was left at the Hudson’s Bay Company’s remaining stores, part of a vast empire that was North America’s oldest corporation.`\
 https://nytimes.com/2025/06/01/world/canada/canada-hudsons-bay-stores-closing.html
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Max, AMC+ and More in June**\
-`“Phineas and Ferb,” ”The Bear” and “The Gilded Age” are coming back, and “We Were Liars,” “Hell Motel” and “Stick” debut.`\
-https://nytimes.com/2025/06/01/arts/television/movies-tv-shows-june-2025-streaming.html
-
-**‘I Didn’t Get It Done’: A Reflective Tim Walz Wants to Make Good**\
-`Last year’s Democratic vice-presidential nominee has thrown himself into a robust atonement-and-explanation tour, though aides insist there is no grand strategy.`\
-https://nytimes.com/2025/06/01/us/politics/tim-walz-democrats-2024.html
 
