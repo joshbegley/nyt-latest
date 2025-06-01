@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6394772/2025/06/01/johnny-gaudreau-brothers-death-m
 https://nytimes.com/athletic/6376490/2025/06/01/nhl-draft-2025-jackson-smith/
 
 **Jubilant Soccer Fans Cause Chaos in France**\
-`Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory.`\
+`Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory. Amid the celebrations, one person died in a traffic incident and another was stabbed to death.`\
 https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
 
 **Over 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\

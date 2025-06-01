@@ -1,3 +1,7 @@
+**Jubilant Soccer Fans Cause Chaos in France**\
+`Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory. Amid the celebrations, one person died in a traffic incident and another was stabbed to death.`\
+https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
+
 **Over 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
 `It was not immediately clear who was responsible for the attack. The Israeli military denied any of its fire had harmed people within the site.`\
 https://nytimes.com/2025/06/01/world/middleeast/gaza-aid-distribution-site-attack.html
