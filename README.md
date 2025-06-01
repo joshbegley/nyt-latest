@@ -1,3 +1,7 @@
+**Phillies' Jesús Luzardo felt at his best. Then he gave up 12 runs to the Brewers**\
+`Luzardo felt good. “My arm felt like a whip,” he said. It was the best he’d felt in a month and a half. Then Saturday happened. `\
+https://nytimes.com/athletic/6395091/2025/05/31/jesus-luzardo-phillies-brewers-12-runs/
+
 **Knicks' vibes weren't always immaculate, but this historic season gave plenty of hope**\
 `Despite a Jekyll-and-Hyde season, the Knicks still made the conference finals for the first time since 2000. Who will they be going forward?`\
 https://nytimes.com/athletic/6395011/2025/05/31/knicks-loss-pacers-nba-playoffs-brunson-towns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394963/2025/05/31/cubs-bullpen-drew-pomeranz-brad-
 **Climate Scientists Join 100-Hour Livestream to Protest Trump’s Cuts**\
 `The livestream featuring hundreds of meteorologists and climate scientists began on May 28 and is scheduled to run through June 1, the first day of the Atlantic hurricane season.`\
 https://nytimes.com/video/climate/100000010201141/climate-scientists-livestream.html
-
-**Former Member of Murderous Manson Crew Is Recommended for Parole**\
-`Patricia Krenwinkel, 77, who was part of what was known as the Manson family, was convicted of seven counts of murder in 1971. A California panel said she posed little risk of reoffending.`\
-https://nytimes.com/2025/05/31/us/manson-family-patricia-krenwinkel-parole.html
 
