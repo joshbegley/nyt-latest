@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challenge-abercrombie.html
+
 **Tennessee overcomes controversial call, UCLA to reach WCWS semis**\
 `UCLA forced extra innings after a base-running mistake was ruled unreviewable, but the Volunteers pulled out the victory in the ninth.`\
 https://nytimes.com/athletic/6396361/2025/06/01/tennessee-ucla-softball-wcws/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396409/2025/06/01/scottie-scheffler-pulls-away-for
 **Ukraine Strikes Russian Air Bases in Large-Scale Drone Attack**\
 `Ukraine launched one of its broadest assaults of the war against air bases inside Russia, targeting sites from eastern Siberia to Russia’s western border.`\
 https://nytimes.com/video/world/europe/100000010201931/ukraine-strikes-russian-air-bases-in-large-scale-drone-attack.html
-
-**Police Respond to Attack at a Colorado Event Raising Awareness of Israeli Hostages**\
-`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at walkers at the event.`\
-https://nytimes.com/2025/06/01/us/boulder-colorado-attack.html
 
