@@ -1,3 +1,7 @@
+**Elena Rybakina's barred coach, Stefano Vukov, appeals 1-year WTA tennis ban**\
+`Stefano Vukov, suspended by the women's tennis tour over his behavior toward Elena Rybakina, is in arbitration with the body.`\
+https://nytimes.com/athletic/6396240/2025/06/01/tennis-elena-rybakina-coach-vukov-ban-wta/
+
 **$105 Million Reparations Package for Tulsa Race Massacre Unveiled by Mayor**\
 `The plan, the first large-scale attempt to address the impact of the 1921 atrocity, will raise private funds for housing assistance, scholarships and economic development.`\
 https://nytimes.com/2025/06/01/us/tulsa-race-massacre-reparations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/arts/vienna-to-aliens-one-two-three.html
 **Spanish Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Spain?`\
 https://nytimes.com/athletic/6396137/2025/06/01/spanish-grand-prix-submit-your-questions-for-our-f1-mailbag/
-
-**Trump Is Said to Have Known About NASA Nominee’s Donations Before Picking Him**\
-`President Trump withdrew his nomination of Jared Isaacman, an ally of Elon Musk, because of donations he had made to Democrats. But people with knowledge of the events say Mr. Isaacman had disclosed the contributions.`\
-https://nytimes.com/2025/06/01/us/politics/trump-musk-isaacman-nasa.html
 

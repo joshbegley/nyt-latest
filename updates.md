@@ -1,3 +1,7 @@
+**Elena Rybakina's barred coach, Stefano Vukov, appeals 1-year WTA tennis ban**\
+`Stefano Vukov, suspended by the women's tennis tour over his behavior toward Elena Rybakina, is in arbitration with the body.`\
+https://nytimes.com/athletic/6396240/2025/06/01/tennis-elena-rybakina-coach-vukov-ban-wta/
+
 **$105 Million Reparations Package for Tulsa Race Massacre Unveiled by Mayor**\
 `The plan, the first large-scale attempt to address the impact of the 1921 atrocity, will raise private funds for housing assistance, scholarships and economic development.`\
 https://nytimes.com/2025/06/01/us/tulsa-race-massacre-reparations.html
