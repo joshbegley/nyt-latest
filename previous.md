@@ -1,3 +1,7 @@
+**$105 Million Reparations Package for Tulsa Race Massacre Unveiled by Mayor**\
+`The plan, the first large-scale attempt to address the impact of the 1921 atrocity, will raise private funds for housing assistance, scholarships and economic development.`\
+https://nytimes.com/2025/06/01/us/tulsa-race-massacre-reparations.html
+
 **Mexico Votes in Sprawling, First-Ever Judiciary Election**\
 `Voters were choosing the nine members of the Supreme Court on Sunday, along with more than 2,600 other judges and magistrates.`\
 https://nytimes.com/2025/06/01/world/americas/mexico-judiciary-election-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396137/2025/06/01/spanish-grand-prix-submit-your-q
 **Trump Is Said to Have Known About NASA Nominee’s Donations Before Picking Him**\
 `President Trump withdrew his nomination of Jared Isaacman, an ally of Elon Musk, because of donations he had made to Democrats. But people with knowledge of the events say Mr. Isaacman had disclosed the contributions.`\
 https://nytimes.com/2025/06/01/us/politics/trump-musk-isaacman-nasa.html
-
-**Yates wins Giro as team-mate Kooij takes final sprint stage in Rome**\
-`The British rider seized the Maglia Rosa after gaining almost six minutes on Isaac del Toro over the Colle delle Finestre on Saturday.`\
-https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-champion/
 

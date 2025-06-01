@@ -1,3 +1,7 @@
+**$105 Million Reparations Package for Tulsa Race Massacre Unveiled by Mayor**\
+`The plan, the first large-scale attempt to address the impact of the 1921 atrocity, will raise private funds for housing assistance, scholarships and economic development.`\
+https://nytimes.com/2025/06/01/us/tulsa-race-massacre-reparations.html
+
 **Mexico Votes in Sprawling, First-Ever Judiciary Election**\
 `Voters were choosing the nine members of the Supreme Court on Sunday, along with more than 2,600 other judges and magistrates.`\
 https://nytimes.com/2025/06/01/world/americas/mexico-judiciary-election-supreme-court.html
