@@ -1,3 +1,7 @@
+**Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
+`Hours later came a report of another bridge collapse, also in western Russia, involving a freight train. And Ukraine claimed it blew up a military train in the Zaporizhzhia region.`\
+https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
+
 **‘I Thought to Myself: I’m Not Going to Rush This Time’**\
 `A pink push across the street, a kind of compliment on the Q and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/06/01/nyregion/metropolitan-diary.html

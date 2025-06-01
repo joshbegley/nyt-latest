@@ -19,7 +19,7 @@ https://nytimes.com/2025/06/01/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6395072/2025/06/01/psg-champions-league-glory-messi-doue/
 
 **Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
-`A few hours later there was a report of another bridge collapse, also in western Russia, involving a freight train.`\
+`Hours later came a report of another bridge collapse, also in western Russia, involving a freight train. And Ukraine claimed it blew up a military train in the Zaporizhzhia region.`\
 https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
 
 **The Knicks' season comes to an end, and Game 1 will haunt them for a while**\
