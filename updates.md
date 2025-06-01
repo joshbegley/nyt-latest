@@ -1,3 +1,15 @@
+**Manchester United's player of the season: Bruno Fernandes - if only they'd had more like him**\
+`When Fernandes is off the boil, is there anybody in the team who can pick up the slack?`\
+https://nytimes.com/athletic/6384582/2025/06/01/manchester-united-player-of-the-season-bruno-fernandes/
+
+**Tyrese Haliburton is New York's new villain, joining Jordan, Reggie and others**\
+`Haliburton is the new player they love to hate in New York — and with good reason after watching the Eastern Conference finals.`\
+https://nytimes.com/athletic/6391180/2025/06/01/haliburton-pacers-knicks-villain-jordan-reggie/
+
+**How West Germany won the 1954 World Cup: Herberger tactics, injured Puskas, group stage mind games?**\
+`West Germany lost 8-3 to Hungary in the group stages of the 1954 World Cup... only to meet them again in the final.`\
+https://nytimes.com/athletic/6393274/2025/06/01/how-west-germany-won-world-cup-1958/
+
 **Hamburg Hospital Fire Kills at Least 3**\
 `The local news media reported that dozens of others were injured in the overnight fire at the Marien Hospital. The cause was not immediately clear.`\
 https://nytimes.com/2025/06/01/world/europe/hospital-fire-hamburg-germany.html
