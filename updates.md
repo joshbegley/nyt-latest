@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, June 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/01/todays-new-york-times
+
+**Living to Die Well**\
+`Even as we die, our bodies are capable of more than devolution from illness.`\
+https://nytimes.com/2025/06/01/opinion/dying-well-planning-life.html
+
 **Yankees downplay early losses to Dodgers in World Series rematch: ‘Every game is the same’**\
 `The loss Saturday ensured the Yankees would lose their first series after winning their previous seven in a row.`\
 https://nytimes.com/athletic/6395284/2025/06/01/yankees-downplay-losses-dodgers-world-series-rematch/
