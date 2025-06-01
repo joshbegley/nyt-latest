@@ -1,3 +1,7 @@
+**NBA Finals odds: Oklahoma City heavily favored to beat Indiana**\
+`With the NBA Finals matchup set, Oklahoma City is heavily favored to beat Indiana and win the championship.`\
+https://nytimes.com/athletic/6395382/2025/06/01/nba-finals-odds-oklahoma-city-indiana/
+
 **Vienna’s Musical Message to Aliens: One, Two, Three. One, Two, Three.**\
 `Voyager craft have carried galaxies of information to and from space since 1977. Earthlings in Vienna are finally correcting one cultural omission.`\
 https://nytimes.com/2025/06/01/arts/vienna-to-aliens-one-two-three.html
