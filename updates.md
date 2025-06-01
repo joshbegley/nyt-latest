@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President’s Top Aides Insist Tariffs Are Here to Stay**\
+``\
+https://nytimes.com/live/2025/06/01/us/trump-news
+
 **Al Foster, Master of the Jazz Drums, Is Dead at 82**\
 `He was probably best known for his long tenure with Miles Davis, who praised his ability to “keep the groove going forever.”`\
 https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
