@@ -1,3 +1,7 @@
+**Lowetide: The importance of playoff healthy scratches, now and in the future**\
+`Why would the Oilers keep players like Matt Savoie, Noah Philp and Olivier Rodrigue around?`\
+https://nytimes.com/athletic/6394610/2025/06/01/oilers-nhl-playoffs-rookies-scratches/
+
 **Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling**\
 `One official said that the president is unlikely to delay his initial 90-day pause on some of his highest rates.`\
 https://nytimes.com/2025/06/01/us/politics/trump-tariffs-court-lutnick-bessent.html
