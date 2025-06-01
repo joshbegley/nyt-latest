@@ -1,3 +1,15 @@
+**Max Verstappen on verge of F1 race ban after penalty for George Russell clash in Spain**\
+`Max Verstappen faces an uphill battle to avoid a race ban as he’ll need to navigate a clean Canadian and Austrian Grands Prix`\
+https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ban-spanish-grand-prix/
+
+**Phillies juggle bullpen duties in hopes of solving pitching woes**\
+`The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
+https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
+
+**Atalanta's Gasperini leaves club after nine years in charge**\
+`Gasperini, 67, has transformed Atalanta into a regular in the Champions League and guided the club to Europa League success in 2023-24.`\
+https://nytimes.com/athletic/6385855/2025/06/01/atalanta-manager-news-gasperini/
+
 **Liverpool accept £18m Brentford bid for goalkeeper Kelleher**\
 `The move comes with Brentford close to agreeing a €10m (£8.4m) deal to sell No 1 Mark Flekken to Bayer Leverkusen.`\
 https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-brentford/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/01/dining/meatballs-for-when-you-want-kebabs.html
 **Lowetide: The importance of playoff healthy scratches, now and in the future**\
 `Why would the Oilers keep players like Matt Savoie, Noah Philp and Olivier Rodrigue around?`\
 https://nytimes.com/athletic/6394610/2025/06/01/oilers-nhl-playoffs-rookies-scratches/
-
-**Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling**\
-`One official said that the president is unlikely to delay his initial 90-day pause on some of his highest rates.`\
-https://nytimes.com/2025/06/01/us/politics/trump-tariffs-court-lutnick-bessent.html
-
-**Oscar Piastri wins as Max Verstappen given 10-second penalty for Russell clash**\
-`Championship leader Oscar Piastri wins the Spanish Grand Prix from pole as teammate Lando Norris is second`\
-https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-oscar-piastri-wins/
-
-**Defending champion Iga Swiatek fights through at the French Open against Elena Rybakina**\
-`Four-time French Open champion Iga Świątek fights through a swinging third set against Elena Rybakina to reach the French Open quarterfinal.`\
-https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-rybakina-result-analysis/
 

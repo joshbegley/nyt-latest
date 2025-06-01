@@ -1,3 +1,15 @@
+**Max Verstappen on verge of F1 race ban after penalty for George Russell clash in Spain**\
+`Max Verstappen faces an uphill battle to avoid a race ban as he’ll need to navigate a clean Canadian and Austrian Grands Prix`\
+https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ban-spanish-grand-prix/
+
+**Phillies juggle bullpen duties in hopes of solving pitching woes**\
+`The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
+https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
+
+**Atalanta's Gasperini leaves club after nine years in charge**\
+`Gasperini, 67, has transformed Atalanta into a regular in the Champions League and guided the club to Europa League success in 2023-24.`\
+https://nytimes.com/athletic/6385855/2025/06/01/atalanta-manager-news-gasperini/
+
 **Liverpool accept £18m Brentford bid for goalkeeper Kelleher**\
 `The move comes with Brentford close to agreeing a €10m (£8.4m) deal to sell No 1 Mark Flekken to Bayer Leverkusen.`\
 https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-brentford/
