@@ -1,3 +1,7 @@
+**Scottie Scheffler pulls away for 4-stroke win at Memorial Tournament**\
+`Scheffler defended a tournament win for the third time. Only Phil Mickelson (5) and Tiger Woods (23) have done it more in the last 30 years.`\
+https://nytimes.com/athletic/6396409/2025/06/01/scottie-scheffler-pulls-away-for-4-stroke-win-at-memorial-tournament/
+
 **Cubs cautiously optimistic that Kyle Tucker avoided a season-changing injury**\
 `The Cubs removed Tucker from Sunday's game in the fifth inning, four innings after he jammed his right ring finger on a headfirst slide.`\
 https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/

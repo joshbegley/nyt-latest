@@ -15,7 +15,7 @@ https://nytimes.com/2025/06/01/arts/renee-victor-dead.html
 https://nytimes.com/athletic/6396355/2025/06/01/wild-marco-rossi-contract-trade/
 
 **Scottie Scheffler pulls away for 4-stroke win at Memorial Tournament**\
-`Scheffler defended his 2024 victory, the third time he's defended an event. Only Phil Mickelson (5) and Tiger Woods (23) have done it more.`\
+`Scheffler defended a tournament win for the third time. Only Phil Mickelson (5) and Tiger Woods (23) have done it more in the last 30 years.`\
 https://nytimes.com/athletic/6396409/2025/06/01/scottie-scheffler-pulls-away-for-4-stroke-win-at-memorial-tournament/
 
 **Ukraine Strikes Russian Air Bases in Large-Scale Drone Attack**\

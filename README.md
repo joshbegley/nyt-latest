@@ -1,3 +1,15 @@
+**Tennessee overcomes controversial call, UCLA to reach WCWS semis**\
+`UCLA forced extra innings after a base-running mistake was ruled unreviewable, but the Volunteers pulled out the victory in the ninth.`\
+https://nytimes.com/athletic/6396361/2025/06/01/tennessee-ucla-softball-wcws/
+
+**Vanderbilt baseball becomes first No. 1 overall seed to not make a regional final**\
+`Wright State will play Louisville later Sunday in the regional final.`\
+https://nytimes.com/athletic/6396370/2025/06/01/vanderbilt-baseball-eliminated-no-1-seed-ncaa-regionals/
+
+**Padres' Gavin Sheets exits game after collision with outfield wall**\
+`Sheets has been the offensive surprise of the Padres’ season, leading the team with 34 RBIs.`\
+https://nytimes.com/athletic/6396485/2025/06/01/padres-gavin-sheets-outfield-wall-collision/
+
 **Cubs cautiously optimistic that Kyle Tucker avoided a season-changing injury**\
 `The Cubs removed Tucker from Sunday's game in the fifth inning, four innings after he jammed his right ring finger on a headfirst slide.`\
 https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010201931/ukraine-strikes-russian-a
 **Police Respond to Attack at a Colorado Event Raising Awareness of Israeli Hostages**\
 `A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at walkers at the event.`\
 https://nytimes.com/2025/06/01/us/boulder-colorado-attack.html
-
-**Crossed One’s Fingers**\
-`Anthony V. Grubb wears down our defenses.`\
-https://nytimes.com/2025/06/01/crosswords/daily-puzzle-2025-06-02.html
-
-**Trump Amplifies Outlandish Robot Biden Conspiracy Theory**\
-`President Trump reposted another user’s false claim that the former president had been “executed” in 2020 and replaced by a robotic clone.`\
-https://nytimes.com/2025/06/01/us/politics/trump-biden-conspiracy-theory.html
-
-**Chelsea reach agreement with Delap on personal terms, set to sign six-year deal**\
-`A deal was already in place between the clubs for Chelsea to activate a £30m release clause.`\
-https://nytimes.com/athletic/6396311/2025/06/01/chelsea-delap-transfer-update-contract/
 
