@@ -1,3 +1,11 @@
+**Police Respond to ‘Terror Attack’ at a Colorado Event Raising Awareness of Israeli Hostages**\
+`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was throw at walkers at the event. The F.B.I. director called it “a targeted terror attack.”`\
+https://nytimes.com/2025/06/01/us/boulder-colorado-attack.html
+
+**Crossed One’s Fingers**\
+`Anthony V. Grubb wears down our defenses.`\
+https://nytimes.com/2025/06/01/crosswords/daily-puzzle-2025-06-02.html
+
 **Trump Amplifies Outlandish Robot Biden Conspiracy Theory**\
 `President Trump reposted another user’s claim that the former president had been “executed” in 2020 and replaced by a robotic clone.`\
 https://nytimes.com/2025/06/01/us/politics/trump-biden-conspiracy-theory.html

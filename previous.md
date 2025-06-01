@@ -1,3 +1,11 @@
+**Police Respond to ‘Terror Attack’ at a Colorado Event Raising Awareness of Israeli Hostages**\
+`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was throw at walkers at the event. The F.B.I. director called it “a targeted terror attack.”`\
+https://nytimes.com/2025/06/01/us/boulder-colorado-attack.html
+
+**Crossed One’s Fingers**\
+`Anthony V. Grubb wears down our defenses.`\
+https://nytimes.com/2025/06/01/crosswords/daily-puzzle-2025-06-02.html
+
 **Trump Amplifies Outlandish Robot Biden Conspiracy Theory**\
 `President Trump reposted another user’s claim that the former president had been “executed” in 2020 and replaced by a robotic clone.`\
 https://nytimes.com/2025/06/01/us/politics/trump-biden-conspiracy-theory.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/01/world/europe/poland-election-president.html
 **Snack Maker Sues Aldi Grocery Chain Over Look-Alike Product Packaging**\
 `Mondelez International, a corporate giant behind the name-brand versions of many snacks, contends that Aldi is mimicking its packaging to dupe customers.`\
 https://nytimes.com/2025/06/01/business/mondelez-aldi-packaging-lawsuit.html
-
-**Guy Klucevsek, Multi-Genre Accordion Virtuoso, Is Dead at 78**\
-`He elevated his instrument’s often-maligned reputation with deft musicianship, and by writing and commissioning a wide range of music.`\
-https://nytimes.com/2025/06/01/arts/music/guy-klucevsek-dead.html
-
-**Party Activists in California Aren’t Sold on a Harris Run for Governor**\
-`Kamala Harris did not appear in person at a California state Democratic convention, leaving delegates to wonder how seriously she is considering running and whether it would be wise.`\
-https://nytimes.com/2025/06/01/us/california-democrats-kamala-harris-governor.html
 
