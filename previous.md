@@ -1,3 +1,7 @@
+**Trump Amplifies Outlandish Robot Biden Conspiracy Theory**\
+`President Trump reposted another user’s claim that the former president had been “executed” in 2020 and replaced by a robotic clone.`\
+https://nytimes.com/2025/06/01/us/politics/trump-biden-conspiracy-theory.html
+
 **Chelsea reach agreement with Delap on personal terms, set to sign six-year deal**\
 `A deal was already in place between the clubs for Chelsea to activate a £30m release clause.`\
 https://nytimes.com/athletic/6396311/2025/06/01/chelsea-delap-transfer-update-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/arts/music/guy-klucevsek-dead.html
 **Party Activists in California Aren’t Sold on a Harris Run for Governor**\
 `Kamala Harris did not appear in person at a California state Democratic convention, leaving delegates to wonder how seriously she is considering running and whether it would be wise.`\
 https://nytimes.com/2025/06/01/us/california-democrats-kamala-harris-governor.html
-
-**NBA Finals odds: Oklahoma City heavily favored to beat Indiana**\
-`With the NBA Finals matchup set, Oklahoma City is heavily favored to beat Indiana and win the championship.`\
-https://nytimes.com/athletic/6395382/2025/06/01/nba-finals-odds-oklahoma-city-indiana/
 

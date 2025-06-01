@@ -1,3 +1,7 @@
+**Trump Amplifies Outlandish Robot Biden Conspiracy Theory**\
+`President Trump reposted another user’s claim that the former president had been “executed” in 2020 and replaced by a robotic clone.`\
+https://nytimes.com/2025/06/01/us/politics/trump-biden-conspiracy-theory.html
+
 **Chelsea reach agreement with Delap on personal terms, set to sign six-year deal**\
 `A deal was already in place between the clubs for Chelsea to activate a £30m release clause.`\
 https://nytimes.com/athletic/6396311/2025/06/01/chelsea-delap-transfer-update-contract/
