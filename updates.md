@@ -1,3 +1,27 @@
+**Pascal Siakam leans on his championship credentials to will Pacers into NBA Finals**\
+`This was the moment for which Pascal Siakam was brought to Indianapolis. “When we brought him here, we had a vision,” Tyrese Haliburton said`\
+https://nytimes.com/athletic/6395434/2025/06/01/pascal-siakam-pacers-nba-finals/
+
+**Exercise Extends Life for People With Cancer, Study Shows**\
+`The trial, in people treated for colon cancer, showed clear evidence that an exercise program lowered the risk of disease recurrence and death.`\
+https://nytimes.com/2025/06/01/well/exercise-colon-cancer-study.html
+
+**Blood Test Gives Breast Cancer Patients Early Warning of Faltering Drugs**\
+`A study found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
+https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
+
+**Senny's smile that says it all**\
+`Senny Mayulu's celebration after scoring in PSG's 5-0 Champions League final win over Inter, says everything about him and his team.`\
+https://nytimes.com/athletic/6394918/2025/06/01/senny-mayulu-psg-champions-league-title/
+
+**Ukraine Says Russian Strike on Military Base Killed 12 Soldiers**\
+`In a rare statement acknowledging casualties within its ranks, the Ukrainian military also said that 60 other soldiers were wounded.`\
+https://nytimes.com/2025/06/01/world/europe/russia-ukraine-strikes.html
+
+**Two dead and 100s injured across France after PSG's UCL victory**\
+`Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
+https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
+
 **2 dead and 100s injured across France after PSG's UCL victory**\
 `Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
 https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
