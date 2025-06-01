@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, June 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/01/todays-new-york-times-international-edition
+
 **Northern Lights May Be Visible as Far South as Alabama**\
 `Streaks of colorful light could paint the sky over a large portion of the country on Sunday night into Monday morning amid a severe geomagnetic storm.`\
 https://nytimes.com/2025/06/01/weather/northern-lights-visible-states.html
