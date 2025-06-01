@@ -1,3 +1,11 @@
+**Yates wins Giro as team-mate Kooij takes final sprint stage in Rome**\
+`The British rider seized the Maglia Rosa after gaining almost six minutes on Isaac del Toro over the Colle delle Finestre on Saturday.`\
+https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-champion/
+
+**Forest close on agreement to sign Botafogo trio Jesus, Cuiabano, and Cunha**\
+`Forest are looking to add to their squad after qualifying for the UEFA Conference League last season.`\
+https://nytimes.com/athletic/6396032/2025/06/01/nottingham-forest-transfers-botafogo-jesus-cuiabano-cunha/
+
 **Madrid move into UEFA rankings top spot, Man United above Arsenal**\
 `UEFA's ranking system is determined using a point-based system over a rolling five-year period.`\
 https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manchester-united-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6395851/2025/06/01/blue-jays-daulton-varsho-hamstri
 **Stanley Fischer, Who Helped Defuse Financial Crises, Dies at 81**\
 `He was the No. 2 at the Federal Reserve and the I.M.F. during periods of economic turmoil, and he mentored future economic leaders, like Ben Bernanke.`\
 https://nytimes.com/2025/06/01/business/stanley-fischer-dead.html
-
-**Transfers TLDR: Cunha to Manchester United – all you need to know**\
-`United have announced their first summer signing has been agreed - here's all you need to know about Matheus Cunha.`\
-https://nytimes.com/athletic/6384845/2025/06/01/transfers-matheus-cunha-manchester-united/
-
-**European finals are not meant to be won like this — so how does this PSG victory compare?**\
-`PSG's 5-0 win was the biggest margin of victory in the European Cup final. So is it the greatest win?`\
-https://nytimes.com/athletic/6395426/2025/06/01/psg-champions-league-victory-final/
 

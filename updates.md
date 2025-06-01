@@ -1,3 +1,11 @@
+**Yates wins Giro as team-mate Kooij takes final sprint stage in Rome**\
+`The British rider seized the Maglia Rosa after gaining almost six minutes on Isaac del Toro over the Colle delle Finestre on Saturday.`\
+https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-champion/
+
+**Forest close on agreement to sign Botafogo trio Jesus, Cuiabano, and Cunha**\
+`Forest are looking to add to their squad after qualifying for the UEFA Conference League last season.`\
+https://nytimes.com/athletic/6396032/2025/06/01/nottingham-forest-transfers-botafogo-jesus-cuiabano-cunha/
+
 **Madrid move into UEFA rankings top spot, Man United above Arsenal**\
 `UEFA's ranking system is determined using a point-based system over a rolling five-year period.`\
 https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manchester-united-arsenal/
