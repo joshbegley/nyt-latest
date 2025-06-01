@@ -1,3 +1,11 @@
+**NBA Finals preview: Thunder-Pacers key matchups, X-factors and more**\
+`OKC won both matchups against Indiana this season, but as the rest of the East will tell you, the Pacers are on a roll.`\
+https://nytimes.com/athletic/6391912/2025/05/31/thunder-pacers-preview-prediction-nba-finals/
+
+**Pacers head to NBA Finals for first time since 2000, besting Knicks in Game 6**\
+`Pascal Siakam led the way for Indiana, while Tyrese Haliburton helped hold off the Knicks in the fourth quarter. Next up: The Thunder.`\
+https://nytimes.com/athletic/6395087/2025/05/31/pacers-knicks-game-6-nba-playoffs-elimination/
+
 **Live updates: LAFC, América play-in match for Club World Cup place**\
 `Follow all the key moments and goals as LAFC and América fight for a place at the FIFA Club World Cup`\
 https://nytimes.com/athletic/6394957/2025/05/31/lafc-america-club-world-cup-play-in-match-updates-video/
