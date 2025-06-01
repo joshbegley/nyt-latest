@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6387292/2025/06/01/matheus-cunha-manchester-united-
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6395269/2025/06/01/college-footballs-truly-messy-offseason-explained-plus-indy-fights-off-the-knicks/
 
-**Trump Administration Live Updates: Trump to Withdraw Elon Musk’s Ally as Nominee for Top NASA Job**\
+**Trump Administration Live Updates: President’s Top Aides Insist Tariffs Are Here to Stay**\
 ``\
 https://nytimes.com/live/2025/06/01/us/trump-news
 
