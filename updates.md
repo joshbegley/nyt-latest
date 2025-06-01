@@ -1,3 +1,7 @@
+**Trump Is Said to Have Known About NASA Nominee’s Donations Before Picking Him**\
+`President Trump withdrew his nomination of Jared Isaacman, an ally of Elon Musk, because of donations he had made to Democrats. But people with knowledge of the events say Mr. Isaacman had disclosed the contributions.`\
+https://nytimes.com/2025/06/01/us/politics/trump-musk-isaacman-nasa.html
+
 **Yates wins Giro as team-mate Kooij takes final sprint stage in Rome**\
 `The British rider seized the Maglia Rosa after gaining almost six minutes on Isaac del Toro over the Colle delle Finestre on Saturday.`\
 https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-champion/

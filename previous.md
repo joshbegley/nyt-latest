@@ -1,3 +1,7 @@
+**Trump Is Said to Have Known About NASA Nominee’s Donations Before Picking Him**\
+`President Trump withdrew his nomination of Jared Isaacman, an ally of Elon Musk, because of donations he had made to Democrats. But people with knowledge of the events say Mr. Isaacman had disclosed the contributions.`\
+https://nytimes.com/2025/06/01/us/politics/trump-musk-isaacman-nasa.html
+
 **Yates wins Giro as team-mate Kooij takes final sprint stage in Rome**\
 `The British rider seized the Maglia Rosa after gaining almost six minutes on Isaac del Toro over the Colle delle Finestre on Saturday.`\
 https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-champion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-bre
 **Blue Jays place Daulton Varsho on IL with hamstring injury**\
 `Varsho missed the first month of Toronto’s 2025 campaign as he rehabbed from offseason shoulder surgery`\
 https://nytimes.com/athletic/6395851/2025/06/01/blue-jays-daulton-varsho-hamstring-injury/
-
-**Stanley Fischer, Who Helped Defuse Financial Crises, Dies at 81**\
-`He was the No. 2 at the Federal Reserve and the I.M.F. during periods of economic turmoil, and he mentored future economic leaders, like Ben Bernanke.`\
-https://nytimes.com/2025/06/01/business/stanley-fischer-dead.html
 
