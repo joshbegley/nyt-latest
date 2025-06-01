@@ -1,3 +1,7 @@
+**Snack Maker Sues Aldi Grocery Chain Over Look-Alike Product Packaging**\
+`Mondelez International, a corporate giant behind the name-brand versions of many snacks, contends that Aldi is mimicking its packaging to dupe customers.`\
+https://nytimes.com/2025/06/01/business/mondelez-aldi-packaging-lawsuit.html
+
 **Guy Klucevsek, Multi-Genre Accordion Virtuoso, Is Dead at 78**\
 `He elevated his instrument’s often-maligned reputation with deft musicianship, and by writing and commissioning a wide range of music.`\
 https://nytimes.com/2025/06/01/arts/music/guy-klucevsek-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396032/2025/06/01/nottingham-forest-transfers-bota
 **Madrid move into UEFA rankings top spot, Man United above Arsenal**\
 `UEFA's ranking system is determined using a point-based system over a rolling five-year period.`\
 https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manchester-united-arsenal/
-
-**The best Connor McDavid cards to collect**\
-`Whether you budget is $50 or $300,000, there's a McDavid rookie card for every fan.`\
-https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
 
