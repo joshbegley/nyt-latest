@@ -1,3 +1,11 @@
+**Phillies' Jesús Luzardo felt at his best. Then he gave up 12 runs to the Brewers**\
+`Luzardo felt good. “My arm felt like a whip,” he said. It was the best he’d felt in a month and a half. Then Saturday happened. `\
+https://nytimes.com/athletic/6395091/2025/05/31/jesus-luzardo-phillies-brewers-12-runs/
+
+**Knicks' vibes weren't always immaculate, but this historic season gave plenty of hope**\
+`Despite a Jekyll-and-Hyde season, the Knicks still made the conference finals for the first time since 2000. Who will they be going forward?`\
+https://nytimes.com/athletic/6395011/2025/05/31/knicks-loss-pacers-nba-playoffs-brunson-towns/
+
 **NBA Finals preview: Thunder-Pacers key matchups, X-factors and more**\
 `OKC won both matchups against Indiana this season, but as the rest of the East will tell you, the Pacers are on a roll.`\
 https://nytimes.com/athletic/6391912/2025/05/31/thunder-pacers-preview-prediction-nba-finals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6394963/2025/05/31/cubs-bullpen-drew-pomeranz-brad-
 **Climate Scientists Join 100-Hour Livestream to Protest Trump’s Cuts**\
 `The livestream featuring hundreds of meteorologists and climate scientists began on May 28 and is scheduled to run through June 1, the first day of the Atlantic hurricane season.`\
 https://nytimes.com/video/climate/100000010201141/climate-scientists-livestream.html
-
-**Former Member of Murderous Manson Crew Is Recommended for Parole**\
-`Patricia Krenwinkel, 77, who was part of what was known as the Manson family, was convicted of seven counts of murder in 1971. A California panel said she posed little risk of reoffending.`\
-https://nytimes.com/2025/05/31/us/manson-family-patricia-krenwinkel-parole.html
-
-**Lois Boisson reaches second week after Roland Garros nightmare last year: French Open recap**\
-`How the French tennis prospect came back from a torn ACL just weeks before what was meant to be her Roland Garros debut in 2024.`\
-https://nytimes.com/athletic/6394442/2025/05/31/tennis-lois-boisson-french-open-results-harriet-dart/
 

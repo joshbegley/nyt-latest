@@ -1,3 +1,11 @@
+**Phillies' Jesús Luzardo felt at his best. Then he gave up 12 runs to the Brewers**\
+`Luzardo felt good. “My arm felt like a whip,” he said. It was the best he’d felt in a month and a half. Then Saturday happened. `\
+https://nytimes.com/athletic/6395091/2025/05/31/jesus-luzardo-phillies-brewers-12-runs/
+
+**Knicks' vibes weren't always immaculate, but this historic season gave plenty of hope**\
+`Despite a Jekyll-and-Hyde season, the Knicks still made the conference finals for the first time since 2000. Who will they be going forward?`\
+https://nytimes.com/athletic/6395011/2025/05/31/knicks-loss-pacers-nba-playoffs-brunson-towns/
+
 **NBA Finals preview: Thunder-Pacers key matchups, X-factors and more**\
 `OKC won both matchups against Indiana this season, but as the rest of the East will tell you, the Pacers are on a roll.`\
 https://nytimes.com/athletic/6391912/2025/05/31/thunder-pacers-preview-prediction-nba-finals/
