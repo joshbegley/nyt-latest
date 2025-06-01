@@ -1,3 +1,27 @@
+**Hamburg Hospital Fire Kills at Least 3**\
+`The local news media reported that dozens of others were injured in the overnight fire at the Marien Hospital. The cause was not immediately clear.`\
+https://nytimes.com/2025/06/01/world/europe/hospital-fire-hamburg-germany.html
+
+**​South Korea’s Election Likely to Reset Ties With China**\
+`Both of the main candidates support the alliance with the United States, but the front-runner favors diplomacy with North Korea and China to improve strained relations.`\
+https://nytimes.com/2025/06/01/world/asia/south-korea-china-election.html
+
+**The U.S. Right Loathes the E.U. How Are They Going to Negotiate Trade?**\
+`The Trump administration and the European Union are fast-tracking discussions toward a trade deal, but America’s right sometimes treats the bloc as more foe than friend.`\
+https://nytimes.com/2025/06/01/world/europe/europe-us-maga-trump.html
+
+**A Close Polish Election Is a Bellwether for Populists**\
+`Here’s what to know about Poland’s presidential runoff, which sets up a showdown between the governing party and resurgent nationalists.`\
+https://nytimes.com/2025/06/01/world/europe/poland-presidential-runoff-election-trump.html
+
+**Connections: Sports Edition Coach: Hints for June 1, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6393843/2025/06/01/connections-sports-edition-hints-for-june-1-2025-puzzle-no-251/
+
+**Corrections: June 1, 2025**\
+`Corrections that appeared in print on Sunday, June 1, 2025.`\
+https://nytimes.com/2025/06/01/pageoneplus/corrections-june-1-2025.html
+
 **'Inside the NBA' on TNT ends with conference finals, but its legacy lives on**\
 `“Inside the NBA” will continue on ESPN next season, but the show’s longtime relationship with TNT ends with the Eastern Conference finals.`\
 https://nytimes.com/athletic/6395081/2025/05/31/inside-the-nba-tnt-final-episode-eastern-conference-finals/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6395011/2025/05/31/knicks-loss-pacers-nba-playoffs-
 **NBA Finals preview: Thunder-Pacers key matchups, X-factors and more**\
 `OKC won both matchups against Indiana this season, but as the rest of the East will tell you, the Pacers are on a roll.`\
 https://nytimes.com/athletic/6391912/2025/05/31/thunder-pacers-preview-prediction-nba-finals/
-
-**Pacers head to NBA Finals for first time since 2000, besting Knicks in Game 6**\
-`Pascal Siakam led the way for Indiana, while Tyrese Haliburton helped hold off the Knicks in the fourth quarter. Next up: The Thunder.`\
-https://nytimes.com/athletic/6395087/2025/05/31/pacers-knicks-game-6-nba-playoffs-elimination/
-
-**Live updates: LAFC, América play-in match for Club World Cup place**\
-`Follow all the key moments and goals as LAFC and América fight for a place at the FIFA Club World Cup`\
-https://nytimes.com/athletic/6394957/2025/05/31/lafc-america-club-world-cup-play-in-match-updates-video/
-
-**M.I.T. Class President Barred From Graduation Ceremony After Pro-Palestinian Speech**\
-`According to the school, the student delivered a speech, which denounced M.I.T.’s ties to Israel, that had not been preapproved.`\
-https://nytimes.com/2025/05/31/us/mit-commencement.html
-
-**Move to Canada? Migrants Face ‘No Good Options’ After Supreme Court Ruling.**\
-`Migrants from Cuba, Haiti, Nicaragua and Venezuela who entered the United States legally under a Biden-era program are now scrambling.`\
-https://nytimes.com/2025/05/31/us/immigrants-haiti-trump-deportation-supreme-court.html
-
-**USWNT midfield stands out in 3-0 win over China**\
-`Coach Emma Hayes also gave 32-year-old Lo'eau LaBonta her first U.S. minutes.`\
-https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
-
-**With contributions coming in unexpected ways, Cubs bullpen has emerged as trusted unit**\
-`The Cubs bullpen has allowed zero earned runs in 22 innings of work on the homestand.`\
-https://nytimes.com/athletic/6394963/2025/05/31/cubs-bullpen-drew-pomeranz-brad-keller-daniel-palencia/
 
