@@ -1,3 +1,7 @@
+**'Inside the NBA' on TNT ends with conference finals, but its legacy lives on**\
+`“Inside the NBA” will continue on ESPN next season, but the show’s longtime relationship with TNT ends with the Eastern Conference finals.`\
+https://nytimes.com/athletic/6395081/2025/05/31/inside-the-nba-tnt-final-episode-eastern-conference-finals/
+
 **Phillies' Jesús Luzardo felt at his best. Then he gave up 12 runs to the Brewers**\
 `Luzardo felt good. “My arm felt like a whip,” he said. It was the best he’d felt in a month and a half. Then Saturday happened. `\
 https://nytimes.com/athletic/6395091/2025/05/31/jesus-luzardo-phillies-brewers-12-runs/
