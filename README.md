@@ -1,3 +1,7 @@
+**Thomas Bryant emerges as unlikely hero to help Pacers into NBA Finals**\
+`“There were times I never thought I’d see the court again," said the former Indiana University star after his huge moment for the Pacers.`\
+https://nytimes.com/athletic/6395512/2025/06/01/thomas-bryant-pacers-knicks-game-6-nba-playoffs/
+
 **'The boys are here': At Gaudreau Family 5K, memory of late brothers Johnny and Matthew shines bright**\
 `Nine months after the brothers were killed while riding bicycles, more than a thousand people gathered to run and walk in their honor.`\
 https://nytimes.com/athletic/6394772/2025/06/01/johnny-gaudreau-brothers-death-matthew-family-5k/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/opinion/trump-judges-federalist-society.html
 **Are International Students Good for American Universities?**\
 `It’s complicated.`\
 https://nytimes.com/2025/06/01/opinion/international-students-harvard-trump.html
-
-**Our Doughnuts, Ourselves**\
-`With junk food on the endangered list, I grabbed a chance to journey back to my youth in a Wonder Bread time machine.`\
-https://nytimes.com/2025/06/01/opinion/junk-food-rfk.html
 
