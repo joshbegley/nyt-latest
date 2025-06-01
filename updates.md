@@ -1,4 +1,8 @@
 **USWNT midfield stands out in 3-0 win over China**\
+`Coach Emma Hayes also gave 32-year-old Lo'eau LaBonta her first U.S. minutes.`\
+https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
+
+**USWNT midfield stands out in 3-0 win over China**\
 `Hayes also gave 32-year-old Lo'eau LaBonta her first U.S. minutes.`\
 https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
 
