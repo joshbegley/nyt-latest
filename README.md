@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6394918/2025/06/01/senny-mayulu-psg-champions-leagu
 `In a rare statement acknowledging casualties within its ranks, the Ukrainian military also said that 60 other soldiers were wounded.`\
 https://nytimes.com/2025/06/01/world/europe/russia-ukraine-strikes.html
 
-**2 dead and 100s injured across France after PSG's UCL victory**\
+**Two dead and 100s injured across France after PSG's UCL victory**\
 `Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
 https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
 
