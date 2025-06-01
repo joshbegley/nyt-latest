@@ -1,3 +1,7 @@
+**'It's just tennis': American men put aside surface tension for French Open surge**\
+`American women have been headline acts at Roland Garros for decades. Can this generation of men's players join them? `\
+https://nytimes.com/athletic/6393768/2025/06/01/tennis-us-grand-slams-clay-record-men/
+
 **Fireworks, tears, flares and Djokovic confusion: Watching PSG's Champions League win in Paris**\
 `Charlie Eccleshare takes in PSG's Champions League win at the French Open, the Parc des Princes - and on the streets of Paris.`\
 https://nytimes.com/athletic/6394951/2025/06/01/psg-champions-league-title-parc-des-princes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395280/2025/06/01/knicks-eliminated-game-6-missed-
 **The New York Times in Print for Sunday, June 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/01/todays-new-york-times
-
-**Living to Die Well**\
-`Even as we die, our bodies are capable of more than devolution from illness.`\
-https://nytimes.com/2025/06/01/opinion/dying-well-planning-life.html
 
