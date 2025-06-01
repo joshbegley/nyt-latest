@@ -1,40 +1,40 @@
-**'It's just tennis': American men put aside surface tension for French Open surge**\
-`American women have been headline acts at Roland Garros for decades. Can this generation of men's players join them? `\
-https://nytimes.com/athletic/6393768/2025/06/01/tennis-us-grand-slams-clay-record-men/
+**Dozens of Candidates and Rainbow Colors: Mexico’s Sprawling Judicial Ballots**\
+`In a judicial overhaul, Mexican voters are directly electing their judges for the first time in history. But long and complex ballots await.`\
+https://nytimes.com/interactive/2025/06/01/world/americas/mexico-judicial-election-ballots.html
 
-**Fireworks, tears, flares and Djokovic confusion: Watching PSG's Champions League win in Paris**\
-`Charlie Eccleshare takes in PSG's Champions League win at the French Open, the Parc des Princes - and on the streets of Paris.`\
-https://nytimes.com/athletic/6394951/2025/06/01/psg-champions-league-title-parc-des-princes/
+**F.D.A. Updates Recall of Tomatoes, Warning of a High Risk of Illness or Death**\
+`The recall of tomatoes distributed in three southern states was upgraded to the most severe warning the agency issues.`\
+https://nytimes.com/2025/06/01/health/tomato-recall-fda-salmonella.html
 
-**‘I Thought to Myself: I’m Not Going to Rush This Time’**\
-`A pink push across the street, a kind of compliment on the Q and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/06/01/nyregion/metropolitan-diary.html
+**These Fans Love ‘Pride & Prejudice’ a Billion Times Over**\
+`The soundtrack for Joe Wright’s film adaptation of the Austen novel has long been a hit. At a 20th-anniversary ball, people got to hear it live.`\
+https://nytimes.com/2025/06/01/arts/music/jean-yves-thibaudet-pride-and-prejudice-soundtrack.html
 
-**How the N.Y.C. Mayoral Candidates Plan to Solve the Housing Crisis**\
-`The candidates’ ambitious plans could bring hundreds of thousands of new homes to a city desperate for them, though many are light on details about how they’d pay for them.`\
-https://nytimes.com/2025/06/01/nyregion/nyc-mayor-housing-plans.html
+**Will Voting for Judges Help or Hurt Mexico’s Democracy?**\
+`Sunday’s judicial elections could remove an important counterweight to powerful elected leaders.`\
+https://nytimes.com/2025/06/01/world/americas/mexico-judicial-election-dangers.html
 
-**The Business Interests Bankrolling Andrew Cuomo’s Run for Mayor**\
-`A super PAC supporting Mr. Cuomo has raised $10 million from business leaders and special interest groups that could benefit from his victory.`\
-https://nytimes.com/2025/06/01/nyregion/cuomo-donors-mayor.html
+**A 355-Year-Old Company That Once Owned One-Third of Canada Is Shutting Down**\
+`Bargain hunters picked over what was left at the Hudson’s Bay Company’s remaining stores, part of a vast empire that was North America’s oldest corporation.`\
+https://nytimes.com/2025/06/01/world/canada/canada-hudsons-bay-stores-closing.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/01/crosswords/spelling-bee-forum.html
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Max, AMC+ and More in June**\
+`“Phineas and Ferb,” ”The Bear” and “The Gilded Age” are coming back, and “We Were Liars,” “Hell Motel” and “Stick” debut.`\
+https://nytimes.com/2025/06/01/arts/television/movies-tv-shows-june-2025-streaming.html
 
-**PSG craved Champions League glory, but Messi, Mbappe and Beckham couldn't deliver. Doue could**\
-`After a galaxy of superstars passed through PSG without winning the Champions League, Desire Doue, 19, delivered what they could not.`\
-https://nytimes.com/athletic/6395072/2025/06/01/psg-champions-league-glory-messi-doue/
+**‘I Didn’t Get It Done’: A Reflective Tim Walz Wants to Make Good**\
+`Last year’s Democratic vice-presidential nominee has thrown himself into a robust atonement-and-explanation tour, though aides insist there is no grand strategy.`\
+https://nytimes.com/2025/06/01/us/politics/tim-walz-democrats-2024.html
 
-**Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
-`Hours later came a report of another bridge collapse, also in western Russia, involving a freight train. And Ukraine claimed it blew up a military train in the Zaporizhzhia region.`\
-https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
+**Why Mexico’s Judicial Election is a Controversial Experiment**\
+`On June 1, Mexico will become the only country in the world to elect all of its judges and magistrates. Emiliano Rodriguez Mega, a New York Times reporter based in Mexico City, breaks down why this new approach is so controversial.`\
+https://nytimes.com/video/world/americas/100000010195231/why-mexicos-judicial-election-is-a-controversial-experiment.html
 
-**The Knicks' season comes to an end, and Game 1 will haunt them for a while**\
-`Game 1 of the Eastern Conference finals will haunt New York for a while. Maybe forever. `\
-https://nytimes.com/athletic/6395280/2025/06/01/knicks-eliminated-game-6-missed-opportunity/
+**This ‘Buena Vista Social Club’ Star Knows She’s Intimidating**\
+`Natalie Venetia Belcon insists she’s not as regal as the Cuban musician she plays, but she’s worked hard to make you think otherwise.`\
+https://nytimes.com/2025/06/01/theater/buena-vista-social-club-natalie-venetia-belcon-tonys.html
 
-**The New York Times in Print for Sunday, June 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/01/todays-new-york-times
+**With Music and Movies, the Tribeca Festival Plays a Successful Mix**\
+`The festival has more than 20 music events this year — its highest number yet — including documentaries, music videos and podcasts.`\
+https://nytimes.com/2025/06/01/arts/music/tribeca-festival-music-movies.html
 
