@@ -1,3 +1,7 @@
+**Jubilant Soccer Fans Cause Chaos in France**\
+`Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory.`\
+https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
+
 **More Than 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
 `It was not immediately clear who was responsible for the attack. The Israeli military denied any of its fire had harmed people within the site.`\
 https://nytimes.com/2025/06/01/world/middleeast/gaza-aid-distribution-site-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/opinion/william-buckley-trump-conservatism.html
 **Will America’s National Parks Survive Trump?**\
 `Budget cuts proposed for next year would be catastrophic.`\
 https://nytimes.com/2025/06/01/opinion/trump-parks-budget-cuts.html
-
-**Wordle Review No. 1,444**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 2, 2025.`\
-https://nytimes.com/2025/06/01/crosswords/wordle-review-1444.html
 
