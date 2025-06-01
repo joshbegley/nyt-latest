@@ -1,3 +1,7 @@
+**Vienna’s Musical Message to Aliens: One, Two, Three. One, Two, Three.**\
+`Voyager craft have carried galaxies of information to and from space since 1977. Earthlings in Vienna are finally correcting one cultural omission.`\
+https://nytimes.com/2025/06/01/arts/vienna-to-aliens-one-two-three.html
+
 **Spanish Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Spain?`\
 https://nytimes.com/athletic/6396137/2025/06/01/spanish-grand-prix-submit-your-questions-for-our-f1-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitchi
 **Atalanta's Gasperini leaves club after nine years in charge**\
 `Gasperini, 67, has transformed Atalanta into a regular in the Champions League and guided the club to Europa League success in 2023-24.`\
 https://nytimes.com/athletic/6385855/2025/06/01/atalanta-manager-news-gasperini/
-
-**Liverpool accept £18m Brentford bid for goalkeeper Kelleher**\
-`The move comes with Brentford close to agreeing a €10m (£8.4m) deal to sell No 1 Mark Flekken to Bayer Leverkusen.`\
-https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-brentford/
 
