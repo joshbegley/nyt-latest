@@ -1,3 +1,11 @@
+**Trans Athlete in Political Storm Earns, and Shares, First Place in Event**\
+`In a rules compromise, AB Hernandez shared first place in the high jump and triple jump in the California high school championship, and shared spots on the awards podium, too.`\
+https://nytimes.com/2025/06/01/us/trans-athlete-california-track-meet.html
+
+**Chelsea review of 2024-25: Mission accomplished for Enzo Maresca – but can he build on it?**\
+`Three years after taking over, the Todd Boehly-Clearlake consortium have got something truly tangible to show for their efforts`\
+https://nytimes.com/athletic/6393491/2025/06/01/chelsea-review-of-2024-25-maresca/
+
 **Manchester United's player of the season: Bruno Fernandes - if only they'd had more like him**\
 `When Fernandes is off the boil, is there anybody in the team who can pick up the slack?`\
 https://nytimes.com/athletic/6384582/2025/06/01/manchester-united-player-of-the-season-bruno-fernandes/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/01/world/europe/poland-presidential-runoff-election-
 **Connections: Sports Edition Coach: Hints for June 1, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6393843/2025/06/01/connections-sports-edition-hints-for-june-1-2025-puzzle-no-251/
-
-**Corrections: June 1, 2025**\
-`Corrections that appeared in print on Sunday, June 1, 2025.`\
-https://nytimes.com/2025/06/01/pageoneplus/corrections-june-1-2025.html
-
-**'Inside the NBA' on TNT ends with conference finals, but its legacy lives on**\
-`“Inside the NBA” will continue on ESPN next season, but the show’s longtime relationship with TNT ends with the Eastern Conference finals.`\
-https://nytimes.com/athletic/6395081/2025/05/31/inside-the-nba-tnt-final-episode-eastern-conference-finals/
 
