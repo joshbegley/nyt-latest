@@ -1,4 +1,8 @@
-**Phillies end woeful weekend with bad defense, managerial missteps — and missing Bryce Harper**\
+**Cubs cautiously optimistic that Kyle Tucker avoided a season-changing injury**\
+`The Cubs removed Tucker from Sunday's game in the fifth inning, four innings after he jammed his right ring finger on a headfirst slide.`\
+https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/
+
+**Phillies end woeful weekend with day of miscues and missteps — and missing Bryce Harper**\
 `The Phillies handed Milwaukee five outs in a disastrous seventh inning. Everyone agrees: The entire team's defense should look better. `\
 https://nytimes.com/athletic/6396366/2025/06/01/phillies-defense-bryce-harper-brewers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/us/politics/trump-biden-conspiracy-theory.html
 **Chelsea reach agreement with Delap on personal terms, set to sign six-year deal**\
 `A deal was already in place between the clubs for Chelsea to activate a £30m release clause.`\
 https://nytimes.com/athletic/6396311/2025/06/01/chelsea-delap-transfer-update-contract/
-
-**Monday Briefing: Ukraine bombarded Russian air bases**\
-`Plus, the tech bros of “Mountainhead.”`\
-https://nytimes.com/2025/06/01/briefing/ukraine-russia-gaza-mexico.html
 
