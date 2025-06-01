@@ -1,3 +1,7 @@
+**More Than 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
+`It was not immediately clear who was responsible for the attack. The Israeli military denied any of its fire had harmed people within the site.`\
+https://nytimes.com/2025/06/01/world/middleeast/gaza-aid-distribution-site-attack.html
+
 **For Indian Students, Dreams of America Are Suddenly in Doubt**\
 `Nobody knows what the halt on visa interviews means and how long it will last. The uncertainty has upended thousands of carefully made plans.`\
 https://nytimes.com/2025/06/01/world/asia/indian-students-us-visa.html
