@@ -1,3 +1,11 @@
+**Chelsea reach agreement with Delap on personal terms, set to sign six-year deal**\
+`A deal was already in place between the clubs for Chelsea to activate a £30m release clause.`\
+https://nytimes.com/athletic/6396311/2025/06/01/chelsea-delap-transfer-update-contract/
+
+**Monday Briefing: Ukraine bombarded Russian air bases**\
+`Plus, the tech bros of “Mountainhead.”`\
+https://nytimes.com/2025/06/01/briefing/ukraine-russia-gaza-mexico.html
+
 **Elena Rybakina's barred coach, Stefano Vukov, appeals 1-year WTA tennis ban**\
 `Stefano Vukov, suspended by the women's tennis tour over his behavior toward Elena Rybakina, is in arbitration with the body.`\
 https://nytimes.com/athletic/6396240/2025/06/01/tennis-elena-rybakina-coach-vukov-ban-wta/
