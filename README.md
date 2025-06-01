@@ -1,3 +1,7 @@
+**Stanley Fischer, Who Helped Defuse Financial Crises, Dies at 81**\
+`He was the No. 2 at the Federal Reserve and the I.M.F. during periods of economic turmoil, and he mentored future economic leaders, like Ben Bernanke.`\
+https://nytimes.com/2025/06/01/business/stanley-fischer-dead.html
+
 **Transfers TLDR: Cunha to Manchester United – all you need to know**\
 `United have announced their first summer signing has been agreed - here's all you need to know about Matheus Cunha.`\
 https://nytimes.com/athletic/6384845/2025/06/01/transfers-matheus-cunha-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
 **Leverkusen close to signing Brentford's Flekken for €10m**\
 `Leverkusen are set to the transfer of Flekken, while Brentford remain interested in Liverpool goalkeeper Caoimhin Kelleher.`\
 https://nytimes.com/athletic/6395509/2025/06/01/brentford-transfer-flekken-leverkusen/
-
-**Man Utd announce Matheus Cunha transfer agreement**\
-`United have confirmed the 26-year-old Brazilian international as their first signing of the summer transfer window.`\
-https://nytimes.com/athletic/6387292/2025/06/01/matheus-cunha-manchester-united-transfer-wolves/
 
