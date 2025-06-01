@@ -1,3 +1,7 @@
+**The Knicks' season comes to an end, and Game 1 will haunt them for a while**\
+`Game 1 of the Eastern Conference finals will haunt New York for a while. Maybe forever. `\
+https://nytimes.com/athletic/6395280/2025/06/01/knicks-eliminated-game-6-missed-opportunity/
+
 **The New York Times in Print for Sunday, June 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/01/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393274/2025/06/01/how-west-germany-won-world-cup-1
 **Hamburg Hospital Fire Kills at Least 3**\
 `The local news media reported that dozens of others were injured in the overnight fire at the Marien Hospital. The cause was not immediately clear.`\
 https://nytimes.com/2025/06/01/world/europe/hospital-fire-hamburg-germany.html
-
-**​South Korea’s Election Likely to Reset Ties With China**\
-`Both of the main candidates support the alliance with the United States, but the front-runner favors diplomacy with North Korea and China to improve strained relations.`\
-https://nytimes.com/2025/06/01/world/asia/south-korea-china-election.html
 
