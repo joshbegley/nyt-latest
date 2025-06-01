@@ -1,3 +1,7 @@
+**Over 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
+`It was not immediately clear who was responsible for the attack. The Israeli military denied any of its fire had harmed people within the site.`\
+https://nytimes.com/2025/06/01/world/middleeast/gaza-aid-distribution-site-attack.html
+
 **Thomas Bryant emerges as unlikely hero to help Pacers into NBA Finals**\
 `“There were times I never thought I’d see the court again," said the former Indiana University star after his huge moment for the Pacers.`\
 https://nytimes.com/athletic/6395512/2025/06/01/thomas-bryant-pacers-knicks-game-6-nba-playoffs/

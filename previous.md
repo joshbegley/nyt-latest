@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6376490/2025/06/01/nhl-draft-2025-jackson-smith/
 `Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory.`\
 https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
 
-**More Than 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
+**Over 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
 `It was not immediately clear who was responsible for the attack. The Israeli military denied any of its fire had harmed people within the site.`\
 https://nytimes.com/2025/06/01/world/middleeast/gaza-aid-distribution-site-attack.html
 
