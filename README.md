@@ -1,3 +1,7 @@
+**Blue Jays place Daulton Varsho on IL with hamstring injury**\
+`Varsho missed the first month of Toronto’s 2025 campaign as he rehabbed from offseason shoulder surgery`\
+https://nytimes.com/athletic/6395851/2025/06/01/blue-jays-daulton-varsho-hamstring-injury/
+
 **Stanley Fischer, Who Helped Defuse Financial Crises, Dies at 81**\
 `He was the No. 2 at the Federal Reserve and the I.M.F. during periods of economic turmoil, and he mentored future economic leaders, like Ben Bernanke.`\
 https://nytimes.com/2025/06/01/business/stanley-fischer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-ry
 **Al Foster, Master of the Jazz Drums, Is Dead at 82**\
 `He was probably best known for his long tenure with Miles Davis, who praised his ability to “keep the groove going forever.”`\
 https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
-
-**Leverkusen close to signing Brentford's Flekken for €10m**\
-`Leverkusen are set to the transfer of Flekken, while Brentford remain interested in Liverpool goalkeeper Caoimhin Kelleher.`\
-https://nytimes.com/athletic/6395509/2025/06/01/brentford-transfer-flekken-leverkusen/
 
