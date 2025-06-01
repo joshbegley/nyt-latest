@@ -1,3 +1,19 @@
+**‘I Thought to Myself: I’m Not Going to Rush This Time’**\
+`A pink push across the street, a kind of compliment on the Q and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/06/01/nyregion/metropolitan-diary.html
+
+**How the N.Y.C. Mayoral Candidates Plan to Solve the Housing Crisis**\
+`The candidates’ ambitious plans could bring hundreds of thousands of new homes to a city desperate for them, though many are light on details about how they’d pay for them.`\
+https://nytimes.com/2025/06/01/nyregion/nyc-mayor-housing-plans.html
+
+**The Business Interests Bankrolling Andrew Cuomo’s Run for Mayor**\
+`A super PAC supporting Mr. Cuomo has raised $10 million from business leaders and special interest groups that could benefit from his victory.`\
+https://nytimes.com/2025/06/01/nyregion/cuomo-donors-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/01/crosswords/spelling-bee-forum.html
+
 **PSG craved Champions League glory, but Messi, Mbappe and Beckham couldn't deliver. Doue could**\
 `After a galaxy of superstars passed through PSG without winning the Champions League, Desire Doue, 19, delivered what they could not.`\
 https://nytimes.com/athletic/6395072/2025/06/01/psg-champions-league-glory-messi-doue/

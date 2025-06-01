@@ -1,3 +1,19 @@
+**‘I Thought to Myself: I’m Not Going to Rush This Time’**\
+`A pink push across the street, a kind of compliment on the Q and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/06/01/nyregion/metropolitan-diary.html
+
+**How the N.Y.C. Mayoral Candidates Plan to Solve the Housing Crisis**\
+`The candidates’ ambitious plans could bring hundreds of thousands of new homes to a city desperate for them, though many are light on details about how they’d pay for them.`\
+https://nytimes.com/2025/06/01/nyregion/nyc-mayor-housing-plans.html
+
+**The Business Interests Bankrolling Andrew Cuomo’s Run for Mayor**\
+`A super PAC supporting Mr. Cuomo has raised $10 million from business leaders and special interest groups that could benefit from his victory.`\
+https://nytimes.com/2025/06/01/nyregion/cuomo-donors-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/01/crosswords/spelling-bee-forum.html
+
 **PSG craved Champions League glory, but Messi, Mbappe and Beckham couldn't deliver. Doue could**\
 `After a galaxy of superstars passed through PSG without winning the Champions League, Desire Doue, 19, delivered what they could not.`\
 https://nytimes.com/athletic/6395072/2025/06/01/psg-champions-league-glory-messi-doue/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/01/opinion/dying-well-planning-life.html
 **Yankees downplay early losses to Dodgers in World Series rematch: ‘Every game is the same’**\
 `The loss Saturday ensured the Yankees would lose their first series after winning their previous seven in a row.`\
 https://nytimes.com/athletic/6395284/2025/06/01/yankees-downplay-losses-dodgers-world-series-rematch/
-
-**Trans Athlete in Political Storm Earns, and Shares, First Place in Event**\
-`In a rules compromise, AB Hernandez shared first place in the high jump and triple jump in the California high school championship, and shared spots on the awards podium, too.`\
-https://nytimes.com/2025/06/01/us/trans-athlete-california-track-meet.html
-
-**Chelsea review of 2024-25: Mission accomplished for Enzo Maresca – but can he build on it?**\
-`Three years after taking over, the Todd Boehly-Clearlake consortium have got something truly tangible to show for their efforts`\
-https://nytimes.com/athletic/6393491/2025/06/01/chelsea-review-of-2024-25-maresca/
-
-**Manchester United's player of the season: Bruno Fernandes - if only they'd had more like him**\
-`When Fernandes is off the boil, is there anybody in the team who can pick up the slack?`\
-https://nytimes.com/athletic/6384582/2025/06/01/manchester-united-player-of-the-season-bruno-fernandes/
-
-**Tyrese Haliburton is New York's new villain, joining Jordan, Reggie and others**\
-`Haliburton is the new player they love to hate in New York — and with good reason after watching the Eastern Conference finals.`\
-https://nytimes.com/athletic/6391180/2025/06/01/haliburton-pacers-knicks-villain-jordan-reggie/
 
