@@ -1,3 +1,35 @@
+**Battle of the Broadcasts: Reviewing TNT, CBS Sports' Champions League final**\
+`The UEFA Champions League final was presented in far different ways on either side of the Atlantic.`\
+https://nytimes.com/athletic/6394965/2025/06/01/uefa-champions-league-final-psg-inter-milan-tnt-cbs-sports-tv-review/
+
+**Why Trump Is Mad at the ‘Sleazebag’ Leonard Leo**\
+`The president is very unhappy with the federal judiciary and the Federalist Society.`\
+https://nytimes.com/2025/06/01/opinion/trump-judges-federalist-society.html
+
+**Are International Students Good for American Universities?**\
+`It’s complicated.`\
+https://nytimes.com/2025/06/01/opinion/international-students-harvard-trump.html
+
+**Our Doughnuts, Ourselves**\
+`With junk food on the endangered list, I grabbed a chance to journey back to my youth in a Wonder Bread time machine.`\
+https://nytimes.com/2025/06/01/opinion/junk-food-rfk.html
+
+**The Cerebral, Bach-Loving Patrician Who Wrote Trump’s Playbook**\
+`William F. Buckley Jr. was also a revolutionary.`\
+https://nytimes.com/2025/06/01/opinion/william-buckley-trump-conservatism.html
+
+**Will America’s National Parks Survive Trump?**\
+`Budget cuts proposed for next year would be catastrophic.`\
+https://nytimes.com/2025/06/01/opinion/trump-parks-budget-cuts.html
+
+**Wordle Review No. 1,444**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 2, 2025.`\
+https://nytimes.com/2025/06/01/crosswords/wordle-review-1444.html
+
+**Connections Companion No. 722**\
+`Scroll down for hints and conversation about the puzzle for Monday, June 2, 2025.`\
+https://nytimes.com/2025/06/01/crosswords/connections-companion-722.html
+
 **LAFC's CWC play-in triumph was culminating moment, says coach Cherundolo**\
 `A thrilling play-in game bodes well for the impending Club World Cup.`\
 https://nytimes.com/athletic/6395423/2025/06/01/lafc-club-world-cup-america-cherundolo/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6395423/2025/06/01/lafc-club-world-cup-america-cher
 **Hurricane Season Is Starting. Here’s Everything to Know.**\
 `Sunday marks the official start of the Atlantic hurricane season.`\
 https://nytimes.com/article/atlantic-hurricane-season-forecast-2025.html
-
-**The New York Times International Edition in Print for Monday, June 2, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/01/todays-new-york-times-international-edition
-
-**Northern Lights May Be Visible as Far South as Alabama**\
-`Streaks of colorful light could paint the sky over a large portion of the country on Sunday night into Monday morning amid a severe geomagnetic storm.`\
-https://nytimes.com/2025/06/01/weather/northern-lights-visible-states.html
-
-**Montemurro leaves role as OL Lyonnes head coach**\
-`The Australian only joined the French club a year ago and led the team to the Premiere Ligue title.`\
-https://nytimes.com/athletic/6336852/2025/06/01/joe-montemurro-lyon-feminin-lyonnes/
-
-**Dozens of Candidates and Rainbow Colors: Mexico’s Sprawling Judicial Ballots**\
-`In a judicial overhaul, Mexican voters are directly electing their judges for the first time in history. But long and complex ballots await.`\
-https://nytimes.com/interactive/2025/06/01/world/americas/mexico-judicial-election-ballots.html
-
-**F.D.A. Updates Recall of Tomatoes, Warning of a High Risk of Illness or Death**\
-`The recall of tomatoes distributed in three southern states was upgraded to the most severe warning the agency issues.`\
-https://nytimes.com/2025/06/01/health/tomato-recall-fda-salmonella.html
-
-**These Fans Love ‘Pride & Prejudice’ a Billion Times Over**\
-`The soundtrack for Joe Wright’s film adaptation of the Austen novel has long been a hit. At a 20th-anniversary ball, people got to hear it live.`\
-https://nytimes.com/2025/06/01/arts/music/jean-yves-thibaudet-pride-and-prejudice-soundtrack.html
-
-**Will Voting for Judges Help or Hurt Mexico’s Democracy?**\
-`Sunday’s judicial elections could remove an important counterweight to powerful elected leaders.`\
-https://nytimes.com/2025/06/01/world/americas/mexico-judicial-election-dangers.html
-
-**A 355-Year-Old Company That Once Owned One-Third of Canada Is Shutting Down**\
-`Bargain hunters picked over what was left at the Hudson’s Bay Company’s remaining stores, part of a vast empire that was North America’s oldest corporation.`\
-https://nytimes.com/2025/06/01/world/canada/canada-hudsons-bay-stores-closing.html
 
