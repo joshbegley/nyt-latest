@@ -1,4 +1,4 @@
-**PSG craved Champions League glory, but Messi, Mbappe and Beckham couldn't deliver. Doue could.**\
+**PSG craved Champions League glory, but Messi, Mbappe and Beckham couldn't deliver. Doue could**\
 `After a galaxy of superstars passed through PSG without winning the Champions League, Desire Doue, 19, delivered what they could not.`\
 https://nytimes.com/athletic/6395072/2025/06/01/psg-champions-league-glory-messi-doue/
 
