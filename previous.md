@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6395434/2025/06/01/pascal-siakam-pacers-nba-finals/
 `The trial, in people treated for colon cancer, showed clear evidence that an exercise program lowered the risk of disease recurrence and death.`\
 https://nytimes.com/2025/06/01/well/exercise-colon-cancer-study.html
 
-**Blood Test Gives Breast Cancer Patients Early Warning of Faltering Drugs**\
-`A study found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
+**Drug-Defying Breast Cancers Spotted Early in Blood Test Study**\
+`A clinical trial found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
 https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
 
 **Senny's smile that says it all**\
