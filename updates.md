@@ -1,3 +1,7 @@
+**Al Foster, Master of the Jazz Drums, Is Dead at 82**\
+`He was probably best known for his long tenure with Miles Davis, who praised his ability to “keep the groove going forever.”`\
+https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
+
 **Drug-Defying Breast Cancers Spotted Early in Blood Test Study**\
 `A clinical trial found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
 https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
