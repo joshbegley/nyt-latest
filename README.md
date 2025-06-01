@@ -1,3 +1,7 @@
+**For Indian Students, Dreams of America Are Suddenly in Doubt**\
+`Nobody knows what the halt on visa interviews means and how long it will last. The uncertainty has upended thousands of carefully made plans.`\
+https://nytimes.com/2025/06/01/world/asia/indian-students-us-visa.html
+
 **The USWNT basks in the return of Naomi Girma - their 'security blanket'**\
 `The Chelsea center-back returned to USWNT action against China and offered a reminder of her qualities as Emma Hayes' side dominated`\
 https://nytimes.com/athletic/6395291/2025/06/01/uswnt-naomi-girma-hayes-china/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/crosswords/wordle-review-1444.html
 **Connections Companion No. 722**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 2, 2025.`\
 https://nytimes.com/2025/06/01/crosswords/connections-companion-722.html
-
-**LAFC's CWC play-in triumph was culminating moment, says coach Cherundolo**\
-`A thrilling play-in game bodes well for the impending Club World Cup.`\
-https://nytimes.com/athletic/6395423/2025/06/01/lafc-club-world-cup-america-cherundolo/
 
