@@ -1,3 +1,7 @@
+**Move to Canada? Migrants Face ‘No Good Options’ After Supreme Court Ruling.**\
+`Migrants from Cuba, Haiti, Nicaragua and Venezuela who entered the United States legally under a Biden-era program are now scrambling.`\
+https://nytimes.com/2025/05/31/us/immigrants-haiti-trump-deportation-supreme-court.html
+
 **USWNT midfield stands out in 3-0 win over China**\
 `Coach Emma Hayes also gave 32-year-old Lo'eau LaBonta her first U.S. minutes.`\
 https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394790/2025/05/31/simone-inzaghi-inter-manager-cha
 **Luis Enrique's PSG produced a footballing exhibition to destroy Inter and win Champions League**\
 `In a way, football came home on Saturday night. This tournament was invented in Paris in 1954. And now, finally, PSG have won it... `\
 https://nytimes.com/athletic/6394848/2025/05/31/psg-champions-league-win-inter-enrique/
-
-**Making Arrangements**\
-`Sam Brody mixes things up in his Times puzzle debut.`\
-https://nytimes.com/2025/05/31/crosswords/daily-puzzle-2025-06-01.html
 
