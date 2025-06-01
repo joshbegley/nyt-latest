@@ -1,3 +1,11 @@
+**Wild and Marco Rossi remain at contract impasse as trade possibilities emerge: 'Only time will tell'**\
+`“There clearly is a difference of opinion with respect to Marco’s value,” Rossi’s agent tells The Athletic on Sunday.`\
+https://nytimes.com/athletic/6396355/2025/06/01/wild-marco-rossi-contract-trade/
+
+**Scottie Scheffler pulls away for 4-stroke win at Memorial Tournament**\
+`Scheffler defended his 2024 victory, the third time he’s defended an event. Only Phil Mickelson (5) and Tiger Woods (23) have done it more.`\
+https://nytimes.com/athletic/6396409/2025/06/01/scottie-scheffler-pulls-away-for-4-stroke-win-at-memorial-tournament/
+
 **Ukraine Strikes Russian Air Bases in Large-Scale Drone Attack**\
 `Ukraine launched one of its broadest assaults of the war against air bases inside Russia, targeting sites from eastern Siberia to Russia’s western border.`\
 https://nytimes.com/video/world/europe/100000010201931/ukraine-strikes-russian-air-bases-in-large-scale-drone-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6396240/2025/06/01/tennis-elena-rybakina-coach-vuko
 **$105 Million Reparations Package for Tulsa Race Massacre Unveiled by Mayor**\
 `The plan, the first large-scale attempt to address the impact of the 1921 atrocity, will raise private funds for housing assistance, scholarships and economic development.`\
 https://nytimes.com/2025/06/01/us/tulsa-race-massacre-reparations.html
-
-**Mexico Votes in Sprawling, First-Ever Judiciary Election**\
-`Voters were choosing the nine members of the Supreme Court on Sunday, along with more than 2,600 other judges and magistrates.`\
-https://nytimes.com/2025/06/01/world/americas/mexico-judiciary-election-supreme-court.html
-
-**Rival Victory Claims as Poland’s Presidential Election Goes Down to Wire**\
-`A vote seen as a test of the power of populist nationalism in Europe was too close to call, with exit polls putting the two contenders neck and neck.`\
-https://nytimes.com/2025/06/01/world/europe/poland-election-president.html
 
