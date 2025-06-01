@@ -1,3 +1,7 @@
+**Madrid move into UEFA rankings top spot, Man United above Arsenal**\
+`UEFA's ranking system is determined using a point-based system over a rolling five-year period.`\
+https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manchester-united-arsenal/
+
 **The best Connor McDavid cards to collect**\
 `Whether you budget is $50 or $300,000, there's a McDavid rookie card for every fan.`\
 https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
 `Max Verstappen faces an uphill battle to avoid a race ban as he’ll need to navigate a clean Canadian and Austrian Grands Prix`\
 https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ban-spanish-grand-prix/
 
-**Phillies shake up bullpen, rotation in hopes of addressing pitching holes**\
+**Phillies shake up bullpen, rotation in hopes of fixing pitching holes**\
 `The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
 https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384845/2025/06/01/transfers-matheus-cunha-manchest
 **European finals are not meant to be won like this — so how does this PSG victory compare?**\
 `PSG's 5-0 win was the biggest margin of victory in the European Cup final. So is it the greatest win?`\
 https://nytimes.com/athletic/6395426/2025/06/01/psg-champions-league-victory-final/
-
-**Meatballs for When You Want Kebabs**\
-`Richly spiced adana meatballs are perfect for quick weeknight and party-time meals.`\
-https://nytimes.com/2025/06/01/dining/meatballs-for-when-you-want-kebabs.html
 

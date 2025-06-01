@@ -1,3 +1,11 @@
+**Madrid move into UEFA rankings top spot, Man United above Arsenal**\
+`UEFA's ranking system is determined using a point-based system over a rolling five-year period.`\
+https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manchester-united-arsenal/
+
+**Phillies shake up bullpen, rotation in hopes of fixing pitching holes**\
+`The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
+https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
+
 **The best Connor McDavid cards to collect**\
 `Whether you budget is $50 or $300,000, there's a McDavid rookie card for every fan.`\
 https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
