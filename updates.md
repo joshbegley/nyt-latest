@@ -1,3 +1,7 @@
+**Leverkusen close to signing Brentford's Flekken for €10m**\
+`Leverkusen are set to the transfer of Flekken, while Brentford remain interested in Liverpool goalkeeper Caoimhin Kelleher.`\
+https://nytimes.com/athletic/6395509/2025/06/01/brentford-transfer-flekken-leverkusen/
+
 **Man Utd announce Matheus Cunha transfer agreement**\
 `United have confirmed the 26-year-old Brazilian international as their first signing of the summer transfer window.`\
 https://nytimes.com/athletic/6387292/2025/06/01/matheus-cunha-manchester-united-transfer-wolves/

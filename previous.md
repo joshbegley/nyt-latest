@@ -1,3 +1,7 @@
+**Leverkusen close to signing Brentford's Flekken for €10m**\
+`Leverkusen are set to the transfer of Flekken, while Brentford remain interested in Liverpool goalkeeper Caoimhin Kelleher.`\
+https://nytimes.com/athletic/6395509/2025/06/01/brentford-transfer-flekken-leverkusen/
+
 **Man Utd announce Matheus Cunha transfer agreement**\
 `United have confirmed the 26-year-old Brazilian international as their first signing of the summer transfer window.`\
 https://nytimes.com/athletic/6387292/2025/06/01/matheus-cunha-manchester-united-transfer-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
 **Senny's smile that says it all**\
 `Senny Mayulu's celebration after scoring in PSG's 5-0 Champions League final win over Inter, says everything about him and his team.`\
 https://nytimes.com/athletic/6394918/2025/06/01/senny-mayulu-psg-champions-league-title/
-
-**Ukraine Says Russian Strike on Military Base Killed 12 Soldiers**\
-`In a rare statement acknowledging casualties within its ranks, the Ukrainian military also said that 60 other soldiers were wounded.`\
-https://nytimes.com/2025/06/01/world/europe/russia-ukraine-strikes.html
 
