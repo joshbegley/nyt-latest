@@ -1,3 +1,7 @@
+**M.I.T. Class President Barred From Graduation Ceremony After Pro-Palestinian Speech**\
+`According to the school, the student delivered a speech, which denounced M.I.T.’s ties to Israel, that had not been preapproved.`\
+https://nytimes.com/2025/05/31/us/mit-commencement.html
+
 **Move to Canada? Migrants Face ‘No Good Options’ After Supreme Court Ruling.**\
 `Migrants from Cuba, Haiti, Nicaragua and Venezuela who entered the United States legally under a Biden-era program are now scrambling.`\
 https://nytimes.com/2025/05/31/us/immigrants-haiti-trump-deportation-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394812/2025/05/31/spirit-coach-jonatan-giraldez-ol
 **'Not the right time' to talk about Inter future, Inzaghi insists**\
 `Saudi Pro League side Al Hilal have presented the 49-year-old Italian with a lucrative offer to leave San Siro.`\
 https://nytimes.com/athletic/6394790/2025/05/31/simone-inzaghi-inter-manager-champions-league-final/
-
-**Luis Enrique's PSG produced a footballing exhibition to destroy Inter and win Champions League**\
-`In a way, football came home on Saturday night. This tournament was invented in Paris in 1954. And now, finally, PSG have won it... `\
-https://nytimes.com/athletic/6394848/2025/05/31/psg-champions-league-win-inter-enrique/
 

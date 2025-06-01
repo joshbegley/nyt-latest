@@ -1,3 +1,7 @@
+**M.I.T. Class President Barred From Graduation Ceremony After Pro-Palestinian Speech**\
+`According to the school, the student delivered a speech, which denounced M.I.T.’s ties to Israel, that had not been preapproved.`\
+https://nytimes.com/2025/05/31/us/mit-commencement.html
+
 **Move to Canada? Migrants Face ‘No Good Options’ After Supreme Court Ruling.**\
 `Migrants from Cuba, Haiti, Nicaragua and Venezuela who entered the United States legally under a Biden-era program are now scrambling.`\
 https://nytimes.com/2025/05/31/us/immigrants-haiti-trump-deportation-supreme-court.html
