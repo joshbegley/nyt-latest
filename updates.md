@@ -1,3 +1,7 @@
+**Live updates: LAFC, América play-in match for Club World Cup place**\
+`Follow all the key moments and goals as LAFC and América fight for a place at the FIFA Club World Cup`\
+https://nytimes.com/athletic/6394957/2025/05/31/lafc-america-club-world-cup-play-in-match-updates-video/
+
 **M.I.T. Class President Barred From Graduation Ceremony After Pro-Palestinian Speech**\
 `According to the school, the student delivered a speech, which denounced M.I.T.’s ties to Israel, that had not been preapproved.`\
 https://nytimes.com/2025/05/31/us/mit-commencement.html

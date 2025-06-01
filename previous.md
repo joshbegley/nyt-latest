@@ -1,3 +1,7 @@
+**Live updates: LAFC, América play-in match for Club World Cup place**\
+`Follow all the key moments and goals as LAFC and América fight for a place at the FIFA Club World Cup`\
+https://nytimes.com/athletic/6394957/2025/05/31/lafc-america-club-world-cup-play-in-match-updates-video/
+
 **M.I.T. Class President Barred From Graduation Ceremony After Pro-Palestinian Speech**\
 `According to the school, the student delivered a speech, which denounced M.I.T.’s ties to Israel, that had not been preapproved.`\
 https://nytimes.com/2025/05/31/us/mit-commencement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394903/2025/05/31/luis-enrique-daughter-psg-champi
 **Washington Spirit coach Jonatan Giráldez set to take OL Lyonnes job in France**\
 `Assistant coach González will take over as head coach upon Giráldez's departure.`\
 https://nytimes.com/athletic/6394812/2025/05/31/spirit-coach-jonatan-giraldez-ol-lyonnes-job/
-
-**'Not the right time' to talk about Inter future, Inzaghi insists**\
-`Saudi Pro League side Al Hilal have presented the 49-year-old Italian with a lucrative offer to leave San Siro.`\
-https://nytimes.com/athletic/6394790/2025/05/31/simone-inzaghi-inter-manager-champions-league-final/
 
