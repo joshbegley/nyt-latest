@@ -1,3 +1,11 @@
+**LAFC's CWC play-in triumph was culminating moment, says coach Cherundolo**\
+`A thrilling play-in game bodes well for the impending Club World Cup.`\
+https://nytimes.com/athletic/6395423/2025/06/01/lafc-club-world-cup-america-cherundolo/
+
+**Hurricane Season Is Starting. Here’s Everything to Know.**\
+`Sunday marks the official start of the Atlantic hurricane season.`\
+https://nytimes.com/article/atlantic-hurricane-season-forecast-2025.html
+
 **The New York Times International Edition in Print for Monday, June 2, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/01/todays-new-york-times-international-edition
