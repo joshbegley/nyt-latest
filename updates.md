@@ -1,3 +1,7 @@
+**Party Activists in California Aren’t Sold on a Harris Run for Governor**\
+`Kamala Harris did not appear in person at a California state Democratic convention, leaving delegates to wonder how seriously she is considering running and whether it would be wise.`\
+https://nytimes.com/2025/06/01/us/california-democrats-kamala-harris-governor.html
+
 **NBA Finals odds: Oklahoma City heavily favored to beat Indiana**\
 `With the NBA Finals matchup set, Oklahoma City is heavily favored to beat Indiana and win the championship.`\
 https://nytimes.com/athletic/6395382/2025/06/01/nba-finals-odds-oklahoma-city-indiana/

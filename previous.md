@@ -1,3 +1,7 @@
+**Party Activists in California Aren’t Sold on a Harris Run for Governor**\
+`Kamala Harris did not appear in person at a California state Democratic convention, leaving delegates to wonder how seriously she is considering running and whether it would be wise.`\
+https://nytimes.com/2025/06/01/us/california-democrats-kamala-harris-governor.html
+
 **NBA Finals odds: Oklahoma City heavily favored to beat Indiana**\
 `With the NBA Finals matchup set, Oklahoma City is heavily favored to beat Indiana and win the championship.`\
 https://nytimes.com/athletic/6395382/2025/06/01/nba-finals-odds-oklahoma-city-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
 **Max Verstappen on verge of F1 race ban after penalty for George Russell clash in Spain**\
 `Max Verstappen faces an uphill battle to avoid a race ban as he’ll need to navigate a clean Canadian and Austrian Grands Prix`\
 https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ban-spanish-grand-prix/
-
-**Phillies shake up bullpen, rotation in hopes of fixing pitching holes**\
-`The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
-https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
 
