@@ -1,3 +1,7 @@
+**Move to Canada? Migrants Face ‘No Good Options’ After Supreme Court Ruling.**\
+`Migrants from Cuba, Haiti, Nicaragua and Venezuela who entered the United States legally under a Biden-era program are now scrambling.`\
+https://nytimes.com/2025/05/31/us/immigrants-haiti-trump-deportation-supreme-court.html
+
 **USWNT midfield stands out in 3-0 win over China**\
 `Coach Emma Hayes also gave 32-year-old Lo'eau LaBonta her first U.S. minutes.`\
 https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
