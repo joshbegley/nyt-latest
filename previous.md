@@ -1,3 +1,7 @@
+**Mexico Votes in Sprawling, First-Ever Judiciary Election**\
+`Voters were choosing the nine members of the Supreme Court on Sunday, along with more than 2,600 other judges and magistrates.`\
+https://nytimes.com/2025/06/01/world/americas/mexico-judiciary-election-supreme-court.html
+
 **Poland’s Presidential Election Goes Down to the Wire**\
 `A vote seen as a test of the power of populist nationalism in Europe was too close to call, with exit polls putting the two contenders neck and neck.`\
 https://nytimes.com/2025/06/01/world/europe/poland-election-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/us/politics/trump-musk-isaacman-nasa.html
 **Yates wins Giro as team-mate Kooij takes final sprint stage in Rome**\
 `The British rider seized the Maglia Rosa after gaining almost six minutes on Isaac del Toro over the Colle delle Finestre on Saturday.`\
 https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-champion/
-
-**Forest close on agreement to sign Botafogo trio Jesus, Cuiabano, and Cunha**\
-`Forest are looking to add to their squad after qualifying for the UEFA Conference League last season.`\
-https://nytimes.com/athletic/6396032/2025/06/01/nottingham-forest-transfers-botafogo-jesus-cuiabano-cunha/
 
