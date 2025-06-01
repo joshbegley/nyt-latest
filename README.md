@@ -1,3 +1,7 @@
+**Poland’s Presidential Election Goes Down to the Wire**\
+`A vote seen a test of the power of populist nationalism in Europe was too close to call, with exit polls putting the two contenders neck and neck.`\
+https://nytimes.com/2025/06/01/world/europe/poland-election-president.html
+
 **Snack Maker Sues Aldi Grocery Chain Over Look-Alike Product Packaging**\
 `Mondelez International, a corporate giant behind the name-brand versions of many snacks, contends that Aldi is mimicking its packaging to dupe customers.`\
 https://nytimes.com/2025/06/01/business/mondelez-aldi-packaging-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396094/2025/06/01/simon-yates-giro-ditalia-winner-
 **Forest close on agreement to sign Botafogo trio Jesus, Cuiabano, and Cunha**\
 `Forest are looking to add to their squad after qualifying for the UEFA Conference League last season.`\
 https://nytimes.com/athletic/6396032/2025/06/01/nottingham-forest-transfers-botafogo-jesus-cuiabano-cunha/
-
-**Madrid move into UEFA rankings top spot, Man United above Arsenal**\
-`UEFA's ranking system is determined using a point-based system over a rolling five-year period.`\
-https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manchester-united-arsenal/
 
