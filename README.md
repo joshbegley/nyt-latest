@@ -1,3 +1,7 @@
+**Liverpool accept £18m Brentford bid for goalkeeper Kelleher**\
+`The move comes with Brentford close to agreeing a €10m (£8.4m) deal to sell No 1 Mark Flekken to Bayer Leverkusen.`\
+https://nytimes.com/athletic/6395798/2025/06/01/liverpool-transfers-kelleher-brentford/
+
 **Blue Jays place Daulton Varsho on IL with hamstring injury**\
 `Varsho missed the first month of Toronto’s 2025 campaign as he rehabbed from offseason shoulder surgery`\
 https://nytimes.com/athletic/6395851/2025/06/01/blue-jays-daulton-varsho-hamstring-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-osca
 **Defending champion Iga Swiatek fights through at the French Open against Elena Rybakina**\
 `Four-time French Open champion Iga Świątek fights through a swinging third set against Elena Rybakina to reach the French Open quarterfinal.`\
 https://nytimes.com/athletic/6395671/2025/06/01/french-open-iga-swiatek-elena-rybakina-result-analysis/
-
-**Al Foster, Master of the Jazz Drums, Is Dead at 82**\
-`He was probably best known for his long tenure with Miles Davis, who praised his ability to “keep the groove going forever.”`\
-https://nytimes.com/2025/06/01/arts/music/al-foster-dead.html
 
