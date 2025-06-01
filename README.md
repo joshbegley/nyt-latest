@@ -1,3 +1,7 @@
+**'Inside the NBA' on TNT ends with conference finals, but its legacy lives on**\
+`“Inside the NBA” will continue on ESPN next season, but the show’s longtime relationship with TNT ends with the Eastern Conference finals.`\
+https://nytimes.com/athletic/6395081/2025/05/31/inside-the-nba-tnt-final-episode-eastern-conference-finals/
+
 **Phillies' Jesús Luzardo felt at his best. Then he gave up 12 runs to the Brewers**\
 `Luzardo felt good. “My arm felt like a whip,” he said. It was the best he’d felt in a month and a half. Then Saturday happened. `\
 https://nytimes.com/athletic/6395091/2025/05/31/jesus-luzardo-phillies-brewers-12-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395026/2025/05/31/uswnt-china-midfield-sam-coffey/
 **With contributions coming in unexpected ways, Cubs bullpen has emerged as trusted unit**\
 `The Cubs bullpen has allowed zero earned runs in 22 innings of work on the homestand.`\
 https://nytimes.com/athletic/6394963/2025/05/31/cubs-bullpen-drew-pomeranz-brad-keller-daniel-palencia/
-
-**Climate Scientists Join 100-Hour Livestream to Protest Trump’s Cuts**\
-`The livestream featuring hundreds of meteorologists and climate scientists began on May 28 and is scheduled to run through June 1, the first day of the Atlantic hurricane season.`\
-https://nytimes.com/video/climate/100000010201141/climate-scientists-livestream.html
 
