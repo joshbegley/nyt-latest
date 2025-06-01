@@ -1,3 +1,7 @@
+**Montemurro leaves role as OL Lyonnes head coach**\
+`The Australian only joined the French club a year ago and led the team to the Premiere Ligue title.`\
+https://nytimes.com/athletic/6336852/2025/06/01/joe-montemurro-lyon-feminin-lyonnes/
+
 **Dozens of Candidates and Rainbow Colors: Mexico’s Sprawling Judicial Ballots**\
 `In a judicial overhaul, Mexican voters are directly electing their judges for the first time in history. But long and complex ballots await.`\
 https://nytimes.com/interactive/2025/06/01/world/americas/mexico-judicial-election-ballots.html

@@ -1,3 +1,7 @@
+**Montemurro leaves role as OL Lyonnes head coach**\
+`The Australian only joined the French club a year ago and led the team to the Premiere Ligue title.`\
+https://nytimes.com/athletic/6336852/2025/06/01/joe-montemurro-lyon-feminin-lyonnes/
+
 **Dozens of Candidates and Rainbow Colors: Mexico’s Sprawling Judicial Ballots**\
 `In a judicial overhaul, Mexican voters are directly electing their judges for the first time in history. But long and complex ballots await.`\
 https://nytimes.com/interactive/2025/06/01/world/americas/mexico-judicial-election-ballots.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010195231/why-mexicos-judicial-el
 **This ‘Buena Vista Social Club’ Star Knows She’s Intimidating**\
 `Natalie Venetia Belcon insists she’s not as regal as the Cuban musician she plays, but she’s worked hard to make you think otherwise.`\
 https://nytimes.com/2025/06/01/theater/buena-vista-social-club-natalie-venetia-belcon-tonys.html
-
-**With Music and Movies, the Tribeca Festival Plays a Successful Mix**\
-`The festival has more than 20 music events this year — its highest number yet — including documentaries, music videos and podcasts.`\
-https://nytimes.com/2025/06/01/arts/music/tribeca-festival-music-movies.html
 
