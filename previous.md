@@ -1,4 +1,4 @@
-**: Fireworks, tears, flares and Djokovic confusion: Watching PSG's Champions League win in Paris**\
+**Fireworks, tears, flares and Djokovic confusion: Watching PSG's Champions League win in Paris**\
 `Charlie Eccleshare takes in PSG's Champions League win at the French Open, the Parc des Princes - and on the streets of Paris.`\
 https://nytimes.com/athletic/6394951/2025/06/01/psg-champions-league-title-parc-des-princes/
 
