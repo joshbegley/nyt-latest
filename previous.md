@@ -1,3 +1,7 @@
+**2 dead and 100s injured across France after PSG's UCL victory**\
+`Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
+https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
+
 **Get Creative**\
 `A new Times project wants us to nurture our creative side.`\
 https://nytimes.com/2025/06/01/briefing/creativity-challenge.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6394772/2025/06/01/johnny-gaudreau-brothers-death-m
 https://nytimes.com/athletic/6376490/2025/06/01/nhl-draft-2025-jackson-smith/
 
 **Jubilant Soccer Fans Cause Chaos in France**\
-`Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory. Amid the celebrations, one person died in a traffic incident and another was stabbed to death.`\
+`Police arrested hundreds of people overnight after Paris St.-Germain fans celebrated a Champions League victory. Amid the celebrations, one person died in a traffic incident and another was stabbed to death.`\
 https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
 
 **Over 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395291/2025/06/01/uswnt-naomi-girma-hayes-china/
 **Battle of the Broadcasts: Reviewing TNT, CBS Sports' Champions League final**\
 `The UEFA Champions League final was presented in far different ways on either side of the Atlantic.`\
 https://nytimes.com/athletic/6394965/2025/06/01/uefa-champions-league-final-psg-inter-milan-tnt-cbs-sports-tv-review/
-
-**Why Trump Is Mad at the ‘Sleazebag’ Leonard Leo**\
-`The president is very unhappy with the federal judiciary and the Federalist Society.`\
-https://nytimes.com/2025/06/01/opinion/trump-judges-federalist-society.html
 

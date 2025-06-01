@@ -1,3 +1,11 @@
+**2 dead and 100s injured across France after PSG's UCL victory**\
+`Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
+https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
+
+**Jubilant Soccer Fans Cause Chaos in France**\
+`Police arrested hundreds of people overnight after Paris St.-Germain fans celebrated a Champions League victory. Amid the celebrations, one person died in a traffic incident and another was stabbed to death.`\
+https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
+
 **Get Creative**\
 `A new Times project wants us to nurture our creative side.`\
 https://nytimes.com/2025/06/01/briefing/creativity-challenge.html

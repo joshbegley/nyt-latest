@@ -1,3 +1,23 @@
+**Pascal Siakam leans on his championship credentials to will Pacers into NBA Finals**\
+`This was the moment for which Pascal Siakam was brought to Indianapolis. “When we brought him here, we had a vision,” Tyrese Haliburton said`\
+https://nytimes.com/athletic/6395434/2025/06/01/pascal-siakam-pacers-nba-finals/
+
+**Exercise Extends Life for People With Cancer, Study Shows**\
+`The trial, in people treated for colon cancer, showed clear evidence that an exercise program lowered the risk of disease recurrence and death.`\
+https://nytimes.com/2025/06/01/well/exercise-colon-cancer-study.html
+
+**Blood Test Gives Breast Cancer Patients Early Warning of Faltering Drugs**\
+`A study found that women could switch drugs without waiting for scans showing cancer progression, which improved their quality of life.`\
+https://nytimes.com/2025/06/01/health/breast-cancer-blood-test-astrazeneca.html
+
+**Senny's smile that says it all**\
+`Senny Mayulu's celebration after scoring in PSG's 5-0 Champions League final win over Inter, says everything about him and his team.`\
+https://nytimes.com/athletic/6394918/2025/06/01/senny-mayulu-psg-champions-league-title/
+
+**Ukraine Says Russian Strike on Military Base Killed 12 Soldiers**\
+`In a rare statement acknowledging casualties within its ranks, the Ukrainian military also said that 60 other soldiers were wounded.`\
+https://nytimes.com/2025/06/01/world/europe/russia-ukraine-strikes.html
+
 **2 dead and 100s injured across France after PSG's UCL victory**\
 `Some 491 arrests in Paris have been made while police confirmed a 23-year-old man was killed after being hit by a vehicle in the city.`\
 https://nytimes.com/athletic/6395520/2025/06/01/paris-riot-psg-champions-league-final/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6394772/2025/06/01/johnny-gaudreau-brothers-death-m
 **Why Jackson Smith's 2-way upside makes him an exciting 2025 draft prospect**\
 `Smith has the attributes teams are looking for in playoff-style defensemen. Can he figure out the risk-reward balance to become one?`\
 https://nytimes.com/athletic/6376490/2025/06/01/nhl-draft-2025-jackson-smith/
-
-**Jubilant Soccer Fans Cause Chaos in France**\
-`Police arrested hundreds of people overnight after Paris St.-Germain fans celebrated a Champions League victory. Amid the celebrations, one person died in a traffic incident and another was stabbed to death.`\
-https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
-
-**Over 20 Killed Near Aid Distribution Site in Gaza, Palestinian Health Officials Say**\
-`It was not immediately clear who was responsible for the attack. The Israeli military denied any of its fire had harmed people within the site.`\
-https://nytimes.com/2025/06/01/world/middleeast/gaza-aid-distribution-site-attack.html
-
-**For Indian Students, Dreams of America Are Suddenly in Doubt**\
-`Nobody knows what the halt on visa interviews means and how long it will last. The uncertainty has upended thousands of carefully made plans.`\
-https://nytimes.com/2025/06/01/world/asia/indian-students-us-visa.html
-
-**The USWNT basks in the return of Naomi Girma - their 'security blanket'**\
-`The Chelsea center-back returned to USWNT action against China and offered a reminder of her qualities as Emma Hayes' side dominated`\
-https://nytimes.com/athletic/6395291/2025/06/01/uswnt-naomi-girma-hayes-china/
-
-**Battle of the Broadcasts: Reviewing TNT, CBS Sports' Champions League final**\
-`The UEFA Champions League final was presented in far different ways on either side of the Atlantic.`\
-https://nytimes.com/athletic/6394965/2025/06/01/uefa-champions-league-final-psg-inter-milan-tnt-cbs-sports-tv-review/
 
