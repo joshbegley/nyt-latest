@@ -1,3 +1,7 @@
+**Get Creative**\
+`A new Times project wants us to nurture our creative side.`\
+https://nytimes.com/2025/06/01/briefing/creativity-challenge.html
+
 **Thomas Bryant emerges as unlikely hero to help Pacers into NBA Finals**\
 `“There were times I never thought I’d see the court again," said the former Indiana University star after his huge moment for the Pacers.`\
 https://nytimes.com/athletic/6395512/2025/06/01/thomas-bryant-pacers-knicks-game-6-nba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394965/2025/06/01/uefa-champions-league-final-psg-
 **Why Trump Is Mad at the ‘Sleazebag’ Leonard Leo**\
 `The president is very unhappy with the federal judiciary and the Federalist Society.`\
 https://nytimes.com/2025/06/01/opinion/trump-judges-federalist-society.html
-
-**Are International Students Good for American Universities?**\
-`It’s complicated.`\
-https://nytimes.com/2025/06/01/opinion/international-students-harvard-trump.html
 
