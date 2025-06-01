@@ -1,3 +1,7 @@
+**Oscar Piastri wins as Max Verstappen given 10-second penalty for Russell clash**\
+`Championship leader Oscar Piastri wins the Spanish Grand Prix from pole as teammate Lando Norris is second`\
+https://nytimes.com/athletic/6395755/2025/06/01/spanish-grand-prix-briefing-oscar-piastri-wins/
+
 **Blue Jays place Daulton Varsho on IL with hamstring injury**\
 `Varsho missed the first month of Toronto’s 2025 campaign as he rehabbed from offseason shoulder surgery`\
 https://nytimes.com/athletic/6395851/2025/06/01/blue-jays-daulton-varsho-hamstring-injury/
