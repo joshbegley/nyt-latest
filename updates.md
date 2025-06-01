@@ -1,3 +1,7 @@
+**Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
+`A few hours later there was a report of another bridge collapse, also in western Russia, involving a freight train.`\
+https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
+
 **The Knicks' season comes to an end, and Game 1 will haunt them for a while**\
 `Game 1 of the Eastern Conference finals will haunt New York for a while. Maybe forever. `\
 https://nytimes.com/athletic/6395280/2025/06/01/knicks-eliminated-game-6-missed-opportunity/

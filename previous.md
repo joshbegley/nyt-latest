@@ -1,3 +1,7 @@
+**Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
+`A few hours later there was a report of another bridge collapse, also in western Russia, involving a freight train.`\
+https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
+
 **The Knicks' season comes to an end, and Game 1 will haunt them for a while**\
 `Game 1 of the Eastern Conference finals will haunt New York for a while. Maybe forever. `\
 https://nytimes.com/athletic/6395280/2025/06/01/knicks-eliminated-game-6-missed-opportunity/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6391180/2025/06/01/haliburton-pacers-knicks-villain
 **How West Germany won the 1954 World Cup: Herberger tactics, injured Puskas, group stage mind games?**\
 `West Germany lost 8-3 to Hungary in the group stages of the 1954 World Cup... only to meet them again in the final.`\
 https://nytimes.com/athletic/6393274/2025/06/01/how-west-germany-won-world-cup-1958/
-
-**Hamburg Hospital Fire Kills at Least 3**\
-`The local news media reported that dozens of others were injured in the overnight fire at the Marien Hospital. The cause was not immediately clear.`\
-https://nytimes.com/2025/06/01/world/europe/hospital-fire-hamburg-germany.html
 

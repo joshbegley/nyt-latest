@@ -1,3 +1,7 @@
+**PSG craved Champions League glory, but Messi, Mbappe and Beckham couldn't deliver. Doue could.**\
+`After a galaxy of superstars passed through PSG without winning the Champions League, Desire Doue, 19, delivered what they could not.`\
+https://nytimes.com/athletic/6395072/2025/06/01/psg-champions-league-glory-messi-doue/
+
 **Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
 `A few hours later there was a report of another bridge collapse, also in western Russia, involving a freight train.`\
 https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6384582/2025/06/01/manchester-united-player-of-the-
 **Tyrese Haliburton is New York's new villain, joining Jordan, Reggie and others**\
 `Haliburton is the new player they love to hate in New York — and with good reason after watching the Eastern Conference finals.`\
 https://nytimes.com/athletic/6391180/2025/06/01/haliburton-pacers-knicks-villain-jordan-reggie/
-
-**How West Germany won the 1954 World Cup: Herberger tactics, injured Puskas, group stage mind games?**\
-`West Germany lost 8-3 to Hungary in the group stages of the 1954 World Cup... only to meet them again in the final.`\
-https://nytimes.com/athletic/6393274/2025/06/01/how-west-germany-won-world-cup-1958/
 
