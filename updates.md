@@ -1,3 +1,11 @@
+**For Indian Students, Dreams of America Are Suddenly in Doubt**\
+`Nobody knows what the halt on visa interviews means and how long it will last. The uncertainty has upended thousands of carefully made plans.`\
+https://nytimes.com/2025/06/01/world/asia/indian-students-us-visa.html
+
+**The USWNT basks in the return of Naomi Girma - their 'security blanket'**\
+`The Chelsea center-back returned to USWNT action against China and offered a reminder of her qualities as Emma Hayes' side dominated`\
+https://nytimes.com/athletic/6395291/2025/06/01/uswnt-naomi-girma-hayes-china/
+
 **Battle of the Broadcasts: Reviewing TNT, CBS Sports' Champions League final**\
 `The UEFA Champions League final was presented in far different ways on either side of the Atlantic.`\
 https://nytimes.com/athletic/6394965/2025/06/01/uefa-champions-league-final-psg-inter-milan-tnt-cbs-sports-tv-review/
