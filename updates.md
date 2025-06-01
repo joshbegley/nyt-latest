@@ -1,3 +1,7 @@
+**Snack Maker Sues Aldi Grocery Chain Over Look-Alike Product Packaging**\
+`Mondelez International, a corporate giant behind the name-brand versions of many snacks, contends that Aldi is mimicking its packaging to dupe customers.`\
+https://nytimes.com/2025/06/01/business/mondelez-aldi-packaging-lawsuit.html
+
 **Guy Klucevsek, Multi-Genre Accordion Virtuoso, Is Dead at 78**\
 `He elevated his instrument’s often-maligned reputation with deft musicianship, and by writing and commissioning a wide range of music.`\
 https://nytimes.com/2025/06/01/arts/music/guy-klucevsek-dead.html
