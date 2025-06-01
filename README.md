@@ -1,3 +1,7 @@
+**NBA Finals odds: Oklahoma City heavily favored to beat Indiana**\
+`With the NBA Finals matchup set, Oklahoma City is heavily favored to beat Indiana and win the championship.`\
+https://nytimes.com/athletic/6395382/2025/06/01/nba-finals-odds-oklahoma-city-indiana/
+
 **Vienna’s Musical Message to Aliens: One, Two, Three. One, Two, Three.**\
 `Voyager craft have carried galaxies of information to and from space since 1977. Earthlings in Vienna are finally correcting one cultural omission.`\
 https://nytimes.com/2025/06/01/arts/vienna-to-aliens-one-two-three.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ba
 **Phillies shake up bullpen, rotation in hopes of fixing pitching holes**\
 `The moves include shifting Taijuan Walker to a setup role, reinserting Mick Abel into the rotation and designating José Ruiz for assignment.`\
 https://nytimes.com/athletic/6395997/2025/06/01/phillies-bullpen-shake-up-pitching/
-
-**Atalanta's Gasperini leaves club after nine years in charge**\
-`Gasperini, 67, has transformed Atalanta into a regular in the Champions League and guided the club to Europa League success in 2023-24.`\
-https://nytimes.com/athletic/6385855/2025/06/01/atalanta-manager-news-gasperini/
 

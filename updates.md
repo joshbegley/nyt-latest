@@ -1,3 +1,7 @@
+**Vienna’s Musical Message to Aliens: One, Two, Three. One, Two, Three.**\
+`Voyager craft have carried galaxies of information to and from space since 1977. Earthlings in Vienna are finally correcting one cultural omission.`\
+https://nytimes.com/2025/06/01/arts/vienna-to-aliens-one-two-three.html
+
 **Spanish Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our writers after the race in Spain?`\
 https://nytimes.com/athletic/6396137/2025/06/01/spanish-grand-prix-submit-your-questions-for-our-f1-mailbag/
