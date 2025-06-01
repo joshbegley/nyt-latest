@@ -1,3 +1,7 @@
+**: Fireworks, tears, flares and Djokovic confusion: Watching PSG's Champions League win in Paris**\
+`Charlie Eccleshare takes in PSG's Champions League win at the French Open, the Parc des Princes - and on the streets of Paris.`\
+https://nytimes.com/athletic/6394951/2025/06/01/psg-champions-league-title-parc-des-princes/
+
 **Train Derails in Western Russia After Bridge Collapse, Killing at Least 7**\
 `Hours later came a report of another bridge collapse, also in western Russia, involving a freight train. And Ukraine claimed it blew up a military train in the Zaporizhzhia region.`\
 https://nytimes.com/2025/06/01/world/europe/bridge-collapse-russia.html
