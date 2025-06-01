@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, June 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/01/todays-new-york-times-international-edition
+
 **Northern Lights May Be Visible as Far South as Alabama**\
 `Streaks of colorful light could paint the sky over a large portion of the country on Sunday night into Monday morning amid a severe geomagnetic storm.`\
 https://nytimes.com/2025/06/01/weather/northern-lights-visible-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/arts/television/movies-tv-shows-june-2025-streami
 **‘I Didn’t Get It Done’: A Reflective Tim Walz Wants to Make Good**\
 `Last year’s Democratic vice-presidential nominee has thrown himself into a robust atonement-and-explanation tour, though aides insist there is no grand strategy.`\
 https://nytimes.com/2025/06/01/us/politics/tim-walz-democrats-2024.html
-
-**Why Mexico’s Judicial Election is a Controversial Experiment**\
-`On June 1, Mexico will become the only country in the world to elect all of its judges and magistrates. Emiliano Rodriguez Mega, a New York Times reporter based in Mexico City, breaks down why this new approach is so controversial.`\
-https://nytimes.com/video/world/americas/100000010195231/why-mexicos-judicial-election-is-a-controversial-experiment.html
 

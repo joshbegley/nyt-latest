@@ -1,3 +1,7 @@
+**Northern Lights May Be Visible as Far South as Alabama**\
+`Streaks of colorful light could paint the sky over a large portion of the country on Sunday night into Monday morning amid a severe geomagnetic storm.`\
+https://nytimes.com/2025/06/01/weather/northern-lights-visible-states.html
+
 **Montemurro leaves role as OL Lyonnes head coach**\
 `The Australian only joined the French club a year ago and led the team to the Premiere Ligue title.`\
 https://nytimes.com/athletic/6336852/2025/06/01/joe-montemurro-lyon-feminin-lyonnes/

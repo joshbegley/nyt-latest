@@ -1,3 +1,7 @@
+**Northern Lights May Be Visible as Far South as Alabama**\
+`Streaks of colorful light could paint the sky over a large portion of the country on Sunday night into Monday morning amid a severe geomagnetic storm.`\
+https://nytimes.com/2025/06/01/weather/northern-lights-visible-states.html
+
 **Montemurro leaves role as OL Lyonnes head coach**\
 `The Australian only joined the French club a year ago and led the team to the Premiere Ligue title.`\
 https://nytimes.com/athletic/6336852/2025/06/01/joe-montemurro-lyon-feminin-lyonnes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/us/politics/tim-walz-democrats-2024.html
 **Why Mexico’s Judicial Election is a Controversial Experiment**\
 `On June 1, Mexico will become the only country in the world to elect all of its judges and magistrates. Emiliano Rodriguez Mega, a New York Times reporter based in Mexico City, breaks down why this new approach is so controversial.`\
 https://nytimes.com/video/world/americas/100000010195231/why-mexicos-judicial-election-is-a-controversial-experiment.html
-
-**This ‘Buena Vista Social Club’ Star Knows She’s Intimidating**\
-`Natalie Venetia Belcon insists she’s not as regal as the Cuban musician she plays, but she’s worked hard to make you think otherwise.`\
-https://nytimes.com/2025/06/01/theater/buena-vista-social-club-natalie-venetia-belcon-tonys.html
 
