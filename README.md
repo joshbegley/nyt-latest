@@ -1,3 +1,7 @@
+**: Fireworks, tears, flares and Djokovic confusion: Watching PSG's Champions League win in Paris**\
+`Charlie Eccleshare takes in PSG's Champions League win at the French Open, the Parc des Princes - and on the streets of Paris.`\
+https://nytimes.com/athletic/6394951/2025/06/01/psg-champions-league-title-parc-des-princes/
+
 **‘I Thought to Myself: I’m Not Going to Rush This Time’**\
 `A pink push across the street, a kind of compliment on the Q and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/06/01/nyregion/metropolitan-diary.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/01/todays-new-york-times
 **Living to Die Well**\
 `Even as we die, our bodies are capable of more than devolution from illness.`\
 https://nytimes.com/2025/06/01/opinion/dying-well-planning-life.html
-
-**Yankees downplay early losses to Dodgers in World Series rematch: ‘Every game is the same’**\
-`The loss Saturday ensured the Yankees would lose their first series after winning their previous seven in a row.`\
-https://nytimes.com/athletic/6395284/2025/06/01/yankees-downplay-losses-dodgers-world-series-rematch/
 
