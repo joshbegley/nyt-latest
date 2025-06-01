@@ -1,3 +1,11 @@
+**Chelsea reach agreement with Delap on personal terms, set to sign six-year deal**\
+`A deal was already in place between the clubs for Chelsea to activate a £30m release clause.`\
+https://nytimes.com/athletic/6396311/2025/06/01/chelsea-delap-transfer-update-contract/
+
+**Monday Briefing: Ukraine bombarded Russian air bases**\
+`Plus, the tech bros of “Mountainhead.”`\
+https://nytimes.com/2025/06/01/briefing/ukraine-russia-gaza-mexico.html
+
 **Elena Rybakina's barred coach, Stefano Vukov, appeals 1-year WTA tennis ban**\
 `Stefano Vukov, suspended by the women's tennis tour over his behavior toward Elena Rybakina, is in arbitration with the body.`\
 https://nytimes.com/athletic/6396240/2025/06/01/tennis-elena-rybakina-coach-vukov-ban-wta/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/01/us/california-democrats-kamala-harris-governor.ht
 **NBA Finals odds: Oklahoma City heavily favored to beat Indiana**\
 `With the NBA Finals matchup set, Oklahoma City is heavily favored to beat Indiana and win the championship.`\
 https://nytimes.com/athletic/6395382/2025/06/01/nba-finals-odds-oklahoma-city-indiana/
-
-**Vienna’s Musical Message to Aliens: One, Two, Three. One, Two, Three.**\
-`Voyager craft have carried galaxies of information to and from space since 1977. Earthlings in Vienna are finally correcting one cultural omission.`\
-https://nytimes.com/2025/06/01/arts/vienna-to-aliens-one-two-three.html
-
-**Spanish Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our writers after the race in Spain?`\
-https://nytimes.com/athletic/6396137/2025/06/01/spanish-grand-prix-submit-your-questions-for-our-f1-mailbag/
 
