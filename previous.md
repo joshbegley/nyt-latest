@@ -1,3 +1,7 @@
+**Guy Klucevsek, Multi-Genre Accordion Virtuoso, Is Dead at 78**\
+`He elevated his instrument’s often-maligned reputation with deft musicianship, and by writing and commissioning a wide range of music.`\
+https://nytimes.com/2025/06/01/arts/music/guy-klucevsek-dead.html
+
 **Party Activists in California Aren’t Sold on a Harris Run for Governor**\
 `Kamala Harris did not appear in person at a California state Democratic convention, leaving delegates to wonder how seriously she is considering running and whether it would be wise.`\
 https://nytimes.com/2025/06/01/us/california-democrats-kamala-harris-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395940/2025/06/01/real-madrid-uefa-rankings-manche
 **The best Connor McDavid cards to collect**\
 `Whether you budget is $50 or $300,000, there's a McDavid rookie card for every fan.`\
 https://nytimes.com/athletic/6390791/2025/06/01/connor-mcdavid-rookie-cards/
-
-**Max Verstappen on verge of F1 race ban after penalty for George Russell clash in Spain**\
-`Max Verstappen faces an uphill battle to avoid a race ban as he’ll need to navigate a clean Canadian and Austrian Grands Prix`\
-https://nytimes.com/athletic/6396003/2025/06/01/max-verstappen-potential-race-ban-spanish-grand-prix/
 
