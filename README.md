@@ -1,5 +1,5 @@
 **Poland’s Presidential Election Goes Down to the Wire**\
-`A vote seen a test of the power of populist nationalism in Europe was too close to call, with exit polls putting the two contenders neck and neck.`\
+`A vote seen as a test of the power of populist nationalism in Europe was too close to call, with exit polls putting the two contenders neck and neck.`\
 https://nytimes.com/2025/06/01/world/europe/poland-election-president.html
 
 **Snack Maker Sues Aldi Grocery Chain Over Look-Alike Product Packaging**\
