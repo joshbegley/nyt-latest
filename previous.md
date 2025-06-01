@@ -1,5 +1,5 @@
 **Police Respond to ‘Terror Attack’ at a Colorado Event Raising Awareness of Israeli Hostages**\
-`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was throw at walkers at the event. The F.B.I. director called it “a targeted terror attack.”`\
+`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at walkers at the event. The F.B.I. director called it “a targeted terror attack.”`\
 https://nytimes.com/2025/06/01/us/boulder-colorado-attack.html
 
 **Crossed One’s Fingers**\
