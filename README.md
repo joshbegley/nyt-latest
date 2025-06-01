@@ -1,3 +1,15 @@
+**Transfers TLDR: Cunha to Manchester United – all you need to know**\
+`United have announced their first summer signing has been agreed - here's all you need to know about Matheus Cunha.`\
+https://nytimes.com/athletic/6384845/2025/06/01/transfers-matheus-cunha-manchester-united/
+
+**European finals are not meant to be won like this — so how does this PSG victory compare?**\
+`PSG's 5-0 win was the biggest margin of victory in the European Cup final. So is it the greatest win?`\
+https://nytimes.com/athletic/6395426/2025/06/01/psg-champions-league-victory-final/
+
+**Meatballs for When You Want Kebabs**\
+`Richly spiced adana meatballs are perfect for quick weeknight and party-time meals.`\
+https://nytimes.com/2025/06/01/dining/meatballs-for-when-you-want-kebabs.html
+
 **Lowetide: The importance of playoff healthy scratches, now and in the future**\
 `Why would the Oilers keep players like Matt Savoie, Noah Philp and Olivier Rodrigue around?`\
 https://nytimes.com/athletic/6394610/2025/06/01/oilers-nhl-playoffs-rookies-scratches/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6395509/2025/06/01/brentford-transfer-flekken-lever
 **Man Utd announce Matheus Cunha transfer agreement**\
 `United have confirmed the 26-year-old Brazilian international as their first signing of the summer transfer window.`\
 https://nytimes.com/athletic/6387292/2025/06/01/matheus-cunha-manchester-united-transfer-wolves/
-
-**The Pulse: A messy CFB offseason explained**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6395269/2025/06/01/college-footballs-truly-messy-offseason-explained-plus-indy-fights-off-the-knicks/
-
-**Trump Administration Live Updates: President’s Top Aides Insist Tariffs Are Here to Stay**\
-``\
-https://nytimes.com/live/2025/06/01/us/trump-news
-
-**Steel drums, beef patties and a penalty shootout: Nigeria win Unity Cup in 'carnival-like' atmosphere**\
-`The first Unity Cup since 2004 brought communities together in west London, with food, music and flags central to finals day.`\
-https://nytimes.com/athletic/6395437/2025/06/01/unity-cup-final-nigeria-jamaica/
 
