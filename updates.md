@@ -1,3 +1,7 @@
+**Yankees downplay early losses to Dodgers in World Series rematch: ‘Every game is the same’**\
+`The loss Saturday ensured the Yankees would lose their first series after winning their previous seven in a row.`\
+https://nytimes.com/athletic/6395284/2025/06/01/yankees-downplay-losses-dodgers-world-series-rematch/
+
 **Trans Athlete in Political Storm Earns, and Shares, First Place in Event**\
 `In a rules compromise, AB Hernandez shared first place in the high jump and triple jump in the California high school championship, and shared spots on the awards podium, too.`\
 https://nytimes.com/2025/06/01/us/trans-athlete-california-track-meet.html

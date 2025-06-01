@@ -1,3 +1,7 @@
+**Yankees downplay early losses to Dodgers in World Series rematch: ‘Every game is the same’**\
+`The loss Saturday ensured the Yankees would lose their first series after winning their previous seven in a row.`\
+https://nytimes.com/athletic/6395284/2025/06/01/yankees-downplay-losses-dodgers-world-series-rematch/
+
 **Trans Athlete in Political Storm Earns, and Shares, First Place in Event**\
 `In a rules compromise, AB Hernandez shared first place in the high jump and triple jump in the California high school championship, and shared spots on the awards podium, too.`\
 https://nytimes.com/2025/06/01/us/trans-athlete-california-track-meet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/world/europe/europe-us-maga-trump.html
 **A Close Polish Election Is a Bellwether for Populists**\
 `Here’s what to know about Poland’s presidential runoff, which sets up a showdown between the governing party and resurgent nationalists.`\
 https://nytimes.com/2025/06/01/world/europe/poland-presidential-runoff-election-trump.html
-
-**Connections: Sports Edition Coach: Hints for June 1, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6393843/2025/06/01/connections-sports-edition-hints-for-june-1-2025-puzzle-no-251/
 
