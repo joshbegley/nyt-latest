@@ -1,3 +1,11 @@
+**'The boys are here': At Gaudreau Family 5K, memory of late brothers Johnny and Matthew shines bright**\
+`Nine months after the brothers were killed while riding bicycles, more than a thousand people gathered to run and walk in their honor.`\
+https://nytimes.com/athletic/6394772/2025/06/01/johnny-gaudreau-brothers-death-matthew-family-5k/
+
+**Why Jackson Smith's 2-way upside makes him an exciting 2025 draft prospect**\
+`Smith has the attributes teams are looking for in playoff-style defensemen. Can he figure out the risk-reward balance to become one?`\
+https://nytimes.com/athletic/6376490/2025/06/01/nhl-draft-2025-jackson-smith/
+
 **Jubilant Soccer Fans Cause Chaos in France**\
 `Police arrested hundreds of people overnight after Paris Saint-Germain fans celebrated a Champions League victory.`\
 https://nytimes.com/2025/06/01/world/europe/france-arrests-paris-st-germain-psg.html
