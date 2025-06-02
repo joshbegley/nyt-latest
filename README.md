@@ -1,3 +1,7 @@
+**Why Anders Sörensen chose to stay with the Blackhawks after Jeff Blashill took his job**\
+`Sörensen's resume could have landed him another job in the NHL, AHL or Sweden. Instead, he stuck around as an assistant on Blashill's staff.`\
+https://nytimes.com/athletic/6398248/2025/06/02/blackhawks-anders-sorensen-jeff-blashill/
+
 **Alice Notley, Poet Celebrated for ‘Restless Reinvention,’ Dies at 79**\
 `Once called “our present-day Homer” for her sprawling, experimental epics, she was honored with prizes and was a finalist for the Pulitzer in 1999.`\
 https://nytimes.com/2025/06/02/books/alice-notley-dead.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-an
 `The justices added four cases to their docket for next term, including a lawsuit brought by a conservative group challenging an Illinois law that allows mail ballots to be counted after Election Day.`\
 https://nytimes.com/2025/06/02/us/politics/supreme-court-mail-ballots.html
 
-**Visa ‘Overstays’ May Not Get Much Attention but They Are Common**\
-`Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States with a visa.`\
+**Colorado Suspect’s Uncertain Immigration Status Highlights Visa ‘Overstays’**\
+`Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States lawfully and then stayed.`\
 https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html
 
 **Guard Joel Bitonio says Browns must 'establish our standard' as a run-focused offense**\
 `Bitonio said much of the behind-the-scenes offseason work points to Cleveland returning to Kevin Stefanski’s offensive roots. `\
 https://nytimes.com/athletic/6398118/2025/06/02/cleveland-browns-offense-joel-bitonio/
-
-**How the Lightning benefit short- and long-term from 6-year deal to keep Yanni Gourde through age 39**\
-`The Lightning got Gourde to agree to a six-year extension carrying a $2.33 million cap hit — a deal with no real comparables around the NHL.`\
-https://nytimes.com/athletic/6398176/2025/06/02/lightning-sign-yanni-gourde-age-39/
 
