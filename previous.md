@@ -1,3 +1,7 @@
+**Bulletproof Vests and Glass: South Korean Candidate Tightens Security**\
+`After being stabbed last year, the leading presidential contender, Lee Jae-myung, is taking no chances. His main rival says he doesn’t need such protection.`\
+https://nytimes.com/2025/06/02/world/asia/south-korea-election-security.html
+
 **South Korea’s New Leader Will Inherit a Divided Country in an Unstable World**\
 `The next president will face daunting challenges to heal a polarized nation and bring stability after months of political turmoil.`\
 https://nytimes.com/2025/06/02/world/asia/south-korea-election-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/02/todays-new-york-times
 **Man Arrested After Attack on Supporters of Israeli Hostages**\
 `Witnesses said a shirtless man threw Molotov cocktails at people attending a community event supporting Israeli hostages in Boulder, Colo.`\
 https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
-
-**What We Know About the Attack in Colorado**\
-`Six people were hospitalized after a man used a “makeshift flamethrower” on a crowd in Boulder, Colo., honoring Israeli hostages in Gaza. The authorities are investigating the attack as an act of terrorism.`\
-https://nytimes.com/2025/06/02/us/boulder-colorado-attack-what-we-know.html
 

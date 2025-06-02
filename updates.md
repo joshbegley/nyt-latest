@@ -1,3 +1,7 @@
+**Bulletproof Vests and Glass: South Korean Candidate Tightens Security**\
+`After being stabbed last year, the leading presidential contender, Lee Jae-myung, is taking no chances. His main rival says he doesn’t need such protection.`\
+https://nytimes.com/2025/06/02/world/asia/south-korea-election-security.html
+
 **South Korea’s New Leader Will Inherit a Divided Country in an Unstable World**\
 `The next president will face daunting challenges to heal a polarized nation and bring stability after months of political turmoil.`\
 https://nytimes.com/2025/06/02/world/asia/south-korea-election-president.html
