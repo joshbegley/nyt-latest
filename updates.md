@@ -1,3 +1,7 @@
+**America’s Jewish Community Has Faced a Series of Attacks**\
+`The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
+https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
+
 **Live Updates: People Burned in Attack on Event for Israeli Hostages in Colorado**\
 `A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at people at the weekly event. Police said the motive was under investigation.`\
 https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
