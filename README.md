@@ -1,3 +1,7 @@
+**What we learned at Patriots OTAs: Stefon Diggs is back, the playbook looks different**\
+`Diggs was at practice following his strange viral video, but Josh McDaniels' new-look offense was perhaps the bigger story on Monday.`\
+https://nytimes.com/athletic/6398341/2025/06/02/patriots-otas-stefon-diggs-josh-mcdaniels/
+
 **Antonio Delgado, Hochul’s No. 2, Will Challenge Her in Governor’s Race**\
 `Mr. Delgado, New York’s lieutenant governor, said he would take on Gov. Kathy Hochul in next year’s Democratic primary because her tenure had lacked “bold, decisive” leadership.`\
 https://nytimes.com/2025/06/02/nyregion/antonio-delgado-governor-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/well/eat/health-longevity-aging-benefits-of-coffe
 **Chelsea announce £18.5m signing of midfielder Essugo from Sporting**\
 `Essugo has signed a long-term contract that will see him contracted to the club until 2033.`\
 https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-announcement/
-
-**Supreme Court Agrees to Hear Challenge to Illinois Mail-In Ballot Law**\
-`The justices added four cases to their docket for next term, including a lawsuit brought by a conservative group challenging an Illinois law that allows mail ballots to be counted after Election Day.`\
-https://nytimes.com/2025/06/02/us/politics/supreme-court-mail-ballots.html
 

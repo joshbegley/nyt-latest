@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6397722/2025/06/02/nascar-nashville-takeaways-ryan-
 https://nytimes.com/2025/06/02/climate/national-petroleum-reserve-alaska-trump-drilling.html
 
 **After Several Attacks, Heightened Anxiety Among American Jews**\
-`The attack in Colorado on a march for Israeli hostages on Sunday contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
+`The attack in Colorado on a march in support of hostages held in Gaza contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
 https://nytimes.com/2025/06/02/us/boulder-antisemitism.html
 
 **That Cup of Coffee May Have a Longer-Term Perk**\

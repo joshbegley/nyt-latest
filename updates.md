@@ -1,3 +1,7 @@
+**After Several Attacks, Heightened Anxiety Among American Jews**\
+`The attack in Colorado on a march in support of hostages held in Gaza contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
+https://nytimes.com/2025/06/02/us/boulder-antisemitism.html
+
 **Antonio Delgado, Hochul’s No. 2, Will Challenge Her in Governor’s Race**\
 `Mr. Delgado, New York’s lieutenant governor, said he would take on Gov. Kathy Hochul in next year’s Democratic primary because her tenure had lacked “bold, decisive” leadership.`\
 https://nytimes.com/2025/06/02/nyregion/antonio-delgado-governor-hochul.html
