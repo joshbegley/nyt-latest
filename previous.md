@@ -1,3 +1,7 @@
+**Ukraine and Russia to Meet for Second Round of Talks as Attacks Escalate**\
+`After more than three years of war, Russia and Ukraine are engaged in direct and public talks to end the fighting, but their positions remain far apart.`\
+https://nytimes.com/2025/06/02/world/europe/ukraine-russia-istanbul-talks.html
+
 **New Jersey’s Race for Governor: What to Know**\
 `The Republican and Democratic primaries will be held on June 10. Early voting hours begin on Tuesday across the state.`\
 https://nytimes.com/2025/06/02/nyregion/new-jersey-governors-race-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/learning/word-of-the-day-solipsism.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/02/crosswords/spelling-bee-forum.html
-
-**Yankees takeaways: Domínguez, Weaver injury concerns after win over Dodgers**\
-`Losing Domínguez or Weaver would be a blow to the Yankees, who are 36-22 with a 5 1/2-game lead in the American League East.`\
-https://nytimes.com/athletic/6396845/2025/06/02/yankees-takeaways-jasson-dominguez-luke-weaver/
 

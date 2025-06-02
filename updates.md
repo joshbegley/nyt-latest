@@ -1,3 +1,7 @@
+**Ukraine and Russia to Meet for Second Round of Talks as Attacks Escalate**\
+`After more than three years of war, Russia and Ukraine are engaged in direct and public talks to end the fighting, but their positions remain far apart.`\
+https://nytimes.com/2025/06/02/world/europe/ukraine-russia-istanbul-talks.html
+
 **New Jersey’s Race for Governor: What to Know**\
 `The Republican and Democratic primaries will be held on June 10. Early voting hours begin on Tuesday across the state.`\
 https://nytimes.com/2025/06/02/nyregion/new-jersey-governors-race-what-to-know.html
