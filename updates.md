@@ -1,3 +1,7 @@
+**Quote of the Day: Retail ‘Piece of Canada’ Shutters After 355 Years**\
+`Quotation of the Day for Monday, June 2, 2025.`\
+https://nytimes.com/2025/06/01/pageoneplus/quote-of-the-day-retail-piece-of-canada-shutters-after-355-years.html
+
 **Cruz Azul dismantles MLS's Whitecaps to claim Concacaf Champions Cup title**\
 `This was never a contest, as La Maquina claimed a record-tying seventh Concacaf club title in emphatic fashion.`\
 https://nytimes.com/athletic/6396634/2025/06/01/cruz-azul-concacaf-champions-cup-vancouver-whitecaps-mls-liga-mx/
