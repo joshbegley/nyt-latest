@@ -1,5 +1,17 @@
+**Jazz hiring Austin Ainge as president of basketball operations**\
+`Ainge, 43, spent 16 years in the Boston Celtics organization, including six years as the assistant general manager`\
+https://nytimes.com/athletic/6397511/2025/06/02/utah-jazz-hire-austin-ainge-president-celtics/
+
+**Joni Ernst Tries to Go MAGA**\
+`Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks like he’s trying too hard.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
+
+**The Bounce: 4 keys for Thunder, Pacers as 2025 NBA Finals near. Plus, honoring 'Inside the NBA'**\
+`In the 2025 NBA Finals, everybody will focus on the crowds, states and markets, but can the Pacers' style up with the Thunder's?`\
+https://nytimes.com/athletic/6397383/2025/06/02/thunder-pacers-nba-finals-preview-inside-the-nba-tnt-espn-the-bounce/
+
 **With testimony concluded, Hockey Canada sexual assault trial nears completion**\
-`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants. `\
+`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants.`\
 https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
 
 **Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/02/dining/the-road-to-dinner-is-paved-with-spice-ble
 **Heavy Rain and Severe Storms Expected to Sweep Across Central U.S.**\
 `Damaging winds and large hail are forecast for the Plains and the Midwest, and the remnants of Tropical Storm Alvin could bring excessive rainfall and flash flooding.`\
 https://nytimes.com/2025/06/02/weather/rain-storms-forecast-us.html
-
-**THE BAT X fantasy baseball cheat sheet: Stream Ronny Henriquez, trade for Gunnar Henderson**\
-`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6397282/2025/06/02/the-bat-x-fantasy-baseball-cheat-sheet-ronny-henriquez/
-
-**Senators re-sign defenceman Tyler Kleven to 2-year, $3.2 million extension**\
-`Kleven, who recorded 10 points over 79 games in his first NHL season, was slated to be a restricted free agent this summer.`\
-https://nytimes.com/athletic/6397548/2025/06/02/tyler-kleven-ottawa-senators-contract-nhl-free-agency/
-
-**Listen:  Which player has the most at stake in the 2025 Stanley Cup Final?**\
-`The Athletic Hockey Show discusses which players have the most at stake in the 2025 Stanley Cup Final.`\
-https://nytimes.com/athletic/6397401/2025/06/02/which-player-has-the-most-at-stake-in-the-2025-stanley-cup-final/
 

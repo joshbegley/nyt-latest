@@ -1,3 +1,19 @@
+**Jazz hiring Austin Ainge as president of basketball operations**\
+`Ainge, 43, spent 16 years in the Boston Celtics organization, including six years as the assistant general manager`\
+https://nytimes.com/athletic/6397511/2025/06/02/utah-jazz-hire-austin-ainge-president-celtics/
+
+**Joni Ernst Tries to Go MAGA**\
+`Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks like he’s trying too hard.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
+
+**The Bounce: 4 keys for Thunder, Pacers as 2025 NBA Finals near. Plus, honoring 'Inside the NBA'**\
+`In the 2025 NBA Finals, everybody will focus on the crowds, states and markets, but can the Pacers' style up with the Thunder's?`\
+https://nytimes.com/athletic/6397383/2025/06/02/thunder-pacers-nba-finals-preview-inside-the-nba-tnt-espn-the-bounce/
+
+**With testimony concluded, Hockey Canada sexual assault trial nears completion**\
+`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants.`\
+https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
+
 **With testimony concluded, Hockey Canada sexual assault trial nears completion**\
 `Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants. `\
 https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
