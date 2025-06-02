@@ -1,3 +1,7 @@
+**Sounders protest MLS's Club World Cup player payout cap, backed by MLSPA**\
+`A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
+https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
+
 **Aryna Sabalenka's tennis evolution sees her through at Roland Garros: French Open day 8**\
 `The world No. 1 was under pressure against Amanda Anisimova of the U.S., but her developing ability at the front of the court proved key.`\
 https://nytimes.com/athletic/6395904/2025/06/01/french-open-recap-sabalenka-swiatek-svitolina-zheng-qinwen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396485/2025/06/01/padres-gavin-sheets-outfield-wal
 **Cubs cautiously optimistic that Kyle Tucker avoided a season-changing injury**\
 `The Cubs removed Tucker from Sunday's game in the fifth inning, four innings after he jammed his right ring finger on a headfirst slide.`\
 https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/
-
-**Phillies end woeful weekend with day of miscues and missteps — and missing Bryce Harper**\
-`The Phillies handed Milwaukee five outs in a disastrous seventh inning. Everyone agrees: The entire team's defense should look better. `\
-https://nytimes.com/athletic/6396366/2025/06/01/phillies-defense-bryce-harper-brewers/
 
