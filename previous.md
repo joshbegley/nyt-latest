@@ -1,3 +1,23 @@
+**Suspect in Colorado Attack Was Charged With a Hate Crime**\
+`Also, coffee was linked to healthy aging. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/02/briefing/suspect-in-colorado-attack-was-charged-with-a-hate-crime.html
+
+**Tourists Flee Mount Etna as Volcano Erupts**\
+`Videos shared online show hikers scrambling to descend the mountain as clouds of smoke and ash filled the air.`\
+https://nytimes.com/video/world/europe/100000010203821/mount-etna-eruption.html
+
+**Eagles RB Saquon Barkley lands Madden NFL 26 cover**\
+`Barkley is the second Eagles player to land on the cover of Madden and the seventh running back to be chosen.`\
+https://nytimes.com/athletic/6398507/2025/06/02/nfl-saquon-barkley-madden-cover/
+
+**Fresh, rested Oilers feel ready for Stanley Cup Final — perhaps none more than Evander Kane**\
+`After missing the entire regular season, Kane has five goals and 11 points in 15 playoff games.`\
+https://nytimes.com/athletic/6398517/2025/06/02/evander-kane-oilers-stanley-cup-final/
+
+**Herbert Migdoll, Joffrey Ballet Photographer for Half a Century, Dies at 90**\
+`His photos and graphic design for the Chicago-based company cemented its artistic reputation. He also painted and served as Dance Magazine’s art director.`\
+https://nytimes.com/2025/06/02/arts/dance/herbert-migdoll-dead.html
+
 **Low Turnout in Mexico’s Far-Reaching Judicial Election Fuels Legitimacy Concerns**\
 `Nearly 90 percent of voters did not cast ballots on Sunday, one of the lowest turnouts in any federal election since Mexico became a democracy.`\
 https://nytimes.com/2025/06/02/world/americas/mexico-judicial-election-low-turnout.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/02/briefing/korea-election-ukraine-colorado-terror.h
 **Iowa Democrat Will Challenge Ernst After ‘We All Are Going to Die’ Remarks**\
 `J.D. Scholten, a state representative who is also a minor-league baseball pitcher, said he had felt compelled to take on Senator Joni Ernst, a Republican, after her defense of Medicaid cuts.`\
 https://nytimes.com/2025/06/02/us/politics/jd-scholten-joni-ernst-iowa-senate-race.html
-
-**Whitney Museum Suspends Program After Dispute Over Gaza Event**\
-`A prestigious study program will not welcome students next academic year after a clash between museum officials and young artists who said they were censored.`\
-https://nytimes.com/2025/06/02/arts/design/whitney-study-program-suspended-palestinian-gaza.html
-
-**An Eruption at Mount Etna Sends Hikers Scrambling for Cover**\
-`Videos circulating on social media showed visitors rushing to descend the mountain as volcanic plumes rose overhead.`\
-https://nytimes.com/2025/06/02/travel/mount-etna-volcano-eruption-sicily-italy.html
-
-**South Koreans Vote for a New President After Months of Turmoil**\
-`The election is a big step toward stabilizing the country. But daunting challenges at home and from abroad await the new leader.`\
-https://nytimes.com/2025/06/02/world/asia/south-korean-election-president.html
-
-**Conversations With Usher, Writer to Writer**\
-`The Times followed along as the singer wrote a commencement speech for Emory University.`\
-https://nytimes.com/2025/06/02/insider/conversations-with-usher-writer-to-writer.html
-
-**David Cope, Godfather of A.I. Music, Is Dead at 83**\
-`His EMI algorithm, an early form of artificial intelligence that he developed in the 1980s, prompted searching questions about the limits of human creativity.`\
-https://nytimes.com/2025/06/02/technology/david-cope-dead-ai-music.html
 
