@@ -1,3 +1,7 @@
+**Florida baseball coach, athletic director apologize for coach's outburst**\
+`Kevin O’Sullivan directed a tirade at NCAA Tournament site officials because he was unhappy Florida's game was delayed by an hour.`\
+https://nytimes.com/athletic/6398558/2025/06/02/florida-baseball-coach-athletic-director-apologize-outburst/
+
 **Why Women Are Leaving This Broadway Show in Tears**\
 `“John Proctor is the Villain” turns the idea that MeToo was a witch hunt inside out.`\
 https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/briefing/suspect-in-colorado-attack-was-charged-w
 **Tourists Flee Mount Etna as Volcano Erupts**\
 `Videos shared online show hikers scrambling to descend the mountain as clouds of smoke and ash filled the air.`\
 https://nytimes.com/video/world/europe/100000010203821/mount-etna-eruption.html
-
-**Eagles RB Saquon Barkley lands Madden NFL 26 cover**\
-`Barkley is the second Eagles player to land on the cover of Madden and the seventh running back to be chosen.`\
-https://nytimes.com/athletic/6398507/2025/06/02/nfl-saquon-barkley-madden-cover/
 

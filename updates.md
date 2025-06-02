@@ -1,3 +1,7 @@
+**Why Women Are Leaving This Broadway Show in Tears**\
+`“John Proctor is the Villain” turns the idea that MeToo was a witch hunt inside out.`\
+https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
+
 **Man Stabs 12 in Spree at Oregon Homeless Shelter, Police Say**\
 `The attack, in which two of shelter staff members were injured, does not appear to be targeted, the authorities said. A suspect was in custody.`\
 https://nytimes.com/2025/06/02/us/stabbing-oregon-homeless-shelter.html
