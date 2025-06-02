@@ -1,3 +1,7 @@
+**Aryna Sabalenka's tennis evolution sees her through at Roland Garros: French Open day 8**\
+`The world No. 1 was under pressure against Amanda Anisimova of the U.S., but her developing ability at the front of the court proved key.`\
+https://nytimes.com/athletic/6395904/2025/06/01/french-open-recap-sabalenka-swiatek-svitolina-zheng-qinwen/
+
 **Welcome to the 5-Day Creativity Challenge**\
 `Today, a fun way to feel less stuck.`\
 https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/
 **Phillies end woeful weekend with day of miscues and missteps — and missing Bryce Harper**\
 `The Phillies handed Milwaukee five outs in a disastrous seventh inning. Everyone agrees: The entire team's defense should look better. `\
 https://nytimes.com/athletic/6396366/2025/06/01/phillies-defense-bryce-harper-brewers/
-
-**Renée Victor, Actress Who Voiced Abuelita in ‘Coco,’ Dies at 86**\
-`She had many memorable roles in her decades-long career, including Lupita in the television series “Weeds.”`\
-https://nytimes.com/2025/06/01/arts/renee-victor-dead.html
 
