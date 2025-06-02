@@ -1,3 +1,7 @@
+**Jonathan Joss, ‘King of the Hill’ Voice Actor, Is Fatally Shot by Neighbor, Police Say**\
+`A neighbor who opened fire on the actor during a dispute was charged with murder, the authorities said. Mr. Joss also appeared in “Parks and Recreation.”`\
+https://nytimes.com/2025/06/02/arts/television/jonathan-joss-king-of-the-hill-killed.html
+
 **Brentford's Mbeumo wants to join Man Utd, clubs set to open talks**\
 `Mbeumo has attracted interest from the likes of Arsenal, Newcastle, and Spurs — but the 25-year-old favours a switch to Old Trafford.`\
 https://nytimes.com/athletic/6332515/2025/06/02/manchester-united-bryan-mbeumo-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398064/2025/06/02/notre-dame-football-mailbag-ques
 **Suns narrow coaching search to Cavs coaches Johnnie Bryant and Jordan Ott**\
 `Bryant and Ott just concluded their first seasons on Kenny Atkinson’s staff, which this season produced an Eastern Conference-best 64 wins.`\
 https://nytimes.com/athletic/6398055/2025/06/02/phoenix-suns-coaching-search-cavaliers/
-
-**How to watch the San Francisco Giants in 2025: Schedule, broadcast info and blackout rules**\
-`Here's how to watch the San Francisco Giants this season, factoring in broadcast rotations and streaming rules.`\
-https://nytimes.com/athletic/6393991/2025/06/02/san-francisco-giants-how-to-watch/
 
