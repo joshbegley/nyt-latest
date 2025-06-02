@@ -1,3 +1,11 @@
+**Elon Musk Returns to His Tech Empire, Fighting Questions of Inattention**\
+`As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
+https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
+
+**Holmes Rolston III, Pioneer of Environmental Ethics, Dies at 92**\
+`He began his career as a pastor. But he was forced out of his congregation in 1965, which led to a new life pondering the value of nature.`\
+https://nytimes.com/2025/06/02/books/holmes-rolston-iii-dead.html
+
 **Countering ‘Psychic Numbing’ in the Trump Era**\
 `The psychiatrist Robert Jay Lifton and other readers reflect on the troubling times of President Trump. Also: Thieving chatbots.`\
 https://nytimes.com/2025/06/02/opinion/trump-era.html

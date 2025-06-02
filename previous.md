@@ -1,3 +1,11 @@
+**Elon Musk Returns to His Tech Empire, Fighting Questions of Inattention**\
+`As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
+https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
+
+**Holmes Rolston III, Pioneer of Environmental Ethics, Dies at 92**\
+`He began his career as a pastor. But he was forced out of his congregation in 1965, which led to a new life pondering the value of nature.`\
+https://nytimes.com/2025/06/02/books/holmes-rolston-iii-dead.html
+
 **Countering ‘Psychic Numbing’ in the Trump Era**\
 `The psychiatrist Robert Jay Lifton and other readers reflect on the troubling times of President Trump. Also: Thieving chatbots.`\
 https://nytimes.com/2025/06/02/opinion/trump-era.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-tri
 **Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
 `The comedian has spent more than 1,600 episodes talking with celebrities like Barack Obama and Robin Williams. The show’s final episode will air this fall.`\
 https://nytimes.com/2025/06/02/arts/marc-maron-wtf-podcast-ends.html
-
-**Pacers' Jarace Walker to miss first 2 NBA Finals games with ankle injury**\
-`On Saturday, Walker jumped to contest a shot and rolled his ankle almost to the floor. He's been using crutches to walk since then.`\
-https://nytimes.com/athletic/6397335/2025/06/02/pacers-jarace-walker-ankle-injury-nba-finals/
-
-**Before They Were Famous: Do You Know the Early Jobs of These Authors?**\
-`Try this quiz on how five authors made a living before their literary careers took off.`\
-https://nytimes.com/interactive/2025/06/02/books/review/authors-early-jobs.html
 
