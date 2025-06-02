@@ -1,3 +1,7 @@
+**Visa ‘Overstays’ May Not Get Much Attention but They Are Common**\
+`Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States with a visa.`\
+https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html
+
 **Guard Joel Bitonio says Browns have to 'establish our standard' as a run-focused offense**\
 `Bitonio said much of the behind-the-scenes offseason work points to Cleveland returning to Kevin Stefanski’s offensive roots. `\
 https://nytimes.com/athletic/6398118/2025/06/02/cleveland-browns-offense-joel-bitonio/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6386230/2025/06/02/tottenham-ryan-mason-west-brom-m
 **Fourth Military Judge in Sept. 11 Case Retires**\
 `It is not clear whether the chief judge now handling the case at Guantánamo Bay is serving as a caretaker or will hold hearings this summer.`\
 https://nytimes.com/2025/06/02/us/politics/judge-sept-11-case.html
-
-**Texas shuts out Tennessee to reach third WCWS finals in four years**\
-`The Longhorns (54-11), who lost in the championship series in 2022 and 2024, improved to 3-0 in Oklahoma City.`\
-https://nytimes.com/athletic/6398115/2025/06/02/womens-college-world-series-takeaways-semifinals-results/
 
