@@ -1,3 +1,11 @@
+**Champions League 2024-25 review: Games of the tournament, best players and predictions for next season**\
+`Ahmed Walid, Seb Stafford-Bloor, Michael Cox, Mark Carey and Dermot Corrigan review this season's Champions League`\
+https://nytimes.com/athletic/6394377/2025/06/02/champions-league-review-vitinha-yamal-psg-inter/
+
+**What we learned watching PSG win the Champions League final with a professional head coach**\
+`It was one of the great performances in a European final and we watched it with manager Ian Cathro. Here, he talks us through how PSG did it`\
+https://nytimes.com/athletic/6395789/2025/06/02/champions-league-final-psg-analysis/
+
 **Your club missed out on Florian Wirtz? Here are four alternatives to target**\
 `The Athletic's pick of Wirtz alternatives for clubs who aren't his suitors Liverpool, from fellow high-end operators to hidden gems`\
 https://nytimes.com/athletic/6387466/2025/06/02/wirtz-alternatives/

@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/06/02/briefing/ukraine-gaza-tariffs.html
+
 **Champions League 2024-25 review: Games of the tournament, best players and predictions for next season**\
 `Ahmed Walid, Seb Stafford-Bloor, Michael Cox, Mark Carey and Dermot Corrigan review this season's Champions League`\
 https://nytimes.com/athletic/6394377/2025/06/02/champions-league-review-vitinha-yamal-psg-inter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396541/2025/06/02/connections-sports-edition-hints
 **Max Verstappen’s self-inflicted blow to his title hopes undid so much brilliance**\
 `The 2025 F1 championship fight Max Verstappen has been clinging onto so brilliantly is slipping away.`\
 https://nytimes.com/athletic/6396148/2025/06/02/max-verstappen-spanish-grand-prix-penalty-analysis/
-
-**Quote of the Day: Retail ‘Piece of Canada’ Shutters After 355 Years**\
-`Quotation of the Day for Monday, June 2, 2025.`\
-https://nytimes.com/2025/06/01/pageoneplus/quote-of-the-day-retail-piece-of-canada-shutters-after-355-years.html
 
