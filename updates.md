@@ -1,3 +1,8 @@
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **Deion Sanders was ‘hurt’ by narratives around Shedeur’s draft slide**\
 `Shedeur Sanders entered the 2025 NFL Draft widely regarded as a top-two quarterback with eventual No. 1 pick Cam Ward.`\
 https://nytimes.com/athletic/6397866/2025/06/02/deion-sanders-shedeur-nfl-draft-slide/
