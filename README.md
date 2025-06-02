@@ -1,3 +1,7 @@
+**German Border Police Barred From Rejecting Some Asylum Seekers Without a Review**\
+`A Berlin court ruled that officials must investigate the claims of those arriving from neighboring E.U. counties, dealing a blow to the government’s attempt to reduce land migration.`\
+https://nytimes.com/2025/06/02/world/europe/germany-asylum-seekers-border-eu.html
+
 **Jack Draper out of French Open after Alexander Bublik masterclass at Roland Garros**\
 `Draper's newly acquired clay-court skills disappeared in a blizzard of chips, slices and drop shots from Bublik on Suzanne-Lenglen.`\
 https://nytimes.com/athletic/6398017/2025/06/02/jack-draper-french-open-alexander-bublik-result-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retiremen
 **Jim Leavitt to be enshrined in South Florida's Hall of Fame**\
 `The program architect's tenure ended in scandal when the school fired him in 2010 after concluding that he grabbed a player by the throat.`\
 https://nytimes.com/athletic/6397876/2025/06/02/south-florida-jim-leavitt-hall-of-fame/
-
-**What if Google Just Broke Itself Up? A Tech Insider Makes the Case.**\
-`Prosecutors aren’t the only ones arguing for a smaller Google. Some critics say it might be better for investors, customers and innovation.`\
-https://nytimes.com/2025/06/02/technology/google-antitrust-breakup.html
 

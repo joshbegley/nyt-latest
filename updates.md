@@ -1,3 +1,11 @@
+**Jack Draper out of French Open after Alexander Bublik masterclass at Roland Garros**\
+`Draper's newly acquired clay-court skills disappeared in a blizzard of chips, slices and drop shots from Bublik on Suzanne-Lenglen.`\
+https://nytimes.com/athletic/6398017/2025/06/02/jack-draper-french-open-alexander-bublik-result-analysis/
+
+**Witnesses Describe Shooting Near Gaza Aid Center**\
+`Palestinians at an aid distribution center in southern Gaza came under fire on Sunday and it was not immediately clear who was responsible. An Israeli official said soldiers had fired warning shots toward “suspects” half a mile away.`\
+https://nytimes.com/video/world/middleeast/100000010202537/gaza-israel-war-strikes.html
+
 **Goalkeeping and set piece coach Knoop leaves Brighton**\
 `Knoop followed head coach Fabian Hurzeler to Brighton from St Pauli last summer.`\
 https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighton/
