@@ -1,3 +1,7 @@
+**What we learned at Patriots OTAs: Stefon Diggs is back, the playbook looks different**\
+`Diggs was at practice following his strange viral video, but Josh McDaniels' new-look offense was perhaps the bigger story on Monday.`\
+https://nytimes.com/athletic/6398341/2025/06/02/patriots-otas-stefon-diggs-josh-mcdaniels/
+
 **After Several Attacks, Heightened Anxiety Among American Jews**\
 `The attack in Colorado on a march in support of hostages held in Gaza contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
 https://nytimes.com/2025/06/02/us/boulder-antisemitism.html
