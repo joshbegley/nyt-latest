@@ -1,3 +1,7 @@
+**Group Chat**\
+`Palestinians checking in on other Palestinians.`\
+https://nytimes.com/2025/06/02/podcasts/group-chat-this-american-life-nyt-audio.html
+
 **Montemurro appointed Australia Women's head coach**\
 `It was announced on Sunday that Montemurro would be departing his role at Lyon.`\
 https://nytimes.com/athletic/6396892/2025/06/02/joe-montemurro-australia-lyon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/world/asia/south-korea-election-president.html
 **Nationalist Is Elected Poland’s President, in a Setback for the Centrist Government**\
 `The victory of Karol Nawrocki, who is backed by the previous right-wing governing party, will complicate Prime Minister Donald Tusk’s efforts to advance his liberal agenda.`\
 https://nytimes.com/2025/06/02/world/europe/poland-presidential-election-karol-nawrocki.html
-
-**Word of the Day: solipsism**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/02/learning/word-of-the-day-solipsism.html
 
