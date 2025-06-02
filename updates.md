@@ -1,3 +1,11 @@
+**Countering ‘Psychic Numbing’ in the Trump Era**\
+`The psychiatrist Robert Jay Lifton and other readers reflect on the troubling times of President Trump. Also: Thieving chatbots.`\
+https://nytimes.com/2025/06/02/opinion/trump-era.html
+
+**A New Opera Shines Light on Ukrainian Families Separated by War**\
+`The Metropolitan Opera, hoping to revive support for Kyiv, released an excerpt from “The Mothers of Kherson,” about abducted Ukrainian children and their relatives.`\
+https://nytimes.com/2025/06/02/arts/music/metropolitan-opera-the-mother-of-kherson.html
+
 **Economists Question G.O.P. Bill: Why Increase the Deficit in Good Times?**\
 `Huge deficits are already making bond investors nervous. Economists warn that could make it harder to respond to future crises.`\
 https://nytimes.com/2025/06/02/business/government-debt-deficit-recession.html
