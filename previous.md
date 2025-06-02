@@ -1,5 +1,13 @@
+**Fourth Military Judge in Sept. 11 Case Retires**\
+`It is not clear whether the chief judge now handling the case at Guantánamo Bay is serving as a caretaker or will hold hearings this summer.`\
+https://nytimes.com/2025/06/02/us/politics/judge-sept-11-case.html
+
+**Texas shuts out Tennessee to reach third WCWS finals in four years**\
+`The Longhorns (54-11), who lost in the championship series in 2022 and 2024, improved to 3-0 in Oklahoma City.`\
+https://nytimes.com/athletic/6398115/2025/06/02/womens-college-world-series-takeaways-semifinals-results/
+
 **‘Step Brothers’ Created the Catalina Wine Mixer. Catalina Island Made It Real.**\
-`The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy, didn’t exist, until Catalina Island made it so decade ago.`\
+`The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy didn’t exist — until Catalina Island made it so decade ago.`\
 https://nytimes.com/2025/06/02/style/step-brothers-catalina-wine-mixer.html
 
 **Deion Sanders was ‘hurt’ by narratives around Shedeur’s draft slide**\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/02/world/europe/germany-asylum-seekers-border-eu.htm
 **Jack Draper out of French Open after Alexander Bublik masterclass at Roland Garros**\
 `Draper's newly acquired clay-court skills disappeared in a blizzard of chips, slices and drop shots from Bublik on Suzanne-Lenglen.`\
 https://nytimes.com/athletic/6398017/2025/06/02/jack-draper-french-open-alexander-bublik-result-analysis/
-
-**Witnesses Describe Shooting Near Gaza Aid Center**\
-`Palestinians at an aid distribution center in southern Gaza came under fire on Sunday and it was not immediately clear who was responsible. An Israeli official said soldiers had fired warning shots toward “suspects” half a mile away.`\
-https://nytimes.com/video/world/middleeast/100000010202537/gaza-israel-war-strikes.html
-
-**Goalkeeping and set piece coach Knoop leaves Brighton**\
-`Knoop followed head coach Fabian Hurzeler to Brighton from St Pauli last summer.`\
-https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighton/
 

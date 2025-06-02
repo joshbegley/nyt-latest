@@ -1,3 +1,20 @@
+**Fourth Military Judge in Sept. 11 Case Retires**\
+`It is not clear whether the chief judge now handling the case at Guantánamo Bay is serving as a caretaker or will hold hearings this summer.`\
+https://nytimes.com/2025/06/02/us/politics/judge-sept-11-case.html
+
+**Texas shuts out Tennessee to reach third WCWS finals in four years**\
+`The Longhorns (54-11), who lost in the championship series in 2022 and 2024, improved to 3-0 in Oklahoma City.`\
+https://nytimes.com/athletic/6398115/2025/06/02/womens-college-world-series-takeaways-semifinals-results/
+
+**‘Step Brothers’ Created the Catalina Wine Mixer. Catalina Island Made It Real.**\
+`The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy didn’t exist — until Catalina Island made it so decade ago.`\
+https://nytimes.com/2025/06/02/style/step-brothers-catalina-wine-mixer.html
+
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **‘Step Brothers’ Created the Catalina Wine Mixer. Catalina Island Made It Real.**\
 `The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy, didn’t exist, until Catalina Island made it so decade ago.`\
 https://nytimes.com/2025/06/02/style/step-brothers-catalina-wine-mixer.html
