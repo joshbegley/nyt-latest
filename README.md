@@ -1,3 +1,7 @@
+**No Corrections: June 2, 2025**\
+`No corrections appeared in print on Monday, June 2, 2025.`\
+https://nytimes.com/2025/06/02/pageoneplus/no-corrections-june-2-2025.html
+
 **Aston Villa confirm appointment of ex-Juventus exec Francesco Calvo**\
 `Calvo's predecessor, Chris Heck, left the club at the end of the season.`\
 https://nytimes.com/athletic/6397132/2025/06/02/aston-villa-francesco-calvo-appointment/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/02/us/trump-news
 **Ottawa Senators mailbag: Submit your offseason questions for Julian McKenzie**\
 `Got an offseason question about the Ottawa Senators? Submit it here and The Athletic’s Julian McKenzie will select a few to answer.`\
 https://nytimes.com/athletic/6391302/2025/06/02/ottawa-senators-nhl-offseason-mailbag/
-
-**49ers’ Nick Martin is bringing his powerful personality to the weakside spot**\
-`Martin's favorite NFL player to watch when he was at Oklahoma State? Fred Warner. He even bought a Warner No. 54 jersey.`\
-https://nytimes.com/athletic/6393632/2025/06/02/san-francisco-49ers-nick-martin-otas/
 
