@@ -1,40 +1,40 @@
-**Who Is Karol Nawrocki, Poland’s Next President?**\
-`The nationalist, who was endorsed by President Trump, has long been hostile to Poland’s centrist government.`\
-https://nytimes.com/2025/06/02/world/europe/poland-president-who-is-karol-nawrocki.html
+**Tigers’ Riley Greene has become the hitter he was drafted to be. Can it continue?**\
+`Riley Greene had an .894 OPS and 24 RBIs in May, further cementing himself as the centerpiece of Detroit's order. `\
+https://nytimes.com/athletic/6396271/2025/06/02/tigers-riley-greene-success-hitting-growth/
 
-**Man United fans' survey: Your views on Ruben Amorim, INEOS and the players**\
-`The ownership, the head coach, the future - have your say on the state the club finds itself in.`\
-https://nytimes.com/athletic/6391411/2025/06/02/man-united-fan-survey-amorim-ineos/
+**The new State of Hockey: The Panthers, the Lightning and the 'blueprint' behind six straight Cup Finals**\
+`A Florida team has been to the Final for six straight years. How did the Lightning and Panthers do it? And which would win in its prime?`\
+https://nytimes.com/athletic/6396192/2025/06/02/panthers-lightning-florida-stanley-cup-finals/
 
-**Kovacic to have Achilles surgery, expected to miss around three months**\
-`The 31-year-old is set to miss City’s Club World Cup campaign, which begins on June 18 against Moroccan side Wydad AC.`\
-https://nytimes.com/athletic/6397063/2025/06/02/manchester-city-mateo-kovacic-surgery/
+**Scouting Aidan Miller, Max Anderson, Jett Williams, Enrique Bradfield Jr. and more: Law**\
+`Notes on Phillies, Tigers, Mets and Orioles prospects, including Max Thayron Liranzo and hard-throwing right-hander Levi Wells.`\
+https://nytimes.com/athletic/6394999/2025/06/02/minor-league-scouting-aidan-miller-max-anderson-jett-williams/
 
-**Vikings’ sneakiest big move of the offseason? The late-night trade for RB Jordan Mason**\
-`Solidifying the trenches got the headlines for the Vikings in free agency, but the addition of Mason should make a difference on offense.`\
-https://nytimes.com/athletic/6396128/2025/06/02/jordan-mason-vikings-trade-rb/
+**2025 NHL Draft ranking: Scott Wheeler’s final top 100 list**\
+`The 2025 NHL Draft class is deep down the middle and has a thin crop of defensemen. `\
+https://nytimes.com/athletic/6353129/2025/06/02/2025-nhl-draft-ranking-prospects-list/
 
-**This Week in Mets: What might New York need at the trade deadline?**\
-`It doesn’t look like the Mets will be in the market for an ace at the deadline, but at some point they're going to hit a snag.`\
-https://nytimes.com/athletic/6396693/2025/06/02/this-week-in-mets-trade-deadline-needs/
+**Ranking all 32 potential landing spots for Mitch Marner in free agency**\
+`With roster needs and cap situations in mind, how each team fits as a destination for one of the biggest names to hit free agency in years.`\
+https://nytimes.com/athletic/6394898/2025/06/02/mitch-marner-nhl-free-agency-ranking/
 
-**MLB All-Quarter Century Team: How the readers voted — with several close calls**\
-`Revealing the voting results, position by position, for our readers’ team of the quarter century, 16 players who have dominated the 2000s. `\
-https://nytimes.com/athletic/6396659/2025/06/02/mlb-quarter-century-team-reader-vote-results/
+**C. Notes: If the Reds sell at the deadline, which players could they make available?**\
+`Plus notes on the Reds sending former closer Alexis Díaz to the Dodgers, injury updates and how the minor-league teams are doing.`\
+https://nytimes.com/athletic/6396498/2025/06/02/reds-trade-deadline-sellers-2/
 
-**Terry Pegula, Kevyn Adams and the 'hamster wheel' of Sabres' playoff drought**\
-`Buffalo's 14-season playoff drought is tied with the New York Jets for the longest postseason famine in major North American sports.`\
-https://nytimes.com/athletic/6396186/2025/06/02/buffalo-sabres-kevyn-adams-terry-pegula/
+**Trained since childhood to never swing and miss, A's phenom Jacob Wilson raps out hit after hit**\
+`His .357 average is the result of an intensive contact-oriented baseball upbringing fostered by his father, Jack, a longtime MLB shortstop`\
+https://nytimes.com/athletic/6378338/2025/06/02/jacob-wilson-athletics-rookie-shortstop-hits/
 
-**Topps remaking more Lionel Messi autograph cards following 'investigation'**\
-`Leading trading card grader PSA has now declined to authenticate Messi autograph cards from at least five different Topps sets`\
-https://nytimes.com/athletic/6396627/2025/06/02/topps-lionel-messi-autographs-psa/
+**Pete Carroll, Raiders beefing up investment in (and reliance on) football analytics**\
+`Carroll has historically been conservative with game management, but he now seems more willing to incorporate analytics into his planning.`\
+https://nytimes.com/athletic/6389498/2025/06/02/raiders-pete-carroll-analytics/
 
-**MLB All-Quarter Century Team voting: Who got it right — the fans or me?**\
-`Your votes are in, more than 12,000 of them. So let's discuss the question that's on everyone's mind: Who’s right — me or The People?`\
-https://nytimes.com/athletic/6396362/2025/06/02/mlb-quarter-century-team-ohtani-david-ortiz-judge-ichiro/
+**Craig Breslow had a good offseason, but mistakes have led to Red Sox roster mess**\
+`Breslow made several significant moves this offseason. But the moves he didn't make are really hurting the team now.`\
+https://nytimes.com/athletic/6393804/2025/06/02/red-sox-craig-breslow-roster-mistakes/
 
-**Ranking the No. 1 recruits of the 21st century: Travis Hunter or Vince Young for the top spot?**\
-`Where does Adrian Peterson rank? Is Jeremiah Smith worthy of a spot in the top 10 after one season? What about Arch Manning?`\
-https://nytimes.com/athletic/6390327/2025/06/02/college-football-recruiting-ranking-5-stars/
+**Under Russell's Spanish GP Verstappen controversy, other problems are harming Mercedes**\
+`Mercedes started the 2025 season strongly, but has struggled of late. Its Spanish GP was dominated by controversy over bigger issues`\
+https://nytimes.com/athletic/6396199/2025/06/02/under-russells-spanish-gp-verstappen-controversy-other-problems-are-harming-mercedes/
 

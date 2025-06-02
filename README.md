@@ -1,3 +1,7 @@
+**Presenting the Twins' All-Quarter Century Team, the best in Minnesota since 2000**\
+`Selecting a Twins All-Quarter Century Team consisting of 10 hitters and six pitchers who were Minnesota's best players from 2000 to 2025.`\
+https://nytimes.com/athletic/6395576/2025/06/02/twins-quarter-century-team-2000-2025/
+
 **Tigers’ Riley Greene has become the hitter he was drafted to be. Can it continue?**\
 `Riley Greene had an .894 OPS and 24 RBIs in May, further cementing himself as the centerpiece of Detroit's order. `\
 https://nytimes.com/athletic/6396271/2025/06/02/tigers-riley-greene-success-hitting-growth/
@@ -18,23 +22,19 @@ https://nytimes.com/athletic/6353129/2025/06/02/2025-nhl-draft-ranking-prospects
 `With roster needs and cap situations in mind, how each team fits as a destination for one of the biggest names to hit free agency in years.`\
 https://nytimes.com/athletic/6394898/2025/06/02/mitch-marner-nhl-free-agency-ranking/
 
+**WNBA power rankings: Are the New York Liberty destined to repeat?**\
+`The Dream and Aces continue to rise in Sabreena Merchant's weekly rankings.`\
+https://nytimes.com/athletic/6396797/2025/06/02/wnba-power-rankings-new-york-liberty-repeat/
+
 **C. Notes: If the Reds sell at the deadline, which players could they make available?**\
 `Plus notes on the Reds sending former closer Alexis Díaz to the Dodgers, injury updates and how the minor-league teams are doing.`\
 https://nytimes.com/athletic/6396498/2025/06/02/reds-trade-deadline-sellers-2/
 
+**Astros takeaways: Alvarez fallout continues, Meyers adjusts swing and more**\
+`Plus notes on Jacob Melton's role after the 24-year-old went 1-for-3 in his big-league debut.`\
+https://nytimes.com/athletic/6396389/2025/06/02/astros-yordan-alvarez-injury-jake-meyers-jacob-melton/
+
 **Trained since childhood to never swing and miss, A's phenom Jacob Wilson raps out hit after hit**\
 `His .357 average is the result of an intensive contact-oriented baseball upbringing fostered by his father, Jack, a longtime MLB shortstop`\
 https://nytimes.com/athletic/6378338/2025/06/02/jacob-wilson-athletics-rookie-shortstop-hits/
-
-**Pete Carroll, Raiders beefing up investment in (and reliance on) football analytics**\
-`Carroll has historically been conservative with game management, but he now seems more willing to incorporate analytics into his planning.`\
-https://nytimes.com/athletic/6389498/2025/06/02/raiders-pete-carroll-analytics/
-
-**Craig Breslow had a good offseason, but mistakes have led to Red Sox roster mess**\
-`Breslow made several significant moves this offseason. But the moves he didn't make are really hurting the team now.`\
-https://nytimes.com/athletic/6393804/2025/06/02/red-sox-craig-breslow-roster-mistakes/
-
-**Under Russell's Spanish GP Verstappen controversy, other problems are harming Mercedes**\
-`Mercedes started the 2025 season strongly, but has struggled of late. Its Spanish GP was dominated by controversy over bigger issues`\
-https://nytimes.com/athletic/6396199/2025/06/02/under-russells-spanish-gp-verstappen-controversy-other-problems-are-harming-mercedes/
 
