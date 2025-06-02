@@ -1,3 +1,7 @@
+**Who Is Karol Nawrocki, Poland’s Next President?**\
+`The nationalist, who was endorsed by President Trump, has long been hostile to Poland’s centrist government.`\
+https://nytimes.com/2025/06/02/world/europe/poland-president-who-is-karol-nawrocki.html
+
 **Man United fans' survey: Your views on Ruben Amorim, INEOS and the players**\
 `The ownership, the head coach, the future - have your say on the state the club finds itself in.`\
 https://nytimes.com/athletic/6391411/2025/06/02/man-united-fan-survey-amorim-ineos/
