@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Tuesday, June 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/02/todays-new-york-times-international-edition
+
+**Bangladesh’s Ousted Leader Faces New Arrest Warrant in Killing of Protesters**\
+`The war crimes tribunal that Sheikh Hasina herself founded has now charged her in the crackdown that killed well more than a thousand demonstrators.`\
+https://nytimes.com/2025/06/02/world/asia/bangladesh-hasina-arrest-crackdown.html
+
 **Neymar apologises after red card for handball goal in possible final Santos game**\
 `The 33-year-old was sent off for attempting to score with his hand in what could be his final game for Santos.`\
 https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/02/fashion/sneaker-dress-code.html
 **Trump and Allies Sell Domestic Policy Bill With Falsehoods**\
 `President Trump has sought to assuage some lawmakers’ concerns over the bill’s price tag and cuts to Medicaid with inaccurate claims.`\
 https://nytimes.com/2025/06/02/us/politics/trump-big-beautiful-bill-facts.html
-
-**The Billionaires and Interest Groups Backing Cuomo**\
-`A super PAC supporting former Gov. Andrew M. Cuomo’s run for New York’s mayor has collected dozens of donations of $100,000 or more, including from those with business before the city.`\
-https://nytimes.com/2025/06/02/nyregion/cuomo-super-pac-billionaire-donations.html
-
-**A Novel Highlights a Dark Korean History and a Shattered Family’s**\
-`“Flashlight,” by Susan Choi, spans several decades and nations to tell a story of exile in its multiple forms.`\
-https://nytimes.com/2025/06/02/books/review/susan-choi-flashlight.html
 

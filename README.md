@@ -1,3 +1,15 @@
+**Max Verstappen says George Russell collision 'not right' and 'shouldn’t have happened'**\
+`Max Verstappen was hit with a 10-second penalty for the incident that George Russell felt was 'very deliberate'.`\
+https://nytimes.com/athletic/6397024/2025/06/02/max-verstappen-george-russell-spanish-grand-prix-collision/
+
+**U.K. to Build Up to 12 Submarines as Part of Shift to ‘War-Fighting Readiness’**\
+`Amid rising global tensions, Prime Minister Keir Starmer outlined rearmament plans aimed at deterring an increasingly hostile Russia.`\
+https://nytimes.com/2025/06/02/world/europe/uk-defense-review-starmer-nuclear-submarines.html
+
+**A Giant Plume of Saharan Dust Is Headed to Florida**\
+`Dust carried across the Atlantic is one of the great wonders of the weather world. This is the most significant cloud so far this year.`\
+https://nytimes.com/2025/06/02/weather/saharan-dust-florida-gulf-coast.html
+
 **The New York Times International Edition in Print for Tuesday, June 3, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/06/02/todays-new-york-times-international-edition
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/06/02/upshot/us-imports.html
 **As Courts Call Tariffs Into Question, Trump Again Turns to His Favorite Tool**\
 `The president is set to raise tariffs on steel and aluminum this week, even as the courts are challenging the legitimacy of other levies.`\
 https://nytimes.com/2025/06/02/business/economy/trump-tariffs-courts.html
-
-**Hear the Sound of a New Generation of South Korean Musicians**\
-`Unsuk Chin, the curator of the Seoul Festival in Los Angeles, shares music by some of her favorite young composers and performers.`\
-https://nytimes.com/2025/06/02/arts/music/seoul-festival-los-angeles-philharmonic.html
-
-**What Even Is a Sneaker?**\
-`Dress codes at many private clubs forbid sneakers — but the category has gotten blurrier as shoes once relegated to sportswear become fashion forward. Our critic pins down the increasingly slippery term.`\
-https://nytimes.com/2025/06/02/fashion/sneaker-dress-code.html
-
-**Trump and Allies Sell Domestic Policy Bill With Falsehoods**\
-`President Trump has sought to assuage some lawmakers’ concerns over the bill’s price tag and cuts to Medicaid with inaccurate claims.`\
-https://nytimes.com/2025/06/02/us/politics/trump-big-beautiful-bill-facts.html
 

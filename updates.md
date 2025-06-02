@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Tuesday, June 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/02/todays-new-york-times-international-edition
+
+**Bangladesh’s Ousted Leader Faces New Arrest Warrant in Killing of Protesters**\
+`The war crimes tribunal that Sheikh Hasina herself founded has now charged her in the crackdown that killed well more than a thousand demonstrators.`\
+https://nytimes.com/2025/06/02/world/asia/bangladesh-hasina-arrest-crackdown.html
+
 **Neymar apologises after red card for handball goal in possible final Santos game**\
 `The 33-year-old was sent off for attempting to score with his hand in what could be his final game for Santos.`\
 https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
