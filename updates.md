@@ -1,3 +1,7 @@
+**Neymar apologises after red card for handball goal in possible final Santos game**\
+`The 33-year-old was sent off for attempting to score with his hand in what could be his final game for Santos.`\
+https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
+
 **Long-serving Spurs executive Cullen announces departure**\
 `Cullen joined the Tottenham board in 2006.`\
 https://nytimes.com/athletic/6396969/2025/06/02/tottenham-donna-maria-cullen-exit/
