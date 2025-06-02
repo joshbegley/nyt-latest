@@ -2,8 +2,8 @@
 `Stark played the back nine in even par Sunday to seal her first major victory in a two-shot rout that felt like more.`\
 https://nytimes.com/athletic/6396556/2025/06/01/how-maja-stark-won-u-s-open/
 
-**A Sunday Ritual Turns Into a Scene That ‘Looked Like a War Zone’**\
-`A witness ran to the site of the attack and found smoky chaos, people wandering dazed and a friend she said is a Holocaust survivor being helped into an ambulance.`\
+**A Sunday Ritual Turns Into a Smoky Scene of Chaos**\
+`A witness ran to the site of the attack and found people wandering dazed and a friend she said is a Holocaust survivor being helped into an ambulance.`\
 https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
 
 **Sounders protest MLS' Club World Cup player payout cap, backed by MLSPA**\
