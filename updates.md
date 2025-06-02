@@ -1,3 +1,7 @@
+**Florida baseball coach, athletic director apologize for coach's outburst**\
+`Kevin O’Sullivan directed a tirade at NCAA Tournament site officials because he was unhappy Florida's game was delayed by an hour.`\
+https://nytimes.com/athletic/6398558/2025/06/02/florida-baseball-coach-athletic-director-apologize-outburst/
+
 **Why Women Are Leaving This Broadway Show in Tears**\
 `“John Proctor is the Villain” turns the idea that MeToo was a witch hunt inside out.`\
 https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
