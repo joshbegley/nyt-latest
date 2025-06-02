@@ -1,3 +1,19 @@
+**Travel Secrets**\
+``\
+https://nytimes.com/spotlight/travel-secrets
+
+**Wild re-sign Marcus Johansson to 1-year deal**\
+`Johansson, who would have become a free agent July 1, was being lured by his old Swedish Hockey League club, Färjestad.`\
+https://nytimes.com/athletic/6397758/2025/06/02/wild-re-sign-marcus-johansson-to-1-year-deal/
+
+**Elon Musk Returns to His Tech Empire, Facing Questions of Inattention**\
+`As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
+https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
+
+**Joni Ernst Tries to Go MAGA**\
+`Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks as though he’s trying too hard.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
+
 **Elon Musk Returns to His Tech Empire, Fighting Questions of Inattention**\
 `As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
 https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
