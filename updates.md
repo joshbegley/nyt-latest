@@ -1,3 +1,7 @@
+**Royals promoting top prospect Jac Caglianone to MLB less than a year after drafting him: Source**\
+`One of the game’s top offensive talents, Caglianone has torn up the upper levels of the Royals’ minor-league system.`\
+https://nytimes.com/athletic/6396750/2025/06/01/royals-jac-caglianone-mlb-promotion/
+
 **Giants takeaways: Tough pitching decisions, offensive hope after Marlins series**\
 `The Giants' pitching has helped prop up an offense that has failed to score more than four runs for 14 straight games.`\
 https://nytimes.com/athletic/6394078/2025/06/01/sf-giants-pitching-decisions-offfense/
