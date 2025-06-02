@@ -1,4 +1,4 @@
-**Giants takeaways: Tough pitching decisions and a glimmer of offensive hope after Marlins series**\
+**Giants takeaways: Tough pitching decisions, offensive hope after Marlins series**\
 `The Giants' pitching has helped prop up an offense that has failed to score more than four runs for 14 straight games.`\
 https://nytimes.com/athletic/6394078/2025/06/01/sf-giants-pitching-decisions-offfense/
 
