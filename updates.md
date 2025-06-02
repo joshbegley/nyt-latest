@@ -1,3 +1,11 @@
+**Sounders protest MLS's Club World Cup player payout cap, backed by MLSPA**\
+`A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
+https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
+
+**Live Updates: 6 People Burned in Attack on Event for Israeli Hostages in Colorado**\
+`Two were airlifted to a burn unit with serious injuries. Officials said the attacker, who used a “makeshift flamethrower,” was in custody and had yelled, “Free Palestine,” according to witnesses.`\
+https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
+
 **Aryna Sabalenka's tennis evolution sees her through at Roland Garros: French Open day 8**\
 `The world No. 1 was under pressure against Amanda Anisimova of the U.S., but her developing ability at the front of the court proved key.`\
 https://nytimes.com/athletic/6395904/2025/06/01/french-open-recap-sabalenka-swiatek-svitolina-zheng-qinwen/

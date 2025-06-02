@@ -1,3 +1,7 @@
+**Sounders protest MLS's Club World Cup player payout cap, backed by MLSPA**\
+`A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
+https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
+
 **Aryna Sabalenka's tennis evolution sees her through at Roland Garros: French Open day 8**\
 `The world No. 1 was under pressure against Amanda Anisimova of the U.S., but her developing ability at the front of the court proved key.`\
 https://nytimes.com/athletic/6395904/2025/06/01/french-open-recap-sabalenka-swiatek-svitolina-zheng-qinwen/
@@ -10,8 +14,8 @@ https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
 `The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
 https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
 
-**Live Updates: People Burned in Attack on Event for Israeli Hostages in Colorado**\
-`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at people at the weekly event. Police said the motive was under investigation.`\
+**Live Updates: 6 People Burned in Attack on Event for Israeli Hostages in Colorado**\
+`Two were airlifted to a burn unit with serious injuries. Officials said the attacker, who used a “makeshift flamethrower,” was in custody and had yelled, “Free Palestine,” according to witnesses.`\
 https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
 
 **10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396485/2025/06/01/padres-gavin-sheets-outfield-wal
 **Cubs cautiously optimistic that Kyle Tucker avoided a season-changing injury**\
 `The Cubs removed Tucker from Sunday's game in the fifth inning, four innings after he jammed his right ring finger on a headfirst slide.`\
 https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/
-
-**Phillies end woeful weekend with day of miscues and missteps — and missing Bryce Harper**\
-`The Phillies handed Milwaukee five outs in a disastrous seventh inning. Everyone agrees: The entire team's defense should look better. `\
-https://nytimes.com/athletic/6396366/2025/06/01/phillies-defense-bryce-harper-brewers/
 
