@@ -1,3 +1,19 @@
+**That Cup of Coffee May Have a Longer-Term Perk**\
+`A new study of over 47,000 women found links between coffee drinking and healthy aging. Here’s what we know.`\
+https://nytimes.com/2025/06/02/well/eat/health-longevity-aging-benefits-of-coffee.html
+
+**Chelsea announce £18.5m signing of midfielder Essugo from Sporting**\
+`Essugo has signed a long-term contract that will see him contracted to the club until 2033.`\
+https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-announcement/
+
+**Supreme Court Agrees to Hear Challenge to Illinois Mail-In Ballot Law**\
+`The justices added four cases to their docket for next term, including a lawsuit brought by a conservative group challenging an Illinois law that allows mail ballots to be counted after Election Day.`\
+https://nytimes.com/2025/06/02/us/politics/supreme-court-mail-ballots.html
+
+**Guard Joel Bitonio says Browns must 'establish our standard' as a run-focused offense**\
+`Bitonio said much of the behind-the-scenes offseason work points to Cleveland returning to Kevin Stefanski’s offensive roots. `\
+https://nytimes.com/athletic/6398118/2025/06/02/cleveland-browns-offense-joel-bitonio/
+
 **Visa ‘Overstays’ May Not Get Much Attention but They Are Common**\
 `Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States with a visa.`\
 https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html

@@ -1,8 +1,20 @@
+**That Cup of Coffee May Have a Longer-Term Perk**\
+`A new study of over 47,000 women found links between coffee drinking and healthy aging. Here’s what we know.`\
+https://nytimes.com/2025/06/02/well/eat/health-longevity-aging-benefits-of-coffee.html
+
+**Chelsea announce £18.5m signing of midfielder Essugo from Sporting**\
+`Essugo has signed a long-term contract that will see him contracted to the club until 2033.`\
+https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-announcement/
+
+**Supreme Court Agrees to Hear Challenge to Illinois Mail-In Ballot Law**\
+`The justices added four cases to their docket for next term, including a lawsuit brought by a conservative group challenging an Illinois law that allows mail ballots to be counted after Election Day.`\
+https://nytimes.com/2025/06/02/us/politics/supreme-court-mail-ballots.html
+
 **Visa ‘Overstays’ May Not Get Much Attention but They Are Common**\
 `Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States with a visa.`\
 https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html
 
-**Guard Joel Bitonio says Browns have to 'establish our standard' as a run-focused offense**\
+**Guard Joel Bitonio says Browns must 'establish our standard' as a run-focused offense**\
 `Bitonio said much of the behind-the-scenes offseason work points to Cleveland returning to Kevin Stefanski’s offensive roots. `\
 https://nytimes.com/athletic/6398118/2025/06/02/cleveland-browns-offense-joel-bitonio/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/02/arts/television/jonathan-joss-king-of-the-hill-ki
 **Brentford's Mbeumo wants to join Man Utd, clubs set to open talks**\
 `Mbeumo has attracted interest from the likes of Arsenal, Newcastle, and Spurs — but the 25-year-old favours a switch to Old Trafford.`\
 https://nytimes.com/athletic/6332515/2025/06/02/manchester-united-bryan-mbeumo-transfer/
-
-**Ex-U.S. star Michael Bradley joins Canada's coaching staff as guest**\
-`Bradley, the former USMNT captain, will link up with Canada temporarily as he continues his burgeoning coaching career.`\
-https://nytimes.com/athletic/6397810/2025/06/02/michael-bradley-canada-jesse-marsch-coaching-staff/
-
-**Ryan Mason set to be appointed new West Brom head coach**\
-`West Brom parted company with Tony Mowbray in April `\
-https://nytimes.com/athletic/6386230/2025/06/02/tottenham-ryan-mason-west-brom-manager/
-
-**Fourth Military Judge in Sept. 11 Case Retires**\
-`It is not clear whether the chief judge now handling the case at Guantánamo Bay is serving as a caretaker or will hold hearings this summer.`\
-https://nytimes.com/2025/06/02/us/politics/judge-sept-11-case.html
 
