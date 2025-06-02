@@ -1,4 +1,8 @@
-**Man City pursuing deal to sign Ait Nouri from Wolves**\
+**Braves' hitting still woeful, Elder on replacing Smith-Shawver, Sale on 'Schwelly': 3 takeaways**\
+`Even the recent return of Ronald Acuña Jr. following knee surgery hasn’t done much to improve Atlanta's offensive malaise.`\
+https://nytimes.com/athletic/6396363/2025/06/02/braves-smith-shawver-chris-sale-schwelly/
+
+**Man City pursuing deal to sign Ait-Nouri from Wolves**\
 `Agreements still need to be reached between the clubs and with the 23-year-old — however all parties now expect a move to happen.`\
 https://nytimes.com/athletic/6397034/2025/06/02/man-city-transfers-rayan-ait-nouri/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
 **Long-serving Spurs executive Cullen announces departure**\
 `Cullen joined the Tottenham board in 2006.`\
 https://nytimes.com/athletic/6396969/2025/06/02/tottenham-donna-maria-cullen-exit/
-
-**A Fiery Brief Fueled by Conservatives Helped Put Trump’s Tariffs in Peril**\
-`A coalition including leading figures on the right said the president’s program did violence to the Constitution. One judge cited it eight times.`\
-https://nytimes.com/2025/06/02/us/trump-tariffs-court-brief.html
 
