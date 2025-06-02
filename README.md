@@ -34,7 +34,3 @@ https://nytimes.com/2025/06/02/opinion/trump-era.html
 `The Metropolitan Opera, hoping to revive support for Kyiv, released an excerpt from “The Mothers of Kherson,” about abducted Ukrainian children and their relatives.`\
 https://nytimes.com/2025/06/02/arts/music/metropolitan-opera-the-mother-of-kherson.html
 
-**Economists Question G.O.P. Bill: Why Increase the Deficit in Good Times?**\
-`Huge deficits are already making bond investors nervous. Economists warn that could make it harder to respond to future crises.`\
-https://nytimes.com/2025/06/02/business/government-debt-deficit-recession.html
-

@@ -1,3 +1,11 @@
+**Lions center Frank Ragnow announces retirement**\
+`Ragnow, 29, has announced his retirement from the NFL after seven seasons.`\
+https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retirement/
+
+**Jim Leavitt to be enshrined in South Florida's Hall of Fame**\
+`The program architect's tenure ended in scandal when the school fired him in 2010 after concluding that he grabbed a player by the throat.`\
+https://nytimes.com/athletic/6397876/2025/06/02/south-florida-jim-leavitt-hall-of-fame/
+
 **What if Google Just Broke Itself Up? A Tech Insider Makes the Case.**\
 `Prosecutors aren’t the only ones arguing for a smaller Google. Some critics say it might be better for investors, customers and innovation.`\
 https://nytimes.com/2025/06/02/technology/google-antitrust-breakup.html
