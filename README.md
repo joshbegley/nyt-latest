@@ -1,3 +1,7 @@
+**NBA Finals MVP odds: Can SGA claim the MVP trifecta? He's a massive favorite to do so**\
+`SGA enters the NBA Finals as the favorite to win Finals MVP after snagging league and conference finals MVP. It's not even close. `\
+https://nytimes.com/athletic/6397841/2025/06/02/nba-finals-mvp-odds-shai-gilgeous-alexander/
+
 **Jonathan Joss, ‘King of the Hill’ Voice Actor, Is Fatally Shot by Neighbor, Police Say**\
 `A neighbor who opened fire on the actor during a dispute was charged with murder, the authorities said. Mr. Joss also appeared in “Parks and Recreation.”`\
 https://nytimes.com/2025/06/02/arts/television/jonathan-joss-king-of-the-hill-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397866/2025/06/02/deion-sanders-shedeur-nfl-draft-
 **Submit your Notre Dame questions for Pete Sampson’s mailbag**\
 `What's on your mind about the Fighting Irish?`\
 https://nytimes.com/athletic/6398064/2025/06/02/notre-dame-football-mailbag-questions-20/
-
-**Suns narrow coaching search to Cavs coaches Johnnie Bryant and Jordan Ott**\
-`Bryant and Ott just concluded their first seasons on Kenny Atkinson’s staff, which this season produced an Eastern Conference-best 64 wins.`\
-https://nytimes.com/athletic/6398055/2025/06/02/phoenix-suns-coaching-search-cavaliers/
 
