@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2025/06/02/briefing/ukraine-gaza-tariffs.html
+
 **Champions League 2024-25 review: Games of the tournament, best players and predictions for next season**\
 `Ahmed Walid, Seb Stafford-Bloor, Michael Cox, Mark Carey and Dermot Corrigan review this season's Champions League`\
 https://nytimes.com/athletic/6394377/2025/06/02/champions-league-review-vitinha-yamal-psg-inter/

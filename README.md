@@ -1,3 +1,7 @@
+**What We Know About the Attack in Colorado**\
+`Six people were hospitalized after a man used a “makeshift flamethrower” on a crowd in Boulder, Colo., honoring Israeli hostages in Gaza. The authorities are investigating the attack as an act of terrorism.`\
+https://nytimes.com/2025/06/02/us/boulder-colorado-attack-what-we-know.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/06/02/briefing/ukraine-gaza-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/business/china-rare-earths-united-states-supplies
 **Connections: Sports Edition Coach: Hints for June 2, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6396541/2025/06/02/connections-sports-edition-hints-for-june-2-2025/
-
-**Max Verstappen’s self-inflicted blow to his title hopes undid so much brilliance**\
-`The 2025 F1 championship fight Max Verstappen has been clinging onto so brilliantly is slipping away.`\
-https://nytimes.com/athletic/6396148/2025/06/02/max-verstappen-spanish-grand-prix-penalty-analysis/
 
