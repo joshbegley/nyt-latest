@@ -1,3 +1,7 @@
+**Goalkeeping and set piece coach Knoop leaves Brighton**\
+`Knoop followed head coach Fabian Hurzeler to Brighton from St Pauli last summer.`\
+https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighton/
+
 **Lowetide: 5 reasons why the Oilers should win the Stanley Cup**\
 `Is this the Oilers' time? Key indicators suggest it is so. But there are no guarantees in pursuit of the Stanley Cup.`\
 https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-2025/
@@ -29,8 +33,4 @@ https://nytimes.com/spotlight/travel-secrets
 **Wild re-sign Marcus Johansson to 1-year deal**\
 `Johansson, who would have become a free agent July 1, was being lured by his old Swedish Hockey League club, Färjestad.`\
 https://nytimes.com/athletic/6397758/2025/06/02/wild-re-sign-marcus-johansson-to-1-year-deal/
-
-**Elon Musk Returns to His Tech Empire, Facing Questions of Inattention**\
-`As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
-https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
 
