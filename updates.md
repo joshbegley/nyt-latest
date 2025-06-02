@@ -1,3 +1,11 @@
+**Lowetide: 5 reasons why the Oilers should win the Stanley Cup**\
+`Is this the Oilers' time? Key indicators suggest it is so. But there are no guarantees in pursuit of the Stanley Cup.`\
+https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-2025/
+
+**Consumers Are Financing Their Groceries. What Does It Say About the Economy?**\
+`Increased use of “buy now, pay later” loans may signal shifting consumer habits, but could also be a troubling sign of financial stress.`\
+https://nytimes.com/2025/06/02/business/buy-now-pay-later-groceries.html
+
 **Northern Lights Visible Across Several States**\
 `Timelapse videos captured the colorful display of light, known as the aurora borealis, on Sunday night.`\
 https://nytimes.com/video/us/100000010202733/northern-lights-united-states.html
