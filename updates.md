@@ -1,3 +1,7 @@
+**Inside Paris chaos: Violence and disorder prove familiar footnote to historic game**\
+`The havoc in the capital city shows that even at the most glorious moments in France’s footballing history, tragedy has seldom been far away`\
+https://nytimes.com/athletic/6396351/2025/06/02/paris-violence-psg-champions-league-celebrations/
+
 **Group Chat**\
 `Palestinians checking in on other Palestinians.`\
 https://nytimes.com/2025/06/02/podcasts/group-chat-this-american-life-nyt-audio.html

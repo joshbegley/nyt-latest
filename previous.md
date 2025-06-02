@@ -1,3 +1,7 @@
+**Inside Paris chaos: Violence and disorder prove familiar footnote to historic game**\
+`The havoc in the capital city shows that even at the most glorious moments in France’s footballing history, tragedy has seldom been far away`\
+https://nytimes.com/athletic/6396351/2025/06/02/paris-violence-psg-champions-league-celebrations/
+
 **Group Chat**\
 `Palestinians checking in on other Palestinians.`\
 https://nytimes.com/2025/06/02/podcasts/group-chat-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/world/asia/south-korea-election-security.html
 **South Korea’s New Leader Will Inherit a Divided Country in an Unstable World**\
 `The next president will face daunting challenges to heal a polarized nation and bring stability after months of political turmoil.`\
 https://nytimes.com/2025/06/02/world/asia/south-korea-election-president.html
-
-**Nationalist Is Elected Poland’s President, in a Setback for the Centrist Government**\
-`The victory of Karol Nawrocki, who is backed by the previous right-wing governing party, will complicate Prime Minister Donald Tusk’s efforts to advance his liberal agenda.`\
-https://nytimes.com/2025/06/02/world/europe/poland-presidential-election-karol-nawrocki.html
 
