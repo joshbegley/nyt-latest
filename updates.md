@@ -1,3 +1,7 @@
+**Goalkeeping and set piece coach Knoop leaves Brighton**\
+`Knoop followed head coach Fabian Hurzeler to Brighton from St Pauli last summer.`\
+https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighton/
+
 **Lowetide: 5 reasons why the Oilers should win the Stanley Cup**\
 `Is this the Oilers' time? Key indicators suggest it is so. But there are no guarantees in pursuit of the Stanley Cup.`\
 https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-2025/
