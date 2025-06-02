@@ -10,8 +10,8 @@ https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
 `The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
 https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
 
-**Live Updates: People Burned in Attack on Event for Israeli Hostages in Colorado**\
-`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at people at the weekly event. Police said the motive was under investigation.`\
+**Live Updates: 6 People Burned in Attack on Event for Israeli Hostages in Colorado**\
+`Two were airlifted to a burn unit with serious injuries. Officials said the attacker, who used a “makeshift flamethrower,” was in custody and had yelled, “Free Palestine,” according to witnesses.`\
 https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
 
 **10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\

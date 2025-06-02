@@ -1,3 +1,7 @@
+**Aryna Sabalenka's tennis evolution sees her through at Roland Garros: French Open day 8**\
+`The world No. 1 was under pressure against Amanda Anisimova of the U.S., but her developing ability at the front of the court proved key.`\
+https://nytimes.com/athletic/6395904/2025/06/01/french-open-recap-sabalenka-swiatek-svitolina-zheng-qinwen/
+
 **Welcome to the 5-Day Creativity Challenge**\
 `Today, a fun way to feel less stuck.`\
 https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
