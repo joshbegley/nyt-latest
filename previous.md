@@ -1,3 +1,7 @@
+**Cruz Azul dismantles MLS's Whitecaps to claim Concacaf Champions Cup title**\
+`This was never a contest, as La Maquina claimed a record-tying seventh Concacaf club title in emphatic fashion.`\
+https://nytimes.com/athletic/6396634/2025/06/01/cruz-azul-concacaf-champions-cup-vancouver-whitecaps-mls-liga-mx/
+
 **Royals promoting top prospect Jac Caglianone to MLB less than a year after drafting him: Source**\
 `One of the game’s top offensive talents, Caglianone has torn up the upper levels of the Royals’ minor-league system.`\
 https://nytimes.com/athletic/6396750/2025/06/01/royals-jac-caglianone-mlb-promotion/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
 **America’s Jewish Community Has Faced a Series of Attacks**\
 `The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
 https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
-
-**Live Updates: 6 People Burned in Attack on Event for Israeli Hostages in Colorado**\
-`Two were airlifted to a burn unit with serious injuries. Officials said the attacker, who used a “makeshift flamethrower,” was in custody and had yelled, “Free Palestine,” according to witnesses.`\
-https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
 

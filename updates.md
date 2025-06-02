@@ -1,3 +1,7 @@
+**Cruz Azul dismantles MLS's Whitecaps to claim Concacaf Champions Cup title**\
+`This was never a contest, as La Maquina claimed a record-tying seventh Concacaf club title in emphatic fashion.`\
+https://nytimes.com/athletic/6396634/2025/06/01/cruz-azul-concacaf-champions-cup-vancouver-whitecaps-mls-liga-mx/
+
 **Royals promoting top prospect Jac Caglianone to MLB less than a year after drafting him: Source**\
 `One of the game’s top offensive talents, Caglianone has torn up the upper levels of the Royals’ minor-league system.`\
 https://nytimes.com/athletic/6396750/2025/06/01/royals-jac-caglianone-mlb-promotion/
