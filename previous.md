@@ -1,3 +1,11 @@
+**After Staff Cuts, the National Weather Service Is Hiring Again**\
+`The agency plans to hire more than 100 people after nearly 600 were laid off or retired as part of the governmentwide cuts this year.`\
+https://nytimes.com/2025/06/02/weather/nws-job-cuts-weather-service-hiring.html
+
+**Where Were the Northern Lights We Were Promised?**\
+`A geomagnetic storm that was forecast to produce streaks of colorful light across much of the country was weaker than expected.`\
+https://nytimes.com/2025/06/02/us/northern-lights-storm-sunday.html
+
 **Suspect in Colorado Attack Was Charged With a Hate Crime**\
 `Also, coffee was linked to healthy aging. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/06/02/briefing/suspect-in-colorado-attack-was-charged-with-a-hate-crime.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-tennis-playing
 **Ukraine Says It Unleashed 117 Drones in Attack on Russia: What to Know**\
 `The strike set several aircraft on fire, video showed, and dealt a symbolic blow to Moscow’s relentless bombing campaign.`\
 https://nytimes.com/2025/06/02/world/europe/ukraine-russia-drone-strike-what-to-know.html
-
-**Tuesday Briefing: South Korea Votes**\
-`Plus, box office success for “Lilo & Stitch.”`\
-https://nytimes.com/2025/06/02/briefing/korea-election-ukraine-colorado-terror.html
-
-**Iowa Democrat Will Challenge Ernst After ‘We All Are Going to Die’ Remarks**\
-`J.D. Scholten, a state representative who is also a minor-league baseball pitcher, said he had felt compelled to take on Senator Joni Ernst, a Republican, after her defense of Medicaid cuts.`\
-https://nytimes.com/2025/06/02/us/politics/jd-scholten-joni-ernst-iowa-senate-race.html
 
