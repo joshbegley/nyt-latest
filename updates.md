@@ -1,3 +1,7 @@
+**A Sunday Ritual Turns Into a Smoky Scene of Chaos**\
+`A witness ran to the site of the attack and found people wandering dazed and a friend she said is a Holocaust survivor being helped into an ambulance.`\
+https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
+
 **A Sunday Ritual Turns Into a Scene That ‘Looked Like a War Zone’**\
 `A witness ran to the site of the attack and found smoky chaos, people wandering dazed and a friend she said is a Holocaust survivor being helped into an ambulance.`\
 https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
