@@ -1,3 +1,7 @@
+**Antonio Delgado, Hochul’s No. 2, Will Challenge Her in Governor’s Race**\
+`Mr. Delgado, New York’s lieutenant governor, said he would take on Gov. Kathy Hochul in next year’s Democratic primary because her tenure had lacked “bold, decisive” leadership.`\
+https://nytimes.com/2025/06/02/nyregion/antonio-delgado-governor-hochul.html
+
 **UK Government prepared to take Abramovich to court to extract £2.5bn from Chelsea sale**\
 `The UK Government forced Abramovich to sell the Premier League side after Russia invaded Ukraine in February 2022.`\
 https://nytimes.com/athletic/6398363/2025/06/02/abramovich-chelsea-sale-uk-governement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-an
 **Supreme Court Agrees to Hear Challenge to Illinois Mail-In Ballot Law**\
 `The justices added four cases to their docket for next term, including a lawsuit brought by a conservative group challenging an Illinois law that allows mail ballots to be counted after Election Day.`\
 https://nytimes.com/2025/06/02/us/politics/supreme-court-mail-ballots.html
-
-**Colorado Suspect’s Uncertain Immigration Status Highlights Visa ‘Overstays’**\
-`Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States lawfully and then stayed.`\
-https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html
 

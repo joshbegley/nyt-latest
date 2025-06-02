@@ -1,3 +1,7 @@
+**Antonio Delgado, Hochul’s No. 2, Will Challenge Her in Governor’s Race**\
+`Mr. Delgado, New York’s lieutenant governor, said he would take on Gov. Kathy Hochul in next year’s Democratic primary because her tenure had lacked “bold, decisive” leadership.`\
+https://nytimes.com/2025/06/02/nyregion/antonio-delgado-governor-hochul.html
+
 **UK Government prepared to take Abramovich to court to extract £2.5bn from Chelsea sale**\
 `The UK Government forced Abramovich to sell the Premier League side after Russia invaded Ukraine in February 2022.`\
 https://nytimes.com/athletic/6398363/2025/06/02/abramovich-chelsea-sale-uk-governement/
