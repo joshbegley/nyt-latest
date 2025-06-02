@@ -1,3 +1,7 @@
+**With testimony concluded, Hockey Canada sexual assault trial nears completion**\
+`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants. `\
+https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
+
 **Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
 `The comedian has spent more than 1,600 episodes talking with celebrities like Barack Obama and Robin Williams. The show’s final episode will air this fall.`\
 https://nytimes.com/2025/06/02/arts/marc-maron-wtf-podcast-ends.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397548/2025/06/02/tyler-kleven-ottawa-senators-con
 **Listen:  Which player has the most at stake in the 2025 Stanley Cup Final?**\
 `The Athletic Hockey Show discusses which players have the most at stake in the 2025 Stanley Cup Final.`\
 https://nytimes.com/athletic/6397401/2025/06/02/which-player-has-the-most-at-stake-in-the-2025-stanley-cup-final/
-
-**Supreme Court Turns Down Challenge to Ban on Semiautomatic Rifles**\
-`The case from Maryland was the court’s latest opportunity to apply its recently announced history-based test for assessing the constitutionality of gun control laws.`\
-https://nytimes.com/2025/06/02/us/supreme-court-semiautomatic-rifle-ban.html
 
