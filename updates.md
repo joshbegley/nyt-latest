@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/06/02/opinion/thepoint
+
 **Live Updates: Colorado Attacker Is in U.S. Illegally, Homeland Security Dept. Says**\
 `The suspect is an Egyptian citizen who stayed in the United States after his tourist visa expired in 2023, an official said. Eight people were injured in the attack in Boulder, Colo., on Sunday.`\
 https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
