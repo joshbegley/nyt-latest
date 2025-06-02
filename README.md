@@ -1,3 +1,7 @@
+**A Sunday Ritual Turns Into a Scene That ‘Looked Like a War Zone’**\
+`A witness ran to the site of the attack and found smoky chaos and people wandering dazed.`\
+https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
+
 **Sounders protest MLS's Club World Cup player payout cap, backed by MLSPA**\
 `A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
 https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396370/2025/06/01/vanderbilt-baseball-eliminated-n
 **Padres' Gavin Sheets exits game after collision with outfield wall**\
 `Sheets has been the offensive surprise of the Padres' season, leading the team with 34 RBIs.`\
 https://nytimes.com/athletic/6396485/2025/06/01/padres-gavin-sheets-outfield-wall-collision/
-
-**Cubs cautiously optimistic that Kyle Tucker avoided a season-changing injury**\
-`The Cubs removed Tucker from Sunday's game in the fifth inning, four innings after he jammed his right ring finger on a headfirst slide.`\
-https://nytimes.com/athletic/6396462/2025/06/01/chicago-cubs-kyle-tucker-injury/
 
