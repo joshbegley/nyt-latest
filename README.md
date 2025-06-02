@@ -1,3 +1,11 @@
+**Countering ‘Psychic Numbing’ in the Trump Era**\
+`The psychiatrist Robert Jay Lifton and other readers reflect on the troubling times of President Trump. Also: Thieving chatbots.`\
+https://nytimes.com/2025/06/02/opinion/trump-era.html
+
+**A New Opera Shines Light on Ukrainian Families Separated by War**\
+`The Metropolitan Opera, hoping to revive support for Kyiv, released an excerpt from “The Mothers of Kherson,” about abducted Ukrainian children and their relatives.`\
+https://nytimes.com/2025/06/02/arts/music/metropolitan-opera-the-mother-of-kherson.html
+
 **Economists Question G.O.P. Bill: Why Increase the Deficit in Good Times?**\
 `Huge deficits are already making bond investors nervous. Economists warn that could make it harder to respond to future crises.`\
 https://nytimes.com/2025/06/02/business/government-debt-deficit-recession.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6397335/2025/06/02/pacers-jarace-walker-ankle-injur
 **Before They Were Famous: Do You Know the Early Jobs of These Authors?**\
 `Try this quiz on how five authors made a living before their literary careers took off.`\
 https://nytimes.com/interactive/2025/06/02/books/review/authors-early-jobs.html
-
-**Health Risks From Cannabis May Grow as Users Age**\
-`More older people are using cannabis products regularly, but research suggests their cannabis-related health problems are also on the rise.`\
-https://nytimes.com/2025/06/02/health/cannabis-seniors-health-risks.html
-
-**The Road to Dinner Is Paved With Spice Blends**\
-`Good luck resisting the pan sauce in this 20-minute lemon-pepper chicken breasts recipe.`\
-https://nytimes.com/2025/06/02/dining/the-road-to-dinner-is-paved-with-spice-blends.html
 
