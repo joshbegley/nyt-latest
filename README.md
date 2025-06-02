@@ -1,3 +1,7 @@
+**China Rejects Trump’s Accusation That It Violated Trade Truce**\
+`In response to President Trump’s claim, China said the United States was the one introducing a series of “discriminatory restrictive measures.”`\
+https://nytimes.com/2025/06/02/world/asia/china-trump-trade-truce.html
+
 **Bulletproof Vests and Glass: South Korean Candidate Tightens Security**\
 `After being stabbed last year, the leading presidential contender, Lee Jae-myung, is taking no chances. His main rival says he doesn’t need such protection.`\
 https://nytimes.com/2025/06/02/world/asia/south-korea-election-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/arts/television/love-island-usa-tony-awards.html
 **The New York Times in Print for Monday, June 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/02/todays-new-york-times
-
-**Man Arrested After Attack on Supporters of Israeli Hostages**\
-`Witnesses said a shirtless man threw Molotov cocktails at people attending a community event supporting Israeli hostages in Boulder, Colo.`\
-https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
 
