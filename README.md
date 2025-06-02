@@ -1,3 +1,7 @@
+**Alice Notley, Poet Celebrated for ‘Restless Reinvention,’ Dies at 79**\
+`Once called “our present-day Homer” for her sprawling, experimental epics, she was honored with prizes and was a finalist for the Pulitzer in 1999.`\
+https://nytimes.com/2025/06/02/books/alice-notley-dead.html
+
 **NASCAR Nashville takeaways: Ryan Blaney breaks through, Carson Hocevar closes in on first win**\
 `We can finally stop the Ryan Blaney debate, Carson Hocevar is getting closer to victory lane and more takeaways from Sunday in Nashville.`\
 https://nytimes.com/athletic/6397722/2025/06/02/nascar-nashville-takeaways-ryan-blaney-carson-hocevar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398118/2025/06/02/cleveland-browns-offense-joel-bi
 **How the Lightning benefit short- and long-term from 6-year deal to keep Yanni Gourde through age 39**\
 `The Lightning got Gourde to agree to a six-year extension carrying a $2.33 million cap hit — a deal with no real comparables around the NHL.`\
 https://nytimes.com/athletic/6398176/2025/06/02/lightning-sign-yanni-gourde-age-39/
-
-**Introducing ‘The Protocol’**\
-`Coming June 5: A six-part podcast exploring the origins of medical treatment for transgender young people, and how the care got pulled into a political fight that could end it in the United States.`\
-https://nytimes.com/2025/06/02/podcasts/trans-gender-care-protocol.html
 
