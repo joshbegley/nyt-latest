@@ -1,3 +1,11 @@
+**Senators re-sign defenceman Tyler Kleven to 2-year, $3.2 million extension**\
+`Kleven, who recorded 10 points over 79 games in his first NHL season, was slated to be a restricted free agent this summer.`\
+https://nytimes.com/athletic/6397548/2025/06/02/tyler-kleven-ottawa-senators-contract-nhl-free-agency/
+
+**Listen:  Which player has the most at stake in the 2025 Stanley Cup Final?**\
+`The Athletic Hockey Show discusses which players have the most at stake in the 2025 Stanley Cup Final.`\
+https://nytimes.com/athletic/6397401/2025/06/02/which-player-has-the-most-at-stake-in-the-2025-stanley-cup-final/
+
 **Supreme Court Turns Down Challenge to Ban on Semiautomatic Rifles**\
 `The case from Maryland was the court’s latest opportunity to apply its recently announced history-based test for assessing the constitutionality of gun control laws.`\
 https://nytimes.com/2025/06/02/us/supreme-court-semiautomatic-rifle-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
 **French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
 `Boisson is the first French woman into the Roland Garros quarterfinals since 2017.`\
 https://nytimes.com/athletic/6397380/2025/06/02/tennis-french-open-lois-boisson-quarterfinals-pegula-result-analysis/
-
-**The Next Phase of New York City’s ‘Trash Revolution’ Is Here**\
-`Large residential buildings in West Harlem are now required to put trash in large bins on the street instead of in piles on the curb. The mayor wants to expand the idea citywide.`\
-https://nytimes.com/2025/06/02/nyregion/sanitation-bins-garbage-nyc.html
-
-**John Brenkus, Who Merged Sports and Science on TV, Dies at 53**\
-`His “Sport Science” program was whimsical and fun, showing how golfers can drive balls so far and how snowboarders’ quad flips generated G-forces.`\
-https://nytimes.com/2025/06/02/sports/john-brenkus-dies.html
 
