@@ -1,3 +1,15 @@
+**Visa ‘Overstays’ May Not Get Much Attention but They Are Common**\
+`Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States with a visa.`\
+https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html
+
+**Guard Joel Bitonio says Browns have to 'establish our standard' as a run-focused offense**\
+`Bitonio said much of the behind-the-scenes offseason work points to Cleveland returning to Kevin Stefanski’s offensive roots. `\
+https://nytimes.com/athletic/6398118/2025/06/02/cleveland-browns-offense-joel-bitonio/
+
+**How the Lightning benefit short and long term from 6-year deal to keep Yanni Gourde through age 39**\
+`The Lightning got Gourde to agree to a six-year extension carrying a $2.33 million cap hit — a deal with no real comparables around the NHL.`\
+https://nytimes.com/athletic/6398176/2025/06/02/lightning-sign-yanni-gourde-age-39/
+
 **Introducing ‘The Protocol’**\
 `Coming June 5: A six-part podcast exploring the origins of medical treatment for transgender young people, and how the care got pulled into a political fight that could end it in the United States.`\
 https://nytimes.com/2025/06/02/podcasts/trans-gender-care-protocol.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6386230/2025/06/02/tottenham-ryan-mason-west-brom-m
 **Fourth Military Judge in Sept. 11 Case Retires**\
 `It is not clear whether the chief judge now handling the case at Guantánamo Bay is serving as a caretaker or will hold hearings this summer.`\
 https://nytimes.com/2025/06/02/us/politics/judge-sept-11-case.html
-
-**Texas shuts out Tennessee to reach third WCWS finals in four years**\
-`The Longhorns (54-11), who lost in the championship series in 2022 and 2024, improved to 3-0 in Oklahoma City.`\
-https://nytimes.com/athletic/6398115/2025/06/02/womens-college-world-series-takeaways-semifinals-results/
-
-**‘Step Brothers’ Created the Catalina Wine Mixer. Catalina Island Made It Real.**\
-`The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy didn’t exist — until Catalina Island made it so decade ago.`\
-https://nytimes.com/2025/06/02/style/step-brothers-catalina-wine-mixer.html
-
-**Deion Sanders was ‘hurt’ by narratives around Shedeur’s draft slide**\
-`Shedeur Sanders entered the 2025 NFL Draft widely regarded as a top-two quarterback with eventual No. 1 pick Cam Ward.`\
-https://nytimes.com/athletic/6397866/2025/06/02/deion-sanders-shedeur-nfl-draft-slide/
 
