@@ -1,3 +1,7 @@
+**Alasdair MacIntyre, Philosopher Who Saw a ‘New Dark Ages,’ Dies at 96**\
+`A Marxist-turned-Catholic who denounced individualism, he provoked and inspired fellow thinkers and gained a degree of popularity unusual for a moral philosopher.`\
+https://nytimes.com/2025/06/02/books/alasdair-macintyre-dead.html
+
 **UK government faces inquiry into independent regulator chair appointment**\
 `David Kogan was revealed as the preferred candidate to be appointed new independent football regulator chairman in May.`\
 https://nytimes.com/athletic/6397124/2025/06/02/independent-regulator-government-inquiry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397135/2025/06/02/magnus-carlsen-gukesh-dommaraju-
 **The Pulse: Let’s talk about NBA Finals ratings**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6396748/2025/06/02/knicks-pacers-finals-ratings-the-pulse/
-
-**Coco Gauff eases into French Open quarterfinals after serene first week**\
-`Gauff's biggest moment of adversity in a serene French Open has been forgetting her rackets, but tougher tests await.`\
-https://nytimes.com/athletic/6397128/2025/06/02/tennis-french-open-coco-gauff/
 
