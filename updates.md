@@ -1,3 +1,7 @@
+**Alice Notley, Poet Celebrated for ‘Restless Reinvention,’ Dies at 79**\
+`Once called “our present-day Homer” for her sprawling, experimental epics, she was honored with prizes and was a finalist for the Pulitzer in 1999.`\
+https://nytimes.com/2025/06/02/books/alice-notley-dead.html
+
 **NASCAR Nashville takeaways: Ryan Blaney breaks through, Carson Hocevar closes in on first win**\
 `We can finally stop the Ryan Blaney debate, Carson Hocevar is getting closer to victory lane and more takeaways from Sunday in Nashville.`\
 https://nytimes.com/athletic/6397722/2025/06/02/nascar-nashville-takeaways-ryan-blaney-carson-hocevar/
