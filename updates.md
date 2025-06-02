@@ -1,3 +1,15 @@
+**Before They Were Famous: Do You Know the Early Jobs of These Authors?**\
+`Try this quiz on how five authors made a living before their literary careers took off.`\
+https://nytimes.com/interactive/2025/06/02/books/review/authors-early-jobs.html
+
+**Health Risks From Cannabis May Grow as Users Age**\
+`More older people are using cannabis products regularly, but research suggests their cannabis-related health problems are also on the rise.`\
+https://nytimes.com/2025/06/02/health/cannabis-seniors-health-risks.html
+
+**The Road to Dinner Is Paved With Spice Blends**\
+`Good luck resisting the pan sauce in this 20-minute lemon-pepper chicken breasts recipe.`\
+https://nytimes.com/2025/06/02/dining/the-road-to-dinner-is-paved-with-spice-blends.html
+
 **Heavy Rain and Severe Storms Expected to Sweep Across Central U.S.**\
 `Damaging winds and large hail are forecast for the Plains and the Midwest, and the remnants of Tropical Storm Alvin could bring excessive rainfall and flash flooding.`\
 https://nytimes.com/2025/06/02/weather/rain-storms-forecast-us.html
