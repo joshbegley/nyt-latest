@@ -1,3 +1,7 @@
+**Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
+`The comedian has spent more than 1,600 episodes talking with celebrities like Barack Obama and Robin Williams. The show’s final episode will air this fall.`\
+https://nytimes.com/2025/06/02/arts/marc-maron-wtf-podcast-ends.html
+
 **Pacers' Jarace Walker to miss first 2 NBA Finals games with ankle injury**\
 `On Saturday, Walker jumped to contest a shot and rolled his ankle almost to the floor. He's been using crutches to walk since then.`\
 https://nytimes.com/athletic/6397335/2025/06/02/pacers-jarace-walker-ankle-injury-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397401/2025/06/02/which-player-has-the-most-at-sta
 **Supreme Court Turns Down Challenge to Ban on Semiautomatic Rifles**\
 `The case from Maryland was the court’s latest opportunity to apply its recently announced history-based test for assessing the constitutionality of gun control laws.`\
 https://nytimes.com/2025/06/02/us/supreme-court-semiautomatic-rifle-ban.html
-
-**Sarri returns as Lazio head coach**\
-`The Italian spent almost three years in charge of Lazio between 2021 and 2024, finishing second in the 2022-23 Serie A season.`\
-https://nytimes.com/athletic/6395433/2025/06/02/maurizio-sarri-lazio-manager/
 
