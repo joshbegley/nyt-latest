@@ -1,3 +1,11 @@
+**The Cubs aren't waiting until the trade deadline to make more moves for pitching**\
+`It is, and always will be, about pitching. "The quest for opportunities in pitching," manager Craig Counsell said, "it's 365 days (a year)."`\
+https://nytimes.com/athletic/6398564/2025/06/02/cubs-trade-deadline-pitching/
+
+**Inebriated bettor behind death threats to Astros' McCullers, family: Police**\
+`The man told investigators he lost money wagering on the Astros and was "frustrated and inebriated."`\
+https://nytimes.com/athletic/6398631/2025/06/02/bettor-astros-lance-mccullers-death-threats/
+
 **Do You Have Questions About the Economy? Ask The Morning.**\
 `A future edition of the newsletter will answer readers’ questions.`\
 https://nytimes.com/2025/06/02/briefing/do-you-have-questions-about-the-economy-ask-the-morning.html

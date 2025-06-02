@@ -1,3 +1,11 @@
+**The Cubs aren't waiting until the trade deadline to make more moves for pitching**\
+`It is, and always will be, about pitching. "The quest for opportunities in pitching," manager Craig Counsell said, "it's 365 days (a year)."`\
+https://nytimes.com/athletic/6398564/2025/06/02/cubs-trade-deadline-pitching/
+
+**Inebriated bettor behind death threats to Astros' McCullers, family: Police**\
+`The man told investigators he lost money wagering on the Astros and was "frustrated and inebriated."`\
+https://nytimes.com/athletic/6398631/2025/06/02/bettor-astros-lance-mccullers-death-threats/
+
 **Do You Have Questions About the Economy? Ask The Morning.**\
 `A future edition of the newsletter will answer readers’ questions.`\
 https://nytimes.com/2025/06/02/briefing/do-you-have-questions-about-the-economy-ask-the-morning.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/02/technology/ftc-investigation-advertising-boycotts
 **After Staff Cuts, the National Weather Service Is Hiring Again**\
 `The agency plans to hire more than 100 people after nearly 600 were laid off or retired as part of the governmentwide cuts this year.`\
 https://nytimes.com/2025/06/02/weather/nws-job-cuts-weather-service-hiring.html
-
-**What Happened to the Northern Lights?**\
-`A geomagnetic storm that was forecast to produce streaks of colorful light across much of the country was weaker than expected.`\
-https://nytimes.com/2025/06/02/us/northern-lights-storm-sunday.html
-
-**Suspect in Colorado Attack Was Charged With a Hate Crime**\
-`Also, coffee was linked to healthy aging. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/06/02/briefing/suspect-in-colorado-attack-was-charged-with-a-hate-crime.html
 
