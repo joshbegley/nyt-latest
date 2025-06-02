@@ -1,3 +1,7 @@
+**South Korea’s New Leader Will Inherit a Divided Country in an Unstable World**\
+`The next president will face daunting challenges to heal a polarized nation and bring stability after months of political turmoil.`\
+https://nytimes.com/2025/06/02/world/asia/south-korea-election-president.html
+
 **Nationalist Is Elected Poland’s President, in a Setback for the Centrist Government**\
 `The victory of Karol Nawrocki, who is backed by the previous right-wing governing party, will complicate Prime Minister Donald Tusk’s efforts to advance his liberal agenda.`\
 https://nytimes.com/2025/06/02/world/europe/poland-presidential-election-karol-nawrocki.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
 **What We Know About the Attack in Colorado**\
 `Six people were hospitalized after a man used a “makeshift flamethrower” on a crowd in Boulder, Colo., honoring Israeli hostages in Gaza. The authorities are investigating the attack as an act of terrorism.`\
 https://nytimes.com/2025/06/02/us/boulder-colorado-attack-what-we-know.html
-
-**Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/06/02/briefing/ukraine-gaza-tariffs.html
 
