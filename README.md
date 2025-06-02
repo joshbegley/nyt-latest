@@ -1,3 +1,7 @@
+**Neymar apologises after red card for handball goal in possible final Santos game**\
+`The 33-year-old was sent off for attempting to score with his hand in what could be his final game for Santos.`\
+https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
+
 **Long-serving Spurs executive Cullen announces departure**\
 `Cullen joined the Tottenham board in 2006.`\
 https://nytimes.com/athletic/6396969/2025/06/02/tottenham-donna-maria-cullen-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/nyregion/cuomo-super-pac-billionaire-donations.ht
 **A Novel Highlights a Dark Korean History and a Shattered Family’s**\
 `“Flashlight,” by Susan Choi, spans several decades and nations to tell a story of exile in its multiple forms.`\
 https://nytimes.com/2025/06/02/books/review/susan-choi-flashlight.html
-
-**How ‘Lilo & Stitch’ Became One of the Most Profitable Movies in Years**\
-`The film was originally aimed for Disney+. But it was rerouted to a theatrical release and is on pace for at least $950 million in ticket sales.`\
-https://nytimes.com/2025/06/02/business/media/lilo-and-stitch-ticket-sales-disney.html
 
