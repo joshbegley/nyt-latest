@@ -1,3 +1,7 @@
+**A view from the top of Maja Stark's U.S. Women's Open win**\
+`Stark played the back nine in even par Sunday to seal her first major victory in a two-shot rout that felt like more.`\
+https://nytimes.com/athletic/6396556/2025/06/01/how-maja-stark-won-u-s-open/
+
 **A Sunday Ritual Turns Into a Scene That ‘Looked Like a War Zone’**\
 `A witness ran to the site of the attack and found smoky chaos and people wandering dazed.`\
 https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396361/2025/06/01/tennessee-ucla-softball-wcws/
 **Vanderbilt baseball becomes first No. 1 overall seed to not make a regional final**\
 `Wright State will play Louisville later Sunday in the regional final.`\
 https://nytimes.com/athletic/6396370/2025/06/01/vanderbilt-baseball-eliminated-no-1-seed-ncaa-regionals/
-
-**Padres' Gavin Sheets exits game after collision with outfield wall**\
-`Sheets has been the offensive surprise of the Padres' season, leading the team with 34 RBIs.`\
-https://nytimes.com/athletic/6396485/2025/06/01/padres-gavin-sheets-outfield-wall-collision/
 
