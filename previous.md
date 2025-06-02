@@ -1,3 +1,11 @@
+**In Russia Airfield Attacks, Ukraine Aims for Strategic and Symbolic Blow**\
+`While the full extent of the damage is still unknown, the operation shows how Kyiv has been able to adapt and evolve over the war using drones.`\
+https://nytimes.com/2025/06/02/world/europe/ukraine-russia-strikes.html
+
+**Listen: Could PSG dominate European football for years to come?**\
+`James Richardson was joined by Duncan Alexander, Daniel Storey, and Tim Spiers to debate how legendary this PSG side could become in Europe`\
+https://nytimes.com/athletic/6397081/2025/06/02/psg-luis-enrique-champions-league-inter/
+
 **Presenting the Twins' All-Quarter Century Team, the best in Minnesota since 2000**\
 `Selecting a Twins All-Quarter Century Team consisting of 10 hitters and six pitchers who were Minnesota's best players from 2000 to 2025.`\
 https://nytimes.com/athletic/6395576/2025/06/02/twins-quarter-century-team-2000-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6396797/2025/06/02/wnba-power-rankings-new-york-lib
 **C. Notes: If the Reds sell at the deadline, which players could they make available?**\
 `Plus notes on the Reds sending former closer Alexis Díaz to the Dodgers, injury updates and how the minor-league teams are doing.`\
 https://nytimes.com/athletic/6396498/2025/06/02/reds-trade-deadline-sellers-2/
-
-**Astros takeaways: Alvarez fallout continues, Meyers adjusts swing and more**\
-`Plus notes on Jacob Melton's role after the 24-year-old went 1-for-3 in his big-league debut.`\
-https://nytimes.com/athletic/6396389/2025/06/02/astros-yordan-alvarez-injury-jake-meyers-jacob-melton/
-
-**Trained since childhood to never swing and miss, A's phenom Jacob Wilson raps out hit after hit**\
-`His .357 average is the result of an intensive contact-oriented baseball upbringing fostered by his father, Jack, a longtime MLB shortstop`\
-https://nytimes.com/athletic/6378338/2025/06/02/jacob-wilson-athletics-rookie-shortstop-hits/
 

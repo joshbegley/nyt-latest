@@ -1,3 +1,11 @@
+**In Russia Airfield Attacks, Ukraine Aims for Strategic and Symbolic Blow**\
+`While the full extent of the damage is still unknown, the operation shows how Kyiv has been able to adapt and evolve over the war using drones.`\
+https://nytimes.com/2025/06/02/world/europe/ukraine-russia-strikes.html
+
+**Listen: Could PSG dominate European football for years to come?**\
+`James Richardson was joined by Duncan Alexander, Daniel Storey, and Tim Spiers to debate how legendary this PSG side could become in Europe`\
+https://nytimes.com/athletic/6397081/2025/06/02/psg-luis-enrique-champions-league-inter/
+
 **Presenting the Twins' All-Quarter Century Team, the best in Minnesota since 2000**\
 `Selecting a Twins All-Quarter Century Team consisting of 10 hitters and six pitchers who were Minnesota's best players from 2000 to 2025.`\
 https://nytimes.com/athletic/6395576/2025/06/02/twins-quarter-century-team-2000-2025/
