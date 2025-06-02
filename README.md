@@ -1,3 +1,7 @@
+**Why Women Are Leaving This Broadway Show in Tears**\
+`“John Proctor is the Villain” turns the idea that MeToo was a witch hunt inside out.`\
+https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
+
 **Man Stabs 12 in Spree at Oregon Homeless Shelter, Police Say**\
 `The attack, in which two of shelter staff members were injured, does not appear to be targeted, the authorities said. A suspect was in custody.`\
 https://nytimes.com/2025/06/02/us/stabbing-oregon-homeless-shelter.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010203821/mount-etna-eruption.html
 **Eagles RB Saquon Barkley lands Madden NFL 26 cover**\
 `Barkley is the second Eagles player to land on the cover of Madden and the seventh running back to be chosen.`\
 https://nytimes.com/athletic/6398507/2025/06/02/nfl-saquon-barkley-madden-cover/
-
-**Fresh, rested Oilers feel ready for Stanley Cup Final — perhaps none more than Evander Kane**\
-`After missing the entire regular season, Kane has five goals and 11 points in 15 playoff games.`\
-https://nytimes.com/athletic/6398517/2025/06/02/evander-kane-oilers-stanley-cup-final/
 
