@@ -1,3 +1,7 @@
+**Kovacic to have Achilles surgery, expected to miss around three months**\
+`The 31-year-old is set to miss City’s Club World Cup campaign, which begins on June 18 against Moroccan side Wydad AC.`\
+https://nytimes.com/athletic/6397063/2025/06/02/manchester-city-mateo-kovacic-surgery/
+
 **Vikings’ sneakiest big move of the offseason? The late-night trade for RB Jordan Mason**\
 `Solidifying the trenches got the headlines for the Vikings in free agency, but the addition of Mason should make a difference on offense.`\
 https://nytimes.com/athletic/6396128/2025/06/02/jordan-mason-vikings-trade-rb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393261/2025/06/02/ben-johnson-bears-lions-nfl-coac
 **Guardians takeaways: Shane Bieber's return, José Ramírez's numbers, Julio Franco's timelessness**\
 `Cleveland's rotation is trending in the right direction. Bieber could give the staff a jolt.`\
 https://nytimes.com/athletic/6395122/2025/06/02/guardians-takeaways-shane-bieber-jose-ramirez-julio-franco/
-
-**Updated college hoops Top 25: Purdue, Houston lead after transfers, draft decisions**\
-`Now that the NBA Draft withdrawal deadline for college players has passed and only one unsigned player remains in our top 100 transfers list, most rosters are set for the 2025-26 men’s college basketball season.`\
-https://nytimes.com/athletic/6393331/2025/06/02/college-basketball-top-teams-transfers-draft-deadline/
 
