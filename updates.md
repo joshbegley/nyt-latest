@@ -1,3 +1,7 @@
+**NASCAR Nashville takeaways: Ryan Blaney breaks through, Carson Hocevar closes in on first win**\
+`We can finally stop the Ryan Blaney debate, Carson Hocevar is getting closer to victory lane and more takeaways from Sunday in Nashville.`\
+https://nytimes.com/athletic/6397722/2025/06/02/nascar-nashville-takeaways-ryan-blaney-carson-hocevar/
+
 **Trump Administration to Open Alaska Wilderness to Drilling and Mining**\
 `The Interior Department plans to repeal Biden-era protections across the state’s ecologically sensitive North Slope.`\
 https://nytimes.com/2025/06/02/climate/national-petroleum-reserve-alaska-trump-drilling.html
