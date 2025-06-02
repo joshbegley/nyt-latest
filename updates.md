@@ -1,3 +1,11 @@
+**F.T.C. Investigates Ad Groups and Watchdogs, Alleging Boycott Collusion**\
+`The regulator is looking into whether roughly a dozen groups violated antitrust law by coordinating boycotts among advertisers.`\
+https://nytimes.com/2025/06/02/technology/ftc-investigation-advertising-boycotts.html
+
+**What Happened to the Northern Lights?**\
+`A geomagnetic storm that was forecast to produce streaks of colorful light across much of the country was weaker than expected.`\
+https://nytimes.com/2025/06/02/us/northern-lights-storm-sunday.html
+
 **After Staff Cuts, the National Weather Service Is Hiring Again**\
 `The agency plans to hire more than 100 people after nearly 600 were laid off or retired as part of the governmentwide cuts this year.`\
 https://nytimes.com/2025/06/02/weather/nws-job-cuts-weather-service-hiring.html
