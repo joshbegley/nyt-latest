@@ -1,3 +1,7 @@
+**Herbert Migdoll, 90, Dies; Joffrey Ballet Photographer for Half- Century**\
+`His photos and graphic design for the Chicago-based company cemented its artistic reputation. He also painted and served as Dance Magazine’s art director.`\
+https://nytimes.com/2025/06/02/arts/dance/herbert-migdoll-dead.html
+
 **Trump Talks a Lot About Antisemitism, With a Notable Caveat**\
 `The president made no reference to Jews after the Colorado attack.`\
 https://nytimes.com/2025/06/02/us/politics/trump-jews-antisemitism-colorado-attack.html
