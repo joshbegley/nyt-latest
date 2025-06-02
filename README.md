@@ -1,3 +1,7 @@
+**French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
+`Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
+https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-mirra-andreeva-daria-kasatkina-and-tennis-friendships/
+
 **Ukraine Says It Unleashed 117 Drones in Attack on Russia: What to Know**\
 `The strike set several aircraft on fire, video showed, and dealt a symbolic blow to Moscow’s relentless bombing campaign.`\
 https://nytimes.com/2025/06/02/world/europe/ukraine-russia-drone-strike-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/technology/david-cope-dead-ai-music.html
 **Police Seek Answers in Fatal Shooting of Teen Campers in Arizona National Forest**\
 `Investigators are treating the deaths of Pandora Kjolsrud, 18, and Evan Clark, 17, as homicides. Relatives said they had gone camping after the end of the school year.`\
 https://nytimes.com/2025/06/02/us/arizona-teenagers-shot-forest.html
-
-**What we learned at Patriots OTAs: Stefon Diggs is back, the playbook looks different**\
-`Diggs was at practice following his strange viral video, but Josh McDaniels' new-look offense was perhaps the bigger story on Monday.`\
-https://nytimes.com/athletic/6398341/2025/06/02/patriots-otas-stefon-diggs-josh-mcdaniels/
 
