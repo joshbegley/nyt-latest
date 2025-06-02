@@ -1,3 +1,7 @@
+**Transfers TLDR: Frimpong to Liverpool – all you need to know**\
+`Liverpool have announced the signing of full-back Frimpong from Bayer Leverkusen - here's all you need to know about the move...`\
+https://nytimes.com/athletic/6397236/2025/06/02/jeremie-frimpong-liverpool-transfers-tldr/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/06/02/opinion/thepoint
@@ -6,8 +10,8 @@ https://nytimes.com/live/2025/06/02/opinion/thepoint
 `The country’s government is centrist, with deep ties to Brussels. Its new president is a Trump-backed nationalist. That reflects a broader struggle.`\
 https://nytimes.com/2025/06/02/world/europe/poland-president-election-results.html
 
-**Live Updates: Colorado Attacker Is in U.S. Illegally, Homeland Security Dept. Says**\
-`The suspect is an Egyptian citizen who stayed in the United States after his tourist visa expired in 2023, an official said. Eight people were injured in the attack in Boulder, Colo., on Sunday.`\
+****\
+``\
 https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
 
 **French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/boulder-c
 **No Corrections: June 2, 2025**\
 `No corrections appeared in print on Monday, June 2, 2025.`\
 https://nytimes.com/2025/06/02/pageoneplus/no-corrections-june-2-2025.html
-
-**Aston Villa confirm appointment of ex-Juventus exec Francesco Calvo**\
-`Calvo's predecessor, Chris Heck, left the club at the end of the season.`\
-https://nytimes.com/athletic/6397132/2025/06/02/aston-villa-francesco-calvo-appointment/
 

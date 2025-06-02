@@ -1,3 +1,11 @@
+**Transfers TLDR: Frimpong to Liverpool – all you need to know**\
+`Liverpool have announced the signing of full-back Frimpong from Bayer Leverkusen - here's all you need to know about the move...`\
+https://nytimes.com/athletic/6397236/2025/06/02/jeremie-frimpong-liverpool-transfers-tldr/
+
+****\
+``\
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/06/02/opinion/thepoint
