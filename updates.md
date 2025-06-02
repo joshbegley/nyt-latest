@@ -1,3 +1,11 @@
+**Why Anders Sörensen chose to stay with the Blackhawks after Jeff Blashill took his job**\
+`Sörensen's resume could have landed him another job in the NHL, AHL or Sweden. Instead, he stuck around as an assistant on Blashill's staff.`\
+https://nytimes.com/athletic/6398248/2025/06/02/blackhawks-anders-sorensen-jeff-blashill/
+
+**Colorado Suspect’s Uncertain Immigration Status Highlights Visa ‘Overstays’**\
+`Unlawful border crossings dominate the political debate about immigration. But estimates suggest 40 percent of undocumented people entered the United States lawfully and then stayed.`\
+https://nytimes.com/2025/06/02/us/visa-overstays-colorado-attack.html
+
 **Alice Notley, Poet Celebrated for ‘Restless Reinvention,’ Dies at 79**\
 `Once called “our present-day Homer” for her sprawling, experimental epics, she was honored with prizes and was a finalist for the Pulitzer in 1999.`\
 https://nytimes.com/2025/06/02/books/alice-notley-dead.html
