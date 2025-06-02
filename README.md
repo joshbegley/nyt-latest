@@ -1,3 +1,7 @@
+**Jazz hiring Austin Ainge as president of basketball operations**\
+`Ainge, 43, spent 16 years in the Boston Celtics organization, including six years as the assistant general manager`\
+https://nytimes.com/athletic/6397511/2025/06/02/utah-jazz-hire-austin-ainge-president-celtics/
+
 **Joni Ernst Tries to Go MAGA**\
 `Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks like he’s trying too hard.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
@@ -7,7 +11,7 @@ https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
 https://nytimes.com/athletic/6397383/2025/06/02/thunder-pacers-nba-finals-preview-inside-the-nba-tnt-espn-the-bounce/
 
 **With testimony concluded, Hockey Canada sexual assault trial nears completion**\
-`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants. `\
+`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants.`\
 https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
 
 **Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/dining/the-road-to-dinner-is-paved-with-spice-ble
 **Heavy Rain and Severe Storms Expected to Sweep Across Central U.S.**\
 `Damaging winds and large hail are forecast for the Plains and the Midwest, and the remnants of Tropical Storm Alvin could bring excessive rainfall and flash flooding.`\
 https://nytimes.com/2025/06/02/weather/rain-storms-forecast-us.html
-
-**THE BAT X fantasy baseball cheat sheet: Stream Ronny Henriquez, trade for Gunnar Henderson**\
-`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6397282/2025/06/02/the-bat-x-fantasy-baseball-cheat-sheet-ronny-henriquez/
 
