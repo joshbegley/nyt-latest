@@ -1,3 +1,7 @@
+**With testimony concluded, Hockey Canada sexual assault trial nears completion**\
+`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants. `\
+https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
+
 **Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
 `The comedian has spent more than 1,600 episodes talking with celebrities like Barack Obama and Robin Williams. The show’s final episode will air this fall.`\
 https://nytimes.com/2025/06/02/arts/marc-maron-wtf-podcast-ends.html
