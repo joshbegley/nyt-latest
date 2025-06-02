@@ -1,3 +1,7 @@
+**Man United fans' survey: Your views on Ruben Amorim, INEOS and the players**\
+`The ownership, the head coach, the future - have your say on the state the club finds itself in.`\
+https://nytimes.com/athletic/6391411/2025/06/02/man-united-fan-survey-amorim-ineos/
+
 **Kovacic to have Achilles surgery, expected to miss around three months**\
 `The 31-year-old is set to miss City’s Club World Cup campaign, which begins on June 18 against Moroccan side Wydad AC.`\
 https://nytimes.com/athletic/6397063/2025/06/02/manchester-city-mateo-kovacic-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6390327/2025/06/02/college-football-recruiting-rank
 **How the low point of Ben Johnson's coaching career led to his meteoric NFL rise**\
 `Six years after he was out of work in the NFL, Johnson is the head coach of the Chicago Bears.`\
 https://nytimes.com/athletic/6393261/2025/06/02/ben-johnson-bears-lions-nfl-coaching-career/
-
-**Guardians takeaways: Shane Bieber's return, José Ramírez's numbers, Julio Franco's timelessness**\
-`Cleveland's rotation is trending in the right direction. Bieber could give the staff a jolt.`\
-https://nytimes.com/athletic/6395122/2025/06/02/guardians-takeaways-shane-bieber-jose-ramirez-julio-franco/
 

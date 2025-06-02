@@ -1,3 +1,7 @@
+**Man United fans' survey: Your views on Ruben Amorim, INEOS and the players**\
+`The ownership, the head coach, the future - have your say on the state the club finds itself in.`\
+https://nytimes.com/athletic/6391411/2025/06/02/man-united-fan-survey-amorim-ineos/
+
 **Kovacic to have Achilles surgery, expected to miss around three months**\
 `The 31-year-old is set to miss City’s Club World Cup campaign, which begins on June 18 against Moroccan side Wydad AC.`\
 https://nytimes.com/athletic/6397063/2025/06/02/manchester-city-mateo-kovacic-surgery/
