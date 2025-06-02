@@ -1,3 +1,12 @@
+**‘Step Brothers’ Created the Catalina Wine Mixer. Catalina Island Made It Real.**\
+`The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy, didn’t exist, until Catalina Island made it so decade ago.`\
+https://nytimes.com/2025/06/02/style/step-brothers-catalina-wine-mixer.html
+
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
 `Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
 `\

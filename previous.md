@@ -1,3 +1,7 @@
+**‘Step Brothers’ Created the Catalina Wine Mixer. Catalina Island Made It Real.**\
+`The Catalina Wine Mixer, a fictional event that played a pivotal role in the 2008 Will Ferrell comedy, didn’t exist, until Catalina Island made it so decade ago.`\
+https://nytimes.com/2025/06/02/style/step-brothers-catalina-wine-mixer.html
+
 **Deion Sanders was ‘hurt’ by narratives around Shedeur’s draft slide**\
 `Shedeur Sanders entered the 2025 NFL Draft widely regarded as a top-two quarterback with eventual No. 1 pick Cam Ward.`\
 https://nytimes.com/athletic/6397866/2025/06/02/deion-sanders-shedeur-nfl-draft-slide/
@@ -34,8 +38,4 @@ https://nytimes.com/video/world/middleeast/100000010202537/gaza-israel-war-strik
 **Goalkeeping and set piece coach Knoop leaves Brighton**\
 `Knoop followed head coach Fabian Hurzeler to Brighton from St Pauli last summer.`\
 https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighton/
-
-**Lowetide: 5 reasons why the Oilers should win the Stanley Cup**\
-`Is this the Oilers' time? Key indicators suggest it is so. But there are no guarantees in pursuit of the Stanley Cup.`\
-https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-2025/
 
