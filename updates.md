@@ -1,3 +1,7 @@
+**Giants takeaways: Tough pitching decisions and a glimmer of offensive hope after Marlins series**\
+`The Giants' pitching has helped prop up an offense that has failed to score more than four runs for 14 straight games.`\
+https://nytimes.com/athletic/6394078/2025/06/01/sf-giants-pitching-decisions-offfense/
+
 **Memorial Cup Final takeaways: Knights defeat Tigers, win third CHL title**\
 `The London Knights were led by captain Denver Barkey's two goals, Sam Dickinson's three assists and Easton Cowan's game-winner.`\
 https://nytimes.com/athletic/6388506/2025/06/01/memorial-cup-london-medicine-hat-takeaways/
