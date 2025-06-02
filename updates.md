@@ -1,3 +1,7 @@
+**Welcome to the 5-Day Creativity Challenge**\
+`Today, a fun way to feel less stuck.`\
+https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
+
 **America’s Jewish Community Has Faced a Series of Attacks**\
 `The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
 https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html

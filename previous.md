@@ -1,3 +1,7 @@
+**Welcome to the 5-Day Creativity Challenge**\
+`Today, a fun way to feel less stuck.`\
+https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
+
 **America’s Jewish Community Has Faced a Series of Attacks**\
 `The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
 https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396366/2025/06/01/phillies-defense-bryce-harper-br
 **Renée Victor, Actress Who Voiced Abuelita in ‘Coco,’ Dies at 86**\
 `She had many memorable roles in her decades-long career, including Lupita in the television series “Weeds.”`\
 https://nytimes.com/2025/06/01/arts/renee-victor-dead.html
-
-**Wild and Marco Rossi remain at contract impasse as trade possibilities emerge: 'Only time will tell'**\
-`“There clearly is a difference of opinion with respect to Marco’s value,” Rossi’s agent tells The Athletic on Sunday.`\
-https://nytimes.com/athletic/6396355/2025/06/01/wild-marco-rossi-contract-trade/
 
