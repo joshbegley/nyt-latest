@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6398507/2025/06/02/nfl-saquon-barkley-madden-cover/
 `After missing the entire regular season, Kane has five goals and 11 points in 15 playoff games.`\
 https://nytimes.com/athletic/6398517/2025/06/02/evander-kane-oilers-stanley-cup-final/
 
-**Herbert Migdoll, Joffrey Ballet Photographer for Half a Century, Dies at 90**\
+**Herbert Migdoll, 90, Dies; Joffrey Ballet Photographer for Half- Century**\
 `His photos and graphic design for the Chicago-based company cemented its artistic reputation. He also painted and served as Dance Magazine’s art director.`\
 https://nytimes.com/2025/06/02/arts/dance/herbert-migdoll-dead.html
 

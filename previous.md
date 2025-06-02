@@ -1,3 +1,11 @@
+**Trump Talks a Lot About Antisemitism, With a Notable Caveat**\
+`The president made no reference to Jews after the Colorado attack.`\
+https://nytimes.com/2025/06/02/us/politics/trump-jews-antisemitism-colorado-attack.html
+
+**Preakness winner Journalism is early favorite to win Belmont Stakes**\
+`Kentucky Derby-winner Sovereignty is just behind Journalism with 2-1 odds, and will start from the No. 2 position.`\
+https://nytimes.com/athletic/6398541/2025/06/02/belmont-stakes-post-position-odds-journalism-sovereignty/
+
 **F.T.C. Investigates Ad Groups and Watchdogs, Alleging Boycott Collusion**\
 `The regulator is looking into whether roughly a dozen groups violated antitrust law by coordinating boycotts among advertisers.`\
 https://nytimes.com/2025/06/02/technology/ftc-investigation-advertising-boycotts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6398517/2025/06/02/evander-kane-oilers-stanley-cup-
 **Herbert Migdoll, Joffrey Ballet Photographer for Half a Century, Dies at 90**\
 `His photos and graphic design for the Chicago-based company cemented its artistic reputation. He also painted and served as Dance Magazine’s art director.`\
 https://nytimes.com/2025/06/02/arts/dance/herbert-migdoll-dead.html
-
-**Low Turnout in Mexico’s Far-Reaching Judicial Election Fuels Legitimacy Concerns**\
-`Nearly 90 percent of voters did not cast ballots on Sunday, one of the lowest turnouts in any federal election since Mexico became a democracy.`\
-https://nytimes.com/2025/06/02/world/americas/mexico-judicial-election-low-turnout.html
-
-**French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
-`Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
-https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-tennis-playing-friends-challenge-andreeva-kasatkina/
 

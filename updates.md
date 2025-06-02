@@ -1,3 +1,11 @@
+**Trump Talks a Lot About Antisemitism, With a Notable Caveat**\
+`The president made no reference to Jews after the Colorado attack.`\
+https://nytimes.com/2025/06/02/us/politics/trump-jews-antisemitism-colorado-attack.html
+
+**Preakness winner Journalism is early favorite to win Belmont Stakes**\
+`Kentucky Derby-winner Sovereignty is just behind Journalism with 2-1 odds, and will start from the No. 2 position.`\
+https://nytimes.com/athletic/6398541/2025/06/02/belmont-stakes-post-position-odds-journalism-sovereignty/
+
 **F.T.C. Investigates Ad Groups and Watchdogs, Alleging Boycott Collusion**\
 `The regulator is looking into whether roughly a dozen groups violated antitrust law by coordinating boycotts among advertisers.`\
 https://nytimes.com/2025/06/02/technology/ftc-investigation-advertising-boycotts.html
