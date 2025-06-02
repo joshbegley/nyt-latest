@@ -1,3 +1,7 @@
+**Yankees takeaways: Domínguez, Weaver injury concerns after win over Dodgers**\
+`Losing Domínguez or Weaver would be a blow to the Yankees, who are 36-22 with a 5 1/2-game lead in the American League East.`\
+https://nytimes.com/athletic/6396845/2025/06/02/yankees-takeaways-jasson-dominguez-luke-weaver/
+
 **Jonathan Anderson’s Hire Makes History at Dior**\
 `His appointment as creative director of both women’s and men’s wear may mark not just a changing of the guard, but a shift in the paradigm.`\
 https://nytimes.com/2025/06/02/style/jonathan-anderson-dior.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6395789/2025/06/02/champions-league-final-psg-analy
 **Your club missed out on Florian Wirtz? Here are four alternatives to target**\
 `The Athletic's pick of Wirtz alternatives for clubs who aren't his suitors Liverpool, from fellow high-end operators to hidden gems`\
 https://nytimes.com/athletic/6387466/2025/06/02/wirtz-alternatives/
-
-**There's much to like about PSG stars - but conflict in watching Champions League win**\
-`The European champions are a fantastic team full of exciting young players, but the club's backstory must not be overlooked`\
-https://nytimes.com/athletic/6395566/2025/06/02/psg-champions-league-triumph-conflicted/
 
