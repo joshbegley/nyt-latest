@@ -1,3 +1,11 @@
+**Heavy Rain and Severe Storms Expected to Sweep Across Central U.S.**\
+`Damaging winds and large hail are forecast for the Plains and the Midwest, and the remnants of Tropical Storm Alvin could bring excessive rainfall and flash flooding.`\
+https://nytimes.com/2025/06/02/weather/rain-storms-forecast-us.html
+
+**THE BAT X fantasy baseball cheat sheet: Stream Ronny Henriquez, trade for Gunnar Henderson**\
+`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6397282/2025/06/02/the-bat-x-fantasy-baseball-cheat-sheet-ronny-henriquez/
+
 **Senators re-sign defenceman Tyler Kleven to 2-year, $3.2 million extension**\
 `Kleven, who recorded 10 points over 79 games in his first NHL season, was slated to be a restricted free agent this summer.`\
 https://nytimes.com/athletic/6397548/2025/06/02/tyler-kleven-ottawa-senators-contract-nhl-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/02/opinion/thepoint
 **Caught Between Two Wests: New Global Divide Runs Straight Through Poland**\
 `The country’s government is centrist, with deep ties to Brussels. Its new president is a Trump-backed nationalist. That reflects a broader struggle.`\
 https://nytimes.com/2025/06/02/world/europe/poland-president-election-results.html
-
-****\
-``\
-https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
-
-**French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
-`Boisson is the first French woman into the Roland Garros quarterfinals since 2017.`\
-https://nytimes.com/athletic/6397380/2025/06/02/tennis-french-open-lois-boisson-quarterfinals-pegula-result-analysis/
 
