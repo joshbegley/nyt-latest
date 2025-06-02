@@ -1,3 +1,19 @@
+**Aston Villa confirm appointment of ex-Juventus exec Francesco Calvo**\
+`Calvo's predecessor, Chris Heck, left the club at the end of the season.`\
+https://nytimes.com/athletic/6397132/2025/06/02/aston-villa-francesco-calvo-appointment/
+
+**Who stays, who goes for the Ducks this summer? What will Quenneville mean for Zegras' future?**\
+`Who is a lock to stay with Anaheim and who could be headed out as the offseason continues to play out?`\
+https://nytimes.com/athletic/6393889/2025/06/02/ducks-offseason-roster-trade/
+
+**Shirley Manson, the Unexpected Godmother of Rock**\
+`The singer of Garbage, which has a new album, has become rock ’n’ roll’s collective older sister, offering advice and wisdom to younger women coming up in the business.`\
+https://nytimes.com/2025/06/02/style/shirley-manson-the-unexpected-godmother-of-rock.html
+
+**The Windup: Should the Phillies worry?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6396899/2025/06/02/phillies-brewers-sweep-panic-the-windup/
+
 **Alasdair MacIntyre, Philosopher Who Saw a ‘New Dark Ages,’ Dies at 96**\
 `A Marxist-turned-Catholic who denounced individualism, he provoked and inspired fellow thinkers and gained a degree of popularity unusual for a moral philosopher.`\
 https://nytimes.com/2025/06/02/books/alasdair-macintyre-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6391302/2025/06/02/ottawa-senators-nhl-offseason-ma
 **49ers’ Nick Martin is bringing his powerful personality to the weakside spot**\
 `Martin's favorite NFL player to watch when he was at Oklahoma State? Fred Warner. He even bought a Warner No. 54 jersey.`\
 https://nytimes.com/athletic/6393632/2025/06/02/san-francisco-49ers-nick-martin-otas/
-
-**Canucks trade target tiers 2025: Ranking the best fits on the offseason trade block**\
-`From the top targets to the young upside bets, here are our 2025 Canucks trade tiers.`\
-https://nytimes.com/athletic/6396886/2025/06/02/canucks-trade-target-tiers-2025/
-
-**‘Mia’ to Continue Her Testimony as Sean Combs’s Trial Nears Midpoint**\
-`The former assistant will be questioned by Mr. Combs’s lawyers, who say her account of sex abuse and violence is at odds with the warmth she showed him on social media.`\
-https://nytimes.com/2025/06/02/arts/music/sean-combs-diddy-trial-mia.html
-
-**Carlsen suffers surprise loss to Dommaraju, slams table in frustration**\
-`Pieces toppled over as Carlsen, widely regarded as one of chess' greatest players, punched the table after realising defeat.`\
-https://nytimes.com/athletic/6397135/2025/06/02/magnus-carlsen-gukesh-dommaraju-match/
-
-**The Pulse: Let’s talk about NBA Finals ratings**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6396748/2025/06/02/knicks-pacers-finals-ratings-the-pulse/
 

@@ -1,3 +1,7 @@
+**Alasdair MacIntyre, Philosopher Who Saw a ‘New Dark Ages,’ Dies at 96**\
+`A Marxist-turned-Catholic who denounced individualism, he provoked and inspired fellow thinkers and gained a degree of popularity unusual for a moral philosopher.`\
+https://nytimes.com/2025/06/02/books/alasdair-macintyre-dead.html
+
 **UK government faces inquiry into independent regulator chair appointment**\
 `David Kogan was revealed as the preferred candidate to be appointed new independent football regulator chairman in May.`\
 https://nytimes.com/athletic/6397124/2025/06/02/independent-regulator-government-inquiry/
