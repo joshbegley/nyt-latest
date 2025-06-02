@@ -1,3 +1,11 @@
+**Champions League 2024-25 review: Games of the tournament, best players and predictions for next season**\
+`Ahmed Walid, Seb Stafford-Bloor, Michael Cox, Mark Carey and Dermot Corrigan review this season's Champions League`\
+https://nytimes.com/athletic/6394377/2025/06/02/champions-league-review-vitinha-yamal-psg-inter/
+
+**What we learned watching PSG win the Champions League final with a professional head coach**\
+`It was one of the great performances in a European final and we watched it with manager Ian Cathro. Here, he talks us through how PSG did it`\
+https://nytimes.com/athletic/6395789/2025/06/02/champions-league-final-psg-analysis/
+
 **Your club missed out on Florian Wirtz? Here are four alternatives to target**\
 `The Athletic's pick of Wirtz alternatives for clubs who aren't his suitors Liverpool, from fellow high-end operators to hidden gems`\
 https://nytimes.com/athletic/6387466/2025/06/02/wirtz-alternatives/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6396148/2025/06/02/max-verstappen-spanish-grand-pri
 **Quote of the Day: Retail ‘Piece of Canada’ Shutters After 355 Years**\
 `Quotation of the Day for Monday, June 2, 2025.`\
 https://nytimes.com/2025/06/01/pageoneplus/quote-of-the-day-retail-piece-of-canada-shutters-after-355-years.html
-
-**Cruz Azul dismantles MLS's Whitecaps to claim Concacaf Champions Cup title**\
-`This was never a contest, as La Maquina claimed a record-tying seventh Concacaf club title in emphatic fashion.`\
-https://nytimes.com/athletic/6396634/2025/06/01/cruz-azul-concacaf-champions-cup-vancouver-whitecaps-mls-liga-mx/
-
-**Royals promoting top prospect Jac Caglianone to MLB less than a year after drafting him: Source**\
-`One of the game’s top offensive talents, Caglianone has torn up the upper levels of the Royals’ minor-league system.`\
-https://nytimes.com/athletic/6396750/2025/06/01/royals-jac-caglianone-mlb-promotion/
 

@@ -1,3 +1,31 @@
+**Your club missed out on Florian Wirtz? Here are four alternatives to target**\
+`The Athletic's pick of Wirtz alternatives for clubs who aren't his suitors Liverpool, from fellow high-end operators to hidden gems`\
+https://nytimes.com/athletic/6387466/2025/06/02/wirtz-alternatives/
+
+**There's much to like about PSG stars - but conflict in watching Champions League win**\
+`The European champions are a fantastic team full of exciting young players, but the club's backstory must not be overlooked`\
+https://nytimes.com/athletic/6395566/2025/06/02/psg-champions-league-triumph-conflicted/
+
+**Inter, the weight of expectation and what happens next**\
+`Fifty-nine games and the work is only just beginning. Football relentlessly moves on. But how will Inter?`\
+https://nytimes.com/athletic/6395401/2025/06/02/inter-champions-league-psg/
+
+**Football shirt restoration: The next frontier in the vintage kit market?**\
+`A new trend is emerging in the retro kit world, with enthusiasts repairing damaged shirts - but does this change what we consider 'vintage'?`\
+https://nytimes.com/athletic/6388474/2025/06/02/football-shirt-soccer-restoration/
+
+**U.S. Dependence on China for Rare Earth Magnets Is Causing Shortages**\
+`The United States allowed its rare earth metals industry to move to China and could now face severe economic disruption as China limits crucial supplies.`\
+https://nytimes.com/2025/06/02/business/china-rare-earths-united-states-supplies.html
+
+**Connections: Sports Edition Coach: Hints for June 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6396541/2025/06/02/connections-sports-edition-hints-for-june-2-2025/
+
+**Max Verstappen’s self-inflicted blow to his title hopes undid so much brilliance**\
+`The 2025 F1 championship fight Max Verstappen has been clinging onto so brilliantly is slipping away.`\
+https://nytimes.com/athletic/6396148/2025/06/02/max-verstappen-spanish-grand-prix-penalty-analysis/
+
 **Quote of the Day: Retail ‘Piece of Canada’ Shutters After 355 Years**\
 `Quotation of the Day for Monday, June 2, 2025.`\
 https://nytimes.com/2025/06/01/pageoneplus/quote-of-the-day-retail-piece-of-canada-shutters-after-355-years.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6396634/2025/06/01/cruz-azul-concacaf-champions-cup
 **Royals promoting top prospect Jac Caglianone to MLB less than a year after drafting him: Source**\
 `One of the game’s top offensive talents, Caglianone has torn up the upper levels of the Royals’ minor-league system.`\
 https://nytimes.com/athletic/6396750/2025/06/01/royals-jac-caglianone-mlb-promotion/
-
-**Giants takeaways: Tough pitching decisions, offensive hope after Marlins series**\
-`The Giants' pitching has helped prop up an offense that has failed to score more than four runs for 14 straight games.`\
-https://nytimes.com/athletic/6394078/2025/06/01/sf-giants-pitching-decisions-offfense/
-
-**Memorial Cup Final takeaways: Knights defeat Tigers, win third CHL title**\
-`The London Knights were led by captain Denver Barkey's two goals, Sam Dickinson's three assists and Easton Cowan's game winner.`\
-https://nytimes.com/athletic/6388506/2025/06/01/memorial-cup-london-medicine-hat-takeaways/
-
-**A view from the top of Maja Stark's U.S. Women's Open win**\
-`Stark played the back nine in even par Sunday to seal her first major victory in a two-shot rout that felt like more.`\
-https://nytimes.com/athletic/6396556/2025/06/01/how-maja-stark-won-u-s-open/
-
-**A Sunday Ritual Turns Into a Smoky Scene of Chaos**\
-`A witness ran to the site of the attack and found people wandering dazed and a friend she said is a Holocaust survivor being helped into an ambulance.`\
-https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
-
-**Sounders protest MLS' Club World Cup player payout cap, backed by MLSPA**\
-`A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
-https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
-
-**Aryna Sabalenka's tennis evolution sees her through at Roland Garros: French Open day 8**\
-`The world No. 1 was under pressure against Amanda Anisimova of the U.S., but her developing ability at the front of the court proved key.`\
-https://nytimes.com/athletic/6395904/2025/06/01/french-open-recap-sabalenka-swiatek-svitolina-zheng-qinwen/
-
-**Welcome to the 5-Day Creativity Challenge**\
-`Today, a fun way to feel less stuck.`\
-https://nytimes.com/interactive/2025/well/creativity-drawing-art.html
 
