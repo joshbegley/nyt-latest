@@ -1,3 +1,7 @@
+**Montemurro appointed Australia Women's head coach**\
+`It was announced on Sunday that Montemurro would be departing his role at Lyon.`\
+https://nytimes.com/athletic/6396892/2025/06/02/joe-montemurro-australia-lyon/
+
 **Ukraine and Russia to Meet for Second Round of Talks as Attacks Escalate**\
 `After more than three years of war, Russia and Ukraine are engaged in direct and public talks to end the fighting, but their positions remain far apart.`\
 https://nytimes.com/2025/06/02/world/europe/ukraine-russia-istanbul-talks.html
