@@ -1,3 +1,7 @@
+**That Cup of Coffee May Have a Longer-Term Perk**\
+`A new study of over 47,000 women found links between coffee drinking and healthy aging. Here’s what we know.`\
+https://nytimes.com/2025/06/02/well/eat/health-longevity-aging-benefits-of-coffee.html
+
 **Chelsea announce £18.5m signing of midfielder Essugo from Sporting**\
 `Essugo has signed a long-term contract that will see him contracted to the club until 2033.`\
 https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-announcement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/arts/television/jonathan-joss-king-of-the-hill-ki
 **Brentford's Mbeumo wants to join Man Utd, clubs set to open talks**\
 `Mbeumo has attracted interest from the likes of Arsenal, Newcastle, and Spurs — but the 25-year-old favours a switch to Old Trafford.`\
 https://nytimes.com/athletic/6332515/2025/06/02/manchester-united-bryan-mbeumo-transfer/
-
-**Ex-U.S. star Michael Bradley joins Canada's coaching staff as guest**\
-`Bradley, the former USMNT captain, will link up with Canada temporarily as he continues his burgeoning coaching career.`\
-https://nytimes.com/athletic/6397810/2025/06/02/michael-bradley-canada-jesse-marsch-coaching-staff/
 
