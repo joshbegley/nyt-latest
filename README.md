@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/02/crosswords/spelling-bee-forum.html
+
 **Yankees takeaways: Domínguez, Weaver injury concerns after win over Dodgers**\
 `Losing Domínguez or Weaver would be a blow to the Yankees, who are 36-22 with a 5 1/2-game lead in the American League East.`\
 https://nytimes.com/athletic/6396845/2025/06/02/yankees-takeaways-jasson-dominguez-luke-weaver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6394377/2025/06/02/champions-league-review-vitinha-
 **What we learned watching PSG win the Champions League final with a professional head coach**\
 `It was one of the great performances in a European final and we watched it with manager Ian Cathro. Here, he talks us through how PSG did it`\
 https://nytimes.com/athletic/6395789/2025/06/02/champions-league-final-psg-analysis/
-
-**Your club missed out on Florian Wirtz? Here are four alternatives to target**\
-`The Athletic's pick of Wirtz alternatives for clubs who aren't his suitors Liverpool, from fellow high-end operators to hidden gems`\
-https://nytimes.com/athletic/6387466/2025/06/02/wirtz-alternatives/
 
