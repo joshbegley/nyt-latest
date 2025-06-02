@@ -1,3 +1,7 @@
+**Live Updates: People Burned in Attack on Event for Israeli Hostages in Colorado**\
+`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at people at the weekly event. Police said the motive was under investigation.`\
+https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
+
 **10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challenge-abercrombie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396355/2025/06/01/wild-marco-rossi-contract-trade/
 **Scottie Scheffler pulls away for 4-stroke win at Memorial Tournament**\
 `Scheffler defended a tournament win for the third time. Only Phil Mickelson (5) and Tiger Woods (23) have done it more in the last 30 years.`\
 https://nytimes.com/athletic/6396409/2025/06/01/scottie-scheffler-pulls-away-for-4-stroke-win-at-memorial-tournament/
-
-**Ukraine Strikes Russian Air Bases in Large-Scale Drone Attack**\
-`Ukraine launched one of its broadest assaults of the war against air bases inside Russia, targeting sites from eastern Siberia to Russia’s western border.`\
-https://nytimes.com/video/world/europe/100000010201931/ukraine-strikes-russian-air-bases-in-large-scale-drone-attack.html
 

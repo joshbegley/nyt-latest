@@ -1,3 +1,7 @@
+**Live Updates: People Burned in Attack on Event for Israeli Hostages in Colorado**\
+`A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at people at the weekly event. Police said the motive was under investigation.`\
+https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
+
 **10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challenge-abercrombie.html
