@@ -1,3 +1,7 @@
+**Group Chat**\
+`Palestinians checking in on other Palestinians.`\
+https://nytimes.com/2025/06/02/podcasts/group-chat-this-american-life-nyt-audio.html
+
 **Montemurro appointed Australia Women's head coach**\
 `It was announced on Sunday that Montemurro would be departing his role at Lyon.`\
 https://nytimes.com/athletic/6396892/2025/06/02/joe-montemurro-australia-lyon/
