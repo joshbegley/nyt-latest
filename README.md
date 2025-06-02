@@ -1,3 +1,7 @@
+**Royals promoting top prospect Jac Caglianone to MLB less than a year after drafting him: Source**\
+`One of the game’s top offensive talents, Caglianone has torn up the upper levels of the Royals’ minor-league system.`\
+https://nytimes.com/athletic/6396750/2025/06/01/royals-jac-caglianone-mlb-promotion/
+
 **Giants takeaways: Tough pitching decisions, offensive hope after Marlins series**\
 `The Giants' pitching has helped prop up an offense that has failed to score more than four runs for 14 straight games.`\
 https://nytimes.com/athletic/6394078/2025/06/01/sf-giants-pitching-decisions-offfense/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
 **Live Updates: 6 People Burned in Attack on Event for Israeli Hostages in Colorado**\
 `Two were airlifted to a burn unit with serious injuries. Officials said the attacker, who used a “makeshift flamethrower,” was in custody and had yelled, “Free Palestine,” according to witnesses.`\
 https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
-
-**10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challenge-abercrombie.html
 
