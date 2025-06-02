@@ -1,3 +1,15 @@
+**Trump Administration to Open Alaska Wilderness to Drilling and Mining**\
+`The Interior Department plans to repeal Biden-era protections across the state’s ecologically sensitive North Slope.`\
+https://nytimes.com/2025/06/02/climate/national-petroleum-reserve-alaska-trump-drilling.html
+
+**After Several Attacks, Heightened Anxiety Among American Jews**\
+`The attack in Colorado on a march for Israeli hostages on Sunday contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
+https://nytimes.com/2025/06/02/us/boulder-antisemitism.html
+
+**How the Lightning benefit short- and long-term from 6-year deal to keep Yanni Gourde through age 39**\
+`The Lightning got Gourde to agree to a six-year extension carrying a $2.33 million cap hit — a deal with no real comparables around the NHL.`\
+https://nytimes.com/athletic/6398176/2025/06/02/lightning-sign-yanni-gourde-age-39/
+
 **That Cup of Coffee May Have a Longer-Term Perk**\
 `A new study of over 47,000 women found links between coffee drinking and healthy aging. Here’s what we know.`\
 https://nytimes.com/2025/06/02/well/eat/health-longevity-aging-benefits-of-coffee.html
