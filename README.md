@@ -1,3 +1,7 @@
+**Trump Administration to Open Alaska Wilderness to Drilling and Mining**\
+`The Interior Department plans to repeal Biden-era protections across the state’s ecologically sensitive North Slope.`\
+https://nytimes.com/2025/06/02/climate/national-petroleum-reserve-alaska-trump-drilling.html
+
 **After Several Attacks, Heightened Anxiety Among American Jews**\
 `The attack in Colorado on a march for Israeli hostages on Sunday contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
 https://nytimes.com/2025/06/02/us/boulder-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/podcasts/trans-gender-care-protocol.html
 **NBA Finals MVP odds: Can SGA claim the MVP trifecta? He's a massive favorite to do so**\
 `SGA enters the NBA Finals as the favorite to win Finals MVP after snagging league and conference finals MVP. It's not even close. `\
 https://nytimes.com/athletic/6397841/2025/06/02/nba-finals-mvp-odds-shai-gilgeous-alexander/
-
-**Jonathan Joss, ‘King of the Hill’ Voice Actor, Is Fatally Shot by Neighbor, Police Say**\
-`A neighbor who opened fire on the actor during a dispute was charged with murder, the authorities said. Mr. Joss also appeared in “Parks and Recreation.”`\
-https://nytimes.com/2025/06/02/arts/television/jonathan-joss-king-of-the-hill-killed.html
 
