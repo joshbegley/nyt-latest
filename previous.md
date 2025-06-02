@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6393991/2025/06/02/san-francisco-giants-how-to-watc
 https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
 
 **German Border Police Barred From Rejecting Some Asylum Seekers Without a Review**\
-`A Berlin court ruled that officials must investigate the claims of those arriving from neighboring E.U. counties, dealing a blow to the government’s attempt to reduce land migration.`\
+`A Berlin court ruled that officials must investigate the claims of those arriving from neighboring E.U. countries, dealing a blow to the government’s attempt to reduce land migration.`\
 https://nytimes.com/2025/06/02/world/europe/germany-asylum-seekers-border-eu.html
 
 **Jack Draper out of French Open after Alexander Bublik masterclass at Roland Garros**\
