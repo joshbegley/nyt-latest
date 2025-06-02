@@ -1,3 +1,16 @@
+**Ex-U.S. star Michael Bradley joins Canada's coaching staff as guest**\
+`Bradley, the former USMNT captain, will link up with Canada temporarily as he continues his burgeoning coaching career.`\
+https://nytimes.com/athletic/6397810/2025/06/02/michael-bradley-canada-jesse-marsch-coaching-staff/
+
+**Ryan Mason set to be appointed new West Brom head coach**\
+`West Brom parted company with Tony Mowbray in April `\
+https://nytimes.com/athletic/6386230/2025/06/02/tottenham-ryan-mason-west-brom-manager/
+
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
 `Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
 `\

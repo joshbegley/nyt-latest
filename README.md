@@ -1,3 +1,7 @@
+**Brentford's Mbeumo wants to join Man Utd, clubs set to open talks**\
+`Mbeumo has attracted interest from the likes of Arsenal, Newcastle, and Spurs — but the 25-year-old favours a switch to Old Trafford.`\
+https://nytimes.com/athletic/6332515/2025/06/02/manchester-united-bryan-mbeumo-transfer/
+
 **Ex-U.S. star Michael Bradley joins Canada's coaching staff as guest**\
 `Bradley, the former USMNT captain, will link up with Canada temporarily as he continues his burgeoning coaching career.`\
 https://nytimes.com/athletic/6397810/2025/06/02/michael-bradley-canada-jesse-marsch-coaching-staff/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6398055/2025/06/02/phoenix-suns-coaching-search-cav
 **How to watch the San Francisco Giants in 2025: Schedule, broadcast info and blackout rules**\
 `Here's how to watch the San Francisco Giants this season, factoring in broadcast rotations and streaming rules.`\
 https://nytimes.com/athletic/6393991/2025/06/02/san-francisco-giants-how-to-watch/
-
-**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
-`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
-`\
-https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
 
