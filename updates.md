@@ -1,3 +1,7 @@
+**German Border Police Barred From Rejecting Some Asylum Seekers Without a Review**\
+`A Berlin court ruled that officials must investigate the claims of those arriving from neighboring E.U. counties, dealing a blow to the government’s attempt to reduce land migration.`\
+https://nytimes.com/2025/06/02/world/europe/germany-asylum-seekers-border-eu.html
+
 **Jack Draper out of French Open after Alexander Bublik masterclass at Roland Garros**\
 `Draper's newly acquired clay-court skills disappeared in a blizzard of chips, slices and drop shots from Bublik on Suzanne-Lenglen.`\
 https://nytimes.com/athletic/6398017/2025/06/02/jack-draper-french-open-alexander-bublik-result-analysis/

@@ -1,3 +1,8 @@
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **German Border Police Barred From Rejecting Some Asylum Seekers Without a Review**\
 `A Berlin court ruled that officials must investigate the claims of those arriving from neighboring E.U. counties, dealing a blow to the government’s attempt to reduce land migration.`\
 https://nytimes.com/2025/06/02/world/europe/germany-asylum-seekers-border-eu.html
@@ -29,8 +34,4 @@ https://nytimes.com/video/us/100000010202733/northern-lights-united-states.html
 **Lions center Frank Ragnow announces retirement**\
 `Ragnow, 29, has announced his retirement from the NFL after seven seasons.`\
 https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retirement/
-
-**Jim Leavitt to be enshrined in South Florida's Hall of Fame**\
-`The program architect's tenure ended in scandal when the school fired him in 2010 after concluding that he grabbed a player by the throat.`\
-https://nytimes.com/athletic/6397876/2025/06/02/south-florida-jim-leavitt-hall-of-fame/
 
