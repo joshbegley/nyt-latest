@@ -1,3 +1,7 @@
+**Pacers' Jarace Walker to miss first 2 NBA Finals games with ankle injury**\
+`On Saturday, Walker jumped to contest a shot and rolled his ankle almost to the floor. He's been using crutches to walk since then.`\
+https://nytimes.com/athletic/6397335/2025/06/02/pacers-jarace-walker-ankle-injury-nba-finals/
+
 **Before They Were Famous: Do You Know the Early Jobs of These Authors?**\
 `Try this quiz on how five authors made a living before their literary careers took off.`\
 https://nytimes.com/interactive/2025/06/02/books/review/authors-early-jobs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/us/supreme-court-semiautomatic-rifle-ban.html
 **Sarri returns as Lazio head coach**\
 `The Italian spent almost three years in charge of Lazio between 2021 and 2024, finishing second in the 2022-23 Serie A season.`\
 https://nytimes.com/athletic/6395433/2025/06/02/maurizio-sarri-lazio-manager/
-
-**Red Light: An epic, endless (!) Stanley Cup Final**\
-`At least rest won’t be an issue in the Oilers and Panthers rematch.`\
-https://nytimes.com/athletic/6397457/2025/06/02/red-light-newsletter-nhl-stanley-cup-final/
 

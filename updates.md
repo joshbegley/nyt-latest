@@ -1,3 +1,7 @@
+**Pacers' Jarace Walker to miss first 2 NBA Finals games with ankle injury**\
+`On Saturday, Walker jumped to contest a shot and rolled his ankle almost to the floor. He's been using crutches to walk since then.`\
+https://nytimes.com/athletic/6397335/2025/06/02/pacers-jarace-walker-ankle-injury-nba-finals/
+
 **Before They Were Famous: Do You Know the Early Jobs of These Authors?**\
 `Try this quiz on how five authors made a living before their literary careers took off.`\
 https://nytimes.com/interactive/2025/06/02/books/review/authors-early-jobs.html
