@@ -1,40 +1,40 @@
-**Braves' hitting still woeful, Elder on replacing Smith-Shawver, Sale on 'Schwelly': 3 takeaways**\
-`Even the recent return of Ronald Acuña Jr. following knee surgery hasn’t done much to improve Atlanta's offensive malaise.`\
-https://nytimes.com/athletic/6396363/2025/06/02/braves-smith-shawver-chris-sale-schwelly/
+**Vikings’ sneakiest big move of the offseason? The late-night trade for RB Jordan Mason**\
+`Solidifying the trenches got the headlines for the Vikings in free agency, but the addition of Mason should make a difference on offense.`\
+https://nytimes.com/athletic/6396128/2025/06/02/jordan-mason-vikings-trade-rb/
 
-**Man City pursuing deal to sign Ait-Nouri from Wolves**\
-`Agreements still need to be reached between the clubs and with the 23-year-old — however all parties now expect a move to happen.`\
-https://nytimes.com/athletic/6397034/2025/06/02/man-city-transfers-rayan-ait-nouri/
+**This Week in Mets: What might New York need at the trade deadline?**\
+`It doesn’t look like the Mets will be in the market for an ace at the deadline, but at some point they're going to hit a snag.`\
+https://nytimes.com/athletic/6396693/2025/06/02/this-week-in-mets-trade-deadline-needs/
 
-**Max Verstappen says George Russell collision 'not right' and 'shouldn’t have happened'**\
-`Max Verstappen was hit with a 10-second penalty for the incident that George Russell felt was 'very deliberate'.`\
-https://nytimes.com/athletic/6397024/2025/06/02/max-verstappen-george-russell-spanish-grand-prix-collision/
+**MLB All-Quarter Century Team: How the readers voted — with several close calls**\
+`Revealing the voting results, position by position, for our readers’ team of the quarter century, 16 players who have dominated the 2000s. `\
+https://nytimes.com/athletic/6396659/2025/06/02/mlb-quarter-century-team-reader-vote-results/
 
-**A bulked-up Odafe Oweh enters pivotal season for Ravens with big goals**\
-`Oweh reported to OTAs 20 pounds over his playing weight from last season to add more of a power element to his pass-rush repertoire.  `\
-https://nytimes.com/athletic/6393581/2025/06/02/ravens-odafe-oweh-organized-team-activities/
+**Terry Pegula, Kevyn Adams and the 'hamster wheel' of Sabres' playoff drought**\
+`Buffalo's 14-season playoff drought is tied with the New York Jets for the longest postseason famine in major North American sports.`\
+https://nytimes.com/athletic/6396186/2025/06/02/buffalo-sabres-kevyn-adams-terry-pegula/
 
-**U.K. to Build Up to 12 Submarines as Part of Shift to ‘War-Fighting Readiness’**\
-`Amid rising global tensions, Prime Minister Keir Starmer outlined rearmament plans aimed at deterring an increasingly hostile Russia.`\
-https://nytimes.com/2025/06/02/world/europe/uk-defense-review-starmer-nuclear-submarines.html
+**Topps remaking more Lionel Messi autograph cards following 'investigation'**\
+`Leading trading card grader PSA has now declined to authenticate Messi autograph cards from at least five different Topps sets`\
+https://nytimes.com/athletic/6396627/2025/06/02/topps-lionel-messi-autographs-psa/
 
-**A Giant Plume of Saharan Dust Is Headed to Florida**\
-`Dust carried across the Atlantic is one of the great wonders of the weather world. This is the most significant cloud so far this year.`\
-https://nytimes.com/2025/06/02/weather/saharan-dust-florida-gulf-coast.html
+**MLB All-Quarter Century Team voting: Who got it right — the fans or me?**\
+`Your votes are in, more than 12,000 of them. So let's discuss the question that's on everyone's mind: Who’s right — me or The People?`\
+https://nytimes.com/athletic/6396362/2025/06/02/mlb-quarter-century-team-ohtani-david-ortiz-judge-ichiro/
 
-**The New York Times International Edition in Print for Tuesday, June 3, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/02/todays-new-york-times-international-edition
+**Ranking the No. 1 recruits of the 21st century: Travis Hunter or Vince Young for the top spot?**\
+`Where does Adrian Peterson rank? Is Jeremiah Smith worthy of a spot in the top 10 after one season? What about Arch Manning?`\
+https://nytimes.com/athletic/6390327/2025/06/02/college-football-recruiting-ranking-5-stars/
 
-**Bangladesh’s Ousted Leader Faces New Arrest Warrant in Killing of Protesters**\
-`The war crimes tribunal that Sheikh Hasina herself founded has now charged her in the crackdown that killed well more than a thousand demonstrators.`\
-https://nytimes.com/2025/06/02/world/asia/bangladesh-hasina-arrest-crackdown.html
+**How the low point of Ben Johnson's coaching career led to his meteoric NFL rise**\
+`Six years after he was out of work in the NFL, Johnson is the head coach of the Chicago Bears.`\
+https://nytimes.com/athletic/6393261/2025/06/02/ben-johnson-bears-lions-nfl-coaching-career/
 
-**Neymar apologises after red card for handball goal in possible final Santos game**\
-`The 33-year-old was sent off for attempting to score with his hand in what could be his final game for Santos.`\
-https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
+**Guardians takeaways: Shane Bieber's return, José Ramírez's numbers, Julio Franco's timelessness**\
+`Cleveland's rotation is trending in the right direction. Bieber could give the staff a jolt.`\
+https://nytimes.com/athletic/6395122/2025/06/02/guardians-takeaways-shane-bieber-jose-ramirez-julio-franco/
 
-**Long-serving Spurs executive Cullen announces departure**\
-`Cullen joined the Tottenham board in 2006.`\
-https://nytimes.com/athletic/6396969/2025/06/02/tottenham-donna-maria-cullen-exit/
+**Updated college hoops Top 25: Purdue, Houston lead after transfers, draft decisions**\
+`Now that the NBA Draft withdrawal deadline for college players has passed and only one unsigned player remains in our top 100 transfers list, most rosters are set for the 2025-26 men’s college basketball season.`\
+https://nytimes.com/athletic/6393331/2025/06/02/college-basketball-top-teams-transfers-draft-deadline/
 

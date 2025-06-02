@@ -1,3 +1,15 @@
+**Braves' hitting still woeful, Elder on replacing Smith-Shawver, Sale on 'Schwelly': 3 takeaways**\
+`Even the recent return of Ronald Acuña Jr. following knee surgery hasn’t done much to improve Atlanta's offensive malaise.`\
+https://nytimes.com/athletic/6396363/2025/06/02/braves-smith-shawver-chris-sale-schwelly/
+
+**Man City pursuing deal to sign Ait-Nouri from Wolves**\
+`Agreements still need to be reached between the clubs and with the 23-year-old — however all parties now expect a move to happen.`\
+https://nytimes.com/athletic/6397034/2025/06/02/man-city-transfers-rayan-ait-nouri/
+
+**A bulked-up Odafe Oweh enters pivotal season for Ravens with big goals**\
+`Oweh reported to OTAs 20 pounds over his playing weight from last season to add more of a power element to his pass-rush repertoire.  `\
+https://nytimes.com/athletic/6393581/2025/06/02/ravens-odafe-oweh-organized-team-activities/
+
 **Max Verstappen says George Russell collision 'not right' and 'shouldn’t have happened'**\
 `Max Verstappen was hit with a 10-second penalty for the incident that George Russell felt was 'very deliberate'.`\
 https://nytimes.com/athletic/6397024/2025/06/02/max-verstappen-george-russell-spanish-grand-prix-collision/

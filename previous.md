@@ -1,6 +1,18 @@
+**Braves' hitting still woeful, Elder on replacing Smith-Shawver, Sale on 'Schwelly': 3 takeaways**\
+`Even the recent return of Ronald Acuña Jr. following knee surgery hasn’t done much to improve Atlanta's offensive malaise.`\
+https://nytimes.com/athletic/6396363/2025/06/02/braves-smith-shawver-chris-sale-schwelly/
+
+**Man City pursuing deal to sign Ait-Nouri from Wolves**\
+`Agreements still need to be reached between the clubs and with the 23-year-old — however all parties now expect a move to happen.`\
+https://nytimes.com/athletic/6397034/2025/06/02/man-city-transfers-rayan-ait-nouri/
+
 **Max Verstappen says George Russell collision 'not right' and 'shouldn’t have happened'**\
 `Max Verstappen was hit with a 10-second penalty for the incident that George Russell felt was 'very deliberate'.`\
 https://nytimes.com/athletic/6397024/2025/06/02/max-verstappen-george-russell-spanish-grand-prix-collision/
+
+**A bulked-up Odafe Oweh enters pivotal season for Ravens with big goals**\
+`Oweh reported to OTAs 20 pounds over his playing weight from last season to add more of a power element to his pass-rush repertoire.  `\
+https://nytimes.com/athletic/6393581/2025/06/02/ravens-odafe-oweh-organized-team-activities/
 
 **U.K. to Build Up to 12 Submarines as Part of Shift to ‘War-Fighting Readiness’**\
 `Amid rising global tensions, Prime Minister Keir Starmer outlined rearmament plans aimed at deterring an increasingly hostile Russia.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6396912/2025/06/02/neymar-red-card-santos-handball/
 **Long-serving Spurs executive Cullen announces departure**\
 `Cullen joined the Tottenham board in 2006.`\
 https://nytimes.com/athletic/6396969/2025/06/02/tottenham-donna-maria-cullen-exit/
-
-**A Fiery Brief Fueled by Conservatives Helped Put Trump’s Tariffs in Peril**\
-`A coalition including leading figures on the right said the president’s program did violence to the Constitution. One judge cited it eight times.`\
-https://nytimes.com/2025/06/02/us/trump-tariffs-court-brief.html
-
-**The Imports the U.S. Relies On Most From 140 Nations, From Albania to Zimbabwe**\
-`A look at the item from each country that makes up the largest American import share.`\
-https://nytimes.com/interactive/2025/06/02/upshot/us-imports.html
-
-**As Courts Call Tariffs Into Question, Trump Again Turns to His Favorite Tool**\
-`The president is set to raise tariffs on steel and aluminum this week, even as the courts are challenging the legitimacy of other levies.`\
-https://nytimes.com/2025/06/02/business/economy/trump-tariffs-courts.html
 
