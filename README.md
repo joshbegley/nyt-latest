@@ -1,4 +1,12 @@
-**Elon Musk Returns to His Tech Empire, Fighting Questions of Inattention**\
+**Travel Secrets**\
+``\
+https://nytimes.com/spotlight/travel-secrets
+
+**Wild re-sign Marcus Johansson to 1-year deal**\
+`Johansson, who would have become a free agent July 1, was being lured by his old Swedish Hockey League club, Färjestad.`\
+https://nytimes.com/athletic/6397758/2025/06/02/wild-re-sign-marcus-johansson-to-1-year-deal/
+
+**Elon Musk Returns to His Tech Empire, Facing Questions of Inattention**\
 `As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
 https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
 
@@ -23,18 +31,10 @@ https://nytimes.com/2025/06/02/business/government-debt-deficit-recession.html
 https://nytimes.com/athletic/6397511/2025/06/02/utah-jazz-hire-austin-ainge-president-celtics/
 
 **Joni Ernst Tries to Go MAGA**\
-`Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks like he’s trying too hard.`\
+`Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks as though he’s trying too hard.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
 
 **The Bounce: 4 keys for Thunder, Pacers as 2025 NBA Finals near. Plus, honoring 'Inside the NBA'**\
 `In the 2025 NBA Finals, everybody will focus on the crowds, states and markets, but can the Pacers' style up with the Thunder's?`\
 https://nytimes.com/athletic/6397383/2025/06/02/thunder-pacers-nba-finals-preview-inside-the-nba-tnt-espn-the-bounce/
-
-**With testimony concluded, Hockey Canada sexual assault trial nears completion**\
-`Crown and defense will prepare for closing submissions before the judge gets the case and rules on the fate of the five defendants.`\
-https://nytimes.com/athletic/6397526/2025/06/02/hockey-canada-sexual-assault-trial-testimony-completed/
-
-**Marc Maron’s ‘WTF’ Podcast to End After Nearly 16 Years**\
-`The comedian has spent more than 1,600 episodes talking with celebrities like Barack Obama and Robin Williams. The show’s final episode will air this fall.`\
-https://nytimes.com/2025/06/02/arts/marc-maron-wtf-podcast-ends.html
 
