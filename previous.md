@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6396556/2025/06/01/how-maja-stark-won-u-s-open/
 `A witness ran to the site of the attack and found smoky chaos, people wandering dazed and a friend who is a Holocaust survivor being helped into an ambulance.`\
 https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
 
-**Sounders protest MLS's Club World Cup player payout cap, backed by MLSPA**\
+**Sounders protest MLS' Club World Cup player payout cap, backed by MLSPA**\
 `A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
 https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
 
