@@ -1,3 +1,15 @@
+**Caught Between Two Wests: New Global Divide Runs Straight Through Poland**\
+`The country’s government is centrist, with deep ties to Brussels. Its new president is a Trump-backed nationalist. That reflects a broader struggle.`\
+https://nytimes.com/2025/06/02/world/europe/poland-president-election-results.html
+
+**Live Updates: Colorado Attacker Is in U.S. ‘Illegally,’ Homeland Security Dept. Says**\
+`The suspect is an Egyptian citizen who stayed in the United States after his tourist visa expired in 2023, an official said. Eight people were injured in the attack in Boulder, Colo., on Sunday.`\
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
+
+**Here’s the latest.**\
+`The suspect, Mohamed Sabry Soliman, had arrived in 2022 on a tourist visa from Egypt and stayed after the visa expired, an official said. Eight people were injured in the attack.`\
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/boulder-colorado-attack-suspect
+
 **French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
 `Boisson is the first French woman into the Roland Garros quarterfinals since 2017.`\
 https://nytimes.com/athletic/6397380/2025/06/02/tennis-french-open-lois-boisson-quarterfinals-pegula-result-analysis/

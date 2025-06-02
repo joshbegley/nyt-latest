@@ -1,3 +1,11 @@
+**Caught Between Two Wests: New Global Divide Runs Straight Through Poland**\
+`The country’s government is centrist, with deep ties to Brussels. Its new president is a Trump-backed nationalist. That reflects a broader struggle.`\
+https://nytimes.com/2025/06/02/world/europe/poland-president-election-results.html
+
+**Live Updates: Colorado Attacker Is in U.S. ‘Illegally,’ Homeland Security Dept. Says**\
+`The suspect is an Egyptian citizen who stayed in the United States after his tourist visa expired in 2023, an official said. Eight people were injured in the attack in Boulder, Colo., on Sunday.`\
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect
+
 **French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
 `Boisson is the first French woman into the Roland Garros quarterfinals since 2017.`\
 https://nytimes.com/athletic/6397380/2025/06/02/tennis-french-open-lois-boisson-quarterfinals-pegula-result-analysis/
@@ -14,9 +22,9 @@ https://nytimes.com/2025/06/02/sports/john-brenkus-dies.html
 `The Frenchman's previous deal was set to expire in 2026.`\
 https://nytimes.com/athletic/6283715/2025/06/02/antoine-griezmann-atletico-madrid-contract/
 
-**Suspect in Boulder Attack Was in U.S. ‘Illegally,’ Homeland Security Department Says**\
+**Here’s the latest.**\
 `The suspect, Mohamed Sabry Soliman, had arrived in 2022 on a tourist visa from Egypt and stayed after the visa expired, an official said. Eight people were injured in the attack.`\
-https://nytimes.com/2025/06/02/us/boulder-colorado-attack-suspect.html
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/boulder-colorado-attack-suspect
 
 **No Corrections: June 2, 2025**\
 `No corrections appeared in print on Monday, June 2, 2025.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6397132/2025/06/02/aston-villa-francesco-calvo-appo
 **Who stays, who goes for the Ducks this summer? What will Quenneville mean for Zegras' future?**\
 `Who is a lock to stay with Anaheim and who could be headed out as the offseason continues to play out?`\
 https://nytimes.com/athletic/6393889/2025/06/02/ducks-offseason-roster-trade/
-
-**Shirley Manson, the Unexpected Godmother of Rock**\
-`The singer of Garbage, which has a new album, has become rock ’n’ roll’s collective older sister, offering advice and wisdom to younger women coming up in the business.`\
-https://nytimes.com/2025/06/02/style/shirley-manson-the-unexpected-godmother-of-rock.html
-
-**The Windup: Should the Phillies worry?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6396899/2025/06/02/phillies-brewers-sweep-panic-the-windup/
 
