@@ -1,5 +1,5 @@
 **A view from the top of Maja Stark's U.S. Women's Open win**\
-`Stark played the back nine in even par on Sunday to seal her first major victory in a two-shot rout that felt like more.`\
+`Stark played the back nine in even par Sunday to seal her first major victory in a two-shot rout that felt like more.`\
 https://nytimes.com/athletic/6396556/2025/06/01/how-maja-stark-won-u-s-open/
 
 **A Sunday Ritual Turns Into a Scene That ‘Looked Like a War Zone’**\
