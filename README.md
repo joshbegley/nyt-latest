@@ -1,3 +1,15 @@
+**Jonathan Anderson’s Hire Makes History at Dior**\
+`His appointment as creative director of both women’s and men’s wear may mark not just a changing of the guard, but a shift in the paradigm.`\
+https://nytimes.com/2025/06/02/style/jonathan-anderson-dior.html
+
+**‘Love Island USA,’ Plus 7 Things to Watch on TV this Week**\
+`This reality competition show picks back up for its seventh season, and the Tony Awards celebrate Broadway on Sunday.`\
+https://nytimes.com/2025/06/02/arts/television/love-island-usa-tony-awards.html
+
+**The New York Times in Print for Monday, June 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/02/todays-new-york-times
+
 **Man Arrested After Attack on Supporters of Israeli Hostages**\
 `Witnesses said a shirtless man threw Molotov cocktails at people attending a community event supporting Israeli hostages in Boulder, Colo.`\
 https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6387466/2025/06/02/wirtz-alternatives/
 **There's much to like about PSG stars - but conflict in watching Champions League win**\
 `The European champions are a fantastic team full of exciting young players, but the club's backstory must not be overlooked`\
 https://nytimes.com/athletic/6395566/2025/06/02/psg-champions-league-triumph-conflicted/
-
-**Inter, the weight of expectation and what happens next**\
-`Fifty-nine games and the work is only just beginning. Football relentlessly moves on. But how will Inter?`\
-https://nytimes.com/athletic/6395401/2025/06/02/inter-champions-league-psg/
-
-**Football shirt restoration: The next frontier in the vintage kit market?**\
-`A new trend is emerging in the retro kit world, with enthusiasts repairing damaged shirts - but does this change what we consider 'vintage'?`\
-https://nytimes.com/athletic/6388474/2025/06/02/football-shirt-soccer-restoration/
-
-**U.S. Dependence on China for Rare Earth Magnets Is Causing Shortages**\
-`The United States allowed its rare earth metals industry to move to China and could now face severe economic disruption as China limits crucial supplies.`\
-https://nytimes.com/2025/06/02/business/china-rare-earths-united-states-supplies.html
 
