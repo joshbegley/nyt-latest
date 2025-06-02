@@ -1,3 +1,7 @@
+**Northern Lights Visible Across Several States**\
+`Timelapse videos captured the colorful display of light, known as the aurora borealis, on Sunday night.`\
+https://nytimes.com/video/us/100000010202733/northern-lights-united-states.html
+
 **Lions center Frank Ragnow announces retirement**\
 `Ragnow, 29, has announced his retirement from the NFL after seven seasons.`\
 https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retirement/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/06/02/books/holmes-rolston-iii-dead.html
 **Countering ‘Psychic Numbing’ in the Trump Era**\
 `The psychiatrist Robert Jay Lifton and other readers reflect on the troubling times of President Trump. Also: Thieving chatbots.`\
 https://nytimes.com/2025/06/02/opinion/trump-era.html
-
-**A New Opera Shines Light on Ukrainian Families Separated by War**\
-`The Metropolitan Opera, hoping to revive support for Kyiv, released an excerpt from “The Mothers of Kherson,” about abducted Ukrainian children and their relatives.`\
-https://nytimes.com/2025/06/02/arts/music/metropolitan-opera-the-mother-of-kherson.html
 

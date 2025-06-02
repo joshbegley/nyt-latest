@@ -1,3 +1,7 @@
+**Northern Lights Visible Across Several States**\
+`Timelapse videos captured the colorful display of light, known as the aurora borealis, on Sunday night.`\
+https://nytimes.com/video/us/100000010202733/northern-lights-united-states.html
+
 **Lions center Frank Ragnow announces retirement**\
 `Ragnow, 29, has announced his retirement from the NFL after seven seasons.`\
 https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retirement/
