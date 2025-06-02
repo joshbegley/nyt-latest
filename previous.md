@@ -1,3 +1,11 @@
+**David Cope, Godfather of A.I. Music, Is Dead at 83**\
+`His EMI algorithm, an early form of artificial intelligence that he developed in the 1980s, prompted searching questions about the limits of human creativity.`\
+https://nytimes.com/2025/06/02/technology/david-cope-dead-ai-music.html
+
+**Police Seek Answers in Fatal Shooting of Teen Campers in Arizona National Forest**\
+`Investigators are treating the deaths of Pandora Kjolsrud, 18, and Evan Clark, 17, as homicides. Relatives said they had gone camping after the end of the school year.`\
+https://nytimes.com/2025/06/02/us/arizona-teenagers-shot-forest.html
+
 **What we learned at Patriots OTAs: Stefon Diggs is back, the playbook looks different**\
 `Diggs was at practice following his strange viral video, but Josh McDaniels' new-look offense was perhaps the bigger story on Monday.`\
 https://nytimes.com/athletic/6398341/2025/06/02/patriots-otas-stefon-diggs-josh-mcdaniels/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/02/climate/national-petroleum-reserve-alaska-trump-d
 **After Several Attacks, Heightened Anxiety Among American Jews**\
 `The attack in Colorado on a march in support of hostages held in Gaza contributed to a sense that simply existing in public as a Jewish person is increasingly dangerous.`\
 https://nytimes.com/2025/06/02/us/boulder-antisemitism.html
-
-**That Cup of Coffee May Have a Longer-Term Perk**\
-`A new study of over 47,000 women found links between coffee drinking and healthy aging. Here’s what we know.`\
-https://nytimes.com/2025/06/02/well/eat/health-longevity-aging-benefits-of-coffee.html
-
-**Chelsea announce £18.5m signing of midfielder Essugo from Sporting**\
-`Essugo has signed a long-term contract that will see him contracted to the club until 2033.`\
-https://nytimes.com/athletic/6398267/2025/06/02/chelsea-dario-essugo-transfer-announcement/
 
