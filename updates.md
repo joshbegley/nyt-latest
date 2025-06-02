@@ -1,3 +1,7 @@
+**Economists Question G.O.P. Bill: Why Increase the Deficit in Good Times?**\
+`Huge deficits are already making bond investors nervous. Economists warn that could make it harder to respond to future crises.`\
+https://nytimes.com/2025/06/02/business/government-debt-deficit-recession.html
+
 **Jazz hiring Austin Ainge as president of basketball operations**\
 `Ainge, 43, spent 16 years in the Boston Celtics organization, including six years as the assistant general manager`\
 https://nytimes.com/athletic/6397511/2025/06/02/utah-jazz-hire-austin-ainge-president-celtics/
