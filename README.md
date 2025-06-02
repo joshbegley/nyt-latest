@@ -1,3 +1,11 @@
+**Lions center Frank Ragnow announces retirement**\
+`Ragnow, 29, has announced his retirement from the NFL after seven seasons.`\
+https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retirement/
+
+**Jim Leavitt to be enshrined in South Florida's Hall of Fame**\
+`The program architect's tenure ended in scandal when the school fired him in 2010 after concluding that he grabbed a player by the throat.`\
+https://nytimes.com/athletic/6397876/2025/06/02/south-florida-jim-leavitt-hall-of-fame/
+
 **What if Google Just Broke Itself Up? A Tech Insider Makes the Case.**\
 `Prosecutors aren’t the only ones arguing for a smaller Google. Some critics say it might be better for investors, customers and innovation.`\
 https://nytimes.com/2025/06/02/technology/google-antitrust-breakup.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/02/arts/music/metropolitan-opera-the-mother-of-khers
 **Economists Question G.O.P. Bill: Why Increase the Deficit in Good Times?**\
 `Huge deficits are already making bond investors nervous. Economists warn that could make it harder to respond to future crises.`\
 https://nytimes.com/2025/06/02/business/government-debt-deficit-recession.html
-
-**Jazz hiring Austin Ainge as president of basketball operations**\
-`Ainge, 43, spent 16 years in the Boston Celtics organization, including six years as the assistant general manager`\
-https://nytimes.com/athletic/6397511/2025/06/02/utah-jazz-hire-austin-ainge-president-celtics/
-
-**Joni Ernst Tries to Go MAGA**\
-`Joni Ernst tried a Trump move after her viral Medicaid comments. But she forgot the key thing about Trump: He never looks as though he’s trying too hard.`\
-https://nytimes.com/live/2025/06/02/opinion/thepoint/joni-ernst-medicaid-die
 

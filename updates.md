@@ -1,3 +1,7 @@
+**What if Google Just Broke Itself Up? A Tech Insider Makes the Case.**\
+`Prosecutors aren’t the only ones arguing for a smaller Google. Some critics say it might be better for investors, customers and innovation.`\
+https://nytimes.com/2025/06/02/technology/google-antitrust-breakup.html
+
 **Travel Secrets**\
 ``\
 https://nytimes.com/spotlight/travel-secrets
