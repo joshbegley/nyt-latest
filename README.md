@@ -1,3 +1,11 @@
+**Jack Draper out of French Open after Alexander Bublik masterclass at Roland Garros**\
+`Draper's newly acquired clay-court skills disappeared in a blizzard of chips, slices and drop shots from Bublik on Suzanne-Lenglen.`\
+https://nytimes.com/athletic/6398017/2025/06/02/jack-draper-french-open-alexander-bublik-result-analysis/
+
+**Witnesses Describe Shooting Near Gaza Aid Center**\
+`Palestinians at an aid distribution center in southern Gaza came under fire on Sunday and it was not immediately clear who was responsible. An Israeli official said soldiers had fired warning shots toward “suspects” half a mile away.`\
+https://nytimes.com/video/world/middleeast/100000010202537/gaza-israel-war-strikes.html
+
 **Goalkeeping and set piece coach Knoop leaves Brighton**\
 `Knoop followed head coach Fabian Hurzeler to Brighton from St Pauli last summer.`\
 https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighton/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6397876/2025/06/02/south-florida-jim-leavitt-hall-o
 **What if Google Just Broke Itself Up? A Tech Insider Makes the Case.**\
 `Prosecutors aren’t the only ones arguing for a smaller Google. Some critics say it might be better for investors, customers and innovation.`\
 https://nytimes.com/2025/06/02/technology/google-antitrust-breakup.html
-
-**Travel Secrets**\
-``\
-https://nytimes.com/spotlight/travel-secrets
-
-**Wild re-sign Marcus Johansson to 1-year deal**\
-`Johansson, who would have become a free agent July 1, was being lured by his old Swedish Hockey League club, Färjestad.`\
-https://nytimes.com/athletic/6397758/2025/06/02/wild-re-sign-marcus-johansson-to-1-year-deal/
 
