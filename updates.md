@@ -1,3 +1,7 @@
+**Kovacic to have Achilles surgery, expected to miss around three months**\
+`The 31-year-old is set to miss City’s Club World Cup campaign, which begins on June 18 against Moroccan side Wydad AC.`\
+https://nytimes.com/athletic/6397063/2025/06/02/manchester-city-mateo-kovacic-surgery/
+
 **Vikings’ sneakiest big move of the offseason? The late-night trade for RB Jordan Mason**\
 `Solidifying the trenches got the headlines for the Vikings in free agency, but the addition of Mason should make a difference on offense.`\
 https://nytimes.com/athletic/6396128/2025/06/02/jordan-mason-vikings-trade-rb/
