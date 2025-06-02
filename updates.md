@@ -1,3 +1,8 @@
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **German Border Police Barred From Rejecting Some Asylum Seekers Without a Review**\
 `A Berlin court ruled that officials must investigate the claims of those arriving from neighboring E.U. counties, dealing a blow to the government’s attempt to reduce land migration.`\
 https://nytimes.com/2025/06/02/world/europe/germany-asylum-seekers-border-eu.html

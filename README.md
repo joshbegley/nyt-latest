@@ -1,3 +1,15 @@
+**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
+`What's on your mind about the Fighting Irish?`\
+https://nytimes.com/athletic/6398064/2025/06/02/notre-dame-football-mailbag-questions-20/
+
+**Suns narrow coaching search to Cavs coaches Johnnie Bryant and Jordan Ott**\
+`Bryant and Ott just concluded their first seasons on Kenny Atkinson’s staff, which this season produced an Eastern Conference-best 64 wins.`\
+https://nytimes.com/athletic/6398055/2025/06/02/phoenix-suns-coaching-search-cavaliers/
+
+**How to watch the San Francisco Giants in 2025: Schedule, broadcast info and blackout rules**\
+`Here's how to watch the San Francisco Giants this season, factoring in broadcast rotations and streaming rules.`\
+https://nytimes.com/athletic/6393991/2025/06/02/san-francisco-giants-how-to-watch/
+
 **Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
 `Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
 `\
@@ -26,12 +38,4 @@ https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-
 **Consumers Are Financing Their Groceries. What Does It Say About the Economy?**\
 `Increased use of “buy now, pay later” loans may signal shifting consumer habits, but could also be a troubling sign of financial stress.`\
 https://nytimes.com/2025/06/02/business/buy-now-pay-later-groceries.html
-
-**Northern Lights Visible Across Several States**\
-`Timelapse videos captured the colorful display of light, known as the aurora borealis, on Sunday night.`\
-https://nytimes.com/video/us/100000010202733/northern-lights-united-states.html
-
-**Lions center Frank Ragnow announces retirement**\
-`Ragnow, 29, has announced his retirement from the NFL after seven seasons.`\
-https://nytimes.com/athletic/6397880/2025/06/02/frank-ragnow-nfl-lions-retirement/
 
