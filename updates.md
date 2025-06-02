@@ -1,3 +1,7 @@
+**Memorial Cup Final takeaways: Knights defeat Tigers, win third CHL title**\
+`The London Knights were led by captain Denver Barkey's two goals, Sam Dickinson's three assists and Easton Cowan's game-winner.`\
+https://nytimes.com/athletic/6388506/2025/06/01/memorial-cup-london-medicine-hat-takeaways/
+
 **A Sunday Ritual Turns Into a Smoky Scene of Chaos**\
 `A witness ran to the site of the attack and found people wandering dazed and a friend she said is a Holocaust survivor being helped into an ambulance.`\
 https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html

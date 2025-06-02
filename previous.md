@@ -1,3 +1,7 @@
+**Memorial Cup Final takeaways: Knights defeat Tigers, win third CHL title**\
+`The London Knights were led by captain Denver Barkey's two goals, Sam Dickinson's three assists and Easton Cowan's game-winner.`\
+https://nytimes.com/athletic/6388506/2025/06/01/memorial-cup-london-medicine-hat-takeaways/
+
 **A view from the top of Maja Stark's U.S. Women's Open win**\
 `Stark played the back nine in even par Sunday to seal her first major victory in a two-shot rout that felt like more.`\
 https://nytimes.com/athletic/6396556/2025/06/01/how-maja-stark-won-u-s-open/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challeng
 **Tennessee overcomes controversial call, UCLA to reach WCWS semis**\
 `UCLA forced extra innings after a base-running mistake was ruled unreviewable, but the Volunteers pulled out the victory in the ninth.`\
 https://nytimes.com/athletic/6396361/2025/06/01/tennessee-ucla-softball-wcws/
-
-**Vanderbilt baseball becomes first No. 1 overall seed to not make a regional final**\
-`Wright State will play Louisville later Sunday in the regional final.`\
-https://nytimes.com/athletic/6396370/2025/06/01/vanderbilt-baseball-eliminated-no-1-seed-ncaa-regionals/
 

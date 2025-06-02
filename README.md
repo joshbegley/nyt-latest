@@ -1,3 +1,7 @@
+**Giants takeaways: Tough pitching decisions and a glimmer of offensive hope after Marlins series**\
+`The Giants' pitching has helped prop up an offense that has failed to score more than four runs for 14 straight games.`\
+https://nytimes.com/athletic/6394078/2025/06/01/sf-giants-pitching-decisions-offfense/
+
 **Memorial Cup Final takeaways: Knights defeat Tigers, win third CHL title**\
 `The London Knights were led by captain Denver Barkey's two goals, Sam Dickinson's three assists and Easton Cowan's game-winner.`\
 https://nytimes.com/athletic/6388506/2025/06/01/memorial-cup-london-medicine-hat-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
 **10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challenge-abercrombie.html
-
-**Tennessee overcomes controversial call, UCLA to reach WCWS semis**\
-`UCLA forced extra innings after a base-running mistake was ruled unreviewable, but the Volunteers pulled out the victory in the ninth.`\
-https://nytimes.com/athletic/6396361/2025/06/01/tennessee-ucla-softball-wcws/
 
