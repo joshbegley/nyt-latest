@@ -1,3 +1,7 @@
+**UK Government prepared to take Abramovich to court to extract £2.5bn from Chelsea sale**\
+`The UK Government forced Abramovich to sell the Premier League side after Russia invaded Ukraine in February 2022.`\
+https://nytimes.com/athletic/6398363/2025/06/02/abramovich-chelsea-sale-uk-governement/
+
 **Why Anders Sörensen chose to stay with the Blackhawks after Jeff Blashill took his job**\
 `Sörensen's resume could have landed him another job in the NHL, AHL or Sweden. Instead, he stuck around as an assistant on Blashill's staff.`\
 https://nytimes.com/athletic/6398248/2025/06/02/blackhawks-anders-sorensen-jeff-blashill/
