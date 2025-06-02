@@ -1,3 +1,7 @@
+**Low Turnout in Mexico’s Far-Reaching Judicial Election Fuels Legitimacy Concerns**\
+`Nearly 90 percent of voters did not cast ballots on Sunday, one of the lowest turnouts in any federal election since Mexico became a democracy.`\
+https://nytimes.com/2025/06/02/world/americas/mexico-judicial-election-low-turnout.html
+
 **French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
 `Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
 https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-tennis-playing-friends-challenge-andreeva-kasatkina/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/insider/conversations-with-usher-writer-to-writer
 **David Cope, Godfather of A.I. Music, Is Dead at 83**\
 `His EMI algorithm, an early form of artificial intelligence that he developed in the 1980s, prompted searching questions about the limits of human creativity.`\
 https://nytimes.com/2025/06/02/technology/david-cope-dead-ai-music.html
-
-**Police Seek Answers in Fatal Shooting of Teen Campers in Arizona National Forest**\
-`Investigators are treating the deaths of Pandora Kjolsrud, 18, and Evan Clark, 17, as homicides. Relatives said they had gone camping after the end of the school year.`\
-https://nytimes.com/2025/06/02/us/arizona-teenagers-shot-forest.html
 
