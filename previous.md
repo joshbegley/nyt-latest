@@ -1,3 +1,11 @@
+**Coco Gauff eases into French Open quarterfinals after serene first week**\
+`Gauff's biggest moment of adversity in a serene French Open has been forgetting her rackets, but tougher tests await.`\
+https://nytimes.com/athletic/6397128/2025/06/02/tennis-french-open-coco-gauff/
+
+**Trump, MAGA and ‘Toxic Empathy’**\
+`In this episode of “The Opinions,” the Times Opinion politics correspondent Michelle Cottle speaks to the columnists Jamelle Bouie and David French about the rise of “toxic empathy” and how the right has turned compassion into weakness.`\
+https://nytimes.com/video/opinion/100000010199645/trump-maga-and-toxic-empathy.html
+
 **In Russia Airfield Attacks, Ukraine Aims for Strategic and Symbolic Blow**\
 `While the full extent of the damage is still unknown, the operation shows how Kyiv has been able to adapt and evolve over the war using drones.`\
 https://nytimes.com/2025/06/02/world/europe/ukraine-russia-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6353129/2025/06/02/2025-nhl-draft-ranking-prospects
 **Ranking all 32 potential landing spots for Mitch Marner in free agency**\
 `With roster needs and cap situations in mind, how each team fits as a destination for one of the biggest names to hit free agency in years.`\
 https://nytimes.com/athletic/6394898/2025/06/02/mitch-marner-nhl-free-agency-ranking/
-
-**WNBA power rankings: Are the New York Liberty destined to repeat?**\
-`The Dream and Aces continue to rise in Sabreena Merchant's weekly rankings.`\
-https://nytimes.com/athletic/6396797/2025/06/02/wnba-power-rankings-new-york-liberty-repeat/
-
-**C. Notes: If the Reds sell at the deadline, which players could they make available?**\
-`Plus notes on the Reds sending former closer Alexis Díaz to the Dodgers, injury updates and how the minor-league teams are doing.`\
-https://nytimes.com/athletic/6396498/2025/06/02/reds-trade-deadline-sellers-2/
 
