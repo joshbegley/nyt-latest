@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/06/02/opinion/thepoint
+
 **Caught Between Two Wests: New Global Divide Runs Straight Through Poland**\
 `The country’s government is centrist, with deep ties to Brussels. Its new president is a Trump-backed nationalist. That reflects a broader struggle.`\
 https://nytimes.com/2025/06/02/world/europe/poland-president-election-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/pageoneplus/no-corrections-june-2-2025.html
 **Aston Villa confirm appointment of ex-Juventus exec Francesco Calvo**\
 `Calvo's predecessor, Chris Heck, left the club at the end of the season.`\
 https://nytimes.com/athletic/6397132/2025/06/02/aston-villa-francesco-calvo-appointment/
-
-**Who stays, who goes for the Ducks this summer? What will Quenneville mean for Zegras' future?**\
-`Who is a lock to stay with Anaheim and who could be headed out as the offseason continues to play out?`\
-https://nytimes.com/athletic/6393889/2025/06/02/ducks-offseason-roster-trade/
 
