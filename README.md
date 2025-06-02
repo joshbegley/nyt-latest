@@ -1,3 +1,7 @@
+**French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
+`Boisson is the first French woman into the Roland Garros quarterfinals since 2017.`\
+https://nytimes.com/athletic/6397380/2025/06/02/tennis-french-open-lois-boisson-quarterfinals-pegula-result-analysis/
+
 **The Next Phase of New York City’s ‘Trash Revolution’ Is Here**\
 `Large residential buildings in West Harlem are now required to put trash in large bins on the street instead of in piles on the curb. The mayor wants to expand the idea citywide.`\
 https://nytimes.com/2025/06/02/nyregion/sanitation-bins-garbage-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/style/shirley-manson-the-unexpected-godmother-of-
 **The Windup: Should the Phillies worry?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6396899/2025/06/02/phillies-brewers-sweep-panic-the-windup/
-
-**Alasdair MacIntyre, Philosopher Who Saw a ‘New Dark Ages,’ Dies at 96**\
-`A Marxist-turned-Catholic who denounced individualism, he provoked and inspired fellow thinkers and gained a degree of popularity unusual for a moral philosopher.`\
-https://nytimes.com/2025/06/02/books/alasdair-macintyre-dead.html
 

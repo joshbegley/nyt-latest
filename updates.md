@@ -1,3 +1,7 @@
+**The Next Phase of New York City’s ‘Trash Revolution’ Is Here**\
+`Large residential buildings in West Harlem are now required to put trash in large bins on the street instead of in piles on the curb. The mayor wants to expand the idea citywide.`\
+https://nytimes.com/2025/06/02/nyregion/sanitation-bins-garbage-nyc.html
+
 **John Brenkus, Who Merged Sports and Science on TV, Dies at 54**\
 `His “Sport Science” program was whimsical and fun, showing how golfers can drive balls so far and how snowboarders’ quad flips generated G-forces.`\
 https://nytimes.com/2025/06/02/sports/john-brenkus-dies.html
