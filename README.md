@@ -1,6 +1,6 @@
 **French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
 `Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
-https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-mirra-andreeva-daria-kasatkina-and-tennis-friendships/
+https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-tennis-playing-friends-challenge-andreeva-kasatkina/
 
 **Ukraine Says It Unleashed 117 Drones in Attack on Russia: What to Know**\
 `The strike set several aircraft on fire, video showed, and dealt a symbolic blow to Moscow’s relentless bombing campaign.`\

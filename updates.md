@@ -1,3 +1,11 @@
+**French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
+`Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
+https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-mirra-andreeva-daria-kasatkina-and-tennis-friendships/
+
+**Tuesday Briefing: South Korea Votes**\
+`Plus, box office success for “Lilo & Stitch.”`\
+https://nytimes.com/2025/06/02/briefing/korea-election-ukraine-colorado-terror.html
+
 **Iowa Democrat Will Challenge Ernst After ‘We All Are Going to Die’ Remarks**\
 `J.D. Scholten, a state representative who is also a minor-league baseball pitcher, said he had felt compelled to take on Senator Joni Ernst, a Republican, after her defense of Medicaid cuts.`\
 https://nytimes.com/2025/06/02/us/politics/jd-scholten-joni-ernst-iowa-senate-race.html
