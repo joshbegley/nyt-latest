@@ -1,3 +1,7 @@
+**A Sunday Ritual Turns Into a Scene That ‘Looked Like a War Zone’**\
+`A witness ran to the site of the attack and found smoky chaos and people wandering dazed.`\
+https://nytimes.com/2025/06/01/us/a-sunday-ritual-turns-into-a-scene-that-looked-like-a-war-zone.html
+
 **Sounders protest MLS's Club World Cup player payout cap, backed by MLSPA**\
 `A stipulation in the MLS CBA, agreed upon before the expanded Club World Cup was created, limits what players can make this summer`\
 https://nytimes.com/athletic/6396585/2025/06/01/seattle-sounders-players-protest-club-world-cup-bonus-money-mls-mlspa/
