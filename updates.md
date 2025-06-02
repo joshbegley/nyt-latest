@@ -1,3 +1,7 @@
+**Man Arrested After Attack on Supporters of Israeli Hostages**\
+`Witnesses said a shirtless man threw Molotov cocktails at people attending a community event supporting Israeli hostages in Boulder, Colo.`\
+https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
+
 **What We Know About the Attack in Colorado**\
 `Six people were hospitalized after a man used a “makeshift flamethrower” on a crowd in Boulder, Colo., honoring Israeli hostages in Gaza. The authorities are investigating the attack as an act of terrorism.`\
 https://nytimes.com/2025/06/02/us/boulder-colorado-attack-what-we-know.html
