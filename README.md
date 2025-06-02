@@ -1,3 +1,15 @@
+**Supreme Court Turns Down Challenge to Ban on Semiautomatic Rifles**\
+`The case from Maryland was the court’s latest opportunity to apply its recently announced history-based test for assessing the constitutionality of gun control laws.`\
+https://nytimes.com/2025/06/02/us/supreme-court-semiautomatic-rifle-ban.html
+
+**Sarri returns as Lazio head coach**\
+`The Italian spent almost three years in charge of Lazio between 2021 and 2024, finishing second in the 2022-23 Serie A season.`\
+https://nytimes.com/athletic/6395433/2025/06/02/maurizio-sarri-lazio-manager/
+
+**Red Light: An epic, endless (!) Stanley Cup Final**\
+`At least rest won’t be an issue in the Oilers and Panthers rematch.`\
+https://nytimes.com/athletic/6397457/2025/06/02/red-light-newsletter-nhl-stanley-cup-final/
+
 **Transfers TLDR: Frimpong to Liverpool – all you need to know**\
 `Liverpool have announced the signing of full-back Frimpong from Bayer Leverkusen - here's all you need to know about the move...`\
 https://nytimes.com/athletic/6397236/2025/06/02/jeremie-frimpong-liverpool-transfers-tldr/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/02/nyregion/sanitation-bins-garbage-nyc.html
 **John Brenkus, Who Merged Sports and Science on TV, Dies at 53**\
 `His “Sport Science” program was whimsical and fun, showing how golfers can drive balls so far and how snowboarders’ quad flips generated G-forces.`\
 https://nytimes.com/2025/06/02/sports/john-brenkus-dies.html
-
-**Griezmann extends Atletico contract until 2027**\
-`The Frenchman's previous deal was set to expire in 2026.`\
-https://nytimes.com/athletic/6283715/2025/06/02/antoine-griezmann-atletico-madrid-contract/
-
-**Here’s the latest.**\
-`The suspect, Mohamed Sabry Soliman, had arrived in 2022 on a tourist visa from Egypt and stayed after the visa expired, an official said. Eight people were injured in the attack.`\
-https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/boulder-colorado-attack-suspect
-
-**No Corrections: June 2, 2025**\
-`No corrections appeared in print on Monday, June 2, 2025.`\
-https://nytimes.com/2025/06/02/pageoneplus/no-corrections-june-2-2025.html
 
