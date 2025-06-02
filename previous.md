@@ -1,3 +1,7 @@
+**Deion Sanders was ‘hurt’ by narratives around Shedeur’s draft slide**\
+`Shedeur Sanders entered the 2025 NFL Draft widely regarded as a top-two quarterback with eventual No. 1 pick Cam Ward.`\
+https://nytimes.com/athletic/6397866/2025/06/02/deion-sanders-shedeur-nfl-draft-slide/
+
 **Submit your Notre Dame questions for Pete Sampson’s mailbag**\
 `What's on your mind about the Fighting Irish?`\
 https://nytimes.com/athletic/6398064/2025/06/02/notre-dame-football-mailbag-questions-20/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6397930/2025/06/02/marco-knoop-coach-leaves-brighto
 **Lowetide: 5 reasons why the Oilers should win the Stanley Cup**\
 `Is this the Oilers' time? Key indicators suggest it is so. But there are no guarantees in pursuit of the Stanley Cup.`\
 https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-2025/
-
-**Consumers Are Financing Their Groceries. What Does It Say About the Economy?**\
-`Increased use of “buy now, pay later” loans may signal shifting consumer habits, but could also be a troubling sign of financial stress.`\
-https://nytimes.com/2025/06/02/business/buy-now-pay-later-groceries.html
 
