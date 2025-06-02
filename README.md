@@ -1,3 +1,7 @@
+**Man Arrested After Attack on Supporters of Israeli Hostages**\
+`Witnesses said a shirtless man threw Molotov cocktails at people attending a community event supporting Israeli hostages in Boulder, Colo.`\
+https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
+
 **What We Know About the Attack in Colorado**\
 `Six people were hospitalized after a man used a “makeshift flamethrower” on a crowd in Boulder, Colo., honoring Israeli hostages in Gaza. The authorities are investigating the attack as an act of terrorism.`\
 https://nytimes.com/2025/06/02/us/boulder-colorado-attack-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388474/2025/06/02/football-shirt-soccer-restoratio
 **U.S. Dependence on China for Rare Earth Magnets Is Causing Shortages**\
 `The United States allowed its rare earth metals industry to move to China and could now face severe economic disruption as China limits crucial supplies.`\
 https://nytimes.com/2025/06/02/business/china-rare-earths-united-states-supplies.html
-
-**Connections: Sports Edition Coach: Hints for June 2, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6396541/2025/06/02/connections-sports-edition-hints-for-june-2-2025/
 
