@@ -1,3 +1,7 @@
+**Man Stabs 12 in Spree at Oregon Homeless Shelter, Police Say**\
+`The attack, in which two of shelter staff members were injured, does not appear to be targeted, the authorities said. A suspect was in custody.`\
+https://nytimes.com/2025/06/02/us/stabbing-oregon-homeless-shelter.html
+
 **Trump Talks a Lot About Antisemitism, With a Notable Caveat**\
 `The president made no reference to Jews after the Colorado attack.`\
 https://nytimes.com/2025/06/02/us/politics/trump-jews-antisemitism-colorado-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398507/2025/06/02/nfl-saquon-barkley-madden-cover/
 **Fresh, rested Oilers feel ready for Stanley Cup Final — perhaps none more than Evander Kane**\
 `After missing the entire regular season, Kane has five goals and 11 points in 15 playoff games.`\
 https://nytimes.com/athletic/6398517/2025/06/02/evander-kane-oilers-stanley-cup-final/
-
-**Herbert Migdoll, 90, Dies; Joffrey Ballet Photographer for Half- Century**\
-`His photos and graphic design for the Chicago-based company cemented its artistic reputation. He also painted and served as Dance Magazine’s art director.`\
-https://nytimes.com/2025/06/02/arts/dance/herbert-migdoll-dead.html
 
