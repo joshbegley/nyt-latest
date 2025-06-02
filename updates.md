@@ -1,3 +1,11 @@
+**Introducing ‘The Protocol’**\
+`Coming June 5: A six-part podcast exploring the origins of medical treatment for transgender young people, and how the care got pulled into a political fight that could end it in the United States.`\
+https://nytimes.com/2025/06/02/podcasts/trans-gender-care-protocol.html
+
+**NBA Finals MVP odds: Can SGA claim the MVP trifecta? He's a massive favorite to do so**\
+`SGA enters the NBA Finals as the favorite to win Finals MVP after snagging league and conference finals MVP. It's not even close. `\
+https://nytimes.com/athletic/6397841/2025/06/02/nba-finals-mvp-odds-shai-gilgeous-alexander/
+
 **Jonathan Joss, ‘King of the Hill’ Voice Actor, Is Fatally Shot by Neighbor, Police Say**\
 `A neighbor who opened fire on the actor during a dispute was charged with murder, the authorities said. Mr. Joss also appeared in “Parks and Recreation.”`\
 https://nytimes.com/2025/06/02/arts/television/jonathan-joss-king-of-the-hill-killed.html
