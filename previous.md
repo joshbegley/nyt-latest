@@ -1,3 +1,7 @@
+**Word of the Day: solipsism**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/02/learning/word-of-the-day-solipsism.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/02/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/briefing/ukraine-gaza-tariffs.html
 **Champions League 2024-25 review: Games of the tournament, best players and predictions for next season**\
 `Ahmed Walid, Seb Stafford-Bloor, Michael Cox, Mark Carey and Dermot Corrigan review this season's Champions League`\
 https://nytimes.com/athletic/6394377/2025/06/02/champions-league-review-vitinha-yamal-psg-inter/
-
-**What we learned watching PSG win the Champions League final with a professional head coach**\
-`It was one of the great performances in a European final and we watched it with manager Ian Cathro. Here, he talks us through how PSG did it`\
-https://nytimes.com/athletic/6395789/2025/06/02/champions-league-final-psg-analysis/
 
