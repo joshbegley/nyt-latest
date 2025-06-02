@@ -1,3 +1,7 @@
+**French wild card Lois Boisson stuns Jessica Pegula to reach French Open quarterfinals**\
+`Boisson is the first French woman into the Roland Garros quarterfinals since 2017.`\
+https://nytimes.com/athletic/6397380/2025/06/02/tennis-french-open-lois-boisson-quarterfinals-pegula-result-analysis/
+
 **The Next Phase of New York City’s ‘Trash Revolution’ Is Here**\
 `Large residential buildings in West Harlem are now required to put trash in large bins on the street instead of in piles on the curb. The mayor wants to expand the idea citywide.`\
 https://nytimes.com/2025/06/02/nyregion/sanitation-bins-garbage-nyc.html
