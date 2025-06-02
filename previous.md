@@ -1,3 +1,7 @@
+**Do You Have Questions About the Economy? Ask The Morning.**\
+`A future edition of the newsletter will answer readers’ questions.`\
+https://nytimes.com/2025/06/02/briefing/do-you-have-questions-about-the-economy-ask-the-morning.html
+
 **Florida baseball coach, athletic director apologize for coach's outburst**\
 `Kevin O’Sullivan directed a tirade at NCAA Tournament site officials because he was unhappy Florida's game was delayed by an hour.`\
 https://nytimes.com/athletic/6398558/2025/06/02/florida-baseball-coach-athletic-director-apologize-outburst/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/us/northern-lights-storm-sunday.html
 **Suspect in Colorado Attack Was Charged With a Hate Crime**\
 `Also, coffee was linked to healthy aging. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/06/02/briefing/suspect-in-colorado-attack-was-charged-with-a-hate-crime.html
-
-**Tourists Flee Mount Etna as Volcano Erupts**\
-`Videos shared online show hikers scrambling to descend the mountain as clouds of smoke and ash filled the air.`\
-https://nytimes.com/video/world/europe/100000010203821/mount-etna-eruption.html
 
