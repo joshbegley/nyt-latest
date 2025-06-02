@@ -1,3 +1,7 @@
+**America’s Jewish Community Has Faced a Series of Attacks**\
+`The attack in Boulder, Colo., follows the murders of two Israeli embassy aides in Washington and an arson at the home of the Jewish governor of Pennsylvania.`\
+https://nytimes.com/2025/06/01/us/jewish-community-attacks-boulder-colorado.html
+
 **Live Updates: People Burned in Attack on Event for Israeli Hostages in Colorado**\
 `A joint statement from the Jewish community in Boulder, Colo., said that an “incendiary device” was thrown at people at the weekly event. Police said the motive was under investigation.`\
 https://nytimes.com/live/2025/06/01/us/boulder-colorado-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/01/arts/renee-victor-dead.html
 **Wild and Marco Rossi remain at contract impasse as trade possibilities emerge: 'Only time will tell'**\
 `“There clearly is a difference of opinion with respect to Marco’s value,” Rossi’s agent tells The Athletic on Sunday.`\
 https://nytimes.com/athletic/6396355/2025/06/01/wild-marco-rossi-contract-trade/
-
-**Scottie Scheffler pulls away for 4-stroke win at Memorial Tournament**\
-`Scheffler defended a tournament win for the third time. Only Phil Mickelson (5) and Tiger Woods (23) have done it more in the last 30 years.`\
-https://nytimes.com/athletic/6396409/2025/06/01/scottie-scheffler-pulls-away-for-4-stroke-win-at-memorial-tournament/
 
