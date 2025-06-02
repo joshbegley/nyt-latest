@@ -1,3 +1,11 @@
+**Lowetide: 5 reasons why the Oilers should win the Stanley Cup**\
+`Is this the Oilers' time? Key indicators suggest it is so. But there are no guarantees in pursuit of the Stanley Cup.`\
+https://nytimes.com/athletic/6395998/2025/06/02/oilers-stanley-cup-nhl-playoffs-2025/
+
+**Consumers Are Financing Their Groceries. What Does It Say About the Economy?**\
+`Increased use of “buy now, pay later” loans may signal shifting consumer habits, but could also be a troubling sign of financial stress.`\
+https://nytimes.com/2025/06/02/business/buy-now-pay-later-groceries.html
+
 **Northern Lights Visible Across Several States**\
 `Timelapse videos captured the colorful display of light, known as the aurora borealis, on Sunday night.`\
 https://nytimes.com/video/us/100000010202733/northern-lights-united-states.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6397758/2025/06/02/wild-re-sign-marcus-johansson-to
 **Elon Musk Returns to His Tech Empire, Facing Questions of Inattention**\
 `As Mr. Musk steps away from Washington, he faces concerns over his prolonged absence from his businesses including Tesla, SpaceX, xAI and X.`\
 https://nytimes.com/2025/06/02/business/elon-musk-tesla-spacex-x.html
-
-**Holmes Rolston III, Pioneer of Environmental Ethics, Dies at 92**\
-`He began his career as a pastor. But he was forced out of his congregation in 1965, which led to a new life pondering the value of nature.`\
-https://nytimes.com/2025/06/02/books/holmes-rolston-iii-dead.html
-
-**Countering ‘Psychic Numbing’ in the Trump Era**\
-`The psychiatrist Robert Jay Lifton and other readers reflect on the troubling times of President Trump. Also: Thieving chatbots.`\
-https://nytimes.com/2025/06/02/opinion/trump-era.html
 
