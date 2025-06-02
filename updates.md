@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/02/crosswords/spelling-bee-forum.html
+
 **Yankees takeaways: Domínguez, Weaver injury concerns after win over Dodgers**\
 `Losing Domínguez or Weaver would be a blow to the Yankees, who are 36-22 with a 5 1/2-game lead in the American League East.`\
 https://nytimes.com/athletic/6396845/2025/06/02/yankees-takeaways-jasson-dominguez-luke-weaver/
