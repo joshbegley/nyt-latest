@@ -1,3 +1,8 @@
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **Fourth Military Judge in Sept. 11 Case Retires**\
 `It is not clear whether the chief judge now handling the case at Guantánamo Bay is serving as a caretaker or will hold hearings this summer.`\
 https://nytimes.com/2025/06/02/us/politics/judge-sept-11-case.html
