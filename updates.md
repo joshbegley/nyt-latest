@@ -1,3 +1,8 @@
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **Submit your Notre Dame questions for Pete Sampson’s mailbag**\
 `What's on your mind about the Fighting Irish?`\
 https://nytimes.com/athletic/6398064/2025/06/02/notre-dame-football-mailbag-questions-20/
