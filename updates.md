@@ -1,3 +1,20 @@
+**Submit your Notre Dame questions for Pete Sampson’s mailbag**\
+`What's on your mind about the Fighting Irish?`\
+https://nytimes.com/athletic/6398064/2025/06/02/notre-dame-football-mailbag-questions-20/
+
+**Suns narrow coaching search to Cavs coaches Johnnie Bryant and Jordan Ott**\
+`Bryant and Ott just concluded their first seasons on Kenny Atkinson’s staff, which this season produced an Eastern Conference-best 64 wins.`\
+https://nytimes.com/athletic/6398055/2025/06/02/phoenix-suns-coaching-search-cavaliers/
+
+**How to watch the San Francisco Giants in 2025: Schedule, broadcast info and blackout rules**\
+`Here's how to watch the San Francisco Giants this season, factoring in broadcast rotations and streaming rules.`\
+https://nytimes.com/athletic/6393991/2025/06/02/san-francisco-giants-how-to-watch/
+
+**Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
+`Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
+`\
+https://nytimes.com/athletic/6397088/2025/06/02/premier-league-betting-lowdown-arsenal-transfer-predictions-odds/
+
 **Arsenal's Premier League odds: Why transfer target Benjamin Šeško is not the answer**\
 `Brett Koremenos explores the betting ramifications around Arsenal’s striker problems and the potentail arrival of Benjamin Šeško.
 `\
