@@ -1,3 +1,11 @@
+**10-Minute Challenge: A Surrealist Scene by Gertrude Abercrombie**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/06/01/upshot/2025-05-22-ten-minute-challenge-abercrombie.html
+
+**Padres' Gavin Sheets exits game after collision with outfield wall**\
+`Sheets has been the offensive surprise of the Padres' season, leading the team with 34 RBIs.`\
+https://nytimes.com/athletic/6396485/2025/06/01/padres-gavin-sheets-outfield-wall-collision/
+
 **Tennessee overcomes controversial call, UCLA to reach WCWS semis**\
 `UCLA forced extra innings after a base-running mistake was ruled unreviewable, but the Volunteers pulled out the victory in the ninth.`\
 https://nytimes.com/athletic/6396361/2025/06/01/tennessee-ucla-softball-wcws/
