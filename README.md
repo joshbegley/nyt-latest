@@ -1,3 +1,7 @@
+**Who Is Karol Nawrocki, Poland’s Next President?**\
+`The nationalist, who was endorsed by President Trump, has long been hostile to Poland’s centrist government.`\
+https://nytimes.com/2025/06/02/world/europe/poland-president-who-is-karol-nawrocki.html
+
 **Man United fans' survey: Your views on Ruben Amorim, INEOS and the players**\
 `The ownership, the head coach, the future - have your say on the state the club finds itself in.`\
 https://nytimes.com/athletic/6391411/2025/06/02/man-united-fan-survey-amorim-ineos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6396362/2025/06/02/mlb-quarter-century-team-ohtani-
 **Ranking the No. 1 recruits of the 21st century: Travis Hunter or Vince Young for the top spot?**\
 `Where does Adrian Peterson rank? Is Jeremiah Smith worthy of a spot in the top 10 after one season? What about Arch Manning?`\
 https://nytimes.com/athletic/6390327/2025/06/02/college-football-recruiting-ranking-5-stars/
-
-**How the low point of Ben Johnson's coaching career led to his meteoric NFL rise**\
-`Six years after he was out of work in the NFL, Johnson is the head coach of the Chicago Bears.`\
-https://nytimes.com/athletic/6393261/2025/06/02/ben-johnson-bears-lions-nfl-coaching-career/
 
