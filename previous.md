@@ -1,3 +1,19 @@
+**New Jersey’s Race for Governor: What to Know**\
+`The Republican and Democratic primaries will be held on June 10. Early voting hours begin on Tuesday across the state.`\
+https://nytimes.com/2025/06/02/nyregion/new-jersey-governors-race-what-to-know.html
+
+**In the Age of Trump, National Politics Dominate a Republican Primary**\
+`As voters cast ballots for governor of New Jersey, President Trump looms large.`\
+https://nytimes.com/2025/06/02/nyregion/new-jersey-governor-republican-primary.html
+
+**Jurors Will Consider Weinstein’s Fate in a Changed Climate**\
+`Harvey Weinstein, the former movie mogul, is on trial again in New York for sexual assault. His earlier conviction, overturned last year, was a key moment in the #MeToo movement.`\
+https://nytimes.com/2025/06/02/nyregion/harvey-weinstein-trial-metoo-movement.html
+
+**China Rejects Trump’s Accusation That It Violated Trade Truce**\
+`In response to President Trump’s claim, China said the United States was the one introducing a series of “discriminatory restrictive measures.”`\
+https://nytimes.com/2025/06/02/world/asia/china-trump-trade-truce.html
+
 **Bulletproof Vests and Glass: South Korean Candidate Tightens Security**\
 `After being stabbed last year, the leading presidential contender, Lee Jae-myung, is taking no chances. His main rival says he doesn’t need such protection.`\
 https://nytimes.com/2025/06/02/world/asia/south-korea-election-security.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/02/crosswords/spelling-bee-forum.html
 **Yankees takeaways: Domínguez, Weaver injury concerns after win over Dodgers**\
 `Losing Domínguez or Weaver would be a blow to the Yankees, who are 36-22 with a 5 1/2-game lead in the American League East.`\
 https://nytimes.com/athletic/6396845/2025/06/02/yankees-takeaways-jasson-dominguez-luke-weaver/
-
-**Jonathan Anderson’s Hire Makes History at Dior**\
-`His appointment as creative director of both women’s and men’s wear may mark not just a changing of the guard, but a shift in the paradigm.`\
-https://nytimes.com/2025/06/02/style/jonathan-anderson-dior.html
-
-**‘Love Island USA,’ Plus 7 Things to Watch on TV this Week**\
-`This reality competition show picks back up for its seventh season, and the Tony Awards celebrate Broadway on Sunday.`\
-https://nytimes.com/2025/06/02/arts/television/love-island-usa-tony-awards.html
-
-**The New York Times in Print for Monday, June 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/02/todays-new-york-times
-
-**Man Arrested After Attack on Supporters of Israeli Hostages**\
-`Witnesses said a shirtless man threw Molotov cocktails at people attending a community event supporting Israeli hostages in Boulder, Colo.`\
-https://nytimes.com/video/us/100000010202162/boulder-colorado-attack.html
 
