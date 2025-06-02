@@ -1,3 +1,7 @@
+**What We Know About the Attack in Colorado**\
+`Six people were hospitalized after a man used a “makeshift flamethrower” on a crowd in Boulder, Colo., honoring Israeli hostages in Gaza. The authorities are investigating the attack as an act of terrorism.`\
+https://nytimes.com/2025/06/02/us/boulder-colorado-attack-what-we-know.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2025/06/02/briefing/ukraine-gaza-tariffs.html
