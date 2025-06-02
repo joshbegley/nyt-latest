@@ -1,5 +1,9 @@
 **French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
 `Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
+https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-tennis-playing-friends-challenge-andreeva-kasatkina/
+
+**French Open recap: Mirra Andreeva, Daria Kasatkina and tennis friendships**\
+`Playing a tennis match against your friend at a Grand Slam is a strange experience. Andreeva and Kasatkina handled it.`\
 https://nytimes.com/athletic/6397038/2025/06/02/french-open-recap-mirra-andreeva-daria-kasatkina-and-tennis-friendships/
 
 **Tuesday Briefing: South Korea Votes**\
