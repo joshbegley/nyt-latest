@@ -1,3 +1,7 @@
+**The Colorado suspect’s immigration status was stalled in a common gray area, experts say.**\
+`Here is a look at what is known about the path taken by Mohamed Sabry Soliman, an Egyptian, in seeking asylum in the U.S.`\
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/the-colorado-suspects-immigration-status-was-stalled-in-a-common-gray-area-experts-say
+
 **Ukraine Shows It Can Still Flip the Script on How Wars Are Waged**\
 `The attack demonstrated Ukraine’s ability to use relatively cheap drones to take out expensive aircraft and to strike sites far from its borders.`\
 https://nytimes.com/2025/06/02/us/politics/ukraine-russia-drone-attack.html

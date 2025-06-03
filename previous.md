@@ -1,3 +1,7 @@
+**The Colorado suspect’s immigration status was stalled in a common gray area, experts say.**\
+`Here is a look at what is known about the path taken by Mohamed Sabry Soliman, an Egyptian, in seeking asylum in the U.S.`\
+https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/the-colorado-suspects-immigration-status-was-stalled-in-a-common-gray-area-experts-say
+
 **Ukraine Shows It Can Still Flip the Script on How Wars Are Waged**\
 `The attack demonstrated Ukraine’s ability to use relatively cheap drones to take out expensive aircraft and to strike sites far from its borders.`\
 https://nytimes.com/2025/06/02/us/politics/ukraine-russia-drone-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398558/2025/06/02/florida-baseball-coach-athletic-
 **Why Women Are Leaving This Broadway Show in Tears**\
 `“John Proctor is the Villain” turns the idea that MeToo was a witch hunt inside out.`\
 https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
-
-**Man Stabs 12 in Spree at Oregon Homeless Shelter, Police Say**\
-`The attack, in which two of shelter staff members were injured, does not appear to be targeted, the authorities said. A suspect was in custody.`\
-https://nytimes.com/2025/06/02/us/stabbing-oregon-homeless-shelter.html
 
