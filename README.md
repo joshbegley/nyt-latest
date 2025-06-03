@@ -1,6 +1,6 @@
 **Far-Right Leader Pulls Out of Dutch Governing Coalition**\
 `Geert Wilders said the decision was made because the four-party coalition had not made progress in cracking down on immigration.`\
-https://nytimes.com/2025/06/03/world/europe/far-right-leader-pulls-out-of-dutch-governing-coalition.html
+https://nytimes.com/2025/06/03/world/europe/geert-wilders-netherlands-coalition.html
 
 **Israeli Soldiers Open Fire Near Gaza Aid Site. Gaza Health Officials Say 27 Are Killed.**\
 `The Israeli military said its troops began shooting after people strayed from a designated route toward a food distribution site. It was the latest deadly incident involving a contentious new aid system.`\
