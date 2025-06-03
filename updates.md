@@ -1,3 +1,27 @@
+**Here are the latest developments.**\
+`By Choe Sang-Hun and Jin Yu Young`\
+https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
+
+**Live Updates: South Koreans Are Voting For President After Months of Tumult**\
+`The winner will succeed Yoon Suk Yeol, who was removed for declaring martial law. South Korea has been mired in political uncertainty since.`\
+https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election
+
+**Who owns La Liga's 20 clubs: A Wimbledon semi-finalist, Pep Guardiola's brother and a private detective**\
+`The owner of every La Liga club from 2024-25 explained`\
+https://nytimes.com/athletic/6397667/2025/06/03/la-liga-owners-explained/
+
+**Jack Grealish is at a career crossroads. Which club could reignite his best?**\
+`Just two years after being key to City’s treble-winning season, the winger started just seven Premier League games in 2024-25`\
+https://nytimes.com/athletic/6387506/2025/06/03/what-next-for-jack-grealish/
+
+**Why has there never been a challenger to the Premier League like LIV Golf or the XFL?**\
+`Football is awash with mega-rich investors. Might some of them create a league to compete with England's dominant top division?`\
+https://nytimes.com/athletic/6361123/2025/06/03/premier-league-challenger-leagues/
+
+**Will the Red Sox lose patience as Trevor Story continues to struggle at the plate?**\
+`Amid what he has acknowledged as the worst offensive stretch of his career, Story is still searching for answers and consistency.`\
+https://nytimes.com/athletic/6398956/2025/06/03/red-sox-trevor-story/
+
 **Will the Red Sox lose patience as Trevor Story continues to struggle at the plate?**\
 `Amid what he’s acknowledged as the worst offensive stretch of his career, Story is still searching for answers and consistency.`\
 https://nytimes.com/athletic/6398956/2025/06/03/red-sox-trevor-story/

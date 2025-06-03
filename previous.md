@@ -1,5 +1,25 @@
+**Here are the latest developments.**\
+`By Choe Sang-Hun and Jin Yu Young`\
+https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
+
+**Live Updates: South Koreans Are Voting For President After Months of Tumult**\
+`The winner will succeed Yoon Suk Yeol, who was removed for declaring martial law. South Korea has been mired in political uncertainty since.`\
+https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election
+
+**Who owns La Liga's 20 clubs: A Wimbledon semi-finalist, Pep Guardiola's brother and a private detective**\
+`The owner of every La Liga club from 2024-25 explained`\
+https://nytimes.com/athletic/6397667/2025/06/03/la-liga-owners-explained/
+
+**Jack Grealish is at a career crossroads. Which club could reignite his best?**\
+`Just two years after being key to City’s treble-winning season, the winger started just seven Premier League games in 2024-25`\
+https://nytimes.com/athletic/6387506/2025/06/03/what-next-for-jack-grealish/
+
+**Why has there never been a challenger to the Premier League like LIV Golf or the XFL?**\
+`Football is awash with mega-rich investors. Might some of them create a league to compete with England's dominant top division?`\
+https://nytimes.com/athletic/6361123/2025/06/03/premier-league-challenger-leagues/
+
 **Will the Red Sox lose patience as Trevor Story continues to struggle at the plate?**\
-`Amid what he’s acknowledged as the worst offensive stretch of his career, Story is still searching for answers and consistency.`\
+`Amid what he has acknowledged as the worst offensive stretch of his career, Story is still searching for answers and consistency.`\
 https://nytimes.com/athletic/6398956/2025/06/03/red-sox-trevor-story/
 
 **Energized by struggles, Royce Lewis works to get back on track: 'Everyone slumps'**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6375108/2025/06/03/how-each-of-the-32-teams-qualifi
 **Giro d'Italia key takeaways: Yates' patience, the beauty of gravel, and did UAE throw away the race?**\
 `The Athletic's writers discuss the winners and losers from the first Grand Tour of the cycling season `\
 https://nytimes.com/athletic/6397427/2025/06/03/giro-ditalia-2025-key-takeaways/
-
-**What We Can Learn About Xi’s Rule by Studying His Father’s Life**\
-`Xi Zhongxun was purged by the Communist Party he served and went on to help reform Chinese politics. His son is the most authoritarian leader since Mao.`\
-https://nytimes.com/2025/06/03/business/xi-zhongxun-biography-father.html
-
-**Connections: Sports Edition Coach: Hints for June 3, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6398929/2025/06/03/connections-sports-edition-hints-for-june-3-2025/
-
-**Corrections: June 3, 2025**\
-`Corrections that appeared in print on Tuesday, June 3, 2025.`\
-https://nytimes.com/2025/06/03/pageoneplus/corrections-june-3-2025.html
-
-**Full Time: FAQs about the Spirit’s coaching shuffle**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6398997/2025/06/02/jonatan-giraldez-spirit-lyonnes-full-time/
-
-**South Koreans Elect a New Leader on Tuesday. Here’s What to Know.**\
-`The new president will be tasked with pulling the nation out of political turmoil and face a polarized country and world.`\
-https://nytimes.com/2025/06/02/world/asia/south-korea-election-what-to-know.html
 
