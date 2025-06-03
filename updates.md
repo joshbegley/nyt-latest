@@ -1,3 +1,8 @@
+**Watch: With the NBA Finals set to tip, can the Pacers upset the favored Thunder?**\
+`"The Athletic NBA Daily" previewed the NBA Finals matchup between the Oklahoma City Thunder and the Indiana Pacers.
+`\
+https://nytimes.com/athletic/6397481/2025/06/02/finals-pacers-thunder-nba-daily/
+
 **South Koreans Elect a New Leader on Tuesday. Here’s What to Know.**\
 `The new president will be tasked with pulling the nation out of political turmoil and face a polarized country and world.`\
 https://nytimes.com/2025/06/02/world/asia/south-korea-election-what-to-know.html
