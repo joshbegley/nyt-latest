@@ -1,3 +1,19 @@
+**Smithsonian’s Reaction to Trump’s Firing of Its Museum Director: Silence**\
+`Four days after the president said he was dismissing the head of the National Portrait Gallery, the Smithsonian has yet to accept or challenge his authority.`\
+https://nytimes.com/2025/06/03/arts/design/smithsonian-trump-firing-national-portrait-gallery.html
+
+**The Washington Post Plans an Influx of Outside Opinion Writers**\
+`A new program, known internally as Ripple, would open The Post to journalists at other publications and influential writers on Substack.`\
+https://nytimes.com/2025/06/03/business/media/washington-post-opinion-ripple.html
+
+**Until Saturday: A toppled dynasty, in context**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6400800/2025/06/03/oklahoma-softball-dynasty-history-until-saturday/
+
+**Forest hope Dominguez will recover from knee injury before start of new season**\
+`The injury gas forced Dominguez to withdraw from international duty with Argentina and required treatment.`\
+https://nytimes.com/athletic/6400749/2025/06/03/forest-nicolas-dominguez-injury-update/
+
 **ICE Detains Family of Suspect in Colorado Attack**\
 `Homeland Security Secretary Kristi Noem said the agency would be investigating whether Mohamed Sabry Soliman’s family had information about his plans.`\
 https://nytimes.com/2025/06/03/us/politics/ice-colorado-suspect.html

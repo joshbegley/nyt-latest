@@ -1,3 +1,19 @@
+**Smithsonian’s Reaction to Trump’s Firing of Its Museum Director: Silence**\
+`Four days after the president said he was dismissing the head of the National Portrait Gallery, the Smithsonian has yet to accept or challenge his authority.`\
+https://nytimes.com/2025/06/03/arts/design/smithsonian-trump-firing-national-portrait-gallery.html
+
+**The Washington Post Plans an Influx of Outside Opinion Writers**\
+`A new program, known internally as Ripple, would open The Post to journalists at other publications and influential writers on Substack.`\
+https://nytimes.com/2025/06/03/business/media/washington-post-opinion-ripple.html
+
+**Until Saturday: A toppled dynasty, in context**\
+`Until Saturday is The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/6400800/2025/06/03/oklahoma-softball-dynasty-history-until-saturday/
+
+**Forest hope Dominguez will recover from knee injury before start of new season**\
+`The injury gas forced Dominguez to withdraw from international duty with Argentina and required treatment.`\
+https://nytimes.com/athletic/6400749/2025/06/03/forest-nicolas-dominguez-injury-update/
+
 **ICE Detains Family of Suspect in Colorado Attack**\
 `Homeland Security Secretary Kristi Noem said the agency would be investigating whether Mohamed Sabry Soliman’s family had information about his plans.`\
 https://nytimes.com/2025/06/03/us/politics/ice-colorado-suspect.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/03/world/europe/france-antisemitism-dreyfus.html
 **Police Hunt for Father After 3 Missing Girls Are Found Dead in Washington State**\
 `The bodies of the girls, ages 5, 8 and 9, were found at a campground in Chelan County on Monday. Their father is being sought on murder and kidnapping charges.`\
 https://nytimes.com/2025/06/03/us/three-missing-girls-wenatchee-murder-father.html
-
-**Trump’s Pick to Run the Forest Service Has a History With the Agency**\
-`Michael Boren, a tech company founder, has clashed with the agency for years over land he owns in Idaho.`\
-https://nytimes.com/2025/06/03/climate/michael-boren-forest-service-nomination.html
-
-**Trump Administration Backs Off Effort to Collect Data on Food Stamp Recipients**\
-`In response to a federal lawsuit, the Agriculture Department said it would refrain, for now, from demanding that states turn over the personal information of people receiving assistance.`\
-https://nytimes.com/2025/06/03/us/politics/trump-administration-personal-data-food-stamp-recipients.html
-
-**How to Be More Productive**\
-`Evidence-based strategies to bring out your best working self.`\
-https://nytimes.com/live/2025/06/03/admin/do-not-use
-
-**Arsenal target Zubimendi expecting 'long summer'**\
-`Arsenal's move for the Spain international has been worked on for a considerable time.`\
-https://nytimes.com/athletic/6400637/2025/06/03/arsenal-zubimendi-transfer-update-real-sociedad/
 
