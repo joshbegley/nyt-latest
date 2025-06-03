@@ -1,3 +1,7 @@
+**Connor McDavid looks to join Wayne Gretzky, Sidney Crosby and others as 'revenge' Cup winners**\
+`McDavid is known to have a "singular focus" on winning a championship — and he will have to get past the Florida Panthers this time.`\
+https://nytimes.com/athletic/6401217/2025/06/03/mcdavid-stanley-cup-rematch-oilers/
+
 **After Muscling Their Bill Through the House, Some Republicans Have Regrets**\
 `The sprawling legislation carrying President Trump’s domestic agenda squeaked through the House with one vote to spare, but some Republicans now say they didn’t realize what they voted for.`\
 https://nytimes.com/2025/06/03/us/politics/house-republicans-policy-bill-regrets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401226/2025/06/03/red-sox-triston-casas-knee-surge
 **Trump Rescinds Biden Policy Requiring Hospitals to Provide Emergency Abortions**\
 `At issue is a how to interpret a federal law barring hospitals from turning away poor or uninsured patients.`\
 https://nytimes.com/2025/06/03/us/politics/trump-emergency-abortion-rule.html
-
-**An Immigrant Was Accused of Threatening Trump. Prosecutors Say He Was Framed.**\
-`Kristi Noem said a Mexican immigrant wrote a letter saying that he wanted to assassinate the president. Another man has now been charged with setting him up.`\
-https://nytimes.com/2025/06/03/us/immigrant-milwaukee-threat.html
 
