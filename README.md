@@ -1,3 +1,35 @@
+**'We want to be No. 1': Defense sets a high standard at Seahawks OTAs**\
+`The Seahawks feature a new-look offense, but familiar faces on defense are being counted on to resume their dominance from last season.`\
+https://nytimes.com/athletic/6398696/2025/06/03/seahawks-offseason-defense/
+
+**Four lessons the Senators can learn from this year's Cup finalists**\
+`An encouraging sign for the Senators after putting together this list: they have already started on some of these.`\
+https://nytimes.com/athletic/6394615/2025/06/03/ottawa-senators-stanley-cup-lessons/
+
+**Should the Leafs re-sign John Tavares? It's not as clear-cut as it seems**\
+`With GM Brad Treliving promising change this offseason, the Leafs need to look at their former captain with an objective eye.`\
+https://nytimes.com/athletic/6394953/2025/06/03/maple-leafs-john-tavares-contract-debate-treliving/
+
+**Trump Administration Live Updates: Judges in Deportation Cases Face Evasion and Delay by Officials**\
+``\
+https://nytimes.com/live/2025/06/03/us/trump-news
+
+**Sean Combs’s Trial Will Focus Next on 2016 Hotel Assault Footage**\
+`The music mogul has been accused of using a brown bag filled with $100,000 cash to buy hotel security video of him beating up Casandra Ventura.`\
+https://nytimes.com/2025/06/03/arts/music/sean-combs-diddy-trial-cassie-hotel.html
+
+**Do the Knicks have a Mikal Bridges dilemma this offseason?**\
+`Bridges is eligible for an extension this summer. Will the Knicks give it to him? Does he want to be in New York?`\
+https://nytimes.com/athletic/6397296/2025/06/03/knicks-mikal-bridges-future-nba/
+
+**'We're going to get a good player': Flyers AGM on upcoming draft, current prospects**\
+`The Flyers have seven picks over the first two rounds in the 2025 draft June 27-28.`\
+https://nytimes.com/athletic/6398655/2025/06/03/flyers-nhl-draft-prospects-brent-flahr/
+
+**After MLB-best May, can Cardinals' depth keep them winning in June?**\
+`Nolan Arenado and the surprising Cardinals face a tougher test this month because of a daunting schedule. `\
+https://nytimes.com/athletic/6398373/2025/06/03/cardinals-june-schedule/
+
 **National Park Service to Close Dupont Circle in Washington During Pride Event**\
 `The agency said it would fence off a park at the center of a neighborhood with a vibrant L.G.B.T.Q. community during WorldPride, a major international celebration.`\
 https://nytimes.com/2025/06/03/us/washington-pride-dupont-circle-park-closed.html
@@ -5,37 +37,4 @@ https://nytimes.com/2025/06/03/us/washington-pride-dupont-circle-park-closed.htm
 **How Low Will the Dollar Go?**\
 `Trade-war angst has put pressure on the greenback this year. Wall Street thinks it’s about to get worse.`\
 https://nytimes.com/2025/06/03/business/dealbook/dollar-trump-deficit-tariffs.html
-
-**White House Unveils a New, Even Darker Presidential Portrait**\
-`The official portrait, released on Monday by the White House, features a somber Mr. Trump against a dark backdrop.`\
-https://nytimes.com/2025/06/03/us/trump-portrait-white-house.html
-
-**What we’re hearing about Formula One’s 2026 calendar**\
-`The 2026 F1 schedule is close to being formally revealed. Here's what we know so far about race changes compared to this year...`\
-https://nytimes.com/athletic/6399310/2025/06/03/formula-one-f1-2026-calendar/
-
-**Aiming to Change Putin’s Calculus, Ukraine Exposes Russia’s Vulnerability**\
-`Kyiv’s attack on the country’s bomber fleet appeared designed to show Russia’s leader that continuing the war carries big risks for Moscow.`\
-https://nytimes.com/2025/06/03/world/europe/russia-ukraine-drone-attack-putin-war.html
-
-**Racing to Save California’s Elephant Seals From Bird Flu**\
-`Two years ago, avian influenza ravaged elephant seal colonies in South America. Are the colonies on the northern Pacific Coast next?`\
-https://nytimes.com/card/2025/06/03/science/bird-flu-mammals-elephant-seals-california
-
-**As Timberwolves face key summer, Tim Connelly says he isn't going anywhere**\
-`Connelly plans on leading the charge as Minnesota must make decisions on Julius Randle, Nickeil Alexander-Walker and more this offseason.`\
-https://nytimes.com/athletic/6398411/2025/06/03/tim-connelly-timberwolves-free-agency-offseason/
-
-**Listen: Could Martin Zubimendi be just as important to Arsenal as signing a new No 9?**\
-`Handbrake Off discusses why Martin Zubimendi could be just as important to Arsenal as a new centre-forward.
-`\
-https://nytimes.com/athletic/6399273/2025/06/03/could-martin-zubimendi-be-just-as-important-to-arsenal-as-signing-a-new-no-9/
-
-**The Athletic FC: Mbeumo to Man Utd? Pivotal week for Wirtz, Messi trading cards to be remade**\
-`Today in TAFC - the return of the DealSheet featuring Wirtz and Mbeumo wanting a Man Utd move. Plus: Messi trading cards to be remade`\
-https://nytimes.com/athletic/6399229/2025/06/03/the-athletic-fc-mbeumo-to-man-utd-pivotal-week-for-wirtz-messi-trading-cards-to-be-remade/
-
-**Dortmund confident of completing Jobe Bellingham signing**\
-`Bellingham has also attracted interest from Eintracht Frankfurt after playing an important role in Sunderland's Premier League promotion.`\
-https://nytimes.com/athletic/6342169/2025/06/03/jobe-bellingham-borussia-dortmund/
 
