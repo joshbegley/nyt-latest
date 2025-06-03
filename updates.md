@@ -1,3 +1,7 @@
+**Crystal Palace Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`There is uncertainty around who will make the key decisions after Freedman's exit, but the club are in a strong position in terms of PSR.`\
+https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-preview/
+
 **Here are the latest developments.**\
 `By Choe Sang-Hun and Jin Yu Young`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
