@@ -1,3 +1,7 @@
+**Israeli Soldiers Open Fire Near Gaza Aid Site. Gaza Health Officials Say 27 Are Killed.**\
+`The Israeli military said its troops fired on people who strayed from a designated route toward a food distribution site. It was the latest deadly incident involving a contentious new aid system.`\
+https://nytimes.com/2025/06/03/world/middleeast/gaza-aid-site-shooting-israel.html
+
 **Quote of the Day: Economists See Trouble Ahead In G.O.P.’s Bill**\
 `Quotation of the Day for Tuesday, June 3, 2025.`\
 https://nytimes.com/2025/06/03/pageoneplus/quote-of-the-day-economists-see-trouble-ahead-in-gops-bill.html
