@@ -1,3 +1,8 @@
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **Flyers sign Noah Cates to 4-year, $16 million extension**\
 `Cates scored 16 goals and 37 points in 78 games this season and emerged as the Flyers' most consistent center.`\
 https://nytimes.com/athletic/6399909/2025/06/03/flyers-noah-cates-extension/
