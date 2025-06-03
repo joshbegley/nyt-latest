@@ -1,3 +1,7 @@
+**The Bounce: Grading Thunder-Pacers matchups for 2025 NBA Finals. Plus, should Seattle feel left out?**\
+`With Game 1 of the NBA Finals tipping off Thursday night and a lull between playoff action, The Bounce previews key series matchups`\
+https://nytimes.com/athletic/6399420/2025/06/03/thunder-pacers-shai-gilgeous-alexander-tyrese-haliburton-matchups-seattle-nba-finals-the-bounce/
+
 **What's next for the Jazz after hiring Austin Ainge as president of basketball operations?**\
 `After being asked about tanking and saying, "you won't see that this year," Ainge must pick a path for the Jazz: youth or veteran core.`\
 https://nytimes.com/athletic/6399102/2025/06/03/whats-next-for-jazz-after-hiring-austin-ainge-as-president-of-basketball-operations/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/world/europe/russia-ukraine-crimea-bridge.html
 **'We want to be No. 1': Defense sets a high standard at Seahawks OTAs**\
 `The Seahawks feature a new-look offense, but familiar faces on defense are being counted on to resume their dominance from last season.`\
 https://nytimes.com/athletic/6398696/2025/06/03/seahawks-offseason-defense/
-
-**Four lessons the Senators can learn from this year's Cup finalists**\
-`An encouraging sign for the Senators after putting together this list: they have already started on some of these.`\
-https://nytimes.com/athletic/6394615/2025/06/03/ottawa-senators-stanley-cup-lessons/
 
