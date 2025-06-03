@@ -1,3 +1,7 @@
+**Jim Marshall, member of 'Purple People Eaters,' dies at 87**\
+`Marshall was a member of the vaunted Purple People Eaters defensive line, which helped Minnesota to four Super Bowl appearances.`\
+https://nytimes.com/athletic/6400697/2025/06/03/jim-marshall-dead-vikings-legend/
+
 **England's Kirby retires from international football before Euro 2025**\
 `The 31-year-old leaves the international stage after winning 77 caps.`\
 https://nytimes.com/athletic/6400821/2025/06/03/england-fran-kirby-retires-euro-2025/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/06/03/arts/music/taylor-swift-reputation-rerecordings-m
 `Ahead of Father’s Day, a roundup of colorful water-resistant styles.`\
 https://nytimes.com/2025/06/03/t-magazine/rubber-strap-water-resistant-watches.html
 
-**Carlos Alcaraz's tennis of sound and fury thunders around Roland Garros in rout of Tommy Paul**\
+**Carlos Alcaraz sends a thunderclap across the French Open in rout of Tommy Paul**\
 `The defending champion sent out a message that resounded around Court Philippe-Chatrier on his way to the semifinals.`\
 https://nytimes.com/athletic/6400751/2025/06/03/carlos-alcaraz-french-open-tommy-paul-result-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400800/2025/06/03/oklahoma-softball-dynasty-histor
 **Forest hope Dominguez will recover from knee injury before start of new season**\
 `The injury gas forced Dominguez to withdraw from international duty with Argentina and required treatment.`\
 https://nytimes.com/athletic/6400749/2025/06/03/forest-nicolas-dominguez-injury-update/
-
-**ICE Detains Family of Suspect in Colorado Attack**\
-`Homeland Security Secretary Kristi Noem said the agency would be investigating whether Mohamed Sabry Soliman’s family had information about his plans.`\
-https://nytimes.com/2025/06/03/us/politics/ice-colorado-suspect.html
 

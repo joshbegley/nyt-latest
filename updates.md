@@ -1,3 +1,11 @@
+**Jim Marshall, member of 'Purple People Eaters,' dies at 87**\
+`Marshall was a member of the vaunted Purple People Eaters defensive line, which helped Minnesota to four Super Bowl appearances.`\
+https://nytimes.com/athletic/6400697/2025/06/03/jim-marshall-dead-vikings-legend/
+
+**Carlos Alcaraz sends a thunderclap across the French Open in rout of Tommy Paul**\
+`The defending champion sent out a message that resounded around Court Philippe-Chatrier on his way to the semifinals.`\
+https://nytimes.com/athletic/6400751/2025/06/03/carlos-alcaraz-french-open-tommy-paul-result-analysis/
+
 **England's Kirby retires from international football before Euro 2025**\
 `The 31-year-old leaves the international stage after winning 77 caps.`\
 https://nytimes.com/athletic/6400821/2025/06/03/england-fran-kirby-retires-euro-2025/
