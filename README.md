@@ -1,3 +1,19 @@
+**Jonathan Morgan exhibited 'bullying behaviour', called Maddy Cusack a 'psycho', hearing told**\
+`A preliminary hearing on Tuesday heard evidence relating to the circumstances that preceded Cusack's death in September 2023.`\
+https://nytimes.com/athletic/6400161/2025/06/03/maddy-cusack-death-jonathan-morgan/
+
+**West Ham complete the £32.8m signing of Todibo from Nice**\
+`The 25-year-old defender initially joined in August on a season-long loan with an obligation to buy.`\
+https://nytimes.com/athletic/6400369/2025/06/03/west-ham-united-complete-the-32-8m-signing-of-jean-clair-todibo-from-nice/
+
+**What we're hearing about Adam Foote's coaching staff, and more Canucks notes**\
+`Foote has been steadily pecking away at filling out his coaching staff over the past few weeks.`\
+https://nytimes.com/athletic/6400163/2025/06/03/canucks-adam-foote-kevin-dean/
+
+**15 Surprising Show-Tune Covers for Broadway’s Big Night**\
+`Get ready for the Tony Awards with songs from Sylvester, Diana Ross & the Supremes, Queensrÿche and more.`\
+https://nytimes.com/2025/06/03/arts/music/amplifier-newsletter-show-tune-covers.html
+
 **Who Is South Korea’s New Leader?**\
 `After months of political turmoil in South Korea, Lee Jae-myung has won the presidential election by a wide margin. Mr. Lee’s campaign has ridden a wave of anger against former President Yoon Suk Yeol after he tried to impose martial law in December.`\
 https://nytimes.com/video/world/asia/100000010202472/who-is-lee-jae-myung.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6400206/2025/06/03/wake-forest-baseball-coach-tom-w
 **What the N.Y.C. Mayoral Candidates Hope to Achieve on the Debate Stage**\
 `Plus: Cynthia Nixon’s advice for debating Andrew Cuomo and Ilana Glazer’s ranked-choice ballot.`\
 https://nytimes.com/2025/06/03/nyregion/nyc-mayor-race-debate.html
-
-**PWHL Players Association votes to disclose salaries: Why they made the decision**\
-`An "overwhelming majority" of PWHL players voted in favor of the change over a 10-day period that ended late last week.`\
-https://nytimes.com/athletic/6400150/2025/06/03/pwhl-players-association-salaries/
-
-**Watch: Candace Parker on WNBA coaching, commentating and coming out**\
-`No Offseason interviews Candace Parker about her new memoir, 'The Can-Do Mindset.'`\
-https://nytimes.com/athletic/6399499/2025/06/03/candace-parker-wnba-no-offseason/
-
-**Harvard Students Seek ‘Viewpoint Diversity’ Outside the School’s Gates**\
-`Steps from Harvard’s campus, an institute backed by conservative donors says it is trying to fill an intellectual void.`\
-https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
-
-**The White House Gutted Science Funding. Now It Wants to ‘Correct’ Research.**\
-`Thousands of scientists, academics, physicians and researchers have responded to the administration’s executive order about “restoring a gold standard for science.”`\
-https://nytimes.com/2025/06/03/climate/executive-order-gold-standard-science.html
 
