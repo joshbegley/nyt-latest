@@ -1,3 +1,11 @@
+**Deportation flights accelerate, reaching a high under Trump.**\
+`(No description)`\
+https://nytimes.com/2025/06/03/us/politics/deportation-flights-accelerate-reaching-a-high-under-trump.html
+
+**MLB teams most likely to be sellers at trade deadline — and the players they could shop**\
+`Here are the nine teams that I believe will be deadline sellers, along with the players they could shop or contenders would covet. `\
+https://nytimes.com/athletic/6398823/2025/06/03/mlb-trade-deadline-sellers-teams-players/
+
 **Madden Curse? No, Saquon Barkley's fantasy football managers should be afraid of history**\
 `History strongly suggests Barkley isn't going to deliver an RB1 season in 2025. And it has nothing to do with the Madden Curse.`\
 https://nytimes.com/athletic/6205812/2025/06/03/saquon-barkley-fantasy-football-draft-madden/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/well/bladder-health-pee-bathroom.html
 **What to watch in sports this week: NBA and Stanley Cup Finals, Belmont Stakes, French Open**\
 `It's a stacked week in sports, from NBA and NHL finals action to the Belmont Stakes, French Open and UEFA Nations League.`\
 https://nytimes.com/athletic/6399002/2025/06/03/nba-finals-stanley-cup-belmont-stakes-french-open-yankees-red-sox-how-to-watch/
-
-**What to Know About China’s Halt of Rare Earth Exports**\
-`Since early April, China has stopped almost all shipments of critical minerals that are needed for cars, robots, wind turbines, jet fighters and other technologies.`\
-https://nytimes.com/2025/06/03/business/rare-earth-metals-china.html
-
-**Newark’s Mayor Sues a Top Trump Lawyer, Claiming Malicious Prosecution**\
-`The mayor, Ras Baraka, is suing Alina Habba, the interim U.S. attorney for New Jersey, who dropped charges against him soon after his arrest near an immigration jail.`\
-https://nytimes.com/2025/06/03/nyregion/ras-baraka-alina-habba-lawsuit-ice.html
 
