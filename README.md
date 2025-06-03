@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-p
 `By Choe Sang-Hun and Jin Yu Young`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
 
-**Live Updates: South Koreans Are Voting For President After Months of Tumult**\
-`The winner will succeed Yoon Suk Yeol, who was removed for declaring martial law. South Korea has been mired in political uncertainty since.`\
+**Live Updates: South Koreans Vote After Months of Political Chaos**\
+`Young voters are unhappy with the two main choices for president to succeed Yoon Suk Yeol, who was removed from office earlier this year.`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election
 
 **Who owns La Liga's 20 clubs: A Wimbledon semi-finalist, Pep Guardiola's brother and a private detective**\
