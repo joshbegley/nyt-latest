@@ -1,3 +1,7 @@
+**The removal of a ‘political overhang’ could lead to a market rally, analysts say.**\
+`By Jason Karaian`\
+https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/the-removal-of-a-political-overhang-could-lead-to-a-market-rally-analysts-say
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the first edition of The Athletic's Transfer DealSheet for the summer transfer window`\
 https://nytimes.com/athletic/6390146/2025/06/03/transfer-news-latest-manchester-uniter-arsenal-real-madrid-barcelona-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/06/03/science/
 **Brighton Transfer DealSheet: Summer window latest, key targets and likely exits**\
 `Brighton are unlikely to be as active in this summer window as they were last year, yet there is still plenty to look out for...`\
 https://nytimes.com/athletic/6352226/2025/06/03/brighton-dealsheet-transfers/
-
-**West Ham Transfer DealSheet: Summer window latest, key positions and available players**\
-`West Ham have an important summer ahead of them — this is their current state of play`\
-https://nytimes.com/athletic/6382679/2025/06/03/west-ham-transfer-latest-summer-2025/
 
