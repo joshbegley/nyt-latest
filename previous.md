@@ -1,8 +1,16 @@
+**They tried to make him go to Riyadh... Here's why Bruno saying no to Saudi offer should be celebrated**\
+`The United captain's rejection of Al Hilal should please all Premier League fans`\
+https://nytimes.com/athletic/6399684/2025/06/03/bruno-fernandes-rejected-al-hilal-why-it-should-be-celebrated/
+
+**PWHL releases expansion draft protected list: Hilary Knight, Sarah Nurse go unprotected**\
+`The list of players protected in the PWHL’s expansion draft for Seattle and Vancouver was released on Tuesday.`\
+https://nytimes.com/athletic/6397434/2025/06/03/pwhl-expansion-draft-protected-list-players-hockey/
+
 **What Secrets Lie in a Particle’s Wobble? Physicists Still Can’t Say.**\
 `The deviant behavior of a tiny particle called the muon might point to undiscovered forms of matter and energy in the universe. Or it might not.`\
 https://nytimes.com/2025/06/03/science/physics-muons-fermilab.html
 
-**Carrying his own bag, Max Homa fails in bid to qualify for U.S. Open**\
+**Carrying his bag, Max Homa fails in bid to qualify for U.S. Open**\
 `For Homa, more than eight hours of walking did not earn him a spot in next week’s U.S. Open at Oakmont Country Club.`\
 https://nytimes.com/athletic/6399955/2025/06/03/max-homa-bag-carry-us-open/
 
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/03/well/eat/yuka-nutrition-app-maha-benefits.html
 **The Perks of Being Harvey Weinstein’s Publicist**\
 `Juda Engelmayer took a job that leading crisis communications pros didn’t want. Now he’s the pied piper of pariahs.`\
 https://nytimes.com/2025/06/03/style/harvey-weinstein-pr-juda-engelmayer.html
-
-**Deportation flights accelerate, reaching a high under Trump.**\
-`(No description)`\
-https://nytimes.com/2025/06/03/us/politics/deportation-flights-accelerate-reaching-a-high-under-trump.html
-
-**MLB teams most likely to be sellers at trade deadline — and the players they could shop**\
-`Here are the nine teams that I believe will be deadline sellers, along with the players they could shop or contenders would covet. `\
-https://nytimes.com/athletic/6398823/2025/06/03/mlb-trade-deadline-sellers-teams-players/
 

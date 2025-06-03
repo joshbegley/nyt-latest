@@ -1,3 +1,20 @@
+**They tried to make him go to Riyadh... Here's why Bruno saying no to Saudi offer should be celebrated**\
+`The United captain's rejection of Al Hilal should please all Premier League fans`\
+https://nytimes.com/athletic/6399684/2025/06/03/bruno-fernandes-rejected-al-hilal-why-it-should-be-celebrated/
+
+**PWHL releases expansion draft protected list: Hilary Knight, Sarah Nurse go unprotected**\
+`The list of players protected in the PWHL’s expansion draft for Seattle and Vancouver was released on Tuesday.`\
+https://nytimes.com/athletic/6397434/2025/06/03/pwhl-expansion-draft-protected-list-players-hockey/
+
+**Carrying his bag, Max Homa fails in bid to qualify for U.S. Open**\
+`For Homa, more than eight hours of walking did not earn him a spot in next week’s U.S. Open at Oakmont Country Club.`\
+https://nytimes.com/athletic/6399955/2025/06/03/max-homa-bag-carry-us-open/
+
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
 `Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
 `\
