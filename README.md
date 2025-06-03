@@ -1,3 +1,11 @@
+**NBA and possession battle: How Thunder, Pacers stack up with their peers**\
+`Making shots, obviously, is important, but controlling the possession battle can help teams steal victories when it matters most.`\
+https://nytimes.com/athletic/6390087/2025/06/03/nba-possession-battle-thunder-pacers/
+
+**Eno Sarris' MLB starting pitcher rankings for the rest of 2025**\
+`We have a new No. 1 at the top of the rankings, a pitcher who dominated the AL in 2024 who's putting up even better numbers this season.`\
+https://nytimes.com/athletic/6375745/2025/06/03/sarris-mlb-starting-pitcher-rankings-rest-of-2025-season/
+
 **The Pulse: A dynasty ends**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6398024/2025/06/03/texas-tech-nijaree-canady-oklahoma-wcws-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6398893/2025/06/03/braves-alex-anthopoulos-smith-sh
 **Joe Ryan's big escape, Byron Buxton's 5-RBI night drive Twins to win over A's**\
 `"(Joe's fifth inning) didn't start too great. It finished with probably one of the more impressive pitch-making sequences that you'll see."`\
 https://nytimes.com/athletic/6399105/2025/06/03/twins-athletics-joe-ryan-byron-buxton/
-
-**Studs from the Spud: The state of Idaho is becoming a recruiting hotbed**\
-`Four-star offensive lineman Kelvin Obot is the state's next top recruit. He will choose between Nebraska, Oregon, Utah and Michigan. `\
-https://nytimes.com/athletic/6397949/2025/06/03/idaho-college-football-recruiting-elite-talent/
-
-**Tennessee's journey hasn't always been smooth, but Vols are feeling Super once again**\
-`Tennessee, the reigning national champs, finished the season 13-13 and lost six of their final seven series.`\
-https://nytimes.com/athletic/6398974/2025/06/03/tennessee-baseball-super-regional-tony-vitello/
 
