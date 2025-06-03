@@ -1,3 +1,16 @@
+**Racing to Save California’s Elephant Seals From Bird Flu**\
+`Two years ago, avian influenza ravaged elephant seal colonies in South America. Are the colonies on the northern Pacific Coast next?`\
+https://nytimes.com/card/2025/06/03/science/bird-flu-mammals-elephant-seals-california
+
+**As Timberwolves face key summer, Tim Connelly says he isn't going anywhere**\
+`Connelly plans on leading the charge as Minnesota must make decisions on Julius Randle, Nickeil Alexander-Walker and more this offseason.`\
+https://nytimes.com/athletic/6398411/2025/06/03/tim-connelly-timberwolves-free-agency-offseason/
+
+**Listen: Could Martin Zubimendi be just as important to Arsenal as signing a new No 9?**\
+`Handbrake Off discusses why Martin Zubimendi could be just as important to Arsenal as a new centre-forward.
+`\
+https://nytimes.com/athletic/6399273/2025/06/03/could-martin-zubimendi-be-just-as-important-to-arsenal-as-signing-a-new-no-9/
+
 **Listen: Could Martin Zubimendi be just as important to Arsenal as signing a new No 9?**\
 `Handbrake Off discusses why Martin Zubimendi could be just as important to Arsenal as a new centre-forward.
 `\
