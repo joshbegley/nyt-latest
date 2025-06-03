@@ -1,3 +1,15 @@
+**Newark’s Mayor Sues a Top Trump Lawyer, Claiming Malicious Prosecution**\
+`The mayor, Ras Baraka, is suing Alina Habba, the interim U.S. attorney for New Jersey, who dropped charges against him soon after his arrest near an immigration jail.`\
+https://nytimes.com/2025/06/03/nyregion/ras-baraka-alina-habba-lawsuit-ice.html
+
+**Tesla Protesters Claim a Victory as Elon Musk Leaves Trump’s Side**\
+`The activists behind the Tesla Takedown campaign say they intend to expand beyond protests at the company’s showrooms.`\
+https://nytimes.com/2025/06/03/business/elon-musk-trump-tesla-protests.html
+
+**gws-jeremy-renner-near-death-experiences-science**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-jeremy-renner-near-death-experiences-science
+
 **Deportation Flights Reach Highest Level Under Trump So Far**\
 `The increasing pace of ICE removal flights suggests deportation numbers could continue to rise.`\
 https://nytimes.com/interactive/2025/06/03/us/trump-deportation-flights-ice-may.html

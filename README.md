@@ -1,3 +1,7 @@
+**What to Know About China’s Halt of Rare Earth Exports**\
+`Since early April, China has stopped almost all shipments of critical minerals that are needed for cars, robots, wind turbines, jet fighters and other technologies.`\
+https://nytimes.com/2025/06/03/business/rare-earth-metals-china.html
+
 **Newark’s Mayor Sues a Top Trump Lawyer, Claiming Malicious Prosecution**\
 `The mayor, Ras Baraka, is suing Alina Habba, the interim U.S. attorney for New Jersey, who dropped charges against him soon after his arrest near an immigration jail.`\
 https://nytimes.com/2025/06/03/nyregion/ras-baraka-alina-habba-lawsuit-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/business/trump-tariffs-oecd.html
 **gws-ireland-blackwater-valley**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/travel-ireland-blackwater-valley
-
-**The Windup: They fired the 3B coach? Really?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6399099/2025/06/03/braves-third-base-coach-the-windup/
 
