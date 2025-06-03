@@ -1,3 +1,7 @@
+**Knicks fire Tom Thibodeau after 5 seasons, conference finals run: Source**\
+`<p>The New York Knicks fired coach Tom Thibodeau on Tuesday, a league source confirmed.`\
+https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
+
 **Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
 `The tech executive criticized the president’s legislation in a series of posts on Tuesday, signaling a widening rift with Republicans.`\
 https://nytimes.com/2025/06/03/technology/elon-musk-criticizes-republican-legislation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6342199/2025/06/03/manchester-united-bruno-fernande
 **The No. 1 Hit That’s Driving Us Nuts**\
 `Alex Warren’s ubiquitous chart-topper “Ordinary” makes our critic Jon Caramanica crazy. He explains why in his latest car-stereo review.`\
 https://nytimes.com/video/podcasts/100000010203305/the-no-1-hit-thats-driving-us-nuts.html
-
-**South Korea’s New Leader Faces Tough Tests Right From the Start**\
-`Lee Jae-myung will be one of the most powerful presidents in decades in South Korea, but the country faces deep divisions, along with challenges from the Trump administration.`\
-https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
 

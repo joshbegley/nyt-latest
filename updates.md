@@ -1,3 +1,7 @@
+**Knicks fire Tom Thibodeau after 5 seasons, conference finals run: Source**\
+`<p>The New York Knicks fired coach Tom Thibodeau on Tuesday, a league source confirmed.`\
+https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
+
 **Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
 `The tech executive criticized the president’s legislation in a series of posts on Tuesday, signaling a widening rift with Republicans.`\
 https://nytimes.com/2025/06/03/technology/elon-musk-criticizes-republican-legislation.html
