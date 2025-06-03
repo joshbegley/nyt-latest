@@ -1,3 +1,11 @@
+**Ukraine Shows It Can Still Flip the Script on How Wars Are Waged**\
+`The attack demonstrated Ukraine’s ability to use relatively cheap drones to take out expensive aircraft and to strike sites far from its borders.`\
+https://nytimes.com/2025/06/02/us/politics/ukraine-russia-drone-attack.html
+
+**Braves replace 3B coach with ex-manager Fredi González after multiple bad sends**\
+`"We need to look for every area that we can get better," Braves president of baseball operations Alex Anthopoulos said.`\
+https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base-coach-matt-tuiasosopo/
+
 **Braves replace third-base coach with former manager Fredi González after multiple bad sends**\
 `"We need to look for every area that we can get better," Braves president of baseball operations Alex Anthopoulos said.`\
 https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base-coach-matt-tuiasosopo/
