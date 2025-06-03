@@ -1,40 +1,40 @@
-**Word of the Day: untenable**\
-`This word has appeared in 290 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/03/learning/word-of-the-day-untenable.html
+**Brighton Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`Brighton are unlikely to be as active in this summer window as they were last year, yet there is still plenty to look out for...`\
+https://nytimes.com/athletic/6352226/2025/06/03/brighton-dealsheet-transfers/
 
-**South Korea’s Presidential Candidates Leave Young Voters Disenchanted**\
-`Some of the same young people who demonstrated after President Yoon Suk Yeol declared martial law said they were disappointed by their choices in Tuesday’s election.`\
-https://nytimes.com/2025/06/03/world/asia/south-korea-election-young-voters.html
+**West Ham Transfer DealSheet: Summer window latest, key positions and available players**\
+`West Ham have an important summer ahead of them — this is their current state of play`\
+https://nytimes.com/athletic/6382679/2025/06/03/west-ham-transfer-latest-summer-2025/
 
-**The New York Times in Print for Tuesday, June 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/03/todays-new-york-times
+**Man Utd Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`Who could be the major ins and outs, how much does Ruben Amorim have to spend and what's the club's PSR position?`\
+https://nytimes.com/athletic/6397254/2025/06/03/man-utd-transfer-summer-window-dealsheet/
 
-**Poland Just Sent an Ominous Signal to the World**\
-`Populism is resilient and sticky, and liberalism has yet to find a reliable formula to defeat it.`\
-https://nytimes.com/2025/06/03/opinion/poland-election-nawrocki.html
+**Arsenal Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`The latest on Arsenal's plans for the summer transfer window`\
+https://nytimes.com/athletic/6397772/2025/06/03/arsenal-transfer-latest-summer-window-2025/
 
-**Tuesday Briefing**\
-`South Koreans go to the polls.`\
-https://nytimes.com/2025/06/03/briefing/south-korea-election-ukraine-colorado.html
+**Madrid Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`A summer of change is already well under way at Madrid`\
+https://nytimes.com/athletic/6397463/2025/06/03/real-madrid-summer-transfer-dealsheet/
 
-**2025 NCAA baseball Super Regionals set: What are the most intriguing matchups?**\
-`Five of the nine ACC teams that made the field of 64 advanced to the Super Regionals.`\
-https://nytimes.com/athletic/6398923/2025/06/03/ncaa-baseball-super-regionals-schedule-3/
+**Liverpool Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`Our guide to the likely deals taking place at Anfield in this summer's window, and who will be making the big decisions`\
+https://nytimes.com/athletic/6397120/2025/06/03/liverpool-transfer-summer-window-dealsheet/
 
-**Crystal Palace Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`There is uncertainty around who will make the key decisions after Freedman's exit, but the club are in a strong position in terms of PSR.`\
-https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-preview/
+**Newcastle Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`After qualifying for the Champions League and winning the Carabao Cup, Newcastle have a big summer ahead`\
+https://nytimes.com/athletic/6387767/2025/06/03/newcastle-united-transfer-latest-summer-window-2025/
 
-**Here are the latest developments.**\
-`By Choe Sang-Hun and Jin Yu Young`\
-https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
+**Chelsea Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`Chelsea are in for a busy summer after qualifying for the Champions League, winning the Conference League and with the Club World Cup next`\
+https://nytimes.com/athletic/6396332/2025/06/03/chelsea-transfer-latest-summer-window-2025/
 
-**Live Updates: South Koreans Vote After Months of Political Chaos**\
-`Young voters and women are unhappy with the two main choices for president to succeed Yoon Suk Yeol, who was removed from office for imposing martial law.`\
-https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election
+**Everton Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`It's all change in Everton's recruitment department and with so many players leaving this summer, they have to hit the ground running`\
+https://nytimes.com/athletic/6390259/2025/06/03/everton-transfer-window-preview/
 
-**Who owns La Liga's 20 clubs: A Wimbledon semi-finalist, Pep Guardiola's brother and a private detective**\
-`The owner of every La Liga club from 2024-25 explained`\
-https://nytimes.com/athletic/6397667/2025/06/03/la-liga-owners-explained/
+**Tottenham Hotspur Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`This is a squad that clearly needs bolstering and, as Postecoglou has said himself, could also do with an injection of top-level experience`\
+https://nytimes.com/athletic/6397223/2025/06/03/tottenham-transfer-window-2025/
 
