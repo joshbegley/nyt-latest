@@ -1,3 +1,15 @@
+**What the N.Y.C. Mayoral Candidates Hope to Achieve on the Debate Stage**\
+`Plus: Cynthia Nixon’s advice for debating Andrew Cuomo and Ilana Glazer’s ranked-choice ballot.`\
+https://nytimes.com/2025/06/03/nyregion/nyc-mayor-race-debate.html
+
+**PWHL Players Association votes to disclose salaries: Why they made the decision**\
+`An "overwhelming majority" of PWHL players voted in favor of the change over a 10-day period that ended late last week.`\
+https://nytimes.com/athletic/6400150/2025/06/03/pwhl-players-association-salaries/
+
+**Watch: Candace Parker on WNBA coaching, commentating and coming out**\
+`No Offseason interviews Candace Parker about her new memoir, 'The Can-Do Mindset.'`\
+https://nytimes.com/athletic/6399499/2025/06/03/candace-parker-wnba-no-offseason/
+
 **Harvard Students Seek ‘Viewpoint Diversity’ Outside the School’s Gates**\
 `Steps from Harvard’s campus, an institute backed by conservative donors says it is trying to fill an intellectual void.`\
 https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6399712/2025/06/03/coco-gauff-madison-keys-french-o
 **Police Renew Searches in Madeleine McCann Investigation in Portugal**\
 `Portuguese police are combing an area near the resort where the British girl disappeared in 2007, as German authorities continue to investigate a suspect, Christian Brückner.`\
 https://nytimes.com/2025/06/03/world/europe/madeleine-mccann-search-portugal.html
-
-**How could Bryan Mbeumo improve Manchester United?**\
-`United are set to open talks with Brentford following the news that Mbeumo would prefer a move to Old Trafford`\
-https://nytimes.com/athletic/6397630/2025/06/03/bryan-mbeumo-manchester-united-transfer-analysis/
-
-**Westmoreland Serves an All-Day Menu in the Revamped Frick Collection**\
-`A King partner opens a wine bar, Lobel’s now has a restaurant and more news.`\
-https://nytimes.com/2025/06/03/dining/nyc-restaurant-news.html
-
-**In shocking move, Hilary Knight was exposed to PWHL expansion. Why didn’t Boston protect her?**\
-`Knight, a women's hockey legend, is not on the Boston Fleet's list of protected players, exposing her to the PWHL expansion process.`\
-https://nytimes.com/athletic/6399808/2025/06/03/hilary-knight-pwhl-boston-expansion-seattle-vancouver-womens-hockey/
 
