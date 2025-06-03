@@ -1,3 +1,7 @@
+**What's next for the Jazz after hiring Austin Ainge as president of basketball operations?**\
+`After being asked about tanking and saying, "you won't see that this year," Ainge must pick a path for the Jazz: youth or veteran core.`\
+https://nytimes.com/athletic/6399102/2025/06/03/whats-next-for-jazz-after-hiring-austin-ainge-as-president-of-basketball-operations/
+
 **Jacinda Ardern Thinks World Leaders Need More Kindness**\
 `The former prime minister, who led New Zealand through the pandemic, has published a memoir arguing for more empathy in politics.`\
 https://nytimes.com/2025/06/03/style/jacinda-ardern-book-new-zealand.html

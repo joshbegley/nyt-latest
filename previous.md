@@ -1,3 +1,7 @@
+**What's next for the Jazz after hiring Austin Ainge as president of basketball operations?**\
+`After being asked about tanking and saying, "you won't see that this year," Ainge must pick a path for the Jazz: youth or veteran core.`\
+https://nytimes.com/athletic/6399102/2025/06/03/whats-next-for-jazz-after-hiring-austin-ainge-as-president-of-basketball-operations/
+
 **Jacinda Ardern Thinks World Leaders Need More Kindness**\
 `The former prime minister, who led New Zealand through the pandemic, has published a memoir arguing for more empathy in politics.`\
 https://nytimes.com/2025/06/03/style/jacinda-ardern-book-new-zealand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398696/2025/06/03/seahawks-offseason-defense/
 **Four lessons the Senators can learn from this year's Cup finalists**\
 `An encouraging sign for the Senators after putting together this list: they have already started on some of these.`\
 https://nytimes.com/athletic/6394615/2025/06/03/ottawa-senators-stanley-cup-lessons/
-
-**Should the Leafs re-sign John Tavares? It's not as clear-cut as it seems**\
-`With GM Brad Treliving promising change this offseason, the Leafs need to look at their former captain with an objective eye.`\
-https://nytimes.com/athletic/6394953/2025/06/03/maple-leafs-john-tavares-contract-debate-treliving/
 
