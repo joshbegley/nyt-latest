@@ -1,5 +1,5 @@
 **South Korea’s New Leader Faces Tough Tests Right From the Start**\
-`Lee Jae-myung says he will tackle the problems facing the polarized nation, including its relationship with President Trump, with grit and “pragmatism.”`\
+`Lee Jae-myung will be one of the most powerful presidents in decades in South Korea, but the country faces deep divisions, along with challenges from the Trump administration.`\
 https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
 
 **Nottm Forest reach verbal agreement to sign Botafogo trio**\
