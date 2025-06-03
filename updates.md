@@ -1,3 +1,7 @@
+**American Antisemitism**\
+`We explore a resurgence of violence against Jews in the U.S.`\
+https://nytimes.com/2025/06/03/briefing/antisemitism-colorado.html
+
 **Late Night Mines Laughs From Trump’s Outlandish Biden Replacement Theory**\
 `“You’re saying that the Joe Biden who doesn’t even know where he is, is actually an incredibly advanced cloned robot? How much ketamine are you on?” Jon Stewart asked.`\
 https://nytimes.com/2025/06/03/arts/television/late-night-trump-biden-robot-conspiracy.html
