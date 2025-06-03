@@ -1,3 +1,7 @@
+**NiJaree Canady, Texas Tech bring end to Oklahoma softball's dynastic run**\
+`Oklahoma's quest for a fifth straight national championship ends as Red Raiders win on walk-off sac fly.`\
+https://nytimes.com/athletic/6398780/2025/06/02/oklahoma-texas-tech-womens-college-world-series-semifinals-2025/
+
 **Attack Suspect Appeared to Live a Low-Key Life in Colorado Springs**\
 `The suspect came to the U.S. in 2022 and lived with his family in a suburban neighborhood. He was a ride share driver, and his daughter was embraced by her school community.`\
 https://nytimes.com/2025/06/02/us/boulder-colorado-attack-suspect-life.html
