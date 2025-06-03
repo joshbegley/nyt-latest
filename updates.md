@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the first edition of The Athletic's Transfer DealSheet for the summer transfer window`\
+https://nytimes.com/athletic/6390146/2025/06/03/transfer-news-latest-manchester-uniter-arsenal-real-madrid-barcelona-liverpool/
+
 **10 Questions With Andrew Cuomo**\
 `Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/03/nyregion/10-questions-with-andrew-cuomo.html
