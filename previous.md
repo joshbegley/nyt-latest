@@ -1,3 +1,8 @@
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **They Bet Their Future on Barbecue Dreams. Many Lost Everything.**\
 `Dickey’s, the world’s largest barbecue chain, has a history of deception and broken promises, according to dozens of its franchise owners.`\
 https://nytimes.com/2025/06/03/dining/dickeys-barbecue-pit-franchise.html
@@ -26,15 +31,11 @@ https://nytimes.com/athletic/6205812/2025/06/03/saquon-barkley-fantasy-football-
 `Mauricio, a former top prospect who missed all of last season after knee surgery, will join the team for its series in Los Angeles.`\
 https://nytimes.com/athletic/6399758/2025/06/03/mets-ronny-mauricio-recall-mark-vientos-injury/
 
-**Inzaghi to leave Inter, expected to move to Al Hilal**\
+**Inzaghi leaves Inter, expected to move to Al Hilal**\
 `Inzaghi, 49, has won everything domestically during his four years at Inter, winning the Serie A title in 2023-24.`\
 https://nytimes.com/athletic/6397239/2025/06/03/simone-inzaghi-inter-leaves/
 
 **As Trump Says He’s Stamping Out Antisemitism, He Advances Similar Tropes**\
 `President Trump’s effort to punish Harvard over antisemitism is complicated by his own extensive history of amplifying white supremacist figures and symbols.`\
 https://nytimes.com/2025/06/03/us/politics/trump-antisemitism.html
-
-**‘Respect the Rotisserie Chicken’**\
-`Readers share their cost-cutting shopping and cooking tips; I share five budget-friendly recipes to put on repeat.`\
-https://nytimes.com/2025/06/03/dining/cost-cutting-grocery-shopping-tips-and-recipes.html
 
