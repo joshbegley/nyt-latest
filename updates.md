@@ -1,3 +1,15 @@
+**How to Be More Productive**\
+`Evidence-based strategies to bring out your best working self.`\
+https://nytimes.com/live/2025/06/03/admin/do-not-use
+
+**Arsenal target Zubimendi expecting 'long summer'**\
+`Despite reports of interest from Real Madrid, Arsenal remain confident that he will become their player.`\
+https://nytimes.com/athletic/6400637/2025/06/03/arsenal-zubimendi-transfer-update-real-sociedad/
+
+**Knicks fire Tom Thibodeau after 5 seasons, conference finals run**\
+`Thibodeau led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
+https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
+
 **Did that Clint Eastwood Interview Happen? Yes, Kind of.**\
 `Eastwood, 95, accused a small Austrian publication of running a “phony” Q. and A. with him. It turns out the quotes were aggregated from previous interviews.`\
 https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html

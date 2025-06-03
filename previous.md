@@ -1,3 +1,11 @@
+**How to Be More Productive**\
+`Evidence-based strategies to bring out your best working self.`\
+https://nytimes.com/live/2025/06/03/admin/do-not-use
+
+**Arsenal target Zubimendi expecting 'long summer'**\
+`Despite reports of interest from Real Madrid, Arsenal remain confident that he will become their player.`\
+https://nytimes.com/athletic/6400637/2025/06/03/arsenal-zubimendi-transfer-update-real-sociedad/
+
 **Did that Clint Eastwood Interview Happen? Yes, Kind of.**\
 `Eastwood, 95, accused a small Austrian publication of running a “phony” Q. and A. with him. It turns out the quotes were aggregated from previous interviews.`\
 https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6400476/2025/06/03/steelers-letter-fans-players-tru
 https://nytimes.com/2025/06/03/business/media/jeopardy-wheel-of-fortune-hulu-peacock.html
 
 **Knicks fire Tom Thibodeau after 5 seasons, conference finals run**\
-`Thibodeau, 67, led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
+`Thibodeau led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
 https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
 
 **Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/business/tiktok-skinnytok-ban.html
 **Smoke From Canadian Wildfires Blankets the Upper Midwest**\
 `Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
 https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
-
-**U.S. Charges 2 Chinese Students With Smuggling Fungus**\
-`An arrest by the F.B.I. comes as the Trump administration has promised to crack down on Chinese academics.`\
-https://nytimes.com/2025/06/03/us/politics/chinese-students-fungus.html
-
-**Pochettino likens Pulisic to USA's Messi, addresses stars passing on Gold Cup**\
-`The USMNT manager joined the two program legends for a podcast interview and discussed his star player's absence for the upcoming Gold Cup.`\
-https://nytimes.com/athletic/6398866/2025/06/03/mauricio-pochettino-podcast-landon-donovan-tim-howard-usmnt-pulisic/
 

@@ -1,3 +1,7 @@
+**Trump Administration Backs Off Effort to Collect Data on Food Stamp Recipients**\
+`In response to a federal lawsuit, the Agriculture Department said it would refrain, for now, from demanding that states turn over the personal information of people receiving assistance.`\
+https://nytimes.com/2025/06/03/us/politics/trump-administration-personal-data-food-stamp-recipients.html
+
 **How to Be More Productive**\
 `Evidence-based strategies to bring out your best working self.`\
 https://nytimes.com/live/2025/06/03/admin/do-not-use
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400556/2025/06/03/california-trans-athletes-trump-
 **TikTok Bans #SkinnyTok After European Regulators Raise Concerns**\
 `Officials in Europe worried that the app was glamorizing eating disorders. The ban is TikTok’s latest effort to counter criticism about its effect on teen mental health.`\
 https://nytimes.com/2025/06/03/business/tiktok-skinnytok-ban.html
-
-**Smoke From Canadian Wildfires Blankets the Upper Midwest**\
-`Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
-https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
 
