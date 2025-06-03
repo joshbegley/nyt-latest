@@ -1,3 +1,11 @@
+**Racing to Save California’s Elephant Seals From Bird Flu**\
+`Two years ago, avian influenza ravaged elephant seal colonies in South America. Are the colonies on the northern Pacific Coast next?`\
+https://nytimes.com/card/2025/06/03/science/bird-flu-mammals-elephant-seals-california
+
+**As Timberwolves face key summer, Tim Connelly says he isn't going anywhere**\
+`Connelly plans on leading the charge as Minnesota must make decisions on Julius Randle, Nickeil Alexander-Walker and more this offseason.`\
+https://nytimes.com/athletic/6398411/2025/06/03/tim-connelly-timberwolves-free-agency-offseason/
+
 **Listen: Could Martin Zubimendi be just as important to Arsenal as signing a new No 9?**\
 `Handbrake Off discusses why Martin Zubimendi could be just as important to Arsenal as a new centre-forward.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6395854/2025/06/03/cooper-flagg-kyrie-irving-maveri
 **NHL Mock Draft 2025: Schaefer at No. 1 and Misa at No. 2 in Pronman's projection**\
 `Ahead of the NHL combine this week, Corey Pronman predicts how Round 1 of the draft will shake out.`\
 https://nytimes.com/athletic/6393069/2025/06/03/nhl-mock-draft-2025-pronman/
-
-**Canada vs. USA: Two fans forced to watch each country’s worst 2025 NHL playoff ads**\
-`Who has it worse? The annual cultural exchange tradition returns with a celebrity-heavy collection of ads that cause psychic damage.`\
-https://nytimes.com/athletic/6398371/2025/06/03/nhl-playoffs-2025-worst-ads-canada-usa/
-
-**Understanding the Big Ten's push for a '4-4-2-2-1' CFP model**\
-`Despite the Big Ten’s relative silence on CFP expansion, people in and around the league push back on being seen as the bad actor.`\
-https://nytimes.com/athletic/6398844/2025/06/03/big-ten-cfp-automatic-bids/
 
