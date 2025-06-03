@@ -1,3 +1,15 @@
+**Justice Dept. Drops Biden-Era Push to Obtain Peter Navarro’s Emails**\
+`The department’s move is one of many recent actions taken to dismiss criminal and civil actions against Trump allies such as Mr. Navarro, the president’s trade adviser.`\
+https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html
+
+**Why Packers RT Zach Tom is practicing without a contract extension**\
+`Tom is one of the league's best right tackles and the 26-year-old will soon be paid like it.`\
+https://nytimes.com/athletic/6401174/2025/06/03/packers-zach-tom-otas-contract/
+
+**Clever Cockatoos Have Figured Out How to Drink From Water Fountains**\
+`Who needs an opposable thumb?`\
+https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australia.html
+
 **Is Trump Unveiling a Crypto Wallet? His Associates Say Yes. His Sons Say No.**\
 `The back-and-forth over a potential Trump cryptocurrency wallet on Tuesday exposed rifts among the family’s web of digital currency ventures.`\
 https://nytimes.com/2025/06/03/technology/trump-crypto-wallet-sons-rift.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/03/business/wells-fargo-asset-cap-federal-reserve.ht
 **Tom Girardi, Former High-Profile Lawyer, Gets 7 Years in Prison for Embezzlement**\
 `Known for winning a record settlement for the environmental activist Erin Brockovich, he was found guilty last year of embezzling millions of dollars of his clients’ settlement money.`\
 https://nytimes.com/2025/06/03/us/tom-girardi-sentence-fraud-real-housewives.html
-
-**Santa Ono Blocked From Becoming University of Florida’s President**\
-`The former president of the University of Michigan had been criticized by conservatives over his past stances on diversity.`\
-https://nytimes.com/2025/06/03/us/santa-ono-university-of-florida-president.html
-
-**Sharp Hike in Nuclear Arms Budget Sought as Science Funding Is Slashed**\
-`The Trump administration asked Congress for roughly $11 billion more in annual spending for the federal agency that oversees nuclear weapon activities.`\
-https://nytimes.com/2025/06/03/science/nuclear-weapons-budget-nnsa-trump.html
-
-**After Dutch Government Collapses, Wilders Eyes Prime Minister Run**\
-`The Netherlands’ first far-right government fell after the populist leader Geert Wilders withdrew his party after a dispute about migration policy.`\
-https://nytimes.com/video/world/europe/100000010205578/netherlands-government-collapse.html
 
