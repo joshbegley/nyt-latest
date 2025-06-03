@@ -1,3 +1,19 @@
+**NBA and possession battle: How Thunder, Pacers stack up with their peers**\
+`Making shots, obviously, is important, but controlling the possession battle can help teams steal victories when it matters most.`\
+https://nytimes.com/athletic/6390087/2025/06/03/nba-possession-battle-thunder-pacers/
+
+**Eno Sarris' MLB starting pitcher rankings for the rest of 2025**\
+`We have a new No. 1 at the top of the rankings, a pitcher who dominated the AL in 2024 who's putting up even better numbers this season.`\
+https://nytimes.com/athletic/6375745/2025/06/03/sarris-mlb-starting-pitcher-rankings-rest-of-2025-season/
+
+**The Pulse: A dynasty ends**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6398024/2025/06/03/texas-tech-nijaree-canady-oklahoma-wcws-the-pulse/
+
+**Map: 5.8-Magnitude Earthquake Strikes Turkey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/03/world/02wea-quake-tracker-turkey-nyt6ugva.html
+
 **Author of new Mike Tyson biography examines boxer's complicated life: 'At what cost?'**\
 `The Athletic's Andrew Marchand talked with Mark Kriegel, author of a new biography of Tyson.`\
 https://nytimes.com/athletic/6397953/2025/06/03/new-mike-tyson-biography-author-mark-kriegel/
