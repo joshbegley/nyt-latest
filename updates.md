@@ -1,3 +1,11 @@
+**Severe Storms Bring Flooding and Tornado Risks to Kansas and Missouri**\
+`Some two million people were under a flash flood warning in the two states as several inches of rain fell, trapping some in their cars.`\
+https://nytimes.com/2025/06/03/weather/flood-wichita-kansas-missouri-rain-storms.html
+
+**‘Mr. Loverman’ Is a Rich, Stylish and Riveting Mini-Series**\
+`The British series, which earned multiple BAFTA awards, offers a sublime and moving exploration of love and loyalty.`\
+https://nytimes.com/2025/06/03/arts/television/mr-loverman-britbox.html
+
 **Ten Jets — including two rookies — who stood out at Tuesday's practice: OTA observations**\
 `The latest on Justin Fields, Garett Wilson, Rashad Weaver, Sauce Gardner and more.`\
 https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-reports/
