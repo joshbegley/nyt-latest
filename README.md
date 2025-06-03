@@ -1,3 +1,7 @@
+**Alvarez ‘double touch’ penalty would now be retaken after law change**\
+`The controversy surrounding Alvarez's penalty against Real Madrid has resulted in a change of the law on spot kicks.`\
+https://nytimes.com/athletic/6399445/2025/06/03/julian-alvarez-penalty-miss-rule-change/
+
 **Pascal Siakam perfect for Pacers: How his NBA journey focused his drive**\
 `Pascal Siakam willed himself to be one of the most complete forwards in the NBA.`\
 https://nytimes.com/athletic/6388924/2025/06/03/pacers-pascal-siakam-mvp-nba-final-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397296/2025/06/03/knicks-mikal-bridges-future-nba/
 **'We're going to get a good player': Flyers AGM on upcoming draft, current prospects**\
 `The Flyers have seven picks over the first two rounds in the 2025 draft June 27-28.`\
 https://nytimes.com/athletic/6398655/2025/06/03/flyers-nhl-draft-prospects-brent-flahr/
-
-**After MLB-best May, can Cardinals' depth keep them winning in June?**\
-`Nolan Arenado and the surprising Cardinals face a tougher test this month because of a daunting schedule. `\
-https://nytimes.com/athletic/6398373/2025/06/03/cardinals-june-schedule/
 
