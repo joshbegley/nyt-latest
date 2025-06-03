@@ -1,3 +1,11 @@
+**Who Is South Korea’s New Leader?**\
+`After months of political turmoil in South Korea, Lee Jae-myung has won the presidential election by a wide margin. Mr. Lee’s campaign has ridden a wave of anger against former President Yoon Suk Yeol after he tried to impose martial law in December.`\
+https://nytimes.com/video/world/asia/100000010202472/who-is-lee-jae-myung.html
+
+**Per Norgard, Daring Symphonic Composer, Dies at 92**\
+`Considered the father of Danish contemporary music, he aspired to works in which “everything came out of a single note,” he said, “like the big bang.”`\
+https://nytimes.com/2025/06/03/arts/music/per-norgard-dead.html
+
 **U.S. Proposes Interim Step in Iran Nuclear Talks Allowing Some Enrichment**\
 `An outline by the Trump administration would allow Iran to continue enriching uranium at low levels while a broader arrangement is worked out that would block the country’s path to a nuclear weapon.`\
 https://nytimes.com/2025/06/03/us/politics/iran-nuclear-deal-proposal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
 **The White House Gutted Science Funding. Now It Wants to ‘Correct’ Research.**\
 `Thousands of scientists, academics, physicians and researchers have responded to the administration’s executive order about “restoring a gold standard for science.”`\
 https://nytimes.com/2025/06/03/climate/executive-order-gold-standard-science.html
-
-**A Beloved Immigrant’s Arrest in a Pro-Trump Town**\
-`Responses to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe; slashing research.`\
-https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html
-
-**Transfers TLDR: Caoimhin Kelleher to Brentford**\
-`The 26-year-old Kelleher has moved from Liverpool to Brentford — here's all you need to know about the deal`\
-https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-transfer-analysis/
 

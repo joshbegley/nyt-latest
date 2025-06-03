@@ -1,6 +1,10 @@
-**Trump attacks Rand Paul, working to rally G.O.P. support for his policy bill.**\
-`The president h`\
-https://nytimes.com/live/2025/06/03/us/trump-news/trump-rand-paul-republicans-policy-bill
+**U.S. Proposes Interim Step in Iran Nuclear Talks Allowing Some Enrichment**\
+`An outline by the Trump administration would allow Iran to continue enriching uranium at low levels while a broader arrangement is worked out that would block the country’s path to a nuclear weapon.`\
+https://nytimes.com/2025/06/03/us/politics/iran-nuclear-deal-proposal.html
+
+**Trump Attacks Rand Paul, Working to Rally G.O.P. Support for Policy Bill**\
+`The president has been pressing Republicans in the Senate to move quickly to embrace sprawling legislation that carries his domestic agenda, including by savaging opponents online.`\
+https://nytimes.com/2025/06/03/us/politics/trump-rand-paul-republicans-policy-bill.html
 
 **Wake Forest baseball coach Tom Walter apologizes for use of homophobic slur**\
 `Tom Walter was caught saying the word during an ESPN broadcast of the Demon Deacons' loss to Tennessee on Monday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html
 **Transfers TLDR: Caoimhin Kelleher to Brentford**\
 `The 26-year-old Kelleher has moved from Liverpool to Brentford — here's all you need to know about the deal`\
 https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-transfer-analysis/
-
-**Gabby Thomas calls out bettor for following, heckling her at Philly meet**\
-`"This grown man followed me around the track as I took pictures and signed autographs for fans," Thomas said on X about the incident.`\
-https://nytimes.com/athletic/6399678/2025/06/03/gabby-thomas-bettor-heckling-track/
 
