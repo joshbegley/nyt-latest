@@ -1,3 +1,11 @@
+**Pacers' flight to OKC diverted to Tulsa due to tornado warning**\
+`Indiana is set to play the Oklahoma City in Game 1 of the NBA Finals on Thursday.`\
+https://nytimes.com/athletic/6401301/2025/06/03/pacers-weather-delay-oklahoma-city-thunder-nba-finals/
+
+**Connor McDavid looks to join Gretzky, Crosby and others as 'revenge' Cup winners**\
+`McDavid is known to have a "singular focus" on winning a championship — but he will have to get past the Florida Panthers this time.`\
+https://nytimes.com/athletic/6401217/2025/06/03/mcdavid-stanley-cup-rematch-oilers/
+
 **Connor McDavid looks to join Wayne Gretzky, Sidney Crosby and others as 'revenge' Cup winners**\
 `McDavid is known to have a "singular focus" on winning a championship — and he will have to get past the Florida Panthers this time.`\
 https://nytimes.com/athletic/6401217/2025/06/03/mcdavid-stanley-cup-rematch-oilers/
