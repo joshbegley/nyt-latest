@@ -1,3 +1,7 @@
+**Border Officials Told Not to Attend Events Tied to Diversity in Law Enforcement**\
+`A Trump administration memo issued to border and customs officials in March further curtailed efforts to ensure a more diverse work force.`\
+https://nytimes.com/2025/06/02/us/politics/trump-diversity-border-customs-officials.html
+
 **The Cubs aren't waiting until the trade deadline to make more moves for pitching**\
 `It is, and always will be, about pitching. "The quest for opportunities in pitching," manager Craig Counsell said, "it's 365 days (a year)."`\
 https://nytimes.com/athletic/6398564/2025/06/02/cubs-trade-deadline-pitching/
