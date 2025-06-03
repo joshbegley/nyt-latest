@@ -1,4 +1,4 @@
-**Hegseth Orders Navy to Review Ship Name Honoring Gay Icon Harvey Milk**\
+**Hegseth Orders Navy to Review Ship Name Honoring Gay Rights Pioneer Harvey Milk**\
 `The names of several other vessels that honor civil rights leaders and Supreme Court justices might also be changed.`\
 https://nytimes.com/2025/06/03/us/politics/navy-ships-harvey-milk-renamed.html
 
