@@ -1,3 +1,27 @@
+**We Are Being Governed by the Trump Organization Inc.**\
+`Trump is governing by unchecked gut impulses, with little or no homework or coordination among agencies. The results could be disastrous.`\
+https://nytimes.com/2025/06/03/opinion/trump-president-governing-ruler.html
+
+**Wednesday Briefing: Staggering Casualties in Ukraine**\
+`Plus, it’s Pride Month.`\
+https://nytimes.com/2025/06/03/briefing/ukraine-russia-casualties-korea-election.html
+
+**A New Era of Trade Warfare Has Begun for the U.S. and China**\
+`Instead of battling over tariffs, Washington and Beijing have turned to a potentially far more harmful strategy: flexing their control over global supply chains.`\
+https://nytimes.com/2025/06/03/business/economy/us-china-trade-supply-chains.html
+
+**Mexico’s Supreme Court Looks Set to Be Dominated by One Party**\
+`In a divisive and far-reaching election pushed by the governing Morena party, Mexicans voted for thousands of judges at every level on Sunday, remaking the courts.`\
+https://nytimes.com/2025/06/03/world/americas/mexico-election-results.html
+
+**Is Civil War Coming to Europe?**\
+`How the continent’s divisions compare to America’s own factions.`\
+https://nytimes.com/2025/06/03/opinion/europe-civil-war.html
+
+**There Are Limits to Republican Lawmakers’ Reach, Even in Texas**\
+`Republican factions united to pass most but not all of their conservative priorities in this year’s legislative session, illustrating the limits of right-wing governance.`\
+https://nytimes.com/2025/06/03/us/politics/texas-legislature-conservatives.html
+
 **Severe Storms Bring Flooding and Tornado Risks to Kansas and Missouri**\
 `Some two million people were under a flash flood warning in the two states as several inches of rain fell, trapping some in their cars.`\
 https://nytimes.com/2025/06/03/weather/flood-wichita-kansas-missouri-rain-storms.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-re
 **Willem Dafoe Shines His Spotlight on Theater’s Avant-Garde Past**\
 `The Hollywood actor looks back on the experimental performances that shaped him at the Venice Theater Biennale.`\
 https://nytimes.com/2025/06/03/theater/venice-theater-biennale-willem-dafoe.html
-
-**Jim Marshall, member of 'Purple People Eaters,' dies at 87**\
-`Marshall was a member of the vaunted Purple People Eaters defensive line, which helped Minnesota to four Super Bowl appearances.`\
-https://nytimes.com/athletic/6400697/2025/06/03/jim-marshall-dead-vikings-legend/
-
-**England's Kirby retires from international football before Euro 2025**\
-`The 31-year-old leaves the international stage after winning 77 caps.`\
-https://nytimes.com/athletic/6400821/2025/06/03/england-fran-kirby-retires-euro-2025/
-
-**Taylor Swift Never Rerecorded ‘Reputation.’ Thank God.**\
-`After buying back her master recordings, the superstar says she has no plans to finish remaking her sixth album — her most inventive, shocking and risky yet.`\
-https://nytimes.com/2025/06/03/arts/music/taylor-swift-reputation-rerecordings-masters.html
-
-**The Best Rubber-Strap Watches for Summer**\
-`Ahead of Father’s Day, a roundup of colorful water-resistant styles.`\
-https://nytimes.com/2025/06/03/t-magazine/rubber-strap-water-resistant-watches.html
-
-**Carlos Alcaraz sends a thunderclap across the French Open in rout of Tommy Paul**\
-`The defending champion sent out a message that resounded around Court Philippe-Chatrier on his way to the semifinals.`\
-https://nytimes.com/athletic/6400751/2025/06/03/carlos-alcaraz-french-open-tommy-paul-result-analysis/
-
-**Troop Casualties in Ukraine War Near 1.4 Million, Study Finds**\
-`With high casualty figures and the slow pace of Russia’s territorial gains, President Vladimir V. Putin could face years more of a grinding war of attrition in Ukraine.`\
-https://nytimes.com/2025/06/03/us/politics/russia-ukraine-troop-casualties.html
 

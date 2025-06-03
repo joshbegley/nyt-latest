@@ -1,3 +1,7 @@
+**Jonathan David on his summer transfer: I want a club with ambition**\
+`Canada's star striker is out of contract after five seasons at French Ligue 1 club Lille and will be on the move.`\
+https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition/
+
 **We Are Being Governed by the Trump Organization Inc.**\
 `Trump is governing by unchecked gut impulses, with little or no homework or coordination among agencies. The results could be disastrous.`\
 https://nytimes.com/2025/06/03/opinion/trump-president-governing-ruler.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/arts/television/mr-loverman-britbox.html
 **Ten Jets — including two rookies — who stood out at Tuesday's practice: OTA observations**\
 `The latest on Justin Fields, Garett Wilson, Rashad Weaver, Sauce Gardner and more.`\
 https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-reports/
-
-**Willem Dafoe Shines His Spotlight on Theater’s Avant-Garde Past**\
-`The Hollywood actor looks back on the experimental performances that shaped him at the Venice Theater Biennale.`\
-https://nytimes.com/2025/06/03/theater/venice-theater-biennale-willem-dafoe.html
 
