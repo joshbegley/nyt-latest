@@ -1,3 +1,7 @@
+**England's Kirby retires from international football before Euro 2025**\
+`The 31-year-old leaves the international stage after winning 77 caps.`\
+https://nytimes.com/athletic/6400821/2025/06/03/england-fran-kirby-retires-euro-2025/
+
 **Taylor Swift Never Rerecorded ‘Reputation.’ Thank God.**\
 `After buying back her master recordings, the superstar says she has no plans to finish remaking her sixth album — her most inventive, shocking and risky yet.`\
 https://nytimes.com/2025/06/03/arts/music/taylor-swift-reputation-rerecordings-masters.html
