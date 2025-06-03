@@ -1,3 +1,11 @@
+**Breaking down 11 potential landing spots for Nikolaj Ehlers in free agency**\
+`Ehlers is a force in transition who can create offense without relying on extended offensive zone time. Where might he sign on July 1?`\
+https://nytimes.com/athletic/6398915/2025/06/03/nikolaj-ehlers-free-agent-destinations/
+
+**‘Beetlejuice’ Is Coming Back to Broadway**\
+`The national tour production will haunt the Palace Theater for 13 weeks, beginning Oct. 8.`\
+https://nytimes.com/2025/06/03/theater/beetlejuice-broadway.html
+
 **The Bounce: Grading Thunder-Pacers matchups for 2025 NBA Finals. Plus, should Seattle feel left out?**\
 `With Game 1 of the NBA Finals tipping off Thursday night and a lull between playoff action, The Bounce previews key series matchups`\
 https://nytimes.com/athletic/6399420/2025/06/03/thunder-pacers-shai-gilgeous-alexander-tyrese-haliburton-matchups-seattle-nba-finals-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6399445/2025/06/03/julian-alvarez-penalty-miss-rule
 **Pascal Siakam perfect for Pacers: How his NBA journey focused his drive**\
 `Pascal Siakam willed himself to be one of the most complete forwards in the NBA.`\
 https://nytimes.com/athletic/6388924/2025/06/03/pacers-pascal-siakam-mvp-nba-final-thunder/
-
-**Ukraine Says It Struck Crimea Bridge**\
-`It would be the third time Ukraine had struck the bridge. The claim comes two days after one of the country’s most ambitious operations of the war, deep inside Russia.`\
-https://nytimes.com/2025/06/03/world/europe/russia-ukraine-crimea-bridge.html
-
-**'We want to be No. 1': Defense sets a high standard at Seahawks OTAs**\
-`The Seahawks feature a new-look offense, but familiar faces on defense are being counted on to resume their dominance from last season.`\
-https://nytimes.com/athletic/6398696/2025/06/03/seahawks-offseason-defense/
 
