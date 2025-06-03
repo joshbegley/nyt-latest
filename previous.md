@@ -1,3 +1,31 @@
+**10 Questions With Andrew Cuomo**\
+`Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/03/nyregion/10-questions-with-andrew-cuomo.html
+
+**If Andrew Cuomo Has a Regret, It’s Resigning as Governor**\
+`Mr. Cuomo told The New York Times in a wide-ranging interview that none of the sexual harassment allegations against him had merit.`\
+https://nytimes.com/2025/06/03/nyregion/cuomo-resignation-governor.html
+
+**Weinstein’s 2nd Sex Crimes Trial in New York Shifts to Closing Arguments**\
+`Facing new charges after an earlier conviction was overturned, the former Hollywood mogul Harvey Weinstein is charged with attacking three women in Manhattan.`\
+https://nytimes.com/2025/06/03/nyregion/weinstein-rape-trial-closing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/03/crosswords/spelling-bee-forum.html
+
+**Black Families Are Leaving New York. Can a Pastor’s Plan End the Exodus?**\
+`In the East New York neighborhood of Brooklyn, a pastor is devoting his time to building affordable housing for his congregation.`\
+https://nytimes.com/2025/06/03/nyregion/new-york-black-families-affordable-housing-church.html
+
+**Anorexia in Middle Age and Beyond**\
+`A growing number of older women are seeking treatment for eating disorders. Many have struggled without help for decades.`\
+https://nytimes.com/2025/06/03/health/anorexia-in-middle-age-and-beyond.html
+
+**Racing to Save California’s Elephant Seals From Bird Flu**\
+`Two years ago, avian influenza ravaged elephant seal colonies in South America. Are the colonies on the northern Pacific Coast next?`\
+https://nytimes.com/card/2025/06/03/science/
+
 **Brighton Transfer DealSheet: Summer window latest, key targets and likely exits**\
 `Brighton are unlikely to be as active in this summer window as they were last year, yet there is still plenty to look out for...`\
 https://nytimes.com/athletic/6352226/2025/06/03/brighton-dealsheet-transfers/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6382679/2025/06/03/west-ham-transfer-latest-summer-
 **Man Utd Transfer DealSheet: Summer window latest, key targets and likely exits**\
 `Who could be the major ins and outs, how much does Ruben Amorim have to spend and what's the club's PSR position?`\
 https://nytimes.com/athletic/6397254/2025/06/03/man-utd-transfer-summer-window-dealsheet/
-
-**Arsenal Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`The latest on Arsenal's plans for the summer transfer window`\
-https://nytimes.com/athletic/6397772/2025/06/03/arsenal-transfer-latest-summer-window-2025/
-
-**Madrid Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`A summer of change is already well under way at Madrid`\
-https://nytimes.com/athletic/6397463/2025/06/03/real-madrid-summer-transfer-dealsheet/
-
-**Liverpool Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`Our guide to the likely deals taking place at Anfield in this summer's window, and who will be making the big decisions`\
-https://nytimes.com/athletic/6397120/2025/06/03/liverpool-transfer-summer-window-dealsheet/
-
-**Newcastle Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`After qualifying for the Champions League and winning the Carabao Cup, Newcastle have a big summer ahead`\
-https://nytimes.com/athletic/6387767/2025/06/03/newcastle-united-transfer-latest-summer-window-2025/
-
-**Chelsea Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`Chelsea are in for a busy summer after qualifying for the Champions League, winning the Conference League and with the Club World Cup next`\
-https://nytimes.com/athletic/6396332/2025/06/03/chelsea-transfer-latest-summer-window-2025/
-
-**Everton Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`It's all change in Everton's recruitment department and with so many players leaving this summer, they have to hit the ground running`\
-https://nytimes.com/athletic/6390259/2025/06/03/everton-transfer-window-preview/
-
-**Tottenham Hotspur Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`This is a squad that clearly needs bolstering and, as Postecoglou has said himself, could also do with an injection of top-level experience`\
-https://nytimes.com/athletic/6397223/2025/06/03/tottenham-transfer-window-2025/
 

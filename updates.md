@@ -1,3 +1,31 @@
+**10 Questions With Andrew Cuomo**\
+`Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/03/nyregion/10-questions-with-andrew-cuomo.html
+
+**If Andrew Cuomo Has a Regret, It’s Resigning as Governor**\
+`Mr. Cuomo told The New York Times in a wide-ranging interview that none of the sexual harassment allegations against him had merit.`\
+https://nytimes.com/2025/06/03/nyregion/cuomo-resignation-governor.html
+
+**Weinstein’s 2nd Sex Crimes Trial in New York Shifts to Closing Arguments**\
+`Facing new charges after an earlier conviction was overturned, the former Hollywood mogul Harvey Weinstein is charged with attacking three women in Manhattan.`\
+https://nytimes.com/2025/06/03/nyregion/weinstein-rape-trial-closing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/03/crosswords/spelling-bee-forum.html
+
+**Black Families Are Leaving New York. Can a Pastor’s Plan End the Exodus?**\
+`In the East New York neighborhood of Brooklyn, a pastor is devoting his time to building affordable housing for his congregation.`\
+https://nytimes.com/2025/06/03/nyregion/new-york-black-families-affordable-housing-church.html
+
+**Anorexia in Middle Age and Beyond**\
+`A growing number of older women are seeking treatment for eating disorders. Many have struggled without help for decades.`\
+https://nytimes.com/2025/06/03/health/anorexia-in-middle-age-and-beyond.html
+
+**Racing to Save California’s Elephant Seals From Bird Flu**\
+`Two years ago, avian influenza ravaged elephant seal colonies in South America. Are the colonies on the northern Pacific Coast next?`\
+https://nytimes.com/card/2025/06/03/science/
+
 **Brighton Transfer DealSheet: Summer window latest, key targets and likely exits**\
 `Brighton are unlikely to be as active in this summer window as they were last year, yet there is still plenty to look out for...`\
 https://nytimes.com/athletic/6352226/2025/06/03/brighton-dealsheet-transfers/
