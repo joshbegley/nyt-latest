@@ -1,3 +1,11 @@
+**Trump’s Foreign Policy, Explained**\
+`The foreign policy scholar Emma Ashford explains what President Trump is really doing in the Middle East and Ukraine.`\
+https://nytimes.com/2025/06/03/opinion/ezra-klein-podcast-emma-ashford.html
+
+**Trump’s Foreign Policy, Explained**\
+`The foreign policy scholar Emma Ashford explains what President Trump is really doing in the Middle East and Ukraine.`\
+https://nytimes.com/video/opinion/100000010193621/trumps-foreign-policy-explained.html
+
 **What Are N.Y.C.’s Mayoral Candidates Saying in TV Ads?**\
 `The Times analyzed the messaging in broadcast spots, on which campaigns and outside groups have spent millions, to identify the major themes in the race.`\
 https://nytimes.com/interactive/2025/06/03/nyregion/nyc-mayor-ads-candidates.html
