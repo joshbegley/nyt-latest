@@ -1,3 +1,7 @@
+**A Beloved Immigrant’s Arrest in a Pro-Trump Town**\
+`Responses to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe; slashing research.`\
+https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html
+
 **Wake Forest baseball coach Tom Walter apologizes for use of homophobic slur**\
 `Tom Walter was caught saying the word during an ESPN broadcast of the Demon Deacons' loss to Tennessee on Monday.`\
 https://nytimes.com/athletic/6400206/2025/06/03/wake-forest-baseball-coach-tom-walter-apologizes-for-using-homophobic-slur/
