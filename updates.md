@@ -1,3 +1,19 @@
+**Santa Ono Blocked From Becoming University of Florida’s President**\
+`The former president of the University of Michigan had been criticized by conservatives over his past stances on diversity.`\
+https://nytimes.com/2025/06/03/us/santa-ono-university-of-florida-president.html
+
+**Sharp Hike in Nuclear Arms Budget Sought as Science Funding Is Slashed**\
+`The Trump administration asked Congress for roughly $11 billion more in annual spending for the federal agency that oversees nuclear weapon activities.`\
+https://nytimes.com/2025/06/03/science/nuclear-weapons-budget-nnsa-trump.html
+
+**After Dutch Government Collapses, Wilders Eyes Prime Minister Run**\
+`The Netherlands’ first far-right government fell after the populist leader Geert Wilders withdrew his party after a dispute about migration policy.`\
+https://nytimes.com/video/world/europe/100000010205578/netherlands-government-collapse.html
+
+**Brenda Tracy sues MSU's board, alleges breach of duty in Mel Tucker case**\
+`Tuesday's filing is the latest in a multi-pronged legal saga involving Tracy, Tucker and Michigan State leadership.`\
+https://nytimes.com/athletic/6400818/2025/06/03/michigan-state-lawsuit-brenda-tracy-mel-tucker/
+
 **Hegseth Orders Navy to Review Ship Name Honoring Gay Rights Pioneer Harvey Milk**\
 `The names of several other vessels that honor civil rights leaders and Supreme Court justices might also be changed.`\
 https://nytimes.com/2025/06/03/us/politics/navy-ships-harvey-milk-renamed.html
