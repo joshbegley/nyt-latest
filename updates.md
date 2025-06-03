@@ -1,3 +1,15 @@
+**They Bet Their Future on Barbecue Dreams. Many Lost Everything.**\
+`Dickey’s, the world’s largest barbecue chain, has a history of deception and broken promises, according to dozens of its franchise owners.`\
+https://nytimes.com/2025/06/03/dining/dickeys-barbecue-pit-franchise.html
+
+**This App Is Trying to Change How Americans Eat**\
+`Yuka, which Kennedy has called “invaluable,” assigns health scores to food. But can it actually help people make better choices?`\
+https://nytimes.com/2025/06/03/well/eat/yuka-nutrition-app-maha-benefits.html
+
+**Being Harvey Weinstein’s P.R. Guy Has Its Perks**\
+`Juda Engelmayer took a job that leading crisis communications pros didn’t want. Now he’s the pied piper of pariahs.`\
+https://nytimes.com/2025/06/03/style/harvey-weinstein-pr-juda-engelmayer.html
+
 **Deportation flights accelerate, reaching a high under Trump.**\
 `(No description)`\
 https://nytimes.com/2025/06/03/us/politics/deportation-flights-accelerate-reaching-a-high-under-trump.html
