@@ -1,3 +1,7 @@
+**Ukraine Says It Strikes Crimea Bridge**\
+`It would be the third time Ukraine had struck the bridge. The claim comes two days after one of the country’s most ambitious operations of the war, deep inside Russia.`\
+https://nytimes.com/2025/06/03/world/europe/russia-ukraine-crimea-bridge.html
+
 **'We want to be No. 1': Defense sets a high standard at Seahawks OTAs**\
 `The Seahawks feature a new-look offense, but familiar faces on defense are being counted on to resume their dominance from last season.`\
 https://nytimes.com/athletic/6398696/2025/06/03/seahawks-offseason-defense/
