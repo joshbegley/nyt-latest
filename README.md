@@ -1,3 +1,15 @@
+**Who owns La Liga's 20 clubs: A Wimbledon semi-finalist, Pep Guardiola's brother and a private detective**\
+`The owner of every La Liga club from 2024-25 explained`\
+https://nytimes.com/athletic/6397667/2025/06/03/la-liga-owners-explained/
+
+**Jack Grealish is at a career crossroads. Which club could reignite his best?**\
+`Just two years after being key to City’s treble-winning season, the winger started just seven Premier League games in 2024-25`\
+https://nytimes.com/athletic/6387506/2025/06/03/what-next-for-jack-grealish/
+
+**Why has there never been a challenger to the Premier League like LIV Golf or the XFL?**\
+`Football is awash with mega-rich investors. Might some of them create a league to compete with England's dominant top division?`\
+https://nytimes.com/athletic/6361123/2025/06/03/premier-league-challenger-leagues/
+
 **Will the Red Sox lose patience as Trevor Story continues to struggle at the plate?**\
 `Amid what he’s acknowledged as the worst offensive stretch of his career, Story is still searching for answers and consistency.`\
 https://nytimes.com/athletic/6398956/2025/06/03/red-sox-trevor-story/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/03/business/xi-zhongxun-biography-father.html
 **Connections: Sports Edition Coach: Hints for June 3, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6398929/2025/06/03/connections-sports-edition-hints-for-june-3-2025/
-
-**Corrections: June 3, 2025**\
-`Corrections that appeared in print on Tuesday, June 3, 2025.`\
-https://nytimes.com/2025/06/03/pageoneplus/corrections-june-3-2025.html
-
-**Full Time: FAQs about the Spirit’s coaching shuffle**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6398997/2025/06/02/jonatan-giraldez-spirit-lyonnes-full-time/
-
-**South Koreans Elect a New Leader on Tuesday. Here’s What to Know.**\
-`The new president will be tasked with pulling the nation out of political turmoil and face a polarized country and world.`\
-https://nytimes.com/2025/06/02/world/asia/south-korea-election-what-to-know.html
 
