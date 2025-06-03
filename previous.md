@@ -1,3 +1,23 @@
+**Transfers TLDR: Caoimhin Kelleher to Brentford**\
+`The 26-year-old Kelleher has moved from Liverpool to Brentford — here's all you need to know about the deal`\
+https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-transfer-analysis/
+
+**Gabby Thomas calls out bettor for following, heckling her at Philly meet**\
+`"This grown man followed me around the track as I took pictures and signed autographs for fans," Thomas said on X about the incident.`\
+https://nytimes.com/athletic/6399678/2025/06/03/gabby-thomas-bettor-heckling-track/
+
+**In their French Open quarterfinal, Coco Gauff and Madison Keys won't forget to breathe**\
+`Gauff's superpower is her fitness. Keys' superpower is her calm. Both back their lungs to take them into the Roland Garros semifinals.`\
+https://nytimes.com/athletic/6399712/2025/06/03/coco-gauff-madison-keys-french-open-tennis-quarterfinal/
+
+**Police Renew Searches in Madeleine McCann Investigation in Portugal**\
+`Portuguese police are combing an area near the resort where the British girl disappeared in 2007, as German authorities continue to investigate a suspect, Christian Brückner.`\
+https://nytimes.com/2025/06/03/world/europe/madeleine-mccann-search-portugal.html
+
+**How could Bryan Mbeumo improve Manchester United?**\
+`United are set to open talks with Brentford following the news that Mbeumo would prefer a move to Old Trafford`\
+https://nytimes.com/athletic/6397630/2025/06/03/bryan-mbeumo-manchester-united-transfer-analysis/
+
 **Westmoreland Serves an All-Day Menu in the Revamped Frick Collection**\
 `A King partner opens a wine bar, Lobel’s now has a restaurant and more news.`\
 https://nytimes.com/2025/06/03/dining/nyc-restaurant-news.html
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6399684/2025/06/03/bruno-fernandes-rejected-al-hila
 **PWHL releases expansion draft protected list: Hilary Knight, Sarah Nurse go unprotected**\
 `The list of players protected in the PWHL’s expansion draft for Seattle and Vancouver was released on Tuesday.`\
 https://nytimes.com/athletic/6397434/2025/06/03/pwhl-expansion-draft-protected-list-players-hockey/
-
-**What Secrets Lie in a Particle’s Wobble? Physicists Still Can’t Say.**\
-`The deviant behavior of a tiny particle called the muon might point to undiscovered forms of matter and energy in the universe. Or it might not.`\
-https://nytimes.com/2025/06/03/science/physics-muons-fermilab.html
-
-**Carrying his bag, Max Homa fails in bid to qualify for U.S. Open**\
-`For Homa, more than eight hours of walking did not earn him a spot in next week’s U.S. Open at Oakmont Country Club.`\
-https://nytimes.com/athletic/6399955/2025/06/03/max-homa-bag-carry-us-open/
-
-**NHL highlights are now in The Athletic's app. Why this is the perfect time**\
-`NHL highlights are now available in The Athletic's coverage, just in time for the best part of the NHL season.`\
-https://nytimes.com/athletic/6397733/2025/06/03/nhl-highlights-the-athletic-app/
-
-**‘Marjorie Prime’ and ‘Becky Shaw’ Are Coming to Broadway This Season**\
-`Second Stage Theater, a nonprofit, will put on the two plays, both of which were Pulitzer finalists, at its Helen Hayes Theater.`\
-https://nytimes.com/2025/06/03/theater/marjorie-prime-becky-shaw-broadway.html
-
-**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
-`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
-`\
-https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
 

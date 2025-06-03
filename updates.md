@@ -1,3 +1,23 @@
+**Transfers TLDR: Caoimhin Kelleher to Brentford**\
+`The 26-year-old Kelleher has moved from Liverpool to Brentford — here's all you need to know about the deal`\
+https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-transfer-analysis/
+
+**Gabby Thomas calls out bettor for following, heckling her at Philly meet**\
+`"This grown man followed me around the track as I took pictures and signed autographs for fans," Thomas said on X about the incident.`\
+https://nytimes.com/athletic/6399678/2025/06/03/gabby-thomas-bettor-heckling-track/
+
+**In their French Open quarterfinal, Coco Gauff and Madison Keys won't forget to breathe**\
+`Gauff's superpower is her fitness. Keys' superpower is her calm. Both back their lungs to take them into the Roland Garros semifinals.`\
+https://nytimes.com/athletic/6399712/2025/06/03/coco-gauff-madison-keys-french-open-tennis-quarterfinal/
+
+**Police Renew Searches in Madeleine McCann Investigation in Portugal**\
+`Portuguese police are combing an area near the resort where the British girl disappeared in 2007, as German authorities continue to investigate a suspect, Christian Brückner.`\
+https://nytimes.com/2025/06/03/world/europe/madeleine-mccann-search-portugal.html
+
+**How could Bryan Mbeumo improve Manchester United?**\
+`United are set to open talks with Brentford following the news that Mbeumo would prefer a move to Old Trafford`\
+https://nytimes.com/athletic/6397630/2025/06/03/bryan-mbeumo-manchester-united-transfer-analysis/
+
 **Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
 `Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
 `\
