@@ -1,3 +1,15 @@
+**Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
+`The tech executive criticized the president’s legislation in a series of posts on Tuesday, signaling a widening rift with Republicans.`\
+https://nytimes.com/2025/06/03/technology/elon-musk-criticizes-republican-legislation.html
+
+**California could be sued over participation of trans athletes, DOJ says**\
+`On Saturday, AB Hernandez, a trans girl competing for Jurupa Valley High School, won state titles in the high jump and triple jump.`\
+https://nytimes.com/athletic/6400556/2025/06/03/california-trans-athletes-trump-lawsuit/
+
+**TikTok Bans #SkinnyTok After European Regulators Raise Concerns**\
+`Officials in Europe worried that the app was glamorizing eating disorders. The ban is TikTok’s latest effort to counter criticism about its effect on teen mental health.`\
+https://nytimes.com/2025/06/03/business/tiktok-skinnytok-ban.html
+
 **Smoke From Canadian Wildfires Blankets the Upper Midwest**\
 `Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
 https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/podcasts/100000010203305/the-no-1-hit-thats-driving-us
 **South Korea’s New Leader Faces Tough Tests Right From the Start**\
 `Lee Jae-myung will be one of the most powerful presidents in decades in South Korea, but the country faces deep divisions, along with challenges from the Trump administration.`\
 https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
-
-**Nottm Forest reach verbal agreement to sign Botafogo trio**\
-`Forest are looking to add to their squad after qualifying for the Conference League next season.`\
-https://nytimes.com/athletic/6400433/2025/06/03/nottingham-forest-transfers-botafogo/
-
-**After Trump Takeover, Kennedy Center Ticket Sales Fall Sharply**\
-`The Kennedy Center disputed the relevance of the data, part of an analysis by employees, saying that it had started its annual subscription campaign later than usual.`\
-https://nytimes.com/2025/06/03/arts/music/kennedy-center-ticket-sales-subscriptions.html
-
-**Jonathan Morgan exhibited 'bullying behaviour', called Maddy Cusack a 'psycho', hearing told**\
-`A preliminary hearing on Tuesday heard evidence relating to the circumstances that preceded Cusack's death in September 2023.`\
-https://nytimes.com/athletic/6400161/2025/06/03/maddy-cusack-death-jonathan-morgan/
 
