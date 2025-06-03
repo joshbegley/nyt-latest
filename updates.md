@@ -1,3 +1,15 @@
+**Harvard Students Seek ‘Viewpoint Diversity’ Outside the School’s Gates**\
+`Steps from Harvard’s campus, an institute backed by conservative donors says it is trying to fill an intellectual void.`\
+https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
+
+**The White House Gutted Science Funding. Now It Wants to ‘Correct’ Research.**\
+`Thousands of scientists, academics, physicians and researchers have responded to the administration’s executive order about “restoring a gold standard for science.”`\
+https://nytimes.com/2025/06/03/climate/executive-order-gold-standard-science.html
+
+**A Beloved Immigrant’s Arrest in a Pro-Trump Town**\
+`Readers respond to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe?`\
+https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html
+
 **Transfers TLDR: Caoimhin Kelleher to Brentford**\
 `The 26-year-old Kelleher has moved from Liverpool to Brentford — here's all you need to know about the deal`\
 https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-transfer-analysis/

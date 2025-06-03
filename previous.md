@@ -1,3 +1,15 @@
+**Harvard Students Seek ‘Viewpoint Diversity’ Outside the School’s Gates**\
+`Steps from Harvard’s campus, an institute backed by conservative donors says it is trying to fill an intellectual void.`\
+https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
+
+**The White House Gutted Science Funding. Now It Wants to ‘Correct’ Research.**\
+`Thousands of scientists, academics, physicians and researchers have responded to the administration’s executive order about “restoring a gold standard for science.”`\
+https://nytimes.com/2025/06/03/climate/executive-order-gold-standard-science.html
+
+**A Beloved Immigrant’s Arrest in a Pro-Trump Town**\
+`Readers respond to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe?`\
+https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html
+
 **Transfers TLDR: Caoimhin Kelleher to Brentford**\
 `The 26-year-old Kelleher has moved from Liverpool to Brentford — here's all you need to know about the deal`\
 https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-transfer-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/03/dining/nyc-restaurant-news.html
 **In shocking move, Hilary Knight was exposed to PWHL expansion. Why didn’t Boston protect her?**\
 `Knight, a women's hockey legend, is not on the Boston Fleet's list of protected players, exposing her to the PWHL expansion process.`\
 https://nytimes.com/athletic/6399808/2025/06/03/hilary-knight-pwhl-boston-expansion-seattle-vancouver-womens-hockey/
-
-**Flyers sign Noah Cates to 4-year, $16 million extension**\
-`Cates scored 16 goals and 37 points in 78 games this season and emerged as the Flyers' most consistent center.`\
-https://nytimes.com/athletic/6399909/2025/06/03/flyers-noah-cates-extension/
-
-**They tried to make him go to Riyadh... Here's why Bruno saying no to Saudi offer should be celebrated**\
-`The United captain's rejection of Al Hilal should please all Premier League fans`\
-https://nytimes.com/athletic/6399684/2025/06/03/bruno-fernandes-rejected-al-hilal-why-it-should-be-celebrated/
-
-**PWHL releases expansion draft protected list: Hilary Knight, Sarah Nurse go unprotected**\
-`The list of players protected in the PWHL’s expansion draft for Seattle and Vancouver was released on Tuesday.`\
-https://nytimes.com/athletic/6397434/2025/06/03/pwhl-expansion-draft-protected-list-players-hockey/
 
