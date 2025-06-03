@@ -1,3 +1,11 @@
+**A Trump Official Threatens to Sue California Schools Over Trans Athletes**\
+`A letter from the assistant attorney general for civil rights, Harmeet K. Dhillon, said that allowing trans athletes to compete in high school sports was unconstitutional.`\
+https://nytimes.com/2025/06/02/us/politics/california-schools-trans-athletes-trump.html
+
+**The 100 Best Restaurants in New York City in 2025**\
+`We have a brand-new top 10, plus 90 more of the greatest meals in the five boroughs.`\
+https://nytimes.com/interactive/2025/dining/best-nyc-restaurants.html
+
 **NiJaree Canady, Texas Tech bring end to Oklahoma softball's dynastic run**\
 `Oklahoma's quest for a fifth straight national championship ends as Red Raiders win on walk-off sac fly.`\
 https://nytimes.com/athletic/6398780/2025/06/02/oklahoma-texas-tech-womens-college-world-series-semifinals-2025/
