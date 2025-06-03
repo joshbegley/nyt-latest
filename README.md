@@ -1,3 +1,7 @@
+**NiJaree Canady, Texas Tech bring end to Oklahoma softball's dynastic run**\
+`Oklahoma's quest for a fifth straight national championship ends as Red Raiders win on walk-off sac fly.`\
+https://nytimes.com/athletic/6398780/2025/06/02/oklahoma-texas-tech-womens-college-world-series-semifinals-2025/
+
 **Attack Suspect Appeared to Live a Low-Key Life in Colorado Springs**\
 `The suspect came to the U.S. in 2022 and lived with his family in a suburban neighborhood. He was a ride share driver, and his daughter was embraced by her school community.`\
 https://nytimes.com/2025/06/02/us/boulder-colorado-attack-suspect-life.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/us/politics/ukraine-russia-drone-attack.html
 **Braves replace 3B coach with ex-manager Fredi González after multiple bad sends**\
 `"We need to look for every area that we can get better," Braves president of baseball operations Alex Anthopoulos said.`\
 https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base-coach-matt-tuiasosopo/
-
-**Harvard Argues Cutting Off Its Government Funding Is Wasteful**\
-`Harvard officials, in a new court filing on Monday, detailed the extent of cuts that the Trump administration had made to a broad swath of university research projects.`\
-https://nytimes.com/2025/06/02/us/harvard-argues-cutting-off-its-government-funding-is-wasteful.html
 
