@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, June 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/03/todays-new-york-times
+
+**Poland Just Sent an Ominous Signal to the World**\
+`Populism is resilient and sticky, and liberalism has yet to find a reliable formula to defeat it.`\
+https://nytimes.com/2025/06/03/opinion/poland-election-nawrocki.html
+
+**Tuesday Briefing**\
+`South Koreans go to the polls.`\
+https://nytimes.com/2025/06/03/briefing/south-korea-election-ukraine-colorado.html
+
 **2025 NCAA baseball Super Regionals set: What are the most intriguing matchups?**\
 `Five of the nine ACC teams that made the field of 64 advanced to the Super Regionals.`\
 https://nytimes.com/athletic/6398923/2025/06/03/ncaa-baseball-super-regionals-schedule-3/
