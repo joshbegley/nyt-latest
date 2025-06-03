@@ -1,3 +1,11 @@
+**Yankees pitcher Luke Weaver expected to miss 4 to 6 weeks with hamstring injury**\
+`Weaver, 31, suffered the injury over the weekend during the Yankees' three-game series against the Los Angeles Dodgers.`\
+https://nytimes.com/athletic/6399612/2025/06/03/yankees-luke-weaver-injury-pitcher/
+
+**Leverkusen sign goalkeeper Flekken from Brentford**\
+`Flekken, 31, joins the Bundesliga club on a three-year deal through to 2028.`\
+https://nytimes.com/athletic/6397078/2025/06/03/mark-flekken-leverkusen-transfer/
+
 **Breaking down 11 potential landing spots for Nikolaj Ehlers in free agency**\
 `Ehlers is a force in transition who can create offense without relying on extended offensive zone time. Where might he sign on July 1?`\
 https://nytimes.com/athletic/6398915/2025/06/03/nikolaj-ehlers-free-agent-destinations/
