@@ -1,4 +1,8 @@
-**Braves replace third-base coach with former manager Fredi González after multiple bad sends**\
+**Ukraine Shows It Can Still Flip the Script on How Wars Are Waged**\
+`The attack demonstrated Ukraine’s ability to use relatively cheap drones to take out expensive aircraft and to strike sites far from its borders.`\
+https://nytimes.com/2025/06/02/us/politics/ukraine-russia-drone-attack.html
+
+**Braves replace 3B coach with ex-manager Fredi González after multiple bad sends**\
 `"We need to look for every area that we can get better," Braves president of baseball operations Alex Anthopoulos said.`\
 https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base-coach-matt-tuiasosopo/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
 **Man Stabs 12 in Spree at Oregon Homeless Shelter, Police Say**\
 `The attack, in which two of shelter staff members were injured, does not appear to be targeted, the authorities said. A suspect was in custody.`\
 https://nytimes.com/2025/06/02/us/stabbing-oregon-homeless-shelter.html
-
-**Trump Talks a Lot About Antisemitism, With a Notable Caveat**\
-`The president made no reference to Jews after the Colorado attack.`\
-https://nytimes.com/2025/06/02/us/politics/trump-jews-antisemitism-colorado-attack.html
 
