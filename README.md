@@ -1,3 +1,19 @@
+**‘Respect the Rotisserie Chicken’**\
+`Readers share their cost-cutting shopping and cooking tips; I share five budget-friendly recipes to put on repeat.`\
+https://nytimes.com/2025/06/03/dining/cost-cutting-grocery-shopping-tips-and-recipes.html
+
+**At the Tribeca Festival, Standouts Come From Near and Far**\
+`A documentary about a New York restaurant and a Korean film about dine-and-dashers are among the standouts in this year’s festival.`\
+https://nytimes.com/2025/06/03/movies/tribeca-festival-standouts.html
+
+**Is Going to the Bathroom ‘Just in Case’ Bad for You?**\
+`Experts weigh in on whether proactive peeing affects your bladder health.`\
+https://nytimes.com/2025/06/03/well/bladder-health-pee-bathroom.html
+
+**What to watch in sports this week: NBA and Stanley Cup Finals, Belmont Stakes, French Open**\
+`It's a stacked week in sports, from NBA and NHL finals action to the Belmont Stakes, French Open and UEFA Nations League.`\
+https://nytimes.com/athletic/6399002/2025/06/03/nba-finals-stanley-cup-belmont-stakes-french-open-yankees-red-sox-how-to-watch/
+
 **What to Know About China’s Halt of Rare Earth Exports**\
 `Since early April, China has stopped almost all shipments of critical minerals that are needed for cars, robots, wind turbines, jet fighters and other technologies.`\
 https://nytimes.com/2025/06/03/business/rare-earth-metals-china.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/06/03/us/trump-deportation-flights-ice-may.
 **From No Hope to a Potential Cure for a Deadly Blood Cancer**\
 `Multiple myeloma is considered incurable, but a third of patients in a Johnson & Johnson clinical trial have lived without detectable cancer for years after facing certain death.`\
 https://nytimes.com/2025/06/03/health/multiple-myeloma-car-t-immunotherapy.html
-
-**Submit your questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
-`<p><em>The Athletic</em>’s prospects writer Scott Wheeler released his final top 100 ranking for the 2025 NHL Draft on Monday.`\
-https://nytimes.com/athletic/6399819/2025/06/03/nhl-draft-2025-scott-wheeler-mailbag/
-
-**Liverpool goalkeeper Kelleher joins Brentford**\
-`The 26-year-old moves for an initial fee of £12.5m rising to £18m with add ons.`\
-https://nytimes.com/athletic/6397042/2025/06/03/caoimhin-kelleher-brentford-transfer-liverpool/
-
-**Trump’s Tariffs Expected to Drag Down the Global Economy**\
-`Economic growth will slow this year and next as the trade war hampers development in the United States and around the world, the Organization for Economic Cooperation and Development said.`\
-https://nytimes.com/2025/06/03/business/trump-tariffs-oecd.html
-
-**gws-ireland-blackwater-valley**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/travel-ireland-blackwater-valley
 
