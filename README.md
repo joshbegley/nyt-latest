@@ -1,3 +1,7 @@
+**They Bet Their Future on Barbecue Dreams. Many Lost Everything.**\
+`Dickey’s, the world’s largest barbecue chain, has a history of deception and broken promises, according to dozens of its franchise owners.`\
+https://nytimes.com/2025/06/03/dining/dickeys-barbecue-pit-franchise.html
+
 **This App Is Trying to Change How Americans Eat**\
 `Yuka, which Kennedy has called “invaluable,” assigns health scores to food. But can it actually help people make better choices?`\
 https://nytimes.com/2025/06/03/well/eat/yuka-nutrition-app-maha-benefits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/trump-antisemitism.html
 **‘Respect the Rotisserie Chicken’**\
 `Readers share their cost-cutting shopping and cooking tips; I share five budget-friendly recipes to put on repeat.`\
 https://nytimes.com/2025/06/03/dining/cost-cutting-grocery-shopping-tips-and-recipes.html
-
-**At the Tribeca Festival, Standouts Come From Near and Far**\
-`A documentary about a New York restaurant and a Korean film about dine-and-dashers are among the standouts in this year’s festival.`\
-https://nytimes.com/2025/06/03/movies/tribeca-festival-standouts.html
 
