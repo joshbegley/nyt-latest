@@ -1,3 +1,11 @@
+**Madden Curse? No, Saquon Barkley's fantasy football managers should be afraid of history**\
+`History strongly suggests Barkley isn't going to deliver an RB1 season in 2025. And it has nothing to do with the Madden Curse.`\
+https://nytimes.com/athletic/6205812/2025/06/03/saquon-barkley-fantasy-football-draft-madden/
+
+**Mets are recalling Ronny Mauricio after apparent injury to Mark Vientos**\
+`Mauricio, a former top prospect who missed all of last season after knee surgery, will join the team for its series in Los Angeles.`\
+https://nytimes.com/athletic/6399758/2025/06/03/mets-ronny-mauricio-recall-mark-vientos-injury/
+
 **Inzaghi to leave Inter, expected to move to Al Hilal**\
 `Inzaghi, 49, has won everything domestically during his four years at Inter, winning the Serie A title in 2023-24.`\
 https://nytimes.com/athletic/6397239/2025/06/03/simone-inzaghi-inter-leaves/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/business/rare-earth-metals-china.html
 **Newark’s Mayor Sues a Top Trump Lawyer, Claiming Malicious Prosecution**\
 `The mayor, Ras Baraka, is suing Alina Habba, the interim U.S. attorney for New Jersey, who dropped charges against him soon after his arrest near an immigration jail.`\
 https://nytimes.com/2025/06/03/nyregion/ras-baraka-alina-habba-lawsuit-ice.html
-
-**Tesla Protesters Claim a Victory as Elon Musk Leaves Trump’s Side**\
-`The activists behind the Tesla Takedown campaign say they intend to expand beyond protests at the company’s showrooms.`\
-https://nytimes.com/2025/06/03/business/elon-musk-trump-tesla-protests.html
-
-**gws-jeremy-renner-near-death-experiences-science**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/gws-jeremy-renner-near-death-experiences-science
 
