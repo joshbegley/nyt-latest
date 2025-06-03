@@ -1,3 +1,7 @@
+**2025 NCAA baseball Super Regionals set: What are the most intriguing matchups?**\
+`Five of the nine ACC teams that made the field of 64 advanced to the Super Regionals.`\
+https://nytimes.com/athletic/6398923/2025/06/03/ncaa-baseball-super-regionals-schedule-3/
+
 **Crystal Palace Transfer DealSheet: Summer window latest, key targets and likely exits**\
 `There is uncertainty around who will make the key decisions after Freedman's exit, but the club are in a strong position in terms of PSR.`\
 https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-preview/

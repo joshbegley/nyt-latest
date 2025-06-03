@@ -1,3 +1,7 @@
+**2025 NCAA baseball Super Regionals set: What are the most intriguing matchups?**\
+`Five of the nine ACC teams that made the field of 64 advanced to the Super Regionals.`\
+https://nytimes.com/athletic/6398923/2025/06/03/ncaa-baseball-super-regionals-schedule-3/
+
 **Crystal Palace Transfer DealSheet: Summer window latest, key targets and likely exits**\
 `There is uncertainty around who will make the key decisions after Freedman's exit, but the club are in a strong position in terms of PSR.`\
 https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398979/2025/06/03/energized-royce-lewis-everyone-s
 **The summer 2025 transfer window on The Athletic**\
 `The temporary window is now open, the main window will open soon — this is what we have planned`\
 https://nytimes.com/athletic/6397552/2025/06/03/the-summer-2025-transfer-window-on-the-athletic/
-
-**How each of the 32 teams qualified for the 2025 Club World Cup**\
-`What was the criteria for qualifying? And why are amateurs playing against the world's elite?`\
-https://nytimes.com/athletic/6375108/2025/06/03/how-each-of-the-32-teams-qualified-for-the-2025-club-world-cup/
 

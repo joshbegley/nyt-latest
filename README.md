@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`South Koreans go to the polls.`\
+https://nytimes.com/2025/06/03/briefing/south-korea-election-ukraine-colorado.html
+
 **2025 NCAA baseball Super Regionals set: What are the most intriguing matchups?**\
 `Five of the nine ACC teams that made the field of 64 advanced to the Super Regionals.`\
 https://nytimes.com/athletic/6398923/2025/06/03/ncaa-baseball-super-regionals-schedule-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398956/2025/06/03/red-sox-trevor-story/
 **Energized by struggles, Royce Lewis works to get back on track: 'Everyone slumps'**\
 `The Twins believe things will turn for Lewis and cite statistical evidence to suggest it should.`\
 https://nytimes.com/athletic/6398979/2025/06/03/energized-royce-lewis-everyone-slumps/
-
-**The summer 2025 transfer window on The Athletic**\
-`The temporary window is now open, the main window will open soon — this is what we have planned`\
-https://nytimes.com/athletic/6397552/2025/06/03/the-summer-2025-transfer-window-on-the-athletic/
 
