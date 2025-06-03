@@ -1,3 +1,7 @@
+**Watch: Shai Gilgeous-Alexander has been NBA MVP-worthy, but his goals aren't complete**\
+`"The Athletic NBA Daily" discussed Gilgeous-Alexander, who is having one of the best individual NBA seasons ever.`\
+https://nytimes.com/athletic/6399694/2025/06/03/shai-gilgeous-alexander-thunder-nba-daily/
+
 **The U.S. Proposed New Terms in Nuclear Talks With Iran**\
 `Also, a study revealed a potential cure for a deadly blood cancer. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/06/03/briefing/us-nuclear-talks-iran-russia-ukraine-war.html
