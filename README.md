@@ -1,3 +1,7 @@
+**Wake Forest baseball coach Tom Walter apologizes for use of homophobic slur**\
+`Tom Walter was caught saying the word during an ESPN broadcast of the Demon Deacons' loss to Tennessee on Monday.`\
+https://nytimes.com/athletic/6400206/2025/06/03/wake-forest-baseball-coach-tom-walter-apologizes-for-using-homophobic-slur/
+
 **What the N.Y.C. Mayoral Candidates Hope to Achieve on the Debate Stage**\
 `Plus: Cynthia Nixon’s advice for debating Andrew Cuomo and Ilana Glazer’s ranked-choice ballot.`\
 https://nytimes.com/2025/06/03/nyregion/nyc-mayor-race-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399678/2025/06/03/gabby-thomas-bettor-heckling-tra
 **In their French Open quarterfinal, Coco Gauff and Madison Keys won't forget to breathe**\
 `Gauff's superpower is her fitness. Keys' superpower is her calm. Both back their lungs to take them into the Roland Garros semifinals.`\
 https://nytimes.com/athletic/6399712/2025/06/03/coco-gauff-madison-keys-french-open-tennis-quarterfinal/
-
-**Police Renew Searches in Madeleine McCann Investigation in Portugal**\
-`Portuguese police are combing an area near the resort where the British girl disappeared in 2007, as German authorities continue to investigate a suspect, Christian Brückner.`\
-https://nytimes.com/2025/06/03/world/europe/madeleine-mccann-search-portugal.html
 
