@@ -1,3 +1,19 @@
+**Ukraine Hid Attack Drones in Russia. These Videos Show What Happened Next.**\
+`Videos and satellite imagery show how the attack unfolded and its aftermath.`\
+https://nytimes.com/interactive/2025/06/02/world/europe/ukraine-russia-drone-attacks.html
+
+**Day 2: How Rules Can Spark the Imagination**\
+`Today, let’s write a little poetry.`\
+https://nytimes.com/interactive/2025/well/creativity-poetry-writing-prompt.html
+
+**A Stephen Miller Staffer and Tough Talk: Inside Trump’s Latest Attack on Harvard**\
+`The Justice Department opened an investigation into the student-run Harvard Law Review. The startling accusations show how the Trump administration is wielding power in pursuit of its political agenda.`\
+https://nytimes.com/2025/06/02/us/politics/harvard-law-review-investigation-trump.html
+
+**‘Eurydice’ Review: Maya Hawke in the Underworld**\
+`The actress stars in Sarah Ruhl’s reimagining of this classic myth, with a focus on a daughter’s reunion with her beloved father after death.`\
+https://nytimes.com/2025/06/02/theater/eurydice-review-maya-hawke-in-the-underworld.html
+
 **The Colorado suspect’s immigration status was stalled in a common gray area, experts say.**\
 `Here is a look at what is known about the path taken by Mohamed Sabry Soliman, an Egyptian, in seeking asylum in the U.S.`\
 https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/the-colorado-suspects-immigration-status-was-stalled-in-a-common-gray-area-experts-say
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/02/us/politics/trump-diversity-border-customs-offici
 **The Cubs aren't waiting until the trade deadline to make more moves for pitching**\
 `It is, and always will be, about pitching. "The quest for opportunities in pitching," manager Craig Counsell said, "it's 365 days (a year)."`\
 https://nytimes.com/athletic/6398564/2025/06/02/cubs-trade-deadline-pitching/
-
-**Inebriated bettor behind death threats to Astros' McCullers, family: Police**\
-`The man told investigators he lost money wagering on the Astros and was "frustrated and inebriated."`\
-https://nytimes.com/athletic/6398631/2025/06/02/bettor-astros-lance-mccullers-death-threats/
-
-**Do You Have Questions About the Economy? Ask The Morning.**\
-`A future edition of the newsletter will answer readers’ questions.`\
-https://nytimes.com/2025/06/02/briefing/do-you-have-questions-about-the-economy-ask-the-morning.html
-
-**Florida baseball coach, athletic director apologize for coach's outburst**\
-`Kevin O’Sullivan directed a tirade at NCAA Tournament site officials because he was unhappy Florida's game was delayed by an hour.`\
-https://nytimes.com/athletic/6398558/2025/06/02/florida-baseball-coach-athletic-director-apologize-outburst/
-
-**Why Women Are Leaving This Broadway Show in Tears**\
-`“John Proctor is the Villain” turns the idea that MeToo was a witch hunt inside out.`\
-https://nytimes.com/2025/06/02/opinion/broadway-play-metoo.html
 
