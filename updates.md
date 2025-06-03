@@ -1,3 +1,15 @@
+**Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
+`The tech executive criticized the president’s legislation in a series of posts on Tuesday, signaling a widening rift with Republicans.`\
+https://nytimes.com/2025/06/03/technology/elon-musk-criticizes-republican-legislation.html
+
+**California could be sued over participation of trans athletes, DOJ says**\
+`On Saturday, AB Hernandez, a trans girl competing for Jurupa Valley High School, won state titles in the high jump and triple jump.`\
+https://nytimes.com/athletic/6400556/2025/06/03/california-trans-athletes-trump-lawsuit/
+
+**TikTok Bans #SkinnyTok After European Regulators Raise Concerns**\
+`Officials in Europe worried that the app was glamorizing eating disorders. The ban is TikTok’s latest effort to counter criticism about its effect on teen mental health.`\
+https://nytimes.com/2025/06/03/business/tiktok-skinnytok-ban.html
+
 **Smoke From Canadian Wildfires Blankets the Upper Midwest**\
 `Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
 https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
