@@ -1,3 +1,7 @@
+**South Korea’s Presidential Candidates Leave Young Voters Disenchanted**\
+`Some of the same young people who demonstrated after President Yoon Suk Yeol declared martial law said they were disappointed by their choices in Tuesday’s election.`\
+https://nytimes.com/2025/06/03/world/asia/south-korea-election-young-voters.html
+
 **The New York Times in Print for Tuesday, June 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/03/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397667/2025/06/03/la-liga-owners-explained/
 **Jack Grealish is at a career crossroads. Which club could reignite his best?**\
 `Just two years after being key to City’s treble-winning season, the winger started just seven Premier League games in 2024-25`\
 https://nytimes.com/athletic/6387506/2025/06/03/what-next-for-jack-grealish/
-
-**Why has there never been a challenger to the Premier League like LIV Golf or the XFL?**\
-`Football is awash with mega-rich investors. Might some of them create a league to compete with England's dominant top division?`\
-https://nytimes.com/athletic/6361123/2025/06/03/premier-league-challenger-leagues/
 

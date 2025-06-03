@@ -1,3 +1,7 @@
+**South Korea’s Presidential Candidates Leave Young Voters Disenchanted**\
+`Some of the same young people who demonstrated after President Yoon Suk Yeol declared martial law said they were disappointed by their choices in Tuesday’s election.`\
+https://nytimes.com/2025/06/03/world/asia/south-korea-election-young-voters.html
+
 **The New York Times in Print for Tuesday, June 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/03/todays-new-york-times
