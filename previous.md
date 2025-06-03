@@ -1,3 +1,7 @@
+**ICE Detains Family of Suspect in Colorado Attack**\
+`Homeland Security Secretary Kristi Noem said the agency would be investigating whether Mohamed Sabry Soliman’s family had information about his plans.`\
+https://nytimes.com/2025/06/03/us/politics/ice-colorado-suspect.html
+
 **Pina brace sees Spain Women beat England 2-1 in Nations League group stage**\
 `Sarina Wiegman's England side will now turn their focus to Euro 2025, which kicks off in Switzerland on July 2.`\
 https://nytimes.com/athletic/6400684/2025/06/03/england-women-spain-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/03/admin/do-not-use
 **Arsenal target Zubimendi expecting 'long summer'**\
 `Arsenal's move for the Spain international has been worked on for a considerable time.`\
 https://nytimes.com/athletic/6400637/2025/06/03/arsenal-zubimendi-transfer-update-real-sociedad/
-
-**Did that Clint Eastwood Interview Happen? Yes, Kind of.**\
-`Eastwood, 95, accused a small Austrian publication of running a “phony” Q. and A. with him. It turns out the quotes were aggregated from previous interviews.`\
-https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html
 
