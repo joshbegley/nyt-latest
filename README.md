@@ -1,3 +1,19 @@
+**Santa Ono Blocked From Becoming University of Florida’s President**\
+`The former president of the University of Michigan had been criticized by conservatives over his past stances on diversity.`\
+https://nytimes.com/2025/06/03/us/santa-ono-university-of-florida-president.html
+
+**Sharp Hike in Nuclear Arms Budget Sought as Science Funding Is Slashed**\
+`The Trump administration asked Congress for roughly $11 billion more in annual spending for the federal agency that oversees nuclear weapon activities.`\
+https://nytimes.com/2025/06/03/science/nuclear-weapons-budget-nnsa-trump.html
+
+**After Dutch Government Collapses, Wilders Eyes Prime Minister Run**\
+`The Netherlands’ first far-right government fell after the populist leader Geert Wilders withdrew his party after a dispute about migration policy.`\
+https://nytimes.com/video/world/europe/100000010205578/netherlands-government-collapse.html
+
+**Brenda Tracy sues MSU's board, alleges breach of duty in Mel Tucker case**\
+`Tuesday's filing is the latest in a multi-pronged legal saga involving Tracy, Tucker and Michigan State leadership.`\
+https://nytimes.com/athletic/6400818/2025/06/03/michigan-state-lawsuit-brenda-tracy-mel-tucker/
+
 **Hegseth Orders Navy to Review Ship Name Honoring Gay Rights Pioneer Harvey Milk**\
 `The names of several other vessels that honor civil rights leaders and Supreme Court justices might also be changed.`\
 https://nytimes.com/2025/06/03/us/politics/navy-ships-harvey-milk-renamed.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/03/sports/football/jim-marshall-dead.html
 **Watch: Shai Gilgeous-Alexander has been NBA MVP-worthy, but his goals aren't complete**\
 `"The Athletic NBA Daily" discussed Gilgeous-Alexander, who is having one of the best individual NBA seasons ever.`\
 https://nytimes.com/athletic/6399694/2025/06/03/shai-gilgeous-alexander-thunder-nba-daily/
-
-**The U.S. Proposed New Terms in Nuclear Talks With Iran**\
-`Also, a study revealed a potential cure for a deadly blood cancer. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/06/03/briefing/us-nuclear-talks-iran-russia-ukraine-war.html
-
-**Diamondbacks place Corbin Burnes on 15-day IL, await further medical tests**\
-`The 30-year-old righty will consult with noted surgeon Neal ElAttrache in Los Angeles on Thursday.`\
-https://nytimes.com/athletic/6400917/2025/06/03/corbin-burnes-arizona-diamondbacks-elbow-injury/
-
-**Capital One to Curb Lounge Access for Some Cardholders**\
-`The bank is the latest airport lounge operator to erode perks that were once a given. Guests and additional card users will no longer routinely get in for free.`\
-https://nytimes.com/2025/06/03/travel/capital-one-airport-lounges.html
-
-**Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
-`Coach Paul Maurice calls Bennett “built for the playoffs.” It will mean a big payday as a free agent this offseason.`\
-https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
 
