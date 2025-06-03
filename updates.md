@@ -28,6 +28,11 @@ https://nytimes.com/athletic/6399273/2025/06/03/could-martin-zubimendi-be-just-a
 `\
 https://nytimes.com/athletic/6399273/2025/06/03/could-martin-zubimendi-be-just-as-important-to-arsenal-as-signing-a-new-no-9/
 
+**Listen: Could Martin Zubimendi be just as important to Arsenal as signing a new No 9?**\
+`Handbrake Off discusses why Martin Zubimendi could be just as important to Arsenal as a new centre-forward.
+`\
+https://nytimes.com/athletic/6399273/2025/06/03/could-martin-zubimendi-be-just-as-important-to-arsenal-as-signing-a-new-no-9/
+
 **The Athletic FC: Mbeumo to Man Utd? Pivotal week for Wirtz, Messi trading cards to be remade**\
 `Today in TAFC - the return of the DealSheet featuring Wirtz and Mbeumo wanting a Man Utd move. Plus: Messi trading cards to be remade`\
 https://nytimes.com/athletic/6399229/2025/06/03/the-athletic-fc-mbeumo-to-man-utd-pivotal-week-for-wirtz-messi-trading-cards-to-be-remade/
