@@ -1,5 +1,9 @@
+**Yankees' Ryan Yarbrough is dominating. But why does he throw like that?**\
+`“It’s tough to get a bead on him,” Aaron Boone said of Yarbrough, who has always been a funky side-armer. Nobody has tried to change him.`\
+https://nytimes.com/athletic/6398772/2025/06/03/yankees-ryan-yarbrough/
+
 **Europe’s Bickering Pair Search for Unity in a World of Conflict**\
-`President Emmanuel Macron of France and Prime Minister Giorgia Meloni of Italy have regularly sniped, but they are meeting in Rome to in pursuit of common goals.`\
+`President Emmanuel Macron of France and Prime Minister Giorgia Meloni of Italy have regularly sniped, but they are meeting in Rome in pursuit of common goals.`\
 https://nytimes.com/2025/06/03/world/europe/europes-bickering-pair-search-for-unity-in-a-world-of-conflict.html
 
 **Sancho to leave Chelsea at end of loan, club to pay £5m penalty**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/opinion/antisemitism-jewish-attacks-colorado.html
 **Judges in Deportation Cases Face Evasion and Delay From Trump Administration**\
 `Administration officials have either violated orders or used an array of obfuscations and delays to prevent federal judges from deciding whether violations took place.`\
 https://nytimes.com/2025/06/03/us/politics/judges-trump-deportations-immigration.html
-
-**Should Republicans Have Won in a Landslide?**\
-`The question of whether Donald Trump cost conservatives a more decisive victory is a useful one to consider.`\
-https://nytimes.com/2025/06/03/upshot/trump-republicans-democrats-election-landslide.html
 
