@@ -1,3 +1,15 @@
+**Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
+`Coach Paul Maurice calls Bennett “built for the playoffs.” It will have mean a big payday as a free agent this offseason.`\
+https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
+
+**Tom Thibodeau deserved another season with Knicks**\
+`The Knicks are rolling the dice by firing Tom Thibodeau. Now the pressure is on New York to make the perfect hire. `\
+https://nytimes.com/athletic/6400608/2025/06/03/knicks-fire-tom-thibodeau-coaching-search/
+
+**Judge Blocks Trump Effort to End Treatment for Transgender Inmates**\
+`The Bureau of Prisons must provide hormone treatment for inmates with gender dysphoria while a lawsuit proceeds, despite an executive order to the contrary, a federal judge ordered.`\
+https://nytimes.com/2025/06/03/us/politics/transgender-inmates-hormone-treatment-trump.html
+
 **Trump Targets Key Lifeline for Africa: Money Sent Home by Immigrants**\
 `After slashing foreign assistance and introducing steep tariffs, the Trump administration is proposing a new tax on remittances. African nations would be among the hardest hit.`\
 https://nytimes.com/2025/06/03/world/africa/trump-bill-remittance-tax-africa.html

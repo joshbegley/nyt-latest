@@ -1,3 +1,15 @@
+**The U.S. Proposed New Terms in Nuclear Talks With Iran**\
+`Also, a study revealed a potential cure for a deadly blood cancer. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/06/03/briefing/us-nuclear-talks-iran-russia-ukraine-war.html
+
+**Diamondbacks place Corbin Burnes on 15-day IL, await further medical tests**\
+`The 30-year-old righty will consult with noted surgeon Neal ElAttrache in Los Angeles on Thursday.`\
+https://nytimes.com/athletic/6400917/2025/06/03/corbin-burnes-arizona-diamondbacks-elbow-injury/
+
+**Capital One to Curb Lounge Access for Some Cardholders**\
+`The bank is the latest airport lounge operator to erode perks that were once a given. Guests and additional card users will no longer routinely get in for free.`\
+https://nytimes.com/2025/06/03/travel/capital-one-airport-lounges.html
+
 **Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
 `Coach Paul Maurice calls Bennett “built for the playoffs.” It will have mean a big payday as a free agent this offseason.`\
 https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition
 **We Are Being Governed by the Trump Organization Inc.**\
 `Trump is governing by unchecked gut impulses, with little or no homework or coordination among agencies. The results could be disastrous.`\
 https://nytimes.com/2025/06/03/opinion/trump-president-governing-ruler.html
-
-**Wednesday Briefing: Staggering Casualties in Ukraine**\
-`Plus, it’s Pride Month.`\
-https://nytimes.com/2025/06/03/briefing/ukraine-russia-casualties-korea-election.html
-
-**A New Era of Trade Warfare Has Begun for the U.S. and China**\
-`Instead of battling over tariffs, Washington and Beijing have turned to a potentially far more harmful strategy: flexing their control over global supply chains.`\
-https://nytimes.com/2025/06/03/business/economy/us-china-trade-supply-chains.html
-
-**Mexico’s Supreme Court Looks Set to Be Dominated by One Party**\
-`In a divisive and far-reaching election pushed by the governing Morena party, Mexicans voted for thousands of judges at every level on Sunday, remaking the courts.`\
-https://nytimes.com/2025/06/03/world/americas/mexico-election-results.html
 
