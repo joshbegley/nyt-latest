@@ -1,3 +1,11 @@
+**Ten Jets — including two rookies — who stood out at Tuesday's practice: OTA observations**\
+`The latest on Justin Fields, Garett Wilson, Rashad Weaver, Sauce Gardner and more.`\
+https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-reports/
+
+**Willem Dafoe Shines His Spotlight on Theater’s Avant-Garde Past**\
+`The Hollywood actor looks back on the experimental performances that shaped him at the Venice Theater Biennale.`\
+https://nytimes.com/2025/06/03/theater/venice-theater-biennale-willem-dafoe.html
+
 **Jim Marshall, member of 'Purple People Eaters,' dies at 87**\
 `Marshall was a member of the vaunted Purple People Eaters defensive line, which helped Minnesota to four Super Bowl appearances.`\
 https://nytimes.com/athletic/6400697/2025/06/03/jim-marshall-dead-vikings-legend/

@@ -1,3 +1,11 @@
+**Ten Jets — including two rookies — who stood out at Tuesday's practice: OTA observations**\
+`The latest on Justin Fields, Garett Wilson, Rashad Weaver, Sauce Gardner and more.`\
+https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-reports/
+
+**Willem Dafoe Shines His Spotlight on Theater’s Avant-Garde Past**\
+`The Hollywood actor looks back on the experimental performances that shaped him at the Venice Theater Biennale.`\
+https://nytimes.com/2025/06/03/theater/venice-theater-biennale-willem-dafoe.html
+
 **Jim Marshall, member of 'Purple People Eaters,' dies at 87**\
 `Marshall was a member of the vaunted Purple People Eaters defensive line, which helped Minnesota to four Super Bowl appearances.`\
 https://nytimes.com/athletic/6400697/2025/06/03/jim-marshall-dead-vikings-legend/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/arts/design/smithsonian-trump-firing-national-por
 **The Washington Post Plans an Influx of Outside Opinion Writers**\
 `A new program, known internally as Ripple, would open The Post to journalists at other publications and influential writers on Substack.`\
 https://nytimes.com/2025/06/03/business/media/washington-post-opinion-ripple.html
-
-**Until Saturday: A toppled dynasty, in context**\
-`Until Saturday is The Athletic's college football newsletter.`\
-https://nytimes.com/athletic/6400800/2025/06/03/oklahoma-softball-dynasty-history-until-saturday/
-
-**Forest hope Dominguez will recover from knee injury before start of new season**\
-`The injury gas forced Dominguez to withdraw from international duty with Argentina and required treatment.`\
-https://nytimes.com/athletic/6400749/2025/06/03/forest-nicolas-dominguez-injury-update/
 
