@@ -1,3 +1,7 @@
+**Attack Suspect Appeared to Live a Low-Key Life in Colorado Springs**\
+`The suspect came to the U.S. in 2022 and lived with his family in a suburban neighborhood. He was a ride share driver, and his daughter was embraced by her school community.`\
+https://nytimes.com/2025/06/02/us/boulder-colorado-attack-suspect-life.html
+
 **Acting FEMA Chief Told Staff He Didn’t Know About U.S. Hurricane Season**\
 `In a meeting with FEMA staff, David Richardson said he was unaware the United States had a hurricane season. Two staff members said it was unclear if he was serious, but the agency said he was joking.`\
 https://nytimes.com/2025/06/02/us/politics/fema-david-richardson-hurricane-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base
 **Harvard Argues Cutting Off Its Government Funding Is Wasteful**\
 `Harvard officials, in a new court filing on Monday, detailed the extent of cuts that the Trump administration had made to a broad swath of university research projects.`\
 https://nytimes.com/2025/06/02/us/harvard-argues-cutting-off-its-government-funding-is-wasteful.html
-
-**Border Officials Told Not to Attend Events Tied to Diversity in Law Enforcement**\
-`A Trump administration memo issued to border and customs officials in March further curtailed efforts to ensure a more diverse work force.`\
-https://nytimes.com/2025/06/02/us/politics/trump-diversity-border-customs-officials.html
 
