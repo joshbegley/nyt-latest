@@ -1,3 +1,15 @@
+**Lakota Music Project Merges Two Traditions for One Common Cause**\
+`For almost 20 years, the South Dakota Symphony Orchestra has been collaborating with Native artists, aiming to address a history of racial tension.`\
+https://nytimes.com/2025/06/03/arts/music/lakota-music-project-south-dakota-symphony.html
+
+**Gotham Television Awards 2025: The Complete Winners List**\
+`“Adolescence” picked up three wins, including the award for breakthrough limited series.`\
+https://nytimes.com/2025/06/03/arts/television/gotham-television-awards-winners.html
+
+**Where ​South Korea’s Likely New President​ Stands on Trump and North Korea**\
+`Facing a complex set of thorny challenges at home and abroad, Lee Jae-myung says he will deal with them with “pragmatism.”`\
+https://nytimes.com/2025/06/03/world/asia/south-korea-lee-jae-myung-policy.html
+
 **Yankees pitcher Luke Weaver expected to miss 4 to 6 weeks with hamstring injury**\
 `Weaver, 31, suffered the injury over the weekend during the Yankees' three-game series against the Los Angeles Dodgers.`\
 https://nytimes.com/athletic/6399612/2025/06/03/yankees-luke-weaver-injury-pitcher/

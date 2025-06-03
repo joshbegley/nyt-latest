@@ -1,3 +1,15 @@
+**Lakota Music Project Merges Two Traditions for One Common Cause**\
+`For almost 20 years, the South Dakota Symphony Orchestra has been collaborating with Native artists, aiming to address a history of racial tension.`\
+https://nytimes.com/2025/06/03/arts/music/lakota-music-project-south-dakota-symphony.html
+
+**Gotham Television Awards 2025: The Complete Winners List**\
+`“Adolescence” picked up three wins, including the award for breakthrough limited series.`\
+https://nytimes.com/2025/06/03/arts/television/gotham-television-awards-winners.html
+
+**Where ​South Korea’s Likely New President​ Stands on Trump and North Korea**\
+`Facing a complex set of thorny challenges at home and abroad, Lee Jae-myung says he will deal with them with “pragmatism.”`\
+https://nytimes.com/2025/06/03/world/asia/south-korea-lee-jae-myung-policy.html
+
 **Yankees pitcher Luke Weaver expected to miss 4 to 6 weeks with hamstring injury**\
 `Weaver, 31, suffered the injury over the weekend during the Yankees' three-game series against the Los Angeles Dodgers.`\
 https://nytimes.com/athletic/6399612/2025/06/03/yankees-luke-weaver-injury-pitcher/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6399102/2025/06/03/whats-next-for-jazz-after-hiring
 **Jacinda Ardern Thinks World Leaders Need More Kindness**\
 `The former prime minister, who led New Zealand through the pandemic, has published a memoir arguing for more empathy in politics.`\
 https://nytimes.com/2025/06/03/style/jacinda-ardern-book-new-zealand.html
-
-**He Reinvigorated the Met Opera’s Chorus. Next Stop, Chicago.**\
-`The Chicago Symphony Orchestra has hired Donald Palumbo, 76, the former chorus master of the Metropolitan Opera, to lead its chorus.`\
-https://nytimes.com/2025/06/03/arts/music/donald-palumbo-chicago-symphony-choir.html
-
-**Dressed Like Beyoncé to Celebrate a Birthday**\
-`An outfit inspired by the singer’s attire drew compliments on the street.`\
-https://nytimes.com/2025/06/03/style/street-style-look-beyonce-western-outfit.html
-
-**Frank Ragnow gave his all to Lions in career marked by toughness through ups and downs**\
-`The offensive lineman pushed his body until he couldn't anymore.`\
-https://nytimes.com/athletic/6398826/2025/06/03/frank-ragnow-retirement-detroit-lions-injuries/
 
