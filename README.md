@@ -1,3 +1,11 @@
+**Deportation Flights Reach Highest Level Under Trump So Far**\
+`The increasing pace of ICE removal flights suggests deportation numbers could continue to rise.`\
+https://nytimes.com/interactive/2025/06/03/us/trump-deportation-flights-ice-may.html
+
+**From No Hope to a Potential Cure for a Deadly Blood Cancer**\
+`Multiple myeloma is considered incurable, but a third of patients in a Johnson & Johnson clinical trial have lived without detectable cancer for years after facing certain death.`\
+https://nytimes.com/2025/06/03/health/multiple-myeloma-car-t-immunotherapy.html
+
 **Submit your questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
 `<p><em>The Athletic</em>’s prospects writer Scott Wheeler released his final top 100 ranking for the 2025 NHL Draft on Monday.`\
 https://nytimes.com/athletic/6399819/2025/06/03/nhl-draft-2025-scott-wheeler-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/paige-desorbo-how-to-giggle-book
 **For ‘Purpose’ Cast, Navigating Revisions Became a ‘Juggling Act’**\
 `Ahead of the Tony Awards, the playwright Branden Jacobs-Jenkins and the acclaimed ensemble reflected on the challenges of balancing the many script revisions.`\
 https://nytimes.com/2025/06/03/theater/purpose-branden-jacobs-jenkins-broadway.html
-
-**Iga Swiatek and Aryna Sabalenka set up blockbuster French Open semifinal**\
-`The defending French Open champion and the world No. 1 will meet in their first Grand Slam encounter since 2022.`\
-https://nytimes.com/athletic/6399586/2025/06/03/tennis-wta-swiatek-sabalenka-head-to-head/
-
-**Dozens Killed Near Rafah Aid Distribution Site**\
-`This is the second large-scale deadly shooting in three days near the distribution site in the southern city of Rafah, where thousands of Palestinians have tried to secure aid.`\
-https://nytimes.com/video/world/middleeast/100000010204495/dozens-killed-near-rafah-aid-distribution-site.html
 
