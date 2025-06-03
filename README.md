@@ -1,40 +1,40 @@
-**Mets' Paul Blackburn returns looking better than ever in win over Dodgers**\
-`After nine months away from the major leagues, Blackburn allowed just three hits and a walk with three strikeouts in a 4-3 Mets win.`\
-https://nytimes.com/athletic/6399214/2025/06/03/mets-dodgers-paul-blackburn-return/
+**What Are N.Y.C.’s Mayoral Candidates Saying in TV Ads?**\
+`The Times analyzed the messaging in broadcast spots, on which campaigns and outside groups have spent millions, to identify the major themes in the race.`\
+https://nytimes.com/interactive/2025/06/03/nyregion/nyc-mayor-ads-candidates.html
 
-**Far-Right Leader Pulls Out of Dutch Governing Coalition**\
-`Geert Wilders said the decision was made because the four-party coalition had not made progress in cracking down on immigration.`\
-https://nytimes.com/2025/06/03/world/europe/geert-wilders-netherlands-coalition.html
+**Trump’s ‘Nihilistic’ Crusade Against Harvard Is About Much More Than Harvard**\
+`JD Vance wanted to “aggressively attack” American universities. His wish has been the president’s command.`\
+https://nytimes.com/2025/06/03/opinion/harvard-trump-vance.html
 
-**Israeli Soldiers Open Fire Near Gaza Aid Site. Gaza Health Officials Say 27 Are Killed.**\
-`The Israeli military said its troops began shooting after people strayed from a designated route toward a food distribution site. It was the latest deadly incident involving a contentious new aid system.`\
-https://nytimes.com/2025/06/03/world/middleeast/gaza-aid-site-shooting-israel.html
+**Jews Are Afraid Right Now**\
+`In the wake of attacks in Washington and Colorado, antisemitic violence is all too present.`\
+https://nytimes.com/2025/06/03/opinion/antisemitism-jewish-attacks-colorado.html
 
-**Quote of the Day: Economists See Trouble Ahead In G.O.P.’s Bill**\
-`Quotation of the Day for Tuesday, June 3, 2025.`\
-https://nytimes.com/2025/06/03/pageoneplus/quote-of-the-day-economists-see-trouble-ahead-in-gops-bill.html
+**Judges in Deportation Cases Face Evasion and Delay From Trump Administration**\
+`Administration officials have either violated orders or used an array of obfuscations and delays to prevent federal judges from deciding whether violations took place.`\
+https://nytimes.com/2025/06/03/us/politics/judges-trump-deportations-immigration.html
 
-**The removal of a ‘political overhang’ could lead to a market rally, analysts say.**\
-`By Jason Karaian`\
-https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/the-removal-of-a-political-overhang-could-lead-to-a-market-rally-analysts-say
+**Should Republicans Have Won in a Landslide?**\
+`The question of whether Donald Trump cost conservatives a more decisive victory is a useful one to consider.`\
+https://nytimes.com/2025/06/03/upshot/trump-republicans-democrats-election-landslide.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to the first edition of The Athletic's Transfer DealSheet for the summer transfer window`\
-https://nytimes.com/athletic/6390146/2025/06/03/transfer-news-latest-manchester-uniter-arsenal-real-madrid-barcelona-liverpool/
+**Trash Containerization Comes to Harlem**\
+`Several Manhattan neighborhoods now have large curbside bins for residents’ trash. Mayor Eric Adams celebrated the program as a way to keep rats at bay.`\
+https://nytimes.com/2025/06/03/nyregion/trash-containerization-comes-to-harlem.html
 
-**10 Questions With Andrew Cuomo**\
-`Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/03/nyregion/10-questions-with-andrew-cuomo.html
+**A (Partial) Defense of Elon Musk**\
+`His life and conduct is similar in many ways to another complicated figure, Cecil Rhodes.`\
+https://nytimes.com/2025/06/03/opinion/elon-musk-cecil-rhodes.html
 
-**If Andrew Cuomo Has a Regret, It’s Resigning as Governor**\
-`Mr. Cuomo told The New York Times in a wide-ranging interview that none of the sexual harassment allegations against him had merit.`\
-https://nytimes.com/2025/06/03/nyregion/cuomo-resignation-governor.html
+**The U.S. Lit a Beacon for Science. Under Trump, Scientists Fear It’s Dimming**\
+`As the United States cuts budgets and restricts immigration, China and Europe are offering researchers money and stability.`\
+https://nytimes.com/2025/06/03/us/trump-federal-spending-grants-scientists-leaving.html
 
-**Weinstein’s 2nd Sex Crimes Trial in New York Shifts to Closing Arguments**\
-`Facing new charges after an earlier conviction was overturned, the former Hollywood mogul Harvey Weinstein is charged with attacking three women in Manhattan.`\
-https://nytimes.com/2025/06/03/nyregion/weinstein-rape-trial-closing.html
+**Cowboys need more from Tyler Guyton, and he's making significant changes to improve**\
+`A new diet, consistency and stability are among the things helping the second-year tackle out of Oklahoma.`\
+https://nytimes.com/athletic/6398198/2025/06/03/dallas-cowboys-tyler-guyton-otas/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/03/crosswords/spelling-bee-forum.html
+**The Siren Song of Chatbots**\
+`Talking to a chatbot may have some benefits — if it doesn’t lead to a full-blown addiction.`\
+https://nytimes.com/2025/06/03/opinion/chatbots-ai-addiction-love.html
 
