@@ -1,3 +1,7 @@
+**Frank Ragnow gave his all to Lions in career marked by toughness through ups and downs**\
+`The offensive lineman pushed his body until he couldn't anymore.`\
+https://nytimes.com/athletic/6398826/2025/06/03/frank-ragnow-retirement-detroit-lions-injuries/
+
 **Ukraine Says It Struck Crimea Bridge**\
 `It would be the third time Ukraine had struck the bridge. The claim comes two days after one of the country’s most ambitious operations of the war, deep inside Russia.`\
 https://nytimes.com/2025/06/03/world/europe/russia-ukraine-crimea-bridge.html
