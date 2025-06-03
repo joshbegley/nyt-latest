@@ -1,3 +1,7 @@
+**Word of the Day: untenable**\
+`This word has appeared in 290 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/03/learning/word-of-the-day-untenable.html
+
 **South Korea’s Presidential Candidates Leave Young Voters Disenchanted**\
 `Some of the same young people who demonstrated after President Yoon Suk Yeol declared martial law said they were disappointed by their choices in Tuesday’s election.`\
 https://nytimes.com/2025/06/03/world/asia/south-korea-election-young-voters.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-p
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
 
 **Live Updates: South Koreans Vote After Months of Political Chaos**\
-`Young voters and women are unhappy with the two main choices for president to succeed Yoon Suk Yeol, who was removed from office earlier this year for imposing martial law.`\
+`Young voters and women are unhappy with the two main choices for president to succeed Yoon Suk Yeol, who was removed from office for imposing martial law.`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election
 
 **Who owns La Liga's 20 clubs: A Wimbledon semi-finalist, Pep Guardiola's brother and a private detective**\
 `The owner of every La Liga club from 2024-25 explained`\
 https://nytimes.com/athletic/6397667/2025/06/03/la-liga-owners-explained/
-
-**Jack Grealish is at a career crossroads. Which club could reignite his best?**\
-`Just two years after being key to City’s treble-winning season, the winger started just seven Premier League games in 2024-25`\
-https://nytimes.com/athletic/6387506/2025/06/03/what-next-for-jack-grealish/
 

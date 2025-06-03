@@ -1,3 +1,7 @@
+**Live Updates: South Koreans Vote After Months of Political Chaos**\
+`Young voters and women are unhappy with the two main choices for president to succeed Yoon Suk Yeol, who was removed from office earlier this year for imposing martial law.`\
+https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election
+
 **South Korea’s Presidential Candidates Leave Young Voters Disenchanted**\
 `Some of the same young people who demonstrated after President Yoon Suk Yeol declared martial law said they were disappointed by their choices in Tuesday’s election.`\
 https://nytimes.com/2025/06/03/world/asia/south-korea-election-young-voters.html
