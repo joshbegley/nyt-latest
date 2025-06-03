@@ -1,3 +1,7 @@
+**South Koreans Elect a New Leader on Tuesday. Here’s What to Know.**\
+`The new president will be tasked with pulling the nation out of political turmoil and face a polarized country and world.`\
+https://nytimes.com/2025/06/02/world/asia/south-korea-election-what-to-know.html
+
 **Shigeo Nagashima, ‘Mr. Baseball’ of Postwar Japan, Dies at 89**\
 `A key member of the Tokyo Yomiuri Giants of the 1960s and ’70s, Japan’s most enduring sports dynasty, Nagashima was a star from his first season.`\
 https://nytimes.com/2025/06/02/obituaries/shigeo-nagashima-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/02/us/politics/fema-david-richardson-hurricane-seaso
 **Ukraine Hid Attack Drones in Russia. These Videos Show What Happened Next.**\
 `Videos and satellite imagery show how the attack unfolded and its aftermath.`\
 https://nytimes.com/interactive/2025/06/02/world/europe/ukraine-russia-drone-attacks.html
-
-**Day 2: How Rules Can Spark the Imagination**\
-`Today, let’s write a little poetry.`\
-https://nytimes.com/interactive/2025/well/creativity-poetry-writing-prompt.html
 
