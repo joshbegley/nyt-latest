@@ -1,3 +1,8 @@
+**Watch: With the NBA Finals set to tip, can the Pacers upset the favored Thunder?**\
+`"The Athletic NBA Daily" previewed the NBA Finals matchup between the Oklahoma City Thunder and the Indiana Pacers.
+`\
+https://nytimes.com/athletic/6397481/2025/06/02/finals-pacers-thunder-nba-daily/
+
 **Full Time: FAQs about the Spirit’s coaching shuffle**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6398997/2025/06/02/jonatan-giraldez-spirit-lyonnes-full-time/
