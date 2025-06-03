@@ -1,3 +1,19 @@
+**The U.S. Proposed New Terms in Nuclear Talks With Iran**\
+`Also, a study revealed a potential cure for a deadly blood cancer. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/06/03/briefing/us-nuclear-talks-iran-russia-ukraine-war.html
+
+**Diamondbacks place Corbin Burnes on 15-day IL, await further medical tests**\
+`The 30-year-old righty will consult with noted surgeon Neal ElAttrache in Los Angeles on Thursday.`\
+https://nytimes.com/athletic/6400917/2025/06/03/corbin-burnes-arizona-diamondbacks-elbow-injury/
+
+**Capital One to Curb Lounge Access for Some Cardholders**\
+`The bank is the latest airport lounge operator to erode perks that were once a given. Guests and additional card users will no longer routinely get in for free.`\
+https://nytimes.com/2025/06/03/travel/capital-one-airport-lounges.html
+
+**Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
+`Coach Paul Maurice calls Bennett “built for the playoffs.” It will mean a big payday as a free agent this offseason.`\
+https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
+
 **Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
 `Coach Paul Maurice calls Bennett “built for the playoffs.” It will have mean a big payday as a free agent this offseason.`\
 https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/

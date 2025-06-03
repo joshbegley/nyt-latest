@@ -1,3 +1,7 @@
+**Watch: Shai Gilgeous-Alexander has been NBA MVP-worthy, but his goals aren't complete**\
+`"The Athletic NBA Daily" discussed Gilgeous-Alexander, who is having one of the best individual NBA seasons ever.`\
+https://nytimes.com/athletic/6399694/2025/06/03/shai-gilgeous-alexander-thunder-nba-daily/
+
 **The U.S. Proposed New Terms in Nuclear Talks With Iran**\
 `Also, a study revealed a potential cure for a deadly blood cancer. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/06/03/briefing/us-nuclear-talks-iran-russia-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/transgender-inmates-hormone-treatment
 **Jonathan David on his summer transfer: ‘I want a club with ambition’**\
 `Canada's star striker is out of contract after five seasons in France at Ligue 1 club Lille and will be on the move.`\
 https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition/
-
-**We Are Being Governed by the Trump Organization Inc.**\
-`Trump is governing by unchecked gut impulses, with little or no homework or coordination among agencies. The results could be disastrous.`\
-https://nytimes.com/2025/06/03/opinion/trump-president-governing-ruler.html
 
