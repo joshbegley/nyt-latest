@@ -1,3 +1,11 @@
+**Braves replace third-base coach with former manager Fredi González after multiple bad sends**\
+`"We need to look for every area that we can get better," Braves president of baseball operations Alex Anthopoulos said.`\
+https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base-coach-matt-tuiasosopo/
+
+**Harvard Argues Cutting Off Its Government Funding Is Wasteful**\
+`Harvard officials, in a new court filing on Monday, detailed the extent of cuts that the Trump administration had made to a broad swath of university research projects.`\
+https://nytimes.com/2025/06/02/us/harvard-argues-cutting-off-its-government-funding-is-wasteful.html
+
 **Border Officials Told Not to Attend Events Tied to Diversity in Law Enforcement**\
 `A Trump administration memo issued to border and customs officials in March further curtailed efforts to ensure a more diverse work force.`\
 https://nytimes.com/2025/06/02/us/politics/trump-diversity-border-customs-officials.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/02/us/stabbing-oregon-homeless-shelter.html
 **Trump Talks a Lot About Antisemitism, With a Notable Caveat**\
 `The president made no reference to Jews after the Colorado attack.`\
 https://nytimes.com/2025/06/02/us/politics/trump-jews-antisemitism-colorado-attack.html
-
-**Preakness winner Journalism is early favorite to win Belmont Stakes**\
-`Kentucky Derby-winner Sovereignty is just behind Journalism with 2-1 odds, and will start from the No. 2 position.`\
-https://nytimes.com/athletic/6398541/2025/06/02/belmont-stakes-post-position-odds-journalism-sovereignty/
-
-**F.T.C. Investigates Ad Groups and Watchdogs, Alleging Boycott Collusion**\
-`The regulator is looking into whether roughly a dozen groups violated antitrust law by coordinating boycotts among advertisers.`\
-https://nytimes.com/2025/06/02/technology/ftc-investigation-advertising-boycotts.html
 

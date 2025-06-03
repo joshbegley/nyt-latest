@@ -1,3 +1,11 @@
+**Braves replace third-base coach with former manager Fredi González after multiple bad sends**\
+`"We need to look for every area that we can get better," Braves president of baseball operations Alex Anthopoulos said.`\
+https://nytimes.com/athletic/6398756/2025/06/02/braves-fredi-gonzalez-third-base-coach-matt-tuiasosopo/
+
+**Harvard Argues Cutting Off Its Government Funding Is Wasteful**\
+`Harvard officials, in a new court filing on Monday, detailed the extent of cuts that the Trump administration had made to a broad swath of university research projects.`\
+https://nytimes.com/2025/06/02/us/harvard-argues-cutting-off-its-government-funding-is-wasteful.html
+
 **Border Officials Told Not to Attend Events Tied to Diversity in Law Enforcement**\
 `A Trump administration memo issued to border and customs officials in March further curtailed efforts to ensure a more diverse work force.`\
 https://nytimes.com/2025/06/02/us/politics/trump-diversity-border-customs-officials.html
