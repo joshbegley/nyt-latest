@@ -1,3 +1,15 @@
+**Police Hunt for Father After 3 Missing Girls Are Found Dead in Washington State**\
+`The bodies of the girls, ages 5, 8 and 9, were found at a campground in Chelan County on Monday. Their father is being sought on murder and kidnapping charges.`\
+https://nytimes.com/2025/06/03/us/three-missing-girls-wenatchee-murder-father.html
+
+**Trump’s Pick to Run the Forest Service Has a History With the Agency**\
+`Michael Boren, a tech company founder, has clashed with the agency for years over land he owns in Idaho.`\
+https://nytimes.com/2025/06/03/climate/michael-boren-forest-service-nomination.html
+
+**Trump Administration Backs Off Effort to Collect Data on Food Stamp Recipients**\
+`In response to a federal lawsuit, the Agriculture Department said it would refrain, for now, from demanding that states turn over the personal information of people receiving assistance.`\
+https://nytimes.com/2025/06/03/us/politics/trump-administration-personal-data-food-stamp-recipients.html
+
 **How to Be More Productive**\
 `Evidence-based strategies to bring out your best working self.`\
 https://nytimes.com/live/2025/06/03/admin/do-not-use
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
 **Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
 `The tech executive criticized the president’s legislation in a series of posts on Tuesday, signaling a widening rift with Republicans.`\
 https://nytimes.com/2025/06/03/technology/elon-musk-criticizes-republican-legislation.html
-
-**California could be sued over participation of trans athletes, DOJ says**\
-`On Saturday, AB Hernandez, a trans girl competing for Jurupa Valley High School, won state titles in the high jump and triple jump.`\
-https://nytimes.com/athletic/6400556/2025/06/03/california-trans-athletes-trump-lawsuit/
-
-**TikTok Bans #SkinnyTok After European Regulators Raise Concerns**\
-`Officials in Europe worried that the app was glamorizing eating disorders. The ban is TikTok’s latest effort to counter criticism about its effect on teen mental health.`\
-https://nytimes.com/2025/06/03/business/tiktok-skinnytok-ban.html
-
-**Smoke From Canadian Wildfires Blankets the Upper Midwest**\
-`Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
-https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
 
