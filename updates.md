@@ -1,3 +1,7 @@
+**Trump attacks Rand Paul, working to rally G.O.P. support for his policy bill.**\
+`The president h`\
+https://nytimes.com/live/2025/06/03/us/trump-news/trump-rand-paul-republicans-policy-bill
+
 **A Beloved Immigrant’s Arrest in a Pro-Trump Town**\
 `Responses to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe; slashing research.`\
 https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html

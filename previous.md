@@ -1,3 +1,7 @@
+**Trump attacks Rand Paul, working to rally G.O.P. support for his policy bill.**\
+`The president h`\
+https://nytimes.com/live/2025/06/03/us/trump-news/trump-rand-paul-republicans-policy-bill
+
 **Wake Forest baseball coach Tom Walter apologizes for use of homophobic slur**\
 `Tom Walter was caught saying the word during an ESPN broadcast of the Demon Deacons' loss to Tennessee on Monday.`\
 https://nytimes.com/athletic/6400206/2025/06/03/wake-forest-baseball-coach-tom-walter-apologizes-for-using-homophobic-slur/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399480/2025/06/03/caoimhin-kelleher-brentford-tran
 **Gabby Thomas calls out bettor for following, heckling her at Philly meet**\
 `"This grown man followed me around the track as I took pictures and signed autographs for fans," Thomas said on X about the incident.`\
 https://nytimes.com/athletic/6399678/2025/06/03/gabby-thomas-bettor-heckling-track/
-
-**In their French Open quarterfinal, Coco Gauff and Madison Keys won't forget to breathe**\
-`Gauff's superpower is her fitness. Keys' superpower is her calm. Both back their lungs to take them into the Roland Garros semifinals.`\
-https://nytimes.com/athletic/6399712/2025/06/03/coco-gauff-madison-keys-french-open-tennis-quarterfinal/
 
