@@ -1,3 +1,11 @@
+**French Open recap: Lorenzo Musetti avoids default after kicking ball into linesperson**\
+`The Italian went on to win his Roland Garros quarterfinal against Frances Tiafoe, but could have been ejected from the match.`\
+https://nytimes.com/athletic/6400324/2025/06/03/french-open-recap-lorenzo-musetti-avoids-default-after-kicking-ball-into-linesperson/
+
+**Judge Blocks Trump Effort to End Treatment for Transgender Inmates**\
+`The Bureau of Prisons must provide hormone treatment for inmates with gender dysphoria while a lawsuit proceeds, despite an executive order to the contrary, a federal judge ordered.`\
+https://nytimes.com/2025/06/03/us/politics/judge-blocks-trump-effort-to-end-treatment-for-transgender-inmates.html
+
 **Jonathan David on his summer transfer: I want a club with ambition**\
 `Canada's star striker is out of contract after five seasons at French Ligue 1 club Lille and will be on the move.`\
 https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/texas-legislature-conservatives.html
 **Severe Storms Bring Flooding and Tornado Risks to Kansas and Missouri**\
 `Some two million people were under a flash flood warning in the two states as several inches of rain fell, trapping some in their cars.`\
 https://nytimes.com/2025/06/03/weather/flood-wichita-kansas-missouri-rain-storms.html
-
-**‘Mr. Loverman’ Is a Rich, Stylish and Riveting Mini-Series**\
-`The British series, which earned multiple BAFTA awards, offers a sublime and moving exploration of love and loyalty.`\
-https://nytimes.com/2025/06/03/arts/television/mr-loverman-britbox.html
-
-**Ten Jets — including two rookies — who stood out at Tuesday's practice: OTA observations**\
-`The latest on Justin Fields, Garett Wilson, Rashad Weaver, Sauce Gardner and more.`\
-https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-reports/
 
