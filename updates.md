@@ -1,3 +1,19 @@
+**Connor McDavid looks to join Wayne Gretzky, Sidney Crosby and others as 'revenge' Cup winners**\
+`McDavid is known to have a "singular focus" on winning a championship — and he will have to get past the Florida Panthers this time.`\
+https://nytimes.com/athletic/6401217/2025/06/03/mcdavid-stanley-cup-rematch-oilers/
+
+**After Muscling Their Bill Through the House, Some Republicans Have Regrets**\
+`The sprawling legislation carrying President Trump’s domestic agenda squeaked through the House with one vote to spare, but some Republicans now say they didn’t realize what they voted for.`\
+https://nytimes.com/2025/06/03/us/politics/house-republicans-policy-bill-regrets.html
+
+**In N.Y.C. Mayor’s Race, Mamdani Responds to a Call for His Deportation**\
+`Vickie Paladino, a councilwoman from Queens, called Zohran Mamdani a “radical leftist” who hates America, and warned against “future Zohrans.”`\
+https://nytimes.com/2025/06/03/nyregion/mamdani-deport-paladino.html
+
+**Clever Cockatoos Have Figured Out How to Drink From Water Fountains**\
+`They had also learned how to flip open garbage lids in the suburbs of Sydney, Australia. Scientists wonder what they’ll work out next.`\
+https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australia.html
+
 **Justice Dept. Drops Biden-Era Push to Obtain Peter Navarro’s Emails**\
 `The department’s move is one of many recent actions taken to dismiss criminal and civil actions against Trump allies such as Mr. Navarro, the president’s trade adviser.`\
 https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html

@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6401111/2025/06/03/ravens-deandre-hopkins-organized
 https://nytimes.com/athletic/6401226/2025/06/03/red-sox-triston-casas-knee-surgery-recovery/
 
 **Trump Rescinds Biden Policy Requiring Hospitals to Provide Emergency Abortions**\
-`At issue is a how to interpret a federal law barring hospitals from turning away poor or uninsured patients.`\
+`At issue is how to interpret a federal law barring hospitals from turning away poor or uninsured patients.`\
 https://nytimes.com/2025/06/03/us/politics/trump-emergency-abortion-rule.html
 
