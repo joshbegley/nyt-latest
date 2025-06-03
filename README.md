@@ -1,3 +1,7 @@
+**England's Kirby retires from international football before Euro 2025**\
+`The 31-year-old leaves the international stage after winning 77 caps.`\
+https://nytimes.com/athletic/6400821/2025/06/03/england-fran-kirby-retires-euro-2025/
+
 **Taylor Swift Never Rerecorded ‘Reputation.’ Thank God.**\
 `After buying back her master recordings, the superstar says she has no plans to finish remaking her sixth album — her most inventive, shocking and risky yet.`\
 https://nytimes.com/2025/06/03/arts/music/taylor-swift-reputation-rerecordings-masters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400749/2025/06/03/forest-nicolas-dominguez-injury-
 **ICE Detains Family of Suspect in Colorado Attack**\
 `Homeland Security Secretary Kristi Noem said the agency would be investigating whether Mohamed Sabry Soliman’s family had information about his plans.`\
 https://nytimes.com/2025/06/03/us/politics/ice-colorado-suspect.html
-
-**Pina brace sees Spain Women beat England 2-1 in Nations League group stage**\
-`Sarina Wiegman's England side will now turn their focus to Euro 2025, which kicks off in Switzerland on July 2.`\
-https://nytimes.com/athletic/6400684/2025/06/03/england-women-spain-nations-league/
 
