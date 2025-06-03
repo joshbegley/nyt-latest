@@ -1,3 +1,15 @@
+**Jacinda Ardern Thinks World Leaders Need More Kindness**\
+`The former prime minister, who led New Zealand through the pandemic, has published a memoir arguing for more empathy in politics.`\
+https://nytimes.com/2025/06/03/style/jacinda-ardern-book-new-zealand.html
+
+**He Reinvigorated the Met Opera’s Chorus. Next Stop, Chicago.**\
+`The Chicago Symphony Orchestra has hired Donald Palumbo, 76, the former chorus master of the Metropolitan Opera, to lead its chorus.`\
+https://nytimes.com/2025/06/03/arts/music/donald-palumbo-chicago-symphony-choir.html
+
+**Dressed Like Beyoncé to Celebrate a Birthday**\
+`An outfit inspired by the singer’s attire drew compliments on the street.`\
+https://nytimes.com/2025/06/03/style/street-style-look-beyonce-western-outfit.html
+
 **Frank Ragnow gave his all to Lions in career marked by toughness through ups and downs**\
 `The offensive lineman pushed his body until he couldn't anymore.`\
 https://nytimes.com/athletic/6398826/2025/06/03/frank-ragnow-retirement-detroit-lions-injuries/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6394615/2025/06/03/ottawa-senators-stanley-cup-less
 **Should the Leafs re-sign John Tavares? It's not as clear-cut as it seems**\
 `With GM Brad Treliving promising change this offseason, the Leafs need to look at their former captain with an objective eye.`\
 https://nytimes.com/athletic/6394953/2025/06/03/maple-leafs-john-tavares-contract-debate-treliving/
-
-**Trump Administration Live Updates: Judges in Deportation Cases Face Evasion and Delay by Officials**\
-``\
-https://nytimes.com/live/2025/06/03/us/trump-news
-
-**Sean Combs’s Trial Will Focus Next on 2016 Hotel Assault Footage**\
-`The music mogul has been accused of using a brown bag filled with $100,000 cash to buy hotel security video of him beating up Casandra Ventura.`\
-https://nytimes.com/2025/06/03/arts/music/sean-combs-diddy-trial-cassie-hotel.html
-
-**Do the Knicks have a Mikal Bridges dilemma this offseason?**\
-`Bridges is eligible for an extension this summer. Will the Knicks give it to him? Does he want to be in New York?`\
-https://nytimes.com/athletic/6397296/2025/06/03/knicks-mikal-bridges-future-nba/
 

@@ -1,3 +1,15 @@
+**Jacinda Ardern Thinks World Leaders Need More Kindness**\
+`The former prime minister, who led New Zealand through the pandemic, has published a memoir arguing for more empathy in politics.`\
+https://nytimes.com/2025/06/03/style/jacinda-ardern-book-new-zealand.html
+
+**He Reinvigorated the Met Opera’s Chorus. Next Stop, Chicago.**\
+`The Chicago Symphony Orchestra has hired Donald Palumbo, 76, the former chorus master of the Metropolitan Opera, to lead its chorus.`\
+https://nytimes.com/2025/06/03/arts/music/donald-palumbo-chicago-symphony-choir.html
+
+**Dressed Like Beyoncé to Celebrate a Birthday**\
+`An outfit inspired by the singer’s attire drew compliments on the street.`\
+https://nytimes.com/2025/06/03/style/street-style-look-beyonce-western-outfit.html
+
 **Frank Ragnow gave his all to Lions in career marked by toughness through ups and downs**\
 `The offensive lineman pushed his body until he couldn't anymore.`\
 https://nytimes.com/athletic/6398826/2025/06/03/frank-ragnow-retirement-detroit-lions-injuries/
