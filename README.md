@@ -1,3 +1,7 @@
+**Crystal Palace Transfer DealSheet: Summer window latest, key targets and likely exits**\
+`There is uncertainty around who will make the key decisions after Freedman's exit, but the club are in a strong position in terms of PSR.`\
+https://nytimes.com/athletic/6387657/2025/06/03/crystal-palace-transfer-window-preview/
+
 **Here are the latest developments.**\
 `By Choe Sang-Hun and Jin Yu Young`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397552/2025/06/03/the-summer-2025-transfer-window-
 **How each of the 32 teams qualified for the 2025 Club World Cup**\
 `What was the criteria for qualifying? And why are amateurs playing against the world's elite?`\
 https://nytimes.com/athletic/6375108/2025/06/03/how-each-of-the-32-teams-qualified-for-the-2025-club-world-cup/
-
-**Giro d'Italia key takeaways: Yates' patience, the beauty of gravel, and did UAE throw away the race?**\
-`The Athletic's writers discuss the winners and losers from the first Grand Tour of the cycling season `\
-https://nytimes.com/athletic/6397427/2025/06/03/giro-ditalia-2025-key-takeaways/
 
