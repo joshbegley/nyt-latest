@@ -1,3 +1,15 @@
+**Justice Dept. Drops Biden-Era Push to Obtain Peter Navarro’s Emails**\
+`The department’s move is one of many recent actions taken to dismiss criminal and civil actions against Trump allies such as Mr. Navarro, the president’s trade adviser.`\
+https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html
+
+**Why Packers RT Zach Tom is practicing without a contract extension**\
+`Tom is one of the league's best right tackles and the 26-year-old will soon be paid like it.`\
+https://nytimes.com/athletic/6401174/2025/06/03/packers-zach-tom-otas-contract/
+
+**Clever Cockatoos Have Figured Out How to Drink From Water Fountains**\
+`Who needs an opposable thumb?`\
+https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australia.html
+
 **Is Trump Unveiling a Crypto Wallet? His Associates Say Yes. His Sons Say No.**\
 `The back-and-forth over a potential Trump cryptocurrency wallet on Tuesday exposed rifts among the family’s web of digital currency ventures.`\
 https://nytimes.com/2025/06/03/technology/trump-crypto-wallet-sons-rift.html

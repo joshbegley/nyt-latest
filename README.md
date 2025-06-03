@@ -1,3 +1,11 @@
+**After Muscling Their Bill Through the House, Some Republicans Have Regrets**\
+`The sprawling legislation carrying President Trump’s domestic agenda squeaked through the House with one vote to spare, but some Republicans now say they didn’t realize what they voted for.`\
+https://nytimes.com/2025/06/03/us/politics/house-republicans-policy-bill-regrets.html
+
+**In N.Y.C. Mayor’s Race, Mamdani Responds to a Call for His Deportation**\
+`Vickie Paladino, a councilwoman from Queens, called Zohran Mamdani a “radical leftist” who hates America, and warned against “future Zohrans.”`\
+https://nytimes.com/2025/06/03/nyregion/mamdani-deport-paladino.html
+
 **Justice Dept. Drops Biden-Era Push to Obtain Peter Navarro’s Emails**\
 `The department’s move is one of many recent actions taken to dismiss criminal and civil actions against Trump allies such as Mr. Navarro, the president’s trade adviser.`\
 https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html
 https://nytimes.com/athletic/6401174/2025/06/03/packers-zach-tom-otas-contract/
 
 **Clever Cockatoos Have Figured Out How to Drink From Water Fountains**\
-`Who needs an opposable thumb?`\
+`They had also learned how to flip open garbage lids in the suburbs of Sydney, Australia. Scientists wonder what they’ll work out next.`\
 https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australia.html
 
 **Is Trump Unveiling a Crypto Wallet? His Associates Say Yes. His Sons Say No.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/trump-emergency-abortion-rule.html
 **An Immigrant Was Accused of Threatening Trump. Prosecutors Say He Was Framed.**\
 `Kristi Noem said a Mexican immigrant wrote a letter saying that he wanted to assassinate the president. Another man has now been charged with setting him up.`\
 https://nytimes.com/2025/06/03/us/immigrant-milwaukee-threat.html
-
-**Fed Removes Shackle Imposed on Wells Fargo After Series of Scandals**\
-`For seven years, the bank was forbidden to grow as punishment for misconduct including creating fraudulent bank accounts and mistakenly seizing homes.`\
-https://nytimes.com/2025/06/03/business/wells-fargo-asset-cap-federal-reserve.html
-
-**Tom Girardi, Former High-Profile Lawyer, Gets 7 Years in Prison for Embezzlement**\
-`Known for winning a record settlement for the environmental activist Erin Brockovich, he was found guilty last year of embezzling millions of dollars of his clients’ settlement money.`\
-https://nytimes.com/2025/06/03/us/tom-girardi-sentence-fraud-real-housewives.html
 
