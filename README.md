@@ -1,3 +1,11 @@
+**Smoke From Canadian Wildfires Blankets the Upper Midwest**\
+`Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
+https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
+
+**U.S. Charges 2 Chinese Students With Smuggling Fungus**\
+`An arrest by the F.B.I. comes as the Trump administration has promised to crack down on Chinese academics.`\
+https://nytimes.com/2025/06/03/us/politics/chinese-students-fungus.html
+
 **Pochettino likens Pulisic to USA's Messi, addresses stars passing on Gold Cup**\
 `The USMNT manager joined the two program legends for a podcast interview and discussed his star player's absence for the upcoming Gold Cup.`\
 https://nytimes.com/athletic/6398866/2025/06/03/mauricio-pochettino-podcast-landon-donovan-tim-howard-usmnt-pulisic/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/arts/music/kennedy-center-ticket-sales-subscripti
 **Jonathan Morgan exhibited 'bullying behaviour', called Maddy Cusack a 'psycho', hearing told**\
 `A preliminary hearing on Tuesday heard evidence relating to the circumstances that preceded Cusack's death in September 2023.`\
 https://nytimes.com/athletic/6400161/2025/06/03/maddy-cusack-death-jonathan-morgan/
-
-**West Ham complete £32.8m signing of Todibo from Nice**\
-`The 25-year-old defender initially joined in August on a season-long loan with an obligation to buy.`\
-https://nytimes.com/athletic/6400369/2025/06/03/west-ham-transfer-todibo-complete/
-
-**What we're hearing about Adam Foote's coaching staff, and more Canucks notes**\
-`Foote has been steadily pecking away at filling out his coaching staff over the past few weeks.`\
-https://nytimes.com/athletic/6400163/2025/06/03/canucks-adam-foote-kevin-dean/
 

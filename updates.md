@@ -1,3 +1,23 @@
+**Pochettino likens Pulisic to USA's Messi, addresses stars passing on Gold Cup**\
+`The USMNT manager joined the two program legends for a podcast interview and discussed his star player's absence for the upcoming Gold Cup.`\
+https://nytimes.com/athletic/6398866/2025/06/03/mauricio-pochettino-podcast-landon-donovan-tim-howard-usmnt-pulisic/
+
+**Brighton coach Stern joins Marco Knoop in leaving club**\
+`Stern joins coach Marco Knoop in leaving head coach Fabian Hurzeler's backroom team this summer.`\
+https://nytimes.com/athletic/6400529/2025/06/03/brighton-jack-stern-coach-leaving/
+
+**Fernandes on rejecting Al Hilal to stay at Man Utd: 'I want to stay at the highest level'**\
+`The 30-year-old was the subject of a lucrative approach from Saudi Pro League side.`\
+https://nytimes.com/athletic/6342199/2025/06/03/manchester-united-bruno-fernandes-al-hilal/
+
+**The No. 1 Hit That’s Driving Us Nuts**\
+`Alex Warren’s ubiquitous chart-topper “Ordinary” makes our critic Jon Caramanica crazy. He explains why in his latest car-stereo review.`\
+https://nytimes.com/video/podcasts/100000010203305/the-no-1-hit-thats-driving-us-nuts.html
+
+**South Korea’s New Leader Faces Tough Tests Right From the Start**\
+`Lee Jae-myung will be one of the most powerful presidents in decades in South Korea, but the country faces deep divisions, along with challenges from the Trump administration.`\
+https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
+
 **South Korea’s New Leader Faces Tough Tests Right From the Start**\
 `Lee Jae-myung says he will tackle the problems facing the polarized nation, including its relationship with President Trump, with grit and “pragmatism.”`\
 https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
