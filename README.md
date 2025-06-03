@@ -1,10 +1,18 @@
+**Nottm Forest reach verbal agreement to sign Botafogo trio**\
+`Forest are looking to add to their squad after qualifying for the Conference League next season.`\
+https://nytimes.com/athletic/6400433/2025/06/03/nottingham-forest-transfers-botafogo/
+
+**After Trump Takeover, Kennedy Center Ticket Sales Fall Sharply**\
+`The Kennedy Center disputed the relevance of the data, part of an analysis by employees, saying that it had started its annual subscription campaign later than usual.`\
+https://nytimes.com/2025/06/03/arts/music/kennedy-center-ticket-sales-subscriptions.html
+
 **Jonathan Morgan exhibited 'bullying behaviour', called Maddy Cusack a 'psycho', hearing told**\
 `A preliminary hearing on Tuesday heard evidence relating to the circumstances that preceded Cusack's death in September 2023.`\
 https://nytimes.com/athletic/6400161/2025/06/03/maddy-cusack-death-jonathan-morgan/
 
-**West Ham complete the £32.8m signing of Todibo from Nice**\
+**West Ham complete £32.8m signing of Todibo from Nice**\
 `The 25-year-old defender initially joined in August on a season-long loan with an obligation to buy.`\
-https://nytimes.com/athletic/6400369/2025/06/03/west-ham-united-complete-the-32-8m-signing-of-jean-clair-todibo-from-nice/
+https://nytimes.com/athletic/6400369/2025/06/03/west-ham-transfer-todibo-complete/
 
 **What we're hearing about Adam Foote's coaching staff, and more Canucks notes**\
 `Foote has been steadily pecking away at filling out his coaching staff over the past few weeks.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/iran-nuclear-deal-proposal.html
 **Trump Attacks Rand Paul, Working to Rally G.O.P. Support for Policy Bill**\
 `The president has been pressing Republicans in the Senate to move quickly to embrace sprawling legislation that carries his domestic agenda, including by savaging opponents online.`\
 https://nytimes.com/2025/06/03/us/politics/trump-rand-paul-republicans-policy-bill.html
-
-**Wake Forest baseball coach Tom Walter apologizes for use of homophobic slur**\
-`Tom Walter was caught saying the word during an ESPN broadcast of the Demon Deacons' loss to Tennessee on Monday.`\
-https://nytimes.com/athletic/6400206/2025/06/03/wake-forest-baseball-coach-tom-walter-apologizes-for-using-homophobic-slur/
-
-**What the N.Y.C. Mayoral Candidates Hope to Achieve on the Debate Stage**\
-`Plus: Cynthia Nixon’s advice for debating Andrew Cuomo and Ilana Glazer’s ranked-choice ballot.`\
-https://nytimes.com/2025/06/03/nyregion/nyc-mayor-race-debate.html
 
