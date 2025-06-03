@@ -1,3 +1,8 @@
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **What Secrets Lie in a Particle’s Wobble? Physicists Still Can’t Say.**\
 `The deviant behavior of a tiny particle called the muon might point to undiscovered forms of matter and energy in the universe. Or it might not.`\
 https://nytimes.com/2025/06/03/science/physics-muons-fermilab.html

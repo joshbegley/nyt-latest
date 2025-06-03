@@ -1,3 +1,7 @@
+**They tried to make him go to Riyadh... Here's why Bruno saying no to Saudi offer should be celebrated**\
+`The United captain's rejection of Al Hilal should please all Premier League fans`\
+https://nytimes.com/athletic/6399684/2025/06/03/bruno-fernandes-rejected-al-hilal-why-it-should-be-celebrated/
+
 **PWHL releases expansion draft protected list: Hilary Knight, Sarah Nurse go unprotected**\
 `The list of players protected in the PWHL’s expansion draft for Seattle and Vancouver was released on Tuesday.`\
 https://nytimes.com/athletic/6397434/2025/06/03/pwhl-expansion-draft-protected-list-players-hockey/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/03/well/eat/yuka-nutrition-app-maha-benefits.html
 **The Perks of Being Harvey Weinstein’s Publicist**\
 `Juda Engelmayer took a job that leading crisis communications pros didn’t want. Now he’s the pied piper of pariahs.`\
 https://nytimes.com/2025/06/03/style/harvey-weinstein-pr-juda-engelmayer.html
-
-**Deportation flights accelerate, reaching a high under Trump.**\
-`(No description)`\
-https://nytimes.com/2025/06/03/us/politics/deportation-flights-accelerate-reaching-a-high-under-trump.html
 
