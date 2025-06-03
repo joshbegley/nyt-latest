@@ -1,3 +1,11 @@
+**Inzaghi to leave Inter, expected to move to Al Hilal**\
+`Inzaghi, 49, has won everything domestically during his four years at Inter, winning the Serie A title in 2023-24.`\
+https://nytimes.com/athletic/6397239/2025/06/03/simone-inzaghi-inter-leaves/
+
+**As Trump Says He’s Stamping Out Antisemitism, He Advances Similar Tropes**\
+`President Trump’s effort to punish Harvard over antisemitism is complicated by his own extensive history of amplifying white supremacist figures and symbols.`\
+https://nytimes.com/2025/06/03/us/politics/trump-antisemitism.html
+
 **‘Respect the Rotisserie Chicken’**\
 `Readers share their cost-cutting shopping and cooking tips; I share five budget-friendly recipes to put on repeat.`\
 https://nytimes.com/2025/06/03/dining/cost-cutting-grocery-shopping-tips-and-recipes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/business/elon-musk-trump-tesla-protests.html
 **gws-jeremy-renner-near-death-experiences-science**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/gws-jeremy-renner-near-death-experiences-science
-
-**Deportation Flights Reach Highest Level Under Trump So Far**\
-`The increasing pace of ICE removal flights suggests deportation numbers could continue to rise.`\
-https://nytimes.com/interactive/2025/06/03/us/trump-deportation-flights-ice-may.html
-
-**From No Hope to a Potential Cure for a Deadly Blood Cancer**\
-`Multiple myeloma is considered incurable, but a third of patients in a Johnson & Johnson clinical trial have lived without detectable cancer for years after facing certain death.`\
-https://nytimes.com/2025/06/03/health/multiple-myeloma-car-t-immunotherapy.html
 
