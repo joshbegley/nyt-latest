@@ -1,3 +1,7 @@
+**American Antisemitism**\
+`We explore a resurgence of violence against Jews in the U.S.`\
+https://nytimes.com/2025/06/03/briefing/antisemitism-colorado.html
+
 **Late Night Mines Laughs From Trump’s Outlandish Biden Replacement Theory**\
 `“You’re saying that the Joe Biden who doesn’t even know where he is, is actually an incredibly advanced cloned robot? How much ketamine are you on?” Jon Stewart asked.`\
 https://nytimes.com/2025/06/03/arts/television/late-night-trump-biden-robot-conspiracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397608/2025/06/03/marcus-freeman-notre-dame-film-h
 **Jalen Ramsey and the current state of the Vikings at cornerback**\
 `Could the Vikings be interested in a veteran CB like Ramsey? Or will they let it ride with Byron Murphy Jr., Isaiah Rodgers and others?`\
 https://nytimes.com/athletic/6398500/2025/06/03/vikings-cornerback-jalen-ramsey/
-
-**Alex Anthopoulos on Braves' slow start, AJ Smith-Shawver controversy, RISP woes**\
-`The Braves' top executive said: "If we can be aggressive, whether it's making changes, making trades, we're gonna do that."`\
-https://nytimes.com/athletic/6398893/2025/06/03/braves-alex-anthopoulos-smith-shawver/
 
