@@ -1,3 +1,8 @@
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **Westmoreland Serves an All-Day Menu in the Revamped Frick Collection**\
 `A King partner opens a wine bar, Lobel’s now has a restaurant and more news.`\
 https://nytimes.com/2025/06/03/dining/nyc-restaurant-news.html
