@@ -1,3 +1,11 @@
+**Severe Storms Bring Flooding and Tornado Risks to Kansas and Missouri**\
+`Some two million people were under a flash flood warning in the two states as several inches of rain fell, trapping some in their cars.`\
+https://nytimes.com/2025/06/03/weather/flood-wichita-kansas-missouri-rain-storms.html
+
+**‘Mr. Loverman’ Is a Rich, Stylish and Riveting Mini-Series**\
+`The British series, which earned multiple BAFTA awards, offers a sublime and moving exploration of love and loyalty.`\
+https://nytimes.com/2025/06/03/arts/television/mr-loverman-britbox.html
+
 **Ten Jets — including two rookies — who stood out at Tuesday's practice: OTA observations**\
 `The latest on Justin Fields, Garett Wilson, Rashad Weaver, Sauce Gardner and more.`\
 https://nytimes.com/athletic/6400731/2025/06/03/new-york-jets-rookie-practice-reports/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6400751/2025/06/03/carlos-alcaraz-french-open-tommy
 **Troop Casualties in Ukraine War Near 1.4 Million, Study Finds**\
 `With high casualty figures and the slow pace of Russia’s territorial gains, President Vladimir V. Putin could face years more of a grinding war of attrition in Ukraine.`\
 https://nytimes.com/2025/06/03/us/politics/russia-ukraine-troop-casualties.html
-
-**Smithsonian’s Reaction to Trump’s Firing of Its Museum Director: Silence**\
-`Four days after the president said he was dismissing the head of the National Portrait Gallery, the Smithsonian has yet to accept or challenge his authority.`\
-https://nytimes.com/2025/06/03/arts/design/smithsonian-trump-firing-national-portrait-gallery.html
-
-**The Washington Post Plans an Influx of Outside Opinion Writers**\
-`A new program, known internally as Ripple, would open The Post to journalists at other publications and influential writers on Substack.`\
-https://nytimes.com/2025/06/03/business/media/washington-post-opinion-ripple.html
 
