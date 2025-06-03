@@ -1,3 +1,7 @@
+**South Korea’s New Leader Faces Tough Tests Right From the Start**\
+`Lee Jae-myung says he will tackle the problems facing the polarized nation, including its relationship with President Trump, with grit and “pragmatism.”`\
+https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
+
 **Nottm Forest reach verbal agreement to sign Botafogo trio**\
 `Forest are looking to add to their squad after qualifying for the Conference League next season.`\
 https://nytimes.com/athletic/6400433/2025/06/03/nottingham-forest-transfers-botafogo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/arts/music/per-norgard-dead.html
 **U.S. Proposes Interim Step in Iran Nuclear Talks Allowing Some Enrichment**\
 `An outline by the Trump administration would allow Iran to continue enriching uranium at low levels while a broader arrangement is worked out that would block the country’s path to a nuclear weapon.`\
 https://nytimes.com/2025/06/03/us/politics/iran-nuclear-deal-proposal.html
-
-**Trump Attacks Rand Paul, Working to Rally G.O.P. Support for Policy Bill**\
-`The president has been pressing Republicans in the Senate to move quickly to embrace sprawling legislation that carries his domestic agenda, including by savaging opponents online.`\
-https://nytimes.com/2025/06/03/us/politics/trump-rand-paul-republicans-policy-bill.html
 
