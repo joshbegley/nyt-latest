@@ -1,3 +1,19 @@
+**What Secrets Lie in a Particle’s Wobble? Physicists Still Can’t Say.**\
+`The deviant behavior of a tiny particle called the muon might point to undiscovered forms of matter and energy in the universe. Or it might not.`\
+https://nytimes.com/2025/06/03/science/physics-muons-fermilab.html
+
+**Carrying his own bag, Max Homa fails in bid to qualify for U.S. Open**\
+`For Homa, more than eight hours of walking did not earn him a spot in next week’s U.S. Open at Oakmont Country Club.`\
+https://nytimes.com/athletic/6399955/2025/06/03/max-homa-bag-carry-us-open/
+
+**NHL highlights are now in The Athletic's app. Why this is the perfect time**\
+`NHL highlights are now available in The Athletic's coverage, just in time for the best part of the NHL season.`\
+https://nytimes.com/athletic/6397733/2025/06/03/nhl-highlights-the-athletic-app/
+
+**‘Marjorie Prime’ and ‘Becky Shaw’ Are Coming to Broadway This Season**\
+`Second Stage Theater, a nonprofit, will put on the two plays, both of which were Pulitzer finalists, at its Helen Hayes Theater.`\
+https://nytimes.com/2025/06/03/theater/marjorie-prime-becky-shaw-broadway.html
+
 **Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
 `Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/2025/06/03/us/politics/deportation-flights-accelerate-reachi
 **MLB teams most likely to be sellers at trade deadline — and the players they could shop**\
 `Here are the nine teams that I believe will be deadline sellers, along with the players they could shop or contenders would covet. `\
 https://nytimes.com/athletic/6398823/2025/06/03/mlb-trade-deadline-sellers-teams-players/
-
-**Madden Curse? No, Saquon Barkley's fantasy football managers should be afraid of history**\
-`History strongly suggests Barkley isn't going to deliver an RB1 season in 2025. And it has nothing to do with the Madden Curse.`\
-https://nytimes.com/athletic/6205812/2025/06/03/saquon-barkley-fantasy-football-draft-madden/
-
-**Mets are recalling Ronny Mauricio after apparent injury to Mark Vientos**\
-`Mauricio, a former top prospect who missed all of last season after knee surgery, will join the team for its series in Los Angeles.`\
-https://nytimes.com/athletic/6399758/2025/06/03/mets-ronny-mauricio-recall-mark-vientos-injury/
-
-**Inzaghi leaves Inter, expected to move to Al Hilal**\
-`Inzaghi, 49, has won everything domestically during his four years at Inter, winning the Serie A title in 2023-24.`\
-https://nytimes.com/athletic/6397239/2025/06/03/simone-inzaghi-inter-leaves/
-
-**As Trump Says He’s Stamping Out Antisemitism, He Advances Similar Tropes**\
-`President Trump’s effort to punish Harvard over antisemitism is complicated by his own extensive history of amplifying white supremacist figures and symbols.`\
-https://nytimes.com/2025/06/03/us/politics/trump-antisemitism.html
 
