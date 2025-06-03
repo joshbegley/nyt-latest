@@ -1,3 +1,11 @@
+**Smoke From Canadian Wildfires Blankets the Upper Midwest**\
+`Minnesota, Wisconsin, Iowa and parts of Nebraska and Michigan were under air quality alerts on Tuesday, with advisories for more vulnerable groups to stay indoors or limit outdoor activity.`\
+https://nytimes.com/2025/06/03/weather/canada-wildfires-smoke-us-air-quality.html
+
+**U.S. Charges 2 Chinese Students With Smuggling Fungus**\
+`An arrest by the F.B.I. comes as the Trump administration has promised to crack down on Chinese academics.`\
+https://nytimes.com/2025/06/03/us/politics/chinese-students-fungus.html
+
 **Pochettino likens Pulisic to USA's Messi, addresses stars passing on Gold Cup**\
 `The USMNT manager joined the two program legends for a podcast interview and discussed his star player's absence for the upcoming Gold Cup.`\
 https://nytimes.com/athletic/6398866/2025/06/03/mauricio-pochettino-podcast-landon-donovan-tim-howard-usmnt-pulisic/
