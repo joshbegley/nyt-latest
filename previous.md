@@ -1,3 +1,7 @@
+**Quote of the Day: Economists See Trouble Ahead In G.O.P.’s Bill**\
+`Quotation of the Day for Tuesday, June 3, 2025.`\
+https://nytimes.com/2025/06/03/pageoneplus/quote-of-the-day-economists-see-trouble-ahead-in-gops-bill.html
+
 **The removal of a ‘political overhang’ could lead to a market rally, analysts say.**\
 `By Jason Karaian`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/the-removal-of-a-political-overhang-could-lead-to-a-market-rally-analysts-say
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/health/anorexia-in-middle-age-and-beyond.html
 **Racing to Save California’s Elephant Seals From Bird Flu**\
 `Two years ago, avian influenza ravaged elephant seal colonies in South America. Are the colonies on the northern Pacific Coast next?`\
 https://nytimes.com/card/2025/06/03/science/
-
-**Brighton Transfer DealSheet: Summer window latest, key targets and likely exits**\
-`Brighton are unlikely to be as active in this summer window as they were last year, yet there is still plenty to look out for...`\
-https://nytimes.com/athletic/6352226/2025/06/03/brighton-dealsheet-transfers/
 

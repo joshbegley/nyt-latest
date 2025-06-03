@@ -1,3 +1,7 @@
+**Quote of the Day: Economists See Trouble Ahead In G.O.P.’s Bill**\
+`Quotation of the Day for Tuesday, June 3, 2025.`\
+https://nytimes.com/2025/06/03/pageoneplus/quote-of-the-day-economists-see-trouble-ahead-in-gops-bill.html
+
 **The removal of a ‘political overhang’ could lead to a market rally, analysts say.**\
 `By Jason Karaian`\
 https://nytimes.com/live/2025/06/03/world/south-korea-presidential-election/the-removal-of-a-political-overhang-could-lead-to-a-market-rally-analysts-say
