@@ -1,3 +1,7 @@
+**Office Note**\
+`Can you solve Boaz Moser’s puzzle with your eyes closed?`\
+https://nytimes.com/2025/06/02/crosswords/daily-puzzle-2025-06-03.html
+
 **A Trump Official Threatens to Sue California Schools Over Trans Athletes**\
 `A letter from the assistant attorney general for civil rights, Harmeet K. Dhillon, said that allowing trans athletes to compete in high school sports was unconstitutional.`\
 https://nytimes.com/2025/06/02/us/politics/california-schools-trans-athletes-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/02/us/politics/harvard-law-review-investigation-trum
 **‘Eurydice’ Review: Maya Hawke in the Underworld**\
 `The actress stars in Sarah Ruhl’s reimagining of this classic myth, with a focus on a daughter’s reunion with her beloved father after death.`\
 https://nytimes.com/2025/06/02/theater/eurydice-review-maya-hawke-in-the-underworld.html
-
-**The Colorado suspect’s immigration status was stalled in a common gray area, experts say.**\
-`Here is a look at what is known about the path taken by Mohamed Sabry Soliman, an Egyptian, in seeking asylum in the U.S.`\
-https://nytimes.com/live/2025/06/02/us/boulder-colorado-attack-suspect/the-colorado-suspects-immigration-status-was-stalled-in-a-common-gray-area-experts-say
 

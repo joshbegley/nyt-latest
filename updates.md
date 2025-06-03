@@ -1,3 +1,7 @@
+**Office Note**\
+`Can you solve Boaz Moser’s puzzle with your eyes closed?`\
+https://nytimes.com/2025/06/02/crosswords/daily-puzzle-2025-06-03.html
+
 **A Trump Official Threatens to Sue California Schools Over Trans Athletes**\
 `A letter from the assistant attorney general for civil rights, Harmeet K. Dhillon, said that allowing trans athletes to compete in high school sports was unconstitutional.`\
 https://nytimes.com/2025/06/02/us/politics/california-schools-trans-athletes-trump.html
