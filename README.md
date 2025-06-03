@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6400917/2025/06/03/corbin-burnes-arizona-diamondbac
 https://nytimes.com/2025/06/03/travel/capital-one-airport-lounges.html
 
 **Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
-`Coach Paul Maurice calls Bennett “built for the playoffs.” It will have mean a big payday as a free agent this offseason.`\
+`Coach Paul Maurice calls Bennett “built for the playoffs.” It will mean a big payday as a free agent this offseason.`\
 https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
 
 **Tom Thibodeau deserved another season with Knicks**\
