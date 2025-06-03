@@ -1,3 +1,11 @@
+**Did that Clint Eastwood Interview Happen? Yes, Kind of.**\
+`Eastwood, 95, accused a small Austrian publication of running a “phony” Q. and A. with him. It turns out the quotes were aggregated from previous interviews.`\
+https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html
+
+**Steelers send letter to fans angry about players attending Donald Trump rally**\
+`QB Mason Rudolph, safety Miles Killebrew and former Steelers RB Rocky Bleier attended the rally last Friday.`\
+https://nytimes.com/athletic/6400476/2025/06/03/steelers-letter-fans-players-trump-rally/
+
 **‘Wheel of Fortune’ and ‘Jeopardy!’ Find Streaming Homes**\
 `Starting in September, new episodes of the popular game shows will be available on both Hulu and Peacock the day after they air on broadcast TV.`\
 https://nytimes.com/2025/06/03/business/media/jeopardy-wheel-of-fortune-hulu-peacock.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/chinese-students-fungus.html
 **Pochettino likens Pulisic to USA's Messi, addresses stars passing on Gold Cup**\
 `The USMNT manager joined the two program legends for a podcast interview and discussed his star player's absence for the upcoming Gold Cup.`\
 https://nytimes.com/athletic/6398866/2025/06/03/mauricio-pochettino-podcast-landon-donovan-tim-howard-usmnt-pulisic/
-
-**Brighton coach Stern joins Marco Knoop in leaving club**\
-`Stern joins coach Marco Knoop in leaving head coach Fabian Hurzeler's backroom team this summer.`\
-https://nytimes.com/athletic/6400529/2025/06/03/brighton-jack-stern-coach-leaving/
-
-**Fernandes on rejecting Al Hilal to stay at Man Utd: 'I want to stay at the highest level'**\
-`The 30-year-old was the subject of a lucrative approach from Saudi Pro League side.`\
-https://nytimes.com/athletic/6342199/2025/06/03/manchester-united-bruno-fernandes-al-hilal/
 
