@@ -1,3 +1,11 @@
+**Sancho to leave Chelsea at end of loan, club to pay £5m penalty**\
+`An agreement could not be reached over personal terms for the winger’s loan move to become permanent.`\
+https://nytimes.com/athletic/6390124/2025/06/03/jadon-sancho-chelsea-transfer-clause/
+
+**The New York Times International Edition in Print for Wednesday, June 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/03/todays-new-york-times-international-edition
+
 **Trump’s Foreign Policy, Explained**\
 `The foreign policy scholar Emma Ashford explains what President Trump is really doing in the Middle East and Ukraine.`\
 https://nytimes.com/2025/06/03/opinion/ezra-klein-podcast-emma-ashford.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/upshot/trump-republicans-democrats-election-lands
 **Trash Containerization Comes to Harlem**\
 `Several Manhattan neighborhoods now have large curbside bins for residents’ trash. Mayor Eric Adams celebrated the program as a way to keep rats at bay.`\
 https://nytimes.com/2025/06/03/nyregion/trash-containerization-comes-to-harlem.html
-
-**A (Partial) Defense of Elon Musk**\
-`His life and conduct is similar in many ways to another complicated figure, Cecil Rhodes.`\
-https://nytimes.com/2025/06/03/opinion/elon-musk-cecil-rhodes.html
-
-**The U.S. Lit a Beacon for Science. Under Trump, Scientists Fear It’s Dimming**\
-`As the United States cuts budgets and restricts immigration, China and Europe are offering researchers money and stability.`\
-https://nytimes.com/2025/06/03/us/trump-federal-spending-grants-scientists-leaving.html
 
