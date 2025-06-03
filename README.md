@@ -1,3 +1,11 @@
+**Is There a Pattern in Ukraine’s and Russia’s Big Attacks and Talks?**\
+`The question is whether the exchange of blows and the demonstration of Ukraine’s resourcefulness can help end the conflict.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/ukraine-drone-attack-istanbul-talks
+
+**Pierre Nora, 93, Who Probed Role of Memory in Writing of History, Dies**\
+`A renowned French scholar and publishing figure, he looked at what societies choose to honor — and forget — in telling their stories.`\
+https://nytimes.com/2025/06/03/books/pierre-nora-dead.html
+
 **France Moves to Atone by Elevating Alfred Dreyfus as Antisemitism Spreads**\
 `The National Assembly voted to promote the Jewish army captain to brigadier general more than 130 years after he was falsely convicted of espionage and imprisoned in French Guiana.`\
 https://nytimes.com/2025/06/03/world/europe/france-antisemitism-dreyfus.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html
 **Steelers send letter to fans angry about players attending Donald Trump rally**\
 `QB Mason Rudolph, safety Miles Killebrew and former Steelers RB Rocky Bleier attended the rally last Friday.`\
 https://nytimes.com/athletic/6400476/2025/06/03/steelers-letter-fans-players-trump-rally/
-
-**‘Wheel of Fortune’ and ‘Jeopardy!’ Find Streaming Homes**\
-`Starting in September, new episodes of the popular game shows will be available on both Hulu and Peacock the day after they air on broadcast TV.`\
-https://nytimes.com/2025/06/03/business/media/jeopardy-wheel-of-fortune-hulu-peacock.html
-
-**Knicks fire Tom Thibodeau after 5 seasons, conference finals run**\
-`Thibodeau led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
-https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
 

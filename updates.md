@@ -1,3 +1,7 @@
+**France Moves to Atone by Elevating Alfred Dreyfus as Antisemitism Spreads**\
+`The National Assembly voted to promote the Jewish army captain to brigadier general more than 130 years after he was falsely convicted of espionage and imprisoned in French Guiana.`\
+https://nytimes.com/2025/06/03/world/europe/france-antisemitism-dreyfus.html
+
 **Police Hunt for Father After 3 Missing Girls Are Found Dead in Washington State**\
 `The bodies of the girls, ages 5, 8 and 9, were found at a campground in Chelan County on Monday. Their father is being sought on murder and kidnapping charges.`\
 https://nytimes.com/2025/06/03/us/three-missing-girls-wenatchee-murder-father.html

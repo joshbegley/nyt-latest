@@ -1,3 +1,7 @@
+**France Moves to Atone by Elevating Alfred Dreyfus as Antisemitism Spreads**\
+`The National Assembly voted to promote the Jewish army captain to brigadier general more than 130 years after he was falsely convicted of espionage and imprisoned in French Guiana.`\
+https://nytimes.com/2025/06/03/world/europe/france-antisemitism-dreyfus.html
+
 **Police Hunt for Father After 3 Missing Girls Are Found Dead in Washington State**\
 `The bodies of the girls, ages 5, 8 and 9, were found at a campground in Chelan County on Monday. Their father is being sought on murder and kidnapping charges.`\
 https://nytimes.com/2025/06/03/us/three-missing-girls-wenatchee-murder-father.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/business/media/jeopardy-wheel-of-fortune-hulu-pea
 **Knicks fire Tom Thibodeau after 5 seasons, conference finals run**\
 `Thibodeau led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
 https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
-
-**Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
-`The tech executive criticized the president’s legislation in a series of posts on Tuesday, signaling a widening rift with Republicans.`\
-https://nytimes.com/2025/06/03/technology/elon-musk-criticizes-republican-legislation.html
 
