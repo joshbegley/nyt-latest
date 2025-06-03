@@ -1,3 +1,11 @@
+**Breaking down 11 potential landing spots for Nikolaj Ehlers in free agency**\
+`Ehlers is a force in transition who can create offense without relying on extended offensive zone time. Where might he sign on July 1?`\
+https://nytimes.com/athletic/6398915/2025/06/03/nikolaj-ehlers-free-agent-destinations/
+
+**‘Beetlejuice’ Is Coming Back to Broadway**\
+`The national tour production will haunt the Palace Theater for 13 weeks, beginning Oct. 8.`\
+https://nytimes.com/2025/06/03/theater/beetlejuice-broadway.html
+
 **The Bounce: Grading Thunder-Pacers matchups for 2025 NBA Finals. Plus, should Seattle feel left out?**\
 `With Game 1 of the NBA Finals tipping off Thursday night and a lull between playoff action, The Bounce previews key series matchups`\
 https://nytimes.com/athletic/6399420/2025/06/03/thunder-pacers-shai-gilgeous-alexander-tyrese-haliburton-matchups-seattle-nba-finals-the-bounce/
