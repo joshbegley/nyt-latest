@@ -1,3 +1,12 @@
+**Shigeo Nagashima, ‘Mr. Baseball’ of Postwar Japan, Dies at 89**\
+`A key member of the Tokyo Yomiuri Giants of the 1960s and ’70s, Japan’s most enduring sports dynasty, Nagashima was a star from his first season.`\
+https://nytimes.com/2025/06/02/obituaries/shigeo-nagashima-dead.html
+
+**Watch: With the NBA Finals set to tip, can the Pacers upset the favored Thunder?**\
+`"The Athletic NBA Daily" previewed the NBA Finals matchup between the Oklahoma City Thunder and the Indiana Pacers.
+`\
+https://nytimes.com/athletic/6397481/2025/06/02/finals-pacers-thunder-nba-daily/
+
 **Office Note**\
 `Can you solve Boaz Moser’s puzzle with your eyes closed?`\
 https://nytimes.com/2025/06/02/crosswords/daily-puzzle-2025-06-03.html

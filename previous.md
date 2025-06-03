@@ -1,3 +1,12 @@
+**Shigeo Nagashima, ‘Mr. Baseball’ of Postwar Japan, Dies at 89**\
+`A key member of the Tokyo Yomiuri Giants of the 1960s and ’70s, Japan’s most enduring sports dynasty, Nagashima was a star from his first season.`\
+https://nytimes.com/2025/06/02/obituaries/shigeo-nagashima-dead.html
+
+**Watch: With the NBA Finals set to tip, can the Pacers upset the favored Thunder?**\
+`"The Athletic NBA Daily" previewed the NBA Finals matchup between the Oklahoma City Thunder and the Indiana Pacers.
+`\
+https://nytimes.com/athletic/6397481/2025/06/02/finals-pacers-thunder-nba-daily/
+
 **Office Note**\
 `Can you solve Boaz Moser’s puzzle with your eyes closed?`\
 https://nytimes.com/2025/06/02/crosswords/daily-puzzle-2025-06-03.html
@@ -29,12 +38,4 @@ https://nytimes.com/interactive/2025/06/02/world/europe/ukraine-russia-drone-att
 **Day 2: How Rules Can Spark the Imagination**\
 `Today, let’s write a little poetry.`\
 https://nytimes.com/interactive/2025/well/creativity-poetry-writing-prompt.html
-
-**A Stephen Miller Staffer and Tough Talk: Inside Trump’s Latest Attack on Harvard**\
-`The Justice Department opened an investigation into the student-run Harvard Law Review. The startling accusations show how the Trump administration is wielding power in pursuit of its political agenda.`\
-https://nytimes.com/2025/06/02/us/politics/harvard-law-review-investigation-trump.html
-
-**‘Eurydice’ Review: Maya Hawke in the Underworld**\
-`The actress stars in Sarah Ruhl’s reimagining of this classic myth, with a focus on a daughter’s reunion with her beloved father after death.`\
-https://nytimes.com/2025/06/02/theater/eurydice-review-maya-hawke-in-the-underworld.html
 
