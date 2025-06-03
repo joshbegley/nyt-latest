@@ -1,3 +1,7 @@
+**Wake Forest baseball coach Tom Walter apologizes for use of homophobic slur**\
+`Tom Walter was caught saying the word during an ESPN broadcast of the Demon Deacons' loss to Tennessee on Monday.`\
+https://nytimes.com/athletic/6400206/2025/06/03/wake-forest-baseball-coach-tom-walter-apologizes-for-using-homophobic-slur/
+
 **What the N.Y.C. Mayoral Candidates Hope to Achieve on the Debate Stage**\
 `Plus: Cynthia Nixon’s advice for debating Andrew Cuomo and Ilana Glazer’s ranked-choice ballot.`\
 https://nytimes.com/2025/06/03/nyregion/nyc-mayor-race-debate.html

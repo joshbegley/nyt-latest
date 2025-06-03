@@ -23,7 +23,7 @@ https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
 https://nytimes.com/2025/06/03/climate/executive-order-gold-standard-science.html
 
 **A Beloved Immigrant’s Arrest in a Pro-Trump Town**\
-`Readers respond to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe?`\
+`Responses to the story of Carol, an immigrant arrested in a conservative Missouri town. Also: Death by aid cuts; an Orwellian globe; slashing research.`\
 https://nytimes.com/2025/06/03/opinion/immigrant-arrest-missouri.html
 
 **Transfers TLDR: Caoimhin Kelleher to Brentford**\
