@@ -1,3 +1,8 @@
+**Listen: Could Martin Zubimendi be just as important to Arsenal as signing a new No 9?**\
+`Handbrake Off discusses why Martin Zubimendi could be just as important to Arsenal as a new centre-forward.
+`\
+https://nytimes.com/athletic/6399273/2025/06/03/could-martin-zubimendi-be-just-as-important-to-arsenal-as-signing-a-new-no-9/
+
 **The Athletic FC: Mbeumo to Man Utd? Pivotal week for Wirtz, Messi trading cards to be remade**\
 `Today in TAFC - the return of the DealSheet featuring Wirtz and Mbeumo wanting a Man Utd move. Plus: Messi trading cards to be remade`\
 https://nytimes.com/athletic/6399229/2025/06/03/the-athletic-fc-mbeumo-to-man-utd-pivotal-week-for-wirtz-messi-trading-cards-to-be-remade/
@@ -33,13 +38,4 @@ https://nytimes.com/athletic/6398371/2025/06/03/nhl-playoffs-2025-worst-ads-cana
 **Understanding the Big Ten's push for a '4-4-2-2-1' CFP model**\
 `Despite the Big Ten’s relative silence on CFP expansion, people in and around the league push back on being seen as the bad actor.`\
 https://nytimes.com/athletic/6398844/2025/06/03/big-ten-cfp-automatic-bids/
-
-**Mirtle: Can the Oilers finally end Canada's embarrassing 32-year Stanley Cup drought?**\
-`For a country that considers hockey part of its national identity, a Stanley Cup is beyond overdue.
-
-
-
-
-`\
-https://nytimes.com/athletic/6398416/2025/06/03/nhl-playoffs-canada-drought-oilers/
 
