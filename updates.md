@@ -1,3 +1,7 @@
+**Alvarez ‘double touch’ penalty would now be retaken after law change**\
+`The controversy surrounding Alvarez's penalty against Real Madrid has resulted in a change of the law on spot kicks.`\
+https://nytimes.com/athletic/6399445/2025/06/03/julian-alvarez-penalty-miss-rule-change/
+
 **Pascal Siakam perfect for Pacers: How his NBA journey focused his drive**\
 `Pascal Siakam willed himself to be one of the most complete forwards in the NBA.`\
 https://nytimes.com/athletic/6388924/2025/06/03/pacers-pascal-siakam-mvp-nba-final-thunder/
