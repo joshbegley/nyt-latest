@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6400324/2025/06/03/french-open-recap-lorenzo-musett
 `The Bureau of Prisons must provide hormone treatment for inmates with gender dysphoria while a lawsuit proceeds, despite an executive order to the contrary, a federal judge ordered.`\
 https://nytimes.com/2025/06/03/us/politics/judge-blocks-trump-effort-to-end-treatment-for-transgender-inmates.html
 
-**Jonathan David on his summer transfer: I want a club with ambition**\
-`Canada's star striker is out of contract after five seasons at French Ligue 1 club Lille and will be on the move.`\
+**Jonathan David on his summer transfer: ‘I want a club with ambition’**\
+`Canada's star striker is out of contract after five seasons in France at Ligue 1 club Lille and will be on the move.`\
 https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition/
 
 **We Are Being Governed by the Trump Organization Inc.**\

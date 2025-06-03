@@ -1,3 +1,15 @@
+**French Open recap: Lorenzo Musetti avoids default after kicking ball into linesperson**\
+`The Italian went on to win his Roland Garros quarterfinal against Frances Tiafoe, but could have been ejected from the match.`\
+https://nytimes.com/athletic/6400324/2025/06/03/french-open-recap-lorenzo-musetti-avoids-default-after-kicking-ball-into-linesperson/
+
+**Judge Blocks Trump Effort to End Treatment for Transgender Inmates**\
+`The Bureau of Prisons must provide hormone treatment for inmates with gender dysphoria while a lawsuit proceeds, despite an executive order to the contrary, a federal judge ordered.`\
+https://nytimes.com/2025/06/03/us/politics/judge-blocks-trump-effort-to-end-treatment-for-transgender-inmates.html
+
+**Jonathan David on his summer transfer: I want a club with ambition**\
+`Canada's star striker is out of contract after five seasons at French Ligue 1 club Lille and will be on the move.`\
+https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition/
+
 **We Are Being Governed by the Trump Organization Inc.**\
 `Trump is governing by unchecked gut impulses, with little or no homework or coordination among agencies. The results could be disastrous.`\
 https://nytimes.com/2025/06/03/opinion/trump-president-governing-ruler.html
