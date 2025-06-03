@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6399445/2025/06/03/julian-alvarez-penalty-miss-rule
 `Pascal Siakam willed himself to be one of the most complete forwards in the NBA.`\
 https://nytimes.com/athletic/6388924/2025/06/03/pacers-pascal-siakam-mvp-nba-final-thunder/
 
-**Ukraine Says It Strikes Crimea Bridge**\
+**Ukraine Says It Struck Crimea Bridge**\
 `It would be the third time Ukraine had struck the bridge. The claim comes two days after one of the country’s most ambitious operations of the war, deep inside Russia.`\
 https://nytimes.com/2025/06/03/world/europe/russia-ukraine-crimea-bridge.html
 
