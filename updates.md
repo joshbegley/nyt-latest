@@ -1,3 +1,15 @@
+**What the N.Y.C. Mayoral Candidates Hope to Achieve on the Debate Stage**\
+`Plus: Cynthia Nixon’s advice for debating Andrew Cuomo and Ilana Glazer’s ranked-choice ballot.`\
+https://nytimes.com/2025/06/03/nyregion/nyc-mayor-race-debate.html
+
+**PWHL Players Association votes to disclose salaries: Why they made the decision**\
+`An "overwhelming majority" of PWHL players voted in favor of the change over a 10-day period that ended late last week.`\
+https://nytimes.com/athletic/6400150/2025/06/03/pwhl-players-association-salaries/
+
+**Watch: Candace Parker on WNBA coaching, commentating and coming out**\
+`No Offseason interviews Candace Parker about her new memoir, 'The Can-Do Mindset.'`\
+https://nytimes.com/athletic/6399499/2025/06/03/candace-parker-wnba-no-offseason/
+
 **Harvard Students Seek ‘Viewpoint Diversity’ Outside the School’s Gates**\
 `Steps from Harvard’s campus, an institute backed by conservative donors says it is trying to fill an intellectual void.`\
 https://nytimes.com/2025/06/03/us/harvard-viewpoint-diversity-conservatives.html
