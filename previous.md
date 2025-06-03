@@ -1,3 +1,7 @@
+**Late Night Mines Laughs From Trump’s Outlandish Biden Replacement Theory**\
+`“You’re saying that the Joe Biden who doesn’t even know where he is, is actually an incredibly advanced cloned robot? How much ketamine are you on?” Jon Stewart asked.`\
+https://nytimes.com/2025/06/03/arts/television/late-night-trump-biden-robot-conspiracy.html
+
 **NBA and possession battle: How Thunder, Pacers stack up with their peers**\
 `Making shots, obviously, is important, but controlling the possession battle can help teams steal victories when it matters most.`\
 https://nytimes.com/athletic/6390087/2025/06/03/nba-possession-battle-thunder-pacers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398500/2025/06/03/vikings-cornerback-jalen-ramsey/
 **Alex Anthopoulos on Braves' slow start, AJ Smith-Shawver controversy, RISP woes**\
 `The Braves' top executive said: "If we can be aggressive, whether it's making changes, making trades, we're gonna do that."`\
 https://nytimes.com/athletic/6398893/2025/06/03/braves-alex-anthopoulos-smith-shawver/
-
-**Joe Ryan's big escape, Byron Buxton's 5-RBI night drive Twins to win over A's**\
-`"(Joe's fifth inning) didn't start too great. It finished with probably one of the more impressive pitch-making sequences that you'll see."`\
-https://nytimes.com/athletic/6399105/2025/06/03/twins-athletics-joe-ryan-byron-buxton/
 

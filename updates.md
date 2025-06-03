@@ -1,3 +1,7 @@
+**Late Night Mines Laughs From Trump’s Outlandish Biden Replacement Theory**\
+`“You’re saying that the Joe Biden who doesn’t even know where he is, is actually an incredibly advanced cloned robot? How much ketamine are you on?” Jon Stewart asked.`\
+https://nytimes.com/2025/06/03/arts/television/late-night-trump-biden-robot-conspiracy.html
+
 **NBA and possession battle: How Thunder, Pacers stack up with their peers**\
 `Making shots, obviously, is important, but controlling the possession battle can help teams steal victories when it matters most.`\
 https://nytimes.com/athletic/6390087/2025/06/03/nba-possession-battle-thunder-pacers/
