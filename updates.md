@@ -1,3 +1,19 @@
+**Did that Clint Eastwood Interview Happen? Yes, Kind of.**\
+`Eastwood, 95, accused a small Austrian publication of running a “phony” Q. and A. with him. It turns out the quotes were aggregated from previous interviews.`\
+https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html
+
+**Steelers send letter to fans angry about players attending Donald Trump rally**\
+`QB Mason Rudolph, safety Miles Killebrew and former Steelers RB Rocky Bleier attended the rally last Friday.`\
+https://nytimes.com/athletic/6400476/2025/06/03/steelers-letter-fans-players-trump-rally/
+
+**‘Wheel of Fortune’ and ‘Jeopardy!’ Find Streaming Homes**\
+`Starting in September, new episodes of the popular game shows will be available on both Hulu and Peacock the day after they air on broadcast TV.`\
+https://nytimes.com/2025/06/03/business/media/jeopardy-wheel-of-fortune-hulu-peacock.html
+
+**Knicks fire Tom Thibodeau after 5 seasons, conference finals run**\
+`Thibodeau, 67, led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
+https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
+
 **Knicks fire Tom Thibodeau after 5 seasons, conference finals run: Source**\
 `<p>The New York Knicks fired coach Tom Thibodeau on Tuesday, a league source confirmed.`\
 https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
