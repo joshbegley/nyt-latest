@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, June 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/03/todays-new-york-times
+
+**Poland Just Sent an Ominous Signal to the World**\
+`Populism is resilient and sticky, and liberalism has yet to find a reliable formula to defeat it.`\
+https://nytimes.com/2025/06/03/opinion/poland-election-nawrocki.html
+
 **Tuesday Briefing**\
 `South Koreans go to the polls.`\
 https://nytimes.com/2025/06/03/briefing/south-korea-election-ukraine-colorado.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6387506/2025/06/03/what-next-for-jack-grealish/
 **Why has there never been a challenger to the Premier League like LIV Golf or the XFL?**\
 `Football is awash with mega-rich investors. Might some of them create a league to compete with England's dominant top division?`\
 https://nytimes.com/athletic/6361123/2025/06/03/premier-league-challenger-leagues/
-
-**Will the Red Sox lose patience as Trevor Story continues to struggle at the plate?**\
-`Amid what he has acknowledged as the worst offensive stretch of his career, Story is still searching for answers and consistency.`\
-https://nytimes.com/athletic/6398956/2025/06/03/red-sox-trevor-story/
-
-**Energized by struggles, Royce Lewis works to get back on track: 'Everyone slumps'**\
-`The Twins believe things will turn for Lewis and cite statistical evidence to suggest it should.`\
-https://nytimes.com/athletic/6398979/2025/06/03/energized-royce-lewis-everyone-slumps/
 
