@@ -1,5 +1,9 @@
-**Knicks fire Tom Thibodeau after 5 seasons, conference finals run: Source**\
-`<p>The New York Knicks fired coach Tom Thibodeau on Tuesday, a league source confirmed.`\
+**‘Wheel of Fortune’ and ‘Jeopardy!’ Find Streaming Homes**\
+`Starting in September, new episodes of the popular game shows will be available on both Hulu and Peacock the day after they air on broadcast TV.`\
+https://nytimes.com/2025/06/03/business/media/jeopardy-wheel-of-fortune-hulu-peacock.html
+
+**Knicks fire Tom Thibodeau after 5 seasons, conference finals run**\
+`Thibodeau, 67, led the Knicks to the Eastern Conference finals this season, their furthest playoff run since 1999-2000.`\
 https://nytimes.com/athletic/6400586/2025/06/03/tom-thibodeau-knicks-nba-fired/
 
 **Elon Musk Calls Trump Policy Bill a ‘Disgusting Abomination’**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400529/2025/06/03/brighton-jack-stern-coach-leavin
 **Fernandes on rejecting Al Hilal to stay at Man Utd: 'I want to stay at the highest level'**\
 `The 30-year-old was the subject of a lucrative approach from Saudi Pro League side.`\
 https://nytimes.com/athletic/6342199/2025/06/03/manchester-united-bruno-fernandes-al-hilal/
-
-**The No. 1 Hit That’s Driving Us Nuts**\
-`Alex Warren’s ubiquitous chart-topper “Ordinary” makes our critic Jon Caramanica crazy. He explains why in his latest car-stereo review.`\
-https://nytimes.com/video/podcasts/100000010203305/the-no-1-hit-thats-driving-us-nuts.html
 
