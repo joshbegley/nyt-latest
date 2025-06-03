@@ -1,3 +1,19 @@
+**South Korea’s New Leader Faces Tough Tests Right From the Start**\
+`Lee Jae-myung says he will tackle the problems facing the polarized nation, including its relationship with President Trump, with grit and “pragmatism.”`\
+https://nytimes.com/2025/06/03/world/asia/lee-south-korea-new-president.html
+
+**Nottm Forest reach verbal agreement to sign Botafogo trio**\
+`Forest are looking to add to their squad after qualifying for the Conference League next season.`\
+https://nytimes.com/athletic/6400433/2025/06/03/nottingham-forest-transfers-botafogo/
+
+**After Trump Takeover, Kennedy Center Ticket Sales Fall Sharply**\
+`The Kennedy Center disputed the relevance of the data, part of an analysis by employees, saying that it had started its annual subscription campaign later than usual.`\
+https://nytimes.com/2025/06/03/arts/music/kennedy-center-ticket-sales-subscriptions.html
+
+**West Ham complete £32.8m signing of Todibo from Nice**\
+`The 25-year-old defender initially joined in August on a season-long loan with an obligation to buy.`\
+https://nytimes.com/athletic/6400369/2025/06/03/west-ham-transfer-todibo-complete/
+
 **Jonathan Morgan exhibited 'bullying behaviour', called Maddy Cusack a 'psycho', hearing told**\
 `A preliminary hearing on Tuesday heard evidence relating to the circumstances that preceded Cusack's death in September 2023.`\
 https://nytimes.com/athletic/6400161/2025/06/03/maddy-cusack-death-jonathan-morgan/
