@@ -1,3 +1,11 @@
+**Hegseth Orders Navy to Review Ship Name Honoring Gay Icon Harvey Milk**\
+`The names of several other vessels that honor civil rights leaders and Supreme Court justices might also be changed.`\
+https://nytimes.com/2025/06/03/us/politics/navy-ships-harvey-milk-renamed.html
+
+**Knicks head coaching candidates: Who should replace Tom Thibodeau?**\
+`After five seasons, the Knicks have fired head coach Tom Thibodeau. Who could be his replacement? `\
+https://nytimes.com/athletic/6401030/2025/06/03/knicks-coaching-candidates-michael-malone-johnnie-bryant/
+
 **Severe Storms Bring Heavy Rain to Kansas and Missouri**\
 `A tornado warning was issued for Kansas City, Mo.`\
 https://nytimes.com/video/us/100000010206359/kansas-missouri-storm.html

@@ -1,3 +1,11 @@
+**Hegseth Orders Navy to Review Ship Name Honoring Gay Icon Harvey Milk**\
+`The names of several other vessels that honor civil rights leaders and Supreme Court justices might also be changed.`\
+https://nytimes.com/2025/06/03/us/politics/navy-ships-harvey-milk-renamed.html
+
+**Knicks head coaching candidates: Who should replace Tom Thibodeau?**\
+`After five seasons, the Knicks have fired head coach Tom Thibodeau. Who could be his replacement? `\
+https://nytimes.com/athletic/6401030/2025/06/03/knicks-coaching-candidates-michael-malone-johnnie-bryant/
+
 **Severe Storms Bring Heavy Rain to Kansas and Missouri**\
 `A tornado warning was issued for Kansas City, Mo.`\
 https://nytimes.com/video/us/100000010206359/kansas-missouri-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/travel/capital-one-airport-lounges.html
 **Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
 `Coach Paul Maurice calls Bennett “built for the playoffs.” It will mean a big payday as a free agent this offseason.`\
 https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
-
-**Tom Thibodeau deserved another season with Knicks**\
-`The Knicks are rolling the dice by firing Tom Thibodeau. Now the pressure is on New York to make the perfect hire. `\
-https://nytimes.com/athletic/6400608/2025/06/03/knicks-fire-tom-thibodeau-coaching-search/
-
-**Trump Targets Key Lifeline for Africa: Money Sent Home by Immigrants**\
-`After slashing foreign assistance and introducing steep tariffs, the Trump administration is proposing a new tax on remittances. African nations would be among the hardest hit.`\
-https://nytimes.com/2025/06/03/world/africa/trump-bill-remittance-tax-africa.html
 
