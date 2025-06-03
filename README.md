@@ -1,3 +1,7 @@
+**Frank Ragnow gave his all to Lions in career marked by toughness through ups and downs**\
+`The offensive lineman pushed his body until he couldn't anymore.`\
+https://nytimes.com/athletic/6398826/2025/06/03/frank-ragnow-retirement-detroit-lions-injuries/
+
 **Alvarez ‘double touch’ penalty would now be retaken after law change**\
 `The controversy surrounding Alvarez's penalty against Real Madrid has resulted in a change of the law on spot kicks.`\
 https://nytimes.com/athletic/6399445/2025/06/03/julian-alvarez-penalty-miss-rule-change/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/arts/music/sean-combs-diddy-trial-cassie-hotel.ht
 **Do the Knicks have a Mikal Bridges dilemma this offseason?**\
 `Bridges is eligible for an extension this summer. Will the Knicks give it to him? Does he want to be in New York?`\
 https://nytimes.com/athletic/6397296/2025/06/03/knicks-mikal-bridges-future-nba/
-
-**'We're going to get a good player': Flyers AGM on upcoming draft, current prospects**\
-`The Flyers have seven picks over the first two rounds in the 2025 draft June 27-28.`\
-https://nytimes.com/athletic/6398655/2025/06/03/flyers-nhl-draft-prospects-brent-flahr/
 
