@@ -1,3 +1,7 @@
+**The Bounce: Grading Thunder-Pacers matchups for 2025 NBA Finals. Plus, should Seattle feel left out?**\
+`With Game 1 of the NBA Finals tipping off Thursday night and a lull between playoff action, The Bounce previews key series matchups`\
+https://nytimes.com/athletic/6399420/2025/06/03/thunder-pacers-shai-gilgeous-alexander-tyrese-haliburton-matchups-seattle-nba-finals-the-bounce/
+
 **What's next for the Jazz after hiring Austin Ainge as president of basketball operations?**\
 `After being asked about tanking and saying, "you won't see that this year," Ainge must pick a path for the Jazz: youth or veteran core.`\
 https://nytimes.com/athletic/6399102/2025/06/03/whats-next-for-jazz-after-hiring-austin-ainge-as-president-of-basketball-operations/
