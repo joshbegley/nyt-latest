@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/03/dining/dickeys-barbecue-pit-franchise.html
 `Yuka, which Kennedy has called “invaluable,” assigns health scores to food. But can it actually help people make better choices?`\
 https://nytimes.com/2025/06/03/well/eat/yuka-nutrition-app-maha-benefits.html
 
-**Being Harvey Weinstein’s P.R. Guy Has Its Perks**\
+**The Perks of Being Harvey Weinstein’s Publicist**\
 `Juda Engelmayer took a job that leading crisis communications pros didn’t want. Now he’s the pied piper of pariahs.`\
 https://nytimes.com/2025/06/03/style/harvey-weinstein-pr-juda-engelmayer.html
 

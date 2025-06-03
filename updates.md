@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
 
+**The Perks of Being Harvey Weinstein’s Publicist**\
+`Juda Engelmayer took a job that leading crisis communications pros didn’t want. Now he’s the pied piper of pariahs.`\
+https://nytimes.com/2025/06/03/style/harvey-weinstein-pr-juda-engelmayer.html
+
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
 `Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
 `\
