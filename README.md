@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/03/science/nuclear-weapons-budget-nnsa-trump.html
 https://nytimes.com/video/world/europe/100000010205578/netherlands-government-collapse.html
 
 **Brenda Tracy sues MSU's board, alleges breach of duty in Mel Tucker case**\
-`Tuesday's filing is the latest in a multi-pronged legal saga involving Tracy, Tucker and Michigan State leadership.`\
+`Tuesday's filing is the latest in a multipronged legal saga involving Tracy, Tucker and Michigan State leadership.`\
 https://nytimes.com/athletic/6400818/2025/06/03/michigan-state-lawsuit-brenda-tracy-mel-tucker/
 
 **Hegseth Orders Navy to Review Ship Name Honoring Gay Rights Pioneer Harvey Milk**\
