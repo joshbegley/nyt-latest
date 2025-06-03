@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-mancheste
 `\
 https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
 
+**Chelsea and United’s top four odds: Can Cunha and Delap signings move the needle?**\
+`Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
+`\
+https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
+
 **Inzaghi leaves Inter, expected to move to Al Hilal**\
 `Inzaghi, 49, has won everything domestically during his four years at Inter, winning the Serie A title in 2023-24.`\
 https://nytimes.com/athletic/6397239/2025/06/03/simone-inzaghi-inter-leaves/
