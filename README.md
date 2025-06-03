@@ -1,3 +1,11 @@
+**Sam Bennett is a perfect fit on Panthers, 'the definition of a playoff player' — would he walk away?**\
+`Coach Paul Maurice calls Bennett “built for the playoffs.” It will have mean a big payday as a free agent this offseason.`\
+https://nytimes.com/athletic/6399946/2025/06/03/panthers-sam-bennett-free-agency-nhl-playoffs/
+
+**Tom Thibodeau deserved another season with Knicks**\
+`The Knicks are rolling the dice by firing Tom Thibodeau. Now the pressure is on New York to make the perfect hire. `\
+https://nytimes.com/athletic/6400608/2025/06/03/knicks-fire-tom-thibodeau-coaching-search/
+
 **Trump Targets Key Lifeline for Africa: Money Sent Home by Immigrants**\
 `After slashing foreign assistance and introducing steep tariffs, the Trump administration is proposing a new tax on remittances. African nations would be among the hardest hit.`\
 https://nytimes.com/2025/06/03/world/africa/trump-bill-remittance-tax-africa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/business/economy/us-china-trade-supply-chains.htm
 **Mexico’s Supreme Court Looks Set to Be Dominated by One Party**\
 `In a divisive and far-reaching election pushed by the governing Morena party, Mexicans voted for thousands of judges at every level on Sunday, remaking the courts.`\
 https://nytimes.com/2025/06/03/world/americas/mexico-election-results.html
-
-**Is Civil War Coming to Europe?**\
-`How the continent’s divisions compare to America’s own factions.`\
-https://nytimes.com/2025/06/03/opinion/europe-civil-war.html
-
-**There Are Limits to Republican Lawmakers’ Reach, Even in Texas**\
-`Republican factions united to pass most but not all of their conservative priorities in this year’s legislative session, illustrating the limits of right-wing governance.`\
-https://nytimes.com/2025/06/03/us/politics/texas-legislature-conservatives.html
 

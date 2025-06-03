@@ -1,3 +1,15 @@
+**Trump Targets Key Lifeline for Africa: Money Sent Home by Immigrants**\
+`After slashing foreign assistance and introducing steep tariffs, the Trump administration is proposing a new tax on remittances. African nations would be among the hardest hit.`\
+https://nytimes.com/2025/06/03/world/africa/trump-bill-remittance-tax-africa.html
+
+**French Open recap: Lorenzo Musetti avoids default after kicking ball into linesperson**\
+`The Italian went on to win his Roland Garros quarterfinal against Frances Tiafoe, but could have been ejected from the match.`\
+https://nytimes.com/athletic/6400324/2025/06/03/tennis-lorenzo-musetti-french-open-linesperson-default/
+
+**Jonathan David on his summer transfer: ‘I want a club with ambition’**\
+`Canada's star striker is out of contract after five seasons in France at Ligue 1 club Lille and will be on the move.`\
+https://nytimes.com/athletic/6400485/2025/06/03/jonathan-david-transfer-ambition/
+
 **French Open recap: Lorenzo Musetti avoids default after kicking ball into linesperson**\
 `The Italian went on to win his Roland Garros quarterfinal against Frances Tiafoe, but could have been ejected from the match.`\
 https://nytimes.com/athletic/6400324/2025/06/03/french-open-recap-lorenzo-musetti-avoids-default-after-kicking-ball-into-linesperson/
