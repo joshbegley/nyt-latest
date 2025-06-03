@@ -1,3 +1,7 @@
+**Pina brace sees Spain Women beat England 2-1 in Nations League group stage**\
+`Sarina Wiegman's England side will now turn their focus to Euro 2025, which kicks off in Switzerland on July 2.`\
+https://nytimes.com/athletic/6400684/2025/06/03/england-women-spain-nations-league/
+
 **Is There a Pattern in Ukraine’s and Russia’s Big Attacks and Talks?**\
 `The question is whether the exchange of blows and the demonstration of Ukraine’s resourcefulness can help end the conflict.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/ukraine-drone-attack-istanbul-talks
@@ -27,14 +31,10 @@ https://nytimes.com/2025/06/03/us/politics/trump-administration-personal-data-fo
 https://nytimes.com/live/2025/06/03/admin/do-not-use
 
 **Arsenal target Zubimendi expecting 'long summer'**\
-`Despite reports of interest from Real Madrid, Arsenal remain confident that he will become their player.`\
+`Arsenal's move for the Spain international has been worked on for a considerable time.`\
 https://nytimes.com/athletic/6400637/2025/06/03/arsenal-zubimendi-transfer-update-real-sociedad/
 
 **Did that Clint Eastwood Interview Happen? Yes, Kind of.**\
 `Eastwood, 95, accused a small Austrian publication of running a “phony” Q. and A. with him. It turns out the quotes were aggregated from previous interviews.`\
 https://nytimes.com/2025/06/03/arts/clint-eastwood-interview.html
-
-**Steelers send letter to fans angry about players attending Donald Trump rally**\
-`QB Mason Rudolph, safety Miles Killebrew and former Steelers RB Rocky Bleier attended the rally last Friday.`\
-https://nytimes.com/athletic/6400476/2025/06/03/steelers-letter-fans-players-trump-rally/
 
