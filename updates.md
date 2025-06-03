@@ -1,3 +1,15 @@
+**Liverpool goalkeeper Kelleher joins Brentford**\
+`The 26-year-old moves for an initial fee of £12.5m rising to £18m with add ons.`\
+https://nytimes.com/athletic/6397042/2025/06/03/caoimhin-kelleher-brentford-transfer-liverpool/
+
+**Trump’s Tariffs Expected to Drag Down the Global Economy**\
+`Economic growth will slow this year and next as the trade war hampers development in the United States and around the world, the Organization for Economic Cooperation and Development said.`\
+https://nytimes.com/2025/06/03/business/trump-tariffs-oecd.html
+
+**gws-ireland-blackwater-valley**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/travel-ireland-blackwater-valley
+
 **The Windup: They fired the 3B coach? Really?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6399099/2025/06/03/braves-third-base-coach-the-windup/

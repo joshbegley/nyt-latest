@@ -1,3 +1,7 @@
+**Submit your questions for Scott Wheeler’s 2025 NHL Draft mailbag**\
+`<p><em>The Athletic</em>’s prospects writer Scott Wheeler released his final top 100 ranking for the 2025 NHL Draft on Monday.`\
+https://nytimes.com/athletic/6399819/2025/06/03/nhl-draft-2025-scott-wheeler-mailbag/
+
 **Liverpool goalkeeper Kelleher joins Brentford**\
 `The 26-year-old moves for an initial fee of £12.5m rising to £18m with add ons.`\
 https://nytimes.com/athletic/6397042/2025/06/03/caoimhin-kelleher-brentford-transfer-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399586/2025/06/03/tennis-wta-swiatek-sabalenka-hea
 **Dozens Killed Near Rafah Aid Distribution Site**\
 `This is the second large-scale deadly shooting in three days near the distribution site in the southern city of Rafah, where thousands of Palestinians have tried to secure aid.`\
 https://nytimes.com/video/world/middleeast/100000010204495/dozens-killed-near-rafah-aid-distribution-site.html
-
-**gws-andor-kyle-soller-denise-gough-karn-meero**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/andor-kyle-soller-denise-gough-karn-meero
 
