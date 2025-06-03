@@ -1,3 +1,7 @@
+**Mets' Paul Blackburn returns looking better than ever in win over Dodgers**\
+`After nine months away from the major leagues, Blackburn allowed just three hits and a walk with three strikeouts in a 4-3 Mets win.`\
+https://nytimes.com/athletic/6399214/2025/06/03/mets-dodgers-paul-blackburn-return/
+
 **Far-Right Leader Pulls Out of Dutch Governing Coalition**\
 `Geert Wilders said the decision was made because the four-party coalition had not made progress in cracking down on immigration.`\
 https://nytimes.com/2025/06/03/world/europe/geert-wilders-netherlands-coalition.html
