@@ -1,3 +1,23 @@
+**For ‘Purpose’ Cast, Navigating Revisions Became a ‘Juggling Act’**\
+`Ahead of the Tony Awards, the playwright Branden Jacobs-Jenkins and the acclaimed ensemble reflected on the challenges of balancing the many script revisions.`\
+https://nytimes.com/2025/06/03/theater/purpose-branden-jacobs-jenkins-broadway.html
+
+**Iga Swiatek and Aryna Sabalenka set up blockbuster French Open semifinal**\
+`The defending French Open champion and the world No. 1 will meet in their first Grand Slam encounter since 2022.`\
+https://nytimes.com/athletic/6399586/2025/06/03/tennis-wta-swiatek-sabalenka-head-to-head/
+
+**Dozens Killed Near Rafah Aid Distribution Site**\
+`This is the second large-scale deadly shooting in three days near the distribution site in the southern city of Rafah, where thousands of Palestinians have tried to secure aid.`\
+https://nytimes.com/video/world/middleeast/100000010204495/dozens-killed-near-rafah-aid-distribution-site.html
+
+**gws-andor-kyle-soller-denise-gough-karn-meero**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/andor-kyle-soller-denise-gough-karn-meero
+
+**gws-architecture-design-modern-sweden**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/architecture-design-modern-sweden
+
 **36 Hours in Berlin**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-berlin
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/03/arts/television/gotham-television-awards-winners.
 **Where ​South Korea’s Likely New President​ Stands on Trump and North Korea**\
 `Facing a complex set of thorny challenges at home and abroad, Lee Jae-myung says he will deal with them with “pragmatism.”`\
 https://nytimes.com/2025/06/03/world/asia/south-korea-lee-jae-myung-policy.html
-
-**Yankees pitcher Luke Weaver expected to miss 4 to 6 weeks with hamstring injury**\
-`Weaver, 31, suffered the injury over the weekend during the Yankees' three-game series against the Los Angeles Dodgers.`\
-https://nytimes.com/athletic/6399612/2025/06/03/yankees-luke-weaver-injury-pitcher/
-
-**Leverkusen sign goalkeeper Flekken from Brentford**\
-`Flekken, 31, joins the Bundesliga club on a three-year deal through to 2028.`\
-https://nytimes.com/athletic/6397078/2025/06/03/mark-flekken-leverkusen-transfer/
-
-**Breaking down 11 potential landing spots for Nikolaj Ehlers in free agency**\
-`Ehlers is a force in transition who can create offense without relying on extended offensive zone time. Where might he sign on July 1?`\
-https://nytimes.com/athletic/6398915/2025/06/03/nikolaj-ehlers-free-agent-destinations/
-
-**‘Beetlejuice’ Is Coming Back to Broadway**\
-`The national tour production will haunt the Palace Theater for 13 weeks, beginning Oct. 8.`\
-https://nytimes.com/2025/06/03/theater/beetlejuice-broadway.html
-
-**The Bounce: Grading Thunder-Pacers matchups for 2025 NBA Finals. Plus, should Seattle feel left out?**\
-`With Game 1 of the NBA Finals tipping off Thursday night and a lull between playoff action, The Bounce previews key series matchups`\
-https://nytimes.com/athletic/6399420/2025/06/03/thunder-pacers-shai-gilgeous-alexander-tyrese-haliburton-matchups-seattle-nba-finals-the-bounce/
 
