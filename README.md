@@ -1,3 +1,11 @@
+**Yankees pitcher Luke Weaver expected to miss 4 to 6 weeks with hamstring injury**\
+`Weaver, 31, suffered the injury over the weekend during the Yankees' three-game series against the Los Angeles Dodgers.`\
+https://nytimes.com/athletic/6399612/2025/06/03/yankees-luke-weaver-injury-pitcher/
+
+**Leverkusen sign goalkeeper Flekken from Brentford**\
+`Flekken, 31, joins the Bundesliga club on a three-year deal through to 2028.`\
+https://nytimes.com/athletic/6397078/2025/06/03/mark-flekken-leverkusen-transfer/
+
 **Breaking down 11 potential landing spots for Nikolaj Ehlers in free agency**\
 `Ehlers is a force in transition who can create offense without relying on extended offensive zone time. Where might he sign on July 1?`\
 https://nytimes.com/athletic/6398915/2025/06/03/nikolaj-ehlers-free-agent-destinations/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/style/street-style-look-beyonce-western-outfit.ht
 **Frank Ragnow gave his all to Lions in career marked by toughness through ups and downs**\
 `The offensive lineman pushed his body until he couldn't anymore.`\
 https://nytimes.com/athletic/6398826/2025/06/03/frank-ragnow-retirement-detroit-lions-injuries/
-
-**Alvarez ‘double touch’ penalty would now be retaken after law change**\
-`The controversy surrounding Alvarez's penalty against Real Madrid has resulted in a change of the law on spot kicks.`\
-https://nytimes.com/athletic/6399445/2025/06/03/julian-alvarez-penalty-miss-rule-change/
-
-**Pascal Siakam perfect for Pacers: How his NBA journey focused his drive**\
-`Pascal Siakam willed himself to be one of the most complete forwards in the NBA.`\
-https://nytimes.com/athletic/6388924/2025/06/03/pacers-pascal-siakam-mvp-nba-final-thunder/
 
