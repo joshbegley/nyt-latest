@@ -1,3 +1,15 @@
+**Severe Storms Bring Heavy Rain to Kansas and Missouri**\
+`A tornado warning was issued for Kansas City, Mo.`\
+https://nytimes.com/video/us/100000010206359/kansas-missouri-storm.html
+
+**ACC, Florida State, Clemson file to dismiss cases against each other**\
+`After 17 months of litigation, sides settle on issues such as who owns TV rights if a school leaves conference, revenue sharing, more.`\
+https://nytimes.com/athletic/6401073/2025/06/03/acc-florida-state-clemson-dismiss-cases/
+
+**Jim Marshall, Iron Man Defensive End for the Vikings, Dies at 87**\
+`Part of Minnesota’s famed unit the Purple People Eaters, he started a record 270 consecutive games. Also famously, he once scooped up a fumble and ran to the wrong end zone.`\
+https://nytimes.com/2025/06/03/sports/football/jim-marshall-dead.html
+
 **Watch: Shai Gilgeous-Alexander has been NBA MVP-worthy, but his goals aren't complete**\
 `"The Athletic NBA Daily" discussed Gilgeous-Alexander, who is having one of the best individual NBA seasons ever.`\
 https://nytimes.com/athletic/6399694/2025/06/03/shai-gilgeous-alexander-thunder-nba-daily/
