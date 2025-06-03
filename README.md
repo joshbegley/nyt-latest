@@ -1,3 +1,11 @@
+**Westmoreland Serves an All-Day Menu in the Revamped Frick Collection**\
+`A King partner opens a wine bar, Lobel’s now has a restaurant and more news.`\
+https://nytimes.com/2025/06/03/dining/nyc-restaurant-news.html
+
+**In shocking move, Hilary Knight was exposed to PWHL expansion. Why didn’t Boston protect her?**\
+`Knight, a women's hockey legend, is not on the Boston Fleet's list of protected players, exposing her to the PWHL expansion process.`\
+https://nytimes.com/athletic/6399808/2025/06/03/hilary-knight-pwhl-boston-expansion-seattle-vancouver-womens-hockey/
+
 **Flyers sign Noah Cates to 4-year, $16 million extension**\
 `Cates scored 16 goals and 37 points in 78 games this season and emerged as the Flyers' most consistent center.`\
 https://nytimes.com/athletic/6399909/2025/06/03/flyers-noah-cates-extension/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/03/theater/marjorie-prime-becky-shaw-broadway.html
 `Brett Koremenos has a look at Chelsea and Manchester United’s shortcomings and where they need to improve through a betting lens.
 `\
 https://nytimes.com/athletic/6399917/2025/06/03/premier-league-chelsea-manchester-united-transfer-betting-predictions/
-
-**They Bet Their Future on Barbecue Dreams. Many Lost Everything.**\
-`Dickey’s, the world’s largest barbecue chain, has a history of deception and broken promises, according to dozens of its franchise owners.`\
-https://nytimes.com/2025/06/03/dining/dickeys-barbecue-pit-franchise.html
-
-**This App Is Trying to Change How Americans Eat**\
-`Yuka, which Kennedy has called “invaluable,” assigns health scores to food. But can it actually help people make better choices?`\
-https://nytimes.com/2025/06/03/well/eat/yuka-nutrition-app-maha-benefits.html
 
