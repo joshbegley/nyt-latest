@@ -1,3 +1,7 @@
+**Acting FEMA Chief Told Staff He Didn’t Know About U.S. Hurricane Season**\
+`In a meeting with FEMA staff, David Richardson said he was unaware the United States had a hurricane season. Two staff members said it was unclear if he was serious, but the agency said he was joking.`\
+https://nytimes.com/2025/06/02/us/politics/fema-david-richardson-hurricane-season.html
+
 **Ukraine Hid Attack Drones in Russia. These Videos Show What Happened Next.**\
 `Videos and satellite imagery show how the attack unfolded and its aftermath.`\
 https://nytimes.com/interactive/2025/06/02/world/europe/ukraine-russia-drone-attacks.html
