@@ -1,3 +1,11 @@
+**Deportation flights accelerate, reaching a high under Trump.**\
+`(No description)`\
+https://nytimes.com/2025/06/03/us/politics/deportation-flights-accelerate-reaching-a-high-under-trump.html
+
+**MLB teams most likely to be sellers at trade deadline — and the players they could shop**\
+`Here are the nine teams that I believe will be deadline sellers, along with the players they could shop or contenders would covet. `\
+https://nytimes.com/athletic/6398823/2025/06/03/mlb-trade-deadline-sellers-teams-players/
+
 **Madden Curse? No, Saquon Barkley's fantasy football managers should be afraid of history**\
 `History strongly suggests Barkley isn't going to deliver an RB1 season in 2025. And it has nothing to do with the Madden Curse.`\
 https://nytimes.com/athletic/6205812/2025/06/03/saquon-barkley-fantasy-football-draft-madden/
