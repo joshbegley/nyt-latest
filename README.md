@@ -1,3 +1,7 @@
+**Europe’s Bickering Pair Search for Unity in a World of Conflict**\
+`President Emmanuel Macron of France and Prime Minister Giorgia Meloni of Italy have regularly sniped, but they are meeting in Rome to in pursuit of common goals.`\
+https://nytimes.com/2025/06/03/world/europe/europes-bickering-pair-search-for-unity-in-a-world-of-conflict.html
+
 **Sancho to leave Chelsea at end of loan, club to pay £5m penalty**\
 `An agreement could not be reached over personal terms for the winger’s loan move to become permanent.`\
 https://nytimes.com/athletic/6390124/2025/06/03/jadon-sancho-chelsea-transfer-clause/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/03/us/politics/judges-trump-deportations-immigration
 **Should Republicans Have Won in a Landslide?**\
 `The question of whether Donald Trump cost conservatives a more decisive victory is a useful one to consider.`\
 https://nytimes.com/2025/06/03/upshot/trump-republicans-democrats-election-landslide.html
-
-**Trash Containerization Comes to Harlem**\
-`Several Manhattan neighborhoods now have large curbside bins for residents’ trash. Mayor Eric Adams celebrated the program as a way to keep rats at bay.`\
-https://nytimes.com/2025/06/03/nyregion/trash-containerization-comes-to-harlem.html
 

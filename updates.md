@@ -1,3 +1,11 @@
+**Sancho to leave Chelsea at end of loan, club to pay £5m penalty**\
+`An agreement could not be reached over personal terms for the winger’s loan move to become permanent.`\
+https://nytimes.com/athletic/6390124/2025/06/03/jadon-sancho-chelsea-transfer-clause/
+
+**The New York Times International Edition in Print for Wednesday, June 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/03/todays-new-york-times-international-edition
+
 **Trump’s Foreign Policy, Explained**\
 `The foreign policy scholar Emma Ashford explains what President Trump is really doing in the Middle East and Ukraine.`\
 https://nytimes.com/2025/06/03/opinion/ezra-klein-podcast-emma-ashford.html
