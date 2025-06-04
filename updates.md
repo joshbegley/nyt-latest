@@ -1,3 +1,7 @@
+**Trump Budget Eliminates Funding for Crucial Global Vaccination Programs**\
+`The spending proposal terminates support of health programs that, according to the proposal, “do not make Americans safer.”`\
+https://nytimes.com/2025/06/04/health/trump-budget-global-health-polio.html
+
 **Jury in El Salvador Convicts 3 Ex-Officers in 1982 Killings of Dutch Journalists**\
 `A jury convicted the former military officers for the murder of four Dutch television journalists who were covering the Salvadoran civil war.`\
 https://nytimes.com/2025/06/04/world/americas/el-salvador-killings-dutch-journalists-1982.html
