@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘A Wise Friend Warned Me About Divorce’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/04/style/tiny-modern-love-stories-a-wise-friend-warned-me-about-divorce.html
+
 **Putin and Zelensky Trade Accusations Amid Escalating Attacks**\
 `The belligerent language and the recent strikes make clear that a wide gap separates Ukraine and Russia, even as their officials have been engaged in direct talks.`\
 https://nytimes.com/2025/06/04/world/europe/putin-zelensky-accusations-escalation.html
@@ -28,14 +32,10 @@ https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
 https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
 
 **Suns hiring Cavaliers assistant Jordan Ott as head coach: Source**\
-`The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach`\
+`The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach.`\
 https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/
 
 **The White House Wants 90 Trade Deals in 90 Days. So Far, It May Have 1.**\
 `It takes years to close a typical trade deal. How do the current talks compare?`\
 https://nytimes.com/interactive/2025/06/04/business/economy/trump-tariffs-trade-deals-timeline.html
-
-**What we're hearing about a Marco Rossi trade, potential destinations and return**\
-`Which teams could be "screaming" for him? What could the return be? Here's the latest on the No. 2 player on The Athletic's trade board.`\
-https://nytimes.com/athletic/6402628/2025/06/04/marco-rossi-trade-destinations-return/
 
