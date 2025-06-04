@@ -1,3 +1,7 @@
+**Quote of the Day: Young Voters Say Ballot Left Them Uninspired**\
+`Quotation of the Day for Wednesday, June 4, 2025.`\
+https://nytimes.com/2025/06/03/pageoneplus/quote-of-the-day-young-voters-say-ballot-left-them-uninspired.html
+
 **Tony Clark, MLBPA hire separate lawyers in face of federal probe**\
 `The federal government is looking at financial situations connected to baseball's players' union. `\
 https://nytimes.com/athletic/6401524/2025/06/03/tony-clark-mlbpa-lawyers-federal-probe/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/06/03/us/trump-npr-pbs-funding-congress.html
 `The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
 https://nytimes.com/2025/06/03/nyregion/tesla-chargers-new-jersey-turnpike.html
 
-**Phillies' Bryce Harper homers in first at-bat after 5-game absence due to HBP**\
-`He was plunked on the right elbow by a 95-mph Spencer Strider fastball a week ago. He was not wearing an elbow guard. Now, he is. `\
+**Bryce Harper homers in first at-bat after 5-game absence as Phillies cruise**\
+`Harper was plunked on the right elbow by a 95 mph Spencer Strider fastball a week ago. He was not wearing an elbow guard. Now, he is. `\
 https://nytimes.com/athletic/6401372/2025/06/03/bryce-harper-homers-elbow-guard-hbp-phillies-bluejays/
-
-**Pacers' flight to OKC diverted to Tulsa due to tornado warning**\
-`Indiana is set to play the Oklahoma City in Game 1 of the NBA Finals on Thursday.`\
-https://nytimes.com/athletic/6401301/2025/06/03/pacers-weather-delay-oklahoma-city-thunder-nba-finals/
 
