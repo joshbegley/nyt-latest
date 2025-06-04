@@ -1,3 +1,11 @@
+**Suns hiring Cavaliers assistant Jordan Ott as next head coach: Source**\
+`The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach`\
+https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/
+
+**The White House Wants 90 Trade Deals in 90 Days. 60 Days In, It May Have 1.**\
+`It takes years to close a typical trade deal. How do the current talks compare?`\
+https://nytimes.com/interactive/2025/06/04/business/economy/trump-tariffs-trade-deals-timeline.html
+
 **What we're hearing about a Marco Rossi trade, potential destinations and return**\
 `Which teams could be "screaming" for him? What could the return be? Here's the latest on the No. 2 player on The Athletic's trade board.`\
 https://nytimes.com/athletic/6402628/2025/06/04/marco-rossi-trade-destinations-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6402784/2025/06/04/fanduel-bans-bettor-heckling-gab
 **The Windup: Once-lauded prospect finally breaking through**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6401830/2025/06/04/ronny-mauricio-mets-the-windup/
-
-**Brock Nelson signs 3-year contract extension with Avalanche**\
-`Nelson totaled six goals and seven assists in 19 regular-season games after a trade from the New York Islanders.`\
-https://nytimes.com/athletic/6402918/2025/06/04/brock-nelson-avalanche-contract/
-
-**Women’s Tales of Tables for One**\
-`Readers respond to a guest essay about women who dine alone. Also: A lawyer writes about a fundamental right codified in the Fifth Amendment.`\
-https://nytimes.com/2025/06/04/opinion/women-dining-alone.html
 
