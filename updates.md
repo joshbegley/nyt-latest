@@ -1,3 +1,15 @@
+**Do You See Craters or Bumps on the Moon’s Surface?**\
+`A picture taken recently by a Japanese company’s spacecraft shows how your interpretation of objective reality can be tested by the power of illusion.`\
+https://nytimes.com/interactive/2025/06/04/science/craters-bumps-moon-quiz.html
+
+**Alf Clausen, Who Gave ‘The Simpsons’ Its Musical Identity, Dies at 84**\
+`He created the music for hundreds of episodes over 27 seasons, spanning jazz, rock, blues and musicals. He won two Emmys and was nominated for 28 more.`\
+https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead.html
+
+**To Bolster Columbia Inquiry, Prosecutor Likened Hamas Graffiti to Cross Burning**\
+`An internal Justice Department clash over safety and free speech rights centered on vandalism directed at Columbia University’s interim president.`\
+https://nytimes.com/2025/06/04/us/politics/columbia-protester-hamas-cross.html
+
 **How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
 `Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
 https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html

@@ -1,3 +1,15 @@
+**Do You See Craters or Bumps on the Moon’s Surface?**\
+`A picture taken recently by a Japanese company’s spacecraft shows how your interpretation of objective reality can be tested by the power of illusion.`\
+https://nytimes.com/interactive/2025/06/04/science/craters-bumps-moon-quiz.html
+
+**Alf Clausen, Who Gave ‘The Simpsons’ Its Musical Identity, Dies at 84**\
+`He created the music for hundreds of episodes over 27 seasons, spanning jazz, rock, blues and musicals. He won two Emmys and was nominated for 28 more.`\
+https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead.html
+
+**To Bolster Columbia Inquiry, Prosecutor Likened Hamas Graffiti to Cross Burning**\
+`An internal Justice Department clash over safety and free speech rights centered on vandalism directed at Columbia University’s interim president.`\
+https://nytimes.com/2025/06/04/us/politics/columbia-protester-hamas-cross.html
+
 **How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
 `Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
 https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6403223/2025/06/04/pelicans-joe-dumars-gayle-benson
 **'Madden NFL 26' highlights Travis Hunter as a Jaguar, new game features**\
 `EA Sports released its "Madden NFL 26" trailer Wednesday, fully loaded with NFL highlights and staples.`\
 https://nytimes.com/athletic/6403239/2025/06/04/madden-nfl-26-trailer-highlights-game-features/
-
-**What Saquon Barkley's retirement talk means for his fantasy football stock**\
-`What Saquon Barkley's retirement remarks on Chris Long's podcast mean for fantasy football enthusiasts. `\
-https://nytimes.com/athletic/6402615/2025/06/04/saquon-barkley-retirement-dynasty-fantasy-football/
-
-**Lawsuit Seeks to Release Family of Suspect in Colorado Attack**\
-`The suit, filed by lawyers for the wife and children of the man charged with attacking an event supporting hostages in Gaza, also asks a judge to block their deportation.`\
-https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
-
-**Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
-`Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
-https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
 

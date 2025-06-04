@@ -1,10 +1,22 @@
+**The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
+`The Penguins' hiring of Muse illustrates that they've truly entered a new era.`\
+https://nytimes.com/athletic/6403183/2025/06/04/penguins-new-coach-dan-muse/
+
+**Home Ownership Quiz**\
+`Test your knowledge of home buying and ownership.`\
+https://nytimes.com/series/home-ownership-quiz
+
+**How Chelsea won the race for Delap ahead of rivals: Meetings, Zooms, young squad and familiar faces**\
+`Liam Delap's move to Chelsea has now been confirmed — this is the story of how they secured his £30million signature`\
+https://nytimes.com/athletic/6399288/2025/06/04/liam-delap-chelsea-transfer-manchester-united/
+
 **Do You See Craters or Bumps on the Moon’s Surface?**\
 `A picture taken recently by a Japanese company’s spacecraft shows how your interpretation of objective reality can be tested by the power of illusion.`\
 https://nytimes.com/interactive/2025/06/04/science/craters-bumps-moon-quiz.html
 
 **Alf Clausen, Who Gave ‘The Simpsons’ Its Musical Identity, Dies at 84**\
 `He created the music for hundreds of episodes over 27 seasons, spanning jazz, rock, blues and musicals. He won two Emmys and was nominated for 28 more.`\
-https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead.html
+https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead-the-simpsons.html
 
 **To Bolster Columbia Inquiry, Prosecutor Likened Hamas Graffiti to Cross Burning**\
 `An internal Justice Department clash over safety and free speech rights centered on vandalism directed at Columbia University’s interim president.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6391349/2025/06/04/chelsea-liam-delap-transfer-conf
 **What Is the Future of George Floyd Square?**\
 `Five years after the site became central to a national protest movement, its fate is unsettled.`\
 https://nytimes.com/2025/06/04/headway/george-floyd-square-future.html
-
-**Weinstein Prosecutors Invoke His Former Power as N.Y. Retrial Nears End**\
-`A Manhattan jury will soon begin deliberating whether to convict the disgraced film mogul Harvey Weinstein of rape and other offenses.`\
-https://nytimes.com/2025/06/04/nyregion/weinstein-rape-trial-closing.html
-
-**Pelicans leadership addresses future with Zion Williamson following rape accusation**\
-`Star forward was accused of rape and domestic violence in a civil lawsuit last week.`\
-https://nytimes.com/athletic/6403223/2025/06/04/pelicans-joe-dumars-gayle-benson-zion-williamson-rape-lawsuit/
-
-**'Madden NFL 26' highlights Travis Hunter as a Jaguar, new game features**\
-`EA Sports released its "Madden NFL 26" trailer Wednesday, fully loaded with NFL highlights and staples.`\
-https://nytimes.com/athletic/6403239/2025/06/04/madden-nfl-26-trailer-highlights-game-features/
 
