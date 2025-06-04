@@ -1,3 +1,7 @@
+**Tony Clark, MLBPA hire separate lawyers in face of federal probe**\
+`The federal government is looking at financial situations connected to baseball's players' union. `\
+https://nytimes.com/athletic/6401524/2025/06/03/tony-clark-mlbpa-lawyers-federal-probe/
+
 **After source of death threats identified, Astros' Lance McCullers Jr. happy 'it's behind us'**\
 `McCullers said he had not heard from the person accused of making the threats but would be open to an apology.`\
 https://nytimes.com/athletic/6401543/2025/06/03/astros-lance-mccullers-jr-death-threats-source-reaction/
