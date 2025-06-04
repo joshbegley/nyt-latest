@@ -1,3 +1,7 @@
+**U.S. Vetoes U.N. Resolution for Gaza Cease-Fire**\
+`The U.S. was the only member nation to veto the U.N. Security Council resolution. The resolution also sought the release of all the hostages and the continuation of full-scale aid deliveries.`\
+https://nytimes.com/video/world/middleeast/100000010208511/un-security-council-gaza-cease-fire.html
+
 **NBA's small markets have an edge: A closer connection between team, fans**\
 `Thunder, Pacers tout close ties with their communities as a part of their teams' developments.`\
 https://nytimes.com/athletic/6403692/2025/06/04/nba-final-small-market-connection-fans/
