@@ -1,3 +1,11 @@
+**Dodgers' Max Muncy continues redemption arc on his season with massive swings in win**\
+`Muncy is mashing again and that is a massive development for the Dodgers and Muncy alike.`\
+https://nytimes.com/athletic/6401838/2025/06/04/dodgers-max-muncy-redemption-arc/
+
+**'Everybody is like robots': Alexander Bublik and the art of being a normal tennis player**\
+`The mercurial talent faces world No. 1 Jannik Sinner in the French Open quarterfinals. But who is the more normal tennis player?`\
+https://nytimes.com/athletic/6400643/2025/06/04/tennis-bublik-sinner-french-open-training-sacrifice-normal/
+
 **Bills OTA observations: Maxwell Hairston's potential, opportunity for Joe Andreessen and more**\
 `Plus, Joshua Palmer's undisclosed injury and Mitchell Trubisky's increased workload.`\
 https://nytimes.com/athletic/6400894/2025/06/04/bills-ota-observations-maxwell-hairston-joe-andreessen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6401017/2025/06/04/bears-minicamp-ben-johnson-cole-
 **'Finding his voice,' Michael Penix Jr. has stepped up; now he's working on speaking up**\
 `Penix is a quiet leader, but Falcons coaches and players say the second-year QB is finding his voice in Atlanta.`\
 https://nytimes.com/athletic/6393665/2025/06/04/falcons-michael-penix-jr-quiet-leader/
-
-**An Illustrated Guide to Who Really Benefits From ‘No Tax on Tips’**\
-`The effect of the tax break is actually quite narrow.`\
-https://nytimes.com/interactive/2025/06/04/upshot/no-tax-on-tips.html
-
-**It’s President Trump Again, This Time in Full Frame**\
-`The official photograph of the president’s second term has the gloss of his 1980s architecture, but its A.I.-like haze is pure 2025.`\
-https://nytimes.com/2025/06/04/arts/design/trump-portrait-presidential.html
 

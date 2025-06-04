@@ -1,3 +1,11 @@
+**Dodgers' Max Muncy continues redemption arc on his season with massive swings in win**\
+`Muncy is mashing again and that is a massive development for the Dodgers and Muncy alike.`\
+https://nytimes.com/athletic/6401838/2025/06/04/dodgers-max-muncy-redemption-arc/
+
+**'Everybody is like robots': Alexander Bublik and the art of being a normal tennis player**\
+`The mercurial talent faces world No. 1 Jannik Sinner in the French Open quarterfinals. But who is the more normal tennis player?`\
+https://nytimes.com/athletic/6400643/2025/06/04/tennis-bublik-sinner-french-open-training-sacrifice-normal/
+
 **Bills OTA observations: Maxwell Hairston's potential, opportunity for Joe Andreessen and more**\
 `Plus, Joshua Palmer's undisclosed injury and Mitchell Trubisky's increased workload.`\
 https://nytimes.com/athletic/6400894/2025/06/04/bills-ota-observations-maxwell-hairston-joe-andreessen/
