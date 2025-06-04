@@ -1,3 +1,15 @@
+**Revised 4-seam fastball key to Jhoan Duran's resurgence, reliever of the month award**\
+`Tuesday, Duran became the first Twins reliever to be named the AL's reliever of the month since Joe Nathan in June 2009.`\
+https://nytimes.com/athletic/6401713/2025/06/04/twins-jhoan-duran-resurgence-reliever-of-the-month/
+
+**The New York Times in Print for Wednesday, June 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/04/todays-new-york-times
+
+**Ukraine’s Attack Exposed America’s Achilles’ Heel**\
+`What happened in Russia can happen in the United States — or anywhere else.`\
+https://nytimes.com/2025/06/04/opinion/ukraine-attack-russia-us.html
+
 **Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
 `López allowed two earned runs, four hits and walked three in five innings before leaving the game with the Twins ahead 5-2.`\
 https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/

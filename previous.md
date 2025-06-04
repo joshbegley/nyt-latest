@@ -1,3 +1,15 @@
+**Revised 4-seam fastball key to Jhoan Duran's resurgence, reliever of the month award**\
+`Tuesday, Duran became the first Twins reliever to be named the AL's reliever of the month since Joe Nathan in June 2009.`\
+https://nytimes.com/athletic/6401713/2025/06/04/twins-jhoan-duran-resurgence-reliever-of-the-month/
+
+**The New York Times in Print for Wednesday, June 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/04/todays-new-york-times
+
+**Ukraine’s Attack Exposed America’s Achilles’ Heel**\
+`What happened in Russia can happen in the United States — or anywhere else.`\
+https://nytimes.com/2025/06/04/opinion/ukraine-attack-russia-us.html
+
 **Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
 `López allowed two earned runs, four hits and walked three in five innings before leaving the game with the Twins ahead 5-2.`\
 https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6401670/2025/06/04/jazz-chisholm-devin-williams-yan
 **Didier Deschamps on the brilliance of Doue and Yamal - and why he can't 'copy and paste' PSG's success**\
 `Deschamps speaks about PSG's Champions League success, the form of Mbappe, and making decisions for the future of this France team, not him`\
 https://nytimes.com/athletic/6399265/2025/06/04/didier-deschamps-france-doue-nations-league-spain-yamal/
-
-**They tried to make him go to Riyadh… Why Bruno saying no to Saudi should be celebrated**\
-`The United captain's rejection of Al Hilal offer should please all Premier League fans`\
-https://nytimes.com/athletic/6399684/2025/06/04/bruno-fernandes-rejected-al-hilal-why-it-should-be-celebrated/
-
-**Barcelona's pursuit of Joan Garcia and the complicated goalkeeper scenario it could unleash**\
-`The Espanyol goalkeeper has a release clause that makes him a real bargain in 2025 - but there are complications too`\
-https://nytimes.com/athletic/6400233/2025/06/04/joan-garcia-barcelona-goalkeeper-situation/
-
-**Gyokeres or Sesko for Arsenal? We asked agents, sporting directors and coaches who they'd pick**\
-`There are arguments for and against both strikers, while Arteta, Berta and fans will all have their views. What the key discussion points?`\
-https://nytimes.com/athletic/6399533/2025/06/04/gyokeres-sesko-arsenal-transfers-arteta-berta/
 
