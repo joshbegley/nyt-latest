@@ -1,3 +1,11 @@
+**Republicans Try to Discredit Experts Warning About the Cost of Tax Cuts**\
+`President Trump and his allies have united around a new foe: the economists and budget experts who have warned about the costs of Republicans’ tax ambitions.`\
+https://nytimes.com/2025/06/04/us/politics/trump-budget-bill-republicans-tax-cuts.html
+
+**Deadly Crowd Crush Mars Celebration for Indian Cricket Championship**\
+`At least 11 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
+https://nytimes.com/2025/06/04/world/asia/india-bengaluru-cricket-stampede.html
+
 **Spurs need to make a decision on Postecoglou now, before it hurts their plans for next season**\
 `The ongoing uncertainty surrounding the Tottenham head coach's future will soon start to damage preparations for the coming campaign `\
 https://nytimes.com/athletic/6402083/2025/06/04/tottenham-postecoglou-decision-plan-next-season/

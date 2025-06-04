@@ -1,3 +1,7 @@
+**Republicans Try to Discredit Experts Warning About the Cost of Tax Cuts**\
+`President Trump and his allies have united around a new foe: the economists and budget experts who have warned about the costs of Republicans’ tax ambitions.`\
+https://nytimes.com/2025/06/04/us/politics/trump-budget-bill-republicans-tax-cuts.html
+
 **Spurs need to make a decision on Postecoglou now, before it hurts their plans for next season**\
 `The ongoing uncertainty surrounding the Tottenham head coach's future will soon start to damage preparations for the coming campaign `\
 https://nytimes.com/athletic/6402083/2025/06/04/tottenham-postecoglou-decision-plan-next-season/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/06/04/climate/climate-change-drought.html
 https://nytimes.com/athletic/6399405/2025/06/04/man-city-jack-grealish-club-world-cup/
 
 **Deadly Crowd Crush Mars Celebration for Indian Cricket Championship**\
-`At least 10 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
+`At least 11 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
 https://nytimes.com/2025/06/04/world/asia/india-bengaluru-cricket-stampede.html
 
 **House Tours**\
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/de-beers/botswana.html
 **A Black Brazilian Artist Who Wields Poetry and Persistence**\
 `Allegorical forest creatures meet ethnographic archives in Rosana Paulino’s art — influential in Brazil, and now on view in New York.`\
 https://nytimes.com/2025/06/04/arts/design/rosana-paulino-brazil-studio.html
-
-**Six big questions about these NBA Finals and why OKC will win in the end**\
-`Which Pacers defender will try to stop the NBA MVP? And whose depth will hold up best?`\
-https://nytimes.com/athletic/6401218/2025/06/04/nba-finals-2025-pacers-thunder-preview-predictions/
 
