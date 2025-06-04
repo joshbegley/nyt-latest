@@ -1,3 +1,7 @@
+**U.S. Vetoes U.N. Resolution Demanding Immediate Gaza Cease-Fire**\
+`The Security Council resolution also sought the release of all the hostages and the resumption of full-scale aid deliveries.`\
+https://nytimes.com/2025/06/04/world/middleeast/un-security-council-gaza-cease-fire.html
+
 **Pacers' Rick Carlisle thought Knicks firing Tom Thibodeau was 'fake AI'**\
 `Carlisle’s Pacers were the last team that Thibodeau coached against while directing the Knicks.`\
 https://nytimes.com/athletic/6403419/2025/06/04/pacers-thunder-nba-finals-knicks-tom-thibodeau/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/04/science/craters-bumps-moon-quiz.html
 **Alf Clausen, Who Gave ‘The Simpsons’ Its Musical Identity, Dies at 84**\
 `He created the music for hundreds of episodes over 27 seasons, spanning jazz, rock, blues and musicals. He won two Emmys and was nominated for 28 more.`\
 https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead-the-simpsons.html
-
-**To Bolster Columbia Inquiry, Prosecutor Likened Hamas Graffiti to Cross Burning**\
-`An internal Justice Department clash over safety and free speech rights centered on vandalism directed at Columbia University’s interim president.`\
-https://nytimes.com/2025/06/04/us/politics/columbia-protester-hamas-cross.html
 

@@ -1,3 +1,7 @@
+**U.S. Vetoes U.N. Resolution Demanding Immediate Gaza Cease-Fire**\
+`The Security Council resolution also sought the release of all the hostages and the resumption of full-scale aid deliveries.`\
+https://nytimes.com/2025/06/04/world/middleeast/un-security-council-gaza-cease-fire.html
+
 **Pacers' Rick Carlisle thought Knicks firing Tom Thibodeau was 'fake AI'**\
 `Carlisle’s Pacers were the last team that Thibodeau coached against while directing the Knicks.`\
 https://nytimes.com/athletic/6403419/2025/06/04/pacers-thunder-nba-finals-knicks-tom-thibodeau/
