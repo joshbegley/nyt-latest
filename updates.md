@@ -1,3 +1,15 @@
+**Pelicans leadership addresses future with Zion Williamson following rape accusation**\
+`Star forward was accused of rape and domestic violence in a civil lawsuit last week.`\
+https://nytimes.com/athletic/6403223/2025/06/04/pelicans-joe-dumars-gayle-benson-zion-williamson-rape-lawsuit/
+
+**'Madden NFL 26' highlights Travis Hunter as a Jaguar, new game features**\
+`EA Sports released its "Madden NFL 26" trailer Wednesday, fully loaded with NFL highlights and staples.`\
+https://nytimes.com/athletic/6403239/2025/06/04/madden-nfl-26-trailer-highlights-game-features/
+
+**What Saquon Barkley's retirement talk means for his fantasy football stock**\
+`What Saquon Barkley's retirement remarks on Chris Long's podcast mean for fantasy football enthusiasts. `\
+https://nytimes.com/athletic/6402615/2025/06/04/saquon-barkley-retirement-dynasty-fantasy-football/
+
 **Lawsuit Seeks to Release Family of Suspect in Colorado Attack**\
 `The suit, filed by lawyers for the wife and children of the man charged with attacking an event supporting hostages in Gaza, also asks a judge to block their deportation.`\
 https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
