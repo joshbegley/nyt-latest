@@ -1,3 +1,7 @@
+**Penguins hire Dan Muse as head coach to replace Mike Sullivan**\
+`Muse has also been an assistant with the Predators and head coach of the U.S. NTDP.`\
+https://nytimes.com/athletic/6402919/2025/06/04/penguins-dan-muse-coach-nhl/
+
 **Suns hiring Cavaliers assistant Jordan Ott as next head coach: Source**\
 `The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach`\
 https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/

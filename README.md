@@ -1,8 +1,12 @@
+**FIFA slashes ticket prices for Club World Cup opener, tens of thousands unsold**\
+`Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
+https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
+
 **Suns hiring Cavaliers assistant Jordan Ott as next head coach: Source**\
 `The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach`\
 https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/
 
-**The White House Wants 90 Trade Deals in 90 Days. 60 Days In, It May Have 1.**\
+**The White House Wants 90 Trade Deals in 90 Days. So Far, It May Have 1.**\
 `It takes years to close a typical trade deal. How do the current talks compare?`\
 https://nytimes.com/interactive/2025/06/04/business/economy/trump-tariffs-trade-deals-timeline.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402919/2025/06/04/penguins-dan-muse-coach-nhl/
 **FanDuel bans bettor for heckling Gabby Thomas at Philadelphia track meet**\
 `The betting platform took action after Thomas said Monday that a sports bettor followed her around Franklin Field and heckled her.`\
 https://nytimes.com/athletic/6402784/2025/06/04/fanduel-bans-bettor-heckling-gabby-thomas/
-
-**The Windup: Once-lauded prospect finally breaking through**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6401830/2025/06/04/ronny-mauricio-mets-the-windup/
 
