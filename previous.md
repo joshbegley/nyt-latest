@@ -1,3 +1,15 @@
+**After source of death threats identified, Astros' Lance McCullers Jr. happy 'it's behind us'**\
+`McCullers said he had not heard from the person accused of making the threats but would be open to an apology.`\
+https://nytimes.com/athletic/6401543/2025/06/03/astros-lance-mccullers-jr-death-threats-source-reaction/
+
+**Chargers OTA observations, Week 2: Zion Johnson at center, rookies on acclimation plan**\
+`Tuesday's practice was the team's second OTA open to the media.`\
+https://nytimes.com/athletic/6401482/2025/06/03/chargers-otas-week-2-observations/
+
+**Day 3: Master the Art of Daydreaming**\
+`Today, let’s get lost in our thoughts.`\
+https://nytimes.com/interactive/2025/well/creativity-daydreaming-intentional-thinking.html
+
 **Before the Attack in Boulder, the Gaza War Consumed the City Council**\
 `Activists have regularly disrupted council meetings to demand that the city call for a cease-fire in Gaza. The unusual tension suggests a changing Boulder.`\
 https://nytimes.com/2025/06/03/us/boulder-colorado-attack-city-council.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6401301/2025/06/03/pacers-weather-delay-oklahoma-ci
 **Connor McDavid looks to join Gretzky, Crosby and others as 'revenge' Cup winners**\
 `McDavid is known to have a "singular focus" on winning a championship — but he will have to get past the Florida Panthers this time.`\
 https://nytimes.com/athletic/6401217/2025/06/03/mcdavid-stanley-cup-rematch-oilers/
-
-**After Muscling Their Bill Through the House, Some Republicans Have Regrets**\
-`The sprawling legislation carrying President Trump’s domestic agenda squeaked through the House with one vote to spare, but some Republicans now say they didn’t realize what they voted for.`\
-https://nytimes.com/2025/06/03/us/politics/house-republicans-policy-bill-regrets.html
-
-**In N.Y.C. Mayor’s Race, Mamdani Responds to a Call for His Deportation**\
-`Vickie Paladino, a councilwoman from Queens, called Zohran Mamdani a “radical leftist” who hates America, and warned against “future Zohrans.”`\
-https://nytimes.com/2025/06/03/nyregion/mamdani-deport-paladino.html
-
-**Justice Dept. Drops Biden-Era Push to Obtain Peter Navarro’s Emails**\
-`The department’s move is one of many recent actions taken to dismiss criminal and civil actions against Trump allies such as Mr. Navarro, the president’s trade adviser.`\
-https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html
 

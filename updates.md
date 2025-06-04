@@ -1,3 +1,15 @@
+**After source of death threats identified, Astros' Lance McCullers Jr. happy 'it's behind us'**\
+`McCullers said he had not heard from the person accused of making the threats but would be open to an apology.`\
+https://nytimes.com/athletic/6401543/2025/06/03/astros-lance-mccullers-jr-death-threats-source-reaction/
+
+**Chargers OTA observations, Week 2: Zion Johnson at center, rookies on acclimation plan**\
+`Tuesday's practice was the team's second OTA open to the media.`\
+https://nytimes.com/athletic/6401482/2025/06/03/chargers-otas-week-2-observations/
+
+**Day 3: Master the Art of Daydreaming**\
+`Today, let’s get lost in our thoughts.`\
+https://nytimes.com/interactive/2025/well/creativity-daydreaming-intentional-thinking.html
+
 **Before the Attack in Boulder, the Gaza War Consumed the City Council**\
 `Activists have regularly disrupted council meetings to demand that the city call for a cease-fire in Gaza. The unusual tension suggests a changing Boulder.`\
 https://nytimes.com/2025/06/03/us/boulder-colorado-attack-city-council.html
