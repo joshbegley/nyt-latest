@@ -1,3 +1,15 @@
+**Botswana**\
+`Diamonds have shaped Botswana’s economy, society and environment. Three experts share how the country is building on this legacy to shape its future.`\
+https://nytimes.com/paidpost/de-beers/botswana.html
+
+**A Black Brazilian Artist Who Wields Poetry and Persistence**\
+`Allegorical forest creatures meet ethnographic archives in Rosana Paulino’s art — influential in Brazil, and now on view in New York.`\
+https://nytimes.com/2025/06/04/arts/design/rosana-paulino-brazil-studio.html
+
+**Six big questions about these NBA Finals and why OKC will win in the end**\
+`Which Pacers defender will try to stop the NBA MVP? And whose depth will hold up best?`\
+https://nytimes.com/athletic/6401218/2025/06/04/nba-finals-2025-pacers-thunder-preview-predictions/
+
 **Dealing With Family Estrangement? These Books Can Help.**\
 `Researchers share the titles they recommend most often.`\
 https://nytimes.com/2025/06/04/well/family-estrangement-books.html
