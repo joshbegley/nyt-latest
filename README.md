@@ -1,3 +1,7 @@
+**Jury in El Salvador Convicts 3 Ex-Officers in 1982 Killings of Dutch Journalists**\
+`A jury convicted the former military officers for the murder of four Dutch television journalists who were covering the Salvadoran civil war.`\
+https://nytimes.com/2025/06/04/world/americas/el-salvador-killings-dutch-journalists-1982.html
+
 **Lois Boisson's French Open fairytale continues with stunning win over Mirra Andreeva**\
 `Boisson saved two set points and rode the support of a raucous Paris crowd to reach the Roland Garros last four as Andreeva imploded.`\
 https://nytimes.com/athletic/6402550/2025/06/04/tennis-lois-boisson-french-open-mirra-andreeva-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/weather/air-quality-wildfire-smoke-sahara-dust.ht
 **Who stays, who goes for the Kings this summer? Will Phillip Danault be back?**\
 `How much will new GM Ken Holland change after the Kings' fourth consecutive first-round playoff loss?`\
 https://nytimes.com/athletic/6398875/2025/06/04/la-kings-offseason-trade-free-agent/
-
-**Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
-`The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
-https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test-darvish/
 
