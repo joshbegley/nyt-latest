@@ -1,3 +1,15 @@
+**Pelicans leadership addresses future with Zion Williamson following rape accusation**\
+`Star forward was accused of rape and domestic violence in a civil lawsuit last week.`\
+https://nytimes.com/athletic/6403223/2025/06/04/pelicans-joe-dumars-gayle-benson-zion-williamson-rape-lawsuit/
+
+**'Madden NFL 26' highlights Travis Hunter as a Jaguar, new game features**\
+`EA Sports released its "Madden NFL 26" trailer Wednesday, fully loaded with NFL highlights and staples.`\
+https://nytimes.com/athletic/6403239/2025/06/04/madden-nfl-26-trailer-highlights-game-features/
+
+**What Saquon Barkley's retirement talk means for his fantasy football stock**\
+`What Saquon Barkley's retirement remarks on Chris Long's podcast mean for fantasy football enthusiasts. `\
+https://nytimes.com/athletic/6402615/2025/06/04/saquon-barkley-retirement-dynasty-fantasy-football/
+
 **Lawsuit Seeks to Release Family of Suspect in Colorado Attack**\
 `The suit, filed by lawyers for the wife and children of the man charged with attacking an event supporting hostages in Gaza, also asks a judge to block their deportation.`\
 https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
 **Israel, Fighting a War, Says It Sold More Weapons Than Ever Last Year**\
 `The exports show how Israel is pursuing new markets as its forces battle on multiple fronts.`\
 https://nytimes.com/2025/06/04/world/middleeast/israel-weapons-sales.html
-
-**Our Regression on Gender Is a Tragedy, Not Just a Political Problem**\
-`Progress seemed inevitable just a few years ago. Now it is in danger.`\
-https://nytimes.com/2025/06/04/opinion/gender-polarization.html
-
-**How Trump Talks About Antisemitism**\
-`On the campaign trail, President Donald Trump repeatedly promised voters that he’d be the “best friend Jewish Americans have ever had in the White House.`\
-https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.html
-
-**USWNT honors former captain Becky Sauerbrunn with bobbleheads, fireworks and a dominant win**\
-`Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
-https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
 
