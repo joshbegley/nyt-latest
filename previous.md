@@ -1,3 +1,19 @@
+**Bills OTA observations: Maxwell Hairston's potential, opportunity for Joe Andreessen and more**\
+`Plus, Joshua Palmer's undisclosed injury and Mitchell Trubisky's increased workload.`\
+https://nytimes.com/athletic/6400894/2025/06/04/bills-ota-observations-maxwell-hairston-joe-andreessen/
+
+**Eagles OTAs observations: Vic Fangio talks Cooper DeJean, Bryce Huff**\
+`Plus, what Jihaad Campbell is doing while he can't be on the practice field.`\
+https://nytimes.com/athletic/6400235/2025/06/04/eagles-otas-observations-vic-fangio-talks-cooper-dejean-bryce-huff/
+
+**The New York Times International Edition in Print for Thursday, June 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/04/todays-new-york-times-international-edition
+
+**​South Korea’s New Leader Name Checks North Korea but Not China**\
+`Lee Jae-myung’s inauguration speech was a sign of the diplomatic maneuvering he will need to pull off to navigate relations with China and the United States.`\
+https://nytimes.com/2025/06/04/world/asia/south-korea-president-north-china.html
+
 **How to watch Germany vs. Portugal in UEFA Nations League semifinal**\
 `Wednesday’s Nations League semifinal is a good one. Germany plays on a home pitch, welcoming Ronaldo and Portugal.`\
 https://nytimes.com/athletic/6400623/2025/06/04/germany-portugal-uefa-nations-league-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/06/04/upshot/no-tax-on-tips.html
 **It’s President Trump Again, This Time in Full Frame**\
 `The official photograph of the president’s second term has the gloss of his 1980s architecture, but its A.I.-like haze is pure 2025.`\
 https://nytimes.com/2025/06/04/arts/design/trump-portrait-presidential.html
-
-**Sean Combs, Defendant: Gestures to His Family, Sticky Notes to His Lawyers**\
-`With no cameras in the courtroom, few have glimpsed the music mogul as he helps direct his defense, facing charges that could put him in prison for the rest of his life.`\
-https://nytimes.com/2025/06/04/arts/music/sean-combs-diddy-court-defendant.html
-
-**Drone Attacks Are the New Front in War. NATO Is Trying to Catch Up.**\
-`Assaults in Russia and Ukraine have shown major military powers that they are unprepared for evolving forms of warfare, and need to adapt.`\
-https://nytimes.com/2025/06/04/world/europe/ukraine-russia-drones-nato.html
-
-**Can Embracing Punk Save Gen Z — and Our Flailing Country?**\
-`As a “punk, queer grandpa,” John Cameron Mitchell thinks so.`\
-https://nytimes.com/2025/06/04/opinion/punk-gen-z-politics.html
-
-**At 85, Annea Lockwood Isn’t Done Listening to the Earth**\
-`Lockwood, a composer who spins music from the sounds of the natural world, is sharing with and learning from a new generation of artists.`\
-https://nytimes.com/2025/06/04/arts/music/annea-lockwood-composer.html
 
