@@ -1,3 +1,15 @@
+**Spurs need to make a decision on Postecoglou now, before it hurts their plans for next season**\
+`The ongoing uncertainty surrounding the Tottenham head coach's future will soon start to damage preparations for the coming campaign `\
+https://nytimes.com/athletic/6402083/2025/06/04/tottenham-postecoglou-decision-plan-next-season/
+
+**Sporting director Hobbs leaves Wolves**\
+`Wolves are preparing to restructure their football department with Jorge Mendes and his Gestifute agency to have a more prominent role.`\
+https://nytimes.com/athletic/6402030/2025/06/04/wolves-sporting-director-hobbs/
+
+**With win against Marlins, Rockies snap streak of 22 straight series losses**\
+`The streak, which dates back to last season, concluded with a narrow 3-2 win in Miami.`\
+https://nytimes.com/athletic/6402664/2025/06/04/rockies-colorado-series-losing-streak-mlb-history/
+
 **Rockies snap streak of 22 straight series losses against Marlins**\
 `The streak, which dates back to last season, concluded with a narrow 3-2 win in Miami.`\
 https://nytimes.com/athletic/6402664/2025/06/04/rockies-colorado-series-losing-streak-mlb-history/

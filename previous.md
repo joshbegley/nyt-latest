@@ -1,4 +1,12 @@
-**Rockies snap streak of 22 straight series losses against Marlins**\
+**Spurs need to make a decision on Postecoglou now, before it hurts their plans for next season**\
+`The ongoing uncertainty surrounding the Tottenham head coach's future will soon start to damage preparations for the coming campaign `\
+https://nytimes.com/athletic/6402083/2025/06/04/tottenham-postecoglou-decision-plan-next-season/
+
+**Sporting director Hobbs leaves Wolves**\
+`Wolves are preparing to restructure their football department with Jorge Mendes and his Gestifute agency to have a more prominent role.`\
+https://nytimes.com/athletic/6402030/2025/06/04/wolves-sporting-director-hobbs/
+
+**With win against Marlins, Rockies snap streak of 22 straight series losses**\
 `The streak, which dates back to last season, concluded with a narrow 3-2 win in Miami.`\
 https://nytimes.com/athletic/6402664/2025/06/04/rockies-colorado-series-losing-streak-mlb-history/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/arts/design/rosana-paulino-brazil-studio.html
 **Six big questions about these NBA Finals and why OKC will win in the end**\
 `Which Pacers defender will try to stop the NBA MVP? And whose depth will hold up best?`\
 https://nytimes.com/athletic/6401218/2025/06/04/nba-finals-2025-pacers-thunder-preview-predictions/
-
-**Dealing With Family Estrangement? These Books Can Help.**\
-`Researchers share the titles they recommend most often.`\
-https://nytimes.com/2025/06/04/well/family-estrangement-books.html
-
-**I Think My Son Is Gay. Should I Talk to Him About Coming Out?**\
-`I’d love to be able to have honest conversations about what he’s going through.`\
-https://nytimes.com/2025/06/04/magazine/lgbtq-coming-out-children-ethics.html
 
