@@ -1,3 +1,7 @@
+**Rockies snap streak of 22 straight series losses against Marlins**\
+`The streak, which dates back to last season, concluded with a narrow 3-2 win in Miami.`\
+https://nytimes.com/athletic/6402664/2025/06/04/rockies-colorado-series-losing-streak-mlb-history/
+
 **It’s Not Just Poor Rains Causing Drought. The Atmosphere Is ‘Thirstier.’**\
 `Higher temperatures caused by climate change are driving complex processes that make droughts bigger and more severe, new research shows.`\
 https://nytimes.com/2025/06/04/climate/climate-change-drought.html

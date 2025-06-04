@@ -1,3 +1,7 @@
+**Rockies snap streak of 22 straight series losses against Marlins**\
+`The streak, which dates back to last season, concluded with a narrow 3-2 win in Miami.`\
+https://nytimes.com/athletic/6402664/2025/06/04/rockies-colorado-series-losing-streak-mlb-history/
+
 **It’s Not Just Poor Rains Causing Drought. The Atmosphere Is ‘Thirstier.’**\
 `Higher temperatures caused by climate change are driving complex processes that make droughts bigger and more severe, new research shows.`\
 https://nytimes.com/2025/06/04/climate/climate-change-drought.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/well/family-estrangement-books.html
 **I Think My Son Is Gay. Should I Talk to Him About Coming Out?**\
 `I’d love to be able to have honest conversations about what he’s going through.`\
 https://nytimes.com/2025/06/04/magazine/lgbtq-coming-out-children-ethics.html
-
-**Ready for Their Reboot: How Galleries Plumb Art History’s Forgotten Talent**\
-`Call it the ‘‘rediscovery industrial complex”: Art advisers and dealers are turning to the past to discover tomorrow’s blue-chip stars.`\
-https://nytimes.com/2025/06/04/arts/design/rediscovery-artist-dealer-market-levy-gorvy-dayan.html
 
