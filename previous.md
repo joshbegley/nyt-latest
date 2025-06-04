@@ -1,3 +1,27 @@
+**Eastern U.S. Is Shrouded in Smoke and Dust**\
+`Smoke from Canadian wildfires and desert dust from the Sahara are creating unhealthy air quality from New York City to Miami.`\
+https://nytimes.com/2025/06/04/weather/air-quality-wildfire-smoke-sahara-dust.html
+
+**Who stays, who goes for the Kings this summer? Will Phillip Danault be back?**\
+`How much will new GM Ken Holland change after the Kings' fourth consecutive first-round playoff loss?`\
+https://nytimes.com/athletic/6398875/2025/06/04/la-kings-offseason-trade-free-agent/
+
+**Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
+`The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
+https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test-darvish/
+
+**Mings signs new Villa contract through to 2027**\
+`Mings had been set to enter the final 12 months of his existing deal and his form had been praised by Villa head coach Unai Emery.`\
+https://nytimes.com/athletic/6402388/2025/06/04/tyrone-mings-aston-villa-contract-how-long/
+
+**In Puerto Rico, a Struggle for Power Comes to Light**\
+`The Trump administration is clawing back millions in climate grants promised to credit unions in Puerto Rico. A reporter traveled to the island to meet people affected by the rollback.`\
+https://nytimes.com/2025/06/04/insider/puerto-rico-power-outage.html
+
+**May I Tell My Teenage Children About My Ex-Husband’s Abusive Father?**\
+`A reader worries that if she doesn’t act, the two teenagers she shares with her ex will hear about their grandfather’s predations from cousins.`\
+https://nytimes.com/2025/06/04/style/co-parenting-family-secrets.html
+
 **‘She’s been with us’: Loving traces of late daughter surround Texas Tech coach at WCWS**\
 `“For us, it’s like you can’t go anywhere in the softball community without some sort of tie to Geri Ann.”`\
 https://nytimes.com/athletic/6402296/2025/06/04/texas-tech-softball-wcws-gerry-glasco/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6402400/2025/06/04/arsenal-chloe-kelly-permanent-tr
 **WATCH: Free-throw merchant? How Shai Gilgeous-Alexander draws so many fouls**\
 `Many opponents say the NBA's MVP relies too much on fooling referees to draw fouls. But as we explain, these are hardly cheap tricks. `\
 https://nytimes.com/athletic/6401632/2025/06/04/sga-shai-gilgeous-alexander-thunder-free-throw-merchant/
-
-**Middlesbrough part company with Michael Carrick**\
-`Carrick was appointed in October 2022 and finished fourth, eighth and 10th in three Championship campaigns.`\
-https://nytimes.com/athletic/6152780/2025/06/04/michael-carrick-middlesbrough-sacked/
-
-**Como confident of keeping Fabregas amid Inter interest**\
-`Fabregas, in his first full season in management, guided Como to a 10th-placed finish in Serie A.`\
-https://nytimes.com/athletic/6349534/2025/06/04/cesc-fabregas-como-inter/
-
-**The Women Who Try to Keep Pace With Ethan Hunt**\
-`Over eight installments, the “Mission: Impossible” franchise has never quite found the perfect match for Tom Cruise’s world-saving spy.`\
-https://nytimes.com/2025/06/04/movies/women-mission-impossible-ethan-hunt.html
-
-**Shai Gilgeous-Alexander, Tyrese Haliburton card values on the rise ahead of NBA Finals**\
-`The young star who can claim his first NBA title will likely firm up his standing in the collectibles world`\
-https://nytimes.com/athletic/6400462/2025/06/04/shai-gilgeous-alexander-tyrese-haliburton-rookie-cards/
-
-**Wheeler's mailbag: 2025 vs. 2026 draft, Brady Martin vs. Mason McTavish, sleepers**\
-`This is it: the last mailbag from Scott Wheeler of the 2025 NHL Draft season.`\
-https://nytimes.com/athletic/6399994/2025/06/04/nhl-draft-2025-2026-mailbag-wheeler/
-
-**Tijjani Reijnders analysed: A ready-made 'Guardiola player' with the traits of some City greats**\
-`What the 26-year-old Milan and Netherlands international midfielder would bring to the Etihad...`\
-https://nytimes.com/athletic/6355809/2025/06/04/tijjani-reijnders-analysed/
 

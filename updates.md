@@ -1,3 +1,27 @@
+**Eastern U.S. Is Shrouded in Smoke and Dust**\
+`Smoke from Canadian wildfires and desert dust from the Sahara are creating unhealthy air quality from New York City to Miami.`\
+https://nytimes.com/2025/06/04/weather/air-quality-wildfire-smoke-sahara-dust.html
+
+**Who stays, who goes for the Kings this summer? Will Phillip Danault be back?**\
+`How much will new GM Ken Holland change after the Kings' fourth consecutive first-round playoff loss?`\
+https://nytimes.com/athletic/6398875/2025/06/04/la-kings-offseason-trade-free-agent/
+
+**Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
+`The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
+https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test-darvish/
+
+**Mings signs new Villa contract through to 2027**\
+`Mings had been set to enter the final 12 months of his existing deal and his form had been praised by Villa head coach Unai Emery.`\
+https://nytimes.com/athletic/6402388/2025/06/04/tyrone-mings-aston-villa-contract-how-long/
+
+**In Puerto Rico, a Struggle for Power Comes to Light**\
+`The Trump administration is clawing back millions in climate grants promised to credit unions in Puerto Rico. A reporter traveled to the island to meet people affected by the rollback.`\
+https://nytimes.com/2025/06/04/insider/puerto-rico-power-outage.html
+
+**May I Tell My Teenage Children About My Ex-Husband’s Abusive Father?**\
+`A reader worries that if she doesn’t act, the two teenagers she shares with her ex will hear about their grandfather’s predations from cousins.`\
+https://nytimes.com/2025/06/04/style/co-parenting-family-secrets.html
+
 **‘She’s been with us’: Loving traces of late daughter surround Texas Tech coach at WCWS**\
 `“For us, it’s like you can’t go anywhere in the softball community without some sort of tie to Geri Ann.”`\
 https://nytimes.com/athletic/6402296/2025/06/04/texas-tech-softball-wcws-gerry-glasco/
