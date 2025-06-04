@@ -1,3 +1,23 @@
+**How Trump Talks About Antisemitism**\
+`On the campaign trail, President Donald Trump repeatedly promised voters that he’d be the “best friend Jewish Americans have ever had in the White House.`\
+https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.html
+
+**USWNT honors former captain Becky Sauerbrunn with bobbleheads, fireworks and a dominant win**\
+`Listening to her former teammates, it's clear that Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
+https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
+
+**For NBA referees, earning the White Jacket is the pinnacle of their profession**\
+`NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
+https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
+
+**Man Is Accused of Aiding California Fertility Clinic Bomber**\
+`Daniel Park, 32, of Washington State, was arrested Tuesday night at Kennedy Airport and charged with providing material support to terrorists, officials said.`\
+https://nytimes.com/2025/06/04/nyregion/palm-springs-explosion-kennedy-arrest.html
+
+**Reddit Sues Anthropic, Accusing It of Illegally Using Data From Its Site**\
+`In its lawsuit, Reddit said Anthropic had also declined to enter into a licensing agreement for data and had unjustly enriched itself at Reddit’s expense.`\
+https://nytimes.com/2025/06/04/technology/reddit-anthropic-lawsuit-data.html
+
 **Connecticut Brings Its ‘Best Pizza’ Brag to the Heart of New York**\
 `Billboards heralding the state’s pies have popped up next to some of the city’s most celebrated pizzerias, provoking locals and confusing tourists.`\
 https://nytimes.com/2025/06/04/dining/connecticut-best-pizza.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/04/sports/trail-ride-black-horseman.html
 **Equestrian Special Reports**\
 ``\
 https://nytimes.com/spotlight/equestrian-horse-riding
-
-**TikTok Was Always Just the Start for Addison Rae**\
-`“Taste is kind of a luxury,” the actress, singer and social media star Addison Rae said. In an interview with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, she discussed how she always hoped to use TikTok as a bridge to something bigger.`\
-https://nytimes.com/video/podcasts/100000010207429/tiktok-was-always-just-the-start-for-addison-rae.html
-
-**Tiny Love Stories: ‘A Wise Friend Warned Me About Divorce’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/06/04/style/tiny-modern-love-stories-a-wise-friend-warned-me-about-divorce.html
-
-**Putin and Zelensky Trade Accusations Amid Escalating Attacks**\
-`The belligerent language and the recent strikes make clear that a wide gap separates Ukraine and Russia, even as their officials have been engaged in direct talks.`\
-https://nytimes.com/2025/06/04/world/europe/putin-zelensky-accusations-escalation.html
-
-**French Open accused of declining TV request to play Lois Boisson match in night session**\
-`There have been no French Open women's matches during the primetime Court Philippe-Chatrier night session for the second year in a row.`\
-https://nytimes.com/athletic/6402081/2025/06/04/tennis-french-open-lois-boisson-night-session-television-amazon-prime/
-
-**Trump Says Putin Plans to Retaliate for Ukrainian Attack on Its Warplanes**\
-`President Trump said the Russian leader told him “very strongly” in a phone call Wednesday that he would respond to the drone assault on its airfields.`\
-https://nytimes.com/2025/06/04/us/politics/trump-putin-ukraine.html
 
