@@ -1,3 +1,11 @@
+**2 Hikers, a Father and Daughter, Are Found Dead Near Maine’s Highest Peak**\
+`Their bodies were found near the summit of Mount Katahdin, at the end of the Appalachian Trail, officials said, after a search that began on Monday.`\
+https://nytimes.com/2025/06/04/us/mount-katahdin-missing-hikers-search.html
+
+**Nearly All Remaining Voice of America Employees Could Be Fired in Proposed Restructuring**\
+`The federally funded news agency was founded in 1942 to combat Nazi propaganda.`\
+https://nytimes.com/2025/06/04/us/politics/trump-voice-of-america.html
+
 **Zohran Mamdani Has Momentum. Will He Build on it at the Debate?**\
 `Mr. Mamdani, a 33-year-old state lawmaker from Queens, has centered his campaign on a pledge to make New York City more affordable.`\
 https://nytimes.com/2025/06/04/nyregion/zohran-mamdani-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/briefing/republican-bill-trump-putin-ukraine.html
 **Mirra Andreeva and a Roland Garros crowd pulling for its last hope: French Open recap**\
 `Mirra Andreeva had kept the Roland Garros faithful quiet during her match against Loïs Boisson. Then she gave them a chance.`\
 https://nytimes.com/athletic/6402129/2025/06/04/tennis-french-open-quarterfinal-recap/
-
-**Raiders OTAs: Patrick Graham excited to be part of Pete Carroll's new-look defense**\
-`Graham brings continuity to the defense but is happy to incorporate Carroll's input. “With his track record ... why wouldn't you listen?”`\
-https://nytimes.com/athletic/6403706/2025/06/04/raiders-otas-patrick-graham-pete-carroll/
-
-**Novak Djokovic sets up French Open semifinal with Jannik Sinner after win over Alexander Zverev**\
-`Djokovic made Zverev play his game by dragging him to the net. The German could not live with it.`\
-https://nytimes.com/athletic/6403641/2025/06/04/novak-djokovic-french-open-alexander-zverev-result-analysis/
 

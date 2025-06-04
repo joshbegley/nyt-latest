@@ -1,3 +1,11 @@
+**2 Hikers, a Father and Daughter, Are Found Dead Near Maine’s Highest Peak**\
+`Their bodies were found near the summit of Mount Katahdin, at the end of the Appalachian Trail, officials said, after a search that began on Monday.`\
+https://nytimes.com/2025/06/04/us/mount-katahdin-missing-hikers-search.html
+
+**Nearly All Remaining Voice of America Employees Could Be Fired in Proposed Restructuring**\
+`The federally funded news agency was founded in 1942 to combat Nazi propaganda.`\
+https://nytimes.com/2025/06/04/us/politics/trump-voice-of-america.html
+
 **Zohran Mamdani Has Momentum. Will He Build on it at the Debate?**\
 `Mr. Mamdani, a 33-year-old state lawmaker from Queens, has centered his campaign on a pledge to make New York City more affordable.`\
 https://nytimes.com/2025/06/04/nyregion/zohran-mamdani-debate.html
