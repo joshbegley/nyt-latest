@@ -1,3 +1,7 @@
+**China Tries to Stop Smuggling of Rare Earths as Shortages Loom Abroad**\
+`Police officers, customs officials and spies are reinforcing China’s embargo on the critical minerals that it overwhelmingly controls.`\
+https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
+
 **Trump Budget Eliminates Funding for Crucial Global Vaccination Programs**\
 `The spending proposal terminates support of health programs that, according to the proposal, “do not make Americans safer.”`\
 https://nytimes.com/2025/06/04/health/trump-budget-global-health-polio.html
