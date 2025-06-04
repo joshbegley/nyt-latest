@@ -1,3 +1,7 @@
+**Royals' top prospect goes 0 for 5 in MLB debut, but he's a hit anyway**\
+`Jac Caglianone hit into some tough luck all night but that hardly dampened his spirits: "I was just soaking in the sights."`\
+https://nytimes.com/athletic/6401238/2025/06/04/royals-jac-caglianone-mlb-debut/
+
 **Reds beat Brewers on TJ Friedl's walk-off home run robbery**\
 `"You dream of that as an outfielder growing up and in your backyard robbing home runs," Friedl said of Tuesday's 4-2 win.`\
 https://nytimes.com/athletic/6401709/2025/06/04/reds-win-brewers-tj-friedl-walk-off-home-run-robbery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401635/2025/06/04/red-sox-alex-cora-frustration-lo
 **Mamardashvili v Alisson: Could there really be a battle to be Liverpool's No 1?**\
 `The Georgian is earmarked as the club's future No 1, but just like Kelleher he may be stuck in the No 2 spot… at least for now`\
 https://nytimes.com/athletic/6399372/2025/06/04/mamardashvil-alisson-liverpool-kelleher/
-
-**Timing's just right for Yankees as Jazz Chisholm and Devin Williams return to familiar roles**\
-`Chisholm homered in his first game back at third base since the World Series while Devin Williams resumed the closer's role.`\
-https://nytimes.com/athletic/6401670/2025/06/04/jazz-chisholm-devin-williams-yankees/
 
