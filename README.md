@@ -1,3 +1,7 @@
+**6 big questions about these NBA Finals and why OKC will win in the end**\
+`Which Pacers defender will try to stop the NBA MVP? And whose depth will hold up best?`\
+https://nytimes.com/athletic/6401218/2025/06/04/nba-finals-2025-pacers-thunder-preview-predictions/
+
 **Dealing With Family Estrangement? These Books Can Help.**\
 `Researchers share the titles they recommend most often.`\
 https://nytimes.com/2025/06/04/well/family-estrangement-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/fashion/american-woolen-textiles-jacob-long.html
 **What’s in Our Queue? Ezra Collective and More **\
 `Text by Adam Satariano`\
 https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
-
-**Lois Boisson has become the star of the French Open. Her fairytale deserves its most coveted stage**\
-`The biggest story of the French Open is a home wild-card entry who has surged to the semifinals. So why has she had not top billing?`\
-https://nytimes.com/athletic/6399254/2025/06/04/tennis-french-open-night-sessions-women-lois-boisson/
 
