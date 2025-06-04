@@ -1,3 +1,15 @@
+**Jeffrey Epstein Invested With Peter Thiel, and His Estate Is Reaping Millions**\
+`Mr. Epstein, the late financier and sex offender, started by putting $40 million into Valar Ventures, a firm backed by Mr. Thiel. Today that investment is worth about $170 million.`\
+https://nytimes.com/2025/06/04/business/jeffrey-epstein-peter-thiel-estate.html
+
+**Britain Gets a Steel Tariff Carve-Out, but Europe Pays Double**\
+`Despite an exemption from 50 percent tariffs, Britain still has to pay a 25 percent duty because its trade deal with the United States has yet to be put in place.`\
+https://nytimes.com/2025/06/04/business/uk-trump-tariffs-steel.html
+
+**World Aquatics bans Enhanced Games participants**\
+`The federation is the first to adopt a strict no tolerance policy against participants of the controversial competition.`\
+https://nytimes.com/athletic/6402825/2025/06/04/world-aquatics-ban-enhanced-games-athletes/
+
 **Republicans Try to Discredit Experts Warning About the Cost of Tax Cuts**\
 `President Trump and his allies have united around a new foe: the economists and budget experts who have warned about the costs of Republicans’ tax ambitions.`\
 https://nytimes.com/2025/06/04/us/politics/trump-budget-bill-republicans-tax-cuts.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6399405/2025/06/04/man-city-jack-grealish-club-worl
 **Deadly Crowd Crush Mars Celebration for Indian Cricket Championship**\
 `At least 11 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
 https://nytimes.com/2025/06/04/world/asia/india-bengaluru-cricket-stampede.html
-
-**House Tours**\
-``\
-https://nytimes.com/series/house-tours
-
-**Botswana**\
-`Diamonds have shaped Botswana’s economy, society and environment. Three experts share how the country is building on this legacy to shape its future.`\
-https://nytimes.com/paidpost/de-beers/botswana.html
-
-**A Black Brazilian Artist Who Wields Poetry and Persistence**\
-`Allegorical forest creatures meet ethnographic archives in Rosana Paulino’s art — influential in Brazil, and now on view in New York.`\
-https://nytimes.com/2025/06/04/arts/design/rosana-paulino-brazil-studio.html
 
