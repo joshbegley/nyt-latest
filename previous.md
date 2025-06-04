@@ -1,3 +1,31 @@
+**Trump Doubles Steel and Aluminum Tariffs**\
+`The president ratcheted up the rate on foreign metals to 50 percent, saying the former levies weren’t high enough to help the U.S. industry.`\
+https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum.html
+
+**China Really Wants to Attract Talented Scientists. Trump Just Helped.**\
+`Even before the U.S. threatened to bar international students and besieged universities, China’s huge spending campaign on the sciences was bearing fruit.`\
+https://nytimes.com/2025/06/04/world/asia/trump-science-visa-china.html
+
+**Amid Rising Heat, Hajj Becomes Test of Endurance for Pilgrims and Saudi Arabia**\
+`Millions will make the annual pilgrimage to Mecca. The kingdom faces scrutiny over safety after more than 1,300 people died last year.`\
+https://nytimes.com/2025/06/04/world/middleeast/saudi-arabia-hajj-heat.html
+
+**Connections: Sports Edition Coach: Hints for June 4, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6401332/2025/06/04/connections-sports-edition-hints-for-june-4-2025/
+
+**Trump Wants America to Make Things Again. Does It Have What It Takes?**\
+`President Trump wants to revive factories, using tariffs as a tool. Companies that want to re-shore manufacturing are grappling with how to do it.`\
+https://nytimes.com/2025/06/04/business/trump-us-manufacturing.html
+
+**Corrections: June 4, 2025**\
+`Corrections that appeared in print on Wednesday, June 4, 2025.`\
+https://nytimes.com/2025/06/04/pageoneplus/corrections-june-4-2025.html
+
+**On Broadway, Her Set Designs Get a Round of Applause**\
+`In a male-dominated field, Rachel Hauck has made a name for herself with wildly ambitious stage designs, including her huge, Tony-nominated ship at the heart of the musical “Swept Away.”`\
+https://nytimes.com/2025/06/04/arts/rachel-hauck-swept-away-set-design-tonys-2025.html
+
 **Quote of the Day: Young Voters Say Ballot Left Them Uninspired**\
 `Quotation of the Day for Wednesday, June 4, 2025.`\
 https://nytimes.com/2025/06/03/pageoneplus/quote-of-the-day-young-voters-say-ballot-left-them-uninspired.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6401524/2025/06/03/tony-clark-mlbpa-lawyers-federal
 **After source of death threats identified, Astros' Lance McCullers Jr. happy 'it's behind us'**\
 `McCullers said he had not heard from the person accused of making the threats but would be open to an apology.`\
 https://nytimes.com/athletic/6401543/2025/06/03/astros-lance-mccullers-jr-death-threats-source-reaction/
-
-**Chargers OTA observations, Week 2: Zion Johnson at center, rookies on acclimation plan**\
-`Tuesday's practice was the team's second OTA open to the media.`\
-https://nytimes.com/athletic/6401482/2025/06/03/chargers-otas-week-2-observations/
-
-**Day 3: Master the Art of Daydreaming**\
-`Today, let’s get lost in our thoughts.`\
-https://nytimes.com/interactive/2025/well/creativity-daydreaming-intentional-thinking.html
-
-**Before the Attack in Boulder, the Gaza War Consumed the City Council**\
-`Activists have regularly disrupted council meetings to demand that the city call for a cease-fire in Gaza. The unusual tension suggests a changing Boulder.`\
-https://nytimes.com/2025/06/03/us/boulder-colorado-attack-city-council.html
-
-**Bit of Light**\
-`Danna Rosenberg finds a positive spin.`\
-https://nytimes.com/2025/06/03/crosswords/daily-puzzle-2025-06-04.html
-
-**Trump Asks Congress to Claw Back $9 Billion for Foreign Aid, NPR and PBS**\
-`The request seeks to codify spending cuts advanced by Elon Musk’s Department of Government Efficiency.`\
-https://nytimes.com/2025/06/03/us/trump-npr-pbs-funding-congress.html
-
-**New Jersey Turnpike to Replace Tesla Chargers After Contract Expires**\
-`The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
-https://nytimes.com/2025/06/03/nyregion/tesla-chargers-new-jersey-turnpike.html
-
-**Bryce Harper homers in first at-bat after 5-game absence as Phillies cruise**\
-`Harper was plunked on the right elbow by a 95 mph Spencer Strider fastball a week ago. He was not wearing an elbow guard. Now, he is. `\
-https://nytimes.com/athletic/6401372/2025/06/03/bryce-harper-homers-elbow-guard-hbp-phillies-bluejays/
 
