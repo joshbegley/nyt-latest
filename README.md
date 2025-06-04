@@ -1,3 +1,7 @@
+**Frank Graham Jr., Nature Writer Who Updated ‘Silent Spring,’ Dies at 100**\
+`He worked for the Brooklyn Dodgers and wrote about sports but mostly focused on conservation, publishing a sequel to Rachel Carson’s exposé on the dangers of pesticides.`\
+https://nytimes.com/2025/06/04/science/frank-graham-jr-dead.html
+
 **Deadly Crowd Crush at Cricket Championship Celebration**\
 `The deadly crowd crush marred the celebration of the Premier League cricket champion in the Indian city of Bengaluru, officials said`\
 https://nytimes.com/video/world/asia/100000010207338/deadly-crowd-crush-at-cricket-championship-celebration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400635/2025/06/04/nikita-kucherov-ted-lindsay-nhl-
 **Jeffrey Epstein Invested With Peter Thiel, and His Estate Is Reaping Millions**\
 `Mr. Epstein, the late financier and sex offender, started by putting $40 million into Valar Ventures, a firm backed by Mr. Thiel. Today that investment is worth about $170 million.`\
 https://nytimes.com/2025/06/04/business/jeffrey-epstein-peter-thiel-estate.html
-
-**Britain Gets a Steel Tariff Carve-Out, but Europe Pays Double**\
-`Despite an exemption from 50 percent tariffs, Britain still has to pay a 25 percent duty because its trade deal with the United States has yet to be put in place.`\
-https://nytimes.com/2025/06/04/business/uk-trump-tariffs-steel.html
 
