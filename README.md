@@ -1,3 +1,7 @@
+**China Tries to Stop Smuggling of Rare Earths as Shortages Loom Abroad**\
+`Police, customs officials and spies are reinforcing China’s embargo on the critical minerals that it overwhelmingly controls.`\
+https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
+
 **Eastern U.S. Is Shrouded in Smoke and Dust**\
 `Smoke from Canadian wildfires and desert dust from the Sahara are creating unhealthy air quality from New York City to Miami.`\
 https://nytimes.com/2025/06/04/weather/air-quality-wildfire-smoke-sahara-dust.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6299782/2025/06/04/franco-mastantuono-real-madrid-p
 **Arsenal in talks with Kelly over permanent move**\
 `Kelly, 27, joined the club on loan from Manchester City in January and played a vital role in their Champions League victory.`\
 https://nytimes.com/athletic/6402400/2025/06/04/arsenal-chloe-kelly-permanent-transfer/
-
-**WATCH: Free-throw merchant? How Shai Gilgeous-Alexander draws so many fouls**\
-`Many opponents say the NBA's MVP relies too much on fooling referees to draw fouls. But as we explain, these are hardly cheap tricks. `\
-https://nytimes.com/athletic/6401632/2025/06/04/sga-shai-gilgeous-alexander-thunder-free-throw-merchant/
 
