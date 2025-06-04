@@ -1,3 +1,19 @@
+**Haley Joel Osment Ordered to Attend A.A. After Ski Resort Arrest**\
+`The actor was charged in April with public intoxication and possession of cocaine and was recorded using the word “Nazi” and an antisemitic slur during his arrest. He later apologized.`\
+https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
+
+**Israel, Fighting a War, Says It Sold More Weapons Than Ever Last Year**\
+`The exports show how Israel is pursuing new markets as its forces battle on multiple fronts.`\
+https://nytimes.com/2025/06/04/world/middleeast/israel-weapons-sales.html
+
+**Our Regression on Gender Is a Tragedy, Not Just a Political Problem**\
+`Progress seemed inevitable just a few years ago. Now it is in danger.`\
+https://nytimes.com/2025/06/04/opinion/gender-polarization.html
+
+**USWNT honors former captain Becky Sauerbrunn with bobbleheads, fireworks and a dominant win**\
+`Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
+https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
+
 **How Trump Talks About Antisemitism**\
 `On the campaign trail, President Donald Trump repeatedly promised voters that he’d be the “best friend Jewish Americans have ever had in the White House.`\
 https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.html

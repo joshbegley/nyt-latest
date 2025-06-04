@@ -1,3 +1,7 @@
+**Leopards on the Potomac! Trump Is Delighted by Deal With Saudis for Rare Cats.**\
+`Move over, pandas. Two Arabian leopards are coming to the National Zoo.`\
+https://nytimes.com/2025/06/04/us/politics/leopards-trump-saudi.html
+
 **Haley Joel Osment Ordered to Attend A.A. After Ski Resort Arrest**\
 `The actor was charged in April with public intoxication and possession of cocaine and was recorded using the word “Nazi” and an antisemitic slur during his arrest. He later apologized.`\
 https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
@@ -18,7 +22,7 @@ https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.
 `Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
 https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
 
-**For NBA referees, earning the White Jacket is the pinnacle of their profession**\
+**For NBA referees, earning the white jacket is the pinnacle of their profession**\
 `NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
 https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/technology/reddit-anthropic-lawsuit-data.html
 **Connecticut Brings Its ‘Best Pizza’ Brag to the Heart of New York**\
 `Billboards heralding the state’s pies have popped up next to some of the city’s most celebrated pizzerias, provoking locals and confusing tourists.`\
 https://nytimes.com/2025/06/04/dining/connecticut-best-pizza.html
-
-**Horse Bits Have Been Used for Thousands of Years. Now They’re Being Reconsidered.**\
-`They are used to steer a horse, but some think placing a hunk of metal in their mouths and tugging on it is cruel. A few riders have found another way.`\
-https://nytimes.com/2025/06/04/sports/horse-racing/horse-bits-reconsidered.html
 
