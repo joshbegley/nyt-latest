@@ -1,3 +1,11 @@
+**Equestrian Special Reports**\
+``\
+https://nytimes.com/spotlight/equestrian-horse-riding
+
+**TikTok Was Always Just the Start for Addison Rae**\
+`“Taste is kind of a luxury,” the actress, singer and social media star Addison Rae said. In an interview with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, she discussed how she always hoped to use TikTok as a bridge to something bigger.`\
+https://nytimes.com/video/podcasts/100000010207429/tiktok-was-always-just-the-start-for-addison-rae.html
+
 **Tiny Love Stories: ‘A Wise Friend Warned Me About Divorce’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/06/04/style/tiny-modern-love-stories-a-wise-friend-warned-me-about-divorce.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
 **FIFA slashes ticket prices for Club World Cup opener, tens of thousands unsold**\
 `Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
 https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
-
-**Suns hiring Cavaliers assistant Jordan Ott as head coach: Source**\
-`The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach.`\
-https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/
-
-**The White House Wants 90 Trade Deals in 90 Days. So Far, It May Have 1.**\
-`It takes years to close a typical trade deal. How do the current talks compare?`\
-https://nytimes.com/interactive/2025/06/04/business/economy/trump-tariffs-trade-deals-timeline.html
 

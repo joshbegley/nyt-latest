@@ -1,3 +1,8 @@
+**Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
+`Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
+`\
+https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfer-betting-predictions-odds/
+
 **Tiny Love Stories: ‘A Wise Friend Warned Me About Divorce’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/06/04/style/tiny-modern-love-stories-a-wise-friend-warned-me-about-divorce.html
