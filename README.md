@@ -1,3 +1,11 @@
+**Republican Policy Bill Would Add $2.4 Trillion to Debt, Budget Office Says**\
+`The estimate from the nonpartisan Congressional Budget Office is all but certain to inflame an already intense debate inside the G.O.P. about the fiscal consequences of their bill to enact President Trump’s agenda.`\
+https://nytimes.com/2025/06/04/us/politics/trump-policy-bill-deficit-estimate.html
+
+**A Risky Plan Made in America**\
+`Jacob Long bet his family, his livelihood and his personal philosophy about American craftsmanship on a textile mill in Connecticut.`\
+https://nytimes.com/2025/06/04/fashion/american-woolen-textiles-jacob-long.html
+
 **What’s in Our Queue? Ezra Collective and More **\
 `Text by Adam Satariano`\
 https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6402218/2025/06/04/tom-thibodeau-knicks-mike-malone
 **Guide to Pacers-Thunder: Our best reads on both NBA Finals teams**\
 `Here's everything you need to know about the Thunder and Pacers, courtesy of The Athletic NBA staff's coverage.`\
 https://nytimes.com/athletic/6395633/2025/06/04/nba-finals-2025-pacers-thunder-sga-haliburton/
-
-**‘A Freeky Introduction’ Review: Pleasure Principles**\
-`NSangou Njikam’s latest offering is an ode to the erotic and the divine, set to winking R&B and hip-hop songs, in a new production by Atlantic Theater Company.`\
-https://nytimes.com/2025/06/04/theater/a-freeky-introduction-review.html
-
-**Can a football player outrun an F1 car on a football pitch?**\
-`Leeds conducted an experiment with their players and a Formula One car after the end of the season`\
-https://nytimes.com/athletic/6402481/2025/06/04/leeds-united-formula-one/
 

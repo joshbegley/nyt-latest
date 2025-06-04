@@ -1,3 +1,7 @@
+**What’s in Our Queue? Ezra Collective and More **\
+`Text by Adam Satariano`\
+https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
+
 **Lois Boisson has become the star of the French Open. Her fairytale deserves its most coveted stage**\
 `The biggest story of the French Open is a home wild-card entry who has surged to the semifinals. So why has she had not top billing?`\
 https://nytimes.com/athletic/6399254/2025/06/04/tennis-french-open-night-sessions-women-lois-boisson/
