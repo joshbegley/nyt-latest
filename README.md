@@ -1,3 +1,7 @@
+**Alex Cora, frustrated by Red Sox losses: 'We keep making the same mistakes'**\
+`Cora was upset after Tuesday's 10-inning one-run loss to the Angels. Boston leads the league with 17 one-run losses this season.`\
+https://nytimes.com/athletic/6401635/2025/06/04/red-sox-alex-cora-frustration-losses/
+
 **Mamardashvili v Alisson: Could there really be a battle to be Liverpool's No 1?**\
 `The Georgian is earmarked as the club's future No 1, but just like Kelleher he may be stuck in the No 2 spot… at least for now`\
 https://nytimes.com/athletic/6399372/2025/06/04/mamardashvil-alisson-liverpool-kelleher/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum.htm
 **China Really Wants to Attract Talented Scientists. Trump Just Helped.**\
 `Even before the U.S. threatened to bar international students and besieged universities, China’s huge spending campaign on the sciences was bearing fruit.`\
 https://nytimes.com/2025/06/04/world/asia/trump-science-visa-china.html
-
-**Amid Rising Heat, Hajj Becomes Test of Endurance for Pilgrims and Saudi Arabia**\
-`Millions will make the annual pilgrimage to Mecca. The kingdom faces scrutiny over safety after more than 1,300 people died last year.`\
-https://nytimes.com/2025/06/04/world/middleeast/saudi-arabia-hajj-heat.html
 
