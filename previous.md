@@ -1,3 +1,7 @@
+**Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
+`The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
+https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test/
+
 **10 Questions With Adrienne Adams**\
 `Adrienne Adams, the New York City Council speaker who is running for mayor, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/04/nyregion/adrienne-adams-interview-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401709/2025/06/04/reds-win-brewers-tj-friedl-walk-
 **Revised 4-seam fastball key to Jhoan Duran's resurgence, reliever of the month award**\
 `Tuesday, Duran became the first Twins reliever to be named the AL's reliever of the month since Joe Nathan in June 2009.`\
 https://nytimes.com/athletic/6401713/2025/06/04/twins-jhoan-duran-resurgence-reliever-of-the-month/
-
-**Ukraine’s Attack Exposed America’s Achilles’ Heel**\
-`What happened in Russia can happen in the United States — or anywhere else.`\
-https://nytimes.com/2025/06/04/opinion/ukraine-attack-russia-us.html
 

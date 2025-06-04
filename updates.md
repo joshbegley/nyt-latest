@@ -1,3 +1,7 @@
+**Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
+`The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
+https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test/
+
 **10 Questions With Adrienne Adams**\
 `Adrienne Adams, the New York City Council speaker who is running for mayor, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/04/nyregion/adrienne-adams-interview-mayor.html
