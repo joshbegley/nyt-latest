@@ -1,3 +1,11 @@
+**Former Indiana basketball players accuse longtime team doctor of sexual misconduct**\
+`“As a grown man it breaks my heart to think about what happened to me when I was a young, vulnerable, and trusting student."`\
+https://nytimes.com/athletic/6403499/2025/06/04/indiana-basketball-sexual-misconduct-team-doctor-bob-knight/
+
+**The Briefing: Germany 1 Portugal 2 - Ronaldo the hero as 137th international goal seals place in Nations League final**\
+`The 40-year-old striker scored the winning goal after Liverpool target Florian Wirtz had put Germany ahead early in the second half`\
+https://nytimes.com/athletic/6402803/2025/06/04/portugal-ronaldo-nations-league-germany-final/
+
 **Thursday Briefing: Trump’s Call With Putin**\
 `Plus, threatened, ancient trees thrive in Chinese temples.`\
 https://nytimes.com/2025/06/04/briefing/trump-putin-gaza-hajj-switch-2.html

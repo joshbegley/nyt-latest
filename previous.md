@@ -1,3 +1,11 @@
+**Former Indiana basketball players accuse longtime team doctor of sexual misconduct**\
+`“As a grown man it breaks my heart to think about what happened to me when I was a young, vulnerable, and trusting student."`\
+https://nytimes.com/athletic/6403499/2025/06/04/indiana-basketball-sexual-misconduct-team-doctor-bob-knight/
+
+**The Briefing: Germany 1 Portugal 2 - Ronaldo the hero as 137th international goal seals place in Nations League final**\
+`The 40-year-old striker scored the winning goal after Liverpool target Florian Wirtz had put Germany ahead early in the second half`\
+https://nytimes.com/athletic/6402803/2025/06/04/portugal-ronaldo-nations-league-germany-final/
+
 **Thursday Briefing: Trump’s Call With Putin**\
 `Plus, threatened, ancient trees thrive in Chinese temples.`\
 https://nytimes.com/2025/06/04/briefing/trump-putin-gaza-hajj-switch-2.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.ht
 **Brailsford to step back at Man Utd, Wilcox named director of football**\
 `Brailsford, 61, has been a significant figure at United since Ratcliffe’s stake was confirmed on Christmas Eve 2023.`\
 https://nytimes.com/athletic/6403274/2025/06/04/dave-brailsford-manchester-united/
-
-**U.S. Vetoes U.N. Resolution Demanding Immediate Gaza Cease-Fire**\
-`The Security Council resolution also sought the release of all the hostages and the resumption of full-scale aid deliveries.`\
-https://nytimes.com/2025/06/04/world/middleeast/un-security-council-gaza-cease-fire.html
-
-**Pacers' Rick Carlisle thought Knicks firing Tom Thibodeau was 'fake AI'**\
-`Carlisle’s Pacers were the last team that Thibodeau coached against while directing the Knicks.`\
-https://nytimes.com/athletic/6403419/2025/06/04/pacers-thunder-nba-finals-knicks-tom-thibodeau/
 
