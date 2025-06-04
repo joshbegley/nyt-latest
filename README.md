@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`A U.S. offer to Iran.`\
+https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
+
 **The Gutting of America’s Medical Research: Here Is Every Canceled or Delayed N.I.H. Grant**\
 `Some cuts have been starkly visible, but the country’s medical grant-making machinery has also radically transformed outside the public eye.`\
 https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399533/2025/06/04/gyokeres-sesko-arsenal-transfers
 **Rodrigo Muniz interview: 'The perfect centre-back would be a mix of Maguire and Van Dijk'**\
 `The Brazilian explains how he stepped up at Fulham`\
 https://nytimes.com/athletic/6397105/2025/06/04/rodrigo-muniz-interview-fulham-brazil-maguire-van-dijk/
-
-**Higher Tariffs on Steel and Aluminum Imports Go Into Effect**\
-`The president has ratcheted up the rate on foreign metals to 50 percent, double the previous rate, saying the levies weren’t high enough to help the U.S. industry.`\
-https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum.html
 
