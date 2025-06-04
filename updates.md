@@ -1,3 +1,19 @@
+**Madrid hold talks with Mastantuono's representatives, PSG also interested**\
+`The 17-year-old has a €45m release clause in his River Plate contract, which runs until 2026.`\
+https://nytimes.com/athletic/6299782/2025/06/04/franco-mastantuono-real-madrid-psg/
+
+**Arsenal in talks with Kelly over permanent move**\
+`Kelly, 27, joined the club on loan from Manchester City in January and played a vital role in their Champions League victory.`\
+https://nytimes.com/athletic/6402400/2025/06/04/arsenal-chloe-kelly-permanent-transfer/
+
+**WATCH: Free-throw merchant? How Shai Gilgeous-Alexander draws so many fouls**\
+`Many opponents say the NBA's MVP relies too much on fooling referees to draw fouls. But as we explain, these are hardly cheap tricks. `\
+https://nytimes.com/athletic/6401632/2025/06/04/sga-shai-gilgeous-alexander-thunder-free-throw-merchant/
+
+**Middlesbrough part company with Michael Carrick**\
+`Carrick was appointed in October 2022 and finished fourth, eighth and 10th in three Championship campaigns.`\
+https://nytimes.com/athletic/6152780/2025/06/04/michael-carrick-middlesbrough-sacked/
+
 **Como confident of keeping Fabregas amid Inter interest**\
 `Fabregas, in his first full season in management, guided Como to a 10th-placed finish in Serie A.`\
 https://nytimes.com/athletic/6349534/2025/06/04/cesc-fabregas-como-inter/

@@ -1,3 +1,19 @@
+**Madrid hold talks with Mastantuono's representatives, PSG also interested**\
+`The 17-year-old has a €45m release clause in his River Plate contract, which runs until 2026.`\
+https://nytimes.com/athletic/6299782/2025/06/04/franco-mastantuono-real-madrid-psg/
+
+**Arsenal in talks with Kelly over permanent move**\
+`Kelly, 27, joined the club on loan from Manchester City in January and played a vital role in their Champions League victory.`\
+https://nytimes.com/athletic/6402400/2025/06/04/arsenal-chloe-kelly-permanent-transfer/
+
+**WATCH: Free-throw merchant? How Shai Gilgeous-Alexander draws so many fouls**\
+`Many opponents say the NBA's MVP relies too much on fooling referees to draw fouls. But as we explain, these are hardly cheap tricks. `\
+https://nytimes.com/athletic/6401632/2025/06/04/sga-shai-gilgeous-alexander-thunder-free-throw-merchant/
+
+**Middlesbrough part company with Michael Carrick**\
+`Carrick was appointed in October 2022 and finished fourth, eighth and 10th in three Championship campaigns.`\
+https://nytimes.com/athletic/6152780/2025/06/04/michael-carrick-middlesbrough-sacked/
+
 **Como confident of keeping Fabregas amid Inter interest**\
 `Fabregas, in his first full season in management, guided Como to a 10th-placed finish in Serie A.`\
 https://nytimes.com/athletic/6349534/2025/06/04/cesc-fabregas-como-inter/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6355809/2025/06/04/tijjani-reijnders-analysed/
 **Live Q&A: Penguins coaching search with Josh Yohe**\
 `Have questions about the Penguins coaching search or anything else? Josh Yohe will answer them at 11 a.m. ET Wednesday in a live Q&A.`\
 https://nytimes.com/athletic/6400297/2025/06/04/penguins-coaching-search-live-qa-josh-yohe/
-
-**At No. 7, Pelicans can choose from three types of guards in NBA Draft**\
-`The Pelicans have a clear need in the backcourt. Who makes the most sense?`\
-https://nytimes.com/athletic/6401112/2025/06/04/new-orleans-pelicans-guards-nba-draft/
-
-**Trump Bemoans How ‘HARD’ It Is to Strike a China Deal**\
-`Even the president appears to be doubting his strategy to win over Beijing, as relations fray between the trading partners.`\
-https://nytimes.com/2025/06/04/business/dealbook/trump-china-trade.html
-
-**Lowetide: How Kris Knoblauch's keen ability to adjust elevated Oilers**\
-`Here's what Knoblauch did to help the Oilers arrive as a Western Conference powerhouse.`\
-https://nytimes.com/athletic/6398883/2025/06/04/oilers-kris-knoblauch-nhl-playoffs-2025/
-
-**Red Wings survey results: Fans split on Detroit's direction under Yzerman**\
-`More than 2,900 readers took our Red Wings fan survey. Here's what they said.`\
-https://nytimes.com/athletic/6400548/2025/06/04/red-wings-offseason-survey-results-yzerman-2025/
 
