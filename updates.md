@@ -1,3 +1,15 @@
+**Jeffrey Epstein Invested With Peter Thiel, and His Estate Is Reaping Millions**\
+`Mr. Epstein, the late financier and sex offender, started by putting $40 million into Valar Ventures, a firm backed by Mr. Thiel. Today that investment is worth about $170 million.`\
+https://nytimes.com/2025/06/04/business/jeffrey-epstein-peter-thiel-estate.html
+
+**Britain Gets a Steel Tariff Carve-Out, but Europe Pays Double**\
+`Despite an exemption from 50 percent tariffs, Britain still has to pay a 25 percent duty because its trade deal with the United States has yet to be put in place.`\
+https://nytimes.com/2025/06/04/business/uk-trump-tariffs-steel.html
+
+**World Aquatics bans Enhanced Games participants**\
+`The federation is the first to adopt a strict no tolerance policy against participants of the controversial competition.`\
+https://nytimes.com/athletic/6402825/2025/06/04/world-aquatics-ban-enhanced-games-athletes/
+
 **Republicans Try to Discredit Experts Warning About the Cost of Tax Cuts**\
 `President Trump and his allies have united around a new foe: the economists and budget experts who have warned about the costs of Republicans’ tax ambitions.`\
 https://nytimes.com/2025/06/04/us/politics/trump-budget-bill-republicans-tax-cuts.html
