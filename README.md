@@ -1,3 +1,7 @@
+**Timing's just right for Yankees as Jazz Chisholm and Devin Williams return to familiar roles**\
+`Chisholm homered in his first game back at third base since the World Series while Devin Williams resumed the closer's role.`\
+https://nytimes.com/athletic/6401670/2025/06/04/jazz-chisholm-devin-williams-yankees/
+
 **Didier Deschamps on the brilliance of Doue and Yamal - and why he can't 'copy and paste' PSG's success**\
 `Deschamps speaks about PSG's Champions League success, the form of Mbappe, and making decisions for the future of this France team, not him`\
 https://nytimes.com/athletic/6399265/2025/06/04/didier-deschamps-france-doue-nations-league-spain-yamal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/world/middleeast/saudi-arabia-hajj-heat.html
 **Connections: Sports Edition Coach: Hints for June 4, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6401332/2025/06/04/connections-sports-edition-hints-for-june-4-2025/
-
-**Trump Wants America to Make Things Again. Does It Have What It Takes?**\
-`President Trump wants to revive factories, using tariffs as a tool. Companies that want to re-shore manufacturing are grappling with how to do it.`\
-https://nytimes.com/2025/06/04/business/trump-us-manufacturing.html
 
