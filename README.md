@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/04/science/frank-graham-jr-dead.html
 https://nytimes.com/video/world/asia/100000010207338/deadly-crowd-crush-at-cricket-championship-celebration.html
 
 **Penguins hire Dan Muse as head coach to replace Mike Sullivan**\
-`Muse, a surprise hire, has also been an assistant with the Predators and head coach of the U.S. NTDP.`\
+`Muse has also been an assistant with the Predators and head coach of the U.S. NTDP.`\
 https://nytimes.com/athletic/6402919/2025/06/04/penguins-dan-muse-coach-nhl/
 
 **FanDuel bans bettor for heckling Gabby Thomas at Philadelphia track meet**\
