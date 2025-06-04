@@ -1,3 +1,7 @@
+**L.A. County to Pay $2.7 Million to Teen Beaten in Juvenile Hall ‘Gladiator Fight’**\
+`Surveillance video captured a 16-year-old being repeatedly punched, kicked and stomped by juveniles while probation officers watched.`\
+https://nytimes.com/2025/06/04/us/politics/teenager-gladiator-fight-settlement.html
+
 **PWHL expansion signings tracker: Vancouver adds Defender of the Year finalist Claire Thompson**\
 `The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
 https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/

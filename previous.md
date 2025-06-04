@@ -1,3 +1,7 @@
+**L.A. County to Pay $2.7 Million to Teen Beaten in Juvenile Hall ‘Gladiator Fight’**\
+`Surveillance video captured a 16-year-old being repeatedly punched, kicked and stomped by juveniles while probation officers watched.`\
+https://nytimes.com/2025/06/04/us/politics/teenager-gladiator-fight-settlement.html
+
 **PWHL expansion signings tracker: Vancouver adds Defender of the Year finalist Claire Thompson**\
 `The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
 https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/us/mount-katahdin-missing-hikers-search.html
 **Nearly All Remaining Voice of America Employees Could Be Fired Under Plan**\
 `A proposed restructuring would leave only 18 employees at the federally funded news agency, which was founded in 1942 to combat Nazi propaganda.`\
 https://nytimes.com/2025/06/04/us/politics/trump-voice-of-america.html
-
-**Zohran Mamdani Has Momentum. Will He Build on it at the Debate?**\
-`Mr. Mamdani, a 33-year-old state lawmaker from Queens, has centered his campaign on a pledge to make New York City more affordable.`\
-https://nytimes.com/2025/06/04/nyregion/zohran-mamdani-debate.html
 
