@@ -1,3 +1,11 @@
+**Ceddanne Rafaela's walk-off homer powers Red Sox to back-and-forth win over Angels**\
+`The Red Sox showed a resilience they’ve too often lacked this season in making four separate comebacks.`\
+https://nytimes.com/athletic/6403916/2025/06/04/red-sox-ceddanne-rafaela-walk-off-homer-angels/
+
+**Forward Sarah Nurse set to sign with PWHL Vancouver: source**\
+`Nurse spent her first two PWHL seasons with the Toronto Sceptres, scoring 17 goals and 37 points in 45 games.`\
+https://nytimes.com/athletic/6403901/2025/06/04/sarah-nurse-pwhl-vancouver-expansion-contract/
+
 **L.A. County to Pay $2.7 Million to Teen Beaten in Juvenile Hall ‘Gladiator Fight’**\
 `Surveillance video captured a 16-year-old being repeatedly punched, kicked and stomped by juveniles while probation officers watched.`\
 https://nytimes.com/2025/06/04/us/politics/teenager-gladiator-fight-settlement.html
