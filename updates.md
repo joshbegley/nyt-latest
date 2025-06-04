@@ -1,3 +1,7 @@
+**F1 Mailbag: Why Lance Stroll was ‘upset’ in Spain - and who’d rule at Mario Kart**\
+`The Athletic's F1 writers answer your questions in this week's mailbag.`\
+https://nytimes.com/athletic/6400922/2025/06/04/f1-mailbag-lance-stroll-max-verstappen-mario-kart/
+
 **Carsley signs new contract to stay England U21s head coach**\
 `The new deal will take him through to the end of the 2027 European Under-21 Championship.`\
 https://nytimes.com/athletic/6402077/2025/06/04/lee-carsley-england-u21s/

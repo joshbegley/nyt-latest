@@ -14,7 +14,7 @@ https://nytimes.com/2025/06/04/world/africa/sudan-united-nations-convoy-attack.h
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6401797/2025/06/04/multi-club-ownership-down-to-business/
 
-**F1 Mailbag: Why Lance Stroll was ‘upset’ in Spain — and who’d rule at Mario Kart**\
+**F1 Mailbag: Why Lance Stroll was ‘upset’ in Spain - and who’d rule at Mario Kart**\
 `The Athletic's F1 writers answer your questions in this week's mailbag.`\
 https://nytimes.com/athletic/6400922/2025/06/04/f1-mailbag-lance-stroll-max-verstappen-mario-kart/
 
