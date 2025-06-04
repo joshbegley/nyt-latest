@@ -1,3 +1,7 @@
+**China Tries to Stop Smuggling of Rare Earths as Shortages Loom Abroad**\
+`Police, customs officials and spies are reinforcing China’s embargo on the critical minerals that it overwhelmingly controls.`\
+https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
+
 **Eastern U.S. Is Shrouded in Smoke and Dust**\
 `Smoke from Canadian wildfires and desert dust from the Sahara are creating unhealthy air quality from New York City to Miami.`\
 https://nytimes.com/2025/06/04/weather/air-quality-wildfire-smoke-sahara-dust.html
