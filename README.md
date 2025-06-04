@@ -1,3 +1,7 @@
+**The Gutting of America’s Medical Research: Here Is Every Canceled or Delayed N.I.H. Grant**\
+`Some cuts have been starkly visible, but the country’s medical grant-making machinery has also radically transformed outside the public eye.`\
+https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research.html
+
 **Alex Cora, frustrated by Red Sox losses: 'We keep making the same mistakes'**\
 `Cora was upset after Tuesday's 10-inning one-run loss to the Angels. Boston leads the league with 17 one-run losses this season.`\
 https://nytimes.com/athletic/6401635/2025/06/04/red-sox-alex-cora-frustration-losses/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6399533/2025/06/04/gyokeres-sesko-arsenal-transfers
 `The Brazilian explains how he stepped up at Fulham`\
 https://nytimes.com/athletic/6397105/2025/06/04/rodrigo-muniz-interview-fulham-brazil-maguire-van-dijk/
 
-**Trump Doubles Steel and Aluminum Tariffs**\
-`The president ratcheted up the rate on foreign metals to 50 percent, saying the former levies weren’t high enough to help the U.S. industry.`\
+**Higher Tariffs on Steel and Aluminum Imports Go Into Effect**\
+`The president has ratcheted up the rate on foreign metals to 50 percent, double the previous rate, saying the levies weren’t high enough to help the U.S. industry.`\
 https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum.html
-
-**China Really Wants to Attract Talented Scientists. Trump Just Helped.**\
-`Even before the U.S. threatened to bar international students and besieged universities, China’s huge spending campaign on the sciences was bearing fruit.`\
-https://nytimes.com/2025/06/04/world/asia/trump-science-visa-china.html
 
