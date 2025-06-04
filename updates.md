@@ -1,3 +1,19 @@
+**Nolan Schanuel, Andrew Abbott among the fantasy baseball surprises of the past month**\
+`Michael Salfino looks at the top pitchers and hitters for May, highlighting those who have flown under the radar in fantasy baseball.`\
+https://nytimes.com/athletic/6401471/2025/06/04/fantasy-baseball-surprise-performers-past-month-may/
+
+**Father’s Day Is Coming. Here’s What to Get.**\
+`Gifts for dads, from the perfect bagel knife to rock ’n’ roll memorabilia.`\
+https://nytimes.com/2025/06/04/t-magazine/fathers-day-gift-ideas.html
+
+**What I'm hearing and seeing about the Blackhawks: Mitch Marner and more**\
+`There's an assumption around the NHL that the Blackhawks are going to be aggressive this offseason. What does that mean?`\
+https://nytimes.com/athletic/6402537/2025/06/04/blackhawks-mitch-marner-ryan-donato/
+
+**Karine Jean-Pierre, Former Biden Press Secretary, Leaves Democratic Party**\
+`In a coming book, Ms. Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
+https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
+
 **Map: 3.2-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html

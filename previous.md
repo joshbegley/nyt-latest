@@ -1,9 +1,21 @@
+**Nolan Schanuel, Andrew Abbott among the fantasy baseball surprises of the past month**\
+`Michael Salfino looks at the top pitchers and hitters for May, highlighting those who have flown under the radar in fantasy baseball.`\
+https://nytimes.com/athletic/6401471/2025/06/04/fantasy-baseball-surprise-performers-past-month-may/
+
+**Father’s Day Is Coming. Here’s What to Get.**\
+`Gifts for dads, from the perfect bagel knife to rock ’n’ roll memorabilia.`\
+https://nytimes.com/2025/06/04/t-magazine/fathers-day-gift-ideas.html
+
+**What I'm hearing and seeing about the Blackhawks: Mitch Marner and more**\
+`There's an assumption around the NHL that the Blackhawks are going to be aggressive this offseason. What does that mean?`\
+https://nytimes.com/athletic/6402537/2025/06/04/blackhawks-mitch-marner-ryan-donato/
+
 **Map: 3.2-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html
 
-**Biden’s Press Secretary Leaves the Democratic Party to Be an Independent**\
-`In a coming book, Karine Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
+**Karine Jean-Pierre, Former Biden Press Secretary, Leaves Democratic Party**\
+`In a coming book, Ms. Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
 https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
 
 **Brailsford to step back at Man Utd, Wilcox named director of football**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
 **Giants designate LaMonte Wade Jr., sign Dominic Smith as Buster Posey seeks to jolt offense**\
 `Posey made a series of bold roster changes Wednesday morning in an effort to jolt the Giants' slumbering offense.`\
 https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
-
-**Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
-`“It’s really important the league capitalizes on this,” former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
-https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
-
-**The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
-`The Penguins' hiring of Muse illustrates that they've truly entered a new era.`\
-https://nytimes.com/athletic/6403183/2025/06/04/penguins-new-coach-dan-muse/
-
-**Home Ownership Quiz**\
-`Test your knowledge of home buying and ownership.`\
-https://nytimes.com/series/home-ownership-quiz
 
