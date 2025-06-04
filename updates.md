@@ -1,3 +1,11 @@
+**FIFA slashes ticket prices for Club World Cup opener, tens of thousands unsold**\
+`Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
+https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
+
+**The White House Wants 90 Trade Deals in 90 Days. So Far, It May Have 1.**\
+`It takes years to close a typical trade deal. How do the current talks compare?`\
+https://nytimes.com/interactive/2025/06/04/business/economy/trump-tariffs-trade-deals-timeline.html
+
 **Penguins hire Dan Muse as head coach to replace Mike Sullivan**\
 `Muse has also been an assistant with the Predators and head coach of the U.S. NTDP.`\
 https://nytimes.com/athletic/6402919/2025/06/04/penguins-dan-muse-coach-nhl/
