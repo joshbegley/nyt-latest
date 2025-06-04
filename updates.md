@@ -1,3 +1,11 @@
+**New Jersey Turnpike to Replace Tesla Chargers After Contract Expires**\
+`The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
+https://nytimes.com/2025/06/03/nyregion/tesla-chargers-new-jersey-turnpike.html
+
+**Bryce Harper, wearing elbow guard, homers in first AB after HBP, missing 5 games**\
+`He was plunked on the right elbow by a 95-mph Spencer Strider fastball a week ago. He was not wearing an elbow guard. Now, he is. `\
+https://nytimes.com/athletic/6401372/2025/06/03/bryce-harper-homers-elbow-guard-hbp-phillies-bluejays/
+
 **Pacers' flight to OKC diverted to Tulsa due to tornado warning**\
 `Indiana is set to play the Oklahoma City in Game 1 of the NBA Finals on Thursday.`\
 https://nytimes.com/athletic/6401301/2025/06/03/pacers-weather-delay-oklahoma-city-thunder-nba-finals/

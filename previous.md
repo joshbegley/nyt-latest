@@ -1,3 +1,11 @@
+**New Jersey Turnpike to Replace Tesla Chargers After Contract Expires**\
+`The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
+https://nytimes.com/2025/06/03/nyregion/tesla-chargers-new-jersey-turnpike.html
+
+**Bryce Harper, wearing elbow guard, homers in first AB after HBP, missing 5 games**\
+`He was plunked on the right elbow by a 95-mph Spencer Strider fastball a week ago. He was not wearing an elbow guard. Now, he is. `\
+https://nytimes.com/athletic/6401372/2025/06/03/bryce-harper-homers-elbow-guard-hbp-phillies-bluejays/
+
 **Pacers' flight to OKC diverted to Tulsa due to tornado warning**\
 `Indiana is set to play the Oklahoma City in Game 1 of the NBA Finals on Thursday.`\
 https://nytimes.com/athletic/6401301/2025/06/03/pacers-weather-delay-oklahoma-city-thunder-nba-finals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australi
 **Is Trump Unveiling a Crypto Wallet? His Associates Say Yes. His Sons Say No.**\
 `The back-and-forth over a potential Trump cryptocurrency wallet on Tuesday exposed rifts among the family’s web of digital currency ventures.`\
 https://nytimes.com/2025/06/03/technology/trump-crypto-wallet-sons-rift.html
-
-**Ravens, DeAndre Hopkins are enjoying getting to know one another**\
-`Baltimore's coaches and players, such as wide receiver Zay Flowers, are learning a lot about what Hopkins brings to the team during OTAs.`\
-https://nytimes.com/athletic/6401111/2025/06/03/ravens-deandre-hopkins-organized-team-activities/
-
-**Red Sox 1B Triston Casas discusses knee surgery rehab: 'I'm living my worst nightmare'**\
-`Casas' recovery will be more deliberate than his rehab from an injury last year, which should alleviate the mental strain.`\
-https://nytimes.com/athletic/6401226/2025/06/03/red-sox-triston-casas-knee-surgery-recovery/
 
