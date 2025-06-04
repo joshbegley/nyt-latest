@@ -1,3 +1,11 @@
+**The Pulse: NBA and NHL title guides and predictions**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6400765/2025/06/04/pacers-thunder-panthers-oilers-finals-the-pulse/
+
+**Early MLB All-Star team picks for the American League and National League**\
+`With fan voting beginning, here are my early AL and NL All-Star team picks, with starters and backups at each position. `\
+https://nytimes.com/athletic/6401037/2025/06/04/mlb-all-star-team-predictions-2025/
+
 **F1 Mailbag: Why Lance Stroll was ‘upset’ in Spain - and who’d rule at Mario Kart**\
 `The Athletic's F1 writers answer your questions in this week's mailbag.`\
 https://nytimes.com/athletic/6400922/2025/06/04/f1-mailbag-lance-stroll-max-verstappen-mario-kart/

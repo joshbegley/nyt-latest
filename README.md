@@ -1,3 +1,11 @@
+**Somehow, Guardians star José Ramírez remains MLB’s best-kept secret**\
+`While the feats of Aaron Judge and Shohei Ohtani hog headlines, an overlooked infielder has been charting a possible path to Cooperstown.`\
+https://nytimes.com/athletic/6401514/2025/06/04/guardians-jose-ramirez-success-history-with-cleveland/
+
+**Gaza’s Deadly Aid Deliveries**\
+`Israel’s troops have repeatedly shot near food distribution sites.`\
+https://nytimes.com/2025/06/04/briefing/gaza-aid-shootings.html
+
 **The Pulse: NBA and NHL title guides and predictions**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6400765/2025/06/04/pacers-thunder-panthers-oilers-finals-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6400922/2025/06/04/f1-mailbag-lance-stroll-max-vers
 **One pressing question for every new NFL offensive play caller in 2025**\
 `Twelve teams have new offensive play callers, including four (Bears, Saints, Cowboys and Jags) whose head coaches will wear multiple hats.`\
 https://nytimes.com/athletic/6400416/2025/06/04/nfl-2025-season-offensive-play-caller-questions/
-
-**Corey Heim, Trucks points leader, on his path in racing and room to improve: 12 Questions**\
-`Corey Heim talks about his journey up NASCAR's development level, what he still needs to get better at, and more in the latest 12 Questions.`\
-https://nytimes.com/athletic/6400512/2025/06/04/corey-heim-nascar-truck-series-points-leader-12-questions/
-
-**Spencer Strider struggles to regain form; Fredi González emotional in Braves return**\
-`Strider's velocity remains down as he owns a 5.68 ERA and gave up 3 homers in a game for just the second time in his career. `\
-https://nytimes.com/athletic/6401656/2025/06/04/spencer-strider-fredi-gonzalez/
 

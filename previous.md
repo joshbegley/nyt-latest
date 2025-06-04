@@ -1,3 +1,11 @@
+**The Pulse: NBA and NHL title guides and predictions**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6400765/2025/06/04/pacers-thunder-panthers-oilers-finals-the-pulse/
+
+**Early MLB All-Star team picks for the American League and National League**\
+`With fan voting beginning, here are my early AL and NL All-Star team picks, with starters and backups at each position. `\
+https://nytimes.com/athletic/6401037/2025/06/04/mlb-all-star-team-predictions-2025/
+
 **NBA Europe is coming but British basketball is bitterly divided. What will it mean?**\
 `The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
 https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6400512/2025/06/04/corey-heim-nascar-truck-series-p
 **Spencer Strider struggles to regain form; Fredi González emotional in Braves return**\
 `Strider's velocity remains down as he owns a 5.68 ERA and gave up 3 homers in a game for just the second time in his career. `\
 https://nytimes.com/athletic/6401656/2025/06/04/spencer-strider-fredi-gonzalez/
-
-**Oh, Canada ... will you unite behind the Oilers this time around?**\
-`Politics, national pride and, oh, a little thing called the Stanley Cup are on the line in this rematch from last year's final.`\
-https://nytimes.com/athletic/6400902/2025/06/04/stanley-cup-final-oilers-panthers-trump-carney/
-
-**How ESPN messed up its NBA Finals TV trio, now weighs future of Doris Burke, Richard Jefferson**\
-`For this year's Finals, it is Mike Breen, Burke and Jefferson. Next year, at this time, it very well could be a different team.`\
-https://nytimes.com/athletic/6400351/2025/06/04/nba-finals-espn-doris-burke-mike-breen/
 
