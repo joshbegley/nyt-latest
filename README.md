@@ -1,6 +1,14 @@
+**Putin, Zelensky Trade Accusations Amid Escalating Attacks**\
+`The belligerent language and the recent strikes make clear that a wide gap separates Ukraine and Russia, even as their officials have been engaged in direct talks.`\
+https://nytimes.com/2025/06/04/world/europe/putin-zelensky-accusations-escalation.html
+
+**French Open accused of declining TV request to play Lois Boisson match in night session**\
+`There have been no French Open women's matches during the primetime Court Philippe-Chatrier night session for the second year in a row.`\
+https://nytimes.com/athletic/6402081/2025/06/04/tennis-french-open-lois-boisson-night-session-television-amazon-prime/
+
 **Trump Says Putin Plans to Retaliate for Ukrainian Attack on Its Warplanes**\
 `President Trump said the Russian leader told him “very strongly” in a phone call Wednesday that he would respond to the drone assault on its airfields.`\
-https://nytimes.com/live/2025/06/04/us/trump-news/trump-putin-ukraine
+https://nytimes.com/2025/06/04/us/politics/trump-putin-ukraine.html
 
 **Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
 `Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
@@ -10,10 +18,6 @@ https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfe
 **Rory McIlroy speaks after snubbing media: 'I was a little pissed off'**\
 `Ahead of the RBC Canadian Open in Toronto, McIlroy explained his reasoning for declining to speak to media at the PGA Championship.`\
 https://nytimes.com/athletic/6403072/2025/06/04/rory-mcilroy-pga-championship-canadian-open-media/
-
-**French Open accused of declining TV request to play Lois Boisson match in night session**\
-`There have been no French Open women's matches during the primetime Court Philippe-Chatrier night session for the second year in a row.`\
-https://nytimes.com/athletic/6402081/2025/06/04/tennis-french-open-lois-boisson-night-session-television-amazon-prime/
 
 **Multiple deaths after mass gathering following IPL title celebrations in India**\
 `Indian Prime Minister Narendra Modi described the incident as absolutely “heartbreaking.”`\
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/06/04/business/economy/trump-tariffs-trade-
 **What we're hearing about a Marco Rossi trade, potential destinations and return**\
 `Which teams could be "screaming" for him? What could the return be? Here's the latest on the No. 2 player on The Athletic's trade board.`\
 https://nytimes.com/athletic/6402628/2025/06/04/marco-rossi-trade-destinations-return/
-
-**Eagles RB Saquon Barkley says his retirement could come 'out of nowhere'**\
-`"I'll probably just wake up one day, whether it's next year or two years or four years, and just be like, 'yeah, it's over,'" Barkley said.`\
-https://nytimes.com/athletic/6402865/2025/06/04/saquon-barkley-eagles-retirement-comments-chris-long/
 
