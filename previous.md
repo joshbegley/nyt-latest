@@ -1,6 +1,6 @@
 **Trump Asks Congress to Claw Back $9 Billion for Foreign Aid, NPR and PBS**\
 `The request seeks to codify spending cuts advanced by Elon Musk’s Department of Government Efficiency.`\
-https://nytimes.com/2025/06/03/us/trump-asks-congress-to-claw-back-9-billion-for-foreign-aid-npr-and-pbs.html
+https://nytimes.com/2025/06/03/us/trump-npr-pbs-funding-congress.html
 
 **New Jersey Turnpike to Replace Tesla Chargers After Contract Expires**\
 `The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
