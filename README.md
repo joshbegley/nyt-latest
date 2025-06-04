@@ -1,3 +1,7 @@
+**Lawsuit Seeks to Release Family of Suspect in Colorado Attack**\
+`The suit, filed by lawyers for the wife and children of the man charged with attacking an event supporting hostages in Gaza, also asks a judge to block their deportation.`\
+https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
+
 **Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
 `Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
 https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.
 **USWNT honors former captain Becky Sauerbrunn with bobbleheads, fireworks and a dominant win**\
 `Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
 https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
-
-**For NBA referees, earning the White Jacket is the pinnacle of their profession**\
-`NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
-https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
 
