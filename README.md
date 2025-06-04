@@ -1,3 +1,7 @@
+**‘She’s been with us’: Loving traces of late daughter surround Texas Tech coach at WCWS**\
+`“For us, it’s like you can’t go anywhere in the softball community without some sort of tie to Geri Ann.”`\
+https://nytimes.com/athletic/6402296/2025/06/04/texas-tech-softball-wcws-gerry-glasco/
+
 **Madrid hold talks with Mastantuono's representatives, PSG also interested**\
 `The 17-year-old has a €45m release clause in his River Plate contract, which runs until 2026.`\
 https://nytimes.com/athletic/6299782/2025/06/04/franco-mastantuono-real-madrid-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399994/2025/06/04/nhl-draft-2025-2026-mailbag-whee
 **Tijjani Reijnders analysed: A ready-made 'Guardiola player' with the traits of some City greats**\
 `What the 26-year-old Milan and Netherlands international midfielder would bring to the Etihad...`\
 https://nytimes.com/athletic/6355809/2025/06/04/tijjani-reijnders-analysed/
-
-**Live Q&A: Penguins coaching search with Josh Yohe**\
-`Have questions about the Penguins coaching search or anything else? Josh Yohe will answer them at 11 a.m. ET Wednesday in a live Q&A.`\
-https://nytimes.com/athletic/6400297/2025/06/04/penguins-coaching-search-live-qa-josh-yohe/
 
