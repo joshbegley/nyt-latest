@@ -1,3 +1,15 @@
+**U.S. Is Trimming Back Its Collection of Consumer Price Data**\
+`The cutbacks would have “minimal impact,” the government said, but economists warned of reduced confidence in inflation data produced by a struggling statistical system.`\
+https://nytimes.com/2025/06/04/business/bls-price-data-collection.html
+
+**Nintendo Has Something to Sell You**\
+`The marketing campaigns for the Switch 2 and its previous video game consoles provide a window into the company’s business strategy.`\
+https://nytimes.com/interactive/2025/06/04/arts/nintendo-switch-commercials-ads.html
+
+**PWHL expansion signings tracker: Vancouver adds Claire Thompson and Sophie Jaques**\
+`The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
+https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/
+
 **Judge Orders Trump Administration to Take Steps to Give Due Process to Deported Migrants**\
 `The judge also said the men, expelled under the Alien Enemies Act, were likely to prevail in their claims that they had been treated unfairly, deported with no chance to contest their removals.`\
 https://nytimes.com/2025/06/04/us/politics/trump-deportations-venezuela-alien-enemies-act.html

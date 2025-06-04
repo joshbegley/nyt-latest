@@ -1,3 +1,11 @@
+**U.S. Is Trimming Back Its Collection of Consumer Price Data**\
+`The cutbacks would have “minimal impact,” the government said, but economists warned of reduced confidence in inflation data produced by a struggling statistical system.`\
+https://nytimes.com/2025/06/04/business/bls-price-data-collection.html
+
+**Nintendo Has Something to Sell You**\
+`The marketing campaigns for the Switch 2 and its previous video game consoles provide a window into the company’s business strategy.`\
+https://nytimes.com/interactive/2025/06/04/arts/nintendo-switch-commercials-ads.html
+
 **Judge Orders Trump Administration to Take Steps to Give Due Process to Deported Migrants**\
 `The judge also said the men, expelled under the Alien Enemies Act, were likely to prevail in their claims that they had been treated unfairly, deported with no chance to contest their removals.`\
 https://nytimes.com/2025/06/04/us/politics/trump-deportations-venezuela-alien-enemies-act.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6403901/2025/06/04/sarah-nurse-pwhl-vancouver-expan
 `Surveillance video captured a 16-year-old being repeatedly punched, kicked and stomped by juveniles while probation officers watched.`\
 https://nytimes.com/2025/06/04/us/politics/teenager-gladiator-fight-settlement.html
 
-**PWHL expansion signings tracker: Vancouver adds Defender of the Year finalist Claire Thompson**\
+**PWHL expansion signings tracker: Vancouver adds Claire Thompson and Sophie Jaques**\
 `The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
 https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6403890/2025/06/04/pete-rose-reinstatement-donald-t
 **Justice Dept. Sues Texas Over Tuition Break for Undocumented Students**\
 `The Trump administration argues that the Texas Dream Act of 2001 illegally benefits undocumented students. It is unclear whether the state will defend it.`\
 https://nytimes.com/2025/06/04/us/politics/texas-undocumented-students-trump.html
-
-**How to Debate Andrew Cuomo? Cynthia Nixon Has Advice.**\
-`Ms. Nixon, the actress and activist who ran against Mr. Cuomo for governor in 2018, said he was not used to being called out on his record.`\
-https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-cynthia-nixon-debate.html
-
-**Al Hilal confirm Inzaghi as new head coach following Inter exit**\
-`The Italian has signed a two-year contract and will take charge of the team at the Club World Cup.`\
-https://nytimes.com/athletic/6403850/2025/06/04/al-hilal-simone-inzaghi-inter/
 
