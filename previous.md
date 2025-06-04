@@ -1,3 +1,23 @@
+**Man Utd make first bid worth up to £55m for Brentford's Mbeumo**\
+`Talks are ongoing as United work to reach an agreement for a player targeted by head coach Ruben Amorim to strengthen his attacking unit.`\
+https://nytimes.com/athletic/6398630/2025/06/04/bryan-mbeumo-manchester-united-transfer/
+
+**Where does the mayor’s race stand?**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/where-does-the-mayors-race-stand
+
+**Here’s the latest.**\
+`By Maya King`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-the-latest
+
+**Live Updates: Democrats Running for N.Y.C. Mayor Are Set to Debate**\
+`The race to lead City Hall will enter a more combative phrase when the debate starts at 7 p.m. Former Gov. Andrew Cuomo leads a crowded field in the polls just 10 days before early voting begins.`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate
+
+**Trump Administration to Pull $4 Billion in Funding for California High-Speed Rail**\
+`The state’s rail authority said California intends to keep the project moving forward.`\
+https://nytimes.com/2025/06/04/us/politics/california-high-speed-rail-funding.html
+
 **Trump Escalates Attack on Columbia by Threatening Its Accreditation**\
 `The administration notified the university’s accrediting body that federal agencies had found that the school violated Jewish students’ civil rights.`\
 https://nytimes.com/2025/06/04/nyregion/columbia-trump-accreditation-civil-rights.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/04/briefing/trump-putin-gaza-hajj-switch-2.html
 **Orien McNeill, Artist Who Made Mischief on the Water, Dies at 46**\
 `He was the pied piper of a loose community of DIY artists homesteading on New York City’s waterways, which he used as his canvas and stage.`\
 https://nytimes.com/2025/06/04/arts/orien-mcneill-dead.html
-
-**Nolan Schanuel, Andrew Abbott among the fantasy baseball surprises of the past month**\
-`Michael Salfino looks at the top pitchers and hitters for May, highlighting those who have flown under the radar in fantasy baseball.`\
-https://nytimes.com/athletic/6401471/2025/06/04/fantasy-baseball-surprise-performers-past-month-may/
-
-**Father’s Day Is Coming. Here’s What to Get.**\
-`Gifts for dads, from the perfect bagel knife to rock ’n’ roll memorabilia.`\
-https://nytimes.com/2025/06/04/t-magazine/fathers-day-gift-ideas.html
-
-**What I'm hearing and seeing about the Blackhawks: Mitch Marner and more**\
-`There's an assumption around the NHL that the Blackhawks are going to be aggressive this offseason. What does that mean?`\
-https://nytimes.com/athletic/6402537/2025/06/04/blackhawks-mitch-marner-ryan-donato/
-
-**Map: 3.2-Magnitude Earthquake Strikes Near Palm Springs in Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html
-
-**Karine Jean-Pierre, Former Biden Press Secretary, Leaves Democratic Party**\
-`In a coming book, Ms. Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
-https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
 
