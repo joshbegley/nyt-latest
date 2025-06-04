@@ -1,3 +1,7 @@
+**Map: 3.2-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html
+
 **Biden’s Press Secretary Leaves the Democratic Party to Be an Independent**\
 `In a coming book, Karine Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
 https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
 https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
 
 **Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
-`“It’s really important the league capitalizes on this,” fellow former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
+`“It’s really important the league capitalizes on this,” former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
 https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
 
 **The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6403183/2025/06/04/penguins-new-coach-dan-muse/
 **Home Ownership Quiz**\
 `Test your knowledge of home buying and ownership.`\
 https://nytimes.com/series/home-ownership-quiz
-
-**How Chelsea won the race for Delap ahead of rivals: Meetings, Zooms, young squad and familiar faces**\
-`Liam Delap's move to Chelsea has now been confirmed — this is the story of how they secured his £30million signature`\
-https://nytimes.com/athletic/6399288/2025/06/04/liam-delap-chelsea-transfer-manchester-united/
 

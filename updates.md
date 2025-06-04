@@ -1,3 +1,11 @@
+**Map: 3.2-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html
+
+**Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
+`“It’s really important the league capitalizes on this,” former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
+https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
+
 **Biden’s Press Secretary Leaves the Democratic Party to Be an Independent**\
 `In a coming book, Karine Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
 https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
