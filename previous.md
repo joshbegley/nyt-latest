@@ -1,3 +1,7 @@
+**U.S. Brings Back Guatemalan Wrongly Deported to Mexico**\
+`The Trump administration obeyed the instructions of the judge in the case, a significant departure from the defiant stance it has staked out in other immigration matters.`\
+https://nytimes.com/2025/06/04/us/politics/guatemalan-deported-mexico-trump.html
+
 **U.S. Is Trimming Back Its Collection of Consumer Price Data**\
 `The cutbacks would have “minimal impact,” the government said, but economists warned of reduced confidence in inflation data produced by a struggling statistical system.`\
 https://nytimes.com/2025/06/04/business/bls-price-data-collection.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-why-eric-a
 **Pete Rose reinstatement was partially influenced by Donald Trump, commissioner says**\
 `Rob Manfred met with Trump in Washington, D.C., in April.`\
 https://nytimes.com/athletic/6403890/2025/06/04/pete-rose-reinstatement-donald-trump-influence/
-
-**Justice Dept. Sues Texas Over Tuition Break for Undocumented Students**\
-`The Trump administration argues that the Texas Dream Act of 2001 illegally benefits undocumented students. It is unclear whether the state will defend it.`\
-https://nytimes.com/2025/06/04/us/politics/texas-undocumented-students-trump.html
 

@@ -1,3 +1,7 @@
+**U.S. Brings Back Guatemalan Wrongly Deported to Mexico**\
+`The Trump administration obeyed the instructions of the judge in the case, a significant departure from the defiant stance it has staked out in other immigration matters.`\
+https://nytimes.com/2025/06/04/us/politics/guatemalan-deported-mexico-trump.html
+
 **U.S. Is Trimming Back Its Collection of Consumer Price Data**\
 `The cutbacks would have “minimal impact,” the government said, but economists warned of reduced confidence in inflation data produced by a struggling statistical system.`\
 https://nytimes.com/2025/06/04/business/bls-price-data-collection.html
