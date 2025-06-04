@@ -1,3 +1,15 @@
+**Sacha Jenkins, Filmmaker Who Mined the Black Experience, Dies at 53**\
+`Shaped by early hip-hop culture, his documentaries put race in the foreground, whether the topic was hip-hop fashion, the Capitol riots or Louis Armstrong.`\
+https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
+
+**Giants designate LaMonte Wade Jr., sign Dominic Smith as Buster Posey seeks to jolt offense**\
+`Posey made a series of bold roster changes Wednesday morning in an effort to jolt the Giants' slumbering offense.`\
+https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
+
+**Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
+`“It’s really important the league capitalizes on this,” TKTK`\
+https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
+
 **The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
 `The Penguins' hiring of Muse illustrates that they've truly entered a new era.`\
 https://nytimes.com/athletic/6403183/2025/06/04/penguins-new-coach-dan-muse/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/columbia-protester-hamas-cross.html
 **How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
 `Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
 https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html
-
-**‘Dog Day Afternoon’ Is Broadway Bound With Actors From ‘The Bear’**\
-`Jon Bernthal and Ebon Moss-Bachrach will star in a stage adaptation of the acclaimed 1975 film about a bank heist that goes tragically awry.`\
-https://nytimes.com/2025/06/04/theater/dog-day-afternoon-broadway.html
-
-**Chelsea complete Delap transfer on six-year deal**\
-`Delap makes the switch after a £30million ($40m) release clause in his Ipswich contract became active following the team's relegation.`\
-https://nytimes.com/athletic/6391349/2025/06/04/chelsea-liam-delap-transfer-confirmed/
-
-**What Is the Future of George Floyd Square?**\
-`Five years after the site became central to a national protest movement, its fate is unsettled.`\
-https://nytimes.com/2025/06/04/headway/george-floyd-square-future.html
 

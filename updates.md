@@ -1,3 +1,19 @@
+**The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
+`The Penguins' hiring of Muse illustrates that they've truly entered a new era.`\
+https://nytimes.com/athletic/6403183/2025/06/04/penguins-new-coach-dan-muse/
+
+**Home Ownership Quiz**\
+`Test your knowledge of home buying and ownership.`\
+https://nytimes.com/series/home-ownership-quiz
+
+**How Chelsea won the race for Delap ahead of rivals: Meetings, Zooms, young squad and familiar faces**\
+`Liam Delap's move to Chelsea has now been confirmed — this is the story of how they secured his £30million signature`\
+https://nytimes.com/athletic/6399288/2025/06/04/liam-delap-chelsea-transfer-manchester-united/
+
+**Alf Clausen, Who Gave ‘The Simpsons’ Its Musical Identity, Dies at 84**\
+`He created the music for hundreds of episodes over 27 seasons, spanning jazz, rock, blues and musicals. He won two Emmys and was nominated for 28 more.`\
+https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead-the-simpsons.html
+
 **Do You See Craters or Bumps on the Moon’s Surface?**\
 `A picture taken recently by a Japanese company’s spacecraft shows how your interpretation of objective reality can be tested by the power of illusion.`\
 https://nytimes.com/interactive/2025/06/04/science/craters-bumps-moon-quiz.html
