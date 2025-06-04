@@ -1,3 +1,7 @@
+**‘She’s been with us’: Loving traces of late daughter surround Texas Tech coach at WCWS**\
+`“For us, it’s like you can’t go anywhere in the softball community without some sort of tie to Geri Ann.”`\
+https://nytimes.com/athletic/6402296/2025/06/04/texas-tech-softball-wcws-gerry-glasco/
+
 **Madrid hold talks with Mastantuono's representatives, PSG also interested**\
 `The 17-year-old has a €45m release clause in his River Plate contract, which runs until 2026.`\
 https://nytimes.com/athletic/6299782/2025/06/04/franco-mastantuono-real-madrid-psg/
