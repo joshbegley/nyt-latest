@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Higher U.S. Tariffs on Steel and Aluminum Take Effect**\
+``\
+https://nytimes.com/live/2025/06/04/us/trump-news
+
 **Israeli-Backed Aid Sites in Gaza Close Temporarily After Deadly Shootings**\
 `The Gaza Humanitarian Foundation said it was working to improve operations, a day after the Red Cross said at least 27 Palestinians were killed near a distribution center.`\
 https://nytimes.com/2025/06/04/world/middleeast/israeli-aid-sites-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401070/2025/06/04/pwhl-expansion-mock-draft-vancou
 **The Big Ten and SEC fought for CFP control, then got it. So what's the problem now?**\
 `The new contract kicking in next year gives two leagues the power to do what they think is best. Yet, still, the CFP talks have hit a bump.`\
 https://nytimes.com/athletic/6400445/2025/06/04/big-ten-sec-college-football-playoff-format/
-
-**Buckley: For Patriots fans, David Andrews' retirement has air of finality to it**\
-`Andrews' news conference included video tributes from teammates from the old days, including Julian Edelman, Rob Gronkowski and Tom Brady.`\
-https://nytimes.com/athletic/6401304/2025/06/04/patriots-dynasty-finality-david-andrews-retirement/
 

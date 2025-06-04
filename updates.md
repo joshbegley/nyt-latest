@@ -1,3 +1,11 @@
+**Israeli-Backed Aid Sites in Gaza Close Temporarily After Deadly Shootings**\
+`The Gaza Humanitarian Foundation said it was working to improve operations, a day after the Red Cross said at least 27 Palestinians were killed near a distribution center.`\
+https://nytimes.com/2025/06/04/world/middleeast/israeli-aid-sites-gaza.html
+
+**Coco Gauff triumphs over Madison Keys and herself to reach French Open semifinals**\
+`The world No. 2 stayed loose in the tightest moments to knock the Australian Open champion out of Roland Garros.`\
+https://nytimes.com/athletic/6402080/2025/06/04/coco-gauff-madison-keys-french-open-result-analysis/
+
 **Man City to add Liverpool analyst to new-look coaching staff**\
 `James French is set to take up a role at the Etihad focused on set-piece coaching and analysis.`\
 https://nytimes.com/athletic/6402160/2025/06/04/man-city-james-french-liverpool/
