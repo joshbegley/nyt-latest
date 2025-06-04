@@ -1,3 +1,11 @@
+**Ceddanne Rafaela's walk-off homer powers Red Sox to back-and-forth win over Angels**\
+`The Red Sox showed a resilience they’ve too often lacked this season in making four separate comebacks.`\
+https://nytimes.com/athletic/6403916/2025/06/04/red-sox-ceddanne-rafaela-walk-off-homer-angels/
+
+**Forward Sarah Nurse set to sign with PWHL Vancouver: source**\
+`Nurse spent her first two PWHL seasons with the Toronto Sceptres, scoring 17 goals and 37 points in 45 games.`\
+https://nytimes.com/athletic/6403901/2025/06/04/sarah-nurse-pwhl-vancouver-expansion-contract/
+
 **L.A. County to Pay $2.7 Million to Teen Beaten in Juvenile Hall ‘Gladiator Fight’**\
 `Surveillance video captured a 16-year-old being repeatedly punched, kicked and stomped by juveniles while probation officers watched.`\
 https://nytimes.com/2025/06/04/us/politics/teenager-gladiator-fight-settlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6403850/2025/06/04/al-hilal-simone-inzaghi-inter/
 **This primary uses ranked-choice voting. Here’s an overview.**\
 `By Maya King`\
 https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/this-primary-uses-ranked-choice-voting-heres-an-overview
-
-**2 Hikers, a Father and Daughter, Are Found Dead Near Maine’s Highest Peak**\
-`Their bodies were found near the summit of Mount Katahdin, at the end of the Appalachian Trail, officials said, after a search that began on Monday.`\
-https://nytimes.com/2025/06/04/us/mount-katahdin-missing-hikers-search.html
-
-**Nearly All Remaining Voice of America Employees Could Be Fired Under Plan**\
-`A proposed restructuring would leave only 18 employees at the federally funded news agency, which was founded in 1942 to combat Nazi propaganda.`\
-https://nytimes.com/2025/06/04/us/politics/trump-voice-of-america.html
 
