@@ -1,3 +1,7 @@
+**To Bolster Columbia Inquiry, Prosecutor Likened Hamas Graffiti to Cross Burning**\
+`An internal Justice Department clash over safety and free speech rights centered on vandalism directed at Columbia University’s interim president.`\
+https://nytimes.com/2025/06/04/us/politics/columbia-protester-hamas-cross.html
+
 **How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
 `Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
 https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402615/2025/06/04/saquon-barkley-retirement-dynast
 **Lawsuit Seeks to Release Family of Suspect in Colorado Attack**\
 `The suit, filed by lawyers for the wife and children of the man charged with attacking an event supporting hostages in Gaza, also asks a judge to block their deportation.`\
 https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
-
-**Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
-`Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
-https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
 

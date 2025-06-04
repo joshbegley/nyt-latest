@@ -1,3 +1,11 @@
+**How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
+`Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
+https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html
+
+**‘Dog Day Afternoon’ Is Broadway Bound With Actors From ‘The Bear’**\
+`Jon Bernthal and Ebon Moss-Bachrach will star in a stage adaptation of the acclaimed 1975 film about a bank heist that goes tragically awry.`\
+https://nytimes.com/2025/06/04/theater/dog-day-afternoon-broadway.html
+
 **Chelsea complete Delap transfer on six-year deal**\
 `Delap makes the switch after a £30million ($40m) release clause in his Ipswich contract became active following the team's relegation.`\
 https://nytimes.com/athletic/6391349/2025/06/04/chelsea-liam-delap-transfer-confirmed/
