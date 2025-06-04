@@ -1,3 +1,15 @@
+**Guide to Pacers-Thunder: Our best reads on both NBA Finals teams**\
+`Here's everything you need to know about the Thunder and Pacers, courtesy of The Athletic NBA staff's coverage.`\
+https://nytimes.com/athletic/6395633/2025/06/04/nba-finals-2025-pacers-thunder-sga-haliburton/
+
+**‘A Freeky Introduction’ Review: Pleasure Principles**\
+`NSangou Njikam’s latest offering is an ode to the erotic and the divine, set to winking R&B and hip-hop songs, in a new production by Atlantic Theater Company.`\
+https://nytimes.com/2025/06/04/theater/a-freeky-introduction-review.html
+
+**Can a football player outrun an F1 car on a football pitch?**\
+`Leeds conducted an experiment with their players and a Formula One car after the end of the season`\
+https://nytimes.com/athletic/6402481/2025/06/04/leeds-united-formula-one/
+
 **China Tries to Stop Smuggling of Rare Earths as Shortages Loom Abroad**\
 `Police, customs officials and spies are reinforcing China’s embargo on the critical minerals that it overwhelmingly controls.`\
 https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/04/insider/puerto-rico-power-outage.html
 **May I Tell My Teenage Children About My Ex-Husband’s Abusive Father?**\
 `A reader worries that if she doesn’t act, the two teenagers she shares with her ex will hear about their grandfather’s predations from cousins.`\
 https://nytimes.com/2025/06/04/style/co-parenting-family-secrets.html
-
-**‘She’s been with us’: Loving traces of late daughter surround Texas Tech coach at WCWS**\
-`“For us, it’s like you can’t go anywhere in the softball community without some sort of tie to Geri Ann.”`\
-https://nytimes.com/athletic/6402296/2025/06/04/texas-tech-softball-wcws-gerry-glasco/
-
-**Madrid hold talks with Mastantuono's representatives, PSG also interested**\
-`The 17-year-old has a €45m release clause in his River Plate contract, which runs until 2026.`\
-https://nytimes.com/athletic/6299782/2025/06/04/franco-mastantuono-real-madrid-psg/
-
-**Arsenal in talks with Kelly over permanent move**\
-`Kelly, 27, joined the club on loan from Manchester City in January and played a vital role in their Champions League victory.`\
-https://nytimes.com/athletic/6402400/2025/06/04/arsenal-chloe-kelly-permanent-transfer/
 

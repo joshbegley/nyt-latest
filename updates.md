@@ -1,3 +1,15 @@
+**Guide to Pacers-Thunder: Our best reads on both NBA Finals teams**\
+`Here's everything you need to know about the Thunder and Pacers, courtesy of The Athletic NBA staff's coverage.`\
+https://nytimes.com/athletic/6395633/2025/06/04/nba-finals-2025-pacers-thunder-sga-haliburton/
+
+**‘A Freeky Introduction’ Review: Pleasure Principles**\
+`NSangou Njikam’s latest offering is an ode to the erotic and the divine, set to winking R&B and hip-hop songs, in a new production by Atlantic Theater Company.`\
+https://nytimes.com/2025/06/04/theater/a-freeky-introduction-review.html
+
+**Can a football player outrun an F1 car on a football pitch?**\
+`Leeds conducted an experiment with their players and a Formula One car after the end of the season`\
+https://nytimes.com/athletic/6402481/2025/06/04/leeds-united-formula-one/
+
 **China Tries to Stop Smuggling of Rare Earths as Shortages Loom Abroad**\
 `Police, customs officials and spies are reinforcing China’s embargo on the critical minerals that it overwhelmingly controls.`\
 https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
