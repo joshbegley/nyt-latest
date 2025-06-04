@@ -1,3 +1,11 @@
+**What we're hearing about a Marco Rossi trade, potential destinations and return**\
+`Which teams could be "screaming" for him? What could the return be? Here's the latest on the No. 2 player on The Athletic's trade board.`\
+https://nytimes.com/athletic/6402628/2025/06/04/marco-rossi-trade-destinations-return/
+
+**Eagles RB Saquon Barkley says his retirement could come 'out of nowhere'**\
+`"I'll probably just wake up one day, whether it's next year or two years or four years, and just be like, 'yeah, it's over,'" Barkley said.`\
+https://nytimes.com/athletic/6402865/2025/06/04/saquon-barkley-eagles-retirement-comments-chris-long/
+
 **Canada turns to Man United's academy for its latest multinational recruit**\
 `Gabriele Biancheri is an up-and-coming talent for Man United, and Canada is hoping to add him to a formidable group of young dual-nationals`\
 https://nytimes.com/athletic/6402601/2025/06/04/gabriele-biancheri-canada-manchester-united-wales-italy/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6402784/2025/06/04/fanduel-bans-bettor-heckling-gab
 https://nytimes.com/athletic/6401830/2025/06/04/ronny-mauricio-mets-the-windup/
 
 **Brock Nelson signs 3-year contract extension with Avalanche**\
-`Nelson totaled 6 goals and 7 assists in 19 regular-season games after a trade from the New York Islanders.`\
+`Nelson totaled six goals and seven assists in 19 regular-season games after a trade from the New York Islanders.`\
 https://nytimes.com/athletic/6402918/2025/06/04/brock-nelson-avalanche-contract/
 
 **Women’s Tales of Tables for One**\
 `Readers respond to a guest essay about women who dine alone. Also: A lawyer writes about a fundamental right codified in the Fifth Amendment.`\
 https://nytimes.com/2025/06/04/opinion/women-dining-alone.html
-
-**Reds place starter Hunter Greene on IL, sign veteran lefty Wade Miley**\
-`The Reds signed veteran left-hander Wade Miley to fill Greene’s spot in the rotation and transferred RHP Rhett Lowder to the 60-day IL.`\
-https://nytimes.com/athletic/6402799/2025/06/04/reds-hunter-greene-il-wade-miley/
-
-**Nikita Kucherov wins Ted Lindsay Award as NHL's most outstanding player**\
-`Kucherov beat out Colorado Avalanche teammates Nathan MacKinnon and Cale Makar for the award.`\
-https://nytimes.com/athletic/6400635/2025/06/04/nikita-kucherov-ted-lindsay-nhl-awards/
 

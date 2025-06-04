@@ -1,3 +1,11 @@
+**Canada turns to Man United's academy for its latest multinational recruit**\
+`Gabriele Biancheri is an up-and-coming talent for Man United, and Canada is hoping to add him to a formidable group of young dual-nationals`\
+https://nytimes.com/athletic/6402601/2025/06/04/gabriele-biancheri-canada-manchester-united-wales-italy/
+
+**Frank Graham Jr., Nature Writer Who Updated ‘Silent Spring,’ Dies at 100**\
+`He worked for the Brooklyn Dodgers and wrote about sports but mostly focused on conservation, publishing a sequel to Rachel Carson’s exposé on the dangers of pesticides.`\
+https://nytimes.com/2025/06/04/science/frank-graham-jr-dead.html
+
 **Deadly Crowd Crush at Cricket Championship Celebration**\
 `The deadly crowd crush marred the celebration of the Premier League cricket champion in the Indian city of Bengaluru, officials said`\
 https://nytimes.com/video/world/asia/100000010207338/deadly-crowd-crush-at-cricket-championship-celebration.html
