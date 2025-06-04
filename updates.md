@@ -1,3 +1,15 @@
+**10 Questions With Adrienne Adams**\
+`Adrienne Adams, the New York City Council speaker who is running for mayor, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/04/nyregion/adrienne-adams-interview-mayor.html
+
+**E.P.A. Workers Are Unsettled as ICE Makes Arrests in Their Building**\
+`As immigration officials ramp up a crackdown in downtown Manhattan, employees at a neighboring federal agency have been ordered not to get in the way.`\
+https://nytimes.com/2025/06/04/nyregion/epa-workers-immigration-arrest.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/04/crosswords/spelling-bee-forum.html
+
 **Late Night Hopes Trump and Musk Can Patch Things Up**\
 `“Oh, no, not my two favorite people fighting!” said the “Daily Show” host Michael Kosta. “Don’t make me choose who I love more.”`\
 https://nytimes.com/2025/06/04/arts/television/late-night-trump-elon-musk.html
