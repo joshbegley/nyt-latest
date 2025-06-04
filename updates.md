@@ -1,3 +1,15 @@
+**Jury in El Salvador Convicts 3 Ex-Officers in 1982 Killings of Dutch Journalists**\
+`A jury convicted the former military officers for the murder of four Dutch television journalists who were covering the Salvadoran civil war.`\
+https://nytimes.com/2025/06/04/world/americas/el-salvador-killings-dutch-journalists-1982.html
+
+**Lois Boisson's French Open fairytale continues with stunning win over Mirra Andreeva**\
+`Boisson saved two set points and rode the support of a raucous Paris crowd to reach the Roland Garros last four as Andreeva imploded.`\
+https://nytimes.com/athletic/6402550/2025/06/04/tennis-lois-boisson-french-open-mirra-andreeva-result-analysis/
+
+**Germans Are Buying More Electric Cars, but Not Teslas**\
+`Drivers in the country, Europe’s largest car market, are avoiding vehicles from Tesla, which has seen a drop in sales in other countries as well.`\
+https://nytimes.com/2025/06/04/business/tesla-elon-musk-germany-europe-sales.html
+
 **The Bounce: Does Tom Thibodeau's Knicks dismissal prove no NBA coach's job is safe?**\
 `The Knicks fired Tom Thibodeau as coach after their best season in 25 years. Will they actually upgrade or hire a clone?`\
 https://nytimes.com/athletic/6402218/2025/06/04/tom-thibodeau-knicks-mike-malone-coaching-thunder-pacers-final-nba-the-bounce/

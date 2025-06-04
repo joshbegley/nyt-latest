@@ -1,3 +1,7 @@
+**Trump Budget Eliminates Funding for Crucial Global Vaccination Programs**\
+`The spending proposal terminates support of health programs that, according to the proposal, “do not make Americans safer.”`\
+https://nytimes.com/2025/06/04/health/trump-budget-global-health-polio.html
+
 **Jury in El Salvador Convicts 3 Ex-Officers in 1982 Killings of Dutch Journalists**\
 `A jury convicted the former military officers for the murder of four Dutch television journalists who were covering the Salvadoran civil war.`\
 https://nytimes.com/2025/06/04/world/americas/el-salvador-killings-dutch-journalists-1982.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
 **Eastern U.S. Is Shrouded in Smoke and Dust**\
 `Smoke from Canadian wildfires and desert dust from the Sahara are creating unhealthy air quality from New York City to Miami.`\
 https://nytimes.com/2025/06/04/weather/air-quality-wildfire-smoke-sahara-dust.html
-
-**Who stays, who goes for the Kings this summer? Will Phillip Danault be back?**\
-`How much will new GM Ken Holland change after the Kings' fourth consecutive first-round playoff loss?`\
-https://nytimes.com/athletic/6398875/2025/06/04/la-kings-offseason-trade-free-agent/
 
