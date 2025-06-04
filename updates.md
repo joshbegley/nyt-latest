@@ -1,3 +1,7 @@
+**England manager Sarina Wiegman's 'honest conversations' come with mixed results**\
+`This year, Wiegman's transparent and proactive conversations have led to two big retirements in international football`\
+https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retirement-spain/
+
 **Royals' top prospect goes 0 for 5 in MLB debut, but he's a hit anyway**\
 `Jac Caglianone hit into some tough luck all night but that hardly dampened his spirits: "I was just soaking in the sights."`\
 https://nytimes.com/athletic/6401238/2025/06/04/royals-jac-caglianone-mlb-debut/
