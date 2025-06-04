@@ -1,3 +1,15 @@
+**NBA's small markets have an edge: A closer connection between team, fans**\
+`Thunder, Pacers tout close ties with their communities as a part of their teams' developments.`\
+https://nytimes.com/athletic/6403692/2025/06/04/nba-final-small-market-connection-fans/
+
+**On the debate stage, Cuomo will confront his rivals for the first time.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/on-the-debate-stage-cuomo-will-confront-his-rivals-for-the-first-time
+
+**Morten Harket, a-ha’s Lead Singer, Reveals Parkinson’s Diagnosis**\
+`Harket, best known for his band’s infectious 1985 synth-pop hit “Take on Me,” revealed his illness in an interview on a-ha’s website.`\
+https://nytimes.com/2025/06/04/arts/music/morten-harket-aha-parkinsons.html
+
 **Republican Megabill Projected to Add $2.4 Trillion to Debt**\
 `Also, Trump said that Putin would retaliate against Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/04/briefing/republican-bill-trump-putin-ukraine.html
