@@ -2,6 +2,10 @@
 `The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
 https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
 
+**Carsley signs new contract to stay England U21s head coach**\
+`The new deal will take him through to the end of the 2027 European Under-21 Championship.`\
+https://nytimes.com/athletic/6402077/2025/06/04/lee-carsley-england-u21s/
+
 **Attack on Aid Convoy in Sudan Kills 5, U.N. Says**\
 `The delivery was supposed to be the first to arrive in the embattled city of El Fasher, the capital of North Darfur State, in more than a year.`\
 https://nytimes.com/2025/06/04/world/africa/sudan-united-nations-convoy-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400902/2025/06/04/stanley-cup-final-oilers-panther
 **How ESPN messed up its NBA Finals TV trio, now weighs future of Doris Burke, Richard Jefferson**\
 `For this year's Finals, it is Mike Breen, Burke and Jefferson. Next year, at this time, it very well could be a different team.`\
 https://nytimes.com/athletic/6400351/2025/06/04/nba-finals-espn-doris-burke-mike-breen/
-
-**Raptors have the pieces and motive to make a run at Giannis Antetokounmpo**\
-`The Raptors have enough to make a trade with Milwaukee for Giannis work, but at what cost?`\
-https://nytimes.com/athletic/6400707/2025/06/04/raptors-giannis-antetokounmpo-trade-rumours/
 
