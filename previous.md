@@ -1,3 +1,7 @@
+**Trump Escalates Attack on Columbia by Threatening Its Accreditation**\
+`The administration notified the university’s accrediting body that federal agencies had found that the school violated Jewish students’ civil rights.`\
+https://nytimes.com/2025/06/04/nyregion/columbia-trump-accreditation-civil-rights.html
+
 **Former Indiana basketball players accuse longtime team doctor of sexual misconduct**\
 `“As a grown man it breaks my heart to think about what happened to me when I was a young, vulnerable, and trusting student."`\
 https://nytimes.com/athletic/6403499/2025/06/04/indiana-basketball-sexual-misconduct-team-doctor-bob-knight/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm
 **Karine Jean-Pierre, Former Biden Press Secretary, Leaves Democratic Party**\
 `In a coming book, Ms. Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
 https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
-
-**Brailsford to step back at Man Utd, Wilcox named director of football**\
-`Brailsford, 61, has been a significant figure at United since Ratcliffe’s stake was confirmed on Christmas Eve 2023.`\
-https://nytimes.com/athletic/6403274/2025/06/04/dave-brailsford-manchester-united/
 

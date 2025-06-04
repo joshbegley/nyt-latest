@@ -1,3 +1,7 @@
+**Trump Escalates Attack on Columbia by Threatening Its Accreditation**\
+`The administration notified the university’s accrediting body that federal agencies had found that the school violated Jewish students’ civil rights.`\
+https://nytimes.com/2025/06/04/nyregion/columbia-trump-accreditation-civil-rights.html
+
 **Former Indiana basketball players accuse longtime team doctor of sexual misconduct**\
 `“As a grown man it breaks my heart to think about what happened to me when I was a young, vulnerable, and trusting student."`\
 https://nytimes.com/athletic/6403499/2025/06/04/indiana-basketball-sexual-misconduct-team-doctor-bob-knight/
