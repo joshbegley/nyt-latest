@@ -1,3 +1,7 @@
+**What to expect from Ronny Mauricio and where he fits in the Mets' roster puzzle**\
+`New York has called on Mauricio earlier than expected with Mark Vientos landing on the injured list.`\
+https://nytimes.com/athletic/6401829/2025/06/04/mets-ronny-mauricio-what-to-expect/
+
 **Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
 `The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
 https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test/
