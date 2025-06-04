@@ -1,3 +1,15 @@
+**FIFA's Club World Cup architect on the tournament, backlash and its future**\
+`Mattias Grafström played a big role in the creation of the Club World Cup and addresses pressing questions ahead of the tournament's opener`\
+https://nytimes.com/athletic/6403227/2025/06/04/fifa-club-world-cup-mattias-grafstrom/
+
+**NBA Europe is coming but British basketball is bitterly divided. What will it mean?**\
+`The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
+https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
+
+**Leopards on the Potomac! Trump Is Delighted by Deal With Saudis for Rare Cats.**\
+`Move over, pandas. Two Arabian leopards are coming to the National Zoo.`\
+https://nytimes.com/2025/06/04/us/politics/leopards-trump-saudi.html
+
 **Haley Joel Osment Ordered to Attend A.A. After Ski Resort Arrest**\
 `The actor was charged in April with public intoxication and possession of cocaine and was recorded using the word “Nazi” and an antisemitic slur during his arrest. He later apologized.`\
 https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
@@ -18,23 +30,11 @@ https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.
 `Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
 https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
 
-**For NBA referees, earning the White Jacket is the pinnacle of their profession**\
+**For NBA referees, earning the white jacket is the pinnacle of their profession**\
 `NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
 https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
 
 **Man Is Accused of Aiding California Fertility Clinic Bomber**\
 `Daniel Park, 32, of Washington State, was arrested Tuesday night at Kennedy Airport and charged with providing material support to terrorists, officials said.`\
 https://nytimes.com/2025/06/04/nyregion/palm-springs-explosion-kennedy-arrest.html
-
-**Reddit Sues Anthropic, Accusing It of Illegally Using Data From Its Site**\
-`In its lawsuit, Reddit said Anthropic had also declined to enter into a licensing agreement for data and had unjustly enriched itself at Reddit’s expense.`\
-https://nytimes.com/2025/06/04/technology/reddit-anthropic-lawsuit-data.html
-
-**Connecticut Brings Its ‘Best Pizza’ Brag to the Heart of New York**\
-`Billboards heralding the state’s pies have popped up next to some of the city’s most celebrated pizzerias, provoking locals and confusing tourists.`\
-https://nytimes.com/2025/06/04/dining/connecticut-best-pizza.html
-
-**Horse Bits Have Been Used for Thousands of Years. Now They’re Being Reconsidered.**\
-`They are used to steer a horse, but some think placing a hunk of metal in their mouths and tugging on it is cruel. A few riders have found another way.`\
-https://nytimes.com/2025/06/04/sports/horse-racing/horse-bits-reconsidered.html
 

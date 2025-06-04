@@ -30,7 +30,7 @@ https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.
 `Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
 https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
 
-**For NBA referees, earning the white jacket is the pinnacle of their profession**\
+**For NBA referees, earning the White Jacket is the pinnacle of their profession**\
 `NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
 https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
 

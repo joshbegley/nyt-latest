@@ -1,3 +1,19 @@
+**FIFA's Club World Cup architect on the tournament, backlash and its future**\
+`Mattias Grafström played a big role in the creation of the Club World Cup and addresses pressing questions ahead of the tournament's opener`\
+https://nytimes.com/athletic/6403227/2025/06/04/fifa-club-world-cup-mattias-grafstrom/
+
+**NBA Europe is coming but British basketball is bitterly divided. What will it mean?**\
+`The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
+https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
+
+**Leopards on the Potomac! Trump Is Delighted by Deal With Saudis for Rare Cats.**\
+`Move over, pandas. Two Arabian leopards are coming to the National Zoo.`\
+https://nytimes.com/2025/06/04/us/politics/leopards-trump-saudi.html
+
+**For NBA referees, earning the white jacket is the pinnacle of their profession**\
+`NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
+https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
+
 **Haley Joel Osment Ordered to Attend A.A. After Ski Resort Arrest**\
 `The actor was charged in April with public intoxication and possession of cocaine and was recorded using the word “Nazi” and an antisemitic slur during his arrest. He later apologized.`\
 https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
