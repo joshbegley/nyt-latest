@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
 `Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
 https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
 
-**Suns hiring Cavaliers assistant Jordan Ott as next head coach: Source**\
+**Suns hiring Cavaliers assistant Jordan Ott as head coach: Source**\
 `The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach`\
 https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/
 

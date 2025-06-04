@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfer-betting-predictions-odds/
 
+**Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
+`Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
+`\
+https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfer-betting-predictions-odds/
+
 **Putin and Zelensky Trade Accusations Amid Escalating Attacks**\
 `The belligerent language and the recent strikes make clear that a wide gap separates Ukraine and Russia, even as their officials have been engaged in direct talks.`\
 https://nytimes.com/2025/06/04/world/europe/putin-zelensky-accusations-escalation.html
