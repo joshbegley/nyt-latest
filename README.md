@@ -1,4 +1,4 @@
-**Putin, Zelensky Trade Accusations Amid Escalating Attacks**\
+**Putin and Zelensky Trade Accusations Amid Escalating Attacks**\
 `The belligerent language and the recent strikes make clear that a wide gap separates Ukraine and Russia, even as their officials have been engaged in direct talks.`\
 https://nytimes.com/2025/06/04/world/europe/putin-zelensky-accusations-escalation.html
 
