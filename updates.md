@@ -1,3 +1,7 @@
+**Man City reach agreement to sign Milan's Reijnders**\
+`The 26-year-old enjoyed an impressive season for Milan, scoring 15 goals in all competitions, and was voted Serie A midfielder of the year.`\
+https://nytimes.com/athletic/6387375/2025/06/04/tijjani-reijnders-manchester-city-transfer/
+
 **What to expect from Ronny Mauricio and where he fits in the Mets' roster puzzle**\
 `New York has called on Mauricio earlier than expected with Mark Vientos landing on the injured list.`\
 https://nytimes.com/athletic/6401829/2025/06/04/mets-ronny-mauricio-what-to-expect/

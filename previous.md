@@ -1,3 +1,7 @@
+**Man City reach agreement to sign Milan's Reijnders**\
+`The 26-year-old enjoyed an impressive season for Milan, scoring 15 goals in all competitions, and was voted Serie A midfielder of the year.`\
+https://nytimes.com/athletic/6387375/2025/06/04/tijjani-reijnders-manchester-city-transfer/
+
 **What to expect from Ronny Mauricio and where he fits in the Mets' roster puzzle**\
 `New York has called on Mauricio earlier than expected with Mark Vientos landing on the injured list.`\
 https://nytimes.com/athletic/6401829/2025/06/04/mets-ronny-mauricio-what-to-expect/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retiremen
 **Royals' top prospect goes 0 for 5 in MLB debut, but he's a hit anyway**\
 `Jac Caglianone hit into some tough luck all night but that hardly dampened his spirits: "I was just soaking in the sights."`\
 https://nytimes.com/athletic/6401238/2025/06/04/royals-jac-caglianone-mlb-debut/
-
-**Reds beat Brewers on TJ Friedl's walk-off home run robbery**\
-`"You dream of that as an outfielder growing up and in your backyard robbing home runs," Friedl said of Tuesday's 4-2 win.`\
-https://nytimes.com/athletic/6401709/2025/06/04/reds-win-brewers-tj-friedl-walk-off-home-run-robbery/
 
