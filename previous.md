@@ -1,3 +1,7 @@
+**Saharan Dust Is Expected to Ramp Up Over Florida on Thursday**\
+`A dust plume that has been traveling across the Atlantic may later spread as far as Texas and Georgia as a weather system breaks it apart.`\
+https://nytimes.com/2025/06/04/weather/saharan-dust-florida-texas.html
+
 **Man Utd make first bid worth up to £55m for Brentford's Mbeumo**\
 `Talks are ongoing as United work to reach an agreement for a player targeted by head coach Ruben Amorim to strengthen his attacking unit.`\
 https://nytimes.com/athletic/6398630/2025/06/04/bryan-mbeumo-manchester-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402803/2025/06/04/portugal-ronaldo-nations-league-
 **Thursday Briefing: Trump’s Call With Putin**\
 `Plus, threatened, ancient trees thrive in Chinese temples.`\
 https://nytimes.com/2025/06/04/briefing/trump-putin-gaza-hajj-switch-2.html
-
-**Orien McNeill, Artist Who Made Mischief on the Water, Dies at 46**\
-`He was the pied piper of a loose community of DIY artists homesteading on New York City’s waterways, which he used as his canvas and stage.`\
-https://nytimes.com/2025/06/04/arts/orien-mcneill-dead.html
 
