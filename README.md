@@ -1,3 +1,7 @@
+**Pacers' Rick Carlisle thought Knicks firing Tom Thibodeau was 'fake AI'**\
+`Carlisle’s Pacers were the last team that Thibodeau coached against while directing the Knicks.`\
+https://nytimes.com/athletic/6403419/2025/06/04/pacers-thunder-nba-finals-knicks-tom-thibodeau/
+
 **Sacha Jenkins, Filmmaker Who Mined the Black Experience, Dies at 53**\
 `Shaped by early hip-hop culture, his documentaries put race in the foreground, whether the topic was hip-hop fashion, the Capitol riots or Louis Armstrong.`\
 https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead-the-simpsons.html
 **To Bolster Columbia Inquiry, Prosecutor Likened Hamas Graffiti to Cross Burning**\
 `An internal Justice Department clash over safety and free speech rights centered on vandalism directed at Columbia University’s interim president.`\
 https://nytimes.com/2025/06/04/us/politics/columbia-protester-hamas-cross.html
-
-**How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
-`Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
-https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html
 

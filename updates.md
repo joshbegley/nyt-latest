@@ -1,3 +1,15 @@
+**Sacha Jenkins, Filmmaker Who Mined the Black Experience, Dies at 53**\
+`Shaped by early hip-hop culture, his documentaries put race in the foreground, whether the topic was hip-hop fashion, the Capitol riots or Louis Armstrong.`\
+https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
+
+**Giants designate LaMonte Wade Jr., sign Dominic Smith as Buster Posey seeks to jolt offense**\
+`Posey made a series of bold roster changes Wednesday morning in an effort to jolt the Giants' slumbering offense.`\
+https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
+
+**Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
+`“It’s really important the league capitalizes on this,” TKTK`\
+https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
+
 **The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
 `The Penguins' hiring of Muse illustrates that they've truly entered a new era.`\
 https://nytimes.com/athletic/6403183/2025/06/04/penguins-new-coach-dan-muse/
