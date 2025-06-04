@@ -1,3 +1,11 @@
+**Zohran Mamdani Has Momentum. Will He Build on it at the Debate?**\
+`Mr. Mamdani, a 33-year-old state lawmaker from Queens, has centered his campaign on a pledge to make New York City more affordable.`\
+https://nytimes.com/2025/06/04/nyregion/zohran-mamdani-debate.html
+
+**Even Offstage, Trump Is Everywhere in New Jersey’s Governor’s Race**\
+`The Republican and Democratic primaries are next week. Will the president’s influence help turn a red state blue?`\
+https://nytimes.com/2025/06/04/us/politics/trump-new-jersey-governor-election.html
+
 **U.S. Vetoes U.N. Resolution for Gaza Cease-Fire**\
 `The U.S. was the only member nation to veto the U.N. Security Council resolution. The resolution also sought the release of all the hostages and the continuation of full-scale aid deliveries.`\
 https://nytimes.com/video/world/middleeast/100000010208511/un-security-council-gaza-cease-fire.html
