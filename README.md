@@ -1,3 +1,7 @@
+**Reds beat Brewers on TJ Friedl's walk-off home run robbery**\
+`"You dream of that as an outfielder growing up and in your backyard robbing home runs," Friedl said of Tuesday's 4-2 win.`\
+https://nytimes.com/athletic/6401709/2025/06/04/reds-win-brewers-tj-friedl-walk-off-home-run-robbery/
+
 **Revised 4-seam fastball key to Jhoan Duran's resurgence, reliever of the month award**\
 `Tuesday, Duran became the first Twins reliever to be named the AL's reliever of the month since Joe Nathan in June 2009.`\
 https://nytimes.com/athletic/6401713/2025/06/04/twins-jhoan-duran-resurgence-reliever-of-the-month/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399372/2025/06/04/mamardashvil-alisson-liverpool-k
 **Timing's just right for Yankees as Jazz Chisholm and Devin Williams return to familiar roles**\
 `Chisholm homered in his first game back at third base since the World Series while Devin Williams resumed the closer's role.`\
 https://nytimes.com/athletic/6401670/2025/06/04/jazz-chisholm-devin-williams-yankees/
-
-**Didier Deschamps on the brilliance of Doue and Yamal - and why he can't 'copy and paste' PSG's success**\
-`Deschamps speaks about PSG's Champions League success, the form of Mbappe, and making decisions for the future of this France team, not him`\
-https://nytimes.com/athletic/6399265/2025/06/04/didier-deschamps-france-doue-nations-league-spain-yamal/
 
