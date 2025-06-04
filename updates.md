@@ -1,3 +1,11 @@
+**Iran’s Supreme Leader Calls U.S. Nuclear Deal Proposal ‘Nonsense’**\
+`Ayatollah Ali Khamenei said that abandoning uranium enrichment would be against Iran’s interests.`\
+https://nytimes.com/2025/06/04/world/middleeast/iran-nuclear-uranium-trump.html
+
+**What you need to know about Michigan recruiting: 5 key storylines amid June uncertainty**\
+`Michigan’s 2026 recruiting class has been a bit slow to develop. Is there any reason to worry? Here's what to watch and expect next.`\
+https://nytimes.com/athletic/6402208/2025/06/04/michigan-football-recruiting-2026-class-visits/
+
 **Edmund White, Novelist and Pioneer of Gay Literature, Dies at 85**\
 `Mr. White mined his own varied catalog of sexual experiences in dozens of books and hundreds of articles and essays.`\
 https://nytimes.com/2025/06/04/arts/edmund-white-dead.html
