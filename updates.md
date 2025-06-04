@@ -1,3 +1,7 @@
+**Multiple deaths after mass gathering following IPL title celebrations in India**\
+`Indian Prime Minister Narendra Modi described the incident as absolutely “heartbreaking.”`\
+https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
+
 **FIFA slashes ticket prices for Club World Cup opener, tens of thousands unsold**\
 `Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
 https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/

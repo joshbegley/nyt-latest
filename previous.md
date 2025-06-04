@@ -1,3 +1,7 @@
+**Multiple deaths after mass gathering following IPL title celebrations in India**\
+`Indian Prime Minister Narendra Modi described the incident as absolutely “heartbreaking.”`\
+https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
+
 **FIFA slashes ticket prices for Club World Cup opener, tens of thousands unsold**\
 `Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
 https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010207338/deadly-crowd-crush-at-crick
 **Penguins hire Dan Muse as head coach to replace Mike Sullivan**\
 `Muse has also been an assistant with the Predators and head coach of the U.S. NTDP.`\
 https://nytimes.com/athletic/6402919/2025/06/04/penguins-dan-muse-coach-nhl/
-
-**FanDuel bans bettor for heckling Gabby Thomas at Philadelphia track meet**\
-`The betting platform took action after Thomas said Monday that a sports bettor followed her around Franklin Field and heckled her.`\
-https://nytimes.com/athletic/6402784/2025/06/04/fanduel-bans-bettor-heckling-gabby-thomas/
 
