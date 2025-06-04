@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.html
 
 **USWNT honors former captain Becky Sauerbrunn with bobbleheads, fireworks and a dominant win**\
-`Listening to her former teammates, it's clear that Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
+`Listening to her former teammates, it's clear Sauerbrunn's legacy was built over years of grit, consistency and quiet leadership`\
 https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jamaica-win/
 
 **For NBA referees, earning the White Jacket is the pinnacle of their profession**\
