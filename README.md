@@ -1,4 +1,12 @@
-**6 big questions about these NBA Finals and why OKC will win in the end**\
+**Botswana**\
+`Diamonds have shaped Botswana’s economy, society and environment. Three experts share how the country is building on this legacy to shape its future.`\
+https://nytimes.com/paidpost/de-beers/botswana.html
+
+**A Black Brazilian Artist Who Wields Poetry and Persistence**\
+`Allegorical forest creatures meet ethnographic archives in Rosana Paulino’s art — influential in Brazil, and now on view in New York.`\
+https://nytimes.com/2025/06/04/arts/design/rosana-paulino-brazil-studio.html
+
+**Six big questions about these NBA Finals and why OKC will win in the end**\
 `Which Pacers defender will try to stop the NBA MVP? And whose depth will hold up best?`\
 https://nytimes.com/athletic/6401218/2025/06/04/nba-finals-2025-pacers-thunder-preview-predictions/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6397648/2025/06/04/white-sox-all-quarter-century-te
 **Republican Policy Bill Would Add $2.4 Trillion to Debt, Budget Office Says**\
 `The estimate from the nonpartisan Congressional Budget Office is all but certain to inflame an already intense debate inside the G.O.P. about the fiscal consequences of their bill to enact President Trump’s agenda.`\
 https://nytimes.com/2025/06/04/us/politics/trump-policy-bill-deficit-estimate.html
-
-**A Risky Plan Made in America**\
-`Jacob Long bet his family, his livelihood and his personal philosophy about American craftsmanship on a textile mill in Connecticut.`\
-https://nytimes.com/2025/06/04/fashion/american-woolen-textiles-jacob-long.html
-
-**What’s in Our Queue? Ezra Collective and More **\
-`Text by Adam Satariano`\
-https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
 
