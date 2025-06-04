@@ -1,3 +1,7 @@
+**Down South, a Trail Ride is a Party on Horseback — and So Much More**\
+`The Black equestrian tradition, often set to Zydeco music with hundreds of people line dancing in the woods, has grown into a collective show of Black horsemanship.`\
+https://nytimes.com/2025/06/04/sports/trail-ride-black-horseman.html
+
 **Equestrian Special Reports**\
 ``\
 https://nytimes.com/spotlight/equestrian-horse-riding
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6403072/2025/06/04/rory-mcilroy-pga-championship-ca
 **Multiple deaths after mass gathering following IPL title celebrations in India**\
 `Indian Prime Minister Narendra Modi described the incident as absolutely “heartbreaking.”`\
 https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
-
-**FIFA slashes ticket prices for Club World Cup opener, tens of thousands unsold**\
-`Sources have told The Athletic that FIFA has been concerned that the opening match has not been selling as well as expected.`\
-https://nytimes.com/athletic/6402273/2025/06/04/club-world-club-tickets-fifa-miami/
 
