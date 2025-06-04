@@ -1,3 +1,7 @@
+**The Bounce: Does Tom Thibodeau's Knicks dismissal prove no NBA coach's job is safe?**\
+`The Knicks fired Tom Thibodeau as coach after their best season in 25 years. Will they actually upgrade or hire a clone?`\
+https://nytimes.com/athletic/6402218/2025/06/04/tom-thibodeau-knicks-mike-malone-coaching-thunder-pacers-final-nba-the-bounce/
+
 **Guide to Pacers-Thunder: Our best reads on both NBA Finals teams**\
 `Here's everything you need to know about the Thunder and Pacers, courtesy of The Athletic NBA staff's coverage.`\
 https://nytimes.com/athletic/6395633/2025/06/04/nba-finals-2025-pacers-thunder-sga-haliburton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402388/2025/06/04/tyrone-mings-aston-villa-contrac
 **In Puerto Rico, a Struggle for Power Comes to Light**\
 `The Trump administration is clawing back millions in climate grants promised to credit unions in Puerto Rico. A reporter traveled to the island to meet people affected by the rollback.`\
 https://nytimes.com/2025/06/04/insider/puerto-rico-power-outage.html
-
-**May I Tell My Teenage Children About My Ex-Husband’s Abusive Father?**\
-`A reader worries that if she doesn’t act, the two teenagers she shares with her ex will hear about their grandfather’s predations from cousins.`\
-https://nytimes.com/2025/06/04/style/co-parenting-family-secrets.html
 

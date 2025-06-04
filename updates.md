@@ -1,3 +1,7 @@
+**The Bounce: Does Tom Thibodeau's Knicks dismissal prove no NBA coach's job is safe?**\
+`The Knicks fired Tom Thibodeau as coach after their best season in 25 years. Will they actually upgrade or hire a clone?`\
+https://nytimes.com/athletic/6402218/2025/06/04/tom-thibodeau-knicks-mike-malone-coaching-thunder-pacers-final-nba-the-bounce/
+
 **Guide to Pacers-Thunder: Our best reads on both NBA Finals teams**\
 `Here's everything you need to know about the Thunder and Pacers, courtesy of The Athletic NBA staff's coverage.`\
 https://nytimes.com/athletic/6395633/2025/06/04/nba-finals-2025-pacers-thunder-sga-haliburton/

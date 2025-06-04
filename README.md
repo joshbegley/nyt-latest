@@ -1,3 +1,11 @@
+**Lois Boisson's French Open fairytale continues with stunning win over Mirra Andreeva**\
+`Boisson saved two set points and rode the support of a raucous Paris crowd to reach the Roland Garros last four as Andreeva imploded.`\
+https://nytimes.com/athletic/6402550/2025/06/04/tennis-lois-boisson-french-open-mirra-andreeva-result-analysis/
+
+**Germans Are Buying More Electric Cars, but Not Teslas**\
+`Drivers in the country, Europe’s largest car market, are avoiding vehicles from Tesla, which has seen a drop in sales in other countries as well.`\
+https://nytimes.com/2025/06/04/business/tesla-elon-musk-germany-europe-sales.html
+
 **The Bounce: Does Tom Thibodeau's Knicks dismissal prove no NBA coach's job is safe?**\
 `The Knicks fired Tom Thibodeau as coach after their best season in 25 years. Will they actually upgrade or hire a clone?`\
 https://nytimes.com/athletic/6402218/2025/06/04/tom-thibodeau-knicks-mike-malone-coaching-thunder-pacers-final-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6398875/2025/06/04/la-kings-offseason-trade-free-ag
 **Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
 `The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
 https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test-darvish/
-
-**Mings signs new Villa contract through to 2027**\
-`Mings had been set to enter the final 12 months of his existing deal and his form had been praised by Villa head coach Unai Emery.`\
-https://nytimes.com/athletic/6402388/2025/06/04/tyrone-mings-aston-villa-contract-how-long/
-
-**In Puerto Rico, a Struggle for Power Comes to Light**\
-`The Trump administration is clawing back millions in climate grants promised to credit unions in Puerto Rico. A reporter traveled to the island to meet people affected by the rollback.`\
-https://nytimes.com/2025/06/04/insider/puerto-rico-power-outage.html
 
