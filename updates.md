@@ -1,3 +1,7 @@
+**Lawsuit Seeks to Release Family of Suspect in Colorado Attack**\
+`The suit, filed by lawyers for the wife and children of the man charged with attacking an event supporting hostages in Gaza, also asks a judge to block their deportation.`\
+https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
+
 **Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
 `Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
 https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
