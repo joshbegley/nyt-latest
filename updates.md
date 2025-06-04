@@ -1,3 +1,11 @@
+**Somehow, Guardians star José Ramírez remains MLB’s best-kept secret**\
+`While the feats of Aaron Judge and Shohei Ohtani hog headlines, an overlooked infielder has been charting a possible path to Cooperstown.`\
+https://nytimes.com/athletic/6401514/2025/06/04/guardians-jose-ramirez-success-history-with-cleveland/
+
+**Gaza’s Deadly Aid Deliveries**\
+`Israel’s troops have repeatedly shot near food distribution sites.`\
+https://nytimes.com/2025/06/04/briefing/gaza-aid-shootings.html
+
 **The Pulse: NBA and NHL title guides and predictions**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6400765/2025/06/04/pacers-thunder-panthers-oilers-finals-the-pulse/
