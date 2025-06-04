@@ -1,3 +1,7 @@
+**Royals' top prospect goes 0 for 5 in MLB debut, but he's a hit anyway**\
+`Jac Caglianone hit into some tough luck all night but that hardly dampened his spirits: "I was just soaking in the sights."`\
+https://nytimes.com/athletic/6401238/2025/06/04/royals-jac-caglianone-mlb-debut/
+
 **Reds beat Brewers on TJ Friedl's walk-off home run robbery**\
 `"You dream of that as an outfielder growing up and in your backyard robbing home runs," Friedl said of Tuesday's 4-2 win.`\
 https://nytimes.com/athletic/6401709/2025/06/04/reds-win-brewers-tj-friedl-walk-off-home-run-robbery/

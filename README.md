@@ -1,3 +1,7 @@
+**England manager Sarina Wiegman's 'honest conversations' come with mixed results**\
+`This year, Wiegman's transparent and proactive conversations have led to two big retirements in international football`\
+https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retirement-spain/
+
 **Royals' top prospect goes 0 for 5 in MLB debut, but he's a hit anyway**\
 `Jac Caglianone hit into some tough luck all night but that hardly dampened his spirits: "I was just soaking in the sights."`\
 https://nytimes.com/athletic/6401238/2025/06/04/royals-jac-caglianone-mlb-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research
 **Alex Cora, frustrated by Red Sox losses: 'We keep making the same mistakes'**\
 `Cora was upset after Tuesday's 10-inning one-run loss to the Angels. Boston leads the league with 17 one-run losses this season.`\
 https://nytimes.com/athletic/6401635/2025/06/04/red-sox-alex-cora-frustration-losses/
-
-**Mamardashvili v Alisson: Could there really be a battle to be Liverpool's No 1?**\
-`The Georgian is earmarked as the club's future No 1, but just like Kelleher he may be stuck in the No 2 spot… at least for now`\
-https://nytimes.com/athletic/6399372/2025/06/04/mamardashvil-alisson-liverpool-kelleher/
 
