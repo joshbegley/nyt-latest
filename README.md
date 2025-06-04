@@ -1,3 +1,7 @@
+**Edmund White, Novelist and Pioneer of Gay Literature, Dies at 85**\
+`Mr. White mined his own varied catalog of sexual experiences in dozens of books and hundreds of articles and essays.`\
+https://nytimes.com/2025/06/04/arts/edmund-white-dead.html
+
 **Trump Administration Live Updates: Higher U.S. Tariffs on Steel and Aluminum Take Effect**\
 ``\
 https://nytimes.com/live/2025/06/04/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400826/2025/06/04/pacers-thunder-nba-finals-tankin
 **PWHL expansion mock draft: The Athletic picks players for Vancouver and Seattle**\
 `Hailey Salvian, Shayna Goldman play GM and select free agents and players who went unprotected to assemble Vancouver and Seattle's rosters.`\
 https://nytimes.com/athletic/6401070/2025/06/04/pwhl-expansion-mock-draft-vancouver-seattle/
-
-**The Big Ten and SEC fought for CFP control, then got it. So what's the problem now?**\
-`The new contract kicking in next year gives two leagues the power to do what they think is best. Yet, still, the CFP talks have hit a bump.`\
-https://nytimes.com/athletic/6400445/2025/06/04/big-ten-sec-college-football-playoff-format/
 
