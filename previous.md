@@ -1,40 +1,40 @@
-**Iran’s Supreme Leader Calls U.S. Nuclear Deal Proposal ‘Nonsense’**\
-`Ayatollah Ali Khamenei said that abandoning uranium enrichment would be against Iran’s interests.`\
-https://nytimes.com/2025/06/04/world/middleeast/iran-nuclear-uranium-trump.html
+**The Women Who Try to Keep Pace With Ethan Hunt**\
+`Over eight installments, the “Mission: Impossible” franchise has never quite found the perfect match for Tom Cruise’s world-saving spy.`\
+https://nytimes.com/2025/06/04/movies/women-mission-impossible-ethan-hunt.html
 
-**What you need to know about Michigan recruiting: 5 key storylines amid June uncertainty**\
-`Michigan’s 2026 recruiting class has been a bit slow to develop. Is there any reason to worry? Here's what to watch and expect next.`\
-https://nytimes.com/athletic/6402208/2025/06/04/michigan-football-recruiting-2026-class-visits/
+**Shai Gilgeous-Alexander, Tyrese Haliburton card values on the rise ahead of NBA Finals**\
+`The young star who can claim his first NBA title will likely firm up his standing in the collectibles world`\
+https://nytimes.com/athletic/6400462/2025/06/04/shai-gilgeous-alexander-tyrese-haliburton-rookie-cards/
 
-**Edmund White, Novelist and Pioneer of Gay Literature, Dies at 85**\
-`Mr. White mined his own varied catalog of sexual experiences in dozens of books and hundreds of articles and essays.`\
-https://nytimes.com/2025/06/04/arts/edmund-white-dead.html
+**Wheeler's mailbag: 2025 vs. 2026 draft, Brady Martin vs. Mason McTavish, sleepers**\
+`This is it: the last mailbag from Scott Wheeler of the 2025 NHL Draft season.`\
+https://nytimes.com/athletic/6399994/2025/06/04/nhl-draft-2025-2026-mailbag-wheeler/
 
-**Trump Administration Live Updates: Higher U.S. Tariffs on Steel and Aluminum Take Effect**\
-``\
-https://nytimes.com/live/2025/06/04/us/trump-news
+**Tijjani Reijnders analysed: A ready-made 'Guardiola player' with the traits of some City greats**\
+`What the 26-year-old Milan and Netherlands international midfielder would bring to the Etihad...`\
+https://nytimes.com/athletic/6355809/2025/06/04/tijjani-reijnders-analysed/
 
-**Israeli-Backed Aid Sites in Gaza Close Temporarily After Deadly Shootings**\
-`The Gaza Humanitarian Foundation said it was working to improve operations, a day after the Red Cross said at least 27 Palestinians were killed near a distribution center.`\
-https://nytimes.com/2025/06/04/world/middleeast/israeli-aid-sites-gaza.html
+**Live Q&A: Penguins coaching search with Josh Yohe**\
+`Have questions about the Penguins coaching search or anything else? Josh Yohe will answer them at 11 a.m. ET Wednesday in a live Q&A.`\
+https://nytimes.com/athletic/6400297/2025/06/04/penguins-coaching-search-live-qa-josh-yohe/
 
-**Coco Gauff triumphs over Madison Keys and herself to reach French Open semifinals**\
-`The world No. 2 stayed loose in the tightest moments to knock the Australian Open champion out of Roland Garros.`\
-https://nytimes.com/athletic/6402080/2025/06/04/coco-gauff-madison-keys-french-open-result-analysis/
+**At No. 7, Pelicans can choose from three types of guards in NBA Draft**\
+`The Pelicans have a clear need in the backcourt. Who makes the most sense?`\
+https://nytimes.com/athletic/6401112/2025/06/04/new-orleans-pelicans-guards-nba-draft/
 
-**Man City to add Liverpool analyst to new-look coaching staff**\
-`James French is set to take up a role at the Etihad focused on set-piece coaching and analysis.`\
-https://nytimes.com/athletic/6402160/2025/06/04/man-city-james-french-liverpool/
+**Trump Bemoans How ‘HARD’ It Is to Strike a China Deal**\
+`Even the president appears to be doubting his strategy to win over Beijing, as relations fray between the trading partners.`\
+https://nytimes.com/2025/06/04/business/dealbook/trump-china-trade.html
 
-**Blue Jays slugger Vladimir Guerrero Jr.’s walks fuel a streak and showcase a new ceiling**\
-`“The maturity and the at-bat quality is pretty incredible,” hitting coach David Popkins said of Guerrero.`\
-https://nytimes.com/athletic/6401592/2025/06/04/blue-jays-vladimir-guerrero-jr-walks-on-base-streak/
+**Lowetide: How Kris Knoblauch's keen ability to adjust elevated Oilers**\
+`Here's what Knoblauch did to help the Oilers arrive as a Western Conference powerhouse.`\
+https://nytimes.com/athletic/6398883/2025/06/04/oilers-kris-knoblauch-nhl-playoffs-2025/
 
-**Bright withdraws from England selection for Euro 2025**\
-`Bright, 31, says she is unable "to give 100 per cent mentally or physically" ahead of the tournament in Switzerland.`\
-https://nytimes.com/athletic/6392824/2025/06/04/millie-bright-england-euro-2025/
+**Red Wings survey results: Fans split on Detroit's direction under Yzerman**\
+`More than 2,900 readers took our Red Wings fan survey. Here's what they said.`\
+https://nytimes.com/athletic/6400548/2025/06/04/red-wings-offseason-survey-results-yzerman-2025/
 
-**Jeff Hoffman's bond with Phillies endures: He'll always have a piece of Philly — literally**\
-`As he strolled into the Jays' clubhouse Tuesday before facing the Phillies, Hoffman laughed. There it was, a green Philadelphia street sign.`\
-https://nytimes.com/athletic/6401489/2025/06/04/jeff-hoffman-phillies-bond-philadelphia-sign/
+**Woman Expected to Testify That Sean Combs Held Her Over a Balcony**\
+`Bryana Bongolan, a friend of the mogul’s former girlfriend Casandra Ventura, is set to give her account of being dangled from a 17th-floor balcony.`\
+https://nytimes.com/2025/06/04/arts/music/sean-combs-diddy-trial-jane-testify.html
 
