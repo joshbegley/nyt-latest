@@ -1,3 +1,7 @@
+**Tony Clark, MLBPA hire separate lawyers in face of federal probe**\
+`The federal government is looking at financial situations connected to baseball's players' union. `\
+https://nytimes.com/athletic/6401524/2025/06/03/tony-clark-mlbpa-lawyers-federal-probe/
+
 **After source of death threats identified, Astros' Lance McCullers Jr. happy 'it's behind us'**\
 `McCullers said he had not heard from the person accused of making the threats but would be open to an apology.`\
 https://nytimes.com/athletic/6401543/2025/06/03/astros-lance-mccullers-jr-death-threats-source-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401372/2025/06/03/bryce-harper-homers-elbow-guard-
 **Pacers' flight to OKC diverted to Tulsa due to tornado warning**\
 `Indiana is set to play the Oklahoma City in Game 1 of the NBA Finals on Thursday.`\
 https://nytimes.com/athletic/6401301/2025/06/03/pacers-weather-delay-oklahoma-city-thunder-nba-finals/
-
-**Connor McDavid looks to join Gretzky, Crosby and others as 'revenge' Cup winners**\
-`McDavid is known to have a "singular focus" on winning a championship — but he will have to get past the Florida Panthers this time.`\
-https://nytimes.com/athletic/6401217/2025/06/03/mcdavid-stanley-cup-rematch-oilers/
 
