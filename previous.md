@@ -1,3 +1,11 @@
+**Biden’s Press Secretary Leaves the Democratic Party to Be an Independent**\
+`In a coming book, Karine Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
+https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
+
+**Brailsford to step back at Man Utd, Wilcox named director of football**\
+`Brailsford, 61, has been a significant figure at United since Ratcliffe’s stake was confirmed on Christmas Eve 2023.`\
+https://nytimes.com/athletic/6403274/2025/06/04/dave-brailsford-manchester-united/
+
 **U.S. Vetoes U.N. Resolution Demanding Immediate Gaza Cease-Fire**\
 `The Security Council resolution also sought the release of all the hostages and the resumption of full-scale aid deliveries.`\
 https://nytimes.com/2025/06/04/world/middleeast/un-security-council-gaza-cease-fire.html
@@ -15,7 +23,7 @@ https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
 https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
 
 **Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
-`“It’s really important the league capitalizes on this,” TKTK`\
+`“It’s really important the league capitalizes on this,” fellow former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
 https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
 
 **The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
@@ -29,12 +37,4 @@ https://nytimes.com/series/home-ownership-quiz
 **How Chelsea won the race for Delap ahead of rivals: Meetings, Zooms, young squad and familiar faces**\
 `Liam Delap's move to Chelsea has now been confirmed — this is the story of how they secured his £30million signature`\
 https://nytimes.com/athletic/6399288/2025/06/04/liam-delap-chelsea-transfer-manchester-united/
-
-**Do You See Craters or Bumps on the Moon’s Surface?**\
-`A picture taken recently by a Japanese company’s spacecraft shows how your interpretation of objective reality can be tested by the power of illusion.`\
-https://nytimes.com/interactive/2025/06/04/science/craters-bumps-moon-quiz.html
-
-**Alf Clausen, Who Gave ‘The Simpsons’ Its Musical Identity, Dies at 84**\
-`He created the music for hundreds of episodes over 27 seasons, spanning jazz, rock, blues and musicals. He won two Emmys and was nominated for 28 more.`\
-https://nytimes.com/2025/06/04/arts/music/alf-clausen-dead-the-simpsons.html
 

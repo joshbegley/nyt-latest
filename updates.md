@@ -1,3 +1,15 @@
+**Biden’s Press Secretary Leaves the Democratic Party to Be an Independent**\
+`In a coming book, Karine Jean-Pierre will describe a “betrayal” by her party when Joseph R. Biden Jr. ended his re-election campaign. Democrats were quick to criticize her.`\
+https://nytimes.com/2025/06/04/us/politics/karine-jean-pierre-biden-democrats.html
+
+**Brailsford to step back at Man Utd, Wilcox named director of football**\
+`Brailsford, 61, has been a significant figure at United since Ratcliffe’s stake was confirmed on Christmas Eve 2023.`\
+https://nytimes.com/athletic/6403274/2025/06/04/dave-brailsford-manchester-united/
+
+**Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
+`“It’s really important the league capitalizes on this,” fellow former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
+https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
+
 **U.S. Vetoes U.N. Resolution Demanding Immediate Gaza Cease-Fire**\
 `The Security Council resolution also sought the release of all the hostages and the resumption of full-scale aid deliveries.`\
 https://nytimes.com/2025/06/04/world/middleeast/un-security-council-gaza-cease-fire.html
