@@ -1,3 +1,7 @@
+**Mamardashvili v Alisson: Could there really be a battle to be Liverpool's No 1?**\
+`The Georgian is earmarked as the club's future No 1, but just like Kelleher he may be stuck in the No 2 spot… at least for now`\
+https://nytimes.com/athletic/6399372/2025/06/04/mamardashvil-alisson-liverpool-kelleher/
+
 **Timing's just right for Yankees as Jazz Chisholm and Devin Williams return to familiar roles**\
 `Chisholm homered in his first game back at third base since the World Series while Devin Williams resumed the closer's role.`\
 https://nytimes.com/athletic/6401670/2025/06/04/jazz-chisholm-devin-williams-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/world/asia/trump-science-visa-china.html
 **Amid Rising Heat, Hajj Becomes Test of Endurance for Pilgrims and Saudi Arabia**\
 `Millions will make the annual pilgrimage to Mecca. The kingdom faces scrutiny over safety after more than 1,300 people died last year.`\
 https://nytimes.com/2025/06/04/world/middleeast/saudi-arabia-hajj-heat.html
-
-**Connections: Sports Edition Coach: Hints for June 4, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6401332/2025/06/04/connections-sports-edition-hints-for-june-4-2025/
 
