@@ -1,3 +1,7 @@
+**Trump Asks Congress to Claw Back $9 Billion for Foreign Aid, NPR and PBS**\
+`The request seeks to codify spending cuts advanced by Elon Musk’s Department of Government Efficiency.`\
+https://nytimes.com/2025/06/03/us/trump-asks-congress-to-claw-back-9-billion-for-foreign-aid-npr-and-pbs.html
+
 **New Jersey Turnpike to Replace Tesla Chargers After Contract Expires**\
 `The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
 https://nytimes.com/2025/06/03/nyregion/tesla-chargers-new-jersey-turnpike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401174/2025/06/03/packers-zach-tom-otas-contract/
 **Clever Cockatoos Have Figured Out How to Drink From Water Fountains**\
 `They had also learned how to flip open garbage lids in the suburbs of Sydney, Australia. Scientists wonder what they’ll work out next.`\
 https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australia.html
-
-**Is Trump Unveiling a Crypto Wallet? His Associates Say Yes. His Sons Say No.**\
-`The back-and-forth over a potential Trump cryptocurrency wallet on Tuesday exposed rifts among the family’s web of digital currency ventures.`\
-https://nytimes.com/2025/06/03/technology/trump-crypto-wallet-sons-rift.html
 
