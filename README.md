@@ -1,3 +1,7 @@
+**Facing a Demographic Shift, Vietnam Abolishes Two-Child Policy**\
+`Even though the regulation was loosely enforced, the nation’s birthrate fell to a record low last year.`\
+https://nytimes.com/2025/06/04/world/asia/vietnam-two-child-policy.html
+
 **Man City reach agreement to sign Milan's Reijnders**\
 `The 26-year-old enjoyed an impressive season for Milan, scoring 15 goals in all competitions, and was voted Serie A midfielder of the year.`\
 https://nytimes.com/athletic/6387375/2025/06/04/tijjani-reijnders-manchester-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html
 **England manager Sarina Wiegman's 'honest conversations' come with mixed results**\
 `This year, Wiegman's transparent and proactive conversations have led to two big retirements in international football`\
 https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retirement-spain/
-
-**Royals' top prospect goes 0 for 5 in MLB debut, but he's a hit anyway**\
-`Jac Caglianone hit into some tough luck all night but that hardly dampened his spirits: "I was just soaking in the sights."`\
-https://nytimes.com/athletic/6401238/2025/06/04/royals-jac-caglianone-mlb-debut/
 
