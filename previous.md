@@ -1,40 +1,40 @@
-**Smoke From Canadian Wildfires Drifts into the United States**\
-`The smoke has drifted toward Minneapolis, and forecasters expect it to reach the East Coast.`\
-https://nytimes.com/video/us/100000010206924/canada-wildfires-smoke-us-air-quality.html
+**How to watch Germany vs. Portugal in UEFA Nations League semifinal**\
+`Wednesday’s Nations League semifinal is a good one. Germany plays on a home pitch, welcoming Ronaldo and Portugal.`\
+https://nytimes.com/athletic/6400623/2025/06/04/germany-portugal-uefa-nations-league-how-to-watch/
 
-**Facing a Demographic Shift, Vietnam Abolishes Two-Child Policy**\
-`Even though the regulation was loosely enforced, the nation’s birthrate fell to a record low last year.`\
-https://nytimes.com/2025/06/04/world/asia/vietnam-two-child-policy.html
+**Patriots rookies' first impressions: How have their 11 draft picks looked at OTAs?**\
+`It's hard to gauge Campbell's play without pads, but RB TreVeyon Henderson should be exciting to watch as the team preps for training camp.`\
+https://nytimes.com/athletic/6400178/2025/06/04/patriots-rookies-otas-will-campbell/
 
-**Man City reach agreement to sign Milan's Reijnders**\
-`The 26-year-old enjoyed an impressive season for Milan, scoring 15 goals in all competitions, and was voted Serie A midfielder of the year.`\
-https://nytimes.com/athletic/6387375/2025/06/04/tijjani-reijnders-manchester-city-transfer/
+**Ben Johnson's obsession with details takes hold at Bears minicamp: Takeaways**\
+`Cole Kmet shared his reaction to the Bears drafting Colston Loveland, and DJ Moore talked about Luther Burden III and body language.`\
+https://nytimes.com/athletic/6401017/2025/06/04/bears-minicamp-ben-johnson-cole-kmet/
 
-**What to expect from Ronny Mauricio and where he fits in the Mets' roster puzzle**\
-`New York has called on Mauricio earlier than expected with Mark Vientos landing on the injured list.`\
-https://nytimes.com/athletic/6401829/2025/06/04/mets-ronny-mauricio-what-to-expect/
+**'Finding his voice,' Michael Penix Jr. has stepped up; now he's working on speaking up**\
+`Penix is a quiet leader, but Falcons coaches and players say the second-year QB is finding his voice in Atlanta.`\
+https://nytimes.com/athletic/6393665/2025/06/04/falcons-michael-penix-jr-quiet-leader/
 
-**Without Michael King and Yu Darvish, Padres so far weathering major rotation test**\
-`The Padres earned a 3-2 win over Giants on Tuesday as they continue to battle without two of their top arms.`\
-https://nytimes.com/athletic/6400927/2025/06/04/padres-pitching-rotation-test/
+**An Illustrated Guide to Who Really Benefits From ‘No Tax on Tips’**\
+`The effect of the tax break is actually quite narrow.`\
+https://nytimes.com/interactive/2025/06/04/upshot/no-tax-on-tips.html
 
-**10 Questions With Adrienne Adams**\
-`Adrienne Adams, the New York City Council speaker who is running for mayor, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/04/nyregion/adrienne-adams-interview-mayor.html
+**It’s President Trump Again, This Time in Full Frame**\
+`The official photograph of the president’s second term has the gloss of his 1980s architecture, but its A.I.-like haze is pure 2025.`\
+https://nytimes.com/2025/06/04/arts/design/trump-portrait-presidential.html
 
-**E.P.A. Workers Are Unsettled as ICE Makes Arrests in Their Building**\
-`As immigration officials ramp up a crackdown in downtown Manhattan, employees at a neighboring federal agency have been ordered not to get in the way.`\
-https://nytimes.com/2025/06/04/nyregion/epa-workers-immigration-arrest.html
+**Sean Combs, Defendant: Gestures to His Family, Sticky Notes to His Lawyers**\
+`With no cameras in the courtroom, few have glimpsed the music mogul as he helps direct his defense, facing charges that could put him in prison for the rest of his life.`\
+https://nytimes.com/2025/06/04/arts/music/sean-combs-diddy-court-defendant.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/04/crosswords/spelling-bee-forum.html
+**Drone Attacks Are the New Front in War. NATO Is Trying to Catch Up.**\
+`Assaults in Russia and Ukraine have shown major military powers that they are unprepared for evolving forms of warfare, and need to adapt.`\
+https://nytimes.com/2025/06/04/world/europe/ukraine-russia-drones-nato.html
 
-**Late Night Hopes Trump and Musk Can Patch Things Up**\
-`“Oh, no, not my two favorite people fighting!” said the “Daily Show” host Michael Kosta. “Don’t make me choose who I love more.”`\
-https://nytimes.com/2025/06/04/arts/television/late-night-trump-elon-musk.html
+**Can Embracing Punk Save Gen Z — and Our Flailing Country?**\
+`As a “punk, queer grandpa,” John Cameron Mitchell thinks so.`\
+https://nytimes.com/2025/06/04/opinion/punk-gen-z-politics.html
 
-**Word of the Day: whodunit**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html
+**At 85, Annea Lockwood Isn’t Done Listening to the Earth**\
+`Lockwood, a composer who spins music from the sounds of the natural world, is sharing with and learning from a new generation of artists.`\
+https://nytimes.com/2025/06/04/arts/music/annea-lockwood-composer.html
 
