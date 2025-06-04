@@ -1,3 +1,16 @@
+**Tiny Love Stories: ‘A Wise Friend Warned Me About Divorce’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/04/style/tiny-modern-love-stories-a-wise-friend-warned-me-about-divorce.html
+
+**Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
+`Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
+`\
+https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfer-betting-predictions-odds/
+
+**Suns hiring Cavaliers assistant Jordan Ott as head coach: Source**\
+`The move puts an end to Phoenix's head-coaching search, which was narrowed down Ott and Johnnie Bryant, Cleveland's associate head coach.`\
+https://nytimes.com/athletic/6403004/2025/06/04/phoenix-suns-coach-hire-jordan-ott-cavaliers/
+
 **Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
 `Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
 `\
