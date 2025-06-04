@@ -1,3 +1,11 @@
+**It’s Not Just Poor Rains Causing Drought. The Atmosphere Is ‘Thirstier.’**\
+`Higher temperatures caused by climate change are driving complex processes that make droughts bigger and more severe, new research shows.`\
+https://nytimes.com/2025/06/04/climate/climate-change-drought.html
+
+**Grealish likely to be left out of Man City's Club World Cup squad**\
+`The 29-year-old only appeared in 20 Premier League games in 2024-25 and started just seven.`\
+https://nytimes.com/athletic/6399405/2025/06/04/man-city-jack-grealish-club-world-cup/
+
 **Deadly Crowd Crush Mars Celebration for Indian Cricket Championship**\
 `At least 10 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
 https://nytimes.com/2025/06/04/world/asia/india-bengaluru-cricket-stampede.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/magazine/lgbtq-coming-out-children-ethics.html
 **Ready for Their Reboot: How Galleries Plumb Art History’s Forgotten Talent**\
 `Call it the ‘‘rediscovery industrial complex”: Art advisers and dealers are turning to the past to discover tomorrow’s blue-chip stars.`\
 https://nytimes.com/2025/06/04/arts/design/rediscovery-artist-dealer-market-levy-gorvy-dayan.html
-
-**This Five-Star Salmon Recipe Is Kind of a Big Dill**\
-`Fresh, feathery dill fronds perfume the rice that holds up honey-turmeric baked salmon in this reader-favorite recipe.`\
-https://nytimes.com/2025/06/04/dining/healthy-baked-salmon-with-dill-rice-recipe.html
-
-**Ancient Trees, Dwindling in the Wild, Thrive on Sacred Ground**\
-`Buddhist temples in China are home to trees from dozens of endangered species, a new study shows. Some of them are almost 2,000 years old.`\
-https://nytimes.com/2025/06/04/science/ancient-trees-china-temples-conservation.html
 
