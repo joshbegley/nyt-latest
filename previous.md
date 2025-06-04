@@ -1,3 +1,15 @@
+**Connecticut Brings Its ‘Best Pizza’ Brag to the Heart of New York**\
+`Billboards heralding the state’s pies have popped up next to some of the city’s most celebrated pizzerias, provoking locals and confusing tourists.`\
+https://nytimes.com/2025/06/04/dining/connecticut-best-pizza.html
+
+**Horse Bits Have Been Used for Thousands of Years. Now They’re Being Reconsidered.**\
+`They are used to steer a horse, but some think placing a hunk of metal in their mouths and tugging on it is cruel. A few riders have found another way.`\
+https://nytimes.com/2025/06/04/sports/horse-racing/horse-bits-reconsidered.html
+
+**‘Sinners’ Goes Beyond Horror and the Blues for Clarksdale, Miss.**\
+`The community effort and attention around “Sinners,” a blockbuster horror movie, became an opportunity to talk about investing in the Delta town that built the blues.`\
+https://nytimes.com/2025/06/04/us/politics/sinners-clarksdale-mississippi.html
+
 **Down South, a Trail Ride is a Party on Horseback — and So Much More**\
 `The Black equestrian tradition, often set to Zydeco music with hundreds of people line dancing in the woods, has grown into a collective show of Black horsemanship.`\
 https://nytimes.com/2025/06/04/sports/trail-ride-black-horseman.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6402081/2025/06/04/tennis-french-open-lois-boisson-
 **Trump Says Putin Plans to Retaliate for Ukrainian Attack on Its Warplanes**\
 `President Trump said the Russian leader told him “very strongly” in a phone call Wednesday that he would respond to the drone assault on its airfields.`\
 https://nytimes.com/2025/06/04/us/politics/trump-putin-ukraine.html
-
-**Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
-`Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
-`\
-https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfer-betting-predictions-odds/
-
-**Rory McIlroy speaks after snubbing media: 'I was a little pissed off'**\
-`Ahead of the RBC Canadian Open in Toronto, McIlroy explained his reasoning for declining to speak to media at the PGA Championship.`\
-https://nytimes.com/athletic/6403072/2025/06/04/rory-mcilroy-pga-championship-canadian-open-media/
-
-**Multiple deaths after mass gathering following IPL title celebrations in India**\
-`Indian Prime Minister Narendra Modi described the incident as absolutely “heartbreaking.”`\
-https://nytimes.com/athletic/6402991/2025/06/04/rcb-ipl-celebrations-deaths/
 

@@ -1,3 +1,15 @@
+**Connecticut Brings Its ‘Best Pizza’ Brag to the Heart of New York**\
+`Billboards heralding the state’s pies have popped up next to some of the city’s most celebrated pizzerias, provoking locals and confusing tourists.`\
+https://nytimes.com/2025/06/04/dining/connecticut-best-pizza.html
+
+**Horse Bits Have Been Used for Thousands of Years. Now They’re Being Reconsidered.**\
+`They are used to steer a horse, but some think placing a hunk of metal in their mouths and tugging on it is cruel. A few riders have found another way.`\
+https://nytimes.com/2025/06/04/sports/horse-racing/horse-bits-reconsidered.html
+
+**‘Sinners’ Goes Beyond Horror and the Blues for Clarksdale, Miss.**\
+`The community effort and attention around “Sinners,” a blockbuster horror movie, became an opportunity to talk about investing in the Delta town that built the blues.`\
+https://nytimes.com/2025/06/04/us/politics/sinners-clarksdale-mississippi.html
+
 **Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
 `Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
 `\
