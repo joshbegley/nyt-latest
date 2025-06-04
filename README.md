@@ -1,3 +1,7 @@
+**Canada turns to Man United's academy for its latest multinational recruit**\
+`Gabriele Biancheri is an up-and-coming talent for Man United, and Canada is hoping to add him to a formidable group of young dual-nationals`\
+https://nytimes.com/athletic/6402601/2025/06/04/gabriele-biancheri-canada-manchester-united-wales-italy/
+
 **Frank Graham Jr., Nature Writer Who Updated ‘Silent Spring,’ Dies at 100**\
 `He worked for the Brooklyn Dodgers and wrote about sports but mostly focused on conservation, publishing a sequel to Rachel Carson’s exposé on the dangers of pesticides.`\
 https://nytimes.com/2025/06/04/science/frank-graham-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402799/2025/06/04/reds-hunter-greene-il-wade-miley
 **Nikita Kucherov wins Ted Lindsay Award as NHL's most outstanding player**\
 `Kucherov beat out Colorado Avalanche teammates Nathan MacKinnon and Cale Makar for the award.`\
 https://nytimes.com/athletic/6400635/2025/06/04/nikita-kucherov-ted-lindsay-nhl-awards/
-
-**Jeffrey Epstein Invested With Peter Thiel, and His Estate Is Reaping Millions**\
-`Mr. Epstein, the late financier and sex offender, started by putting $40 million into Valar Ventures, a firm backed by Mr. Thiel. Today that investment is worth about $170 million.`\
-https://nytimes.com/2025/06/04/business/jeffrey-epstein-peter-thiel-estate.html
 
