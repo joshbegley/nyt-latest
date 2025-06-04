@@ -1,3 +1,7 @@
+**Word of the Day: whodunit**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html
+
 **England manager Sarina Wiegman's 'honest conversations' come with mixed results**\
 `This year, Wiegman's transparent and proactive conversations have led to two big retirements in international football`\
 https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retirement-spain/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
 **The Gutting of America’s Medical Research: Here Is Every Canceled or Delayed N.I.H. Grant**\
 `Some cuts have been starkly visible, but the country’s medical grant-making machinery has also radically transformed outside the public eye.`\
 https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research.html
-
-**Alex Cora, frustrated by Red Sox losses: 'We keep making the same mistakes'**\
-`Cora was upset after Tuesday's 10-inning one-run loss to the Angels. Boston leads the league with 17 one-run losses this season.`\
-https://nytimes.com/athletic/6401635/2025/06/04/red-sox-alex-cora-frustration-losses/
 

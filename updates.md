@@ -1,3 +1,7 @@
+**Word of the Day: whodunit**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html
+
 **England manager Sarina Wiegman's 'honest conversations' come with mixed results**\
 `This year, Wiegman's transparent and proactive conversations have led to two big retirements in international football`\
 https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retirement-spain/
