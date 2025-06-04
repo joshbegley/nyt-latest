@@ -1,3 +1,15 @@
+**The Gutting of America’s Medical Research: Here Is Every Canceled or Delayed N.I.H. Grant**\
+`Some cuts have been starkly visible, but the country’s medical grant-making machinery has also radically transformed outside the public eye.`\
+https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research.html
+
+**Alex Cora, frustrated by Red Sox losses: 'We keep making the same mistakes'**\
+`Cora was upset after Tuesday's 10-inning one-run loss to the Angels. Boston leads the league with 17 one-run losses this season.`\
+https://nytimes.com/athletic/6401635/2025/06/04/red-sox-alex-cora-frustration-losses/
+
+**Higher Tariffs on Steel and Aluminum Imports Go Into Effect**\
+`The president has ratcheted up the rate on foreign metals to 50 percent, double the previous rate, saying the levies weren’t high enough to help the U.S. industry.`\
+https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum.html
+
 **Mamardashvili v Alisson: Could there really be a battle to be Liverpool's No 1?**\
 `The Georgian is earmarked as the club's future No 1, but just like Kelleher he may be stuck in the No 2 spot… at least for now`\
 https://nytimes.com/athletic/6399372/2025/06/04/mamardashvil-alisson-liverpool-kelleher/
