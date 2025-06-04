@@ -1,3 +1,15 @@
+**What we're hearing about a Marco Rossi trade, potential destinations and return**\
+`Which teams could be "screaming" for him? What could the return be? Here's the latest on the No. 2 player on The Athletic's trade board.`\
+https://nytimes.com/athletic/6402628/2025/06/04/marco-rossi-trade-destinations-return/
+
+**Eagles RB Saquon Barkley says his retirement could come 'out of nowhere'**\
+`"I'll probably just wake up one day, whether it's next year or two years or four years, and just be like, 'yeah, it's over,'" Barkley said.`\
+https://nytimes.com/athletic/6402865/2025/06/04/saquon-barkley-eagles-retirement-comments-chris-long/
+
+**Brock Nelson signs 3-year contract extension with Avalanche**\
+`Nelson totaled six goals and seven assists in 19 regular-season games after a trade from the New York Islanders.`\
+https://nytimes.com/athletic/6402918/2025/06/04/brock-nelson-avalanche-contract/
+
 **Canada turns to Man United's academy for its latest multinational recruit**\
 `Gabriele Biancheri is an up-and-coming talent for Man United, and Canada is hoping to add him to a formidable group of young dual-nationals`\
 https://nytimes.com/athletic/6402601/2025/06/04/gabriele-biancheri-canada-manchester-united-wales-italy/
