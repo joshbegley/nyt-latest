@@ -1,3 +1,7 @@
+**Smoke From Canadian Wildfires Drifts into the United States**\
+`The smoke has drifted toward Minneapolis, and forecasters expect it to reach the East Coast.`\
+https://nytimes.com/video/us/100000010206924/canada-wildfires-smoke-us-air-quality.html
+
 **Facing a Demographic Shift, Vietnam Abolishes Two-Child Policy**\
 `Even though the regulation was loosely enforced, the nation’s birthrate fell to a record low last year.`\
 https://nytimes.com/2025/06/04/world/asia/vietnam-two-child-policy.html

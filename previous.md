@@ -1,3 +1,7 @@
+**Smoke From Canadian Wildfires Drifts into the United States**\
+`The smoke has drifted toward Minneapolis, and forecasters expect it to reach the East Coast.`\
+https://nytimes.com/video/us/100000010206924/canada-wildfires-smoke-us-air-quality.html
+
 **Facing a Demographic Shift, Vietnam Abolishes Two-Child Policy**\
 `Even though the regulation was loosely enforced, the nation’s birthrate fell to a record low last year.`\
 https://nytimes.com/2025/06/04/world/asia/vietnam-two-child-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/arts/television/late-night-trump-elon-musk.html
 **Word of the Day: whodunit**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html
-
-**England manager Sarina Wiegman's 'honest conversations' come with mixed results**\
-`This year, Wiegman's transparent and proactive conversations have led to two big retirements in international football`\
-https://nytimes.com/athletic/6401478/2025/06/04/england-sarina-wiegman-retirement-spain/
 
