@@ -1,3 +1,27 @@
+**FanDuel bans bettor for heckling Gabby Thomas at Philadelphia track meet**\
+`The betting platform took action after Thomas said Monday that a sports bettor followed her around Franklin Field and heckled her.`\
+https://nytimes.com/athletic/6402784/2025/06/04/fanduel-bans-bettor-heckling-gabby-thomas/
+
+**The Windup: Once-lauded prospect finally breaking through**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6401830/2025/06/04/ronny-mauricio-mets-the-windup/
+
+**Brock Nelson signs 3-year contract extension with Avalanche**\
+`Nelson totaled 6 goals and 7 assists in 19 regular-season games after a trade from the New York Islanders.`\
+https://nytimes.com/athletic/6402918/2025/06/04/brock-nelson-avalanche-contract/
+
+**Women’s Tales of Tables for One**\
+`Readers respond to a guest essay about women who dine alone. Also: A lawyer writes about a fundamental right codified in the Fifth Amendment.`\
+https://nytimes.com/2025/06/04/opinion/women-dining-alone.html
+
+**Reds place starter Hunter Greene on IL, sign veteran lefty Wade Miley**\
+`The Reds signed veteran left-hander Wade Miley to fill Greene’s spot in the rotation and transferred RHP Rhett Lowder to the 60-day IL.`\
+https://nytimes.com/athletic/6402799/2025/06/04/reds-hunter-greene-il-wade-miley/
+
+**Nikita Kucherov wins Ted Lindsay Award as NHL's most outstanding player**\
+`Kucherov beat out Colorado Avalanche teammates Nathan MacKinnon and Cale Makar for the award.`\
+https://nytimes.com/athletic/6400635/2025/06/04/nikita-kucherov-ted-lindsay-nhl-awards/
+
 **Jeffrey Epstein Invested With Peter Thiel, and His Estate Is Reaping Millions**\
 `Mr. Epstein, the late financier and sex offender, started by putting $40 million into Valar Ventures, a firm backed by Mr. Thiel. Today that investment is worth about $170 million.`\
 https://nytimes.com/2025/06/04/business/jeffrey-epstein-peter-thiel-estate.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6402825/2025/06/04/world-aquatics-ban-enhanced-game
 **Republicans Try to Discredit Experts Warning About the Cost of Tax Cuts**\
 `President Trump and his allies have united around a new foe: the economists and budget experts who have warned about the costs of Republicans’ tax ambitions.`\
 https://nytimes.com/2025/06/04/us/politics/trump-budget-bill-republicans-tax-cuts.html
-
-**Spurs need to make a decision on Postecoglou now, before it hurts their plans for next season**\
-`The ongoing uncertainty surrounding the Tottenham head coach's future will soon start to damage preparations for the coming campaign `\
-https://nytimes.com/athletic/6402083/2025/06/04/tottenham-postecoglou-decision-plan-next-season/
-
-**Sporting director Hobbs leaves Wolves**\
-`Wolves are preparing to restructure their football department with Jorge Mendes and his Gestifute agency to have a more prominent role.`\
-https://nytimes.com/athletic/6402030/2025/06/04/wolves-sporting-director-hobbs/
-
-**With win against Marlins, Rockies snap streak of 22 straight series losses**\
-`The streak, which dates back to last season, concluded with a narrow 3-2 win in Miami.`\
-https://nytimes.com/athletic/6402664/2025/06/04/rockies-colorado-series-losing-streak-mlb-history/
-
-**It’s Not Just Poor Rains Causing Drought. The Atmosphere Is ‘Thirstier.’**\
-`Higher temperatures caused by climate change are driving complex processes that make droughts bigger and more severe, new research shows.`\
-https://nytimes.com/2025/06/04/climate/climate-change-drought.html
-
-**Grealish likely to be left out of Man City's Club World Cup squad**\
-`The 29-year-old only appeared in 20 Premier League games in 2024-25 and started just seven.`\
-https://nytimes.com/athletic/6399405/2025/06/04/man-city-jack-grealish-club-world-cup/
-
-**Deadly Crowd Crush Mars Celebration for Indian Cricket Championship**\
-`At least 11 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
-https://nytimes.com/2025/06/04/world/asia/india-bengaluru-cricket-stampede.html
 
