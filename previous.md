@@ -2,6 +2,10 @@
 `The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
 https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
 
+**Attack on Aid Convoy in Sudan Kills 5, U.N. Says**\
+`The delivery was supposed to be the first to arrive in the embattled city of El Fasher, the capital of North Darfur State, in more than a year.`\
+https://nytimes.com/2025/06/04/world/africa/sudan-united-nations-convoy-attack.html
+
 **Multi-club ownership is growing in women's soccer, but 'execution is everything'**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6401797/2025/06/04/multi-club-ownership-down-to-business/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400351/2025/06/04/nba-finals-espn-doris-burke-mike
 **Raptors have the pieces and motive to make a run at Giannis Antetokounmpo**\
 `The Raptors have enough to make a trade with Milwaukee for Giannis work, but at what cost?`\
 https://nytimes.com/athletic/6400707/2025/06/04/raptors-giannis-antetokounmpo-trade-rumours/
-
-**'Bro, we're so nice': How the Thunder's three-headed defensive monster came to life**\
-`Dort, Caruso and Wallace each had unconventional paths to the Thunder but share one common mindset: They'll do anything to win. `\
-https://nytimes.com/athletic/6399927/2025/06/04/nba-finals-2025-thunder-pacers-caruso-dort-wallace/
 

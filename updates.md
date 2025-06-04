@@ -1,3 +1,7 @@
+**Attack on Aid Convoy in Sudan Kills 5, U.N. Says**\
+`The delivery was supposed to be the first to arrive in the embattled city of El Fasher, the capital of North Darfur State, in more than a year.`\
+https://nytimes.com/2025/06/04/world/africa/sudan-united-nations-convoy-attack.html
+
 **NBA Europe is coming but British basketball is bitterly divided. What will it mean?**\
 `The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
 https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
