@@ -1,3 +1,15 @@
+**10 Questions With Adrienne Adams**\
+`Adrienne Adams, the New York City Council speaker who is running for mayor, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/04/nyregion/adrienne-adams-interview-mayor.html
+
+**E.P.A. Workers Are Unsettled as ICE Makes Arrests in Their Building**\
+`As immigration officials ramp up a crackdown in downtown Manhattan, employees at a neighboring federal agency have been ordered not to get in the way.`\
+https://nytimes.com/2025/06/04/nyregion/epa-workers-immigration-arrest.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/04/crosswords/spelling-bee-forum.html
+
 **Late Night Hopes Trump and Musk Can Patch Things Up**\
 `“Oh, no, not my two favorite people fighting!” said the “Daily Show” host Michael Kosta. “Don’t make me choose who I love more.”`\
 https://nytimes.com/2025/06/04/arts/television/late-night-trump-elon-musk.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6401713/2025/06/04/twins-jhoan-duran-resurgence-rel
 **Ukraine’s Attack Exposed America’s Achilles’ Heel**\
 `What happened in Russia can happen in the United States — or anywhere else.`\
 https://nytimes.com/2025/06/04/opinion/ukraine-attack-russia-us.html
-
-**The New York Times in Print for Wednesday, June 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/04/todays-new-york-times
-
-**Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
-`López appears headed for the 15-day IL. Before leaving Tuesday's game he improved to 5-3 after allowing two earned runs against the A's.`\
-https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
-
-**Wednesday Briefing**\
-`A U.S. offer to Iran.`\
-https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
 
