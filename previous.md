@@ -1,3 +1,15 @@
+**Chelsea complete Delap transfer on six-year deal**\
+`Delap makes the switch after a £30million ($40m) release clause in his Ipswich contract became active following the team's relegation.`\
+https://nytimes.com/athletic/6391349/2025/06/04/chelsea-liam-delap-transfer-confirmed/
+
+**What Is the Future of George Floyd Square?**\
+`Five years after the site became central to a national protest movement, its fate is unsettled.`\
+https://nytimes.com/2025/06/04/headway/george-floyd-square-future.html
+
+**Weinstein Prosecutors Invoke His Former Power as N.Y. Retrial Nears End**\
+`A Manhattan jury will soon begin deliberating whether to convict the disgraced film mogul Harvey Weinstein of rape and other offenses.`\
+https://nytimes.com/2025/06/04/nyregion/weinstein-rape-trial-closing.html
+
 **Pelicans leadership addresses future with Zion Williamson following rape accusation**\
 `Star forward was accused of rape and domestic violence in a civil lawsuit last week.`\
 https://nytimes.com/athletic/6403223/2025/06/04/pelicans-joe-dumars-gayle-benson-zion-williamson-rape-lawsuit/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6403227/2025/06/04/fifa-club-world-cup-mattias-graf
 **NBA Europe is coming but British basketball is bitterly divided. What will it mean?**\
 `The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
 https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
-
-**Leopards on the Potomac! Trump Is Delighted by Deal With Saudis for Rare Cats.**\
-`Move over, pandas. Two Arabian leopards are coming to the National Zoo.`\
-https://nytimes.com/2025/06/04/us/politics/leopards-trump-saudi.html
-
-**Haley Joel Osment Ordered to Attend A.A. After Ski Resort Arrest**\
-`The actor was charged in April with public intoxication and possession of cocaine and was recorded using the word “Nazi” and an antisemitic slur during his arrest. He later apologized.`\
-https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
-
-**Israel, Fighting a War, Says It Sold More Weapons Than Ever Last Year**\
-`The exports show how Israel is pursuing new markets as its forces battle on multiple fronts.`\
-https://nytimes.com/2025/06/04/world/middleeast/israel-weapons-sales.html
 

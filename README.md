@@ -1,3 +1,11 @@
+**How Higher Tariffs on Steel and Aluminum Will Affect Companies**\
+`Home builders, car manufacturers and can makers are among those that will see higher prices for materials. Those companies could charge customers more.`\
+https://nytimes.com/2025/06/04/business/economy/trump-tariffs-steel-aluminum-companies.html
+
+**‘Dog Day Afternoon’ Is Broadway Bound With Actors From ‘The Bear’**\
+`Jon Bernthal and Ebon Moss-Bachrach will star in a stage adaptation of the acclaimed 1975 film about a bank heist that goes tragically awry.`\
+https://nytimes.com/2025/06/04/theater/dog-day-afternoon-broadway.html
+
 **Chelsea complete Delap transfer on six-year deal**\
 `Delap makes the switch after a £30million ($40m) release clause in his Ipswich contract became active following the team's relegation.`\
 https://nytimes.com/athletic/6391349/2025/06/04/chelsea-liam-delap-transfer-confirmed/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/boulder-colorado-attack-lawsuit.html
 **Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
 `Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
 https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
-
-**FIFA's Club World Cup architect on the tournament, backlash and its future**\
-`Mattias Grafström played a big role in the creation of the Club World Cup and addresses pressing questions ahead of the tournament's opener`\
-https://nytimes.com/athletic/6403227/2025/06/04/fifa-club-world-cup-mattias-grafstrom/
-
-**NBA Europe is coming but British basketball is bitterly divided. What will it mean?**\
-`The NBA is planning to launch in Europe in 2026-27. Britain will be a key part of that plan`\
-https://nytimes.com/athletic/6371987/2025/06/04/nba-europe-british-basketball-civil-war/
 

@@ -1,3 +1,15 @@
+**Chelsea complete Delap transfer on six-year deal**\
+`Delap makes the switch after a £30million ($40m) release clause in his Ipswich contract became active following the team's relegation.`\
+https://nytimes.com/athletic/6391349/2025/06/04/chelsea-liam-delap-transfer-confirmed/
+
+**What Is the Future of George Floyd Square?**\
+`Five years after the site became central to a national protest movement, its fate is unsettled.`\
+https://nytimes.com/2025/06/04/headway/george-floyd-square-future.html
+
+**Weinstein Prosecutors Invoke His Former Power as N.Y. Retrial Nears End**\
+`A Manhattan jury will soon begin deliberating whether to convict the disgraced film mogul Harvey Weinstein of rape and other offenses.`\
+https://nytimes.com/2025/06/04/nyregion/weinstein-rape-trial-closing.html
+
 **Pelicans leadership addresses future with Zion Williamson following rape accusation**\
 `Star forward was accused of rape and domestic violence in a civil lawsuit last week.`\
 https://nytimes.com/athletic/6403223/2025/06/04/pelicans-joe-dumars-gayle-benson-zion-williamson-rape-lawsuit/
