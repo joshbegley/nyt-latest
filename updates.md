@@ -1,3 +1,7 @@
+**Carsley signs new contract to stay England U21s head coach**\
+`The new deal will take him through to the end of the 2027 European Under-21 Championship.`\
+https://nytimes.com/athletic/6402077/2025/06/04/lee-carsley-england-u21s/
+
 **Attack on Aid Convoy in Sudan Kills 5, U.N. Says**\
 `The delivery was supposed to be the first to arrive in the embattled city of El Fasher, the capital of North Darfur State, in more than a year.`\
 https://nytimes.com/2025/06/04/world/africa/sudan-united-nations-convoy-attack.html
