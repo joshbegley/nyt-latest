@@ -1,3 +1,7 @@
+**Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
+`López allowed two earned runs, four hits and walked three in five innings before leaving the game with the Twins ahead 5-2.`\
+https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
+
 **Wednesday Briefing**\
 `A U.S. offer to Iran.`\
 https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
