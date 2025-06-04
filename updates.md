@@ -1,3 +1,7 @@
+**Reds beat Brewers on TJ Friedl's walk-off home run robbery**\
+`"You dream of that as an outfielder growing up and in your backyard robbing home runs," Friedl said of Tuesday's 4-2 win.`\
+https://nytimes.com/athletic/6401709/2025/06/04/reds-win-brewers-tj-friedl-walk-off-home-run-robbery/
+
 **Revised 4-seam fastball key to Jhoan Duran's resurgence, reliever of the month award**\
 `Tuesday, Duran became the first Twins reliever to be named the AL's reliever of the month since Joe Nathan in June 2009.`\
 https://nytimes.com/athletic/6401713/2025/06/04/twins-jhoan-duran-resurgence-reliever-of-the-month/
