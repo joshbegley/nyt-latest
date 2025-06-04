@@ -1,3 +1,7 @@
+**Facing a Demographic Shift, Vietnam Abolishes Two-Child Policy**\
+`Even though the regulation was loosely enforced, the nation’s birthrate fell to a record low last year.`\
+https://nytimes.com/2025/06/04/world/asia/vietnam-two-child-policy.html
+
 **Man City reach agreement to sign Milan's Reijnders**\
 `The 26-year-old enjoyed an impressive season for Milan, scoring 15 goals in all competitions, and was voted Serie A midfielder of the year.`\
 https://nytimes.com/athletic/6387375/2025/06/04/tijjani-reijnders-manchester-city-transfer/
