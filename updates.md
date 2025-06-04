@@ -1,3 +1,11 @@
+**Republican Policy Bill Would Add $2.4 Trillion to Debt, Budget Office Says**\
+`The estimate from the nonpartisan Congressional Budget Office is all but certain to inflame an already intense debate inside the G.O.P. about the fiscal consequences of their bill to enact President Trump’s agenda.`\
+https://nytimes.com/2025/06/04/us/politics/trump-policy-bill-deficit-estimate.html
+
+**A Risky Plan Made in America**\
+`Jacob Long bet his family, his livelihood and his personal philosophy about American craftsmanship on a textile mill in Connecticut.`\
+https://nytimes.com/2025/06/04/fashion/american-woolen-textiles-jacob-long.html
+
 **What’s in Our Queue? Ezra Collective and More **\
 `Text by Adam Satariano`\
 https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
