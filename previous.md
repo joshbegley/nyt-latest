@@ -6,7 +6,7 @@ https://nytimes.com/2025/06/03/us/trump-asks-congress-to-claw-back-9-billion-for
 `The agency that runs the highway said it was switching to another company to provide chargers that work for electrical vehicles other than just Teslas.`\
 https://nytimes.com/2025/06/03/nyregion/tesla-chargers-new-jersey-turnpike.html
 
-**Bryce Harper, wearing elbow guard, homers in first AB after HBP, missing 5 games**\
+**Phillies' Bryce Harper homers in first at-bat after 5-game absence due to HBP**\
 `He was plunked on the right elbow by a 95-mph Spencer Strider fastball a week ago. He was not wearing an elbow guard. Now, he is. `\
 https://nytimes.com/athletic/6401372/2025/06/03/bryce-harper-homers-elbow-guard-hbp-phillies-bluejays/
 
