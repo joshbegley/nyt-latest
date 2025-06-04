@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`A U.S. offer to Iran.`\
+https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
+
 **The Gutting of America’s Medical Research: Here Is Every Canceled or Delayed N.I.H. Grant**\
 `Some cuts have been starkly visible, but the country’s medical grant-making machinery has also radically transformed outside the public eye.`\
 https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research.html

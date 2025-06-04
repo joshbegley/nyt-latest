@@ -1,3 +1,7 @@
+**Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
+`López allowed two earned runs, four hits and walked three in five innings before leaving the game with the Twins ahead 5-2.`\
+https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
+
 **Wednesday Briefing**\
 `A U.S. offer to Iran.`\
 https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400233/2025/06/04/joan-garcia-barcelona-goalkeeper
 **Gyokeres or Sesko for Arsenal? We asked agents, sporting directors and coaches who they'd pick**\
 `There are arguments for and against both strikers, while Arteta, Berta and fans will all have their views. What the key discussion points?`\
 https://nytimes.com/athletic/6399533/2025/06/04/gyokeres-sesko-arsenal-transfers-arteta-berta/
-
-**Rodrigo Muniz interview: 'The perfect centre-back would be a mix of Maguire and Van Dijk'**\
-`The Brazilian explains how he stepped up at Fulham`\
-https://nytimes.com/athletic/6397105/2025/06/04/rodrigo-muniz-interview-fulham-brazil-maguire-van-dijk/
 
