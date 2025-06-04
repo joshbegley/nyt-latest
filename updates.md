@@ -1,3 +1,11 @@
+**Deadly Crowd Crush Mars Celebration for Indian Cricket Championship**\
+`At least 10 people were killed, officials said, as assembled fans tried to push their way into a stadium for hastily arranged festivities.`\
+https://nytimes.com/2025/06/04/world/asia/india-bengaluru-cricket-stampede.html
+
+**House Tours**\
+``\
+https://nytimes.com/series/house-tours
+
 **Botswana**\
 `Diamonds have shaped Botswana’s economy, society and environment. Three experts share how the country is building on this legacy to shape its future.`\
 https://nytimes.com/paidpost/de-beers/botswana.html
