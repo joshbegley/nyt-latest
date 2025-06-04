@@ -1,3 +1,27 @@
+**Dealing With Family Estrangement? These Books Can Help.**\
+`Researchers share the titles they recommend most often.`\
+https://nytimes.com/2025/06/04/well/family-estrangement-books.html
+
+**I Think My Son Is Gay. Should I Talk to Him About Coming Out?**\
+`I’d love to be able to have honest conversations about what he’s going through.`\
+https://nytimes.com/2025/06/04/magazine/lgbtq-coming-out-children-ethics.html
+
+**Ready for Their Reboot: How Galleries Plumb Art History’s Forgotten Talent**\
+`Call it the ‘‘rediscovery industrial complex”: Art advisers and dealers are turning to the past to discover tomorrow’s blue-chip stars.`\
+https://nytimes.com/2025/06/04/arts/design/rediscovery-artist-dealer-market-levy-gorvy-dayan.html
+
+**This Five-Star Salmon Recipe Is Kind of a Big Dill**\
+`Fresh, feathery dill fronds perfume the rice that holds up honey-turmeric baked salmon in this reader-favorite recipe.`\
+https://nytimes.com/2025/06/04/dining/healthy-baked-salmon-with-dill-rice-recipe.html
+
+**Ancient Trees, Dwindling in the Wild, Thrive on Sacred Ground**\
+`Buddhist temples in China are home to trees from dozens of endangered species, a new study shows. Some of them are almost 2,000 years old.`\
+https://nytimes.com/2025/06/04/science/ancient-trees-china-temples-conservation.html
+
+**White Sox All-Quarter Century Team, the South Siders' best since 2000**\
+`Well, the last quarter century of White Sox baseball has certainly been eventful, hasn't it?`\
+https://nytimes.com/athletic/6397648/2025/06/04/white-sox-all-quarter-century-team-2000-2025/
+
 **Republican Policy Bill Would Add $2.4 Trillion to Debt, Budget Office Says**\
 `The estimate from the nonpartisan Congressional Budget Office is all but certain to inflame an already intense debate inside the G.O.P. about the fiscal consequences of their bill to enact President Trump’s agenda.`\
 https://nytimes.com/2025/06/04/us/politics/trump-policy-bill-deficit-estimate.html
@@ -13,28 +37,4 @@ https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
 **Lois Boisson has become the star of the French Open. Her fairytale deserves its most coveted stage**\
 `The biggest story of the French Open is a home wild-card entry who has surged to the semifinals. So why has she had not top billing?`\
 https://nytimes.com/athletic/6399254/2025/06/04/tennis-french-open-night-sessions-women-lois-boisson/
-
-**Trump Budget Eliminates Funding for Crucial Global Vaccination Programs**\
-`The spending proposal terminates support of health programs that, according to the proposal, “do not make Americans safer.”`\
-https://nytimes.com/2025/06/04/health/trump-budget-global-health-polio.html
-
-**Jury in El Salvador Convicts 3 Ex-Officers in 1982 Killings of Dutch Journalists**\
-`A jury convicted the former military officers for the murder of four Dutch television journalists who were covering the Salvadoran civil war.`\
-https://nytimes.com/2025/06/04/world/americas/el-salvador-killings-dutch-journalists-1982.html
-
-**Lois Boisson's French Open fairytale continues with stunning win over Mirra Andreeva**\
-`Boisson saved two set points and rode the support of a raucous Paris crowd to reach the Roland Garros last four as Andreeva imploded.`\
-https://nytimes.com/athletic/6402550/2025/06/04/tennis-lois-boisson-french-open-mirra-andreeva-result-analysis/
-
-**Germans Are Buying More Electric Cars, but Not Teslas**\
-`Drivers in the country, Europe’s largest car market, are avoiding vehicles from Tesla, which has seen a drop in sales in other countries as well.`\
-https://nytimes.com/2025/06/04/business/tesla-elon-musk-germany-europe-sales.html
-
-**The Bounce: Does Tom Thibodeau's Knicks dismissal prove no NBA coach's job is safe?**\
-`The Knicks fired Tom Thibodeau as coach after their best season in 25 years. Will they actually upgrade or hire a clone?`\
-https://nytimes.com/athletic/6402218/2025/06/04/tom-thibodeau-knicks-mike-malone-coaching-thunder-pacers-final-nba-the-bounce/
-
-**Guide to Pacers-Thunder: Our best reads on both NBA Finals teams**\
-`Here's everything you need to know about the Thunder and Pacers, courtesy of The Athletic NBA staff's coverage.`\
-https://nytimes.com/athletic/6395633/2025/06/04/nba-finals-2025-pacers-thunder-sga-haliburton/
 
