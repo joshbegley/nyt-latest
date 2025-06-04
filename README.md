@@ -1,4 +1,12 @@
-**Morten Harket, a-ha’s Lead Singer, Has Parkinson’s Disease**\
+**NBA's small markets have an edge: A closer connection between team, fans**\
+`Thunder, Pacers tout close ties with their communities as a part of their teams' developments.`\
+https://nytimes.com/athletic/6403692/2025/06/04/nba-final-small-market-connection-fans/
+
+**On the debate stage, Cuomo will confront his rivals for the first time.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/on-the-debate-stage-cuomo-will-confront-his-rivals-for-the-first-time
+
+**Morten Harket, a-ha’s Lead Singer, Reveals Parkinson’s Diagnosis**\
 `Harket, best known for his band’s infectious 1985 synth-pop hit “Take on Me,” revealed his illness in an interview on a-ha’s website.`\
 https://nytimes.com/2025/06/04/arts/music/morten-harket-aha-parkinsons.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6398630/2025/06/04/bryan-mbeumo-manchester-united-t
 **Where does the mayor’s race stand?**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/where-does-the-mayors-race-stand
-
-**Here’s the latest.**\
-`By Maya King`\
-https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-the-latest
-
-**Live Updates: Democrats Running for N.Y.C. Mayor Are Set to Debate**\
-`The race to lead City Hall will enter a more combative phase when the debate starts at 7 p.m. Former Gov. Andrew Cuomo leads a crowded field in the polls just 10 days before early voting begins.`\
-https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate
 
