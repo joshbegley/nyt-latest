@@ -1,3 +1,8 @@
+**Liverpool’s transfer odds: Can Frimpong and Wirtz lead the Reds to European glory?**\
+`Brett Koremenos explores Liverpool’s summer transfer window plans through a betting lens. 
+`\
+https://nytimes.com/athletic/6402877/2025/06/04/premier-league-liverpool-transfer-betting-predictions-odds/
+
 **Down South, a Trail Ride is a Party on Horseback — and So Much More**\
 `The Black equestrian tradition, often set to Zydeco music with hundreds of people line dancing in the woods, has grown into a collective show of Black horsemanship.`\
 https://nytimes.com/2025/06/04/sports/trail-ride-black-horseman.html
