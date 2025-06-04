@@ -23,7 +23,7 @@ https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
 https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
 
 **Amid 'nightmare' playoff ratings, can Oilers-Panthers help NHL recapture 4 Nations buzz?**\
-`“It’s really important the league capitalizes on this,” TKTK`\
+`“It’s really important the league capitalizes on this,” fellow former player and TNT analyst Anson Carter said of the Cup Final matchup.`\
 https://nytimes.com/athletic/6388678/2025/06/04/nhl-stanley-cup-final-tv-ratings-ad-revenue/
 
 **The Penguins didn’t just hire Dan Muse as head coach — they made a statement**\
