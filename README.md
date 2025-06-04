@@ -1,3 +1,7 @@
+**U.S. Is Trimming Back Its Collection of Consumer Price Data**\
+`The cutbacks would have “minimal impact,” the government said, but economists warned of reduced confidence in inflation data produced by a struggling statistical system.`\
+https://nytimes.com/2025/06/04/business/bls-price-data-collection.html
+
 **Nintendo Has Something to Sell You**\
 `The marketing campaigns for the Switch 2 and its previous video game consoles provide a window into the company’s business strategy.`\
 https://nytimes.com/interactive/2025/06/04/arts/nintendo-switch-commercials-ads.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6403890/2025/06/04/pete-rose-reinstatement-donald-t
 **Justice Dept. Sues Texas Over Tuition Break for Undocumented Students**\
 `The Trump administration argues that the Texas Dream Act of 2001 illegally benefits undocumented students. It is unclear whether the state will defend it.`\
 https://nytimes.com/2025/06/04/us/politics/texas-undocumented-students-trump.html
-
-**How to Debate Andrew Cuomo? Cynthia Nixon Has Advice.**\
-`Ms. Nixon, the actress and activist who ran against Mr. Cuomo for governor in 2018, said he was not used to being called out on his record.`\
-https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-cynthia-nixon-debate.html
 
