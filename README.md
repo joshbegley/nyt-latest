@@ -1,3 +1,15 @@
+**Haley Joel Osment Ordered to Attend A.A. After Ski Resort Arrest**\
+`The actor was charged in April with public intoxication and possession of cocaine and was recorded using the word “Nazi” and an antisemitic slur during his arrest. He later apologized.`\
+https://nytimes.com/2025/06/04/movies/haley-joel-osment-diversion.html
+
+**Israel, Fighting a War, Says It Sold More Weapons Than Ever Last Year**\
+`The exports show how Israel is pursuing new markets as its forces battle on multiple fronts.`\
+https://nytimes.com/2025/06/04/world/middleeast/israel-weapons-sales.html
+
+**Our Regression on Gender Is a Tragedy, Not Just a Political Problem**\
+`Progress seemed inevitable just a few years ago. Now it is in danger.`\
+https://nytimes.com/2025/06/04/opinion/gender-polarization.html
+
 **How Trump Talks About Antisemitism**\
 `On the campaign trail, President Donald Trump repeatedly promised voters that he’d be the “best friend Jewish Americans have ever had in the White House.`\
 https://nytimes.com/video/us/politics/100000010205219/trump-antisemitism-record.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/04/dining/connecticut-best-pizza.html
 **Horse Bits Have Been Used for Thousands of Years. Now They’re Being Reconsidered.**\
 `They are used to steer a horse, but some think placing a hunk of metal in their mouths and tugging on it is cruel. A few riders have found another way.`\
 https://nytimes.com/2025/06/04/sports/horse-racing/horse-bits-reconsidered.html
-
-**‘Sinners’ Goes Beyond Horror and the Blues for Clarksdale, Miss.**\
-`The community effort and attention around “Sinners,” a blockbuster horror movie, became an opportunity to talk about investing in the Delta town that built the blues.`\
-https://nytimes.com/2025/06/04/us/politics/sinners-clarksdale-mississippi.html
-
-**Down South, a Trail Ride is a Party on Horseback — and So Much More**\
-`The Black equestrian tradition, often set to Zydeco music with hundreds of people line dancing in the woods, has grown into a collective show of Black horsemanship.`\
-https://nytimes.com/2025/06/04/sports/trail-ride-black-horseman.html
-
-**Equestrian Special Reports**\
-``\
-https://nytimes.com/spotlight/equestrian-horse-riding
 
