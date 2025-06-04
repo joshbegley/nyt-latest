@@ -1,3 +1,7 @@
+**Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
+`Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
+https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
+
 **FIFA's Club World Cup architect on the tournament, backlash and its future**\
 `Mattias Grafström played a big role in the creation of the Club World Cup and addresses pressing questions ahead of the tournament's opener`\
 https://nytimes.com/athletic/6403227/2025/06/04/fifa-club-world-cup-mattias-grafstrom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6401911/2025/06/04/uswnt-honor-becky-sauerbrunn-jam
 **For NBA referees, earning the White Jacket is the pinnacle of their profession**\
 `NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
 https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
-
-**Man Is Accused of Aiding California Fertility Clinic Bomber**\
-`Daniel Park, 32, of Washington State, was arrested Tuesday night at Kennedy Airport and charged with providing material support to terrorists, officials said.`\
-https://nytimes.com/2025/06/04/nyregion/palm-springs-explosion-kennedy-arrest.html
 

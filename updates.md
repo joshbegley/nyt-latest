@@ -1,3 +1,7 @@
+**Top 33 dynasty quarterback rankings, from Lamar Jackson to Kirk Cousins**\
+`Jeff Haverlack details, and tiers, his quarterback rankings for fantasy football dynasty leagues, starting with Baltimore Lamar Jackson.`\
+https://nytimes.com/athletic/6402745/2025/06/04/top-33-dynasty-quarterback-rankings-from-lamar-jackson-to-kirk-cousins/
+
 **For NBA referees, earning the White Jacket is the pinnacle of their profession**\
 `NBA Finals referees are selected based on their overall performance throughout the first three rounds of the playoffs.`\
 https://nytimes.com/athletic/6403081/2025/06/04/nba-finals-referees-white-jacket/
