@@ -1,3 +1,11 @@
+**Israeli-Backed Aid Sites in Gaza Close Temporarily After Deadly Shootings**\
+`The Gaza Humanitarian Foundation said it was working to improve operations, a day after the Red Cross said at least 27 Palestinians were killed near a distribution center.`\
+https://nytimes.com/2025/06/04/world/middleeast/israeli-aid-sites-gaza.html
+
+**Coco Gauff triumphs over Madison Keys and herself to reach French Open semifinals**\
+`The world No. 2 stayed loose in the tightest moments to knock the Australian Open champion out of Roland Garros.`\
+https://nytimes.com/athletic/6402080/2025/06/04/coco-gauff-madison-keys-french-open-result-analysis/
+
 **Man City to add Liverpool analyst to new-look coaching staff**\
 `James French is set to take up a role at the Etihad focused on set-piece coaching and analysis.`\
 https://nytimes.com/athletic/6402160/2025/06/04/man-city-james-french-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6400445/2025/06/04/big-ten-sec-college-football-pla
 **Buckley: For Patriots fans, David Andrews' retirement has air of finality to it**\
 `Andrews' news conference included video tributes from teammates from the old days, including Julian Edelman, Rob Gronkowski and Tom Brady.`\
 https://nytimes.com/athletic/6401304/2025/06/04/patriots-dynasty-finality-david-andrews-retirement/
-
-**Brad Marchand's enjoying a 'special' moment with Stanley Cup Final return — as his free-agent stock soars**\
-`Reminding of his value with the Panthers in the playoffs, Marchand could command as much as $8 million on his next contract, sources said.`\
-https://nytimes.com/athletic/6401470/2025/06/04/brad-marchand-stanley-cup-final-free-agency/
-
-**The players and teams whose next month could shape the MLB trade deadline**\
-`Whether these players and their teams struggle or thrive could determine how the trade deadline shakes out this season. `\
-https://nytimes.com/athletic/6400490/2025/06/04/mlb-key-players-teams-trade-deadline/
 
