@@ -1,3 +1,11 @@
+**Before the Attack in Boulder, the Gaza War Consumed the City Council**\
+`Activists have regularly disrupted council meetings to demand that the city call for a cease-fire in Gaza. The unusual tension suggests a changing Boulder.`\
+https://nytimes.com/2025/06/03/us/boulder-colorado-attack-city-council.html
+
+**Bit of Light**\
+`Danna Rosenberg finds a positive spin.`\
+https://nytimes.com/2025/06/03/crosswords/daily-puzzle-2025-06-04.html
+
 **Trump Asks Congress to Claw Back $9 Billion for Foreign Aid, NPR and PBS**\
 `The request seeks to codify spending cuts advanced by Elon Musk’s Department of Government Efficiency.`\
 https://nytimes.com/2025/06/03/us/trump-npr-pbs-funding-congress.html

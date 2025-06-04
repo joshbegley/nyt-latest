@@ -1,3 +1,11 @@
+**Before the Attack in Boulder, the Gaza War Consumed the City Council**\
+`Activists have regularly disrupted council meetings to demand that the city call for a cease-fire in Gaza. The unusual tension suggests a changing Boulder.`\
+https://nytimes.com/2025/06/03/us/boulder-colorado-attack-city-council.html
+
+**Bit of Light**\
+`Danna Rosenberg finds a positive spin.`\
+https://nytimes.com/2025/06/03/crosswords/daily-puzzle-2025-06-04.html
+
 **Trump Asks Congress to Claw Back $9 Billion for Foreign Aid, NPR and PBS**\
 `The request seeks to codify spending cuts advanced by Elon Musk’s Department of Government Efficiency.`\
 https://nytimes.com/2025/06/03/us/trump-npr-pbs-funding-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/03/nyregion/mamdani-deport-paladino.html
 **Justice Dept. Drops Biden-Era Push to Obtain Peter Navarro’s Emails**\
 `The department’s move is one of many recent actions taken to dismiss criminal and civil actions against Trump allies such as Mr. Navarro, the president’s trade adviser.`\
 https://nytimes.com/2025/06/03/us/politics/justice-dept-navarro-emails.html
-
-**Why Packers RT Zach Tom is practicing without a contract extension**\
-`Tom is one of the league's best right tackles and the 26-year-old will soon be paid like it.`\
-https://nytimes.com/athletic/6401174/2025/06/03/packers-zach-tom-otas-contract/
-
-**Clever Cockatoos Have Figured Out How to Drink From Water Fountains**\
-`They had also learned how to flip open garbage lids in the suburbs of Sydney, Australia. Scientists wonder what they’ll work out next.`\
-https://nytimes.com/2025/06/03/science/cockatoos-water-fountains-sydney-australia.html
 
