@@ -1,3 +1,19 @@
+**How to Debate Andrew Cuomo? Cynthia Nixon Has Advice.**\
+`Ms. Nixon, the actress and activist who ran against Mr. Cuomo for governor in 2018, said he was not used to being called out on his record.`\
+https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-cynthia-nixon-debate.html
+
+**Al Hilal confirm Inzaghi as new head coach following Inter exit**\
+`The Italian has signed a two-year contract and will take charge of the team at the Club World Cup.`\
+https://nytimes.com/athletic/6403850/2025/06/04/al-hilal-simone-inzaghi-inter/
+
+**This primary uses ranked-choice voting. Here’s an overview.**\
+`By Maya King`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/this-primary-uses-ranked-choice-voting-heres-an-overview
+
+**Nearly All Remaining Voice of America Employees Could Be Fired Under Plan**\
+`A proposed restructuring would leave only 18 employees at the federally funded news agency, which was founded in 1942 to combat Nazi propaganda.`\
+https://nytimes.com/2025/06/04/us/politics/trump-voice-of-america.html
+
 **2 Hikers, a Father and Daughter, Are Found Dead Near Maine’s Highest Peak**\
 `Their bodies were found near the summit of Mount Katahdin, at the end of the Appalachian Trail, officials said, after a search that began on Monday.`\
 https://nytimes.com/2025/06/04/us/mount-katahdin-missing-hikers-search.html
