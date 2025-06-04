@@ -1,3 +1,7 @@
+**Morten Harket, a-ha’s Lead Singer, Has Parkinson’s Disease**\
+`Harket, best known for his band’s infectious 1985 synth-pop hit “Take on Me,” revealed his illness in an interview on a-ha’s website.`\
+https://nytimes.com/2025/06/04/arts/music/morten-harket-aha-parkinsons.html
+
 **Republican Megabill Projected to Add $2.4 Trillion to Debt**\
 `Also, Trump said that Putin would retaliate against Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/04/briefing/republican-bill-trump-putin-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-the-latest
 **Live Updates: Democrats Running for N.Y.C. Mayor Are Set to Debate**\
 `The race to lead City Hall will enter a more combative phase when the debate starts at 7 p.m. Former Gov. Andrew Cuomo leads a crowded field in the polls just 10 days before early voting begins.`\
 https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate
-
-**Trump Administration to Pull $4 Billion in Funding for California High-Speed Rail**\
-`The state’s rail authority said California intends to keep the project moving forward.`\
-https://nytimes.com/2025/06/04/us/politics/california-high-speed-rail-funding.html
 

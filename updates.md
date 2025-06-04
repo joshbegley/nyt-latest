@@ -1,3 +1,23 @@
+**Republican Megabill Projected to Add $2.4 Trillion to Debt**\
+`Also, Trump said that Putin would retaliate against Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/06/04/briefing/republican-bill-trump-putin-ukraine.html
+
+**Mirra Andreeva and a Roland Garros crowd pulling for its last hope: French Open recap**\
+`Mirra Andreeva had kept the Roland Garros faithful quiet during her match against Loïs Boisson. Then she gave them a chance.`\
+https://nytimes.com/athletic/6402129/2025/06/04/tennis-french-open-quarterfinal-recap/
+
+**Raiders OTAs: Patrick Graham excited to be part of Pete Carroll's new-look defense**\
+`Graham brings continuity to the defense but is happy to incorporate Carroll's input. “With his track record ... why wouldn't you listen?”`\
+https://nytimes.com/athletic/6403706/2025/06/04/raiders-otas-patrick-graham-pete-carroll/
+
+**Novak Djokovic sets up French Open semifinal with Jannik Sinner after win over Alexander Zverev**\
+`Djokovic made Zverev play his game by dragging him to the net. The German could not live with it.`\
+https://nytimes.com/athletic/6403641/2025/06/04/novak-djokovic-french-open-alexander-zverev-result-analysis/
+
+**Live Updates: Democrats Running for N.Y.C. Mayor Are Set to Debate**\
+`The race to lead City Hall will enter a more combative phase when the debate starts at 7 p.m. Former Gov. Andrew Cuomo leads a crowded field in the polls just 10 days before early voting begins.`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate
+
 **Saharan Dust Is Expected to Ramp Up Over Florida on Thursday**\
 `A dust plume that has been traveling across the Atlantic may later spread as far as Texas and Georgia as a weather system breaks it apart.`\
 https://nytimes.com/2025/06/04/weather/saharan-dust-florida-texas.html
