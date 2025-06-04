@@ -1,3 +1,7 @@
+**What’s in Our Queue? Ezra Collective and More **\
+`Text by Adam Satariano`\
+https://nytimes.com/card/2025/06/04/arts/editors-recommendations-freedom
+
 **Lois Boisson has become the star of the French Open. Her fairytale deserves its most coveted stage**\
 `The biggest story of the French Open is a home wild-card entry who has surged to the semifinals. So why has she had not top billing?`\
 https://nytimes.com/athletic/6399254/2025/06/04/tennis-french-open-night-sessions-women-lois-boisson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/theater/a-freeky-introduction-review.html
 **Can a football player outrun an F1 car on a football pitch?**\
 `Leeds conducted an experiment with their players and a Formula One car after the end of the season`\
 https://nytimes.com/athletic/6402481/2025/06/04/leeds-united-formula-one/
-
-**China Tries to Stop Smuggling of Rare Earths as Shortages Loom Abroad**\
-`Police officers, customs officials and spies are reinforcing China’s embargo on the critical minerals that it overwhelmingly controls.`\
-https://nytimes.com/2025/06/04/business/china-rare-earth-smuggling.html
 
