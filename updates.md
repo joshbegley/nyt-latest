@@ -1,3 +1,15 @@
+**Thursday Briefing: Trump’s Call With Putin**\
+`Plus, threatened, ancient trees thrive in Chinese temples.`\
+https://nytimes.com/2025/06/04/briefing/trump-putin-gaza-hajj-switch-2.html
+
+**Orien McNeill, Artist Who Made Mischief on the Water, Dies at 46**\
+`He was the pied piper of a loose community of DIY artists homesteading on New York City’s waterways, which he used as his canvas and stage.`\
+https://nytimes.com/2025/06/04/arts/orien-mcneill-dead.html
+
+**Map: 3.2-Magnitude Earthquake Strikes Near Palm Springs in Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html
+
 **Nolan Schanuel, Andrew Abbott among the fantasy baseball surprises of the past month**\
 `Michael Salfino looks at the top pitchers and hitters for May, highlighting those who have flown under the radar in fantasy baseball.`\
 https://nytimes.com/athletic/6401471/2025/06/04/fantasy-baseball-surprise-performers-past-month-may/

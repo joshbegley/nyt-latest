@@ -1,3 +1,11 @@
+**Thursday Briefing: Trump’s Call With Putin**\
+`Plus, threatened, ancient trees thrive in Chinese temples.`\
+https://nytimes.com/2025/06/04/briefing/trump-putin-gaza-hajj-switch-2.html
+
+**Orien McNeill, Artist Who Made Mischief on the Water, Dies at 46**\
+`He was the pied piper of a loose community of DIY artists homesteading on New York City’s waterways, which he used as his canvas and stage.`\
+https://nytimes.com/2025/06/04/arts/orien-mcneill-dead.html
+
 **Nolan Schanuel, Andrew Abbott among the fantasy baseball surprises of the past month**\
 `Michael Salfino looks at the top pitchers and hitters for May, highlighting those who have flown under the radar in fantasy baseball.`\
 https://nytimes.com/athletic/6401471/2025/06/04/fantasy-baseball-surprise-performers-past-month-may/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/06/04/t-magazine/fathers-day-gift-ideas.html
 `There's an assumption around the NHL that the Blackhawks are going to be aggressive this offseason. What does that mean?`\
 https://nytimes.com/athletic/6402537/2025/06/04/blackhawks-mitch-marner-ryan-donato/
 
-**Map: 3.2-Magnitude Earthquake Strikes Southern California**\
+**Map: 3.2-Magnitude Earthquake Strikes Near Palm Springs in Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/04/us/earthquake-tracker-california-palm-springs.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/world/middleeast/un-security-council-gaza-cease-f
 **Pacers' Rick Carlisle thought Knicks firing Tom Thibodeau was 'fake AI'**\
 `Carlisle’s Pacers were the last team that Thibodeau coached against while directing the Knicks.`\
 https://nytimes.com/athletic/6403419/2025/06/04/pacers-thunder-nba-finals-knicks-tom-thibodeau/
-
-**Sacha Jenkins, Filmmaker Who Mined the Black Experience, Dies at 53**\
-`Shaped by early hip-hop culture, his documentaries put race in the foreground, whether the topic was hip-hop fashion, the Capitol riots or Louis Armstrong.`\
-https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
-
-**Giants designate LaMonte Wade Jr., sign Dominic Smith as Buster Posey seeks to jolt offense**\
-`Posey made a series of bold roster changes Wednesday morning in an effort to jolt the Giants' slumbering offense.`\
-https://nytimes.com/athletic/6403365/2025/06/04/giants-lamonte-wade-jr-dominic-smith-buster-posey/
 
