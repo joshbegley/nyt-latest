@@ -27,7 +27,7 @@ https://nytimes.com/2025/06/04/opinion/ukraine-attack-russia-us.html
 https://nytimes.com/issue/todayspaper/2025/06/04/todays-new-york-times
 
 **Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
-`López allowed two earned runs, four hits and walked three in five innings before leaving the game with the Twins ahead 5-2.`\
+`López appears headed for the 15-day IL. Before leaving Tuesday's game he improved to 5-3 after allowing two earned runs against the A's.`\
 https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
 
 **Wednesday Briefing**\
