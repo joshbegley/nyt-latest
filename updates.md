@@ -1,3 +1,11 @@
+**Late Night Hopes Trump and Musk Can Patch Things Up**\
+`“Oh, no, not my two favorite people fighting!” said the “Daily Show” host Michael Kosta. “Don’t make me choose who I love more.”`\
+https://nytimes.com/2025/06/04/arts/television/late-night-trump-elon-musk.html
+
+**Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
+`López appears headed for the 15-day IL. Before leaving Tuesday's game he improved to 5-3 after allowing two earned runs against the A's.`\
+https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
+
 **Word of the Day: whodunit**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html

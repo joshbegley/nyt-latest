@@ -1,3 +1,7 @@
+**Late Night Hopes Trump and Musk Can Patch Things Up**\
+`“Oh, no, not my two favorite people fighting!” said the “Daily Show” host Michael Kosta. “Don’t make me choose who I love more.”`\
+https://nytimes.com/2025/06/04/arts/television/late-night-trump-elon-musk.html
+
 **Word of the Day: whodunit**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/04/learning/word-of-the-day-whodunit.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/06/04/opinion/ukraine-attack-russia-us.html
 https://nytimes.com/issue/todayspaper/2025/06/04/todays-new-york-times
 
 **Twins starter Pablo López exits game vs. Athletics with shoulder tightness**\
-`López allowed two earned runs, four hits and walked three in five innings before leaving the game with the Twins ahead 5-2.`\
+`López appears headed for the 15-day IL. Before leaving Tuesday's game he improved to 5-3 after allowing two earned runs against the A's.`\
 https://nytimes.com/athletic/6401731/2025/06/04/twins-pablo-lopez-exits-with-shoulder-tightness/
 
 **Wednesday Briefing**\
 `A U.S. offer to Iran.`\
 https://nytimes.com/2025/06/04/briefing/wednesday-briefing.html
-
-**The Gutting of America’s Medical Research: Here Is Every Canceled or Delayed N.I.H. Grant**\
-`Some cuts have been starkly visible, but the country’s medical grant-making machinery has also radically transformed outside the public eye.`\
-https://nytimes.com/interactive/2025/06/04/health/trump-cuts-nih-grants-research.html
 
