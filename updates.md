@@ -1,3 +1,11 @@
+**Edmund White, Novelist and Pioneer of Gay Literature, Dies at 85**\
+`Mr. White mined his own varied catalog of sexual experiences in dozens of books and hundreds of articles and essays.`\
+https://nytimes.com/2025/06/04/arts/edmund-white-dead.html
+
+**Trump Administration Live Updates: Higher U.S. Tariffs on Steel and Aluminum Take Effect**\
+``\
+https://nytimes.com/live/2025/06/04/us/trump-news
+
 **Israeli-Backed Aid Sites in Gaza Close Temporarily After Deadly Shootings**\
 `The Gaza Humanitarian Foundation said it was working to improve operations, a day after the Red Cross said at least 27 Palestinians were killed near a distribution center.`\
 https://nytimes.com/2025/06/04/world/middleeast/israeli-aid-sites-gaza.html
