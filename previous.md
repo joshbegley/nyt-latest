@@ -1,3 +1,19 @@
+**PWHL expansion signings tracker: Vancouver adds Defender of the Year finalist Claire Thompson**\
+`The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
+https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/
+
+**Here’s why Eric Adams won’t be at tonight’s debate.**\
+`Though the mayor won’t be present, his policies will surely be discussed. Mr. Adams said he wasn’t worried.`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-why-eric-adams-wont-be-at-tonights-debate
+
+**Pete Rose reinstatement was partially influenced by Donald Trump, commissioner says**\
+`Rob Manfred met with Trump in Washington, D.C., in April.`\
+https://nytimes.com/athletic/6403890/2025/06/04/pete-rose-reinstatement-donald-trump-influence/
+
+**Justice Dept. Sues Texas Over Tuition Break for Undocumented Students**\
+`The Trump administration argues that the Texas Dream Act of 2001 illegally benefits undocumented students. It is unclear whether the state will defend it.`\
+https://nytimes.com/2025/06/04/us/politics/texas-undocumented-students-trump.html
+
 **How to Debate Andrew Cuomo? Cynthia Nixon Has Advice.**\
 `Ms. Nixon, the actress and activist who ran against Mr. Cuomo for governor in 2018, said he was not used to being called out on his record.`\
 https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-cynthia-nixon-debate.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/trump-voice-of-america.html
 **Zohran Mamdani Has Momentum. Will He Build on it at the Debate?**\
 `Mr. Mamdani, a 33-year-old state lawmaker from Queens, has centered his campaign on a pledge to make New York City more affordable.`\
 https://nytimes.com/2025/06/04/nyregion/zohran-mamdani-debate.html
-
-**Even Offstage, Trump Is Everywhere in New Jersey’s Governor’s Race**\
-`The Republican and Democratic primaries are next week. Will the president’s influence help turn a red state blue?`\
-https://nytimes.com/2025/06/04/us/politics/trump-new-jersey-governor-election.html
-
-**U.S. Vetoes U.N. Resolution for Gaza Cease-Fire**\
-`The U.S. was the only member nation to veto the U.N. Security Council resolution. The resolution also sought the release of all the hostages and the continuation of full-scale aid deliveries.`\
-https://nytimes.com/video/world/middleeast/100000010208511/un-security-council-gaza-cease-fire.html
-
-**NBA's small markets have an edge: A closer connection between team, fans**\
-`Thunder, Pacers tout close ties with their communities as a part of their teams' developments.`\
-https://nytimes.com/athletic/6403692/2025/06/04/nba-final-small-market-connection-fans/
-
-**On the debate stage, Cuomo will confront his rivals for the first time.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/on-the-debate-stage-cuomo-will-confront-his-rivals-for-the-first-time
 

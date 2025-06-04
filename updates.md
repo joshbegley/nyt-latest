@@ -1,3 +1,19 @@
+**PWHL expansion signings tracker: Vancouver adds Defender of the Year finalist Claire Thompson**\
+`The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
+https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/
+
+**Here’s why Eric Adams won’t be at tonight’s debate.**\
+`Though the mayor won’t be present, his policies will surely be discussed. Mr. Adams said he wasn’t worried.`\
+https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-why-eric-adams-wont-be-at-tonights-debate
+
+**Pete Rose reinstatement was partially influenced by Donald Trump, commissioner says**\
+`Rob Manfred met with Trump in Washington, D.C., in April.`\
+https://nytimes.com/athletic/6403890/2025/06/04/pete-rose-reinstatement-donald-trump-influence/
+
+**Justice Dept. Sues Texas Over Tuition Break for Undocumented Students**\
+`The Trump administration argues that the Texas Dream Act of 2001 illegally benefits undocumented students. It is unclear whether the state will defend it.`\
+https://nytimes.com/2025/06/04/us/politics/texas-undocumented-students-trump.html
+
 **How to Debate Andrew Cuomo? Cynthia Nixon Has Advice.**\
 `Ms. Nixon, the actress and activist who ran against Mr. Cuomo for governor in 2018, said he was not used to being called out on his record.`\
 https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-cynthia-nixon-debate.html
