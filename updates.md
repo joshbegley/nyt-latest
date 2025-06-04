@@ -1,3 +1,7 @@
+**Como confident of keeping Fabregas amid Inter interest**\
+`Fabregas, in his first full season in management, guided Como to a 10th-placed finish in Serie A.`\
+https://nytimes.com/athletic/6349534/2025/06/04/cesc-fabregas-como-inter/
+
 **The Women Who Try to Keep Pace With Ethan Hunt**\
 `Over eight installments, the “Mission: Impossible” franchise has never quite found the perfect match for Tom Cruise’s world-saving spy.`\
 https://nytimes.com/2025/06/04/movies/women-mission-impossible-ethan-hunt.html

@@ -1,3 +1,7 @@
+**Como confident of keeping Fabregas amid Inter interest**\
+`Fabregas, in his first full season in management, guided Como to a 10th-placed finish in Serie A.`\
+https://nytimes.com/athletic/6349534/2025/06/04/cesc-fabregas-como-inter/
+
 **The Women Who Try to Keep Pace With Ethan Hunt**\
 `Over eight installments, the “Mission: Impossible” franchise has never quite found the perfect match for Tom Cruise’s world-saving spy.`\
 https://nytimes.com/2025/06/04/movies/women-mission-impossible-ethan-hunt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398883/2025/06/04/oilers-kris-knoblauch-nhl-playof
 **Red Wings survey results: Fans split on Detroit's direction under Yzerman**\
 `More than 2,900 readers took our Red Wings fan survey. Here's what they said.`\
 https://nytimes.com/athletic/6400548/2025/06/04/red-wings-offseason-survey-results-yzerman-2025/
-
-**Woman Expected to Testify That Sean Combs Held Her Over a Balcony**\
-`Bryana Bongolan, a friend of the mogul’s former girlfriend Casandra Ventura, is set to give her account of being dangled from a 17th-floor balcony.`\
-https://nytimes.com/2025/06/04/arts/music/sean-combs-diddy-trial-jane-testify.html
 
