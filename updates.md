@@ -1,3 +1,7 @@
+**Judge Orders Trump Administration to Take Steps to Give Due Process to Deported Migrants**\
+`The judge also said the men, expelled under the Alien Enemies Act, were likely to prevail in their claims that they had been treated unfairly, deported with no chance to contest their removals.`\
+https://nytimes.com/2025/06/04/us/politics/trump-deportations-venezuela-alien-enemies-act.html
+
 **Ceddanne Rafaela's walk-off homer powers Red Sox to back-and-forth win over Angels**\
 `The Red Sox showed a resilience they’ve too often lacked this season in making four separate comebacks.`\
 https://nytimes.com/athletic/6403916/2025/06/04/red-sox-ceddanne-rafaela-walk-off-homer-angels/

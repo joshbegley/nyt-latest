@@ -1,3 +1,7 @@
+**Judge Orders Trump Administration to Take Steps to Give Due Process to Deported Migrants**\
+`The judge also said the men, expelled under the Alien Enemies Act, were likely to prevail in their claims that they had been treated unfairly, deported with no chance to contest their removals.`\
+https://nytimes.com/2025/06/04/us/politics/trump-deportations-venezuela-alien-enemies-act.html
+
 **Ceddanne Rafaela's walk-off homer powers Red Sox to back-and-forth win over Angels**\
 `The Red Sox showed a resilience they’ve too often lacked this season in making four separate comebacks.`\
 https://nytimes.com/athletic/6403916/2025/06/04/red-sox-ceddanne-rafaela-walk-off-homer-angels/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-cynthia-nixon-debate.html
 **Al Hilal confirm Inzaghi as new head coach following Inter exit**\
 `The Italian has signed a two-year contract and will take charge of the team at the Club World Cup.`\
 https://nytimes.com/athletic/6403850/2025/06/04/al-hilal-simone-inzaghi-inter/
-
-**This primary uses ranked-choice voting. Here’s an overview.**\
-`By Maya King`\
-https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/this-primary-uses-ranked-choice-voting-heres-an-overview
 
