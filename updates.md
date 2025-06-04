@@ -1,3 +1,7 @@
+**Pacers' Rick Carlisle thought Knicks firing Tom Thibodeau was 'fake AI'**\
+`Carlisle’s Pacers were the last team that Thibodeau coached against while directing the Knicks.`\
+https://nytimes.com/athletic/6403419/2025/06/04/pacers-thunder-nba-finals-knicks-tom-thibodeau/
+
 **Sacha Jenkins, Filmmaker Who Mined the Black Experience, Dies at 53**\
 `Shaped by early hip-hop culture, his documentaries put race in the foreground, whether the topic was hip-hop fashion, the Capitol riots or Louis Armstrong.`\
 https://nytimes.com/2025/06/04/movies/sacha-jenkins-dead.html
