@@ -1,3 +1,7 @@
+**Trump travel ban sparks World Cup questions - and more soccer issues**\
+`President Trump crackdown raises questions for soccer - and the big tournaments on its horizon.`\
+https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
+
 **Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
 `The Leicester winger talks working with Ruud van Nistelrooy and an eerie quiet around Seagrave in their post-Jamie Vardy world`\
 https://nytimes.com/athletic/6402085/2025/06/05/kasey-mcateer-leicester-city-fans-van-nistelrooy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6370095/2025/06/05/matija-sarkic-remembered-death-o
 **How will Barca's financial situation affect their transfers this summer?**\
 `Nothing is ever simple in the world of Barcelona transfers... and this summer is unlikely to be any different`\
 https://nytimes.com/athletic/6399278/2025/06/05/barcelona-transfer-window-finances/
-
-**Transfers TLDR: Liam Delap to Chelsea - all you need to know**\
-`Chelsea have signed striker Liam Delap from Ipswich - here's all you need to know about the move`\
-https://nytimes.com/athletic/6397774/2025/06/05/liam-delap-chelsea-transfer-tldr/
 
