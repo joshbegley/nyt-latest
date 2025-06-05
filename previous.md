@@ -1,3 +1,15 @@
+**A College President Tried to Make the Move to a Republican State, and Failed**\
+`Florida officials rejected Santa Ono of Michigan as the next president of the state’s flagship university, revealing how deeply politicized higher education has become.`\
+https://nytimes.com/2025/06/04/us/santa-ono-university-of-florida.html
+
+**Manfred: MLB will propose automated ball-strike challenge system for 2026**\
+`Manfred said he wants players "to feel like we respected the committee process" before a decision is made on automatic ball-strike system.`\
+https://nytimes.com/athletic/6403954/2025/06/04/manfred-proposal-abs-challenge-system-2026/
+
+**Cuomo Comes Under Fire at Debate Over Nursing Home Covid Deaths**\
+`Former Gov. Andrew M. Cuomo now faces a Justice Department inquiry over whether he lied to Congress about actions he took during the Covid pandemic.`\
+https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-nursing-homes-deaths.html
+
 **U.S. Brings Back Guatemalan Wrongly Deported to Mexico**\
 `The Trump administration obeyed the instructions of the judge in the case, a significant departure from the defiant stance it has staked out in other immigration matters.`\
 https://nytimes.com/2025/06/04/us/politics/guatemalan-deported-mexico-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6403901/2025/06/04/sarah-nurse-pwhl-vancouver-expan
 **L.A. County to Pay $2.7 Million to Teen Beaten in Juvenile Hall ‘Gladiator Fight’**\
 `Surveillance video captured a 16-year-old being repeatedly punched, kicked and stomped by juveniles while probation officers watched.`\
 https://nytimes.com/2025/06/04/us/politics/teenager-gladiator-fight-settlement.html
-
-**PWHL expansion signings tracker: Vancouver adds Claire Thompson and Sophie Jaques**\
-`The PWHL expansion signing window opened on Wednesday. Here's who has signed with Seattle or Vancouver so far.`\
-https://nytimes.com/athletic/6403143/2025/06/04/pwhl-expansion-signings-tracker-vancouver-seattle/
-
-**Here’s why Eric Adams won’t be at tonight’s debate.**\
-`Though the mayor won’t be present, his policies will surely be discussed. Mr. Adams said he wasn’t worried.`\
-https://nytimes.com/live/2025/06/04/nyregion/nyc-mayoral-debate/heres-why-eric-adams-wont-be-at-tonights-debate
-
-**Pete Rose reinstatement was partially influenced by Donald Trump, commissioner says**\
-`Rob Manfred met with Trump in Washington, D.C., in April.`\
-https://nytimes.com/athletic/6403890/2025/06/04/pete-rose-reinstatement-donald-trump-influence/
 

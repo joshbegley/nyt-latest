@@ -1,3 +1,15 @@
+**A College President Tried to Make the Move to a Republican State, and Failed**\
+`Florida officials rejected Santa Ono of Michigan as the next president of the state’s flagship university, revealing how deeply politicized higher education has become.`\
+https://nytimes.com/2025/06/04/us/santa-ono-university-of-florida.html
+
+**Manfred: MLB will propose automated ball-strike challenge system for 2026**\
+`Manfred said he wants players "to feel like we respected the committee process" before a decision is made on automatic ball-strike system.`\
+https://nytimes.com/athletic/6403954/2025/06/04/manfred-proposal-abs-challenge-system-2026/
+
+**Cuomo Comes Under Fire at Debate Over Nursing Home Covid Deaths**\
+`Former Gov. Andrew M. Cuomo now faces a Justice Department inquiry over whether he lied to Congress about actions he took during the Covid pandemic.`\
+https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-nursing-homes-deaths.html
+
 **U.S. Brings Back Guatemalan Wrongly Deported to Mexico**\
 `The Trump administration obeyed the instructions of the judge in the case, a significant departure from the defiant stance it has staked out in other immigration matters.`\
 https://nytimes.com/2025/06/04/us/politics/guatemalan-deported-mexico-trump.html
