@@ -1,3 +1,7 @@
+**Europe Wants to Banish Russian Gas. The U.S. May Have Other Plans.**\
+`A large Republican donor wants to buy a Russian pipeline to Germany. The White House has entertained the idea of working with the Kremlin to supply Russian gas to Europe.`\
+https://nytimes.com/2025/06/05/world/europe/us-russia-nord-stream-gas-pipeline.html
+
 **Word of the Day: caricature**\
 `This word has appeared in 198 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/05/learning/word-of-the-day-caricature.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402117/2025/06/05/xabi-alonso-real-madrid-coaching
 **Jesus, Cuiabano and Jair Cunha: What could the three Brazilians bring Forest?**\
 `Forest look set to add three more Brazilians to their ranks. But what would Botafogo trio Igor Jesus, Cuiabano and Jair Cunha offer?`\
 https://nytimes.com/athletic/6402226/2025/06/05/jesus-cuiabano-jair-cunha-nottingham-forest/
-
-**Emery, Vidagany and Monchi: Inside Aston Villa's power triangle**\
-`The Athletic spoke to over 20 agents, coaches, executives and staff about the inner workings of the club`\
-https://nytimes.com/athletic/6388016/2025/06/05/emery-vidagany-and-monchi-inside-aston-villas-power-triangle/
 
