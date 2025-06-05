@@ -1,3 +1,7 @@
+**C.J. Gardner-Johnson disputes that Eagles traded him for salary cap reasons**\
+`Fangio said he was "fine" with Eagles GM Howie Roseman's decision to trade Gardner-Johnson away.`\
+https://nytimes.com/athletic/6404072/2025/06/04/cj-gardner-johnson-vic-fangio-eagles-trade/
+
 **New day, same story: Reds lose game, series to Brewers**\
 `The Brewers have the Reds' number — and it keeps getting worse.`\
 https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-brewers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/democrats-centrists-moderates-welcome
 **A College President Tried to Make the Move to a Republican State, and Failed**\
 `Florida officials rejected Santa Ono of Michigan as the next president of the state’s flagship university, revealing how deeply politicized higher education has become.`\
 https://nytimes.com/2025/06/04/us/santa-ono-university-of-florida.html
-
-**Manfred: MLB will propose automated ball-strike challenge system for 2026**\
-`Manfred said he wants players "to feel like we respected the committee process" before a decision is made on automatic ball-strike system.`\
-https://nytimes.com/athletic/6403954/2025/06/04/manfred-proposal-abs-challenge-system-2026/
 
