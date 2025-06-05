@@ -1,3 +1,7 @@
+**Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
+`The Leicester winger talks working with Ruud van Nistelrooy and an eerie quiet around Seagrave in their post-Jamie Vardy world`\
+https://nytimes.com/athletic/6402085/2025/06/05/kasey-mcateer-leicester-city-fans-van-nistelrooy/
+
 **Alonso's Madrid staff: Two ex-Barca coaches, a former Leeds assistant and an academy mainstay**\
 `The Alonso era has begun at Madrid and with it comes a significant revamp of the club's coaching staff`\
 https://nytimes.com/athletic/6402117/2025/06/05/xabi-alonso-real-madrid-coaching-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399278/2025/06/05/barcelona-transfer-window-financ
 **Transfers TLDR: Liam Delap to Chelsea - all you need to know**\
 `Chelsea have signed striker Liam Delap from Ipswich - here's all you need to know about the move`\
 https://nytimes.com/athletic/6397774/2025/06/05/liam-delap-chelsea-transfer-tldr/
-
-**Twins pitcher Pablo López to miss 8-12 weeks with shoulder strain**\
-`Injury is a serious roadblock for the Twins, who entered Wednesday tied for the third-best record in the American League.`\
-https://nytimes.com/athletic/6404462/2025/06/05/twins-pablo-lopez-out-8-12-weeks-shoulder-strain/
 

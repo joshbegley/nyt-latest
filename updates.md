@@ -1,3 +1,7 @@
+**Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
+`The Leicester winger talks working with Ruud van Nistelrooy and an eerie quiet around Seagrave in their post-Jamie Vardy world`\
+https://nytimes.com/athletic/6402085/2025/06/05/kasey-mcateer-leicester-city-fans-van-nistelrooy/
+
 **Alonso's Madrid staff: Two ex-Barca coaches, a former Leeds assistant and an academy mainstay**\
 `The Alonso era has begun at Madrid and with it comes a significant revamp of the club's coaching staff`\
 https://nytimes.com/athletic/6402117/2025/06/05/xabi-alonso-real-madrid-coaching-staff/
