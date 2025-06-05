@@ -1,3 +1,7 @@
+**Zambia’s Former President Edgar Lungu Dies at 68**\
+`Mr. Lungu, who was recently barred by a court ruling from running for president again, left a checkered legacy, with allegations that he eroded freedoms while in office.`\
+https://nytimes.com/2025/06/05/world/africa/zambia-edgar-lungu-dies.html
+
 **Fever's Caitlin Clark taking quad injury rehab 'day by day'**\
 `"I'm not going to rush coming back. It's not worth it," Clark said of the rehab process.`\
 https://nytimes.com/athletic/6405592/2025/06/05/caitlin-clark-fever-injury-update/
