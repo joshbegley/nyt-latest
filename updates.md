@@ -1,3 +1,7 @@
+**Trump Restricts Harvard’s International Students From Entering U.S.**\
+`The Trump administration has sought a workaround to the courts, which have largely blocked his efforts to restrict foreign students.`\
+https://nytimes.com/2025/06/04/us/politics/trump-harvard-international-student-visas.html
+
 **C.J. Gardner-Johnson disputes that Eagles traded him for salary cap reasons**\
 `Fangio said he was "fine" with Eagles GM Howie Roseman's decision to trade Gardner-Johnson away.`\
 https://nytimes.com/athletic/6404072/2025/06/04/cj-gardner-johnson-vic-fangio-eagles-trade/

@@ -1,3 +1,7 @@
+**Trump Restricts Harvard’s International Students From Entering U.S.**\
+`The Trump administration has sought a workaround to the courts, which have largely blocked his efforts to restrict foreign students.`\
+https://nytimes.com/2025/06/04/us/politics/trump-harvard-international-student-visas.html
+
 **C.J. Gardner-Johnson disputes that Eagles traded him for salary cap reasons**\
 `Fangio said he was "fine" with Eagles GM Howie Roseman's decision to trade Gardner-Johnson away.`\
 https://nytimes.com/athletic/6404072/2025/06/04/cj-gardner-johnson-vic-fangio-eagles-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404012/2025/06/04/nhl-commissioner-gary-bettman-ta
 **At ‘CPAC of the Center,’ Democratic Moderates Beat Up on the Left**\
 `At a wonky gathering in Washington, centrist Democrats argued that they were the majority-makers the party needed to take control of Congress in 2026 and beyond.`\
 https://nytimes.com/2025/06/04/us/politics/democrats-centrists-moderates-welcome-pac.html
-
-**A College President Tried to Make the Move to a Republican State, and Failed**\
-`Florida officials rejected Santa Ono of Michigan as the next president of the state’s flagship university, revealing how deeply politicized higher education has become.`\
-https://nytimes.com/2025/06/04/us/santa-ono-university-of-florida.html
 
