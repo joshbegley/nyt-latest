@@ -1,3 +1,19 @@
+**Watch: The Thunder are favorites, but the Pacers have won as underdogs. The NBA Finals awaits**\
+`"The Athletic NBA Daily" previewed Game 1 of the NBA Finals between the Oklahoma City Thunder and the Indiana Pacers.`\
+https://nytimes.com/athletic/6404904/2025/06/05/nba-finals-thunder-pacers-favorites-underdogs/
+
+**‘And So It Goes’ Traces Billy Joel’s Dramatic Early Days: 5 Takeaways**\
+`The first half of the HBO documentary premiered at the Tribeca Festival on Wednesday night. Joel, who is fighting a brain disorder, sent a message via its directors.`\
+https://nytimes.com/2025/06/05/arts/music/billy-joel-documentary-and-so-it-goes.html
+
+**Four States Ask F.D.A. to Lift Special Restrictions on Abortion Pill**\
+`The states consider it a move to force the F.D.A. to review and acknowledge extensive research showing the pill’s safety.`\
+https://nytimes.com/2025/06/05/health/mifepristone-abortion-pill-restrictions.html
+
+**Arsenal in advanced talks with Matteo Tognozzi over senior recruitment role**\
+`Sporting director Andrea Berta is hoping to expand the group working closest to him following the departure of Jason Ayto.`\
+https://nytimes.com/athletic/6405474/2025/06/05/arsenal-matteo-tognozzi-recruitment/
+
 **I Was Sidelined by Illness. This Soup Got Me Back in the Kitchen.**\
 `Brothy and bright, this Ghanaian light soup is the perfect summer balm, Yewande Komolafe writes.`\
 https://nytimes.com/2025/06/05/dining/ghanaian-soup.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/05/science/moon-landing-ispace-japan.html
 **Syrians Rejoice at Being Exempted From Trump Travel Ban**\
 `Damascus residents hope the decision is another sign that the world is normalizing relations with Syria after the overthrow of Bashar al-Assad.`\
 https://nytimes.com/2025/06/05/world/middleeast/syria-trump-travel-ban-exemption.html
-
-**Supreme Court Blocks Mexico’s Suit Against U.S. Gunmakers**\
-`The case focused on whether the Mexican government could legally sue U.S. manufacturers over claims that they shared blame for violence by drug cartels.`\
-https://nytimes.com/2025/06/05/us/politics/supreme-court-mexico-gunmakers.html
-
-**How to Seal Your Drafty Windows for Less Than $50**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-how-to-fix-drafty-windows
-
-**Supreme Court Rules for Straight Woman in Job Discrimination Suit**\
-`The justices rejected an appeals court’s requirement that members of majority groups meet a heightened standard to win employment discrimination cases.`\
-https://nytimes.com/2025/06/05/us/politics/supreme-court-reverse-discrimination.html
-
-**Derek Carr said retiring, giving up $30 million was 'right thing to do'**\
-`Carr was expected to miss the Saints' entire 2025 season while dealing with a labral tear in his right shoulder.`\
-https://nytimes.com/athletic/6405385/2025/06/05/derek-carr-retirement-saints-money/
 
