@@ -1,3 +1,7 @@
+**New Travel Ban Prompts Fear and Frustration for U.S. Immigrants**\
+`Immigrants from the targeted countries said the ban would upend their lives. “I don’t understand why the president has to target us nonstop,” one Haitian asylum seeker said.`\
+https://nytimes.com/2025/06/05/us/politics/trump-travel-ban-immigrants-fear.html
+
 **Whitecaps suffer teamwide illness after Champions Cup final in Mexico**\
 `The Whitecaps lost 5-0 to Cruz Azul in the Concacaf Champions Cup final.`\
 https://nytimes.com/athletic/6405858/2025/06/05/vancouver-whitecaps-sick-mexico-concacaf-champions-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406808/2025/06/05/angel-city-coach-alex-straus-bay
 **Uzbekistan's World Cup dream realised: Tears, near-misses and making amends for 'stolen goals'**\
 `The Central Asian country of almost 40m inhabitants has come close before, but now can finally celebrate reaching its first World Cup`\
 https://nytimes.com/athletic/6226853/2025/06/05/uzbekistan-world-cup-qualification/
-
-**What Broncos' interest in JK Dobbins says about running back room status**\
-`The Broncos drafted RJ Harvey in the second round but are open to bring "another good football player" into the backfield.`\
-https://nytimes.com/athletic/6406604/2025/06/05/jk-dobbins-broncos-otas/
 

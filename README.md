@@ -1,3 +1,11 @@
+**Landlords Commit $2.5 Million to Help Cuomo’s Mayoral Campaign**\
+`The money, the largest example of outside spending by a single donor in the New York City mayor’s race, will go toward campaign ads on Andrew M. Cuomo’s behalf.`\
+https://nytimes.com/2025/06/05/nyregion/cuomo-landlords-donation.html
+
+**French Open women's semifinals recap: Iga Swiatek's serve and what next for Lois Boisson**\
+`Świątek lost at the French Open for the first time in 26 matches. The defeat showed how she compiled that streak — and how to start anew.`\
+https://nytimes.com/athletic/6406732/2025/06/05/tennis-french-open-semifinals-womens-recap/
+
 **New Travel Ban Prompts Fear and Frustration for U.S. Immigrants**\
 `Immigrants from the targeted countries said the ban would upend their lives. “I don’t understand why the president has to target us nonstop,” one Haitian asylum seeker said.`\
 https://nytimes.com/2025/06/05/us/politics/trump-travel-ban-immigrants-fear.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/us/politics/osceola-county-sheriff-arrested-racke
 **What is setting Oilers apart in NHL playoffs? The way they are closing out games**\
 `Edmonton's success in the playoffs is largely due to defending at the most critical times and locking down opponents late in games.`\
 https://nytimes.com/athletic/6406735/2025/06/05/oilers-nhl-playoffs-stanley-cup-final/
-
-**Curiosity and a new challenge drew Alexander Straus from Germany to Angel City**\
-`Straus said he wanted to find out just how good the best teams in the U.S. and Europe are.`\
-https://nytimes.com/athletic/6406808/2025/06/05/angel-city-coach-alex-straus-bayern-munich/
-
-**Uzbekistan's World Cup dream realised: Tears, near-misses and making amends for 'stolen goals'**\
-`The Central Asian country of almost 40m inhabitants has come close before, but now can finally celebrate reaching its first World Cup`\
-https://nytimes.com/athletic/6226853/2025/06/05/uzbekistan-world-cup-qualification/
 
