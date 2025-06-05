@@ -1,3 +1,7 @@
+**Ranking Canucks' top 13 trade assets: What trade chips could be in play?**\
+`With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
+https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
+
 **Carson Hocevar is NASCAR's disruptive new driver — and one of its biggest fans**\
 `Fan-friendly, outspoken, and often controversial on the track, Carson Hocevar has emerged as a must-watch driver in NASCAR's Cup Series.`\
 https://nytimes.com/athletic/6403370/2025/06/05/carson-hocevar-nascar-driver-fan-cup-series/

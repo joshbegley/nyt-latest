@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6400758/2025/06/05/maple-leafs-easton-cowan-trade/
 `The beauty of Pascal Siakam: He can be whatever the Pacers need him to be. Here are all the roles he fills for this Indiana team.`\
 https://nytimes.com/athletic/6404192/2025/06/05/pascal-siakam-pacers-nba-finals-video-highlights/
 
-**Ranking the Canucks' top 13 trade assets: What trade chips could be in play?**\
+**Ranking Canucks' top 13 trade assets: What trade chips could be in play?**\
 `With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
 https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
 
