@@ -1,3 +1,11 @@
+**Twins call on David Festa (repeatedly) for likely start with Pablo López headed to IL**\
+`Festa, who has struck out 15 batters and posted a 1.38 ERA in 13 MLB innings, is expected to face the Athletics in the series finale.`\
+https://nytimes.com/athletic/6404215/2025/06/04/twins-david-festa-pablo-lopez-start-athletics/
+
+**Atwood's swing on 3-0 pitch sparks Texas past Texas Tech in WCWS Game 1**\
+`Reese Atwood's two-run single in the bottom of the sixth keyed the Longhorns' 2-1 victory.`\
+https://nytimes.com/athletic/6404230/2025/06/04/texas-beats-texas-tech-wcws-game-1/
+
 **Hilary Knight signs with PWHL Seattle after going unprotected in expansion**\
 `For Seattle, making one of the greatest women’s hockey players of all time the team’s first signing is an easy win.`\
 https://nytimes.com/athletic/6404220/2025/06/04/hilary-knight-pwhl-seattle-expansion/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/trump-harvard-international-student-v
 **C.J. Gardner-Johnson disputes that Eagles traded him for salary cap reasons**\
 `Fangio said he was "fine" with Eagles GM Howie Roseman's decision to trade Gardner-Johnson away.`\
 https://nytimes.com/athletic/6404072/2025/06/04/cj-gardner-johnson-vic-fangio-eagles-trade/
-
-**New day, same story: Reds lose game, series to Brewers**\
-`The Brewers have the Reds' number — and it keeps getting worse.`\
-https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-brewers/
-
-**‘Carol,’ Whose Detention Rattled Her Small Missouri Town, Is Released**\
-`Ming Li Hui’s detention by the immigration authorities brought the reality of President Trump’s immigration crackdown to rural Missouri, where supporters rallied for her freedom.`\
-https://nytimes.com/2025/06/04/us/politics/carol-missouri-migrant.html
 

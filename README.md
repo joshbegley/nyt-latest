@@ -1,3 +1,11 @@
+**5 Takeaways From the First N.Y.C. Mayoral Debate**\
+`Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, faced a barrage of attacks from his rivals.`\
+https://nytimes.com/2025/06/04/nyregion/nyc-mayoral-debate-takeaways.html
+
+**In San Francisco, Harvey Milk’s Name Isn’t Going Anywhere**\
+`Mr. Milk’s name adorns numerous sites in the city, where he became a trailblazer for gay rights before he was killed in 1978. The Pentagon is considering stripping his name from a Navy vessel.`\
+https://nytimes.com/2025/06/04/us/harvey-milk-navy-sf-hegseth.html
+
 **Twins call on David Festa (repeatedly) for likely start with Pablo López headed to IL**\
 `Festa, who has struck out 15 batters and posted a 1.38 ERA in 13 MLB innings, is expected to face the Athletics in the series finale.`\
 https://nytimes.com/athletic/6404215/2025/06/04/twins-david-festa-pablo-lopez-start-athletics/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/04/us/politics/trump-travel-ban-map.html
 **Day 4: A Simple Trick for Better Ideas**\
 `Today, let’s think bigger with a fun game.`\
 https://nytimes.com/interactive/2025/well/creativity-work-ideas.html
-
-**Trump Restricts Harvard’s International Students From Entering U.S.**\
-`The Trump administration has sought a workaround to the courts, which have largely blocked his efforts to restrict foreign students.`\
-https://nytimes.com/2025/06/04/us/politics/trump-harvard-international-student-visas.html
-
-**C.J. Gardner-Johnson disputes that Eagles traded him for salary cap reasons**\
-`Fangio said he was "fine" with Eagles GM Howie Roseman's decision to trade Gardner-Johnson away.`\
-https://nytimes.com/athletic/6404072/2025/06/04/cj-gardner-johnson-vic-fangio-eagles-trade/
 
