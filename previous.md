@@ -1,3 +1,11 @@
+**MRNA, Used in Covid Shots, May Help Rid the Body of H.I.V.**\
+`A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
+https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
+
+**Chelsea's Bright undergoes knee surgery following England withdrawal**\
+`Bright has won eight WSL titles with Chelsea over almost 11 years with the club.`\
+https://nytimes.com/athletic/6406217/2025/06/05/millie-bright-chelsea-surgery/
+
 **Mid-practice fight ends Giants' OTA session early: 'Heat got to us'**\
 `“This happens all the time,” Burns said. “We fight over food. We fight over ping pong, pool, whatever it is."`\
 https://nytimes.com/athletic/6406146/2025/06/05/giants-fight-practice-brian-burns/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/nyregion/new-york-schools-native-american-mascots
 **After Trump’s Tariffs Crash Exports, Canada Posts a Record Trade Deficit**\
 `Sales of vehicles made in Canada plunged by nearly 23 percent in April after President Trump imposed a 25 percent auto tariff.`\
 https://nytimes.com/2025/06/05/us/politics/canada-trump-tariffs-trade-deficit.html
-
-**Uzbekistan qualify for World Cup for first time**\
-`The central Asian nation become the third former Soviet republic to ever qualify for the tournament.`\
-https://nytimes.com/athletic/6229851/2025/06/05/uzbekistan-world-cup-qualification-2026/
-
-**Goal to Spend More on Militaries Splits NATO Allies**\
-`The U.S. defense secretary expressed optimism that allied countries would increase their defense budgets, a demand of President Trump’s.`\
-https://nytimes.com/2025/06/05/world/europe/nato-defense-ministers-spending.html
 

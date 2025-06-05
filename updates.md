@@ -1,3 +1,11 @@
+**MRNA, Used in Covid Shots, May Help Rid the Body of H.I.V.**\
+`A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
+https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
+
+**Chelsea's Bright undergoes knee surgery following England withdrawal**\
+`Bright has won eight WSL titles with Chelsea over almost 11 years with the club.`\
+https://nytimes.com/athletic/6406217/2025/06/05/millie-bright-chelsea-surgery/
+
 **Mid-practice fight ends Giants' OTA session early: 'Heat got to us'**\
 `“This happens all the time,” Burns said. “We fight over food. We fight over ping pong, pool, whatever it is."`\
 https://nytimes.com/athletic/6406146/2025/06/05/giants-fight-practice-brian-burns/
