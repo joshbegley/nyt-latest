@@ -1,3 +1,8 @@
+**Man City transfer odds: Reijnders to lead title surge? Or is Sávio the saviour?**\
+`Brett Koremenos explores Manchester City’s summer transfer window dealings through a betting lens.
+`\
+https://nytimes.com/athletic/6405737/2025/06/05/manchester-city-reijnders-odds/
+
 **The Republican Bill: Costs and Doubts**\
 `Readers respond to articles about the G.O.P. bill and some House Republicans’ regrets. Also: Restricting Covid vaccines; a decline in values.`\
 https://nytimes.com/2025/06/05/opinion/republican-bill.html
