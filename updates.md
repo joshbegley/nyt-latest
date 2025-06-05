@@ -1,3 +1,11 @@
+**Hugh Jackman, Ryan Reynolds become co-owners of Australia SailGP team**\
+`The Deadpool & Wolverine co-stars have joined the team as it has been rebranded to BONDS Flying Roos.`\
+https://nytimes.com/athletic/6405070/2025/06/05/hugh-jackman-ryan-reynolds-sailgp/
+
+**Xi and Trump Hold Talks, China Says**\
+`Chinese state media said the leaders spoke on Thursday, amid worsening tensions between Washington and Beijing.`\
+https://nytimes.com/2025/06/05/world/asia/xi-trump-talks-china-us-trade.html
+
 **Connections: Sports Edition Coach: Hints for June 5, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6405398/2025/06/05/connections-sports-edition-hints-for-june-5-2025-puzzle-no-255/

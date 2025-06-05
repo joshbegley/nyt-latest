@@ -1,3 +1,7 @@
+**Do You Have Obamacare? Tell Us About It.**\
+`As Republicans weigh steep cuts to the program, Times reporters want to hear from people who rely on the Affordable Care Act for coverage.`\
+https://nytimes.com/2025/06/05/upshot/do-you-have-obamacare-tell-us-about-it.html
+
 **Hugh Jackman, Ryan Reynolds become co-owners of Australia SailGP team**\
 `The Deadpool & Wolverine co-stars have joined the team as it has been rebranded to BONDS Flying Roos.`\
 https://nytimes.com/athletic/6405070/2025/06/05/hugh-jackman-ryan-reynolds-sailgp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/style/pinkster-stroll-new-york-historical-fashion
 **U.S. Trade Deficit Plummets in April**\
 `U.S. trade fell sharply as President Trump’s global tariffs began to weigh on imports.`\
 https://nytimes.com/2025/06/05/business/economy/us-trade-data-deficit.html
-
-**Finland accidentally select 51-year-old for Nations League duty**\
-`Naane Ruuskanen could not play in the Nations League tie as manager Outi Saarinen put Stina Ruuskanen's name down instead.`\
-https://nytimes.com/athletic/6405116/2025/06/05/finland-women-squad-ruuskanen/
 
