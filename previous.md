@@ -1,3 +1,7 @@
+**Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
+`Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
+https://nytimes.com/2025/06/05/arts/jimmy-buffetts-widow-sues-in-battle-over-275-million-estate.html
+
 **Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
 `With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
 https://nytimes.com/athletic/6406550/2025/06/05/fantasy-football-aaron-rodgers-pittsburgh-steelers/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/06/05/arts/television/makari-amazon-prime-video-mhz-cho
 `Elon Musk’s DOGE associates had descended upon the independent agency, which facilitates volunteer services nationwide, with an eye toward rapidly dismantling it.`\
 https://nytimes.com/2025/06/05/us/politics/judge-reinstatement-americorps-programs.html
 
-**Braves blow 6-run lead in 9th inning, get swept by D-Backs: 'We’re all gonna be miserable'**\
-`In a season that’s spiraling on the Atlanta Braves, the nadir may have been reached Thursday.`\
+**Braves blow 6-run lead in 9th, call up Kimbrel after sweep by D-Backs: ‘We’re not playing well’**\
+`The Braves may have just reached a nadir. They countered by calling up old friend Craig Kimbrel and DFA-ing Scott Blewett among other moves.`\
 https://nytimes.com/athletic/6406426/2025/06/05/braves-blow-six-run-lead-diamondbacks/
 
 **Mara Corday, Starlet of Monster Movies and Magazines, Dies at 95**\
 `She appeared in magazines like Playboy and sci-fi films in the 1950s. Later, in Clint Eastwood’s “Sudden Impact,” she was a hostage until he uttered five famous words.`\
 https://nytimes.com/2025/06/05/movies/mara-corday-dead.html
-
-**Mayor Adams Wants to Force E-Bikes and Scooters to Slow Down**\
-`Mr. Adams called for a 15 m.p.h. speed restriction for electric bicycles and scooters in New York City, even as other vehicles will be allowed to drive faster. Critics say it’s dangerous.`\
-https://nytimes.com/2025/06/05/nyregion/eric-adams-nyc-speed-limit-ebikes.html
 

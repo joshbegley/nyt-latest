@@ -1,3 +1,11 @@
+**Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
+`Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
+https://nytimes.com/2025/06/05/arts/jimmy-buffetts-widow-sues-in-battle-over-275-million-estate.html
+
+**Braves blow 6-run lead in 9th, call up Kimbrel after sweep by D-Backs: ‘We’re not playing well’**\
+`The Braves may have just reached a nadir. They countered by calling up old friend Craig Kimbrel and DFA-ing Scott Blewett among other moves.`\
+https://nytimes.com/athletic/6406426/2025/06/05/braves-blow-six-run-lead-diamondbacks/
+
 **Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
 `With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
 https://nytimes.com/athletic/6406550/2025/06/05/fantasy-football-aaron-rodgers-pittsburgh-steelers/
