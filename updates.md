@@ -1,3 +1,7 @@
+**In War-Torn Nations, Trump’s Travel Ban Brings a New Hardship**\
+`For people in countries like Afghanistan and Myanmar, the president’s order dimmed hopes for sanctuary in the United States.`\
+https://nytimes.com/2025/06/05/world/asia/myanmar-afghanistan-trump-ban.html
+
 **Trump travel ban sparks World Cup questions — and more soccer issues**\
 `The Trump crackdown raises questions for soccer — and for the big tournaments on its horizon. We have some answers.`\
 https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
