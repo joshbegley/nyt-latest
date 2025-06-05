@@ -1,3 +1,7 @@
+**In War-Torn Nations, Trump’s Travel Ban Brings a New Hardship**\
+`For people in countries like Afghanistan and Myanmar, the president’s order dimmed hopes for sanctuary in the United States.`\
+https://nytimes.com/2025/06/05/world/asia/myanmar-afghanistan-trump-ban.html
+
 **The New York Times in Print for Thursday, June 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6388016/2025/06/05/emery-vidagany-and-monchi-inside
 **Arsenal squad audit: Every player's future explained going into the summer**\
 `Who could be sold, who is in talks for a new deal and what other issues are to be resolved this summer?`\
 https://nytimes.com/athletic/6399216/2025/06/05/arsenal-squad-audit-transfers-contracts/
-
-**Every Premier League club's PSR situation: Who can spend and who should worry**\
-`Football finance writer Chris Weatherspoon explains where the 2025-26 season's Premier League clubs stand ahead of the June 30 deadline`\
-https://nytimes.com/athletic/6384537/2025/06/05/psr-premier-league-clubs-risk/
 
