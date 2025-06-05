@@ -1,3 +1,7 @@
+**Rangers appoint Martin as new head coach**\
+`Martin, 39, has been out of work since being sacked by Southampton in December.`\
+https://nytimes.com/athletic/6399303/2025/06/05/rangers-manager-next-russell-martin/
+
 **In N.Y.C. Mayoral Debate, Democrats Assail Cuomo and Vow to Resist Trump**\
 `Former Gov. Andrew Cuomo appeared exasperated and dismissive as his rivals attacked his record in a fractious first primary debate.`\
 https://nytimes.com/2025/06/05/nyregion/nyc-mayor-debate-cuomo.html

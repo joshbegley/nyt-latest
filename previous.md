@@ -1,3 +1,7 @@
+**Rangers appoint Martin as new head coach**\
+`Martin, 39, has been out of work since being sacked by Southampton in December.`\
+https://nytimes.com/athletic/6399303/2025/06/05/rangers-manager-next-russell-martin/
+
 **In N.Y.C. Mayoral Debate, Democrats Assail Cuomo and Vow to Resist Trump**\
 `Former Gov. Andrew Cuomo appeared exasperated and dismissive as his rivals attacked his record in a fractious first primary debate.`\
 https://nytimes.com/2025/06/05/nyregion/nyc-mayor-debate-cuomo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402637/2025/06/05/ibrahima-konate-interview-liverp
 **Europe Wants to Banish Russian Gas. The U.S. May Have Other Plans.**\
 `A large Republican donor wants to buy a Russian pipeline to Germany. The White House has entertained the idea of working with the Kremlin to supply Russian gas to Europe.`\
 https://nytimes.com/2025/06/05/world/europe/us-russia-nord-stream-gas-pipeline.html
-
-**Word of the Day: caricature**\
-`This word has appeared in 198 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/05/learning/word-of-the-day-caricature.html
 
