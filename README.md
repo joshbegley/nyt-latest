@@ -1,3 +1,19 @@
+**How the best tennis rivalries take the players and the sport to new heights**\
+`The excitement for Świątek and Sabalenka's second Grand Slam meeting shows how vital rivalries are at the top of tennis.`\
+https://nytimes.com/athletic/6403172/2025/06/05/swiatek-sabalenka-and-the-big-three-the-best-tennis-rivalries-elevate-the-players-and-the-sport/
+
+**Newcastle confirm signing of Spanish winger Cordero from Malaga**\
+`The 18-year-old winger — a Spain Under-19 international — will join on a free transfer after his current contract expires.`\
+https://nytimes.com/athletic/6404756/2025/06/05/newcastle-transfers-antonio-cordero/
+
+**It’s Not a Birkin. It’s ‘the’ Birkin.**\
+`The original Hermès prototype for Jane Birkin’s iconic bag will be sold at auction this summer. There is no estimate for how high the bidding may go.`\
+https://nytimes.com/2025/06/05/style/birkin-bag-hermes-auction.html
+
+**Former G.O.P. Representative Enters Florida’s Governor Race as a Democrat**\
+`David Jolly argued that there was an opportunity for Democrats to capitalize on voter displeasure with the high cost of living and with Republican policies.`\
+https://nytimes.com/2025/06/05/us/former-gop-representative-enters-floridas-governor-race-as-a-democrat.html
+
 **Stephen Colbert Wonders if Elon Musk’s Ketamine Has Worn Off**\
 `It’s the only explanation the “Late Show” host can think of for the tech mogul’s apparent disenchantment with the Trump administration.`\
 https://nytimes.com/2025/06/05/arts/television/stephen-colbert-elon-musk-ketamine.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/05/weather/d-day-forecast-history-wwii.html
 **A How-To for the Self-Sacrificing Samurai, Now in English**\
 `A gory set of manuals, one dating to the 17th century, advised Japanese warriors in the secret ways of seppuku.`\
 https://nytimes.com/2025/06/05/science/samurai-seppuku-manual.html
-
-**On a Search for an Old E.V., Jay Leno’s Car Obsession Came Up Clutch**\
-`A Times reporter wanted to ride in a Baker Electric, a model from the electric vehicle past. Enter the comedian with the famous garage.`\
-https://nytimes.com/2025/06/05/business/on-a-search-for-an-old-ev-jay-lenos-car-obsession-came-up-clutch.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/05/crosswords/spelling-bee-forum.html
-
-**Cargo Ship Carrying Electric Vehicles Burns Off Alaska**\
-`The U.S. Coast Guard said it would allow the fire to burn because the cars’ lithium-ion batteries could explode. The ship’s crew escaped on a lifeboat.`\
-https://nytimes.com/2025/06/05/us/alaska-fire-ship-electric-vehicles.html
-
-**Konate interview: 'Slot's Liverpool philosophy is different to Klopp's, but he didn't ask me to change'**\
-`The defender says a Premier League title is just the start for Liverpool and wants to give Deschamps a send-off for France at the World Cup`\
-https://nytimes.com/athletic/6402637/2025/06/05/ibrahima-konate-interview-liverpool-france/
 
