@@ -1,3 +1,11 @@
+**Top 10 Reader Favorites From the 100 Best New York Restaurants**\
+`From $$$$ tasting-menu splurges to a celebrated Brooklyn sandwich shop, here are the places New York Times readers have visited most.`\
+https://nytimes.com/2025/06/05/dining/reader-favorite-nyc-restaurants.html
+
+**How the Maker of the ‘Most Complex Machine Humans Ever Created’ Is Navigating Trade Fights**\
+`ASML, the Dutch company that makes multimillion-dollar tools to manufacture advanced semiconductors, is grappling with the repercussions of a tech trade war.`\
+https://nytimes.com/2025/06/05/technology/asml-chips-tariffs-trade.html
+
 **Remember Tim Walz’s ‘Weird’ Comment? He Spoke Too Soon.**\
 `People around President Trump are acting very strangely.`\
 https://nytimes.com/2025/06/05/opinion/trump-weird-walz.html
