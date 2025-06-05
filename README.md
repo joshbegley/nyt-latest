@@ -1,3 +1,27 @@
+**Expired Milk and No Soap: Trump Golf Club Racks Up Health Violations**\
+`The general manager at the Trump National Golf Club in Bedminster, N.J., derided the annual health inspection, calling it “a politically motivated attack.”`\
+https://nytimes.com/2025/06/05/nyregion/trump-golf-club-bedminster-health-inspection.html
+
+**State Dept. Imposes Sanctions on International Criminal Court Judges**\
+`Secretary of State Marco Rubio said the four judges were responsible for investigations of U.S. military personnel and arrest warrants against top Israeli officials.`\
+https://nytimes.com/2025/06/05/us/politics/international-criminal-court-sanctions-rubio-state.html
+
+**Chefs on the Films That Always Make Them Hungry**\
+`Nancy Silverton, Daniela Soto-Innes and more talk about the movies that have inspired and continue to reignite their love of cooking.`\
+https://nytimes.com/2025/06/05/t-magazine/chefs-favorite-food-films.html
+
+**Wild searching for new AHL coach after Brett McLean is hired as Canucks assistant**\
+`Iowa had identical 27-37-8 records in two seasons under McLean, finishing 30th in the AHL in 2024-25 and 29th in 2023-24.`\
+https://nytimes.com/athletic/6406564/2025/06/05/wild-canucks-brett-mclean-coach/
+
+**‘Màkari’ Is a Sun-Dappled Italian Mystery**\
+`Set in Sicily, this sumptuous series, based on books by Gaetano Savatteri, is like a leisurely day at the beach, but with murders.`\
+https://nytimes.com/2025/06/05/arts/television/makari-amazon-prime-video-mhz-choice.html
+
+**Judge Orders Reinstatement of AmeriCorps Programs in 24 States**\
+`Elon Musk’s DOGE associates had descended upon the independent agency, which facilitates volunteer services nationwide, with an eye toward rapidly dismantling it.`\
+https://nytimes.com/2025/06/05/us/politics/judge-reinstatement-americorps-programs.html
+
 **Braves blow 6-run lead in 9th inning, get swept by D-Backs: 'We’re all gonna be miserable'**\
 `In a season that’s spiraling on the Atlanta Braves, the nadir may have been reached Thursday.`\
 https://nytimes.com/athletic/6406426/2025/06/05/braves-blow-six-run-lead-diamondbacks/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/05/nyregion/eric-adams-nyc-speed-limit-ebikes.html
 **Friday Briefing: Trump and Musk Trade Insults**\
 `Plus, tips for healthy aging.`\
 https://nytimes.com/2025/06/05/briefing/trump-musk-insult-travel-ban-gaza.html
-
-**The Democrats’ Problems Are Bigger Than You Think**\
-`If you’re thinking the Democrats’ job now is to come up with some new policies that appeal to the working class, you are thinking too small.`\
-https://nytimes.com/2025/06/05/opinion/democrats-trump-winning.html
-
-**Marina von Neumann Whitman Dies at 90; Carved Path for Women in Economics**\
-`She was the first woman to serve on the White House Council of Economic Advisers. At General Motors, she became one of the highest-ranking women in corporate America.`\
-https://nytimes.com/2025/06/05/business/economy/marina-von-neumann-whitman-dead.html
-
-**Trump and Musk Sling Personal Attacks**\
-`The president and the billionaire have been publicly feuding since Elon Musk denounced President Trump’s domestic policy bill as a “disgusting abomination” on X this week.`\
-https://nytimes.com/video/us/politics/100000010211209/trump-and-musk-sling-personal-attacks.html
-
-**The Briefing: Spain 5 France 4 - Genius Yamal, sublime team goal and Cherki wonderstrike in Nations League semi-final thriller**\
-`Spain and France played out a classic in Stuttgart.`\
-https://nytimes.com/athletic/6403138/2025/06/05/spain-france-yamal-cherki/
-
-**Musk and Trump both wield their social media platforms as weapons.**\
-`By Ryan Mac`\
-https://nytimes.com/live/2025/06/05/us/trump-elon-musk/musk-and-trump-both-wield-their-social-media-platforms-as-weapons
-
-**What Is the ‘Woke’ Macarena? And What Makes it ‘Woke’?**\
-`A catchy song by an Irish singer, and a simple dance to go along with it, have given social media creators an easy trend to emulate.`\
-https://nytimes.com/2025/06/05/style/tiktok-woke-macarena-cmat.html
 
