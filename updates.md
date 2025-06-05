@@ -1,3 +1,15 @@
+**Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
+`A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
+https://nytimes.com/2025/06/05/us/politics/rights-groups-sue-to-overturn-agreement-that-sends-us-immigrants-to-salvadoran-jail.html
+
+**What’s So Problematic About ‘Problematic’?**\
+`The word’s strange history has a lot to tell us about how language evolves.`\
+https://nytimes.com/2025/06/05/opinion/culture/problematic-language-history.html
+
+**Musk’s and Trump’s relationship recently started to unravel.**\
+`By Ryan Mac and Kate Conger`\
+https://nytimes.com/2025/06/05/us/trump-elon-musk-relationship-fallout.html
+
 **Musk and Trump’s relationship recently started to unravel.**\
 `By Ryan Mac and Kate Conger`\
 https://nytimes.com/live/2025/06/05/us/trump-elon-musk/trump-elon-musk-relationship-fallout

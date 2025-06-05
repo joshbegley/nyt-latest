@@ -6,8 +6,8 @@ https://nytimes.com/2025/06/05/us/politics/rights-groups-sue-to-overturn-agreeme
 `The word’s strange history has a lot to tell us about how language evolves.`\
 https://nytimes.com/2025/06/05/opinion/culture/problematic-language-history.html
 
-**Musk’s and Trump’s relationship recently started to unravel.**\
-`By Ryan Mac and Kate Conger`\
+**Musk’s and Trump’s Relationship Recently Started to Unravel**\
+`Since the election, Elon Musk had largely appeared inseparable from the president, helping to reshape government and root out fiscal waste.`\
 https://nytimes.com/2025/06/05/us/trump-elon-musk-relationship-fallout.html
 
 **Used in Covid Shots, mRNA May Help Rid the Body of H.I.V.**\
