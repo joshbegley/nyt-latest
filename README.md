@@ -1,8 +1,24 @@
+**I Was Sidelined by Illness. This Soup Got Me Back in the Kitchen.**\
+`Brothy and bright, this Ghanaian light soup is the perfect summer balm, Yewande Komolafe writes.`\
+https://nytimes.com/2025/06/05/dining/ghanaian-soup.html
+
+**Vasiliy Lomachenko announces retirement from boxing**\
+`The 37-year-old Ukrainian walks away as a three-weight world champion and two-time Olympic gold medallist.`\
+https://nytimes.com/athletic/6405430/2025/06/05/vasiliy-lomachenko-boxing-retires/
+
+**Supreme Court Backs Catholic Charity Denied Exemption in Tax Case**\
+`The Wisconsin Supreme Court had ruled that the group’s activities in serving the state’s poor were not religious enough to qualify for the exemption.`\
+https://nytimes.com/2025/06/05/us/politics/supreme-court-catholic-charity-tax-exemption.html
+
+**Top Democrat Warns Hegseth He Could Face Fines for Accepting Qatari Plane**\
+`Representative Jamie Raskin of Maryland urged the defense secretary to come to Congress for approval of the jet President Trump wants to use as Air Force One.`\
+https://nytimes.com/2025/06/05/us/politics/raskin-hegseth-qatari-plane.html
+
 **How to Watch a Japanese Company Try to Land on the Moon’s Surface**\
 `Ispace crashed on the moon in 2023. Its second spacecraft, Resilience, aims in the hours ahead to succeed where its predecessor failed.`\
 https://nytimes.com/2025/06/05/science/moon-landing-ispace-japan.html
 
-**Syrians Rejoice at Being Exempted from Trump Travel Ban**\
+**Syrians Rejoice at Being Exempted From Trump Travel Ban**\
 `Damascus residents hope the decision is another sign that the world is normalizing relations with Syria after the overthrow of Bashar al-Assad.`\
 https://nytimes.com/2025/06/05/world/middleeast/syria-trump-travel-ban-exemption.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/05/us/politics/supreme-court-reverse-discrimination.
 **Derek Carr said retiring, giving up $30 million was 'right thing to do'**\
 `Carr was expected to miss the Saints' entire 2025 season while dealing with a labral tear in his right shoulder.`\
 https://nytimes.com/athletic/6405385/2025/06/05/derek-carr-retirement-saints-money/
-
-**The Bounce: Your Thunder-Pacers NBA Finals has arrived, so it's time to make predictions!**\
-`The Pacers are a massive underdog to the Thunder, but does that mean we shouldn't expect a great series?`\
-https://nytimes.com/athletic/6405194/2025/06/05/nba-finals-shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-the-bounce/
-
-**Do I Need to Refrigerate Ketchup?**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/condiment-safety-guide
-
-**httpswwwnytimescom20250605theatertony-nominees-2025-photoshtml**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/httpswwwnytimescom20250605theatertony-nominees-2025-photoshtml
-
-**Introducing England Women's Euro 2025 squad: Every player analysed**\
-`Sarina Wiegman has named her squad for Euro 2025. We analyse the 23 players who have made it and what they bring to the title defence run`\
-https://nytimes.com/athletic/6404134/2025/06/05/england-womens-euro-2025-squad-analysed/
 
