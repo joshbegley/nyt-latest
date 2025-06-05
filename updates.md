@@ -1,3 +1,11 @@
+**NWSL approves intra-league loans and increases spending resources for expansion teams**\
+`The rule changes allow Boston and Denver to sign players now and loan them to other teams in NWSL`\
+https://nytimes.com/athletic/6406580/2025/06/05/nwsl-loan-expansion-teams-update/
+
+**For What Remains of New York’s Media Elite, a New Clubhouse Opens**\
+`David Kuhn, a book agent and former magazine editor, opened Chez Nous as an extension of a life spent curating reality.`\
+https://nytimes.com/2025/06/05/style/chez-nous-david-kuhn.html
+
 **Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
 `In an interview, the former top aide to the president said that Mr. Trump should cancel Elon Musk’s federal contracts.`\
 https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html

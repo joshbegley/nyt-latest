@@ -1,3 +1,11 @@
+**NWSL approves intra-league loans and increases spending resources for expansion teams**\
+`The rule changes allow Boston and Denver to sign players now and loan them to other teams in NWSL`\
+https://nytimes.com/athletic/6406580/2025/06/05/nwsl-loan-expansion-teams-update/
+
+**For What Remains of New York’s Media Elite, a New Clubhouse Opens**\
+`David Kuhn, a book agent and former magazine editor, opened Chez Nous as an extension of a life spent curating reality.`\
+https://nytimes.com/2025/06/05/style/chez-nous-david-kuhn.html
+
 **Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
 `The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
 https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/nyregion/trump-golf-club-bedminster-health-inspec
 **State Dept. Imposes Sanctions on International Criminal Court Judges**\
 `Secretary of State Marco Rubio said the four judges were responsible for investigations of U.S. military personnel and arrest warrants against top Israeli officials.`\
 https://nytimes.com/2025/06/05/us/politics/international-criminal-court-sanctions-rubio-state.html
-
-**Chefs on the Films That Always Make Them Hungry**\
-`Nancy Silverton, Daniela Soto-Innes and more talk about the movies that have inspired and continue to reignite their love of cooking.`\
-https://nytimes.com/2025/06/05/t-magazine/chefs-favorite-food-films.html
-
-**Wild searching for new AHL coach after Brett McLean is hired as Canucks assistant**\
-`Iowa had identical 27-37-8 records in two seasons under McLean, finishing 30th in the AHL in 2024-25 and 29th in 2023-24.`\
-https://nytimes.com/athletic/6406564/2025/06/05/wild-canucks-brett-mclean-coach/
 
