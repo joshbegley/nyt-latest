@@ -1,5 +1,17 @@
+**Here is the latest.**\
+`The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/trump-elon-musk-attacks-policy-bill
+
+**Live Update: Trump and Musk Attack Each Other in Remarkable Break**\
+`The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk
+
+**Matic given four-game ban after covering anti-homophobia logo**\
+`Le Havre striker Ahmed Hassan also received the same ban for the same offence.`\
+https://nytimes.com/athletic/6406069/2025/06/05/nemanja-matic-ban-lyon/
+
 **Trump Compares Russia and Ukraine to Children Fighting**\
-`During a visit by the German leader, President Trump essentially threw up his hands, saying that there was nothing the United States could do right now to end the war to an end.`\
+`During a visit by the German leader, President Trump essentially threw up his hands, saying that there was nothing the United States could do right now to end the war.`\
 https://nytimes.com/2025/06/05/us/politics/trump-russia-ukraine-children-fighting.html
 
 **First New York City Mayoral Primary Debate of 2025 Gets Heated**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/05/dining/easy-vegetarian-lentil-recipes.html
 **Tom Felton to Reprise Draco Malfoy Role in ‘Harry Potter’ on Broadway**\
 `Felton makes his Broadway debut this November for a limited engagement, playing a grown-up Draco, through March.`\
 https://nytimes.com/2025/06/05/theater/draco-malfoy-tom-felton-harry-potter-broadway.html
-
-**Susan Choi: ‘I Feel I’ve Read Nothing but Great Books Recently’**\
-`The list includes “Heartwood,” “Other Worlds,” “The Wall” and “The Fact Checker.” Her own new novel is “Flashlight.”`\
-https://nytimes.com/2025/06/05/books/review/susan-choi-flashlight.html
-
-**The Republican Bill: Costs and Doubts**\
-`Readers respond to articles about the G.O.P. bill and some House Republicans’ regrets. Also: Restricting Covid vaccines; a decline in values.`\
-https://nytimes.com/2025/06/05/opinion/republican-bill.html
-
-**Why Immigration Raids in Puerto Rico Hit Differently**\
-`Federal authorities on the island have recently detained hundreds of Dominicans, who often share the same ethnic background, language and culture as Puerto Ricans.`\
-https://nytimes.com/2025/06/05/us/puerto-rico-immigration-raids-trump-dominican-republic.html
 

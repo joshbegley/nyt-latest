@@ -1,3 +1,19 @@
+**Here is the latest.**\
+`The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/trump-elon-musk-attacks-policy-bill
+
+**Live Update: Trump and Musk Attack Each Other in Remarkable Break**\
+`The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk
+
+**Matic given four-game ban after covering anti-homophobia logo**\
+`Le Havre striker Ahmed Hassan also received the same ban for the same offence.`\
+https://nytimes.com/athletic/6406069/2025/06/05/nemanja-matic-ban-lyon/
+
+**Trump Compares Russia and Ukraine to Children Fighting**\
+`During a visit by the German leader, President Trump essentially threw up his hands, saying that there was nothing the United States could do right now to end the war.`\
+https://nytimes.com/2025/06/05/us/politics/trump-russia-ukraine-children-fighting.html
+
 **Trump Compares Russia and Ukraine to Children Fighting**\
 `During a visit by the German leader, President Trump essentially threw up his hands, saying that there was nothing the United States could do right now to end the war to an end.`\
 https://nytimes.com/2025/06/05/us/politics/trump-russia-ukraine-children-fighting.html
