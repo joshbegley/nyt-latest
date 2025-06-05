@@ -1,3 +1,7 @@
+**Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
+`The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
+https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
+
 **The Epstein Files Obsession, Explained**\
 `In a spat with President Trump, Elon Musk invokes the Epstein files, a source of endless speculation and conspiracy.`\
 https://nytimes.com/2025/06/05/us/elon-musk-trump-epstein-files.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
 
 **Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
 `Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
-https://nytimes.com/2025/06/05/arts/jimmy-buffett-jane-estate-lawsuit.html
+https://nytimes.com/2025/06/05/arts/music/jimmy-buffett-jane-estate-lawsuit.html
 
 **Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
 `With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/t-magazine/chefs-favorite-food-films.html
 **Wild searching for new AHL coach after Brett McLean is hired as Canucks assistant**\
 `Iowa had identical 27-37-8 records in two seasons under McLean, finishing 30th in the AHL in 2024-25 and 29th in 2023-24.`\
 https://nytimes.com/athletic/6406564/2025/06/05/wild-canucks-brett-mclean-coach/
-
-**‘Màkari’ Is a Sun-Dappled Italian Mystery**\
-`Set in Sicily, this sumptuous series, based on books by Gaetano Savatteri, is like a leisurely day at the beach, but with murders.`\
-https://nytimes.com/2025/06/05/arts/television/makari-amazon-prime-video-mhz-choice.html
 
