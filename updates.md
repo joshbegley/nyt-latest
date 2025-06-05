@@ -1,3 +1,15 @@
+**Man City agree deal to sign Ait-Nouri from Wolves**\
+`The Algeria international is set to join on a five-year contract with the option of a further year.`\
+https://nytimes.com/athletic/6397797/2025/06/05/man-city-ait-nouri-transfer-wolves/
+
+**State Dept: World Cup travel ban fallout 'part of what it means to host an event'**\
+`The ban leaves nationals from over a dozen countries at risk of being blocked from entering the United States for the 2026 World Cup.`\
+https://nytimes.com/athletic/6406308/2025/06/05/travel-ban-world-cup-state-department/
+
+**Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
+`A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
+https://nytimes.com/2025/06/05/us/politics/migrants-el-salvador-prison-lawsuit.html
+
 **How to Protect Yourself From Saharan Dust**\
 `A plume of dust is affecting air quality in Florida and may reach other Southern states soon. Here’s what we know about the potential health effects.`\
 https://nytimes.com/2025/06/05/well/saharan-dust-health-protection.html
