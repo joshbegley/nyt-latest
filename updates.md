@@ -1,3 +1,7 @@
+**Israeli Military Recovers Bodies of Two Hostages Taken in Oct. 7 Attack**\
+`Judi Weinstein-Haggai and Gad Haggai were in their 70s when they were killed.`\
+https://nytimes.com/2025/06/05/world/middleeast/israel-hostages-haggai.html
+
 **Newcastle confirm signing of Spanish winger Cordero from Malaga**\
 `The 18-year-old winger, a Spain Under-19 international, will join on a free transfer after his contract expires.`\
 https://nytimes.com/athletic/6404756/2025/06/05/newcastle-transfers-antonio-cordero/

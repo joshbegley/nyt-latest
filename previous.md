@@ -1,3 +1,7 @@
+**Israeli Military Recovers Bodies of Two Hostages Taken in Oct. 7 Attack**\
+`Judi Weinstein-Haggai and Gad Haggai were in their 70s when they were killed.`\
+https://nytimes.com/2025/06/05/world/middleeast/israel-hostages-haggai.html
+
 **How the best tennis rivalries take the players and the sport to new heights**\
 `The excitement for Świątek and Sabalenka's second Grand Slam meeting shows how vital rivalries are at the top of tennis.`\
 https://nytimes.com/athletic/6403172/2025/06/05/swiatek-sabalenka-and-the-big-three-the-best-tennis-rivalries-elevate-the-players-and-the-sport/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/nyregion/whitney-tilson-interview-mayor.html
 **The Man Whose Weather Forecast Saved the World**\
 `Getting the troops to Normandy on D-Day was a tremendous logistical undertaking. And it almost didn’t happen.`\
 https://nytimes.com/2025/06/05/weather/d-day-forecast-history-wwii.html
-
-**A How-To for the Self-Sacrificing Samurai, Now in English**\
-`A gory set of manuals, one dating to the 17th century, advised Japanese warriors in the secret ways of seppuku.`\
-https://nytimes.com/2025/06/05/science/samurai-seppuku-manual.html
 
