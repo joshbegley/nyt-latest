@@ -1,3 +1,7 @@
+**Whether or Not It’s a Sandwich**\
+`Timothy Gaetz makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/06/04/crosswords/daily-puzzle-2025-06-05.html
+
 **Trump Orders Investigation of Biden and His Aides**\
 `The executive order is the latest effort by President Trump to stoke outlandish conspiracy theories about his predecessor and question the legality of his actions in office.`\
 https://nytimes.com/2025/06/04/us/politics/trump-biden-investigation.html
