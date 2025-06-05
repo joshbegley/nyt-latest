@@ -1,3 +1,7 @@
+**Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
+`With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
+https://nytimes.com/athletic/6406550/2025/06/05/fantasy-football-aaron-rodgers-pittsburgh-steelers/
+
 **Expired Milk and No Soap: Trump Golf Club Racks Up Health Violations**\
 `The general manager at the Trump National Golf Club in Bedminster, N.J., derided the annual health inspection, calling it “a politically motivated attack.”`\
 https://nytimes.com/2025/06/05/nyregion/trump-golf-club-bedminster-health-inspection.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/movies/mara-corday-dead.html
 **Mayor Adams Wants to Force E-Bikes and Scooters to Slow Down**\
 `Mr. Adams called for a 15 m.p.h. speed restriction for electric bicycles and scooters in New York City, even as other vehicles will be allowed to drive faster. Critics say it’s dangerous.`\
 https://nytimes.com/2025/06/05/nyregion/eric-adams-nyc-speed-limit-ebikes.html
-
-**Friday Briefing: Trump and Musk Trade Insults**\
-`Plus, tips for healthy aging.`\
-https://nytimes.com/2025/06/05/briefing/trump-musk-insult-travel-ban-gaza.html
 

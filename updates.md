@@ -1,3 +1,7 @@
+**Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
+`With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
+https://nytimes.com/athletic/6406550/2025/06/05/fantasy-football-aaron-rodgers-pittsburgh-steelers/
+
 **Expired Milk and No Soap: Trump Golf Club Racks Up Health Violations**\
 `The general manager at the Trump National Golf Club in Bedminster, N.J., derided the annual health inspection, calling it “a politically motivated attack.”`\
 https://nytimes.com/2025/06/05/nyregion/trump-golf-club-bedminster-health-inspection.html
