@@ -1,3 +1,11 @@
+**Trump and Musk Sling Personal Attacks**\
+`The president and the billionaire have been publicly feuding since Elon Musk denounced President Trump’s domestic policy bill as a “disgusting abomination” on X this week.`\
+https://nytimes.com/video/us/politics/100000010211209/trump-and-musk-sling-personal-attacks.html
+
+**The Briefing: Spain 5 France 4 - Genius Yamal, sublime team goal and Cherki wonderstrike in nine-goal thriller**\
+`Spain and France played out a classic in Stuttgart.`\
+https://nytimes.com/athletic/6403138/2025/06/05/spain-france-yamal-cherki/
+
 **Musk and Trump both wield their social media platforms as weapons.**\
 `By Ryan Mac`\
 https://nytimes.com/live/2025/06/05/us/trump-elon-musk/musk-and-trump-both-wield-their-social-media-platforms-as-weapons
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/world/middleeast/israel-gaza-militia-netanyahu.ht
 **It’s Piña Colada Weather**\
 `They taste exactly how the best summer days feel: sweet and sunny.`\
 https://nytimes.com/2025/06/05/dining/its-pina-colada-weather.html
-
-**Reform U.K.’s Chairman Quits Amid New Infighting**\
-`The sudden departure of Zia Yusuf, chairman of Nigel Farage’s anti-immigration party, is a blow to the organization and comes after a clash with another party member over the burqa.`\
-https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html
-
-**Tesla Shares Slide as Musk Feuds With Trump**\
-`President Trump said on Thursday that Elon Musk was upset about the repeal of an electric vehicle tax credit — a claim Mr. Musk swiftly rejected.`\
-https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
 
