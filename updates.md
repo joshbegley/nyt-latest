@@ -1,3 +1,11 @@
+**How to Watch a Japanese Company Try to Land on the Moon’s Surface**\
+`Ispace crashed on the moon in 2023. Its second spacecraft, Resilience, aims in the hours ahead to succeed where its predecessor failed.`\
+https://nytimes.com/2025/06/05/science/moon-landing-ispace-japan.html
+
+**Syrians Rejoice at Being Exempted from Trump Travel Ban**\
+`Damascus residents hope the decision is another sign that the world is normalizing relations with Syria after the overthrow of Bashar al-Assad.`\
+https://nytimes.com/2025/06/05/world/middleeast/syria-trump-travel-ban-exemption.html
+
 **Supreme Court Blocks Mexico’s Suit Against U.S. Gunmakers**\
 `The case focused on whether the Mexican government could legally sue U.S. manufacturers over claims that they shared blame for violence by drug cartels.`\
 https://nytimes.com/2025/06/05/us/politics/supreme-court-mexico-gunmakers.html
