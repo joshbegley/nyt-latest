@@ -1,6 +1,22 @@
+**Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
+`The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
+https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
+
+**The Epstein Files Obsession, Explained**\
+`In a spat with President Trump, Elon Musk invokes the Epstein files, a source of endless speculation and conspiracy.`\
+https://nytimes.com/2025/06/05/us/elon-musk-trump-epstein-files.html
+
+**Trump’s Alliance With Musk Shattered**\
+`Also, the Supreme Court backed a straight woman in a discrimination case. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/06/05/briefing/trumps-alliance-with-musk-shattered.html
+
+**Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
+`The former top aide to the president said in an interview that Trump should cancel Elon Musk’s federal contracts.`\
+https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
+
 **Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
 `Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
-https://nytimes.com/2025/06/05/arts/jimmy-buffetts-widow-sues-in-battle-over-275-million-estate.html
+https://nytimes.com/2025/06/05/arts/music/jimmy-buffett-jane-estate-lawsuit.html
 
 **Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
 `With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/05/t-magazine/chefs-favorite-food-films.html
 **Wild searching for new AHL coach after Brett McLean is hired as Canucks assistant**\
 `Iowa had identical 27-37-8 records in two seasons under McLean, finishing 30th in the AHL in 2024-25 and 29th in 2023-24.`\
 https://nytimes.com/athletic/6406564/2025/06/05/wild-canucks-brett-mclean-coach/
-
-**‘Màkari’ Is a Sun-Dappled Italian Mystery**\
-`Set in Sicily, this sumptuous series, based on books by Gaetano Savatteri, is like a leisurely day at the beach, but with murders.`\
-https://nytimes.com/2025/06/05/arts/television/makari-amazon-prime-video-mhz-choice.html
-
-**Judge Orders Reinstatement of AmeriCorps Programs in 24 States**\
-`Elon Musk’s DOGE associates had descended upon the independent agency, which facilitates volunteer services nationwide, with an eye toward rapidly dismantling it.`\
-https://nytimes.com/2025/06/05/us/politics/judge-reinstatement-americorps-programs.html
-
-**Braves blow 6-run lead in 9th, call up Kimbrel after sweep by D-Backs: ‘We’re not playing well’**\
-`The Braves may have just reached a nadir. They countered by calling up old friend Craig Kimbrel and DFA-ing Scott Blewett among other moves.`\
-https://nytimes.com/athletic/6406426/2025/06/05/braves-blow-six-run-lead-diamondbacks/
-
-**Mara Corday, Starlet of Monster Movies and Magazines, Dies at 95**\
-`She appeared in magazines like Playboy and sci-fi films in the 1950s. Later, in Clint Eastwood’s “Sudden Impact,” she was a hostage until he uttered five famous words.`\
-https://nytimes.com/2025/06/05/movies/mara-corday-dead.html
 

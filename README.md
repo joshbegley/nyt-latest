@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/05/us/elon-musk-trump-epstein-files.html
 https://nytimes.com/2025/06/05/briefing/trumps-alliance-with-musk-shattered.html
 
 **Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
-`The former top aide to the president said in an interview that Trump should cancel Elon Musk’s federal contracts.`\
+`In an interview, the former top aide to the president said that Mr. Trump should cancel Elon Musk’s federal contracts.`\
 https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
 
 **Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\

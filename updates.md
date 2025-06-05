@@ -1,3 +1,23 @@
+**Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
+`The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
+https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
+
+**The Epstein Files Obsession, Explained**\
+`In a spat with President Trump, Elon Musk invokes the Epstein files, a source of endless speculation and conspiracy.`\
+https://nytimes.com/2025/06/05/us/elon-musk-trump-epstein-files.html
+
+**Trump’s Alliance With Musk Shattered**\
+`Also, the Supreme Court backed a straight woman in a discrimination case. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/06/05/briefing/trumps-alliance-with-musk-shattered.html
+
+**Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
+`The former top aide to the president said in an interview that Trump should cancel Elon Musk’s federal contracts.`\
+https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
+
+**Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
+`Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
+https://nytimes.com/2025/06/05/arts/music/jimmy-buffett-jane-estate-lawsuit.html
+
 **Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
 `Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
 https://nytimes.com/2025/06/05/arts/jimmy-buffetts-widow-sues-in-battle-over-275-million-estate.html
