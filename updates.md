@@ -1,3 +1,19 @@
+**Tesla Shares Slide as Musk Feuds With Trump**\
+`President Trump on Thursday said that Mr. Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
+https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
+
+**Trump Administration Ends ‘Quiet Skies’ Traveler Surveillance Program**\
+`The program had briefly ensnared Tulsi Gabbard, the former Democratic congresswoman and now President Trump’s director of national intelligence, who has vocally criticized it as politicized.`\
+https://nytimes.com/2025/06/05/us/politics/trump-administration-ends-quiet-skies-surveillance-program.html
+
+**Trump Threatens Musk Contracts as Feud Escalates**\
+`Last year alone, companies owned by Elon Musk were promised $3 billion across nearly 100 different government contracts with 17 federal agencies.`\
+https://nytimes.com/2025/06/05/us/trump-musk-contracts-threat.html
+
+**To Pay for Tax Cuts, Trump Touts Tariff Revenues That May Be Fleeting**\
+`The president cited figures from the Congressional Budget Office to suggest tariffs could offset the cost of tax cuts, though he omitted important caveats for why that may not be the case.`\
+https://nytimes.com/2025/06/05/us/politics/trump-tax-cuts-tariff-revenues.html
+
 **With Aaron Rodgers, the Steelers risk doing exactly what they said they wouldn't**\
 `The Steelers bet on aging QBs in Ben Roethlisberger and Russell Wilson. If two is a pattern, what will the third gamble become?`\
 https://nytimes.com/athletic/6221842/2025/06/05/aaron-rodgers-steelers-free-agent-signing/
