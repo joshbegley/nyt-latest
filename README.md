@@ -1,3 +1,15 @@
+**Braves blow 6-run lead in 9th inning, get swept by D-Backs: 'We’re all gonna be miserable'**\
+`In a season that’s spiraling on the Atlanta Braves, the nadir may have been reached Thursday.`\
+https://nytimes.com/athletic/6406426/2025/06/05/braves-blow-six-run-lead-diamondbacks/
+
+**Mara Corday, Starlet of Monster Movies and Magazines, Dies at 95**\
+`She appeared in magazines like Playboy and sci-fi films in the 1950s. Later, in Clint Eastwood’s “Sudden Impact,” she was a hostage until he uttered five famous words.`\
+https://nytimes.com/2025/06/05/movies/mara-corday-dead.html
+
+**Mayor Adams Wants to Force E-Bikes and Scooters to Slow Down**\
+`Mr. Adams called for a 15 m.p.h. speed restriction for electric bicycles and scooters in New York City, even as other vehicles will be allowed to drive faster. Critics say it’s dangerous.`\
+https://nytimes.com/2025/06/05/nyregion/eric-adams-nyc-speed-limit-ebikes.html
+
 **Friday Briefing: Trump and Musk Trade Insults**\
 `Plus, tips for healthy aging.`\
 https://nytimes.com/2025/06/05/briefing/trump-musk-insult-travel-ban-gaza.html
@@ -14,7 +26,7 @@ https://nytimes.com/2025/06/05/business/economy/marina-von-neumann-whitman-dead.
 `The president and the billionaire have been publicly feuding since Elon Musk denounced President Trump’s domestic policy bill as a “disgusting abomination” on X this week.`\
 https://nytimes.com/video/us/politics/100000010211209/trump-and-musk-sling-personal-attacks.html
 
-**The Briefing: Spain 5 France 4 - Genius Yamal, sublime team goal and Cherki wonderstrike in nine-goal thriller**\
+**The Briefing: Spain 5 France 4 - Genius Yamal, sublime team goal and Cherki wonderstrike in Nations League semi-final thriller**\
 `Spain and France played out a classic in Stuttgart.`\
 https://nytimes.com/athletic/6403138/2025/06/05/spain-france-yamal-cherki/
 
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/05/us/trump-elon-musk/musk-and-trump-both-wield
 **What Is the ‘Woke’ Macarena? And What Makes it ‘Woke’?**\
 `A catchy song by an Irish singer, and a simple dance to go along with it, have given social media creators an easy trend to emulate.`\
 https://nytimes.com/2025/06/05/style/tiktok-woke-macarena-cmat.html
-
-**Giants OTAs: Dizzying QB rotation, Mike Kafka's play-calling highlight feisty Thursday**\
-`While a rare OTA fight stole headlines, there is plenty to take away from Thursday's practice.`\
-https://nytimes.com/athletic/6406353/2025/06/05/new-york-giants-otas-fight-quarterbacks/
-
-**What to See in N.Y.C. Galleries in June**\
-`This week in Newly Reviewed, Martha Schwendener covers Aleksandar Duravcevic’s meditations, R.H. Quaytman’s veins of color and Cosey Fanni Tutti’s provocations. `\
-https://nytimes.com/2025/06/05/arts/art-galleries-nyc-june.html
-
-**Zambia’s Former President Edgar Lungu Dies at 68**\
-`Mr. Lungu, who was recently barred by a court ruling from running for president again, left a checkered legacy, with allegations that he eroded freedoms while in office.`\
-https://nytimes.com/2025/06/05/world/africa/zambia-edgar-lungu-dies.html
 

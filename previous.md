@@ -1,3 +1,23 @@
+**Friday Briefing: Trump and Musk Trade Insults**\
+`Plus, tips for healthy aging.`\
+https://nytimes.com/2025/06/05/briefing/trump-musk-insult-travel-ban-gaza.html
+
+**The Democrats’ Problems Are Bigger Than You Think**\
+`If you’re thinking the Democrats’ job now is to come up with some new policies that appeal to the working class, you are thinking too small.`\
+https://nytimes.com/2025/06/05/opinion/democrats-trump-winning.html
+
+**Marina von Neumann Whitman Dies at 90; Carved Path for Women in Economics**\
+`She was the first woman to serve on the White House Council of Economic Advisers. At General Motors, she became one of the highest-ranking women in corporate America.`\
+https://nytimes.com/2025/06/05/business/economy/marina-von-neumann-whitman-dead.html
+
+**Trump and Musk Sling Personal Attacks**\
+`The president and the billionaire have been publicly feuding since Elon Musk denounced President Trump’s domestic policy bill as a “disgusting abomination” on X this week.`\
+https://nytimes.com/video/us/politics/100000010211209/trump-and-musk-sling-personal-attacks.html
+
+**The Briefing: Spain 5 France 4 - Genius Yamal, sublime team goal and Cherki wonderstrike in nine-goal thriller**\
+`Spain and France played out a classic in Stuttgart.`\
+https://nytimes.com/athletic/6403138/2025/06/05/spain-france-yamal-cherki/
+
 **Musk and Trump both wield their social media platforms as weapons.**\
 `By Ryan Mac`\
 https://nytimes.com/live/2025/06/05/us/trump-elon-musk/musk-and-trump-both-wield-their-social-media-platforms-as-weapons
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/05/arts/art-galleries-nyc-june.html
 **Zambia’s Former President Edgar Lungu Dies at 68**\
 `Mr. Lungu, who was recently barred by a court ruling from running for president again, left a checkered legacy, with allegations that he eroded freedoms while in office.`\
 https://nytimes.com/2025/06/05/world/africa/zambia-edgar-lungu-dies.html
-
-**Fever's Caitlin Clark taking quad injury rehab 'day by day'**\
-`"I'm not going to rush coming back. It's not worth it," Clark said of the rehab process.`\
-https://nytimes.com/athletic/6405592/2025/06/05/caitlin-clark-fever-injury-update/
-
-**Netanyahu Says Israel ‘Activated Clans’ to Fight Hamas in Gaza**\
-`The revelation ignited a controversy in Israel, with the opposition leader warning that the “weapons going into Gaza will eventually be pointed at Israeli soldiers and civilians.”`\
-https://nytimes.com/2025/06/05/world/middleeast/israel-gaza-militia-netanyahu.html
-
-**It’s Piña Colada Weather**\
-`They taste exactly how the best summer days feel: sweet and sunny.`\
-https://nytimes.com/2025/06/05/dining/its-pina-colada-weather.html
-
-**Reform U.K.’s Chairman Quits Amid New Infighting**\
-`The sudden departure of Zia Yusuf, chairman of Nigel Farage’s anti-immigration party, is a blow to the organization and comes after a clash with another party member over the burqa.`\
-https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html
-
-**Tesla Shares Slide as Musk Feuds With Trump**\
-`President Trump said on Thursday that Elon Musk was upset about the repeal of an electric vehicle tax credit — a claim Mr. Musk swiftly rejected.`\
-https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
 
