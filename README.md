@@ -1,3 +1,15 @@
+**How new Suns head coach Jordan Ott went from a small Pennsylvania town to the NBA**\
+`Owner Mat Ishbia and GM Brian Gregory have promised an identity makeover in Phoenix. A first-time head coach, Ott will lead the way.`\
+https://nytimes.com/athletic/6404727/2025/06/05/jordan-ott-phoenix-suns-head-coach-pennsylvania-nba/
+
+**Sarina Wiegman names England squad for Euro 2025**\
+`Goalkeeper Mary Earps, centre-back Millie Bright, and forward Fran Kirby had all already withdrawn themselves from selection.`\
+https://nytimes.com/athletic/6405272/2025/06/05/england-squad-euro-2025-lauren-james/
+
+**Dressing Up for a Day of Black Joy**\
+`The Pinkster Stroll is not your average New York fashion show.`\
+https://nytimes.com/2025/06/05/style/pinkster-stroll-new-york-historical-fashion.html
+
 **U.S. Trade Deficit Plummets in April**\
 `U.S. trade fell sharply as President Trump’s global tariffs began to weigh on imports.`\
 https://nytimes.com/2025/06/05/business/economy/us-trade-data-deficit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6403370/2025/06/05/carson-hocevar-nascar-driver-fan
 **The Montreal brotherhood that brought Lu Dort and Bennedict Mathurin to the NBA Finals**\
 `Montreal has not traditionally been known as an NBA hotbed. But the NBA Finals feature two Montreal natives who see themselves as brothers.`\
 https://nytimes.com/athletic/6398250/2025/06/05/nba-finals-lu-dort-bennedict-mathurin-montreal/
-
-**Can the Maple Leafs upgrade at centre without trading Easton Cowan?**\
-`Cowan is the Leafs' one shiny asset left to dangle to rival teams. To trade him or not is a thorny proposition for the front office.`\
-https://nytimes.com/athletic/6400758/2025/06/05/maple-leafs-easton-cowan-trade/
-
-**WATCH: How Pascal Siakam makes — and breaks — the Pacers' system**\
-`The beauty of Pascal Siakam: He can be whatever the Pacers need him to be. Here are all the roles he fills for this Indiana team.`\
-https://nytimes.com/athletic/6404192/2025/06/05/pascal-siakam-pacers-nba-finals-video-highlights/
-
-**Ranking Canucks' top 13 trade assets: What trade chips could be in play?**\
-`With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
-https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
 
