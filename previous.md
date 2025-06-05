@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Enjoli Liston`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/heres-the-latest
+
+**Trump Administration Live Updates: President Bans Citizens of 12 Countries From Entering U.S.**\
+`The order, which primarily targets countries in Africa and the Middle East, revives an effort from President Trump’s first term that led to chaos and court battles.`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban
+
 **Chelsea give Palmer Mudryk's No. 10 shirt**\
 `New signing Liam Delap, meanwhile, has been handed the vacant No. 9.`\
 https://nytimes.com/athletic/6404844/2025/06/05/cole-palmer-chelsea-shirt-number-new/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/06/05/todays-new-york-times-internatio
 **New Zealand’s Parliament Suspends Maori Lawmakers Over Haka Protest**\
 `The harsh penalty was handed down to three members of the opposition who said they were voicing their community’s displeasure with proposed legislation.`\
 https://nytimes.com/2025/06/05/world/asia/nz-maori-haka-suspend.html
-
-**Liverpool reject Barcelona approach over Diaz transfer**\
-`The 28-year-old Colombia international joined from Porto in January 2022 on a deal that runs until the summer of 2027.`\
-https://nytimes.com/athletic/6404792/2025/06/05/luis-diaz-liverpool-barcelona-transfer/
-
-**The Very Gay Life of Edmund White**\
-`The writer Edmund White, who died on Tuesday, wrote about being gay with literary clarity and without shame.`\
-https://nytimes.com/2025/06/05/opinion/edmund-white-gay-dead.html
 

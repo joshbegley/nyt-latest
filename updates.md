@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Enjoli Liston`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/heres-the-latest
+
+**Trump Administration Live Updates: President Bans Citizens of 12 Countries From Entering U.S.**\
+`The order, which primarily targets countries in Africa and the Middle East, revives an effort from President Trump’s first term that led to chaos and court battles.`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban
+
 **Chelsea give Palmer Mudryk's No. 10 shirt**\
 `New signing Liam Delap, meanwhile, has been handed the vacant No. 9.`\
 https://nytimes.com/athletic/6404844/2025/06/05/cole-palmer-chelsea-shirt-number-new/
