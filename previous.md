@@ -1,3 +1,7 @@
+**Giants OTAs: Dizzying QB rotation, Mike Kafka's play-calling highlight feisty Thursday**\
+`While a rare OTA fight stole headlines, there is plenty to take away from Thursday's practice.`\
+https://nytimes.com/athletic/6406353/2025/06/05/new-york-giants-otas-fight-quarterbacks/
+
 **What to See in N.Y.C. Galleries in June**\
 `This week in Newly Reviewed, Martha Schwendener covers Aleksandar Duravcevic’s meditations, R.H. Quaytman’s veins of color and Cosey Fanni Tutti’s provocations. `\
 https://nytimes.com/2025/06/05/arts/art-galleries-nyc-june.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/politics/trump-quiet-skies-surveillance-progra
 **Trump Threatens Musk Contracts as Feud Escalates**\
 `Last year alone, companies owned by Elon Musk were promised $3 billion across nearly 100 different government contracts with 17 federal agencies.`\
 https://nytimes.com/2025/06/05/us/trump-musk-contracts-threat.html
-
-**To Pay for Tax Cuts, Trump Touts Tariff Revenues That May Be Fleeting**\
-`The president cited figures from the Congressional Budget Office to suggest tariffs could offset the cost of tax cuts, though he omitted important caveats for why that may not be the case.`\
-https://nytimes.com/2025/06/05/us/politics/trump-tax-cuts-tariff-revenues.html
 

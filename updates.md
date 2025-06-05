@@ -1,3 +1,7 @@
+**Giants OTAs: Dizzying QB rotation, Mike Kafka's play-calling highlight feisty Thursday**\
+`While a rare OTA fight stole headlines, there is plenty to take away from Thursday's practice.`\
+https://nytimes.com/athletic/6406353/2025/06/05/new-york-giants-otas-fight-quarterbacks/
+
 **What to See in N.Y.C. Galleries in June**\
 `This week in Newly Reviewed, Martha Schwendener covers Aleksandar Duravcevic’s meditations, R.H. Quaytman’s veins of color and Cosey Fanni Tutti’s provocations. `\
 https://nytimes.com/2025/06/05/arts/art-galleries-nyc-june.html
