@@ -1,10 +1,14 @@
+**Rights groups, but few world leaders, race to condemn the travel ban.**\
+`On Thursday m`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/rights-groups-but-few-world-leaders-race-to-condemn-the-travel-ban
+
 **A healthy Draisaitl gives Oilers the edge they lacked in last year's Stanley Cup Final**\
 `While battling injuries in the 2024 Stanley Cup Final, Draisaitl didn't look like himself. In Game 1 Wednesday, he was "a game-breaker."`\
 https://nytimes.com/athletic/6404670/2025/06/05/leon-draisaitl-stanley-cup-final-oilers-nhl-playoffs/
 
 **Listen: Sandro Tonali and the tactical tweak that changed the face of Newcastle’s season**\
 `On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how dropping Tonali deeper paid dividends for Eddie Howe`\
-https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-and-the-tactical-tweak-that-changed-the-face-of-newcastles-season/
+https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-newcastle-eddie-howe-premier-league/
 
 **Chicago may be 'the place quarterbacks go to die,' but Cubs pitcher Cade Horton is thriving**\
 `The Cubs are 5-0 in Horton’s five outings since he was promoted from Triple A to replace injured All-Star pitcher Shota Imanaga.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/climber-dead-mckinley-denali.html
 **Caleb Williams' best day yet, Jaquan Brisker's recovery: Bears minicamp takeaways**\
 `Day 2 of minicamp included Brisker talking about his scary concussion and Gervon Dexter and Tyrique Stevenson adjusting to new coaches.`\
 https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
-
-**Will Steph Curry move to TV? Will ESPN's booth sputter? Will fans watch? NBA Finals Media Preview**\
-`The Athletic's sports media reporters Andrew Marchand and Richard Deitsch preview the NBA Finals through its key media storylines.`\
-https://nytimes.com/athletic/6403449/2025/06/05/nba-finals-thunder-pacers-media-tv-espn-abc-deitsch-marchand/
 
