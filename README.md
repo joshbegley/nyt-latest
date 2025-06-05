@@ -1,3 +1,7 @@
+**Kennedy Says ‘Charlatans’ Are No Reason to Block Unproven Stem Cell Treatments**\
+`The U.S. health secretary said people should have access to experimental therapies including unregulated stem cells. But some methods have resulted in blindness, tumors and other injuries.`\
+https://nytimes.com/2025/06/05/health/kennedy-stem-cells-experimental-treatments.html
+
 **Do You Have Obamacare? Tell Us About It.**\
 `As Republicans weigh steep cuts to the program, Times reporters want to hear from people who rely on the Affordable Care Act for coverage.`\
 https://nytimes.com/2025/06/05/upshot/do-you-have-obamacare-tell-us-about-it.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6405272/2025/06/05/england-squad-euro-2025-lauren-j
 **Dressing Up for a Day of Black Joy**\
 `The Pinkster Stroll is not your average New York fashion show.`\
 https://nytimes.com/2025/06/05/style/pinkster-stroll-new-york-historical-fashion.html
-
-**U.S. Trade Deficit Plummets in April**\
-`U.S. trade fell sharply as President Trump’s global tariffs began to weigh on imports.`\
-https://nytimes.com/2025/06/05/business/economy/us-trade-data-deficit.html
 
