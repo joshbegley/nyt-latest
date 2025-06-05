@@ -1,40 +1,40 @@
-**The fine pitching details behind why the Mets are better equipped to hang with the Dodgers**\
-`The Mets have shown they're on the defending champion’s level in taking four of the first six regular season matchups this season.`\
-https://nytimes.com/athletic/6404763/2025/06/05/mets-dodgers-pitching-details/
+**Ken Jennings: Trivia and ‘Jeopardy!’ Could Save Our Republic**\
+`A practical belief in fact and error is more fundamentally American than a toxic blend of proud ignorance and smarter-than-thou skepticism.`\
+https://nytimes.com/2025/06/05/opinion/jeopardy-trivia-us-democracy.html
 
-**Israeli Military Recovers Bodies of Two Hostages Taken in Oct. 7 Attack**\
-`Judi Weinstein-Haggai and Gad Haggai were in their 70s when they were killed.`\
-https://nytimes.com/2025/06/05/world/middleeast/israel-hostages-haggai.html
+**Foreign Buyers Are Fleeing the South Florida Condo Market**\
+`Sales to international buyers fell to 10 percent of transactions last year, a steep decline from 50 percent in 2018.`\
+https://nytimes.com/2025/06/05/realestate/florida-condos-sales-foreign-buyers.html
 
-**How the best tennis rivalries take the players and the sport to new heights**\
-`The excitement for Świątek and Sabalenka's second Grand Slam meeting shows how vital rivalries are at the top of tennis.`\
-https://nytimes.com/athletic/6403172/2025/06/05/swiatek-sabalenka-and-the-big-three-the-best-tennis-rivalries-elevate-the-players-and-the-sport/
+**At City Ballet, Casting, Coaching and Dances Worth Watching**\
+`The spring season of New York City Ballet didn’t seem to warrant much excitement — until it did, with a rush of dynamic debuts.`\
+https://nytimes.com/2025/06/05/arts/dance/new-york-city-ballet-season-highlights.html
 
-**Newcastle confirm signing of Spanish winger Cordero from Malaga**\
-`The 18-year-old winger, a Spain Under-19 international, will join on a free transfer after his contract expires.`\
-https://nytimes.com/athletic/6404756/2025/06/05/newcastle-transfers-antonio-cordero/
+**‘The Cole Porter of Literature’: Writers and Artists Remember Edmund White**\
+`In these reflections, colleagues, friends and admirers recall his risk-taking, his generosity and his insatiable taste for gossip.`\
+https://nytimes.com/2025/06/05/books/review/edmund-white-queer-literature.html
 
-**It’s Not a Birkin. It’s ‘the’ Birkin.**\
-`The original Hermès prototype for Jane Birkin’s iconic bag will be sold at auction this summer. There is no estimate for how high the bidding may go.`\
-https://nytimes.com/2025/06/05/style/birkin-bag-hermes-auction.html
+**Squeezed by China’s Slowdown, Internet Users Lash Out at Elites**\
+`A Harvard graduate, a doctor and an actress have been at the center of social media storms over perceived privilege. Some see economic anxiety behind it.`\
+https://nytimes.com/2025/06/05/world/asia/china-harvard-economy-inequality.html
 
-**Former G.O.P. Representative Enters Florida’s Governor Race as a Democrat**\
-`David Jolly argued that there was an opportunity for Democrats to capitalize on voter displeasure with the high cost of living and with Republican policies.`\
-https://nytimes.com/2025/06/05/us/former-gop-representative-enters-floridas-governor-race-as-a-democrat.html
+**36 Hours in Detroit**\
+`The city that brought us automobiles and Motown has seen tough times. But Detroit always rises again.`\
+https://nytimes.com/interactive/2025/06/05/travel/things-to-do-Detroit.html
 
-**Stephen Colbert Wonders if Elon Musk’s Ketamine Has Worn Off**\
-`It’s the only explanation the “Late Show” host can think of for the tech mogul’s apparent disenchantment with the Trump administration.`\
-https://nytimes.com/2025/06/05/arts/television/stephen-colbert-elon-musk-ketamine.html
+**George Romero’s Zombies Lurch On, in Three Family Projects**\
+`His daughter, ex-wife and widow are each working on movies rooted in his legacy, even as they wrestle with their memories and a contentious split.`\
+https://nytimes.com/2025/06/05/movies/george-romero-zombie-family-women.html
 
-**Rangers appoint Martin as new head coach**\
-`Martin, 39, has been out of work since being sacked by Southampton in December.`\
-https://nytimes.com/athletic/6399303/2025/06/05/rangers-manager-next-russell-martin/
+**What’s Changed, and What Hasn’t, From Weinstein’s First Trial to Now**\
+`The jury in Harvey Weinstein’s New York retrial on sex crimes charges will deliberate amid a social atmosphere different from the one that shaped the 2020 proceedings.`\
+https://nytimes.com/2025/06/05/nyregion/whats-changed-and-what-hasnt-from-weinsteins-first-trial-to-now.html
 
-**In N.Y.C. Mayoral Debate, Democrats Assail Cuomo and Vow to Resist Trump**\
-`Former Gov. Andrew Cuomo appeared exasperated and dismissive as his rivals attacked his record in a fractious first primary debate.`\
-https://nytimes.com/2025/06/05/nyregion/nyc-mayor-debate-cuomo.html
+**Millions Would Lose Their Obamacare Coverage Under Trump’s Bill**\
+`Though Republicans are not explicitly trying to repeal the Affordable Care Act, a series of small, technical changes would substantially reduce enrollment and increase the cost of coverage.`\
+https://nytimes.com/2025/06/05/upshot/obamacare-cuts-republicans.html
 
-**10 Questions With Whitney Tilson**\
-`Whitney Tilson, a former hedge fund executive who is running for mayor of New York City, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/05/nyregion/whitney-tilson-interview-mayor.html
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
+https://nytimes.com/2025/06/05/realestate/housing-market-near-nyc.html
 
