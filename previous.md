@@ -1,6 +1,10 @@
-**Here is the latest.**\
+**Rick Pitino shuts down Knicks coaching job speculation: 'Absolutely not'**\
+`"I think whoever comes in, if he doesn't get to the finals, it's going to be deemed an unsuccessful season," Pitino said.`\
+https://nytimes.com/athletic/6405884/2025/06/05/rick-pitino-knicks-coaching-vacancy/
+
+**Trump and Musk take their feud public.**\
 `The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
-https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/trump-elon-musk-attacks-policy-bill
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk/trump-elon-musk-attacks-policy-bill
 
 **Live Update: Trump and Musk Attack Each Other in Remarkable Break**\
 `The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/magazine/oklahoma-city-thunder-nba-finals.html
 **Let’s Lentil**\
 `With a summery orzo salad, a curried coconut soup and tomato-marinated toast.`\
 https://nytimes.com/2025/06/05/dining/easy-vegetarian-lentil-recipes.html
-
-**Tom Felton to Reprise Draco Malfoy Role in ‘Harry Potter’ on Broadway**\
-`Felton makes his Broadway debut this November for a limited engagement, playing a grown-up Draco, through March.`\
-https://nytimes.com/2025/06/05/theater/draco-malfoy-tom-felton-harry-potter-broadway.html
 

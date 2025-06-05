@@ -1,3 +1,11 @@
+**Rick Pitino shuts down Knicks coaching job speculation: 'Absolutely not'**\
+`"I think whoever comes in, if he doesn't get to the finals, it's going to be deemed an unsuccessful season," Pitino said.`\
+https://nytimes.com/athletic/6405884/2025/06/05/rick-pitino-knicks-coaching-vacancy/
+
+**Trump and Musk take their feud public.**\
+`The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk/trump-elon-musk-attacks-policy-bill
+
 **Here is the latest.**\
 `The open acrimony between the two men comes after the billionaire denounced President Trump’s signature domestic policy bill as an “abomination.”`\
 https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/trump-elon-musk-attacks-policy-bill
