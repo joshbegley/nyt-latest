@@ -1,3 +1,15 @@
+**Curiosity and a new challenge drew Alexander Straus from Germany to Angel City**\
+`Straus said he wanted to find out just how good the best teams in the U.S. and Europe are.`\
+https://nytimes.com/athletic/6406808/2025/06/05/angel-city-coach-alex-straus-bayern-munich/
+
+**Uzbekistan's World Cup dream realised: Tears, near-misses and making amends for 'stolen goals'**\
+`The Central Asian country of almost 40m inhabitants has come close before, but now can finally celebrate reaching its first World Cup`\
+https://nytimes.com/athletic/6226853/2025/06/05/uzbekistan-world-cup-qualification/
+
+**What Broncos' interest in JK Dobbins says about running back room status**\
+`The Broncos drafted RJ Harvey in the second round but are open to bring "another good football player" into the backfield.`\
+https://nytimes.com/athletic/6406604/2025/06/05/jk-dobbins-broncos-otas/
+
 **Tax Credit Increase Would Exclude Millions of Low-Income Children, Study Finds**\
 `The domestic policy bill passed by the House raises the maximum child tax credit to $2,500. But about a third of children would not receive the full credit because their parents have low wages or lack jobs.`\
 https://nytimes.com/2025/06/05/us/politics/child-tax-credit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/05/style/chez-nous-david-kuhn.html
 **Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
 `The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
 https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
-
-**The Epstein Files Obsession, Explained**\
-`In a spat with President Trump, Elon Musk invokes the Epstein files, a source of endless speculation and conspiracy.`\
-https://nytimes.com/2025/06/05/us/elon-musk-trump-epstein-files.html
-
-**Trump’s Alliance With Musk Shattered**\
-`Also, the Supreme Court backed a straight woman in a discrimination case. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/06/05/briefing/trumps-alliance-with-musk-shattered.html
-
-**Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
-`In an interview, the former top aide to the president said that Mr. Trump should cancel Elon Musk’s federal contracts.`\
-https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
 
