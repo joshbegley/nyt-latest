@@ -1,3 +1,7 @@
+**Trump Orders Investigation of Biden and His Aides**\
+`The executive order is the latest effort by President Trump to stoke outlandish conspiracy theories about his predecessor and question the legality of his actions in office.`\
+https://nytimes.com/2025/06/04/us/politics/trump-biden-investigation.html
+
 **Judge Considers Early Release of Martin Luther King Jr. Assassination Documents**\
 `The materials are scheduled to be unsealed in 2027, but President Trump signed an executive order in January aimed at moving up the date.`\
 https://nytimes.com/2025/06/04/us/politics/mlk-jr-assassination-documents-release.html
