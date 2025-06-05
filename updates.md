@@ -1,3 +1,11 @@
+**As Ousters Continue, F.B.I. Singles Out Employee Over Friendship With Trump Critic**\
+`Threated with demotion, a veteran agent with ties to a former official on the F.B.I. director’s so-called enemies list opted to resign. Two others were forced to move and retire.`\
+https://nytimes.com/2025/06/05/us/politics/fbi-agents-patel-trump.html
+
+**The Trump-Musk Meltdown Gets Messy**\
+`Kanye West tried to keep the peace.`\
+https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-fight.html
+
 **Florida Sheriff Is Arrested in Illegal Gambling Investigation**\
 `Prosecutors accused Sheriff Marcos Lopez of Osceola County of protecting a gambling ring that made about $22 million across at least two Central Florida counties.`\
 https://nytimes.com/2025/06/05/us/politics/osceola-county-sheriff-arrested-racketeering.html
