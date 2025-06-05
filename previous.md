@@ -1,3 +1,15 @@
+**DAZN, TNT Sports announce Club World Cup broadcasting team**\
+`Alex Scott, Lauren Jbara and Katie Witham will be studio hosts for the 32-club tournament in the U.S.`\
+https://nytimes.com/athletic/6405829/2025/06/05/club-world-cup-dazn-tnt-sports/
+
+**The Mind-Blowing Second Coming of the Oklahoma City Thunder**\
+`How one of the N.B.A.’s scrappiest teams came to dominate the league.`\
+https://nytimes.com/2025/06/05/magazine/oklahoma-city-thunder-nba-finals.html
+
+**Let’s Lentil**\
+`With a summery orzo salad, a curried coconut soup and tomato-marinated toast.`\
+https://nytimes.com/2025/06/05/dining/easy-vegetarian-lentil-recipes.html
+
 **Tom Felton to Reprise Draco Malfoy Role in ‘Harry Potter’ on Broadway**\
 `Felton makes his Broadway debut this November for a limited engagement, playing a grown-up Draco, through March.`\
 https://nytimes.com/2025/06/05/theater/draco-malfoy-tom-felton-harry-potter-broadway.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6405609/2025/06/05/mike-trout-eagles-super-bowl-car
 **Trump’s Travel Ban Could Shake Up International Sporting Events**\
 `The proclamation said exemptions could be made for athletes and coaches participating in “major” competitions in the United States.`\
 https://nytimes.com/2025/06/05/world/americas/trump-travel-ban-sports.html
-
-**The Classical Music Our Critics Can’t Stop Thinking About**\
-`Watch and listen to recent highlights, including a Shostakovich festival in Germany, the Cleveland Orchestra’s Strauss and Nina Stemme’s Isolde.`\
-https://nytimes.com/2025/06/05/arts/music/best-classical-music-may-2025.html
-
-**Man City transfer odds: Reijnders to lead title surge? Or is Sávio the saviour?**\
-`Brett Koremenos explores Manchester City’s summer transfer window dealings through a betting lens.
-`\
-https://nytimes.com/athletic/6405737/2025/06/05/manchester-city-reijnders-odds/
-
-**Trump’s travel ban undermines Infantino’s World Cup vision**\
-`Infantino is discovering that the U.S. president's unpredictable nature can complicate his plans for 2026`\
-https://nytimes.com/athletic/6405729/2025/06/05/donald-trump-travel-ban-world-cup-infantino-fifa/
 

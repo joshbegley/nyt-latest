@@ -1,3 +1,15 @@
+**DAZN, TNT Sports announce Club World Cup broadcasting team**\
+`Alex Scott, Lauren Jbara and Katie Witham will be studio hosts for the 32-club tournament in the U.S.`\
+https://nytimes.com/athletic/6405829/2025/06/05/club-world-cup-dazn-tnt-sports/
+
+**The Mind-Blowing Second Coming of the Oklahoma City Thunder**\
+`How one of the N.B.A.’s scrappiest teams came to dominate the league.`\
+https://nytimes.com/2025/06/05/magazine/oklahoma-city-thunder-nba-finals.html
+
+**Let’s Lentil**\
+`With a summery orzo salad, a curried coconut soup and tomato-marinated toast.`\
+https://nytimes.com/2025/06/05/dining/easy-vegetarian-lentil-recipes.html
+
 **Man City transfer odds: Reijnders to lead title surge? Or is Sávio the saviour?**\
 `Brett Koremenos explores Manchester City’s summer transfer window dealings through a betting lens.
 `\
