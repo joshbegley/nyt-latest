@@ -1,3 +1,7 @@
+**Hilary Knight signs with PWHL Seattle after going unprotected in expansion**\
+`For Seattle, making one of the greatest women’s hockey players of all time the team’s first signing is an easy win.`\
+https://nytimes.com/athletic/6404220/2025/06/04/hilary-knight-pwhl-seattle-expansion/
+
 **Whether or Not It’s a Sandwich**\
 `Timothy Gaetz makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/06/04/crosswords/daily-puzzle-2025-06-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-br
 **‘Carol,’ Whose Detention Rattled Her Small Missouri Town, Is Released**\
 `Ming Li Hui’s detention by the immigration authorities brought the reality of President Trump’s immigration crackdown to rural Missouri, where supporters rallied for her freedom.`\
 https://nytimes.com/2025/06/04/us/politics/carol-missouri-migrant.html
-
-**‘We Don’t Want Them’: Trump Signs Travel Ban on Citizens From 12 Countries**\
-`The president’s proclamation barred travel from countries including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
-https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
 
