@@ -1,3 +1,7 @@
+**The fine pitching details behind why the Mets are better equipped to hang with the Dodgers**\
+`The Mets have shown they're on the defending champion’s level in taking four of the first six regular season matchups this season.`\
+https://nytimes.com/athletic/6404763/2025/06/05/mets-dodgers-pitching-details/
+
 **Israeli Military Recovers Bodies of Two Hostages Taken in Oct. 7 Attack**\
 `Judi Weinstein-Haggai and Gad Haggai were in their 70s when they were killed.`\
 https://nytimes.com/2025/06/05/world/middleeast/israel-hostages-haggai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/nyregion/nyc-mayor-debate-cuomo.html
 **10 Questions With Whitney Tilson**\
 `Whitney Tilson, a former hedge fund executive who is running for mayor of New York City, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/05/nyregion/whitney-tilson-interview-mayor.html
-
-**The Man Whose Weather Forecast Saved the World**\
-`Getting the troops to Normandy on D-Day was a tremendous logistical undertaking. And it almost didn’t happen.`\
-https://nytimes.com/2025/06/05/weather/d-day-forecast-history-wwii.html
 
