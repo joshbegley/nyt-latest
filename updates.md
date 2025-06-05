@@ -1,3 +1,23 @@
+**Supreme Court Blocks Mexico’s Suit Against U.S. Gunmakers**\
+`The case focused on whether the Mexican government could legally sue U.S. manufacturers over claims that they shared blame for violence by drug cartels.`\
+https://nytimes.com/2025/06/05/us/politics/supreme-court-mexico-gunmakers.html
+
+**How to Seal Your Drafty Windows for Less Than $50**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-fix-drafty-windows
+
+**Supreme Court Rules for Straight Woman in Job Discrimination Suit**\
+`The justices rejected an appeals court’s requirement that members of majority groups meet a heightened standard to win employment discrimination cases.`\
+https://nytimes.com/2025/06/05/us/politics/supreme-court-reverse-discrimination.html
+
+**Derek Carr said retiring, giving up $30 million was 'right thing to do'**\
+`Carr was expected to miss the Saints' entire 2025 season while dealing with a labral tear in his right shoulder.`\
+https://nytimes.com/athletic/6405385/2025/06/05/derek-carr-retirement-saints-money/
+
+**The Bounce: Your Thunder-Pacers NBA Finals has arrived, so it's time to make predictions!**\
+`The Pacers are a massive underdog to the Thunder, but does that mean we shouldn't expect a great series?`\
+https://nytimes.com/athletic/6405194/2025/06/05/nba-finals-shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-the-bounce/
+
 **Do I Need to Refrigerate Ketchup?**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/condiment-safety-guide

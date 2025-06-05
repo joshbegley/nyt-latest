@@ -1,3 +1,11 @@
+**How to Watch a Japanese Company Try to Land on the Moon’s Surface**\
+`Ispace crashed on the moon in 2023. Its second spacecraft, Resilience, aims in the hours ahead to succeed where its predecessor failed.`\
+https://nytimes.com/2025/06/05/science/moon-landing-ispace-japan.html
+
+**Syrians Rejoice at Being Exempted from Trump Travel Ban**\
+`Damascus residents hope the decision is another sign that the world is normalizing relations with Syria after the overthrow of Bashar al-Assad.`\
+https://nytimes.com/2025/06/05/world/middleeast/syria-trump-travel-ban-exemption.html
+
 **Supreme Court Blocks Mexico’s Suit Against U.S. Gunmakers**\
 `The case focused on whether the Mexican government could legally sue U.S. manufacturers over claims that they shared blame for violence by drug cartels.`\
 https://nytimes.com/2025/06/05/us/politics/supreme-court-mexico-gunmakers.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/httpswwwnytimescom20250605theaterton
 **Introducing England Women's Euro 2025 squad: Every player analysed**\
 `Sarina Wiegman has named her squad for Euro 2025. We analyse the 23 players who have made it and what they bring to the title defence run`\
 https://nytimes.com/athletic/6404134/2025/06/05/england-womens-euro-2025-squad-analysed/
-
-**Listen: How should Chelsea’s 2024-25 season be graded?**\
-`Straight Outta Cobham discuss how Chelsea’s 2024–25 season should be graded.`\
-https://nytimes.com/athletic/6403834/2025/06/05/how-should-chelseas-2024-25-season-be-graded/
-
-**Kennedy Says ‘Charlatans’ Are No Reason to Block Unproven Stem Cell Treatments**\
-`The U.S. health secretary said people should have access to experimental therapies including unregulated stem cells. But some methods have resulted in blindness, tumors and other injuries.`\
-https://nytimes.com/2025/06/05/health/kennedy-stem-cells-experimental-treatments.html
 
