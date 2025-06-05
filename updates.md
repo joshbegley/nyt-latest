@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, June 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/05/todays-new-york-times
+
+**Tariffs Make the World Poorer and More Perilous**\
+`Free trade reduces the frictions that can arise between nations. Tariffs will only take away stability.`\
+https://nytimes.com/2025/06/05/opinion/tariffs-trade-us-security.html
+
 **Thursday Briefing**\
 `A new Trump travel ban.`\
 https://nytimes.com/2025/06/05/briefing/trump-travel-ukraine-gaza.html
