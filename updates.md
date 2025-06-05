@@ -1,3 +1,15 @@
+**Rights groups, but few world leaders, race to condemn the travel ban.**\
+`On Thursday m`\
+https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/rights-groups-but-few-world-leaders-race-to-condemn-the-travel-ban
+
+**A healthy Draisaitl gives Oilers the edge they lacked in last year's Stanley Cup Final**\
+`While battling injuries in the 2024 Stanley Cup Final, Draisaitl didn't look like himself. In Game 1 Wednesday, he was "a game-breaker."`\
+https://nytimes.com/athletic/6404670/2025/06/05/leon-draisaitl-stanley-cup-final-oilers-nhl-playoffs/
+
+**Listen: Sandro Tonali and the tactical tweak that changed the face of Newcastle’s season**\
+`On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how dropping Tonali deeper paid dividends for Eddie Howe`\
+https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-newcastle-eddie-howe-premier-league/
+
 **Listen: Sandro Tonali and the tactical tweak that changed the face of Newcastle’s season**\
 `On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how pushing Tonali deeper paid dividends for Eddie Howe.`\
 https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-and-the-tactical-tweak-that-changed-the-face-of-newcastles-season/
