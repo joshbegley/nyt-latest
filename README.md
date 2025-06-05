@@ -1,3 +1,27 @@
+**The Montreal brotherhood that brought Lu Dort and Bennedict Mathurin to the NBA Finals**\
+`Montreal has not traditionally been known as an NBA hotbed. But the NBA Finals feature two Montreal natives who see themselves as brothers.`\
+https://nytimes.com/athletic/6398250/2025/06/05/nba-finals-lu-dort-bennedict-mathurin-montreal/
+
+**Ranking the Canucks' top 13 trade assets: What trade chips could be in play?**\
+`With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
+https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
+
+**How Hard Will Musk Fight Republicans’ Budget Bill?**\
+`The tech mogul is urging followers to pressure lawmakers to “KILL THE BILL,” potentially undermining a key plank of President Trump’s domestic agenda.`\
+https://nytimes.com/2025/06/05/business/dealbook/musk-republicans-budget-trump.html
+
+**Why the Seahawks don’t have a QB competition, as Jalen Milroe learns behind Sam Darnold**\
+`No, Milroe is not the Russell Wilson to Darnold's Matt Flynn, even if there are plenty of similarities to the 2012 situation.`\
+https://nytimes.com/athletic/6404034/2025/06/05/sam-darnold-jalen-milroe-seahawks-qb/
+
+**At Combs Trial, ‘Jane,’ an Ex-Girlfriend, to Testify About Sex Abuse**\
+`Prosecutors say the woman, who will take the stand under a pseudonym, endured coerced sex marathons called “freak-offs.” The defense contends they were consensual.`\
+https://nytimes.com/2025/06/05/arts/music/sean-combs-diddy-trial-jane-freak-offs.html
+
+**Blues offseason needs: How St. Louis measures up to conference finalists**\
+`Where the Blues can't quite match up to the NHL's final four could prove instructive for Doug Armstrong's offseason plans.`\
+https://nytimes.com/athletic/6400039/2025/06/05/blues-offseason-needs-nhl-conference-finalists/
+
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
 https://nytimes.com/2025/06/05/realestate/housing-market-nyc.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/05/us/trump-travel-ban-countries-what.html
 **'I would love to be in a World Cup', says Guardiola**\
 `Guardiola played 47 matches for Spain during his playing career but has never been involved in international management.`\
 https://nytimes.com/athletic/6404921/2025/06/05/pep-guardiola-manchester-city-world-cup/
-
-**Mick Abel gives the Phillies some stability amid the chaos in Toronto**\
-`By the end of it, there was chaos everywhere. But Abel, making his second big-league start, represented something stable for the Phillies.`\
-https://nytimes.com/athletic/6404405/2025/06/05/mick-abel-phillies-blue-jays/
-
-**Why Justin Carbonneau is one of the 2025 NHL Draft's top power forwards**\
-`Carbonneau is NHL Central Scouting's No. 16-ranked North American skater and a projected top-20 pick in the 2025 draft.`\
-https://nytimes.com/athletic/6393446/2025/06/05/nhl-draft-2025-justin-carbonneau/
-
-**Could Ceddanne Rafaela be the next Pete Crow-Armstrong? The Red Sox hope so**\
-`The Cubs' center fielder is playing at an MVP level. Rafaela is an equally elite defender, and the Red Sox believe his offense is coming.`\
-https://nytimes.com/athletic/6402751/2025/06/05/could-ceddanne-rafaela-be-the-next-pete-crow-armstrong-the-red-sox-hope-so/
-
-**Alejandro Kirk blasts walk-off hit against former Blue Jays closer Jordan Romano**\
-`Kirk was familiar with his former batterymate's approach and fouled off three straight pitches before his walk-off hit to right.`\
-https://nytimes.com/athletic/6404477/2025/06/05/alejandro-kirk-walk-off-hit/
-
-**What we know about Russian Federation hockey’s exclusion from 2026 Winter Olympics**\
-`The men’s hockey tournament will see active NHL players competing in it for the first time since 2014, but almost certainly no Russians. `\
-https://nytimes.com/athletic/6399982/2025/06/05/2026-olympics-hockey-russia-ioc-iihf-nhl/
-
-**Cayden Lindstrom looks forward to 'long career,' with his next stop at Michigan State**\
-`Lindstrom, Columbus' No. 4 overall draft pick last June, is feeling good after a lengthy back issue.`\
-https://nytimes.com/athletic/6403755/2025/06/05/cayden-lindstrom-michigan-state/
 
