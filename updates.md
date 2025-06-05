@@ -1,3 +1,11 @@
+**Listen: How should Chelsea’s 2024-25 season be graded?**\
+`Straight Outta Cobham discuss how Chelsea’s 2024–25 season should be graded.`\
+https://nytimes.com/athletic/6403834/2025/06/05/how-should-chelseas-2024-25-season-be-graded/
+
+**Xi and Trump Hold Talks, China Says**\
+`Chinese state media said the leaders spoke by phone on Thursday, amid worsening tensions between Washington and Beijing.`\
+https://nytimes.com/2025/06/05/world/asia/xi-trump-talks-china-us-trade.html
+
 **Kennedy Says ‘Charlatans’ Are No Reason to Block Unproven Stem Cell Treatments**\
 `The U.S. health secretary said people should have access to experimental therapies including unregulated stem cells. But some methods have resulted in blindness, tumors and other injuries.`\
 https://nytimes.com/2025/06/05/health/kennedy-stem-cells-experimental-treatments.html
