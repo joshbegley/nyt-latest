@@ -1,4 +1,4 @@
-**Listen: How should Chelsea’s 2024–25 season be graded?**\
+**Listen: How should Chelsea’s 2024-25 season be graded?**\
 `Straight Outta Cobham discuss how Chelsea’s 2024–25 season should be graded.`\
 https://nytimes.com/athletic/6403834/2025/06/05/how-should-chelseas-2024-25-season-be-graded/
 
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6405398/2025/06/05/connections-sports-edition-hints
 https://nytimes.com/interactive/2025/06/05/us/travel-ban-order-full.html
 
 **Xi and Trump Hold Talks, China Says**\
-`Chinese state media said the leaders spoke on Thursday, amid worsening tensions between Washington and Beijing.`\
+`Chinese state media said the leaders spoke by phone on Thursday, amid worsening tensions between Washington and Beijing.`\
 https://nytimes.com/2025/06/05/world/asia/xi-trump-talks-china-us-trade.html
 
 **Marco Sturm hired as Bruins coach: Why the ex-left wing is back behind the bench**\
