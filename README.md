@@ -1,3 +1,11 @@
+**Fever's Caitlin Clark taking quad injury rehab 'day by day'**\
+`"I'm not going to rush coming back. It's not worth it," Clark said of the rehab process.`\
+https://nytimes.com/athletic/6405592/2025/06/05/caitlin-clark-fever-injury-update/
+
+**Netanyahu Says Israel ‘Activated Clans’ to Fight Hamas in Gaza**\
+`The revelation ignited a controversy in Israel, with the opposition leader warning that the “weapons going into Gaza will eventually be pointed at Israeli soldiers and civilians.”`\
+https://nytimes.com/2025/06/05/world/middleeast/israel-gaza-militia-netanyahu.html
+
 **It’s Piña Colada Weather**\
 `They taste exactly how the best summer days feel: sweet and sunny.`\
 https://nytimes.com/2025/06/05/dining/its-pina-colada-weather.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6221842/2025/06/05/aaron-rodgers-steelers-free-agen
 **Man City agree deal to sign Ait-Nouri from Wolves**\
 `The Algeria international is set to join on a five-year contract with the option of a further year.`\
 https://nytimes.com/athletic/6397797/2025/06/05/man-city-ait-nouri-transfer-wolves/
-
-**How to Protect Yourself From Saharan Dust**\
-`A plume of dust is affecting air quality in Florida and may reach other Southern states soon. Here’s what we know about the potential health effects.`\
-https://nytimes.com/2025/06/05/well/saharan-dust-health-protection.html
-
-**Aaron Rodgers to sign with Steelers on 1-year deal: Sources**\
-`After months on the free-agent market, Rodgers has chosen a third NFL team, replacing Russell Wilson and Justin Fields in Pittsburgh.`\
-https://nytimes.com/athletic/6231027/2025/06/05/aaron-rodgers-steelers-nfl-free-agency/
 
