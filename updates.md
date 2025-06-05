@@ -1,3 +1,43 @@
+**Why Justin Carbonneau is one of the 2025 NHL Draft's top power forwards**\
+`Carbonneau is NHL Central Scouting's No. 16-ranked North American skater and a projected top-20 pick in the 2025 draft.`\
+https://nytimes.com/athletic/6393446/2025/06/05/nhl-draft-2025-justin-carbonneau/
+
+**Could Ceddanne Rafaela be the next Pete Crow-Armstrong? The Red Sox hope so**\
+`The Cubs' center fielder is playing at an MVP level. Rafaela is an equally elite defender, and the Red Sox believe his offense is coming.`\
+https://nytimes.com/athletic/6402751/2025/06/05/could-ceddanne-rafaela-be-the-next-pete-crow-armstrong-the-red-sox-hope-so/
+
+**Alejandro Kirk blasts walk-off hit against former Blue Jays closer Jordan Romano**\
+`Kirk was familiar with his former batterymate's approach and fouled off three straight pitches before his walk-off hit to right.`\
+https://nytimes.com/athletic/6404477/2025/06/05/alejandro-kirk-walk-off-hit/
+
+**What we know about Russian Federation hockey’s exclusion from 2026 Winter Olympics**\
+`The men’s hockey tournament will see active NHL players competing in it for the first time since 2014, but almost certainly no Russians. `\
+https://nytimes.com/athletic/6399982/2025/06/05/2026-olympics-hockey-russia-ioc-iihf-nhl/
+
+**Cayden Lindstrom looks forward to 'long career,' with his next stop at Michigan State**\
+`Lindstrom, Columbus' No. 4 overall draft pick last June, is feeling good after a lengthy back issue.`\
+https://nytimes.com/athletic/6403755/2025/06/05/cayden-lindstrom-michigan-state/
+
+**As NHL free agency nears, how will players age on their new contracts?**\
+`One of the most important aspects of signing a player to a new contract is estimating how he will age. It’s also the hardest thing to do.`\
+https://nytimes.com/athletic/6398802/2025/06/05/nhl-free-agency-mitch-marner-age/
+
+**Rosenthal: Blame the bullpen for the A’s struggles, but also blame their situation**\
+`The A's are 1-20 since May 14 and 2-13 in their last 15 games at Sutter Health Park. `\
+https://nytimes.com/athletic/6404344/2025/06/05/athletics-sutter-health-park-bullpen-woes/
+
+**Wirtz showed exactly why Liverpool want him - and left his mark on Fernandes**\
+`Liverpool are preparing to break the bank to sign the playmaker, and in Germany's defeat to Portugal he scored and proved he's no soft touch`\
+https://nytimes.com/athletic/6404089/2025/06/05/florian-wirtz-liverpool-transfer-germany/
+
+**Law: Biggest risers and fallers from the newest MLB top-50 prospect ranking**\
+`Notes on six players whose outlooks have changed in two months, including Red Sox shortstop Franklin Arias and Mets righty Brandon Sproat.`\
+https://nytimes.com/athletic/6400486/2025/06/05/keith-law-prospect-rankings-risers-fallers-2025/
+
+**LeBrun: If Game 1 was any indication, we're in for another long, incredible Stanley Cup Final**\
+`Two unbelievably well-matched teams, both better than they were in last year's series, make for an exciting watch. Strap in.`\
+https://nytimes.com/athletic/6404665/2025/06/05/stanley-cup-final-game-1-nhl-playoffs-oilers-panthers/
+
 **Rights groups, but few world leaders, race to condemn the travel ban.**\
 `On Thursday m`\
 https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/rights-groups-but-few-world-leaders-race-to-condemn-the-travel-ban

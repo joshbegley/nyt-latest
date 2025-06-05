@@ -1,40 +1,40 @@
-**Rights groups, but few world leaders, race to condemn the travel ban.**\
-`On Thursday m`\
-https://nytimes.com/live/2025/06/05/us/trump-news-travel-ban/rights-groups-but-few-world-leaders-race-to-condemn-the-travel-ban
+**Why Justin Carbonneau is one of the 2025 NHL Draft's top power forwards**\
+`Carbonneau is NHL Central Scouting's No. 16-ranked North American skater and a projected top-20 pick in the 2025 draft.`\
+https://nytimes.com/athletic/6393446/2025/06/05/nhl-draft-2025-justin-carbonneau/
 
-**A healthy Draisaitl gives Oilers the edge they lacked in last year's Stanley Cup Final**\
-`While battling injuries in the 2024 Stanley Cup Final, Draisaitl didn't look like himself. In Game 1 Wednesday, he was "a game-breaker."`\
-https://nytimes.com/athletic/6404670/2025/06/05/leon-draisaitl-stanley-cup-final-oilers-nhl-playoffs/
+**Could Ceddanne Rafaela be the next Pete Crow-Armstrong? The Red Sox hope so**\
+`The Cubs' center fielder is playing at an MVP level. Rafaela is an equally elite defender, and the Red Sox believe his offense is coming.`\
+https://nytimes.com/athletic/6402751/2025/06/05/could-ceddanne-rafaela-be-the-next-pete-crow-armstrong-the-red-sox-hope-so/
 
-**Listen: Sandro Tonali and the tactical tweak that changed the face of Newcastle’s season**\
-`On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how dropping Tonali deeper paid dividends for Eddie Howe`\
-https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-newcastle-eddie-howe-premier-league/
+**Alejandro Kirk blasts walk-off hit against former Blue Jays closer Jordan Romano**\
+`Kirk was familiar with his former batterymate's approach and fouled off three straight pitches before his walk-off hit to right.`\
+https://nytimes.com/athletic/6404477/2025/06/05/alejandro-kirk-walk-off-hit/
 
-**Chicago may be 'the place quarterbacks go to die,' but Cubs pitcher Cade Horton is thriving**\
-`The Cubs are 5-0 in Horton’s five outings since he was promoted from Triple A to replace injured All-Star pitcher Shota Imanaga.`\
-https://nytimes.com/athletic/6404225/2025/06/05/cubs-cade-horton/
+**What we know about Russian Federation hockey’s exclusion from 2026 Winter Olympics**\
+`The men’s hockey tournament will see active NHL players competing in it for the first time since 2014, but almost certainly no Russians. `\
+https://nytimes.com/athletic/6399982/2025/06/05/2026-olympics-hockey-russia-ioc-iihf-nhl/
 
-**The Athletic FC: Thousands of Club World Cup tickets unsold, Ronaldo's Portugal winner**\
-`Today in TAFC: Thousands of Club World Cup tickets unsold, Ronaldo scores winner for Portugal in Nations League, Brailsford out at Man Utd.`\
-https://nytimes.com/athletic/6404800/2025/06/05/club-world-cup-tickets-unsold-ronaldo-winner/
+**Cayden Lindstrom looks forward to 'long career,' with his next stop at Michigan State**\
+`Lindstrom, Columbus' No. 4 overall draft pick last June, is feeling good after a lengthy back issue.`\
+https://nytimes.com/athletic/6403755/2025/06/05/cayden-lindstrom-michigan-state/
 
-**The Pulse: Of course Game 1 went to OT**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6403221/2025/06/05/oilers-ot-panthers-the-pulse/
+**As NHL free agency nears, how will players age on their new contracts?**\
+`One of the most important aspects of signing a player to a new contract is estimating how he will age. It’s also the hardest thing to do.`\
+https://nytimes.com/athletic/6398802/2025/06/05/nhl-free-agency-mitch-marner-age/
 
-**Blown save: Panthers' 3-year run as NHL's best closers comes to an end in Game 1**\
-`Leon Draisaitl's overtime winner not only capped off a comeback, it put an end to a daunting Panthers streak.`\
-https://nytimes.com/athletic/6404620/2025/06/05/panthers-nhl-playoffs-closing-streak-oilers-draisaitl/
+**Rosenthal: Blame the bullpen for the A’s struggles, but also blame their situation**\
+`The A's are 1-20 since May 14 and 2-13 in their last 15 games at Sutter Health Park. `\
+https://nytimes.com/athletic/6404344/2025/06/05/athletics-sutter-health-park-bullpen-woes/
 
-**Sam Presti built a great Thunder team once. Then he did it again — his way**\
-`Presti’s platonic basketball ideal was nothing like the early versions of his OKC teams. That's not the case anymore.`\
-https://nytimes.com/athletic/6404136/2025/06/05/sam-presti-thunder-nba-finals-paul-george/
+**Wirtz showed exactly why Liverpool want him - and left his mark on Fernandes**\
+`Liverpool are preparing to break the bank to sign the playmaker, and in Germany's defeat to Portugal he scored and proved he's no soft touch`\
+https://nytimes.com/athletic/6404089/2025/06/05/florian-wirtz-liverpool-transfer-germany/
 
-**Climber Falls to His Death at Denali National Park**\
-`Alex Chiu, an engineer and alpine climber, was on one of the most frequently used routes at Mount McKinley, the tallest peak in North America.`\
-https://nytimes.com/2025/06/05/us/climber-dead-mckinley-denali.html
+**Law: Biggest risers and fallers from the newest MLB top-50 prospect ranking**\
+`Notes on six players whose outlooks have changed in two months, including Red Sox shortstop Franklin Arias and Mets righty Brandon Sproat.`\
+https://nytimes.com/athletic/6400486/2025/06/05/keith-law-prospect-rankings-risers-fallers-2025/
 
-**Caleb Williams' best day yet, Jaquan Brisker's recovery: Bears minicamp takeaways**\
-`Day 2 of minicamp included Brisker talking about his scary concussion and Gervon Dexter and Tyrique Stevenson adjusting to new coaches.`\
-https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
+**LeBrun: If Game 1 was any indication, we're in for another long, incredible Stanley Cup Final**\
+`Two unbelievably well-matched teams, both better than they were in last year's series, make for an exciting watch. Strap in.`\
+https://nytimes.com/athletic/6404665/2025/06/05/stanley-cup-final-game-1-nhl-playoffs-oilers-panthers/
 
