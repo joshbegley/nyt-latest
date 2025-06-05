@@ -1,3 +1,11 @@
+**U.S. Trade Deficit Plummets in April**\
+`U.S. trade fell sharply as President Trump’s global tariffs began to weigh on imports.`\
+https://nytimes.com/2025/06/05/business/economy/us-trade-data-deficit.html
+
+**Finland accidentally select 51-year-old for Nations League duty**\
+`Naane Ruuskanen could not play in the Nations League tie as manager Outi Saarinen put Stina Ruuskanen's name down instead.`\
+https://nytimes.com/athletic/6405116/2025/06/05/finland-women-squad-ruuskanen/
+
 **Notre Dame's biggest priorities for June recruiting and beyond**\
 `These are Notre Dame's biggest summer recruiting needs as it tries to build off a run to the national title game.`\
 https://nytimes.com/athletic/6404982/2025/06/05/notre-dame-recruiting-football-visits-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6404192/2025/06/05/pascal-siakam-pacers-nba-finals-
 **Ranking Canucks' top 13 trade assets: What trade chips could be in play?**\
 `With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
 https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
-
-**How Hard Will Musk Fight Republicans’ Budget Bill?**\
-`The tech mogul is urging followers to pressure lawmakers to “KILL THE BILL,” potentially undermining a key plank of President Trump’s domestic agenda.`\
-https://nytimes.com/2025/06/05/business/dealbook/musk-republicans-budget-trump.html
-
-**Why the Seahawks don’t have a QB competition, as Jalen Milroe learns behind Sam Darnold**\
-`No, Milroe is not the Russell Wilson to Darnold's Matt Flynn, even if there are plenty of similarities to the 2012 situation.`\
-https://nytimes.com/athletic/6404034/2025/06/05/sam-darnold-jalen-milroe-seahawks-qb/
 

@@ -1,3 +1,11 @@
+**U.S. Trade Deficit Plummets in April**\
+`U.S. trade fell sharply as President Trump’s global tariffs began to weigh on imports.`\
+https://nytimes.com/2025/06/05/business/economy/us-trade-data-deficit.html
+
+**Finland accidentally select 51-year-old for Nations League duty**\
+`Naane Ruuskanen could not play in the Nations League tie as manager Outi Saarinen put Stina Ruuskanen's name down instead.`\
+https://nytimes.com/athletic/6405116/2025/06/05/finland-women-squad-ruuskanen/
+
 **Notre Dame's biggest priorities for June recruiting and beyond**\
 `These are Notre Dame's biggest summer recruiting needs as it tries to build off a run to the national title game.`\
 https://nytimes.com/athletic/6404982/2025/06/05/notre-dame-recruiting-football-visits-2026/
