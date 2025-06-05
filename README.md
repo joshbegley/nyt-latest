@@ -1,3 +1,7 @@
+**Stephen Colbert Wonders if Elon Musk’s Ketamine Has Worn Off**\
+`It’s the only explanation the “Late Show” host can think of for the tech mogul’s apparent disenchantment with the Trump administration.`\
+https://nytimes.com/2025/06/05/arts/television/stephen-colbert-elon-musk-ketamine.html
+
 **Rangers appoint Martin as new head coach**\
 `Martin, 39, has been out of work since being sacked by Southampton in December.`\
 https://nytimes.com/athletic/6399303/2025/06/05/rangers-manager-next-russell-martin/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/alaska-fire-ship-electric-vehicles.html
 **Konate interview: 'Slot's Liverpool philosophy is different to Klopp's, but he didn't ask me to change'**\
 `The defender says a Premier League title is just the start for Liverpool and wants to give Deschamps a send-off for France at the World Cup`\
 https://nytimes.com/athletic/6402637/2025/06/05/ibrahima-konate-interview-liverpool-france/
-
-**Europe Wants to Banish Russian Gas. The U.S. May Have Other Plans.**\
-`A large Republican donor wants to buy a Russian pipeline to Germany. The White House has entertained the idea of working with the Kremlin to supply Russian gas to Europe.`\
-https://nytimes.com/2025/06/05/world/europe/us-russia-nord-stream-gas-pipeline.html
 
