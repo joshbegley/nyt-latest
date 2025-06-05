@@ -1,3 +1,7 @@
+**Hilary Knight signs with PWHL Seattle after going unprotected in expansion**\
+`For Seattle, making one of the greatest women’s hockey players of all time the team’s first signing is an easy win.`\
+https://nytimes.com/athletic/6404220/2025/06/04/hilary-knight-pwhl-seattle-expansion/
+
 **Whether or Not It’s a Sandwich**\
 `Timothy Gaetz makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/06/04/crosswords/daily-puzzle-2025-06-05.html
