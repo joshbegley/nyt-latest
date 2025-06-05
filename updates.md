@@ -1,3 +1,7 @@
+**Konate interview: 'Slot's Liverpool philosophy is different to Klopp's, but he didn't ask me to change'**\
+`The defender says a Premier League title is just the start for Liverpool and wants to give Deschamps a send-off for France at the World Cup`\
+https://nytimes.com/athletic/6402637/2025/06/05/ibrahima-konate-interview-liverpool-france/
+
 **Europe Wants to Banish Russian Gas. The U.S. May Have Other Plans.**\
 `A large Republican donor wants to buy a Russian pipeline to Germany. The White House has entertained the idea of working with the Kremlin to supply Russian gas to Europe.`\
 https://nytimes.com/2025/06/05/world/europe/us-russia-nord-stream-gas-pipeline.html
