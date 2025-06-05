@@ -1,3 +1,7 @@
+**Uzbekistan qualify for World Cup for first time**\
+`The central Asian nation become the third former Soviet republic to ever qualify for the tournament.`\
+https://nytimes.com/athletic/6229851/2025/06/05/uzbekistan-world-cup-qualification-2026/
+
 **Goal to Spend More on Militaries Splits NATO Allies**\
 `The U.S. defense secretary expressed optimism that allied countries would increase their defense budgets, a demand of President Trump’s.`\
 https://nytimes.com/2025/06/05/world/europe/nato-defense-ministers-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406069/2025/06/05/nemanja-matic-ban-lyon/
 **Trump Compares Russia and Ukraine to Children Fighting**\
 `During a visit by the German leader, President Trump essentially threw up his hands, saying that there was nothing the United States could do right now to end the war.`\
 https://nytimes.com/2025/06/05/us/politics/trump-russia-ukraine-children-fighting.html
-
-**First New York City Mayoral Primary Debate of 2025 Gets Heated**\
-`Former Gov. Andrew M. Cuomo was the focal point of attack for the other eight Democratic candidates onstage Wednesday night.`\
-https://nytimes.com/video/us/elections/100000010210201/first-new-york-city-mayoral-primary-debate-of-2025-gets-heated.html
 
