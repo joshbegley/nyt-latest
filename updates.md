@@ -1,3 +1,7 @@
+**Trump’s New Travel Ban Is Built on Lessons from First-Term Fights**\
+`The addition of visa overstays as a rationale could provide an opening for new legal challenges, migrant advocates say.`\
+https://nytimes.com/2025/06/05/us/politics/trump-new-travel-ban-visas.html
+
 **Shari Redstone Says She Has Thyroid Cancer**\
 `Ms. Redstone was diagnosed this spring while trying to close the sale of her family’s media empire to Skydance, a Hollywood studio backed by Larry Ellison.`\
 https://nytimes.com/2025/06/05/business/media/shari-redstone-paramount-trump-cbs.html
