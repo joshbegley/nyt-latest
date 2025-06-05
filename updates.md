@@ -1,3 +1,5 @@
+
+
 **Trump Orders Entry Ban for People From 12 Countries**\
 `The president’s proclamation barred travel from a variety of countries, including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
 https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
