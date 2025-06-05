@@ -1,3 +1,8 @@
+**Man City transfer odds: Reijnders to lead title surge? Or is Sávio the saviour?**\
+`Brett Koremenos explores Manchester City’s summer transfer window dealings through a betting lens.
+`\
+https://nytimes.com/athletic/6405737/2025/06/05/manchester-city-reijnders-odds/
+
 **Eagles fan Mike Trout wrote Super Bowl LIX score on his bat, now it's in a baseball card**\
 `Trout's latest bat knob card is unique, but Evan Longoria's is by far the most valuable. `\
 https://nytimes.com/athletic/6405609/2025/06/05/mike-trout-eagles-super-bowl-card/
