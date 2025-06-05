@@ -1,3 +1,7 @@
+**Trump travel ban sparks World Cup questions — and more soccer issues**\
+`The Trump crackdown raises questions for soccer — and for the big tournaments on its horizon. We have some answers.`\
+https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
+
 **The New York Times in Print for Thursday, June 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/05/todays-new-york-times

@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/05/opinion/tariffs-trade-us-security.html
 https://nytimes.com/2025/06/05/briefing/trump-travel-ukraine-gaza.html
 
 **Trump travel ban sparks World Cup questions — and more soccer issues**\
-`Trump crackdown raises questions for soccer — and the big tournaments on its horizon.`\
+`The Trump crackdown raises questions for soccer — and for the big tournaments on its horizon. We have some answers.`\
 https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
 
 **Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
