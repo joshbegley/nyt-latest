@@ -1,3 +1,15 @@
+**Notre Dame's biggest priorities for June recruiting and beyond**\
+`These are Notre Dame's biggest summer recruiting needs as it tries to build off a run to the national title game.`\
+https://nytimes.com/athletic/6404982/2025/06/05/notre-dame-recruiting-football-visits-2026/
+
+**European Central Bank Cuts Rates as Trade War Weighs on the Economy**\
+`It was the eighth rate cut in the past year as officials try to steer Europe’s economy through “exceptional” uncertainty.`\
+https://nytimes.com/2025/06/05/business/european-central-bank-interest-rates-economy.html
+
+**Several Giants seize late-night opportunities in stirring comeback win over Padres**\
+`On the day the Giants cut ties with LaMonte Wade, there was perhaps no more fitting tribute to him than grinding out a win.`\
+https://nytimes.com/athletic/6404920/2025/06/05/giants-comeback-win-padres/
+
 **Ranking Canucks' top 13 trade assets: What trade chips could be in play?**\
 `With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
 https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
