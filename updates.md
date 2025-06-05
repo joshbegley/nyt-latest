@@ -1,3 +1,7 @@
+**Trump Orders Entry Ban for People From 12 Countries**\
+`The president’s proclamation barred travel from a variety of countries, including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
+https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
+
 **Mac Jones and Brock Purdy are old pals — and a big reason Jones is now a 49er**\
 `Nick Bosa talked up new edge rusher Bryce Huff on Wednesday, saying Huff was someone he watched when Huff was with the New York Jets.`\
 https://nytimes.com/athletic/6404047/2025/06/04/49ers-mac-jones-brock-purdy/
