@@ -1,3 +1,7 @@
+**Europe Wants to Banish Russian Gas. The U.S. May Have Other Plans.**\
+`A large Republican donor wants to buy a Russian pipeline to Germany. The White House has entertained the idea of working with the Kremlin to supply Russian gas to Europe.`\
+https://nytimes.com/2025/06/05/world/europe/us-russia-nord-stream-gas-pipeline.html
+
 **Word of the Day: caricature**\
 `This word has appeared in 198 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/05/learning/word-of-the-day-caricature.html
