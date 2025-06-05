@@ -1,6 +1,14 @@
-**Musk and Trump’s relationship recently started to unravel.**\
+**Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
+`A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
+https://nytimes.com/2025/06/05/us/politics/rights-groups-sue-to-overturn-agreement-that-sends-us-immigrants-to-salvadoran-jail.html
+
+**What’s So Problematic About ‘Problematic’?**\
+`The word’s strange history has a lot to tell us about how language evolves.`\
+https://nytimes.com/2025/06/05/opinion/culture/problematic-language-history.html
+
+**Musk’s and Trump’s relationship recently started to unravel.**\
 `By Ryan Mac and Kate Conger`\
-https://nytimes.com/live/2025/06/05/us/trump-elon-musk/trump-elon-musk-relationship-fallout
+https://nytimes.com/2025/06/05/us/trump-elon-musk-relationship-fallout.html
 
 **Used in Covid Shots, mRNA May Help Rid the Body of H.I.V.**\
 `A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/climate/trump-fema-changes.html
 **Trump on Musk: ‘I’m Very Disappointed in Elon’**\
 `President Trump spoke out against his former ally on Thursday after Elon Musk expressed his dismay over the president’s domestic policy bill earlier this week.`\
 https://nytimes.com/video/us/politics/100000010210587/trump-musk-disappointed-feud.html
-
-**‘Love Island’ Contestant Leaves Show After Racist Comments Surface**\
-`Yulissa Escobar, 27, was abruptly dropped during Episode 2 after clips of her using a slur in a podcast were resurfaced. The season’s debut week also saw tech issues.`\
-https://nytimes.com/2025/06/05/arts/television/love-island-contestant-racist-comments.html
-
-**Rebuffing Trump, New York Refuses to Rescind Native American Mascot Ban**\
-`The federal Education Department had ordered the state to roll back its prohibition on Native American mascots, calling it discriminatory.`\
-https://nytimes.com/2025/06/05/nyregion/new-york-schools-native-american-mascots-trump.html
 

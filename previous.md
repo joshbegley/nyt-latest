@@ -1,4 +1,8 @@
-**MRNA, Used in Covid Shots, May Help Rid the Body of H.I.V.**\
+**Musk and Trump’s relationship recently started to unravel.**\
+`By Ryan Mac and Kate Conger`\
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk/trump-elon-musk-relationship-fallout
+
+**Used in Covid Shots, mRNA May Help Rid the Body of H.I.V.**\
 `A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
 https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/arts/television/love-island-contestant-racist-com
 **Rebuffing Trump, New York Refuses to Rescind Native American Mascot Ban**\
 `The federal Education Department had ordered the state to roll back its prohibition on Native American mascots, calling it discriminatory.`\
 https://nytimes.com/2025/06/05/nyregion/new-york-schools-native-american-mascots-trump.html
-
-**After Trump’s Tariffs Crash Exports, Canada Posts a Record Trade Deficit**\
-`Sales of vehicles made in Canada plunged by nearly 23 percent in April after President Trump imposed a 25 percent auto tariff.`\
-https://nytimes.com/2025/06/05/us/politics/canada-trump-tariffs-trade-deficit.html
 

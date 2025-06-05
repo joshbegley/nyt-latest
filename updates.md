@@ -1,3 +1,11 @@
+**Musk and Trump’s relationship recently started to unravel.**\
+`By Ryan Mac and Kate Conger`\
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk/trump-elon-musk-relationship-fallout
+
+**Used in Covid Shots, mRNA May Help Rid the Body of H.I.V.**\
+`A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
+https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
+
 **MRNA, Used in Covid Shots, May Help Rid the Body of H.I.V.**\
 `A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
 https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
