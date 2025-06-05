@@ -1,3 +1,11 @@
+**Fearful House Republicans Scramble to Mollify Musk**\
+`Republicans in the chamber are bending over backward to appease the world’s richest man, who is furious at them for voting for a bill to deliver President Trump’s domestic policy agenda.`\
+https://nytimes.com/2025/06/04/us/politics/musk-house-republicans-trump.html
+
+**What we learned in annual 'state of NHL' availability: CBA won't tackle state taxes, plus LTIR, expansion more**\
+`Ahead of Game 1 of the Stanley Cup Final, the NHL and NHLPA leadership met with the press to address a number of pressing topics.`\
+https://nytimes.com/athletic/6404012/2025/06/04/nhl-nhlpa-wont-address-income-tax-disparity-in-cba-plus-ltir-expansion-more-bettman-daly-talk/
+
 **At ‘CPAC of the Center,’ Democratic Moderates Beat Up on the Left**\
 `At a wonky gathering in Washington, centrist Democrats argued that they were the majority-makers the party needed to take control of Congress in 2026 and beyond.`\
 https://nytimes.com/2025/06/04/us/politics/democrats-centrists-moderates-welcome-pac.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/04/arts/nintendo-switch-commercials-ads.
 **Judge Orders Trump Administration to Take Steps to Give Due Process to Deported Migrants**\
 `The judge also said the men, expelled under the Alien Enemies Act, were likely to prevail in their claims that they had been treated unfairly, deported with no chance to contest their removals.`\
 https://nytimes.com/2025/06/04/us/politics/trump-deportations-venezuela-alien-enemies-act.html
-
-**Ceddanne Rafaela's walk-off homer powers Red Sox to back-and-forth win over Angels**\
-`The Red Sox showed a resilience they’ve too often lacked this season in making four separate comebacks.`\
-https://nytimes.com/athletic/6403916/2025/06/04/red-sox-ceddanne-rafaela-walk-off-homer-angels/
-
-**Forward Sarah Nurse set to sign with PWHL Vancouver: source**\
-`Nurse spent her first two PWHL seasons with the Toronto Sceptres, scoring 17 goals and 37 points in 45 games.`\
-https://nytimes.com/athletic/6403901/2025/06/04/sarah-nurse-pwhl-vancouver-expansion-contract/
 

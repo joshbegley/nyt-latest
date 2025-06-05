@@ -4,7 +4,7 @@ https://nytimes.com/2025/06/04/us/politics/musk-house-republicans-trump.html
 
 **What we learned in annual 'state of NHL' availability: CBA won't tackle state taxes, plus LTIR, expansion more**\
 `Ahead of Game 1 of the Stanley Cup Final, the NHL and NHLPA leadership met with the press to address a number of pressing topics.`\
-https://nytimes.com/athletic/6404012/2025/06/04/nhl-nhlpa-wont-address-income-tax-disparity-in-cba-plus-ltir-expansion-more-bettman-daly-talk/
+https://nytimes.com/athletic/6404012/2025/06/04/nhl-commissioner-gary-bettman-taxes-expansion/
 
 **At ‘CPAC of the Center,’ Democratic Moderates Beat Up on the Left**\
 `At a wonky gathering in Washington, centrist Democrats argued that they were the majority-makers the party needed to take control of Congress in 2026 and beyond.`\
