@@ -1,3 +1,7 @@
+**Carson Hocevar is NASCAR's disruptive new driver — and one of its biggest fans**\
+`Fan-friendly, outspoken, and often controversial on the track, Carson Hocevar has emerged as a must-watch driver in NASCAR's Cup Series.`\
+https://nytimes.com/athletic/6403370/2025/06/05/carson-hocevar-nascar-driver-fan-cup-series/
+
 **The Montreal brotherhood that brought Lu Dort and Bennedict Mathurin to the NBA Finals**\
 `Montreal has not traditionally been known as an NBA hotbed. But the NBA Finals feature two Montreal natives who see themselves as brothers.`\
 https://nytimes.com/athletic/6398250/2025/06/05/nba-finals-lu-dort-bennedict-mathurin-montreal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6400039/2025/06/05/blues-offseason-needs-nhl-confer
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
 https://nytimes.com/2025/06/05/realestate/housing-market-nyc.html
-
-**Procter & Gamble to Cut 7,000 Jobs Amid Tariff Uncertainty**\
-`The reductions will come over two years as the consumer products giant seeks to reorganize.`\
-https://nytimes.com/2025/06/05/business/procter-gamble-cut-jobs.html
 

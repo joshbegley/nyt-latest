@@ -1,3 +1,7 @@
+**Carson Hocevar is NASCAR's disruptive new driver — and one of its biggest fans**\
+`Fan-friendly, outspoken, and often controversial on the track, Carson Hocevar has emerged as a must-watch driver in NASCAR's Cup Series.`\
+https://nytimes.com/athletic/6403370/2025/06/05/carson-hocevar-nascar-driver-fan-cup-series/
+
 **Can the Maple Leafs upgrade at centre without trading Easton Cowan?**\
 `Cowan is the Leafs' one shiny asset left to dangle to rival teams. To trade him or not is a thorny proposition for the front office.`\
 https://nytimes.com/athletic/6400758/2025/06/05/maple-leafs-easton-cowan-trade/
