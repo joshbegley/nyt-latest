@@ -1,3 +1,7 @@
+**Cargo Ship Carrying Electric Vehicles Burns Off Alaska**\
+`The U.S. Coast Guard said it would allow the fire to burn because the cars’ lithium-ion batteries could explode. The ship’s crew escaped on a lifeboat.`\
+https://nytimes.com/2025/06/05/us/alaska-fire-ship-electric-vehicles.html
+
 **Konate interview: 'Slot's Liverpool philosophy is different to Klopp's, but he didn't ask me to change'**\
 `The defender says a Premier League title is just the start for Liverpool and wants to give Deschamps a send-off for France at the World Cup`\
 https://nytimes.com/athletic/6402637/2025/06/05/ibrahima-konate-interview-liverpool-france/

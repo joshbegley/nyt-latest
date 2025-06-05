@@ -1,3 +1,7 @@
+**Cargo Ship Carrying Electric Vehicles Burns Off Alaska**\
+`The U.S. Coast Guard said it would allow the fire to burn because the cars’ lithium-ion batteries could explode. The ship’s crew escaped on a lifeboat.`\
+https://nytimes.com/2025/06/05/us/alaska-fire-ship-electric-vehicles.html
+
 **Konate interview: 'Slot's Liverpool philosophy is different to Klopp's, but he didn't ask me to change'**\
 `The defender says a Premier League title is just the start for Liverpool and wants to give Deschamps a send-off for France at the World Cup`\
 https://nytimes.com/athletic/6402637/2025/06/05/ibrahima-konate-interview-liverpool-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
 **Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
 `The Leicester winger talks working with Ruud van Nistelrooy and an eerie quiet around Seagrave in their post-Jamie Vardy world`\
 https://nytimes.com/athletic/6402085/2025/06/05/kasey-mcateer-leicester-city-fans-van-nistelrooy/
-
-**Alonso's Madrid staff: Two ex-Barca coaches, a former Leeds assistant and an academy mainstay**\
-`The Alonso era has begun at Madrid and with it comes a significant revamp of the club's coaching staff`\
-https://nytimes.com/athletic/6402117/2025/06/05/xabi-alonso-real-madrid-coaching-staff/
 
