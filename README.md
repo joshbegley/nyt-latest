@@ -1,3 +1,19 @@
+**The Athletic FC: Thousands of Club World Cup tickets unsold, Ronaldo's Portugal winner**\
+`Today in TAFC: Thousands of Club World Cup tickets unsold, Ronaldo scores winner for Portugal in Nations League, Brailsford out at Man Utd.`\
+https://nytimes.com/athletic/6404800/2025/06/05/club-world-cup-tickets-unsold-ronaldo-winner/
+
+**The Pulse: Of course Game 1 went to OT**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6403221/2025/06/05/oilers-ot-panthers-the-pulse/
+
+**Blown save: Panthers' 3-year run as NHL's best closers comes to an end in Game 1**\
+`Leon Draisaitl's overtime winner not only capped off a comeback, it put an end to a daunting Panthers streak.`\
+https://nytimes.com/athletic/6404620/2025/06/05/panthers-nhl-playoffs-closing-streak-oilers-draisaitl/
+
+**Sam Presti built a great Thunder team once. Then he did it again — his way**\
+`Presti’s platonic basketball ideal was nothing like the early versions of his OKC teams. That's not the case anymore.`\
+https://nytimes.com/athletic/6404136/2025/06/05/sam-presti-thunder-nba-finals-paul-george/
+
 **Climber Falls to His Death at Denali National Park**\
 `Alex Chiu, an engineer and alpine climber, was on one of the most frequently used routes at Mount McKinley, the tallest peak in North America.`\
 https://nytimes.com/2025/06/05/us/climber-dead-mckinley-denali.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6403091/2025/06/05/kwesi-adofo-mensah-extension-vik
 **Guardians' pitching factory may be close to reassembling another dominant starting rotation**\
 `Cleveland's starters have flashed hints of a forthcoming breakout, and with the possible return of Shane Bieber, they could be formidable.`\
 https://nytimes.com/athletic/6404194/2025/06/05/guardians-starting-rotation/
-
-**At 35, Jose Altuve embraces new challenge in left field for Astros**\
-`Altuve is — and will remain — the Astros’ primary left fielder, even with a sudden surplus of more natural, athletic outfielders around him.`\
-https://nytimes.com/athletic/6404299/2025/06/05/jose-altuve-astros-left-fielder-jacob-melton/
-
-**Dreaming in darkness: Luke Clanton’s journey to becoming the PGA Tour’s next big star**\
-`“My life has totally changed in five months. My personal life. My golf life. Everything."`\
-https://nytimes.com/athletic/6403439/2025/06/05/luke-clanton-pga-tour-star-golf-canadian-open/
-
-**Win or lose, NiJaree Canady is the face of college softball — and her star is only rising**\
-`Can Canady be the force who propels softball into the public consciousness? "What we’re witnessing is a renaissance.”`\
-https://nytimes.com/athletic/6404166/2025/06/05/nijaree-canady-softball-wcws-texas-tech/
-
-**This Week in Sports Trivia: June 5, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6404019/2025/06/05/this-week-in-sports-trivia-june-5-2025/
 

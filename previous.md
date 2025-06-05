@@ -1,3 +1,7 @@
+**Climber Falls to His Death at Denali National Park**\
+`Alex Chiu, an engineer and alpine climber, was on one of the most frequently used routes at Mount McKinley, the tallest peak in North America.`\
+https://nytimes.com/2025/06/05/us/climber-dead-mckinley-denali.html
+
 **Caleb Williams' best day yet, Jaquan Brisker's recovery: Bears minicamp takeaways**\
 `Day 2 of minicamp included Brisker talking about his scary concussion and Gervon Dexter and Tyrique Stevenson adjusting to new coaches.`\
 https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404166/2025/06/05/nijaree-canady-softball-wcws-tex
 **This Week in Sports Trivia: June 5, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6404019/2025/06/05/this-week-in-sports-trivia-june-5-2025/
-
-**Between Pacers' NBA Finals run and Caitlin Clark mania, Indiana is having a basketball moment**\
-`"This is the first time I have real, real confidence we can win the whole thing," well-known super-fan Matt Asen said.`\
-https://nytimes.com/athletic/6403342/2025/06/05/indiana-basketball-pacers-nba-finals-caitlin-clark/
 

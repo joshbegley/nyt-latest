@@ -1,3 +1,7 @@
+**Climber Falls to His Death at Denali National Park**\
+`Alex Chiu, an engineer and alpine climber, was on one of the most frequently used routes at Mount McKinley, the tallest peak in North America.`\
+https://nytimes.com/2025/06/05/us/climber-dead-mckinley-denali.html
+
 **Caleb Williams' best day yet, Jaquan Brisker's recovery: Bears minicamp takeaways**\
 `Day 2 of minicamp included Brisker talking about his scary concussion and Gervon Dexter and Tyrique Stevenson adjusting to new coaches.`\
 https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
