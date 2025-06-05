@@ -1,3 +1,23 @@
+**New Zealand Parliament Suspends Lawmakers for Haka Dance Protest**\
+`Co-leaders of the Te Pāti Māori party, Rawiri Waititi and Debbie Ngarewa-Packer, were suspended on Thursday without pay for 21 days, and another member of the party, Hana-Rawhiti Maipi-Clarke, was suspended for seven days.`\
+https://nytimes.com/video/world/100000010209589/maori-lawmakers-suspended-haka-.html
+
+**Marco Sturm's to-do list as new Bruins coach: Zone defense? Assistants? Captain?**\
+`However distant the 2025-26 season opener seems to be at the moment, Sturm will have his calendar full between now and then.`\
+https://nytimes.com/athletic/6398369/2025/06/05/marco-sturm-bruins-priorities/
+
+**USMNT Gold Cup squad: Dest out; Injuries shape Pochettino's final 26-man roster**\
+`Another key omission caps the roster-building exercise for the USMNT, which is seeking to rebound from some disappointing results.`\
+https://nytimes.com/athletic/6405494/2025/06/05/usmnt-gold-cup-squad-dest-injuries-pochettino/
+
+**Lorna Simpson: Painting as a Weapon of Freedom**\
+`In a small but haunting survey at the Met, a celebrated conceptual artist shifts gears, with meteoric results.`\
+https://nytimes.com/2025/06/05/arts/design/lorna-simpson-metropolitan-museum.html
+
+**For a Better Stir-Fry, Velvet Your Chicken**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2025/06/05/dining/easy-stir-fry-recipe-with-butter-soy-chicken-and-vegetables.html
+
 **Watch: The Thunder are favorites, but the Pacers have won as underdogs. The NBA Finals awaits**\
 `"The Athletic NBA Daily" previewed Game 1 of the NBA Finals between the Oklahoma City Thunder and the Indiana Pacers.`\
 https://nytimes.com/athletic/6404904/2025/06/05/nba-finals-thunder-pacers-favorites-underdogs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6405474/2025/06/05/arsenal-matteo-tognozzi-recruitm
 **I Was Sidelined by Illness. This Soup Got Me Back in the Kitchen.**\
 `Brothy and bright, this Ghanaian light soup is the perfect summer balm, Yewande Komolafe writes.`\
 https://nytimes.com/2025/06/05/dining/ghanaian-soup.html
-
-**Vasiliy Lomachenko announces retirement from boxing**\
-`The 37-year-old Ukrainian walks away as a three-weight world champion and two-time Olympic gold medallist.`\
-https://nytimes.com/athletic/6405430/2025/06/05/vasiliy-lomachenko-boxing-retires/
-
-**Supreme Court Backs Catholic Charity Denied Exemption in Tax Case**\
-`The Wisconsin Supreme Court had ruled that the group’s activities in serving the state’s poor were not religious enough to qualify for the exemption.`\
-https://nytimes.com/2025/06/05/us/politics/supreme-court-catholic-charity-tax-exemption.html
-
-**Top Democrat Warns Hegseth He Could Face Fines for Accepting Qatari Plane**\
-`Representative Jamie Raskin of Maryland urged the defense secretary to come to Congress for approval of the jet President Trump wants to use as Air Force One.`\
-https://nytimes.com/2025/06/05/us/politics/raskin-hegseth-qatari-plane.html
-
-**How to Watch a Japanese Company Try to Land on the Moon’s Surface**\
-`Ispace crashed on the moon in 2023. Its second spacecraft, Resilience, aims in the hours ahead to succeed where its predecessor failed.`\
-https://nytimes.com/2025/06/05/science/moon-landing-ispace-japan.html
-
-**Syrians Rejoice at Being Exempted From Trump Travel Ban**\
-`Damascus residents hope the decision is another sign that the world is normalizing relations with Syria after the overthrow of Bashar al-Assad.`\
-https://nytimes.com/2025/06/05/world/middleeast/syria-trump-travel-ban-exemption.html
 
