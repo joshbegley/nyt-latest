@@ -1,3 +1,11 @@
+**'I would love to be in a World Cup', says Guardiola**\
+`Guardiola played 47 matches for Spain during his playing career but has never been involved in international management.`\
+https://nytimes.com/athletic/6404921/2025/06/05/pep-guardiola-manchester-city-world-cup/
+
+**Mick Abel gives the Phillies some stability amid the chaos in Toronto**\
+`By the end of it, there was chaos everywhere. But Abel, making his second big-league start, represented something stable for the Phillies.`\
+https://nytimes.com/athletic/6404405/2025/06/05/mick-abel-phillies-blue-jays/
+
 **Why Justin Carbonneau is one of the 2025 NHL Draft's top power forwards**\
 `Carbonneau is NHL Central Scouting's No. 16-ranked North American skater and a projected top-20 pick in the 2025 draft.`\
 https://nytimes.com/athletic/6393446/2025/06/05/nhl-draft-2025-justin-carbonneau/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6404344/2025/06/05/athletics-sutter-health-park-bul
 **Wirtz showed exactly why Liverpool want him - and left his mark on Fernandes**\
 `Liverpool are preparing to break the bank to sign the playmaker, and in Germany's defeat to Portugal he scored and proved he's no soft touch`\
 https://nytimes.com/athletic/6404089/2025/06/05/florian-wirtz-liverpool-transfer-germany/
-
-**Law: Biggest risers and fallers from the newest MLB top-50 prospect ranking**\
-`Notes on six players whose outlooks have changed in two months, including Red Sox shortstop Franklin Arias and Mets righty Brandon Sproat.`\
-https://nytimes.com/athletic/6400486/2025/06/05/keith-law-prospect-rankings-risers-fallers-2025/
-
-**LeBrun: If Game 1 was any indication, we're in for another long, incredible Stanley Cup Final**\
-`Two unbelievably well-matched teams, both better than they were in last year's series, make for an exciting watch. Strap in.`\
-https://nytimes.com/athletic/6404665/2025/06/05/stanley-cup-final-game-1-nhl-playoffs-oilers-panthers/
 

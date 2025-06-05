@@ -1,3 +1,11 @@
+**'I would love to be in a World Cup', says Guardiola**\
+`Guardiola played 47 matches for Spain during his playing career but has never been involved in international management.`\
+https://nytimes.com/athletic/6404921/2025/06/05/pep-guardiola-manchester-city-world-cup/
+
+**Mick Abel gives the Phillies some stability amid the chaos in Toronto**\
+`By the end of it, there was chaos everywhere. But Abel, making his second big-league start, represented something stable for the Phillies.`\
+https://nytimes.com/athletic/6404405/2025/06/05/mick-abel-phillies-blue-jays/
+
 **Why Justin Carbonneau is one of the 2025 NHL Draft's top power forwards**\
 `Carbonneau is NHL Central Scouting's No. 16-ranked North American skater and a projected top-20 pick in the 2025 draft.`\
 https://nytimes.com/athletic/6393446/2025/06/05/nhl-draft-2025-justin-carbonneau/
