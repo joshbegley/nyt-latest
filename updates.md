@@ -1,3 +1,11 @@
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
+https://nytimes.com/2025/06/05/realestate/housing-market-nyc.html
+
+**Procter & Gamble to Cut 7,000 Jobs Amid Tariff Uncertainty**\
+`The reductions will come over two years as the consumer products giant seeks to reorganize.`\
+https://nytimes.com/2025/06/05/business/procter-gamble-cut-jobs.html
+
 **What to Know About Trump’s New Travel Ban**\
 `The order will bar citizens from 12 countries from traveling to the United States. Visas will be restricted for citizens of seven other countries.`\
 https://nytimes.com/2025/06/05/us/trump-travel-ban-countries-what.html
