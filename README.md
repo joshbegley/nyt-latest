@@ -1,3 +1,15 @@
+**Every Premier League club's PSR situation: Who can spend and who should worry**\
+`Football finance writer Chris Weatherspoon explains where the 2025-26 season's Premier League clubs stand ahead of the June 30 deadline`\
+https://nytimes.com/athletic/6384537/2025/06/05/psr-premier-league-clubs-risk/
+
+**Man Utd, Red Football Limited and the battle to stay PSR compliant**\
+`How are United still spending heavily on players without selling and on the back of their worst season in decades?`\
+https://nytimes.com/athletic/6402367/2025/06/05/manchester-united-psr-red-football-limited/
+
+**Matija Sarkic remembered: The legacy, the grief and the unanswered questions**\
+`The death of the Millwall and Montenegro player still hangs heavy over his family, but they are determined for his name to live on`\
+https://nytimes.com/athletic/6370095/2025/06/05/matija-sarkic-remembered-death-one-year/
+
 **How will Barca's financial situation affect their transfers this summer?**\
 `Nothing is ever simple in the world of Barcelona transfers... and this summer is unlikely to be any different`\
 https://nytimes.com/athletic/6399278/2025/06/05/barcelona-transfer-window-finances/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/05/world/europe/merz-germany-trump-visit.html
 **Corrections: June 5, 2025**\
 `Corrections that appeared in print on Thursday, June 5, 2025.`\
 https://nytimes.com/2025/06/05/pageoneplus/corrections-june-5-2025.html
-
-**Quote of the Day: Republicans Work to Discredit Experts’ Tax-Cut Warning**\
-`Quotation of the Day for Thursday, June 5, 2025.`\
-https://nytimes.com/2025/06/04/pageoneplus/quote-of-the-day-republicans-work-to-discredit-experts-tax-cut-warning.html
-
-**Mick Abel gives Phillies stability on chaotic night in Toronto**\
-`Abel allowed one run on three hits in 5 1/3 innings in his second major-league start.`\
-https://nytimes.com/athletic/6404405/2025/06/04/mick-abel-phillies-blue-jays/
-
-**Leon Draisaitl plays OT hero as Oilers defeat Panthers in Game 1: Takeaways**\
-`Draisaitl scored two goals as the Oilers completed the 41st multi-goal comeback win in Stanley Cup Final history.`\
-https://nytimes.com/athletic/6403805/2025/06/04/oilers-panthers-stanley-cup-final-2025-game-1-takeaways/
 
