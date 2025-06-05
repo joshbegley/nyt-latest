@@ -1,3 +1,11 @@
+**Mac Jones and Brock Purdy are old pals — and a big reason Jones is now a 49er**\
+`Nick Bosa talked up new edge rusher Bryce Huff on Wednesday, saying Huff was someone he watched when Huff was with the New York Jets.`\
+https://nytimes.com/athletic/6404047/2025/06/04/49ers-mac-jones-brock-purdy/
+
+**Marcell Ozuna chooses to play through hip injury, and Braves need him badly**\
+`In hopes of keeping Ozuna in the lineup all season, the Braves told the slugger to be “judicious on the base paths."`\
+https://nytimes.com/athletic/6404028/2025/06/04/marcell-ozuna-hip-injury-status/
+
 **Fearful House Republicans Scramble to Mollify Musk**\
 `Republicans in the chamber are bending over backward to appease the world’s richest man, who is furious at them for voting for a bill to deliver President Trump’s domestic policy agenda.`\
 https://nytimes.com/2025/06/04/us/politics/musk-house-republicans-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/guatemalan-deported-mexico-trump.html
 **U.S. Is Trimming Back Its Collection of Consumer Price Data**\
 `The cutbacks would have “minimal impact,” the government said, but economists warned of reduced confidence in inflation data produced by a struggling statistical system.`\
 https://nytimes.com/2025/06/04/business/bls-price-data-collection.html
-
-**Nintendo Has Something to Sell You**\
-`The marketing campaigns for the Switch 2 and its previous video game consoles provide a window into the company’s business strategy.`\
-https://nytimes.com/interactive/2025/06/04/arts/nintendo-switch-commercials-ads.html
-
-**Judge Orders Trump Administration to Take Steps to Give Due Process to Deported Migrants**\
-`The judge also said the men, expelled under the Alien Enemies Act, were likely to prevail in their claims that they had been treated unfairly, deported with no chance to contest their removals.`\
-https://nytimes.com/2025/06/04/us/politics/trump-deportations-venezuela-alien-enemies-act.html
 
