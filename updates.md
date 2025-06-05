@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in June**\
+`This week in Newly Reviewed, Martha Schwendener covers Aleksandar Duravcevic’s meditations, R.H. Quaytman’s veins of color and Cosey Fanni Tutti’s provocations. `\
+https://nytimes.com/2025/06/05/arts/art-galleries-nyc-june.html
+
 **Zambia’s Former President Edgar Lungu Dies at 68**\
 `Mr. Lungu, who was recently barred by a court ruling from running for president again, left a checkered legacy, with allegations that he eroded freedoms while in office.`\
 https://nytimes.com/2025/06/05/world/africa/zambia-edgar-lungu-dies.html
