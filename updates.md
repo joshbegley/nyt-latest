@@ -1,3 +1,19 @@
+**Braves blow 6-run lead in 9th inning, get swept by D-Backs: 'We’re all gonna be miserable'**\
+`In a season that’s spiraling on the Atlanta Braves, the nadir may have been reached Thursday.`\
+https://nytimes.com/athletic/6406426/2025/06/05/braves-blow-six-run-lead-diamondbacks/
+
+**Mara Corday, Starlet of Monster Movies and Magazines, Dies at 95**\
+`She appeared in magazines like Playboy and sci-fi films in the 1950s. Later, in Clint Eastwood’s “Sudden Impact,” she was a hostage until he uttered five famous words.`\
+https://nytimes.com/2025/06/05/movies/mara-corday-dead.html
+
+**Mayor Adams Wants to Force E-Bikes and Scooters to Slow Down**\
+`Mr. Adams called for a 15 m.p.h. speed restriction for electric bicycles and scooters in New York City, even as other vehicles will be allowed to drive faster. Critics say it’s dangerous.`\
+https://nytimes.com/2025/06/05/nyregion/eric-adams-nyc-speed-limit-ebikes.html
+
+**The Briefing: Spain 5 France 4 - Genius Yamal, sublime team goal and Cherki wonderstrike in Nations League semi-final thriller**\
+`Spain and France played out a classic in Stuttgart.`\
+https://nytimes.com/athletic/6403138/2025/06/05/spain-france-yamal-cherki/
+
 **Friday Briefing: Trump and Musk Trade Insults**\
 `Plus, tips for healthy aging.`\
 https://nytimes.com/2025/06/05/briefing/trump-musk-insult-travel-ban-gaza.html
