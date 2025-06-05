@@ -1,8 +1,12 @@
+**The Allure of Stem Cell Therapy**\
+`Stem cells can fight disease from the inside out. But not all treatments are created equal.`\
+https://nytimes.com/2025/06/05/well/stem-cell-therapy-health.html
+
 **Ravens extend WR Rashod Bateman, continue to prioritize their own players**\
 `Bateman is coming off a career year in which he had 756 receiving yards and nine touchdown receptions. `\
 https://nytimes.com/athletic/6405647/2025/06/05/rashod-bateman-ravens-contract-extension/
 
-**Sean Monahan wins Masterton Trophy after a season dedicated to Johnny Gaudreau**\
+**Sean Monahan wins Masterton Trophy, presented in a surprise by Meredith Gaudreau**\
 `Monahan displayed composure and grace throughout a difficult season.`\
 https://nytimes.com/athletic/6404329/2025/06/05/sean-monahan-masterton-gaudreau/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404958/2025/06/05/canada-gold-cup-squad/
 **Watch: The Thunder are favorites, but the Pacers have won as underdogs. The NBA Finals awaits**\
 `"The Athletic NBA Daily" previewed Game 1 of the NBA Finals between the Oklahoma City Thunder and the Indiana Pacers.`\
 https://nytimes.com/athletic/6404904/2025/06/05/nba-finals-thunder-pacers-favorites-underdogs/
-
-**‘And So It Goes’ Traces Billy Joel’s Dramatic Early Days: 5 Takeaways**\
-`The first half of the HBO documentary premiered at the Tribeca Festival on Wednesday night. Joel, who is fighting a brain disorder, sent a message via its directors.`\
-https://nytimes.com/2025/06/05/arts/music/billy-joel-documentary-and-so-it-goes.html
 

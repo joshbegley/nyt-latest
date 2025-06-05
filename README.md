@@ -1,3 +1,15 @@
+**The Windup: The robot umps are (probably) actually near**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6404689/2025/06/05/robot-umpires-abs-mlb-manfred-the-windup/
+
+**Red Light: Why this Cup final is already different. Plus: The PWHL gets expansion right**\
+`Last night’s Game 1 offered a few things we didn’t get at all in last year’s seven-game prequel.`\
+https://nytimes.com/athletic/6405679/2025/06/05/red-light-stanley-cup-final-game-1/
+
+**Brailsford was an architect of United's 'disaster' season but his legacy is still salvageable**\
+`The INEOS executive could not deliver immediate results and only time will tell if his long-term impact will be more successful`\
+https://nytimes.com/athletic/6405481/2025/06/05/sir-dave-brailsford-manchester-united-legacy/
+
 **The Allure of Stem Cell Therapy**\
 `Stem cells can fight disease from the inside out. But not all treatments are created equal.`\
 https://nytimes.com/2025/06/05/well/stem-cell-therapy-health.html
@@ -6,7 +18,7 @@ https://nytimes.com/2025/06/05/well/stem-cell-therapy-health.html
 `Bateman is coming off a career year in which he had 756 receiving yards and nine touchdown receptions. `\
 https://nytimes.com/athletic/6405647/2025/06/05/rashod-bateman-ravens-contract-extension/
 
-**Sean Monahan wins Masterton Trophy, presented in a surprise by Meredith Gaudreau**\
+**Sean Monahan wins Masterton Trophy, presented in an emotional surprise by Meredith Gaudreau**\
 `Monahan displayed composure and grace throughout a difficult season.`\
 https://nytimes.com/athletic/6404329/2025/06/05/sean-monahan-masterton-gaudreau/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6405494/2025/06/05/usmnt-gold-cup-squad-dest-injuri
 **Lorna Simpson: Painting as a Weapon of Freedom**\
 `In a small but haunting survey at the Met, a celebrated conceptual artist shifts gears, with meteoric results.`\
 https://nytimes.com/2025/06/05/arts/design/lorna-simpson-metropolitan-museum.html
-
-**For a Better Stir-Fry, Velvet Your Chicken**\
-`By Mia Leimkuhler`\
-https://nytimes.com/2025/06/05/dining/easy-stir-fry-recipe-with-butter-soy-chicken-and-vegetables.html
-
-**Canada names 26-player Gold Cup squad: Takeaways as David, Buchanan included**\
-`Jesse Marsch has picked his squad for the tournament in the U.S. and Canada, as Les Rouges aims for its first trophy since 2000.`\
-https://nytimes.com/athletic/6404958/2025/06/05/canada-gold-cup-squad/
-
-**Watch: The Thunder are favorites, but the Pacers have won as underdogs. The NBA Finals awaits**\
-`"The Athletic NBA Daily" previewed Game 1 of the NBA Finals between the Oklahoma City Thunder and the Indiana Pacers.`\
-https://nytimes.com/athletic/6404904/2025/06/05/nba-finals-thunder-pacers-favorites-underdogs/
 
