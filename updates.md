@@ -1,3 +1,7 @@
+**What would a Belmont Stakes win mean for Journalism's legacy?**\
+`There will be no Triple Crown winner. But Journalism can still reach rarified air with a Belmont Stakes win.`\
+https://nytimes.com/athletic/6405390/2025/06/05/belmont-stakes-2025-journalism-win/
+
 **Aryna Sabalenka beats Iga Swiatek, the reigning champion, to reach French Open final**\
 `Sabalenka staved off Świątek's momentum in the deciding set to reach her first Roland Garros final.`\
 https://nytimes.com/athletic/6405632/2025/06/05/sabalenka-swiatek-french-open-result-analysis/
