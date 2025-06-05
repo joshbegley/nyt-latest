@@ -1,3 +1,15 @@
+**Ravens extend WR Rashod Bateman, continue to prioritize their own players**\
+`Bateman is coming off a career year in which he had 756 receiving yards and nine touchdown receptions. `\
+https://nytimes.com/athletic/6405647/2025/06/05/rashod-bateman-ravens-contract-extension/
+
+**Sean Monahan wins Masterton Trophy after a season dedicated to Johnny Gaudreau**\
+`Monahan displayed composure and grace throughout a difficult season.`\
+https://nytimes.com/athletic/6404329/2025/06/05/sean-monahan-masterton-gaudreau/
+
+**Canada names 26-player Gold Cup squad: Takeaways as David, Buchanan included**\
+`Jesse Marsch has picked his squad for the tournament in the U.S. and Canada, as Les Rouges aims for its first trophy since 2000.`\
+https://nytimes.com/athletic/6404958/2025/06/05/canada-gold-cup-squad/
+
 **New Zealand Parliament Suspends Lawmakers for Haka Dance Protest**\
 `Co-leaders of the Te Pāti Māori party, Rawiri Waititi and Debbie Ngarewa-Packer, were suspended on Thursday without pay for 21 days, and another member of the party, Hana-Rawhiti Maipi-Clarke, was suspended for seven days.`\
 https://nytimes.com/video/world/100000010209589/maori-lawmakers-suspended-haka-.html

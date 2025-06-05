@@ -2,7 +2,7 @@
 `Bateman is coming off a career year in which he had 756 receiving yards and nine touchdown receptions. `\
 https://nytimes.com/athletic/6405647/2025/06/05/rashod-bateman-ravens-contract-extension/
 
-**Sean Monahan wins Masterton Trophy after a season dedicated to Johnny Gaudreau**\
+**Sean Monahan wins Masterton Trophy, presented in a surprise by Meredith Gaudreau**\
 `Monahan displayed composure and grace throughout a difficult season.`\
 https://nytimes.com/athletic/6404329/2025/06/05/sean-monahan-masterton-gaudreau/
 
