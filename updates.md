@@ -1,3 +1,19 @@
+**Fever's Caitlin Clark taking quad injury rehab 'day by day'**\
+`"I'm not going to rush coming back. It's not worth it," Clark said of the rehab process.`\
+https://nytimes.com/athletic/6405592/2025/06/05/caitlin-clark-fever-injury-update/
+
+**Netanyahu Says Israel ‘Activated Clans’ to Fight Hamas in Gaza**\
+`The revelation ignited a controversy in Israel, with the opposition leader warning that the “weapons going into Gaza will eventually be pointed at Israeli soldiers and civilians.”`\
+https://nytimes.com/2025/06/05/world/middleeast/israel-gaza-militia-netanyahu.html
+
+**It’s Piña Colada Weather**\
+`They taste exactly how the best summer days feel: sweet and sunny.`\
+https://nytimes.com/2025/06/05/dining/its-pina-colada-weather.html
+
+**Trump Administration Ends ‘Quiet Skies’ Traveler Surveillance Program**\
+`The program had briefly ensnared Tulsi Gabbard, the former Democratic congresswoman and now President Trump’s director of national intelligence, who has vocally criticized it as politicized.`\
+https://nytimes.com/2025/06/05/us/politics/trump-quiet-skies-surveillance-program.html
+
 **Reform U.K.’s Chairman Quits Amid New Infighting**\
 `The sudden departure of Zia Yusuf, chairman of Nigel Farage’s anti-immigration party, is a blow to the organization and comes after a clash with another party member over the burqa.`\
 https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html

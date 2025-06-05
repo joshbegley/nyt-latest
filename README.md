@@ -1,3 +1,7 @@
+**Zambia’s Former President Edgar Lungu Dies at 68**\
+`Mr. Lungu, who was recently barred by a court ruling from running for president again, left a checkered legacy, with allegations that he eroded freedoms while in office.`\
+https://nytimes.com/2025/06/05/world/africa/zambia-edgar-lungu-dies.html
+
 **Fever's Caitlin Clark taking quad injury rehab 'day by day'**\
 `"I'm not going to rush coming back. It's not worth it," Clark said of the rehab process.`\
 https://nytimes.com/athletic/6405592/2025/06/05/caitlin-clark-fever-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/politics/trump-tax-cuts-tariff-revenues.html
 **With Aaron Rodgers, the Steelers risk doing exactly what they said they wouldn't**\
 `The Steelers bet on aging QBs in Ben Roethlisberger and Russell Wilson. If two is a pattern, what will the third gamble become?`\
 https://nytimes.com/athletic/6221842/2025/06/05/aaron-rodgers-steelers-free-agent-signing/
-
-**Man City agree deal to sign Ait-Nouri from Wolves**\
-`The Algeria international is set to join on a five-year contract with the option of a further year.`\
-https://nytimes.com/athletic/6397797/2025/06/05/man-city-ait-nouri-transfer-wolves/
 
