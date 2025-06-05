@@ -1,3 +1,8 @@
+**Man City transfer odds: Reijnders to lead title surge? Or is Sávio the saviour?**\
+`Brett Koremenos explores Manchester City’s summer transfer window dealings through a betting lens.
+`\
+https://nytimes.com/athletic/6405737/2025/06/05/manchester-city-reijnders-odds/
+
 **Tom Felton to Reprise Draco Malfoy Role in ‘Harry Potter’ on Broadway**\
 `Felton makes his Broadway debut this November for a limited engagement, playing a grown-up Draco, through March.`\
 https://nytimes.com/2025/06/05/theater/draco-malfoy-tom-felton-harry-potter-broadway.html
