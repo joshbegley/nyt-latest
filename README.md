@@ -1,3 +1,11 @@
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
+https://nytimes.com/2025/06/05/realestate/housing-market-nyc.html
+
+**Procter & Gamble to Cut 7,000 Jobs Amid Tariff Uncertainty**\
+`The reductions will come over two years as the consumer products giant seeks to reorganize.`\
+https://nytimes.com/2025/06/05/business/procter-gamble-cut-jobs.html
+
 **What to Know About Trump’s New Travel Ban**\
 `The order will bar citizens from 12 countries from traveling to the United States. Visas will be restricted for citizens of seven other countries.`\
 https://nytimes.com/2025/06/05/us/trump-travel-ban-countries-what.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6399982/2025/06/05/2026-olympics-hockey-russia-ioc-
 **Cayden Lindstrom looks forward to 'long career,' with his next stop at Michigan State**\
 `Lindstrom, Columbus' No. 4 overall draft pick last June, is feeling good after a lengthy back issue.`\
 https://nytimes.com/athletic/6403755/2025/06/05/cayden-lindstrom-michigan-state/
-
-**As NHL free agency nears, how will players age on their new contracts?**\
-`One of the most important aspects of signing a player to a new contract is estimating how he will age. It’s also the hardest thing to do.`\
-https://nytimes.com/athletic/6398802/2025/06/05/nhl-free-agency-mitch-marner-age/
-
-**Rosenthal: Blame the bullpen for the A’s struggles, but also blame their situation**\
-`The A's are 1-20 since May 14 and 2-13 in their last 15 games at Sutter Health Park. `\
-https://nytimes.com/athletic/6404344/2025/06/05/athletics-sutter-health-park-bullpen-woes/
 
