@@ -1,5 +1,9 @@
+**Reform U.K.’s Chairman Quits Amid New Infighting**\
+`The sudden departure of Zia Yusuf, chairman of Nigel Farage’s anti-immigration party, is a blow to the organization and comes after a clash with another party member over the burqa.`\
+https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html
+
 **Tesla Shares Slide as Musk Feuds With Trump**\
-`President Trump on Thursday said that Mr. Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
+`President Trump said on Thursday that Elon Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
 https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
 
 **Trump Administration Ends ‘Quiet Skies’ Traveler Surveillance Program**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6231027/2025/06/05/aaron-rodgers-steelers-nfl-free-
 **State Dept: World Cup travel ban fallout 'part of what it means to host an event'**\
 `The ban leaves nationals from over a dozen countries at risk of being blocked from entering the United States for the 2026 World Cup.`\
 https://nytimes.com/athletic/6406308/2025/06/05/travel-ban-world-cup-state-department/
-
-**Jerry Reinsdorf, Justin Ishbia reaches deal for potential White Sox sale**\
-`White Sox owner Jerry Reinsdorf has the option to sell his controlling interest in the team to Justin Ishbia from 2029 to 2033.`\
-https://nytimes.com/athletic/6406196/2025/06/05/white-sox-sale-jerry-reinsdorf-justin-ishbia/
 

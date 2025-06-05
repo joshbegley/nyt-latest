@@ -1,3 +1,11 @@
+**Reform U.K.’s Chairman Quits Amid New Infighting**\
+`The sudden departure of Zia Yusuf, chairman of Nigel Farage’s anti-immigration party, is a blow to the organization and comes after a clash with another party member over the burqa.`\
+https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html
+
+**Tesla Shares Slide as Musk Feuds With Trump**\
+`President Trump said on Thursday that Elon Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
+https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
+
 **Tesla Shares Slide as Musk Feuds With Trump**\
 `President Trump on Thursday said that Mr. Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
 https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html

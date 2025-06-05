@@ -1,3 +1,7 @@
+**It’s Piña Colada Weather**\
+`They taste exactly how the best summer days feel: sweet and sunny.`\
+https://nytimes.com/2025/06/05/dining/its-pina-colada-weather.html
+
 **Reform U.K.’s Chairman Quits Amid New Infighting**\
 `The sudden departure of Zia Yusuf, chairman of Nigel Farage’s anti-immigration party, is a blow to the organization and comes after a clash with another party member over the burqa.`\
 https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html
@@ -8,7 +12,7 @@ https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
 
 **Trump Administration Ends ‘Quiet Skies’ Traveler Surveillance Program**\
 `The program had briefly ensnared Tulsi Gabbard, the former Democratic congresswoman and now President Trump’s director of national intelligence, who has vocally criticized it as politicized.`\
-https://nytimes.com/2025/06/05/us/politics/trump-administration-ends-quiet-skies-surveillance-program.html
+https://nytimes.com/2025/06/05/us/politics/trump-quiet-skies-surveillance-program.html
 
 **Trump Threatens Musk Contracts as Feud Escalates**\
 `Last year alone, companies owned by Elon Musk were promised $3 billion across nearly 100 different government contracts with 17 federal agencies.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/well/saharan-dust-health-protection.html
 **Aaron Rodgers to sign with Steelers on 1-year deal: Sources**\
 `After months on the free-agent market, Rodgers has chosen a third NFL team, replacing Russell Wilson and Justin Fields in Pittsburgh.`\
 https://nytimes.com/athletic/6231027/2025/06/05/aaron-rodgers-steelers-nfl-free-agency/
-
-**State Dept: World Cup travel ban fallout 'part of what it means to host an event'**\
-`The ban leaves nationals from over a dozen countries at risk of being blocked from entering the United States for the 2026 World Cup.`\
-https://nytimes.com/athletic/6406308/2025/06/05/travel-ban-world-cup-state-department/
 
