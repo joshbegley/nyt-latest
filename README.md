@@ -1,5 +1,5 @@
 **Chelsea give Palmer Mudryk's No. 10 shirt**\
-`Palmer had worn No. 20 since joining from Manchester City in September 2023.`\
+`New signing Liam Delap, meanwhile, has been handed the vacant No. 9.`\
 https://nytimes.com/athletic/6404844/2025/06/05/cole-palmer-chelsea-shirt-number-new/
 
 **Euthanasia Advocate Who Assisted in Woman’s Suicide Dies in Germany**\
