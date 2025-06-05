@@ -1,3 +1,7 @@
+**Aryna Sabalenka beats Iga Swiatek, the reigning champion, to reach French Open final**\
+`Sabalenka staved off Świątek's momentum in the deciding set to reach her first Roland Garros final.`\
+https://nytimes.com/athletic/6405632/2025/06/05/sabalenka-swiatek-french-open-result-analysis/
+
 **Fantasy bullpen report featuring concerns for closers Devin Williams, Raisel Iglesias**\
 `Greg Jewett's extensive weekly bullpen report covers leverage pathways, relievers on the rise, closer concerns and more. `\
 https://nytimes.com/athletic/6405558/2025/06/05/fantasy-bullpen-report-featuring-concerns-for-closers-devin-williams-raisel-iglesias/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404329/2025/06/05/sean-monahan-masterton-gaudreau/
 **New Zealand Parliament Suspends Lawmakers for Haka Dance Protest**\
 `Co-leaders of the Te Pāti Māori party, Rawiri Waititi and Debbie Ngarewa-Packer, were suspended on Thursday without pay for 21 days, and another member of the party, Hana-Rawhiti Maipi-Clarke, was suspended for seven days.`\
 https://nytimes.com/video/world/100000010209589/maori-lawmakers-suspended-haka-.html
-
-**Marco Sturm's to-do list as new Bruins coach: Zone defense? Assistants? Captain?**\
-`However distant the 2025-26 season opener seems to be at the moment, Sturm will have his calendar full between now and then.`\
-https://nytimes.com/athletic/6398369/2025/06/05/marco-sturm-bruins-priorities/
 

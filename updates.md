@@ -1,3 +1,7 @@
+**Aryna Sabalenka beats Iga Swiatek, the reigning champion, to reach French Open final**\
+`Sabalenka staved off Świątek's momentum in the deciding set to reach her first Roland Garros final.`\
+https://nytimes.com/athletic/6405632/2025/06/05/sabalenka-swiatek-french-open-result-analysis/
+
 **Fantasy bullpen report featuring concerns for closers Devin Williams, Raisel Iglesias**\
 `Greg Jewett's extensive weekly bullpen report covers leverage pathways, relievers on the rise, closer concerns and more. `\
 https://nytimes.com/athletic/6405558/2025/06/05/fantasy-bullpen-report-featuring-concerns-for-closers-devin-williams-raisel-iglesias/
