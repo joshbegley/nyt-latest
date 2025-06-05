@@ -1,3 +1,7 @@
+**With Aaron Rodgers, the Steelers risk doing exactly what they said they wouldn't**\
+`The Steelers bet on aging QBs in Ben Roethlisberger and Russell Wilson. If two is a pattern, what will the third gamble become?`\
+https://nytimes.com/athletic/6221842/2025/06/05/aaron-rodgers-steelers-free-agent-signing/
+
 **Man City agree deal to sign Ait-Nouri from Wolves**\
 `The Algeria international is set to join on a five-year contract with the option of a further year.`\
 https://nytimes.com/athletic/6397797/2025/06/05/man-city-ait-nouri-transfer-wolves/

@@ -1,3 +1,19 @@
+**Tesla Shares Slide as Musk Feuds With Trump**\
+`President Trump on Thursday said that Mr. Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
+https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
+
+**Trump Administration Ends ‘Quiet Skies’ Traveler Surveillance Program**\
+`The program had briefly ensnared Tulsi Gabbard, the former Democratic congresswoman and now President Trump’s director of national intelligence, who has vocally criticized it as politicized.`\
+https://nytimes.com/2025/06/05/us/politics/trump-administration-ends-quiet-skies-surveillance-program.html
+
+**Trump Threatens Musk Contracts as Feud Escalates**\
+`Last year alone, companies owned by Elon Musk were promised $3 billion across nearly 100 different government contracts with 17 federal agencies.`\
+https://nytimes.com/2025/06/05/us/trump-musk-contracts-threat.html
+
+**To Pay for Tax Cuts, Trump Touts Tariff Revenues That May Be Fleeting**\
+`The president cited figures from the Congressional Budget Office to suggest tariffs could offset the cost of tax cuts, though he omitted important caveats for why that may not be the case.`\
+https://nytimes.com/2025/06/05/us/politics/trump-tax-cuts-tariff-revenues.html
+
 **With Aaron Rodgers, the Steelers risk doing exactly what they said they wouldn't**\
 `The Steelers bet on aging QBs in Ben Roethlisberger and Russell Wilson. If two is a pattern, what will the third gamble become?`\
 https://nytimes.com/athletic/6221842/2025/06/05/aaron-rodgers-steelers-free-agent-signing/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6406308/2025/06/05/travel-ban-world-cup-state-depar
 **Jerry Reinsdorf, Justin Ishbia reaches deal for potential White Sox sale**\
 `White Sox owner Jerry Reinsdorf has the option to sell his controlling interest in the team to Justin Ishbia from 2029 to 2033.`\
 https://nytimes.com/athletic/6406196/2025/06/05/white-sox-sale-jerry-reinsdorf-justin-ishbia/
-
-**Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
-`A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
-https://nytimes.com/2025/06/05/us/politics/migrants-el-salvador-prison-lawsuit.html
-
-**What’s So Problematic About ‘Problematic’?**\
-`The word’s strange history has a lot to tell us about how language evolves.`\
-https://nytimes.com/2025/06/05/opinion/culture/problematic-language-history.html
-
-**Musk’s and Trump’s Relationship Recently Started to Unravel**\
-`Since the election, Elon Musk had largely appeared inseparable from the president, helping to reshape government and root out fiscal waste.`\
-https://nytimes.com/2025/06/05/us/trump-elon-musk-relationship-fallout.html
-
-**Used in Covid Shots, mRNA May Help Rid the Body of H.I.V.**\
-`A new study shows how the technology deployed in Covid vaccines helped scientists coax the virus out of hiding.`\
-https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
 
