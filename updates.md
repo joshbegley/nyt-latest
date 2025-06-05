@@ -1,3 +1,7 @@
+**New Zealand’s Parliament Suspends Maori Lawmakers Over Haka Protest**\
+`The harsh penalty was handed down to three members of the opposition who said they were voicing their community’s displeasure with proposed legislation.`\
+https://nytimes.com/2025/06/05/world/asia/nz-maori-haka-suspend.html
+
 **Liverpool reject Barcelona approach over Diaz transfer**\
 `The 28-year-old Colombia international joined from Porto in January 2022 on a deal that runs until the summer of 2027.`\
 https://nytimes.com/athletic/6404792/2025/06/05/luis-diaz-liverpool-barcelona-transfer/
