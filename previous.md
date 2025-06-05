@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6403172/2025/06/05/swiatek-sabalenka-and-the-big-three-the-best-tennis-rivalries-elevate-the-players-and-the-sport/
 
 **Newcastle confirm signing of Spanish winger Cordero from Malaga**\
-`The 18-year-old winger — a Spain Under-19 international — will join on a free transfer after his current contract expires.`\
+`The 18-year-old winger, a Spain Under-19 international, will join on a free transfer after his contract expires.`\
 https://nytimes.com/athletic/6404756/2025/06/05/newcastle-transfers-antonio-cordero/
 
 **It’s Not a Birkin. It’s ‘the’ Birkin.**\
