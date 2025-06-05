@@ -1,5 +1,9 @@
-**Trump travel ban sparks World Cup questions - and more soccer issues**\
-`President Trump crackdown raises questions for soccer - and the big tournaments on its horizon.`\
+**Thursday Briefing**\
+`A new Trump travel ban.`\
+https://nytimes.com/2025/06/05/briefing/trump-travel-ukraine-gaza.html
+
+**Trump travel ban sparks World Cup questions — and more soccer issues**\
+`Trump crackdown raises questions for soccer — and the big tournaments on its horizon.`\
 https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
 
 **Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402367/2025/06/05/manchester-united-psr-red-footba
 **Matija Sarkic remembered: The legacy, the grief and the unanswered questions**\
 `The death of the Millwall and Montenegro player still hangs heavy over his family, but they are determined for his name to live on`\
 https://nytimes.com/athletic/6370095/2025/06/05/matija-sarkic-remembered-death-one-year/
-
-**How will Barca's financial situation affect their transfers this summer?**\
-`Nothing is ever simple in the world of Barcelona transfers... and this summer is unlikely to be any different`\
-https://nytimes.com/athletic/6399278/2025/06/05/barcelona-transfer-window-finances/
 

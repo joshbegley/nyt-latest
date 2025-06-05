@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`A new Trump travel ban.`\
+https://nytimes.com/2025/06/05/briefing/trump-travel-ukraine-gaza.html
+
+**Trump travel ban sparks World Cup questions — and more soccer issues**\
+`Trump crackdown raises questions for soccer — and the big tournaments on its horizon.`\
+https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
+
 **Trump travel ban sparks World Cup questions - and more soccer issues**\
 `President Trump crackdown raises questions for soccer - and the big tournaments on its horizon.`\
 https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
