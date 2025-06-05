@@ -1,3 +1,7 @@
+**What Broncos' interest in JK Dobbins says about running back room status**\
+`The Broncos drafted RJ Harvey in the second round but are open to bring "another good football player" into the backfield.`\
+https://nytimes.com/athletic/6406604/2025/06/05/jk-dobbins-broncos-otas/
+
 **Tax Credit Increase Would Exclude Millions of Low-Income Children, Study Finds**\
 `The domestic policy bill passed by the House raises the maximum child tax credit to $2,500. But about a third of children would not receive the full credit because their parents have low wages or lack jobs.`\
 https://nytimes.com/2025/06/05/us/politics/child-tax-credit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/elon-musk-trump-epstein-files.html
 **Trump’s Alliance With Musk Shattered**\
 `Also, the Supreme Court backed a straight woman in a discrimination case. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/06/05/briefing/trumps-alliance-with-musk-shattered.html
-
-**Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
-`In an interview, the former top aide to the president said that Mr. Trump should cancel Elon Musk’s federal contracts.`\
-https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
 
