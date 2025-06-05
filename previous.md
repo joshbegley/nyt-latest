@@ -1,3 +1,7 @@
+**MLB commissioner Manfred has regret over ESPN opt-out, hopes for new partner in July**\
+`MLB is in talks with three different broadcasters over the rights ESPN once held.`\
+https://nytimes.com/athletic/6404363/2025/06/04/mlb-espn-deal-manfred-regret/
+
 **World Cup Athletes Are Among the Exceptions to Trump’s New Travel Ban**\
 `World Cup players, dual citizens and people with existing visas would still be allowed to enter the U.S.`\
 https://nytimes.com/2025/06/04/us/politics/trump-travel-ban-exceptions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/trump-biden-investigation.html
 **Judge Considers Early Release of Martin Luther King Jr. Assassination Documents**\
 `The materials are scheduled to be unsealed in 2027, but President Trump signed an executive order in January aimed at moving up the date.`\
 https://nytimes.com/2025/06/04/us/politics/mlk-jr-assassination-documents-release.html
-
-**See the Countries Under Trump’s New Travel Ban**\
-`Restrictions on travel will affect people from more than a dozen countries worldwide.`\
-https://nytimes.com/interactive/2025/06/04/us/politics/trump-travel-ban-map.html
 
