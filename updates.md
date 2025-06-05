@@ -1,3 +1,11 @@
+**Whitecaps suffer teamwide illness after Champions Cup final in Mexico**\
+`The Whitecaps lost 5-0 to Cruz Azul in the Concacaf Champions Cup final.`\
+https://nytimes.com/athletic/6405858/2025/06/05/vancouver-whitecaps-sick-mexico-concacaf-champions-cup/
+
+**Trump and Musk’s Relationship Melts Down in Spectacular Fashion**\
+`The speed of the fallout was breathtaking, with President Trump celebrating Elon Musk during an Oval Office farewell just last Friday.`\
+https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-fight.html
+
 **Trump’s New Travel Ban Is Built on Lessons From First-Term Fights**\
 `The addition of visa overstays as a rationale could provide an opening for new legal challenges, migrant advocates say.`\
 https://nytimes.com/2025/06/05/us/politics/trump-new-travel-ban-visas.html
