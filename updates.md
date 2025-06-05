@@ -1,3 +1,7 @@
+**Mid-practice fight ends Giants' OTA session early: 'Heat got to us'**\
+`“This happens all the time,” Burns said. “We fight over food. We fight over ping pong, pool, whatever it is."`\
+https://nytimes.com/athletic/6406146/2025/06/05/giants-fight-practice-brian-burns/
+
 **The fracturing relationship between Musk and Trump is tricky for Silicon Valley.**\
 `By Mike Isaac`\
 https://nytimes.com/live/2025/06/05/us/trump-elon-musk/the-fracturing-relationship-between-musk-and-trump-is-tricky-for-silicon-valley

@@ -1,3 +1,7 @@
+**Mid-practice fight ends Giants' OTA session early: 'Heat got to us'**\
+`“This happens all the time,” Burns said. “We fight over food. We fight over ping pong, pool, whatever it is."`\
+https://nytimes.com/athletic/6406146/2025/06/05/giants-fight-practice-brian-burns/
+
 **The fracturing relationship between Musk and Trump is tricky for Silicon Valley.**\
 `By Mike Isaac`\
 https://nytimes.com/live/2025/06/05/us/trump-elon-musk/the-fracturing-relationship-between-musk-and-trump-is-tricky-for-silicon-valley
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6229851/2025/06/05/uzbekistan-world-cup-qualificati
 **Goal to Spend More on Militaries Splits NATO Allies**\
 `The U.S. defense secretary expressed optimism that allied countries would increase their defense budgets, a demand of President Trump’s.`\
 https://nytimes.com/2025/06/05/world/europe/nato-defense-ministers-spending.html
-
-**There’s an Effective Way to Deter Rhino Poachers, a New Study Finds**\
-`Poaching rates dropped by more than half in African reserves where veterinarians removed the animals’ horns, which are in high demand in some parts of Asia.`\
-https://nytimes.com/2025/06/05/climate/rhinos-dehorned-poaching-kruger-park.html
 
