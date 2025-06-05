@@ -1,3 +1,7 @@
+**Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
+`In an interview, the former top aide to the president said that Mr. Trump should cancel Elon Musk’s federal contracts.`\
+https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
+
 **Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
 `The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
 https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
