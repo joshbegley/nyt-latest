@@ -1,3 +1,7 @@
+**At ‘CPAC of the Center,’ Democratic Moderates Beat Up on the Left**\
+`At a wonky gathering in Washington, centrist Democrats argued that they were the majority-makers the party needed to take control of Congress in 2026 and beyond.`\
+https://nytimes.com/2025/06/04/us/politics/democrats-centrists-moderates-welcome-pac.html
+
 **A College President Tried to Make the Move to a Republican State, and Failed**\
 `Florida officials rejected Santa Ono of Michigan as the next president of the state’s flagship university, revealing how deeply politicized higher education has become.`\
 https://nytimes.com/2025/06/04/us/santa-ono-university-of-florida.html
