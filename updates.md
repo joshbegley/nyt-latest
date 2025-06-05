@@ -1,3 +1,11 @@
+**Seven African Countries Are on Trump’s Travel Ban List. Why?**\
+`Not much links the nations.`\
+https://nytimes.com/2025/06/05/us/politics/trump-african-countries-travel-ban.html
+
+**10 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/06/05/books/review/new-books-recommendations.html
+
 **Rick Pitino shuts down Knicks coaching job speculation: 'Absolutely not'**\
 `"I think whoever comes in, if he doesn't get to the finals, it's going to be deemed an unsuccessful season," Pitino said.`\
 https://nytimes.com/athletic/6405884/2025/06/05/rick-pitino-knicks-coaching-vacancy/
