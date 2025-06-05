@@ -1,40 +1,40 @@
-**Ken Jennings: Trivia and ‘Jeopardy!’ Could Save Our Republic**\
-`A practical belief in fact and error is more fundamentally American than a toxic blend of proud ignorance and smarter-than-thou skepticism.`\
-https://nytimes.com/2025/06/05/opinion/jeopardy-trivia-us-democracy.html
+**Liverpool reject Barcelona approach over Diaz transfer**\
+`The 28-year-old Colombia international joined from Porto in January 2022 on a deal that runs until the summer of 2027.`\
+https://nytimes.com/athletic/6404792/2025/06/05/luis-diaz-liverpool-barcelona-transfer/
 
-**Foreign Buyers Are Fleeing the South Florida Condo Market**\
-`Sales to international buyers fell to 10 percent of transactions last year, a steep decline from 50 percent in 2018.`\
-https://nytimes.com/2025/06/05/realestate/florida-condos-sales-foreign-buyers.html
+**The Very Gay Life of Edmund White**\
+`The writer Edmund White, who died on Tuesday, wrote about being gay with literary clarity and without shame.`\
+https://nytimes.com/2025/06/05/opinion/edmund-white-gay-dead.html
 
-**At City Ballet, Casting, Coaching and Dances Worth Watching**\
-`The spring season of New York City Ballet didn’t seem to warrant much excitement — until it did, with a rush of dynamic debuts.`\
-https://nytimes.com/2025/06/05/arts/dance/new-york-city-ballet-season-highlights.html
+**Selfishness Is Not a Virtue**\
+`Evangelical Christianity has taken a wrong turn.`\
+https://nytimes.com/2025/06/05/opinion/ernst-apology-christianity-evangelicals.html
 
-**‘The Cole Porter of Literature’: Writers and Artists Remember Edmund White**\
-`In these reflections, colleagues, friends and admirers recall his risk-taking, his generosity and his insatiable taste for gossip.`\
-https://nytimes.com/2025/06/05/books/review/edmund-white-queer-literature.html
+**For a City Escape, They Skipped the Hudson Valley and Settled on Connecticut**\
+`Seeking more privacy and outdoor space, a couple landed in Litchfield County with around $700,000 to spend. Which property did they choose?`\
+https://nytimes.com/interactive/2025/06/05/realestate/connecticut-litchfield-county-home-sales.html
 
-**Squeezed by China’s Slowdown, Internet Users Lash Out at Elites**\
-`A Harvard graduate, a doctor and an actress have been at the center of social media storms over perceived privilege. Some see economic anxiety behind it.`\
-https://nytimes.com/2025/06/05/world/asia/china-harvard-economy-inequality.html
+**Anthropic C.E.O.: Don’t Let A.I. Companies off the Hook**\
+`The A.I. industry needs to be regulated, with a focus on transparency.`\
+https://nytimes.com/2025/06/05/opinion/anthropic-ceo-regulate-transparency.html
 
-**36 Hours in Detroit**\
-`The city that brought us automobiles and Motown has seen tough times. But Detroit always rises again.`\
-https://nytimes.com/interactive/2025/06/05/travel/things-to-do-Detroit.html
+**The Age Issue: More of Congress Is 70-Plus Than Ever Before**\
+`At the highest level, the U.S. government looks like a gerontocracy, with average ages around 60 in both the House and the Senate.`\
+https://nytimes.com/interactive/2025/06/05/us/politics/congress-age.html
 
-**George Romero’s Zombies Lurch On, in Three Family Projects**\
-`His daughter, ex-wife and widow are each working on movies rooted in his legacy, even as they wrestle with their memories and a contentious split.`\
-https://nytimes.com/2025/06/05/movies/george-romero-zombie-family-women.html
+**Is the Ukraine War the Next Afghanistan?**\
+`David French and Megan K. Stack on why Trump’s many promises to end the conflict “in 24 hours” was a fantasy.`\
+https://nytimes.com/2025/06/05/opinion/russia-ukraine-war-putin.html
 
-**What’s Changed, and What Hasn’t, From Weinstein’s First Trial to Now**\
-`The jury in Harvey Weinstein’s New York retrial on sex crimes charges will deliberate amid a social atmosphere different from the one that shaped the 2020 proceedings.`\
-https://nytimes.com/2025/06/05/nyregion/whats-changed-and-what-hasnt-from-weinsteins-first-trial-to-now.html
+**A Biotech Start-Up Promises Immortality. Is It All a Fraud?**\
+`In Austin Taylor’s novel “Notes on Infinity,” the speed of success prevents undergraduate founders from reflecting on, let alone fixing, an original sin.`\
+https://nytimes.com/2025/06/05/books/review/notes-on-infinity-austin-taylor.html
 
-**Millions Would Lose Their Obamacare Coverage Under Trump’s Bill**\
-`Though Republicans are not explicitly trying to repeal the Affordable Care Act, a series of small, technical changes would substantially reduce enrollment and increase the cost of coverage.`\
-https://nytimes.com/2025/06/05/upshot/obamacare-cuts-republicans.html
+**Can Pop Culture Be Political … and Good?**\
+`The ‘‘Andor” showrunner Tony Gilroy weighs in.`\
+https://nytimes.com/2025/06/05/opinion/film-hollywood-andor-politics.html
 
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
-https://nytimes.com/2025/06/05/realestate/housing-market-near-nyc.html
+**A Starter Pack for Aspiring Wine Lovers**\
+`Strip away the dry talk and you’ll find wine is just delicious fun. For those hesitant to know where to begin, these six bottles are a great introduction.`\
+https://nytimes.com/2025/06/05/dining/drinks/wine-for-beginners.html
 
