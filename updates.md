@@ -1,3 +1,15 @@
+**Trump’s Travel Ban: Read the Document**\
+`The president’s order bars citizens of Afghanistan, Myanmar, Chad, the Republic of Congo, Equatorial Guinea, Eritrea, Haiti, Iran, Libya, Somalia, Sudan and Yemen from entering the United States.`\
+https://nytimes.com/interactive/2025/06/05/us/travel-ban-order-full.html
+
+**Xi and Trump Hold Talks, China Says**\
+`Chinese state media said the leaders spoke on Thursday, amid worsening tensions between the countries.`\
+https://nytimes.com/2025/06/05/world/asia/xi-trump-talks-china-us-trade.html
+
+**Marco Sturm hired as Bruins coach: Why the ex-left wing is back behind the bench**\
+`Sturm, 46, was previously coach of the Kings’ AHL affiliate. He played 302 games for the Bruins after arriving in the Joe Thornton trade.`\
+https://nytimes.com/athletic/6387952/2025/06/05/bruins-hire-marco-sturm-coach/
+
 **How new Suns head coach Jordan Ott went from a small Pennsylvania town to the NBA**\
 `Owner Mat Ishbia and GM Brian Gregory have promised an identity makeover in Phoenix. A first-time head coach, Ott will lead the way.`\
 https://nytimes.com/athletic/6404727/2025/06/05/jordan-ott-phoenix-suns-head-coach-pennsylvania-nba/

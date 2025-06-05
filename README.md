@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints for June 5, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6405398/2025/06/05/connections-sports-edition-hints-for-june-5-2025-puzzle-no-255/
+
 **Trump’s Travel Ban: Read the Document**\
 `The president’s order bars citizens of Afghanistan, Myanmar, Chad, the Republic of Congo, Equatorial Guinea, Eritrea, Haiti, Iran, Libya, Somalia, Sudan and Yemen from entering the United States.`\
 https://nytimes.com/interactive/2025/06/05/us/travel-ban-order-full.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6405116/2025/06/05/finland-women-squad-ruuskanen/
 **Notre Dame's biggest priorities for June recruiting and beyond**\
 `These are Notre Dame's biggest summer recruiting needs as it tries to build off a run to the national title game.`\
 https://nytimes.com/athletic/6404982/2025/06/05/notre-dame-recruiting-football-visits-2026/
-
-**European Central Bank Cuts Rates as Trade War Weighs on the Economy**\
-`It was the eighth rate cut in the past year as officials try to steer Europe’s economy through “exceptional” uncertainty.`\
-https://nytimes.com/2025/06/05/business/european-central-bank-interest-rates-economy.html
 

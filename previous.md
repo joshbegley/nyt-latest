@@ -1,3 +1,15 @@
+**Trump’s Travel Ban: Read the Document**\
+`The president’s order bars citizens of Afghanistan, Myanmar, Chad, the Republic of Congo, Equatorial Guinea, Eritrea, Haiti, Iran, Libya, Somalia, Sudan and Yemen from entering the United States.`\
+https://nytimes.com/interactive/2025/06/05/us/travel-ban-order-full.html
+
+**Xi and Trump Hold Talks, China Says**\
+`Chinese state media said the leaders spoke on Thursday, amid worsening tensions between the countries.`\
+https://nytimes.com/2025/06/05/world/asia/xi-trump-talks-china-us-trade.html
+
+**Marco Sturm hired as Bruins coach: Why the ex-left wing is back behind the bench**\
+`Sturm, 46, was previously coach of the Kings’ AHL affiliate. He played 302 games for the Bruins after arriving in the Joe Thornton trade.`\
+https://nytimes.com/athletic/6387952/2025/06/05/bruins-hire-marco-sturm-coach/
+
 **How new Suns head coach Jordan Ott went from a small Pennsylvania town to the NBA**\
 `Owner Mat Ishbia and GM Brian Gregory have promised an identity makeover in Phoenix. A first-time head coach, Ott will lead the way.`\
 https://nytimes.com/athletic/6404727/2025/06/05/jordan-ott-phoenix-suns-head-coach-pennsylvania-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6404982/2025/06/05/notre-dame-recruiting-football-v
 **European Central Bank Cuts Rates as Trade War Weighs on the Economy**\
 `It was the eighth rate cut in the past year as officials try to steer Europe’s economy through “exceptional” uncertainty.`\
 https://nytimes.com/2025/06/05/business/european-central-bank-interest-rates-economy.html
-
-**Several Giants seize late-night opportunities in stirring comeback win over Padres**\
-`On the day the Giants cut ties with LaMonte Wade, there was perhaps no more fitting tribute to him than grinding out a win.`\
-https://nytimes.com/athletic/6404920/2025/06/05/giants-comeback-win-padres/
-
-**Carson Hocevar is NASCAR's disruptive new driver — and one of its biggest fans**\
-`Fan-friendly, outspoken, and often controversial on the track, Carson Hocevar has emerged as a must-watch driver in NASCAR's Cup Series.`\
-https://nytimes.com/athletic/6403370/2025/06/05/carson-hocevar-nascar-driver-fan-cup-series/
-
-**The Montreal brotherhood that brought Lu Dort and Bennedict Mathurin to the NBA Finals**\
-`Montreal has not traditionally been known as an NBA hotbed. But the NBA Finals feature two Montreal natives who see themselves as brothers.`\
-https://nytimes.com/athletic/6398250/2025/06/05/nba-finals-lu-dort-bennedict-mathurin-montreal/
 
