@@ -1,5 +1,5 @@
 **5 Takeaways From the First N.Y.C. Mayoral Debate**\
-`Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, faced a barrage of attacks from his rivals.`\
+`Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, faced a barrage of attacks from his Democratic rivals.`\
 https://nytimes.com/2025/06/04/nyregion/nyc-mayoral-debate-takeaways.html
 
 **In San Francisco, Harvey Milk’s Name Isn’t Going Anywhere**\
