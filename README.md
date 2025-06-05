@@ -1,3 +1,7 @@
+**Man City agree deal to sign Ait-Nouri from Wolves**\
+`The Algeria international is set to join on a five-year contract with the option of a further year.`\
+https://nytimes.com/athletic/6397797/2025/06/05/man-city-ait-nouri-transfer-wolves/
+
 **How to Protect Yourself From Saharan Dust**\
 `A plume of dust is affecting air quality in Florida and may reach other Southern states soon. Here’s what we know about the potential health effects.`\
 https://nytimes.com/2025/06/05/well/saharan-dust-health-protection.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/06/05/well/saharan-dust-health-protection.html
 `After months on the free-agent market, Rodgers has chosen a third NFL team, replacing Russell Wilson and Justin Fields in Pittsburgh.`\
 https://nytimes.com/athletic/6231027/2025/06/05/aaron-rodgers-steelers-nfl-free-agency/
 
-**State Dept: Travel ban World Cup fallout 'part of what it means to host an event'**\
+**State Dept: World Cup travel ban fallout 'part of what it means to host an event'**\
 `The ban leaves nationals from over a dozen countries at risk of being blocked from entering the United States for the 2026 World Cup.`\
 https://nytimes.com/athletic/6406308/2025/06/05/travel-ban-world-cup-state-department/
 
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/6406196/2025/06/05/white-sox-sale-jerry-reinsdorf-j
 
 **Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
 `A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
-https://nytimes.com/2025/06/05/us/politics/rights-groups-sue-to-overturn-agreement-that-sends-us-immigrants-to-salvadoran-jail.html
+https://nytimes.com/2025/06/05/us/politics/migrants-el-salvador-prison-lawsuit.html
 
 **What’s So Problematic About ‘Problematic’?**\
 `The word’s strange history has a lot to tell us about how language evolves.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/health/hiv-cure-mrna.html
 **Chelsea's Bright undergoes knee surgery following England withdrawal**\
 `Bright has won eight WSL titles with Chelsea over almost 11 years with the club.`\
 https://nytimes.com/athletic/6406217/2025/06/05/millie-bright-chelsea-surgery/
-
-**Mid-practice fight ends Giants' OTA session early: 'Heat got to us'**\
-`“This happens all the time,” Burns said. “We fight over food. We fight over ping pong, pool, whatever it is."`\
-https://nytimes.com/athletic/6406146/2025/06/05/giants-fight-practice-brian-burns/
 
