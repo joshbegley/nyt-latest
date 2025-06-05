@@ -1,3 +1,7 @@
+**Musk’s and Trump’s Relationship Recently Started to Unravel**\
+`Since the election, Elon Musk had largely appeared inseparable from the president, helping to reshape government and root out fiscal waste.`\
+https://nytimes.com/2025/06/05/us/trump-elon-musk-relationship-fallout.html
+
 **Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
 `A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
 https://nytimes.com/2025/06/05/us/politics/rights-groups-sue-to-overturn-agreement-that-sends-us-immigrants-to-salvadoran-jail.html

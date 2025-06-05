@@ -1,3 +1,11 @@
+**State Dept: Travel ban World Cup fallout 'part of what it means to host an event'**\
+`The U.`\
+https://nytimes.com/athletic/6406308/2025/06/05/travel-ban-world-cup-state-department/
+
+**Jerry Reinsdorf, Justin Ishbia reaches deal for potential White Sox sale**\
+`White Sox owner Jerry Reinsdorf has the option to sell his controlling interest in the team to Justin Ishbia from 2029 to 2033.`\
+https://nytimes.com/athletic/6406196/2025/06/05/white-sox-sale-jerry-reinsdorf-justin-ishbia/
+
 **Rights Groups Sue to Overturn Agreement That Sends U.S. Immigrants to Salvadoran Jail**\
 `A lawsuit argues that deporting migrants to a notorious prison in El Salvador is unconstitutional.`\
 https://nytimes.com/2025/06/05/us/politics/rights-groups-sue-to-overturn-agreement-that-sends-us-immigrants-to-salvadoran-jail.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/05/us/trump-elon-musk/the-fracturing-relationsh
 **Colts QB Anthony Richardson out indefinitely with injury to throwing shoulder**\
 `Richardson had season-ending surgery on his AC joint in October of his rookie season.`\
 https://nytimes.com/athletic/6406152/2025/06/05/anthony-richardson-injury-shoulder-colts-news/
-
-**How Trump Is Changing FEMA as Hurricane Season Begins**\
-`As President Trump remakes the agency, former officials say the changes could leave states without key federal support after disasters.`\
-https://nytimes.com/2025/06/05/climate/trump-fema-changes.html
-
-**Trump on Musk: ‘I’m Very Disappointed in Elon’**\
-`President Trump spoke out against his former ally on Thursday after Elon Musk expressed his dismay over the president’s domestic policy bill earlier this week.`\
-https://nytimes.com/video/us/politics/100000010210587/trump-musk-disappointed-feud.html
 
