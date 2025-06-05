@@ -1,3 +1,31 @@
+**MoneyCall: The best ROI in sports history?**\
+`Welcome back to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6404407/2025/06/05/nijaree-canady-softball-nil-moneycall/
+
+**He Attended Prayer Meetings in the White House. Now He’s Chairman of a Gaza Aid Group.**\
+`Johnnie Moore, a former Trump campaign adviser, was appointed to the board of the Gaza Humanitarian Foundation after the aid rollout was hit by chaos and the deadly shootings of Palestinians.`\
+https://nytimes.com/2025/06/05/world/middleeast/israel-johnnie-moore-gaza-humanitarian-foundation.html
+
+**Germany’s Leader Heads to the Oval Office, Hoping to Pass Trump’s Test**\
+`Friedrich Merz is seeking to reassert his country’s role on the global stage, in part by building rapport with President Trump.`\
+https://nytimes.com/2025/06/05/world/europe/merz-germany-trump-visit.html
+
+**Corrections: June 5, 2025**\
+`Corrections that appeared in print on Thursday, June 5, 2025.`\
+https://nytimes.com/2025/06/05/pageoneplus/corrections-june-5-2025.html
+
+**Quote of the Day: Republicans Work to Discredit Experts’ Tax-Cut Warning**\
+`Quotation of the Day for Thursday, June 5, 2025.`\
+https://nytimes.com/2025/06/04/pageoneplus/quote-of-the-day-republicans-work-to-discredit-experts-tax-cut-warning.html
+
+**Mick Abel gives Phillies stability on chaotic night in Toronto**\
+`Abel allowed one run on three hits in 5 1/3 innings in his second major-league start.`\
+https://nytimes.com/athletic/6404405/2025/06/04/mick-abel-phillies-blue-jays/
+
+**Leon Draisaitl plays OT hero as Oilers defeat Panthers in Game 1: Takeaways**\
+`Draisaitl scored two goals as the Oilers completed the 41st multi-goal comeback win in Stanley Cup Final history.`\
+https://nytimes.com/athletic/6403805/2025/06/04/oilers-panthers-stanley-cup-final-2025-game-1-takeaways/
+
 **MLB commissioner Manfred has regret over ESPN opt-out, hopes for new partner in July**\
 `MLB is in talks with three different broadcasters over the rights ESPN once held.`\
 https://nytimes.com/athletic/6404363/2025/06/04/mlb-espn-deal-manfred-regret/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/trump-travel-ban-exceptions.html
 **5 Takeaways From the First N.Y.C. Mayoral Debate**\
 `Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, faced a barrage of attacks from his Democratic rivals.`\
 https://nytimes.com/2025/06/04/nyregion/nyc-mayoral-debate-takeaways.html
-
-**In San Francisco, Harvey Milk’s Name Isn’t Going Anywhere**\
-`Mr. Milk’s name adorns numerous sites in the city, where he became a trailblazer for gay rights before he was killed in 1978. The Pentagon is considering stripping his name from a Navy vessel.`\
-https://nytimes.com/2025/06/04/us/harvey-milk-navy-sf-hegseth.html
-
-**Twins call on David Festa (repeatedly) for likely start with Pablo López headed to IL**\
-`Festa, who has struck out 15 batters and posted a 1.38 ERA in 13 MLB innings, is expected to face the Athletics in the series finale.`\
-https://nytimes.com/athletic/6404215/2025/06/04/twins-david-festa-pablo-lopez-start-athletics/
-
-**Atwood's swing on 3-0 pitch sparks Texas past Texas Tech in WCWS Game 1**\
-`Reese Atwood's two-run single in the bottom of the sixth keyed the Longhorns' 2-1 victory.`\
-https://nytimes.com/athletic/6404230/2025/06/04/texas-beats-texas-tech-wcws-game-1/
-
-**Hilary Knight signs with PWHL Seattle after going unprotected in expansion**\
-`For Seattle, making one of the greatest women’s hockey players of all time the team’s first signing is an easy win.`\
-https://nytimes.com/athletic/6404220/2025/06/04/hilary-knight-pwhl-seattle-expansion/
-
-**Whether or Not It’s a Sandwich**\
-`Timothy Gaetz makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/06/04/crosswords/daily-puzzle-2025-06-05.html
-
-**Trump Orders Investigation of Biden and His Aides**\
-`The executive order is the latest effort by President Trump to stoke outlandish conspiracy theories about his predecessor and question the legality of his actions in office.`\
-https://nytimes.com/2025/06/04/us/politics/trump-biden-investigation.html
-
-**Judge Considers Early Release of Martin Luther King Jr. Assassination Documents**\
-`The materials are scheduled to be unsealed in 2027, but President Trump signed an executive order in January aimed at moving up the date.`\
-https://nytimes.com/2025/06/04/us/politics/mlk-jr-assassination-documents-release.html
 
