@@ -1,3 +1,11 @@
+**Top 10 Reader Favorites From the 100 Best New York Restaurants**\
+`From $$$$ tasting-menu splurges to a celebrated Brooklyn sandwich shop, here are the places New York Times readers have visited most.`\
+https://nytimes.com/2025/06/05/dining/reader-favorite-nyc-restaurants.html
+
+**How the Maker of the ‘Most Complex Machine Humans Ever Created’ Is Navigating Trade Fights**\
+`ASML, the Dutch company that makes multimillion-dollar tools to manufacture advanced semiconductors, is grappling with the repercussions of a tech trade war.`\
+https://nytimes.com/2025/06/05/technology/asml-chips-tariffs-trade.html
+
 **Remember Tim Walz’s ‘Weird’ Comment? He Spoke Too Soon.**\
 `People around President Trump are acting very strangely.`\
 https://nytimes.com/2025/06/05/opinion/trump-weird-walz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6405471/2025/06/05/rangers-coaches-david-quinn-joe-
 **The Windup: The robot umps are (probably) actually near**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6404689/2025/06/05/robot-umpires-abs-mlb-manfred-the-windup/
-
-**Red Light: Why this Cup final is already different. Plus: The PWHL gets expansion right**\
-`Last night’s Game 1 offered a few things we didn’t get at all in last year’s seven-game prequel.`\
-https://nytimes.com/athletic/6405679/2025/06/05/red-light-stanley-cup-final-game-1/
-
-**Brailsford was an architect of United's 'disaster' season but his legacy is still salvageable**\
-`The INEOS executive could not deliver immediate results and only time will tell if his long-term impact will be more successful`\
-https://nytimes.com/athletic/6405481/2025/06/05/sir-dave-brailsford-manchester-united-legacy/
 
