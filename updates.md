@@ -1,3 +1,7 @@
+**After Trump’s Tariffs Crash Exports, Canada Posts a Record Trade Deficit**\
+`Sales of vehicles made in Canada plunged by nearly 23 percent in April after President Trump imposed a 25 percent auto tariff.`\
+https://nytimes.com/2025/06/05/us/politics/canada-trump-tariffs-trade-deficit.html
+
 **Uzbekistan qualify for World Cup for first time**\
 `The central Asian nation become the third former Soviet republic to ever qualify for the tournament.`\
 https://nytimes.com/athletic/6229851/2025/06/05/uzbekistan-world-cup-qualification-2026/
