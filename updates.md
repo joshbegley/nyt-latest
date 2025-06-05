@@ -1,3 +1,11 @@
+**New day, same story: Reds lose game, series to Brewers**\
+`The Brewers have the Reds' number — and it keeps getting worse.`\
+https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-brewers/
+
+**‘Carol,’ Whose Detention Rattled Her Small Missouri Town, Is Released**\
+`Ming Li Hui’s detention by the immigration authorities brought the reality of President Trump’s immigration crackdown to rural Missouri, where supporters rallied for her freedom.`\
+https://nytimes.com/2025/06/04/us/politics/carol-missouri-migrant.html
+
 **Trump Orders Entry Ban for People From 12 Countries**\
 `The president’s proclamation barred travel from a variety of countries, including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
 https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
