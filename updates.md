@@ -1,3 +1,7 @@
+**Word of the Day: caricature**\
+`This word has appeared in 198 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/05/learning/word-of-the-day-caricature.html
+
 **In War-Torn Nations, Trump’s Travel Ban Brings a New Hardship**\
 `For people in countries like Afghanistan and Myanmar, the president’s order dimmed hopes for sanctuary in the United States.`\
 https://nytimes.com/2025/06/05/world/asia/myanmar-afghanistan-trump-ban.html

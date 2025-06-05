@@ -1,3 +1,7 @@
+**Word of the Day: caricature**\
+`This word has appeared in 198 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/05/learning/word-of-the-day-caricature.html
+
 **In War-Torn Nations, Trump’s Travel Ban Brings a New Hardship**\
 `For people in countries like Afghanistan and Myanmar, the president’s order dimmed hopes for sanctuary in the United States.`\
 https://nytimes.com/2025/06/05/world/asia/myanmar-afghanistan-trump-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402226/2025/06/05/jesus-cuiabano-jair-cunha-nottin
 **Emery, Vidagany and Monchi: Inside Aston Villa's power triangle**\
 `The Athletic spoke to over 20 agents, coaches, executives and staff about the inner workings of the club`\
 https://nytimes.com/athletic/6388016/2025/06/05/emery-vidagany-and-monchi-inside-aston-villas-power-triangle/
-
-**Arsenal squad audit: Every player's future explained going into the summer**\
-`Who could be sold, who is in talks for a new deal and what other issues are to be resolved this summer?`\
-https://nytimes.com/athletic/6399216/2025/06/05/arsenal-squad-audit-transfers-contracts/
 
