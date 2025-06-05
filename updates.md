@@ -1,3 +1,15 @@
+**How new Suns head coach Jordan Ott went from a small Pennsylvania town to the NBA**\
+`Owner Mat Ishbia and GM Brian Gregory have promised an identity makeover in Phoenix. A first-time head coach, Ott will lead the way.`\
+https://nytimes.com/athletic/6404727/2025/06/05/jordan-ott-phoenix-suns-head-coach-pennsylvania-nba/
+
+**Sarina Wiegman names England squad for Euro 2025**\
+`Goalkeeper Mary Earps, centre-back Millie Bright, and forward Fran Kirby had all already withdrawn themselves from selection.`\
+https://nytimes.com/athletic/6405272/2025/06/05/england-squad-euro-2025-lauren-james/
+
+**Dressing Up for a Day of Black Joy**\
+`The Pinkster Stroll is not your average New York fashion show.`\
+https://nytimes.com/2025/06/05/style/pinkster-stroll-new-york-historical-fashion.html
+
 **U.S. Trade Deficit Plummets in April**\
 `U.S. trade fell sharply as President Trump’s global tariffs began to weigh on imports.`\
 https://nytimes.com/2025/06/05/business/economy/us-trade-data-deficit.html
