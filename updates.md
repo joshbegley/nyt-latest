@@ -1,3 +1,7 @@
+**Trump’s New Travel Ban Is Built on Lessons From First-Term Fights**\
+`The addition of visa overstays as a rationale could provide an opening for new legal challenges, migrant advocates say.`\
+https://nytimes.com/2025/06/05/us/politics/trump-new-travel-ban-visas.html
+
 **Trump’s New Travel Ban Is Built on Lessons from First-Term Fights**\
 `The addition of visa overstays as a rationale could provide an opening for new legal challenges, migrant advocates say.`\
 https://nytimes.com/2025/06/05/us/politics/trump-new-travel-ban-visas.html

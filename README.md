@@ -1,3 +1,7 @@
+**Whitecaps suffer teamwide illness after Champions Cup final in Mexico**\
+`The Whitecaps lost 5-0 to Cruz Azul in the Concacaf Champions Cup final.`\
+https://nytimes.com/athletic/6405858/2025/06/05/vancouver-whitecaps-sick-mexico-concacaf-champions-cup/
+
 **Trump’s New Travel Ban Is Built on Lessons From First-Term Fights**\
 `The addition of visa overstays as a rationale could provide an opening for new legal challenges, migrant advocates say.`\
 https://nytimes.com/2025/06/05/us/politics/trump-new-travel-ban-visas.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/06/05/business/media/shari-redstone-paramount-trump-cbs
 `Threated with demotion, a veteran agent with ties to a former official on the F.B.I. director’s so-called enemies list opted to resign. Two others were forced to move and retire.`\
 https://nytimes.com/2025/06/05/us/politics/fbi-agents-patel-trump.html
 
-**The Trump-Musk Meltdown Gets Messy**\
-`Kanye West tried to keep the peace.`\
+**Trump and Musk’s Relationship Melts Down in Spectacular Fashion**\
+`The speed of the fallout was breathtaking, with President Trump celebrating Elon Musk during an Oval Office farewell just last Friday.`\
 https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-fight.html
 
 **Florida Sheriff Is Arrested in Illegal Gambling Investigation**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6226853/2025/06/05/uzbekistan-world-cup-qualificati
 **What Broncos' interest in JK Dobbins says about running back room status**\
 `The Broncos drafted RJ Harvey in the second round but are open to bring "another good football player" into the backfield.`\
 https://nytimes.com/athletic/6406604/2025/06/05/jk-dobbins-broncos-otas/
-
-**Tax Credit Increase Would Exclude Millions of Low-Income Children, Study Finds**\
-`The domestic policy bill passed by the House raises the maximum child tax credit to $2,500. But about a third of children would not receive the full credit because their parents have low wages or lack jobs.`\
-https://nytimes.com/2025/06/05/us/politics/child-tax-credit.html
 
