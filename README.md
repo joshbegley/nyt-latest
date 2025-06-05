@@ -1,3 +1,7 @@
+**Listen: How should Chelsea’s 2024–25 season be graded?**\
+`Straight Outta Cobham discuss how Chelsea’s 2024–25 season should be graded.`\
+https://nytimes.com/athletic/6403834/2025/06/05/how-should-chelseas-2024-25-season-be-graded/
+
 **Kennedy Says ‘Charlatans’ Are No Reason to Block Unproven Stem Cell Treatments**\
 `The U.S. health secretary said people should have access to experimental therapies including unregulated stem cells. But some methods have resulted in blindness, tumors and other injuries.`\
 https://nytimes.com/2025/06/05/health/kennedy-stem-cells-experimental-treatments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404727/2025/06/05/jordan-ott-phoenix-suns-head-coa
 **Sarina Wiegman names England squad for Euro 2025**\
 `Goalkeeper Mary Earps, centre-back Millie Bright, and forward Fran Kirby had all already withdrawn themselves from selection.`\
 https://nytimes.com/athletic/6405272/2025/06/05/england-squad-euro-2025-lauren-james/
-
-**Dressing Up for a Day of Black Joy**\
-`The Pinkster Stroll is not your average New York fashion show.`\
-https://nytimes.com/2025/06/05/style/pinkster-stroll-new-york-historical-fashion.html
 
