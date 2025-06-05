@@ -1,3 +1,19 @@
+**Alonso's Madrid staff: Two ex-Barca coaches, a former Leeds assistant and an academy mainstay**\
+`The Alonso era has begun at Madrid and with it comes a significant revamp of the club's coaching staff`\
+https://nytimes.com/athletic/6402117/2025/06/05/xabi-alonso-real-madrid-coaching-staff/
+
+**Jesus, Cuiabano and Jair Cunha: What could the three Brazilians bring Forest?**\
+`Forest look set to add three more Brazilians to their ranks. But what would Botafogo trio Igor Jesus, Cuiabano and Jair Cunha offer?`\
+https://nytimes.com/athletic/6402226/2025/06/05/jesus-cuiabano-jair-cunha-nottingham-forest/
+
+**Emery, Vidagany and Monchi: Inside Aston Villa's power triangle**\
+`The Athletic spoke to over 20 agents, coaches, executives and staff about the inner workings of the club`\
+https://nytimes.com/athletic/6388016/2025/06/05/emery-vidagany-and-monchi-inside-aston-villas-power-triangle/
+
+**Arsenal squad audit: Every player's future explained going into the summer**\
+`Who could be sold, who is in talks for a new deal and what other issues are to be resolved this summer?`\
+https://nytimes.com/athletic/6399216/2025/06/05/arsenal-squad-audit-transfers-contracts/
+
 **Every Premier League club's PSR situation: Who can spend and who should worry**\
 `Football finance writer Chris Weatherspoon explains where the 2025-26 season's Premier League clubs stand ahead of the June 30 deadline`\
 https://nytimes.com/athletic/6384537/2025/06/05/psr-premier-league-clubs-risk/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6397774/2025/06/05/liam-delap-chelsea-transfer-tldr
 **Twins pitcher Pablo López to miss 8-12 weeks with shoulder strain**\
 `Injury is a serious roadblock for the Twins, who entered Wednesday tied for the third-best record in the American League.`\
 https://nytimes.com/athletic/6404462/2025/06/05/twins-pablo-lopez-out-8-12-weeks-shoulder-strain/
-
-**MoneyCall: The best ROI in sports history?**\
-`Welcome back to MoneyCall, The Athletic's sports business newsletter.`\
-https://nytimes.com/athletic/6404407/2025/06/05/nijaree-canady-softball-nil-moneycall/
-
-**He Attended Prayer Meetings in the White House. Now He’s Chairman of a Gaza Aid Group.**\
-`Johnnie Moore, a former Trump campaign adviser, was appointed to the board of the Gaza Humanitarian Foundation after the aid rollout was hit by chaos and the deadly shootings of Palestinians.`\
-https://nytimes.com/2025/06/05/world/middleeast/israel-johnnie-moore-gaza-humanitarian-foundation.html
-
-**Germany’s Leader Heads to the Oval Office, Hoping to Pass Trump’s Test**\
-`Friedrich Merz is seeking to reassert his country’s role on the global stage, in part by building rapport with President Trump.`\
-https://nytimes.com/2025/06/05/world/europe/merz-germany-trump-visit.html
-
-**Corrections: June 5, 2025**\
-`Corrections that appeared in print on Thursday, June 5, 2025.`\
-https://nytimes.com/2025/06/05/pageoneplus/corrections-june-5-2025.html
 
