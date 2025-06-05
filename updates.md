@@ -1,3 +1,15 @@
+**Do I Need to Refrigerate Ketchup?**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/condiment-safety-guide
+
+**httpswwwnytimescom20250605theatertony-nominees-2025-photoshtml**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/httpswwwnytimescom20250605theatertony-nominees-2025-photoshtml
+
+**Introducing England Women's Euro 2025 squad: Every player analysed**\
+`Sarina Wiegman has named her squad for Euro 2025. We analyse the 23 players who have made it and what they bring to the title defence run`\
+https://nytimes.com/athletic/6404134/2025/06/05/england-womens-euro-2025-squad-analysed/
+
 **Listen: How should Chelsea’s 2024-25 season be graded?**\
 `Straight Outta Cobham discuss how Chelsea’s 2024–25 season should be graded.`\
 https://nytimes.com/athletic/6403834/2025/06/05/how-should-chelseas-2024-25-season-be-graded/
