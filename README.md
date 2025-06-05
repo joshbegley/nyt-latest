@@ -1,3 +1,11 @@
+**Tax Credit Increase Would Exclude Millions of Low-Income Children, Study Finds**\
+`The domestic policy bill passed by the House raises the maximum child tax credit to $2,500. But about a third of children would not receive the full credit because their parents have low wages or lack jobs.`\
+https://nytimes.com/2025/06/05/us/politics/child-tax-credit.html
+
+**Harvard Will Ask Judge to Block Trump’s Order Barring Foreign Students**\
+`The president had issued a proclamation targeting international students who seek to enroll at Harvard. The moves escalated a legal battle between the two parties.`\
+https://nytimes.com/2025/06/05/us/harvard-response-trump-international-students.html
+
 **Disbarred Lawyer Accused of Stealing Homes Found Guilty**\
 `Prosecutors say Sanford Solny preyed on homeowners who were struggling financially. He now faces up to seven years in prison.`\
 https://nytimes.com/2025/06/05/realestate/solny-deed-theft-brooklyn-guilty.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/briefing/trumps-alliance-with-musk-shattered.html
 **Steve Bannon Says He Told Trump to Investigate Musk as an ‘Illegal Alien’**\
 `In an interview, the former top aide to the president said that Mr. Trump should cancel Elon Musk’s federal contracts.`\
 https://nytimes.com/2025/06/05/us/steve-bannon-trump-elon-musk.html
-
-**Jimmy Buffett’s Widow Sues in Battle Over $275 Million Estate**\
-`Jane Buffett wants a court to replace her co-trustee, claiming that he mistreated her and neglected to provide key financial information.`\
-https://nytimes.com/2025/06/05/arts/music/jimmy-buffett-jane-estate-lawsuit.html
-
-**Aaron Rodgers is a Pittsburgh Steeler and the fantasy football world yawns**\
-`With fantasy value floors established for the Steelers, managers can resume their summer-long darkness retreat.`\
-https://nytimes.com/athletic/6406550/2025/06/05/fantasy-football-aaron-rodgers-pittsburgh-steelers/
 
