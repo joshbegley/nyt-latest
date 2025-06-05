@@ -1,3 +1,7 @@
+**Shari Redstone Says She Has Thyroid Cancer**\
+`Ms. Redstone was diagnosed this spring while trying to close the sale of her family’s media empire to Skydance, a Hollywood studio backed by Larry Ellison.`\
+https://nytimes.com/2025/06/05/business/media/shari-redstone-paramount-trump-cbs.html
+
 **As Ousters Continue, F.B.I. Singles Out Employee Over Friendship With Trump Critic**\
 `Threated with demotion, a veteran agent with ties to a former official on the F.B.I. director’s so-called enemies list opted to resign. Two others were forced to move and retire.`\
 https://nytimes.com/2025/06/05/us/politics/fbi-agents-patel-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/politics/child-tax-credit.html
 **Harvard Will Ask Judge to Block Trump’s Order Barring Foreign Students**\
 `The president had issued a proclamation targeting international students who seek to enroll at Harvard. The moves escalated a legal battle between the two parties.`\
 https://nytimes.com/2025/06/05/us/harvard-response-trump-international-students.html
-
-**Disbarred Lawyer Accused of Stealing Homes Found Guilty**\
-`Prosecutors say Sanford Solny preyed on homeowners who were struggling financially. He now faces up to seven years in prison.`\
-https://nytimes.com/2025/06/05/realestate/solny-deed-theft-brooklyn-guilty.html
 

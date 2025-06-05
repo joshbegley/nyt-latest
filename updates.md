@@ -1,3 +1,7 @@
+**Shari Redstone Says She Has Thyroid Cancer**\
+`Ms. Redstone was diagnosed this spring while trying to close the sale of her family’s media empire to Skydance, a Hollywood studio backed by Larry Ellison.`\
+https://nytimes.com/2025/06/05/business/media/shari-redstone-paramount-trump-cbs.html
+
 **As Ousters Continue, F.B.I. Singles Out Employee Over Friendship With Trump Critic**\
 `Threated with demotion, a veteran agent with ties to a former official on the F.B.I. director’s so-called enemies list opted to resign. Two others were forced to move and retire.`\
 https://nytimes.com/2025/06/05/us/politics/fbi-agents-patel-trump.html
