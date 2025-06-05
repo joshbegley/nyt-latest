@@ -1,5 +1,9 @@
+**A healthy Draisaitl gives Oilers the edge they lacked in last year's Stanley Cup Final**\
+`While battling injuries in the 2024 Stanley Cup Final, Draisaitl didn't look like himself. In Game 1 Wednesday, he was "a game-breaker."`\
+https://nytimes.com/athletic/6404670/2025/06/05/leon-draisaitl-stanley-cup-final-oilers-nhl-playoffs/
+
 **Listen: Sandro Tonali and the tactical tweak that changed the face of Newcastle’s season**\
-`On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how pushing Tonali deeper paid dividends for Eddie Howe.`\
+`On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how dropping Tonali deeper paid dividends for Eddie Howe`\
 https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-and-the-tactical-tweak-that-changed-the-face-of-newcastles-season/
 
 **Chicago may be 'the place quarterbacks go to die,' but Cubs pitcher Cade Horton is thriving**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
 **Will Steph Curry move to TV? Will ESPN's booth sputter? Will fans watch? NBA Finals Media Preview**\
 `The Athletic's sports media reporters Andrew Marchand and Richard Deitsch preview the NBA Finals through its key media storylines.`\
 https://nytimes.com/athletic/6403449/2025/06/05/nba-finals-thunder-pacers-media-tv-espn-abc-deitsch-marchand/
-
-**Jaylen Brown’s chance to be top option, Jrue Holiday’s trade value and more: Celtics mailbag, Part 1**\
-`Jay King answers your questions about what Boston's offseason holds and how next year's team could be shaping up.`\
-https://nytimes.com/athletic/6403561/2025/06/05/celtics-jaylen-brown-jrue-holiday-trade-value-mailbag/
 

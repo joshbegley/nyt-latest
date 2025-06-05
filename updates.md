@@ -1,3 +1,11 @@
+**Listen: Sandro Tonali and the tactical tweak that changed the face of Newcastle’s season**\
+`On the latest episode of Pod On The Tyne, Taylor Payne and George Caulkin discussed how pushing Tonali deeper paid dividends for Eddie Howe.`\
+https://nytimes.com/athletic/6404858/2025/06/05/sandro-tonali-and-the-tactical-tweak-that-changed-the-face-of-newcastles-season/
+
+**Chicago may be 'the place quarterbacks go to die,' but Cubs pitcher Cade Horton is thriving**\
+`The Cubs are 5-0 in Horton’s five outings since he was promoted from Triple A to replace injured All-Star pitcher Shota Imanaga.`\
+https://nytimes.com/athletic/6404225/2025/06/05/cubs-cade-horton/
+
 **The Athletic FC: Thousands of Club World Cup tickets unsold, Ronaldo's Portugal winner**\
 `Today in TAFC: Thousands of Club World Cup tickets unsold, Ronaldo scores winner for Portugal in Nations League, Brailsford out at Man Utd.`\
 https://nytimes.com/athletic/6404800/2025/06/05/club-world-cup-tickets-unsold-ronaldo-winner/
