@@ -2,6 +2,14 @@
 `Montreal has not traditionally been known as an NBA hotbed. But the NBA Finals feature two Montreal natives who see themselves as brothers.`\
 https://nytimes.com/athletic/6398250/2025/06/05/nba-finals-lu-dort-bennedict-mathurin-montreal/
 
+**Can the Maple Leafs upgrade at centre without trading Easton Cowan?**\
+`Cowan is the Leafs' one shiny asset left to dangle to rival teams. To trade him or not is a thorny proposition for the front office.`\
+https://nytimes.com/athletic/6400758/2025/06/05/maple-leafs-easton-cowan-trade/
+
+**WATCH: How Pascal Siakam makes — and breaks — the Pacers' system**\
+`The beauty of Pascal Siakam: He can be whatever the Pacers need him to be. Here are all the roles he fills for this Indiana team.`\
+https://nytimes.com/athletic/6404192/2025/06/05/pascal-siakam-pacers-nba-finals-video-highlights/
+
 **Ranking the Canucks' top 13 trade assets: What trade chips could be in play?**\
 `With the NHL's silly season about to grind into full gear, let's take an inventory of what assets the Canucks could potentially utilize.`\
 https://nytimes.com/athletic/6404652/2025/06/05/canucks-top-trade-assets-ranking/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/realestate/housing-market-nyc.html
 **Procter & Gamble to Cut 7,000 Jobs Amid Tariff Uncertainty**\
 `The reductions will come over two years as the consumer products giant seeks to reorganize.`\
 https://nytimes.com/2025/06/05/business/procter-gamble-cut-jobs.html
-
-**What to Know About Trump’s New Travel Ban**\
-`The order will bar citizens from 12 countries from traveling to the United States. Visas will be restricted for citizens of seven other countries.`\
-https://nytimes.com/2025/06/05/us/trump-travel-ban-countries-what.html
-
-**'I would love to be in a World Cup', says Guardiola**\
-`Guardiola played 47 matches for Spain during his playing career but has never been involved in international management.`\
-https://nytimes.com/athletic/6404921/2025/06/05/pep-guardiola-manchester-city-world-cup/
 
