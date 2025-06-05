@@ -1,3 +1,11 @@
+**Transfers TLDR: Liam Delap to Chelsea - all you need to know**\
+`Chelsea have signed striker Liam Delap from Ipswich - here's all you need to know about the move`\
+https://nytimes.com/athletic/6397774/2025/06/05/liam-delap-chelsea-transfer-tldr/
+
+**Twins pitcher Pablo López to miss 8-12 weeks with shoulder strain**\
+`Injury is a serious roadblock for the Twins, who entered Wednesday tied for the third-best record in the American League.`\
+https://nytimes.com/athletic/6404462/2025/06/05/twins-pablo-lopez-out-8-12-weeks-shoulder-strain/
+
 **MoneyCall: The best ROI in sports history?**\
 `Welcome back to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6404407/2025/06/05/nijaree-canady-softball-nil-moneycall/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6403805/2025/06/04/oilers-panthers-stanley-cup-fina
 **MLB commissioner Manfred has regret over ESPN opt-out, hopes for new partner in July**\
 `MLB is in talks with three different broadcasters over the rights ESPN once held.`\
 https://nytimes.com/athletic/6404363/2025/06/04/mlb-espn-deal-manfred-regret/
-
-**World Cup Athletes Are Among the Exceptions to Trump’s New Travel Ban**\
-`World Cup players, dual citizens and people with existing visas would still be allowed to enter the U.S.`\
-https://nytimes.com/2025/06/04/us/politics/trump-travel-ban-exceptions.html
-
-**5 Takeaways From the First N.Y.C. Mayoral Debate**\
-`Former Gov. Andrew M. Cuomo, the front-runner in the New York City mayor’s race, faced a barrage of attacks from his Democratic rivals.`\
-https://nytimes.com/2025/06/04/nyregion/nyc-mayoral-debate-takeaways.html
 
