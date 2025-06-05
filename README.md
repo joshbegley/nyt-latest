@@ -1,3 +1,15 @@
+**Notre Dame's biggest priorities for June recruiting and beyond**\
+`These are Notre Dame's biggest summer recruiting needs as it tries to build off a run to the national title game.`\
+https://nytimes.com/athletic/6404982/2025/06/05/notre-dame-recruiting-football-visits-2026/
+
+**European Central Bank Cuts Rates as Trade War Weighs on the Economy**\
+`It was the eighth rate cut in the past year as officials try to steer Europe’s economy through “exceptional” uncertainty.`\
+https://nytimes.com/2025/06/05/business/european-central-bank-interest-rates-economy.html
+
+**Several Giants seize late-night opportunities in stirring comeback win over Padres**\
+`On the day the Giants cut ties with LaMonte Wade, there was perhaps no more fitting tribute to him than grinding out a win.`\
+https://nytimes.com/athletic/6404920/2025/06/05/giants-comeback-win-padres/
+
 **Carson Hocevar is NASCAR's disruptive new driver — and one of its biggest fans**\
 `Fan-friendly, outspoken, and often controversial on the track, Carson Hocevar has emerged as a must-watch driver in NASCAR's Cup Series.`\
 https://nytimes.com/athletic/6403370/2025/06/05/carson-hocevar-nascar-driver-fan-cup-series/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/05/business/dealbook/musk-republicans-budget-trump.h
 **Why the Seahawks don’t have a QB competition, as Jalen Milroe learns behind Sam Darnold**\
 `No, Milroe is not the Russell Wilson to Darnold's Matt Flynn, even if there are plenty of similarities to the 2012 situation.`\
 https://nytimes.com/athletic/6404034/2025/06/05/sam-darnold-jalen-milroe-seahawks-qb/
-
-**At Combs Trial, ‘Jane,’ an Ex-Girlfriend, to Testify About Sex Abuse**\
-`Prosecutors say the woman, who will take the stand under a pseudonym, endured coerced sex marathons called “freak-offs.” The defense contends they were consensual.`\
-https://nytimes.com/2025/06/05/arts/music/sean-combs-diddy-trial-jane-freak-offs.html
-
-**Blues offseason needs: How St. Louis measures up to conference finalists**\
-`Where the Blues can't quite match up to the NHL's final four could prove instructive for Doug Armstrong's offseason plans.`\
-https://nytimes.com/athletic/6400039/2025/06/05/blues-offseason-needs-nhl-conference-finalists/
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are on the Lower East Side, in the garment district and in Spuyten Duyvil.`\
-https://nytimes.com/2025/06/05/realestate/housing-market-nyc.html
 
