@@ -1,3 +1,7 @@
+**C.J. Gardner-Johnson disputes that Eagles traded him for salary cap reasons**\
+`Fangio said he was "fine" with Eagles GM Howie Roseman's decision to trade Gardner-Johnson away.`\
+https://nytimes.com/athletic/6404072/2025/06/04/cj-gardner-johnson-vic-fangio-eagles-trade/
+
 **New day, same story: Reds lose game, series to Brewers**\
 `The Brewers have the Reds' number — and it keeps getting worse.`\
 https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-brewers/
