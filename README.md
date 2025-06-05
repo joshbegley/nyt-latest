@@ -1,3 +1,11 @@
+**As Ousters Continue, F.B.I. Singles Out Employee Over Friendship With Trump Critic**\
+`Threated with demotion, a veteran agent with ties to a former official on the F.B.I. director’s so-called enemies list opted to resign. Two others were forced to move and retire.`\
+https://nytimes.com/2025/06/05/us/politics/fbi-agents-patel-trump.html
+
+**The Trump-Musk Meltdown Gets Messy**\
+`Kanye West tried to keep the peace.`\
+https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-fight.html
+
 **Florida Sheriff Is Arrested in Illegal Gambling Investigation**\
 `Prosecutors accused Sheriff Marcos Lopez of Osceola County of protecting a gambling ring that made about $22 million across at least two Central Florida counties.`\
 https://nytimes.com/2025/06/05/us/politics/osceola-county-sheriff-arrested-racketeering.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/us/harvard-response-trump-international-students.
 **Disbarred Lawyer Accused of Stealing Homes Found Guilty**\
 `Prosecutors say Sanford Solny preyed on homeowners who were struggling financially. He now faces up to seven years in prison.`\
 https://nytimes.com/2025/06/05/realestate/solny-deed-theft-brooklyn-guilty.html
-
-**Philippe Labro Dies at 88; Restless Chronicler of the French Condition**\
-`As an author (often blurring the boundaries between fiction and nonfiction), a film director, a lyricist and a host of TV and radio shows, he sought to capture his epoch.`\
-https://nytimes.com/2025/06/05/books/philippe-labro-dead.html
-
-**NWSL approves intra-league loans and increases spending resources for expansion teams**\
-`The rule changes allow Boston and Denver to sign players now and loan them to other teams in NWSL`\
-https://nytimes.com/athletic/6406580/2025/06/05/nwsl-loan-expansion-teams-update/
 

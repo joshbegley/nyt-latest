@@ -1,3 +1,11 @@
+**Florida Sheriff Is Arrested in Illegal Gambling Investigation**\
+`Prosecutors accused Sheriff Marcos Lopez of Osceola County of protecting a gambling ring that made about $22 million across at least two Central Florida counties.`\
+https://nytimes.com/2025/06/05/us/politics/osceola-county-sheriff-arrested-racketeering.html
+
+**What is setting Oilers apart in NHL playoffs? The way they are closing out games**\
+`Edmonton's success in the playoffs is largely due to defending at the most critical times and locking down opponents late in games.`\
+https://nytimes.com/athletic/6406735/2025/06/05/oilers-nhl-playoffs-stanley-cup-final/
+
 **Curiosity and a new challenge drew Alexander Straus from Germany to Angel City**\
 `Straus said he wanted to find out just how good the best teams in the U.S. and Europe are.`\
 https://nytimes.com/athletic/6406808/2025/06/05/angel-city-coach-alex-straus-bayern-munich/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/books/philippe-labro-dead.html
 **NWSL approves intra-league loans and increases spending resources for expansion teams**\
 `The rule changes allow Boston and Denver to sign players now and loan them to other teams in NWSL`\
 https://nytimes.com/athletic/6406580/2025/06/05/nwsl-loan-expansion-teams-update/
-
-**For What Remains of New York’s Media Elite, a New Clubhouse Opens**\
-`David Kuhn, a book agent and former magazine editor, opened Chez Nous as an extension of a life spent curating reality.`\
-https://nytimes.com/2025/06/05/style/chez-nous-david-kuhn.html
-
-**Israel Bombs Beirut Outskirts, Citing Hezbollah Drone Workshops**\
-`The airstrikes on the southern outskirts of the Lebanese capital, an area where Hezbollah holds sway, were some of the heaviest since a U.S.-brokered cease-fire came into effect in November.`\
-https://nytimes.com/2025/06/05/world/europe/israel-hezbollah-beirut-airstrikes.html
 

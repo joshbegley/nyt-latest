@@ -1,3 +1,11 @@
+**Florida Sheriff Is Arrested in Illegal Gambling Investigation**\
+`Prosecutors accused Sheriff Marcos Lopez of Osceola County of protecting a gambling ring that made about $22 million across at least two Central Florida counties.`\
+https://nytimes.com/2025/06/05/us/politics/osceola-county-sheriff-arrested-racketeering.html
+
+**What is setting Oilers apart in NHL playoffs? The way they are closing out games**\
+`Edmonton's success in the playoffs is largely due to defending at the most critical times and locking down opponents late in games.`\
+https://nytimes.com/athletic/6406735/2025/06/05/oilers-nhl-playoffs-stanley-cup-final/
+
 **Curiosity and a new challenge drew Alexander Straus from Germany to Angel City**\
 `Straus said he wanted to find out just how good the best teams in the U.S. and Europe are.`\
 https://nytimes.com/athletic/6406808/2025/06/05/angel-city-coach-alex-straus-bayern-munich/
