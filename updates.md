@@ -1,3 +1,23 @@
+**Caleb Williams' best day yet, Jaquan Brisker's recovery: Bears minicamp takeaways**\
+`Day 2 of minicamp included Brisker talking about his scary concussion and Gervon Dexter and Tyrique Stevenson adjusting to new coaches.`\
+https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
+
+**Will Steph Curry move to TV? Will ESPN's booth sputter? Will fans watch? NBA Finals Media Preview**\
+`The Athletic's sports media reporters Andrew Marchand and Richard Deitsch preview the NBA Finals through its key media storylines.`\
+https://nytimes.com/athletic/6403449/2025/06/05/nba-finals-thunder-pacers-media-tv-espn-abc-deitsch-marchand/
+
+**Jaylen Brown’s chance to be top option, Jrue Holiday’s trade value and more: Celtics mailbag, Part 1**\
+`Jay King answers your questions about what Boston's offseason holds and how next year's team could be shaping up.`\
+https://nytimes.com/athletic/6403561/2025/06/05/celtics-jaylen-brown-jrue-holiday-trade-value-mailbag/
+
+**This Week in Sports Trivia: June 5, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6404019/2025/06/05/this-week-in-sports-trivia-june-5-2025/
+
+**Between Pacers' NBA Finals run and Caitlin Clark mania, Indiana is having a basketball moment**\
+`"This is the first time I have real, real confidence we can win the whole thing," well-known super-fan Matt Asen said.`\
+https://nytimes.com/athletic/6403342/2025/06/05/indiana-basketball-pacers-nba-finals-caitlin-clark/
+
 **Kwesi Adofo-Mensah's extension shows Vikings ownership believes in the process**\
 `The general manager's multiyear extension shows the Vikings are focused on continuity while working toward bigger successes in the future.`\
 https://nytimes.com/athletic/6403091/2025/06/05/kwesi-adofo-mensah-extension-vikings/

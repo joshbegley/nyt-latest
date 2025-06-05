@@ -1,3 +1,15 @@
+**Caleb Williams' best day yet, Jaquan Brisker's recovery: Bears minicamp takeaways**\
+`Day 2 of minicamp included Brisker talking about his scary concussion and Gervon Dexter and Tyrique Stevenson adjusting to new coaches.`\
+https://nytimes.com/athletic/6403774/2025/06/05/bears-minicamp-jaquan-brisker/
+
+**Will Steph Curry move to TV? Will ESPN's booth sputter? Will fans watch? NBA Finals Media Preview**\
+`The Athletic's sports media reporters Andrew Marchand and Richard Deitsch preview the NBA Finals through its key media storylines.`\
+https://nytimes.com/athletic/6403449/2025/06/05/nba-finals-thunder-pacers-media-tv-espn-abc-deitsch-marchand/
+
+**Jaylen Brown’s chance to be top option, Jrue Holiday’s trade value and more: Celtics mailbag, Part 1**\
+`Jay King answers your questions about what Boston's offseason holds and how next year's team could be shaping up.`\
+https://nytimes.com/athletic/6403561/2025/06/05/celtics-jaylen-brown-jrue-holiday-trade-value-mailbag/
+
 **Kwesi Adofo-Mensah's extension shows Vikings ownership believes in the process**\
 `The general manager's multiyear extension shows the Vikings are focused on continuity while working toward bigger successes in the future.`\
 https://nytimes.com/athletic/6403091/2025/06/05/kwesi-adofo-mensah-extension-vikings/
@@ -18,24 +30,11 @@ https://nytimes.com/athletic/6403439/2025/06/05/luke-clanton-pga-tour-star-golf-
 `Can Canady be the force who propels softball into the public consciousness? "What we’re witnessing is a renaissance.”`\
 https://nytimes.com/athletic/6404166/2025/06/05/nijaree-canady-softball-wcws-texas-tech/
 
-**Kenny Clark's surgery, Keisean Nixon's retraction and more Packers OTA takeaways**\
-`Clark played through a toe injury last season, which played a role in arguably the most disappointing year of his career.`\
-https://nytimes.com/athletic/6402976/2025/06/05/packers-otas-kenny-clark-keisean-nixon/
+**This Week in Sports Trivia: June 5, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6404019/2025/06/05/this-week-in-sports-trivia-june-5-2025/
 
-**Sam Bennett, goalie interference and a challenge that almost cost Oilers Game 1**\
-`Bennett took up residency in the Oilers crease on his first goal, which was allowed to stand after a review when Edmonton challenged it.
-`\
-https://nytimes.com/athletic/6404598/2025/06/05/sam-bennett-panthers-oilers-goalie-interference/
-
-**WATCH: How a 2007 move eventually led to this loaded Thunder roster**\
-`The Oklahoma City Thunder's roster is the envy of the rest of the NBA. How did they build it? It all goes back to one move in 2007.`\
-https://nytimes.com/athletic/6404280/2025/06/05/thunder-roster-sam-presti-nba-finals-video/
-
-**The Big Ugly Battle Over the Big Beautiful Bill**\
-`President Trump’s flagship legislation, projected to add $2.4 trillion to the national debt, is raising questions among Republicans about the true purpose of Trumpism.`\
-https://nytimes.com/2025/06/05/podcasts/the-daily/trump-policy-bill-republican-congress.html
-
-**Tyrese Haliburton uses 'extra fuel' from his doubters when the Pacers need him most**\
-`Haliburton has been clutch for the Pacers all postseason long. 'We’re gonna ride with Tyrese until the wheels fall off," Pascal Siakam said.`\
-https://nytimes.com/athletic/6404238/2025/06/05/tyrese-haliburton-uses-extra-fuel-from-doubters-when-the-pacers-need-him-most/
+**Between Pacers' NBA Finals run and Caitlin Clark mania, Indiana is having a basketball moment**\
+`"This is the first time I have real, real confidence we can win the whole thing," well-known super-fan Matt Asen said.`\
+https://nytimes.com/athletic/6403342/2025/06/05/indiana-basketball-pacers-nba-finals-caitlin-clark/
 
