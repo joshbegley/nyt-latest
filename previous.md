@@ -1,3 +1,7 @@
+**What to Know About Trump’s New Travel Ban**\
+`The order will bar citizens from 12 countries from traveling to the United States. Visas will be restricted for citizens of seven other countries.`\
+https://nytimes.com/2025/06/05/us/trump-travel-ban-countries-what.html
+
 **'I would love to be in a World Cup', says Guardiola**\
 `Guardiola played 47 matches for Spain during his playing career but has never been involved in international management.`\
 https://nytimes.com/athletic/6404921/2025/06/05/pep-guardiola-manchester-city-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6398802/2025/06/05/nhl-free-agency-mitch-marner-age
 **Rosenthal: Blame the bullpen for the A’s struggles, but also blame their situation**\
 `The A's are 1-20 since May 14 and 2-13 in their last 15 games at Sutter Health Park. `\
 https://nytimes.com/athletic/6404344/2025/06/05/athletics-sutter-health-park-bullpen-woes/
-
-**Wirtz showed exactly why Liverpool want him - and left his mark on Fernandes**\
-`Liverpool are preparing to break the bank to sign the playmaker, and in Germany's defeat to Portugal he scored and proved he's no soft touch`\
-https://nytimes.com/athletic/6404089/2025/06/05/florian-wirtz-liverpool-transfer-germany/
 

@@ -1,3 +1,7 @@
+**What to Know About Trump’s New Travel Ban**\
+`The order will bar citizens from 12 countries from traveling to the United States. Visas will be restricted for citizens of seven other countries.`\
+https://nytimes.com/2025/06/05/us/trump-travel-ban-countries-what.html
+
 **'I would love to be in a World Cup', says Guardiola**\
 `Guardiola played 47 matches for Spain during his playing career but has never been involved in international management.`\
 https://nytimes.com/athletic/6404921/2025/06/05/pep-guardiola-manchester-city-world-cup/
