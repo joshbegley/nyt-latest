@@ -1,3 +1,11 @@
+**Judge Considers Early Release of Martin Luther King Jr. Assassination Documents**\
+`The materials are scheduled to be unsealed in 2027, but President Trump signed an executive order in January aimed at moving up the date.`\
+https://nytimes.com/2025/06/04/us/politics/mlk-jr-assassination-documents-release.html
+
+**See the Countries Under Trump’s New Travel Ban**\
+`Restrictions on travel will affect people from more than a dozen countries worldwide.`\
+https://nytimes.com/interactive/2025/06/04/us/politics/trump-travel-ban-map.html
+
 **Day 4: A Simple Trick for Better Ideas**\
 `Today, let’s think bigger with a fun game.`\
 https://nytimes.com/interactive/2025/well/creativity-work-ideas.html
