@@ -1,3 +1,11 @@
+**New day, same story: Reds lose game, series to Brewers**\
+`The Brewers have the Reds' number — and it keeps getting worse.`\
+https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-brewers/
+
+**‘Carol,’ Whose Detention Rattled Her Small Missouri Town, Is Released**\
+`Ming Li Hui’s detention by the immigration authorities brought the reality of President Trump’s immigration crackdown to rural Missouri, where supporters rallied for her freedom.`\
+https://nytimes.com/2025/06/04/us/politics/carol-missouri-migrant.html
+
 **Trump Orders Entry Ban for People From 12 Countries**\
 `The president’s proclamation barred travel from a variety of countries, including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
 https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/04/us/santa-ono-university-of-florida.html
 **Manfred: MLB will propose automated ball-strike challenge system for 2026**\
 `Manfred said he wants players "to feel like we respected the committee process" before a decision is made on automatic ball-strike system.`\
 https://nytimes.com/athletic/6403954/2025/06/04/manfred-proposal-abs-challenge-system-2026/
-
-**Cuomo Comes Under Fire at Debate Over Nursing Home Covid Deaths**\
-`Former Gov. Andrew M. Cuomo now faces a Justice Department inquiry over whether he lied to Congress about actions he took during the Covid pandemic.`\
-https://nytimes.com/2025/06/04/nyregion/andrew-cuomo-nursing-homes-deaths.html
-
-**U.S. Brings Back Guatemalan Wrongly Deported to Mexico**\
-`The Trump administration obeyed the instructions of the judge in the case, a significant departure from the defiant stance it has staked out in other immigration matters.`\
-https://nytimes.com/2025/06/04/us/politics/guatemalan-deported-mexico-trump.html
 
