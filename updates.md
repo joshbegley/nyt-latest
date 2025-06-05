@@ -1,3 +1,11 @@
+**Can the Maple Leafs upgrade at centre without trading Easton Cowan?**\
+`Cowan is the Leafs' one shiny asset left to dangle to rival teams. To trade him or not is a thorny proposition for the front office.`\
+https://nytimes.com/athletic/6400758/2025/06/05/maple-leafs-easton-cowan-trade/
+
+**WATCH: How Pascal Siakam makes — and breaks — the Pacers' system**\
+`The beauty of Pascal Siakam: He can be whatever the Pacers need him to be. Here are all the roles he fills for this Indiana team.`\
+https://nytimes.com/athletic/6404192/2025/06/05/pascal-siakam-pacers-nba-finals-video-highlights/
+
 **The Montreal brotherhood that brought Lu Dort and Bennedict Mathurin to the NBA Finals**\
 `Montreal has not traditionally been known as an NBA hotbed. But the NBA Finals feature two Montreal natives who see themselves as brothers.`\
 https://nytimes.com/athletic/6398250/2025/06/05/nba-finals-lu-dort-bennedict-mathurin-montreal/
