@@ -1,3 +1,19 @@
+**The Athletic FC: Thousands of Club World Cup tickets unsold, Ronaldo's Portugal winner**\
+`Today in TAFC: Thousands of Club World Cup tickets unsold, Ronaldo scores winner for Portugal in Nations League, Brailsford out at Man Utd.`\
+https://nytimes.com/athletic/6404800/2025/06/05/club-world-cup-tickets-unsold-ronaldo-winner/
+
+**The Pulse: Of course Game 1 went to OT**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6403221/2025/06/05/oilers-ot-panthers-the-pulse/
+
+**Blown save: Panthers' 3-year run as NHL's best closers comes to an end in Game 1**\
+`Leon Draisaitl's overtime winner not only capped off a comeback, it put an end to a daunting Panthers streak.`\
+https://nytimes.com/athletic/6404620/2025/06/05/panthers-nhl-playoffs-closing-streak-oilers-draisaitl/
+
+**Sam Presti built a great Thunder team once. Then he did it again — his way**\
+`Presti’s platonic basketball ideal was nothing like the early versions of his OKC teams. That's not the case anymore.`\
+https://nytimes.com/athletic/6404136/2025/06/05/sam-presti-thunder-nba-finals-paul-george/
+
 **Climber Falls to His Death at Denali National Park**\
 `Alex Chiu, an engineer and alpine climber, was on one of the most frequently used routes at Mount McKinley, the tallest peak in North America.`\
 https://nytimes.com/2025/06/05/us/climber-dead-mckinley-denali.html
