@@ -1,3 +1,11 @@
+**Musk and Trump both wield their social media platforms as weapons.**\
+`By Ryan Mac`\
+https://nytimes.com/live/2025/06/05/us/trump-elon-musk/musk-and-trump-both-wield-their-social-media-platforms-as-weapons
+
+**What Is the ‘Woke’ Macarena? And What Makes it ‘Woke’?**\
+`A catchy song by an Irish singer, and a simple dance to go along with it, have given social media creators an easy trend to emulate.`\
+https://nytimes.com/2025/06/05/style/tiktok-woke-macarena-cmat.html
+
 **Giants OTAs: Dizzying QB rotation, Mike Kafka's play-calling highlight feisty Thursday**\
 `While a rare OTA fight stole headlines, there is plenty to take away from Thursday's practice.`\
 https://nytimes.com/athletic/6406353/2025/06/05/new-york-giants-otas-fight-quarterbacks/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/06/05/dining/its-pina-colada-weather.html
 https://nytimes.com/2025/06/05/world/europe/britain-reform-uk-yusuf-farage.html
 
 **Tesla Shares Slide as Musk Feuds With Trump**\
-`President Trump said on Thursday that Elon Musk was upset about the repeal of an electric vehicle tax credit — a claim that Mr. Musk swiftly rejected.`\
+`President Trump said on Thursday that Elon Musk was upset about the repeal of an electric vehicle tax credit — a claim Mr. Musk swiftly rejected.`\
 https://nytimes.com/2025/06/05/us/trump-musk-tesla-ev-credits.html
-
-**Trump Administration Ends ‘Quiet Skies’ Traveler Surveillance Program**\
-`The program had briefly ensnared Tulsi Gabbard, the former Democratic congresswoman and now President Trump’s director of national intelligence, who has vocally criticized it as politicized.`\
-https://nytimes.com/2025/06/05/us/politics/trump-quiet-skies-surveillance-program.html
-
-**Trump Threatens Musk Contracts as Feud Escalates**\
-`Last year alone, companies owned by Elon Musk were promised $3 billion across nearly 100 different government contracts with 17 federal agencies.`\
-https://nytimes.com/2025/06/05/us/trump-musk-contracts-threat.html
 
