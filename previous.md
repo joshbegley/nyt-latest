@@ -1,3 +1,11 @@
+**Tom Felton to Reprise Draco Malfoy Role in ‘Harry Potter’ on Broadway**\
+`Felton makes his Broadway debut this November for a limited engagement, playing a grown-up Draco, through March.`\
+https://nytimes.com/2025/06/05/theater/draco-malfoy-tom-felton-harry-potter-broadway.html
+
+**Susan Choi: ‘I Feel I’ve Read Nothing but Great Books Recently’**\
+`The list includes “Heartwood,” “Other Worlds,” “The Wall” and “The Fact Checker.” Her own new novel is “Flashlight.”`\
+https://nytimes.com/2025/06/05/books/review/susan-choi-flashlight.html
+
 **The Republican Bill: Costs and Doubts**\
 `Readers respond to articles about the G.O.P. bill and some House Republicans’ regrets. Also: Restricting Covid vaccines; a decline in values.`\
 https://nytimes.com/2025/06/05/opinion/republican-bill.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6405737/2025/06/05/manchester-city-reijnders-odds/
 **Trump’s travel ban undermines Infantino’s World Cup vision**\
 `Infantino is discovering that the U.S. president's unpredictable nature can complicate his plans for 2026`\
 https://nytimes.com/athletic/6405729/2025/06/05/donald-trump-travel-ban-world-cup-infantino-fifa/
-
-**Top 10 Reader Favorites From the 100 Best New York Restaurants**\
-`From $$$$ tasting-menu splurges to a celebrated Brooklyn sandwich shop, here are the places New York Times readers have visited most.`\
-https://nytimes.com/2025/06/05/dining/reader-favorite-nyc-restaurants.html
-
-**How the Maker of the ‘Most Complex Machine Humans Ever Created’ Is Navigating Trade Fights**\
-`ASML, the Dutch company that makes multimillion-dollar tools to manufacture advanced semiconductors, is grappling with the repercussions of a tech trade war.`\
-https://nytimes.com/2025/06/05/technology/asml-chips-tariffs-trade.html
 
