@@ -1,3 +1,11 @@
+**Ravens extend WR Rashod Bateman, continue to prioritize their own players**\
+`Bateman is coming off a career year in which he had 756 receiving yards and nine touchdown receptions. `\
+https://nytimes.com/athletic/6405647/2025/06/05/rashod-bateman-ravens-contract-extension/
+
+**Sean Monahan wins Masterton Trophy after a season dedicated to Johnny Gaudreau**\
+`Monahan displayed composure and grace throughout a difficult season.`\
+https://nytimes.com/athletic/6404329/2025/06/05/sean-monahan-masterton-gaudreau/
+
 **New Zealand Parliament Suspends Lawmakers for Haka Dance Protest**\
 `Co-leaders of the Te Pāti Māori party, Rawiri Waititi and Debbie Ngarewa-Packer, were suspended on Thursday without pay for 21 days, and another member of the party, Hana-Rawhiti Maipi-Clarke, was suspended for seven days.`\
 https://nytimes.com/video/world/100000010209589/maori-lawmakers-suspended-haka-.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6404904/2025/06/05/nba-finals-thunder-pacers-favori
 **‘And So It Goes’ Traces Billy Joel’s Dramatic Early Days: 5 Takeaways**\
 `The first half of the HBO documentary premiered at the Tribeca Festival on Wednesday night. Joel, who is fighting a brain disorder, sent a message via its directors.`\
 https://nytimes.com/2025/06/05/arts/music/billy-joel-documentary-and-so-it-goes.html
-
-**Four States Ask F.D.A. to Lift Special Restrictions on Abortion Pill**\
-`The states consider it a move to force the F.D.A. to review and acknowledge extensive research showing the pill’s safety.`\
-https://nytimes.com/2025/06/05/health/mifepristone-abortion-pill-restrictions.html
-
-**Arsenal in advanced talks with Matteo Tognozzi over senior recruitment role**\
-`Sporting director Andrea Berta is hoping to expand the group working closest to him following the departure of Jason Ayto.`\
-https://nytimes.com/athletic/6405474/2025/06/05/arsenal-matteo-tognozzi-recruitment/
 
