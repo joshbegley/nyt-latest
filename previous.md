@@ -1,3 +1,27 @@
+**In N.Y.C. Mayoral Debate, Democrats Assail Cuomo and Vow to Resist Trump**\
+`Former Gov. Andrew Cuomo appeared exasperated and dismissive as his rivals attacked his record in a fractious first primary debate.`\
+https://nytimes.com/2025/06/05/nyregion/nyc-mayor-debate-cuomo.html
+
+**10 Questions With Whitney Tilson**\
+`Whitney Tilson, a former hedge fund executive who is running for mayor of New York City, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/05/nyregion/whitney-tilson-interview-mayor.html
+
+**The Man Whose Weather Forecast Saved the World**\
+`Getting the troops to Normandy on D-Day was a tremendous logistical undertaking. And it almost didn’t happen.`\
+https://nytimes.com/2025/06/05/weather/d-day-forecast-history-wwii.html
+
+**A How-To for the Self-Sacrificing Samurai, Now in English**\
+`A gory set of manuals, one dating to the 17th century, advised Japanese warriors in the secret ways of seppuku.`\
+https://nytimes.com/2025/06/05/science/samurai-seppuku-manual.html
+
+**On a Search for an Old E.V., Jay Leno’s Car Obsession Came Up Clutch**\
+`A Times reporter wanted to ride in a Baker Electric, a model from the electric vehicle past. Enter the comedian with the famous garage.`\
+https://nytimes.com/2025/06/05/business/on-a-search-for-an-old-ev-jay-lenos-car-obsession-came-up-clutch.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/05/crosswords/spelling-bee-forum.html
+
 **Cargo Ship Carrying Electric Vehicles Burns Off Alaska**\
 `The U.S. Coast Guard said it would allow the fire to burn because the cars’ lithium-ion batteries could explode. The ship’s crew escaped on a lifeboat.`\
 https://nytimes.com/2025/06/05/us/alaska-fire-ship-electric-vehicles.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/05/world/europe/us-russia-nord-stream-gas-pipeline.h
 **Word of the Day: caricature**\
 `This word has appeared in 198 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/05/learning/word-of-the-day-caricature.html
-
-**In War-Torn Nations, Trump’s Travel Ban Brings a New Hardship**\
-`For people in countries like Afghanistan and Myanmar, the president’s order dimmed hopes for sanctuary in the United States.`\
-https://nytimes.com/2025/06/05/world/asia/myanmar-afghanistan-trump-ban.html
-
-**The New York Times in Print for Thursday, June 5, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/05/todays-new-york-times
-
-**Tariffs Make the World Poorer and More Perilous**\
-`Free trade reduces the frictions that can arise between nations. Tariffs will only take away stability.`\
-https://nytimes.com/2025/06/05/opinion/tariffs-trade-us-security.html
-
-**Thursday Briefing**\
-`A new Trump travel ban.`\
-https://nytimes.com/2025/06/05/briefing/trump-travel-ukraine-gaza.html
-
-**Trump travel ban sparks World Cup questions — and more soccer issues**\
-`The Trump crackdown raises questions for soccer — and for the big tournaments on its horizon. We have some answers.`\
-https://nytimes.com/athletic/6404279/2025/06/05/trump-travel-ban-world-cup/
-
-**Kasey McAteer: 'We know why Leicester fans are angry. We need to fight for them'**\
-`The Leicester winger talks working with Ruud van Nistelrooy and an eerie quiet around Seagrave in their post-Jamie Vardy world`\
-https://nytimes.com/athletic/6402085/2025/06/05/kasey-mcateer-leicester-city-fans-van-nistelrooy/
 
