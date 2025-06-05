@@ -1,3 +1,11 @@
+**Judge Considers Early Release of Martin Luther King Jr. Assassination Documents**\
+`The materials are scheduled to be unsealed in 2027, but President Trump signed an executive order in January aimed at moving up the date.`\
+https://nytimes.com/2025/06/04/us/politics/mlk-jr-assassination-documents-release.html
+
+**See the Countries Under Trump’s New Travel Ban**\
+`Restrictions on travel will affect people from more than a dozen countries worldwide.`\
+https://nytimes.com/interactive/2025/06/04/us/politics/trump-travel-ban-map.html
+
 **Day 4: A Simple Trick for Better Ideas**\
 `Today, let’s think bigger with a fun game.`\
 https://nytimes.com/interactive/2025/well/creativity-work-ideas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6404047/2025/06/04/49ers-mac-jones-brock-purdy/
 **Marcell Ozuna chooses to play through hip injury, and Braves need him badly**\
 `In hopes of keeping Ozuna in the lineup all season, the Braves told the slugger to be “judicious on the base paths."`\
 https://nytimes.com/athletic/6404028/2025/06/04/marcell-ozuna-hip-injury-status/
-
-**Fearful House Republicans Scramble to Mollify Musk**\
-`Republicans in the chamber are bending over backward to appease the world’s richest man, who is furious at them for voting for a bill to deliver President Trump’s domestic policy agenda.`\
-https://nytimes.com/2025/06/04/us/politics/musk-house-republicans-trump.html
-
-**What we learned in annual 'state of NHL' availability: CBA won't tackle state taxes, plus LTIR, expansion more**\
-`Ahead of Game 1 of the Stanley Cup Final, the NHL and NHLPA leadership met with the press to address a number of pressing topics.`\
-https://nytimes.com/athletic/6404012/2025/06/04/nhl-commissioner-gary-bettman-taxes-expansion/
 

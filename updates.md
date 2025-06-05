@@ -1,3 +1,11 @@
+**Day 4: A Simple Trick for Better Ideas**\
+`Today, let’s think bigger with a fun game.`\
+https://nytimes.com/interactive/2025/well/creativity-work-ideas.html
+
+**‘We Don’t Want Them’: Trump Signs Travel Ban on Citizens From 12 Countries**\
+`The president’s proclamation barred travel from countries including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
+https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
+
 **Trump Restricts Harvard’s International Students From Entering U.S.**\
 `The Trump administration has sought a workaround to the courts, which have largely blocked his efforts to restrict foreign students.`\
 https://nytimes.com/2025/06/04/us/politics/trump-harvard-international-student-visas.html

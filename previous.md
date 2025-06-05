@@ -1,3 +1,7 @@
+**Day 4: A Simple Trick for Better Ideas**\
+`Today, let’s think bigger with a fun game.`\
+https://nytimes.com/interactive/2025/well/creativity-work-ideas.html
+
 **Trump Restricts Harvard’s International Students From Entering U.S.**\
 `The Trump administration has sought a workaround to the courts, which have largely blocked his efforts to restrict foreign students.`\
 https://nytimes.com/2025/06/04/us/politics/trump-harvard-international-student-visas.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6403758/2025/06/04/reds-lose-another-game-series-br
 `Ming Li Hui’s detention by the immigration authorities brought the reality of President Trump’s immigration crackdown to rural Missouri, where supporters rallied for her freedom.`\
 https://nytimes.com/2025/06/04/us/politics/carol-missouri-migrant.html
 
-**Trump Orders Entry Ban for People From 12 Countries**\
-`The president’s proclamation barred travel from a variety of countries, including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
+**‘We Don’t Want Them’: Trump Signs Travel Ban on Citizens From 12 Countries**\
+`The president’s proclamation barred travel from countries including Afghanistan, Chad, the Republic of Congo, Iran, Libya, Somalia, Sudan and Yemen.`\
 https://nytimes.com/2025/06/04/us/politics/trump-travel-ban.html
 
 **Mac Jones and Brock Purdy are old pals — and a big reason Jones is now a 49er**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/04/us/politics/musk-house-republicans-trump.html
 **What we learned in annual 'state of NHL' availability: CBA won't tackle state taxes, plus LTIR, expansion more**\
 `Ahead of Game 1 of the Stanley Cup Final, the NHL and NHLPA leadership met with the press to address a number of pressing topics.`\
 https://nytimes.com/athletic/6404012/2025/06/04/nhl-commissioner-gary-bettman-taxes-expansion/
-
-**At ‘CPAC of the Center,’ Democratic Moderates Beat Up on the Left**\
-`At a wonky gathering in Washington, centrist Democrats argued that they were the majority-makers the party needed to take control of Congress in 2026 and beyond.`\
-https://nytimes.com/2025/06/04/us/politics/democrats-centrists-moderates-welcome-pac.html
 
