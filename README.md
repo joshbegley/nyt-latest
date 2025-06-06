@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`A Musk-Trump fight.`\
+https://nytimes.com/2025/06/06/briefing/musk-trump-gaza.html
+
 **White Sox are calling up Kyle Teel, No. 24 in Keith Law's rankings: Reports**\
 `The White Sox might have some help on the way, as the club is reportedly calling up top prospect Kyle Teel from Triple-A Charlotte.`\
 https://nytimes.com/athletic/6407311/2025/06/06/white-sox-are-calling-up-kyle-teel-no-24-in-keith-laws-prospect-rankings-reports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402004/2025/06/06/jay-emmanuel-thomas-arsenal-pris
 **Ravel Morrison exclusive interview: Older, wiser and ‘moving on’ after Manchester United troubles**\
 `The player once heralded as the future of English football opens up about mistakes made, ADHD, his relationship with managers and the future`\
 https://nytimes.com/athletic/6402000/2025/06/06/ravel-morrison-manchester-united-interview/
-
-**Philipp Lahm: Wirtz and Musiala are artists who can become complete at Liverpool and Bayern**\
-`The young talents have plenty still to learn but, within a clear structure with club and country, they can become complete players`\
-https://nytimes.com/athletic/6404786/2025/06/06/philipp-lahm-wirtz-musiala-germany-liverpool-bayern/
 
