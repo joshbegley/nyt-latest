@@ -1,3 +1,11 @@
+**Trump Has Options to Punish Musk Even if His Federal Contracts Continue**\
+`The president could tighten federal oversight of the tech titan’s businesses, even if heavy reliance by the Pentagon and NASA on them makes terminating Mr. Musk’s contracts less feasible.`\
+https://nytimes.com/2025/06/06/us/politics/trump-musk-spacex-contracts.html
+
+**Justice Dept.’s Inspector General to Move to the Federal Reserve**\
+`Michael E. Horowitz, one of the few major watchdogs spared from a purge by President Trump, will also hunt for abuses at the Consumer Financial Protection Board — a Trump target.`\
+https://nytimes.com/2025/06/06/us/justice-inspector-general-fed.html
+
 **Trump as Channel-Changer in Chief**\
 `When the issues are intractable, why not pivot to surefire red meat?`\
 https://nytimes.com/2025/06/06/us/politics/trump-biden-autopen-ukraine-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/briefing/abrego-garcia-tonys.html
 **French Open recap: Why was the roof closed for Carlos Alcaraz vs. Lorenzo Musetti in sunny weather?**\
 `Why Carlos Alcaraz and Lorenzo Musetti played their French Open semifinal under a closed roof on a sunny day.`\
 https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-why-weather-rules/
-
-**Sunny Jacobs, a Celebrity After Freed From Death Row, Dies at 77**\
-`Her story, fashioned into an Off Broadway play and television movies, was later questioned by an investigator in a 2021 book.`\
-https://nytimes.com/2025/06/06/us/sonia-sunny-jacobs-dead.html
-
-**Diamondbacks' Corbin Burnes to undergo season-ending Tommy John surgery**\
-`Burnes will miss the rest of this season and most, if not all, of the 2026 season.`\
-https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-tommy-john-surgery/
 
