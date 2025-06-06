@@ -1,3 +1,5 @@
+
+
 **Why are international players flocking to the WNBA?**\
 `At the start of this season, the league had 34 players born outside the U.S., up from 25 at the beginning of the 2023 season.`\
 https://nytimes.com/athletic/6405479/2025/06/06/wnba-international-players-golden-state-valkyries/
