@@ -1,3 +1,19 @@
+**Dallas Stars fire coach Pete DeBoer after 3 seasons**\
+`The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
+https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
+
+**Singles Are Trying a Novel Approach to Dating: Meeting in Person**\
+`As Gen Z and Millennial daters flee the apps and look for love in the wild, many have no idea where to start.`\
+https://nytimes.com/2025/06/06/well/dating-irl-analog-online.html
+
+**Arise, Sir David Beckham: The Soccer Star Will Be Knighted**\
+`The British news media reported that the on-field golden boy and international celebrity will receive the honor from King Charles III.`\
+https://nytimes.com/2025/06/06/world/europe/david-beckham-knighthood.html
+
+**The 6.08.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/06/06/the-6082025-issue
+
 **Can Your Spouse Copy Your Snacks?**\
 `A ruling on whether originality matters when hunger strikes.`\
 https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.html

@@ -1,4 +1,8 @@
-**Dallas Stars fire coach Pete DeBoer after 3 seasons**\
+**Interpol Arrests 20 Over Network That Distributed Child Sex Abuse Material**\
+`The international sweep included arrests in 12 countries across Europe and the Americas. The agency said there were also dozens of other suspects.`\
+https://nytimes.com/2025/06/06/world/europe/interpol-child-sex-abuse-arrests.html
+
+**Stars fire coach Pete DeBoer after 3 seasons**\
 `The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
 https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407028/2025/06/06/new-york-rangers-stanley-cup-fin
 **The Windup: Braves registering on our panic meter**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-windup/
-
-**How to watch Padres at Brewers series this weekend, as San Diego scraps for NL West lead**\
-`Two playoff hopefuls get into a three-game tangle Friday through Sunday, with second-place San Diego visiting hot Milwaukee.`\
-https://nytimes.com/athletic/6406711/2025/06/06/padres-brewers-mlb-how-to-watch/
 
