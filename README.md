@@ -1,5 +1,5 @@
 **Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
-`President Trump also eased restrictions on commercial drone flightsand called for the revival of supersonic flights for nonmilitary aircraft.`\
+`President Trump also eased restrictions on commercial drone flights and called for the revival of supersonic flights for nonmilitary aircraft.`\
 https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
 
 **Driving a Famed Highway to Learn Why It’s Always Broken**\

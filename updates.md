@@ -1,3 +1,7 @@
+**Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
+`President Trump also eased restrictions on commercial drone flightsand called for the revival of supersonic flights for nonmilitary aircraft.`\
+https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
+
 **NBA trophy logos may return on Finals courts next year, Adam Silver says**\
 `Though the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
 https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silver/
