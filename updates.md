@@ -1,3 +1,11 @@
+**The Alarming Part of the Musk-Trump Dispute**\
+`The last 24 hours should be a lesson to all the other billionaires who lined up with the new administration.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-donald-trump-government-contracts
+
+**U.S. and China to Hold Economic Talks in London**\
+`Top American economic officials will meet with their Chinese counterparts next Monday in hopes of breaking a trade stalemate, President Trump said.`\
+https://nytimes.com/2025/06/06/us/politics/us-china-trade-talks-london.html
+
 **Blues fan survey: Contracts for Holloway, Broberg? Trade Kyrou? Sign Marner? Offseason priorities?**\
 `The Blues offseason fan survey includes 20 questions about confidence level in management, free agency, trades and more.`\
 https://nytimes.com/athletic/6408463/2025/06/06/blues-holloway-broberg-kyrou-marner/
