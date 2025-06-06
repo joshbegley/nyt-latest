@@ -1,3 +1,7 @@
+**Read the Abrego Garcia Indictment**\
+`The 10-page indictment, filed in the Middle District of Tennessee, charges the Maryland man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
+https://nytimes.com/interactive/2025/06/06/us/Abrego-Garcia-Indictment.html
+
 **Supreme Court Lets DOGE View Social Security Data**\
 `In a second order, the court ruled that, for now, DOGE does not have to hand over internal records to a government watchdog group as part of a lawsuit.`\
 https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.html
