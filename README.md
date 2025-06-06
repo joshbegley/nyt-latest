@@ -1,3 +1,11 @@
+**Trump Approves Expansion of Scandal-Hit Coal Mine**\
+`Environmental groups had opposed expanding a Montana mine previously caught up in allegations of cocaine trafficking and the faked kidnapping of an executive.`\
+https://nytimes.com/2025/06/06/climate/bull-mountain-coal-mine-trump.html
+
+**How Tyrese Haliburton and the Pacers stay calm, cool and connected in the clutch**\
+`His Pacers teammates have said they go as Haliburton goes, but as usual, it took the team as a whole to get the job done in Game 1.`\
+https://nytimes.com/athletic/6408589/2025/06/06/tyrese-haliburton-pacers-game-1/
+
 **New York City’s Best Chefs Pick Their Favorite Restaurants**\
 `We asked some of the chefs from our 100 best restaurants list where they love to dine out right now.`\
 https://nytimes.com/2025/06/06/dining/chef-nyc-best-restaurant-picks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6402238/2025/06/06/tottenham-sack-postecoglou-insid
 **Trump Administration Asks Justices to Clear the Way for Cuts to Education Department**\
 `Lawyers for the administration asked the Supreme Court to block a lower court order directing officials to reinstate thousands of fired employees.`\
 https://nytimes.com/2025/06/06/us/politics/supreme-court-trump-education-department.html
-
-**Former Southampton boss Juric appointed Atalanta head coach**\
-`Juric, who was sacked by the Premier League club in April, replaces Gian Piero Gasperini, who left earlier this month.`\
-https://nytimes.com/athletic/6407756/2025/06/06/atalanta-manager-ivan-juric/
-
-**Lil Wayne Gets Earnest With Bono, and 9 More New Songs**\
-`Hear tracks by Sabrina Carpenter, Ethel Cain, Sudan Archives and others.`\
-https://nytimes.com/2025/06/06/arts/music/playlist-lil-wayne-sabrina-carpenter.html
 
