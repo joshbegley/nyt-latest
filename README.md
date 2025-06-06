@@ -1,3 +1,7 @@
+**It’s Getting Harder for Trump to Keep the Gang Together**\
+`There are already indications that his coalition is fraying, and it’s not just Elon Musk.`\
+https://nytimes.com/2025/06/06/upshot/trump-musk-republicans-defection.html
+
 **Runaway Zebra Evades Capture in Tennessee**\
 `A pet zebra has been on the loose for almost a week after it escaped from its home in Rutherford County, Tenn.`\
 https://nytimes.com/video/us/100000010213004/zebra-tennessee-christiana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/us-china-trade-talks-london.html
 **Proud Boys Convicted in Jan. 6 Attack Sue Government on Claims of ‘Political Persecution’**\
 `Much of the lawsuit sought to re-litigate legal questions that sided against the group during a lengthy pretrial period and a multiweek trial in Federal District Court in Washington.`\
 https://nytimes.com/2025/06/06/us/politics/proud-boys-jan-6-lawsuit.html
-
-**Prime Tire: Did Max Verstappen get off lightly? A poll. Plus, a fix for the Monaco GP**\
-`The results of our survey will be tough reading for both Verstappen and the FIA officials...`\
-https://nytimes.com/athletic/6408851/2025/06/06/max-verstappen-penalty-monaco-gp-f1-prime-tire/
 

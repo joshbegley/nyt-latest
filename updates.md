@@ -1,3 +1,11 @@
+**Runaway Zebra Evades Capture in Tennessee**\
+`A pet zebra has been on the loose for almost a week after it escaped from its home in Rutherford County, Tenn.`\
+https://nytimes.com/video/us/100000010213004/zebra-tennessee-christiana.html
+
+**Abrego Garcia Is Being Returned to U.S. From El Salvador**\
+`Kilmar Armando Abrego Garcia, who had been living in Maryland and legally protected from deportation, had been held in a notorious Salvadoran prison since March 15.`\
+https://nytimes.com/2025/06/06/us/politics/kilmar-abrego-garcia-us-criminal-charges.html
+
 **Why Coco Gauff and Aryna Sabalenka's French Open final is a chase for each other's dreams**\
 `Gauff and Sabalenka are the top-ranked women's tennis players. They each have — and covet — less tangible things that the other possesses.`\
 https://nytimes.com/athletic/6408477/2025/06/06/gauff-sabalenka-tennis-french-open-final-bio-head-to-head/
