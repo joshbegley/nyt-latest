@@ -1,3 +1,15 @@
+**Proud Boys Convicted in Jan. 6 Attack Sue Government on Claims of ‘Political Persecution’**\
+`Much of the lawsuit sought to re-litigate legal questions that sided against the group during a lengthy pretrial period and a multiweek trial in Federal District Court in Washington.`\
+https://nytimes.com/2025/06/06/us/politics/proud-boys-jan-6-lawsuit.html
+
+**Prime Tire: Did Max Verstappen get off lightly? A poll. Plus, a fix for the Monaco GP**\
+`The results of our survey will be tough reading for both Verstappen and the FIA officials...`\
+https://nytimes.com/athletic/6408851/2025/06/06/max-verstappen-penalty-monaco-gp-f1-prime-tire/
+
+**Is It OK to Earn Rental Income From an ICE Holding Facility?**\
+`What are the ethics of receiving money from an entity you consider kind of evil?`\
+https://nytimes.com/2025/06/06/magazine/income-ice-facility-ethics.html
+
 **Law Would Make Most National Weather Service Workers Hard to Fire**\
 `A bill introduced Friday would classify forecasters and other staff as critical public safety roles. It comes after the Weather Service lost nearly 600 people to DOGE cuts.`\
 https://nytimes.com/2025/06/06/us/politics/nws-weather-jobs-hiring-bill-congress.html
