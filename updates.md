@@ -1,3 +1,15 @@
+**Law Would Make Most National Weather Service Workers Hard to Fire**\
+`A bill introduced Friday would classify forecasters and other staff as critical public safety roles. It comes after the Weather Service lost nearly 600 people to DOGE cuts.`\
+https://nytimes.com/2025/06/06/us/politics/nws-weather-jobs-hiring-bill-congress.html
+
+**Flashback: Your Weekly History Quiz, June 7, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/06/06/upshot/flashback.html
+
+**Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
+`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game three days later.`\
+https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
+
 **England’s High Court Warns Lawyers to Stop Citing Fake A.I.-Generated Cases**\
 `A senior judge said on Friday that lawyers could be prosecuted for presenting material that had been “hallucinated” by artificial intelligence tools.`\
 https://nytimes.com/2025/06/06/world/europe/england-high-court-ai.html

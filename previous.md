@@ -1,9 +1,17 @@
+**Law Would Make Most National Weather Service Workers Hard to Fire**\
+`A bill introduced Friday would classify forecasters and other staff as critical public safety roles. It comes after the Weather Service lost nearly 600 people to DOGE cuts.`\
+https://nytimes.com/2025/06/06/us/politics/nws-weather-jobs-hiring-bill-congress.html
+
+**Flashback: Your Weekly History Quiz, June 7, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/06/06/upshot/flashback.html
+
 **England’s High Court Warns Lawyers to Stop Citing Fake A.I.-Generated Cases**\
 `A senior judge said on Friday that lawyers could be prosecuted for presenting material that had been “hallucinated” by artificial intelligence tools.`\
 https://nytimes.com/2025/06/06/world/europe/england-high-court-ai.html
 
 **Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
-`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game two days later.`\
+`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game three days later.`\
 https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
 
 **How Teagan Kavan’s unshakeable approach has carried Texas through WCWS run**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/trump-documentary-series.html
 **Karol G’s Love Letter to Latinas, Plus 4 More New Songs**\
 `Hear tracks by Bruce Springsteen, Moses Sumney and more.`\
 https://nytimes.com/2025/06/06/podcasts/karol-gs-love-letter-to-latinas-plus-4-more-new-songs.html
-
-**Overlooked No More: Hong Yen Chang, Lawyer Who Challenged a Racist System**\
-`He struggled to become the first Chinese American person to practice law in the U.S., then used his training to fight for other Chinese Americans.`\
-https://nytimes.com/2025/06/06/obituaries/hong-yen-chang-overlooked.html
-
-**USMNT kicks off a summer of redemption and audition**\
-`With so many key figures missing out, there's a summer's worth of opportunity for USMNT World Cup hopefuls.`\
-https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-pochettino-roster-spots/
 
