@@ -1,3 +1,11 @@
+**NiJaree Canady signs another 7-figure NIL deal with Texas Tech**\
+`Canady made headlines last year for transferring from Stanford to Texas Tech and signing an NIL deal worth over $1 million.`\
+https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-tech-softball/
+
+**Trade Brought Them Together. What Happens Now?**\
+`Chinese-U.S. trade is not just shipping containers and customs forms. It is underpinned by relationships between entrepreneurs. But now the turmoil over the Trump administration’s tariffs is threatening to fray longstanding personal ties.`\
+https://nytimes.com/interactive/2025/06/06/business/us-china-xi-tariffs-trade-war.html
+
 **The Alarming Part of the Musk-Trump Dispute**\
 `The last 24 hours should be a lesson to all the other billionaires who lined up with the new administration.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-donald-trump-government-contracts

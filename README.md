@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-te
 `Chinese-U.S. trade is not just shipping containers and customs forms. It is underpinned by relationships between entrepreneurs. But now the turmoil over the Trump administration’s tariffs is threatening to fray longstanding personal ties.`\
 https://nytimes.com/interactive/2025/06/06/business/us-china-xi-tariffs-trade-war.html
 
+**Why Coco Gauff and Aryna Sabalenka's French Open final is a chase for each other's dreams**\
+`Gauff and Sabalenka are the top-ranked women's tennis players. They each have — and covet — less tangible things that the other possesses.`\
+https://nytimes.com/athletic/6408477/2025/06/06/gauff-sabalenka-tennis-french-open-final-bio-head-to-head/
+
 **The Alarming Part of the Musk-Trump Dispute**\
 `The last 24 hours should be a lesson to all the other billionaires who lined up with the new administration.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-donald-trump-government-contracts
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/magazine/income-ice-facility-ethics.html
 **Law Would Make Most National Weather Service Workers Hard to Fire**\
 `A bill introduced Friday would classify forecasters and other staff as critical public safety roles. It comes after the Weather Service lost nearly 600 people to DOGE cuts.`\
 https://nytimes.com/2025/06/06/us/politics/nws-weather-jobs-hiring-bill-congress.html
-
-**Flashback: Your Weekly History Quiz, June 7, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/06/06/upshot/flashback.html
 
