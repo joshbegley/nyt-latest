@@ -1,3 +1,7 @@
+**Mets takeaways: Bad defense leads to split with Dodgers, Francisco Lindor's toe**\
+`Pete Alonso's continuing power surge wasn't enough as New York lost 6-5 in Los Angeles in the series finale.`\
+https://nytimes.com/athletic/6407063/2025/06/05/new-york-mets-dodgers-francisco-lindor-pete-alonso/
+
 **Day 5: An Easy Way to Stay Inspired**\
 `Today, try one new thing.`\
 https://nytimes.com/interactive/2025/well/creativity-hobby-activity-routine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/us/politics/musk-trump-attacks-feud.html
 **Marc Garneau, First Canadian in Space, Dies at 76**\
 `His career took flight with a newspaper ad in Ottawa — the same city where he would later help steer the country under Prime Minister Justin Trudeau.`\
 https://nytimes.com/2025/06/05/world/canada/mark-garneau-canadian-astronaut-dead.html
-
-**Pakistani Man Convicted of Smuggling Iranian Missile Parts Headed to Houthi Rebels**\
-`Muhammad Pahlawan was captured by American forces off the coast of Somalia in a raid last year that led to the deaths of two Navy SEALs.`\
-https://nytimes.com/2025/06/05/us/politics/pakistani-smuggling-iran-missile-houthis.html
 

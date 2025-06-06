@@ -1,3 +1,7 @@
+**Mets takeaways: Bad defense leads to split with Dodgers, Francisco Lindor's toe**\
+`Pete Alonso's continuing power surge wasn't enough as New York lost 6-5 in Los Angeles in the series finale.`\
+https://nytimes.com/athletic/6407063/2025/06/05/new-york-mets-dodgers-francisco-lindor-pete-alonso/
+
 **Day 5: An Easy Way to Stay Inspired**\
 `Today, try one new thing.`\
 https://nytimes.com/interactive/2025/well/creativity-hobby-activity-routine.html
