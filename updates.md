@@ -1,3 +1,7 @@
+**Solid Report Bolsters Fed’s Patient Approach to Interest Rate Cuts**\
+`The central bank is in wait-and-see mode amid extreme uncertainty about the economic outlook.`\
+https://nytimes.com/2025/06/06/business/jobs-fed-interest-rates.html
+
 **13 Great Songs of the Tonys Season**\
 `Our critic listened to the cast recordings of all the nominated musicals and picked one of his favorite tracks from each.`\
 https://nytimes.com/2025/06/06/theater/tony-awards-season-musical-songs.html
