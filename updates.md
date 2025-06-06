@@ -1,3 +1,11 @@
+**Rosenthal: After hitting ‘rock bottom,’ Braves can still salvage their season - if they snap out of it**\
+`The Braves are talented enough to bounce back, but even the returns of Ronald Acuña Jr. and Spencer Strider haven't led to a turnaround yet.`\
+https://nytimes.com/athletic/6407214/2025/06/06/atlanta-braves-rock-bottom-season/
+
+**How the Thunder's usually impeccable defense sprang leaks late in Game 1 loss**\
+`Indiana found holes in Oklahoma City's coverages down the stretch. Can the Thunder fix their mistakes before Game 2?`\
+https://nytimes.com/athletic/6407404/2025/06/06/thunder-defense-game-1-nba-finals/
+
 **The Pulse: How many buzzer beaters can one man hit?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6406113/2025/06/06/tyrese-haliburton-thunder-game-winner-the-pulse/
