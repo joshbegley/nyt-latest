@@ -1,3 +1,7 @@
+**Former Southampton boss Juric appointed Atalanta head coach**\
+`Juric, who was sacked by the Premier League club in April, replaces Gian Piero Gasperini, who left earlier this month.`\
+https://nytimes.com/athletic/6407756/2025/06/06/atalanta-manager-ivan-juric/
+
 **Lil Wayne Gets Earnest With Bono, and 9 More New Songs**\
 `Hear tracks by Sabrina Carpenter, Ethel Cain, Sudan Archives and others.`\
 https://nytimes.com/2025/06/06/arts/music/playlist-lil-wayne-sabrina-carpenter.html
