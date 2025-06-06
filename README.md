@@ -1,3 +1,7 @@
+**Breaking down Rayan Cherki's effortlessly brilliant 30-minute cameo against Spain**\
+`It is hard not be enchanted by Cherki when he has the ball at his feet — as Premier League fans may soon discover`\
+https://nytimes.com/athletic/6407629/2025/06/06/rayan-cherki-france-spain-premier-league-transfer/
+
 **Counting Up the Potential Costs of the Trump-Musk Rift**\
 `The clash between the president and Teslas C.E.O. wiped billions off the electric vehicle maker’s market capitalization. Other risks abound.`\
 https://nytimes.com/2025/06/06/business/dealbook/musk-trump-fight.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406614/2025/06/06/bruins-roster-don-sweeney-marco-
 **Why 'special' Caleb Desnoyers is one of 2025 NHL Draft's top prospects**\
 `Desnoyers is a potential top-five pick who was the QMJHL playoff MVP and led Moncton to the Memorial Cup.`\
 https://nytimes.com/athletic/6378213/2025/06/06/caleb-desnoyers-2025-nhl-draft/
-
-**The EA Sports College Football 26 teams we are most excited to play**\
-`The pressure is on Brent Venables and Oklahoma to perform on the actual field, but on the virtual field, the Sooners are guaranteed fun. `\
-https://nytimes.com/athletic/6400551/2025/06/06/ea-sports-college-football-26-best-teams-to-play/
 
