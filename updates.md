@@ -1,3 +1,11 @@
+**Here’s what to know about the report.**\
+`Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/jobs-report-may
+
+**Live Updates: In Chaotic Economy, Hiring Likely Remained Steady in May**\
+`Economists expect the Labor Department’s monthly report to show that hiring proceeded at a healthy rate in May, with employers adding 125,000 jobs.`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy
+
 **Here’s the latest.**\
 `By Tyler Pager and Theodore Schleifer`\
 https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud/heres-the-latest
