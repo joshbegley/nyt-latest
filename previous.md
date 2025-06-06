@@ -1,3 +1,7 @@
+**Paul Durcan, Irish Poet of Tortured and Tender Souls, Is Dead at 80**\
+`He survived electroshock treatments and the threat of lobotomy to become one of Ireland’s most popular poets. The Irish Times called him a “literary phenomenon.”`\
+https://nytimes.com/2025/06/06/books/paul-durcan-dead.html
+
 **Thunderstruck! How the Pacers pulled off another dramatic comeback**\
 `Game 1 of the NBA Finals was the Pacers’ fifth comeback victory from a deficit of 15 or more points in the 2025 playoffs.`\
 https://nytimes.com/athletic/6408712/2025/06/06/pacers-thunder-nba-finals-game-1-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/06/us/politics/trump-elon-musk-relations
 **Paul Weiss Loses Another Prominent Lawyer in Wake of Trump Deal**\
 `Damian Williams joined Paul Weiss Rifkind Wharton & Garrison in January shortly after stepping down as one of the nation’s top federal prosecutors. He is taking a job with Jenner & Block.`\
 https://nytimes.com/2025/06/06/business/paul-weiss-trump-law-firms-damian-williams.html
-
-**Chiesa insists he is at happy at Liverpool despite frustrating season**\
-`The Italian forward moved to Merseyside from Juventus in a £10million deal last summer but found first-team opportunities limited.`\
-https://nytimes.com/athletic/6408680/2025/06/06/federico-chiesa-liverpool-future/
 
