@@ -1,3 +1,15 @@
+**A Truly Showstopping Grilled Beef Tenderloin**\
+`For one, there’s a red-wine-soaked towel involved.`\
+https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderloin.html
+
+**13 Off Broadway Shows to See in June**\
+`Reed Birney and Lisa Emery in a two-hander, Taylor Mac in a Molière riff and Jay Ellis in a romantic drama — here’s what’s on New York stages this month.`\
+https://nytimes.com/2025/06/06/theater/off-broadway-shows-june.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s selections, romance across dimensions and an animated entry in the “Predator” franchise.`\
+https://nytimes.com/2025/06/06/movies/science-fiction-movies-streaming.html
+
 **Interpol Arrests 20 Over Network That Distributed Child Sex Abuse Material**\
 `The international sweep included arrests in 12 countries across Europe and the Americas. The agency said there were also dozens of other suspects.`\
 https://nytimes.com/2025/06/06/world/europe/interpol-child-sex-abuse-arrests.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.
 **Can Bucks extend Giannis' prime and develop young players? Bucks mailbag, Part II**\
 `Late in the season, did the Bucks unlock a version of Antetokounmpo that could prolong the two-time MVP's athletic prime?`\
 https://nytimes.com/athletic/6405921/2025/06/06/giannis-antetokounmpos-bucks-mailbag/
-
-**Elon Musk and Donald Trump Are Splitsville, Until They Aren’t**\
-`For all the insults that Mr. Musk and Mr. Trump traded on Thursday, don’t be surprised if they make up again days from now. In the meantime, they both benefit.`\
-https://nytimes.com/2025/06/06/technology/elon-musk-trump-feud.html
-
-**After disastrous 2024-25 season, how can regrouping Rangers learn from this year's Stanley Cup finalists?**\
-`As GM Chris Drury continues his roster makeover, here are four areas where the Rangers can learn from the dominant Oilers and Panthers.`\
-https://nytimes.com/athletic/6407028/2025/06/06/new-york-rangers-stanley-cup-final-nhl/
-
-**The Windup: Braves registering on our panic meter**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-windup/
 
