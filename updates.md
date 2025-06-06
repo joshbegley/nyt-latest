@@ -1,3 +1,11 @@
+**Palantir’s Collection of Disease Data at C.D.C. Stirs Privacy Concerns**\
+`U.S. and state officials say the consolidation of the public health agency’s vast trove of information could expose patients and will delay analysis of long-term trends.`\
+https://nytimes.com/2025/06/06/health/cdc-data-privacy-palantir.html
+
+**Why Tottenham sacked Ange Postecoglou, the manager who ended their 17-year trophy drought**\
+`The inside story behind Levy's decision to sack Postecoglou, after a historically bad domestic season but also Europa League glory`\
+https://nytimes.com/athletic/6402238/2025/06/06/tottenham-sack-postecoglou-inside-read/
+
 **Trump Administration Asks Justices to Clear the Way for Cuts to Education Department**\
 `Lawyers for the administration asked the Supreme Court to block a lower court order directing officials to reinstate thousands of fired employees.`\
 https://nytimes.com/2025/06/06/us/politics/supreme-court-trump-education-department.html
