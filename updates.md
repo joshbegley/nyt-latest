@@ -1,3 +1,7 @@
+**What does President Trump’s travel ban mean for global sporting events?**\
+`"The exemptions have some sports leaders hopeful that the effects of the ban on international events will be minimal." `\
+https://nytimes.com/athletic/6407167/2025/06/05/trump-travel-ban-sports-event-impact/
+
 **Storm GM on WNBA's review of complaint: 'It's not an investigation'**\
 `The WNBA reviewed a complaint that a Seattle assistant coach cursed at an Aces player, but no formal discipline is expected.`\
 https://nytimes.com/athletic/6407210/2025/06/05/wnba-complaint-storm-jewell-loyd/
