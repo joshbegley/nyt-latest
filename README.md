@@ -1,3 +1,7 @@
+**Job Market Is Getting Tougher for College Graduates**\
+`Researchers attributed some of the difficulty finding jobs to larger societal shifts, including the growing use of artificial intelligence.`\
+https://nytimes.com/2025/06/06/business/job-market-college-graduates.html
+
 **Balloons and Human Strength: How North Korea Righted a Toppled Warship**\
 `Satellite images show the unconventional strategy engineers used to get the 5,000-ton vessel afloat.`\
 https://nytimes.com/2025/06/06/world/asia/north-korea-warship-salvage-capsize.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406208/2025/06/06/knicks-tom-thibodeau-firing-nba-
 **WCWS’ mad carnival meets an NBA Finals stunner: Two days in Oklahoma City’s sports vortex**\
 `A city that didn’t exist a century and a half ago, a town off the major-sport grid when this century began, is sports' latest magnetic north`\
 https://nytimes.com/athletic/6407291/2025/06/06/nba-finals-wcws-oklahoma-city-thunder/
-
-**Brenden Aaronson: My game in my words**\
-`From playing different positions to leading the press, the Leeds and USMNT attacking midfielder talks us through how he plays soccer`\
-https://nytimes.com/athletic/6388230/2025/06/06/brenden-aaronson-leeds-usmnt-my-game/
 
