@@ -1,3 +1,11 @@
+**Maple Leafs add ex-Red Wings HC Derek Lalonde as assistant**\
+`Lalonde, who most recently coached the Red Wings, will take over Lane Lambert's duties behind the Maple Leafs bench.`\
+https://nytimes.com/athletic/6409222/2025/06/06/maple-leafs-derek-lalonde-assistant-coach/
+
+**NHL rumblings: What comes next for the Stars after firing Pete DeBoer?**\
+`Taking over a team that's gone to three straight conference finals and has a locked-up core is a good opportunity. Who are the candidates?`\
+https://nytimes.com/athletic/6409217/2025/06/06/stars-peter-deboer-firing-rumblings/
+
 **Dubas says Penguins might be aggressive on offseason trade market**\
 `Dubas is willing and perhaps likely to make some significant deals in the next month. Just don't expect the same action in free agency.`\
 https://nytimes.com/athletic/6409093/2025/06/06/penguins-nhl-draft-combine-kyle-dubas/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/upshot/trump-musk-republicans-defection.html
 **Runaway Zebra Evades Capture in Tennessee**\
 `A pet zebra has been on the loose for almost a week after it escaped from its home in Rutherford County, Tenn.`\
 https://nytimes.com/video/us/100000010213004/zebra-tennessee-christiana.html
-
-**Abrego Garcia Is Returned to U.S. From El Salvador**\
-`Kilmar Armando Abrego Garcia, who had been living in Maryland and legally protected from deportation, had been held in a notorious Salvadoran prison since March 15.`\
-https://nytimes.com/2025/06/06/us/politics/kilmar-abrego-garcia-us-criminal-charges.html
-
-**NiJaree Canady signs another 7-figure NIL deal with Texas Tech**\
-`Canady made headlines last year for transferring from Stanford to Texas Tech and signing an NIL deal worth over $1 million.`\
-https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-tech-softball/
 
