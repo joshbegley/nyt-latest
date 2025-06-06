@@ -1,3 +1,7 @@
+**Cardinals takeaways: 3 trends to watch after a series loss to Royals**\
+`How the Cardinals play this month could have heavy ramifications on their trade deadline plans.`\
+https://nytimes.com/athletic/6406757/2025/06/06/cardinals-takeaways-trends-after-series-loss-royals/
+
 **Friday Briefing**\
 `A Musk-Trump fight.`\
 https://nytimes.com/2025/06/06/briefing/musk-trump-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6399506/2025/06/06/rayan-ait-nouri-manchester-city-
 **The fall of Jay Emmanuel-Thomas - from Arsenal youth captain to shame and prison for drug smuggling**\
 `The story is one of a lower-league footballer who fell to temptation, with his lies and deceit bringing shame and now a prison sentence`\
 https://nytimes.com/athletic/6402004/2025/06/06/jay-emmanuel-thomas-arsenal-prison/
-
-**Ravel Morrison exclusive interview: Older, wiser and ‘moving on’ after Manchester United troubles**\
-`The player once heralded as the future of English football opens up about mistakes made, ADHD, his relationship with managers and the future`\
-https://nytimes.com/athletic/6402000/2025/06/06/ravel-morrison-manchester-united-interview/
 
