@@ -1,3 +1,11 @@
+**Lil Wayne Gets Earnest With Bono, and 9 More New Songs**\
+`Hear tracks by Sabrina Carpenter, Ethel Cain, Sudan Archives and others.`\
+https://nytimes.com/2025/06/06/arts/music/playlist-lil-wayne-sabrina-carpenter.html
+
+**Tottenham part company with Ange Postecoglou as head coach**\
+`A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
+https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
+
 **Trump Has Power, a Big Megaphone and Billions to Spend. So Does Musk.**\
 `President Trump is locked in a showdown with the world’s richest man, who is far from a typical opponent.`\
 https://nytimes.com/2025/06/06/us/politics/trump-musk.html

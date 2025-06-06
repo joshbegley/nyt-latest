@@ -1,3 +1,7 @@
+**Lil Wayne Gets Earnest With Bono, and 9 More New Songs**\
+`Hear tracks by Sabrina Carpenter, Ethel Cain, Sudan Archives and others.`\
+https://nytimes.com/2025/06/06/arts/music/playlist-lil-wayne-sabrina-carpenter.html
+
 **Trump Has Power, a Big Megaphone and Billions to Spend. So Does Musk.**\
 `President Trump is locked in a showdown with the world’s richest man, who is far from a typical opponent.`\
 https://nytimes.com/2025/06/06/us/politics/trump-musk.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
 `The incident drew comparisons to the infamous 1968 "Heidi Game."`\
 https://nytimes.com/athletic/6408336/2025/06/06/nba-finals-indiana-pacers-tv-station-news/
 
-**Tottenham expected to part company with Ange Postecoglou as head coach**\
+**Tottenham part company with Ange Postecoglou as head coach**\
 `A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
 https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/transgender-troops-ban-discharge-deadline.html
 **Roma appoint Gasperini after Ranieri exit**\
 `The 67-year-old spent nine years at Atalanta, with whom he won the 2023-24 Europa League and regularly qualified for the Champions League.`\
 https://nytimes.com/athletic/6408436/2025/06/06/roma-manager-gasperini-ranieri/
-
-**The Trump-Musk Meltdown Explained**\
-`Ryan Mac has covered Elon Musk for years and was co-author of a book about him, but he’s never seen anything quite like this. He describes what set off the meltdown in Mr. Musk and President Trump’s relationship, and its potential effects.`\
-https://nytimes.com/video/us/politics/100000010211539/trump-musk-meltdown-explained.html
 
