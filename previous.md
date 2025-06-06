@@ -1,3 +1,11 @@
+**Blues fan survey: Contracts for Holloway, Broberg? Trade Kyrou? Sign Marner? Offseason priorities?**\
+`The Blues offseason fan survey includes 20 questions about confidence level in management, free agency, trades and more.`\
+https://nytimes.com/athletic/6408463/2025/06/06/blues-holloway-broberg-kyrou-marner/
+
+**U.S. and China to Hold Economic Talks in London**\
+`Top American economic officials will meet with their Chinese counterparts next Monday in hopes of breaking trade stalemate, President Trump said.`\
+https://nytimes.com/2025/06/06/us/politics/us-china-trade-talks-london.html
+
 **Proud Boys Convicted in Jan. 6 Attack Sue Government on Claims of ‘Political Persecution’**\
 `Much of the lawsuit sought to re-litigate legal questions that sided against the group during a lengthy pretrial period and a multiweek trial in Federal District Court in Washington.`\
 https://nytimes.com/2025/06/06/us/politics/proud-boys-jan-6-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsen
 **How Teagan Kavan’s unshakeable approach has carried Texas through WCWS run**\
 `Kavan's unassuming nature disguises a fierce competitor trusted to deliver Texas its first national championship in Game 3 on Friday.`\
 https://nytimes.com/athletic/6408808/2025/06/06/teagan-kavan-texas-texas-tech-womens-college-world-series-game-3/
-
-**What to Know About Harvard’s Legal Battles With Trump**\
-`This week, a federal judge sided with Harvard in one of its two lawsuits, blocking an order by President Trump to prevent international students from enrolling.`\
-https://nytimes.com/article/harvard-trump-legal-battles.html
-
-**Reagan Airport Is Pausing Flights for Trump’s Military Parade. What Will It Mean for Travelers?**\
-`Some flights near Washington will be suspended on June 14 to accommodate military flyovers and fireworks displays. Here’s how it might affect travelers.`\
-https://nytimes.com/2025/06/06/travel/trump-military-parade-reagan-airport-closure.html
 

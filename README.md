@@ -1,9 +1,13 @@
+**The Alarming Part of the Musk-Trump Dispute**\
+`The last 24 hours should be a lesson to all the other billionaires who lined up with the new administration.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-donald-trump-government-contracts
+
 **Blues fan survey: Contracts for Holloway, Broberg? Trade Kyrou? Sign Marner? Offseason priorities?**\
 `The Blues offseason fan survey includes 20 questions about confidence level in management, free agency, trades and more.`\
 https://nytimes.com/athletic/6408463/2025/06/06/blues-holloway-broberg-kyrou-marner/
 
 **U.S. and China to Hold Economic Talks in London**\
-`Top American economic officials will meet with their Chinese counterparts next Monday in hopes of breaking trade stalemate, President Trump said.`\
+`Top American economic officials will meet with their Chinese counterparts next Monday in hopes of breaking a trade stalemate, President Trump said.`\
 https://nytimes.com/2025/06/06/us/politics/us-china-trade-talks-london.html
 
 **Proud Boys Convicted in Jan. 6 Attack Sue Government on Claims of ‘Political Persecution’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/world/europe/england-high-court-ai.html
 **Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
 `Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game three days later.`\
 https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
-
-**How Teagan Kavan’s unshakeable approach has carried Texas through WCWS run**\
-`Kavan's unassuming nature disguises a fierce competitor trusted to deliver Texas its first national championship in Game 3 on Friday.`\
-https://nytimes.com/athletic/6408808/2025/06/06/teagan-kavan-texas-texas-tech-womens-college-world-series-game-3/
 
