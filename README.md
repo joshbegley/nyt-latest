@@ -1,3 +1,11 @@
+**For Sale: One Red Tesla, Once Belonging to the President**\
+`The car, which President Trump acquired in March to show his support for Elon Musk, is one of the first tangible casualties of their shattered alliance.`\
+https://nytimes.com/2025/06/06/us/politics/trump-tesla-elon-musk.html
+
+**Musk and Trump’s Reality TV Dispute**\
+`This dispute is reminiscent of “Real Housewives,” where women divvy their loyalties up behind whoever is the reigning alpha.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-trump-fight-masculinity
+
 **The departure of Hobbs makes one thing clear: Wolves are going all-in on Pereira**\
 `If Pereira proves as good at team-building off the pitch as on it, the change at Molineux might turn out to be inspired`\
 https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
 https://nytimes.com/athletic/6408336/2025/06/06/nba-finals-indiana-pacers-tv-station-news/
 
 **Tottenham expected to part company with Ange Postecoglou as head coach**\
-`The 59-year-old will leave the north London club despite having won the Europa League with victory over Manchester United.`\
+`A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
 https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
 
 **S.A. Cosby on the Appeal of Small-Town Crime Stories**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010211539/trump-musk-meltdown-explai
 **A Different Kind of D-Day, Laden With Anxiety Among Old Allies**\
 `Defense Secretary Pete Hegseth honored the sacrifices of the soldiers who died landing in France 81 years ago. But there was no escaping current tensions.`\
 https://nytimes.com/2025/06/06/world/europe/d-day-anniversary-2025-normandy-hegseth.html
-
-**Canada's Whitecaps players back in training after Marsch alleges 'poisoning'**\
-`The Canada manager was not thrilled about the shape of three of his players following the Concacaf Champions Cup final`\
-https://nytimes.com/athletic/6408457/2025/06/06/vancouver-whitecaps-canada-players-mexico-marsch-food-poisoning/
-
-**If Elon Musk and President Trump Divorce, Who Gets Silicon Valley?**\
-`The relationship between Mr. Trump and tech industry power brokers was built on money and the promise of deregulation, with Mr. Musk in the middle of it all.`\
-https://nytimes.com/2025/06/06/technology/elon-musk-trump-silicon-valley-tech.html
 
