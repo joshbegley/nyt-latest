@@ -1,3 +1,11 @@
+**2025 Tony Awards Predictions: Which Shows and Performers Will Win?**\
+`Expect wins for the musicals “Maybe Happy Ending” and “Sunset Boulevard,” but the races for best play and leading actress in a musical are too close to call.`\
+https://nytimes.com/2025/06/06/theater/tony-awards-predictions-2025.html
+
+**Word of the Day: unctuous**\
+`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/06/learning/word-of-the-day-unctuous.html
+
 **Lamine Yamal and the curious finish which shows why he is different**\
 `The 17-year-old was at his rampant best in Spain's 5-4 win vs France — but it was his second goal that gave a glimpse of how unusual he is`\
 https://nytimes.com/athletic/6407159/2025/06/06/lamine-yamal-spain-nations-league/
