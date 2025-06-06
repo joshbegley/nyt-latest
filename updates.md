@@ -1,3 +1,15 @@
+**Supreme Court Lets DOGE View Social Security Data**\
+`In a second order, the court ruled that, for now, DOGE does not have to hand over internal records to a government watchdog group as part of a lawsuit.`\
+https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.html
+
+**The numbers behind the Pacers' 5 wild comebacks in the NBA playoffs**\
+`The Pacers have come back from deficits of 15 points or more five times this playoffs, leading to some staggering stats.`\
+https://nytimes.com/athletic/6408653/2025/06/06/pacers-thunder-nba-finals-playoff-comebacks/
+
+**Democrats Threaten Trump Prosecutor Picks, Pointing to Past Vance Blockade**\
+`The top Democrat on the Judiciary Committee said Vice President JD Vance had set a precedent for derailing U.S. attorney candidates during his time in the Senate.`\
+https://nytimes.com/2025/06/06/us/politics/democrats-trump-vance-prosecutors.html
+
 **Maple Leafs add ex-Red Wings HC Derek Lalonde as assistant**\
 `Lalonde, who most recently coached the Red Wings, will take over Lane Lambert's duties behind the Maple Leafs bench.`\
 https://nytimes.com/athletic/6409222/2025/06/06/maple-leafs-derek-lalonde-assistant-coach/

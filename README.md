@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6409093/2025/06/06/penguins-nhl-draft-combine-kyle-
 https://nytimes.com/athletic/6409129/2025/06/06/sinner-djokovic-french-open-result-analysis-alcaraz/
 
 **Read the Abrego Garcia Indictment**\
-`The 10-page indictment, filed in the Middle District of Tennessee, charges the man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
+`The 10-page indictment, filed in the Middle District of Tennessee, charges the Maryland man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
 https://nytimes.com/interactive/2025/06/06/us/Abrego-Garcia-Indictment.html
 
 **What I'm hearing about Senators' first-round pick, Drake Batherson, Claude Giroux and more**\

@@ -1,3 +1,15 @@
+**Supreme Court Lets DOGE View Social Security Data**\
+`In a second order, the court ruled that, for now, DOGE does not have to hand over internal records to a government watchdog group as part of a lawsuit.`\
+https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.html
+
+**The numbers behind the Pacers' 5 wild comebacks in the NBA playoffs**\
+`The Pacers have come back from deficits of 15 points or more five times this playoffs, leading to some staggering stats.`\
+https://nytimes.com/athletic/6408653/2025/06/06/pacers-thunder-nba-finals-playoff-comebacks/
+
+**Democrats Threaten Trump Prosecutor Picks, Pointing to Past Vance Blockade**\
+`The top Democrat on the Judiciary Committee said Vice President JD Vance had set a precedent for derailing U.S. attorney candidates during his time in the Senate.`\
+https://nytimes.com/2025/06/06/us/politics/democrats-trump-vance-prosecutors.html
+
 **Maple Leafs add ex-Red Wings HC Derek Lalonde as assistant**\
 `Lalonde, who most recently coached the Red Wings, will take over Lane Lambert's duties behind the Maple Leafs bench.`\
 https://nytimes.com/athletic/6409222/2025/06/06/maple-leafs-derek-lalonde-assistant-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6408385/2025/06/06/batherson-giroux-andlauer-staios
 **Florida Fisherman Is Charged in Shark Stabbing**\
 `A video showing a charter fisherman attacking the shark included the caption “bud broke my rod.” The man was charged with animal cruelty.`\
 https://nytimes.com/2025/06/06/us/shark-stabbing-video-florida-keys-charter-captain.html
-
-**Cruz Azul spokesperson: Canada's Marsch 'out of line' for poison allegation**\
-`The Canada manager made unfounded accusations after three of his players fell ill following Vancouver's trip to Mexico.`\
-https://nytimes.com/athletic/6409162/2025/06/06/cruz-azul-response-jesse-marsch-canada-vancouver-whitecaps-poison/
-
-**It’s Getting Harder for Trump to Keep the Gang Together**\
-`There are already indications that his coalition is fraying, and it’s not just about Elon Musk.`\
-https://nytimes.com/2025/06/06/upshot/trump-musk-republicans-defection.html
-
-**Runaway Zebra Evades Capture in Tennessee**\
-`A pet zebra has been on the loose for almost a week after it escaped from its home in Rutherford County, Tenn.`\
-https://nytimes.com/video/us/100000010213004/zebra-tennessee-christiana.html
 
