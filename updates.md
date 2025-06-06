@@ -1,3 +1,7 @@
+**Jackie Robinson, Minnie Miñoso murals desecrated with hate speech in Miami**\
+`The paintings are at Dorsey Park, a historic Negro League park in a neighborhood known as the 'Harlem of the South' during segregation.`\
+https://nytimes.com/athletic/6408342/2025/06/06/jackie-robinson-minnie-minoso-murals-miami-vandalism/
+
 **A Truly Showstopping Grilled Beef Tenderloin**\
 `For one, there’s a red-wine-soaked towel involved.`\
 https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderloin.html
