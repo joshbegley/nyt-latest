@@ -1,3 +1,19 @@
+**In the Shadow of the White House, the World Celebrates Pride in D.C.**\
+`Washington is hosting WorldPride, a global celebration of the L.G.B.T.Q. community, but the event has been made more difficult by shifts in U.S. policy.`\
+https://nytimes.com/2025/06/06/us/worldpride-parade-dc-trump.html
+
+**Mistakenly Deported Man Returned to U.S.**\
+`Also, the Tony Awards are Sunday. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/06/06/briefing/abrego-garcia-tonys.html
+
+**French Open recap: Why was the roof closed for Carlos Alcaraz vs. Lorenzo Musetti in sunny weather?**\
+`Why Carlos Alcaraz and Lorenzo Musetti played their French Open semifinal under a closed roof on a sunny day.`\
+https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-why-weather-rules/
+
+**Sunny Jacobs, a Celebrity After Freed From Death Row, Dies at 77**\
+`Her story, fashioned into an Off Broadway play and television movies, was later questioned by an investigator in a 2021 book.`\
+https://nytimes.com/2025/06/06/us/sonia-sunny-jacobs-dead.html
+
 **Justices Grant DOGE Access to Social Security Data and Let the Team Shield Records**\
 `As Elon Musk leaves Washington, the team he formed to ferret out waste and abuse won dual victories in the Supreme Court.`\
 https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.html
