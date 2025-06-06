@@ -1,3 +1,7 @@
+**Analyzing the Belmont Stakes field: Journalism favored over Sovereignty again**\
+`Breaking down the figures, odds and recent performances for the 2025 Belmont Stakes field. `\
+https://nytimes.com/athletic/6403257/2025/06/06/belmont-stakes-field-analyzed-journalism-sovereignty/
+
 **‘I Felt a Bullet’: Palestinians Recount Deadly Shooting Near New Gaza Aid Site**\
 `Nearly 50 people have been reported killed and 300 others wounded near the Israeli-backed distribution center, which was designed to keep food out of the hands of Hamas.`\
 https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-center-shooting.html

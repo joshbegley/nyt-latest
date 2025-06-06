@@ -6,6 +6,10 @@ https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-center-shooting.html
 `Chancellor Friedrich Merz of Germany spoke rarely but reverently, and found a warm reception in the Oval Office. Now he hopes to turn rapport into policy wins.`\
 https://nytimes.com/2025/06/06/world/europe/germany-merz-trump-visit.html
 
+**Analyzing the Belmont Stakes field: Journalism favored over Sovereignty again**\
+`Breaking down the figures, odds and recent performances for the 2025 Belmont Stakes field. `\
+https://nytimes.com/athletic/6403257/2025/06/06/belmont-stakes-field-analyzed-journalism-sovereignty/
+
 **Videos Show Chaos Around Israeli-Backed Gaza Food Sites**\
 `Danger and desperation are clear in imagery near the aid sites. Dozens of Palestinians were killed in at least two instances after Israeli troops opened fire near the sites.`\
 https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-site-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/nyregion/mayor-removal-recall-nyc.html
 **Deficit Politics Returns in Debate Over Trump Tax Cuts**\
 `The legislation that Republicans are trying to push through Congress could swell the very fiscal imbalance that party leaders have promised to tame for years.`\
 https://nytimes.com/2025/06/06/business/deficit-trump-tax-legislation.html
-
-**Watch Ana de Armas Fight Using Kitchen Utensils in ‘Ballerina’**\
-`The director Len Wiseman narrates an action sequence from “From the World of John Wick: Ballerina.”`\
-https://nytimes.com/2025/06/06/movies/ballerina-clip.html
 
