@@ -1,3 +1,7 @@
+**'Big Gabi' has his big contract and his commitment is a blessing to Arsenal and the club's hierachy**\
+`Gabriel has signed a new deal with Arsenal which lasts until 2029. The significance should not be underestimated ahead of a busy summer`\
+https://nytimes.com/athletic/6405134/2025/06/06/big-gabi-has-his-big-contract-and-his-commitment-is-a-blessing-to-arsenal-and-the-clubs-hierachy/
+
 **Why Djokovic can beat Sinner – despite not getting a break point against him in six sets**\
 `Djokovic has lost his past three matches against Sinner. Beating him today is just the second step of three on the path to tennis history...`\
 https://nytimes.com/athletic/6405620/2025/06/06/tennis-french-open-djokovic-sinner-semifinal/
