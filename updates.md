@@ -1,3 +1,7 @@
+**Storm GM on WNBA's review of complaint: 'It's not an investigation'**\
+`The WNBA reviewed a complaint that a Seattle assistant coach cursed at an Aces player, but no formal discipline is expected.`\
+https://nytimes.com/athletic/6407210/2025/06/05/wnba-complaint-storm-jewell-loyd/
+
 **Do the Blackhawks need to make a big move this offseason? GM Kyle Davidson answers**\
 `Davidson answered a variety of questions about the NHL Draft at the scouting combine in Buffalo.`\
 https://nytimes.com/athletic/6407051/2025/06/05/blackhawks-offseason-gm-kyle-davidson/
