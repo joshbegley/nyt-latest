@@ -1,3 +1,7 @@
+**French Open recap: Why was the roof closed for Carlos Alcaraz vs. Lorenzo Musetti in sunny weather?**\
+`Why Carlos Alcaraz and Lorenzo Musetti played their French Open semifinal under a closed roof on a sunny day.`\
+https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-why-weather-rules/
+
 **Ex-Police Chief and Convicted Killer Who Escaped Is Caught Near Arkansas Prison**\
 `Grant Hardin, who came to be known as the “Devil in the Ozarks,” was captured on Friday, nearly two weeks after his May 25 escape from a maximum-security prison.`\
 https://nytimes.com/2025/06/06/us/devil-in-the-ozarks-captured-arkansas.html
