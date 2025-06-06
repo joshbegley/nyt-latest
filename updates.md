@@ -1,3 +1,7 @@
+**Trans Troops, Facing a Deadline, Opt to Stay and Fight the Ban**\
+`The Trump administration wants transgender troops out of the military, and set a June 6 deadline to go voluntarily. Some have accepted; others vowed to stay and contest the ban.`\
+https://nytimes.com/2025/06/06/us/transgender-troops-ban-discharge-deadline.html
+
 **Roma appoint Gasperini after Ranieri exit**\
 `The 67-year-old spent nine years at Atalanta, with whom he won the 2023-24 Europa League and regularly qualified for the Champions League.`\
 https://nytimes.com/athletic/6408436/2025/06/06/roma-manager-gasperini-ranieri/

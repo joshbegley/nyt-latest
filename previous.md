@@ -1,3 +1,7 @@
+**Trans Troops, Facing a Deadline, Opt to Stay and Fight the Ban**\
+`The Trump administration wants transgender troops out of the military, and set a June 6 deadline to go voluntarily. Some have accepted; others vowed to stay and contest the ban.`\
+https://nytimes.com/2025/06/06/us/transgender-troops-ban-discharge-deadline.html
+
 **Roma appoint Gasperini after Ranieri exit**\
 `The 67-year-old spent nine years at Atalanta, with whom he won the 2023-24 Europa League and regularly qualified for the Champions League.`\
 https://nytimes.com/athletic/6408436/2025/06/06/roma-manager-gasperini-ranieri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408414/2025/06/06/carlos-alcaraz-french-open-loren
 **Twins' minor-league adventure: Tampa, Sacramento trips marked by 'difficult' playing conditions**\
 `During a road trip to Tampa and Sacramento, players described the minor-league parks' 'difficult' playing conditions. But it wasn't all bad.`\
 https://nytimes.com/athletic/6407653/2025/06/06/tampa-sacramento-ballpark-playing-conditions-rays-athletics-twins/
-
-**Here’s what to know.**\
-`Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
-https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/heres-what-to-know
 
