@@ -1,3 +1,19 @@
+**Canada's Whitecaps players back in training after Marsch alleges 'poisoning'**\
+`The Canada manager was not thrilled about the shape of three of his players following the Concacaf Champions Cup final`\
+https://nytimes.com/athletic/6408457/2025/06/06/vancouver-whitecaps-canada-players-mexico-marsch-food-poisoning/
+
+**If Elon Musk and President Trump Divorce, Who Gets Silicon Valley?**\
+`The relationship between Mr. Trump and tech industry power brokers was built on money and the promise of deregulation, with Mr. Musk in the middle of it all.`\
+https://nytimes.com/2025/06/06/technology/elon-musk-trump-silicon-valley-tech.html
+
+**Penguins coach Dan Muse has the job. Now he has to take control**\
+`In taking over the Penguins, Muse finds himself in an interesting predicament. `\
+https://nytimes.com/athletic/6407362/2025/06/06/penguins-coach-dan-muse-sidney-crosby/
+
+**Trump’s Ambition Collides With Law on Sending Migrants to Dangerous Countries**\
+`Previous administrations usually considered whether a transfer would endanger the migrant or create risks for the United States and its allies.`\
+https://nytimes.com/2025/06/06/us/politics/trump-deportations-migrants.html
+
 **Carlos Alcaraz into French Open final after Lorenzo Musetti retires injured**\
 `Alcaraz gets the chance to defend his title after roaring back tactically against Musetti, who then succumbed to an injury.`\
 https://nytimes.com/athletic/6408414/2025/06/06/carlos-alcaraz-french-open-lorenzo-musetti-result-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderlo
 **13 Off Broadway Shows to See in June**\
 `Reed Birney and Lisa Emery in a two-hander, Taylor Mac in a Molière riff and Jay Ellis in a romantic drama — here’s what’s on New York stages this month.`\
 https://nytimes.com/2025/06/06/theater/off-broadway-shows-june.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s selections, romance across dimensions and an animated entry in the “Predator” franchise.`\
-https://nytimes.com/2025/06/06/movies/science-fiction-movies-streaming.html
-
-**Interpol Arrests 20 Over Network That Distributed Child Sex Abuse Material**\
-`The international sweep included arrests in 12 countries across Europe and the Americas. The agency said there were also dozens of other suspects.`\
-https://nytimes.com/2025/06/06/world/europe/interpol-child-sex-abuse-arrests.html
-
-**Stars fire coach Pete DeBoer after Western Conference final exit**\
-`The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
-https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
-
-**Singles Are Trying a Novel Approach to Dating: Meeting in Person**\
-`As Gen Z and Millennial daters flee the apps and look for love in the wild, many have no idea where to start.`\
-https://nytimes.com/2025/06/06/well/dating-irl-analog-online.html
 
