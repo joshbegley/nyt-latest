@@ -1,3 +1,7 @@
+**The Pulse: How many buzzer beaters can one man hit?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6406113/2025/06/06/tyrese-haliburton-thunder-game-winner-the-pulse/
+
 **Xi’s Message to Trump: Rein in the Hawks Trying to Derail the Truce**\
 `China sought to depict a call between Xi Jinping and President Trump as an appeal from one strongman leader to another to run a tight ship and stay on course.`\
 https://nytimes.com/2025/06/06/world/asia/xi-trump-tariffs-truce.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6405946/2025/06/06/tennis-french-open-rafael-nadal-
 **Mookie Betts solidified himself at shortstop. Now he's helping other Dodgers**\
 `“Mook wants to win,” Max Muncy said. “He wants to win more than anything.”`\
 https://nytimes.com/athletic/6407086/2025/06/06/mookie-betts-solidified-himself-at-shortstop-now-hes-helping-other-dodgers/
-
-**Women's sports investor Kara Nortman on outlook, experiences and opportunities: Q&A**\
-`The co-founder of Monarch Collective, an investment fund specializing specifically in women's sports, has ownership in three NWSL teams.`\
-https://nytimes.com/athletic/6403271/2025/06/06/kara-nortman-nwsl-investment-boston-legacy-fc-angel-city/
 
