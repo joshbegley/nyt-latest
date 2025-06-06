@@ -1,3 +1,7 @@
+**Jackie Robinson, Minnie Miñoso murals desecrated with hate speech in Miami**\
+`The paintings are at Dorsey Park, a historic Negro League park in a neighborhood known as the 'Harlem of the South' during segregation.`\
+https://nytimes.com/athletic/6408342/2025/06/06/jackie-robinson-minnie-minoso-murals-miami-vandalism/
+
 **A Truly Showstopping Grilled Beef Tenderloin**\
 `For one, there’s a red-wine-soaked towel involved.`\
 https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderloin.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2025/06/06/the-6082025-issue
 **Can Your Spouse Copy Your Snacks?**\
 `A ruling on whether originality matters when hunger strikes.`\
 https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.html
-
-**Can Bucks extend Giannis' prime and develop young players? Bucks mailbag, Part II**\
-`Late in the season, did the Bucks unlock a version of Antetokounmpo that could prolong the two-time MVP's athletic prime?`\
-https://nytimes.com/athletic/6405921/2025/06/06/giannis-antetokounmpos-bucks-mailbag/
 

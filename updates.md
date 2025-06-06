@@ -1,3 +1,23 @@
+**A Truly Showstopping Grilled Beef Tenderloin**\
+`For one, there’s a red-wine-soaked towel involved.`\
+https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderloin.html
+
+**13 Off Broadway Shows to See in June**\
+`Reed Birney and Lisa Emery in a two-hander, Taylor Mac in a Molière riff and Jay Ellis in a romantic drama — here’s what’s on New York stages this month.`\
+https://nytimes.com/2025/06/06/theater/off-broadway-shows-june.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s selections, romance across dimensions and an animated entry in the “Predator” franchise.`\
+https://nytimes.com/2025/06/06/movies/science-fiction-movies-streaming.html
+
+**Interpol Arrests 20 Over Network That Distributed Child Sex Abuse Material**\
+`The international sweep included arrests in 12 countries across Europe and the Americas. The agency said there were also dozens of other suspects.`\
+https://nytimes.com/2025/06/06/world/europe/interpol-child-sex-abuse-arrests.html
+
+**Stars fire coach Pete DeBoer after 3 seasons**\
+`The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
+https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
+
 **Dallas Stars fire coach Pete DeBoer after 3 seasons**\
 `The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
 https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
