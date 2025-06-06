@@ -1,3 +1,7 @@
+**‘Ballerina’ | Anatomy of a Scene**\
+`The director Len Wiseman narrates a sequence from his film “From the World of John Wick: Ballerina,” featuring Ana de Armas.`\
+https://nytimes.com/video/movies/100000010208971/ballerina-scene.html
+
 **'Big Gabi' has his big contract and his commitment is a blessing to Arsenal and the club's hierarchy**\
 `Gabriel has signed a new deal with Arsenal which lasts until 2029. The significance should not be underestimated ahead of a busy summer`\
 https://nytimes.com/athletic/6405134/2025/06/06/gabriel-new-contract-arsenal-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/movies/tyler-perry-straw-review.html
 **How a Manhattan Private School With a Utopian Mission Suddenly Collapsed**\
 `Inspired by the civil rights movement, Manhattan Country School educated the children of aristocrats and undocumented immigrants. Then it got into real estate.`\
 https://nytimes.com/2025/06/06/nyregion/how-a-manhattan-private-school-with-a-utopian-mission-suddenly-collapsed.html
-
-**The Humanist Who Designed a Deadly Weapon**\
-`For decades, Richard Garwin fought the apocalyptic bomb he had brought to life.`\
-https://nytimes.com/2025/06/06/insider/richard-garwin-essay.html
 
