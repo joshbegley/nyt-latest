@@ -1,3 +1,7 @@
+**Video Shows Fiery Fatal Crash After Police Chase**\
+`Francisco Guzman Parra, 31, died after crashing a stolen Honda in Upper Manhattan. Two officers chasing him drove away after the car caught fire, according to video surveillance footage.`\
+https://nytimes.com/2025/06/05/nyregion/francisco-guzman-police-chase.html
+
 **Trump and Musk Fight, and the Internet Pulls Out the Popcorn**\
 `What happens when two billionaires with huge followings on social media start a public feud? Great memes.`\
 https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-memes.html
