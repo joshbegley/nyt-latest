@@ -3,7 +3,7 @@
 https://nytimes.com/2025/06/06/insider/pacific-coast-highway-road-trip.html
 
 **NBA trophy logos may return on Finals courts next year, Adam Silver says**\
-`While the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
+`Though the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
 https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silver/
 
 **Weinstein Juror Complains to Judge About ‘Playground Stuff’ by Others**\
