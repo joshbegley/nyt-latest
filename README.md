@@ -1,3 +1,23 @@
+**New York City’s Best Chefs Pick Their Favorite Restaurants**\
+`We asked some of the chefs from our 100 best restaurants list where they love to dine out right now.`\
+https://nytimes.com/2025/06/06/dining/chef-nyc-best-restaurant-picks.html
+
+**First, Snubs. Then Flattery. Now Trump and Musk Are at War.**\
+`A timeline of the praises and insults that President Trump and Elon Musk have lobbed at each other shows how their volatile clash was years in the making.`\
+https://nytimes.com/interactive/2025/06/06/us/politics/trump-elon-musk-relationship.html
+
+**Paul Weiss Loses Another Prominent Lawyer in Wake of Trump Deal**\
+`Damian Williams joined Paul Weiss Rifkind Wharton & Garrison in January shortly after stepping down as one of the nation’s top federal prosecutors. He is taking a job with Jenner & Block.`\
+https://nytimes.com/2025/06/06/business/paul-weiss-trump-law-firms-damian-williams.html
+
+**Chiesa insists he is at happy at Liverpool despite frustrating season**\
+`The Italian forward moved to Merseyside from Juventus in a £10million deal last summer but found first-team opportunities limited.`\
+https://nytimes.com/athletic/6408680/2025/06/06/federico-chiesa-liverpool-future/
+
+**The Fireworks Between Trump and Musk**\
+`Readers discuss the public feud between the president and his onetime ally. Also: China’s boom and America’s promise.`\
+https://nytimes.com/2025/06/06/opinion/trump-musk-feud.html
+
 **Palantir’s Collection of Disease Data at C.D.C. Stirs Privacy Concerns**\
 `U.S. and state officials say the consolidation of the public health agency’s vast trove of information could expose patients and will delay analysis of long-term trends.`\
 https://nytimes.com/2025/06/06/health/cdc-data-privacy-palantir.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6407756/2025/06/06/atalanta-manager-ivan-juric/
 **Lil Wayne Gets Earnest With Bono, and 9 More New Songs**\
 `Hear tracks by Sabrina Carpenter, Ethel Cain, Sudan Archives and others.`\
 https://nytimes.com/2025/06/06/arts/music/playlist-lil-wayne-sabrina-carpenter.html
-
-**Trump Has Power, a Big Megaphone and Billions to Spend. So Does Musk.**\
-`President Trump is locked in a showdown with the world’s richest man, who is far from a typical opponent.`\
-https://nytimes.com/2025/06/06/us/politics/trump-musk.html
-
-**For Sale: One Red Tesla, Once Belonging to the President**\
-`The car, which President Trump acquired in March to show his support for Elon Musk, is one of the first tangible casualties of their shattered alliance.`\
-https://nytimes.com/2025/06/06/us/politics/trump-tesla-elon-musk.html
-
-**Musk and Trump’s Reality TV Dispute**\
-`This dispute is reminiscent of “Real Housewives,” where women divvy their loyalties up behind whoever is the reigning alpha.`\
-https://nytimes.com/2025/06/06/opinion/elon-musk-trump-fight-masculinity.html
-
-**The departure of Hobbs makes one thing clear: Wolves are going all-in on Pereira**\
-`If Pereira proves as good at team-building off the pitch as on it, the change at Molineux might turn out to be inspired`\
-https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
-
-**Indiana TV station apologizes for cutting away from Game 1 of NBA Finals in final minute**\
-`The incident drew comparisons to the infamous 1968 "Heidi Game."`\
-https://nytimes.com/athletic/6408336/2025/06/06/nba-finals-indiana-pacers-tv-station-news/
 
