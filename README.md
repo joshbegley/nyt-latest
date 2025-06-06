@@ -1,3 +1,11 @@
+**NiJaree Canady signs another 7-figure NIL deal with Texas Tech**\
+`Canady made headlines last year for transferring from Stanford to Texas Tech and signing an NIL deal worth over $1 million.`\
+https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-tech-softball/
+
+**Trade Brought Them Together. What Happens Now?**\
+`Chinese-U.S. trade is not just shipping containers and customs forms. It is underpinned by relationships between entrepreneurs. But now the turmoil over the Trump administration’s tariffs is threatening to fray longstanding personal ties.`\
+https://nytimes.com/interactive/2025/06/06/business/us-china-xi-tariffs-trade-war.html
+
 **The Alarming Part of the Musk-Trump Dispute**\
 `The last 24 hours should be a lesson to all the other billionaires who lined up with the new administration.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-donald-trump-government-contracts
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/nws-weather-jobs-hiring-bill-congress
 **Flashback: Your Weekly History Quiz, June 7, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/06/06/upshot/flashback.html
-
-**England’s High Court Warns Lawyers to Stop Citing Fake A.I.-Generated Cases**\
-`A senior judge said on Friday that lawyers could be prosecuted for presenting material that had been “hallucinated” by artificial intelligence tools.`\
-https://nytimes.com/2025/06/06/world/europe/england-high-court-ai.html
-
-**Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
-`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game three days later.`\
-https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
 
