@@ -1,3 +1,15 @@
+**Trump as Channel-Changer in Chief**\
+`When the issues are intractable, why not pivot to surefire red meat?`\
+https://nytimes.com/2025/06/06/us/politics/trump-biden-autopen-ukraine-gaza.html
+
+**Grealish needs regular football to make England's WC squad, says Tuchel**\
+`Grealish is facing an uncertain future at the club after a frustrating season and has yet to be called up for England since Tuchel's arrival`\
+https://nytimes.com/athletic/6409462/2025/06/06/jack-grealish-england-world-cup/
+
+**Rosenthal: The implications of Corbin Burnes’ season-ending injury go far beyond the Diamondbacks**\
+`The inevitability of pitching injuries — combined with massive long-term deals — continues to haunt baseball.`\
+https://nytimes.com/athletic/6400103/2025/06/06/corbin-burnes-arizona-diamondbacks-tommy-john-pitching/
+
 **French Open finals odds: Sabalenka favored vs. Gauff, Alcaraz gets slight edge vs. Sinner**\
 `Aryna Sabalenka and Carlos Alcaraz are the favorites for the French Open's two singles finals this weekend.`\
 https://nytimes.com/athletic/6409177/2025/06/06/french-open-finals-odds-sabalenka-gauff-sinner-alcaraz/
