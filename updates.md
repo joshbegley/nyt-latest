@@ -1,3 +1,7 @@
+**Kyiv Hit in Russia’s Deadly Overnight Attack**\
+`The Ukrainian capital was one of several targets in Russia’s broad assault early Friday.`\
+https://nytimes.com/video/world/europe/100000010211900/russia-missile-attack-ukraine-kyiv.html
+
 **No Wharton, Delap in England U21s squad for Euros**\
 `England are reigning champions after lifting the title two years ago.`\
 https://nytimes.com/athletic/6407625/2025/06/06/england-u21s-squad-delap-wharton/
