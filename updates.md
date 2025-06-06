@@ -1,3 +1,19 @@
+**Maple Leafs add ex-Red Wings HC Derek Lalonde as assistant**\
+`Lalonde, who most recently coached the Red Wings, will take over Lane Lambert's duties behind the Maple Leafs bench.`\
+https://nytimes.com/athletic/6409222/2025/06/06/maple-leafs-derek-lalonde-assistant-coach/
+
+**NHL rumblings: What comes next for the Stars after firing Pete DeBoer?**\
+`Taking over a team that's gone to three straight conference finals and has a locked-up core is a good opportunity. Who are the candidates?`\
+https://nytimes.com/athletic/6409217/2025/06/06/stars-peter-deboer-firing-rumblings/
+
+**Dubas says Penguins might be aggressive on offseason trade market**\
+`Dubas is willing and perhaps likely to make some significant deals in the next month. Just don't expect the same action in free agency.`\
+https://nytimes.com/athletic/6409093/2025/06/06/penguins-nhl-draft-combine-kyle-dubas/
+
+**Read the Abrego Garcia Indictment**\
+`The 10-page indictment, filed in the Middle District of Tennessee, charges the man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
+https://nytimes.com/interactive/2025/06/06/us/Abrego-Garcia-Indictment.html
+
 **Jannik Sinner beats Novak Djokovic to set up French Open final against Carlos Alcaraz**\
 `Djokovic produced the Grand Slam peak that has been the trademark of his late career, but Sinner was a mountain too high to climb.`\
 https://nytimes.com/athletic/6409129/2025/06/06/sinner-djokovic-french-open-result-analysis-alcaraz/
