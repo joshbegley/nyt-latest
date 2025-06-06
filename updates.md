@@ -1,3 +1,15 @@
+**Do the Blackhawks need to make a big move this offseason? GM Kyle Davidson answers**\
+`Davidson answered a variety of questions about the NHL Draft at the scouting combine in Buffalo.`\
+https://nytimes.com/athletic/6407051/2025/06/05/blackhawks-offseason-gm-kyle-davidson/
+
+**SiriusXM parts ways with Michelle Beadle, Cody Decker**\
+`The split follows comments from Beadle that were critical of Stephen A. Smith, who is set to debut two shows on the platform this year.`\
+https://nytimes.com/athletic/6407151/2025/06/05/siriusxm-michelle-beadle-cody-decker-fired/
+
+**Culture Center**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2025/06/05/crosswords/daily-puzzle-2025-06-06.html
+
 **Roof Collapse Kills Worker at Construction Site That Lacked Permits**\
 `The worker, a 43-year-old man, was trapped under the fallen roof in an extension behind a former restaurant in Brooklyn, the Buildings Department said.`\
 https://nytimes.com/2025/06/05/nyregion/roof-collapse-brooklyn-death.html

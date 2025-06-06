@@ -1,3 +1,7 @@
+**Storm GM on WNBA's review of complaint: 'It's not an investigation'**\
+`The WNBA reviewed a complaint that a Seattle assistant coach cursed at an Aces player, but no formal discipline is expected.`\
+https://nytimes.com/athletic/6407210/2025/06/05/wnba-complaint-storm-jewell-loyd/
+
 **Do the Blackhawks need to make a big move this offseason? GM Kyle Davidson answers**\
 `Davidson answered a variety of questions about the NHL Draft at the scouting combine in Buffalo.`\
 https://nytimes.com/athletic/6407051/2025/06/05/blackhawks-offseason-gm-kyle-davidson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407066/2025/06/05/adam-silver-nba-expansion-all-st
 **What to Know About Trump’s New Travel Ban**\
 `President Trump on Wednesday signed a travel ban on 12 countries, primarily in Africa and the Middle East, reviving an effort from his first term to prevent large numbers of immigrants and visitors from entering the United States.`\
 https://nytimes.com/video/us/politics/100000010210007/what-to-know-about-trumps-new-travel-ban.html
-
-**Mets takeaways: Bad defense leads to split with Dodgers, Francisco Lindor's toe**\
-`Pete Alonso's continuing power surge wasn't enough as New York lost 6-5 in Los Angeles in the series finale.`\
-https://nytimes.com/athletic/6407063/2025/06/05/new-york-mets-dodgers-francisco-lindor-pete-alonso/
 
