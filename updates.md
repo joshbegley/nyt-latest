@@ -1,3 +1,11 @@
+**Trump Administration Asks Justices to Clear the Way for Cuts to Education Department**\
+`Lawyers for the administration asked the Supreme Court to block a lower court order directing officials to reinstate thousands of fired employees.`\
+https://nytimes.com/2025/06/06/us/politics/supreme-court-trump-education-department.html
+
+**Tottenham part company with Postecoglou, Frank leading contender to take over**\
+`A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
+https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
+
 **Former Southampton boss Juric appointed Atalanta head coach**\
 `Juric, who was sacked by the Premier League club in April, replaces Gian Piero Gasperini, who left earlier this month.`\
 https://nytimes.com/athletic/6407756/2025/06/06/atalanta-manager-ivan-juric/

@@ -1,3 +1,7 @@
+**Trump Administration Asks Justices to Clear the Way for Cuts to Education Department**\
+`Lawyers for the administration asked the Supreme Court to block a lower court order directing officials to reinstate thousands of fired employees.`\
+https://nytimes.com/2025/06/06/us/politics/supreme-court-trump-education-department.html
+
 **Former Southampton boss Juric appointed Atalanta head coach**\
 `Juric, who was sacked by the Premier League club in April, replaces Gian Piero Gasperini, who left earlier this month.`\
 https://nytimes.com/athletic/6407756/2025/06/06/atalanta-manager-ivan-juric/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
 `The incident drew comparisons to the infamous 1968 "Heidi Game."`\
 https://nytimes.com/athletic/6408336/2025/06/06/nba-finals-indiana-pacers-tv-station-news/
 
-**Tottenham part company with Ange Postecoglou as head coach**\
+**Tottenham part company with Postecoglou, Frank leading contender to take over**\
 `A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
 https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
 
 **S.A. Cosby on the Appeal of Small-Town Crime Stories**\
 `In “King of Ashes,” the novelist again returns to rural Virginia as a setting, with a hero who has to face the family he once fled.`\
 https://nytimes.com/2025/06/06/books/review/podcast-s-a-cosby-interview.html
-
-**Trans Troops, Facing a Deadline, Opt to Stay and Fight the Ban**\
-`The Trump administration wants transgender troops out of the military, and set a June 6 deadline to go voluntarily. Some have accepted; others vowed to stay and contest the ban.`\
-https://nytimes.com/2025/06/06/us/transgender-troops-ban-discharge-deadline.html
 
