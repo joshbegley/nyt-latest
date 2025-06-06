@@ -1,3 +1,7 @@
+**Dodger Details: An unexpected hero, pitching churn and more**\
+`Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
+https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/
+
 **Adam Silver brushes off talks of expansion, confirms new All-Star Game format**\
 `Silver also said that he "see the benefit to reducing the number of games" in the regular season when discussing shortening schedules.`\
 https://nytimes.com/athletic/6407066/2025/06/05/adam-silver-nba-expansion-all-star-format/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-fi
 **Trump’s New Travel Ban Is Rife With Contradictions**\
 `The Trump administration appears to have relied on a variety of considerations as it put together its latest restrictions.`\
 https://nytimes.com/2025/06/05/us/politics/trump-travel-ban.html
-
-**NASA and the Defense Department Rely on SpaceX in So Many Ways**\
-`If President Trump cancels the contracts for Elon Musk’s private spaceflight company, the federal government would struggle to achieve many goals in orbit and beyond.`\
-https://nytimes.com/2025/06/05/science/spacex-nasa-trump-elon-musk.html
 
