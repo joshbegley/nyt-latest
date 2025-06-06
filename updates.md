@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 2 Recap: Textual Relations**\
+`Carrie’s long-distance “situationship” with Aidan becomes frustrating in ways she didn’t anticipate.`\
+https://nytimes.com/2025/06/05/arts/television/and-just-like-that-recap-season-3-episode-2.html
+
 **Dodger Details: An unexpected hero, pitching churn and more**\
 `Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
 https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/

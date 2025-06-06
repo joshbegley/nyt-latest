@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 2 Recap: Textual Relations**\
+`Carrie’s long-distance “situationship” with Aidan becomes frustrating in ways she didn’t anticipate.`\
+https://nytimes.com/2025/06/05/arts/television/and-just-like-that-recap-season-3-episode-2.html
+
 **Dodger Details: An unexpected hero, pitching churn and more**\
 `Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
 https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406954/2025/06/05/jesus-luzardo-phillies-20-runs-2
 **Pacers coach backs Doris Burke amid report regarding her spot in ESPN's coverage**\
 `Carlisle said Burke “paved the way” for several women to broadcasting careers in the NBA.`\
 https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-finals-2/
-
-**Trump’s New Travel Ban Is Rife With Contradictions**\
-`The Trump administration appears to have relied on a variety of considerations as it put together its latest restrictions.`\
-https://nytimes.com/2025/06/05/us/politics/trump-travel-ban.html
 
