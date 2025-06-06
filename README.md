@@ -1,3 +1,7 @@
+**What does President Trump’s travel ban mean for global sporting events?**\
+`"The exemptions have some sports leaders hopeful that the effects of the ban on international events will be minimal." `\
+https://nytimes.com/athletic/6407167/2025/06/05/trump-travel-ban-sports-event-impact/
+
 **Storm GM on WNBA's review of complaint: 'It's not an investigation'**\
 `The WNBA reviewed a complaint that a Seattle assistant coach cursed at an Aces player, but no formal discipline is expected.`\
 https://nytimes.com/athletic/6407210/2025/06/05/wnba-complaint-storm-jewell-loyd/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-
 **Adam Silver brushes off talks of expansion, confirms new All-Star Game format**\
 `Silver also said that he "see the benefit to reducing the number of games" in the regular season when discussing shortening schedules.`\
 https://nytimes.com/athletic/6407066/2025/06/05/adam-silver-nba-expansion-all-star-format/
-
-**What to Know About Trump’s New Travel Ban**\
-`President Trump on Wednesday signed a travel ban on 12 countries, primarily in Africa and the Middle East, reviving an effort from his first term to prevent large numbers of immigrants and visitors from entering the United States.`\
-https://nytimes.com/video/us/politics/100000010210007/what-to-know-about-trumps-new-travel-ban.html
 
