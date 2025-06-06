@@ -1,3 +1,11 @@
+**Trump and Musk Fight, and the Internet Pulls Out the Popcorn**\
+`What happens when two billionaires with huge followings on social media start a public feud? Great memes.`\
+https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-memes.html
+
+**What's wrong with Jesús Luzardo? Phillies, lefty look for answers after 20 runs in 2 starts**\
+`"There's something obvious that we're missing when the first 11 starts are lights-out and then the next two are 20 earned runs," he said.`\
+https://nytimes.com/athletic/6406954/2025/06/05/jesus-luzardo-phillies-20-runs-2-starts-blue-jays/
+
 **Pacers coach backs Doris Burke amid report regarding her spot in ESPN's coverage**\
 `Carlisle said Burke “paved the way” for several women to broadcasting careers in the NBA.`\
 https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-finals-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6406920/2025/06/05/twins-pablo-lopez-injury-timelin
 **Landlords Commit $2.5 Million to Help Cuomo’s Mayoral Campaign**\
 `The money, the largest example of outside spending by a single donor in the New York City mayor’s race, will go toward campaign ads on Andrew M. Cuomo’s behalf.`\
 https://nytimes.com/2025/06/05/nyregion/cuomo-landlords-donation.html
-
-**French Open women's semifinals recap: Iga Swiatek's serve and what next for Lois Boisson**\
-`Świątek lost at the French Open for the first time in 26 matches. The defeat showed how she compiled that streak — and how to start anew.`\
-https://nytimes.com/athletic/6406732/2025/06/05/tennis-french-open-semifinals-womens-recap/
-
-**New Travel Ban Prompts Fear and Frustration for U.S. Immigrants**\
-`Immigrants from the targeted countries said the ban would upend their lives. “I don’t understand why the president has to target us nonstop,” one Haitian asylum seeker said.`\
-https://nytimes.com/2025/06/05/us/politics/trump-travel-ban-immigrants-fear.html
 

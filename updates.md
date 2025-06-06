@@ -1,3 +1,11 @@
+**Trump and Musk Fight, and the Internet Pulls Out the Popcorn**\
+`What happens when two billionaires with huge followings on social media start a public feud? Great memes.`\
+https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-memes.html
+
+**What's wrong with Jesús Luzardo? Phillies, lefty look for answers after 20 runs in 2 starts**\
+`"There's something obvious that we're missing when the first 11 starts are lights-out and then the next two are 20 earned runs," he said.`\
+https://nytimes.com/athletic/6406954/2025/06/05/jesus-luzardo-phillies-20-runs-2-starts-blue-jays/
+
 **Pacers coach backs Doris Burke amid report regarding her spot in ESPN's coverage**\
 `Carlisle said Burke “paved the way” for several women to broadcasting careers in the NBA.`\
 https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-finals-2/
