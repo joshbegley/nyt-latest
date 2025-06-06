@@ -1,3 +1,7 @@
+**Read the Insults Hurled Between Trump and Musk**\
+`A bitter online feud kicked off between the once-close allies on Thursday. Here are some of their pointed exchanges that played out throughout the day.`\
+https://nytimes.com/interactive/2025/06/05/us/politics/elon-musk-trump-feud-timeline-posts.html
+
 **What does President Trump’s travel ban mean for global sporting events?**\
 `"The exemptions have some sports leaders hopeful that the effects of the ban on international events will be minimal." `\
 https://nytimes.com/athletic/6407167/2025/06/05/trump-travel-ban-sports-event-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/arts/television/and-just-like-that-recap-season-3
 **Dodger Details: An unexpected hero, pitching churn and more**\
 `Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
 https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/
-
-**Adam Silver brushes off talks of expansion, confirms new All-Star Game format**\
-`Silver also said that he "see the benefit to reducing the number of games" in the regular season when discussing shortening schedules.`\
-https://nytimes.com/athletic/6407066/2025/06/05/adam-silver-nba-expansion-all-star-format/
 

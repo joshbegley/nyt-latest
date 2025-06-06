@@ -1,3 +1,7 @@
+**Read the Insults Hurled Between Trump and Musk**\
+`A bitter online feud kicked off between the once-close allies on Thursday. Here are some of their pointed exchanges that played out throughout the day.`\
+https://nytimes.com/interactive/2025/06/05/us/politics/elon-musk-trump-feud-timeline-posts.html
+
 **What does President Trump’s travel ban mean for global sporting events?**\
 `"The exemptions have some sports leaders hopeful that the effects of the ban on international events will be minimal." `\
 https://nytimes.com/athletic/6407167/2025/06/05/trump-travel-ban-sports-event-impact/
