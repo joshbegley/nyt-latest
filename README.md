@@ -1,3 +1,15 @@
+**Submit your Astros questions for Chandler Rome’s mailbag**\
+`With the trade deadline less than two months away, it's time to ask your questions about the state of the Astros and how they can improve.`\
+https://nytimes.com/athletic/6407039/2025/06/06/astros-mailbag-questions-trade-deadline/
+
+**Manny Machado is on the verge of 2,000 hits. Could he be the last player to reach 3,000?**\
+`A month before his 33rd birthday, Machado finds himself on the doorstep of an increasingly exclusive club. `\
+https://nytimes.com/athletic/6406179/2025/06/06/manny-machado-2000-hits-3000/
+
+**Yankees' Jazz Chisholm Jr. thinks Rafael Devers is right to not move off DH to help Red Sox**\
+`"That's what he and the team talked about" when Devers signed his 10-year extension, Chisholm explained.`\
+https://nytimes.com/athletic/6406741/2025/06/06/jazz-chisholm-rafael-devers-position-change/
+
 **Twins mailbag: Royce Lewis options, All-Star cases and the Jorge Alcala dilemma**\
 `Plus what a Ryan Jeffers contract extension might look like, Harrison Bader's defensive impact and the long-term plan at first base.`\
 https://nytimes.com/athletic/6399751/2025/06/06/twins-all-star-cases-royce-lewis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6406670/2025/06/06/oilers-connor-mcdavid-leon-drais
 **Brad Marchand in '25 and Ray Bourque in '01: A breakdown of ex-Bruins and the Stanley Cup**\
 `How is Marchand's pursuit of the Stanley Cup different from Bourque’s 2001 vision quest with the Colorado Avalanche? Let us count the ways.`\
 https://nytimes.com/athletic/6407073/2025/06/06/bruins-brad-marchand-ray-bourque-stanley-cup/
-
-**The Athletic’s Friday football quiz question #58**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6402683/2025/06/06/the-athletics-friday-football-quiz-question-58/
-
-**Weird & Wild: 10 ways the 2025 Rockies are making history (in all the wrong ways)**\
-`We interrupt their jubilant sweep week with this important list of 10 Ways the 2025 Rockies are Making History (in all the Wrong Ways).`\
-https://nytimes.com/athletic/6407424/2025/06/06/colorado-rockies-2025-facts-historic-losing/
-
-**Brock Boeser’s next contract and the dangers of free agency**\
-`Boeser projects as a complementary winger and if he cashes in at $8 million or more, he will have a hard time living up to his next deal.`\
-https://nytimes.com/athletic/6400887/2025/06/06/brock-boesers-next-contract-free-agency/
 

@@ -1,40 +1,40 @@
-**Our New Podcast**\
-`We explore the controversial debate over health care for trans youth.`\
-https://nytimes.com/2025/06/06/briefing/the-protocol.html
+**Twins mailbag: Royce Lewis options, All-Star cases and the Jorge Alcala dilemma**\
+`Plus what a Ryan Jeffers contract extension might look like, Harrison Bader's defensive impact and the long-term plan at first base.`\
+https://nytimes.com/athletic/6399751/2025/06/06/twins-all-star-cases-royce-lewis/
 
-**Reported Tornadoes Touch Down in Northwest Texas**\
-`A severe weather pattern that brought thunderstorms, flooding and torrential rain was expected to persist from the southern Plains to the Southeast through the weekend.`\
-https://nytimes.com/video/weather/100000010211996/tornadoes-texas-storm-flooding.html
+**Phillies' Orion Kerkering got his sweeper moving again. It's sparked his season**\
+`A peak of a lifetime followed some of Kerkering's lowest moments in professional baseball. Soon, success on the mound followed, too. `\
+https://nytimes.com/athletic/6406900/2025/06/06/orion-kerkering-sweeper-2025-season/
 
-**Rosenthal: After hitting ‘rock bottom,’ Braves can still salvage their season - if they snap out of it**\
-`The Braves are talented enough to bounce back, but even the returns of Ronald Acuña Jr. and Spencer Strider haven't led to a turnaround yet.`\
-https://nytimes.com/athletic/6407214/2025/06/06/atlanta-braves-rock-bottom-season/
+**Why are international players flocking to the WNBA?**\
+`At the start of this season, the league had 33 players born outside the U.S., up from 25 at the beginning of the 2023 season.`\
+https://nytimes.com/athletic/6405479/2025/06/06/wnba-international-players-golden-state-valkyries/
 
-**How the Thunder's usually impeccable defense sprang leaks late in Game 1 loss**\
-`Indiana found holes in Oklahoma City's coverages down the stretch. Can the Thunder fix their mistakes before Game 2?`\
-https://nytimes.com/athletic/6407404/2025/06/06/thunder-defense-game-1-nba-finals/
+**UNLV hits a turning point in the desert: Can the Rebels stick around as a G5 giant?**\
+`UNLV is one of many universities with options and massive decisions on the horizon. It also has a red-hot football program.`\
+https://nytimes.com/athletic/6405999/2025/06/06/unlv-football-budget-mountain-west-pac-12/
 
-**The Pulse: How many buzzer beaters can one man hit?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6406113/2025/06/06/tyrese-haliburton-thunder-game-winner-the-pulse/
+**'I live and breathe for the Florida Panthers': Pending UFA Aaron Ekblad hopes to re-sign**\
+`"I bleed for the Florida Panthers": The 29-year-old is in his 11th season with the team and wants to play with them "forever."`\
+https://nytimes.com/athletic/6406659/2025/06/06/panthers-aaron-ekblad-free-agency-nhl-playoffs/
 
-**Xi’s Message to Trump: Rein in the Hawks Trying to Derail the Truce**\
-`China sought to depict a call between Xi Jinping and President Trump as an appeal from one strongman leader to another to run a tight ship and stay on course.`\
-https://nytimes.com/2025/06/06/world/asia/xi-trump-tariffs-truce.html
+**The Oilers' nuclear option: Do they keep Connor McDavid, Leon Draisaitl together?**\
+`When the Oilers put their top stars together midway through Game 1, it tilted the ice. But it's not as simple as sticking with what works.`\
+https://nytimes.com/athletic/6406670/2025/06/06/oilers-connor-mcdavid-leon-draisaitl-lines/
 
-**Can We Trust a Jobs Report From the Trump Administration? Yes, With Caveats.**\
-`Current and former employees at the Bureau of Labor Statistics, Census Bureau and other agencies say they have confidence in the numbers.`\
-https://nytimes.com/2025/06/06/business/jobs-report-reliability-trump.html
+**Brad Marchand in '25 and Ray Bourque in '01: A breakdown of ex-Bruins and the Stanley Cup**\
+`How is Marchand's pursuit of the Stanley Cup different from Bourque’s 2001 vision quest with the Colorado Avalanche? Let us count the ways.`\
+https://nytimes.com/athletic/6407073/2025/06/06/bruins-brad-marchand-ray-bourque-stanley-cup/
 
-**China Allows Limited Exports of Rare Earths as Shortages Continue**\
-`Beijing has approved more export licenses for the critical minerals and magnets in recent days, but supplies remain scarce and factories in the West are running out.`\
-https://nytimes.com/2025/06/06/business/china-rare-earth-licensing.html
+**The Athletic’s Friday football quiz question #58**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6402683/2025/06/06/the-athletics-friday-football-quiz-question-58/
 
-**Job Market Is Getting Tougher for College Graduates**\
-`Researchers attributed some of the difficulty finding jobs to larger societal shifts, including the growing use of artificial intelligence.`\
-https://nytimes.com/2025/06/06/business/job-market-college-graduates.html
+**Weird & Wild: 10 ways the 2025 Rockies are making history (in all the wrong ways)**\
+`We interrupt their jubilant sweep week with this important list of 10 Ways the 2025 Rockies are Making History (in all the Wrong Ways).`\
+https://nytimes.com/athletic/6407424/2025/06/06/colorado-rockies-2025-facts-historic-losing/
 
-**Balloons and Human Strength: How North Korea Righted a Toppled Warship**\
-`Satellite images show the unconventional strategy engineers used to get the 5,000-ton vessel afloat.`\
-https://nytimes.com/2025/06/06/world/asia/north-korea-warship-salvage-capsize.html
+**Brock Boeser’s next contract and the dangers of free agency**\
+`Boeser projects as a complementary winger and if he cashes in at $8 million or more, he will have a hard time living up to his next deal.`\
+https://nytimes.com/athletic/6400887/2025/06/06/brock-boesers-next-contract-free-agency/
 
