@@ -1,3 +1,11 @@
+**Elon Musk and Donald Trump Are Splitsville, Until They Aren’t**\
+`For all the insults that Mr. Musk and Mr. Trump traded on Thursday, don’t be surprised if they make up again days from now. In the meantime, they both benefit.`\
+https://nytimes.com/2025/06/06/technology/elon-musk-trump-feud.html
+
+**After disastrous 2024-25 season, how can regrouping Rangers learn from this year's Stanley Cup finalists?**\
+`As GM Chris Drury continues his roster makeover, here are four areas where the Rangers can learn from the dominant Oilers and Panthers.`\
+https://nytimes.com/athletic/6407028/2025/06/06/new-york-rangers-stanley-cup-final-nhl/
+
 **The Windup: Braves registering on our panic meter**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-windup/
