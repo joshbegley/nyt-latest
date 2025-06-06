@@ -1,3 +1,15 @@
+**USMNT kicks off a summer of redemption and audition**\
+`With so many key figures missing out, there's a summer's worth of opportunity for USMNT World Cup hopefuls.`\
+https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-pochettino-roster-spots/
+
+**Until Saturday: The Dakotas or everybody else?**\
+`Until Saturday is The Athletic's CFB newsletter.`\
+https://nytimes.com/athletic/6408847/2025/06/06/fcs-football-north-dakota-state-until-saturday/
+
+**Buildup to a Meltdown: How the Trump-Musk Alliance Collapsed**\
+`President Trump’s decision to pull a close associate of Elon Musk’s out of the running to run NASA helped doom an extraordinary partnership.`\
+https://nytimes.com/2025/06/06/us/politics/trump-musk-split-nasa.html
+
 **Paul Durcan, Irish Poet of Tortured and Tender Souls, Is Dead at 80**\
 `He survived electroshock treatments and the threat of lobotomy to become one of Ireland’s most popular poets. The Irish Times called him a “literary phenomenon.”`\
 https://nytimes.com/2025/06/06/books/paul-durcan-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/06/climate/bull-mountain-coal-mine-trump.html
 **How Tyrese Haliburton and the Pacers stay calm, cool and connected in the clutch**\
 `His Pacers teammates have said they go as Haliburton goes, but as usual, it took the team as a whole to get the job done in Game 1.`\
 https://nytimes.com/athletic/6408589/2025/06/06/tyrese-haliburton-pacers-game-1/
-
-**New York City’s Best Chefs Pick Their Favorite Restaurants**\
-`We asked some of the chefs from our 100 best restaurants list where they love to dine out right now.`\
-https://nytimes.com/2025/06/06/dining/chef-nyc-best-restaurant-picks.html
-
-**First, Snubs. Then Flattery. Now Trump and Musk Are at War.**\
-`A timeline of the praises and insults that President Trump and Elon Musk have lobbed at each other shows how their volatile clash was years in the making.`\
-https://nytimes.com/interactive/2025/06/06/us/politics/trump-elon-musk-relationship.html
-
-**Paul Weiss Loses Another Prominent Lawyer in Wake of Trump Deal**\
-`Damian Williams joined Paul Weiss Rifkind Wharton & Garrison in January shortly after stepping down as one of the nation’s top federal prosecutors. He is taking a job with Jenner & Block.`\
-https://nytimes.com/2025/06/06/business/paul-weiss-trump-law-firms-damian-williams.html
 

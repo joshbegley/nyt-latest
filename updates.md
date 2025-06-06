@@ -1,3 +1,15 @@
+**USMNT kicks off a summer of redemption and audition**\
+`With so many key figures missing out, there's a summer's worth of opportunity for USMNT World Cup hopefuls.`\
+https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-pochettino-roster-spots/
+
+**Until Saturday: The Dakotas or everybody else?**\
+`Until Saturday is The Athletic's CFB newsletter.`\
+https://nytimes.com/athletic/6408847/2025/06/06/fcs-football-north-dakota-state-until-saturday/
+
+**Buildup to a Meltdown: How the Trump-Musk Alliance Collapsed**\
+`President Trump’s decision to pull a close associate of Elon Musk’s out of the running to run NASA helped doom an extraordinary partnership.`\
+https://nytimes.com/2025/06/06/us/politics/trump-musk-split-nasa.html
+
 **Paul Durcan, Irish Poet of Tortured and Tender Souls, Is Dead at 80**\
 `He survived electroshock treatments and the threat of lobotomy to become one of Ireland’s most popular poets. The Irish Times called him a “literary phenomenon.”`\
 https://nytimes.com/2025/06/06/books/paul-durcan-dead.html
