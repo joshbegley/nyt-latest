@@ -1,3 +1,7 @@
+**Justices Grant DOGE Access to Social Security Data and Let the Team Shield Records**\
+`As Elon Musk leaves Washington, the team he formed to ferret out waste and abuse won dual victories in the Supreme Court.`\
+https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.html
+
 **Diamondbacks' Corbin Burnes to undergo season-ending Tommy John surgery**\
 `Burnes will miss the rest of this season and most if not all of the 2026 season.`\
 https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-tommy-john-surgery/
