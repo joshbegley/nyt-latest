@@ -1,3 +1,11 @@
+**Why Djokovic can beat Sinner – despite not getting a break point against him in six sets**\
+`Djokovic has lost his past three matches against Sinner. Beating him today is just the second step of three on the path to tennis history...`\
+https://nytimes.com/athletic/6405620/2025/06/06/tennis-french-open-djokovic-sinner-semifinal/
+
+**Gabriel signs new Arsenal contract until 2029**\
+`Sporting director Andrea Berta made talks with the centre-back’s camp a priority shortly after starting his role at the club in March.`\
+https://nytimes.com/athletic/6391804/2025/06/06/gabriel-signs-new-arsenal-contract/
+
 **Kyiv Hit in Russia’s Deadly Overnight Attack**\
 `The Ukrainian capital was one of several targets in Russia’s broad assault early Friday.`\
 https://nytimes.com/video/world/europe/100000010211900/russia-missile-attack-ukraine-kyiv.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/insider/richard-garwin-essay.html
 **Revisiting the Sexual Harassment Complaints Against Cuomo**\
 `A look at the allegations that led Andrew Cuomo to resign as governor of New York, where they stand and how his position on them has shifted.`\
 https://nytimes.com/interactive/2025/06/06/nyregion/andrew-cuomo-sexual-harassment-claims.html
-
-**Cuomo Was Contrite About His Sexual Harassment Scandal. Not Anymore.**\
-`Former Gov. Andrew Cuomo left office in 2021 amid a wave of sexual harassment allegations. As he runs for mayor, he is counting on voters’ having moved on.`\
-https://nytimes.com/2025/06/06/nyregion/cuomo-harassment-mayor.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/06/crosswords/spelling-bee-forum.html
 
