@@ -1,6 +1,6 @@
 **Diamondbacks' Corbin Burnes to undergo season-ending Tommy John surgery**\
 `Burnes will miss the rest of this season and most if not all of the 2026 season.`\
-https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-toommy-john-surgery/
+https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-tommy-john-surgery/
 
 **What’s a Couple to Do When One Works for Donald Trump and the Other for Elon Musk?**\
 `Stephen Miller is a top aide to the president, while his wife, Katie Miller, recently left DOGE to work for Elon Musk. What now?`\
