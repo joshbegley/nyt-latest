@@ -1,3 +1,11 @@
+**Elon Musk and Donald Trump Are Splitsville, Until They Aren’t**\
+`For all the insults that Mr. Musk and Mr. Trump traded on Thursday, don’t be surprised if they make up again days from now. In the meantime, they both benefit.`\
+https://nytimes.com/2025/06/06/technology/elon-musk-trump-feud.html
+
+**After disastrous 2024-25 season, how can regrouping Rangers learn from this year's Stanley Cup finalists?**\
+`As GM Chris Drury continues his roster makeover, here are four areas where the Rangers can learn from the dominant Oilers and Panthers.`\
+https://nytimes.com/athletic/6407028/2025/06/06/new-york-rangers-stanley-cup-final-nhl/
+
 **The Windup: Braves registering on our panic meter**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/climate/trump-coal-gas-plants-energy-emergency.ht
 **Who Leads the Israeli-backed Palestinian Militia in Gaza?**\
 `Yasser Abu Shabab, a Bedouin man in his 30s, holds sway in eastern Rafah, an area close to a key border crossing between Israel and Gaza.`\
 https://nytimes.com/2025/06/06/world/middleeast/israel-gaza-palestinian-militia-hamas-abu-shabab.html
-
-**Solid Report Bolsters Fed’s Patient Approach to Interest Rate Cuts**\
-`The central bank is in wait-and-see mode amid extreme uncertainty about the economic outlook.`\
-https://nytimes.com/2025/06/06/business/jobs-fed-interest-rates.html
-
-**13 Great Songs of the Tonys Season**\
-`Our critic listened to the cast recordings of all the nominated musicals and picked one of his favorite tracks from each.`\
-https://nytimes.com/2025/06/06/theater/tony-awards-season-musical-songs.html
 
