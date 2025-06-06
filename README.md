@@ -1,3 +1,15 @@
+**The Ter Stegen case: Is Barcelona's captain being forced out?**\
+`The German goalkeeper's future at Barca is being widely discussed – following a familiar narrative  `\
+https://nytimes.com/athletic/6404779/2025/06/06/barcelona-ter-stegen-de-jong-raphinha/
+
+**Newcastle squad audit: Champions League quality is needed. Who makes way and who stays?**\
+`Ahead of the new season, four first-team signings are being sought while several players' Newcastle careers appear to have reached an end`\
+https://nytimes.com/athletic/6404742/2025/06/06/newcastle-squad-audit-summer-2025/
+
+**Mitoma showed his importance to Brighton again. Now an anxious summer window awaits**\
+`Mitoma is thriving at Brighton under head coach Fabian Hurzeler – but he will have many suitors this summer`\
+https://nytimes.com/athletic/6380939/2025/06/06/kaoru-mitoma-brighton-transfer-latest/
+
 **Arsenal and the importance of finding a transfer-window balance**\
 `This transfer window provides an opportunity to recruit talent not just for next season, but beyond. How do Arteta and Berta marry the two?`\
 https://nytimes.com/athletic/6405119/2025/06/06/arsenal-transfer-window-karetsas/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6397180/2025/06/06/club-world-cup-format-schedule-b
 **England have a strong core despite retirements - Sarina Wiegman seems to know it**\
 `England confirmed their squad for Euro 2025 on Thursday — it was uncontroversial`\
 https://nytimes.com/athletic/6405919/2025/06/06/england-sarina-wiegman-euro-2025-squad/
-
-**U.K. Faces ‘Extraordinary’ Threat from Russian and Iranian Plots, Official Warns**\
-`Jonathan Hall, a British government adviser, said in an interview that hostile states were paying local criminals to carry out acts of violence, espionage and intimidation.`\
-https://nytimes.com/2025/06/06/world/europe/uk-russia-iran-state-threats.html
-
-**South Koreans Have a New President, and Mixed Emotions**\
-`After six months of turmoil, citizens hope for better times. But political polarization and international tensions over trade mean many worries remain.`\
-https://nytimes.com/2025/06/06/world/asia/south-korea-president-reaction.html
-
-**Corrections: June 6, 2025**\
-`Corrections that appeared in print on Friday, June 6, 2025.`\
-https://nytimes.com/2025/06/06/pageoneplus/corrections-june-6-2025.html
 
