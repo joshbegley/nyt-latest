@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
 `The incident drew comparisons to the infamous 1968 "Heidi Game."`\
 https://nytimes.com/athletic/6408336/2025/06/06/nba-finals-indiana-pacers-tv-station-news/
 
-**Tottenham part company with Ange Postecoglou as head coach**\
+**Tottenham part company with Postecoglou, Frank leading contender to take over**\
 `A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
 https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
 
