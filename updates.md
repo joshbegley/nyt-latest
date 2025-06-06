@@ -1,3 +1,7 @@
+**Cardinals takeaways: 3 trends to watch after a series loss to Royals**\
+`How the Cardinals play this month could have heavy ramifications on their trade deadline plans.`\
+https://nytimes.com/athletic/6406757/2025/06/06/cardinals-takeaways-trends-after-series-loss-royals/
+
 **Friday Briefing**\
 `A Musk-Trump fight.`\
 https://nytimes.com/2025/06/06/briefing/musk-trump-gaza.html
