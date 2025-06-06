@@ -1,3 +1,19 @@
+**Carlos Alcaraz into French Open final after Lorenzo Musetti retires injured**\
+`Alcaraz gets the chance to defend his title after roaring back tactically against Musetti, who then succumbed to an injury.`\
+https://nytimes.com/athletic/6408414/2025/06/06/carlos-alcaraz-french-open-lorenzo-musetti-result-analysis/
+
+**Twins' minor-league adventure: Tampa, Sacramento trips marked by 'difficult' playing conditions**\
+`During a road trip to Tampa and Sacramento, players described the minor-league parks' 'difficult' playing conditions. But it wasn't all bad.`\
+https://nytimes.com/athletic/6407653/2025/06/06/tampa-sacramento-ballpark-playing-conditions-rays-athletics-twins/
+
+**Here’s what to know.**\
+`Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/heres-what-to-know
+
+**Stars fire coach Pete DeBoer after Western Conference final exit**\
+`The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
+https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
+
 **Jackie Robinson, Minnie Miñoso murals desecrated with hate speech in Miami**\
 `The paintings are at Dorsey Park, a historic Negro League park in a neighborhood known as the 'Harlem of the South' during segregation.`\
 https://nytimes.com/athletic/6408342/2025/06/06/jackie-robinson-minnie-minoso-murals-miami-vandalism/
