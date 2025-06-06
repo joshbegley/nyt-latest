@@ -1,3 +1,15 @@
+**What’s a Couple to Do When One Works for Donald Trump and the Other for Elon Musk?**\
+`Stephen Miller is a top aide to the president, while his wife, Katie Miller, recently left DOGE to work for Elon Musk. What now?`\
+https://nytimes.com/2025/06/06/style/stephen-miller-wife-trump-musk.html
+
+**TNT Sports expected to expand College Football Playoff rights to semifinals: Sources**\
+`A deal with ESPN would allow TNT to air one semifinal game annually from 2026 to 2028.`\
+https://nytimes.com/athletic/6409319/2025/06/06/tnt-sports-college-football-playoff-semifinals/
+
+**Liverpool submit improved €134m offer for Wirtz**\
+`Wirtz has emerged as a key target for Liverpool this summer and the playmaker is keen on a move to Anfield.`\
+https://nytimes.com/athletic/6393077/2025/06/06/liverpool-florian-wirtz-transfer-bid/
+
 **A Tennessee County Is ‘Fascinated’ as an Escaped Zebra Runs Wild**\
 `The zebra, which residents have named Ed, has gained a following, with memes and A.I.-generated images springing up as it continues to elude capture.`\
 https://nytimes.com/2025/06/06/us/zebra-tennessee-christiana.html
