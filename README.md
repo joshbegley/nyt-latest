@@ -1,3 +1,7 @@
+**Quote of the Day: Wary House Republicans Straining to Mollify Musk**\
+`Quotation of the Day for Friday, June 6, 2025.`\
+https://nytimes.com/2025/06/05/pageoneplus/quote-of-the-day-wary-house-republicans-straining-to-mollify-musk.html
+
 **Tornadoes Cause Significant Damage Near Lubbock in Texas**\
 `At least three people were injured and more than 13,000 homes were without power as a storm system hit the Lubbock area.`\
 https://nytimes.com/2025/06/05/weather/storms-tornado-flood-texas-lubbock.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407151/2025/06/05/siriusxm-michelle-beadle-cody-de
 **Culture Center**\
 `Adrian Johnson opens our solving weekend.`\
 https://nytimes.com/2025/06/05/crosswords/daily-puzzle-2025-06-06.html
-
-**Roof Collapse Kills Worker at Construction Site That Lacked Permits**\
-`The worker, a 43-year-old man, was trapped under the fallen roof in an extension behind a former restaurant in Brooklyn, the Buildings Department said.`\
-https://nytimes.com/2025/06/05/nyregion/roof-collapse-brooklyn-death.html
 
