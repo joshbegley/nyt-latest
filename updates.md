@@ -1,3 +1,11 @@
+**A Tennessee County Is ‘Fascinated’ as an Escaped Zebra Runs Wild**\
+`The zebra, which residents have named Ed, has gained a following, with memes and A.I.-generated images springing up as it continues to elude capture.`\
+https://nytimes.com/2025/06/06/us/zebra-tennessee-christiana.html
+
+**AMC Says It Will Show More Ads Before Movies**\
+`The theater chain’s decision brings it in line with what its biggest competitors, Regal and Cinemark, have been doing since 2019, but it risks irking loyal customers.`\
+https://nytimes.com/2025/06/06/business/movies-theaters-ads-amc.html
+
 **Buyer With Ties to Chinese Communist Party Got V.I.P. Treatment at Trump Crypto Dinner**\
 `The warm welcome for a technology executive whose purchases of the president’s digital coin won him a White House tour illustrates inconsistencies in the administration’s views toward visitors from China.`\
 https://nytimes.com/2025/06/06/us/politics/trump-crypto-dinner-china-he-tianying.html
