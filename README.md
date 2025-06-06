@@ -1,3 +1,19 @@
+**The Windup: Braves registering on our panic meter**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-windup/
+
+**How to watch Padres at Brewers series this weekend, as San Diego scraps for NL West lead**\
+`Two playoff hopefuls get into a three-game tangle Friday through Sunday, with second-place San Diego visiting hot Milwaukee.`\
+https://nytimes.com/athletic/6406711/2025/06/06/padres-brewers-mlb-how-to-watch/
+
+**Three NBA Finals presentation adjustments NBA, ESPN should make for Game 2**\
+`The NBA Finals are all about game-to-game adjustments. Here are several changes the NBA and ESPN might consider entering Game 2.`\
+https://nytimes.com/athletic/6407962/2025/06/06/nba-finals-pacers-thunder-espn-presentation-changes/
+
+**Work Overtime? You May Soon Get a Tax Cut**\
+`Once a seemingly offhand remark at a campaign rally, President Trump’s pledge to not tax overtime could become federal law.`\
+https://nytimes.com/2025/06/06/us/politics/trump-no-tax-overtime.html
+
 **Liverpool close to signing Hungarian goalkeeper Pecsi**\
 `Pesci is expected to start next season playing for the club's under-21s.`\
 https://nytimes.com/athletic/6408211/2025/06/06/liverpool-armin-pecsi-goalkeeper-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/06/business/jobs-fed-interest-rates.html
 **13 Great Songs of the Tonys Season**\
 `Our critic listened to the cast recordings of all the nominated musicals and picked one of his favorite tracks from each.`\
 https://nytimes.com/2025/06/06/theater/tony-awards-season-musical-songs.html
-
-**The Bounce: The Pacers are once again the comeback kings. How will the Thunder respond?**\
-`The legend of Tyrese Haliburton and these Pacers continues to grow. How will the Thunder look to avoid a 2-0 deficit?`\
-https://nytimes.com/athletic/6407909/2025/06/06/pacers-thunder-comeback-tyrese-haliburton-shai-gilgeous-alexander-nba-finals-the-bounce/
-
-**Jac Caglianone, Ronny Mauricio and more top waiver wire adds for fantasy baseball**\
-`Owen Poindexter points out the best of this week's waiver wire, including the prodigious power potential of top KC prospect Jac Caglianone.`\
-https://nytimes.com/athletic/6406893/2025/06/06/fantasy-baseball-waiver-wire-pickups-caglianone-mauricio/
-
-**LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
-`Reynold Hoover, chief executive officer of organizing committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
-https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
-
-**Liverpool Under-21s head coach Lewtas to leave the club after 12 years**\
-`Lewtas has aspirations of becoming a manager at senior level and believes the time is right to pursue “a new adventure”.`\
-https://nytimes.com/athletic/6408166/2025/06/06/barry-lewtas-under-21s-liverpool/
 
