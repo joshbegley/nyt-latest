@@ -1,3 +1,7 @@
+**Overlooked No More: Hong Yen Chang, Lawyer Who Challenged a Racist System**\
+`He struggled to become the first Chinese American person to practice law in the U.S., then used his training to fight for other Chinese Americans.`\
+https://nytimes.com/2025/06/06/obituaries/hong-yen-chang-overlooked.html
+
 **USMNT kicks off a summer of redemption and audition**\
 `With so many key figures missing out, there's a summer's worth of opportunity for USMNT World Cup hopefuls.`\
 https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-pochettino-roster-spots/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/business/tesla-stock-trump-elon-musk.html
 **Trump Approves Expansion of Scandal-Hit Coal Mine**\
 `Environmental groups had opposed expanding a Montana mine previously caught up in allegations of cocaine trafficking and the faked kidnapping of an executive.`\
 https://nytimes.com/2025/06/06/climate/bull-mountain-coal-mine-trump.html
-
-**How Tyrese Haliburton and the Pacers stay calm, cool and connected in the clutch**\
-`His Pacers teammates have said they go as Haliburton goes, but as usual, it took the team as a whole to get the job done in Game 1.`\
-https://nytimes.com/athletic/6408589/2025/06/06/tyrese-haliburton-pacers-game-1/
 
