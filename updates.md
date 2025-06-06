@@ -1,3 +1,7 @@
+**Thunderstruck! How the Pacers pulled off another dramatic comeback**\
+`Game 1 of the NBA Finals was the Pacers’ fifth comeback victory from a deficit of 15 or more points in the 2025 playoffs.`\
+https://nytimes.com/athletic/6408712/2025/06/06/pacers-thunder-nba-finals-game-1-comeback/
+
 **Pete DeBoer earned his firing, but Stars' problems run deeper**\
 `The Stars were very good under DeBoer, a very good coach. But Dallas is looking for great, and DeBoer is looking for work.`\
 https://nytimes.com/athletic/6408690/2025/06/06/stars-coach-fired-peter-deboer/
