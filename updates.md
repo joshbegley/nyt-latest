@@ -1,3 +1,19 @@
+**The Windup: Braves registering on our panic meter**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-windup/
+
+**How to watch Padres at Brewers series this weekend, as San Diego scraps for NL West lead**\
+`Two playoff hopefuls get into a three-game tangle Friday through Sunday, with second-place San Diego visiting hot Milwaukee.`\
+https://nytimes.com/athletic/6406711/2025/06/06/padres-brewers-mlb-how-to-watch/
+
+**Three NBA Finals presentation adjustments NBA, ESPN should make for Game 2**\
+`The NBA Finals are all about game-to-game adjustments. Here are several changes the NBA and ESPN might consider entering Game 2.`\
+https://nytimes.com/athletic/6407962/2025/06/06/nba-finals-pacers-thunder-espn-presentation-changes/
+
+**Work Overtime? You May Soon Get a Tax Cut**\
+`Once a seemingly offhand remark at a campaign rally, President Trump’s pledge to not tax overtime could become federal law.`\
+https://nytimes.com/2025/06/06/us/politics/trump-no-tax-overtime.html
+
 **Liverpool close to signing Hungarian goalkeeper Pecsi**\
 `Pesci is expected to start next season playing for the club's under-21s.`\
 https://nytimes.com/athletic/6408211/2025/06/06/liverpool-armin-pecsi-goalkeeper-transfer/
