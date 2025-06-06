@@ -1,3 +1,7 @@
+**Do the Blackhawks need to make a big move this offseason? GM Kyle Davidson answers**\
+`Davidson answered a variety of questions about the NHL Draft at the scouting combine in Buffalo.`\
+https://nytimes.com/athletic/6407051/2025/06/05/blackhawks-offseason-gm-kyle-davidson/
+
 **SiriusXM parts ways with Michelle Beadle, Cody Decker**\
 `The split follows comments from Beadle that were critical of Stephen A. Smith, who is set to debut two shows on the platform this year.`\
 https://nytimes.com/athletic/6407151/2025/06/05/siriusxm-michelle-beadle-cody-decker-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010210007/what-to-know-about-trumps-
 **Mets takeaways: Bad defense leads to split with Dodgers, Francisco Lindor's toe**\
 `Pete Alonso's continuing power surge wasn't enough as New York lost 6-5 in Los Angeles in the series finale.`\
 https://nytimes.com/athletic/6407063/2025/06/05/new-york-mets-dodgers-francisco-lindor-pete-alonso/
-
-**Day 5: An Easy Way to Stay Inspired**\
-`Today, try one new thing.`\
-https://nytimes.com/interactive/2025/well/creativity-hobby-activity-routine.html
 
