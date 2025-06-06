@@ -1,3 +1,31 @@
+**Thanks to Tyrese Haliburton, these NBA Finals have already stunned the senses**\
+`Game 1 was exactly why the finals are special. Pacers-Thunder may not have many carrots for casuals, but it’s loaded with ingredients.`\
+https://nytimes.com/athletic/6407587/2025/06/06/tyrese-haliburton-shot-pacers-thunder-nba-finals/
+
+**‘Tyler Perry’s Straw’ Review: The Accidental Bank Robber**\
+`A single mom in Atlanta (Taraji P. Henson) is having a very, very, very bad day.`\
+https://nytimes.com/2025/06/06/movies/tyler-perry-straw-review.html
+
+**How a Manhattan Private School With a Utopian Mission Suddenly Collapsed**\
+`Inspired by the civil rights movement, Manhattan Country School educated the children of aristocrats and undocumented immigrants. Then it got into real estate.`\
+https://nytimes.com/2025/06/06/nyregion/how-a-manhattan-private-school-with-a-utopian-mission-suddenly-collapsed.html
+
+**The Humanist Who Designed a Deadly Weapon**\
+`For decades, Richard Garwin fought the apocalyptic bomb he had brought to life.`\
+https://nytimes.com/2025/06/06/insider/richard-garwin-essay.html
+
+**Revisiting the Sexual Harassment Complaints Against Cuomo**\
+`A look at the allegations that led Andrew Cuomo to resign as governor of New York, where they stand and how his position on them has shifted.`\
+https://nytimes.com/interactive/2025/06/06/nyregion/andrew-cuomo-sexual-harassment-claims.html
+
+**Cuomo Was Contrite About His Sexual Harassment Scandal. Not Anymore.**\
+`Former Gov. Andrew Cuomo left office in 2021 amid a wave of sexual harassment allegations. As he runs for mayor, he is counting on voters’ having moved on.`\
+https://nytimes.com/2025/06/06/nyregion/cuomo-harassment-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/06/crosswords/spelling-bee-forum.html
+
 **Frustrations boil over in rain as Astros GM Dana Brown tries to 'protect the boys'**\
 `Brown was hoping for a postponement in Pittsburgh instead of a three-hour delay, and he let his feelings known. The game was finally played.`\
 https://nytimes.com/athletic/6407547/2025/06/06/astros-pirates-rain-delay-gm-dana-brown/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6407413/2025/06/06/andrew-nembhard-pacers-tyrese-ha
 **Shai Gilgeous-Alexander put up a big number, but like Thunder's Game 1, it rings a bit empty**\
 `"We'll look at everything," OKC coach Mark Daigneault said. "We'll look at anything we can to try to give ourselves the best chance to win."`\
 https://nytimes.com/athletic/6407321/2025/06/06/shai-gilgeous-alexander-game-1-thunder-pacers-nba-finals/
-
-**Late Night Revels in Trump and Musk’s Public Feud**\
-`Stephen Colbert indulged in schadenfreude as he described the back-and-forth as a “full-scale flame war” between “the world’s most famous besties.”`\
-https://nytimes.com/2025/06/06/arts/television/late-night-trump-musk-feud.html
-
-**2025 Tony Awards Predictions: Which Shows and Performers Will Win?**\
-`Expect wins for the musicals “Maybe Happy Ending” and “Sunset Boulevard,” but the races for best play and leading actress in a musical are too close to call.`\
-https://nytimes.com/2025/06/06/theater/tony-awards-predictions-2025.html
-
-**Word of the Day: unctuous**\
-`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/06/learning/word-of-the-day-unctuous.html
-
-**Lamine Yamal and the curious finish which shows why he is different**\
-`The 17-year-old was at his rampant best in Spain's 5-4 win vs France — but it was his second goal that gave a glimpse of how unusual he is`\
-https://nytimes.com/athletic/6407159/2025/06/06/lamine-yamal-spain-nations-league/
-
-**Train Service Is Suspended Between New York and New Haven**\
-`A downed power line in Connecticut left about 1,000 passengers stuck on the tracks and caused delays that could affect the Friday morning commute.`\
-https://nytimes.com/2025/06/06/nyregion/amtrak-train-suspended-connecticut.html
-
-**The New York Times in Print for Friday, June 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/06/todays-new-york-times
-
-**Trump Is Helping Human Rights Abusers. I’m Suing to Stop Him.**\
-`A Trump executive order is undermining the International Criminal Court’s work to pursue justice for crimes against humanity.`\
-https://nytimes.com/2025/06/06/opinion/trump-lawsuit-icc-suing.html
 
