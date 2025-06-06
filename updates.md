@@ -1,3 +1,19 @@
+**Trump Has Power, a Big Megaphone and Billions to Spend. So Does Musk.**\
+`President Trump is locked in a showdown with the world’s richest man, who is far from a typical opponent.`\
+https://nytimes.com/2025/06/06/us/politics/trump-musk.html
+
+**For Sale: One Red Tesla, Once Belonging to the President**\
+`The car, which President Trump acquired in March to show his support for Elon Musk, is one of the first tangible casualties of their shattered alliance.`\
+https://nytimes.com/2025/06/06/us/politics/trump-tesla-elon-musk.html
+
+**Musk and Trump’s Reality TV Dispute**\
+`This dispute is reminiscent of “Real Housewives,” where women divvy their loyalties up behind whoever is the reigning alpha.`\
+https://nytimes.com/2025/06/06/opinion/elon-musk-trump-fight-masculinity.html
+
+**Tottenham expected to part company with Ange Postecoglou as head coach**\
+`A decision on a replacement is anticipated next week with Thomas Frank, the Brentford head coach, the leading contender.`\
+https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
+
 **The departure of Hobbs makes one thing clear: Wolves are going all-in on Pereira**\
 `If Pereira proves as good at team-building off the pitch as on it, the change at Molineux might turn out to be inspired`\
 https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
