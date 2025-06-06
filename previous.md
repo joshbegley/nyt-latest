@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, June 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/06/todays-new-york-times
+
+**Trump Is Helping Human Rights Abusers. I’m Suing to Stop Him.**\
+`A Trump executive order is undermining the International Criminal Court’s work to pursue justice for crimes against humanity.`\
+https://nytimes.com/2025/06/06/opinion/trump-lawsuit-icc-suing.html
+
+**Forget Speed. Finish Strong.**\
+`In an era wound tight with urgency, Journalism, who moves with patience and lets the chaos pass, is the horse we didn’t know we needed.`\
+https://nytimes.com/2025/06/06/opinion/journalism-horse-racing-belmont.html
+
 **Cardinals takeaways: 3 trends to watch after a series loss to Royals**\
 `How the Cardinals play this month could have heavy ramifications on their trade deadline plans.`\
 https://nytimes.com/athletic/6406757/2025/06/06/cardinals-takeaways-trends-after-series-loss-royals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6404742/2025/06/06/newcastle-squad-audit-summer-202
 **Mitoma showed his importance to Brighton again. Now an anxious summer window awaits**\
 `Mitoma is thriving at Brighton under head coach Fabian Hurzeler – but he will have many suitors this summer`\
 https://nytimes.com/athletic/6380939/2025/06/06/kaoru-mitoma-brighton-transfer-latest/
-
-**Arsenal and the importance of finding a transfer-window balance**\
-`This transfer window provides an opportunity to recruit talent not just for next season, but beyond. How do Arteta and Berta marry the two?`\
-https://nytimes.com/athletic/6405119/2025/06/06/arsenal-transfer-window-karetsas/
-
-**What can Manchester City expect from Rayan Ait-Nouri?**\
-`Ait-Nouri is far from a complete Premier League footballer. But he is an exciting one who, on his day, can impact games in a positive way`\
-https://nytimes.com/athletic/6399506/2025/06/06/rayan-ait-nouri-manchester-city-profile/
-
-**The fall of Jay Emmanuel-Thomas - from Arsenal youth captain to shame and prison for drug smuggling**\
-`The story is one of a lower-league footballer who fell to temptation, with his lies and deceit bringing shame and now a prison sentence`\
-https://nytimes.com/athletic/6402004/2025/06/06/jay-emmanuel-thomas-arsenal-prison/
 

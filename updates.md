@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, June 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/06/todays-new-york-times
+
+**Trump Is Helping Human Rights Abusers. I’m Suing to Stop Him.**\
+`A Trump executive order is undermining the International Criminal Court’s work to pursue justice for crimes against humanity.`\
+https://nytimes.com/2025/06/06/opinion/trump-lawsuit-icc-suing.html
+
+**Forget Speed. Finish Strong.**\
+`In an era wound tight with urgency, Journalism, who moves with patience and lets the chaos pass, is the horse we didn’t know we needed.`\
+https://nytimes.com/2025/06/06/opinion/journalism-horse-racing-belmont.html
+
 **Cardinals takeaways: 3 trends to watch after a series loss to Royals**\
 `How the Cardinals play this month could have heavy ramifications on their trade deadline plans.`\
 https://nytimes.com/athletic/6406757/2025/06/06/cardinals-takeaways-trends-after-series-loss-royals/
