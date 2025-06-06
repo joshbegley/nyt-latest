@@ -1,3 +1,15 @@
+**Carlos Alcaraz into French Open final after Lorenzo Musetti retires injured**\
+`Alcaraz gets the chance to defend his title after roaring back tactically against Musetti, who then succumbed to an injury.`\
+https://nytimes.com/athletic/6408414/2025/06/06/carlos-alcaraz-french-open-lorenzo-musetti-result-analysis/
+
+**Twins' minor-league adventure: Tampa, Sacramento trips marked by 'difficult' playing conditions**\
+`During a road trip to Tampa and Sacramento, players described the minor-league parks' 'difficult' playing conditions. But it wasn't all bad.`\
+https://nytimes.com/athletic/6407653/2025/06/06/tampa-sacramento-ballpark-playing-conditions-rays-athletics-twins/
+
+**Here’s what to know.**\
+`Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/heres-what-to-know
+
 **Jackie Robinson, Minnie Miñoso murals desecrated with hate speech in Miami**\
 `The paintings are at Dorsey Park, a historic Negro League park in a neighborhood known as the 'Harlem of the South' during segregation.`\
 https://nytimes.com/athletic/6408342/2025/06/06/jackie-robinson-minnie-minoso-murals-miami-vandalism/
@@ -18,23 +30,11 @@ https://nytimes.com/2025/06/06/movies/science-fiction-movies-streaming.html
 `The international sweep included arrests in 12 countries across Europe and the Americas. The agency said there were also dozens of other suspects.`\
 https://nytimes.com/2025/06/06/world/europe/interpol-child-sex-abuse-arrests.html
 
-**Stars fire coach Pete DeBoer after 3 seasons**\
+**Stars fire coach Pete DeBoer after Western Conference final exit**\
 `The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
 https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
 
 **Singles Are Trying a Novel Approach to Dating: Meeting in Person**\
 `As Gen Z and Millennial daters flee the apps and look for love in the wild, many have no idea where to start.`\
 https://nytimes.com/2025/06/06/well/dating-irl-analog-online.html
-
-**Arise, Sir David Beckham: The Soccer Star Will Be Knighted**\
-`The British news media reported that the on-field golden boy and international celebrity will receive the honor from King Charles III.`\
-https://nytimes.com/2025/06/06/world/europe/david-beckham-knighthood.html
-
-**The 6.08.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/06/06/the-6082025-issue
-
-**Can Your Spouse Copy Your Snacks?**\
-`A ruling on whether originality matters when hunger strikes.`\
-https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.html
 
