@@ -1,3 +1,7 @@
+**Can Your Spouse Copy Your Snacks?**\
+`A ruling on whether originality matters when hunger strikes.`\
+https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.html
+
 **Can Bucks extend Giannis' prime and develop young players? Bucks mailbag, Part II**\
 `Late in the season, did the Bucks unlock a version of Antetokounmpo that could prolong the two-time MVP's athletic prime?`\
 https://nytimes.com/athletic/6405921/2025/06/06/giannis-antetokounmpos-bucks-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408211/2025/06/06/liverpool-armin-pecsi-goalkeeper
 **‘The Secret Lives of Mormon Wives’ Keeps Pushing Back TV’s Fourth Wall**\
 `Reality TV had long advised casts to pretend the cameras (and producers) weren’t there. But for the Mormon influencers of MomTok, the business of being on camera is central to the plot.`\
 https://nytimes.com/2025/06/06/arts/television/secret-lives-of-mormon-wives-season-2.html
-
-**Coal and Gas Plants Were Closing. Then Trump Ordered Them to Keep Running.**\
-`The grid operators that draw power from the plants said they never asked for them to remain open, and consumers may have to absorb extra costs.`\
-https://nytimes.com/2025/06/06/climate/trump-coal-gas-plants-energy-emergency.html
 

@@ -1,3 +1,7 @@
+**Can Your Spouse Copy Your Snacks?**\
+`A ruling on whether originality matters when hunger strikes.`\
+https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.html
+
 **Can Bucks extend Giannis' prime and develop young players? Bucks mailbag, Part II**\
 `Late in the season, did the Bucks unlock a version of Antetokounmpo that could prolong the two-time MVP's athletic prime?`\
 https://nytimes.com/athletic/6405921/2025/06/06/giannis-antetokounmpos-bucks-mailbag/
