@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`A Musk-Trump fight.`\
+https://nytimes.com/2025/06/06/briefing/musk-trump-gaza.html
+
+**White Sox are calling up Kyle Teel, No. 24 in Keith Law's rankings: Reports**\
+`The White Sox might have some help on the way, as the club is reportedly calling up top prospect Kyle Teel from Triple-A Charlotte.`\
+https://nytimes.com/athletic/6407311/2025/06/06/white-sox-are-calling-up-kyle-teel-no-24-in-keith-laws-prospect-rankings-reports/
+
+**Gibbs-White staying at Nottingham Forest would be another sign of intent**\
+`Forest hanging onto in-demand Gibbs-White this summer will indicate the club's ambition ahead of their European return next season`\
+https://nytimes.com/athletic/6404893/2025/06/06/morgan-gibbs-white-staying-at-nottingham-forest-would-be-another-marker-of-intent/
+
 **The Ter Stegen case: Is Barcelona's captain being forced out?**\
 `The German goalkeeper's future at Barca is being widely discussed – following a familiar narrative  `\
 https://nytimes.com/athletic/6404779/2025/06/06/barcelona-ter-stegen-de-jong-raphinha/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6402004/2025/06/06/jay-emmanuel-thomas-arsenal-pris
 **Ravel Morrison exclusive interview: Older, wiser and ‘moving on’ after Manchester United troubles**\
 `The player once heralded as the future of English football opens up about mistakes made, ADHD, his relationship with managers and the future`\
 https://nytimes.com/athletic/6402000/2025/06/06/ravel-morrison-manchester-united-interview/
-
-**Philipp Lahm: Wirtz and Musiala are artists who can become complete at Liverpool and Bayern**\
-`The young talents have plenty still to learn but, within a clear structure with club and country, they can become complete players`\
-https://nytimes.com/athletic/6404786/2025/06/06/philipp-lahm-wirtz-musiala-germany-liverpool-bayern/
-
-**How does the Club World Cup work?**\
-`The 2025 Club World Cup, which is taking place in the United States, gets under way on June 14 and runs until July 13`\
-https://nytimes.com/athletic/6397180/2025/06/06/club-world-cup-format-schedule-bracket-rules/
-
-**England have a strong core despite retirements - Sarina Wiegman seems to know it**\
-`England confirmed their squad for Euro 2025 on Thursday — it was uncontroversial`\
-https://nytimes.com/athletic/6405919/2025/06/06/england-sarina-wiegman-euro-2025-squad/
 

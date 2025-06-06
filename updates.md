@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`A Musk-Trump fight.`\
+https://nytimes.com/2025/06/06/briefing/musk-trump-gaza.html
+
+**White Sox are calling up Kyle Teel, No. 24 in Keith Law's rankings: Reports**\
+`The White Sox might have some help on the way, as the club is reportedly calling up top prospect Kyle Teel from Triple-A Charlotte.`\
+https://nytimes.com/athletic/6407311/2025/06/06/white-sox-are-calling-up-kyle-teel-no-24-in-keith-laws-prospect-rankings-reports/
+
+**Gibbs-White staying at Nottingham Forest would be another sign of intent**\
+`Forest hanging onto in-demand Gibbs-White this summer will indicate the club's ambition ahead of their European return next season`\
+https://nytimes.com/athletic/6404893/2025/06/06/morgan-gibbs-white-staying-at-nottingham-forest-would-be-another-marker-of-intent/
+
 **The Ter Stegen case: Is Barcelona's captain being forced out?**\
 `The German goalkeeper's future at Barca is being widely discussed – following a familiar narrative  `\
 https://nytimes.com/athletic/6404779/2025/06/06/barcelona-ter-stegen-de-jong-raphinha/
