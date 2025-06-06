@@ -1,3 +1,7 @@
+**Tesla Shares Bounce After Tanking as Musk-Trump Spat Spiraled**\
+`The stock has been on a roller coaster ever since Mr. Trump’s election. The shares are down about 13 percent this week.`\
+https://nytimes.com/2025/06/06/business/tesla-stock-trump-elon-musk.html
+
 **Trump Approves Expansion of Scandal-Hit Coal Mine**\
 `Environmental groups had opposed expanding a Montana mine previously caught up in allegations of cocaine trafficking and the faked kidnapping of an executive.`\
 https://nytimes.com/2025/06/06/climate/bull-mountain-coal-mine-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/health/cdc-data-privacy-palantir.html
 **Why Tottenham sacked Ange Postecoglou, the manager who ended their 17-year trophy drought**\
 `The inside story behind Levy's decision to sack Postecoglou, after a historically bad domestic season but also Europa League glory`\
 https://nytimes.com/athletic/6402238/2025/06/06/tottenham-sack-postecoglou-inside-read/
-
-**Trump Administration Asks Justices to Clear the Way for Cuts to Education Department**\
-`Lawyers for the administration asked the Supreme Court to block a lower court order directing officials to reinstate thousands of fired employees.`\
-https://nytimes.com/2025/06/06/us/politics/supreme-court-trump-education-department.html
 
