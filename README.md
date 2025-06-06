@@ -1,3 +1,7 @@
+**Kyiv Hit in Russia’s Deadly Overnight Attack**\
+`The Ukrainian capital was one of several targets in Russia’s broad assault early Friday.`\
+https://nytimes.com/video/world/europe/100000010211900/russia-missile-attack-ukraine-kyiv.html
+
 **No Wharton, Delap in England U21s squad for Euros**\
 `England are reigning champions after lifting the title two years ago.`\
 https://nytimes.com/athletic/6407625/2025/06/06/england-u21s-squad-delap-wharton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/nyregion/cuomo-harassment-mayor.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/06/crosswords/spelling-bee-forum.html
-
-**Frustrations boil over in rain as Astros GM Dana Brown tries to 'protect the boys'**\
-`Brown was hoping for a postponement in Pittsburgh instead of a three-hour delay, and he let his feelings known. The game was finally played.`\
-https://nytimes.com/athletic/6407547/2025/06/06/astros-pirates-rain-delay-gm-dana-brown/
 
