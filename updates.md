@@ -1,3 +1,19 @@
+**Handicapping the Eagles' position battles as they look to defend their Super Bowl championship**\
+`A look at five key positions and who stands to step up.`\
+https://nytimes.com/athletic/6405890/2025/06/06/eagles-position-battles/
+
+**The New York Times International Edition in Print for Saturday, June 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/06/todays-new-york-times-international-edition
+
+**Which young Bills are poised for a big season? Players under 25 years old with breakout potential**\
+`There will be opportunities for several young players to make a big impact this season.`\
+https://nytimes.com/athletic/6406378/2025/06/06/bills-players-under-25-years-old-keon-coleman-cole-bishop/
+
+**‘I Felt a Bullet’: Palestinians Recount Deadly Shooting Near New Gaza Aid Site**\
+`Nearly 50 people have been reported killed and 300 others wounded in incidents near the Israeli-backed distribution center, which was designed to keep food out of the hands of Hamas.`\
+https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-center-shooting.html
+
 **Analyzing the Belmont Stakes field: Journalism favored over Sovereignty again**\
 `Breaking down the figures, odds and recent performances for the 2025 Belmont Stakes field. `\
 https://nytimes.com/athletic/6403257/2025/06/06/belmont-stakes-field-analyzed-journalism-sovereignty/
