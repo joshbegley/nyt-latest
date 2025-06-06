@@ -1,3 +1,11 @@
+**Coal and Gas Plants Were Closing. Then Trump Ordered Them to Keep Running.**\
+`The grid operators that draw power from the plants said they never asked for them to remain open, and consumers may have to absorb extra costs.`\
+https://nytimes.com/2025/06/06/climate/trump-coal-gas-plants-energy-emergency.html
+
+**Who Leads the Israeli-backed Palestinian Militia in Gaza?**\
+`Yasser Abu Shabab, a Bedouin man in his 30s, holds sway in eastern Rafah, an area close to a key border crossing between Israel and Gaza.`\
+https://nytimes.com/2025/06/06/world/middleeast/israel-gaza-palestinian-militia-hamas-abu-shabab.html
+
 **Solid Report Bolsters Fed’s Patient Approach to Interest Rate Cuts**\
 `The central bank is in wait-and-see mode amid extreme uncertainty about the economic outlook.`\
 https://nytimes.com/2025/06/06/business/jobs-fed-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6406496/2025/06/06/chsn-comcast-chicago-tv-bulls-bl
 **He’s a Master of Outrage on X. He’s Also Broke.**\
 `An online creator went from a “nobody” to a conspiratorial sensation on X. What he gets in return is less clear.`\
 https://nytimes.com/2025/06/06/technology/x-right-wing-influencer.html
-
-**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 13 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
-https://nytimes.com/2025/06/06/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
-
-**Arsenal make Chelsea’s Arrizabalaga main backup goalkeeper target**\
-`Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
-https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transfer-chelsea/
 
