@@ -1,3 +1,7 @@
+**Why Coco Gauff and Aryna Sabalenka's French Open final is a chase for each other's dreams**\
+`Gauff and Sabalenka are the top-ranked women's tennis players. They each have — and covet — less tangible things that the other possesses.`\
+https://nytimes.com/athletic/6408477/2025/06/06/gauff-sabalenka-tennis-french-open-final-bio-head-to-head/
+
 **NiJaree Canady signs another 7-figure NIL deal with Texas Tech**\
 `Canady made headlines last year for transferring from Stanford to Texas Tech and signing an NIL deal worth over $1 million.`\
 https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-tech-softball/

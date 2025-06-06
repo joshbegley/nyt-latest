@@ -1,3 +1,7 @@
+**Abrego Garcia Is Being Returned to U.S. From El Salvador**\
+`Kilmar Armando Abrego Garcia, who had been living in Maryland and legally protected from deportation, had been held in a notorious Salvadoran prison since March 15.`\
+https://nytimes.com/2025/06/06/us/politics/kilmar-abrego-garcia-us-criminal-charges.html
+
 **NiJaree Canady signs another 7-figure NIL deal with Texas Tech**\
 `Canady made headlines last year for transferring from Stanford to Texas Tech and signing an NIL deal worth over $1 million.`\
 https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-tech-softball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408851/2025/06/06/max-verstappen-penalty-monaco-gp
 **Is It OK to Earn Rental Income From an ICE Holding Facility?**\
 `What are the ethics of receiving money from an entity you consider kind of evil?`\
 https://nytimes.com/2025/06/06/magazine/income-ice-facility-ethics.html
-
-**Law Would Make Most National Weather Service Workers Hard to Fire**\
-`A bill introduced Friday would classify forecasters and other staff as critical public safety roles. It comes after the Weather Service lost nearly 600 people to DOGE cuts.`\
-https://nytimes.com/2025/06/06/us/politics/nws-weather-jobs-hiring-bill-congress.html
 
