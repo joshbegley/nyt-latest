@@ -1,3 +1,19 @@
+**Driving a Famed Highway to Learn Why It’s Always Broken**\
+`To understand the threats to the Pacific Coast Highway, a reporter and photographer hit the road.`\
+https://nytimes.com/2025/06/06/insider/pacific-coast-highway-road-trip.html
+
+**NBA trophy logos may return on Finals courts next year, Adam Silver says**\
+`While the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
+https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silver/
+
+**Weinstein Juror Complains to Judge About ‘Playground Stuff’ by Others**\
+`A member of the jury at Harvey Weinstein’s Manhattan retrial on sex crime charges said that another had become the subject of a “bit of a shunning” during deliberations.`\
+https://nytimes.com/2025/06/06/nyregion/harvey-weinstein-jury.html
+
+**Jillian Sackler, Philanthropist Who Defended Husband’s Legacy, Dies at 84**\
+`Though the Sackler name was tarnished over Purdue Pharma’s role in the opioid crisis, Arthur Sackler’s should not be, she insisted; a company founder, he died well before the trouble began.`\
+https://nytimes.com/2025/06/06/arts/jillian-sackler-dead.html
+
 **French Open recap: Why was the roof closed for Carlos Alcaraz vs. Lorenzo Musetti in sunny weather?**\
 `Why Carlos Alcaraz and Lorenzo Musetti played their French Open semifinal under a closed roof on a sunny day.`\
 https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-why-weather-rules/

@@ -1,3 +1,19 @@
+**Driving a Famed Highway to Learn Why It’s Always Broken**\
+`To understand the threats to the Pacific Coast Highway, a reporter and photographer hit the road.`\
+https://nytimes.com/2025/06/06/insider/pacific-coast-highway-road-trip.html
+
+**NBA trophy logos may return on Finals courts next year, Adam Silver says**\
+`While the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
+https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silver/
+
+**Weinstein Juror Complains to Judge About ‘Playground Stuff’ by Others**\
+`A member of the jury at Harvey Weinstein’s Manhattan retrial on sex crime charges said that another had become the subject of a “bit of a shunning” during deliberations.`\
+https://nytimes.com/2025/06/06/nyregion/harvey-weinstein-jury.html
+
+**Jillian Sackler, Philanthropist Who Defended Husband’s Legacy, Dies at 84**\
+`Though the Sackler name was tarnished over Purdue Pharma’s role in the opioid crisis, Arthur Sackler’s should not be, she insisted; a company founder, he died well before the trouble began.`\
+https://nytimes.com/2025/06/06/arts/jillian-sackler-dead.html
+
 **Ex-Police Chief and Convicted Killer Who Escaped Is Caught Near Arkansas Prison**\
 `Grant Hardin, who came to be known as the “Devil in the Ozarks,” was captured on Friday, nearly two weeks after his May 25 escape from a maximum-security prison.`\
 https://nytimes.com/2025/06/06/us/devil-in-the-ozarks-captured-arkansas.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6409462/2025/06/06/jack-grealish-england-world-cup/
 **Italy coach Spalletti vows to fight on after World Cup defeat to Norway**\
 `Spalletti insisted he wanted to “move forward” as national coach and that he had faith in his “project” after the defeat in Oslo.`\
 https://nytimes.com/athletic/6409392/2025/06/06/spalletti-italy-manager-world-cup/
-
-**Rosenthal: The implications of Corbin Burnes’ season-ending injury go far beyond the Diamondbacks**\
-`The inevitability of pitching injuries — combined with massive long-term deals — continues to haunt baseball.`\
-https://nytimes.com/athletic/6400103/2025/06/06/corbin-burnes-arizona-diamondbacks-tommy-john-pitching/
-
-**In the Shadow of the White House, the World Celebrates Pride in D.C.**\
-`Washington is hosting WorldPride, a global celebration of the L.G.B.T.Q. community, but the event has been made more difficult by shifts in U.S. policy.`\
-https://nytimes.com/2025/06/06/us/worldpride-parade-dc-trump.html
-
-**Mistakenly Deported Man Returned to U.S.**\
-`Also, the Tony Awards are Sunday. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/06/06/briefing/abrego-garcia-tonys.html
-
-**French Open recap: Why was the roof closed for Carlos Alcaraz vs. Lorenzo Musetti in sunny weather?**\
-`Why Carlos Alcaraz and Lorenzo Musetti played their French Open semifinal under a closed roof on a sunny day.`\
-https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-why-weather-rules/
 
