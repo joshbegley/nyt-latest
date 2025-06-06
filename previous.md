@@ -1,10 +1,14 @@
+**Liverpool Under-21s head coach Lewtas to leave the club after 12 years**\
+`Lewtas has aspirations of becoming a manager at senior level and believes the time is right to pursue “a new adventure”.`\
+https://nytimes.com/athletic/6408166/2025/06/06/barry-lewtas-under-21s-liverpool/
+
 **CHSN inks deal with Comcast, ending long saga for Bulls, Blackhawks, White Sox**\
 `Eight-plus months after launching, Chicago Sports Network will finally reach a wider Chicago-area audience.`\
 https://nytimes.com/athletic/6406496/2025/06/06/chsn-comcast-chicago-tv-bulls-blackhawks-white-sox/
 
 **He’s a Master of Outrage on X. He’s Also Broke.**\
 `An online creator went from a “nobody” to a conspiratorial sensation on X. What he gets in return is less clear.`\
-https://nytimes.com/2025/06/06/technology/hes-a-master-of-outrage-on-x-hes-also-broke.html
+https://nytimes.com/2025/06/06/technology/x-right-wing-influencer.html
 
 **Arsenal make Chelsea’s Arrizabalaga main goalkeeper target**\
 `Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407944/2025/06/06/manchester-united-accounts-lates
 **Hawley Breaks With Republicans to Oppose a Major Crypto Bill**\
 `The senator said that the GENIUS Act, as it’s written, should be struck down, fearing that it would be a “huge giveaway to Big Tech.”`\
 https://nytimes.com/2025/06/06/business/dealbook/hawley-crypto-stablecoin-bill.html
-
-**Ravens OTA observations: With third multiyear contract, Rashod Bateman enters rare air**\
-`Plus, Chuck Pagano spoke to reporters for the first time since returning to the organization to guide Baltimore's secondary. `\
-https://nytimes.com/athletic/6407293/2025/06/06/ravens-rashod-bateman-organized-team-activities/
 

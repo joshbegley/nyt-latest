@@ -1,3 +1,11 @@
+**Liverpool Under-21s head coach Lewtas to leave the club after 12 years**\
+`Lewtas has aspirations of becoming a manager at senior level and believes the time is right to pursue “a new adventure”.`\
+https://nytimes.com/athletic/6408166/2025/06/06/barry-lewtas-under-21s-liverpool/
+
+**He’s a Master of Outrage on X. He’s Also Broke.**\
+`An online creator went from a “nobody” to a conspiratorial sensation on X. What he gets in return is less clear.`\
+https://nytimes.com/2025/06/06/technology/x-right-wing-influencer.html
+
 **CHSN inks deal with Comcast, ending long saga for Bulls, Blackhawks, White Sox**\
 `Eight-plus months after launching, Chicago Sports Network will finally reach a wider Chicago-area audience.`\
 https://nytimes.com/athletic/6406496/2025/06/06/chsn-comcast-chicago-tv-bulls-blackhawks-white-sox/
