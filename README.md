@@ -1,3 +1,11 @@
+**Rosenthal: After hitting ‘rock bottom,’ Braves can still salvage their season - if they snap out of it**\
+`The Braves are talented enough to bounce back, but even the returns of Ronald Acuña Jr. and Spencer Strider haven't led to a turnaround yet.`\
+https://nytimes.com/athletic/6407214/2025/06/06/atlanta-braves-rock-bottom-season/
+
+**How the Thunder's usually impeccable defense sprang leaks late in Game 1 loss**\
+`Indiana found holes in Oklahoma City's coverages down the stretch. Can the Thunder fix their mistakes before Game 2?`\
+https://nytimes.com/athletic/6407404/2025/06/06/thunder-defense-game-1-nba-finals/
+
 **The Pulse: How many buzzer beaters can one man hit?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6406113/2025/06/06/tyrese-haliburton-thunder-game-winner-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6406962/2025/06/06/aaron-rodgers-steelers-quarterba
 **Bears minicamp observations: Fun day at Halas Hall will fuel Ben Johnson's trick plays**\
 `As the Bears concluded their three-day minicamp, Johnson named four standouts from the week, including two 2025 draft picks.`\
 https://nytimes.com/athletic/6406705/2025/06/06/bears-minicamp-ben-johnson-trick-plays/
-
-**'Something special can happen': Rafael Nadal's first French Open title, by those who were there**\
-`Nadal's first French Open win set him on a path to untold dominance. Here's how it unfolded, according to those that lived it.`\
-https://nytimes.com/athletic/6405946/2025/06/06/tennis-french-open-rafael-nadal-2005-first-roland-garros-title/
-
-**Mookie Betts solidified himself at shortstop. Now he's helping other Dodgers**\
-`“Mook wants to win,” Max Muncy said. “He wants to win more than anything.”`\
-https://nytimes.com/athletic/6407086/2025/06/06/mookie-betts-solidified-himself-at-shortstop-now-hes-helping-other-dodgers/
 
