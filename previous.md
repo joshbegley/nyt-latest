@@ -1,40 +1,40 @@
-**Here’s what to know about the report.**\
-`Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
-https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/jobs-report-may
+**'Something special can happen': Rafael Nadal's first French Open title, by those who were there**\
+`Nadal's first French Open win set him on a path to untold dominance. Here's how it unfolded, according to those that lived it.`\
+https://nytimes.com/athletic/6405946/2025/06/06/tennis-french-open-rafael-nadal-2005-first-roland-garros-title/
 
-**Live Updates: In Chaotic Economy, Hiring Likely Remained Steady in May**\
-`Economists expect the Labor Department’s monthly report to show that hiring proceeded at a healthy rate in May, with employers adding 125,000 jobs.`\
-https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy
+**Mookie Betts solidified himself at shortstop. Now he's helping other Dodgers**\
+`“Mook wants to win,” Max Muncy said. “He wants to win more than anything.”`\
+https://nytimes.com/athletic/6407086/2025/06/06/mookie-betts-solidified-himself-at-shortstop-now-hes-helping-other-dodgers/
 
-**Here’s the latest.**\
-`By Tyler Pager and Theodore Schleifer`\
-https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud/heres-the-latest
+**Women's sports investor Kara Nortman on outlook, experiences and opportunities: Q&A**\
+`The co-founder of Monarch Collective, an investment fund specializing specifically in women's sports, has ownership in three NWSL teams.`\
+https://nytimes.com/athletic/6403271/2025/06/06/kara-nortman-nwsl-investment-boston-legacy-fc-angel-city/
 
-**Live Updates: Trump and Musk Have a Lot at Risk in Feud**\
-`President Trump must contend with the wrath of a wealthy ex-ally who may seek to undermine him politically. Mr. Trump has threatened to cut off Elon Musk’s billions in government contracts.`\
-https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud
+**A glimpse into the secrets of the Tigers' Comerica Park 'smart cage'**\
+`Tigers hitters share how they use the Trajekt pitching machine and force plates to hone their game. `\
+https://nytimes.com/athletic/6406167/2025/06/06/secrets-of-tigers-comerica-park-smart-cage/
 
-**Handicapping the Eagles' position battles as they look to defend their Super Bowl championship**\
-`A look at five key positions and who stands to step up.`\
-https://nytimes.com/athletic/6405890/2025/06/06/eagles-position-battles/
+**Knicks' firing of Tom Thibodeau raises a question: What do we want from NBA coaches?**\
+`On merit, Tom Thibodeau should still be coaching the Knicks, but coaching is about a lot more than that. `\
+https://nytimes.com/athletic/6406208/2025/06/06/knicks-tom-thibodeau-firing-nba-coaches/
 
-**The New York Times International Edition in Print for Saturday, June 7, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/06/todays-new-york-times-international-edition
+**WCWS’ mad carnival meets an NBA Finals stunner: Two days in Oklahoma City’s sports vortex**\
+`A city that didn’t exist a century and a half ago, a town off the major-sport grid when this century began, is sports' latest magnetic north`\
+https://nytimes.com/athletic/6407291/2025/06/06/nba-finals-wcws-oklahoma-city-thunder/
 
-**Which young Bills are poised for a big season? Players under 25 years old with breakout potential**\
-`There will be opportunities for several young players to make a big impact this season.`\
-https://nytimes.com/athletic/6406378/2025/06/06/bills-players-under-25-years-old-keon-coleman-cole-bishop/
+**Brenden Aaronson: My game in my words**\
+`From playing different positions to leading the press, the Leeds and USMNT attacking midfielder talks us through how he plays soccer`\
+https://nytimes.com/athletic/6388230/2025/06/06/brenden-aaronson-leeds-usmnt-my-game/
 
-**‘I Felt a Bullet’: Palestinians Recount Deadly Shooting Near New Gaza Aid Site**\
-`Nearly 50 people have been reported killed and 300 others wounded in incidents near the Israeli-backed distribution center, which was designed to keep food out of the hands of Hamas.`\
-https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-center-shooting.html
+**‘The Protocol’: The Story Behind Medical Care for Transgender Kids**\
+`A new six-part podcast explores the story of medical treatment for transgender young people — how the care began, the lives it changed, and the legal and political fights that could end it in the U.S.`\
+https://nytimes.com/2025/06/06/podcasts/the-daily/medical-care-transgender-kids.html
 
-**Germany’s Chancellor Cracks the Trump Code, but to What End?**\
-`Chancellor Friedrich Merz of Germany spoke rarely but reverently, and found a warm reception in the Oval Office. Now he hopes to turn rapport into policy wins.`\
-https://nytimes.com/2025/06/06/world/europe/germany-merz-trump-visit.html
+**Jessica Ramos Will Endorse Andrew Cuomo for New York City Mayor**\
+`The decision by Ms. Ramos, a state senator from Queens, is at odds with some of her past criticism of Mr. Cuomo, including comments questioning his “mental acuity.”`\
+https://nytimes.com/2025/06/06/nyregion/jessica-ramos-endorse-cuomo.html
 
-**Analyzing the Belmont Stakes field: Journalism favored over Sovereignty again**\
-`Breaking down the figures, odds and recent performances for the 2025 Belmont Stakes field. `\
-https://nytimes.com/athletic/6403257/2025/06/06/belmont-stakes-field-analyzed-journalism-sovereignty/
+**One pressing question for every new NFL defensive play caller in 2025**\
+`Eleven teams have made changes at DC, with some big names (including Dennis Allen, Robert Saleh and Brandon Staley) in new places.`\
+https://nytimes.com/athletic/6403327/2025/06/06/nfl-2025-season-defensive-play-caller-questions/
 
