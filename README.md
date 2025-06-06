@@ -1,3 +1,19 @@
+**Dallas Stars fire coach Pete DeBoer after 3 seasons**\
+`The Stars fired Pete DeBoer despite bringing Dallas to the Western Conference final in all three of his seasons as head coach.`\
+https://nytimes.com/athletic/6408361/2025/06/06/pete-deboer-fired-dallas-stars-nhl/
+
+**Singles Are Trying a Novel Approach to Dating: Meeting in Person**\
+`As Gen Z and Millennial daters flee the apps and look for love in the wild, many have no idea where to start.`\
+https://nytimes.com/2025/06/06/well/dating-irl-analog-online.html
+
+**Arise, Sir David Beckham: The Soccer Star Will Be Knighted**\
+`The British news media reported that the on-field golden boy and international celebrity will receive the honor from King Charles III.`\
+https://nytimes.com/2025/06/06/world/europe/david-beckham-knighthood.html
+
+**The 6.08.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/06/06/the-6082025-issue
+
 **Can Your Spouse Copy Your Snacks?**\
 `A ruling on whether originality matters when hunger strikes.`\
 https://nytimes.com/interactive/2025/06/06/magazine/copying-snacks-hodgman-quiz.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6407589/2025/06/06/braves-diamondbacks-kimbrel-the-
 **How to watch Padres at Brewers series this weekend, as San Diego scraps for NL West lead**\
 `Two playoff hopefuls get into a three-game tangle Friday through Sunday, with second-place San Diego visiting hot Milwaukee.`\
 https://nytimes.com/athletic/6406711/2025/06/06/padres-brewers-mlb-how-to-watch/
-
-**Three NBA Finals presentation adjustments NBA, ESPN should make for Game 2**\
-`The NBA Finals are all about game-to-game adjustments. Here are several changes the NBA and ESPN might consider entering Game 2.`\
-https://nytimes.com/athletic/6407962/2025/06/06/nba-finals-pacers-thunder-espn-presentation-changes/
-
-**Work Overtime? You May Soon Get a Tax Cut**\
-`Once a seemingly offhand remark at a campaign rally, President Trump’s pledge to not tax overtime could become federal law.`\
-https://nytimes.com/2025/06/06/us/politics/trump-no-tax-overtime.html
-
-**Liverpool close to signing Hungarian goalkeeper Pecsi**\
-`Pesci is expected to start next season playing for the club's under-21s.`\
-https://nytimes.com/athletic/6408211/2025/06/06/liverpool-armin-pecsi-goalkeeper-transfer/
-
-**‘The Secret Lives of Mormon Wives’ Keeps Pushing Back TV’s Fourth Wall**\
-`Reality TV had long advised casts to pretend the cameras (and producers) weren’t there. But for the Mormon influencers of MomTok, the business of being on camera is central to the plot.`\
-https://nytimes.com/2025/06/06/arts/television/secret-lives-of-mormon-wives-season-2.html
 
