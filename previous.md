@@ -1,3 +1,7 @@
+**A Different Kind of D-Day, Laden With Anxiety Among Old Allies**\
+`Defense Secretary Pete Hegseth honored the sacrifices of the soldiers who died landing in France 81 years ago. But there was no escaping current tensions.`\
+https://nytimes.com/2025/06/06/world/europe/d-day-anniversary-2025-normandy-hegseth.html
+
 **Canada's Whitecaps players back in training after Marsch alleges 'poisoning'**\
 `The Canada manager was not thrilled about the shape of three of his players following the Concacaf Champions Cup final`\
 https://nytimes.com/athletic/6408457/2025/06/06/vancouver-whitecaps-canada-players-mexico-marsch-food-poisoning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408342/2025/06/06/jackie-robinson-minnie-minoso-mu
 **A Truly Showstopping Grilled Beef Tenderloin**\
 `For one, there’s a red-wine-soaked towel involved.`\
 https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderloin.html
-
-**13 Off Broadway Shows to See in June**\
-`Reed Birney and Lisa Emery in a two-hander, Taylor Mac in a Molière riff and Jay Ellis in a romantic drama — here’s what’s on New York stages this month.`\
-https://nytimes.com/2025/06/06/theater/off-broadway-shows-june.html
 
