@@ -1,3 +1,27 @@
+**Teagan Kavan’s ‘guarded’ approach differs from NiJaree Canady, spurring Texas’ WCWS run nonetheless**\
+`Kavan's unassuming nature disguises a fierce competitor trusted to deliver Texas its first national championship in Game 3 on Friday.`\
+https://nytimes.com/athletic/6408808/2025/06/06/teagan-kavan-texas-texas-tech-womens-college-world-series-game-3/
+
+**What to Know About Harvard’s Legal Battles With Trump**\
+`This week, a federal judge sided with Harvard in one of its two lawsuits, blocking an order by President Trump to prevent international students from enrolling.`\
+https://nytimes.com/article/harvard-trump-legal-battles.html
+
+**Reagan Airport Is Pausing Flights for Trump’s Military Parade. What Will It Mean for Travelers?**\
+`Some flights near Washington will be suspended on June 14 to accommodate military flyovers and fireworks displays. Here’s how it might affect travelers.`\
+https://nytimes.com/2025/06/06/travel/trump-military-parade-reagan-airport-closure.html
+
+**Wildfire Smoke Brings More Hazardous Air Quality to Great Lakes and Beyond**\
+`Parts of Canada are seeing some of their most unhealthy air yet, and the smoke is likely to move over the United States again this weekend.`\
+https://nytimes.com/2025/06/06/weather/canada-wildifres-smoke-aqi-winnepeg.html
+
+**Documentary Series Goes Inside Trump’s Bubble**\
+`Advance episodes of “Art of the Surge” offer a rare behind-the-scenes look at the adulatory environment in which Mr. Trump has moved since regaining power.`\
+https://nytimes.com/2025/06/06/us/politics/trump-documentary-series.html
+
+**Karol G’s Love Letter to Latinas, Plus 4 More New Songs**\
+`Hear tracks by Bruce Springsteen, Moses Sumney and more.`\
+https://nytimes.com/2025/06/06/podcasts/karol-gs-love-letter-to-latinas-plus-4-more-new-songs.html
+
 **Overlooked No More: Hong Yen Chang, Lawyer Who Challenged a Racist System**\
 `He struggled to become the first Chinese American person to practice law in the U.S., then used his training to fight for other Chinese Americans.`\
 https://nytimes.com/2025/06/06/obituaries/hong-yen-chang-overlooked.html
@@ -11,30 +35,6 @@ https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-poch
 https://nytimes.com/athletic/6408847/2025/06/06/fcs-football-north-dakota-state-until-saturday/
 
 **Buildup to a Meltdown: How the Trump-Musk Alliance Collapsed**\
-`President Trump’s decision to pull a close associate of Elon Musk’s out of the running to run NASA helped doom an extraordinary partnership.`\
+`President Trump’s decision to pull a close associate of Elon Musk’s out of the running to lead NASA helped doom an extraordinary partnership.`\
 https://nytimes.com/2025/06/06/us/politics/trump-musk-split-nasa.html
-
-**Paul Durcan, Irish Poet of Tortured and Tender Souls, Is Dead at 80**\
-`He survived electroshock treatments and the threat of lobotomy to become one of Ireland’s most popular poets. The Irish Times called him a “literary phenomenon.”`\
-https://nytimes.com/2025/06/06/books/paul-durcan-dead.html
-
-**Thunderstruck! How the Pacers pulled off another dramatic comeback**\
-`Game 1 of the NBA Finals was the Pacers’ fifth comeback victory from a deficit of 15 or more points in the 2025 playoffs.`\
-https://nytimes.com/athletic/6408712/2025/06/06/pacers-thunder-nba-finals-game-1-comeback/
-
-**Pete DeBoer earned his firing, but Stars' problems run deeper**\
-`The Stars were very good under DeBoer, a very good coach. But Dallas is looking for great, and DeBoer is looking for work.`\
-https://nytimes.com/athletic/6408690/2025/06/06/stars-coach-fired-peter-deboer/
-
-**Canada coach Jesse Marsch condemns U.S. treatment, 'lack of respect' for Ukraine**\
-`“As an American, the treatment that we have given the President of the Ukraine and the lack of respect really bothers me," Marsch said.`\
-https://nytimes.com/athletic/6408579/2025/06/06/canada-jesse-marsch-ukraine-donald-trump/
-
-**Tesla Shares Bounce After Tanking as Musk-Trump Spat Spiraled**\
-`The stock has been on a roller coaster ever since Mr. Trump’s election. The shares are down about 13 percent this week.`\
-https://nytimes.com/2025/06/06/business/tesla-stock-trump-elon-musk.html
-
-**Trump Approves Expansion of Scandal-Hit Coal Mine**\
-`Environmental groups had opposed expanding a Montana mine previously caught up in allegations of cocaine trafficking and the faked kidnapping of an executive.`\
-https://nytimes.com/2025/06/06/climate/bull-mountain-coal-mine-trump.html
 
