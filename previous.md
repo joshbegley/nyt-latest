@@ -1,3 +1,7 @@
+**Rosenthal: The implications of Corbin Burnes’ season-ending injury go far beyond the Diamondbacks**\
+`The inevitability of pitching injuries – combined with massive long-term deals – continues to haunt baseball.`\
+https://nytimes.com/athletic/6400103/2025/06/06/corbin-burnes-arizona-diamondbacks-tommy-john-pitching/
+
 **In the Shadow of the White House, the World Celebrates Pride in D.C.**\
 `Washington is hosting WorldPride, a global celebration of the L.G.B.T.Q. community, but the event has been made more difficult by shifts in U.S. policy.`\
 https://nytimes.com/2025/06/06/us/worldpride-parade-dc-trump.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-w
 https://nytimes.com/2025/06/06/us/sonia-sunny-jacobs-dead.html
 
 **Diamondbacks' Corbin Burnes to undergo season-ending Tommy John surgery**\
-`Burnes will miss the rest of this season and most if not all of the 2026 season.`\
+`Burnes will miss the rest of this season and most, if not all, of the 2026 season.`\
 https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-tommy-john-surgery/
 
 **What’s a Couple to Do When One Works for Donald Trump and the Other for Elon Musk?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6393077/2025/06/06/liverpool-florian-wirtz-transfer
 **A Tennessee County Is ‘Fascinated’ as an Escaped Zebra Runs Wild**\
 `The zebra, which residents have named Ed, has gained a following, with memes and A.I.-generated images springing up as it continues to elude capture.`\
 https://nytimes.com/2025/06/06/us/zebra-tennessee-christiana.html
-
-**AMC Says It Will Show More Ads Before Movies**\
-`The theater chain’s decision brings it in line with what its biggest competitors, Regal and Cinemark, have been doing since 2019, but it risks irking loyal customers.`\
-https://nytimes.com/2025/06/06/business/movies-theaters-ads-amc.html
 

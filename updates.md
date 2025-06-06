@@ -1,3 +1,11 @@
+**Rosenthal: The implications of Corbin Burnes’ season-ending injury go far beyond the Diamondbacks**\
+`The inevitability of pitching injuries – combined with massive long-term deals – continues to haunt baseball.`\
+https://nytimes.com/athletic/6400103/2025/06/06/corbin-burnes-arizona-diamondbacks-tommy-john-pitching/
+
+**Diamondbacks' Corbin Burnes to undergo season-ending Tommy John surgery**\
+`Burnes will miss the rest of this season and most, if not all, of the 2026 season.`\
+https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-tommy-john-surgery/
+
 **In the Shadow of the White House, the World Celebrates Pride in D.C.**\
 `Washington is hosting WorldPride, a global celebration of the L.G.B.T.Q. community, but the event has been made more difficult by shifts in U.S. policy.`\
 https://nytimes.com/2025/06/06/us/worldpride-parade-dc-trump.html
