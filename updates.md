@@ -1,3 +1,11 @@
+**LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
+`Reynold Hoover, chief executive officer of organising committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
+https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
+
+**Arsenal make Chelsea’s Arrizabalaga main backup goalkeeper target**\
+`Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
+https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transfer-chelsea/
+
 **Liverpool Under-21s head coach Lewtas to leave the club after 12 years**\
 `Lewtas has aspirations of becoming a manager at senior level and believes the time is right to pursue “a new adventure”.`\
 https://nytimes.com/athletic/6408166/2025/06/06/barry-lewtas-under-21s-liverpool/

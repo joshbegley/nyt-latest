@@ -1,3 +1,7 @@
+**LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
+`Reynold Hoover, chief executive officer of organising committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
+https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
+
 **Liverpool Under-21s head coach Lewtas to leave the club after 12 years**\
 `Lewtas has aspirations of becoming a manager at senior level and believes the time is right to pursue “a new adventure”.`\
 https://nytimes.com/athletic/6408166/2025/06/06/barry-lewtas-under-21s-liverpool/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/06/06/technology/x-right-wing-influencer.html
 `To participate, submit your response here by June 13 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
 https://nytimes.com/2025/06/06/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
 
-**Arsenal make Chelsea’s Arrizabalaga main goalkeeper target**\
+**Arsenal make Chelsea’s Arrizabalaga main backup goalkeeper target**\
 `Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
 https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transfer-chelsea/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/learning/video-submission-form-for-our-16th-annua
 **Man Utd financial results reveal drop in cash reserves ahead of summer window**\
 `United's cash position is set to be a complicating factor as the club's hierarchy looks to back head coach Ruben Amorim.`\
 https://nytimes.com/athletic/6407944/2025/06/06/manchester-united-accounts-latest-cash/
-
-**Hawley Breaks With Republicans to Oppose a Major Crypto Bill**\
-`The senator said that the GENIUS Act, as it’s written, should be struck down, fearing that it would be a “huge giveaway to Big Tech.”`\
-https://nytimes.com/2025/06/06/business/dealbook/hawley-crypto-stablecoin-bill.html
 
