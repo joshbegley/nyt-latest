@@ -10,13 +10,13 @@ https://nytimes.com/athletic/6406496/2025/06/06/chsn-comcast-chicago-tv-bulls-bl
 `An online creator went from a “nobody” to a conspiratorial sensation on X. What he gets in return is less clear.`\
 https://nytimes.com/2025/06/06/technology/x-right-wing-influencer.html
 
-**Arsenal make Chelsea’s Arrizabalaga main goalkeeper target**\
-`Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
-https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transfer-chelsea/
-
 **Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 13 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
 https://nytimes.com/2025/06/06/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
+
+**Arsenal make Chelsea’s Arrizabalaga main goalkeeper target**\
+`Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
+https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transfer-chelsea/
 
 **The Rich Compensation for Being the C.E.O.**\
 `The chief executives at Palantir, which scoops up data for the government, and Veeva Systems, a cloud-computing company, topped two lists of the highest-paid C.E.O.s.`\
