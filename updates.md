@@ -1,3 +1,23 @@
+**Liverpool close to signing Hungarian goalkeeper Pecsi**\
+`Pesci is expected to start next season playing for the club's under-21s.`\
+https://nytimes.com/athletic/6408211/2025/06/06/liverpool-armin-pecsi-goalkeeper-transfer/
+
+**‘The Secret Lives of Mormon Wives’ Keeps Pushing Back TV’s Fourth Wall**\
+`Reality TV had long advised casts to pretend the cameras (and producers) weren’t there. But for the Mormon influencers of MomTok, the business of being on camera is central to the plot.`\
+https://nytimes.com/2025/06/06/arts/television/secret-lives-of-mormon-wives-season-2.html
+
+**Coal and Gas Plants Were Closing. Then Trump Ordered Them to Keep Running.**\
+`The grid operators that draw power from the plants said they never asked for them to remain open, and consumers may have to absorb extra costs.`\
+https://nytimes.com/2025/06/06/climate/trump-coal-gas-plants-energy-emergency.html
+
+**Who Leads the Israeli-backed Palestinian Militia in Gaza?**\
+`Yasser Abu Shabab, a Bedouin man in his 30s, holds sway in eastern Rafah, an area close to a key border crossing between Israel and Gaza.`\
+https://nytimes.com/2025/06/06/world/middleeast/israel-gaza-palestinian-militia-hamas-abu-shabab.html
+
+**LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
+`Reynold Hoover, chief executive officer of organizing committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
+https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
+
 **Solid Report Bolsters Fed’s Patient Approach to Interest Rate Cuts**\
 `The central bank is in wait-and-see mode amid extreme uncertainty about the economic outlook.`\
 https://nytimes.com/2025/06/06/business/jobs-fed-interest-rates.html
