@@ -1,3 +1,15 @@
+**Balloons and Human Strength: How North Korea Righted a Toppled Warship**\
+`Satellite images show the unconventional strategy engineers used to get the 5,000-ton vessel afloat.`\
+https://nytimes.com/2025/06/06/world/asia/north-korea-warship-salvage-capsize.html
+
+**Jones: Steelers finally get their quarterback in Aaron Rodgers, but buyer beware**\
+`Pittsburgh wasn't Rodgers' first choice, but the Steelers waited patiently for him. Now that he's on board, will anything good come of it?`\
+https://nytimes.com/athletic/6406962/2025/06/06/aaron-rodgers-steelers-quarterback-concerns/
+
+**Bears minicamp observations: Fun day at Halas Hall will fuel Ben Johnson's trick plays**\
+`As the Bears concluded their three-day minicamp, Johnson named four standouts from the week, including two 2025 draft picks.`\
+https://nytimes.com/athletic/6406705/2025/06/06/bears-minicamp-ben-johnson-trick-plays/
+
 **'Something special can happen': Rafael Nadal's first French Open title, by those who were there**\
 `Nadal's first French Open win set him on a path to untold dominance. Here's how it unfolded, according to those that lived it.`\
 https://nytimes.com/athletic/6405946/2025/06/06/tennis-french-open-rafael-nadal-2005-first-roland-garros-title/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6407291/2025/06/06/nba-finals-wcws-oklahoma-city-th
 **Brenden Aaronson: My game in my words**\
 `From playing different positions to leading the press, the Leeds and USMNT attacking midfielder talks us through how he plays soccer`\
 https://nytimes.com/athletic/6388230/2025/06/06/brenden-aaronson-leeds-usmnt-my-game/
-
-**‘The Protocol’: The Story Behind Medical Care for Transgender Kids**\
-`A new six-part podcast explores the story of medical treatment for transgender young people — how the care began, the lives it changed, and the legal and political fights that could end it in the U.S.`\
-https://nytimes.com/2025/06/06/podcasts/the-daily/medical-care-transgender-kids.html
-
-**Jessica Ramos Will Endorse Andrew Cuomo for New York City Mayor**\
-`The decision by Ms. Ramos, a state senator from Queens, is at odds with some of her past criticism of Mr. Cuomo, including comments questioning his “mental acuity.”`\
-https://nytimes.com/2025/06/06/nyregion/jessica-ramos-endorse-cuomo.html
-
-**One pressing question for every new NFL defensive play caller in 2025**\
-`Eleven teams have made changes at DC, with some big names (including Dennis Allen, Robert Saleh and Brandon Staley) in new places.`\
-https://nytimes.com/athletic/6403327/2025/06/06/nfl-2025-season-defensive-play-caller-questions/
 

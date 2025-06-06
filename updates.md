@@ -1,3 +1,15 @@
+**Balloons and Human Strength: How North Korea Righted a Toppled Warship**\
+`Satellite images show the unconventional strategy engineers used to get the 5,000-ton vessel afloat.`\
+https://nytimes.com/2025/06/06/world/asia/north-korea-warship-salvage-capsize.html
+
+**Jones: Steelers finally get their quarterback in Aaron Rodgers, but buyer beware**\
+`Pittsburgh wasn't Rodgers' first choice, but the Steelers waited patiently for him. Now that he's on board, will anything good come of it?`\
+https://nytimes.com/athletic/6406962/2025/06/06/aaron-rodgers-steelers-quarterback-concerns/
+
+**Bears minicamp observations: Fun day at Halas Hall will fuel Ben Johnson's trick plays**\
+`As the Bears concluded their three-day minicamp, Johnson named four standouts from the week, including two 2025 draft picks.`\
+https://nytimes.com/athletic/6406705/2025/06/06/bears-minicamp-ben-johnson-trick-plays/
+
 **'Something special can happen': Rafael Nadal's first French Open title, by those who were there**\
 `Nadal's first French Open win set him on a path to untold dominance. Here's how it unfolded, according to those that lived it.`\
 https://nytimes.com/athletic/6405946/2025/06/06/tennis-french-open-rafael-nadal-2005-first-roland-garros-title/
