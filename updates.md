@@ -1,3 +1,7 @@
+**Canada coach Jesse Marsch condemns U.S. treatment, 'lack of respect' for Ukraine**\
+`“As an American, the treatment that we have given the President of the Ukraine and the lack of respect really bothers me," Marsch said.`\
+https://nytimes.com/athletic/6408579/2025/06/06/canada-jesse-marsch-ukraine-donald-trump/
+
 **Tesla Shares Bounce After Tanking as Musk-Trump Spat Spiraled**\
 `The stock has been on a roller coaster ever since Mr. Trump’s election. The shares are down about 13 percent this week.`\
 https://nytimes.com/2025/06/06/business/tesla-stock-trump-elon-musk.html

@@ -1,3 +1,7 @@
+**Canada coach Jesse Marsch condemns U.S. treatment, 'lack of respect' for Ukraine**\
+`“As an American, the treatment that we have given the President of the Ukraine and the lack of respect really bothers me," Marsch said.`\
+https://nytimes.com/athletic/6408579/2025/06/06/canada-jesse-marsch-ukraine-donald-trump/
+
 **Tesla Shares Bounce After Tanking as Musk-Trump Spat Spiraled**\
 `The stock has been on a roller coaster ever since Mr. Trump’s election. The shares are down about 13 percent this week.`\
 https://nytimes.com/2025/06/06/business/tesla-stock-trump-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/opinion/trump-musk-feud.html
 **Palantir’s Collection of Disease Data at C.D.C. Stirs Privacy Concerns**\
 `U.S. and state officials say the consolidation of the public health agency’s vast trove of information could expose patients and will delay analysis of long-term trends.`\
 https://nytimes.com/2025/06/06/health/cdc-data-privacy-palantir.html
-
-**Why Tottenham sacked Ange Postecoglou, the manager who ended their 17-year trophy drought**\
-`The inside story behind Levy's decision to sack Postecoglou, after a historically bad domestic season but also Europa League glory`\
-https://nytimes.com/athletic/6402238/2025/06/06/tottenham-sack-postecoglou-inside-read/
 
