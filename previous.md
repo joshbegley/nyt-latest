@@ -1,3 +1,11 @@
+**French Open finals odds: Sabalenka favored vs. Gauff, Alcaraz gets slight edge vs. Sinner**\
+`Aryna Sabalenka and Carlos Alcaraz are the favorites for the French Open's two singles finals this weekend.`\
+https://nytimes.com/athletic/6409177/2025/06/06/french-open-finals-odds-sabalenka-gauff-sinner-alcaraz/
+
+**Italy coach Spalletti vows to fight on after World Cup defeat to Norway**\
+`Spalletti insisted he wanted to “move forward” as national coach and that he had faith in his “project” after the defeat in Oslo.`\
+https://nytimes.com/athletic/6409392/2025/06/06/spalletti-italy-manager-world-cup/
+
 **Rosenthal: The implications of Corbin Burnes’ season-ending injury go far beyond the Diamondbacks**\
 `The inevitability of pitching injuries – combined with massive long-term deals – continues to haunt baseball.`\
 https://nytimes.com/athletic/6400103/2025/06/06/corbin-burnes-arizona-diamondbacks-tommy-john-pitching/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/style/stephen-miller-wife-trump-musk.html
 **TNT Sports expected to expand College Football Playoff rights to semifinals: Sources**\
 `A deal with ESPN would allow TNT to air one semifinal game annually from 2026 to 2028.`\
 https://nytimes.com/athletic/6409319/2025/06/06/tnt-sports-college-football-playoff-semifinals/
-
-**Liverpool submit improved €134m offer for Wirtz**\
-`Wirtz has emerged as a key target for Liverpool this summer and the playmaker is keen on a move to Anfield.`\
-https://nytimes.com/athletic/6393077/2025/06/06/liverpool-florian-wirtz-transfer-bid/
-
-**A Tennessee County Is ‘Fascinated’ as an Escaped Zebra Runs Wild**\
-`The zebra, which residents have named Ed, has gained a following, with memes and A.I.-generated images springing up as it continues to elude capture.`\
-https://nytimes.com/2025/06/06/us/zebra-tennessee-christiana.html
 

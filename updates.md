@@ -1,3 +1,11 @@
+**French Open finals odds: Sabalenka favored vs. Gauff, Alcaraz gets slight edge vs. Sinner**\
+`Aryna Sabalenka and Carlos Alcaraz are the favorites for the French Open's two singles finals this weekend.`\
+https://nytimes.com/athletic/6409177/2025/06/06/french-open-finals-odds-sabalenka-gauff-sinner-alcaraz/
+
+**Italy coach Spalletti vows to fight on after World Cup defeat to Norway**\
+`Spalletti insisted he wanted to “move forward” as national coach and that he had faith in his “project” after the defeat in Oslo.`\
+https://nytimes.com/athletic/6409392/2025/06/06/spalletti-italy-manager-world-cup/
+
 **Rosenthal: The implications of Corbin Burnes’ season-ending injury go far beyond the Diamondbacks**\
 `The inevitability of pitching injuries – combined with massive long-term deals – continues to haunt baseball.`\
 https://nytimes.com/athletic/6400103/2025/06/06/corbin-burnes-arizona-diamondbacks-tommy-john-pitching/

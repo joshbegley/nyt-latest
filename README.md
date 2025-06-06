@@ -1,3 +1,7 @@
+**Grealish needs regular football to make England's WC squad, says Tuchel**\
+`Grealish is facing an uncertain future at the club after a frustrating season and has yet to be called up for England since Tuchel's arrival`\
+https://nytimes.com/athletic/6409462/2025/06/06/jack-grealish-england-world-cup/
+
 **French Open finals odds: Sabalenka favored vs. Gauff, Alcaraz gets slight edge vs. Sinner**\
 `Aryna Sabalenka and Carlos Alcaraz are the favorites for the French Open's two singles finals this weekend.`\
 https://nytimes.com/athletic/6409177/2025/06/06/french-open-finals-odds-sabalenka-gauff-sinner-alcaraz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409355/2025/06/06/diamondbacks-corbin-burnes-tommy
 **What’s a Couple to Do When One Works for Donald Trump and the Other for Elon Musk?**\
 `Stephen Miller is a top aide to the president, while his wife, Katie Miller, recently left DOGE to work for Elon Musk. What now?`\
 https://nytimes.com/2025/06/06/style/stephen-miller-wife-trump-musk.html
-
-**TNT Sports expected to expand College Football Playoff rights to semifinals: Sources**\
-`A deal with ESPN would allow TNT to air one semifinal game annually from 2026 to 2028.`\
-https://nytimes.com/athletic/6409319/2025/06/06/tnt-sports-college-football-playoff-semifinals/
 
