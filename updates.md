@@ -1,3 +1,7 @@
+**Pete DeBoer earned his firing, but Stars' problems run deeper**\
+`The Stars were very good under DeBoer, a very good coach. But Dallas is looking for great, and DeBoer is looking for work.`\
+https://nytimes.com/athletic/6408690/2025/06/06/stars-coach-fired-peter-deboer/
+
 **Canada coach Jesse Marsch condemns U.S. treatment, 'lack of respect' for Ukraine**\
 `“As an American, the treatment that we have given the President of the Ukraine and the lack of respect really bothers me," Marsch said.`\
 https://nytimes.com/athletic/6408579/2025/06/06/canada-jesse-marsch-ukraine-donald-trump/
