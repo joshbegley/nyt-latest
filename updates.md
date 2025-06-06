@@ -1,3 +1,7 @@
+**'Big Gabi' has his big contract and his commitment is a blessing to Arsenal and the club's hierarchy**\
+`Gabriel has signed a new deal with Arsenal which lasts until 2029. The significance should not be underestimated ahead of a busy summer`\
+https://nytimes.com/athletic/6405134/2025/06/06/gabriel-new-contract-arsenal-analysis/
+
 **'Big Gabi' has his big contract and his commitment is a blessing to Arsenal and the club's hierachy**\
 `Gabriel has signed a new deal with Arsenal which lasts until 2029. The significance should not be underestimated ahead of a busy summer`\
 https://nytimes.com/athletic/6405134/2025/06/06/big-gabi-has-his-big-contract-and-his-commitment-is-a-blessing-to-arsenal-and-the-clubs-hierachy/
