@@ -1,3 +1,19 @@
+**The departure of Hobbs makes one thing clear: Wolves are going all-in on Pereira**\
+`If Pereira proves as good at team-building off the pitch as on it, the change at Molineux might turn out to be inspired`\
+https://nytimes.com/athletic/6404919/2025/06/06/wolves-hobbs-pereira-fosun/
+
+**Indiana TV station apologizes for cutting away from Game 1 of NBA Finals in final minute**\
+`The incident drew comparisons to the infamous 1968 "Heidi Game."`\
+https://nytimes.com/athletic/6408336/2025/06/06/nba-finals-indiana-pacers-tv-station-news/
+
+**Tottenham expected to part company with Ange Postecoglou as head coach**\
+`The 59-year-old will leave the north London club despite having won the Europa League with victory over Manchester United.`\
+https://nytimes.com/athletic/5938667/2025/06/06/ange-postecoglou-tottenham-manager-leaves/
+
+**S.A. Cosby on the Appeal of Small-Town Crime Stories**\
+`In “King of Ashes,” the novelist again returns to rural Virginia as a setting, with a hero who has to face the family he once fled.`\
+https://nytimes.com/2025/06/06/books/review/podcast-s-a-cosby-interview.html
+
 **Trans Troops, Facing a Deadline, Opt to Stay and Fight the Ban**\
 `The Trump administration wants transgender troops out of the military, and set a June 6 deadline to go voluntarily. Some have accepted; others vowed to stay and contest the ban.`\
 https://nytimes.com/2025/06/06/us/transgender-troops-ban-discharge-deadline.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6408457/2025/06/06/vancouver-whitecaps-canada-playe
 **If Elon Musk and President Trump Divorce, Who Gets Silicon Valley?**\
 `The relationship between Mr. Trump and tech industry power brokers was built on money and the promise of deregulation, with Mr. Musk in the middle of it all.`\
 https://nytimes.com/2025/06/06/technology/elon-musk-trump-silicon-valley-tech.html
-
-**Penguins coach Dan Muse has the job. Now he has to take control**\
-`In taking over the Penguins, Muse finds himself in an interesting predicament. `\
-https://nytimes.com/athletic/6407362/2025/06/06/penguins-coach-dan-muse-sidney-crosby/
-
-**Trump’s Ambition Collides With Law on Sending Migrants to Dangerous Countries**\
-`Previous administrations usually considered whether a transfer would endanger the migrant or create risks for the United States and its allies.`\
-https://nytimes.com/2025/06/06/us/politics/trump-deportations-migrants.html
-
-**Carlos Alcaraz into French Open final after Lorenzo Musetti retires injured**\
-`Alcaraz gets the chance to defend his title after roaring back tactically against Musetti, who then succumbed to an injury.`\
-https://nytimes.com/athletic/6408414/2025/06/06/carlos-alcaraz-french-open-lorenzo-musetti-result-analysis/
-
-**Twins' minor-league adventure: Tampa, Sacramento trips marked by 'difficult' playing conditions**\
-`During a road trip to Tampa and Sacramento, players described the minor-league parks' 'difficult' playing conditions. But it wasn't all bad.`\
-https://nytimes.com/athletic/6407653/2025/06/06/tampa-sacramento-ballpark-playing-conditions-rays-athletics-twins/
 
