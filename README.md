@@ -1,3 +1,7 @@
+**The market has quieted down but Friday’s report could set off more turmoil.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/the-market-has-quieted-down-but-fridays-report-could-set-off-more-turmoil
+
 **Submit your Astros questions for Chandler Rome’s mailbag**\
 `With the trade deadline less than two months away, it's time to ask your questions about the state of the Astros and how they can improve.`\
 https://nytimes.com/athletic/6407039/2025/06/06/astros-mailbag-questions-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406659/2025/06/06/panthers-aaron-ekblad-free-agenc
 **The Oilers' nuclear option: Do they keep Connor McDavid, Leon Draisaitl together?**\
 `When the Oilers put their top stars together midway through Game 1, it tilted the ice. But it's not as simple as sticking with what works.`\
 https://nytimes.com/athletic/6406670/2025/06/06/oilers-connor-mcdavid-leon-draisaitl-lines/
-
-**Brad Marchand in '25 and Ray Bourque in '01: A breakdown of ex-Bruins and the Stanley Cup**\
-`How is Marchand's pursuit of the Stanley Cup different from Bourque’s 2001 vision quest with the Colorado Avalanche? Let us count the ways.`\
-https://nytimes.com/athletic/6407073/2025/06/06/bruins-brad-marchand-ray-bourque-stanley-cup/
 
