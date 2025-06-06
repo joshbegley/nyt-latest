@@ -3,7 +3,7 @@
 https://nytimes.com/2025/06/06/world/europe/england-high-court-ai.html
 
 **Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
-`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game two days later.`\
+`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game three days later.`\
 https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
 
 **How Teagan Kavan’s unshakeable approach has carried Texas through WCWS run**\
