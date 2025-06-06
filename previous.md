@@ -1,3 +1,11 @@
+**Roof Collapse Kills Worker at Construction Site That Lacked Permits**\
+`The worker, a 43-year-old man, was trapped under the fallen roof in an extension behind a former restaurant in Brooklyn, the Buildings Department said.`\
+https://nytimes.com/2025/06/05/nyregion/roof-collapse-brooklyn-death.html
+
+**Russia Launches Broad Assault on Kyiv and Other Cities in Ukraine**\
+`Air defense crews in the capital were racing to combat a large-scale bombardment before dawn on Friday, officials said.`\
+https://nytimes.com/2025/06/05/world/europe/russia-missile-attack-ukraine-kyiv.html
+
 **‘And Just Like That …’ Season 3, Episode 2 Recap: Textual Relations**\
 `Carrie’s long-distance “situationship” with Aidan becomes frustrating in ways she didn’t anticipate.`\
 https://nytimes.com/2025/06/05/arts/television/and-just-like-that-recap-season-3-episode-2.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/05/nyregion/francisco-guzman-police-chase.html
 **Trump and Musk Fight, and the Internet Pulls Out the Popcorn**\
 `What happens when two billionaires with huge followings on social media start a public feud? Great memes.`\
 https://nytimes.com/2025/06/05/us/politics/trump-elon-musk-memes.html
-
-**What's wrong with Jesús Luzardo? Phillies, lefty look for answers after 20 runs in 2 starts**\
-`"There's something obvious that we're missing when the first 11 starts are lights-out and then the next two are 20 earned runs," he said.`\
-https://nytimes.com/athletic/6406954/2025/06/05/jesus-luzardo-phillies-20-runs-2-starts-blue-jays/
-
-**Pacers coach backs Doris Burke amid report regarding her spot in ESPN's coverage**\
-`Carlisle said Burke “paved the way” for several women to broadcasting careers in the NBA.`\
-https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-finals-2/
 
