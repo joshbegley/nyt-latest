@@ -1,3 +1,7 @@
+**Tyrese Haliburton for the win again: Clutch shot sinks Thunder as Pacers steal Game 1**\
+`The new king of the playoff game-winner, Haliburton’s jumper with 0.3 seconds remaining sealed an improbable comeback.`\
+https://nytimes.com/athletic/6407185/2025/06/05/tyrese-haliburton-shot-thunder-pacers-2025-nba-finals-game-1/
+
 **Read the Insults Hurled Between Trump and Musk**\
 `A bitter online feud kicked off between the once-close allies on Thursday. Here are some of their pointed exchanges that played out throughout the day.`\
 https://nytimes.com/interactive/2025/06/05/us/politics/elon-musk-trump-feud-timeline-posts.html

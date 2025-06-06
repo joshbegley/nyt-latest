@@ -1,3 +1,7 @@
+**Tyrese Haliburton for the win again: Clutch shot sinks Thunder as Pacers steal Game 1**\
+`The new king of the playoff game-winner, Haliburton’s jumper with 0.3 seconds remaining sealed an improbable comeback.`\
+https://nytimes.com/athletic/6407185/2025/06/05/tyrese-haliburton-shot-thunder-pacers-2025-nba-finals-game-1/
+
 **Read the Insults Hurled Between Trump and Musk**\
 `A bitter online feud kicked off between the once-close allies on Thursday. Here are some of their pointed exchanges that played out throughout the day.`\
 https://nytimes.com/interactive/2025/06/05/us/politics/elon-musk-trump-feud-timeline-posts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/world/europe/russia-missile-attack-ukraine-kyiv.h
 **‘And Just Like That …’ Season 3, Episode 2 Recap: Textual Relations**\
 `Carrie’s long-distance “situationship” with Aidan becomes frustrating in ways she didn’t anticipate.`\
 https://nytimes.com/2025/06/05/arts/television/and-just-like-that-recap-season-3-episode-2.html
-
-**Dodger Details: An unexpected hero, pitching churn and more**\
-`Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
-https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/
 
