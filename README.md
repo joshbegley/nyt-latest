@@ -1,40 +1,40 @@
-**Quote of the Day: Wary House Republicans Straining to Mollify Musk**\
-`Quotation of the Day for Friday, June 6, 2025.`\
-https://nytimes.com/2025/06/05/pageoneplus/quote-of-the-day-wary-house-republicans-straining-to-mollify-musk.html
+**How does the Club World Cup work?**\
+`The 2025 Club World Cup, which is taking place in the United States, gets under way on June 14 and runs until July 13`\
+https://nytimes.com/athletic/6397180/2025/06/06/club-world-cup-format-schedule-bracket-rules/
 
-**Tornadoes Cause Significant Damage Near Lubbock in Texas**\
-`At least three people were injured and more than 13,000 homes were without power as a storm system hit the Lubbock area.`\
-https://nytimes.com/2025/06/05/weather/storms-tornado-flood-texas-lubbock.html
+**England have a strong core despite retirements - Sarina Wiegman seems to know it**\
+`England confirmed their squad for Euro 2025 on Thursday — it was uncontroversial`\
+https://nytimes.com/athletic/6405919/2025/06/06/england-sarina-wiegman-euro-2025-squad/
 
-**Texas Tech's NiJaree Canady snuffs Texas comeback attempt to even WCWS**\
-`Canady struck out six in the Red Raiders' 4-3 victory.`\
-https://nytimes.com/athletic/6407262/2025/06/05/texas-tech-texas-even-wcws/
+**U.K. Faces ‘Extraordinary’ Threat from Russian and Iranian Plots, Official Warns**\
+`Jonathan Hall, a British government adviser, said in an interview that hostile states were paying local criminals to carry out acts of violence, espionage and intimidation.`\
+https://nytimes.com/2025/06/06/world/europe/uk-russia-iran-state-threats.html
 
-**Tyrese Haliburton for the win again: Clutch shot sinks Thunder as Pacers steal Game 1**\
-`The new king of the playoff game-winner, Haliburton’s jumper with 0.3 seconds remaining sealed an improbable comeback.`\
-https://nytimes.com/athletic/6407185/2025/06/05/tyrese-haliburton-shot-thunder-pacers-2025-nba-finals-game-1/
+**South Koreans Have a New President, and Mixed Emotions**\
+`After six months of turmoil, citizens hope for better times. But political polarization and international tensions over trade mean many worries remain.`\
+https://nytimes.com/2025/06/06/world/asia/south-korea-president-reaction.html
 
-**Read the Insults Hurled Between Trump and Musk**\
-`A bitter online feud kicked off between the once-close allies on Thursday. Here are some of their pointed exchanges that played out throughout the day.`\
-https://nytimes.com/interactive/2025/06/05/us/politics/elon-musk-trump-feud-timeline-posts.html
+**Corrections: June 6, 2025**\
+`Corrections that appeared in print on Friday, June 6, 2025.`\
+https://nytimes.com/2025/06/06/pageoneplus/corrections-june-6-2025.html
 
-**What does President Trump’s travel ban mean for global sporting events?**\
-`"The exemptions have some sports leaders hopeful that the effects of the ban on international events will be minimal." `\
-https://nytimes.com/athletic/6407167/2025/06/05/trump-travel-ban-sports-event-impact/
+**Years After Being His Muse, She Hid a Proposal in His Lunch**\
+`Julia Chance modeled for Jimmy James Greene, an artist, who, in exchange, painted her apartment with great flair. Afterward, their connection deepened.`\
+https://nytimes.com/2025/06/06/style/julia-chance-jimmy-james-greene-wedding.html
 
-**Storm GM on WNBA's review of complaint: 'It's not an investigation'**\
-`The WNBA reviewed a complaint that a Seattle assistant coach cursed at an Aces player, but no formal discipline is expected.`\
-https://nytimes.com/athletic/6407210/2025/06/05/wnba-complaint-storm-jewell-loyd/
+**Carrying My New Husband Across the Threshold**\
+`Over the span of a month, I was engaged, married and widowed.`\
+https://nytimes.com/2025/06/06/style/modern-love-carrying-my-new-husband-across-the-threshold.html
 
-**Do the Blackhawks need to make a big move this offseason? GM Kyle Davidson answers**\
-`Davidson answered a variety of questions about the NHL Draft at the scouting combine in Buffalo.`\
-https://nytimes.com/athletic/6407051/2025/06/05/blackhawks-offseason-gm-kyle-davidson/
+**Never Mind the Possible Food Poisoning, the Proposal Had to Go On**\
+`Dr. Kevin Chi and Brian Chiu promised to love each other in sickness and to the tune of Taylor Swift.`\
+https://nytimes.com/2025/06/06/style/kevin-chi-brian-chiu-wedding.html
 
-**SiriusXM parts ways with Michelle Beadle, Cody Decker**\
-`The split follows comments from Beadle that were critical of Stephen A. Smith, who is set to debut two shows on the platform this year.`\
-https://nytimes.com/athletic/6407151/2025/06/05/siriusxm-michelle-beadle-cody-decker-fired/
+**First Came Forbes’ ‘30 Under 30.’ Then Came Love.**\
+`By 2016, Morgan DeBaun had found major professional success with her media company, Blavity. Joshua Shaw hadn’t heard of her when they met, but he still managed to sweep her off her feet.`\
+https://nytimes.com/2025/06/06/style/morgan-debaun-blavity-joshua-shaw-wedding.html
 
-**Culture Center**\
-`Adrian Johnson opens our solving weekend.`\
-https://nytimes.com/2025/06/05/crosswords/daily-puzzle-2025-06-06.html
+**They Fell in Love on the Hiking Trails**\
+`Sarah Bacon, who suffers from a rare lung disease, never expected to marry — until she met Bruce Bjork during the pandemic.`\
+https://nytimes.com/2025/06/06/style/sarah-bacon-bruce-bjork-wedding.html
 
