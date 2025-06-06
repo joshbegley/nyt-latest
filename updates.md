@@ -1,3 +1,7 @@
+**Job Market Is Getting Tougher for College Graduates**\
+`Researchers attributed some of the difficulty finding jobs to larger societal shifts, including the growing use of artificial intelligence.`\
+https://nytimes.com/2025/06/06/business/job-market-college-graduates.html
+
 **Balloons and Human Strength: How North Korea Righted a Toppled Warship**\
 `Satellite images show the unconventional strategy engineers used to get the 5,000-ton vessel afloat.`\
 https://nytimes.com/2025/06/06/world/asia/north-korea-warship-salvage-capsize.html
