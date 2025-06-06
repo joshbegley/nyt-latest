@@ -1,3 +1,15 @@
+**13 Great Songs of the Tonys Season**\
+`Our critic listened to the cast recordings of all the nominated musicals and picked one of his favorite tracks from each.`\
+https://nytimes.com/2025/06/06/theater/tony-awards-season-musical-songs.html
+
+**The Bounce: The Pacers are once again the comeback kings. How will the Thunder respond?**\
+`The legend of Tyrese Haliburton and these Pacers continues to grow. How will the Thunder look to avoid a 2-0 deficit?`\
+https://nytimes.com/athletic/6407909/2025/06/06/pacers-thunder-comeback-tyrese-haliburton-shai-gilgeous-alexander-nba-finals-the-bounce/
+
+**Jac Caglianone, Ronny Mauricio and more top waiver wire adds for fantasy baseball**\
+`Owen Poindexter points out the best of this week's waiver wire, including the prodigious power potential of top KC prospect Jac Caglianone.`\
+https://nytimes.com/athletic/6406893/2025/06/06/fantasy-baseball-waiver-wire-pickups-caglianone-mauricio/
+
 **LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
 `Reynold Hoover, chief executive officer of organising committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
 https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transf
 **The Rich Compensation for Being the C.E.O.**\
 `The chief executives at Palantir, which scoops up data for the government, and Veeva Systems, a cloud-computing company, topped two lists of the highest-paid C.E.O.s.`\
 https://nytimes.com/2025/06/06/business/highest-paid-ceos.html
-
-**Dupont Circle Park Will Close Amid Pride Event After All, Park Service Says**\
-`City authorities canceled an initial request to block off the site, an L.G.B.T.Q. gathering spot in Washington, D.C. But the National Park Service opted to close it.`\
-https://nytimes.com/2025/06/06/us/world-pride-dupont-circle-park-closed-washington-dc.html
-
-**Video Submission Form for Our 16th Annual Summer Reading Contest**\
-`Use this page to tell us what got your attention in The New York Times in 2025 via a 90-second video.`\
-https://nytimes.com/2025/06/06/learning/video-submission-form-for-our-16th-annual-summer-reading-contest.html
-
-**Man Utd financial results reveal drop in cash reserves ahead of summer window**\
-`United's cash position is set to be a complicating factor as the club's hierarchy looks to back head coach Ruben Amorim.`\
-https://nytimes.com/athletic/6407944/2025/06/06/manchester-united-accounts-latest-cash/
 
