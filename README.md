@@ -18,10 +18,6 @@ https://nytimes.com/2025/06/06/us/politics/trump-biden-autopen-ukraine-gaza.html
 `Grealish is facing an uncertain future at the club after a frustrating season and has yet to be called up for England since Tuchel's arrival`\
 https://nytimes.com/athletic/6409462/2025/06/06/jack-grealish-england-world-cup/
 
-**French Open finals odds: Sabalenka favored vs. Gauff, Alcaraz gets slight edge vs. Sinner**\
-`Aryna Sabalenka and Carlos Alcaraz are the favorites for the French Open's two singles finals this weekend.`\
-https://nytimes.com/athletic/6409177/2025/06/06/french-open-finals-odds-sabalenka-gauff-sinner-alcaraz/
-
 **Italy coach Spalletti vows to fight on after World Cup defeat to Norway**\
 `Spalletti insisted he wanted to “move forward” as national coach and that he had faith in his “project” after the defeat in Oslo.`\
 https://nytimes.com/athletic/6409392/2025/06/06/spalletti-italy-manager-world-cup/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/06/06/us/worldpride-parade-dc-trump.html
 **Mistakenly Deported Man Returned to U.S.**\
 `Also, the Tony Awards are Sunday. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/06/06/briefing/abrego-garcia-tonys.html
+
+**French Open recap: Why was the roof closed for Carlos Alcaraz vs. Lorenzo Musetti in sunny weather?**\
+`Why Carlos Alcaraz and Lorenzo Musetti played their French Open semifinal under a closed roof on a sunny day.`\
+https://nytimes.com/athletic/6407889/2025/06/06/tennis-french-open-roof-closed-why-weather-rules/
 
