@@ -1,3 +1,15 @@
+**13 Great Songs of the Tonys Season**\
+`Our critic listened to the cast recordings of all the nominated musicals and picked one of his favorite tracks from each.`\
+https://nytimes.com/2025/06/06/theater/tony-awards-season-musical-songs.html
+
+**The Bounce: The Pacers are once again the comeback kings. How will the Thunder respond?**\
+`The legend of Tyrese Haliburton and these Pacers continues to grow. How will the Thunder look to avoid a 2-0 deficit?`\
+https://nytimes.com/athletic/6407909/2025/06/06/pacers-thunder-comeback-tyrese-haliburton-shai-gilgeous-alexander-nba-finals-the-bounce/
+
+**Jac Caglianone, Ronny Mauricio and more top waiver wire adds for fantasy baseball**\
+`Owen Poindexter points out the best of this week's waiver wire, including the prodigious power potential of top KC prospect Jac Caglianone.`\
+https://nytimes.com/athletic/6406893/2025/06/06/fantasy-baseball-waiver-wire-pickups-caglianone-mauricio/
+
 **LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
 `Reynold Hoover, chief executive officer of organising committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
 https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
