@@ -1,3 +1,7 @@
+**Pacers coach backs Doris Burke amid report regarding her spot in ESPN's coverage**\
+`Carlisle said Burke “paved the way” for several women to broadcasting careers in the NBA.`\
+https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-finals-2/
+
 **Trump’s New Travel Ban Is Rife With Contradictions**\
 `The Trump administration appears to have relied on a variety of considerations as it put together its latest restrictions.`\
 https://nytimes.com/2025/06/05/us/politics/trump-travel-ban.html
