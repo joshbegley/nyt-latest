@@ -1,3 +1,15 @@
+**Buyer With Ties to Chinese Communist Party Got V.I.P. Treatment at Trump Crypto Dinner**\
+`The warm welcome for a technology executive whose purchases of the president’s digital coin won him a White House tour illustrates inconsistencies in the administration’s views toward visitors from China.`\
+https://nytimes.com/2025/06/06/us/politics/trump-crypto-dinner-china-he-tianying.html
+
+**Davide Ancelotti joins Brazil coaching team to assist Carlo**\
+`There had been managerial interest in Davide Ancelotti from clubs, including Scottish side Rangers and teams from Spain's second tier.`\
+https://nytimes.com/athletic/6364828/2025/06/06/davide-ancelotti-brazil-coach-carlo/
+
+**San Diego Wave approached 2025 as a building year. Now they're chasing the NWSL Shield**\
+`Wave general manager credits player buy-in for the team's rebound after difficult 2024 season.`\
+https://nytimes.com/athletic/6409153/2025/06/06/san-diego-wave-general-manager-cami-levin-ashton-rebound/
+
 **Read the Abrego Garcia Indictment**\
 `The 10-page indictment, filed in the Middle District of Tennessee, charges the Maryland man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
 https://nytimes.com/interactive/2025/06/06/us/Abrego-Garcia-Indictment.html
