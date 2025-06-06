@@ -1,3 +1,7 @@
+**Day 5: An Easy Way to Stay Inspired**\
+`Today, try one new thing.`\
+https://nytimes.com/interactive/2025/well/creativity-hobby-activity-routine.html
+
 **Video Shows Fiery Fatal Crash After Police Chase**\
 `Francisco Guzman Parra, 31, died after crashing a stolen Honda in Upper Manhattan. Two officers chasing him drove away after the car caught fire, according to video surveillance footage.`\
 https://nytimes.com/2025/06/05/nyregion/francisco-guzman-police-chase.html

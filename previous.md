@@ -1,3 +1,7 @@
+**Day 5: An Easy Way to Stay Inspired**\
+`Today, try one new thing.`\
+https://nytimes.com/interactive/2025/well/creativity-hobby-activity-routine.html
+
 **Video Shows Fiery Fatal Crash After Police Chase**\
 `Francisco Guzman Parra, 31, died after crashing a stolen Honda in Upper Manhattan. Two officers chasing him drove away after the car caught fire, according to video surveillance footage.`\
 https://nytimes.com/2025/06/05/nyregion/francisco-guzman-police-chase.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/world/canada/mark-garneau-canadian-astronaut-dead
 **Pakistani Man Convicted of Smuggling Iranian Missile Parts Headed to Houthi Rebels**\
 `Muhammad Pahlawan was captured by American forces off the coast of Somalia in a raid last year that led to the deaths of two Navy SEALs.`\
 https://nytimes.com/2025/06/05/us/politics/pakistani-smuggling-iran-missile-houthis.html
-
-**Twins believe injured Pablo López will pitch meaningful innings in 2025; more takeaways**\
-`“From today on is going to be more mental than it will be physical,” López said of his recovery from a shoulder injury. `\
-https://nytimes.com/athletic/6406920/2025/06/05/twins-pablo-lopez-injury-timeline/
 
