@@ -1,3 +1,15 @@
+**What’s a Couple to Do When One Works for Donald Trump and the Other for Elon Musk?**\
+`Stephen Miller is a top aide to the president, while his wife, Katie Miller, recently left DOGE to work for Elon Musk. What now?`\
+https://nytimes.com/2025/06/06/style/stephen-miller-wife-trump-musk.html
+
+**TNT Sports expected to expand College Football Playoff rights to semifinals: Sources**\
+`A deal with ESPN would allow TNT to air one semifinal game annually from 2026 to 2028.`\
+https://nytimes.com/athletic/6409319/2025/06/06/tnt-sports-college-football-playoff-semifinals/
+
+**Liverpool submit improved €134m offer for Wirtz**\
+`Wirtz has emerged as a key target for Liverpool this summer and the playmaker is keen on a move to Anfield.`\
+https://nytimes.com/athletic/6393077/2025/06/06/liverpool-florian-wirtz-transfer-bid/
+
 **A Tennessee County Is ‘Fascinated’ as an Escaped Zebra Runs Wild**\
 `The zebra, which residents have named Ed, has gained a following, with memes and A.I.-generated images springing up as it continues to elude capture.`\
 https://nytimes.com/2025/06/06/us/zebra-tennessee-christiana.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.ht
 **The numbers behind the Pacers' 5 wild comebacks in the NBA playoffs**\
 `The Pacers have come back from deficits of 15 points or more five times this playoffs, leading to some staggering stats.`\
 https://nytimes.com/athletic/6408653/2025/06/06/pacers-thunder-nba-finals-playoff-comebacks/
-
-**Democrats Threaten Trump Prosecutor Picks, Pointing to Past Vance Blockade**\
-`The top Democrat on the Judiciary Committee said Vice President JD Vance had set a precedent for derailing U.S. attorney candidates during his time in the Senate.`\
-https://nytimes.com/2025/06/06/us/politics/democrats-trump-vance-prosecutors.html
-
-**Maple Leafs add ex-Red Wings HC Derek Lalonde as assistant**\
-`Lalonde, who most recently coached the Red Wings, will take over Lane Lambert's duties behind the Maple Leafs bench.`\
-https://nytimes.com/athletic/6409222/2025/06/06/maple-leafs-derek-lalonde-assistant-coach/
-
-**NHL rumblings: What comes next for the Stars after firing Pete DeBoer?**\
-`Taking over a team that's gone to three straight conference finals and has a locked-up core is a good opportunity. Who are the candidates?`\
-https://nytimes.com/athletic/6409217/2025/06/06/stars-peter-deboer-firing-rumblings/
 
