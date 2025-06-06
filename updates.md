@@ -1,3 +1,11 @@
+**Trump Has Options to Punish Musk Even if His Federal Contracts Continue**\
+`The president could tighten federal oversight of the tech titan’s businesses, even if heavy reliance by the Pentagon and NASA on them makes terminating Mr. Musk’s contracts less feasible.`\
+https://nytimes.com/2025/06/06/us/politics/trump-musk-spacex-contracts.html
+
+**Justice Dept.’s Inspector General to Move to the Federal Reserve**\
+`Michael E. Horowitz, one of the few major watchdogs spared from a purge by President Trump, will also hunt for abuses at the Consumer Financial Protection Board — a Trump target.`\
+https://nytimes.com/2025/06/06/us/justice-inspector-general-fed.html
+
 **Trump as Channel-Changer in Chief**\
 `When the issues are intractable, why not pivot to surefire red meat?`\
 https://nytimes.com/2025/06/06/us/politics/trump-biden-autopen-ukraine-gaza.html
