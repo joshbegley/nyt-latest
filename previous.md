@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6399751/2025/06/06/twins-all-star-cases-royce-lewis
 https://nytimes.com/athletic/6406900/2025/06/06/orion-kerkering-sweeper-2025-season/
 
 **Why are international players flocking to the WNBA?**\
-`At the start of this season, the league had 33 players born outside the U.S., up from 25 at the beginning of the 2023 season.`\
+`At the start of this season, the league had 34 players born outside the U.S., up from 25 at the beginning of the 2023 season.`\
 https://nytimes.com/athletic/6405479/2025/06/06/wnba-international-players-golden-state-valkyries/
 
 **UNLV hits a turning point in the desert: Can the Rebels stick around as a G5 giant?**\
