@@ -1,3 +1,7 @@
+**Balloons and Human Strength: How North Korea Righted a Toppled Warship**\
+`Satellite images show the unconventional strategy engineers used to get the 5,000-ton vessel afloat.`\
+https://nytimes.com/2025/06/06/world/asia/north-korea-warship-salvage-capsize.html
+
 **Jones: Steelers finally get their quarterback in Aaron Rodgers, but buyer beware**\
 `Pittsburgh wasn't Rodgers' first choice, but the Steelers waited patiently for him. Now that he's on board, will anything good come of it?`\
 https://nytimes.com/athletic/6406962/2025/06/06/aaron-rodgers-steelers-quarterback-concerns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407291/2025/06/06/nba-finals-wcws-oklahoma-city-th
 **Brenden Aaronson: My game in my words**\
 `From playing different positions to leading the press, the Leeds and USMNT attacking midfielder talks us through how he plays soccer`\
 https://nytimes.com/athletic/6388230/2025/06/06/brenden-aaronson-leeds-usmnt-my-game/
-
-**‘The Protocol’: The Story Behind Medical Care for Transgender Kids**\
-`A new six-part podcast explores the story of medical treatment for transgender young people — how the care began, the lives it changed, and the legal and political fights that could end it in the U.S.`\
-https://nytimes.com/2025/06/06/podcasts/the-daily/medical-care-transgender-kids.html
 
