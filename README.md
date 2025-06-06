@@ -1,3 +1,7 @@
+**Tornadoes Cause Significant Damage Near Lubbock in Texas**\
+`At least three people were injured and more than 13,000 homes were without power as a storm system hit the Lubbock area.`\
+https://nytimes.com/2025/06/05/weather/storms-tornado-flood-texas-lubbock.html
+
 **Texas Tech's NiJaree Canady snuffs Texas comeback attempt to even WCWS**\
 `Canady struck out six in the Red Raiders' 4-3 victory.`\
 https://nytimes.com/athletic/6407262/2025/06/05/texas-tech-texas-even-wcws/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/05/crosswords/daily-puzzle-2025-06-06.html
 **Roof Collapse Kills Worker at Construction Site That Lacked Permits**\
 `The worker, a 43-year-old man, was trapped under the fallen roof in an extension behind a former restaurant in Brooklyn, the Buildings Department said.`\
 https://nytimes.com/2025/06/05/nyregion/roof-collapse-brooklyn-death.html
-
-**Russia Launches Broad Assault on Kyiv and Other Cities in Ukraine**\
-`Air defense crews in the capital were racing to combat a large-scale bombardment before dawn on Friday, officials said.`\
-https://nytimes.com/2025/06/05/world/europe/russia-missile-attack-ukraine-kyiv.html
 
