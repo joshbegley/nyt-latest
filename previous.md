@@ -1,3 +1,7 @@
+**Lamine Yamal and the curious finish which shows why he is different**\
+`The 17-year-old was at his rampant best in Spain's 5-4 win vs France — but it was his second goal that gave a glimpse of how unusual he is`\
+https://nytimes.com/athletic/6407159/2025/06/06/lamine-yamal-spain-nations-league/
+
 **Train Service Is Suspended Between New York and New Haven**\
 `A downed power line in Connecticut left about 1,000 passengers stuck on the tracks and caused delays that could affect the Friday morning commute.`\
 https://nytimes.com/2025/06/06/nyregion/amtrak-train-suspended-connecticut.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404893/2025/06/06/morgan-gibbs-white-staying-at-no
 **The Ter Stegen case: Is Barcelona's captain being forced out?**\
 `The German goalkeeper's future at Barca is being widely discussed – following a familiar narrative  `\
 https://nytimes.com/athletic/6404779/2025/06/06/barcelona-ter-stegen-de-jong-raphinha/
-
-**Newcastle squad audit: Champions League quality is needed. Who makes way and who stays?**\
-`Ahead of the new season, four first-team signings are being sought while several players' Newcastle careers appear to have reached an end`\
-https://nytimes.com/athletic/6404742/2025/06/06/newcastle-squad-audit-summer-2025/
 

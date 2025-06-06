@@ -1,3 +1,7 @@
+**Lamine Yamal and the curious finish which shows why he is different**\
+`The 17-year-old was at his rampant best in Spain's 5-4 win vs France — but it was his second goal that gave a glimpse of how unusual he is`\
+https://nytimes.com/athletic/6407159/2025/06/06/lamine-yamal-spain-nations-league/
+
 **Train Service Is Suspended Between New York and New Haven**\
 `A downed power line in Connecticut left about 1,000 passengers stuck on the tracks and caused delays that could affect the Friday morning commute.`\
 https://nytimes.com/2025/06/06/nyregion/amtrak-train-suspended-connecticut.html
