@@ -1,3 +1,7 @@
+**Man Utd financial results reveal drop in cash reserves ahead of summer window**\
+`United's cash position is set to be a complicating factor as the club's hierarchy looks to back head coach Ruben Amorim.`\
+https://nytimes.com/athletic/6407944/2025/06/06/manchester-united-accounts-latest-cash/
+
 **Hawley Breaks With Republicans to Oppose a Major Crypto Bill**\
 `The senator said that the GENIUS Act, as it’s written, struck down, fearing that it would be a “huge giveaway to Big Tech.”`\
 https://nytimes.com/2025/06/06/business/dealbook/hawley-crypto-stablecoin-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/06/us/trump-news
 **Dom Smith shows why Giants have faith in him. He also has rediscovered it in himself**\
 `San Francisco's new first baseman delivered a game-changing two-run double Thursday to secure a split with San Diego.`\
 https://nytimes.com/athletic/6407280/2025/06/06/dom-smith-giants-padres-faith-rajai-davis/
-
-**Jets' Stanley Cup window, a Byfuglien replacement and Logan Stanley: Mailbag, part 1**\
-`There's a sense of urgency around the Jets' contending window. Let's break down some of the ways that affects roster choices.`\
-https://nytimes.com/athletic/6403265/2025/06/06/jets-stanley-cup-window-stanley-defence-mailbag/
 

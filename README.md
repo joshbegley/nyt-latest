@@ -1,3 +1,11 @@
+**Dupont Circle Park Will Close Amid Pride Event After All, Park Service Says**\
+`City authorities canceled an initial request to block off the site, an L.G.B.T.Q. gathering spot in Washington, D.C. But the National Park Service opted to close it.`\
+https://nytimes.com/2025/06/06/us/world-pride-dupont-circle-park-closed-washington-dc.html
+
+**Video Submission Form for Our 16th Annual Summer Reading Contest**\
+`Use this page to tell us what got your attention in The New York Times in 2025 via a 90-second video.`\
+https://nytimes.com/2025/06/06/learning/video-submission-form-for-our-16th-annual-summer-reading-contest.html
+
 **Man Utd financial results reveal drop in cash reserves ahead of summer window**\
 `United's cash position is set to be a complicating factor as the club's hierarchy looks to back head coach Ruben Amorim.`\
 https://nytimes.com/athletic/6407944/2025/06/06/manchester-united-accounts-latest-cash/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6406453/2025/06/06/ohio-state-predictions-2025-foot
 **Lowetide: How Oilers' depth is already a factor in Staney Cup Final**\
 `The Oilers' performance in Game 1 of the final reflects a terrific depth chart for the organization this spring.`\
 https://nytimes.com/athletic/6405780/2025/06/06/edmonton-oilers-depth-stanley-cup-final-2025/
-
-**Trump Administration Live Updates: Judge Blocks President’s Order on Foreign Students at Harvard**\
-``\
-https://nytimes.com/live/2025/06/06/us/trump-news
-
-**Dom Smith shows why Giants have faith in him. He also has rediscovered it in himself**\
-`San Francisco's new first baseman delivered a game-changing two-run double Thursday to secure a split with San Diego.`\
-https://nytimes.com/athletic/6407280/2025/06/06/dom-smith-giants-padres-faith-rajai-davis/
 
