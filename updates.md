@@ -1,3 +1,19 @@
+**The market has quieted down but Friday’s report could set off more turmoil.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/the-market-has-quieted-down-but-fridays-report-could-set-off-more-turmoil
+
+**Submit your Astros questions for Chandler Rome’s mailbag**\
+`With the trade deadline less than two months away, it's time to ask your questions about the state of the Astros and how they can improve.`\
+https://nytimes.com/athletic/6407039/2025/06/06/astros-mailbag-questions-trade-deadline/
+
+**Manny Machado is on the verge of 2,000 hits. Could he be the last player to reach 3,000?**\
+`A month before his 33rd birthday, Machado finds himself on the doorstep of an increasingly exclusive club. `\
+https://nytimes.com/athletic/6406179/2025/06/06/manny-machado-2000-hits-3000/
+
+**Yankees' Jazz Chisholm Jr. thinks Rafael Devers is right to not move off DH to help Red Sox**\
+`"That's what he and the team talked about" when Devers signed his 10-year extension, Chisholm explained.`\
+https://nytimes.com/athletic/6406741/2025/06/06/jazz-chisholm-rafael-devers-position-change/
+
 **Twins mailbag: Royce Lewis options, All-Star cases and the Jorge Alcala dilemma**\
 `Plus what a Ryan Jeffers contract extension might look like, Harrison Bader's defensive impact and the long-term plan at first base.`\
 https://nytimes.com/athletic/6399751/2025/06/06/twins-all-star-cases-royce-lewis/
