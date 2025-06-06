@@ -1,3 +1,5 @@
+
+
 **Counting Up the Potential Costs of the Trump-Musk Rift**\
 `The clash between the president and Teslas C.E.O. wiped billions off the electric vehicle maker’s market capitalization. Other risks abound.`\
 https://nytimes.com/2025/06/06/business/dealbook/musk-trump-fight.html
