@@ -1,3 +1,7 @@
+**Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
+`President Trump also eased restrictions on commercial drone flightsand called for the revival of supersonic flights for nonmilitary aircraft.`\
+https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
+
 **Driving a Famed Highway to Learn Why It’s Always Broken**\
 `To understand the threats to the Pacific Coast Highway, a reporter and photographer hit the road.`\
 https://nytimes.com/2025/06/06/insider/pacific-coast-highway-road-trip.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/trump-biden-autopen-ukraine-gaza.html
 **Grealish needs regular football to make England's WC squad, says Tuchel**\
 `Grealish is facing an uncertain future at the club after a frustrating season and has yet to be called up for England since Tuchel's arrival`\
 https://nytimes.com/athletic/6409462/2025/06/06/jack-grealish-england-world-cup/
-
-**Italy coach Spalletti vows to fight on after World Cup defeat to Norway**\
-`Spalletti insisted he wanted to “move forward” as national coach and that he had faith in his “project” after the defeat in Oslo.`\
-https://nytimes.com/athletic/6409392/2025/06/06/spalletti-italy-manager-world-cup/
 
