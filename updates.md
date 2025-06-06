@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Tyler Pager and Theodore Schleifer`\
+https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud/heres-the-latest
+
+**Live Updates: Trump and Musk Have a Lot at Risk in Feud**\
+`President Trump must contend with the wrath of a wealthy ex-ally who may seek to undermine him politically. Mr. Trump has threatened to cut off Elon Musk’s billions in government contracts.`\
+https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud
+
 **Handicapping the Eagles' position battles as they look to defend their Super Bowl championship**\
 `A look at five key positions and who stands to step up.`\
 https://nytimes.com/athletic/6405890/2025/06/06/eagles-position-battles/

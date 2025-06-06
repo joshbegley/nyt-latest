@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Tyler Pager and Theodore Schleifer`\
+https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud/heres-the-latest
+
+**Live Updates: Trump and Musk Have a Lot at Risk in Feud**\
+`President Trump must contend with the wrath of a wealthy ex-ally who may seek to undermine him politically. Mr. Trump has threatened to cut off Elon Musk’s billions in government contracts.`\
+https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud
+
 **Handicapping the Eagles' position battles as they look to defend their Super Bowl championship**\
 `A look at five key positions and who stands to step up.`\
 https://nytimes.com/athletic/6405890/2025/06/06/eagles-position-battles/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-site-shooting.html
 **Can Patriots QB Drake Maye take the next step in Year 2?**\
 `Maye didn't look great in OTAs, but there are plenty of people expecting a major breakout season from the second-year quarterback.`\
 https://nytimes.com/athletic/6402986/2025/06/06/drake-maye-patriots-qb-otas/
-
-**Will White Men Rush to Court After Justices’ Latest Ruling? Not Likely.**\
-`The Supreme Court on Thursday made it easier for members of so-called majority groups to bring discrimination cases, but experts say the impact is likely to be limited.`\
-https://nytimes.com/2025/06/06/business/supreme-court-discrimination-ruling.html
-
-**News Quiz**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/06/06/briefing/quiz-trump-musk-colorado-korea.html
 

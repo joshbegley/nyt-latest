@@ -1,3 +1,11 @@
+**Here’s what to know about the report.**\
+`Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/jobs-report-may
+
+**Live Updates: In Chaotic Economy, Hiring Likely Remained Steady in May**\
+`Economists expect the Labor Department’s monthly report to show that hiring proceeded at a healthy rate in May, with employers adding 125,000 jobs.`\
+https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy
+
 **Here’s the latest.**\
 `By Tyler Pager and Theodore Schleifer`\
 https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/world/europe/germany-merz-trump-visit.html
 **Analyzing the Belmont Stakes field: Journalism favored over Sovereignty again**\
 `Breaking down the figures, odds and recent performances for the 2025 Belmont Stakes field. `\
 https://nytimes.com/athletic/6403257/2025/06/06/belmont-stakes-field-analyzed-journalism-sovereignty/
-
-**Videos Show Chaos Around Israeli-Backed Gaza Food Sites**\
-`Danger and desperation are clear in imagery near the aid sites. Dozens of Palestinians were killed in at least two instances after Israeli troops opened fire near the sites.`\
-https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-site-shooting.html
-
-**Can Patriots QB Drake Maye take the next step in Year 2?**\
-`Maye didn't look great in OTAs, but there are plenty of people expecting a major breakout season from the second-year quarterback.`\
-https://nytimes.com/athletic/6402986/2025/06/06/drake-maye-patriots-qb-otas/
 
