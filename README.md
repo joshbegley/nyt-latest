@@ -1,5 +1,17 @@
+**Handicapping the Eagles' position battles as they look to defend their Super Bowl championship**\
+`A look at five key positions and who stands to step up.`\
+https://nytimes.com/athletic/6405890/2025/06/06/eagles-position-battles/
+
+**The New York Times International Edition in Print for Saturday, June 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/06/todays-new-york-times-international-edition
+
+**Which young Bills are poised for a big season? Players under 25 years old with breakout potential**\
+`There will be opportunities for several young players to make a big impact this season.`\
+https://nytimes.com/athletic/6406378/2025/06/06/bills-players-under-25-years-old-keon-coleman-cole-bishop/
+
 **‘I Felt a Bullet’: Palestinians Recount Deadly Shooting Near New Gaza Aid Site**\
-`Nearly 50 people have been reported killed and 300 others wounded near the Israeli-backed distribution center, which was designed to keep food out of the hands of Hamas.`\
+`Nearly 50 people have been reported killed and 300 others wounded in incidents near the Israeli-backed distribution center, which was designed to keep food out of the hands of Hamas.`\
 https://nytimes.com/2025/06/06/world/middleeast/gaza-aid-center-shooting.html
 
 **Germany’s Chancellor Cracks the Trump Code, but to What End?**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/06/business/supreme-court-discrimination-ruling.html
 **News Quiz**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/06/06/briefing/quiz-trump-musk-colorado-korea.html
-
-**Anger and Resignation as Trump’s Travel Ban Hits Africa**\
-`Seven of the 12 countries on President Trump’s new list are on the continent, where some said the policy was discriminatory and would unfairly affect their future.`\
-https://nytimes.com/2025/06/06/world/africa/trump-travel-ban-reaction.html
-
-**New Yorkers Can’t Remove Mayors for Misconduct. That Could Change Soon.**\
-`A Charter Revision Commission will consider creating a new process to empower the City Council and voters to remove a sitting mayor.`\
-https://nytimes.com/2025/06/06/nyregion/mayor-removal-recall-nyc.html
-
-**Deficit Politics Returns in Debate Over Trump Tax Cuts**\
-`The legislation that Republicans are trying to push through Congress could swell the very fiscal imbalance that party leaders have promised to tame for years.`\
-https://nytimes.com/2025/06/06/business/deficit-trump-tax-legislation.html
 
