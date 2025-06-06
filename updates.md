@@ -1,3 +1,7 @@
+**An Engineering Marvel, Decades in the Making: A Rail Line to Kashmir**\
+`Officials say the train will help the troubled region, but many Kashmiris see it as a tool to entrench the Indian government’s control.`\
+https://nytimes.com/2025/06/06/world/asia/india-kashmir-train.html
+
 **Thanks to Tyrese Haliburton, these NBA Finals have already stunned the senses**\
 `Game 1 was exactly why the finals are special. Pacers-Thunder may not have many carrots for casuals, but it’s loaded with ingredients.`\
 https://nytimes.com/athletic/6407587/2025/06/06/tyrese-haliburton-shot-pacers-thunder-nba-finals/
