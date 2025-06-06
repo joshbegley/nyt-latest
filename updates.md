@@ -1,3 +1,11 @@
+**Roma appoint Gasperini after Ranieri exit**\
+`The 67-year-old spent nine years at Atalanta, with whom he won the 2023-24 Europa League and regularly qualified for the Champions League.`\
+https://nytimes.com/athletic/6408436/2025/06/06/roma-manager-gasperini-ranieri/
+
+**The Trump-Musk Meltdown Explained**\
+`Ryan Mac has covered Elon Musk for years and was co-author of a book about him, but he’s never seen anything quite like this. He describes what set off the meltdown in Mr. Musk and President Trump’s relationship, and its potential effects.`\
+https://nytimes.com/video/us/politics/100000010211539/trump-musk-meltdown-explained.html
+
 **A Different Kind of D-Day, Laden With Anxiety Among Old Allies**\
 `Defense Secretary Pete Hegseth honored the sacrifices of the soldiers who died landing in France 81 years ago. But there was no escaping current tensions.`\
 https://nytimes.com/2025/06/06/world/europe/d-day-anniversary-2025-normandy-hegseth.html

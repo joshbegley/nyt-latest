@@ -1,3 +1,11 @@
+**Roma appoint Gasperini after Ranieri exit**\
+`The 67-year-old spent nine years at Atalanta, with whom he won the 2023-24 Europa League and regularly qualified for the Champions League.`\
+https://nytimes.com/athletic/6408436/2025/06/06/roma-manager-gasperini-ranieri/
+
+**The Trump-Musk Meltdown Explained**\
+`Ryan Mac has covered Elon Musk for years and was co-author of a book about him, but he’s never seen anything quite like this. He describes what set off the meltdown in Mr. Musk and President Trump’s relationship, and its potential effects.`\
+https://nytimes.com/video/us/politics/100000010211539/trump-musk-meltdown-explained.html
+
 **A Different Kind of D-Day, Laden With Anxiety Among Old Allies**\
 `Defense Secretary Pete Hegseth honored the sacrifices of the soldiers who died landing in France 81 years ago. But there was no escaping current tensions.`\
 https://nytimes.com/2025/06/06/world/europe/d-day-anniversary-2025-normandy-hegseth.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6407653/2025/06/06/tampa-sacramento-ballpark-playin
 **Here’s what to know.**\
 `Downbeat business and consumer sentiment may not have translated into higher joblessness yet.`\
 https://nytimes.com/live/2025/06/06/business/jobs-report-may-economy/heres-what-to-know
-
-**Jackie Robinson, Minnie Miñoso murals desecrated with hate speech in Miami**\
-`The paintings are at Dorsey Park, a historic Negro League park in a neighborhood known as the 'Harlem of the South' during segregation.`\
-https://nytimes.com/athletic/6408342/2025/06/06/jackie-robinson-minnie-minoso-murals-miami-vandalism/
-
-**A Truly Showstopping Grilled Beef Tenderloin**\
-`For one, there’s a red-wine-soaked towel involved.`\
-https://nytimes.com/2025/06/06/dining/a-truly-showstopping-grilled-beef-tenderloin.html
 
