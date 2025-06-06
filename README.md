@@ -1,3 +1,7 @@
+**No Wharton, Delap in England U21s squad for Euros**\
+`England are reigning champions after lifting the title two years ago.`\
+https://nytimes.com/athletic/6407625/2025/06/06/england-u21s-squad-delap-wharton/
+
 **An Engineering Marvel, Decades in the Making: A Rail Line to Kashmir**\
 `Officials say the train will help the troubled region, but many Kashmiris see it as a tool to entrench the Indian government’s control.`\
 https://nytimes.com/2025/06/06/world/asia/india-kashmir-train.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/crosswords/spelling-bee-forum.html
 **Frustrations boil over in rain as Astros GM Dana Brown tries to 'protect the boys'**\
 `Brown was hoping for a postponement in Pittsburgh instead of a three-hour delay, and he let his feelings known. The game was finally played.`\
 https://nytimes.com/athletic/6407547/2025/06/06/astros-pirates-rain-delay-gm-dana-brown/
-
-**Tyrese Haliburton hit the game-winner, but Andrew Nembhard was the Pacers' game-saver**\
-`The NBA MVP saw a lot of different defenders Thursday, but with the game on the line, Indiana put its "trust" in Drew.`\
-https://nytimes.com/athletic/6407413/2025/06/06/andrew-nembhard-pacers-tyrese-haliburton-nba-finals/
 
