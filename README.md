@@ -1,4 +1,4 @@
-**LA28 organisers say Trump’s travel ban will not affect Olympic Games**\
+**LA28 organizers say Trump’s travel ban will not affect Olympic Games**\
 `Reynold Hoover, chief executive officer of organising committee LA28, said that exemptions to the ban allowed for a “wide-open Games.”`\
 https://nytimes.com/athletic/6408128/2025/06/06/olympics-trump-travel-ban-la28/
 
