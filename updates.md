@@ -1,3 +1,7 @@
+**Train Service Is Suspended Between New York and New Haven**\
+`A downed power line in Connecticut left about 1,000 passengers stuck on the tracks and caused delays that could affect the Friday morning commute.`\
+https://nytimes.com/2025/06/06/nyregion/amtrak-train-suspended-connecticut.html
+
 **The New York Times in Print for Friday, June 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/06/todays-new-york-times

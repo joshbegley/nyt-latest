@@ -1,3 +1,7 @@
+**Train Service Is Suspended Between New York and New Haven**\
+`A downed power line in Connecticut left about 1,000 passengers stuck on the tracks and caused delays that could affect the Friday morning commute.`\
+https://nytimes.com/2025/06/06/nyregion/amtrak-train-suspended-connecticut.html
+
 **The New York Times in Print for Friday, June 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404779/2025/06/06/barcelona-ter-stegen-de-jong-rap
 **Newcastle squad audit: Champions League quality is needed. Who makes way and who stays?**\
 `Ahead of the new season, four first-team signings are being sought while several players' Newcastle careers appear to have reached an end`\
 https://nytimes.com/athletic/6404742/2025/06/06/newcastle-squad-audit-summer-2025/
-
-**Mitoma showed his importance to Brighton again. Now an anxious summer window awaits**\
-`Mitoma is thriving at Brighton under head coach Fabian Hurzeler – but he will have many suitors this summer`\
-https://nytimes.com/athletic/6380939/2025/06/06/kaoru-mitoma-brighton-transfer-latest/
 
