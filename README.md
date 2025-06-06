@@ -1,3 +1,7 @@
+**Thunderstruck! How the Pacers pulled off another dramatic comeback**\
+`Game 1 of the NBA Finals was the Pacers’ fifth comeback victory from a deficit of 15 or more points in the 2025 playoffs.`\
+https://nytimes.com/athletic/6408712/2025/06/06/pacers-thunder-nba-finals-game-1-comeback/
+
 **Pete DeBoer earned his firing, but Stars' problems run deeper**\
 `The Stars were very good under DeBoer, a very good coach. But Dallas is looking for great, and DeBoer is looking for work.`\
 https://nytimes.com/athletic/6408690/2025/06/06/stars-coach-fired-peter-deboer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/business/paul-weiss-trump-law-firms-damian-willia
 **Chiesa insists he is at happy at Liverpool despite frustrating season**\
 `The Italian forward moved to Merseyside from Juventus in a £10million deal last summer but found first-team opportunities limited.`\
 https://nytimes.com/athletic/6408680/2025/06/06/federico-chiesa-liverpool-future/
-
-**The Fireworks Between Trump and Musk**\
-`Readers discuss the public feud between the president and his onetime ally. Also: China’s boom and America’s promise.`\
-https://nytimes.com/2025/06/06/opinion/trump-musk-feud.html
 
