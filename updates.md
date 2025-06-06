@@ -1,3 +1,7 @@
+**Ex-Police Chief and Convicted Killer Who Escaped Is Caught Near Arkansas Prison**\
+`Grant Hardin, who came to be known as the “Devil in the Ozarks,” was captured on Friday, nearly two weeks after his May 25 escape from a maximum-security prison.`\
+https://nytimes.com/2025/06/06/us/devil-in-the-ozarks-captured-arkansas.html
+
 **Trump Has Options to Punish Musk Even if His Federal Contracts Continue**\
 `The president could tighten federal oversight of the tech titan’s businesses, even if heavy reliance by the Pentagon and NASA on them makes terminating Mr. Musk’s contracts less feasible.`\
 https://nytimes.com/2025/06/06/us/politics/trump-musk-spacex-contracts.html
