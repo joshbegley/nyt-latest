@@ -1,3 +1,7 @@
+**In the Shadow of the White House, the World Celebrates Pride in D.C.**\
+`Washington is hosting WorldPride, a global celebration of the L.G.B.T.Q. community, but the event has been made more difficult by shifts in U.S. policy.`\
+https://nytimes.com/2025/06/06/us/worldpride-parade-dc-trump.html
+
 **Mistakenly Deported Man Returned to U.S.**\
 `Also, the Tony Awards are Sunday. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/06/06/briefing/abrego-garcia-tonys.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/zebra-tennessee-christiana.html
 **AMC Says It Will Show More Ads Before Movies**\
 `The theater chain’s decision brings it in line with what its biggest competitors, Regal and Cinemark, have been doing since 2019, but it risks irking loyal customers.`\
 https://nytimes.com/2025/06/06/business/movies-theaters-ads-amc.html
-
-**Buyer With Ties to Chinese Communist Party Got V.I.P. Treatment at Trump Crypto Dinner**\
-`The warm welcome for a technology executive whose purchases of the president’s digital coin won him a White House tour illustrates inconsistencies in the administration’s views toward visitors from China.`\
-https://nytimes.com/2025/06/06/us/politics/trump-crypto-dinner-china-he-tianying.html
 
