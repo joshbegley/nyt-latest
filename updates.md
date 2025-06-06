@@ -1,3 +1,15 @@
+**Dodger Details: An unexpected hero, pitching churn and more**\
+`Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
+https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/
+
+**Adam Silver brushes off talks of expansion, confirms new All-Star Game format**\
+`Silver also said that he "see the benefit to reducing the number of games" in the regular season when discussing shortening schedules.`\
+https://nytimes.com/athletic/6407066/2025/06/05/adam-silver-nba-expansion-all-star-format/
+
+**What to Know About Trump’s New Travel Ban**\
+`President Trump on Wednesday signed a travel ban on 12 countries, primarily in Africa and the Middle East, reviving an effort from his first term to prevent large numbers of immigrants and visitors from entering the United States.`\
+https://nytimes.com/video/us/politics/100000010210007/what-to-know-about-trumps-new-travel-ban.html
+
 **Mets takeaways: Bad defense leads to split with Dodgers, Francisco Lindor's toe**\
 `Pete Alonso's continuing power surge wasn't enough as New York lost 6-5 in Los Angeles in the series finale.`\
 https://nytimes.com/athletic/6407063/2025/06/05/new-york-mets-dodgers-francisco-lindor-pete-alonso/

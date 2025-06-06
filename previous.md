@@ -1,3 +1,15 @@
+**Dodger Details: An unexpected hero, pitching churn and more**\
+`Michael Conforto drove in the winning run in the Dodgers' victory over the Mets on Thursday.`\
+https://nytimes.com/athletic/6407050/2025/06/05/dodger-details-michael-conforto-mets/
+
+**Adam Silver brushes off talks of expansion, confirms new All-Star Game format**\
+`Silver also said that he "see the benefit to reducing the number of games" in the regular season when discussing shortening schedules.`\
+https://nytimes.com/athletic/6407066/2025/06/05/adam-silver-nba-expansion-all-star-format/
+
+**What to Know About Trump’s New Travel Ban**\
+`President Trump on Wednesday signed a travel ban on 12 countries, primarily in Africa and the Middle East, reviving an effort from his first term to prevent large numbers of immigrants and visitors from entering the United States.`\
+https://nytimes.com/video/us/politics/100000010210007/what-to-know-about-trumps-new-travel-ban.html
+
 **Mets takeaways: Bad defense leads to split with Dodgers, Francisco Lindor's toe**\
 `Pete Alonso's continuing power surge wasn't enough as New York lost 6-5 in Los Angeles in the series finale.`\
 https://nytimes.com/athletic/6407063/2025/06/05/new-york-mets-dodgers-francisco-lindor-pete-alonso/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6406939/2025/06/05/doris-burke-rick-carlisle-nba-fi
 **Trump’s New Travel Ban Is Rife With Contradictions**\
 `The Trump administration appears to have relied on a variety of considerations as it put together its latest restrictions.`\
 https://nytimes.com/2025/06/05/us/politics/trump-travel-ban.html
-
-**NASA and the Defense Department Rely on SpaceX in So Many Ways**\
-`If President Trump cancels the contracts for Elon Musk’s private spaceflight company, the federal government would struggle to achieve many goals in orbit and beyond.`\
-https://nytimes.com/2025/06/05/science/spacex-nasa-trump-elon-musk.html
-
-**8 Ways Musk and Trump Could Inflict Pain on Each Other**\
-`The falling-out between Elon Musk and President Trump went into overdrive on Thursday. Both men have powerful ways to keep it going.`\
-https://nytimes.com/2025/06/05/us/politics/musk-trump-attacks-feud.html
-
-**Marc Garneau, First Canadian in Space, Dies at 76**\
-`His career took flight with a newspaper ad in Ottawa — the same city where he would later help steer the country under Prime Minister Justin Trudeau.`\
-https://nytimes.com/2025/06/05/world/canada/mark-garneau-canadian-astronaut-dead.html
 
