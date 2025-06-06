@@ -1,3 +1,15 @@
+**Tyrese Haliburton hit the game-winner, but Andrew Nembhard was the Pacers' game-saver**\
+`The NBA MVP saw a lot of different defenders Thursday, but with the game on the line, Indiana put its "trust" in Drew.`\
+https://nytimes.com/athletic/6407413/2025/06/06/andrew-nembhard-pacers-tyrese-haliburton-nba-finals/
+
+**Shai Gilgeous-Alexander put up a big number, but like Thunder's Game 1, it rings a bit empty**\
+`"We'll look at everything," OKC coach Mark Daigneault said. "We'll look at anything we can to try to give ourselves the best chance to win."`\
+https://nytimes.com/athletic/6407321/2025/06/06/shai-gilgeous-alexander-game-1-thunder-pacers-nba-finals/
+
+**Late Night Revels in Trump and Musk’s Public Feud**\
+`Stephen Colbert indulged in schadenfreude as he described the back-and-forth as a “full-scale flame war” between “the world’s most famous besties.”`\
+https://nytimes.com/2025/06/06/arts/television/late-night-trump-musk-feud.html
+
 **2025 Tony Awards Predictions: Which Shows and Performers Will Win?**\
 `Expect wins for the musicals “Maybe Happy Ending” and “Sunset Boulevard,” but the races for best play and leading actress in a musical are too close to call.`\
 https://nytimes.com/2025/06/06/theater/tony-awards-predictions-2025.html
