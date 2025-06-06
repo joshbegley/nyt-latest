@@ -1,10 +1,14 @@
+**Dubas says Penguins might be aggressive on offseason trade market**\
+`Dubas is willing and perhaps likely to make some significant deals in the next month. Just don't expect the same action in free agency.`\
+https://nytimes.com/athletic/6409093/2025/06/06/penguins-nhl-draft-combine-kyle-dubas/
+
 **Jannik Sinner beats Novak Djokovic to set up French Open final against Carlos Alcaraz**\
 `Djokovic produced the Grand Slam peak that has been the trademark of his late career, but Sinner was a mountain too high to climb.`\
 https://nytimes.com/athletic/6409129/2025/06/06/sinner-djokovic-french-open-result-analysis-alcaraz/
 
 **Read the Abrego Garcia Indictment**\
 `The 10-page indictment, filed in the Middle District of Tennessee, charges the man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
-https://nytimes.com/interactive/2025/06/06/us/govuscourtstnmd10462230.html
+https://nytimes.com/interactive/2025/06/06/us/Abrego-Garcia-Indictment.html
 
 **What I'm hearing about Senators' first-round pick, Drake Batherson, Claude Giroux and more**\
 `Senators majority owner Michael Andlauer and GM Steve Staios addressed the media Friday morning at the Canadian Golf & Country Club.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/kilmar-abrego-garcia-us-criminal-char
 **NiJaree Canady signs another 7-figure NIL deal with Texas Tech**\
 `Canady made headlines last year for transferring from Stanford to Texas Tech and signing an NIL deal worth over $1 million.`\
 https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-tech-softball/
-
-**Trade Brought Them Together. What Happens Now?**\
-`Chinese-U.S. trade is not just shipping containers and customs forms. It is underpinned by relationships between entrepreneurs. But now the turmoil over the Trump administration’s tariffs is threatening to fray longstanding personal ties.`\
-https://nytimes.com/interactive/2025/06/06/business/us-china-xi-tariffs-trade-war.html
 
