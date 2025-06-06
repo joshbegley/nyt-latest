@@ -1,3 +1,11 @@
+**Jannik Sinner beats Novak Djokovic to set up French Open final against Carlos Alcaraz**\
+`Djokovic produced the Grand Slam peak that has been the trademark of his late career, but Sinner was a mountain too high to climb.`\
+https://nytimes.com/athletic/6409129/2025/06/06/sinner-djokovic-french-open-result-analysis-alcaraz/
+
+**Read the Abrego Garcia Indictment**\
+`The 10-page indictment, filed in the Middle District of Tennessee, charges the man mistakenly deported to El Salvador with crimes related to transporting undocumented migrants.`\
+https://nytimes.com/interactive/2025/06/06/us/govuscourtstnmd10462230.html
+
 **What I'm hearing about Senators' first-round pick, Drake Batherson, Claude Giroux and more**\
 `Senators majority owner Michael Andlauer and GM Steve Staios addressed the media Friday morning at the Canadian Golf & Country Club.`\
 https://nytimes.com/athletic/6408385/2025/06/06/batherson-giroux-andlauer-staios-senators/
@@ -11,7 +19,7 @@ https://nytimes.com/2025/06/06/us/shark-stabbing-video-florida-keys-charter-capt
 https://nytimes.com/athletic/6409162/2025/06/06/cruz-azul-response-jesse-marsch-canada-vancouver-whitecaps-poison/
 
 **It’s Getting Harder for Trump to Keep the Gang Together**\
-`There are already indications that his coalition is fraying, and it’s not just Elon Musk.`\
+`There are already indications that his coalition is fraying, and it’s not just about Elon Musk.`\
 https://nytimes.com/2025/06/06/upshot/trump-musk-republicans-defection.html
 
 **Runaway Zebra Evades Capture in Tennessee**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6408864/2025/06/06/nijaree-canady-nil-deal-texas-te
 **Trade Brought Them Together. What Happens Now?**\
 `Chinese-U.S. trade is not just shipping containers and customs forms. It is underpinned by relationships between entrepreneurs. But now the turmoil over the Trump administration’s tariffs is threatening to fray longstanding personal ties.`\
 https://nytimes.com/interactive/2025/06/06/business/us-china-xi-tariffs-trade-war.html
-
-**Why Coco Gauff and Aryna Sabalenka's French Open final is a chase for each other's dreams**\
-`Gauff and Sabalenka are the top-ranked women's tennis players. They each have — and covet — less tangible things that the other possesses.`\
-https://nytimes.com/athletic/6408477/2025/06/06/gauff-sabalenka-tennis-french-open-final-bio-head-to-head/
-
-**The Alarming Part of the Musk-Trump Dispute**\
-`The last 24 hours should be a lesson to all the other billionaires who lined up with the new administration.`\
-https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-donald-trump-government-contracts
 
