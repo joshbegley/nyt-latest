@@ -1,3 +1,11 @@
+**Our New Podcast**\
+`We explore the controversial debate over health care for trans youth.`\
+https://nytimes.com/2025/06/06/briefing/the-protocol.html
+
+**Reported Tornadoes Touch Down in Northwest Texas**\
+`A severe weather pattern that brought thunderstorms, flooding and torrential rain was expected to persist from the southern Plains to the Southeast through the weekend.`\
+https://nytimes.com/video/weather/100000010211996/tornadoes-texas-storm-flooding.html
+
 **Rosenthal: After hitting ‘rock bottom,’ Braves can still salvage their season - if they snap out of it**\
 `The Braves are talented enough to bounce back, but even the returns of Ronald Acuña Jr. and Spencer Strider haven't led to a turnaround yet.`\
 https://nytimes.com/athletic/6407214/2025/06/06/atlanta-braves-rock-bottom-season/

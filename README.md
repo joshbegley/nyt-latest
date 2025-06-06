@@ -1,5 +1,5 @@
 **Our New Podcast**\
-`We explore the controversial debate over health care for trans youth.`\
+`In “The Protocol,” we explore the controversial debate over health care for trans youth.`\
 https://nytimes.com/2025/06/06/briefing/the-protocol.html
 
 **Reported Tornadoes Touch Down in Northwest Texas**\
