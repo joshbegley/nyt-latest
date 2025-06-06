@@ -1,3 +1,23 @@
+**CHSN inks deal with Comcast, ending long saga for Bulls, Blackhawks, White Sox**\
+`Eight-plus months after launching, Chicago Sports Network will finally reach a wider Chicago-area audience.`\
+https://nytimes.com/athletic/6406496/2025/06/06/chsn-comcast-chicago-tv-bulls-blackhawks-white-sox/
+
+**He’s a Master of Outrage on X. He’s Also Broke.**\
+`An online creator went from a “nobody” to a conspiratorial sensation on X. What he gets in return is less clear.`\
+https://nytimes.com/2025/06/06/technology/hes-a-master-of-outrage-on-x-hes-also-broke.html
+
+**Arsenal make Chelsea’s Arrizabalaga main goalkeeper target**\
+`Arsenal see the Spain international's £5million release clause as a potential market opportunity.`\
+https://nytimes.com/athletic/6257012/2025/06/06/kepa-arrizabalaga-arsenal-transfer-chelsea/
+
+**Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 13 at 9 a.m. Eastern. This week’s winners will be announced by June 24.`\
+https://nytimes.com/2025/06/06/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html
+
+**The Rich Compensation for Being the C.E.O.**\
+`The chief executives at Palantir, which scoops up data for the government, and Veeva Systems, a cloud-computing company, topped two lists of the highest-paid C.E.O.s.`\
+https://nytimes.com/2025/06/06/business/highest-paid-ceos.html
+
 **Dupont Circle Park Will Close Amid Pride Event After All, Park Service Says**\
 `City authorities canceled an initial request to block off the site, an L.G.B.T.Q. gathering spot in Washington, D.C. But the National Park Service opted to close it.`\
 https://nytimes.com/2025/06/06/us/world-pride-dupont-circle-park-closed-washington-dc.html
@@ -11,30 +31,10 @@ https://nytimes.com/2025/06/06/learning/video-submission-form-for-our-16th-annua
 https://nytimes.com/athletic/6407944/2025/06/06/manchester-united-accounts-latest-cash/
 
 **Hawley Breaks With Republicans to Oppose a Major Crypto Bill**\
-`The senator said that the GENIUS Act, as it’s written, struck down, fearing that it would be a “huge giveaway to Big Tech.”`\
+`The senator said that the GENIUS Act, as it’s written, should be struck down, fearing that it would be a “huge giveaway to Big Tech.”`\
 https://nytimes.com/2025/06/06/business/dealbook/hawley-crypto-stablecoin-bill.html
 
 **Ravens OTA observations: With third multiyear contract, Rashod Bateman enters rare air**\
 `Plus, Chuck Pagano spoke to reporters for the first time since returning to the organization to guide Baltimore's secondary. `\
 https://nytimes.com/athletic/6407293/2025/06/06/ravens-rashod-bateman-organized-team-activities/
-
-**Breaking down Rayan Cherki's effortlessly brilliant 30-minute cameo against Spain**\
-`It is hard not be enchanted by Cherki when he has the ball at his feet — as Premier League fans may soon discover`\
-https://nytimes.com/athletic/6407629/2025/06/06/rayan-cherki-france-spain-premier-league-transfer/
-
-**Counting Up the Potential Costs of the Trump-Musk Rift**\
-`The clash between the president and Teslas C.E.O. wiped billions off the electric vehicle maker’s market capitalization. Other risks abound.`\
-https://nytimes.com/2025/06/06/business/dealbook/musk-trump-fight.html
-
-**Russians closely watch the feud between two men they see as allies.**\
-`Elon Musk’s public falling-out with D`\
-https://nytimes.com/live/2025/06/06/us/elon-musk-trump-feud/russians-closely-watch-the-feud-between-two-men-they-see-as-allies
-
-**Could Ohio State lose to Michigan again but win the Big Ten? 5 early predictions**\
-`Five early thoughts about Ohio State's 2025 season, including its Big Ten outlook, big numbers for a new transfer, the QB battle and more.`\
-https://nytimes.com/athletic/6406453/2025/06/06/ohio-state-predictions-2025-football-michigan/
-
-**Lowetide: How Oilers' depth is already a factor in Staney Cup Final**\
-`The Oilers' performance in Game 1 of the final reflects a terrific depth chart for the organization this spring.`\
-https://nytimes.com/athletic/6405780/2025/06/06/edmonton-oilers-depth-stanley-cup-final-2025/
 
