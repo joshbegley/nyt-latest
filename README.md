@@ -1,3 +1,7 @@
+**USMNT kicks off a summer of redemption and audition**\
+`With so many key figures missing out, there's a summer's worth of opportunity for USMNT World Cup hopefuls.`\
+https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-pochettino-roster-spots/
+
 **Until Saturday: The Dakotas or everybody else?**\
 `Until Saturday is The Athletic's CFB newsletter.`\
 https://nytimes.com/athletic/6408847/2025/06/06/fcs-football-north-dakota-state-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/climate/bull-mountain-coal-mine-trump.html
 **How Tyrese Haliburton and the Pacers stay calm, cool and connected in the clutch**\
 `His Pacers teammates have said they go as Haliburton goes, but as usual, it took the team as a whole to get the job done in Game 1.`\
 https://nytimes.com/athletic/6408589/2025/06/06/tyrese-haliburton-pacers-game-1/
-
-**New York City’s Best Chefs Pick Their Favorite Restaurants**\
-`We asked some of the chefs from our 100 best restaurants list where they love to dine out right now.`\
-https://nytimes.com/2025/06/06/dining/chef-nyc-best-restaurant-picks.html
 
