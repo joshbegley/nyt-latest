@@ -1,3 +1,7 @@
+**Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
+`Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game two days later.`\
+https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
+
 **Teagan Kavan’s ‘guarded’ approach differs from NiJaree Canady, spurring Texas’ WCWS run nonetheless**\
 `Kavan's unassuming nature disguises a fierce competitor trusted to deliver Texas its first national championship in Game 3 on Friday.`\
 https://nytimes.com/athletic/6408808/2025/06/06/teagan-kavan-texas-texas-tech-womens-college-world-series-game-3/

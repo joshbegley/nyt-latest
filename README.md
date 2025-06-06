@@ -1,8 +1,12 @@
+**England’s High Court Warns Lawyers to Stop Citing Fake A.I.-Generated Cases**\
+`A senior judge said on Friday that lawyers could be prosecuted for presenting material that had been “hallucinated” by artificial intelligence tools.`\
+https://nytimes.com/2025/06/06/world/europe/england-high-court-ai.html
+
 **Jorginho joins Flamengo after Arsenal exit, will play in CWC**\
 `Jorginho’s Arsenal contract was due to end on June 30 but the tournament begins on June 14, with Flamengo’s first game two days later.`\
 https://nytimes.com/athletic/6375412/2025/06/06/jorginho-transfer-flamengo-arsenal/
 
-**Teagan Kavan’s ‘guarded’ approach differs from NiJaree Canady, spurring Texas’ WCWS run nonetheless**\
+**How Teagan Kavan’s unshakeable approach has carried Texas through WCWS run**\
 `Kavan's unassuming nature disguises a fierce competitor trusted to deliver Texas its first national championship in Game 3 on Friday.`\
 https://nytimes.com/athletic/6408808/2025/06/06/teagan-kavan-texas-texas-tech-womens-college-world-series-game-3/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/obituaries/hong-yen-chang-overlooked.html
 **USMNT kicks off a summer of redemption and audition**\
 `With so many key figures missing out, there's a summer's worth of opportunity for USMNT World Cup hopefuls.`\
 https://nytimes.com/athletic/6408775/2025/06/06/usmnt-turkey-gold-cup-world-pochettino-roster-spots/
-
-**Until Saturday: The Dakotas or everybody else?**\
-`Until Saturday is The Athletic's CFB newsletter.`\
-https://nytimes.com/athletic/6408847/2025/06/06/fcs-football-north-dakota-state-until-saturday/
 
