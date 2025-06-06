@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6364828/2025/06/06/davide-ancelotti-brazil-coach-ca
 `Wave general manager credits player buy-in for the team's rebound after difficult 2024 season.`\
 https://nytimes.com/athletic/6409153/2025/06/06/san-diego-wave-general-manager-cami-levin-ashton-rebound/
 
-**Supreme Court Lets DOGE View Social Security Data**\
-`In a second order, the court ruled that, for now, DOGE does not have to hand over internal records to a government watchdog group as part of a lawsuit.`\
+**Justices Grant DOGE Access to Social Security Data and Let the Team Shield Records**\
+`As Elon Musk leaves Washington, the team he formed to ferret out waste and abuse won dual victories in the Supreme Court.`\
 https://nytimes.com/2025/06/06/us/politics/supreme-court-doge-social-security.html
 
