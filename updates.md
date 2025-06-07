@@ -1,3 +1,24 @@
+**How a Times Reporter Eluded a Ban on the Word ‘Gay’**\
+`In the 1970s and ’80s, the adjective was prohibited from news copy in most contexts, which meant walking a fine line to reach interested readers.`\
+https://nytimes.com/2025/06/07/insider/new-york-times-gay.html
+
+**Nations League final odds: Can Spain thwart Portugal's late-game magic?**\
+`Brett Koremenos explores the best bets around Sunday’s UEFA Nations League final between Portugal and Spain.
+`\
+https://nytimes.com/athletic/6407933/2025/06/07/spain-portugal-uefa-nations-league-betting-odds/
+
+**How Stacy Spikes, Co-Founder of MoviePass, Spends His Day at the Theater**\
+`Mr. Spikes is the main character of a day filled with running, people-watching, and going to the movies, of course.`\
+https://nytimes.com/2025/06/07/nyregion/stacy-spikes-moviepass.html
+
+**Trump’s Threat to N.Y.C. Finances Dominates Comptroller’s Race**\
+`The Democratic primary for comptroller, to fill the seat now held by Brad Lander, will most likely boil down to Mark Levine or Justin Brannan.`\
+https://nytimes.com/2025/06/07/nyregion/nyc-comptroller-brannan-levine.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/07/crosswords/spelling-bee-forum.html
+
 **Francisco Lindor once again helps save the Mets, 'broken toe and all'**\
 `The Mets were close to a miserable loss to one of the worst teams in the history of the sport Friday night. Enter Lindor, "a true pro."`\
 https://nytimes.com/athletic/6409897/2025/06/07/mets-rockies-francisco-lindor/
