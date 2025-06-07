@@ -1,3 +1,7 @@
+**CFB Power conferences hiring MLB exec Bryan Seeley as College Sports Commission CEO**\
+`The Power conferences will bring in an MLB executive to guide the schools through a post-House settlement era.  `\
+https://nytimes.com/athletic/6409170/2025/06/06/bryan-seeley-college-sports-commission-ceo/
+
 **House v. NCAA settlement approved, allowing schools to pay college athletes**\
 `Universities can begin directly sharing revenue with college athletes starting July 1.`\
 https://nytimes.com/athletic/6367741/2025/06/06/house-ncaa-settlement-approved-revenue-sharing/
