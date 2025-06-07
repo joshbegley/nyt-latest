@@ -1,3 +1,7 @@
+**I Didn’t Think French Toast Could Get Any Better, but Here We Are**\
+`This Hong Kong-style French toast recipe from Cybelle Tondu has an oozy peanut butter filling and a drizzle of sweetened condensed milk.`\
+https://nytimes.com/2025/06/07/dining/hong-kong-style-french-toast-with-peanut-butter-filling-recipe.html
+
 **Arsenal close to Arrizabalaga deal**\
 `The 30-year-old spent last season on loan at Bournemouth, keeping nine clean sheets in 35 games for the south-coast club.`\
 https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelsea/
