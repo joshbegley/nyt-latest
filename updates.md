@@ -1,3 +1,7 @@
+**Yankees' Anthony Volpe leaves game, has X-rays on elbow after getting hit by pitch**\
+`Volpe was hit in the second inning but didn't leave until the top of the fourth.`\
+https://nytimes.com/athletic/6409582/2025/06/06/yankees-anthony-volpe-hit-by-pitch-elbow/
+
 **Texas demolishes Texas Tech for first WCWS championship**\
 `In the Longhorns' eighth WCWS appearance, and third in the last four years, they finally brought home the title.`\
 https://nytimes.com/athletic/6409601/2025/06/06/texas-vs-texas-tech-womens-college-world-series-championship/
