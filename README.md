@@ -1,3 +1,7 @@
+**CFB Power conferences hiring MLB exec Bryan Seeley as College Sports Commission CEO**\
+`The Power conferences will bring in an MLB executive to guide the schools through a post-House settlement era.  `\
+https://nytimes.com/athletic/6409170/2025/06/06/bryan-seeley-college-sports-commission-ceo/
+
 **House v. NCAA settlement approved, allowing schools to pay college athletes**\
 `Universities can begin directly sharing revenue with college athletes starting July 1.`\
 https://nytimes.com/athletic/6367741/2025/06/06/house-ncaa-settlement-approved-revenue-sharing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/insider/pacific-coast-highway-road-trip.html
 **NBA trophy logos may return on Finals courts next year, Adam Silver says**\
 `Though the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
 https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silver/
-
-**Weinstein Juror Complains to Judge About ‘Playground Stuff’ by Others**\
-`A member of the jury at Harvey Weinstein’s Manhattan retrial on sex crime charges said that another had become the subject of a “bit of a shunning” during deliberations.`\
-https://nytimes.com/2025/06/06/nyregion/harvey-weinstein-jury.html
 
