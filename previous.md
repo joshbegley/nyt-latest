@@ -1,3 +1,7 @@
+**2 Veterans Found With Stolen Military Guns and Nazi Material, Officials Say**\
+`The authorities said a soldier was assaulted with a hammer as the men tried to steal gear from a military base in Washington State. The theft led investigators to a house full of contraband.`\
+https://nytimes.com/2025/06/07/us/military-veterans-nazi-white-supremacy-arrest.html
+
 **Why the U.S. Brought Back Kilmar Abrego Garcia**\
 `Kilmar Abrego Garcia, who was mistakenly deported to El Salvador, was flown back to the United States on Friday to face federal criminal charges. Devlin Barrett, who covers the Justice Department, explains the charges and what may come next for Garcia.`\
 https://nytimes.com/video/us/politics/100000010213416/why-the-us-brought-back-kilmar-abrego-garcia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410693/2025/06/07/world-cup-qualifying-conmebol-bo
 **Canada clinical vs. Ukraine as Buchanan bounces back, David tandem shines**\
 `Canada's strikers had a field day in Toronto, with a new partnership leading the way for Jesse Marsch's side.`\
 https://nytimes.com/athletic/6410601/2025/06/07/canada-ukraine-friendly-marsch-david-buchanan/
-
-**Grizzlies' Zach Edey to undergo ankle surgery, miss start of 2025-26 season: Source**\
-`Edey, the 2023 and 2024 National Player of the Year at Purdue, played in 138 of a possible 139 games during his four-year college career.`\
-https://nytimes.com/athletic/6410772/2025/06/07/zach-edey-injury-grizzlies-nba-news/
 

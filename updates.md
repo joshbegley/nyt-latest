@@ -1,3 +1,7 @@
+**2 Veterans Found With Stolen Military Guns and Nazi Material, Officials Say**\
+`The authorities said a soldier was assaulted with a hammer as the men tried to steal gear from a military base in Washington State. The theft led investigators to a house full of contraband.`\
+https://nytimes.com/2025/06/07/us/military-veterans-nazi-white-supremacy-arrest.html
+
 **Why the U.S. Brought Back Kilmar Abrego Garcia**\
 `Kilmar Abrego Garcia, who was mistakenly deported to El Salvador, was flown back to the United States on Friday to face federal criminal charges. Devlin Barrett, who covers the Justice Department, explains the charges and what may come next for Garcia.`\
 https://nytimes.com/video/us/politics/100000010213416/why-the-us-brought-back-kilmar-abrego-garcia.html
