@@ -1,3 +1,11 @@
+**Teenager’s Bombing and Mass Shooting Plot at a Mall Is Foiled, F.B.I. Says**\
+`The plot, described by one official as being “as serious as it gets,” involved a plan to shoot moviegoers at a Washington State mall as they fled an explosion.`\
+https://nytimes.com/2025/06/07/us/oregon-teen-mass-shooting-mall.html
+
+**The Briefing: Andorra 0 England 1 - Will Tuchel's side regret underwhelming performance?**\
+`England endured a largely frustrating evening in Barcelona, struggling to create chances against a side ranked 173rd in the world`\
+https://nytimes.com/athletic/6402671/2025/06/07/andorra-0-england-1-tuchel-kane-madueke/
+
 **Andorra 0 England 1 - Tuchel's men largely underwhelming, might they regret narrow win?**\
 `England endured a largely frustrating evening in Barcelona, struggling to create chances against a side ranked 173rd in the world`\
 https://nytimes.com/athletic/6402671/2025/06/07/andorra-0-england-1-tuchel-kane-madueke/

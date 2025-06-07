@@ -1,4 +1,8 @@
-**Andorra 0 England 1 - Tuchel's men largely underwhelming, might they regret narrow win?**\
+**Teenager’s Bombing and Mass Shooting Plot at a Mall Is Foiled, F.B.I. Says**\
+`The plot, described by one official as being “as serious as it gets,” involved a plan to shoot moviegoers at a Washington State mall as they fled an explosion.`\
+https://nytimes.com/2025/06/07/us/oregon-teen-mass-shooting-mall.html
+
+**The Briefing: Andorra 0 England 1 - Will Tuchel's side regret underwhelming performance?**\
 `England endured a largely frustrating evening in Barcelona, struggling to create chances against a side ranked 173rd in the world`\
 https://nytimes.com/athletic/6402671/2025/06/07/andorra-0-england-1-tuchel-kane-madueke/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-fina
 **Hot, Big and Buggy: Why Do Broadway Actors Love to Work Summers Here?**\
 `The nearly 11,000-seat Muny in St. Louis is receiving the regional theater Tony Award. This week it began preparing to open its 107th season with “Bring It On.”`\
 https://nytimes.com/2025/06/07/theater/the-muny-st-louis-tony-award.html
-
-**Five Actors on the Muny: ‘Unlike Any Place I’d Ever Been on Earth’**\
-`The St. Louis theater, this year’s regional Tony Award winner, has drawn Broadway actors to its stage for a century.`\
-https://nytimes.com/2025/06/07/theater/tony-nominees-actors-the-muny-st-louis.html
 
