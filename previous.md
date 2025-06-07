@@ -31,7 +31,7 @@ https://nytimes.com/video/world/europe/100000010214128/russia-ukraine-kharkiv-st
 https://nytimes.com/athletic/6410555/2025/06/07/dodgers-tony-gonsolin-elbow-injury/
 
 **BowFlex Recalls 3.8 Million Adjustable Dumbbells After Injury Reports**\
-`More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those incidents resulting in injuries, the U.S. product safety agency said.`\
+`More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those cases resulting in injuries, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
 
 **Trump Says He Has No Desire to Mend His Relationship With Musk**\

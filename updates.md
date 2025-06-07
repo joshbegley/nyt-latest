@@ -1,3 +1,7 @@
+**BowFlex Recalls 3.8 Million Adjustable Dumbbells After Injury Reports**\
+`More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those cases resulting in injuries, the U.S. Consumer Product Safety Commission said.`\
+https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
+
 **Grizzlies' Zach Edey to undergo ankle surgery, miss start of 2025-26 season: Source**\
 `Edey, the 2023 and 2024 National Player of the Year at Purdue, played in 138 of a possible 139 games during his four-year college career.`\
 https://nytimes.com/athletic/6410772/2025/06/07/zach-edey-injury-grizzlies-nba-news/
