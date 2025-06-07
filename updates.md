@@ -1,3 +1,7 @@
+**Severe Weather Expected Across Much of the U.S. on Saturday**\
+`Clusters of thunderstorms could kick up damaging winds in the Southeast on Saturday.`\
+https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
+
 **Tottenham set to part company with women's coach Vilahamn**\
 `Vilahamn led Spurs to a top-six WSL finish and FA Cup final in his first season in charge but 2024-25 saw a downturn in form.`\
 https://nytimes.com/athletic/6410254/2025/06/07/tottenham-sack-women-manager-vilahamn/
