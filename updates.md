@@ -1,3 +1,11 @@
+**Out of Stock**\
+`When products we love are discontinued, sometimes the absence feels personal.`\
+https://nytimes.com/2025/06/07/briefing/out-of-stock.html
+
+**Russia Pummels Kharkiv With Drones and Bombs, Ukraine Says**\
+`The air assault killed at least three people. Kharkiv’s mayor described it as “the most powerful attack” since the beginning of the war.`\
+https://nytimes.com/2025/06/07/world/europe/russia-ukraine-war-kharkiv.html
+
 **Oilers won't dwell on missed chances after close Game 2: 'What’s it going to do?'**\
 `After two tight games to open the Stanley Cup Final, the Oilers clearly need to address some areas.`\
 https://nytimes.com/athletic/6409955/2025/06/07/edmonton-oilers-florida-panthers-game-2-overtime/
