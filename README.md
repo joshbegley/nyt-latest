@@ -1,3 +1,7 @@
+**Texas demolishes Texas Tech 10-4 for first-ever WCWS title**\
+`In the Longhorns' eighth WCWS appearance, and third in the last four years, it finally brought home the title.`\
+https://nytimes.com/athletic/6409601/2025/06/06/texas-vs-texas-tech-womens-college-world-series-championship/
+
 **What We Know About the Charges Against Abrego Garcia**\
 `Three months after being wrongly deported to El Salvador, Kilmar Armando Abrego Garcia was flown back to the United States on Friday to face federal charges.`\
 https://nytimes.com/2025/06/06/us/abrego-garcia-charges-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/trump-abrego-garcia-charges.html
 **Jonatan Giraldéz on Spirit departure: 'Football is unpredictable'**\
 `Giraldéz will coach three final games in the NWSL before moving to France to take up the job of leading OL Lyonnes.`\
 https://nytimes.com/athletic/6409475/2025/06/06/jonatan-giraldez-washington-spirit-departure/
-
-**Agents Use Military-Style Force Against Protesters at L.A. Immigration Raid**\
-`Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
-https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
 
