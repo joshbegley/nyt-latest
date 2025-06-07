@@ -1,3 +1,11 @@
+**This $22 Grill Press Helped Me Finally Crack the Code to Ultra-Thin Smash Burgers **\
+`(No description)`\
+https://nytimes.com/card/2025/06/07/smarter-living/wirecutter/this-22-grill-press-helped-me-finally-crack-the-code-to-ultra-thin-smash-burgers
+
+**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
+`Marchand scored two goals as Florida evened its series against Edmonton 1-1 with a double-overtime 5-4 victory in Game 2 at Rogers Place.`\
+https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
+
 **Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
 `Marchand scored two goals as Florida evened its series against Edmonton with a double-overtime 5-4 victory in Game 2 at Rogers Place.`\
 https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/

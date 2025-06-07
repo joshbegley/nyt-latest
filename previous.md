@@ -1,3 +1,7 @@
+**This $22 Grill Press Helped Me Finally Crack the Code to Ultra-Thin Smash Burgers **\
+`(No description)`\
+https://nytimes.com/card/2025/06/07/smarter-living/wirecutter/this-22-grill-press-helped-me-finally-crack-the-code-to-ultra-thin-smash-burgers
+
 **Twins notes: Bailey Ober's mechanical mess, calling up Travis Adams, 'sickos' mopping up**\
 `Ober says he feels healthy, but mechanical issues have plagued him since spring training, leading to diminished velocity and strikeouts.`\
 https://nytimes.com/athletic/6407952/2025/06/07/twins-lose-blue-jays-bailey-ober-travis-adams/
@@ -15,7 +19,7 @@ https://nytimes.com/issue/todayspaper/2025/06/07/todays-new-york-times
 https://nytimes.com/athletic/6409744/2025/06/07/yankees-red-sox-walker-buehler-marcelo-mayer/
 
 **Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
-`Marchand scored two goals as Florida evened its series against Edmonton with a double-overtime 5-4 victory in Game 2 at Rogers Place.`\
+`Marchand scored two goals as Florida evened its series against Edmonton 1-1 with a double-overtime 5-4 victory in Game 2 at Rogers Place.`\
 https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
 
 **Jean-Clair Todibo is here to stay at West Ham - expect more front-foot defending**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408285/2025/06/07/leeds-united-transfer-dealsheet/
 **Scenes from a Tigers victory: A daunting catch, a daring escape and another unlikely hero**\
 `The Cubs entered as the best team in the NL. The Tigers entered as the best team in the AL and escaped with the win.`\
 https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will-vest/
-
-**Football's capacity to make men cry: 'I was buying milk and just burst into tears thinking about Palace'**\
-`After tearful scenes of jubilation and despair at football grounds, we explore the sport's remarkable ability to stir the emotions`\
-https://nytimes.com/athletic/6383164/2025/06/07/footballs-capacity-to-make-men-cry-i-was-buying-milk-and-just-burst-into-tears-thinking-about-palace/
 
