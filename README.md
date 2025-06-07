@@ -1,3 +1,7 @@
+**Canada clinical vs. Ukraine as Buchanan bounces back, David tandem shines**\
+`Canada's strikers had a field day in Toronto, with a new partnership leading the way for Jesse Marsch's side.`\
+https://nytimes.com/athletic/6410601/2025/06/07/canada-ukraine-friendly-marsch-david-buchanan/
+
 **Grizzlies' Zach Edey to undergo ankle surgery, miss start of 2025-26 season: Source**\
 `Edey, the 2023 and 2024 National Player of the Year at Purdue, played in 138 of a possible 139 games during his four-year college career.`\
 https://nytimes.com/athletic/6410772/2025/06/07/zach-edey-injury-grizzlies-nba-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410555/2025/06/07/dodgers-tony-gonsolin-elbow-inju
 **BowFlex Recalls 3.8 Million Adjustable Dumbbells After Injury Reports**\
 `More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those cases resulting in injuries, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
-
-**Trump Says He Has No Desire to Mend His Relationship With Musk**\
-`The president warned of “serious consequences” if Mr. Musk chose to back candidates against Republicans who supported his domestic policy bill.`\
-https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
 
