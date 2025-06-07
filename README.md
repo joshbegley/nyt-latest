@@ -1,3 +1,7 @@
+**What We Know About the Charges Against Abrego Garcia**\
+`Three months after being wrongly deported to El Salvador, Kilmar Armando Abrego Garcia was flown back to the United States on Friday to face federal charges.`\
+https://nytimes.com/2025/06/06/us/abrego-garcia-charges-explainer.html
+
 **Trump Can Restrict A.P. Journalists’ Access, Appeals Court Rules**\
 `By a 2-to-1 vote, a three-judge panel found that the president can bar the news outlet from small settings such as the Oval Office or Air Force One, reversing at least for now a lower court’s ruling.`\
 https://nytimes.com/2025/06/06/us/politics/appeals-court-associated-press-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409475/2025/06/06/jonatan-giraldez-washington-spir
 **Agents Use Military-Style Force Against Protesters at L.A. Immigration Raid**\
 `Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
 https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
-
-**What to Know About the Effects of Ketamine**\
-`Elon Musk has said that he used ketamine as a treatment in the past, but he denied reports that he was taking it frequently and recreationally.`\
-https://nytimes.com/2025/06/06/health/ketamine-effects-anesthetic-elon-musk.html
 
