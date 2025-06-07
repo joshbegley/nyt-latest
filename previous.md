@@ -1,3 +1,7 @@
+**Tottenham set to part company with women's coach Vilahamn**\
+`Vilahamn led Spurs to a top-six WSL finish and FA Cup final in his first season in charge but 2024-25 saw a downturn in form.`\
+https://nytimes.com/athletic/6410254/2025/06/07/tottenham-sack-women-manager-vilahamn/
+
 **Lewandowski says 'mental tiredness' behind absence from Poland squad**\
 `The 36-year-old played 52 times for Barcelona this term, his highest number of appearances in a single season during his career.`\
 https://nytimes.com/athletic/6410234/2025/06/07/robert-lewandowski-poland-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/07/us/trump-news
 **Severe Weather Expected Across Much of the U.S. on Saturday**\
 `Clusters of thunderstorms could kick up damaging winds in northern Mississippi and northern Alabama on Saturday.`\
 https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
-
-**Marc Maron’s Podcast Helped Me See a Creative Future**\
-`He just kept showing up and doing the work`\
-https://nytimes.com/2025/06/07/opinion/end-maron-podcast.html
 
