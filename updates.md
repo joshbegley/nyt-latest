@@ -1,3 +1,31 @@
+**Club World Cup team guide - Bayern Munich: A powerhouse progressing under Kompany**\
+`A guide to Bayern Munich, who are set to feature in the inaugural Club World Cup`\
+https://nytimes.com/athletic/6394318/2025/06/07/club-world-cup-bayern-munich-team-guide/
+
+**Why there is no tougher task than sailing in Upper New York Bay**\
+`Manhattan's towering skyline takes the breath away - but those famous skyscrapers can take the wind away from SailGP racers, too`\
+https://nytimes.com/athletic/6402262/2025/06/07/sailgp-new-york-city-upper-bay/
+
+**Quote of the Day: Making a Mark by Being Themselves**\
+`Quotation of the Day for Saturday, June 7, 2025.`\
+https://nytimes.com/2025/06/07/pageoneplus/quote-of-the-day-making-a-mark-by-being-themselves.html
+
+**Hong Kong Looks for Ways to Win Back Big-Spending Tourists**\
+`A city with an image dented by protests, pandemic restrictions and a security crackdown hopes to broaden its appeal beyond budget-minded visitors from mainland China.`\
+https://nytimes.com/2025/06/07/world/asia/00int-hongkong-china-tourists.html
+
+**London’s ‘Little America’ Is No More. What’s Taking Its Place?**\
+`Grosvenor Square is being recast for a new era, with the former U.S. Embassy transformed into a Qatari-owned luxury hotel and F.D.R.’s square into a haven of biodiversity.`\
+https://nytimes.com/2025/06/07/world/europe/grosvenor-square-london-us-embassy-hotel.html
+
+**Connections: Sports Edition Coach: Hints for June 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6409641/2025/06/07/connections-sports-edition-hints-for-june-7-2025/
+
+**No Corrections: June 7, 2025**\
+`No corrections appeared in print on Saturday, June 7, 2025.`\
+https://nytimes.com/2025/06/07/pageoneplus/no-corrections-june-7-2025.html
+
 **Yankees' Anthony Volpe leaves game, has X-rays on elbow after getting hit by pitch**\
 `Volpe was hit in the second inning but didn't leave until the top of the fourth.`\
 https://nytimes.com/athletic/6409582/2025/06/06/yankees-anthony-volpe-hit-by-pitch-elbow/
