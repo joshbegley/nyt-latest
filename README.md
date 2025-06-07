@@ -1,3 +1,11 @@
+**Mbappe ‘happy’ that PSG won the Champions League: ‘There’s no bitterness’**\
+`Mbappe won six Ligue 1 titles in a seven-year spell with PSG but has never lifted the Champions League trophy.`\
+https://nytimes.com/athletic/6410066/2025/06/07/kylian-mbappe-champions-league-psg/
+
+**Ronaldo says he won't be at Club World Cup, despite 'plenty of offers'**\
+`The 40-year-old's Al Nassr contract expires on June 30 and FIFA president Infantino had suggested he might move ahead of the tournament.`\
+https://nytimes.com/athletic/6410093/2025/06/07/ronaldo-transfer-club-world-cup/
+
 **D.C. Police Officer Sentenced to Prison for Leaks to Proud Boys’ Leader**\
 `A federal judge gave Lt. Shane Lamond an 18-month sentence for leaking details of an investigation to Enrique Tarrio, the far-right group’s former leader, and lying about it later.`\
 https://nytimes.com/2025/06/07/us/dc-police-proud-boys-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/07/world/middleeast/israel-thai-hostage-body-gaza.ht
 **How a 1970s Canadian band provided the surprise song of the 2025 NHL playoffs**\
 `"You can't buy that kind of rotation, right?" the bassist and keyboardist of the hard rock trio Triumph said of the track's viral run.`\
 https://nytimes.com/athletic/6400064/2025/06/07/triumph-band-stanley-cup-playoffs-rogers-sportsnet-commercial/
-
-**From hotel ballrooms to VO2-max tests: How the NHL Scouting Combine has grown and evolved**\
-`What used to be a small gathering, with informal chats, has developed into a big event on the hockey calendar.`\
-https://nytimes.com/athletic/6409164/2025/06/07/nhl-scouting-combine-history/
-
-**Clash of the Bilious Billionaires**\
-`Elon and Donald: Breaking up is hard to do. But fun to watch.`\
-https://nytimes.com/2025/06/07/opinion/elon-musk-donald-trump.html
 

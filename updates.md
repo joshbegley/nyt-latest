@@ -1,3 +1,7 @@
+**D.C. Police Officer Sentenced to Prison for Leaks to Proud Boys’ Leader**\
+`A federal judge gave Lt. Shane Lamond an 18-month sentence for leaking details of an investigation to Enrique Tarrio, the far-right group’s former leader, and lying about it later.`\
+https://nytimes.com/2025/06/07/us/dc-police-proud-boys-sentence.html
+
 **Macron Will Visit Greenland This Month, Defying Trump**\
 `President Emmanuel Macron of France plans to travel to the island nation, which President Trump has vowed to take control of, on the way to Canada for a Group of 7 meeting.`\
 https://nytimes.com/2025/06/07/world/europe/greenland-france-macron-trump.html
