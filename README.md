@@ -1,3 +1,7 @@
+**UFC 316 odds, predictions: Dvalishvili vs. O'Malley headlines a card with two title fights**\
+`UFC 316 has two title fights on the card, including both bantamweight belts. Merab Dvalishvili vs. Sean O’Malley is the main event.`\
+https://nytimes.com/athletic/6406763/2025/06/07/ufc-316-dvalishvili-omalley-predictions-odds/
+
 **Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
 `The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
 https://nytimes.com/2025/06/07/magazine/misty-copeland-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/business/trump-elon-musk-tesla.html
 **Five Big Midterm Questions That Could Shape Democrats’ 2028 Field**\
 `Before they can run in 2028, numerous top Democrats will first face re-election in 2026. And for everyone, the midterms will serve as a new political proving ground.`\
 https://nytimes.com/2025/06/07/us/politics/midterm-elections-democrats-2028.html
-
-**Harvard Taught This British Student About Democracy. Now Trump May Force Him Out.**\
-`Alfred Williamson could not have imagined how much his freshman year would be shaped by the Trump administration, inside and outside the classroom.`\
-https://nytimes.com/2025/06/07/us/trump-harvard-international-student-ban.html
 
