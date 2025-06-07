@@ -1,3 +1,19 @@
+**Trump Targets Workplaces as Immigration Crackdown Widens**\
+`Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
+https://nytimes.com/2025/06/07/us/trump-targets-workplaces-as-immigration-crackdown-widens.html
+
+**Bill Atkinson, Who Made Computers Easier to Use, Is Dead at 74**\
+`A designer for Apple, he created software that made it possible to display shapes, images and text on the screen and present a simulated “desktop.”`\
+https://nytimes.com/2025/06/07/technology/bill-atkinson-dead.html
+
+**These Pacers keep betting on themselves — and keep winning**\
+`After a slow start, Indiana could've chosen different paths at the trade deadline. Win or lose, staying the course was the right call.`\
+https://nytimes.com/athletic/6410697/2025/06/07/indiana-pacers-nba-finals-2025-okc-thunder/
+
+**Bolivia say no explanation given by Venezuela over 12-hour flight delay after WC defeat**\
+`Bolivia's team faced a 12-hour delay to their chartered flight back to La Paz following Friday's World Cup qualifying loss in Venezuela.`\
+https://nytimes.com/athletic/6410693/2025/06/07/world-cup-qualifying-conmebol-bolivia-venezuela/
+
 **Canada clinical vs. Ukraine as Buchanan bounces back, David tandem shines**\
 `Canada's strikers had a field day in Toronto, with a new partnership leading the way for Jesse Marsch's side.`\
 https://nytimes.com/athletic/6410601/2025/06/07/canada-ukraine-friendly-marsch-david-buchanan/
