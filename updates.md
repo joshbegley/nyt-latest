@@ -1,3 +1,7 @@
+**Phillies place Bryce Harper on IL with wrist inflammation**\
+`Harper homered earlier this week in his first at-bat back in the Phillies' lineup, then went hitless in his next 10 at-bats.`\
+https://nytimes.com/athletic/6410411/2025/06/07/phillies-bryce-harper-wrist-injury/
+
 **Game, Set, Match: Coco Gauff beats Aryna Sabalenka to win first French Open title**\
 `Gauff won her first Roland Garros title by playing the conditions and the occasion with more evenness than Sabalenka.`\
 https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-final-tennis-result-analysis/

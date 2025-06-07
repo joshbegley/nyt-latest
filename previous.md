@@ -1,3 +1,7 @@
+**Phillies place Bryce Harper on IL with wrist inflammation**\
+`Harper homered earlier this week in his first at-bat back in the Phillies' lineup, then went hitless in his next 10 at-bats.`\
+https://nytimes.com/athletic/6410411/2025/06/07/phillies-bryce-harper-wrist-injury/
+
 **Game, Set, Match: Coco Gauff beats Aryna Sabalenka to win first French Open title**\
 `Gauff won her first Roland Garros title by playing the conditions and the occasion with more evenness than Sabalenka.`\
 https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-final-tennis-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/dining/hong-kong-style-french-toast-with-peanut-b
 **Arsenal close to Arrizabalaga deal**\
 `The 30-year-old spent last season on loan at Bournemouth, keeping nine clean sheets in 35 games for the south-coast club.`\
 https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelsea/
-
-**How will revenue sharing work in college sports? From attempted oversight to financial reckoning**\
-`“At some point,” said a personnel director, “maybe we'll get two years in a row where we know what's going on.”`\
-https://nytimes.com/athletic/6372328/2025/06/07/college-sports-revenue-sharing-ncaa-house-settlement-changes/
 
