@@ -1,3 +1,7 @@
+**Arsenal close to Arrizabalaga deal**\
+`The 30-year-old spent last season on loan at Bournemouth, keeping nine clean sheets in 35 games for the south-coast club.`\
+https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelsea/
+
 **How will revenue sharing work in college sports? From attempted oversight to financial reckoning**\
 `“At some point,” said a personnel director, “maybe we'll get two years in a row where we know what's going on.”`\
 https://nytimes.com/athletic/6372328/2025/06/07/college-sports-revenue-sharing-ncaa-house-settlement-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409860/2025/06/07/womens-college-world-series-nija
 **Mbappe ‘happy’ that PSG won the Champions League: ‘There’s no bitterness’**\
 `Mbappe won six Ligue 1 titles in a seven-year spell with PSG but has never lifted the Champions League trophy.`\
 https://nytimes.com/athletic/6410066/2025/06/07/kylian-mbappe-champions-league-psg/
-
-**Ronaldo says he won't be at Club World Cup, despite 'plenty of offers'**\
-`The 40-year-old's Al Nassr contract expires on June 30 and FIFA president Infantino had suggested he might move ahead of the tournament.`\
-https://nytimes.com/athletic/6410093/2025/06/07/ronaldo-transfer-club-world-cup/
 
