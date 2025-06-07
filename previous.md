@@ -1,4 +1,8 @@
-**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2 of Stanley Cup Final**\
+**Yankees pummel Walker Buehler in his return to Bronx as Red Sox's first-inning woes continue**\
+`Despite Marcelo Mayer's first career homer, it was a long, long night for Boston.`\
+https://nytimes.com/athletic/6409744/2025/06/07/yankees-red-sox-walker-buehler-marcelo-mayer/
+
+**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
 `Marchand scored two goals as the Panthers evened the series with a 5-4 Game 2 victory at Rogers Place.`\
 https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
 
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6392857/2025/06/07/wembley-stadium-finances-concert
 **Postecoglou restored belief at Spurs - but they are right not to see him as a long-term solution**\
 `The peculiarity of a stubborn ideologue who produced underwhelming results with ‘his’ style, but won a trophy with the opposite approach`\
 https://nytimes.com/athletic/6402826/2025/06/07/ange-postecoglou-philosophy-personality-tottenham/
-
-**Where Bulls Lock Horns for Sport**\
-`Bull-on-bull fighting has been popular in South Korea for centuries. Critics say it’s needlessly cruel and painful.
-`\
-https://nytimes.com/card/2025/06/07/world/south-korea-bullfighting
 
