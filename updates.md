@@ -1,3 +1,7 @@
+**For Game 2 bounce back, Thunder need Chet Holmgren, Jalen Williams to outplay their experience**\
+`“They have carved out huge roles on our team — they are a huge reason why we're here,” Daigneault said. “They are in an uncommon position."`\
+https://nytimes.com/athletic/6410715/2025/06/07/thunder-finals-williams-holmgren-experience/
+
 **Immigration Agents Clash Again With Protesters in Los Angeles County**\
 `As federal agents carried out more workplace raids, they squared off with protesters, using what appeared to be tear gas and flash-bang grenades.`\
 https://nytimes.com/2025/06/07/us/la-immigration-raids-ice.html
