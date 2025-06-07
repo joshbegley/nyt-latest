@@ -1,3 +1,7 @@
+**With Joy and Resolve, Paradegoers Celebrate at Global Pride Gathering in D.C.**\
+`The president’s moves affecting L.G.B.T.Q. people were on the minds of attendees, but there was no stopping the party.`\
+https://nytimes.com/2025/06/07/us/worldpride-parade-washington-dc.html
+
 **For Game 2 bounce back, Thunder need Chet Holmgren, Jalen Williams to outplay their experience**\
 `“They have carved out huge roles on our team — they are a huge reason why we're here,” Daigneault said. “They are in an uncommon position."`\
 https://nytimes.com/athletic/6410715/2025/06/07/thunder-finals-williams-holmgren-experience/

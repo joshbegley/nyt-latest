@@ -1,3 +1,7 @@
+**With Joy and Resolve, Paradegoers Celebrate at Global Pride Gathering in D.C.**\
+`The president’s moves affecting L.G.B.T.Q. people were on the minds of attendees, but there was no stopping the party.`\
+https://nytimes.com/2025/06/07/us/worldpride-parade-washington-dc.html
+
 **For Game 2 bounce back, Thunder need Chet Holmgren, Jalen Williams to outplay their experience**\
 `“They have carved out huge roles on our team — they are a huge reason why we're here,” Daigneault said. “They are in an uncommon position."`\
 https://nytimes.com/athletic/6410715/2025/06/07/thunder-finals-williams-holmgren-experience/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
 **Abrego Garcia is jailed in Tennessee awaiting trial on human trafficking charges.**\
 `By Devlin Barrett, Alan Feuer, Glenn Thrush and James C. McKinley Jr.`\
 https://nytimes.com/live/2025/06/07/us/trump-news/abrego-garcia-is-jailed-in-tennessee-awaiting-trial-on-human-trafficking-charges
-
-**Teenager’s Bombing and Mass Shooting Plot at a Mall Is Foiled, F.B.I. Says**\
-`The plot, described by one official as being “as serious as it gets,” involved a plan to shoot moviegoers at a Washington State mall as they fled an explosion.`\
-https://nytimes.com/2025/06/07/us/oregon-teen-mass-shooting-mall.html
 
