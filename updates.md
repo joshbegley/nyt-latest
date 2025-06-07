@@ -1,3 +1,11 @@
+**Immigration Agents Clash Again With Protesters in Los Angeles County**\
+`As federal agents carried out more workplace raids, they squared off with protesters, using what appeared to be tear gas and flash-bang grenades.`\
+https://nytimes.com/2025/06/07/us/la-immigration-raids-ice.html
+
+**How Coco Gauff's journey into a tennis unknown reached the destination long in her dreams**\
+`Gauff's second Grand Slam title is the vindication of nine months in which she remade her tennis, at risk of it all falling down.`\
+https://nytimes.com/athletic/6410644/2025/06/07/coco-gauff-french-open-tennis/
+
 **Aryna Sabalenka's 'terrible' French Open final and the intangibles of tennis**\
 `World No. 1 Sabalenka bemoaned the conditions and her own “terrible” play after losing the French Open final to Coco Gauff.`\
 https://nytimes.com/athletic/6410581/2025/06/07/tennis-french-open-final-sabalenka-gauff-conditions-reaction/

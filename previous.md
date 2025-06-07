@@ -1,3 +1,11 @@
+**Immigration Agents Clash Again With Protesters in Los Angeles County**\
+`As federal agents carried out more workplace raids, they squared off with protesters, using what appeared to be tear gas and flash-bang grenades.`\
+https://nytimes.com/2025/06/07/us/la-immigration-raids-ice.html
+
+**How Coco Gauff's journey into a tennis unknown reached the destination long in her dreams**\
+`Gauff's second Grand Slam title is the vindication of nine months in which she remade her tennis, at risk of it all falling down.`\
+https://nytimes.com/athletic/6410644/2025/06/07/coco-gauff-french-open-tennis/
+
 **Aryna Sabalenka's 'terrible' French Open final and the intangibles of tennis**\
 `World No. 1 Sabalenka bemoaned the conditions and her own “terrible” play after losing the French Open final to Coco Gauff.`\
 https://nytimes.com/athletic/6410581/2025/06/07/tennis-french-open-final-sabalenka-gauff-conditions-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/07/us/oregon-teen-mass-shooting-mall.html
 **The Briefing: Andorra 0 England 1 - Will Tuchel's side regret underwhelming performance?**\
 `England endured a largely frustrating evening in Barcelona, struggling to create chances against a side ranked 173rd in the world`\
 https://nytimes.com/athletic/6402671/2025/06/07/andorra-0-england-1-tuchel-kane-madueke/
-
-**'Pacman' Jones arrested, charged with assaulting officer, public intoxication**\
-`During his playing career, Jones was arrested or questioned by police in eight separate incidents, including a 2007 shooting in Las Vegas.`\
-https://nytimes.com/athletic/6410476/2025/06/07/adam-pacman-jones-arrest-kentucky/
-
-**Even after historic settlement, college sports remain broken. But what else is new?**\
-`The settlement required years of mountain moving and billions of dollars. It's only delaying the inevitable, but college sports move on.`\
-https://nytimes.com/athletic/6375168/2025/06/07/ncaa-house-settlement-college-sports-revenue-sharing-news/
 
