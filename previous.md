@@ -2,7 +2,7 @@
 `By Heather Knight and Campbell Robertson`\
 https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride-in-washington-against-the-backdrop-of-trumps-white-house
 
-**Trump Administration Live Updates: U.S. Brings Abrego Garcia Back From El Salvador to Face Criminal Charges**\
+**Trump Administration Live Updates: Abrego Garcia is Jailed in Tennessee After U.S. Brings Him Back From El Salvador**\
 ``\
 https://nytimes.com/live/2025/06/07/us/trump-news
 

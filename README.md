@@ -1,3 +1,7 @@
+**Craig Kimbrel rejoins Braves 11 years later, and their losing streak continues**\
+`Kimbrel returned to the Braves, the club he spent his first five major-league seasons with, for Friday's game against the Giants.`\
+https://nytimes.com/athletic/6409935/2025/06/07/craig-kimbrel-braves-losing-streak/
+
 **The world is celebrating Pride in Washington, against the backdrop of Trump’s White House.**\
 `By Heather Knight and Campbell Robertson`\
 https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride-in-washington-against-the-backdrop-of-trumps-white-house
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410093/2025/06/07/ronaldo-transfer-club-world-cup/
 **D.C. Police Officer Sentenced to Prison for Leaks to Proud Boys’ Leader**\
 `A federal judge gave Lt. Shane Lamond an 18-month sentence for leaking details of an investigation to Enrique Tarrio, the far-right group’s former leader, and lying about it later.`\
 https://nytimes.com/2025/06/07/us/dc-police-proud-boys-sentence.html
-
-**Macron Will Visit Greenland This Month, Defying Trump**\
-`President Emmanuel Macron of France plans to travel to the island nation, which President Trump has vowed to take control of, on the way to Canada for a Group of 7 meeting.`\
-https://nytimes.com/2025/06/07/world/europe/greenland-france-macron-trump.html
 

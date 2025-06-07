@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Abrego Garcia is Jailed in Tennessee After U.S. Brings Him Back From El Salvador**\
+``\
+https://nytimes.com/live/2025/06/07/us/trump-news
+
 **The world is celebrating Pride in Washington, against the backdrop of Trump’s White House.**\
 `By Heather Knight and Campbell Robertson`\
 https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride-in-washington-against-the-backdrop-of-trumps-white-house
