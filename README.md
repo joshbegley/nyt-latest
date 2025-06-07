@@ -1,3 +1,11 @@
+**The world is celebrating Pride in Washington, against the backdrop of Trump’s White House.**\
+`By Heather Knight and Campbell Robertson`\
+https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride-in-washington-against-the-backdrop-of-trumps-white-house
+
+**Trump Administration Live Updates: U.S. Brings Abrego Garcia Back From El Salvador to Face Criminal Charges**\
+``\
+https://nytimes.com/live/2025/06/07/us/trump-news
+
 **Severe Weather Expected Across Much of the U.S. on Saturday**\
 `Clusters of thunderstorms could kick up damaging winds in northern Mississippi and northern Alabama on Saturday.`\
 https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/07/us/dc-police-proud-boys-sentence.html
 **Macron Will Visit Greenland This Month, Defying Trump**\
 `President Emmanuel Macron of France plans to travel to the island nation, which President Trump has vowed to take control of, on the way to Canada for a Group of 7 meeting.`\
 https://nytimes.com/2025/06/07/world/europe/greenland-france-macron-trump.html
-
-**Carlos Alcaraz vs. Jannik Sinner: The French Open final that neither player will lose**\
-`Alcaraz and Sinner's first meeting in a Grand Slam final extends the self-perpetuating excellence that is lifting them above everybody else.`\
-https://nytimes.com/athletic/6409225/2025/06/07/tennis-alcaraz-sinner-french-open-final/
-
-**Sabres face pivotal decision on JJ Peterka amid growing trade interest**\
-`Of the Sabres' pending restricted free agents, Peterka's situation is the most intriguing.`\
-https://nytimes.com/athletic/6409243/2025/06/07/sabres-jj-peterka-contract-trade/
 
