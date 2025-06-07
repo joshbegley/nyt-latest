@@ -1,3 +1,7 @@
+**House v. NCAA settlement approved, allowing schools to pay college athletes**\
+`Universities can begin directly sharing revenue with college athletes starting July 1.`\
+https://nytimes.com/athletic/6367741/2025/06/06/house-ncaa-settlement-approved-revenue-sharing/
+
 **Federal Agents Use Flash-Bang Grenades During Immigration Raid**\
 `Federal agents in tactical gear armed with military-style rifles threw flash-bang grenades to disperse an angry crowd near downtown Los Angeles on Friday as they conducted an immigration raid on a clothing wholesaler.`\
 https://nytimes.com/video/us/100000010213732/la-immigration-raid.html
