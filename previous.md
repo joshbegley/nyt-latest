@@ -1,3 +1,7 @@
+**Jonatan Giraldéz on Spirit departure: 'Football is unpredictable'**\
+`Giraldéz will coach three final games in the NWSL before moving to France to take up the job of leading OL Lyonnes.`\
+https://nytimes.com/athletic/6409475/2025/06/06/jonatan-giraldez-washington-spirit-departure/
+
 **Federal Agents and Protesters Clash at Immigration Raid in L.A.**\
 `Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
 https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/devil-in-the-ozarks-captured-arkansas.html
 **Trump Has Options to Punish Musk Even if His Federal Contracts Continue**\
 `The president could tighten federal oversight of the tech titan’s businesses, even if heavy reliance by the Pentagon and NASA on them makes terminating Mr. Musk’s contracts less feasible.`\
 https://nytimes.com/2025/06/06/us/politics/trump-musk-spacex-contracts.html
-
-**Justice Dept.’s Inspector General to Move to the Federal Reserve**\
-`Michael E. Horowitz, one of the few major watchdogs spared from a purge by President Trump, will also hunt for abuses at the Consumer Financial Protection Board — a Trump target.`\
-https://nytimes.com/2025/06/06/us/justice-inspector-general-fed.html
 

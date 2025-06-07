@@ -1,3 +1,7 @@
+**Jonatan Giraldéz on Spirit departure: 'Football is unpredictable'**\
+`Giraldéz will coach three final games in the NWSL before moving to France to take up the job of leading OL Lyonnes.`\
+https://nytimes.com/athletic/6409475/2025/06/06/jonatan-giraldez-washington-spirit-departure/
+
 **Federal Agents and Protesters Clash at Immigration Raid in L.A.**\
 `Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
 https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
