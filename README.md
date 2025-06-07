@@ -1,3 +1,15 @@
+**Jean-Clair Todibo is here to stay at West Ham - expect more front-foot defending**\
+`Injuries and aerial duel issues stunted Todibo's first season in England but his aggressive style makes him a useful squad member`\
+https://nytimes.com/athletic/6399271/2025/06/07/jean-clair-todibo-west-ham-transfer-analysis/
+
+**Man United fans' survey results: Concerns about INEOS but players to blame for terrible season**\
+`We asked, and you answered. Thousands of subscribers gave their views on the ownership at Old Trafford, Ruben Amorim, players and transfers`\
+https://nytimes.com/athletic/6405817/2025/06/07/mancehster-united-fans-survey-results/
+
+**Leeds United Transfer DealSheet: Summer window latest, key positions and available players**\
+`Daniel Farke has to retain the heart and soul of his champions, but retool and upgrade where possible to keep Leeds in the top flight`\
+https://nytimes.com/athletic/6408285/2025/06/07/leeds-united-transfer-dealsheet/
+
 **Scenes from a Tigers victory: A daunting catch, a daring escape and another unlikely hero**\
 `The Cubs entered as the best team in the NL. The Tigers entered as the best team in the AL and escaped with the win.`\
 https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will-vest/
@@ -26,16 +38,4 @@ https://nytimes.com/card/2025/06/07/world/south-korea-bullfighting
 **How the Premier League revolutionised academies to create pathways for Delap, Eze, Johnson and many more**\
 `For a while, the footballers developed at English clubs were considered inferior. But no longer. What has changed?`\
 https://nytimes.com/athletic/6392931/2025/06/07/premier-league-academy-system/
-
-**How fanzine culture gave a voice to supporters and changed English football**\
-`An exhibition this summer is a reminder of the role fanzines played in reviving the sport in the 1980s — and their enduring importance`\
-https://nytimes.com/athletic/6387406/2025/06/07/english-soccer-fanzine-culture/
-
-**Club World Cup team guide – Mamelodi Sundowns: South African champions with a Brazilian star**\
-`Everything you need to know about the CAF Champions League finalists`\
-https://nytimes.com/athletic/6384738/2025/06/07/club-world-cup-guide-mamelodi-sundowns/
-
-**Club World Cup team guide - Monterrey: Ramos, a former Guardiola assistant and a rising star**\
-`Monterrey are a big club from northern Mexico with expectations normally reserved for elite clubs. Can they navigate a difficult CWC group?`\
-https://nytimes.com/athletic/6391422/2025/06/07/club-world-cup-monterrey-ramos-guardiola-torrent/
 

@@ -1,3 +1,15 @@
+**Scenes from a Tigers victory: A daunting catch, a daring escape and another unlikely hero**\
+`The Cubs entered as the best team in the NL. The Tigers entered as the best team in the AL and escaped with the win.`\
+https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will-vest/
+
+**Football's capacity to make men cry: 'I was buying milk and just burst into tears thinking about Palace'**\
+`After tearful scenes of jubilation and despair at football grounds, we explore the sport's remarkable ability to stir the emotions`\
+https://nytimes.com/athletic/6383164/2025/06/07/footballs-capacity-to-make-men-cry-i-was-buying-milk-and-just-burst-into-tears-thinking-about-palace/
+
+**Postecoglou restored belief at Spurs - but they are right not to see him as a long-term solution**\
+`The peculiarity of a stubborn ideologue who produced underwhelming results with ‘his’ style, but won a trophy with the opposite approach`\
+https://nytimes.com/athletic/6402826/2025/06/07/ange-postecoglou-philosophy-personality-tottenham/
+
 **Club World Cup team guide – Inter Miami: Messi's star power, slow start for Mascherano**\
 `Inter Miami have struggled this season under rookie coach Javier Mascherano. Can they make a splash at the Club World Cup?`\
 https://nytimes.com/athletic/6392199/2025/06/07/club-world-cup-inter-miami-messi-star/
