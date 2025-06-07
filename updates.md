@@ -1,3 +1,11 @@
+**Meeting Their Match**\
+`There’s no use trying to resist the primal attraction of John Kugelman’s latest Sunday puzzle.`\
+https://nytimes.com/2025/06/07/crosswords/daily-puzzle-2025-06-08.html
+
+**USMNT lays egg in pivotal stretch vs. Turkey, responds well in friendly loss**\
+`After taking a first-minute lead, the U.S. gave up two in quick succession and fell to Turkey in a Gold Cup tune-up.`\
+https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino-mcglynn-johnny-guler/
+
 **Trump Targets Workplaces as Immigration Crackdown Widens**\
 `Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
 https://nytimes.com/2025/06/07/us/trump-targets-workplaces-as-immigration-crackdown-widens.html
