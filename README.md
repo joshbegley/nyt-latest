@@ -1,3 +1,7 @@
+**House v. NCAA settlement approved, allowing schools to pay college athletes**\
+`Universities can begin directly sharing revenue with college athletes starting July 1.`\
+https://nytimes.com/athletic/6367741/2025/06/06/house-ncaa-settlement-approved-revenue-sharing/
+
 **Federal Agents Use Flash-Bang Grenades During Immigration Raid**\
 `Federal agents in tactical gear armed with military-style rifles threw flash-bang grenades to disperse an angry crowd near downtown Los Angeles on Friday as they conducted an immigration raid on a clothing wholesaler.`\
 https://nytimes.com/video/us/100000010213732/la-immigration-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silv
 **Weinstein Juror Complains to Judge About ‘Playground Stuff’ by Others**\
 `A member of the jury at Harvey Weinstein’s Manhattan retrial on sex crime charges said that another had become the subject of a “bit of a shunning” during deliberations.`\
 https://nytimes.com/2025/06/06/nyregion/harvey-weinstein-jury.html
-
-**Jillian Sackler, Philanthropist Who Defended Husband’s Legacy, Dies at 84**\
-`Though the Sackler name was tarnished over Purdue Pharma’s role in the opioid crisis, Arthur Sackler’s should not be, she insisted; a company founder, he died well before the trouble began.`\
-https://nytimes.com/2025/06/06/arts/jillian-sackler-dead.html
 
