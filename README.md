@@ -1,3 +1,11 @@
+**Twins notes: Bailey Ober's mechanical mess, calling up Travis Adams, 'sickos' mopping up**\
+`Ober says he feels healthy, but mechanical issues have plagued him since spring training, leading to diminished velocity and strikeouts.`\
+https://nytimes.com/athletic/6407952/2025/06/07/twins-lose-blue-jays-bailey-ober-travis-adams/
+
+**Yankees' Jazz Chisholm Jr. is playing at only '70 percent' — why it's working**\
+`Chisholm has been on a tear since returning from the IL, going 3-for-5 with a three-run homer, four RBIs and two stolen bases Friday.`\
+https://nytimes.com/athletic/6409796/2025/06/07/yankees-jazz-chisholm-jr-playing-70-percent/
+
 **The New York Times in Print for Saturday, June 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/07/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will
 **Football's capacity to make men cry: 'I was buying milk and just burst into tears thinking about Palace'**\
 `After tearful scenes of jubilation and despair at football grounds, we explore the sport's remarkable ability to stir the emotions`\
 https://nytimes.com/athletic/6383164/2025/06/07/footballs-capacity-to-make-men-cry-i-was-buying-milk-and-just-burst-into-tears-thinking-about-palace/
-
-**Club World Cup team guide – Inter Miami: Messi's star power, slow start for Mascherano**\
-`Inter Miami have struggled this season under rookie coach Javier Mascherano. Can they make a splash at the Club World Cup?`\
-https://nytimes.com/athletic/6392199/2025/06/07/club-world-cup-inter-miami-messi-star/
-
-**Taylor Swift concerts and 'lay and play' pitches - has Wembley finally become a financial asset for English football?**\
-`The Football Association rejected Shahid Khan's £1bn offer in 2018. Was it the right call? And how have things changed at the stadium since?`\
-https://nytimes.com/athletic/6392857/2025/06/07/wembley-stadium-finances-concerts-fa-england-football/
 
