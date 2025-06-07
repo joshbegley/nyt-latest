@@ -1,3 +1,11 @@
+**Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
+`The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
+https://nytimes.com/2025/06/07/magazine/misty-copeland-interview.html
+
+**Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
+`The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
+https://nytimes.com/video/podcasts/100000010207031/misty-copeland-changed-ballet-now-shes-ready-to-move-on.html
+
 **Postecoglou 'a Tottenham legend forever', says Son**\
 `The Australian was sacked as Spurs head coach on Friday, with Brentford's Thomas Frank the leading contender to replace him.`\
 https://nytimes.com/athletic/6410013/2025/06/07/tottenham-son-ange-postecoglou/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/07/us/politics/midterm-elections-democrats-2028.html
 **Harvard Taught This British Student About Democracy. Now Trump May Force Him Out.**\
 `Alfred Williamson could not have imagined how much his freshman year would be shaped by the Trump administration, inside and outside the classroom.`\
 https://nytimes.com/2025/06/07/us/trump-harvard-international-student-ban.html
-
-**For College Students, It’s Summer Vacation. For Scavengers, It’s Christmas.**\
-`For local scavengers, graduation season is a great time to salvage expensive household items and luxury goods abandoned by departing students.`\
-https://nytimes.com/2025/06/07/business/college-scavengers-dumpster-diving.html
-
-**Russian Intelligence Says It Collects WeChat Data. What Does That Mean?**\
-`Moscow has long been suspicious of foreign messaging apps. WeChat’s weak encryption makes it vulnerable.`\
-https://nytimes.com/2025/06/07/world/europe/russia-china-wechat-spying.html
 
