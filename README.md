@@ -1,3 +1,7 @@
+**Rose Lavelle returns but KC Current hand Gotham FC third straight loss**\
+`The U.S. women’s national team star had been out with an ankle injury for the past six months.`\
+https://nytimes.com/athletic/6410833/2025/06/07/rose-lavelle-gotham-kc-current-nwsl/
+
 **Meeting Their Match**\
 `There’s no use trying to resist the primal attraction of John Kugelman’s latest Sunday puzzle.`\
 https://nytimes.com/2025/06/07/crosswords/daily-puzzle-2025-06-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410772/2025/06/07/zach-edey-injury-grizzlies-nba-n
 **With Joy and Resolve, Paradegoers Celebrate at Global Pride Gathering in D.C.**\
 `The president’s moves affecting L.G.B.T.Q. people were on the minds of attendees, but there was no stopping the party.`\
 https://nytimes.com/2025/06/07/us/worldpride-parade-washington-dc.html
-
-**For Game 2 bounce back, Thunder need Chet Holmgren, Jalen Williams to outplay their experience**\
-`“They have carved out huge roles on our team — they are a huge reason why we're here,” Daigneault said. “They are in an uncommon position."`\
-https://nytimes.com/athletic/6410715/2025/06/07/thunder-finals-williams-holmgren-experience/
 
