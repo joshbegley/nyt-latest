@@ -1,3 +1,11 @@
+**Lewandowski says 'mental tiredness' behind absence from Poland squad**\
+`The 36-year-old played 52 times for Barcelona this term, his highest number of appearances in a single season during his career.`\
+https://nytimes.com/athletic/6410234/2025/06/07/robert-lewandowski-poland-barcelona/
+
+**Roger Nichols, Songwriter Behind Carpenters Hits, Dies at 84**\
+`With Paul Williams, he wrote enduring 1970s soft-rock classics like “We’ve Only Just Begun” and “Rainy Days and Mondays.”`\
+https://nytimes.com/2025/06/07/arts/music/roger-nichols-dead.html
+
 **I Didn’t Think French Toast Could Get Any Better, but Here We Are**\
 `This Hong Kong-style French toast recipe from Cybelle Tondu has an oozy peanut butter filling and a drizzle of sweetened condensed milk.`\
 https://nytimes.com/2025/06/07/dining/hong-kong-style-french-toast-with-peanut-butter-filling-recipe.html
