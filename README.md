@@ -1,3 +1,7 @@
+**Why the U.S. Brought Back Kilmar Abrego Garcia**\
+`Kilmar Abrego Garcia, who was mistakenly deported to El Salvador, was flown back to the United States on Friday to face federal criminal charges. Devlin Barrett, who covers the Justice Department, explains the charges and what may come next for Garcia.`\
+https://nytimes.com/video/us/politics/100000010213416/why-the-us-brought-back-kilmar-abrego-garcia.html
+
 **Rose Lavelle returns but KC Current hand Gotham FC third straight loss**\
 `The U.S. women’s national team star had been out with an ankle injury for the past six months.`\
 https://nytimes.com/athletic/6410833/2025/06/07/rose-lavelle-gotham-kc-current-nwsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410601/2025/06/07/canada-ukraine-friendly-marsch-d
 **Grizzlies' Zach Edey to undergo ankle surgery, miss start of 2025-26 season: Source**\
 `Edey, the 2023 and 2024 National Player of the Year at Purdue, played in 138 of a possible 139 games during his four-year college career.`\
 https://nytimes.com/athletic/6410772/2025/06/07/zach-edey-injury-grizzlies-nba-news/
-
-**With Joy and Resolve, Paradegoers Celebrate at Global Pride Gathering in D.C.**\
-`The president’s moves affecting L.G.B.T.Q. people were on the minds of attendees, but there was no stopping the party.`\
-https://nytimes.com/2025/06/07/us/worldpride-parade-washington-dc.html
 
