@@ -1,3 +1,15 @@
+**Sabres face pivotal decision on JJ Peterka amid growing trade interest**\
+`Of the Sabres' pending restricted free agents, Peterka's situation is the most intriguing.`\
+https://nytimes.com/athletic/6409243/2025/06/07/sabres-jj-peterka-contract-trade/
+
+**The N.B.A. Has a Star Problem**\
+`With LeBron James and Stephen Curry nearing retirement, the league has no clear next brand ambassador. Changing media landscapes and a new focus on team parity haven’t helped.`\
+https://nytimes.com/2025/06/07/business/dealbook/the-nba-has-a-star-problem.html
+
+**The Latest Air Jordans? They’re Digital**\
+`As the sneaker boom recedes, brands like Nike and Adidas are targeting younger audiences by meeting them where they are — in the virtual world of ‘Fortnite.’`\
+https://nytimes.com/2025/06/07/business/dealbook/digital-sneakers.html
+
 **Israel Recovers Body of Thai Farmworker in Gaza**\
 `Nattapong Pinta was taken hostage and later killed by members of a small militant group in Gaza, the Israeli military said.`\
 https://nytimes.com/2025/06/07/world/middleeast/israel-thai-hostage-body-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/07/opinion/america-authoritarianism-trump.html
 **Anger Over the Destruction of American Values**\
 `Readers respond to a column by David Brooks about the betrayal of the moral foundations of the United States.`\
 https://nytimes.com/2025/06/07/opinion/trump-american-values.html
-
-**What 10 key plays from Game 1 tell us about the NBA Finals going forward**\
-`Why exactly did the Pacers rally, and what strategic decisions face both teams going forward? Let's examine.`\
-https://nytimes.com/athletic/6409065/2025/06/07/thunder-pacers-takeaways-nba-finals-game-2/
-
-**The Biggest Mystery of Elon Musk**\
-`How did the great rocketeer become a deficit scold?`\
-https://nytimes.com/2025/06/07/opinion/trump-elon-musk.html
-
-**A Comprehensive Accounting of Trump’s Culture of Corruption**\
-`His self-dealing is part of his larger efforts to weaken American democracy.`\
-https://nytimes.com/2025/06/07/opinion/trump-corruption.html
 

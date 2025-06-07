@@ -1,3 +1,11 @@
+**Macron Will Visit Greenland This Month, Defying Trump**\
+`President Emmanuel Macron of France plans to travel to the island nation, which President Trump has vowed to take control of, on the way to Canada for a Group of 7 meeting.`\
+https://nytimes.com/2025/06/07/world/europe/greenland-france-macron-trump.html
+
+**Carlos Alcaraz vs. Jannik Sinner: The French Open final that neither player will lose**\
+`Alcaraz and Sinner's first meeting in a Grand Slam final extends the self-perpetuating excellence that is lifting them above everybody else.`\
+https://nytimes.com/athletic/6409225/2025/06/07/tennis-alcaraz-sinner-french-open-final/
+
 **Sabres face pivotal decision on JJ Peterka amid growing trade interest**\
 `Of the Sabres' pending restricted free agents, Peterka's situation is the most intriguing.`\
 https://nytimes.com/athletic/6409243/2025/06/07/sabres-jj-peterka-contract-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/07/opinion/elon-musk-donald-trump.html
 **How hard should each NHL team pursue Mitch Marner in free agency?**\
 `We tier teams based on how our staff thinks each club should go about pursuing one of the biggest UFAs to hit the market in years.`\
 https://nytimes.com/athletic/6406247/2025/06/07/mitch-marner-nhl-free-agency/
-
-**Hope After Trump**\
-`An authoritarian may be transient, but he can leave a legacy of enduring damage.`\
-https://nytimes.com/2025/06/07/opinion/america-authoritarianism-trump.html
-
-**Anger Over the Destruction of American Values**\
-`Readers respond to a column by David Brooks about the betrayal of the moral foundations of the United States.`\
-https://nytimes.com/2025/06/07/opinion/trump-american-values.html
 
