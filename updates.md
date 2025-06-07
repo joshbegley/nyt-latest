@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, June 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/07/todays-new-york-times
+
 **Yankees pummel Walker Buehler in his return to Bronx as Red Sox's first-inning woes continue**\
 `Despite Marcelo Mayer's first career homer, it was a long, long night for Boston.`\
 https://nytimes.com/athletic/6409744/2025/06/07/yankees-red-sox-walker-buehler-marcelo-mayer/
