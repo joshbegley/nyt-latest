@@ -1,3 +1,7 @@
+**UFC 316 odds, predictions: Dvalishvili vs. O'Malley headlines a card with two title fights**\
+`UFC 316 has two title fights on the card, including both bantamweight belts. Merab Dvalishvili vs. Sean O’Malley is the main event.`\
+https://nytimes.com/athletic/6406763/2025/06/07/ufc-316-dvalishvili-omalley-predictions-odds/
+
 **Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
 `The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
 https://nytimes.com/2025/06/07/magazine/misty-copeland-interview.html
