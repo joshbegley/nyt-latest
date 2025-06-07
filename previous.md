@@ -1,8 +1,12 @@
+**Return of Wrongly Deported Man Raises Questions About Trump’s Views of Justice**\
+`For the nearly three months before the Justice Department secured an indictment against the man, it had repeatedly flouted a series of court orders to “facilitate” his release from El Salvador.`\
+https://nytimes.com/2025/06/06/us/politics/trump-abrego-garcia-charges.html
+
 **Jonatan Giraldéz on Spirit departure: 'Football is unpredictable'**\
 `Giraldéz will coach three final games in the NWSL before moving to France to take up the job of leading OL Lyonnes.`\
 https://nytimes.com/athletic/6409475/2025/06/06/jonatan-giraldez-washington-spirit-departure/
 
-**Federal Agents and Protesters Clash at Immigration Raid in L.A.**\
+**Agents Use Military-Style Force Against Protesters at L.A. Immigration Raid**\
 `Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
 https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
 
@@ -31,10 +35,6 @@ https://nytimes.com/2025/06/06/nyregion/harvey-weinstein-jury.html
 https://nytimes.com/2025/06/06/arts/jillian-sackler-dead.html
 
 **Ex-Police Chief and Convicted Killer Who Escaped Is Caught Near Arkansas Prison**\
-`Grant Hardin, who came to be known as the “Devil in the Ozarks,” was captured on Friday, nearly two weeks after his May 25 escape from a maximum-security prison.`\
+`Grant Hardin, who came to be known as the “Devil in the Ozarks,” was captured on Friday, nearly two weeks after his May 25 escape from a high-security prison.`\
 https://nytimes.com/2025/06/06/us/devil-in-the-ozarks-captured-arkansas.html
-
-**Trump Has Options to Punish Musk Even if His Federal Contracts Continue**\
-`The president could tighten federal oversight of the tech titan’s businesses, even if heavy reliance by the Pentagon and NASA on them makes terminating Mr. Musk’s contracts less feasible.`\
-https://nytimes.com/2025/06/06/us/politics/trump-musk-spacex-contracts.html
 
