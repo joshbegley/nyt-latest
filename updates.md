@@ -1,3 +1,7 @@
+**Trump Targets Workplaces as Immigration Crackdown Widens**\
+`Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
+https://nytimes.com/2025/06/07/us/trump-immigration-raids-workplaces.html
+
 **Sovereignty surges down the stretch to win the Belmont Stakes**\
 `Sovereignty, who won the Kentucky Derby and was held out of the Preakness, passed favorite Journalism down the stretch to win decisively.`\
 https://nytimes.com/athletic/6410812/2025/06/07/sovereignty-surges-to-win-belmont-stakes/
