@@ -1,3 +1,15 @@
+**Russia Strikes Kharkiv Twice in Same Day, Ukraine Says**\
+`Kharkiv’s mayor described Russia’s first strike, an overnight swarm of drones, bombs and missiles, as the “most powerful attack” on the city since the start of the war in Ukraine.`\
+https://nytimes.com/video/world/europe/100000010214128/russia-ukraine-kharkiv-strikes.html
+
+**Dodgers place Tony Gonsolin on IL with elbow injury, activate Kopech, Yates**\
+`Of the Dodgers’ 20 IL placements this season, 17 have involved pitchers.`\
+https://nytimes.com/athletic/6410555/2025/06/07/dodgers-tony-gonsolin-elbow-injury/
+
+**BowFlex Recalls 3.8 Million Adjustable Dumbbells After Injury Reports**\
+`More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those incidents resulting in injuries, the U.S. product safety agency said.`\
+https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
+
 **Trump Says He Has No Desire to Mend His Relationship With Musk**\
 `The president warned of “serious consequences” if Mr. Musk chose to back candidates against Republicans who supported his domestic policy bill.`\
 https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6375168/2025/06/07/ncaa-house-settlement-college-sp
 **Trump’s Proposed Cut Would Deal Serious Setback to California High-Speed Rail**\
 `The Trump administration’s announcement that it would pull $4 billion for the state’s bullet train project is likely to mean significant delays in serving the first passengers, several analysts said.`\
 https://nytimes.com/2025/06/07/us/high-speed-rail-california-federal-funding.html
-
-**Scott Panetti, 67, at the Center of a Landmark Death Penalty Case, Dies**\
-`Diagnosed with a psychotic disorder, he spent 30 years on death row. In 2007, the Supreme Court raised the bar for executing the mentally ill, though Texas still tried to put him to death.`\
-https://nytimes.com/2025/06/07/us/scott-panetti-dead.html
-
-**Chelsea approach Dortmund for Gittens transfer, seven-year contract agreed**\
-`The 20-year-old is keen on a move and only wants to join Chelsea, who hold a long-standing interest in the England Under-21 international.`\
-https://nytimes.com/athletic/6077611/2025/06/07/chelsea-transfers-jamie-gittens-dortmund/
-
-**Phillies place Bryce Harper on IL with wrist inflammation**\
-`Harper homered earlier this week in his first at-bat back in the Phillies' lineup, then went hitless in his next 10 at-bats.`\
-https://nytimes.com/athletic/6410411/2025/06/07/phillies-bryce-harper-wrist-injury/
 

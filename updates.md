@@ -1,3 +1,15 @@
+**Russia Strikes Kharkiv Twice in Same Day, Ukraine Says**\
+`Kharkiv’s mayor described Russia’s first strike, an overnight swarm of drones, bombs and missiles, as the “most powerful attack” on the city since the start of the war in Ukraine.`\
+https://nytimes.com/video/world/europe/100000010214128/russia-ukraine-kharkiv-strikes.html
+
+**Dodgers place Tony Gonsolin on IL with elbow injury, activate Kopech, Yates**\
+`Of the Dodgers’ 20 IL placements this season, 17 have involved pitchers.`\
+https://nytimes.com/athletic/6410555/2025/06/07/dodgers-tony-gonsolin-elbow-injury/
+
+**BowFlex Recalls 3.8 Million Adjustable Dumbbells After Injury Reports**\
+`More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those incidents resulting in injuries, the U.S. product safety agency said.`\
+https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
+
 **Trump Says He Has No Desire to Mend His Relationship With Musk**\
 `The president warned of “serious consequences” if Mr. Musk chose to back candidates against Republicans who supported his domestic policy bill.`\
 https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
