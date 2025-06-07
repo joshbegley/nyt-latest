@@ -1,3 +1,7 @@
+**Abrego Garcia is jailed in Tennessee awaiting trial on human trafficking charges.**\
+`By Devlin Barrett, Alan Feuer, Glenn Thrush and James C. McKinley Jr.`\
+https://nytimes.com/live/2025/06/07/us/trump-news/abrego-garcia-is-jailed-in-tennessee-awaiting-trial-on-human-trafficking-charges
+
 **Teenager’s Bombing and Mass Shooting Plot at a Mall Is Foiled, F.B.I. Says**\
 `The plot, described by one official as being “as serious as it gets,” involved a plan to shoot moviegoers at a Washington State mall as they fled an explosion.`\
 https://nytimes.com/2025/06/07/us/oregon-teen-mass-shooting-mall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410411/2025/06/07/phillies-bryce-harper-wrist-inju
 **Game, Set, Match: Coco Gauff beats Aryna Sabalenka to win first French Open title**\
 `Gauff won her first Roland Garros title by playing the conditions and the occasion with more evenness than Sabalenka.`\
 https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-final-tennis-result-analysis/
-
-**Hot, Big and Buggy: Why Do Broadway Actors Love to Work Summers Here?**\
-`The nearly 11,000-seat Muny in St. Louis is receiving the regional theater Tony Award. This week it began preparing to open its 107th season with “Bring It On.”`\
-https://nytimes.com/2025/06/07/theater/the-muny-st-louis-tony-award.html
 
