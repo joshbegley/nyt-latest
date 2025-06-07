@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/06/us/abrego-garcia-charges-explainer.html
 https://nytimes.com/2025/06/06/us/politics/appeals-court-associated-press-trump.html
 
 **Yankees' Anthony Volpe leaves game, has X-rays on elbow after getting hit by pitch**\
-`Volpe was hit in the second but didn’t leave until the top of the fourth inning.`\
+`Volpe was hit in the second inning but didn't leave until the top of the fourth.`\
 https://nytimes.com/athletic/6409582/2025/06/06/yankees-anthony-volpe-hit-by-pitch-elbow/
 
 **Doozy**\
