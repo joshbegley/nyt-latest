@@ -1,3 +1,7 @@
+**I Didn’t Think French Toast Could Get Any Better, but Here We Are**\
+`This Hong Kong-style French toast recipe from Cybelle Tondu has an oozy peanut butter filling and a drizzle of sweetened condensed milk.`\
+https://nytimes.com/2025/06/07/dining/hong-kong-style-french-toast-with-peanut-butter-filling-recipe.html
+
 **Arsenal close to Arrizabalaga deal**\
 `The 30-year-old spent last season on loan at Bournemouth, keeping nine clean sheets in 35 games for the south-coast club.`\
 https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409982/2025/06/07/boston-legacy-fc-new-crest-refle
 **The Pulse: $1million for a title run**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6409860/2025/06/07/womens-college-world-series-nijaree-canady-the-pulse/
-
-**Mbappe ‘happy’ that PSG won the Champions League: ‘There’s no bitterness’**\
-`Mbappe won six Ligue 1 titles in a seven-year spell with PSG but has never lifted the Champions League trophy.`\
-https://nytimes.com/athletic/6410066/2025/06/07/kylian-mbappe-champions-league-psg/
 
