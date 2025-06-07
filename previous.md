@@ -1,3 +1,15 @@
+**Severe Weather Expected Across Much of the U.S. on Saturday**\
+`Clusters of thunderstorms could kick up damaging winds in northern Mississippi and northern Alabama on Saturday.`\
+https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
+
+**Marc Maron’s Podcast Helped Me See a Creative Future**\
+`He just kept showing up and doing the work`\
+https://nytimes.com/2025/06/07/opinion/end-maron-podcast.html
+
+**Boston Legacy FC unveils new team crest: 'It's been a learning process. We had a hiccup'**\
+`Known soccer graphic designer Matthew Wolff created the new look`\
+https://nytimes.com/athletic/6409982/2025/06/07/boston-legacy-fc-new-crest-reflection/
+
 **The Pulse: $1million for a title run**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6409860/2025/06/07/womens-college-world-series-nijaree-canady-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6409225/2025/06/07/tennis-alcaraz-sinner-french-ope
 **Sabres face pivotal decision on JJ Peterka amid growing trade interest**\
 `Of the Sabres' pending restricted free agents, Peterka's situation is the most intriguing.`\
 https://nytimes.com/athletic/6409243/2025/06/07/sabres-jj-peterka-contract-trade/
-
-**The N.B.A. Has a Star Problem**\
-`With LeBron James and Stephen Curry nearing retirement, the league has no clear next brand ambassador. Changing media landscapes and a new focus on team parity haven’t helped.`\
-https://nytimes.com/2025/06/07/business/dealbook/the-nba-has-a-star-problem.html
-
-**The Latest Air Jordans? They’re Digital**\
-`As the sneaker boom recedes, brands like Nike and Adidas are targeting younger audiences by meeting them where they are — in the virtual world of ‘Fortnite.’`\
-https://nytimes.com/2025/06/07/business/dealbook/digital-sneakers.html
-
-**Israel Recovers Body of Thai Farmworker in Gaza**\
-`Nattapong Pinta was taken hostage and later killed by members of a small militant group in Gaza, the Israeli military said.`\
-https://nytimes.com/2025/06/07/world/middleeast/israel-thai-hostage-body-gaza.html
 

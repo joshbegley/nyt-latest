@@ -1,3 +1,15 @@
+**Severe Weather Expected Across Much of the U.S. on Saturday**\
+`Clusters of thunderstorms could kick up damaging winds in northern Mississippi and northern Alabama on Saturday.`\
+https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
+
+**Marc Maron’s Podcast Helped Me See a Creative Future**\
+`He just kept showing up and doing the work`\
+https://nytimes.com/2025/06/07/opinion/end-maron-podcast.html
+
+**Boston Legacy FC unveils new team crest: 'It's been a learning process. We had a hiccup'**\
+`Known soccer graphic designer Matthew Wolff created the new look`\
+https://nytimes.com/athletic/6409982/2025/06/07/boston-legacy-fc-new-crest-reflection/
+
 **The Pulse: $1million for a title run**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6409860/2025/06/07/womens-college-world-series-nijaree-canady-the-pulse/
