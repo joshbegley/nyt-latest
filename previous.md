@@ -1,3 +1,7 @@
+**Federal Agents Use Flash-Bang Grenades During Immigration Raid**\
+`Federal agents in tactical gear armed with military-style rifles threw flash-bang grenades to disperse an angry crowd near downtown Los Angeles on Friday as they conducted an immigration raid on a clothing wholesaler.`\
+https://nytimes.com/video/us/100000010213732/la-immigration-raid.html
+
 **Return of Wrongly Deported Man Raises Questions About Trump’s Views of Justice**\
 `For the nearly three months before the Justice Department secured an indictment against the man, it had repeatedly flouted a series of court orders to “facilitate” his release from El Salvador.`\
 https://nytimes.com/2025/06/06/us/politics/trump-abrego-garcia-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/nyregion/harvey-weinstein-jury.html
 **Jillian Sackler, Philanthropist Who Defended Husband’s Legacy, Dies at 84**\
 `Though the Sackler name was tarnished over Purdue Pharma’s role in the opioid crisis, Arthur Sackler’s should not be, she insisted; a company founder, he died well before the trouble began.`\
 https://nytimes.com/2025/06/06/arts/jillian-sackler-dead.html
-
-**Ex-Police Chief and Convicted Killer Who Escaped Is Caught Near Arkansas Prison**\
-`Grant Hardin, who came to be known as the “Devil in the Ozarks,” was captured on Friday, nearly two weeks after his May 25 escape from a high-security prison.`\
-https://nytimes.com/2025/06/06/us/devil-in-the-ozarks-captured-arkansas.html
 

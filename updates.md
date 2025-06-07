@@ -1,3 +1,7 @@
+**Federal Agents Use Flash-Bang Grenades During Immigration Raid**\
+`Federal agents in tactical gear armed with military-style rifles threw flash-bang grenades to disperse an angry crowd near downtown Los Angeles on Friday as they conducted an immigration raid on a clothing wholesaler.`\
+https://nytimes.com/video/us/100000010213732/la-immigration-raid.html
+
 **Return of Wrongly Deported Man Raises Questions About Trump’s Views of Justice**\
 `For the nearly three months before the Justice Department secured an indictment against the man, it had repeatedly flouted a series of court orders to “facilitate” his release from El Salvador.`\
 https://nytimes.com/2025/06/06/us/politics/trump-abrego-garcia-charges.html
