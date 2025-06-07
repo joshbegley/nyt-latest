@@ -1,3 +1,7 @@
+**'Pacman' Jones arrested, charged with assaulting officer, public intoxication**\
+`During his playing career, Jones was arrested or questioned by police in eight separate incidents, including a 2007 shooting in Las Vegas.`\
+https://nytimes.com/athletic/6410476/2025/06/07/adam-pacman-jones-arrest-kentucky/
+
 **Even after historic settlement, college sports remain broken. But what else is new?**\
 `The settlement required years of mountain moving and billions of dollars. It's only delaying the inevitable, but college sports move on.`\
 https://nytimes.com/athletic/6375168/2025/06/07/ncaa-house-settlement-college-sports-revenue-sharing-news/

@@ -1,3 +1,7 @@
+**'Pacman' Jones arrested, charged with assaulting officer, public intoxication**\
+`During his playing career, Jones was arrested or questioned by police in eight separate incidents, including a 2007 shooting in Las Vegas.`\
+https://nytimes.com/athletic/6410476/2025/06/07/adam-pacman-jones-arrest-kentucky/
+
 **Even after historic settlement, college sports remain broken. But what else is new?**\
 `The settlement required years of mountain moving and billions of dollars. It's only delaying the inevitable, but college sports move on.`\
 https://nytimes.com/athletic/6375168/2025/06/07/ncaa-house-settlement-college-sports-revenue-sharing-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/theater/tony-nominees-actors-the-muny-st-louis.ht
 **Washington Capitals' Spencer Carbery wins Jack Adams Award as NHL's best coach**\
 `Carbery led the Caps to the Eastern Conference's highest points total while navigating Alex Ovechkin's pursuit of the all-time goals record.`\
 https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capitals-jack-adams-nhl-coach/
-
-**Tottenham set to part company with women's coach Vilahamn**\
-`Vilahamn led Spurs to a top-six WSL finish and FA Cup final in his first season in charge but 2024-25 saw a downturn in form.`\
-https://nytimes.com/athletic/6410254/2025/06/07/tottenham-sack-women-manager-vilahamn/
 
