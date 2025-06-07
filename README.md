@@ -1,3 +1,11 @@
+**Trump Targets Workplaces as Immigration Crackdown Widens**\
+`Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
+https://nytimes.com/2025/06/07/us/trump-targets-workplaces-as-immigration-crackdown-widens.html
+
+**Bill Atkinson, Who Made Computers Easier to Use, Is Dead at 74**\
+`A designer for Apple, he created software that made it possible to display shapes, images and text on the screen and present a simulated “desktop.”`\
+https://nytimes.com/2025/06/07/technology/bill-atkinson-dead.html
+
 **These Pacers keep betting on themselves — and keep winning**\
 `After a slow start, Indiana could've chosen different paths at the trade deadline. Win or lose, staying the course was the right call.`\
 https://nytimes.com/athletic/6410697/2025/06/07/indiana-pacers-nba-finals-2025-okc-thunder/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/07/us/la-immigration-raids-ice.html
 **How Coco Gauff's journey into a tennis unknown reached the destination long in her dreams**\
 `Gauff's second Grand Slam title is the vindication of nine months in which she remade her tennis, at risk of it all falling down.`\
 https://nytimes.com/athletic/6410644/2025/06/07/coco-gauff-french-open-tennis/
-
-**Aryna Sabalenka's 'terrible' French Open final and the intangibles of tennis**\
-`World No. 1 Sabalenka bemoaned the conditions and her own “terrible” play after losing the French Open final to Coco Gauff.`\
-https://nytimes.com/athletic/6410581/2025/06/07/tennis-french-open-final-sabalenka-gauff-conditions-reaction/
-
-**Russia Strikes Kharkiv Twice in Same Day, Ukraine Says**\
-`Kharkiv’s mayor described Russia’s first strike, an overnight swarm of drones, bombs and missiles, as the “most powerful attack” on the city since the start of the war in Ukraine.`\
-https://nytimes.com/video/world/europe/100000010214128/russia-ukraine-kharkiv-strikes.html
 
