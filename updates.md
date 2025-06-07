@@ -1,3 +1,7 @@
+**Trump Says He Has No Desire to Mend His Relationship With Musk**\
+`The president warned of “serious consequences” if Mr. Musk chose to back candidates against Republicans who supported his domestic policy bill.`\
+https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
+
 **Abrego Garcia is jailed in Tennessee awaiting trial on human trafficking charges.**\
 `By Devlin Barrett, Alan Feuer, Glenn Thrush and James C. McKinley Jr.`\
 https://nytimes.com/live/2025/06/07/us/trump-news/abrego-garcia-is-jailed-in-tennessee-awaiting-trial-on-human-trafficking-charges

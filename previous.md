@@ -1,3 +1,7 @@
+**Trump Says He Has No Desire to Mend His Relationship With Musk**\
+`The president warned of “serious consequences” if Mr. Musk chose to back candidates against Republicans who supported his domestic policy bill.`\
+https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
+
 **Abrego Garcia is jailed in Tennessee awaiting trial on human trafficking charges.**\
 `By Devlin Barrett, Alan Feuer, Glenn Thrush and James C. McKinley Jr.`\
 https://nytimes.com/live/2025/06/07/us/trump-news/abrego-garcia-is-jailed-in-tennessee-awaiting-trial-on-human-trafficking-charges
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6077611/2025/06/07/chelsea-transfers-jamie-gittens-
 **Phillies place Bryce Harper on IL with wrist inflammation**\
 `Harper homered earlier this week in his first at-bat back in the Phillies' lineup, then went hitless in his next 10 at-bats.`\
 https://nytimes.com/athletic/6410411/2025/06/07/phillies-bryce-harper-wrist-injury/
-
-**Game, Set, Match: Coco Gauff beats Aryna Sabalenka to win first French Open title**\
-`Gauff won her first Roland Garros title by playing the conditions and the occasion with more evenness than Sabalenka.`\
-https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-final-tennis-result-analysis/
 
