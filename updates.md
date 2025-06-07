@@ -1,3 +1,7 @@
+**Aryna Sabalenka's 'terrible' French Open final and the intangibles of tennis**\
+`World No. 1 Sabalenka bemoaned the conditions and her own “terrible” play after losing the French Open final to Coco Gauff.`\
+https://nytimes.com/athletic/6410581/2025/06/07/tennis-french-open-final-sabalenka-gauff-conditions-reaction/
+
 **Russia Strikes Kharkiv Twice in Same Day, Ukraine Says**\
 `Kharkiv’s mayor described Russia’s first strike, an overnight swarm of drones, bombs and missiles, as the “most powerful attack” on the city since the start of the war in Ukraine.`\
 https://nytimes.com/video/world/europe/100000010214128/russia-ukraine-kharkiv-strikes.html
