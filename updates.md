@@ -1,3 +1,7 @@
+**Rose Lavelle returns but KC Current hand Gotham FC third straight loss**\
+`The U.S. women’s national team star had been out with an ankle injury for the past six months.`\
+https://nytimes.com/athletic/6410833/2025/06/07/rose-lavelle-gotham-kc-current-nwsl/
+
 **USMNT 1-2 Turkey: Pochettino's side suffers third loss in a row**\
 `After taking a first-minute lead, the U.S. gave up two in quick succession and fell to Turkey in a Gold Cup tune-up.`\
 https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino-mcglynn-johnny-guler/
