@@ -1,3 +1,11 @@
+**Macron Will Visit Greenland This Month, Defying Trump**\
+`President Emmanuel Macron of France plans to travel to the island nation, which President Trump has vowed to take control of, on the way to Canada for a Group of 7 meeting.`\
+https://nytimes.com/2025/06/07/world/europe/greenland-france-macron-trump.html
+
+**Carlos Alcaraz vs. Jannik Sinner: The French Open final that neither player will lose**\
+`Alcaraz and Sinner's first meeting in a Grand Slam final extends the self-perpetuating excellence that is lifting them above everybody else.`\
+https://nytimes.com/athletic/6409225/2025/06/07/tennis-alcaraz-sinner-french-open-final/
+
 **Sabres face pivotal decision on JJ Peterka amid growing trade interest**\
 `Of the Sabres' pending restricted free agents, Peterka's situation is the most intriguing.`\
 https://nytimes.com/athletic/6409243/2025/06/07/sabres-jj-peterka-contract-trade/

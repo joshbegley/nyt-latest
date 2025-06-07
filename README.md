@@ -1,3 +1,7 @@
+**D.C. Police Officer Sentenced to Prison for Leaks to Proud Boys’ Leader**\
+`A federal judge gave Lt. Shane Lamond an 18-month sentence for leaking details of an investigation to Enrique Tarrio, the far-right group’s former leader, and lying about it later.`\
+https://nytimes.com/2025/06/07/us/dc-police-proud-boys-sentence.html
+
 **Macron Will Visit Greenland This Month, Defying Trump**\
 `President Emmanuel Macron of France plans to travel to the island nation, which President Trump has vowed to take control of, on the way to Canada for a Group of 7 meeting.`\
 https://nytimes.com/2025/06/07/world/europe/greenland-france-macron-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6409164/2025/06/07/nhl-scouting-combine-history/
 **Clash of the Bilious Billionaires**\
 `Elon and Donald: Breaking up is hard to do. But fun to watch.`\
 https://nytimes.com/2025/06/07/opinion/elon-musk-donald-trump.html
-
-**How hard should each NHL team pursue Mitch Marner in free agency?**\
-`We tier teams based on how our staff thinks each club should go about pursuing one of the biggest UFAs to hit the market in years.`\
-https://nytimes.com/athletic/6406247/2025/06/07/mitch-marner-nhl-free-agency/
 
