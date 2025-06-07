@@ -1,3 +1,7 @@
+**The Pulse: $1million for a title run**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6409860/2025/06/07/womens-college-world-series-nijaree-canady-the-pulse/
+
 **Mbappe ‘happy’ that PSG won the Champions League: ‘There’s no bitterness’**\
 `Mbappe won six Ligue 1 titles in a seven-year spell with PSG but has never lifted the Champions League trophy.`\
 https://nytimes.com/athletic/6410066/2025/06/07/kylian-mbappe-champions-league-psg/
