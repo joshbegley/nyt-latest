@@ -1,3 +1,7 @@
+**Canada clinical vs. Ukraine as Buchanan bounces back, David tandem shines**\
+`Canada's strikers had a field day in Toronto, with a new partnership leading the way for Jesse Marsch's side.`\
+https://nytimes.com/athletic/6410601/2025/06/07/canada-ukraine-friendly-marsch-david-buchanan/
+
 **BowFlex Recalls 3.8 Million Adjustable Dumbbells After Injury Reports**\
 `More than 300 reports of the weight plates becoming dislodged have been filed, with more than 100 of those cases resulting in injuries, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
