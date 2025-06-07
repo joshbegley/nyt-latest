@@ -15,7 +15,7 @@ https://nytimes.com/issue/todayspaper/2025/06/07/todays-new-york-times
 https://nytimes.com/athletic/6409744/2025/06/07/yankees-red-sox-walker-buehler-marcelo-mayer/
 
 **Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
-`Marchand scored two goals as the Panthers evened the series with a 5-4 Game 2 victory at Rogers Place.`\
+`Marchand scored two goals as Florida evened its series against Edmonton with a double-overtime 5-4 victory in Game 2 at Rogers Place.`\
 https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
 
 **Jean-Clair Todibo is here to stay at West Ham - expect more front-foot defending**\

@@ -1,3 +1,7 @@
+**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
+`Marchand scored two goals as Florida evened its series against Edmonton with a double-overtime 5-4 victory in Game 2 at Rogers Place.`\
+https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
+
 **Twins notes: Bailey Ober's mechanical mess, calling up Travis Adams, 'sickos' mopping up**\
 `Ober says he feels healthy, but mechanical issues have plagued him since spring training, leading to diminished velocity and strikeouts.`\
 https://nytimes.com/athletic/6407952/2025/06/07/twins-lose-blue-jays-bailey-ober-travis-adams/
