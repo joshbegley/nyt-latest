@@ -1,3 +1,11 @@
+**Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
+`The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
+https://nytimes.com/2025/06/07/magazine/misty-copeland-interview.html
+
+**Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
+`The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
+https://nytimes.com/video/podcasts/100000010207031/misty-copeland-changed-ballet-now-shes-ready-to-move-on.html
+
 **Postecoglou 'a Tottenham legend forever', says Son**\
 `The Australian was sacked as Spurs head coach on Friday, with Brentford's Thomas Frank the leading contender to replace him.`\
 https://nytimes.com/athletic/6410013/2025/06/07/tottenham-son-ange-postecoglou/
