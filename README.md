@@ -1,4 +1,8 @@
-**Chelsea approach Dortmund for Gittens transfer, 7-year contract agreed**\
+**Scott Panetti, 67, at the Center of a Landmark Death Penalty Case, Dies**\
+`Diagnosed with a psychotic disorder, he spent 30 years on death row. In 2007, the Supreme Court raised the bar for executing the mentally ill, though Texas still tried to put him to death.`\
+https://nytimes.com/2025/06/07/us/scott-panetti-dead.html
+
+**Chelsea approach Dortmund for Gittens transfer, seven-year contract agreed**\
 `The 20-year-old is keen on a move and only wants to join Chelsea, who hold a long-standing interest in the England Under-21 international.`\
 https://nytimes.com/athletic/6077611/2025/06/07/chelsea-transfers-jamie-gittens-dortmund/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410234/2025/06/07/robert-lewandowski-poland-barcel
 **Roger Nichols, Songwriter Behind Carpenters Hits, Dies at 84**\
 `With Paul Williams, he wrote enduring 1970s soft-rock classics like “We’ve Only Just Begun” and “Rainy Days and Mondays.”`\
 https://nytimes.com/2025/06/07/arts/music/roger-nichols-dead.html
-
-**I Didn’t Think French Toast Could Get Any Better, but Here We Are**\
-`This Hong Kong-style French toast recipe from Cybelle Tondu has an oozy peanut butter filling and a drizzle of sweetened condensed milk.`\
-https://nytimes.com/2025/06/07/dining/hong-kong-style-french-toast-with-peanut-butter-filling-recipe.html
 
