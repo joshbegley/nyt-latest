@@ -1,3 +1,11 @@
+**Out of Stock**\
+`When products we love are discontinued, sometimes the absence feels personal.`\
+https://nytimes.com/2025/06/07/briefing/out-of-stock.html
+
+**Russia Pummels Kharkiv With Drones and Bombs, Ukraine Says**\
+`The air assault killed at least three people. Kharkiv’s mayor described it as “the most powerful attack” since the beginning of the war.`\
+https://nytimes.com/2025/06/07/world/europe/russia-ukraine-war-kharkiv.html
+
 **Oilers won't dwell on missed chances after close Game 2: 'What’s it going to do?'**\
 `After two tight games to open the Stanley Cup Final, the Oilers clearly need to address some areas.`\
 https://nytimes.com/athletic/6409955/2025/06/07/edmonton-oilers-florida-panthers-game-2-overtime/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6409630/2025/06/07/cubs-matt-shaw-lineup-complete/
 **Wordle Review No. 1,450**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 8, 2025.`\
 https://nytimes.com/2025/06/07/crosswords/wordle-review-1450.html
-
-**Connections Companion No. 728**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 8, 2025.`\
-https://nytimes.com/2025/06/07/crosswords/connections-companion-728.html
-
-**UFC 316 odds, predictions: Dvalishvili vs. O'Malley headlines a card with two title fights**\
-`UFC 316 has two title fights on the card, including both bantamweight belts. Merab Dvalishvili vs. Sean O’Malley is the main event.`\
-https://nytimes.com/athletic/6406763/2025/06/07/ufc-316-dvalishvili-omalley-predictions-odds/
 
