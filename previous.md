@@ -1,3 +1,7 @@
+**Grizzlies' Zach Edey to undergo ankle surgery, miss start of 2025-26 season: Source**\
+`Edey, the 2023 and 2024 National Player of the Year at Purdue, played in 138 of a possible 139 games during his four-year college career.`\
+https://nytimes.com/athletic/6410772/2025/06/07/zach-edey-injury-grizzlies-nba-news/
+
 **With Joy and Resolve, Paradegoers Celebrate at Global Pride Gathering in D.C.**\
 `The president’s moves affecting L.G.B.T.Q. people were on the minds of attendees, but there was no stopping the party.`\
 https://nytimes.com/2025/06/07/us/worldpride-parade-washington-dc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/business/bowflex-adjustable-dumbbells-recall.html
 **Trump Says He Has No Desire to Mend His Relationship With Musk**\
 `The president warned of “serious consequences” if Mr. Musk chose to back candidates against Republicans who supported his domestic policy bill.`\
 https://nytimes.com/2025/06/07/us/politics/trump-elon-musk.html
-
-**Abrego Garcia is jailed in Tennessee awaiting trial on human trafficking charges.**\
-`By Devlin Barrett, Alan Feuer, Glenn Thrush and James C. McKinley Jr.`\
-https://nytimes.com/live/2025/06/07/us/trump-news/abrego-garcia-is-jailed-in-tennessee-awaiting-trial-on-human-trafficking-charges
 
