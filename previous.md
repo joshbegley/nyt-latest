@@ -1,3 +1,7 @@
+**Israel Recovers Body of Thai Farmworker in Gaza**\
+`Nattapong Pinta was taken hostage and later killed by members of a small militant group in Gaza, the Israeli military said.`\
+https://nytimes.com/2025/06/07/world/middleeast/israel-thai-hostage-body-gaza.html
+
 **How a 1970s Canadian band provided the surprise song of the 2025 NHL playoffs**\
 `"You can't buy that kind of rotation, right?" the bassist and keyboardist of the hard rock trio Triumph said of the track's viral run.`\
 https://nytimes.com/athletic/6400064/2025/06/07/triumph-band-stanley-cup-playoffs-rogers-sportsnet-commercial/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/opinion/trump-elon-musk.html
 **A Comprehensive Accounting of Trump’s Culture of Corruption**\
 `His self-dealing is part of his larger efforts to weaken American democracy.`\
 https://nytimes.com/2025/06/07/opinion/trump-corruption.html
-
-**Out of Stock**\
-`When products we love are discontinued, sometimes the absence feels personal.`\
-https://nytimes.com/2025/06/07/briefing/out-of-stock.html
 
