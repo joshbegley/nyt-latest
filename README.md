@@ -1,4 +1,4 @@
-**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2 of Stanley Cup Final**\
+**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2: Takeaways**\
 `Marchand scored two goals as the Panthers evened the series with a 5-4 Game 2 victory at Rogers Place.`\
 https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
 
