@@ -1,3 +1,7 @@
+**Chelsea approach Dortmund for Gittens transfer, 7-year contract agreed**\
+`The 20-year-old is keen on a move and only wants to join Chelsea, who hold a long-standing interest in the England Under-21 international.`\
+https://nytimes.com/athletic/6077611/2025/06/07/chelsea-transfers-jamie-gittens-dortmund/
+
 **Phillies place Bryce Harper on IL with wrist inflammation**\
 `Harper homered earlier this week in his first at-bat back in the Phillies' lineup, then went hitless in his next 10 at-bats.`\
 https://nytimes.com/athletic/6410411/2025/06/07/phillies-bryce-harper-wrist-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/arts/music/roger-nichols-dead.html
 **I Didn’t Think French Toast Could Get Any Better, but Here We Are**\
 `This Hong Kong-style French toast recipe from Cybelle Tondu has an oozy peanut butter filling and a drizzle of sweetened condensed milk.`\
 https://nytimes.com/2025/06/07/dining/hong-kong-style-french-toast-with-peanut-butter-filling-recipe.html
-
-**Arsenal close to Arrizabalaga deal**\
-`The 30-year-old spent last season on loan at Bournemouth, keeping nine clean sheets in 35 games for the south-coast club.`\
-https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelsea/
 
