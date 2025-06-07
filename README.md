@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, June 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/07/todays-new-york-times
+
 **Yankees pummel Walker Buehler in his return to Bronx as Red Sox's first-inning woes continue**\
 `Despite Marcelo Mayer's first career homer, it was a long, long night for Boston.`\
 https://nytimes.com/athletic/6409744/2025/06/07/yankees-red-sox-walker-buehler-marcelo-mayer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6392199/2025/06/07/club-world-cup-inter-miami-messi
 **Taylor Swift concerts and 'lay and play' pitches - has Wembley finally become a financial asset for English football?**\
 `The Football Association rejected Shahid Khan's £1bn offer in 2018. Was it the right call? And how have things changed at the stadium since?`\
 https://nytimes.com/athletic/6392857/2025/06/07/wembley-stadium-finances-concerts-fa-england-football/
-
-**Postecoglou restored belief at Spurs - but they are right not to see him as a long-term solution**\
-`The peculiarity of a stubborn ideologue who produced underwhelming results with ‘his’ style, but won a trophy with the opposite approach`\
-https://nytimes.com/athletic/6402826/2025/06/07/ange-postecoglou-philosophy-personality-tottenham/
 
