@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6407933/2025/06/07/spain-portugal-uefa-nations-leag
 `\
 https://nytimes.com/athletic/6407933/2025/06/07/spain-portugal-uefa-nations-league-betting-odds/
 
+**Nations League final odds: Can Spain thwart Portugal's late-game magic?**\
+`Brett Koremenos explores the best bets around Sunday’s UEFA Nations League final between Portugal and Spain.
+`\
+https://nytimes.com/athletic/6407933/2025/06/07/spain-portugal-uefa-nations-league-betting-odds/
+
 **How a Times Reporter Eluded a Ban on the Word ‘Gay’**\
 `In the 1970s and ’80s, the adjective was prohibited from news copy in most contexts, which meant walking a fine line to reach interested readers.`\
 https://nytimes.com/2025/06/07/insider/new-york-times-gay.html
