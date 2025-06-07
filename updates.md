@@ -1,3 +1,11 @@
+**Twins notes: Bailey Ober's mechanical mess, calling up Travis Adams, 'sickos' mopping up**\
+`Ober says he feels healthy, but mechanical issues have plagued him since spring training, leading to diminished velocity and strikeouts.`\
+https://nytimes.com/athletic/6407952/2025/06/07/twins-lose-blue-jays-bailey-ober-travis-adams/
+
+**Yankees' Jazz Chisholm Jr. is playing at only '70 percent' — why it's working**\
+`Chisholm has been on a tear since returning from the IL, going 3-for-5 with a three-run homer, four RBIs and two stolen bases Friday.`\
+https://nytimes.com/athletic/6409796/2025/06/07/yankees-jazz-chisholm-jr-playing-70-percent/
+
 **The New York Times in Print for Saturday, June 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/07/todays-new-york-times
