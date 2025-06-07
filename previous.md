@@ -1,3 +1,7 @@
+**Washington Capitals' Spencer Carbery wins Jack Adams Award as NHL's best coach**\
+`Carbery led the Caps to the Eastern Conference's highest points total while navigating Alex Ovechkin's pursuit of the all-time goals record.`\
+https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capitals-jack-adams-nhl-coach/
+
 **Tottenham set to part company with women's coach Vilahamn**\
 `Vilahamn led Spurs to a top-six WSL finish and FA Cup final in his first season in charge but 2024-25 saw a downturn in form.`\
 https://nytimes.com/athletic/6410254/2025/06/07/tottenham-sack-women-manager-vilahamn/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride
 **Trump Administration Live Updates: Abrego Garcia is Jailed in Tennessee After U.S. Brings Him Back From El Salvador**\
 ``\
 https://nytimes.com/live/2025/06/07/us/trump-news
-
-**Severe Weather Expected Across Much of the U.S. on Saturday**\
-`Clusters of thunderstorms could kick up damaging winds in the Southeast on Saturday.`\
-https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
 

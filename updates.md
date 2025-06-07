@@ -1,3 +1,7 @@
+**Washington Capitals' Spencer Carbery wins Jack Adams Award as NHL's best coach**\
+`Carbery led the Caps to the Eastern Conference's highest points total while navigating Alex Ovechkin's pursuit of the all-time goals record.`\
+https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capitals-jack-adams-nhl-coach/
+
 **Severe Weather Expected Across Much of the U.S. on Saturday**\
 `Clusters of thunderstorms could kick up damaging winds in the Southeast on Saturday.`\
 https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
