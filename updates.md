@@ -1,3 +1,7 @@
+**Craig Kimbrel rejoins Braves 11 years later, and their losing streak continues**\
+`Kimbrel returned to the Braves, the club he spent his first five major-league seasons with, for Friday's game against the Giants.`\
+https://nytimes.com/athletic/6409935/2025/06/07/craig-kimbrel-braves-losing-streak/
+
 **Trump Administration Live Updates: Abrego Garcia is Jailed in Tennessee After U.S. Brings Him Back From El Salvador**\
 ``\
 https://nytimes.com/live/2025/06/07/us/trump-news
