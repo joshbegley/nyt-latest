@@ -1,3 +1,7 @@
+**How will revenue sharing work in college sports? From attempted oversight to financial reckoning**\
+`“At some point,” said a personnel director, “maybe we'll get two years in a row where we know what's going on.”`\
+https://nytimes.com/athletic/6372328/2025/06/07/college-sports-revenue-sharing-ncaa-house-settlement-changes/
+
 **Craig Kimbrel rejoins Braves 11 years later, and their losing streak continues**\
 `Kimbrel returned to the Braves, the club he spent his first five major-league seasons with, for Friday's game against the Giants.`\
 https://nytimes.com/athletic/6409935/2025/06/07/craig-kimbrel-braves-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410066/2025/06/07/kylian-mbappe-champions-league-p
 **Ronaldo says he won't be at Club World Cup, despite 'plenty of offers'**\
 `The 40-year-old's Al Nassr contract expires on June 30 and FIFA president Infantino had suggested he might move ahead of the tournament.`\
 https://nytimes.com/athletic/6410093/2025/06/07/ronaldo-transfer-club-world-cup/
-
-**D.C. Police Officer Sentenced to Prison for Leaks to Proud Boys’ Leader**\
-`A federal judge gave Lt. Shane Lamond an 18-month sentence for leaking details of an investigation to Enrique Tarrio, the far-right group’s former leader, and lying about it later.`\
-https://nytimes.com/2025/06/07/us/dc-police-proud-boys-sentence.html
 
