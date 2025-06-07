@@ -35,6 +35,6 @@ https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride
 https://nytimes.com/live/2025/06/07/us/trump-news
 
 **Severe Weather Expected Across Much of the U.S. on Saturday**\
-`Clusters of thunderstorms could kick up damaging winds in northern Mississippi and northern Alabama on Saturday.`\
+`Clusters of thunderstorms could kick up damaging winds in the Southeast on Saturday.`\
 https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
 
