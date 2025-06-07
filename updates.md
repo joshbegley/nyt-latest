@@ -1,3 +1,7 @@
+**Francisco Lindor once again helps save the Mets, 'broken toe and all'**\
+`The Mets were close to a miserable loss to one of the worst teams in the history of the sport Friday night. Enter Lindor, "a true pro."`\
+https://nytimes.com/athletic/6409897/2025/06/07/mets-rockies-francisco-lindor/
+
 **This $22 Grill Press Helped Me Finally Crack the Code to Ultra-Thin Smash Burgers **\
 `(No description)`\
 https://nytimes.com/card/2025/06/07/smarter-living/wirecutter/this-22-grill-press-helped-me-finally-crack-the-code-to-ultra-thin-smash-burgers

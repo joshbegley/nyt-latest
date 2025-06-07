@@ -1,3 +1,7 @@
+**Francisco Lindor once again helps save the Mets, 'broken toe and all'**\
+`The Mets were close to a miserable loss to one of the worst teams in the history of the sport Friday night. Enter Lindor, "a true pro."`\
+https://nytimes.com/athletic/6409897/2025/06/07/mets-rockies-francisco-lindor/
+
 **This $22 Grill Press Helped Me Finally Crack the Code to Ultra-Thin Smash Burgers **\
 `(No description)`\
 https://nytimes.com/card/2025/06/07/smarter-living/wirecutter/this-22-grill-press-helped-me-finally-crack-the-code-to-ultra-thin-smash-burgers
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6405817/2025/06/07/mancehster-united-fans-survey-re
 **Leeds United Transfer DealSheet: Summer window latest, key positions and available players**\
 `Daniel Farke has to retain the heart and soul of his champions, but retool and upgrade where possible to keep Leeds in the top flight`\
 https://nytimes.com/athletic/6408285/2025/06/07/leeds-united-transfer-dealsheet/
-
-**Scenes from a Tigers victory: A daunting catch, a daring escape and another unlikely hero**\
-`The Cubs entered as the best team in the NL. The Tigers entered as the best team in the AL and escaped with the win.`\
-https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will-vest/
 
