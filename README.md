@@ -1,3 +1,7 @@
+**Trump Can Restrict A.P. Journalists’ Access, Appeals Court Rules**\
+`By a 2-to-1 vote, a three-judge panel found that the president can bar the news outlet from small settings such as the Oval Office or Air Force One, reversing at least for now a lower court’s ruling.`\
+https://nytimes.com/2025/06/06/us/politics/appeals-court-associated-press-trump.html
+
 **Yankees' Anthony Volpe leaves game, has X-rays on elbow after getting hit by pitch**\
 `Volpe was hit in the second but didn’t leave until the top of the fourth inning.`\
 https://nytimes.com/athletic/6409582/2025/06/06/yankees-anthony-volpe-hit-by-pitch-elbow/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
 **What to Know About the Effects of Ketamine**\
 `Elon Musk has said that he used ketamine as a treatment in the past, but he denied reports that he was taking it frequently and recreationally.`\
 https://nytimes.com/2025/06/06/health/ketamine-effects-anesthetic-elon-musk.html
-
-**Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
-`President Trump also eased restrictions on commercial drone flights and called for the revival of supersonic flights for nonmilitary aircraft.`\
-https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
 

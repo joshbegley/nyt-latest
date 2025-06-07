@@ -1,3 +1,11 @@
+**Yankees' Anthony Volpe leaves game, has X-rays on elbow after getting hit by pitch**\
+`Volpe was hit in the second but didn’t leave until the top of the fourth inning.`\
+https://nytimes.com/athletic/6409582/2025/06/06/yankees-anthony-volpe-hit-by-pitch-elbow/
+
+**Doozy**\
+`Blake Slonecker presents a beautifully crafted Saturday challenge.`\
+https://nytimes.com/2025/06/06/crosswords/daily-puzzle-2025-06-07.html
+
 **CFB Power conferences hiring MLB exec Bryan Seeley as College Sports Commission CEO**\
 `The Power conferences will bring in an MLB executive to guide the schools through a post-House settlement era.  `\
 https://nytimes.com/athletic/6409170/2025/06/06/bryan-seeley-college-sports-commission-ceo/
