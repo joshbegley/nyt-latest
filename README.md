@@ -1,3 +1,11 @@
+**Federal Agents and Protesters Clash at Immigration Raid in L.A.**\
+`Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
+https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
+
+**What to Know About the Effects of Ketamine**\
+`Elon Musk has said that he used ketamine as a treatment in the past, but he denied reports that he was taking it frequently and recreationally.`\
+https://nytimes.com/2025/06/06/health/ketamine-effects-anesthetic-elon-musk.html
+
 **Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
 `President Trump also eased restrictions on commercial drone flights and called for the revival of supersonic flights for nonmilitary aircraft.`\
 https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/us/politics/trump-musk-spacex-contracts.html
 **Justice Dept.’s Inspector General to Move to the Federal Reserve**\
 `Michael E. Horowitz, one of the few major watchdogs spared from a purge by President Trump, will also hunt for abuses at the Consumer Financial Protection Board — a Trump target.`\
 https://nytimes.com/2025/06/06/us/justice-inspector-general-fed.html
-
-**Trump as Channel-Changer in Chief**\
-`When the issues are intractable, why not pivot to surefire red meat?`\
-https://nytimes.com/2025/06/06/us/politics/trump-biden-autopen-ukraine-gaza.html
-
-**Grealish needs regular football to make England's WC squad, says Tuchel**\
-`Grealish is facing an uncertain future at the club after a frustrating season and has yet to be called up for England since Tuchel's arrival`\
-https://nytimes.com/athletic/6409462/2025/06/06/jack-grealish-england-world-cup/
 
