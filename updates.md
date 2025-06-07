@@ -1,3 +1,7 @@
+**LeBrun: 'Us against the world' — Panthers embrace identity as NHL's ultimate road warriors**\
+`Florida's thrilling 5-4 win in double overtime improved its playoff road record to 24-11 since the start of the 2023 postseason.`\
+https://nytimes.com/athletic/6409906/2025/06/07/panthers-nhl-playoffs-stanley-cup-final-game-2/
+
 **How the KAT-Randle blockbuster became a rare win-win for the Knicks and Wolves**\
 `Eight months after the trade that shocked the NBA, the results speak for themselves.`\
 https://nytimes.com/athletic/6403467/2025/06/07/karl-anthony-towns-julius-randle-knicks-wolves-nba/

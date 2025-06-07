@@ -1,3 +1,7 @@
+**LeBrun: 'Us against the world' — Panthers embrace identity as NHL's ultimate road warriors**\
+`Florida's thrilling 5-4 win in double overtime improved its playoff road record to 24-11 since the start of the 2023 postseason.`\
+https://nytimes.com/athletic/6409906/2025/06/07/panthers-nhl-playoffs-stanley-cup-final-game-2/
+
 **How the KAT-Randle blockbuster became a rare win-win for the Knicks and Wolves**\
 `Eight months after the trade that shocked the NBA, the results speak for themselves.`\
 https://nytimes.com/athletic/6403467/2025/06/07/karl-anthony-towns-julius-randle-knicks-wolves-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406763/2025/06/07/ufc-316-dvalishvili-omalley-pred
 **Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
 `The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
 https://nytimes.com/2025/06/07/magazine/misty-copeland-interview.html
-
-**Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
-`The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
-https://nytimes.com/video/podcasts/100000010207031/misty-copeland-changed-ballet-now-shes-ready-to-move-on.html
 
