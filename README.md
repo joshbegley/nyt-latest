@@ -1,3 +1,11 @@
+**Even after historic settlement, college sports remain broken. But what else is new?**\
+`The settlement required years of mountain moving and billions of dollars. It's only delaying the inevitable, but college sports move on.`\
+https://nytimes.com/athletic/6375168/2025/06/07/ncaa-house-settlement-college-sports-revenue-sharing-news/
+
+**Trump’s Proposed Cut Would Deal Serious Setback to California High-Speed Rail**\
+`The Trump administration’s announcement that it would pull $4 billion for the state’s bullet train project is likely to mean significant delays in serving the first passengers, several analysts said.`\
+https://nytimes.com/2025/06/07/us/high-speed-rail-california-federal-funding.html
+
 **Scott Panetti, 67, at the Center of a Landmark Death Penalty Case, Dies**\
 `Diagnosed with a psychotic disorder, he spent 30 years on death row. In 2007, the Supreme Court raised the bar for executing the mentally ill, though Texas still tried to put him to death.`\
 https://nytimes.com/2025/06/07/us/scott-panetti-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capit
 **Tottenham set to part company with women's coach Vilahamn**\
 `Vilahamn led Spurs to a top-six WSL finish and FA Cup final in his first season in charge but 2024-25 saw a downturn in form.`\
 https://nytimes.com/athletic/6410254/2025/06/07/tottenham-sack-women-manager-vilahamn/
-
-**Lewandowski says 'mental tiredness' behind absence from Poland squad**\
-`The 36-year-old played 52 times for Barcelona this term, his highest number of appearances in a single season during his career.`\
-https://nytimes.com/athletic/6410234/2025/06/07/robert-lewandowski-poland-barcelona/
-
-**Roger Nichols, Songwriter Behind Carpenters Hits, Dies at 84**\
-`With Paul Williams, he wrote enduring 1970s soft-rock classics like “We’ve Only Just Begun” and “Rainy Days and Mondays.”`\
-https://nytimes.com/2025/06/07/arts/music/roger-nichols-dead.html
 
