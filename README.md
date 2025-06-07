@@ -1,3 +1,11 @@
+**Yankees' Anthony Volpe leaves game, has X-rays on elbow after getting hit by pitch**\
+`Volpe was hit in the second but didn’t leave until the top of the fourth inning.`\
+https://nytimes.com/athletic/6409582/2025/06/06/yankees-anthony-volpe-hit-by-pitch-elbow/
+
+**Doozy**\
+`Blake Slonecker presents a beautifully crafted Saturday challenge.`\
+https://nytimes.com/2025/06/06/crosswords/daily-puzzle-2025-06-07.html
+
 **CFB Power conferences hiring MLB exec Bryan Seeley as College Sports Commission CEO**\
 `The Power conferences will bring in an MLB executive to guide the schools through a post-House settlement era.  `\
 https://nytimes.com/athletic/6409170/2025/06/06/bryan-seeley-college-sports-commission-ceo/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/06/health/ketamine-effects-anesthetic-elon-musk.html
 **Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
 `President Trump also eased restrictions on commercial drone flights and called for the revival of supersonic flights for nonmilitary aircraft.`\
 https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
-
-**Driving a Famed Highway to Learn Why It’s Always Broken**\
-`To understand the threats to the Pacific Coast Highway, a reporter and photographer hit the road.`\
-https://nytimes.com/2025/06/06/insider/pacific-coast-highway-road-trip.html
-
-**NBA trophy logos may return on Finals courts next year, Adam Silver says**\
-`Though the league is big on flashy courts during the NBA Cup, the NBA Finals courts have been understated. That may change.`\
-https://nytimes.com/athletic/6409506/2025/06/06/nba-trophy-logo-finals-adam-silver/
 
