@@ -1,3 +1,15 @@
+**Jean-Clair Todibo is here to stay at West Ham - expect more front-foot defending**\
+`Injuries and aerial duel issues stunted Todibo's first season in England but his aggressive style makes him a useful squad member`\
+https://nytimes.com/athletic/6399271/2025/06/07/jean-clair-todibo-west-ham-transfer-analysis/
+
+**Man United fans' survey results: Concerns about INEOS but players to blame for terrible season**\
+`We asked, and you answered. Thousands of subscribers gave their views on the ownership at Old Trafford, Ruben Amorim, players and transfers`\
+https://nytimes.com/athletic/6405817/2025/06/07/mancehster-united-fans-survey-results/
+
+**Leeds United Transfer DealSheet: Summer window latest, key positions and available players**\
+`Daniel Farke has to retain the heart and soul of his champions, but retool and upgrade where possible to keep Leeds in the top flight`\
+https://nytimes.com/athletic/6408285/2025/06/07/leeds-united-transfer-dealsheet/
+
 **Scenes from a Tigers victory: A daunting catch, a daring escape and another unlikely hero**\
 `The Cubs entered as the best team in the NL. The Tigers entered as the best team in the AL and escaped with the win.`\
 https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will-vest/
