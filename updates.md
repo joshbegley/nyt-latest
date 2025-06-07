@@ -1,3 +1,7 @@
+**Texas demolishes Texas Tech for first WCWS championship**\
+`In the Longhorns' eighth WCWS appearance, and third in the last four years, it finally brought home the title.`\
+https://nytimes.com/athletic/6409601/2025/06/06/texas-vs-texas-tech-womens-college-world-series-championship/
+
 **What We Know About the Charges Against Abrego Garcia**\
 `Three months after being wrongly deported to El Salvador, Kilmar Armando Abrego Garcia was flown back to the United States on Friday to face federal charges.`\
 https://nytimes.com/2025/06/06/us/abrego-garcia-charges-explainer.html

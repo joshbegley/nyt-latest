@@ -1,5 +1,5 @@
 **Texas demolishes Texas Tech for first WCWS championship**\
-`In the Longhorns' eighth WCWS appearance, and third in the last four years, it finally brought home the title.`\
+`In the Longhorns' eighth WCWS appearance, and third in the last four years, they finally brought home the title.`\
 https://nytimes.com/athletic/6409601/2025/06/06/texas-vs-texas-tech-womens-college-world-series-championship/
 
 **What We Know About the Charges Against Abrego Garcia**\
