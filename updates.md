@@ -1,3 +1,11 @@
+**Federal Agents and Protesters Clash at Immigration Raid in L.A.**\
+`Armed agents in tactical gear threw flash-bang grenades to disperse a crowd that converged on the raid in Los Angeles’s Fashion District.`\
+https://nytimes.com/2025/06/06/us/los-angeles-immigration-raid.html
+
+**What to Know About the Effects of Ketamine**\
+`Elon Musk has said that he used ketamine as a treatment in the past, but he denied reports that he was taking it frequently and recreationally.`\
+https://nytimes.com/2025/06/06/health/ketamine-effects-anesthetic-elon-musk.html
+
 **Trump Signs Orders Intended to Jolt U.S. Drone Manufacturing**\
 `President Trump also eased restrictions on commercial drone flights and called for the revival of supersonic flights for nonmilitary aircraft.`\
 https://nytimes.com/2025/06/06/us/trump-orders-drone-manufacturing.html
