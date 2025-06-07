@@ -1,3 +1,7 @@
+**Sovereignty surges down the stretch to win the Belmont Stakes**\
+`Sovereignty, who won the Kentucky Derby and was held out of the Preakness, passed favorite Journalism down the stretch to win decisively.`\
+https://nytimes.com/athletic/6410812/2025/06/07/sovereignty-surges-to-win-belmont-stakes/
+
 **2 Veterans Found With Stolen Military Guns and Nazi Material, Officials Say**\
 `The authorities said a soldier was assaulted with a hammer as the men tried to steal gear from a military base in Washington State. The theft led investigators to a house full of contraband.`\
 https://nytimes.com/2025/06/07/us/military-veterans-nazi-white-supremacy-arrest.html

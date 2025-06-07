@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino
 
 **Trump Targets Workplaces as Immigration Crackdown Widens**\
 `Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
-https://nytimes.com/2025/06/07/us/trump-targets-workplaces-as-immigration-crackdown-widens.html
+https://nytimes.com/2025/06/07/us/trump-immigration-raids-workplaces.html
 
 **Bill Atkinson, Who Made Computers Easier to Use, Is Dead at 74**\
 `A designer for Apple, he created software that made it possible to display shapes, images and text on the screen and present a simulated “desktop.”`\
