@@ -1,3 +1,11 @@
+**The world is celebrating Pride in Washington, against the backdrop of Trump’s White House.**\
+`By Heather Knight and Campbell Robertson`\
+https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride-in-washington-against-the-backdrop-of-trumps-white-house
+
+**Trump Administration Live Updates: U.S. Brings Abrego Garcia Back From El Salvador to Face Criminal Charges**\
+``\
+https://nytimes.com/live/2025/06/07/us/trump-news
+
 **Severe Weather Expected Across Much of the U.S. on Saturday**\
 `Clusters of thunderstorms could kick up damaging winds in northern Mississippi and northern Alabama on Saturday.`\
 https://nytimes.com/2025/06/07/weather/severe-storms-saturday-forecast-usa.html
