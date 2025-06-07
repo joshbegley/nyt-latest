@@ -1,3 +1,7 @@
+**Oilers won't dwell on missed chances after close Game 2: 'What’s it going to do?'**\
+`After two tight games to open the Stanley Cup Final, the Oilers clearly need to address some areas.`\
+https://nytimes.com/athletic/6409955/2025/06/07/edmonton-oilers-florida-panthers-game-2-overtime/
+
 **LeBrun: 'Us against the world' — Panthers embrace identity as NHL's ultimate road warriors**\
 `Florida's thrilling 5-4 win in double overtime improved its playoff road record to 24-11 since the start of the 2023 postseason.`\
 https://nytimes.com/athletic/6409906/2025/06/07/panthers-nhl-playoffs-stanley-cup-final-game-2/

@@ -1,3 +1,7 @@
+**Oilers won't dwell on missed chances after close Game 2: 'What’s it going to do?'**\
+`After two tight games to open the Stanley Cup Final, the Oilers clearly need to address some areas.`\
+https://nytimes.com/athletic/6409955/2025/06/07/edmonton-oilers-florida-panthers-game-2-overtime/
+
 **LeBrun: 'Us against the world' — Panthers embrace identity as NHL's ultimate road warriors**\
 `Florida's thrilling 5-4 win in double overtime improved its playoff road record to 24-11 since the start of the 2023 postseason.`\
 https://nytimes.com/athletic/6409906/2025/06/07/panthers-nhl-playoffs-stanley-cup-final-game-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/crosswords/connections-companion-728.html
 **UFC 316 odds, predictions: Dvalishvili vs. O'Malley headlines a card with two title fights**\
 `UFC 316 has two title fights on the card, including both bantamweight belts. Merab Dvalishvili vs. Sean O’Malley is the main event.`\
 https://nytimes.com/athletic/6406763/2025/06/07/ufc-316-dvalishvili-omalley-predictions-odds/
-
-**Misty Copeland Changed Ballet. Now She’s Ready to Move On.**\
-`The American Ballet Theater’s first Black female principal dancer on everything she’s fought for and the decision to end her historic career with the company.`\
-https://nytimes.com/2025/06/07/magazine/misty-copeland-interview.html
 
