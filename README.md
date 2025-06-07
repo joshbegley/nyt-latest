@@ -1,3 +1,11 @@
+**Scenes from a Tigers victory: A daunting catch, a daring escape and another unlikely hero**\
+`The Cubs entered as the best team in the NL. The Tigers entered as the best team in the AL and escaped with the win.`\
+https://nytimes.com/athletic/6409712/2025/06/07/tigers-cubs-kerry-carpenter-will-vest/
+
+**Football's capacity to make men cry: 'I was buying milk and just burst into tears thinking about Palace'**\
+`After tearful scenes of jubilation and despair at football grounds, we explore the sport's remarkable ability to stir the emotions`\
+https://nytimes.com/athletic/6383164/2025/06/07/footballs-capacity-to-make-men-cry-i-was-buying-milk-and-just-burst-into-tears-thinking-about-palace/
+
 **Club World Cup team guide – Inter Miami: Messi's star power, slow start for Mascherano**\
 `Inter Miami have struggled this season under rookie coach Javier Mascherano. Can they make a splash at the Club World Cup?`\
 https://nytimes.com/athletic/6392199/2025/06/07/club-world-cup-inter-miami-messi-star/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/6392199/2025/06/07/club-world-cup-inter-miami-messi
 **Taylor Swift concerts and 'lay and play' pitches - has Wembley finally become a financial asset for English football?**\
 `The Football Association rejected Shahid Khan's £1bn offer in 2018. Was it the right call? And how have things changed at the stadium since?`\
 https://nytimes.com/athletic/6392857/2025/06/07/wembley-stadium-finances-concerts-fa-england-football/
+
+**Postecoglou restored belief at Spurs - but they are right not to see him as a long-term solution**\
+`The peculiarity of a stubborn ideologue who produced underwhelming results with ‘his’ style, but won a trophy with the opposite approach`\
+https://nytimes.com/athletic/6402826/2025/06/07/ange-postecoglou-philosophy-personality-tottenham/
 
 **Where Bulls Lock Horns for Sport**\
 `Bull-on-bull fighting has been popular in South Korea for centuries. Critics say it’s needlessly cruel and painful.
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6384738/2025/06/07/club-world-cup-guide-mamelodi-su
 **Club World Cup team guide - Monterrey: Ramos, a former Guardiola assistant and a rising star**\
 `Monterrey are a big club from northern Mexico with expectations normally reserved for elite clubs. Can they navigate a difficult CWC group?`\
 https://nytimes.com/athletic/6391422/2025/06/07/club-world-cup-monterrey-ramos-guardiola-torrent/
-
-**Club World Cup team guide - Bayern Munich: A powerhouse progressing under Kompany**\
-`A guide to Bayern Munich, who are set to feature in the inaugural Club World Cup`\
-https://nytimes.com/athletic/6394318/2025/06/07/club-world-cup-bayern-munich-team-guide/
-
-**Club World Cup team guide - Manchester City: Wounded giants primed for a new era**\
-`Everything you need to know about Club World Cup participants Manchester City`\
-https://nytimes.com/athletic/6392879/2025/06/07/club-world-cup-manchester-city-team-guide/
-
-**Why there is no tougher task than sailing in Upper New York Bay**\
-`Manhattan's towering skyline takes the breath away - but those famous skyscrapers can take the wind away from SailGP racers, too`\
-https://nytimes.com/athletic/6402262/2025/06/07/sailgp-new-york-city-upper-bay/
 
