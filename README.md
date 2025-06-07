@@ -1,3 +1,7 @@
+**Aryna Sabalenka's 'terrible' French Open final and the intangibles of tennis**\
+`World No. 1 Sabalenka bemoaned the conditions and her own “terrible” play after losing the French Open final to Coco Gauff.`\
+https://nytimes.com/athletic/6410581/2025/06/07/tennis-french-open-final-sabalenka-gauff-conditions-reaction/
+
 **Russia Strikes Kharkiv Twice in Same Day, Ukraine Says**\
 `Kharkiv’s mayor described Russia’s first strike, an overnight swarm of drones, bombs and missiles, as the “most powerful attack” on the city since the start of the war in Ukraine.`\
 https://nytimes.com/video/world/europe/100000010214128/russia-ukraine-kharkiv-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410476/2025/06/07/adam-pacman-jones-arrest-kentuck
 **Even after historic settlement, college sports remain broken. But what else is new?**\
 `The settlement required years of mountain moving and billions of dollars. It's only delaying the inevitable, but college sports move on.`\
 https://nytimes.com/athletic/6375168/2025/06/07/ncaa-house-settlement-college-sports-revenue-sharing-news/
-
-**Trump’s Proposed Cut Would Deal Serious Setback to California High-Speed Rail**\
-`The Trump administration’s announcement that it would pull $4 billion for the state’s bullet train project is likely to mean significant delays in serving the first passengers, several analysts said.`\
-https://nytimes.com/2025/06/07/us/high-speed-rail-california-federal-funding.html
 
