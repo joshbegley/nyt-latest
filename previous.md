@@ -1,3 +1,15 @@
+**Game, Set, Match: Coco Gauff beats Aryna Sabalenka to win first French Open title**\
+`Gauff won her first Roland Garros title by playing the conditions and the occasion with more evenness than Sabalenka.`\
+https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-final-tennis-result-analysis/
+
+**Hot, Big and Buggy: Why Do Broadway Actors Love to Work Summers Here?**\
+`The nearly 11,000-seat Muny in St. Louis is receiving the regional theater Tony Award. This week it began preparing to open its 107th season with “Bring It On.”`\
+https://nytimes.com/2025/06/07/theater/the-muny-st-louis-tony-award.html
+
+**Five Actors on the Muny: ‘Unlike Any Place I’d Ever Been on Earth’**\
+`The St. Louis theater, this year’s regional Tony Award winner, has drawn Broadway actors to its stage for a century.`\
+https://nytimes.com/2025/06/07/theater/tony-nominees-actors-the-muny-st-louis.html
+
 **Washington Capitals' Spencer Carbery wins Jack Adams Award as NHL's best coach**\
 `Carbery led the Caps to the Eastern Conference's highest points total while navigating Alex Ovechkin's pursuit of the all-time goals record.`\
 https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capitals-jack-adams-nhl-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelse
 **How will revenue sharing work in college sports? From attempted oversight to financial reckoning**\
 `“At some point,” said a personnel director, “maybe we'll get two years in a row where we know what's going on.”`\
 https://nytimes.com/athletic/6372328/2025/06/07/college-sports-revenue-sharing-ncaa-house-settlement-changes/
-
-**Craig Kimbrel rejoins Braves 11 years later, and their losing streak continues**\
-`Kimbrel returned to the Braves, the club he spent his first five major-league seasons with, for Friday's game against the Giants.`\
-https://nytimes.com/athletic/6409935/2025/06/07/craig-kimbrel-braves-losing-streak/
-
-**The world is celebrating Pride in Washington, against the backdrop of Trump’s White House.**\
-`By Heather Knight and Campbell Robertson`\
-https://nytimes.com/live/2025/06/07/us/trump-news/the-world-is-celebrating-pride-in-washington-against-the-backdrop-of-trumps-white-house
-
-**Trump Administration Live Updates: Abrego Garcia is Jailed in Tennessee After U.S. Brings Him Back From El Salvador**\
-``\
-https://nytimes.com/live/2025/06/07/us/trump-news
 

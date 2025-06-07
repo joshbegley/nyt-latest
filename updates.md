@@ -1,3 +1,15 @@
+**Game, Set, Match: Coco Gauff beats Aryna Sabalenka to win first French Open title**\
+`Gauff won her first Roland Garros title by playing the conditions and the occasion with more evenness than Sabalenka.`\
+https://nytimes.com/athletic/6410162/2025/06/07/sabalenka-gauff-french-open-final-tennis-result-analysis/
+
+**Hot, Big and Buggy: Why Do Broadway Actors Love to Work Summers Here?**\
+`The nearly 11,000-seat Muny in St. Louis is receiving the regional theater Tony Award. This week it began preparing to open its 107th season with “Bring It On.”`\
+https://nytimes.com/2025/06/07/theater/the-muny-st-louis-tony-award.html
+
+**Five Actors on the Muny: ‘Unlike Any Place I’d Ever Been on Earth’**\
+`The St. Louis theater, this year’s regional Tony Award winner, has drawn Broadway actors to its stage for a century.`\
+https://nytimes.com/2025/06/07/theater/tony-nominees-actors-the-muny-st-louis.html
+
 **Washington Capitals' Spencer Carbery wins Jack Adams Award as NHL's best coach**\
 `Carbery led the Caps to the Eastern Conference's highest points total while navigating Alex Ovechkin's pursuit of the all-time goals record.`\
 https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capitals-jack-adams-nhl-coach/
