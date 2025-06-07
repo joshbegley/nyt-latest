@@ -2,7 +2,7 @@
 `There’s no use trying to resist the primal attraction of John Kugelman’s latest Sunday puzzle.`\
 https://nytimes.com/2025/06/07/crosswords/daily-puzzle-2025-06-08.html
 
-**USMNT lays egg in pivotal stretch vs. Turkey, responds well in friendly loss**\
+**USMNT 1-2 Turkey: Pochettino's side suffers third loss in a row**\
 `After taking a first-minute lead, the U.S. gave up two in quick succession and fell to Turkey in a Gold Cup tune-up.`\
 https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino-mcglynn-johnny-guler/
 
