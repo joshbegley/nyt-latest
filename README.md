@@ -1,3 +1,7 @@
+**Brad Marchand plays 2OT hero as Panthers defeat Oilers in Game 2 of Stanley Cup Final**\
+`Marchand scored two goals as the Panthers evened the series with a 5-4 Game 2 victory at Rogers Place.`\
+https://nytimes.com/athletic/6409499/2025/06/07/panthers-oilers-stanley-cup-final-2025-game-2-takeaways/
+
 **Jean-Clair Todibo is here to stay at West Ham - expect more front-foot defending**\
 `Injuries and aerial duel issues stunted Todibo's first season in England but his aggressive style makes him a useful squad member`\
 https://nytimes.com/athletic/6399271/2025/06/07/jean-clair-todibo-west-ham-transfer-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6402826/2025/06/07/ange-postecoglou-philosophy-pers
 `Bull-on-bull fighting has been popular in South Korea for centuries. Critics say it’s needlessly cruel and painful.
 `\
 https://nytimes.com/card/2025/06/07/world/south-korea-bullfighting
-
-**How the Premier League revolutionised academies to create pathways for Delap, Eze, Johnson and many more**\
-`For a while, the footballers developed at English clubs were considered inferior. But no longer. What has changed?`\
-https://nytimes.com/athletic/6392931/2025/06/07/premier-league-academy-system/
 
