@@ -1,3 +1,7 @@
+**Andorra 0 England 1 - Tuchel's men largely underwhelming, might they regret narrow win?**\
+`England endured a largely frustrating evening in Barcelona, struggling to create chances against a side ranked 173rd in the world`\
+https://nytimes.com/athletic/6402671/2025/06/07/andorra-0-england-1-tuchel-kane-madueke/
+
 **'Pacman' Jones arrested, charged with assaulting officer, public intoxication**\
 `During his playing career, Jones was arrested or questioned by police in eight separate incidents, including a 2007 shooting in Las Vegas.`\
 https://nytimes.com/athletic/6410476/2025/06/07/adam-pacman-jones-arrest-kentucky/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/theater/the-muny-st-louis-tony-award.html
 **Five Actors on the Muny: ‘Unlike Any Place I’d Ever Been on Earth’**\
 `The St. Louis theater, this year’s regional Tony Award winner, has drawn Broadway actors to its stage for a century.`\
 https://nytimes.com/2025/06/07/theater/tony-nominees-actors-the-muny-st-louis.html
-
-**Washington Capitals' Spencer Carbery wins Jack Adams Award as NHL's best coach**\
-`Carbery led the Caps to the Eastern Conference's highest points total while navigating Alex Ovechkin's pursuit of the all-time goals record.`\
-https://nytimes.com/athletic/6399775/2025/06/07/spencer-carbery-washington-capitals-jack-adams-nhl-coach/
 
