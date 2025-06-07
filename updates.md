@@ -1,3 +1,7 @@
+**Arsenal close to Arrizabalaga deal**\
+`The 30-year-old spent last season on loan at Bournemouth, keeping nine clean sheets in 35 games for the south-coast club.`\
+https://nytimes.com/athletic/6408327/2025/06/07/kepa-arrizabalaga-arsenal-chelsea/
+
 **How will revenue sharing work in college sports? From attempted oversight to financial reckoning**\
 `“At some point,” said a personnel director, “maybe we'll get two years in a row where we know what's going on.”`\
 https://nytimes.com/athletic/6372328/2025/06/07/college-sports-revenue-sharing-ncaa-house-settlement-changes/
