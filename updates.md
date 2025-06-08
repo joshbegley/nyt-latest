@@ -1,3 +1,11 @@
+**Twins' rotation takes another hit as Zebby Matthews joins Pablo López on IL**\
+`Chris Paddack was once the biggest question mark in the Twins' rotation, but now they're counting on him to stay healthy and keep rolling.`\
+https://nytimes.com/athletic/6411805/2025/06/08/twins-rotation-injuries-zebby-matthews/
+
+**The Muny in St. Louis is receiving the regional theater award.**\
+`By Nancy Coleman`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/muny-st-louis-regional-theater-tony
+
 **Tony Award Winners 2025: Updating List**\
 `The Tony Awards begin on Sunday at 8 p.m. E.T., live from Radio City Music Hall in New York City.`\
 https://nytimes.com/2025/06/08/theater/tony-award-winners.html
