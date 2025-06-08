@@ -1,3 +1,11 @@
+**The Pulse: A defensive alien in the outfield**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6411088/2025/06/08/its-easy-to-dream-on-pete-crow-armstrongs-potential-plus-coco-claims-french/
+
+**Map: 6.3-Magnitude Earthquake Strikes Colombia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/08/world/colombia-quake-tracker.html
+
 **Tracking Tropical Storm Barbara**\
 `See the likely path and wind arrival times for Barbara.`\
 https://nytimes.com/interactive/2025/06/08/weather/barbara-map-path-tracker.html

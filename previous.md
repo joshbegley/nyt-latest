@@ -1,3 +1,11 @@
+**The Pulse: A defensive alien in the outfield**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6411088/2025/06/08/its-easy-to-dream-on-pete-crow-armstrongs-potential-plus-coco-claims-french/
+
+**Map: 6.3-Magnitude Earthquake Strikes Colombia**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/08/world/colombia-quake-tracker.html
+
 **Tracking Tropical Storm Barbara**\
 `See the likely path and wind arrival times for Barbara.`\
 https://nytimes.com/interactive/2025/06/08/weather/barbara-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/08/opinion/trump-reality-show-oval-office.html
 **Brighton bid €40m for Olympiacos' Kostoulas**\
 `The Greek club previously rejected Brighton's offer of €30m plus Abdallah Sima for their 18-year-old striker.`\
 https://nytimes.com/athletic/6411424/2025/06/08/charalampos-kostoulas-brighton-transfers/
-
-**Rosenthal: The Red Sox can't waste any more time in calling up top prospect Roman Anthony**\
-`Along with giving Boston an offensive spark, the move would give Kristian Campbell much needed defensive reps in Triple A.`\
-https://nytimes.com/athletic/6411434/2025/06/08/red-sox-roman-anthony-kristian-campbell/
-
-**What's gone right and wrong for Oilers in Stanley Cup Final**\
-`Let’s look at three areas where Edmonton is doing well and three where it is not as the series is knotted at 1-1 heading into Game 3.`\
-https://nytimes.com/athletic/6410997/2025/06/08/oilers-panthers-nhl-stanley-cup-final-playoffs/
 
