@@ -1,3 +1,7 @@
+**More misery for Braves, who wasted Bryce Elder's gem in another walk-off loss to Giants**\
+`The Braves have endured a week of devastating losses, and Saturday's 3-2 loss to the Giants left them reeling.`\
+https://nytimes.com/athletic/6411085/2025/06/07/braves-giants-walk-off-loss-bryce-elder/
+
 **Jane Larkworthy, 62, a Top Magazine Writer and Editor on Beauty, Dies**\
 `She made her mark in publications like Glamour, W, Jane and Mademoiselle. In 2007, she was on the receiving end of media attention, testifying in a sensational trial.`\
 https://nytimes.com/2025/06/07/style/jane-larkworthy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410947/2025/06/07/new-york-sail-grand-prix-results
 **Protesters and Immigration Agents Clash Again in Los Angeles County**\
 `Protesters in Paramount, Calif., squared off with federal immigration agents by a Home Depot near a residential area where many Latinos live.`\
 https://nytimes.com/video/us/100000010214402/la-immigration-protesters-ice.html
-
-**Sovereignty surges down the stretch to win the Belmont Stakes**\
-`Sovereignty, who won the Kentucky Derby and was held out of the Preakness, passed favorite Journalism down the stretch to win decisively.`\
-https://nytimes.com/athletic/6410812/2025/06/07/sovereignty-surges-to-win-belmont-stakes/
 
