@@ -1,3 +1,15 @@
+**Here is the latest.**\
+`By Hamed Aleaziz and Laurel Rosenhall`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest
+
+**Live Updates: Trump to Send National Guard to L.A. to Quell Immigration Protests**\
+`Federal immigration officials squared off with protesters in Los Angeles County on Saturday using tear gas and flash-bang grenades. The unrest comes just a day after raids were conducted through the city of Los Angeles.`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests
+
+**Colombian Senator Shot at Campaign Event**\
+`The condition of Miguel Uribe, who belongs to a conservative party and was seeking to be its presidential nominee, was not immediately clear.`\
+https://nytimes.com/2025/06/07/world/americas/colombia-senator-shot.html
+
 **Hunt for Father Accused of Killing 3 Daughters Expands in Washington Forest**\
 `Travis Decker is a former member of the military who has enough wilderness survival skills to live in the woods on his own for weeks or months, the authorities said.`\
 https://nytimes.com/2025/06/07/us/manhunt-father-killing-daughters-wenatchee.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/07/us/military-veterans-nazi-white-supremacy-arrest.
 **Why the U.S. Brought Back Kilmar Abrego Garcia**\
 `Kilmar Abrego Garcia, who was mistakenly deported to El Salvador, was flown back to the United States on Friday to face federal criminal charges. Devlin Barrett, who covers the Justice Department, explains the charges and what may come next for Garcia.`\
 https://nytimes.com/video/us/politics/100000010213416/why-the-us-brought-back-kilmar-abrego-garcia.html
-
-**Rose Lavelle returns but KC Current hand Gotham FC third straight loss**\
-`The U.S. women’s national team star had been out with an ankle injury for the past six months.`\
-https://nytimes.com/athletic/6410833/2025/06/07/rose-lavelle-gotham-kc-current-nwsl/
-
-**Meeting Their Match**\
-`There’s no use trying to resist the primal attraction of John Kugelman’s latest Sunday puzzle.`\
-https://nytimes.com/2025/06/07/crosswords/daily-puzzle-2025-06-08.html
-
-**USMNT 1-2 Turkey: Pochettino's side suffers third loss in a row**\
-`After taking a first-minute lead, the U.S. gave up two in quick succession and fell to Turkey in a Gold Cup tune-up.`\
-https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino-mcglynn-johnny-guler/
 
