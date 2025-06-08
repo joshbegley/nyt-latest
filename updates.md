@@ -1,3 +1,7 @@
+**A Florida Weatherman’s Hurricane Plea Went Viral. Here’s Why.**\
+`A TV forecaster said he was not confident he could predict the paths of storms this year, touching a nerve amid concerns about how federal cuts could affect hurricane season.`\
+https://nytimes.com/2025/06/08/weather/john-morales-florida-hurricane-forecast-nbc-6.html
+
 **The Pulse: A defensive alien in the outfield**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6411088/2025/06/08/its-easy-to-dream-on-pete-crow-armstrongs-potential-plus-coco-claims-french/
