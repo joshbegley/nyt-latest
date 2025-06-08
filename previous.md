@@ -1,5 +1,13 @@
-**Read Gov. Gavin Newsom’s Letter to Defense Secretary Pete Hegseth**\
-`On Sunday, Gov. Gavin Newsom of California sent a letter by email to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
+**Harvey Fierstein is receiving the lifetime achievement award.**\
+`By Nancy Coleman`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/harvey-fierstein-lifetime-achievement-tony
+
+**Four former Seymours scored Tony nominations.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/four-former-seymours-scored-tony-nominations
+
+**Read the Letter From the Office of Gov. Gavin Newsom to Defense Secretary Pete Hegseth**\
+`On Sunday, the office of Gov. Gavin Newsom of California sent a letter to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
 https://nytimes.com/interactive/2025/06/08/us/office-of-the-governor.html
 
 **Newsom Tried to Placate Trump This Year. That Approach Might Be Over.**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/who-is-going-to-win-toni
 **Our Favorite Photos From the Tony Awards Red Carpet**\
 `As Broadway’s best and brightest arrived for the industry’s biggest night, we got an up-close look at what you couldn’t see on TV.`\
 https://nytimes.com/2025/06/08/theater/tonys-red-carpet-snapshots.html
-
-**Uriah Rennie, PL's first Black referee, dies at 65**\
-`Rennie made history in 1997 when he officiated Leeds United vs Crystal Palace, becoming the top division's first Black referee.`\
-https://nytimes.com/athletic/6412101/2025/06/08/uriah-rennie-death-premier-league-referee/
-
-**Here’s what to see on Broadway (and beyond) this summer.**\
-`By Nicole Herrington`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/heres-what-to-see-on-broadway-and-beyond-this-summer
 

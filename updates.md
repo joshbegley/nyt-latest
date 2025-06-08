@@ -1,3 +1,15 @@
+**Harvey Fierstein is receiving the lifetime achievement award.**\
+`By Nancy Coleman`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/harvey-fierstein-lifetime-achievement-tony
+
+**Four former Seymours scored Tony nominations.**\
+`By Elisabeth Vincentelli`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/four-former-seymours-scored-tony-nominations
+
+**Read the Letter From the Office of Gov. Gavin Newsom to Defense Secretary Pete Hegseth**\
+`On Sunday, the office of Gov. Gavin Newsom of California sent a letter to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
+https://nytimes.com/interactive/2025/06/08/us/office-of-the-governor.html
+
 **Read Gov. Gavin Newsom’s Letter to Defense Secretary Pete Hegseth**\
 `On Sunday, Gov. Gavin Newsom of California sent a letter by email to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
 https://nytimes.com/interactive/2025/06/08/us/office-of-the-governor.html
