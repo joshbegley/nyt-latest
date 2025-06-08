@@ -1,3 +1,11 @@
+**‘Guntram’ Review: In Concert at Carnegie, Strauss’s First Opera**\
+`Leon Botstein’s American Symphony Orchestra dusts off “Guntram,” and singers unveil the beauties and flaws of a 19th-century epic fail.`\
+https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
+
+**Plane With 20 People Aboard Crashes in Tennessee**\
+`Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
+https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
+
 **Game, Set, Match: Carlos Alcaraz comes back from the brink to beat Jannik Sinner in French Open classic**\
 `Alcaraz produced his first comeback from two-sets-to-love down to win his second Roland Garros title against his nearest rival.`\
 https://nytimes.com/athletic/6411510/2025/06/08/alcaraz-sinner-french-open-final-tennis-result-analysis/

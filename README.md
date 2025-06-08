@@ -1,3 +1,7 @@
+**Military officials scramble to specify rules of engagement for the National Guard troops in Los Angeles.**\
+`By Helene Cooper`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/military-officials-scramble-to-specify-rules-of-engagement-for-national-guard-troops
+
 **‘Guntram’ Review: In Concert at Carnegie, Strauss’s First Opera**\
 `Leon Botstein’s American Symphony Orchestra dusts off “Guntram,” and singers unveil the beauties and flaws of a 19th-century epic fail.`\
 https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus
 **See a Visual Timeline of the L.A. Immigration Protests and Federal Response**\
 `President Trump called in the National Guard on Saturday after isolated clashes between federal law enforcement and people protesting immigration raids.`\
 https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map.html
-
-**ICE activity has been facing more pushback from bystanders and protesters.**\
-`By Christina Morales`\
-https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-has-been-facing-more-pushback-from-bystanders-and-protesters
 

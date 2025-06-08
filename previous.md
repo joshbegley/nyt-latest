@@ -1,4 +1,8 @@
-**Plane Carrying Up to 20 People Crashes in Tennessee**\
+**‘Guntram’ Review: In Concert at Carnegie, Strauss’s First Opera**\
+`Leon Botstein’s American Symphony Orchestra dusts off “Guntram,” and singers unveil the beauties and flaws of a 19th-century epic fail.`\
+https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
+
+**Plane With 20 People Aboard Crashes in Tennessee**\
 `Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
 https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map
 **ICE activity has been facing more pushback from bystanders and protesters.**\
 `By Christina Morales`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-has-been-facing-more-pushback-from-bystanders-and-protesters
-
-**Salmonella Outbreak Linked to Eggs Sickens Dozens**\
-`The outbreak has been tied to multiple brown organic and brown cage-free egg brands distributed to grocery stores in seven states, officials said.`\
-https://nytimes.com/2025/06/08/health/eggs-salmonella-recall.html
 
