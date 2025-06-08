@@ -1,3 +1,7 @@
+**Trump’s Feud With Musk Highlights His View of Government Power: It’s Personal**\
+`President Trump threatened to cut off Elon Musk’s federal contracts, showing that he looks at the government as his own means of penalizing those who cross him.`\
+https://nytimes.com/2025/06/08/us/politics/trump-elon-musk-fight-power.html
+
 **Ram to return to NASCAR Truck Series: 'The way we're going to do it is unlike anyone else'**\
 `Ram, which previously competed from 2001-2012, will join Chevrolet, Ford and Toyota as the fourth manufacturer participating for NASCAR.`\
 https://nytimes.com/athletic/6411502/2025/06/08/nascar-truck-series-ram/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-
 **Astros designate Forrest Whitley, a former top pitching prospect**\
 `Houston will call up left-hander Brandon Walter.`\
 https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitley/
-
-**Trump hosts SEC's Sankey, ND's Bevacqua as college leaders push for federal help**\
-`Trump has indicated he would like to help facilitate a federal solution for college sports, possibly with an executive order.`\
-https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-bevacqua-golf/
 
