@@ -1,3 +1,7 @@
+**Conrad Shinn, First Pilot to Land at the South Pole, Dies at 102**\
+`His Navy plane spent only 49 minutes on the ground and needed a boost from small rockets to break free from the ice and take off.`\
+https://nytimes.com/2025/06/08/obituaries/conrad-shinn-dead.html
+
 **Runaway Zebra Recaptured in a Tennessee County**\
 `The Rutherford County Sheriff’s Office, which had been searching for the animal for nearly a week, said that it was found on Sunday and returned to its owner.`\
 https://nytimes.com/2025/06/08/us/zebra-ed-tennessee-captured.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.htm
 **Your Costco Membership Card? No, It Is Not a Replacement for Real ID.**\
 `The T.S.A. is reminding travelers that Costco cards are not on their own going to get you through security. “Can’t fly on hot dogs and hope,” the agency said.`\
 https://nytimes.com/2025/06/08/travel/costco-tsa-real-id.html
-
-**Sources: MLS, players not close on new Club World Cup bonus agreement**\
-`MLS made its players a new Club World Cup bonus offer, but the MLSPA calls the proposal "retaliatory" in a contentious back-and-forth`\
-https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus-money-agreement/
 
