@@ -1,3 +1,7 @@
+**Paramount, Where Protests Erupted, Has a Large Hispanic Population**\
+`Residents in the small city south of Los Angeles had been on edge since Trump returned to office, fearing deportation raids.`\
+https://nytimes.com/2025/06/08/us/paramount-california-latino-immigrants.html
+
 **'The match of my life': Stan Wawrinka's 2015 French Open and the most famous shorts in tennis**\
 `10 years ago, Roland Garros was ready to anoint Novak Djokovic at the pinnacle of tennis. Then came Stan Wawrinka.`\
 https://nytimes.com/athletic/6410057/2025/06/08/tennis-french-open-stan-wawrinka-2015-djokovic/
