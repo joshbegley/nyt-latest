@@ -1,3 +1,11 @@
+**Newsom Tried to Placate Trump This Year. That Approach Might Be Over.**\
+`It will be hard for Gov. Gavin Newsom to maintain his political balancing act after President Trump defied his wishes and sent troops to Los Angeles.`\
+https://nytimes.com/2025/06/08/us/newsom-trump-protests.html
+
+**41 Tony nominees on the obstacles that shaped them.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/2025-tony-nominees-portraits
+
 **Twins' rotation takes another hit as Zebby Matthews joins Pablo López on IL**\
 `Chris Paddack was once the biggest question mark in the Twins' rotation, but now they're counting on him to stay healthy and keep rolling.`\
 https://nytimes.com/athletic/6411805/2025/06/08/twins-rotation-injuries-zebby-matthews/
