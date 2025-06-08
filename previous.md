@@ -1,3 +1,11 @@
+**ICE activity has been facing more pushback from bystanders and protesters.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-has-been-facing-more-pushback-from-bystanders-and-protesters
+
+**Salmonella Outbreak Linked to Eggs Sickens Dozens**\
+`The outbreak has been tied to multiple brown organic and brown cage-free egg brands distributed to grocery stores in seven states, officials said.`\
+https://nytimes.com/2025/06/08/health/eggs-salmonella-recall.html
+
 **Trump’s Feud With Musk Highlights His View of Government Power: It’s Personal**\
 `President Trump threatened to cut off Elon Musk’s federal contracts, showing that he looks at the government as his own means of penalizing those who cross him.`\
 https://nytimes.com/2025/06/08/us/politics/trump-elon-musk-fight-power.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
 **‘The Holy Blues’ Review: Finding the Spiritual in the Secular at BAM**\
 `Jawole Willa Jo Zollar’s new work for Alvin Ailey American Dance Theater at Brooklyn Academy of Music moves between church and twistin’ the night away.`\
 https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
-
-**Rick Carlisle and Tyrese Haliburton found each other at the perfect time**\
-`For more than two decades, Carlisle built elite offenses while clashing with his point guards. Then, he found Haliburton.`\
-https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
-
-**Astros designate Forrest Whitley, a former top pitching prospect**\
-`Houston will call up left-hander Brandon Walter.`\
-https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitley/
 

@@ -1,3 +1,11 @@
+**ICE activity has been facing more pushback from bystanders and protesters.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-has-been-facing-more-pushback-from-bystanders-and-protesters
+
+**Salmonella Outbreak Linked to Eggs Sickens Dozens**\
+`The outbreak has been tied to multiple brown organic and brown cage-free egg brands distributed to grocery stores in seven states, officials said.`\
+https://nytimes.com/2025/06/08/health/eggs-salmonella-recall.html
+
 **Trump’s Feud With Musk Highlights His View of Government Power: It’s Personal**\
 `President Trump threatened to cut off Elon Musk’s federal contracts, showing that he looks at the government as his own means of penalizing those who cross him.`\
 https://nytimes.com/2025/06/08/us/politics/trump-elon-musk-fight-power.html
