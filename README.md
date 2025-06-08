@@ -1,3 +1,11 @@
+**The Mexican Flag Has Become a Potent Protest Symbol**\
+`Trump officials have cast demonstrators waving the Mexican flag as insurrectionists, but for many protesters who are Mexican American, the flag represents pride in their heritage.`\
+https://nytimes.com/2025/06/08/us/mexican-flag-protest-los-angeles.html
+
+**The Tonys host is Cynthia Erivo.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-cynthia-erivo-host
+
 **Arrest of Union Leader Highlights Link Between Workers’ and Immigrants’ Rights**\
 `David Huerta, the president of the Service Employees International Union of California, was arrested while protesting immigration raids on work sites in Los Angeles.`\
 https://nytimes.com/2025/06/08/us/arrest-of-union-leader-highlights-link-between-workers-and-immigrants-rights.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/06/08/us/arrest-of-union-leader-highlights-link-between
 `Chubb, 29, has missed much of the last two seasons due to knee and foot injuries.`\
 https://nytimes.com/athletic/6412442/2025/06/08/cleveland-browns-nick-chubb-houston-texans-sign/
 
-**Harvey Fierstein is receiving the lifetime achievement award.**\
+**Harvey Fierstein receives the lifetime achievement award.**\
 `By Nancy Coleman`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/harvey-fierstein-lifetime-achievement-tony
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/2025-tony-nominees-portr
 **Twins' rotation takes another hit as Zebby Matthews joins Pablo López on IL**\
 `Chris Paddack was once the biggest question mark in the Twins' rotation, but now they're counting on him to stay healthy and keep rolling.`\
 https://nytimes.com/athletic/6411805/2025/06/08/twins-rotation-injuries-zebby-matthews/
-
-**The Muny in St. Louis is receiving the regional theater award.**\
-`By Nancy Coleman`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/muny-st-louis-regional-theater-tony
-
-**Tony Award Winners 2025: Updating List**\
-`The Tony Awards begin on Sunday at 8 p.m. E.T., live from Radio City Music Hall in New York City.`\
-https://nytimes.com/2025/06/08/theater/tony-award-winners.html
 
