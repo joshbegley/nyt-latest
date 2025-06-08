@@ -1,3 +1,7 @@
+**Newsom criticizes Hegseth for saying that the Marines could be mobilized.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/newsom-hegseth-marines-immigration-protests
+
 **Hojlund plays down talks of Man Utd exit: 'I have a contract until 2030'**\
 `The 22-year-old struggled for form in 2024-25, scoring just 10 times across 52 appearances including a 21-match goalless streak.`\
 https://nytimes.com/athletic/6411528/2025/06/08/rasmus-hojlund-manchester-united-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411447/2025/06/08/frenkie-de-jong-barcelona-contra
 **Trump Administration Live Updates: President Says He Has No Desire to Mend Ties With Musk**\
 ``\
 https://nytimes.com/live/2025/06/08/us/trump-news
-
-**Are Millennials ‘Childless’ or ‘Child Free’?**\
-`Readers respond to a guest essay by Michal Leibowitz. Also: Is America no longer a beacon?`\
-https://nytimes.com/2025/06/08/opinion/millennials-children.html
 
