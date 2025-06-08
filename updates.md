@@ -1,3 +1,11 @@
+**ABC News Suspends Terry Moran After He Calls Trump a ‘World-Class Hater’**\
+`In a late-night post on social media, Mr. Moran also derided Stephen Miller, a top presidential aide, and drew a rebuke from Vice President JD Vance.`\
+https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
+
+**Your Costco Membership Card? No, It Is Not a Replacement for Real ID.**\
+`The T.S.A. is reminding travelers that Costco cards are not on their own going to get you through security. “Can’t fly on hot dogs and hope,” the agency said.`\
+https://nytimes.com/2025/06/08/travel/costco-tsa-real-id.html
+
 **Sources: MLS, players not close on new Club World Cup bonus agreement**\
 `MLS made its players a new Club World Cup bonus offer, but the MLSPA calls the proposal "retaliatory" in a contentious back-and-forth`\
 https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus-money-agreement/

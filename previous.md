@@ -1,3 +1,11 @@
+**ABC News Suspends Terry Moran After He Calls Trump a ‘World-Class Hater’**\
+`In a late-night post on social media, Mr. Moran also derided Stephen Miller, a top presidential aide, and drew a rebuke from Vice President JD Vance.`\
+https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
+
+**Your Costco Membership Card? No, It Is Not a Replacement for Real ID.**\
+`The T.S.A. is reminding travelers that Costco cards are not on their own going to get you through security. “Can’t fly on hot dogs and hope,” the agency said.`\
+https://nytimes.com/2025/06/08/travel/costco-tsa-real-id.html
+
 **Sources: MLS, players not close on new Club World Cup bonus agreement**\
 `MLS made its players a new Club World Cup bonus offer, but the MLSPA calls the proposal "retaliatory" in a contentious back-and-forth`\
 https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus-money-agreement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6411824/2025/06/08/french-open-roland-garros-sabale
 **Blue Jackets Sunday Gathering: Changes coming soon, but which UFAs stick around**\
 `The Blue Jackets could look significantly different than the club that barely missed the playoffs in April.`\
 https://nytimes.com/athletic/6410132/2025/06/08/blue-jackets-sunday-gathering-changes-coming-soon-but-which-ufas-stick-around/
-
-**Israel Vows to Stop Aid Ship With Greta Thunberg Aboard From Reaching Gaza**\
-`The attempt to block the flotilla carrying the famed climate activist comes 15 years after a similar aid effort ended in deadly violence.`\
-https://nytimes.com/2025/06/08/world/middleeast/israel-gaza-aid-ship-thunberg.html
-
-**Dortmund agree €38m Jobe Bellingham transfer from Sunderland**\
-`Dortmund will pay a fixed fee of €33m (£27.8m) alongside a further €5m (£4.2m) in add-ons to Sunderland.`\
-https://nytimes.com/athletic/6411767/2025/06/08/jobe-bellingham-dortmund-transfer/
 
