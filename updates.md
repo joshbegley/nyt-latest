@@ -1,3 +1,11 @@
+**For No. 3 goalies on Stanley Cup teams, the NHL's least glamorous job still ends in glory**\
+`“You feel like you are part of the group, but it’s a little different,” one third-string goaltender for a championship team said. `\
+https://nytimes.com/athletic/6406325/2025/06/08/third-goalies-stanley-cup-nhl-playoffs/
+
+**USMNT's upbeat reaction to Turkey loss a telling sign of need to restore basics**\
+`The oddity after the USMNT's 2-1 defeat to Turkey was how optimistic the U.S. camp was about the overall effort.`\
+https://nytimes.com/athletic/6410882/2025/06/08/usmnt-turkey-pochettino-summer-gold-cup-adams/
+
 **Justice Jackson Just Helped Reset the D.E.I. Debate**\
 `How much should the law treat a person as an individual rather than as a member of a group?`\
 https://nytimes.com/2025/06/08/opinion/supreme-court-dei-racism-jackson.html

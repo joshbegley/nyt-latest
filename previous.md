@@ -1,3 +1,11 @@
+**For No. 3 goalies on Stanley Cup teams, the NHL's least glamorous job still ends in glory**\
+`“You feel like you are part of the group, but it’s a little different,” one third-string goaltender for a championship team said. `\
+https://nytimes.com/athletic/6406325/2025/06/08/third-goalies-stanley-cup-nhl-playoffs/
+
+**USMNT's upbeat reaction to Turkey loss a telling sign of need to restore basics**\
+`The oddity after the USMNT's 2-1 defeat to Turkey was how optimistic the U.S. camp was about the overall effort.`\
+https://nytimes.com/athletic/6410882/2025/06/08/usmnt-turkey-pochettino-summer-gold-cup-adams/
+
 **Justice Jackson Just Helped Reset the D.E.I. Debate**\
 `How much should the law treat a person as an individual rather than as a member of a group?`\
 https://nytimes.com/2025/06/08/opinion/supreme-court-dei-racism-jackson.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6411110/2025/06/08/thunder-pacers-nba-shai-gilgeous
 **Connections Companion No. 729**\
 `Scroll down for hints and conversation about the puzzle for Monday, June 9, 2025.`\
 https://nytimes.com/2025/06/08/crosswords/connections-companion-729.html
-
-**Ukraine Says It Has Stepped Up Its Drone Game, Again**\
-`The Ukrainian military says its new weapon system, which launches antiaircraft missiles from a remote-controlled speedboat, has brought down two Russian jet fighters.`\
-https://nytimes.com/2025/06/08/world/europe/ukraine-russia-drones-weapons.html
-
-**The New York Times International Edition in Print for Monday, June 9, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/08/todays-new-york-times-international-edition
 
