@@ -1,3 +1,7 @@
+**When the National Guard Went to L.A. in 1992, the Situation Was Far Different.**\
+`The skirmishes with immigration agents of the past few days are dwarfed by the widespread rioting, vandalism and violence that engulfed whole neighborhoods in 1992.`\
+https://nytimes.com/2025/06/08/us/la-riots-1992-immigration-protests.html
+
 **Tony Awards 2025 Live Updates: How to Watch and What to Expect**\
 `A starry Broadway season with a strong box office will be celebrated in a ceremony hosted by Cynthia Erivo. There’s a “Hamilton” performance as well.`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-ope
 **Tracking Tropical Storm Cosme**\
 `See the likely path and wind arrival times for Cosme.`\
 https://nytimes.com/interactive/2025/06/08/weather/cosme-map-path-tracker.html
-
-**Lewandowski says he will not play for Poland until head coach departs**\
-`Michal Probierz made Inter midfielder Piotr Zielinski the Poland captain to replace Lewandowski after the striker's squad withdrawal.`\
-https://nytimes.com/athletic/6412269/2025/06/08/robert-lewandowski-poland-retirement/
 
