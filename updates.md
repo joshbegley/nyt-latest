@@ -1,3 +1,7 @@
+**Game, Set, Match: Carlos Alcaraz comes back from the brink to beat Jannik Sinner in French Open classic**\
+`Alcaraz produced his first comeback from two-sets-to-love down to win his second Roland Garros title against his nearest rival.`\
+https://nytimes.com/athletic/6411510/2025/06/08/alcaraz-sinner-french-open-final-tennis-result-analysis/
+
 **ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’**\
 `Mr. Moran made the comment in a late-night social media post that also derided President Trump. It drew a rebuke from Vice President JD Vance.`\
 https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html

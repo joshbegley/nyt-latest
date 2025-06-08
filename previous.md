@@ -10,7 +10,7 @@ https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.htm
 `State and local officials warned that the National Guard’s presence could escalate protests, while Republican lawmakers blamed state leadership for the clashes.`\
 https://nytimes.com/2025/06/08/us/california-trump-national-guard-protests.html
 
-**Game, Set, Match: Carlos Alcaraz beats Jannik Sinner to win French Open title on a tennis roller coaster**\
+**Game, Set, Match: Carlos Alcaraz comes back from the brink to beat Jannik Sinner in French Open classic**\
 `Alcaraz produced his first comeback from two-sets-to-love down to win his second Roland Garros title against his nearest rival.`\
 https://nytimes.com/athletic/6411510/2025/06/08/alcaraz-sinner-french-open-final-tennis-result-analysis/
 
