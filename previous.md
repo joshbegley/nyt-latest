@@ -1,3 +1,7 @@
+**Pochettino: Tottenham return 'not realistic' despite Spurs job opening**\
+`The USMNT manager has frequently been linked with a return to Tottenham, whose coaching job just opened up again.`\
+https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spurs-ange-postecoglou/
+
 **Here is the latest.**\
 `By Hamed Aleaziz and Laurel Rosenhall`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410812/2025/06/07/sovereignty-surges-to-win-belmon
 **2 Veterans Found With Stolen Military Guns and Nazi Material, Officials Say**\
 `The authorities said a soldier was assaulted with a hammer as the men tried to steal gear from a military base in Washington State. The theft led investigators to a house full of contraband.`\
 https://nytimes.com/2025/06/07/us/military-veterans-nazi-white-supremacy-arrest.html
-
-**Why the U.S. Brought Back Kilmar Abrego Garcia**\
-`Kilmar Abrego Garcia, who was mistakenly deported to El Salvador, was flown back to the United States on Friday to face federal criminal charges. Devlin Barrett, who covers the Justice Department, explains the charges and what may come next for Garcia.`\
-https://nytimes.com/video/us/politics/100000010213416/why-the-us-brought-back-kilmar-abrego-garcia.html
 

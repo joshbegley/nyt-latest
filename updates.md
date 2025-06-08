@@ -1,3 +1,7 @@
+**Pochettino: Tottenham return 'not realistic' despite Spurs job opening**\
+`The USMNT manager has frequently been linked with a return to Tottenham, whose coaching job just opened up again.`\
+https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spurs-ange-postecoglou/
+
 **Here is the latest.**\
 `By Hamed Aleaziz and Laurel Rosenhall`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest
