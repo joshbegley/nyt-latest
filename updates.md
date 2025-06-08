@@ -1,3 +1,11 @@
+**Here is what happened when President Johnson bypassed a governor to deploy the National Guard.**\
+`Before Saturday, the last time a president made use of Guard troops to deal with civil unrest without being asked to do so by the state’s governor was in 1965.`\
+https://nytimes.com/2025/06/08/us/lbj-national-guard-alabama-1965.html
+
+**Monday Briefing: Tensions Flare in Los Angeles**\
+`Plus, the French Open’s stunning finals.`\
+https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-open.html
+
 **Monday Briefing: Tensions Flare in Los Angeles**\
 `Plus, the French Open’s stunning conclusions.`\
 https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-open.html
