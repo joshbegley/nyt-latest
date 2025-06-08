@@ -1,3 +1,11 @@
+**Plane Carrying Up to 20 People Crashes in Tennessee**\
+`Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
+https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
+
+**The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
+`President Trump has long mused about using troops to crush violent protests or riots in blue-state cities. He is now moving to do so in Los Angeles.`\
+https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
+
 **California Officials Criticize President’s National Guard Deployment**\
 `State and local officials warned that the National Guard’s presence could escalate protests, while Republican lawmakers blamed state leadership for the clashes.`\
 https://nytimes.com/2025/06/08/us/california-trump-national-guard-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-h
 **Salmonella Outbreak Linked to Eggs Sickens Dozens**\
 `The outbreak has been tied to multiple brown organic and brown cage-free egg brands distributed to grocery stores in seven states, officials said.`\
 https://nytimes.com/2025/06/08/health/eggs-salmonella-recall.html
-
-**Trump’s Feud With Musk Highlights His View of Government Power: It’s Personal**\
-`President Trump threatened to cut off Elon Musk’s federal contracts, showing that he looks at the government as his own means of penalizing those who cross him.`\
-https://nytimes.com/2025/06/08/us/politics/trump-elon-musk-fight-power.html
-
-**Ram to return to NASCAR Truck Series: 'The way we're going to do it is unlike anyone else'**\
-`Ram, which previously competed from 2001-2012, will join Chevrolet, Ford and Toyota as the fourth manufacturer participating for NASCAR.`\
-https://nytimes.com/athletic/6411502/2025/06/08/nascar-truck-series-ram/
 

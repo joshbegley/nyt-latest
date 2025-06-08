@@ -1,3 +1,11 @@
+**Plane Carrying Up to 20 People Crashes in Tennessee**\
+`Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
+https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
+
+**The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
+`President Trump has long mused about using troops to crush violent protests or riots in blue-state cities. He is now moving to do so in Los Angeles.`\
+https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
+
 **California Officials Criticize President’s National Guard Deployment**\
 `State and local officials warned that the National Guard’s presence could escalate protests, while Republican lawmakers blamed state leadership for the clashes.`\
 https://nytimes.com/2025/06/08/us/california-trump-national-guard-protests.html
