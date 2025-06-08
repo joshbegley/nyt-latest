@@ -1,3 +1,7 @@
+**Runaway Zebra Recaptured in Tennessee County**\
+`The Rutherford County Sheriff’s Office, which had been searching for the animal for nearly a week, said that it was found on Sunday and returned to its owner.`\
+https://nytimes.com/2025/06/08/us/zebra-ed-tennessee-captured.html
+
 **Military officials scramble to specify rules of engagement for the National Guard troops in Los Angeles.**\
 `By Helene Cooper`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/military-officials-scramble-to-specify-rules-of-engagement-for-national-guard-troops
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/travel/costco-tsa-real-id.html
 **Sources: MLS, players not close on new Club World Cup bonus agreement**\
 `MLS made its players a new Club World Cup bonus offer, but the MLSPA calls the proposal "retaliatory" in a contentious back-and-forth`\
 https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus-money-agreement/
-
-**See a Visual Timeline of the L.A. Immigration Protests and Federal Response**\
-`President Trump called in the National Guard on Saturday after isolated clashes between federal law enforcement and people protesting immigration raids.`\
-https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map.html
 
