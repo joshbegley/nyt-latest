@@ -1,3 +1,7 @@
+**2025 Tony Awards: What to Know Ahead of the Ceremony**\
+`How is Broadway doing? Who are the top contenders for awards? Our theater reporter, Michael Paulson, has some answers.`\
+https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
+
 **‘The Holy Blues’ Review: Finding the Spiritual in the Secular at BAM**\
 `Jawole Willa Jo Zollar’s new work for Alvin Ailey American Dance Theater at Brooklyn Academy of Music moves between church and twistin’ the night away.`\
 https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitl
 https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-bevacqua-golf/
 
 **Here’s the latest.**\
-`By Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez, Mimi Dwyer, Shawn Hubler and Livia Albeck-Ripka`\
+`By Livia Albeck-Ripka, Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez and Shawn Hubler`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-latest
 
 **Live Updates: L.A. Quiet as National Guard Troops Begin to Arrive**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410453/2025/06/08/oilers-2025-nhl-draft-ranking/
 **Newsom criticizes Hegseth for saying that the Marines could be mobilized.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/newsom-hegseth-marines-immigration-protests
-
-**Hojlund plays down talks of Man Utd exit: 'I have a contract until 2030'**\
-`The 22-year-old struggled for form in 2024-25, scoring just 10 times across 52 appearances including a 21-match goalless streak.`\
-https://nytimes.com/athletic/6411528/2025/06/08/rasmus-hojlund-manchester-united-transfers/
 
