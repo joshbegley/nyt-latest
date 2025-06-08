@@ -1,3 +1,7 @@
+**'The match of my life': Stan Wawrinka's 2015 French Open and the most famous shorts in tennis**\
+`10 years ago, Roland Garros was ready to anoint Novak Djokovic at the pinnacle of tennis. Then came Stan Wawrinka.`\
+https://nytimes.com/athletic/6410057/2025/06/08/tennis-french-open-stan-wawrinka-2015-djokovic/
+
 **National Guard to Arrive in L.A. Within 24 Hours, Federal Official Says**\
 `The top federal prosecutor in Southern California, Bilal A. “Bill” Essayli, said California “has an obligation to maintain order and maintain public safety, and they’re unable to do that right now in Los Angeles.”`\
 https://nytimes.com/2025/06/08/us/national-guard-los-angeles-deploy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411201/2025/06/08/yankees-red-sox-mlb-trade-deadli
 **The New York Times in Print for Sunday, June 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/08/todays-new-york-times
-
-**Trump’s Self-Dealing Is More Alarming Than You Think**\
-`The United States is becoming just another country with a corrupt strongman personalizing and profiting from power.`\
-https://nytimes.com/2025/06/08/opinion/trump-corruption.html
 
