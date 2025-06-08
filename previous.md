@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Tony Awards Red Carpet**\
+`As Broadway’s best and brightest arrived for the industry’s biggest night, we got an up-close look at what you couldn’t see on TV.`\
+https://nytimes.com/2025/06/08/theater/tonys-red-carpet-snapshots.html
+
 **Uriah Rennie, PL's first Black referee, dies at 65**\
 `Rennie made history in 1997 when he officiated Leeds United vs Crystal Palace, becoming the top division's first Black referee.`\
 https://nytimes.com/athletic/6412101/2025/06/08/uriah-rennie-death-premier-league-referee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412294/2025/06/08/oilers-panthers-goalie-penalties
 **The Briefing – Spain 2 Portugal 2 (3-5 on pens): Mendes vs Yamal, Ronaldo being Ronaldo, and World Cup chances**\
 `The Nations League final went the distance – here, three of our writers break down the action from the Allianz Arena in Munich`\
 https://nytimes.com/athletic/6408339/2025/06/08/spain-portugal-yamal-mendes-ronaldo/
-
-**When the National Guard Went to L.A. in 1992, the Situation Was Far Different.**\
-`The skirmishes with immigration agents of the past few days are dwarfed by the widespread rioting, vandalism and violence that engulfed whole neighborhoods in 1992.`\
-https://nytimes.com/2025/06/08/us/la-riots-1992-immigration-protests.html
 

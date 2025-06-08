@@ -1,3 +1,7 @@
+**Our Favorite Photos From the Tony Awards Red Carpet**\
+`As Broadway’s best and brightest arrived for the industry’s biggest night, we got an up-close look at what you couldn’t see on TV.`\
+https://nytimes.com/2025/06/08/theater/tonys-red-carpet-snapshots.html
+
 **Tennis needed the Alcaraz-Sinner rivalry to be epochal. Their first major final was beyond its dreams**\
 `Men's tennis needed this rivalry to be stratospheric. Their first major final against each other sent them into another galaxy`\
 https://nytimes.com/athletic/6412297/2025/06/08/alcaraz-sinner-tennis-rivalry-french-open-final/
