@@ -14,8 +14,8 @@ https://nytimes.com/2025/06/08/us/california-trump-national-guard-protests.html
 `Alcaraz produced his first comeback from two-sets-to-love down to win his second Roland Garros title against his nearest rival.`\
 https://nytimes.com/athletic/6411510/2025/06/08/alcaraz-sinner-french-open-final-tennis-result-analysis/
 
-**ABC News Suspends Terry Moran After He Calls Trump a ‘World-Class Hater’**\
-`In a late-night post on social media, Mr. Moran also derided Stephen Miller, a top presidential aide, and drew a rebuke from Vice President JD Vance.`\
+**ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’**\
+`Mr. Moran made the comment in a late-night social media post that also derided President Trump. It drew a rebuke from Vice President JD Vance.`\
 https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
 
 **Your Costco Membership Card? No, It Is Not a Replacement for Real ID.**\

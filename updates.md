@@ -1,3 +1,7 @@
+**ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’**\
+`Mr. Moran made the comment in a late-night social media post that also derided President Trump. It drew a rebuke from Vice President JD Vance.`\
+https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
+
 **Plane Carrying Up to 20 People Crashes in Tennessee**\
 `Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
 https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
