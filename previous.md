@@ -1,3 +1,19 @@
+**De Jong expects to sign new Barcelona contract: 'They want it and I want it'**\
+`The Athletic reported in March that the 28-year-old was in talks with Barca over a new deal, with his current terms running out next summer.`\
+https://nytimes.com/athletic/6411447/2025/06/08/frenkie-de-jong-barcelona-contract/
+
+**Trump Administration Live Updates: President Says He Has No Desire to Mend Ties With Musk**\
+``\
+https://nytimes.com/live/2025/06/08/us/trump-news
+
+**Are Millennials ‘Childless’ or ‘Child Free’?**\
+`Readers respond to a guest essay by Michal Leibowitz. Also: Is America no longer a beacon?`\
+https://nytimes.com/2025/06/08/opinion/millennials-children.html
+
+**‘Watch What Happens Live,’ Direct From the Oval Office**\
+`White House visits from foreign leaders used to be staid affairs. Now they play out like scenes from Bravo TV, or “Mutual of Omaha’s Wild Kingdom.”`\
+https://nytimes.com/2025/06/08/opinion/trump-reality-show-oval-office.html
+
 **Brighton bid €40m for Olympiacos' Kostoulas**\
 `The Greek club previously rejected Brighton's offer of €30m plus Abdallah Sima for their 18-year-old striker.`\
 https://nytimes.com/athletic/6411424/2025/06/08/charalampos-kostoulas-brighton-transfers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6411024/2025/06/08/canadiens-laval-rocket-pascal-vi
 **An Immigration Clash**\
 `President Trump orders the National Guard to Southern California.`\
 https://nytimes.com/2025/06/08/briefing/an-immigration-clash.html
-
-**Tottenham trigger Davies contract extension**\
-`Davies, 32, is Spurs' longest-serving player, having been at the club since 2014 following his move from Swansea City.`\
-https://nytimes.com/athletic/6309653/2025/06/08/ben-davies-tottenham-contract/
-
-**For No. 3 goalies on Stanley Cup teams, the NHL's least glamorous job still ends in glory**\
-`“You feel like you are part of the group, but it’s a little different,” one third-string goaltender for a championship team said. `\
-https://nytimes.com/athletic/6406325/2025/06/08/third-goalies-stanley-cup-nhl-playoffs/
-
-**USMNT's upbeat reaction to Turkey loss a telling sign of need to restore basics**\
-`The oddity after the USMNT's 2-1 defeat to Turkey was how optimistic the U.S. camp was about the overall effort.`\
-https://nytimes.com/athletic/6410882/2025/06/08/usmnt-turkey-pochettino-summer-gold-cup-adams/
-
-**Justice Jackson Just Helped Reset the D.E.I. Debate**\
-`How much should the law treat a person as an individual rather than as a member of a group?`\
-https://nytimes.com/2025/06/08/opinion/supreme-court-dei-racism-jackson.html
 
