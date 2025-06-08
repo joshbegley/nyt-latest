@@ -1,3 +1,11 @@
+**'We want to make it hard': Pacers' 'wear-down effect' has exhausted playoff opponents**\
+`The Pacers have used their depth and speed to fly around in transition and the half court to force opponents to make mistakes late in games.`\
+https://nytimes.com/athletic/6409338/2025/06/08/pacers-weardown-effect-defense/
+
+**Spalletti says he has been sacked as Italy head coach**\
+`The news comes after Italy lost 3-0 to Norway on Friday in the first match of their World Cup qualifying campaign.`\
+https://nytimes.com/athletic/6410468/2025/06/08/luciano-spalletti-italy-sacked/
+
 **De Jong expects to sign new Barcelona contract: 'They want it and I want it'**\
 `The Athletic reported in March that the 28-year-old was in talks with Barca over a new deal, with his current terms running out next summer.`\
 https://nytimes.com/athletic/6411447/2025/06/08/frenkie-de-jong-barcelona-contract/
