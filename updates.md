@@ -1,3 +1,7 @@
+**Jane Larkworthy, 62, a Top Magazine Writer and Editor on Beauty, Dies**\
+`She made her mark in publications like Glamour, W, Jane and Mademoiselle. In 2007, she was on the receiving end of media attention, testifying in a sensational trial.`\
+https://nytimes.com/2025/06/07/style/jane-larkworthy-dead.html
+
 **Pochettino: Tottenham return 'not realistic' despite Spurs job opening**\
 `The USMNT manager has frequently been linked with a return to Tottenham, whose coaching job just opened up again.`\
 https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spurs-ange-postecoglou/

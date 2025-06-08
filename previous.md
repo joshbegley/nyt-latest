@@ -1,3 +1,7 @@
+**Jane Larkworthy, 62, a Top Magazine Writer and Editor on Beauty, Dies**\
+`She made her mark in publications like Glamour, W, Jane and Mademoiselle. In 2007, she was on the receiving end of media attention, testifying in a sensational trial.`\
+https://nytimes.com/2025/06/07/style/jane-larkworthy-dead.html
+
 **Pochettino: Tottenham return 'not realistic' despite Spurs job opening**\
 `The USMNT manager has frequently been linked with a return to Tottenham, whose coaching job just opened up again.`\
 https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spurs-ange-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010214402/la-immigration-protesters-ice.html
 **Sovereignty surges down the stretch to win the Belmont Stakes**\
 `Sovereignty, who won the Kentucky Derby and was held out of the Preakness, passed favorite Journalism down the stretch to win decisively.`\
 https://nytimes.com/athletic/6410812/2025/06/07/sovereignty-surges-to-win-belmont-stakes/
-
-**2 Veterans Found With Stolen Military Guns and Nazi Material, Officials Say**\
-`The authorities said a soldier was assaulted with a hammer as the men tried to steal gear from a military base in Washington State. The theft led investigators to a house full of contraband.`\
-https://nytimes.com/2025/06/07/us/military-veterans-nazi-white-supremacy-arrest.html
 
