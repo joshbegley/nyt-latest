@@ -1,3 +1,11 @@
+**Tony Awards Red Carpet: See the Looks From Broadway’s Biggest Night**\
+`Leslie Odom Jr., Daniel Dae Kim, Mia Farrow and more stars arrived in style.`\
+https://nytimes.com/2025/06/08/style/tony-awards-photos-2025-red-carpet.html
+
+**Lewandowski says he will not play for Poland until head coach departs**\
+`Michal Probierz made Inter midfielder Piotr Zielinski the Poland captain to replace Lewandowski after the striker's squad withdrawal.`\
+https://nytimes.com/athletic/6412269/2025/06/08/robert-lewandowski-poland-retirement/
+
 **Here is what happened when President Johnson bypassed a governor to deploy the National Guard.**\
 `Before Saturday, the last time a president made use of Guard troops to deal with civil unrest without being asked to do so by the state’s governor was in 1965.`\
 https://nytimes.com/2025/06/08/us/lbj-national-guard-alabama-1965.html

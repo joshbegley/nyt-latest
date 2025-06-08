@@ -1,3 +1,7 @@
+**Tony Awards Red Carpet: See the Looks From Broadway’s Biggest Night**\
+`Leslie Odom Jr., Daniel Dae Kim, Mia Farrow and more stars arrived in style.`\
+https://nytimes.com/2025/06/08/style/tony-awards-photos-2025-red-carpet.html
+
 **Here is what happened when President Johnson bypassed a governor to deploy the National Guard.**\
 `Before Saturday, the last time a president made use of Guard troops to deal with civil unrest without being asked to do so by the state’s governor was in 1965.`\
 https://nytimes.com/2025/06/08/us/lbj-national-guard-alabama-1965.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-ope
 https://nytimes.com/interactive/2025/06/08/weather/cosme-map-path-tracker.html
 
 **Lewandowski says he will not play for Poland until head coach departs**\
-`Michal Probierz made Inter midfielder Piotr Zielinski the Poland captain to replace Lewandowski, after the striker's squad withdrawal.`\
+`Michal Probierz made Inter midfielder Piotr Zielinski the Poland captain to replace Lewandowski after the striker's squad withdrawal.`\
 https://nytimes.com/athletic/6412269/2025/06/08/robert-lewandowski-poland-retirement/
 
 **The Undercurrent at the WorldPride Parade in D.C.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/military-offic
 **‘Guntram’ Review: In Concert at Carnegie, Strauss’s First Opera**\
 `Leon Botstein’s American Symphony Orchestra dusts off “Guntram,” and singers unveil the beauties and flaws of a 19th-century epic fail.`\
 https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
-
-**Plane With 20 People Aboard Crashes in Tennessee**\
-`A Tullahoma, Tenn., official said the crash resulted in minor injuries. Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
-https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
 
