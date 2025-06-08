@@ -1,3 +1,11 @@
+**Tony Award Winners 2025: Updating List**\
+`The Tony Awards begin on Sunday at 8 p.m. E.T., live from Radio City Music Hall in New York City.`\
+https://nytimes.com/2025/06/08/theater/tony-award-winners.html
+
+**Who is going to win tonight?**\
+`By Michael Paulson`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/who-is-going-to-win-tonight
+
 **Our Favorite Photos From the Tony Awards Red Carpet**\
 `As Broadway’s best and brightest arrived for the industry’s biggest night, we got an up-close look at what you couldn’t see on TV.`\
 https://nytimes.com/2025/06/08/theater/tonys-red-carpet-snapshots.html

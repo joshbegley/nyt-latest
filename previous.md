@@ -1,3 +1,11 @@
+**Tony Award Winners 2025: Updating List**\
+`The Tony Awards begin on Sunday at 8 p.m. E.T., live from Radio City Music Hall in New York City.`\
+https://nytimes.com/2025/06/08/theater/tony-award-winners.html
+
+**Who is going to win tonight?**\
+`By Michael Paulson`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/who-is-going-to-win-tonight
+
 **Our Favorite Photos From the Tony Awards Red Carpet**\
 `As Broadway’s best and brightest arrived for the industry’s biggest night, we got an up-close look at what you couldn’t see on TV.`\
 https://nytimes.com/2025/06/08/theater/tonys-red-carpet-snapshots.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6412155/2025/06/08/carlos-alcaraz-french-open-socia
 **The Tunnel That Leads Underneath a Hospital in Southern Gaza**\
 `To Israelis, the location of an underground passageway highlights Hamas’s abuse of civilians. To Palestinians, Israel’s decision to target it highlights Israel’s own disregard for civilian life.`\
 https://nytimes.com/2025/06/08/world/middleeast/gaza-hospital-tunnel.html
-
-**'Enough's got to be enough': Panthers' net-front play becoming an issue for Oilers**\
-`The Oilers know they must be careful when it comes to retaliating for contact with Stuart Skinner.`\
-https://nytimes.com/athletic/6412294/2025/06/08/oilers-panthers-goalie-penalties/
-
-**The Briefing – Spain 2 Portugal 2 (3-5 on pens): Mendes vs Yamal, Ronaldo being Ronaldo, and World Cup chances**\
-`The Nations League final went the distance – here, three of our writers break down the action from the Allianz Arena in Munich`\
-https://nytimes.com/athletic/6408339/2025/06/08/spain-portugal-yamal-mendes-ronaldo/
 
