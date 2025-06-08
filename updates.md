@@ -1,3 +1,11 @@
+**Garrett Crochet wasn't at his best but still gave the Red Sox enough in win over Yankees**\
+`In a maddening season for Boston, Crochet has been one of the main reasons to watch as his team has seesawed its way through 66 games.`\
+https://nytimes.com/athletic/6411228/2025/06/08/red-sox-yankees-garrett-crochet/
+
+**Fear and sympathy at a family-run bakery in Compton.**\
+`By Ana Facio-Krajcer`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/fear-and-sympathy-at-a-family-run-bakery-in-compton
+
 **Yankees' loss to Red Sox highlights trade deadline needs**\
 `New York may be one of MLB's best teams, but Boston exploited the flaws that need to be fixed.`\
 https://nytimes.com/athletic/6411201/2025/06/08/yankees-red-sox-mlb-trade-deadline-infield/

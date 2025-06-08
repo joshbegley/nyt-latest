@@ -1,3 +1,11 @@
+**Garrett Crochet wasn't at his best but still gave the Red Sox enough in win over Yankees**\
+`In a maddening season for Boston, Crochet has been one of the main reasons to watch as his team has seesawed its way through 66 games.`\
+https://nytimes.com/athletic/6411228/2025/06/08/red-sox-yankees-garrett-crochet/
+
+**Fear and sympathy at a family-run bakery in Compton.**\
+`By Ana Facio-Krajcer`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/fear-and-sympathy-at-a-family-run-bakery-in-compton
+
 **Yankees' loss to Red Sox highlights trade deadline needs**\
 `New York may be one of MLB's best teams, but Boston exploited the flaws that need to be fixed.`\
 https://nytimes.com/athletic/6411201/2025/06/08/yankees-red-sox-mlb-trade-deadline-infield/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6394380/2025/06/08/club-world-cup-guide-real-madrid
 **Champagne shades: The NBA-inspired trend that's taking over soccer celebrations**\
 `Footballers celebrating trophy-winning moments while wearing sunglasses is a growing trend and natural evolution of American sports culture`\
 https://nytimes.com/athletic/6407684/2025/06/08/football-soccer-sunglasses-trophies-yamal-doue-olise/
-
-**Ashley Westwood managed against Manchester United. This is what he learned**\
-`The Hong Kong head coach reveals what surprised and impressed him about his old club in the sides' recent post-season friendly `\
-https://nytimes.com/athletic/6402780/2025/06/08/manchester-united-ashley-westwood-manager/
-
-**Club World Cup team guide – River Plate: An illustrious history and a future South American star**\
-`From 17-year-old Franco Mastantuono to their rivalry with Boca Juniors, this is the story of Argentina's most successful club`\
-https://nytimes.com/athletic/6409998/2025/06/08/club-world-cup-river-plate/
 
