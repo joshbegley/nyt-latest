@@ -1,3 +1,7 @@
+**Paramount, Where Protests Erupted, Has a Large Hispanic Population**\
+`Residents in the small city south of Los Angeles had been on edge since Trump returned to office, fearing deportation raids.`\
+https://nytimes.com/2025/06/08/us/paramount-california-latino-immigrants.html
+
 **'The match of my life': Stan Wawrinka's 2015 French Open and the most famous shorts in tennis**\
 `10 years ago, Roland Garros was ready to anoint Novak Djokovic at the pinnacle of tennis. Then came Stan Wawrinka.`\
 https://nytimes.com/athletic/6410057/2025/06/08/tennis-french-open-stan-wawrinka-2015-djokovic/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/fear-and-sym
 **Yankees' loss to Red Sox highlights trade deadline needs**\
 `New York may be one of MLB's best teams, but Boston exploited the flaws that need to be fixed.`\
 https://nytimes.com/athletic/6411201/2025/06/08/yankees-red-sox-mlb-trade-deadline-infield/
-
-**The New York Times in Print for Sunday, June 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/08/todays-new-york-times
 
