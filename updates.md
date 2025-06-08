@@ -1,3 +1,7 @@
+**Trump’s Feud With Musk Highlights His View of Government Power: It’s Personal**\
+`President Trump threatened to cut off Elon Musk’s federal contracts, showing that he looks at the government as his own means of penalizing those who cross him.`\
+https://nytimes.com/2025/06/08/us/politics/trump-elon-musk-fight-power.html
+
 **Ram to return to NASCAR Truck Series: 'The way we're going to do it is unlike anyone else'**\
 `Ram, which previously competed from 2001-2012, will join Chevrolet, Ford and Toyota as the fourth manufacturer participating for NASCAR.`\
 https://nytimes.com/athletic/6411502/2025/06/08/nascar-truck-series-ram/
