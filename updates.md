@@ -1,3 +1,15 @@
+**‘A Car With a Strange Wooden Contraption on the Roof Drove By’**\
+`Catapults and chocolates in Brooklyn, howling in the East Village and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/06/08/nyregion/metropolitan-diary.html
+
+**The 100-Year-Old Psychologist Is Still Listening**\
+`But with her memory suddenly starting to fail, she faces a difficult decision.`\
+https://nytimes.com/2025/06/08/nyregion/100-year-old-psychologist.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/08/crosswords/spelling-bee-forum.html
+
 **Champagne shades: The NBA-inspired trend that's taking over soccer celebrations**\
 `Footballers celebrating trophy-winning moments while wearing sunglasses is a growing trend and natural evolution of American sports culture`\
 https://nytimes.com/athletic/6407684/2025/06/08/football-soccer-sunglasses-trophies-yamal-doue-olise/
