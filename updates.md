@@ -1,3 +1,7 @@
+**The ‘Manosphere’ Just Wants Trump and Musk to Get Along**\
+`The public spat between the billionaire Elon Musk and President Trump has captivated MAGA-friendly podcasters, including Joe Rogan and Theo Von.`\
+https://nytimes.com/2025/06/08/business/media/trump-musk-feud-manosphere.html
+
 **Ukraine Says It Has Stepped Up Its Drone Game, Again**\
 `The Ukrainian military says its new weapon system, which launches antiaircraft missiles from a remote-controlled speedboat, has brought down two Russian jet fighters.`\
 https://nytimes.com/2025/06/08/world/europe/ukraine-russia-drones-weapons.html
