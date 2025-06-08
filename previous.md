@@ -1,3 +1,11 @@
+**Arrest of Union Leader Highlights Link Between Workers’ and Immigrants’ Rights**\
+`David Huerta, the president of the Service Employees International Union of California, was arrested while protesting immigration raids on work sites in Los Angeles.`\
+https://nytimes.com/2025/06/08/us/arrest-of-union-leader-highlights-link-between-workers-and-immigrants-rights.html
+
+**Former Browns RB Nick Chubb expected to sign with Texans: Sources**\
+`Chubb, 29, has missed much of the last two seasons due to knee and foot injuries.`\
+https://nytimes.com/athletic/6412442/2025/06/08/cleveland-browns-nick-chubb-houston-texans-sign/
+
 **Harvey Fierstein is receiving the lifetime achievement award.**\
 `By Nancy Coleman`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/harvey-fierstein-lifetime-achievement-tony
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/muny-st-louis-regional-t
 **Tony Award Winners 2025: Updating List**\
 `The Tony Awards begin on Sunday at 8 p.m. E.T., live from Radio City Music Hall in New York City.`\
 https://nytimes.com/2025/06/08/theater/tony-award-winners.html
-
-**Who is going to win tonight?**\
-`By Michael Paulson`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/who-is-going-to-win-tonight
-
-**Our Favorite Photos From the Tony Awards Red Carpet**\
-`As Broadway’s best and brightest arrived for the industry’s biggest night, we got an up-close look at what you couldn’t see on TV.`\
-https://nytimes.com/2025/06/08/theater/tonys-red-carpet-snapshots.html
 

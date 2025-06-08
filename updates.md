@@ -1,3 +1,11 @@
+**Arrest of Union Leader Highlights Link Between Workers’ and Immigrants’ Rights**\
+`David Huerta, the president of the Service Employees International Union of California, was arrested while protesting immigration raids on work sites in Los Angeles.`\
+https://nytimes.com/2025/06/08/us/arrest-of-union-leader-highlights-link-between-workers-and-immigrants-rights.html
+
+**Former Browns RB Nick Chubb expected to sign with Texans: Sources**\
+`Chubb, 29, has missed much of the last two seasons due to knee and foot injuries.`\
+https://nytimes.com/athletic/6412442/2025/06/08/cleveland-browns-nick-chubb-houston-texans-sign/
+
 **Harvey Fierstein is receiving the lifetime achievement award.**\
 `By Nancy Coleman`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/harvey-fierstein-lifetime-achievement-tony
