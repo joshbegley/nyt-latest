@@ -1,3 +1,7 @@
+**See a Visual Timeline of the L.A. Immigration Protests and Federal Response**\
+`President Trump called in the National Guard on Saturday after isolated clashes between federal law enforcement and people protesting immigration raids.`\
+https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map.html
+
 **ICE activity has been facing more pushback from bystanders and protesters.**\
 `By Christina Morales`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-has-been-facing-more-pushback-from-bystanders-and-protesters

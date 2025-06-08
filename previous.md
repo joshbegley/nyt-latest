@@ -1,3 +1,7 @@
+**See a Visual Timeline of the L.A. Immigration Protests and Federal Response**\
+`President Trump called in the National Guard on Saturday after isolated clashes between federal law enforcement and people protesting immigration raids.`\
+https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map.html
+
 **ICE activity has been facing more pushback from bystanders and protesters.**\
 `By Christina Morales`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/ice-activity-has-been-facing-more-pushback-from-bystanders-and-protesters
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411767/2025/06/08/jobe-bellingham-dortmund-transfe
 **2025 Tony Awards: What to Know Ahead of the Ceremony**\
 `How is Broadway doing? Who are the top contenders for awards? Our theater reporter, Michael Paulson, has some answers.`\
 https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
-
-**‘The Holy Blues’ Review: Finding the Spiritual in the Secular at BAM**\
-`Jawole Willa Jo Zollar’s new work for Alvin Ailey American Dance Theater at Brooklyn Academy of Music moves between church and twistin’ the night away.`\
-https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
 
