@@ -1,3 +1,11 @@
+**More misery for Braves, who wasted Bryce Elder's gem in another walk-off loss to Giants**\
+`The Braves have endured a week of devastating losses, and Saturday's 3-2 loss to the Giants left them reeling.`\
+https://nytimes.com/athletic/6411085/2025/06/07/braves-giants-walk-off-loss-bryce-elder/
+
+**Live Updates: Trump to Send National Guard to L.A. to Quell Immigration Protests**\
+`Gov. Gavin Newsom called the decision to call in National Guard forces after two days of protests and clashes over federal immigration raids “purposefully inflammatory.”`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests
+
 **Colombian Senator Miguel Uribe Is Shot at Campaign Event**\
 `The condition of Miguel Uribe, who belongs to a conservative party and was seeking to be its presidential nominee, was not immediately clear.`\
 https://nytimes.com/2025/06/07/world/americas/colombia-senator-shot.html

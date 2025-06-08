@@ -1,5 +1,9 @@
-**More misery for Braves, who wasted Bryce Elder's gem in another walk-off loss to Giants**\
-`The Braves have endured a week of devastating losses, and Saturday's 3-2 loss to the Giants left them reeling.`\
+**Trump Is Deploying National Guard Troops Under a Rarely Used Power**\
+`President Trump bypassed the authority of Gov. Gavin Newsom by sending 2,000 National Guard troops to quell immigration protesters.`\
+https://nytimes.com/2025/06/07/us/trump-national-guard-deploy-rare.html
+
+**More misery for Braves, who waste Bryce Elder's gem in another walk-off loss to Giants**\
+`The Braves have endured a week of devastating losses, and Saturday's 3-2 setback against the Giants left them reeling.`\
 https://nytimes.com/athletic/6411085/2025/06/07/braves-giants-walk-off-loss-bryce-elder/
 
 **Jane Larkworthy, 62, a Top Magazine Writer and Editor on Beauty, Dies**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410859/2025/06/07/cardinals-walk-off-win-over-dodg
 **Spain leads New Zealand at New York Sail Grand Prix after rainy first day**\
 `The wind was in short supply, so the race committee instructed each of the 12 teams to slash the standard crew of six to three for race one`\
 https://nytimes.com/athletic/6410947/2025/06/07/new-york-sail-grand-prix-results-day-one/
-
-**Protesters and Immigration Agents Clash Again in Los Angeles County**\
-`Protesters in Paramount, Calif., squared off with federal immigration agents by a Home Depot near a residential area where many Latinos live.`\
-https://nytimes.com/video/us/100000010214402/la-immigration-protesters-ice.html
 
