@@ -1,3 +1,11 @@
+**Israel Vows to Stop Aid Ship With Greta Thunberg Aboard From Reaching Gaza**\
+`The attempt to block the flotilla carrying the famed climate activist comes 15 years after a similar aid effort ended in deadly violence.`\
+https://nytimes.com/2025/06/08/world/middleeast/israel-gaza-aid-ship-thunberg.html
+
+**Dortmund agree €38m Jobe Bellingham transfer from Sunderland**\
+`Dortmund will pay a fixed fee of €33m (£27.8m) alongside a further €5m (£4.2m) in add-ons to Sunderland.`\
+https://nytimes.com/athletic/6411767/2025/06/08/jobe-bellingham-dortmund-transfer/
+
 **2025 Tony Awards: What to Know Ahead of the Ceremony**\
 `How is Broadway doing? Who are the top contenders for awards? Our theater reporter, Michael Paulson, has some answers.`\
 https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
