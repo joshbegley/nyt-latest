@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez, Mimi Dwyer, Shawn Hubler and Livia Albeck-Ripka`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-latest
+
+**Live Updates: L.A. Quiet as National Guard Troops Begin to Arrive**\
+`Protests over immigration raids in the Los Angeles area were expected to continue for a third day. Gov. Gavin Newsom said President Trump’s decision to call in National Guards was “purposefully inflammatory.”`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard
+
+**Spicy Shrimp Puttanesca Doesn’t Hold Back**\
+`Garlic, anchovies, capers, olives, crushed red pepper and loads of tomato paste provide real oomph.`\
+https://nytimes.com/2025/06/08/dining/easy-pasta-puttanesca-recipe-with-shrimp.html
+
+**Lowetide: How the Oilers are set up for the 2025 NHL Draft**\
+`Here's a quick look at what the picks Edmonton owns, and a possible target with the top selection.`\
+https://nytimes.com/athletic/6410453/2025/06/08/oilers-2025-nhl-draft-ranking/
+
 **Newsom criticizes Hegseth for saying that the Marines could be mobilized.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/newsom-hegseth-marines-immigration-protests
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/06/08/world/colombia-quake-tracker.html
 **Tracking Tropical Storm Barbara**\
 `See the likely path and wind arrival times for Barbara.`\
 https://nytimes.com/interactive/2025/06/08/weather/barbara-map-path-tracker.html
-
-**'We want to make it hard': Pacers' 'wear-down effect' has exhausted playoff opponents**\
-`The Pacers have used their depth and speed to fly around in transition and the half court to force opponents to make mistakes late in games.`\
-https://nytimes.com/athletic/6409338/2025/06/08/pacers-weardown-effect-defense/
-
-**Spalletti says he has been sacked as Italy head coach**\
-`The news comes after Italy lost 3-0 to Norway on Friday in the first match of their World Cup qualifying campaign.`\
-https://nytimes.com/athletic/6410468/2025/06/08/luciano-spalletti-italy-sacked/
-
-**De Jong expects to sign new Barcelona contract: 'They want it and I want it'**\
-`The Athletic reported in March that the 28-year-old was in talks with Barca over a new deal, with his current terms running out next summer.`\
-https://nytimes.com/athletic/6411447/2025/06/08/frenkie-de-jong-barcelona-contract/
-
-**Trump Administration Live Updates: President Says He Has No Desire to Mend Ties With Musk**\
-``\
-https://nytimes.com/live/2025/06/08/us/trump-news
 
