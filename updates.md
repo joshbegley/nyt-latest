@@ -1,3 +1,15 @@
+**‘The Holy Blues’ Review: Finding the Spiritual in the Secular at BAM**\
+`Jawole Willa Jo Zollar’s new work for Alvin Ailey American Dance Theater at Brooklyn Academy of Music moves between church and twistin’ the night away.`\
+https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
+
+**Rick Carlisle and Tyrese Haliburton found each other at the perfect time**\
+`For more than two decades, Rick Carlisle built elite offenses while clashing with his point guards. Then, he found Tyrese Haliburton.`\
+https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
+
+**Astros DFA Forrest Whitley, former top pitching prospect in baseball**\
+`Houston will call up left-hander Brandon Walter.`\
+https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitley/
+
 **Trump hosts SEC's Sankey, ND's Bevacqua as college leaders push for federal help**\
 `Trump has indicated he would like to help facilitate a federal solution for college sports, possibly with an executive order.`\
 https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-bevacqua-golf/

@@ -6,7 +6,7 @@ https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
 `For more than two decades, Rick Carlisle built elite offenses while clashing with his point guards. Then, he found Tyrese Haliburton.`\
 https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
 
-**Astros DFA Forrest Whitley, former top pitching prospect in baseball**\
+**Astros designate Forrest Whitley, a former top pitching prospect**\
 `Houston will call up left-hander Brandon Walter.`\
 https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitley/
 

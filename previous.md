@@ -1,3 +1,15 @@
+**‘The Holy Blues’ Review: Finding the Spiritual in the Secular at BAM**\
+`Jawole Willa Jo Zollar’s new work for Alvin Ailey American Dance Theater at Brooklyn Academy of Music moves between church and twistin’ the night away.`\
+https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
+
+**Rick Carlisle and Tyrese Haliburton found each other at the perfect time**\
+`For more than two decades, Rick Carlisle built elite offenses while clashing with his point guards. Then, he found Tyrese Haliburton.`\
+https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
+
+**Astros DFA Forrest Whitley, former top pitching prospect in baseball**\
+`Houston will call up left-hander Brandon Walter.`\
+https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitley/
+
 **Trump hosts SEC's Sankey, ND's Bevacqua as college leaders push for federal help**\
 `Trump has indicated he would like to help facilitate a federal solution for college sports, possibly with an executive order.`\
 https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-bevacqua-golf/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/newsom-hegse
 **Hojlund plays down talks of Man Utd exit: 'I have a contract until 2030'**\
 `The 22-year-old struggled for form in 2024-25, scoring just 10 times across 52 appearances including a 21-match goalless streak.`\
 https://nytimes.com/athletic/6411528/2025/06/08/rasmus-hojlund-manchester-united-transfers/
-
-**A Florida Weatherman’s Hurricane Plea Went Viral. Here’s Why.**\
-`A TV forecaster said he was not confident he could predict the paths of storms this year, touching a nerve amid concerns about how federal cuts could affect hurricane season.`\
-https://nytimes.com/2025/06/08/weather/john-morales-florida-hurricane-forecast-nbc-6.html
-
-**The Pulse: A defensive alien in the outfield**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6411088/2025/06/08/its-easy-to-dream-on-pete-crow-armstrongs-potential-plus-coco-claims-french/
-
-**Map: 6.3-Magnitude Earthquake Strikes Colombia**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/06/08/world/colombia-quake-tracker.html
 
