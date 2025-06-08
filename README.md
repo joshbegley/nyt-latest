@@ -14,8 +14,8 @@ https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/federal-offi
 `Despite the absences of Clark and White, Indiana’s offense was efficient as the ball pinballed from player to player.`\
 https://nytimes.com/athletic/6411074/2025/06/07/indiana-fever-chicago-sky-wnba-game-analysis/
 
-**Trump Is Deploying National Guard Troops Under a Rarely Used Power**\
-`President Trump bypassed the authority of Gov. Gavin Newsom by sending 2,000 National Guard troops to quell immigration protesters.`\
+**Trump Is Calling Up National Guard Troops Under a Rarely Used Power**\
+`President Trump bypassed the authority of Gov. Gavin Newsom to call up 2,000 National Guard troops to quell immigration protests.`\
 https://nytimes.com/2025/06/07/us/trump-national-guard-deploy-rare.html
 
 **More misery for Braves, who waste Bryce Elder's gem in another walk-off loss to Giants**\
