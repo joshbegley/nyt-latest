@@ -1,3 +1,7 @@
+**Ram to return to NASCAR Truck Series: 'The way we're going to do it is unlike anyone else'**\
+`Ram, which previously competed from 2001-2012, will join Chevrolet, Ford and Toyota as the fourth manufacturer participating for NASCAR.`\
+https://nytimes.com/athletic/6411502/2025/06/08/nascar-truck-series-ram/
+
 **Sabalenka praises Gauff's French Open win: 'She was the better player'**\
 `The Belarusian had highlighted the weather conditions immediately after her defeat, but has now praised her opponent's victory.`\
 https://nytimes.com/athletic/6411824/2025/06/08/french-open-roland-garros-sabalenka-gauff/
