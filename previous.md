@@ -1,3 +1,11 @@
+**California Officials Criticize President’s National Guard Deployment**\
+`State and local officials warned that the National Guard’s presence could escalate protests, while Republican lawmakers blamed state leadership for the clashes.`\
+https://nytimes.com/2025/06/08/us/california-trump-national-guard-protests.html
+
+**Game, Set, Match: Carlos Alcaraz beats Jannik Sinner to win French Open title on a tennis roller coaster**\
+`Alcaraz produced his first comeback from two-sets-to-love down to win his second Roland Garros title against his nearest rival.`\
+https://nytimes.com/athletic/6411510/2025/06/08/alcaraz-sinner-french-open-final-tennis-result-analysis/
+
 **ABC News Suspends Terry Moran After He Calls Trump a ‘World-Class Hater’**\
 `In a late-night post on social media, Mr. Moran also derided Stephen Miller, a top presidential aide, and drew a rebuke from Vice President JD Vance.`\
 https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/08/us/politics/trump-elon-musk-fight-power.html
 **Ram to return to NASCAR Truck Series: 'The way we're going to do it is unlike anyone else'**\
 `Ram, which previously competed from 2001-2012, will join Chevrolet, Ford and Toyota as the fourth manufacturer participating for NASCAR.`\
 https://nytimes.com/athletic/6411502/2025/06/08/nascar-truck-series-ram/
-
-**Sabalenka praises Gauff's French Open win: 'She was the better player'**\
-`The Belarusian had highlighted the weather conditions immediately after her defeat, but has now praised her opponent's victory.`\
-https://nytimes.com/athletic/6411824/2025/06/08/french-open-roland-garros-sabalenka-gauff/
-
-**Blue Jackets Sunday Gathering: Changes coming soon, but which UFAs stick around**\
-`The Blue Jackets could look significantly different than the club that barely missed the playoffs in April.`\
-https://nytimes.com/athletic/6410132/2025/06/08/blue-jackets-sunday-gathering-changes-coming-soon-but-which-ufas-stick-around/
 
