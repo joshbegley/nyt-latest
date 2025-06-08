@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Barbara**\
+`See the likely path and wind arrival times for Barbara.`\
+https://nytimes.com/interactive/2025/06/08/weather/barbara-map-path-tracker.html
+
 **'We want to make it hard': Pacers' 'wear-down effect' has exhausted playoff opponents**\
 `The Pacers have used their depth and speed to fly around in transition and the half court to force opponents to make mistakes late in games.`\
 https://nytimes.com/athletic/6409338/2025/06/08/pacers-weardown-effect-defense/

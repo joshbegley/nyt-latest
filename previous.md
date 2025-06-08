@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Barbara**\
+`See the likely path and wind arrival times for Barbara.`\
+https://nytimes.com/interactive/2025/06/08/weather/barbara-map-path-tracker.html
+
 **'We want to make it hard': Pacers' 'wear-down effect' has exhausted playoff opponents**\
 `The Pacers have used their depth and speed to fly around in transition and the half court to force opponents to make mistakes late in games.`\
 https://nytimes.com/athletic/6409338/2025/06/08/pacers-weardown-effect-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411434/2025/06/08/red-sox-roman-anthony-kristian-c
 **What's gone right and wrong for Oilers in Stanley Cup Final**\
 `Let’s look at three areas where Edmonton is doing well and three where it is not as the series is knotted at 1-1 heading into Game 3.`\
 https://nytimes.com/athletic/6410997/2025/06/08/oilers-panthers-nhl-stanley-cup-final-playoffs/
-
-**Red Wings at NHL Scouting Combine: Wingers who fit Detroit and what they're saying**\
-`There are a handful of wingers who fit the Red Wings' typical profile at pick No. 13 in the 2025 NHL Draft.`\
-https://nytimes.com/athletic/6408772/2025/06/08/red-wings-nhl-draft-scouting-combine/
 
