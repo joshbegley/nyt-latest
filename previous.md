@@ -1,5 +1,5 @@
-**Matt Chapman's walk-off homer sends Giants to a fourth consecutive one-run victory**\
-`The Giants played their sixth consecutive one-run game on Saturday -- their longest streak since an eight-game run in 2014.`\
+**Matt Chapman's walk-off homer sends Giants to a fourth consecutive 1-run victory**\
+`The Giants played their sixth consecutive one-run game Saturday — their longest streak since an eight-game run in 2014.`\
 https://nytimes.com/athletic/6411124/2025/06/07/matt-chapmans-walk-off-homer-sends-giants-to-a-fourth-consecutive-one-run-victory/
 
 **Gina Ortiz Jones, a Progressive, Is Elected San Antonio’s Mayor**\
