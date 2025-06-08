@@ -1,3 +1,7 @@
+**Federal officials accuse the Los Angeles police of a slow response.**\
+`Federal officials said the police department took more than two hours to respond to their call for help on Friday.`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/federal-officials-accuse-the-los-angeles-police-of-a-slow-response
+
 **Fever rout Sky 79-52 without Caitlin Clark, coach Stephanie White**\
 `Despite the absences of Clark and White, Indiana’s offense was efficient as the ball pinballed from player to player.`\
 https://nytimes.com/athletic/6411074/2025/06/07/indiana-fever-chicago-sky-wnba-game-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/world/americas/colombia-senator-shot.html
 **Hunt for Father Accused of Killing 3 Daughters Expands in Washington Forest**\
 `Travis Decker is a former member of the military who has enough wilderness survival skills to live in the woods on his own for weeks or months, the authorities said.`\
 https://nytimes.com/2025/06/07/us/manhunt-father-killing-daughters-wenatchee.html
-
-**Cardinals cash in on small-ball approach once again in walk-off win over Dodgers**\
-`Saturday's victory over the Dodgers served as the latest example of how the Cardinals generate their scrappy style of baseball into wins.`\
-https://nytimes.com/athletic/6410859/2025/06/07/cardinals-walk-off-win-over-dodgers/
 
