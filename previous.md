@@ -1,3 +1,7 @@
+**What to Know About the Immigration Protests in Los Angeles**\
+`President Trump on Saturday ordered at least 2,000 National Guard troops to California after demonstrations against a series of raids on workplaces.`\
+https://nytimes.com/2025/06/08/us/la-protests-national-guard-trump-please.html
+
 **The ‘Mansophere’ Just Wants Trump and Musk to Get Along**\
 `The public spat between the billionaire Elon Musk and President Trump has captivated MAGA-friendly podcasters, including Joe Rogan and Theo Von.`\
 https://nytimes.com/2025/06/08/business/media/trump-musk-feud-manosphere.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/us/same-sex-marriage-baptists-obergefell.html
 **Helping Save Kyiv From Drones: Volunteers, Caffeine and Vintage Guns**\
 `On a “hot night,” when Russia tries to overwhelm Kyiv’s air defenses, Ukraine relies not only on Patriot missiles, but on civilians wielding searchlights and vintage guns.`\
 https://nytimes.com/2025/06/08/world/europe/helping-save-kyiv-from-drones-volunteers-caffeine-and-vintage-guns.html
-
-**How a Hate Crime in a Southern City Foretold the Rise of the Far Right**\
-`In “Charlottesville: An American Story,” Deborah Baker retraces the events leading up to the violent Unite the Right rally in 2017 and its political aftermath.`\
-https://nytimes.com/2025/06/08/books/review/charlottesville-deborah-baker.html
 

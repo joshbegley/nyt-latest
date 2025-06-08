@@ -1,3 +1,7 @@
+**Large Area of U.S. Braces for Another Day of Severe Weather**\
+`Storms could bring 100-mile-per-hour winds, hail bigger than baseballs and a few tornadoes to northern Texas and southwest Oklahoma.`\
+https://nytimes.com/2025/06/08/weather/storms-tornado-texas-oklahoma-forecast.html
+
 **What to Know About the Immigration Protests in Los Angeles**\
 `President Trump on Saturday ordered at least 2,000 National Guard troops to California after demonstrations against a series of raids on workplaces.`\
 https://nytimes.com/2025/06/08/us/la-protests-national-guard-trump-please.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010205615/where-the-top-nyc-mayoral-can
 **Southern Baptists to Vote on Effort to Overturn Same-Sex Marriage**\
 `Motivated by their success in reversing Roe v. Wade, conservative Christian activists have a new target in Obergefell v. Hodges. They see early signs of promise.`\
 https://nytimes.com/2025/06/08/us/same-sex-marriage-baptists-obergefell.html
-
-**Helping Save Kyiv From Drones: Volunteers, Caffeine and Vintage Guns**\
-`On a “hot night,” when Russia tries to overwhelm Kyiv’s air defenses, Ukraine relies not only on Patriot missiles, but on civilians wielding searchlights and vintage guns.`\
-https://nytimes.com/2025/06/08/world/europe/helping-save-kyiv-from-drones-volunteers-caffeine-and-vintage-guns.html
 

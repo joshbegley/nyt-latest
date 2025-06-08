@@ -1,3 +1,7 @@
+**What to Know About the Immigration Protests in Los Angeles**\
+`President Trump on Saturday ordered at least 2,000 National Guard troops to California after demonstrations against a series of raids on workplaces.`\
+https://nytimes.com/2025/06/08/us/la-protests-national-guard-trump-please.html
+
 **The ‘Mansophere’ Just Wants Trump and Musk to Get Along**\
 `The public spat between the billionaire Elon Musk and President Trump has captivated MAGA-friendly podcasters, including Joe Rogan and Theo Von.`\
 https://nytimes.com/2025/06/08/business/media/trump-musk-feud-manosphere.html
