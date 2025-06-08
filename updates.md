@@ -1,3 +1,7 @@
+**Conrad Shinn, First Pilot to Land at the South Pole, Dies at 102**\
+`His Navy plane spent only 49 minutes on the ground and needed a boost from small rockets to break free from the ice and take off.`\
+https://nytimes.com/2025/06/08/obituaries/conrad-shinn-dead.html
+
 **Runaway Zebra Recaptured in a Tennessee County**\
 `The Rutherford County Sheriff’s Office, which had been searching for the animal for nearly a week, said that it was found on Sunday and returned to its owner.`\
 https://nytimes.com/2025/06/08/us/zebra-ed-tennessee-captured.html
