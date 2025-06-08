@@ -1,3 +1,11 @@
+**Ukraine Says It Has Stepped Up Its Drone Game, Again**\
+`The Ukrainian military says its new weapon system, which launches antiaircraft missiles from a remote-controlled speedboat, has brought down two Russian jet fighters.`\
+https://nytimes.com/2025/06/08/world/europe/ukraine-russia-drones-weapons.html
+
+**The New York Times International Edition in Print for Monday, June 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/08/todays-new-york-times-international-edition
+
 **Large Area of U.S. Braces for Another Day of Severe Weather**\
 `Storms could bring 100-mile-per-hour winds, hail bigger than baseballs and a few tornadoes to northern Texas and southwest Oklahoma.`\
 https://nytimes.com/2025/06/08/weather/storms-tornado-texas-oklahoma-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/08/arts/dance/misty-copeland-retiring-american-balle
 **Oprah Shamed Him. He’s Back Anyway.**\
 `Twenty years after “A Million Little Pieces” became a national scandal, James Frey is ready for a new audience.`\
 https://nytimes.com/2025/06/08/style/james-frey-next-to-heaven.html
-
-**Where the Top N.Y.C. Mayoral Candidates Stand on Key Issues**\
-`The New York City mayoral primary is just under three weeks away. Our City Hall bureau chief, Emma Fitzsimmons, highlights the two front-runners and their plans for the three main issues for voters.`\
-https://nytimes.com/video/nyregion/100000010205615/where-the-top-nyc-mayoral-candidates-stand-on-key-issues.html
-
-**Southern Baptists to Vote on Effort to Overturn Same-Sex Marriage**\
-`Motivated by their success in reversing Roe v. Wade, conservative Christian activists have a new target in Obergefell v. Hodges. They see early signs of promise.`\
-https://nytimes.com/2025/06/08/us/same-sex-marriage-baptists-obergefell.html
 
