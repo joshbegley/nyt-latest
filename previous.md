@@ -1,3 +1,15 @@
+**Cardinals cash in on small-ball approach once again in walk-off win over Dodgers**\
+`Saturday's victory over the Dodgers served as the latest example of how the Cardinals generate their scrappy style of baseball into wins.`\
+https://nytimes.com/athletic/6410859/2025/06/07/cardinals-walk-off-win-over-dodgers/
+
+**Spain leads New Zealand at New York Sail Grand Prix after rainy first day**\
+`The wind was in short supply, so the race committee instructed each of the 12 teams to slash the standard crew of six to three for race one`\
+https://nytimes.com/athletic/6410947/2025/06/07/new-york-sail-grand-prix-results-day-one/
+
+**Protesters and Immigration Agents Clash Again in Los Angeles County**\
+`Protesters in Paramount, Calif., squared off with federal immigration agents by a Home Depot near a residential area where many Latinos live.`\
+https://nytimes.com/video/us/100000010214402/la-immigration-protesters-ice.html
+
 **Sovereignty surges down the stretch to win the Belmont Stakes**\
 `Sovereignty, who won the Kentucky Derby and was held out of the Preakness, passed favorite Journalism down the stretch to win decisively.`\
 https://nytimes.com/athletic/6410812/2025/06/07/sovereignty-surges-to-win-belmont-stakes/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino
 **Trump Targets Workplaces as Immigration Crackdown Widens**\
 `Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
 https://nytimes.com/2025/06/07/us/trump-immigration-raids-workplaces.html
-
-**Bill Atkinson, Who Made Computers Easier to Use, Is Dead at 74**\
-`A designer for Apple, he created software that made it possible to display shapes, images and text on the screen and present a simulated “desktop.”`\
-https://nytimes.com/2025/06/07/technology/bill-atkinson-dead.html
-
-**These Pacers keep betting on themselves — and keep winning**\
-`After a slow start, Indiana could've chosen different paths at the trade deadline. Win or lose, staying the course was the right call.`\
-https://nytimes.com/athletic/6410697/2025/06/07/indiana-pacers-nba-finals-2025-okc-thunder/
-
-**Bolivia say no explanation given by Venezuela over 12-hour flight delay after WC defeat**\
-`Bolivia's team faced a 12-hour delay to their chartered flight back to La Paz following Friday's World Cup qualifying loss in Venezuela.`\
-https://nytimes.com/athletic/6410693/2025/06/07/world-cup-qualifying-conmebol-bolivia-venezuela/
 
