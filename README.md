@@ -1,3 +1,7 @@
+**Trump hosts SEC's Sankey, ND's Bevacqua as college leaders push for federal help**\
+`Trump has indicated he would like to help facilitate a federal solution for college sports, possibly with an executive order.`\
+https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-bevacqua-golf/
+
 **Here’s the latest.**\
 `By Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez, Mimi Dwyer, Shawn Hubler and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411088/2025/06/08/its-easy-to-dream-on-pete-crow-a
 **Map: 6.3-Magnitude Earthquake Strikes Colombia**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/08/world/colombia-quake-tracker.html
-
-**Tracking Tropical Storm Barbara**\
-`See the likely path and wind arrival times for Barbara.`\
-https://nytimes.com/interactive/2025/06/08/weather/barbara-map-path-tracker.html
 
