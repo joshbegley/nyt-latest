@@ -1,3 +1,7 @@
+**Trump hosts SEC's Sankey, ND's Bevacqua as college leaders push for federal help**\
+`Trump has indicated he would like to help facilitate a federal solution for college sports, possibly with an executive order.`\
+https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-bevacqua-golf/
+
 **Here’s the latest.**\
 `By Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez, Mimi Dwyer, Shawn Hubler and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-latest
