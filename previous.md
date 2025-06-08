@@ -1,3 +1,19 @@
+**What's gone right and wrong for Oilers in Stanley Cup Final**\
+`Let’s look at three areas where Edmonton is doing well and three where it is not as the series is knotted at 1-1 heading into Game 3.`\
+https://nytimes.com/athletic/6410997/2025/06/08/oilers-panthers-nhl-stanley-cup-final-playoffs/
+
+**Red Wings at NHL Scouting Combine: Wingers who fit Detroit and what they're saying**\
+`There are a handful of wingers who fit the Red Wings' typical profile at pick No. 13 in the 2025 NHL Draft.`\
+https://nytimes.com/athletic/6408772/2025/06/08/red-wings-nhl-draft-scouting-combine/
+
+**How Pascal Vincent is helping the Canadiens' team-building process from below in Laval**\
+`Vincent's first season as head coach of the Canadiens' AHL affiliate was an unmitigated success on several levels.`\
+https://nytimes.com/athletic/6411024/2025/06/08/canadiens-laval-rocket-pascal-vincent/
+
+**An Immigration Clash**\
+`President Trump orders the National Guard to Southern California.`\
+https://nytimes.com/2025/06/08/briefing/an-immigration-clash.html
+
 **Tottenham trigger Davies contract extension**\
 `Davies, 32, is Spurs' longest-serving player, having been at the club since 2014 following his move from Swansea City.`\
 https://nytimes.com/athletic/6309653/2025/06/08/ben-davies-tottenham-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/08/opinion/abundance-democrats-future.html
 **Jesus Has ‘More to Say Than Any Human Language Can Carry’: A Q&A With Rowan Williams**\
 `A former archbishop of Canterbury on reclaiming the human world through compassion and absolution.`\
 https://nytimes.com/2025/06/08/opinion/jesus-faith-god-compassion.html
-
-**Wordle Review No. 1,451**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 9, 2025.`\
-https://nytimes.com/2025/06/08/crosswords/wordle-review-1451.html
-
-**We Saw Medicaid Work Requirements Up Close. You Don’t Want This Chaos.**\
-`America isn’t ready for what could happen to health care.`\
-https://nytimes.com/2025/06/08/opinion/medicaid-work-requirements-arkansas.html
-
-**The 'aura' of Kyle Tucker as Cubs try to maximize a unique season**\
-`Tucker's presence gives the 40-24 Cubs a different energy and some understated swagger this season.`\
-https://nytimes.com/athletic/6410747/2025/06/08/kyle-tucker-cubs-maximize-season/
-
-**For SGA and Andrew Nembhard, NBA Finals isn't about 'making friends' — or keeping them**\
-`As their teams compete with a championship at stake, the Canadian guards are fully focused on the task at hand, not feelings.`\
-https://nytimes.com/athletic/6411110/2025/06/08/thunder-pacers-nba-shai-gilgeous-alexander-andrew-nembhard/
 
