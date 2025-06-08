@@ -1,5 +1,9 @@
+**Here is what happened when President Johnson bypassed a governor to deploy the National Guard.**\
+`Before Saturday, the last time a president made use of Guard troops to deal with civil unrest without being asked to do so by the state’s governor was in 1965.`\
+https://nytimes.com/2025/06/08/us/lbj-national-guard-alabama-1965.html
+
 **Monday Briefing: Tensions Flare in Los Angeles**\
-`Plus, the French Open’s stunning conclusions.`\
+`Plus, the French Open’s stunning finals.`\
 https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-open.html
 
 **Tracking Tropical Storm Cosme**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
 **Plane With 20 People Aboard Crashes in Tennessee**\
 `A Tullahoma, Tenn., official said the crash resulted in minor injuries. Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
 https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
-
-**The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
-`President Trump has long mused about using the military to crush protests in blue-state cities. He is now sending troops to Los Angeles.`\
-https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
 

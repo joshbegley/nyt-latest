@@ -1,3 +1,15 @@
+**Monday Briefing: Tensions Flare in Los Angeles**\
+`Plus, the French Open’s stunning conclusions.`\
+https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-open.html
+
+**Tracking Tropical Storm Cosme**\
+`See the likely path and wind arrival times for Cosme.`\
+https://nytimes.com/interactive/2025/06/08/weather/cosme-map-path-tracker.html
+
+**Lewandowski says he will not play for Poland until head coach departs**\
+`Michal Probierz made Inter midfielder Piotr Zielinski the Poland captain to replace Lewandowski, after the striker's squad withdrawal.`\
+https://nytimes.com/athletic/6412269/2025/06/08/robert-lewandowski-poland-retirement/
+
 **The Undercurrent at the WorldPride Parade in D.C.**\
 `WorldPride was held this year in Washington, D.C., under the shadow of the Trump administration’s moves that affect L.G.B.T.Q. Americans.`\
 https://nytimes.com/video/us/100000010211035/the-undercurrent-at-the-worldpride-parade-in-dc.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
 **The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
 `President Trump has long mused about using the military to crush protests in blue-state cities. He is now sending troops to Los Angeles.`\
 https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
-
-**California Officials Criticize President’s National Guard Deployment**\
-`State and local officials warned that the National Guard’s presence could escalate protests, while Republican lawmakers blamed state leadership for the clashes.`\
-https://nytimes.com/2025/06/08/us/california-trump-national-guard-protests.html
-
-**Game, Set, Match: Carlos Alcaraz comes back from the brink to beat Jannik Sinner in French Open classic**\
-`Alcaraz produced his first comeback from two-sets-to-love down to win his second Roland Garros title against his nearest rival.`\
-https://nytimes.com/athletic/6411510/2025/06/08/alcaraz-sinner-french-open-final-tennis-result-analysis/
-
-**ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’**\
-`Mr. Moran made the comment in a late-night social media post in which he also derided President Trump. It drew a rebuke from Vice President JD Vance.`\
-https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
 

@@ -1,3 +1,15 @@
+**Monday Briefing: Tensions Flare in Los Angeles**\
+`Plus, the French Open’s stunning conclusions.`\
+https://nytimes.com/2025/06/08/briefing/national-guard-protest-russia-french-open.html
+
+**Tracking Tropical Storm Cosme**\
+`See the likely path and wind arrival times for Cosme.`\
+https://nytimes.com/interactive/2025/06/08/weather/cosme-map-path-tracker.html
+
+**Lewandowski says he will not play for Poland until head coach departs**\
+`Michal Probierz made Inter midfielder Piotr Zielinski the Poland captain to replace Lewandowski, after the striker's squad withdrawal.`\
+https://nytimes.com/athletic/6412269/2025/06/08/robert-lewandowski-poland-retirement/
+
 **The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
 `President Trump has long mused about using the military to crush protests in blue-state cities. He is now sending troops to Los Angeles.`\
 https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
