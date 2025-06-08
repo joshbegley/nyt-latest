@@ -1,3 +1,7 @@
+**Another loss to the Indiana Fever. An injury to a star guard. Can the Chicago Sky recover?**\
+`Angel Reese's job gets tougher without the veteran guard. `\
+https://nytimes.com/athletic/6411230/2025/06/08/indiana-fever-chicago-sky-courtney-vandersloot-injury/
+
 **Scientifically testing the footballs Pep Guardiola and Mikel Arteta complained about in 2024-25**\
 `Investigating the subtle differences between brands of football — how much impact do they have on the way it moves?`\
 https://nytimes.com/athletic/6402044/2025/06/08/testing-footballs-loughborough-university-guardiola-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397882/2025/06/08/club-world-cup-team-guide-seattl
 **Club World Cup team guide – Pachuca: Rondon's power and a new-manager bounce**\
 `Everything you need to know about the Mexican side being led into the tournament by a new, young coach and a veteran target man`\
 https://nytimes.com/athletic/6406570/2025/06/08/club-world-cup-team-guide-pachuca-the-2024-concacaf-champions-bring-rondon-and-a-new-manager-bounce/
-
-**Who Gets to Be Italian? Voters Face a Choice.**\
-`A referendum on Sunday and Monday will give Italians the chance to loosen citizenship laws for immigrants. But it is not clear enough voters will turn out.`\
-https://nytimes.com/2025/06/08/world/europe/italy-citizenship-referendum.html
 
