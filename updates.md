@@ -1,3 +1,7 @@
+**Hunt for Father Accused of Killing 3 Daughters Expands in Washington Forest**\
+`Travis Decker is a former member of the military who has enough wilderness survival skills to live in the woods on his own for weeks or months, the authorities said.`\
+https://nytimes.com/2025/06/07/us/manhunt-father-killing-daughters-wenatchee.html
+
 **Cardinals cash in on small-ball approach once again in walk-off win over Dodgers**\
 `Saturday's victory over the Dodgers served as the latest example of how the Cardinals generate their scrappy style of baseball into wins.`\
 https://nytimes.com/athletic/6410859/2025/06/07/cardinals-walk-off-win-over-dodgers/
