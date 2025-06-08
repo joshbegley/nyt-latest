@@ -1,3 +1,15 @@
+**2025 Tony Awards: What to Know Ahead of the Ceremony**\
+`How is Broadway doing? Who are the top contenders for awards? Our theater reporter, Michael Paulson, has some answers.`\
+https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
+
+**Astros designate Forrest Whitley, a former top pitching prospect**\
+`Houston will call up left-hander Brandon Walter.`\
+https://nytimes.com/athletic/6411648/2025/06/08/astros-dfa-pitcher-forrest-whitley/
+
+**Here’s the latest.**\
+`By Livia Albeck-Ripka, Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez and Shawn Hubler`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-latest
+
 **‘The Holy Blues’ Review: Finding the Spiritual in the Secular at BAM**\
 `Jawole Willa Jo Zollar’s new work for Alvin Ailey American Dance Theater at Brooklyn Academy of Music moves between church and twistin’ the night away.`\
 https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
