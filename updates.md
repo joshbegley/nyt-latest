@@ -1,3 +1,7 @@
+**California lawmakers trade accusations over Trump’s order and the protests.**\
+`By Laurel Rosenhall`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/california-lawmakers-trade-accusations-over-trumps-order-and-the-protests
+
 **Garrett Crochet wasn't at his best but still gave the Red Sox enough in win over Yankees**\
 `In a maddening season for Boston, Crochet has been one of the main reasons to watch as his team has seesawed its way through 66 games.`\
 https://nytimes.com/athletic/6411228/2025/06/08/red-sox-yankees-garrett-crochet/

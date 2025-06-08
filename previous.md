@@ -1,3 +1,7 @@
+**California lawmakers trade accusations over Trump’s order and the protests.**\
+`By Laurel Rosenhall`\
+https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/california-lawmakers-trade-accusations-over-trumps-order-and-the-protests
+
 **Garrett Crochet wasn't at his best but still gave the Red Sox enough in win over Yankees**\
 `In a maddening season for Boston, Crochet has been one of the main reasons to watch as his team has seesawed its way through 66 games.`\
 https://nytimes.com/athletic/6411228/2025/06/08/red-sox-yankees-garrett-crochet/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410733/2025/06/08/england-andorra-madueke-chelsea-
 **Club World Cup team guide - Real Madrid: Europe's superstars who will expect to dominate with Mbappe**\
 `Everything you need to know about Madrid, Spain's 15-time kings of Europe`\
 https://nytimes.com/athletic/6394380/2025/06/08/club-world-cup-guide-real-madrid/
-
-**Champagne shades: The NBA-inspired trend that's taking over soccer celebrations**\
-`Footballers celebrating trophy-winning moments while wearing sunglasses is a growing trend and natural evolution of American sports culture`\
-https://nytimes.com/athletic/6407684/2025/06/08/football-soccer-sunglasses-trophies-yamal-doue-olise/
 
