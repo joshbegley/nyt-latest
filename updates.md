@@ -1,3 +1,7 @@
+**Colombian Senator Miguel Uribe Is Shot at Campaign Event**\
+`The condition of Miguel Uribe, who belongs to a conservative party and was seeking to be its presidential nominee, was not immediately clear.`\
+https://nytimes.com/2025/06/07/world/americas/colombia-senator-shot.html
+
 **Jane Larkworthy, 62, a Top Magazine Writer and Editor on Beauty, Dies**\
 `She made her mark in publications like Glamour, W, Jane and Mademoiselle. In 2007, she was on the receiving end of media attention, testifying in a sensational trial.`\
 https://nytimes.com/2025/06/07/style/jane-larkworthy-dead.html

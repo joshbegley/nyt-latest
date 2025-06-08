@@ -14,7 +14,7 @@ https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-
 `Federal immigration officials squared off with protesters in Los Angeles County on Saturday using tear gas and flash-bang grenades. The unrest comes just a day after raids were conducted through the city of Los Angeles.`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests
 
-**Colombian Senator Shot at Campaign Event**\
+**Colombian Senator Miguel Uribe Is Shot at Campaign Event**\
 `The condition of Miguel Uribe, who belongs to a conservative party and was seeking to be its presidential nominee, was not immediately clear.`\
 https://nytimes.com/2025/06/07/world/americas/colombia-senator-shot.html
 
