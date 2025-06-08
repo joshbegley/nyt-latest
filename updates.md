@@ -1,3 +1,7 @@
+**Sabalenka praises Gauff's French Open win: 'She was the better player'**\
+`The Belarusian had highlighted the weather conditions immediately after her defeat, but has now praised her opponent's victory.`\
+https://nytimes.com/athletic/6411824/2025/06/08/french-open-roland-garros-sabalenka-gauff/
+
 **Rick Carlisle and Tyrese Haliburton found each other at the perfect time**\
 `For more than two decades, Carlisle built elite offenses while clashing with his point guards. Then, he found Haliburton.`\
 https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
