@@ -1,3 +1,7 @@
+**The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
+`President Trump has long mused about using the military to crush protests in blue-state cities. He is now sending troops to Los Angeles.`\
+https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
+
 **The Undercurrent at the WorldPride Parade in D.C.**\
 `WorldPride was held this year in Washington, D.C., under the shadow of the Trump administration’s moves that affect L.G.B.T.Q. Americans.`\
 https://nytimes.com/video/us/100000010211035/the-undercurrent-at-the-worldpride-parade-in-dc.html
