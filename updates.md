@@ -1,3 +1,7 @@
+**Large Area of U.S. Braces for Another Day of Severe Weather**\
+`Storms could bring 100-mile-per-hour winds, hail bigger than baseballs and a few tornadoes to northern Texas and southwest Oklahoma.`\
+https://nytimes.com/2025/06/08/weather/storms-tornado-texas-oklahoma-forecast.html
+
 **What to Know About the Immigration Protests in Los Angeles**\
 `President Trump on Saturday ordered at least 2,000 National Guard troops to California after demonstrations against a series of raids on workplaces.`\
 https://nytimes.com/2025/06/08/us/la-protests-national-guard-trump-please.html
