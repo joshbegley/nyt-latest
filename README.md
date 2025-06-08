@@ -31,7 +31,7 @@ https://nytimes.com/2025/06/07/style/jane-larkworthy-dead.html
 https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spurs-ange-postecoglou/
 
 **Here is the latest.**\
-`By Hamed Aleaziz and Laurel Rosenhall`\
+`By Hamed Aleaziz, Laurel Rosenhall and Orlando Mayorquín`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest
 
 **Live Updates: Trump to Send National Guard to L.A. to Quell Immigration Protests**\
