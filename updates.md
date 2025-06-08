@@ -1,3 +1,7 @@
+**Runaway Zebra Recaptured in Tennessee County**\
+`The Rutherford County Sheriff’s Office, which had been searching for the animal for nearly a week, said that it was found on Sunday and returned to its owner.`\
+https://nytimes.com/2025/06/08/us/zebra-ed-tennessee-captured.html
+
 **Military officials scramble to specify rules of engagement for the National Guard troops in Los Angeles.**\
 `By Helene Cooper`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/military-officials-scramble-to-specify-rules-of-engagement-for-national-guard-troops
