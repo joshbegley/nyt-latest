@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Changes coming soon, but which UFAs stick around**\
+`The Blue Jackets could look significantly different than the club that barely missed the playoffs in April.`\
+https://nytimes.com/athletic/6410132/2025/06/08/blue-jackets-sunday-gathering-changes-coming-soon-but-which-ufas-stick-around/
+
 **Israel Vows to Stop Aid Ship With Greta Thunberg Aboard From Reaching Gaza**\
 `The attempt to block the flotilla carrying the famed climate activist comes 15 years after a similar aid effort ended in deadly violence.`\
 https://nytimes.com/2025/06/08/world/middleeast/israel-gaza-aid-ship-thunberg.html
