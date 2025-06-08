@@ -1,3 +1,15 @@
+**‘A Car With a Strange Wooden Contraption on the Roof Drove By’**\
+`Catapults and chocolates in Brooklyn, howling in the East Village and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/06/08/nyregion/metropolitan-diary.html
+
+**The 100-Year-Old Psychologist Is Still Listening**\
+`But with her memory suddenly starting to fail, she faces a difficult decision.`\
+https://nytimes.com/2025/06/08/nyregion/100-year-old-psychologist.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/08/crosswords/spelling-bee-forum.html
+
 **California lawmakers trade accusations over Trump’s order and the protests.**\
 `By Laurel Rosenhall`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/california-lawmakers-trade-accusations-over-trumps-order-and-the-protests
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/08/opinion/trump-corruption.html
 **Another loss to the Indiana Fever. An injury to a star guard. Can the Chicago Sky recover?**\
 `Angel Reese's job gets tougher without the veteran guard. `\
 https://nytimes.com/athletic/6411230/2025/06/08/indiana-fever-chicago-sky-courtney-vandersloot-injury/
-
-**Scientifically testing the footballs Pep Guardiola and Mikel Arteta complained about in 2024-25**\
-`Investigating the subtle differences between brands of football — how much impact do they have on the way it moves?`\
-https://nytimes.com/athletic/6402044/2025/06/08/testing-footballs-loughborough-university-guardiola-arteta/
-
-**Madueke steps up for England - as Chelsea try to prise away another English winger**\
-`'Dangerous' Madueke, 23, was a rare bright spark in a lacklustre England performance against Andorra`\
-https://nytimes.com/athletic/6410733/2025/06/08/england-andorra-madueke-chelsea-transfer/
-
-**Champagne shades: The NBA-inspired trend that's taking over soccer celebrations**\
-`Footballers celebrating trophy-winning moments while wearing sunglasses is a growing trend and natural evolution of American sports culture`\
-https://nytimes.com/athletic/6407684/2025/06/08/football-soccer-sunglasses-trophies-yamal-doue-olise/
 
