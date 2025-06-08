@@ -1,3 +1,7 @@
+**Military officials scramble to specify rules of engagement for the National Guard troops in Los Angeles.**\
+`By Helene Cooper`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/military-officials-scramble-to-specify-rules-of-engagement-for-national-guard-troops
+
 **‘Guntram’ Review: In Concert at Carnegie, Strauss’s First Opera**\
 `Leon Botstein’s American Symphony Orchestra dusts off “Guntram,” and singers unveil the beauties and flaws of a 19th-century epic fail.`\
 https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
