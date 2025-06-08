@@ -1,3 +1,7 @@
+**Gina Ortiz Jones, a Progressive, Is Elected San Antonio’s Mayor**\
+`Ms. Jones, a former under secretary of the Air Force under the Biden administration, prevailed over Rolando Pablos, a conservative with ties with to Gov. Greg Abbott.`\
+https://nytimes.com/2025/06/07/us/gina-ortiz-jones-elected-san-antonio-mayor.html
+
 **Federal officials accuse the Los Angeles police of a slow response.**\
 `Federal officials said the police department took more than two hours to respond to their call for help on Friday.`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/federal-officials-accuse-the-los-angeles-police-of-a-slow-response
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests
 **Colombian Senator Miguel Uribe Is Shot at Campaign Event**\
 `The condition of Miguel Uribe, who belongs to a conservative party and was seeking to be its presidential nominee, was not immediately clear.`\
 https://nytimes.com/2025/06/07/world/americas/colombia-senator-shot.html
-
-**Hunt for Father Accused of Killing 3 Daughters Expands in Washington Forest**\
-`Travis Decker is a former member of the military who has enough wilderness survival skills to live in the woods on his own for weeks or months, the authorities said.`\
-https://nytimes.com/2025/06/07/us/manhunt-father-killing-daughters-wenatchee.html
 
