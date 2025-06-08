@@ -1,3 +1,7 @@
+**A Florida Weatherman’s Hurricane Plea Went Viral. Here’s Why.**\
+`A TV forecaster said he was not confident he could predict the paths of storms this year, touching a nerve amid concerns about how federal cuts could affect hurricane season.`\
+https://nytimes.com/2025/06/08/weather/john-morales-florida-hurricane-forecast-nbc-6.html
+
 **The Pulse: A defensive alien in the outfield**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6411088/2025/06/08/its-easy-to-dream-on-pete-crow-armstrongs-potential-plus-coco-claims-french/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/opinion/millennials-children.html
 **‘Watch What Happens Live,’ Direct From the Oval Office**\
 `White House visits from foreign leaders used to be staid affairs. Now they play out like scenes from Bravo TV, or “Mutual of Omaha’s Wild Kingdom.”`\
 https://nytimes.com/2025/06/08/opinion/trump-reality-show-oval-office.html
-
-**Brighton bid €40m for Olympiacos' Kostoulas**\
-`The Greek club previously rejected Brighton's offer of €30m plus Abdallah Sima for their 18-year-old striker.`\
-https://nytimes.com/athletic/6411424/2025/06/08/charalampos-kostoulas-brighton-transfers/
 
