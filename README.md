@@ -1,3 +1,7 @@
+**Scientifically testing the footballs Pep Guardiola and Mikel Arteta complained about in 2024-25**\
+`Investigating the subtle differences between brands of football — how much impact do they have on the way it moves?`\
+https://nytimes.com/athletic/6402044/2025/06/08/testing-footballs-loughborough-university-guardiola-arteta/
+
 **Madueke steps up for England - as Chelsea try to prise away another English winger**\
 `'Dangerous' Madueke, 23, was a rare bright spark in a lacklustre England performance against Andorra`\
 https://nytimes.com/athletic/6410733/2025/06/08/england-andorra-madueke-chelsea-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406570/2025/06/08/club-world-cup-team-guide-pachuc
 **Who Gets to Be Italian? Voters Face a Choice.**\
 `A referendum on Sunday and Monday will give Italians the chance to loosen citizenship laws for immigrants. But it is not clear enough voters will turn out.`\
 https://nytimes.com/2025/06/08/world/europe/italy-citizenship-referendum.html
-
-**Quote of the Day: China, Trying to Beat U.S., Attracts African Students**\
-`Quotation of the Day for Sunday, June 8, 2025.`\
-https://nytimes.com/2025/06/08/pageoneplus/quote-of-the-day-china-trying-to-beat-us-attracts-african-students.html
 
