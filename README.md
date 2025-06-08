@@ -1,3 +1,15 @@
+**Uriah Rennie, PL's first Black referee, dies at 65**\
+`Rennie made history in 1997 when he officiated Leeds United vs Crystal Palace, becoming the top division's first Black referee.`\
+https://nytimes.com/athletic/6412101/2025/06/08/uriah-rennie-death-premier-league-referee/
+
+**Here’s what to see on Broadway (and beyond) this summer.**\
+`By Nicole Herrington`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/heres-what-to-see-on-broadway-and-beyond-this-summer
+
+**Pond Honker**\
+`Aimee Lucido takes a minimalist approach.`\
+https://nytimes.com/2025/06/08/crosswords/daily-puzzle-2025-06-09.html
+
 **Deportee’s Lawyers Push for Contempt Proceedings Despite His Return**\
 `Kilmar Armando Abrego Garcia’s lawyers accused the Trump administration of spending months “engaged in an elaborate, all-of-government effort to defy court orders.”`\
 https://nytimes.com/2025/06/08/us/politics/abrego-garcia-justice-department-contempt-proceedings.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/08/us/la-riots-1992-immigration-protests.html
 **Tonys 2025 Live Updates: Stars of a Record-Breaking Season Arrive on Red Carpet**\
 `Broadway will celebrate its year of artistic triumphs and record box office grosses in a ceremony hosted by Cynthia Erivo. There’s a “Hamilton” performance as well.`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards
-
-**Elliott wary of 'wasting years of career' amid limited Liverpool game time**\
-`The 22-year-old's two league starts in 2024-25 came after Arne Slot's side had already secured the title.`\
-https://nytimes.com/athletic/6411989/2025/06/08/harvey-elliott-liverpool-transfer-future/
-
-**Here’s what to expect at tonight’s ceremony.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/heres-what-to-expect-at-tonights-ceremony
-
-**How to watch the Tony Awards.**\
-`The main event will be broadcast at 8 p.m. Eastern on CBS and livestreamed for Paramount+ with Showtime subscribers.`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/how-to-watch-the-tony-awards
 
