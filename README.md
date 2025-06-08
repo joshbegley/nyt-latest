@@ -1,3 +1,7 @@
+**Fever rout Sky 79-52 without Caitlin Clark, coach Stephanie White**\
+`Despite the absences of Clark and White, Indiana’s offense was efficient as the ball pinballed from player to player.`\
+https://nytimes.com/athletic/6411074/2025/06/07/indiana-fever-chicago-sky-wnba-game-analysis/
+
 **Trump Is Deploying National Guard Troops Under a Rarely Used Power**\
 `President Trump bypassed the authority of Gov. Gavin Newsom by sending 2,000 National Guard troops to quell immigration protesters.`\
 https://nytimes.com/2025/06/07/us/trump-national-guard-deploy-rare.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/us/manhunt-father-killing-daughters-wenatchee.htm
 **Cardinals cash in on small-ball approach once again in walk-off win over Dodgers**\
 `Saturday's victory over the Dodgers served as the latest example of how the Cardinals generate their scrappy style of baseball into wins.`\
 https://nytimes.com/athletic/6410859/2025/06/07/cardinals-walk-off-win-over-dodgers/
-
-**Spain leads New Zealand at New York Sail Grand Prix after rainy first day**\
-`The wind was in short supply, so the race committee instructed each of the 12 teams to slash the standard crew of six to three for race one`\
-https://nytimes.com/athletic/6410947/2025/06/07/new-york-sail-grand-prix-results-day-one/
 

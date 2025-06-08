@@ -1,3 +1,11 @@
+**Trump Is Deploying National Guard Troops Under a Rarely Used Power**\
+`President Trump bypassed the authority of Gov. Gavin Newsom by sending 2,000 National Guard troops to quell immigration protesters.`\
+https://nytimes.com/2025/06/07/us/trump-national-guard-deploy-rare.html
+
+**More misery for Braves, who waste Bryce Elder's gem in another walk-off loss to Giants**\
+`The Braves have endured a week of devastating losses, and Saturday's 3-2 setback against the Giants left them reeling.`\
+https://nytimes.com/athletic/6411085/2025/06/07/braves-giants-walk-off-loss-bryce-elder/
+
 **More misery for Braves, who wasted Bryce Elder's gem in another walk-off loss to Giants**\
 `The Braves have endured a week of devastating losses, and Saturday's 3-2 loss to the Giants left them reeling.`\
 https://nytimes.com/athletic/6411085/2025/06/07/braves-giants-walk-off-loss-bryce-elder/
