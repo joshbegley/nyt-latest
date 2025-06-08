@@ -1,3 +1,11 @@
+**Tennis needed the Alcaraz-Sinner rivalry to be epochal. Their first major final was beyond its dreams**\
+`Men's tennis needed this rivalry to be stratospheric. Their first major final against each other sent them into another galaxy`\
+https://nytimes.com/athletic/6412297/2025/06/08/alcaraz-sinner-tennis-rivalry-french-open-final/
+
+**'I barely sat down': Reactions to Carlos Alcaraz's epic French Open win**\
+`The French Open men's final was an emotional rollercoaster for anyone who watched, including journalists, fans and tennis stars themselves.`\
+https://nytimes.com/athletic/6412155/2025/06/08/carlos-alcaraz-french-open-social-reactions/
+
 **Uriah Rennie, PL's first Black referee, dies at 65**\
 `Rennie made history in 1997 when he officiated Leeds United vs Crystal Palace, becoming the top division's first Black referee.`\
 https://nytimes.com/athletic/6412101/2025/06/08/uriah-rennie-death-premier-league-referee/

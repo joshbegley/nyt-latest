@@ -15,8 +15,12 @@ https://nytimes.com/2025/06/08/crosswords/daily-puzzle-2025-06-09.html
 https://nytimes.com/2025/06/08/us/politics/abrego-garcia-justice-department-contempt-proceedings.html
 
 **Tennis needed the Alcaraz-Sinner rivalry to be epochal. Their first major final was beyond its dreams**\
-`Men's tennis needed this rivalry to be stratospheric. Their first major final against each other sent them into another galaxy.`\
+`Men's tennis needed this rivalry to be stratospheric. Their first major final against each other sent them into another galaxy`\
 https://nytimes.com/athletic/6412297/2025/06/08/alcaraz-sinner-tennis-rivalry-french-open-final/
+
+**'I barely sat down': Reactions to Carlos Alcaraz's epic French Open win**\
+`The French Open men's final was an emotional rollercoaster for anyone who watched, including journalists, fans and tennis stars themselves.`\
+https://nytimes.com/athletic/6412155/2025/06/08/carlos-alcaraz-french-open-social-reactions/
 
 **The Tunnel That Leads Underneath a Hospital in Southern Gaza**\
 `To Israelis, the location of an underground passageway highlights Hamas’s abuse of civilians. To Palestinians, Israel’s decision to target it highlights Israel’s own disregard for civilian life.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6408339/2025/06/08/spain-portugal-yamal-mendes-rona
 **When the National Guard Went to L.A. in 1992, the Situation Was Far Different.**\
 `The skirmishes with immigration agents of the past few days are dwarfed by the widespread rioting, vandalism and violence that engulfed whole neighborhoods in 1992.`\
 https://nytimes.com/2025/06/08/us/la-riots-1992-immigration-protests.html
-
-**Tonys 2025 Live Updates: Stars of a Record-Breaking Season Arrive on Red Carpet**\
-`Broadway will celebrate its year of artistic triumphs and record box office grosses in a ceremony hosted by Cynthia Erivo. There’s a “Hamilton” performance as well.`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards
 
