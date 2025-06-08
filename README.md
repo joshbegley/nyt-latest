@@ -23,7 +23,7 @@ https://nytimes.com/2025/06/08/arts/music/guntram-review-concert-strauss.html
 https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
 
 **The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
-`President Trump has long mused about using the military to crush violent protests or riots in blue-state cities. He is now sending troops to Los Angeles.`\
+`President Trump has long mused about using the military to crush protests in blue-state cities. He is now sending troops to Los Angeles.`\
 https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
 
 **California Officials Criticize President’s National Guard Deployment**\

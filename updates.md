@@ -1,3 +1,19 @@
+**The Undercurrent at the WorldPride Parade in D.C.**\
+`WorldPride was held this year in Washington, D.C., under the shadow of the Trump administration’s moves that affect L.G.B.T.Q. Americans.`\
+https://nytimes.com/video/us/100000010211035/the-undercurrent-at-the-worldpride-parade-in-dc.html
+
+**Plane With 20 People Aboard Crashes in Tennessee**\
+`A Tullahoma, Tenn., official said the crash resulted in minor injuries. Some of those on board were airlifted to hospitals, the Tennessee Highway Patrol said.`\
+https://nytimes.com/2025/06/08/us/plane-crash-tennessee.html
+
+**The Legal Issues Surrounding Trump’s Plan to Use Troops to Suppress Protests**\
+`President Trump has long mused about using the military to crush violent protests or riots in blue-state cities. He is now sending troops to Los Angeles.`\
+https://nytimes.com/2025/06/08/us/trump-los-angeles-national-guard-explainer.html
+
+**ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’**\
+`Mr. Moran made the comment in a late-night social media post in which he also derided President Trump. It drew a rebuke from Vice President JD Vance.`\
+https://nytimes.com/2025/06/08/business/media/abc-news-terry-moran-suspended.html
+
 **Conrad Shinn, First Pilot to Land at the South Pole, Dies at 102**\
 `His Navy plane spent only 49 minutes on the ground and needed a boost from small rockets to break free from the ice and take off.`\
 https://nytimes.com/2025/06/08/obituaries/conrad-shinn-dead.html
