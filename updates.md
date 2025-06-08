@@ -1,3 +1,7 @@
+**National Guard to Arrive in L.A. Within 24 Hours, Federal Official Says**\
+`The top federal prosecutor in Southern California, Bilal A. “Bill” Essayli, said California “has an obligation to maintain order and maintain public safety, and they’re unable to do that right now in Los Angeles.”`\
+https://nytimes.com/2025/06/08/us/national-guard-los-angeles-deploy.html
+
 **‘A Car With a Strange Wooden Contraption on the Roof Drove By’**\
 `Catapults and chocolates in Brooklyn, howling in the East Village and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/06/08/nyregion/metropolitan-diary.html
