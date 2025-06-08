@@ -1,3 +1,7 @@
+**Hojlund plays down talks of Man Utd exit: 'I have a contract until 2030'**\
+`The 22-year-old struggled for form in 2024-25, scoring just 10 times across 52 appearances including a 21-match goalless streak.`\
+https://nytimes.com/athletic/6411528/2025/06/08/rasmus-hojlund-manchester-united-transfers/
+
 **A Florida Weatherman’s Hurricane Plea Went Viral. Here’s Why.**\
 `A TV forecaster said he was not confident he could predict the paths of storms this year, touching a nerve amid concerns about how federal cuts could affect hurricane season.`\
 https://nytimes.com/2025/06/08/weather/john-morales-florida-hurricane-forecast-nbc-6.html
