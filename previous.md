@@ -1,3 +1,7 @@
+**Sources: MLS, players not close on new Club World Cup bonus agreement**\
+`MLS made its players a new Club World Cup bonus offer, but the MLSPA calls the proposal "retaliatory" in a contentious back-and-forth`\
+https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus-money-agreement/
+
 **See a Visual Timeline of the L.A. Immigration Protests and Federal Response**\
 `President Trump called in the National Guard on Saturday after isolated clashes between federal law enforcement and people protesting immigration raids.`\
 https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/world/middleeast/israel-gaza-aid-ship-thunberg.ht
 **Dortmund agree €38m Jobe Bellingham transfer from Sunderland**\
 `Dortmund will pay a fixed fee of €33m (£27.8m) alongside a further €5m (£4.2m) in add-ons to Sunderland.`\
 https://nytimes.com/athletic/6411767/2025/06/08/jobe-bellingham-dortmund-transfer/
-
-**2025 Tony Awards: What to Know Ahead of the Ceremony**\
-`How is Broadway doing? Who are the top contenders for awards? Our theater reporter, Michael Paulson, has some answers.`\
-https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
 

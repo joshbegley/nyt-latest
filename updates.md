@@ -1,3 +1,7 @@
+**Sources: MLS, players not close on new Club World Cup bonus agreement**\
+`MLS made its players a new Club World Cup bonus offer, but the MLSPA calls the proposal "retaliatory" in a contentious back-and-forth`\
+https://nytimes.com/athletic/6408980/2025/06/08/mls-players-club-world-cup-bonus-money-agreement/
+
 **See a Visual Timeline of the L.A. Immigration Protests and Federal Response**\
 `President Trump called in the National Guard on Saturday after isolated clashes between federal law enforcement and people protesting immigration raids.`\
 https://nytimes.com/interactive/2025/06/08/us/la-immigration-protests-photos-map.html
