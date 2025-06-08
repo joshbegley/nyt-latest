@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spur
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest
 
 **Live Updates: Trump to Send National Guard to L.A. to Quell Immigration Protests**\
-`Federal immigration officials squared off with protesters in Los Angeles County on Saturday using tear gas and flash-bang grenades. The unrest comes just a day after raids were conducted through the city of Los Angeles.`\
+`Gov. Gavin Newsom called the decision to call in National Guard forces after two days of protests and clashes over federal immigration raids “purposefully inflammatory.”`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests
 
 **Colombian Senator Miguel Uribe Is Shot at Campaign Event**\
