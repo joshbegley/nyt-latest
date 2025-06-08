@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Changes coming soon, but which UFAs stick around**\
+`The Blue Jackets could look significantly different than the club that barely missed the playoffs in April.`\
+https://nytimes.com/athletic/6410132/2025/06/08/blue-jackets-sunday-gathering-changes-coming-soon-but-which-ufas-stick-around/
+
 **Israel Vows to Stop Aid Ship With Greta Thunberg Aboard From Reaching Gaza**\
 `The attempt to block the flotilla carrying the famed climate activist comes 15 years after a similar aid effort ended in deadly violence.`\
 https://nytimes.com/2025/06/08/world/middleeast/israel-gaza-aid-ship-thunberg.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-late
 **Live Updates: L.A. Quiet as National Guard Troops Begin to Arrive**\
 `Protests over immigration raids in the Los Angeles area were expected to continue for a third day. Gov. Gavin Newsom said President Trump’s decision to call in National Guards was “purposefully inflammatory.”`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard
-
-**Spicy Shrimp Puttanesca Doesn’t Hold Back**\
-`Garlic, anchovies, capers, olives, crushed red pepper and loads of tomato paste provide real oomph.`\
-https://nytimes.com/2025/06/08/dining/easy-pasta-puttanesca-recipe-with-shrimp.html
 
