@@ -1,3 +1,7 @@
+**Rick Carlisle and Tyrese Haliburton found each other at the perfect time**\
+`For more than two decades, Carlisle built elite offenses while clashing with his point guards. Then, he found Haliburton.`\
+https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
+
 **Blue Jackets Sunday Gathering: Changes coming soon, but which UFAs stick around**\
 `The Blue Jackets could look significantly different than the club that barely missed the playoffs in April.`\
 https://nytimes.com/athletic/6410132/2025/06/08/blue-jackets-sunday-gathering-changes-coming-soon-but-which-ufas-stick-around/

@@ -1,3 +1,7 @@
+**Sabalenka praises Gauff's French Open win: 'She was the better player'**\
+`The Belarusian had highlighted the weather conditions immediately after her defeat, but has now praised her opponent's victory.`\
+https://nytimes.com/athletic/6411824/2025/06/08/french-open-roland-garros-sabalenka-gauff/
+
 **Blue Jackets Sunday Gathering: Changes coming soon, but which UFAs stick around**\
 `The Blue Jackets could look significantly different than the club that barely missed the playoffs in April.`\
 https://nytimes.com/athletic/6410132/2025/06/08/blue-jackets-sunday-gathering-changes-coming-soon-but-which-ufas-stick-around/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411632/2025/06/08/donald-trump-greg-sankey-pete-be
 **Here’s the latest.**\
 `By Livia Albeck-Ripka, Laurel Rosenhall, Orlando Mayorquín, Jesus Jiménez and Shawn Hubler`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/heres-the-latest
-
-**Live Updates: L.A. Quiet as National Guard Troops Begin to Arrive**\
-`Protests over immigration raids in the Los Angeles area were expected to continue for a third day. Gov. Gavin Newsom said President Trump’s decision to call in National Guards was “purposefully inflammatory.”`\
-https://nytimes.com/live/2025/06/08/us/la-protests-national-guard
 

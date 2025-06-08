@@ -19,7 +19,7 @@ https://nytimes.com/2025/06/08/theater/2025-tony-awards-broadway-nominees.html
 https://nytimes.com/2025/06/08/arts/dance/the-holy-blues-review-bam.html
 
 **Rick Carlisle and Tyrese Haliburton found each other at the perfect time**\
-`For more than two decades, Rick Carlisle built elite offenses while clashing with his point guards. Then, he found Tyrese Haliburton.`\
+`For more than two decades, Carlisle built elite offenses while clashing with his point guards. Then, he found Haliburton.`\
 https://nytimes.com/athletic/6411547/2025/06/08/tyrese-haliburton-rick-carlisle-pacers-nba-finals/
 
 **Astros designate Forrest Whitley, a former top pitching prospect**\
