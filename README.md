@@ -1,3 +1,7 @@
+**Hunt for Father Accused of Killing 3 Daughters Expands in Washington Forest**\
+`Travis Decker is a former member of the military who has enough wilderness survival skills to live in the woods on his own for weeks or months, the authorities said.`\
+https://nytimes.com/2025/06/07/us/manhunt-father-killing-daughters-wenatchee.html
+
 **Cardinals cash in on small-ball approach once again in walk-off win over Dodgers**\
 `Saturday's victory over the Dodgers served as the latest example of how the Cardinals generate their scrappy style of baseball into wins.`\
 https://nytimes.com/athletic/6410859/2025/06/07/cardinals-walk-off-win-over-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/07/crosswords/daily-puzzle-2025-06-08.html
 **USMNT 1-2 Turkey: Pochettino's side suffers third loss in a row**\
 `After taking a first-minute lead, the U.S. gave up two in quick succession and fell to Turkey in a Gold Cup tune-up.`\
 https://nytimes.com/athletic/6410550/2025/06/07/usmnt-turkey-friendly-pochettino-mcglynn-johnny-guler/
-
-**Trump Targets Workplaces as Immigration Crackdown Widens**\
-`Many industries have become dependent on immigrant labor. Some workplace raids have been met with protest.`\
-https://nytimes.com/2025/06/07/us/trump-immigration-raids-workplaces.html
 
