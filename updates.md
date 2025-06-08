@@ -1,3 +1,7 @@
+**Read Gov. Gavin Newsom’s Letter to Defense Secretary Pete Hegseth**\
+`On Sunday, Gov. Gavin Newsom of California sent a letter by email to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
+https://nytimes.com/interactive/2025/06/08/us/office-of-the-governor.html
+
 **Newsom Tried to Placate Trump This Year. That Approach Might Be Over.**\
 `It will be hard for Gov. Gavin Newsom to maintain his political balancing act after President Trump defied his wishes and sent troops to Los Angeles.`\
 https://nytimes.com/2025/06/08/us/newsom-trump-protests.html

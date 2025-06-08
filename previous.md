@@ -1,3 +1,7 @@
+**Read Gov. Gavin Newsom’s Letter to Defense Secretary Pete Hegseth**\
+`On Sunday, Gov. Gavin Newsom of California sent a letter by email to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
+https://nytimes.com/interactive/2025/06/08/us/office-of-the-governor.html
+
 **Newsom Tried to Placate Trump This Year. That Approach Might Be Over.**\
 `It will be hard for Gov. Gavin Newsom to maintain his political balancing act after President Trump defied his wishes and sent troops to Los Angeles.`\
 https://nytimes.com/2025/06/08/us/newsom-trump-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412101/2025/06/08/uriah-rennie-death-premier-leagu
 **Here’s what to see on Broadway (and beyond) this summer.**\
 `By Nicole Herrington`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/heres-what-to-see-on-broadway-and-beyond-this-summer
-
-**Pond Honker**\
-`Aimee Lucido takes a minimalist approach.`\
-https://nytimes.com/2025/06/08/crosswords/daily-puzzle-2025-06-09.html
 
