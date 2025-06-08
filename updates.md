@@ -1,3 +1,27 @@
+**Who Gets to Be Italian? Voters Face a Choice.**\
+`A referendum on Sunday and Monday will give Italians the chance to loosen citizenship laws for immigrants. But it is not clear enough voters will turn out.`\
+https://nytimes.com/2025/06/08/world/europe/italy-citizenship-referendum.html
+
+**Quote of the Day: China, Trying to Beat U.S., Attracts African Students**\
+`Quotation of the Day for Sunday, June 8, 2025.`\
+https://nytimes.com/2025/06/08/pageoneplus/quote-of-the-day-china-trying-to-beat-us-attracts-african-students.html
+
+**Japan Flexes Its Military Muscle at China, and Trump**\
+`A highly visible missile base on Okinawa is part of a Japanese defense buildup made amid fears of Beijing’s growing power and questions about U.S. commitment.`\
+https://nytimes.com/2025/06/08/world/asia/japan-military-trump-china.html
+
+**Hero or Traitor? A Long-Dead Soccer Star Is Revived, and Reviled.**\
+`Efforts in the Polish region of Silesia to honor Ernest Wilimowski, a local star who played for the national teams of both Poland and Nazi Germany, are raising tricky questions about national loyalty and betrayal.`\
+https://nytimes.com/2025/06/08/world/europe/poland-silesia-soccer-star-tension.html
+
+**Connections: Sports Edition Coach: Hints for June 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6411120/2025/06/08/connections-sports-edition-hints-for-june-8-2025/
+
+**No Corrections: June 8, 2025**\
+`No corrections appeared in print on Sunday, June 8, 2025.`\
+https://nytimes.com/2025/06/08/pageoneplus/no-corrections-june-8-2025.html
+
 **Here is the latest.**\
 `By Hamed Aleaziz, Laurel Rosenhall and Orlando Mayorquín`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest

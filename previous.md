@@ -1,3 +1,27 @@
+**Who Gets to Be Italian? Voters Face a Choice.**\
+`A referendum on Sunday and Monday will give Italians the chance to loosen citizenship laws for immigrants. But it is not clear enough voters will turn out.`\
+https://nytimes.com/2025/06/08/world/europe/italy-citizenship-referendum.html
+
+**Quote of the Day: China, Trying to Beat U.S., Attracts African Students**\
+`Quotation of the Day for Sunday, June 8, 2025.`\
+https://nytimes.com/2025/06/08/pageoneplus/quote-of-the-day-china-trying-to-beat-us-attracts-african-students.html
+
+**Japan Flexes Its Military Muscle at China, and Trump**\
+`A highly visible missile base on Okinawa is part of a Japanese defense buildup made amid fears of Beijing’s growing power and questions about U.S. commitment.`\
+https://nytimes.com/2025/06/08/world/asia/japan-military-trump-china.html
+
+**Hero or Traitor? A Long-Dead Soccer Star Is Revived, and Reviled.**\
+`Efforts in the Polish region of Silesia to honor Ernest Wilimowski, a local star who played for the national teams of both Poland and Nazi Germany, are raising tricky questions about national loyalty and betrayal.`\
+https://nytimes.com/2025/06/08/world/europe/poland-silesia-soccer-star-tension.html
+
+**Connections: Sports Edition Coach: Hints for June 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6411120/2025/06/08/connections-sports-edition-hints-for-june-8-2025/
+
+**No Corrections: June 8, 2025**\
+`No corrections appeared in print on Sunday, June 8, 2025.`\
+https://nytimes.com/2025/06/08/pageoneplus/no-corrections-june-8-2025.html
+
 **Matt Chapman's walk-off homer sends Giants to a fourth consecutive 1-run victory**\
 `The Giants played their sixth consecutive one-run game Saturday — their longest streak since an eight-game run in 2014.`\
 https://nytimes.com/athletic/6411124/2025/06/07/matt-chapmans-walk-off-homer-sends-giants-to-a-fourth-consecutive-one-run-victory/
@@ -13,28 +37,4 @@ https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/federal-offi
 **Fever rout Sky 79-52 without Caitlin Clark, coach Stephanie White**\
 `Despite the absences of Clark and White, Indiana’s offense was efficient as the ball pinballed from player to player.`\
 https://nytimes.com/athletic/6411074/2025/06/07/indiana-fever-chicago-sky-wnba-game-analysis/
-
-**Trump Is Deploying National Guard Troops Under a Rarely Used Power**\
-`President Trump bypassed the authority of Gov. Gavin Newsom by sending 2,000 National Guard troops to quell immigration protesters.`\
-https://nytimes.com/2025/06/07/us/trump-national-guard-deploy-rare.html
-
-**More misery for Braves, who waste Bryce Elder's gem in another walk-off loss to Giants**\
-`The Braves have endured a week of devastating losses, and Saturday's 3-2 setback against the Giants left them reeling.`\
-https://nytimes.com/athletic/6411085/2025/06/07/braves-giants-walk-off-loss-bryce-elder/
-
-**Jane Larkworthy, 62, a Top Magazine Writer and Editor on Beauty, Dies**\
-`She made her mark in publications like Glamour, W, Jane and Mademoiselle. In 2007, she was on the receiving end of media attention, testifying in a sensational trial.`\
-https://nytimes.com/2025/06/07/style/jane-larkworthy-dead.html
-
-**Pochettino: Tottenham return 'not realistic' despite Spurs job opening**\
-`The USMNT manager has frequently been linked with a return to Tottenham, whose coaching job just opened up again.`\
-https://nytimes.com/athletic/6411070/2025/06/07/pochettino-tottenham-return-spurs-ange-postecoglou/
-
-**Here is the latest.**\
-`By Hamed Aleaziz, Laurel Rosenhall and Orlando Mayorquín`\
-https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/here-is-the-latest
-
-**Live Updates: Trump to Send National Guard to L.A. to Quell Immigration Protests**\
-`Gov. Gavin Newsom called the decision to call in National Guard forces after two days of protests and clashes over federal immigration raids “purposefully inflammatory.”`\
-https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests
 
