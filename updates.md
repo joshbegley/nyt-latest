@@ -1,3 +1,7 @@
+**Runaway Zebra Recaptured in a Tennessee County**\
+`The Rutherford County Sheriff’s Office, which had been searching for the animal for nearly a week, said that it was found on Sunday and returned to its owner.`\
+https://nytimes.com/2025/06/08/us/zebra-ed-tennessee-captured.html
+
 **Runaway Zebra Recaptured in Tennessee County**\
 `The Rutherford County Sheriff’s Office, which had been searching for the animal for nearly a week, said that it was found on Sunday and returned to its owner.`\
 https://nytimes.com/2025/06/08/us/zebra-ed-tennessee-captured.html
