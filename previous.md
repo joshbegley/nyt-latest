@@ -1,3 +1,7 @@
+**Tottenham trigger Davies contract extension**\
+`Davies, 32, is Spurs' longest-serving player, having been at the club since 2014 following his move from Swansea City.`\
+https://nytimes.com/athletic/6309653/2025/06/08/ben-davies-tottenham-contract/
+
 **For No. 3 goalies on Stanley Cup teams, the NHL's least glamorous job still ends in glory**\
 `“You feel like you are part of the group, but it’s a little different,” one third-string goaltender for a championship team said. `\
 https://nytimes.com/athletic/6406325/2025/06/08/third-goalies-stanley-cup-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6410747/2025/06/08/kyle-tucker-cubs-maximize-season
 **For SGA and Andrew Nembhard, NBA Finals isn't about 'making friends' — or keeping them**\
 `As their teams compete with a championship at stake, the Canadian guards are fully focused on the task at hand, not feelings.`\
 https://nytimes.com/athletic/6411110/2025/06/08/thunder-pacers-nba-shai-gilgeous-alexander-andrew-nembhard/
-
-**Connections Companion No. 729**\
-`Scroll down for hints and conversation about the puzzle for Monday, June 9, 2025.`\
-https://nytimes.com/2025/06/08/crosswords/connections-companion-729.html
 

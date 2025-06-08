@@ -1,3 +1,7 @@
+**Tottenham trigger Davies contract extension**\
+`Davies, 32, is Spurs' longest-serving player, having been at the club since 2014 following his move from Swansea City.`\
+https://nytimes.com/athletic/6309653/2025/06/08/ben-davies-tottenham-contract/
+
 **For No. 3 goalies on Stanley Cup teams, the NHL's least glamorous job still ends in glory**\
 `“You feel like you are part of the group, but it’s a little different,” one third-string goaltender for a championship team said. `\
 https://nytimes.com/athletic/6406325/2025/06/08/third-goalies-stanley-cup-nhl-playoffs/
