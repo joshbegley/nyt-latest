@@ -1,3 +1,7 @@
+**National Guard to Arrive in L.A. Within 24 Hours, Federal Official Says**\
+`The top federal prosecutor in Southern California, Bilal A. “Bill” Essayli, said California “has an obligation to maintain order and maintain public safety, and they’re unable to do that right now in Los Angeles.”`\
+https://nytimes.com/2025/06/08/us/national-guard-los-angeles-deploy.html
+
 **‘A Car With a Strange Wooden Contraption on the Roof Drove By’**\
 `Catapults and chocolates in Brooklyn, howling in the East Village and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/06/08/nyregion/metropolitan-diary.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/08/todays-new-york-times
 **Trump’s Self-Dealing Is More Alarming Than You Think**\
 `The United States is becoming just another country with a corrupt strongman personalizing and profiting from power.`\
 https://nytimes.com/2025/06/08/opinion/trump-corruption.html
-
-**Another loss to the Indiana Fever. An injury to a star guard. Can the Chicago Sky recover?**\
-`Angel Reese's job gets tougher without the veteran guard. `\
-https://nytimes.com/athletic/6411230/2025/06/08/indiana-fever-chicago-sky-courtney-vandersloot-injury/
 
