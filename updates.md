@@ -1,3 +1,11 @@
+**Brighton bid €40m for Olympiacos' Kostoulas**\
+`The Greek club previously rejected Brighton's offer of €30m plus Abdallah Sima for their 18-year-old striker.`\
+https://nytimes.com/athletic/6411424/2025/06/08/charalampos-kostoulas-brighton-transfers/
+
+**Rosenthal: The Red Sox can't waste any more time in calling up top prospect Roman Anthony**\
+`Along with giving Boston an offensive spark, the move would give Kristian Campbell much needed defensive reps in Triple A.`\
+https://nytimes.com/athletic/6411434/2025/06/08/red-sox-roman-anthony-kristian-campbell/
+
 **What's gone right and wrong for Oilers in Stanley Cup Final**\
 `Let’s look at three areas where Edmonton is doing well and three where it is not as the series is knotted at 1-1 heading into Game 3.`\
 https://nytimes.com/athletic/6410997/2025/06/08/oilers-panthers-nhl-stanley-cup-final-playoffs/

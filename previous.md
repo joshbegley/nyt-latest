@@ -1,3 +1,11 @@
+**Brighton bid €40m for Olympiacos' Kostoulas**\
+`The Greek club previously rejected Brighton's offer of €30m plus Abdallah Sima for their 18-year-old striker.`\
+https://nytimes.com/athletic/6411424/2025/06/08/charalampos-kostoulas-brighton-transfers/
+
+**Rosenthal: The Red Sox can't waste any more time in calling up top prospect Roman Anthony**\
+`Along with giving Boston an offensive spark, the move would give Kristian Campbell much needed defensive reps in Triple A.`\
+https://nytimes.com/athletic/6411434/2025/06/08/red-sox-roman-anthony-kristian-campbell/
+
 **What's gone right and wrong for Oilers in Stanley Cup Final**\
 `Let’s look at three areas where Edmonton is doing well and three where it is not as the series is knotted at 1-1 heading into Game 3.`\
 https://nytimes.com/athletic/6410997/2025/06/08/oilers-panthers-nhl-stanley-cup-final-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6410882/2025/06/08/usmnt-turkey-pochettino-summer-g
 **Justice Jackson Just Helped Reset the D.E.I. Debate**\
 `How much should the law treat a person as an individual rather than as a member of a group?`\
 https://nytimes.com/2025/06/08/opinion/supreme-court-dei-racism-jackson.html
-
-**The Abundance Agenda Has Its Own Theory of Power**\
-`The Democratic future isn’t going to look like the Democratic past.`\
-https://nytimes.com/2025/06/08/opinion/abundance-democrats-future.html
-
-**Jesus Has ‘More to Say Than Any Human Language Can Carry’: A Q&A With Rowan Williams**\
-`A former archbishop of Canterbury on reclaiming the human world through compassion and absolution.`\
-https://nytimes.com/2025/06/08/opinion/jesus-faith-god-compassion.html
 
