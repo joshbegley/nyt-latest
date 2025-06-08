@@ -1,3 +1,7 @@
+**Champagne shades: The NBA-inspired trend that's taking over soccer celebrations**\
+`Footballers celebrating trophy-winning moments while wearing sunglasses is a growing trend and natural evolution of American sports culture`\
+https://nytimes.com/athletic/6407684/2025/06/08/football-soccer-sunglasses-trophies-yamal-doue-olise/
+
 **California lawmakers trade accusations over Trump’s order and the protests.**\
 `By Laurel Rosenhall`\
 https://nytimes.com/live/2025/06/07/us/la-immigration-raid-protests/california-lawmakers-trade-accusations-over-trumps-order-and-the-protests

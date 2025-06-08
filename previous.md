@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6402044/2025/06/08/testing-footballs-loughborough-u
 `'Dangerous' Madueke, 23, was a rare bright spark in a lacklustre England performance against Andorra`\
 https://nytimes.com/athletic/6410733/2025/06/08/england-andorra-madueke-chelsea-transfer/
 
-**Club World Cup team guide - Real Madrid: Europe's superstars who will expect to dominate with Mbappe**\
-`Everything you need to know about Madrid, Spain's 15-time kings of Europe`\
-https://nytimes.com/athletic/6394380/2025/06/08/club-world-cup-guide-real-madrid/
+**Champagne shades: The NBA-inspired trend that's taking over soccer celebrations**\
+`Footballers celebrating trophy-winning moments while wearing sunglasses is a growing trend and natural evolution of American sports culture`\
+https://nytimes.com/athletic/6407684/2025/06/08/football-soccer-sunglasses-trophies-yamal-doue-olise/
 
