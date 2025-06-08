@@ -1,3 +1,7 @@
+**Scientifically testing the footballs Pep Guardiola and Mikel Arteta complained about in 2024-25**\
+`Investigating the subtle differences between brands of football — how much impact do they have on the way it moves?`\
+https://nytimes.com/athletic/6402044/2025/06/08/testing-footballs-loughborough-university-guardiola-arteta/
+
 **Madueke steps up for England - as Chelsea try to prise away another English winger**\
 `'Dangerous' Madueke, 23, was a rare bright spark in a lacklustre England performance against Andorra`\
 https://nytimes.com/athletic/6410733/2025/06/08/england-andorra-madueke-chelsea-transfer/
