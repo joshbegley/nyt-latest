@@ -1,3 +1,7 @@
+**California Lawsuit Will Challenge Trump’s Order Sending National Guard to L.A., Newsom Says**\
+`The office of Gov. Gavin Newsom seemed to foreshadow the litigation in a letter to Defense Secretary Pete Hegseth on Sunday.`\
+https://nytimes.com/2025/06/09/us/california-lawsuit-national-guard-protests-trump.html
+
 **China’s Chokehold on This Obscure Mineral Threatens the West’s Militaries**\
 `China produces the entire world’s supply of samarium, a rare earth metal that the United States and its allies need to rebuild inventories of fighter jets, missiles and other hardware.`\
 https://nytimes.com/2025/06/09/business/china-rare-earth-samarium-fighter-jets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/world/americas/reborn-baby-dolls-brazil.html
 **THE BAT X fantasy baseball cheat sheet: Add Ben Brown, stream Agustín Ramírez**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6413415/2025/06/09/the-bat-x-fantasy-baseball-cheat-sheet-ben-brown/
-
-**Escargot Flavors, Weeknight Ease**\
-`Heady, parsleyed garlic butter is the star of this slow-cooker dinner.`\
-https://nytimes.com/2025/06/09/dining/easy-slow-cooker-garlic-butter-chicken-recipe.html
 
