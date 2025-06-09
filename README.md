@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Rick Rojas, Livia Albeck-Ripka, Shawn Hubler, Jesus Jiménez and Yan Zhuang`\
+https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/heres-the-latest
+
+**Live Updates: 3 Days of Immigration Clashes Leave L.A. on Edge**\
+`California leaders demanded that President Trump withdraw National Guard troops from Los Angeles, as police scuffled with crowds protesting the administration’s immigration crackdown.`\
+https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump
+
 **‘You Came To The Wrong City’: Protesters Decry Immigration Raids**\
 `Brianna Vargas hit the streets of Los Angeles with a megaphone to protest the Trump administration immigration raids.`\
 https://nytimes.com/video/us/100000010216398/la-protester-immigration-raids.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6412891/2025/06/09/buffalo-nhl-scouting-combine-sab
 **Can Red Wings find missing piece on defense at pick No. 13?**\
 `The Red Wings could use one more top-four blueliner in their pipeline. But will the right fit be there at 13?`\
 https://nytimes.com/athletic/6411948/2025/06/09/detroit-red-wings-nhl-draft-defensemen/
-
-**49ers’ Kris Kocurek goes deep on Bryce Huff, Mykel Williams and revamped D-line**\
-`Kocurek hasn't had this much change on the defensive line since 2019. He spoke about the new guys and the plans for the 2025 season.`\
-https://nytimes.com/athletic/6409310/2025/06/09/49ers-kris-kocurek-bryce-huff-mykel-williams/
-
-**Jets mailbag, Part 2: Landing a second-line centre, Rashevsky's potential and more**\
-`The Jets have been searching for a long-term fit at second-line centre for years. Is Marco Rossi — or an offer sheet — the answer?`\
-https://nytimes.com/athletic/6409327/2025/06/09/jets-mailbag-centre-rossi-rashevsky/
 
