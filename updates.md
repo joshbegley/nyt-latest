@@ -1,3 +1,7 @@
+**Waymo Halts Service in Downtown Los Angeles After Its Taxis Are Set on Fire**\
+`Protesters smashed the windows of multiple Waymo robot taxis and then set them on fire. The police warned of toxic fumes released by burning lithium-ion batteries.`\
+https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html
+
 **Here’s the latest.**\
 `By Rick Rojas, Livia Albeck-Ripka, Shawn Hubler, Jesus Jiménez and Yan Zhuang`\
 https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/heres-the-latest

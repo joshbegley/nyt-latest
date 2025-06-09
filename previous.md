@@ -1,3 +1,7 @@
+**Waymo Halts Service in Downtown Los Angeles After Its Taxis Are Set on Fire**\
+`Protesters smashed the windows of multiple Waymo robot taxis and then set them on fire. The police warned of toxic fumes released by burning lithium-ion batteries.`\
+https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html
+
 **Here’s the latest.**\
 `By Rick Rojas, Livia Albeck-Ripka, Shawn Hubler, Jesus Jiménez and Yan Zhuang`\
 https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412836/2025/06/09/giants-willy-adames-rough-start/
 **What we learned about the Sabres at 2025 NHL Scouting Combine**\
 `For the second straight year, the idea of the Sabres trading their first-round pick should be on the table.`\
 https://nytimes.com/athletic/6412891/2025/06/09/buffalo-nhl-scouting-combine-sabres-2025/
-
-**Can Red Wings find missing piece on defense at pick No. 13?**\
-`The Red Wings could use one more top-four blueliner in their pipeline. But will the right fit be there at 13?`\
-https://nytimes.com/athletic/6411948/2025/06/09/detroit-red-wings-nhl-draft-defensemen/
 
