@@ -1,3 +1,7 @@
+**Iowa hires former NFL GM Scott Pioli as football program consultant**\
+`Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
+https://nytimes.com/athletic/6414188/2025/06/09/iowa-hires-scott-pioli-football-house-settlement/
+
 **Don’t Overlook the Reality of Elon Musk’s Contracts and Their Importance to the U.S.**\
 `One part of Musk and Trump’s public breakup should not get lost: the reality of Musk’s importance to American national security.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-spacex-nasa-contracts-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413355/2025/06/09/tennis-french-open-best-matches-
 **Dick Vitale, ESPN agree to contract extension through 2027-28**\
 `Since joining the company in its inaugural year in 1979, Vitale has called over 1,000 college basketball games.`\
 https://nytimes.com/athletic/6413951/2025/06/09/dick-vitale-espn-contract-extension-2027-28/
-
-**Transfers TLDR: Rayan Ait-Nouri to Man City – all you need to know**\
-`Rayan Ait-Nouri has moved from Wolves to Manchester City - here's all you need to know`\
-https://nytimes.com/athletic/6405799/2025/06/09/rayan-ait-nouri-manchester-city-transfer/
 
