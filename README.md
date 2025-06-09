@@ -26,7 +26,7 @@ https://nytimes.com/2025/06/09/world/middleeast/iran-dog-walking-bans.html
 `Federal judges have lauded the government’s goal of rooting out money laundering schemes but questioned the effectiveness of a tactic that’s wreaking havoc on small money services operations.`\
 https://nytimes.com/2025/06/09/us/politics/trump-cartels-border-businesses.html
 
-**Packers are taking calculated risk in releasing cornerback Jaire Alexander**\
+**Packers are taking a calculated risk in releasing cornerback Jaire Alexander**\
 `The Packers are hoping Keisean Nixon and Nate Hobbs can hold up against the multitude of top receivers Green Bay will face in 2025.`\
 https://nytimes.com/athletic/6413530/2025/06/09/packers-cornerback-jaire-alexander-fallout/
 
