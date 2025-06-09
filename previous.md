@@ -1,3 +1,11 @@
+**A crowd-control munition used in George Floyd protests is being used in Los Angeles.**\
+`By Thomas Gibbons-Neff and Livia Albeck-Ripka`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/a-crowd-control-munition-used-in-george-floyd-protests-is-being-used-in-los-angeles
+
+**What Is the National Guard?**\
+`The troops that President Trump deployed to Los Angeles are members of a state-based militia that exists in every state and can be called in during natural disasters or civil unrest.`\
+https://nytimes.com/2025/06/08/us/national-guard.html
+
 **A Brooklyn teacher receives the excellence in theater education award.**\
 `By Derrick Bryson Taylor`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/a-brooklyn-teacher-receives-the-excellence-in-theater-education-award
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-2025
 **2 New York Representatives Are Denied Access to ICE Facility**\
 `Representatives Adriano Espaillat and Nydia Velázquez were turned away when seeking to inspect a migrant detention area inside a Manhattan federal building.`\
 https://nytimes.com/2025/06/08/nyregion/ice-detention-federal-plaza-nyc.html
-
-**Spain wins in New York, becomes first repeat winner of SailGP season**\
-`Diego Botín's squad outclassed New Zealand, France in three-boat final showdown.`\
-https://nytimes.com/athletic/6412609/2025/06/08/spain-sailgp-new-york-sail-grand-prix/
-
-**Trump Calling Troops Into Los Angeles Is the Real Emergency**\
-`The president’s use of the National Guard serves his own interests above the country’s.`\
-https://nytimes.com/2025/06/08/opinion/los-angeles-protests-national-guard-trump.html
 
