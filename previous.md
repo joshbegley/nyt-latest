@@ -1,3 +1,23 @@
+**Valmik Thapar, Tenacious Tiger Conservationist in India, Is Dead**\
+`He started studying tigers at a reserve in 1976 and became a leading activist in efforts to save the tiger from poaching and shrinking habitats.`\
+https://nytimes.com/2025/06/09/world/asia/valmik-thapar-dead.html
+
+**NATO Chief Urges Members to Spend Far More on Military**\
+`“Learn to speak Russian,” the secretary-general of the alliance warned nations unwilling to make politically unpopular budget decisions.`\
+https://nytimes.com/2025/06/09/world/europe/nato-spending-russia.html
+
+**How three MLB pitchers are faring in their returns from injuries**\
+`Andrea Arcadipane checks in on a few starting pitchers returning from injury this season, including Atlanta Braves ace Spencer Strider.`\
+https://nytimes.com/athletic/6414172/2025/06/09/scouting-fantasy-baseball-injury-returns-strider-mccullers/
+
+**Frederick Forsyth, Master of the Geopolitical Thriller, Dies at 86**\
+`He wrote best-sellers like “The Day of the Jackal” and “The Dogs of War,” often using material from his earlier life as a reporter and spy.`\
+https://nytimes.com/2025/06/09/books/frederick-forsyth-dead.html
+
+**Power conference commissioners voice confidence in House settlement: ‘Our schools want rules’**\
+`The newly formed College Sports Commission features commissioners of the ACC, Big 12, Big Ten, Pac-12 and SEC.`\
+https://nytimes.com/athletic/6414219/2025/06/09/house-settlement-college-sports-commission/
+
 **Caitlin Clark will miss 5th game with quad strain, out Tuesday vs. Dream**\
 `Indiana coach Stephanie White said Clark has been doing "some practicing, not everything."`\
 https://nytimes.com/athletic/6414340/2025/06/09/caitlin-clark-indiana-fever-strain-atlanta-dream/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6412847/2025/06/09/uswnt-carli-lloyd-tst-million-do
 **Cavaliers' Darius Garland has surgery on big toe**\
 `Cleveland said Garland is expected to "make a full recovery."`\
 https://nytimes.com/athletic/6414247/2025/06/09/cavaliers-darius-garland-surgery-big-toe-injury/
-
-**Listen: Where does Brad Marchand rank among the all-time best trade deadline moves?**\
-`Mark Lazerus and Max Bultman debate whether Brad Marchand is one of the greatest trade deadline acquisitions in NHL history.`\
-https://nytimes.com/athletic/6413485/2025/06/09/marchand-trade-all-time-best/
-
-**Apple Opens Conference With New iPhone Software Design**\
-`The company also introduced artificial intelligence features with its devices.`\
-https://nytimes.com/2025/06/09/technology/apple-wwdc-ios-26.html
-
-**Judge Dismisses Justin Baldoni’s Suits Against Blake Lively and The New York Times**\
-`Mr. Baldoni had accused Ms. Lively and her husband, Ryan Reynolds, of trying to destroy his reputation. The Times had brought the feud into the public eye.`\
-https://nytimes.com/2025/06/09/business/media/justin-baldoni-blake-lively-lawsuit-dismissed.html
-
-**Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
-`The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
-https://nytimes.com/2025/06/09/us/trump-los-angeles-protestors-insurrectionists.html
-
-**Iowa hires former NFL GM Scott Pioli as football program consultant**\
-`Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
-https://nytimes.com/athletic/6414188/2025/06/09/iowa-hires-scott-pioli-football-house-settlement/
 
