@@ -1,5 +1,5 @@
 **A Trump Family Project Spurs Resignations and a Criminal Charge in Serbia**\
-`A group of preservationists has thrown a wrench in the plans for a Trump-branded hotel complex to be built by the president’s son-in-law, Jared Kushner, in Belgrade.`\
+`A group of preservationists has thrown a wrench in the plans for a Trump-branded hotel complex backed by the president’s son-in-law, Jared Kushner, in Belgrade.`\
 https://nytimes.com/2025/06/09/us/politics/trump-serbia-kushner-development.html
 
 **Mayor Bass of Los Angeles Blames Immigration Raids for Inflaming Tensions**\
