@@ -1,3 +1,7 @@
+**Red Sox pound Yankees with 5 home runs to win series in New York**\
+`Boston trounced New York in the series finale on the strength of five homers and a solid performance from its rookie starter.`\
+https://nytimes.com/athletic/6412932/2025/06/09/red-sox-beat-yankees-5-home-runs-win-series/
+
 **A Solidarity Protest in San Francisco Turned Violent**\
 `Demonstrators who hoped to show peaceful support for immigrant rights protesters in Los Angeles wound up clashing with the police.`\
 https://nytimes.com/2025/06/09/us/san-francisco-protest-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6405357/2025/06/09/arsenal-squad-transfer-striker-a
 **Inside Mamelodi Sundowns: South Africa's superclub, the home of 'shoeshine and piano'**\
 `The Athletic visited Pretoria, South Africa, to get to know the Mamelodi Sundowns ahead of the Club World Cup`\
 https://nytimes.com/athletic/6397018/2025/06/09/club-world-cup-mamelodi-sundowns-south-africas/
-
-**Ten players who could steal the show at the 2026 World Cup**\
-`From Jude Bellingham - who else? - to Nico Paz, The Athletic analyses 10 players that could star in a year's time`\
-https://nytimes.com/athletic/6411522/2025/06/09/2026-world-cup-players-stars/
 
