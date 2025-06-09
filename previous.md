@@ -1,3 +1,15 @@
+**Mets' Juan Soto reaches bases 6 times in a game for first time**\
+`Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
+https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-bases-six-times/
+
+**‘Buena Vista Social Club’ band is among the recipients of special honors and awards.**\
+`By Derrick Bryson Taylor`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/tonys-special-honors-buena-vista-stranger-things
+
+**Shai Gilgeous-Alexander scores 3,000th point of 2024-25 NBA season**\
+`The Thunder star became the 12th player in history to reach the total in an NBA season (regular season and playoffs).`\
+https://nytimes.com/athletic/6412234/2025/06/08/nba-finals-shai-gilgeous-alexander-thunder-3000-points/
+
 **Ryan Fox finally eliminates Sam Burns to win typically wild Canadian Open**\
 `It took four playoff holes to determine a winner at a tournament that usually includes some type of drama.`\
 https://nytimes.com/athletic/6412523/2025/06/08/canadian-open-pga-tour-ryan-fox-sam-burns/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/08/us/newsom-formally-asks-trump-to-pull-national-gu
 **The Mexican Flag Has Become a Potent Protest Symbol**\
 `Trump officials have cast demonstrators waving the Mexican flag as insurrectionists, but for many protesters who are Mexican American, the flag represents pride in their heritage.`\
 https://nytimes.com/2025/06/08/us/mexican-flag-protest-los-angeles.html
-
-**The Tonys host is Cynthia Erivo.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-cynthia-erivo-host
-
-**Arrest of Union Leader Highlights Link Between Workers’ and Immigrants’ Rights**\
-`David Huerta, the president of the Service Employees International Union of California, was arrested while protesting immigration raids on work sites in Los Angeles.`\
-https://nytimes.com/2025/06/08/us/arrest-of-union-leader-highlights-link-between-workers-and-immigrants-rights.html
-
-**Former Browns RB Nick Chubb expected to sign with Texans: Sources**\
-`Chubb, 29, has missed much of the last two seasons due to knee and foot injuries.`\
-https://nytimes.com/athletic/6412442/2025/06/08/cleveland-browns-nick-chubb-houston-texans-sign/
 
