@@ -1,3 +1,11 @@
+**Caitlin Clark will miss 5th game with quad strain, out Tuesday vs. Dream**\
+`Indiana coach Stephanie White said Clark has been doing "some practicing, not everything."`\
+https://nytimes.com/athletic/6414340/2025/06/09/caitlin-clark-indiana-fever-strain-atlanta-dream/
+
+**Kirk Cousins expected at Atlanta Falcons minicamp: Sources**\
+`Last season, Cousins threw for 3,508 yards, 18 touchdowns and 16 interceptions.`\
+https://nytimes.com/athletic/6414276/2025/06/09/kirk-cousins-atlanta-falcons-minicamp/
+
 **The Confrontation in Los Angeles**\
 `Readers respond to the Trump administration’s deployment of National Guard troops to quell protests in Los Angeles.`\
 https://nytimes.com/2025/06/09/opinion/los-angeles-immigration-protests-national-guard.html

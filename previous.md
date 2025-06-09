@@ -1,3 +1,11 @@
+**Caitlin Clark will miss 5th game with quad strain, out Tuesday vs. Dream**\
+`Indiana coach Stephanie White said Clark has been doing "some practicing, not everything."`\
+https://nytimes.com/athletic/6414340/2025/06/09/caitlin-clark-indiana-fever-strain-atlanta-dream/
+
+**Kirk Cousins expected at Atlanta Falcons minicamp: Sources**\
+`Last season, Cousins threw for 3,508 yards, 18 touchdowns and 16 interceptions.`\
+https://nytimes.com/athletic/6414276/2025/06/09/kirk-cousins-atlanta-falcons-minicamp/
+
 **The Confrontation in Los Angeles**\
 `Readers respond to the Trump administration’s deployment of National Guard troops to quell protests in Los Angeles.`\
 https://nytimes.com/2025/06/09/opinion/los-angeles-immigration-protests-national-guard.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/09/us/trump-los-angeles-protestors-insurrectionists.
 **Iowa hires former NFL GM Scott Pioli as football program consultant**\
 `Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
 https://nytimes.com/athletic/6414188/2025/06/09/iowa-hires-scott-pioli-football-house-settlement/
-
-**Don’t Overlook the Reality of Elon Musk’s Contracts and Their Importance to the U.S.**\
-`One part of Musk and Trump’s public breakup should not get lost: the reality of Musk’s importance to American national security.`\
-https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-spacex-nasa-contracts-trump
-
-**Defense cites 'reliability concerns' of E.M. in first of closing arguments at Hockey Canada trial**\
-`Judge in Hockey Canada sexual assault trial expressed surprise at what she called "extremely" quick settlement of 2022 civil lawsuit.`\
-https://nytimes.com/athletic/6413749/2025/06/09/hockey-canada-sexual-assault-trial-closing-statements/
 
