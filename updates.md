@@ -1,3 +1,11 @@
+**Man City interested in signing Chelsea goalkeeper Bettinelli**\
+`Pep Guardiola's side are in the market for a new goalkeeper following the departure of Scott Carson, who spent six seasons at the Etihad.`\
+https://nytimes.com/athletic/6413340/2025/06/09/manchester-city-transfers-chelsea-bettinelli/
+
+**Autographed Michael Jordan rookie card from secret signing going to auction**\
+`The auction house's estimated value of the card puts it in line with Jordan's most expensive to date. `\
+https://nytimes.com/athletic/6412832/2025/06/09/michael-jordan-autographed-rookie-card-auction/
+
 **The Pacers need Tyrese Haliburton to be more selfish with his scoring**\
 `Haliburton had only five points through the first three quarters in Game 2 and has largely been held in check by the Thunder defense so far.`\
 https://nytimes.com/athletic/6413170/2025/06/09/tyrese-haliburton-pacers-game-2-nba-finals-thunder-scoring/
