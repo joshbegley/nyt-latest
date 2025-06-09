@@ -1,3 +1,7 @@
+**Word of the Day: mycologist**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/09/learning/word-of-the-day-mycologist.html
+
 **Red Sox pound Yankees with 5 home runs to win series in New York**\
 `Boston trounced New York in the series finale on the strength of five homers and a solid performance from its rookie starter.`\
 https://nytimes.com/athletic/6412932/2025/06/09/red-sox-beat-yankees-5-home-runs-win-series/

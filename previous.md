@@ -1,3 +1,7 @@
+**Word of the Day: mycologist**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/09/learning/word-of-the-day-mycologist.html
+
 **Red Sox pound Yankees with 5 home runs to win series in New York**\
 `Boston trounced New York in the series finale on the strength of five homers and a solid performance from its rookie starter.`\
 https://nytimes.com/athletic/6412932/2025/06/09/red-sox-beat-yankees-5-home-runs-win-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397716/2025/06/09/thomas-frank-tottenham-brentford
 **Arsenal need to build a squad. Signing a striker won't mean the end of Merino or Havertz**\
 `Mikel Arteta needs more depth if his side are to compete for trophies`\
 https://nytimes.com/athletic/6405357/2025/06/09/arsenal-squad-transfer-striker-analysis/
-
-**Inside Mamelodi Sundowns: South Africa's superclub, the home of 'shoeshine and piano'**\
-`The Athletic visited Pretoria, South Africa, to get to know the Mamelodi Sundowns ahead of the Club World Cup`\
-https://nytimes.com/athletic/6397018/2025/06/09/club-world-cup-mamelodi-sundowns-south-africas/
 
