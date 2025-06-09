@@ -1,3 +1,7 @@
+**Sly Stone, Maestro of a Multifaceted, Hitmaking Band, Dies at 82**\
+`Leading Sly and the Family Stone, he helped redefine the landscape of pop, funk and rock in the late 1960s and ’70s.`\
+https://nytimes.com/2025/06/09/arts/music/sly-stone-dead.html
+
 **Colts announce ownership transition from late Jim Irsay to his 3 daughters**\
 `Irsay's three daughters have served as Colts vice chair/owners since 2012 and will assume new roles and titles, effective immediately.`\
 https://nytimes.com/athletic/6414311/2025/06/09/colts-ownership-jim-irsay-nfl-daughters/
