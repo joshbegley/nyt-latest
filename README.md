@@ -1,3 +1,7 @@
+**Man City interested in signing Chelsea goalkeeper Bettinelli**\
+`Pep Guardiola's side are in the market for a new goalkeeper following the departure of Scott Carson, who spent six seasons at the Etihad.`\
+https://nytimes.com/athletic/6413340/2025/06/09/manchester-city-transfers-chelsea-bettinelli/
+
 **Autographed Michael Jordan rookie card from secret signing going to auction**\
 `The auction house's estimated value of the card puts it in line with Jordan's most expensive to date. `\
 https://nytimes.com/athletic/6412832/2025/06/09/michael-jordan-autographed-rookie-card-auction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411962/2025/06/09/oilers-panthers-stanley-cup-fina
 **More Chaos Plagues New Gaza Aid System**\
 `The Gaza Humanitarian Foundation said that Hamas had threatened its workers, a claim the militant group denied, as the United Nations warned that Gazans were far from getting the food they need.`\
 https://nytimes.com/2025/06/09/world/middleeast/chaos-gaza-aid.html
-
-**Lamptey agrees one-year Brighton contract extension**\
-`The 24-year-old Ghana international right-back made 10 starts in the Premier League in 2024-25, with his campaign disrupted by injuries.`\
-https://nytimes.com/athletic/6413324/2025/06/09/tariq-lamptey-brighton-contract/
 
