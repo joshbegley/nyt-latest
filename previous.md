@@ -1,40 +1,40 @@
-**The QB competition, Dawand Jones' development among things to watch at Browns minicamp**\
-`While the QBs will be the focal point at the team's mandatory minicamp, the open left tackle spot will be something to keep a close eye on.`\
-https://nytimes.com/athletic/6411608/2025/06/09/browns-minicamp-quarterback-competition/
+**Brighton working on deal for Hellas Verona defender Coppola**\
+`The club are keen to add the 21-year-old to Fabian Hurzeler's squad as part of a refresh in the centre of the defence.`\
+https://nytimes.com/athletic/6413258/2025/06/09/brighton-transfers-diego-coppola/
 
-**Alex Caruso's energy, offense fuel Thunder in Game 2: 'We really feed off of that'**\
-`The 31-year-old has built a career off making the small plays. And those might prove the difference against the Pacers in the NBA Finals.`\
-https://nytimes.com/athletic/6413049/2025/06/09/alex-caruso-thunder-game-2-finals-pacers/
+**Ten roster moves that shaped the offseason in the Big 12 **\
+`Is Texas Tech the favorite after signing a top transfer class? What will Colorado look like without Shedeur Sanders and Travis Hunter?`\
+https://nytimes.com/athletic/6406331/2025/06/09/big-12-football-transfer-portal-rosters-offseason/
 
-**West Ham delay Antonio contract decision until 'right and appropriate' time**\
-`The 35-year-old's contract expires on June 30 but he is still recovering after being involved in a serious car crash in December.`\
-https://nytimes.com/athletic/6370070/2025/06/09/michail-antonio-contract-future-west-ham/
+**Blue Jays are the hottest they've been since 2022. Here are 6 reasons why**\
+`During a 10-3 run, Toronto has gotten contributions at the plate, behind it and on the mound.`\
+https://nytimes.com/athletic/6412341/2025/06/09/toronto-blue-jays-hot-streak-addison-barger/
 
-**The Pulse: The new faces of men's tennis**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6412275/2025/06/09/sinner-alcaraz-french-open-final-the-pulse/
+**Mirtle: Intel on the 9 most intriguing teams of NHL free agency from a buzzy draft combine**\
+`Which teams are poised to make big moves over the next few weeks, and for who? Plus, an update on CBA talks.`\
+https://nytimes.com/athletic/6409782/2025/06/09/free-agency-nhl-offseason-rumors-mitch-marner-mirtle/
 
-**Ronaldo planning on Al Nassr stay: 'Nothing is going to change'**\
-`The Portuguese had said over the weekend that he would not be moving to a team competing at the Club World Cup.`\
-https://nytimes.com/athletic/6413103/2025/06/09/cristiano-ronaldo-transfer-al-nassr-contract/
+**Sam Bennett's next contract and the price of playoff pedigree**\
+`Playoff Bennett is a gamer — he is elite. Regular-Season Bennett is a perfectly fine 2C but not much more. So what is that worth?`\
+https://nytimes.com/athletic/6408696/2025/06/09/sam-bennett-nhl-free-agency-contract/
 
-**Phillies takeaways on the sputtering offense, outfield issues and a pitching tightrope**\
-`Almost every hitter has seen a dip in slugging percentage against off-speed and breaking pitches. Many have experienced radical declines.`\
-https://nytimes.com/athletic/6412644/2025/06/09/phillies-offense-outfield-bullpen-issues/
+**Why the man charged with enforcing college sports' new rules is stepping into the chaos**\
+`Seeley has a decade of experience in compliance, enforcement, investigations and policy-making at MLB, along with eight years at the DOJ.`\
+https://nytimes.com/athletic/6412743/2025/06/09/bryan-seeley-career-csc-mlb/
 
-**NFL minicamp storylines: Aaron Rodgers, Kirk Cousins, contract holdouts and QB battles**\
-`The Browns, Saints and Colts are among those with QB races to watch, and another chance for Travis Hunter acrobatics is never a bad thing.`\
-https://nytimes.com/athletic/6407193/2025/06/09/nfl-minicamp-aaron-rodgers-steelers-micah-parsons/
+**Stanley Cup Final observations: Bennett's price tag, McDavid's 'walk-on-water' moment and more**\
+`How the numbers reflect how tight this series has been, and could extra rest during the final help Sergei Bobrovsky stay on form?`\
+https://nytimes.com/athletic/6412420/2025/06/09/stanley-cup-final-sam-bennett-connor-mcdavid/
 
-**This Week in Mets: Which Mets deserve to be All-Stars?**\
-`Kodai Senga and Pete Alonso are shoo-ins, but the Mets have plenty of sneaky candidates, too. `\
-https://nytimes.com/athletic/6412689/2025/06/09/mets-all-star-candidates/
+**PWHL Expansion Draft: Everything you need to know before Vancouver and Seattle make their picks**\
+`Vancouver and Seattle have both signed five players and will draft seven more apiece on Monday night.`\
+https://nytimes.com/athletic/6412292/2025/06/09/pwhl-expansion-draft-vancouver-seattle-preview/
 
-**Payton Pritchard’s opportunity, Brad Stevens’ trade options and more: Celtics mailbag, part 2**\
-`Jay King answers your questions in part 2 of our Celtics mailbag. `\
-https://nytimes.com/athletic/6406605/2025/06/09/celtics-payton-pritchard-brad-stevens-trades-mailbag/
+**The road to the Stanley Cup Final: Ranking the 14 playoff series that got us here**\
+`Every postseason, some series surprise us and some live up to every bit of the hype. As the final shifts to Florida, here's how we got here.`\
+https://nytimes.com/athletic/6411938/2025/06/09/nhl-playoffs-2025-series-ranking/
 
-**NHL Draft Confidential 2025: What insiders think of Schaefer, goalies and more**\
-`After surveying a number of NHL evaluators, here's what they think about the big questions facing this draft class.`\
-https://nytimes.com/athletic/6372530/2025/06/09/nhl-draft-confidential-2025-matthew-schaefer/
+**ASU's Sam Leavitt is exactly where he thought he'd be — everyone else is just catching up**\
+`This fall, with Arizona State again projected to contend in the Big 12, Leavitt could become a household name.`\
+https://nytimes.com/athletic/6400700/2025/06/09/arizona-state-sam-leavitt-quarterback-family-profile/
 
