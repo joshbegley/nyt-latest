@@ -1,3 +1,7 @@
+**Lowetide: Which Oilers players have increased their value for next season?**\
+`Several players have increased their chances of staying on the Edmonton roster for the 2025-26 campaign.`\
+https://nytimes.com/athletic/6411776/2025/06/09/oilers-players-nhl-playoffs-roster-value/
+
 **What we know about Knicks' coaching search, including Jason Kidd's status**\
 `The Knicks have backed themselves into a corner between the firing of Tom Thibodeau and this upcoming hire. Here's what we know.`\
 https://nytimes.com/athletic/6413411/2025/06/09/knicks-head-coach-search-jason-kidd-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/special-series/francis-fukuyama-trump-history-rev
 **Basu: What I heard and saw about the Canadiens at the NHL scouting combine**\
 `The Canadiens are in a crowded market of teams looking to trade picks for immediate help and may be forced to use their picks instead.`\
 https://nytimes.com/athletic/6413061/2025/06/09/what-i-heard-and-saw-from-the-canadiens-at-the-nhl-scouting-combine/
-
-**Protesters Set Waymo Taxis on Fire in Downtown Los Angeles**\
-`Protesters torched and vandalized self-driving Waymo taxis on Sunday during clashes with the police over President Trump’s immigration crackdown.`\
-https://nytimes.com/video/us/100000010216386/waymo-fire-los-angeles-protests.html
 

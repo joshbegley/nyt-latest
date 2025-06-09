@@ -1,3 +1,7 @@
+**Lowetide: Which Oilers players have increased their value for next season?**\
+`Several players have increased their chances of staying on the Edmonton roster for the 2025-26 campaign.`\
+https://nytimes.com/athletic/6411776/2025/06/09/oilers-players-nhl-playoffs-roster-value/
+
 **What we know about Knicks' coaching search, including Jason Kidd's status**\
 `The Knicks have backed themselves into a corner between the firing of Tom Thibodeau and this upcoming hire. Here's what we know.`\
 https://nytimes.com/athletic/6413411/2025/06/09/knicks-head-coach-search-jason-kidd-mavericks/
