@@ -1,3 +1,15 @@
+**Trump and Patel defend the decision to send in National Guard troops.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/trump-and-patel-defend-the-decision-to-send-in-national-guard-troops
+
+**How Trump Has Leverage Over Musk**\
+`But Mr. Trump’s warnings to his former ally are backed by several ways the White House could punish the world’s richest man.`\
+https://nytimes.com/2025/06/09/business/dealbook/trump-musk-truce.html
+
+**Man City reach agreement to sign Cherki from Lyon**\
+`Cherki was named in the Europa League Team of the Season, while also earning his first call-up for France's senior team in May.`\
+https://nytimes.com/athletic/6393363/2025/06/09/man-city-rayan-cherki-transfer/
+
 **Warner Bros. Discovery to Split Into Two Companies**\
 `The film and television giant will turn its cable networks, including CNN and TNT, into one company and its streaming and studios business into another.`\
 https://nytimes.com/2025/06/09/business/media/warner-bros-discovery-split.html
