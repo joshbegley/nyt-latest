@@ -1,3 +1,7 @@
+**White House Pushes Texas to Redistrict, Hoping to Blunt Democratic Gains**\
+`A rare mid-decade redistricting push has unnerved some Texas Republicans, who worry a drive to harm Democrats could end up endangering G.O.P. incumbents in 2026.`\
+https://nytimes.com/2025/06/09/us/politics/trump-texas-redistricting.html
+
 **Record 2.4 million watched Texas' win over Texas Tech in Game 3 of WCWS**\
 `Every game of the series set records, making it the most-watched WCWS Finals in history.`\
 https://nytimes.com/athletic/6414764/2025/06/09/texas-wcws-most-watched-ever-texas-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/business/media/hulu-disney-comcast.html
 **Canada Commits Billions in Military Spending to Meet NATO Target**\
 `Prime Minister Mark Carney promised to hit the alliance’s 2 percent spending threshold this year, seven years ahead of a previous schedule.`\
 https://nytimes.com/2025/06/09/world/canada/carney-canada-nato-military-spending.html
-
-**States Sue to Stop Return of Seized Machine Gun Conversion Devices**\
-`The Trump administration, reversing a Biden-era policy, had said it would return thousands of confiscated devices that allow rapid firing, even in states where they are banned.`\
-https://nytimes.com/2025/06/09/us/politics/trump-machine-gun-conversion-devices-lawsuit.html
 
