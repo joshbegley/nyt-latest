@@ -1,3 +1,7 @@
+**A Solidarity Protest in San Francisco Turned Violent**\
+`Demonstrators who hoped to show peaceful support for immigrant rights protesters in Los Angeles wound up clashing with the police.`\
+https://nytimes.com/2025/06/09/us/san-francisco-protest-immigration.html
+
 **Monday Briefing**\
 `Protests against immigration raids in Los Angeles.`\
 https://nytimes.com/2025/06/09/briefing/los-angeles-protests-russia-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397018/2025/06/09/club-world-cup-mamelodi-sundowns
 **Ten players who could steal the show at the 2026 World Cup**\
 `From Jude Bellingham - who else? - to Nico Paz, The Athletic analyses 10 players that could star in a year's time`\
 https://nytimes.com/athletic/6411522/2025/06/09/2026-world-cup-players-stars/
-
-**Club World Cup team guide – Al Hilal: New coach Inzaghi, stars such as Cancelo, and 19 league titles**\
-`Everything you need to know about the Saudi giants`\
-https://nytimes.com/athletic/6407701/2025/06/09/club-world-cup-team-guide-al-hilal-new-coach-inzaghi-stars-such-as-cancelo-and-19-league-titles/
 

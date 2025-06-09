@@ -1,3 +1,7 @@
+**A Solidarity Protest in San Francisco Turned Violent**\
+`Demonstrators who hoped to show peaceful support for immigrant rights protesters in Los Angeles wound up clashing with the police.`\
+https://nytimes.com/2025/06/09/us/san-francisco-protest-immigration.html
+
 **Monday Briefing**\
 `Protests against immigration raids in Los Angeles.`\
 https://nytimes.com/2025/06/09/briefing/los-angeles-protests-russia-china.html
