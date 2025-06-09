@@ -1,3 +1,7 @@
+**Rabiot interview: Man Utd interest, Juventus development and his mother's influence**\
+`Adrien Rabiot spoke to The Athletic about his career, transfer interest and why his mother is so important in his life`\
+https://nytimes.com/athletic/6410003/2025/06/09/adrien-rabiot-interview-man-utd-transfer-juventus-marseille/
+
 **Cristiano Ronaldo wins Nations League aged 40: 'For Portugal, if I had to break a leg, I would'**\
 `Billed as 'galaxies colliding' with Ronaldo facing the 17-year-old star Yamal, it was the legendary forward who scored and lifted the trophy`\
 https://nytimes.com/athletic/6412878/2025/06/09/cristiano-ronaldo-portugal-nations-league-yamal-spain/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/opinion/america-russia-authoritarian-language.htm
 **‘Call Her Alex,’ Plus 7 Things on TV this Week**\
 `The series about the podcast host Alex Cooper airs, alongside a slew of new documentaries.`\
 https://nytimes.com/2025/06/09/arts/television/call-her-alex-plus-7-things-on-tv-this-week.html
-
-**Thomas Frank led Brentford to new heights. It’s no surprise he is the leading contender for Tottenham job**\
-`The 51-year-old has had a huge impact on Brentford, establishing them in the Premier League and developing Mbeumo, Wissa and Toney`\
-https://nytimes.com/athletic/6397716/2025/06/09/thomas-frank-tottenham-brentford-manager-profile/
 
