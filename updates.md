@@ -1,3 +1,15 @@
+**Cavaliers' Darius Garland has surgery on big toe**\
+`Cleveland said Garland is expected to "make a full recovery."`\
+https://nytimes.com/athletic/6414247/2025/06/09/cavaliers-darius-garland-surgery-big-toe-injury/
+
+**Listen: Where does Brad Marchand rank among the all-time best trade deadline moves?**\
+`The Athletic Hockey Show debates whether Brad Marchand is one of the greatest trade deadline acquisitions in NHL history.`\
+https://nytimes.com/athletic/6413485/2025/06/09/marchand-trade-all-time-best/
+
+**Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
+`The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
+https://nytimes.com/2025/06/09/us/trump-los-angeles-protestors-insurrectionists.html
+
 **Apple Opens Conference With New iPhone Software Design**\
 `The company also introduced artificial intelligence features with its devices.`\
 https://nytimes.com/2025/06/09/technology/apple-wwdc-ios-26.html

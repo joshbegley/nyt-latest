@@ -1,3 +1,11 @@
+**Cavaliers' Darius Garland has surgery on big toe**\
+`Cleveland said Garland is expected to "make a full recovery."`\
+https://nytimes.com/athletic/6414247/2025/06/09/cavaliers-darius-garland-surgery-big-toe-injury/
+
+**Listen: Where does Brad Marchand rank among the all-time best trade deadline moves?**\
+`The Athletic Hockey Show debates whether Brad Marchand is one of the greatest trade deadline acquisitions in NHL history.`\
+https://nytimes.com/athletic/6413485/2025/06/09/marchand-trade-all-time-best/
+
 **Apple Opens Conference With New iPhone Software Design**\
 `The company also introduced artificial intelligence features with its devices.`\
 https://nytimes.com/2025/06/09/technology/apple-wwdc-ios-26.html
@@ -8,7 +16,7 @@ https://nytimes.com/2025/06/09/business/media/justin-baldoni-blake-lively-lawsui
 
 **Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
 `The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
-https://nytimes.com/2025/06/09/us/trump-calls-protesters-in-los-angeles-insurrectionists.html
+https://nytimes.com/2025/06/09/us/trump-los-angeles-protestors-insurrectionists.html
 
 **Iowa hires former NFL GM Scott Pioli as football program consultant**\
 `Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6413894/2025/06/09/chelsea-donnell-mcneilly-contrac
 **Where Has the Original Cast of ‘Hamilton’ Been? We’ve Got Answers.**\
 `Lin-Manuel Miranda and others reunited for a medley at the Tonys on Sunday, celebrating the 10th anniversary of the show’s opening.`\
 https://nytimes.com/2025/06/09/theater/hamilton-original-cast-now.html
-
-**Plane With Six Aboard Crashes Off Coast Near San Diego**\
-`The U.S. Coast Guard said on Monday that it was searching for the aircraft, which went down about three miles west of Point Loma, on Sunday.`\
-https://nytimes.com/2025/06/09/us/san-diego-plane-crash-search.html
-
-**Map: 5.1-Magnitude Earthquake Strikes Near the Philippines**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/06/09/world/asia/earthquake-philippines.html
 
