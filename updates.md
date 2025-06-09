@@ -1,3 +1,7 @@
+**Packers are taking a calculated risk in releasing cornerback Jaire Alexander**\
+`The Packers are hoping Keisean Nixon and Nate Hobbs can hold up against the multitude of top receivers Green Bay will face in 2025.`\
+https://nytimes.com/athletic/6413530/2025/06/09/packers-cornerback-jaire-alexander-fallout/
+
 **A Trump Family Project Spurs Resignations and a Criminal Charge in Serbia**\
 `A group of preservationists has thrown a wrench in the plans for a Trump-branded hotel complex to be built by the president’s son-in-law, Jared Kushner, in Belgrade.`\
 https://nytimes.com/2025/06/09/us/politics/trump-serbia-kushner-development.html
