@@ -1,4 +1,4 @@
-**Protest in Pasadena is prompted by sightings of federal immigration vehicles.**\
+**Sightings of federal immigration vehicles prompt a protest in Pasadena.**\
 `By Jesus Jiménez and Jill Cowan`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/protest-in-pasadena-is-prompted-by-sightings-of-federal-immigration-vehicles
 
