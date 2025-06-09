@@ -1,3 +1,7 @@
+**THE BAT X fantasy baseball cheat sheet: Add Ben Brown, stream Agustín Ramírez**\
+`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
+https://nytimes.com/athletic/6413415/2025/06/09/the-bat-x-fantasy-baseball-cheat-sheet-ben-brown/
+
 **Escargot Flavors, Weeknight Ease**\
 `Heady, parsleyed garlic butter is the star of this slow-cooker dinner.`\
 https://nytimes.com/2025/06/09/dining/easy-slow-cooker-garlic-butter-chicken-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411776/2025/06/09/oilers-players-nhl-playoffs-rost
 **What we know about Knicks' coaching search, including Jason Kidd's status**\
 `The Knicks have backed themselves into a corner between the firing of Tom Thibodeau and this upcoming hire. Here's what we know.`\
 https://nytimes.com/athletic/6413411/2025/06/09/knicks-head-coach-search-jason-kidd-mavericks/
-
-**Inter appoint former player Chivu as head coach**\
-`The Romanian won the treble as a player with Inter under Jose Mourinho in 2010.`\
-https://nytimes.com/athletic/6401991/2025/06/09/inter-manager-christian-chivu/
 
