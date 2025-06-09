@@ -1,3 +1,15 @@
+**Tuesday Briefing: California’s Lawsuit Against Trump**\
+`Plus, a triumph at the Tonys for a musical set in South Korea.`\
+https://nytimes.com/2025/06/09/briefing/trump-lawsuit-california-ukraine-tonys.html
+
+**Kennedy Removes All C.D.C. Vaccine Panel Experts**\
+`The U.S. health secretary chose to “retire” members of a committee that makes significant decisions about who receives immunizations, including the vaccines for children.`\
+https://nytimes.com/2025/06/09/health/rfk-jr-cdc-vaccine-panel.html
+
+**Rare Appendix Cancers Are Increasing Among Millennials and Gen X**\
+`The findings, from a new study, come at a time of growing concern about the earlier onset of several cancers.`\
+https://nytimes.com/2025/06/09/well/appendix-cancer-age.html
+
 **Red Sox call up top prospect Roman Anthony**\
 `The Red Sox hope to spark their offense with a player who hit a 497-foot home run on Saturday for Triple-A Worcester.`\
 https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/
