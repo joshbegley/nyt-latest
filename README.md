@@ -1,3 +1,7 @@
+**Trump Pivots From Musk to Newsom**\
+`One constant in President Trump’s second term is that the subjects of his quarrels are ever-changing.`\
+https://nytimes.com/2025/06/09/us/politics/trump-newsom-musk-feud.html
+
 **Is Stefanik Running? She Attacks Hochul as ‘Worst Governor.’**\
 `Representative Elise Stefanik made a rare visit to Albany, N.Y., on Monday to outline a vision for New York that may form the basics of a Republican campaign platform next year.`\
 https://nytimes.com/2025/06/09/nyregion/stefanik-albany-hochul-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/jennifer-lyell-dead-southern-baptist-conventio
 **Concacaf rejects Greenland's application for membership**\
 `"This is not a victory for football democracy, it does not make football accessible to everyone globally," Greenland's FA tells The Athletic`\
 https://nytimes.com/athletic/6414496/2025/06/09/concacaf-rejects-greenland-application-membership/
-
-**Arsenal interested in Hinds upon expiration of Liverpool contract**\
-`The 26-year-old Jamaica international was a product of Arsenal’s academy and made one appearance for the reigning European champions in 2017`\
-https://nytimes.com/athletic/6414548/2025/06/09/taylor-hinds-liverpool-arsenal/
 
