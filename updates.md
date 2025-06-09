@@ -1,3 +1,11 @@
+**Sky guard Courtney Vandersloot tears ACL, will miss rest of 2025 season**\
+`Vandersloot sustained the injury at the 5:29 mark of the first quarter of Saturday night’s loss to Indiana while driving to the basket`\
+https://nytimes.com/athletic/6412557/2025/06/08/chicago-sky-courtney-vandersloot-acl-injury/
+
+**Videos of Assassination Attempt in Colombia Stoke National Tension**\
+`Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition on Sunday, a day after being shot.`\
+https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
+
 **Sightings of federal immigration vehicles prompt a protest in Pasadena.**\
 `By Jesus Jiménez and Jill Cowan`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/protest-in-pasadena-is-prompted-by-sightings-of-federal-immigration-vehicles

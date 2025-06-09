@@ -1,9 +1,13 @@
+**Sky guard Courtney Vandersloot tears ACL, will miss rest of 2025 season**\
+`Vandersloot sustained the injury at the 5:29 mark of the first quarter of Saturday night’s loss to Indiana while driving to the basket`\
+https://nytimes.com/athletic/6412557/2025/06/08/chicago-sky-courtney-vandersloot-acl-injury/
+
 **Sightings of federal immigration vehicles prompt a protest in Pasadena.**\
 `By Jesus Jiménez and Jill Cowan`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/protest-in-pasadena-is-prompted-by-sightings-of-federal-immigration-vehicles
 
 **Videos of Assassination Attempt in Colombia Stoke National Tension**\
-`Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition om Sunday a day after being shot.`\
+`Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition on Sunday, a day after being shot.`\
 https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
 
 **Mets' Juan Soto reaches base 6 times in a game for first time**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-t
 **Trump Jumps at the Chance for a Standoff in California Over Immigration**\
 `The situation has all the elements that the president seeks: a showdown with a top political rival in a deep blue state over an issue core to his agenda.`\
 https://nytimes.com/2025/06/08/us/politics/trump-california-immigration.html
-
-**Doppelgängers**\
-`Fred Armisen joins Ira Glass as co-host for stories of doubles and twins.`\
-https://nytimes.com/2025/06/08/podcasts/doppelgangers-this-american-life-nyt-audio.html
 
