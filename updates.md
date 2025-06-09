@@ -1,3 +1,7 @@
+**‘Eureka Day’ wins the Tony for best revival of a play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/eureka-day-wins-the-tony-for-best-revival-of-a-play
+
 **‘Purpose’ wins the Tony for best play.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-2025
