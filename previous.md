@@ -1,3 +1,15 @@
+**Ryan Fox finally eliminates Sam Burns to win typically wild Canadian Open**\
+`It took four playoff holes to determine a winner at a tournament that usually includes some type of drama.`\
+https://nytimes.com/athletic/6412523/2025/06/08/canadian-open-pga-tour-ryan-fox-sam-burns/
+
+**Sarah Snook won her first Tony for a one-woman ‘Picture of Dorian Gray.’**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/sarah-snook-won-her-first-tony-for-a-one-woman-picture-of-dorian-gray
+
+**Hall of Famer Don Nelson roasts Mavs in 'protest' over Luka Dončić trade**\
+`While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
+https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
+
 **Trump Jumps at the Chance for a Standoff in California Over Immigration**\
 `The situation has all the elements that the president seeks: a showdown with a top political rival in a deep blue state over an issue core to his agenda.`\
 https://nytimes.com/2025/06/08/us/politics/trump-california-immigration.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/08/us/arrest-of-union-leader-highlights-link-between
 **Former Browns RB Nick Chubb expected to sign with Texans: Sources**\
 `Chubb, 29, has missed much of the last two seasons due to knee and foot injuries.`\
 https://nytimes.com/athletic/6412442/2025/06/08/cleveland-browns-nick-chubb-houston-texans-sign/
-
-**Harvey Fierstein receives the lifetime achievement award.**\
-`By Nancy Coleman`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/harvey-fierstein-lifetime-achievement-tony
-
-**Four former Seymours scored Tony nominations.**\
-`By Elisabeth Vincentelli`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/four-former-seymours-scored-tony-nominations
-
-**Read the Letter From the Office of Gov. Gavin Newsom to Defense Secretary Pete Hegseth**\
-`On Sunday, the office of Gov. Gavin Newsom of California sent a letter to Defense Secretary Pete Hegseth objecting to the deployment of National Guard troops to Los Angeles.`\
-https://nytimes.com/interactive/2025/06/08/us/office-of-the-governor.html
 

@@ -1,3 +1,15 @@
+**Ryan Fox finally eliminates Sam Burns to win typically wild Canadian Open**\
+`It took four playoff holes to determine a winner at a tournament that usually includes some type of drama.`\
+https://nytimes.com/athletic/6412523/2025/06/08/canadian-open-pga-tour-ryan-fox-sam-burns/
+
+**Sarah Snook won her first Tony for a one-woman ‘Picture of Dorian Gray.’**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/sarah-snook-won-her-first-tony-for-a-one-woman-picture-of-dorian-gray
+
+**Hall of Famer Don Nelson roasts Mavs in 'protest' over Luka Dončić trade**\
+`While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
+https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
+
 **Trump Jumps at the Chance for a Standoff in California Over Immigration**\
 `The situation has all the elements that the president seeks: a showdown with a top political rival in a deep blue state over an issue core to his agenda.`\
 https://nytimes.com/2025/06/08/us/politics/trump-california-immigration.html
