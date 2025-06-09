@@ -1,3 +1,11 @@
+**Apple Opens Conference With New iPhone Software Design**\
+`The company also introduced artificial intelligence features with its devices.`\
+https://nytimes.com/2025/06/09/technology/apple-wwdc-ios-26.html
+
+**Judge Dismisses Justin Baldoni’s Suits Against Blake Lively and The New York Times**\
+`Mr. Baldoni had accused Ms. Lively and her husband, Ryan Reynolds, of trying to destroy his reputation. The Times had brought the feud into the public eye.`\
+https://nytimes.com/2025/06/09/business/media/justin-baldoni-blake-lively-lawsuit-dismissed.html
+
 **Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
 `The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
 https://nytimes.com/2025/06/09/us/trump-calls-protesters-in-los-angeles-insurrectionists.html

@@ -1,3 +1,11 @@
+**Apple Opens Conference With New iPhone Software Design**\
+`The company also introduced artificial intelligence features with its devices.`\
+https://nytimes.com/2025/06/09/technology/apple-wwdc-ios-26.html
+
+**Judge Dismisses Justin Baldoni’s Suits Against Blake Lively and The New York Times**\
+`Mr. Baldoni had accused Ms. Lively and her husband, Ryan Reynolds, of trying to destroy his reputation. The Times had brought the feud into the public eye.`\
+https://nytimes.com/2025/06/09/business/media/justin-baldoni-blake-lively-lawsuit-dismissed.html
+
 **Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
 `The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
 https://nytimes.com/2025/06/09/us/trump-calls-protesters-in-los-angeles-insurrectionists.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/09/us/san-diego-plane-crash-search.html
 **Map: 5.1-Magnitude Earthquake Strikes Near the Philippines**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/06/09/world/asia/earthquake-philippines.html
-
-**Senators Demand Government Watchdog Inquiries Into D.C. Plane Crash**\
-`Families of the victims in the deadly midair collision near Reagan National Airport have made additional investigations of the crash a top priority.`\
-https://nytimes.com/2025/06/09/us/politics/dc-midair-crash-senate-commerce-committee.html
-
-**Two thrilling finals, scheduling embarrassment and the funniest moments: French Open takeaways**\
-`After two incredible finals closed out the French Open, a look back on the second Grand Slam of 2025.`\
-https://nytimes.com/athletic/6413355/2025/06/09/tennis-french-open-best-matches-best-shots-2025/
 
