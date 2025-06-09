@@ -1,3 +1,19 @@
+**SGA won't try to 'reinvent the wheel' but he's quietly rewriting history in NBA Finals**\
+`Naysayers can criticize all they want, but it's hard to deny the MVP's consistency — with his own twist. “I'm being myself.”`\
+https://nytimes.com/athletic/6412998/2025/06/09/shai-gilgeous-alexander-thunder-nba-finals-scoring/
+
+**Ravens CB Nate Wiggins had a strong rookie season. Now, he's learning to be a pro**\
+`Baltimore is hoping Wiggins can take another step in his second season and become one of the team's core defensive players. `\
+https://nytimes.com/athletic/6410680/2025/06/09/ravens-nate-wiggins-organized-team-activities/
+
+**Aaron Rodgers film review: What does the QB have left in the tank for the Steelers?**\
+`The four-time MVP gives Pittsburgh its best QB since Ben Roethlisberger but will need a lot to fall into place to succeed.`\
+https://nytimes.com/athletic/6409964/2025/06/09/aaron-rodgers-film-review-pittsburgh-steelers/
+
+**The New York Times International Edition in Print for Tuesday, June 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/09/todays-new-york-times-international-edition
+
 **Panthers' Bryce Young and Dave Canales in a better place after some tense moments in 2024**\
 `Bryce Young's father appreciated Canales' attendance and participation in the camp that also had a mental health component to it.`\
 https://nytimes.com/athletic/6412111/2025/06/09/panthers-bryce-young-dave-canales-camp/
