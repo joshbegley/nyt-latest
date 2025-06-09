@@ -1,3 +1,7 @@
+**Chelsea sign Strasbourg's Sarr on eight-year deal**\
+`In January, the clubs reached an €14million (£11.9m; $14.4m) agreement for the centre-back to move at the end of the season.`\
+https://nytimes.com/athletic/6413145/2025/06/09/chelsea-transfers-strasbourg-sarr/
+
 **SGA won't try to 'reinvent the wheel' but he's quietly rewriting history in NBA Finals**\
 `Naysayers can criticize all they want, but it's hard to deny the MVP's consistency — with his own twist. “I'm being myself.”`\
 https://nytimes.com/athletic/6412998/2025/06/09/shai-gilgeous-alexander-thunder-nba-finals-scoring/
