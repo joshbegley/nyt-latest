@@ -1,3 +1,7 @@
+**Adams says the N.Y.P.D. will not tolerate the kind of protests happening in Los Angeles.**\
+`Mayor Eric Adams said the New York City police would protect the right to protest peacefully but would “not allow violence and lawlessness.”`\
+https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/eric-adams-nypd-los-angeles-protests
+
 **Trump and Newsom Skewer Each Other After National Guard Deployment**\
 `President Trump said that Gov. Gavin Newsom should be arrested for his governance of California, while Mr. Newsom issued a barrage of retorts online.`\
 https://nytimes.com/2025/06/09/us/trump-newsom-protests-california.html
