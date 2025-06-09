@@ -14,9 +14,9 @@ https://nytimes.com/athletic/6412448/2025/06/08/thunder-pacers-game-2-2025-nba-f
 `We are living in a dangerous moment.`\
 https://nytimes.com/2025/06/08/opinion/trump-newsom-los-angeles-national-guard.html
 
-**A high-tech ‘Sunset Boulevard’ starring Nicole Scherzinger wins the Tony for best musical revival.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/a-high-tech-sunset-boulevard-starring-nicole-scherzinger-wins-the-tony-for-best-musical-revival
+**‘Sunset Boulevard’ Starring Nicole Scherzinger Wins the Tony Award for Best Musical Revival**\
+`The high-tech production of Andrew Lloyd Webber’s musical proved to be a star vehicle for the pop singer.`\
+https://nytimes.com/2025/06/08/theater/a-high-tech-sunset-boulevard-starring-nicole-scherzinger-wins-the-tony-for-best-musical-revival.html
 
 **A crowd-control munition used in George Floyd protests is being used in Los Angeles.**\
 `By Thomas Gibbons-Neff and Livia Albeck-Ripka`\
