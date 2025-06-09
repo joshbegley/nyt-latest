@@ -1,3 +1,7 @@
+**Cristiano Ronaldo wins Nations League aged 40: 'For Portugal, if I had to break a leg, I would'**\
+`Billed as 'galaxies colliding' with Ronaldo facing the 17-year-old star Yamal, it was the legendary forward who scored and lifted the trophy`\
+https://nytimes.com/athletic/6412878/2025/06/09/cristiano-ronaldo-portugal-nations-league-yamal-spain/
+
 **Word of the Day: mycologist**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/09/learning/word-of-the-day-mycologist.html
