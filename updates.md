@@ -1,3 +1,11 @@
+**Iran to Crack Down on Dog Walkers**\
+`Officials in at least 20 cities have pledged in recent day to enforce a ban introduced in 2019, citing public health and public safety risks. “Dog walking is a clear crime,” one said.`\
+https://nytimes.com/2025/06/09/world/middleeast/iran-dog-walking-bans.html
+
+**‘Ruinous Burdens’: Border Businesses Struggle Under Trump’s Cartel Crackdown**\
+`Federal judges have lauded the government’s goal of rooting out money laundering schemes but questioned the effectiveness of a tactic that’s wreaking havoc on small money services operations.`\
+https://nytimes.com/2025/06/09/us/politics/trump-cartels-border-businesses.html
+
 **Packers are taking calculated risk in releasing cornerback Jaire Alexander**\
 `The Packers are hoping Keisean Nixon and Nate Hobbs can hold up against the multitude of top receivers Green Bay will face in 2025.`\
 https://nytimes.com/athletic/6413530/2025/06/09/packers-cornerback-jaire-alexander-fallout/
