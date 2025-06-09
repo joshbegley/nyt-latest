@@ -1,3 +1,7 @@
+**Carreras set to play for Benfica in CWC despite Madrid interest**\
+`Madrid are in talks with the Lisbon club to re-sign their former academy graduate but will not conclude a deal before the tournament.`\
+https://nytimes.com/athletic/6410450/2025/06/09/carreras-benfica-club-world-cup-real-madrid/
+
 **Spurs next manager odds: Frank or Silva to take over from Postecoglou?**\
 `Brett Koremenos explores the odds around Tottenham's hunt for a new manager in the wake of the Ange Postecoglou sacking.`\
 https://nytimes.com/athletic/6413034/2025/06/09/tottenham-next-manager-betting-tips-predictions-odds/
