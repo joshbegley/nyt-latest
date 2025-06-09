@@ -1,3 +1,7 @@
+**Red Sox call up top prospect Roman Anthony: Source**\
+`The Red Sox hope to spark their offense with a player who hit a 497-foot home run on Saturday for Triple-A Worcester.`\
+https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/
+
 **Sly Stone, Maestro of a Multifaceted, Hitmaking Band, Dies at 82**\
 `Leading Sly and the Family Stone, he helped redefine the landscape of pop, funk and rock in the late 1960s and ’70s.`\
 https://nytimes.com/2025/06/09/arts/music/sly-stone-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6414219/2025/06/09/house-settlement-college-sports-
 **Caitlin Clark will miss 5th game with quad strain, out Tuesday vs. Dream**\
 `Indiana coach Stephanie White said Clark has been doing "some practicing, not everything."`\
 https://nytimes.com/athletic/6414340/2025/06/09/caitlin-clark-indiana-fever-strain-atlanta-dream/
-
-**Kirk Cousins expected at Atlanta Falcons minicamp: Sources**\
-`Last season, Cousins threw for 3,508 yards, 18 touchdowns and 16 interceptions.`\
-https://nytimes.com/athletic/6414276/2025/06/09/kirk-cousins-atlanta-falcons-minicamp/
 
