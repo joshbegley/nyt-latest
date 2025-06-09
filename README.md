@@ -1,3 +1,7 @@
+**Videos of Assassination Attempt in Colombia Stoke National Tension**\
+`Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition om Sunday a day after being shot.`\
+https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
+
 **Mets' Juan Soto reaches base 6 times in a game for first time**\
 `Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
 https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-times/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6412523/2025/06/08/canadian-open-pga-tour-ryan-fox-
 `By Sarah Bahr`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/sarah-snook-won-her-first-tony-for-a-one-woman-picture-of-dorian-gray
 
-**Hall of Famer Don Nelson roasts Mavs in 'protest' over Luka Dončić trade**\
+**'Tremendous mistake": Hall of Famer Don Nelson blasts Mavericks for Luka Dončić trade**\
 `While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
 https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/podcasts/doppelgangers-this-american-life-nyt-aud
 **Newsom Formally Asks Trump to Pull National Guard Out of L.A.**\
 `Gov. Gavin Newsom’s office, in a letter to the Trump administration, called the deployment of troops “unlawful” and a “serious breach of state sovereignty.”`\
 https://nytimes.com/2025/06/08/us/newsom-formally-asks-trump-to-pull-national-guard-out-of-la.html
-
-**The Mexican Flag Has Become a Potent Protest Symbol**\
-`Trump officials have cast demonstrators waving the Mexican flag as insurrectionists, but for many protesters who are Mexican American, the flag represents pride in their heritage.`\
-https://nytimes.com/2025/06/08/us/mexican-flag-protest-los-angeles.html
 

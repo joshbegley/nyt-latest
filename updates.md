@@ -1,3 +1,7 @@
+**Mets' Juan Soto reaches base 6 times in a game for first time**\
+`Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
+https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-times/
+
 **Mets' Juan Soto reaches bases 6 times in a game for first time**\
 `Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
 https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-bases-six-times/
