@@ -1,5 +1,5 @@
 **Three Yankees takeaways: New York misses chance to bury Boston's season**\
-`Boston weathered starter Hunter Dobbins' anti-Yankees comments and the Red Sox won back-to-back games for the first time since May 24.`\
+`Boston weathered starter Hunter Dobbins' anti-Yankees comments and won back-to-back games for the first time since May 24.`\
 https://nytimes.com/athletic/6412812/2025/06/09/yankees-lose-to-red-sox-3-takeaways/
 
 **The New York Times in Print for Monday, June 9, 2025**\

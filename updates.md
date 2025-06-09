@@ -1,3 +1,19 @@
+**Three Yankees takeaways: New York misses chance to bury Boston's season**\
+`Boston weathered starter Hunter Dobbins' anti-Yankees comments and the Red Sox won back-to-back games for the first time since May 24.`\
+https://nytimes.com/athletic/6412812/2025/06/09/yankees-lose-to-red-sox-3-takeaways/
+
+**The New York Times in Print for Monday, June 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/09/todays-new-york-times
+
+**Here’s What’s Happening in America, in Six (Mostly) Russian Terms**\
+`To help Americans name their new reality, we wrote a phrase book of authoritarianism.`\
+https://nytimes.com/2025/06/09/opinion/america-russia-authoritarian-language.html
+
+**‘Call Her Alex,’ Plus 7 Things on TV this Week**\
+`The series about the podcast host Alex Cooper airs, alongside a slew of new documentaries.`\
+https://nytimes.com/2025/06/09/arts/television/call-her-alex-plus-7-things-on-tv-this-week.html
+
 **Thomas Frank led Brentford to new heights. It’s no surprise he is the leading contender for Tottenham job**\
 `The 51-year-old has had a huge impact on Brentford, establishing them in the Premier League and developing Mbeumo, Wissa and Toney`\
 https://nytimes.com/athletic/6397716/2025/06/09/thomas-frank-tottenham-brentford-manager-profile/
