@@ -1,3 +1,5 @@
+
+
 **Tuesday Briefing: California’s Lawsuit Against Trump**\
 `Plus, a triumph at the Tonys for a musical set in South Korea.`\
 https://nytimes.com/2025/06/09/briefing/trump-lawsuit-california-ukraine-tonys.html
