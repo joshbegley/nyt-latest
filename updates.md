@@ -1,3 +1,11 @@
+**12 Unforgettable Looks at the Tony Awards**\
+`Sequins and velvet and shorts, oh my!`\
+https://nytimes.com/2025/06/09/style/tony-awards-fashion-red-carpet.html
+
+**Rayan Cherki has always been special. Now there are goals and assists, too**\
+`The France playmaker is a mercurial genius who is set to transform Manchester City's midfield. There is far more to him than meets the eye`\
+https://nytimes.com/athletic/6266304/2025/06/09/rayan-cherki-lyon-skills-two-footed-transfer-future/
+
 **Man City interested in signing Chelsea goalkeeper Bettinelli**\
 `Pep Guardiola's side are in the market for a new goalkeeper following the departure of Scott Carson, who spent six seasons at the Etihad.`\
 https://nytimes.com/athletic/6413340/2025/06/09/manchester-city-transfers-chelsea-bettinelli/

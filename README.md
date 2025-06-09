@@ -1,3 +1,7 @@
+**A Tricky Balance for L.A. Law Enforcement During Immigration Protests**\
+`Local agencies have tried to make clear that they are not involved in civil immigration enforcement, but that when protests turn violent, they will intervene.`\
+https://nytimes.com/2025/06/09/us/lapd-sheriff-immigration-raids.html
+
 **12 Unforgettable Looks at the Tony Awards**\
 `Sequins and velvet and shorts, oh my!`\
 https://nytimes.com/2025/06/09/style/tony-awards-fashion-red-carpet.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/heres-t
 **Live Updates: 3 Days of Immigration Clashes Leave L.A. on Edge**\
 `California leaders demanded that President Trump withdraw National Guard troops from Los Angeles, as police scuffled with crowds protesting the administration’s immigration crackdown.`\
 https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump
-
-**‘You Came To The Wrong City’: Protesters Decry Immigration Raids**\
-`Brianna Vargas hit the streets of Los Angeles with a megaphone to protest the Trump administration immigration raids.`\
-https://nytimes.com/video/us/100000010216398/la-protester-immigration-raids.html
 
