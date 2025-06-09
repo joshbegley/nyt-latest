@@ -1,3 +1,7 @@
+**What's next for Michael McGreevy after an encouraging spot start against Dodgers?**\
+`McGreevy salvaged a shaky outing with some mid-game adjustments, and that maturity impressed the Cardinals' decision-makers.`\
+https://nytimes.com/athletic/6412197/2025/06/09/cardinals-michael-mcgreevy-rotation/
+
 **The Athletic FC: Ronaldo's Portugal glory, Frank in frame for Spurs job, toddler on the pitch!**\
 `Today in TAFC: Ronaldo's tears after Portugal win Nations League, why Frank makes sense for Spurs, the latest from the world of transfers`\
 https://nytimes.com/athletic/6413134/2025/06/09/ronaldos-portugal-glory-frank-in-frame-for-spurs-job-toddler-on-the-pitch/
