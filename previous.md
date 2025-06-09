@@ -1,5 +1,9 @@
+**Monday Briefing**\
+`Protests against immigration raids in Los Angeles.`\
+https://nytimes.com/2025/06/09/briefing/los-angeles-protests-russia-china.html
+
 **Three Yankees takeaways: New York misses chance to bury Boston's season**\
-`Boston weathered starter Hunter Dobbins' anti-Yankees comments and the Red Sox won back-to-back games for the first time since May 24.`\
+`Boston weathered starter Hunter Dobbins' anti-Yankees comments and won back-to-back games for the first time since May 24.`\
 https://nytimes.com/athletic/6412812/2025/06/09/yankees-lose-to-red-sox-3-takeaways/
 
 **The New York Times in Print for Monday, June 9, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411522/2025/06/09/2026-world-cup-players-stars/
 **Club World Cup team guide – Al Hilal: New coach Inzaghi, stars such as Cancelo, and 19 league titles**\
 `Everything you need to know about the Saudi giants`\
 https://nytimes.com/athletic/6407701/2025/06/09/club-world-cup-team-guide-al-hilal-new-coach-inzaghi-stars-such-as-cancelo-and-19-league-titles/
-
-**Club World Cup team guide - Juventus: A returning hero, the son of a legend, and a splash of pink**\
-`Series A's most successful club has struggled in recent years but, with youth on their side, they could be on their way back`\
-https://nytimes.com/athletic/6407702/2025/06/09/club-world-cup-team-guide-juventus/
 
