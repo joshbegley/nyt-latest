@@ -1,3 +1,7 @@
+**Packers are taking calculated risk in releasing cornerback Jaire Alexander**\
+`The Packers are hoping Keisean Nixon and Nate Hobbs can hold up against the multitude of top receivers Green Bay will face in 2025.`\
+https://nytimes.com/athletic/6413530/2025/06/09/packers-cornerback-jaire-alexander-fallout/
+
 **California Lawsuit Will Challenge Trump’s Order Sending National Guard to L.A., Newsom Says**\
 `The office of Gov. Gavin Newsom seemed to foreshadow the litigation in a letter to Defense Secretary Pete Hegseth on Sunday.`\
 https://nytimes.com/2025/06/09/us/california-lawsuit-national-guard-protests-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413335/2025/06/09/carson-hocevar-michigan-nascar-c
 **Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
 `To some, the dolls, known as reborn dolls, provide comfort, escape or just plain fun. But politicians across Brazil have tried to pass bills banning the dolls from public spaces.`\
 https://nytimes.com/2025/06/09/world/americas/reborn-baby-dolls-brazil.html
-
-**THE BAT X fantasy baseball cheat sheet: Add Ben Brown, stream Agustín Ramírez**\
-`Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
-https://nytimes.com/athletic/6413415/2025/06/09/the-bat-x-fantasy-baseball-cheat-sheet-ben-brown/
 
