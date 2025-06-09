@@ -1,3 +1,7 @@
+**Tottenham contact Brentford over Frank, hoping for agreement in next 48 hours**\
+`Tottenham announced the sacking of Ange Postecoglou, who guided them to the Europa League title, on Friday afternoon.`\
+https://nytimes.com/athletic/6387946/2025/06/09/tottenham-thomas-frank-manager-next/
+
 **2 Killed in Shooting on Las Vegas Strip**\
 `The police said the shooting, which was captured on video, was an isolated incident, and that the gunman and the victims had “previously engaged in conflict over social media.”`\
 https://nytimes.com/2025/06/09/us/las-vegas-shooting-youtube-feud.html

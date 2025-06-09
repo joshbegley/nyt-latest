@@ -1,3 +1,7 @@
+**Tottenham contact Brentford over Frank, hoping for agreement in next 48 hours**\
+`Tottenham announced the sacking of Ange Postecoglou, who guided them to the Europa League title, on Friday afternoon.`\
+https://nytimes.com/athletic/6387946/2025/06/09/tottenham-thomas-frank-manager-next/
+
 **2 Killed in Shooting on Las Vegas Strip**\
 `The police said the shooting, which was captured on video, was an isolated incident, and that the gunman and the victims had “previously engaged in conflict over social media.”`\
 https://nytimes.com/2025/06/09/us/las-vegas-shooting-youtube-feud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413409/2025/06/09/jaire-alexander-green-bay-packer
 **Waymo Halts Service in Downtown Los Angeles After Its Taxis Are Set on Fire**\
 `Protesters smashed the windows of multiple Waymo robot taxis and then set them on fire. The police warned of toxic fumes released by burning lithium-ion batteries.`\
 https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html
-
-**Here’s the latest.**\
-`By Rick Rojas, Livia Albeck-Ripka, Shawn Hubler, Jesus Jiménez and Yan Zhuang`\
-https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/heres-the-latest
 
