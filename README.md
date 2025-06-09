@@ -1,40 +1,40 @@
-**Trump and Patel defend the decision to send in National Guard troops.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/trump-and-patel-defend-the-decision-to-send-in-national-guard-troops
+**Willy Adames on his rough start as a Giant: 'I want to look in the mirror and slap myself'**\
+`Adames wasn't in the lineup for the first time this season — a head-clearing break — in San Francisco's 4-3 win over Atlanta.`\
+https://nytimes.com/athletic/6412836/2025/06/09/giants-willy-adames-rough-start/
 
-**How Trump Has Leverage Over Musk**\
-`But Mr. Trump’s warnings to his former ally are backed by several ways the White House could punish the world’s richest man.`\
-https://nytimes.com/2025/06/09/business/dealbook/trump-musk-truce.html
+**What we learned about the Sabres at 2025 NHL Scouting Combine**\
+`For the second straight year, the idea of the Sabres trading their first-round pick should be on the table.`\
+https://nytimes.com/athletic/6412891/2025/06/09/buffalo-nhl-scouting-combine-sabres-2025/
 
-**Man City reach agreement to sign Cherki from Lyon**\
-`Cherki was named in the Europa League Team of the Season, while also earning his first call-up for France's senior team in May.`\
-https://nytimes.com/athletic/6393363/2025/06/09/man-city-rayan-cherki-transfer/
+**Can Red Wings find missing piece on defense at pick No. 13?**\
+`The Red Wings could use one more top-four blueliner in their pipeline. But will the right fit be there at 13?`\
+https://nytimes.com/athletic/6411948/2025/06/09/detroit-red-wings-nhl-draft-defensemen/
 
-**Warner Bros. Discovery to Split Into Two Companies**\
-`The film and television giant will turn its cable networks, including CNN and TNT, into one company and its streaming and studios business into another.`\
-https://nytimes.com/2025/06/09/business/media/warner-bros-discovery-split.html
+**49ers’ Kris Kocurek goes deep on Bryce Huff, Mykel Williams and revamped D-line**\
+`Kocurek hasn't had this much change on the defensive line since 2019. He spoke about the new guys and the plans for the 2025 season.`\
+https://nytimes.com/athletic/6409310/2025/06/09/49ers-kris-kocurek-bryce-huff-mykel-williams/
 
-**What's next for Michael McGreevy after an encouraging spot start against Dodgers?**\
-`McGreevy salvaged a shaky outing with some mid-game adjustments, and that maturity impressed the Cardinals' decision-makers.`\
-https://nytimes.com/athletic/6412197/2025/06/09/cardinals-michael-mcgreevy-rotation/
+**Jets mailbag, Part 2: Landing a second-line centre, Rashevsky's potential and more**\
+`The Jets have been searching for a long-term fit at second-line centre for years. Is Marco Rossi — or an offer sheet — the answer?`\
+https://nytimes.com/athletic/6409327/2025/06/09/jets-mailbag-centre-rossi-rashevsky/
 
-**The Athletic FC: Ronaldo's Portugal glory, Frank in frame for Spurs job, toddler on the pitch!**\
-`Today in TAFC: Ronaldo's tears after Portugal win Nations League, why Frank makes sense for Spurs, the latest from the world of transfers`\
-https://nytimes.com/athletic/6413134/2025/06/09/ronaldos-portugal-glory-frank-in-frame-for-spurs-job-toddler-on-the-pitch/
+**Thunder, Oklahoma City have reinforced each other through shared rebuilds and flourished**\
+`There is a symbiosis between this team and its fanbase that is more exception than rule in pro sports.`\
+https://nytimes.com/athletic/6406445/2025/06/09/oklahoma-city-thunder-rebuild-nba/
 
-**City of Glendale Cancels Its Contract to Help House ICE Detainees**\
-`The contract was one of many that the Homeland Security and Immigrations and Customs Enforcement departments have with local governments.`\
-https://nytimes.com/2025/06/09/us/glendale-contract-ice-detainees.html
+**Trade targets: 9 potential centre upgrades for the Leafs, from big swings to small**\
+`The Leafs are in need of more effective centre depth. If free agency doesn't fall Toronto's way, a trade might be the answer.`\
+https://nytimes.com/athletic/6405464/2025/06/09/maple-leafs-centre-trade-targets-danault-kadri-zibanejad/
 
-**Listen: How could Cunha and Mbeumo fit into Amorim’s system?**\
-`On the latest episode of The Athletic FC Podcast, Adam Leventhal, Carl Anka and Conor O’Neill discuss how the duo might flourish at United`\
-https://nytimes.com/athletic/6413130/2025/06/09/cunha-mbeumo-manchester-united-amorim-premier-league/
+**Nate Schmidt 'found his fun again' with Panthers en route to sensational playoffs run**\
+`It took a while for Schmidt to fully get settled in Florida, but he looks like a new player on the ice.`\
+https://nytimes.com/athletic/6412059/2025/06/09/nate-schmidt-florida-panthers-stanley-cup-final/
 
-**After landing the right free agents, Cubs will turn to more pitching at trade deadline**\
-`The Cubs know they need more pitching to get through October. Jameson Taillon and Matthew Boyd represent the type of pitchers they seek.`\
-https://nytimes.com/athletic/6412522/2025/06/09/cubs-pitching-trade-deadline/
+**An L.A. mindset, cold beer and a big AHL risk: Inside Marco Sturm's road to coaching the Bruins**\
+`Sturm has "touched every base" in his rise through the coaching ranks and brings a defense- and checking-first philosophy to Boston.`\
+https://nytimes.com/athletic/6412181/2025/06/09/marco-sturm-bruins-coaching-philosophy/
 
-**Astros mailbag: The catching situation, Jacob Melton's role and Miguel Ullola's arrival**\
-`Will the Astros re-sign Framber Valdez? Can Houston figure out how to control the running game? We answer these questions and more.`\
-https://nytimes.com/athletic/6412355/2025/06/09/houston-astros-catchers-jacob-melton/
+**Why the Flyers might have to consider trading the No. 6 pick in the NHL Draft**\
+`The Flyers need more top-end talent, and they’re going to have to get creative in order to procure it.`\
+https://nytimes.com/athletic/6410515/2025/06/09/flyers-nhl-draft-2025/
 
