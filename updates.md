@@ -1,3 +1,7 @@
+**Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
+`The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
+https://nytimes.com/2025/06/09/us/trump-calls-protesters-in-los-angeles-insurrectionists.html
+
 **Iowa hires former NFL GM Scott Pioli as football program consultant**\
 `Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
 https://nytimes.com/athletic/6414188/2025/06/09/iowa-hires-scott-pioli-football-house-settlement/

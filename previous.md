@@ -1,3 +1,7 @@
+**Trump Calls Protesters in Los Angeles ‘Insurrectionists’**\
+`The description could become a rationale for invoking the 1807 Insurrection Act, which would give the president broad authority to use the military to deal with violence.`\
+https://nytimes.com/2025/06/09/us/trump-calls-protesters-in-los-angeles-insurrectionists.html
+
 **Iowa hires former NFL GM Scott Pioli as football program consultant**\
 `Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
 https://nytimes.com/athletic/6414188/2025/06/09/iowa-hires-scott-pioli-football-house-settlement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/politics/dc-midair-crash-senate-commerce-commi
 **Two thrilling finals, scheduling embarrassment and the funniest moments: French Open takeaways**\
 `After two incredible finals closed out the French Open, a look back on the second Grand Slam of 2025.`\
 https://nytimes.com/athletic/6413355/2025/06/09/tennis-french-open-best-matches-best-shots-2025/
-
-**Dick Vitale, ESPN agree to contract extension through 2027-28**\
-`Since joining the company in its inaugural year in 1979, Vitale has called over 1,000 college basketball games.`\
-https://nytimes.com/athletic/6413951/2025/06/09/dick-vitale-espn-contract-extension-2027-28/
 
