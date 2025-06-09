@@ -1,3 +1,11 @@
+**12 Unforgettable Looks at the Tony Awards**\
+`Sequins and velvet and shorts, oh my!`\
+https://nytimes.com/2025/06/09/style/tony-awards-fashion-red-carpet.html
+
+**Rayan Cherki has always been special. Now there are goals and assists, too**\
+`The France playmaker is a mercurial genius who is set to transform Manchester City's midfield. There is far more to him than meets the eye`\
+https://nytimes.com/athletic/6266304/2025/06/09/rayan-cherki-lyon-skills-two-footed-transfer-future/
+
 **Man City interested in signing Chelsea goalkeeper Bettinelli**\
 `Pep Guardiola's side are in the market for a new goalkeeper following the departure of Scott Carson, who spent six seasons at the Etihad.`\
 https://nytimes.com/athletic/6413340/2025/06/09/manchester-city-transfers-chelsea-bettinelli/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump
 **‘You Came To The Wrong City’: Protesters Decry Immigration Raids**\
 `Brianna Vargas hit the streets of Los Angeles with a megaphone to protest the Trump administration immigration raids.`\
 https://nytimes.com/video/us/100000010216398/la-protester-immigration-raids.html
-
-**Oilers at Panthers Stanley Cup Final Game 3 odds, picks: Another OT thriller incoming?**\
-`After two overtime games in Edmonton, the Stanley Cup Final shifts to Florida with the series tied 1-1.`\
-https://nytimes.com/athletic/6411962/2025/06/09/oilers-panthers-stanley-cup-final-game-3-odds-picks/
-
-**More Chaos Plagues New Gaza Aid System**\
-`The Gaza Humanitarian Foundation said that Hamas had threatened its workers, a claim the militant group denied, as the United Nations warned that Gazans were far from getting the food they need.`\
-https://nytimes.com/2025/06/09/world/middleeast/chaos-gaza-aid.html
 
