@@ -1,3 +1,7 @@
+**Iowa hires former NFL GM Scott Pioli as football program consultant**\
+`Pioli is the former former Kansas City Chiefs general manager and New England Patriots executive.`\
+https://nytimes.com/athletic/6414188/2025/06/09/iowa-hires-scott-pioli-football-house-settlement/
+
 **Don’t Overlook the Reality of Elon Musk’s Contracts and Their Importance to the U.S.**\
 `One part of Musk and Trump’s public breakup should not get lost: the reality of Musk’s importance to American national security.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-spacex-nasa-contracts-trump
