@@ -1,3 +1,15 @@
+**How to Give Yourself a Pedicure**\
+`Expert advice from a foot model, a nail artist and a burlesque performer.`\
+https://nytimes.com/2025/06/09/t-magazine/home-pedicure-guide.html
+
+**For Carson Hocevar, heartbreak on his home track as first Cup win stays elusive**\
+`Carson Hocevar is getting closer to victory lane in the Cup Series. But on Sunday, a flat tire at his home track spoiled his latest chance.`\
+https://nytimes.com/athletic/6413335/2025/06/09/carson-hocevar-michigan-nascar-cup-series-flat-tire/
+
+**Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
+`To some, the dolls, known as reborn dolls, provide comfort, escape or just plain fun. But politicians across Brazil have tried to pass bills banning the dolls from public spaces.`\
+https://nytimes.com/2025/06/09/world/americas/reborn-baby-dolls-brazil.html
+
 **THE BAT X fantasy baseball cheat sheet: Add Ben Brown, stream Agustín Ramírez**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6413415/2025/06/09/the-bat-x-fantasy-baseball-cheat-sheet-ben-brown/
@@ -18,23 +30,11 @@ https://nytimes.com/2025/06/09/health/gun-deaths-children.html
 `Try this short quiz to see how many memorable lines from great books have stuck with you over the years.`\
 https://nytimes.com/interactive/2025/06/09/books/review/books-quotes-quiz.html
 
+**NASCAR Michigan takeaways: Denny Hamlin's surge, Ty Gibbs' frustration and more**\
+`Denny Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
+https://nytimes.com/athletic/6413569/2025/06/09/nascar-michigan-takeaways-denny-hamlin-ty-gibbs-23xi-racing/
+
 **Wander Franco charged with gun possession amid sexual abuse trial: Reports**\
 `Franco is currently on trial on charges including sexual abuse of a minor.`\
 https://nytimes.com/athletic/6413490/2025/06/09/wander-franco-mlb-charges/
-
-**The Windup: Are the Cardinals for real?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6413639/2025/06/09/cardinals-record-standings-the-windup/
-
-**What to watch in sports this week: NBA and Stanley Cup finals are tied, U.S. Open tees off**\
-`Here's what to watch across the sports cosmos this week, with NBA and Stanley Cup finals on the flashing marquee.`\
-https://nytimes.com/athletic/6412964/2025/06/09/nba-finals-stanley-cup-us-open-concacaf-yankees-red-sox-how-to-watch/
-
-**Lowetide: Which Oilers players have increased their value for next season?**\
-`Several players have increased their chances of staying on the Edmonton roster for the 2025-26 campaign.`\
-https://nytimes.com/athletic/6411776/2025/06/09/oilers-players-nhl-playoffs-roster-value/
-
-**What we know about Knicks' coaching search, including Jason Kidd's status**\
-`The Knicks have backed themselves into a corner between the firing of Tom Thibodeau and this upcoming hire. Here's what we know.`\
-https://nytimes.com/athletic/6413411/2025/06/09/knicks-head-coach-search-jason-kidd-mavericks/
 
