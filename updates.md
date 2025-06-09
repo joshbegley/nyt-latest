@@ -1,3 +1,11 @@
+**Record 2.4 million watched Texas' win over Texas Tech in Game 3 of WCWS**\
+`Every game of the series set records, making it the most-watched WCWS Finals in history.`\
+https://nytimes.com/athletic/6414764/2025/06/09/texas-wcws-most-watched-ever-texas-tech/
+
+**Labor Leader Arrested During Immigration Protest Is Released on Bond**\
+`Rallies across the country have been held in support of David Huerta, the president of the Service Employees International Union California, who was briefly hospitalized with a head injury after his arrest.`\
+https://nytimes.com/2025/06/09/us/david-huerta-union-leader-la-protest-court.html
+
 **Waymo Limits Service in San Francisco as Immigration Protests Spread**\
 `The self-driving taxi company also said its vehicles were in the wrong place at the wrong time in Los Angeles after protesters set fire to several of the cars there.`\
 https://nytimes.com/2025/06/09/technology/waymo-san-francisco-immigration-protests.html
