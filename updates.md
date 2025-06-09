@@ -1,3 +1,15 @@
+**The Confrontation in Los Angeles**\
+`Readers respond to the Trump administration’s deployment of National Guard troops to quell protests in Los Angeles.`\
+https://nytimes.com/2025/06/09/opinion/los-angeles-immigration-protests-national-guard.html
+
+**Soccer tournament provides USWNT reunion and $1 million prize: 'Sponsors should be lining up'**\
+`US Women take on Bumpy Pitch FC in the TST women's final on Monday night. The winner takes home $1 million. `\
+https://nytimes.com/athletic/6412847/2025/06/09/uswnt-carli-lloyd-tst-million-dollar-prize/
+
+**Listen: Where does Brad Marchand rank among the all-time best trade deadline moves?**\
+`Mark Lazerus and Max Bultman debate whether Brad Marchand is one of the greatest trade deadline acquisitions in NHL history.`\
+https://nytimes.com/athletic/6413485/2025/06/09/marchand-trade-all-time-best/
+
 **Cavaliers' Darius Garland has surgery on big toe**\
 `Cleveland said Garland is expected to "make a full recovery."`\
 https://nytimes.com/athletic/6414247/2025/06/09/cavaliers-darius-garland-surgery-big-toe-injury/

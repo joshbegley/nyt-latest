@@ -1,9 +1,17 @@
+**The Confrontation in Los Angeles**\
+`Readers respond to the Trump administration’s deployment of National Guard troops to quell protests in Los Angeles.`\
+https://nytimes.com/2025/06/09/opinion/los-angeles-immigration-protests-national-guard.html
+
+**Soccer tournament provides USWNT reunion and $1 million prize: 'Sponsors should be lining up'**\
+`US Women take on Bumpy Pitch FC in the TST women's final on Monday night. The winner takes home $1 million. `\
+https://nytimes.com/athletic/6412847/2025/06/09/uswnt-carli-lloyd-tst-million-dollar-prize/
+
 **Cavaliers' Darius Garland has surgery on big toe**\
 `Cleveland said Garland is expected to "make a full recovery."`\
 https://nytimes.com/athletic/6414247/2025/06/09/cavaliers-darius-garland-surgery-big-toe-injury/
 
 **Listen: Where does Brad Marchand rank among the all-time best trade deadline moves?**\
-`The Athletic Hockey Show debates whether Brad Marchand is one of the greatest trade deadline acquisitions in NHL history.`\
+`Mark Lazerus and Max Bultman debate whether Brad Marchand is one of the greatest trade deadline acquisitions in NHL history.`\
 https://nytimes.com/athletic/6413485/2025/06/09/marchand-trade-all-time-best/
 
 **Apple Opens Conference With New iPhone Software Design**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-spacex-nasa-contr
 **Defense cites 'reliability concerns' of E.M. in first of closing arguments at Hockey Canada trial**\
 `Judge in Hockey Canada sexual assault trial expressed surprise at what she called "extremely" quick settlement of 2022 civil lawsuit.`\
 https://nytimes.com/athletic/6413749/2025/06/09/hockey-canada-sexual-assault-trial-closing-statements/
-
-**Young striker McNeilly rejects Chelsea contract offer, plans to leave club**\
-`The 19-year-old scored 15 times in 28 appearances for the Under-21s this season.`\
-https://nytimes.com/athletic/6413894/2025/06/09/chelsea-donnell-mcneilly-contract/
-
-**Where Has the Original Cast of ‘Hamilton’ Been? We’ve Got Answers.**\
-`Lin-Manuel Miranda and others reunited for a medley at the Tonys on Sunday, celebrating the 10th anniversary of the show’s opening.`\
-https://nytimes.com/2025/06/09/theater/hamilton-original-cast-now.html
 
