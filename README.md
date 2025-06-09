@@ -1,3 +1,19 @@
+**SGA won't try to 'reinvent the wheel' but he's quietly rewriting history in NBA Finals**\
+`Naysayers can criticize all they want, but it's hard to deny the MVP's consistency — with his own twist. “I'm being myself.”`\
+https://nytimes.com/athletic/6412998/2025/06/09/shai-gilgeous-alexander-thunder-nba-finals-scoring/
+
+**Ravens CB Nate Wiggins had a strong rookie season. Now, he's learning to be a pro**\
+`Baltimore is hoping Wiggins can take another step in his second season and become one of the team's core defensive players. `\
+https://nytimes.com/athletic/6410680/2025/06/09/ravens-nate-wiggins-organized-team-activities/
+
+**Aaron Rodgers film review: What does the QB have left in the tank for the Steelers?**\
+`The four-time MVP gives Pittsburgh its best QB since Ben Roethlisberger but will need a lot to fall into place to succeed.`\
+https://nytimes.com/athletic/6409964/2025/06/09/aaron-rodgers-film-review-pittsburgh-steelers/
+
+**The New York Times International Edition in Print for Tuesday, June 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/09/todays-new-york-times-international-edition
+
 **Panthers' Bryce Young and Dave Canales in a better place after some tense moments in 2024**\
 `Bryce Young's father appreciated Canales' attendance and participation in the camp that also had a mental health component to it.`\
 https://nytimes.com/athletic/6412111/2025/06/09/panthers-bryce-young-dave-canales-camp/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/09/us/politics/trump-tariffs-appeals-court.html
 **A Designer Embraces Femininity in His Farmhouse Living Room**\
 `Nick Spain showcases D.I.Y. celebration decorations, a vintage nightclub sconce and a French stoneware vase in his favorite room awash in rosy pink.`\
 https://nytimes.com/2025/06/09/realestate/design-finds-nick-spain-living-room.html
-
-**As Lives Changed, the House Came to the Rescue**\
-`Over the decades, a home in Sag Harbor, N.Y., accommodated the birth of two sons, an emptying nest, a death in the family and the arrival of grandchildren.`\
-https://nytimes.com/2025/06/09/realestate/second-home-renovation-sag-harbor-new-york.html
-
-**The Beautiful Danger of Normal Life During an Autocratic Rise**\
-`David Leonhardt sits down with M. Gessen to unpack this new phase of the Trump era.`\
-https://nytimes.com/2025/06/09/opinion/trump-shock-exhaustion.html
-
-**Democrats Hate Trump’s Policy Bill, but Love Some of Its Tax Cuts**\
-`There’s an undercurrent of Democratic support for elements of President Trump’s tax agenda, a dynamic that Republicans are trying to exploit as they make the case for enactment of their sprawling domestic legislation.`\
-https://nytimes.com/2025/06/09/us/politics/democrats-trump-tax-cuts.html
-
-**How a Gay Neocon Writer Survived New York in the ’80s and ’90s**\
-`Thomas Mallon looks back on the AIDS crisis, the heyday of magazines and an exhilarating city in “The Very Heart of It.”`\
-https://nytimes.com/2025/06/09/books/review/thomas-mallon-the-very-heart-of-it.html
 
