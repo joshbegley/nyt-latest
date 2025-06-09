@@ -1,3 +1,11 @@
+**Lamptey agrees one-year Brighton contract extension**\
+`The 24-year-old Ghana international right-back made 10 starts in the Premier League in 2024-25, with his campaign disrupted by injuries.`\
+https://nytimes.com/athletic/6413324/2025/06/09/tariq-lamptey-brighton-contract/
+
+**Trump Administration Live Updates: Travel Ban Goes Into Effect**\
+``\
+https://nytimes.com/live/2025/06/09/us/trump-news
+
 **Willy Adames on his rough start as a Giant: 'I want to look in the mirror and slap myself'**\
 `Adames wasn't in the lineup for the first time this season — a head-clearing break — in San Francisco's 4-3 win over Atlanta.`\
 https://nytimes.com/athletic/6412836/2025/06/09/giants-willy-adames-rough-start/
