@@ -1,3 +1,7 @@
+**What's next for Michael McGreevy after an encouraging spot start against Dodgers?**\
+`McGreevy salvaged a shaky outing with some mid-game adjustments, and that maturity impressed the Cardinals' decision-makers.`\
+https://nytimes.com/athletic/6412197/2025/06/09/cardinals-michael-mcgreevy-rotation/
+
 **The Athletic FC: Ronaldo's Portugal glory, Frank in frame for Spurs job, toddler on the pitch!**\
 `Today in TAFC: Ronaldo's tears after Portugal win Nations League, why Frank makes sense for Spurs, the latest from the world of transfers`\
 https://nytimes.com/athletic/6413134/2025/06/09/ronaldos-portugal-glory-frank-in-frame-for-spurs-job-toddler-on-the-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412341/2025/06/09/toronto-blue-jays-hot-streak-add
 **Mirtle: Intel on the 9 most intriguing teams of NHL free agency from a buzzy draft combine**\
 `Which teams are poised to make big moves over the next few weeks, and for who? Plus, an update on CBA talks.`\
 https://nytimes.com/athletic/6409782/2025/06/09/free-agency-nhl-offseason-rumors-mitch-marner-mirtle/
-
-**Sam Bennett's next contract and the price of playoff pedigree**\
-`Playoff Bennett is a gamer — he is elite. Regular-Season Bennett is a perfectly fine 2C but not much more. So what is that worth?`\
-https://nytimes.com/athletic/6408696/2025/06/09/sam-bennett-nhl-free-agency-contract/
 
