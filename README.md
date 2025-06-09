@@ -31,7 +31,7 @@ https://nytimes.com/2025/06/09/health/gun-deaths-children.html
 https://nytimes.com/interactive/2025/06/09/books/review/books-quotes-quiz.html
 
 **NASCAR Michigan takeaways: Denny Hamlin's surge, Ty Gibbs' frustration and more**\
-`Denny Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
+`Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
 https://nytimes.com/athletic/6413569/2025/06/09/nascar-michigan-takeaways-denny-hamlin-ty-gibbs-23xi-racing/
 
 **Wander Franco charged with gun possession amid sexual abuse trial: Reports**\
