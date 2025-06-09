@@ -1,3 +1,15 @@
+**Trump Jumps at the Chance for a Standoff in California Over Immigration**\
+`The situation has all the elements that the president seeks: a showdown with a top political rival in a deep blue state over an issue core to his agenda.`\
+https://nytimes.com/2025/06/08/us/politics/trump-california-immigration.html
+
+**Doppelgängers**\
+`Fred Armisen joins Ira Glass as co-host for stories of doubles and twins.`\
+https://nytimes.com/2025/06/08/podcasts/doppelgangers-this-american-life-nyt-audio.html
+
+**Newsom Formally Asks Trump to Pull National Guard Out of L.A.**\
+`Gov. Gavin Newsom’s office, in a letter to the Trump administration, called the deployment of troops “unlawful” and a “serious breach of state sovereignty.”`\
+https://nytimes.com/2025/06/08/us/newsom-formally-asks-trump-to-pull-national-guard-out-of-la.html
+
 **The Mexican Flag Has Become a Potent Protest Symbol**\
 `Trump officials have cast demonstrators waving the Mexican flag as insurrectionists, but for many protesters who are Mexican American, the flag represents pride in their heritage.`\
 https://nytimes.com/2025/06/08/us/mexican-flag-protest-los-angeles.html
