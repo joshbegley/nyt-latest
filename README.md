@@ -1,3 +1,7 @@
+**Don’t Overlook the Reality of Elon Musk’s Contracts and Their Importance to the U.S.**\
+`One part of Musk and Trump’s public breakup should not get lost: the reality of Musk’s importance to American national security.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-spacex-nasa-contracts-trump
+
 **Defense cites 'reliability concerns' of E.M. in first of closing arguments at Hockey Canada trial**\
 `Judge in Hockey Canada sexual assault trial expressed surprise at what she called "extremely" quick settlement of 2022 civil lawsuit.`\
 https://nytimes.com/athletic/6413749/2025/06/09/hockey-canada-sexual-assault-trial-closing-statements/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413951/2025/06/09/dick-vitale-espn-contract-extens
 **Transfers TLDR: Rayan Ait-Nouri to Man City – all you need to know**\
 `Rayan Ait-Nouri has moved from Wolves to Manchester City - here's all you need to know`\
 https://nytimes.com/athletic/6405799/2025/06/09/rayan-ait-nouri-manchester-city-transfer/
-
-**City confirm signing of Ait-Nouri from Wolves**\
-`Pep Guardiola played traditional centre-backs Josko Gvardiol and Manuel Akanji in the left-back position in recent seasons.`\
-https://nytimes.com/athletic/6406767/2025/06/09/man-city-sign-rayan-ait-nouri/
 

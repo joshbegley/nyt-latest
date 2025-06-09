@@ -1,3 +1,15 @@
+**Defense cites 'reliability concerns' of E.M. in first of closing arguments at Hockey Canada trial**\
+`Judge in Hockey Canada sexual assault trial expressed surprise at what she called "extremely" quick settlement of 2022 civil lawsuit.`\
+https://nytimes.com/athletic/6413749/2025/06/09/hockey-canada-sexual-assault-trial-closing-statements/
+
+**Young striker McNeilly rejects Chelsea contract offer, plans to leave club**\
+`The 19-year-old scored 15 times in 28 appearances for the Under-21s this season.`\
+https://nytimes.com/athletic/6413894/2025/06/09/chelsea-donnell-mcneilly-contract/
+
+**Where Has the Original Cast of ‘Hamilton’ Been? We’ve Got Answers.**\
+`Lin-Manuel Miranda and others reunited for a medley at the Tonys on Sunday, celebrating the 10th anniversary of the show’s opening.`\
+https://nytimes.com/2025/06/09/theater/hamilton-original-cast-now.html
+
 **Plane With Six Aboard Crashes Off Coast Near San Diego**\
 `The U.S. Coast Guard said on Monday that it was searching for the aircraft, which went down about three miles west of Point Loma, on Sunday.`\
 https://nytimes.com/2025/06/09/us/san-diego-plane-crash-search.html
