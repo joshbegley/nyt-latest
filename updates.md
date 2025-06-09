@@ -1,3 +1,11 @@
+**Sightings of federal immigration vehicles prompt a protest in Pasadena.**\
+`By Jesus Jiménez and Jill Cowan`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/protest-in-pasadena-is-prompted-by-sightings-of-federal-immigration-vehicles
+
+**'Tremendous mistake': Hall of Famer Don Nelson blasts Mavericks for Luka Dončić trade**\
+`While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
+https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
+
 **Videos of Assassination Attempt in Colombia Stoke National Tension**\
 `Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition om Sunday a day after being shot.`\
 https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
