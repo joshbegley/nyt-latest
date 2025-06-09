@@ -1,3 +1,11 @@
+**Packers are taking calculated risk in releasing cornerback Jaire Alexander**\
+`The Packers are hoping Keisean Nixon and Nate Hobbs can hold up against the multitude of top receivers Green Bay will face in 2025.`\
+https://nytimes.com/athletic/6413530/2025/06/09/packers-cornerback-jaire-alexander-fallout/
+
+**N.I.H. Workers Denounce Trump’s ‘Harmful’ Health Policies**\
+`In a scathing public letter, employees of the National Institutes of Health accused the administration of undermining the agency’s work and endangering people’s health.`\
+https://nytimes.com/2025/06/09/health/nih-letter-trump-bhattacharya.html
+
 **California Lawsuit Will Challenge Trump’s Order Sending National Guard to L.A., Newsom Says**\
 `The office of Gov. Gavin Newsom seemed to foreshadow the litigation in a letter to Defense Secretary Pete Hegseth on Sunday.`\
 https://nytimes.com/2025/06/09/us/california-lawsuit-national-guard-protests-trump.html
