@@ -1,3 +1,7 @@
+**Record 2.4 million watched Texas' win over Texas Tech in Game 3 of WCWS**\
+`Every game of the series set records, making it the most-watched WCWS Finals in history.`\
+https://nytimes.com/athletic/6414764/2025/06/09/texas-wcws-most-watched-ever-texas-tech/
+
 **Labor Leader Arrested During Immigration Protest Is Released on Bond**\
 `Rallies across the country have been held in support of David Huerta, the president of the Service Employees International Union California, who was briefly hospitalized with a head injury after his arrest.`\
 https://nytimes.com/2025/06/09/us/david-huerta-union-leader-la-protest-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/world/canada/carney-canada-nato-military-spending
 **States Sue to Stop Return of Seized Machine Gun Conversion Devices**\
 `The Trump administration, reversing a Biden-era policy, had said it would return thousands of confiscated devices that allow rapid firing, even in states where they are banned.`\
 https://nytimes.com/2025/06/09/us/politics/trump-machine-gun-conversion-devices-lawsuit.html
-
-**One year later, Patriots QB Drake Maye's comfort level is 'worlds different'**\
-`Despite being on his second coach in 15 months with the Patriots, Maye is more confident and is the clear-cut leader of this young team.`\
-https://nytimes.com/athletic/6414641/2025/06/09/drake-maye-patriots-minicamp/
 
