@@ -1,3 +1,15 @@
+**States Sue to Stop Return of Seized Machine Gun Conversion Devices**\
+`The Trump administration, reversing a Biden-era policy, had said it would return thousands of confiscated devices that allow rapid firing, even in states where they are banned.`\
+https://nytimes.com/2025/06/09/us/politics/trump-machine-gun-conversion-devices-lawsuit.html
+
+**One year later, Patriots QB Drake Maye's comfort level is 'worlds different'**\
+`Despite being on his second coach in 15 months with the Patriots, Maye is more confident and is the clear-cut leader of this young team.`\
+https://nytimes.com/athletic/6414641/2025/06/09/drake-maye-patriots-minicamp/
+
+**California Clashed With Trump Over Protest Response**\
+`Also, marine heat waves are spreading across the world. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/06/09/briefing/california-protests-trump-marine-heat-waves.html
+
 **Whistle-Blower Who Ignited Sexual Abuse Reckoning Among Southern Baptists Dies**\
 `Jennifer Lyell died at 47 on Saturday. As her denomination started its annual meeting this week, there was no mention of her from the dais.`\
 https://nytimes.com/2025/06/09/us/jennifer-lyell-dead-southern-baptist-convention.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/09/well/appendix-cancer-age.html
 **Read the Criminal Complaint Against David Huerta**\
 `The complaint describes law enforcement’s view the events surrounding the arrest on Friday of the president of the Service Employees International Union California at a protest over an immigration raid.`\
 https://nytimes.com/interactive/2025/06/09/us/usa-v-huerta-complaint.html
-
-**Meta in Talks to Invest Billions in Scale AI**\
-`Scale AI, an artificial intelligence start-up, has built a business by labeling and culling data to make it easier to use to train A.I. systems.`\
-https://nytimes.com/2025/06/09/technology/meta-scale-ai-investment.html
-
-**BlackRock Is Accused of a Plot Against Coal. The Firm Says That’s ‘Absurd.’**\
-`An unusual lawsuit in Texas claims investment firms illegally conspired to fight climate change. On Monday, a judge heard arguments to dismiss the case.`\
-https://nytimes.com/2025/06/09/climate/blackrock-coal-texas-lawsuit.html
-
-**Leaders of ‘Orgasmic Meditation’ Group Are Convicted of Coercion Charges**\
-`Nicole Daedone and Rachel Cherwitz were charged with engaging in a forced labor conspiracy related to the sexual wellness company OneTaste.`\
-https://nytimes.com/2025/06/09/nyregion/onetaste-orgasmic-meditation-verdict.html
 

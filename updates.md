@@ -1,3 +1,7 @@
+**Whistle-Blower Who Ignited Sexual Abuse Reckoning Among Southern Baptists Dies**\
+`Jennifer Lyell died at 47 on Saturday. As her denomination started its annual meeting this week, there was no mention of her from the dais.`\
+https://nytimes.com/2025/06/09/us/jennifer-lyell-dead-southern-baptist-convention.html
+
 **Concacaf rejects Greenland's application for membership**\
 `"This is not a victory for football democracy, it does not make football accessible to everyone globally," Greenland's FA tells The Athletic`\
 https://nytimes.com/athletic/6414496/2025/06/09/concacaf-rejects-greenland-application-membership/
