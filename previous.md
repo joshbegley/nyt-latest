@@ -1,3 +1,11 @@
+**Waymo Limits Service in San Francisco as Immigration Protests Spread**\
+`The self-driving taxi company also said its vehicles were in the wrong place at the wrong time in Los Angeles after protesters set fire to several of the cars there.`\
+https://nytimes.com/2025/06/09/technology/waymo-san-francisco-immigration-protests.html
+
+**Iran Rejects Plan to Stop It From Enriching Uranium, Trump Says**\
+`The president said any enrichment was unacceptable. “They don’t want to give up what they have to give up,” he said.`\
+https://nytimes.com/2025/06/09/us/politics/iran-nuclear-trump-proposal-uranium.html
+
 **Trump Pivots From Musk to Newsom**\
 `One constant in President Trump’s second term is that the subjects of his quarrels are ever-changing.`\
 https://nytimes.com/2025/06/09/us/politics/trump-newsom-musk-feud.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6414641/2025/06/09/drake-maye-patriots-minicamp/
 **California Clashed With Trump Over Protest Response**\
 `Also, marine heat waves are spreading across the world. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/06/09/briefing/california-protests-trump-marine-heat-waves.html
-
-**Whistle-Blower Who Ignited Sexual Abuse Reckoning Among Southern Baptists Dies**\
-`Jennifer Lyell died at 47 on Saturday. As her denomination started its annual meeting this week, there was no mention of her from the dais.`\
-https://nytimes.com/2025/06/09/us/jennifer-lyell-dead-southern-baptist-convention.html
-
-**Concacaf rejects Greenland's application for membership**\
-`"This is not a victory for football democracy, it does not make football accessible to everyone globally," Greenland's FA tells The Athletic`\
-https://nytimes.com/athletic/6414496/2025/06/09/concacaf-rejects-greenland-application-membership/
 

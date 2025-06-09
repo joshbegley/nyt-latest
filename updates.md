@@ -1,3 +1,11 @@
+**Waymo Limits Service in San Francisco as Immigration Protests Spread**\
+`The self-driving taxi company also said its vehicles were in the wrong place at the wrong time in Los Angeles after protesters set fire to several of the cars there.`\
+https://nytimes.com/2025/06/09/technology/waymo-san-francisco-immigration-protests.html
+
+**Iran Rejects Plan to Stop It From Enriching Uranium, Trump Says**\
+`The president said any enrichment was unacceptable. “They don’t want to give up what they have to give up,” he said.`\
+https://nytimes.com/2025/06/09/us/politics/iran-nuclear-trump-proposal-uranium.html
+
 **Trump Pivots From Musk to Newsom**\
 `One constant in President Trump’s second term is that the subjects of his quarrels are ever-changing.`\
 https://nytimes.com/2025/06/09/us/politics/trump-newsom-musk-feud.html
