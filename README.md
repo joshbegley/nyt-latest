@@ -1,3 +1,11 @@
+**Plane With Six Aboard Crashes Off Coast Near San Diego**\
+`The U.S. Coast Guard said on Monday that it was searching for the aircraft, which went down about three miles west of Point Loma, on Sunday.`\
+https://nytimes.com/2025/06/09/us/san-diego-plane-crash-search.html
+
+**Map: 5.1-Magnitude Earthquake Strikes Near the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/06/09/world/asia/earthquake-philippines.html
+
 **Senators Demand Government Watchdog Inquiries Into D.C. Plane Crash**\
 `Families of the victims in the deadly midair collision near Reagan National Airport have made additional investigations of the crash a top priority.`\
 https://nytimes.com/2025/06/09/us/politics/dc-midair-crash-senate-commerce-committee.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/09/us/karen-bass-trump-ice-raids-unrest.html
 **What to Know About the Seizure of the Gaza Aid Boat Carrying Greta Thunberg**\
 `The civilian ship, called the Madleen, was on a mission organized by a group that opposes the nearly two-decade-old blockade of Gaza.`\
 https://nytimes.com/2025/06/09/world/middleeast/gaza-aid-boat-seizure-greta-thunberg-israel.html
-
-**This Is Not a Beauty Podcast: The Renaissance of Isabella Rossellini **\
-`The Oscar-nominated actress is back with a special episode of “This Is Not a Beauty Podcast,” which explores the hidden role beauty plays in sports, technology, health and more.`\
-https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-renaissance-of-isabella-rossellini.html
-
-**First-Time Tony Winners Talk About Their Victories**\
-`Here’s what Sarah Snook, Nicole Scherzinger, Cole Escola and four other Tony Award newbies had to say about their wins.`\
-https://nytimes.com/2025/06/09/theater/tony-awards-winners-first-time-quotes.html
 
