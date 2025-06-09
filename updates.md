@@ -1,3 +1,11 @@
+**Thomas Frank led Brentford to new heights. It’s no surprise he is the leading contender for Tottenham job**\
+`The 51-year-old has had a huge impact on Brentford, establishing them in the Premier League and developing Mbeumo, Wissa and Toney`\
+https://nytimes.com/athletic/6397716/2025/06/09/thomas-frank-tottenham-brentford-manager-profile/
+
+**Arsenal need to build a squad. Signing a striker won't mean the end of Merino or Havertz**\
+`Mikel Arteta needs more depth if his side are to compete for trophies`\
+https://nytimes.com/athletic/6405357/2025/06/09/arsenal-squad-transfer-striker-analysis/
+
 **Inside Mamelodi Sundowns: South Africa's superclub, the home of 'shoeshine and piano'**\
 `The Athletic visited Pretoria, South Africa, to get to know the Mamelodi Sundowns ahead of the Club World Cup`\
 https://nytimes.com/athletic/6397018/2025/06/09/club-world-cup-mamelodi-sundowns-south-africas/
