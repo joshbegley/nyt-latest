@@ -1,3 +1,19 @@
+**How to Give Yourself a Pedicure**\
+`Expert advice from a foot model, a nail artist and a burlesque performer.`\
+https://nytimes.com/2025/06/09/t-magazine/home-pedicure-guide.html
+
+**For Carson Hocevar, heartbreak on his home track as first Cup win stays elusive**\
+`Carson Hocevar is getting closer to victory lane in the Cup Series. But on Sunday, a flat tire at his home track spoiled his latest chance.`\
+https://nytimes.com/athletic/6413335/2025/06/09/carson-hocevar-michigan-nascar-cup-series-flat-tire/
+
+**Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
+`To some, the dolls, known as reborn dolls, provide comfort, escape or just plain fun. But politicians across Brazil have tried to pass bills banning the dolls from public spaces.`\
+https://nytimes.com/2025/06/09/world/americas/reborn-baby-dolls-brazil.html
+
+**NASCAR Michigan takeaways: Denny Hamlin's surge, Ty Gibbs' frustration and more**\
+`Denny Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
+https://nytimes.com/athletic/6413569/2025/06/09/nascar-michigan-takeaways-denny-hamlin-ty-gibbs-23xi-racing/
+
 **THE BAT X fantasy baseball cheat sheet: Add Ben Brown, stream Agustín Ramírez**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6413415/2025/06/09/the-bat-x-fantasy-baseball-cheat-sheet-ben-brown/
