@@ -1,3 +1,7 @@
+**Israel Intercepts Gaza-Bound Aid Ship**\
+`Footage from the Freedom Flotilla Coalition and the Israeli authorities shows what happened when Israel diverted a civilian ship, with Greta Thunberg onboard, that was headed to Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010216321/gaza-flotilla-greta-thunberg-israel.html
+
 **Chelsea sign Strasbourg's Sarr on eight-year deal**\
 `In January, the clubs reached an €14million (£11.9m; $14.4m) agreement for the centre-back to move at the end of the season.`\
 https://nytimes.com/athletic/6413145/2025/06/09/chelsea-transfers-strasbourg-sarr/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/style/mens-wear-big-and-tall.html
 **Sure, France Helped the Colonists. So Did Spain.**\
 `The Queen Sofía Spanish Institute looks at the role of Spain in aiding the rebellion against Britain during the American Revolution.`\
 https://nytimes.com/2025/06/09/nyregion/spain-american-revolution-queen-sofia-institute.html
-
-**Trump Aides Urge Court to Spare Tariffs as They Dismiss Worries in Public**\
-`The dueling narratives come as the administration is asking an appeals court to preserve a set of tariffs recently deemed to be illegal.`\
-https://nytimes.com/2025/06/09/us/politics/trump-tariffs-appeals-court.html
 
