@@ -1,3 +1,11 @@
+**Nick Chubb never wanted the spotlight while in Cleveland. He just wanted the ball**\
+`Chubb, who is third on the team's all-time rushing list, was such a great and respected Browns player because of his simplicity.`\
+https://nytimes.com/athletic/6413887/2025/06/09/nick-chubb-browns-legacy-texans/
+
+**Trump Administration Disputes Immunity Claim by Judge Accused of Obstructing ICE**\
+`Judge Hannah C. Dugan was indicted last month on charges of concealing a person from arrest and obstruction of proceedings. She has pleaded not guilty.`\
+https://nytimes.com/2025/06/09/us/politics/hannah-dugan-wisconsin-judge-trump-ice.html
+
 **White House Pushes Texas to Redistrict, Hoping to Blunt Democratic Gains**\
 `A rare mid-decade redistricting push has unnerved some Texas Republicans, who worry a drive to harm Democrats could end up endangering G.O.P. incumbents in 2026.`\
 https://nytimes.com/2025/06/09/us/politics/trump-texas-redistricting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/09/nyregion/stefanik-albany-hochul-governor.html
 **T.J. Oshie announces retirement after 16 NHL seasons**\
 `Oshie won the Stanley Cup with the Washington Capitals in 2018.`\
 https://nytimes.com/athletic/6414734/2025/06/09/tj-oshie-retires-capitals/
-
-**Disney Takes Full Control of Hulu for Billions Less Than Comcast Wanted**\
-`Disney said it had agreed to add $439 million to what it had already paid for the streaming service. Comcast had wanted $5 billion more.`\
-https://nytimes.com/2025/06/09/business/media/hulu-disney-comcast.html
-
-**Canada Commits Billions in Military Spending to Meet NATO Target**\
-`Prime Minister Mark Carney promised to hit the alliance’s 2 percent spending threshold this year, seven years ahead of a previous schedule.`\
-https://nytimes.com/2025/06/09/world/canada/carney-canada-nato-military-spending.html
 
