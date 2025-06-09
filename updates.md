@@ -1,3 +1,7 @@
+**World Cup host cities in the U.S. monitoring political situation amid immigration crackdown**\
+`FIFA's President Gianni Infantino said earlier this year that "America will welcome the world" for next year's tournament.`\
+https://nytimes.com/athletic/6414517/2025/06/09/world-cup-cities-us-politics/
+
 **Red Sox call up top prospect Roman Anthony: Source**\
 `The Red Sox hope to spark their offense with a player who hit a 497-foot home run on Saturday for Triple-A Worcester.`\
 https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/

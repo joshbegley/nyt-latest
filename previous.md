@@ -1,3 +1,7 @@
+**World Cup host cities in the U.S. monitoring political situation amid immigration crackdown**\
+`FIFA's President Gianni Infantino said earlier this year that "America will welcome the world" for next year's tournament.`\
+https://nytimes.com/athletic/6414517/2025/06/09/world-cup-cities-us-politics/
+
 **Red Sox call up top prospect Roman Anthony: Source**\
 `The Red Sox hope to spark their offense with a player who hit a 497-foot home run on Saturday for Triple-A Worcester.`\
 https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/books/frederick-forsyth-dead.html
 **Power conference commissioners voice confidence in House settlement: ‘Our schools want rules’**\
 `The newly formed College Sports Commission features commissioners of the ACC, Big 12, Big Ten, Pac-12 and SEC.`\
 https://nytimes.com/athletic/6414219/2025/06/09/house-settlement-college-sports-commission/
-
-**Caitlin Clark will miss 5th game with quad strain, out Tuesday vs. Dream**\
-`Indiana coach Stephanie White said Clark has been doing "some practicing, not everything."`\
-https://nytimes.com/athletic/6414340/2025/06/09/caitlin-clark-indiana-fever-strain-atlanta-dream/
 
