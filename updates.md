@@ -1,3 +1,11 @@
+**Videos of Assassination Attempt in Colombia Stoke National Tension**\
+`Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition om Sunday a day after being shot.`\
+https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
+
+**'Tremendous mistake": Hall of Famer Don Nelson blasts Mavericks for Luka Dončić trade**\
+`While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
+https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
+
 **Mets' Juan Soto reaches base 6 times in a game for first time**\
 `Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
 https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-times/

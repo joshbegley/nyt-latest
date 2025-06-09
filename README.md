@@ -1,3 +1,7 @@
+**Protest in Pasadena is prompted by sightings of federal immigration vehicles.**\
+`By Jesus Jiménez and Jill Cowan`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/protest-in-pasadena-is-prompted-by-sightings-of-federal-immigration-vehicles
+
 **Videos of Assassination Attempt in Colombia Stoke National Tension**\
 `Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition om Sunday a day after being shot.`\
 https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6412523/2025/06/08/canadian-open-pga-tour-ryan-fox-
 `By Sarah Bahr`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/sarah-snook-won-her-first-tony-for-a-one-woman-picture-of-dorian-gray
 
-**'Tremendous mistake": Hall of Famer Don Nelson blasts Mavericks for Luka Dončić trade**\
+**'Tremendous mistake': Hall of Famer Don Nelson blasts Mavericks for Luka Dončić trade**\
 `While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
 https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/us/politics/trump-california-immigration.html
 **Doppelgängers**\
 `Fred Armisen joins Ira Glass as co-host for stories of doubles and twins.`\
 https://nytimes.com/2025/06/08/podcasts/doppelgangers-this-american-life-nyt-audio.html
-
-**Newsom Formally Asks Trump to Pull National Guard Out of L.A.**\
-`Gov. Gavin Newsom’s office, in a letter to the Trump administration, called the deployment of troops “unlawful” and a “serious breach of state sovereignty.”`\
-https://nytimes.com/2025/06/08/us/newsom-formally-asks-trump-to-pull-national-guard-out-of-la.html
 
