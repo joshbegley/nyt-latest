@@ -1,3 +1,7 @@
+**What to watch in sports this week: NBA and Stanley Cup finals are tied, U.S. Open tees off**\
+`Here's what to watch across the sports cosmos this week, with NBA and Stanley Cup finals on the flashing marquee.`\
+https://nytimes.com/athletic/6412964/2025/06/09/nba-finals-stanley-cup-us-open-concacaf-yankees-red-sox-how-to-watch/
+
 **Lowetide: Which Oilers players have increased their value for next season?**\
 `Several players have increased their chances of staying on the Edmonton roster for the 2025-26 campaign.`\
 https://nytimes.com/athletic/6411776/2025/06/09/oilers-players-nhl-playoffs-roster-value/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/style/tony-awards-after-party-moma-carlyle-hotel.
 **Francis Fukuyama: A Revisionist Nightmare**\
 `Imagining a world in which history has been rewritten to save us — from ourselves.`\
 https://nytimes.com/2025/06/09/special-series/francis-fukuyama-trump-history-revision.html
-
-**Basu: What I heard and saw about the Canadiens at the NHL scouting combine**\
-`The Canadiens are in a crowded market of teams looking to trade picks for immediate help and may be forced to use their picks instead.`\
-https://nytimes.com/athletic/6413061/2025/06/09/what-i-heard-and-saw-from-the-canadiens-at-the-nhl-scouting-combine/
 

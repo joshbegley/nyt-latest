@@ -1,3 +1,7 @@
+**What to watch in sports this week: NBA and Stanley Cup finals are tied, U.S. Open tees off**\
+`Here's what to watch across the sports cosmos this week, with NBA and Stanley Cup finals on the flashing marquee.`\
+https://nytimes.com/athletic/6412964/2025/06/09/nba-finals-stanley-cup-us-open-concacaf-yankees-red-sox-how-to-watch/
+
 **Lowetide: Which Oilers players have increased their value for next season?**\
 `Several players have increased their chances of staying on the Edmonton roster for the 2025-26 campaign.`\
 https://nytimes.com/athletic/6411776/2025/06/09/oilers-players-nhl-playoffs-roster-value/
