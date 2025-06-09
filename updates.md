@@ -1,3 +1,11 @@
+**Ronaldo planning on Al Nassr stay: 'Nothing is going to change'**\
+`The Portuguese had said over the weekend that he would not be moving to a team competing at the Club World Cup.`\
+https://nytimes.com/athletic/6413103/2025/06/09/cristiano-ronaldo-transfer-al-nassr-contract/
+
+**Phillies takeaways on the sputtering offense, outfield issues and a pitching tightrope**\
+`Almost every hitter has seen a dip in slugging percentage against off-speed and breaking pitches. Many have experienced radical declines.`\
+https://nytimes.com/athletic/6412644/2025/06/09/phillies-offense-outfield-bullpen-issues/
+
 **NFL minicamp storylines: Aaron Rodgers, Kirk Cousins, contract holdouts and QB battles**\
 `The Browns, Saints and Colts are among those with QB races to watch, and another chance for Travis Hunter acrobatics is never a bad thing.`\
 https://nytimes.com/athletic/6407193/2025/06/09/nfl-minicamp-aaron-rodgers-steelers-micah-parsons/
