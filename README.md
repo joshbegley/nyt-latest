@@ -1,3 +1,7 @@
+**Chelsea sign Strasbourg's Sarr on eight-year deal**\
+`In January, the clubs reached an €14million (£11.9m; $14.4m) agreement for the centre-back to move at the end of the season.`\
+https://nytimes.com/athletic/6413145/2025/06/09/chelsea-transfers-strasbourg-sarr/
+
 **SGA won't try to 'reinvent the wheel' but he's quietly rewriting history in NBA Finals**\
 `Naysayers can criticize all they want, but it's hard to deny the MVP's consistency — with his own twist. “I'm being myself.”`\
 https://nytimes.com/athletic/6412998/2025/06/09/shai-gilgeous-alexander-thunder-nba-finals-scoring/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/nyregion/spain-american-revolution-queen-sofia-in
 **Trump Aides Urge Court to Spare Tariffs as They Dismiss Worries in Public**\
 `The dueling narratives come as the administration is asking an appeals court to preserve a set of tariffs recently deemed to be illegal.`\
 https://nytimes.com/2025/06/09/us/politics/trump-tariffs-appeals-court.html
-
-**A Designer Embraces Femininity in His Farmhouse Living Room**\
-`Nick Spain showcases D.I.Y. celebration decorations, a vintage nightclub sconce and a French stoneware vase in his favorite room awash in rosy pink.`\
-https://nytimes.com/2025/06/09/realestate/design-finds-nick-spain-living-room.html
 
