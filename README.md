@@ -26,8 +26,8 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/trump-is-barely-mentione
 `Oklahoma City had a predictable response after its gut-wrenching Game 1 collapse to Indiana: The defense gave the Pacers no hope.`\
 https://nytimes.com/athletic/6412448/2025/06/08/thunder-pacers-game-2-2025-nba-finals-score-result-analysis/
 
-**The President Is Playing With Fire, Which Is Just How He Likes It**\
-`We are living in a dangerous moment.`\
+**America Is No Longer a Stable Country**\
+`Trump is playing with fire, which is just how he likes it.`\
 https://nytimes.com/2025/06/08/opinion/trump-newsom-los-angeles-national-guard.html
 
 **‘Sunset Boulevard’ Starring Nicole Scherzinger Wins the Tony Award for Best Musical Revival**\
