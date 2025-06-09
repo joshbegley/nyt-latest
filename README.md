@@ -1,3 +1,7 @@
+**Adams says N.Y.P.D. will not tolerate the kind of protests happening in Los Angeles.**\
+`Mayor Eric Adams said the New York City police would protect the right to protest peacefully but would “not allow violence and lawlessness.”`\
+https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/eric-adams-nypd-los-angeles-protests
+
 **Trump and Newsom Skewer Each Other After National Guard Deployment**\
 `President Trump said that Gov. Gavin Newsom should be arrested for his governance of California, while Mr. Newsom issued a barrage of retorts online.`\
 https://nytimes.com/2025/06/09/us/trump-newsom-protests-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/david-huerta-union-leader-la-protest-court.htm
 **Waymo Limits Service in San Francisco as Immigration Protests Spread**\
 `The self-driving taxi company also said its vehicles were in the wrong place at the wrong time in Los Angeles after protesters set fire to several of the cars there.`\
 https://nytimes.com/2025/06/09/technology/waymo-san-francisco-immigration-protests.html
-
-**Iran Rejects Plan to Stop It From Enriching Uranium, Trump Says**\
-`The president said any enrichment was unacceptable. “They don’t want to give up what they have to give up,” he said.`\
-https://nytimes.com/2025/06/09/us/politics/iran-nuclear-trump-proposal-uranium.html
 
