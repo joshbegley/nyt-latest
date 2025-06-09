@@ -1,3 +1,11 @@
+**Protests in Los Angeles**\
+`We have the latest on the clashes with federal agents.`\
+https://nytimes.com/2025/06/09/briefing/la-protests-trump-newsom.html
+
+**Ukraine Says Russia Launched Biggest Air Assault of the War**\
+`Most of the drones and missiles were intercepted, according to the Ukrainian Air Force, and there were no immediate reports of widespread damage.`\
+https://nytimes.com/2025/06/09/world/europe/ukraine-russia-drones-missiles-attack.html
+
 **The QB competition, Dawand Jones' development among things to watch at Browns minicamp**\
 `While the QBs will be the focal point at the team's mandatory minicamp, the open left tackle spot will be something to keep a close eye on.`\
 https://nytimes.com/athletic/6411608/2025/06/09/browns-minicamp-quarterback-competition/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6407193/2025/06/09/nfl-minicamp-aaron-rodgers-steel
 **This Week in Mets: Which Mets deserve to be All-Stars?**\
 `Kodai Senga and Pete Alonso are shoo-ins, but the Mets have plenty of sneaky candidates, too. `\
 https://nytimes.com/athletic/6412689/2025/06/09/mets-all-star-candidates/
-
-**Payton Pritchard’s opportunity, Brad Stevens’ trade options and more: Celtics mailbag, part 2**\
-`Jay King answers your questions in part 2 of our Celtics mailbag. `\
-https://nytimes.com/athletic/6406605/2025/06/09/celtics-payton-pritchard-brad-stevens-trades-mailbag/
-
-**NHL Draft Confidential 2025: What insiders think of Schaefer, goalies and more**\
-`After surveying a number of NHL evaluators, here's what they think about the big questions facing this draft class.`\
-https://nytimes.com/athletic/6372530/2025/06/09/nhl-draft-confidential-2025-matthew-schaefer/
 
