@@ -1,3 +1,7 @@
+**Wander Franco charged with gun possession amid sexual abuse trial: Reports**\
+`Franco is currently on trial on charges including sexual abuse of a minor.`\
+https://nytimes.com/athletic/6413490/2025/06/09/wander-franco-mlb-charges/
+
 **The Windup: Are the Cardinals for real?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6413639/2025/06/09/cardinals-record-standings-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413386/2025/06/09/shai-gilgeous-alexander-thunder-
 **Some Journalists Are Injured While Covering L.A. Protests**\
 `In one episode in downtown Los Angeles, an Australian television journalist was struck when an officer fired a nonlethal projectile while she was on the air.`\
 https://nytimes.com/2025/06/09/us/la-protests-reporter-shot-lauren-tomasi.html
-
-**Nicole Scherzinger, Mia Farrow and Sadie Sink Party After the Tonys**\
-`Stars turned out for show tunes and spirited celebrations that included an official after-party at the Museum of Modern Art and a gathering at the Carlyle Hotel.`\
-https://nytimes.com/2025/06/09/style/tony-awards-after-party-moma-carlyle-hotel.html
 

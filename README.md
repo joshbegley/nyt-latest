@@ -1,3 +1,19 @@
+**Escargot Flavors, Weeknight Ease**\
+`Heady, parsleyed garlic butter is the star of this slow-cooker dinner.`\
+https://nytimes.com/2025/06/09/dining/easy-slow-cooker-garlic-butter-chicken-recipe.html
+
+**First Fossil Proof Found That Long-Necked Dinosaurs Were Vegetarians**\
+`“It’s the smoking gun, or the steaming guts,” said a paleontologist from a team that also found that the sauropods didn’t chew their food.`\
+https://nytimes.com/2025/06/09/science/sauropod-dinosaur-fossils-vegetarians.html
+
+**Gun Deaths of Children Rose in States That Loosened Gun Laws, Study Finds**\
+`Researchers looked at firearm fatalities in the 13 years immediately after the Supreme Court limited local governments’ ability to restrict gun ownership.`\
+https://nytimes.com/2025/06/09/health/gun-deaths-children.html
+
+**Can You Match These Literary Quotes to Their Sources?**\
+`Try this short quiz to see how many memorable lines from great books have stuck with you over the years.`\
+https://nytimes.com/interactive/2025/06/09/books/review/books-quotes-quiz.html
+
 **Wander Franco charged with gun possession amid sexual abuse trial: Reports**\
 `Franco is currently on trial on charges including sexual abuse of a minor.`\
 https://nytimes.com/athletic/6413490/2025/06/09/wander-franco-mlb-charges/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6413411/2025/06/09/knicks-head-coach-search-jason-k
 **Inter appoint former player Chivu as head coach**\
 `The Romanian won the treble as a player with Inter under Jose Mourinho in 2010.`\
 https://nytimes.com/athletic/6401991/2025/06/09/inter-manager-christian-chivu/
-
-**Watch: How did the Oklahoma City Thunder bounce back in Game 2 of the NBA Finals?**\
-`"The Athletic NBA Daily" broke down the Oklahoma City Thunder's Game 2 win over the Indiana Pacers on Sunday.`\
-https://nytimes.com/athletic/6413437/2025/06/09/thunder-nba-finals-shai-gilgeous-alexander/
-
-**The Big Ideas: What Is History?**\
-`In this series, writers respond to a single question: What Is History?`\
-https://nytimes.com/column/the-big-ideas-what-is-history
-
-**The Bounce: The Thunder are now even with the Pacers. Time for the NBA Finals panic meter!**\
-`The Thunder made Shai Gilgeous-Alexander’s job easier in Game 2. Is it time for the Pacers to panic? Plus, about Allen Iverson's perfection`\
-https://nytimes.com/athletic/6413386/2025/06/09/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-allen-iverson-the-bounce/
-
-**Some Journalists Are Injured While Covering L.A. Protests**\
-`In one episode in downtown Los Angeles, an Australian television journalist was struck when an officer fired a nonlethal projectile while she was on the air.`\
-https://nytimes.com/2025/06/09/us/la-protests-reporter-shot-lauren-tomasi.html
 

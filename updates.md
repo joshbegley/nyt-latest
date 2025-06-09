@@ -1,3 +1,7 @@
+**Wander Franco charged with gun possession amid sexual abuse trial: Reports**\
+`Franco is currently on trial on charges including sexual abuse of a minor.`\
+https://nytimes.com/athletic/6413490/2025/06/09/wander-franco-mlb-charges/
+
 **The Windup: Are the Cardinals for real?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6413639/2025/06/09/cardinals-record-standings-the-windup/
