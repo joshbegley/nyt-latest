@@ -1,3 +1,7 @@
+**‘Eureka Day’ wins the Tony for best revival of a play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/eureka-day-wins-the-tony-for-best-revival-of-a-play
+
 **‘Purpose’ wins the Tony for best play.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-2025
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-
 **‘Buena Vista Social Club’ band is among the recipients of special honors and awards.**\
 `By Derrick Bryson Taylor`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/tonys-special-honors-buena-vista-stranger-things
-
-**Shai Gilgeous-Alexander scores 3,000th point of 2024-25 NBA season**\
-`The Thunder star became the 12th player in history to reach the total in an NBA season (regular season and playoffs).`\
-https://nytimes.com/athletic/6412234/2025/06/08/nba-finals-shai-gilgeous-alexander-thunder-3000-points/
 
