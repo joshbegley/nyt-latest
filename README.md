@@ -1,3 +1,7 @@
+**Iran to Crack Down on Dog Walkers**\
+`Officials in at least 20 cities have pledged in recent day to enforce a ban introduced in 2019, citing public health and public safety risks. “Dog walking is a clear crime,” one said.`\
+https://nytimes.com/2025/06/09/world/middleeast/iran-dog-walking-bans.html
+
 **‘Ruinous Burdens’: Border Businesses Struggle Under Trump’s Cartel Crackdown**\
 `Federal judges have lauded the government’s goal of rooting out money laundering schemes but questioned the effectiveness of a tactic that’s wreaking havoc on small money services operations.`\
 https://nytimes.com/2025/06/09/us/politics/trump-cartels-border-businesses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/health/nih-letter-trump-bhattacharya.html
 **How to Give Yourself a Pedicure**\
 `Expert advice from a foot model, a nail artist and a burlesque performer.`\
 https://nytimes.com/2025/06/09/t-magazine/home-pedicure-guide.html
-
-**For Carson Hocevar, heartbreak on his home track as first Cup win stays elusive**\
-`Carson Hocevar is getting closer to victory lane in the Cup Series. But on Sunday, a flat tire at his home track spoiled his latest chance.`\
-https://nytimes.com/athletic/6413335/2025/06/09/carson-hocevar-michigan-nascar-cup-series-flat-tire/
 
