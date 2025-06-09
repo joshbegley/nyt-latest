@@ -1,3 +1,7 @@
+**A Trump Family Project Spurs Resignations and a Criminal Charge in Serbia**\
+`A group of preservationists has thrown a wrench in the plans for a Trump-branded hotel complex to be built by the president’s son-in-law, Jared Kushner, in Belgrade.`\
+https://nytimes.com/2025/06/09/us/politics/trump-serbia-kushner-development.html
+
 **Mayor Bass of Los Angeles Blames Immigration Raids for Inflaming Tensions**\
 `In a televised interview on CNN, the city’s leader sought to downplay the protests of the last few days.`\
 https://nytimes.com/2025/06/09/us/karen-bass-trump-ice-raids-unrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/california-lawsuit-national-guard-protests-tru
 **China’s Chokehold on This Obscure Mineral Threatens the West’s Militaries**\
 `China produces the entire world’s supply of samarium, a rare earth metal that the United States and its allies need to rebuild inventories of fighter jets, missiles and other hardware.`\
 https://nytimes.com/2025/06/09/business/china-rare-earth-samarium-fighter-jets.html
-
-**Trump Budget’s Caps on Grad School Loans Could Worsen Doctor Shortage**\
-`The proposed limits on federal loans fall well below the costs of medical school. Critics say this could deter students from pursuing medicine.`\
-https://nytimes.com/2025/06/09/health/trump-budget-student-loans-doctors.html
 
