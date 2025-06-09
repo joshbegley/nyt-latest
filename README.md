@@ -1,3 +1,23 @@
+**The Big Ideas: What Is History?**\
+`In this series, writers respond to a single question: What Is History?`\
+https://nytimes.com/column/the-big-ideas-what-is-history
+
+**The Bounce: The Thunder are now even with the Pacers. Time for the NBA Finals panic meter!**\
+`The Thunder made Shai Gilgeous-Alexander’s job easier in Game 2. Is it time for the Pacers to panic? Plus, about Allen Iverson's perfection`\
+https://nytimes.com/athletic/6413386/2025/06/09/shai-gilgeous-alexander-thunder-tyrese-haliburton-pacers-nba-finals-allen-iverson-the-bounce/
+
+**Some Journalists Are Injured While Covering L.A. Protests**\
+`In one episode in downtown Los Angeles, an Australian television journalist was struck when an officer fired a nonlethal projectile while she was on the air.`\
+https://nytimes.com/2025/06/09/us/la-protests-reporter-shot-lauren-tomasi.html
+
+**Nicole Scherzinger, Mia Farrow and Sadie Sink Party After the Tonys**\
+`Stars turned out for show tunes and spirited celebrations that included an official after-party at the Museum of Modern Art and a gathering at the Carlyle Hotel.`\
+https://nytimes.com/2025/06/09/style/tony-awards-after-party-moma-carlyle-hotel.html
+
+**Francis Fukuyama: A Revisionist Nightmare**\
+`Imagining a world in which history has been rewritten to save us — from ourselves.`\
+https://nytimes.com/2025/06/09/special-series/francis-fukuyama-trump-history-revision.html
+
 **Basu: What I heard and saw about the Canadiens at the NHL scouting combine**\
 `The Canadiens are in a crowded market of teams looking to trade picks for immediate help and may be forced to use their picks instead.`\
 https://nytimes.com/athletic/6413061/2025/06/09/what-i-heard-and-saw-from-the-canadiens-at-the-nhl-scouting-combine/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/09/us/las-vegas-shooting-youtube-feud.html
 **A Tricky Balance for L.A. Law Enforcement During Immigration Protests**\
 `Local agencies have tried to make clear that they are not involved in civil immigration enforcement, but that when protests turn violent, they will intervene.`\
 https://nytimes.com/2025/06/09/us/lapd-sheriff-immigration-raids.html
-
-**12 Unforgettable Looks at the Tony Awards**\
-`Sequins and velvet and shorts, oh my!`\
-https://nytimes.com/2025/06/09/style/tony-awards-fashion-red-carpet.html
-
-**Rayan Cherki has always been special. Now there are goals and assists, too**\
-`The France playmaker is a mercurial genius who is set to transform Manchester City's midfield. There is far more to him than meets the eye`\
-https://nytimes.com/athletic/6266304/2025/06/09/rayan-cherki-lyon-skills-two-footed-transfer-future/
-
-**Man City interested in signing Chelsea goalkeeper Bettinelli**\
-`Pep Guardiola's side are in the market for a new goalkeeper following the departure of Scott Carson, who spent six seasons at the Etihad.`\
-https://nytimes.com/athletic/6413340/2025/06/09/manchester-city-transfers-chelsea-bettinelli/
-
-**Autographed Michael Jordan rookie card from secret signing going to auction**\
-`The auction house's estimated value of the card puts it in line with Jordan's most expensive to date. `\
-https://nytimes.com/athletic/6412832/2025/06/09/michael-jordan-autographed-rookie-card-auction/
-
-**The Pacers need Tyrese Haliburton to be more selfish with his scoring**\
-`Haliburton had only five points through the first three quarters in Game 2 and has largely been held in check by the Thunder defense so far.`\
-https://nytimes.com/athletic/6413170/2025/06/09/tyrese-haliburton-pacers-game-2-nba-finals-thunder-scoring/
 

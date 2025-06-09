@@ -1,3 +1,11 @@
+**Basu: What I heard and saw about the Canadiens at the NHL scouting combine**\
+`The Canadiens are in a crowded market of teams looking to trade picks for immediate help and may be forced to use their picks instead.`\
+https://nytimes.com/athletic/6413061/2025/06/09/what-i-heard-and-saw-from-the-canadiens-at-the-nhl-scouting-combine/
+
+**Protesters Set Waymo Taxis on Fire in Downtown Los Angeles**\
+`Protesters torched and vandalized self-driving Waymo taxis on Sunday during clashes with the police over President Trump’s immigration crackdown.`\
+https://nytimes.com/video/us/100000010216386/waymo-fire-los-angeles-protests.html
+
 **Tottenham contact Brentford over Frank, hoping for agreement in next 48 hours**\
 `Tottenham announced the sacking of Ange Postecoglou, who guided them to the Europa League title, on Friday afternoon.`\
 https://nytimes.com/athletic/6387946/2025/06/09/tottenham-thomas-frank-manager-next/

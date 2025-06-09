@@ -1,3 +1,11 @@
+**Basu: What I heard and saw about the Canadiens at the NHL scouting combine**\
+`The Canadiens are in a crowded market of teams looking to trade picks for immediate help and may be forced to use their picks instead.`\
+https://nytimes.com/athletic/6413061/2025/06/09/what-i-heard-and-saw-from-the-canadiens-at-the-nhl-scouting-combine/
+
+**Protesters Set Waymo Taxis on Fire in Downtown Los Angeles**\
+`Protesters torched and vandalized self-driving Waymo taxis on Sunday during clashes with the police over President Trump’s immigration crackdown.`\
+https://nytimes.com/video/us/100000010216386/waymo-fire-los-angeles-protests.html
+
 **Tottenham contact Brentford over Frank, hoping for agreement in next 48 hours**\
 `Tottenham announced the sacking of Ange Postecoglou, who guided them to the Europa League title, on Friday afternoon.`\
 https://nytimes.com/athletic/6387946/2025/06/09/tottenham-thomas-frank-manager-next/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6412832/2025/06/09/michael-jordan-autographed-rooki
 **The Pacers need Tyrese Haliburton to be more selfish with his scoring**\
 `Haliburton had only five points through the first three quarters in Game 2 and has largely been held in check by the Thunder defense so far.`\
 https://nytimes.com/athletic/6413170/2025/06/09/tyrese-haliburton-pacers-game-2-nba-finals-thunder-scoring/
-
-**Packers releasing Pro Bowl cornerback Jaire Alexander: Sources**\
-`Alexander has played all seven of his NFL seasons in Green Bay and earned Pro Bowl honors in 2020 and 2022.`\
-https://nytimes.com/athletic/6413409/2025/06/09/jaire-alexander-green-bay-packers-release/
-
-**Waymo Halts Service in Downtown Los Angeles After Its Taxis Are Set on Fire**\
-`Protesters smashed the windows of multiple Waymo robot taxis and then set them on fire. The police warned of toxic fumes released by burning lithium-ion batteries.`\
-https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html
 
