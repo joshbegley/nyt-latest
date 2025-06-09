@@ -1,3 +1,7 @@
+**Warner Bros. Discovery to Split Into Two Companies**\
+`The film and television giant will turn its cable networks, including CNN and TNT, into one company and its streaming and studios business into another.`\
+https://nytimes.com/2025/06/09/business/media/warner-bros-discovery-split.html
+
 **What's next for Michael McGreevy after an encouraging spot start against Dodgers?**\
 `McGreevy salvaged a shaky outing with some mid-game adjustments, and that maturity impressed the Cardinals' decision-makers.`\
 https://nytimes.com/athletic/6412197/2025/06/09/cardinals-michael-mcgreevy-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6406331/2025/06/09/big-12-football-transfer-portal-
 **Blue Jays are the hottest they've been since 2022. Here are 6 reasons why**\
 `During a 10-3 run, Toronto has gotten contributions at the plate, behind it and on the mound.`\
 https://nytimes.com/athletic/6412341/2025/06/09/toronto-blue-jays-hot-streak-addison-barger/
-
-**Mirtle: Intel on the 9 most intriguing teams of NHL free agency from a buzzy draft combine**\
-`Which teams are poised to make big moves over the next few weeks, and for who? Plus, an update on CBA talks.`\
-https://nytimes.com/athletic/6409782/2025/06/09/free-agency-nhl-offseason-rumors-mitch-marner-mirtle/
 
