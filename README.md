@@ -1,3 +1,7 @@
+**Trump Calling Troops Into Los Angeles Is the Real Emergency**\
+`The president’s use of the National Guard serves his own interests above the country’s.`\
+https://nytimes.com/2025/06/08/opinion/los-angeles-protests-national-guard-trump.html
+
 **Sky guard Courtney Vandersloot tears ACL, will miss rest of 2025 season**\
 `Vandersloot sustained the injury at the 5:29 mark of the first quarter of Saturday night’s loss to Indiana while driving to the basket`\
 https://nytimes.com/athletic/6412557/2025/06/08/chicago-sky-courtney-vandersloot-acl-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/sarah-snook-won-her-firs
 **'Tremendous mistake': Hall of Famer Don Nelson blasts Mavericks for Luka Dončić trade**\
 `While receiving Chuck Daly Lifetime Achievement Award, former Dallas coach and GM criticizes team's trade as a "tremendous mistake."`\
 https://nytimes.com/athletic/6412529/2025/06/08/don-nelson-protest-luka-doncic-trade/
-
-**Trump Jumps at the Chance for a Standoff in California Over Immigration**\
-`The situation has all the elements that the president seeks: a showdown with a top political rival in a deep blue state over an issue core to his agenda.`\
-https://nytimes.com/2025/06/08/us/politics/trump-california-immigration.html
 
