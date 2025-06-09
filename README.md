@@ -1,3 +1,7 @@
+**USMNT's Tyler Adams out vs. Switzerland; Pochettino to rotate squad**\
+`The USMNT leader will miss out vs. Switzerland in the last tuneup before the Concacaf Gold Cup.`\
+https://nytimes.com/athletic/6414370/2025/06/09/usmnt-switzerland-tyler-adams-injury-pochettino-lineup/
+
 **Valmik Thapar, Tenacious Tiger Conservationist in India, Is Dead**\
 `He started studying tigers at a reserve in 1976 and became a leading activist in efforts to save the tiger from poaching and shrinking habitats.`\
 https://nytimes.com/2025/06/09/world/asia/valmik-thapar-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/opinion/los-angeles-immigration-protests-national
 **Soccer tournament provides USWNT reunion and $1 million prize: 'Sponsors should be lining up'**\
 `US Women take on Bumpy Pitch FC in the TST women's final on Monday night. The winner takes home $1 million. `\
 https://nytimes.com/athletic/6412847/2025/06/09/uswnt-carli-lloyd-tst-million-dollar-prize/
-
-**Cavaliers' Darius Garland has surgery on big toe**\
-`Cleveland said Garland is expected to "make a full recovery."`\
-https://nytimes.com/athletic/6414247/2025/06/09/cavaliers-darius-garland-surgery-big-toe-injury/
 
