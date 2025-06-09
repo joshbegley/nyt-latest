@@ -1,3 +1,7 @@
+**Colts announce ownership transition from late Jim Irsay to his 3 daughters**\
+`Irsay's three daughters have served as Colts vice chair/owners since 2012 and will assume new roles and titles, effective immediately.`\
+https://nytimes.com/athletic/6414311/2025/06/09/colts-ownership-jim-irsay-nfl-daughters/
+
 **USMNT's Tyler Adams out vs. Switzerland; Pochettino to rotate squad**\
 `The USMNT leader will miss out vs. Switzerland in the last tuneup before the Concacaf Gold Cup.`\
 https://nytimes.com/athletic/6414370/2025/06/09/usmnt-switzerland-tyler-adams-injury-pochettino-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6414276/2025/06/09/kirk-cousins-atlanta-falcons-min
 **The Confrontation in Los Angeles**\
 `Readers respond to the Trump administration’s deployment of National Guard troops to quell protests in Los Angeles.`\
 https://nytimes.com/2025/06/09/opinion/los-angeles-immigration-protests-national-guard.html
-
-**Soccer tournament provides USWNT reunion and $1 million prize: 'Sponsors should be lining up'**\
-`US Women take on Bumpy Pitch FC in the TST women's final on Monday night. The winner takes home $1 million. `\
-https://nytimes.com/athletic/6412847/2025/06/09/uswnt-carli-lloyd-tst-million-dollar-prize/
 
