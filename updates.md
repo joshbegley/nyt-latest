@@ -1,3 +1,15 @@
+**Red Light: Sublime Stanley Cup Final rolls on. Plus: PWHL expansion draft**\
+`See why the Oilers are saying "enough's enough" heading into Game 3.`\
+https://nytimes.com/athletic/6413792/2025/06/09/red-light-stanley-cup-final-pwhl-expansion-draft/
+
+**Italian Referendum to Loosen Citizenship Rules Fails**\
+`Less than a third of eligible voters turned out for a poll that would have made it easier for foreigners to become citizens, and strengthened labor rights.`\
+https://nytimes.com/2025/06/09/world/europe/italian-referendum-to-loosen-citizenship-rules-fails.html
+
+**N.I.H. Workers Denounce Trump’s ‘Harmful’ Health Policies**\
+`In a scathing public letter, employees of the National Institutes of Health accused the administration of undermining the agency’s work and endangering people’s health.`\
+https://nytimes.com/2025/06/09/health/nih-letter-trump-bhattacharya.html
+
 **NASCAR Michigan takeaways: Denny Hamlin's surge, Ty Gibbs' frustration and more**\
 `Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
 https://nytimes.com/athletic/6413569/2025/06/09/nascar-michigan-takeaways-denny-hamlin-ty-gibbs-23xi-racing/

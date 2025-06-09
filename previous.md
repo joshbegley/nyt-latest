@@ -1,3 +1,15 @@
+**Red Light: Sublime Stanley Cup Final rolls on. Plus: PWHL expansion draft**\
+`See why the Oilers are saying "enough's enough" heading into Game 3.`\
+https://nytimes.com/athletic/6413792/2025/06/09/red-light-stanley-cup-final-pwhl-expansion-draft/
+
+**Italian Referendum to Loosen Citizenship Rules Fails**\
+`Less than a third of eligible voters turned out for a poll that would have made it easier for foreigners to become citizens, and strengthened labor rights.`\
+https://nytimes.com/2025/06/09/world/europe/italian-referendum-to-loosen-citizenship-rules-fails.html
+
+**N.I.H. Workers Denounce Trump’s ‘Harmful’ Health Policies**\
+`In a scathing public letter, employees of the National Institutes of Health accused the administration of undermining the agency’s work and endangering people’s health.`\
+https://nytimes.com/2025/06/09/health/nih-letter-trump-bhattacharya.html
+
 **How to Give Yourself a Pedicure**\
 `Expert advice from a foot model, a nail artist and a burlesque performer.`\
 https://nytimes.com/2025/06/09/t-magazine/home-pedicure-guide.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/09/science/sauropod-dinosaur-fossils-vegetarians.htm
 **Gun Deaths of Children Rose in States That Loosened Gun Laws, Study Finds**\
 `Researchers looked at firearm fatalities in the 13 years immediately after the Supreme Court limited local governments’ ability to restrict gun ownership.`\
 https://nytimes.com/2025/06/09/health/gun-deaths-children.html
-
-**Can You Match These Literary Quotes to Their Sources?**\
-`Try this short quiz to see how many memorable lines from great books have stuck with you over the years.`\
-https://nytimes.com/interactive/2025/06/09/books/review/books-quotes-quiz.html
-
-**NASCAR Michigan takeaways: Denny Hamlin's surge, Ty Gibbs' frustration and more**\
-`Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
-https://nytimes.com/athletic/6413569/2025/06/09/nascar-michigan-takeaways-denny-hamlin-ty-gibbs-23xi-racing/
-
-**Wander Franco charged with gun possession amid sexual abuse trial: Reports**\
-`Franco is currently on trial on charges including sexual abuse of a minor.`\
-https://nytimes.com/athletic/6413490/2025/06/09/wander-franco-mlb-charges/
 
