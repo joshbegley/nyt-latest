@@ -1,6 +1,6 @@
-**Mets' Juan Soto reaches bases 6 times in a game for first time**\
+**Mets' Juan Soto reaches base 6 times in a game for first time**\
 `Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
-https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-bases-six-times/
+https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-times/
 
 **‘Buena Vista Social Club’ band is among the recipients of special honors and awards.**\
 `By Derrick Bryson Taylor`\
