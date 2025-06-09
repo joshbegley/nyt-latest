@@ -1,3 +1,7 @@
+**Don’t Overlook the Reality of Elon Musk’s Contracts and Their Importance to the U.S.**\
+`One part of Musk and Trump’s public breakup should not get lost: the reality of Musk’s importance to American national security.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/elon-musk-spacex-nasa-contracts-trump
+
 **Defense cites 'reliability concerns' of E.M. in first of closing arguments at Hockey Canada trial**\
 `Judge in Hockey Canada sexual assault trial expressed surprise at what she called "extremely" quick settlement of 2022 civil lawsuit.`\
 https://nytimes.com/athletic/6413749/2025/06/09/hockey-canada-sexual-assault-trial-closing-statements/
