@@ -1,3 +1,5 @@
+
+
 **States Sue to Stop Return of Seized Machine Gun Conversion Devices**\
 `The Trump administration, reversing a Biden-era policy, had said it would return thousands of confiscated devices that allow rapid firing, even in states where they are banned.`\
 https://nytimes.com/2025/06/09/us/politics/trump-machine-gun-conversion-devices-lawsuit.html
