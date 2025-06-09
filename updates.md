@@ -1,3 +1,7 @@
+**NASCAR Michigan takeaways: Denny Hamlin's surge, Ty Gibbs' frustration and more**\
+`Hamlin's surge has him eyeing a place in the top-10 wins list, Ty Gibbs has a tough end to a strong day and more from Michigan.`\
+https://nytimes.com/athletic/6413569/2025/06/09/nascar-michigan-takeaways-denny-hamlin-ty-gibbs-23xi-racing/
+
 **How to Give Yourself a Pedicure**\
 `Expert advice from a foot model, a nail artist and a burlesque performer.`\
 https://nytimes.com/2025/06/09/t-magazine/home-pedicure-guide.html
