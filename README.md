@@ -1,3 +1,15 @@
+**What we know about Knicks' coaching search, including Jason Kidd's status**\
+`The Knicks have backed themselves into a corner between the firing of Tom Thibodeau and this upcoming hire. Here's what we know.`\
+https://nytimes.com/athletic/6413411/2025/06/09/knicks-head-coach-search-jason-kidd-mavericks/
+
+**Inter appoint former player Chivu as head coach**\
+`The Romanian won the treble as a player with Inter under Jose Mourinho in 2010.`\
+https://nytimes.com/athletic/6401991/2025/06/09/inter-manager-christian-chivu/
+
+**Watch: How did the Oklahoma City Thunder bounce back in Game 2 of the NBA Finals?**\
+`"The Athletic NBA Daily" broke down the Oklahoma City Thunder's Game 2 win over the Indiana Pacers on Sunday.`\
+https://nytimes.com/athletic/6413437/2025/06/09/thunder-nba-finals-shai-gilgeous-alexander/
+
 **The Big Ideas: What Is History?**\
 `In this series, writers respond to a single question: What Is History?`\
 https://nytimes.com/column/the-big-ideas-what-is-history
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6413061/2025/06/09/what-i-heard-and-saw-from-the-ca
 **Protesters Set Waymo Taxis on Fire in Downtown Los Angeles**\
 `Protesters torched and vandalized self-driving Waymo taxis on Sunday during clashes with the police over President Trump’s immigration crackdown.`\
 https://nytimes.com/video/us/100000010216386/waymo-fire-los-angeles-protests.html
-
-**Tottenham contact Brentford over Frank, hoping for agreement in next 48 hours**\
-`Tottenham announced the sacking of Ange Postecoglou, who guided them to the Europa League title, on Friday afternoon.`\
-https://nytimes.com/athletic/6387946/2025/06/09/tottenham-thomas-frank-manager-next/
-
-**2 Killed in Shooting on Las Vegas Strip**\
-`The police said the shooting, which was captured on video, was an isolated incident, and that the gunman and the victims had “previously engaged in conflict over social media.”`\
-https://nytimes.com/2025/06/09/us/las-vegas-shooting-youtube-feud.html
-
-**A Tricky Balance for L.A. Law Enforcement During Immigration Protests**\
-`Local agencies have tried to make clear that they are not involved in civil immigration enforcement, but that when protests turn violent, they will intervene.`\
-https://nytimes.com/2025/06/09/us/lapd-sheriff-immigration-raids.html
 
