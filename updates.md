@@ -1,3 +1,7 @@
+**Israel Intercepts Gaza-Bound Aid Ship**\
+`Footage from the Freedom Flotilla Coalition and the Israeli authorities shows what happened when Israel diverted a civilian ship, with Greta Thunberg onboard, that was headed to Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010216321/gaza-flotilla-greta-thunberg-israel.html
+
 **Chelsea sign Strasbourg's Sarr on eight-year deal**\
 `In January, the clubs reached an €14million (£11.9m; $14.4m) agreement for the centre-back to move at the end of the season.`\
 https://nytimes.com/athletic/6413145/2025/06/09/chelsea-transfers-strasbourg-sarr/
