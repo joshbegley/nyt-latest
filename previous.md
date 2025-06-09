@@ -1,3 +1,23 @@
+**Spurs next manager odds: Frank or Silva to take over from Postecoglou?**\
+`Brett Koremenos explores the odds around Tottenham's hunt for a new manager in the wake of the Ange Postecoglou sacking.`\
+https://nytimes.com/athletic/6413034/2025/06/09/tottenham-next-manager-betting-tips-predictions-odds/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/09/crosswords/spelling-bee-forum.html
+
+**10 Questions With Michael Blake**\
+`Michael Blake, a former state lawmaker who is running for mayor of New York City, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/09/nyregion/michael-blake-interview-mayor.html
+
+**Some L.A. Protesters Are Marching for Neighbors and Family Members**\
+`Some of those demonstrating in Los Angeles on Sunday said they were first- or second-generation immigrants concerned about how recent raids could affect their communities.`\
+https://nytimes.com/2025/06/09/us/immigrants-los-angeles-protests.html
+
+**Protesters and Law Enforcement Clash in Los Angeles**\
+`Tensions flared on Sunday as President Trump called in the National Guard to help quell protests against immigration raids in the city.`\
+https://nytimes.com/video/us/100000010216288/la-protests-national-guard-trump.html
+
 **Rabiot interview: Man Utd interest, Juventus development and his mother's influence**\
 `Adrien Rabiot spoke to The Athletic about his career, transfer interest and why his mother is so important in his life`\
 https://nytimes.com/athletic/6410003/2025/06/09/adrien-rabiot-interview-man-utd-transfer-juventus-marseille/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6412932/2025/06/09/red-sox-beat-yankees-5-home-runs
 **A Solidarity Protest in San Francisco Turned Violent**\
 `Demonstrators who hoped to show peaceful support for immigrant rights protesters in Los Angeles wound up clashing with the police.`\
 https://nytimes.com/2025/06/09/us/san-francisco-protest-immigration.html
-
-**Monday Briefing**\
-`Protests against immigration raids in Los Angeles.`\
-https://nytimes.com/2025/06/09/briefing/los-angeles-protests-russia-china.html
-
-**Three Yankees takeaways: New York misses chance to bury Boston's season**\
-`Boston weathered starter Hunter Dobbins' anti-Yankees comments and won back-to-back games for the first time since May 24.`\
-https://nytimes.com/athletic/6412812/2025/06/09/yankees-lose-to-red-sox-3-takeaways/
-
-**The New York Times in Print for Monday, June 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/09/todays-new-york-times
-
-**Here’s What’s Happening in America, in Six (Mostly) Russian Terms**\
-`To help Americans name their new reality, we wrote a phrase book of authoritarianism.`\
-https://nytimes.com/2025/06/09/opinion/america-russia-authoritarian-language.html
-
-**‘Call Her Alex,’ Plus 7 Things on TV this Week**\
-`The series about the podcast host Alex Cooper airs, alongside a slew of new documentaries.`\
-https://nytimes.com/2025/06/09/arts/television/call-her-alex-plus-7-things-on-tv-this-week.html
 
