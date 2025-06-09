@@ -1,3 +1,11 @@
+**Lamptey agrees one-year Brighton contract extension**\
+`The 24-year-old Ghana international right-back made 10 starts in the Premier League in 2024-25, with his campaign disrupted by injuries.`\
+https://nytimes.com/athletic/6413324/2025/06/09/tariq-lamptey-brighton-contract/
+
+**Trump Administration Live Updates: Travel Ban Goes Into Effect**\
+``\
+https://nytimes.com/live/2025/06/09/us/trump-news
+
 **Willy Adames on his rough start as a Giant: 'I want to look in the mirror and slap myself'**\
 `Adames wasn't in the lineup for the first time this season — a head-clearing break — in San Francisco's 4-3 win over Atlanta.`\
 https://nytimes.com/athletic/6412836/2025/06/09/giants-willy-adames-rough-start/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6405464/2025/06/09/maple-leafs-centre-trade-targets
 **Nate Schmidt 'found his fun again' with Panthers en route to sensational playoffs run**\
 `It took a while for Schmidt to fully get settled in Florida, but he looks like a new player on the ice.`\
 https://nytimes.com/athletic/6412059/2025/06/09/nate-schmidt-florida-panthers-stanley-cup-final/
-
-**An L.A. mindset, cold beer and a big AHL risk: Inside Marco Sturm's road to coaching the Bruins**\
-`Sturm has "touched every base" in his rise through the coaching ranks and brings a defense- and checking-first philosophy to Boston.`\
-https://nytimes.com/athletic/6412181/2025/06/09/marco-sturm-bruins-coaching-philosophy/
-
-**Why the Flyers might have to consider trading the No. 6 pick in the NHL Draft**\
-`The Flyers need more top-end talent, and they’re going to have to get creative in order to procure it.`\
-https://nytimes.com/athletic/6410515/2025/06/09/flyers-nhl-draft-2025/
 
