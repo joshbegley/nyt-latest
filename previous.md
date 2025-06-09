@@ -1,3 +1,7 @@
+**‘Purpose’ wins the Tony for best play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-2025
+
 **2 New York Representatives Are Denied Access to ICE Facility**\
 `Representatives Adriano Espaillat and Nydia Velázquez were turned away when seeking to inspect a migrant detention area inside a Manhattan federal building.`\
 https://nytimes.com/2025/06/08/nyregion/ice-detention-federal-plaza-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/tonys-special-honors-bue
 **Shai Gilgeous-Alexander scores 3,000th point of 2024-25 NBA season**\
 `The Thunder star became the 12th player in history to reach the total in an NBA season (regular season and playoffs).`\
 https://nytimes.com/athletic/6412234/2025/06/08/nba-finals-shai-gilgeous-alexander-thunder-3000-points/
-
-**Ryan Fox finally eliminates Sam Burns to win typically wild Canadian Open**\
-`It took four playoff holes to determine a winner at a tournament that usually includes some type of drama.`\
-https://nytimes.com/athletic/6412523/2025/06/08/canadian-open-pga-tour-ryan-fox-sam-burns/
 

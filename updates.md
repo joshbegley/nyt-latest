@@ -1,3 +1,7 @@
+**‘Purpose’ wins the Tony for best play.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2025/06/08/theater/tony-awards/tony-awards-2025
+
 **2 New York Representatives Are Denied Access to ICE Facility**\
 `Representatives Adriano Espaillat and Nydia Velázquez were turned away when seeking to inspect a migrant detention area inside a Manhattan federal building.`\
 https://nytimes.com/2025/06/08/nyregion/ice-detention-federal-plaza-nyc.html
