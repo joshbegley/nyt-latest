@@ -1,3 +1,7 @@
+**Colts announce ownership transition from late Jim Irsay to his 3 daughters**\
+`Irsay's three daughters have served as Colts vice chair/owners since 2012 and will assume new roles and titles, effective immediately.`\
+https://nytimes.com/athletic/6414311/2025/06/09/colts-ownership-jim-irsay-nfl-daughters/
+
 **USMNT's Tyler Adams out vs. Switzerland; Pochettino to rotate squad**\
 `The USMNT leader will miss out vs. Switzerland in the last tuneup before the Concacaf Gold Cup.`\
 https://nytimes.com/athletic/6414370/2025/06/09/usmnt-switzerland-tyler-adams-injury-pochettino-lineup/
