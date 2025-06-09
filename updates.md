@@ -1,3 +1,7 @@
+**Red Sox call up top prospect Roman Anthony**\
+`The Red Sox hope to spark their offense with a player who hit a 497-foot home run on Saturday for Triple-A Worcester.`\
+https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/
+
 **Read the Criminal Complaint Against David Huerta**\
 `The complaint describes law enforcement’s view the events surrounding the arrest on Friday of the president of the Service Employees International Union California at a protest over an immigration raid.`\
 https://nytimes.com/interactive/2025/06/09/us/usa-v-huerta-complaint.html

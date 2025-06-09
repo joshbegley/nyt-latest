@@ -1,3 +1,15 @@
+**Tuesday Briefing: California’s Lawsuit Against Trump**\
+`Plus, a triumph at the Tonys for a musical set in South Korea.`\
+https://nytimes.com/2025/06/09/briefing/trump-lawsuit-california-ukraine-tonys.html
+
+**Kennedy Removes All C.D.C. Vaccine Panel Experts**\
+`The U.S. health secretary chose to “retire” members of a committee that makes significant decisions about who receives immunizations, including the vaccines for children.`\
+https://nytimes.com/2025/06/09/health/rfk-jr-cdc-vaccine-panel.html
+
+**Rare Appendix Cancers Are Increasing Among Millennials and Gen X**\
+`The findings, from a new study, come at a time of growing concern about the earlier onset of several cancers.`\
+https://nytimes.com/2025/06/09/well/appendix-cancer-age.html
+
 **Read the Criminal Complaint Against David Huerta**\
 `The complaint describes law enforcement’s view the events surrounding the arrest on Friday of the president of the Service Employees International Union California at a protest over an immigration raid.`\
 https://nytimes.com/interactive/2025/06/09/us/usa-v-huerta-complaint.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/
 **Sly Stone, Maestro of a Multifaceted, Hitmaking Band, Dies at 82**\
 `Leading Sly and the Family Stone, he helped redefine the landscape of pop, funk and rock in the late 1960s and early ’70s.`\
 https://nytimes.com/2025/06/09/arts/music/sly-stone-dead.html
-
-**Colts announce ownership transition from late Jim Irsay to his 3 daughters**\
-`Irsay's three daughters have served as Colts vice chair/owners since 2012 and will assume new roles and titles, effective immediately.`\
-https://nytimes.com/athletic/6414311/2025/06/09/colts-ownership-jim-irsay-nfl-daughters/
-
-**USMNT's Tyler Adams out vs. Switzerland; Pochettino to rotate squad**\
-`The USMNT leader will miss out vs. Switzerland in the last tuneup before the Concacaf Gold Cup.`\
-https://nytimes.com/athletic/6414370/2025/06/09/usmnt-switzerland-tyler-adams-injury-pochettino-lineup/
-
-**Valmik Thapar, Tenacious Tiger Conservationist in India, Is Dead**\
-`He started studying tigers at a reserve in 1976 and became a leading activist in efforts to save the tiger from poaching and shrinking habitats.`\
-https://nytimes.com/2025/06/09/world/asia/valmik-thapar-dead.html
 
