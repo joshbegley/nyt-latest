@@ -1,3 +1,11 @@
+**BlackRock Is Accused of a Plot Against Coal. The Firm Says That’s ‘Absurd.’**\
+`An unusual lawsuit in Texas claims investors illegally conspired with one another to fight climate change. On Monday a judge heard arguments to dismiss the case.`\
+https://nytimes.com/2025/06/09/climate/blackrock-coal-texas-lawsuit.html
+
+**Leaders of ‘Orgasmic Meditation’ Group Are Convicted of Coercion Charges**\
+`Nicole Daedone and Rachel Cherwitz were charged with engaging in a forced labor conspiracy related to the sexual wellness company OneTaste.`\
+https://nytimes.com/2025/06/09/nyregion/onetaste-orgasmic-meditation-verdict.html
+
 **World Cup host cities in the U.S. monitoring political situation amid immigration crackdown**\
 `FIFA's President Gianni Infantino said earlier this year that "America will welcome the world" for next year's tournament.`\
 https://nytimes.com/athletic/6414517/2025/06/09/world-cup-cities-us-politics/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/09/world/europe/nato-spending-russia.html
 **How three MLB pitchers are faring in their returns from injuries**\
 `Andrea Arcadipane checks in on a few starting pitchers returning from injury this season, including Atlanta Braves ace Spencer Strider.`\
 https://nytimes.com/athletic/6414172/2025/06/09/scouting-fantasy-baseball-injury-returns-strider-mccullers/
-
-**Frederick Forsyth, Master of the Geopolitical Thriller, Dies at 86**\
-`He wrote best-sellers like “The Day of the Jackal” and “The Dogs of War,” often using material from his earlier life as a reporter and spy.`\
-https://nytimes.com/2025/06/09/books/frederick-forsyth-dead.html
-
-**Power conference commissioners voice confidence in House settlement: ‘Our schools want rules’**\
-`The newly formed College Sports Commission features commissioners of the ACC, Big 12, Big Ten, Pac-12 and SEC.`\
-https://nytimes.com/athletic/6414219/2025/06/09/house-settlement-college-sports-commission/
 
