@@ -4,7 +4,7 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/a-brooklyn-teacher-recei
 
 **Cole Escola Wins the Tony Award for Best Actor in a Play**\
 `In “Oh, Mary!,” Escola plays a drunken, melodramatic Mary Todd Lincoln who yearns to return to cabaret.`\
-https://nytimes.com/2025/06/08/theater/cole-escola-wins-the-tony-award-for-best-actor-in-a-play.html
+https://nytimes.com/2025/06/08/theater/cole-escola-tony-award-best-actor-play.html
 
 **Braves takeaways: After 14th loss in 17 games, manager and players still searching for answers**\
 `The Braves have a seven-game losing streak, matching the 0-7 skid they had to begin the season.`\
