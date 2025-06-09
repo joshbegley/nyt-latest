@@ -20,7 +20,7 @@ https://nytimes.com/2025/06/09/world/europe/italian-referendum-to-loosen-citizen
 
 **N.I.H. Workers Denounce Trump’s ‘Harmful’ Health Policies**\
 `In a scathing public letter, employees of the National Institutes of Health accused the administration of undermining the agency’s work and endangering people’s health.`\
-https://nytimes.com/live/2025/06/09/us/trump-news/nih-letter-trump-bhattacharya
+https://nytimes.com/2025/06/09/health/nih-letter-trump-bhattacharya.html
 
 **How to Give Yourself a Pedicure**\
 `Expert advice from a foot model, a nail artist and a burlesque performer.`\

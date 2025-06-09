@@ -1,3 +1,19 @@
+**California Lawsuit Will Challenge Trump’s Order Sending National Guard to L.A., Newsom Says**\
+`The office of Gov. Gavin Newsom seemed to foreshadow the litigation in a letter to Defense Secretary Pete Hegseth on Sunday.`\
+https://nytimes.com/2025/06/09/us/california-lawsuit-national-guard-protests-trump.html
+
+**China’s Chokehold on This Obscure Mineral Threatens the West’s Militaries**\
+`China produces the entire world’s supply of samarium, a rare earth metal that the United States and its allies need to rebuild inventories of fighter jets, missiles and other hardware.`\
+https://nytimes.com/2025/06/09/business/china-rare-earth-samarium-fighter-jets.html
+
+**Trump Budget’s Caps on Grad School Loans Could Worsen Doctor Shortage**\
+`The proposed limits on federal loans fall well below the costs of medical school. Critics say this could deter students from pursuing medicine.`\
+https://nytimes.com/2025/06/09/health/trump-budget-student-loans-doctors.html
+
+**N.I.H. Workers Denounce Trump’s ‘Harmful’ Health Policies**\
+`In a scathing public letter, employees of the National Institutes of Health accused the administration of undermining the agency’s work and endangering people’s health.`\
+https://nytimes.com/live/2025/06/09/us/trump-news/nih-letter-trump-bhattacharya
+
 **Red Light: Sublime Stanley Cup Final rolls on. Plus: PWHL expansion draft**\
 `See why the Oilers are saying "enough's enough" heading into Game 3.`\
 https://nytimes.com/athletic/6413792/2025/06/09/red-light-stanley-cup-final-pwhl-expansion-draft/

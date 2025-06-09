@@ -1,3 +1,15 @@
+**California Lawsuit Will Challenge Trump’s Order Sending National Guard to L.A., Newsom Says**\
+`The office of Gov. Gavin Newsom seemed to foreshadow the litigation in a letter to Defense Secretary Pete Hegseth on Sunday.`\
+https://nytimes.com/2025/06/09/us/california-lawsuit-national-guard-protests-trump.html
+
+**China’s Chokehold on This Obscure Mineral Threatens the West’s Militaries**\
+`China produces the entire world’s supply of samarium, a rare earth metal that the United States and its allies need to rebuild inventories of fighter jets, missiles and other hardware.`\
+https://nytimes.com/2025/06/09/business/china-rare-earth-samarium-fighter-jets.html
+
+**Trump Budget’s Caps on Grad School Loans Could Worsen Doctor Shortage**\
+`The proposed limits on federal loans fall well below the costs of medical school. Critics say this could deter students from pursuing medicine.`\
+https://nytimes.com/2025/06/09/health/trump-budget-student-loans-doctors.html
+
 **Red Light: Sublime Stanley Cup Final rolls on. Plus: PWHL expansion draft**\
 `See why the Oilers are saying "enough's enough" heading into Game 3.`\
 https://nytimes.com/athletic/6413792/2025/06/09/red-light-stanley-cup-final-pwhl-expansion-draft/
@@ -8,7 +20,7 @@ https://nytimes.com/2025/06/09/world/europe/italian-referendum-to-loosen-citizen
 
 **N.I.H. Workers Denounce Trump’s ‘Harmful’ Health Policies**\
 `In a scathing public letter, employees of the National Institutes of Health accused the administration of undermining the agency’s work and endangering people’s health.`\
-https://nytimes.com/2025/06/09/health/nih-letter-trump-bhattacharya.html
+https://nytimes.com/live/2025/06/09/us/trump-news/nih-letter-trump-bhattacharya
 
 **How to Give Yourself a Pedicure**\
 `Expert advice from a foot model, a nail artist and a burlesque performer.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/09/world/americas/reborn-baby-dolls-brazil.html
 **THE BAT X fantasy baseball cheat sheet: Add Ben Brown, stream Agustín Ramírez**\
 `Weekly advice on players to add, fade, trade, start or sit based on THE BAT X projections.`\
 https://nytimes.com/athletic/6413415/2025/06/09/the-bat-x-fantasy-baseball-cheat-sheet-ben-brown/
-
-**Escargot Flavors, Weeknight Ease**\
-`Heady, parsleyed garlic butter is the star of this slow-cooker dinner.`\
-https://nytimes.com/2025/06/09/dining/easy-slow-cooker-garlic-butter-chicken-recipe.html
-
-**First Fossil Proof Found That Long-Necked Dinosaurs Were Vegetarians**\
-`“It’s the smoking gun, or the steaming guts,” said a paleontologist from a team that also found that the sauropods didn’t chew their food.`\
-https://nytimes.com/2025/06/09/science/sauropod-dinosaur-fossils-vegetarians.html
-
-**Gun Deaths of Children Rose in States That Loosened Gun Laws, Study Finds**\
-`Researchers looked at firearm fatalities in the 13 years immediately after the Supreme Court limited local governments’ ability to restrict gun ownership.`\
-https://nytimes.com/2025/06/09/health/gun-deaths-children.html
 
