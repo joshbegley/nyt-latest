@@ -1,3 +1,15 @@
+**Trump and Patel defend the decision to send in National Guard troops.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/trump-and-patel-defend-the-decision-to-send-in-national-guard-troops
+
+**How Trump Has Leverage Over Musk**\
+`But Mr. Trump’s warnings to his former ally are backed by several ways the White House could punish the world’s richest man.`\
+https://nytimes.com/2025/06/09/business/dealbook/trump-musk-truce.html
+
+**Man City reach agreement to sign Cherki from Lyon**\
+`Cherki was named in the Europa League Team of the Season, while also earning his first call-up for France's senior team in May.`\
+https://nytimes.com/athletic/6393363/2025/06/09/man-city-rayan-cherki-transfer/
+
 **Warner Bros. Discovery to Split Into Two Companies**\
 `The film and television giant will turn its cable networks, including CNN and TNT, into one company and its streaming and studios business into another.`\
 https://nytimes.com/2025/06/09/business/media/warner-bros-discovery-split.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6412522/2025/06/09/cubs-pitching-trade-deadline/
 **Astros mailbag: The catching situation, Jacob Melton's role and Miguel Ullola's arrival**\
 `Will the Astros re-sign Framber Valdez? Can Houston figure out how to control the running game? We answer these questions and more.`\
 https://nytimes.com/athletic/6412355/2025/06/09/houston-astros-catchers-jacob-melton/
-
-**Brighton working on deal for Hellas Verona defender Coppola**\
-`The club are keen to add the 21-year-old to Fabian Hurzeler's squad as part of a refresh in the centre of the defence.`\
-https://nytimes.com/athletic/6413258/2025/06/09/brighton-transfers-diego-coppola/
-
-**Ten roster moves that shaped the offseason in the Big 12 **\
-`Is Texas Tech the favorite after signing a top transfer class? What will Colorado look like without Shedeur Sanders and Travis Hunter?`\
-https://nytimes.com/athletic/6406331/2025/06/09/big-12-football-transfer-portal-rosters-offseason/
-
-**Blue Jays are the hottest they've been since 2022. Here are 6 reasons why**\
-`During a 10-3 run, Toronto has gotten contributions at the plate, behind it and on the mound.`\
-https://nytimes.com/athletic/6412341/2025/06/09/toronto-blue-jays-hot-streak-addison-barger/
 

@@ -1,3 +1,7 @@
+**Warner Bros. Discovery to Split Into Two Companies**\
+`The film and television giant will turn its cable networks, including CNN and TNT, into one company and its streaming and studios business into another.`\
+https://nytimes.com/2025/06/09/business/media/warner-bros-discovery-split.html
+
 **What's next for Michael McGreevy after an encouraging spot start against Dodgers?**\
 `McGreevy salvaged a shaky outing with some mid-game adjustments, and that maturity impressed the Cardinals' decision-makers.`\
 https://nytimes.com/athletic/6412197/2025/06/09/cardinals-michael-mcgreevy-rotation/
