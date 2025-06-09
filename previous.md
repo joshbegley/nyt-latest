@@ -1,3 +1,7 @@
+**Not Far From Tense Clashes, Life Goes on in L.A.**\
+`Los Angeles County, all 4,000 square miles of it, has a way of insulating and isolating mayhem, man-made or otherwise.`\
+https://nytimes.com/2025/06/08/us/not-far-from-tense-clashes-life-goes-on-in-la.html
+
 **‘Eureka Day’ wins the Tony for best revival of a play.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/eureka-day-wins-the-tony-for-best-revival-of-a-play
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.htm
 **Mets' Juan Soto reaches base 6 times in a game for first time**\
 `Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
 https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-times/
-
-**‘Buena Vista Social Club’ band is among the recipients of special honors and awards.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/tonys-special-honors-buena-vista-stranger-things
 

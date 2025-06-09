@@ -1,6 +1,10 @@
+**Lin-Manuel Miranda and Original ‘Hamilton’ Cast Reunited for a Tonys Medley**\
+`Marking the 10th anniversary of the show’s opening, the creator and cast reunited to perform “My Shot,” “The Schuyler Sisters” and other notable songs.`\
+https://nytimes.com/2025/06/08/theater/hamilton-performance-tony-awards.html
+
 **Not Far From Tense Clashes, Life Goes on in L.A.**\
 `Los Angeles County, all 4,000 square miles of it, has a way of insulating and isolating mayhem, man-made or otherwise.`\
-https://nytimes.com/2025/06/08/us/not-far-from-tense-clashes-life-goes-on-in-la.html
+https://nytimes.com/2025/06/08/us/los-angeles-clashes-ordinary-life.html
 
 **‘Eureka Day’ wins the Tony for best revival of a play.**\
 `By Alexis Soloski`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/protest-in-pas
 **Videos of Assassination Attempt in Colombia Stoke National Tension**\
 `Miguel Uribe Turbay, a conservative presidential hopeful, remained in “extremely serious” condition on Sunday, a day after being shot.`\
 https://nytimes.com/2025/06/08/world/americas/colombia-uribe-turbay-shooting.html
-
-**Mets' Juan Soto reaches base 6 times in a game for first time**\
-`Soto has raised his OPS to .820 after it sank to .745 on May 28. `\
-https://nytimes.com/athletic/6412565/2025/06/08/mets-juan-soto-reaches-base-six-times/
 

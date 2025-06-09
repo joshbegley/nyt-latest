@@ -1,3 +1,7 @@
+**Not Far From Tense Clashes, Life Goes on in L.A.**\
+`Los Angeles County, all 4,000 square miles of it, has a way of insulating and isolating mayhem, man-made or otherwise.`\
+https://nytimes.com/2025/06/08/us/not-far-from-tense-clashes-life-goes-on-in-la.html
+
 **‘Eureka Day’ wins the Tony for best revival of a play.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2025/06/08/theater/tony-awards/eureka-day-wins-the-tony-for-best-revival-of-a-play
