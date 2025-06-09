@@ -1,3 +1,27 @@
+**Everything you need to know about the Club World Cup**\
+`With the first Club World Cup match on June 15, it's time to get up to speed with the key talking points around the tournament`\
+https://nytimes.com/athletic/6402812/2025/06/09/club-world-cup-everything-you-need-to-know/
+
+**Club World Cup team guide - Los Angeles FC: Giroud, Lloris and a wrecking-crew winger**\
+`The final qualifier among the field, Los Angeles FC completed the 32-team field when they won a play-in match over Club America`\
+https://nytimes.com/athletic/6400739/2025/06/09/club-world-cup-guide-lafc/
+
+**Club World Cup team guide – Paris Saint-Germain: The breathtaking yet complicated champions of Europe**\
+`PSG are the thrilling new kings of European football - and also a state-sponsored instrument of geopolitical power`\
+https://nytimes.com/athletic/6397593/2025/06/09/club-world-cup-team-guide-paris-saint-germain-the-breathtaking-yet-complicated-champions-of-europe/
+
+**Club World Cup team guide – Boca Juniors: A global brand, Cavani and a coach returning for his third stint**\
+`Everything you need to know about the 35-times champions of Argentina`\
+https://nytimes.com/athletic/6405943/2025/06/09/club-world-cup-team-guide-boca-juniors-a-global-brand-cavani-and-a-coach-returning-for-his-third-stint/
+
+**U.S. and China to Meet at Precarious Moment in Trade War**\
+`Officials from both sides are set to talk on Monday in London, aiming to resolve differences over tariffs and supply chains that have endangered a fragile truce between the countries.`\
+https://nytimes.com/2025/06/09/business/us-and-china-trade-war-meeting.html
+
+**Connections: Sports Edition Coach: Hints for June 9, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6412820/2025/06/09/connections-sports-edition-hints-for-june-9-2025/
+
 **Quote of the Day: Expectations for Kindergarten Have Risen, Putting Boys at a Disadvantage**\
 `Quotation of the Day for Monday, June 9, 2025.`\
 https://nytimes.com/2025/06/08/pageoneplus/quote-of-the-day-expectations-for-kindergarten-have-risen-putting-boys-at-a-disadvantage.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/08/theater/maybe-happy-ending-tony-awards-best-music
 **Dodgers' Clayton Kershaw calls out Cardinals for playing home run video**\
 `The homer ultimately clinched the series for St. Louis, which beat the Dodgers 3-2 to advance to the 2014 NLCS.`\
 https://nytimes.com/athletic/6412770/2025/06/08/clayton-kershaw-dodgers-cardinals-video/
-
-**Nicole Scherzinger Wins the Tony Award for Best Actress in a Musical**\
-`In “Sunset Boulevard,” Scherzinger plays Norma Desmond, a former screen star who descends into madness.`\
-https://nytimes.com/2025/06/08/theater/nicole-scherzinger-tony-best-actress-musical.html
-
-**Darren Criss wins the Tony Award for best actor in a musical.**\
-`By Rachel Sherman`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/darren-criss-wins-the-tony-award-for-best-actor-in-a-musical
-
-**How Pete Alonso took his game planning to a new level: 'Knowledge is power'**\
-`Alonso listens to an array of voices and it shows in his approach: "The lens that he is viewing the game through right now is high quality."`\
-https://nytimes.com/athletic/6412691/2025/06/08/mets-pete-alonso-game-planning-difference/
-
-**Trump is barely mentioned at the Tonys.**\
-`By Derrick Bryson Taylor and Matt Stevens`\
-https://nytimes.com/live/2025/06/08/theater/tony-awards/trump-is-barely-mentioned-at-the-tonys
-
-**Thunder leave no opening for Game 2 hero moment, dominate Pacers to even NBA Finals**\
-`Oklahoma City had a predictable response after its gut-wrenching Game 1 collapse to Indiana: The defense gave the Pacers no hope.`\
-https://nytimes.com/athletic/6412448/2025/06/08/thunder-pacers-game-2-2025-nba-finals-score-result-analysis/
-
-**America Is No Longer a Stable Country**\
-`Trump is playing with fire, which is just how he likes it.`\
-https://nytimes.com/2025/06/08/opinion/trump-newsom-los-angeles-national-guard.html
 

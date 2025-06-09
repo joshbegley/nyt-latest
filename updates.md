@@ -1,3 +1,7 @@
+**Quote of the Day: Expectations for Kindergarten Have Risen, Putting Boys at a Disadvantage**\
+`Quotation of the Day for Monday, June 9, 2025.`\
+https://nytimes.com/2025/06/08/pageoneplus/quote-of-the-day-expectations-for-kindergarten-have-risen-putting-boys-at-a-disadvantage.html
+
 **Three Days of Protest in L.A.**\
 `Hundreds of protesters clashed with law enforcement over the federal crackdown on immigration.`\
 https://nytimes.com/2025/06/08/us/three-days-of-protest-in-la.html

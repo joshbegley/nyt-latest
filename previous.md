@@ -1,3 +1,7 @@
+**Quote of the Day: Expectations for Kindergarten Have Risen, Putting Boys at a Disadvantage**\
+`Quotation of the Day for Monday, June 9, 2025.`\
+https://nytimes.com/2025/06/08/pageoneplus/quote-of-the-day-expectations-for-kindergarten-have-risen-putting-boys-at-a-disadvantage.html
+
 **Three Days of Protest in L.A.**\
 `Hundreds of protesters clashed with law enforcement over the federal crackdown on immigration.`\
 https://nytimes.com/2025/06/08/us/three-days-of-protest-in-la.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412448/2025/06/08/thunder-pacers-game-2-2025-nba-f
 **America Is No Longer a Stable Country**\
 `Trump is playing with fire, which is just how he likes it.`\
 https://nytimes.com/2025/06/08/opinion/trump-newsom-los-angeles-national-guard.html
-
-**‘Sunset Boulevard’ Starring Nicole Scherzinger Wins the Tony Award for Best Musical Revival**\
-`The high-tech production of Andrew Lloyd Webber’s musical proved to be a star vehicle for the pop singer.`\
-https://nytimes.com/2025/06/08/theater/sunset-boulevard-tony-best-musical-revival.html
 
