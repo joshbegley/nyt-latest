@@ -1,3 +1,11 @@
+**Ronaldo planning on Al Nassr stay: 'Nothing is going to change'**\
+`The Portuguese had said over the weekend that he would not be moving to a team competing at the Club World Cup.`\
+https://nytimes.com/athletic/6413103/2025/06/09/cristiano-ronaldo-transfer-al-nassr-contract/
+
+**Phillies takeaways on the sputtering offense, outfield issues and a pitching tightrope**\
+`Almost every hitter has seen a dip in slugging percentage against off-speed and breaking pitches. Many have experienced radical declines.`\
+https://nytimes.com/athletic/6412644/2025/06/09/phillies-offense-outfield-bullpen-issues/
+
 **NFL minicamp storylines: Aaron Rodgers, Kirk Cousins, contract holdouts and QB battles**\
 `The Browns, Saints and Colts are among those with QB races to watch, and another chance for Travis Hunter acrobatics is never a bad thing.`\
 https://nytimes.com/athletic/6407193/2025/06/09/nfl-minicamp-aaron-rodgers-steelers-micah-parsons/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/09/podcasts/the-headlines/california-national-guard-
 **Wordle Review No. 1,452**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, June 10, 2025.`\
 https://nytimes.com/2025/06/09/crosswords/wordle-review-1452.html
-
-**Federal Troops Enter L.A., and the Trump-Musk Feud Hardens**\
-`President Trump deployed the National Guard to suppress protests over his immigration policies, and said he had no plans to speak to Elon Musk.`\
-https://nytimes.com/2025/06/09/podcasts/the-daily/trump-national-guard-la-musk.html
-
-**Finding Jordon Hudson: What a New England road trip reveals about a 'supernova'**\
-`Hudson became a cultural fixation as she reshaped Bill Belichick's brand. But the world is left deciphering clues about who she really is.`\
-https://nytimes.com/athletic/6409242/2025/06/09/bill-belichick-jordon-hudson-relationship-unc-football/
 
