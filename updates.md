@@ -1,3 +1,19 @@
+**Read the Criminal Complaint Against David Huerta**\
+`The complaint describes law enforcement’s view the events surrounding the arrest on Friday of the president of the Service Employees International Union California at a protest over an immigration raid.`\
+https://nytimes.com/interactive/2025/06/09/us/usa-v-huerta-complaint.html
+
+**Meta in Talks to Invest Billions in Scale AI**\
+`Scale AI, an artificial intelligence start-up, has built a business by labeling and culling data to make it easier to use to train A.I. systems.`\
+https://nytimes.com/2025/06/09/technology/meta-scale-ai-investment.html
+
+**BlackRock Is Accused of a Plot Against Coal. The Firm Says That’s ‘Absurd.’**\
+`An unusual lawsuit in Texas claims investment firms illegally conspired to fight climate change. On Monday, a judge heard arguments to dismiss the case.`\
+https://nytimes.com/2025/06/09/climate/blackrock-coal-texas-lawsuit.html
+
+**Sly Stone, Maestro of a Multifaceted, Hitmaking Band, Dies at 82**\
+`Leading Sly and the Family Stone, he helped redefine the landscape of pop, funk and rock in the late 1960s and early ’70s.`\
+https://nytimes.com/2025/06/09/arts/music/sly-stone-dead.html
+
 **BlackRock Is Accused of a Plot Against Coal. The Firm Says That’s ‘Absurd.’**\
 `An unusual lawsuit in Texas claims investors illegally conspired with one another to fight climate change. On Monday a judge heard arguments to dismiss the case.`\
 https://nytimes.com/2025/06/09/climate/blackrock-coal-texas-lawsuit.html

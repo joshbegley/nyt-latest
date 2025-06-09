@@ -1,5 +1,13 @@
+**Read the Criminal Complaint Against David Huerta**\
+`The complaint describes law enforcement’s view the events surrounding the arrest on Friday of the president of the Service Employees International Union California at a protest over an immigration raid.`\
+https://nytimes.com/interactive/2025/06/09/us/usa-v-huerta-complaint.html
+
+**Meta in Talks to Invest Billions in Scale AI**\
+`Scale AI, an artificial intelligence start-up, has built a business by labeling and culling data to make it easier to use to train A.I. systems.`\
+https://nytimes.com/2025/06/09/technology/meta-scale-ai-investment.html
+
 **BlackRock Is Accused of a Plot Against Coal. The Firm Says That’s ‘Absurd.’**\
-`An unusual lawsuit in Texas claims investors illegally conspired with one another to fight climate change. On Monday a judge heard arguments to dismiss the case.`\
+`An unusual lawsuit in Texas claims investment firms illegally conspired to fight climate change. On Monday, a judge heard arguments to dismiss the case.`\
 https://nytimes.com/2025/06/09/climate/blackrock-coal-texas-lawsuit.html
 
 **Leaders of ‘Orgasmic Meditation’ Group Are Convicted of Coercion Charges**\
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6414517/2025/06/09/world-cup-cities-us-politics/
 https://nytimes.com/athletic/6412677/2025/06/09/red-sox-roman-anthony-call-up/
 
 **Sly Stone, Maestro of a Multifaceted, Hitmaking Band, Dies at 82**\
-`Leading Sly and the Family Stone, he helped redefine the landscape of pop, funk and rock in the late 1960s and ’70s.`\
+`Leading Sly and the Family Stone, he helped redefine the landscape of pop, funk and rock in the late 1960s and early ’70s.`\
 https://nytimes.com/2025/06/09/arts/music/sly-stone-dead.html
 
 **Colts announce ownership transition from late Jim Irsay to his 3 daughters**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6414370/2025/06/09/usmnt-switzerland-tyler-adams-in
 **Valmik Thapar, Tenacious Tiger Conservationist in India, Is Dead**\
 `He started studying tigers at a reserve in 1976 and became a leading activist in efforts to save the tiger from poaching and shrinking habitats.`\
 https://nytimes.com/2025/06/09/world/asia/valmik-thapar-dead.html
-
-**NATO Chief Urges Members to Spend Far More on Military**\
-`“Learn to speak Russian,” the secretary-general of the alliance warned nations unwilling to make politically unpopular budget decisions.`\
-https://nytimes.com/2025/06/09/world/europe/nato-spending-russia.html
-
-**How three MLB pitchers are faring in their returns from injuries**\
-`Andrea Arcadipane checks in on a few starting pitchers returning from injury this season, including Atlanta Braves ace Spencer Strider.`\
-https://nytimes.com/athletic/6414172/2025/06/09/scouting-fantasy-baseball-injury-returns-strider-mccullers/
 
