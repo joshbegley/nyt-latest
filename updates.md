@@ -1,3 +1,7 @@
+**Three Days of Protest in L.A.**\
+`Hundreds of protesters clashed with law enforcement over the federal crackdown on immigration.`\
+https://nytimes.com/2025/06/08/us/three-days-of-protest-in-la.html
+
 **‘Maybe Happy Ending’ Wins the Tony for Best Musical**\
 `The musical, about a budding romance between two outdated robots, won six Tony Awards on Sunday night.`\
 https://nytimes.com/2025/06/08/theater/maybe-happy-ending-tony-awards-best-musical.html

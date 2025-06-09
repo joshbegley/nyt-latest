@@ -1,3 +1,7 @@
+**Three Days of Protest in L.A.**\
+`Hundreds of protesters clashed with law enforcement over the federal crackdown on immigration.`\
+https://nytimes.com/2025/06/08/us/three-days-of-protest-in-la.html
+
 **‘Maybe Happy Ending’ Wins the Tony for Best Musical**\
 `The musical, about a budding romance between two outdated robots, won six Tony Awards on Sunday night.`\
 https://nytimes.com/2025/06/08/theater/maybe-happy-ending-tony-awards-best-musical.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/opinion/trump-newsom-los-angeles-national-guard.h
 **‘Sunset Boulevard’ Starring Nicole Scherzinger Wins the Tony Award for Best Musical Revival**\
 `The high-tech production of Andrew Lloyd Webber’s musical proved to be a star vehicle for the pop singer.`\
 https://nytimes.com/2025/06/08/theater/sunset-boulevard-tony-best-musical-revival.html
-
-**A crowd-control munition used in George Floyd protests is being used in Los Angeles.**\
-`By Thomas Gibbons-Neff and Livia Albeck-Ripka`\
-https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/a-crowd-control-munition-used-in-george-floyd-protests-is-being-used-in-los-angeles
 
