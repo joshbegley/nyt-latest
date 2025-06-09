@@ -1,3 +1,7 @@
+**Whistle-Blower Who Ignited Sexual Abuse Reckoning Among Southern Baptists Dies**\
+`Jennifer Lyell died at 47 on Saturday. As her denomination started its annual meeting this week, there was no mention of her from the dais.`\
+https://nytimes.com/2025/06/09/us/jennifer-lyell-dead-southern-baptist-convention.html
+
 **Concacaf rejects Greenland's application for membership**\
 `"This is not a victory for football democracy, it does not make football accessible to everyone globally," Greenland's FA tells The Athletic`\
 https://nytimes.com/athletic/6414496/2025/06/09/concacaf-rejects-greenland-application-membership/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/climate/blackrock-coal-texas-lawsuit.html
 **Leaders of ‘Orgasmic Meditation’ Group Are Convicted of Coercion Charges**\
 `Nicole Daedone and Rachel Cherwitz were charged with engaging in a forced labor conspiracy related to the sexual wellness company OneTaste.`\
 https://nytimes.com/2025/06/09/nyregion/onetaste-orgasmic-meditation-verdict.html
-
-**World Cup host cities in the U.S. monitoring political situation amid immigration crackdown**\
-`FIFA's President Gianni Infantino said earlier this year that "America will welcome the world" for next year's tournament.`\
-https://nytimes.com/athletic/6414517/2025/06/09/world-cup-cities-us-politics/
 
