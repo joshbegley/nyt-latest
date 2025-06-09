@@ -1,3 +1,7 @@
+**Autographed Michael Jordan rookie card from secret signing going to auction**\
+`The auction house's estimated value of the card puts it in line with Jordan's most expensive to date. `\
+https://nytimes.com/athletic/6412832/2025/06/09/michael-jordan-autographed-rookie-card-auction/
+
 **The Pacers need Tyrese Haliburton to be more selfish with his scoring**\
 `Haliburton had only five points through the first three quarters in Game 2 and has largely been held in check by the Thunder defense so far.`\
 https://nytimes.com/athletic/6413170/2025/06/09/tyrese-haliburton-pacers-game-2-nba-finals-thunder-scoring/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/world/middleeast/chaos-gaza-aid.html
 **Lamptey agrees one-year Brighton contract extension**\
 `The 24-year-old Ghana international right-back made 10 starts in the Premier League in 2024-25, with his campaign disrupted by injuries.`\
 https://nytimes.com/athletic/6413324/2025/06/09/tariq-lamptey-brighton-contract/
-
-**Trump Administration Live Updates: Travel Ban Goes Into Effect**\
-``\
-https://nytimes.com/live/2025/06/09/us/trump-news
 

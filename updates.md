@@ -1,3 +1,11 @@
+**The Pacers need Tyrese Haliburton to be more selfish with his scoring**\
+`Haliburton had only five points through the first three quarters in Game 2 and has largely been held in check by the Thunder defense so far.`\
+https://nytimes.com/athletic/6413170/2025/06/09/tyrese-haliburton-pacers-game-2-nba-finals-thunder-scoring/
+
+**Packers releasing Pro Bowl cornerback Jaire Alexander: Sources**\
+`Alexander has played all seven of his NFL seasons in Green Bay and earned Pro Bowl honors in 2020 and 2022.`\
+https://nytimes.com/athletic/6413409/2025/06/09/jaire-alexander-green-bay-packers-release/
+
 **Waymo Halts Service in Downtown Los Angeles After Its Taxis Are Set on Fire**\
 `Protesters smashed the windows of multiple Waymo robot taxis and then set them on fire. The police warned of toxic fumes released by burning lithium-ion batteries.`\
 https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html

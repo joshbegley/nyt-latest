@@ -1,3 +1,11 @@
+**The Pacers need Tyrese Haliburton to be more selfish with his scoring**\
+`Haliburton had only five points through the first three quarters in Game 2 and has largely been held in check by the Thunder defense so far.`\
+https://nytimes.com/athletic/6413170/2025/06/09/tyrese-haliburton-pacers-game-2-nba-finals-thunder-scoring/
+
+**Packers releasing Pro Bowl cornerback Jaire Alexander: Sources**\
+`Alexander has played all seven of his NFL seasons in Green Bay and earned Pro Bowl honors in 2020 and 2022.`\
+https://nytimes.com/athletic/6413409/2025/06/09/jaire-alexander-green-bay-packers-release/
+
 **Waymo Halts Service in Downtown Los Angeles After Its Taxis Are Set on Fire**\
 `Protesters smashed the windows of multiple Waymo robot taxis and then set them on fire. The police warned of toxic fumes released by burning lithium-ion batteries.`\
 https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6413324/2025/06/09/tariq-lamptey-brighton-contract/
 **Trump Administration Live Updates: Travel Ban Goes Into Effect**\
 ``\
 https://nytimes.com/live/2025/06/09/us/trump-news
-
-**Willy Adames on his rough start as a Giant: 'I want to look in the mirror and slap myself'**\
-`Adames wasn't in the lineup for the first time this season — a head-clearing break — in San Francisco's 4-3 win over Atlanta.`\
-https://nytimes.com/athletic/6412836/2025/06/09/giants-willy-adames-rough-start/
-
-**What we learned about the Sabres at 2025 NHL Scouting Combine**\
-`For the second straight year, the idea of the Sabres trading their first-round pick should be on the table.`\
-https://nytimes.com/athletic/6412891/2025/06/09/buffalo-nhl-scouting-combine-sabres-2025/
 
