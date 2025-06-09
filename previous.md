@@ -1,3 +1,7 @@
+**‘Maybe Happy Ending’ Wins the Tony for Best Musical**\
+`The musical, about a budding romance between two outdated robots, won six Tony Awards on Sunday night.`\
+https://nytimes.com/2025/06/08/theater/maybe-happy-ending-tony-awards-best-musical.html
+
 **Dodgers' Clayton Kershaw calls out Cardinals for playing home run video**\
 `The homer ultimately clinched the series for St. Louis, which beat the Dodgers 3-2 to advance to the 2014 NLCS.`\
 https://nytimes.com/athletic/6412770/2025/06/08/clayton-kershaw-dodgers-cardinals-video/
@@ -22,8 +26,8 @@ https://nytimes.com/live/2025/06/08/theater/tony-awards/trump-is-barely-mentione
 `Oklahoma City had a predictable response after its gut-wrenching Game 1 collapse to Indiana: The defense gave the Pacers no hope.`\
 https://nytimes.com/athletic/6412448/2025/06/08/thunder-pacers-game-2-2025-nba-finals-score-result-analysis/
 
-**The President Is Playing With Fire, Which Is Just How He Likes It**\
-`We are living in a dangerous moment.`\
+**America Is No Longer a Stable Country**\
+`Trump is playing with fire, which is just how he likes it.`\
 https://nytimes.com/2025/06/08/opinion/trump-newsom-los-angeles-national-guard.html
 
 **‘Sunset Boulevard’ Starring Nicole Scherzinger Wins the Tony Award for Best Musical Revival**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/08/theater/sunset-boulevard-tony-best-musical-reviva
 **A crowd-control munition used in George Floyd protests is being used in Los Angeles.**\
 `By Thomas Gibbons-Neff and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/06/08/us/la-protests-national-guard/a-crowd-control-munition-used-in-george-floyd-protests-is-being-used-in-los-angeles
-
-**What Is the National Guard?**\
-`The troops that President Trump deployed to Los Angeles are members of a state-based militia that exists in every state and can be called in during natural disasters or civil unrest.`\
-https://nytimes.com/2025/06/08/us/national-guard.html
 
