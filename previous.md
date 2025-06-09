@@ -1,3 +1,7 @@
+**2 Killed in Shooting on Las Vegas Strip**\
+`The police said the shooting, which was captured on video, was an isolated incident, and that the gunman and the victims had “previously engaged in conflict over social media.”`\
+https://nytimes.com/2025/06/09/us/las-vegas-shooting-youtube-feud.html
+
 **A Tricky Balance for L.A. Law Enforcement During Immigration Protests**\
 `Local agencies have tried to make clear that they are not involved in civil immigration enforcement, but that when protests turn violent, they will intervene.`\
 https://nytimes.com/2025/06/09/us/lapd-sheriff-immigration-raids.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/waymo-la-protests-vehicles-fire.html
 **Here’s the latest.**\
 `By Rick Rojas, Livia Albeck-Ripka, Shawn Hubler, Jesus Jiménez and Yan Zhuang`\
 https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/heres-the-latest
-
-**Live Updates: 3 Days of Immigration Clashes Leave L.A. on Edge**\
-`California leaders demanded that President Trump withdraw National Guard troops from Los Angeles, as police scuffled with crowds protesting the administration’s immigration crackdown.`\
-https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump
 
