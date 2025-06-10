@@ -1,3 +1,11 @@
+**NCAA men's basketball to allow challenges to 'enhance the flow of the game'**\
+`Officiating across NCAA sports has come under major scrutiny in the last few years.`\
+https://nytimes.com/athletic/6417058/2025/06/10/ncaa-rules-college-basketball-challenges/
+
+**The Briefing: England 1 Senegal 3 - Tuchel's side fall flat, so is it time to move on from the old guard?**\
+`Analysis from the City Ground's first England international in 116 years as Senegal proved too strong for Thomas Tuchel's side`\
+https://nytimes.com/athletic/6402697/2025/06/10/england-senegal-tuchel-henderson-walker/
+
 **A lawyer says some immigrants detained in L.A. raids have been deported.**\
 `Immigrant rights lawyers said on Tuesday that they had been unable to learn where there clients were being held or how their cases were proceeding. .`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/a-lawyer-says-some-immigrants-detained-in-la-raids-have-been-deported

@@ -1,3 +1,11 @@
+**NCAA men's basketball to allow challenges to 'enhance the flow of the game'**\
+`Officiating across NCAA sports has come under major scrutiny in the last few years.`\
+https://nytimes.com/athletic/6417058/2025/06/10/ncaa-rules-college-basketball-challenges/
+
+**The Briefing: England 1 Senegal 3 - Tuchel's side fall flat, so is it time to move on from the old guard?**\
+`Analysis from the City Ground's first England international in 116 years as Senegal proved too strong for Thomas Tuchel's side`\
+https://nytimes.com/athletic/6402697/2025/06/10/england-senegal-tuchel-henderson-walker/
+
 **A lawyer says some immigrants detained in L.A. raids have been deported.**\
 `Immigrant rights lawyers said on Tuesday that they had been unable to learn where there clients were being held or how their cases were proceeding. .`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/a-lawyer-says-some-immigrants-detained-in-la-raids-have-been-deported
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/10/us/earthquake-los-angeles-tracker.htm
 **Patriots WR Stefon Diggs mum on viral video, but excited to play for Mike Vrabel**\
 `The new Patriots wide receiver said conversations about the unknown substance in the video would stay between him, Vrabel and the team.`\
 https://nytimes.com/athletic/6416958/2025/06/10/stefon-diggs-patriots-viral-video-vrabel/
-
-**WATCH: Why this stat is key for the winners in the NBA Finals**\
-`The team that gets into the paint more has won the first two games of these NBA Finals. Here's why that should continue.`\
-https://nytimes.com/athletic/6417054/2025/06/10/nba-finals-2025-pacers-thunder-analysis-video/
-
-**Leeds optimism on Bijol transfer, Diarra bid and Longstaff interest**\
-`There is less confidence at Elland Road on signing Strasbourg midfielder Habib Diarra, despite lodging a bid of €26m (£22m).`\
-https://nytimes.com/athletic/6417066/2025/06/10/leeds-transfer-news-bijol-diarra-longstaff/
 
