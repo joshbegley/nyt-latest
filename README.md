@@ -1,3 +1,7 @@
+**California seeks to limit the use of military forces deployed to Los Angeles.**\
+`By Laurel Rosenhall`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/california-seeks-to-limit-the-use-of-military-forces-deployed-to-los-angeles
+
 **175 Writing Prompts to Spark Discussion and Reflection**\
 `Here are all of our Student Opinion questions from the 2024-25 school year. Each question is based on a different New York Times article, interactive feature or video.`\
 https://nytimes.com/2025/06/10/learning/175-writing-prompts-to-spark-discussion-and-reflection.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/music/100000010219634/bts-rm-v-discharged.html
 **Trump Threatens Any Protesters at Military Parade With ‘Very Big Force’**\
 `“I haven’t even heard about a protest,” at the Saturday event in Washington celebrating the Army, he said, but “this is people that hate our country.”`\
 https://nytimes.com/2025/06/10/us/politics/trump-military-parade-protests.html
-
-**The Welfare Queen Is Back, but With a Video Game Console in Hand**\
-`Republicans targeting safety net programs once invoked women they claimed were living lavishly on government funds. Now as they seek to pare back Medicaid, the imagery has changed — but not the argument.`\
-https://nytimes.com/2025/06/10/us/politics/republicans-medicaid-cuts.html
 
