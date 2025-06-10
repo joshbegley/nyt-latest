@@ -1,3 +1,7 @@
+**Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
+`The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under chief executive Mark Zuckerberg.`\
+https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
+
 **Can Mamdani Persuade New York to Elect Its Youngest Mayor in a Century?**\
 `Zohran Mamdani has won over young, left-leaning New Yorkers with his energy and progressive ideas. But is he capable of running the largest city in the country?`\
 https://nytimes.com/2025/06/10/nyregion/mamdani-age-mayor-young.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return
 **Word of the Day: aqueous**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
-
-**Otto Kemp's first trip to Phillies' ballpark worth the wait as he shines in walk-off win**\
-`Kemp had been waiting a while. A lifetime for his major-league debut, Saturday in Pittsburgh. Perhaps just as long to lay down a good bunt. `\
-https://nytimes.com/athletic/6415242/2025/06/10/otto-kemp-phillies-win-cubs-citizens-bank-park/
 

@@ -1,3 +1,7 @@
+**Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
+`The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under chief executive Mark Zuckerberg.`\
+https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
+
 **Can Mamdani Persuade New York to Elect Its Youngest Mayor in a Century?**\
 `Zohran Mamdani has won over young, left-leaning New Yorkers with his energy and progressive ideas. But is he capable of running the largest city in the country?`\
 https://nytimes.com/2025/06/10/nyregion/mamdani-age-mayor-young.html
