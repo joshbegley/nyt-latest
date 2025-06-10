@@ -1,3 +1,7 @@
+**Vikings minicamp: Dallas Turner makes play of the day, but will he get more snaps?**\
+`Turner, a 2024 first-round pick, played sparingly on defense as a rookie. Brian Flores hopes to find more ways to use him this fall.`\
+https://nytimes.com/athletic/6417476/2025/06/10/dallas-turner-vikings-minicamp/
+
 **Tuchel says 'no need to panic' for England after Senegal defeat**\
 `Goals from Ismaila Sarr, Habib Diarra and Cheikh Sabaly gave Pape Thiaw's side a deserved victory despite Harry Kane's early opener.`\
 https://nytimes.com/athletic/6417552/2025/06/10/thomas-tuchel-england-senegal/
