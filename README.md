@@ -1,3 +1,7 @@
+**Why Canadiens rookie Lane Hutson’s Calder Trophy win is just the beginning**\
+`Hutson has used information to overcome challenges and improve his whole life, and there's no reason to believe that will stop now.`\
+https://nytimes.com/athletic/6417157/2025/06/10/canadiens-lane-hutson-calder-trophy-nhl/
+
 **Packers GM Brian Gutekunst explains why he released CB Jaire Alexander**\
 `Alexander was Gutekunst's first draft pick after he took the Packers GM job ahead of the 2018 season.`\
 https://nytimes.com/athletic/6417166/2025/06/10/packers-gm-brian-gutekunst-jaire-alexander/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/consumer-bureau-trump.html
 ** Dwyane Wade on Breaking Fashion Barriers**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dwyane-wade-players-magazine
-
-**gws-meghann-fahy-sirens**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/gws-meghann-fahy-sirens
 
