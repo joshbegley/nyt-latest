@@ -1,3 +1,7 @@
+**Lyon agree deal to sign USMNT goalkeeper Turner from Nottm Forest**\
+`The two clubs have agreed a fee of €8million (£6.74m) for the 30-year-old.`\
+https://nytimes.com/athletic/6414797/2025/06/10/matt-turner-lyon-nottingham-forest-transfers/
+
 **Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
 `The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under chief executive Mark Zuckerberg.`\
 https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
