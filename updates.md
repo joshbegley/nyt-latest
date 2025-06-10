@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
 
+**Trump Administration More Than Doubles Federal Deployments to Los Angeles**\
+`The Pentagon mobilized 700 Marines and 2,000 more National Guard troops even as the president said the situation was “under control.” Gov. Gavin Newsom condemned the escalating response.`\
+https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
+
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **New York Moves to Allow Terminally Ill People to Die on Their Own Terms**\
 `A bill permitting so-called medical aid in dying passed the State Legislature and will now head to Gov. Kathy Hochul for her signature.`\
 https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.html
