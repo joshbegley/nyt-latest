@@ -1,3 +1,11 @@
+**Democrats Enter Risky Political Terrain as Protests Grip California**\
+`Scenes of unrest in Southern California, stoked by President Trump as he tries to deport more immigrants, have left Democratic leaders worried the confrontation elevates a losing issue for the party.`\
+https://nytimes.com/2025/06/10/us/politics/trump-immigration-ice-democrats.html
+
+**New Colts owners send clear message: There will be no gap year; they expect to win**\
+`Carlie Irsay-Gordon said she and her sisters are confident in Chris Ballard and Shane Steichen, but "they have things they need to fix."`\
+https://nytimes.com/athletic/6417252/2025/06/10/colts-owners-jim-irsay-chris-ballard/
+
 **Bengals' pattern of player treatment festers with Shemar Stewart saga: Dehner Jr.**\
 `Whether in communication or contracts, Bengals players are too often treated like numbers and assets more than faces and families.`\
 https://nytimes.com/athletic/6417587/2025/06/10/bengals-shemar-stewart-contract-dispute/

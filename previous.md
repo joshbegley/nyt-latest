@@ -1,3 +1,11 @@
+**Democrats Enter Risky Political Terrain as Protests Grip California**\
+`Scenes of unrest in Southern California, stoked by President Trump as he tries to deport more immigrants, have left Democratic leaders worried the confrontation elevates a losing issue for the party.`\
+https://nytimes.com/2025/06/10/us/politics/trump-immigration-ice-democrats.html
+
+**New Colts owners send clear message: There will be no gap year; they expect to win**\
+`Carlie Irsay-Gordon said she and her sisters are confident in Chris Ballard and Shane Steichen, but "they have things they need to fix."`\
+https://nytimes.com/athletic/6417252/2025/06/10/colts-owners-jim-irsay-chris-ballard/
+
 **Bengals' pattern of player treatment festers with Shemar Stewart saga: Dehner Jr.**\
 `Whether in communication or contracts, Bengals players are too often treated like numbers and assets more than faces and families.`\
 https://nytimes.com/athletic/6417587/2025/06/10/bengals-shemar-stewart-contract-dispute/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6417476/2025/06/10/dallas-turner-vikings-minicamp/
 **Tuchel says 'no need to panic' for England after Senegal defeat**\
 `Goals from Ismaila Sarr, Habib Diarra and Cheikh Sabaly gave Pape Thiaw's side a deserved victory despite Harry Kane's early opener.`\
 https://nytimes.com/athletic/6417552/2025/06/10/thomas-tuchel-england-senegal/
-
-**Red Bull's F1 Academy car takes on a bold look ahead of 2025 Canadian Grand Prix**\
-`Red Bull's F1 Academy car has a bespoke look for the Canadian Grand Prix weekend, which reflects the all-female series' aims`\
-https://nytimes.com/athletic/6416083/2025/06/10/f1-canadian-grand-prix-red-bull-car/
-
-**Billy Boston, Trailblazing Rugby Player, Is Knighted**\
-`Boston, who finished his career with a British record of 571 tries, was honored Tuesday in a special ceremony at Buckingham Palace.`\
-https://nytimes.com/2025/06/10/sports/billy-boston-knighthood-rugby.html
 
