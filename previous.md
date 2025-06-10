@@ -1,3 +1,7 @@
+**U.N. Agency Suspects North Korea Is Building New Uranium-Enrichment Site**\
+`​The nuclear energy agency noted the construction of a site similar to current plants, as Kim Jong-un has been pushing to produce more fuel for nuclear bombs.`\
+https://nytimes.com/2025/06/10/world/asia/north-korea-nuclear-uranium.html
+
 **Trump Administration Live Updates: President to Attend Army Celebrations at Fort Bragg**\
 ``\
 https://nytimes.com/live/2025/06/10/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/business/dealbook/apple-ai-meta-deals.html
 **How Pep Lijnders, Klopp's most trusted ally, became Guardiola's assistant**\
 `Coach's move to Liverpool's great rivals has shocked his old club's fans but it was too good an opportunity to turn down`\
 https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assistant-inside-story/
-
-**Multiple People Killed in Austria School Shooting, Official Says**\
-`Austrian police said they responded to reports of gunfire in a high school north of Graz, Austria’s second-largest city. Several students and the shooter were among the dead, according to the mayor of Graz, Elke Kahr.`\
-https://nytimes.com/video/world/europe/multiple-people-killed-in-austria-school-shooting-official-says.html
 

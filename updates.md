@@ -1,3 +1,7 @@
+**U.N. Agency Suspects North Korea Is Building New Uranium-Enrichment Site**\
+`​The nuclear energy agency noted the construction of a site similar to current plants, as Kim Jong-un has been pushing to produce more fuel for nuclear bombs.`\
+https://nytimes.com/2025/06/10/world/asia/north-korea-nuclear-uranium.html
+
 **Trump Administration Live Updates: President to Attend Army Celebrations at Fort Bragg**\
 ``\
 https://nytimes.com/live/2025/06/10/us/trump-news
