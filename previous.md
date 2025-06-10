@@ -1,3 +1,19 @@
+**Dortmund sign Sunderland's Bellingham in €38m transfer**\
+`The Bundesliga side will pay an upfront fee of between €30m-€33m for the 19-year-old, topped up by potential add-ons.`\
+https://nytimes.com/athletic/6412365/2025/06/10/jobe-bellingham-dortmund-transfer-fee/
+
+**For Connor McDavid and the Oilers, a new 'dig in' moment arrives: 'It's coming'**\
+`Following a big loss in Game 3, Connor McDavid intends to let his play do the talking in pivotal Game 4.`\
+https://nytimes.com/athletic/6415335/2025/06/10/connor-mcdavid-oilers-panthers-nhl-playoffs/
+
+**Al Hilal in talks to sign Kante on loan deal for Club World Cup**\
+`Both Saudi Pro League clubs have been owned by the country's Public Investment Fund since 2023, when Kante moved to the league.`\
+https://nytimes.com/athletic/6415758/2025/06/10/kante-al-hilal-ittihad-club-world-cup/
+
+**NASCAR Mexico City track breakdown: A look at the Cup Series' international circuit**\
+`¡Vamos! NASCAR brings its premier Cup Series south of the border this week for its first international points race since 1958, as well as the first-ever Cup Series event in Mexico.`\
+https://nytimes.com/athletic/6414387/2025/06/10/nascar-mexico-city-track-breakdown-cup-series-circuit/
+
 **U.N. Agency Suspects North Korea Is Building New Uranium-Enrichment Site**\
 `​The nuclear energy agency noted the construction of a site similar to current plants, as Kim Jong-un has been pushing to produce more fuel for nuclear bombs.`\
 https://nytimes.com/2025/06/10/world/asia/north-korea-nuclear-uranium.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6414638/2025/06/10/49ers-junior-bergen-kick-punt-re
 **Crystal Palace enjoyed their greatest ever season, but uncertainty has choked the celebrations**\
 `The FA Cup winners have been left on tenterhooks as they wait to discover if UEFA will allow them to compete in the Europa League`\
 https://nytimes.com/athletic/6414039/2025/06/10/crystal-palace-europa-league-uefa-uncertainty/
-
-**Defense to Question Woman About ‘Hotel Nights’ With Sean Combs**\
-`One of the music mogul’s ex-girlfriends, who is going by the pseudonym Jane, has spent days testifying that he pressured her to have sex with other men.`\
-https://nytimes.com/2025/06/10/arts/music/sean-diddy-combs-trial-jane.html
-
-**The Mets' bullpen is good. Here's why they should still add at the trade deadline**\
-`The Mets have kept concerns over the depth of their bullpen to a minimum, but potential issues linger in the background of their success.`\
-https://nytimes.com/athletic/6414417/2025/06/10/mets-trade-deadline-bullpen-mlb/
-
-**How Far Should Apple Go to Catch Up on A.I.?**\
-`Its latest software event was light on new artificial intelligence features. Some analysts and investors think the company should pay up to make up ground.`\
-https://nytimes.com/2025/06/10/business/dealbook/apple-ai-meta-deals.html
-
-**How Pep Lijnders, Klopp's most trusted ally, became Guardiola's assistant**\
-`Coach's move to Liverpool's great rivals has shocked his old club's fans but it was too good an opportunity to turn down`\
-https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assistant-inside-story/
 
