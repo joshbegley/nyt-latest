@@ -1,3 +1,11 @@
+**Red Bull junior Lindblad, 17, receives F1 super license**\
+`Lindblad is currently third in the Formula Two standings with two wins.`\
+https://nytimes.com/athletic/6415895/2025/06/10/arvid-lindbland-red-bull-super-license/
+
+**World Bank Forecast Underscores Cost of U.S. Trade War**\
+`Along with a sharply downgraded projection for global output this year, it urged a “course correction” on trade to help preserve living standards.`\
+https://nytimes.com/2025/06/10/business/trump-trade-war-global-economy.html
+
 **U.K. and Canada Set to Impose Sanctions on Far-Right Israeli Ministers**\
 `The coordinated move, which other Western nations may also join, highlights the hardening of several countries’ stance toward Israel amid the humanitarian crisis in Gaza.`\
 https://nytimes.com/2025/06/10/world/canada/britain-canada-sanctions-israel-smotrich-ben-gvir.html
