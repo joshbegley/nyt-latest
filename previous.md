@@ -1,3 +1,19 @@
+**Inside Mamelodi Sundowns: The journey to the Club World Cup**\
+`In the second part of our series, The Athletic finds out how Mamelodi Sundowns are preparing for this month's Club World Cup in the U.S.`\
+https://nytimes.com/athletic/6407917/2025/06/10/inside-mamelodi-sundowns-the-journey-to-the-club-world-cup/
+
+**Spalletti was the right man dealt a difficult hand. So what now for Italy?**\
+`There was no better choice when he was appointed in 2023 but the 66-year-old has had a tough time and World Cup qualification is at stake`\
+https://nytimes.com/athletic/6413090/2025/06/10/luciano-spalletti-italy-sacked-2/
+
+**Israel Says Gaza Aid Boat Passengers’ Deportation Is Imminent**\
+`Greta Thunberg and other activists who were on the intercepted ship were taken to an airport to be flown home, Israel’s Foreign Ministry said on Tuesday.`\
+https://nytimes.com/2025/06/10/world/middleeast/israel-greta-thunberg-deport-gaza-flotilla.html
+
+**The history of the sash, a football shirt status symbol**\
+`There's just something special about a football shirt with a sash design. The origin of the trend? That depends on who you ask `\
+https://nytimes.com/athletic/6390216/2025/06/10/football-shirt-history-sash-peru-river-plate/
+
 **Full Time: US Women won $1M tonight. Huh?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6415141/2025/06/10/tst-us-women-evelyn-shores-full-time/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/09/pageoneplus/quote-of-the-day-life-in-crimea-sunny
 **Panthers score early and often in penalty-filled Game 3 rout of Oilers: Takeaways**\
 `The Panthers scored within the first minute and barely let up after in a dominant Game 3 victory to take a 2-1 series lead.`\
 https://nytimes.com/athletic/6415121/2025/06/09/panthers-oilers-stanley-cup-final-2025-game-3-takeaways/
-
-**Roman Anthony collects first RBI in whirlwind MLB debut**\
-`Anthony picked up an RBI groundout as part of the Red Sox's two-run rally in the ninth in an eventual 10-8 loss in 11 innings.`\
-https://nytimes.com/athletic/6415024/2025/06/09/roman-anthony-mlb-debut-red-sox/
-
-**Just days after highlight-reel play, Denzel Clarke adds another against Angels**\
-`Clarke channeled his inner superhero to make yet another stellar catch in only his 16th MLB game. `\
-https://nytimes.com/athletic/6415134/2025/06/09/denzel-clarke-highlight-reel-catches/
-
-**Who Is David Huerta, the Labor Leader Arrested in Los Angeles?**\
-`A well-known figure in the California labor movement for decades, he is now the president of the Service Employees International Union of California.`\
-https://nytimes.com/2025/06/09/us/david-huerta-labor-leader-los-angeles.html
-
-**College World Series field set: Hello Murray State! Racers crash 8-team field**\
-`Only three of the eight national seeds and five of the top 16 seeds overall advanced to the College World Series.`\
-https://nytimes.com/athletic/6414580/2025/06/09/college-world-series-omaha-bracket-field-2-2/
 

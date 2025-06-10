@@ -1,3 +1,19 @@
+**Inside Mamelodi Sundowns: The journey to the Club World Cup**\
+`In the second part of our series, The Athletic finds out how Mamelodi Sundowns are preparing for this month's Club World Cup in the U.S.`\
+https://nytimes.com/athletic/6407917/2025/06/10/inside-mamelodi-sundowns-the-journey-to-the-club-world-cup/
+
+**Spalletti was the right man dealt a difficult hand. So what now for Italy?**\
+`There was no better choice when he was appointed in 2023 but the 66-year-old has had a tough time and World Cup qualification is at stake`\
+https://nytimes.com/athletic/6413090/2025/06/10/luciano-spalletti-italy-sacked-2/
+
+**Israel Says Gaza Aid Boat Passengers’ Deportation Is Imminent**\
+`Greta Thunberg and other activists who were on the intercepted ship were taken to an airport to be flown home, Israel’s Foreign Ministry said on Tuesday.`\
+https://nytimes.com/2025/06/10/world/middleeast/israel-greta-thunberg-deport-gaza-flotilla.html
+
+**The history of the sash, a football shirt status symbol**\
+`There's just something special about a football shirt with a sash design. The origin of the trend? That depends on who you ask `\
+https://nytimes.com/athletic/6390216/2025/06/10/football-shirt-history-sash-peru-river-plate/
+
 **Full Time: US Women won $1M tonight. Huh?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6415141/2025/06/10/tst-us-women-evelyn-shores-full-time/
