@@ -1,4 +1,4 @@
-**City Council Asks Watchdog to Investigate N.Y.P.D’s Cooperation With ICE**\
+**N.Y.P.D’s Cooperation With ICE Must Be Investigated, City Council Says**\
 `The Council made reference to concerns about whether the police had violated New York’s sanctuary laws by sharing information with federal authorities.`\
 https://nytimes.com/2025/06/10/nyregion/nypd-ice-investigation-city-council.html
 
