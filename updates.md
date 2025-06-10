@@ -1,3 +1,7 @@
+**Challenging the Playbook: 5 Keys to Winning the A.I Game **\
+`5 Keys to Winning the A.I. Game: Microsoft executive Jessica Hawk and professional athlete Cam Jordan discuss how A.I. is transforming business`\
+https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook-5-keys-to-winning-the-ai-game.html
+
 **Democrats Enter Risky Political Terrain as Protests Grip California**\
 `Scenes of unrest in Southern California, stoked by President Trump as he tries to deport more immigrants, have left Democratic leaders worried the confrontation elevates a losing issue for the party.`\
 https://nytimes.com/2025/06/10/us/politics/trump-immigration-ice-democrats.html

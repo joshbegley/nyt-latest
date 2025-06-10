@@ -1,3 +1,7 @@
+**Challenging the Playbook: 5 Keys to Winning the A.I Game **\
+`5 Keys to Winning the A.I. Game: Microsoft executive Jessica Hawk and professional athlete Cam Jordan discuss how A.I. is transforming business`\
+https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook-5-keys-to-winning-the-ai-game.html
+
 **Democrats Enter Risky Political Terrain as Protests Grip California**\
 `Scenes of unrest in Southern California, stoked by President Trump as he tries to deport more immigrants, have left Democratic leaders worried the confrontation elevates a losing issue for the party.`\
 https://nytimes.com/2025/06/10/us/politics/trump-immigration-ice-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/national-guard-marines-troops-la-protests.html
 **Vikings minicamp: Dallas Turner makes play of the day, but will he get more snaps?**\
 `Turner, a 2024 first-round pick, played sparingly on defense as a rookie. Brian Flores hopes to find more ways to use him this fall.`\
 https://nytimes.com/athletic/6417476/2025/06/10/dallas-turner-vikings-minicamp/
-
-**Tuchel says 'no need to panic' for England after Senegal defeat**\
-`Goals from Ismaila Sarr, Habib Diarra and Cheikh Sabaly gave Pape Thiaw's side a deserved victory despite Harry Kane's early opener.`\
-https://nytimes.com/athletic/6417552/2025/06/10/thomas-tuchel-england-senegal/
 
