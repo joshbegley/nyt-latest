@@ -1,3 +1,7 @@
+**Answer 4 Questions. Leave With a Summer Read You’ll Love.**\
+`Tell us a few things about what you like, and we'll give you a spot-on recommendation.`\
+https://nytimes.com/interactive/2025/06/10/books/summer-books-quiz.html
+
 **City Council Asks Watchdog to Investigate N.Y.P.D’s Cooperation With ICE**\
 `The Council made reference to concerns about whether the police had violated New York’s sanctuary laws by sharing information with federal authorities.`\
 https://nytimes.com/2025/06/10/nyregion/nypd-ice-investigation-city-council.html
