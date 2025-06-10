@@ -1,3 +1,7 @@
+**Minor given one-year stadium ban after racist abuse of Yamal in El Clasico**\
+`The individual has also been given “30 hours of socio-educational tasks”.`\
+https://nytimes.com/athletic/6415708/2025/06/10/lamine-yamal-racist-abuse-ban/
+
 **Dortmund sign Sunderland's Bellingham in €38m transfer**\
 `The Bundesliga side will pay an upfront fee of between €30m-€33m for the 19-year-old, topped up by potential add-ons.`\
 https://nytimes.com/athletic/6412365/2025/06/10/jobe-bellingham-dortmund-transfer-fee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411139/2025/06/10/penguins-kris-letang-trade-contr
 **49ers rookie returner Junior Bergen has big goals, out to prove he has the 'it' factor**\
 `The 49ers haven't returned a punt for a touchdown since 2011. Can Bergen, who returned eight punts for a score in college, end that streak?`\
 https://nytimes.com/athletic/6414638/2025/06/10/49ers-junior-bergen-kick-punt-returner/
-
-**Crystal Palace enjoyed their greatest ever season, but uncertainty has choked the celebrations**\
-`The FA Cup winners have been left on tenterhooks as they wait to discover if UEFA will allow them to compete in the Europa League`\
-https://nytimes.com/athletic/6414039/2025/06/10/crystal-palace-europa-league-uefa-uncertainty/
 
