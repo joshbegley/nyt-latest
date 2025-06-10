@@ -1,3 +1,7 @@
+**Lyon agree deal to sign USMNT goalkeeper Turner from Nottm Forest**\
+`The two clubs have agreed a fee of €8million (£6.74m) for the 30-year-old.`\
+https://nytimes.com/athletic/6414797/2025/06/10/matt-turner-lyon-nottingham-forest-transfers/
+
 **Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
 `The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under chief executive Mark Zuckerberg.`\
 https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/arts/jon-stewart-los-angeles-protests.html
 **In first series at Petco Park since October, Dodgers claim tense Game 1: 'We'll take it'**\
 `Dave Roberts likened the rivalry to a "street fight," and Monday was a prime example, as both teams traded blows back and forth. `\
 https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return/
-
-**Word of the Day: aqueous**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
 
