@@ -1,3 +1,11 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the second edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6413081/2025/06/10/arsenal-transfer-latest-news-manchester-united-liverpool-chelsea-barcelona-real-madrid/
+
+**Jon Stewart to Los Angeles: ‘Is Your City Ever Not on Fire?’**\
+`The “Daily Show” host said “a heavy-handed MAGA migrant-trawling operation” had provoked the protests in “our most flammable city.”`\
+https://nytimes.com/2025/06/10/arts/jon-stewart-los-angeles-protests.html
+
 **In first series at Petco Park since October, Dodgers claim tense Game 1: 'We'll take it'**\
 `Dave Roberts likened the rivalry to a "street fight," and Monday was a prime example, as both teams traded blows back and forth. `\
 https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/06/10/todays-new-york-times
 **Kamari Doyle: What we learned from the Brighton youngster's season of two halves**\
 `The 19-year-old midfielder's loan at at Exeter fell flat but he excelled at Crawley`\
 https://nytimes.com/athletic/6328783/2025/06/10/kamari-doyle-brighton-loan/
-
-**Planes, ferries and mini-buses with Villa's long-distance supporters: 'It's more than the game'**\
-`Fans from around the UK reveal their journeys to Villa Park - and why they do it despite the time and money`\
-https://nytimes.com/athletic/6309683/2025/06/10/aston-villa-long-diatance-supporters/
-
-**The first task facing the next Spurs manager: Connect with players like Postecoglou did**\
-`The messages shared by the Tottenham players on social media following Postecoglou's departure spoke for the affection many held for him`\
-https://nytimes.com/athletic/6413813/2025/06/10/postecoglou-players-frank/
 

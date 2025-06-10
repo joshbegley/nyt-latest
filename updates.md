@@ -1,3 +1,11 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the second edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6413081/2025/06/10/arsenal-transfer-latest-news-manchester-united-liverpool-chelsea-barcelona-real-madrid/
+
+**Jon Stewart to Los Angeles: ‘Is Your City Ever Not on Fire?’**\
+`The “Daily Show” host said “a heavy-handed MAGA migrant-trawling operation” had provoked the protests in “our most flammable city.”`\
+https://nytimes.com/2025/06/10/arts/jon-stewart-los-angeles-protests.html
+
 **In first series at Petco Park since October, Dodgers claim tense Game 1: 'We'll take it'**\
 `Dave Roberts likened the rivalry to a "street fight," and Monday was a prime example, as both teams traded blows back and forth. `\
 https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return/
