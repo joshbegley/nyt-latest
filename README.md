@@ -1,3 +1,11 @@
+**F.D.A. Looks to A.I. to Enhance Efficiency**\
+`With a Trump-driven reduction of nearly 2,000 employees, agency officials view artificial intelligence as a way to speed drugs to the market.`\
+https://nytimes.com/2025/06/10/health/fda-drug-approvals-artificial-intelligence.html
+
+**Seven Ingredients or Fewer, Because Summer**\
+`Pork meatballs with ginger and fish sauce, crispy lime-butter chicken and creamy miso pasta require little shopping.`\
+https://nytimes.com/2025/06/10/dining/fast-dinner-recipes-with-seven-ingredients-or-fewer.html
+
 **Sly Stone’s Fabulous Style**\
 `It wasn’t just about the fringe and the bling.`\
 https://nytimes.com/2025/06/10/style/sly-stone-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/business/energy-environment/pjm-electrical-grid.h
 **The Windup: A true catch of the year candidate**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6415346/2025/06/10/roman-anthony-denzel-clarke-the-windup/
-
-**Jacques Pépin: History Is Culinary**\
-`How we cook and what we eat are an intimate reflection of our personal and collective pasts.`\
-https://nytimes.com/2025/06/10/special-series/jacques-pepin-cooking-history.html
-
-**CWM and the Great Wealth Transfer VPP**\
-`Get ready for the biggest migration of assets in history between generations. `\
-https://nytimes.com/paidpost/citizens-wealth-management/cwm-and-the-great-wealth-transfer-vpp.html
 
