@@ -1,9 +1,13 @@
+**gws-tonys-best-worst-moments**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-tonys-best-worst-moments
+
 **Marines Deployed by Trump Over Newsom’s Objections Arrive in L.A. area**\
 `Hundreds of Marines arrived in the L.A. area, the U.S. Northern Command confirmed on Tuesday. Gov. Gavin Newsom of California has said deploying them on U.S. soil was illegal.`\
 https://nytimes.com/2025/06/10/us/marines-los-angeles-newsom.html
 
 **Bills running back James Cook reports to mandatory minicamp amid desire for new contract: Source**\
-`After missing the two weeks of practice during the Bills&#8217; voluntary Organized Team Activities, top running back James Cook has reported to the team.`\
+`After missing the two weeks of practice during the Buffalo Bills&#8217; voluntary Organized Team Activities, top running back James Cook has reported to the team.`\
 https://nytimes.com/athletic/6416090/2025/06/10/bills-james-cook-reports-mandatory-minicamp-contract/
 
 **How ‘Ballerina’ Set People on Fire**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/health/fda-drug-approvals-artificial-intelligence
 **Seven Ingredients or Fewer, Because Summer**\
 `Pork meatballs with ginger and fish sauce, crispy lime-butter chicken and creamy miso pasta require little shopping.`\
 https://nytimes.com/2025/06/10/dining/fast-dinner-recipes-with-seven-ingredients-or-fewer.html
-
-**Sly Stone’s Fabulous Style**\
-`It wasn’t just about the fringe and the bling.`\
-https://nytimes.com/2025/06/10/style/sly-stone-fashion.html
 
