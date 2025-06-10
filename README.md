@@ -1,3 +1,15 @@
+**Military Parade Marches Into Political Maelstrom as Troops Deploy to L.A.**\
+`President Trump’s decision to send troops into an American city comes just days before a rare military display in the nation’s capital.`\
+https://nytimes.com/2025/06/10/us/politics/los-angeles-military-parade-trump.html
+
+**Yale Is Rushing to Sell Billions in Private Equity Investments**\
+`The university is selling multiple stakes in private-equity funds as the industry struggles and Trump targets Ivy-League Institutions.`\
+https://nytimes.com/2025/06/10/business/yale-endowment-private-equity-trump.html
+
+**3 Lessons From International Protests Amid Unrest in L.A.**\
+`Experts who study protest movements say the scenes unfolding in California broadly follow a script that has played out many times in other countries — sometimes with deadly consequences.`\
+https://nytimes.com/2025/06/10/world/lessons-international-protests-la-unrest.html
+
 **Aaron Rodgers tells new Steeler teammates he's 'all-in from now on'**\
 `While Rodgers won four MVPs and a Super Bowl, the big question is: How much does he have left at 41 years old and after a torn Achilles?`\
 https://nytimes.com/athletic/6416631/2025/06/10/aaron-rodgers-meets-steelers-teammates/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6416052/2025/06/10/jobe-bellingham-jude-comparison-
 **Deion Sanders 'feeling well' amid health issues, timing of return unclear**\
 `Sanders has remained out of the public spotlight since the NFL Draft in April due to unspecified health reasons.`\
 https://nytimes.com/athletic/6416357/2025/06/10/deion-sanders-health-issues-colorado-football/
-
-**Is Jessica Ramos Gone and Forgotten? Not Quite.**\
-`Plus: The second and final debate of the Democratic primary for mayor is Thursday, but Michael Blake, a breakout performer from the first, won’t be onstage.`\
-https://nytimes.com/2025/06/10/nyregion/jessica-ramos-cuomo-nyc-mayor.html
-
-**Belichick unbothered by 'noise' surrounding UNC program: 'Always dealt with that'**\
-`“Is there noise out there? We've always dealt with that," Belichick said when asked if “outside noise” is a distraction.`\
-https://nytimes.com/athletic/6416498/2025/06/10/bill-belichick-unbothered-north-carolina-noise/
-
-**The Rise of AI Meets the Golden Age of Geography**\
-`Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
-https://nytimes.com/paidpost/2025-06-10/esri-v2-jun25/rise-of-ai-meets-geography-golden-age.html
 
