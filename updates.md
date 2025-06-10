@@ -1,3 +1,15 @@
+**Could NIL clearinghouse lead to return of the bag man in college sports?**\
+`“I guess it would just be the same as the way things used to work,” an athletic director said. "We'd be right back where we started."`\
+https://nytimes.com/athletic/6414771/2025/06/10/nil-house-settlement-paying-athletes-deals-ncaa/
+
+**Mandel: CFB hopes to correct NIL chaos with House, but that's not how fair markets work**\
+`The powers that be seem to think they can make athletes’ unofficial salaries go down with their magic clearinghouse.`\
+https://nytimes.com/athletic/6414561/2025/06/10/house-ncaa-settlement-clearinghouse-market-mandel/
+
+**The Brad Marchand and Sam Bennett show just keeps rolling, much to the Panthers' advantage**\
+`Once Atlantic Division rivals, the pair of forwards are making NHL history with fantastic play through the first three games of the final.`\
+https://nytimes.com/athletic/6415297/2025/06/10/bennett-marchand-panthers-offensive-depth-stanley-cup-final/
+
 **The Pulse: Baseball’s top prospect is here**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6413803/2025/06/10/roman-anthony-call-up-the-pulse/
