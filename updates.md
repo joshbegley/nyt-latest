@@ -1,3 +1,23 @@
+**Can Mamdani Persuade New York to Elect Its Youngest Mayor in a Century?**\
+`Zohran Mamdani has won over young, left-leaning New Yorkers with his energy and progressive ideas. But is he capable of running the largest city in the country?`\
+https://nytimes.com/2025/06/10/nyregion/mamdani-age-mayor-young.html
+
+**A Killer Within Easy Reach**\
+`Pesticides are a leading means of suicide. The tiny nation of Suriname is working to restrict access to one of the most common and dangerous ones.`\
+https://nytimes.com/2025/06/10/health/paraquat-pesticides-suicide-suriname.html
+
+**Voters Head to the Polls in Key Primaries for New Jersey Governor**\
+`Winners of Tuesday’s Democratic and Republican matchups in New Jersey will compete in November to be governor. Polls are open from 6 a.m. to 8 p.m.`\
+https://nytimes.com/2025/06/10/nyregion/nj-governor-race-election-day.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/10/crosswords/spelling-bee-forum.html
+
+**10 Questions With Zohran Mamdani**\
+`Zohran Mamdani, a progressive state lawmaker who is running for mayor of New York City, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/10/nyregion/zohran-mamdani-interview.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the second edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6413081/2025/06/10/arsenal-transfer-latest-news-manchester-united-liverpool-chelsea-barcelona-real-madrid/

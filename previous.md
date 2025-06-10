@@ -1,3 +1,23 @@
+**Can Mamdani Persuade New York to Elect Its Youngest Mayor in a Century?**\
+`Zohran Mamdani has won over young, left-leaning New Yorkers with his energy and progressive ideas. But is he capable of running the largest city in the country?`\
+https://nytimes.com/2025/06/10/nyregion/mamdani-age-mayor-young.html
+
+**A Killer Within Easy Reach**\
+`Pesticides are a leading means of suicide. The tiny nation of Suriname is working to restrict access to one of the most common and dangerous ones.`\
+https://nytimes.com/2025/06/10/health/paraquat-pesticides-suicide-suriname.html
+
+**Voters Head to the Polls in Key Primaries for New Jersey Governor**\
+`Winners of Tuesday’s Democratic and Republican matchups in New Jersey will compete in November to be governor. Polls are open from 6 a.m. to 8 p.m.`\
+https://nytimes.com/2025/06/10/nyregion/nj-governor-race-election-day.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/10/crosswords/spelling-bee-forum.html
+
+**10 Questions With Zohran Mamdani**\
+`Zohran Mamdani, a progressive state lawmaker who is running for mayor of New York City, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/10/nyregion/zohran-mamdani-interview.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the second edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6413081/2025/06/10/arsenal-transfer-latest-news-manchester-united-liverpool-chelsea-barcelona-real-madrid/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
 **Otto Kemp's first trip to Phillies' ballpark worth the wait as he shines in walk-off win**\
 `Kemp had been waiting a while. A lifetime for his major-league debut, Saturday in Pittsburgh. Perhaps just as long to lay down a good bunt. `\
 https://nytimes.com/athletic/6415242/2025/06/10/otto-kemp-phillies-win-cubs-citizens-bank-park/
-
-**Key takeaways from F1's 2026 schedule: Streamlined start, a ratings test and a punishing close**\
-`A regional revamp leads to a grueling season finale and a curious Indy 500 clash. `\
-https://nytimes.com/athletic/6414615/2025/06/10/f1-schedule-release-2026-takeaways/
-
-**F1 reveals 2026 schedule: Canadian GP to clash with Indy 500; Madrid debuts in September**\
-`The 2026 F1 season, features a record-tying 24 races, three visits to the United States and a new grand prix in Madrid in September.`\
-https://nytimes.com/athletic/6414241/2025/06/10/f1-schedule-release-2026/
-
-**Tuesday Briefing**\
-`A lawsuit between California and President Trump.`\
-https://nytimes.com/2025/06/10/briefing/california-trump-gaza-ukraine.html
-
-**The New York Times in Print for Tuesday, June 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/10/todays-new-york-times
-
-**Kamari Doyle: What we learned from the Brighton youngster's season of two halves**\
-`The 19-year-old midfielder's loan at at Exeter fell flat but he excelled at Crawley`\
-https://nytimes.com/athletic/6328783/2025/06/10/kamari-doyle-brighton-loan/
 
