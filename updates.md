@@ -1,3 +1,7 @@
+**Word of the Day: aqueous**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
+
 **Otto Kemp's first trip to Phillies' ballpark worth the wait as he shines in walk-off win**\
 `Kemp had been waiting a while. A lifetime for his major-league debut, Saturday in Pittsburgh. Perhaps just as long to lay down a good bunt. `\
 https://nytimes.com/athletic/6415242/2025/06/10/otto-kemp-phillies-win-cubs-citizens-bank-park/
