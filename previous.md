@@ -1,3 +1,11 @@
+**Bengals' pattern of player treatment festers with Shemar Stewart saga: Dehner Jr.**\
+`Whether in communication or contracts, Bengals players are too often treated like numbers and assets more than faces and families.`\
+https://nytimes.com/athletic/6417587/2025/06/10/bengals-shemar-stewart-contract-dispute/
+
+**Alexander Brothers Accused of Sex Crimes Against Another Woman**\
+`Oren and Tal Alexander, the luxury real estate brokers, as well Oren’s twin Alon Alexander, are now charged with sex crimes against seven women.`\
+https://nytimes.com/2025/06/10/realestate/alexander-brothers-more-charges-sex-crimes.html
+
 **Yosemite Bans Large Flags From El Capitan, Criminalizing Protests**\
 `Violators could face up to six months in jail under the new rule, which appears to have been formalized last month.`\
 https://nytimes.com/2025/06/10/us/yosemite-flags-banned-el-capitan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6416083/2025/06/10/f1-canadian-grand-prix-red-bull-
 **Billy Boston, Trailblazing Rugby Player, Is Knighted**\
 `Boston, who finished his career with a British record of 571 tries, was honored Tuesday in a special ceremony at Buckingham Palace.`\
 https://nytimes.com/2025/06/10/sports/billy-boston-knighthood-rugby.html
-
-**Demonstrators Gather Outside ICE Headquarters in New York City**\
-`The group rallied near a building that houses an immigration court, which has become a flashpoint amid the arrest of migrants in courthouses.`\
-https://nytimes.com/2025/06/10/us/nyc-demonstrators-ice-crackdown.html
-
-**Michigan State U. to Pay Nearly $30 Million to 3 Survivors of Campus Shooting**\
-`The three students who survived the attack in 2023 all suffered extensive, life-altering injuries, their lawyers said.`\
-https://nytimes.com/2025/06/10/us/michigan-state-university-shooting-settlement.html
 

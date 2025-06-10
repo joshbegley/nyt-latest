@@ -1,3 +1,11 @@
+**Bengals' pattern of player treatment festers with Shemar Stewart saga: Dehner Jr.**\
+`Whether in communication or contracts, Bengals players are too often treated like numbers and assets more than faces and families.`\
+https://nytimes.com/athletic/6417587/2025/06/10/bengals-shemar-stewart-contract-dispute/
+
+**Alexander Brothers Accused of Sex Crimes Against Another Woman**\
+`Oren and Tal Alexander, the luxury real estate brokers, as well Oren’s twin Alon Alexander, are now charged with sex crimes against seven women.`\
+https://nytimes.com/2025/06/10/realestate/alexander-brothers-more-charges-sex-crimes.html
+
 **Yosemite Bans Large Flags From El Capitan, Criminalizing Protests**\
 `Violators could face up to six months in jail under the new rule, which appears to have been formalized last month.`\
 https://nytimes.com/2025/06/10/us/yosemite-flags-banned-el-capitan.html
