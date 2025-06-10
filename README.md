@@ -1,3 +1,11 @@
+**China Sends Two Aircraft Carriers Into the Pacific for the First Time**\
+`By sending warships beyond Japan, the Chinese Navy is demonstrating its ability to project sea and air power far past its home waters.`\
+https://nytimes.com/2025/06/10/world/asia/china-aircraft-carriers.html
+
+**Khaby Lame, World’s Most Popular TikToker, Is Forced to Leave U.S.**\
+`Amid President Trump’s crackdown on immigration, agents detained Mr. Lame, 25, for overstaying a visa, and he left the country. Another Gen Z influencer took credit.`\
+https://nytimes.com/2025/06/10/world/europe/khaby-lame-detained-immigration.html
+
 **Doechii Criticizes Trump While Accepting BET Award**\
 `The rapper drew attention to the president deploying the military against protesters in Los Angeles and said it was her responsibility as an artist to speak up for all oppressed people.`\
 https://nytimes.com/2025/06/10/arts/music/doechii-trump-protests-bet-awards.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/trump-emergency-powers-invasion.html
 **TikTok Bots, MAGA Outrage and the Very Online Fight for Romania’s Future**\
 `It started with a Russian influence campaign and a canceled vote. Then the American right showed up.`\
 https://nytimes.com/2025/06/10/magazine/romania-election-tiktok-russia-maga.html
-
-**Summer McIntosh sets two swimming world records in three days at Canadian trials**\
-`The 18-year-old set the 200-meter individual medley record on Monday night and the 400-meter freestyle mark on Saturday.`\
-https://nytimes.com/athletic/6416297/2025/06/10/summer-mcintosh-swimming-world-records/
-
-**gws-tony-awards-fashion-red-carpet**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tony-awards-fashion-red-carpet
 
