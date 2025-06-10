@@ -1,3 +1,5 @@
+
+
 **Guardiola gives emotional speech on suffering in Gaza**\
 `“It's so painful what we see in Gaza. It hurts all my body,” Guardiola said.`\
 https://nytimes.com/athletic/6415561/2025/06/10/pep-guardiola-gaza-israel/
