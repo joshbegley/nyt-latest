@@ -1,3 +1,7 @@
+**Jobe Bellingham always wanted to avoid comparisons with Jude. Now, he is embracing them**\
+`Choosing Dortmund as his next club is a brave move for a player who has always been determined to carve his own path`\
+https://nytimes.com/athletic/6416052/2025/06/10/jobe-bellingham-jude-comparison-dortmund/
+
 **Deion Sanders 'feeling well' amid health issues, timing of return unclear**\
 `Sanders has remained out of the public spotlight since the NFL Draft in April due to unspecified health reasons.`\
 https://nytimes.com/athletic/6416357/2025/06/10/deion-sanders-health-issues-colorado-football/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/10/style/2025-bet-awards-best-fashion.html
 **How ‘Maybe Happy Ending’ Overcame a Shaky Start and Won Big at the Tonys**\
 `Broadway’s best musical winner had to delay its opening last fall and was selling poorly. But strong word-of-mouth and reviews helped this quirky show triumph.`\
 https://nytimes.com/2025/06/10/theater/maybe-happy-ending-tonys-broadway.html
-
-**MLB trade targets to address the biggest need for each contending team**\
-`After reaching out to decision-makers from each of the contending teams to learn their biggest needs, I identified possible trade targets. `\
-https://nytimes.com/athletic/6414556/2025/06/10/mlb-trade-deadline-team-targets-needs-2025/
 

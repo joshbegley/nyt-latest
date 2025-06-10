@@ -1,3 +1,8 @@
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
 **The AI Imperative: Mapping What’s Possible**\
 `Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
 https://nytimes.com/paidpost/2025-06-10/esri-v1-jun25/ai-imperative-mapping-whats-possible.html
