@@ -1,3 +1,11 @@
+**175 Writing Prompts to Spark Discussion and Reflection**\
+`Here are all of our Student Opinion questions from the 2024-25 school year. Each question is based on a different New York Times article, interactive feature or video.`\
+https://nytimes.com/2025/06/10/learning/175-writing-prompts-to-spark-discussion-and-reflection.html
+
+**Rayan Cherki to Manchester City: Transfers TLDR**\
+`The France forward's move to the Etihad Stadium from Lyon has been confirmed - this is everything you need to know...`\
+https://nytimes.com/athletic/6416734/2025/06/10/rayan-cherki-to-manchester-city-transfers-tldr/
+
 **Protest Over Sexual Assault Case in Northern Ireland Turns Violent**\
 `Officials said they were investigating the attacks on businesses and houses in Ballymena as racially motivated.`\
 https://nytimes.com/video/world/europe/100000010219690/northern-ireland-racial-violence-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/trump-military-parade-protests.html
 **The Welfare Queen Is Back, but With a Video Game Console in Hand**\
 `Republicans targeting safety net programs once invoked women they claimed were living lavishly on government funds. Now as they seek to pare back Medicaid, the imagery has changed — but not the argument.`\
 https://nytimes.com/2025/06/10/us/politics/republicans-medicaid-cuts.html
-
-**Browns' Myles Garrett wants to add Aaron Rodgers to his Halloween QB graveyard**\
-`The six-time All-Pro began transforming his lawn into a graveyard complete with headstones of QBs around the league in 2021.`\
-https://nytimes.com/athletic/6416668/2025/06/10/myles-garrett-aaron-rodgers-browns-steelers/
-
-**Immigrant Who Prosecutors Say Was Framed for Threat Can Be Freed, Judge Says**\
-`Prosecutors said the undocumented man had been wrongly accused of threatening President Trump. An immigration judge said on Tuesday that he could be released on bond.`\
-https://nytimes.com/2025/06/10/us/wisconsin-immigrant-trump-threat-court.html
 
