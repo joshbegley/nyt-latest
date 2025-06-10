@@ -1,3 +1,23 @@
+**Demonstrators Gather Outside ICE Headquarters in New York City**\
+`The group rallied near a building that houses an immigration court, which has become a flashpoint amid the arrest of migrants in courthouses.`\
+https://nytimes.com/2025/06/10/us/nyc-demonstrators-ice-crackdown.html
+
+**Michigan State U. to Pay Nearly $30 Million to 3 Survivors of Campus Shooting**\
+`The three students who survived the attack in 2023 all suffered extensive, life-altering injuries, their lawyers said.`\
+https://nytimes.com/2025/06/10/us/michigan-state-university-shooting-settlement.html
+
+**Southern Baptists Endorse Effort to Overturn Same-Sex Marriage**\
+`The nation’s largest Protestant denomination was motivated by conservative Christians’ success in reversing Roe v. Wade.`\
+https://nytimes.com/2025/06/10/us/southern-baptist-obergefell-same-sex-marriage.html
+
+**Liverpool and Leverkusen in final stages of Wirtz transfer negotiations**\
+`Liverpool made an improved second offer for the 22–year-old Germany playmaker last week worth around £113m, with about £100m guaranteed.`\
+https://nytimes.com/athletic/6417443/2025/06/10/florian-wirtz-liverpool-transfer-latest/
+
+**49ers' Trent Williams on his future: 'Not going to retire with something left in the tank'**\
+`Williams isn't concerned that he has just one more season with guaranteed money on his contract. “I'm taking everything one year at a time."`\
+https://nytimes.com/athletic/6417435/2025/06/10/49ers-trent-williams-future-brock-purdy/
+
 **Niede Guidon, 92, Archaeologist Who Preserved Prehistoric Rock Art, Dies**\
 `Her work in Brazil challenged the prevailing theory of when humans first arrived in the Americas and led to the development of a forgotten corner of the country.`\
 https://nytimes.com/2025/06/10/science/niede-guidon-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6417372/2025/06/10/aaron-rodgers-married-steelers-t
 **House Republicans Move to Put Their Stamp on D.C. as Budget Fix Languishes**\
 `The House passed bills imposing voting and policing policies on the District of Columbia, but the G.O.P. has refused to consider a measure to restore hundreds of millions of dollars of its funding.`\
 https://nytimes.com/2025/06/10/us/politics/budget-house-funding-bills.html
-
-**Bengals rookie DE Shemar Stewart rips front office over contract dispute**\
-`The Bengals selected Stewart out of Texas A&M with the No. 17 pick in April's draft.`\
-https://nytimes.com/athletic/6417289/2025/06/10/shemar-stewart-bengals-nfl/
-
-**Hegseth Defends Military Deployment in Los Angeles**\
-`The defense secretary ignored questions from House Democrats on how much deploying nearly 5,000 active-duty Marines and National Guard members would cost.`\
-https://nytimes.com/video/us/politics/100000010220180/hegseth-los-angeles-protest-deployment.html
-
-**L.A. Protests Prompt Calls for Police Restraint After Journalist Injuries**\
-`The L.A.P.D. and L.A. County Sheriff said they were reviewing incidents in which journalists have been struck by projectiles fired by the police.`\
-https://nytimes.com/2025/06/10/us/la-protests-journalist-injuries-police.html
-
-**Why Micah Parsons is attending Cowboys minicamp while seeking new contract**\
-`The star pass rusher attended Cowboys minicamp on Tuesday, but did not take part in drills with back tightness.`\
-https://nytimes.com/athletic/6417336/2025/06/10/dallas-cowboys-micah-parsons-contract-minicamp/
-
-**Stuart Skinner wasn't at fault in Game 3, but Oilers need him back at his best**\
-`Skinner had his worst game since the first round of the playoffs in an all-around terrible outing for Edmonton. What next?`\
-https://nytimes.com/athletic/6417340/2025/06/10/stuart-skinner-oilers-stanley-cup-final-game-3/
 
