@@ -1,3 +1,19 @@
+**City Council Asks Watchdog to Investigate N.Y.P.D’s Cooperation With ICE**\
+`The Council made reference to concerns about whether the police had violated New York’s sanctuary laws by sharing information with federal authorities.`\
+https://nytimes.com/2025/06/10/nyregion/nypd-ice-investigation-city-council.html
+
+**Touch Grass With an Unexpected 10-Song Nature-Bathing Playlist**\
+`Explore the outdoors however you see fit with a soundtrack of Doechii, Remi Wolf, Erykah Badu and more.`\
+https://nytimes.com/2025/06/10/arts/music/amplifier-newsletter-nature-bathing-playlist.html
+
+**City sign Cherki from Lyon**\
+`The France international has signed a five-year deal until 2030 and will be available to play for Pep Guardiola's side at the Club World Cup`\
+https://nytimes.com/athletic/6414418/2025/06/10/man-city-rayan-cherki-lyon/
+
+**Watch: Sue Bird discusses Caitlin Clark's passing and WNBA ownership**\
+`No Offseason interviews Sue Bird about the WNBA media, podcasting, team ownership and Caitlin Clark.`\
+https://nytimes.com/athletic/6415828/2025/06/10/sue-bird-no-offseason-caitlin-clark-wnba/
+
 **Answer 4 Questions. Leave With a Summer Read You’ll Love.**\
 `Tell us a few things about what you like, and we'll give you a spot-on recommendation.`\
 https://nytimes.com/interactive/2025/06/10/us/summer-books-quiz.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/10/opinion/teachers.html
 **Chez Nous Brings a New French Energy to the Marlton Hotel**\
 `Foursome offers Turkish cuisine, Victoria Blamey becomes the culinary director for Il Buco Alimentari and Il Buco al Mare and more news.`\
 https://nytimes.com/2025/06/10/dining/nyc-restaurant-news.html
-
-**Lee Corso's final 'College GameDay' to come at Ohio State in Week 1**\
-`Corso has been on the show since its inception in 1987, but his first mascot pick came at Ohio State in 1996.`\
-https://nytimes.com/athletic/6416639/2025/06/10/lee-corso-ohio-state-college-gameday-week-one/
-
-**Military Parade Marches Into Political Maelstrom as Troops Deploy to L.A.**\
-`President Trump’s decision to send troops into an American city comes just days before a rare military display in the nation’s capital.`\
-https://nytimes.com/2025/06/10/us/politics/los-angeles-military-parade-trump.html
-
-**Yale Is Rushing to Sell Billions in Private Equity Investments**\
-`The university is selling multiple stakes in private-equity funds as the industry struggles and Trump targets Ivy-League Institutions.`\
-https://nytimes.com/2025/06/10/business/yale-endowment-private-equity-trump.html
-
-**3 Lessons From International Protests Amid Unrest in L.A.**\
-`Experts who study protest movements say the scenes unfolding in California broadly follow a script that has played out many times in other countries — sometimes with deadly consequences.`\
-https://nytimes.com/2025/06/10/world/lessons-international-protests-la-unrest.html
 
