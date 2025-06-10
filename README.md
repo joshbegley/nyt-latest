@@ -1,3 +1,7 @@
+**Word of the Day: aqueous**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
+
 **Otto Kemp's first trip to Phillies' ballpark worth the wait as he shines in walk-off win**\
 `Kemp had been waiting a while. A lifetime for his major-league debut, Saturday in Pittsburgh. Perhaps just as long to lay down a good bunt. `\
 https://nytimes.com/athletic/6415242/2025/06/10/otto-kemp-phillies-win-cubs-citizens-bank-park/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413813/2025/06/10/postecoglou-players-frank/
 **Inside Mamelodi Sundowns: The journey to the Club World Cup**\
 `In the second part of our series, The Athletic finds out how Mamelodi Sundowns are preparing for this month's Club World Cup in the U.S.`\
 https://nytimes.com/athletic/6407917/2025/06/10/inside-mamelodi-sundowns-the-journey-to-the-club-world-cup/
-
-**Spalletti was the right man dealt a difficult hand. So what now for Italy?**\
-`There was no better choice when he was appointed in 2023 but the 66-year-old has had a tough time and World Cup qualification is at stake`\
-https://nytimes.com/athletic/6413090/2025/06/10/luciano-spalletti-italy-sacked-2/
 
