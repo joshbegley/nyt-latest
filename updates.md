@@ -1,3 +1,7 @@
+**Multiple People Killed in Austria School Shooting, Official Says**\
+`Austrian police said they responded to reports of gunfire in a high school north of Graz, Austria’s second-largest city. Several students and the shooter were among the dead, according to the mayor of Graz, Elke Kahr.`\
+https://nytimes.com/video/world/europe/multiple-people-killed-in-austria-school-shooting-official-says.html
+
 **How Pep Lijnders, Klopp's most trusted ally, became Guardiola's assistant**\
 `Coach's move to Liverpool's great rivals has shocked his old club's fans but it was too good an opportunity to turn down`\
 https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assistant-inside-story/
