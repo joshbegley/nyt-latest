@@ -1,3 +1,7 @@
+**Tuchel says 'no need to panic' for England after Senegal defeat**\
+`Goals from Ismaila Sarr, Habib Diarra and Cheikh Sabaly gave Pape Thiaw's side a deserved victory despite Harry Kane's early opener.`\
+https://nytimes.com/athletic/6417552/2025/06/10/thomas-tuchel-england-senegal/
+
 **Red Bull's F1 Academy car takes on a bold look ahead of 2025 Canadian Grand Prix**\
 `Red Bull's F1 Academy car has a bespoke look for the Canadian Grand Prix weekend, which reflects the all-female series' aims`\
 https://nytimes.com/athletic/6416083/2025/06/10/f1-canadian-grand-prix-red-bull-car/
