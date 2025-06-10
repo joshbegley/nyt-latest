@@ -1,3 +1,11 @@
+**How Many People Have Been Arrested Since the L.A. Protests Began?**\
+`Officers have arrested hundreds nationwide during protests against immigration raids. The demonstrations have remained largely peaceful, though some people have been injured.`\
+https://nytimes.com/2025/06/10/us/la-protest-arrests-immigration.html
+
+**49ers minicamp report: Brock Purdy throws picks, Jacob Cowing garners praise**\
+`A pleased Kyle Shanahan said he was tempted to end minicamp early but that it's essential for one group of players. That group: the rookies.`\
+https://nytimes.com/athletic/6417506/2025/06/10/49ers-minicamp-brock-purdy-interceptions/
+
 **Is 4,700 federal troops a big deployment?**\
 `National Guard deployments in response to social unrest are often larger and are requested by local leaders, not challenged by them.`\
 https://nytimes.com/2025/06/10/us/national-guard-marines-troops-la-protests.html

@@ -1,3 +1,7 @@
+**Yosemite Bans Large Flags From El Capitan, Criminalizing Protests**\
+`Violators could face up to six months in jail under the new rule, which appears to have been formalized last month.`\
+https://nytimes.com/2025/06/10/us/yosemite-flags-banned-el-capitan.html
+
 **How Many People Have Been Arrested Since the L.A. Protests Began?**\
 `Officers have arrested hundreds nationwide during protests against immigration raids. The demonstrations have remained largely peaceful, though some people have been injured.`\
 https://nytimes.com/2025/06/10/us/la-protest-arrests-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/nyc-demonstrators-ice-crackdown.html
 **Michigan State U. to Pay Nearly $30 Million to 3 Survivors of Campus Shooting**\
 `The three students who survived the attack in 2023 all suffered extensive, life-altering injuries, their lawyers said.`\
 https://nytimes.com/2025/06/10/us/michigan-state-university-shooting-settlement.html
-
-**Southern Baptists Endorse Effort to Overturn Same-Sex Marriage**\
-`The nation’s largest Protestant denomination was motivated by conservative Christians’ success in reversing Roe v. Wade.`\
-https://nytimes.com/2025/06/10/us/southern-baptist-obergefell-same-sex-marriage.html
 
