@@ -1,3 +1,15 @@
+**Could NIL clearinghouse lead to return of the bag man in college sports?**\
+`“I guess it would just be the same as the way things used to work,” an athletic director said. "We'd be right back where we started."`\
+https://nytimes.com/athletic/6414771/2025/06/10/nil-house-settlement-paying-athletes-deals-ncaa/
+
+**Mandel: CFB hopes to correct NIL chaos with House, but that's not how fair markets work**\
+`The powers that be seem to think they can make athletes’ unofficial salaries go down with their magic clearinghouse.`\
+https://nytimes.com/athletic/6414561/2025/06/10/house-ncaa-settlement-clearinghouse-market-mandel/
+
+**The Brad Marchand and Sam Bennett show just keeps rolling, much to the Panthers' advantage**\
+`Once Atlantic Division rivals, the pair of forwards are making NHL history with fantastic play through the first three games of the final.`\
+https://nytimes.com/athletic/6415297/2025/06/10/bennett-marchand-panthers-offensive-depth-stanley-cup-final/
+
 **The Pulse: Baseball’s top prospect is here**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6413803/2025/06/10/roman-anthony-call-up-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6401850/2025/06/10/club-world-cup-group-d-guide-che
 **Club World Cup Group A: Stylish Palmeiras should dominate but will Inter Miami make it through?**\
 `We preview a tough-looking group containing Palmeiras, Porto, Inter Miami and Egyptian side Al Ahly`\
 https://nytimes.com/athletic/6361568/2025/06/10/club-world-cup-group-a-guide/
-
-**Club World Cup Group E: Inter are rightful favorites but battle for second should be fierce**\
-`Group E contains Inter, Monterrey, River Plate and Urawa Red Diamonds, and will be a fascinating battle`\
-https://nytimes.com/athletic/6410166/2025/06/10/club-world-cup-guide-group-e/
-
-**Club World Cup Group C: Will Bayern Munich reign supreme and can Auckland City's amateurs spring a shock?**\
-`The German giants understandably start as group favorites but Di Maria and Boca Juniors offer fascinating sub-plots this summer`\
-https://nytimes.com/athletic/6408711/2025/06/10/club-world-cup-group-c-guide/
-
-**The 25 stories that changed college football since 2000**\
-`From conference expansion to NCAA power struggles to coaching hires and postseason changes, there's been nonstop action away from the field.`\
-https://nytimes.com/athletic/6412856/2025/06/10/college-football-ncaa-legal-stories/
 
