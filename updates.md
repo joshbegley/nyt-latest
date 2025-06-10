@@ -1,3 +1,15 @@
+**British Government to Spend $19 Billion on New Nuclear Plant**\
+`The new project, called Sizewell C, will be expensive to build, but it will create 10,000 jobs and provide a steady supply of electric power for millions of homes.`\
+https://nytimes.com/2025/06/10/business/britain-nuclear-power-plant-sizewell.html
+
+**Immigration Protests Spread Beyond Los Angeles**\
+`People from cities across the country, from Austin to Washington, responded to the Trump administration’s immigration raids by hitting the streets.`\
+https://nytimes.com/video/us/100000010218583/immigration-protests-spread-beyond-los-angeles.html
+
+**What Carlos Alcaraz and Jannik Sinner's French Open final said about five-set tennis**\
+`A transcendent match could not have been so in a shorter format — but Sinner and Alcaraz's exploits are the exception, not the rule.`\
+https://nytimes.com/athletic/6413385/2025/06/10/tennis-best-of-five-grand-slam-good-bad/
+
 **Could NIL clearinghouse lead to return of the bag man in college sports?**\
 `“I guess it would just be the same as the way things used to work,” an athletic director said. "We'd be right back where we started."`\
 https://nytimes.com/athletic/6414771/2025/06/10/nil-house-settlement-paying-athletes-deals-ncaa/

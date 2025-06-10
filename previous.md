@@ -1,3 +1,11 @@
+**British Government to Spend $19 Billion on New Nuclear Plant**\
+`The new project, called Sizewell C, will be expensive to build, but it will create 10,000 jobs and provide a steady supply of electric power for millions of homes.`\
+https://nytimes.com/2025/06/10/business/britain-nuclear-power-plant-sizewell.html
+
+**Immigration Protests Spread Beyond Los Angeles**\
+`People from cities across the country, from Austin to Washington, responded to the Trump administration’s immigration raids by hitting the streets.`\
+https://nytimes.com/video/us/100000010218583/immigration-protests-spread-beyond-los-angeles.html
+
 **Could NIL clearinghouse lead to return of the bag man in college sports?**\
 `“I guess it would just be the same as the way things used to work,” an athletic director said. "We'd be right back where we started."`\
 https://nytimes.com/athletic/6414771/2025/06/10/nil-house-settlement-paying-athletes-deals-ncaa/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6384447/2025/06/10/club-world-cup-group-h-guide-rea
 `Group G contains two European heavyweights, plus Moroccan side Wydad AC and 2024 Asian Champions League winners Al Ain`\
 https://nytimes.com/athletic/6384425/2025/06/10/club-world-cup-man-city-juventus/
 
+**What Carlos Alcaraz and Jannik Sinner's French Open final said about five-set tennis**\
+`A transcendent match could not have been so in a shorter format — but Sinner and Alcaraz's exploits are the exception, not the rule.`\
+https://nytimes.com/athletic/6413385/2025/06/10/tennis-best-of-five-grand-slam-good-bad/
+
 **Club World Cup Group B: Slick PSG and streetsmart Atletico Madrid light up 'Pool of Death'**\
 `Four daunting sides, including two current continental champions, promises to form one of the tournament's most intriguing sections`\
 https://nytimes.com/athletic/6406399/2025/06/10/club-world-cup-guide-group-b/
-
-**Oilers got pulled into Panthers' shenanigans and paid the price. Can they recover?**\
-`The Oilers were called for four penalties in the first period of Game 3 alone, and the night didn't improve from there in a dismal 6-1 loss.`\
-https://nytimes.com/athletic/6415309/2025/06/10/oilers-discipline-stanley-cup-final-panthers/
-
-**Club World Cup Group D: Can Chelsea add another trophy to their growing list of honors?**\
-`We preview Group D, which features Chelsea, Flamengo, Esperance and late entrants in the form of LAFC`\
-https://nytimes.com/athletic/6401850/2025/06/10/club-world-cup-group-d-guide-chelsea-flamengo-lafc/
-
-**Club World Cup Group A: Stylish Palmeiras should dominate but will Inter Miami make it through?**\
-`We preview a tough-looking group containing Palmeiras, Porto, Inter Miami and Egyptian side Al Ahly`\
-https://nytimes.com/athletic/6361568/2025/06/10/club-world-cup-group-a-guide/
 
