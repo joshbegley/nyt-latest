@@ -1,4 +1,24 @@
-**43 thoughts on the Lions' offensive players**\
+**The Most Open-Eared Festival in America Is Ojai**\
+`Birds joined in for the blissed-out sounds of concerts organized by the adventurous flutist Claire Chase at the Ojai Music Festival in California.`\
+https://nytimes.com/2025/06/10/arts/music/ojai-music-festival-claire-chase.html
+
+**Teaching Assistant Stabbed to Death at a School in France**\
+`The stabbing happened during a bag search, which had been set up as part of a government effort to address concerns about increased violence in schools.`\
+https://nytimes.com/2025/06/10/world/europe/teaching-assistant-stabbed-france-school.html
+
+**Former Student Kills At Least Nine People in Austria School Shooting**\
+`The police said the gunman also died in an apparent suicide following the attack in Graz, Austria.`\
+https://nytimes.com/video/world/europe/100000010218942/austria-school-shooting.html
+
+**Why World Cup host cities are taking a light approach to the year-out hype**\
+`Expect the publicity surge to pick up pace as the tournament gets closer.`\
+https://nytimes.com/athletic/6416295/2025/06/10/world-cup-2026-hype-year-out/
+
+**gws-house-renovation-hudson-valley-artist**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/house-renovation-hudson-valley-artist
+
+**42 thoughts on the Lions' offensive players**\
 `The Lions' Super Bowl window is wide open thanks to a prolific offense.`\
 https://nytimes.com/athletic/6414883/2025/06/10/detroit-lions-offense-jared-goff-amon-ra-st-brown/
 
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/10/world/europe/khaby-lame-detained-immigration.html
 **Doechii Criticizes Trump While Accepting BET Award**\
 `The rapper drew attention to the president deploying the military against protesters in Los Angeles and said it was her responsibility as an artist to speak up for all oppressed people.`\
 https://nytimes.com/2025/06/10/arts/music/doechii-trump-protests-bet-awards.html
-
-**The reinvention of Edin Terzic: 'Life is painful sometimes – but pain doesn't have to be negative'**\
-`The ex-Borussia Dortmund head coach lifts the lid on the period of both reflection and preparation that followed his Westfalenstadion exit`\
-https://nytimes.com/athletic/6415474/2025/06/10/edin-terzic-interview-manager-borussia-dortmund/
-
-**Billy Porter in ‘La Cage aux Folles’ Highlights City Center Season**\
-`Also in the lineup: “Bat Boy: The Musical” and a production of “The Wild Party.”`\
-https://nytimes.com/2025/06/10/theater/new-york-city-center-encores.html
-
-**How the Bay Area Shaped Sly Stone**\
-`One of the key figures in American music in the late ’60s got his professional start in the Bay Area. These are some of the spots that were crucial to his career.`\
-https://nytimes.com/2025/06/10/arts/music/sly-stone-san-francisco-bay-area.html
-
-**gws-best-books-2025-so-far**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/gws-best-books-2025-so-far
-
-**gws-tate-modern-25-anniversary**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tate-modern-25-anniversary
 

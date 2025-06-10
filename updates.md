@@ -1,3 +1,27 @@
+**The Most Open-Eared Festival in America Is Ojai**\
+`Birds joined in for the blissed-out sounds of concerts organized by the adventurous flutist Claire Chase at the Ojai Music Festival in California.`\
+https://nytimes.com/2025/06/10/arts/music/ojai-music-festival-claire-chase.html
+
+**Teaching Assistant Stabbed to Death at a School in France**\
+`The stabbing happened during a bag search, which had been set up as part of a government effort to address concerns about increased violence in schools.`\
+https://nytimes.com/2025/06/10/world/europe/teaching-assistant-stabbed-france-school.html
+
+**Former Student Kills At Least Nine People in Austria School Shooting**\
+`The police said the gunman also died in an apparent suicide following the attack in Graz, Austria.`\
+https://nytimes.com/video/world/europe/100000010218942/austria-school-shooting.html
+
+**Why World Cup host cities are taking a light approach to the year-out hype**\
+`Expect the publicity surge to pick up pace as the tournament gets closer.`\
+https://nytimes.com/athletic/6416295/2025/06/10/world-cup-2026-hype-year-out/
+
+**gws-house-renovation-hudson-valley-artist**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/house-renovation-hudson-valley-artist
+
+**42 thoughts on the Lions' offensive players**\
+`The Lions' Super Bowl window is wide open thanks to a prolific offense.`\
+https://nytimes.com/athletic/6414883/2025/06/10/detroit-lions-offense-jared-goff-amon-ra-st-brown/
+
 **43 thoughts on the Lions' offensive players**\
 `The Lions' Super Bowl window is wide open thanks to a prolific offense.`\
 https://nytimes.com/athletic/6414883/2025/06/10/detroit-lions-offense-jared-goff-amon-ra-st-brown/

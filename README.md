@@ -1,3 +1,24 @@
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
+**Karen Bass Is Getting a Second Chance to Lead Her City Through a Crisis**\
+`Ms. Bass struggled amid criticism of her initial response to the Los Angeles fires in January. The opposition over President Trump’s immigration raids have offered her an opportunity.`\
+https://nytimes.com/2025/06/10/us/karen-bass-los-angeles-wildfires-immigration.html
+
+**11 Unforgettable Looks at the BET Awards**\
+`Y2K fashion, big hats, simulated nudity and more.`\
+https://nytimes.com/2025/06/10/style/2025-bet-awards-best-fashion.html
+
+**How ‘Maybe Happy Ending’ Overcame a Shaky Start and Won Big at the Tonys**\
+`Broadway’s best musical winner had to delay its opening last fall and was selling poorly. But strong word-of-mouth and reviews helped this quirky show triumph.`\
+https://nytimes.com/2025/06/10/theater/maybe-happy-ending-tonys-broadway.html
+
+**MLB trade targets to address the biggest need for each contending team**\
+`After reaching out to decision-makers from each of the contending teams to learn their biggest needs, I identified possible trade targets. `\
+https://nytimes.com/athletic/6414556/2025/06/10/mlb-trade-deadline-team-targets-needs-2025/
+
 **The Most Open-Eared Festival in America Is Ojai**\
 `Birds joined in for the blissed-out sounds of concerts organized by the adventurous flutist Claire Chase at the Ojai Music Festival in California.`\
 https://nytimes.com/2025/06/10/arts/music/ojai-music-festival-claire-chase.html
@@ -17,24 +38,4 @@ https://nytimes.com/athletic/6416295/2025/06/10/world-cup-2026-hype-year-out/
 **gws-house-renovation-hudson-valley-artist**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/house-renovation-hudson-valley-artist
-
-**42 thoughts on the Lions' offensive players**\
-`The Lions' Super Bowl window is wide open thanks to a prolific offense.`\
-https://nytimes.com/athletic/6414883/2025/06/10/detroit-lions-offense-jared-goff-amon-ra-st-brown/
-
-**The 25 Gardens You Must See**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-gardens-england-japan-france
-
-**China Sends Two Aircraft Carriers Into the Pacific for the First Time**\
-`By sending warships beyond Japan, the Chinese Navy is demonstrating its ability to project sea and air power far past its home waters.`\
-https://nytimes.com/2025/06/10/world/asia/china-aircraft-carriers.html
-
-**Khaby Lame, World’s Most Popular TikToker, Is Forced to Leave U.S.**\
-`Amid President Trump’s crackdown on immigration, agents detained Mr. Lame, 25, for overstaying a visa, and he left the country. Another Gen Z influencer took credit.`\
-https://nytimes.com/2025/06/10/world/europe/khaby-lame-detained-immigration.html
-
-**Doechii Criticizes Trump While Accepting BET Award**\
-`The rapper drew attention to the president deploying the military against protesters in Los Angeles and said it was her responsibility as an artist to speak up for all oppressed people.`\
-https://nytimes.com/2025/06/10/arts/music/doechii-trump-protests-bet-awards.html
 
