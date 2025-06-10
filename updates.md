@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
 
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
 **Karen Bass Is Getting a Second Chance to Lead Her City Through a Crisis**\
 `Ms. Bass struggled amid criticism of her initial response to the Los Angeles fires in January. The opposition over President Trump’s immigration raids have offered her an opportunity.`\
 https://nytimes.com/2025/06/10/us/karen-bass-los-angeles-wildfires-immigration.html
