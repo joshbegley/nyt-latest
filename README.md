@@ -1,3 +1,19 @@
+**Deion Sanders 'feeling well' amid health issues, timing of return unclear**\
+`Sanders has remained out of the public spotlight since the NFL Draft in April due to unspecified health reasons.`\
+https://nytimes.com/athletic/6416357/2025/06/10/deion-sanders-health-issues-colorado-football/
+
+**Is Jessica Ramos Gone and Forgotten? Not Quite.**\
+`Plus: The second and final debate of the Democratic primary for mayor is Thursday, but Michael Blake, a breakout performer from the first, won’t be onstage.`\
+https://nytimes.com/2025/06/10/nyregion/jessica-ramos-cuomo-nyc-mayor.html
+
+**Belichick unbothered by 'noise' surrounding UNC program: 'Always dealt with that'**\
+`“Is there noise out there? We've always dealt with that," Belichick said when asked if “outside noise” is a distraction.`\
+https://nytimes.com/athletic/6416498/2025/06/10/bill-belichick-unbothered-north-carolina-noise/
+
+**The Rise of AI Meets the Golden Age of Geography**\
+`Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
+https://nytimes.com/paidpost/2025-06-10/esri-v2-jun25/rise-of-ai-meets-geography-golden-age.html
+
 **The AI Imperative: Mapping What’s Possible**\
 `Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
 https://nytimes.com/paidpost/2025-06-10/esri-v1-jun25/ai-imperative-mapping-whats-possible.html
@@ -22,20 +38,4 @@ https://nytimes.com/2025/06/10/theater/maybe-happy-ending-tonys-broadway.html
 **MLB trade targets to address the biggest need for each contending team**\
 `After reaching out to decision-makers from each of the contending teams to learn their biggest needs, I identified possible trade targets. `\
 https://nytimes.com/athletic/6414556/2025/06/10/mlb-trade-deadline-team-targets-needs-2025/
-
-**The Most Open-Eared Festival in America Is Ojai**\
-`Birds joined in for the blissed-out sounds of concerts organized by the adventurous flutist Claire Chase at the Ojai Music Festival in California.`\
-https://nytimes.com/2025/06/10/arts/music/ojai-music-festival-claire-chase.html
-
-**Teaching Assistant Stabbed to Death at a School in France**\
-`The stabbing happened during a bag search, which had been set up as part of a government effort to address concerns about increased violence in schools.`\
-https://nytimes.com/2025/06/10/world/europe/teaching-assistant-stabbed-france-school.html
-
-**Former Student Kills At Least Nine People in Austria School Shooting**\
-`The police said the gunman also died in an apparent suicide following the attack in Graz, Austria.`\
-https://nytimes.com/video/world/europe/100000010218942/austria-school-shooting.html
-
-**Why World Cup host cities are taking a light approach to the year-out hype**\
-`Expect the publicity surge to pick up pace as the tournament gets closer.`\
-https://nytimes.com/athletic/6416295/2025/06/10/world-cup-2026-hype-year-out/
 

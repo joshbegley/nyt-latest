@@ -1,3 +1,7 @@
+**The AI Imperative: Mapping What’s Possible**\
+`Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
+https://nytimes.com/paidpost/2025-06-10/esri-v1-jun25/ai-imperative-mapping-whats-possible.html
+
 **Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
 `Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/video/world/europe/100000010218942/austria-school-shooting.h
 **Why World Cup host cities are taking a light approach to the year-out hype**\
 `Expect the publicity surge to pick up pace as the tournament gets closer.`\
 https://nytimes.com/athletic/6416295/2025/06/10/world-cup-2026-hype-year-out/
-
-**gws-house-renovation-hudson-valley-artist**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/house-renovation-hudson-valley-artist
 
