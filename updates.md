@@ -1,3 +1,16 @@
+**Roman Anthony collects first RBI in whirlwind MLB debut**\
+`Anthony picked up an RBI groundout as part of the Red Sox's two-run rally in the ninth in an eventual 10-8 loss in 11 innings.`\
+https://nytimes.com/athletic/6415024/2025/06/09/roman-anthony-mlb-debut-red-sox/
+
+**Just days after highlight-reel play, Denzel Clarke adds another against Angels**\
+`Clarke channeled his inner superhero to make yet another stellar catch in only his 16th MLB game. `\
+https://nytimes.com/athletic/6415134/2025/06/09/denzel-clarke-highlight-reel-catches/
+
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
 `The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
 `\
