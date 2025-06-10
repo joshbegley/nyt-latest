@@ -1,3 +1,7 @@
+**Pentagon Mobilizes 700 Marines to Join Federal Response in Los Angeles**\
+`The move, along with a doubling of National Guard troops, came even as President Trump said the protests were under control and Gov. Gavin Newsom condemned the Marine deployment as a “provocation.”`\
+https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
+
 **This Is What Autocracy Looks Like**\
 `The president didn’t bother to wait for a crisis to launch an authoritarian crackdown.`\
 https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/politics/hannah-dugan-wisconsin-judge-trump-ic
 **White House Pushes Texas to Redistrict, Hoping to Blunt Democratic Gains**\
 `A rare mid-decade redistricting push has unnerved some Texas Republicans, who worry a drive to harm Democrats could end up endangering G.O.P. incumbents in 2026.`\
 https://nytimes.com/2025/06/09/us/politics/trump-texas-redistricting.html
-
-**Record 2.4 million watched Texas' win over Texas Tech in Game 3 of WCWS**\
-`Every game of the series set records, making it the most-watched WCWS Finals in history.`\
-https://nytimes.com/athletic/6414764/2025/06/09/texas-wcws-most-watched-ever-texas-tech/
 

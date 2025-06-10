@@ -1,3 +1,7 @@
+**Pentagon Mobilizes 700 Marines to Join Federal Response in Los Angeles**\
+`The move, along with a doubling of National Guard troops, came even as President Trump said the protests were under control and Gov. Gavin Newsom condemned the Marine deployment as a “provocation.”`\
+https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
+
 **This Is What Autocracy Looks Like**\
 `The president didn’t bother to wait for a crisis to launch an authoritarian crackdown.`\
 https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html

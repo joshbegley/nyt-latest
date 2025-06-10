@@ -1,3 +1,7 @@
+**Trump’s Crackdown on L.A. Protests Contrasts With His Jan. 6 Response**\
+`The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
+https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html
+
 **Pentagon Mobilizes 700 Marines to Join Federal Response in Los Angeles**\
 `The move, along with a doubling of National Guard troops, came even as President Trump said the protests were under control and Gov. Gavin Newsom condemned the Marine deployment as a “provocation.”`\
 https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413887/2025/06/09/nick-chubb-browns-legacy-texans/
 **Trump Administration Disputes Immunity Claim by Judge Accused of Obstructing ICE**\
 `Judge Hannah C. Dugan was indicted last month on charges of concealing a person from arrest and obstruction of proceedings. She has pleaded not guilty.`\
 https://nytimes.com/2025/06/09/us/politics/hannah-dugan-wisconsin-judge-trump-ice.html
-
-**White House Pushes Texas to Redistrict, Hoping to Blunt Democratic Gains**\
-`A rare mid-decade redistricting push has unnerved some Texas Republicans, who worry a drive to harm Democrats could end up endangering G.O.P. incumbents in 2026.`\
-https://nytimes.com/2025/06/09/us/politics/trump-texas-redistricting.html
 
