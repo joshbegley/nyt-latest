@@ -1,3 +1,31 @@
+**China Sends Two Aircraft Carriers Into the Pacific for the First Time**\
+`By sending warships beyond Japan, the Chinese Navy is demonstrating its ability to project sea and air power far past its home waters.`\
+https://nytimes.com/2025/06/10/world/asia/china-aircraft-carriers.html
+
+**Khaby Lame, World’s Most Popular TikToker, Is Forced to Leave U.S.**\
+`Amid President Trump’s crackdown on immigration, agents detained Mr. Lame, 25, for overstaying a visa, and he left the country. Another Gen Z influencer took credit.`\
+https://nytimes.com/2025/06/10/world/europe/khaby-lame-detained-immigration.html
+
+**Doechii Criticizes Trump While Accepting BET Award**\
+`The rapper drew attention to the president deploying the military against protesters in Los Angeles and said it was her responsibility as an artist to speak up for all oppressed people.`\
+https://nytimes.com/2025/06/10/arts/music/doechii-trump-protests-bet-awards.html
+
+**The reinvention of Edin Terzic: 'Life is painful sometimes – but pain doesn't have to be negative'**\
+`The ex-Borussia Dortmund head coach lifts the lid on the period of both reflection and preparation that followed his Westfalenstadion exit`\
+https://nytimes.com/athletic/6415474/2025/06/10/edin-terzic-interview-manager-borussia-dortmund/
+
+**Billy Porter in ‘La Cage aux Folles’ Highlights City Center Season**\
+`Also in the lineup: “Bat Boy: The Musical” and a production of “The Wild Party.”`\
+https://nytimes.com/2025/06/10/theater/new-york-city-center-encores.html
+
+**How the Bay Area Shaped Sly Stone**\
+`One of the key figures in American music in the late ’60s got his professional start in the Bay Area. These are some of the spots that were crucial to his career.`\
+https://nytimes.com/2025/06/10/arts/music/sly-stone-san-francisco-bay-area.html
+
+**gws-best-books-2025-so-far**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-best-books-2025-so-far
+
 **gws-tate-modern-25-anniversary**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/tate-modern-25-anniversary
@@ -9,32 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/trump-emergency-powers-invasion.html
 **TikTok Bots, MAGA Outrage and the Very Online Fight for Romania’s Future**\
 `It started with a Russian influence campaign and a canceled vote. Then the American right showed up.`\
 https://nytimes.com/2025/06/10/magazine/romania-election-tiktok-russia-maga.html
-
-**Summer McIntosh sets two swimming world records in three days at Canadian trials**\
-`The 18-year-old set the 200-meter individual medley record on Monday night and the 400-meter freestyle mark on Saturday.`\
-https://nytimes.com/athletic/6416297/2025/06/10/summer-mcintosh-swimming-world-records/
-
-**gws-tony-awards-fashion-red-carpet**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tony-awards-fashion-red-carpet
-
-**Alvarez-Crawford superfight confirmed for September, will stream on Netflix**\
-`"Are you kidding me that the first boxing fight I’m going to get to promote is Canelo vs. Crawford?" Dana White said in a press release.`\
-https://nytimes.com/athletic/6416121/2025/06/10/canelo-alvarez-terence-crawford-netflix/
-
-**Vanity Fair Names Mark Guiducci as Its Top Editor**\
-`Mr. Guiducci, 36, fills a role recently vacated by Radhika Jones, who led the magazine for seven years.`\
-https://nytimes.com/2025/06/10/business/media/vanity-fair-editor-mark-guiducci.html
-
-**In Santa Ana, an immigration raid sparks anger.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/in-santa-ana-an-immigration-raid-sparks-anger
-
-**gws-tonys-best-worst-moments**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/gws-tonys-best-worst-moments
-
-**Marines Deployed by Trump Over Newsom’s Objections Arrive in L.A. Area**\
-`Hundreds of Marines arrived in the L.A. area, the U.S. Northern Command confirmed on Tuesday. Gov. Gavin Newsom of California has said deploying them on U.S. soil was illegal.`\
-https://nytimes.com/2025/06/10/us/marines-los-angeles-newsom.html
 
