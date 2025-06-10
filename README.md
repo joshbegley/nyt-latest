@@ -1,3 +1,7 @@
+**Quote of the Day: Life in Crimea: Sunny Beaches And Raid Sirens**\
+`Quotation of the Day for Tuesday, June 10, 2025.`\
+https://nytimes.com/2025/06/09/pageoneplus/quote-of-the-day-life-in-crimea-sunny-beaches-and-raid-sirens.html
+
 **Panthers score early and often in penalty-filled Game 3 rout of Oilers: Takeaways**\
 `The Panthers scored within the first minute and barely let up after in a dominant Game 3 victory to take a 2-1 series lead.`\
 https://nytimes.com/athletic/6415121/2025/06/09/panthers-oilers-stanley-cup-final-2025-game-3-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.ht
 `The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
 `\
 https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
-
-**US Women win TST title, $1 million prize for second straight year**\
-`Heather O'Reilly's squad included Carli Lloyd, Ali Krieger and Jill Loyden.`\
-https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysis/
 
