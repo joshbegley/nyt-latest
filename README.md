@@ -1,3 +1,11 @@
+**Roman Anthony collects first RBI in whirlwind MLB debut**\
+`Anthony picked up an RBI groundout as part of the Red Sox's two-run rally in the ninth in an eventual 10-8 loss in 11 innings.`\
+https://nytimes.com/athletic/6415024/2025/06/09/roman-anthony-mlb-debut-red-sox/
+
+**Just days after highlight-reel play, Denzel Clarke adds another against Angels**\
+`Clarke channeled his inner superhero to make yet another stellar catch in only his 16th MLB game. `\
+https://nytimes.com/athletic/6415134/2025/06/09/denzel-clarke-highlight-reel-catches/
+
 **Who Is David Huerta, the Labor Leader Arrested in Los Angeles?**\
 `A well-known figure in the California labor movement for decades, he is now the president of the Service Employees International Union of California.`\
 https://nytimes.com/2025/06/09/us/david-huerta-labor-leader-los-angeles.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysi
 **Trump’s Crackdown on L.A. Protests Contrasts With His Jan. 6 Response**\
 `The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
 https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html
-
-**Trump Administration More Than Doubles Federal Deployments to Los Angeles**\
-`The Pentagon mobilized 700 Marines and 2,000 more National Guard troops even as the president said the situation was “under control.” Gov. Gavin Newsom condemned the escalating response.`\
-https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
-
-**This Is What Autocracy Looks Like**\
-`The president didn’t bother to wait for a crisis to launch an authoritarian crackdown.`\
-https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html
 
