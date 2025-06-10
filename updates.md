@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-s
 `\
 https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
 
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **College World Series field set: Hello Murray State! Racers crash 8-team field**\
 `Only three of the eight national seeds and five of the top 16 seeds overall advanced to the College World Series.`\
 https://nytimes.com/athletic/6414580/2025/06/09/college-world-series-omaha-bracket-field-2-2/
