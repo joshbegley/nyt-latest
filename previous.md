@@ -1,3 +1,19 @@
+**Dillon Gabriel, Shedeur Sanders focused on making steady improvement at Browns minicamp**\
+`The rookie quarterbacks received most of the passing work in Cleveland's first mandatory minicamp practice. `\
+https://nytimes.com/athletic/6417239/2025/06/10/browns-minicamp-shedeur-sanders-dillon-gabriel/
+
+**Los Angeles Protests Amplified by Influencers and Online Creators**\
+`Creators such as Cam Higby, who is conservative, have sometimes outnumbered traditional media outlets at the immigration protests. Their posts have gone viral.`\
+https://nytimes.com/2025/06/10/technology/la-protests-influencers-media.html
+
+**New York City Mayoral Primary 2025: Latest Polls**\
+`Track the latest Democratic primary polls, including ranked-choice outcomes, in the New York City mayoral election.`\
+https://nytimes.com/interactive/polls/nyc-mayoral-primary-election-polls-2025.html
+
+**LT Kolton Miller back in action at Raiders minicamp, but still without contract extension**\
+`When asked why he returned to practice despite the lack of an extension, Miller said, "I want to be a Raider for life."`\
+https://nytimes.com/athletic/6417220/2025/06/10/raiders-minicamp-kolton-miller-contract-jakorian-bennett/
+
 **Democrats Grill N.I.H. Leader on Cuts: Who Is Calling the Shots?**\
 `Senators criticized the head of the National Institutes of Health for not taking responsibility for Trump administration cuts to research funding.`\
 https://nytimes.com/2025/06/10/us/politics/nih-bhattacharya-congress-testimony.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/10/briefing/military-los-angeles-austria-shooting.ht
 **Did She or Didn’t She? She Did, and She’ll Tell You Exactly How.**\
 `The paradigm shifts as women like Kylie Jenner invert the Pygmalion story.`\
 https://nytimes.com/2025/06/10/style/kylie-jenner-plastic-surgery.html
-
-**This Israeli Government Is a Danger to Jews Everywhere**\
-`The price will be high if people don’t resist Netanyahu’s ugly, nihilistic Gaza policy.`\
-https://nytimes.com/2025/06/10/opinion/israel-gaza-anti-semitism.html
-
-**Three Opinion Writers on the L.A. Protests and Trump’s Spectacle of Control**\
-`Michelle Cottle, David French and Tressie McMillan Cottom dissect Trump’s reach for power.`\
-https://nytimes.com/2025/06/10/opinion/los-angeles-protests-trump-marines.html
-
-**NCAA men's basketball to allow challenges to 'enhance the flow of the game'**\
-`Officiating across NCAA sports has come under major scrutiny in the last few years.`\
-https://nytimes.com/athletic/6417058/2025/06/10/ncaa-rules-college-basketball-challenges/
-
-**The Briefing: England 1 Senegal 3 - Tuchel's side fall flat, so is it time to move on from the old guard?**\
-`Analysis from the City Ground's first England international in 116 years as Senegal proved too strong for Thomas Tuchel's side`\
-https://nytimes.com/athletic/6402697/2025/06/10/england-senegal-tuchel-henderson-walker/
 

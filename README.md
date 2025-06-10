@@ -1,3 +1,7 @@
+**ABC Says Terry Moran, Suspended for Social Media Posts, Will Not Return**\
+`ABC News suspended Mr. Moran on Sunday after he wrote on X that Stephen Miller, the deputy White House chief of staff, was “a world-class hater.”`\
+https://nytimes.com/2025/06/10/business/media/terry-moran-abc-news.html
+
 **Dillon Gabriel, Shedeur Sanders focused on making steady improvement at Browns minicamp**\
 `The rookie quarterbacks received most of the passing work in Cleveland's first mandatory minicamp practice. `\
 https://nytimes.com/athletic/6417239/2025/06/10/browns-minicamp-shedeur-sanders-dillon-gabriel/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/what-we-kno
 **Wednesday Briefing: Why U.S. Troops Are in Los Angeles**\
 `Plus, the travel writer’s dilemma.`\
 https://nytimes.com/2025/06/10/briefing/military-los-angeles-austria-shooting.html
-
-**Did She or Didn’t She? She Did, and She’ll Tell You Exactly How.**\
-`The paradigm shifts as women like Kylie Jenner invert the Pygmalion story.`\
-https://nytimes.com/2025/06/10/style/kylie-jenner-plastic-surgery.html
 
