@@ -1,3 +1,11 @@
+**Red Bull's F1 Academy car takes on a bold look ahead of 2025 Canadian Grand Prix**\
+`Red Bull's F1 Academy car has a bespoke look for the Canadian Grand Prix weekend, which reflects the all-female series' aims`\
+https://nytimes.com/athletic/6416083/2025/06/10/f1-canadian-grand-prix-red-bull-car/
+
+**Billy Boston, Trailblazing Rugby Player, Is Knighted**\
+`Boston, who finished his career with a British record of 571 tries, was honored Tuesday in a special ceremony at Buckingham Palace.`\
+https://nytimes.com/2025/06/10/sports/billy-boston-knighthood-rugby.html
+
 **Demonstrators Gather Outside ICE Headquarters in New York City**\
 `The group rallied near a building that houses an immigration court, which has become a flashpoint amid the arrest of migrants in courthouses.`\
 https://nytimes.com/2025/06/10/us/nyc-demonstrators-ice-crackdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/theater/smash-broadway-closing.html
 **Hegseth Defended Troop Deployment to Los Angeles**\
 `Also, a school shooting in Austria was among Europe’s worst. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/06/10/briefing/los-angeles-troops-white-house-musk-search.html
-
-**Aaron Rodgers says he's been married for 'a couple months'**\
-`The four-time MVP quarterback reported to the first day of Steelers mandatory minicamp on Tuesday after signing a one-year deal.`\
-https://nytimes.com/athletic/6417372/2025/06/10/aaron-rodgers-married-steelers-training/
-
-**House Republicans Move to Put Their Stamp on D.C. as Budget Fix Languishes**\
-`The House passed bills imposing voting and policing policies on the District of Columbia, but the G.O.P. has refused to consider a measure to restore hundreds of millions of dollars of its funding.`\
-https://nytimes.com/2025/06/10/us/politics/budget-house-funding-bills.html
 

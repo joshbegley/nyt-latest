@@ -1,3 +1,11 @@
+**Red Bull's F1 Academy car takes on a bold look ahead of 2025 Canadian Grand Prix**\
+`Red Bull's F1 Academy car has a bespoke look for the Canadian Grand Prix weekend, which reflects the all-female series' aims`\
+https://nytimes.com/athletic/6416083/2025/06/10/f1-canadian-grand-prix-red-bull-car/
+
+**Billy Boston, Trailblazing Rugby Player, Is Knighted**\
+`Boston, who finished his career with a British record of 571 tries, was honored Tuesday in a special ceremony at Buckingham Palace.`\
+https://nytimes.com/2025/06/10/sports/billy-boston-knighthood-rugby.html
+
 **Demonstrators Gather Outside ICE Headquarters in New York City**\
 `The group rallied near a building that houses an immigration court, which has become a flashpoint amid the arrest of migrants in courthouses.`\
 https://nytimes.com/2025/06/10/us/nyc-demonstrators-ice-crackdown.html
