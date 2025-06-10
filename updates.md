@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
 
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **In Challenge to Trump, Smithsonian Says It Controls Personnel Decisions**\
 `The Smithsonian says it retains the authority over personnel such as the director of the National Portrait Gallery, whose firing the president had announced.`\
 https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
