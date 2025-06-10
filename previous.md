@@ -1,3 +1,11 @@
+**The Windup: A true catch of the year candidate**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6415346/2025/06/10/roman-anthony-denzel-clarke-the-windup/
+
+**Jacques Pépin: History Is Culinary**\
+`How we cook and what we eat are an intimate reflection of our personal and collective pasts.`\
+https://nytimes.com/2025/06/10/special-series/jacques-pepin-cooking-history.html
+
 **CWM and the Great Wealth Transfer VPP**\
 `Get ready for the biggest migration of assets in history between generations. `\
 https://nytimes.com/paidpost/2025-04-21/.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/10/business/trump-trade-war-global-economy.html
 `Get ready for the biggest migration of assets in history between generations. 
 `\
 https://nytimes.com/paidpost/2025-04-21/.html
-
-**Homes and Shops Burn in Northern Ireland in Riot Over Sexual Assault Case**\
-`The police said that attacks on houses and businesses in the town of Ballymena were being investigated as racially motivated, and that 15 officers had been injured.`\
-https://nytimes.com/2025/06/10/world/europe/northern-ireland-riot.html
-
-**Trey Hendrickson not reporting to Bengals' minicamp amid contract standoff**\
-`His 35 sacks over the past two seasons are the most in the NFL, and he earned first-team All-Pro honors last season.`\
-https://nytimes.com/athletic/6415875/2025/06/10/trey-hendrickson-bengals-minicamp-contract/
 

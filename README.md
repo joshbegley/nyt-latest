@@ -1,3 +1,7 @@
+**As Energy Costs Surge, Eastern Governors Blame a Grid Manager**\
+`Anger at PJM, which manages the electrical grid in all or parts of 13 states and the District of Columbia, has been boiling over in some state capitals.`\
+https://nytimes.com/2025/06/10/business/energy-environment/pjm-electrical-grid.html
+
 **The Windup: A true catch of the year candidate**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6415346/2025/06/10/roman-anthony-denzel-clarke-the-windup/
@@ -8,7 +12,7 @@ https://nytimes.com/2025/06/10/special-series/jacques-pepin-cooking-history.html
 
 **CWM and the Great Wealth Transfer VPP**\
 `Get ready for the biggest migration of assets in history between generations. `\
-https://nytimes.com/paidpost/2025-04-21/.html
+https://nytimes.com/paidpost/citizens-wealth-management/cwm-and-the-great-wealth-transfer-vpp.html
 
 **Celtic confirm Tierney signing on free transfer from Arsenal**\
 `The 28-year-old joined Arsenal from Celtic in 2019 and won the FA Cup in 2020.`\
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6415895/2025/06/10/arvid-lindbland-red-bull-super-l
 **World Bank Forecast Underscores Cost of U.S. Trade War**\
 `Along with a sharply downgraded projection for global output this year, it urged a “course correction” on trade to help preserve living standards.`\
 https://nytimes.com/2025/06/10/business/trump-trade-war-global-economy.html
-
-**Introducing the Great Wealth Transfer**\
-`Get ready for the biggest migration of assets in history between generations. 
-`\
-https://nytimes.com/paidpost/2025-04-21/.html
 
