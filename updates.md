@@ -1,3 +1,23 @@
+**Full Time: US Women won $1M tonight. Huh?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6415141/2025/06/10/tst-us-women-evelyn-shores-full-time/
+
+**Finding God, and Nietzsche, in the Hamas Tunnels of Gaza**\
+`How Omer Shem Tov, who was 20 years old and not particularly religious when taken hostage, survived 505 days in captivity.`\
+https://nytimes.com/2025/06/10/world/middleeast/hostages-god-gaza-tunnels.html
+
+**Connections: Sports Edition Coach: Hints for June 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6414817/2025/06/10/connections-sports-edition-hints-for-june-10-2025/
+
+**Corrections: June 10, 2025**\
+`Corrections that appeared in print on Tuesday, June 10, 2025.`\
+https://nytimes.com/2025/06/10/pageoneplus/corrections-june-10-2025.html
+
+**Quote of the Day: Life in Crimea: Sunny Beaches And Raid Sirens**\
+`Quotation of the Day for Tuesday, June 10, 2025.`\
+https://nytimes.com/2025/06/09/pageoneplus/quote-of-the-day-life-in-crimea-sunny-beaches-and-raid-sirens.html
+
 **Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
 `The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
 `\
