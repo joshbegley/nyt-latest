@@ -1,3 +1,31 @@
+**gws-tate-modern-25-anniversary**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tate-modern-25-anniversary
+
+**Trump Declares Dubious Emergencies to Amass Power, Scholars Say**\
+`In disputes over protests, deportations and tariffs, the president has invoked statutes that may not provide him with the authority he claims.`\
+https://nytimes.com/2025/06/10/us/politics/trump-emergency-powers-invasion.html
+
+**TikTok Bots, MAGA Outrage and the Very Online Fight for Romania’s Future**\
+`It started with a Russian influence campaign and a canceled vote. Then the American right showed up.`\
+https://nytimes.com/2025/06/10/magazine/romania-election-tiktok-russia-maga.html
+
+**Summer McIntosh sets two swimming world records in three days at Canadian trials**\
+`The 18-year-old set the 200-meter individual medley record on Monday night and the 400-meter freestyle mark on Saturday.`\
+https://nytimes.com/athletic/6416297/2025/06/10/summer-mcintosh-swimming-world-records/
+
+**gws-tony-awards-fashion-red-carpet**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tony-awards-fashion-red-carpet
+
+**Alvarez-Crawford superfight confirmed for September, will stream on Netflix**\
+`"Are you kidding me that the first boxing fight I’m going to get to promote is Canelo vs. Crawford?" Dana White said in a press release.`\
+https://nytimes.com/athletic/6416121/2025/06/10/canelo-alvarez-terence-crawford-netflix/
+
+**Vanity Fair Names Mark Guiducci as Its Top Editor**\
+`Mr. Guiducci, 36, fills a role recently vacated by Radhika Jones, who led the magazine for seven years.`\
+https://nytimes.com/2025/06/10/business/media/vanity-fair-editor-mark-guiducci.html
+
 **In Santa Ana, an immigration raid sparks anger.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/in-santa-ana-an-immigration-raid-sparks-anger
