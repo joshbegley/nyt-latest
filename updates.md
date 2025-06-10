@@ -1,3 +1,24 @@
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
+**Karen Bass Is Getting a Second Chance to Lead Her City Through a Crisis**\
+`Ms. Bass struggled amid criticism of her initial response to the Los Angeles fires in January. The opposition over President Trump’s immigration raids have offered her an opportunity.`\
+https://nytimes.com/2025/06/10/us/karen-bass-los-angeles-wildfires-immigration.html
+
+**11 Unforgettable Looks at the BET Awards**\
+`Y2K fashion, big hats, simulated nudity and more.`\
+https://nytimes.com/2025/06/10/style/2025-bet-awards-best-fashion.html
+
+**How ‘Maybe Happy Ending’ Overcame a Shaky Start and Won Big at the Tonys**\
+`Broadway’s best musical winner had to delay its opening last fall and was selling poorly. But strong word-of-mouth and reviews helped this quirky show triumph.`\
+https://nytimes.com/2025/06/10/theater/maybe-happy-ending-tonys-broadway.html
+
+**MLB trade targets to address the biggest need for each contending team**\
+`After reaching out to decision-makers from each of the contending teams to learn their biggest needs, I identified possible trade targets. `\
+https://nytimes.com/athletic/6414556/2025/06/10/mlb-trade-deadline-team-targets-needs-2025/
+
 **The Most Open-Eared Festival in America Is Ojai**\
 `Birds joined in for the blissed-out sounds of concerts organized by the adventurous flutist Claire Chase at the Ojai Music Festival in California.`\
 https://nytimes.com/2025/06/10/arts/music/ojai-music-festival-claire-chase.html
