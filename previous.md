@@ -1,3 +1,15 @@
+**Kamari Doyle: What we learned from the Brighton youngster's season of two halves**\
+`The 19-year-old midfielder's loan at at Exeter fell flat but he excelled at Crawley`\
+https://nytimes.com/athletic/6328783/2025/06/10/kamari-doyle-brighton-loan/
+
+**Planes, ferries and mini-buses with Villa's long-distance supporters: 'It's more than the game'**\
+`Fans from around the UK reveal their journeys to Villa Park - and why they do it despite the time and money`\
+https://nytimes.com/athletic/6309683/2025/06/10/aston-villa-long-diatance-supporters/
+
+**The first task facing the next Spurs manager: Connect with players like Postecoglou did**\
+`The messages shared by the Tottenham players on social media following Postecoglou's departure spoke for the affection many held for him`\
+https://nytimes.com/athletic/6413813/2025/06/10/postecoglou-players-frank/
+
 **Inside Mamelodi Sundowns: The journey to the Club World Cup**\
 `In the second part of our series, The Athletic finds out how Mamelodi Sundowns are preparing for this month's Club World Cup in the U.S.`\
 https://nytimes.com/athletic/6407917/2025/06/10/inside-mamelodi-sundowns-the-journey-to-the-club-world-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/10/world/middleeast/hostages-god-gaza-tunnels.html
 **Connections: Sports Edition Coach: Hints for June 10, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6414817/2025/06/10/connections-sports-edition-hints-for-june-10-2025/
-
-**Corrections: June 10, 2025**\
-`Corrections that appeared in print on Tuesday, June 10, 2025.`\
-https://nytimes.com/2025/06/10/pageoneplus/corrections-june-10-2025.html
-
-**Quote of the Day: Life in Crimea: Sunny Beaches And Raid Sirens**\
-`Quotation of the Day for Tuesday, June 10, 2025.`\
-https://nytimes.com/2025/06/09/pageoneplus/quote-of-the-day-life-in-crimea-sunny-beaches-and-raid-sirens.html
-
-**Panthers score early and often in penalty-filled Game 3 rout of Oilers: Takeaways**\
-`The Panthers scored within the first minute and barely let up after in a dominant Game 3 victory to take a 2-1 series lead.`\
-https://nytimes.com/athletic/6415121/2025/06/09/panthers-oilers-stanley-cup-final-2025-game-3-takeaways/
 
