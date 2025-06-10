@@ -1,3 +1,15 @@
+**Melbourne mayor asks Spurs to reinstate Postecoglou**\
+`Postecoglou was born in Greece but grew up in Melbourne and previously coached the Australian national team.`\
+https://nytimes.com/athletic/6416560/2025/06/10/tottenham-manager-ange-postecoglou-australia/
+
+**Canada summer transfer primer: Latest on David, Buchanan, Larin and more**\
+`What we're hearing about a number of Canada's key players entering a pivotal summer, with the World Cup on home soil a year away.`\
+https://nytimes.com/athletic/6415893/2025/06/10/canada-summer-transfer-jonathan-david-promise-larin-kone-sigur-saliba/
+
+**Judge in Hockey Canada sexual assault trial sets verdict date for July 24**\
+`Judge says verdicts will be delivered in person to the five accused players.`\
+https://nytimes.com/athletic/6416521/2025/06/10/hockey-canada-sexual-assault-trial-verdict-date-july-24/
+
 **Jobe Bellingham always wanted to avoid comparisons with Jude. Now, he is embracing them**\
 `Choosing Dortmund as his next club is a brave move for a player who has always been determined to carve his own path`\
 https://nytimes.com/athletic/6416052/2025/06/10/jobe-bellingham-jude-comparison-dortmund/
@@ -26,16 +38,4 @@ https://nytimes.com/paidpost/2025-06-10/esri-v1-jun25/ai-imperative-mapping-what
 `Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
 `\
 https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
-
-**Karen Bass Is Getting a Second Chance to Lead Her City Through a Crisis**\
-`Ms. Bass struggled amid criticism of her initial response to the Los Angeles fires in January. The opposition over President Trump’s immigration raids have offered her an opportunity.`\
-https://nytimes.com/2025/06/10/us/karen-bass-los-angeles-wildfires-immigration.html
-
-**11 Unforgettable Looks at the BET Awards**\
-`Y2K fashion, big hats, simulated nudity and more.`\
-https://nytimes.com/2025/06/10/style/2025-bet-awards-best-fashion.html
-
-**How ‘Maybe Happy Ending’ Overcame a Shaky Start and Won Big at the Tonys**\
-`Broadway’s best musical winner had to delay its opening last fall and was selling poorly. But strong word-of-mouth and reviews helped this quirky show triumph.`\
-https://nytimes.com/2025/06/10/theater/maybe-happy-ending-tonys-broadway.html
 

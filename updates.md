@@ -1,3 +1,20 @@
+**Melbourne mayor asks Spurs to reinstate Postecoglou**\
+`Postecoglou was born in Greece but grew up in Melbourne and previously coached the Australian national team.`\
+https://nytimes.com/athletic/6416560/2025/06/10/tottenham-manager-ange-postecoglou-australia/
+
+**Canada summer transfer primer: Latest on David, Buchanan, Larin and more**\
+`What we're hearing about a number of Canada's key players entering a pivotal summer, with the World Cup on home soil a year away.`\
+https://nytimes.com/athletic/6415893/2025/06/10/canada-summer-transfer-jonathan-david-promise-larin-kone-sigur-saliba/
+
+**Judge in Hockey Canada sexual assault trial sets verdict date for July 24**\
+`Judge says verdicts will be delivered in person to the five accused players.`\
+https://nytimes.com/athletic/6416521/2025/06/10/hockey-canada-sexual-assault-trial-verdict-date-july-24/
+
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
 **Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
 `Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
 `\
