@@ -1,3 +1,15 @@
+**Guardiola gives emotional speech on suffering in Gaza**\
+`“It's so painful what we see in Gaza. It hurts all my body,” Guardiola said.`\
+https://nytimes.com/athletic/6415561/2025/06/10/pep-guardiola-gaza-israel/
+
+**As Energy Costs Surge, Eastern Governors Blame a Grid Manager**\
+`Anger at PJM, which manages the electrical grid in all or parts of 13 states and the District of Columbia, has been boiling over in some state capitals.`\
+https://nytimes.com/2025/06/10/business/energy-environment/pjm-electrical-grid.html
+
+**CWM and the Great Wealth Transfer VPP**\
+`Get ready for the biggest migration of assets in history between generations. `\
+https://nytimes.com/paidpost/citizens-wealth-management/cwm-and-the-great-wealth-transfer-vpp.html
+
 **The Windup: A true catch of the year candidate**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6415346/2025/06/10/roman-anthony-denzel-clarke-the-windup/
