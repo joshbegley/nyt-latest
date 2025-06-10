@@ -1,3 +1,15 @@
+**Democrats Grill N.I.H. Leader on Cuts: Who Is Calling the Shots?**\
+`Senators criticized the head of the National Institutes of Health for not taking responsibility for Trump administration cuts to research funding.`\
+https://nytimes.com/2025/06/10/us/politics/nih-bhattacharya-congress-testimony.html
+
+**JK Dobbins signs with Broncos, bolstering running back position: Source**\
+`The Broncos add the veteran and former Charger to join second-round pick R.J. Harvey and other young running backs.`\
+https://nytimes.com/athletic/6417278/2025/06/10/jk-dobbins-denver-broncos-signing/
+
+**Chelsea omit Petrovic from CWCW squad, Paez to join Strasbourg on loan**\
+`Paez, whose transfer to Chelsea was agreed with Independiente Del Valle when he was 16 in 2023, will join BlueCo-owned Strasbourg on loan.`\
+https://nytimes.com/athletic/6417254/2025/06/10/chelsea-transfers-strasbourg-paez-petrovic/
+
 **What we know about the Marine infantry battalion deployed by Trump.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/what-we-know-about-the-marine-infantry-battalion-deployed-by-trump
