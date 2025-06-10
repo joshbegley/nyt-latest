@@ -1,3 +1,15 @@
+**How to watch Sky at Liberty: Undefeated New York hosts Angel Reese and Chicago**\
+`The New York Liberty are dizzying, daunting juggernauts. The Chicago Sky are falling. Still, primetime WNBA is well worth watching.`\
+https://nytimes.com/athletic/6414491/2025/06/10/chicago-sky-new-york-liberty-how-to-watch/
+
+**Ex-Liverpool coaches Lijnders, French join Guardiola's staff at Man City**\
+`Lijnders spent nine and a half years at Liverpool across two spells, leaving alongside Jurgen Klopp in the summer of 2024.`\
+https://nytimes.com/athletic/6394612/2025/06/10/man-city-pep-lijnders-liverpool-french/
+
+**Several Killed in Shooting at Austrian High School, Public Media Reports**\
+`The authorities in Graz were trying to clarify the situation on the ground and coordinate a response. The Interior Minister confirmed several deaths, public media reported.`\
+https://nytimes.com/2025/06/10/world/europe/austria-school-shooting.html
+
 **With Sirens Screeching and Explosions in the Sky, Kyiv Struggles to Sleep**\
 `Moscow has stepped up drone and missile attacks despite U.S. pressure to work toward a cease-fire. The strikes intensified after a wave of Ukrainian drone attacks on Russia on June 1.`\
 https://nytimes.com/2025/06/10/world/europe/russia-drone-attack-ukraine-kyiv.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/10/business/media/hbo-max-warner-bros-discovery.html
 **A SoHo Studio to Enchant a Bride and Her Entourage**\
 `A dress designer needed a discreet live/work space to fit both sides of her life. After work, her personal apartment re-emerges.`\
 https://nytimes.com/2025/06/10/realestate/nyc-soho-studio-bridal-shop.html
-
-**Clock Ticks as U.S. and China Try to Undo Devastating Trade Curbs**\
-`Officials from the world’s largest economies will try to strike a deal Tuesday to relax painful export restrictions that they have imposed on each other.`\
-https://nytimes.com/2025/06/10/business/economy/china-us-trade-talks.html
-
-**Fake Images and Conspiracy Theories Swirl Around L.A. Protests**\
-`Disinformation spreading on social media platforms has stoked an already tense situation.`\
-https://nytimes.com/2025/06/10/technology/la-protests-conspiracy-theories-disinformation.html
-
-**A Proposal to Give Voters the Power to Oust a N.Y.C. Mayor**\
-`Right now, only the governor can remove a mayor. A City Council commission favors another route.`\
-https://nytimes.com/2025/06/10/nyregion/mayor-removal-new-york.html
 

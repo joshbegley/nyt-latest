@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, June 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/10/todays-new-york-times-international-edition
+
 **How to watch Sky at Liberty: Undefeated New York hosts Angel Reese and Chicago**\
 `The New York Liberty are dizzying, daunting juggernauts. The Chicago Sky are falling. Still, primetime WNBA is well worth watching.`\
 https://nytimes.com/athletic/6414491/2025/06/10/chicago-sky-new-york-liberty-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/world/europe/stephen-hubbard-russia-ukraine.html
 **Warner Bros. Discovery Bet on All You Can Eat. Viewers Wanted More à la Carte.**\
 `Subscribers to the company’s flagship streaming service, Max, watch HBO content, studio movies and older Warner Bros. series — and little else.`\
 https://nytimes.com/2025/06/10/business/media/hbo-max-warner-bros-discovery.html
-
-**A SoHo Studio to Enchant a Bride and Her Entourage**\
-`A dress designer needed a discreet live/work space to fit both sides of her life. After work, her personal apartment re-emerges.`\
-https://nytimes.com/2025/06/10/realestate/nyc-soho-studio-bridal-shop.html
 
