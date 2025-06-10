@@ -1,3 +1,7 @@
+**Yosemite Bans Large Flags From El Capitan, Criminalizing Protests**\
+`Violators could face up to six months in jail under the new rule, which appears to have been formalized last month.`\
+https://nytimes.com/2025/06/10/us/yosemite-flags-banned-el-capitan.html
+
 **How Many People Have Been Arrested Since the L.A. Protests Began?**\
 `Officers have arrested hundreds nationwide during protests against immigration raids. The demonstrations have remained largely peaceful, though some people have been injured.`\
 https://nytimes.com/2025/06/10/us/la-protest-arrests-immigration.html
