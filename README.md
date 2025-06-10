@@ -1,3 +1,7 @@
+**Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
+`Stanton will play in his first rehab game at Double-A Somerset on Tuesday night. `\
+https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
+
 **After 2020, Report Urged Caution in Deploying National Guard in L.A.**\
 `The city is now facing a real-world test of its policing strategies.`\
 https://nytimes.com/2025/06/10/us/la-protests-national-guard-2020.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417220/2025/06/10/raiders-minicamp-kolton-miller-c
 **Democrats Grill N.I.H. Leader on Cuts: Who Is Calling the Shots?**\
 `Senators criticized the head of the National Institutes of Health for not taking responsibility for Trump administration cuts to research funding.`\
 https://nytimes.com/2025/06/10/us/politics/nih-bhattacharya-congress-testimony.html
-
-**JK Dobbins signs with Broncos, bolstering running back position: Source**\
-`The Broncos add the veteran and former Charger to join second-round pick R.J. Harvey and other young running backs.`\
-https://nytimes.com/athletic/6417278/2025/06/10/jk-dobbins-denver-broncos-signing/
 
