@@ -1,3 +1,7 @@
+**Watch: Sue Bird discusses Caitlin Clark's elite passing, WNBA ownership**\
+`No Offseason interviews Sue Bird about the WNBA media, podcasting, team ownership and Caitlin Clark.`\
+https://nytimes.com/athletic/6415828/2025/06/10/sue-bird-no-offseason-caitlin-clark-wnba/
+
 **N.Y.P.D’s Cooperation With ICE Must Be Investigated, City Council Says**\
 `The Council made reference to concerns about whether the police had violated New York’s sanctuary laws by sharing information with federal authorities.`\
 https://nytimes.com/2025/06/10/nyregion/nypd-ice-investigation-city-council.html

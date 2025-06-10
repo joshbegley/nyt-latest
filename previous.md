@@ -10,7 +10,7 @@ https://nytimes.com/2025/06/10/arts/music/amplifier-newsletter-nature-bathing-pl
 `The France international has signed a five-year deal until 2030 and will be available to play for Pep Guardiola's side at the Club World Cup`\
 https://nytimes.com/athletic/6414418/2025/06/10/man-city-rayan-cherki-lyon/
 
-**Watch: Sue Bird discusses Caitlin Clark's passing and WNBA ownership**\
+**Watch: Sue Bird discusses Caitlin Clark's elite passing, WNBA ownership**\
 `No Offseason interviews Sue Bird about the WNBA media, podcasting, team ownership and Caitlin Clark.`\
 https://nytimes.com/athletic/6415828/2025/06/10/sue-bird-no-offseason-caitlin-clark-wnba/
 
