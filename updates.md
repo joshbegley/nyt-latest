@@ -1,3 +1,19 @@
+**In Santa Ana, an immigration raid sparks anger.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/in-santa-ana-an-immigration-raid-sparks-anger
+
+**gws-tonys-best-worst-moments**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gws-tonys-best-worst-moments
+
+**Marines Deployed by Trump Over Newsom’s Objections Arrive in L.A. Area**\
+`Hundreds of Marines arrived in the L.A. area, the U.S. Northern Command confirmed on Tuesday. Gov. Gavin Newsom of California has said deploying them on U.S. soil was illegal.`\
+https://nytimes.com/2025/06/10/us/marines-los-angeles-newsom.html
+
+**Bills running back James Cook reports to mandatory minicamp amid desire for new contract: Source**\
+`After missing the two weeks of practice during the Buffalo Bills&#8217; voluntary Organized Team Activities, top running back James Cook has reported to the team.`\
+https://nytimes.com/athletic/6416090/2025/06/10/bills-james-cook-reports-mandatory-minicamp-contract/
+
 **Marines Deployed by Trump Over Newsom’s Objections Arrive in L.A. area**\
 `Hundreds of Marines arrived in the L.A. area, the U.S. Northern Command confirmed on Tuesday. Gov. Gavin Newsom of California has said deploying them on U.S. soil was illegal.`\
 https://nytimes.com/2025/06/10/us/marines-los-angeles-newsom.html
