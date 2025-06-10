@@ -1,9 +1,17 @@
+**Here’s the latest.**\
+`By Jesus Jiménez, Orlando Mayorquín, Mimi Dwyer, Francesca Regalado and John Yoon`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/heres-the-latest
+
+**Live Updates: 700 Marines Head to L.A. After Night of Scattered Protests**\
+`President Trump ordered the Marines to Los Angeles as the police broke up demonstrations against his immigration crackdown. California’s governor called sending in the Marines “a blatant abuse of power.”`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump
+
 **British Government to Spend $19 Billion on New Nuclear Plant**\
 `The new project, called Sizewell C, will be expensive to build, but it will create 10,000 jobs and provide a steady supply of electric power for millions of homes.`\
 https://nytimes.com/2025/06/10/business/britain-nuclear-power-plant-sizewell.html
 
 **Immigration Protests Spread Beyond Los Angeles**\
-`People from cities across the country, from Austin to Washington, responded to the Trump administration’s immigration raids by hitting the streets.`\
+`People from cities across the United States have held protests in solidarity with those in Los Angeles against the Trump administration’s immigration raids.`\
 https://nytimes.com/video/us/100000010218583/immigration-protests-spread-beyond-los-angeles.html
 
 **Could NIL clearinghouse lead to return of the bag man in college sports?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6384447/2025/06/10/club-world-cup-group-h-guide-rea
 **Club World Cup Group G: A chance for Manchester City and Juventus to end the season positively?**\
 `Group G contains two European heavyweights, plus Moroccan side Wydad AC and 2024 Asian Champions League winners Al Ain`\
 https://nytimes.com/athletic/6384425/2025/06/10/club-world-cup-man-city-juventus/
-
-**What Carlos Alcaraz and Jannik Sinner's French Open final said about five-set tennis**\
-`A transcendent match could not have been so in a shorter format — but Sinner and Alcaraz's exploits are the exception, not the rule.`\
-https://nytimes.com/athletic/6413385/2025/06/10/tennis-best-of-five-grand-slam-good-bad/
-
-**Club World Cup Group B: Slick PSG and streetsmart Atletico Madrid light up 'Pool of Death'**\
-`Four daunting sides, including two current continental champions, promises to form one of the tournament's most intriguing sections`\
-https://nytimes.com/athletic/6406399/2025/06/10/club-world-cup-guide-group-b/
 

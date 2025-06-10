@@ -1,3 +1,15 @@
+**Protests spring up around the U.S. in solidarity with those in L.A.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/protests-spring-up-around-the-us-in-solidarity-with-those-in-la
+
+**Tudor to remain as Juventus coach for 2025-26 season**\
+`The 47-year-old was appointed by the club in March, replacing Thiago Motta who only lasted nine months in the role.`\
+https://nytimes.com/athletic/6415592/2025/06/10/igor-tudor-juventus-next-season/
+
+**Troops in Los Angeles**\
+`President Trump is sending hundreds of Marines into the area.`\
+https://nytimes.com/2025/06/10/briefing/marines-la-trump-newsom-immigration.html
+
 **Here’s the latest.**\
 `By Jesus Jiménez, Orlando Mayorquín, Mimi Dwyer, Francesca Regalado and John Yoon`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/heres-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6414561/2025/06/10/house-ncaa-settlement-clearingho
 **The Brad Marchand and Sam Bennett show just keeps rolling, much to the Panthers' advantage**\
 `Once Atlantic Division rivals, the pair of forwards are making NHL history with fantastic play through the first three games of the final.`\
 https://nytimes.com/athletic/6415297/2025/06/10/bennett-marchand-panthers-offensive-depth-stanley-cup-final/
-
-**The Pulse: Baseball’s top prospect is here**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6413803/2025/06/10/roman-anthony-call-up-the-pulse/
-
-**Club World Cup Group H: All eyes on Real Madrid's superstars, but are Al Hilal dark horses?**\
-`Real Madrid head up an intriguing group that also features Pachuca, Red Bull Salzburg and Saudi Pro League giants Al Hilal`\
-https://nytimes.com/athletic/6384447/2025/06/10/club-world-cup-group-h-guide-real-madrid/
-
-**Club World Cup Group G: A chance for Manchester City and Juventus to end the season positively?**\
-`Group G contains two European heavyweights, plus Moroccan side Wydad AC and 2024 Asian Champions League winners Al Ain`\
-https://nytimes.com/athletic/6384425/2025/06/10/club-world-cup-man-city-juventus/
 

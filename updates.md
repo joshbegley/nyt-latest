@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Jesus Jiménez, Orlando Mayorquín, Mimi Dwyer, Francesca Regalado and John Yoon`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/heres-the-latest
+
+**Live Updates: 700 Marines Head to L.A. After Night of Scattered Protests**\
+`President Trump ordered the Marines to Los Angeles as the police broke up demonstrations against his immigration crackdown. California’s governor called sending in the Marines “a blatant abuse of power.”`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump
+
+**Immigration Protests Spread Beyond Los Angeles**\
+`People from cities across the United States have held protests in solidarity with those in Los Angeles against the Trump administration’s immigration raids.`\
+https://nytimes.com/video/us/100000010218583/immigration-protests-spread-beyond-los-angeles.html
+
 **British Government to Spend $19 Billion on New Nuclear Plant**\
 `The new project, called Sizewell C, will be expensive to build, but it will create 10,000 jobs and provide a steady supply of electric power for millions of homes.`\
 https://nytimes.com/2025/06/10/business/britain-nuclear-power-plant-sizewell.html
