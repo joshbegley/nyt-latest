@@ -1,3 +1,19 @@
+**Key takeaways from F1's 2026 schedule: Streamlined start, a ratings test and a punishing close**\
+`A regional revamp leads to a grueling season finale and a curious Indy 500 clash. `\
+https://nytimes.com/athletic/6414615/2025/06/10/f1-schedule-release-2026-takeaways/
+
+**F1 reveals 2026 schedule: Canadian GP to clash with Indy 500; Madrid debuts in September**\
+`The 2026 F1 season, features a record-tying 24 races, three visits to the United States and a new grand prix in Madrid in September.`\
+https://nytimes.com/athletic/6414241/2025/06/10/f1-schedule-release-2026/
+
+**Tuesday Briefing**\
+`A lawsuit between California and President Trump.`\
+https://nytimes.com/2025/06/10/briefing/california-trump-gaza-ukraine.html
+
+**The New York Times in Print for Tuesday, June 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/10/todays-new-york-times
+
 **Kamari Doyle: What we learned from the Brighton youngster's season of two halves**\
 `The 19-year-old midfielder's loan at at Exeter fell flat but he excelled at Crawley`\
 https://nytimes.com/athletic/6328783/2025/06/10/kamari-doyle-brighton-loan/
