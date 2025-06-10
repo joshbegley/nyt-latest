@@ -1,3 +1,11 @@
+**Niede Guidon, 92, Archaeologist Who Preserved Prehistoric Rock Art, Dies**\
+`Her work in Brazil challenged the prevailing theory of when humans first arrived in the Americas and led to the development of a forgotten corner of the country.`\
+https://nytimes.com/2025/06/10/science/niede-guidon-dead.html
+
+**Broadway Musical ‘Smash’ to Close After Tonys Disappointment**\
+`The musical, which follows a group of theater artists putting on a show about Marilyn Monroe, opened in April to mixed reviews. It has struggled at the box office.`\
+https://nytimes.com/2025/06/10/theater/smash-broadway-closing.html
+
 **Hegseth Defended Troop Deployment to Los Angeles**\
 `Also, a school shooting in Austria was among Europe’s worst. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/06/10/briefing/los-angeles-troops-white-house-musk-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6417336/2025/06/10/dallas-cowboys-micah-parsons-con
 **Stuart Skinner wasn't at fault in Game 3, but Oilers need him back at his best**\
 `Skinner had his worst game since the first round of the playoffs in an all-around terrible outing for Edmonton. What next?`\
 https://nytimes.com/athletic/6417340/2025/06/10/stuart-skinner-oilers-stanley-cup-final-game-3/
-
-**Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
-`Stanton will play in his first rehab game at Double-A Somerset on Tuesday night. `\
-https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
-
-**After 2020, Report Urged Caution in Deploying National Guard in L.A.**\
-`The city is now facing a real-world test of its policing strategies.`\
-https://nytimes.com/2025/06/10/us/la-protests-national-guard-2020.html
 
