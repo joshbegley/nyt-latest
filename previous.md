@@ -1,3 +1,7 @@
+**This Is What Autocracy Looks Like**\
+`The president didn’t bother to wait for a crisis to launch an authoritarian crackdown.`\
+https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html
+
 **Read California’s Lawsuit Challenging Trump’s Mobilization of the National Guard**\
 `The lawsuit argues that President Trump’s federalization of the state’s National Guard was illegal because the move bypassed California’s governor, Gavin Newsom, and because it violated the Tenth Amendment, which protects state rights.`\
 https://nytimes.com/interactive/2025/06/09/us/ecf-1-complaint-ng.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/09/us/politics/trump-texas-redistricting.html
 **Record 2.4 million watched Texas' win over Texas Tech in Game 3 of WCWS**\
 `Every game of the series set records, making it the most-watched WCWS Finals in history.`\
 https://nytimes.com/athletic/6414764/2025/06/09/texas-wcws-most-watched-ever-texas-tech/
-
-**Labor Leader Arrested During Immigration Protest Is Released on Bond**\
-`Rallies across the country have been held in support of David Huerta, the president of the Service Employees International Union California, who was briefly hospitalized with a head injury after his arrest.`\
-https://nytimes.com/2025/06/09/us/david-huerta-union-leader-la-protest-court.html
 

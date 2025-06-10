@@ -1,3 +1,7 @@
+**This Is What Autocracy Looks Like**\
+`The president didn’t bother to wait for a crisis to launch an authoritarian crackdown.`\
+https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html
+
 **Read California’s Lawsuit Challenging Trump’s Mobilization of the National Guard**\
 `The lawsuit argues that President Trump’s federalization of the state’s National Guard was illegal because the move bypassed California’s governor, Gavin Newsom, and because it violated the Tenth Amendment, which protects state rights.`\
 https://nytimes.com/interactive/2025/06/09/us/ecf-1-complaint-ng.html
