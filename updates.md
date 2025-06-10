@@ -1,3 +1,19 @@
+**Listen: There were few positives from Manchester United’s 2024-25 season, but Harry Maguire was one of them**\
+`Talk of the Devils discuss why Harry Maguire can leave the 2024-25 season with his head held high.`\
+https://nytimes.com/athletic/6415536/2025/06/10/there-were-few-positives-from-manchester-uniteds-2024-25-season-but-harry-maguire-was-one-of-them/
+
+**The Dodgers are still the class of the NL West. The Padres aren’t ready to concede**\
+`The Padres showed they aren't going away in an 8-7 loss in 10 innings on Monday night.`\
+https://nytimes.com/athletic/6415381/2025/06/10/padres-dodgers-nl-west-result/
+
+**Clothes Fit for a Wonderland Tea Party**\
+`In a green silky jacket, bow tie and pants with a graphic print, a real estate agent looked as if he had traveled through the looking glass.`\
+https://nytimes.com/2025/06/10/style/street-style-look-wonderland-tea-party.html
+
+**Bellingham signs for Dortmund, will play in Club World Cup**\
+`The 19-year-old moves from Sunderland in a deal worth up to €38million (£32m; $43.3m).`\
+https://nytimes.com/athletic/6412365/2025/06/10/jobe-bellingham-dortmund-transfer-fee/
+
 **Minor given one-year stadium ban after racist abuse of Yamal in El Clasico**\
 `The individual has also been given “30 hours of socio-educational tasks”.`\
 https://nytimes.com/athletic/6415708/2025/06/10/lamine-yamal-racist-abuse-ban/
