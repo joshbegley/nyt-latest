@@ -1,3 +1,8 @@
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
 **Jobe Bellingham always wanted to avoid comparisons with Jude. Now, he is embracing them**\
 `Choosing Dortmund as his next club is a brave move for a player who has always been determined to carve his own path`\
 https://nytimes.com/athletic/6416052/2025/06/10/jobe-bellingham-jude-comparison-dortmund/
