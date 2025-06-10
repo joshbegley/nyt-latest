@@ -1,3 +1,7 @@
+**In first series at Petco Park since October, Dodgers claim tense Game 1: 'We'll take it'**\
+`Dave Roberts likened the rivalry to a "street fight," and Monday was a prime example, as both teams traded blows back and forth. `\
+https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return/
+
 **Word of the Day: aqueous**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
