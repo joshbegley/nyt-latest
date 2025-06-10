@@ -1,3 +1,7 @@
+**Panthers score early and often in penalty-filled Game 3 rout of Oilers: Takeaways**\
+`The Panthers scored within the first minute and barely let up after in a dominant Game 3 victory to take a 2-1 series lead.`\
+https://nytimes.com/athletic/6415121/2025/06/09/panthers-oilers-stanley-cup-final-2025-game-3-takeaways/
+
 **Roman Anthony collects first RBI in whirlwind MLB debut**\
 `Anthony picked up an RBI groundout as part of the Red Sox's two-run rally in the ninth in an eventual 10-8 loss in 11 innings.`\
 https://nytimes.com/athletic/6415024/2025/06/09/roman-anthony-mlb-debut-red-sox/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-s
 **US Women win TST title, $1 million prize for second straight year**\
 `Heather O'Reilly's squad included Carli Lloyd, Ali Krieger and Jill Loyden.`\
 https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysis/
-
-**Trump’s Crackdown on L.A. Protests Contrasts With His Jan. 6 Response**\
-`The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
-https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html
 
