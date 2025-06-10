@@ -1,3 +1,11 @@
+**43 thoughts on the Lions' offensive players**\
+`The Lions' Super Bowl window is wide open thanks to a prolific offense.`\
+https://nytimes.com/athletic/6414883/2025/06/10/detroit-lions-offense-jared-goff-amon-ra-st-brown/
+
+**The 25 Gardens You Must See**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-gardens-england-japan-france
+
 **China Sends Two Aircraft Carriers Into the Pacific for the First Time**\
 `By sending warships beyond Japan, the Chinese Navy is demonstrating its ability to project sea and air power far past its home waters.`\
 https://nytimes.com/2025/06/10/world/asia/china-aircraft-carriers.html
