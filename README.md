@@ -1,3 +1,7 @@
+** Dwyane Wade on Breaking Fashion Barriers**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dwyane-wade-players-magazine
+
 **gws-meghann-fahy-sirens**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/gws-meghann-fahy-sirens
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6416359/2025/06/10/milan-como-abroad-perth-australi
 **23andMe Customers Did Not Expect Their DNA Data Would Be Sold, Lawsuit Claims**\
 `The genetic-testing company, which collected DNA data from users, is for sale in bankruptcy court. Now, 27 states and the District of Columbia oppose selling the data without express consent.`\
 https://nytimes.com/2025/06/10/business/23andme-data-lawsuit.html
-
-**California seeks to limit the use of military forces deployed to Los Angeles.**\
-`By Laurel Rosenhall`\
-https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/california-seeks-to-limit-the-use-of-military-forces-deployed-to-los-angeles
 
