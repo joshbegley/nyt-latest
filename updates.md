@@ -1,3 +1,12 @@
+**Defying Trump’s Firing, Smithsonian Says It Controls Personnel Decisions**\
+`The Smithsonian is challenging the president’s authority to dismiss the leader of the National Portrait Gallery but says it will look into his complaints.`\
+https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
+
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
 `The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
 `\

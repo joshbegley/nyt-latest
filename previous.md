@@ -1,3 +1,7 @@
+**Defying Trump’s Firing, Smithsonian Says It Controls Personnel Decisions**\
+`The Smithsonian is challenging the president’s authority to dismiss the leader of the National Portrait Gallery but says it will look into his complaints.`\
+https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
+
 **New York Moves to Allow Terminally Ill People to Die on Their Own Terms**\
 `A bill permitting so-called medical aid in dying passed the State Legislature and will now head to Gov. Kathy Hochul for her signature.`\
 https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.html
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/eric-ad
 **Trump and Newsom Skewer Each Other After National Guard Deployment**\
 `President Trump said that Gov. Gavin Newsom should be arrested for his governance of California, while Mr. Newsom issued a barrage of retorts online.`\
 https://nytimes.com/2025/06/09/us/trump-newsom-protests-california.html
-
-**Two Are Charged With Stalking an Artist Who Criticized Xi Jinping**\
-`The two men also unsuccessfully tried to illegally export sensitive U.S. military technology to China, prosecutors said.`\
-https://nytimes.com/2025/06/09/us/politics/los-angeles-artist-harassed-criticized-xi-jinping.html
 
