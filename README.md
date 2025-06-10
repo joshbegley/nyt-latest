@@ -11,7 +11,7 @@ https://nytimes.com/2025/06/10/world/europe/northern-ireland-riot.html
 `His 35 sacks over the past two seasons are the most in the NFL, and he earned first-team All-Pro honors last season.`\
 https://nytimes.com/athletic/6415875/2025/06/10/trey-hendrickson-bengals-minicamp-contract/
 
-**Britain and Canada Set to Sanction Far-Right Israeli Cabinet Ministers**\
+**U.K. and Canada Set to Impose Sanctions on Far-Right Israeli Ministers**\
 `The coordinated move, which other Western nations may also join, highlights the hardening of several countries’ stance toward Israel amid the humanitarian crisis in Gaza.`\
 https://nytimes.com/2025/06/10/world/canada/britain-canada-sanctions-israel-smotrich-ben-gvir.html
 

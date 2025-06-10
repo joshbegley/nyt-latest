@@ -1,3 +1,28 @@
+**Introducing the Great Wealth Transfer**\
+`Get ready for the biggest migration of assets in history between generations. 
+`\
+https://nytimes.com/paidpost/2025-04-21/.html
+
+**Homes and Shops Burn in Northern Ireland in Riot Over Sexual Assault Case**\
+`The police said that attacks on houses and businesses in the town of Ballymena were being investigated as racially motivated, and that 15 officers had been injured.`\
+https://nytimes.com/2025/06/10/world/europe/northern-ireland-riot.html
+
+**Trey Hendrickson not reporting to Bengals' minicamp amid contract standoff**\
+`His 35 sacks over the past two seasons are the most in the NFL, and he earned first-team All-Pro honors last season.`\
+https://nytimes.com/athletic/6415875/2025/06/10/trey-hendrickson-bengals-minicamp-contract/
+
+**Britain and Canada Set to Sanction Far-Right Israeli Cabinet Ministers**\
+`The coordinated move, which other Western nations may also join, highlights the hardening of several countries’ stance toward Israel amid the humanitarian crisis in Gaza.`\
+https://nytimes.com/2025/06/10/world/canada/britain-canada-sanctions-israel-smotrich-ben-gvir.html
+
+**Why the Ravens should explore adding CB Jaire Alexander following his release**\
+`Baltimore abides by the belief that you can never have enough corners, and Alexander is an accomplished vet who would bolster the secondary.`\
+https://nytimes.com/athletic/6415284/2025/06/10/ravens-jaire-alexander-cornerback-roster-player/
+
+**Giants pitching is better than advertised, and here's what else I learned after three months away**\
+`Here are a few takeaways after watching the Giants win five consecutive one-run games against the San Diego Padres and Atlanta Braves.`\
+https://nytimes.com/athletic/6415333/2025/06/10/giants-takeaways-pitching-camilo-doval/
+
 **Steelers' T.J. Watt not expected to attend minicamp: Sources**\
 `Watt's decision could mark Day 1 of a long staring contest between the Steelers and their star pass rusher.`\
 https://nytimes.com/athletic/6415849/2025/06/10/tj-watt-steelers-contract-news/
@@ -13,28 +38,4 @@ https://nytimes.com/athletic/6415381/2025/06/10/padres-dodgers-nl-west-result/
 **Clothes Fit for a Wonderland Tea Party**\
 `In a green silky jacket, bow tie and pants with a graphic print, a real estate agent looked as if he had traveled through the looking glass.`\
 https://nytimes.com/2025/06/10/style/street-style-look-wonderland-tea-party.html
-
-**Minor given one-year stadium ban after racist abuse of Yamal in El Clasico**\
-`The individual has also been given “30 hours of socio-educational tasks”.`\
-https://nytimes.com/athletic/6415708/2025/06/10/lamine-yamal-racist-abuse-ban/
-
-**Bellingham signs for Dortmund, will play in Club World Cup**\
-`The 19-year-old moves from Sunderland in a deal worth up to €38million (£32m; $43.3m).`\
-https://nytimes.com/athletic/6412365/2025/06/10/jobe-bellingham-dortmund-transfer-fee/
-
-**For Connor McDavid and the Oilers, a new 'dig in' moment arrives: 'It's coming'**\
-`Following a big loss in Game 3, Connor McDavid intends to let his play do the talking in pivotal Game 4.`\
-https://nytimes.com/athletic/6415335/2025/06/10/connor-mcdavid-oilers-panthers-nhl-playoffs/
-
-**Al Hilal in talks to sign Kante on loan deal for Club World Cup**\
-`Both Saudi Pro League clubs have been owned by the country's Public Investment Fund since 2023, when Kante moved to the league.`\
-https://nytimes.com/athletic/6415758/2025/06/10/kante-al-hilal-ittihad-club-world-cup/
-
-**NASCAR Mexico City track breakdown: A look at the Cup Series' international circuit**\
-`¡Vamos! NASCAR brings its premier Cup Series south of the border this week for its first international points race since 1958, as well as the first-ever Cup Series event in Mexico.`\
-https://nytimes.com/athletic/6414387/2025/06/10/nascar-mexico-city-track-breakdown-cup-series-circuit/
-
-**U.N. Agency Suspects North Korea Is Building New Uranium-Enrichment Site**\
-`​The nuclear energy agency noted the construction of a site similar to current plants, as Kim Jong-un has been pushing to produce more fuel for nuclear bombs.`\
-https://nytimes.com/2025/06/10/world/asia/north-korea-nuclear-uranium.html
 
