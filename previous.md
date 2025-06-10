@@ -1,3 +1,27 @@
+**Maps: 3.3-Magnitude Earthquake Strikes Near Los Angeles**\
+`View the location of the quake’s epicenter and aftershocks.`\
+https://nytimes.com/interactive/2025/06/10/us/earthquake-los-angeles-tracker.html
+
+**Patriots WR Stefon Diggs mum on viral video, but excited to play for Mike Vrabel**\
+`The new Patriots wide receiver said conversations about the unknown substance in the video would stay between him, Vrabel and the team.`\
+https://nytimes.com/athletic/6416958/2025/06/10/stefon-diggs-patriots-viral-video-vrabel/
+
+**WATCH: Why this stat is key for the winners in the NBA Finals**\
+`The team that gets into the paint more has won the first two games of these NBA Finals. Here's why that should continue.`\
+https://nytimes.com/athletic/6417054/2025/06/10/nba-finals-2025-pacers-thunder-analysis-video/
+
+**Leeds optimism on Bijol transfer, Diarra bid and Longstaff interest**\
+`There is less confidence at Elland Road on signing Strasbourg midfielder Habib Diarra, despite lodging a bid of €26m (£22m).`\
+https://nytimes.com/athletic/6417066/2025/06/10/leeds-transfer-news-bijol-diarra-longstaff/
+
+**Eagles mailbag: Submit your questions to Brooks Kubena**\
+`Submit your Eagles questions to Brooks Kubena.`\
+https://nytimes.com/athletic/6417060/2025/06/10/eagles-minicamp-mailbag-questions/
+
+**Consumer Bureau Official Quits, Citing ‘Attack’ on Agency’s Mission**\
+`The Trump administration has frozen the agency’s work and abandoned most of its lawsuits against banks and lenders.`\
+https://nytimes.com/2025/06/10/us/politics/consumer-bureau-trump.html
+
 ** Dwyane Wade on Breaking Fashion Barriers**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dwyane-wade-players-magazine
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/10/business/media/la-protests-dr-phil.html
 **Carbon Capture Comes Back Down to Earth**\
 `Billions have been invested in technologies to remove carbon dioxide from the sky in recent years. But Trump’s policies have clouded the outlook.`\
 https://nytimes.com/2025/06/10/climate/carbon-capture-comes-back-down-to-earth.html
-
-**Hamburg Ballet’s Artistic Director Leaves After Just 10 Months**\
-`Weeks after dancers accused Demis Volpi of creating a “toxic working environment” at the company, he has agreed to depart.`\
-https://nytimes.com/2025/06/10/arts/dance/hamburg-ballet-crisis-demis-volpi.html
-
-**U.S. Open pool picks: Scottie Scheffler, Ben Griffin, Sam Burns among the picks**\
-`Oakmont sets a tough test this weekend. Here are six players who could go the distance.`\
-https://nytimes.com/athletic/6416783/2025/06/10/2025-us-open-pool-picks/
-
-**Prime Tire: F1 takes on the Indy 500? Yikes. Plus, meet Red Bull's top prospect**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6416939/2025/06/10/f1-schedule-release-indy-500-prime-tire/
-
-**Bryson DeChambeau hopes to renegotiate new LIV Golf contract in 2026**\
-`“They see the value in me. I see the value in what they can provide," DeChambeau said of LIV Golf.`\
-https://nytimes.com/athletic/6416955/2025/06/10/bryson-dechambeau-liv-golf-contract/
-
-**Serie A in talks to play Milan vs Como in Australia**\
-`European domestic fixtures could not be played abroad until a lawsuit between Relevent and the U.S Soccer Federation was settled in April. `\
-https://nytimes.com/athletic/6416359/2025/06/10/milan-como-abroad-perth-australia/
-
-**23andMe Customers Did Not Expect Their DNA Data Would Be Sold, Lawsuit Claims**\
-`The genetic-testing company, which collected DNA data from users, is for sale in bankruptcy court. Now, 27 states and the District of Columbia oppose selling the data without express consent.`\
-https://nytimes.com/2025/06/10/business/23andme-data-lawsuit.html
 
