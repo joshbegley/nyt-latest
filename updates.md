@@ -1,3 +1,15 @@
+**Bryson DeChambeau hopes to renegotiate new LIV Golf contract in 2026**\
+`“They see the value in me. I see the value in what they can provide," DeChambeau said of LIV Golf.`\
+https://nytimes.com/athletic/6416955/2025/06/10/bryson-dechambeau-liv-golf-contract/
+
+**Serie A in talks to play Milan vs Como in Australia**\
+`European domestic fixtures could not be played abroad until a lawsuit between Relevent and the U.S Soccer Federation was settled in April. `\
+https://nytimes.com/athletic/6416359/2025/06/10/milan-como-abroad-perth-australia/
+
+**23andMe Customers Did Not Expect Their DNA Data Would Be Sold, Lawsuit Claims**\
+`The genetic-testing company, which collected DNA data from users, is for sale in bankruptcy court. Now, 27 states and the District of Columbia oppose selling the data without express consent.`\
+https://nytimes.com/2025/06/10/business/23andme-data-lawsuit.html
+
 **California seeks to limit the use of military forces deployed to Los Angeles.**\
 `By Laurel Rosenhall`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/california-seeks-to-limit-the-use-of-military-forces-deployed-to-los-angeles
