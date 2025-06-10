@@ -1,3 +1,7 @@
+**In first series at Petco Park since October, Dodgers claim tense Game 1: 'We'll take it'**\
+`Dave Roberts likened the rivalry to a "street fight," and Monday was a prime example, as both teams traded blows back and forth. `\
+https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return/
+
 **Word of the Day: aqueous**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/10/learning/word-of-the-day-aqueous.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6309683/2025/06/10/aston-villa-long-diatance-suppor
 **The first task facing the next Spurs manager: Connect with players like Postecoglou did**\
 `The messages shared by the Tottenham players on social media following Postecoglou's departure spoke for the affection many held for him`\
 https://nytimes.com/athletic/6413813/2025/06/10/postecoglou-players-frank/
-
-**Inside Mamelodi Sundowns: The journey to the Club World Cup**\
-`In the second part of our series, The Athletic finds out how Mamelodi Sundowns are preparing for this month's Club World Cup in the U.S.`\
-https://nytimes.com/athletic/6407917/2025/06/10/inside-mamelodi-sundowns-the-journey-to-the-club-world-cup/
 
