@@ -1,3 +1,7 @@
+**Trump’s Crackdown on L.A. Protests Contrasts With His Jan. 6 Response**\
+`The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
+https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html
+
 **Pentagon Mobilizes 700 Marines to Join Federal Response in Los Angeles**\
 `The move, along with a doubling of National Guard troops, came even as President Trump said the protests were under control and Gov. Gavin Newsom condemned the Marine deployment as a “provocation.”`\
 https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
