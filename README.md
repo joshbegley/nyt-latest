@@ -2,8 +2,8 @@
 `The individual has also been given “30 hours of socio-educational tasks”.`\
 https://nytimes.com/athletic/6415708/2025/06/10/lamine-yamal-racist-abuse-ban/
 
-**Dortmund sign Sunderland's Bellingham in €38m transfer**\
-`The Bundesliga side will pay an upfront fee of between €30m-€33m for the 19-year-old, topped up by potential add-ons.`\
+**Bellingham signs for Dortmund, will play in Club World Cup**\
+`The 19-year-old moves from Sunderland in a deal worth up to €38million (£32m; $43.3m).`\
 https://nytimes.com/athletic/6412365/2025/06/10/jobe-bellingham-dortmund-transfer-fee/
 
 **For Connor McDavid and the Oilers, a new 'dig in' moment arrives: 'It's coming'**\
