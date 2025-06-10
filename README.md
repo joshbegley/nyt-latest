@@ -1,3 +1,15 @@
+**How ‘Ballerina’ Set People on Fire**\
+`Ana de Armas wields a flamethrower in “From the World of John Wick: Ballerina” and torches, well, a lot. Here’s how they made that sequence come to life. (And yes, the flames are mostly real.)`\
+https://nytimes.com/2025/06/10/movies/ballerina-flamethower-scene.html
+
+**Transfers TLDR: Jobe Bellingham to Borussia Dortmund – all you need to know**\
+`Jobe Bellingham's move to Borussia Dortmund from Sunderland has been confirmed — this is everything you need to know`\
+https://nytimes.com/athletic/6416078/2025/06/10/jobe-bellingham-borussia-dortmund-sunderland-transfer/
+
+**Montreal Canadiens defenseman Lane Hutson wins Calder Trophy as NHL's top rookie**\
+`The 21-year-old Michigan native edged out Calgary Flames goaltender Dustin Wolf and San Jose Sharks center Macklin Celebrini for the honor.`\
+https://nytimes.com/athletic/6398530/2025/06/10/lane-hutson-calder-trophy-nhl-rookie-of-the-year/
+
 **Palestinian Authority President Says Hamas Must Exit Gaza**\
 `Mahmoud Abbas gave assurances to President Emmanuel Macron of France, who has set conditions for possible recognition of a Palestinian state at a U.N. conference next week.`\
 https://nytimes.com/2025/06/10/world/middleeast/palestinian-authority-abbas-hamas-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010196512/ice-immigrant-arrests-miami.html
 **Sauce Gardner present at Jets minicamp while waiting on new contract: Sources**\
 `Gardner and wide receiver Garrett Wilson are both eligible for contract extensions for the first time.`\
 https://nytimes.com/athletic/6416040/2025/06/10/new-york-jets-sauce-gardner-garrett-wilson-contract-otas/
-
-**Challenging the Playbook **\
-`Cam Jordan and Jessica Hawk team up to discuss the connections between business and sports-on and off the field. `\
-https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook.html
-
-**European Union Unveils Fresh Sanctions on Russia, Including a Nord Stream Ban**\
-`Ursula von der Leyen, president of the European Commission, announced a proposal meant to ramp up pressure on Moscow.`\
-https://nytimes.com/2025/06/10/world/europe/european-union-sanctions-russia.html
-
-**Guardiola gives emotional speech on suffering in Gaza**\
-`“It's so painful what we see in Gaza. It hurts all my body,” Guardiola said.`\
-https://nytimes.com/athletic/6415561/2025/06/10/pep-guardiola-gaza-israel/
 

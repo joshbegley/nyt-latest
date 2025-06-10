@@ -1,3 +1,11 @@
+**Palestinian Authority President Says Hamas Must Exit Gaza**\
+`Mahmoud Abbas gave assurances to President Emmanuel Macron of France, who has set conditions for possible recognition of a Palestinian state at a U.N. conference next week.`\
+https://nytimes.com/2025/06/10/world/middleeast/palestinian-authority-abbas-hamas-gaza.html
+
+**Dan Orlovsky and ESPN in agreement on a new deal: Sources**\
+`Under the new deal, Orlovsky will continue on NFL Live, "Monday Night Football" and all of his other daily talk show appearances.`\
+https://nytimes.com/athletic/6416111/2025/06/10/dan-orlovsky-espn-new-deal-nfl/
+
 **F.D.A. Looks to A.I. to Enhance Efficiency**\
 `With a Trump-driven reduction of nearly 2,000 employees, agency officials view artificial intelligence as a way to speed drugs to the market.`\
 https://nytimes.com/2025/06/10/health/fda-drug-approvals-artificial-intelligence.html
