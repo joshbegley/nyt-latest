@@ -1,3 +1,7 @@
+**With Sirens Screeching and Explosions in the Sky, Kyiv Struggles to Sleep**\
+`Moscow has stepped up drone and missile attacks despite U.S. pressure to work toward a cease-fire. The strikes intensified after a wave of Ukrainian drone attacks on Russia on June 1.`\
+https://nytimes.com/2025/06/10/world/europe/russia-drone-attack-ukraine-kyiv.html
+
 **How Long Does It Take to Draw a Picture of Every Pub in London?**\
 `That’s the challenge Lydia Wood, 31, has set herself. In the process, she is creating an archive of an important part of the city’s nightlife.`\
 https://nytimes.com/2025/06/10/world/europe/artist-pub-london-wood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/technology/la-protests-conspiracy-theories-disinf
 **A Proposal to Give Voters the Power to Oust a N.Y.C. Mayor**\
 `Right now, only the governor can remove a mayor. A City Council commission favors another route.`\
 https://nytimes.com/2025/06/10/nyregion/mayor-removal-new-york.html
-
-**Pierre Huyghe’s Bracing Dark Mirror of A.I. Has Its U.S. Debut**\
-`The lauded French artist’s A.I.-generated videos, on view at the Marian Goodman Gallery, portray a human-machine connection through otherworldly imagery.`\
-https://nytimes.com/2025/06/10/arts/design/pierre-huyghe-goodman-gallery-ai-art-video.html
 
