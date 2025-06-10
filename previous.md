@@ -1,3 +1,7 @@
+**Who Is David Huerta, the Labor Leader Arrested in Los Angeles?**\
+`A well-known figure in the California labor movement for decades, he is now the president of the Service Employees International Union of California.`\
+https://nytimes.com/2025/06/09/us/david-huerta-labor-leader-los-angeles.html
+
 **College World Series field set: Hello Murray State! Racers crash 8-team field**\
 `Only three of the eight national seeds and five of the top 16 seeds overall advanced to the College World Series.`\
 https://nytimes.com/athletic/6414580/2025/06/09/college-world-series-omaha-bracket-field-2-2/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
 https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.html
 
 **Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
-`The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
+`The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
 `\
 https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
 
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
 **This Is What Autocracy Looks Like**\
 `The president didn’t bother to wait for a crisis to launch an authoritarian crackdown.`\
 https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html
-
-**Read California’s Lawsuit Challenging Trump’s Mobilization of the National Guard**\
-`The lawsuit argues that President Trump’s federalization of the state’s National Guard was illegal because the move bypassed California’s governor, Gavin Newsom, and because it violated the Tenth Amendment, which protects state rights.`\
-https://nytimes.com/interactive/2025/06/09/us/ecf-1-complaint-ng.html
 
