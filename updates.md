@@ -1,3 +1,7 @@
+**Terry McLaurin not attending minicamp amid contract frustrations: Sources**\
+`McLaurin skipped OTAs and minicamp three years ago before he inked his last extension.`\
+https://nytimes.com/athletic/6415945/2025/06/10/terry-mclaurin-commanders-contract-minicamp/
+
 **Red Bull junior Lindblad, 17, receives F1 super license**\
 `Lindblad is currently third in the Formula Two standings with two wins.`\
 https://nytimes.com/athletic/6415895/2025/06/10/arvid-lindbland-red-bull-super-license/

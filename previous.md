@@ -1,3 +1,7 @@
+**Terry McLaurin not attending minicamp amid contract frustrations: Sources**\
+`McLaurin skipped OTAs and minicamp three years ago before he inked his last extension.`\
+https://nytimes.com/athletic/6415945/2025/06/10/terry-mclaurin-commanders-contract-minicamp/
+
 **Red Bull junior Lindblad, 17, receives F1 super license**\
 `Lindblad is currently third in the Formula Two standings with two wins.`\
 https://nytimes.com/athletic/6415895/2025/06/10/arvid-lindbland-red-bull-super-license/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6415333/2025/06/10/giants-takeaways-pitching-camilo
 **Steelers' T.J. Watt not expected to attend minicamp: Sources**\
 `Watt's decision could mark Day 1 of a long staring contest between the Steelers and their star pass rusher.`\
 https://nytimes.com/athletic/6415849/2025/06/10/tj-watt-steelers-contract-news/
-
-**Listen: There were few positives from Manchester United’s 2024-25 season, but Harry Maguire was one of them**\
-`Talk of the Devils discuss why Harry Maguire can leave the 2024-25 season with his head held high.`\
-https://nytimes.com/athletic/6415536/2025/06/10/there-were-few-positives-from-manchester-uniteds-2024-25-season-but-harry-maguire-was-one-of-them/
 
