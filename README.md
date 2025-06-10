@@ -1,3 +1,11 @@
+**A lawyer says some immigrants detained in L.A. raids have been deported.**\
+`Immigrant rights lawyers said on Tuesday that they had been unable to learn where there clients were being held or how their cases were proceeding. .`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/a-lawyer-says-some-immigrants-detained-in-la-raids-have-been-deported
+
+**Justice Dept. Seeks to Pause Ruling Ordering Due Process for Deported Venezuelans**\
+`The emergency request came a day before the Trump administration was supposed to outline how to allow nearly 140 Venezuelans deported to El Salvador to challenge their expulsion.`\
+https://nytimes.com/2025/06/10/us/politics/trump-venezuelans-deportations-el-salvador-boasberg.html
+
 **A Political Titan in Argentina Is Sentenced to Prison**\
 `The Supreme Court confirmed a corruption conviction against Cristina Fernández de Kirchner, a former president, cementing a six-year sentence from a lower court and blocking her planned political comeback.`\
 https://nytimes.com/2025/06/10/world/americas/argentina-cristina-kirchner-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6417054/2025/06/10/nba-finals-2025-pacers-thunder-a
 **Leeds optimism on Bijol transfer, Diarra bid and Longstaff interest**\
 `There is less confidence at Elland Road on signing Strasbourg midfielder Habib Diarra, despite lodging a bid of €26m (£22m).`\
 https://nytimes.com/athletic/6417066/2025/06/10/leeds-transfer-news-bijol-diarra-longstaff/
-
-**Eagles mailbag: Submit your questions to Brooks Kubena**\
-`Submit your Eagles questions to Brooks Kubena.`\
-https://nytimes.com/athletic/6417060/2025/06/10/eagles-minicamp-mailbag-questions/
-
-**Consumer Bureau Official Quits, Citing ‘Attack’ on Agency’s Mission**\
-`The Trump administration has frozen the agency’s work and abandoned most of its lawsuits against banks and lenders.`\
-https://nytimes.com/2025/06/10/us/politics/consumer-bureau-trump.html
 
