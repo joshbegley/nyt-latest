@@ -1,3 +1,7 @@
+**Ranieri turns down Italian national team job**\
+`Luciano Spalletti said on Sunday he had been sacked after a 3-0 defeat to Norway on Friday.`\
+https://nytimes.com/athletic/6412064/2025/06/10/claudio-ranieri-italy-manager/
+
 **Lyon agree deal to sign USMNT goalkeeper Turner from Nottm Forest**\
 `The two clubs have agreed a fee of €8million (£6.74m) for the 30-year-old.`\
 https://nytimes.com/athletic/6414797/2025/06/10/matt-turner-lyon-nottingham-forest-transfers/
