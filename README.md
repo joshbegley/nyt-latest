@@ -1,3 +1,19 @@
+**Full Time: US Women won $1M tonight. Huh?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6415141/2025/06/10/tst-us-women-evelyn-shores-full-time/
+
+**Finding God, and Nietzsche, in the Hamas Tunnels of Gaza**\
+`How Omer Shem Tov, who was 20 years old and not particularly religious when taken hostage, survived 505 days in captivity.`\
+https://nytimes.com/2025/06/10/world/middleeast/hostages-god-gaza-tunnels.html
+
+**Connections: Sports Edition Coach: Hints for June 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6414817/2025/06/10/connections-sports-edition-hints-for-june-10-2025/
+
+**Corrections: June 10, 2025**\
+`Corrections that appeared in print on Tuesday, June 10, 2025.`\
+https://nytimes.com/2025/06/10/pageoneplus/corrections-june-10-2025.html
+
 **Quote of the Day: Life in Crimea: Sunny Beaches And Raid Sirens**\
 `Quotation of the Day for Tuesday, June 10, 2025.`\
 https://nytimes.com/2025/06/09/pageoneplus/quote-of-the-day-life-in-crimea-sunny-beaches-and-raid-sirens.html
@@ -21,21 +37,4 @@ https://nytimes.com/2025/06/09/us/david-huerta-labor-leader-los-angeles.html
 **College World Series field set: Hello Murray State! Racers crash 8-team field**\
 `Only three of the eight national seeds and five of the top 16 seeds overall advanced to the College World Series.`\
 https://nytimes.com/athletic/6414580/2025/06/09/college-world-series-omaha-bracket-field-2-2/
-
-**Occasion for Toasts**\
-`Zachary David Levy dials it up.`\
-https://nytimes.com/2025/06/09/crosswords/daily-puzzle-2025-06-10.html
-
-**In Challenge to Trump, Smithsonian Says It Controls Personnel Decisions**\
-`The Smithsonian says it retains the authority over personnel such as the director of the National Portrait Gallery, whose firing the president had announced.`\
-https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
-
-**New York Moves to Allow Terminally Ill People to Die on Their Own Terms**\
-`A bill permitting so-called medical aid in dying passed the State Legislature and will now head to Gov. Kathy Hochul for her signature.`\
-https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.html
-
-**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
-`The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
-`\
-https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
 
