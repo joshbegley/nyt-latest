@@ -1,3 +1,7 @@
+**Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
+`Stanton will play in his first rehab game at Double-A Somerset on Tuesday night. `\
+https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
+
 **After 2020, Report Urged Caution in Deploying National Guard in L.A.**\
 `The city is now facing a real-world test of its policing strategies.`\
 https://nytimes.com/2025/06/10/us/la-protests-national-guard-2020.html
