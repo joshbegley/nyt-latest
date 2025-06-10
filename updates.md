@@ -1,3 +1,7 @@
+**L.A. Protests Prompt Calls for Police Restraint After Journalist Injuries**\
+`The L.A.P.D. and L.A. County Sheriff said they were reviewing incidents in which journalists have been struck by projectiles fired by the police.`\
+https://nytimes.com/2025/06/10/us/la-protests-journalist-injuries-police.html
+
 **Why Micah Parsons is attending Cowboys minicamp while seeking new contract**\
 `The star pass rusher attended Cowboys minicamp on Tuesday, but did not take part in drills with back tightness.`\
 https://nytimes.com/athletic/6417336/2025/06/10/dallas-cowboys-micah-parsons-contract-minicamp/
