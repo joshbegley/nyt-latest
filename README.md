@@ -1,3 +1,7 @@
+**Sly Stone’s Fabulous Style**\
+`It wasn’t just about the fringe and the bling.`\
+https://nytimes.com/2025/06/10/style/sly-stone-fashion.html
+
 **An Inside Look at How ICE’s Mission Is Expanding**\
 `Hamed Aleaziz, a New York Times immigration reporter, traveled to Miami to observe how immigrant arrest operations have changed under pressure from the Trump administration.`\
 https://nytimes.com/video/us/100000010196512/ice-immigrant-arrests-miami.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/special-series/jacques-pepin-cooking-history.html
 **CWM and the Great Wealth Transfer VPP**\
 `Get ready for the biggest migration of assets in history between generations. `\
 https://nytimes.com/paidpost/citizens-wealth-management/cwm-and-the-great-wealth-transfer-vpp.html
-
-**Celtic confirm Tierney signing on free transfer from Arsenal**\
-`The 28-year-old joined Arsenal from Celtic in 2019 and won the FA Cup in 2020.`\
-https://nytimes.com/athletic/6127121/2025/06/10/kieran-tierney-arsenal-celtic/
 
