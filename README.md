@@ -1,3 +1,15 @@
+**Listen: There were few positives from Manchester United’s 2024-25 season, but Harry Maguire was one of them**\
+`Talk of the Devils discuss why Harry Maguire can leave the 2024-25 season with his head held high.`\
+https://nytimes.com/athletic/6415536/2025/06/10/there-were-few-positives-from-manchester-uniteds-2024-25-season-but-harry-maguire-was-one-of-them/
+
+**The Dodgers are still the class of the NL West. The Padres aren’t ready to concede**\
+`The Padres showed they aren't going away in an 8-7 loss in 10 innings on Monday night.`\
+https://nytimes.com/athletic/6415381/2025/06/10/padres-dodgers-nl-west-result/
+
+**Clothes Fit for a Wonderland Tea Party**\
+`In a green silky jacket, bow tie and pants with a graphic print, a real estate agent looked as if he had traveled through the looking glass.`\
+https://nytimes.com/2025/06/10/style/street-style-look-wonderland-tea-party.html
+
 **Minor given one-year stadium ban after racist abuse of Yamal in El Clasico**\
 `The individual has also been given “30 hours of socio-educational tasks”.`\
 https://nytimes.com/athletic/6415708/2025/06/10/lamine-yamal-racist-abuse-ban/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/10/world/asia/north-korea-nuclear-uranium.html
 **Trump Administration Live Updates: President to Attend Army Celebrations at Fort Bragg**\
 ``\
 https://nytimes.com/live/2025/06/10/us/trump-news
-
-**Could Blue Jackets pursue Mitch Marner via free agency? They've tried before**\
-`Columbus isn't exactly the betting favorite to become Marner's free-agency destination, but the match could make sense.`\
-https://nytimes.com/athletic/6414373/2025/06/10/blue-jackets-mitch-marner-free-agency/
-
-**What I'm hearing about Kris Letang's future with the Penguins**\
-`Letang's play is fading, but he still has three years remaining on his contract. How will the Penguins handle him going forward?`\
-https://nytimes.com/athletic/6411139/2025/06/10/penguins-kris-letang-trade-contract/
-
-**49ers rookie returner Junior Bergen has big goals, out to prove he has the 'it' factor**\
-`The 49ers haven't returned a punt for a touchdown since 2011. Can Bergen, who returned eight punts for a score in college, end that streak?`\
-https://nytimes.com/athletic/6414638/2025/06/10/49ers-junior-bergen-kick-punt-returner/
 
