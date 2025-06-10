@@ -1,3 +1,15 @@
+**California seeks to limit the use of military forces deployed to Los Angeles.**\
+`By Laurel Rosenhall`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/california-seeks-to-limit-the-use-of-military-forces-deployed-to-los-angeles
+
+**175 Writing Prompts to Spark Discussion and Reflection**\
+`Here are all of our Student Opinion questions from the 2024-25 school year. Each question is based on a different New York Times article, interactive feature or video.`\
+https://nytimes.com/2025/06/10/learning/175-writing-prompts-to-spark-discussion-and-reflection.html
+
+**Rayan Cherki to Manchester City: Transfers TLDR**\
+`The France forward's move to the Etihad Stadium from Lyon has been confirmed - this is everything you need to know...`\
+https://nytimes.com/athletic/6416734/2025/06/10/rayan-cherki-to-manchester-city-transfers-tldr/
+
 **Protest Over Sexual Assault Case in Northern Ireland Turns Violent**\
 `Officials said they were investigating the attacks on businesses and houses in Ballymena as racially motivated.`\
 https://nytimes.com/video/world/europe/100000010219690/northern-ireland-racial-violence-protests.html

@@ -1,3 +1,15 @@
+**Bryson DeChambeau hopes to renegotiate new LIV Golf contract in 2026**\
+`“They see the value in me. I see the value in what they can provide," DeChambeau said of LIV Golf.`\
+https://nytimes.com/athletic/6416955/2025/06/10/bryson-dechambeau-liv-golf-contract/
+
+**Serie A in talks to play Milan vs Como in Australia**\
+`European domestic fixtures could not be played abroad until a lawsuit between Relevent and the U.S Soccer Federation was settled in April. `\
+https://nytimes.com/athletic/6416359/2025/06/10/milan-como-abroad-perth-australia/
+
+**23andMe Customers Did Not Expect Their DNA Data Would Be Sold, Lawsuit Claims**\
+`The genetic-testing company, which collected DNA data from users, is for sale in bankruptcy court. Now, 27 states and the District of Columbia oppose selling the data without express consent.`\
+https://nytimes.com/2025/06/10/business/23andme-data-lawsuit.html
+
 **California seeks to limit the use of military forces deployed to Los Angeles.**\
 `By Laurel Rosenhall`\
 https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/california-seeks-to-limit-the-use-of-military-forces-deployed-to-los-angeles
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010217680/a-look-at-the-crackdown-on
 **Michael Bloomberg Endorses Andrew Cuomo for Mayor**\
 `Former Mayor Michael R. Bloomberg is backing former Gov. Andrew M. Cuomo for mayor of New York City.`\
 https://nytimes.com/2025/06/10/nyregion/bloomberg-endorses-cuomo-mayor.html
-
-**Document Shows E.P.A. Plans to Loosen Limits on Mercury From Power Plants**\
-`The agency plans to weaken limits on toxic emissions from power plants while also scrapping restrictions on planet-warming greenhouse gases.`\
-https://nytimes.com/2025/06/10/climate/epa-mercury-power-plants-greenhouse-gases.html
-
-**BTS Members RM and V Are Discharged From the Military**\
-`RM and V of BTS emerged from a base in Chuncheon, South Korea, and gave fans a brief saxophone performance.`\
-https://nytimes.com/video/arts/music/100000010219634/bts-rm-v-discharged.html
-
-**Trump Threatens Any Protesters at Military Parade With ‘Very Big Force’**\
-`“I haven’t even heard about a protest,” at the Saturday event in Washington celebrating the Army, he said, but “this is people that hate our country.”`\
-https://nytimes.com/2025/06/10/us/politics/trump-military-parade-protests.html
 
