@@ -1,3 +1,12 @@
+**Panthers score early and often in penalty-filled Game 3 rout of Oilers: Takeaways**\
+`The Panthers scored within the first minute and barely let up after in a dominant Game 3 victory to take a 2-1 series lead.`\
+https://nytimes.com/athletic/6415121/2025/06/09/panthers-oilers-stanley-cup-final-2025-game-3-takeaways/
+
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
 `The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
 `\

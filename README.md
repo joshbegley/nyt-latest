@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6414580/2025/06/09/college-world-series-omaha-brack
 `Zachary David Levy dials it up.`\
 https://nytimes.com/2025/06/09/crosswords/daily-puzzle-2025-06-10.html
 
-**Defying Trump’s Firing, Smithsonian Says It Controls Personnel Decisions**\
-`The Smithsonian is challenging the president’s authority to dismiss the leader of the National Portrait Gallery but says it will look into his complaints.`\
+**In Challenge to Trump, Smithsonian Says It Controls Personnel Decisions**\
+`The Smithsonian says it retains the authority over personnel such as the director of the National Portrait Gallery, whose firing the president had announced.`\
 https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
 
 **New York Moves to Allow Terminally Ill People to Die on Their Own Terms**\
