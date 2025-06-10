@@ -1,3 +1,7 @@
+**U.K. and Canada Set to Impose Sanctions on Far-Right Israeli Ministers**\
+`The coordinated move, which other Western nations may also join, highlights the hardening of several countries’ stance toward Israel amid the humanitarian crisis in Gaza.`\
+https://nytimes.com/2025/06/10/world/canada/britain-canada-sanctions-israel-smotrich-ben-gvir.html
+
 **Introducing the Great Wealth Transfer**\
 `Get ready for the biggest migration of assets in history between generations. 
 `\
