@@ -1,3 +1,11 @@
+**How Pep Lijnders, Klopp's most trusted ally, became Guardiola's assistant**\
+`Coach's move to Liverpool's great rivals has shocked his old club's fans but it was too good an opportunity to turn down`\
+https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assistant-inside-story/
+
+**Multiple People Killed in Austria School Shooting, Official Says**\
+`Austrian police said they responded to reports of gunfire in a high school north of Graz, Austria’s second-largest city. Several students and the shooter were among the dead, according to the mayor of Graz, Elke Kahr.`\
+https://nytimes.com/video/world/europe/100000010218643/multiple-people-killed-in-austria-school-shooting-official-says.html
+
 **Gittens not expected to make Chelsea move pre-Club World Cup**\
 `Chelsea are also ending their interest in signing AC Milan goalkeeper Mike Maignan.`\
 https://nytimes.com/athletic/6415571/2025/06/10/chelsea-jamie-gittens-transfer-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6415210/2025/06/10/blue-jays-win-jose-berrios-rotat
 **Vladislav Gavrikov's next contract and the contract-year phenomenon**\
 `Gavrikov had an excellent year for the Kings. But how much should teams trust a contract-year performance when making the UFA an offer?`\
 https://nytimes.com/athletic/6414655/2025/06/10/vladislav-gavrikov-contract-year-nhl-free-agency/
-
-**Free agent stock watch: How the playoffs helped or hindered 10 players' outlooks**\
-`Playoff success can add a few millions to a pending UFA's new contract — but postseason struggles can also carve a few millions off.`\
-https://nytimes.com/athletic/6414807/2025/06/10/nhl-free-agent-stock-watch-playoffs-2025/
-
-**'It was like a mini NHL': Twenty years ago, a star-laden team won it all in the AHL's greatest season**\
-`The 2004-05 Philadelphia Phantoms, with Carter, Richards, Sharp and more, bested other strong teams during the NHL lockout.`\
-https://nytimes.com/athletic/6405673/2025/06/10/ahl-2005-carter-richards-sharp-phantoms/
 
