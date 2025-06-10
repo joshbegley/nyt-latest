@@ -1,3 +1,7 @@
+**With Sirens Screeching and Explosions in the Sky, Kyiv Struggles to Sleep**\
+`Moscow has stepped up drone and missile attacks despite U.S. pressure to work toward a cease-fire. The strikes intensified after a wave of Ukrainian drone attacks on Russia on June 1.`\
+https://nytimes.com/2025/06/10/world/europe/russia-drone-attack-ukraine-kyiv.html
+
 **How Long Does It Take to Draw a Picture of Every Pub in London?**\
 `That’s the challenge Lydia Wood, 31, has set herself. In the process, she is creating an archive of an important part of the city’s nightlife.`\
 https://nytimes.com/2025/06/10/world/europe/artist-pub-london-wood.html
