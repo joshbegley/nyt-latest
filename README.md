@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assis
 
 **Multiple People Killed in Austria School Shooting, Official Says**\
 `Austrian police said they responded to reports of gunfire in a high school north of Graz, Austria’s second-largest city. Several students and the shooter were among the dead, according to the mayor of Graz, Elke Kahr.`\
-https://nytimes.com/video/world/europe/100000010218643/multiple-people-killed-in-austria-school-shooting-official-says.html
+https://nytimes.com/video/world/europe/multiple-people-killed-in-austria-school-shooting-official-says.html
 
 **Gittens not expected to make Chelsea move pre-Club World Cup**\
 `Chelsea are also ending their interest in signing AC Milan goalkeeper Mike Maignan.`\
