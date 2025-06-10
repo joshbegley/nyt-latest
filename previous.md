@@ -1,3 +1,7 @@
+**Otto Kemp's first trip to Phillies' ballpark worth the wait as he shines in walk-off win**\
+`Kemp had been waiting a while. A lifetime for his major-league debut, Saturday in Pittsburgh. Perhaps just as long to lay down a good bunt. `\
+https://nytimes.com/athletic/6415242/2025/06/10/otto-kemp-phillies-win-cubs-citizens-bank-park/
+
 **Key takeaways from F1's 2026 schedule: Streamlined start, a ratings test and a punishing close**\
 `A regional revamp leads to a grueling season finale and a curious Indy 500 clash. `\
 https://nytimes.com/athletic/6414615/2025/06/10/f1-schedule-release-2026-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6407917/2025/06/10/inside-mamelodi-sundowns-the-jou
 **Spalletti was the right man dealt a difficult hand. So what now for Italy?**\
 `There was no better choice when he was appointed in 2023 but the 66-year-old has had a tough time and World Cup qualification is at stake`\
 https://nytimes.com/athletic/6413090/2025/06/10/luciano-spalletti-italy-sacked-2/
-
-**Israel Says Gaza Aid Boat Passengers’ Deportation Is Imminent**\
-`Greta Thunberg and other activists who were on the intercepted ship were taken to an airport to be flown home, Israel’s Foreign Ministry said on Tuesday.`\
-https://nytimes.com/2025/06/10/world/middleeast/israel-greta-thunberg-deport-gaza-flotilla.html
 

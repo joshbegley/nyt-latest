@@ -1,3 +1,7 @@
+**Otto Kemp's first trip to Phillies' ballpark worth the wait as he shines in walk-off win**\
+`Kemp had been waiting a while. A lifetime for his major-league debut, Saturday in Pittsburgh. Perhaps just as long to lay down a good bunt. `\
+https://nytimes.com/athletic/6415242/2025/06/10/otto-kemp-phillies-win-cubs-citizens-bank-park/
+
 **Key takeaways from F1's 2026 schedule: Streamlined start, a ratings test and a punishing close**\
 `A regional revamp leads to a grueling season finale and a curious Indy 500 clash. `\
 https://nytimes.com/athletic/6414615/2025/06/10/f1-schedule-release-2026-takeaways/
