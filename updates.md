@@ -1,3 +1,15 @@
+**Why Canadiens rookie Lane Hutson’s Calder Trophy win is just the beginning**\
+`Hutson has used information to overcome challenges and improve his whole life, and there's no reason to believe that will stop now.`\
+https://nytimes.com/athletic/6417157/2025/06/10/canadiens-lane-hutson-calder-trophy-nhl/
+
+**Packers GM Brian Gutekunst explains why he released CB Jaire Alexander**\
+`Alexander was Gutekunst's first draft pick after he took the Packers GM job ahead of the 2018 season.`\
+https://nytimes.com/athletic/6417166/2025/06/10/packers-gm-brian-gutekunst-jaire-alexander/
+
+**Phillies' Aaron Nola likely out until All-Star break with rib issue**\
+`Nola, who has been sidelined with an ankle injury, is now dealing with a stress reaction in one of his right ribs.`\
+https://nytimes.com/athletic/6417209/2025/06/10/phillies-aaron-nola-rib-injury/
+
 **Maps: 3.3-Magnitude Earthquake Strikes Near Los Angeles**\
 `View the location of the quake’s epicenter and aftershocks.`\
 https://nytimes.com/interactive/2025/06/10/us/earthquake-los-angeles-tracker.html

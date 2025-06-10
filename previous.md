@@ -1,3 +1,15 @@
+**Why Canadiens rookie Lane Hutson’s Calder Trophy win is just the beginning**\
+`Hutson has used information to overcome challenges and improve his whole life, and there's no reason to believe that will stop now.`\
+https://nytimes.com/athletic/6417157/2025/06/10/canadiens-lane-hutson-calder-trophy-nhl/
+
+**Packers GM Brian Gutekunst explains why he released CB Jaire Alexander**\
+`Alexander was Gutekunst's first draft pick after he took the Packers GM job ahead of the 2018 season.`\
+https://nytimes.com/athletic/6417166/2025/06/10/packers-gm-brian-gutekunst-jaire-alexander/
+
+**Phillies' Aaron Nola likely out until All-Star break with rib issue**\
+`Nola, who has been sidelined with an ankle injury, is now dealing with a stress reaction in one of his right ribs.`\
+https://nytimes.com/athletic/6417209/2025/06/10/phillies-aaron-nola-rib-injury/
+
 **Maps: 3.3-Magnitude Earthquake Strikes Near Los Angeles**\
 `View the location of the quake’s epicenter and aftershocks.`\
 https://nytimes.com/interactive/2025/06/10/us/earthquake-los-angeles-tracker.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/consumer-bureau-trump.html
 ** Dwyane Wade on Breaking Fashion Barriers**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dwyane-wade-players-magazine
-
-**gws-meghann-fahy-sirens**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/gws-meghann-fahy-sirens
-
-**A Familiar On-Air Face Amid the L.A. Protests: Dr. Phil**\
-`Oprah Winfrey’s psychologist sidekick made appearances before and after immigration raids, and interviewed President Trump’s border czar for his fledgling TV network.`\
-https://nytimes.com/2025/06/10/business/media/la-protests-dr-phil.html
-
-**Carbon Capture Comes Back Down to Earth**\
-`Billions have been invested in technologies to remove carbon dioxide from the sky in recent years. But Trump’s policies have clouded the outlook.`\
-https://nytimes.com/2025/06/10/climate/carbon-capture-comes-back-down-to-earth.html
 

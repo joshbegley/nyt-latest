@@ -1,3 +1,7 @@
+**A Political Titan in Argentina Is Sentenced to Prison**\
+`The Supreme Court confirmed a corruption conviction against Cristina Fernández de Kirchner, a former president, cementing a six-year sentence from a lower court and blocking her planned political comeback.`\
+https://nytimes.com/2025/06/10/world/americas/argentina-cristina-kirchner-sentence.html
+
 **Why Canadiens rookie Lane Hutson’s Calder Trophy win is just the beginning**\
 `Hutson has used information to overcome challenges and improve his whole life, and there's no reason to believe that will stop now.`\
 https://nytimes.com/athletic/6417157/2025/06/10/canadiens-lane-hutson-calder-trophy-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417060/2025/06/10/eagles-minicamp-mailbag-question
 **Consumer Bureau Official Quits, Citing ‘Attack’ on Agency’s Mission**\
 `The Trump administration has frozen the agency’s work and abandoned most of its lawsuits against banks and lenders.`\
 https://nytimes.com/2025/06/10/us/politics/consumer-bureau-trump.html
-
-** Dwyane Wade on Breaking Fashion Barriers**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dwyane-wade-players-magazine
 
