@@ -1,3 +1,11 @@
+**Marines Deployed by Trump Over Newsom’s Objections Arrive in L.A. area**\
+`Hundreds of Marines arrived in the L.A. area, the U.S. Northern Command confirmed on Tuesday. Gov. Gavin Newsom of California has said deploying them on U.S. soil was illegal.`\
+https://nytimes.com/2025/06/10/us/marines-los-angeles-newsom.html
+
+**Bills running back James Cook reports to mandatory minicamp amid desire for new contract: Source**\
+`After missing the two weeks of practice during the Bills&#8217; voluntary Organized Team Activities, top running back James Cook has reported to the team.`\
+https://nytimes.com/athletic/6416090/2025/06/10/bills-james-cook-reports-mandatory-minicamp-contract/
+
 **How ‘Ballerina’ Set People on Fire**\
 `Ana de Armas wields a flamethrower in “From the World of John Wick: Ballerina” and torches, well, a lot. Here’s how they made that sequence come to life. (And yes, the flames are mostly real.)`\
 https://nytimes.com/2025/06/10/movies/ballerina-flamethower-scene.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/dining/fast-dinner-recipes-with-seven-ingredients
 **Sly Stone’s Fabulous Style**\
 `It wasn’t just about the fringe and the bling.`\
 https://nytimes.com/2025/06/10/style/sly-stone-fashion.html
-
-**An Inside Look at How ICE’s Mission Is Expanding**\
-`Hamed Aleaziz, a New York Times immigration reporter, traveled to Miami to observe how immigrant arrest operations have changed under pressure from the Trump administration.`\
-https://nytimes.com/video/us/100000010196512/ice-immigrant-arrests-miami.html
-
-**Sauce Gardner present at Jets minicamp while waiting on new contract: Sources**\
-`Gardner and wide receiver Garrett Wilson are both eligible for contract extensions for the first time.`\
-https://nytimes.com/athletic/6416040/2025/06/10/new-york-jets-sauce-gardner-garrett-wilson-contract-otas/
 
