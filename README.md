@@ -1,40 +1,40 @@
-**Man City set to sign goalkeeper Bettinelli from Chelsea**\
-`The 33-year-old has made one appearance in four years at Stamford Bridge.`\
-https://nytimes.com/athletic/6415370/2025/06/10/man-city-marcus-bettinelli-chelsea/
+**How Long Does It Take to Draw a Picture of Every Pub in London?**\
+`That’s the challenge Lydia Wood, 31, has set herself. In the process, she is creating an archive of an important part of the city’s nightlife.`\
+https://nytimes.com/2025/06/10/world/europe/artist-pub-london-wood.html
 
-**Death of a Fantastic Machine**\
-`A trust apocalypse is here.`\
-https://nytimes.com/video/opinion/100000010203393/death-of-a-fantastic-machine.html
+**Sly Stone and the Sound of an America That Couldn’t Last**\
+`The influential musician, who died on Monday at 82, forged harmony — musical and otherwise — that he wasn’t able to hold together on his own.`\
+https://nytimes.com/2025/06/10/arts/music/sly-stone-america.html
 
-**Ranieri turns down Italian national team job**\
-`Luciano Spalletti said on Sunday he had been sacked after a 3-0 defeat to Norway on Friday.`\
-https://nytimes.com/athletic/6412064/2025/06/10/claudio-ranieri-italy-manager/
+**The Pardon Power Is Helping Trump Realize His Dreams**\
+`It turns out that the president has a favorite Constitutional clause.`\
+https://nytimes.com/2025/06/10/opinion/trump-pardon-immunity-autocracy.html
 
-**Lyon agree deal to sign USMNT goalkeeper Turner from Nottm Forest**\
-`The two clubs have agreed a fee of €8million (£6.74m) for the 30-year-old.`\
-https://nytimes.com/athletic/6414797/2025/06/10/matt-turner-lyon-nottingham-forest-transfers/
+**U.S. Teacher Seized by Russia Is Located in Prison**\
+`For months, the family of Stephen James Hubbard could not find him in the Russian prison system. New text messages cast doubt on his conviction.`\
+https://nytimes.com/2025/06/10/world/europe/stephen-hubbard-russia-ukraine.html
 
-**Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
-`The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under Mark Zuckerberg.`\
-https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
+**Warner Bros. Discovery Bet on All You Can Eat. Viewers Wanted More à la Carte.**\
+`Subscribers to the company’s flagship streaming service, Max, watch HBO content, studio movies and older Warner Bros. series — and little else.`\
+https://nytimes.com/2025/06/10/business/media/hbo-max-warner-bros-discovery.html
 
-**Can Mamdani Persuade New York to Elect Its Youngest Mayor in a Century?**\
-`Zohran Mamdani has won over young, left-leaning New Yorkers with his energy and progressive ideas. But is he capable of running the largest city in the country?`\
-https://nytimes.com/2025/06/10/nyregion/mamdani-age-mayor-young.html
+**A SoHo Studio to Enchant a Bride and Her Entourage**\
+`A dress designer needed a discreet live/work space to fit both sides of her life. After work, her personal apartment re-emerges.`\
+https://nytimes.com/2025/06/10/realestate/nyc-soho-studio-bridal-shop.html
 
-**A Killer Within Easy Reach**\
-`Pesticides are a leading means of suicide. The tiny nation of Suriname is working to restrict access to one of the most common and dangerous ones.`\
-https://nytimes.com/2025/06/10/health/paraquat-pesticides-suicide-suriname.html
+**Clock Ticks as U.S. and China Try to Undo Devastating Trade Curbs**\
+`Officials from the world’s largest economies will try to strike a deal Tuesday to relax painful export restrictions that they have imposed on each other.`\
+https://nytimes.com/2025/06/10/business/economy/china-us-trade-talks.html
 
-**Voters Head to the Polls in Key Primaries for New Jersey Governor**\
-`Winners of Tuesday’s Democratic and Republican matchups in New Jersey will compete in November to be governor. Polls are open from 6 a.m. to 8 p.m.`\
-https://nytimes.com/2025/06/10/nyregion/nj-governor-race-election-day.html
+**Fake Images and Conspiracy Theories Swirl Around L.A. Protests**\
+`Disinformation spreading on social media platforms has stoked an already tense situation.`\
+https://nytimes.com/2025/06/10/technology/la-protests-conspiracy-theories-disinformation.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/10/crosswords/spelling-bee-forum.html
+**A Proposal to Give Voters the Power to Oust a N.Y.C. Mayor**\
+`Right now, only the governor can remove a mayor. A City Council commission favors another route.`\
+https://nytimes.com/2025/06/10/nyregion/mayor-removal-new-york.html
 
-**10 Questions With Zohran Mamdani**\
-`Zohran Mamdani, a progressive state lawmaker who is running for mayor of New York City, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/10/nyregion/zohran-mamdani-interview.html
+**Pierre Huyghe’s Bracing Dark Mirror of A.I. Has Its U.S. Debut**\
+`The lauded French artist’s A.I.-generated videos, on view at the Marian Goodman Gallery, portray a human-machine connection through otherworldly imagery.`\
+https://nytimes.com/2025/06/10/arts/design/pierre-huyghe-goodman-gallery-ai-art-video.html
 

@@ -1,3 +1,15 @@
+**Man City set to sign goalkeeper Bettinelli from Chelsea**\
+`The 33-year-old has made one appearance in four years at Stamford Bridge.`\
+https://nytimes.com/athletic/6415370/2025/06/10/man-city-marcus-bettinelli-chelsea/
+
+**Death of a Fantastic Machine**\
+`A trust apocalypse is here.`\
+https://nytimes.com/video/opinion/100000010203393/death-of-a-fantastic-machine.html
+
+**Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
+`The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under Mark Zuckerberg.`\
+https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
+
 **Ranieri turns down Italian national team job**\
 `Luciano Spalletti said on Sunday he had been sacked after a 3-0 defeat to Norway on Friday.`\
 https://nytimes.com/athletic/6412064/2025/06/10/claudio-ranieri-italy-manager/
