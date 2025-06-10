@@ -1,3 +1,7 @@
+**Canadiens defenseman Lane Hutson wins Calder Trophy as NHL's top rookie**\
+`The 21-year-old Michigan native edged out Calgary Flames goaltender Dustin Wolf and San Jose Sharks center Macklin Celebrini for the honor.`\
+https://nytimes.com/athletic/6398530/2025/06/10/lane-hutson-calder-trophy-nhl-rookie-of-the-year/
+
 **How ‘Ballerina’ Set People on Fire**\
 `Ana de Armas wields a flamethrower in “From the World of John Wick: Ballerina” and torches, well, a lot. Here’s how they made that sequence come to life. (And yes, the flames are mostly real.)`\
 https://nytimes.com/2025/06/10/movies/ballerina-flamethower-scene.html

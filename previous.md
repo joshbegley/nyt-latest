@@ -6,7 +6,7 @@ https://nytimes.com/2025/06/10/movies/ballerina-flamethower-scene.html
 `Jobe Bellingham's move to Borussia Dortmund from Sunderland has been confirmed — this is everything you need to know`\
 https://nytimes.com/athletic/6416078/2025/06/10/jobe-bellingham-borussia-dortmund-sunderland-transfer/
 
-**Montreal Canadiens defenseman Lane Hutson wins Calder Trophy as NHL's top rookie**\
+**Canadiens defenseman Lane Hutson wins Calder Trophy as NHL's top rookie**\
 `The 21-year-old Michigan native edged out Calgary Flames goaltender Dustin Wolf and San Jose Sharks center Macklin Celebrini for the honor.`\
 https://nytimes.com/athletic/6398530/2025/06/10/lane-hutson-calder-trophy-nhl-rookie-of-the-year/
 
