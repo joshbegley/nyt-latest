@@ -1,3 +1,35 @@
+**Trump Administration Live Updates: President to Attend Army Celebrations at Fort Bragg**\
+``\
+https://nytimes.com/live/2025/06/10/us/trump-news
+
+**Could Blue Jackets pursue Mitch Marner via free agency? They've tried before**\
+`Columbus isn't exactly the betting favorite to become Marner's free-agency destination, but the match could make sense.`\
+https://nytimes.com/athletic/6414373/2025/06/10/blue-jackets-mitch-marner-free-agency/
+
+**What I'm hearing about Kris Letang's future with the Penguins**\
+`Letang's play is fading, but he still has three years remaining on his contract. How will the Penguins handle him going forward?`\
+https://nytimes.com/athletic/6411139/2025/06/10/penguins-kris-letang-trade-contract/
+
+**49ers rookie returner Junior Bergen has big goals, out to prove he has the 'it' factor**\
+`The 49ers haven't returned a punt for a touchdown since 2011. Can Bergen, who returned eight punts for a score in college, end that streak?`\
+https://nytimes.com/athletic/6414638/2025/06/10/49ers-junior-bergen-kick-punt-returner/
+
+**Crystal Palace enjoyed their greatest ever season, but uncertainty has choked the celebrations**\
+`The FA Cup winners have been left on tenterhooks as they wait to discover if UEFA will allow them to compete in the Europa League`\
+https://nytimes.com/athletic/6414039/2025/06/10/crystal-palace-europa-league-uefa-uncertainty/
+
+**Defense to Question Woman About ‘Hotel Nights’ With Sean Combs**\
+`One of the music mogul’s ex-girlfriends, who is going by the pseudonym Jane, has spent days testifying that he pressured her to have sex with other men.`\
+https://nytimes.com/2025/06/10/arts/music/sean-diddy-combs-trial-jane.html
+
+**The Mets' bullpen is good. Here's why they should still add at the trade deadline**\
+`The Mets have kept concerns over the depth of their bullpen to a minimum, but potential issues linger in the background of their success.`\
+https://nytimes.com/athletic/6414417/2025/06/10/mets-trade-deadline-bullpen-mlb/
+
+**How Far Should Apple Go to Catch Up on A.I.?**\
+`Its latest software event was light on new artificial intelligence features. Some analysts and investors think the company should pay up to make up ground.`\
+https://nytimes.com/2025/06/10/business/dealbook/apple-ai-meta-deals.html
+
 **How Pep Lijnders, Klopp's most trusted ally, became Guardiola's assistant**\
 `Coach's move to Liverpool's great rivals has shocked his old club's fans but it was too good an opportunity to turn down`\
 https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assistant-inside-story/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6411406/2025/06/10/pep-lijnders-pep-guardiola-assis
 **Multiple People Killed in Austria School Shooting, Official Says**\
 `Austrian police said they responded to reports of gunfire in a high school north of Graz, Austria’s second-largest city. Several students and the shooter were among the dead, according to the mayor of Graz, Elke Kahr.`\
 https://nytimes.com/video/world/europe/multiple-people-killed-in-austria-school-shooting-official-says.html
-
-**Gittens not expected to make Chelsea move pre-Club World Cup**\
-`Chelsea are also ending their interest in signing AC Milan goalkeeper Mike Maignan.`\
-https://nytimes.com/athletic/6415571/2025/06/10/chelsea-jamie-gittens-transfer-club-world-cup/
-
-**Mitch Marner's next contract and the burden of expectations**\
-`More money means a higher bar of expectations for Mitch Marner to clear. What does he really want as he hits free agency?`\
-https://nytimes.com/athletic/6414261/2025/06/10/mitch-marner-next-contract-nhl-free-agency/
-
-**'You have to really start over': Former Rockies watch and weep at futility of 2025 team**\
-`Former Rockies stars like Nolan Arenado, Trevor Story and DJ LeMahieu look at their old home from afar and wonder what went wrong. `\
-https://nytimes.com/athletic/6412445/2025/06/10/former-rockies-watching-2025-arenado-story-lemahieu/
-
-**As Terry Francona makes his Cleveland return, the relationships he's built 'never change'**\
-`He missed the steady beat of the 162-game schedule. He missed the camaraderie. Most of all, he missed the people.`\
-https://nytimes.com/athletic/6414986/2025/06/10/terry-francona-cleveland-return/
-
-**Will changes in college sports allow women's hoops teams to catch UConn or South Carolina?**\
-`Big money deals and unprecedented transfer rates. How are coaches navigating the new era and what's to come?`\
-https://nytimes.com/athletic/6414407/2025/06/10/uconn-south-carolina-womens-basketball-nil-house-settlement/
-
-**Ethan Nwaneri interview: What 'intense' Arteta taught him and his highlight of 2024-25**\
-`The 18-year-old spoke about Arsenal, Lewis-Skelly and his future while on England Under-21 duty this week`\
-https://nytimes.com/athletic/6413074/2025/06/10/ethan-nwaneri-interview-what-intense-arteta-taught-him-at-arsenal-and-his-highlight-of-2024-25/
-
-**José Berríos deals in Blue Jays win, helping stabilize Toronto's rotation**\
-`Berríos threw his fifth straight quality start, delivering 6 2/3 shutout innings in the Blue Jays' 5-4 victory over the St. Louis Cardinals.`\
-https://nytimes.com/athletic/6415210/2025/06/10/blue-jays-win-jose-berrios-rotation/
-
-**Vladislav Gavrikov's next contract and the contract-year phenomenon**\
-`Gavrikov had an excellent year for the Kings. But how much should teams trust a contract-year performance when making the UFA an offer?`\
-https://nytimes.com/athletic/6414655/2025/06/10/vladislav-gavrikov-contract-year-nhl-free-agency/
 
