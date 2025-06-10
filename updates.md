@@ -1,3 +1,15 @@
+**A lawyer says some immigrants detained in L.A. raids have been deported.**\
+`Immigrant rights lawyers said on Tuesday that they had been unable to learn where there clients were being held or how their cases were proceeding. .`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/a-lawyer-says-some-immigrants-detained-in-la-raids-have-been-deported
+
+**Justice Dept. Seeks to Pause Ruling Ordering Due Process for Deported Venezuelans**\
+`The emergency request came a day before the Trump administration was supposed to outline how to allow nearly 140 Venezuelans deported to El Salvador to challenge their expulsion.`\
+https://nytimes.com/2025/06/10/us/politics/trump-venezuelans-deportations-el-salvador-boasberg.html
+
+**A Political Titan in Argentina Is Sentenced to Prison**\
+`The Supreme Court confirmed a corruption conviction against Cristina Fernández de Kirchner, a former president, cementing a six-year sentence from a lower court and blocking her planned political comeback.`\
+https://nytimes.com/2025/06/10/world/americas/argentina-cristina-kirchner-sentence.html
+
 **Why Canadiens rookie Lane Hutson’s Calder Trophy win is just the beginning**\
 `Hutson has used information to overcome challenges and improve his whole life, and there's no reason to believe that will stop now.`\
 https://nytimes.com/athletic/6417157/2025/06/10/canadiens-lane-hutson-calder-trophy-nhl/
