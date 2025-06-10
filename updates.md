@@ -1,3 +1,7 @@
+**Gittens not expected to make Chelsea move pre-Club World Cup**\
+`Chelsea are also ending their interest in signing AC Milan goalkeeper Mike Maignan.`\
+https://nytimes.com/athletic/6415571/2025/06/10/chelsea-jamie-gittens-transfer-club-world-cup/
+
 **Mitch Marner's next contract and the burden of expectations**\
 `More money means a higher bar of expectations for Mitch Marner to clear. What does he really want as he hits free agency?`\
 https://nytimes.com/athletic/6414261/2025/06/10/mitch-marner-next-contract-nhl-free-agency/
