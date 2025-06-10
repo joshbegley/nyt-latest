@@ -1,3 +1,15 @@
+**F.D.A. Looks to A.I. to Enhance Efficiency**\
+`With a Trump-driven reduction of nearly 2,000 employees, agency officials view artificial intelligence as a way to speed drugs to the market.`\
+https://nytimes.com/2025/06/10/health/fda-drug-approvals-artificial-intelligence.html
+
+**Seven Ingredients or Fewer, Because Summer**\
+`Pork meatballs with ginger and fish sauce, crispy lime-butter chicken and creamy miso pasta require little shopping.`\
+https://nytimes.com/2025/06/10/dining/fast-dinner-recipes-with-seven-ingredients-or-fewer.html
+
+**Sly Stone’s Fabulous Style**\
+`It wasn’t just about the fringe and the bling.`\
+https://nytimes.com/2025/06/10/style/sly-stone-fashion.html
+
 **An Inside Look at How ICE’s Mission Is Expanding**\
 `Hamed Aleaziz, a New York Times immigration reporter, traveled to Miami to observe how immigrant arrest operations have changed under pressure from the Trump administration.`\
 https://nytimes.com/video/us/100000010196512/ice-immigrant-arrests-miami.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/10/business/energy-environment/pjm-electrical-grid.h
 **The Windup: A true catch of the year candidate**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6415346/2025/06/10/roman-anthony-denzel-clarke-the-windup/
-
-**Jacques Pépin: History Is Culinary**\
-`How we cook and what we eat are an intimate reflection of our personal and collective pasts.`\
-https://nytimes.com/2025/06/10/special-series/jacques-pepin-cooking-history.html
-
-**CWM and the Great Wealth Transfer VPP**\
-`Get ready for the biggest migration of assets in history between generations. `\
-https://nytimes.com/paidpost/citizens-wealth-management/cwm-and-the-great-wealth-transfer-vpp.html
-
-**Celtic confirm Tierney signing on free transfer from Arsenal**\
-`The 28-year-old joined Arsenal from Celtic in 2019 and won the FA Cup in 2020.`\
-https://nytimes.com/athletic/6127121/2025/06/10/kieran-tierney-arsenal-celtic/
 

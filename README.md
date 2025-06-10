@@ -1,3 +1,11 @@
+**Palestinian Authority President Says Hamas Must Exit Gaza**\
+`Mahmoud Abbas gave assurances to President Emmanuel Macron of France, who has set conditions for possible recognition of a Palestinian state at a U.N. conference next week.`\
+https://nytimes.com/2025/06/10/world/middleeast/palestinian-authority-abbas-hamas-gaza.html
+
+**Dan Orlovsky and ESPN in agreement on a new deal: Sources**\
+`Under the new deal, Orlovsky will continue on NFL Live, "Monday Night Football" and all of his other daily talk show appearances.`\
+https://nytimes.com/athletic/6416111/2025/06/10/dan-orlovsky-espn-new-deal-nfl/
+
 **F.D.A. Looks to A.I. to Enhance Efficiency**\
 `With a Trump-driven reduction of nearly 2,000 employees, agency officials view artificial intelligence as a way to speed drugs to the market.`\
 https://nytimes.com/2025/06/10/health/fda-drug-approvals-artificial-intelligence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/world/europe/european-union-sanctions-russia.html
 **Guardiola gives emotional speech on suffering in Gaza**\
 `“It's so painful what we see in Gaza. It hurts all my body,” Guardiola said.`\
 https://nytimes.com/athletic/6415561/2025/06/10/pep-guardiola-gaza-israel/
-
-**As Energy Costs Surge, Eastern Governors Blame a Grid Manager**\
-`Anger at PJM, which manages the electrical grid in all or parts of 13 states and the District of Columbia, has been boiling over in some state capitals.`\
-https://nytimes.com/2025/06/10/business/energy-environment/pjm-electrical-grid.html
-
-**The Windup: A true catch of the year candidate**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6415346/2025/06/10/roman-anthony-denzel-clarke-the-windup/
 
