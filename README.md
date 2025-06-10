@@ -15,8 +15,8 @@ https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysi
 `The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
 https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html
 
-**Pentagon Mobilizes 700 Marines to Join Federal Response in Los Angeles**\
-`The move, along with a doubling of National Guard troops, came even as President Trump said the protests were under control and Gov. Gavin Newsom condemned the Marine deployment as a “provocation.”`\
+**Trump Administration More Than Doubles Federal Deployments to Los Angeles**\
+`The Pentagon mobilized 700 Marines and 2,000 more National Guard troops even as the president said the situation was “under control.” Gov. Gavin Newsom condemned the escalating response.`\
 https://nytimes.com/2025/06/09/us/politics/trump-pentagon-marines-protests.html
 
 **This Is What Autocracy Looks Like**\

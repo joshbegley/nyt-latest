@@ -1,3 +1,12 @@
+**New York Moves to Allow Terminally Ill People to Die on Their Own Terms**\
+`A bill permitting so-called medical aid in dying passed the State Legislature and will now head to Gov. Kathy Hochul for her signature.`\
+https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.html
+
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **US Women win TST title, $1 million prize for second straight year**\
 `Heather O'Reilly's squad included Carli Lloyd, Ali Krieger and Jill Loyden.`\
 https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysis/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/06/09/us/trump-newsom-protests-california.html
 **Two Are Charged With Stalking an Artist Who Criticized Xi Jinping**\
 `The two men also unsuccessfully tried to illegally export sensitive U.S. military technology to China, prosecutors said.`\
 https://nytimes.com/2025/06/09/us/politics/los-angeles-artist-harassed-criticized-xi-jinping.html
-
-**RB Nick Chubb signs with Texans on 1-year deal**\
-`Chubb, 29, has missed much of the last two seasons due to knee and foot injuries.`\
-https://nytimes.com/athletic/6412442/2025/06/09/cleveland-browns-nick-chubb-houston-texans-sign/
-
-**Nick Chubb never wanted the spotlight while in Cleveland. He just wanted the ball**\
-`Chubb, who is third on the team's all-time rushing list, was such a great and respected Browns player because of his simplicity.`\
-https://nytimes.com/athletic/6413887/2025/06/09/nick-chubb-browns-legacy-texans/
 

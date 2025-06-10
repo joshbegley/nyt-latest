@@ -1,3 +1,12 @@
+**New York Moves to Allow Terminally Ill People to Die on Their Own Terms**\
+`A bill permitting so-called medical aid in dying passed the State Legislature and will now head to Gov. Kathy Hochul for her signature.`\
+https://nytimes.com/2025/06/09/nyregion/assisted-suicide-medical-aid-in-dying.html
+
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s newest teams in Seattle and Vancouver filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **US Women win TST title, $1 million prize for second straight year**\
 `Heather O'Reilly's squad included Carli Lloyd, Ali Krieger and Jill Loyden.`\
 https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysis/
