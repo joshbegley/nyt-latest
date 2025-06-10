@@ -1,3 +1,15 @@
+**Military Parade Marches Into Political Maelstrom as Troops Deploy to L.A.**\
+`President Trump’s decision to send troops into an American city comes just days before a rare military display in the nation’s capital.`\
+https://nytimes.com/2025/06/10/us/politics/los-angeles-military-parade-trump.html
+
+**Yale Is Rushing to Sell Billions in Private Equity Investments**\
+`The university is selling multiple stakes in private-equity funds as the industry struggles and Trump targets Ivy-League Institutions.`\
+https://nytimes.com/2025/06/10/business/yale-endowment-private-equity-trump.html
+
+**3 Lessons From International Protests Amid Unrest in L.A.**\
+`Experts who study protest movements say the scenes unfolding in California broadly follow a script that has played out many times in other countries — sometimes with deadly consequences.`\
+https://nytimes.com/2025/06/10/world/lessons-international-protests-la-unrest.html
+
 **Aaron Rodgers tells new Steeler teammates he's 'all-in from now on'**\
 `While Rodgers won four MVPs and a Super Bowl, the big question is: How much does he have left at 41 years old and after a torn Achilles?`\
 https://nytimes.com/athletic/6416631/2025/06/10/aaron-rodgers-meets-steelers-teammates/
