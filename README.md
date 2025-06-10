@@ -1,3 +1,7 @@
+**gws-tate-modern-25-anniversary**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tate-modern-25-anniversary
+
 **Trump Declares Dubious Emergencies to Amass Power, Scholars Say**\
 `In disputes over protests, deportations and tariffs, the president has invoked statutes that may not provide him with the authority he claims.`\
 https://nytimes.com/2025/06/10/us/politics/trump-emergency-powers-invasion.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/gws-tonys-best-worst-moments
 **Marines Deployed by Trump Over Newsom’s Objections Arrive in L.A. Area**\
 `Hundreds of Marines arrived in the L.A. area, the U.S. Northern Command confirmed on Tuesday. Gov. Gavin Newsom of California has said deploying them on U.S. soil was illegal.`\
 https://nytimes.com/2025/06/10/us/marines-los-angeles-newsom.html
-
-**Bills running back James Cook reports to mandatory minicamp amid desire for new contract: Source**\
-`After missing the two weeks of practice during the Buffalo Bills&#8217; voluntary organized team activities, top running back James Cook has reported to the team.`\
-https://nytimes.com/athletic/6416090/2025/06/10/bills-james-cook-reports-mandatory-minicamp-contract/
 
