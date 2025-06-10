@@ -1,3 +1,11 @@
+**Man City set to sign goalkeeper Bettinelli from Chelsea**\
+`The 33-year-old has made one appearance in four years at Stamford Bridge.`\
+https://nytimes.com/athletic/6415370/2025/06/10/man-city-marcus-bettinelli-chelsea/
+
+**Death of a Fantastic Machine**\
+`A trust apocalypse is here.`\
+https://nytimes.com/video/opinion/100000010203393/death-of-a-fantastic-machine.html
+
 **Ranieri turns down Italian national team job**\
 `Luciano Spalletti said on Sunday he had been sacked after a 3-0 defeat to Norway on Friday.`\
 https://nytimes.com/athletic/6412064/2025/06/10/claudio-ranieri-italy-manager/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6412064/2025/06/10/claudio-ranieri-italy-manager/
 https://nytimes.com/athletic/6414797/2025/06/10/matt-turner-lyon-nottingham-forest-transfers/
 
 **Meta Is Creating a New A.I. Lab to Pursue ‘Superintelligence’**\
-`The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under chief executive Mark Zuckerberg.`\
+`The new lab, set to include Scale AI founder Alexandr Wang, is part of a reorganization of Meta’s artificial intelligence efforts under Mark Zuckerberg.`\
 https://nytimes.com/2025/06/10/technology/meta-new-ai-lab-superintelligence.html
 
 **Can Mamdani Persuade New York to Elect Its Youngest Mayor in a Century?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/crosswords/spelling-bee-forum.html
 **10 Questions With Zohran Mamdani**\
 `Zohran Mamdani, a progressive state lawmaker who is running for mayor of New York City, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/10/nyregion/zohran-mamdani-interview.html
-
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to the second edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
-https://nytimes.com/athletic/6413081/2025/06/10/arsenal-transfer-latest-news-manchester-united-liverpool-chelsea-barcelona-real-madrid/
-
-**Jon Stewart to Los Angeles: ‘Is Your City Ever Not on Fire?’**\
-`The “Daily Show” host said “a heavy-handed MAGA migrant-trawling operation” had provoked the protests in “our most flammable city.”`\
-https://nytimes.com/2025/06/10/arts/jon-stewart-los-angeles-protests.html
 
