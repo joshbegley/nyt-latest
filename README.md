@@ -1,3 +1,7 @@
+**Ranieri turns down Italian national team job**\
+`Luciano Spalletti said on Sunday he had been sacked after a 3-0 defeat to Norway on Friday.`\
+https://nytimes.com/athletic/6412064/2025/06/10/claudio-ranieri-italy-manager/
+
 **Lyon agree deal to sign USMNT goalkeeper Turner from Nottm Forest**\
 `The two clubs have agreed a fee of €8million (£6.74m) for the 30-year-old.`\
 https://nytimes.com/athletic/6414797/2025/06/10/matt-turner-lyon-nottingham-forest-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413081/2025/06/10/arsenal-transfer-latest-news-man
 **Jon Stewart to Los Angeles: ‘Is Your City Ever Not on Fire?’**\
 `The “Daily Show” host said “a heavy-handed MAGA migrant-trawling operation” had provoked the protests in “our most flammable city.”`\
 https://nytimes.com/2025/06/10/arts/jon-stewart-los-angeles-protests.html
-
-**In first series at Petco Park since October, Dodgers claim tense Game 1: 'We'll take it'**\
-`Dave Roberts likened the rivalry to a "street fight," and Monday was a prime example, as both teams traded blows back and forth. `\
-https://nytimes.com/athletic/6415320/2025/06/10/dodgers-padres-petco-park-return/
 
