@@ -1,3 +1,7 @@
+**L.A. Protests Prompt Calls for Police Restraint After Journalist Injuries**\
+`The L.A.P.D. and L.A. County Sheriff said they were reviewing incidents in which journalists have been struck by projectiles fired by the police.`\
+https://nytimes.com/2025/06/10/us/la-protests-journalist-injuries-police.html
+
 **Why Micah Parsons is attending Cowboys minicamp while seeking new contract**\
 `The star pass rusher attended Cowboys minicamp on Tuesday, but did not take part in drills with back tightness.`\
 https://nytimes.com/athletic/6417336/2025/06/10/dallas-cowboys-micah-parsons-contract-minicamp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417239/2025/06/10/browns-minicamp-shedeur-sanders-
 **Los Angeles Protests Amplified by Influencers and Online Creators**\
 `Creators such as Cam Higby, who is conservative, have sometimes outnumbered traditional media outlets at the immigration protests. Their posts have gone viral.`\
 https://nytimes.com/2025/06/10/technology/la-protests-influencers-media.html
-
-**New York City Mayoral Primary 2025: Latest Polls**\
-`Track the latest Democratic primary polls, including ranked-choice outcomes, in the New York City mayoral election.`\
-https://nytimes.com/interactive/polls/nyc-mayoral-primary-election-polls-2025.html
 
