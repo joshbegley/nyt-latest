@@ -1,3 +1,7 @@
+**Gittens not expected to make Chelsea move pre-Club World Cup**\
+`Chelsea are also ending their interest in signing AC Milan goalkeeper Mike Maignan.`\
+https://nytimes.com/athletic/6415571/2025/06/10/chelsea-jamie-gittens-transfer-club-world-cup/
+
 **Mitch Marner's next contract and the burden of expectations**\
 `More money means a higher bar of expectations for Mitch Marner to clear. What does he really want as he hits free agency?`\
 https://nytimes.com/athletic/6414261/2025/06/10/mitch-marner-next-contract-nhl-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6414807/2025/06/10/nhl-free-agent-stock-watch-playo
 **'It was like a mini NHL': Twenty years ago, a star-laden team won it all in the AHL's greatest season**\
 `The 2004-05 Philadelphia Phantoms, with Carter, Richards, Sharp and more, bested other strong teams during the NHL lockout.`\
 https://nytimes.com/athletic/6405673/2025/06/10/ahl-2005-carter-richards-sharp-phantoms/
-
-**Greenberg: The Cubs, young and old, love to talk some ball**\
-`Some of the best advice often comes from teammates, not coaches and managers. "Our guys are invested in everything,” Jameson Taillon said.`\
-https://nytimes.com/athletic/6411586/2025/06/10/cubs-share-history-tradition-advice/
 
