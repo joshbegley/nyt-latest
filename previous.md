@@ -1,3 +1,11 @@
+**Why Micah Parsons is attending Cowboys minicamp while seeking new contract**\
+`The star pass rusher attended Cowboys minicamp on Tuesday, but did not take part in drills with back tightness.`\
+https://nytimes.com/athletic/6417336/2025/06/10/dallas-cowboys-micah-parsons-contract-minicamp/
+
+**Stuart Skinner wasn't at fault in Game 3, but Oilers need him back at his best**\
+`Skinner had his worst game since the first round of the playoffs in an all-around terrible outing for Edmonton. What next?`\
+https://nytimes.com/athletic/6417340/2025/06/10/stuart-skinner-oilers-stanley-cup-final-game-3/
+
 **Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
 `Stanton will play in his first rehab game at Double-A Somerset on Tuesday night. `\
 https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/technology/la-protests-influencers-media.html
 **New York City Mayoral Primary 2025: Latest Polls**\
 `Track the latest Democratic primary polls, including ranked-choice outcomes, in the New York City mayoral election.`\
 https://nytimes.com/interactive/polls/nyc-mayoral-primary-election-polls-2025.html
-
-**LT Kolton Miller back in action at Raiders minicamp, but without extension**\
-`When asked why he returned to practice despite the lack of an extension, Miller said, "I want to be a Raider for life."`\
-https://nytimes.com/athletic/6417220/2025/06/10/raiders-minicamp-kolton-miller-contract-jakorian-bennett/
-
-**Democrats Grill N.I.H. Leader on Cuts: Who Is Calling the Shots?**\
-`Senators criticized the head of the National Institutes of Health for not taking responsibility for Trump administration cuts to research funding.`\
-https://nytimes.com/2025/06/10/us/politics/nih-bhattacharya-congress-testimony.html
 
