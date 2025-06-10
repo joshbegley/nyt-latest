@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, June 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/10/todays-new-york-times-international-edition
+
 **How to watch Sky at Liberty: Undefeated New York hosts Angel Reese and Chicago**\
 `The New York Liberty are dizzying, daunting juggernauts. The Chicago Sky are falling. Still, primetime WNBA is well worth watching.`\
 https://nytimes.com/athletic/6414491/2025/06/10/chicago-sky-new-york-liberty-how-to-watch/
