@@ -1,3 +1,7 @@
+**US Women win TST title, $1 million prize for second straight year**\
+`Heather O'Reilly's squad included Carli Lloyd, Ali Krieger and Jill Loyden.`\
+https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysis/
+
 **Trump’s Crackdown on L.A. Protests Contrasts With His Jan. 6 Response**\
 `The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
 https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html

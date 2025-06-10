@@ -1,3 +1,7 @@
+**US Women win TST title, $1 million prize for second straight year**\
+`Heather O'Reilly's squad included Carli Lloyd, Ali Krieger and Jill Loyden.`\
+https://nytimes.com/athletic/6414987/2025/06/09/us-women-soccer-tst-game-analysis/
+
 **Trump’s Crackdown on L.A. Protests Contrasts With His Jan. 6 Response**\
 `The president often expresses an open desire for aggressive law enforcement and harsh tactics when protests originate from the political left.`\
 https://nytimes.com/2025/06/09/us/trump-la-riots-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6412442/2025/06/09/cleveland-browns-nick-chubb-hous
 **Nick Chubb never wanted the spotlight while in Cleveland. He just wanted the ball**\
 `Chubb, who is third on the team's all-time rushing list, was such a great and respected Browns player because of his simplicity.`\
 https://nytimes.com/athletic/6413887/2025/06/09/nick-chubb-browns-legacy-texans/
-
-**Trump Administration Disputes Immunity Claim by Judge Accused of Obstructing ICE**\
-`Judge Hannah C. Dugan was indicted last month on charges of concealing a person from arrest and obstruction of proceedings. She has pleaded not guilty.`\
-https://nytimes.com/2025/06/09/us/politics/hannah-dugan-wisconsin-judge-trump-ice.html
 
