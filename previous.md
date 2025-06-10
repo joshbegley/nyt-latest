@@ -1,3 +1,11 @@
+**Aaron Rodgers tells new Steeler teammates he's 'all-in from now on'**\
+`While Rodgers won four MVPs and a Super Bowl, the big question is: How much does he have left at 41 years old and after a torn Achilles?`\
+https://nytimes.com/athletic/6416631/2025/06/10/aaron-rodgers-meets-steelers-teammates/
+
+**Until Saturday: College sports salary caps?**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6416665/2025/06/10/college-sports-revenue-sharing-until-saturday/
+
 **Melbourne mayor asks Spurs to reinstate Postecoglou**\
 `Postecoglou was born in Greece but grew up in Melbourne and previously coached the Australian national team.`\
 https://nytimes.com/athletic/6416560/2025/06/10/tottenham-manager-ange-postecoglou-australia/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6416498/2025/06/10/bill-belichick-unbothered-north-
 **The Rise of AI Meets the Golden Age of Geography**\
 `Business and government leaders can now answer ‘where’ questions at a speed and scale humans alone could never achieve`\
 https://nytimes.com/paidpost/2025-06-10/esri-v2-jun25/rise-of-ai-meets-geography-golden-age.html
-
-**The AI Imperative: Mapping What’s Possible**\
-`Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
-https://nytimes.com/paidpost/2025-06-10/esri-v1-jun25/ai-imperative-mapping-whats-possible.html
-
-**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
-`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
-`\
-https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
 

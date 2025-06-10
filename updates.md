@@ -1,3 +1,11 @@
+**Aaron Rodgers tells new Steeler teammates he's 'all-in from now on'**\
+`While Rodgers won four MVPs and a Super Bowl, the big question is: How much does he have left at 41 years old and after a torn Achilles?`\
+https://nytimes.com/athletic/6416631/2025/06/10/aaron-rodgers-meets-steelers-teammates/
+
+**Until Saturday: College sports salary caps?**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6416665/2025/06/10/college-sports-revenue-sharing-until-saturday/
+
 **Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
 `Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
 `\
