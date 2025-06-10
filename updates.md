@@ -1,3 +1,19 @@
+**CWM and the Great Wealth Transfer VPP**\
+`Get ready for the biggest migration of assets in history between generations. `\
+https://nytimes.com/paidpost/2025-04-21/.html
+
+**Celtic confirm Tierney signing on free transfer from Arsenal**\
+`The 28-year-old joined Arsenal from Celtic in 2019 and won the FA Cup in 2020.`\
+https://nytimes.com/athletic/6127121/2025/06/10/kieran-tierney-arsenal-celtic/
+
+**What We Know About the Austria School Shooting**\
+`Several people have been killed in a mass shooting at a high school in Graz, the country’s second-largest city, police said.`\
+https://nytimes.com/2025/06/10/world/europe/austria-shooting-what-to-know.html
+
+**The Bounce: Cooper Flagg headlines NBA Draft guide finally arriving. Plus, the Magic nail new jerseys**\
+`The NBA Draft is approaching, so dive into Sam Vecenie's draft guide to learn about his top prospects! `\
+https://nytimes.com/athletic/6415690/2025/06/10/cooper-flagg-nba-draft-guide-playoffs-magic-jerseys-nba-the-bounce/
+
 **Terry McLaurin not attending minicamp amid contract frustrations: Sources**\
 `McLaurin skipped OTAs and minicamp three years ago before he inked his last extension.`\
 https://nytimes.com/athletic/6415945/2025/06/10/terry-mclaurin-commanders-contract-minicamp/
