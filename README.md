@@ -1,3 +1,7 @@
+**Vikings minicamp: Dallas Turner makes play of the day, but will he get more snaps?**\
+`Turner, a 2024 first-round pick, played sparingly on defense as a rookie. Brian Flores hopes to find more ways to use him this fall.`\
+https://nytimes.com/athletic/6417476/2025/06/10/dallas-turner-vikings-minicamp/
+
 **Tuchel says 'no need to panic' for England after Senegal defeat**\
 `Goals from Ismaila Sarr, Habib Diarra and Cheikh Sabaly gave Pape Thiaw's side a deserved victory despite Harry Kane's early opener.`\
 https://nytimes.com/athletic/6417552/2025/06/10/thomas-tuchel-england-senegal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417435/2025/06/10/49ers-trent-williams-future-broc
 **Niede Guidon, 92, Archaeologist Who Preserved Prehistoric Rock Art, Dies**\
 `Her work in Brazil challenged the prevailing theory of when humans first arrived in the Americas and led to the development of a forgotten corner of the country.`\
 https://nytimes.com/2025/06/10/science/niede-guidon-dead.html
-
-**Broadway Musical ‘Smash’ to Close After Tonys Disappointment**\
-`The musical, which follows a group of theater artists putting on a show about Marilyn Monroe, opened in April to mixed reviews. It has struggled at the box office.`\
-https://nytimes.com/2025/06/10/theater/smash-broadway-closing.html
 
