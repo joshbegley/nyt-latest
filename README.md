@@ -1,3 +1,11 @@
+**College World Series field set: Hello Murray State! Racers crash 8-team field**\
+`Only three of the eight national seeds and five of the top 16 seeds overall advanced to the College World Series.`\
+https://nytimes.com/athletic/6414580/2025/06/09/college-world-series-omaha-bracket-field-2-2/
+
+**Occasion for Toasts**\
+`Zachary David Levy dials it up.`\
+https://nytimes.com/2025/06/09/crosswords/daily-puzzle-2025-06-10.html
+
 **Defying Trump’s Firing, Smithsonian Says It Controls Personnel Decisions**\
 `The Smithsonian is challenging the president’s authority to dismiss the leader of the National Portrait Gallery but says it will look into his complaints.`\
 https://nytimes.com/2025/06/09/arts/design/smithsonian-trump-bunch-sajet.html
@@ -30,12 +38,4 @@ https://nytimes.com/2025/06/09/opinion/autocracy-trump-la-protests.html
 **Read California’s Lawsuit Challenging Trump’s Mobilization of the National Guard**\
 `The lawsuit argues that President Trump’s federalization of the state’s National Guard was illegal because the move bypassed California’s governor, Gavin Newsom, and because it violated the Tenth Amendment, which protects state rights.`\
 https://nytimes.com/interactive/2025/06/09/us/ecf-1-complaint-ng.html
-
-**Adams says the N.Y.P.D. will not tolerate the kind of protests happening in Los Angeles.**\
-`Mayor Eric Adams said the New York City police would protect the right to protest peacefully but would “not allow violence and lawlessness.”`\
-https://nytimes.com/live/2025/06/09/us/la-protests-immigration-ice-trump/eric-adams-nypd-los-angeles-protests
-
-**Trump and Newsom Skewer Each Other After National Guard Deployment**\
-`President Trump said that Gov. Gavin Newsom should be arrested for his governance of California, while Mr. Newsom issued a barrage of retorts online.`\
-https://nytimes.com/2025/06/09/us/trump-newsom-protests-california.html
 
