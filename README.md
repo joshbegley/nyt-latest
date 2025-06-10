@@ -1,3 +1,23 @@
+**What we know about the Marine infantry battalion deployed by Trump.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2025/06/10/us/la-protests-marines-ice-trump/what-we-know-about-the-marine-infantry-battalion-deployed-by-trump
+
+**Wednesday Briefing: Why U.S. Troops Are in Los Angeles**\
+`Plus, the travel writer’s dilemma.`\
+https://nytimes.com/2025/06/10/briefing/military-los-angeles-austria-shooting.html
+
+**Did She or Didn’t She? She Did, and She’ll Tell You Exactly How.**\
+`The paradigm shifts as women like Kylie Jenner invert the Pygmalion story.`\
+https://nytimes.com/2025/06/10/style/kylie-jenner-plastic-surgery.html
+
+**This Israeli Government Is a Danger to Jews Everywhere**\
+`The price will be high if people don’t resist Netanyahu’s ugly, nihilistic Gaza policy.`\
+https://nytimes.com/2025/06/10/opinion/israel-gaza-anti-semitism.html
+
+**Three Opinion Writers on the L.A. Protests and Trump’s Spectacle of Control**\
+`Michelle Cottle, David French and Tressie McMillan Cottom dissect Trump’s reach for power.`\
+https://nytimes.com/2025/06/10/opinion/los-angeles-protests-trump-marines.html
+
 **NCAA men's basketball to allow challenges to 'enhance the flow of the game'**\
 `Officiating across NCAA sports has come under major scrutiny in the last few years.`\
 https://nytimes.com/athletic/6417058/2025/06/10/ncaa-rules-college-basketball-challenges/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/trump-venezuelans-deportations-el-sal
 **A Political Titan in Argentina Is Sentenced to Prison**\
 `The Supreme Court confirmed a corruption conviction against Cristina Fernández de Kirchner, a former president, cementing a six-year sentence from a lower court and blocking her planned political comeback.`\
 https://nytimes.com/2025/06/10/world/americas/argentina-cristina-kirchner-sentence.html
-
-**Why Canadiens rookie Lane Hutson’s Calder Trophy win is just the beginning**\
-`Hutson has used information to overcome challenges and improve his whole life, and there's no reason to believe that will stop now.`\
-https://nytimes.com/athletic/6417157/2025/06/10/canadiens-lane-hutson-calder-trophy-nhl/
-
-**Packers GM Brian Gutekunst explains why he released CB Jaire Alexander**\
-`Alexander was Gutekunst's first draft pick after he took the Packers GM job ahead of the 2018 season.`\
-https://nytimes.com/athletic/6417166/2025/06/10/packers-gm-brian-gutekunst-jaire-alexander/
-
-**Phillies' Aaron Nola likely out until All-Star break with rib issue**\
-`Nola, who has been sidelined with an ankle injury, is now dealing with a stress reaction in one of his right ribs.`\
-https://nytimes.com/athletic/6417209/2025/06/10/phillies-aaron-nola-rib-injury/
-
-**Maps: 3.3-Magnitude Earthquake Strikes Near Los Angeles**\
-`View the location of the quake’s epicenter and aftershocks.`\
-https://nytimes.com/interactive/2025/06/10/us/earthquake-los-angeles-tracker.html
-
-**Patriots WR Stefon Diggs mum on viral video, but excited to play for Mike Vrabel**\
-`The new Patriots wide receiver said conversations about the unknown substance in the video would stay between him, Vrabel and the team.`\
-https://nytimes.com/athletic/6416958/2025/06/10/stefon-diggs-patriots-viral-video-vrabel/
 
