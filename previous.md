@@ -1,40 +1,40 @@
-**Military Parade Marches Into Political Maelstrom as Troops Deploy to L.A.**\
-`President Trump’s decision to send troops into an American city comes just days before a rare military display in the nation’s capital.`\
-https://nytimes.com/2025/06/10/us/politics/los-angeles-military-parade-trump.html
+**City Council Asks Watchdog to Investigate N.Y.P.D’s Cooperation With ICE**\
+`The Council made reference to concerns about whether the police had violated New York’s sanctuary laws by sharing information with federal authorities.`\
+https://nytimes.com/2025/06/10/nyregion/nypd-ice-investigation-city-council.html
 
-**Yale Is Rushing to Sell Billions in Private Equity Investments**\
-`The university is selling multiple stakes in private-equity funds as the industry struggles and Trump targets Ivy-League Institutions.`\
-https://nytimes.com/2025/06/10/business/yale-endowment-private-equity-trump.html
+**Touch Grass With an Unexpected 10-Song Nature-Bathing Playlist**\
+`Explore the outdoors however you see fit with a soundtrack of Doechii, Remi Wolf, Erykah Badu and more.`\
+https://nytimes.com/2025/06/10/arts/music/amplifier-newsletter-nature-bathing-playlist.html
 
-**3 Lessons From International Protests Amid Unrest in L.A.**\
-`Experts who study protest movements say the scenes unfolding in California broadly follow a script that has played out many times in other countries — sometimes with deadly consequences.`\
-https://nytimes.com/2025/06/10/world/lessons-international-protests-la-unrest.html
+**City sign Cherki from Lyon**\
+`The France international has signed a five-year deal until 2030 and will be available to play for Pep Guardiola's side at the Club World Cup`\
+https://nytimes.com/athletic/6414418/2025/06/10/man-city-rayan-cherki-lyon/
 
-**Aaron Rodgers tells new Steeler teammates he's 'all-in from now on'**\
-`While Rodgers won four MVPs and a Super Bowl, the big question is: How much does he have left at 41 years old and after a torn Achilles?`\
-https://nytimes.com/athletic/6416631/2025/06/10/aaron-rodgers-meets-steelers-teammates/
+**Watch: Sue Bird discusses Caitlin Clark's passing and WNBA ownership**\
+`No Offseason interviews Sue Bird about the WNBA media, podcasting, team ownership and Caitlin Clark.`\
+https://nytimes.com/athletic/6415828/2025/06/10/sue-bird-no-offseason-caitlin-clark-wnba/
 
-**Until Saturday: College sports salary caps?**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6416665/2025/06/10/college-sports-revenue-sharing-until-saturday/
+**Answer 4 Questions. Leave With a Summer Read You’ll Love.**\
+`Tell us a few things about what you like, and we'll give you a spot-on recommendation.`\
+https://nytimes.com/interactive/2025/06/10/us/summer-books-quiz.html
 
-**Melbourne mayor asks Spurs to reinstate Postecoglou**\
-`Postecoglou was born in Greece but grew up in Melbourne and previously coached the Australian national team.`\
-https://nytimes.com/athletic/6416560/2025/06/10/tottenham-manager-ange-postecoglou-australia/
+**Hegseth Defends Deployment of Troops to Los Angeles at Testy Hearing**\
+`The defense secretary also suggested in his testimony to a House panel that the use of the National Guard for homeland defense would expand under President Trump.`\
+https://nytimes.com/2025/06/10/us/politics/hegseth-national-guard-troops-los-angeles.html
 
-**Canada summer transfer primer: Latest on David, Buchanan, Larin and more**\
-`What we're hearing about a number of Canada's key players entering a pivotal summer, with the World Cup on home soil a year away.`\
-https://nytimes.com/athletic/6415893/2025/06/10/canada-summer-transfer-jonathan-david-promise-larin-kone-sigur-saliba/
+**Trump’s Flawed Message to Los Angeles**\
+`If you want to radicalize a population, there is no faster way than to use disproportionate force against civilians.`\
+https://nytimes.com/2025/06/10/opinion/ice-raids-federal-law.html
 
-**Judge in Hockey Canada sexual assault trial sets verdict date for July 24**\
-`Judge says verdicts will be delivered in person to the five accused players.`\
-https://nytimes.com/athletic/6416521/2025/06/10/hockey-canada-sexual-assault-trial-verdict-date-july-24/
+**Fetterman Calls California Protests ‘Anarchy’ as He Criticizes Democrats**\
+`The Pennsylvania senator warned that his party would lose “the moral high ground” if it did not go further in condemning acts of destruction or violence, which local officials said were under control.`\
+https://nytimes.com/2025/06/10/us/politics/fetterman-la-protests-anarchy.html
 
-**Jobe Bellingham always wanted to avoid comparisons with Jude. Now, he is embracing them**\
-`Choosing Dortmund as his next club is a brave move for a player who has always been determined to carve his own path`\
-https://nytimes.com/athletic/6416052/2025/06/10/jobe-bellingham-jude-comparison-dortmund/
+**Let Us Praise Teachers, Not Devalue Them**\
+`Readers respond to a guest essay about the essential role of teachers. Also: Standing up to President Trump; homeless boomers.`\
+https://nytimes.com/2025/06/10/opinion/teachers.html
 
-**Deion Sanders 'feeling well' amid health issues, timing of return unclear**\
-`Sanders has remained out of the public spotlight since the NFL Draft in April due to unspecified health reasons.`\
-https://nytimes.com/athletic/6416357/2025/06/10/deion-sanders-health-issues-colorado-football/
+**Chez Nous Brings a New French Energy to the Marlton Hotel**\
+`Foursome offers Turkish cuisine, Victoria Blamey becomes the culinary director for Il Buco Alimentari and Il Buco al Mare and more news.`\
+https://nytimes.com/2025/06/10/dining/nyc-restaurant-news.html
 

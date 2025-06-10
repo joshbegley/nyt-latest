@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6415828/2025/06/10/sue-bird-no-offseason-caitlin-cl
 
 **Answer 4 Questions. Leave With a Summer Read You’ll Love.**\
 `Tell us a few things about what you like, and we'll give you a spot-on recommendation.`\
-https://nytimes.com/interactive/2025/06/10/us/summer-books-quiz.html
+https://nytimes.com/interactive/2025/06/10/books/summer-books-quiz.html
 
 **Hegseth Defends Deployment of Troops to Los Angeles at Testy Hearing**\
 `The defense secretary also suggested in his testimony to a House panel that the use of the National Guard for homeland defense would expand under President Trump.`\
