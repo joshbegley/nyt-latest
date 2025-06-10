@@ -1,3 +1,11 @@
+**U.S. Open pool picks: Scottie Scheffler, Ben Griffin, Sam Burns among the picks**\
+`Oakmont sets a tough test this weekend. Here are six players who could go the distance.`\
+https://nytimes.com/athletic/6416783/2025/06/10/2025-us-open-pool-picks/
+
+**Prime Tire: F1 takes on the Indy 500? Yikes. Plus, meet Red Bull's top prospect**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6416939/2025/06/10/f1-schedule-release-indy-500-prime-tire/
+
 **Bryson DeChambeau hopes to renegotiate new LIV Golf contract in 2026**\
 `“They see the value in me. I see the value in what they can provide," DeChambeau said of LIV Golf.`\
 https://nytimes.com/athletic/6416955/2025/06/10/bryson-dechambeau-liv-golf-contract/
