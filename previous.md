@@ -1,3 +1,7 @@
+**An Inside Look at How ICE’s Mission Is Expanding**\
+`Hamed Aleaziz, a New York Times immigration reporter, traveled to Miami to observe how immigrant arrest operations have changed under pressure from the Trump administration.`\
+https://nytimes.com/video/us/100000010196512/ice-immigrant-arrests-miami.html
+
 **Sauce Gardner present at Jets minicamp while waiting on new contract: Sources**\
 `Gardner and wide receiver Garrett Wilson are both eligible for contract extensions for the first time.`\
 https://nytimes.com/athletic/6416040/2025/06/10/new-york-jets-sauce-gardner-garrett-wilson-contract-otas/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/citizens-wealth-management/cwm-and-the-great-wealth
 **Celtic confirm Tierney signing on free transfer from Arsenal**\
 `The 28-year-old joined Arsenal from Celtic in 2019 and won the FA Cup in 2020.`\
 https://nytimes.com/athletic/6127121/2025/06/10/kieran-tierney-arsenal-celtic/
-
-**What We Know About the Austria School Shooting**\
-`Several people have been killed in a mass shooting at a high school in Graz, the country’s second-largest city, police said.`\
-https://nytimes.com/2025/06/10/world/europe/austria-shooting-what-to-know.html
 

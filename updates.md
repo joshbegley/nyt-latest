@@ -1,3 +1,7 @@
+**An Inside Look at How ICE’s Mission Is Expanding**\
+`Hamed Aleaziz, a New York Times immigration reporter, traveled to Miami to observe how immigrant arrest operations have changed under pressure from the Trump administration.`\
+https://nytimes.com/video/us/100000010196512/ice-immigrant-arrests-miami.html
+
 **Sauce Gardner present at Jets minicamp while waiting on new contract: Sources**\
 `Gardner and wide receiver Garrett Wilson are both eligible for contract extensions for the first time.`\
 https://nytimes.com/athletic/6416040/2025/06/10/new-york-jets-sauce-gardner-garrett-wilson-contract-otas/
