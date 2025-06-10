@@ -1,3 +1,7 @@
+**Guardiola gives emotional speech on suffering in Gaza**\
+`“It's so painful what we see in Gaza. It hurts all my body,” Guardiola said.`\
+https://nytimes.com/athletic/6415561/2025/06/10/pep-guardiola-gaza-israel/
+
 **As Energy Costs Surge, Eastern Governors Blame a Grid Manager**\
 `Anger at PJM, which manages the electrical grid in all or parts of 13 states and the District of Columbia, has been boiling over in some state capitals.`\
 https://nytimes.com/2025/06/10/business/energy-environment/pjm-electrical-grid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6415945/2025/06/10/terry-mclaurin-commanders-contra
 **Red Bull junior Lindblad, 17, receives F1 super license**\
 `Lindblad is currently third in the Formula Two standings with two wins.`\
 https://nytimes.com/athletic/6415895/2025/06/10/arvid-lindbland-red-bull-super-license/
-
-**World Bank Forecast Underscores Cost of U.S. Trade War**\
-`Along with a sharply downgraded projection for global output this year, it urged a “course correction” on trade to help preserve living standards.`\
-https://nytimes.com/2025/06/10/business/trump-trade-war-global-economy.html
 
