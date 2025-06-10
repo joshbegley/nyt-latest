@@ -1,3 +1,7 @@
+**Is 4,700 federal troops a big deployment?**\
+`National Guard deployments in response to social unrest are often larger and are requested by local leaders, not challenged by them.`\
+https://nytimes.com/2025/06/10/us/national-guard-marines-troops-la-protests.html
+
 **Vikings minicamp: Dallas Turner makes play of the day, but will he get more snaps?**\
 `Turner, a 2024 first-round pick, played sparingly on defense as a rookie. Brian Flores hopes to find more ways to use him this fall.`\
 https://nytimes.com/athletic/6417476/2025/06/10/dallas-turner-vikings-minicamp/
