@@ -1,40 +1,40 @@
-**The New York Times International Edition in Print for Wednesday, June 11, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/10/todays-new-york-times-international-edition
+**Club World Cup Group D: Can Chelsea add another trophy to their growing list of honors?**\
+`We preview Group D, which features Chelsea, Flamengo, Esperance and late entrants in the form of LAFC`\
+https://nytimes.com/athletic/6401850/2025/06/10/club-world-cup-group-d-guide-chelsea-flamengo-lafc/
 
-**How to watch Sky at Liberty: Undefeated New York hosts Angel Reese and Chicago**\
-`The New York Liberty are dizzying, daunting juggernauts. The Chicago Sky are falling. Still, primetime WNBA is well worth watching.`\
-https://nytimes.com/athletic/6414491/2025/06/10/chicago-sky-new-york-liberty-how-to-watch/
+**Club World Cup Group A: Stylish Palmeiras should dominate but will Inter Miami make it through?**\
+`We preview a tough-looking group containing Palmeiras, Porto, Inter Miami and Egyptian side Al Ahly`\
+https://nytimes.com/athletic/6361568/2025/06/10/club-world-cup-group-a-guide/
 
-**Ex-Liverpool coaches Lijnders, French join Guardiola's staff at Man City**\
-`Lijnders spent nine and a half years at Liverpool across two spells, leaving alongside Jurgen Klopp in the summer of 2024.`\
-https://nytimes.com/athletic/6394612/2025/06/10/man-city-pep-lijnders-liverpool-french/
+**Club World Cup Group E: Inter are rightful favorites but battle for second should be fierce**\
+`Group E contains Inter, Monterrey, River Plate and Urawa Red Diamonds, and will be a fascinating battle`\
+https://nytimes.com/athletic/6410166/2025/06/10/club-world-cup-guide-group-e/
 
-**Several Killed in Shooting at Austrian High School, Public Media Reports**\
-`The authorities in Graz were trying to clarify the situation on the ground and coordinate a response. The Interior Minister confirmed several deaths, public media reported.`\
-https://nytimes.com/2025/06/10/world/europe/austria-school-shooting.html
+**Club World Cup Group C: Will Bayern Munich reign supreme and can Auckland City's amateurs spring a shock?**\
+`The German giants understandably start as group favorites but Di Maria and Boca Juniors offer fascinating sub-plots this summer`\
+https://nytimes.com/athletic/6408711/2025/06/10/club-world-cup-group-c-guide/
 
-**With Sirens Screeching and Explosions in the Sky, Kyiv Struggles to Sleep**\
-`Moscow has stepped up drone and missile attacks despite U.S. pressure to work toward a cease-fire. The strikes intensified after a wave of Ukrainian drone attacks on Russia on June 1.`\
-https://nytimes.com/2025/06/10/world/europe/russia-drone-attack-ukraine-kyiv.html
+**The 25 stories that changed college football since 2000**\
+`From conference expansion to NCAA power struggles to coaching hires and postseason changes, there's been nonstop action away from the field.`\
+https://nytimes.com/athletic/6412856/2025/06/10/college-football-ncaa-legal-stories/
 
-**How Long Does It Take to Draw a Picture of Every Pub in London?**\
-`That’s the challenge Lydia Wood, 31, has set herself. In the process, she is creating an archive of an important part of the city’s nightlife.`\
-https://nytimes.com/2025/06/10/world/europe/artist-pub-london-wood.html
+**Panthers-style hockey dominated Game 3. Is this a turning point in the series?**\
+`Game 3 was a showcase of vintage Panthers hockey — and an unusually bad night from the Oilers. An aberration, or a sign of what's to come?`\
+https://nytimes.com/athletic/6415278/2025/06/10/panthers-stanley-cup-final-momentum-game-3/
 
-**Sly Stone and the Sound of an America That Couldn’t Last**\
-`The influential musician, who died on Monday at 82, forged harmony — musical and otherwise — that he wasn’t able to hold together on his own.`\
-https://nytimes.com/2025/06/10/arts/music/sly-stone-america.html
+**2025 NBA Draft guide: Top 100 prospects, rankings, tiers and analysis**\
+`Get full player profiles — including strengths, weaknesses and outlook — for each of the top 75 prospects in this draft class. `\
+https://nytimes.com/athletic/6414203/2025/06/10/nba-draft-guide-2025-top-100-prospects-cooper-flagg/
 
-**The Pardon Power Is Helping Trump Realize His Dreams**\
-`It turns out that the president has a favorite Constitutional clause.`\
-https://nytimes.com/2025/06/10/opinion/trump-pardon-immunity-autocracy.html
+**Club World Cup Group F: Is this where the tournament's surprise package will emerge?**\
+`Borussia Dortmund, Fluminense, Mamelodi Sundowns and Ulsan HD form an intriguing looking Group F`\
+https://nytimes.com/athletic/6413125/2025/06/10/club-world-cup-group-f-preview/
 
-**U.S. Teacher Seized by Russia Is Located in Prison**\
-`For months, the family of Stephen James Hubbard could not find him in the Russian prison system. New text messages cast doubt on his conviction.`\
-https://nytimes.com/2025/06/10/world/europe/stephen-hubbard-russia-ukraine.html
+**Gluck: Indy 500 showdown shows F1 flying too close to the motorsports sun**\
+`F1's indifference to one of the world's most popular races is staggering — and, if history is any guide, potentially shortsighted.`\
+https://nytimes.com/athletic/6414636/2025/06/10/f1-2026-schedule-indy-500/
 
-**Warner Bros. Discovery Bet on All You Can Eat. Viewers Wanted More à la Carte.**\
-`Subscribers to the company’s flagship streaming service, Max, watch HBO content, studio movies and older Warner Bros. series — and little else.`\
-https://nytimes.com/2025/06/10/business/media/hbo-max-warner-bros-discovery.html
+**The history of the NBA Finals patch and why it moved from the front of jerseys to the back**\
+`Born in the '90s, the NBA Finals patch has changed significantly over time`\
+https://nytimes.com/athletic/6412577/2025/06/10/nba-finals-patch-jerseys/
 
