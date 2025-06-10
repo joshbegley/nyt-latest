@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
 
+**Ashton Bell goes No. 1 in PWHL expansion draft as Vancouver, Seattle make picks**\
+`The PWHL’s two new expansion franchises filled out their rosters in the league’s first-ever expansion draft on Monday.
+`\
+https://nytimes.com/athletic/6415029/2025/06/09/pwhl-expansion-draft-vancouver-seattle-ashton-bell/
+
 **Who Is David Huerta, the Labor Leader Arrested in Los Angeles?**\
 `A well-known figure in the California labor movement for decades, he is now the president of the Service Employees International Union of California.`\
 https://nytimes.com/2025/06/09/us/david-huerta-labor-leader-los-angeles.html
