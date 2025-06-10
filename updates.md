@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
 
+**Why betting on Chivu to win the 2025/26 Scudetto with Inter is the smart move**\
+`Brett Koremenos explores the odds around Inter’s new manager bringing silverware to the San Siro. 
+`\
+https://nytimes.com/athletic/6415929/2025/06/10/inter-new-manager-betting-tips-odds-predictions/
+
 **Melbourne mayor asks Spurs to reinstate Postecoglou**\
 `Postecoglou was born in Greece but grew up in Melbourne and previously coached the Australian national team.`\
 https://nytimes.com/athletic/6416560/2025/06/10/tottenham-manager-ange-postecoglou-australia/
