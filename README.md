@@ -10,7 +10,7 @@ https://nytimes.com/2025/06/11/nyregion/queens-defenders-founder-fraud-indicted.
 `By Hurubie Meko`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/heres-the-latest-in-the-trial
 
-**Live Updates: Jury Delivers Mixed Verdict in Harvey Weinstein Retrial**\
+**Live Updates: Harvey Weinstein Convicted After Retrial in Mixed Verdict**\
 `Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and  acquitted on another. The jury could not reach a verdict on a third.`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
 

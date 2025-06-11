@@ -1,3 +1,19 @@
+**Living the Slop Life**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/ai-slop-slop-bowls-shein-slop-hauls
+
+**Founder of N.Y.C. Public Defender Office Is Charged With Fraud**\
+`Lori Zeno, who helped start the Queens Defenders, and her husband were accused of taking money from the organization for luxury vacations and a penthouse apartment.`\
+https://nytimes.com/2025/06/11/nyregion/queens-defenders-founder-fraud-indicted.html
+
+**Here’s the latest in the trial.**\
+`By Hurubie Meko`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/heres-the-latest-in-the-trial
+
+**Live Updates: Jury Delivers Mixed Verdict in Harvey Weinstein Retrial**\
+`Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and  acquitted on another. The jury could not reach a verdict on a third.`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
+
 **Musk Spoke to Trump Privately Before Posting Message of ‘Regret’**\
 `It remains to be seen how Mr. Trump will handle the attempted rapprochement and whether the two men’s relationship can be restored.`\
 https://nytimes.com/2025/06/11/us/politics/musk-trump.html
