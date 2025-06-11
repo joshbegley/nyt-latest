@@ -1,3 +1,11 @@
+**Washington Post Names Adam O’Neal as Opinion Editor**\
+`Mr. O’Neal, a correspondent for The Economist, will be in charge of championing “personal liberties and free markets,” the section’s new direction laid out by Jeff Bezos.`\
+https://nytimes.com/2025/06/11/business/media/washington-post-opinion-editor-adam-oneal.html
+
+**Palace in talks to sign PSV goalkeeper Benitez on free transfer**\
+`The 32-year-old will be out of contract with PSV later this month and is yet to sign a new deal with the Dutch champions.`\
+https://nytimes.com/athletic/6419563/2025/06/11/crystal-palace-transfer-news-benitez-psv/
+
 **What Skenes and Holliday's card value trajectories mean for Caglianone and Anthony**\
 `Caglianone and Anthony are the two darlings of the baseball card world right now, but volatility is likely`\
 https://nytimes.com/athletic/6419175/2025/06/11/jac-caglianone-roman-anthony-card-values/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/world/europe/syria-peace-committee-assad.html
 **Jurors weighed Weinstein’s fate in a changed climate.**\
 `By Hurubie Meko`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jurors-weighed-weinsteins-fate-in-a-changed-climate
-
-**Yohe: New Penguins coach Dan Muse won’t win on words alone, but he's off to a good start**\
-`Muse's honesty, which was on display Wednesday, will serve him well moving forward. `\
-https://nytimes.com/athletic/6419330/2025/06/11/penguins-coach-dan-muse-intro/
-
-**Movement as Storytelling**\
-`Dance offers a creative freedom that allows us to leap beyond two-dimensional facts and figures.`\
-https://nytimes.com/2025/06/11/special-series/annabelle-lopez-ochoa-dance.html
 
