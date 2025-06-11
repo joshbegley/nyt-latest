@@ -1,3 +1,7 @@
+**Where Are Anti-Trump Protests Expected on Wednesday?**\
+`Groups announced plans for demonstrations across the country, indicating that the protests that began in Los Angeles will continue to spread.`\
+https://nytimes.com/2025/06/11/us/trump-ice-protests-immigration-us-cities.html
+
 **U.S. Inflation Remains Muted, With Limited Effects From Tariffs**\
 `The Consumer Price Index rose 2.4 percent in May, from a year ago, a reading that reflects only the initial impact of President Trump’s tariffs.`\
 https://nytimes.com/2025/06/11/business/cpi-may-inflation-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/11/us/trump-news
 **Pelicans could look to Khaman Maluach in draft to capitalize on double-big trend**\
 `Maluach isn't the only option up front who the Pelicans could consider pairing with Yves Missi.`\
 https://nytimes.com/athletic/6417585/2025/06/11/pelicans-khaman-maluach-bigs-nba-draft-2025/
-
-**Blues fan survey results: High confidence in Armstrong heading into final year as GM**\
-`Nearly 1,800 voters took part in our 20-question Blues fan survey, which featured exciting prospects, potential contracts and more.`\
-https://nytimes.com/athletic/6416058/2025/06/11/blues-fan-survey-results-armstrong-holloway-broberg/
 
