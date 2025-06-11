@@ -1,3 +1,7 @@
+**Jimmy Kimmel Calls Trump an ‘Arsonist With a Hose’**\
+`The L.A.-based host said the city’s problem was the president, not the protests: “We have more so-called ‘unrest’ here when one of our teams wins a championship.”`\
+https://nytimes.com/2025/06/11/arts/television/jimmy-kimmel-los-angeles-protests.html
+
 **Fresh off French Open win, Coco Gauff is the toast of New York at WNBA game, 'Tonight Show'**\
 `Gauff watched the Liberty defeat the Chicago Sky with Vanessa Bryant and later shared her humorous side with Jimmy Fallon.`\
 https://nytimes.com/athletic/6418033/2025/06/11/coco-gauff-tonight-show-wnba/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6404078/2025/06/11/liverpool-loan-bajcetic-danns-do
 **Club World Cup Fantasy: How does the game work and what are the best strategies for success?**\
 `Holly Shand explains how Club World Cup Fantasy works, highlighting the key differences to FPL and the premium players to target`\
 https://nytimes.com/athletic/6415332/2025/06/11/club-world-cup-fantasy-rules-strategy/
-
-**Life after Man Utd: DJ Buffonge on haircuts, 'old school' mentalities and a new life calling**\
-`In the second of our series about former academy players, DJ Buffonge reveals how he is putting his United experiences to good use`\
-https://nytimes.com/athletic/6401828/2025/06/11/dj-buffonge-manchester-united-interview/
 
