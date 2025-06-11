@@ -1,3 +1,11 @@
+**Seven takeaways from Eagles minicamp: Offense remains a force, Tyler Steen a front-runner, and more**\
+`Plus, Jihaad Campbell puts on a helmet for individual drills.`\
+https://nytimes.com/athletic/6417475/2025/06/11/eagles-minicamp-jalen-hurts-tyler-steen/
+
+**The New York Times International Edition in Print for Thursday, June 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/11/todays-new-york-times-international-edition
+
 **Stanley Cup checklist: How do Devils stack up to Panthers and Oilers?**\
 `If the Devils are healthy next season, perhaps team president Tom Fitzgerald will take bigger midseason swings.`\
 https://nytimes.com/athletic/6416856/2025/06/11/stanley-cup-checklist-how-do-devils-stack-up-to-panthers-and-oilers/
