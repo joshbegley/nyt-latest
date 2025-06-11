@@ -1,3 +1,7 @@
+**Fresh off French Open win, Coco Gauff is the toast of New York at WNBA game, 'Tonight Show'**\
+`Gauff watched the Liberty defeat the Chicago Sky with Vanessa Bryant and later shared her humorous side with Jimmy Fallon.`\
+https://nytimes.com/athletic/6418033/2025/06/11/coco-gauff-tonight-show-wnba/
+
 **Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
 `The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6415332/2025/06/11/club-world-cup-fantasy-rules-str
 **Life after Man Utd: DJ Buffonge on haircuts, 'old school' mentalities and a new life calling**\
 `In the second of our series about former academy players, DJ Buffonge reveals how he is putting his United experiences to good use`\
 https://nytimes.com/athletic/6401828/2025/06/11/dj-buffonge-manchester-united-interview/
-
-**There's enough blame, shame for all after USMNT's debacle vs. Switzerland**\
-`The anatomy of a 4-0 loss: Mauricio Pochettino's choices, players' performances and a clear ceiling for the U.S. player pool.`\
-https://nytimes.com/athletic/6418099/2025/06/11/usmnt-switzerland-blame-pochettino-players-world-cup/
 

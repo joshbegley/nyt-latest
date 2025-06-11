@@ -1,3 +1,12 @@
+**Fresh off French Open win, Coco Gauff is the toast of New York at WNBA game, 'Tonight Show'**\
+`Gauff watched the Liberty defeat the Chicago Sky with Vanessa Bryant and later shared her humorous side with Jimmy Fallon.`\
+https://nytimes.com/athletic/6418033/2025/06/11/coco-gauff-tonight-show-wnba/
+
+**Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
+`The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
+`\
+https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
+
 **Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
 `The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
 `\
