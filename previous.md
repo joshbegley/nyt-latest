@@ -1,3 +1,27 @@
+**Intensely Flavored and Supremely Comforting**\
+`Yewande Komolafe’s versatile take on Ghanaian light soup replenishes and restores.`\
+https://nytimes.com/2025/06/11/dining/easy-ghanaian-light-soup-recipe.html
+
+**I Had an Affair With a Politician Who Denies Being Gay. Do I Keep His Secret?**\
+`Is what happened between us my story to tell?`\
+https://nytimes.com/2025/06/11/magazine/politician-affair-ethics.html
+
+**Broadway Dreams Were Dashed, Then Rob Madge Knocked on Some Doors**\
+`The British performer is bringing “My Son’s a Queer (but What Can You Do?)” to City Center this week, after an earlier run was canceled.`\
+https://nytimes.com/2025/06/11/theater/my-sons-a-queer-rob-madge.html
+
+**Many Falls Are Preventable. These Tips Can Help.**\
+`Small changes and good habits make a difference.`\
+https://nytimes.com/2025/06/11/well/fall-prevention-tips.html
+
+**One year from a home World Cup, USMNT with fanfare has fear of being a flop**\
+`Instead of hitting its stride at the perfect moment, the potential-filled USMNT is wobbling toward the World Cup it's cohosting`\
+https://nytimes.com/athletic/6417981/2025/06/11/usmnt-2026-world-cup-one-year-out-expectations-pochettino/
+
+**Who is Evelyn Shores? The USWNT youth player winning NCAA titles and scoring $1 million goals**\
+`Shores is still undecided about whether she’ll pursue a professional career in the U.S. or abroad, but it's clear she has options now.`\
+https://nytimes.com/athletic/6418707/2025/06/11/uswnt-unc-evelyn-shores-soccer-goals/
+
 **Houses and Cars Torched in Second Night of Unrest in Northern Ireland**\
 `The recent unrest in the Northern Irish town of Ballymena followed a protest over a sexual assault case in the town.`\
 https://nytimes.com/video/world/europe/100000010221176/houses-and-cars-torched-in-second-night-of-unrest-in-northern-ireland.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6418257/2025/06/11/anonymous-mlb-player-poll-the-wi
 **Angel Reese’s ‘crown is heavy,’ Sky's Ariel Atkins says, calls for respect**\
 `"Luckily I'm around amazing women every day that love each other," Reese said. "We genuinely love each other."`\
 https://nytimes.com/athletic/6418759/2025/06/11/angel-reese-respect-ariel-atkins-sky-wnba/
-
-**Trump Is Pushing Allies Away and Closer Into Each Other’s Arms**\
-`Important U.S. allies are trying to bolster their ties as the Trump administration shifts priorities and reshapes the world order.`\
-https://nytimes.com/2025/06/11/world/canada/g7-trump-us-allies-world-order.html
-
-**Fulbright Board Resigns After Accusing Trump Aides of Political Interference**\
-`The board of the prestigious program told the State Department it had no right to cancel scholarships for nearly 200 American professors and researchers.`\
-https://nytimes.com/2025/06/11/us/politics/fulbright-board-resign-trump.html
-
-**The launch of NIL Go signals a high-stakes evolution in college sports: MoneyCall**\
-`A hectic past week in college sports hits its next phase with the launch of a persnickety new tool to track athlete NIL deals. Will it work?`\
-https://nytimes.com/athletic/6418924/2025/06/11/nil-go-deloitte-bryan-seeley-college-sports-commission-moneycall/
-
-**WTA Tour introduces women's tennis ranking protection for fertility treatment**\
-`Sloane Stephens, 2017 U.S. Open champion, called for the measure last year after undergoing egg freezing.`\
-https://nytimes.com/athletic/6418822/2025/06/11/tennis-wta-tour-rankings-protection-fertility-treatment/
-
-**Stroll to return for Canadian Grand Prix after 'successful medical procedure'**\
-`The Canadian, 26, missed the Spanish Grand Prix last time out after reporting pain in his hand and wrist.`\
-https://nytimes.com/athletic/6418912/2025/06/11/lance-stroll-f1-canadian-grand-prix/
-
-**This Elusive Antarctic Squid Was Seen for the First Time**\
-`An expedition in the Southern Ocean captured video of a rare species of deep-sea cephalopod. Until now, it had been found only in fishing nets and in the bellies of seabirds.`\
-https://nytimes.com/2025/06/11/science/antarctic-gonate-squid-rare-sighting-video.html
 
