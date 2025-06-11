@@ -1,3 +1,7 @@
+**‘Families Like Ours’ Review: Emptying Denmark**\
+`In Thomas Vinterberg’s series on Netflix, climate change forces a country to close, and everyone has to leave.`\
+https://nytimes.com/2025/06/11/arts/television/families-like-ours-review-netflix.html
+
 **They’re Chic, They’re Quiet, and They Might Be Filled With Mold**\
 `Midea’s recall of 1.7 million air-conditioners is causing frustration and confusion among its design-conscious user base.`\
 https://nytimes.com/2025/06/11/style/midea-air-conditioners-mold-recall-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad
 **Britain Allocates Hundreds of Billions to Bolster Its Economy**\
 `Rachel Reeves, the chancellor of the Exchequer, broke down public spending plans, including more money for the military, public transport and affordable housing.`\
 https://nytimes.com/2025/06/11/business/uk-spending-economy.html
-
-**Man Utd sign Emsden-James, 16, from Southampton**\
-`The defender has played for England at youth level and featured above his age group at Southampton.`\
-https://nytimes.com/athletic/6418961/2025/06/11/harley-emsden-james-man-utd-who/
 

@@ -1,3 +1,7 @@
+**‘Families Like Ours’ Review: Emptying Denmark**\
+`In Thomas Vinterberg’s series on Netflix, climate change forces a country to close, and everyone has to leave.`\
+https://nytimes.com/2025/06/11/arts/television/families-like-ours-review-netflix.html
+
 **They’re Chic, They’re Quiet, and They Might Be Filled With Mold**\
 `Midea’s recall of 1.7 million air-conditioners is causing frustration and confusion among its design-conscious user base.`\
 https://nytimes.com/2025/06/11/style/midea-air-conditioners-mold-recall-reaction.html
