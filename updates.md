@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, June 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/11/todays-new-york-times
+
+**Twins rotation suddenly looks wobbly after Simeon Woods Richardson shelled in loss to Rangers**\
+`Texas crushed Minnesota 16-4 in front of 24,765 at Target Field on Tuesday night.`\
+https://nytimes.com/athletic/6418118/2025/06/11/twins-loss-rangers-rotation-simeon-woods-richardson/
+
 **Liverpool's loanees: What next for Bajcetic, Doak, Danns and more?**\
 `How did the players sent out on short-term deals fare last season and what could their futures hold?`\
 https://nytimes.com/athletic/6404078/2025/06/11/liverpool-loan-bajcetic-danns-doak/

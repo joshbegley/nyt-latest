@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`The deployment of troops to Los Angeles.`\
+https://nytimes.com/2025/06/11/briefing/los-angeles-china-austria.html
+
 **The New York Times in Print for Wednesday, June 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/11/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6416236/2025/06/11/chelsea-maignan-milan-france-san
 **Forest's starting XI can compete with anyone, but the squad needs strengthening for Europe**\
 `Paul Taylor assesses Forest's squad depth and what additions are still needed`\
 https://nytimes.com/athletic/6415680/2025/06/11/nottingham-forest-squad-depth-summer-2025/
-
-**Who should Barcelona actually target in this summer's transfer window?**\
-`Barcelona have been linked with the likes of Marcus Rashford and Luis Diaz - but does it make more sense to bolster their defence?`\
-https://nytimes.com/athletic/6415909/2025/06/11/barcelona-transfers-summer-2025-rashford-diaz/
 
