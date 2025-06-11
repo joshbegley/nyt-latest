@@ -1,3 +1,16 @@
+**Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
+`The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
+`\
+https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
+
+**Word of the Day: intransigent**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/11/learning/word-of-the-day-intransigent.html
+
+**Thomas Tuchel's short tenure as England manager is by design - but is it starting to become a problem?**\
+`With the World Cup a year away there is not much time to fix things — but this is how Tuchel and the FA wanted it`\
+https://nytimes.com/athletic/6417695/2025/06/11/england-thomas-tuchel-senegal-world-cup/
+
 **Wednesday Briefing**\
 `The deployment of troops to Los Angeles.`\
 https://nytimes.com/2025/06/11/briefing/los-angeles-china-austria.html
