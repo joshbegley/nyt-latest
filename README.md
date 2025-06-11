@@ -1,3 +1,11 @@
+**Suggesting More Troops in More Cities, Trump Bends Military’s Role**\
+`President Trump has expanded domestic use of the armed forces, testing the limits on involving troops at protests and the border.`\
+https://nytimes.com/2025/06/11/us/politics/trump-domestic-military-expansion.html
+
+**Yankees’ Marcus Stroman walks back starter-only stance: ‘Open to anything’**\
+`"I'm a starter," Stroman said back in February. "I won’t pitch in the bullpen."`\
+https://nytimes.com/athletic/6420010/2025/06/11/new-york-yankees-marcus-stroman-stance/
+
 **Phillies' Jesús Luzardo rebounds after making changes to address potential tipping**\
 `"There's a lot of things that we tinkered with," Luzardo said. "The biggest thing was attention to detail."`\
 https://nytimes.com/athletic/6419944/2025/06/11/jesus-luzardo-tipping-phillies-cubs-win/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/cuomo-endorsement-paterson.html
 **Weinstein Was Convicted in His Retrial**\
 `Also, the U.S. is planning to withdraw diplomats from Iraq. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/06/11/briefing/weinstein-trial-verdict-tensions-middle-east.html
-
-**What Happens to Vaccines Now?**\
-`Robert F. Kennedy Jr.’s overhaul of an influential committee, including the appointment of new members, has created concern about vaccine access.`\
-https://nytimes.com/2025/06/11/well/vaccines-cdc-rfk-jr.html
-
-**Brian Wilson: A Life in Pictures**\
-`The Beach Boys leader was one of pop music’s most acclaimed visionaries, whose creative success was tempered by personal battles.`\
-https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html
 

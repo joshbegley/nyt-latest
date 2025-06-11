@@ -1,3 +1,15 @@
+**Phillies' Jesús Luzardo rebounds after making changes to address potential tipping**\
+`"There's a lot of things that we tinkered with," Luzardo said. "The biggest thing was attention to detail."`\
+https://nytimes.com/athletic/6419944/2025/06/11/jesus-luzardo-tipping-phillies-cubs-win/
+
+**Commanders CB Marshon Lattimore's offseason centered on health, removing 'timid' steps**\
+`The four-time Pro Bowler who's had lingering hamstring issues said he's feeling much better while participating at Washington's minicamp.`\
+https://nytimes.com/athletic/6419822/2025/06/11/marshon-lattimore-commanders-minicamp/
+
+**Raiders minicamp: Jeremy Chinn, Isaiah Pola-Mao part of new-look defensive backfield**\
+`Chinn's versatility and Pola-Mao's potential make for an interesting safety duo. On Wednesday, the Raiders also signed LB Germaine Pratt.`\
+https://nytimes.com/athletic/6419812/2025/06/11/raiders-minicamp-jeremy-chinn-isaiah-pola-mao/
+
 **Betsy Jochum, 104, Dies; Last Original Member of Women’s Baseball League**\
 `Playing in the All-American Girls Professional Baseball League, which inspired the film “A League of Their Own,” she won a batting title and stole 127 bases in 1944.`\
 https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
