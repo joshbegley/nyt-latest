@@ -1,3 +1,11 @@
+**5 Months Into Office, No Trump Talk for San Francisco Mayor**\
+`Mayor Daniel Lurie says that he is focused on quality of life issues, not politics, as President Trump targets California in various ways.`\
+https://nytimes.com/2025/06/11/us/san-francisco-mayor-trump-protests.html
+
+**Trumps to Attend ‘Les Misérables’ at Kennedy Center**\
+`The president and first lady are scheduled to attend the opening night of the musical, one of his favorites, after he seized control of the cultural institution.`\
+https://nytimes.com/2025/06/11/us/politics/trump-les-miserables-kennedy-center.html
+
 **Jury in Weinstein Trial Was Ordered to Cool Down Amid Shouting and Threats**\
 `Harvey Weinstein said infighting in the jury was denying him a fair trial.`\
 https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-jury.html
