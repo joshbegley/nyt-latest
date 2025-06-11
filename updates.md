@@ -1,3 +1,11 @@
+**What Happens to Vaccines Now?**\
+`Robert F. Kennedy Jr.’s overhaul of an influential committee, including the appointment of new members, has created concern about vaccine access.`\
+https://nytimes.com/2025/06/11/well/vaccines-cdc-rfk-jr.html
+
+**Judge Opens Door to Releasing Mahmoud Khalil**\
+`Mr. Khalil, a legal permanent resident, has been held in Louisiana for more than three months. The judge suggested he could be released as early as Friday unless the government successfully appeals.`\
+https://nytimes.com/2025/06/11/nyregion/mahmoud-khalil-release-order.html
+
 **Brian Wilson: A Life in Pictures**\
 `The Beach Boys leader was one of pop music’s most acclaimed visionaries, whose creative success was tempered by personal battles.`\
 https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html

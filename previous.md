@@ -1,3 +1,7 @@
+**What Happens to Vaccines Now?**\
+`Robert F. Kennedy Jr.’s overhaul of an influential committee, including the appointment of new members, has created concern about vaccine access.`\
+https://nytimes.com/2025/06/11/well/vaccines-cdc-rfk-jr.html
+
 **Brian Wilson: A Life in Pictures**\
 `The Beach Boys leader was one of pop music’s most acclaimed visionaries, whose creative success was tempered by personal battles.`\
 https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html
@@ -22,8 +26,8 @@ https://nytimes.com/2025/06/11/world/middleeast/israel-hostages-remains-gaza.htm
 `Gomes' contract was set to expire this summer, after he signed a five-year deal upon joining Lille in 2020. `\
 https://nytimes.com/athletic/6301796/2025/06/11/angel-gomes-marseille-transfer/
 
-**Judge Bars Trump Administration From Detaining Mahmoud Khalil**\
-`Mr. Khalil, a legal permanent resident, has been held in Louisiana for more than three months. The judge said he would be released on Friday unless the government successfully appeals.`\
+**Judge Opens Door to Releasing Mahmoud Khalil**\
+`Mr. Khalil, a legal permanent resident, has been held in Louisiana for more than three months. The judge suggested he could be released as early as Friday unless the government successfully appeals.`\
 https://nytimes.com/2025/06/11/nyregion/mahmoud-khalil-release-order.html
 
 **No, Not That Lee. Pentagon Finds Black Hero to Rechristen Base Long Named for Robert E.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/army-bases-trump-confederate.html
 **Kosovo will accept up to 50 deported migrants from America.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/06/11/us/trump-news/kosovo-will-accept-up-to-50-deported-migrants-from-america
-
-**U.S. group including Jimmy Butler expected to make offer for stake in Crystal Palace**\
-`The group is looking to purchase Eagle Football's 43 per cent stake in Palace, with an expected offer in excess of $200m.`\
-https://nytimes.com/athletic/6415443/2025/06/11/crystal-palace-takeover-textor-eagle-butler/
 
