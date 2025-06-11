@@ -1,3 +1,11 @@
+**Inside Mamelodi Sundowns: 'Our ambition is not the South African league - it's the continent'**\
+`In the final part of our series on Mamelodi Sundowns, we find out how the club recruits`\
+https://nytimes.com/athletic/6407912/2025/06/11/inside-mamelodi-sundowns-our-ambition-is-not-the-south-african-league-its-the-continent/
+
+**World Cup 2026: Our experts' hopes, fears and predictions with a year to go**\
+`What could derail the tournament or make it a hit? Which players will shine? And who could win? Our writers have their say...`\
+https://nytimes.com/athletic/6413935/2025/06/11/world-cup-2026-predictions/
+
 **DAZN will broadcast the Club World Cup around the world. What is the streamer's big idea?**\
 `DAZN is the global rights holder for the upcoming Club World Cup and is planning to use it to expand its reach`\
 https://nytimes.com/athletic/6404831/2025/06/11/dazn-club-world-cup-billion/

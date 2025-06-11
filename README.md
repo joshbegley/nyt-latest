@@ -1,3 +1,15 @@
+**Chelsea's goalkeeping conundrum: Would Maignan have represented an upgrade?**\
+`Interest in the Milan and France goalkeeper has been dropped this summer,but Chelsea may be wise to monitor his situation in January`\
+https://nytimes.com/athletic/6416236/2025/06/11/chelsea-maignan-milan-france-sanchez-jorgensen-petrovic/
+
+**Forest's starting XI can compete with anyone, but the squad needs strengthening for Europe**\
+`Paul Taylor assesses Forest's squad depth and what additions are still needed`\
+https://nytimes.com/athletic/6415680/2025/06/11/nottingham-forest-squad-depth-summer-2025/
+
+**Who should Barcelona actually target in this summer's transfer window?**\
+`Barcelona have been linked with the likes of Marcus Rashford and Luis Diaz - but does it make more sense to bolster their defence?`\
+https://nytimes.com/athletic/6415909/2025/06/11/barcelona-transfers-summer-2025-rashford-diaz/
+
 **Inside Mamelodi Sundowns: 'Our ambition is not the South African league - it's the continent'**\
 `In the final part of our series on Mamelodi Sundowns, we find out how the club recruits`\
 https://nytimes.com/athletic/6407912/2025/06/11/inside-mamelodi-sundowns-our-ambition-is-not-the-south-african-league-its-the-continent/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/ice-la-protest-arrests.html
 **Connections: Sports Edition Coach: Hints for June 11, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6417890/2025/06/11/connections-sports-edition-hints-for-june-11-2025/
-
-**To Shake Russian Gas, Germany Pushes to Ship It in From Anywhere Else**\
-`The country, like others across Europe, is building more facilities to handle an increase in imports of liquefied natural gas, much of it from the United States.`\
-https://nytimes.com/2025/06/11/business/russia-germany-gas-lng.html
-
-**Corrections: June 11, 2025**\
-`Corrections that appeared in print on Wednesday, June 11, 2025.`\
-https://nytimes.com/2025/06/11/pageoneplus/corrections-june-11-2025.html
-
-**Quote of the Day: Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
-`Quotation of the Day for Wednesday, June 11, 2025.`\
-https://nytimes.com/2025/06/10/pageoneplus/quote-of-the-day-extremely-lifelike-dolls-cause-a-frenzy-in-brazil.html
 
