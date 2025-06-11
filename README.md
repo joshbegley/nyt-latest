@@ -20,7 +20,7 @@ https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html
 
 **Kennedy Announces Eight New Members of C.D.C. Vaccine Advisory Panel**\
 `The appointments of at least two of the experts are likely to draw an uproar from pro-vaccine groups for their criticism of federal scientists and the Biden administration’s Covid vaccine policies.`\
-https://nytimes.com/2025/06/11/us/kennedy-cdc-vaccine-panel.html
+https://nytimes.com/2025/06/11/us/rfk-jr-cdc-vaccine-panel.html
 
 **Scheme to Take Torture Victim’s Crypto Went Back Months, Prosecutors Say**\
 `Two cryptocurrency investors met three times with the victim, a longtime friend, demanding his electronic devices and the passkey to an account worth millions of dollars.`\
