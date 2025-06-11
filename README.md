@@ -1,3 +1,15 @@
+**WATCH: Does Tyrese Haliburton need to be more aggressive? Yes, but it's not so simple**\
+`Calls for Tyrese Haliburton to be more aggressive make sense, but his form of aggression is not the same as it is for most other NBA stars.`\
+https://nytimes.com/athletic/6418803/2025/06/11/tyrese-haliburton-pacers-thunder-nba-finals-aggressive/
+
+**Ambulance Crew and Photographer Among Latest Casualties in Gaza**\
+`Three paramedics and a photographer with them were killed late Monday in northern Gaza. The Israeli military said it was reviewing claims by health authorities in Gaza that the crew was killed in an Israeli strike while responding to an earlier incident.`\
+https://nytimes.com/video/world/middleeast/100000010221069/health-workers-killed-gaza-israel.html
+
+**The trial required witnesses to repeat harrowing testimony.**\
+`By Jonah E. Bromwich`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jessica-mann-kaja-sokola-miriam-haley
+
 **What’s in Our Queue? ‘Sinners’ and More **\
 `Text by Lisa Miller`\
 https://nytimes.com/card/2025/06/11/arts/editors-recommendations-sinners
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/republicans-trump-populist-tax-cuts.h
 **Living the Slop Life**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ai-slop-slop-bowls-shein-slop-hauls
-
-**Founder of N.Y.C. Public Defender Office Is Charged With Fraud**\
-`Lori Zeno, who helped start the Queens Defenders, and her husband were accused of taking money from the organization for luxury vacations and a penthouse apartment.`\
-https://nytimes.com/2025/06/11/nyregion/queens-defenders-founder-fraud-indicted.html
-
-**Here’s the latest.**\
-`By Hurubie Meko and Jonah E. Bromwich`\
-https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/heres-the-latest-in-the-trial
-
-**Live Updates: Harvey Weinstein Convicted in Mixed Verdict After Retrial**\
-`Mr. Weinstein, the former Hollywood mogul, was convicted on one sexual assault charge and acquitted on another. The jury could not reach a verdict on a third.`\
-https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
 
