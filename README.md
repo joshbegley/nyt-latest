@@ -1,40 +1,40 @@
-**Sane to leave Bayern, agrees three-year Galatasaray deal**\
-`Arsenal, Fenerbahce and Al Hilal were all of interest but the Germany international is set for a move to Turkey.`\
-https://nytimes.com/athletic/6232462/2025/06/11/leroy-sane-galatasaray-transfer-bayern/
+**Ehud Olmert on Israel’s Catastrophic War in Gaza**\
+`The former prime minister of Israel discusses why he believes Israel’s war in Gaza can no longer be justified.`\
+https://nytimes.com/2025/06/11/opinion/ezra-klein-podcast-ehud-olmert.html
 
-**Texas Governor Will Deploy National Guard to Immigration Protests**\
-`Gov. Greg Abbott, a staunch supporter of President Trump’s immigration agenda, is the first governor to call on the National Guard as protests spread to multiple cities.`\
-https://nytimes.com/2025/06/11/us/national-guard-texas-deploy-abbott.html
+**Trump’s Pick to Lead the F.A.A. Faces Senate Grilling**\
+`The confirmation hearing for Bryan Bedford, a commercial airline executive, comes as the agency confronts critical staffing shortages and questions about passenger safety.`\
+https://nytimes.com/2025/06/11/us/politics/bryan-bedford-faa-senate.html
 
-**Transfers TLDR: Tijjani Reijnders to Manchester City – all you need to know**\
-`Manchester City have signed Tijjani Reijnders from Milan - here's all you need to know about the transfer`\
-https://nytimes.com/athletic/6402007/2025/06/11/tijjani-reijnders-man-city-transfers-analysis/
+**The Military May Find Itself in an Impossible Situation**\
+`Law and ethics can be at odds.`\
+https://nytimes.com/2025/06/11/opinion/military-deploy-trump-ethics.html
 
-**Wildfire Burns Near San Bernardino Mountains**\
-`Firefighters battled the fire as high and dry winds fanned the flames.`\
-https://nytimes.com/video/us/100000010221082/san-bernardino-wildfire-california.html
+**30 Delightful Hotels in Europe Under $300 a Night**\
+`We scoured the hotel scene in the heart of popular cities in search of stylish lodgings that won’t break the bank. Here’s the best of what we found.`\
+https://nytimes.com/interactive/2025/06/11/travel/europe-affordable-hotels.html
 
-**‘We’re Just Speechless’: Austria Mourns After Deadly School Rampage**\
-`A former student killed 10 people and then himself in a mass shooting on Tuesday, the police said. It was one of the worst such attacks in Europe in the past decade.`\
-https://nytimes.com/2025/06/11/world/europe/austria-school-shooting-graz.html
+**Tourists on the Tram? Roosevelt Islanders Are Fed Up.**\
+`Social media attention has brought sightseers to the tram, creating long waits for residents who take the tram to and from home.`\
+https://nytimes.com/2025/06/11/nyregion/tram-roosevelt-island-tourists.html
 
-**Man City confirm Reijnders signing ahead of Club World Cup**\
-`The Netherlands international joins for an initial €55million (£46.3m) and has signed a deal until 2030.`\
-https://nytimes.com/athletic/6402156/2025/06/11/man-city-reijnders-transfer-confirmed/
+**It’s Code Red for Vaccines**\
+`How to make sense of all the vaccine policy changes.`\
+https://nytimes.com/2025/06/11/opinion/rfk-vaccine-policy-changes.html
 
-**Musk Expresses ‘Regret’ Over His Criticisms of Trump**\
-`President Trump and Elon Musk traded social media barbs last week. Mr. Trump has said that he has no interest in repairing the relationship with his former adviser.`\
-https://nytimes.com/2025/06/11/business/elon-musk-trump-feud.html
+**Mexican Flags Have Become Republican Fodder, but Protesters Keep Waving Them**\
+`Images of Los Angeles protesters waving Mexican flags have gone viral in conservative circles this week. Many protesters say they are aware of the political reaction but won’t put their flags away.`\
+https://nytimes.com/2025/06/11/us/mexican-flags-have-become-republican-fodder-but-protesters-keep-waving-them.html
 
-**Marines to Join National Guard Troops Protecting ICE Agents in Los Angeles**\
-`A military official said the Marines would be on the city’s streets on Wednesday. A federal judge was set to hear California’s request to limit the use of the soldiers.`\
-https://nytimes.com/2025/06/11/us/marines-los-angeles-immigration-protests.html
+**Star WR Davante Adams praises new Rams teammates, QB Matthew Stafford and coach McVay**\
+`Davante Adams says L.A. is right for him. "I feel like this is what I needed just based off the vibe and the aura of the building."`\
+https://nytimes.com/athletic/6417314/2025/06/11/rams-davante-adams-matthew-stafford-connection/
 
-**10 Questions With Brad Lander**\
-`Brad Lander, the New York City comptroller who is running for mayor, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/11/nyregion/brad-lander-interview.html
+**The Thrilling Evidence of Jane Austen’s Imagination**\
+`Spirited (and gossipy) letters and manuscripts at the Morgan Library and Museum puncture myths about the writer’s rise to literary fame.`\
+https://nytimes.com/2025/06/11/arts/design/jane-austen-show-morgan-library.html
 
-**Republicans Prep for an All-Out Race to Flip New Jersey, With Trump’s Help**\
-`Democrats, on their heels after President Trump’s victory, see the state as the “perfect place to counterpunch.”`\
-https://nytimes.com/2025/06/11/nyregion/new-jersey-governor-general-election.html
+**Tom Hiddleston Dances Up a Storm: ‘I Just Wanted It to Fly’**\
+`In “The Life of Chuck,” the actor known for spontaneous eruptions of joyful movement, lets loose with a feast of footwork.`\
+https://nytimes.com/2025/06/11/movies/tom-hiddleston-dance-life-of-chuck.html
 
