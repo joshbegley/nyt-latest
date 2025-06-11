@@ -1,3 +1,7 @@
+**Live Updates: Harvey Weinstein Convicted After Retrial in Mixed Verdict**\
+`Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and  acquitted on another. The jury could not reach a verdict on a third.`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
+
 **Living the Slop Life**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ai-slop-slop-bowls-shein-slop-hauls
