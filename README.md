@@ -1,3 +1,11 @@
+**Betsy Jochum, 104, Dies; Last Original Member of Women’s Baseball League**\
+`Playing in the All-American Girls Professional Baseball League, which inspired the film “A League of Their Own,” she won a batting title and stole 127 bases in 1944.`\
+https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
+
+**What is the role of the National Guard troops in L.A.?**\
+`By Eric Schmitt, Emily Cochrane and J. David Goodman`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/what-is-the-role-of-the-national-guard-troops-in-la
+
 **Carwashes become easy targets in California’s ICE raids.**\
 `By Emily Baumgaertner Nunn and Anushka Patil`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/carwashes-become-easy-targets-in-californias-ice-raids
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/cryptocurrency-investors-torture-arraign
 **The next Travis Hunter? Not quite, but Packers are working Bo Melton at WR and CB**\
 `The Packers' fourth-year wide receiver surprised teammates when he practiced at cornerback during mandatory minicamp this week.`\
 https://nytimes.com/athletic/6419682/2025/06/11/the-next-travis-hunter-not-quite-but-packers-are-working-bo-melton-at-wr-and-cb/
-
-**Israel Says It Recovered the Remains of Two Hostages in Gaza**\
-`Yair Yaakov was kidnapped by Islamic Jihad in the Oct. 7, 2023, attacks on Israel, Prime Minister Benjamin Netanyahu said. The other hostage will be named later, the Israeli military said.`\
-https://nytimes.com/2025/06/11/world/middleeast/israel-hostages-remains-gaza.html
-
-**England midfielder Gomes reaches agreement in principle to join Marseille**\
-`Gomes' contract was set to expire this summer, after he signed a five-year deal upon joining Lille in 2020. `\
-https://nytimes.com/athletic/6301796/2025/06/11/angel-gomes-marseille-transfer/
 
