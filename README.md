@@ -1,3 +1,7 @@
+**Thomas Tuchel's short tenure as England manager is by design - but is it starting to become a problem?**\
+`With the World Cup a year away there is not much time to fix things — but this is how Tuchel and the FA wanted it`\
+https://nytimes.com/athletic/6417695/2025/06/11/england-thomas-tuchel-senegal-world-cup/
+
 **Wednesday Briefing**\
 `The deployment of troops to Los Angeles.`\
 https://nytimes.com/2025/06/11/briefing/los-angeles-china-austria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6415329/2025/06/11/michail-antonio-could-make-his-c
 **Chelsea's goalkeeping conundrum: Would Maignan have represented an upgrade?**\
 `Interest in the Milan and France goalkeeper has been dropped this summer,but Chelsea may be wise to monitor his situation in January`\
 https://nytimes.com/athletic/6416236/2025/06/11/chelsea-maignan-milan-france-sanchez-jorgensen-petrovic/
-
-**Forest's starting XI can compete with anyone, but the squad needs strengthening for Europe**\
-`Paul Taylor assesses Forest's squad depth and what additions are still needed`\
-https://nytimes.com/athletic/6415680/2025/06/11/nottingham-forest-squad-depth-summer-2025/
 
