@@ -1,3 +1,15 @@
+**Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
+`Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
+https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
+
+**NHL rumblings: Latest on Kreider, Marchand, Tavares, Pettersson, more as the summer market heats up**\
+`With a few days off in the Stanley Cup Final, we also check in on the Blackhawks, Kings, Hurricanes, Jonathan Toews watch and more.`\
+https://nytimes.com/athletic/6420007/2025/06/11/nhl-trades-free-agency-kreider-marchand-tavares/
+
+**Yankees’ Marcus Stroman walks back starter-only stance: ‘Open to anything’**\
+`"I'm a starter," Stroman said in February. "I won’t pitch in the bullpen."`\
+https://nytimes.com/athletic/6420010/2025/06/11/new-york-yankees-marcus-stroman-stance/
+
 **New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
 `If a handshake agreement holds, it would merely undo some of the damage from the trade war that President Trump started.`\
 https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html

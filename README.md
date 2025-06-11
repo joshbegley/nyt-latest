@@ -1,3 +1,7 @@
+**E.P.A. Axes Biden’s Climate and Pollution Limits on Power Plants**\
+`Lee Zeldin, the E.P.A. administrator, said erasing regulations would produce jobs and lower electricity costs. He called efforts to fight climate change “a cult.”`\
+https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.html
+
 **Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
 `Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
 https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419822/2025/06/11/marshon-lattimore-commanders-min
 **Raiders minicamp: Jeremy Chinn, Isaiah Pola-Mao part of new-look defensive backfield**\
 `Chinn's versatility and Pola-Mao's potential make for an interesting safety duo. On Wednesday, the Raiders also signed LB Germaine Pratt.`\
 https://nytimes.com/athletic/6419812/2025/06/11/raiders-minicamp-jeremy-chinn-isaiah-pola-mao/
-
-**Betsy Jochum, 104, Dies; Last Original Member of Women’s Baseball League**\
-`Playing in the All-American Girls Professional Baseball League, which inspired the film “A League of Their Own,” she won a batting title and stole 127 bases in 1944.`\
-https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
 
