@@ -1,3 +1,7 @@
+**Stanley Cup checklist: How do Devils stack up to Panthers and Oilers?**\
+`If the Devils are healthy next season, perhaps team president Tom Fitzgerald will take bigger midseason swings.`\
+https://nytimes.com/athletic/6416856/2025/06/11/stanley-cup-checklist-how-do-devils-stack-up-to-panthers-and-oilers/
+
 **Curfew Imposed in Los Angeles**\
 `Some protesters defied the curfew imposed by Mayor Karen Bass as Gov. Gavin Newsom of California criticized President Trump’s deployment of the military to Los Angeles.`\
 https://nytimes.com/video/us/100000010221112/los-angeles-protest-curfew-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/us/mexican-flags-have-become-republican-fodder-bu
 **Star WR Davante Adams praises new Rams teammates, QB Matthew Stafford and coach McVay**\
 `Davante Adams says L.A. is right for him. "I feel like this is what I needed just based off the vibe and the aura of the building."`\
 https://nytimes.com/athletic/6417314/2025/06/11/rams-davante-adams-matthew-stafford-connection/
-
-**The Thrilling Evidence of Jane Austen’s Imagination**\
-`Spirited (and gossipy) letters and manuscripts at the Morgan Library and Museum puncture myths about the writer’s rise to literary fame.`\
-https://nytimes.com/2025/06/11/arts/design/jane-austen-show-morgan-library.html
 

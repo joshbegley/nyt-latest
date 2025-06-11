@@ -1,3 +1,7 @@
+**Curfew Imposed in Los Angeles**\
+`Some protesters defied the curfew imposed by Mayor Karen Bass as Gov. Gavin Newsom of California criticized President Trump’s deployment of the military to Los Angeles.`\
+https://nytimes.com/video/us/100000010221112/los-angeles-protest-curfew-immigration.html
+
 **Ehud Olmert on Israel’s Catastrophic War in Gaza**\
 `The former prime minister of Israel discusses why he believes Israel’s war in Gaza can no longer be justified.`\
 https://nytimes.com/2025/06/11/opinion/ezra-klein-podcast-ehud-olmert.html
