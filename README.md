@@ -1,3 +1,7 @@
+**Federal Court Agrees to Allow Trump’s Tariffs as Appeal Gets Underway**\
+`The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
+https://nytimes.com/2025/06/10/business/trump-tariffs-court.html
+
 **Detention and Deportation As Seen Through a Family Group Chat**\
 `A Venezuelan man’s criminal past made him a target of immigration agents. His family was determined to stay in touch.`\
 https://nytimes.com/interactive/2025/06/10/us/politics/trump-immigrant-family-deportation-journey.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook-5-keys-
 **Democrats Enter Risky Political Terrain as Protests Grip California**\
 `Scenes of unrest in Southern California, stoked by President Trump as he tries to deport more immigrants, have left Democratic leaders worried the confrontation elevates a losing issue for the party.`\
 https://nytimes.com/2025/06/10/us/politics/trump-immigration-ice-democrats.html
-
-**New Colts owners send clear message: There will be no gap year; they expect to win**\
-`Carlie Irsay-Gordon said she and her sisters are confident in Chris Ballard and Shane Steichen, but "they have things they need to fix."`\
-https://nytimes.com/athletic/6417252/2025/06/10/colts-owners-jim-irsay-chris-ballard/
 
