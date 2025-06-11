@@ -1,5 +1,9 @@
+**Musk Spoke to Trump Privately Before Posting Message of ‘Regret’**\
+`It remains to be seen how Mr. Trump will handle the attempted rapprochement and whether the two men’s relationship can be restored.`\
+https://nytimes.com/2025/06/11/us/politics/musk-trump.html
+
 **Brian Wilson: 12 Essential Songs**\
-`The Beach Boys leader, who died on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
+`The Beach Boys leader, whose death was announced on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
 https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
 
 **Leverkusen considering move for Liverpool's Quansah**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/style/tiny-modern-love-stories-im-so-aware-of-our
 **A Near-Full ‘Strawberry Moon’ Will Shine Again on Wednesday Night**\
 `June’s full moon, known as a “strawberry moon,” may appear reddish because of its low position on the Southern Horizon.`\
 https://nytimes.com/2025/06/11/science/space/strawberry-moon-full-june.html
-
-**Why California Says Trump’s Military Deployment Is Illegal**\
-`California has sued the Trump administration over its move to deploy troops to Los Angeles. Eric Schmitt, a national security correspondent for The New York Times, explains the laws governing the use of American troops on U.S. soil.`\
-https://nytimes.com/video/us/politics/100000010218788/why-california-says-trumps-military-deployment-is-illegal.html
 

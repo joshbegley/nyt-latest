@@ -1,3 +1,11 @@
+**Musk Spoke to Trump Privately Before Posting Message of ‘Regret’**\
+`It remains to be seen how Mr. Trump will handle the attempted rapprochement and whether the two men’s relationship can be restored.`\
+https://nytimes.com/2025/06/11/us/politics/musk-trump.html
+
+**Brian Wilson: 12 Essential Songs**\
+`The Beach Boys leader, whose death was announced on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
+
 **Brian Wilson: 12 Essential Songs**\
 `The Beach Boys leader, who died on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
 https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
