@@ -1,3 +1,11 @@
+**After N.Y. Verdict, Weinstein’s Prior California Conviction Still Stands**\
+`Harvey Weinstein was convicted of sex crimes in Los Angeles in 2022 and sentenced to 16 years in prison. His lawyer has promised to appeal.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-conviction-california.html
+
+**Kostoulas set to undergo Brighton medical ahead of €35m transfer**\
+`A deal worth €35m (£29.6m; $40.2m) plus an additional €2m (£1.6m, $2.2m) in add-ons is nearing completion.`\
+https://nytimes.com/athletic/6419518/2025/06/11/brighton-kostoulas-transfer-update-medical/
+
 **WATCH: Does Tyrese Haliburton need to be more aggressive? Yes, but it's not so simple**\
 `Calls for Tyrese Haliburton to be more aggressive make sense, but his form of aggression is not the same as it is for most other NBA stars.`\
 https://nytimes.com/athletic/6418803/2025/06/11/tyrese-haliburton-pacers-thunder-nba-finals-aggressive/
