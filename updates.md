@@ -1,3 +1,19 @@
+**First-Ever Images of Sun’s South Pole Released by European Mission**\
+`Visuals from the European Space Agency’s Solar Orbiter reveal chaotic solar magnetism in the solar polar region. Even better images are expected in the years ahead.`\
+https://nytimes.com/2025/06/11/science/sun-south-pole-solar-orbiter-esa.html
+
+**History You Can Eat**\
+`Through the ages, human survival has depended on our ability to cultivate and preserve plant diversity.`\
+https://nytimes.com/2025/06/11/special-series/global-seed-bank-preserves-history.html
+
+**Sporting won't succumb to 'blackmail and insults' in Gyokeres saga - club president**\
+`The Sweden international is one of Europe’s hottest properties this summer following a spectacular season in which he scored 54 goals.`\
+https://nytimes.com/athletic/6418645/2025/06/11/viktor-gyokeres-transfer-fee/
+
+**The Bounce: 3 keys for Thunder, Pacers as crucial Game 3 approaches. Plus, your NBA Finals predictions**\
+`The Thunder are heavy favorites for a reason, but can the Pacers make a stronger big for their first NBA championship?`\
+https://nytimes.com/athletic/6418701/2025/06/11/nba-finals-thunder-pacers-predictions-nba-draft-the-bounce/
+
 **Tracking Tropical Depression Wutip**\
 `See the likely path and wind arrival times for Wutip.`\
 https://nytimes.com/interactive/2025/06/11/weather/wutip-map-path-tracker.html
