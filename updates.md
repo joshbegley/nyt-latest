@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`The deployment of troops to Los Angeles.`\
+https://nytimes.com/2025/06/11/briefing/los-angeles-china-austria.html
+
 **The New York Times in Print for Wednesday, June 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/11/todays-new-york-times
