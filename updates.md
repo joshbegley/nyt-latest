@@ -1,3 +1,19 @@
+**Today’s Anti-Trump Demonstrators Carry a Political Burden**\
+`Today’s anti-ICE, pro-immigration demonstrators are dragging the burden of how politics worked under Joe Biden’s presidency.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/ice-protests-trump-national-guard-2020
+
+**Senate Republicans Want to Trim Some of Trump’s Populist Tax Cuts**\
+`G.O.P. senators are considering whether to further curb the president’s favorite tax cuts as they rewrite key portions of the sprawling domestic agenda bill passed by the House.`\
+https://nytimes.com/2025/06/11/us/politics/republicans-trump-populist-tax-cuts.html
+
+**Here’s the latest.**\
+`By Hurubie Meko and Jonah E. Bromwich`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/heres-the-latest-in-the-trial
+
+**Live Updates: Harvey Weinstein Convicted in Mixed Verdict After Retrial**\
+`Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and acquitted on another. The jury could not reach a verdict on a third.`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
+
 **Live Updates: Harvey Weinstein Convicted After Retrial in Mixed Verdict**\
 `Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and  acquitted on another. The jury could not reach a verdict on a third.`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict

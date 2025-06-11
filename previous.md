@@ -1,3 +1,11 @@
+**Today’s Anti-Trump Demonstrators Carry a Political Burden**\
+`Today’s anti-ICE, pro-immigration demonstrators are dragging the burden of how politics worked under Joe Biden’s presidency.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/ice-protests-trump-national-guard-2020
+
+**Senate Republicans Want to Trim Some of Trump’s Populist Tax Cuts**\
+`G.O.P. senators are considering whether to further curb the president’s favorite tax cuts as they rewrite key portions of the sprawling domestic agenda bill passed by the House.`\
+https://nytimes.com/2025/06/11/us/politics/republicans-trump-populist-tax-cuts.html
+
 **Living the Slop Life**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ai-slop-slop-bowls-shein-slop-hauls
@@ -6,12 +14,12 @@ https://nytimes.com/newsgraphics/card-story/ai-slop-slop-bowls-shein-slop-hauls
 `Lori Zeno, who helped start the Queens Defenders, and her husband were accused of taking money from the organization for luxury vacations and a penthouse apartment.`\
 https://nytimes.com/2025/06/11/nyregion/queens-defenders-founder-fraud-indicted.html
 
-**Here’s the latest in the trial.**\
-`By Hurubie Meko`\
+**Here’s the latest.**\
+`By Hurubie Meko and Jonah E. Bromwich`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/heres-the-latest-in-the-trial
 
-**Live Updates: Harvey Weinstein Convicted After Retrial in Mixed Verdict**\
-`Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and  acquitted on another. The jury could not reach a verdict on a third.`\
+**Live Updates: Harvey Weinstein Convicted in Mixed Verdict After Retrial**\
+`Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and acquitted on another. The jury could not reach a verdict on a third.`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
 
 **Musk Spoke to Trump Privately Before Posting Message of ‘Regret’**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419344/2025/06/11/jarell-quansah-transfer-bayer-le
 **Jaylen Brown undergoes knee surgery, not expected to affect training camp**\
 `Brown, 28, missed eight of Boston’s final 16 regular-season games and dealt with a minutes restriction when he was available.`\
 https://nytimes.com/athletic/6419375/2025/06/11/jaylen-brown-celtics-knee-surgery/
-
-**World Cup 2026, one year to go: What still needs to be sorted?**\
-`Visas, travel bans, transport costs, security and relationships with the government - there is a lot to consider a year out`\
-https://nytimes.com/athletic/6417215/2025/06/11/world-cup-2026-issues-visa-stadiums-costs/
-
-**Paul Marantz, Lighting Designer of 9/11 Memorial and Studio 54, Dies at 87**\
-`Using neon, searchlights — or even shadows — he dramatically shaped the look of prominent spaces in almost every corner of the world.`\
-https://nytimes.com/2025/06/11/arts/design/paul-marantz-dead.html
 
