@@ -1,3 +1,15 @@
+**Detention and Deportation As Seen Through a Family Group Chat**\
+`A Venezuelan man’s criminal past made him a target of immigration agents. His family was determined to stay in touch.`\
+https://nytimes.com/interactive/2025/06/10/us/politics/trump-immigrant-family-deportation-journey.html
+
+**The Tough Choice Facing Trump in the Iran Nuclear Talks**\
+`The president now confronts the reality that stopping Iran’s drive toward a bomb may require letting it continue to make some nuclear fuel.`\
+https://nytimes.com/2025/06/10/us/politics/trump-iran-nuclear-talks.html
+
+**MLB's No. 1 prospect, Roman Anthony, collects first hit, a two-run double**\
+`The two-run double gave the Red Sox an early lead over the visiting Rays.`\
+https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
+
 **With Trump’s Help, Jack Ciattarelli Wins G.O.P. Nomination for Governor**\
 `Mr. Ciattarelli, a former state assemblyman, is running his third campaign for governor of New Jersey.`\
 https://nytimes.com/2025/06/10/nyregion/nj-governor-republican-winner-jack-ciattarelli.html
