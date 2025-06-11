@@ -1,5 +1,9 @@
+**Newsom Tells Nation That Trump Is Destroying American Democracy**\
+`Gov. Gavin Newsom, in an address called “Democracy at a Crossroads,” called on Americans to stand up to President Trump.`\
+https://nytimes.com/2025/06/10/us/newsom-speech-trump-la-protests.html
+
 **Chargers minicamp observations: Rashawn Slater arrives, Derwin James Jr. flashes**\
-`EL SEGUNDO, Calif.`\
+`Slater sat out the Chargers' OTA practices as he awaits a contract extension but was a full participant for mandatory minicamp. `\
 https://nytimes.com/athletic/6417859/2025/06/10/chargers-minicamp-rashawn-slater-derwin-james/
 
 **Bridge Support**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
 **U.S. Court Agrees to Keep Trump Tariffs Intact as Appeal Gets Underway**\
 `The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
 https://nytimes.com/2025/06/10/business/economy/trump-tariffs-court.html
-
-**Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
-`Stanton finished 2-for-3 with three RBIs and a walk in his rehab game.`\
-https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
 
