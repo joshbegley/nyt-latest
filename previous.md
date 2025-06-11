@@ -1,3 +1,7 @@
+**U.S. to Withdraw Diplomats from Iraq Amid Iran Tensions**\
+`The State Department said it had decided to shrink the U.S. “footprint” in Baghdad and the United Kingdom issued a warning about “increased tensions within the region.”`\
+https://nytimes.com/2025/06/11/us/politics/iran-us-iraq-diplomats-middle-east.html
+
 **Hispanic-Serving College Program Is Discriminatory, Lawsuit Argues**\
 `A group behind the Supreme Court case that ended affirmative action is now targeting a federal support for schools that enroll large numbers of Hispanic students.`\
 https://nytimes.com/2025/06/11/us/hispanic-serving-institutions-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010222277/san-bernardino-wildfire.html
 **Did Bob Dylan Help Announce an Album From MGK?**\
 `The pop-punk star’s trailer for “Lost Americana” features a familiar voice narrating about a “quest to reclaim the authentic essence of American freedom.”`\
 https://nytimes.com/2025/06/11/arts/music/bob-dylan-mgk-machine-gun-kelly.html
-
-**Why the case against Weinstein was relatively narrow.**\
-`By Jan Ransom`\
-https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/why-the-case-against-weinstein-was-relatively-narrow
 

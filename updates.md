@@ -1,3 +1,7 @@
+**U.S. to Withdraw Diplomats from Iraq Amid Iran Tensions**\
+`The State Department said it had decided to shrink the U.S. “footprint” in Baghdad and the United Kingdom issued a warning about “increased tensions within the region.”`\
+https://nytimes.com/2025/06/11/us/politics/iran-us-iraq-diplomats-middle-east.html
+
 **Hispanic-Serving College Program Is Discriminatory, Lawsuit Argues**\
 `A group behind the Supreme Court case that ended affirmative action is now targeting a federal support for schools that enroll large numbers of Hispanic students.`\
 https://nytimes.com/2025/06/11/us/hispanic-serving-institutions-lawsuit.html
