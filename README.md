@@ -1,3 +1,19 @@
+**Houses and Cars Torched in Second Night of Unrest in Northern Ireland**\
+`The recent unrest in the Northern Irish town of Ballymena followed a protest over a sexual assault case in the town.`\
+https://nytimes.com/video/world/europe/100000010221176/houses-and-cars-torched-in-second-night-of-unrest-in-northern-ireland.html
+
+**Disney and Universal Sue A.I. Firm for Copyright Infringement**\
+`The suit, against Midjourney, is the first time major Hollywood companies have sued over A.I.-generated images.`\
+https://nytimes.com/2025/06/11/business/media/disney-universal-midjourney-ai.html
+
+**The Windup: Anonymous MLB player thoughts are here**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6418257/2025/06/11/anonymous-mlb-player-poll-the-windup/
+
+**Angel Reese’s ‘crown is heavy,’ Sky's Ariel Atkins says, calls for respect**\
+`"Luckily I'm around amazing women every day that love each other," Reese said. "We genuinely love each other."`\
+https://nytimes.com/athletic/6418759/2025/06/11/angel-reese-respect-ariel-atkins-sky-wnba/
+
 **Trump Is Pushing Allies Away and Closer Into Each Other’s Arms**\
 `Important U.S. allies are trying to bolster their ties as the Trump administration shifts priorities and reshapes the world order.`\
 https://nytimes.com/2025/06/11/world/canada/g7-trump-us-allies-world-order.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6418912/2025/06/11/lance-stroll-f1-canadian-grand-p
 **This Elusive Antarctic Squid Was Seen for the First Time**\
 `An expedition in the Southern Ocean captured video of a rare species of deep-sea cephalopod. Until now, it had been found only in fishing nets and in the bellies of seabirds.`\
 https://nytimes.com/2025/06/11/science/antarctic-gonate-squid-rare-sighting-video.html
-
-**Rating the ‘Romantic Value’ of New York’s Single Men**\
-`To promote its new film “Materialists,” A24 worked with the New York Stock Exchange to sort participants by attributes like income, height and homeownership.`\
-https://nytimes.com/2025/06/11/style/materialists-new-york-stock-exchange-single-men.html
-
-**Our Best Father’s Day Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/food-fathers-day-recipes
-
-**First-Ever Images of Sun’s South Pole Released by European Mission**\
-`Visuals from the European Space Agency’s Solar Orbiter reveal chaotic solar magnetism in the solar polar region. Even better images are expected in the years ahead.`\
-https://nytimes.com/2025/06/11/science/sun-south-pole-solar-orbiter-esa.html
-
-**History You Can Eat**\
-`Through the ages, human survival has depended on our ability to cultivate and preserve plant diversity.`\
-https://nytimes.com/2025/06/11/special-series/global-seed-bank-preserves-history.html
 

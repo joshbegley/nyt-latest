@@ -1,4 +1,4 @@
-**Trump Is Pushing Allies Away and Closer into Each Other’s Arms**\
+**Trump Is Pushing Allies Away and Closer Into Each Other’s Arms**\
 `Important U.S. allies are trying to bolster their ties as the Trump administration shifts priorities and reshapes the world order.`\
 https://nytimes.com/2025/06/11/world/canada/g7-trump-us-allies-world-order.html
 
