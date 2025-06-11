@@ -1,3 +1,11 @@
+**Trump Says Army Bases Will Revert to Confederate Names**\
+`The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
+https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
+
+**U.S. and China Agree to Walk Back Tensions**\
+`Negotiators said the two governments would stick to a previous truce and reduce tensions that had escalated in recent weeks between the world’s largest economies.`\
+https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
+
 **Mavericks believe Kidd will be coach next season, not join Knicks: Sources**\
 `According to a team source, the Knicks had yet to request permission to speak with Kidd as of Tuesday afternoon.`\
 https://nytimes.com/athletic/6417678/2025/06/10/jason-kidd-mavericks-knicks-head-coaching-job/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/10/us/yosemite-flags-banned-el-capitan.html
 **How Many People Have Been Arrested Since the L.A. Protests Began?**\
 `Officers have arrested hundreds nationwide during protests against immigration raids. The demonstrations have remained largely peaceful, though some people have been injured.`\
 https://nytimes.com/2025/06/10/us/la-protest-arrests-immigration.html
-
-**49ers minicamp report: Brock Purdy throws picks, Jacob Cowing garners praise**\
-`A pleased Kyle Shanahan said he was tempted to end minicamp early but that it's essential for one group of players. That group: the rookies.`\
-https://nytimes.com/athletic/6417506/2025/06/10/49ers-minicamp-brock-purdy-interceptions/
-
-**Is 4,700 federal troops a big deployment?**\
-`National Guard deployments in response to social unrest are often larger and are requested by local leaders, not challenged by them.`\
-https://nytimes.com/2025/06/10/us/national-guard-marines-troops-la-protests.html
 
