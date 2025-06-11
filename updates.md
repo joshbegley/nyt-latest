@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘I’m So Aware of Our Age Gap ’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/11/style/tiny-modern-love-stories-im-so-aware-of-our-age-gap.html
+
+**A Near-Full ‘Strawberry Moon’ Will Shine Again on Wednesday Night**\
+`June’s full moon, known as a “strawberry moon,” may appear reddish because of its low position on the Southern Horizon.`\
+https://nytimes.com/2025/06/11/science/space/strawberry-moon-full-june.html
+
+**Why California Says Trump’s Military Deployment Is Illegal**\
+`California has sued the Trump administration over its move to deploy troops to Los Angeles. Eric Schmitt, a national security correspondent for The New York Times, explains the laws governing the use of American troops on U.S. soil.`\
+https://nytimes.com/video/us/politics/100000010218788/why-california-says-trumps-military-deployment-is-illegal.html
+
+**Brian Wilson, Pop Auteur and Leader of the Beach Boys, Dies at 82**\
+`A hitmaker elevated and burdened by the label of genius, he transcended the breezy surf genre to create complex harmonies and intricate soundscapes in the studio.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-dead.html
+
 **This Super Summery Dinner Party Is Meant for Luxuriating**\
 `Crab cakes, chilled cucumber-spinach soup and a light melon granita are the ideal antidote for sultry evenings, David Tanis writes.`\
 https://nytimes.com/2025/06/11/dining/summer-dinner-party-recipes.html
