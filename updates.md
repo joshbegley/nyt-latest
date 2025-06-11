@@ -1,3 +1,7 @@
+**Blue Jays' Ernie Clement climbs from slump to elite MLB defender**\
+`Clement could become the fourth player and first Blue Jay to win the AL utility Gold Glove.`\
+https://nytimes.com/athletic/6418028/2025/06/11/blue-jays-ernie-clements-errorless-defence/
+
 **Meet Our New Restaurant Critics**\
 `Ligaya Mishan and Tejal Rao are the new restaurant critics at The New York Times, succeeding Pete Wells. While the two new critics are still going to be discreet when dining out for The Times, they have decided to part with tradition and reveal their identities to readers.`\
 https://nytimes.com/video/dining/100000010221343/nyt-restaurant-critic-tejal-rao-ligaya-mishan.html

@@ -1,3 +1,7 @@
+**Chargers' Jim Harbaugh had hip replacement, heart procedure in offseason**\
+`Harbaugh's health update comes after he exited a Week 6 game against the Broncos last season while dealing with atrial flutter.`\
+https://nytimes.com/athletic/6418681/2025/06/11/jim-harbaugh-health-update-chargers/
+
 **Blue Jays' Ernie Clement climbs from slump to elite MLB defender**\
 `Clement could become the fourth player and first Blue Jay to win the AL utility Gold Glove.`\
 https://nytimes.com/athletic/6418028/2025/06/11/blue-jays-ernie-clements-errorless-defence/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/business/media/nyt-restaurant-critics-announced.h
 **Where Are Anti-Trump Protests Expected on Wednesday?**\
 `Groups announced plans for demonstrations across the country, indicating that the protests that began in Los Angeles will continue to spread.`\
 https://nytimes.com/2025/06/11/us/trump-ice-protests-immigration-us-cities.html
-
-**U.S. Inflation Remains Muted, With Limited Effects From Tariffs**\
-`The Consumer Price Index rose 2.4 percent in May, from a year ago, a reading that reflects only the initial impact of President Trump’s tariffs.`\
-https://nytimes.com/2025/06/11/business/cpi-may-inflation-tariffs.html
 
