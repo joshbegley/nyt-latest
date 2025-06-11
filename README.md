@@ -1,3 +1,19 @@
+**How many people have been arrested since the L.A. protests gegan?**\
+`Officers have arrested hundreds nationwide, including in Dallas, New York City and Chicago, during protests against immigration raids.`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/la-protests-arrests-number
+
+**The Real Fertility Crisis? Money, a U.N. Report Says.**\
+`Policymakers in many countries assume that birthrates have fallen because people want fewer children, but a global study says financial insecurity is driving those decisions.`\
+https://nytimes.com/2025/06/11/world/fertility-crisis-un-report.html
+
+**McConnell Tells Hegseth America’s Reputation Is at Stake in Ukraine War**\
+`A testy exchange between a senator who strongly supports Ukraine aid and the defense secretary revealed a deepening split among G.O.P. officials on the war.`\
+https://nytimes.com/2025/06/11/us/politics/hegseth-congress-defense.html
+
+**Inside the Struggle to Find Food in Gaza**\
+`Aid agencies say Gaza faces the threat of widespread starvation in the wake of the 80-day Israeli blockade on food deliveries that ended in mid-May. Two young Gazans, Salem Madhat Alaydi and Aya Ehab Zaid, describe what it is like to fight hunger.`\
+https://nytimes.com/video/world/middleeast/100000010186013/gaza-hunger-food.html
+
 **New Jets OC Tanner Engstrand is already winning over players: Minicamp observations**\
 `Plus, an impressive day for the offense at Wednesday's practice.`\
 https://nytimes.com/athletic/6419725/2025/06/11/jets-minicamp-practice-report-offensive-coordinator-tanner-engstrand/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/06/11/magazine/pope-leo-xiv-ancestry-family
 **World Bank Ends Its Ban on Funding Nuclear Power Projects**\
 `The decision, a major reversal, could help poorer nations industrialize, cut planet-warming emissions and boost U.S. competitiveness on next-generation reactors.`\
 https://nytimes.com/2025/06/11/climate/world-bank-nuclear-power-funding-ban.html
-
-**Washington Post Names Adam O’Neal as Opinion Editor**\
-`Mr. O’Neal, a correspondent for The Economist, will be in charge of championing “personal liberties and free markets,” the section’s new direction laid out by Jeff Bezos.`\
-https://nytimes.com/2025/06/11/business/media/washington-post-opinion-editor-adam-oneal.html
-
-**Palace in talks to sign PSV goalkeeper Benitez on free transfer**\
-`The 32-year-old will be out of contract with PSV later this month and is yet to sign a new deal with the Dutch champions.`\
-https://nytimes.com/athletic/6419563/2025/06/11/crystal-palace-transfer-news-benitez-psv/
-
-**What Skenes and Holliday's card value trajectories mean for Caglianone and Anthony**\
-`Caglianone and Anthony are the two darlings of the baseball card world right now, but volatility is likely`\
-https://nytimes.com/athletic/6419175/2025/06/11/jac-caglianone-roman-anthony-card-values/
-
-**Fast-Growing Wildfire Spreads in Southern California**\
-`A wildfire that started on Tuesday afternoon north of the San Bernardino Mountains in Southern California had exploded to more than 4,200 acres by Wednesday morning, officials said.`\
-https://nytimes.com/video/us/100000010222277/san-bernardino-wildfire.html
 
