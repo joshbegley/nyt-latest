@@ -1,3 +1,11 @@
+**Wildfire Near San Bernardino Mountains Sparks Evacuation Orders**\
+`The fire, which was burning near the town of Apple Valley, had exploded to 2,000 acres since starting on Tuesday afternoon.`\
+https://nytimes.com/2025/06/10/us/san-bernardino-wildfire-california.html
+
+**L.A. Mayor Bass Declares Emergency and Enacts Curfew**\
+`The curfew affects one square mile in downtown Los Angeles, to stop vandalism and looting in the area.`\
+https://nytimes.com/video/us/100000010220837/los-angeles-curfew-bass.html
+
 **New Suns coach Jordan Ott brings freshness, curiosity the franchise needs**\
 `Ott is the organization’s fourth head coach in four seasons and arguably the most important in a couple decades.`\
 https://nytimes.com/athletic/6417767/2025/06/10/suns-coach-jordan-ott-serve-phoenix-well/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-upd
 **Thousands of Protesters March Through Downtown Chicago**\
 `The demonstrators carried signs denouncing federal immigration officials.`\
 https://nytimes.com/2025/06/10/us/chicago-protests-immigration.html
-
-**Bass Announces Downtown Curfew to Calm Protests**\
-`The curfew for downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
-https://nytimes.com/2025/06/10/us/la-curfew-protests-karen-bass-curfew.html
-
-**Mikie Sherrill Wins the Democratic Primary for Governor of New Jersey**\
-`Ms. Sherrill, the only woman in a six-candidate race for the Democratic nomination, emphasized her service as a U.S. Navy helicopter pilot.`\
-https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
 
