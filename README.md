@@ -1,5 +1,5 @@
 **Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
-`Huijsen joined in a £50million deal from Bournemouth and will line up in a new-look defence alongside Alexander-Arnold.`\
+`New head coach Xabi Alonso has provided few surprises but many academy players in his squad for the tournament.`\
 https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
 
 **Britain Allocates Hundreds of Billions to Bolster Its Economy**\
