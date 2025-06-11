@@ -1,3 +1,15 @@
+**South Korea Turns Off Speakers Blasting K-Pop Into North Korea**\
+`Lee Jae-myung, the new president of South Korea, said he would stop the propaganda broadcasts by his predecessor that raised tensions with Seoul’s neighboring foe.`\
+https://nytimes.com/2025/06/11/world/asia/korea-speakers-propaganda.html
+
+**China Walks a Line in U.S. Trade Talks, Trying Not to Overplay Its Hand**\
+`China has leverage it can use by limiting access to its rare earth supplies, but it does not want to sacrifice its reputation as a reliable supplier.`\
+https://nytimes.com/2025/06/11/business/china-rare-earths.html
+
+**The Pulse: The NFL’s most expensive backup QB**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6417908/2025/06/11/the-nfls-most-expensive-backup-qb-plus-usmnts-nightmare/
+
 **QB Caleb Williams joins mostly rookies on field as Bears wrap up OTAs**\
 `The Bears finish up their offseason training program this week, and it's mostly rookies, but Williams made sure to attend.`\
 https://nytimes.com/athletic/6417180/2025/06/11/chicago-bears-caleb-williams-minicamp/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6406613/2025/06/11/robo-umpires-mlb-2025-player-pol
 **Cubs takeaways: Ian Happ finds power, Shota Imanaga nears return, Matt Shaw shows off arm**\
 `Happ had a pair of home runs in Tuesday night's 8-4 win over the Philadelphia Phillies.`\
 https://nytimes.com/athletic/6417996/2025/06/11/cubs-win-phillies-ian-happ-shota-imanaga-matt-shaw/
-
-**Look, but hope to don't touch: Oakmont's church pew bunker helps give the course its bite**\
-`The church pews — 13, long grassy tufts which act as islands within a seemingly endless pit of sand — were never part of the original design`\
-https://nytimes.com/athletic/6416637/2025/06/11/us-open-2025-oakmont-golf-course-pew-bunker/
-
-**Scottie Scheffler is now an elite putter — that's a problem for the rest of golf**\
-`In 2023, Scheffler's putter cost him tournaments. Now it's helping him to win over and over again.`\
-https://nytimes.com/athletic/6416919/2025/06/11/scottie-scheffler-putter-us-open-2025/
-
-**Could James Cook and the Bills provide the juicy storyline 'Hard Knocks' cameras covet?**\
-`There's great potential for drama to play out on TV.`\
-https://nytimes.com/athletic/6417618/2025/06/11/could-james-cook-and-the-bills-provide-the-juicy-storyline-hard-knocks-cameras-covet/
 
