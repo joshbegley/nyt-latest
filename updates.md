@@ -1,3 +1,11 @@
+**New Jets OC Tanner Engstrand is already winning over players: Minicamp observations**\
+`Plus, an impressive day for the offense at Wednesday's practice.`\
+https://nytimes.com/athletic/6419725/2025/06/11/jets-minicamp-practice-report-offensive-coordinator-tanner-engstrand/
+
+**U.S. to Withdraw Diplomats From Iraq Amid Iran Tensions**\
+`The State Department said it had decided to shrink the U.S. “footprint” in Baghdad and the United Kingdom issued a warning about “increased tensions within the region.”`\
+https://nytimes.com/2025/06/11/us/politics/iran-us-iraq-diplomats-middle-east.html
+
 **U.S. to Withdraw Diplomats from Iraq Amid Iran Tensions**\
 `The State Department said it had decided to shrink the U.S. “footprint” in Baghdad and the United Kingdom issued a warning about “increased tensions within the region.”`\
 https://nytimes.com/2025/06/11/us/politics/iran-us-iraq-diplomats-middle-east.html
