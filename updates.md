@@ -1,3 +1,11 @@
+**Musk Expresses ‘Regret’ Over His Criticisms of Trump**\
+`President Trump and Elon Musk traded social media barbs last week after the two had a public falling out. Mr. Trump has said he has no interest in repairing the relationship with his former adviser.`\
+https://nytimes.com/2025/06/11/business/elon-musk-trump-feud.html
+
+**Marines to Join National Guard Troops Protecting ICE Agents in Los Angeles**\
+`A military spokeswoman said the Marines would be on the city’s streets on Wednesday. A federal judge will hear a request by California on Thursday to prevent the use of the soldiers.`\
+https://nytimes.com/2025/06/11/us/marines-los-angeles-immigration-protests.html
+
 **Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
 `The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
 `\
