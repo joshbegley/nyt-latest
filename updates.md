@@ -1,3 +1,15 @@
+**Could Shohei Ohtani return to the mound before the All-Star break? The chances are 'north of zero'**\
+`Ohtani threw his third simulated game, while Blake Snell and Tyler Glasnow also had bullpen sessions. `\
+https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-update/
+
+**Thousands of Protesters March Through Downtown Chicago**\
+`The demonstrators carried signs denouncing federal immigration officials.`\
+https://nytimes.com/2025/06/10/us/chicago-protests-immigration.html
+
+**U.S. Court Agrees to Keep Trump Tariffs Intact as Appeal Gets Underway**\
+`The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
+https://nytimes.com/2025/06/10/business/economy/trump-tariffs-court.html
+
 **Bass Announces Downtown Curfew to Calm Protests**\
 `The curfew for a small section of downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
 https://nytimes.com/2025/06/10/us/la-curfew-protests-karen-bass-curfew.html
