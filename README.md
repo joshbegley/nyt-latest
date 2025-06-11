@@ -1,3 +1,11 @@
+**New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
+`If a handshake agreement holds, it would merely undo some of the damage from the trade war that President Trump started.`\
+https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html
+
+**In Trump’s Washington, ‘You Don’t Leave Home Without Your Lawyer’**\
+`There’s a lot of work for lawyers in the nation’s capital these days: Over 400 lawsuits have been filed against President Trump’s administration since the start of his second term.`\
+https://nytimes.com/2025/06/11/us/politics/trump-lawsuits-lawyers.html
+
 **Suggesting More Troops in More Cities, Trump Bends Military’s Role**\
 `President Trump has expanded domestic use of the armed forces, testing the limits on involving troops at protests and the border.`\
 https://nytimes.com/2025/06/11/us/politics/trump-domestic-military-expansion.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/what-is-th
 **Carwashes become easy targets in California’s ICE raids.**\
 `By Emily Baumgaertner Nunn and Anushka Patil`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/carwashes-become-easy-targets-in-californias-ice-raids
-
-**Cuomo Wins Endorsement From a Former Governor Who Once Backed Adams**\
-`Andrew M. Cuomo was backed on Wednesday by former Gov. David Paterson, a former rival who is now an ally in Mr. Cuomo’s bid to become mayor of New York City.`\
-https://nytimes.com/2025/06/11/nyregion/cuomo-endorsement-paterson.html
-
-**Weinstein Was Convicted in His Retrial**\
-`Also, the U.S. is planning to withdraw diplomats from Iraq. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/06/11/briefing/weinstein-trial-verdict-tensions-middle-east.html
 
