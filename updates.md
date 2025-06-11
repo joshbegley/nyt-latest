@@ -1,3 +1,7 @@
+**Kennedy Announces Eight New Members of C.D.C. Vaccine Advisory Panel**\
+`The appointments of at least two of the experts are likely to draw an uproar from pro-vaccine groups for their criticism of federal scientists and the Biden administration’s Covid vaccine policies.`\
+https://nytimes.com/2025/06/11/us/rfk-jr-cdc-vaccine-panel.html
+
 **Carwashes become easy targets in California’s ICE raids.**\
 `By Emily Baumgaertner Nunn and Anushka Patil`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/carwashes-become-easy-targets-in-californias-ice-raids
