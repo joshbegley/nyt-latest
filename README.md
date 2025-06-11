@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘I’m So Aware of Our Age Gap ’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/06/11/style/tiny-modern-love-stories-im-so-aware-of-our-age-gap.html
+
+**A Near-Full ‘Strawberry Moon’ Will Shine Again on Wednesday Night**\
+`June’s full moon, known as a “strawberry moon,” may appear reddish because of its low position on the Southern Horizon.`\
+https://nytimes.com/2025/06/11/science/space/strawberry-moon-full-june.html
+
+**Why California Says Trump’s Military Deployment Is Illegal**\
+`California has sued the Trump administration over its move to deploy troops to Los Angeles. Eric Schmitt, a national security correspondent for The New York Times, explains the laws governing the use of American troops on U.S. soil.`\
+https://nytimes.com/video/us/politics/100000010218788/why-california-says-trumps-military-deployment-is-illegal.html
+
+**Brian Wilson, Pop Auteur and Leader of the Beach Boys, Dies at 82**\
+`A hitmaker elevated and burdened by the label of genius, he transcended the breezy surf genre to create complex harmonies and intricate soundscapes in the studio.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-dead.html
+
 **This Super Summery Dinner Party Is Meant for Luxuriating**\
 `Crab cakes, chilled cucumber-spinach soup and a light melon granita are the ideal antidote for sultry evenings, David Tanis writes.`\
 https://nytimes.com/2025/06/11/dining/summer-dinner-party-recipes.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/11/sports/golf/us-open-oakmont-removing-trees.html
 **Tuchel: My mum sometimes finds Bellingham's attitude 'repulsive'**\
 `Bellingham was visibly frustrated after having a late goal ruled out by the VAR in England's friendly defeat by Senegal on Tuesday.`\
 https://nytimes.com/athletic/6419196/2025/06/11/thomas-tuchel-england-jude-bellingham/
-
-**Ait-Nouri, Reijnders in Man City's Club World Cup squad but no Grealish**\
-`The pair both joined City before Tuesday's deadline to register new additions for the competition.`\
-https://nytimes.com/athletic/6397749/2025/06/11/man-city-club-world-cup-squad-confirmed/
-
-**Richard Beattie, Who Helped Pioneer Private Equity Takeovers, Dies at 86**\
-`A top Wall Street lawyer, he worked on some of the biggest corporate mergers in history, including KKR’s takeover of Nabisco in 1989. He also served in the Carter administration and in city government.`\
-https://nytimes.com/2025/06/11/business/dealbook/richard-beattie-dead.html
-
-**Rare Changing of the Guard at Oakmont, as U.S. Open Returns**\
-`Devin Gee, who look over from the longtime club pro, Bob Ford, a few years ago, is working his first Open as pro.`\
-https://nytimes.com/2025/06/11/sports/golf/oakmont-us-open-club-pro.html
-
-**In 1983, Larry Nelson Conquered Oakmont**\
-`He won the U.S. Open on the course where this year’s tournament is being held.`\
-https://nytimes.com/2025/06/11/sports/golf/us-open-larry-nelson-oakmont.html
 
