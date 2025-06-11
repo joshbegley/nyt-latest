@@ -1,3 +1,15 @@
+**European football revenue hit record €38bn in 2023-24 season**\
+`The so-called big five leagues - the top divisions from England, Spain, Italy, Germany, and France - contribute huge figures, for how long?`\
+https://nytimes.com/athletic/6419926/2025/06/11/european-football-revenue-premier-league/
+
+**Tigers rookie right-hander Jackson Jobe set to undergo Tommy John surgery**\
+`Jobe entered the season ranked as The Athletic's No. 11 overall prospect.`\
+https://nytimes.com/athletic/6420133/2025/06/11/detroit-tigers-jackson-jobe-injury/
+
+**E.P.A. Axes Biden’s Climate and Pollution Limits on Power Plants**\
+`Lee Zeldin, the E.P.A. administrator, said erasing regulations would produce jobs and lower electricity costs. He called efforts to fight climate change “a cult.”`\
+https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.html
+
 **Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
 `Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
 https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html

@@ -1,3 +1,15 @@
+**European football revenue hit record €38bn in 2023-24 season**\
+`The so-called big five leagues - the top divisions from England, Spain, Italy, Germany, and France - contribute huge figures, for how long?`\
+https://nytimes.com/athletic/6419926/2025/06/11/european-football-revenue-premier-league/
+
+**Tigers rookie right-hander Jackson Jobe set to undergo Tommy John surgery**\
+`Jobe entered the season ranked as The Athletic's No. 11 overall prospect.`\
+https://nytimes.com/athletic/6420133/2025/06/11/detroit-tigers-jackson-jobe-injury/
+
+**E.P.A. Axes Biden’s Climate and Pollution Limits on Power Plants**\
+`Lee Zeldin, the E.P.A. administrator, said erasing regulations would produce jobs and lower electricity costs. He called efforts to fight climate change “a cult.”`\
+https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.html
+
 **Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
 `Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
 https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6420010/2025/06/11/new-york-yankees-marcus-stroman-
 **Phillies' Jesús Luzardo rebounds after making changes to address potential tipping**\
 `"There's a lot of things that we tinkered with," Luzardo said. "The biggest thing was attention to detail."`\
 https://nytimes.com/athletic/6419944/2025/06/11/jesus-luzardo-tipping-phillies-cubs-win/
-
-**Commanders CB Marshon Lattimore's offseason centered on health, removing 'timid' steps**\
-`The four-time Pro Bowler who's had lingering hamstring issues said he's feeling much better while participating at Washington's minicamp.`\
-https://nytimes.com/athletic/6419822/2025/06/11/marshon-lattimore-commanders-minicamp/
-
-**Raiders minicamp: Jeremy Chinn, Isaiah Pola-Mao part of new-look defensive backfield**\
-`Chinn's versatility and Pola-Mao's potential make for an interesting safety duo. On Wednesday, the Raiders also signed LB Germaine Pratt.`\
-https://nytimes.com/athletic/6419812/2025/06/11/raiders-minicamp-jeremy-chinn-isaiah-pola-mao/
-
-**Betsy Jochum, 104, Dies; Last Original Member of Women’s Baseball League**\
-`Playing in the All-American Girls Professional Baseball League, which inspired the film “A League of Their Own,” she won a batting title and stole 127 bases in 1944.`\
-https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
 
