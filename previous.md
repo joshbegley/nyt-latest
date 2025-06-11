@@ -1,5 +1,5 @@
 **David Hogg to Exit D.N.C. After Backlash to His Primary Plan**\
-`Mr. Hogg said he would not run again for vice chair after the party voted to remove him. Democrats have been furious at his plan to challenge the party’s sitting lawmakers in primary races.`\
+`Mr. Hogg said he would not run again for vice chair after the party voted for a new election. Democrats have been furious at his plan to challenge the party’s sitting lawmakers in primary races.`\
 https://nytimes.com/2025/06/11/us/politics/david-hogg-dnc-democrats.html
 
 **Prosecutor calls Michael McLeod the architect of Hockey Canada sexual assault**\
