@@ -1,3 +1,7 @@
+**Daniel Suárez on NASCAR's Mexico City race, international expansion and more: 12 Questions**\
+`The Trackhouse Racing driver talks about the Cup Series' debut in his home country, other markets ready for NASCAR and much more.`\
+https://nytimes.com/athletic/6415835/2025/06/11/daniel-suarez-nascar-mexico-city-race-international-expansion-12-questions/
+
 **What’s Next as the Latest U.S.-China Trade Talks Conclude**\
 `U.S. negotiators say the London summit represented progress. But investors and business leaders remain wary.`\
 https://nytimes.com/2025/06/11/business/dealbook/us-china-trade-talks.html
