@@ -23,6 +23,11 @@ https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-
 `\
 https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
 
+**Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
+`The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
+`\
+https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
+
 **10 Questions With Brad Lander**\
 `Brad Lander, the New York City comptroller who is running for mayor, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/11/nyregion/brad-lander-interview.html
