@@ -1,3 +1,7 @@
+**Van de Ven says Postecoglou's Spurs sacking was 'strange'**\
+`Postecoglou was dismissed by the English club last week, 16 days after winning the Europa League.`\
+https://nytimes.com/athletic/6418569/2025/06/11/tottenham-van-de-ven-postecoglou-frank/
+
 **Daniel Suárez on NASCAR's Mexico City race, international expansion and more: 12 Questions**\
 `The Trackhouse Racing driver talks about the Cup Series' debut in his home country, other markets ready for NASCAR and much more.`\
 https://nytimes.com/athletic/6415835/2025/06/11/daniel-suarez-nascar-mexico-city-race-international-expansion-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6416058/2025/06/11/blues-fan-survey-results-armstro
 **What a perfect Canucks offseason looks like: Trades, extensions and big swings**\
 `The stakes couldn't be higher for a hockey club that finds itself at something of a crossroads.`\
 https://nytimes.com/athletic/6415318/2025/06/11/canucks-offseason-trades-contract-extensions/
-
-**Seahawks minicamp takeaways: Sam Darnold smack talk, Michael Dickson payday and more**\
-`Also, players are taking ownership of the defense, and a look at who's limited or not participating because of injury. `\
-https://nytimes.com/athletic/6417792/2025/06/11/seahawks-minicamp-takeaways-sam-darnold-michael-dickson/
 
