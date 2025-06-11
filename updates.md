@@ -1,3 +1,15 @@
+**They’re Chic, They’re Quiet, and They Might Be Filled With Mold**\
+`Midea’s recall of 1.7 million air-conditioners is causing frustration and confusion among its design-conscious user base.`\
+https://nytimes.com/2025/06/11/style/midea-air-conditioners-mold-recall-reaction.html
+
+**With 15,000 Fewer Trees, Oakmont Is Now Ready for Another U.S. Open**\
+`A former club president, known as Old Chainsaw, started the process in 1994 under cover of darkness. It transformed play.`\
+https://nytimes.com/2025/06/11/sports/golf/us-open-oakmont-removing-trees.html
+
+**Tuchel: My mum sometimes finds Bellingham's attitude 'repulsive'**\
+`Bellingham was visibly frustrated after having a late goal ruled out by the VAR in England's friendly defeat by Senegal on Tuesday.`\
+https://nytimes.com/athletic/6419196/2025/06/11/thomas-tuchel-england-jude-bellingham/
+
 **Ait-Nouri, Reijnders in Man City's Club World Cup squad but no Grealish**\
 `The pair both joined City before Tuesday's deadline to register new additions for the competition.`\
 https://nytimes.com/athletic/6397749/2025/06/11/man-city-club-world-cup-squad-confirmed/
