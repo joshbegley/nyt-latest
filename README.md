@@ -1,3 +1,11 @@
+**Man Utd sign Emsden-James, 16, from Southampton**\
+`The defender has played for England at youth level and featured above his age group at Southampton.`\
+https://nytimes.com/athletic/6418961/2025/06/11/harley-emsden-james-man-utd-who/
+
+**Chelsea include Santos, Delap in Club World Cup squad**\
+`Chelsea kick off their campaign against Los Angeles FC at Mercedes-Benz Stadium in Atlanta on Monday.`\
+https://nytimes.com/athletic/6397708/2025/06/11/chelsea-club-world-cup-squad-confirmed/
+
 **Meet Our New Restaurant Critics**\
 `We asked how they read menus, stay fit, eat at home and celebrate with their families.`\
 https://nytimes.com/2025/06/11/dining/ligaya-mishan-tejal-rao-critics-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/dining/easy-ghanaian-light-soup-recipe.html
 **I Had an Affair With a Politician Who Denies Being Gay. Do I Keep His Secret?**\
 `Is what happened between us my story to tell?`\
 https://nytimes.com/2025/06/11/magazine/politician-affair-ethics.html
-
-**Broadway Dreams Were Dashed, Then Rob Madge Knocked on Some Doors**\
-`The British performer is bringing “My Son’s a Queer (but What Can You Do?)” to City Center this week, after an earlier run was canceled.`\
-https://nytimes.com/2025/06/11/theater/my-sons-a-queer-rob-madge.html
-
-**Many Falls Are Preventable. These Tips Can Help.**\
-`Small changes and good habits make a difference.`\
-https://nytimes.com/2025/06/11/well/fall-prevention-tips.html
 
