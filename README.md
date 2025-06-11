@@ -1,3 +1,11 @@
+**Weinstein’s declining health has loomed over his second trial.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/harvey-weinstein-health
+
+**The House’s Policy Bill Would Lose Money. Could Trump’s Tariffs Replace It?**\
+`The short answer is probably not, according to multiple forecasters.`\
+https://nytimes.com/2025/06/11/business/trump-tariffs-tax-bill.html
+
 **Eight female athletes appeal House settlement, claiming Title IX was ignored**\
 `The appeal will not impact revenue sharing — slated to start July 1 — but will pause the back-pay damages portion of the settlement.`\
 https://nytimes.com/athletic/6419483/2025/06/11/house-ncaa-settlement-appeal-title-ix/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
 **Musk Spoke to Trump Privately Before Posting Message of ‘Regret’**\
 `It remains to be seen how Mr. Trump will handle the attempted rapprochement and whether the two men’s relationship can be restored.`\
 https://nytimes.com/2025/06/11/us/politics/musk-trump.html
-
-**Brian Wilson: 12 Essential Songs**\
-`The Beach Boys leader, whose death was announced on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
-https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
-
-**Leverkusen considering move for Liverpool's Quansah**\
-`The Premier League side value their 22-year-old defender at £40million.`\
-https://nytimes.com/athletic/6419344/2025/06/11/jarell-quansah-transfer-bayer-leverkusen-liverpool/
 

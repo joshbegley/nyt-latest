@@ -1,3 +1,7 @@
+**Eight female athletes appeal House settlement, claiming Title IX was ignored**\
+`The appeal will not impact revenue sharing — slated to start July 1 — but will pause the back-pay damages portion of the settlement.`\
+https://nytimes.com/athletic/6419483/2025/06/11/house-ncaa-settlement-appeal-title-ix/
+
 **Today’s Anti-Trump Demonstrators Carry a Political Burden**\
 `Today’s anti-ICE, pro-immigration demonstrators are dragging the burden of how politics worked under Joe Biden’s presidency.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/ice-protests-trump-national-guard-2020
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
 **Leverkusen considering move for Liverpool's Quansah**\
 `The Premier League side value their 22-year-old defender at £40million.`\
 https://nytimes.com/athletic/6419344/2025/06/11/jarell-quansah-transfer-bayer-leverkusen-liverpool/
-
-**Jaylen Brown undergoes knee surgery, not expected to affect training camp**\
-`Brown, 28, missed eight of Boston’s final 16 regular-season games and dealt with a minutes restriction when he was available.`\
-https://nytimes.com/athletic/6419375/2025/06/11/jaylen-brown-celtics-knee-surgery/
 

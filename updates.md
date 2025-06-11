@@ -1,3 +1,7 @@
+**Eight female athletes appeal House settlement, claiming Title IX was ignored**\
+`The appeal will not impact revenue sharing — slated to start July 1 — but will pause the back-pay damages portion of the settlement.`\
+https://nytimes.com/athletic/6419483/2025/06/11/house-ncaa-settlement-appeal-title-ix/
+
 **Today’s Anti-Trump Demonstrators Carry a Political Burden**\
 `Today’s anti-ICE, pro-immigration demonstrators are dragging the burden of how politics worked under Joe Biden’s presidency.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/ice-protests-trump-national-guard-2020
