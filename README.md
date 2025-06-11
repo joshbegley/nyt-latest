@@ -1,3 +1,7 @@
+**With winning hit, Jeff McNeil keeps showing off new offensive identity**\
+`McNeil's 10th-inning single lifted New York to a 5-4 come-from-behind walk-off win over Washington.`\
+https://nytimes.com/athletic/6418026/2025/06/10/jeff-mcneil-mets-walk-off-win-nationals/
+
 **Canada rotates, offers little in Ivory Coast draw in last Gold Cup tuneup**\
 `Wholesale squad changes led to little cohesion and a disjointed result against the African power.`\
 https://nytimes.com/athletic/6417956/2025/06/10/canada-ivory-coast-friendly-draw-marsch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/san-bernardino-wildfire-california.html
 **L.A. Mayor Bass Declares Emergency and Enacts Curfew**\
 `The curfew affects one square mile in downtown Los Angeles, to stop vandalism and looting in the area.`\
 https://nytimes.com/video/us/100000010220837/los-angeles-curfew-bass.html
-
-**New Suns coach Jordan Ott brings freshness, curiosity the franchise needs**\
-`Ott is the organization’s fourth head coach in four seasons and arguably the most important in a couple decades.`\
-https://nytimes.com/athletic/6417767/2025/06/10/suns-coach-jordan-ott-serve-phoenix-well/
 

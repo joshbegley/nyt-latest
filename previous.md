@@ -1,3 +1,11 @@
+**Canada rotates, offers little in Ivory Coast draw in last Gold Cup tuneup**\
+`Wholesale squad changes led to little cohesion and a disjointed result against the African power.`\
+https://nytimes.com/athletic/6417956/2025/06/10/canada-ivory-coast-friendly-draw-marsch/
+
+**Party Politics Is Said to Have Played a Role in Kennedy’s Firing of Vaccine Advisers**\
+`The health secretary cited financial conflicts, but a White House official and someone familiar with his thinking said he was also concerned about ties to Democrats.`\
+https://nytimes.com/2025/06/10/us/politics/kennedy-politics-vaccine-advisers-dismissal.html
+
 **Mauricio Pochettino: Blame me for USMNT hammering by Switzerland**\
 `The head coach accepted culpability for a demoralizing defeat in Nashville.`\
 https://nytimes.com/athletic/6417912/2025/06/10/mauricio-pochettino-usmnt-failure-switzerland/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010220837/los-angeles-curfew-bass.html
 **New Suns coach Jordan Ott brings freshness, curiosity the franchise needs**\
 `Ott is the organization’s fourth head coach in four seasons and arguably the most important in a couple decades.`\
 https://nytimes.com/athletic/6417767/2025/06/10/suns-coach-jordan-ott-serve-phoenix-well/
-
-**Newsom Tells Nation That Trump Is Destroying American Democracy**\
-`Gov. Gavin Newsom, in an address called “Democracy at a Crossroads,” called on Americans to stand up to President Trump.`\
-https://nytimes.com/2025/06/10/us/newsom-speech-trump-la-protests.html
-
-**Chargers minicamp observations: Rashawn Slater arrives, Derwin James Jr. flashes**\
-`Slater sat out the Chargers' OTA practices as he awaits a contract extension but was a full participant for mandatory minicamp. `\
-https://nytimes.com/athletic/6417859/2025/06/10/chargers-minicamp-rashawn-slater-derwin-james/
 

@@ -1,3 +1,11 @@
+**Canada rotates, offers little in Ivory Coast draw in last Gold Cup tuneup**\
+`Wholesale squad changes led to little cohesion and a disjointed result against the African power.`\
+https://nytimes.com/athletic/6417956/2025/06/10/canada-ivory-coast-friendly-draw-marsch/
+
+**Party Politics Is Said to Have Played a Role in Kennedy’s Firing of Vaccine Advisers**\
+`The health secretary cited financial conflicts, but a White House official and someone familiar with his thinking said he was also concerned about ties to Democrats.`\
+https://nytimes.com/2025/06/10/us/politics/kennedy-politics-vaccine-advisers-dismissal.html
+
 **Mauricio Pochettino: Blame me for USMNT hammering by Switzerland**\
 `The head coach accepted culpability for a demoralizing defeat in Nashville.`\
 https://nytimes.com/athletic/6417912/2025/06/10/mauricio-pochettino-usmnt-failure-switzerland/
