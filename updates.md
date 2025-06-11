@@ -1,3 +1,11 @@
+**Tracking Tropical Depression Wutip**\
+`See the likely path and wind arrival times for Wutip.`\
+https://nytimes.com/interactive/2025/06/11/weather/wutip-map-path-tracker.html
+
+**Scottie Scheffler says he deleted Venmo account due to bettors' requests**\
+`Scheffler enters this week's U.S. Open as the heavy favorite, but he told reporters he doesn't "pay attention to the favorite stuff."`\
+https://nytimes.com/athletic/6418635/2025/06/11/scottie-scheffler-venmo-requests-us-open/
+
 **Chargers' Jim Harbaugh had hip replacement, heart procedure in offseason**\
 `Harbaugh's health update comes after he exited a Week 6 game against the Broncos last season while dealing with atrial flutter.`\
 https://nytimes.com/athletic/6418681/2025/06/11/jim-harbaugh-health-update-chargers/
