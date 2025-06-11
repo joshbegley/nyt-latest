@@ -1,4 +1,4 @@
-**Could Shohei Ohtani return to the mound before the All-Star break? The chances are 'north of zero'**\
+**Could Shohei Ohtani return to mound before the All-Star break? Chances are 'north of zero'**\
 `Ohtani threw his third simulated game, while Blake Snell and Tyler Glasnow also had bullpen sessions. `\
 https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-update/
 
