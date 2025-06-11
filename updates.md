@@ -1,3 +1,19 @@
+**Under Pressure From the White House, ICE Seeks New Ways to Ramp Up Arrests**\
+`Former officials said the Trump administration’s push for the agency to detain record numbers of undocumented immigrants increases the chances of mistakes.`\
+https://nytimes.com/2025/06/11/us/politics/ice-la-protest-arrests.html
+
+**Connections: Sports Edition Coach: Hints for June 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6417890/2025/06/11/connections-sports-edition-hints-for-june-11-2025/
+
+**To Shake Russian Gas, Germany Pushes to Ship It in From Anywhere Else**\
+`The country, like others across Europe, is building more facilities to handle an increase in imports of liquefied natural gas, much of it from the United States.`\
+https://nytimes.com/2025/06/11/business/russia-germany-gas-lng.html
+
+**Corrections: June 11, 2025**\
+`Corrections that appeared in print on Wednesday, June 11, 2025.`\
+https://nytimes.com/2025/06/11/pageoneplus/corrections-june-11-2025.html
+
 **Quote of the Day: Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
 `Quotation of the Day for Wednesday, June 11, 2025.`\
 https://nytimes.com/2025/06/10/pageoneplus/quote-of-the-day-extremely-lifelike-dolls-cause-a-frenzy-in-brazil.html

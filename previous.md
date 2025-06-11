@@ -1,3 +1,19 @@
+**Under Pressure From the White House, ICE Seeks New Ways to Ramp Up Arrests**\
+`Former officials said the Trump administration’s push for the agency to detain record numbers of undocumented immigrants increases the chances of mistakes.`\
+https://nytimes.com/2025/06/11/us/politics/ice-la-protest-arrests.html
+
+**Connections: Sports Edition Coach: Hints for June 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6417890/2025/06/11/connections-sports-edition-hints-for-june-11-2025/
+
+**To Shake Russian Gas, Germany Pushes to Ship It in From Anywhere Else**\
+`The country, like others across Europe, is building more facilities to handle an increase in imports of liquefied natural gas, much of it from the United States.`\
+https://nytimes.com/2025/06/11/business/russia-germany-gas-lng.html
+
+**Corrections: June 11, 2025**\
+`Corrections that appeared in print on Wednesday, June 11, 2025.`\
+https://nytimes.com/2025/06/11/pageoneplus/corrections-june-11-2025.html
+
 **Quote of the Day: Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
 `Quotation of the Day for Wednesday, June 11, 2025.`\
 https://nytimes.com/2025/06/10/pageoneplus/quote-of-the-day-extremely-lifelike-dolls-cause-a-frenzy-in-brazil.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/kennedy-politics-vaccine-advisers-dis
 **Mauricio Pochettino after USMNT's hammering by Switzerland: 'I’m the guilty one here.'**\
 `Pochettino admitted that his starting lineup was exposed and suffered its fourth straight defeat against a more seasoned European opponent.`\
 https://nytimes.com/athletic/6417912/2025/06/10/mauricio-pochettino-usmnt-failure-switzerland/
-
-**John L. Young, 89, Dies; Pioneered Posting Classified Documents Online**\
-`His site, Cryptome, was a precursor to WikiLeaks, and in some ways bolder in its no-holds-barred approach to exposing government secrets.`\
-https://nytimes.com/2025/06/10/us/john-l-young-dead.html
-
-**Full Transcript of Gov. Gavin Newsom’s Speech**\
-`In a prime time address, Gov. Gavin Newsom of California sharply criticized President Trump for sending in the military to handle the protests in Los Angeles.`\
-https://nytimes.com/2025/06/10/us/newsom-speech-transcript-protests.html
-
-**Newsom Calls Trump’s Response to L.A. Protests an ‘Abuse of Power’**\
-`Gov. Gavin Newsom of California criticized President Trump’s decision to send the National Guard and the Marines to Los Angeles and asked people to “reflect on this perilous moment.”`\
-https://nytimes.com/video/us/100000010220848/newsom-la-protests-immigration-raids.html
-
-**U.S. coach Emma Hayes to give 'much needed break' to Europe-based players**\
-`The decision to rest players, Hayes said, was collaborative with input from the USWNT’s medical and performance teams.`\
-https://nytimes.com/athletic/6417938/2025/06/10/us-women-soccer-coach-emma-hayes-break/
 
