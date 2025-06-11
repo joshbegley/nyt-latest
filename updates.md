@@ -1,3 +1,19 @@
+**Quote of the Day: Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
+`Quotation of the Day for Wednesday, June 11, 2025.`\
+https://nytimes.com/2025/06/10/pageoneplus/quote-of-the-day-extremely-lifelike-dolls-cause-a-frenzy-in-brazil.html
+
+**Armed National Guard Troops Aid Immigration Agents on Raids in Los Angeles**\
+`Soldiers mobilized by President Trump protected ICE agents on their raids in Los Angeles. The state of California said the deployment was illegal.`\
+https://nytimes.com/2025/06/10/us/national-guard-ice-raids-los-angeles.html
+
+**With winning hit, Jeff McNeil keeps showing off new offensive identity**\
+`McNeil's 10th-inning single lifted New York to a 5-4 come-from-behind walk-off win over the Washington Nationals.`\
+https://nytimes.com/athletic/6418026/2025/06/10/jeff-mcneil-mets-walk-off-win-nationals/
+
+**Mauricio Pochettino after USMNT's hammering by Switzerland: 'I’m the guilty one here.'**\
+`Pochettino admitted that his starting lineup was exposed and suffered its fourth straight defeat against a more seasoned European opponent.`\
+https://nytimes.com/athletic/6417912/2025/06/10/mauricio-pochettino-usmnt-failure-switzerland/
+
 **With winning hit, Jeff McNeil keeps showing off new offensive identity**\
 `McNeil's 10th-inning single lifted New York to a 5-4 come-from-behind walk-off win over Washington.`\
 https://nytimes.com/athletic/6418026/2025/06/10/jeff-mcneil-mets-walk-off-win-nationals/
