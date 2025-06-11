@@ -1,3 +1,7 @@
+**Sane to leave Bayern, agrees three-year Galatasaray deal**\
+`Arsenal, Fenerbahce and Al Hilal were all of interest but the Germany international is set for a move to Turkey.`\
+https://nytimes.com/athletic/6232462/2025/06/11/leroy-sane-galatasaray-transfer-bayern/
+
 **Texas Governor Will Deploy National Guard to Immigration Protests**\
 `Gov. Greg Abbott, a staunch supporter of President Trump’s immigration agenda, is the first governor to call on the National Guard as protests spread to multiple cities.`\
 https://nytimes.com/2025/06/11/us/national-guard-texas-deploy-abbott.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/brad-lander-interview.html
 **Republicans Prep for an All-Out Race to Flip New Jersey, With Trump’s Help**\
 `Democrats, on their heels after President Trump’s victory, see the state as the “perfect place to counterpunch.”`\
 https://nytimes.com/2025/06/11/nyregion/new-jersey-governor-general-election.html
-
-**In Small-Town Germany, a Reporter Sees the Bigger Picture**\
-`Never heard of Bielefeld, Germany? You’re not alone. A journalist traveled to this small city, once considered the butt of a national joke.`\
-https://nytimes.com/2025/06/11/insider/bielefeld-germany.html
 
