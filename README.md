@@ -1,3 +1,7 @@
+**Trumps to Attend ‘Les Misérables’ at Kennedy Center**\
+`The president and first lady are scheduled to attend the opening night of the musical, one of his favorites, after he seized control of the cultural institution.`\
+https://nytimes.com/2025/06/11/us/politics/trump-les-miserables-kennedy-center.html
+
 **Jury in Weinstein Trial Was Ordered to Cool Down Amid Shouting and Threats**\
 `Harvey Weinstein said infighting in the jury was denying him a fair trial.`\
 https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-jury.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/06/11/arts/editors-recommendations-sinners
 **Weinstein’s Declining Health Loomed Over His Second Trial**\
 `Harvey Weinstein, once an imposing force in Hollywood, has been in poor health in recent years, according to his lawyers.`\
 https://nytimes.com/2021/06/11/nyregion/harvey-weinstein-health.html
-
-**The House’s Policy Bill Would Lose Money. Could Trump’s Tariffs Replace It?**\
-`The short answer is probably not, according to multiple forecasters.`\
-https://nytimes.com/2025/06/11/business/trump-tariffs-tax-bill.html
 

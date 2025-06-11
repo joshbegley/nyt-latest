@@ -1,3 +1,11 @@
+**Jury in Weinstein Trial Was Ordered to Cool Down Amid Shouting and Threats**\
+`Harvey Weinstein said infighting in the jury was denying him a fair trial.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-jury.html
+
+**A Timeline of the Harvey Weinstein Case**\
+`A model reported to the police in 2015 that the producer had groped her. Allegations of sexual misconduct piled up in the ensuing years.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-timeline.html
+
 **After N.Y. Verdict, Weinstein’s Prior California Conviction Still Stands**\
 `Harvey Weinstein was convicted of sex crimes in Los Angeles in 2022 and sentenced to 16 years in prison. His lawyer has promised to appeal.`\
 https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-conviction-california.html

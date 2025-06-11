@@ -1,3 +1,11 @@
+**Jury in Weinstein Trial Was Ordered to Cool Down Amid Shouting and Threats**\
+`Harvey Weinstein said infighting in the jury was denying him a fair trial.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-jury.html
+
+**A Timeline of the Harvey Weinstein Case**\
+`A model reported to the police in 2015 that the producer had groped her. Allegations of sexual misconduct piled up in the ensuing years.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-timeline.html
+
 **After N.Y. Verdict, Weinstein’s Prior California Conviction Still Stands**\
 `Harvey Weinstein was convicted of sex crimes in Los Angeles in 2022 and sentenced to 16 years in prison. His lawyer has promised to appeal.`\
 https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-conviction-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2021/06/11/nyregion/harvey-weinstein-health.html
 **The House’s Policy Bill Would Lose Money. Could Trump’s Tariffs Replace It?**\
 `The short answer is probably not, according to multiple forecasters.`\
 https://nytimes.com/2025/06/11/business/trump-tariffs-tax-bill.html
-
-**Eight female athletes appeal House settlement, claiming Title IX was ignored**\
-`The appeal will not impact revenue sharing — slated to start July 1 — but will pause the back-pay damages portion of the settlement.`\
-https://nytimes.com/athletic/6419483/2025/06/11/house-ncaa-settlement-appeal-title-ix/
-
-**Today’s Anti-Trump Demonstrators Carry a Political Burden**\
-`Today’s anti-ICE, pro-immigration demonstrators are dragging the burden of how politics worked under Joe Biden’s presidency.`\
-https://nytimes.com/live/2025/06/02/opinion/thepoint/ice-protests-trump-national-guard-2020
 
