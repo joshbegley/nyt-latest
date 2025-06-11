@@ -1,3 +1,7 @@
+**Who is Evelyn Shores? The USWNT youth player winning NCAA titles and scoring $1 million goals**\
+`Shores is still undecided about whether she’ll pursue a professional career in the U.S. or abroad, but it's clear she has options now.`\
+https://nytimes.com/athletic/6418707/2025/06/11/uswnt-unc-evelyn-shores-soccer-goals/
+
 **Houses and Cars Torched in Second Night of Unrest in Northern Ireland**\
 `The recent unrest in the Northern Irish town of Ballymena followed a protest over a sexual assault case in the town.`\
 https://nytimes.com/video/world/europe/100000010221176/houses-and-cars-torched-in-second-night-of-unrest-in-northern-ireland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6418822/2025/06/11/tennis-wta-tour-rankings-protect
 **Stroll to return for Canadian Grand Prix after 'successful medical procedure'**\
 `The Canadian, 26, missed the Spanish Grand Prix last time out after reporting pain in his hand and wrist.`\
 https://nytimes.com/athletic/6418912/2025/06/11/lance-stroll-f1-canadian-grand-prix/
-
-**This Elusive Antarctic Squid Was Seen for the First Time**\
-`An expedition in the Southern Ocean captured video of a rare species of deep-sea cephalopod. Until now, it had been found only in fishing nets and in the bellies of seabirds.`\
-https://nytimes.com/2025/06/11/science/antarctic-gonate-squid-rare-sighting-video.html
 

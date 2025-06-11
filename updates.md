@@ -1,3 +1,19 @@
+**Houses and Cars Torched in Second Night of Unrest in Northern Ireland**\
+`The recent unrest in the Northern Irish town of Ballymena followed a protest over a sexual assault case in the town.`\
+https://nytimes.com/video/world/europe/100000010221176/houses-and-cars-torched-in-second-night-of-unrest-in-northern-ireland.html
+
+**Disney and Universal Sue A.I. Firm for Copyright Infringement**\
+`The suit, against Midjourney, is the first time major Hollywood companies have sued over A.I.-generated images.`\
+https://nytimes.com/2025/06/11/business/media/disney-universal-midjourney-ai.html
+
+**The Windup: Anonymous MLB player thoughts are here**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6418257/2025/06/11/anonymous-mlb-player-poll-the-windup/
+
+**Angel Reese’s ‘crown is heavy,’ Sky's Ariel Atkins says, calls for respect**\
+`"Luckily I'm around amazing women every day that love each other," Reese said. "We genuinely love each other."`\
+https://nytimes.com/athletic/6418759/2025/06/11/angel-reese-respect-ariel-atkins-sky-wnba/
+
 **Trump Is Pushing Allies Away and Closer Into Each Other’s Arms**\
 `Important U.S. allies are trying to bolster their ties as the Trump administration shifts priorities and reshapes the world order.`\
 https://nytimes.com/2025/06/11/world/canada/g7-trump-us-allies-world-order.html
