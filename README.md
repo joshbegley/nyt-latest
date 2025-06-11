@@ -1,3 +1,7 @@
+**Daniel Suárez on NASCAR's Mexico City race, international expansion and more: 12 Questions**\
+`The Trackhouse Racing driver talks about the Cup Series' debut in his home country, other markets ready for NASCAR and much more.`\
+https://nytimes.com/athletic/6415835/2025/06/11/daniel-suarez-nascar-mexico-city-race-international-expansion-12-questions/
+
 **What’s Next as the Latest U.S.-China Trade Talks Conclude**\
 `U.S. negotiators say the London summit represented progress. But investors and business leaders remain wary.`\
 https://nytimes.com/2025/06/11/business/dealbook/us-china-trade-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6415318/2025/06/11/canucks-offseason-trades-contrac
 **Seahawks minicamp takeaways: Sam Darnold smack talk, Michael Dickson payday and more**\
 `Also, players are taking ownership of the defense, and a look at who's limited or not participating because of injury. `\
 https://nytimes.com/athletic/6417792/2025/06/11/seahawks-minicamp-takeaways-sam-darnold-michael-dickson/
-
-**Sean Combs’s Defense to Analyze ‘Hotel Night’ Texts With ‘Jane’**\
-`The music mogul’s lawyers have started walking his former girlfriend — now a government witness — through a voluminous history of text and audio messages.`\
-https://nytimes.com/2025/06/11/arts/music/sean-diddy-combs-jane-hotel-nights.html
 
