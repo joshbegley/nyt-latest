@@ -1,3 +1,7 @@
+**Wildfire Burns Near San Bernardino Mountains**\
+`Firefighters battled the fire as high and dry winds fanned the flames.`\
+https://nytimes.com/video/us/100000010221082/san-bernardino-wildfire-california.html
+
 **‘We’re Just Speechless’: Austria Mourns After Deadly School Rampage**\
 `A former student killed 10 people and then himself in a mass shooting on Tuesday, the police said. It was one of the worst such attacks in Europe in the past decade.`\
 https://nytimes.com/2025/06/11/world/europe/austria-school-shooting-graz.html

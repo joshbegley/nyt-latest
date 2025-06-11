@@ -1,3 +1,7 @@
+**Wildfire Burns Near San Bernardino Mountains**\
+`Firefighters battled the fire as high and dry winds fanned the flames.`\
+https://nytimes.com/video/us/100000010221082/san-bernardino-wildfire-california.html
+
 **‘We’re Just Speechless’: Austria Mourns After Deadly School Rampage**\
 `A former student killed 10 people and then himself in a mass shooting on Tuesday, the police said. It was one of the worst such attacks in Europe in the past decade.`\
 https://nytimes.com/2025/06/11/world/europe/austria-school-shooting-graz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417221/2025/06/11/fifa-2026-world-cup-revenue/
 **She Relishes Being Trump’s Nemesis. Now He Is Out for Revenge.**\
 `Letitia James, the New York attorney general, won a fraud judgment against President Trump’s business and has challenged his policies in court. Now she is a target of his Justice Department.`\
 https://nytimes.com/2025/06/11/nyregion/trump-james-ny-attorney-general-investigation.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/11/crosswords/spelling-bee-forum.html
 
