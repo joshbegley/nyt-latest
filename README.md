@@ -1,3 +1,7 @@
+**This Super Summery Dinner Party Is Meant for Luxuriating**\
+`Crab cakes, chilled cucumber-spinach soup and a light melon granita are the ideal antidote for sultry evenings, David Tanis writes.`\
+https://nytimes.com/2025/06/11/dining/summer-dinner-party-recipes.html
+
 **Saquon Barkley becomes first RB to top NFLPA player sales list since 2017**\
 `Jayden Daniels cracks the top five as a rookie`\
 https://nytimes.com/athletic/6419163/2025/06/11/saquon-barkley-nflpa-sales-list/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/sports/golf/oakmont-us-open-club-pro.html
 **In 1983, Larry Nelson Conquered Oakmont**\
 `He won the U.S. Open on the course where this year’s tournament is being held.`\
 https://nytimes.com/2025/06/11/sports/golf/us-open-larry-nelson-oakmont.html
-
-**Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
-`New head coach Xabi Alonso has provided few surprises but many academy players in his squad for the tournament.`\
-https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
 

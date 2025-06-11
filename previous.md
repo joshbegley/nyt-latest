@@ -1,3 +1,7 @@
+**Saquon Barkley becomes first RB to top NFLPA player sales list since 2017**\
+`Jayden Daniels cracks the top five as a rookie`\
+https://nytimes.com/athletic/6419163/2025/06/11/saquon-barkley-nflpa-sales-list/
+
 **‘Families Like Ours’ Review: Emptying Denmark**\
 `In Thomas Vinterberg’s series on Netflix, climate change forces a country to close, and everyone has to leave.`\
 https://nytimes.com/2025/06/11/arts/television/families-like-ours-review-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/sports/golf/us-open-larry-nelson-oakmont.html
 **Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
 `New head coach Xabi Alonso has provided few surprises but many academy players in his squad for the tournament.`\
 https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
-
-**Britain Allocates Hundreds of Billions to Bolster Its Economy**\
-`Rachel Reeves, the chancellor of the Exchequer, broke down public spending plans, including more money for the military, public transport and affordable housing.`\
-https://nytimes.com/2025/06/11/business/uk-spending-economy.html
 

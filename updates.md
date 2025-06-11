@@ -1,3 +1,7 @@
+**Saquon Barkley becomes first RB to top NFLPA player sales list since 2017**\
+`Jayden Daniels cracks the top five as a rookie`\
+https://nytimes.com/athletic/6419163/2025/06/11/saquon-barkley-nflpa-sales-list/
+
 **‘Families Like Ours’ Review: Emptying Denmark**\
 `In Thomas Vinterberg’s series on Netflix, climate change forces a country to close, and everyone has to leave.`\
 https://nytimes.com/2025/06/11/arts/television/families-like-ours-review-netflix.html
