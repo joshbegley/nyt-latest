@@ -1,3 +1,7 @@
+**Meet Our New Restaurant Critics**\
+`Ligaya Mishan and Tejal Rao are the new restaurant critics at The New York Times, succeeding Pete Wells. While the two new critics are still going to be discreet when dining out for The Times, they have decided to part with tradition and reveal their identities to readers.`\
+https://nytimes.com/video/dining/100000010221343/nyt-restaurant-critic-tejal-rao-ligaya-mishan.html
+
 **The Times Has Appointed Two Chief Restaurant Critics. Here’s How That Will Work.**\
 `Tejal Rao and Ligaya Mishan will expand restaurant coverage nationally for The Times.`\
 https://nytimes.com/2025/06/11/dining/tejal-rao-ligaya-mishan-restaurant-critics.html
