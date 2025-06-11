@@ -1,3 +1,5 @@
+
+
 **Newsom Says Democracy Is ‘Under Assault’**\
 `Gov. Gavin Newsom of California criticized President Trump’s decision to send the National Guard and the Marines to Los Angeles and asked people to “reflect on this perilous moment.”`\
 https://nytimes.com/video/us/100000010220848/newsom-la-protests-immigration-raids.html
