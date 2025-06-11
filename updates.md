@@ -1,3 +1,11 @@
+**Weinstein’s declining health has loomed over his second trial.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/harvey-weinstein-health
+
+**The House’s Policy Bill Would Lose Money. Could Trump’s Tariffs Replace It?**\
+`The short answer is probably not, according to multiple forecasters.`\
+https://nytimes.com/2025/06/11/business/trump-tariffs-tax-bill.html
+
 **Eight female athletes appeal House settlement, claiming Title IX was ignored**\
 `The appeal will not impact revenue sharing — slated to start July 1 — but will pause the back-pay damages portion of the settlement.`\
 https://nytimes.com/athletic/6419483/2025/06/11/house-ncaa-settlement-appeal-title-ix/

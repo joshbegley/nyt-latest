@@ -1,6 +1,10 @@
-**Weinstein’s declining health has loomed over his second trial.**\
-`By Maria Cramer`\
-https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/harvey-weinstein-health
+**What’s in Our Queue? ‘Sinners’ and More **\
+`Text by Lisa Miller`\
+https://nytimes.com/card/2025/06/11/arts/editors-recommendations-sinners
+
+**Weinstein’s Declining Health Loomed Over His Second Trial**\
+`Harvey Weinstein, once an imposing force in Hollywood, has been in poor health in recent years, according to his lawyers.`\
+https://nytimes.com/2021/06/11/nyregion/harvey-weinstein-health.html
 
 **The House’s Policy Bill Would Lose Money. Could Trump’s Tariffs Replace It?**\
 `The short answer is probably not, according to multiple forecasters.`\
@@ -31,10 +35,6 @@ https://nytimes.com/2025/06/11/nyregion/queens-defenders-founder-fraud-indicted.
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/heres-the-latest-in-the-trial
 
 **Live Updates: Harvey Weinstein Convicted in Mixed Verdict After Retrial**\
-`Mr. Weinstein, the former Hollywood mogul, was convicted of one sexual misconduct charge and acquitted on another. The jury could not reach a verdict on a third.`\
+`Mr. Weinstein, the former Hollywood mogul, was convicted on one sexual assault charge and acquitted on another. The jury could not reach a verdict on a third.`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict
-
-**Musk Spoke to Trump Privately Before Posting Message of ‘Regret’**\
-`It remains to be seen how Mr. Trump will handle the attempted rapprochement and whether the two men’s relationship can be restored.`\
-https://nytimes.com/2025/06/11/us/politics/musk-trump.html
 
