@@ -1,3 +1,7 @@
+**U.S. Ambassador to Israel Questions Policy on Palestinian State**\
+`The envoy, Mike Huckabee, said in media interviews that “Muslim countries” should build a Palestinian state on their territory, which would be a sharp departure from decades of U.S. foreign policy.`\
+https://nytimes.com/2025/06/11/world/middleeast/mike-huckabee-israel-palestinian-state.html
+
 **New York Times Names Co-Chief Restaurant Critics**\
 `The pair, Ligaya Mishan and Tejal Rao, are part of an effort to expand starred restaurant reviews across the country, the company said.`\
 https://nytimes.com/2025/06/11/business/media/nyt-restaurant-critics-announced.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6411723/2025/06/11/penguins-head-coach-dan-muse-nhl
 **Lowetide: Why are Oilers having trouble playing their game vs. Panthers?**\
 `Through three games, the Oilers have yet to join the series against Florida offensively.`\
 https://nytimes.com/athletic/6416347/2025/06/11/oilers-panthers-stats-stanley-cup-final/
-
-**Trump Administration Live Updates: Hegseth to Face More Questions on Capitol Hill**\
-``\
-https://nytimes.com/live/2025/06/11/us/trump-news
 
