@@ -1,3 +1,19 @@
+**Jurors weighed Weinstein’s fate in a changed climate.**\
+`By Hurubie Meko`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jurors-weighed-weinsteins-fate-in-a-changed-climate
+
+**New Penguins coach Dan Muse won’t win on words alone, but he's off to a good start**\
+`Muse's honesty, which was on display Wednesday, will serve him well moving forward. `\
+https://nytimes.com/athletic/6419330/2025/06/11/penguins-coach-dan-muse-intro/
+
+**Movement as Storytelling**\
+`Dance offers a creative freedom that allows us to leap beyond two-dimensional facts and figures.`\
+https://nytimes.com/2025/06/11/special-series/annabelle-lopez-ochoa-dance.html
+
+**Trump’s Budget: Supercharged ICE, Vouchers and a Warming Planet**\
+`Trump’s budget tells us three unhappy truths about America.`\
+https://nytimes.com/2025/06/11/opinion/budget-trump.html
+
 **5 Months Into Office, No Trump Talk for San Francisco Mayor**\
 `Mayor Daniel Lurie says that he is focused on quality of life issues, not politics, as President Trump targets California in various ways.`\
 https://nytimes.com/2025/06/11/us/san-francisco-mayor-trump-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-conviction-california.h
 **Kostoulas set to undergo Brighton medical ahead of €35m transfer**\
 `A deal worth €35m (£29.6m; $40.2m) plus an additional €2m (£1.6m, $2.2m) in add-ons is nearing completion.`\
 https://nytimes.com/athletic/6419518/2025/06/11/brighton-kostoulas-transfer-update-medical/
-
-**WATCH: Does Tyrese Haliburton need to be more aggressive? Yes, but it's not so simple**\
-`Calls for Tyrese Haliburton to be more aggressive make sense, but his form of aggression is not the same as it is for most other NBA stars.`\
-https://nytimes.com/athletic/6418803/2025/06/11/tyrese-haliburton-pacers-thunder-nba-finals-aggressive/
-
-**Ambulance Crew and Photographer Among Latest Casualties in Gaza**\
-`Three paramedics and a photographer with them were killed late Monday in northern Gaza. The Israeli military said it was reviewing claims by health authorities in Gaza that the crew was killed in an Israeli strike while responding to an earlier incident.`\
-https://nytimes.com/video/world/middleeast/100000010221069/health-workers-killed-gaza-israel.html
-
-**The trial required witnesses to repeat harrowing testimony.**\
-`By Jonah E. Bromwich`\
-https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jessica-mann-kaja-sokola-miriam-haley
-
-**What’s in Our Queue? ‘Sinners’ and More **\
-`Text by Lisa Miller`\
-https://nytimes.com/card/2025/06/11/arts/editors-recommendations-sinners
 

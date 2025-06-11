@@ -1,3 +1,7 @@
+**A Syrian Committee for Civil Peace Angers Those Demanding Justice**\
+`Syria’s new leaders founded a group that cooperates with former Assad supporters to foster stability. It has set off a backlash from the government’s support base.`\
+https://nytimes.com/2025/06/11/world/europe/syria-peace-committee-assad.html
+
 **Jurors weighed Weinstein’s fate in a changed climate.**\
 `By Hurubie Meko`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jurors-weighed-weinsteins-fate-in-a-changed-climate
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-timeline.html
 **After N.Y. Verdict, Weinstein’s Prior California Conviction Still Stands**\
 `Harvey Weinstein was convicted of sex crimes in Los Angeles in 2022 and sentenced to 16 years in prison. His lawyer has promised to appeal.`\
 https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-conviction-california.html
-
-**Kostoulas set to undergo Brighton medical ahead of €35m transfer**\
-`A deal worth €35m (£29.6m; $40.2m) plus an additional €2m (£1.6m, $2.2m) in add-ons is nearing completion.`\
-https://nytimes.com/athletic/6419518/2025/06/11/brighton-kostoulas-transfer-update-medical/
 
