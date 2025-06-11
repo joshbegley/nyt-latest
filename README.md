@@ -1,4 +1,8 @@
-**U.S. to Withdraw Diplomats from Iraq Amid Iran Tensions**\
+**New Jets OC Tanner Engstrand is already winning over players: Minicamp observations**\
+`Plus, an impressive day for the offense at Wednesday's practice.`\
+https://nytimes.com/athletic/6419725/2025/06/11/jets-minicamp-practice-report-offensive-coordinator-tanner-engstrand/
+
+**U.S. to Withdraw Diplomats From Iraq Amid Iran Tensions**\
 `The State Department said it had decided to shrink the U.S. “footprint” in Baghdad and the United Kingdom issued a warning about “increased tensions within the region.”`\
 https://nytimes.com/2025/06/11/us/politics/iran-us-iraq-diplomats-middle-east.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419175/2025/06/11/jac-caglianone-roman-anthony-car
 **Fast-Growing Wildfire Spreads in Southern California**\
 `A wildfire that started on Tuesday afternoon north of the San Bernardino Mountains in Southern California had exploded to more than 4,200 acres by Wednesday morning, officials said.`\
 https://nytimes.com/video/us/100000010222277/san-bernardino-wildfire.html
-
-**Did Bob Dylan Help Announce an Album From MGK?**\
-`The pop-punk star’s trailer for “Lost Americana” features a familiar voice narrating about a “quest to reclaim the authentic essence of American freedom.”`\
-https://nytimes.com/2025/06/11/arts/music/bob-dylan-mgk-machine-gun-kelly.html
 
