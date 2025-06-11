@@ -1,3 +1,11 @@
+**‘We’re Just Speechless’: Austria Mourns After Deadly School Rampage**\
+`A former student killed 10 people and then himself in a mass shooting on Tuesday, the police said. It was one of the worst such attacks in Europe in the past decade.`\
+https://nytimes.com/2025/06/11/world/europe/austria-school-shooting-graz.html
+
+**Man City confirm Reijnders signing ahead of Club World Cup**\
+`The Netherlands international joins for an initial €55million (£46.3m) and has signed a deal until 2030.`\
+https://nytimes.com/athletic/6402156/2025/06/11/man-city-reijnders-transfer-confirmed/
+
 **Musk Expresses ‘Regret’ Over His Criticisms of Trump**\
 `President Trump and Elon Musk traded social media barbs last week. Mr. Trump has said that he has no interest in repairing the relationship with his former adviser.`\
 https://nytimes.com/2025/06/11/business/elon-musk-trump-feud.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/trump-james-ny-attorney-general-investig
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/11/crosswords/spelling-bee-forum.html
-
-**Jimmy Kimmel Calls Trump an ‘Arsonist With a Hose’**\
-`The L.A.-based host said the city’s problem was the president, not the protests: “We have more so-called ‘unrest’ here when one of our teams wins a championship.”`\
-https://nytimes.com/2025/06/11/arts/television/jimmy-kimmel-los-angeles-protests.html
-
-**Fresh off French Open win, Coco Gauff is the toast of New York at WNBA game, 'Tonight Show'**\
-`Gauff watched the Liberty defeat the Chicago Sky with Vanessa Bryant and later shared her humorous side with Jimmy Fallon.`\
-https://nytimes.com/athletic/6418033/2025/06/11/coco-gauff-tonight-show-wnba/
 

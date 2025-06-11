@@ -1,3 +1,11 @@
+**‘We’re Just Speechless’: Austria Mourns After Deadly School Rampage**\
+`A former student killed 10 people and then himself in a mass shooting on Tuesday, the police said. It was one of the worst such attacks in Europe in the past decade.`\
+https://nytimes.com/2025/06/11/world/europe/austria-school-shooting-graz.html
+
+**Man City confirm Reijnders signing ahead of Club World Cup**\
+`The Netherlands international joins for an initial €55million (£46.3m) and has signed a deal until 2030.`\
+https://nytimes.com/athletic/6402156/2025/06/11/man-city-reijnders-transfer-confirmed/
+
 **Musk Expresses ‘Regret’ Over His Criticisms of Trump**\
 `President Trump and Elon Musk traded social media barbs last week. Mr. Trump has said that he has no interest in repairing the relationship with his former adviser.`\
 https://nytimes.com/2025/06/11/business/elon-musk-trump-feud.html
