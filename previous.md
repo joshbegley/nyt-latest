@@ -1,3 +1,7 @@
+**The Athletic FC: World Cup 2026 - What you need to know with a year to go**\
+`Today in TAFC: Your ultimate guide to the World Cup with exactly a year to go. Who has qualified? What now for USMNT after latest loss? `\
+https://nytimes.com/athletic/6418290/2025/06/11/world-cup-2026-usmnt-pochettino/
+
 **South Korea Turns Off Speakers Blasting K-Pop Into North Korea**\
 `Lee Jae-myung, the new president of South Korea, said he would stop the propaganda broadcasts by his predecessor that raised tensions with Seoul’s neighboring foe.`\
 https://nytimes.com/2025/06/11/world/asia/korea-speakers-propaganda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6385628/2025/06/11/mlb-sports-betting-gambling-play
 **Robo-umps might be coming to MLB. Are players for or against them?**\
 `The robo-umps are coming, and the players have some thoughts — and concerns.`\
 https://nytimes.com/athletic/6406613/2025/06/11/robo-umpires-mlb-2025-player-poll/
-
-**Cubs takeaways: Ian Happ finds power, Shota Imanaga nears return, Matt Shaw shows off arm**\
-`Happ had a pair of home runs in Tuesday night's 8-4 win over the Philadelphia Phillies.`\
-https://nytimes.com/athletic/6417996/2025/06/11/cubs-win-phillies-ian-happ-shota-imanaga-matt-shaw/
 

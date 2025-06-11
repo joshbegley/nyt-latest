@@ -1,3 +1,7 @@
+**The Athletic FC: World Cup 2026 - What you need to know with a year to go**\
+`Today in TAFC: Your ultimate guide to the World Cup with exactly a year to go. Who has qualified? What now for USMNT after latest loss? `\
+https://nytimes.com/athletic/6418290/2025/06/11/world-cup-2026-usmnt-pochettino/
+
 **South Korea Turns Off Speakers Blasting K-Pop Into North Korea**\
 `Lee Jae-myung, the new president of South Korea, said he would stop the propaganda broadcasts by his predecessor that raised tensions with Seoul’s neighboring foe.`\
 https://nytimes.com/2025/06/11/world/asia/korea-speakers-propaganda.html
