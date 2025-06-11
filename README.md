@@ -1,40 +1,40 @@
-**Anti-Immigrant Rioting Stretches Into Second Night in Northern Ireland**\
-`Homes, businesses and cars were attacked and 17 police offices were injured during violent disorder in Ballymena and several other areas.`\
-https://nytimes.com/2025/06/11/world/europe/ballymena-riot-northern-ireland-disorder.html
+**What’s Next as the Latest U.S.-China Trade Talks Conclude**\
+`U.S. negotiators say the London summit represented progress. But investors and business leaders remain wary.`\
+https://nytimes.com/2025/06/11/business/dealbook/us-china-trade-talks.html
 
-**Calm in Downtown L.A. as Curfew Takes Effect**\
-`The city’s mayor announced the curfew on Tuesday evening after some protests against the Trump administration’s immigration policies turned unruly.`\
-https://nytimes.com/2025/06/11/us/los-angeles-curfew-map-mayor-bass.html
+**Ranking Ohio State's position groups: Who's next after an obvious choice for No. 1?**\
+`Ohio State has inexperience in a few key spots but also no shortage of talented playmakers to lean on.`\
+https://nytimes.com/athletic/6416013/2025/06/11/ohio-state-player-roster-rankings-2025/
 
-**World Cup 2026: Who's qualified, who's struggling and which underdogs have a shot at glory?**\
-`Breaking down the big plot-lines from qualifying for 2026, including the big names who could be struggling`\
-https://nytimes.com/athletic/6418358/2025/06/11/world-cup-2026-who-has-qualified/
+**How will the Penguins play under new coach Dan Muse?**\
+`What can we learn about Muse's systems and philosophies from his prior head coaching stops? Let's check the tape.`\
+https://nytimes.com/athletic/6411723/2025/06/11/penguins-head-coach-dan-muse-nhl/
 
-**Austria Has Lots of Guns, Little Gun Violence, and New Questions**\
-`The deadliest school shooting in the nation’s recent history has prompted some gun enthusiasts to worry about the prospect of stricter ownership laws.`\
-https://nytimes.com/2025/06/11/world/europe/austria-guns-school-shooting-graz.html
+**Lowetide: Why are Oilers having trouble playing their game vs. Panthers?**\
+`Through three games, the Oilers have yet to join the series against Florida offensively.`\
+https://nytimes.com/athletic/6416347/2025/06/11/oilers-panthers-stats-stanley-cup-final/
 
-**Who could be in England's first World Cup starting XI? Our experts' picks**\
-`Who could form the backbone of Thomas Tuchel's starting line-up come the tournament in 2026 - and who may miss out?`\
-https://nytimes.com/athletic/6415855/2025/06/11/england-world-cup-2026-team-prediction/
+**Trump Administration Live Updates: Hegseth to Face More Questions on Capitol Hill**\
+``\
+https://nytimes.com/live/2025/06/11/us/trump-news
 
-**Notre Dame fans: Take our 2025 fan survey on the state of the program, rivalries and more**\
-`What does it feel like to be a Notre Dame football fan today? We want to hear your thoughts.`\
-https://nytimes.com/athletic/6416570/2025/06/11/notre-dame-football-fan-survey-2025/
+**Pelicans could look to Khaman Maluach in draft to capitalize on double-big trend**\
+`Maluach isn't the only option up front who the Pelicans could consider pairing with Yves Missi.`\
+https://nytimes.com/athletic/6417585/2025/06/11/pelicans-khaman-maluach-bigs-nba-draft-2025/
 
-**Netanyahu Under Pressure as Ultra-Orthodox Parties Threaten to Dissolve Parliament**\
-`The Israeli prime minister’s coalition partners may back an opposition motion over rules that exempt religious students from serving in the military.`\
-https://nytimes.com/2025/06/11/world/middleeast/israel-knesset-vote-orthodox-draft-law.html
+**Blues fan survey results: High confidence in Armstrong heading into final year as GM**\
+`Nearly 1,800 voters took part in our 20-question Blues fan survey, which featured exciting prospects, potential contracts and more.`\
+https://nytimes.com/athletic/6416058/2025/06/11/blues-fan-survey-results-armstrong-holloway-broberg/
 
-**L.A. protesters say they are speaking up for immigrant ‘family.’**\
-`By Jill Cowan, Orlando Mayorquín, Livia Albeck-Ripka and Mimi Dwyer`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/protesters-los-angeles-immigration-who
+**What a perfect Canucks offseason looks like: Trades, extensions and big swings**\
+`The stakes couldn't be higher for a hockey club that finds itself at something of a crossroads.`\
+https://nytimes.com/athletic/6415318/2025/06/11/canucks-offseason-trades-contract-extensions/
 
-**U.S. Open 2025: What to know about Oakmont’s top contenders**\
-`Will one of pro golf’s powerhouse names add to his major championship collection? Or will Oakmont reveal a new, ascending star?`\
-https://nytimes.com/athletic/6417343/2025/06/11/us-open-2025-top-contenders/
+**Seahawks minicamp takeaways: Sam Darnold smack talk, Michael Dickson payday and more**\
+`Also, players are taking ownership of the defense, and a look at who's limited or not participating because of injury. `\
+https://nytimes.com/athletic/6417792/2025/06/11/seahawks-minicamp-takeaways-sam-darnold-michael-dickson/
 
-**Mirtle mailbag: No, the Maple Leafs should not (and cannot) run it back**\
-`It's time for Toronto to acknowledge that mild success isn't good enough after nearly a decade of trying. It's time for a new look.`\
-https://nytimes.com/athletic/6415224/2025/06/11/maple-leafs-offseason-mitch-marner-mailbag/
+**Sean Combs’s Defense to Analyze ‘Hotel Night’ Texts With ‘Jane’**\
+`The music mogul’s lawyers have started walking his former girlfriend — now a government witness — through a voluminous history of text and audio messages.`\
+https://nytimes.com/2025/06/11/arts/music/sean-diddy-combs-jane-hotel-nights.html
 
