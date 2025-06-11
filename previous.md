@@ -1,3 +1,11 @@
+**Why the case against Weinstein was relatively narrow.**\
+`By Jan Ransom`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/why-the-case-against-weinstein-was-relatively-narrow
+
+**How Immigrants and Labor, Long Joined in L.A., Set the Stage for Protest**\
+`Unions have backed immigrant rights in California and have been on the forefront of resisting the Trump administration’s deportations.`\
+https://nytimes.com/2025/06/11/business/economy/la-protests-immigrants-unions.html
+
 **Trump Fights to Move Appeal of Hush-Money Conviction to Federal Court**\
 `The president’s lawyers argued that a Supreme Court ruling on presidential immunity justified moving an appeal of his conviction in Manhattan to U.S. jurisdiction.`\
 https://nytimes.com/2025/06/11/nyregion/trump-ny-conviction-federal-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/us/san-francisco-mayor-trump-protests.html
 **Trumps to Attend ‘Les Misérables’ at Kennedy Center**\
 `The president and first lady are scheduled to attend the opening night of the musical, one of his favorites, after he seized control of the cultural institution.`\
 https://nytimes.com/2025/06/11/us/politics/trump-les-miserables-kennedy-center.html
-
-**Jury in Weinstein Trial Was Ordered to Cool Down Amid Shouting and Threats**\
-`Harvey Weinstein said infighting in the jury was denying him a fair trial.`\
-https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-jury.html
-
-**A Timeline of the Harvey Weinstein Case**\
-`A model reported to the police in 2015 that the producer had groped her. Allegations of sexual misconduct piled up in the ensuing years.`\
-https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-timeline.html
 

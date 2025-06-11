@@ -1,3 +1,11 @@
+**Why the case against Weinstein was relatively narrow.**\
+`By Jan Ransom`\
+https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/why-the-case-against-weinstein-was-relatively-narrow
+
+**How Immigrants and Labor, Long Joined in L.A., Set the Stage for Protest**\
+`Unions have backed immigrant rights in California and have been on the forefront of resisting the Trump administration’s deportations.`\
+https://nytimes.com/2025/06/11/business/economy/la-protests-immigrants-unions.html
+
 **Trump Fights to Move Appeal of Hush-Money Conviction to Federal Court**\
 `The president’s lawyers argued that a Supreme Court ruling on presidential immunity justified moving an appeal of his conviction in Manhattan to U.S. jurisdiction.`\
 https://nytimes.com/2025/06/11/nyregion/trump-ny-conviction-federal-court.html

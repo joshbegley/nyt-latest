@@ -18,7 +18,7 @@ https://nytimes.com/2025/06/11/world/europe/syria-peace-committee-assad.html
 `By Hurubie Meko`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jurors-weighed-weinsteins-fate-in-a-changed-climate
 
-**New Penguins coach Dan Muse won’t win on words alone, but he's off to a good start**\
+**Yohe: New Penguins coach Dan Muse won’t win on words alone, but he's off to a good start**\
 `Muse's honesty, which was on display Wednesday, will serve him well moving forward. `\
 https://nytimes.com/athletic/6419330/2025/06/11/penguins-coach-dan-muse-intro/
 
