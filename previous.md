@@ -1,3 +1,11 @@
+**Hong Kong Outlaws a Video Game for Promoting ‘Armed Revolution’**\
+`The war strategy game allows players to represent fighters from Taiwan, Hong Kong and other places in plots to overthrow China’s Communist Party.`\
+https://nytimes.com/2025/06/11/world/asia/hong-kong-bans-taiwan-game.html
+
+**Amid Russian Strikes, a Remote Corner of Ukraine Beckons**\
+`The region of Transcarpathia has seen hardly any Russian attacks over the past three years. “We don’t have the same experience of war,” a resident said.`\
+https://nytimes.com/2025/06/11/world/europe/russia-ukraine-transcarpathia.html
+
 **Russian Drone Barrage Kills 3 in Ukraine’s Second-Largest City**\
 `The assault continued Moscow’s stepped-up drone and missile attacks, which have been ratcheting up for months with nightly bombardments on regions and cities in Ukraine.`\
 https://nytimes.com/2025/06/11/world/europe/russia-ukraine-drones-attack-kharkiv.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/bryan-bedford-faa-senate.html
 **The Military May Find Itself in an Impossible Situation**\
 `Law and ethics can be at odds.`\
 https://nytimes.com/2025/06/11/opinion/military-deploy-trump-ethics.html
-
-**30 Delightful Hotels in Europe Under $300 a Night**\
-`We scoured the hotel scene in the heart of popular cities in search of stylish lodgings that won’t break the bank. Here’s the best of what we found.`\
-https://nytimes.com/interactive/2025/06/11/travel/europe-affordable-hotels.html
-
-**Tourists on the Tram? Roosevelt Islanders Are Fed Up.**\
-`Social media attention has brought sightseers to the tram, creating long waits for residents who take the tram to and from home.`\
-https://nytimes.com/2025/06/11/nyregion/tram-roosevelt-island-tourists.html
 

@@ -1,3 +1,11 @@
+**Hong Kong Outlaws a Video Game for Promoting ‘Armed Revolution’**\
+`The war strategy game allows players to represent fighters from Taiwan, Hong Kong and other places in plots to overthrow China’s Communist Party.`\
+https://nytimes.com/2025/06/11/world/asia/hong-kong-bans-taiwan-game.html
+
+**Amid Russian Strikes, a Remote Corner of Ukraine Beckons**\
+`The region of Transcarpathia has seen hardly any Russian attacks over the past three years. “We don’t have the same experience of war,” a resident said.`\
+https://nytimes.com/2025/06/11/world/europe/russia-ukraine-transcarpathia.html
+
 **Russian Drone Barrage Kills 3 in Ukraine’s Second-Largest City**\
 `The assault continued Moscow’s stepped-up drone and missile attacks, which have been ratcheting up for months with nightly bombardments on regions and cities in Ukraine.`\
 https://nytimes.com/2025/06/11/world/europe/russia-ukraine-drones-attack-kharkiv.html
