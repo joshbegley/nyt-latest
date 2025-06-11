@@ -1,3 +1,15 @@
+**Mikie Sherrill Wins the Democratic Primary for Governor of New Jersey**\
+`Ms. Sherrill, the only woman in a six-candidate race for the Democratic nomination, emphasized her service as a U.S. Navy helicopter pilot.`\
+https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
+
+**Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
+`Stanton finished 2-for-3 with three RBIs and a walk in his rehab game.`\
+https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
+
+**U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
+`Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the countries reached in Geneva last month.`\
+https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
+
 **Federal Court Agrees to Continue Trump’s Tariffs as Appeal Gets Underway**\
 `The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
 https://nytimes.com/2025/06/10/business/trump-tariffs-court.html
