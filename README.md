@@ -1,3 +1,7 @@
+**Mikie Sherrill Wins the Democratic Primary for Governor of New Jersey**\
+`Ms. Sherrill, the only woman in a six-candidate race for the Democratic nomination, emphasized her service as a U.S. Navy helicopter pilot.`\
+https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
+
 **Federal Court Agrees to Continue Trump’s Tariffs as Appeal Gets Underway**\
 `The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
 https://nytimes.com/2025/06/10/business/trump-tariffs-court.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
 `The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
 https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
 
-**U.S. and China Agree to Walk Back Trade Tensions**\
+**U.S. and China Agree to Stick to Prior Trade Truce as Tensions Escalate**\
 `Negotiators said the two governments would stick to a previous truce and reduce tensions that had escalated in recent weeks between the world’s largest economies.`\
 https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417678/2025/06/10/jason-kidd-mavericks-knicks-head
 **Challenging the Playbook: 5 Keys to Winning the A.I Game **\
 `5 Keys to Winning the A.I. Game: Microsoft executive Jessica Hawk and professional athlete Cam Jordan discuss how A.I. is transforming business`\
 https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook-5-keys-to-winning-the-ai-game.html
-
-**Democrats Enter Risky Political Terrain as Protests Grip California**\
-`Scenes of unrest in Southern California, stoked by President Trump as he tries to deport more immigrants, have left Democratic leaders worried the confrontation elevates a losing issue for the party.`\
-https://nytimes.com/2025/06/10/us/politics/trump-immigration-ice-democrats.html
 
