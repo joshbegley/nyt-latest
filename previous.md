@@ -1,3 +1,23 @@
+**Brian Wilson: 12 Essential Songs**\
+`The Beach Boys leader, who died on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
+
+**Leverkusen considering move for Liverpool's Quansah**\
+`The Premier League side value their 22-year-old defender at £40million.`\
+https://nytimes.com/athletic/6419344/2025/06/11/jarell-quansah-transfer-bayer-leverkusen-liverpool/
+
+**Jaylen Brown undergoes knee surgery, not expected to affect training camp**\
+`Brown, 28, missed eight of Boston’s final 16 regular-season games and dealt with a minutes restriction when he was available.`\
+https://nytimes.com/athletic/6419375/2025/06/11/jaylen-brown-celtics-knee-surgery/
+
+**World Cup 2026, one year to go: What still needs to be sorted?**\
+`Visas, travel bans, transport costs, security and relationships with the government - there is a lot to consider a year out`\
+https://nytimes.com/athletic/6417215/2025/06/11/world-cup-2026-issues-visa-stadiums-costs/
+
+**Paul Marantz, Lighting Designer of 9/11 Memorial and Studio 54, Dies at 87**\
+`Using neon, searchlights — or even shadows — he dramatically shaped the look of prominent spaces in almost every corner of the world.`\
+https://nytimes.com/2025/06/11/arts/design/paul-marantz-dead.html
+
 **‘I Am Not Cowed’: Voices on the Protests**\
 `Readers discuss the Los Angeles protests and the “No Kings” rallies to be held on Saturday. Also: Leaving the Republican Party; younger Democratic candidates.`\
 https://nytimes.com/2025/06/11/opinion/los-angeles-immigration-protests.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/11/science/space/strawberry-moon-full-june.html
 **Why California Says Trump’s Military Deployment Is Illegal**\
 `California has sued the Trump administration over its move to deploy troops to Los Angeles. Eric Schmitt, a national security correspondent for The New York Times, explains the laws governing the use of American troops on U.S. soil.`\
 https://nytimes.com/video/us/politics/100000010218788/why-california-says-trumps-military-deployment-is-illegal.html
-
-**Brian Wilson, Pop Auteur and Leader of the Beach Boys, Dies at 82**\
-`A hitmaker elevated and burdened by the label of genius, he transcended the breezy surf genre to create complex harmonies and intricate soundscapes in the studio.`\
-https://nytimes.com/2025/06/11/arts/music/brian-wilson-dead.html
-
-**This Super Summery Dinner Party Is Meant for Luxuriating**\
-`Crab cakes, chilled cucumber-spinach soup and a light melon granita are the ideal antidote for sultry evenings, David Tanis writes.`\
-https://nytimes.com/2025/06/11/dining/summer-dinner-party-recipes.html
-
-**Saquon Barkley becomes first RB to top NFLPA player sales list since 2017**\
-`Jayden Daniels cracks the top five as a rookie`\
-https://nytimes.com/athletic/6419163/2025/06/11/saquon-barkley-nflpa-sales-list/
-
-**‘Families Like Ours’ Review: Emptying Denmark**\
-`In Thomas Vinterberg’s series on Netflix, climate change forces a country to close, and everyone has to leave.`\
-https://nytimes.com/2025/06/11/arts/television/families-like-ours-review-netflix.html
-
-**They’re Chic, They’re Quiet, and They Might Be Filled With Mold**\
-`Midea’s recall of 1.7 million air-conditioners is causing frustration and confusion among its design-conscious user base.`\
-https://nytimes.com/2025/06/11/style/midea-air-conditioners-mold-recall-reaction.html
 
