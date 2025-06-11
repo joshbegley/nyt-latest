@@ -1,3 +1,7 @@
+**With winning hit, Jeff McNeil keeps showing off new offensive identity**\
+`McNeil's 10th-inning single lifted New York to a 5-4 come-from-behind walk-off win over Washington.`\
+https://nytimes.com/athletic/6418026/2025/06/10/jeff-mcneil-mets-walk-off-win-nationals/
+
 **Canada rotates, offers little in Ivory Coast draw in last Gold Cup tuneup**\
 `Wholesale squad changes led to little cohesion and a disjointed result against the African power.`\
 https://nytimes.com/athletic/6417956/2025/06/10/canada-ivory-coast-friendly-draw-marsch/
