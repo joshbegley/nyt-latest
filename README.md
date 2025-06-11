@@ -1,40 +1,40 @@
-**The Athletic FC: World Cup 2026 - What you need to know with a year to go**\
-`Today in TAFC: Your ultimate guide to the World Cup with exactly a year to go. Who has qualified? What now for USMNT after latest loss? `\
-https://nytimes.com/athletic/6418290/2025/06/11/world-cup-2026-usmnt-pochettino/
+**U.S. Open 2025: What to know about Oakmont’s top contenders**\
+`Will one of pro golf’s powerhouse names add to his major championship collection? Or will Oakmont reveal a new, ascending star?`\
+https://nytimes.com/athletic/6417343/2025/06/11/us-open-2025-top-contenders/
 
-**South Korea Turns Off Speakers Blasting K-Pop Into North Korea**\
-`Lee Jae-myung, the new president of South Korea, said he would stop the propaganda broadcasts by his predecessor that raised tensions with Seoul’s neighboring foe.`\
-https://nytimes.com/2025/06/11/world/asia/korea-speakers-propaganda.html
+**Mirtle mailbag: No, the Maple Leafs should not (and cannot) run it back**\
+`It's time for Toronto to acknowledge that mild success isn't good enough after nearly a decade of trying. It's time for a new look.`\
+https://nytimes.com/athletic/6415224/2025/06/11/maple-leafs-offseason-mitch-marner-mailbag/
 
-**China Walks a Line in U.S. Trade Talks, Trying Not to Overplay Its Hand**\
-`China has leverage it can use by limiting access to its rare earth supplies, but it does not want to sacrifice its reputation as a reliable supplier.`\
-https://nytimes.com/2025/06/11/business/china-rare-earths.html
+**Welcome to America, the ATM of world soccer**\
+`The Club World Cup is only one of several big soccer events coming to the U.S., as the sport caters to a big-spending American fan base.`\
+https://nytimes.com/athletic/6416341/2025/06/11/club-world-cup-atm-soccer/
 
-**The Pulse: The NFL’s most expensive backup QB**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6417908/2025/06/11/the-nfls-most-expensive-backup-qb-plus-usmnts-nightmare/
+**Waiting his turn: What Clarke Schmidt does behind the scenes each day between starts**\
+`Fans only see what the Yankees pitcher does when he takes the mound. He gives The Athletic a window into his other four days of work.`\
+https://nytimes.com/athletic/6410847/2025/06/11/clarke-schmidt-yankees-starting-routine/
 
-**QB Caleb Williams joins mostly rookies on field as Bears wrap up OTAs**\
-`The Bears finish up their offseason training program this week, and it's mostly rookies, but Williams made sure to attend.`\
-https://nytimes.com/athletic/6417180/2025/06/11/chicago-bears-caleb-williams-minicamp/
+**Broncos' O-line was one of NFL's best last season. Can it be better in 2025?**\
+`The Broncos are returning all five starters from an offensive line that ranked first in ESPN's pass-block and run-block metrics last season.`\
+https://nytimes.com/athletic/6417540/2025/06/11/broncos-offensive-line-2025-meinerz-bolles/
 
-**Ex-F1 team boss Steiner eying MotoGP team CEO role, confirms investment talks**\
-`"(MotoGP is) a sport which has got a lot of potential to grow because the sport is fabulous," Steiner said in an interview with The Athletic`\
-https://nytimes.com/athletic/6416547/2025/06/11/guenther-steiner-motogp-f1/
+**2025 NHL Staff Mock Draft 2.0: Schaefer goes No. 1, but where do the rest land?**\
+`Just over two weeks from draft day, we reconvened our staff of NHL reporters to make selections for the entire first round.`\
+https://nytimes.com/athletic/6406848/2025/06/11/nhl-mock-draft-2025-staff/
 
-**How is OKC slowing down Tyrese Haliburton? Lu Dort and his defensive ‘bag’**\
-`The Pacers' All-Star guard has struggled to find a regular rhythm in this series, and Dort has been one major reason why.`\
-https://nytimes.com/athletic/6416643/2025/06/11/lu-dort-thunder-tyrese-haliburton-pacers-nba-finals/
+**Why these 4 NHL teams could lose good players because of salary cap crunches**\
+`Even with the NHL salary cap rising, several teams are in for an interesting offseason with cap crunches likely to force roster surgery.`\
+https://nytimes.com/athletic/6400692/2025/06/11/nhl-salary-cap-crunches-2025/
 
-**MLB players talk biggest misconceptions about playing in the majors in anonymous poll**\
-`We asked more than 130 MLB players: What is the biggest misconception about the lifestyle of a baseball player?`\
-https://nytimes.com/athletic/6398324/2025/06/11/mlb-player-poll-2025t-misconceptions/
+**How the Orioles could approach the trade deadline, plus more MLB notes**\
+`Plus the Tigers' need for another right-handed bat, the Rockies' trade chips and more from around the league.`\
+https://nytimes.com/athletic/6417797/2025/06/11/baltimore-orioles-trade-deadline-mlb-notes/
 
-**MLB players on the impact of sports betting on fan interactions: 'People suck, dude"**\
-`We asked more than 130 MLB players: Has legalized sports betting changed how fans treat you or your teammates? The result was a landslide. `\
-https://nytimes.com/athletic/6385628/2025/06/11/mlb-sports-betting-gambling-player-poll/
+**Who says no to these NHL trades (involving things that cannot actually be traded)?**\
+`There are strict limits on what can be traded between teams in the modern NHL. But what if there weren't? Fans pitch unorthodox swaps.`\
+https://nytimes.com/athletic/6414526/2025/06/11/nhl-trade-proposals-what-ifs-nos/
 
-**Robo-umps might be coming to MLB. Are players for or against them?**\
-`The robo-umps are coming, and the players have some thoughts — and concerns.`\
-https://nytimes.com/athletic/6406613/2025/06/11/robo-umpires-mlb-2025-player-poll/
+**The Protests Spread**\
+`We have the latest on the immigration protests.`\
+https://nytimes.com/2025/06/11/briefing/the-protests-spread.html
 
