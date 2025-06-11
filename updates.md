@@ -1,3 +1,15 @@
+**Trump Is Pushing Allies Away and Closer into Each Other’s Arms**\
+`Important U.S. allies are trying to bolster their ties as the Trump administration shifts priorities and reshapes the world order.`\
+https://nytimes.com/2025/06/11/world/canada/g7-trump-us-allies-world-order.html
+
+**Fulbright Board Resigns After Accusing Trump Aides of Political Interference**\
+`The board of the prestigious program told the State Department it had no right to cancel scholarships for nearly 200 American professors and researchers.`\
+https://nytimes.com/2025/06/11/us/politics/fulbright-board-resign-trump.html
+
+**The launch of NIL Go signals a high-stakes evolution in college sports: MoneyCall**\
+`A hectic past week in college sports hits its next phase with the launch of a persnickety new tool to track athlete NIL deals. Will it work?`\
+https://nytimes.com/athletic/6418924/2025/06/11/nil-go-deloitte-bryan-seeley-college-sports-commission-moneycall/
+
 **WTA Tour introduces women's tennis ranking protection for fertility treatment**\
 `Sloane Stephens, 2017 U.S. Open champion, called for the measure last year after undergoing egg freezing.`\
 https://nytimes.com/athletic/6418822/2025/06/11/tennis-wta-tour-rankings-protection-fertility-treatment/
