@@ -1,3 +1,7 @@
+**England midfielder Gomes reaches agreement in principle to join Marseille**\
+`Gomes' contract was set to expire this summer, after he signed a five-year deal upon joining Lille in 2020. `\
+https://nytimes.com/athletic/6301796/2025/06/11/angel-gomes-marseille-transfer/
+
 **Judge Bars Trump Administration From Detaining Mahmoud Khalil**\
 `Mr. Khalil, a legal permanent resident, has been held in Louisiana for more than three months. The judge said he would be released on Friday unless the government successfully appeals.`\
 https://nytimes.com/2025/06/11/nyregion/mahmoud-khalil-release-order.html

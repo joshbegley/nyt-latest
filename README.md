@@ -1,3 +1,11 @@
+**The next Travis Hunter? Not quite, but Packers are working Bo Melton at WR and CB**\
+`The Packers' fourth-year wide receiver surprised teammates when he practiced at cornerback during mandatory minicamp this week.`\
+https://nytimes.com/athletic/6419682/2025/06/11/the-next-travis-hunter-not-quite-but-packers-are-working-bo-melton-at-wr-and-cb/
+
+**Israel Says It Recovered the Remains of Two Hostages in Gaza**\
+`Yair Yaakov was kidnapped by Islamic Jihad in the Oct. 7, 2023, attacks on Israel, Prime Minister Benjamin Netanyahu said. The other hostage will be named later, the Israeli military said.`\
+https://nytimes.com/2025/06/11/world/middleeast/israel-hostages-remains-gaza.html
+
 **England midfielder Gomes reaches agreement in principle to join Marseille**\
 `Gomes' contract was set to expire this summer, after he signed a five-year deal upon joining Lille in 2020. `\
 https://nytimes.com/athletic/6301796/2025/06/11/angel-gomes-marseille-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/briefing/us-china-deal-la-protest.html
 **Ajax leading race to sign Liverpool goalkeeper Jaros on loan**\
 `The Premier League champions are allowing the 23-year-old to leave this summer after he made just two appearances last season.`\
 https://nytimes.com/athletic/6419574/2025/06/11/liverpool-transfer-news-jaros-ajax/
-
-**U.S. Argues Against Any Court Order Restricting Use of Troops in L.A.**\
-`The filing by the Justice Department came ahead of a hearing scheduled for Thursday afternoon in Federal District Court.`\
-https://nytimes.com/2025/06/11/us/trump-newsom-troops-la-protests-california.html
-
-**The Silliest Display of Wealth in ‘Mountainhead’**\
-`It’s called a turbot pot — turbotière, if you’re fancy — and it’s almost certainly not in stock.`\
-https://nytimes.com/2025/06/11/style/mountainhead-wealth-turbot-pot.html
 
