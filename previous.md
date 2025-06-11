@@ -1,3 +1,11 @@
+**With Trump’s Help, Jack Ciattarelli Wins G.O.P. Nomination for Governor**\
+`Mr. Ciattarelli, a former state assemblyman, is running his third campaign for governor of New Jersey.`\
+https://nytimes.com/2025/06/10/nyregion/nj-governor-republican-winner-jack-ciattarelli.html
+
+**MLB's No. 1 prospect, Roman Anthony, collects first hit, a two-run double**\
+`The two-run double gave the Red Sox an early lead over the visiting Rays. `\
+https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
+
 **Trump Says Army Bases Will Revert to Confederate Names**\
 `The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
 https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6417587/2025/06/10/bengals-shemar-stewart-contract-
 **Alexander Brothers Accused of Sex Crimes Against Another Woman**\
 `Oren and Tal Alexander, the luxury real estate brokers, as well Oren’s twin Alon Alexander, are now charged with sex crimes against seven women.`\
 https://nytimes.com/2025/06/10/realestate/alexander-brothers-more-charges-sex-crimes.html
-
-**Yosemite Bans Large Flags From El Capitan, Criminalizing Protests**\
-`Violators could face up to six months in jail under the new rule, which appears to have been formalized last month.`\
-https://nytimes.com/2025/06/10/us/yosemite-flags-banned-el-capitan.html
-
-**How Many People Have Been Arrested Since the L.A. Protests Began?**\
-`Officers have arrested hundreds nationwide during protests against immigration raids. The demonstrations have remained largely peaceful, though some people have been injured.`\
-https://nytimes.com/2025/06/10/us/la-protest-arrests-immigration.html
 

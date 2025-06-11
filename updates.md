@@ -1,3 +1,11 @@
+**With Trump’s Help, Jack Ciattarelli Wins G.O.P. Nomination for Governor**\
+`Mr. Ciattarelli, a former state assemblyman, is running his third campaign for governor of New Jersey.`\
+https://nytimes.com/2025/06/10/nyregion/nj-governor-republican-winner-jack-ciattarelli.html
+
+**MLB's No. 1 prospect, Roman Anthony, collects first hit, a two-run double**\
+`The two-run double gave the Red Sox an early lead over the visiting Rays. `\
+https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
+
 **U.S. and China Agree to Walk Back Trade Tensions**\
 `Negotiators said the two governments would stick to a previous truce and reduce tensions that had escalated in recent weeks between the world’s largest economies.`\
 https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html

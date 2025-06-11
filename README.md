@@ -1,9 +1,13 @@
+**The Tough Choice Facing Trump in the Iran Nuclear Talks**\
+`The president now confronts the reality that stopping Iran’s drive toward a bomb may require letting it continue to make some nuclear fuel.`\
+https://nytimes.com/2025/06/10/us/politics/trump-iran-nuclear-talks.html
+
 **With Trump’s Help, Jack Ciattarelli Wins G.O.P. Nomination for Governor**\
 `Mr. Ciattarelli, a former state assemblyman, is running his third campaign for governor of New Jersey.`\
 https://nytimes.com/2025/06/10/nyregion/nj-governor-republican-winner-jack-ciattarelli.html
 
 **MLB's No. 1 prospect, Roman Anthony, collects first hit, a two-run double**\
-`The two-run double gave the Red Sox an early lead over the visiting Rays. `\
+`The two-run double gave the Red Sox an early lead over the visiting Rays.`\
 https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
 
 **Trump Says Army Bases Will Revert to Confederate Names**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417252/2025/06/10/colts-owners-jim-irsay-chris-bal
 **Bengals' pattern of player treatment festers with Shemar Stewart saga: Dehner Jr.**\
 `Whether in communication or contracts, Bengals players are too often treated like numbers and assets more than faces and families.`\
 https://nytimes.com/athletic/6417587/2025/06/10/bengals-shemar-stewart-contract-dispute/
-
-**Alexander Brothers Accused of Sex Crimes Against Another Woman**\
-`Oren and Tal Alexander, the luxury real estate brokers, as well Oren’s twin Alon Alexander, are now charged with sex crimes against seven women.`\
-https://nytimes.com/2025/06/10/realestate/alexander-brothers-more-charges-sex-crimes.html
 
