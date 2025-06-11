@@ -1,3 +1,7 @@
+**Russian Drone Barrage Kills 3 in Ukraine’s Second-Largest City**\
+`The assault continued Moscow’s stepped-up drone and missile attacks, which have been ratcheting up for months with nightly bombardments on regions and cities in Ukraine.`\
+https://nytimes.com/2025/06/11/world/europe/russia-ukraine-drones-attack-kharkiv.html
+
 **Seven takeaways from Eagles minicamp: Offense remains a force, Tyler Steen a front-runner, and more**\
 `Plus, Jihaad Campbell puts on a helmet for individual drills.`\
 https://nytimes.com/athletic/6417475/2025/06/11/eagles-minicamp-jalen-hurts-tyler-steen/

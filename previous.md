@@ -1,3 +1,7 @@
+**Russian Drone Barrage Kills 3 in Ukraine’s Second-Largest City**\
+`The assault continued Moscow’s stepped-up drone and missile attacks, which have been ratcheting up for months with nightly bombardments on regions and cities in Ukraine.`\
+https://nytimes.com/2025/06/11/world/europe/russia-ukraine-drones-attack-kharkiv.html
+
 **Seven takeaways from Eagles minicamp: Offense remains a force, Tyler Steen a front-runner, and more**\
 `Plus, Jihaad Campbell puts on a helmet for individual drills.`\
 https://nytimes.com/athletic/6417475/2025/06/11/eagles-minicamp-jalen-hurts-tyler-steen/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/11/travel/europe-affordable-hotels.html
 **Tourists on the Tram? Roosevelt Islanders Are Fed Up.**\
 `Social media attention has brought sightseers to the tram, creating long waits for residents who take the tram to and from home.`\
 https://nytimes.com/2025/06/11/nyregion/tram-roosevelt-island-tourists.html
-
-**It’s Code Red for Vaccines**\
-`How to make sense of all the vaccine policy changes.`\
-https://nytimes.com/2025/06/11/opinion/rfk-vaccine-policy-changes.html
 
