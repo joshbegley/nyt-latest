@@ -1,3 +1,7 @@
+**Brian Wilson: 12 Essential Songs**\
+`The Beach Boys leader, who died on Wednesday, was a brilliant writer, arranger and producer whose ambitions propelled his band — and contemporaries like the Beatles — into the future.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-beach-boys-songs.html
+
 **Leverkusen considering move for Liverpool's Quansah**\
 `The Premier League side value their 22-year-old defender at £40million.`\
 https://nytimes.com/athletic/6419344/2025/06/11/jarell-quansah-transfer-bayer-leverkusen-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/science/space/strawberry-moon-full-june.html
 **Why California Says Trump’s Military Deployment Is Illegal**\
 `California has sued the Trump administration over its move to deploy troops to Los Angeles. Eric Schmitt, a national security correspondent for The New York Times, explains the laws governing the use of American troops on U.S. soil.`\
 https://nytimes.com/video/us/politics/100000010218788/why-california-says-trumps-military-deployment-is-illegal.html
-
-**Brian Wilson, Pop Auteur and Leader of the Beach Boys, Dies at 82**\
-`A hitmaker elevated and burdened by the label of genius, he transcended the breezy surf genre to create complex harmonies and intricate soundscapes in the studio.`\
-https://nytimes.com/2025/06/11/arts/music/brian-wilson-dead.html
 
