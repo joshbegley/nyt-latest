@@ -1,3 +1,7 @@
+**Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
+`Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
+https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
+
 **NHL rumblings: Latest on Kreider, Marchand, Tavares, Pettersson, more as the summer market heats up**\
 `With a few days off in the Stanley Cup Final, we also check in on the Blackhawks, Kings, Hurricanes, Jonathan Toews watch and more.`\
 https://nytimes.com/athletic/6420007/2025/06/11/nhl-trades-free-agency-kreider-marchand-tavares/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/06/11/us/politics/trump-lawsuits-lawyers.html
 https://nytimes.com/2025/06/11/us/politics/trump-domestic-military-expansion.html
 
 **Yankees’ Marcus Stroman walks back starter-only stance: ‘Open to anything’**\
-`"I'm a starter," Stroman said back in February. "I won’t pitch in the bullpen."`\
+`"I'm a starter," Stroman said in February. "I won’t pitch in the bullpen."`\
 https://nytimes.com/athletic/6420010/2025/06/11/new-york-yankees-marcus-stroman-stance/
 
 **Phillies' Jesús Luzardo rebounds after making changes to address potential tipping**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419812/2025/06/11/raiders-minicamp-jeremy-chinn-is
 **Betsy Jochum, 104, Dies; Last Original Member of Women’s Baseball League**\
 `Playing in the All-American Girls Professional Baseball League, which inspired the film “A League of Their Own,” she won a batting title and stole 127 bases in 1944.`\
 https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
-
-**What is the role of the National Guard troops in L.A.?**\
-`By Eric Schmitt, Emily Cochrane and J. David Goodman`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/what-is-the-role-of-the-national-guard-troops-in-la
 
