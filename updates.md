@@ -1,3 +1,8 @@
+**Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
+`The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
+`\
+https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
+
 **Jimmy Kimmel Calls Trump an ‘Arsonist With a Hose’**\
 `The L.A.-based host said the city’s problem was the president, not the protests: “We have more so-called ‘unrest’ here when one of our teams wins a championship.”`\
 https://nytimes.com/2025/06/11/arts/television/jimmy-kimmel-los-angeles-protests.html
