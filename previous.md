@@ -1,3 +1,15 @@
+**Brian Wilson: A Life in Pictures**\
+`The Beach Boys leader was one of pop music’s most acclaimed visionaries, whose creative success was tempered by personal battles.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html
+
+**Kennedy Announces Eight New Members of C.D.C. Vaccine Advisory Panel**\
+`The appointments of at least two of the experts are likely to draw an uproar from pro-vaccine groups for their criticism of federal scientists and the Biden administration’s Covid vaccine policies.`\
+https://nytimes.com/2025/06/11/us/kennedy-cdc-vaccine-panel.html
+
+**Scheme to Take Torture Victim’s Crypto Went Back Months, Prosecutors Say**\
+`Two cryptocurrency investors met three times with the victim, a longtime friend, demanding his electronic devices and the passkey to an account worth millions of dollars.`\
+https://nytimes.com/2025/06/11/nyregion/cryptocurrency-investors-torture-arraignment.html
+
 **The next Travis Hunter? Not quite, but Packers are working Bo Melton at WR and CB**\
 `The Packers' fourth-year wide receiver surprised teammates when he practiced at cornerback during mandatory minicamp this week.`\
 https://nytimes.com/athletic/6419682/2025/06/11/the-next-travis-hunter-not-quite-but-packers-are-working-bo-melton-at-wr-and-cb/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/11/us/trump-news/kosovo-will-accept-up-to-50-de
 **U.S. group including Jimmy Butler expected to make offer for stake in Crystal Palace**\
 `The group is looking to purchase Eagle Football's 43 per cent stake in Palace, with an expected offer in excess of $200m.`\
 https://nytimes.com/athletic/6415443/2025/06/11/crystal-palace-takeover-textor-eagle-butler/
-
-**Jury Convicts Weinstein in Second New York Sex Crimes Trial**\
-`The conviction, on a charge of first-degree criminal sexual act, was handed down in a mixed verdict that acquitted Harvey Weinstein of a second count of the same crime.`\
-https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-retrial-verdict-jury.html
-
-**Thursday Briefing: A Look at the U.S.-China Trade Deal**\
-`Plus, is A.I. coming for your job?`\
-https://nytimes.com/2025/06/11/briefing/us-china-deal-la-protest.html
-
-**Ajax leading race to sign Liverpool goalkeeper Jaros on loan**\
-`The Premier League champions are allowing the 23-year-old to leave this summer after he made just two appearances last season.`\
-https://nytimes.com/athletic/6419574/2025/06/11/liverpool-transfer-news-jaros-ajax/
 

@@ -1,3 +1,7 @@
+**What Happens to Vaccines Now?**\
+`Robert F. Kennedy Jr.’s overhaul of an influential committee, including the appointment of new members, has created concern about vaccine access.`\
+https://nytimes.com/2025/06/11/well/vaccines-cdc-rfk-jr.html
+
 **Brian Wilson: A Life in Pictures**\
 `The Beach Boys leader was one of pop music’s most acclaimed visionaries, whose creative success was tempered by personal battles.`\
 https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/army-bases-trump-confederate.html
 **Kosovo will accept up to 50 deported migrants from America.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/06/11/us/trump-news/kosovo-will-accept-up-to-50-deported-migrants-from-america
-
-**U.S. group including Jimmy Butler expected to make offer for stake in Crystal Palace**\
-`The group is looking to purchase Eagle Football's 43 per cent stake in Palace, with an expected offer in excess of $200m.`\
-https://nytimes.com/athletic/6415443/2025/06/11/crystal-palace-takeover-textor-eagle-butler/
 

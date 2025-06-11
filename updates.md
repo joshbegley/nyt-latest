@@ -1,3 +1,15 @@
+**Brian Wilson: A Life in Pictures**\
+`The Beach Boys leader was one of pop music’s most acclaimed visionaries, whose creative success was tempered by personal battles.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-life-photos.html
+
+**Kennedy Announces Eight New Members of C.D.C. Vaccine Advisory Panel**\
+`The appointments of at least two of the experts are likely to draw an uproar from pro-vaccine groups for their criticism of federal scientists and the Biden administration’s Covid vaccine policies.`\
+https://nytimes.com/2025/06/11/us/kennedy-cdc-vaccine-panel.html
+
+**Scheme to Take Torture Victim’s Crypto Went Back Months, Prosecutors Say**\
+`Two cryptocurrency investors met three times with the victim, a longtime friend, demanding his electronic devices and the passkey to an account worth millions of dollars.`\
+https://nytimes.com/2025/06/11/nyregion/cryptocurrency-investors-torture-arraignment.html
+
 **The next Travis Hunter? Not quite, but Packers are working Bo Melton at WR and CB**\
 `The Packers' fourth-year wide receiver surprised teammates when he practiced at cornerback during mandatory minicamp this week.`\
 https://nytimes.com/athletic/6419682/2025/06/11/the-next-travis-hunter-not-quite-but-packers-are-working-bo-melton-at-wr-and-cb/
