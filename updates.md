@@ -1,3 +1,11 @@
+**Man Utd sign Emsden-James, 16, from Southampton**\
+`The defender has played for England at youth level and featured above his age group at Southampton.`\
+https://nytimes.com/athletic/6418961/2025/06/11/harley-emsden-james-man-utd-who/
+
+**Chelsea include Santos, Delap in Club World Cup squad**\
+`Chelsea kick off their campaign against Los Angeles FC at Mercedes-Benz Stadium in Atlanta on Monday.`\
+https://nytimes.com/athletic/6397708/2025/06/11/chelsea-club-world-cup-squad-confirmed/
+
 **Meet Our New Restaurant Critics**\
 `We asked how they read menus, stay fit, eat at home and celebrate with their families.`\
 https://nytimes.com/2025/06/11/dining/ligaya-mishan-tejal-rao-critics-interview.html
