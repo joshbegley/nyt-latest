@@ -1,3 +1,15 @@
+**Judge Bars Trump Administration From Detaining Mahmoud Khalil**\
+`Mr. Khalil, a legal permanent resident, has been held in Louisiana for more than three months. The judge said he would be released on Friday unless the government successfully appeals.`\
+https://nytimes.com/2025/06/11/nyregion/mahmoud-khalil-release-order.html
+
+**No, Not That Lee. Pentagon Finds Black Hero to Rechristen Base Long Named for Robert E.**\
+`The Army unveiled a list of seven installations that the Trump administration is reverting, sort of, to earlier names venerating Confederate heroes.`\
+https://nytimes.com/2025/06/11/us/politics/army-bases-trump-confederate.html
+
+**Kosovo will accept up to 50 deported migrants from America.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/06/11/us/trump-news/kosovo-will-accept-up-to-50-deported-migrants-from-america
+
 **U.S. group including Jimmy Butler expected to make offer for stake in Crystal Palace**\
 `The group is looking to purchase Eagle Football's 43 per cent stake in Palace, with an expected offer in excess of $200m.`\
 https://nytimes.com/athletic/6415443/2025/06/11/crystal-palace-takeover-textor-eagle-butler/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/11/style/mountainhead-wealth-turbot-pot.html
 **Will Benson wins Most Outstanding Player in Reds' series win over former squad**\
 `The Ohio Cup isn’t the only trophy awarded in the matchup between Cincinnati and Cleveland.`\
 https://nytimes.com/athletic/6419774/2025/06/11/will-benson-most-outstanding-player-ohio-cup/
-
-**How many people have been arrested since the L.A. protests began?**\
-`Officers have arrested hundreds nationwide, including in Dallas, New York City and Chicago, during protests against immigration raids.`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/la-protests-arrests-number
-
-**The Real Fertility Crisis? Financial Security, a U.N. Report Says.**\
-`Policymakers in many countries assume that birthrates have fallen because people want fewer children, but a global study says financial insecurity is driving those decisions.`\
-https://nytimes.com/2025/06/11/world/fertility-crisis-un-report.html
-
-**McConnell Tells Hegseth America’s Reputation Is at Stake in Ukraine War**\
-`A testy exchange between a senator who strongly supports Ukraine aid and the defense secretary revealed a deepening split among G.O.P. officials on the war.`\
-https://nytimes.com/2025/06/11/us/politics/hegseth-congress-defense.html
 
