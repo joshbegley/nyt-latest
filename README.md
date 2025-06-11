@@ -1,3 +1,7 @@
+**Thousands of Protesters March Through Downtown Chicago**\
+`The demonstrators carried signs denouncing federal immigration officials.`\
+https://nytimes.com/2025/06/10/us/chicago-protests-immigration.html
+
 **Bass Announces Downtown Curfew to Calm Protests**\
 `The curfew for a small section of downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
 https://nytimes.com/2025/06/10/us/la-curfew-protests-karen-bass-curfew.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
 **Trump Says Army Bases Will Revert to Confederate Names**\
 `The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
 https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
-
-**U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
-`Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the superpowers reached in Geneva last month.`\
-https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
 

@@ -1,3 +1,7 @@
+**Bass Announces Downtown Curfew to Calm Protests**\
+`The curfew for a small section of downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
+https://nytimes.com/2025/06/10/us/la-curfew-protests-karen-bass-curfew.html
+
 **U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
 `Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the superpowers reached in Geneva last month.`\
 https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html

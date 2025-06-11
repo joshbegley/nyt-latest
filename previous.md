@@ -1,3 +1,7 @@
+**Bass Announces Downtown Curfew to Calm Protests**\
+`The curfew for a small section of downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
+https://nytimes.com/2025/06/10/us/la-curfew-protests-karen-bass-curfew.html
+
 **Mikie Sherrill Wins the Democratic Primary for Governor of New Jersey**\
 `Ms. Sherrill, the only woman in a six-candidate race for the Democratic nomination, emphasized her service as a U.S. Navy helicopter pilot.`\
 https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.ht
 **U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
 `Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the superpowers reached in Geneva last month.`\
 https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
-
-**Mavericks believe Kidd will be coach next season, not join Knicks: Sources**\
-`According to a team source, the Knicks had yet to request permission to speak with Kidd as of Tuesday afternoon.`\
-https://nytimes.com/athletic/6417678/2025/06/10/jason-kidd-mavericks-knicks-head-coaching-job/
 
