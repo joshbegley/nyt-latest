@@ -6,6 +6,10 @@ https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
 `The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
 https://nytimes.com/2025/06/10/business/trump-tariffs-court.html
 
+**Yankees’ Stanton doesn’t rule out season debut for this weekend vs. Red Sox**\
+`Stanton finished 2-for-3 with three RBIs and a walk in his rehab game.`\
+https://nytimes.com/athletic/6417390/2025/06/10/yankees-giancarlo-stanton-return-red-sox/
+
 **Detention and Deportation As Seen Through a Family Group Chat**\
 `A Venezuelan man’s criminal past made him a target of immigration agents. His family was determined to stay in touch.`\
 https://nytimes.com/interactive/2025/06/10/us/politics/trump-immigrant-family-deportation-journey.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
 `The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
 https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
 
-**U.S. and China Agree to Stick to Prior Trade Truce as Tensions Escalate**\
-`Negotiators said the two governments would stick to a previous truce and reduce tensions that had escalated in recent weeks between the world’s largest economies.`\
+**U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
+`Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the countries reached in Geneva last month.`\
 https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
 
 **Mavericks believe Kidd will be coach next season, not join Knicks: Sources**\
 `According to a team source, the Knicks had yet to request permission to speak with Kidd as of Tuesday afternoon.`\
 https://nytimes.com/athletic/6417678/2025/06/10/jason-kidd-mavericks-knicks-head-coaching-job/
-
-**Challenging the Playbook: 5 Keys to Winning the A.I Game **\
-`5 Keys to Winning the A.I. Game: Microsoft executive Jessica Hawk and professional athlete Cam Jordan discuss how A.I. is transforming business`\
-https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook-5-keys-to-winning-the-ai-game.html
 
