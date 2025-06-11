@@ -1,3 +1,43 @@
+**Ehud Olmert on Israel’s Catastrophic War in Gaza**\
+`The former prime minister of Israel discusses why he believes Israel’s war in Gaza can no longer be justified.`\
+https://nytimes.com/2025/06/11/opinion/ezra-klein-podcast-ehud-olmert.html
+
+**Trump’s Pick to Lead the F.A.A. Faces Senate Grilling**\
+`The confirmation hearing for Bryan Bedford, a commercial airline executive, comes as the agency confronts critical staffing shortages and questions about passenger safety.`\
+https://nytimes.com/2025/06/11/us/politics/bryan-bedford-faa-senate.html
+
+**The Military May Find Itself in an Impossible Situation**\
+`Law and ethics can be at odds.`\
+https://nytimes.com/2025/06/11/opinion/military-deploy-trump-ethics.html
+
+**30 Delightful Hotels in Europe Under $300 a Night**\
+`We scoured the hotel scene in the heart of popular cities in search of stylish lodgings that won’t break the bank. Here’s the best of what we found.`\
+https://nytimes.com/interactive/2025/06/11/travel/europe-affordable-hotels.html
+
+**Tourists on the Tram? Roosevelt Islanders Are Fed Up.**\
+`Social media attention has brought sightseers to the tram, creating long waits for residents who take the tram to and from home.`\
+https://nytimes.com/2025/06/11/nyregion/tram-roosevelt-island-tourists.html
+
+**It’s Code Red for Vaccines**\
+`How to make sense of all the vaccine policy changes.`\
+https://nytimes.com/2025/06/11/opinion/rfk-vaccine-policy-changes.html
+
+**Mexican Flags Have Become Republican Fodder, but Protesters Keep Waving Them**\
+`Images of Los Angeles protesters waving Mexican flags have gone viral in conservative circles this week. Many protesters say they are aware of the political reaction but won’t put their flags away.`\
+https://nytimes.com/2025/06/11/us/mexican-flags-have-become-republican-fodder-but-protesters-keep-waving-them.html
+
+**Star WR Davante Adams praises new Rams teammates, QB Matthew Stafford and coach McVay**\
+`Davante Adams says L.A. is right for him. "I feel like this is what I needed just based off the vibe and the aura of the building."`\
+https://nytimes.com/athletic/6417314/2025/06/11/rams-davante-adams-matthew-stafford-connection/
+
+**The Thrilling Evidence of Jane Austen’s Imagination**\
+`Spirited (and gossipy) letters and manuscripts at the Morgan Library and Museum puncture myths about the writer’s rise to literary fame.`\
+https://nytimes.com/2025/06/11/arts/design/jane-austen-show-morgan-library.html
+
+**Tom Hiddleston Dances Up a Storm: ‘I Just Wanted It to Fly’**\
+`In “The Life of Chuck,” the actor known for spontaneous eruptions of joyful movement, lets loose with a feast of footwork.`\
+https://nytimes.com/2025/06/11/movies/tom-hiddleston-dance-life-of-chuck.html
+
 **Texas Governor Will Deploy National Guard to Immigration Protests**\
 `Gov. Greg Abbott, a staunch supporter of President Trump’s immigration agenda, is the first governor to call on the National Guard as protests spread to multiple cities.`\
 https://nytimes.com/2025/06/11/us/national-guard-texas-deploy-abbott.html
