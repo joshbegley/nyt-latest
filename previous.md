@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
 https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
 
 **U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
-`Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the countries reached in Geneva last month.`\
+`Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the superpowers reached in Geneva last month.`\
 https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
 
 **Mavericks believe Kidd will be coach next season, not join Knicks: Sources**\

@@ -1,3 +1,7 @@
+**U.S. and China Agree to Stick to Prior Trade Truce After Tensions Escalated**\
+`Two days of talks resulted in a “framework” that is intended to solidify terms of a deal the superpowers reached in Geneva last month.`\
+https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
+
 **Mikie Sherrill Wins the Democratic Primary for Governor of New Jersey**\
 `Ms. Sherrill, the only woman in a six-candidate race for the Democratic nomination, emphasized her service as a U.S. Navy helicopter pilot.`\
 https://nytimes.com/2025/06/10/nyregion/nj-democratic-governor.html
