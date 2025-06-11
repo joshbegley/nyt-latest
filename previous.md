@@ -1,3 +1,7 @@
+**Did Bob Dylan Help Announce an Album From MGK?**\
+`The pop-punk star’s trailer for “Lost Americana” features a familiar voice narrating about a “quest to reclaim the authentic essence of American freedom.”`\
+https://nytimes.com/2025/06/11/arts/music/bob-dylan-mgk-machine-gun-kelly.html
+
 **Why the case against Weinstein was relatively narrow.**\
 `By Jan Ransom`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/why-the-case-against-weinstein-was-relatively-narrow
@@ -18,7 +22,7 @@ https://nytimes.com/2025/06/11/world/europe/syria-peace-committee-assad.html
 `By Hurubie Meko`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jurors-weighed-weinsteins-fate-in-a-changed-climate
 
-**New Penguins coach Dan Muse won’t win on words alone, but he's off to a good start**\
+**Yohe: New Penguins coach Dan Muse won’t win on words alone, but he's off to a good start**\
 `Muse's honesty, which was on display Wednesday, will serve him well moving forward. `\
 https://nytimes.com/athletic/6419330/2025/06/11/penguins-coach-dan-muse-intro/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/opinion/budget-trump.html
 **5 Months Into Office, No Trump Talk for San Francisco Mayor**\
 `Mayor Daniel Lurie says that he is focused on quality of life issues, not politics, as President Trump targets California in various ways.`\
 https://nytimes.com/2025/06/11/us/san-francisco-mayor-trump-protests.html
-
-**Trumps to Attend ‘Les Misérables’ at Kennedy Center**\
-`The president and first lady are scheduled to attend the opening night of the musical, one of his favorites, after he seized control of the cultural institution.`\
-https://nytimes.com/2025/06/11/us/politics/trump-les-miserables-kennedy-center.html
 
