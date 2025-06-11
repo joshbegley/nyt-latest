@@ -1,3 +1,19 @@
+**New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
+`If a handshake agreement holds, it would merely undo some of the damage from the trade war that President Trump started.`\
+https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html
+
+**In Trump’s Washington, ‘You Don’t Leave Home Without Your Lawyer’**\
+`There’s a lot of work for lawyers in the nation’s capital these days: Over 400 lawsuits have been filed against President Trump’s administration since the start of his second term.`\
+https://nytimes.com/2025/06/11/us/politics/trump-lawsuits-lawyers.html
+
+**Suggesting More Troops in More Cities, Trump Bends Military’s Role**\
+`President Trump has expanded domestic use of the armed forces, testing the limits on involving troops at protests and the border.`\
+https://nytimes.com/2025/06/11/us/politics/trump-domestic-military-expansion.html
+
+**Yankees’ Marcus Stroman walks back starter-only stance: ‘Open to anything’**\
+`"I'm a starter," Stroman said back in February. "I won’t pitch in the bullpen."`\
+https://nytimes.com/athletic/6420010/2025/06/11/new-york-yankees-marcus-stroman-stance/
+
 **Phillies' Jesús Luzardo rebounds after making changes to address potential tipping**\
 `"There's a lot of things that we tinkered with," Luzardo said. "The biggest thing was attention to detail."`\
 https://nytimes.com/athletic/6419944/2025/06/11/jesus-luzardo-tipping-phillies-cubs-win/

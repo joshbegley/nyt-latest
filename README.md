@@ -1,3 +1,7 @@
+**NHL rumblings: Latest on Kreider, Marchand, Tavares, Pettersson, more as the summer market heats up**\
+`With a few days off in the Stanley Cup Final, we also check in on the Blackhawks, Kings, Hurricanes, Jonathan Toews watch and more.`\
+https://nytimes.com/athletic/6420007/2025/06/11/nhl-trades-free-agency-kreider-marchand-tavares/
+
 **New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
 `If a handshake agreement holds, it would merely undo some of the damage from the trade war that President Trump started.`\
 https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
 **What is the role of the National Guard troops in L.A.?**\
 `By Eric Schmitt, Emily Cochrane and J. David Goodman`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/what-is-the-role-of-the-national-guard-troops-in-la
-
-**Carwashes become easy targets in California’s ICE raids.**\
-`By Emily Baumgaertner Nunn and Anushka Patil`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/carwashes-become-easy-targets-in-californias-ice-raids
 
