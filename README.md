@@ -1,3 +1,7 @@
+**Mauricio Pochettino: Blame me for USMNT hammering by Switzerland**\
+`The head coach accepted culpability for a demoralizing defeat in Nashville.`\
+https://nytimes.com/athletic/6417912/2025/06/10/mauricio-pochettino-usmnt-failure-switzerland/
+
 **John L. Young, 89, Dies; Pioneered Posting Classified Documents Online**\
 `His site, Cryptome, was a precursor to WikiLeaks, and in some ways bolder in its no-holds-barred approach to exposing government secrets.`\
 https://nytimes.com/2025/06/10/us/john-l-young-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/newsom-speech-trump-la-protests.html
 **Chargers minicamp observations: Rashawn Slater arrives, Derwin James Jr. flashes**\
 `Slater sat out the Chargers' OTA practices as he awaits a contract extension but was a full participant for mandatory minicamp. `\
 https://nytimes.com/athletic/6417859/2025/06/10/chargers-minicamp-rashawn-slater-derwin-james/
-
-**Bridge Support**\
-`Sam Koperwas and Jeff Chen go splitsies.`\
-https://nytimes.com/2025/06/10/crosswords/daily-puzzle-2025-06-11.html
 
