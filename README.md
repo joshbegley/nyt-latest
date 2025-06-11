@@ -1,3 +1,15 @@
+**DAZN will broadcast the Club World Cup around the world. What is the streamer's big idea?**\
+`DAZN is the global rights holder for the upcoming Club World Cup and is planning to use it to expand its reach`\
+https://nytimes.com/athletic/6404831/2025/06/11/dazn-club-world-cup-billion/
+
+**Guardiola offers a timely lesson in how football managers can tackle big issues**\
+`The Manchester City manager's comments on the crisis in Gaza showed how coaches can engage in the wider world`\
+https://nytimes.com/athletic/6407926/2025/06/11/pep-guardiola-offers-a-timely-lesson-in-how-football-managers-can-tackle-politics/
+
+**Complex, emotionally demanding but hugely impactful - the delicate task of being a backup 'keeper**\
+`What is it really like being a reserve goalkeeper? The role might not be all that visible but it can be hugely impactful`\
+https://nytimes.com/athletic/6415505/2025/06/11/kepa-arrizabalaga-arsenal-backup-keeper/
+
 **Under Pressure From the White House, ICE Seeks New Ways to Ramp Up Arrests**\
 `Former officials said the Trump administration’s push for the agency to detain record numbers of undocumented immigrants increases the chances of mistakes.`\
 https://nytimes.com/2025/06/11/us/politics/ice-la-protest-arrests.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/10/us/national-guard-ice-raids-los-angeles.html
 **With winning hit, Jeff McNeil keeps showing off new offensive identity**\
 `McNeil's 10th-inning single lifted New York to a 5-4 come-from-behind walk-off win over the Washington Nationals.`\
 https://nytimes.com/athletic/6418026/2025/06/10/jeff-mcneil-mets-walk-off-win-nationals/
-
-**Canada rotates, offers little in Ivory Coast draw in last Gold Cup tuneup**\
-`Wholesale squad changes led to little cohesion and a disjointed result against the African power.`\
-https://nytimes.com/athletic/6417956/2025/06/10/canada-ivory-coast-friendly-draw-marsch/
-
-**Party Politics Is Said to Have Played a Role in Kennedy’s Firing of Vaccine Advisers**\
-`The health secretary cited financial conflicts, but a White House official and someone familiar with his thinking said he was also concerned about ties to Democrats.`\
-https://nytimes.com/2025/06/10/us/politics/kennedy-politics-vaccine-advisers-dismissal.html
-
-**Mauricio Pochettino after USMNT's hammering by Switzerland: 'I’m the guilty one here.'**\
-`Pochettino admitted that his starting lineup was exposed and suffered its fourth straight defeat against a more seasoned European opponent.`\
-https://nytimes.com/athletic/6417912/2025/06/10/mauricio-pochettino-usmnt-failure-switzerland/
 
