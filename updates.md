@@ -1,3 +1,7 @@
+**Texas Governor Will Deploy National Guard to Immigration Protests**\
+`Gov. Greg Abbott, a staunch supporter of President Trump’s immigration agenda, is the first governor to call on the National Guard as protests spread to multiple cities.`\
+https://nytimes.com/2025/06/11/us/national-guard-texas-deploy-abbott.html
+
 **Transfers TLDR: Tijjani Reijnders to Manchester City – all you need to know**\
 `Manchester City have signed Tijjani Reijnders from Milan - here's all you need to know about the transfer`\
 https://nytimes.com/athletic/6402007/2025/06/11/tijjani-reijnders-man-city-transfers-analysis/
