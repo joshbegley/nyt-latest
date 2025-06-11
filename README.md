@@ -1,3 +1,7 @@
+**Rockets, Timberwolves, Mavericks deny Knicks' asks to talk to coaches**\
+`New York requested permission to talk to Ime Udoka, Chris Finch and Jason Kidd, league sources said.`\
+https://nytimes.com/athletic/6418962/2025/06/11/knicks-coaching-search-rockets-timberwolves-mavericks/
+
 **Trump Wants the Military to Be More Like Trump**\
 `Donald Trump’s Fort Bragg speech was the latest in a string of high-profile efforts to reshape the military more in his own likeness.`\
 https://nytimes.com/2025/06/11/opinion/trump-wants-the-military-to-be-more-like-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/well/fall-prevention-tips.html
 **One year from a home World Cup, USMNT with fanfare has fear of being a flop**\
 `Instead of hitting its stride at the perfect moment, the potential-filled USMNT is wobbling toward the World Cup it's cohosting`\
 https://nytimes.com/athletic/6417981/2025/06/11/usmnt-2026-world-cup-one-year-out-expectations-pochettino/
-
-**Who is Evelyn Shores? The USWNT youth player winning NCAA titles and scoring $1 million goals**\
-`Shores is still undecided about whether she’ll pursue a professional career in the U.S. or abroad, but it's clear she has options now.`\
-https://nytimes.com/athletic/6418707/2025/06/11/uswnt-unc-evelyn-shores-soccer-goals/
 
