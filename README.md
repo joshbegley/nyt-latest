@@ -1,3 +1,19 @@
+**Ait-Nouri, Reijnders in Man City's Club World Cup squad but no Grealish**\
+`The pair both joined City before Tuesday's deadline to register new additions for the competition.`\
+https://nytimes.com/athletic/6397749/2025/06/11/man-city-club-world-cup-squad-confirmed/
+
+**Richard Beattie, Who Helped Pioneer Private Equity Takeovers, Dies at 86**\
+`A top Wall Street lawyer, he worked on some of the biggest corporate mergers in history, including KKR’s takeover of Nabisco in 1989. He also served in the Carter administration and in city government.`\
+https://nytimes.com/2025/06/11/business/dealbook/richard-beattie-dead.html
+
+**Rare Changing of the Guard at Oakmont, as U.S. Open Returns**\
+`Devin Gee, who look over from the longtime club pro, Bob Ford, a few years ago, is working his first Open as pro.`\
+https://nytimes.com/2025/06/11/sports/golf/oakmont-us-open-club-pro.html
+
+**In 1983, Larry Nelson Conquered Oakmont**\
+`He won the U.S. Open on the course where this year’s tournament is being held.`\
+https://nytimes.com/2025/06/11/sports/golf/us-open-larry-nelson-oakmont.html
+
 **Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
 `New head coach Xabi Alonso has provided few surprises but many academy players in his squad for the tournament.`\
 https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/11/dining/ligaya-mishan-tejal-rao-critics-interview.
 **Rockets, Timberwolves, Mavericks deny Knicks' asks to talk to coaches**\
 `New York requested permission to talk to Ime Udoka, Chris Finch and Jason Kidd, league sources said.`\
 https://nytimes.com/athletic/6418962/2025/06/11/knicks-coaching-search-rockets-timberwolves-mavericks/
-
-**Trump Wants the Military to Be More Like Trump**\
-`Donald Trump’s Fort Bragg speech was the latest in a string of high-profile efforts to reshape the military more in his own likeness.`\
-https://nytimes.com/2025/06/11/opinion/trump-wants-the-military-to-be-more-like-trump.html
-
-**Poland’s Prime Minister Wins Confidence Vote in Parliament**\
-`Donald Tusk called the vote to seek endorsement of his government after a political opponent won the presidency.`\
-https://nytimes.com/2025/06/11/world/europe/poland-confidence-vote-tusk.html
-
-**Colorado Avalanche's Cale Makar wins second Norris Trophy as top NHL defenseman**\
-`Makar bested Quinn Hughes of the Vancouver Canucks and the Columbus Blue Jackets’ Zach Werenski in a vote by select hockey writers.`\
-https://nytimes.com/athletic/6399730/2025/06/11/cale-makar-norris-trophy-nhl-defenseman-avalanche/
-
-**What Happens if ‘Harvard Is Not Harvard’?**\
-`If President Trump makes good on all his threats, Harvard may lose much of its influence and prestige. It could also become even harder to afford.`\
-https://nytimes.com/2025/06/11/us/harvard-funding-trump-administration.html
 

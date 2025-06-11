@@ -1,3 +1,7 @@
+**Poland’s Prime Minister Wins Confidence Vote in Parliament**\
+`Donald Tusk called the vote to seek endorsement of his government after a political opponent won the presidency.`\
+https://nytimes.com/2025/06/11/world/europe/poland-confidence-vote-tusk.html
+
 **Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
 `New head coach Xabi Alonso has provided few surprises but many academy players in his squad for the tournament.`\
 https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
