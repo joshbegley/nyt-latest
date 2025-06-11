@@ -1,3 +1,11 @@
+**Tracking Tropical Depression Wutip**\
+`See the likely path and wind arrival times for Wutip.`\
+https://nytimes.com/interactive/2025/06/11/weather/wutip-map-path-tracker.html
+
+**Scottie Scheffler says he deleted Venmo account due to bettors' requests**\
+`Scheffler enters this week's U.S. Open as the heavy favorite, but he told reporters he doesn't "pay attention to the favorite stuff."`\
+https://nytimes.com/athletic/6418635/2025/06/11/scottie-scheffler-venmo-requests-us-open/
+
 **Chargers' Jim Harbaugh had hip replacement, heart procedure in offseason**\
 `Harbaugh's health update comes after he exited a Week 6 game against the Broncos last season while dealing with atrial flutter.`\
 https://nytimes.com/athletic/6418681/2025/06/11/jim-harbaugh-health-update-chargers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6280485/2025/06/11/sverre-nypan-manchester-city-tra
 **U.S. Ambassador to Israel Questions Policy on Palestinian State**\
 `The envoy, Mike Huckabee, said in media interviews that “Muslim countries” should build a Palestinian state on their territory, which would be a sharp departure from decades of U.S. foreign policy.`\
 https://nytimes.com/2025/06/11/world/middleeast/mike-huckabee-israel-palestinian-state.html
-
-**New York Times Names Co-Chief Restaurant Critics**\
-`The pair, Ligaya Mishan and Tejal Rao, are part of an effort to expand starred restaurant reviews across the country, the company said.`\
-https://nytimes.com/2025/06/11/business/media/nyt-restaurant-critics-announced.html
-
-**Where Are Anti-Trump Protests Expected on Wednesday?**\
-`Groups announced plans for demonstrations across the country, indicating that the protests that began in Los Angeles will continue to spread.`\
-https://nytimes.com/2025/06/11/us/trump-ice-protests-immigration-us-cities.html
 
