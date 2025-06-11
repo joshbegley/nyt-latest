@@ -1,3 +1,7 @@
+**Our Best Father’s Day Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/food-fathers-day-recipes
+
 **First-Ever Images of Sun’s South Pole Released by European Mission**\
 `Visuals from the European Space Agency’s Solar Orbiter reveal chaotic solar magnetism in the solar polar region. Even better images are expected in the years ahead.`\
 https://nytimes.com/2025/06/11/science/sun-south-pole-solar-orbiter-esa.html
