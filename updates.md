@@ -1,3 +1,7 @@
+**Federal Court Agrees to Continue Trump’s Tariffs as Appeal Gets Underway**\
+`The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
+https://nytimes.com/2025/06/10/business/trump-tariffs-court.html
+
 **Detention and Deportation As Seen Through a Family Group Chat**\
 `A Venezuelan man’s criminal past made him a target of immigration agents. His family was determined to stay in touch.`\
 https://nytimes.com/interactive/2025/06/10/us/politics/trump-immigrant-family-deportation-journey.html
