@@ -1,3 +1,7 @@
+**U.S. and China Agree to Walk Back Trade Tensions**\
+`Negotiators said the two governments would stick to a previous truce and reduce tensions that had escalated in recent weeks between the world’s largest economies.`\
+https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
+
 **Trump Says Army Bases Will Revert to Confederate Names**\
 `The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
 https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
