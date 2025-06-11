@@ -1,3 +1,7 @@
+**The Bounce: 3 keys for Thunder, Pacers as crucial Game 3 approaches. Plus, your NBA Finals predictions**\
+`The Thunder are heavy favorites for a reason, but can the Pacers make a stronger big for their first NBA championship?`\
+https://nytimes.com/athletic/6418701/2025/06/11/nba-finals-thunder-pacers-predictions-nba-draft-the-bounce/
+
 **Tracking Tropical Depression Wutip**\
 `See the likely path and wind arrival times for Wutip.`\
 https://nytimes.com/interactive/2025/06/11/weather/wutip-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/style/friendship-ghosting.html
 **City close to agreement for Rosenborg midfielder Nypan**\
 `The 18-year-old midfielder had previously been a target for clubs including Arsenal, Aston Villa and Girona.`\
 https://nytimes.com/athletic/6280485/2025/06/11/sverre-nypan-manchester-city-transfers/
-
-**U.S. Ambassador to Israel Questions Policy on Palestinian State**\
-`The envoy, Mike Huckabee, said in media interviews that “Muslim countries” should build a Palestinian state on their territory, which would be a sharp departure from decades of U.S. foreign policy.`\
-https://nytimes.com/2025/06/11/world/middleeast/mike-huckabee-israel-palestinian-state.html
 
