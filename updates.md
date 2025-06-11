@@ -1,3 +1,7 @@
+**Newsom Says Democracy Is ‘Under Assault’**\
+`Gov. Gavin Newsom of California criticized President Trump’s decision to send the National Guard and the Marines to Los Angeles and asked people to “reflect on this perilous moment.”`\
+https://nytimes.com/video/us/100000010220848/newsom-la-protests-immigration-raids.html
+
 **U.S. coach Emma Hayes to give 'much needed break' to Europe-based players**\
 `The decision to rest players, Hayes said, was collaborative with input from the USWNT’s medical and performance teams.`\
 https://nytimes.com/athletic/6417938/2025/06/10/us-women-soccer-coach-emma-hayes-break/

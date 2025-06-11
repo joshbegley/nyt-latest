@@ -1,3 +1,7 @@
+**Newsom Says Democracy Is ‘Under Assault’**\
+`Gov. Gavin Newsom of California criticized President Trump’s decision to send the National Guard and the Marines to Los Angeles and asked people to “reflect on this perilous moment.”`\
+https://nytimes.com/video/us/100000010220848/newsom-la-protests-immigration-raids.html
+
 **U.S. coach Emma Hayes to give 'much needed break' to Europe-based players**\
 `The decision to rest players, Hayes said, was collaborative with input from the USWNT’s medical and performance teams.`\
 https://nytimes.com/athletic/6417938/2025/06/10/us-women-soccer-coach-emma-hayes-break/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417834/2025/06/10/usmnt-switzerland-friendly-poche
 **Watch Messi at Club World Cup? FIFA offers some students discounted tickets**\
 `Promotion offers $20 tickets, but with the promise of up to four complimentary tickets, to some Miami students.`\
 https://nytimes.com/athletic/6417719/2025/06/10/fifa-club-world-cup-messi-tickets/
-
-**Could Shohei Ohtani return to mound before the All-Star break? Chances are 'north of zero'**\
-`Ohtani threw his third simulated game, while Blake Snell and Tyler Glasnow also had bullpen sessions. `\
-https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-update/
 
