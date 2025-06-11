@@ -1,3 +1,11 @@
+**Betsy Jochum, 104, Dies; Last Original Member of Women’s Baseball League**\
+`Playing in the All-American Girls Professional Baseball League, which inspired the film “A League of Their Own,” she won a batting title and stole 127 bases in 1944.`\
+https://nytimes.com/2025/06/11/sports/baseball/betsy-jochum-dead.html
+
+**What is the role of the National Guard troops in L.A.?**\
+`By Eric Schmitt, Emily Cochrane and J. David Goodman`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/what-is-the-role-of-the-national-guard-troops-in-la
+
 **Kennedy Announces Eight New Members of C.D.C. Vaccine Advisory Panel**\
 `The appointments of at least two of the experts are likely to draw an uproar from pro-vaccine groups for their criticism of federal scientists and the Biden administration’s Covid vaccine policies.`\
 https://nytimes.com/2025/06/11/us/rfk-jr-cdc-vaccine-panel.html
