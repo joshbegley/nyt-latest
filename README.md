@@ -1,3 +1,7 @@
+**U.S. Inflation Remains Muted, With Limited Effects From Tariffs**\
+`The Consumer Price Index rose 2.4 percent in May, from a year ago, a reading that reflects only the initial impact of President Trump’s tariffs.`\
+https://nytimes.com/2025/06/11/business/cpi-may-inflation-tariffs.html
+
 **Van de Ven says Postecoglou's Spurs sacking was 'strange'**\
 `Postecoglou was dismissed by the English club last week, 16 days after winning the Europa League.`\
 https://nytimes.com/athletic/6418569/2025/06/11/tottenham-van-de-ven-postecoglou-frank/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417585/2025/06/11/pelicans-khaman-maluach-bigs-nba
 **Blues fan survey results: High confidence in Armstrong heading into final year as GM**\
 `Nearly 1,800 voters took part in our 20-question Blues fan survey, which featured exciting prospects, potential contracts and more.`\
 https://nytimes.com/athletic/6416058/2025/06/11/blues-fan-survey-results-armstrong-holloway-broberg/
-
-**What a perfect Canucks offseason looks like: Trades, extensions and big swings**\
-`The stakes couldn't be higher for a hockey club that finds itself at something of a crossroads.`\
-https://nytimes.com/athletic/6415318/2025/06/11/canucks-offseason-trades-contract-extensions/
 

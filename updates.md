@@ -1,3 +1,7 @@
+**Van de Ven says Postecoglou's Spurs sacking was 'strange'**\
+`Postecoglou was dismissed by the English club last week, 16 days after winning the Europa League.`\
+https://nytimes.com/athletic/6418569/2025/06/11/tottenham-van-de-ven-postecoglou-frank/
+
 **Daniel Suárez on NASCAR's Mexico City race, international expansion and more: 12 Questions**\
 `The Trackhouse Racing driver talks about the Cup Series' debut in his home country, other markets ready for NASCAR and much more.`\
 https://nytimes.com/athletic/6415835/2025/06/11/daniel-suarez-nascar-mexico-city-race-international-expansion-12-questions/
