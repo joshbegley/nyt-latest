@@ -1,3 +1,15 @@
+**Trump Is Pushing Allies Away and Closer into Each Other’s Arms**\
+`Important U.S. allies are trying to bolster their ties as the Trump administration shifts priorities and reshapes the world order.`\
+https://nytimes.com/2025/06/11/world/canada/g7-trump-us-allies-world-order.html
+
+**Fulbright Board Resigns After Accusing Trump Aides of Political Interference**\
+`The board of the prestigious program told the State Department it had no right to cancel scholarships for nearly 200 American professors and researchers.`\
+https://nytimes.com/2025/06/11/us/politics/fulbright-board-resign-trump.html
+
+**The launch of NIL Go signals a high-stakes evolution in college sports: MoneyCall**\
+`A hectic past week in college sports hits its next phase with the launch of a persnickety new tool to track athlete NIL deals. Will it work?`\
+https://nytimes.com/athletic/6418924/2025/06/11/nil-go-deloitte-bryan-seeley-college-sports-commission-moneycall/
+
 **WTA Tour introduces women's tennis ranking protection for fertility treatment**\
 `Sloane Stephens, 2017 U.S. Open champion, called for the measure last year after undergoing egg freezing.`\
 https://nytimes.com/athletic/6418822/2025/06/11/tennis-wta-tour-rankings-protection-fertility-treatment/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/11/science/sun-south-pole-solar-orbiter-esa.html
 **History You Can Eat**\
 `Through the ages, human survival has depended on our ability to cultivate and preserve plant diversity.`\
 https://nytimes.com/2025/06/11/special-series/global-seed-bank-preserves-history.html
-
-**Sporting won't succumb to 'blackmail and insults' in Gyokeres saga - club president**\
-`The Sweden international is one of Europe’s hottest properties this summer following a spectacular season in which he scored 54 goals.`\
-https://nytimes.com/athletic/6418645/2025/06/11/viktor-gyokeres-transfer-fee/
-
-**The Bounce: 3 keys for Thunder, Pacers as crucial Game 3 approaches. Plus, your NBA Finals predictions**\
-`The Thunder are heavy favorites for a reason, but can the Pacers make a stronger big for their first NBA championship?`\
-https://nytimes.com/athletic/6418701/2025/06/11/nba-finals-thunder-pacers-predictions-nba-draft-the-bounce/
-
-**Tracking Tropical Depression Wutip**\
-`See the likely path and wind arrival times for Wutip.`\
-https://nytimes.com/interactive/2025/06/11/weather/wutip-map-path-tracker.html
 
