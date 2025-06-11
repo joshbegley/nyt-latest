@@ -1,3 +1,23 @@
+**Liverpool's loanees: What next for Bajcetic, Doak, Danns and more?**\
+`How did the players sent out on short-term deals fare last season and what could their futures hold?`\
+https://nytimes.com/athletic/6404078/2025/06/11/liverpool-loan-bajcetic-danns-doak/
+
+**Club World Cup Fantasy: How does the game work and what are the best strategies for success?**\
+`Holly Shand explains how Club World Cup Fantasy works, highlighting the key differences to FPL and the premium players to target`\
+https://nytimes.com/athletic/6415332/2025/06/11/club-world-cup-fantasy-rules-strategy/
+
+**Life after Man Utd: DJ Buffonge on haircuts, 'old school' mentalities and a new life calling**\
+`In the second of our series about former academy players, DJ Buffonge reveals how he is putting his United experiences to good use`\
+https://nytimes.com/athletic/6401828/2025/06/11/dj-buffonge-manchester-united-interview/
+
+**There's enough blame, shame for all after USMNT's debacle vs. Switzerland**\
+`The anatomy of a 4-0 loss: Mauricio Pochettino's choices, players' performances and a clear ceiling for the U.S. player pool.`\
+https://nytimes.com/athletic/6418099/2025/06/11/usmnt-switzerland-blame-pochettino-players-world-cup/
+
+**Michail Antonio could make his comeback next week - but has he played his last game for West Ham?**\
+`The forward could play for Jamaica six months after breaking his leg in a car crash but his West Ham future remains up in the air`\
+https://nytimes.com/athletic/6415329/2025/06/11/michail-antonio-could-make-his-comeback-next-week-but-has-he-played-his-last-game-for-west-ham/
+
 **Chelsea's goalkeeping conundrum: Would Maignan have represented an upgrade?**\
 `Interest in the Milan and France goalkeeper has been dropped this summer,but Chelsea may be wise to monitor his situation in January`\
 https://nytimes.com/athletic/6416236/2025/06/11/chelsea-maignan-milan-france-sanchez-jorgensen-petrovic/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6407912/2025/06/11/inside-mamelodi-sundowns-our-amb
 **World Cup 2026: Our experts' hopes, fears and predictions with a year to go**\
 `What could derail the tournament or make it a hit? Which players will shine? And who could win? Our writers have their say...`\
 https://nytimes.com/athletic/6413935/2025/06/11/world-cup-2026-predictions/
-
-**DAZN will broadcast the Club World Cup around the world. What is the streamer's big idea?**\
-`DAZN is the global rights holder for the upcoming Club World Cup and is planning to use it to expand its reach`\
-https://nytimes.com/athletic/6404831/2025/06/11/dazn-club-world-cup-billion/
-
-**Guardiola offers a timely lesson in how football managers can tackle big issues**\
-`The Manchester City manager's comments on the crisis in Gaza showed how coaches can engage in the wider world`\
-https://nytimes.com/athletic/6407926/2025/06/11/pep-guardiola-offers-a-timely-lesson-in-how-football-managers-can-tackle-politics/
-
-**Complex, emotionally demanding but hugely impactful - the delicate task of being a backup 'keeper**\
-`What is it really like being a reserve goalkeeper? The role might not be all that visible but it can be hugely impactful`\
-https://nytimes.com/athletic/6415505/2025/06/11/kepa-arrizabalaga-arsenal-backup-keeper/
-
-**Under Pressure From the White House, ICE Seeks New Ways to Ramp Up Arrests**\
-`Former officials said the Trump administration’s push for the agency to detain record numbers of undocumented immigrants increases the chances of mistakes.`\
-https://nytimes.com/2025/06/11/us/politics/ice-la-protest-arrests.html
-
-**Connections: Sports Edition Coach: Hints for June 11, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6417890/2025/06/11/connections-sports-edition-hints-for-june-11-2025/
 
