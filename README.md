@@ -1,4 +1,8 @@
-**Wildfire Near San Bernardino Mountains Sparks Evacuation Orders**\
+**U.S. coach Emma Hayes to give 'much needed break' to Europe-based players**\
+`The decision to rest players, Hayes said, was collaborative with input from the USWNT’s medical and performance teams.`\
+https://nytimes.com/athletic/6417938/2025/06/10/us-women-soccer-coach-emma-hayes-break/
+
+**Wildfire Near San Bernardino Mountains Prompts Evacuation Orders**\
 `The fire, which was burning near the town of Apple Valley, had exploded to 2,000 acres since starting on Tuesday afternoon.`\
 https://nytimes.com/2025/06/10/us/san-bernardino-wildfire-california.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417719/2025/06/10/fifa-club-world-cup-messi-ticket
 **Could Shohei Ohtani return to mound before the All-Star break? Chances are 'north of zero'**\
 `Ohtani threw his third simulated game, while Blake Snell and Tyler Glasnow also had bullpen sessions. `\
 https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-update/
-
-**Thousands of Protesters March Through Downtown Chicago**\
-`The demonstrators carried signs denouncing federal immigration officials.`\
-https://nytimes.com/2025/06/10/us/chicago-protests-immigration.html
 
