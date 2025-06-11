@@ -1,3 +1,11 @@
+**Netanyahu Under Pressure as Ultra-Orthodox Parties Threaten to Dissolve Parliament**\
+`The Israeli prime minister’s coalition partners may back an opposition motion over rules that exempt religious students from serving in the military.`\
+https://nytimes.com/2025/06/11/world/middleeast/israel-knesset-vote-orthodox-draft-law.html
+
+**L.A. protesters say they are speaking up for immigrant ‘family.’**\
+`By Jill Cowan, Orlando Mayorquín, Livia Albeck-Ripka and Mimi Dwyer`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/protesters-los-angeles-immigration-who
+
 **U.S. Open 2025: What to know about Oakmont’s top contenders**\
 `Will one of pro golf’s powerhouse names add to his major championship collection? Or will Oakmont reveal a new, ascending star?`\
 https://nytimes.com/athletic/6417343/2025/06/11/us-open-2025-top-contenders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6400692/2025/06/11/nhl-salary-cap-crunches-2025/
 **How the Orioles could approach the trade deadline, plus more MLB notes**\
 `Plus the Tigers' need for another right-handed bat, the Rockies' trade chips and more from around the league.`\
 https://nytimes.com/athletic/6417797/2025/06/11/baltimore-orioles-trade-deadline-mlb-notes/
-
-**Who says no to these NHL trades (involving things that cannot actually be traded)?**\
-`There are strict limits on what can be traded between teams in the modern NHL. But what if there weren't? Fans pitch unorthodox swaps.`\
-https://nytimes.com/athletic/6414526/2025/06/11/nhl-trade-proposals-what-ifs-nos/
-
-**The Protests Spread**\
-`We have the latest on the immigration protests.`\
-https://nytimes.com/2025/06/11/briefing/the-protests-spread.html
 

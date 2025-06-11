@@ -1,3 +1,11 @@
+**Netanyahu Under Pressure as Ultra-Orthodox Parties Threaten to Dissolve Parliament**\
+`The Israeli prime minister’s coalition partners may back an opposition motion over rules that exempt religious students from serving in the military.`\
+https://nytimes.com/2025/06/11/world/middleeast/israel-knesset-vote-orthodox-draft-law.html
+
+**L.A. protesters say they are speaking up for immigrant ‘family.’**\
+`By Jill Cowan, Orlando Mayorquín, Livia Albeck-Ripka and Mimi Dwyer`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/protesters-los-angeles-immigration-who
+
 **U.S. Open 2025: What to know about Oakmont’s top contenders**\
 `Will one of pro golf’s powerhouse names add to his major championship collection? Or will Oakmont reveal a new, ascending star?`\
 https://nytimes.com/athletic/6417343/2025/06/11/us-open-2025-top-contenders/
