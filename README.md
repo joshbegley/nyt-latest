@@ -1,3 +1,7 @@
+**Meet Our New Restaurant Critics**\
+`Ligaya Mishan and Tejal Rao are the new restaurant critics at The New York Times, succeeding Pete Wells. While the two new critics are still going to be discreet when dining out for The Times, they have decided to part with tradition and reveal their identities to readers.`\
+https://nytimes.com/video/dining/100000010221343/nyt-restaurant-critic-tejal-rao-ligaya-mishan.html
+
 **The Times Has Appointed Two Chief Restaurant Critics. Here’s How That Will Work.**\
 `Tejal Rao and Ligaya Mishan will expand restaurant coverage nationally for The Times.`\
 https://nytimes.com/2025/06/11/dining/tejal-rao-ligaya-mishan-restaurant-critics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/business/cpi-may-inflation-tariffs.html
 **Van de Ven says Postecoglou's Spurs sacking was 'strange'**\
 `Postecoglou was dismissed by the English club last week, 16 days after winning the Europa League.`\
 https://nytimes.com/athletic/6418569/2025/06/11/tottenham-van-de-ven-postecoglou-frank/
-
-**Daniel Suárez on NASCAR's Mexico City race, international expansion and more: 12 Questions**\
-`The Trackhouse Racing driver talks about the Cup Series' debut in his home country, other markets ready for NASCAR and much more.`\
-https://nytimes.com/athletic/6415835/2025/06/11/daniel-suarez-nascar-mexico-city-race-international-expansion-12-questions/
 

@@ -1,3 +1,15 @@
+**The Times Has Appointed Two Chief Restaurant Critics. Here’s How That Will Work.**\
+`Tejal Rao and Ligaya Mishan will expand restaurant coverage nationally for The Times.`\
+https://nytimes.com/2025/06/11/dining/tejal-rao-ligaya-mishan-restaurant-critics.html
+
+**Gen Z Is Barely Holding On to the American Dream**\
+`They’re still clinging on, but at the bottom rung of the ladder.`\
+https://nytimes.com/2025/06/11/opinion/gen-z-american-dream.html
+
+**My Best Friend Ghosted Me, and I’m Devastated. Help!**\
+`After nearly a decade of close friendship, a reader is hurt and mystified by the radio silence from a woman who was in her wedding party just a year ago.`\
+https://nytimes.com/2025/06/11/style/friendship-ghosting.html
+
 **City close to agreement for Rosenborg midfielder Nypan**\
 `The 18-year-old midfielder had previously been a target for clubs including Arsenal, Aston Villa and Girona.`\
 https://nytimes.com/athletic/6280485/2025/06/11/sverre-nypan-manchester-city-transfers/

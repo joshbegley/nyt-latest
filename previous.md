@@ -1,3 +1,15 @@
+**The Times Has Appointed Two Chief Restaurant Critics. Here’s How That Will Work.**\
+`Tejal Rao and Ligaya Mishan will expand restaurant coverage nationally for The Times.`\
+https://nytimes.com/2025/06/11/dining/tejal-rao-ligaya-mishan-restaurant-critics.html
+
+**Gen Z Is Barely Holding On to the American Dream**\
+`They’re still clinging on, but at the bottom rung of the ladder.`\
+https://nytimes.com/2025/06/11/opinion/gen-z-american-dream.html
+
+**My Best Friend Ghosted Me, and I’m Devastated. Help!**\
+`After nearly a decade of close friendship, a reader is hurt and mystified by the radio silence from a woman who was in her wedding party just a year ago.`\
+https://nytimes.com/2025/06/11/style/friendship-ghosting.html
+
 **City close to agreement for Rosenborg midfielder Nypan**\
 `The 18-year-old midfielder had previously been a target for clubs including Arsenal, Aston Villa and Girona.`\
 https://nytimes.com/athletic/6280485/2025/06/11/sverre-nypan-manchester-city-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6418569/2025/06/11/tottenham-van-de-ven-postecoglou
 **Daniel Suárez on NASCAR's Mexico City race, international expansion and more: 12 Questions**\
 `The Trackhouse Racing driver talks about the Cup Series' debut in his home country, other markets ready for NASCAR and much more.`\
 https://nytimes.com/athletic/6415835/2025/06/11/daniel-suarez-nascar-mexico-city-race-international-expansion-12-questions/
-
-**What’s Next as the Latest U.S.-China Trade Talks Conclude**\
-`U.S. negotiators say the London summit represented progress. But investors and business leaders remain wary.`\
-https://nytimes.com/2025/06/11/business/dealbook/us-china-trade-talks.html
-
-**Ranking Ohio State's position groups: Who's next after an obvious choice for No. 1?**\
-`Ohio State has inexperience in a few key spots but also no shortage of talented playmakers to lean on.`\
-https://nytimes.com/athletic/6416013/2025/06/11/ohio-state-player-roster-rankings-2025/
-
-**How will the Penguins play under new coach Dan Muse?**\
-`What can we learn about Muse's systems and philosophies from his prior head coaching stops? Let's check the tape.`\
-https://nytimes.com/athletic/6411723/2025/06/11/penguins-head-coach-dan-muse-nhl/
 
