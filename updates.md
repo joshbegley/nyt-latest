@@ -1,3 +1,7 @@
+**Stanley Cup checklist: How do Devils stack up to Panthers and Oilers?**\
+`If the Devils are healthy next season, perhaps team president Tom Fitzgerald will take bigger midseason swings.`\
+https://nytimes.com/athletic/6416856/2025/06/11/stanley-cup-checklist-how-do-devils-stack-up-to-panthers-and-oilers/
+
 **Curfew Imposed in Los Angeles**\
 `Some protesters defied the curfew imposed by Mayor Karen Bass as Gov. Gavin Newsom of California criticized President Trump’s deployment of the military to Los Angeles.`\
 https://nytimes.com/video/us/100000010221112/los-angeles-protest-curfew-immigration.html
