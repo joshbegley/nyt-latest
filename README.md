@@ -1,3 +1,7 @@
+**Trump Fights to Move Appeal of Hush-Money Conviction to Federal Court**\
+`The president’s lawyers argued that a Supreme Court ruling on presidential immunity justified moving an appeal of his conviction in Manhattan to U.S. jurisdiction.`\
+https://nytimes.com/2025/06/11/nyregion/trump-ny-conviction-federal-court.html
+
 **A Syrian Committee for Civil Peace Angers Those Demanding Justice**\
 `Syria’s new leaders founded a group that cooperates with former Assad supporters to foster stability. It has set off a backlash from the government’s support base.`\
 https://nytimes.com/2025/06/11/world/europe/syria-peace-committee-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-jury.html
 **A Timeline of the Harvey Weinstein Case**\
 `A model reported to the police in 2015 that the producer had groped her. Allegations of sexual misconduct piled up in the ensuing years.`\
 https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-timeline.html
-
-**After N.Y. Verdict, Weinstein’s Prior California Conviction Still Stands**\
-`Harvey Weinstein was convicted of sex crimes in Los Angeles in 2022 and sentenced to 16 years in prison. His lawyer has promised to appeal.`\
-https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-conviction-california.html
 
