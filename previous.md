@@ -1,3 +1,7 @@
+**World Bank Ends Its Ban on Funding Nuclear Power Projects**\
+`The decision, a major reversal, could help poorer nations industrialize, cut planet-warming emissions and boost U.S. competitiveness on next-generation reactors.`\
+https://nytimes.com/2025/06/11/climate/world-bank-nuclear-power-funding-ban.html
+
 **Washington Post Names Adam O’Neal as Opinion Editor**\
 `Mr. O’Neal, a correspondent for The Economist, will be in charge of championing “personal liberties and free markets,” the section’s new direction laid out by Jeff Bezos.`\
 https://nytimes.com/2025/06/11/business/media/washington-post-opinion-editor-adam-oneal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/nyregion/trump-ny-conviction-federal-court.html
 **A Syrian Committee for Civil Peace Angers Those Demanding Justice**\
 `Syria’s new leaders founded a group that cooperates with former Assad supporters to foster stability. It has set off a backlash from the government’s support base.`\
 https://nytimes.com/2025/06/11/world/europe/syria-peace-committee-assad.html
-
-**Jurors weighed Weinstein’s fate in a changed climate.**\
-`By Hurubie Meko`\
-https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/jurors-weighed-weinsteins-fate-in-a-changed-climate
 
