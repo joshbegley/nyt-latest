@@ -1,3 +1,12 @@
+**Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
+`The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
+`\
+https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
+
+**Word of the Day: intransigent**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/11/learning/word-of-the-day-intransigent.html
+
 **Thomas Tuchel's short tenure as England manager is by design - but is it starting to become a problem?**\
 `With the World Cup a year away there is not much time to fix things — but this is how Tuchel and the FA wanted it`\
 https://nytimes.com/athletic/6417695/2025/06/11/england-thomas-tuchel-senegal-world-cup/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6401828/2025/06/11/dj-buffonge-manchester-united-in
 **There's enough blame, shame for all after USMNT's debacle vs. Switzerland**\
 `The anatomy of a 4-0 loss: Mauricio Pochettino's choices, players' performances and a clear ceiling for the U.S. player pool.`\
 https://nytimes.com/athletic/6418099/2025/06/11/usmnt-switzerland-blame-pochettino-players-world-cup/
-
-**Michail Antonio could make his comeback next week - but has he played his last game for West Ham?**\
-`The forward could play for Jamaica six months after breaking his leg in a car crash but his West Ham future remains up in the air`\
-https://nytimes.com/athletic/6415329/2025/06/11/michail-antonio-could-make-his-comeback-next-week-but-has-he-played-his-last-game-for-west-ham/
-
-**Chelsea's goalkeeping conundrum: Would Maignan have represented an upgrade?**\
-`Interest in the Milan and France goalkeeper has been dropped this summer,but Chelsea may be wise to monitor his situation in January`\
-https://nytimes.com/athletic/6416236/2025/06/11/chelsea-maignan-milan-france-sanchez-jorgensen-petrovic/
 
