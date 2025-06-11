@@ -1,3 +1,7 @@
+**This Super Summery Dinner Party Is Meant for Luxuriating**\
+`Crab cakes, chilled cucumber-spinach soup and a light melon granita are the ideal antidote for sultry evenings, David Tanis writes.`\
+https://nytimes.com/2025/06/11/dining/summer-dinner-party-recipes.html
+
 **Saquon Barkley becomes first RB to top NFLPA player sales list since 2017**\
 `Jayden Daniels cracks the top five as a rookie`\
 https://nytimes.com/athletic/6419163/2025/06/11/saquon-barkley-nflpa-sales-list/
