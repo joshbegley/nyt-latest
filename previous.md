@@ -1,3 +1,11 @@
+**Who could be in England's first World Cup starting XI? Our experts' picks**\
+`Who could form the backbone of Thomas Tuchel's starting line-up come the tournament in 2026 - and who may miss out?`\
+https://nytimes.com/athletic/6415855/2025/06/11/england-world-cup-2026-team-prediction/
+
+**Notre Dame fans: Take our 2025 fan survey on the state of the program, rivalries and more**\
+`What does it feel like to be a Notre Dame football fan today? We want to hear your thoughts.`\
+https://nytimes.com/athletic/6416570/2025/06/11/notre-dame-football-fan-survey-2025/
+
 **Netanyahu Under Pressure as Ultra-Orthodox Parties Threaten to Dissolve Parliament**\
 `The Israeli prime minister’s coalition partners may back an opposition motion over rules that exempt religious students from serving in the military.`\
 https://nytimes.com/2025/06/11/world/middleeast/israel-knesset-vote-orthodox-draft-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6417540/2025/06/11/broncos-offensive-line-2025-mein
 **2025 NHL Staff Mock Draft 2.0: Schaefer goes No. 1, but where do the rest land?**\
 `Just over two weeks from draft day, we reconvened our staff of NHL reporters to make selections for the entire first round.`\
 https://nytimes.com/athletic/6406848/2025/06/11/nhl-mock-draft-2025-staff/
-
-**Why these 4 NHL teams could lose good players because of salary cap crunches**\
-`Even with the NHL salary cap rising, several teams are in for an interesting offseason with cap crunches likely to force roster surgery.`\
-https://nytimes.com/athletic/6400692/2025/06/11/nhl-salary-cap-crunches-2025/
-
-**How the Orioles could approach the trade deadline, plus more MLB notes**\
-`Plus the Tigers' need for another right-handed bat, the Rockies' trade chips and more from around the league.`\
-https://nytimes.com/athletic/6417797/2025/06/11/baltimore-orioles-trade-deadline-mlb-notes/
 

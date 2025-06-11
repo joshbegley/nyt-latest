@@ -1,3 +1,11 @@
+**Who could be in England's first World Cup starting XI? Our experts' picks**\
+`Who could form the backbone of Thomas Tuchel's starting line-up come the tournament in 2026 - and who may miss out?`\
+https://nytimes.com/athletic/6415855/2025/06/11/england-world-cup-2026-team-prediction/
+
+**Notre Dame fans: Take our 2025 fan survey on the state of the program, rivalries and more**\
+`What does it feel like to be a Notre Dame football fan today? We want to hear your thoughts.`\
+https://nytimes.com/athletic/6416570/2025/06/11/notre-dame-football-fan-survey-2025/
+
 **Netanyahu Under Pressure as Ultra-Orthodox Parties Threaten to Dissolve Parliament**\
 `The Israeli prime minister’s coalition partners may back an opposition motion over rules that exempt religious students from serving in the military.`\
 https://nytimes.com/2025/06/11/world/middleeast/israel-knesset-vote-orthodox-draft-law.html
