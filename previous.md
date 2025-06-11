@@ -1,3 +1,7 @@
+**Transfers TLDR: Tijjani Reijnders to Manchester City – all you need to know**\
+`Manchester City have signed Tijjani Reijnders from Milan - here's all you need to know about the transfer`\
+https://nytimes.com/athletic/6402007/2025/06/11/tijjani-reijnders-man-city-transfers-analysis/
+
 **Wildfire Burns Near San Bernardino Mountains**\
 `Firefighters battled the fire as high and dry winds fanned the flames.`\
 https://nytimes.com/video/us/100000010221082/san-bernardino-wildfire-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/insider/bielefeld-germany.html
 **FIFA revenues projected to surpass $10bn with 2026 World Cup**\
 `Over five billion people, almost two thirds of the global population, with more than 700 billion combined engagements across all media forms`\
 https://nytimes.com/athletic/6417221/2025/06/11/fifa-2026-world-cup-revenue/
-
-**She Relishes Being Trump’s Nemesis. Now He Is Out for Revenge.**\
-`Letitia James, the New York attorney general, won a fraud judgment against President Trump’s business and has challenged his policies in court. Now she is a target of his Justice Department.`\
-https://nytimes.com/2025/06/11/nyregion/trump-james-ny-attorney-general-investigation.html
 
