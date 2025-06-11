@@ -1,3 +1,19 @@
+**Ait-Nouri, Reijnders in Man City's Club World Cup squad but no Grealish**\
+`The pair both joined City before Tuesday's deadline to register new additions for the competition.`\
+https://nytimes.com/athletic/6397749/2025/06/11/man-city-club-world-cup-squad-confirmed/
+
+**Richard Beattie, Who Helped Pioneer Private Equity Takeovers, Dies at 86**\
+`A top Wall Street lawyer, he worked on some of the biggest corporate mergers in history, including KKR’s takeover of Nabisco in 1989. He also served in the Carter administration and in city government.`\
+https://nytimes.com/2025/06/11/business/dealbook/richard-beattie-dead.html
+
+**Rare Changing of the Guard at Oakmont, as U.S. Open Returns**\
+`Devin Gee, who look over from the longtime club pro, Bob Ford, a few years ago, is working his first Open as pro.`\
+https://nytimes.com/2025/06/11/sports/golf/oakmont-us-open-club-pro.html
+
+**In 1983, Larry Nelson Conquered Oakmont**\
+`He won the U.S. Open on the course where this year’s tournament is being held.`\
+https://nytimes.com/2025/06/11/sports/golf/us-open-larry-nelson-oakmont.html
+
 **Poland’s Prime Minister Wins Confidence Vote in Parliament**\
 `Donald Tusk called the vote to seek endorsement of his government after a political opponent won the presidency.`\
 https://nytimes.com/2025/06/11/world/europe/poland-confidence-vote-tusk.html
