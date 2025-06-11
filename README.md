@@ -1,3 +1,7 @@
+**Meet Our New Restaurant Critics**\
+`We asked how they read menus, stay fit, eat at home and celebrate with their families.`\
+https://nytimes.com/2025/06/11/dining/ligaya-mishan-tejal-rao-critics-interview.html
+
 **Rockets, Timberwolves, Mavericks deny Knicks' asks to talk to coaches**\
 `New York requested permission to talk to Ime Udoka, Chris Finch and Jason Kidd, league sources said.`\
 https://nytimes.com/athletic/6418962/2025/06/11/knicks-coaching-search-rockets-timberwolves-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/theater/my-sons-a-queer-rob-madge.html
 **Many Falls Are Preventable. These Tips Can Help.**\
 `Small changes and good habits make a difference.`\
 https://nytimes.com/2025/06/11/well/fall-prevention-tips.html
-
-**One year from a home World Cup, USMNT with fanfare has fear of being a flop**\
-`Instead of hitting its stride at the perfect moment, the potential-filled USMNT is wobbling toward the World Cup it's cohosting`\
-https://nytimes.com/athletic/6417981/2025/06/11/usmnt-2026-world-cup-one-year-out-expectations-pochettino/
 
