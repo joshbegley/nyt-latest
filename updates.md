@@ -1,3 +1,15 @@
+**Calm in Downtown L.A. as Curfew Takes Effect**\
+`The city’s mayor announced the curfew on Tuesday evening after some protests against the Trump administration’s immigration policies turned unruly.`\
+https://nytimes.com/2025/06/11/us/los-angeles-curfew-map-mayor-bass.html
+
+**World Cup 2026: Who's qualified, who's struggling and which underdogs have a shot at glory?**\
+`Breaking down the big plot-lines from qualifying for 2026, including the big names who could be struggling`\
+https://nytimes.com/athletic/6418358/2025/06/11/world-cup-2026-who-has-qualified/
+
+**Austria Has Lots of Guns, Little Gun Violence, and New Questions**\
+`The deadliest school shooting in the nation’s recent history has prompted some gun enthusiasts to worry about the prospect of stricter ownership laws.`\
+https://nytimes.com/2025/06/11/world/europe/austria-guns-school-shooting-graz.html
+
 **Who could be in England's first World Cup starting XI? Our experts' picks**\
 `Who could form the backbone of Thomas Tuchel's starting line-up come the tournament in 2026 - and who may miss out?`\
 https://nytimes.com/athletic/6415855/2025/06/11/england-world-cup-2026-team-prediction/

@@ -1,3 +1,15 @@
+**Calm in Downtown L.A. as Curfew Takes Effect**\
+`The city’s mayor announced the curfew on Tuesday evening after some protests against the Trump administration’s immigration policies turned unruly.`\
+https://nytimes.com/2025/06/11/us/los-angeles-curfew-map-mayor-bass.html
+
+**World Cup 2026: Who's qualified, who's struggling and which underdogs have a shot at glory?**\
+`Breaking down the big plot-lines from qualifying for 2026, including the big names who could be struggling`\
+https://nytimes.com/athletic/6418358/2025/06/11/world-cup-2026-who-has-qualified/
+
+**Austria Has Lots of Guns, Little Gun Violence, and New Questions**\
+`The deadliest school shooting in the nation’s recent history has prompted some gun enthusiasts to worry about the prospect of stricter ownership laws.`\
+https://nytimes.com/2025/06/11/world/europe/austria-guns-school-shooting-graz.html
+
 **Who could be in England's first World Cup starting XI? Our experts' picks**\
 `Who could form the backbone of Thomas Tuchel's starting line-up come the tournament in 2026 - and who may miss out?`\
 https://nytimes.com/athletic/6415855/2025/06/11/england-world-cup-2026-team-prediction/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6415224/2025/06/11/maple-leafs-offseason-mitch-marn
 **Welcome to America, the ATM of world soccer**\
 `The Club World Cup is only one of several big soccer events coming to the U.S., as the sport caters to a big-spending American fan base.`\
 https://nytimes.com/athletic/6416341/2025/06/11/club-world-cup-atm-soccer/
-
-**Waiting his turn: What Clarke Schmidt does behind the scenes each day between starts**\
-`Fans only see what the Yankees pitcher does when he takes the mound. He gives The Athletic a window into his other four days of work.`\
-https://nytimes.com/athletic/6410847/2025/06/11/clarke-schmidt-yankees-starting-routine/
-
-**Broncos' O-line was one of NFL's best last season. Can it be better in 2025?**\
-`The Broncos are returning all five starters from an offensive line that ranked first in ESPN's pass-block and run-block metrics last season.`\
-https://nytimes.com/athletic/6417540/2025/06/11/broncos-offensive-line-2025-meinerz-bolles/
-
-**2025 NHL Staff Mock Draft 2.0: Schaefer goes No. 1, but where do the rest land?**\
-`Just over two weeks from draft day, we reconvened our staff of NHL reporters to make selections for the entire first round.`\
-https://nytimes.com/athletic/6406848/2025/06/11/nhl-mock-draft-2025-staff/
 

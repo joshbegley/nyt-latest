@@ -1,3 +1,7 @@
+**Anti-Immigrant Rioting Stretches Into Second Night in Northern Ireland**\
+`Homes, businesses and cars were attacked and 17 police offices were injured during violent disorder in Ballymena and several other areas.`\
+https://nytimes.com/2025/06/11/world/europe/ballymena-riot-northern-ireland-disorder.html
+
 **Calm in Downtown L.A. as Curfew Takes Effect**\
 `The city’s mayor announced the curfew on Tuesday evening after some protests against the Trump administration’s immigration policies turned unruly.`\
 https://nytimes.com/2025/06/11/us/los-angeles-curfew-map-mayor-bass.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417343/2025/06/11/us-open-2025-top-contenders/
 **Mirtle mailbag: No, the Maple Leafs should not (and cannot) run it back**\
 `It's time for Toronto to acknowledge that mild success isn't good enough after nearly a decade of trying. It's time for a new look.`\
 https://nytimes.com/athletic/6415224/2025/06/11/maple-leafs-offseason-mitch-marner-mailbag/
-
-**Welcome to America, the ATM of world soccer**\
-`The Club World Cup is only one of several big soccer events coming to the U.S., as the sport caters to a big-spending American fan base.`\
-https://nytimes.com/athletic/6416341/2025/06/11/club-world-cup-atm-soccer/
 
