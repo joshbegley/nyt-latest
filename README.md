@@ -1,4 +1,4 @@
-**Federal Court Agrees to Allow Trump’s Tariffs as Appeal Gets Underway**\
+**Federal Court Agrees to Continue Trump’s Tariffs as Appeal Gets Underway**\
 `The appeals court’s decision delivered an important but interim victory for the Trump administration.`\
 https://nytimes.com/2025/06/10/business/trump-tariffs-court.html
 
