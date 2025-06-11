@@ -1,3 +1,15 @@
+**Trump Says Army Bases Will Revert to Confederate Names**\
+`The move would reverse a yearslong effort to remove names and symbols honoring the Confederacy from the military.`\
+https://nytimes.com/2025/06/10/us/politics/trump-army-base-rename-confederate.html
+
+**U.S. and China Agree to Walk Back Tensions**\
+`Negotiators said the two governments would stick to a previous truce and reduce tensions that had escalated in recent weeks between the world’s largest economies.`\
+https://nytimes.com/2025/06/10/business/economy/us-china-trade-deal.html
+
+**Mavericks believe Kidd will be coach next season, not join Knicks: Sources**\
+`According to a team source, the Knicks had yet to request permission to speak with Kidd as of Tuesday afternoon.`\
+https://nytimes.com/athletic/6417678/2025/06/10/jason-kidd-mavericks-knicks-head-coaching-job/
+
 **Challenging the Playbook: 5 Keys to Winning the A.I Game **\
 `5 Keys to Winning the A.I. Game: Microsoft executive Jessica Hawk and professional athlete Cam Jordan discuss how A.I. is transforming business`\
 https://nytimes.com/paidpost/athletic/microsoft/challenging-the-playbook-5-keys-to-winning-the-ai-game.html
