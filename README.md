@@ -1,3 +1,11 @@
+**Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
+`Huijsen joined in a £50million deal from Bournemouth and will line up in a new-look defence alongside Alexander-Arnold.`\
+https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
+
+**Britain Allocates Hundreds of Billions to Bolster Its Economy**\
+`Rachel Reeves, the chancellor of the Exchequer, broke down public spending plans, including more money for the military, public transport and affordable housing.`\
+https://nytimes.com/2025/06/11/business/uk-spending-economy.html
+
 **Man Utd sign Emsden-James, 16, from Southampton**\
 `The defender has played for England at youth level and featured above his age group at Southampton.`\
 https://nytimes.com/athletic/6418961/2025/06/11/harley-emsden-james-man-utd-who/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6399730/2025/06/11/cale-makar-norris-trophy-nhl-def
 **What Happens if ‘Harvard Is Not Harvard’?**\
 `If President Trump makes good on all his threats, Harvard may lose much of its influence and prestige. It could also become even harder to afford.`\
 https://nytimes.com/2025/06/11/us/harvard-funding-trump-administration.html
-
-**Intensely Flavored and Supremely Comforting**\
-`Yewande Komolafe’s versatile take on Ghanaian light soup replenishes and restores.`\
-https://nytimes.com/2025/06/11/dining/easy-ghanaian-light-soup-recipe.html
-
-**I Had an Affair With a Politician Who Denies Being Gay. Do I Keep His Secret?**\
-`Is what happened between us my story to tell?`\
-https://nytimes.com/2025/06/11/magazine/politician-affair-ethics.html
 
