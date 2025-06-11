@@ -1,3 +1,7 @@
+**City close to agreement for Rosenborg midfielder Nypan**\
+`The 18-year-old midfielder had previously been a target for clubs including Arsenal, Aston Villa and Girona.`\
+https://nytimes.com/athletic/6280485/2025/06/11/sverre-nypan-manchester-city-transfers/
+
 **U.S. Ambassador to Israel Questions Policy on Palestinian State**\
 `The envoy, Mike Huckabee, said in media interviews that “Muslim countries” should build a Palestinian state on their territory, which would be a sharp departure from decades of U.S. foreign policy.`\
 https://nytimes.com/2025/06/11/world/middleeast/mike-huckabee-israel-palestinian-state.html
