@@ -1,3 +1,7 @@
+**Anti-Immigrant Rioting Stretches Into Second Night in Northern Ireland**\
+`Homes, businesses and cars were attacked and 17 police offices were injured during violent disorder in Ballymena and several other areas.`\
+https://nytimes.com/2025/06/11/world/europe/ballymena-riot-northern-ireland-disorder.html
+
 **Calm in Downtown L.A. as Curfew Takes Effect**\
 `The city’s mayor announced the curfew on Tuesday evening after some protests against the Trump administration’s immigration policies turned unruly.`\
 https://nytimes.com/2025/06/11/us/los-angeles-curfew-map-mayor-bass.html
