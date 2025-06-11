@@ -1,3 +1,11 @@
+**What Skenes and Holliday's card value trajectories mean for Caglianone and Anthony**\
+`Caglianone and Anthony are the two darlings of the baseball card world right now, but volatility is likely`\
+https://nytimes.com/athletic/6419175/2025/06/11/jac-caglianone-roman-anthony-card-values/
+
+**Fast-Growing Wildfire Spreads in Southern California**\
+`A wildfire that started on Tuesday afternoon north of the San Bernardino Mountains in Southern California had exploded to more than 4,200 acres by Wednesday morning, officials said.`\
+https://nytimes.com/video/us/100000010222277/san-bernardino-wildfire.html
+
 **Did Bob Dylan Help Announce an Album From MGK?**\
 `The pop-punk star’s trailer for “Lost Americana” features a familiar voice narrating about a “quest to reclaim the authentic essence of American freedom.”`\
 https://nytimes.com/2025/06/11/arts/music/bob-dylan-mgk-machine-gun-kelly.html
