@@ -1,3 +1,11 @@
+**‘I Am Not Cowed’: Voices on the Protests**\
+`Readers discuss the Los Angeles protests and the “No Kings” rallies to be held on Saturday. Also: Leaving the Republican Party; younger Democratic candidates.`\
+https://nytimes.com/2025/06/11/opinion/los-angeles-immigration-protests.html
+
+**Newsom stokes his feud, portraying himself as the hero to Trump’s ‘Star Wars’ villain.**\
+`Gov. Gavin Newsom of California, widely seen as having 2028 aspirations, had taken a conciliatory approach toward right-wing figures in recent months. Now, he’s ramping up the aggressive rhetoric.`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/newsom-stokes-his-feud-portraying-himself-as-the-hero-to-trumps-star-wars-villain
+
 **Tiny Love Stories: ‘I’m So Aware of Our Age Gap ’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/06/11/style/tiny-modern-love-stories-im-so-aware-of-our-age-gap.html
