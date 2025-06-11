@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6418962/2025/06/11/knicks-coaching-search-rockets-t
 `Donald Trump’s Fort Bragg speech was the latest in a string of high-profile efforts to reshape the military more in his own likeness.`\
 https://nytimes.com/2025/06/11/opinion/trump-wants-the-military-to-be-more-like-trump.html
 
-**Poland’s Leader Wins Confidence Vote in Parliament**\
-`Prime Minister Donald Tusk called the vote to seek endorsement of his government after a political opponent won the presidency.`\
+**Poland’s Prime Minister Wins Confidence Vote in Parliament**\
+`Donald Tusk called the vote to seek endorsement of his government after a political opponent won the presidency.`\
 https://nytimes.com/2025/06/11/world/europe/poland-confidence-vote-tusk.html
 
 **Colorado Avalanche's Cale Makar wins second Norris Trophy as top NHL defenseman**\

@@ -1,3 +1,11 @@
+**Alexander-Arnold, Huijsen included in Madrid's Club World Cup squad**\
+`New head coach Xabi Alonso has provided few surprises but many academy players in his squad for the tournament.`\
+https://nytimes.com/athletic/6397853/2025/06/11/real-madrid-club-world-cup-squad/
+
+**Britain Allocates Hundreds of Billions to Bolster Its Economy**\
+`Rachel Reeves, the chancellor of the Exchequer, broke down public spending plans, including more money for the military, public transport and affordable housing.`\
+https://nytimes.com/2025/06/11/business/uk-spending-economy.html
+
 **Man Utd sign Emsden-James, 16, from Southampton**\
 `The defender has played for England at youth level and featured above his age group at Southampton.`\
 https://nytimes.com/athletic/6418961/2025/06/11/harley-emsden-james-man-utd-who/
