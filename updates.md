@@ -1,3 +1,7 @@
+**Watch Messi at Club World Cup? FIFA offers some students discounted tickets**\
+`Promotion offers $20 tickets, but with the promise of up to four complimentary tickets, to some Miami students.`\
+https://nytimes.com/athletic/6417719/2025/06/10/fifa-club-world-cup-messi-tickets/
+
 **Could Shohei Ohtani return to mound before the All-Star break? Chances are 'north of zero'**\
 `Ohtani threw his third simulated game, while Blake Snell and Tyler Glasnow also had bullpen sessions. `\
 https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-update/

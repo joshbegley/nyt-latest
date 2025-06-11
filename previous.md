@@ -1,3 +1,7 @@
+**Watch Messi at Club World Cup? FIFA offers some students discounted tickets**\
+`Promotion offers $20 tickets, but with the promise of up to four complimentary tickets, to some Miami students.`\
+https://nytimes.com/athletic/6417719/2025/06/10/fifa-club-world-cup-messi-tickets/
+
 **Could Shohei Ohtani return to mound before the All-Star break? Chances are 'north of zero'**\
 `Ohtani threw his third simulated game, while Blake Snell and Tyler Glasnow also had bullpen sessions. `\
 https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/10/us/politics/trump-iran-nuclear-talks.html
 **With Trump’s Help, Jack Ciattarelli Wins G.O.P. Nomination for Governor**\
 `Mr. Ciattarelli, a former state assemblyman, is running his third campaign for governor of New Jersey.`\
 https://nytimes.com/2025/06/10/nyregion/nj-governor-republican-winner-jack-ciattarelli.html
-
-**MLB's No. 1 prospect, Roman Anthony, collects first hit, a two-run double**\
-`The two-run double gave the Red Sox an early lead over the visiting Rays.`\
-https://nytimes.com/athletic/6417765/2025/06/10/roman-anthony-red-sox-first-hit/
 
