@@ -1,3 +1,7 @@
+**New York Times Names Co-Chief Restaurant Critics**\
+`The pair, Ligaya Mishan and Tejal Rao, are part of an effort to expand starred restaurant reviews across the country, the company said.`\
+https://nytimes.com/2025/06/11/business/media/nyt-restaurant-critics-announced.html
+
 **Where Are Anti-Trump Protests Expected on Wednesday?**\
 `Groups announced plans for demonstrations across the country, indicating that the protests that began in Los Angeles will continue to spread.`\
 https://nytimes.com/2025/06/11/us/trump-ice-protests-immigration-us-cities.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6416347/2025/06/11/oilers-panthers-stats-stanley-cu
 **Trump Administration Live Updates: Hegseth to Face More Questions on Capitol Hill**\
 ``\
 https://nytimes.com/live/2025/06/11/us/trump-news
-
-**Pelicans could look to Khaman Maluach in draft to capitalize on double-big trend**\
-`Maluach isn't the only option up front who the Pelicans could consider pairing with Yves Missi.`\
-https://nytimes.com/athletic/6417585/2025/06/11/pelicans-khaman-maluach-bigs-nba-draft-2025/
 
