@@ -1,3 +1,7 @@
+**New Suns coach Jordan Ott brings freshness, curiosity the franchise needs**\
+`Ott is the organization’s fourth head coach in four seasons and arguably the most important in a couple decades.`\
+https://nytimes.com/athletic/6417767/2025/06/10/suns-coach-jordan-ott-serve-phoenix-well/
+
 **Newsom Tells Nation That Trump Is Destroying American Democracy**\
 `Gov. Gavin Newsom, in an address called “Democracy at a Crossroads,” called on Americans to stand up to President Trump.`\
 https://nytimes.com/2025/06/10/us/newsom-speech-trump-la-protests.html
