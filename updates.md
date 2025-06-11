@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
 
+**Matt Chapman goes on IL, and Giants respond with 4-run comeback win in ninth**\
+`The Giants rallied for a four-run uprising to take a 6-5 victory over the Colorado Rockies.
+`\
+https://nytimes.com/athletic/6418211/2025/06/11/giants-win-rockies-matt-chapman-il/
+
 **Word of the Day: intransigent**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/11/learning/word-of-the-day-intransigent.html
