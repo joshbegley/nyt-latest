@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6417846/2025/06/10/los-angeles-dodgers-pitching-upd
 https://nytimes.com/2025/06/10/us/chicago-protests-immigration.html
 
 **Bass Announces Downtown Curfew to Calm Protests**\
-`The curfew for a small section of downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
+`The curfew for downtown Los Angeles was set to go into effect from 8 p.m. until 6 a.m., starting Tuesday.`\
 https://nytimes.com/2025/06/10/us/la-curfew-protests-karen-bass-curfew.html
 
 **Mikie Sherrill Wins the Democratic Primary for Governor of New Jersey**\
