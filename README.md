@@ -1,3 +1,7 @@
+**Our Best Father’s Day Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/food-fathers-day-recipes
+
 **First-Ever Images of Sun’s South Pole Released by European Mission**\
 `Visuals from the European Space Agency’s Solar Orbiter reveal chaotic solar magnetism in the solar polar region. Even better images are expected in the years ahead.`\
 https://nytimes.com/2025/06/11/science/sun-south-pole-solar-orbiter-esa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6418028/2025/06/11/blue-jays-ernie-clements-errorle
 **Meet Our New Restaurant Critics**\
 `Ligaya Mishan and Tejal Rao are the new restaurant critics at The New York Times, succeeding Pete Wells. While the two new critics are still going to be discreet when dining out for The Times, they have decided to part with tradition and reveal their identities to readers.`\
 https://nytimes.com/video/dining/100000010221343/nyt-restaurant-critic-tejal-rao-ligaya-mishan.html
-
-**The Times Has Appointed Two Chief Restaurant Critics. Here’s How That Will Work.**\
-`Tejal Rao and Ligaya Mishan will expand restaurant coverage nationally for The Times.`\
-https://nytimes.com/2025/06/11/dining/tejal-rao-ligaya-mishan-restaurant-critics.html
 
