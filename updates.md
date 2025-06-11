@@ -1,3 +1,11 @@
+**U.S. group including Jimmy Butler expected to make offer for stake in Crystal Palace**\
+`The group is looking to purchase Eagle Football's 43 per cent stake in Palace, with an expected offer in excess of $200m.`\
+https://nytimes.com/athletic/6415443/2025/06/11/crystal-palace-takeover-textor-eagle-butler/
+
+**Jury Convicts Weinstein in Second New York Sex Crimes Trial**\
+`The conviction, on a charge of first-degree criminal sexual act, was handed down in a mixed verdict that acquitted Harvey Weinstein of a second count of the same crime.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-retrial-verdict-jury.html
+
 **Thursday Briefing: A Look at the U.S.-China Trade Deal**\
 `Plus, is A.I. coming for your job?`\
 https://nytimes.com/2025/06/11/briefing/us-china-deal-la-protest.html

@@ -1,3 +1,11 @@
+**U.S. group including Jimmy Butler expected to make offer for stake in Crystal Palace**\
+`The group is looking to purchase Eagle Football's 43 per cent stake in Palace, with an expected offer in excess of $200m.`\
+https://nytimes.com/athletic/6415443/2025/06/11/crystal-palace-takeover-textor-eagle-butler/
+
+**Jury Convicts Weinstein in Second New York Sex Crimes Trial**\
+`The conviction, on a charge of first-degree criminal sexual act, was handed down in a mixed verdict that acquitted Harvey Weinstein of a second count of the same crime.`\
+https://nytimes.com/2025/06/11/nyregion/harvey-weinstein-retrial-verdict-jury.html
+
 **Thursday Briefing: A Look at the U.S.-China Trade Deal**\
 `Plus, is A.I. coming for your job?`\
 https://nytimes.com/2025/06/11/briefing/us-china-deal-la-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/world/fertility-crisis-un-report.html
 **McConnell Tells Hegseth America’s Reputation Is at Stake in Ukraine War**\
 `A testy exchange between a senator who strongly supports Ukraine aid and the defense secretary revealed a deepening split among G.O.P. officials on the war.`\
 https://nytimes.com/2025/06/11/us/politics/hegseth-congress-defense.html
-
-**Inside the Struggle to Find Food in Gaza**\
-`Aid agencies say Gaza faces the threat of widespread starvation in the wake of the 80-day Israeli blockade on food deliveries that ended in mid-May. Two young Gazans, Salem Madhat Alaydi and Aya Ehab Zaid, describe what it is like to fight hunger.`\
-https://nytimes.com/video/world/middleeast/100000010186013/gaza-hunger-food.html
-
-**New Jets OC Tanner Engstrand is already winning over players: Minicamp observations**\
-`Plus, an impressive day for the offense at Wednesday's practice.`\
-https://nytimes.com/athletic/6419725/2025/06/11/jets-minicamp-practice-report-offensive-coordinator-tanner-engstrand/
 
