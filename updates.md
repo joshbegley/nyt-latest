@@ -1,3 +1,11 @@
+**David Hogg to Exit D.N.C. After Backlash to His Primary Plan**\
+`Mr. Hogg said he would not run again for vice chair after the party voted to remove him. Democrats have been furious at his plan to challenge the party’s sitting lawmakers in primary races.`\
+https://nytimes.com/2025/06/11/us/politics/david-hogg-dnc-democrats.html
+
+**Prosecutor calls Michael McLeod the architect of Hockey Canada sexual assault**\
+`Crown prosecutor says "someone’s not telling the truth" in laying out the case against the five Hockey Canada defendants. `\
+https://nytimes.com/athletic/6418963/2025/06/11/hockey-canada-sexual-assault-trial-crown-closing-statement/
+
 **European football revenue hit record €38bn in 2023-24 season**\
 `The so-called big five leagues - the top divisions from England, Spain, Italy, Germany, and France - contribute huge figures, for how long?`\
 https://nytimes.com/athletic/6419926/2025/06/11/european-football-revenue-premier-league/
