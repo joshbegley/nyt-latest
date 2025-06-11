@@ -1,3 +1,7 @@
+**Quote of the Day: Extremely Lifelike Dolls Cause a Frenzy in Brazil**\
+`Quotation of the Day for Wednesday, June 11, 2025.`\
+https://nytimes.com/2025/06/10/pageoneplus/quote-of-the-day-extremely-lifelike-dolls-cause-a-frenzy-in-brazil.html
+
 **Armed National Guard Troops Aid Immigration Agents on Raids in Los Angeles**\
 `Soldiers mobilized by President Trump protected ICE agents on their raids in Los Angeles. The state of California said the deployment was illegal.`\
 https://nytimes.com/2025/06/10/us/national-guard-ice-raids-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010220848/newsom-la-protests-immigration-raid
 **U.S. coach Emma Hayes to give 'much needed break' to Europe-based players**\
 `The decision to rest players, Hayes said, was collaborative with input from the USWNT’s medical and performance teams.`\
 https://nytimes.com/athletic/6417938/2025/06/10/us-women-soccer-coach-emma-hayes-break/
-
-**Wildfire Near San Bernardino Mountains Prompts Evacuation Orders**\
-`The fire, which was burning near the town of Apple Valley, had exploded to 2,000 acres since starting on Tuesday afternoon.`\
-https://nytimes.com/2025/06/10/us/san-bernardino-wildfire-california.html
 
