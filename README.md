@@ -1,3 +1,11 @@
+**What Skenes and Holliday's card value trajectories mean for Caglianone and Anthony**\
+`Caglianone and Anthony are the two darlings of the baseball card world right now, but volatility is likely`\
+https://nytimes.com/athletic/6419175/2025/06/11/jac-caglianone-roman-anthony-card-values/
+
+**Fast-Growing Wildfire Spreads in Southern California**\
+`A wildfire that started on Tuesday afternoon north of the San Bernardino Mountains in Southern California had exploded to more than 4,200 acres by Wednesday morning, officials said.`\
+https://nytimes.com/video/us/100000010222277/san-bernardino-wildfire.html
+
 **Did Bob Dylan Help Announce an Album From MGK?**\
 `The pop-punk star’s trailer for “Lost Americana” features a familiar voice narrating about a “quest to reclaim the authentic essence of American freedom.”`\
 https://nytimes.com/2025/06/11/arts/music/bob-dylan-mgk-machine-gun-kelly.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419330/2025/06/11/penguins-coach-dan-muse-intro/
 **Movement as Storytelling**\
 `Dance offers a creative freedom that allows us to leap beyond two-dimensional facts and figures.`\
 https://nytimes.com/2025/06/11/special-series/annabelle-lopez-ochoa-dance.html
-
-**Trump’s Budget: Supercharged ICE, Vouchers and a Warming Planet**\
-`Trump’s budget tells us three unhappy truths about America.`\
-https://nytimes.com/2025/06/11/opinion/budget-trump.html
-
-**5 Months Into Office, No Trump Talk for San Francisco Mayor**\
-`Mayor Daniel Lurie says that he is focused on quality of life issues, not politics, as President Trump targets California in various ways.`\
-https://nytimes.com/2025/06/11/us/san-francisco-mayor-trump-protests.html
 
