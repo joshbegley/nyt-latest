@@ -1,3 +1,7 @@
+**City close to agreement for Rosenborg midfielder Nypan**\
+`The 18-year-old midfielder had previously been a target for clubs including Arsenal, Aston Villa and Girona.`\
+https://nytimes.com/athletic/6280485/2025/06/11/sverre-nypan-manchester-city-transfers/
+
 **U.S. Ambassador to Israel Questions Policy on Palestinian State**\
 `The envoy, Mike Huckabee, said in media interviews that “Muslim countries” should build a Palestinian state on their territory, which would be a sharp departure from decades of U.S. foreign policy.`\
 https://nytimes.com/2025/06/11/world/middleeast/mike-huckabee-israel-palestinian-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6416013/2025/06/11/ohio-state-player-roster-ranking
 **How will the Penguins play under new coach Dan Muse?**\
 `What can we learn about Muse's systems and philosophies from his prior head coaching stops? Let's check the tape.`\
 https://nytimes.com/athletic/6411723/2025/06/11/penguins-head-coach-dan-muse-nhl/
-
-**Lowetide: Why are Oilers having trouble playing their game vs. Panthers?**\
-`Through three games, the Oilers have yet to join the series against Florida offensively.`\
-https://nytimes.com/athletic/6416347/2025/06/11/oilers-panthers-stats-stanley-cup-final/
 

@@ -1,3 +1,11 @@
+**U.S. Ambassador to Israel Questions Policy on Palestinian State**\
+`The envoy, Mike Huckabee, said in media interviews that “Muslim countries” should build a Palestinian state on their territory, which would be a sharp departure from decades of U.S. foreign policy.`\
+https://nytimes.com/2025/06/11/world/middleeast/mike-huckabee-israel-palestinian-state.html
+
+**New York Times Names Co-Chief Restaurant Critics**\
+`The pair, Ligaya Mishan and Tejal Rao, are part of an effort to expand starred restaurant reviews across the country, the company said.`\
+https://nytimes.com/2025/06/11/business/media/nyt-restaurant-critics-announced.html
+
 **Where Are Anti-Trump Protests Expected on Wednesday?**\
 `Groups announced plans for demonstrations across the country, indicating that the protests that began in Los Angeles will continue to spread.`\
 https://nytimes.com/2025/06/11/us/trump-ice-protests-immigration-us-cities.html
