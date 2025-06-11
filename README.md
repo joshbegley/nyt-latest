@@ -1,8 +1,12 @@
+**Hispanic-Serving College Program Is Discriminatory, Lawsuit Argues**\
+`A group behind the Supreme Court case that ended affirmative action is now targeting a federal support for schools that enroll large numbers of Hispanic students.`\
+https://nytimes.com/2025/06/11/us/hispanic-serving-institutions-lawsuit.html
+
 **School Bus Swept Away as Floods in South Africa Kill at Least 49**\
 `The authorities were still searching for four children. Inclement weather has left thousands displaced.`\
 https://nytimes.com/2025/06/11/world/africa/south-africa-flooding-kills-dozens.html
 
-**We Traced the Pope’s Ancestry Back 500 Years. Here’s What We Found.**\
+**We Traced Pope Leo XIV’s Ancestry Back 500 Years. Here’s What We Found.**\
 `Noblemen, enslaved people, freedom fighters, slaveowners: what the complex family tree of the first American pontiff reveals.`\
 https://nytimes.com/interactive/2025/06/11/magazine/pope-leo-xiv-ancestry-family-tree.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/arts/music/bob-dylan-mgk-machine-gun-kelly.html
 **Why the case against Weinstein was relatively narrow.**\
 `By Jan Ransom`\
 https://nytimes.com/live/2025/06/11/nyregion/harvey-weinstein-verdict/why-the-case-against-weinstein-was-relatively-narrow
-
-**How Immigrants and Labor, Long Joined in L.A., Set the Stage for Protest**\
-`Unions have backed immigrant rights in California and have been on the forefront of resisting the Trump administration’s deportations.`\
-https://nytimes.com/2025/06/11/business/economy/la-protests-immigrants-unions.html
 

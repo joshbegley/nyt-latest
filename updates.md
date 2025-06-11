@@ -1,3 +1,11 @@
+**School Bus Swept Away as Floods in South Africa Kill at Least 49**\
+`The authorities were still searching for four children. Inclement weather has left thousands displaced.`\
+https://nytimes.com/2025/06/11/world/africa/south-africa-flooding-kills-dozens.html
+
+**We Traced the Pope’s Ancestry Back 500 Years. Here’s What We Found.**\
+`Noblemen, enslaved people, freedom fighters, slaveowners: what the complex family tree of the first American pontiff reveals.`\
+https://nytimes.com/interactive/2025/06/11/magazine/pope-leo-xiv-ancestry-family-tree.html
+
 **World Bank Ends Its Ban on Funding Nuclear Power Projects**\
 `The decision, a major reversal, could help poorer nations industrialize, cut planet-warming emissions and boost U.S. competitiveness on next-generation reactors.`\
 https://nytimes.com/2025/06/11/climate/world-bank-nuclear-power-funding-ban.html
