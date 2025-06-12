@@ -1,3 +1,7 @@
+**De Bruyne joins Napoli after Man City exit**\
+`De Bruyne announced in April that he would be leaving City at the end of the season after 10 years at the club.`\
+https://nytimes.com/athletic/6286466/2025/06/12/kevin-de-bruyne-napoli-transfer/
+
 **Supreme Court Revives Suit From Victims of Botched F.B.I. Raid**\
 `Lower courts ruled in favor of agents who had used a battering ram and a flash-bang grenade in mistakenly raiding the home of an Atlanta couple.`\
 https://nytimes.com/2025/06/12/us/politics/supreme-court-fbi-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/us/politics/democrats-california-protests-trump.h
 **Bringing a Modern Sensibility to a Historical Drama**\
 `Anna Sawai and Hiroyuki Sanada, two stars of the hit series “Shogun,” discuss history, acting and what they’d bring to the present from feudal Japan.`\
 https://nytimes.com/2025/06/12/special-series/anna-sawa-hiroyuki-sanada-shogun-interview.html
-
-**The Bounce: How Tyrese Haliburton and the Pacers put all NBA Finals pressure on Thunder**\
-`Tyrese Haliburton took a lot of criticism after Game 2, but Indiana's Game 3 turnaround has put all the pressure on Oklahoma City`\
-https://nytimes.com/athletic/6421250/2025/06/12/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-the-bounce/
 
