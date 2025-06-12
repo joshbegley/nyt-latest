@@ -1,3 +1,15 @@
+**Summer McIntosh breaks third world record in 5 days**\
+`McIntosh beat her previous record of 4:24.38 in the 400-meter individual medley set at the 2024 Canadian Olympic Trials.`\
+https://nytimes.com/athletic/6421697/2025/06/12/summer-mcintosh-swimming-world-record-trials/
+
+**Why did the Ducks trade for Chris Kreider, and what might come next?**\
+`What might Kreider's addition mean for the possible pursuit of Mitch Marner — and for other potential moves?`\
+https://nytimes.com/athletic/6419401/2025/06/12/chris-kreider-ducks-offseason/
+
+**MLS misses out on De Bruyne; Which global star will be next to sign?**\
+`With De Bruyne headed to Napoli after a brief flirtation with MLS, which big name is next in line to venture to North America?`\
+https://nytimes.com/athletic/6388034/2025/06/12/de-bruyne-napoli-mls-next-star-signing-dybala-neymar-pogba/
+
 **Instagram Wants Gen Z. What Does Gen Z Want From Instagram?**\
 `Young people are using Instagram for everything except the app’s original function.`\
 https://nytimes.com/2025/06/12/style/instagram-gen-z.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6416329/2025/06/12/chris-kreider-trade-rangers-duck
 **Lawyers for Returned Deportee Seek Sanctions Against Trump Officials**\
 `Kilmar Armando Abrego Garcia’s lawyers asked the judge in the case to appoint a special master to investigate the failure by Trump officials to comply with her instructions.`\
 https://nytimes.com/2025/06/12/us/politics/abrego-garcia-sanctions.html
-
-**Manchester City director James Smith set to return to Everton in recruitment role**\
-`Smith was Everton’s head of technical scouting from 2003 during David Moyes' first spell in charge.`\
-https://nytimes.com/athletic/6394418/2025/06/12/everton-james-smith-man-city/
-
-**Michael Johnson’s Grand Slam Track cancels Los Angeles meet**\
-`The June 28-29 event at LA's Drake Stadium was the fourth and final meet of the inaugural season after the series began in April in Kingston`\
-https://nytimes.com/athletic/6421537/2025/06/12/grand-slam-track-los-angeles-cancelled-athletics/
-
-**New York Rangers' Chris Kreider traded to Anaheim Ducks for prospect**\
-`Kreider, coming off a disappointing season, has two years remaining on his contract.`\
-https://nytimes.com/athletic/6418037/2025/06/12/chris-kreider-trade-rangers-ducks/
 
