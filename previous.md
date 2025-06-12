@@ -1,3 +1,23 @@
+**How Ohio State will handle revenue sharing, NIL with 36 varsity sports**\
+`AD Ross Bjork said Ohio State will not cut any sports teams but $18 million will be shared between football, basketball and volleyball.`\
+https://nytimes.com/athletic/6422712/2025/06/12/ohio-state-revenue-sharing-nil-ross-bjork/
+
+**Denny Hamlin to skip Mexico City NASCAR race due to birth of his son**\
+`Ryan Truex, JGR’s reserve driver, will step in to drive No. 11 car as Hamlin will miss his first race since 2014.`\
+https://nytimes.com/athletic/6422844/2025/06/12/nascar-denny-hamlin-miss-race-mexico-city/
+
+**Trump Tells Farmers ‘Changes Are Coming’ to Immigration Crackdown**\
+`President Trump’s statement suggested his sweeping policies were alienating industries he wants to keep in his corner.`\
+https://nytimes.com/2025/06/12/us/politics/trump-farmers-hotels-immigration.html
+
+**Florida leaders promise a crackdown against unruly protesters.**\
+`Gov. Ron DeSantis promised a “zero tolerance policy.” One sheriff in the state said that officers would kill protesters who throw bricks or point weapons at deputies.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/florida-leaders-promise-a-crackdown-against-unruly-protesters
+
+**As they highlight affordability agendas, candidates will focus on what can be done quickly.**\
+`By Eliza Shapiro`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/as-they-highlight-affordability-agendas-candidates-will-focus-on-what-can-be-done-quickly
+
 **One Soldier Killed, One Injured in Helicopter Training Mission at Fort Campbell**\
 `The aviation accident, which occurred on Wednesday night, is under investigation, the 101st Airborne Division said.`\
 https://nytimes.com/2025/06/12/us/soldier-killed-helicopter-fort-campbell.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/12/nyregion/adrienne-adams-nyc-mayor-debate.html
 **Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth
-
-**The primary has narrowed into a two-person race.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-narrowed-into-a-two-person-race
-
-**Here’s the latest.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/heres-the-latest
-
-**Live Updates: N.Y.C. Mayoral Candidates Are Set to Debate As Race Tightens**\
-`Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are leading the field, and five other Democrats onstage will try to halt their momentum. The debate begins at 7 p.m.`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate
-
-**Federal agents, joined by Secretary Noem, descend on a California community.**\
-`By Gabriela Bhaskar, Jesus Jiménez and Jill Cowan`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/federal-agents-joined-by-secretary-noem-descend-on-a-california-community
-
-**One Person Survived a Fiery Plane Crash in India**\
-`Also, federal agents handcuffed a senator and forced him to the floor. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/06/12/briefing/india-plane-crash-la-protests.html
 
