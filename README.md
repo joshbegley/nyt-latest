@@ -1,3 +1,15 @@
+**One Person Survived a Fiery Plane Crash in India**\
+`Also, federal agents handcuffed a senator and forced him to the floor. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/06/12/briefing/india-plane-crash-la-protests.html
+
+**NFL exec Brian Rolapp leaving for PGA Tour CEO position**\
+`Rolapp, responsible for the NFL's massive media rights deals, will lead the PGA Tour's for-profit arm.`\
+https://nytimes.com/athletic/6422717/2025/06/12/brian-rolapp-nfl-pga-tour-ceo/
+
+**Democratic senators decry the rough treatment of one of their own.**\
+`Senator Alex Padilla, Democrat of California, was forcibly removed from an event with Homeland Security Secretary Kristi Noem, forced to the floor and handcuffed.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/democratic-senators-padilla-treatment
+
 **How The New York Times Handles Photography and Visuals**\
 `Published images must be genuine in every way. We do not use A.I. to generate images to represent real events or situations.`\
 https://nytimes.com/2025/06/12/reader-center/new-york-times-photography-ai.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/nyregion/trump-ny-lawsuit-ice-courthouses.html
 **Senator Padilla Forcibly Removed After Confronting Noem**\
 `Senator Alex Padilla, Democrat of California, was forced to the floor, handcuffed and removed by federal agents after interrupting a news conference by the homeland security secretary Kristi Noem on Thursday.`\
 https://nytimes.com/video/us/politics/100000010224871/padilla-noem-protest-la.html
-
-**Friday Briefing: Air India Crash Killed More Than 260 People**\
-`Plus, the pope’s diverse family tree.`\
-https://nytimes.com/2025/06/12/briefing/india-plane-crash-israel-iran-los-angeles.html
-
-**Father Charged in Death of Boy, 2, Found in River Under an N.Y.C. Bridge**\
-`On Wednesday, police divers pulled the body of Montrell Williams from the East River.`\
-https://nytimes.com/2025/06/12/nyregion/bronx-boy-east-river.html
-
-**How Every House Member Voted on $9 Billion in Proposed Spending Cuts**\
-`House members approved the cuts by a vote of 214 to 212.`\
-https://nytimes.com/interactive/2025/06/12/us/house-rescissions-vote.html
 

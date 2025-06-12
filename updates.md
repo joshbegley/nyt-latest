@@ -1,3 +1,15 @@
+**How The New York Times Handles Photography and Visuals**\
+`Published images must be genuine in every way. We do not use A.I. to generate images to represent real events or situations.`\
+https://nytimes.com/2025/06/12/reader-center/new-york-times-photography-ai.html
+
+**Raiders minicamp: Pete Carroll hoping reconfigured offensive line pays dividends**\
+`The Raiders signed veteran lineman Alex Cappa and drafted several others, but hope it's coaching that makes a big difference in 2025.`\
+https://nytimes.com/athletic/6422670/2025/06/12/raiders-minicamp-offensive-line/
+
+**Senator Padilla Forcibly Removed After Confronting Noem**\
+`Senator Alex Padilla, Democrat of California, was forced to the floor, handcuffed and removed by federal agents after interrupting a news conference by the homeland security secretary Kristi Noem on Thursday.`\
+https://nytimes.com/video/us/politics/100000010224871/padilla-noem-protest-la.html
+
 **Does Frank’s appointment move the needle for Spurs' 2025/26 top four odds?**\
 `Sam Tighe and Brett Koremenos explore whether Tottenham Hotspur’s appointment of Thomas Frank changes their odds of success.`\
 https://nytimes.com/athletic/6422501/2025/06/12/tottenham-hotspur-thomas-frank-betting-predictions-tips-odds/
