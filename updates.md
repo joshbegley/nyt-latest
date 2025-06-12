@@ -1,3 +1,11 @@
+**Like His Music, Brian Wilson’s Style Was Deceptively Complex**\
+`In Pendleton shirts and khakis, Mr. Wilson and the Beach Boys showed the world what easy Southern California living looked like.`\
+https://nytimes.com/2025/06/12/style/brian-wilson-surf-style-beach-boys.html
+
+**Adrienne Adams Will Be the Only Woman Onstage at the Mayoral Debate**\
+`Ms. Adams, the City Council speaker, is running on a platform of competence without drama. (And no, she is not related to Mayor Eric Adams.)`\
+https://nytimes.com/2025/06/12/nyregion/adrienne-adams-nyc-mayor-debate.html
+
 **Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth

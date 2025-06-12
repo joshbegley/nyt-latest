@@ -1,3 +1,11 @@
+**Like His Music, Brian Wilson’s Style Was Deceptively Complex**\
+`In Pendleton shirts and khakis, Mr. Wilson and the Beach Boys showed the world what easy Southern California living looked like.`\
+https://nytimes.com/2025/06/12/style/brian-wilson-surf-style-beach-boys.html
+
+**Adrienne Adams Will Be the Only Woman Onstage at the Mayoral Debate**\
+`Ms. Adams, the City Council speaker, is running on a platform of competence without drama. (And no, she is not related to Mayor Eric Adams.)`\
+https://nytimes.com/2025/06/12/nyregion/adrienne-adams-nyc-mayor-debate.html
+
 **Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6422717/2025/06/12/brian-rolapp-nfl-pga-tour-ceo/
 **Democratic senators decry the rough treatment of one of their own.**\
 `Senator Alex Padilla, Democrat of California, was forcibly removed from an event with Homeland Security Secretary Kristi Noem, forced to the floor and handcuffed.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/democratic-senators-padilla-treatment
-
-**How The New York Times Handles Photography and Visuals**\
-`Published images must be genuine in every way. We do not use A.I. to generate images to represent real events or situations.`\
-https://nytimes.com/2025/06/12/reader-center/new-york-times-photography-ai.html
-
-**Does Frank’s appointment move the needle for Spurs' 2025/26 top four odds?**\
-`Sam Tighe and Brett Koremenos explore whether Tottenham Hotspur’s appointment of Thomas Frank changes their odds of success.`\
-https://nytimes.com/athletic/6422501/2025/06/12/tottenham-hotspur-thomas-frank-betting-predictions-tips-odds/
 
