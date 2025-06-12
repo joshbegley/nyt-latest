@@ -1,3 +1,7 @@
+**Owner in Dominican Nightclub Roof Collapse Is Arrested**\
+`After the collapse killed 236 people, an employee came forward with evidence the owners had been warned the roof posed a danger.`\
+https://nytimes.com/2025/06/12/world/americas/dominican-nightclub-roof-collapse-owner-arrest.html
+
 **How many people have been arrested in the nationwide anti-ICE protests?**\
 `Police have arrested more than 1,000 people in the past week as civil unrest that began after immigration sweeps in Los Angeles spread to cities across the country.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/how-many-people-have-been-arrested-in-the-nationwide-anti-ice-protests
