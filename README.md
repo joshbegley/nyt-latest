@@ -1,3 +1,15 @@
+**Ananda Lewis, ’90s MTV Star, Dies at 52**\
+`She said last year that her breast cancer, which she was diagnosed with in 2019, had progressed to Stage 4.`\
+https://nytimes.com/2025/06/12/arts/television/ananda-lewis-dies.html
+
+**Another Dozen Migrants Are Transferred to Guantánamo**\
+`About 540 Defense Department employees were staffing the operation, along with 130 homeland security workers.`\
+https://nytimes.com/2025/06/12/us/politics/migrants-guantanamo-trump.html
+
+**Brighton confirm signing of 18-year-old striker Kostoulas**\
+`He will sign a five-year deal that will run through to 2030.`\
+https://nytimes.com/athletic/6421160/2025/06/12/charalampos-kostoulas-brighton-signing/
+
 **Thomas Frank is the new Spurs manager. So how do his teams play?**\
 `Brentford evolved massively over four Premier League seasons under the Dane. This adaptability will be important to him now at Tottenham`\
 https://nytimes.com/athletic/6414059/2025/06/12/thomas-frank-tottenham-manager-premier-league-brentford/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/climate/jbs-new-york-stock-exchange-listing.html
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/06/12/books/review/new-books-recommendations.html
-
-**A Train Station Taught Me What Education Is For**\
-`From any angle, Michigan Central Station is a revelation.`\
-https://nytimes.com/2025/06/12/opinion/what-michigan-central-station-taught-me.html
-
-**The Undermining of Science in America**\
-`Readers respond to articles about the Trump administration’s assault on science. Also: The coming military parade in Washington.`\
-https://nytimes.com/2025/06/12/opinion/science-america.html
-
-**La Dolce Vita, the Valentino Way**\
-`Archival photographs, fashion layouts and anecdotes from celebrity clients: A new book is devoted to all things Valentino.`\
-https://nytimes.com/2025/06/12/style/valentino-book-grand-italian-epic.html
 
