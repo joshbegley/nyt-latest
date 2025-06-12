@@ -1,3 +1,11 @@
+**The Real-Life Dating Boot Camp That Inspired ‘Love on the Spectrum’**\
+`When U.C.L.A. psychologists first proposed teaching adults with autism how to date, funders wouldn’t go near it. Now we are in a new world.`\
+https://nytimes.com/2025/06/12/health/autism-dating-ucla-love-on-the-spectrum.html
+
+**Scenes From the India Plane Disaster**\
+`A passenger flight traveling from Ahmedabad, a city in western India, to London crashed shortly after takeoff.`\
+https://nytimes.com/2025/06/12/world/europe/air-india-crash-photos.html
+
 **Padres MLB trade deadline primer: 3 early storylines to watch**\
 `The baseball industry has learned not to underestimate A.J. Preller during trade season or, for that matter, at any time on the calendar.`\
 https://nytimes.com/athletic/6417966/2025/06/12/padres-mlb-trade-deadline-primer/

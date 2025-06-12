@@ -1,3 +1,7 @@
+**The Real-Life Dating Boot Camp That Inspired ‘Love on the Spectrum’**\
+`When U.C.L.A. psychologists first proposed teaching adults with autism how to date, funders wouldn’t go near it. Now we are in a new world.`\
+https://nytimes.com/2025/06/12/health/autism-dating-ucla-love-on-the-spectrum.html
+
 **Padres MLB trade deadline primer: 3 early storylines to watch**\
 `The baseball industry has learned not to underestimate A.J. Preller during trade season or, for that matter, at any time on the calendar.`\
 https://nytimes.com/athletic/6417966/2025/06/12/padres-mlb-trade-deadline-primer/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6417294/2025/06/12/lions-defense-special-teams-aida
 `Now attached to Bard College, the literary journal is about to publish new commentary and a popular historical feature. Next year: the print magazine.`\
 https://nytimes.com/2025/06/12/books/laphams-quarterly-relaunch.html
 
-**At the Scene of the Deadly Air India Crash**\
+**Scenes From the India Plane Disaster**\
 `A passenger flight traveling from Ahmedabad, a city in western India, to London crashed shortly after takeoff.`\
 https://nytimes.com/2025/06/12/world/europe/air-india-crash-photos.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420125/2025/06/12/nascar-mexico-city-race-setup-ha
 **Man City reach agreement with Rosenborg to sign Nypan**\
 `A fee of £12.5million (€14.6m) has been agreed with no further contingencies or sell-on clauses.`\
 https://nytimes.com/athletic/6421257/2025/06/12/man-city-nypan-transfer-fee/
-
-**Transfers TLDR: Trent Alexander-Arnold to Real Madrid – all you need to know**\
-`The England international defender is now officially a Madrid player after leaving Liverpool – we break down the deal...`\
-https://nytimes.com/athletic/6419206/2025/06/12/trent-alexander-arnold-real-madrid-transfer/
 
