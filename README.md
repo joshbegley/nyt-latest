@@ -1,3 +1,7 @@
+**Tottenham confirm Frank as new head coach on three-year deal**\
+`Thomas Frank succeeds Ange Postecoglou, who was sacked by Spurs last Friday, and leaves Brentford after seven years in charge.`\
+https://nytimes.com/athletic/6413693/2025/06/12/thomas-frank-tottenham-head-coach-official-brentford/
+
 **A Scandal-Plagued Meatpacking Giant Comes to the U.S. Stock Market**\
 `JBS, the biggest meatpacker in the world, is set to go public on the New York Stock Exchange this week.`\
 https://nytimes.com/2025/06/12/climate/jbs-new-york-stock-exchange-listing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6422056/2025/06/12/fantasy-bullpen-report-risers-ro
 **Michael Bradley named Red Bulls II manager**\
 `Bradley is going back to where it all began to kick off his managerial career.`\
 https://nytimes.com/athletic/6422047/2025/06/12/michael-bradley-red-bulls-ii-manager-mls-next-pro/
-
-**Trump Acknowledges Israel Could Attack Iran Soon**\
-`But President Trump cautioned that he does not want Israel to launch an attack while negotiations were going on.`\
-https://nytimes.com/2025/06/12/us/politics/trump-israel-iran.html
 
