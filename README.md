@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6421359/2025/06/12/celtic-transfer-news-nygren/
 `Bold pinstripes are back in Orlando, but in a way that gives the new generation its own identity beyond Shaq and Penny nostalgia `\
 https://nytimes.com/athletic/6420534/2025/06/12/orlando-magic-uniforms-jerseys/
 
+**Wimbledon chiefs say replacing line judges was 'inevitable' ahead of 2025 event**\
+`The tournament also confirmed prize money increases for 2025, with the singles winners getting £3 million ($4.1 million) each.`\
+https://nytimes.com/athletic/6421206/2025/06/12/wimbledon-line-judges-replaced-electronic-line-calling/
+
 **The Real-Life Dating Boot Camp That Inspired ‘Love on the Spectrum’**\
 `When U.C.L.A. psychologists first proposed teaching adults with autism how to date, funders wouldn’t go near it. Now we are in a new world.`\
 https://nytimes.com/2025/06/12/health/autism-dating-ucla-love-on-the-spectrum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417294/2025/06/12/lions-defense-special-teams-aida
 **Lapham’s Quarterly Will Begin Its Revival with Website and Podcast**\
 `Now attached to Bard College, the literary journal is about to publish new commentary and a popular historical feature. Next year: the print magazine.`\
 https://nytimes.com/2025/06/12/books/laphams-quarterly-relaunch.html
-
-**Scenes From the India Plane Disaster**\
-`A passenger flight traveling from Ahmedabad, a city in western India, to London crashed shortly after takeoff.`\
-https://nytimes.com/2025/06/12/world/europe/air-india-crash-photos.html
 
