@@ -1,3 +1,7 @@
+**How Companies Are Bracing for Trump’s Immigration Crackdown**\
+`Sectors including construction, hospitality, health care and manufacturing are on high alert. Economists are worried about the labor market and growth.`\
+https://nytimes.com/2025/06/12/business/dealbook/companies-trump-immigration-crackdown.html
+
 **Meter, a Networking Start-Up, Raises New Funds**\
 `The company has collected $170 million in new capital as it seeks to help connect data centers and other businesses in the age of artificial intelligence.`\
 https://nytimes.com/2025/06/12/business/dealbook/meter-networking-fundraise.html

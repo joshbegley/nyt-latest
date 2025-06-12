@@ -1,3 +1,7 @@
+**Transfers TLDR: Trent Alexander-Arnold to Real Madrid – all you need to know**\
+`Trent Alexander-Arnold is now a Real Madrid player after leaving Liverpool – here we break down the deal`\
+https://nytimes.com/athletic/6419206/2025/06/12/trent-alexander-arnold-real-madrid-transfer/
+
 **How Companies Are Bracing for Trump’s Immigration Crackdown**\
 `Sectors including construction, hospitality, health care and manufacturing are on high alert. Economists are worried about the labor market and growth.`\
 https://nytimes.com/2025/06/12/business/dealbook/companies-trump-immigration-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6414635/2025/06/12/bruins-offseason-live-qa-fluto-s
 **What is the trade value of Vancouver's 2025 first-round draft pick?**\
 `The Canucks are widely expected to move the No. 15 pick in the upcoming draft. So what could it be worth?`\
 https://nytimes.com/athletic/6419458/2025/06/12/canucks-nhl-draft-first-pick-trade/
-
-**USMNT 2026 World Cup squad projection: Pochettino's depth chart by position**\
-`A year out from the World Cup, the USMNT's player pool is top heavy and lacking real depth. Here's how we see the squad shaping up`\
-https://nytimes.com/athletic/6419213/2025/06/12/usmnt-2026-world-cup-squad-projection-pochettino-depth-chart-position/
 
