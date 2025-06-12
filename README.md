@@ -1,3 +1,7 @@
+**House Votes to Claw Back $9 Billion for Foreign Aid and Public Broadcasting**\
+`The legislation, requested by the White House, would codify spending cuts pursued by Elon Musk’s Department of Government Efficiency.`\
+https://nytimes.com/2025/06/12/us/politics/house-foreign-aid-public-broadcasting-funds-trump.html
+
 **Ananda Lewis, ’90s MTV Star, Dies at 52**\
 `She said last year that her breast cancer, which she was diagnosed with in 2019, had progressed to Stage 4.`\
 https://nytimes.com/2025/06/12/arts/television/ananda-lewis-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413693/2025/06/12/thomas-frank-tottenham-head-coac
 **A Scandal-Plagued Meatpacking Giant Comes to the U.S. Stock Market**\
 `JBS, the biggest meatpacker in the world, is set to go public on the New York Stock Exchange this week.`\
 https://nytimes.com/2025/06/12/climate/jbs-new-york-stock-exchange-listing.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/06/12/books/review/new-books-recommendations.html
 
