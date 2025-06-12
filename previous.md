@@ -1,3 +1,15 @@
+**TPG, Sequoia and Others Invest $250 Million in Elon Musk’s xAI**\
+`Two dozen venture capital firms and other investors are investing in xAI, the artificial intelligence and social media company.`\
+https://nytimes.com/2025/06/12/business/xai-elon-musk-investors.html
+
+**Where to Celebrate a 40th Birthday, and Other Reader Questions**\
+`Dinner and a show at Lincoln Center? Date night on a budget? We have suggestions.`\
+https://nytimes.com/2025/06/12/dining/where-to-celebrate-a-40th-birthday-and-other-reader-questions.html
+
+**House Votes to Claw Back $9 Billion for Foreign Aid and Public Broadcasting**\
+`The legislation, requested by the White House, would codify spending cuts pursued by Elon Musk’s Department of Government Efficiency.`\
+https://nytimes.com/2025/06/12/us/politics/house-foreign-aid-public-broadcasting-funds-trump.html
+
 **Ananda Lewis, ’90s MTV Star, Dies at 52**\
 `She said last year that her breast cancer, which she was diagnosed with in 2019, had progressed to Stage 4.`\
 https://nytimes.com/2025/06/12/arts/television/ananda-lewis-dies.html
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/6414059/2025/06/12/thomas-frank-tottenham-manager-p
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/closet-organizing-ideas
 
-**Senator Alex Padilla Forcibly Removed and Handcuffed After Confronting Noem**\
-`Mr. Padilla, Democrat of California, was shoved out of a room and handcuffed after he interrupted Kristi Noem, the Homeland Security secretary, during a news conference.`\
+**Senator Alex Padilla Forcibly Removed and Handcuffed After Interrupting Noem**\
+`Mr. Padilla, Democrat of California, was shoved out of a room and handcuffed after he disrupted Kristi Noem, the Homeland Security secretary, during a news conference.`\
 https://nytimes.com/2025/06/12/us/politics/senator-alex-padilla-handcuffed.html
 
 **G.O.P. Senators Want Fewer Cuts to Food Aid, Teeing Up a Fight with the House**\
 `Republicans whose constituents rely on nutritional assistance worry that cuts to those programs approved by the House will saddle their states with huge costs and harm low-income children.`\
 https://nytimes.com/2025/06/12/us/politics/republican-senators-food-aid.html
-
-**Tottenham confirm Frank as new head coach on three-year deal**\
-`Thomas Frank succeeds Ange Postecoglou, who was sacked by Spurs last Friday, and leaves Brentford after seven years in charge.`\
-https://nytimes.com/athletic/6413693/2025/06/12/thomas-frank-tottenham-head-coach-official-brentford/
-
-**A Scandal-Plagued Meatpacking Giant Comes to the U.S. Stock Market**\
-`JBS, the biggest meatpacker in the world, is set to go public on the New York Stock Exchange this week.`\
-https://nytimes.com/2025/06/12/climate/jbs-new-york-stock-exchange-listing.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2025/06/12/books/review/new-books-recommendations.html
 

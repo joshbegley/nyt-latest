@@ -1,3 +1,19 @@
+**TPG, Sequoia and Others Invest $250 Million in Elon Musk’s xAI**\
+`Two dozen venture capital firms and other investors are investing in xAI, the artificial intelligence and social media company.`\
+https://nytimes.com/2025/06/12/business/xai-elon-musk-investors.html
+
+**Where to Celebrate a 40th Birthday, and Other Reader Questions**\
+`Dinner and a show at Lincoln Center? Date night on a budget? We have suggestions.`\
+https://nytimes.com/2025/06/12/dining/where-to-celebrate-a-40th-birthday-and-other-reader-questions.html
+
+**House Votes to Claw Back $9 Billion for Foreign Aid and Public Broadcasting**\
+`The legislation, requested by the White House, would codify spending cuts pursued by Elon Musk’s Department of Government Efficiency.`\
+https://nytimes.com/2025/06/12/us/politics/house-foreign-aid-public-broadcasting-funds-trump.html
+
+**Senator Alex Padilla Forcibly Removed and Handcuffed After Interrupting Noem**\
+`Mr. Padilla, Democrat of California, was shoved out of a room and handcuffed after he disrupted Kristi Noem, the Homeland Security secretary, during a news conference.`\
+https://nytimes.com/2025/06/12/us/politics/senator-alex-padilla-handcuffed.html
+
 **Ananda Lewis, ’90s MTV Star, Dies at 52**\
 `She said last year that her breast cancer, which she was diagnosed with in 2019, had progressed to Stage 4.`\
 https://nytimes.com/2025/06/12/arts/television/ananda-lewis-dies.html
