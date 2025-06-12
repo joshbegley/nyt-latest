@@ -1,3 +1,7 @@
+**Japan Says Chinese Fighter Jet Flew Too Close to Its Military Plane**\
+`The maneuvers over international waters in the Pacific last weekend prompted Japanese officials to warn China not to repeat them and risk a collision.`\
+https://nytimes.com/2025/06/12/world/asia/japan-china-fighter-jet.html
+
 **Here’s the latest.**\
 `By Francesca Regalado, John Yoon, Karen Weise, Richard Fausset and Yan Zhuang`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419966/2025/06/12/ravens-tj-tampa-cornerbacks-jair
 **MLB trade deadline Urgency Index 1.0: Who needs what? Who needs it most?**\
 `Looking at which teams are most likely to need starting pitching, relief pitching and help with the lineup by July 31. `\
 https://nytimes.com/athletic/6417757/2025/06/12/mlb-trade-deadline-urgency-index-1/
-
-**Raising kids in an MLB family can be tough logistically, summer break provides relief**\
-`The challenges associated with navigating the school year calendar are over, at least for a few months.`\
-https://nytimes.com/athletic/6418091/2025/06/12/mlb-player-families-school-summer-break/
 

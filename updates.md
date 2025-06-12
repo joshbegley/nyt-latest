@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Francesca Regalado, John Yoon, Karen Weise, Richard Fausset and Yan Zhuang`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/heres-the-latest
+
+**Listen: Is Mikel Arteta’s intensity wearing Arsenal down?**\
+`After another trophyless season at Arsenal, Ian Stone, Adrian Clarke and Art de Roché debated whether Arteta’s intensity has led to fatigue.`\
+https://nytimes.com/athletic/6416660/2025/06/12/is-mikel-artetas-intensity-wearing-arsenal-down/
+
+**What We Know About a Passenger Plane Crash in Western India**\
+`An Air India passenger plane traveling with 242 people to London from Ahmedabad, in the western Indian state of Gujarat, crashed on Thursday.`\
+https://nytimes.com/2025/06/12/world/asia/india-plane-crash-what-to-know.html
+
 **The Art of the Stall: China’s Strategy for Dealing With Trump**\
 `Beijing has gained time to build up its own strengths by drawing out negotiations with the United States, using its chokehold over critical minerals.`\
 https://nytimes.com/2025/06/12/world/asia/trump-china-trade-deal.html

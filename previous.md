@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Francesca Regalado, John Yoon, Karen Weise, Richard Fausset and Yan Zhuang`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/heres-the-latest
+
+**Listen: Is Mikel Arteta’s intensity wearing Arsenal down?**\
+`After another trophyless season at Arsenal, Ian Stone, Adrian Clarke and Art de Roché debated whether Arteta’s intensity has led to fatigue.`\
+https://nytimes.com/athletic/6416660/2025/06/12/is-mikel-artetas-intensity-wearing-arsenal-down/
+
+**What We Know About a Passenger Plane Crash in Western India**\
+`An Air India passenger plane traveling with 242 people to London from Ahmedabad, in the western Indian state of Gujarat, crashed on Thursday.`\
+https://nytimes.com/2025/06/12/world/asia/india-plane-crash-what-to-know.html
+
 **The Art of the Stall: China’s Strategy for Dealing With Trump**\
 `Beijing has gained time to build up its own strengths by drawing out negotiations with the United States, using its chokehold over critical minerals.`\
 https://nytimes.com/2025/06/12/world/asia/trump-china-trade-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6417757/2025/06/12/mlb-trade-deadline-urgency-index
 **Raising kids in an MLB family can be tough logistically, summer break provides relief**\
 `The challenges associated with navigating the school year calendar are over, at least for a few months.`\
 https://nytimes.com/athletic/6418091/2025/06/12/mlb-player-families-school-summer-break/
-
-**Mets trade deadline primer: 3 early storylines to watch**\
-`Let’s take a step back and examine some larger context that may dictate how the Mets approach the deadline.`\
-https://nytimes.com/athletic/6417807/2025/06/12/mets-trade-deadline-primer/
-
-**The Knicks knew they wanted to fire Tom Thibodeau. After that? Well, you're seeing it**\
-`With the Knicks air-balling in pursuit of employed head coaches, league sources say there is an increased focus on two ex-coaches.`\
-https://nytimes.com/athletic/6420801/2025/06/12/knicks-coach-search-permission-denials-tom-thibodeau-firing/
-
-**2025 NBA mock draft: Intrigue begins at No. 3 after Cooper Flagg and Dylan Harper**\
-`With two weeks to go before the draft, which prospects are rising and falling — and which teams might swing a trade?`\
-https://nytimes.com/athletic/6411513/2025/06/12/nba-mock-draft-2025-cooper-flagg-dylan-harper-vj-edgecombe/
 
