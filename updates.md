@@ -1,3 +1,19 @@
+**Russian Scientist Released After Four Months in Federal Custody**\
+`Kseniia Petrova, a Harvard researcher, still faces criminal charges for failing to declare scientific samples she was carrying in her suitcase.`\
+https://nytimes.com/2025/06/12/science/russian-scientist-harvard-release.html
+
+**A G.O.P. Plan to Sell Public Land Is Back. This Time, It’s Millions of Acres.**\
+`Senate Republicans want to sell the land to build more housing in the West, but the idea is contentious even within their own party.`\
+https://nytimes.com/2025/06/12/climate/senate-gop-public-land-sale.html
+
+**MLB Mock Draft Live Q&A with Keith Law at 2pm ET on June 12**\
+`<p>Earlier today, Keith Law released his second mock draft of the 2025 MLB Draft season.`\
+https://nytimes.com/athletic/6419940/2025/06/12/mlb-mock-draft-live-q-and-a/
+
+**NHL trade grades: Rangers needed to unload Chris Kreider to move forward**\
+`How did our staff evaluate the retooling Rangers' return from Anaheim for their longest-tenured skater? `\
+https://nytimes.com/athletic/6418682/2025/06/12/nhl-trade-grades-chris-kreider-rangers-ducks/
+
 **Trump Blocks California E.V. Rules in Latest Move to Rein In the State**\
 `California leaders said the state intends to challenge the move in court, and to find new ways to move drivers toward electric vehicles.`\
 https://nytimes.com/2025/06/12/us/california-trump-electric-vehicle-waiver.html

@@ -1,3 +1,7 @@
+**F.T.C. May Hit a Mega Ad Merger With an Unusual Rule: No Boycotting**\
+`The Federal Trade Commission is considering restrictions on Omnicom and Interpublic to prevent the combined company from refusing to place ads on platforms for political reasons.`\
+https://nytimes.com/2025/06/12/business/ftc-omnicom-interpublic-merger.html
+
 **Russian Scientist Released After Four Months in Federal Custody**\
 `Kseniia Petrova, a Harvard researcher, still faces criminal charges for failing to declare scientific samples she was carrying in her suitcase.`\
 https://nytimes.com/2025/06/12/science/russian-scientist-harvard-release.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419401/2025/06/12/chris-kreider-ducks-offseason/
 **MLS misses out on De Bruyne; Which global star will be next to sign?**\
 `With De Bruyne headed to Napoli after a brief flirtation with MLS, which big name is next in line to venture to North America?`\
 https://nytimes.com/athletic/6388034/2025/06/12/de-bruyne-napoli-mls-next-star-signing-dybala-neymar-pogba/
-
-**Instagram Wants Gen Z. What Does Gen Z Want From Instagram?**\
-`Young people are using Instagram for everything except the app’s original function.`\
-https://nytimes.com/2025/06/12/style/instagram-gen-z.html
 
