@@ -1,3 +1,7 @@
+**Courageous or Self-Righteous? Californians Evaluate Newsom’s Speech.**\
+`Elected officials, as well as social media influencers, had wide-ranging opinions of the governor’s prime time address warning that democracy is in danger.`\
+https://nytimes.com/2025/06/11/us/newsom-speech-react-california.html
+
 **Chargers minicamp observations: Oronde Gadsden's big day, Justin Herbert speaks**\
 `Gadsden, a rookie drafted in the fifth round, looks like he could give the Chargers a playmaker at all three levels.`\
 https://nytimes.com/athletic/6420423/2025/06/11/chargers-minicamp-oronde-gadsden-justin-herbert/
