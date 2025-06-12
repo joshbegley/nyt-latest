@@ -1,3 +1,7 @@
+**Senate Confirms Billy Long to Lead I.R.S., Ignoring Troubled Tax Credit History**\
+`The former Republican congressman and auctioneer also had a brief career selling tax credits, including one that the I.R.S. said did not exist and another it said was rife with fraud.`\
+https://nytimes.com/2025/06/12/us/politics/billy-long-irs-commissioner-confirmation.html
+
 **Drogheda appealing 'harsh and unfair' expulsion from Conference League**\
 `The Irish top-flight club have been notified by UEFA that they are facing expulsion due to the governing body's multi-club ownership rules.`\
 https://nytimes.com/athletic/6421794/2025/06/12/drogheda-united-appeal-conference-league-expulsion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/us/politics/trump-les-miserables.html
 **Federal Judge Will Hear Arguments Over Troop Deployment in California**\
 `Lawyers for the Trump administration and Gov. Gavin Newsom will make their case in a Thursday afternoon hearing in San Francisco.`\
 https://nytimes.com/2025/06/12/us/politics/la-protests-trump-hearing-marines-national-guard.html
-
-**OL Lyonnes in talks with Ajax over transfer of 18-year-old USWNT midfielder Yohannes**\
-`Yohannes, who signed with Ajax in April 2023, is under contract until June 2026.`\
-https://nytimes.com/athletic/6420929/2025/06/12/lily-yohannes-lyon-transfer-ajax/
 
