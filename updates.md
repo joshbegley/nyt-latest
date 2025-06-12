@@ -1,3 +1,7 @@
+**Air India’s New Owners Have Been Trying to Upgrade and Expand the Carrier**\
+`The Tata Group, which bought the airline three years ago, has been trying to improve operations at a time of great change in India’s aviation market.`\
+https://nytimes.com/2025/06/12/world/asia/air-india-plane-crash-safety-tata-group.html
+
 **U.S. Embassy in Jerusalem Braces for Possible Israeli Strike on Iran**\
 `The diplomatic mission restricted the movement of employees and their families a day after the United States withdrew diplomats from Iraq.`\
 https://nytimes.com/2025/06/12/world/middleeast/israel-iran.html
