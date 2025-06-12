@@ -1,3 +1,7 @@
+**Word of the Day: stultify**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/12/learning/word-of-the-day-stultify.html
+
 **Police on foot and horseback disperse protesters in downtown Los Angeles.**\
 `The mood of a downtown march against immigration raids was initially joyous. It soured as the police forced the crowd to splinter.`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/police-on-foot-and-horseback-disperse-protesters-in-downtown-los-angeles
