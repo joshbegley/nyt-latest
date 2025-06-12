@@ -1,3 +1,31 @@
+**Live Updates: Passenger Plane Crashes in Western India**\
+`Air India Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about the number of people onboard.`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad
+
+**Northern Ireland Struck by Anti-Immigrant Violence for Third Night**\
+`Rioters clashed with police in Ballymena and across County Antrim as masked groups set fire to a leisure center in Larne, where families had been temporarily settled in emergency housing.`\
+https://nytimes.com/2025/06/12/world/europe/northern-ireland-violence-police-ballymena.html
+
+**In a game the Pacers had to win, T.J. McConnell was everywhere: 'His energy is unbelievable'**\
+`He's a known irritant to teams around the NBA, but T.J. McConnell's play was especially edgy Wednesday.`\
+https://nytimes.com/athletic/6420699/2025/06/12/tj-mcconnell-pacers-bench-2025-nba-finals-game-3/
+
+**Bills minicamp takeaways: Keon Coleman's ups and downs, Maxwell Hairston injury, and more**\
+`Plus, an opportunity for Sedrick Van Pran-Granger at center.`\
+https://nytimes.com/athletic/6419884/2025/06/12/bills-day-2-minicamp-keon-coleman-maxwell-hairston/
+
+**Gavin Newsom on the L.A. Protests, Trump’s Response and Why It’s a Defining Moment for Democracy**\
+`California’s governor spoke with Michael Barbaro, the host of “The Daily,” about President Trump’s decision to mobilize the military over protests in Los Angeles against immigration raids.`\
+https://nytimes.com/video/podcasts/the-daily/100000010222740/gavin-newsom-on-the-la-protests-trumps-response-and-why-its-a-defining-moment-for-democracy.html
+
+**The New York Times International Edition in Print for Friday, June 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/12/todays-new-york-times-international-edition
+
+**Here’s the latest.**\
+`An Air India flight bound for London Gatwick Airport from Ahmedabad crashed shortly after takeoff, Indian officials said.`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/india-plane-crash-ahmedabad
+
 **Browns minicamp: QBs slowly making strides, Denzel Ward still in top form**\
 `Tracking Cleveland's quarterbacks two days into minicamp, how the wide receiver room has looked and more.`\
 https://nytimes.com/athletic/6419931/2025/06/12/browns-minicamp-denzel-ward-quarterbacks/

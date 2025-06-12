@@ -1,3 +1,7 @@
+**London-Bound Passenger Plane Crashes in Western India**\
+`Emergency crews were at the scene after an Air India plane with more than 200 people on board crashed near the airport in the western Indian city of Ahmedabad, according to India’s civil aviation minister.`\
+https://nytimes.com/video/world/asia/100000010223479/london-bound-passenger-plane-crashes-in-western-india.html
+
 **Live Updates: Passenger Plane Crashes in Western India**\
 `Air India Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about the number of people onboard.`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419408/2025/06/12/tigers-mlb-trade-deadline-primer
 **Here’s the latest.**\
 `An Air India flight bound for London Gatwick Airport from Ahmedabad crashed shortly after takeoff, Indian officials said.`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/india-plane-crash-ahmedabad
-
-**Adams: USMNT not worried about outside noise**\
-`The U.S. have now lost five of their 10 games under head coach Mauricio Pochettino, who was appointed in September.`\
-https://nytimes.com/athletic/6420931/2025/06/12/tyler-adams-usmnt-criticism/
 
