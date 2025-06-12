@@ -1,3 +1,11 @@
+**How many people have been arrested in the nationwide anti-ICE protests?**\
+`Police have arrested more than 1,000 people in the past week as civil unrest that began after immigration sweeps in Los Angeles spread to cities across the country.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/how-many-people-have-been-arrested-in-the-nationwide-anti-ice-protests
+
+**Missouri joins Texas in assembling National Guard troops.**\
+`Texas activated its National Guard earlier this week ahead of protests there. Missouri is following suit, “taking a proactive approach,” its governor says.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/missouri-joins-texas-in-assembling-national-guard-troops
+
 **Missouri joins Texas in assembling National Guard troops**\
 `Texas activated its National Guard earlier this week ahead of protests there. Missouri is following suit, “taking a proactive approach,” its governor says.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/missouri-joins-texas-in-assembling-national-guard-troops
