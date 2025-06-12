@@ -1,3 +1,7 @@
+**Bringing a Modern Sensibility to a Historical Drama**\
+`Anna Sawai and Hiroyuki Sanada, two stars of the hit series “Shogun,” discuss history, acting and what they’d bring to the present from feudal Japan.`\
+https://nytimes.com/2025/06/12/special-series/anna-sawa-hiroyuki-sanada-shogun-interview.html
+
 **The Bounce: How Tyrese Haliburton and the Pacers put all NBA Finals pressure on Thunder**\
 `Tyrese Haliburton took a lot of criticism after Game 2, but Indiana's Game 3 turnaround has put all the pressure on Oklahoma City`\
 https://nytimes.com/athletic/6421250/2025/06/12/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-the-bounce/
