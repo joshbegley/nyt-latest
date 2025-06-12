@@ -1,3 +1,7 @@
+**Michael Johnson’s Grand Slam Track cancels Los Angeles meet**\
+`The June 28-29 event at LA's Drake Stadium was the fourth and final meet of the inaugural season after the series began in April in Kingston`\
+https://nytimes.com/athletic/6421537/2025/06/12/grand-slam-track-los-angeles-cancelled-athletics/
+
 **New York Rangers' Chris Kreider traded to Anaheim Ducks for prospect**\
 `Kreider, coming off a disappointing season, has two years remaining on his contract.`\
 https://nytimes.com/athletic/6418037/2025/06/12/chris-kreider-trade-rangers-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/arts/music/brian-wilson-death-reactions-tributes.
 **People Can Be Identified by Breathing Patterns Alone, Scientists Find**\
 `Every breath you take, they really may be watching you.`\
 https://nytimes.com/2025/06/12/science/breath-print-mental-health.html
-
-**Google and U.S. Experts Join on A.I. Hurricane Forecasts**\
-`The National Hurricane Center will experiment with the company’s DeepMind program to enhance the work of its expert meteorologists.`\
-https://nytimes.com/2025/06/12/science/google-hurricane-ai.html
 
