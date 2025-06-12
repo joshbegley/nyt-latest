@@ -1,3 +1,15 @@
+**Oregon Wildfire Destroys Homes and Forces Evacuations**\
+`The Rowena Fire tripled in size Wednesday evening, destroying 20 homes.`\
+https://nytimes.com/2025/06/12/us/oregon-rowena-fire-evacuation.html
+
+**Thursday Briefing**\
+`Steps away from a U.S.-China trade war.`\
+https://nytimes.com/2025/06/12/briefing/china-trade-israel-iran.html
+
+**Red Sox takeaways: Marcelo Mayer homers twice, Walker Buehler strong in series win**\
+`Wednesday, Boston won its second series in a row against an AL East rival. Next up: its first home series against the Yankees. `\
+https://nytimes.com/athletic/6420571/2025/06/12/red-sox-rays-takeaways-marcelo-mayer-walker-buehler/
+
 **Byron Buxton's all-around effort leads Twins over Rangers; Jorge Alcala traded to Red Sox**\
 `Buxton showcased his remarkable skills: first with a diving catch to save a run and then hitting the longest home run of his career.`\
 https://nytimes.com/athletic/6420588/2025/06/12/byron-buxton-leads-twins-win-alcala-traded/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6418285/2025/06/12/newcastle-transfers-howe-mitchel
 **The Radar: The Athletic’s 2025 Club World Cup scouting guide**\
 `From Lionel Messi to Franco Mastantuono and Kylian Mbappe to Rodrigo Mora, we profile 50 players to watch at this summer's tournament`\
 https://nytimes.com/athletic/6404987/2025/06/12/club-world-cup-2025-player-guide-scouting/
-
-**Keepie-uppies, medical photos and when it goes wrong - the weird and wonderful world of Madrid presentations**\
-`Every player's first official day as a Madrid player is special, but what goes into a galactico's unveiling?`\
-https://nytimes.com/athletic/6416534/2025/06/12/real-madrid-presentations-alexander-arnold/
-
-**Pep Guardiola and the Manchester City rebuild that has echoes of summer 2017**\
-`If Guardiola is able to regenerate City after the first vulnerable period of his career, it would surely be his crowning achievement`\
-https://nytimes.com/athletic/6418599/2025/06/12/pep-guardiola-manchester-city-rebuild/
-
-**'This is what we strive for': Mets' David Peterson shuts out Nationals**\
-`Peterson allowed just six hits with no walks and struck out six in New York's 5-0 win over Washington.`\
-https://nytimes.com/athletic/6420574/2025/06/12/mets-david-peterson-shutout-win-nationals/
 
