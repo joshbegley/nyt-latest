@@ -1,3 +1,7 @@
+**Jackson Jobe's injury is another reminder of the perils MLB pitchers face**\
+`The Tigers' rookie is set to have Tommy John surgery. He's the latest in a long line of young pitchers who've fallen victim to injuries.`\
+https://nytimes.com/athletic/6420479/2025/06/11/detroit-tigers-mlb-pitching-injuries/
+
 **Courageous or Self-Righteous? Californians Evaluate Newsom’s Speech.**\
 `Elected officials, as well as social media influencers, had wide-ranging opinions of the governor’s prime time address warning that democracy is in danger.`\
 https://nytimes.com/2025/06/11/us/newsom-speech-react-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/arts/music/brian-wilson-pet-sounds.html
 **Trump’s Immigration Crackdown Hits California Farms**\
 `Farmworkers hid in fields on Tuesday as word spread that ICE agents were conducting raids in California’s breadbasket, an activist said.`\
 https://nytimes.com/2025/06/11/us/trump-ice-raids-california-farms.html
-
-**Defense Lawyers for Returned Deportee Ask Judge to Release Him Pretrial**\
-`The request came as lawyers in Kilmar Armando Abrego Garcia’s separate civil case were poised to ask a different judge to hold the Trump administration in contempt for sidestepping one of her orders.`\
-https://nytimes.com/2025/06/11/us/politics/abrego-garcia-release-pretrial.html
 

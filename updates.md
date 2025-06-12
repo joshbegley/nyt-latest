@@ -1,3 +1,7 @@
+**Jackson Jobe's injury is another reminder of the perils MLB pitchers face**\
+`The Tigers' rookie is set to have Tommy John surgery. He's the latest in a long line of young pitchers who've fallen victim to injuries.`\
+https://nytimes.com/athletic/6420479/2025/06/11/detroit-tigers-mlb-pitching-injuries/
+
 **Courageous or Self-Righteous? Californians Evaluate Newsom’s Speech.**\
 `Elected officials, as well as social media influencers, had wide-ranging opinions of the governor’s prime time address warning that democracy is in danger.`\
 https://nytimes.com/2025/06/11/us/newsom-speech-react-california.html
