@@ -1,3 +1,11 @@
+**Fantasy football 2025 dynasty running back rankings, from Bijan Robinson to Ty Chandler**\
+`Jeff Haverlack goes deep with his dynasty running back rankings, breaking 86 players into seven tiers, starting with Bijan Robinson.`\
+https://nytimes.com/athletic/6421890/2025/06/12/fantasy-football-2025-dynasty-running-back-rankings/
+
+**How the Air India Crash Compares With Other Deadly Plane Disasters**\
+`Plane travel is statistically one of the safest modes of travel. But when things goes wrong, the results are often disastrous.`\
+https://nytimes.com/2025/06/12/world/asia/deadliest-plane-crashes-air-india.html
+
 **For recovery and investigation of Air India crash, authorities contend with the risk of struck sites collapsing.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/air-india-recovery-workers-will-need-to-sift-through-ruins-without-toppling-buildings
