@@ -1,3 +1,11 @@
+**Michael Bradley named Red Bulls II manager**\
+`Bradley is going back to where it all began to kick off his managerial career.`\
+https://nytimes.com/athletic/6422047/2025/06/12/michael-bradley-red-bulls-ii-manager-mls-next-pro/
+
+**Trump Acknowledges Israel Could Attack Iran Soon**\
+`But President Trump cautioned that he does not want Israel to launch an attack while negotiations were going on.`\
+https://nytimes.com/2025/06/12/us/politics/trump-israel-iran.html
+
 **Fantasy football 2025 dynasty running back rankings, from Bijan Robinson to Ty Chandler**\
 `Jeff Haverlack goes deep with his dynasty running back rankings, breaking 86 players into seven tiers, starting with Bijan Robinson.`\
 https://nytimes.com/athletic/6421890/2025/06/12/fantasy-football-2025-dynasty-running-back-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6421950/2025/06/12/philadelphia-flyers-york-offseas
 **Flights Grounded at Boston’s Logan Airport After JetBlue Plane Rolls Off Runway**\
 `A ground stop was in place at the airport, its operator said, after a JetBlue plane veered into a grassy area after landing. There were no injuries, an official said.`\
 https://nytimes.com/2025/06/12/us/jetblue-logan-airport-boston.html
-
-**Alex Cooper says sexual harassment at BU 'still happening on that campus today'**\
-`Cooper said Thursday she has learned the issues continued long after she left the team in 2015 by Feldman's successor.`\
-https://nytimes.com/athletic/6421495/2025/06/12/alex-cooper-boston-university-sexual-harassment/
-
-**Watch: Pacers' depth makes all the difference in Game 3 against Thunder**\
-`NBA Daily discusses the Pacers' win over the Thunder, which put Indiana up 2-1 in the NBA Finals.`\
-https://nytimes.com/athletic/6421730/2025/06/12/pacers-bench-thunder-nba-finals-game-3/
 

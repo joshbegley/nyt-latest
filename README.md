@@ -1,3 +1,7 @@
+**Fantasy bullpen report featuring rising relievers Randy Rodríguez and Grant Taylor**\
+`Greg Jewett keeps fantasy baseball managers up to speed on all the latest reliever trends, including a notable breakout in San Francisco.`\
+https://nytimes.com/athletic/6422056/2025/06/12/fantasy-bullpen-report-risers-rodriguez-taylor/
+
 **Michael Bradley named Red Bulls II manager**\
 `Bradley is going back to where it all began to kick off his managerial career.`\
 https://nytimes.com/athletic/6422047/2025/06/12/michael-bradley-red-bulls-ii-manager-mls-next-pro/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421455/2025/06/12/nba-finals-thunder-pacers-game-4
 **What I'm hearing about Cam York and other Flyers offseason storylines**\
 `Don't look for any big-money free agents to come to Philadelphia this summer.`\
 https://nytimes.com/athletic/6421950/2025/06/12/philadelphia-flyers-york-offseason/
-
-**Flights Grounded at Boston’s Logan Airport After JetBlue Plane Rolls Off Runway**\
-`A ground stop was in place at the airport, its operator said, after a JetBlue plane veered into a grassy area after landing. There were no injuries, an official said.`\
-https://nytimes.com/2025/06/12/us/jetblue-logan-airport-boston.html
 

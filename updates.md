@@ -1,3 +1,11 @@
+**Michael Bradley named Red Bulls II manager**\
+`Bradley is going back to where it all began to kick off his managerial career.`\
+https://nytimes.com/athletic/6422047/2025/06/12/michael-bradley-red-bulls-ii-manager-mls-next-pro/
+
+**Trump Acknowledges Israel Could Attack Iran Soon**\
+`But President Trump cautioned that he does not want Israel to launch an attack while negotiations were going on.`\
+https://nytimes.com/2025/06/12/us/politics/trump-israel-iran.html
+
 **Fantasy football 2025 dynasty running back rankings, from Bijan Robinson to Ty Chandler**\
 `Jeff Haverlack goes deep with his dynasty running back rankings, breaking 86 players into seven tiers, starting with Bijan Robinson.`\
 https://nytimes.com/athletic/6421890/2025/06/12/fantasy-football-2025-dynasty-running-back-rankings/
