@@ -1,3 +1,11 @@
+**The Pacers are showing who they really are — and that they're for real**\
+`Game 3 revealed what the Pacers look like at their best. Dogged. Determined. And dominant when it matters most.`\
+https://nytimes.com/athletic/6420788/2025/06/12/pacers-first-nba-championship-belief/
+
+**The Pulse: The Pacers pounce, and the U.S. Open looks scary**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6419493/2025/06/12/pacers-thunder-game-3-the-pulse/
+
 **Japan Says Chinese Fighter Jet Flew Too Close to Its Military Plane**\
 `The maneuvers over international waters in the Pacific last weekend prompted Japanese officials to warn China not to repeat them and risk a collision.`\
 https://nytimes.com/2025/06/12/world/asia/japan-china-fighter-jet.html
