@@ -1,3 +1,15 @@
+**Trump Administration Sues New York Over Law Barring ICE From Courthouses**\
+`State lawmakers passed the ban in 2020 when President Trump in his first term escalated arrests of undocumented immigrants at state and local courts.`\
+https://nytimes.com/2025/06/12/nyregion/trump-ny-lawsuit-ice-courthouses.html
+
+**Senator Padilla Forcibly Removed After Confronting Noem**\
+`Senator Alex Padilla, Democrat of California, was forced to the floor, handcuffed and removed by federal agents after interrupting a news conference by homeland security secretary Kristi Noem on Thursday.`\
+https://nytimes.com/video/us/politics/100000010224871/padilla-noem-protest-la.html
+
+**Friday Briefing: Air India Crash Killed More Than 260 People**\
+`Plus, the pope’s diverse family tree.`\
+https://nytimes.com/2025/06/12/briefing/india-plane-crash-israel-iran-los-angeles.html
+
 **Father Charged in Death of Boy, 2, Found in River Under an N.Y.C. Bridge**\
 `On Wednesday, police divers pulled the body of Montrell Williams from the East River.`\
 https://nytimes.com/2025/06/12/nyregion/bronx-boy-east-river.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/arts/television/trump-oval-office-apprentice.html
 **F.A.A. Further Restricts Area Around Reagan Airport to Helicopters**\
 `The agency has taken steps to reduce the risk of midair collisions after a military helicopter struck a commercial flight in January, killing everyone on both crafts.`\
 https://nytimes.com/2025/06/12/us/politics/faa-reagan-airport.html
-
-**David H. Murdock, a Fierce Rags-to-Riches Corporate Raider, Dies at 102**\
-`He was a school dropout at 14 and homeless for a spell, but as a driven investor he became a billionaire. Later came another quest: to extend life through better nutrition.`\
-https://nytimes.com/2025/06/12/business/dealbook/david-h-murdock-dead.html
-
-**Jets stock report after minicamp: Wide receiver depth chart takes shape, position battles to watch**\
-`A look at who helped themselves and who hurt themselves this spring.`\
-https://nytimes.com/athletic/6422429/2025/06/12/jets-minicamp-practice-report-position-battles-update/
-
-**Lewis Hamilton backs under fire Fred Vasseur to lead Ferrari through struggles**\
-`After nine rounds, Ferrari has no grand prix victories. Hamilton says Vasseur “is the main reason I’m in this team”`\
-https://nytimes.com/athletic/6422601/2025/06/12/lewis-hamilton-fred-vasseur-ferrari/
 
