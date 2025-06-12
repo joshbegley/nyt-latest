@@ -1,3 +1,11 @@
+**Major Basketball Feat**\
+`Daniel Bodily’s puzzle scores.`\
+https://nytimes.com/2025/06/11/crosswords/daily-puzzle-2025-06-12.html
+
+**Chargers minicamp observations: Oronde Gadsden's big day, Justin Herbert speaks**\
+`Gadsden, a fifth-round pick rookie, looks like he could give the Chargers a playmaker at all three levels.`\
+https://nytimes.com/athletic/6420423/2025/06/11/chargers-minicamp-oronde-gadsden-justin-herbert/
+
 **Gaza Aid Group Says Hamas Attacked Its Palestinian Workers**\
 `The group, which has been harshly criticized by the U.N. and other aid providers, said at least five people had died in an attack on one of its buses.`\
 https://nytimes.com/2025/06/11/world/middleeast/gaza-aid-hamas-attack.html
