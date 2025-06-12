@@ -1,3 +1,15 @@
+**‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family**\
+`Viswash Kumar Ramesh, 38, who sustained multiple injuries, a doctor said, was the only passenger out of 242 people on board the plane to walk away.`\
+https://nytimes.com/2025/06/12/world/asia/viswash-kumar-ramesh-air-india-survivor.html
+
+**Raiders minicamp: Pete Carroll hoping reconfigured offensive line pays dividends**\
+`Despite signing veteran guard Alex Cappa and drafting several linemen, the Raiders hope improved coaching will make the unit better in 2025.`\
+https://nytimes.com/athletic/6422670/2025/06/12/raiders-minicamp-offensive-line/
+
+**Mets starter Kodai Senga headed to IL with hamstring strain**\
+`The right-hander with a 1.47 ERA suffered the injury covering first base on a grounder. What does this mean for New York's rotation?`\
+https://nytimes.com/athletic/6422634/2025/06/12/mets-kodai-senga-injury-hamstring/
+
 **Trump Administration Sues New York Over Law Barring ICE From Courthouses**\
 `State lawmakers passed the ban in 2020 when President Trump in his first term escalated arrests of undocumented immigrants at state and local courts.`\
 https://nytimes.com/2025/06/12/nyregion/trump-ny-lawsuit-ice-courthouses.html
