@@ -1,3 +1,11 @@
+**Cochrane to join Frank's backroom staff at Tottenham**\
+`Cochrane will be joined by coach Chris Haslam and analyst Joe Newton on the Dane's staff.`\
+https://nytimes.com/athletic/6421152/2025/06/12/tottenham-thomas-frank-coaching-staff-justin-cochrane/
+
+**West Ham United mailbag: Send your questions to Roshane Thomas now**\
+`Send in your questions now for Roshane Thomas and he’ll answer the best of them in a mailbag published next week`\
+https://nytimes.com/athletic/6421143/2025/06/12/west-ham-united-mailbag-questions/
+
 **Alexander-Arnold speaks in Spanish during Real Madrid unveiling**\
 `The 26-year-old went through the formalities of signing his new six-year contract alongside Madrid club president Florentino Perez.`\
 https://nytimes.com/athletic/6421013/2025/06/12/trent-spanish-real-madrid-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419166/2025/06/12/yankees-mlb-trade-deadline-story
 **'It's about everyone': How the Oilers are drawing inspiration from a resilient dog sled musher**\
 `A harrowing story from Jason Campeau, a former Iditarod competitor, has resonated with the Oilers during the playoffs.`\
 https://nytimes.com/athletic/6419862/2025/06/12/oilers-stanley-cup-dogsled-musher/
-
-**‘It might mean making the selection’: Would the Bruins would consider trading the No. 7 pick?**\
-`Sweeney: "We will use the draft capital and try to improve our hockey club this year and moving forward in every capacity possible."`\
-https://nytimes.com/athletic/6419669/2025/06/12/bruins-2025-draft-first-round-trade/
-
-**How Steelers OC Arthur Smith plans to evolve with Aaron Rodgers and DK Metcalf**\
-`How does a run-heavy offensive coordinator marry his offensive philosophy with a pass-happy QB? That is Smith's challenge with Rodgers.`\
-https://nytimes.com/athletic/6420389/2025/06/12/pittsburgh-steelers-arthur-smith-aaron-rodgers-dk-metcalf/
 

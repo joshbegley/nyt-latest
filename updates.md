@@ -1,3 +1,11 @@
+**Alexander-Arnold speaks in Spanish during Real Madrid unveiling**\
+`The 26-year-old went through the formalities of signing his new six-year contract alongside Madrid club president Florentino Perez.`\
+https://nytimes.com/athletic/6421013/2025/06/12/trent-spanish-real-madrid-transfers/
+
+**'It's about everyone': How the Oilers are drawing inspiration from a resilient dog sled musher**\
+`A harrowing story from Jason Campeau, a former Iditarod competitor, has resonated with the Oilers during the playoffs.`\
+https://nytimes.com/athletic/6419862/2025/06/12/oilers-stanley-cup-dogsled-musher/
+
 **Air India’s New Owners Have Been Trying to Upgrade and Expand the Carrier**\
 `The Tata Group, which bought the airline three years ago, has been trying to improve operations at a time of great change in India’s aviation market.`\
 https://nytimes.com/2025/06/12/world/asia/air-india-plane-crash-safety-tata-group.html
