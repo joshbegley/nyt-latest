@@ -1,3 +1,7 @@
+**A Christian Walker turnaround can change Astros' trade deadline priorities**\
+`Walker had four RBIs in Houston's win over the Chicago White Sox. Can he keep it going?`\
+https://nytimes.com/athletic/6420690/2025/06/12/christian-walker-astros-trade-deadline/
+
 **The New York Times in Print for Thursday, June 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/12/todays-new-york-times
