@@ -1,3 +1,7 @@
+**U.S. Customs and Border Protection removes CWC post amid FIFA concerns**\
+`The post centred around security measures for the first round of games of the tournament, which begins in Miami on Saturday.`\
+https://nytimes.com/athletic/6421295/2025/06/12/club-world-cup-security-fifa/
+
 **Bennedict Mathurin counted the days until his NBA Finals moment for the Pacers**\
 `Mathurin missed last year's Eastern Conference finals because of a torn labrum. In Game 3, he led the Pacers to a 2-1 finals series lead.`\
 https://nytimes.com/athletic/6421169/2025/06/12/bennedict-mathurin-pacers-thunder-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421339/2025/06/12/manchester-united-matheus-cunha-
 **48 thoughts on the Lions' defensive players and special teams unit**\
 `The Lions' defense is hoping for better fortune this season after sustaining a pile of injuries last season.`\
 https://nytimes.com/athletic/6417294/2025/06/12/lions-defense-special-teams-aidan-hutchinson/
-
-**Lapham’s Quarterly Will Begin Its Revival with Website and Podcast**\
-`Now attached to Bard College, the literary journal is about to publish new commentary and a popular historical feature. Next year: the print magazine.`\
-https://nytimes.com/2025/06/12/books/laphams-quarterly-relaunch.html
 
