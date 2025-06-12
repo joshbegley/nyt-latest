@@ -1,3 +1,15 @@
+**California Opens Investigation Into State Farm**\
+`The state’s insurance regulator says the volume of complaints against the company following this year’s catastrophic wildfires in Los Angeles prompted the inquiry.`\
+https://nytimes.com/2025/06/12/realestate/state-farm-california-insurance-investigation.html
+
+**Why the Pro-Palestinian Movement Features at Some Immigration Protests**\
+`The forces stirring action on the streets this week have been led by labor groups. But the voices at some rallies represent a wide range of causes.`\
+https://nytimes.com/2025/06/12/us/protests-immigration-palestinian.html
+
+**Winnipeg Jets’ Connor Hellebuyck wins rare Hart Trophy, Vezina Trophy combination**\
+`Hellebuyck led the NHL with 47 wins, eight shutouts and a 2.00 goals-against average.`\
+https://nytimes.com/athletic/6398783/2025/06/12/connor-hellebuyck-hart-vezina-trophy-nhl-awards-jets/
+
 **Rashawn Slater has 'full confidence' contract extension with Chargers will get done**\
 `Slater is set to play on his fifth-year option worth about $19 million. A market-level extension could pay him $28 million per year. `\
 https://nytimes.com/athletic/6422894/2025/06/12/rashawn-slater-chargers-contract-negotiations/
