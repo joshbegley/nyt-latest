@@ -1,3 +1,7 @@
+**Does Frank’s appointment move the needle for Spurs' 2025/26 top four odds?**\
+`Sam Tighe and Brett Koremenos explore whether Tottenham Hotspur’s appointment of Thomas Frank changes their odds of success.`\
+https://nytimes.com/athletic/6422501/2025/06/12/tottenham-hotspur-thomas-frank-betting-predictions-tips-odds/
+
 **‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family**\
 `Viswash Kumar Ramesh, 38, who sustained multiple injuries, a doctor said, was the only passenger out of 242 people on board the plane to walk away.`\
 https://nytimes.com/2025/06/12/world/asia/viswash-kumar-ramesh-air-india-survivor.html

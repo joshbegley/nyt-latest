@@ -1,3 +1,7 @@
+**Does Frank’s appointment move the needle for Spurs' 2025/26 top four odds?**\
+`Sam Tighe and Brett Koremenos explore whether Tottenham Hotspur’s appointment of Thomas Frank changes their odds of success.`\
+https://nytimes.com/athletic/6422501/2025/06/12/tottenham-hotspur-thomas-frank-betting-predictions-tips-odds/
+
 **‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family**\
 `Viswash Kumar Ramesh, 38, who sustained multiple injuries, a doctor said, was the only passenger out of 242 people on board the plane to walk away.`\
 https://nytimes.com/2025/06/12/world/asia/viswash-kumar-ramesh-air-india-survivor.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/12/us/house-rescissions-vote.html
 **‘The Survivors’ Is a Polished and Potent Murder Mystery**\
 `Based on the book by Jane Harper, this six-part Australian drama takes place in a coastal Tasmanian town, where the bodies keep surfacing.`\
 https://nytimes.com/2025/06/12/arts/television/the-survivors-netflix-australian.html
-
-**Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests**\
-`“I don’t feel like a king, I have to go through hell to get stuff approved,” President Trump said of the planned demonstrations against his administration.`\
-https://nytimes.com/2025/06/12/us/politics/trump-no-kings-protests.html
 
