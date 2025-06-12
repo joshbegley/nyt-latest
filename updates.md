@@ -1,3 +1,19 @@
+**Padres MLB trade deadline primer: 3 early storylines to watch**\
+`The baseball industry has learned not to underestimate A.J. Preller during trade season or, for that matter, at any time on the calendar.`\
+https://nytimes.com/athletic/6417966/2025/06/12/padres-mlb-trade-deadline-primer/
+
+**48 thoughts on the Lions' defensive players and special teams unit**\
+`The Lions' defense is hoping for better fortune this season after sustaining a pile of injuries last season.`\
+https://nytimes.com/athletic/6417294/2025/06/12/lions-defense-special-teams-aidan-hutchinson/
+
+**Lapham’s Quarterly Will Begin Its Revival with Website and Podcast**\
+`Now attached to Bard College, the literary journal is about to publish new commentary and a popular historical feature. Next year: the print magazine.`\
+https://nytimes.com/2025/06/12/books/laphams-quarterly-relaunch.html
+
+**At the Scene of the Deadly Air India Crash**\
+`A passenger flight traveling from Ahmedabad, a city in western India, to London crashed shortly after takeoff.`\
+https://nytimes.com/2025/06/12/world/europe/air-india-crash-photos.html
+
 **Boeing’s Dreamliner was the subject of safety concerns but never had a crash before Thursday.**\
 `In a statement, Boeing said that it was aware of the crash on the Air India flight and was “working to gather more information.”`\
 https://nytimes.com/2025/06/12/business/boeings-dreamliner-was-the-subject-of-safety-concerns-but-never-had-a-crash-before-thursday.html
