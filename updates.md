@@ -1,3 +1,19 @@
+**John Wells, 64, Who Fled New York for the Solitude of the Desert, Dies**\
+`A fashion photographer, he built a do-it-yourself life on 40 lonely acres in West Texas, living like a modern-day Thoreau and telling millions of his experience on a blog.`\
+https://nytimes.com/2025/06/12/style/john-wells-dead.html
+
+**NASCAR's big lift to race in Mexico City: A 2,100-mile journey months in the making**\
+`NASCAR's Mexico City race weekend, its first international Cup Series event since 1958, came with a unique set of challenges.`\
+https://nytimes.com/athletic/6420125/2025/06/12/nascar-mexico-city-race-setup-haul/
+
+**Man City reach agreement with Rosenborg to sign Nypan**\
+`A fee of £12.5million (€14.6m) has been agreed with no further contingencies or sell-on clauses.`\
+https://nytimes.com/athletic/6421257/2025/06/12/man-city-nypan-transfer-fee/
+
+**Transfers TLDR: Trent Alexander-Arnold to Real Madrid – all you need to know**\
+`The England international defender is now officially a Madrid player after leaving Liverpool – we break down the deal...`\
+https://nytimes.com/athletic/6419206/2025/06/12/trent-alexander-arnold-real-madrid-transfer/
+
 **Transfers TLDR: Trent Alexander-Arnold to Real Madrid – all you need to know**\
 `Trent Alexander-Arnold is now a Real Madrid player after leaving Liverpool – here we break down the deal`\
 https://nytimes.com/athletic/6419206/2025/06/12/trent-alexander-arnold-real-madrid-transfer/
