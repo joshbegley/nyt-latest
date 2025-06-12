@@ -1,3 +1,11 @@
+**With communities ‘in fear,’ officials across the L.A. area call on Trump to stop the raids.**\
+`By Ashley Ahn and Shawn Hubler`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/with-communities-in-fear-officials-across-the-la-area-call-on-trump-to-stop-the-raids
+
+**How the Beach Boys’ ‘Pet Sounds’ Entered the Pop Music Pantheon. (Eventually.)**\
+`Brian Wilson’s 1966 masterpiece is now considered a crowning achievement of music. The album’s reputation grew over time.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-pet-sounds.html
+
 **Trump’s Immigration Crackdown Hits California Farms**\
 `Farmworkers hid in fields on Tuesday as word spread that ICE agents were conducting raids in California’s breadbasket, an activist said.`\
 https://nytimes.com/2025/06/11/us/trump-ice-raids-california-farms.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-
 **Duffy Backs Safety Audit After Deadly Crash Near National Airport**\
 `An investigation will examine what could have prevented an Army Black Hawk helicopter from ramming into an American Airlines flight on Jan. 29, killing all on board both aircraft.`\
 https://nytimes.com/2025/06/11/us/politics/duffy-backs-safety-audit-after-deadly-crash-near-national-airport.html
-
-**'It just feels so much different': Blue Jays keep winning, putting 2024 far behind them**\
-`“It's the most fun we've had as a group, so far this year and in past years,” Ernie Clement said.`\
-https://nytimes.com/athletic/6420160/2025/06/11/blue-jays-keep-winning-2024-behind-them/
-
-**Cardinals takeaways: 3 trends to watch after St. Louis is swept by Blue Jays**\
-`Wednesday marked the third time the Cardinals have been swept this season and dropped their record to 36-32.`\
-https://nytimes.com/athletic/6419490/2025/06/11/cardinals-swept-by-blue-jays-takeaways/
 

@@ -1,3 +1,11 @@
+**With communities ‘in fear,’ officials across the L.A. area call on Trump to stop the raids.**\
+`By Ashley Ahn and Shawn Hubler`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/with-communities-in-fear-officials-across-the-la-area-call-on-trump-to-stop-the-raids
+
+**How the Beach Boys’ ‘Pet Sounds’ Entered the Pop Music Pantheon. (Eventually.)**\
+`Brian Wilson’s 1966 masterpiece is now considered a crowning achievement of music. The album’s reputation grew over time.`\
+https://nytimes.com/2025/06/11/arts/music/brian-wilson-pet-sounds.html
+
 **Trump’s Immigration Crackdown Hits California Farms**\
 `Farmworkers hid in fields on Tuesday as word spread that ICE agents were conducting raids in California’s breadbasket, an activist said.`\
 https://nytimes.com/2025/06/11/us/trump-ice-raids-california-farms.html
