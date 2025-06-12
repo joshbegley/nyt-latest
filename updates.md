@@ -1,3 +1,8 @@
+**Comprehensive betting guide to the 2025 FIFA Club World Cup**\
+`Sam Tighe and Brett Koremenos provide a comprehensive betting preview of the 2025 FIFA Club World Cup. 
+`\
+https://nytimes.com/athletic/6419349/2025/06/12/club-world-cup-betting-preview-predictions-odds/
+
 **10 Questions With Scott Stringer**\
 `Scott Stringer, the former New York City comptroller who is running for mayor, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/12/nyregion/scott-stringer-interview.html
