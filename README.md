@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6419931/2025/06/12/browns-minicamp-denzel-ward-quar
 https://nytimes.com/athletic/6419408/2025/06/12/tigers-mlb-trade-deadline-primer-3-early-storylines-to-watch/
 
 **Passenger Plane Crashes in Western India**\
-`Air India, India’s flag carrier, confirmed an incident involving its Flight AI171 from the western city of Ahmedabad to London Gatwick Airport.`\
+`An Air India flight bound for London Gatwick Airport from Ahmedabad crashed shortly after takeoff, Indian officials said.`\
 https://nytimes.com/2025/06/12/world/asia/india-plane-crash-ahmedabad.html
 
 **Adams: USMNT not worried about outside noise**\
