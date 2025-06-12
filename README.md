@@ -1,3 +1,11 @@
+**How Ohio State will handle revenue sharing, NIL with 36 varsity sports**\
+`AD Ross Bjork said Ohio State will not cut any sports teams but $18 million will be shared between football, basketball and volleyball.`\
+https://nytimes.com/athletic/6422712/2025/06/12/ohio-state-revenue-sharing-nil-ross-bjork/
+
+**Denny Hamlin to skip Mexico City NASCAR race due to birth of his son**\
+`Ryan Truex, JGR’s reserve driver, will step in to drive No. 11 car as Hamlin will miss his first race since 2014.`\
+https://nytimes.com/athletic/6422844/2025/06/12/nascar-denny-hamlin-miss-race-mexico-city/
+
 **Trump Tells Farmers ‘Changes Are Coming’ to Immigration Crackdown**\
 `President Trump’s statement suggested his sweeping policies were alienating industries he wants to keep in his corner.`\
 https://nytimes.com/2025/06/12/us/politics/trump-farmers-hotels-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/nyregion/adrienne-adams-nyc-mayor-debate.html
 **Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
 `By Annie Karni`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth
-
-**The primary has narrowed into a two-person race.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-narrowed-into-a-two-person-race
-
-**Here’s the latest.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/heres-the-latest
 
