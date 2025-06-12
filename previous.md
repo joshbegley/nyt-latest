@@ -1,3 +1,7 @@
+**Beach Boys’ Brian Wilson Dies at 82**\
+`Brian Wilson, leader and chief songwriter of The Beach Boys, wrote several hits in the 1960s, a musical counterpart to the myth of Southern California as paradise.`\
+https://nytimes.com/video/obituaries/100000010222701/brian-wilson-beach-boys-obituary.html
+
 **David Hogg to Exit D.N.C. After Backlash to His Primary Plan**\
 `Mr. Hogg said he would not run again for vice chair after the party voted for a new election. Democrats have been furious at his plan to challenge the party’s sitting lawmakers in primary races.`\
 https://nytimes.com/2025/06/11/us/politics/david-hogg-dnc-democrats.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
 https://nytimes.com/athletic/6420007/2025/06/11/nhl-trades-free-agency-kreider-marchand-tavares/
 
 **New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
-`If a handshake agreement holds, it would merely undo some of the damage from the trade war that President Trump started.`\
+`If a handshake agreement holds, it will merely undo some of the damage from the trade war that President Trump started.`\
 https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html
 
 **In Trump’s Washington, ‘You Don’t Leave Home Without Your Lawyer’**\
 `There’s a lot of work for lawyers in the nation’s capital these days: Over 400 lawsuits have been filed against President Trump’s administration since the start of his second term.`\
 https://nytimes.com/2025/06/11/us/politics/trump-lawsuits-lawyers.html
-
-**Suggesting More Troops in More Cities, Trump Bends Military’s Role**\
-`President Trump has expanded domestic use of the armed forces, testing the limits on involving troops at protests and the border.`\
-https://nytimes.com/2025/06/11/us/politics/trump-domestic-military-expansion.html
 

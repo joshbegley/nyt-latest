@@ -1,3 +1,15 @@
+**Duffy Backs Safety Audit After Deadly Crash Near National Airport**\
+`An investigation will examine what could have prevented an Army Black Hawk helicopter from ramming into an American Airlines flight on Jan. 29, killing all on board both aircraft.`\
+https://nytimes.com/2025/06/11/us/politics/duffy-backs-safety-audit-after-deadly-crash-near-national-airport.html
+
+**'It just feels so much different': Blue Jays keep winning, putting 2024 far behind them**\
+`“It's the most fun we've had as a group, so far this year and in past years,” Ernie Clement said.`\
+https://nytimes.com/athletic/6420160/2025/06/11/blue-jays-keep-winning-2024-behind-them/
+
+**Cardinals takeaways: 3 trends to watch after St. Louis is swept by Blue Jays**\
+`Wednesday marked the third time the Cardinals have been swept this season and dropped their record to 36-32.`\
+https://nytimes.com/athletic/6419490/2025/06/11/cardinals-swept-by-blue-jays-takeaways/
+
 **Beach Boys’ Brian Wilson Dies at 82**\
 `Brian Wilson, leader and chief songwriter of The Beach Boys, wrote several hits in the 1960s, a musical counterpart to the myth of Southern California as paradise.`\
 https://nytimes.com/video/obituaries/100000010222701/brian-wilson-beach-boys-obituary.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.htm
 **Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
 `Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
 https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
-
-**NHL rumblings: Latest on Kreider, Marchand, Tavares, Pettersson, more as the summer market heats up**\
-`With a few days off in the Stanley Cup Final, we also check in on the Blackhawks, Kings, Hurricanes, Jonathan Toews watch and more.`\
-https://nytimes.com/athletic/6420007/2025/06/11/nhl-trades-free-agency-kreider-marchand-tavares/
-
-**New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
-`If a handshake agreement holds, it will merely undo some of the damage from the trade war that President Trump started.`\
-https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html
-
-**In Trump’s Washington, ‘You Don’t Leave Home Without Your Lawyer’**\
-`There’s a lot of work for lawyers in the nation’s capital these days: Over 400 lawsuits have been filed against President Trump’s administration since the start of his second term.`\
-https://nytimes.com/2025/06/11/us/politics/trump-lawsuits-lawyers.html
 
