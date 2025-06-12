@@ -1,3 +1,15 @@
+**De Bruyne joins Napoli after Man City exit**\
+`De Bruyne announced in April that he would be leaving City at the end of the season after 10 years at the club.`\
+https://nytimes.com/athletic/6286466/2025/06/12/kevin-de-bruyne-napoli-transfer/
+
+**Supreme Court Revives Suit From Victims of Botched F.B.I. Raid**\
+`Lower courts ruled in favor of agents who had used a battering ram and a flash-bang grenade in mistakenly raiding the home of an Atlanta couple.`\
+https://nytimes.com/2025/06/12/us/politics/supreme-court-fbi-raid.html
+
+**How the Air India Plane Crashed: Maps and Photos**\
+`​​Maps show how an Air India flight carrying 242 passengers and crew members crashed in the city of Ahmedabad shortly after taking off.`\
+https://nytimes.com/interactive/2025/06/12/world/asia/india-plane-crash-map.html
+
 **Bengals' Shemar Stewart leaves minicamp over unsigned contract**\
 `Stewart departed camp so he wouldn't be a distraction to his teammates while dealing with his contract, a league source said.`\
 https://nytimes.com/athletic/6421460/2025/06/12/shemar-stewart-bengals-contract-minicamp/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/us/politics/democrats-california-protests-trump.h
 **Bringing a Modern Sensibility to a Historical Drama**\
 `Anna Sawai and Hiroyuki Sanada, two stars of the hit series “Shogun,” discuss history, acting and what they’d bring to the present from feudal Japan.`\
 https://nytimes.com/2025/06/12/special-series/anna-sawa-hiroyuki-sanada-shogun-interview.html
-
-**The Bounce: How Tyrese Haliburton and the Pacers put all NBA Finals pressure on Thunder**\
-`Tyrese Haliburton took a lot of criticism after Game 2, but Indiana's Game 3 turnaround has put all the pressure on Oklahoma City`\
-https://nytimes.com/athletic/6421250/2025/06/12/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-the-bounce/
-
-**U.S. Customs and Border Protection removes CWC post amid FIFA concerns**\
-`The post centred around security measures for the first round of games of the tournament, which begins in Miami on Saturday.`\
-https://nytimes.com/athletic/6421295/2025/06/12/club-world-cup-security-fifa/
-
-**Bennedict Mathurin counted the days until his NBA Finals moment for the Pacers**\
-`Mathurin missed last year's Eastern Conference finals because of a torn labrum. In Game 3, he led the Pacers to a 2-1 finals series lead.`\
-https://nytimes.com/athletic/6421169/2025/06/12/bennedict-mathurin-pacers-thunder-game-3/
 

@@ -1,3 +1,15 @@
+**De Bruyne joins Napoli after Man City exit**\
+`De Bruyne announced in April that he would be leaving City at the end of the season after 10 years at the club.`\
+https://nytimes.com/athletic/6286466/2025/06/12/kevin-de-bruyne-napoli-transfer/
+
+**Supreme Court Revives Suit From Victims of Botched F.B.I. Raid**\
+`Lower courts ruled in favor of agents who had used a battering ram and a flash-bang grenade in mistakenly raiding the home of an Atlanta couple.`\
+https://nytimes.com/2025/06/12/us/politics/supreme-court-fbi-raid.html
+
+**How the Air India Plane Crashed: Maps and Photos**\
+`​​Maps show how an Air India flight carrying 242 passengers and crew members crashed in the city of Ahmedabad shortly after taking off.`\
+https://nytimes.com/interactive/2025/06/12/world/asia/india-plane-crash-map.html
+
 **Bengals' Shemar Stewart leaves minicamp over unsigned contract**\
 `Stewart departed camp so he wouldn't be a distraction to his teammates while dealing with his contract, a league source said.`\
 https://nytimes.com/athletic/6421460/2025/06/12/shemar-stewart-bengals-contract-minicamp/
