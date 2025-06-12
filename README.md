@@ -1,3 +1,7 @@
+**Courageous or Self-Righteous? Californians Evaluate Newsom’s Speech.**\
+`Elected officials, as well as social media influencers, had wide-ranging opinions of the governor’s prime time address warning that democracy is in danger.`\
+https://nytimes.com/2025/06/11/us/newsom-speech-react-california.html
+
 **The Rapper Silentó Gets 30 Years in Prison for Fatal Shooting of His Cousin**\
 `The songwriter, whose real name is Ricky Hawk, pleaded guilty to voluntary manslaughter and three other charges in relation to the killing.`\
 https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/us/trump-ice-raids-california-farms.html
 **Defense Lawyers for Returned Deportee Ask Judge to Release Him Pretrial**\
 `The request came as lawyers in Kilmar Armando Abrego Garcia’s separate civil case were poised to ask a different judge to hold the Trump administration in contempt for sidestepping one of her orders.`\
 https://nytimes.com/2025/06/11/us/politics/abrego-garcia-release-pretrial.html
-
-**Dodger Details: Ben Casparius' new role, star check-ins and more**\
-`The Dodgers might need more starts from Casparius. He says he's ready for the challenge.`\
-https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
 
