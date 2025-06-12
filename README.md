@@ -1,3 +1,7 @@
+**How Companies Are Bracing for Trump’s Immigration Crackdown**\
+`Sectors including construction, hospitality, health care and manufacturing are on high alert. Economists are worried about the labor market and growth.`\
+https://nytimes.com/2025/06/12/business/dealbook/companies-trump-immigration-crackdown.html
+
 **Meter, a Networking Start-Up, Raises New Funds**\
 `The company has collected $170 million in new capital as it seeks to help connect data centers and other businesses in the age of artificial intelligence.`\
 https://nytimes.com/2025/06/12/business/dealbook/meter-networking-fundraise.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419458/2025/06/12/canucks-nhl-draft-first-pick-tra
 **USMNT 2026 World Cup squad projection: Pochettino's depth chart by position**\
 `A year out from the World Cup, the USMNT's player pool is top heavy and lacking real depth. Here's how we see the squad shaping up`\
 https://nytimes.com/athletic/6419213/2025/06/12/usmnt-2026-world-cup-squad-projection-pochettino-depth-chart-position/
-
-**Should the Senators target Marco Rossi this offseason? Mailbag, Part 1**\
-`Plus, is this Senators team good enough to go past the first round of the playoffs next year?`\
-https://nytimes.com/athletic/6411998/2025/06/12/senators-offseason-mailbag-rossi-yakemchuk/
 
