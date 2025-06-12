@@ -1,3 +1,7 @@
+**Trump’s Immigration P.R. Campaign Enters a New Militarized Phase**\
+`The government’s visuals appear intended to persuade migrants without legal status to leave the country, while also making clear the administration will not tolerate resistance.`\
+https://nytimes.com/2025/06/12/us/politics/trump-immigration-pr-campaign.html
+
 **TPG, Sequoia and Others Invest $250 Million in Elon Musk’s xAI**\
 `Two dozen venture capital firms and other investors are investing in xAI, the artificial intelligence and social media company.`\
 https://nytimes.com/2025/06/12/business/xai-elon-musk-investors.html

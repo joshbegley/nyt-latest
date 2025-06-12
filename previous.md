@@ -1,3 +1,7 @@
+**Trump’s Immigration P.R. Campaign Enters a New Militarized Phase**\
+`The government’s visuals appear intended to persuade migrants without legal status to leave the country, while also making clear the administration will not tolerate resistance.`\
+https://nytimes.com/2025/06/12/us/politics/trump-immigration-pr-campaign.html
+
 **TPG, Sequoia and Others Invest $250 Million in Elon Musk’s xAI**\
 `Two dozen venture capital firms and other investors are investing in xAI, the artificial intelligence and social media company.`\
 https://nytimes.com/2025/06/12/business/xai-elon-musk-investors.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/closet-organizing-ideas
 **Senator Alex Padilla Forcibly Removed and Handcuffed After Interrupting Noem**\
 `Mr. Padilla, Democrat of California, was shoved out of a room and handcuffed after he disrupted Kristi Noem, the Homeland Security secretary, during a news conference.`\
 https://nytimes.com/2025/06/12/us/politics/senator-alex-padilla-handcuffed.html
-
-**G.O.P. Senators Want Fewer Cuts to Food Aid, Teeing Up a Fight with the House**\
-`Republicans whose constituents rely on nutritional assistance worry that cuts to those programs approved by the House will saddle their states with huge costs and harm low-income children.`\
-https://nytimes.com/2025/06/12/us/politics/republican-senators-food-aid.html
 
