@@ -7,7 +7,7 @@ https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
 https://nytimes.com/2025/06/11/crosswords/daily-puzzle-2025-06-12.html
 
 **Chargers minicamp observations: Oronde Gadsden's big day, Justin Herbert speaks**\
-`Gadsden, a fifth-round pick rookie, looks like he could give the Chargers a playmaker at all three levels.`\
+`Gadsden, a rookie drafted in the fifth round, looks like he could give the Chargers a playmaker at all three levels.`\
 https://nytimes.com/athletic/6420423/2025/06/11/chargers-minicamp-oronde-gadsden-justin-herbert/
 
 **Gaza Aid Group Says Hamas Attacked Its Palestinian Workers**\

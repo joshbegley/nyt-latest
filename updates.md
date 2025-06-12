@@ -1,3 +1,7 @@
+**Chargers minicamp observations: Oronde Gadsden's big day, Justin Herbert speaks**\
+`Gadsden, a rookie drafted in the fifth round, looks like he could give the Chargers a playmaker at all three levels.`\
+https://nytimes.com/athletic/6420423/2025/06/11/chargers-minicamp-oronde-gadsden-justin-herbert/
+
 **The Rapper Silentó Gets 30 Years in Prison for Fatal Shooting of His Cousin**\
 `The songwriter, whose real name is Ricky Hawk, pleaded guilty to voluntary manslaughter and three other charges in relation to the killing.`\
 https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
