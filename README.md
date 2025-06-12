@@ -1,3 +1,7 @@
+**New York Rangers' Chris Kreider traded to Anaheim Ducks for prospect**\
+`Kreider, coming off a disappointing season, has two years remaining on his contract.`\
+https://nytimes.com/athletic/6418037/2025/06/12/chris-kreider-trade-rangers-ducks/
+
 **Pulisic has his say as USMNT past, present debate his summer decision**\
 `The USMNT star broke his silence after being the focus of debate for skipping this summer's Concacaf Gold Cup.`\
 https://nytimes.com/athletic/6420518/2025/06/12/christian-pulisic-comments-landon-donovan-usmnt-pochettino-gold-cup/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6420518/2025/06/12/christian-pulisic-comments-lando
 `Disability rights groups had followed the case closely, warning that arguments by the school district could threaten broader protections for people with disabilities.`\
 https://nytimes.com/2025/06/12/us/supreme-court-school-disability.html
 
-**Anze Kopitar wins NHL's Lady Byng Memorial Trophy for second time**\
+**Anze Kopitar wins NHL's Lady Byng Memorial Trophy for third time**\
 `The award is given to the player who "combines sportsmanship, gentlemanly conduct, and high playing ability."`\
 https://nytimes.com/athletic/6400639/2025/06/12/anze-kopitar-lady-byng-nhl-award/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/science/breath-print-mental-health.html
 **Google and U.S. Experts Join on A.I. Hurricane Forecasts**\
 `The National Hurricane Center will experiment with the company’s DeepMind program to enhance the work of its expert meteorologists.`\
 https://nytimes.com/2025/06/12/science/google-hurricane-ai.html
-
-**This Dinner Has Been Right in Front of You All This Time**\
-`Chile-crisp chickpea rice bowls are effortless, lovable and come together with things you most likely already have.`\
-https://nytimes.com/2025/06/12/dining/chile-crisp-chickpea-rice-bowls-and-more-cheap-recipes.html
 
