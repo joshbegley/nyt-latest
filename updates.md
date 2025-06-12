@@ -1,3 +1,7 @@
+**Bench carries Pacers to victory in first NBA Finals game in Indiana since 2000**\
+`All-Star Tyrese Haliburton had his best game of the series, and underdog Indiana is now two wins away from its first championship.`\
+https://nytimes.com/athletic/6420525/2025/06/11/thunder-pacers-nba-finals-bennedict-mathurin-tj-mcconnell/
+
 **Jackson Jobe's injury is another reminder of the perils MLB pitchers face**\
 `The Tigers' rookie is set to have Tommy John surgery. He's the latest in a long line of young pitchers who've fallen victim to injuries.`\
 https://nytimes.com/athletic/6420479/2025/06/11/detroit-tigers-mlb-pitching-injuries/
