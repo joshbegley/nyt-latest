@@ -1,3 +1,7 @@
+**Police on foot and horseback disperse protesters in downtown Los Angeles.**\
+`The mood of a downtown march against immigration raids was initially joyous. It soured as the police forced the crowd to splinter.`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/police-on-foot-and-horseback-disperse-protesters-in-downtown-los-angeles
+
 **A Christian Walker turnaround can change Astros' trade deadline priorities**\
 `Walker had four RBIs in Houston's win over the Chicago White Sox. Can he keep it going?`\
 https://nytimes.com/athletic/6420690/2025/06/12/christian-walker-astros-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6418548/2025/06/12/jeremy-monga-scholarship-contrac
 **Begovic: 'Pickford has been the best goalkeeper in the Premier League for five years'**\
 `The Bosnia goalkeeper's second spell at Everton is coming to an end - despite the off-field chaos at the club he looks back with fondness`\
 https://nytimes.com/athletic/6418535/2025/06/12/asmir-begovic-interview-everton-pickford-moyes-coleman/
-
-**Rodrygo, Gordon or Williams? Analysing Arsenal's wide attacker options**\
-`Mikel Arteta's side have been linked with three high-quality wing options. Here's how each one could improve them in their different ways...`\
-https://nytimes.com/athletic/6415554/2025/06/12/arsenal-transfers-rodrygo-williams-gordon/
 
