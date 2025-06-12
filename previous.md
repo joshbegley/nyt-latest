@@ -1,3 +1,27 @@
+**Bengals' Shemar Stewart leaves minicamp over unsigned contract**\
+`Stewart departed camp so he wouldn't be a distraction to his teammates while dealing with his contract, a league source said.`\
+https://nytimes.com/athletic/6421460/2025/06/12/shemar-stewart-bengals-contract-minicamp/
+
+**Canadiens likely to continue mining NHL Draft for size, physicality**\
+`Over the past two drafts, the Canadiens have demonstrated they have a type at forward. And that type is available in this draft.`\
+https://nytimes.com/athletic/6420784/2025/06/12/canadiens-nhl-draft-targets/
+
+**Red Light: The Oilers need a statement game. Plus: The goalie conundrum**\
+`The Oilers need a win in Game 4 tonight against the Panthers and have a choice to make in goal.`\
+https://nytimes.com/athletic/6421506/2025/06/12/red-light-oilers-panthers-game-4/
+
+**Why Israel May Be Considering an Attack on Iran**\
+`Prime Minister Benjamin Netanyahu has vowed to prevent Tehran, “one way or the other,” from building a nuclear bomb.`\
+https://nytimes.com/article/israel-iran-attack-why.html
+
+**Chaos at Air India Crash Site**\
+`Firefighters raced to douse smoking buildings as emergency workers recovered the bodies of victims after a deadly passenger plane crash in India.`\
+https://nytimes.com/2025/06/12/world/asia/air-india-plane-crash-site.html
+
+**How the 2020 George Floyd Protests Are Haunting Democrats in 2025**\
+`No longer demanding cuts to police budgets or straining to show solidarity with protesters, Democrats are taking a far more cautious approach.`\
+https://nytimes.com/2025/06/12/us/politics/democrats-california-protests-trump.html
+
 **Bringing a Modern Sensibility to a Historical Drama**\
 `Anna Sawai and Hiroyuki Sanada, two stars of the hit series “Shogun,” discuss history, acting and what they’d bring to the present from feudal Japan.`\
 https://nytimes.com/2025/06/12/special-series/anna-sawa-hiroyuki-sanada-shogun-interview.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6421295/2025/06/12/club-world-cup-security-fifa/
 **Bennedict Mathurin counted the days until his NBA Finals moment for the Pacers**\
 `Mathurin missed last year's Eastern Conference finals because of a torn labrum. In Game 3, he led the Pacers to a 2-1 finals series lead.`\
 https://nytimes.com/athletic/6421169/2025/06/12/bennedict-mathurin-pacers-thunder-game-3/
-
-**London-Bound Air India Passenger Plane Crashes With 242 Onboard**\
-`The flight crashed in the western Indian city of Ahmedabad shortly after taking off for London Gatwick Airport.`\
-https://nytimes.com/video/world/asia/100000010223543/london-bound-air-india-passenger-plane-crashes-with-242-onboard.html
-
-**Celtic make approach for Nordsjaelland midfielder Nygren**\
-`The 23-year-old midfielder has six months remaining on his contract and has interest from clubs in the top five leagues`\
-https://nytimes.com/athletic/6421359/2025/06/12/celtic-transfer-news-nygren/
-
-**Why the Orlando Magic's bold pinstripes are back for good**\
-`Bold pinstripes are back in Orlando, but in a way that gives the new generation its own identity beyond Shaq and Penny nostalgia `\
-https://nytimes.com/athletic/6420534/2025/06/12/orlando-magic-uniforms-jerseys/
-
-**Wimbledon chiefs say replacing line judges was 'inevitable' ahead of 2025 event**\
-`The tournament also confirmed prize money increases for 2025, with the singles winners getting £3 million ($4.1 million) each.`\
-https://nytimes.com/athletic/6421206/2025/06/12/wimbledon-line-judges-replaced-electronic-line-calling/
-
-**The Real-Life Dating Boot Camp That Inspired ‘Love on the Spectrum’**\
-`When U.C.L.A. psychologists first proposed teaching adults with autism how to date, funders wouldn’t go near it. Now we are in a new world.`\
-https://nytimes.com/2025/06/12/health/autism-dating-ucla-love-on-the-spectrum.html
-
-**Padres MLB trade deadline primer: 3 early storylines to watch**\
-`The baseball industry has learned not to underestimate A.J. Preller during trade season or, for that matter, at any time on the calendar.`\
-https://nytimes.com/athletic/6417966/2025/06/12/padres-mlb-trade-deadline-primer/
 
