@@ -1,3 +1,15 @@
+**Trump Administration Sues New York Over Law Barring ICE From Courthouses**\
+`State lawmakers passed the ban in 2020 when President Trump in his first term escalated arrests of undocumented immigrants at state and local courts.`\
+https://nytimes.com/2025/06/12/nyregion/trump-ny-lawsuit-ice-courthouses.html
+
+**Senator Padilla Forcibly Removed After Confronting Noem**\
+`Senator Alex Padilla, Democrat of California, was forced to the floor, handcuffed and removed by federal agents after interrupting a news conference by homeland security secretary Kristi Noem on Thursday.`\
+https://nytimes.com/video/us/politics/100000010224871/padilla-noem-protest-la.html
+
+**Friday Briefing: Air India Crash Killed More Than 260 People**\
+`Plus, the pope’s diverse family tree.`\
+https://nytimes.com/2025/06/12/briefing/india-plane-crash-israel-iran-los-angeles.html
+
 **Father Charged in Death of Boy, 2, Found in River Under an N.Y.C. Bridge**\
 `On Wednesday, police divers pulled the body of Montrell Williams from the East River.`\
 https://nytimes.com/2025/06/12/nyregion/bronx-boy-east-river.html
