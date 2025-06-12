@@ -1,3 +1,11 @@
+**Newcastle's summer transfer strategy: Are fans right to worry about the lack of activity?**\
+`The club have not yet made a senior signing, while other top teams have been recruiting heavily. Is that a cause for concern?`\
+https://nytimes.com/athletic/6418285/2025/06/12/newcastle-transfers-howe-mitchell-eales/
+
+**The Radar: The Athletic’s 2025 Club World Cup scouting guide**\
+`From Lionel Messi to Franco Mastantuono and Kylian Mbappe to Rodrigo Mora, we profile 50 players to watch at this summer's tournament`\
+https://nytimes.com/athletic/6404987/2025/06/12/club-world-cup-2025-player-guide-scouting/
+
 **Keepie-uppies, medical photos and when it goes wrong - the weird and wonderful world of Madrid presentations**\
 `Every player's first official day as a Madrid player is special, but what goes into a galactico's unveiling?`\
 https://nytimes.com/athletic/6416534/2025/06/12/real-madrid-presentations-alexander-arnold/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/theater/angry-alan-review-john-krasinski-explores
 **Church Leaders Shaken After a Man Was Detained in Their Parking Lot**\
 `At a Southern California church, pastors said that they believe a federal immigration raid unfolded on their property with no explanation.`\
 https://nytimes.com/2025/06/11/us/la-protests-ice-raids-church-arrest.html
-
-**Quote of the Day: Beach Boys Lead Who Molded Carefree Sun-and-Surf Sound**\
-`Quotation of the Day for Thursday, June 12, 2025.`\
-https://nytimes.com/2025/06/11/pageoneplus/quote-of-the-day-beach-boys-lead-who-molded-carefree-sun-and-surf-sound.html
-
-**Tyrese Haliburton, Pacers bench carry Indiana to Game 3 victory against Thunder**\
-`The All-Star guard had his best game of the NBA Finals, and reserve Bennedict Mathurin scored a game-high 27 for underdog Indiana.`\
-https://nytimes.com/athletic/6420525/2025/06/11/thunder-pacers-nba-finals-bennedict-mathurin-tj-mcconnell/
 

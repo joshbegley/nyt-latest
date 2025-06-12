@@ -1,3 +1,15 @@
+**Keepie-uppies, medical photos and when it goes wrong - the weird and wonderful world of Madrid presentations**\
+`Every player's first official day as a Madrid player is special, but what goes into a galactico's unveiling?`\
+https://nytimes.com/athletic/6416534/2025/06/12/real-madrid-presentations-alexander-arnold/
+
+**Pep Guardiola and the Manchester City rebuild that has echoes of summer 2017**\
+`If Guardiola is able to regenerate City after the first vulnerable period of his career, it would surely be his crowning achievement`\
+https://nytimes.com/athletic/6418599/2025/06/12/pep-guardiola-manchester-city-rebuild/
+
+**'This is what we strive for': Mets' David Peterson shuts out Nationals**\
+`Peterson allowed just six hits with no walks and struck out six in New York's 5-0 win over Washington.`\
+https://nytimes.com/athletic/6420574/2025/06/12/mets-david-peterson-shutout-win-nationals/
+
 **Connections: Sports Edition Coach: Hints for June 12, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6420406/2025/06/12/connections-sports-edition-hints-for-june-12-2025/
