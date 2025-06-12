@@ -1,3 +1,7 @@
+**Byron Buxton's all-around effort leads Twins over Rangers; Jorge Alcala traded to Red Sox**\
+`Buxton showcased his remarkable skills: first with a diving catch to save a run and then hitting the longest home run of his career.`\
+https://nytimes.com/athletic/6420588/2025/06/12/byron-buxton-leads-twins-win-alcala-traded/
+
 **Liverpool and the homegrown player rule: Is there an issue and who could suffer?**\
 `League rules restrict the number of non-homegrown players who can be registered in a squad, and Liverpool are in a state of flux`\
 https://nytimes.com/athletic/6413245/2025/06/12/liverpool-homegrown-player-rule-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6418599/2025/06/12/pep-guardiola-manchester-city-re
 **'This is what we strive for': Mets' David Peterson shuts out Nationals**\
 `Peterson allowed just six hits with no walks and struck out six in New York's 5-0 win over Washington.`\
 https://nytimes.com/athletic/6420574/2025/06/12/mets-david-peterson-shutout-win-nationals/
-
-**Connections: Sports Edition Coach: Hints for June 12, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6420406/2025/06/12/connections-sports-edition-hints-for-june-12-2025/
 
