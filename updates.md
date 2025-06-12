@@ -1,3 +1,7 @@
+**Wimbledon chiefs say replacing line judges was 'inevitable' ahead of 2025 event**\
+`The tournament also confirmed prize money increases for 2025, with the singles winners getting £3 million ($4.1 million) each.`\
+https://nytimes.com/athletic/6421206/2025/06/12/wimbledon-line-judges-replaced-electronic-line-calling/
+
 **Bennedict Mathurin counted the days until his NBA Finals moment for the Pacers**\
 `Mathurin missed last year's Eastern Conference finals because of a torn labrum. In Game 3, he led the Pacers to a 2-1 finals series lead.`\
 https://nytimes.com/athletic/6421169/2025/06/12/bennedict-mathurin-pacers-thunder-game-3/
