@@ -1,3 +1,7 @@
+**Liverpool and the homegrown player rule: Is there an issue and who could suffer?**\
+`League rules restrict the number of non-homegrown players who can be registered in a squad, and Liverpool are in a state of flux`\
+https://nytimes.com/athletic/6413245/2025/06/12/liverpool-homegrown-player-rule-squad/
+
 **Jeremy Monga's Leicester City future: Where do the club stand after 15-year-old commits to 2026 pro deal?**\
 `Monga, who became the second-youngest Premier League player last season, has agreed a scholarship deal that will become a pro contract `\
 https://nytimes.com/athletic/6418548/2025/06/12/jeremy-monga-scholarship-contract-leicester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420574/2025/06/12/mets-david-peterson-shutout-win-
 **Connections: Sports Edition Coach: Hints for June 12, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6420406/2025/06/12/connections-sports-edition-hints-for-june-12-2025/
-
-**Corrections: June 12, 2025**\
-`Corrections that appeared in print on Thursday, June 12, 2025.`\
-https://nytimes.com/2025/06/12/pageoneplus/corrections-june-12-2025.html
 
