@@ -1,3 +1,7 @@
+**Defense Lawyers for Returned Deportee Ask Judge to Release Him Pretrial**\
+`The request came as lawyers in Kilmar Armando Abrego Garcia’s separate civil case were poised to ask a different judge to hold the Trump administration in contempt for sidestepping one of her orders.`\
+https://nytimes.com/2025/06/11/us/politics/abrego-garcia-release-pretrial.html
+
 **Dodger Details: Ben Casparius' new role, star check-ins and more**\
 `The Dodgers might need more starts from Ben Casparius. He says he's ready for the challenge.`\
 https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419490/2025/06/11/cardinals-swept-by-blue-jays-tak
 **Beach Boys’ Brian Wilson Dies at 82**\
 `Brian Wilson, leader and chief songwriter of The Beach Boys, wrote several hits in the 1960s, a musical counterpart to the myth of Southern California as paradise.`\
 https://nytimes.com/video/obituaries/100000010222701/brian-wilson-beach-boys-obituary.html
-
-**David Hogg to Exit D.N.C. After Backlash to His Primary Plan**\
-`Mr. Hogg said he would not run again for vice chair after the party voted for a new election. Democrats have been furious at his plan to challenge the party’s sitting lawmakers in primary races.`\
-https://nytimes.com/2025/06/11/us/politics/david-hogg-dnc-democrats.html
 

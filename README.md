@@ -1,9 +1,13 @@
+**Trump’s Immigration Crackdown Hits California Farms**\
+`Farmworkers hid in fields on Tuesday as word spread that ICE agents were conducting raids in California’s breadbasket, an activist said.`\
+https://nytimes.com/2025/06/11/us/trump-ice-raids-california-farms.html
+
 **Defense Lawyers for Returned Deportee Ask Judge to Release Him Pretrial**\
 `The request came as lawyers in Kilmar Armando Abrego Garcia’s separate civil case were poised to ask a different judge to hold the Trump administration in contempt for sidestepping one of her orders.`\
 https://nytimes.com/2025/06/11/us/politics/abrego-garcia-release-pretrial.html
 
 **Dodger Details: Ben Casparius' new role, star check-ins and more**\
-`The Dodgers might need more starts from Ben Casparius. He says he's ready for the challenge.`\
+`The Dodgers might need more starts from Casparius. He says he's ready for the challenge.`\
 https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
 
 **Giants place catcher Patrick Bailey on IL with neck strain**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420160/2025/06/11/blue-jays-keep-winning-2024-behi
 **Cardinals takeaways: 3 trends to watch after St. Louis is swept by Blue Jays**\
 `Wednesday marked the third time the Cardinals have been swept this season and dropped their record to 36-32.`\
 https://nytimes.com/athletic/6419490/2025/06/11/cardinals-swept-by-blue-jays-takeaways/
-
-**Beach Boys’ Brian Wilson Dies at 82**\
-`Brian Wilson, leader and chief songwriter of The Beach Boys, wrote several hits in the 1960s, a musical counterpart to the myth of Southern California as paradise.`\
-https://nytimes.com/video/obituaries/100000010222701/brian-wilson-beach-boys-obituary.html
 
