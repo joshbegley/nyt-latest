@@ -1,3 +1,7 @@
+**Word of the Day: stultify**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/12/learning/word-of-the-day-stultify.html
+
 **Police on foot and horseback disperse protesters in downtown Los Angeles.**\
 `The mood of a downtown march against immigration raids was initially joyous. It soured as the police forced the crowd to splinter.`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/police-on-foot-and-horseback-disperse-protesters-in-downtown-los-angeles
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6413245/2025/06/12/liverpool-homegrown-player-rule-
 **Jeremy Monga's Leicester City future: Where do the club stand after 15-year-old commits to 2026 pro deal?**\
 `Monga, who became the second-youngest Premier League player last season, has agreed a scholarship deal that will become a pro contract `\
 https://nytimes.com/athletic/6418548/2025/06/12/jeremy-monga-scholarship-contract-leicester-city/
-
-**Begovic: 'Pickford has been the best goalkeeper in the Premier League for five years'**\
-`The Bosnia goalkeeper's second spell at Everton is coming to an end - despite the off-field chaos at the club he looks back with fondness`\
-https://nytimes.com/athletic/6418535/2025/06/12/asmir-begovic-interview-everton-pickford-moyes-coleman/
 
