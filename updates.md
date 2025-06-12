@@ -1,3 +1,7 @@
+**Giants place catcher Patrick Bailey on IL with neck strain**\
+`"Seems like it comes in waves," Giants manager Bob Melvin said of injuries.`\
+https://nytimes.com/athletic/6420312/2025/06/11/giants-catcher-patrick-bailey-il-neck-strain/
+
 **Where People Are Protesting Against Immigration Raids**\
 `Demonstrations are not only in Los Angeles. They have cropped up in cities across the country.`\
 https://nytimes.com/2025/06/11/us/us-protest-tracker-trump-ice.html
