@@ -1,3 +1,7 @@
+**A Scandal-Plagued Meatpacking Giant Comes to the U.S. Stock Market**\
+`JBS, the biggest meatpacker in the world, is set to go public on the New York Stock Exchange this week.`\
+https://nytimes.com/2025/06/12/climate/jbs-new-york-stock-exchange-listing.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2025/06/12/books/review/new-books-recommendations.html
