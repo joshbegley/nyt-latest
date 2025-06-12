@@ -1,3 +1,7 @@
+**For recovery and investigation of Air India crash, authorities contend with the risk of struck sites collapsing.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/air-india-recovery-workers-will-need-to-sift-through-ruins-without-toppling-buildings
+
 **Senate Confirms Billy Long to Lead I.R.S., Ignoring Troubled Tax Credit History**\
 `The former Republican congressman and auctioneer also had a brief career selling tax credits, including one that the I.R.S. said did not exist and another it said was rife with fraud.`\
 https://nytimes.com/2025/06/12/us/politics/billy-long-irs-commissioner-confirmation.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6421455/2025/06/12/nba-finals-thunder-pacers-game-4
 https://nytimes.com/athletic/6421950/2025/06/12/philadelphia-flyers-york-offseason/
 
 **Flights Grounded at Boston’s Logan Airport After JetBlue Plane Rolls Off Runway**\
-`A ground stop was in place at the airport, its operator said, after a JetBlue plane rolled into a grassy area after landing. There were no injuries, an official said.`\
+`A ground stop was in place at the airport, its operator said, after a JetBlue plane veered into a grassy area after landing. There were no injuries, an official said.`\
 https://nytimes.com/2025/06/12/us/jetblue-logan-airport-boston.html
 
 **Alex Cooper says sexual harassment at BU 'still happening on that campus today'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6422129/2025/06/12/burnley-owner-stake-espanyol/
 **A Night Out for Trump at the Theater, With a Pocket of Dissent**\
 `Opening night of “Les Misérables” was meant to celebrate the president’s takeover of the Kennedy Center. But he also was forced to encounter his critics.`\
 https://nytimes.com/2025/06/12/us/politics/trump-les-miserables.html
-
-**Federal Judge Will Hear Arguments Over Troop Deployment in California**\
-`Lawyers for the Trump administration and Gov. Gavin Newsom will make their case in a Thursday afternoon hearing in San Francisco.`\
-https://nytimes.com/2025/06/12/us/politics/la-protests-trump-hearing-marines-national-guard.html
 

@@ -1,3 +1,7 @@
+**How the Air India Crash Compares With Other Deadly Plane Disasters**\
+`Plane travel is statistically one of the safest modes of travel. But when things goes wrong, the results are often disastrous.`\
+https://nytimes.com/2025/06/12/world/asia/deadliest-plane-crashes-air-india.html
+
 **For recovery and investigation of Air India crash, authorities contend with the risk of struck sites collapsing.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/air-india-recovery-workers-will-need-to-sift-through-ruins-without-toppling-buildings
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421730/2025/06/12/pacers-bench-thunder-nba-finals-
 **Burnley owners ALK Capital in talks over buying Espanyol stake**\
 `If a deal can be reached, Espanyol would be the second club linked to ALK Capital.`\
 https://nytimes.com/athletic/6422129/2025/06/12/burnley-owner-stake-espanyol/
-
-**A Night Out for Trump at the Theater, With a Pocket of Dissent**\
-`Opening night of “Les Misérables” was meant to celebrate the president’s takeover of the Kennedy Center. But he also was forced to encounter his critics.`\
-https://nytimes.com/2025/06/12/us/politics/trump-les-miserables.html
 

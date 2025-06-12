@@ -1,3 +1,11 @@
+**For recovery and investigation of Air India crash, authorities contend with the risk of struck sites collapsing.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/air-india-recovery-workers-will-need-to-sift-through-ruins-without-toppling-buildings
+
+**Flights Grounded at Boston’s Logan Airport After JetBlue Plane Rolls Off Runway**\
+`A ground stop was in place at the airport, its operator said, after a JetBlue plane veered into a grassy area after landing. There were no injuries, an official said.`\
+https://nytimes.com/2025/06/12/us/jetblue-logan-airport-boston.html
+
 **Senate Confirms Billy Long to Lead I.R.S., Ignoring Troubled Tax Credit History**\
 `The former Republican congressman and auctioneer also had a brief career selling tax credits, including one that the I.R.S. said did not exist and another it said was rife with fraud.`\
 https://nytimes.com/2025/06/12/us/politics/billy-long-irs-commissioner-confirmation.html
