@@ -1,5 +1,29 @@
+**Connections: Sports Edition Coach: Hints for June 12, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6420406/2025/06/12/connections-sports-edition-hints-for-june-12-2025/
+
+**Corrections: June 12, 2025**\
+`Corrections that appeared in print on Thursday, June 12, 2025.`\
+https://nytimes.com/2025/06/12/pageoneplus/corrections-june-12-2025.html
+
+**How Washington Has Tried to Control China’s Tech**\
+`Under three presidential administrations, officials in Washington have used export controls to hold back China’s access to advanced technology.`\
+https://nytimes.com/2025/06/12/business/washington-china-export-controls-tech-huawei.html
+
+**‘Angry Alan’ Review: John Krasinski Explores the Manosphere**\
+`In an Off Broadway play, the former Jim Halpert of Dunder Mifflin dives into a darker world of male grievance.`\
+https://nytimes.com/2025/06/12/theater/angry-alan-review-john-krasinski-explores-the-manosphere.html
+
+**Church Leaders Shaken After a Man Was Detained in Their Parking Lot**\
+`At a Southern California church, pastors said that they believe a federal immigration raid unfolded on their property with no explanation.`\
+https://nytimes.com/2025/06/11/us/la-protests-ice-raids-church-arrest.html
+
+**Quote of the Day: Beach Boys Lead Who Molded Carefree Sun-and-Surf Sound**\
+`Quotation of the Day for Thursday, June 12, 2025.`\
+https://nytimes.com/2025/06/11/pageoneplus/quote-of-the-day-beach-boys-lead-who-molded-carefree-sun-and-surf-sound.html
+
 **Tyrese Haliburton, Pacers bench carry Indiana to Game 3 victory against Thunder**\
-`The All-Star guard had his best game of the NBA Finals, and Bennedict Mathurin scored a game-high 27 for underdog Indiana.`\
+`The All-Star guard had his best game of the NBA Finals, and reserve Bennedict Mathurin scored a game-high 27 for underdog Indiana.`\
 https://nytimes.com/athletic/6420525/2025/06/11/thunder-pacers-nba-finals-bennedict-mathurin-tj-mcconnell/
 
 **Jackson Jobe's injury is another reminder of the perils MLB pitchers face**\
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/11/us/newsom-speech-react-california.html
 **The Rapper Silentó Gets 30 Years in Prison for Fatal Shooting of His Cousin**\
 `The songwriter, whose real name is Ricky Hawk, pleaded guilty to voluntary manslaughter and three other charges in relation to the killing.`\
 https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
-
-**Major Basketball Feat**\
-`Daniel Bodily’s puzzle scores.`\
-https://nytimes.com/2025/06/11/crosswords/daily-puzzle-2025-06-12.html
-
-**Chargers minicamp observations: Oronde Gadsden's big day, Justin Herbert speaks**\
-`Gadsden, a rookie drafted in the fifth round, looks like he could give the Chargers a playmaker at all three levels.`\
-https://nytimes.com/athletic/6420423/2025/06/11/chargers-minicamp-oronde-gadsden-justin-herbert/
-
-**Gaza Aid Group Says Hamas Attacked Its Palestinian Workers**\
-`The group, which has been harshly criticized by the U.N. and other aid providers, said at least five people had died in an attack on one of its buses.`\
-https://nytimes.com/2025/06/11/world/middleeast/gaza-aid-hamas-attack.html
-
-**Pentagon Is Reviewing Deal to Equip Australia With Nuclear Submarines**\
-`The 2021 pact, meant to help counter China’s ambitions in the Asia Pacific, will be examined to ensure that it meets “America First criteria,” a U.S. official said.`\
-https://nytimes.com/2025/06/11/world/asia/australia-nuclear-submarines-trump.html
-
-**With communities ‘in fear,’ officials across the L.A. area call on Trump to stop the raids.**\
-`By Ashley Ahn and Shawn Hubler`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/with-communities-in-fear-officials-across-the-la-area-call-on-trump-to-stop-the-raids
-
-**How the Beach Boys’ ‘Pet Sounds’ Entered the Pop Music Pantheon. (Eventually.)**\
-`Brian Wilson’s 1966 masterpiece is now considered a crowning achievement of music. The album’s reputation grew over time.`\
-https://nytimes.com/2025/06/11/arts/music/brian-wilson-pet-sounds.html
 

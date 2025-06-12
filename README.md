@@ -1,3 +1,11 @@
+**Pep Guardiola and the Manchester City rebuild that has echoes of summer 2017**\
+`If Guardiola is able to regenerate City after the first vulnerable period of his career, it would surely be his crowning achievement`\
+https://nytimes.com/athletic/6418599/2025/06/12/pep-guardiola-manchester-city-rebuild/
+
+**'This is what we strive for': Mets' David Peterson shuts out Nationals**\
+`Peterson allowed just six hits with no walks and struck out six in New York's 5-0 win over Washington.`\
+https://nytimes.com/athletic/6420574/2025/06/12/mets-david-peterson-shutout-win-nationals/
+
 **Connections: Sports Edition Coach: Hints for June 12, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6420406/2025/06/12/connections-sports-edition-hints-for-june-12-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6420525/2025/06/11/thunder-pacers-nba-finals-benned
 **Jackson Jobe's injury is another reminder of the perils MLB pitchers face**\
 `The Tigers' rookie is set to have Tommy John surgery. He's the latest in a long line of young pitchers who've fallen victim to injuries.`\
 https://nytimes.com/athletic/6420479/2025/06/11/detroit-tigers-mlb-pitching-injuries/
-
-**Courageous or Self-Righteous? Californians Evaluate Newsom’s Speech.**\
-`Elected officials, as well as social media influencers, had wide-ranging opinions of the governor’s prime time address warning that democracy is in danger.`\
-https://nytimes.com/2025/06/11/us/newsom-speech-react-california.html
-
-**The Rapper Silentó Gets 30 Years in Prison for Fatal Shooting of His Cousin**\
-`The songwriter, whose real name is Ricky Hawk, pleaded guilty to voluntary manslaughter and three other charges in relation to the killing.`\
-https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
 
