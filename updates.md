@@ -1,3 +1,11 @@
+**Trump’s Immigration Crackdown Hits California Farms**\
+`Farmworkers hid in fields on Tuesday as word spread that ICE agents were conducting raids in California’s breadbasket, an activist said.`\
+https://nytimes.com/2025/06/11/us/trump-ice-raids-california-farms.html
+
+**Dodger Details: Ben Casparius' new role, star check-ins and more**\
+`The Dodgers might need more starts from Casparius. He says he's ready for the challenge.`\
+https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
+
 **Defense Lawyers for Returned Deportee Ask Judge to Release Him Pretrial**\
 `The request came as lawyers in Kilmar Armando Abrego Garcia’s separate civil case were poised to ask a different judge to hold the Trump administration in contempt for sidestepping one of her orders.`\
 https://nytimes.com/2025/06/11/us/politics/abrego-garcia-release-pretrial.html
