@@ -1,3 +1,8 @@
+**Comprehensive betting guide to the 2025 FIFA Club World Cup**\
+`Sam Tighe and Brett Koremenos provide a comprehensive betting preview of the 2025 FIFA Club World Cup. 
+`\
+https://nytimes.com/athletic/6419349/2025/06/12/club-world-cup-betting-preview-predictions-odds/
+
 **Poland head coach resigns following Lewandowski ultimatum on international exile**\
 `Lewandowski said he had a "loss of trust" in the management and would not play for the nation again until a coaching change.`\
 https://nytimes.com/athletic/6420925/2025/06/12/poland-coach-robert-lewandowski-retirement/

@@ -1,41 +1,40 @@
-**Poland head coach resigns following Lewandowski ultimatum on international exile**\
-`Lewandowski said he had a "loss of trust" in the management and would not play for the nation again until a coaching change.`\
-https://nytimes.com/athletic/6420925/2025/06/12/poland-coach-robert-lewandowski-retirement/
+**Adams: USMNT not worried about outside noise**\
+`The U.S. have now lost five of their 10 games under head coach Mauricio Pochettino, who was appointed in September.`\
+https://nytimes.com/athletic/6420931/2025/06/12/tyler-adams-usmnt-criticism/
 
-**Late Night Pokes Fun at Trump’s Idiotic Idiom**\
-`Hosts ripped into his comment during a speech to troops about former President Joe Biden never having been “the sharpest bulb.”`\
-https://nytimes.com/2025/06/12/arts/television/desi-lydic-trump-military-parade.html
+**Inside Our Voters’ Guide to New York’s Democratic Primary**\
+`We asked New Yorkers to rate the mayoral candidates. Here’s why.`\
+https://nytimes.com/2025/06/12/opinion/nytimes-nyc-mayor-election.html
 
-**10 Questions With Scott Stringer**\
-`Scott Stringer, the former New York City comptroller who is running for mayor, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/12/nyregion/scott-stringer-interview.html
+**U.N. Watchdog Rules That Iran Is Not Complying With Nuclear Obligations**\
+`The International Atomic Energy Agency decision comes as American and European officials say they believe that Israel is preparing to launch a military attack on Iran.`\
+https://nytimes.com/2025/06/12/world/middleeast/un-iaea-iran-nuclear-program.html
 
-**After a Wild Day in Court, Weinstein Jurors Will Resume Deliberations**\
-`On Wednesday, the jury convicted Harvey Weinstein of one felony sex crime. The judge sent jurors home to cool off after their discussions devolved into threats and yelling.`\
-https://nytimes.com/2025/06/12/nyregion/harvey-weinstein-sex-crimes-trial.html
+**Patriots stock report: Efton Chism and other risers and fallers after spring practices**\
+`Who makes the roster won't be shaped much by OTAs and minicamp, but the spring can impact where players stand heading into training camp.`\
+https://nytimes.com/athletic/6419008/2025/06/12/patriots-minicamp-efton-chism-risers-fallers/
 
-**Comprehensive betting guide to the 2025 FIFA Club World Cup**\
-`Sam Tighe and Brett Koremenos provide a comprehensive betting preview of the 2025 FIFA Club World Cup. 
-`\
-https://nytimes.com/athletic/6419349/2025/06/12/club-world-cup-betting-preview-predictions-odds/
+**The Biggest Issues Facing New York City Right Now**\
+`From housing to public safety, if the city is going to be a better place to live, the next mayor must address these key issues.`\
+https://nytimes.com/interactive/2025/06/12/opinion/issues-nyc-mayor-election.html
 
-**Inside a Courthouse, Chaos and Tears as Trump Accelerates Deportations**\
-`Immigration courtrooms in New York City have emerged as a flashpoint, with masked agents making surprise arrests of immigrants who have appeared for routine hearings and check-ins.`\
-https://nytimes.com/2025/06/12/nyregion/immigration-courthouse-arrests-trump-deportation.html
+**New Queer Nonfiction to Read This Pride Month**\
+`Plus: a cliff-top hotel in Brittany, dynamic sculptures at New York’s Japan Society and more recommendations from T Magazine.`\
+https://nytimes.com/2025/06/12/t-magazine/new-queer-nonfiction-books.html
 
-**Piecing Together the Story of a Would-Be Assassin**\
-`How did Thomas Crooks, who tried to kill Donald J. Trump at a rally last July, go from engineering student to gunman? Times reporters investigated.`\
-https://nytimes.com/2025/06/12/insider/piecing-together-the-story-of-a-would-be-assassin.html
+**Black and Latino Leaders Condemn Trump’s Use of Military in L.A.**\
+`The leaders described President Trump’s actions as a clear attempt to attack communities of color.`\
+https://nytimes.com/2025/06/12/us/trump-protests-la-immigrants-civil-rights-leaders.html
 
-**Mamdani’s Delicate Quest to Become New York City’s First Muslim Mayor**\
-`As he leans into his Muslim faith, Assemblyman Zohran Mamdani’s positions on the Israel-Gaza war have drawn criticism from across the political spectrum.`\
-https://nytimes.com/2025/06/12/nyregion/zohran-mamdani-muslim-mayor.html
+**Brian Wilson and Sly Stone: Pop World Builders Dogged by Darkness**\
+`Two of music’s powerful visionaries died this week. The songs they meticulously constructed offered an escape their makers struggled to realize in their own lives.`\
+https://nytimes.com/2025/06/12/arts/music/brian-wilson-sly-stone.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/12/crosswords/spelling-bee-forum.html
+**Cuomo and Mamdani Trade Attacks Over Trump Ahead of Debate**\
+`The two front-runners in the New York City mayor’s race are using President Trump and the volatile immigration protests in Los Angeles as late-stage campaign issues.`\
+https://nytimes.com/2025/06/12/nyregion/cuomo-mamdani-debate.html
 
-**Word of the Day: stultify**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/12/learning/word-of-the-day-stultify.html
+**Cowboys minicamp: Jake Ferguson, George Pickens shine on Day 2; ping pong duels intensify**\
+`Pickens looks like a difference-maker in minicamp while Ferguson eyes getting back into the end zone after a TD-less 2024 season.`\
+https://nytimes.com/athletic/6419759/2025/06/12/cowboys-minicamp-george-pickens-jake-ferguson-parsons/
 
