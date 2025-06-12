@@ -1,3 +1,19 @@
+**Lawyers for Returned Deportee Seek Sanctions Against Trump Officials**\
+`Kilmar Armando Abrego Garcia’s lawyers asked the judge in the case to appoint a special master to investigate the failure by Trump officials to comply with her instructions.`\
+https://nytimes.com/2025/06/12/us/politics/abrego-garcia-sanctions.html
+
+**Manchester City director James Smith set to return to Everton in recruitment role**\
+`Smith was Everton’s head of technical scouting from 2003 during David Moyes' first spell in charge.`\
+https://nytimes.com/athletic/6394418/2025/06/12/everton-james-smith-man-city/
+
+**Michael Johnson’s Grand Slam Track cancels Los Angeles meet**\
+`The June 28-29 event at LA's Drake Stadium was the fourth and final meet of the inaugural season after the series began in April in Kingston`\
+https://nytimes.com/athletic/6421537/2025/06/12/grand-slam-track-los-angeles-cancelled-athletics/
+
+**NWSL, WNBA unions release joint statement in response to immigration raids across U.S.**\
+`NWSLPA executive director Meghann Burke said, "What’s happening in LA is clearly an immigration issue, but it goes even beyond that."`\
+https://nytimes.com/athletic/6421588/2025/06/12/nwsl-wnba-unions-joint-statement-immigration-raids/
+
 **New York Rangers' Chris Kreider traded to Anaheim Ducks for prospect**\
 `Kreider, coming off a disappointing season, has two years remaining on his contract.`\
 https://nytimes.com/athletic/6418037/2025/06/12/chris-kreider-trade-rangers-ducks/

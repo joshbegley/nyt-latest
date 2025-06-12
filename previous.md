@@ -1,3 +1,15 @@
+**Lawyers for Returned Deportee Seek Sanctions Against Trump Officials**\
+`Kilmar Armando Abrego Garcia’s lawyers asked the judge in the case to appoint a special master to investigate the failure by Trump officials to comply with her instructions.`\
+https://nytimes.com/2025/06/12/us/politics/abrego-garcia-sanctions.html
+
+**Manchester City director James Smith set to return to Everton in recruitment role**\
+`Smith was Everton’s head of technical scouting from 2003 during David Moyes' first spell in charge.`\
+https://nytimes.com/athletic/6394418/2025/06/12/everton-james-smith-man-city/
+
+**Michael Johnson’s Grand Slam Track cancels Los Angeles meet**\
+`The June 28-29 event at LA's Drake Stadium was the fourth and final meet of the inaugural season after the series began in April in Kingston`\
+https://nytimes.com/athletic/6421537/2025/06/12/grand-slam-track-los-angeles-cancelled-athletics/
+
 **New York Rangers' Chris Kreider traded to Anaheim Ducks for prospect**\
 `Kreider, coming off a disappointing season, has two years remaining on his contract.`\
 https://nytimes.com/athletic/6418037/2025/06/12/chris-kreider-trade-rangers-ducks/
@@ -14,8 +26,8 @@ https://nytimes.com/2025/06/12/us/supreme-court-school-disability.html
 `The award is given to the player who "combines sportsmanship, gentlemanly conduct, and high playing ability."`\
 https://nytimes.com/athletic/6400639/2025/06/12/anze-kopitar-lady-byng-nhl-award/
 
-**NWSL and WNBA unions release joint statement in response to immigration raids across the U.S.**\
-`NWSLPA Executive Director Meghann Burke said, "What’s happening in LA is clearly an immigration issue, but it goes even beyond that."`\
+**NWSL, WNBA unions release joint statement in response to immigration raids across U.S.**\
+`NWSLPA executive director Meghann Burke said, "What’s happening in LA is clearly an immigration issue, but it goes even beyond that."`\
 https://nytimes.com/athletic/6421588/2025/06/12/nwsl-wnba-unions-joint-statement-immigration-raids/
 
 **Brewers pitcher Aaron Civale asks to be traded after move to bullpen**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6421629/2025/06/12/aaron-civale-milwaukee-brewers-t
 **Five Key Discoveries in the Family Tree of Pope Leo XIV**\
 `We went back 500 years and found his connection to some fascinating people.`\
 https://nytimes.com/2025/06/12/magazine/pope-leo-xiv-family-tree-takeaways.html
-
-**Paul McCartney, Carole King and Others Pay Tribute to Brian Wilson**\
-`Wilson, whose death was announced on Wednesday, leaves behind an immense musical legacy that spans several decades. King and others share how his music shaped them.`\
-https://nytimes.com/2025/06/12/arts/music/brian-wilson-death-reactions-tributes.html
-
-**People Can Be Identified by Breathing Patterns Alone, Scientists Find**\
-`Every breath you take, they really may be watching you.`\
-https://nytimes.com/2025/06/12/science/breath-print-mental-health.html
-
-**Google and U.S. Experts Join on A.I. Hurricane Forecasts**\
-`The National Hurricane Center will experiment with the company’s DeepMind program to enhance the work of its expert meteorologists.`\
-https://nytimes.com/2025/06/12/science/google-hurricane-ai.html
 
