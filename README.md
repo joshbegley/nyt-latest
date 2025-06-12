@@ -1,4 +1,8 @@
-**Missouri joins Texas in assembling National Guard troops**\
+**How many people have been arrested in the nationwide anti-ICE protests?**\
+`Police have arrested more than 1,000 people in the past week as civil unrest that began after immigration sweeps in Los Angeles spread to cities across the country.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/how-many-people-have-been-arrested-in-the-nationwide-anti-ice-protests
+
+**Missouri joins Texas in assembling National Guard troops.**\
 `Texas activated its National Guard earlier this week ahead of protests there. Missouri is following suit, “taking a proactive approach,” its governor says.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/missouri-joins-texas-in-assembling-national-guard-troops
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/us/protests-immigration-palestinian.html
 **Winnipeg Jets’ Connor Hellebuyck wins rare Hart Trophy, Vezina Trophy combination**\
 `Hellebuyck led the NHL with 47 wins, eight shutouts and a 2.00 goals-against average.`\
 https://nytimes.com/athletic/6398783/2025/06/12/connor-hellebuyck-hart-vezina-trophy-nhl-awards-jets/
-
-**Rashawn Slater has 'full confidence' contract extension with Chargers will get done**\
-`Slater is set to play on his fifth-year option worth about $19 million. A market-level extension could pay him $28 million per year. `\
-https://nytimes.com/athletic/6422894/2025/06/12/rashawn-slater-chargers-contract-negotiations/
 

@@ -1,3 +1,15 @@
+**Missouri joins Texas in assembling National Guard troops**\
+`Texas activated its National Guard earlier this week ahead of protests there. Missouri is following suit, “taking a proactive approach,” its governor says.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/missouri-joins-texas-in-assembling-national-guard-troops
+
+**Judge Signals Doubt About Trump’s Use of National Guard to Deal With Protesters**\
+`But Judge Charles Breyer also suggested he was unlikely at this point to restrict the use of active-duty Marines in California.`\
+https://nytimes.com/2025/06/12/us/politics/california-trump-lawsuit-protests.html
+
+**After Abrego Garcia’s Deportation, a Maryland Pastor Regrets Supporting Trump**\
+`Most Americans have continued to support President Trump's push for deportations, but there are some early signs of cracks in his Latino support.`\
+https://nytimes.com/2025/06/12/us/abrego-garcia-maryland-pastor.html
+
 **Some Protests Calm After Curfews, but Measures Can Have Mixed Results**\
 `Los Angeles and Spokane, Wash., have turned to curfews to control unrest, but past measures, especially in 2020, have not always been effective.`\
 https://nytimes.com/2025/06/12/us/politics/curfew-protests-la-spokane.html
