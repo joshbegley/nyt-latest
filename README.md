@@ -1,3 +1,11 @@
+**Pulisic has his say as USMNT past, present debate his summer decision**\
+`The USMNT star broke his silence after being the focus of debate for skipping this summer's Concacaf Gold Cup.`\
+https://nytimes.com/athletic/6420518/2025/06/12/christian-pulisic-comments-landon-donovan-usmnt-pochettino-gold-cup/
+
+**Supreme Court Sides With Teenager in School Disability Discrimination Case**\
+`Disability rights groups had followed the case closely, warning that arguments by the school district could threaten broader protections for people with disabilities.`\
+https://nytimes.com/2025/06/12/us/supreme-court-school-disability.html
+
 **Anze Kopitar wins NHL's Lady Byng Memorial Trophy for second time**\
 `The award is given to the player who "combines sportsmanship, gentlemanly conduct, and high playing ability."`\
 https://nytimes.com/athletic/6400639/2025/06/12/anze-kopitar-lady-byng-nhl-award/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/science/google-hurricane-ai.html
 **This Dinner Has Been Right in Front of You All This Time**\
 `Chile-crisp chickpea rice bowls are effortless, lovable and come together with things you most likely already have.`\
 https://nytimes.com/2025/06/12/dining/chile-crisp-chickpea-rice-bowls-and-more-cheap-recipes.html
-
-**The Met Opera’s ‘Diva Whisperer’ Takes Her Last Bow**\
-`Suzi Gomez-Pizzo, who is retiring as a wardrobe supervisor at the opera house after 18 years, has been a confidante and cheerleader to the stars.`\
-https://nytimes.com/2025/06/12/arts/music/suzi-gomez-pizzo-metropolitan-opera-wardrobe.html
-
-**Penguins mailbag: How do Sidney Crosby, Connor McDavid measure up?**\
-`Will McDavid someday find himself ahead of Crosby on everyone's all-time hockey player rankings? Depends who you ask.`\
-https://nytimes.com/athletic/6411144/2025/06/12/penguins-sidney-crosby-connor-mcdavid-mailbag/
 
