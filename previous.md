@@ -1,40 +1,40 @@
-**Alexander-Arnold speaks in Spanish during Real Madrid unveiling**\
-`The 26-year-old went through the formalities of signing his new six-year contract alongside Madrid club president Florentino Perez.`\
-https://nytimes.com/athletic/6421013/2025/06/12/trent-spanish-real-madrid-transfers/
+**Meter, a Networking Start-Up, Raises New Funds**\
+`The company has collected $170 million in new capital as it seeks to help connect data centers and other businesses in the age of artificial intelligence.`\
+https://nytimes.com/2025/06/12/business/dealbook/meter-networking-fundraise.html
 
-**Air India’s New Owners Have Been Trying to Upgrade and Expand the Carrier**\
-`The Tata Group, which bought the airline three years ago, has been trying to improve operations at a time of great change in India’s aviation market.`\
-https://nytimes.com/2025/06/12/world/asia/air-india-plane-crash-safety-tata-group.html
+**Trump Administration Live Updates: Lawyers Request Release of Salvadoran Man Until Trial**\
+``\
+https://nytimes.com/live/2025/06/12/us/trump-news-immigration
 
-**U.S. Embassy in Jerusalem Braces for Possible Israeli Strike on Iran**\
-`The diplomatic mission restricted the movement of employees and their families a day after the United States withdrew diplomats from Iraq.`\
-https://nytimes.com/2025/06/12/world/middleeast/israel-iran.html
+**Obi Toppin's energy, high-flying feats help Pacers knock off Thunder in Game 3**\
+`The Pacers' reserve has athleticism, fearlessness and a level of defiance toward the law of gravity. In Game 3, Indiana needed all three.`\
+https://nytimes.com/athletic/6420935/2025/06/12/pacers-obi-toppin-thunder-game-3-nba-finals/
 
-**The life lessons of Sam Long, triathlon's tortoise and hare all in one**\
-`Sam Long is one of the world's best triathletes — despite being pretty bad at one of the legs. His is a story of working through weaknesses.`\
-https://nytimes.com/athletic/6359827/2025/06/12/sam-long-triathlon-ironman-vancouver-swimming/
+**Cubs targeting starting pitching as trade deadline approaches**\
+`The Cubs could be one of the more aggressive buyers this July, and they already know what they need to pursue the most.`\
+https://nytimes.com/athletic/6419686/2025/06/12/cubs-mlb-trade-deadline-primer/
 
-**Cuomo’s Comeback**\
-`We explore the former governor’s campaign, the field of competitors and what it all means for Democrats.`\
-https://nytimes.com/2025/06/12/briefing/andrew-cuomo-mayors-race.html
+**Can Sabres find toughness Panthers have in the 2025 NHL Draft?**\
+`Even as hockey has become faster and more skilled than ever, the physical element of the sport hasn’t gone away.`\
+https://nytimes.com/athletic/6419644/2025/06/12/sabres-nhl-draft-2025-prospects-panthers/
 
-**Phillies trade deadline primer: 3 early storylines to watch**\
-`This will be a fascinating deadline for Dave Dombrowski, who has to issue a referendum on this roster's chances for a World Series title.`\
-https://nytimes.com/athletic/6416116/2025/06/12/phillies-mlb-trade-deadline-storylines/
+**Ten 49ers who stood out in spring practices: 'He’s due for a heck of a season'**\
+`Judging from spring practices, one of the best training camp battles might be between Dee Winters and Nick Martin at weakside linebacker.`\
+https://nytimes.com/athletic/6420216/2025/06/12/49ers-offseason-standouts-dee-winters/
 
-**Yankees trade deadline primer: 3 early storylines to watch**\
-`The Yankees are World Series contenders again, but they'll need to upgrade their roster at the deadline. Here are three storylines to watch.`\
-https://nytimes.com/athletic/6419166/2025/06/12/yankees-mlb-trade-deadline-storylines/
+**Live Q&A: Fluto Shinzawa answers your questions on the Bruins offseason**\
+`The coaching search is over, but many, many questions remain for a franchise at the crossroads. What are you most interested in?`\
+https://nytimes.com/athletic/6414635/2025/06/12/bruins-offseason-live-qa-fluto-shinzawa/
 
-**'It's about everyone': How the Oilers are drawing inspiration from a resilient dog sled musher**\
-`A harrowing story from Jason Campeau, a former Iditarod competitor, has resonated with the Oilers during the playoffs.`\
-https://nytimes.com/athletic/6419862/2025/06/12/oilers-stanley-cup-dogsled-musher/
+**What is the trade value of Vancouver's 2025 first-round draft pick?**\
+`The Canucks are widely expected to move the No. 15 pick in the upcoming draft. So what could it be worth?`\
+https://nytimes.com/athletic/6419458/2025/06/12/canucks-nhl-draft-first-pick-trade/
 
-**‘It might mean making the selection’: Would the Bruins would consider trading the No. 7 pick?**\
-`Sweeney: "We will use the draft capital and try to improve our hockey club this year and moving forward in every capacity possible."`\
-https://nytimes.com/athletic/6419669/2025/06/12/bruins-2025-draft-first-round-trade/
+**USMNT 2026 World Cup squad projection: Pochettino's depth chart by position**\
+`A year out from the World Cup, the USMNT's player pool is top heavy and lacking real depth. Here's how we see the squad shaping up`\
+https://nytimes.com/athletic/6419213/2025/06/12/usmnt-2026-world-cup-squad-projection-pochettino-depth-chart-position/
 
-**How Steelers OC Arthur Smith plans to evolve with Aaron Rodgers and DK Metcalf**\
-`How does a run-heavy offensive coordinator marry his offensive philosophy with a pass-happy QB? That is Smith's challenge with Rodgers.`\
-https://nytimes.com/athletic/6420389/2025/06/12/pittsburgh-steelers-arthur-smith-aaron-rodgers-dk-metcalf/
+**Should the Senators target Marco Rossi this offseason? Mailbag, Part 1**\
+`Plus, is this Senators team good enough to go past the first round of the playoffs next year?`\
+https://nytimes.com/athletic/6411998/2025/06/12/senators-offseason-mailbag-rossi-yakemchuk/
 
