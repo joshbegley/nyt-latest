@@ -33,6 +33,11 @@ https://nytimes.com/athletic/6419349/2025/06/12/club-world-cup-betting-preview-p
 `\
 https://nytimes.com/athletic/6419349/2025/06/12/club-world-cup-betting-preview-predictions-odds/
 
+**Comprehensive betting guide to the 2025 FIFA Club World Cup**\
+`Sam Tighe and Brett Koremenos provide a comprehensive betting preview of the 2025 FIFA Club World Cup. 
+`\
+https://nytimes.com/athletic/6419349/2025/06/12/club-world-cup-betting-preview-predictions-odds/
+
 **Late Night Pokes Fun at Trump’s Idiotic Idiom**\
 `Hosts ripped into his comment during a speech to troops about former President Joe Biden never having been “the sharpest bulb.”`\
 https://nytimes.com/2025/06/12/arts/television/desi-lydic-trump-military-parade.html
