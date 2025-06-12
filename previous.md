@@ -1,40 +1,40 @@
-**Live Updates: Court Will Consider Trump’s Use of Troops as Immigration Protests Spread**\
-`A judge will hear California’s request to limit the role of the military in immigration raids. The police in Los Angeles, Seattle and other cities cleared protests on Wednesday night.`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice
+**St. Louis Cardinals trade deadline primer: 3 early storylines to watch**\
+`Ryan Helsley is in his final season before free agency and would be coveted at the deadline. But will the Cardinals need him? `\
+https://nytimes.com/athletic/6417596/2025/06/12/mlb-trade-deadline-cardinals-mozeliak/
 
-**Gavin Newsom on the L.A. Protests, Trump’s Response and Why It’s a Defining Moment for Democracy**\
-`The governor of California sat down with The Daily to discuss the situation in his home state.`\
-https://nytimes.com/2025/06/12/podcasts/the-daily/newsom-trump-la-ice-protest.html
+**Ravens like their CB depth, but they're not ruling out a veteran addition**\
+`Two accomplished CBs, Jaire Alexander and Jalen Ramsey, are available. Will Baltimore stand pat or attempt to strengthen its secondary?`\
+https://nytimes.com/athletic/6419966/2025/06/12/ravens-tj-tampa-cornerbacks-jaire-alexander/
 
-**Picture Begins to Emerge of Gunman Who Killed 10 at Austrian School**\
-`Officials were investigating how an apparently troubled man had passed the psychological test required to buy firearms.`\
-https://nytimes.com/2025/06/12/world/europe/austria-school-shooting-gunman.html
+**MLB trade deadline Urgency Index 1.0: Who needs what? Who needs it most?**\
+`Looking at which teams are most likely to need starting pitching, relief pitching and help with the lineup by July 31. `\
+https://nytimes.com/athletic/6417757/2025/06/12/mlb-trade-deadline-urgency-index-1/
 
-**London-Bound Passenger Plane Crashes in Western India**\
-`Emergency crews were at the scene after an Air India plane with more than 200 people on board crashed near the airport in the western Indian city of Ahmedabad, according to India’s civil aviation minister.`\
-https://nytimes.com/video/world/asia/100000010223479/london-bound-passenger-plane-crashes-in-western-india.html
+**Raising kids in an MLB family can be tough logistically, summer break provides relief**\
+`The challenges associated with navigating the school year calendar are over, at least for a few months.`\
+https://nytimes.com/athletic/6418091/2025/06/12/mlb-player-families-school-summer-break/
 
-**Live Updates: Passenger Plane Crashes in Western India With 242 Aboard**\
-`Air India said Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about survivors.`\
-https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad
+**Mets trade deadline primer: 3 early storylines to watch**\
+`Let’s take a step back and examine some larger context that may dictate how the Mets approach the deadline.`\
+https://nytimes.com/athletic/6417807/2025/06/12/mets-trade-deadline-primer/
 
-**Northern Ireland Struck by Anti-Immigrant Violence for Third Night**\
-`Rioters clashed with police in Ballymena and across County Antrim as masked groups set fire to a leisure center in Larne, where families had been temporarily settled in emergency housing.`\
-https://nytimes.com/2025/06/12/world/europe/northern-ireland-violence-police-ballymena.html
+**The Knicks knew they wanted to fire Tom Thibodeau. After that? Well, you're seeing it**\
+`With the Knicks air-balling in pursuit of employed head coaches, league sources say there is an increased focus on two ex-coaches.`\
+https://nytimes.com/athletic/6420801/2025/06/12/knicks-coach-search-permission-denials-tom-thibodeau-firing/
 
-**In a game the Pacers had to win, T.J. McConnell was everywhere: 'His energy is unbelievable'**\
-`He's a known irritant to teams around the NBA, but T.J. McConnell's play was especially edgy Wednesday.`\
-https://nytimes.com/athletic/6420699/2025/06/12/tj-mcconnell-pacers-bench-2025-nba-finals-game-3/
+**2025 NBA mock draft: Intrigue begins at No. 3 after Cooper Flagg and Dylan Harper**\
+`With two weeks to go before the draft, which prospects are rising and falling — and which teams might swing a trade?`\
+https://nytimes.com/athletic/6411513/2025/06/12/nba-mock-draft-2025-cooper-flagg-dylan-harper-vj-edgecombe/
 
-**Bills minicamp takeaways: Keon Coleman's ups and downs, Maxwell Hairston injury, and more**\
-`Plus, an opportunity for Sedrick Van Pran-Granger at center.`\
-https://nytimes.com/athletic/6419884/2025/06/12/bills-day-2-minicamp-keon-coleman-maxwell-hairston/
+**MLB Mock Draft 2025 2.0: Aiva Arquette jumps to No. 1; another Holliday in Colorado?**\
+`The Nationals aren't showing their hand as to who they'll pick No. 1, but an infielder from the Pacific Northwest could be in their sights.`\
+https://nytimes.com/athletic/6417805/2025/06/12/mlb-mock-draft-2025-ethan-holliday-aiva-arquette/
 
-**Gavin Newsom on the L.A. Protests, Trump’s Response and Why It’s a Defining Moment for Democracy**\
-`California’s governor spoke with Michael Barbaro, the host of “The Daily,” about President Trump’s decision to mobilize the military over protests in Los Angeles against immigration raids.`\
-https://nytimes.com/video/podcasts/the-daily/100000010222740/gavin-newsom-on-the-la-protests-trumps-response-and-why-its-a-defining-moment-for-democracy.html
+**New details emerge in Tyler Skaggs civil case; Wade Miley alleged as early drug source**\
+`The unveiling of several new documents has shed new light on the Tyler Skaggs case. `\
+https://nytimes.com/athletic/6419172/2025/06/12/tyler-skaggs-lawsuit-wade-miley-angels-eric-kay/
 
-**The New York Times International Edition in Print for Friday, June 13, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/12/todays-new-york-times-international-edition
+**Chaos Inside an Immigration Courthouse, and Israel Appears Ready to Attack Iran**\
+`Plus, remembering the Beach Boys’ Brian Wilson.`\
+https://nytimes.com/2025/06/12/podcasts/the-headlines/immigration-courthouse-israel-iran.html
 
