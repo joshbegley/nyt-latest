@@ -3,7 +3,7 @@
 https://nytimes.com/2025/06/12/us/oregon-rowena-fire-evacuation.html
 
 **Thursday Briefing**\
-`Steps away from a U.S.-China trade war.`\
+`Stepping away from a U.S.-China trade war.`\
 https://nytimes.com/2025/06/12/briefing/china-trade-israel-iran.html
 
 **Red Sox takeaways: Marcelo Mayer homers twice, Walker Buehler strong in series win**\
