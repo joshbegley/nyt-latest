@@ -1,3 +1,11 @@
+**Major Basketball Feat**\
+`Daniel Bodily’s puzzle scores.`\
+https://nytimes.com/2025/06/11/crosswords/daily-puzzle-2025-06-12.html
+
+**Chargers minicamp observations: Oronde Gadsden's big day, Justin Herbert speaks**\
+`Gadsden, a fifth-round pick rookie, looks like he could give the Chargers a playmaker at all three levels.`\
+https://nytimes.com/athletic/6420423/2025/06/11/chargers-minicamp-oronde-gadsden-justin-herbert/
+
 **Gaza Aid Group Says Hamas Attacked Its Palestinian Workers**\
 `The group, which has been harshly criticized by the U.N. and other aid providers, said at least five people had died in an attack on one of its buses.`\
 https://nytimes.com/2025/06/11/world/middleeast/gaza-aid-hamas-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new
 **Giants place catcher Patrick Bailey on IL with neck strain**\
 `"Seems like it comes in waves," Giants manager Bob Melvin said of injuries.`\
 https://nytimes.com/athletic/6420312/2025/06/11/giants-catcher-patrick-bailey-il-neck-strain/
-
-**Where People Are Protesting Against Immigration Raids**\
-`Demonstrations are not only in Los Angeles. They have cropped up in cities across the country.`\
-https://nytimes.com/2025/06/11/us/us-protest-tracker-trump-ice.html
-
-**'I don't go and fact check my dad': Hunter Dobbins addresses false Yankees claims**\
-`Dobbins previously cited how his father, Lance, had been drafted twice by the Yankees and traded to the Arizona Diamondbacks.`\
-https://nytimes.com/athletic/6420284/2025/06/11/red-sox-hunter-dobbins-false-claims/
 
