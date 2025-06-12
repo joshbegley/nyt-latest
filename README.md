@@ -1,3 +1,7 @@
+**Late Night Pokes Fun at Trump’s Idiotic Idiom**\
+`Hosts ripped into his comment during a speech to troops about former President Joe Biden never having been “the sharpest bulb.”`\
+https://nytimes.com/2025/06/12/arts/television/desi-lydic-trump-military-parade.html
+
 **10 Questions With Scott Stringer**\
 `Scott Stringer, the former New York City comptroller who is running for mayor, visited The New York Times for an interview.`\
 https://nytimes.com/2025/06/12/nyregion/scott-stringer-interview.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/12/learning/word-of-the-day-stultify.html
 **Police on foot and horseback disperse protesters in downtown Los Angeles.**\
 `The mood of a downtown march against immigration raids was initially joyous. It soured as the police forced the crowd to splinter.`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/police-on-foot-and-horseback-disperse-protesters-in-downtown-los-angeles
-
-**A Christian Walker turnaround can change Astros' trade deadline priorities**\
-`Walker had four RBIs in Houston's win over the Chicago White Sox. Can he keep it going?`\
-https://nytimes.com/athletic/6420690/2025/06/12/christian-walker-astros-trade-deadline/
 
