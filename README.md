@@ -1,3 +1,15 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/06/12/books/review/new-books-recommendations.html
+
+**A Train Station Taught Me What Education Is For**\
+`From any angle, Michigan Central Station is a revelation.`\
+https://nytimes.com/2025/06/12/opinion/what-michigan-central-station-taught-me.html
+
+**The Undermining of Science in America**\
+`Readers respond to articles about the Trump administration’s assault on science. Also: The coming military parade in Washington.`\
+https://nytimes.com/2025/06/12/opinion/science-america.html
+
 **La Dolce Vita, the Valentino Way**\
 `Archival photographs, fashion layouts and anecdotes from celebrity clients: A new book is devoted to all things Valentino.`\
 https://nytimes.com/2025/06/12/style/valentino-book-grand-italian-epic.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/us/politics/trump-israel-iran.html
 **Fantasy football 2025 dynasty running back rankings, from Bijan Robinson to Ty Chandler**\
 `Jeff Haverlack goes deep with his dynasty running back rankings, breaking 86 players into seven tiers, starting with Bijan Robinson.`\
 https://nytimes.com/athletic/6421890/2025/06/12/fantasy-football-2025-dynasty-running-back-rankings/
-
-**How the Air India Crash Compares With Other Deadly Plane Disasters**\
-`Plane travel is statistically one of the safest modes of travel. But when things goes wrong, the results are often disastrous.`\
-https://nytimes.com/2025/06/12/world/asia/deadliest-plane-crashes-air-india.html
-
-**For recovery and investigation of Air India crash, authorities contend with the risk of struck sites collapsing.**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/air-india-recovery-workers-will-need-to-sift-through-ruins-without-toppling-buildings
-
-**Senate Confirms Billy Long to Lead I.R.S., Ignoring Troubled Tax Credit History**\
-`The former Republican congressman and auctioneer also had a brief career selling tax credits, including one that the I.R.S. said did not exist and another it said was rife with fraud.`\
-https://nytimes.com/2025/06/12/us/politics/billy-long-irs-commissioner-confirmation.html
 
