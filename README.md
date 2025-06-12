@@ -1,3 +1,19 @@
+**The primary has narrowed into a two-person race.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-narrowed-into-a-two-person-race
+
+**Here’s the latest.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/heres-the-latest
+
+**Live Updates: As Race Tightens, N.Y.C. Mayoral Candidates Are Set to Debate**\
+`Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are leading the field, and five other Democrats onstage will try to halt their momentum. The debate begins at 7 p.m.`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate
+
+**Federal agents, joined by Secretary Noem, descend on a California community.**\
+`By Gabriela Bhaskar, Jesus Jiménez and Jill Cowan`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/federal-agents-joined-by-secretary-noem-descend-on-a-california-community
+
 **One Person Survived a Fiery Plane Crash in India**\
 `Also, federal agents handcuffed a senator and forced him to the floor. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/06/12/briefing/india-plane-crash-la-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6422501/2025/06/12/tottenham-hotspur-thomas-frank-b
 **‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family**\
 `Viswash Kumar Ramesh, 38, who sustained multiple injuries, a doctor said, was the only passenger out of 242 people on board the plane to walk away.`\
 https://nytimes.com/2025/06/12/world/asia/viswash-kumar-ramesh-air-india-survivor.html
-
-**Raiders minicamp: Pete Carroll hoping reconfigured offensive line pays dividends**\
-`The Raiders signed veteran lineman Alex Cappa and drafted several others, but hope it's coaching that makes a big difference in 2025.`\
-https://nytimes.com/athletic/6422670/2025/06/12/raiders-minicamp-offensive-line/
-
-**Mets starter Kodai Senga headed to IL with hamstring strain**\
-`The right-hander with a 1.47 ERA suffered the injury covering first base on a grounder. What does this mean for New York's rotation?`\
-https://nytimes.com/athletic/6422634/2025/06/12/mets-kodai-senga-injury-hamstring/
-
-**Trump Administration Sues New York Over Law Barring ICE From Courthouses**\
-`State lawmakers passed the ban in 2020 when President Trump in his first term escalated arrests of undocumented immigrants at state and local courts.`\
-https://nytimes.com/2025/06/12/nyregion/trump-ny-lawsuit-ice-courthouses.html
-
-**Senator Padilla Forcibly Removed After Confronting Noem**\
-`Senator Alex Padilla, Democrat of California, was forced to the floor, handcuffed and removed by federal agents after interrupting a news conference by the homeland security secretary Kristi Noem on Thursday.`\
-https://nytimes.com/video/us/politics/100000010224871/padilla-noem-protest-la.html
 
