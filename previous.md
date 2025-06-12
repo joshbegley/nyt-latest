@@ -1,3 +1,15 @@
+**‘The Survivors’ Is a Polished and Potent Murder Mystery**\
+`Based on the book by Jane Harper, this six-part Australian drama takes place in a coastal Tasmanian town, where the bodies keep surfacing.`\
+https://nytimes.com/2025/06/12/arts/television/the-survivors-netflix-australian.html
+
+**Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests**\
+`“I don’t feel like a king, I have to go through hell to get stuff approved,” President Trump said of the planned demonstrations against his administration.`\
+https://nytimes.com/2025/06/12/us/politics/trump-no-kings-protests.html
+
+**Hundreds Dead in the Fiery Crash of an Air India Jet**\
+`The London-bound Boeing Dreamliner went down moments after takeoff in Ahmedabad, India, with 242 people aboard. Dozens more may have perished as the plane exploded on the campus of a medical college.`\
+https://nytimes.com/2025/06/12/world/asia/india-plane-crash.html
+
 **Trump’s New ‘Apprentice’ Boardroom: The Oval Office**\
 `The stately room has long been a site of diplomacy. But the reality-star president often does not come there to make friends.`\
 https://nytimes.com/2025/06/12/arts/television/trump-oval-office-apprentice.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6422471/2025/06/12/blackburn-rovers-women-redundanc
 **They’re Gentle. They’re Seasonal. They’re Soft Boy Cooks.**\
 `Hide your tomatoes: These charismatic chefs are on social media, a counter to the harder-edged chefs.`\
 https://nytimes.com/2025/06/12/dining/soft-boy-cooks.html
-
-**Do Californians Really Pay Trump’s Bills?**\
-`The rising tension between President Trump and Gov. Gavin Newsom is reviving questions about who pays into — and who takes from — the federal government.`\
-https://nytimes.com/2025/06/12/upshot/trump-california-donor-states.html
-
-**James Lowe, Rock Outsider With the Electric Prunes, Dies at 82**\
-`His band’s output ranged from the 1966 psychedelic hit “I Had Too Much to Dream (Last Night)” to what he called a “Catholic Mass done in rock veneer.”`\
-https://nytimes.com/2025/06/12/arts/music/james-lowe-dead.html
-
-**Brian Wilson Wrote the California Dream, but He Didn’t Live It**\
-`An artist nearly synonymous with Los Angeles made his name crafting songs playing up his home state’s beachy vibes. His inner life, however, was anything but sunny.`\
-https://nytimes.com/2025/06/12/arts/music/brian-wilson-beach-boys-california.html
 
