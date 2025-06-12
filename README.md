@@ -1,3 +1,11 @@
+**Instagram Wants Gen Z. What Does Gen Z Want From Instagram?**\
+`Young people are using Instagram for everything except the app’s original function.`\
+https://nytimes.com/2025/06/12/style/instagram-gen-z.html
+
+**Submit your questions here for Aaron Portzline's Blue Jackets mailbag**\
+`What will GM Don Waddell do this summer?`\
+https://nytimes.com/athletic/6421902/2025/06/12/blue-jackets-offseason-2025-questions/
+
 **Hebrew University: A Century of Progress**\
 `Commemorating 100 years of academic achievement and global contributions`\
 https://nytimes.com/paidpost/american-friends-of-hebrew-university/hebrew-university-a-century-of-progress/hebrew-university-a-century-of-progress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6421537/2025/06/12/grand-slam-track-los-angeles-can
 **New York Rangers' Chris Kreider traded to Anaheim Ducks for prospect**\
 `Kreider, coming off a disappointing season, has two years remaining on his contract.`\
 https://nytimes.com/athletic/6418037/2025/06/12/chris-kreider-trade-rangers-ducks/
-
-**Pulisic has his say as USMNT past, present debate his summer decision**\
-`The USMNT star broke his silence after being the focus of debate for skipping this summer's Concacaf Gold Cup.`\
-https://nytimes.com/athletic/6420518/2025/06/12/christian-pulisic-comments-landon-donovan-usmnt-pochettino-gold-cup/
-
-**Supreme Court Sides With Teenager in School Disability Discrimination Case**\
-`Disability rights groups had followed the case closely, warning that arguments by the school district could threaten broader protections for people with disabilities.`\
-https://nytimes.com/2025/06/12/us/supreme-court-school-disability.html
 
