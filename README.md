@@ -1,3 +1,7 @@
+**Giants place catcher Patrick Bailey on IL with neck strain**\
+`"Seems like it comes in waves," Giants manager Bob Melvin said of injuries.`\
+https://nytimes.com/athletic/6420312/2025/06/11/giants-catcher-patrick-bailey-il-neck-strain/
+
 **Where People Are Protesting Against Immigration Raids**\
 `Demonstrations are not only in Los Angeles. They have cropped up in cities across the country.`\
 https://nytimes.com/2025/06/11/us/us-protest-tracker-trump-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/david-hogg-dnc-democrats.html
 **Prosecutor calls Michael McLeod the architect of Hockey Canada sexual assault**\
 `Crown prosecutor says "someone’s not telling the truth" in laying out the case against the five Hockey Canada defendants. `\
 https://nytimes.com/athletic/6418963/2025/06/11/hockey-canada-sexual-assault-trial-crown-closing-statement/
-
-**European football revenue hit record €38bn in 2023-24 season**\
-`The so-called big five leagues - the top divisions from England, Spain, Italy, Germany, and France - contribute huge figures, for how long?`\
-https://nytimes.com/athletic/6419926/2025/06/11/european-football-revenue-premier-league/
 
