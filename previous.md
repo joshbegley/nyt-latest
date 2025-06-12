@@ -1,3 +1,7 @@
+**The Rapper Silentó Gets 30 Years in Prison for Fatal Shooting of His Cousin**\
+`The songwriter, whose real name is Ricky Hawk, pleaded guilty to voluntary manslaughter and three other charges in relation to the killing.`\
+https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
+
 **Major Basketball Feat**\
 `Daniel Bodily’s puzzle scores.`\
 https://nytimes.com/2025/06/11/crosswords/daily-puzzle-2025-06-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/11/us/politics/abrego-garcia-release-pretrial.html
 **Dodger Details: Ben Casparius' new role, star check-ins and more**\
 `The Dodgers might need more starts from Casparius. He says he's ready for the challenge.`\
 https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
-
-**Giants place catcher Patrick Bailey on IL with neck strain**\
-`"Seems like it comes in waves," Giants manager Bob Melvin said of injuries.`\
-https://nytimes.com/athletic/6420312/2025/06/11/giants-catcher-patrick-bailey-il-neck-strain/
 

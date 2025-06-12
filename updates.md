@@ -1,3 +1,7 @@
+**The Rapper Silentó Gets 30 Years in Prison for Fatal Shooting of His Cousin**\
+`The songwriter, whose real name is Ricky Hawk, pleaded guilty to voluntary manslaughter and three other charges in relation to the killing.`\
+https://nytimes.com/2025/06/11/us/silento-rapper-sentenced-cousin-murder.html
+
 **Major Basketball Feat**\
 `Daniel Bodily’s puzzle scores.`\
 https://nytimes.com/2025/06/11/crosswords/daily-puzzle-2025-06-12.html
