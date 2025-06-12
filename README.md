@@ -1,3 +1,19 @@
+**Padres MLB trade deadline primer: 3 early storylines to watch**\
+`The baseball industry has learned not to underestimate A.J. Preller during trade season or, for that matter, at any time on the calendar.`\
+https://nytimes.com/athletic/6417966/2025/06/12/padres-mlb-trade-deadline-primer/
+
+**48 thoughts on the Lions' defensive players and special teams unit**\
+`The Lions' defense is hoping for better fortune this season after sustaining a pile of injuries last season.`\
+https://nytimes.com/athletic/6417294/2025/06/12/lions-defense-special-teams-aidan-hutchinson/
+
+**Lapham’s Quarterly Will Begin Its Revival with Website and Podcast**\
+`Now attached to Bard College, the literary journal is about to publish new commentary and a popular historical feature. Next year: the print magazine.`\
+https://nytimes.com/2025/06/12/books/laphams-quarterly-relaunch.html
+
+**At the Scene of the Deadly Air India Crash**\
+`A passenger flight traveling from Ahmedabad, a city in western India, to London crashed shortly after takeoff.`\
+https://nytimes.com/2025/06/12/world/europe/air-india-crash-photos.html
+
 **Boeing’s Dreamliner was the subject of safety concerns but never had a crash before Thursday.**\
 `In a statement, Boeing said that it was aware of the crash on the Air India flight and was “working to gather more information.”`\
 https://nytimes.com/2025/06/12/business/boeings-dreamliner-was-the-subject-of-safety-concerns-but-never-had-a-crash-before-thursday.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6421257/2025/06/12/man-city-nypan-transfer-fee/
 **Transfers TLDR: Trent Alexander-Arnold to Real Madrid – all you need to know**\
 `The England international defender is now officially a Madrid player after leaving Liverpool – we break down the deal...`\
 https://nytimes.com/athletic/6419206/2025/06/12/trent-alexander-arnold-real-madrid-transfer/
-
-**How Companies Are Bracing for Trump’s Immigration Crackdown**\
-`Sectors including construction, hospitality, health care and manufacturing are on high alert. Economists are worried about the labor market and growth.`\
-https://nytimes.com/2025/06/12/business/dealbook/companies-trump-immigration-crackdown.html
-
-**Meter, a Networking Start-Up, Raises New Funds**\
-`The company has collected $170 million in new capital as it seeks to help connect data centers and other businesses in the age of artificial intelligence.`\
-https://nytimes.com/2025/06/12/business/dealbook/meter-networking-fundraise.html
-
-**Trump Administration Live Updates: Lawyers Request Release of Salvadoran Man Until Trial**\
-``\
-https://nytimes.com/live/2025/06/12/us/trump-news-immigration
-
-**Obi Toppin's energy, high-flying feats help Pacers knock off Thunder in Game 3**\
-`The Pacers' reserve has athleticism, fearlessness and a level of defiance toward the law of gravity. In Game 3, Indiana needed all three.`\
-https://nytimes.com/athletic/6420935/2025/06/12/pacers-obi-toppin-thunder-game-3-nba-finals/
 
