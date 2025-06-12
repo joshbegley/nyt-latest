@@ -1,3 +1,23 @@
+**Whistle-blower’s lawyer calls on F.A.A. to release report on 787 Dreamliner.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/whistle-blowers-lawyer-calls-on-faa-to-release-report-on-787-dreamliner
+
+**Enzo Staiola, Who Starred in ‘Bicycle Thieves’ as a Child, Dies at 85**\
+`Discovered on the street in Rome, he had a brush with stardom when he was cast in what many consider one of the greatest films of all time.`\
+https://nytimes.com/2025/06/12/movies/enzo-staiola-dead.html
+
+**Head of FEMA Command Center Quits**\
+`The official, Jeremy Greenberg, was in charge of coordinating the national response to major disasters.`\
+https://nytimes.com/2025/06/12/climate/fema-resignations-trump-disaster.html
+
+**Soaring Temperatures Threaten Crops, So Scientists Are Looking to Alter the Plants**\
+`Genetically altering crops may be key to helping them adapt to extreme temperatures. But shrinking funds and social acceptance stand in the way.`\
+https://nytimes.com/2025/06/12/climate/plants-climate-change-photosynthesis.html
+
+**Giants OTA takeaways: Jaxson Dart shows off exquisite touch; CB battle brewing?**\
+`Deonte Banks might need to win a camp battle against Cor'Dale Flott to earn the starting outside cornerback spot opposite Paulson Adebo. `\
+https://nytimes.com/athletic/6422452/2025/06/12/new-york-giants-takeaways-jaxson-dart-deonte-banks/
+
 **Trump’s Immigration P.R. Campaign Enters a New Militarized Phase**\
 `The government’s visuals appear intended to persuade migrants without legal status to leave the country, while also making clear the administration will not tolerate resistance.`\
 https://nytimes.com/2025/06/12/us/politics/trump-immigration-pr-campaign.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/12/us/politics/house-foreign-aid-public-broadcasting
 **Ananda Lewis, ’90s MTV Star, Dies at 52**\
 `She said last year that her breast cancer, which she was diagnosed with in 2019, had progressed to Stage 4.`\
 https://nytimes.com/2025/06/12/arts/television/ananda-lewis-dies.html
-
-**Another Dozen Migrants Are Transferred to Guantánamo**\
-`About 540 Defense Department employees were staffing the operation, along with 130 homeland security workers.`\
-https://nytimes.com/2025/06/12/us/politics/migrants-guantanamo-trump.html
-
-**Brighton confirm signing of 18-year-old striker Kostoulas**\
-`He will sign a five-year deal that will run through to 2030.`\
-https://nytimes.com/athletic/6421160/2025/06/12/charalampos-kostoulas-brighton-signing/
-
-**Thomas Frank is the new Spurs manager. So how do his teams play?**\
-`Brentford evolved massively over four Premier League seasons under the Dane. This adaptability will be important to him now at Tottenham`\
-https://nytimes.com/athletic/6414059/2025/06/12/thomas-frank-tottenham-manager-premier-league-brentford/
-
-**Five Favorite Tools For Bringing Order to a Disorganized Closet**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/closet-organizing-ideas
-
-**Senator Alex Padilla Forcibly Removed and Handcuffed After Interrupting Noem**\
-`Mr. Padilla, Democrat of California, was shoved out of a room and handcuffed after he disrupted Kristi Noem, the Homeland Security secretary, during a news conference.`\
-https://nytimes.com/2025/06/12/us/politics/senator-alex-padilla-handcuffed.html
 

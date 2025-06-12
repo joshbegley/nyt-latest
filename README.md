@@ -1,3 +1,19 @@
+**Do Californians Really Pay Trump’s Bills?**\
+`The rising tension between President Trump and Gov. Gavin Newsom is reviving questions about who pays into — and who takes from — the federal government.`\
+https://nytimes.com/2025/06/12/upshot/trump-california-donor-states.html
+
+**James Lowe, Rock Outsider With the Electric Prunes, Dies at 82**\
+`His band’s output ranged from the 1966 psychedelic hit “I Had Too Much to Dream (Last Night)” to what he called a “Catholic Mass done in rock veneer.”`\
+https://nytimes.com/2025/06/12/arts/music/james-lowe-dead.html
+
+**Brian Wilson Wrote the California Dream, but He Didn’t Live It**\
+`An artist nearly synonymous with Los Angeles made his name crafting songs playing up his home state’s beachy vibes. His inner life, however, was anything but sunny.`\
+https://nytimes.com/2025/06/12/arts/music/brian-wilson-beach-boys-california.html
+
+**Amanda Feilding, Eccentric Countess Who Backed Psychedelic Meds, Dies at 82**\
+`She was ridiculed for drilling a hole in her skull to increase blood flow, but her foundation’s research into the therapeutic use of counterculture drugs proved visionary.`\
+https://nytimes.com/2025/06/12/science/amanda-feilding-trepanation-dead.html
+
 **Whistle-blower’s lawyer calls on F.A.A. to release report on 787 Dreamliner.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/whistle-blowers-lawyer-calls-on-faa-to-release-report-on-787-dreamliner
@@ -6,7 +22,7 @@ https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/whistle-bl
 `Discovered on the street in Rome, he had a brush with stardom when he was cast in what many consider one of the greatest films of all time.`\
 https://nytimes.com/2025/06/12/movies/enzo-staiola-dead.html
 
-**Head of FEMA Command Center Quits**\
+**Head of FEMA Command Center Quits After Trump Says He’ll Phase Out the Agency**\
 `The official, Jeremy Greenberg, was in charge of coordinating the national response to major disasters.`\
 https://nytimes.com/2025/06/12/climate/fema-resignations-trump-disaster.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6422452/2025/06/12/new-york-giants-takeaways-jaxson
 **Trump’s Immigration P.R. Campaign Enters a New Militarized Phase**\
 `The government’s visuals appear intended to persuade migrants without legal status to leave the country, while also making clear the administration will not tolerate resistance.`\
 https://nytimes.com/2025/06/12/us/politics/trump-immigration-pr-campaign.html
-
-**TPG, Sequoia and Others Invest $250 Million in Elon Musk’s xAI**\
-`Two dozen venture capital firms and other investors are investing in xAI, the artificial intelligence and social media company.`\
-https://nytimes.com/2025/06/12/business/xai-elon-musk-investors.html
-
-**Where to Celebrate a 40th Birthday, and Other Reader Questions**\
-`Dinner and a show at Lincoln Center? Date night on a budget? We have suggestions.`\
-https://nytimes.com/2025/06/12/dining/where-to-celebrate-a-40th-birthday-and-other-reader-questions.html
-
-**House Votes to Claw Back $9 Billion for Foreign Aid and Public Broadcasting**\
-`The legislation, requested by the White House, would codify spending cuts pursued by Elon Musk’s Department of Government Efficiency.`\
-https://nytimes.com/2025/06/12/us/politics/house-foreign-aid-public-broadcasting-funds-trump.html
-
-**Ananda Lewis, ’90s MTV Star, Dies at 52**\
-`She said last year that her breast cancer, which she was diagnosed with in 2019, had progressed to Stage 4.`\
-https://nytimes.com/2025/06/12/arts/television/ananda-lewis-dies.html
 
