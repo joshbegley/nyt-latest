@@ -1,3 +1,19 @@
+**Russian Scientist Released After Four Months in Federal Custody**\
+`Kseniia Petrova, a Harvard researcher, still faces criminal charges for failing to declare scientific samples she was carrying in her suitcase.`\
+https://nytimes.com/2025/06/12/science/russian-scientist-harvard-release.html
+
+**A G.O.P. Plan to Sell Public Land Is Back. This Time, It’s Millions of Acres.**\
+`Senate Republicans want to sell the land to build more housing in the West, but the idea is contentious even within their own party.`\
+https://nytimes.com/2025/06/12/climate/senate-gop-public-land-sale.html
+
+**MLB Mock Draft Live Q&A with Keith Law at 2pm ET on June 12**\
+`<p>Earlier today, Keith Law released his second mock draft of the 2025 MLB Draft season.`\
+https://nytimes.com/athletic/6419940/2025/06/12/mlb-mock-draft-live-q-and-a/
+
+**NHL trade grades: Rangers needed to unload Chris Kreider to move forward**\
+`How did our staff evaluate the retooling Rangers' return from Anaheim for their longest-tenured skater? `\
+https://nytimes.com/athletic/6418682/2025/06/12/nhl-trade-grades-chris-kreider-rangers-ducks/
+
 **Trump Blocks California E.V. Rules in Latest Move to Rein In the State**\
 `California leaders said the state intends to challenge the move in court, and to find new ways to move drivers toward electric vehicles.`\
 https://nytimes.com/2025/06/12/us/california-trump-electric-vehicle-waiver.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6388034/2025/06/12/de-bruyne-napoli-mls-next-star-s
 **Instagram Wants Gen Z. What Does Gen Z Want From Instagram?**\
 `Young people are using Instagram for everything except the app’s original function.`\
 https://nytimes.com/2025/06/12/style/instagram-gen-z.html
-
-**Submit your questions here for Aaron Portzline's Blue Jackets mailbag**\
-`What will GM Don Waddell do this summer?`\
-https://nytimes.com/athletic/6421902/2025/06/12/blue-jackets-offseason-2025-questions/
-
-**Hebrew University: A Century of Progress**\
-`Commemorating 100 years of academic achievement and global contributions`\
-https://nytimes.com/paidpost/american-friends-of-hebrew-university/hebrew-university-a-century-of-progress/hebrew-university-a-century-of-progress.html
-
-**What Caused the Crash? Experts Study Video of Plane’s Sudden Descent.**\
-`Safety experts said investigators will be looking at why and how the plane started descending during its take off.`\
-https://nytimes.com/2025/06/12/business/india-plane-crash-causes.html
-
-**The Justice Dept. orders prosecutors around the country to be on standby ahead of weekend protests.**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/the-justice-dept-orders-prosecutors-around-the-country-to-be-on-standby-ahead-of-weekend-protests
 
