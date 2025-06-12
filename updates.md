@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Stepping away from a U.S.-China trade war.`\
+https://nytimes.com/2025/06/12/briefing/china-trade-israel-iran.html
+
 **Oregon Wildfire Destroys Homes and Forces Evacuations**\
 `The Rowena Fire tripled in size Wednesday evening, destroying 20 homes.`\
 https://nytimes.com/2025/06/12/us/oregon-rowena-fire-evacuation.html
