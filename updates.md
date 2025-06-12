@@ -1,3 +1,15 @@
+**Father Charged in Death of Boy, 2, Found in River Under an N.Y.C. Bridge**\
+`On Wednesday, police divers pulled the body of Montrell Williams from the East River.`\
+https://nytimes.com/2025/06/12/nyregion/bronx-boy-east-river.html
+
+**How Every House Member Voted on $9 Billion in Proposed Spending Cuts**\
+`House members approved the cuts by a vote of 214 to 212.`\
+https://nytimes.com/interactive/2025/06/12/us/house-rescissions-vote.html
+
+**Hundreds Dead in the Fiery Crash of an Air India Jet**\
+`The London-bound Boeing Dreamliner went down moments after takeoff in Ahmedabad, India, with 242 people aboard. Dozens more on the ground perished as the plane exploded on the campus of a medical college.`\
+https://nytimes.com/2025/06/12/world/asia/india-plane-crash.html
+
 **‘The Survivors’ Is a Polished and Potent Murder Mystery**\
 `Based on the book by Jane Harper, this six-part Australian drama takes place in a coastal Tasmanian town, where the bodies keep surfacing.`\
 https://nytimes.com/2025/06/12/arts/television/the-survivors-netflix-australian.html

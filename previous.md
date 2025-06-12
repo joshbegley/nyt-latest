@@ -1,3 +1,11 @@
+**Father Charged in Death of Boy, 2, Found in River Under an N.Y.C. Bridge**\
+`On Wednesday, police divers pulled the body of Montrell Williams from the East River.`\
+https://nytimes.com/2025/06/12/nyregion/bronx-boy-east-river.html
+
+**How Every House Member Voted on $9 Billion in Proposed Spending Cuts**\
+`House members approved the cuts by a vote of 214 to 212.`\
+https://nytimes.com/interactive/2025/06/12/us/house-rescissions-vote.html
+
 **‘The Survivors’ Is a Polished and Potent Murder Mystery**\
 `Based on the book by Jane Harper, this six-part Australian drama takes place in a coastal Tasmanian town, where the bodies keep surfacing.`\
 https://nytimes.com/2025/06/12/arts/television/the-survivors-netflix-australian.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/06/12/arts/television/the-survivors-netflix-australian.
 https://nytimes.com/2025/06/12/us/politics/trump-no-kings-protests.html
 
 **Hundreds Dead in the Fiery Crash of an Air India Jet**\
-`The London-bound Boeing Dreamliner went down moments after takeoff in Ahmedabad, India, with 242 people aboard. Dozens more may have perished as the plane exploded on the campus of a medical college.`\
+`The London-bound Boeing Dreamliner went down moments after takeoff in Ahmedabad, India, with 242 people aboard. Dozens more on the ground perished as the plane exploded on the campus of a medical college.`\
 https://nytimes.com/2025/06/12/world/asia/india-plane-crash.html
 
 **Trump’s New ‘Apprentice’ Boardroom: The Oval Office**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6422429/2025/06/12/jets-minicamp-practice-report-po
 **Lewis Hamilton backs under fire Fred Vasseur to lead Ferrari through struggles**\
 `After nine rounds, Ferrari has no grand prix victories. Hamilton says Vasseur “is the main reason I’m in this team”`\
 https://nytimes.com/athletic/6422601/2025/06/12/lewis-hamilton-fred-vasseur-ferrari/
-
-**Blackburn set to make at least 20 women's team staff members redundant**\
-`The club announced in May that their senior women’s team were to be demoted from Women’s Super League 2.`\
-https://nytimes.com/athletic/6422471/2025/06/12/blackburn-rovers-women-redundancies/
-
-**They’re Gentle. They’re Seasonal. They’re Soft Boy Cooks.**\
-`Hide your tomatoes: These charismatic chefs are on social media, a counter to the harder-edged chefs.`\
-https://nytimes.com/2025/06/12/dining/soft-boy-cooks.html
 
