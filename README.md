@@ -1,3 +1,15 @@
+**Trump Tells Farmers ‘Changes Are Coming’ to Immigration Crackdown**\
+`President Trump’s statement suggested his sweeping policies were alienating industries he wants to keep in his corner.`\
+https://nytimes.com/2025/06/12/us/politics/trump-farmers-hotels-immigration.html
+
+**Florida leaders promise a crackdown against unruly protesters.**\
+`Gov. Ron DeSantis promised a “zero tolerance policy.” One sheriff in the state said that officers would kill protesters who throw bricks or point weapons at deputies.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/florida-leaders-promise-a-crackdown-against-unruly-protesters
+
+**As they highlight affordability agendas, candidates will focus on what can be done quickly.**\
+`By Eliza Shapiro`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/as-they-highlight-affordability-agendas-candidates-will-focus-on-what-can-be-done-quickly
+
 **One Soldier Killed, One Injured in Helicopter Training Mission at Fort Campbell**\
 `The aviation accident, which occurred on Wednesday night, is under investigation, the 101st Airborne Division said.`\
 https://nytimes.com/2025/06/12/us/soldier-killed-helicopter-fort-campbell.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-
 **Here’s the latest.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/heres-the-latest
-
-**Live Updates: N.Y.C. Mayoral Candidates Are Set to Debate As Race Tightens**\
-`Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are leading the field, and five other Democrats onstage will try to halt their momentum. The debate begins at 7 p.m.`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate
-
-**Federal agents, joined by Secretary Noem, descend on a California community.**\
-`By Gabriela Bhaskar, Jesus Jiménez and Jill Cowan`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/federal-agents-joined-by-secretary-noem-descend-on-a-california-community
-
-**One Person Survived a Fiery Plane Crash in India**\
-`Also, federal agents handcuffed a senator and forced him to the floor. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/06/12/briefing/india-plane-crash-la-protests.html
 

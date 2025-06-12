@@ -1,3 +1,11 @@
+**One Soldier Killed, One Injured in Helicopter Training Mission at Fort Campbell**\
+`The aviation accident, which occurred on Wednesday night, is under investigation, the 101st Airborne Division said.`\
+https://nytimes.com/2025/06/12/us/soldier-killed-helicopter-fort-campbell.html
+
+**Democrats in California expressed outrage at a senator’s treatment by law enforcement officers.**\
+`Senator Alex Padilla, Democrat of California, was forced to the ground and handcuffed at an event held by the homeland security secretary, Kristi Noem.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/democrats-in-california-expressed-outrage-at-a-senators-treatment-by-law-enforcement-officers
+
 **Like His Music, Brian Wilson’s Style Was Deceptively Complex**\
 `In Pendleton shirts and khakis, Mr. Wilson and the Beach Boys showed the world what easy Southern California living looked like.`\
 https://nytimes.com/2025/06/12/style/brian-wilson-surf-style-beach-boys.html
