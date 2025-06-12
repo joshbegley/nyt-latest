@@ -1,3 +1,11 @@
+**Boeing 787 Crash Brings Fresh Scrutiny to Plane Maker’s Safety Record**\
+`The accident happened just weeks after the company cut a deal with the U.S. government to avoid taking criminal responsibility for a pair of deadly crashes in 2018 and 2019.`\
+https://nytimes.com/2025/06/12/business/boeing-787-dreamliner-crash-safety-record.html
+
+**The Athletic FC: What's going on with USMNT? Plus: Players to watch at Club World Cup**\
+`Today in TAFC: We look at the problems affecting the USMNT, ticket prices slashed at the Club World Cup - and the players you should watch.`\
+https://nytimes.com/athletic/6420912/2025/06/12/pochettino-usmnt-club-world-cup-players-to-watch/
+
 **The Pacers are showing who they really are — and that they're for real**\
 `Game 3 revealed what the Pacers look like at their best. Dogged. Determined. And dominant when it matters most.`\
 https://nytimes.com/athletic/6420788/2025/06/12/pacers-first-nba-championship-belief/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/world/asia/trump-china-trade-deal.html
 **Inside Pat McAfee’s world: Adam Schefter’s ban, solo GameDay dreams, possibly more live events**\
 `The sports media star's stratospheric rise has been built on unpredictability paired with a showman's sense of their audience.`\
 https://nytimes.com/athletic/6420232/2025/06/12/pat-mcafee-adam-schefter-espn-youtube-stephen-a-smith/
-
-**J.J. McCarthy minicamp reps may not induce headlines — but that's OK (and intentional)**\
-`The Vikings don't care how their young quarterback looks in OTAs or minicamp. They're focused on preparing him for when it matters.`\
-https://nytimes.com/athletic/6420098/2025/06/12/j-j-mccarthy-vikings-minicamp-ryan-kelly/
-
-**St. Louis Cardinals trade deadline primer: 3 early storylines to watch**\
-`Ryan Helsley is in his final season before free agency and would be coveted at the deadline. But will the Cardinals need him? `\
-https://nytimes.com/athletic/6417596/2025/06/12/mlb-trade-deadline-cardinals-mozeliak/
 
