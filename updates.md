@@ -1,3 +1,11 @@
+**Gaza Aid Group Says Hamas Attacked Its Palestinian Workers**\
+`The group, which has been harshly criticized by the U.N. and other aid providers, said at least five people had died in an attack on one of its buses.`\
+https://nytimes.com/2025/06/11/world/middleeast/gaza-aid-hamas-attack.html
+
+**Pentagon Is Reviewing Deal to Equip Australia With Nuclear Submarines**\
+`The 2021 pact, meant to help counter China’s ambitions in the Asia Pacific, will be examined to ensure that it meets “America First criteria,” a U.S. official said.`\
+https://nytimes.com/2025/06/11/world/asia/australia-nuclear-submarines-trump.html
+
 **With communities ‘in fear,’ officials across the L.A. area call on Trump to stop the raids.**\
 `By Ashley Ahn and Shawn Hubler`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/with-communities-in-fear-officials-across-the-la-area-call-on-trump-to-stop-the-raids

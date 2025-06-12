@@ -1,3 +1,11 @@
+**Gaza Aid Group Says Hamas Attacked Its Palestinian Workers**\
+`The group, which has been harshly criticized by the U.N. and other aid providers, said at least five people had died in an attack on one of its buses.`\
+https://nytimes.com/2025/06/11/world/middleeast/gaza-aid-hamas-attack.html
+
+**Pentagon Is Reviewing Deal to Equip Australia With Nuclear Submarines**\
+`The 2021 pact, meant to help counter China’s ambitions in the Asia Pacific, will be examined to ensure that it meets “America First criteria,” a U.S. official said.`\
+https://nytimes.com/2025/06/11/world/asia/australia-nuclear-submarines-trump.html
+
 **With communities ‘in fear,’ officials across the L.A. area call on Trump to stop the raids.**\
 `By Ashley Ahn and Shawn Hubler`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/with-communities-in-fear-officials-across-the-la-area-call-on-trump-to-stop-the-raids
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/11/us/us-protest-tracker-trump-ice.html
 **'I don't go and fact check my dad': Hunter Dobbins addresses false Yankees claims**\
 `Dobbins previously cited how his father, Lance, had been drafted twice by the Yankees and traded to the Arizona Diamondbacks.`\
 https://nytimes.com/athletic/6420284/2025/06/11/red-sox-hunter-dobbins-false-claims/
-
-**Immigrant rights protests spread across the country.**\
-`By Eduardo Medina, Jenna Fisher, Edgar Sandoval and Ann Hinga Klein`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
-
-**Duffy Backs Safety Audit After Deadly Crash Near National Airport**\
-`An investigation will examine what could have prevented an Army Black Hawk helicopter from ramming into an American Airlines flight on Jan. 29, killing all on board both aircraft.`\
-https://nytimes.com/2025/06/11/us/politics/duffy-backs-safety-audit-after-deadly-crash-near-national-airport.html
 
