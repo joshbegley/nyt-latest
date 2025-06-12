@@ -1,4 +1,16 @@
-**F.T.C. May Hit a Mega Ad Merger With an Unusual Rule: No Boycotting**\
+**Flash Flooding in San Antonio Kills 4 People**\
+`More than six inches of rain fell in the San Antonio region overnight, surpassing the city’s average rainfall for June and July combined.`\
+https://nytimes.com/2025/06/12/us/san-antonio-flash-flood.html
+
+**‘Sex’ Review: Two Men Talk About and Around the Subject**\
+`A chimney sweep and his colleague get deep on the roofs of Oslo in Dag Johan Haugerud’s curious meditation on marriage and masculinity.`\
+https://nytimes.com/2025/06/12/movies/sex-review-dag-johan-haugerud.html
+
+**Tennessee’s Zakai Zeigler denied injunction seeking fifth year of eligibility**\
+`Zeigler's lawsuit claimed that the fifth year of eligibility is the most lucrative for "the vast majority of athletes."`\
+https://nytimes.com/athletic/6421860/2025/06/12/tennessee-zakai-zeigler-denied-extra-year-eligibility/
+
+**F.T.C. May Put Unusual Condition on Ad Mega Merger: No Boycotting**\
 `The Federal Trade Commission is considering restrictions on Omnicom and Interpublic to prevent the combined company from refusing to place ads on platforms for political reasons.`\
 https://nytimes.com/2025/06/12/business/ftc-omnicom-interpublic-merger.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/us/california-trump-electric-vehicle-waiver.html
 **Trent Alexander-Arnold's Real Madrid balancing act - and rebrand from Liverpool days**\
 `The former Liverpool man impressed with his Spanish as he faced a few delicate questions in his first appearance as a Real Madrid player`\
 https://nytimes.com/athletic/6421401/2025/06/12/trent-alexander-arnold-real-madrid-presentation/
-
-**Summer McIntosh breaks third world record in 5 days**\
-`McIntosh beat her previous record of 4:24.38 in the 400-meter individual medley set at the 2024 Canadian Olympic Trials.`\
-https://nytimes.com/athletic/6421697/2025/06/12/summer-mcintosh-swimming-world-record-trials/
-
-**Why did the Ducks trade for Chris Kreider, and what might come next?**\
-`What might Kreider's addition mean for the possible pursuit of Mitch Marner — and for other potential moves?`\
-https://nytimes.com/athletic/6419401/2025/06/12/chris-kreider-ducks-offseason/
-
-**MLS misses out on De Bruyne; Which global star will be next to sign?**\
-`With De Bruyne headed to Napoli after a brief flirtation with MLS, which big name is next in line to venture to North America?`\
-https://nytimes.com/athletic/6388034/2025/06/12/de-bruyne-napoli-mls-next-star-signing-dybala-neymar-pogba/
 
