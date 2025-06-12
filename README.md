@@ -1,3 +1,15 @@
+**‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family**\
+`Viswash Kumar Ramesh, 38, who sustained multiple injuries, a doctor said, was the only passenger out of 242 people on board the plane to walk away.`\
+https://nytimes.com/2025/06/12/world/asia/viswash-kumar-ramesh-air-india-survivor.html
+
+**Raiders minicamp: Pete Carroll hoping reconfigured offensive line pays dividends**\
+`Despite signing veteran guard Alex Cappa and drafting several linemen, the Raiders hope improved coaching will make the unit better in 2025.`\
+https://nytimes.com/athletic/6422670/2025/06/12/raiders-minicamp-offensive-line/
+
+**Mets starter Kodai Senga headed to IL with hamstring strain**\
+`The right-hander with a 1.47 ERA suffered the injury covering first base on a grounder. What does this mean for New York's rotation?`\
+https://nytimes.com/athletic/6422634/2025/06/12/mets-kodai-senga-injury-hamstring/
+
 **Trump Administration Sues New York Over Law Barring ICE From Courthouses**\
 `State lawmakers passed the ban in 2020 when President Trump in his first term escalated arrests of undocumented immigrants at state and local courts.`\
 https://nytimes.com/2025/06/12/nyregion/trump-ny-lawsuit-ice-courthouses.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/arts/television/the-survivors-netflix-australian.
 **Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests**\
 `“I don’t feel like a king, I have to go through hell to get stuff approved,” President Trump said of the planned demonstrations against his administration.`\
 https://nytimes.com/2025/06/12/us/politics/trump-no-kings-protests.html
-
-**Hundreds Dead in the Fiery Crash of an Air India Jet**\
-`The London-bound Boeing Dreamliner went down moments after takeoff in Ahmedabad, India, with 242 people aboard. Dozens more on the ground perished as the plane exploded on the campus of a medical college.`\
-https://nytimes.com/2025/06/12/world/asia/india-plane-crash.html
-
-**Trump’s New ‘Apprentice’ Boardroom: The Oval Office**\
-`The stately room has long been a site of diplomacy. But the reality-star president often does not come there to make friends.`\
-https://nytimes.com/2025/06/12/arts/television/trump-oval-office-apprentice.html
-
-**F.A.A. Further Restricts Area Around Reagan Airport to Helicopters**\
-`The agency has taken steps to reduce the risk of midair collisions after a military helicopter struck a commercial flight in January, killing everyone on both crafts.`\
-https://nytimes.com/2025/06/12/us/politics/faa-reagan-airport.html
 
