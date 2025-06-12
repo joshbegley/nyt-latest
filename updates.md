@@ -1,3 +1,7 @@
+**Boeing’s Dreamliner was the subject of safety concerns but never had a crash before Thursday.**\
+`In a statement, Boeing said that it was aware of the crash on the Air India flight and was “working to gather more information.”`\
+https://nytimes.com/2025/06/12/business/boeings-dreamliner-was-the-subject-of-safety-concerns-but-never-had-a-crash-before-thursday.html
+
 **An American Takes the Long Route to a Life in Canada**\
 `After a couple of false starts, a Connecticut native overcame the red tape and moved to Montreal with her daughter. Which condo was the right fit?`\
 https://nytimes.com/interactive/2025/06/12/realestate/montreal-quebec-canada-home-buying.html

@@ -1,3 +1,7 @@
+**Boeing’s Dreamliner was the subject of safety concerns but never had a crash before Thursday.**\
+`In a statement, Boeing said that it was aware of the crash on the Air India flight and was “working to gather more information.”`\
+https://nytimes.com/2025/06/12/business/boeings-dreamliner-was-the-subject-of-safety-concerns-but-never-had-a-crash-before-thursday.html
+
 **An American Takes the Long Route to a Life in Canada**\
 `After a couple of false starts, a Connecticut native overcame the red tape and moved to Montreal with her daughter. Which condo was the right fit?`\
 https://nytimes.com/interactive/2025/06/12/realestate/montreal-quebec-canada-home-buying.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/12/us/trump-news-immigration
 **Obi Toppin's energy, high-flying feats help Pacers knock off Thunder in Game 3**\
 `The Pacers' reserve has athleticism, fearlessness and a level of defiance toward the law of gravity. In Game 3, Indiana needed all three.`\
 https://nytimes.com/athletic/6420935/2025/06/12/pacers-obi-toppin-thunder-game-3-nba-finals/
-
-**Cubs targeting starting pitching as trade deadline approaches**\
-`The Cubs could be one of the more aggressive buyers this July, and they already know what they need to pursue the most.`\
-https://nytimes.com/athletic/6419686/2025/06/12/cubs-mlb-trade-deadline-primer/
 
