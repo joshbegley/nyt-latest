@@ -1,3 +1,15 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2025/06/12/books/review/new-books-recommendations.html
+
+**A Train Station Taught Me What Education Is For**\
+`From any angle, Michigan Central Station is a revelation.`\
+https://nytimes.com/2025/06/12/opinion/what-michigan-central-station-taught-me.html
+
+**The Undermining of Science in America**\
+`Readers respond to articles about the Trump administration’s assault on science. Also: The coming military parade in Washington.`\
+https://nytimes.com/2025/06/12/opinion/science-america.html
+
 **La Dolce Vita, the Valentino Way**\
 `Archival photographs, fashion layouts and anecdotes from celebrity clients: A new book is devoted to all things Valentino.`\
 https://nytimes.com/2025/06/12/style/valentino-book-grand-italian-epic.html
