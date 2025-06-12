@@ -1,5 +1,13 @@
+**Where People Are Protesting Against Immigration Raids**\
+`Demonstrations are not only in Los Angeles. They have cropped up in cities across the country.`\
+https://nytimes.com/2025/06/11/us/us-protest-tracker-trump-ice.html
+
+**'I don't go and fact check my dad': Hunter Dobbins addresses false Yankees claims**\
+`Dobbins previously cited how his father, Lance, had been drafted twice by the Yankees and traded to the Arizona Diamondbacks.`\
+https://nytimes.com/athletic/6420284/2025/06/11/red-sox-hunter-dobbins-false-claims/
+
 **Immigrant rights protests spread across the country.**\
-`By Eduardo Medina, Jenna Fisher and Edgar Sandoval`\
+`By Eduardo Medina, Jenna Fisher, Edgar Sandoval and Ann Hinga Klein`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
 
 **Duffy Backs Safety Audit After Deadly Crash Near National Airport**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6418963/2025/06/11/hockey-canada-sexual-assault-tri
 **European football revenue hit record €38bn in 2023-24 season**\
 `The so-called big five leagues - the top divisions from England, Spain, Italy, Germany, and France - contribute huge figures, for how long?`\
 https://nytimes.com/athletic/6419926/2025/06/11/european-football-revenue-premier-league/
-
-**Tigers rookie right-hander Jackson Jobe set to undergo Tommy John surgery**\
-`Jobe entered the season ranked as The Athletic's No. 11 overall prospect.`\
-https://nytimes.com/athletic/6420133/2025/06/11/detroit-tigers-jackson-jobe-injury/
-
-**E.P.A. Axes Biden’s Climate and Pollution Limits on Power Plants**\
-`Lee Zeldin, the E.P.A. administrator, said erasing regulations would produce jobs and lower electricity costs. He called efforts to fight climate change “a cult.”`\
-https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.html
 

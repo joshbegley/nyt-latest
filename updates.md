@@ -1,3 +1,15 @@
+**Where People Are Protesting Against Immigration Raids**\
+`Demonstrations are not only in Los Angeles. They have cropped up in cities across the country.`\
+https://nytimes.com/2025/06/11/us/us-protest-tracker-trump-ice.html
+
+**'I don't go and fact check my dad': Hunter Dobbins addresses false Yankees claims**\
+`Dobbins previously cited how his father, Lance, had been drafted twice by the Yankees and traded to the Arizona Diamondbacks.`\
+https://nytimes.com/athletic/6420284/2025/06/11/red-sox-hunter-dobbins-false-claims/
+
+**Immigrant rights protests spread across the country.**\
+`By Eduardo Medina, Jenna Fisher, Edgar Sandoval and Ann Hinga Klein`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
+
 **Immigrant rights protests spread across the country.**\
 `By Eduardo Medina, Jenna Fisher and Edgar Sandoval`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
