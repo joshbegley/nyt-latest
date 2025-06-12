@@ -1,3 +1,7 @@
+**Live Updates: Passenger Plane Crashes in Western India With 242 Aboard**\
+`Air India said Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about survivors.`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad
+
 **Live Updates: Court Will Consider Trump’s Use of Troops as Immigration Protests Spread**\
 `A judge will hear California’s request to limit the role of the military in immigration raids. The police in Los Angeles, Seattle and other cities cleared protests on Wednesday night.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice
