@@ -1,3 +1,7 @@
+**Dodger Details: Ben Casparius' new role, star check-ins and more**\
+`The Dodgers might need more starts from Ben Casparius. He says he's ready for the challenge.`\
+https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
+
 **Giants place catcher Patrick Bailey on IL with neck strain**\
 `"Seems like it comes in waves," Giants manager Bob Melvin said of injuries.`\
 https://nytimes.com/athletic/6420312/2025/06/11/giants-catcher-patrick-bailey-il-neck-strain/

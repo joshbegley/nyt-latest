@@ -1,3 +1,7 @@
+**Dodger Details: Ben Casparius' new role, star check-ins and more**\
+`The Dodgers might need more starts from Ben Casparius. He says he's ready for the challenge.`\
+https://nytimes.com/athletic/6420277/2025/06/11/dodger-details-ben-casparius-new-role-hyeseong-kim-vs-lefties/
+
 **Giants place catcher Patrick Bailey on IL with neck strain**\
 `"Seems like it comes in waves," Giants manager Bob Melvin said of injuries.`\
 https://nytimes.com/athletic/6420312/2025/06/11/giants-catcher-patrick-bailey-il-neck-strain/
@@ -33,8 +37,4 @@ https://nytimes.com/video/obituaries/100000010222701/brian-wilson-beach-boys-obi
 **David Hogg to Exit D.N.C. After Backlash to His Primary Plan**\
 `Mr. Hogg said he would not run again for vice chair after the party voted for a new election. Democrats have been furious at his plan to challenge the party’s sitting lawmakers in primary races.`\
 https://nytimes.com/2025/06/11/us/politics/david-hogg-dnc-democrats.html
-
-**Prosecutor calls Michael McLeod the architect of Hockey Canada sexual assault**\
-`Crown prosecutor says "someone’s not telling the truth" in laying out the case against the five Hockey Canada defendants. `\
-https://nytimes.com/athletic/6418963/2025/06/11/hockey-canada-sexual-assault-trial-crown-closing-statement/
 
