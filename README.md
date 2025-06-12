@@ -1,3 +1,7 @@
+**Poland head coach resigns following Lewandowski ultimatum on international exile**\
+`Lewandowski said he had a "loss of trust" in the management and would not play for the nation again until a coaching change.`\
+https://nytimes.com/athletic/6420925/2025/06/12/poland-coach-robert-lewandowski-retirement/
+
 **Late Night Pokes Fun at Trump’s Idiotic Idiom**\
 `Hosts ripped into his comment during a speech to troops about former President Joe Biden never having been “the sharpest bulb.”`\
 https://nytimes.com/2025/06/12/arts/television/desi-lydic-trump-military-parade.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/12/crosswords/spelling-bee-forum.html
 **Word of the Day: stultify**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/12/learning/word-of-the-day-stultify.html
-
-**Police on foot and horseback disperse protesters in downtown Los Angeles.**\
-`The mood of a downtown march against immigration raids was initially joyous. It soured as the police forced the crowd to splinter.`\
-https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/police-on-foot-and-horseback-disperse-protesters-in-downtown-los-angeles
 
