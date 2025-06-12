@@ -1,3 +1,11 @@
+**Live Updates: Passenger Plane Crashes in Western India**\
+`Air India Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about the number of people onboard.`\
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad
+
+**Northern Ireland Struck by Anti-Immigrant Violence for Third Night**\
+`Rioters clashed with police in Ballymena and across County Antrim as masked groups set fire to a leisure center in Larne, where families had been temporarily settled in emergency housing.`\
+https://nytimes.com/2025/06/12/world/europe/northern-ireland-violence-police-ballymena.html
+
 **In a game the Pacers had to win, T.J. McConnell was everywhere: 'His energy is unbelievable'**\
 `He's a known irritant to teams around the NBA, but T.J. McConnell's play was especially edgy Wednesday.`\
 https://nytimes.com/athletic/6420699/2025/06/12/tj-mcconnell-pacers-bench-2025-nba-finals-game-3/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6419931/2025/06/12/browns-minicamp-denzel-ward-quar
 `An early look at the Tigers' likely needs, biggest questions and possible trade targets.`\
 https://nytimes.com/athletic/6419408/2025/06/12/tigers-mlb-trade-deadline-primer-3-early-storylines-to-watch/
 
-**Passenger Plane Crashes in Western India**\
+**Here’s the latest.**\
 `An Air India flight bound for London Gatwick Airport from Ahmedabad crashed shortly after takeoff, Indian officials said.`\
-https://nytimes.com/2025/06/12/world/asia/india-plane-crash-ahmedabad.html
+https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/india-plane-crash-ahmedabad
 
 **Adams: USMNT not worried about outside noise**\
 `The U.S. have now lost five of their 10 games under head coach Mauricio Pochettino, who was appointed in September.`\
 https://nytimes.com/athletic/6420931/2025/06/12/tyler-adams-usmnt-criticism/
-
-**Inside Our Voters’ Guide to New York’s Democratic Primary**\
-`We asked New Yorkers to rate the mayoral candidates. Here’s why.`\
-https://nytimes.com/2025/06/12/opinion/nytimes-nyc-mayor-election.html
-
-**U.N. Watchdog Rules That Iran Is Not Complying With Nuclear Obligations**\
-`The International Atomic Energy Agency decision comes as American and European officials say they believe that Israel is preparing to launch a military attack on Iran.`\
-https://nytimes.com/2025/06/12/world/middleeast/un-iaea-iran-nuclear-program.html
 
