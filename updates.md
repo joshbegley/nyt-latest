@@ -1,3 +1,7 @@
+**An American Takes the Long Route to a Life in Canada**\
+`After a couple of false starts, a Connecticut native overcame the red tape and moved to Montreal with her daughter. Which condo was the right fit?`\
+https://nytimes.com/interactive/2025/06/12/realestate/montreal-quebec-canada-home-buying.html
+
 **John Wells, 64, Who Fled New York for the Solitude of the Desert, Dies**\
 `A fashion photographer, he built a do-it-yourself life on 40 lonely acres in West Texas, living like a modern-day Thoreau and telling millions of his experience on a blog.`\
 https://nytimes.com/2025/06/12/style/john-wells-dead.html

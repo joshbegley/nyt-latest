@@ -1,3 +1,7 @@
+**An American Takes the Long Route to a Life in Canada**\
+`After a couple of false starts, a Connecticut native overcame the red tape and moved to Montreal with her daughter. Which condo was the right fit?`\
+https://nytimes.com/interactive/2025/06/12/realestate/montreal-quebec-canada-home-buying.html
+
 **John Wells, 64, Who Fled New York for the Solitude of the Desert, Dies**\
 `A fashion photographer, he built a do-it-yourself life on 40 lonely acres in West Texas, living like a modern-day Thoreau and telling millions of his experience on a blog.`\
 https://nytimes.com/2025/06/12/style/john-wells-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420935/2025/06/12/pacers-obi-toppin-thunder-game-3
 **Cubs targeting starting pitching as trade deadline approaches**\
 `The Cubs could be one of the more aggressive buyers this July, and they already know what they need to pursue the most.`\
 https://nytimes.com/athletic/6419686/2025/06/12/cubs-mlb-trade-deadline-primer/
-
-**Can Sabres find toughness Panthers have in the 2025 NHL Draft?**\
-`Even as hockey has become faster and more skilled than ever, the physical element of the sport hasn’t gone away.`\
-https://nytimes.com/athletic/6419644/2025/06/12/sabres-nhl-draft-2025-prospects-panthers/
 
