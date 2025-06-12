@@ -1,3 +1,15 @@
+**Senator Alex Padilla Forcibly Removed and Handcuffed After Confronting Noem**\
+`Mr. Padilla, Democrat of California, was shoved out of a room and handcuffed after he interrupted Kristi Noem, the Homeland Security secretary, during a news conference.`\
+https://nytimes.com/2025/06/12/us/politics/senator-alex-padilla-handcuffed.html
+
+**G.O.P. Senators Want Fewer Cuts to Food Aid, Teeing Up a Fight with the House**\
+`Republicans whose constituents rely on nutritional assistance worry that cuts to those programs approved by the House will saddle their states with huge costs and harm low-income children.`\
+https://nytimes.com/2025/06/12/us/politics/republican-senators-food-aid.html
+
+**Tottenham confirm Frank as new head coach on three-year deal**\
+`Thomas Frank succeeds Ange Postecoglou, who was sacked by Spurs last Friday, and leaves Brentford after seven years in charge.`\
+https://nytimes.com/athletic/6413693/2025/06/12/thomas-frank-tottenham-head-coach-official-brentford/
+
 **A Scandal-Plagued Meatpacking Giant Comes to the U.S. Stock Market**\
 `JBS, the biggest meatpacker in the world, is set to go public on the New York Stock Exchange this week.`\
 https://nytimes.com/2025/06/12/climate/jbs-new-york-stock-exchange-listing.html
