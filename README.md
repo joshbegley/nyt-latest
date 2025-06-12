@@ -1,3 +1,11 @@
+**One Soldier Killed, One Injured in Helicopter Training Mission at Fort Campbell**\
+`The aviation accident, which occurred on Wednesday night, is under investigation, the 101st Airborne Division said.`\
+https://nytimes.com/2025/06/12/us/soldier-killed-helicopter-fort-campbell.html
+
+**Democrats in California expressed outrage at a senator’s treatment by law enforcement officers.**\
+`Senator Alex Padilla, Democrat of California, was forced to the ground and handcuffed at an event held by the homeland security secretary, Kristi Noem.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/democrats-in-california-expressed-outrage-at-a-senators-treatment-by-law-enforcement-officers
+
 **Like His Music, Brian Wilson’s Style Was Deceptively Complex**\
 `In Pendleton shirts and khakis, Mr. Wilson and the Beach Boys showed the world what easy Southern California living looked like.`\
 https://nytimes.com/2025/06/12/style/brian-wilson-surf-style-beach-boys.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/federal-age
 **One Person Survived a Fiery Plane Crash in India**\
 `Also, federal agents handcuffed a senator and forced him to the floor. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/06/12/briefing/india-plane-crash-la-protests.html
-
-**NFL exec Brian Rolapp leaving for PGA Tour CEO position**\
-`Rolapp, responsible for the NFL's massive media rights deals, will lead the PGA Tour's for-profit arm.`\
-https://nytimes.com/athletic/6422717/2025/06/12/brian-rolapp-nfl-pga-tour-ceo/
-
-**Democratic senators decry the rough treatment of one of their own.**\
-`Senator Alex Padilla, Democrat of California, was forcibly removed from an event with Homeland Security Secretary Kristi Noem, forced to the floor and handcuffed.`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/democratic-senators-padilla-treatment
 
