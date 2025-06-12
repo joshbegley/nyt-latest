@@ -1,3 +1,15 @@
+**Missouri joins Texas in assembling National Guard troops**\
+`Texas activated its National Guard earlier this week ahead of protests there. Missouri is following suit, “taking a proactive approach,” its governor says.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/missouri-joins-texas-in-assembling-national-guard-troops
+
+**Judge Signals Doubt About Trump’s Use of National Guard to Deal With Protesters**\
+`But Judge Charles Breyer also suggested he was unlikely at this point to restrict the use of active-duty Marines in California.`\
+https://nytimes.com/2025/06/12/us/politics/california-trump-lawsuit-protests.html
+
+**After Abrego Garcia’s Deportation, a Maryland Pastor Regrets Supporting Trump**\
+`Most Americans have continued to support President Trump's push for deportations, but there are some early signs of cracks in his Latino support.`\
+https://nytimes.com/2025/06/12/us/abrego-garcia-maryland-pastor.html
+
 **Some Protests Calm After Curfews, but Measures Can Have Mixed Results**\
 `Los Angeles and Spokane, Wash., have turned to curfews to control unrest, but past measures, especially in 2020, have not always been effective.`\
 https://nytimes.com/2025/06/12/us/politics/curfew-protests-la-spokane.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6398783/2025/06/12/connor-hellebuyck-hart-vezina-tr
 **Rashawn Slater has 'full confidence' contract extension with Chargers will get done**\
 `Slater is set to play on his fifth-year option worth about $19 million. A market-level extension could pay him $28 million per year. `\
 https://nytimes.com/athletic/6422894/2025/06/12/rashawn-slater-chargers-contract-negotiations/
-
-**Michael Blake and Jessica Ramos won’t be at the debate. Here’s why.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/mayor-debate-ramos-blake
-
-**Rigmor Newman, Behind-the-Scenes Fixture of the Jazz World, Dies at 86**\
-`She was a concert promoter, a nightclub impresario and the producer of an award-winning 1992 film about the Nicholas Brothers dance duo.`\
-https://nytimes.com/2025/06/12/arts/music/rigmor-newman-dead.html
-
-**How Ohio State will handle revenue sharing, NIL with 36 varsity sports**\
-`AD Ross Bjork said Ohio State will not cut any sports teams but $18 million will be shared between football, basketball and volleyball.`\
-https://nytimes.com/athletic/6422712/2025/06/12/ohio-state-revenue-sharing-nil-ross-bjork/
 

@@ -1,3 +1,15 @@
+**Some Protests Calm After Curfews, but Measures Can Have Mixed Results**\
+`Los Angeles and Spokane, Wash., have turned to curfews to control unrest, but past measures, especially in 2020, have not always been effective.`\
+https://nytimes.com/2025/06/12/us/politics/curfew-protests-la-spokane.html
+
+**Crown attacks defense's tactics, legal arguments in Hockey Canada trial**\
+`LONDON, Ont.`\
+https://nytimes.com/athletic/6421810/2025/06/12/crown-attacks-defenses-tactics-legal-arguments-in-hockey-canada-trial/
+
+**Trump Steel Tariffs Expanded to Hit Home Appliances**\
+`The move is one of the first times this year that consumer products were specifically targeted with higher import taxes.`\
+https://nytimes.com/2025/06/12/us/politics/trump-tariffs-steel-home-appliances.html
+
 **California Opens Investigation Into State Farm**\
 `The state’s insurance regulator says the volume of complaints against the company following this year’s catastrophic wildfires in Los Angeles prompted the inquiry.`\
 https://nytimes.com/2025/06/12/realestate/state-farm-california-insurance-investigation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/arts/music/rigmor-newman-dead.html
 **How Ohio State will handle revenue sharing, NIL with 36 varsity sports**\
 `AD Ross Bjork said Ohio State will not cut any sports teams but $18 million will be shared between football, basketball and volleyball.`\
 https://nytimes.com/athletic/6422712/2025/06/12/ohio-state-revenue-sharing-nil-ross-bjork/
-
-**Denny Hamlin to skip Mexico City NASCAR race due to birth of his son**\
-`Ryan Truex, JGR’s reserve driver, will step in to drive No. 11 car as Hamlin will miss his first race since 2014.`\
-https://nytimes.com/athletic/6422844/2025/06/12/nascar-denny-hamlin-miss-race-mexico-city/
-
-**Trump Tells Farmers ‘Changes Are Coming’ to Immigration Crackdown**\
-`President Trump’s statement suggested his sweeping policies were alienating industries he wants to keep in his corner.`\
-https://nytimes.com/2025/06/12/us/politics/trump-farmers-hotels-immigration.html
-
-**Florida leaders promise a crackdown against unruly protesters.**\
-`Gov. Ron DeSantis promised a “zero tolerance policy.” One sheriff in the state said that officers would kill protesters who throw bricks or point weapons at deputies.`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/florida-leaders-promise-a-crackdown-against-unruly-protesters
 

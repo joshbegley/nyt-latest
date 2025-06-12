@@ -1,3 +1,15 @@
+**Some Protests Calm After Curfews, but Measures Can Have Mixed Results**\
+`Los Angeles and Spokane, Wash., have turned to curfews to control unrest, but past measures, especially in 2020, have not always been effective.`\
+https://nytimes.com/2025/06/12/us/politics/curfew-protests-la-spokane.html
+
+**Crown attacks defense's tactics, legal arguments in Hockey Canada trial**\
+`LONDON, Ont.`\
+https://nytimes.com/athletic/6421810/2025/06/12/crown-attacks-defenses-tactics-legal-arguments-in-hockey-canada-trial/
+
+**Trump Steel Tariffs Expanded to Hit Home Appliances**\
+`The move is one of the first times this year that consumer products were specifically targeted with higher import taxes.`\
+https://nytimes.com/2025/06/12/us/politics/trump-tariffs-steel-home-appliances.html
+
 **California Opens Investigation Into State Farm**\
 `The state’s insurance regulator says the volume of complaints against the company following this year’s catastrophic wildfires in Los Angeles prompted the inquiry.`\
 https://nytimes.com/2025/06/12/realestate/state-farm-california-insurance-investigation.html
