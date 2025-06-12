@@ -1,3 +1,11 @@
+**Trump’s New ‘Apprentice’ Boardroom: The Oval Office**\
+`The stately room has long been a site of diplomacy. But the reality-star president often does not come there to make friends.`\
+https://nytimes.com/2025/06/12/arts/television/trump-oval-office-apprentice.html
+
+**F.A.A. Further Restricts Area Around Reagan Airport to Helicopters**\
+`The agency has taken steps to reduce the risk of midair collisions after a military helicopter struck a commercial flight in January, killing everyone on both crafts.`\
+https://nytimes.com/2025/06/12/us/politics/faa-reagan-airport.html
+
 **David H. Murdock, a Fierce Rags-to-Riches Corporate Raider, Dies at 102**\
 `He was a school dropout at 14 and homeless for a spell, but as a driven investor he became a billionaire. Later came another quest: to extend life through better nutrition.`\
 https://nytimes.com/2025/06/12/business/dealbook/david-h-murdock-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/arts/music/james-lowe-dead.html
 **Brian Wilson Wrote the California Dream, but He Didn’t Live It**\
 `An artist nearly synonymous with Los Angeles made his name crafting songs playing up his home state’s beachy vibes. His inner life, however, was anything but sunny.`\
 https://nytimes.com/2025/06/12/arts/music/brian-wilson-beach-boys-california.html
-
-**Amanda Feilding, Eccentric Countess Who Backed Psychedelic Meds, Dies at 82**\
-`She was ridiculed for drilling a hole in her skull to increase blood flow, but her foundation’s research into the therapeutic use of counterculture drugs proved visionary.`\
-https://nytimes.com/2025/06/12/science/amanda-feilding-trepanation-dead.html
-
-**Whistle-blower’s lawyer calls on F.A.A. to release report on 787 Dreamliner.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/whistle-blowers-lawyer-calls-on-faa-to-release-report-on-787-dreamliner
 
