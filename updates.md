@@ -1,3 +1,15 @@
+**The Art of the Stall: China’s Strategy for Dealing With Trump**\
+`Beijing has gained time to build up its own strengths by drawing out negotiations with the United States, using its chokehold over critical minerals.`\
+https://nytimes.com/2025/06/12/world/asia/trump-china-trade-deal.html
+
+**Inside Pat McAfee’s world: Adam Schefter’s ban, solo GameDay dreams, possibly more live events**\
+`The sports media star's stratospheric rise has been built on unpredictability paired with a showman's sense of their audience.`\
+https://nytimes.com/athletic/6420232/2025/06/12/pat-mcafee-adam-schefter-espn-youtube-stephen-a-smith/
+
+**J.J. McCarthy minicamp reps may not induce headlines — but that's OK (and intentional)**\
+`The Vikings don't care how their young quarterback looks in OTAs or minicamp. They're focused on preparing him for when it matters.`\
+https://nytimes.com/athletic/6420098/2025/06/12/j-j-mccarthy-vikings-minicamp-ryan-kelly/
+
 **St. Louis Cardinals trade deadline primer: 3 early storylines to watch**\
 `Ryan Helsley is in his final season before free agency and would be coveted at the deadline. But will the Cardinals need him? `\
 https://nytimes.com/athletic/6417596/2025/06/12/mlb-trade-deadline-cardinals-mozeliak/
