@@ -1,3 +1,15 @@
+**Browns minicamp: QBs slowly making strides, Denzel Ward still in top form**\
+`Tracking Cleveland's quarterbacks two days into minicamp, how the wide receiver room has looked and more.`\
+https://nytimes.com/athletic/6419931/2025/06/12/browns-minicamp-denzel-ward-quarterbacks/
+
+**Detroit Tigers MLB trade deadline primer: 3 early storylines to watch**\
+`An early look at the Tigers' likely needs, biggest questions and possible trade targets.`\
+https://nytimes.com/athletic/6419408/2025/06/12/tigers-mlb-trade-deadline-primer-3-early-storylines-to-watch/
+
+**Passenger Plane Crashes in Western India**\
+`An Air India flight bound for London Gatwick Airport from Ahmedabad crashed shortly after takeoff, Indian officials said.`\
+https://nytimes.com/2025/06/12/world/asia/india-plane-crash-ahmedabad.html
+
 **Adams: USMNT not worried about outside noise**\
 `The U.S. have now lost five of their 10 games under head coach Mauricio Pochettino, who was appointed in September.`\
 https://nytimes.com/athletic/6420931/2025/06/12/tyler-adams-usmnt-criticism/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/t-magazine/new-queer-nonfiction-books.html
 **Black and Latino Leaders Condemn Trump’s Use of Military in L.A.**\
 `The leaders described President Trump’s actions as a clear attempt to attack communities of color.`\
 https://nytimes.com/2025/06/12/us/trump-protests-la-immigrants-civil-rights-leaders.html
-
-**Brian Wilson and Sly Stone: Pop World Builders Dogged by Darkness**\
-`Two of music’s powerful visionaries died this week. The songs they meticulously constructed offered an escape their makers struggled to realize in their own lives.`\
-https://nytimes.com/2025/06/12/arts/music/brian-wilson-sly-stone.html
-
-**Cuomo and Mamdani Trade Attacks Over Trump Ahead of Debate**\
-`The two front-runners in the New York City mayor’s race are using President Trump and the volatile immigration protests in Los Angeles as late-stage campaign issues.`\
-https://nytimes.com/2025/06/12/nyregion/cuomo-mamdani-debate.html
-
-**Cowboys minicamp: Jake Ferguson, George Pickens shine on Day 2; ping pong duels intensify**\
-`Pickens looks like a difference-maker in minicamp while Ferguson eyes getting back into the end zone after a TD-less 2024 season.`\
-https://nytimes.com/athletic/6419759/2025/06/12/cowboys-minicamp-george-pickens-jake-ferguson-parsons/
 

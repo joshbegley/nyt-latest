@@ -1,3 +1,15 @@
+**Browns minicamp: QBs slowly making strides, Denzel Ward still in top form**\
+`Tracking Cleveland's quarterbacks two days into minicamp, how the wide receiver room has looked and more.`\
+https://nytimes.com/athletic/6419931/2025/06/12/browns-minicamp-denzel-ward-quarterbacks/
+
+**Detroit Tigers MLB trade deadline primer: 3 early storylines to watch**\
+`An early look at the Tigers' likely needs, biggest questions and possible trade targets.`\
+https://nytimes.com/athletic/6419408/2025/06/12/tigers-mlb-trade-deadline-primer-3-early-storylines-to-watch/
+
+**Passenger Plane Crashes in Western India**\
+`An Air India flight bound for London Gatwick Airport from Ahmedabad crashed shortly after takeoff, Indian officials said.`\
+https://nytimes.com/2025/06/12/world/asia/india-plane-crash-ahmedabad.html
+
 **Adams: USMNT not worried about outside noise**\
 `The U.S. have now lost five of their 10 games under head coach Mauricio Pochettino, who was appointed in September.`\
 https://nytimes.com/athletic/6420931/2025/06/12/tyler-adams-usmnt-criticism/
