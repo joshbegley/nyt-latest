@@ -1,3 +1,7 @@
+**Tyrese Haliburton, Pacers bench carry Indiana to Game 3 victory against Thunder**\
+`The All-Star guard had his best game of the series, and Bennedict Mathurin scored a team-high 27 for underdog Indiana.`\
+https://nytimes.com/athletic/6420525/2025/06/11/thunder-pacers-nba-finals-bennedict-mathurin-tj-mcconnell/
+
 **Bench carries Pacers to victory in first NBA Finals game in Indiana since 2000**\
 `All-Star Tyrese Haliburton had his best game of the series, and underdog Indiana is now two wins away from its first championship.`\
 https://nytimes.com/athletic/6420525/2025/06/11/thunder-pacers-nba-finals-bennedict-mathurin-tj-mcconnell/
