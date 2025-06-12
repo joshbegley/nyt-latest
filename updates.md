@@ -1,3 +1,11 @@
+**U.S. Embassy in Jerusalem Braces for Possible Israeli Strike on Iran**\
+`The diplomatic mission restricted the movement of employees and their families a day after the United States withdrew diplomats from Iraq.`\
+https://nytimes.com/2025/06/12/world/middleeast/israel-iran.html
+
+**The life lessons of Sam Long, triathlon's tortoise and hare all in one**\
+`Sam Long is one of the world's best triathletes — despite being pretty bad at one of the legs. His is a story of working through weaknesses.`\
+https://nytimes.com/athletic/6359827/2025/06/12/sam-long-triathlon-ironman-vancouver-swimming/
+
 **Cuomo’s Comeback**\
 `We explore the former governor’s campaign, the field of competitors and what it all means for Democrats.`\
 https://nytimes.com/2025/06/12/briefing/andrew-cuomo-mayors-race.html

@@ -1,3 +1,11 @@
+**U.S. Embassy in Jerusalem Braces for Possible Israeli Strike on Iran**\
+`The diplomatic mission restricted the movement of employees and their families a day after the United States withdrew diplomats from Iraq.`\
+https://nytimes.com/2025/06/12/world/middleeast/israel-iran.html
+
+**The life lessons of Sam Long, triathlon's tortoise and hare all in one**\
+`Sam Long is one of the world's best triathletes — despite being pretty bad at one of the legs. His is a story of working through weaknesses.`\
+https://nytimes.com/athletic/6359827/2025/06/12/sam-long-triathlon-ironman-vancouver-swimming/
+
 **Cuomo’s Comeback**\
 `We explore the former governor’s campaign, the field of competitors and what it all means for Democrats.`\
 https://nytimes.com/2025/06/12/briefing/andrew-cuomo-mayors-race.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6419632/2025/06/12/guardians-takeaways-carlos-santa
 **What will Caitlin Clark's return to the Fever mean for Aari McDonald's future?**\
 `Could the Chicago Sky or Dallas Wings pick up McDonald? Or will she be back to the Fever this season? `\
 https://nytimes.com/athletic/6419548/2025/06/12/caitlin-clark-injury-return-aari-mcdonald-wnba/
-
-**Meet the other Brady Quinn: A 2028 QB recruit named after ND legend**\
-`This Brady Quinn is a Class of 2028 prospect from Florida, not the former QB who starred for the Irish in the mid-2000s.`\
-https://nytimes.com/athletic/6419472/2025/06/12/notre-dame-recruiting-brady-quinn-quarterback/
-
-**Pronman: How do best 2025 draft prospects compare with 2024's top 10?**\
-`A combined ranking from Corey Pronman of the top players from the 2024 and 2025 NHL Draft classes.`\
-https://nytimes.com/athletic/6366443/2025/06/12/nhl-draft-2025-2024-comparison/
 
