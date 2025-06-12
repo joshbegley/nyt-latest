@@ -1,3 +1,23 @@
+**Summer McIntosh breaks third world record in 5 days**\
+`McIntosh beat her previous record of 4:24.38 in the 400-meter individual medley set at the 2024 Canadian Olympic Trials.`\
+https://nytimes.com/athletic/6421697/2025/06/12/summer-mcintosh-swimming-world-record-trials/
+
+**Why did the Ducks trade for Chris Kreider, and what might come next?**\
+`What might Kreider's addition mean for the possible pursuit of Mitch Marner — and for other potential moves?`\
+https://nytimes.com/athletic/6419401/2025/06/12/chris-kreider-ducks-offseason/
+
+**MLS misses out on De Bruyne; Which global star will be next to sign?**\
+`With De Bruyne headed to Napoli after a brief flirtation with MLS, which big name is next in line to venture to North America?`\
+https://nytimes.com/athletic/6388034/2025/06/12/de-bruyne-napoli-mls-next-star-signing-dybala-neymar-pogba/
+
+**Instagram Wants Gen Z. What Does Gen Z Want From Instagram?**\
+`Young people are using Instagram for everything except the app’s original function.`\
+https://nytimes.com/2025/06/12/style/instagram-gen-z.html
+
+**Submit your questions here for Aaron Portzline's Blue Jackets mailbag**\
+`What will GM Don Waddell do this summer?`\
+https://nytimes.com/athletic/6421902/2025/06/12/blue-jackets-offseason-2025-questions/
+
 **Hebrew University: A Century of Progress**\
 `Commemorating 100 years of academic achievement and global contributions`\
 https://nytimes.com/paidpost/american-friends-of-hebrew-university/hebrew-university-a-century-of-progress/hebrew-university-a-century-of-progress.html
