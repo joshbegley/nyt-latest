@@ -1,3 +1,11 @@
+**Penguins mailbag: How do Sidney Crosby, Connor McDavid measure up?**\
+`Will McDavid someday find himself ahead of Crosby on everyone's all-time hockey player rankings? Depends who you ask.`\
+https://nytimes.com/athletic/6411144/2025/06/12/penguins-sidney-crosby-connor-mcdavid-mailbag/
+
+**Cleverley in talks to be Plymouth head coach**\
+`Plymouth have been seeking a replacement for Miron Muslic, who joined German second division side Schalke.`\
+https://nytimes.com/athletic/6421395/2025/06/12/tom-cleverley-plymouth-manager/
+
 **De Bruyne joins Napoli after Man City exit**\
 `De Bruyne announced in April that he would be leaving City at the end of the season after 10 years at the club.`\
 https://nytimes.com/athletic/6286466/2025/06/12/kevin-de-bruyne-napoli-transfer/
