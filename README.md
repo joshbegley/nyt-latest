@@ -1,3 +1,7 @@
+**The Pacers are showing who they really are — and that they're for real**\
+`Game 3 revealed what the Pacers look like at their best. Dogged. Determined. And dominant when it matters most.`\
+https://nytimes.com/athletic/6420788/2025/06/12/pacers-first-nba-championship-belief/
+
 **The Pulse: The Pacers pounce, and the U.S. Open looks scary**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6419493/2025/06/12/pacers-thunder-game-3-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420098/2025/06/12/j-j-mccarthy-vikings-minicamp-ry
 **St. Louis Cardinals trade deadline primer: 3 early storylines to watch**\
 `Ryan Helsley is in his final season before free agency and would be coveted at the deadline. But will the Cardinals need him? `\
 https://nytimes.com/athletic/6417596/2025/06/12/mlb-trade-deadline-cardinals-mozeliak/
-
-**Ravens like their CB depth, but they're not ruling out a veteran addition**\
-`Two accomplished CBs, Jaire Alexander and Jalen Ramsey, are available. Will Baltimore stand pat or attempt to strengthen its secondary?`\
-https://nytimes.com/athletic/6419966/2025/06/12/ravens-tj-tampa-cornerbacks-jaire-alexander/
 
