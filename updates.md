@@ -1,3 +1,11 @@
+**La Dolce Vita, the Valentino Way**\
+`Archival photographs, fashion layouts and anecdotes from celebrity clients: A new book is devoted to all things Valentino.`\
+https://nytimes.com/2025/06/12/style/valentino-book-grand-italian-epic.html
+
+**Shining a Light on the World of Tiny Proteins**\
+`From viruses to humans, life makes microproteins that have evaded discovery until now.`\
+https://nytimes.com/2025/06/12/science/genes-dna-microproteins.html
+
 **Knicks coaching search currently focused on Mike Brown, Taylor Jenkins**\
 `More names could emerge soon, as a league source said the Knicks are planning on finalizing that list in the coming days.`\
 https://nytimes.com/athletic/6421935/2025/06/12/knicks-coach-mike-brown-taylor-jenkins-nba/
