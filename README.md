@@ -1,3 +1,7 @@
+**La Dolce Vita, the Valentino Way**\
+`Archival photographs, fashion layouts and anecdotes from celebrity clients: A new book is devoted to all things Valentino.`\
+https://nytimes.com/2025/06/12/style/valentino-book-grand-italian-epic.html
+
 **Shining a Light on the World of Tiny Proteins**\
 `From viruses to humans, life makes microproteins that have evaded discovery until now.`\
 https://nytimes.com/2025/06/12/science/genes-dna-microproteins.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/air-india-
 **Senate Confirms Billy Long to Lead I.R.S., Ignoring Troubled Tax Credit History**\
 `The former Republican congressman and auctioneer also had a brief career selling tax credits, including one that the I.R.S. said did not exist and another it said was rife with fraud.`\
 https://nytimes.com/2025/06/12/us/politics/billy-long-irs-commissioner-confirmation.html
-
-**Drogheda appealing 'harsh and unfair' expulsion from Conference League**\
-`The Irish top-flight club have been notified by UEFA that they are facing expulsion due to the governing body's multi-club ownership rules.`\
-https://nytimes.com/athletic/6421794/2025/06/12/drogheda-united-appeal-conference-league-expulsion/
 
