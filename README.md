@@ -1,40 +1,40 @@
-**Boeing 787 Crash Brings Fresh Scrutiny to Plane Maker’s Safety Record**\
-`The accident happened just weeks after the company cut a deal with the U.S. government to avoid taking criminal responsibility for a pair of deadly crashes in 2018 and 2019.`\
-https://nytimes.com/2025/06/12/business/boeing-787-dreamliner-crash-safety-record.html
+**Cuomo’s Comeback**\
+`We explore the former governor’s campaign, the field of competitors and what it all means for Democrats.`\
+https://nytimes.com/2025/06/12/briefing/andrew-cuomo-mayors-race.html
 
-**The Athletic FC: What's going on with USMNT? Plus: Players to watch at Club World Cup**\
-`Today in TAFC: We look at the problems affecting the USMNT, ticket prices slashed at the Club World Cup - and the players you should watch.`\
-https://nytimes.com/athletic/6420912/2025/06/12/pochettino-usmnt-club-world-cup-players-to-watch/
+**Phillies trade deadline primer: 3 early storylines to watch**\
+`This will be a fascinating deadline for Dave Dombrowski, who has to issue a referendum on this roster's chances for a World Series title.`\
+https://nytimes.com/athletic/6416116/2025/06/12/phillies-mlb-trade-deadline-storylines/
 
-**The Pacers are showing who they really are — and that they're for real**\
-`Game 3 revealed what the Pacers look like at their best. Dogged. Determined. And dominant when it matters most.`\
-https://nytimes.com/athletic/6420788/2025/06/12/pacers-first-nba-championship-belief/
+**Yankees trade deadline primer: 3 early storylines to watch**\
+`The Yankees are World Series contenders again, but they'll need to upgrade their roster at the deadline. Here are three storylines to watch.`\
+https://nytimes.com/athletic/6419166/2025/06/12/yankees-mlb-trade-deadline-storylines/
 
-**The Pulse: The Pacers pounce, and the U.S. Open looks scary**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6419493/2025/06/12/pacers-thunder-game-3-the-pulse/
+**‘It might mean making the selection’: Would the Bruins would consider trading the No. 7 pick?**\
+`Sweeney: "We will use the draft capital and try to improve our hockey club this year and moving forward in every capacity possible."`\
+https://nytimes.com/athletic/6419669/2025/06/12/bruins-2025-draft-first-round-trade/
 
-**Japan Says Chinese Fighter Jet Flew Too Close to Its Military Plane**\
-`The maneuvers over international waters in the Pacific last weekend prompted Japanese officials to warn China not to repeat them and risk a collision.`\
-https://nytimes.com/2025/06/12/world/asia/japan-china-fighter-jet.html
+**How Steelers OC Arthur Smith plans to evolve with Aaron Rodgers and DK Metcalf**\
+`How does a run-heavy offensive coordinator marry his offensive philosophy with a pass-happy QB? That is Smith's challenge with Rodgers.`\
+https://nytimes.com/athletic/6420389/2025/06/12/pittsburgh-steelers-arthur-smith-aaron-rodgers-dk-metcalf/
 
-**Here’s the latest.**\
-`By Francesca Regalado, John Yoon, Karen Weise, Richard Fausset and Yan Zhuang`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/heres-the-latest
+**Canada Olympic hockey: Projecting the men's First 6, big questions about the rest of the roster**\
+`Brad Marchand has been one of the stars of the postseason but is no lock to repeat as one of the first players announced for Team Canada.`\
+https://nytimes.com/athletic/6419874/2025/06/12/canada-hockey-olympics-big-questions/
 
-**Listen: Is Mikel Arteta’s intensity wearing Arsenal down?**\
-`After another trophyless season at Arsenal, Ian Stone, Adrian Clarke and Art de Roché debated whether Arteta’s intensity has led to fatigue.`\
-https://nytimes.com/athletic/6416660/2025/06/12/is-mikel-artetas-intensity-wearing-arsenal-down/
+**Do you know your Guardians? Carlos Santana, José Ramírez, Cade Smith, more**\
+`The Guardians are 67 games into the 2025 season, so it's time for a quiz to see how closely you've been watching the action.`\
+https://nytimes.com/athletic/6419632/2025/06/12/guardians-takeaways-carlos-santana-jose-ramirez-cade-smith/
 
-**What We Know About a Passenger Plane Crash in Western India**\
-`An Air India passenger plane traveling with 242 people to London from Ahmedabad, in the western Indian state of Gujarat, crashed on Thursday.`\
-https://nytimes.com/2025/06/12/world/asia/india-plane-crash-what-to-know.html
+**What will Caitlin Clark's return to the Fever mean for Aari McDonald's future?**\
+`Could the Chicago Sky or Dallas Wings pick up McDonald? Or will she be back to the Fever this season? `\
+https://nytimes.com/athletic/6419548/2025/06/12/caitlin-clark-injury-return-aari-mcdonald-wnba/
 
-**The Art of the Stall: China’s Strategy for Dealing With Trump**\
-`Beijing has gained time to build up its own strengths by drawing out negotiations with the United States, using its chokehold over critical minerals.`\
-https://nytimes.com/2025/06/12/world/asia/trump-china-trade-deal.html
+**Meet the other Brady Quinn: A 2028 QB recruit named after ND legend**\
+`This Brady Quinn is a Class of 2028 prospect from Florida, not the former QB who starred for the Irish in the mid-2000s.`\
+https://nytimes.com/athletic/6419472/2025/06/12/notre-dame-recruiting-brady-quinn-quarterback/
 
-**Inside Pat McAfee’s world: Adam Schefter’s ban, solo GameDay dreams, possibly more live events**\
-`The sports media star's stratospheric rise has been built on unpredictability paired with a showman's sense of their audience.`\
-https://nytimes.com/athletic/6420232/2025/06/12/pat-mcafee-adam-schefter-espn-youtube-stephen-a-smith/
+**Pronman: How do best 2025 draft prospects compare with 2024's top 10?**\
+`A combined ranking from Corey Pronman of the top players from the 2024 and 2025 NHL Draft classes.`\
+https://nytimes.com/athletic/6366443/2025/06/12/nhl-draft-2025-2024-comparison/
 
