@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, June 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/12/todays-new-york-times
+
 **Oregon Wildfire Destroys Homes and Forces Evacuations**\
 `The Rowena Fire tripled in size Wednesday evening, destroying 20 homes.`\
 https://nytimes.com/2025/06/12/us/oregon-rowena-fire-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6415554/2025/06/12/arsenal-transfers-rodrygo-willia
 **Newcastle's summer transfer strategy: Are fans right to worry about the lack of activity?**\
 `The club have not yet made a senior signing, while other top teams have been recruiting heavily. Is that a cause for concern?`\
 https://nytimes.com/athletic/6418285/2025/06/12/newcastle-transfers-howe-mitchell-eales/
-
-**The Radar: The Athletic’s 2025 Club World Cup scouting guide**\
-`From Lionel Messi to Franco Mastantuono and Kylian Mbappe to Rodrigo Mora, we profile 50 players to watch at this summer's tournament`\
-https://nytimes.com/athletic/6404987/2025/06/12/club-world-cup-2025-player-guide-scouting/
 

@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, June 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/12/todays-new-york-times
+
 **Thursday Briefing**\
 `Stepping away from a U.S.-China trade war.`\
 https://nytimes.com/2025/06/12/briefing/china-trade-israel-iran.html
