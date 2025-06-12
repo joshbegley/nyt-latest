@@ -31,7 +31,7 @@ https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
 https://nytimes.com/athletic/6420007/2025/06/11/nhl-trades-free-agency-kreider-marchand-tavares/
 
 **New China Trade ‘Deal’ Takes U.S. Back to Where It Started**\
-`If a handshake agreement holds, it would merely undo some of the damage from the trade war that President Trump started.`\
+`If a handshake agreement holds, it will merely undo some of the damage from the trade war that President Trump started.`\
 https://nytimes.com/2025/06/11/us/politics/us-china-trade-deal-trump.html
 
 **In Trump’s Washington, ‘You Don’t Leave Home Without Your Lawyer’**\
