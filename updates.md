@@ -1,3 +1,7 @@
+**U.S. Customs and Border Protection removes CWC post amid FIFA concerns**\
+`The post centred around security measures for the first round of games of the tournament, which begins in Miami on Saturday.`\
+https://nytimes.com/athletic/6421295/2025/06/12/club-world-cup-security-fifa/
+
 **Wimbledon chiefs say replacing line judges was 'inevitable' ahead of 2025 event**\
 `The tournament also confirmed prize money increases for 2025, with the singles winners getting £3 million ($4.1 million) each.`\
 https://nytimes.com/athletic/6421206/2025/06/12/wimbledon-line-judges-replaced-electronic-line-calling/

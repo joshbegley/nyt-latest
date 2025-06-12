@@ -1,3 +1,7 @@
+**The Bounce: How Tyrese Haliburton and the Pacers put all NBA Finals pressure on Thunder**\
+`Tyrese Haliburton took a lot of criticism after Game 2, but Indiana's Game 3 turnaround has put all the pressure on Oklahoma City`\
+https://nytimes.com/athletic/6421250/2025/06/12/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-the-bounce/
+
 **U.S. Customs and Border Protection removes CWC post amid FIFA concerns**\
 `The post centred around security measures for the first round of games of the tournament, which begins in Miami on Saturday.`\
 https://nytimes.com/athletic/6421295/2025/06/12/club-world-cup-security-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417966/2025/06/12/padres-mlb-trade-deadline-primer
 **Man Utd confirm Cunha signing from Wolves**\
 `The Brazil international has signed a five-year contract at Old Trafford with the option of a further year.`\
 https://nytimes.com/athletic/6421339/2025/06/12/manchester-united-matheus-cunha-transfer-confirmed/
-
-**48 thoughts on the Lions' defensive players and special teams unit**\
-`The Lions' defense is hoping for better fortune this season after sustaining a pile of injuries last season.`\
-https://nytimes.com/athletic/6417294/2025/06/12/lions-defense-special-teams-aidan-hutchinson/
 
