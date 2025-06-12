@@ -1,3 +1,11 @@
+**The Met Opera’s ‘Diva Whisperer’ Takes Her Last Bow**\
+`Suzi Gomez-Pizzo, who is retiring as a wardrobe supervisor at the opera house after 18 years, has been a confidante and cheerleader to the stars.`\
+https://nytimes.com/2025/06/12/arts/music/suzi-gomez-pizzo-metropolitan-opera-wardrobe.html
+
+**Canadiens likely to continue mining NHL Draft for size, physicality**\
+`Over the past two drafts, the Canadiens have demonstrated they have a type at forward. That type is available in this draft.`\
+https://nytimes.com/athletic/6420784/2025/06/12/canadiens-nhl-draft-targets/
+
 **Penguins mailbag: How do Sidney Crosby, Connor McDavid measure up?**\
 `Will McDavid someday find himself ahead of Crosby on everyone's all-time hockey player rankings? Depends who you ask.`\
 https://nytimes.com/athletic/6411144/2025/06/12/penguins-sidney-crosby-connor-mcdavid-mailbag/
