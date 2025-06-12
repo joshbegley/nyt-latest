@@ -1,6 +1,26 @@
+**Where Are Immigration Protests Expected on Thursday?**\
+`Protests that began in Los Angeles have spread throughout the week. These cities across the country are expecting demonstrations on Thursday.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/where-are-immigration-protests-expected-on-thursday
+
+**Rich Gain and Poor Lose in Republican Policy Bill, Budget Office Finds**\
+`The nonpartisan Congressional Budget Office found that the richer Americans were, the more they would benefit from the measure carrying President Trump’s agenda. And the poorest would lose out altogether.`\
+https://nytimes.com/2025/06/12/us/politics/rich-poor-republican-bill.html
+
+**Spikes, suits and sports bras: Kipyegon's four-minute mile attempt with Nike**\
+`The four-minute mile barrier has never been broken by a woman and is over seven seconds faster than the official world record.`\
+https://nytimes.com/athletic/6421922/2025/06/12/nike-kipyegon-four-minute-mile/
+
+**All About That Basil**\
+`Not just for garnish, this do-it-all herb transforms simple dishes into weeknight winners.`\
+https://nytimes.com/2025/06/12/dining/basil-pesto-and-more-basil-recipes.html
+
+**Van Bronckhorst close to joining Slot's Liverpool coaching staff**\
+`The 50-year-old is the leading candidate to replace John Heitinga, who left Liverpool this summer to return to Ajax.`\
+https://nytimes.com/athletic/6422007/2025/06/12/liverpool-van-bronckhorst-coach/
+
 **Flash Flooding in San Antonio Kills 4 People**\
 `More than six inches of rain fell in the San Antonio region overnight, surpassing the city’s average rainfall for June and July combined.`\
-https://nytimes.com/2025/06/12/us/san-antonio-flash-flood.html
+https://nytimes.com/2025/06/12/weather/san-antonio-flash-flood.html
 
 **‘Sex’ Review: Two Men Talk About and Around the Subject**\
 `A chimney sweep and his colleague get deep on the roofs of Oslo in Dag Johan Haugerud’s curious meditation on marriage and masculinity.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/12/business/ftc-omnicom-interpublic-merger.html
 **Russian Scientist Released After Four Months in Federal Custody**\
 `Kseniia Petrova, a Harvard researcher, still faces criminal charges for failing to declare scientific samples she was carrying in her suitcase.`\
 https://nytimes.com/2025/06/12/science/russian-scientist-harvard-release.html
-
-**A G.O.P. Plan to Sell Public Land Is Back. This Time, It’s Millions of Acres.**\
-`Senate Republicans want to sell the land to build more housing in the West, but the idea is contentious even within their own party.`\
-https://nytimes.com/2025/06/12/climate/senate-gop-public-land-sale.html
-
-**MLB Mock Draft Live Q&A with Keith Law at 2pm ET on June 12**\
-`<p>Earlier today, Keith Law released his second mock draft of the 2025 MLB Draft season.`\
-https://nytimes.com/athletic/6419940/2025/06/12/mlb-mock-draft-live-q-and-a/
-
-**NHL trade grades: Rangers needed to unload Chris Kreider to move forward**\
-`How did our staff evaluate the retooling Rangers' return from Anaheim for their longest-tenured skater? `\
-https://nytimes.com/athletic/6418682/2025/06/12/nhl-trade-grades-chris-kreider-rangers-ducks/
-
-**Trump Blocks California E.V. Rules in Latest Move to Rein In the State**\
-`California leaders said the state intends to challenge the move in court, and to find new ways to move drivers toward electric vehicles.`\
-https://nytimes.com/2025/06/12/us/california-trump-electric-vehicle-waiver.html
-
-**Trent Alexander-Arnold's Real Madrid balancing act - and rebrand from Liverpool days**\
-`The former Liverpool man impressed with his Spanish as he faced a few delicate questions in his first appearance as a Real Madrid player`\
-https://nytimes.com/athletic/6421401/2025/06/12/trent-alexander-arnold-real-madrid-presentation/
 
