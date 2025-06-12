@@ -1,3 +1,7 @@
+**'I don't go and fact check my dad': Hunter Dobbins addresses false Yankees claims**\
+`Dobbins previously cited how his father, Lance, had been drafted twice by the Yankees and traded to the Arizona Diamondbacks.`\
+https://nytimes.com/athletic/6420284/2025/06/11/red-sox-hunter-dobbins-false-claims/
+
 **Immigrant rights protests spread across the country.**\
 `By Eduardo Medina, Jenna Fisher and Edgar Sandoval`\
 https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419926/2025/06/11/european-football-revenue-premie
 **Tigers rookie right-hander Jackson Jobe set to undergo Tommy John surgery**\
 `Jobe entered the season ranked as The Athletic's No. 11 overall prospect.`\
 https://nytimes.com/athletic/6420133/2025/06/11/detroit-tigers-jackson-jobe-injury/
-
-**E.P.A. Axes Biden’s Climate and Pollution Limits on Power Plants**\
-`Lee Zeldin, the E.P.A. administrator, said erasing regulations would produce jobs and lower electricity costs. He called efforts to fight climate change “a cult.”`\
-https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.html
 
