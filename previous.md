@@ -1,3 +1,11 @@
+**Trump Blocks California E.V. Rules in Latest Move to Rein In the State**\
+`California leaders said the state intends to challenge the move in court, and to find new ways to move drivers toward electric vehicles.`\
+https://nytimes.com/2025/06/12/us/california-trump-electric-vehicle-waiver.html
+
+**Trent Alexander-Arnold's Real Madrid balancing act - and rebrand from Liverpool days**\
+`The former Liverpool man impressed with his Spanish as he faced a few delicate questions in his first appearance as a Real Madrid player`\
+https://nytimes.com/athletic/6421401/2025/06/12/trent-alexander-arnold-real-madrid-presentation/
+
 **Summer McIntosh breaks third world record in 5 days**\
 `McIntosh beat her previous record of 4:24.38 in the 400-meter individual medley set at the 2024 Canadian Olympic Trials.`\
 https://nytimes.com/athletic/6421697/2025/06/12/summer-mcintosh-swimming-world-record-trials/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/business/india-plane-crash-causes.html
 **The Justice Dept. orders prosecutors around the country to be on standby ahead of weekend protests.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/the-justice-dept-orders-prosecutors-around-the-country-to-be-on-standby-ahead-of-weekend-protests
-
-**A modern-day Mr. Ranger, Chris Kreider deserves for his jersey to hang in Madison Square Garden**\
-`Despite the sentimental pull of wanting to see Kreider finish his career in New York, the move makes sense for Rangers GM Chris Drury. `\
-https://nytimes.com/athletic/6416329/2025/06/12/chris-kreider-trade-rangers-ducks-legacy/
-
-**Lawyers for Returned Deportee Seek Sanctions Against Trump Officials**\
-`Kilmar Armando Abrego Garcia’s lawyers asked the judge in the case to appoint a special master to investigate the failure by Trump officials to comply with her instructions.`\
-https://nytimes.com/2025/06/12/us/politics/abrego-garcia-sanctions.html
 
