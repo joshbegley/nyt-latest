@@ -1,3 +1,7 @@
+**Immigrant rights protests spread across the country.**\
+`By Eduardo Medina, Jenna Fisher and Edgar Sandoval`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
+
 **Duffy Backs Safety Audit After Deadly Crash Near National Airport**\
 `An investigation will examine what could have prevented an Army Black Hawk helicopter from ramming into an American Airlines flight on Jan. 29, killing all on board both aircraft.`\
 https://nytimes.com/2025/06/11/us/politics/duffy-backs-safety-audit-after-deadly-crash-near-national-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420133/2025/06/11/detroit-tigers-jackson-jobe-inju
 **E.P.A. Axes Biden’s Climate and Pollution Limits on Power Plants**\
 `Lee Zeldin, the E.P.A. administrator, said erasing regulations would produce jobs and lower electricity costs. He called efforts to fight climate change “a cult.”`\
 https://nytimes.com/2025/06/11/climate/epa-power-plants-mercury-carbon-trump.html
-
-**Homeland Security Says Video Shows ‘Targeted Arrest,’ Not Hit and Run**\
-`Hours after video of agents pinning a car and drawing their weapons circulated on social media, the agency said the driver had punched a federal agent and fled arrest.`\
-https://nytimes.com/2025/06/11/us/la-protest-car-hit-run-video.html
 
