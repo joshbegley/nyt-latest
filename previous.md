@@ -1,3 +1,23 @@
+**Drogheda appealing 'harsh and unfair' expulsion from Conference League**\
+`The Irish top-flight club have been notified by UEFA that they are facing expulsion due to the governing body's multi-club ownership rules.`\
+https://nytimes.com/athletic/6421794/2025/06/12/drogheda-united-appeal-conference-league-expulsion/
+
+**Thunder face moment of truth entering Game 4: 'You got to go in and play for your life'**\
+`All season long, the Thunder dominated with the top defense and third-most efficient offense. But the playoffs have been far more difficult.`\
+https://nytimes.com/athletic/6421455/2025/06/12/nba-finals-thunder-pacers-game-4/
+
+**What I'm hearing about Cam York and other Flyers offseason storylines**\
+`Don't look for any big-money free agents to come to Philadelphia this summer.`\
+https://nytimes.com/athletic/6421950/2025/06/12/philadelphia-flyers-york-offseason/
+
+**Flights Grounded at Boston’s Logan Airport After JetBlue Plane Rolls Off Runway**\
+`A ground stop was in place at the airport, its operator said, after a JetBlue plane rolled into a grassy area after landing. There were no injuries, an official said.`\
+https://nytimes.com/2025/06/12/us/jetblue-logan-airport-boston.html
+
+**Alex Cooper says sexual harassment at BU 'still happening on that campus today'**\
+`Cooper said Thursday she has learned the issues continued long after she left the team in 2015 by Feldman's successor.`\
+https://nytimes.com/athletic/6421495/2025/06/12/alex-cooper-boston-university-sexual-harassment/
+
 **Watch: Pacers' depth makes all the difference in Game 3 against Thunder**\
 `NBA Daily discusses the Pacers' win over the Thunder, which put Indiana up 2-1 in the NBA Finals.`\
 https://nytimes.com/athletic/6421730/2025/06/12/pacers-bench-thunder-nba-finals-game-3/
@@ -12,29 +32,9 @@ https://nytimes.com/2025/06/12/us/politics/trump-les-miserables.html
 
 **Federal Judge Will Hear Arguments Over Troop Deployment in California**\
 `Lawyers for the Trump administration and Gov. Gavin Newsom will make their case in a Thursday afternoon hearing in San Francisco.`\
-https://nytimes.com/2025/06/12/us/politics/federal-judge-will-hear-arguments-over-troop-deployment-in-california.html
+https://nytimes.com/2025/06/12/us/politics/la-protests-trump-hearing-marines-national-guard.html
 
-**Lyon in talks with Ajax over transfer of 18-year-old USWNT midfielder Yohannes**\
+**OL Lyonnes in talks with Ajax over transfer of 18-year-old USWNT midfielder Yohannes**\
 `Yohannes, who signed with Ajax in April 2023, is under contract until June 2026.`\
 https://nytimes.com/athletic/6420929/2025/06/12/lily-yohannes-lyon-transfer-ajax/
-
-**WATCH: Here's how Aleksander Barkov is slowing down Connor McDavid in the Stanley Cup Final**\
-`The matchup is crucial to determining which team eventually will lift the Stanley Cup.`\
-https://nytimes.com/athletic/6421961/2025/06/12/mcdavid-barkov-stanley-cup-final/
-
-**Where are immigration protests expected on Thursday?**\
-`Protests that began in Los Angeles have spread throughout the week. These cities across the country are expecting demonstrations on Thursday.`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/where-are-immigration-protests-expected-on-thursday
-
-**Rich Gain and Poor Lose in Republican Policy Bill, Budget Office Finds**\
-`The nonpartisan Congressional Budget Office found that the richer Americans were, the more they would benefit from the measure carrying President Trump’s agenda. And the poorest would lose out altogether.`\
-https://nytimes.com/2025/06/12/us/politics/rich-poor-republican-bill.html
-
-**Spikes, suits and sports bras: Kipyegon's four-minute mile attempt with Nike**\
-`The four-minute mile barrier has never been broken by a woman and is over seven seconds faster than the official world record.`\
-https://nytimes.com/athletic/6421922/2025/06/12/nike-kipyegon-four-minute-mile/
-
-**All About That Basil**\
-`Not just for garnish, this do-it-all herb transforms simple dishes into weeknight winners.`\
-https://nytimes.com/2025/06/12/dining/basil-pesto-and-more-basil-recipes.html
 
