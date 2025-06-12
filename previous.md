@@ -1,3 +1,7 @@
+**Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
+`By Annie Karni`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth
+
 **The primary has narrowed into a two-person race.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-narrowed-into-a-two-person-race
@@ -6,7 +10,7 @@ https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/heres-the-latest
 
-**Live Updates: As Race Tightens, N.Y.C. Mayoral Candidates Are Set to Debate**\
+**Live Updates: N.Y.C. Mayoral Candidates Are Set to Debate As Race Tightens**\
 `Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are leading the field, and five other Democrats onstage will try to halt their momentum. The debate begins at 7 p.m.`\
 https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/reader-center/new-york-times-photography-ai.html
 **Does Frank’s appointment move the needle for Spurs' 2025/26 top four odds?**\
 `Sam Tighe and Brett Koremenos explore whether Tottenham Hotspur’s appointment of Thomas Frank changes their odds of success.`\
 https://nytimes.com/athletic/6422501/2025/06/12/tottenham-hotspur-thomas-frank-betting-predictions-tips-odds/
-
-**‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family**\
-`Viswash Kumar Ramesh, 38, who sustained multiple injuries, a doctor said, was the only passenger out of 242 people on board the plane to walk away.`\
-https://nytimes.com/2025/06/12/world/asia/viswash-kumar-ramesh-air-india-survivor.html
 

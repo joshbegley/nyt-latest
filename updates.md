@@ -1,3 +1,11 @@
+**Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
+`By Annie Karni`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth
+
+**Live Updates: N.Y.C. Mayoral Candidates Are Set to Debate As Race Tightens**\
+`Former Gov. Andrew M. Cuomo and Assemblyman Zohran Mamdani are leading the field, and five other Democrats onstage will try to halt their momentum. The debate begins at 7 p.m.`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate
+
 **The primary has narrowed into a two-person race.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/the-primary-has-narrowed-into-a-two-person-race
