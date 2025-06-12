@@ -1,3 +1,7 @@
+**Air India’s New Owners Have Been Trying to Upgrade and Expand the Carrier**\
+`The Tata Group, which bought the airline three years ago, has been trying to improve operations at a time of great change in India’s aviation market.`\
+https://nytimes.com/2025/06/12/world/asia/air-india-plane-crash-safety-tata-group.html
+
 **U.S. Embassy in Jerusalem Braces for Possible Israeli Strike on Iran**\
 `The diplomatic mission restricted the movement of employees and their families a day after the United States withdrew diplomats from Iraq.`\
 https://nytimes.com/2025/06/12/world/middleeast/israel-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6419874/2025/06/12/canada-hockey-olympics-big-quest
 **Do you know your Guardians? Carlos Santana, José Ramírez, Cade Smith, more**\
 `The Guardians are 67 games into the 2025 season, so it's time for a quiz to see how closely you've been watching the action.`\
 https://nytimes.com/athletic/6419632/2025/06/12/guardians-takeaways-carlos-santana-jose-ramirez-cade-smith/
-
-**What will Caitlin Clark's return to the Fever mean for Aari McDonald's future?**\
-`Could the Chicago Sky or Dallas Wings pick up McDonald? Or will she be back to the Fever this season? `\
-https://nytimes.com/athletic/6419548/2025/06/12/caitlin-clark-injury-return-aari-mcdonald-wnba/
 
