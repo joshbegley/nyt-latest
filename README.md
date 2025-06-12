@@ -14,8 +14,8 @@ https://nytimes.com/2025/06/12/world/europe/austria-school-shooting-gunman.html
 `Emergency crews were at the scene after an Air India plane with more than 200 people on board crashed near the airport in the western Indian city of Ahmedabad, according to India’s civil aviation minister.`\
 https://nytimes.com/video/world/asia/100000010223479/london-bound-passenger-plane-crashes-in-western-india.html
 
-**Live Updates: Passenger Plane Crashes in Western India**\
-`Air India Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about the number of people onboard.`\
+**Live Updates: Passenger Plane Crashes in Western India With 242 Aboard**\
+`Air India said Flight 171 crashed in the city of Ahmedabad shortly after taking off for London Gatwick Airport. There was no immediate information about survivors.`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad
 
 **Northern Ireland Struck by Anti-Immigrant Violence for Third Night**\
