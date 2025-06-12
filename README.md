@@ -1,3 +1,15 @@
+**Rashawn Slater has 'full confidence' contract extension with Chargers will get done**\
+`Slater is set to play on his fifth-year option worth about $19 million. A market-level extension could pay him $28 million per year. `\
+https://nytimes.com/athletic/6422894/2025/06/12/rashawn-slater-chargers-contract-negotiations/
+
+**Michael Blake and Jessica Ramos won’t be at the debate. Here’s why.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/06/12/nyregion/nyc-mayoral-debate/mayor-debate-ramos-blake
+
+**Rigmor Newman, Behind-the-Scenes Fixture of the Jazz World, Dies at 86**\
+`She was a concert promoter, a nightclub impresario and the producer of an award-winning 1992 film about the Nicholas Brothers dance duo.`\
+https://nytimes.com/2025/06/12/arts/music/rigmor-newman-dead.html
+
 **How Ohio State will handle revenue sharing, NIL with 36 varsity sports**\
 `AD Ross Bjork said Ohio State will not cut any sports teams but $18 million will be shared between football, basketball and volleyball.`\
 https://nytimes.com/athletic/6422712/2025/06/12/ohio-state-revenue-sharing-nil-ross-bjork/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/us/soldier-killed-helicopter-fort-campbell.html
 **Democrats in California expressed outrage at a senator’s treatment by law enforcement officers.**\
 `Senator Alex Padilla, Democrat of California, was forced to the ground and handcuffed at an event held by the homeland security secretary, Kristi Noem.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/democrats-in-california-expressed-outrage-at-a-senators-treatment-by-law-enforcement-officers
-
-**Like His Music, Brian Wilson’s Style Was Deceptively Complex**\
-`In Pendleton shirts and khakis, Mr. Wilson and the Beach Boys showed the world what easy Southern California living looked like.`\
-https://nytimes.com/2025/06/12/style/brian-wilson-surf-style-beach-boys.html
-
-**Adrienne Adams Will Be the Only Woman Onstage at the Mayoral Debate**\
-`Ms. Adams, the City Council speaker, is running on a platform of competence without drama. (And no, she is not related to Mayor Eric Adams.)`\
-https://nytimes.com/2025/06/12/nyregion/adrienne-adams-nyc-mayor-debate.html
-
-**Padilla’s scuffle stirs painful memories of a childhood spent proving his worth.**\
-`By Annie Karni`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/padillas-scuffle-stirs-painful-memories-of-a-childhood-spent-proving-his-worth
 
