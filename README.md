@@ -1,3 +1,7 @@
+**The Pulse: The Pacers pounce, and the U.S. Open looks scary**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6419493/2025/06/12/pacers-thunder-game-3-the-pulse/
+
 **Japan Says Chinese Fighter Jet Flew Too Close to Its Military Plane**\
 `The maneuvers over international waters in the Pacific last weekend prompted Japanese officials to warn China not to repeat them and risk a collision.`\
 https://nytimes.com/2025/06/12/world/asia/japan-china-fighter-jet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417596/2025/06/12/mlb-trade-deadline-cardinals-moz
 **Ravens like their CB depth, but they're not ruling out a veteran addition**\
 `Two accomplished CBs, Jaire Alexander and Jalen Ramsey, are available. Will Baltimore stand pat or attempt to strengthen its secondary?`\
 https://nytimes.com/athletic/6419966/2025/06/12/ravens-tj-tampa-cornerbacks-jaire-alexander/
-
-**MLB trade deadline Urgency Index 1.0: Who needs what? Who needs it most?**\
-`Looking at which teams are most likely to need starting pitching, relief pitching and help with the lineup by July 31. `\
-https://nytimes.com/athletic/6417757/2025/06/12/mlb-trade-deadline-urgency-index-1/
 

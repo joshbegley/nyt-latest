@@ -1,3 +1,7 @@
+**Japan Says Chinese Fighter Jet Flew Too Close to Its Military Plane**\
+`The maneuvers over international waters in the Pacific last weekend prompted Japanese officials to warn China not to repeat them and risk a collision.`\
+https://nytimes.com/2025/06/12/world/asia/japan-china-fighter-jet.html
+
 **Here’s the latest.**\
 `By Francesca Regalado, John Yoon, Karen Weise, Richard Fausset and Yan Zhuang`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/heres-the-latest
