@@ -1,3 +1,23 @@
+**David H. Murdock, a Fierce Rags-to-Riches Corporate Raider, Dies at 102**\
+`He was a school dropout at 14 and homeless for a spell, but as a driven investor he became a billionaire. Later came another quest: to extend life through better nutrition.`\
+https://nytimes.com/2025/06/12/business/dealbook/david-h-murdock-dead.html
+
+**Jets stock report after minicamp: Wide receiver depth chart takes shape, position battles to watch**\
+`A look at who helped themselves and who hurt themselves this spring.`\
+https://nytimes.com/athletic/6422429/2025/06/12/jets-minicamp-practice-report-position-battles-update/
+
+**Lewis Hamilton backs under fire Fred Vasseur to lead Ferrari through struggles**\
+`After nine rounds, Ferrari has no grand prix victories. Hamilton says Vasseur “is the main reason I’m in this team”`\
+https://nytimes.com/athletic/6422601/2025/06/12/lewis-hamilton-fred-vasseur-ferrari/
+
+**Blackburn set to make at least 20 women's team staff members redundant**\
+`The club announced in May that their senior women’s team were to be demoted from Women’s Super League 2.`\
+https://nytimes.com/athletic/6422471/2025/06/12/blackburn-rovers-women-redundancies/
+
+**They’re Gentle. They’re Seasonal. They’re Soft Boy Cooks.**\
+`Hide your tomatoes: These charismatic chefs are on social media, a counter to the harder-edged chefs.`\
+https://nytimes.com/2025/06/12/dining/soft-boy-cooks.html
+
 **Do Californians Really Pay Trump’s Bills?**\
 `The rising tension between President Trump and Gov. Gavin Newsom is reviving questions about who pays into — and who takes from — the federal government.`\
 https://nytimes.com/2025/06/12/upshot/trump-california-donor-states.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/06/12/science/amanda-feilding-trepanation-dead.html
 **Whistle-blower’s lawyer calls on F.A.A. to release report on 787 Dreamliner.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2025/06/12/world/india-plane-crash-ahmedabad/whistle-blowers-lawyer-calls-on-faa-to-release-report-on-787-dreamliner
-
-**Enzo Staiola, Who Starred in ‘Bicycle Thieves’ as a Child, Dies at 85**\
-`Discovered on the street in Rome, he had a brush with stardom when he was cast in what many consider one of the greatest films of all time.`\
-https://nytimes.com/2025/06/12/movies/enzo-staiola-dead.html
-
-**Head of FEMA Command Center Quits After Trump Says He’ll Phase Out the Agency**\
-`The official, Jeremy Greenberg, was in charge of coordinating the national response to major disasters.`\
-https://nytimes.com/2025/06/12/climate/fema-resignations-trump-disaster.html
-
-**Soaring Temperatures Threaten Crops, So Scientists Are Looking to Alter the Plants**\
-`Genetically altering crops may be key to helping them adapt to extreme temperatures. But shrinking funds and social acceptance stand in the way.`\
-https://nytimes.com/2025/06/12/climate/plants-climate-change-photosynthesis.html
-
-**Giants OTA takeaways: Jaxson Dart shows off exquisite touch; CB battle brewing?**\
-`Deonte Banks might need to win a camp battle against Cor'Dale Flott to earn the starting outside cornerback spot opposite Paulson Adebo. `\
-https://nytimes.com/athletic/6422452/2025/06/12/new-york-giants-takeaways-jaxson-dart-deonte-banks/
-
-**Trump’s Immigration P.R. Campaign Enters a New Militarized Phase**\
-`The government’s visuals appear intended to persuade migrants without legal status to leave the country, while also making clear the administration will not tolerate resistance.`\
-https://nytimes.com/2025/06/12/us/politics/trump-immigration-pr-campaign.html
 
