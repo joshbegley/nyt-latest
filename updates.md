@@ -1,3 +1,11 @@
+**Hebrew University: A Century of Progress**\
+`Commemorating 100 years of academic achievement and global contributions`\
+https://nytimes.com/paidpost/american-friends-of-hebrew-university/hebrew-university-a-century-of-progress/hebrew-university-a-century-of-progress.html
+
+**What Caused the Crash? Experts Study Video of Plane’s Sudden Descent.**\
+`Safety experts said investigators will be looking at why and how the plane started descending during its take off.`\
+https://nytimes.com/2025/06/12/business/india-plane-crash-causes.html
+
 **The Justice Dept. orders prosecutors around the country to be on standby ahead of weekend protests.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/the-justice-dept-orders-prosecutors-around-the-country-to-be-on-standby-ahead-of-weekend-protests
