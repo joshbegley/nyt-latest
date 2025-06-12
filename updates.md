@@ -1,3 +1,19 @@
+**Immigrant rights protests spread across the country.**\
+`By Eduardo Medina, Jenna Fisher and Edgar Sandoval`\
+https://nytimes.com/live/2025/06/11/us/los-angeles-protests-trump-ice/immigrant-rights-protests-spread-across-the-country
+
+**Duffy Backs Safety Audit After Deadly Crash Near National Airport**\
+`An investigation will examine what could have prevented an Army Black Hawk helicopter from ramming into an American Airlines flight on Jan. 29, killing all on board both aircraft.`\
+https://nytimes.com/2025/06/11/us/politics/duffy-backs-safety-audit-after-deadly-crash-near-national-airport.html
+
+**'It just feels so much different': Blue Jays keep winning, putting 2024 far behind them**\
+`“It's the most fun we've had as a group, so far this year and in past years,” Ernie Clement said.`\
+https://nytimes.com/athletic/6420160/2025/06/11/blue-jays-keep-winning-2024-behind-them/
+
+**Cardinals takeaways: 3 trends to watch after St. Louis is swept by Blue Jays**\
+`Wednesday marked the third time the Cardinals have been swept this season and dropped their record to 36-32.`\
+https://nytimes.com/athletic/6419490/2025/06/11/cardinals-swept-by-blue-jays-takeaways/
+
 **Beach Boys’ Brian Wilson Dies at 82**\
 `Brian Wilson, leader and chief songwriter of The Beach Boys, wrote several hits in the 1960s, a musical counterpart to the myth of Southern California as paradise.`\
 https://nytimes.com/video/obituaries/100000010222701/brian-wilson-beach-boys-obituary.html
