@@ -1,3 +1,7 @@
+**Transfers TLDR: Trent Alexander-Arnold to Real Madrid – all you need to know**\
+`Trent Alexander-Arnold is now a Real Madrid player after leaving Liverpool – here we break down the deal`\
+https://nytimes.com/athletic/6419206/2025/06/12/trent-alexander-arnold-real-madrid-transfer/
+
 **How Companies Are Bracing for Trump’s Immigration Crackdown**\
 `Sectors including construction, hospitality, health care and manufacturing are on high alert. Economists are worried about the labor market and growth.`\
 https://nytimes.com/2025/06/12/business/dealbook/companies-trump-immigration-crackdown.html
