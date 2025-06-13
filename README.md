@@ -1,3 +1,15 @@
+**At least 22 states join California in its effort to block Trump’s troop deployment.**\
+`Washington State, Vermont and others have joined a legal brief backing Gov. Gavin Newsom’s request to block the deployment of California’s National Guard.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/at-least-22-states-join-california-in-its-effort-to-block-trumps-troop-deployment
+
+**The U.S. Open carnage is coming. It may have already started**\
+`More than any other major and any other course, an Oakmont U.S. Open is not about your highest of highs. It’s about your lows.`\
+https://nytimes.com/athletic/6422984/2025/06/12/us-open-2025-oakmont-high-scores/
+
+**At Debate, Cuomo Says Trump ‘Cannot Win a Fight’ With Him on Immigration**\
+`As Democratic mayoral candidates vowed to protect New York’s immigrants, Brad Lander, the city comptroller, confronted former Gov. Andrew M. Cuomo over his use of the term “illegal immigrants.”`\
+https://nytimes.com/2025/06/12/nyregion/nyc-mayor-debate-immigration.html
+
 **Trump’s Big Bill Would Be More Regressive Than Any Major Law in Decades**\
 `Estimates from the Congressional Budget Office, released Thursday, offer a detailed view into the effects on income groups.`\
 https://nytimes.com/interactive/2025/06/12/upshot/gop-megabill-distribution-poor-rich.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6422293/2025/06/12/twins-lose-rangers-bailey-ober-s
 **Owner in Dominican Nightclub Roof Collapse Is Arrested**\
 `After the collapse killed 236 people, an employee came forward with evidence the owners had been warned the roof posed a danger.`\
 https://nytimes.com/2025/06/12/world/americas/dominican-nightclub-roof-collapse-owner-arrest.html
-
-**How many people have been arrested in the nationwide anti-ICE protests?**\
-`Police have arrested more than 1,000 people in the past week as civil unrest that began after immigration sweeps in Los Angeles spread to cities across the country.`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/how-many-people-have-been-arrested-in-the-nationwide-anti-ice-protests
-
-**Missouri joins Texas in assembling National Guard troops.**\
-`Texas activated its National Guard earlier this week ahead of protests there. Missouri is following suit, “taking a proactive approach,” its governor says.`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/missouri-joins-texas-in-assembling-national-guard-troops
-
-**Judge Signals Doubt About Trump’s Use of National Guard to Deal With Protesters**\
-`But Judge Charles Breyer also suggested he was unlikely at this point to restrict the use of active-duty Marines in California.`\
-https://nytimes.com/2025/06/12/us/politics/california-trump-lawsuit-protests.html
 
