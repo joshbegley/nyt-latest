@@ -35,6 +35,6 @@ https://nytimes.com/2025/06/12/crosswords/daily-puzzle-2025-06-13.html
 https://nytimes.com/2025/06/12/arts/television/and-just-like-that-recap-season-3-episode-3.html
 
 **Law Enforcement Officers Respond to Reports of Unrest at Migrant Facility**\
-`Delaney Hall in Newark was also the scene of a recent clash in which a member of Congress was charged with assault.`\
+`Detainees at Delaney Hall in Newark had complained about meager amounts of food and water over the past day.`\
 https://nytimes.com/2025/06/12/nyregion/newark-migrant-detention-center-disturbance.html
 
