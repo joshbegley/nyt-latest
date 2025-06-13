@@ -1,3 +1,7 @@
+**Newcastle already have five goalkeepers, so why are they trying to sign a sixth?**\
+`Eddie Howe's squad is already stacked with keepers, so how will the dynamics play out if James Trafford joins?`\
+https://nytimes.com/athletic/6421327/2025/06/13/newcastle-five-goalkeepers-sign-a-sixth/
+
 **‘They Come at You’: The Grandmothers Playing Rough at a Kids’ Sport**\
 `The Ah Ma Flippa Ball team (ah ma means grandmother) is one example of how Singapore is encouraging its growing population of seniors to stay active.`\
 https://nytimes.com/2025/06/13/world/asia/singapore-aging-flippa-ball.html
