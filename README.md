@@ -1,3 +1,7 @@
+**Judge Blocks Trump Voting Order Requiring Proof of Citizenship**\
+`A judge ruled that President Trump likely exceeded his authority with elections changes that included punishing states that didn’t stop counting ballots after Election Day.`\
+https://nytimes.com/2025/06/13/us/politics/judge-blocks-trump-voting-order-requiring-proof-of-citizenship.html
+
 **Graham Gund, Playful Architect Who Mixed Past and Present, Dies at 84**\
 `A noted art collector as well as a designer, he brought a personal, history-minded approach to his work around Boston and on college campuses.`\
 https://nytimes.com/2025/06/13/arts/design/graham-gund-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/special-series/reza-aslan-myth-sacred-history.htm
 **How USMNT's World Cup run-up, global ranking compares to past hosts**\
 `USMNT is wobbling before its home World Cup. How do the run-ups of other past hosts compare, and what did it mean for their WC performance?`\
 https://nytimes.com/athletic/6423378/2025/06/13/usmnt-world-cup-hosts-elo-rating-comparison/
-
-**Inzaghi leaves Pisa after Serie A promotion**\
-`Inzaghi led the club back to the top-flight for the first time in 34 years with a second-placed finish in the 2024-25 season.`\
-https://nytimes.com/athletic/6424037/2025/06/13/filippo-inzaghi-manager-pisa/
 
