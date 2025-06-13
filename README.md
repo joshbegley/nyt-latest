@@ -1,3 +1,7 @@
+**Can the Panthers shake it off after blowing a 3-0 lead in Game 4?**\
+`The Panthers got off to a strong start, but the Oilers turned the tables to steal a road overtime win just as Florida had in Game 2.`\
+https://nytimes.com/athletic/6423521/2025/06/13/panthers-stanley-cup-final-reinhart-draisaitl/
+
 **PSV Eindhoven goalkeeper Walter Benitez to have Crystal Palace medical**\
 `Benitez is set to be out of contract with PSV later this month and has not signed a new deal with the Eredivisie champions.`\
 https://nytimes.com/athletic/6422208/2025/06/13/psv-eindhoven-goalkeeper-walter-benitez-to-have-crystal-palace-medical/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6422672/2025/06/13/yankees-red-sox-rivlary-cooled/
 **LeBrun: Oilers' Game 4 comeback could be the stuff of legend on their path to Stanley Cup**\
 `There are games in the history of the Stanley Cup Final that are not easily forgotten. If Edmonton wins, everyone will remember Game 4.`\
 https://nytimes.com/athletic/6423517/2025/06/13/oilers-nhl-stanley-cup-playoffs-game-4/
-
-**NBA Finals trends I'm watching: Tyrese Haliburton's speed, sneaky rebounding and more**\
-`An All-Star’s energy has returned. Rebounders are causing mismatches. And a notorious pest is winning with skill.`\
-https://nytimes.com/athletic/6422957/2025/06/13/tyrese-haliburton-pacers-thunder-2025-nba-finals/
 

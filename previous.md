@@ -1,3 +1,7 @@
+**PSV Eindhoven goalkeeper Walter Benitez to have Crystal Palace medical**\
+`Benitez is set to be out of contract with PSV later this month and has not signed a new deal with the Eredivisie champions.`\
+https://nytimes.com/athletic/6422208/2025/06/13/psv-eindhoven-goalkeeper-walter-benitez-to-have-crystal-palace-medical/
+
 **Rebooting Reebok's hoops brand, investing in Angel Reese**\
 `Reebok is back in the basketball game again and showcasing bigger-than-life personalities that embrace on- and off-the-court culture.`\
 https://nytimes.com/athletic/6422474/2025/06/13/reebok-angel-reese-basketball-revival/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423517/2025/06/13/oilers-nhl-stanley-cup-playoffs-
 **NBA Finals trends I'm watching: Tyrese Haliburton's speed, sneaky rebounding and more**\
 `An All-Star’s energy has returned. Rebounders are causing mismatches. And a notorious pest is winning with skill.`\
 https://nytimes.com/athletic/6422957/2025/06/13/tyrese-haliburton-pacers-thunder-2025-nba-finals/
-
-**Where would the Cubs be right now without Jameson Taillon?**\
-`"Words like 'consistent' and 'reliable' sometimes don't feel like they do Jameson enough justice," Cubs manager Craig Counsell said.`\
-https://nytimes.com/athletic/6423479/2025/06/13/cubs-pirates-jameson-taillon/
 

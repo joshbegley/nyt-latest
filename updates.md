@@ -1,3 +1,7 @@
+**PSV Eindhoven goalkeeper Walter Benitez to have Crystal Palace medical**\
+`Benitez is set to be out of contract with PSV later this month and has not signed a new deal with the Eredivisie champions.`\
+https://nytimes.com/athletic/6422208/2025/06/13/psv-eindhoven-goalkeeper-walter-benitez-to-have-crystal-palace-medical/
+
 **Rebooting Reebok's hoops brand, investing in Angel Reese**\
 `Reebok is back in the basketball game again and showcasing bigger-than-life personalities that embrace on- and off-the-court culture.`\
 https://nytimes.com/athletic/6422474/2025/06/13/reebok-angel-reese-basketball-revival/
