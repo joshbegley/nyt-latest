@@ -1,3 +1,7 @@
+**Residents of Tehran Awake to Devastation**\
+`After a terrifying night filled with loud explosions, long lines were forming at gas stations and grocery stores were filling up as Iranians prepared uncertain times.`\
+https://nytimes.com/2025/06/13/world/middleeast/israel-iran-tehran-attack.html
+
 **Grieving Relatives of India Air Crash Victims Wait for Bodies to be Identified**\
 `Families lined up for hours to give DNA samples so the authorities could match names to victims of Thursday’s crash, which killed at least 269 people.`\
 https://nytimes.com/2025/06/13/world/asia/india-air-crash-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/crosswords/spelling-bee-forum.html
 **Israel Attacks Iran**\
 `The attack on Tehran, the capital of Iran, was the biggest since the Iran-Iraq war decades ago.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-attacks-iran.html
-
-**Israel Strikes Iran**\
-`Smoke billowed from buildings and a nuclear-enrichment site in Iran as Israel launched an assault on the country to stymie its nuclear program.`\
-https://nytimes.com/video/world/middleeast/100000010226135/israel-strikes-iran.html
 
