@@ -1,3 +1,15 @@
+**Iran Launches Retaliatory Strikes Against Israel**\
+`Iran fired ballistic missiles that struck at least seven sites around Tel Aviv on Friday night, injuring dozens of Israelis. The move was a retaliation to the Israeli attacks on Iranian nuclear sites and military leaders.`\
+https://nytimes.com/video/world/middleeast/100000010228151/iran-israel-strikes.html
+
+**Marsch lauds Canada's Gold Cup commitment as USMNT wrestles with same topic**\
+`Jesse Marsch claims his comments weren't a dig at the USMNT and star Christian Pulisic, but the aren't many other ways to read into them.`\
+https://nytimes.com/athletic/6424945/2025/06/13/jesse-marsch-canada-usmnt-commitment-christian-pulisic-gold-cup/
+
+**Hockey Canada sexual assault trial is over; decision coming July 24**\
+`Though the Crown fought to preserve the jury trial, a mistrial and a jury dismissal have led to a trial that will be decided by the judge.`\
+https://nytimes.com/athletic/6424305/2025/06/13/canada-sexual-assault-trial-end-decision-july-24/
+
 **Death Toll Rises to 11 in San Antonio Flooding**\
 `Several people were missing on Friday as search efforts continued a day after flash flooding overwhelmed the area.`\
 https://nytimes.com/2025/06/13/weather/flooding-san-antonio-texas-deaths.html
