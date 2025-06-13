@@ -1,3 +1,7 @@
+**What’s the Deal? Nippon’s Bid for U.S. Steel Becomes Merger Mystery.**\
+`President Trump’s foray into the takeover could reshape the future of foreign investment in the United States.`\
+https://nytimes.com/2025/06/13/business/nippon-us-steel-deal-trump.html
+
 **In a New Book, E. Jean Carroll Chronicles Her Legal Battles With Trump**\
 `“Not My Type: One Woman vs. a President” includes reflections on being asked to testify about her sex life, as well as the thrill of winning two lawsuits.`\
 https://nytimes.com/2025/06/13/books/review/e-jean-carroll-not-my-type-trump-trial.html
