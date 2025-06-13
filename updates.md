@@ -1,3 +1,11 @@
+**The Windup: Promising debut hits speed bump**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6423551/2025/06/13/jacob-misiorowski-debut-injury-the-windup/
+
+**Willkie Farr Partners, Unhappy With the Firm’s Deal With Trump, Depart for Cooley**\
+`The departures are the latest fallout for firms that cut deals with President Trump to avoid executive orders.`\
+https://nytimes.com/2025/06/13/business/wilkie-farr-cooley-trump-deal.html
+
 **Mastantuono completes Real Madrid transfer from River Plate**\
 `Mastantuono's contract at River contained a release clause of €45million (£38.5m).`\
 https://nytimes.com/athletic/6405791/2025/06/13/franco-mastantuono-real-madrid-transfer/

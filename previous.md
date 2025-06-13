@@ -1,3 +1,11 @@
+**The Windup: Promising debut hits speed bump**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6423551/2025/06/13/jacob-misiorowski-debut-injury-the-windup/
+
+**Willkie Farr Partners, Unhappy With the Firm’s Deal With Trump, Depart for Cooley**\
+`The departures are the latest fallout for firms that cut deals with President Trump to avoid executive orders.`\
+https://nytimes.com/2025/06/13/business/wilkie-farr-cooley-trump-deal.html
+
 **Mastantuono completes Real Madrid transfer from River Plate**\
 `Mastantuono's contract at River contained a release clause of €45million (£38.5m).`\
 https://nytimes.com/athletic/6405791/2025/06/13/franco-mastantuono-real-madrid-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6423931/2025/06/13/chiefs-offensive-line-super-bowl
 **Good News for College Students: You May See a Dip in Student Loan Rates**\
 `A small decline in interest rates on federal loans for next school year is the first in five years. It comes amid turmoil in student loan and financial aid programs.`\
 https://nytimes.com/2025/06/13/your-money/federal-student-loans-interest-rates.html
-
-**'That's a great sign': Chris Kreider choosing the Ducks indicates a changing narrative**\
-`The Ducks are doing their best to become a destination for players with choices.`\
-https://nytimes.com/athletic/6423333/2025/06/13/chris-kreider-trade-ducks-rangers/
-
-**There’s a Good Chance Crypto Is Spreading in Your Retirement Account**\
-`Bitcoin and other digital assets are quietly growing in many nest eggs, with the encouragement of the Trump administration. Hidden risks are mounting, our columnist says.`\
-https://nytimes.com/2025/06/13/business/bitcoin-cryptocurrency-stablecoins-retirement.html
 
