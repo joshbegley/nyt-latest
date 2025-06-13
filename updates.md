@@ -1,3 +1,11 @@
+**Read the Judge’s Ruling**\
+`A federal judge temporarily blocked the federal government’s mobilization of the California National Guard to protect immigration agents from protesters in Los Angeles.`\
+https://nytimes.com/interactive/2025/06/13/us/govuscourtscand450934640.html
+
+**Explosions Rock Tehran**\
+`Surveillance footage shows explosions over Tehran as Israel launched what it described as a “pre-emptive strike” on Iran.`\
+https://nytimes.com/video/world/middleeast/100000010225811/explosions-rock-tehran.html
+
 **Trump Withdraws From Agreement With Tribes to Protect Salmon**\
 `The Biden administration had brokered a 10-year truce in an extended legal battle with Native American tribes in the Pacific Northwest over dams that had prevented fish from spawning.`\
 https://nytimes.com/2025/06/12/us/politics/trump-withdraws-from-agreement-with-tribes-to-protect-salmon.html

@@ -1,3 +1,11 @@
+**Read the Judge’s Ruling**\
+`A federal judge temporarily blocked the federal government’s mobilization of the California National Guard to protect immigration agents from protesters in Los Angeles.`\
+https://nytimes.com/interactive/2025/06/13/us/govuscourtscand450934640.html
+
+**Explosions Rock Tehran**\
+`Surveillance footage shows explosions over Tehran as Israel launched what it described as a “pre-emptive strike” on Iran.`\
+https://nytimes.com/video/world/middleeast/100000010225811/explosions-rock-tehran.html
+
 **Trump Withdraws From Agreement With Tribes to Protect Salmon**\
 `The Biden administration had brokered a 10-year truce in an extended legal battle with Native American tribes in the Pacific Northwest over dams that had prevented fish from spawning.`\
 https://nytimes.com/2025/06/12/us/politics/trump-withdraws-from-agreement-with-tribes-to-protect-salmon.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/protesters-
 **At least 22 states join California in its effort to block Trump’s troop deployment.**\
 `Washington State, Vermont and others have joined a legal brief backing Gov. Gavin Newsom’s request to block the deployment of California’s National Guard.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/at-least-22-states-join-california-in-its-effort-to-block-trumps-troop-deployment
-
-**A brutally tough U.S. Open is coming. It might have already started**\
-`More than any other major and any other course, an Oakmont U.S. Open is not about your highest of highs. It’s about your lows.`\
-https://nytimes.com/athletic/6422984/2025/06/12/us-open-2025-oakmont-high-scores/
-
-**At Debate, Cuomo Says Trump ‘Cannot Win a Fight’ With Him on Immigration**\
-`As Democratic mayoral candidates vowed to protect New York’s immigrants, Brad Lander, the city comptroller, confronted former Gov. Andrew M. Cuomo over his use of the term “illegal immigrants.”`\
-https://nytimes.com/2025/06/12/nyregion/nyc-mayor-debate-immigration.html
 
