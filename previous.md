@@ -1,3 +1,7 @@
+**The 6.22.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/06/13/the-6222025-issue
+
 **The 6.15.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
@@ -12,7 +16,7 @@ https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
 
 **Jury in Karen Read Trial Begins Deliberations**\
 `The Boston-area woman was accused of killing her police officer boyfriend in 2022.`\
-https://nytimes.com/2025/06/13/us/jury-in-karen-read-trial-begins-deliberations.html
+https://nytimes.com/2025/06/13/us/karen-read-trial-jury-deliberations.html
 
 **How Harbaugh's text to Jason Sudeikis inspired 'Ted Lasso' gameday attire**\
 `"I pack a toothbrush and a great attitude," Harbaugh told Sudeikis, sounding like the fictional cheery soccer coach.`\
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/asia/100000010226489/survivor-of-india-plane-cra
 **He Has Terminal Cancer. His Son Is Using A.I. to Keep His Memory Alive.**\
 `After Peter Listro was diagnosed with blood cancer, his family decided to make a virtual avatar they can talk to after his death.`\
 https://nytimes.com/interactive/2025/06/13/magazine/ai-avatar-life-death.html
-
-**Meet The Problem Solvers**\
-`Tackling the energy challenges of today, and tomorrow`\
-https://nytimes.com/paidpost/chevron/meet-the-problem-solvers.html
 

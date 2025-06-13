@@ -1,3 +1,7 @@
+**How Is Extreme Heat Affecting Air Travel?**\
+`Hot weather influences aircraft performance. We asked experts what it means for safety.`\
+https://nytimes.com/2025/06/13/climate/air-travel-extreme-heat.html
+
 **The 6.22.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/06/13/the-6222025-issue
@@ -11,7 +15,7 @@ https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
 https://nytimes.com/2025/06/13/style/hosh-party-native-american-art.html
 
 **Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
-`The contribution by Michael R. Bloomberg is the largest in New York City this cycle and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
+`The contribution by Michael R. Bloomberg is the largest to a super PAC in the New York City mayor’s race this year and follows his endorsement of Andrew M. Cuomo for mayor.`\
 https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
 
 **Jury in Karen Read Trial Begins Deliberations**\
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/06/13/upshot/flashback.html
 **Sole Survivor of India Plane Crash Recounts How He Survived**\
 `Viswash Kumar Ramesh was one of 242 people on the 787-8 Dreamliner that went down shortly after takeoff in Ahmedabad, India, and the only known survivor.`\
 https://nytimes.com/video/world/asia/100000010226489/survivor-of-india-plane-crash.html
-
-**He Has Terminal Cancer. His Son Is Using A.I. to Keep His Memory Alive.**\
-`After Peter Listro was diagnosed with blood cancer, his family decided to make a virtual avatar they can talk to after his death.`\
-https://nytimes.com/interactive/2025/06/13/magazine/ai-avatar-life-death.html
 

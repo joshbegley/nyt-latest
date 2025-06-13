@@ -1,3 +1,11 @@
+**The 6.22.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/06/13/the-6222025-issue
+
+**Jury in Karen Read Trial Begins Deliberations**\
+`The Boston-area woman was accused of killing her police officer boyfriend in 2022.`\
+https://nytimes.com/2025/06/13/us/karen-read-trial-jury-deliberations.html
+
 **The 6.15.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
