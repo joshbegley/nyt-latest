@@ -1,3 +1,7 @@
+**The Best Red-Light Devices**\
+`Text by Rory Evans`\
+https://nytimes.com/card/2025/06/13/smarter-living/wirecutter/the-best-red-light-devices
+
 **At a Weak Moment, Iran Weighs Difficult Options to Respond to Israel**\
 `An aggressive response to Israel’s attacks risks escalation. But giving in to U.S. and Israeli demands is an unlikely alternative.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-choices-israel-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424463/2025/06/13/sarris-live-chat-mlb-fantasy-bas
 **Is There a Safest Seat in a Plane Crash? We Asked Experts.**\
 `With all eyes on the sole survivor of Air India Flight 171, aviation insiders say that in an air catastrophe, “all bets are off” and seat choice matters little.`\
 https://nytimes.com/2025/06/13/travel/safest-seat-airplane.html
-
-**The presence of federal agents prompts fears among fans ahead of big soccer matches.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/the-presence-of-federal-agents-prompts-fan-fears-ahead-of-big-soccer-matches
 
