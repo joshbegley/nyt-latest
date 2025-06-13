@@ -1,3 +1,7 @@
+**Russian Forces Expand Fighting to a New Region of Eastern Ukraine**\
+`It’s the first time in three years of war that Russian troops have entered the Dnipropetrovsk region, a sign of battlefield momentum.`\
+https://nytimes.com/2025/06/13/world/europe/russia-ukraine-dnipropetrovsk.html
+
 **Watch Dakota Johnson and Pedro Pascal Spark in ‘Materialists’**\
 `The writer and director Celine Song narrates a sequence from her film, which also features Chris Evans.`\
 https://nytimes.com/2025/06/13/movies/dakota-johnson-pedro-pascal-materialists-clip.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/06/13/magazine/paella-hodgman-quiz.html
 **What has Dak Prescott 'super excited' about the Cowboys' offense?**\
 `The Dallas QB is looking forward to family time, but he's also excited about his June trip with some of the team's skill-position players.`\
 https://nytimes.com/athletic/6422952/2025/06/13/cowboys-offense-dak-prescott-george-pickens/
-
-**Remembering Sly Stone and Brian Wilson**\
-`A conversation about two pop visionaries whose lives, careers and legacies only grew more complex over time.`\
-https://nytimes.com/2025/06/13/arts/music/sly-stone-brian-wilson-popcast.html
 
