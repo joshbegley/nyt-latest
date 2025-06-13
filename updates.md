@@ -1,3 +1,15 @@
+**Trump’s Inaccurate Claims About the L.A. Immigration Protests**\
+`The president claimed, without giving evidence, that the protesters were “paid” agitators, that the Los Angeles police asked for the National Guard, and that swaths of the city were under gang control.`\
+https://nytimes.com/2025/06/13/us/politics/trump-la-immigration-protests-fact-check.html
+
+**Beckham awarded knighthood in King Charles III's birthday honours list**\
+`The former Manchester United and Real Madrid midfielder was awarded an OBE in 2003 and has long been tipped to receive a knighthood.`\
+https://nytimes.com/athletic/6407726/2025/06/13/david-beckham-knighthood-sir-honours/
+
+**Alaska Weather Office Issues Its First Heat Warning**\
+`Forecasters said it might hit 85 degrees in Fairbanks this weekend. The Weather Service has changed how it issues warnings there.`\
+https://nytimes.com/2025/06/13/weather/alaska-heat-warning-fairbanks-forecast.html
+
 **Alaska Weather Office Issues First Heat Warning**\
 `Forecasters said it might hit 85 degrees in Fairbanks this weekend. The Weather Service has changed how it issues warnings there.`\
 https://nytimes.com/2025/06/13/weather/alaska-heat-warning-fairbanks-forecast.html

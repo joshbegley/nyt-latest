@@ -1,4 +1,12 @@
-**Alaska Weather Office Issues First Heat Warning**\
+**Trump’s Inaccurate Claims About the L.A. Immigration Protests**\
+`The president claimed, without giving evidence, that the protesters were “paid” agitators, that the Los Angeles police asked for the National Guard, and that swaths of the city were under gang control.`\
+https://nytimes.com/2025/06/13/us/politics/trump-la-immigration-protests-fact-check.html
+
+**Beckham awarded knighthood in King Charles III's birthday honours list**\
+`The former Manchester United and Real Madrid midfielder was awarded an OBE in 2003 and has long been tipped to receive a knighthood.`\
+https://nytimes.com/athletic/6407726/2025/06/13/david-beckham-knighthood-sir-honours/
+
+**Alaska Weather Office Issues Its First Heat Warning**\
 `Forecasters said it might hit 85 degrees in Fairbanks this weekend. The Weather Service has changed how it issues warnings there.`\
 https://nytimes.com/2025/06/13/weather/alaska-heat-warning-fairbanks-forecast.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/un-grossi
 **In a diplomatic scramble, world leaders urge restraint between Israel and Iran.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-a-diplomatic-scramble-world-leaders-urge-restraint-between-israel-and-iran
-
-**Iran Retaliates and Israel Vows More Strikes After Devastating Attack**\
-`Waves of Israeli airstrikes hit two nuclear enrichment sites, multiple military bases, and military scientists and commanders. Iran replied with a barrage of missiles and drones.`\
-https://nytimes.com/2025/06/13/world/middleeast/israel-strikes-iran-retaliates.html
-
-**After taking ownership, oft-criticized Darnell Nurse's improvements evident in Cup Final**\
-`The defenseman's latest playoff performance in Game 4 showed how much he’s changed over the last year after taking ownership.`\
-https://nytimes.com/athletic/6424877/2025/06/13/oilers-darnell-nurse-nhl-stanley-cup-playoffs-final/
 
