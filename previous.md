@@ -1,3 +1,7 @@
+**Will Trump Show Restraint in the Middle East?**\
+`Israel’s decision to strike Iran carries with it a lot of risks for the region and for the United States.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/israel-iran-strikes
+
 **Why did Liverpool's development teams struggle last season - and does it matter?**\
 `Last season was a struggle in terms of results but there is a bigger picture to consider for academy staff`\
 https://nytimes.com/athletic/6334082/2025/06/13/liverpool-development-teams-struggle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6402590/2025/06/13/the-problem-with-the-club-world-
 **It's too early for England to miss Southgate - but he would never risk alienating his talisman**\
 `Thomas Tuchel's comments about Jude Bellingham are so unlike Gareth Southgate that it is hard not to miss the former England manager`\
 https://nytimes.com/athletic/6421107/2025/06/13/bellingham-tuchel-comments-southgate-england/
-
-**Analysing the Chelsea players who have the most to gain at the Club World Cup**\
-`Who are the individuals in Enzo Maresca's squad who have the most to gain, or lose, over the next few weeks in the United States?`\
-https://nytimes.com/athletic/6420923/2025/06/13/chelsea-club-world-cup-squad-most-to-gain/
 

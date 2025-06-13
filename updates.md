@@ -1,3 +1,7 @@
+**Will Trump Show Restraint in the Middle East?**\
+`Israel’s decision to strike Iran carries with it a lot of risks for the region and for the United States.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/israel-iran-strikes
+
 **Why did Liverpool's development teams struggle last season - and does it matter?**\
 `Last season was a struggle in terms of results but there is a bigger picture to consider for academy staff`\
 https://nytimes.com/athletic/6334082/2025/06/13/liverpool-development-teams-struggle/
