@@ -7,7 +7,7 @@ https://nytimes.com/2025/06/12/us/politics/senate-republicans-radiation-victims-
 https://nytimes.com/2025/06/12/us/politics/state-department-feud-landau-whitaker.html
 
 **Brewers' Jacob Misiorowski dazzles in debut, exits with cramping**\
-`The fifth pitch of his debut — a 102.2 mph fastball — was the hardest-thrown pitch by a Brewers starter in the pitch-tracking era.`\
+`The fifth pitch of Misiorowski's debut — a 102.2 mph fastball — was the hardest-thrown pitch by a Brewers starter in the pitch-tracking era.`\
 https://nytimes.com/athletic/6423202/2025/06/12/jacob-misiorowski-brewers-debut-apparent-injury/
 
 **What to Know About Israel’s Strikes on Iran’s Nuclear Program**\

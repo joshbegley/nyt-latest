@@ -1,3 +1,7 @@
+**Brewers' Jacob Misiorowski dazzles in debut, exits with cramping**\
+`The fifth pitch of Misiorowski's debut — a 102.2 mph fastball — was the hardest-thrown pitch by a Brewers starter in the pitch-tracking era.`\
+https://nytimes.com/athletic/6423202/2025/06/12/jacob-misiorowski-brewers-debut-apparent-injury/
+
 **Senate G.O.P. Includes Expanded Fund for Radiation Victims in Policy Bill**\
 `The provision, long advocated by Senator Josh Hawley of Missouri, would revive and broaden a law for compensating those who developed serious illnesses from government-caused nuclear contamination.`\
 https://nytimes.com/2025/06/12/us/politics/senate-republicans-radiation-victims-hawley.html
