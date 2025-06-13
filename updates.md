@@ -1,3 +1,11 @@
+**50 Years After ‘Jaws’ Terrified Filmgoers, a Reporter Looks Back**\
+`The culture critic Brian Raftery, who wrote about “Jaws” for the Book Review last year, discusses the movie’s anniversary with Gilbert Cruz.`\
+https://nytimes.com/2025/06/13/books/review/podcast-jaws-50th.html
+
+**Trump Talks Big on Global Diplomacy, but His Goals Are in Tatters**\
+`The president said he would bring a quick end to the wars in Ukraine and Gaza, and get China to bend on trade and Iran on its nuclear program. Instead, conflict is escalating.`\
+https://nytimes.com/2025/06/13/us/politics/trump-mideast-ukraine-russia.html
+
 **Dimming America’s Beacons to the World**\
 `Readers respond to articles about setbacks to the Fulbright program and Voice of America. Also: Senator Alex Padilla, handcuffed.`\
 https://nytimes.com/2025/06/13/opinion/fulbright-program-voice-of-america.html

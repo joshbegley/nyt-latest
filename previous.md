@@ -1,3 +1,11 @@
+**50 Years After ‘Jaws’ Terrified Filmgoers, a Reporter Looks Back**\
+`The culture critic Brian Raftery, who wrote about “Jaws” for the Book Review last year, discusses the movie’s anniversary with Gilbert Cruz.`\
+https://nytimes.com/2025/06/13/books/review/podcast-jaws-50th.html
+
+**Trump Talks Big on Global Diplomacy, but His Goals Are in Tatters**\
+`The president said he would bring a quick end to the wars in Ukraine and Gaza, and get China to bend on trade and Iran on its nuclear program. Instead, conflict is escalating.`\
+https://nytimes.com/2025/06/13/us/politics/trump-mideast-ukraine-russia.html
+
 **Dimming America’s Beacons to the World**\
 `Readers respond to articles about setbacks to the Fulbright program and Voice of America. Also: Senator Alex Padilla, handcuffed.`\
 https://nytimes.com/2025/06/13/opinion/fulbright-program-voice-of-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424369/2025/06/13/al-hilal-transfers-club-world-cu
 **How to Think About What’s Happening With Iran and Israel**\
 `There are a number of factors to consider as we make sense of what’s happening with Iran and Israel — and the possibility for very good and very bad outcomes.`\
 https://nytimes.com/2025/06/13/opinion/israel-iran-strikes.html
-
-**Oil Prices Could Climb Higher if Mideast Tensions Escalate**\
-`A sustained rise in the price of crude oil, which jumped sharply after Israel attacked Iran, could hurt consumers and President Trump’s efforts to bring down energy costs.`\
-https://nytimes.com/2025/06/13/business/energy-environment/oil-prices-israel-iran.html
-
-**Army Celebrates With Parade as It Faces an Uncertain Future**\
-`The service is experiencing an identity crisis after 20 years of war, and as the president warns of threats to America from within.`\
-https://nytimes.com/2025/06/13/us/politics/army-parade-trump.html
 
