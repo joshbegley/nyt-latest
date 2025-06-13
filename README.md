@@ -1,3 +1,15 @@
+**2025 NWSL Championship to be played in San Jose at Bay FC's stadium**\
+`It's the second time in three years the NWSL championship will head to the West Coast.`\
+https://nytimes.com/athletic/6423883/2025/06/13/nwsl-championship-2025-san-jose-bay-fc/
+
+**Markets Brace for Turmoil After Israel Strikes Iran**\
+`Oil prices are up and stocks are down, as investors fear a potential wider regional conflict.`\
+https://nytimes.com/2025/06/13/business/dealbook/markets-oil-israel-strikes-iran.html
+
+**Canucks notebook: Assessing how Abbotsford reached the Calder Cup Finals**\
+`The Abbotsford Canucks have reached the franchise's first-ever Calder Cup Finals with a core of young players led by coach Manny Malhotra.`\
+https://nytimes.com/athletic/6423553/2025/06/13/canucks-notebook-manny-malhotra-winger-jonathan-lekkerimaki-playoff-struggles/
+
 **Israeli Strikes Targeted Some of Iran’s Most Important Nuclear Facilities**\
 `Iran’s nuclear centers are spread across the country. Here are the sites Israel appears to have attacked.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-facilities-israel-attack-natanz.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6422662/2025/06/13/49ers-mailbag-darkhorses-jason-p
 **With Nikolaj Ehlers' future uncertain, looking back at how 7 famous Jets exits worked out**\
 `Digging deeper into Winnipeg's most famous exits, what happened to them and what it could mean for Ehlers should he hit the market.`\
 https://nytimes.com/athletic/6422758/2025/06/13/nikolaj-ehlers-jets-nhl-free-agency/
-
-**Braves trade deadline primer: 3 early storylines to watch**\
-`What Atlanta does at this year's deadline could depend on how things transpire between now and July 31, but here are a few scenarios.`\
-https://nytimes.com/athletic/6422953/2025/06/13/braves-mlb-trade-deadline-primer/
-
-**Marco Rossi's contract situation with the Wild has become more complicated**\
-`Bill Guerin's goals for the Wild's offseason may be hampered by developments around the league.`\
-https://nytimes.com/athletic/6423028/2025/06/13/wild-marco-rossi-contract-nhl/
-
-**Frank Nazar hopes to parlay Worlds performance into Blackhawks season, Olympics**\
-`Nazar won gold with Team USA at the World Championship and finished with a team-high six goals and 12 points in 10 games.`\
-https://nytimes.com/athletic/6421538/2025/06/13/blackhawks-frank-nazar-team-usa-world-championships/
 
