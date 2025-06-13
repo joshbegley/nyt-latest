@@ -1,3 +1,7 @@
+**Can the Panthers shake it off after blowing a 3-0 lead in Game 4?**\
+`The Panthers got off to a strong start, but the Oilers turned the tables to steal a road overtime win just as Florida had in Game 2.`\
+https://nytimes.com/athletic/6423521/2025/06/13/panthers-stanley-cup-final-reinhart-draisaitl/
+
 **PSV Eindhoven goalkeeper Walter Benitez to have Crystal Palace medical**\
 `Benitez is set to be out of contract with PSV later this month and has not signed a new deal with the Eredivisie champions.`\
 https://nytimes.com/athletic/6422208/2025/06/13/psv-eindhoven-goalkeeper-walter-benitez-to-have-crystal-palace-medical/
