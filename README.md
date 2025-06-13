@@ -1,3 +1,11 @@
+**Rebooting Reebok's hoops brand, investing in Angel Reese**\
+`Reebok is back in the basketball game again and showcasing bigger-than-life personalities that embrace on- and off-the-court culture.`\
+https://nytimes.com/athletic/6422474/2025/06/13/reebok-angel-reese-basketball-revival/
+
+**Vikings minicamp: QB J.J. McCarthy continuing to work on touch, layering passes**\
+`Coach Kevin O’Connell complimented McCarthy's willingness to experiment, and Josh Metellus might be next in line for a contract extension.`\
+https://nytimes.com/athletic/6422878/2025/06/13/vikings-minicamp-jj-mccarthy-josh-metellus/
+
 **Israel’s Stunning Attack on Iran, and India Plane Crash Survivor Speaks**\
 `Plus, Friday’s news quiz.`\
 https://nytimes.com/2025/06/13/podcasts/the-headlines/israel-iran-trump-national-guard.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6422957/2025/06/13/tyrese-haliburton-pacers-thunder
 **Where would the Cubs be right now without Jameson Taillon?**\
 `"Words like 'consistent' and 'reliable' sometimes don't feel like they do Jameson enough justice," Cubs manager Craig Counsell said.`\
 https://nytimes.com/athletic/6423479/2025/06/13/cubs-pirates-jameson-taillon/
-
-**How do you coach a Hall of Fame basketball player? WNBA's Cheryl Reeve has the answers**\
-`Reeve has coached four members of the Naismith Memorial Basketball Hall of Fame. This is what she's learned about coaching greatness.`\
-https://nytimes.com/athletic/6416193/2025/06/13/coach-hall-of-fame-players-tips-insight-cheryl-reeve/
-
-**Israel’s Massive Attack on Iran — and Why Tomorrow’s Military Parade Is So Fraught**\
-`The U.S. will display a cavalcade of tanks, armored troop carriers and artillery systems in downtown Washington.`\
-https://nytimes.com/2025/06/13/podcasts/the-daily/israel-iran-trump-military-parade.html
 
