@@ -1,3 +1,31 @@
+**Club World Cup betting picks: The race to turn £10 into £100**\
+`Sam Tighe and Brett Koremenos detail their betting tips for The Athletic's brand new series "the race for 100". `\
+https://nytimes.com/athletic/6421564/2025/06/13/club-world-cup-betting-race-for-100/
+
+**Club World Cup Matchday 1 odds: slam dunks and wildcard picks**\
+`Sam Tigh offers his expert insight on the best bets to place ahead of the Club World Cup’s opening round of fixtures. `\
+https://nytimes.com/athletic/6421539/2025/06/13/club-world-cup-matchday-one-betting-predictions-tips-odds/
+
+**A Reporter Explains What Is Driving the L.A. Protests**\
+`After months of anticipation, workplace raids became a reality in a city with a strong base of activism.`\
+https://nytimes.com/2025/06/13/insider/reporter-explains-la-protests.html
+
+**10 Questions With Zellnor Myrie**\
+`Zellnor Myrie, a state senator from Brooklyn who is running for mayor, visited The New York Times for an interview.`\
+https://nytimes.com/2025/06/13/nyregion/zellnor-myrie-interview.html
+
+**In N.Y.C. Mayor’s Race, Top Democrats Take On Trump and Their Own Party**\
+`The primary has taken on national implications, with the top two candidates tapping into Democratic voters’ hunger for a fight.`\
+https://nytimes.com/2025/06/13/nyregion/cuomo-mamdani-mayor-debate.html
+
+**How an Exonerated Man Lost the Chance to Tell His Story**\
+`Timothy Mucciante, a former lawyer convicted of fraud, helped exonerate Anthony Broadwater of rape in 2021. Soon after, their friendship fell apart.`\
+https://nytimes.com/2025/06/13/nyregion/anthony-broadwater-documentary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/13/crosswords/spelling-bee-forum.html
+
 **Israel Attacks Iran**\
 `The attack on Tehran, the capital of Iran, was the biggest since the Iran-Iraq war decades ago.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-attacks-iran.html
@@ -9,32 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010226135/israel-strikes-iran.h
 **Late Night Reviews Trump’s Night at the Theater**\
 `Jimmy Kimmel said that Trump “going to see ‘Les Misérables’ right now is like Kanye going to ‘Fiddler on the Roof.’”`\
 https://nytimes.com/2025/06/13/arts/television/late-night-trump-kennedy-center.html
-
-**Word of the Day: aspirant**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/06/13/learning/word-of-the-day-aspirant.html
-
-**Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
-`The Israeli military said it struck Iran early on Friday morning, attacking dozens of targets, including nuclear sites, and killing top Iranian military officials and scientists.`\
-https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
-
-**Friday Briefing**\
-`In a major attack, Israel has struck Iran’s nuclear program.`\
-https://nytimes.com/2025/06/13/briefing/israel-iran-india-plane.html
-
-**These Are the Top Iranian Generals and Scientists Killed by Israel**\
-`Maj. Gen. Mohammad Bagheri, the chief of staff of Iran’s armed forces, was the most senior leader among the dead, according to Iranian state media.`\
-https://nytimes.com/2025/06/13/world/middleeast/iran-military-generals-killed-israel.html
-
-**The New York Times in Print for Friday, June 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/13/todays-new-york-times
-
-**Will Trump Show Restraint in the Middle East?**\
-`Israel’s decision to strike Iran carries with it a lot of risks for the region and for the United States.`\
-https://nytimes.com/live/2025/06/02/opinion/thepoint/israel-iran-strikes
-
-**Why did Liverpool's development teams struggle last season - and does it matter?**\
-`Last season was a struggle in terms of results but there is a bigger picture to consider for academy staff`\
-https://nytimes.com/athletic/6334082/2025/06/13/liverpool-development-teams-struggle/
 
