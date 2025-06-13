@@ -1,3 +1,7 @@
+**A new goalkeeping rule and 'Ref Cam': How the Club World Cup will be refereed**\
+`What new rules will be in force for this summer's competition and how will they be applied?`\
+https://nytimes.com/athletic/6421570/2025/06/13/club-world-cup-referees-var-explained/
+
 **Israel’s Strike on Iran Comes at a Moment of Weakness for Iran’s Proxies**\
 `Iran’s “Axis of Resistance,” the network of militias it has fostered in the Middle East to help it fight Israel, has become seriously degraded, experts say.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-proxies-axis-hezbollah-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6422868/2025/06/13/college-football-transfer-portal
 **Kobe Bryant's coming-out party in Indiana dashed the Pacers' title hopes 25 years ago**\
 `Twenty-five years ago, the Indiana Pacers faced another pivotal NBA Finals Game 4. It was the game where the legend of Kobe Bryant was born.`\
 https://nytimes.com/athletic/6417494/2025/06/13/kobe-bryant-pacers-lakers-2000-finals/
-
-**Possible free agent, trade and internal options for the Hurricanes to pair with Jaccob Slavin**\
-`The Hurricanes have the cap space and assets necessary to do just about anything they want this summer.`\
-https://nytimes.com/athletic/6422680/2025/06/13/hurricanes-defense-trade-free-agent/
 
