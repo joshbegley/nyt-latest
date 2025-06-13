@@ -1,3 +1,7 @@
+**Trump Leaves European Leaders Praying for a Low-Drama Summit**\
+`After President Trump blew up a G7 gathering in Canada in 2018, European leaders will meet with him there once more. They are hoping to avoid conflict.`\
+https://nytimes.com/2025/06/13/world/europe/trump-g7-summit-canada.html
+
 **Morata considered faking injury to miss Euro 2024 due to depression, he says in new doc**\
 `The Spain striker made the revelations in a new 90-minute documentary to be broadcast next week `\
 https://nytimes.com/athletic/6423806/2025/06/13/morata-depression-euro-2024-faking-injury-documentary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423556/2025/06/13/nhl-goalies-stanley-cup-final-st
 **Trump Says Iran ‘Must Make a Deal, Before There Is Nothing Left’**\
 `In his first public comments on the Israeli strikes against Iran, the U.S. president said Tehran had brought the destruction on itself and must continue nuclear talks.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-deal-trump-us-israel-strikes.html
-
-**Aston Villa make approach to sign Rodriguez from Real Betis**\
-`Rodriguez is among the options senior Villa figures have contacted to outline parameters of a potential deal.`\
-https://nytimes.com/athletic/6423698/2025/06/13/aston-villa-transfer-jesus-rodriguez/
 
