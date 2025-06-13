@@ -1,3 +1,7 @@
+**Russian Forces Expand Fighting to a New Region of Eastern Ukraine**\
+`It’s the first time in three years of war that Russian troops have entered the Dnipropetrovsk region, a sign of battlefield momentum.`\
+https://nytimes.com/2025/06/13/world/europe/russia-ukraine-dnipropetrovsk.html
+
 **Watch Dakota Johnson and Pedro Pascal Spark in ‘Materialists’**\
 `The writer and director Celine Song narrates a sequence from her film, which also features Chris Evans.`\
 https://nytimes.com/2025/06/13/movies/dakota-johnson-pedro-pascal-materialists-clip.html
