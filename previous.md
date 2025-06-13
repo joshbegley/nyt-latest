@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, June 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/13/todays-new-york-times
+
 **Will Trump Show Restraint in the Middle East?**\
 `Israel’s decision to strike Iran carries with it a lot of risks for the region and for the United States.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/israel-iran-strikes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421575/2025/06/13/manchester-united-transfers-mass
 **The problem with the Club World Cup - these teams are not the best of the best**\
 `Only eight of the tournament's 32 teams are current domestic title holders, and three of the six continental champions are also missing`\
 https://nytimes.com/athletic/6402590/2025/06/13/the-problem-with-the-club-world-cup-these-teams-are-not-the-best-of-the-best/
-
-**It's too early for England to miss Southgate - but he would never risk alienating his talisman**\
-`Thomas Tuchel's comments about Jude Bellingham are so unlike Gareth Southgate that it is hard not to miss the former England manager`\
-https://nytimes.com/athletic/6421107/2025/06/13/bellingham-tuchel-comments-southgate-england/
 

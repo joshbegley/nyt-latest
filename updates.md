@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, June 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/13/todays-new-york-times
+
 **Will Trump Show Restraint in the Middle East?**\
 `Israel’s decision to strike Iran carries with it a lot of risks for the region and for the United States.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/israel-iran-strikes
