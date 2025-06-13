@@ -1,3 +1,7 @@
+**Senate G.O.P. Includes Expanded Fund for Radiation Victims in Policy Bill**\
+`The provision, long advocated by Senator Josh Hawley of Missouri, would revive and broaden a law for compensating those who developed serious illnesses from government-caused nuclear contamination.`\
+https://nytimes.com/2025/06/12/us/politics/senate-republicans-radiation-victims-hawley.html
+
 **Top State Department Official Posts, Then Quickly Deletes, Attack on Colleague**\
 `Christopher Landau, the deputy secretary of state, criticized the U.S. ambassador to NATO in a reply to a routine social media post about meetings with foreign diplomats.`\
 https://nytimes.com/2025/06/12/us/politics/state-department-feud-landau-whitaker.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010225811/explosions-rock-tehra
 **Trump Withdraws From Agreement With Tribes to Protect Salmon**\
 `The Biden administration had brokered a 10-year truce in an extended legal battle with Native American tribes in the Pacific Northwest over dams that had prevented fish from spawning.`\
 https://nytimes.com/2025/06/12/us/politics/trump-withdraws-from-agreement-with-tribes-to-protect-salmon.html
-
-**What to know about J.J. Spaun and the rest of the Round 1 U.S. Open leaders**\
-`This is the first time Spaun has been in the top 10 following any major championship round, let alone held the lead.`\
-https://nytimes.com/athletic/6423013/2025/06/12/us-open-2025-round-1-what-to-know-spaun/
 
