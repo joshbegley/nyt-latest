@@ -1,3 +1,16 @@
+**Submit you Cowboys mailbag questions to Saad Yousuf**\
+`<p>With mandatory minicamp in the books, the Cowboys’ offseason is complete. From the hiring of Brian Schottenheimer to the trade of George Pickens — and everything in between — a lot happened. Drop your pre-Oxnard questions to Cowboys beat writer Saad Yousuf for an offseason mailbag.</p>
+`\
+https://nytimes.com/athletic/6424311/2025/06/13/submit-you-cowboys-mailbag-questions-to-saad-yousuf/
+
+**Aaron Civale heading to White Sox after requesting trade from Brewers**\
+`Civale asked to be traded after the Brewers bumped him from the rotation in favor of top pitching prospect Jacob Misiorowski.`\
+https://nytimes.com/athletic/6424334/2025/06/13/aaron-civale-trade-white-sox-brewers/
+
+**Israel’s Allies Voice Less Support and More Concern After Latest Attack on Iran**\
+`The reaction was noticeably different on Friday than it was after the last time Israel attacked Iran, when several countries provided backup and resources.`\
+https://nytimes.com/2025/06/13/world/middleeast/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern.html
+
 **Milner signs one-year deal to remain at Brighton**\
 `The 39-year-old played only four games in the 2024-25 season due to a thigh issue that sidelined him for the majority of the campaign.`\
 https://nytimes.com/athletic/6388082/2025/06/13/james-milner-contract-brighton/

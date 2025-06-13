@@ -1,3 +1,11 @@
+**Casting Is the Brightest Light of Two Molière Shows**\
+`Red Bull Theater’s smart “The Imaginary Invalid” and Taylor Mac’s dismaying “Prosperous Fools” attempt to engage with the French writer’s comedy.`\
+https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html
+
+**Alex Padilla’s Unlikely Moment in the Spotlight**\
+`The senator is known on Capitol Hill for being kind and nerdy. His forcible removal from a news conference resonated as a call to action among Democrats.`\
+https://nytimes.com/2025/06/13/us/senator-alex-padilla-removed.html
+
 **Submit you Cowboys mailbag questions to Saad Yousuf**\
 `<p>With mandatory minicamp in the books, the Cowboys’ offseason is complete. From the hiring of Brian Schottenheimer to the trade of George Pickens — and everything in between — a lot happened. Drop your pre-Oxnard questions to Cowboys beat writer Saad Yousuf for an offseason mailbag.</p>
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6423915/2025/06/13/tyrese-haliburton-pacers-shai-gi
 **Israel’s Allies Voice Less Support and More Concern After Latest Attack on Iran**\
 `The reaction was noticeably different on Friday than it was after the last time Israel attacked Iran, when several countries provided backup and resources.`\
 https://nytimes.com/2025/06/13/world/middleeast/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern.html
-
-**The Subtle Art of the Dad Text**\
-`When it comes to corny jokes, random photos and sincere pep talks, father knows best.`\
-https://nytimes.com/interactive/2025/06/13/well/family/dad-jokes-texts-fathers-day.html
-
-**ICE Says It Has No Immediate Plans to Release Mahmoud Khalil**\
-`A federal judge ruled this week that the government cannot hold the Columbia University graduate under the rarely invoked law it used to detain him.`\
-https://nytimes.com/2025/06/13/nyregion/mahmoud-khalil-trump-detention.html
 
