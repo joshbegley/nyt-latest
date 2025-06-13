@@ -1,3 +1,11 @@
+**Why did Liverpool's development teams struggle last season - and does it matter?**\
+`Last season was a struggle in terms of results but there is a bigger picture to consider for academy staff`\
+https://nytimes.com/athletic/6334082/2025/06/13/liverpool-development-teams-struggle/
+
+**Pako Ayestaran: Unai Emery's No 2 who loves pressing – and protecting the planet**\
+`The Spanish coach has experience across the globe -–he is respected by players and managers alike and is a key cog of Emery's staff`\
+https://nytimes.com/athletic/5929424/2025/06/13/pako-ayestaran-unai-emery-aston-villa/
+
 **Which Tottenham players will suit Frank's football, and which may have to make way?**\
 `New Spurs boss Frank will be charged with helping promising Spurs stars fulfil their potential while bringing senior players back to form`\
 https://nytimes.com/athletic/6418775/2025/06/13/thomas-frank-tottenham-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6421107/2025/06/13/bellingham-tuchel-comments-south
 **Analysing the Chelsea players who have the most to gain at the Club World Cup**\
 `Who are the individuals in Enzo Maresca's squad who have the most to gain, or lose, over the next few weeks in the United States?`\
 https://nytimes.com/athletic/6420923/2025/06/13/chelsea-club-world-cup-squad-most-to-gain/
-
-**Newcastle already have five goalkeepers, so why are they trying to sign a sixth?**\
-`Eddie Howe's squad is already stacked with keepers, so how will the dynamics play out if James Trafford joins?`\
-https://nytimes.com/athletic/6421327/2025/06/13/newcastle-five-goalkeepers-sign-a-sixth/
-
-**‘They Come at You’: The Grandmothers Playing Rough at a Kids’ Sport**\
-`The Ah Ma Flippa Ball team (ah ma means grandmother) is one example of how Singapore is encouraging its growing population of seniors to stay active.`\
-https://nytimes.com/2025/06/13/world/asia/singapore-aging-flippa-ball.html
 

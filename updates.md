@@ -1,3 +1,11 @@
+**Why did Liverpool's development teams struggle last season - and does it matter?**\
+`Last season was a struggle in terms of results but there is a bigger picture to consider for academy staff`\
+https://nytimes.com/athletic/6334082/2025/06/13/liverpool-development-teams-struggle/
+
+**Pako Ayestaran: Unai Emery's No 2 who loves pressing – and protecting the planet**\
+`The Spanish coach has experience across the globe -–he is respected by players and managers alike and is a key cog of Emery's staff`\
+https://nytimes.com/athletic/5929424/2025/06/13/pako-ayestaran-unai-emery-aston-villa/
+
 **Which Tottenham players will suit Frank's football, and which may have to make way?**\
 `New Spurs boss Frank will be charged with helping promising Spurs stars fulfil their potential while bringing senior players back to form`\
 https://nytimes.com/athletic/6418775/2025/06/13/thomas-frank-tottenham-players/
