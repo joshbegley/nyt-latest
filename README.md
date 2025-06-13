@@ -1,3 +1,11 @@
+**Israeli Strikes Targeted Some of Iran’s Most Important Nuclear Facilities**\
+`Iran’s nuclear centers are spread across the country. Here are the sites Israel appears to have attacked.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-facilities-israel-attack-natanz.html
+
+**'A brutal feeling': After another Stanley Cup Final goalie benching, NHL netminders discuss the dreaded yank**\
+`It's hard to place much blame on Oilers goalie Stuart Skinner for the three goals he allowed in Game 4. But his benching provided a spark.`\
+https://nytimes.com/athletic/6423556/2025/06/13/nhl-goalies-stanley-cup-final-stuart-skinner-calvin-pickard/
+
 **Trump Says Iran ‘Must Make a Deal, Before There Is Nothing Left’**\
 `In his first public comments on the Israeli strikes against Iran, the U.S. president said Tehran had brought the destruction on itself and must continue nuclear talks.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-deal-trump-us-israel-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6423028/2025/06/13/wild-marco-rossi-contract-nhl/
 **Frank Nazar hopes to parlay Worlds performance into Blackhawks season, Olympics**\
 `Nazar won gold with Team USA at the World Championship and finished with a team-high six goals and 12 points in 10 games.`\
 https://nytimes.com/athletic/6421538/2025/06/13/blackhawks-frank-nazar-team-usa-world-championships/
-
-**Trump Administration Live Updates: Tariffs Are Planned for Appliances Made With Steel**\
-``\
-https://nytimes.com/live/2025/06/13/us/trump-news
-
-**A new goalkeeping rule and 'Ref Cam': How the Club World Cup will be refereed**\
-`What new rules will be in force for this summer's competition and how will they be applied?`\
-https://nytimes.com/athletic/6421570/2025/06/13/club-world-cup-referees-var-explained/
 
