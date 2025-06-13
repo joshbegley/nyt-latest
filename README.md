@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Season 3, Episode 3 Recap: An Expensive Date**\
+`Carrie flies to Virginia for a lunch with her “boyfriend,” Aidan. Seema tags along. It is unclear why either is really going.`\
+https://nytimes.com/2025/06/12/arts/television/and-just-like-that-recap-season-3-episode-3.html
+
 **Law Enforcement Officers Respond to Reports of Unrest at Migrant Facility**\
 `Delaney Hall in Newark was also the scene of a recent clash in which a member of Congress was charged with assault.`\
 https://nytimes.com/2025/06/12/nyregion/newark-migrant-detention-center-disturbance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/technology/meta-scale-ai.html
 **Slow and Steady, This Poem Will Win Your Heart**\
 `A.O. Scott ponders the specific gravity and unlikely grace of Kay Ryan’s “Turtle.” And we have a game to help you memorize it.`\
 https://nytimes.com/interactive/2025/06/12/books/kay-ryan-turtle-poem.html
-
-**Protesters in Chicago return to the streets.**\
-`By Julie Bosman and Robert Chiarito`\
-https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/protesters-in-chicago-return-to-the-streets
 
