@@ -1,3 +1,7 @@
+**Liverpool agree €136.3m transfer of Leverkusen's Wirtz**\
+`The 22-year-old registered 16 goals and 15 assists across 45 games in 2024-25, as Leverkusen finished second in the Bundesliga.`\
+https://nytimes.com/athletic/6410031/2025/06/13/liverpool-transfer-wirtz-transfer-latest/
+
 **Russian Forces Expand Fighting to a New Region of Eastern Ukraine**\
 `It’s the first time in three years of war that Russian troops have entered the Dnipropetrovsk region, a sign of battlefield momentum.`\
 https://nytimes.com/2025/06/13/world/europe/russia-ukraine-dnipropetrovsk.html

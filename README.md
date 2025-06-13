@@ -1,3 +1,27 @@
+**Thunder struck with a midrange shooting slump at the wrong time**\
+`The Thunder's 2-point shooting has abandoned them against the Pacers. Will the law of averages swing OKC's way before it's too late?`\
+https://nytimes.com/athletic/6422847/2025/06/13/thunder-midrange-shooting-nba-finals-sga-jalen-williams/
+
+**We thought the Pacers were underdogs. But this team is a juggernaut**\
+`The Pacers started the season 10-15, but now they're two wins away from their first NBA championship. They've earned our respect.`\
+https://nytimes.com/athletic/6422502/2025/06/13/pacers-underdogs-nba-finals/
+
+**Eagles mailbag: Will Nakobe Dean get Wally Pipp'd, potential veteran additions and more**\
+`Plus, what the Eagles should do with their salary cap space.`\
+https://nytimes.com/athletic/6421262/2025/06/13/eagles-mailbag-nakobe-dean-veteran-additions/
+
+**What we learned from Bills minicamp: James Cook 'ready to roll', Dalton Kincaid optimism, and more**\
+`Plus, what Tre'Davious White's struggles could mean for Maxwell Hairston.`\
+https://nytimes.com/athletic/6422619/2025/06/13/bills-minicamp-james-cook-dalton-kincaid/
+
+**Hurricane Season Started Two Weeks Ago. Where Are the Storms?**\
+`The Atlantic hurricane season got off to a quiet start. That’s not unusual, experts said.`\
+https://nytimes.com/2025/06/13/weather/hurricane-season-started-two-weeks-ago-where-are-the-storms.html
+
+**The New York Times International Edition in Print for Saturday, June 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/06/13/todays-new-york-times-international-edition
+
 **Liverpool agree €136.3m transfer of Leverkusen's Wirtz**\
 `The 22-year-old registered 16 goals and 15 assists across 45 games in 2024-25, as Leverkusen finished second in the Bundesliga.`\
 https://nytimes.com/athletic/6410031/2025/06/13/liverpool-transfer-wirtz-transfer-latest/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/06/13/movies/dakota-johnson-pedro-pascal-materialists-c
 **Which Law Enforcement Agencies Are at the Los Angeles Protests?**\
 `A Times analysis identified more than a dozen agencies that were on the ground in the past week. See which are represented, the gear they carry and how they interact.`\
 https://nytimes.com/interactive/2025/06/13/us/la-protests-immigration-law-enforcement.html
-
-**The New York Times News Quiz, June 13, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/06/13/briefing/la-protests-trump-news-quiz.html
-
-**13 Young Gen Z-ers on Whether America’s Best Days Are Behind It**\
-`The group discuss early adulthood, Donald Trump, artificial intelligence and more.`\
-https://nytimes.com/interactive/2025/06/13/opinion/college-grads-focus-group.html
-
-**Progressives Need a Global Movement**\
-`To counter the authoritarian threat, the left must develop a clear picture of the world it wants to create.`\
-https://nytimes.com/2025/06/13/opinion/progressives-global-movement-organizing.html
-
-**How to Survive a Crisis**\
-`An international disaster adviser shares advice for going through a difficult time.`\
-https://nytimes.com/2025/06/13/well/how-to-survive-a-crisis.html
-
-**Broadway Shows Closing Soon: ‘Dorian Gray,’ ‘Sunset Boulevard’ and More**\
-`Catch two Tony-winning performances, Sarah Snook in the Oscar Wilde classic and Nicole Scherzinger as Norma Desmond, before these productions and others wrap up.`\
-https://nytimes.com/2025/06/13/theater/broadway-shows-closing-soon.html
-
-**Is There a Wrong Way to Make Paella?**\
-`A ruling on how to properly prepare the iconic Spanish dish.`\
-https://nytimes.com/interactive/2025/06/13/magazine/paella-hodgman-quiz.html
 

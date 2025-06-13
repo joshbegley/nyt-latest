@@ -1,3 +1,7 @@
+**Liverpool agree €136.3m transfer of Leverkusen's Wirtz**\
+`The 22-year-old registered 16 goals and 15 assists across 45 games in 2024-25, as Leverkusen finished second in the Bundesliga.`\
+https://nytimes.com/athletic/6410031/2025/06/13/liverpool-transfer-wirtz-transfer-latest/
+
 **Russian Forces Expand Fighting to a New Region of Eastern Ukraine**\
 `It’s the first time in three years of war that Russian troops have entered the Dnipropetrovsk region, a sign of battlefield momentum.`\
 https://nytimes.com/2025/06/13/world/europe/russia-ukraine-dnipropetrovsk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/theater/broadway-shows-closing-soon.html
 **Is There a Wrong Way to Make Paella?**\
 `A ruling on how to properly prepare the iconic Spanish dish.`\
 https://nytimes.com/interactive/2025/06/13/magazine/paella-hodgman-quiz.html
-
-**What has Dak Prescott 'super excited' about the Cowboys' offense?**\
-`The Dallas QB is looking forward to family time, but he's also excited about his June trip with some of the team's skill-position players.`\
-https://nytimes.com/athletic/6422952/2025/06/13/cowboys-offense-dak-prescott-george-pickens/
 
