@@ -1,3 +1,11 @@
+**Making the U.S. Open was a dream. Then he shot 35-over-par**\
+`"I knew it was going to be a hard test coming in, but I didn’t think it was going to be this hard."`\
+https://nytimes.com/athletic/6425044/2025/06/13/us-open-2025-george-duangmanee-last-place/
+
+**Republicans Are Divided Over Iran. Will Trump Pick a Side?**\
+`President Trump is trapped between the “America First” isolationists and others in his party who are cheering on Israel’s strikes against Iran.`\
+https://nytimes.com/2025/06/13/us/politics/trump-republicans-iran-israel.html
+
 **Trump’s Inaccurate Claims About the L.A. Immigration Protests**\
 `The president claimed, without giving evidence, that the protesters were “paid” agitators, that the Los Angeles police asked for the National Guard, and that swaths of the city were under gang control.`\
 https://nytimes.com/2025/06/13/us/politics/trump-la-immigration-protests-fact-check.html
