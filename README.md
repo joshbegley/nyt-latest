@@ -1,3 +1,35 @@
+**Aston Villa make approach to sign Rodriguez from Real Betis**\
+`Rodriguez is among the options senior Villa figures have contacted to outline parameters of a potential deal.`\
+https://nytimes.com/athletic/6423698/2025/06/13/aston-villa-transfer-jesus-rodriguez/
+
+**Should Senators be interested in Ekblad if he hits free agency? Mailbag, Part 2**\
+`If Aaron Ekblad isn't the guy for the Senators, what if they traded for Philadelphia Flyers defenceman Rasmus Ristolainen?`\
+https://nytimes.com/athletic/6419655/2025/06/13/senators-mailbag-ebklad-ristolainen-arena/
+
+**49ers mailbag: Who’s the frontrunner at safety? Darkhorses for the 2025 roster**\
+`Among this week's questions: Where are the 49ers' biggest weaknesses and which rookies have the best chances to start this season?`\
+https://nytimes.com/athletic/6422662/2025/06/13/49ers-mailbag-darkhorses-jason-pinnock/
+
+**With Nikolaj Ehlers' future uncertain, looking back at how 7 famous Jets exits worked out**\
+`Digging deeper into Winnipeg's most famous exits, what happened to them and what it could mean for Ehlers should he hit the market.`\
+https://nytimes.com/athletic/6422758/2025/06/13/nikolaj-ehlers-jets-nhl-free-agency/
+
+**Braves trade deadline primer: 3 early storylines to watch**\
+`What Atlanta does at this year's deadline could depend on how things transpire between now and July 31, but here are a few scenarios.`\
+https://nytimes.com/athletic/6422953/2025/06/13/braves-mlb-trade-deadline-primer/
+
+**Marco Rossi's contract situation with the Wild has become more complicated**\
+`Bill Guerin's goals for the Wild's offseason may be hampered by developments around the league.`\
+https://nytimes.com/athletic/6423028/2025/06/13/wild-marco-rossi-contract-nhl/
+
+**Frank Nazar hopes to parlay Worlds performance into Blackhawks season, Olympics**\
+`Nazar won gold with Team USA at the World Championship and finished with a team-high six goals and 12 points in 10 games.`\
+https://nytimes.com/athletic/6421538/2025/06/13/blackhawks-frank-nazar-team-usa-world-championships/
+
+**Trump Administration Live Updates: Tariffs Are Planned for Appliances Made With Steel**\
+``\
+https://nytimes.com/live/2025/06/13/us/trump-news
+
 **A new goalkeeping rule and 'Ref Cam': How the Club World Cup will be refereed**\
 `What new rules will be in force for this summer's competition and how will they be applied?`\
 https://nytimes.com/athletic/6421570/2025/06/13/club-world-cup-referees-var-explained/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6421570/2025/06/13/club-world-cup-referees-var-expl
 **Israel’s Strike on Iran Comes at a Moment of Weakness for Iran’s Proxies**\
 `Iran’s “Axis of Resistance,” the network of militias it has fostered in the Middle East to help it fight Israel, has become seriously degraded, experts say.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-proxies-axis-hezbollah-israel.html
-
-**Man City reduce PL ticket prices for 2025-26 after fan protests**\
-`In April, many of the club’s supporters boycotted the opening of their Premier League fixture against Leicester City to protest prices.`\
-https://nytimes.com/athletic/6423752/2025/06/13/manchester-city-tickets-premier-league/
-
-**Israel Attacks Iran**\
-`Plus, we explain what to look for during Trump’s military parade.`\
-https://nytimes.com/2025/06/13/briefing/israel-attacks-iran.html
-
-**'You're going to the big leagues': Video call-up moment add heartwarming, modern-day spin**\
-`It's too bad we don't have social media footage of every player who's ever been called up. Here are some former players' call-up stories.`\
-https://nytimes.com/athletic/6423149/2025/06/13/red-sox-mlb-call-ups-social-media/
-
-**Twins trade deadline primer: Uncertain ownership situation could be issue**\
-`The Twins have needs ahead of the trade deadline, but uncertainty over who will hold the purse strings could impact pursuits.`\
-https://nytimes.com/athletic/6422996/2025/06/13/twins-trade-deadline-primer-ownership-situation/
-
-**Broncos offseason takeaways: Bo Nix's bigger voice, running back battle to come**\
-`Second-year wide receiver Troy Franklin, bulked up and playing faster, was one of the Broncos' offseason program standouts.`\
-https://nytimes.com/athletic/6422565/2025/06/13/broncos-offseason-bo-nix-rj-harvey/
-
-**Reds MLB trade deadline primer: 3 early storylines to watch**\
-`Neither of the past two trade deadlines had much action for the Reds, and it might not be that different of a story in 2025.`\
-https://nytimes.com/athletic/6423091/2025/06/13/reds-trade-deadline-primer-early-storylines/
-
-**College football's single-window transfer portal plan gaining momentum, sources say**\
-`The Football Bowl Subdivision Oversight Committee is expected to have a deep discussion on a single portal window next Monday.`\
-https://nytimes.com/athletic/6422868/2025/06/13/college-football-transfer-portal-window-date-changes/
-
-**Kobe Bryant's coming-out party in Indiana dashed the Pacers' title hopes 25 years ago**\
-`Twenty-five years ago, the Indiana Pacers faced another pivotal NBA Finals Game 4. It was the game where the legend of Kobe Bryant was born.`\
-https://nytimes.com/athletic/6417494/2025/06/13/kobe-bryant-pacers-lakers-2000-finals/
 
