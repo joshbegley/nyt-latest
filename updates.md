@@ -1,3 +1,5 @@
+
+
 **2025 NWSL Championship to be played in San Jose at Bay FC's stadium**\
 `It's the second time in three years the NWSL championship will head to the West Coast.`\
 https://nytimes.com/athletic/6423883/2025/06/13/nwsl-championship-2025-san-jose-bay-fc/
