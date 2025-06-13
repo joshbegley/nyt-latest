@@ -1,3 +1,15 @@
+**Trump’s Decision to Send Troops to California Is His Do-Over of 2020**\
+`President Trump was talked out of deploying the military to crush the George Floyd protests in 2020. He always regretted it.`\
+https://nytimes.com/2025/06/13/us/politics/trump-protests-immigration-floyd.html
+
+**Iranians Describe Israel’s Attacks in Voice Memos and Calls**\
+`Iranians recalled scenes of confusion and fear, explosions in the night and how they, their friends and neighbors experienced Israel’s widespread attacks.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-israel-voices.html
+
+**U.S. Steel and Nippon Steel Say Their ‘Partnership’ Is Sealed**\
+`The companies said they had entered into an agreement with the U.S. government to alleviate any national security concerns.`\
+https://nytimes.com/2025/06/13/business/us-steel-nippon-steel-partnership-deal.html
+
 **A Democrat in Texas says he was warned against displaying ‘No Kings’ signs at a local parade.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/a-democrat-in-texas-says-he-was-warned-against-displaying-no-kings-signs-at-a-local-parade
