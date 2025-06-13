@@ -1,3 +1,7 @@
+**Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
+`The contribution by Michael R. Bloomberg is the largest in New York City and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
+https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
+
 **Jury in Karen Read Trial Begins Deliberations**\
 `The Boston-area woman was accused of killing her police officer boyfriend in 2022.`\
 https://nytimes.com/2025/06/13/us/jury-in-karen-read-trial-begins-deliberations.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6424363/2025/06/13/messi-inter-miami-club-world-cup
 **Cuomo and Mamdani Clash in Final N.Y.C. Mayoral Debate**\
 `The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani exchanged attacks over their records and experience.`\
 https://nytimes.com/video/us/politics/100000010226733/nyc-mayoral-debate.html
-
-**How is Israel protecting its critical sites from Iranian retaliation?**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/how-is-israel-protecting-its-critical-sites-from-iranian-retaliation
 
