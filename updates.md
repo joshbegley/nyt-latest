@@ -1,3 +1,15 @@
+**2025 NWSL Championship to be played in San Jose at Bay FC's stadium**\
+`It's the second time in three years the NWSL championship will head to the West Coast.`\
+https://nytimes.com/athletic/6423883/2025/06/13/nwsl-championship-2025-san-jose-bay-fc/
+
+**Markets Brace for Turmoil After Israel Strikes Iran**\
+`Oil prices are up and stocks are down, as investors fear a potential wider regional conflict.`\
+https://nytimes.com/2025/06/13/business/dealbook/markets-oil-israel-strikes-iran.html
+
+**Canucks notebook: Assessing how Abbotsford reached the Calder Cup Finals**\
+`The Abbotsford Canucks have reached the franchise's first-ever Calder Cup Finals with a core of young players led by coach Manny Malhotra.`\
+https://nytimes.com/athletic/6423553/2025/06/13/canucks-notebook-manny-malhotra-winger-jonathan-lekkerimaki-playoff-struggles/
+
 **Israeli Strikes Targeted Some of Iran’s Most Important Nuclear Facilities**\
 `Iran’s nuclear centers are spread across the country. Here are the sites Israel appears to have attacked.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-facilities-israel-attack-natanz.html

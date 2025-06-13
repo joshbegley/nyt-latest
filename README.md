@@ -1,3 +1,11 @@
+**The Maple Leafs have someone new at the draft table. What his past reveals about the future**\
+`Toronto hired Mark Leach last summer to head up amateur scouting. What his track record in Detroit and Dallas might mean for the Leafs.`\
+https://nytimes.com/athletic/6413602/2025/06/13/maple-leafs-nhl-draft-2025-mark-leach/
+
+**Extensive Israeli intelligence effort underpinned the Iran strikes**\
+`By Ronen Bergman`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/extensive-israeli-intelligence-effort-underpinned-the-iran-strikes
+
 **2025 NWSL Championship to be played in San Jose at Bay FC's stadium**\
 `It's the second time in three years the NWSL championship will head to the West Coast.`\
 https://nytimes.com/athletic/6423883/2025/06/13/nwsl-championship-2025-san-jose-bay-fc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6423698/2025/06/13/aston-villa-transfer-jesus-rodri
 **Should Senators be interested in Ekblad if he hits free agency? Mailbag, Part 2**\
 `If Aaron Ekblad isn't the guy for the Senators, what if they traded for Philadelphia Flyers defenceman Rasmus Ristolainen?`\
 https://nytimes.com/athletic/6419655/2025/06/13/senators-mailbag-ebklad-ristolainen-arena/
-
-**49ers mailbag: Who’s the frontrunner at safety? Darkhorses for the 2025 roster**\
-`Among this week's questions: Where are the 49ers' biggest weaknesses and which rookies have the best chances to start this season?`\
-https://nytimes.com/athletic/6422662/2025/06/13/49ers-mailbag-darkhorses-jason-pinnock/
-
-**With Nikolaj Ehlers' future uncertain, looking back at how 7 famous Jets exits worked out**\
-`Digging deeper into Winnipeg's most famous exits, what happened to them and what it could mean for Ehlers should he hit the market.`\
-https://nytimes.com/athletic/6422758/2025/06/13/nikolaj-ehlers-jets-nhl-free-agency/
 
