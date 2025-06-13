@@ -1,3 +1,19 @@
+**Al Hilal say club 'don't print money', amid lack of transfer deals**\
+`Al Hilal have previously signed Euro-based players including Neymar, Ruben Neves, Aleksandr Mitrovic and Joao Cancelo,`\
+https://nytimes.com/athletic/6424369/2025/06/13/al-hilal-transfers-club-world-cup/
+
+**How to Think About What’s Happening With Iran and Israel**\
+`There are a number of factors to consider as we make sense of what’s happening with Iran and Israel — and the possibility for very good and very bad outcomes.`\
+https://nytimes.com/2025/06/13/opinion/israel-iran-strikes.html
+
+**Oil Prices Could Climb Higher if Mideast Tensions Escalate**\
+`A sustained rise in the price of crude oil, which jumped sharply after Israel attacked Iran, could hurt consumers and President Trump’s efforts to bring down energy costs.`\
+https://nytimes.com/2025/06/13/business/energy-environment/oil-prices-israel-iran.html
+
+**Smithsonian Museum Director Trump ‘Fired’ Decides to Step Down**\
+`The Smithsonian has said it retains power over personnel decisions, but Kim Sajet, the longtime director of the National Portrait Gallery, has decided to depart.`\
+https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html
+
 **Army Celebrates With Parade as It Faces an Uncertain Future**\
 `The service is experiencing an identity crisis after 20 years of war, and as the president warns of threats to America from within.`\
 https://nytimes.com/2025/06/13/us/politics/army-parade-trump.html

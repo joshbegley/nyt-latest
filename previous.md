@@ -1,8 +1,20 @@
+**Al Hilal say club 'don't print money', amid lack of transfer deals**\
+`Al Hilal have previously signed Euro-based players including Neymar, Ruben Neves, Aleksandr Mitrovic and Joao Cancelo,`\
+https://nytimes.com/athletic/6424369/2025/06/13/al-hilal-transfers-club-world-cup/
+
+**How to Think About What’s Happening With Iran and Israel**\
+`There are a number of factors to consider as we make sense of what’s happening with Iran and Israel — and the possibility for very good and very bad outcomes.`\
+https://nytimes.com/2025/06/13/opinion/israel-iran-strikes.html
+
+**Oil Prices Could Climb Higher if Mideast Tensions Escalate**\
+`A sustained rise in the price of crude oil, which jumped sharply after Israel attacked Iran, could hurt consumers and President Trump’s efforts to bring down energy costs.`\
+https://nytimes.com/2025/06/13/business/energy-environment/oil-prices-israel-iran.html
+
 **Army Celebrates With Parade as It Faces an Uncertain Future**\
 `The service is experiencing an identity crisis after 20 years of war, and as the president warns of threats to America from within.`\
 https://nytimes.com/2025/06/13/us/politics/army-parade-trump.html
 
-**A Smithsonian Museum Director Steps Down in Wake of Trump’s ‘Firing’**\
+**Smithsonian Museum Director Trump ‘Fired’ Decides to Step Down**\
 `The Smithsonian has said it retains power over personnel decisions, but Kim Sajet, the longtime director of the National Portrait Gallery, has decided to depart.`\
 https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html
 
@@ -25,17 +37,4 @@ https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html
 **Alex Padilla’s Unlikely Moment in the Spotlight**\
 `The senator is known on Capitol Hill for being kind and nerdy. His forcible removal from a news conference resonated as a call to action among Democrats.`\
 https://nytimes.com/2025/06/13/us/senator-alex-padilla-removed.html
-
-**Submit you Cowboys mailbag questions to Saad Yousuf**\
-`<p>With mandatory minicamp in the books, the Cowboys’ offseason is complete. From the hiring of Brian Schottenheimer to the trade of George Pickens — and everything in between — a lot happened. Drop your pre-Oxnard questions to Cowboys beat writer Saad Yousuf for an offseason mailbag.</p>
-`\
-https://nytimes.com/athletic/6424311/2025/06/13/submit-you-cowboys-mailbag-questions-to-saad-yousuf/
-
-**Milner signs one-year deal to remain at Brighton**\
-`The 39-year-old played only four games in the 2024-25 season due to a thigh issue that sidelined him for the majority of the campaign.`\
-https://nytimes.com/athletic/6388082/2025/06/13/james-milner-contract-brighton/
-
-**Aaron Civale heading to White Sox after requesting trade from Brewers**\
-`Civale asked to be traded after the Brewers bumped him from the rotation in favor of top pitching prospect Jacob Misiorowski.`\
-https://nytimes.com/athletic/6424334/2025/06/13/aaron-civale-trade-white-sox-brewers/
 
