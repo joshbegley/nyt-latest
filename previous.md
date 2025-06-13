@@ -1,3 +1,11 @@
+**Israel Strikes Iran**\
+`Smoke billowed from buildings and a nuclear-enrichment site in Iran as Israel launched an assault on the country to stymie its nuclear program.`\
+https://nytimes.com/video/world/middleeast/100000010226135/israel-strikes-iran.html
+
+**Late Night Reviews Trump’s Night at the Theater**\
+`Jimmy Kimmel said that Trump “going to see ‘Les Misérables’ right now is like Kanye going to ‘Fiddler on the Roof.’”`\
+https://nytimes.com/2025/06/13/arts/television/late-night-trump-kennedy-center.html
+
 **Word of the Day: aspirant**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/06/13/learning/word-of-the-day-aspirant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6334082/2025/06/13/liverpool-development-teams-stru
 **Pako Ayestaran: Unai Emery's No 2 who loves pressing – and protecting the planet**\
 `The Spanish coach has experience across the globe -–he is respected by players and managers alike and is a key cog of Emery's staff`\
 https://nytimes.com/athletic/5929424/2025/06/13/pako-ayestaran-unai-emery-aston-villa/
-
-**Which Tottenham players will suit Frank's football, and which may have to make way?**\
-`New Spurs boss Frank will be charged with helping promising Spurs stars fulfil their potential while bringing senior players back to form`\
-https://nytimes.com/athletic/6418775/2025/06/13/thomas-frank-tottenham-players/
-
-**Who is the real Gianni Infantino?**\
-`Before the Club World Cup, The Athletic has spoken to dozens of people to gain a clearer picture of the most powerful man in football`\
-https://nytimes.com/athletic/6415212/2025/06/13/fifa-soccer-president-gianni-infantino-history/
 
