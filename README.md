@@ -1,3 +1,7 @@
+**Mastantuono completes Real Madrid transfer from River Plate**\
+`Mastantuono's contract at River contained a release clause of €45million (£38.5m).`\
+https://nytimes.com/athletic/6405791/2025/06/13/franco-mastantuono-real-madrid-transfer/
+
 **Striking the Heart of the Iranian Regime, Netanyahu Looks to His Legacy**\
 `Israel has long fought a shadow war with Iran while avoiding all-out conflict. Now Prime Minister Benjamin Netanyahu is risking it all in pursuit of a conclusive victory.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-iran-attack-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423333/2025/06/13/chris-kreider-trade-ducks-ranger
 **There’s a Good Chance Crypto Is Spreading in Your Retirement Account**\
 `Bitcoin and other digital assets are quietly growing in many nest eggs, with the encouragement of the Trump administration. Hidden risks are mounting, our columnist says.`\
 https://nytimes.com/2025/06/13/business/bitcoin-cryptocurrency-stablecoins-retirement.html
-
-**Trump Leaves European Leaders Praying for a Low-Drama Summit**\
-`After President Trump blew up a G7 gathering in Canada in 2018, European leaders will meet with him there once more. They are hoping to avoid conflict.`\
-https://nytimes.com/2025/06/13/world/europe/trump-g7-summit-canada.html
 
