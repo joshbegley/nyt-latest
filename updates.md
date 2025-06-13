@@ -1,3 +1,11 @@
+**Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
+`By Aaron Boxerman and Isabel Kershner`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary
+
+**Law Enforcement Officers Respond to Reports of Unrest at Migrant Facility**\
+`Detainees at Delaney Hall in Newark had complained about meager amounts of food and water over the past day.`\
+https://nytimes.com/2025/06/12/nyregion/newark-migrant-detention-center-disturbance.html
+
 **5 Takeaways From the Democrats’ Final N.Y.C. Mayoral Debate**\
 `The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani, traded barbs over their records, immigration and a host of other issues.`\
 https://nytimes.com/2025/06/12/nyregion/debate-takeaways-mayor-nyc.html
