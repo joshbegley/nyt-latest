@@ -1,3 +1,15 @@
+**Voters’ Voices on Trump’s First Year**\
+`The Times is checking in with Americans from across the political spectrum to document their impressions of the Trump administration and the Democratic response for the rest of the year.`\
+https://nytimes.com/series/voters-voices-trump-2025
+
+**‘I Didn’t Really Believe It’: Shock and Grief in U.K. Over Air India Crash**\
+`The fatal flight was bound for England, where family and friends of the 241 victims on board, including 52 British nationals, were left searching for answers.`\
+https://nytimes.com/2025/06/13/world/europe/air-india-plane-crash-uk.html
+
+**The presence of federal agents prompts fears among fan ahead of big soccer matches.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/the-presence-of-federal-agents-prompts-fan-fears-ahead-of-big-soccer-matches
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 6/13 at 2:00 p.m. ET**\
 `Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
 https://nytimes.com/athletic/6424463/2025/06/13/sarris-live-chat-mlb-fantasy-baseball-6-13/

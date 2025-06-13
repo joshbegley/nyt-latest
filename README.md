@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Dalila**\
+`See the likely path and wind arrival times for Dalila.`\
+https://nytimes.com/interactive/2025/06/13/weather/dalila-path-tracker.html
+
+**7 Voters on Trump, the Protests and Taking a Stand in L.A.**\
+`The tremors of political unrest that shook Los Angeles and several U.S. cities this week have stirred a range of emotions in people — pride, disgust, fear, hope. In interviews with voters, one sentiment that transcended political affiliation seemed to be uncertainty.`\
+https://nytimes.com/2025/06/13/us/politics/voters-trump-la-protests.html
+
 **Voters’ Voices on Trump’s First Year**\
 `The Times is checking in with Americans from across the political spectrum to document their impressions of the Trump administration and the Democratic response for the rest of the year.`\
 https://nytimes.com/series/voters-voices-trump-2025
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6424463/2025/06/13/sarris-live-chat-mlb-fantasy-bas
 `With all eyes on the sole survivor of Air India Flight 171, aviation insiders say that in an air catastrophe, “all bets are off” and seat choice matters little.`\
 https://nytimes.com/2025/06/13/travel/safest-seat-airplane.html
 
-**The presence of federal agents prompts fears among fan ahead of big soccer matches.**\
+**The presence of federal agents prompts fears among fans ahead of big soccer matches.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/the-presence-of-federal-agents-prompts-fan-fears-ahead-of-big-soccer-matches
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/13/business/sunjay-kapur-dead.html
 **50 Years After ‘Jaws’ Terrified Filmgoers, a Reporter Looks Back**\
 `The culture critic Brian Raftery, who wrote about “Jaws” for the Book Review last year, discusses the movie’s anniversary with Gilbert Cruz.`\
 https://nytimes.com/2025/06/13/books/review/podcast-jaws-50th.html
-
-**Trump Talks Big on Global Diplomacy, but His Goals Are in Tatters**\
-`The president said he would bring a quick end to the wars in Ukraine and Gaza, and get China to bend on trade and Iran on its nuclear program. Instead, conflict is escalating.`\
-https://nytimes.com/2025/06/13/us/politics/trump-mideast-ukraine-russia.html
-
-**Dimming America’s Beacons to the World**\
-`Readers respond to articles about setbacks to the Fulbright program and Voice of America. Also: Senator Alex Padilla, handcuffed.`\
-https://nytimes.com/2025/06/13/opinion/fulbright-program-voice-of-america.html
 
