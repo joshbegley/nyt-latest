@@ -1,3 +1,11 @@
+**National Parks Are Told to Delete Content That ‘Disparages Americans’**\
+`Internal documents reviewed by The New York Times say that “negative” information at parks and other national site must be removed or covered by Sept. 17.`\
+https://nytimes.com/2025/06/13/climate/national-parks-trump-americans-censorship.html
+
+**Foday Musa Suso, 75, Dies; Ambitious Ambassador for West African Music**\
+`A master of the kora who worked with Herbie Hancock and Philip Glass, his career was powered as much by experimentation as by reverence for tradition.`\
+https://nytimes.com/2025/06/13/arts/music/foday-musa-suso-dead.html
+
 **Iran Retaliated Against Israel With a Barrage of missiles**\
 `Also, Washington prepares for a major military parade. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/06/13/briefing/iran-israel-attacks-military-parade-washington.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424987/2025/06/13/us-open-2025-sam-burns-round-2-o
 **Live, Work or Hang Out Near Gotham Park? We Want to Hear From You**\
 `Headway, a team at The New York Times that reports on progress and possibility, is gathering stories and experiences from people who live or spend time near the Manhattan side of the Brooklyn Bridge.`\
 https://nytimes.com/2025/06/13/headway/powerwalk-callout-gotham-park.html
-
-**Prison Reform Left Women Behind. Then Prosecutors Stepped In.**\
-`California passed the nation’s first prosecutor-initiated resentencing law in 2018. Few women benefited from these laws, until now.`\
-https://nytimes.com/2025/06/13/headway/prison-reform-women-california-prosecutors.html
-
-**How to watch the Yankees at Red Sox series, their second straight weekend matchup**\
-`The New York Yankees hosted the Boston Red Sox last weekend, and now the archrivals get to run it back at Fenway Park.`\
-https://nytimes.com/athletic/6422574/2025/06/13/yankees-red-sox-max-fried-mlb-how-to-watch/
 
