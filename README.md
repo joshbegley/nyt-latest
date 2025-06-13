@@ -1,3 +1,19 @@
+**Top State Department Official Posts, Then Quickly Deletes, Attack on Colleague**\
+`Christopher Landau, the deputy secretary of state, criticized the U.S. ambassador to NATO in a reply to a routine social media post about meetings with foreign diplomats.`\
+https://nytimes.com/2025/06/12/us/politics/state-department-feud-landau-whitaker.html
+
+**Brewers' Jacob Misiorowski dazzles in debut, exits with cramping**\
+`The fifth pitch of his debut — a 102.2 mph fastball — was the hardest-thrown pitch by a Brewers starter in the pitch-tracking era.`\
+https://nytimes.com/athletic/6423202/2025/06/12/jacob-misiorowski-brewers-debut-apparent-injury/
+
+**What to Know About Israel’s Strikes on Iran’s Nuclear Program**\
+`Israel’s military struck Tehran and other targets early Friday morning, raising fears of a broader war. The U.S. said it was not involved in the strikes.`\
+https://nytimes.com/2025/06/12/world/middleeast/israel-iran-strikes.html
+
+**Light Shower**\
+`Evan Mulvihill makes his New York Times Crossword debut with some great stacked entries.`\
+https://nytimes.com/2025/06/12/crosswords/daily-puzzle-2025-06-13.html
+
 **‘And Just Like That …’ Season 3, Episode 3 Recap: An Expensive Date**\
 `Carrie flies to Virginia for a lunch with her “boyfriend,” Aidan. Seema tags along. It is unclear why either is really going.`\
 https://nytimes.com/2025/06/12/arts/television/and-just-like-that-recap-season-3-episode-3.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/12/us/politics/trump-withdraws-from-agreement-with-t
 **What to know about J.J. Spaun and the rest of the Round 1 U.S. Open leaders**\
 `This is the first time Spaun has been in the top 10 following any major championship round, let alone held the lead.`\
 https://nytimes.com/athletic/6423013/2025/06/12/us-open-2025-round-1-what-to-know-spaun/
-
-**After striking Iran, Israel braces for retaliation.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/after-striking-iran-israel-braces-for-retaliation
-
-**Angels to call-up top infield prospect Christian Moore for MLB debut: Source**\
-`In recent years, the Angels have called up their top prospects quicker than any other MLB organization.`\
-https://nytimes.com/athletic/6423137/2025/06/12/los-angeles-angels-christian-moore-call-up/
-
-**Meta Invests $14.3 Billion in Scale AI to Kick-Start Superintelligence Lab**\
-`Meta is making its first major minority investment in an outside company as it tries to catch up to a growing field of artificial intelligence rivals.`\
-https://nytimes.com/2025/06/12/technology/meta-scale-ai.html
-
-**Slow and Steady, This Poem Will Win Your Heart**\
-`A.O. Scott ponders the specific gravity and unlikely grace of Kay Ryan’s “Turtle.” And we have a game to help you memorize it.`\
-https://nytimes.com/interactive/2025/06/12/books/kay-ryan-turtle-poem.html
 
