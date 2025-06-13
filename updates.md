@@ -1,3 +1,11 @@
+**Dimming America’s Beacons to the World**\
+`Readers respond to articles about setbacks to the Fulbright program and Voice of America. Also: Senator Alex Padilla, handcuffed.`\
+https://nytimes.com/2025/06/13/opinion/fulbright-program-voice-of-america.html
+
+**Ex-New York Assembly Candidate Charged With Campaign Finance Fraud**\
+`Dao Yin was charged after a New York Times investigation revealed that he reported receiving campaign contributions from people who said they had not made them.`\
+https://nytimes.com/2025/06/13/nyregion/dao-yin-straw-donor.html
+
 **Suarez says MLS teams can surprise 'fatigued' European sides at Club World Cup**\
 `The former Barcelona forward says the European clubs are the favourites but has predicted upsets after a "long season."`\
 https://nytimes.com/athletic/6424360/2025/06/13/suarez-inter-miami-club-world-cup/
