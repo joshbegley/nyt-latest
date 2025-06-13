@@ -1,3 +1,19 @@
+**Oil Prices Surge and Stock Markets Stumble After Israel’s Attack**\
+`The military strikes jolted investors, raising concerns that a broader Mideast conflict would disrupt the world’s energy supplies.`\
+https://nytimes.com/2025/06/12/business/energy-environment/israel-iran-oil-stock-markets.html
+
+**In L.A., the Divide Between Peace and Violence Is in the Eye of the Beholder**\
+`Los Angeles, a city marked by fiery and full-throated protests, adds a new chapter to that history.`\
+https://nytimes.com/2025/06/12/us/politics/los-angeles-protests-peace-violence.html
+
+**Review: Macheath, Polly and the Gang Wash Up in Five Points**\
+`At Little Island, “The Counterfeit Opera” falls short of its wildly successful historical models.`\
+https://nytimes.com/2025/06/12/arts/music/review-the-counterfeit-opera-little-island.html
+
+**Review: Jean Smart, Gritty and Poetic in ‘Call Me Izzy’**\
+`The “Hacks” star returns to Broadway after 25 years in a triumph for her, if not for the old-fashioned, flowery play about spouse abuse.`\
+https://nytimes.com/2025/06/12/theater/call-me-izzy-review-jean-smart.html
+
 **Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
 `By Aaron Boxerman and Isabel Kershner`\
 https://nytimes.com/2025/06/12/world/middleeast/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary.html

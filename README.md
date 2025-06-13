@@ -1,3 +1,15 @@
+**Hong Kong Group That Lobbied for Chinese Labor Rights Shuts Down**\
+`The China Labor Bulletin, which tracks factory closures and worker protests in China, cited financial difficulties for its dissolution.`\
+https://nytimes.com/2025/06/12/business/hong-kong-labor-rights-nonprofit-closes.html
+
+**Israeli Attacks Killed Top Iranian Military Officials and Nuclear Scientists**\
+`Israel has long targeted Iranian officials for assassination. But these attacks marked a significant shift in tactics, targeting multiple officials at once inside Iran.`\
+https://nytimes.com/2025/06/12/world/middleeast/irgc-iran-israel-strikes-nuclear.html
+
+**What We Know About the L.A. Protests So Far**\
+`Demonstrations against the Trump administration’s immigration policies have been largely peaceful in Los Angeles, but tensions flared in a few pockets of isolated protests after President Trump mobilized troops to the city.`\
+https://nytimes.com/video/world/americas/100000010221397/what-we-know-about-the-la-protests-so-far.html
+
 **Oil Prices Surge and Stock Markets Stumble After Israel’s Attack**\
 `The military strikes jolted investors, raising concerns that a broader Mideast conflict would disrupt the world’s energy supplies.`\
 https://nytimes.com/2025/06/12/business/energy-environment/israel-iran-oil-stock-markets.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/12/world/middleeast/trump-rubio-israel-iran-strikes.
 **Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
 `By Aaron Boxerman and Isabel Kershner`\
 https://nytimes.com/2025/06/12/world/middleeast/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary.html
-
-**5 Takeaways From the Democrats’ Final N.Y.C. Mayoral Debate**\
-`The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani, traded barbs over their records, immigration and a host of other issues.`\
-https://nytimes.com/2025/06/12/nyregion/debate-takeaways-mayor-nyc.html
-
-**Is Brooks Koepka back? The guy in U.S. Open contention looks a lot like the old Brooks**\
-`It's been more than two years since Koepka won his last major, but he's suddenly two shots behind leader J.J. Spaun.`\
-https://nytimes.com/athletic/6423010/2025/06/12/brooks-koepka-us-open-golf/
-
-**Senate G.O.P. Includes Expanded Fund for Radiation Victims in Policy Bill**\
-`The provision, long advocated by Senator Josh Hawley of Missouri, would revive and broaden a law for compensating those who developed serious illnesses from government-caused nuclear contamination.`\
-https://nytimes.com/2025/06/12/us/politics/senate-republicans-radiation-victims-hawley.html
 
