@@ -1,3 +1,19 @@
+**Cuomo and Mamdani Clash in Final N.Y.C. Mayoral Debate**\
+`The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani exchanged attacks over their records and experience.`\
+https://nytimes.com/video/us/politics/100000010226733/nyc-mayoral-debate.html
+
+**How is Israel protecting its critical sites from Iranian retaliation?**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/how-is-israel-protecting-its-critical-sites-from-iranian-retaliation
+
+**Is This Crazy Song the Future of K-Pop?**\
+`“Gnarly,” a maximalist collision of sounds by the multi-cultural girl group Katseye, says a lot about where the genre has been and where it’s going, according to our critic.`\
+https://nytimes.com/video/podcasts/100000010220425/is-this-crazy-song-the-future-of-k-pop.html
+
+**Friday’s events are expected to be quieter as protesters prepare for mass weekend demonstrations.**\
+`By Bernard Mokam`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/fridays-events-will-be-quieter-as-protesters-prepare-for-mass-weekend-demonstrations
+
 **What’s the Deal? Nippon’s Bid for U.S. Steel Becomes Merger Mystery.**\
 `President Trump’s foray into the takeover could reshape the future of foreign investment in the United States.`\
 https://nytimes.com/2025/06/13/business/nippon-us-steel-deal-trump.html

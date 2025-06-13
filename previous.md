@@ -1,3 +1,15 @@
+**Cuomo and Mamdani Clash in Final N.Y.C. Mayoral Debate**\
+`The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani exchanged attacks over their records and experience.`\
+https://nytimes.com/video/us/politics/100000010226733/nyc-mayoral-debate.html
+
+**How is Israel protecting its critical sites from Iranian retaliation?**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/how-is-israel-protecting-its-critical-sites-from-iranian-retaliation
+
+**Is This Crazy Song the Future of K-Pop?**\
+`“Gnarly,” a maximalist collision of sounds by the multi-cultural girl group Katseye, says a lot about where the genre has been and where it’s going, according to our critic.`\
+https://nytimes.com/video/podcasts/100000010220425/is-this-crazy-song-the-future-of-k-pop.html
+
 **What’s the Deal? Nippon’s Bid for U.S. Steel Becomes Merger Mystery.**\
 `President Trump’s foray into the takeover could reshape the future of foreign investment in the United States.`\
 https://nytimes.com/2025/06/13/business/nippon-us-steel-deal-trump.html
@@ -6,7 +18,7 @@ https://nytimes.com/2025/06/13/business/nippon-us-steel-deal-trump.html
 `“Not My Type: One Woman vs. a President” includes reflections on being asked to testify about her sex life, as well as the thrill of winning two lawsuits.`\
 https://nytimes.com/2025/06/13/books/review/e-jean-carroll-not-my-type-trump-trial.html
 
-**Friday’s events will be quieter as protesters prepare for mass weekend demonstrations.**\
+**Friday’s events are expected to be quieter as protesters prepare for mass weekend demonstrations.**\
 `By Bernard Mokam`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/fridays-events-will-be-quieter-as-protesters-prepare-for-mass-weekend-demonstrations
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/t-magazine/summer-swimsuit-quiz.html
 **Can Scottie Scheffler still win the U.S. Open? He thinks so**\
 `Scheffler shot a 1-over 71 on Friday, blaming issues off the tee.`\
 https://nytimes.com/athletic/6424600/2025/06/13/scottie-scheffler-us-open-round-2/
-
-**After Kreider trade, what comes next for core-shuffling Rangers? Analyzing the possible moves**\
-`By all accounts, New York is working hard to give itself salary cap flexibility for July 1. Who might be heading out the door before then? `\
-https://nytimes.com/athletic/6424539/2025/06/13/new-york-rangers-nhl-free-agency-chris-kreider-trade/
-
-**In L.A.’s Little Tokyo, Protests Draw Sympathy and Frustration**\
-`Business owners and locals in Little Tokyo say they are conflicted: frustrated as they scrub graffiti and clean up after looting, but also holding a deep sense of solidarity with anti-immigration raid protesters and their cause.`\
-https://nytimes.com/video/world/americas/100000010225148/la-ice-protests-little-tokyo.html
-
-**Aston Martin Returns to Le Mans With a Car That Is Turning Heads**\
-`The last time the team won the race overall, in 1959, Carroll Shelby was driving. Now it’s bringing a new car, the futuristic-looking Valkyrie.`\
-https://nytimes.com/2025/06/13/sports/autoracing/aston-martin-le-mans-valkyrie.html
 
