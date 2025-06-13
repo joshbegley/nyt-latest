@@ -1,3 +1,11 @@
+**After striking Iran, Israel braces for retaliation.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/after-striking-iran-israel-braces-for-retaliation
+
+**Angels to call-up top infield prospect Christian Moore for MLB debut: Source**\
+`In recent years, the Angels have called up their top prospects quicker than any other MLB organization.`\
+https://nytimes.com/athletic/6423137/2025/06/12/los-angeles-angels-christian-moore-call-up/
+
 **Meta Invests Nearly $15 Billion in Scale AI to Kick-Start Superintelligence Lab**\
 `Meta is making its first major minority investment in an outside company as it tries to catch up to a growing field of artificial intelligence rivals.`\
 https://nytimes.com/2025/06/12/technology/meta-scale-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/06/12/upshot/gop-megabill-distribution-poor
 **Here’s the latest.**\
 `The Israeli gov`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/israel-strikes-iran
-
-**Israel Launches Attack on Iran as Tehran Scrambles Jets**\
-`The Israeli government has been making preparations for weeks for an attack on Iran’s nuclear facilities.`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear
-
-**New York Police to Pay $1 Million to Settle Discrimination Case**\
-`Two plaintiffs had accused the police of systemic discrimination against victims of sexual assault.`\
-https://nytimes.com/2025/06/12/nyregion/new-york-police-sex-crimes-settlement.html
 
