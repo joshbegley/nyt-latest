@@ -1,3 +1,7 @@
+**‘Materialists’ | Anatomy of a Scene**\
+`Celine Song narrates a sequence from her film featuring Dakota Johnson, Pedro Pascal and Chris Evans.`\
+https://nytimes.com/video/movies/100000010225402/materialists-scene.html
+
 **Residents of Tehran Awake to Devastation**\
 `After a terrifying night filled with loud explosions, long lines were forming at gas stations and grocery stores were filling up as Iranians prepared uncertain times.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-iran-tehran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/nyregion/anthony-broadwater-documentary.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/06/13/crosswords/spelling-bee-forum.html
-
-**Israel Attacks Iran**\
-`The attack on Tehran, the capital of Iran, was the biggest since the Iran-Iraq war decades ago.`\
-https://nytimes.com/2025/06/13/world/middleeast/israel-attacks-iran.html
 
