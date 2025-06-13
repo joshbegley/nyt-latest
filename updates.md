@@ -1,3 +1,19 @@
+**‘And Just Like That …’ Season 3, Episode 3 Recap: An Expensive Date**\
+`Carrie flies to Virginia for a lunch with her “boyfriend,” Aidan. Seema tags along. It is unclear why either is really going.`\
+https://nytimes.com/2025/06/12/arts/television/and-just-like-that-recap-season-3-episode-3.html
+
+**Law Enforcement Officers Respond to Reports of Unrest at Migrant Facility**\
+`Delaney Hall in Newark was also the scene of a recent clash in which a member of Congress was charged with assault.`\
+https://nytimes.com/2025/06/12/nyregion/newark-migrant-detention-center-disturbance.html
+
+**Read the Judge’s Ruling**\
+`A federal judge temporarily blocked the federal government’s mobilization of the California National Guard to protect immigration agents from protesters in Los Angeles.`\
+https://nytimes.com/interactive/2025/06/13/us/la-protests-trump-marines-ice.html
+
+**Explosions Rock Iran’s Capital**\
+`Surveillance footage shows explosions over Tehran as Israel launched what it described as a “pre-emptive strike” on Iran.`\
+https://nytimes.com/video/world/middleeast/100000010225811/explosions-rock-tehran.html
+
 **Read the Judge’s Ruling**\
 `A federal judge temporarily blocked the federal government’s mobilization of the California National Guard to protect immigration agents from protesters in Los Angeles.`\
 https://nytimes.com/interactive/2025/06/13/us/govuscourtscand450934640.html
