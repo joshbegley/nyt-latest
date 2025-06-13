@@ -1,3 +1,11 @@
+**Israel’s next target is Fordo, a nuclear site hidden in a mountain.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/israels-next-target-is-fordo-a-nuclear-site-hidden-in-a-mountain
+
+**Hundreds Evacuated as Wildfire Grows in Oregon**\
+`Text by Jordan Gale and Amy Graff`\
+https://nytimes.com/card/2025/06/13/us/rowena-wildfire-oregon
+
 **Tracking Tropical Storm Dalila**\
 `See the likely path and wind arrival times for Dalila.`\
 https://nytimes.com/interactive/2025/06/13/weather/dalila-path-tracker.html
