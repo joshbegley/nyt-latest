@@ -1,3 +1,15 @@
+**Prison Reform Left Women Behind. Then Prosecutors Stepped In.**\
+`California passed the nation’s first prosecutor-initiated resentencing law in 2018. Few women benefited from these laws, until now.`\
+https://nytimes.com/2025/06/13/headway/prison-reform-women-california-prosecutors.html
+
+**How to watch the Yankees at Red Sox series, their second straight weekend matchup**\
+`The New York Yankees hosted the Boston Red Sox last weekend, and now the archrivals get to run it back at Fenway Park.`\
+https://nytimes.com/athletic/6422574/2025/06/13/yankees-red-sox-max-fried-mlb-how-to-watch/
+
+**Aces star A'ja Wilson will miss Friday's game, enters concussion protocol**\
+`Las Vegas is currently in 4-4, sitting 6th in the WNBA standings.`\
+https://nytimes.com/athletic/6424911/2025/06/13/aces-aja-wilson-out-enters-concussion-protocol/
+
 **Harris Yulin, Actor Who Perpetually Played the Bad Guy, Dies at 87**\
 `As an award-winning actor and director, he appeared in scores of stage plays, movies and TV shows over six decades, most often as unsavory characters.`\
 https://nytimes.com/2025/06/13/arts/television/harris-yulin-dead.html
