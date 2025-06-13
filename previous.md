@@ -1,3 +1,19 @@
+**Milner signs one-year deal to remain at Brighton**\
+`The 39-year-old played only four games in the 2024-25 season due to a thigh issue that sidelined him for the majority of the campaign.`\
+https://nytimes.com/athletic/6388082/2025/06/13/james-milner-contract-brighton/
+
+**Aaron Civale heading to White Sox after requesting trade from Brewers: Source**\
+`Civale asked to be traded after the Brewers bumped him from the rotation in favor of top pitching prospect Jacob Misiorowski.`\
+https://nytimes.com/athletic/6424334/2025/06/13/aaron-civale-trade-white-sox-brewers/
+
+**Mamdani and Lander Will Cross-Endorse Each Other in N.Y.C. Mayor’s Race**\
+`Zohran Mamdani and Brad Lander, the two leading progressive candidates in the race, hope their partnership will help them leverage the ranked-choice voting system to defeat Andrew M. Cuomo.`\
+https://nytimes.com/2025/06/13/nyregion/mamdani-lander-endorsement-nyc-mayor.html
+
+**The Musical Mysteries Brian Wilson Left Behind**\
+`The Beach Boys mastermind has been the subject of pop scholarship and major boxed sets, but some corners of his oeuvre remain unreleased.`\
+https://nytimes.com/2025/06/13/arts/music/brian-wilson-beach-boys-unreleased-albums.html
+
 **Former L.A.P.D. Chief: Deploying Troops Was a Profound Mistake**\
 `Dispatching troops risks escalation, tragic error and lasting damage to public confidence.`\
 https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/13/nyregion/mahmoud-khalil-trump-detention.html
 **Pierre Franey’s Five-Star Grilled Swordfish**\
 `It’s been a hit with Times readers since its publication in 1993.`\
 https://nytimes.com/2025/06/13/dining/healthy-grilled-swordfish-and-more-fathers-day-recipes.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include a gaslit mother, a hungry shark, vengeful French cops, and more.`\
-https://nytimes.com/2025/06/13/movies/five-action-movies-to-stream-now.html
-
-**7 Father’s Day Movies to Watch in Theaters**\
-`Whether you’re in the mood for dragons or a new Wes Anderson, theaters this weekend are filled with fatherly flicks.`\
-https://nytimes.com/2025/06/13/movies/7-fathers-day-movies-to-watch-in-theaters.html
-
-**Mideast Tense as Long Anticipated Israel-Iran Conflict Sinks Hopes for Détente**\
-`Israel’s attacks on Iran renewed fears of war between the countries and immediately threatened the region’s economy.`\
-https://nytimes.com/2025/06/13/world/middleeast/mideast-tense-as-long-anticipated-israel-iran-conflict-sinks-hopes-for-detente.html
-
-**Judge Blocks Trump Voting Order Requiring Proof of Citizenship**\
-`A judge ruled that President Trump likely exceeded his authority with elections changes that included punishing states that didn’t stop counting ballots after Election Day.`\
-https://nytimes.com/2025/06/13/us/politics/judge-blocks-trump-voting-order-requiring-proof-of-citizenship.html
 

@@ -1,3 +1,19 @@
+**Milner signs one-year deal to remain at Brighton**\
+`The 39-year-old played only four games in the 2024-25 season due to a thigh issue that sidelined him for the majority of the campaign.`\
+https://nytimes.com/athletic/6388082/2025/06/13/james-milner-contract-brighton/
+
+**Aaron Civale heading to White Sox after requesting trade from Brewers: Source**\
+`Civale asked to be traded after the Brewers bumped him from the rotation in favor of top pitching prospect Jacob Misiorowski.`\
+https://nytimes.com/athletic/6424334/2025/06/13/aaron-civale-trade-white-sox-brewers/
+
+**Mamdani and Lander Will Cross-Endorse Each Other in N.Y.C. Mayor’s Race**\
+`Zohran Mamdani and Brad Lander, the two leading progressive candidates in the race, hope their partnership will help them leverage the ranked-choice voting system to defeat Andrew M. Cuomo.`\
+https://nytimes.com/2025/06/13/nyregion/mamdani-lander-endorsement-nyc-mayor.html
+
+**The Musical Mysteries Brian Wilson Left Behind**\
+`The Beach Boys mastermind has been the subject of pop scholarship and major boxed sets, but some corners of his oeuvre remain unreleased.`\
+https://nytimes.com/2025/06/13/arts/music/brian-wilson-beach-boys-unreleased-albums.html
+
 **Former L.A.P.D. Chief: Deploying Troops Was a Profound Mistake**\
 `Dispatching troops risks escalation, tragic error and lasting damage to public confidence.`\
 https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html

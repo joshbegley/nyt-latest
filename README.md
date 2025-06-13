@@ -22,8 +22,8 @@ https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html
 `The Pacers have a 2-1 series lead primarily because the Thunder have gotten away from team basketball. Can that change in Game 4?`\
 https://nytimes.com/athletic/6423915/2025/06/13/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-nba-draft-the-bounce/
 
-**In its latest attack on Iran, Israel’s allies voice less support and more concern.**\
-`By Lara Jakes`\
+**Israel’s Allies Voice Less Support and More Concern After Latest Attack on Iran**\
+`The reaction was noticeably different on Friday than it was after the last time Israel attacked Iran, when several countries provided backup and resources.`\
 https://nytimes.com/2025/06/13/world/middleeast/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern.html
 
 **The Subtle Art of the Dad Text**\
