@@ -1,3 +1,7 @@
+**Former Chelsea, Germany midfielder Leupolz announces retirement**\
+`Leupolz won the Bundesliga twice with Bayern Munich and the Women's Super League on four occasions with Chelsea during a 15-year career.`\
+https://nytimes.com/athletic/6424019/2025/06/13/melanie-leupolz-chelsea-germany-retirement/
+
 **The Windup: Promising debut hits speed bump**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6423551/2025/06/13/jacob-misiorowski-debut-injury-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/learning/summer-reading-contest-week-2-what-got-y
 **Another Chiefs O-line overhaul? Kansas City vows to be better after Super Bowl trampling**\
 `The Chiefs could have three new O-line starters, including first-round pick Josh Simmons as Patrick Mahomes' new blindside protector. `\
 https://nytimes.com/athletic/6423931/2025/06/13/chiefs-offensive-line-super-bowl/
-
-**Good News for College Students: You May See a Dip in Student Loan Rates**\
-`A small decline in interest rates on federal loans for next school year is the first in five years. It comes amid turmoil in student loan and financial aid programs.`\
-https://nytimes.com/2025/06/13/your-money/federal-student-loans-interest-rates.html
 

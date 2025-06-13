@@ -1,3 +1,7 @@
+**Former Chelsea, Germany midfielder Leupolz announces retirement**\
+`Leupolz won the Bundesliga twice with Bayern Munich and the Women's Super League on four occasions with Chelsea during a 15-year career.`\
+https://nytimes.com/athletic/6424019/2025/06/13/melanie-leupolz-chelsea-germany-retirement/
+
 **The Windup: Promising debut hits speed bump**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6423551/2025/06/13/jacob-misiorowski-debut-injury-the-windup/
