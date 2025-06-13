@@ -1,3 +1,11 @@
+**Israeli Strikes Targeted Some of Iran’s Most Important Nuclear Facilities**\
+`Iran’s nuclear centers are spread across the country. Here are the sites Israel appears to have attacked.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-facilities-israel-attack-natanz.html
+
+**'A brutal feeling': After another Stanley Cup Final goalie benching, NHL netminders discuss the dreaded yank**\
+`It's hard to place much blame on Oilers goalie Stuart Skinner for the three goals he allowed in Game 4. But his benching provided a spark.`\
+https://nytimes.com/athletic/6423556/2025/06/13/nhl-goalies-stanley-cup-final-stuart-skinner-calvin-pickard/
+
 **Trump Says Iran ‘Must Make a Deal, Before There Is Nothing Left’**\
 `In his first public comments on the Israeli strikes against Iran, the U.S. president said Tehran had brought the destruction on itself and must continue nuclear talks.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-deal-trump-us-israel-strikes.html
