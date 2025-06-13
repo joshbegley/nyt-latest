@@ -1,3 +1,11 @@
+**After Kreider trade, what comes next for core-shuffling Rangers? Analyzing the possible moves**\
+`By all accounts, New York is working hard to give itself salary cap flexibility for July 1. Who might be heading out the door before then? `\
+https://nytimes.com/athletic/6424539/2025/06/13/new-york-rangers-nhl-free-agency-chris-kreider-trade/
+
+**In L.A.’s Little Tokyo, Protests Draw Sympathy and Frustration**\
+`Business owners and locals in Little Tokyo say they are conflicted: frustrated as they scrub graffiti and clean up after looting, but also holding a deep sense of solidarity with anti-immigration raid protesters and their cause.`\
+https://nytimes.com/video/world/americas/100000010225148/la-ice-protests-little-tokyo.html
+
 **Aston Martin Returns to Le Mans With a Car That Is Turning Heads**\
 `The last time the team won the race overall, in 1959, Carroll Shelby was driving. Now it’s bringing a new car, the futuristic-looking Valkyrie.`\
 https://nytimes.com/2025/06/13/sports/autoracing/aston-martin-le-mans-valkyrie.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424531/2025/06/13/wnba-scripps-multi-year-media-ri
 **Arthur Hamilton, Who Wrote the Enduring ‘Cry Me a River,’ Dies at 98**\
 `A hit for Julie London in 1955, it was later recorded by — among many others — Ella Fitzgerald, Barbra Streisand and Michael Bublé, who praised it for its “darkness.”`\
 https://nytimes.com/2025/06/13/arts/music/arthur-hamilton-dead.html
-
-**Astros trade one-time top prospect Forrest Whitley to Rays**\
-`Whitley, once the top pitching prospect in baseball, was in need of a change of scenery. Now he'll get one.`\
-https://nytimes.com/athletic/6424664/2025/06/13/forrest-whitley-trade-astros-rays/
-
-**Victor Perez sinks second-ever hole-in-one in a U.S. Open at Oakmont**\
-`Perez's ace, which was his first on the PGA Tour, was the 54th in U.S. Open history.`\
-https://nytimes.com/athletic/6424541/2025/06/13/us-open-hole-in-one-oakmont-victor-perez/
 
