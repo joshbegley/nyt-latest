@@ -1,3 +1,19 @@
+**Army Celebrates With Parade as It Faces an Uncertain Future**\
+`The service is experiencing an identity crisis after 20 years of war, and as the president warns of threats to America from within.`\
+https://nytimes.com/2025/06/13/us/politics/army-parade-trump.html
+
+**A Smithsonian Museum Director Steps Down in Wake of Trump’s ‘Firing’**\
+`The Smithsonian has said it retains power over personnel decisions, but Kim Sajet, the longtime director of the National Portrait Gallery, has decided to depart.`\
+https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html
+
+**Texans' Jimmie Ward charged with felony assault, accused of strangling fianceé**\
+`Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
+https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
+
+**Trump’s Use of National Guard in Limbo After Court Rulings**\
+`Judge Charles Breyer ordered the administration to return control of the National Guard to the California governor, but an appeals court stayed the extraordinary decision Thursday night.`\
+https://nytimes.com/2025/06/13/us/trumps-national-guard-court-rulings.html
+
 **Texans' Jimmie Ward charged with felony assault, accused of strangling fiancé**\
 `Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
 https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
