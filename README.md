@@ -1,3 +1,15 @@
+**A Democrat in Texas says he was warned against displaying ‘No Kings’ signs at a local parade.**\
+`By J. David Goodman`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/a-democrat-in-texas-says-he-was-warned-against-displaying-no-kings-signs-at-a-local-parade
+
+**Prime Tire: The other sad F1 race clash. Plus, McLaren struggles early in Canada**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6425162/2025/06/13/prime-tire-the-other-sad-f1-race-clash-plus-mclaren-struggles-early-in-canada/
+
+**India Plane Crash: What Investigators Might Examine**\
+`Investigators will examine many things, including what the pilots did and whether critical plane systems worked as they are supposed to.`\
+https://nytimes.com/interactive/2025/06/13/business/india-plane-crash-investigation.html
+
 **Knicks set to interview Taylor Jenkins, Mike Brown next week: Sources**\
 `New York is also expected to start contacting organizations to speak with assistant head coaches about its opening.`\
 https://nytimes.com/athletic/6425152/2025/06/13/knicks-coaching-search-taylor-jenkins-mike-brown/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
 **Kennedy’s New Vaccine Advisers Helped Lawyers Raise Doubts About Their Safety**\
 `Three of the health secretary’s picks to replace fired members of an influential panel that sets U.S. vaccine policies have filed statements in court flagging concerns about vaccines.`\
 https://nytimes.com/2025/06/13/us/politics/rfk-jr-vaccine-advisers.html
-
-**Radiation Risk From Israel’s Strikes on Iran Nuclear Sites Is Low, for Now**\
-`The radiological threat from the targets of the earliest attacks are relatively minor.`\
-https://nytimes.com/2025/06/13/science/radiation-iran-nuclear-sites.html
-
-**Legal decision not the only judgment facing 'Hockey Canada 5'**\
-`The stain from decisions made in that London, Ont., hotel room will echo for years after the legality of that night's activity is settled.`\
-https://nytimes.com/athletic/6424392/2025/06/13/hockey-canada-sexual-assault-trial-judgment/
-
-**Iran Launches Retaliatory Strikes Against Israel**\
-`Iran fired ballistic missiles that struck at least seven sites around Tel Aviv on Friday night, injuring dozens of Israelis. The move was a retaliation to the Israeli attacks on Iranian nuclear sites and military leaders.`\
-https://nytimes.com/video/world/middleeast/100000010228151/iran-israel-strikes.html
 

@@ -1,3 +1,7 @@
+**Knicks set to interview Taylor Jenkins, Mike Brown next week: Sources**\
+`New York is also expected to start contacting organizations to speak with assistant head coaches about its opening.`\
+https://nytimes.com/athletic/6425152/2025/06/13/knicks-coaching-search-taylor-jenkins-mike-brown/
+
 **Judge Signals Openness to Granting Bail to Returned Deportee**\
 `Denying the Justice Department’s request to detain the deportee would be a significant rebuke of the Trump administration, which has repeatedly cast him as a dangerous criminal.`\
 https://nytimes.com/2025/06/13/us/politics/abrego-garcia-judge-bail.html
