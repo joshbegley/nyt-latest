@@ -1,3 +1,11 @@
+**U.S. Urges Americans to Steer Clear of Nicaragua**\
+`Despite a flurry of positive reports in the travel press, U.S. officials say Americans should avoid Nicaragua because it’s an authoritarian regime.`\
+https://nytimes.com/2025/06/13/world/americas/us-nicaragua-travel-advisory.html
+
+**How Does Israel Defend Against Iran’s Missiles?**\
+`Iran launched dozens of missiles on Friday and hit several sites in Israel, after waves of Israeli strikes against Iran’s nuclear facilities and military leaders.`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/israel-iran-missiles-defense
+
 **Trump’s $1.1 Billion Public Broadcasting Clawback Faces Pushback in the Senate**\
 `Some Republican senators are voicing concern over the House-passed bill that would rescind $9 billion that Congress already approved, including money for NPR and PBS stations in their states.`\
 https://nytimes.com/2025/06/13/us/politics/trump-public-broadcasting-senate.html
