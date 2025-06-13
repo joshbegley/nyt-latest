@@ -1,3 +1,7 @@
+**Which Tottenham players will suit Frank's football, and which may have to make way?**\
+`New Spurs boss Frank will be charged with helping promising Spurs stars fulfil their potential while bringing senior players back to form`\
+https://nytimes.com/athletic/6418775/2025/06/13/thomas-frank-tottenham-players/
+
 **Who is the real Gianni Infantino?**\
 `Before the Club World Cup, The Athletic has spoken to dozens of people to gain a clearer picture of the most powerful man in football`\
 https://nytimes.com/athletic/6415212/2025/06/13/fifa-soccer-president-gianni-infantino-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421327/2025/06/13/newcastle-five-goalkeepers-sign-
 **‘They Come at You’: The Grandmothers Playing Rough at a Kids’ Sport**\
 `The Ah Ma Flippa Ball team (ah ma means grandmother) is one example of how Singapore is encouraging its growing population of seniors to stay active.`\
 https://nytimes.com/2025/06/13/world/asia/singapore-aging-flippa-ball.html
-
-**Connections: Sports Edition Coach: Hints for June 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6422864/2025/06/13/connections-sports-edition-hints-for-june-13-2025/
 

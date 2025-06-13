@@ -1,3 +1,7 @@
+**Which Tottenham players will suit Frank's football, and which may have to make way?**\
+`New Spurs boss Frank will be charged with helping promising Spurs stars fulfil their potential while bringing senior players back to form`\
+https://nytimes.com/athletic/6418775/2025/06/13/thomas-frank-tottenham-players/
+
 **Who is the real Gianni Infantino?**\
 `Before the Club World Cup, The Athletic has spoken to dozens of people to gain a clearer picture of the most powerful man in football`\
 https://nytimes.com/athletic/6415212/2025/06/13/fifa-soccer-president-gianni-infantino-history/
