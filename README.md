@@ -1,3 +1,15 @@
+**In a New Book, E. Jean Carroll Chronicles Her Legal Battles With Trump**\
+`“Not My Type: One Woman vs. a President” includes reflections on being asked to testify about her sex life, as well as the thrill of winning two lawsuits.`\
+https://nytimes.com/2025/06/13/books/review/e-jean-carroll-not-my-type-trump-trial.html
+
+**Friday’s events will be quieter as protesters prepare for mass weekend demonstrations.**\
+`By Bernard Mokam`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/fridays-events-will-be-quieter-as-protesters-prepare-for-mass-weekend-demonstrations
+
+**Israel Had the Courage to Do What Needed to Be Done**\
+`All the other options have run their course.`\
+https://nytimes.com/2025/06/13/opinion/iran-israel-strikes.html
+
 **Marines will take over guarding a federal building in Los Angeles.**\
 `The general overseeing the military response to the Los Angeles protests said about 200 Marines had been deployed to the Wilshire Federal Building`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/marines-will-take-over-guarding-a-federal-building-in-los-angeles
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/sports/autoracing/aston-martin-le-mans-valkyrie.h
 **The 24 Hours of Le Mans Is Long. So Are the Preparations.**\
 `Teams start getting ready for the next Le Mans as soon as the race is over`\
 https://nytimes.com/2025/06/13/sports/autoracing/24-hours-le-mans-preparation.html
-
-**Much of Iran’s Nuclear Program Remains After Israel’s Strikes. At Least for Now.**\
-`The first phase of the attack did not hit the most likely repository of Iran’s near-bomb-grade nuclear fuel.`\
-https://nytimes.com/2025/06/13/us/politics/iran-nuclear-program-israel-strike-damage.html
-
-**10 Questions With Bill de Blasio About Andrew Cuomo’s Run for Mayor**\
-`Former Mayor Bill de Blasio said in a searing interview that his political nemesis, Andrew M. Cuomo, should not be mayor of New York City.`\
-https://nytimes.com/2025/06/13/nyregion/de-blasio-interview-transcript.html
-
-**Mick Schumacher Is Tackling Endurance Racing**\
-`The son of the Formula 1 world champion Michael Schumacher, joined Alpine’s team after he left F1. The 24 Hours of Le Mans is his next test.`\
-https://nytimes.com/2025/06/13/sports/autoracing/le-mans-mick-schumacher.html
 

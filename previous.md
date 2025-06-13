@@ -1,3 +1,15 @@
+**Marines will take over guarding a federal building in Los Angeles.**\
+`The general overseeing the military response to the Los Angeles protests said about 200 Marines had been deployed to the Wilshire Federal Building`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/marines-will-take-over-guarding-a-federal-building-in-los-angeles
+
+**How to Choose the Perfect Swimsuit**\
+`Take T’s quiz to find the styles that best match your mood, and vacation plans, this summer.`\
+https://nytimes.com/2025/06/13/t-magazine/summer-swimsuit-quiz.html
+
+**Can Scottie Scheffler still win the U.S. Open? He thinks so**\
+`Scheffler shot a 1-over 71 on Friday, blaming issues off the tee.`\
+https://nytimes.com/athletic/6424600/2025/06/13/scottie-scheffler-us-open-round-2/
+
 **After Kreider trade, what comes next for core-shuffling Rangers? Analyzing the possible moves**\
 `By all accounts, New York is working hard to give itself salary cap flexibility for July 1. Who might be heading out the door before then? `\
 https://nytimes.com/athletic/6424539/2025/06/13/new-york-rangers-nhl-free-agency-chris-kreider-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/nyregion/de-blasio-interview-transcript.html
 **Mick Schumacher Is Tackling Endurance Racing**\
 `The son of the Formula 1 world champion Michael Schumacher, joined Alpine’s team after he left F1. The 24 Hours of Le Mans is his next test.`\
 https://nytimes.com/2025/06/13/sports/autoracing/le-mans-mick-schumacher.html
-
-**Andrew Cuomo for Mayor? Bill de Blasio Has Thoughts, None of Them Good.**\
-`In a candid interview, former Mayor Bill de Blasio strenuously argued that former Gov. Andrew M. Cuomo should not be elected to lead New York City: “He is a vindictive person,” Mr. de Blasio said.`\
-https://nytimes.com/2025/06/13/nyregion/de-blasio-cuomo-nyc-mayor.html
-
-**WNBA, Scripps reach multi-year media rights deal for Friday night games on ION**\
-`WNBA viewership grew 133 percent with more than 23 million unique viewers on Friday Night Spotlight year over year.`\
-https://nytimes.com/athletic/6424531/2025/06/13/wnba-scripps-multi-year-media-rights-deal-ion/
-
-**Arthur Hamilton, Who Wrote the Enduring ‘Cry Me a River,’ Dies at 98**\
-`A hit for Julie London in 1955, it was later recorded by — among many others — Ella Fitzgerald, Barbra Streisand and Michael Bublé, who praised it for its “darkness.”`\
-https://nytimes.com/2025/06/13/arts/music/arthur-hamilton-dead.html
 
