@@ -1,3 +1,19 @@
+**Iran Retaliates and Israel Vows More Strikes After Devastating Attack**\
+`Waves of Israeli airstrikes hit two nuclear enrichment sites, multiple military bases, and military scientists and commanders. Iran replied with a barrage of missiles and drones.`\
+https://nytimes.com/2025/06/13/world/middleeast/israel-strikes-iran-retaliates.html
+
+**After taking ownership, oft-criticized Darnell Nurse's improvements evident in Cup Final**\
+`The defenseman's latest playoff performance in Game 4 showed how much he’s changed over the last year after taking ownership.`\
+https://nytimes.com/athletic/6424877/2025/06/13/oilers-darnell-nurse-nhl-stanley-cup-playoffs-final/
+
+**By taming Oakmont, Sam Burns made himself a U.S. Open contender**\
+`Burns, 28, has never truly contended at a major championship. A 65 on Friday at Oakmont changed that.`\
+https://nytimes.com/athletic/6424987/2025/06/13/us-open-2025-sam-burns-round-2-oakmont/
+
+**Live, Work or Hang Out Near Gotham Park? We Want to Hear From You**\
+`Headway, a team at The New York Times that reports on progress and possibility, is gathering stories and experiences from people who live or spend time near the Manhattan side of the Brooklyn Bridge.`\
+https://nytimes.com/2025/06/13/headway/powerwalk-callout-gotham-park.html
+
 **Prison Reform Left Women Behind. Then Prosecutors Stepped In.**\
 `California passed the nation’s first prosecutor-initiated resentencing law in 2018. Few women benefited from these laws, until now.`\
 https://nytimes.com/2025/06/13/headway/prison-reform-women-california-prosecutors.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/06/13/world/africa/mpox-surges-sierra-leone.html
 **What Political Story Would We Tell About a Mamdani Victory?**\
 `Four years ago, when Eric Adams was elected, it seemed to be a signal for Democratic politics. Here’s what a democratic socialist’s win could mean.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/zohran-mamdani-andrew-cuomo-left-new-york
-
-**Mexico’s President Says Her Flag Should Not Fly Over Violent Protests**\
-`President Claudia Sheinbaum of Mexico said that images of her country’s banner at violent protests in the United States were a “provocation.”`\
-https://nytimes.com/2025/06/13/world/americas/mexico-flag-sheinbaum.html
-
-**Monaco interested in move for Paul Pogba**\
-`The 32-year-old has been without a club since November and has not played competitively since September 2023.`\
-https://nytimes.com/athletic/6139708/2025/06/13/paul-pogba-monaco-transfer/
-
-**How concerning are T.J. Watt, Trey Hendrickson's contract holdouts?**\
-`Several stars, including a group of the league's top pass rushers, opted out of the mandatory minicamp as they seek contract extensions.`\
-https://nytimes.com/athletic/6424824/2025/06/13/t-j-watt-trey-hendrickson-contracts/
-
-**U.S. Urges Americans to Steer Clear of Nicaragua**\
-`Despite a flurry of positive reports in the travel press, U.S. officials say Americans should avoid Nicaragua because it’s an authoritarian regime.`\
-https://nytimes.com/2025/06/13/world/americas/us-nicaragua-travel-advisory.html
 
