@@ -1,3 +1,7 @@
+**Suarez says MLS teams can surprise 'fatigued' European sides at Club World Cup**\
+`The former Barcelona forward says the European clubs are the favourites but has predicted upsets after a "long season."`\
+https://nytimes.com/athletic/6424360/2025/06/13/suarez-inter-miami-club-world-cup/
+
 **The U.S. is positioning warships to help protect Israel and American forces from Iranian strikes.**\
 `By Helene Cooper`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/us-forces-middle-east
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-nationa
 **Texans' Jimmie Ward charged with felony assault, accused of strangling fianceé**\
 `Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
 https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
-
-**National Guard Will Remain in L.A. Until a Legal Challenge Is Heard**\
-`Judge Charles Breyer ordered the administration to return control of the National Guard to the California governor, but an appeals court stayed the extraordinary decision Thursday night.`\
-https://nytimes.com/2025/06/13/us/trumps-national-guard-court-rulings.html
 
