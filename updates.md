@@ -1,3 +1,7 @@
+**At a Weak Moment, Iran Weighs Difficult Options to Respond to Israel**\
+`An aggressive response to Israel’s attacks risks escalation. But giving in to U.S. and Israeli demands is an unlikely alternative.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-choices-israel-attacks.html
+
 **Israel’s next target is Fordo, a nuclear site hidden in a mountain.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/israels-next-target-is-fordo-a-nuclear-site-hidden-in-a-mountain

@@ -1,3 +1,7 @@
+**At a Weak Moment, Iran Weighs Difficult Options to Respond to Israel**\
+`An aggressive response to Israel’s attacks risks escalation. But giving in to U.S. and Israeli demands is an unlikely alternative.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-choices-israel-attacks.html
+
 **Israel’s next target is Fordo, a nuclear site hidden in a mountain.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/israels-next-target-is-fordo-a-nuclear-site-hidden-in-a-mountain
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/travel/safest-seat-airplane.html
 **The presence of federal agents prompts fears among fans ahead of big soccer matches.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/the-presence-of-federal-agents-prompts-fan-fears-ahead-of-big-soccer-matches
-
-**A Billionaire Island Where Bezos and Kushner Live Is Fighting Over Sewage**\
-`Indian Creek Village, the “Billionaire Bunker” near Miami, couldn’t get approval to discharge its waste into a neighboring town’s sewer lines. So the village quietly persuaded state lawmakers to come to the rescue.`\
-https://nytimes.com/2025/06/13/us/indian-creek-surfside-billionaire-sewage.html
 
