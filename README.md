@@ -7,7 +7,7 @@ https://nytimes.com/2025/06/13/us/marthe-cohn-dead.html
 https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
 
 **Kennedy’s New Vaccine Advisers Helped Lawyers Raise Doubts About Their Safety**\
-`After firing an influential panel that sets U.S. vaccine policies, some of Mr. Kennedy’s picks to replace them have filed statements in court flagging concerns about vaccines.`\
+`Three of the health secretary’s picks to replace fired members of an influential panel that sets U.S. vaccine policies have filed statements in court flagging concerns about vaccines.`\
 https://nytimes.com/2025/06/13/us/politics/rfk-jr-vaccine-advisers.html
 
 **Radiation Risk From Israel’s Strikes on Iran Nuclear Sites Is Low, for Now**\
