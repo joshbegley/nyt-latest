@@ -1,3 +1,15 @@
+**Forecasters Warn It May Rain on the Military Parade**\
+`Thunderstorms and extreme heat could disrupt outdoor plans around the country this weekend.`\
+https://nytimes.com/2025/06/13/weather/parade-rain-protests-forecast.html
+
+**How Bucks can tap into Giannis Antetokounmpo's playmaking: Bucks mailbag, Part III**\
+`Antetokounmpo has talked about playing for a long time. Could playing point forward help him do that? Plus, Jon Horst's extension.`\
+https://nytimes.com/athletic/6417875/2025/06/13/giannis-antetokounmpo-bucks-mailbag/
+
+**Lowetide: What we've learned about Oilers in 2025 Stanley Cup Final so far**\
+`Through the first four games of the Stanley Cup Final, Oilers fans can draw some strong conclusions about the team.`\
+https://nytimes.com/athletic/6422750/2025/06/13/edmonton-oilers-2025-stanley-cup-final-lessons/
+
 **Wayne Lewis, Singer With the R&B Mainstay Atlantic Starr, Dies at 68**\
 `The group reached No. 1 on the Billboard Hot 100 in 1987 with the ballad “Always” and went on to leave a lasting impression on modern-day artists.`\
 https://nytimes.com/2025/06/13/arts/music/wayne-lewis-dead.html
