@@ -1,3 +1,7 @@
+**What to Expect at the Army’s 250th Anniversary Parade**\
+`The event will kick off when Army officials report to President Trump — who turns 79 on the same day — and end when parachutists jump from the sky and present a flag to him.`\
+https://nytimes.com/interactive/2025/06/13/us/trump-military-parade.html
+
 **Al Hilal say club 'don't print money', amid lack of transfer deals**\
 `Al Hilal have previously signed Euro-based players including Neymar, Ruben Neves, Aleksandr Mitrovic and Joao Cancelo,`\
 https://nytimes.com/athletic/6424369/2025/06/13/al-hilal-transfers-club-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/arts/music/sean-combs-diddy-trial-kanye.html
 **Casting Is the Brightest Light of Two Molière Shows**\
 `Red Bull Theater’s smart “The Imaginary Invalid” and Taylor Mac’s dismaying “Prosperous Fools” attempt to engage with the French writer’s comedy.`\
 https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html
-
-**Alex Padilla’s Unlikely Moment in the Spotlight**\
-`The senator is known on Capitol Hill for being kind and nerdy. His forcible removal from a news conference resonated as a call to action among Democrats.`\
-https://nytimes.com/2025/06/13/us/senator-alex-padilla-removed.html
 

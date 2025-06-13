@@ -1,3 +1,7 @@
+**What to Expect at the Army’s 250th Anniversary Parade**\
+`The event will kick off when Army officials report to President Trump — who turns 79 on the same day — and end when parachutists jump from the sky and present a flag to him.`\
+https://nytimes.com/interactive/2025/06/13/us/trump-military-parade.html
+
 **Al Hilal say club 'don't print money', amid lack of transfer deals**\
 `Al Hilal have previously signed Euro-based players including Neymar, Ruben Neves, Aleksandr Mitrovic and Joao Cancelo,`\
 https://nytimes.com/athletic/6424369/2025/06/13/al-hilal-transfers-club-world-cup/
