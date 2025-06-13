@@ -1,3 +1,15 @@
+**Texans' Jimmie Ward charged with felony assault, accused of strangling fiancé**\
+`Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
+https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
+
+**Trump’s Use of National Guard in Limbo After Court Rulings**\
+`Judge Charles Breyer ordered the administration to return control of the National Guard to the California governor, but an appeals court stayed the extraordinary decision Thursday night.`\
+https://nytimes.com/2025/06/13/us/trumps-use-of-national-guard-in-limbo-after-court-rulings.html
+
+**Ye Arrives at Sean Combs Trial in Support of Music Mogul**\
+`The rapper formerly known as Kanye West has been one of the few celebrities to publicly defend Mr. Combs, who is charged with sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2025/06/13/arts/music/sean-combs-diddy-trial-kanye.html
+
 **Casting Is the Brightest Light of Two Molière Shows**\
 `Red Bull Theater’s smart “The Imaginary Invalid” and Taylor Mac’s dismaying “Prosperous Fools” attempt to engage with the French writer’s comedy.`\
 https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html

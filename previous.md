@@ -1,3 +1,15 @@
+**Texans' Jimmie Ward charged with felony assault, accused of strangling fiancé**\
+`Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
+https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
+
+**Trump’s Use of National Guard in Limbo After Court Rulings**\
+`Judge Charles Breyer ordered the administration to return control of the National Guard to the California governor, but an appeals court stayed the extraordinary decision Thursday night.`\
+https://nytimes.com/2025/06/13/us/trumps-use-of-national-guard-in-limbo-after-court-rulings.html
+
+**Ye Arrives at Sean Combs Trial in Support of Music Mogul**\
+`The rapper formerly known as Kanye West has been one of the few celebrities to publicly defend Mr. Combs, who is charged with sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2025/06/13/arts/music/sean-combs-diddy-trial-kanye.html
+
 **Casting Is the Brightest Light of Two Molière Shows**\
 `Red Bull Theater’s smart “The Imaginary Invalid” and Taylor Mac’s dismaying “Prosperous Fools” attempt to engage with the French writer’s comedy.`\
 https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html
@@ -26,16 +38,4 @@ https://nytimes.com/2025/06/13/nyregion/mamdani-lander-endorsement-nyc-mayor.htm
 **The Musical Mysteries Brian Wilson Left Behind**\
 `The Beach Boys mastermind has been the subject of pop scholarship and major boxed sets, but some corners of his oeuvre remain unreleased.`\
 https://nytimes.com/2025/06/13/arts/music/brian-wilson-beach-boys-unreleased-albums.html
-
-**Former L.A.P.D. Chief: Deploying Troops Was a Profound Mistake**\
-`Dispatching troops risks escalation, tragic error and lasting damage to public confidence.`\
-https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html
-
-**The Bounce: What have the Thunder lacked en route to 2-1 hole against Pacers? Cohesive play**\
-`The Pacers have a 2-1 series lead primarily because the Thunder have gotten away from team basketball. Can that change in Game 4?`\
-https://nytimes.com/athletic/6423915/2025/06/13/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-nba-draft-the-bounce/
-
-**Israel’s Allies Voice Less Support and More Concern After Latest Attack on Iran**\
-`The reaction was noticeably different on Friday than it was after the last time Israel attacked Iran, when several countries provided backup and resources.`\
-https://nytimes.com/2025/06/13/world/middleeast/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern.html
 

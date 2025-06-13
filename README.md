@@ -1,3 +1,11 @@
+**Army Celebrates With Parade as It Faces an Uncertain Future**\
+`The service is experiencing an identity crisis after 20 years of war, and as the president warns of threats to America from within.`\
+https://nytimes.com/2025/06/13/us/politics/army-parade-trump.html
+
+**A Smithsonian Museum Director Steps Down in Wake of Trump’s ‘Firing’**\
+`The Smithsonian has said it retains power over personnel decisions, but Kim Sajet, the longtime director of the National Portrait Gallery, has decided to depart.`\
+https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html
+
 **Texans' Jimmie Ward charged with felony assault, accused of strangling fiancé**\
 `Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
 https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6388082/2025/06/13/james-milner-contract-brighton/
 **Aaron Civale heading to White Sox after requesting trade from Brewers**\
 `Civale asked to be traded after the Brewers bumped him from the rotation in favor of top pitching prospect Jacob Misiorowski.`\
 https://nytimes.com/athletic/6424334/2025/06/13/aaron-civale-trade-white-sox-brewers/
-
-**Mamdani and Lander Will Cross-Endorse Each Other in N.Y.C. Mayor’s Race**\
-`Zohran Mamdani and Brad Lander, the two leading progressive candidates in the race, hope their partnership will help them leverage the ranked-choice voting system to defeat Andrew M. Cuomo.`\
-https://nytimes.com/2025/06/13/nyregion/mamdani-lander-endorsement-nyc-mayor.html
-
-**The Musical Mysteries Brian Wilson Left Behind**\
-`The Beach Boys mastermind has been the subject of pop scholarship and major boxed sets, but some corners of his oeuvre remain unreleased.`\
-https://nytimes.com/2025/06/13/arts/music/brian-wilson-beach-boys-unreleased-albums.html
 
