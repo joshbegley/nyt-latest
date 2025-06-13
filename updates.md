@@ -1,3 +1,11 @@
+**In a Anxious Moment for the Nation, Historians Say This One Is Different**\
+`The country has become a cauldron of anger and unease as it enters a weekend promised to be marked by protests and a military parade.`\
+https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
+
+**Kennedy’s New Vaccine Advisers Helped Lawyers Raise Doubts About Their Safety**\
+`After firing an influential panel that sets U.S. vaccine policies, some of Mr. Kennedy’s picks to replace them have filed statements in court flagging concerns about vaccines.`\
+https://nytimes.com/2025/06/13/us/politics/rfk-jr-vaccine-advisers.html
+
 **Radiation Risk From Israel’s Strikes on Iran Nuclear Sites Is Low, for Now**\
 `The radiological threat from the targets of the earliest attacks are relatively minor.`\
 https://nytimes.com/2025/06/13/science/radiation-iran-nuclear-sites.html

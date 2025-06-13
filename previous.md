@@ -1,3 +1,11 @@
+**In a Anxious Moment for the Nation, Historians Say This One Is Different**\
+`The country has become a cauldron of anger and unease as it enters a weekend promised to be marked by protests and a military parade.`\
+https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
+
+**Kennedy’s New Vaccine Advisers Helped Lawyers Raise Doubts About Their Safety**\
+`After firing an influential panel that sets U.S. vaccine policies, some of Mr. Kennedy’s picks to replace them have filed statements in court flagging concerns about vaccines.`\
+https://nytimes.com/2025/06/13/us/politics/rfk-jr-vaccine-advisers.html
+
 **Radiation Risk From Israel’s Strikes on Iran Nuclear Sites Is Low, for Now**\
 `The radiological threat from the targets of the earliest attacks are relatively minor.`\
 https://nytimes.com/2025/06/13/science/radiation-iran-nuclear-sites.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/13/arts/dara-birnbaum-dead.html
 **Hockey Canada sexual assault trial is over; decision coming July 24**\
 `Though the Crown fought to preserve the jury trial, a mistrial and a jury dismissal have led to a trial that will be decided by the judge.`\
 https://nytimes.com/athletic/6424305/2025/06/13/canada-sexual-assault-trial-end-decision-july-24/
-
-**Blackhawks trade Victor Söderström's rights to Bruins for prospect, pick**\
-`Boston received defense prospect Ryan Mast and a 2025 seventh-round pick in the deal, the team announced Friday.`\
-https://nytimes.com/athletic/6425030/2025/06/13/blackhawks-bruins-victor-soderstrom-trade/
-
-**Making the U.S. Open was a dream. Then he shot 35-over-par**\
-`"I knew it was going to be a hard test coming in, but I didn't think it was going to be this hard."`\
-https://nytimes.com/athletic/6425044/2025/06/13/us-open-2025-george-duangmanee-last-place/
 
