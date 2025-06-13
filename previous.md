@@ -2,7 +2,7 @@
 `The China Labor Bulletin, which tracks factory closures and worker protests in China, cited financial difficulties for its dissolution.`\
 https://nytimes.com/2025/06/12/business/hong-kong-labor-rights-nonprofit-closes.html
 
-**Israeli Attacks Killed Top Iranian Military Officials and Nuclear Scientists**\
+**Israel Killed Top Iranian Commanders and Nuclear Scientists, Iran Says**\
 `Israel has long targeted Iranian officials for assassination. But these attacks marked a significant shift in tactics, targeting multiple officials at once inside Iran.`\
 https://nytimes.com/2025/06/12/world/middleeast/irgc-iran-israel-strikes-nuclear.html
 
