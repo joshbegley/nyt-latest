@@ -1,3 +1,15 @@
+**In a New Book, E. Jean Carroll Chronicles Her Legal Battles With Trump**\
+`“Not My Type: One Woman vs. a President” includes reflections on being asked to testify about her sex life, as well as the thrill of winning two lawsuits.`\
+https://nytimes.com/2025/06/13/books/review/e-jean-carroll-not-my-type-trump-trial.html
+
+**Friday’s events will be quieter as protesters prepare for mass weekend demonstrations.**\
+`By Bernard Mokam`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/fridays-events-will-be-quieter-as-protesters-prepare-for-mass-weekend-demonstrations
+
+**Israel Had the Courage to Do What Needed to Be Done**\
+`All the other options have run their course.`\
+https://nytimes.com/2025/06/13/opinion/iran-israel-strikes.html
+
 **Marines will take over guarding a federal building in Los Angeles.**\
 `The general overseeing the military response to the Los Angeles protests said about 200 Marines had been deployed to the Wilshire Federal Building`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/marines-will-take-over-guarding-a-federal-building-in-los-angeles
