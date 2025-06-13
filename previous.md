@@ -1,3 +1,15 @@
+**Judge Blocks Trump Voting Order Requiring Proof of Citizenship**\
+`A judge ruled that President Trump likely exceeded his authority with elections changes that included punishing states that didn’t stop counting ballots after Election Day.`\
+https://nytimes.com/2025/06/13/us/politics/judge-blocks-trump-voting-order-requiring-proof-of-citizenship.html
+
+**Graham Gund, Playful Architect Who Mixed Past and Present, Dies at 84**\
+`A noted art collector as well as a designer, he brought a personal, history-minded approach to his work around Boston and on college campuses.`\
+https://nytimes.com/2025/06/13/arts/design/graham-gund-dead.html
+
+**How Pacers nurtured an aggressive Tyrese Haliburton to seize control of NBA Finals**\
+`Rick Carlisle changed the way Tyrese Haliburton got into his pick-and-roll actions in Game 3, bringing the Pacers offense back to life.`\
+https://nytimes.com/athletic/6422702/2025/06/13/nba-finals-pacers-tyrese-haliburton-aggressive/
+
 **Forecasters Warn It May Rain on the Military Parade**\
 `Thunderstorms and extreme heat could disrupt outdoor plans around the country this weekend.`\
 https://nytimes.com/2025/06/13/weather/parade-rain-protests-forecast.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/special-series/reza-aslan-myth-sacred-history.htm
 **How USMNT's World Cup run-up, global ranking compares to past hosts**\
 `USMNT is wobbling before its home World Cup. How do the run-ups of other past hosts compare, and what did it mean for their WC performance?`\
 https://nytimes.com/athletic/6423378/2025/06/13/usmnt-world-cup-hosts-elo-rating-comparison/
-
-**Inzaghi leaves Pisa after Serie A promotion**\
-`Inzaghi led the club back to the top-flight for the first time in 34 years with a second-placed finish in the 2024-25 season.`\
-https://nytimes.com/athletic/6424037/2025/06/13/filippo-inzaghi-manager-pisa/
-
-**Mailbag: When will the Penguins' rebuild will shift into a new gear?**\
-`The Penguins' rebuild will hit a more aggressive gear sooner rather than later.`\
-https://nytimes.com/athletic/6418585/2025/06/13/penguins-rebuild-mailbag-josh-yohe/
-
-**Former Chelsea, Germany midfielder Leupolz announces retirement**\
-`Leupolz won the Bundesliga twice with Bayern Munich and the Women's Super League on four occasions with Chelsea during a 15-year career.`\
-https://nytimes.com/athletic/6424019/2025/06/13/melanie-leupolz-chelsea-germany-retirement/
 

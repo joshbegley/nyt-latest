@@ -1,3 +1,7 @@
+**Mideast Tense as Long Anticipated Israel-Iran Conflict Sinks Hopes for Détente**\
+`Israel’s attacks on Iran renewed fears of war between the countries and immediately threatened the region’s economy.`\
+https://nytimes.com/2025/06/13/world/middleeast/mideast-tense-as-long-anticipated-israel-iran-conflict-sinks-hopes-for-detente.html
+
 **Judge Blocks Trump Voting Order Requiring Proof of Citizenship**\
 `A judge ruled that President Trump likely exceeded his authority with elections changes that included punishing states that didn’t stop counting ballots after Election Day.`\
 https://nytimes.com/2025/06/13/us/politics/judge-blocks-trump-voting-order-requiring-proof-of-citizenship.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423813/2025/06/13/leeds-recruitment-transfer-windo
 **When Myth Is the Message**\
 `We tend to like our truths clean and categorical, but sacred history defies such binaries.`\
 https://nytimes.com/2025/06/13/special-series/reza-aslan-myth-sacred-history.html
-
-**How USMNT's World Cup run-up, global ranking compares to past hosts**\
-`USMNT is wobbling before its home World Cup. How do the run-ups of other past hosts compare, and what did it mean for their WC performance?`\
-https://nytimes.com/athletic/6423378/2025/06/13/usmnt-world-cup-hosts-elo-rating-comparison/
 
