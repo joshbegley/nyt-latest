@@ -1,3 +1,7 @@
+**Israel Attacks Iran**\
+`The attack on Tehran, the capital of Iran, was the biggest since the Iran-Iraq war decades ago.`\
+https://nytimes.com/2025/06/13/world/middleeast/israel-attacks-iran.html
+
 **Israel Strikes Iran**\
 `Smoke billowed from buildings and a nuclear-enrichment site in Iran as Israel launched an assault on the country to stymie its nuclear program.`\
 https://nytimes.com/video/world/middleeast/100000010226135/israel-strikes-iran.html
