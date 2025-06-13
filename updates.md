@@ -1,3 +1,11 @@
+**Pope Leo Says He’ll Canonize First Millennial Saint in September**\
+`Carlo Acutis, an Italian teenager, was meant to be made a saint in April, but the ceremony was postponed because of Pope Francis’ death.`\
+https://nytimes.com/2025/06/13/world/europe/millennial-saint-carlo-acutis-roman-catholic.html
+
+**Wirtz is Liverpool's most thrilling signing since Torres - and a statement of intent**\
+`Anfield's executives do not often spend big on ready-made superstars but they were glad to make an exception for German star`\
+https://nytimes.com/athletic/6401912/2025/06/13/liverpool-florian-wirtz-fsg-record/
+
 **Can the Panthers shake it off after blowing a 3-0 lead in Game 4?**\
 `The Panthers got off to a strong start, but the Oilers turned the tables to steal a road overtime win just as Florida had in Game 2.`\
 https://nytimes.com/athletic/6423521/2025/06/13/panthers-stanley-cup-final-reinhart-draisaitl/

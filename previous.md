@@ -1,3 +1,11 @@
+**Pope Leo Says He’ll Canonize First Millennial Saint in September**\
+`Carlo Acutis, an Italian teenager, was meant to be made a saint in April, but the ceremony was postponed because of Pope Francis’ death.`\
+https://nytimes.com/2025/06/13/world/europe/millennial-saint-carlo-acutis-roman-catholic.html
+
+**Wirtz is Liverpool's most thrilling signing since Torres - and a statement of intent**\
+`Anfield's executives do not often spend big on ready-made superstars but they were glad to make an exception for German star`\
+https://nytimes.com/athletic/6401912/2025/06/13/liverpool-florian-wirtz-fsg-record/
+
 **Can the Panthers shake it off after blowing a 3-0 lead in Game 4?**\
 `The Panthers got off to a strong start, but the Oilers turned the tables to steal a road overtime win just as Florida had in Game 2.`\
 https://nytimes.com/athletic/6423521/2025/06/13/panthers-stanley-cup-final-reinhart-draisaitl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6391640/2025/06/13/zack-wheeler-phillies-mlb-ace/
 **Last year's Tigers caught lightning in a bottle; this year's team is staying lightning hot**\
 `October baseball last year was a near impossibility for Detroit, but October baseball this year is an expectation.`\
 https://nytimes.com/athletic/6423296/2025/06/13/tigers-aj-hinch-tarik-skubal/
-
-**The Yankees-Red Sox rivalry has cooled. Here’s how it could get heated once more**\
-`Yankees-Red Sox still gets fans talking and draws TV ratings, so the rivalry is far from dead. But it's missing a few key ingredients. `\
-https://nytimes.com/athletic/6422672/2025/06/13/yankees-red-sox-rivlary-cooled/
-
-**LeBrun: Oilers' Game 4 comeback could be the stuff of legend on their path to Stanley Cup**\
-`There are games in the history of the Stanley Cup Final that are not easily forgotten. If Edmonton wins, everyone will remember Game 4.`\
-https://nytimes.com/athletic/6423517/2025/06/13/oilers-nhl-stanley-cup-playoffs-game-4/
 
