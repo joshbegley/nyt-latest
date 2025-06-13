@@ -1,3 +1,19 @@
+**What Political Story Would We Tell About a Mamdani Victory?**\
+`Four years ago, when Eric Adams was elected, it seemed to be a signal for Democratic politics. Here’s what a democratic socialist’s win could mean.`\
+https://nytimes.com/live/2025/06/02/opinion/thepoint/zohran-mamdani-andrew-cuomo-left-new-york
+
+**Mexico’s President Says Her Flag Should Not Fly Over Violent Protests**\
+`President Claudia Sheinbaum of Mexico said that images of her country’s banner at violent protests in the United States were a “provocation.”`\
+https://nytimes.com/2025/06/13/world/americas/mexico-flag-sheinbaum.html
+
+**Monaco interested in move for Paul Pogba**\
+`The 32-year-old has been without a club since November and has not played competitively since September 2023.`\
+https://nytimes.com/athletic/6139708/2025/06/13/paul-pogba-monaco-transfer/
+
+**How concerning are T.J. Watt, Trey Hendrickson's contract holdouts?**\
+`Several stars, including a group of the league's top pass rushers, opted out of the mandatory minicamp as they seek contract extensions.`\
+https://nytimes.com/athletic/6424824/2025/06/13/t-j-watt-trey-hendrickson-contracts/
+
 **U.S. Urges Americans to Steer Clear of Nicaragua**\
 `Despite a flurry of positive reports in the travel press, U.S. officials say Americans should avoid Nicaragua because it’s an authoritarian regime.`\
 https://nytimes.com/2025/06/13/world/americas/us-nicaragua-travel-advisory.html
@@ -21,20 +37,4 @@ https://nytimes.com/issue/magazine/2025/06/13/the-6222025-issue
 **The 6.15.2025 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
-
-**A Launch Party for Hosh, and a Celebration of Native American Culture**\
-`The lifestyle brand brought artists, models and performers together at a downtown Manhattan event that included creating art on the spot.`\
-https://nytimes.com/2025/06/13/style/hosh-party-native-american-art.html
-
-**Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
-`The contribution by Michael R. Bloomberg is the largest to a super PAC in the New York City mayor’s race this year and follows his endorsement of Andrew M. Cuomo for mayor.`\
-https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
-
-**Jury in Karen Read Trial Begins Deliberations**\
-`The Boston-area woman was accused of killing her police officer boyfriend in 2022.`\
-https://nytimes.com/2025/06/13/us/karen-read-trial-jury-deliberations.html
-
-**How Harbaugh's text to Jason Sudeikis inspired 'Ted Lasso' gameday attire**\
-`"I pack a toothbrush and a great attitude," Harbaugh told Sudeikis, sounding like the fictional cheery soccer coach.`\
-https://nytimes.com/athletic/6424575/2025/06/13/jim-harbaugh-jason-sudeikis-ted-lasso-gameday-attire/
 

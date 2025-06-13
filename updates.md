@@ -1,3 +1,7 @@
+**How Does Israel Defend Against Iran’s Missiles?**\
+`Iran launched dozens of missiles on Friday and hit several sites in Israel, after waves of Israeli strikes against Iran’s nuclear facilities and military leaders.`\
+https://nytimes.com/2025/06/13/world/middleeast/israel-iran-missiles-defense.html
+
 **U.S. Urges Americans to Steer Clear of Nicaragua**\
 `Despite a flurry of positive reports in the travel press, U.S. officials say Americans should avoid Nicaragua because it’s an authoritarian regime.`\
 https://nytimes.com/2025/06/13/world/americas/us-nicaragua-travel-advisory.html
