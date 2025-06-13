@@ -1,40 +1,40 @@
-**Thunder struck with a midrange shooting slump at the wrong time**\
-`The Thunder's 2-point shooting has abandoned them against the Pacers. Will the law of averages swing OKC's way before it's too late?`\
-https://nytimes.com/athletic/6422847/2025/06/13/thunder-midrange-shooting-nba-finals-sga-jalen-williams/
+**Rebooting Reebok's hoops brand, investing in Angel Reese**\
+`Reebok is back in the basketball game again and showcasing bigger-than-life personalities that embrace on- and off-the-court culture.`\
+https://nytimes.com/athletic/6422474/2025/06/13/reebok-angel-reese-basketball-revival/
 
-**We thought the Pacers were underdogs. But this team is a juggernaut**\
-`The Pacers started the season 10-15, but now they're two wins away from their first NBA championship. They've earned our respect.`\
-https://nytimes.com/athletic/6422502/2025/06/13/pacers-underdogs-nba-finals/
+**Vikings minicamp: QB J.J. McCarthy continuing to work on touch, layering passes**\
+`Coach Kevin O’Connell complimented McCarthy's willingness to experiment, and Josh Metellus might be next in line for a contract extension.`\
+https://nytimes.com/athletic/6422878/2025/06/13/vikings-minicamp-jj-mccarthy-josh-metellus/
 
-**Eagles mailbag: Will Nakobe Dean get Wally Pipp'd, potential veteran additions and more**\
-`Plus, what the Eagles should do with their salary cap space.`\
-https://nytimes.com/athletic/6421262/2025/06/13/eagles-mailbag-nakobe-dean-veteran-additions/
+**Israel’s Stunning Attack on Iran, and India Plane Crash Survivor Speaks**\
+`Plus, Friday’s news quiz.`\
+https://nytimes.com/2025/06/13/podcasts/the-headlines/israel-iran-trump-national-guard.html
 
-**What we learned from Bills minicamp: James Cook 'ready to roll', Dalton Kincaid optimism, and more**\
-`Plus, what Tre'Davious White's struggles could mean for Maxwell Hairston.`\
-https://nytimes.com/athletic/6422619/2025/06/13/bills-minicamp-james-cook-dalton-kincaid/
+**Fenway Park in Texas? Wiffle ball field an 'incredible' replica of iconic Red Sox stadium**\
+`Ahead of the Red Sox-Yankees series at Fenway Park, one field in small-town Texas brings everything to those who can't make it to Boston.`\
+https://nytimes.com/athletic/6419664/2025/06/13/red-sox-mlb-replica-wiffle-ball-yankees/
 
-**Hurricane Season Started Two Weeks Ago. Where Are the Storms?**\
-`The Atlantic hurricane season got off to a quiet start. That’s not unusual, experts said.`\
-https://nytimes.com/2025/06/13/weather/hurricane-season-started-two-weeks-ago-where-are-the-storms.html
+**Zack Wheeler's way: The ace who knows what he likes — and has no time for everything else**\
+`Wheeler has improved with age, defying assumptions about what an ace needs to stay elite in modern baseball. He has done it his way. `\
+https://nytimes.com/athletic/6391640/2025/06/13/zack-wheeler-phillies-mlb-ace/
 
-**The New York Times International Edition in Print for Saturday, June 14, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/06/13/todays-new-york-times-international-edition
+**Last year's Tigers caught lightning in a bottle; this year's team is staying lightning hot**\
+`October baseball last year was a near impossibility for Detroit, but October baseball this year is an expectation.`\
+https://nytimes.com/athletic/6423296/2025/06/13/tigers-aj-hinch-tarik-skubal/
 
-**Liverpool agree €136.3m transfer of Leverkusen's Wirtz**\
-`The 22-year-old registered 16 goals and 15 assists across 45 games in 2024-25, as Leverkusen finished second in the Bundesliga.`\
-https://nytimes.com/athletic/6410031/2025/06/13/liverpool-transfer-wirtz-transfer-latest/
+**The Yankees-Red Sox rivalry has cooled. Here’s how it could get heated once more**\
+`Yankees-Red Sox still gets fans talking and draws TV ratings, so the rivalry is far from dead. But it's missing a few key ingredients. `\
+https://nytimes.com/athletic/6422672/2025/06/13/yankees-red-sox-rivlary-cooled/
 
-**Russian Forces Expand Fighting to a New Region of Eastern Ukraine**\
-`It’s the first time in three years of war that Russian troops have entered the Dnipropetrovsk region, a sign of battlefield momentum.`\
-https://nytimes.com/2025/06/13/world/europe/russia-ukraine-dnipropetrovsk.html
+**LeBrun: Oilers' Game 4 comeback could be the stuff of legend on their path to Stanley Cup**\
+`There are games in the history of the Stanley Cup Final that are not easily forgotten. If Edmonton wins, everyone will remember Game 4.`\
+https://nytimes.com/athletic/6423517/2025/06/13/oilers-nhl-stanley-cup-playoffs-game-4/
 
-**Watch Dakota Johnson and Pedro Pascal Spark in ‘Materialists’**\
-`The writer and director Celine Song narrates a sequence from her film, which also features Chris Evans.`\
-https://nytimes.com/2025/06/13/movies/dakota-johnson-pedro-pascal-materialists-clip.html
+**NBA Finals trends I'm watching: Tyrese Haliburton's speed, sneaky rebounding and more**\
+`An All-Star’s energy has returned. Rebounders are causing mismatches. And a notorious pest is winning with skill.`\
+https://nytimes.com/athletic/6422957/2025/06/13/tyrese-haliburton-pacers-thunder-2025-nba-finals/
 
-**Which Law Enforcement Agencies Are at the Los Angeles Protests?**\
-`A Times analysis identified more than a dozen agencies that were on the ground in the past week. See which are represented, the gear they carry and how they interact.`\
-https://nytimes.com/interactive/2025/06/13/us/la-protests-immigration-law-enforcement.html
+**Where would the Cubs be right now without Jameson Taillon?**\
+`"Words like 'consistent' and 'reliable' sometimes don't feel like they do Jameson enough justice," Cubs manager Craig Counsell said.`\
+https://nytimes.com/athletic/6423479/2025/06/13/cubs-pirates-jameson-taillon/
 
