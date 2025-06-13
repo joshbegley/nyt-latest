@@ -1,3 +1,7 @@
+**Smithsonian Museum Director Trump Said He Fired Decides to Step Down**\
+`The Smithsonian has said it retains power over personnel decisions, but Kim Sajet, the longtime director of the National Portrait Gallery, has decided to depart.`\
+https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html
+
 **The U.S. is positioning warships to help protect Israel and American forces from Iranian strikes.**\
 `By Helene Cooper`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/us-forces-middle-east
