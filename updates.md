@@ -1,3 +1,11 @@
+**Alaska Weather Office Issues First Heat Warning**\
+`Forecasters said it might hit 85 degrees in Fairbanks this weekend. The Weather Service has changed how it issues warnings there.`\
+https://nytimes.com/2025/06/13/weather/alaska-heat-warning-fairbanks-forecast.html
+
+**Once-Powerful Illinois Democrat Sentenced to 7.5 Years in Prison**\
+`Michael J. Madigan, who for decades was one of the most influential Democrats in Illinois politics, was convicted of conspiracy, bribery and wire fraud.`\
+https://nytimes.com/2025/06/13/us/mike-madigan-sentence-illinois.html
+
 **National Parks Are Told to Delete Content That ‘Disparages Americans’**\
 `Internal documents reviewed by The New York Times say that “negative” information at parks and other national site must be removed or covered by Sept. 17.`\
 https://nytimes.com/2025/06/13/climate/national-parks-trump-americans-censorship.html
