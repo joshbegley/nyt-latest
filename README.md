@@ -1,3 +1,7 @@
+**Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
+`By Aaron Boxerman and Isabel Kershner`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary
+
 **5 Takeaways From the Democrats’ Final N.Y.C. Mayoral Debate**\
 `The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani, traded barbs over their records, immigration and a host of other issues.`\
 https://nytimes.com/2025/06/12/nyregion/debate-takeaways-mayor-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/arts/television/and-just-like-that-recap-season-3
 **Law Enforcement Officers Respond to Reports of Unrest at Migrant Facility**\
 `Delaney Hall in Newark was also the scene of a recent clash in which a member of Congress was charged with assault.`\
 https://nytimes.com/2025/06/12/nyregion/newark-migrant-detention-center-disturbance.html
-
-**Read the Judge’s Ruling**\
-`A federal judge temporarily blocked the federal government’s mobilization of the California National Guard to protect immigration agents from protesters in Los Angeles.`\
-https://nytimes.com/interactive/2025/06/13/us/la-protests-trump-marines-ice.html
 
