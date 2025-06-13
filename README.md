@@ -1,3 +1,7 @@
+**Texans' Jimmie Ward charged with felony assault, accused of strangling fiancé**\
+`Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
+https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
+
 **Trump’s Use of National Guard in Limbo After Court Rulings**\
 `Judge Charles Breyer ordered the administration to return control of the National Guard to the California governor, but an appeals court stayed the extraordinary decision Thursday night.`\
 https://nytimes.com/2025/06/13/us/trumps-use-of-national-guard-in-limbo-after-court-rulings.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/06/13/nyregion/mamdani-lander-endorsement-nyc-mayor.htm
 **The Musical Mysteries Brian Wilson Left Behind**\
 `The Beach Boys mastermind has been the subject of pop scholarship and major boxed sets, but some corners of his oeuvre remain unreleased.`\
 https://nytimes.com/2025/06/13/arts/music/brian-wilson-beach-boys-unreleased-albums.html
-
-**Former L.A.P.D. Chief: Deploying Troops Was a Profound Mistake**\
-`Dispatching troops risks escalation, tragic error and lasting damage to public confidence.`\
-https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html
 
