@@ -1,3 +1,11 @@
+**Radiation Risk From Israel’s Strikes on Iran Nuclear Sites Is Low, for Now**\
+`The radiological threat from the targets of the earliest attacks are relatively minor.`\
+https://nytimes.com/2025/06/13/science/radiation-iran-nuclear-sites.html
+
+**Legal decision not the only judgment facing 'Hockey Canada 5'**\
+`The stain from decisions made in that London, Ont., hotel room will echo for years after the legality of that night's activity is settled.`\
+https://nytimes.com/athletic/6424392/2025/06/13/hockey-canada-sexual-assault-trial-judgment/
+
 **Iran Launches Retaliatory Strikes Against Israel**\
 `Iran fired ballistic missiles that struck at least seven sites around Tel Aviv on Friday night, injuring dozens of Israelis. The move was a retaliation to the Israeli attacks on Iranian nuclear sites and military leaders.`\
 https://nytimes.com/video/world/middleeast/100000010228151/iran-israel-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6425030/2025/06/13/blackhawks-bruins-victor-soderst
 **Making the U.S. Open was a dream. Then he shot 35-over-par**\
 `"I knew it was going to be a hard test coming in, but I didn't think it was going to be this hard."`\
 https://nytimes.com/athletic/6425044/2025/06/13/us-open-2025-george-duangmanee-last-place/
-
-**Republicans Are Divided Over Iran. Will Trump Pick a Side?**\
-`President Trump is trapped between the “America First” isolationists and others in his party who are cheering on Israel’s strikes against Iran.`\
-https://nytimes.com/2025/06/13/us/politics/trump-republicans-iran-israel.html
-
-**Trump’s Inaccurate Claims About the L.A. Immigration Protests**\
-`The president claimed, without giving evidence, that the protesters were “paid” agitators, that the Los Angeles police asked for the National Guard, and that swaths of the city were under gang control.`\
-https://nytimes.com/2025/06/13/us/politics/trump-la-immigration-protests-fact-check.html
 
