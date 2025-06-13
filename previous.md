@@ -8,7 +8,7 @@ https://nytimes.com/2025/06/12/world/middleeast/trump-rubio-israel-iran-strikes.
 
 **Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
 `By Aaron Boxerman and Isabel Kershner`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary
+https://nytimes.com/2025/06/12/world/middleeast/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary.html
 
 **5 Takeaways From the Democrats’ Final N.Y.C. Mayoral Debate**\
 `The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani, traded barbs over their records, immigration and a host of other issues.`\
