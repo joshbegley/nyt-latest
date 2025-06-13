@@ -1,6 +1,14 @@
+**Former L.A.P.D. Chief: Deploying Troops Was a Profound Mistake**\
+`Dispatching troops risks escalation, tragic error and lasting damage to public confidence.`\
+https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html
+
+**The Bounce: What have the Thunder lacked en route to 2-1 hole against Pacers? Cohesive play**\
+`The Pacers have a 2-1 series lead primarily because the Thunder have gotten away from team basketball. Can that change in Game 4?`\
+https://nytimes.com/athletic/6423915/2025/06/13/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-nba-draft-the-bounce/
+
 **In its latest attack on Iran, Israel’s allies voice less support and more concern.**\
 `By Lara Jakes`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern
+https://nytimes.com/2025/06/13/world/middleeast/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern.html
 
 **The Subtle Art of the Dad Text**\
 `When it comes to corny jokes, random photos and sincere pep talks, father knows best.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/13/world/middleeast/mideast-tense-as-long-anticipate
 **Judge Blocks Trump Voting Order Requiring Proof of Citizenship**\
 `A judge ruled that President Trump likely exceeded his authority with elections changes that included punishing states that didn’t stop counting ballots after Election Day.`\
 https://nytimes.com/2025/06/13/us/politics/judge-blocks-trump-voting-order-requiring-proof-of-citizenship.html
-
-**Graham Gund, Playful Architect Who Mixed Past and Present, Dies at 84**\
-`A noted art collector as well as a designer, he brought a personal, history-minded approach to his work around Boston and on college campuses.`\
-https://nytimes.com/2025/06/13/arts/design/graham-gund-dead.html
-
-**How Pacers nurtured an aggressive Tyrese Haliburton to seize control of NBA Finals**\
-`Rick Carlisle changed the way Tyrese Haliburton got into his pick-and-roll actions in Game 3, bringing the Pacers offense back to life.`\
-https://nytimes.com/athletic/6422702/2025/06/13/nba-finals-pacers-tyrese-haliburton-aggressive/
 
