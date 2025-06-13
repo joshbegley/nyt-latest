@@ -1,3 +1,7 @@
+**Mailbag: When will the Penguins' rebuild will shift into a new gear?**\
+`The Penguins' rebuild will hit a more aggressive gear sooner rather than later.`\
+https://nytimes.com/athletic/6418585/2025/06/13/penguins-rebuild-mailbag-josh-yohe/
+
 **Former Chelsea, Germany midfielder Leupolz announces retirement**\
 `Leupolz won the Bundesliga twice with Bayern Munich and the Women's Super League on four occasions with Chelsea during a 15-year career.`\
 https://nytimes.com/athletic/6424019/2025/06/13/melanie-leupolz-chelsea-germany-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6420802/2025/06/13/san-jose-sharks-offseason-roster
 **Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 20 at 9 a.m. Eastern. This week’s winners will be announced by July 1.`\
 https://nytimes.com/2025/06/13/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
-
-**Another Chiefs O-line overhaul? Kansas City vows to be better after Super Bowl trampling**\
-`The Chiefs could have three new O-line starters, including first-round pick Josh Simmons as Patrick Mahomes' new blindside protector. `\
-https://nytimes.com/athletic/6423931/2025/06/13/chiefs-offensive-line-super-bowl/
 

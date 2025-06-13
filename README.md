@@ -1,3 +1,7 @@
+**Inzaghi leaves Pisa after Serie A promotion**\
+`Inzaghi led the club back to the top-flight for the first time in 34 years with a second-placed finish in the 2024-25 season.`\
+https://nytimes.com/athletic/6424037/2025/06/13/filippo-inzaghi-manager-pisa/
+
 **Mailbag: When will the Penguins' rebuild will shift into a new gear?**\
 `The Penguins' rebuild will hit a more aggressive gear sooner rather than later.`\
 https://nytimes.com/athletic/6418585/2025/06/13/penguins-rebuild-mailbag-josh-yohe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423192/2025/06/13/lions-barry-sanders-heart-attack
 **Who stays, who goes from the Sharks' roster this offseason?**\
 `As the Sharks attempt to take steps forward, how might the roster change this summer?`\
 https://nytimes.com/athletic/6420802/2025/06/13/san-jose-sharks-offseason-roster/
-
-**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 20 at 9 a.m. Eastern. This week’s winners will be announced by July 1.`\
-https://nytimes.com/2025/06/13/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html
 
