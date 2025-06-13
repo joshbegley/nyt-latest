@@ -1,3 +1,11 @@
+**Harris Yulin, Actor Who Perpetually Played the Bad Guy, Dies at 87**\
+`As an award-winning actor and director, he appeared in scores of stage plays, movies and TV shows over six decades, most often as unsavory characters.`\
+https://nytimes.com/2025/06/13/arts/television/harris-yulin-dead.html
+
+**Mpox Surges in Sierra Leone as Health Officials Appeal for U.S. Support**\
+`West African nations are struggling to track and treat infections, and experts warn the outbreak is rapidly spreading, while the United States is cutting global vaccination efforts.`\
+https://nytimes.com/2025/06/13/world/africa/mpox-surges-sierra-leone.html
+
 **What Political Story Would We Tell About a Mamdani Victory?**\
 `Four years ago, when Eric Adams was elected, it seemed to be a signal for Democratic politics. Here’s what a democratic socialist’s win could mean.`\
 https://nytimes.com/live/2025/06/02/opinion/thepoint/zohran-mamdani-andrew-cuomo-left-new-york
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/13/us/politics/trump-public-broadcasting-senate.html
 **How Is Extreme Heat Affecting Air Travel?**\
 `Hot weather influences aircraft performance. We asked experts what it means for safety.`\
 https://nytimes.com/2025/06/13/climate/air-travel-extreme-heat.html
-
-**The 6.22.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/06/13/the-6222025-issue
-
-**The 6.15.2025 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
 
