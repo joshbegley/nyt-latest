@@ -1,3 +1,11 @@
+**Prison Reform Left Women Behind. Then Prosecutors Stepped In.**\
+`California passed the nation’s first prosecutor-initiated resentencing law in 2018. Few women benefited from these laws, until now.`\
+https://nytimes.com/2025/06/13/headway/prison-reform-women-california-prosecutors.html
+
+**How to watch the Yankees at Red Sox series, their second straight weekend matchup**\
+`The New York Yankees hosted the Boston Red Sox last weekend, and now the archrivals get to run it back at Fenway Park.`\
+https://nytimes.com/athletic/6422574/2025/06/13/yankees-red-sox-max-fried-mlb-how-to-watch/
+
 **Aces star A'ja Wilson will miss Friday's game, enters concussion protocol**\
 `Las Vegas is currently in 4-4, sitting 6th in the WNBA standings.`\
 https://nytimes.com/athletic/6424911/2025/06/13/aces-aja-wilson-out-enters-concussion-protocol/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424824/2025/06/13/t-j-watt-trey-hendrickson-contra
 **U.S. Urges Americans to Steer Clear of Nicaragua**\
 `Despite a flurry of positive reports in the travel press, U.S. officials say Americans should avoid Nicaragua because it’s an authoritarian regime.`\
 https://nytimes.com/2025/06/13/world/americas/us-nicaragua-travel-advisory.html
-
-**How Does Israel Defend Against Iran’s Missiles?**\
-`Iran launched dozens of missiles on Friday and hit several sites in Israel, after waves of Israeli strikes against Iran’s nuclear facilities and military leaders.`\
-https://nytimes.com/2025/06/13/world/middleeast/israel-iran-missiles-defense.html
-
-**Trump’s $1.1 Billion Public Broadcasting Clawback Faces Pushback in the Senate**\
-`Some Republican senators are voicing concern over the House-passed bill that would rescind $9 billion that Congress already approved, including money for NPR and PBS stations in their states.`\
-https://nytimes.com/2025/06/13/us/politics/trump-public-broadcasting-senate.html
 
