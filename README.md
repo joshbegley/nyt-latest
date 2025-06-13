@@ -1,3 +1,7 @@
+**Iran Launches Retaliatory Strikes Against Israel**\
+`Iran fired ballistic missiles that struck at least seven sites around Tel Aviv on Friday night, injuring dozens of Israelis. The move was a retaliation to the Israeli attacks on Iranian nuclear sites and military leaders.`\
+https://nytimes.com/video/world/middleeast/100000010228151/iran-israel-strikes.html
+
 **Marsch lauds Canada's Gold Cup commitment as USMNT wrestles with same topic**\
 `Jesse Marsch claims his comments weren't a dig at the USMNT and star Christian Pulisic, but the aren't many other ways to read into them.`\
 https://nytimes.com/athletic/6424945/2025/06/13/jesse-marsch-canada-usmnt-commitment-christian-pulisic-gold-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/us/politics/trump-republicans-iran-israel.html
 **Trump’s Inaccurate Claims About the L.A. Immigration Protests**\
 `The president claimed, without giving evidence, that the protesters were “paid” agitators, that the Los Angeles police asked for the National Guard, and that swaths of the city were under gang control.`\
 https://nytimes.com/2025/06/13/us/politics/trump-la-immigration-protests-fact-check.html
-
-**Beckham awarded knighthood in King Charles III's birthday honours list**\
-`The former Manchester United and Real Madrid midfielder was awarded an OBE in 2003 and has long been tipped to receive a knighthood.`\
-https://nytimes.com/athletic/6407726/2025/06/13/david-beckham-knighthood-sir-honours/
 
