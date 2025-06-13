@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`In a major attack, Israel has struck Iran’s nuclear program.`\
+https://nytimes.com/2025/06/13/briefing/israel-iran-india-plane.html
+
+**These Are the Top Iranian Generals and Scientists Killed by Israel**\
+`Maj. Gen. Mohammad Bagheri, the chief of staff of Iran’s armed forces, was the most senior leader among the dead, according to Iranian state media.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-military-generals-killed-israel.html
+
 **The New York Times in Print for Friday, June 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/13/todays-new-york-times

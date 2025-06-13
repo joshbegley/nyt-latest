@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`In a major attack, Israel has struck Iran’s nuclear program.`\
+https://nytimes.com/2025/06/13/briefing/israel-iran-india-plane.html
+
+**These Are the Top Iranian Generals and Scientists Killed by Israel**\
+`Maj. Gen. Mohammad Bagheri, the chief of staff of Iran’s armed forces, was the most senior leader among the dead, according to Iranian state media.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-military-generals-killed-israel.html
+
 **The New York Times in Print for Friday, June 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/13/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6415406/2025/06/13/offside-rule-mccracken-ifab-newc
 **Who are Madrid's academy players going to the Club World Cup and could they play?**\
 `Xabi Alonso has named 10 academy players in his squad for the U.S., with some attracting interest from elsewhere`\
 https://nytimes.com/athletic/6421912/2025/06/13/real-madrid-academy-club-world-cup/
-
-**Why do Man Utd keep signing such coveted players? Easy. They're massive**\
-`United's ability to attract sought-after talents is not unduly affected by their on-field fortunes - and with good reason`\
-https://nytimes.com/athletic/6421575/2025/06/13/manchester-united-transfers-massive/
-
-**The problem with the Club World Cup - these teams are not the best of the best**\
-`Only eight of the tournament's 32 teams are current domestic title holders, and three of the six continental champions are also missing`\
-https://nytimes.com/athletic/6402590/2025/06/13/the-problem-with-the-club-world-cup-these-teams-are-not-the-best-of-the-best/
 
