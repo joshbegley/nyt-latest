@@ -1,3 +1,15 @@
+**Trump Withdraws From Agreement With Tribes to Protect Salmon**\
+`The Biden administration had brokered a 10-year truce in an extended legal battle with Native American tribes in the Pacific Northwest over dams that had prevented fish from spawning.`\
+https://nytimes.com/2025/06/12/us/politics/trump-withdraws-from-agreement-with-tribes-to-protect-salmon.html
+
+**What to know about J.J. Spaun and the rest of the Round 1 U.S. Open leaders**\
+`This is the first time Spaun has been in the top 10 following any major championship round, let alone held the lead.`\
+https://nytimes.com/athletic/6423013/2025/06/12/us-open-2025-round-1-what-to-know-spaun/
+
+**Meta Invests $14.3 Billion in Scale AI to Kick-Start Superintelligence Lab**\
+`Meta is making its first major minority investment in an outside company as it tries to catch up to a growing field of artificial intelligence rivals.`\
+https://nytimes.com/2025/06/12/technology/meta-scale-ai.html
+
 **After striking Iran, Israel braces for retaliation.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/after-striking-iran-israel-braces-for-retaliation
