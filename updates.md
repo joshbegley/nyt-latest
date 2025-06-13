@@ -1,3 +1,11 @@
+**Meta Invests Nearly $15 Billion in Scale AI to Kick-Start Superintelligence Lab**\
+`Meta is making its first major minority investment in an outside company as it tries to catch up to a growing field of artificial intelligence rivals.`\
+https://nytimes.com/2025/06/12/technology/meta-scale-ai.html
+
+**Slow and Steady, This Poem Will Win Your Heart**\
+`A.O. Scott ponders the specific gravity and unlikely grace of Kay Ryan’s “Turtle.” And we have a game to help you memorize it.`\
+https://nytimes.com/interactive/2025/06/12/books/kay-ryan-turtle-poem.html
+
 **Protesters in Chicago return to the streets.**\
 `By Julie Bosman and Robert Chiarito`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/protesters-in-chicago-return-to-the-streets
