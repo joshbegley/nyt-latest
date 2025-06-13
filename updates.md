@@ -1,3 +1,11 @@
+**Casting Is the Brightest Light of Two Molière Shows**\
+`Red Bull Theater’s smart “The Imaginary Invalid” and Taylor Mac’s dismaying “Prosperous Fools” attempt to engage with the French writer’s comedy.`\
+https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html
+
+**Alex Padilla’s Unlikely Moment in the Spotlight**\
+`The senator is known on Capitol Hill for being kind and nerdy. His forcible removal from a news conference resonated as a call to action among Democrats.`\
+https://nytimes.com/2025/06/13/us/senator-alex-padilla-removed.html
+
 **Submit you Cowboys mailbag questions to Saad Yousuf**\
 `<p>With mandatory minicamp in the books, the Cowboys’ offseason is complete. From the hiring of Brian Schottenheimer to the trade of George Pickens — and everything in between — a lot happened. Drop your pre-Oxnard questions to Cowboys beat writer Saad Yousuf for an offseason mailbag.</p>
 `\
