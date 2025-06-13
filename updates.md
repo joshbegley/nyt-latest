@@ -1,3 +1,7 @@
+**Israel’s Strike on Iran Comes at a Moment of Weakness for Iran’s Proxies**\
+`Iran’s “Axis of Resistance,” the network of militias it has fostered in the Middle East to help it fight Israel, has become seriously degraded, experts say.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-proxies-axis-hezbollah-israel.html
+
 **Man City reduce PL ticket prices for 2025-26 after fan protests**\
 `In April, many of the club’s supporters boycotted the opening of their Premier League fixture against Leicester City to protest prices.`\
 https://nytimes.com/athletic/6423752/2025/06/13/manchester-city-tickets-premier-league/

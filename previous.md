@@ -1,3 +1,7 @@
+**Israel’s Strike on Iran Comes at a Moment of Weakness for Iran’s Proxies**\
+`Iran’s “Axis of Resistance,” the network of militias it has fostered in the Middle East to help it fight Israel, has become seriously degraded, experts say.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-proxies-axis-hezbollah-israel.html
+
 **Man City reduce PL ticket prices for 2025-26 after fan protests**\
 `In April, many of the club’s supporters boycotted the opening of their Premier League fixture against Leicester City to protest prices.`\
 https://nytimes.com/athletic/6423752/2025/06/13/manchester-city-tickets-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6417494/2025/06/13/kobe-bryant-pacers-lakers-2000-f
 **Possible free agent, trade and internal options for the Hurricanes to pair with Jaccob Slavin**\
 `The Hurricanes have the cap space and assets necessary to do just about anything they want this summer.`\
 https://nytimes.com/athletic/6422680/2025/06/13/hurricanes-defense-trade-free-agent/
-
-**What happens when the pope wears your hat?**\
-`Pope Leo XIV donned a White Sox hat at the Vatican this week. For the company that makes it, it was a dream come true.`\
-https://nytimes.com/athletic/6423351/2025/06/13/pope-leo-xiv-mlb-white-sox-hat/
 
