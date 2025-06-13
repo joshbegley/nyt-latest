@@ -1,3 +1,15 @@
+**Trump’s Decision to Send Troops to California Is His Do-Over of 2020**\
+`President Trump was talked out of deploying the military to crush the George Floyd protests in 2020. He always regretted it.`\
+https://nytimes.com/2025/06/13/us/politics/trump-protests-immigration-floyd.html
+
+**Iranians Describe Israel’s Attacks in Voice Memos and Calls**\
+`Iranians recalled scenes of confusion and fear, explosions in the night and how they, their friends and neighbors experienced Israel’s widespread attacks.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-israel-voices.html
+
+**U.S. Steel and Nippon Steel Say Their ‘Partnership’ Is Sealed**\
+`The companies said they had entered into an agreement with the U.S. government to alleviate any national security concerns.`\
+https://nytimes.com/2025/06/13/business/us-steel-nippon-steel-partnership-deal.html
+
 **A Democrat in Texas says he was warned against displaying ‘No Kings’ signs at a local parade.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/a-democrat-in-texas-says-he-was-warned-against-displaying-no-kings-signs-at-a-local-parade
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6425101/2025/06/13/saints-sign-cam-akers/
 **Park Area Closed to Recover Body of Teen Who Fell Over 50-Foot Waterfall**\
 `Officials said that the body was spotted in Olympic National Park in Washington State on Monday, but that it was pinned behind a surge of water and was hard to reach.`\
 https://nytimes.com/2025/06/13/us/waterfall-death-olympic-national-park.html
-
-**Marthe Cohn, a Wartime Jewish Nurse Who Spied for the French, Dies at 105**\
-`Fluent in German and passing as an Aryan, she once crossed into Germany, uncovered Nazi military secrets and nursed a wounded, and deceived, SS officer.`\
-https://nytimes.com/2025/06/13/us/marthe-cohn-dead.html
-
-**In a Anxious Moment for the Nation, Historians Say This One Is Different**\
-`The country has become a cauldron of anger and unease as it enters a weekend promised to be marked by protests and a military parade.`\
-https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
-
-**Kennedy’s New Vaccine Advisers Helped Lawyers Raise Doubts About Their Safety**\
-`Three of the health secretary’s picks to replace fired members of an influential panel that sets U.S. vaccine policies have filed statements in court flagging concerns about vaccines.`\
-https://nytimes.com/2025/06/13/us/politics/rfk-jr-vaccine-advisers.html
 
