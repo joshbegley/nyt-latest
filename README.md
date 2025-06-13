@@ -1,3 +1,11 @@
+**Inside the Jury Room at the Weinstein Trial, Rancor and Recrimination**\
+`As the panelists deliberated over whether the former Hollywood mogul should be convicted of sex crimes for a second time in Manhattan, accusations began to fly.`\
+https://nytimes.com/2025/06/12/nyregion/weinstein-jurors-mistrial.html
+
+**U.S. Says It Was Not Involved in Israeli Strikes on Iran**\
+`President Trump has said he would like to negotiate a deal with Tehran over its nuclear program but had also acknowledged that Israel might attack Iran first.`\
+https://nytimes.com/2025/06/12/world/middleeast/trump-rubio-israel-iran-strikes.html
+
 **Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
 `By Aaron Boxerman and Isabel Kershner`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/world/middleeast/israel-iran-strikes.html
 **Light Shower**\
 `Evan Mulvihill makes his New York Times Crossword debut with some great stacked entries.`\
 https://nytimes.com/2025/06/12/crosswords/daily-puzzle-2025-06-13.html
-
-**‘And Just Like That …’ Season 3, Episode 3 Recap: An Expensive Date**\
-`Carrie flies to Virginia for a lunch with her “boyfriend,” Aidan. Seema tags along. It is unclear why either is really going.`\
-https://nytimes.com/2025/06/12/arts/television/and-just-like-that-recap-season-3-episode-3.html
-
-**Law Enforcement Officers Respond to Reports of Unrest at Migrant Facility**\
-`Detainees at Delaney Hall in Newark had complained about meager amounts of food and water over the past day.`\
-https://nytimes.com/2025/06/12/nyregion/newark-migrant-detention-center-disturbance.html
 
