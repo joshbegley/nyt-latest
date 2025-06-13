@@ -1,3 +1,15 @@
+**Forecasters Warn It May Rain on the Military Parade**\
+`Thunderstorms and extreme heat could disrupt outdoor plans around the country this weekend.`\
+https://nytimes.com/2025/06/13/weather/parade-rain-protests-forecast.html
+
+**How Bucks can tap into Giannis Antetokounmpo's playmaking: Bucks mailbag, Part III**\
+`Antetokounmpo has talked about playing for a long time. Could playing point forward help him do that? Plus, Jon Horst's extension.`\
+https://nytimes.com/athletic/6417875/2025/06/13/giannis-antetokounmpo-bucks-mailbag/
+
+**Lowetide: What we've learned about Oilers in 2025 Stanley Cup Final so far**\
+`Through the first four games of the Stanley Cup Final, Oilers fans can draw some strong conclusions about the team.`\
+https://nytimes.com/athletic/6422750/2025/06/13/edmonton-oilers-2025-stanley-cup-final-lessons/
+
 **Wayne Lewis, Singer With the R&B Mainstay Atlantic Starr, Dies at 68**\
 `The group reached No. 1 on the Billboard Hot 100 in 1987 with the ballad “Always” and went on to leave a lasting impression on modern-day artists.`\
 https://nytimes.com/2025/06/13/arts/music/wayne-lewis-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6418585/2025/06/13/penguins-rebuild-mailbag-josh-yo
 **Former Chelsea, Germany midfielder Leupolz announces retirement**\
 `Leupolz won the Bundesliga twice with Bayern Munich and the Women's Super League on four occasions with Chelsea during a 15-year career.`\
 https://nytimes.com/athletic/6424019/2025/06/13/melanie-leupolz-chelsea-germany-retirement/
-
-**The Windup: Promising debut hits speed bump**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6423551/2025/06/13/jacob-misiorowski-debut-injury-the-windup/
-
-**Willkie Farr Partners, Unhappy With the Firm’s Deal With Trump, Depart for Cooley**\
-`The departures are the latest fallout for firms that cut deals with President Trump to avoid executive orders.`\
-https://nytimes.com/2025/06/13/business/willkie-farr-cooley-trump-deal.html
-
-**Mastantuono completes Real Madrid transfer from River Plate**\
-`Mastantuono's contract at River contained a release clause of €45million (£38.5m).`\
-https://nytimes.com/athletic/6405791/2025/06/13/franco-mastantuono-real-madrid-transfer/
 

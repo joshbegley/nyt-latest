@@ -1,3 +1,11 @@
+**Wayne Lewis, Singer With the R&B Mainstay Atlantic Starr, Dies at 68**\
+`The group reached No. 1 on the Billboard Hot 100 in 1987 with the ballad “Always” and went on to leave a lasting impression on modern-day artists.`\
+https://nytimes.com/2025/06/13/arts/music/wayne-lewis-dead.html
+
+**Willkie Farr Partners, Unhappy With the Firm’s Deal With Trump, Depart for Cooley**\
+`The departures are the latest fallout for firms that cut deals with President Trump to avoid executive orders.`\
+https://nytimes.com/2025/06/13/business/willkie-farr-cooley-trump-deal.html
+
 **How Leeds' recruitment process will work as they look to survive back in the Premier League**\
 `The Championship title winners face a big summer as they look to build a squad that can keep them in the top flight next season and beyond`\
 https://nytimes.com/athletic/6423813/2025/06/13/leeds-recruitment-transfer-window-2025-summer-latest/
