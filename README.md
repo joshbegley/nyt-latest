@@ -1,3 +1,7 @@
+**Marthe Cohn, a Wartime Jewish Nurse Who Spied for the French, Dies at 105**\
+`Fluent in German and passing as an Aryan, she once crossed into Germany, uncovered Nazi military secrets and nursed a wounded, and deceived, SS officer.`\
+https://nytimes.com/2025/06/13/us/marthe-cohn-dead.html
+
 **In a Anxious Moment for the Nation, Historians Say This One Is Different**\
 `The country has become a cauldron of anger and unease as it enters a weekend promised to be marked by protests and a military parade.`\
 https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/nyregion/ice-rikers-island-judge-mayor-adams.html
 **Dara Birnbaum, 78, Dies; Video Was Her Medium and Her Message**\
 `As early as the 1970s, she demonstrated that mass media was fair game as artistic material, and that its power could be turned against itself.`\
 https://nytimes.com/2025/06/13/arts/dara-birnbaum-dead.html
-
-**Hockey Canada sexual assault trial is over; decision coming July 24**\
-`Though the Crown fought to preserve the jury trial, a mistrial and a jury dismissal have led to a trial that will be decided by the judge.`\
-https://nytimes.com/athletic/6424305/2025/06/13/canada-sexual-assault-trial-end-decision-july-24/
 
