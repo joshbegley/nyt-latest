@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Dalila**\
+`See the likely path and wind arrival times for Dalila.`\
+https://nytimes.com/interactive/2025/06/13/weather/dalila-path-tracker.html
+
+**7 Voters on Trump, the Protests and Taking a Stand in L.A.**\
+`The tremors of political unrest that shook Los Angeles and several U.S. cities this week have stirred a range of emotions in people — pride, disgust, fear, hope. In interviews with voters, one sentiment that transcended political affiliation seemed to be uncertainty.`\
+https://nytimes.com/2025/06/13/us/politics/voters-trump-la-protests.html
+
+**The presence of federal agents prompts fears among fans ahead of big soccer matches.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/the-presence-of-federal-agents-prompts-fan-fears-ahead-of-big-soccer-matches
+
 **Voters’ Voices on Trump’s First Year**\
 `The Times is checking in with Americans from across the political spectrum to document their impressions of the Trump administration and the Democratic response for the rest of the year.`\
 https://nytimes.com/series/voters-voices-trump-2025
