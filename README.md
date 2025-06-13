@@ -1,3 +1,7 @@
+**Marsch lauds Canada's Gold Cup commitment as USMNT wrestles with same topic**\
+`Jesse Marsch claims his comments weren't a dig at the USMNT and star Christian Pulisic, but the aren't many other ways to read into them.`\
+https://nytimes.com/athletic/6424945/2025/06/13/jesse-marsch-canada-usmnt-commitment-christian-pulisic-gold-cup/
+
 **Death Toll Rises to 11 in San Antonio Flooding**\
 `Several people were missing on Friday as search efforts continued a day after flash flooding overwhelmed the area.`\
 https://nytimes.com/2025/06/13/weather/flooding-san-antonio-texas-deaths.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/06/13/arts/dara-birnbaum-dead.html
 
 **Hockey Canada sexual assault trial is over; decision coming July 24**\
 `Though the Crown fought to preserve the jury trial, a mistrial and a jury dismissal have led to a trial that will be decided by the judge.`\
-https://nytimes.com/athletic/6424305/2025/06/13/hockey-canada-sexual-assault-trial-is-over-decision-coming-july-24/
+https://nytimes.com/athletic/6424305/2025/06/13/canada-sexual-assault-trial-end-decision-july-24/
 
 **Blackhawks trade Victor Söderström's rights to Bruins for prospect, pick**\
 `Boston received defense prospect Ryan Mast and a 2025 seventh-round pick in the deal, the team announced Friday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/us/politics/trump-la-immigration-protests-fact-ch
 **Beckham awarded knighthood in King Charles III's birthday honours list**\
 `The former Manchester United and Real Madrid midfielder was awarded an OBE in 2003 and has long been tipped to receive a knighthood.`\
 https://nytimes.com/athletic/6407726/2025/06/13/david-beckham-knighthood-sir-honours/
-
-**Alaska Weather Office Issues Its First Heat Warning**\
-`Forecasters said it might hit 85 degrees in Fairbanks this weekend. The Weather Service has changed how it issues warnings there.`\
-https://nytimes.com/2025/06/13/weather/alaska-heat-warning-fairbanks-forecast.html
 

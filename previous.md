@@ -1,5 +1,25 @@
+**Death Toll Rises to 11 in San Antonio Flooding**\
+`Several people were missing on Friday as search efforts continued a day after flash flooding overwhelmed the area.`\
+https://nytimes.com/2025/06/13/weather/flooding-san-antonio-texas-deaths.html
+
+**Judge Blocks ICE Plan to Open Rikers Office Indefinitely**\
+`The decision is a blow to Mayor Eric Adams, who sought to help the Trump administration expand its immigration crackdown.`\
+https://nytimes.com/2025/06/13/nyregion/ice-rikers-island-judge-mayor-adams.html
+
+**Dara Birnbaum, 78, Dies; Video Was Her Medium and Her Message**\
+`As early as the 1970s, she demonstrated that mass media was fair game as artistic material, and that its power could be turned against itself.`\
+https://nytimes.com/2025/06/13/arts/dara-birnbaum-dead.html
+
+**Hockey Canada sexual assault trial is over; decision coming July 24**\
+`Though the Crown fought to preserve the jury trial, a mistrial and a jury dismissal have led to a trial that will be decided by the judge.`\
+https://nytimes.com/athletic/6424305/2025/06/13/hockey-canada-sexual-assault-trial-is-over-decision-coming-july-24/
+
+**Blackhawks trade Victor Söderström's rights to Bruins for prospect, pick**\
+`Boston received defense prospect Ryan Mast and a 2025 seventh-round pick in the deal, the team announced Friday.`\
+https://nytimes.com/athletic/6425030/2025/06/13/blackhawks-bruins-victor-soderstrom-trade/
+
 **Making the U.S. Open was a dream. Then he shot 35-over-par**\
-`"I knew it was going to be a hard test coming in, but I didn’t think it was going to be this hard."`\
+`"I knew it was going to be a hard test coming in, but I didn't think it was going to be this hard."`\
 https://nytimes.com/athletic/6425044/2025/06/13/us-open-2025-george-duangmanee-last-place/
 
 **Republicans Are Divided Over Iran. Will Trump Pick a Side?**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6407726/2025/06/13/david-beckham-knighthood-sir-hon
 **Alaska Weather Office Issues Its First Heat Warning**\
 `Forecasters said it might hit 85 degrees in Fairbanks this weekend. The Weather Service has changed how it issues warnings there.`\
 https://nytimes.com/2025/06/13/weather/alaska-heat-warning-fairbanks-forecast.html
-
-**Once-Powerful Illinois Democrat Sentenced to 7.5 Years in Prison**\
-`Michael J. Madigan, who for decades was one of the most influential Democrats in Illinois politics, was convicted of conspiracy, bribery and wire fraud.`\
-https://nytimes.com/2025/06/13/us/mike-madigan-sentence-illinois.html
-
-**National Parks Are Told to Delete Content That ‘Disparages Americans’**\
-`Internal documents reviewed by The New York Times say that “negative” information at parks and other national site must be removed or covered by Sept. 17.`\
-https://nytimes.com/2025/06/13/climate/national-parks-trump-americans-censorship.html
-
-**Foday Musa Suso, 75, Dies; Ambitious Ambassador for West African Music**\
-`A master of the kora who worked with Herbie Hancock and Philip Glass, his career was powered as much by experimentation as by reverence for tradition.`\
-https://nytimes.com/2025/06/13/arts/music/foday-musa-suso-dead.html
-
-**Iran Retaliated Against Israel With a Barrage of missiles**\
-`Also, Washington prepares for a major military parade. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/06/13/briefing/iran-israel-attacks-military-parade-washington.html
-
-**A U.S. judge in California puts layoff plans at the State Dept. on hold.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2025/06/13/us/trump-news/state-dept-layoffs-judge-ruling
 
