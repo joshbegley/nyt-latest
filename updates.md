@@ -1,3 +1,11 @@
+**Marthe Cohn, a Wartime Jewish Nurse Who Spied for the French, Dies at 105**\
+`Fluent in German and passing as an Aryan, she once crossed into Germany, uncovered Nazi military secrets and nursed a wounded, and deceived, SS officer.`\
+https://nytimes.com/2025/06/13/us/marthe-cohn-dead.html
+
+**Kennedy’s New Vaccine Advisers Helped Lawyers Raise Doubts About Their Safety**\
+`Three of the health secretary’s picks to replace fired members of an influential panel that sets U.S. vaccine policies have filed statements in court flagging concerns about vaccines.`\
+https://nytimes.com/2025/06/13/us/politics/rfk-jr-vaccine-advisers.html
+
 **In a Anxious Moment for the Nation, Historians Say This One Is Different**\
 `The country has become a cauldron of anger and unease as it enters a weekend promised to be marked by protests and a military parade.`\
 https://nytimes.com/2025/06/13/us/politics/trump-protests-military-parade.html
