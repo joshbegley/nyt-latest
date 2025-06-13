@@ -1,3 +1,23 @@
+**Former L.A.P.D. Chief: Deploying Troops Was a Profound Mistake**\
+`Dispatching troops risks escalation, tragic error and lasting damage to public confidence.`\
+https://nytimes.com/2025/06/13/opinion/lapd-troops-la-protests.html
+
+**The Bounce: What have the Thunder lacked en route to 2-1 hole against Pacers? Cohesive play**\
+`The Pacers have a 2-1 series lead primarily because the Thunder have gotten away from team basketball. Can that change in Game 4?`\
+https://nytimes.com/athletic/6423915/2025/06/13/tyrese-haliburton-pacers-shai-gilgeous-alexander-nba-finals-nba-draft-the-bounce/
+
+**In its latest attack on Iran, Israel’s allies voice less support and more concern.**\
+`By Lara Jakes`\
+https://nytimes.com/2025/06/13/world/middleeast/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern.html
+
+**The Subtle Art of the Dad Text**\
+`When it comes to corny jokes, random photos and sincere pep talks, father knows best.`\
+https://nytimes.com/interactive/2025/06/13/well/family/dad-jokes-texts-fathers-day.html
+
+**ICE Says It Has No Immediate Plans to Release Mahmoud Khalil**\
+`A federal judge ruled this week that the government cannot hold the Columbia University graduate under the rarely invoked law it used to detain him.`\
+https://nytimes.com/2025/06/13/nyregion/mahmoud-khalil-trump-detention.html
+
 **Pierre Franey’s Five-Star Grilled Swordfish**\
 `It’s been a hit with Times readers since its publication in 1993.`\
 https://nytimes.com/2025/06/13/dining/healthy-grilled-swordfish-and-more-fathers-day-recipes.html
