@@ -1,3 +1,11 @@
+**Meta Invests Nearly $15 Billion in Scale AI to Kick-Start Superintelligence Lab**\
+`Meta is making its first major minority investment in an outside company as it tries to catch up to a growing field of artificial intelligence rivals.`\
+https://nytimes.com/2025/06/12/technology/meta-scale-ai.html
+
+**Slow and Steady, This Poem Will Win Your Heart**\
+`A.O. Scott ponders the specific gravity and unlikely grace of Kay Ryan’s “Turtle.” And we have a game to help you memorize it.`\
+https://nytimes.com/interactive/2025/06/12/books/kay-ryan-turtle-poem.html
+
 **Protesters in Chicago return to the streets.**\
 `By Julie Bosman and Robert Chiarito`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/protesters-in-chicago-return-to-the-streets
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear
 **New York Police to Pay $1 Million to Settle Discrimination Case**\
 `Two plaintiffs had accused the police of systemic discrimination against victims of sexual assault.`\
 https://nytimes.com/2025/06/12/nyregion/new-york-police-sex-crimes-settlement.html
-
-**‘I Have Never Had to Resign in Disgrace,’ Mamdani Tells Cuomo**\
-`“Inexperience is dangerous,” Andrew Cuomo warned as the two front-runners traded barbed criticisms early in the mayoral debate.`\
-https://nytimes.com/2025/06/12/nyregion/nyc-mayor-debate-cuomo-mamdani.html
-
-**Twins' rotation problems grow as Bailey Ober struggles with hip issue, mechanics**\
-`Ober's not looking like himself, and injuries to Pablo López and Zebby Matthews have turned the Twins' rotation from strength to weakness.`\
-https://nytimes.com/athletic/6422293/2025/06/12/twins-lose-rangers-bailey-ober-struggles-hip-mechanics/
 
