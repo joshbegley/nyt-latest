@@ -1,3 +1,7 @@
+**What’s the Deal? Nippon’s Bid for U.S. Steel Becomes Merger Mystery.**\
+`President Trump’s foray into the takeover could reshape the future of foreign investment in the United States.`\
+https://nytimes.com/2025/06/13/business/nippon-us-steel-deal-trump.html
+
 **In a New Book, E. Jean Carroll Chronicles Her Legal Battles With Trump**\
 `“Not My Type: One Woman vs. a President” includes reflections on being asked to testify about her sex life, as well as the thrill of winning two lawsuits.`\
 https://nytimes.com/2025/06/13/books/review/e-jean-carroll-not-my-type-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010225148/la-ice-protests-little-
 **Aston Martin Returns to Le Mans With a Car That Is Turning Heads**\
 `The last time the team won the race overall, in 1959, Carroll Shelby was driving. Now it’s bringing a new car, the futuristic-looking Valkyrie.`\
 https://nytimes.com/2025/06/13/sports/autoracing/aston-martin-le-mans-valkyrie.html
-
-**The 24 Hours of Le Mans Is Long. So Are the Preparations.**\
-`Teams start getting ready for the next Le Mans as soon as the race is over`\
-https://nytimes.com/2025/06/13/sports/autoracing/24-hours-le-mans-preparation.html
 
