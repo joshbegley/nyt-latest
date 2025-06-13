@@ -1,3 +1,11 @@
+**Oilers' Draisaitl scores in overtime to even Stanley Cup Final series: Takeaways**\
+`Leon Draisaitl capped off the comeback for the Oilers to send the series back to Edmonton tied at two apiece.`\
+https://nytimes.com/athletic/6423283/2025/06/12/oilers-panthers-stanley-cup-final-2025-game-4-takeaways/
+
+**Israel’s Ambition: Destroy the Heart of Iran’s Nuclear Program**\
+`It may take days, or weeks, to assess how far Israel has set back Iran’s atomic capabilities.`\
+https://nytimes.com/2025/06/12/world/middleeast/iran-nuclear-program-israel.html
+
 **Hong Kong Group That Lobbied for Chinese Labor Rights Shuts Down**\
 `The China Labor Bulletin, which tracks factory closures and worker protests in China, cited financial difficulties for its dissolution.`\
 https://nytimes.com/2025/06/12/business/hong-kong-labor-rights-nonprofit-closes.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/06/12/business/hong-kong-labor-rights-nonprofit-closes.
 https://nytimes.com/2025/06/12/world/middleeast/irgc-iran-israel-strikes-nuclear.html
 
 **What We Know About the L.A. Protests So Far**\
-`Demonstrations against the Trump administration’s immigration policies have been largely peaceful in Los Angeles, but tensions flared in a few pockets of isolated protests after President Trump mobilized troops to the city.`\
+`The Trump administration is facing legal challenges to its deployment of Marines and National Guard troops to Los Angeles. Shawn Hubler, the Los Angeles bureau chief for The New York Times, talks with Katrin Bennhold, a senior writer, about what she’s seen on the ground in the city.`\
 https://nytimes.com/video/world/americas/100000010221397/what-we-know-about-the-la-protests-so-far.html
 
 **Oil Prices Surge and Stock Markets Stumble After Israel’s Attack**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/12/theater/call-me-izzy-review-jean-smart.html
 **Inside the Jury Room at the Weinstein Trial, Rancor and Recrimination**\
 `As the panelists deliberated over whether the former Hollywood mogul should be convicted of sex crimes for a second time in Manhattan, accusations began to fly.`\
 https://nytimes.com/2025/06/12/nyregion/weinstein-jurors-mistrial.html
-
-**U.S. Says It Was Not Involved in Israeli Strikes on Iran**\
-`President Trump has said he would like to negotiate a deal with Tehran over its nuclear program but had also acknowledged that Israel might attack Iran first.`\
-https://nytimes.com/2025/06/12/world/middleeast/trump-rubio-israel-iran-strikes.html
-
-**Netanyahu says fighting with Iran will continue as long as Israel deems necessary.**\
-`By Aaron Boxerman and Isabel Kershner`\
-https://nytimes.com/2025/06/12/world/middleeast/netanyahu-says-fighting-with-iran-will-continue-as-long-as-israel-deems-necessary.html
 

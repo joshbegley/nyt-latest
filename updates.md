@@ -1,3 +1,15 @@
+**Oilers' Draisaitl scores in overtime to even Stanley Cup Final series: Takeaways**\
+`Leon Draisaitl capped off the comeback for the Oilers to send the series back to Edmonton tied at two apiece.`\
+https://nytimes.com/athletic/6423283/2025/06/12/oilers-panthers-stanley-cup-final-2025-game-4-takeaways/
+
+**Israel’s Ambition: Destroy the Heart of Iran’s Nuclear Program**\
+`It may take days, or weeks, to assess how far Israel has set back Iran’s atomic capabilities.`\
+https://nytimes.com/2025/06/12/world/middleeast/iran-nuclear-program-israel.html
+
+**What We Know About the L.A. Protests So Far**\
+`The Trump administration is facing legal challenges to its deployment of Marines and National Guard troops to Los Angeles. Shawn Hubler, the Los Angeles bureau chief for The New York Times, talks with Katrin Bennhold, a senior writer, about what she’s seen on the ground in the city.`\
+https://nytimes.com/video/world/americas/100000010221397/what-we-know-about-the-la-protests-so-far.html
+
 **Israel Killed Top Iranian Commanders and Nuclear Scientists, Iran Says**\
 `Israel has long targeted Iranian officials for assassination. But these attacks marked a significant shift in tactics, targeting multiple officials at once inside Iran.`\
 https://nytimes.com/2025/06/12/world/middleeast/irgc-iran-israel-strikes-nuclear.html
