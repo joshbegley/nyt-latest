@@ -1,3 +1,15 @@
+**WNBA, Scripps reach multi-year media rights deal for Friday night games on ION**\
+`WNBA viewership grew 133 percent with more than 23 million unique viewers on Friday Night Spotlight year over year.`\
+https://nytimes.com/athletic/6424531/2025/06/13/wnba-scripps-multi-year-media-rights-deal-ion/
+
+**Arthur Hamilton, Who Wrote the Enduring ‘Cry Me a River,’ Dies at 98**\
+`A hit for Julie London in 1955, it was later recorded by — among many others — Ella Fitzgerald, Barbra Streisand and Michael Bublé, who praised it for its “darkness.”`\
+https://nytimes.com/2025/06/13/arts/music/arthur-hamilton-dead.html
+
+**Astros trade one-time top prospect Forrest Whitley to Rays**\
+`Whitley, once the top pitching prospect in baseball, was in need of a change of scenery. Now he'll get one.`\
+https://nytimes.com/athletic/6424664/2025/06/13/forrest-whitley-trade-astros-rays/
+
 **Victor Perez sinks second-ever hole-in-one in a U.S. Open at Oakmont**\
 `Perez's ace, which was his first on the PGA Tour, was the 54th in U.S. Open history.`\
 https://nytimes.com/athletic/6424541/2025/06/13/us-open-hole-in-one-oakmont-victor-perez/
