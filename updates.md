@@ -1,3 +1,15 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 6/13 at 2:00 p.m. ET**\
+`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
+https://nytimes.com/athletic/6424463/2025/06/13/sarris-live-chat-mlb-fantasy-baseball-6-13/
+
+**Is There a Safest Seat in a Plane Crash? We Asked Experts.**\
+`With all eyes on the sole survivor of Air India Flight 171, aviation insiders say that in an air catastrophe, “all bets are off” and seat choice matters little.`\
+https://nytimes.com/2025/06/13/travel/safest-seat-airplane.html
+
+**The presence of federal agents prompts fan fears ahead of big soccer matches.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/the-presence-of-federal-agents-prompts-fan-fears-ahead-of-big-soccer-matches
+
 **A Billionaire Island Where Bezos and Kushner Live Is Fighting Over Sewage**\
 `Indian Creek Village, the “Billionaire Bunker” near Miami, couldn’t get approval to discharge its waste into a neighboring town’s sewer lines. So the village quietly persuaded state lawmakers to come to the rescue.`\
 https://nytimes.com/2025/06/13/us/indian-creek-surfside-billionaire-sewage.html
