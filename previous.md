@@ -1,3 +1,15 @@
+**10 Questions With Bill de Blasio About Andrew Cuomo’s Run for Mayor**\
+`Former Mayor Bill de Blasio said in a searing interview that his political nemesis, Andrew M. Cuomo, should not be mayor of New York City.`\
+https://nytimes.com/2025/06/13/nyregion/de-blasio-interview-transcript.html
+
+**Mick Schumacher Is Tackling Endurance Racing**\
+`The son of the Formula 1 world champion Michael Schumacher, joined Alpine’s team after he left F1. The 24 Hours of Le Mans is his next test.`\
+https://nytimes.com/2025/06/13/sports/autoracing/le-mans-mick-schumacher.html
+
+**Andrew Cuomo for Mayor? Bill de Blasio Has Thoughts, None of Them Good.**\
+`In a candid interview, former Mayor Bill de Blasio strenuously argued that former Gov. Andrew M. Cuomo should not be elected to lead New York City: “He is a vindictive person,” Mr. de Blasio said.`\
+https://nytimes.com/2025/06/13/nyregion/de-blasio-cuomo-nyc-mayor.html
+
 **WNBA, Scripps reach multi-year media rights deal for Friday night games on ION**\
 `WNBA viewership grew 133 percent with more than 23 million unique viewers on Friday Night Spotlight year over year.`\
 https://nytimes.com/athletic/6424531/2025/06/13/wnba-scripps-multi-year-media-rights-deal-ion/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6424507/2025/06/13/pulisic-giroud-usmnt-gold-cup/
 **Tottenham sue INEOS over withdrawal from sponsorship deal**\
 `Sir Jim Ratcliffe's INEOS owns a minority stake in Manchester United, and terminated its agreement with Spurs last December.`\
 https://nytimes.com/athletic/6145888/2025/06/13/tottenham-ineos-legal-action-man-utd/
-
-**Study Shows Mercury Levels in Arctic Wildlife Could Rise for Centuries**\
-`Even as global emissions plateau, new research shows that wildlife in the Arctic is exposed to rising levels, posing a risk to those who eat it.`\
-https://nytimes.com/2025/06/13/climate/mercury-pollution-arctic.html
-
-**Israel’s Strikes on Iran Divide Congress, Drawing Praise and Concern**\
-`Republicans and some Democrats offered strong support for Israel’s move, but many Democrats called for de-escalation and warned of the consequences of a broader war.`\
-https://nytimes.com/2025/06/13/world/middleeast/israels-strikes-on-iran-divide-congress-drawing-praise-and-concern.html
-
-**Caitlin Clark to return from injury for Fever-Liberty rematch Saturday**\
-`Indiana is also expected to welcome back forward Sophie Cunningham, who has been out since May 30 with an ankle injury.`\
-https://nytimes.com/athletic/6424555/2025/06/13/caitlin-clark-fever-liberty-injury/
 

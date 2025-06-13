@@ -1,3 +1,15 @@
+**10 Questions With Bill de Blasio About Andrew Cuomo’s Run for Mayor**\
+`Former Mayor Bill de Blasio said in a searing interview that his political nemesis, Andrew M. Cuomo, should not be mayor of New York City.`\
+https://nytimes.com/2025/06/13/nyregion/de-blasio-interview-transcript.html
+
+**Mick Schumacher Is Tackling Endurance Racing**\
+`The son of the Formula 1 world champion Michael Schumacher, joined Alpine’s team after he left F1. The 24 Hours of Le Mans is his next test.`\
+https://nytimes.com/2025/06/13/sports/autoracing/le-mans-mick-schumacher.html
+
+**Andrew Cuomo for Mayor? Bill de Blasio Has Thoughts, None of Them Good.**\
+`In a candid interview, former Mayor Bill de Blasio strenuously argued that former Gov. Andrew M. Cuomo should not be elected to lead New York City: “He is a vindictive person,” Mr. de Blasio said.`\
+https://nytimes.com/2025/06/13/nyregion/de-blasio-cuomo-nyc-mayor.html
+
 **WNBA, Scripps reach multi-year media rights deal for Friday night games on ION**\
 `WNBA viewership grew 133 percent with more than 23 million unique viewers on Friday Night Spotlight year over year.`\
 https://nytimes.com/athletic/6424531/2025/06/13/wnba-scripps-multi-year-media-rights-deal-ion/

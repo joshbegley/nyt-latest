@@ -1,3 +1,15 @@
+**Aston Martin Returns to Le Mans With a Car That Is Turning Heads**\
+`The last time the team won the race overall, in 1959, Carroll Shelby was driving. Now it’s bringing a new car, the futuristic-looking Valkyrie.`\
+https://nytimes.com/2025/06/13/sports/autoracing/aston-martin-le-mans-valkyrie.html
+
+**The 24 Hours of Le Mans Is Long. So Are the Preparations.**\
+`Teams start getting ready for the next Le Mans as soon as the race is over`\
+https://nytimes.com/2025/06/13/sports/autoracing/24-hours-le-mans-preparation.html
+
+**Much of Iran’s Nuclear Program Remains After Israel’s Strikes. At Least for Now.**\
+`The first phase of the attack did not hit the most likely repository of Iran’s near-bomb-grade nuclear fuel.`\
+https://nytimes.com/2025/06/13/us/politics/iran-nuclear-program-israel-strike-damage.html
+
 **10 Questions With Bill de Blasio About Andrew Cuomo’s Run for Mayor**\
 `Former Mayor Bill de Blasio said in a searing interview that his political nemesis, Andrew M. Cuomo, should not be mayor of New York City.`\
 https://nytimes.com/2025/06/13/nyregion/de-blasio-interview-transcript.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6424664/2025/06/13/forrest-whitley-trade-astros-ray
 **Victor Perez sinks second-ever hole-in-one in a U.S. Open at Oakmont**\
 `Perez's ace, which was his first on the PGA Tour, was the 54th in U.S. Open history.`\
 https://nytimes.com/athletic/6424541/2025/06/13/us-open-hole-in-one-oakmont-victor-perez/
-
-**Lives Lost in India Crash: Expectant Grandparents, a Boy Selling Tea**\
-`At the hospital in Ahmedabad, family members were giving DNA samples, waiting for official confirmation of their loss in the Air India disaster, and remembering their loved ones.`\
-https://nytimes.com/2025/06/13/world/asia/lives-lost-india-crash.html
-
-**Olivier Giroud: Trust Pulisic's decision over Gold Cup absence**\
-`As controversy twirls, Pulisic received support from an old collegue.`\
-https://nytimes.com/athletic/6424507/2025/06/13/pulisic-giroud-usmnt-gold-cup/
-
-**Tottenham sue INEOS over withdrawal from sponsorship deal**\
-`Sir Jim Ratcliffe's INEOS owns a minority stake in Manchester United, and terminated its agreement with Spurs last December.`\
-https://nytimes.com/athletic/6145888/2025/06/13/tottenham-ineos-legal-action-man-utd/
 
