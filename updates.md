@@ -1,3 +1,15 @@
+**Hong Kong Group That Lobbied for Chinese Labor Rights Shuts Down**\
+`The China Labor Bulletin, which tracks factory closures and worker protests in China, cited financial difficulties for its dissolution.`\
+https://nytimes.com/2025/06/12/business/hong-kong-labor-rights-nonprofit-closes.html
+
+**Israeli Attacks Killed Top Iranian Military Officials and Nuclear Scientists**\
+`Israel has long targeted Iranian officials for assassination. But these attacks marked a significant shift in tactics, targeting multiple officials at once inside Iran.`\
+https://nytimes.com/2025/06/12/world/middleeast/irgc-iran-israel-strikes-nuclear.html
+
+**What We Know About the L.A. Protests So Far**\
+`Demonstrations against the Trump administration’s immigration policies have been largely peaceful in Los Angeles, but tensions flared in a few pockets of isolated protests after President Trump mobilized troops to the city.`\
+https://nytimes.com/video/world/americas/100000010221397/what-we-know-about-the-la-protests-so-far.html
+
 **Oil Prices Surge and Stock Markets Stumble After Israel’s Attack**\
 `The military strikes jolted investors, raising concerns that a broader Mideast conflict would disrupt the world’s energy supplies.`\
 https://nytimes.com/2025/06/12/business/energy-environment/israel-iran-oil-stock-markets.html
