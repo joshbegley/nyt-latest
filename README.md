@@ -1,8 +1,13 @@
+**Submit you Cowboys mailbag questions to Saad Yousuf**\
+`<p>With mandatory minicamp in the books, the Cowboys’ offseason is complete. From the hiring of Brian Schottenheimer to the trade of George Pickens — and everything in between — a lot happened. Drop your pre-Oxnard questions to Cowboys beat writer Saad Yousuf for an offseason mailbag.</p>
+`\
+https://nytimes.com/athletic/6424311/2025/06/13/submit-you-cowboys-mailbag-questions-to-saad-yousuf/
+
 **Milner signs one-year deal to remain at Brighton**\
 `The 39-year-old played only four games in the 2024-25 season due to a thigh issue that sidelined him for the majority of the campaign.`\
 https://nytimes.com/athletic/6388082/2025/06/13/james-milner-contract-brighton/
 
-**Aaron Civale heading to White Sox after requesting trade from Brewers: Source**\
+**Aaron Civale heading to White Sox after requesting trade from Brewers**\
 `Civale asked to be traded after the Brewers bumped him from the rotation in favor of top pitching prospect Jacob Misiorowski.`\
 https://nytimes.com/athletic/6424334/2025/06/13/aaron-civale-trade-white-sox-brewers/
 
@@ -33,8 +38,4 @@ https://nytimes.com/interactive/2025/06/13/well/family/dad-jokes-texts-fathers-d
 **ICE Says It Has No Immediate Plans to Release Mahmoud Khalil**\
 `A federal judge ruled this week that the government cannot hold the Columbia University graduate under the rarely invoked law it used to detain him.`\
 https://nytimes.com/2025/06/13/nyregion/mahmoud-khalil-trump-detention.html
-
-**Pierre Franey’s Five-Star Grilled Swordfish**\
-`It’s been a hit with Times readers since its publication in 1993.`\
-https://nytimes.com/2025/06/13/dining/healthy-grilled-swordfish-and-more-fathers-day-recipes.html
 
