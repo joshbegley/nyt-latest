@@ -2,7 +2,7 @@
 `Washington State, Vermont and others have joined a legal brief backing Gov. Gavin Newsom’s request to block the deployment of California’s National Guard.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/at-least-22-states-join-california-in-its-effort-to-block-trumps-troop-deployment
 
-**The U.S. Open carnage is coming. It may have already started**\
+**The U.S. Open carnage is coming. It might have already started**\
 `More than any other major and any other course, an Oakmont U.S. Open is not about your highest of highs. It’s about your lows.`\
 https://nytimes.com/athletic/6422984/2025/06/12/us-open-2025-oakmont-high-scores/
 

@@ -1,3 +1,15 @@
+**At least 22 states join California in its effort to block Trump’s troop deployment.**\
+`Washington State, Vermont and others have joined a legal brief backing Gov. Gavin Newsom’s request to block the deployment of California’s National Guard.`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/at-least-22-states-join-california-in-its-effort-to-block-trumps-troop-deployment
+
+**The U.S. Open carnage is coming. It may have already started**\
+`More than any other major and any other course, an Oakmont U.S. Open is not about your highest of highs. It’s about your lows.`\
+https://nytimes.com/athletic/6422984/2025/06/12/us-open-2025-oakmont-high-scores/
+
+**At Debate, Cuomo Says Trump ‘Cannot Win a Fight’ With Him on Immigration**\
+`As Democratic mayoral candidates vowed to protect New York’s immigrants, Brad Lander, the city comptroller, confronted former Gov. Andrew M. Cuomo over his use of the term “illegal immigrants.”`\
+https://nytimes.com/2025/06/12/nyregion/nyc-mayor-debate-immigration.html
+
 **Trump’s Big Bill Would Be More Regressive Than Any Major Law in Decades**\
 `Estimates from the Congressional Budget Office, released Thursday, offer a detailed view into the effects on income groups.`\
 https://nytimes.com/interactive/2025/06/12/upshot/gop-megabill-distribution-poor-rich.html
