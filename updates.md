@@ -1,3 +1,7 @@
+**Inzaghi leaves Pisa after Serie A promotion**\
+`Inzaghi led the club back to the top-flight for the first time in 34 years with a second-placed finish in the 2024-25 season.`\
+https://nytimes.com/athletic/6424037/2025/06/13/filippo-inzaghi-manager-pisa/
+
 **Mailbag: When will the Penguins' rebuild will shift into a new gear?**\
 `The Penguins' rebuild will hit a more aggressive gear sooner rather than later.`\
 https://nytimes.com/athletic/6418585/2025/06/13/penguins-rebuild-mailbag-josh-yohe/
