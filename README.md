@@ -1,3 +1,7 @@
+**Knicks set to interview Taylor Jenkins, Mike Brown next week: Sources**\
+`New York is also expected to start contacting organizations to speak with assistant head coaches about its opening.`\
+https://nytimes.com/athletic/6425152/2025/06/13/knicks-coaching-search-taylor-jenkins-mike-brown/
+
 **Judge Signals Openness to Granting Bail to Returned Deportee**\
 `Denying the Justice Department’s request to detain the deportee would be a significant rebuke of the Trump administration, which has repeatedly cast him as a dangerous criminal.`\
 https://nytimes.com/2025/06/13/us/politics/abrego-garcia-judge-bail.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424392/2025/06/13/hockey-canada-sexual-assault-tri
 **Iran Launches Retaliatory Strikes Against Israel**\
 `Iran fired ballistic missiles that struck at least seven sites around Tel Aviv on Friday night, injuring dozens of Israelis. The move was a retaliation to the Israeli attacks on Iranian nuclear sites and military leaders.`\
 https://nytimes.com/video/world/middleeast/100000010228151/iran-israel-strikes.html
-
-**Marsch lauds Canada's Gold Cup commitment as USMNT wrestles with same topic**\
-`Jesse Marsch claims his comments weren't a dig at the USMNT and star Christian Pulisic, but the aren't many other ways to read into them.`\
-https://nytimes.com/athletic/6424945/2025/06/13/jesse-marsch-canada-usmnt-commitment-christian-pulisic-gold-cup/
 

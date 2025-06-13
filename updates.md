@@ -1,3 +1,15 @@
+**Judge Signals Openness to Granting Bail to Returned Deportee**\
+`Denying the Justice Department’s request to detain the deportee would be a significant rebuke of the Trump administration, which has repeatedly cast him as a dangerous criminal.`\
+https://nytimes.com/2025/06/13/us/politics/abrego-garcia-judge-bail.html
+
+**Saints sign running back Cam Akers: Source**\
+`The 2020 second-round pick spent last season with the Houston Texans and Minnesota Vikings.`\
+https://nytimes.com/athletic/6425101/2025/06/13/saints-sign-cam-akers/
+
+**Park Area Closed to Recover Body of Teen Who Fell Over 50-Foot Waterfall**\
+`Officials said that the body was spotted in Olympic National Park in Washington State on Monday, but that it was pinned behind a surge of water and was hard to reach.`\
+https://nytimes.com/2025/06/13/us/waterfall-death-olympic-national-park.html
+
 **Marthe Cohn, a Wartime Jewish Nurse Who Spied for the French, Dies at 105**\
 `Fluent in German and passing as an Aryan, she once crossed into Germany, uncovered Nazi military secrets and nursed a wounded, and deceived, SS officer.`\
 https://nytimes.com/2025/06/13/us/marthe-cohn-dead.html
