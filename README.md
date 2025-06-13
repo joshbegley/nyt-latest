@@ -1,3 +1,11 @@
+**Man City reduce PL ticket prices for 2025-26 after fan protests**\
+`In April, many of the club’s supporters boycotted the opening of their Premier League fixture against Leicester City to protest prices.`\
+https://nytimes.com/athletic/6423752/2025/06/13/manchester-city-tickets-premier-league/
+
+**Israel Attacks Iran**\
+`Plus, we explain what to look for during Trump’s military parade.`\
+https://nytimes.com/2025/06/13/briefing/israel-attacks-iran.html
+
 **'You're going to the big leagues': Video call-up moment add heartwarming, modern-day spin**\
 `It's too bad we don't have social media footage of every player who's ever been called up. Here are some former players' call-up stories.`\
 https://nytimes.com/athletic/6423149/2025/06/13/red-sox-mlb-call-ups-social-media/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6422680/2025/06/13/hurricanes-defense-trade-free-ag
 **What happens when the pope wears your hat?**\
 `Pope Leo XIV donned a White Sox hat at the Vatican this week. For the company that makes it, it was a dream come true.`\
 https://nytimes.com/athletic/6423351/2025/06/13/pope-leo-xiv-mlb-white-sox-hat/
-
-**Pronman: Ranking 2025 NHL Draft prospects by 6 different tools and traits**\
-`We are ranking prospects in the draft class by skating, puck handling, hockey IQ, shooting, competitiveness and athleticism.`\
-https://nytimes.com/athletic/6372836/2025/06/13/2025-nhl-draft-prospects-skills-tools-traits/
-
-**Giants trade deadline primer: 3 storylines to watch**\
-`The Giants appear poised to be buyers. What do they need and who might they have to trade to get their targets?`\
-https://nytimes.com/athletic/6422948/2025/06/13/sf-giants-trade-deadline-storylines/
 
