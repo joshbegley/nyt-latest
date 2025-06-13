@@ -1,3 +1,15 @@
+**The 6.15.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
+
+**A Launch Party for Hosh, and a Celebration of Native American Culture**\
+`The lifestyle brand brought artists, models and performers together at a downtown Manhattan event that included creating art on the spot.`\
+https://nytimes.com/2025/06/13/style/hosh-party-native-american-art.html
+
+**Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
+`The contribution by Michael R. Bloomberg is the largest in New York City this cycle and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
+https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
+
 **Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
 `The contribution by Michael R. Bloomberg is the largest in New York City and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
 https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html

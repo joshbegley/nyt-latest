@@ -1,5 +1,13 @@
+**The 6.15.2025 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/06/13/the-6152025-issue
+
+**A Launch Party for Hosh, and a Celebration of Native American Culture**\
+`The lifestyle brand brought artists, models and performers together at a downtown Manhattan event that included creating art on the spot.`\
+https://nytimes.com/2025/06/13/style/hosh-party-native-american-art.html
+
 **Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
-`The contribution by Michael R. Bloomberg is the largest in New York City and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
+`The contribution by Michael R. Bloomberg is the largest in New York City this cycle and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
 https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
 
 **Jury in Karen Read Trial Begins Deliberations**\
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/06/13/magazine/ai-avatar-life-death.html
 **Meet The Problem Solvers**\
 `Tackling the energy challenges of today, and tomorrow`\
 https://nytimes.com/paidpost/chevron/meet-the-problem-solvers.html
-
-**This Club World Cup needs Lionel Messi just as much as Inter Miami do**\
-`Messi and his team-mates trained under the watchful eye of David Beckham on the eve of their Club World Cup opener at Hard Rock Stadium`\
-https://nytimes.com/athletic/6424363/2025/06/13/messi-inter-miami-club-world-cup/
-
-**Cuomo and Mamdani Clash in Final N.Y.C. Mayoral Debate**\
-`The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani exchanged attacks over their records and experience.`\
-https://nytimes.com/video/us/politics/100000010226733/nyc-mayoral-debate.html
 
