@@ -1,3 +1,7 @@
+**Mastantuono completes Real Madrid transfer from River Plate**\
+`Mastantuono's contract at River contained a release clause of €45million (£38.5m).`\
+https://nytimes.com/athletic/6405791/2025/06/13/franco-mastantuono-real-madrid-transfer/
+
 **Striking the Heart of the Iranian Regime, Netanyahu Looks to His Legacy**\
 `Israel has long fought a shadow war with Iran while avoiding all-out conflict. Now Prime Minister Benjamin Netanyahu is risking it all in pursuit of a conclusive victory.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-iran-attack-netanyahu.html
