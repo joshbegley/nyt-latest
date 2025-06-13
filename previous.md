@@ -1,3 +1,7 @@
+**In a diplomatic scramble, world leaders urge restraint between Israel and Iran.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-a-diplomatic-scramble-world-leaders-urge-restraint-between-israel-and-iran
+
 **Iran Retaliates and Israel Vows More Strikes After Devastating Attack**\
 `Waves of Israeli airstrikes hit two nuclear enrichment sites, multiple military bases, and military scientists and commanders. Iran replied with a barrage of missiles and drones.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-strikes-iran-retaliates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/arts/television/harris-yulin-dead.html
 **Mpox Surges in Sierra Leone as Health Officials Appeal for U.S. Support**\
 `West African nations are struggling to track and treat infections, and experts warn the outbreak is rapidly spreading, while the United States is cutting global vaccination efforts.`\
 https://nytimes.com/2025/06/13/world/africa/mpox-surges-sierra-leone.html
-
-**What Political Story Would We Tell About a Mamdani Victory?**\
-`Four years ago, when Eric Adams was elected, it seemed to be a signal for Democratic politics. Here’s what a democratic socialist’s win could mean.`\
-https://nytimes.com/live/2025/06/02/opinion/thepoint/zohran-mamdani-andrew-cuomo-left-new-york
 

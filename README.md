@@ -1,3 +1,15 @@
+**Iran Retaliated Against Israel With a Barrage of missiles**\
+`Also, Washington prepares for a major military parade. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/06/13/briefing/iran-israel-attacks-military-parade-washington.html
+
+**A U.S. judge in California puts layoff plans at the State Dept. on hold.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2025/06/13/us/trump-news/state-dept-layoffs-judge-ruling
+
+**Israel destroyed part of Iran’s premier weapons facility, the head of the U.N. nuclear watchdog said.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/un-grossi
+
 **In a diplomatic scramble, world leaders urge restraint between Israel and Iran.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-a-diplomatic-scramble-world-leaders-urge-restraint-between-israel-and-iran
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/headway/prison-reform-women-california-prosecutor
 **How to watch the Yankees at Red Sox series, their second straight weekend matchup**\
 `The New York Yankees hosted the Boston Red Sox last weekend, and now the archrivals get to run it back at Fenway Park.`\
 https://nytimes.com/athletic/6422574/2025/06/13/yankees-red-sox-max-fried-mlb-how-to-watch/
-
-**Aces star A'ja Wilson will miss Friday's game, enters concussion protocol**\
-`Las Vegas is currently in 4-4, sitting 6th in the WNBA standings.`\
-https://nytimes.com/athletic/6424911/2025/06/13/aces-aja-wilson-out-enters-concussion-protocol/
-
-**Harris Yulin, Actor Who Perpetually Played the Bad Guy, Dies at 87**\
-`As an award-winning actor and director, he appeared in scores of stage plays, movies and TV shows over six decades, most often as unsavory characters.`\
-https://nytimes.com/2025/06/13/arts/television/harris-yulin-dead.html
-
-**Mpox Surges in Sierra Leone as Health Officials Appeal for U.S. Support**\
-`West African nations are struggling to track and treat infections, and experts warn the outbreak is rapidly spreading, while the United States is cutting global vaccination efforts.`\
-https://nytimes.com/2025/06/13/world/africa/mpox-surges-sierra-leone.html
 

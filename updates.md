@@ -1,3 +1,7 @@
+**In a diplomatic scramble, world leaders urge restraint between Israel and Iran.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-a-diplomatic-scramble-world-leaders-urge-restraint-between-israel-and-iran
+
 **Iran Retaliates and Israel Vows More Strikes After Devastating Attack**\
 `Waves of Israeli airstrikes hit two nuclear enrichment sites, multiple military bases, and military scientists and commanders. Iran replied with a barrage of missiles and drones.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-strikes-iran-retaliates.html
