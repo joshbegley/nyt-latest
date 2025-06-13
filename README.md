@@ -1,3 +1,7 @@
+**Trump’s $1.1 Billion Public Broadcasting Clawback Faces Pushback in the Senate**\
+`Some Republican senators are voicing concern over the House-passed bill that would rescind $9 billion that Congress already approved, including money for NPR and PBS stations in their states.`\
+https://nytimes.com/2025/06/13/us/politics/trump-public-broadcasting-senate.html
+
 **How Is Extreme Heat Affecting Air Travel?**\
 `Hot weather influences aircraft performance. We asked experts what it means for safety.`\
 https://nytimes.com/2025/06/13/climate/air-travel-extreme-heat.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6424575/2025/06/13/jim-harbaugh-jason-sudeikis-ted-
 **Flashback: Your Weekly History Quiz, June 14, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/06/13/upshot/flashback.html
-
-**Sole Survivor of India Plane Crash Recounts How He Survived**\
-`Viswash Kumar Ramesh was one of 242 people on the 787-8 Dreamliner that went down shortly after takeoff in Ahmedabad, India, and the only known survivor.`\
-https://nytimes.com/video/world/asia/100000010226489/survivor-of-india-plane-crash.html
 
