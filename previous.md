@@ -1,3 +1,11 @@
+**The U.S. is positioning warships to help protect Israel and American forces from Iranian strikes.**\
+`By Helene Cooper`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/us-forces-middle-east
+
+**The F.D.A. Is Reviewing Infant Formula for the First Time in Decades**\
+`The agency’s commissioner has implied that some of their ingredients may be harmful. Is that true?`\
+https://nytimes.com/2025/06/13/well/eat/infant-formula-health-fda.html
+
 **What to Expect at the Army’s 250th Anniversary Parade**\
 `The event will kick off when Army officials report to President Trump — who turns 79 on the same day — and end when parachutists jump from the sky and present a flag to him.`\
 https://nytimes.com/interactive/2025/06/13/us/trump-military-parade.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-nationa
 `Upon arriving at a residence, police said a woman alleged she had been assaulted, strangled and threatened by her fiancé, Ward.`\
 https://nytimes.com/athletic/6424186/2025/06/13/jimmie-ward-felony-assault-texans/
 
-**Trump’s Use of National Guard in Limbo After Court Rulings**\
+**National Guard Will Remain in L.A. Until a Legal Challenge Is Heard**\
 `Judge Charles Breyer ordered the administration to return control of the National Guard to the California governor, but an appeals court stayed the extraordinary decision Thursday night.`\
 https://nytimes.com/2025/06/13/us/trumps-national-guard-court-rulings.html
-
-**Ye Arrives at Sean Combs Trial in Support of Music Mogul**\
-`The rapper formerly known as Kanye West has been one of the few celebrities to publicly defend Mr. Combs, who is charged with sex trafficking and racketeering conspiracy.`\
-https://nytimes.com/2025/06/13/arts/music/sean-combs-diddy-trial-kanye.html
-
-**Casting Is the Brightest Light of Two Molière Shows**\
-`Red Bull Theater’s smart “The Imaginary Invalid” and Taylor Mac’s dismaying “Prosperous Fools” attempt to engage with the French writer’s comedy.`\
-https://nytimes.com/2025/06/13/theater/moliere-imaginary-invalid-taylor-mac.html
 
