@@ -1,4 +1,8 @@
 **Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
+`The Israeli military said it struck Iran early on Friday morning, attacking dozens of targets, including nuclear sites, and killing top Iranian military officials and scientists.`\
+https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
+
+**Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
 `summary`\
 https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
 
