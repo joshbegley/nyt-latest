@@ -1,3 +1,19 @@
+**Pierre Franey’s Five-Star Grilled Swordfish**\
+`It’s been a hit with Times readers since its publication in 1993.`\
+https://nytimes.com/2025/06/13/dining/healthy-grilled-swordfish-and-more-fathers-day-recipes.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a gaslit mother, a hungry shark, vengeful French cops, and more.`\
+https://nytimes.com/2025/06/13/movies/five-action-movies-to-stream-now.html
+
+**7 Father’s Day Movies to Watch in Theaters**\
+`Whether you’re in the mood for dragons or a new Wes Anderson, theaters this weekend are filled with fatherly flicks.`\
+https://nytimes.com/2025/06/13/movies/7-fathers-day-movies-to-watch-in-theaters.html
+
+**Mideast Tense as Long Anticipated Israel-Iran Conflict Sinks Hopes for Détente**\
+`Israel’s attacks on Iran renewed fears of war between the countries and immediately threatened the region’s economy.`\
+https://nytimes.com/2025/06/13/world/middleeast/mideast-tense-as-long-anticipated-israel-iran-conflict-sinks-hopes-for-detente.html
+
 **Judge Blocks Trump Voting Order Requiring Proof of Citizenship**\
 `A judge ruled that President Trump likely exceeded his authority with elections changes that included punishing states that didn’t stop counting ballots after Election Day.`\
 https://nytimes.com/2025/06/13/us/politics/judge-blocks-trump-voting-order-requiring-proof-of-citizenship.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6417875/2025/06/13/giannis-antetokounmpo-bucks-mail
 **Lowetide: What we've learned about Oilers in 2025 Stanley Cup Final so far**\
 `Through the first four games of the Stanley Cup Final, Oilers fans can draw some strong conclusions about the team.`\
 https://nytimes.com/athletic/6422750/2025/06/13/edmonton-oilers-2025-stanley-cup-final-lessons/
-
-**Wayne Lewis, Singer With the R&B Mainstay Atlantic Starr, Dies at 68**\
-`The group reached No. 1 on the Billboard Hot 100 in 1987 with the ballad “Always” and went on to leave a lasting impression on modern-day artists.`\
-https://nytimes.com/2025/06/13/arts/music/wayne-lewis-dead.html
-
-**How Leeds' recruitment process will work as they look to survive back in the Premier League**\
-`The Championship title winners face a big summer as they look to build a squad that can keep them in the top flight next season and beyond`\
-https://nytimes.com/athletic/6423813/2025/06/13/leeds-recruitment-transfer-window-2025-summer-latest/
-
-**When Myth Is the Message**\
-`We tend to like our truths clean and categorical, but sacred history defies such binaries.`\
-https://nytimes.com/2025/06/13/special-series/reza-aslan-myth-sacred-history.html
-
-**How USMNT's World Cup run-up, global ranking compares to past hosts**\
-`USMNT is wobbling before its home World Cup. How do the run-ups of other past hosts compare, and what did it mean for their WC performance?`\
-https://nytimes.com/athletic/6423378/2025/06/13/usmnt-world-cup-hosts-elo-rating-comparison/
 

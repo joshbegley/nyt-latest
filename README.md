@@ -1,3 +1,15 @@
+**In its latest attack on Iran, Israel’s allies voice less support and more concern.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-its-latest-attack-on-iran-israels-allies-voice-less-support-and-more-concern
+
+**The Subtle Art of the Dad Text**\
+`When it comes to corny jokes, random photos and sincere pep talks, father knows best.`\
+https://nytimes.com/interactive/2025/06/13/well/family/dad-jokes-texts-fathers-day.html
+
+**ICE Says It Has No Immediate Plans to Release Mahmoud Khalil**\
+`A federal judge ruled this week that the government cannot hold the Columbia University graduate under the rarely invoked law it used to detain him.`\
+https://nytimes.com/2025/06/13/nyregion/mahmoud-khalil-trump-detention.html
+
 **Pierre Franey’s Five-Star Grilled Swordfish**\
 `It’s been a hit with Times readers since its publication in 1993.`\
 https://nytimes.com/2025/06/13/dining/healthy-grilled-swordfish-and-more-fathers-day-recipes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/arts/design/graham-gund-dead.html
 **How Pacers nurtured an aggressive Tyrese Haliburton to seize control of NBA Finals**\
 `Rick Carlisle changed the way Tyrese Haliburton got into his pick-and-roll actions in Game 3, bringing the Pacers offense back to life.`\
 https://nytimes.com/athletic/6422702/2025/06/13/nba-finals-pacers-tyrese-haliburton-aggressive/
-
-**Forecasters Warn It May Rain on the Military Parade**\
-`Thunderstorms and extreme heat could disrupt outdoor plans around the country this weekend.`\
-https://nytimes.com/2025/06/13/weather/parade-rain-protests-forecast.html
-
-**How Bucks can tap into Giannis Antetokounmpo's playmaking: Bucks mailbag, Part III**\
-`Antetokounmpo has talked about playing for a long time. Could playing point forward help him do that? Plus, Jon Horst's extension.`\
-https://nytimes.com/athletic/6417875/2025/06/13/giannis-antetokounmpo-bucks-mailbag/
-
-**Lowetide: What we've learned about Oilers in 2025 Stanley Cup Final so far**\
-`Through the first four games of the Stanley Cup Final, Oilers fans can draw some strong conclusions about the team.`\
-https://nytimes.com/athletic/6422750/2025/06/13/edmonton-oilers-2025-stanley-cup-final-lessons/
 
