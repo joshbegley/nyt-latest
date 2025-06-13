@@ -1,3 +1,7 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 6/13 at 2:00 p.m. ET**\
+`Submit your MLB and fantasy baseball questions for Eno Sarris' latest live chat.`\
+https://nytimes.com/athletic/6424463/2025/06/13/sarris-live-chat-mlb-fantasy-baseball-6-13/
+
 **Is There a Safest Seat in a Plane Crash? We Asked Experts.**\
 `With all eyes on the sole survivor of Air India Flight 171, aviation insiders say that in an air catastrophe, “all bets are off” and seat choice matters little.`\
 https://nytimes.com/2025/06/13/travel/safest-seat-airplane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/nyregion/dao-yin-straw-donor.html
 **Suarez says MLS teams can surprise 'fatigued' European sides at Club World Cup**\
 `The former Barcelona forward says the European clubs are the favourites but has predicted upsets after a "long season."`\
 https://nytimes.com/athletic/6424360/2025/06/13/suarez-inter-miami-club-world-cup/
-
-**The U.S. is positioning warships to help protect Israel and American forces from Iranian strikes.**\
-`By Helene Cooper`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/us-forces-middle-east
 
