@@ -1,3 +1,11 @@
+**Arthur Hamilton, Who Wrote the Enduring ‘Cry Me a River,’ Dies at 98**\
+`A hit for Julie London in 1955, it was later recorded by — among many others — Ella Fitzgerald, Barbra Streisand and Michael Bublé, who praised it for its “darkness.”`\
+https://nytimes.com/2025/06/13/arts/music/arthur-hamilton-dead.html
+
+**Astros trade one-time top prospect Forrest Whitley to Rays: Source**\
+`Whitley, once the top pitching prospect in baseball, was in need of a change of scenery. Now he'll get one.`\
+https://nytimes.com/athletic/6424664/2025/06/13/forrest-whitley-trade-astros-rays/
+
 **Victor Perez sinks second-ever hole-in-one in a U.S. Open at Oakmont**\
 `Perez's ace, which was his first on the PGA Tour, was the 54th in U.S. Open history.`\
 https://nytimes.com/athletic/6424541/2025/06/13/us-open-hole-in-one-oakmont-victor-perez/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424555/2025/06/13/caitlin-clark-fever-liberty-inju
 **The Best Red-Light Devices**\
 `Text by Rory Evans`\
 https://nytimes.com/card/2025/06/13/smarter-living/wirecutter/the-best-red-light-devices
-
-**At a Weak Moment, Iran Weighs Difficult Options to Respond to Israel**\
-`An aggressive response to Israel’s attacks risks escalation. But giving in to U.S. and Israeli demands is an unlikely alternative.`\
-https://nytimes.com/2025/06/13/world/middleeast/iran-choices-israel-attacks.html
-
-**Israel’s next target is Fordo, a nuclear site hidden in a mountain.**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/israels-next-target-is-fordo-a-nuclear-site-hidden-in-a-mountain
 
