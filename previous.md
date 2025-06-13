@@ -1,40 +1,40 @@
-**Oilers' Draisaitl scores in overtime to even Stanley Cup Final series: Takeaways**\
-`Leon Draisaitl capped off the comeback for the Oilers to send the series back to Edmonton tied at two apiece.`\
-https://nytimes.com/athletic/6423283/2025/06/12/oilers-panthers-stanley-cup-final-2025-game-4-takeaways/
+**‘They Come at You’: The Grandmothers Playing Rough at a Kids’ Sport**\
+`The Ah Ma Flippa Ball team (ah ma means grandmother) is one example of how Singapore is encouraging its growing population of seniors to stay active.`\
+https://nytimes.com/2025/06/13/world/asia/singapore-aging-flippa-ball.html
 
-**Israel’s Ambition: Destroy the Heart of Iran’s Nuclear Program**\
-`It may take days, or weeks, to assess how far Israel has set back Iran’s atomic capabilities.`\
-https://nytimes.com/2025/06/12/world/middleeast/iran-nuclear-program-israel.html
+**Connections: Sports Edition Coach: Hints for June 13, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6422864/2025/06/13/connections-sports-edition-hints-for-june-13-2025/
 
-**Hong Kong Group That Lobbied for Chinese Labor Rights Shuts Down**\
-`The China Labor Bulletin, which tracks factory closures and worker protests in China, cited financial difficulties for its dissolution.`\
-https://nytimes.com/2025/06/12/business/hong-kong-labor-rights-nonprofit-closes.html
+**Oh No, They Think He’s My Husband**\
+`My father and I were the only non-couple on the couples cruise.`\
+https://nytimes.com/2025/06/13/style/modern-love-they-think-my-father-is-my-husband.html
 
-**Israel Killed Top Iranian Commanders and Nuclear Scientists, Iran Says**\
-`Israel has long targeted Iranian officials for assassination. But these attacks marked a significant shift in tactics, targeting multiple officials at once inside Iran.`\
-https://nytimes.com/2025/06/12/world/middleeast/irgc-iran-israel-strikes-nuclear.html
+**Building Things Together Became Their ‘Love Language’**\
+`Van Bloys and Joe Whited, who met at a party 13 years ago, built a solid foundation in their relationship through real estate projects.`\
+https://nytimes.com/2025/06/13/style/van-bloys-joe-whited-wedding.html
 
-**What We Know About the L.A. Protests So Far**\
-`The Trump administration is facing legal challenges to its deployment of Marines and National Guard troops to Los Angeles. Shawn Hubler, the Los Angeles bureau chief for The New York Times, talks with Katrin Bennhold, a senior writer, about what she’s seen on the ground in the city.`\
-https://nytimes.com/video/world/americas/100000010221397/what-we-know-about-the-la-protests-so-far.html
+**A Celebration With Big ‘Jamaican-Nigerian Energy’**\
+`Kunle Apampa, who is Nigerian, and Nia Mitchell, who is Jamaican, infused both of their cultures into their wedding festivities.`\
+https://nytimes.com/2025/06/13/style/nia-mitchell-kunle-apampa-wedding.html
 
-**Oil Prices Surge and Stock Markets Stumble After Israel’s Attack**\
-`The military strikes jolted investors, raising concerns that a broader Mideast conflict would disrupt the world’s energy supplies.`\
-https://nytimes.com/2025/06/12/business/energy-environment/israel-iran-oil-stock-markets.html
+**What’s Black and White and Began with a Message on LinkedIn?**\
+`Colette Laxton and Mark Curry use the two-color scheme for the packaging on the products for their company, the Inkey List, and as a philosophy for their relationship — “total honesty always,” as she put it.`\
+https://nytimes.com/2025/06/13/style/whats-black-and-white-and-began-with-a-message-on-linkedin.html
 
-**In L.A., the Divide Between Peace and Violence Is in the Eye of the Beholder**\
-`Los Angeles, a city marked by fiery and full-throated protests, adds a new chapter to that history.`\
-https://nytimes.com/2025/06/12/us/politics/los-angeles-protests-peace-violence.html
+**They Fell in Love to the Soundtrack of R&B**\
+`Debra Robinson and Andre Galloway bonded over love songs. At Sismas, a holiday event, their favorite song, “Good Luck Charm” by Jagged Edge, signaled a new chapter in their relationship.`\
+https://nytimes.com/2025/06/13/style/debra-robinson-andre-galloway-wedding.html
 
-**Review: Macheath, Polly and the Gang Wash Up in Five Points**\
-`At Little Island, “The Counterfeit Opera” falls short of its wildly successful historical models.`\
-https://nytimes.com/2025/06/12/arts/music/review-the-counterfeit-opera-little-island.html
+**Corrections: June 13, 2025**\
+`Corrections that appeared in print on Friday, June 13, 2025.`\
+https://nytimes.com/2025/06/12/pageoneplus/corrections-june-13-2025.html
 
-**Review: Jean Smart, Gritty and Poetic in ‘Call Me Izzy’**\
-`The “Hacks” star returns to Broadway after 25 years in a triumph for her, if not for the old-fashioned, flowery play about spouse abuse.`\
-https://nytimes.com/2025/06/12/theater/call-me-izzy-review-jean-smart.html
+**Quote of the Day: ‘Oasis’ in the Mountains Beckons the War-Weary**\
+`Quotation of the Day for Friday, June 13, 2025.`\
+https://nytimes.com/2025/06/12/pageoneplus/quote-of-the-day-oasis-in-the-mountains-beckons-the-war-weary.html
 
-**Inside the Jury Room at the Weinstein Trial, Rancor and Recrimination**\
-`As the panelists deliberated over whether the former Hollywood mogul should be convicted of sex crimes for a second time in Manhattan, accusations began to fly.`\
-https://nytimes.com/2025/06/12/nyregion/weinstein-jurors-mistrial.html
+**Tigers' Tarik Skubal jokes about huge contract that 'sounds good' to him**\
+`The interaction was clearly tongue-in-cheek, but it spotlighted the inevitable negotiations ahead for the Tigers ace.`\
+https://nytimes.com/athletic/6423301/2025/06/12/tarik-skubal-contract-extension-tigers/
 

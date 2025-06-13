@@ -1,3 +1,7 @@
+**Newcastle already have five goalkeepers, so why are they trying to sign a sixth?**\
+`Eddie Howe's squad is already stacked with keepers, so how will the dynamics play out if James Trafford joins?`\
+https://nytimes.com/athletic/6421327/2025/06/13/newcastle-five-goalkeepers-sign-a-sixth/
+
 **‘They Come at You’: The Grandmothers Playing Rough at a Kids’ Sport**\
 `The Ah Ma Flippa Ball team (ah ma means grandmother) is one example of how Singapore is encouraging its growing population of seniors to stay active.`\
 https://nytimes.com/2025/06/13/world/asia/singapore-aging-flippa-ball.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/pageoneplus/corrections-june-13-2025.html
 **Quote of the Day: ‘Oasis’ in the Mountains Beckons the War-Weary**\
 `Quotation of the Day for Friday, June 13, 2025.`\
 https://nytimes.com/2025/06/12/pageoneplus/quote-of-the-day-oasis-in-the-mountains-beckons-the-war-weary.html
-
-**Tigers' Tarik Skubal jokes about huge contract that 'sounds good' to him**\
-`The interaction was clearly tongue-in-cheek, but it spotlighted the inevitable negotiations ahead for the Tigers ace.`\
-https://nytimes.com/athletic/6423301/2025/06/12/tarik-skubal-contract-extension-tigers/
 
