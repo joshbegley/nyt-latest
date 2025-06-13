@@ -1,3 +1,7 @@
+**Protesters in Chicago return to the streets.**\
+`By Julie Bosman and Robert Chiarito`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/protesters-in-chicago-return-to-the-streets
+
 **A brutally tough U.S. Open is coming. It might have already started**\
 `More than any other major and any other course, an Oakmont U.S. Open is not about your highest of highs. It’s about your lows.`\
 https://nytimes.com/athletic/6422984/2025/06/12/us-open-2025-oakmont-high-scores/

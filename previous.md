@@ -1,3 +1,7 @@
+**Protesters in Chicago return to the streets.**\
+`By Julie Bosman and Robert Chiarito`\
+https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/protesters-in-chicago-return-to-the-streets
+
 **At least 22 states join California in its effort to block Trump’s troop deployment.**\
 `Washington State, Vermont and others have joined a legal brief backing Gov. Gavin Newsom’s request to block the deployment of California’s National Guard.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/at-least-22-states-join-california-in-its-effort-to-block-trumps-troop-deployment
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/12/nyregion/nyc-mayor-debate-cuomo-mamdani.html
 **Twins' rotation problems grow as Bailey Ober struggles with hip issue, mechanics**\
 `Ober's not looking like himself, and injuries to Pablo López and Zebby Matthews have turned the Twins' rotation from strength to weakness.`\
 https://nytimes.com/athletic/6422293/2025/06/12/twins-lose-rangers-bailey-ober-struggles-hip-mechanics/
-
-**Owner in Dominican Nightclub Roof Collapse Is Arrested**\
-`After the collapse killed 236 people, an employee came forward with evidence the owners had been warned the roof posed a danger.`\
-https://nytimes.com/2025/06/12/world/americas/dominican-nightclub-roof-collapse-owner-arrest.html
 
