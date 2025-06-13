@@ -1,3 +1,7 @@
+**‘Materialists’ | Anatomy of a Scene**\
+`Celine Song narrates a sequence from her film featuring Dakota Johnson, Pedro Pascal and Chris Evans.`\
+https://nytimes.com/video/movies/100000010225402/materialists-scene.html
+
 **Grieving Relatives of India Air Crash Victims Wait for Bodies to Be Identified**\
 `Families lined up for hours to give DNA samples so the authorities could match names to victims of Thursday’s crash, which killed at least 269 people.`\
 https://nytimes.com/2025/06/13/world/asia/india-air-crash-victims.html

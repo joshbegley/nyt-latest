@@ -1,40 +1,40 @@
-**‘Materialists’ | Anatomy of a Scene**\
-`Celine Song narrates a sequence from her film featuring Dakota Johnson, Pedro Pascal and Chris Evans.`\
-https://nytimes.com/video/movies/100000010225402/materialists-scene.html
+**Watch Dakota Johnson and Pedro Pascal Spark in ‘Materialists’**\
+`The writer and director Celine Song narrates a sequence from her film, which also features Chris Evans.`\
+https://nytimes.com/2025/06/13/movies/dakota-johnson-pedro-pascal-materialists-clip.html
 
-**Residents of Tehran Awake to Devastation**\
-`After a terrifying night filled with loud explosions, long lines were forming at gas stations and grocery stores were filling up as Iranians prepared uncertain times.`\
-https://nytimes.com/2025/06/13/world/middleeast/israel-iran-tehran-attack.html
+**Which Law Enforcement Agencies Are at the Los Angeles Protests?**\
+`A Times analysis identified more than a dozen agencies that were on the ground in the past week. See which are represented, the gear they carry and how they interact.`\
+https://nytimes.com/interactive/2025/06/13/us/la-protests-immigration-law-enforcement.html
 
-**Grieving Relatives of India Air Crash Victims Wait for Bodies to Be Identified**\
-`Families lined up for hours to give DNA samples so the authorities could match names to victims of Thursday’s crash, which killed at least 269 people.`\
-https://nytimes.com/2025/06/13/world/asia/india-air-crash-victims.html
+**The New York Times News Quiz, June 13, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/06/13/briefing/la-protests-trump-news-quiz.html
 
-**Club World Cup betting picks: The race to turn £10 into £100**\
-`Sam Tighe and Brett Koremenos detail their betting tips for The Athletic's brand new series "the race for 100". `\
-https://nytimes.com/athletic/6421564/2025/06/13/club-world-cup-betting-race-for-100/
+**13 Young Gen Z-ers on Whether America’s Best Days Are Behind It**\
+`The group discuss early adulthood, Donald Trump, artificial intelligence and more.`\
+https://nytimes.com/interactive/2025/06/13/opinion/college-grads-focus-group.html
 
-**Club World Cup Matchday 1 odds: slam dunks and wildcard picks**\
-`Sam Tigh offers his expert insight on the best bets to place ahead of the Club World Cup’s opening round of fixtures. `\
-https://nytimes.com/athletic/6421539/2025/06/13/club-world-cup-matchday-one-betting-predictions-tips-odds/
+**Progressives Need a Global Movement**\
+`To counter the authoritarian threat, the left must develop a clear picture of the world it wants to create.`\
+https://nytimes.com/2025/06/13/opinion/progressives-global-movement-organizing.html
 
-**A Reporter Explains What Is Driving the L.A. Protests**\
-`After months of anticipation, workplace raids became a reality in a city with a strong base of activism.`\
-https://nytimes.com/2025/06/13/insider/reporter-explains-la-protests.html
+**How to Survive a Crisis**\
+`An international disaster adviser shares advice for going through a difficult time.`\
+https://nytimes.com/2025/06/13/well/how-to-survive-a-crisis.html
 
-**10 Questions With Zellnor Myrie**\
-`Zellnor Myrie, a state senator from Brooklyn who is running for mayor, visited The New York Times for an interview.`\
-https://nytimes.com/2025/06/13/nyregion/zellnor-myrie-interview.html
+**Broadway Shows Closing Soon: ‘Dorian Gray,’ ‘Sunset Boulevard’ and More**\
+`Catch two Tony-winning performances, Sarah Snook in the Oscar Wilde classic and Nicole Scherzinger as Norma Desmond, before these productions and others wrap up.`\
+https://nytimes.com/2025/06/13/theater/broadway-shows-closing-soon.html
 
-**In N.Y.C. Mayor’s Race, Top Democrats Take On Trump and Their Own Party**\
-`The primary has taken on national implications, with the top two candidates tapping into Democratic voters’ hunger for a fight.`\
-https://nytimes.com/2025/06/13/nyregion/cuomo-mamdani-mayor-debate.html
+**Is There a Wrong Way to Make Paella?**\
+`A ruling on how to properly prepare the iconic Spanish dish.`\
+https://nytimes.com/interactive/2025/06/13/magazine/paella-hodgman-quiz.html
 
-**How an Exonerated Man Lost the Chance to Tell His Story**\
-`Timothy Mucciante, a former lawyer convicted of fraud, helped exonerate Anthony Broadwater of rape in 2021. Soon after, their friendship fell apart.`\
-https://nytimes.com/2025/06/13/nyregion/anthony-broadwater-documentary.html
+**What has Dak Prescott 'super excited' about the Cowboys' offense?**\
+`The Dallas QB is looking forward to family time, but he's also excited about his June trip with some of the team's skill-position players.`\
+https://nytimes.com/athletic/6422952/2025/06/13/cowboys-offense-dak-prescott-george-pickens/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/13/crosswords/spelling-bee-forum.html
+**Remembering Sly Stone and Brian Wilson**\
+`A conversation about two pop visionaries whose lives, careers and legacies only grew more complex over time.`\
+https://nytimes.com/2025/06/13/arts/music/sly-stone-brian-wilson-popcast.html
 
