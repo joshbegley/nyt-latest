@@ -1,3 +1,7 @@
+**Trump Says Iran ‘Must Make a Deal, Before There Is Nothing Left’**\
+`In his first public comments on the Israeli strikes against Iran, the U.S. president said Tehran had brought the destruction on itself and must continue nuclear talks.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-nuclear-deal-trump-us-israel-strikes.html
+
 **Aston Villa make approach to sign Rodriguez from Real Betis**\
 `Rodriguez is among the options senior Villa figures have contacted to outline parameters of a potential deal.`\
 https://nytimes.com/athletic/6423698/2025/06/13/aston-villa-transfer-jesus-rodriguez/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/13/us/trump-news
 **A new goalkeeping rule and 'Ref Cam': How the Club World Cup will be refereed**\
 `What new rules will be in force for this summer's competition and how will they be applied?`\
 https://nytimes.com/athletic/6421570/2025/06/13/club-world-cup-referees-var-explained/
-
-**Israel’s Strike on Iran Comes at a Moment of Weakness for Iran’s Proxies**\
-`Iran’s “Axis of Resistance,” the network of militias it has fostered in the Middle East to help it fight Israel, has become seriously degraded, experts say.`\
-https://nytimes.com/2025/06/13/world/middleeast/iran-proxies-axis-hezbollah-israel.html
 
