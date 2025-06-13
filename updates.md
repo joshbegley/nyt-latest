@@ -1,3 +1,15 @@
+**Bloomberg Gives $5 Million to Pro-Cuomo Super PAC as Primary Nears**\
+`The contribution by Michael R. Bloomberg is the largest in New York City and closely follows his endorsement of Andrew M. Cuomo for mayor.`\
+https://nytimes.com/2025/06/13/nyregion/bloomberg-cuomo-super-pac.html
+
+**Jury in Karen Read Trial Begins Deliberations**\
+`The Boston-area woman was accused of killing her police officer boyfriend in 2022.`\
+https://nytimes.com/2025/06/13/us/jury-in-karen-read-trial-begins-deliberations.html
+
+**How Harbaugh's text to Jason Sudeikis inspired 'Ted Lasso' gameday attire**\
+`"I pack a toothbrush and a great attitude," Harbaugh told Sudeikis, sounding like the fictional cheery soccer coach.`\
+https://nytimes.com/athletic/6424575/2025/06/13/jim-harbaugh-jason-sudeikis-ted-lasso-gameday-attire/
+
 **Flashback: Your Weekly History Quiz, June 14, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/06/13/upshot/flashback.html
