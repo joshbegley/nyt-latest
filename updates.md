@@ -1,3 +1,11 @@
+**5 Takeaways From the Democrats’ Final N.Y.C. Mayoral Debate**\
+`The two front-runners in the New York City mayor’s race, Andrew M. Cuomo and Zohran Mamdani, traded barbs over their records, immigration and a host of other issues.`\
+https://nytimes.com/2025/06/12/nyregion/debate-takeaways-mayor-nyc.html
+
+**Is Brooks Koepka back? The guy in U.S. Open contention looks a lot like the old Brooks**\
+`It's been more than two years since Koepka won his last major, but he's suddenly two shots behind leader J.J. Spaun.`\
+https://nytimes.com/athletic/6423010/2025/06/12/brooks-koepka-us-open-golf/
+
 **Brewers' Jacob Misiorowski dazzles in debut, exits with cramping**\
 `The fifth pitch of Misiorowski's debut — a 102.2 mph fastball — was the hardest-thrown pitch by a Brewers starter in the pitch-tracking era.`\
 https://nytimes.com/athletic/6423202/2025/06/12/jacob-misiorowski-brewers-debut-apparent-injury/
