@@ -1,3 +1,15 @@
+**How Leeds' recruitment process will work as they look to survive back in the Premier League**\
+`The Championship title winners face a big summer as they look to build a squad that can keep them in the top flight next season and beyond`\
+https://nytimes.com/athletic/6423813/2025/06/13/leeds-recruitment-transfer-window-2025-summer-latest/
+
+**When Myth Is the Message**\
+`We tend to like our truths clean and categorical, but sacred history defies such binaries.`\
+https://nytimes.com/2025/06/13/special-series/reza-aslan-myth-sacred-history.html
+
+**How USMNT's World Cup run-up, global ranking compares to past hosts**\
+`USMNT is wobbling before its home World Cup. How do the run-ups of other past hosts compare, and what did it mean for their WC performance?`\
+https://nytimes.com/athletic/6423378/2025/06/13/usmnt-world-cup-hosts-elo-rating-comparison/
+
 **Inzaghi leaves Pisa after Serie A promotion**\
 `Inzaghi led the club back to the top-flight for the first time in 34 years with a second-placed finish in the 2024-25 season.`\
 https://nytimes.com/athletic/6424037/2025/06/13/filippo-inzaghi-manager-pisa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6405791/2025/06/13/franco-mastantuono-real-madrid-t
 **Striking the Heart of the Iranian Regime, Netanyahu Looks to His Legacy**\
 `Israel has long fought a shadow war with Iran while avoiding all-out conflict. Now Prime Minister Benjamin Netanyahu is risking it all in pursuit of a conclusive victory.`\
 https://nytimes.com/2025/06/13/world/middleeast/israel-iran-attack-netanyahu.html
-
-**She Confronted a History of Enslavers in Her Family. Here’s What Happened.**\
-`Debra Bruno’s story illuminates the often overlooked history of slavery in the North.`\
-https://nytimes.com/2025/06/13/us/enslavers-family-history.html
-
-**Lions legend Barry Sanders opens up about heart attack, hopes to educate in new documentary**\
-`The Hall of Fame running back said his health scare was eye-opening.`\
-https://nytimes.com/athletic/6423192/2025/06/13/lions-barry-sanders-heart-attack-documentary/
-
-**Who stays, who goes from the Sharks' roster this offseason?**\
-`As the Sharks attempt to take steps forward, how might the roster change this summer?`\
-https://nytimes.com/athletic/6420802/2025/06/13/san-jose-sharks-offseason-roster/
 
