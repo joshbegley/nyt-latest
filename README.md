@@ -1,3 +1,15 @@
+**The Athletic FC: The rise of Infantino, 'King of Soccer', Liverpool agree £116m Wirtz deal**\
+`Today in TAFC: How do people that know FIFA president Gianni Infantino view him? Plus: Frank signs deal at Tottenham, Trent unveiled.`\
+https://nytimes.com/athletic/6423599/2025/06/13/infantino-trump-club-world-cup-wirtz-liverpool-116m/
+
+**Game 4 hero Leon Draisaitl inspired Oilers' momentum swing on and off the ice**\
+`“I don’t know what could be said that really conveys what he brings to our team,” said Oilers coach Kris Knoblauch.`\
+https://nytimes.com/athletic/6423508/2025/06/13/leon-draisaitl-oilers-stanley-cup-final/
+
+**The Pulse: The best Stanley Cup Final ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6422250/2025/06/13/oilers-panthers-game-4-the-pulse/
+
 **Pope Leo Says He’ll Canonize First Millennial Saint in September**\
 `Carlo Acutis, an Italian teenager, was meant to be made a saint in April, but the ceremony was postponed because of Pope Francis’ death.`\
 https://nytimes.com/2025/06/13/world/europe/millennial-saint-carlo-acutis-roman-catholic.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6422878/2025/06/13/vikings-minicamp-jj-mccarthy-jos
 **Israel’s Stunning Attack on Iran, and India Plane Crash Survivor Speaks**\
 `Plus, Friday’s news quiz.`\
 https://nytimes.com/2025/06/13/podcasts/the-headlines/israel-iran-trump-national-guard.html
-
-**Fenway Park in Texas? Wiffle ball field an 'incredible' replica of iconic Red Sox stadium**\
-`Ahead of the Red Sox-Yankees series at Fenway Park, one field in small-town Texas brings everything to those who can't make it to Boston.`\
-https://nytimes.com/athletic/6419664/2025/06/13/red-sox-mlb-replica-wiffle-ball-yankees/
-
-**Zack Wheeler's way: The ace who knows what he likes — and has no time for everything else**\
-`Wheeler has improved with age, defying assumptions about what an ace needs to stay elite in modern baseball. He has done it his way. `\
-https://nytimes.com/athletic/6391640/2025/06/13/zack-wheeler-phillies-mlb-ace/
-
-**Last year's Tigers caught lightning in a bottle; this year's team is staying lightning hot**\
-`October baseball last year was a near impossibility for Detroit, but October baseball this year is an expectation.`\
-https://nytimes.com/athletic/6423296/2025/06/13/tigers-aj-hinch-tarik-skubal/
 
