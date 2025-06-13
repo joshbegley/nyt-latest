@@ -2,7 +2,7 @@
 `Washington State, Vermont and others have joined a legal brief backing Gov. Gavin Newsom’s request to block the deployment of California’s National Guard.`\
 https://nytimes.com/live/2025/06/12/us/la-protests-trump-marines-ice/at-least-22-states-join-california-in-its-effort-to-block-trumps-troop-deployment
 
-**The U.S. Open carnage is coming. It may have already started**\
+**A brutally tough U.S. Open is coming. It might have already started**\
 `More than any other major and any other course, an Oakmont U.S. Open is not about your highest of highs. It’s about your lows.`\
 https://nytimes.com/athletic/6422984/2025/06/12/us-open-2025-oakmont-high-scores/
 
@@ -31,7 +31,7 @@ https://nytimes.com/2025/06/12/nyregion/new-york-police-sex-crimes-settlement.ht
 https://nytimes.com/2025/06/12/nyregion/nyc-mayor-debate-cuomo-mamdani.html
 
 **Twins' rotation problems grow as Bailey Ober struggles with hip issue, mechanics**\
-`Ober's not looking like himself and injuries to Pablo López and Zebby Matthews have turned the Twins' rotation from strength to weakness.`\
+`Ober's not looking like himself, and injuries to Pablo López and Zebby Matthews have turned the Twins' rotation from strength to weakness.`\
 https://nytimes.com/athletic/6422293/2025/06/12/twins-lose-rangers-bailey-ober-struggles-hip-mechanics/
 
 **Owner in Dominican Nightclub Roof Collapse Is Arrested**\
