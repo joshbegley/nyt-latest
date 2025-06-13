@@ -1,3 +1,7 @@
+**Aces star A'ja Wilson will miss Friday's game, enters concussion protocol**\
+`Las Vegas is currently in 4-4, sitting 6th in the WNBA standings.`\
+https://nytimes.com/athletic/6424911/2025/06/13/aces-aja-wilson-out-enters-concussion-protocol/
+
 **Harris Yulin, Actor Who Perpetually Played the Bad Guy, Dies at 87**\
 `As an award-winning actor and director, he appeared in scores of stage plays, movies and TV shows over six decades, most often as unsavory characters.`\
 https://nytimes.com/2025/06/13/arts/television/harris-yulin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/world/middleeast/israel-iran-missiles-defense.htm
 **Trump’s $1.1 Billion Public Broadcasting Clawback Faces Pushback in the Senate**\
 `Some Republican senators are voicing concern over the House-passed bill that would rescind $9 billion that Congress already approved, including money for NPR and PBS stations in their states.`\
 https://nytimes.com/2025/06/13/us/politics/trump-public-broadcasting-senate.html
-
-**How Is Extreme Heat Affecting Air Travel?**\
-`Hot weather influences aircraft performance. We asked experts what it means for safety.`\
-https://nytimes.com/2025/06/13/climate/air-travel-extreme-heat.html
 
