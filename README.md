@@ -1,3 +1,7 @@
+**Word of the Day: aspirant**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/13/learning/word-of-the-day-aspirant.html
+
 **Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
 `The Israeli military said it struck Iran early on Friday morning, attacking dozens of targets, including nuclear sites, and killing top Iranian military officials and scientists.`\
 https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6418775/2025/06/13/thomas-frank-tottenham-players/
 **Who is the real Gianni Infantino?**\
 `Before the Club World Cup, The Athletic has spoken to dozens of people to gain a clearer picture of the most powerful man in football`\
 https://nytimes.com/athletic/6415212/2025/06/13/fifa-soccer-president-gianni-infantino-history/
-
-**The offside law, Bill McCracken and, a century on, the decision that changed football forever**\
-`Exactly 100 years ago, the International Football Association Board met at 22 Rue de Londres in Paris and changed the offside law`\
-https://nytimes.com/athletic/6415406/2025/06/13/offside-rule-mccracken-ifab-newcastle/
 
