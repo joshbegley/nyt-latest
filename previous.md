@@ -1,3 +1,7 @@
+**Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
+`summary`\
+https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
+
 **Friday Briefing**\
 `In a major attack, Israel has struck Iran’s nuclear program.`\
 https://nytimes.com/2025/06/13/briefing/israel-iran-india-plane.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6415212/2025/06/13/fifa-soccer-president-gianni-inf
 **The offside law, Bill McCracken and, a century on, the decision that changed football forever**\
 `Exactly 100 years ago, the International Football Association Board met at 22 Rue de Londres in Paris and changed the offside law`\
 https://nytimes.com/athletic/6415406/2025/06/13/offside-rule-mccracken-ifab-newcastle/
-
-**Who are Madrid's academy players going to the Club World Cup and could they play?**\
-`Xabi Alonso has named 10 academy players in his squad for the U.S., with some attracting interest from elsewhere`\
-https://nytimes.com/athletic/6421912/2025/06/13/real-madrid-academy-club-world-cup/
 

@@ -1,3 +1,7 @@
+**Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
+`summary`\
+https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
+
 **Friday Briefing**\
 `In a major attack, Israel has struck Iran’s nuclear program.`\
 https://nytimes.com/2025/06/13/briefing/israel-iran-india-plane.html
