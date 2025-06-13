@@ -1,3 +1,7 @@
+**Word of the Day: aspirant**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/06/13/learning/word-of-the-day-aspirant.html
+
 **Israel’s Strikes on Iran’s Nuclear Program: Maps and Photos**\
 `The Israeli military said it struck Iran early on Friday morning, attacking dozens of targets, including nuclear sites, and killing top Iranian military officials and scientists.`\
 https://nytimes.com/interactive/2025/06/12/world/middleeast/iran-israel-maps.html
