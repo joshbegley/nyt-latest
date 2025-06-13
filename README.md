@@ -1,3 +1,15 @@
+**Judge Signals Openness to Granting Bail to Returned Deportee**\
+`Denying the Justice Department’s request to detain the deportee would be a significant rebuke of the Trump administration, which has repeatedly cast him as a dangerous criminal.`\
+https://nytimes.com/2025/06/13/us/politics/abrego-garcia-judge-bail.html
+
+**Saints sign running back Cam Akers: Source**\
+`The 2020 second-round pick spent last season with the Houston Texans and Minnesota Vikings.`\
+https://nytimes.com/athletic/6425101/2025/06/13/saints-sign-cam-akers/
+
+**Park Area Closed to Recover Body of Teen Who Fell Over 50-Foot Waterfall**\
+`Officials said that the body was spotted in Olympic National Park in Washington State on Monday, but that it was pinned behind a surge of water and was hard to reach.`\
+https://nytimes.com/2025/06/13/us/waterfall-death-olympic-national-park.html
+
 **Marthe Cohn, a Wartime Jewish Nurse Who Spied for the French, Dies at 105**\
 `Fluent in German and passing as an Aryan, she once crossed into Germany, uncovered Nazi military secrets and nursed a wounded, and deceived, SS officer.`\
 https://nytimes.com/2025/06/13/us/marthe-cohn-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010228151/iran-israel-strikes.h
 **Marsch lauds Canada's Gold Cup commitment as USMNT wrestles with same topic**\
 `Jesse Marsch claims his comments weren't a dig at the USMNT and star Christian Pulisic, but the aren't many other ways to read into them.`\
 https://nytimes.com/athletic/6424945/2025/06/13/jesse-marsch-canada-usmnt-commitment-christian-pulisic-gold-cup/
-
-**Death Toll Rises to 11 in San Antonio Flooding**\
-`Several people were missing on Friday as search efforts continued a day after flash flooding overwhelmed the area.`\
-https://nytimes.com/2025/06/13/weather/flooding-san-antonio-texas-deaths.html
-
-**Judge Blocks ICE Plan to Open Rikers Office Indefinitely**\
-`The decision is a blow to Mayor Eric Adams, who sought to help the Trump administration expand its immigration crackdown.`\
-https://nytimes.com/2025/06/13/nyregion/ice-rikers-island-judge-mayor-adams.html
-
-**Dara Birnbaum, 78, Dies; Video Was Her Medium and Her Message**\
-`As early as the 1970s, she demonstrated that mass media was fair game as artistic material, and that its power could be turned against itself.`\
-https://nytimes.com/2025/06/13/arts/dara-birnbaum-dead.html
 
