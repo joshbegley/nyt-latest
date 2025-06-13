@@ -1,3 +1,11 @@
+**A Billionaire Island Where Bezos and Kushner Live Is Fighting Over Sewage**\
+`Indian Creek Village, the “Billionaire Bunker” near Miami, couldn’t get approval to discharge its waste into a neighboring town’s sewer lines. So the village quietly persuaded state lawmakers to come to the rescue.`\
+https://nytimes.com/2025/06/13/us/indian-creek-surfside-billionaire-sewage.html
+
+**Sunjay Kapur, Businessman and Ex-Husband of Bollywood Star, Dies at 53**\
+`Mr. Kapur, who died of a heart attack after playing in a polo match in England, was formerly married to the Bollywood star Karisma Kapoor.`\
+https://nytimes.com/2025/06/13/business/sunjay-kapur-dead.html
+
 **50 Years After ‘Jaws’ Terrified Filmgoers, a Reporter Looks Back**\
 `The culture critic Brian Raftery, who wrote about “Jaws” for the Book Review last year, discusses the movie’s anniversary with Gilbert Cruz.`\
 https://nytimes.com/2025/06/13/books/review/podcast-jaws-50th.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/13/well/eat/infant-formula-health-fda.html
 **What to Expect at the Army’s 250th Anniversary Parade**\
 `The event will kick off when Army officials report to President Trump — who turns 79 on the same day — and end when parachutists jump from the sky and present a flag to him.`\
 https://nytimes.com/interactive/2025/06/13/us/trump-military-parade.html
-
-**Al Hilal say club 'don't print money', amid lack of transfer deals**\
-`Al Hilal have previously signed Euro-based players including Neymar, Ruben Neves, Aleksandr Mitrovic and Joao Cancelo,`\
-https://nytimes.com/athletic/6424369/2025/06/13/al-hilal-transfers-club-world-cup/
-
-**How to Think About What’s Happening With Iran and Israel**\
-`There are a number of factors to consider as we make sense of what’s happening with Iran and Israel — and the possibility for very good and very bad outcomes.`\
-https://nytimes.com/2025/06/13/opinion/israel-iran-strikes.html
 

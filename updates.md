@@ -1,3 +1,11 @@
+**A Billionaire Island Where Bezos and Kushner Live Is Fighting Over Sewage**\
+`Indian Creek Village, the “Billionaire Bunker” near Miami, couldn’t get approval to discharge its waste into a neighboring town’s sewer lines. So the village quietly persuaded state lawmakers to come to the rescue.`\
+https://nytimes.com/2025/06/13/us/indian-creek-surfside-billionaire-sewage.html
+
+**Sunjay Kapur, Businessman and Ex-Husband of Bollywood Star, Dies at 53**\
+`Mr. Kapur, who died of a heart attack after playing in a polo match in England, was formerly married to the Bollywood star Karisma Kapoor.`\
+https://nytimes.com/2025/06/13/business/sunjay-kapur-dead.html
+
 **50 Years After ‘Jaws’ Terrified Filmgoers, a Reporter Looks Back**\
 `The culture critic Brian Raftery, who wrote about “Jaws” for the Book Review last year, discusses the movie’s anniversary with Gilbert Cruz.`\
 https://nytimes.com/2025/06/13/books/review/podcast-jaws-50th.html
