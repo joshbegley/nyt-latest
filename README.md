@@ -1,3 +1,7 @@
+**Trump Shifts Deportation Focus, Pausing Raids on Farms, Hotels and Eateries**\
+`The abrupt pivot on an issue at the heart of Mr. Trump’s presidency suggested his broad immigration crackdown was hurting industries and constituencies he does not want to lose.`\
+https://nytimes.com/2025/06/13/us/politics/trump-ice-raids-farms-hotels.html
+
 **A Miscalculation by Iran Led to Israeli Strikes’ Extensive Toll, Officials Say**\
 `Interviews with half a dozen senior Iranian officials show that they were not expecting Israel to strike before another round of talks.`\
 https://nytimes.com/2025/06/13/world/middleeast/iran-israel-strikes-nuclear-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/us/politics/voice-of-america-farsi-iran-news.html
 **Flash Flooding in Texas Leaves Several Dead**\
 `Officials said that they were still searching for survivors after a storm on Thursday in the San Antonio region.`\
 https://nytimes.com/video/weather/100000010228460/san-antonio-flooding-death-toll.html
-
-**Another rough rehab start leaves Frankie Montas' big-league role in doubt**\
-`The 32-year-old righty allowed eight earned runs in 1 2/3 innings for Triple-A Syracuse on Friday. `\
-https://nytimes.com/athletic/6425270/2025/06/13/mets-frankie-montas-big-league-role/
 

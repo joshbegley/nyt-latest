@@ -1,3 +1,7 @@
+**A Miscalculation by Iran Led to Israeli Strikes’ Extensive Toll, Officials Say**\
+`Interviews with half a dozen senior Iranian officials show that they were not expecting Israel to strike before another round of talks.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-israel-strikes-nuclear-talks.html
+
 **Here Are Some of the Southern California Immigration Raids From the Past Week**\
 `At least five carwashes across Los Angeles County and Orange County have been raided since Sunday, according to one labor group.`\
 https://nytimes.com/2025/06/13/us/politics/southern-california-immigration-raids.html
