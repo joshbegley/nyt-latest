@@ -1,3 +1,7 @@
+**Gentle Nudge**\
+`Solvers finally get a solo Saturday puzzle from Barbara Lin, and it rocks.`\
+https://nytimes.com/2025/06/13/crosswords/daily-puzzle-2025-06-14.html
+
 **Trump Supporters Plan Birthday Celebrations**\
 `As others plan protests, Republicans across the country have organized parties to commemorate the president’s 79th birthday and honor the Army.`\
 https://nytimes.com/2025/06/13/us/trump-birthday-parties-protests.html
