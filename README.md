@@ -1,3 +1,7 @@
+**Two Major Energy Facilities in Tehran Hit in Israeli Strikes**\
+`Across Iran’s capital, flames and smoke covered the sky.`\
+https://nytimes.com/2025/06/14/world/middleeast/iran-israel-energy-facility-strikes-tehran.html
+
 **Melania Trump Suits Up for the Military Parade**\
 `The first lady’s outfit was fully in line with the controlled and contained public image she had been crafting since the end of her husband’s first term.`\
 https://nytimes.com/2025/06/14/us/politics/melania-trump-military-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/trump-parade/a-few-hundred-gathered-to-pr
 **Dodgers expected to activate Emmet Sheehan this week: Sources**\
 `The 25-year-old righty had Tommy John surgery in May 2024. He has a 3.97 ERA and 21 strikeouts in 11 1/3 minor-league innings this season.`\
 https://nytimes.com/athletic/6426269/2025/06/14/dodgers-emmet-sheehan-return-rotation/
-
-**Arrest Made After ‘Credible Threat’ to Texas Lawmakers, Official Says**\
-`The threat came after shootings early Saturday that killed a Minnesota lawmaker and her husband and wounded another Minnesota lawmaker and his wife.`\
-https://nytimes.com/2025/06/14/us/austin-tx-credible-threat-arrest.html
 
