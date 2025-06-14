@@ -1,3 +1,15 @@
+**Max Verstappen: Talk about F1 race ban threat now ‘really pissing me off’**\
+`Max Verstappen has hit out at repeated questions about his F1 race ban threat after 2025 Canadian Grand Prix qualifying`\
+https://nytimes.com/athletic/6426299/2025/06/14/max-verstappen-race-ban-canadian-gp-qualifying/
+
+**Britain Agrees to Open New Inquiry Into Child Sex Abuse**\
+`Britain’s prime minister reverses his position on the need for a national investigation into the abuse scandal, after criticism by Elon Musk.`\
+https://nytimes.com/2025/06/14/world/europe/britain-child-sex-abuse-inquiry.html
+
+**A few hundred gathered to protest Trump in D.C., in the shadow of the parade.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/a-few-hundred-gathered-to-protest-trump-in-dc-in-the-shadow-of-the-parade
+
 **Dodgers expected to activate Emmet Sheehan this week: Sources**\
 `The 25-year-old righty had Tommy John surgery in May 2024. He has a 3.97 ERA and 21 strikeouts in 11 1/3 minor-league innings this season.`\
 https://nytimes.com/athletic/6426269/2025/06/14/dodgers-emmet-sheehan-return-rotation/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6426149/2025/06/14/f1-canadian-gp-qualifying-george
 **Trump’s Military Parade Is Designed for TV, but It Won’t Be on Every Channel**\
 `A minor-league football championship game will air on ABC. Fox News, CNN and C-SPAN will carry the four-hour festivities live.`\
 https://nytimes.com/2025/06/14/business/media/trump-parade-tv-channels.html
-
-**‘No Kings’ Protests Across the United States**\
-`In Photos and Video`\
-https://nytimes.com/2025/06/14/us/protests-cities-no-kings.html
-
-**Husband of slain lawmaker was ‘enthusiastic campaign spouse.’**\
-`Mark Hortman and his wife, who was a powerful Democrat in the Minnesota Legislature, were shot and killed on Saturday morning.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings/husband-of-slain-lawmaker-was-enthusiastic-campaign-spouse
-
-**Lawmaker who was fatally shot worked to tighten Minnesota’s gun control measures.**\
-`By Alyce McFadden`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings/lawmaker-who-was-fatally-shot-worked-to-tighten-minnesotas-gun-control-measures
 
