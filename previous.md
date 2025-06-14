@@ -1,3 +1,7 @@
+**What’s Going On in the Middle East?**\
+`In sweeping attacks that started Friday, Israel struck at the regime in Tehran, hitting Iranian nuclear and military assets.`\
+https://nytimes.com/video/world/middleeast/100000010226706/whats-going-on-in-the-middle-east.html
+
 **The Minnesota shootings are the latest in a string of targeted political attacks.**\
 `By Chris Hippensteel`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/the-minnesota-shootings-are-the-latest-in-a-string-of-targeted-political-attacks
@@ -10,9 +14,9 @@ https://nytimes.com/2025/06/14/climate/marine-protection-united-nations-ocean.ht
 `While Israel and Iran trade attacks, Palestinians in Gaza have been struggling to find food, connect to the internet and survive airstrikes.`\
 https://nytimes.com/2025/06/14/world/middleeast/gaza-palestinians-israel-iran-conflict.html
 
-**Who are the lawmakers who were shot?**\
-`By Ernesto Londoño and Mitch Smith`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings/hortman-hoffman-shot-minnesota
+**Who Are the Lawmakers Who Were Shot?**\
+`A Minnesota state representative and her husband were killed early Saturday, and a state senator and his wife were injured.`\
+https://nytimes.com/2025/06/14/us/politics/hortman-hoffman-shot-minnesota.html
 
 **Trump dismisses the prospect of canceling the parade because of weather.**\
 `By John Ismay`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/trump-parade/frances-bastille-day-parade-
 **Here’s the latest.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/heres-the-latest
-
-**Live Updates: Washington Readies for Parade, Protests and Plenty of Rain**\
-`A military parade Saturday evening will mark the Army’s 250th anniversary, but thunderstorms and anti-Trump demonstrations could dampen the mood.`\
-https://nytimes.com/live/2025/06/14/us/trump-parade
 

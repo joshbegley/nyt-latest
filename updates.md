@@ -1,3 +1,11 @@
+**What’s Going On in the Middle East?**\
+`In sweeping attacks that started Friday, Israel struck at the regime in Tehran, hitting Iranian nuclear and military assets.`\
+https://nytimes.com/video/world/middleeast/100000010226706/whats-going-on-in-the-middle-east.html
+
+**Who Are the Lawmakers Who Were Shot?**\
+`A Minnesota state representative and her husband were killed early Saturday, and a state senator and his wife were injured.`\
+https://nytimes.com/2025/06/14/us/politics/hortman-hoffman-shot-minnesota.html
+
 **The Minnesota shootings are the latest in a string of targeted political attacks.**\
 `By Chris Hippensteel`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/the-minnesota-shootings-are-the-latest-in-a-string-of-targeted-political-attacks
