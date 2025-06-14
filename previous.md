@@ -1,40 +1,40 @@
-**From 'worn out' to 'unbelievable.' Gilgeous-Alexander keys Thunder comeback**\
-`Don't mistake the Oklahoma City MVP's calm approach for weakness, as he showed his greatness down the stretch of Game 4. `\
-https://nytimes.com/athletic/6425551/2025/06/14/shai-gilgeous-alexander-nba-finals-demeanor-game-4/
+**Club World Cup stadium guide: 12 venues set to host the world's best**\
+`A rundown of all the venues being used for the tournament this summer.`\
+https://nytimes.com/athletic/6198652/2025/06/14/club-world-cup-stadium-guide-2025/
 
-**Asencio extends Real Madrid contract through to 2031**\
-`A renewal has been agreed through to 2031.`\
-https://nytimes.com/athletic/6402404/2025/06/14/asencio-contract-real-madrid/
+**Anton Lundell's playoff experience at 23 is a rarity in Panthers history**\
+`"I know it's not normal," Lundell said. "You try to kind of soak in everything around here. But at the end of the day it's hockey."`\
+https://nytimes.com/athletic/6425161/2025/06/14/panthers-anton-lundell-playoffs-success/
 
-**Chet Holmgren, Jalen Williams are motor that keeps OKC running: 'They want to be great'**\
-`In Game 4, the Thunder's entire big three shined at various points to pull out a hard-fought road win and tie the series.`\
-https://nytimes.com/athletic/6425394/2025/06/14/chet-holmgren-jalen-williams-thunder-pacers-game-4-nba-finals/
+**Every incident: How Max Verstappen ended up on the brink of an F1 race ban**\
+`Max Verstappen is just one penalty point away from being banned for an F1 race. Here's how he got here`\
+https://nytimes.com/athletic/6425257/2025/06/14/how-max-verstappen-got-close-to-an-f1-race-ban/
 
-**One free agent each NHL team should target this offseason**\
-`As teams look to fill holes on their rosters, we play free agency matchmaker and list one UFA each team should target this summer.`\
-https://nytimes.com/athletic/6424264/2025/06/14/nhl-free-agency-2025-players-teams-offseason/
+**America Must Not Get Dragged Into a War With Iran**\
+`A U.S. war with Iran would be a catastrophe, the culminating failure of decades of regional overreach.`\
+https://nytimes.com/2025/06/14/opinion/trump-israel-iran-war-attacks-nuclear.html
 
-**The world's loneliest tree stands tall above this U.S. Open**\
-`“It got to a certain point where I’d always think, ‘Man, that’s gotta be one nervous tree.'"`\
-https://nytimes.com/athletic/6424812/2025/06/14/us-open-2025-oakmont-tree/
+**Look at the Ukraine War to Understand Why Israel Struck Iran**\
+`Israel’s imperative to set back Iran’s nuclear program became clearer after two events in 2022 and 2023.`\
+https://nytimes.com/2025/06/14/opinion/israel-iran-russia-nuclear-weapons.html
 
-**Scouting Lionel Messi: The GOAT's capabilities entering the Club World Cup**\
-`There is still magic left in Messi, but there’s only so much that he can do with a supporting cast that is so limited`\
-https://nytimes.com/athletic/6423419/2025/06/14/lionel-messi-inter-miami-club-world-cup-argentina/
+**As 'old guys' dominate Stanley Cup Final, will it affect how teams are constructed?**\
+`A Stanley Cup Final for the ages is being served up with a distinct touch of gray as veterans show the value of their unique perspective.`\
+https://nytimes.com/athletic/6424822/2025/06/14/stanley-cup-final-2025-nhl-playoffs-marchand-perry/
 
-**Group of 7 Mountain Summit Time**\
-`Canada is hosting the major global meeting with President Trump and other world leaders. Here’s what to expect.`\
-https://nytimes.com/2025/06/14/world/canada/g7-summit-alberta-canada.html
+**Antisemitism Is an Urgent Problem. Too Many People Are Making Excuses.**\
+`Both the right and the left deserve blame for the rise in anti-Jewish hatred.`\
+https://nytimes.com/2025/06/14/opinion/antisemitism-jewish-hate.html
 
-**Should I Tell My Sister What Our Brother Did to Me?**\
-`I long to share my story with someone I love who might understand.`\
-https://nytimes.com/2025/06/14/magazine/sibling-abuse-ethics.html
+**I’m No Godlike Father After All**\
+`Fatherhood should revolve around listening and accompanying, not teaching.`\
+https://nytimes.com/2025/06/14/opinion/fatherhood-model-history.html
 
-**Wordle Review No. 1,457**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 15, 2025.`\
-https://nytimes.com/2025/06/14/crosswords/wordle-review-1457.html
+**A New Story Is Emerging About Dementia**\
+`The tragic narrative sounds different depending on who’s telling it.`\
+https://nytimes.com/2025/06/14/opinion/dementia-alzheimers-family-memoir.html
 
-**Connections Companion No. 735**\
-`Scroll down for hints and conversation about the puzzle for Sunday, June 15, 2025.`\
-https://nytimes.com/2025/06/14/crosswords/connections-companion-735.html
+**Why the Euthanasia Slope Is Slippery**\
+`Canada’s assisted suicide law should tell us something about the bill that New York’s Legislature just passed.`\
+https://nytimes.com/2025/06/14/opinion/assisted-suicide-new-york.html
 
