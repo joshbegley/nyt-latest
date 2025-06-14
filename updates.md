@@ -1,3 +1,11 @@
+**Las Vegas agrees two-year F1 contract extension through 2027**\
+`Las Vegas is one of three U.S. cities to host a race weekend on the current calendar, alongside Miami and Austin.`\
+https://nytimes.com/athletic/6425951/2025/06/14/las-vegas-agrees-two-year-formula-one-contract-extension-through-2027/
+
+**As Trump Prepares to Celebrates Army’s Founding, His Critics Take to the Streets**\
+`President Trump will hold a military parade the same day as thousands of planned protests in what amounts to a split-screen show of force.`\
+https://nytimes.com/2025/06/14/us/politics/trump-parade-protests.html
+
 **How to Watch Trump’s Military Parade in Washington**\
 `The New York Times will cover the event in real-time and provide live analysis.`\
 https://nytimes.com/2025/06/14/us/politics/trumph-military-parade-watch.html
