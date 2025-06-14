@@ -1,3 +1,7 @@
+**Husband of slain lawmaker was ‘enthusiastic campaign spouse.’**\
+`Mark Hortman and his wife, who was a powerful Democrat in the Minnesota Legislature, were shot and killed on Saturday morning.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/husband-of-slain-lawmaker-was-enthusiastic-campaign-spouse
+
 **Lawmaker who was fatally shot worked to tighten Minnesota’s gun control measures.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/lawmaker-who-was-fatally-shot-worked-to-tighten-minnesotas-gun-control-measures
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/business/iran-oil-industry.html
 **Here’s how the attacks in Minnesota unfolded early on Saturday.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/heres-how-the-attacks-in-minnesota-unfolded-early-on-saturday
-
-**Storms Are Expected in Washington, D.C., on Saturday**\
-`The weather could affect the military parade. Here’s the latest forecast.`\
-https://nytimes.com/2025/06/14/weather/dc-trump-parade-weather-forecast.html
 
