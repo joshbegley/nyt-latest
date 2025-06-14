@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Aaron Boxerman, Farnaz Fassihi, Natan Odenheimer and Francesca Regalado`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
+
 **Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
 `All hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
 https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
@@ -12,7 +16,7 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news
 
 **'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
 `Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
-https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-bluejays/
+https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-blue-jays/
 
 **The New York Times in Print for Saturday, June 14, 2025**\
 ``\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425365/2025/06/14/mets-plan-kodai-senga-rehab/
 **The inside story of Frank's appointment as Tottenham Hotspur head coach**\
 `Daniel Levy led the pursuit of the Dane and Brentford did not attempt to persuade him to stay on as manager`\
 https://nytimes.com/athletic/6424203/2025/06/14/thomas-frank-tottenham-manager-inside-story/
-
-**Twins' Royce Lewis suffers left hamstring strain late in another rout**\
-`Lewis exited Friday's game after singling into the left-field corner in the ninth inning.`\
-https://nytimes.com/athletic/6425391/2025/06/14/royce-lewis-left-hamstring-strain-twins-astros/
 

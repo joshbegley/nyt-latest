@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Aaron Boxerman, Farnaz Fassihi, Natan Odenheimer and Francesca Regalado`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
+
+**'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
+`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
+https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-blue-jays/
+
 **Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
 `All hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
 https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
