@@ -1,3 +1,7 @@
+**How to watch Mexico vs. Dominican Republic in the Concacaf Gold Cup on Saturday**\
+`The Concacaf Gold Cup starts Saturday night, with a group stage match between Mexico and the Dominican Republic.`\
+https://nytimes.com/athletic/6417484/2025/06/14/mexico-dominican-republic-concacaf-gold-cup-how-to-watch/
+
 **Fifteen points in 5 minutes: SGA's closing stretch could be one to remember for Thunder**\
 `"Underneath that stoic personality is a deep, deep-rooted competitiveness," teammate Alex Caruso said of the NBA MVP.`\
 https://nytimes.com/athletic/6425388/2025/06/14/shai-gilgeous-alexander-thunder-pacers-nba-finals-game-4/
