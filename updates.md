@@ -1,3 +1,11 @@
+**F1 steward suspended from Canadian GP after Max Verstappen penalty comments**\
+`The steward, Derek Warwick, spoke to a gambling website about the FIA's decision to penalize Verstappen in Spain `\
+https://nytimes.com/athletic/6425254/2025/06/13/f1-steward-suspended-derek-warwick-max-verstappen/
+
+**Max Scherzer makes first rehab start, pushing close to Blue Jays return**\
+`The Jays had a simple checklist for Scherzer’s outing: throw 60 to 65 pitches, flash solid fastball velocity and rebound well the next day.`\
+https://nytimes.com/athletic/6425234/2025/06/13/max-scherzer-rehab-start-blue-jays-return/
+
 **Public Defender Is Charged With Smuggling THC-Laced Paper Into Rikers**\
 `Bernardo Caceres was at New York City’s jail complex to meet with a client when an envelope he had drew the attention of a Correction Department dog, officials said.`\
 https://nytimes.com/2025/06/13/nyregion/queens-defender-rikers-smuggling-thc.html

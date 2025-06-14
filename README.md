@@ -1,9 +1,13 @@
+**An exhibition on the Oct. 7 attack on Israel comes to Washington as conflict flares again.**\
+`An`\
+https://nytimes.com/live/2025/06/13/us/trump-news/washington-dc-israel-iran
+
 **F1 steward suspended from Canadian GP after Max Verstappen penalty comments**\
 `The steward, Derek Warwick, spoke to a gambling website about the FIA's decision to penalize Verstappen in Spain `\
 https://nytimes.com/athletic/6425254/2025/06/13/f1-steward-suspended-derek-warwick-max-verstappen/
 
 **Max Scherzer makes first rehab start, pushing close to Blue Jays return**\
-`The Jays had a simple checklist for Scherzer’s outing: throw 60 to 65 pitches, flash solid fastball velocity and rebound well the next day.`\
+`The Jays had a simple checklist for Scherzer's outing: throw 60 to 65 pitches, flash solid fastball velocity and rebound well the next day.`\
 https://nytimes.com/athletic/6425234/2025/06/13/max-scherzer-rehab-start-blue-jays-return/
 
 **Public Defender Is Charged With Smuggling THC-Laced Paper Into Rikers**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6422573/2025/06/13/giants-dodgers-ohtani-yamamoto-w
 **Protests in L.A. could be ‘unprecedented’ in size on Saturday, police chief says.**\
 `By Richard Fausset`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/protests-in-la-could-be-unprecedented-in-size-on-saturday-police-chief-says
-
-**Trump’s Decision to Send Troops to California Is His Do-Over of 2020**\
-`President Trump was talked out of deploying the military to crush the George Floyd protests in 2020. He always regretted it.`\
-https://nytimes.com/2025/06/13/us/politics/trump-protests-immigration-floyd.html
 
