@@ -1,3 +1,11 @@
+**Many Older People Embrace Vaccines. Research Is Proving Them Right.**\
+`Newer formulations are even more effective at preventing illnesses that commonly afflict seniors — perhaps even dementia.`\
+https://nytimes.com/2025/06/14/health/elderly-vaccines-dementia.html
+
+**Al Ahli make contact with Postecoglou, ex Spurs boss among candidates if managerial change made**\
+`Former Barcelona head coach Xavi is also among the potential options being considered in the event of head coach Matthias Jaissle departing.`\
+https://nytimes.com/athletic/6425638/2025/06/14/ange-postecoglou-al-ahli-head-coach/
+
 **Club World Cup stadium guide: 12 venues set to host the world's best**\
 `A rundown of all the venues being used for the tournament this summer.`\
 https://nytimes.com/athletic/6198652/2025/06/14/club-world-cup-stadium-guide-2025/
