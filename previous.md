@@ -1,3 +1,7 @@
+**Minnesota lawmakers are targeted after an acrimonious legislative session.**\
+`Melissa Hortman, a Democratic state representative, and her husband were fatally shot on Saturday morning. John A. Hoffman, a state senator, and his wife were also shot.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-lawmakers-are-targeted-after-an-acrimonious-legislative-session
+
 **What’s Going On in the Middle East?**\
 `In sweeping attacks that started Friday, Israel struck at the regime in Tehran, hitting Iranian nuclear and military assets.`\
 https://nytimes.com/video/world/middleeast/100000010226706/whats-going-on-in-the-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
 **France’s Bastille Day parade inspired Trump to want his own.**\
 `President Trump was so impressed by the country’s military procession in 2017 that he has spent years working to create his own version.`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/frances-bastille-day-parade-inspired-trump-to-want-his-own
-
-**Here’s the latest.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/heres-the-latest
 
