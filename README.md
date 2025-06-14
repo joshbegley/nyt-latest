@@ -1,3 +1,11 @@
+**Lawmaker who was fatally shot worked to tighten Minnesota’s gun control measures.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/lawmaker-who-was-fatally-shot-worked-to-tighten-minnesotas-gun-control-measures
+
+**A military celebration while troops are deployed for protests offers an uncomfortable juxtaposition for the Army.**\
+`By Helene Cooper`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/a-military-celebration-while-troops-are-deployed-for-protests-offers-an-uncomfortable-juxtaposition-for-the-army
+
 **Security for the parade in Washington includes miles of anti-scale fencing.**\
 `By Karoun Demirjian and Campbell Robertson`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/security-for-the-parade-in-washington-includes-miles-of-anti-scale-fencing
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/14/us/minnesota-shootings/heres-how-the-attacks
 **Storms Are Expected in Washington, D.C., on Saturday**\
 `The weather could affect the military parade. Here’s the latest forecast.`\
 https://nytimes.com/2025/06/14/weather/dc-trump-parade-weather-forecast.html
-
-**Defying Calls for De-Escalation, Israel and Iran Exchange Deadly Fire**\
-`As Israeli Prime Minister Benjamin Netanyahu vowed to fight “as long as it takes,” Iran fired missiles at Israel, and Israeli warplanes attacked air defenses around Tehran.`\
-https://nytimes.com/2025/06/14/world/middleeast/israel-iran-fighting-netanyahu.html
-
-**Minnesota Gunman May Have Planned to Target ‘No Kings’ Protests, Police Say**\
-`Organizers of the protests said that all of the planned events in the state were canceled after a recommendation from Gov. Tim Walz.`\
-https://nytimes.com/2025/06/14/us/politics/minnesota-gunman-no-kings-protests.html
 
