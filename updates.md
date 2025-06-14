@@ -1,3 +1,11 @@
+**Theo Walcott on England's striker shortage: 'It's a sad, sad way we're going'**\
+`The former forward worries English football is becoming too predictable - and would have liked to see Arsenal make a move for Liam Delap`\
+https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-walcott/
+
+**'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
+`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
+https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-blue-jays/
+
 **Here’s the latest.**\
 `By Aaron Boxerman, Farnaz Fassihi, Natan Odenheimer and Francesca Regalado`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
