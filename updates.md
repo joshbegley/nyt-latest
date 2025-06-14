@@ -1,3 +1,7 @@
+**Live Updates: Minnesota Officials Give Details on Manhunt After ‘Targeted Shootings’**\
+`Officials warned that the gunman may be wearing body armor and impersonating a police officer. Several public officials suggested that lawmakers had been targeted in the Minneapolis suburbs.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
+
 **Conference on Palestinian Statehood Postponed Amid Israel-Iran Fighting**\
 `President Emmanuel Macron of France said the exchange of strikes between Israel and Iran had made it impossible.`\
 https://nytimes.com/2025/06/14/world/middleeast/palestinian-statehood-conference-postponed-israel-iran.html

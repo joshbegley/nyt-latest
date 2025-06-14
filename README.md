@@ -1,3 +1,7 @@
+**2 Men Are Sentenced in Theft of Golden Toilet**\
+`The men were sentenced to two to four years for their roles in the 2019 theft of an 18-carat artwork at Winston Churchill’s ancestral home.`\
+https://nytimes.com/2025/06/14/world/europe/golden-toilet-theft-sentencing.html
+
 **Conference on Palestinian Statehood Postponed Amid Israel-Iran Fighting**\
 `President Emmanuel Macron of France said the exchange of strikes between Israel and Iran had made it impossible.`\
 https://nytimes.com/2025/06/14/world/middleeast/palestinian-statehood-conference-postponed-israel-iran.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
 
-**Live Updates: Minnesota Officials Give Details on Manhunt After ‘Targeted Shootings’**\
-`Officials warned that the gunman may be wearing body armor and impersonating a police officer. Several public officials suggested that lawmakers had been targeted in the Minneapolis suburbs.`\
+**Live Updates: Minnesota Lawmaker Is Assassinated in Targeted Attack, Governor Says**\
+`The lawmaker’s husband was also fatally shot, Gov. Tim Walz said, and in a separate attack, a state senator was shot multiple times. Officials warned that the gunman was at large and may be impersonating a police officer.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings
 
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-shootings-p
 **Liverpool's Quansah says he is 'in a very good position to take the next step'**\
 `The centre-back started in just four of his 13 Premier League appearances last season.`\
 https://nytimes.com/athletic/6425713/2025/06/14/jarell-quansah-liverpool-next-step/
-
-**Shaquille O’Neal Agrees to Pay $1.8 Million to Settle FTX Class-Action Suit**\
-`Customers of FTX, the collapsed cryptocurrency exchange, accused Mr. O’Neal and other celebrities of illegally promoting it.`\
-https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html
 
