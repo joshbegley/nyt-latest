@@ -1,3 +1,7 @@
+**A Miscalculation by Iran Led to Israeli Strikes’ Extensive Toll, Officials Say**\
+`Interviews with half a dozen senior Iranian officials show that they were not expecting Israel to strike before another round of talks.`\
+https://nytimes.com/2025/06/13/world/middleeast/iran-israel-strikes-nuclear-talks.html
+
 **Here Are Some of the Southern California Immigration Raids From the Past Week**\
 `At least five carwashes across Los Angeles County and Orange County have been raided since Sunday, according to one labor group.`\
 https://nytimes.com/2025/06/13/us/politics/southern-california-immigration-raids.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010228460/san-antonio-flooding-death-tol
 **Another rough rehab start leaves Frankie Montas' big-league role in doubt**\
 `The 32-year-old righty allowed eight earned runs in 1 2/3 innings for Triple-A Syracuse on Friday. `\
 https://nytimes.com/athletic/6425270/2025/06/13/mets-frankie-montas-big-league-role/
-
-**Antonio Brown wanted on attempted murder charge: Reports**\
-`The charge stems from a shooting at a celebrity boxing event in May, according to the warrant obtained by The Washington Post and AP.`\
-https://nytimes.com/athletic/6425116/2025/06/13/antonio-brown-murder-charge-attempted-nfl/
 
