@@ -1,3 +1,15 @@
+**Dive Into Butter Swim Biscuits**\
+`Eat them with ham. Eat them with jam. Add pimento cheese. Just make them, please.`\
+https://nytimes.com/2025/06/14/dining/easy-butter-swim-biscuits-recipe.html
+
+**Trump Is Not Winning in Los Angeles**\
+`The polling is surprisingly clear on this.`\
+https://nytimes.com/2025/06/14/opinion/trump-los-angeles-poll.html
+
+**Live Updates: Minnesota Lawmaker Is Assassinated in Targeted Attack, Governor Says**\
+`Melissa Hortman, a Democratic state representative, and her husband were fatally shot, Gov. Tim Walz said, and a separate attack targeted a state senator. Officials warned that the gunman was at large.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
+
 **2 Men Are Sentenced in Theft of Golden Toilet**\
 `The men were sentenced to two to four years for their roles in the 2019 theft of an 18-carat artwork at Winston Churchill’s ancestral home.`\
 https://nytimes.com/2025/06/14/world/europe/golden-toilet-theft-sentencing.html
