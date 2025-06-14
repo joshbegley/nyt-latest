@@ -1,3 +1,7 @@
+**Two Major Energy Facilities in Tehran Hit in Israeli Strikes**\
+`Across Iran’s capital, flames and smoke covered the sky.`\
+https://nytimes.com/2025/06/14/world/middleeast/iran-israel-energy-facility-strikes-tehran.html
+
 **Melania Trump Suits Up for the Military Parade**\
 `The first lady’s outfit was fully in line with the controlled and contained public image she had been crafting since the end of her husband’s first term.`\
 https://nytimes.com/2025/06/14/us/politics/melania-trump-military-parade.html
