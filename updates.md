@@ -1,3 +1,11 @@
+**‘No Kings’ Protests Across the United States**\
+`In Photos and Video`\
+https://nytimes.com/2025/06/14/us/protests-cities-no-kings.html
+
+**Husband of slain lawmaker was ‘enthusiastic campaign spouse.’**\
+`Mark Hortman and his wife, who was a powerful Democrat in the Minnesota Legislature, were shot and killed on Saturday morning.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/husband-of-slain-lawmaker-was-enthusiastic-campaign-spouse
+
 **Lawmaker who was fatally shot worked to tighten Minnesota’s gun control measures.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/lawmaker-who-was-fatally-shot-worked-to-tighten-minnesotas-gun-control-measures
