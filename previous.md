@@ -1,3 +1,7 @@
+**How to Watch Trump’s Military Parade in Washington**\
+`The New York Times will cover the event in real-time and provide live analysis.`\
+https://nytimes.com/2025/06/14/us/politics/trumph-military-parade-watch.html
+
 **Tottenham set to sign Tel permanently from Bayern Munich**\
 `The France Under-21 international joined Spurs during the winter transfer window on an initial loan deal.`\
 https://nytimes.com/athletic/6374684/2025/06/14/tottenham-mathys-tel-transfer-permanent-bayern-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/minnesota-shootings
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
 `The Giants were 1-5 at Dodger Stadium last season and lost nine of 13 in the season series to their archrivals.`\
 https://nytimes.com/athletic/6425559/2025/06/14/giants-win-at-dodger-stadium-slam-their-way-into-a-share-of-nl-west-lead/
-
-**The airspace closings over Iran and Israel have affected thousands of flights.**\
-`By Lynsey Chutel and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings-over-iran-and-israel-have-affected-thousands-of-flights
 

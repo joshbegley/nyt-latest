@@ -1,3 +1,7 @@
+**How to Watch Trump’s Military Parade in Washington**\
+`The New York Times will cover the event in real-time and provide live analysis.`\
+https://nytimes.com/2025/06/14/us/politics/trumph-military-parade-watch.html
+
 **Live Updates: Minnesota Lawmaker Is Assassinated in Act of ‘Targeted Political Violence’**\
 `A gunman dressed as a police officer killed Melissa Hortman, a Democratic state representative, and her husband at their home, Gov. Tim Walz said. A state senator and his wife were wounded in a separate attack.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings

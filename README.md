@@ -1,3 +1,11 @@
+**Las Vegas agrees two-year F1 contract extension through 2027**\
+`Las Vegas is one of three U.S. cities to host a race weekend on the current calendar, alongside Miami and Austin.`\
+https://nytimes.com/athletic/6425951/2025/06/14/las-vegas-agrees-two-year-formula-one-contract-extension-through-2027/
+
+**As Trump Prepares to Celebrates Army’s Founding, His Critics Take to the Streets**\
+`President Trump will hold a military parade the same day as thousands of planned protests in what amounts to a split-screen show of force.`\
+https://nytimes.com/2025/06/14/us/politics/trump-parade-protests.html
+
 **How to Watch Trump’s Military Parade in Washington**\
 `The New York Times will cover the event in real-time and provide live analysis.`\
 https://nytimes.com/2025/06/14/us/politics/trumph-military-parade-watch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
 **Israel Takes Aim at Iran’s Capital in 2nd Day of Strikes**\
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
-
-**Live Updates: Minnesota Lawmaker Is Assassinated in Act of ‘Targeted Political Violence’**\
-`A gunman dressed as a police officer killed Melissa Hortman, a Democratic state representative, and her husband at their home, Gov. Tim Walz said. A state senator and his wife were wounded in a separate attack.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings
-
-**Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
-`The Giants were 1-5 at Dodger Stadium last season and lost nine of 13 in the season series to their archrivals.`\
-https://nytimes.com/athletic/6425559/2025/06/14/giants-win-at-dodger-stadium-slam-their-way-into-a-share-of-nl-west-lead/
 
