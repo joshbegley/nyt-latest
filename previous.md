@@ -1,3 +1,7 @@
+**The West Bank is in the firing line without shelters or air-raid sirens.**\
+`By Adam Rasgon and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-the-firing-line-without-shelters-or-air-raid-sirens
+
 **The Pulse: This course is punishing pro golfers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423835/2025/06/14/world-test-championship-south-af
 **Molly Recommends 2 Very Male New Novels**\
 `A Hungarian in London; a road trip in Canada.`\
 https://nytimes.com/2025/06/14/books/read-like-wind-recommendations.html
-
-**Will the U.S. and Iran Meet for More Nuclear Talks?**\
-`The two sides were due to meet for a sixth round of negotiations on Sunday. Tehran suggested that it had not yet decided whether to participate, given Israel’s attack on its nuclear infrastructure.`\
-https://nytimes.com/2025/06/14/world/middleeast/us-iran-nuclear-talks.html
 

@@ -1,3 +1,7 @@
+**The West Bank is in the firing line without shelters or air-raid sirens.**\
+`By Adam Rasgon and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-the-firing-line-without-shelters-or-air-raid-sirens
+
 **The Pulse: This course is punishing pro golfers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
