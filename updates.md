@@ -1,3 +1,11 @@
+**Fifteen points in 5 minutes: SGA's closing stretch could be one to remember for Thunder**\
+`"Underneath that stoic personality is a deep, deep-rooted competitiveness," teammate Alex Caruso said of the NBA MVP.`\
+https://nytimes.com/athletic/6425388/2025/06/14/shai-gilgeous-alexander-thunder-pacers-nba-finals-game-4/
+
+**How to watch Liberty at Fever: Caitlin Clark expected to play vs. undefeated New York**\
+`The Liberty look comfortable as the final boss of women's basketball, but Clark and company could test their dominance on Saturday.`\
+https://nytimes.com/athletic/6424464/2025/06/14/caitlin-clark-injury-status-stewart-ionescu-liberty-fever-how-to-watch/
+
 **British Gujaratis Gather to Mourn Those Who Died in India Crash**\
 `Members of the large Gujarati diaspora in the U.K. have planned events at temples and community centers to remember loved ones and support the bereaved.`\
 https://nytimes.com/2025/06/14/world/europe/india-plane-crash-memorial-london.html
