@@ -1,3 +1,11 @@
+**Minnesota Gunman May Have Planned to Target ‘No Kings’ Protests, Police Say**\
+`Organizers of the protests said that all of the planned events in the state were canceled after a recommendation from Gov. Tim Walz.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-gunman-no-kings-protests.html
+
+**Why Trump loves a man (or 7,000 of them) in uniform.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/why-trump-loves-a-man-or-7000-of-them-in-uniform
+
 **First Ukraine, Now Israel: Drone Smuggling Is Potent New War Weapon**\
 `Launching weapons from within their territory forces adversaries to look not only outward but also inside for threats, one expert said.`\
 https://nytimes.com/2025/06/14/world/middleeast/drones-smuggled-israel-iran-ukraine-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/14/world/middleeast/gaza-palestinians-israel-iran-co
 **Who Are the Lawmakers Who Were Shot?**\
 `A Minnesota state representative and her husband were killed early Saturday, and a state senator and his wife were injured.`\
 https://nytimes.com/2025/06/14/us/politics/hortman-hoffman-shot-minnesota.html
-
-**Trump dismisses the prospect of canceling the parade because of weather.**\
-`By John Ismay`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/trump-dismisses-the-prospect-of-canceling-the-parade-because-of-weather
-
-**Violeta Barrios de Chamorro, 95, Dies; Led Nicaragua After Civil War**\
-`The first woman to lead a Central American country, she served in the 1990s after the nation had been shaken by political strife.`\
-https://nytimes.com/2025/06/14/world/americas/violeta-barrios-de-chamorro-dead.html
 
