@@ -1,3 +1,11 @@
+**Trump Supporters Plan Birthday Celebrations**\
+`As others plan protests, Republicans across the country have organized parties to commemorate the president’s 79th birthday and honor the Army.`\
+https://nytimes.com/2025/06/13/us/trump-birthday-parties-protests.html
+
+**MetLife installed 'grass for future of FIFA' for Club World Cup, pitch manager says**\
+`The Club World Cup starts Saturday and will be played on warm-season grass grown at Tuckahoe Turf Farms in New Jersey.`\
+https://nytimes.com/athletic/6424908/2025/06/13/club-world-cup-metlife-stadium-grass-field/
+
 **Marines, in a Rare Move, Briefly Detain Man in Los Angeles**\
 `The man, who said he was a veteran, was soon released. But the incident calls attention to the operation of troops in a police-like domestic function.`\
 https://nytimes.com/2025/06/13/us/marines-detain-man-la.html
