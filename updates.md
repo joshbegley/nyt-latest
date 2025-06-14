@@ -1,3 +1,11 @@
+**Lawmaker who was fatally shot worked to tighten Minnesota’s gun control measures.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/lawmaker-who-was-fatally-shot-worked-to-tighten-minnesotas-gun-control-measures
+
+**A military celebration while troops are deployed for protests offers an uncomfortable juxtaposition for the Army.**\
+`By Helene Cooper`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/a-military-celebration-while-troops-are-deployed-for-protests-offers-an-uncomfortable-juxtaposition-for-the-army
+
 **Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
 `Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
 https://nytimes.com/2025/06/14/world/middleeast/israel-iran-oil-gas-industry.html
