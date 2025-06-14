@@ -1,3 +1,11 @@
+**Trump Supporters Plan Birthday Celebrations**\
+`As others plan protests, Republicans across the country have organized parties to commemorate the president’s 79th birthday and honor the Army.`\
+https://nytimes.com/2025/06/13/us/trump-birthday-parties-protests.html
+
+**MetLife installed 'grass for future of FIFA' for Club World Cup, pitch manager says**\
+`The Club World Cup starts Saturday and will be played on warm-season grass grown at Tuckahoe Turf Farms in New Jersey.`\
+https://nytimes.com/athletic/6424908/2025/06/13/club-world-cup-metlife-stadium-grass-field/
+
 **Marines, in a Rare Move, Briefly Detain Man in Los Angeles**\
 `The man, who said he was a veteran, was soon released. But the incident calls attention to the operation of troops in a police-like domestic function.`\
 https://nytimes.com/2025/06/13/us/marines-detain-man-la.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/13/us/politics/trump-cpsc-regulators-reinstated.html
 **Even Before His Return to the White House, Trump Was Becoming a Crypto Czar**\
 `Financial disclosures for 2024 filed by the president on Friday show that digital coins had already become one of his family’s most successful ventures.`\
 https://nytimes.com/2025/06/13/us/politics/trump-disclosure-cryptocurrency.html
-
-**An exhibition on the Oct. 7 attack on Israel comes to Washington as conflict flares again.**\
-`An`\
-https://nytimes.com/live/2025/06/13/us/trump-news/washington-dc-israel-iran
-
-**F1 steward suspended from Canadian GP after Max Verstappen penalty comments**\
-`The steward, Derek Warwick, spoke to a gambling website about the FIA's decision to penalize Verstappen in Spain `\
-https://nytimes.com/athletic/6425254/2025/06/13/f1-steward-suspended-derek-warwick-max-verstappen/
 
