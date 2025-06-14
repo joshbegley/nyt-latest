@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6426269/2025/06/14/dodgers-emmet-sheehan-return-rot
 
 **An arrest was made after a “credible threat” to Texas lawmakers, an official said.**\
 `By J. David Goodman`\
-https://nytimes.com/live/2025/06/14/us/protests-news/an-arrest-was-made-after-a-credible-threat-to-texas-lawmakers-an-official-said
+https://nytimes.com/2025/06/14/us/austin-tx-credible-threat-arrest.html
 
 **Tossing and Turning**\
 `Adam Wagner and Rebecca Goldstein’s puzzle will flip you like a pancake.`\
