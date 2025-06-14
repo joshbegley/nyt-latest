@@ -1,3 +1,11 @@
+**Trump dismisses the prospect of canceling the parade because of weather.**\
+`By John Ismay`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/trump-dismisses-the-prospect-of-canceling-the-parade-because-of-weather
+
+**Violeta Barrios de Chamorro, 95, Dies; Led Nicaragua After Civil War**\
+`The first woman to lead a Central American country, she served in the 1990s after the nation had been shaken by political strife.`\
+https://nytimes.com/2025/06/14/world/americas/violeta-barrios-de-chamorro-dead.html
+
 **Wings acquire Li Yueru from Storm in exchange for future draft picks**\
 `Yueru requested a trade from the Storm on June 4 with a desire for increased playing time, a league source said.`\
 https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/14/us/politics/trump-parade-protests.html
 **How to Watch Trump’s Military Parade in Washington**\
 `The New York Times will cover the event in real-time and provide live analysis.`\
 https://nytimes.com/2025/06/14/us/politics/trumph-military-parade-watch.html
-
-**Tottenham set to sign Tel permanently from Bayern Munich**\
-`The France Under-21 international joined Spurs during the winter transfer window on an initial loan deal.`\
-https://nytimes.com/athletic/6374684/2025/06/14/tottenham-mathys-tel-transfer-permanent-bayern-munich/
-
-**Dive Into Butter Swim Biscuits**\
-`Eat them with ham. Eat them with jam. Add pimento cheese. Just make them, please.`\
-https://nytimes.com/2025/06/14/dining/easy-butter-swim-biscuits-recipe.html
 

@@ -1,3 +1,11 @@
+**Trump dismisses the prospect of canceling the parade because of weather.**\
+`By John Ismay`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/trump-dismisses-the-prospect-of-canceling-the-parade-because-of-weather
+
+**Violeta Barrios de Chamorro, 95, Dies; Led Nicaragua After Civil War**\
+`The first woman to lead a Central American country, she served in the 1990s after the nation had been shaken by political strife.`\
+https://nytimes.com/2025/06/14/world/americas/violeta-barrios-de-chamorro-dead.html
+
 **Wings acquire Li Yueru from Storm in exchange for future draft picks**\
 `Yueru requested a trade from the Storm on June 4 with a desire for increased playing time, a league source said.`\
 https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
