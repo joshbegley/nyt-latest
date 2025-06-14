@@ -31,7 +31,7 @@ https://nytimes.com/2025/06/13/pageoneplus/quote-of-the-day-race-at-le-mans-is-l
 https://nytimes.com/2025/06/13/nyregion/cuomo-adviser-larry-he-china-oil-company.html
 
 **Thunder flip script against comeback-king Pacers, rally in fourth to tie NBA Finals**\
-`Indiana went uncharacteristically cold late, and now the finals are best-of-three.`\
+`Indiana went uncharacteristically cold late, and now the finals are a best-of-three.`\
 https://nytimes.com/athletic/6425356/2025/06/13/thunder-pacers-nba-finals-game-4-takeaways/
 
 **U.S. Open 2025 Round 2: What to know from a weird, wild day at Oakmont**\
