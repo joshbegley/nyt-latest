@@ -1,8 +1,8 @@
-**Israel Takes Aim at Iran’s Capital in Second Day of Strikes**\
+**Israel Takes Aim at Iran’s Capital in 2nd Day of Strikes**\
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
 
-**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+**Live Updates: Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
 `It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians
 
