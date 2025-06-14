@@ -1,3 +1,7 @@
+**Conference on Palestinian Statehood Postponed Amid Israel-Iran Fighting**\
+`President Emmanuel Macron of France said the exchange of strikes between Israel and Iran had made it impossible.`\
+https://nytimes.com/2025/06/14/world/middleeast/palestinian-statehood-conference-postponed-israel-iran.html
+
 **Protest Is Underrated**\
 `We can’t forget what protests are supposed to do: bring change over time.`\
 https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
