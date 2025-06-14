@@ -1,5 +1,9 @@
-**D-Backs manager Torey Lovullo says Justin Martinez will undergo Tommy John surgery**\
-`"it’s painful," said Lovullo, whose team recently lost Corbin Burnes to a torn UCL. "Yeah, I’m over it. I’m definitely over it.”`\
+**Over 1,200 protesters have been arrested nationwide this week.**\
+`The arrests were conducted by local police as well as Immigration and Customs Enforcement agents, who began a large-scale crackdown in Los Angeles last week.`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/over-1200-protesters-have-been-arrested-nationwide-this-week
+
+**Torey Lovullo says Justin Martinez will undergo Tommy John surgery**\
+`"It's painful," said Lovullo, whose team recently lost Corbin Burnes to a torn UCL. "Yeah, I'm over it. I'm definitely over it."`\
 https://nytimes.com/athletic/6425229/2025/06/13/diamondbacks-justin-martinez-tommy-john-surgery/
 
 **Cubs lose pitchers' duel, but Cade Horton continues to show he's unafraid of the big moment**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/business/us-steel-nippon-steel-partnership-deal.h
 **A Democrat in Texas says he was warned against displaying ‘No Kings’ signs at a local parade.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/a-democrat-in-texas-says-he-was-warned-against-displaying-no-kings-signs-at-a-local-parade
-
-**Prime Tire: The other sad F1 race clash. Plus, McLaren struggles early in Canada**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6425162/2025/06/13/prime-tire-the-other-sad-f1-race-clash-plus-mclaren-struggles-early-in-canada/
 
