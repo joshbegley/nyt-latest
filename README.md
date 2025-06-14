@@ -1,3 +1,7 @@
+**Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
+`Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-iran-oil-gas-industry
+
 **Minnesota Lawmaker Is Assassinated in Act of ‘Political Violence’**\
 `State Representative Melissa Hortman and her husband, Mark, died in the attack at their home. The assailant also shot and injured another Democratic lawmaker and his wife, officials said.`\
 https://nytimes.com/video/us/100000010229048/minnesota-lawmaker-assassinated.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/trump-parade/why-trump-loves-a-man-or-700
 **First Ukraine, Now Israel: Drone Smuggling Is Potent New War Weapon**\
 `Launching weapons from within their territory forces adversaries to look not only outward but also inside for threats, one expert said.`\
 https://nytimes.com/2025/06/14/world/middleeast/drones-smuggled-israel-iran-ukraine-russia.html
-
-**The Army is celebrating with a parade as it faces an uncertain future.**\
-`By Greg Jaffe`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/the-army-is-celebrating-with-a-parade-as-it-faces-an-uncertain-future
 
