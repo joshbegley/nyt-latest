@@ -1,3 +1,15 @@
+**Over 1,200 protesters have been arrested nationwide this week.**\
+`The arrests were conducted by local police as well as Immigration and Customs Enforcement agents, who began a large-scale crackdown in Los Angeles last week.`\
+https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/over-1200-protesters-have-been-arrested-nationwide-this-week
+
+**Torey Lovullo says Justin Martinez will undergo Tommy John surgery**\
+`"It's painful," said Lovullo, whose team recently lost Corbin Burnes to a torn UCL. "Yeah, I'm over it. I'm definitely over it."`\
+https://nytimes.com/athletic/6425229/2025/06/13/diamondbacks-justin-martinez-tommy-john-surgery/
+
+**Cubs lose pitchers' duel, but Cade Horton continues to show he's unafraid of the big moment**\
+`On a misty day on the North Side, nearly 40,000 fans showed up to watch Paul Skenes take on the Cubs rookie phenom Friday.`\
+https://nytimes.com/athletic/6425145/2025/06/13/cubs-lose-pitchers-duel-pirates/
+
 **Local officials warn of steep consequences to protesters who turn violent.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/local-officials-warn-of-steep-consequences-to-protesters-who-turn-violent
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/13/business/us-steel-nippon-steel-partnership-deal.h
 **A Democrat in Texas says he was warned against displaying ‘No Kings’ signs at a local parade.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/a-democrat-in-texas-says-he-was-warned-against-displaying-no-kings-signs-at-a-local-parade
-
-**Prime Tire: The other sad F1 race clash. Plus, McLaren struggles early in Canada**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6425162/2025/06/13/prime-tire-the-other-sad-f1-race-clash-plus-mclaren-struggles-early-in-canada/
-
-**India Plane Crash: What Investigators Might Examine**\
-`Investigators will examine many things, including what the pilots did and whether critical plane systems worked as they are supposed to.`\
-https://nytimes.com/interactive/2025/06/13/business/india-plane-crash-investigation.html
-
-**Knicks set to interview Taylor Jenkins, Mike Brown next week: Sources**\
-`New York is also expected to start contacting organizations to speak with assistant head coaches about its opening.`\
-https://nytimes.com/athletic/6425152/2025/06/13/knicks-coaching-search-taylor-jenkins-mike-brown/
 
