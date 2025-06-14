@@ -1,3 +1,7 @@
+**Gazans Worry Israel-Iran Conflict Will Shift World’s Attention From Their Plight**\
+`While Israel and Iran trade attacks, Palestinians in Gaza have been struggling to find food, connect to the internet and survive airstrikes.`\
+https://nytimes.com/2025/06/14/world/middleeast/gaza-palestinians-israel-iran-conflict.html
+
 **Who are the lawmakers who were shot?**\
 `By Ernesto Londoño and Mitch Smith`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/hortman-hoffman-shot-minnesota
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/us/politics/washington-military-parade-1991.html
 **Las Vegas agrees two-year F1 contract extension through 2027**\
 `Las Vegas is one of three U.S. cities to host a race weekend on the current calendar, alongside Miami and Austin.`\
 https://nytimes.com/athletic/6425951/2025/06/14/las-vegas-agrees-two-year-formula-one-contract-extension-through-2027/
-
-**As Trump Prepares to Celebrates Army’s Founding, His Critics Take to the Streets**\
-`President Trump will hold a military parade the same day as thousands of planned protests in what amounts to a split-screen show of force.`\
-https://nytimes.com/2025/06/14/us/politics/trump-parade-protests.html
 
