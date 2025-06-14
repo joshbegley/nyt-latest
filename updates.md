@@ -1,3 +1,7 @@
+**U.S. Open 2025 Round 2: What to know from a weird, wild day at Oakmont**\
+`Through two days, Oakmont has delivered on its reputation as a brutally difficult test of golf.`\
+https://nytimes.com/athletic/6425222/2025/06/13/us-open-2025-round-2-what-to-know-oakmont/
+
 **Relatives of Air India Crash Victims Seek Answers**\
 `Rizwan Vahora lost three relatives on the Air India flight that crashed in Ahmedabad, India. His family was among the many grieving and waiting for answers about loved ones.`\
 https://nytimes.com/video/world/asia/100000010226143/lives-lost-india-crash.html
