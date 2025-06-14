@@ -1,3 +1,7 @@
+**Gentle Nudge**\
+`Solvers finally get a solo Saturday puzzle from Barbara Lin, and it rocks.`\
+https://nytimes.com/2025/06/13/crosswords/daily-puzzle-2025-06-14.html
+
 **Trump Supporters Plan Birthday Celebrations**\
 `As others plan protests, Republicans across the country have organized parties to commemorate the president’s 79th birthday and honor the Army.`\
 https://nytimes.com/2025/06/13/us/trump-birthday-parties-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425116/2025/06/13/antonio-brown-murder-charge-atte
 **Federal Judge Reinstates Consumer Product Safety Regulators Fired by Trump**\
 `It’s the latest setback for President Trump in his effort to purge perceived political opponents from independent agencies.`\
 https://nytimes.com/2025/06/13/us/politics/trump-cpsc-regulators-reinstated.html
-
-**Even Before His Return to the White House, Trump Was Becoming a Crypto Czar**\
-`Financial disclosures for 2024 filed by the president on Friday show that digital coins had already become one of his family’s most successful ventures.`\
-https://nytimes.com/2025/06/13/us/politics/trump-disclosure-cryptocurrency.html
 
