@@ -1,3 +1,7 @@
+**The Pulse: This course is punishing pro golfers**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
+
 **Dan Skirka's unlikely rise from juco assistant to Murray State and the College World Series**\
 `Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
 https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
