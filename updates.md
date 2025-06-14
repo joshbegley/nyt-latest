@@ -1,3 +1,19 @@
+**Twins' Royce Lewis suffers left hamstring strain late in another rout**\
+`Lewis exited Friday's game after singling into the left-field corner in the ninth inning.`\
+https://nytimes.com/athletic/6425391/2025/06/14/royce-lewis-left-hamstring-strain-twins-astros/
+
+**If Club World Cup attendances are an issue, FIFA will bear much of the responsibility**\
+`There are going to be lots of emptry seats when the tournament begins but that is not the fault of U.S. soccer fans`\
+https://nytimes.com/athletic/6423021/2025/06/14/club-world-cup-attendances-fifa/
+
+**How can Liverpool afford Florian Wirtz?**\
+`How are the Premier League champions able to spend so big on one player and does it impact their PSR prospects?`\
+https://nytimes.com/athletic/6424218/2025/06/14/liverpool-florian-wirtz-afford-transfer-psr/
+
+**Arise, Sir David: But what is the significance of Beckham's knighthood?**\
+`The former England captain and now joint owner of Inter Miami has finally been bestowed the title in King Charles’ birthday honours`\
+https://nytimes.com/athletic/6405931/2025/06/14/beckham-knighthood-sir-england/
+
 **What to expect from The Athletic's Club World Cup coverage, including video highlights**\
 `The Athletic is here to guide you through the Club World Cup - and you'll be able to watch the best of the action too`\
 https://nytimes.com/athletic/6424300/2025/06/14/club-world-club-highlights-dazn/

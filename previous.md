@@ -1,3 +1,19 @@
+**Twins' Royce Lewis suffers left hamstring strain late in another rout**\
+`Lewis exited Friday's game after singling into the left-field corner in the ninth inning.`\
+https://nytimes.com/athletic/6425391/2025/06/14/royce-lewis-left-hamstring-strain-twins-astros/
+
+**If Club World Cup attendances are an issue, FIFA will bear much of the responsibility**\
+`There are going to be lots of emptry seats when the tournament begins but that is not the fault of U.S. soccer fans`\
+https://nytimes.com/athletic/6423021/2025/06/14/club-world-cup-attendances-fifa/
+
+**How can Liverpool afford Florian Wirtz?**\
+`How are the Premier League champions able to spend so big on one player and does it impact their PSR prospects?`\
+https://nytimes.com/athletic/6424218/2025/06/14/liverpool-florian-wirtz-afford-transfer-psr/
+
+**Arise, Sir David: But what is the significance of Beckham's knighthood?**\
+`The former England captain and now joint owner of Inter Miami has finally been bestowed the title in King Charles’ birthday honours`\
+https://nytimes.com/athletic/6405931/2025/06/14/beckham-knighthood-sir-england/
+
 **What to expect from The Athletic's Club World Cup coverage, including video highlights**\
 `The Athletic is here to guide you through the Club World Cup - and you'll be able to watch the best of the action too`\
 https://nytimes.com/athletic/6424300/2025/06/14/club-world-club-highlights-dazn/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6425321/2025/06/14/connections-sports-edition-hints
 **Corrections: June 14, 2025**\
 `Corrections that appeared in print on Saturday, June 14, 2025.`\
 https://nytimes.com/2025/06/14/pageoneplus/corrections-june-14-2025.html
-
-**Quote of the Day: Race at Le Mans Is Long. So Are the Preparations**\
-`Quotation of the Day for Saturday, June 14, 2025.`\
-https://nytimes.com/2025/06/13/pageoneplus/quote-of-the-day-race-at-le-mans-is-long-so-are-the-preparations.html
-
-**Former Cuomo Campaign Adviser Led Chinese State Oil Company**\
-`Larry He, who served as Mr. Cuomo’s Asian outreach director, held senior posts at a multibillion-dollar firm owned by China but omitted the experience from his résumé.`\
-https://nytimes.com/2025/06/13/nyregion/cuomo-adviser-larry-he-china-oil-company.html
-
-**Thunder flip script against comeback-king Pacers, rally in fourth to tie NBA Finals**\
-`Indiana went uncharacteristically cold late, and now the finals are a best-of-three.`\
-https://nytimes.com/athletic/6425356/2025/06/13/thunder-pacers-nba-finals-game-4-takeaways/
-
-**U.S. Open 2025 Round 2: What to know from a weird, wild day at Oakmont**\
-`Through two days, Oakmont has delivered on its reputation as a brutally difficult test of golf.`\
-https://nytimes.com/athletic/6425222/2025/06/13/us-open-2025-round-2-what-to-know-oakmont/
 
