@@ -1,3 +1,11 @@
+**Red Sox walk-off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
+`The defining victory of Boston's season to this point featured a dramatic swing of emotions in the ninth and 10th innings.`\
+https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-crochet/
+
+**Live Updates: Israel and Iran Trade Strikes as Conflict Enters 2nd Day**\
+`Israel has struck Iran’s nuclear sites and military leaders, and Tehran has retaliated with missiles. More than 70 people have been killed in Iran, and at least three in Israel.`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news
+
 **'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
 `Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
 https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-bluejays/

@@ -1,3 +1,11 @@
+**Red Sox walk-off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
+`The defining victory of Boston's season to this point featured a dramatic swing of emotions in the ninth and 10th innings.`\
+https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-crochet/
+
+**Live Updates: Israel and Iran Trade Strikes as Conflict Enters 2nd Day**\
+`Israel has struck Iran’s nuclear sites and military leaders, and Tehran has retaliated with missiles. More than 70 people have been killed in Iran, and at least three in Israel.`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news
+
 **'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
 `Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
 https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-bluejays/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6425391/2025/06/14/royce-lewis-left-hamstring-strai
 **If Club World Cup attendances are an issue, FIFA will bear much of the responsibility**\
 `There are going to be lots of emptry seats when the tournament begins but that is not the fault of U.S. soccer fans`\
 https://nytimes.com/athletic/6423021/2025/06/14/club-world-cup-attendances-fifa/
-
-**How can Liverpool afford Florian Wirtz?**\
-`How are the Premier League champions able to spend so big on one player and does it impact their PSR prospects?`\
-https://nytimes.com/athletic/6424218/2025/06/14/liverpool-florian-wirtz-afford-transfer-psr/
-
-**Arise, Sir David: But what is the significance of Beckham's knighthood?**\
-`The former England captain and now joint owner of Inter Miami has finally been bestowed the title in King Charles’ birthday honours`\
-https://nytimes.com/athletic/6405931/2025/06/14/beckham-knighthood-sir-england/
 
