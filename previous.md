@@ -1,40 +1,40 @@
-**Robbie Williams records FIFA walk-out anthem, to debut at Club World Cup**\
-`The track, entitled 'Desire', will be played before all FIFA tournament fixtures as the teams walk out onto the pitch.`\
-https://nytimes.com/athletic/6425557/2025/06/14/robbie-williams-fifa-walk-out-anthem/
+**Is There an Opening for a Third Party?**\
+`Although there are plenty of obstacles, the conditions for a successful challenge to the two major parties could be coming into place.`\
+https://nytimes.com/2025/06/14/upshot/third-party-musk-democrats-republicans.html
 
-**A Dream Wedding for Jeff Bezos in Venice? No Way, Locals Say**\
-`The lavish nuptials, scheduled for this month, have raised the hackles of some residents exasperated by their city becoming a playground for the rich.`\
-https://nytimes.com/2025/06/14/world/europe/venice-bezos-sanchez-wedding-amazon.html
+**Trump Relishes Troops in American Streets While Shunning Conflict Overseas**\
+`The seemingly disparate postures of recent days speak to the president’s complicated relationship with the military.`\
+https://nytimes.com/2025/06/14/us/politics/trump-military-parade-israel-iran.html
 
-**Dodgers drop to first-place tie amid stretch of divisional foes**\
-`The Dodgers are at risk of being out of first place this late into the season for the first time since the 2023 All-Star break.`\
-https://nytimes.com/athletic/6425486/2025/06/14/dodgers-drop-to-first-place-tie-giants/
+**Take Me Out to the … Pope Party. It’s a Ballpark Celebration for Leo.**\
+`The program on Saturday in Chicago includes music, prayer, speeches and Pope Leo’s first public address to an American audience.`\
+https://nytimes.com/2025/06/14/us/chicago-mass-pope-leo-comiskey.html
 
-**Inside the Tumult That Led 4 Men to Escape from a Migrant Facility**\
-`Conditions had been deteriorating at Delaney Hall in Newark for days. Detainees complained about erratic meals and crowded conditions. Then their frustrations boiled over.`\
-https://nytimes.com/2025/06/14/nyregion/newark-ice-detainees-escape.html
+**Wait, People Are Bringing Their Whole Family to Job Interviews?**\
+`And kicking off their shoes? Plus, when it’s OK to correct your employees’ grammar.`\
+https://nytimes.com/2025/06/14/business/job-interviews-family-members.html
 
-**The ’70s Performance Artist Who Became a Hero to ‘Garbage Men’**\
-`A new documentary explores the life and work of Mierle Laderman Ukeles, who compared the indignities suffered by women to those endured by sanitation workers, forced to clean up messes they didn’t make.`\
-https://nytimes.com/2025/06/14/nyregion/maintenance-artist-mierle-laderman-ukeles.html
+**Sabrina Carpenter’s Album Art Is a Trap**\
+`The image of the pop star on her knees seems designed to provoke. Is it regressive or just retro?`\
+https://nytimes.com/2025/06/14/style/sabrina-carpenter-album-art-feminism.html
 
-**What to Know About Early Voting in New York City’s Mayoral Primary**\
-`Registered voters in the city can cast ballots in the Democratic primary for mayor and other races starting on Saturday.`\
-https://nytimes.com/2025/06/14/us/early-voting-nyc-mayor-election.html
+**How the Israel-Iran Conflict Could Spiral Into More Turmoil**\
+`Israel’s leader and President Trump appeared to bet they can persevere, but other world leaders warned of unintended outcomes in a volatile region.`\
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-attacks.html
 
-**How a Sneaker Designer Spends His Day Transforming Nikes**\
-`Andy Martinez, founder of the shoe brand &e, goes running with friends before scouring New York City thrift shops for the coolest cowboy boots.`\
-https://nytimes.com/2025/06/14/nyregion/andy-martinez-sneaker-designer.html
+**In a Mexico Border Town Famed for Crossings, ‘There Are No Migrants’**\
+`Tijuana long served as a gateway for legal and illegal crossings between Mexico and Southern California. But its shelters have now thinned out and migrants have left its streets.`\
+https://nytimes.com/2025/06/14/world/americas/mexcio-us-border-migrants.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/06/14/crosswords/spelling-bee-forum.html
+**Russia’s Summer Offensive in Ukraine Gains Ground With New Tactics**\
+`Russia is advancing around Kostyantynivka and in the Sumy region with small, fast-moving units as both sides try a new tactic of using motorcycles and civilian cars to quickly cross open terrain.`\
+https://nytimes.com/2025/06/14/world/europe/ukraine-battlefield-russia-sumy-kostyantynivka.html
 
-**Investigators Comb Wreckage for Clues to the Air India Crash**\
-`The flight data recorder has been recovered and should shed some light on the cause of the disaster, which killed at least 269 people.`\
-https://nytimes.com/2025/06/14/world/asia/air-india-crash-investigators.html
+**Inside Universal’s Big Bet on ‘How to Train Your Dragon’**\
+`In an era of skepticism around live-action remakes, Universal believes audiences will take flight with Hiccup and Toothless again.`\
+https://nytimes.com/2025/06/14/movies/how-to-train-your-dragon-universal.html
 
-**Theo Walcott on England's striker shortage: 'It's a sad, sad way we're going'**\
-`The former forward worries English football is becoming too predictable - and would have liked to see Arsenal make a move for Liam Delap`\
-https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-walcott/
+**Why Did Syracuse Offer $200,000 Deals to Teens Who Had Turned It Down?**\
+`The university seems to have misjudged what some families would pay. Next year, maybe applicants should play their own game of chicken with such schools.`\
+https://nytimes.com/2025/06/14/your-money/syracuse-merit-aid.html
 
