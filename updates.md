@@ -1,3 +1,7 @@
+**Little things become big problems in Game 4 for Pacers, but they remain confident**\
+`After a rare failure in the clutch during these playoffs, Indiana has to tighten up in a few areas with the series tied 2-2.`\
+https://nytimes.com/athletic/6425522/2025/06/14/pacers-nba-finals-game-4-loss-free-throws-rebounding/
+
 **Many Older People Embrace Vaccines. Research Is Proving Them Right.**\
 `Newer formulations are even more effective at preventing illnesses that commonly afflict seniors — perhaps even dementia.`\
 https://nytimes.com/2025/06/14/health/elderly-vaccines-dementia.html

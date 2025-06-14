@@ -1,3 +1,7 @@
+**Little things become big problems in Game 4 for Pacers, but they remain confident**\
+`After a rare failure in the clutch during these playoffs, Indiana has to tighten up in a few areas with the series tied 2-2.`\
+https://nytimes.com/athletic/6425522/2025/06/14/pacers-nba-finals-game-4-loss-free-throws-rebounding/
+
 **Many Older People Embrace Vaccines. Research Is Proving Them Right.**\
 `Newer formulations are even more effective at preventing illnesses that commonly afflict seniors — perhaps even dementia.`\
 https://nytimes.com/2025/06/14/health/elderly-vaccines-dementia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424822/2025/06/14/stanley-cup-final-2025-nhl-playo
 **Antisemitism Is an Urgent Problem. Too Many People Are Making Excuses.**\
 `Both the right and the left deserve blame for the rise in anti-Jewish hatred.`\
 https://nytimes.com/2025/06/14/opinion/antisemitism-jewish-hate.html
-
-**I’m No Godlike Father After All**\
-`Fatherhood should revolve around listening and accompanying, not teaching.`\
-https://nytimes.com/2025/06/14/opinion/fatherhood-model-history.html
 
