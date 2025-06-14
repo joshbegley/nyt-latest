@@ -1,3 +1,7 @@
+**Yankees reliever Jake Cousins 'moving toward' needing Tommy John surgery**\
+`There was hope that Cousins could help steady New York's bullpen, but that seems unlikely now.`\
+https://nytimes.com/athletic/6426240/2025/06/14/yankees-jake-cousins-tommy-john-surgery/
+
 **Tino Livramento: Admired by Tuchel, impressing Cole - a 'future England captain'**\
 `Newcastle’s full-back is already an established Premier League player. Ashley Cole and Theo Walcott say he will thrive at the very top`\
 https://nytimes.com/athletic/6425532/2025/06/14/tino-livramento-ashley-cole-thomas-tuchel-england/

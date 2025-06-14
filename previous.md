@@ -1,3 +1,7 @@
+**Yankees reliever Jake Cousins 'moving toward' needing Tommy John surgery**\
+`There was hope that Cousins could help steady New York's bullpen, but that seems unlikely now.`\
+https://nytimes.com/athletic/6426240/2025/06/14/yankees-jake-cousins-tommy-john-surgery/
+
 **Tino Livramento: Admired by Tuchel, impressing Cole - a 'future England captain'**\
 `Newcastle’s full-back is already an established Premier League player. Ashley Cole and Theo Walcott say he will thrive at the very top`\
 https://nytimes.com/athletic/6425532/2025/06/14/tino-livramento-ashley-cole-thomas-tuchel-england/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/trump-parade/security-for-the-parade-in-w
 **‘I Was Afraid I’d Die’: Iran’s Missiles Rained Down on Tel Aviv**\
 `At least three people were killed and scores were wounded during an aerial battle over Tel Aviv, as Iranian missiles rained down and Israeli rockets attempted to intercept them.`\
 https://nytimes.com/2025/06/14/world/middleeast/israel-tel-aviv-iran-missiles.html
-
-**Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
-`Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
-https://nytimes.com/2025/06/14/world/middleeast/israel-iran-oil-gas-industry.html
 
