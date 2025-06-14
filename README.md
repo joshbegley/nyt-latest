@@ -26,8 +26,8 @@ https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
 
-**Live Updates: Man Impersonating Officer Kills Minnesota Lawmaker and Her Husband**\
-`Melissa Hortman, a Democratic state representative, and her husband were fatally shot. The gunman, who remains at large, also targeted a state senator in a separate attack.`\
+**Live Updates: Man Dressed as Police Officer Kills Minnesota Lawmaker and Her Husband**\
+`Melissa Hortman, a Democratic state representative, and her husband were attacked at their home in what the governor called “an act of targeted political violence.” The gunman, who remains at large, also targeted a state senator and his wife in a separate shooting.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings
 
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\

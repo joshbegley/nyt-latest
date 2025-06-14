@@ -1,3 +1,11 @@
+**Tottenham set to sign Tel permanently from Bayern Munich**\
+`The France Under-21 international joined Spurs during the winter transfer window on an initial loan deal.`\
+https://nytimes.com/athletic/6374684/2025/06/14/tottenham-mathys-tel-transfer-permanent-bayern-munich/
+
+**Live Updates: Man Impersonating Officer Kills Minnesota Lawmaker and Her Husband**\
+`Melissa Hortman, a Democratic state representative, and her husband were fatally shot. The gunman, who remains at large, also targeted a state senator in a separate attack.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
+
 **Dive Into Butter Swim Biscuits**\
 `Eat them with ham. Eat them with jam. Add pimento cheese. Just make them, please.`\
 https://nytimes.com/2025/06/14/dining/easy-butter-swim-biscuits-recipe.html

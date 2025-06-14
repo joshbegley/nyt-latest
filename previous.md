@@ -1,3 +1,7 @@
+**Tottenham set to sign Tel permanently from Bayern Munich**\
+`The France Under-21 international joined Spurs during the winter transfer window on an initial loan deal.`\
+https://nytimes.com/athletic/6374684/2025/06/14/tottenham-mathys-tel-transfer-permanent-bayern-munich/
+
 **Dive Into Butter Swim Biscuits**\
 `Eat them with ham. Eat them with jam. Add pimento cheese. Just make them, please.`\
 https://nytimes.com/2025/06/14/dining/easy-butter-swim-biscuits-recipe.html
@@ -22,8 +26,8 @@ https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
 
-**Live Updates: Minnesota Lawmaker Is Assassinated in Targeted Attack, Governor Says**\
-`Melissa Hortman, a Democratic state representative, and her husband were fatally shot, Gov. Tim Walz said, and a separate attack targeted a state senator. Officials warned that the gunman was at large.`\
+**Live Updates: Man Impersonating Officer Kills Minnesota Lawmaker and Her Husband**\
+`Melissa Hortman, a Democratic state representative, and her husband were fatally shot. The gunman, who remains at large, also targeted a state senator in a separate attack.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings
 
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425559/2025/06/14/giants-win-at-dodger-stadium-sla
 **The airspace closings over Iran and Israel have affected thousands of flights.**\
 `By Lynsey Chutel and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings-over-iran-and-israel-have-affected-thousands-of-flights
-
-**Atletico Madrid interested in signing Liverpool's Robertson**\
-`The 31-year-old is entering into the final year of his contract.`\
-https://nytimes.com/athletic/6425761/2025/06/14/andy-robertson-atletico-madrid-interest/
 
