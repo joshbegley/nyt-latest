@@ -1,3 +1,11 @@
+**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians
+
+**Here’s what to know about the shooting.**\
+`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians/minnesota-shootings-politicians
+
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
 `The Giants were 1-5 at Dodger Stadium last season and lost nine of 13 in the season series to their archrivals.`\
 https://nytimes.com/athletic/6425559/2025/06/14/giants-win-at-dodger-stadium-slam-their-way-into-a-share-of-nl-west-lead/
