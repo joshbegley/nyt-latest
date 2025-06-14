@@ -1,3 +1,11 @@
+**The airspace closings over Iran and Israel have affected thousands of flights.**\
+`By Lynsey Chutel and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings-over-iran-and-israel-have-affected-thousands-of-flights
+
+**Atletico Madrid interested in signing Liverpool's Robertson**\
+`The 31-year-old is entering into the final year of his contract.`\
+https://nytimes.com/athletic/6425761/2025/06/14/andy-robertson-atletico-madrid-interest/
+
 **Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
 `It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-politicians.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/14/us/protests-news
 **Here’s the latest.**\
 `By Rick Rojas`\
 https://nytimes.com/live/2025/06/14/us/protests-news/heres-the-latest
-
-**Carlos Alcaraz opts to play Queen's tournament ahead of Wimbledon title defense**\
-`Alcaraz, who won Queen's in 2023 and is defending Wimbledon champion, had considered missing the event after winning the French Open.`\
-https://nytimes.com/athletic/6423650/2025/06/14/carlos-alcaraz-queens-tournament-wimbledon-warm-up/
-
-**Traded away, two former Mets find their way with the Rays**\
-`There was a time where they might have made their debuts with the Mets. Instead, they're thriving for a different organization. `\
-https://nytimes.com/athletic/6425381/2025/06/14/mets-rays-mangum-orze-trade/
 

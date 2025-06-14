@@ -1,3 +1,11 @@
+**The airspace closings over Iran and Israel have affected thousands of flights.**\
+`By Lynsey Chutel and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings-over-iran-and-israel-have-affected-thousands-of-flights
+
+**Atletico Madrid interested in signing Liverpool's Robertson**\
+`The 31-year-old is entering into the final year of his contract.`\
+https://nytimes.com/athletic/6425761/2025/06/14/andy-robertson-atletico-madrid-interest/
+
 **Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
 `It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-politicians.html
