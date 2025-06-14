@@ -1,3 +1,7 @@
+**From 'worn out' to 'unbelievable.' Gilgeous-Alexander keys Thunder comeback**\
+`Don't mistake the Oklahoma City MVP's calm approach for weakness, as he showed his greatness down the stretch of Game 4. `\
+https://nytimes.com/athletic/6425551/2025/06/14/shai-gilgeous-alexander-nba-finals-demeanor-game-4/
+
 **Asencio extends Real Madrid contract through to 2031**\
 `A renewal has been agreed through to 2031.`\
 https://nytimes.com/athletic/6402404/2025/06/14/asencio-contract-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/crosswords/wordle-review-1457.html
 **Connections Companion No. 735**\
 `Scroll down for hints and conversation about the puzzle for Sunday, June 15, 2025.`\
 https://nytimes.com/2025/06/14/crosswords/connections-companion-735.html
-
-**Dear Class of 2025: These star athletes have some advice for you**\
-`From Simone Biles to Peyton Manning, our writer picked his favorite takeaways from more than 20 athlete commencement speeches.`\
-https://nytimes.com/athletic/6424056/2025/06/14/dear-class-of-2025-these-star-athletes-have-some-advice-for-you/
 

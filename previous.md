@@ -1,3 +1,7 @@
+**Asencio extends Real Madrid contract through to 2031**\
+`A renewal has been agreed through to 2031.`\
+https://nytimes.com/athletic/6402404/2025/06/14/asencio-contract-real-madrid/
+
 **Chet Holmgren, Jalen Williams are motor that keeps OKC running: 'They want to be great'**\
 `In Game 4, the Thunder's entire big three shined at various points to pull out a hard-fought road win and tie the series.`\
 https://nytimes.com/athletic/6425394/2025/06/14/chet-holmgren-jalen-williams-thunder-pacers-game-4-nba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/crosswords/connections-companion-735.html
 **Dear Class of 2025: These star athletes have some advice for you**\
 `From Simone Biles to Peyton Manning, our writer picked his favorite takeaways from more than 20 athlete commencement speeches.`\
 https://nytimes.com/athletic/6424056/2025/06/14/dear-class-of-2025-these-star-athletes-have-some-advice-for-you/
-
-**How to watch Mexico vs. Dominican Republic in the Concacaf Gold Cup on Saturday**\
-`The Concacaf Gold Cup starts Saturday night, with a group stage match between Mexico and the Dominican Republic.`\
-https://nytimes.com/athletic/6417484/2025/06/14/mexico-dominican-republic-concacaf-gold-cup-how-to-watch/
 

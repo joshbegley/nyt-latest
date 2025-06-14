@@ -1,3 +1,7 @@
+**Asencio extends Real Madrid contract through to 2031**\
+`A renewal has been agreed through to 2031.`\
+https://nytimes.com/athletic/6402404/2025/06/14/asencio-contract-real-madrid/
+
 **Chet Holmgren, Jalen Williams are motor that keeps OKC running: 'They want to be great'**\
 `In Game 4, the Thunder's entire big three shined at various points to pull out a hard-fought road win and tie the series.`\
 https://nytimes.com/athletic/6425394/2025/06/14/chet-holmgren-jalen-williams-thunder-pacers-game-4-nba-finals/
