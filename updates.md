@@ -1,3 +1,11 @@
+**The Astros are rolling, but injuries are testing Houston's depth**\
+`Isaac Paredes' hamstring injury hasn't forced him to the IL yet, but Jacob Melton's new ankle injury could lead to a prolonged absence.`\
+https://nytimes.com/athletic/6424855/2025/06/14/houston-astros-isaac-paredes-jacob-melton-injuries/
+
+**Braves build momentum behind Ronald Acuña Jr. as suspended Jurickson Profar nears return**\
+`The Braves, who beat the Colorado Rockies 12-4 in a series opener Friday night, hope Profar will be able to provide a boost from left field.`\
+https://nytimes.com/athletic/6425383/2025/06/14/braves-win-rockies-ronald-acuna-jr-jurickson-profar/
+
 **The Mets have a different plan for Kodai Senga's rehab this time**\
 `Senga and the Mets must ace this recovery process in a way they didn’t with his rehabilitations last year.`\
 https://nytimes.com/athletic/6425365/2025/06/14/mets-plan-kodai-senga-rehab/

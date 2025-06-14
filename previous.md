@@ -1,3 +1,11 @@
+**The Astros are rolling, but injuries are testing Houston's depth**\
+`Isaac Paredes' hamstring injury hasn't forced him to the IL yet, but Jacob Melton's new ankle injury could lead to a prolonged absence.`\
+https://nytimes.com/athletic/6424855/2025/06/14/houston-astros-isaac-paredes-jacob-melton-injuries/
+
+**Braves build momentum behind Ronald Acuña Jr. as suspended Jurickson Profar nears return**\
+`The Braves, who beat the Colorado Rockies 12-4 in a series opener Friday night, hope Profar will be able to provide a boost from left field.`\
+https://nytimes.com/athletic/6425383/2025/06/14/braves-win-rockies-ronald-acuna-jr-jurickson-profar/
+
 **The Mets have a different plan for Kodai Senga's rehab this time**\
 `Senga and the Mets must ace this recovery process in a way they didn’t with his rehabilitations last year.`\
 https://nytimes.com/athletic/6425365/2025/06/14/mets-plan-kodai-senga-rehab/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6424300/2025/06/14/club-world-club-highlights-dazn/
 **In a German City Long Home to American Troops, Trump Era Tests Ties**\
 `While the German government frets over the sudden chill in relations with the United States, residents around American bases hope that ties are too tight to cut easily.`\
 https://nytimes.com/2025/06/14/world/europe/germany-town-american-bases.html
-
-**Richard Carapaz interview: 'When I’m at altitude in Europe, I never feel that burden'**\
-`The Ecuadorian star speaks to The Athletic about his Tour de France plans and what really happened on stage 20 of this year's Giro d'Italia`\
-https://nytimes.com/athletic/6421913/2025/06/14/richard-carapaz-interview-giro-tour-de-france/
-
-**Air India’s New Owners Were Trying to Revamp Carrier Before Crash**\
-`Management installed by the Tata Group had spent three years struggling to undo a reputation for shoddy operations earned during decades of state ownership.`\
-https://nytimes.com/2025/06/14/business/air-india-crash-tata-group.html
 

@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, June 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/14/todays-new-york-times
+
 **The Astros are rolling, but injuries are testing Houston's depth**\
 `Isaac Paredes' hamstring injury hasn't forced him to the IL yet, but Jacob Melton's new ankle injury could lead to a prolonged absence.`\
 https://nytimes.com/athletic/6424855/2025/06/14/houston-astros-isaac-paredes-jacob-melton-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6405931/2025/06/14/beckham-knighthood-sir-england/
 **What to expect from The Athletic's Club World Cup coverage, including video highlights**\
 `The Athletic is here to guide you through the Club World Cup - and you'll be able to watch the best of the action too`\
 https://nytimes.com/athletic/6424300/2025/06/14/club-world-club-highlights-dazn/
-
-**In a German City Long Home to American Troops, Trump Era Tests Ties**\
-`While the German government frets over the sudden chill in relations with the United States, residents around American bases hope that ties are too tight to cut easily.`\
-https://nytimes.com/2025/06/14/world/europe/germany-town-american-bases.html
 
