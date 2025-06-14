@@ -1,3 +1,7 @@
+**Live Updates: Minnesota Lawmaker Is Assassinated in Act of ‘Targeted Political Violence’**\
+`A gunman dressed as a police officer killed Melissa Hortman, a Democratic state representative, and her husband at their home, Gov. Tim Walz said. A state senator and his wife were wounded in a separate attack.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
+
 **Tottenham set to sign Tel permanently from Bayern Munich**\
 `The France Under-21 international joined Spurs during the winter transfer window on an initial loan deal.`\
 https://nytimes.com/athletic/6374684/2025/06/14/tottenham-mathys-tel-transfer-permanent-bayern-munich/
