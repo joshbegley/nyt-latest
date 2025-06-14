@@ -1,3 +1,15 @@
+**South Africa win World Test Championship after six-wicket victory over Australia**\
+`South Africa hold nerve to chase down 282 and beat Australia to claim World Test Championship for first time.`\
+https://nytimes.com/athletic/6423835/2025/06/14/world-test-championship-south-africa-australia-aiden-markram/
+
+**Molly Recommends 2 Very Male New Novels**\
+`A Hungarian in London; a road trip in Canada.`\
+https://nytimes.com/2025/06/14/books/read-like-wind-recommendations.html
+
+**Will the U.S. and Iran meet for more nuclear talks?**\
+`By Neil MacFarquhar`\
+https://nytimes.com/2025/06/14/world/middleeast/will-the-us-and-iran-meet-for-more-nuclear-talks.html
+
 **Little things become big problems in Game 4 for Pacers, but they remain confident**\
 `After a rare failure in the clutch during these playoffs, Indiana has to tighten up in a few areas with the series tied 2-2.`\
 https://nytimes.com/athletic/6425522/2025/06/14/pacers-nba-finals-game-4-loss-free-throws-rebounding/
