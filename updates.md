@@ -1,3 +1,7 @@
+**First Ukraine, Now Israel: Drone Smuggling Is Potent New War Weapon**\
+`Launching weapons from within their territory forces adversaries to look not only outward but also inside for threats, one expert said.`\
+https://nytimes.com/2025/06/14/world/middleeast/drones-smuggled-israel-iran-ukraine-russia.html
+
 **The Army is celebrating with a parade as it faces an uncertain future.**\
 `By Greg Jaffe`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/the-army-is-celebrating-with-a-parade-as-it-faces-an-uncertain-future

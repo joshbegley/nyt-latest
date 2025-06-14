@@ -1,3 +1,7 @@
+**First Ukraine, Now Israel: Drone Smuggling Is Potent New War Weapon**\
+`Launching weapons from within their territory forces adversaries to look not only outward but also inside for threats, one expert said.`\
+https://nytimes.com/2025/06/14/world/middleeast/drones-smuggled-israel-iran-ukraine-russia.html
+
 **The Army is celebrating with a parade as it faces an uncertain future.**\
 `By Greg Jaffe`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/the-army-is-celebrating-with-a-parade-as-it-faces-an-uncertain-future
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/trump-parade/trump-dismisses-the-prospect
 **Violeta Barrios de Chamorro, 95, Dies; Led Nicaragua After Civil War**\
 `The first woman to lead a Central American country, she served in the 1990s after the nation had been shaken by political strife.`\
 https://nytimes.com/2025/06/14/world/americas/violeta-barrios-de-chamorro-dead.html
-
-**Wings acquire Li Yueru from Storm in exchange for future draft picks**\
-`Yueru requested a trade from the Storm on June 4 with a desire for increased playing time, a league source said.`\
-https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
 
