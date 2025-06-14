@@ -1,3 +1,7 @@
+**Relatives of Air India Crash Victims Seek Answers**\
+`Rizwan Vahora lost three relatives on the Air India flight that crashed in Ahmedabad, India. His family was among the many grieving and waiting for answers about loved ones.`\
+https://nytimes.com/video/world/asia/100000010226143/lives-lost-india-crash.html
+
 **Trump Shifts Deportation Focus, Pausing Raids on Farms, Hotels and Eateries**\
 `The abrupt pivot on an issue at the heart of Mr. Trump’s presidency suggested his broad immigration crackdown was hurting industries and constituencies he does not want to lose.`\
 https://nytimes.com/2025/06/13/us/politics/trump-ice-raids-farms-hotels.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/12/world/israel-iran-us-nuclear/in-one-undergro
 **Voice of America Recalls Staff for Iranian Language News Service From Leave**\
 `Most of the staff of Voice of America, the federally funded news network, were put on administrative leave by the Trump administration in March.`\
 https://nytimes.com/2025/06/13/us/politics/voice-of-america-farsi-iran-news.html
-
-**Flash Flooding in Texas Leaves Several Dead**\
-`Officials said that they were still searching for survivors after a storm on Thursday in the San Antonio region.`\
-https://nytimes.com/video/weather/100000010228460/san-antonio-flooding-death-toll.html
 
