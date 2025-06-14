@@ -1,3 +1,7 @@
+**Theo Walcott on England's striker shortage: 'It's a sad, sad way we're going'**\
+`The former forward worries English football is becoming too predictable - and would have liked to see Arsenal make a move for Liam Delap`\
+https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-walcott/
+
 **Here’s the latest.**\
 `By Aaron Boxerman, Farnaz Fassihi, Natan Odenheimer and Francesca Regalado`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-
 https://nytimes.com/live/2025/06/14/world/israel-iran-news
 
 **'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
-`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
+`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
 https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-blue-jays/
 
 **The New York Times in Print for Saturday, June 14, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425383/2025/06/14/braves-win-rockies-ronald-acuna-
 **The Mets have a different plan for Kodai Senga's rehab this time**\
 `Senga and the Mets must ace this recovery process in a way they didn’t with his rehabilitations last year.`\
 https://nytimes.com/athletic/6425365/2025/06/14/mets-plan-kodai-senga-rehab/
-
-**The inside story of Frank's appointment as Tottenham Hotspur head coach**\
-`Daniel Levy led the pursuit of the Dane and Brentford did not attempt to persuade him to stay on as manager`\
-https://nytimes.com/athletic/6424203/2025/06/14/thomas-frank-tottenham-manager-inside-story/
 
