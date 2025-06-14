@@ -1,3 +1,7 @@
+**Defying Calls for De-Escalation, Israel and Iran Exchange Deadly Fire**\
+`As Israeli Prime Minister Benjamin Netanyahu vowed to fight “as long as it takes,” Iran fired missiles at Israel, and Israeli warplanes attacked air defenses around Tehran.`\
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-fighting-netanyahu.html
+
 **Minnesota Gunman May Have Planned to Target ‘No Kings’ Protests, Police Say**\
 `Organizers of the protests said that all of the planned events in the state were canceled after a recommendation from Gov. Tim Walz.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-gunman-no-kings-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/climate/marine-protection-united-nations-ocean.ht
 **Gazans Worry Israel-Iran Conflict Will Shift World’s Attention From Their Plight**\
 `While Israel and Iran trade attacks, Palestinians in Gaza have been struggling to find food, connect to the internet and survive airstrikes.`\
 https://nytimes.com/2025/06/14/world/middleeast/gaza-palestinians-israel-iran-conflict.html
-
-**Who Are the Lawmakers Who Were Shot?**\
-`A Minnesota state representative and her husband were killed early Saturday, and a state senator and his wife were injured.`\
-https://nytimes.com/2025/06/14/us/politics/hortman-hoffman-shot-minnesota.html
 

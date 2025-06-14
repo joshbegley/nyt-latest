@@ -1,3 +1,7 @@
+**Defying Calls for De-Escalation, Israel and Iran Exchange Deadly Fire**\
+`As Israeli Prime Minister Benjamin Netanyahu vowed to fight “as long as it takes,” Iran fired missiles at Israel, and Israeli warplanes attacked air defenses around Tehran.`\
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-fighting-netanyahu.html
+
 **Minnesota Gunman May Have Planned to Target ‘No Kings’ Protests, Police Say**\
 `Organizers of the protests said that all of the planned events in the state were canceled after a recommendation from Gov. Tim Walz.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-gunman-no-kings-protests.html
