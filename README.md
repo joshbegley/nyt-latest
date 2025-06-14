@@ -1,3 +1,7 @@
+**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians
+
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
 `The Giants were 1-5 at Dodger Stadium last season and lost nine of 13 in the season series to their archrivals.`\
 https://nytimes.com/athletic/6425559/2025/06/14/giants-win-at-dodger-stadium-slam-their-way-into-a-share-of-nl-west-lead/
@@ -10,9 +14,9 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings
 `The 31-year-old is entering into the final year of his contract.`\
 https://nytimes.com/athletic/6425761/2025/06/14/andy-robertson-atletico-madrid-interest/
 
-**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+**Here’s what to know about the shooting.**\
 `It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
-https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-politicians.html
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians/minnesota-shootings-politicians
 
 **Liverpool's Quansah says he is 'in a very good position to take the next step'**\
 `The centre-back started in just four of his 13 Premier League appearances last season.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
 **Dan Skirka's unlikely rise from juco assistant to Murray State, College World Series**\
 `Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
 https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
-
-**Live Updates: Cities Nationwide Brace for Day of Protests**\
-`Los Angeles said it was preparing for a turnout that “may be unprecedented” after days of sustained protests against the Trump administration’s crackdown on immigration.`\
-https://nytimes.com/live/2025/06/14/us/protests-news
 

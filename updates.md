@@ -1,3 +1,7 @@
+**Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
+`The Giants were 1-5 at Dodger Stadium last season and lost nine of 13 in the season series to their archrivals.`\
+https://nytimes.com/athletic/6425559/2025/06/14/giants-win-at-dodger-stadium-slam-their-way-into-a-share-of-nl-west-lead/
+
 **The airspace closings over Iran and Israel have affected thousands of flights.**\
 `By Lynsey Chutel and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings-over-iran-and-israel-have-affected-thousands-of-flights
