@@ -1,3 +1,7 @@
+**A Dream Wedding for Jeff Bezos in Venice? No Way, Locals Say**\
+`The lavish nuptials, scheduled for this month, have raised the hackles of some residents exasperated by their city becoming a playground for the rich.`\
+https://nytimes.com/2025/06/14/world/europe/venice-bezos-sanchez-wedding-amazon.html
+
 **Dodgers drop to first-place tie amid stretch of divisional foes**\
 `The Dodgers are at risk of being out of first place this late into the season for the first time since the 2023 All-Star break.`\
 https://nytimes.com/athletic/6425486/2025/06/14/dodgers-drop-to-first-place-tie-giants/

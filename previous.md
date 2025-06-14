@@ -1,3 +1,7 @@
+**A Dream Wedding for Jeff Bezos in Venice? No Way, Locals Say**\
+`The lavish nuptials, scheduled for this month, have raised the hackles of some residents exasperated by their city becoming a playground for the rich.`\
+https://nytimes.com/2025/06/14/world/europe/venice-bezos-sanchez-wedding-amazon.html
+
 **Dodgers drop to first-place tie amid stretch of divisional foes**\
 `The Dodgers are at risk of being out of first place this late into the season for the first time since the 2023 All-Star break.`\
 https://nytimes.com/athletic/6425486/2025/06/14/dodgers-drop-to-first-place-tie-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-wal
 **Here’s the latest.**\
 `By Aaron Boxerman, Farnaz Fassihi, Natan Odenheimer and Francesca Regalado`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
-
-**Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
-`After Aaron Judge's ninth-inning heroics, all hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
-https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
 
