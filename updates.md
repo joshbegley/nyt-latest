@@ -1,3 +1,7 @@
+**Thunder flip script against comeback-king Pacers, rally in fourth to tie NBA Finals**\
+`Indiana went uncharacteristically cold late, and now the finals are best-of-three.`\
+https://nytimes.com/athletic/6425356/2025/06/13/thunder-pacers-nba-finals-game-4-takeaways/
+
 **U.S. Open 2025 Round 2: What to know from a weird, wild day at Oakmont**\
 `Through two days, Oakmont has delivered on its reputation as a brutally difficult test of golf.`\
 https://nytimes.com/athletic/6425222/2025/06/13/us-open-2025-round-2-what-to-know-oakmont/
