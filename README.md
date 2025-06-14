@@ -1,3 +1,7 @@
+**Security for the parade in Washington includes miles of anti-scale fencing.**\
+`By Karoun Demirjian and Campbell Robertson`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/security-for-the-parade-in-washington-includes-miles-of-anti-scale-fencing
+
 **‘I Was Afraid I’d Die’: Iran’s Missiles Rained Down on Tel Aviv**\
 `At least three people were killed and scores were wounded during an aerial battle over Tel Aviv, as Iranian missiles rained down and Israeli rockets attempted to intercept them.`\
 https://nytimes.com/2025/06/14/world/middleeast/israel-tel-aviv-iran-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/world/middleeast/israel-iran-fighting-netanyahu.h
 **Minnesota Gunman May Have Planned to Target ‘No Kings’ Protests, Police Say**\
 `Organizers of the protests said that all of the planned events in the state were canceled after a recommendation from Gov. Tim Walz.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-gunman-no-kings-protests.html
-
-**Why Trump loves a man (or 7,000 of them) in uniform.**\
-`By Vanessa Friedman`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/why-trump-loves-a-man-or-7000-of-them-in-uniform
 

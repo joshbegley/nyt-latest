@@ -1,6 +1,6 @@
 **‘I Was Afraid I’d Die’: Iran’s Missiles Rained Down on Tel Aviv**\
 `At least three people were killed and scores were wounded during an aerial battle over Tel Aviv, as Iranian missiles rained down and Israeli rockets attempted to intercept them.`\
-https://nytimes.com/2025/06/14/world/middleeast/i-was-afraid-id-die-irans-missiles-rain-down-on-tel-aviv-and-its-suburbs.html
+https://nytimes.com/2025/06/14/world/middleeast/israel-tel-aviv-iran-missiles.html
 
 **Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
 `Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
