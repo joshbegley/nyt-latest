@@ -1,3 +1,7 @@
+**Robbie Williams records FIFA walk-out anthem, to debut at Club World Cup**\
+`The track, entitled 'Desire', will be played before all FIFA tournament fixtures as the teams walk out onto the pitch.`\
+https://nytimes.com/athletic/6425557/2025/06/14/robbie-williams-fifa-walk-out-anthem/
+
 **A Dream Wedding for Jeff Bezos in Venice? No Way, Locals Say**\
 `The lavish nuptials, scheduled for this month, have raised the hackles of some residents exasperated by their city becoming a playground for the rich.`\
 https://nytimes.com/2025/06/14/world/europe/venice-bezos-sanchez-wedding-amazon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/world/asia/air-india-crash-investigators.html
 **Theo Walcott on England's striker shortage: 'It's a sad, sad way we're going'**\
 `The former forward worries English football is becoming too predictable - and would have liked to see Arsenal make a move for Liam Delap`\
 https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-walcott/
-
-**Here’s the latest.**\
-`By Aaron Boxerman, Farnaz Fassihi, Natan Odenheimer and Francesca Regalado`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
 

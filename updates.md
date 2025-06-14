@@ -1,3 +1,7 @@
+**Robbie Williams records FIFA walk-out anthem, to debut at Club World Cup**\
+`The track, entitled 'Desire', will be played before all FIFA tournament fixtures as the teams walk out onto the pitch.`\
+https://nytimes.com/athletic/6425557/2025/06/14/robbie-williams-fifa-walk-out-anthem/
+
 **A Dream Wedding for Jeff Bezos in Venice? No Way, Locals Say**\
 `The lavish nuptials, scheduled for this month, have raised the hackles of some residents exasperated by their city becoming a playground for the rich.`\
 https://nytimes.com/2025/06/14/world/europe/venice-bezos-sanchez-wedding-amazon.html
