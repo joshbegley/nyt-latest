@@ -1,3 +1,15 @@
+**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-politicians.html
+
+**Liverpool's Quansah says he is 'in a very good position to take the next step'**\
+`The centre-back started in just four of his 13 Premier League appearances last season.`\
+https://nytimes.com/athletic/6425713/2025/06/14/jarell-quansah-liverpool-next-step/
+
+**Dan Skirka's unlikely rise from juco assistant to Murray State, College World Series**\
+`Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
+https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
+
 **Shaquille O’Neal Agrees to Pay $1.8 Million to Settle FTX Class-Action Suit**\
 `Customers of FTX, the collapsed cryptocurrency exchange, accused Mr. O’Neal and other celebrities of illegally promoting it.`\
 https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html

@@ -1,3 +1,11 @@
+**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
+https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-politicians.html
+
+**Liverpool's Quansah says he is 'in a very good position to take the next step'**\
+`The centre-back started in just four of his 13 Premier League appearances last season.`\
+https://nytimes.com/athletic/6425713/2025/06/14/jarell-quansah-liverpool-next-step/
+
 **Shaquille O’Neal Agrees to Pay $1.8 Million to Settle FTX Class-Action Suit**\
 `Customers of FTX, the collapsed cryptocurrency exchange, accused Mr. O’Neal and other celebrities of illegally promoting it.`\
 https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html
@@ -10,7 +18,7 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-t
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
 
-**Dan Skirka's unlikely rise from juco assistant to Murray State and the College World Series**\
+**Dan Skirka's unlikely rise from juco assistant to Murray State, College World Series**\
 `Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
 https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6423650/2025/06/14/carlos-alcaraz-queens-tournament
 **Traded away, two former Mets find their way with the Rays**\
 `There was a time where they might have made their debuts with the Mets. Instead, they're thriving for a different organization. `\
 https://nytimes.com/athletic/6425381/2025/06/14/mets-rays-mangum-orze-trade/
-
-**The Ad Industry’s A.I. Reckoning**\
-`A technological takeover of ad creative could bring both opportunity and disruption.`\
-https://nytimes.com/2025/06/14/business/dealbook/the-ad-industrys-ai-reckoning.html
-
-**South Africa win World Test Championship after six-wicket victory over Australia**\
-`South Africa hold nerve to chase down 282 and beat Australia to claim World Test Championship for first time.`\
-https://nytimes.com/athletic/6423835/2025/06/14/world-test-championship-south-africa-australia-aiden-markram/
 
