@@ -1,3 +1,7 @@
+**‘I Was Afraid I’d Die’: Iran’s Missiles Rained Down on Tel Aviv**\
+`At least three people were killed and scores were wounded during an aerial battle over Tel Aviv, as Iranian missiles rained down and Israeli rockets attempted to intercept them.`\
+https://nytimes.com/2025/06/14/world/middleeast/i-was-afraid-id-die-irans-missiles-rain-down-on-tel-aviv-and-its-suburbs.html
+
 **Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
 `Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-iran-oil-gas-industry
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/us/politics/minnesota-gunman-no-kings-protests.ht
 **Why Trump loves a man (or 7,000 of them) in uniform.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/why-trump-loves-a-man-or-7000-of-them-in-uniform
-
-**First Ukraine, Now Israel: Drone Smuggling Is Potent New War Weapon**\
-`Launching weapons from within their territory forces adversaries to look not only outward but also inside for threats, one expert said.`\
-https://nytimes.com/2025/06/14/world/middleeast/drones-smuggled-israel-iran-ukraine-russia.html
 
