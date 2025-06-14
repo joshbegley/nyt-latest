@@ -1,3 +1,7 @@
+**Investigators Comb Wreckage for Clues to the Air India Crash**\
+`The flight data recorder has been recovered and should shed some light on the cause of the disaster, which killed at least 269 people.`\
+https://nytimes.com/2025/06/14/world/asia/air-india-crash-investigators.html
+
 **Theo Walcott on England's striker shortage: 'It's a sad, sad way we're going'**\
 `The former forward worries English football is becoming too predictable - and would have liked to see Arsenal make a move for Liam Delap`\
 https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-walcott/
