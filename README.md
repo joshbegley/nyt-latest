@@ -15,7 +15,7 @@ https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
 
 **Live Updates: Minnesota Lawmaker Is Assassinated in Targeted Attack, Governor Says**\
-`The lawmaker’s husband was also fatally shot, Gov. Tim Walz said, and in a separate attack, a state senator was shot multiple times. Officials warned that the gunman was at large and may be impersonating a police officer.`\
+`Melissa Hortman, a Democratic state representative, and her husband were fatally shot, Gov. Tim Walz said, and a separate attack targeted a state senator. Officials warned that the gunman was at large.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings
 
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\

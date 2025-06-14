@@ -1,3 +1,11 @@
+**2 Men Are Sentenced in Theft of Golden Toilet**\
+`The men were sentenced to two to four years for their roles in the 2019 theft of an 18-carat artwork at Winston Churchill’s ancestral home.`\
+https://nytimes.com/2025/06/14/world/europe/golden-toilet-theft-sentencing.html
+
+**Live Updates: Minnesota Lawmaker Is Assassinated in Targeted Attack, Governor Says**\
+`The lawmaker’s husband was also fatally shot, Gov. Tim Walz said, and in a separate attack, a state senator was shot multiple times. Officials warned that the gunman was at large and may be impersonating a police officer.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
+
 **Live Updates: Minnesota Officials Give Details on Manhunt After ‘Targeted Shootings’**\
 `Officials warned that the gunman may be wearing body armor and impersonating a police officer. Several public officials suggested that lawmakers had been targeted in the Minneapolis suburbs.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings
