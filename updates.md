@@ -1,3 +1,5 @@
+
+
 **Trump’s Decision to Send Troops to California Is His Do-Over of 2020**\
 `President Trump was talked out of deploying the military to crush the George Floyd protests in 2020. He always regretted it.`\
 https://nytimes.com/2025/06/13/us/politics/trump-protests-immigration-floyd.html
