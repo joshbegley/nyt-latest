@@ -1,3 +1,7 @@
+**Shaquille O’Neal Agrees to Pay $1.8 Million to Settle FTX Class-Action Suit**\
+`Customers of FTX, the collapsed cryptocurrency exchange, accused Mr. O’Neal and other celebrities of illegally promoting it.`\
+https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html
+
 **The West Bank is in the firing line without shelters or air-raid sirens.**\
 `By Adam Rasgon and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-the-firing-line-without-shelters-or-air-raid-sirens
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/business/dealbook/the-ad-industrys-ai-reckoning.h
 **South Africa win World Test Championship after six-wicket victory over Australia**\
 `South Africa hold nerve to chase down 282 and beat Australia to claim World Test Championship for first time.`\
 https://nytimes.com/athletic/6423835/2025/06/14/world-test-championship-south-africa-australia-aiden-markram/
-
-**Molly Recommends 2 Very Male New Novels**\
-`A Hungarian in London; a road trip in Canada.`\
-https://nytimes.com/2025/06/14/books/read-like-wind-recommendations.html
 

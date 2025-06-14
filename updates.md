@@ -1,3 +1,7 @@
+**Shaquille O’Neal Agrees to Pay $1.8 Million to Settle FTX Class-Action Suit**\
+`Customers of FTX, the collapsed cryptocurrency exchange, accused Mr. O’Neal and other celebrities of illegally promoting it.`\
+https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html
+
 **The West Bank is in the firing line without shelters or air-raid sirens.**\
 `By Adam Rasgon and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-the-firing-line-without-shelters-or-air-raid-sirens
