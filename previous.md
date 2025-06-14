@@ -1,3 +1,7 @@
+**Public Defender Is Charged With Smuggling THC-Laced Paper Into Rikers**\
+`Bernardo Caceres was at New York City’s jail complex to meet with a client when an envelope he had drew the attention of a Correction Department dog, officials said.`\
+https://nytimes.com/2025/06/13/nyregion/queens-defender-rikers-smuggling-thc.html
+
 **Over 1,200 protesters have been arrested nationwide this week.**\
 `The arrests were conducted by local police as well as Immigration and Customs Enforcement agents, who began a large-scale crackdown in Los Angeles last week.`\
 https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/over-1200-protesters-have-been-arrested-nationwide-this-week
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/world/middleeast/iran-israel-voices.html
 **U.S. Steel and Nippon Steel Say Their ‘Partnership’ Is Sealed**\
 `The companies said they had entered into an agreement with the U.S. government to alleviate any national security concerns.`\
 https://nytimes.com/2025/06/13/business/us-steel-nippon-steel-partnership-deal.html
-
-**A Democrat in Texas says he was warned against displaying ‘No Kings’ signs at a local parade.**\
-`By J. David Goodman`\
-https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/a-democrat-in-texas-says-he-was-warned-against-displaying-no-kings-signs-at-a-local-parade
 
