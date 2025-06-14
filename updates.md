@@ -1,3 +1,19 @@
+**Max Verstappen: Talk about F1 race ban threat now ‘really pissing me off’**\
+`Max Verstappen has hit out at repeated questions about his F1 race ban threat after 2025 Canadian Grand Prix qualifying`\
+https://nytimes.com/athletic/6426299/2025/06/14/max-verstappen-race-ban-canadian-gp-qualifying/
+
+**Britain Agrees to Open New Inquiry Into Child Sex Abuse**\
+`Britain’s prime minister reverses his position on the need for a national investigation into the abuse scandal, after criticism by Elon Musk.`\
+https://nytimes.com/2025/06/14/world/europe/britain-child-sex-abuse-inquiry.html
+
+**A few hundred gathered to protest Trump in D.C., in the shadow of the parade.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/a-few-hundred-gathered-to-protest-trump-in-dc-in-the-shadow-of-the-parade
+
+**An arrest was made after a “credible threat” to Texas lawmakers, an official said.**\
+`By J. David Goodman`\
+https://nytimes.com/2025/06/14/us/austin-tx-credible-threat-arrest.html
+
 **Dodgers expected to activate Emmet Sheehan this week: Sources**\
 `The 25-year-old righty had Tommy John surgery in May 2024. He has a 3.97 ERA and 21 strikeouts in 11 1/3 minor-league innings this season.`\
 https://nytimes.com/athletic/6426269/2025/06/14/dodgers-emmet-sheehan-return-rotation/
