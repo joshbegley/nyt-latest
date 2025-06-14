@@ -1,3 +1,7 @@
+**Wings acquire Li Yueru from Storm in exchange for future draft picks**\
+`Yueru requested a trade from the Storm on June 4 with a desire for increased playing time, a league source said.`\
+https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
+
 **France’s Bastille Day parade inspired Trump to want his own.**\
 `President Trump was so impressed by the country’s military procession in 2017 that he has spent years working to create his own version.`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/frances-bastille-day-parade-inspired-trump-to-want-his-own
