@@ -1,3 +1,11 @@
+**Dive Into Butter Swim Biscuits**\
+`Eat them with ham. Eat them with jam. Add pimento cheese. Just make them, please.`\
+https://nytimes.com/2025/06/14/dining/easy-butter-swim-biscuits-recipe.html
+
+**Trump Is Not Winning in Los Angeles**\
+`The polling is surprisingly clear on this.`\
+https://nytimes.com/2025/06/14/opinion/trump-los-angeles-poll.html
+
 **2 Men Are Sentenced in Theft of Golden Toilet**\
 `The men were sentenced to two to four years for their roles in the 2019 theft of an 18-carat artwork at Winston Churchill’s ancestral home.`\
 https://nytimes.com/2025/06/14/world/europe/golden-toilet-theft-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-airspace-closings
 **Atletico Madrid interested in signing Liverpool's Robertson**\
 `The 31-year-old is entering into the final year of his contract.`\
 https://nytimes.com/athletic/6425761/2025/06/14/andy-robertson-atletico-madrid-interest/
-
-**Here’s what to know about the shooting.**\
-`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-shootings-politicians
-
-**Liverpool's Quansah says he is 'in a very good position to take the next step'**\
-`The centre-back started in just four of his 13 Premier League appearances last season.`\
-https://nytimes.com/athletic/6425713/2025/06/14/jarell-quansah-liverpool-next-step/
 
