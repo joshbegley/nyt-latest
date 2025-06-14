@@ -1,3 +1,7 @@
+**Storms Are Expected in Washington, D.C., on Saturday**\
+`The weather could affect the military parade. Here’s the latest forecast.`\
+https://nytimes.com/2025/06/14/weather/dc-trump-parade-weather-forecast.html
+
 **Defying Calls for De-Escalation, Israel and Iran Exchange Deadly Fire**\
 `As Israeli Prime Minister Benjamin Netanyahu vowed to fight “as long as it takes,” Iran fired missiles at Israel, and Israeli warplanes attacked air defenses around Tehran.`\
 https://nytimes.com/2025/06/14/world/middleeast/israel-iran-fighting-netanyahu.html
