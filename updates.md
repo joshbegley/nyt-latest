@@ -1,3 +1,7 @@
+**'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
+`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
+https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-bluejays/
+
 **The New York Times in Print for Saturday, June 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/14/todays-new-york-times

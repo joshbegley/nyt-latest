@@ -1,3 +1,7 @@
+**'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
+`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second-best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
+https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-bluejays/
+
 **The New York Times in Print for Saturday, June 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/06/14/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424218/2025/06/14/liverpool-florian-wirtz-afford-t
 **Arise, Sir David: But what is the significance of Beckham's knighthood?**\
 `The former England captain and now joint owner of Inter Miami has finally been bestowed the title in King Charles’ birthday honours`\
 https://nytimes.com/athletic/6405931/2025/06/14/beckham-knighthood-sir-england/
-
-**What to expect from The Athletic's Club World Cup coverage, including video highlights**\
-`The Athletic is here to guide you through the Club World Cup - and you'll be able to watch the best of the action too`\
-https://nytimes.com/athletic/6424300/2025/06/14/club-world-club-highlights-dazn/
 
