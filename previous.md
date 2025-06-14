@@ -1,3 +1,15 @@
+**Dodgers expected to activate Emmet Sheehan this week: Sources**\
+`The 25-year-old righty had Tommy John surgery in May 2024. He has a 3.97 ERA and 21 strikeouts in 11 1/3 minor-league innings this season.`\
+https://nytimes.com/athletic/6426269/2025/06/14/dodgers-emmet-sheehan-return-rotation/
+
+**An arrest was made after a “credible threat” to Texas lawmakers, an official said.**\
+`By J. David Goodman`\
+https://nytimes.com/live/2025/06/14/us/protests-news/an-arrest-was-made-after-a-credible-threat-to-texas-lawmakers-an-official-said
+
+**Tossing and Turning**\
+`Adam Wagner and Rebecca Goldstein’s puzzle will flip you like a pancake.`\
+https://nytimes.com/2025/06/14/crosswords/daily-puzzle-2025-06-15.html
+
 **Yankees reliever Jake Cousins 'moving toward' needing Tommy John surgery**\
 `There was hope that Cousins could help steady New York's bullpen, but that seems unlikely now.`\
 https://nytimes.com/athletic/6426240/2025/06/14/yankees-jake-cousins-tommy-john-surgery/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/06/14/us/minnesota-shootings/husband-of-slain-lawm
 **Lawmaker who was fatally shot worked to tighten Minnesota’s gun control measures.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/lawmaker-who-was-fatally-shot-worked-to-tighten-minnesotas-gun-control-measures
-
-**A military celebration while troops are deployed for protests offers an uncomfortable juxtaposition for the Army.**\
-`By Helene Cooper`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/a-military-celebration-while-troops-are-deployed-for-protests-offers-an-uncomfortable-juxtaposition-for-the-army
-
-**Security for the parade in Washington includes miles of anti-scale fencing.**\
-`By Karoun Demirjian and Campbell Robertson`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/security-for-the-parade-in-washington-includes-miles-of-anti-scale-fencing
-
-**‘I Was Afraid I’d Die’: Iran’s Missiles Rained Down on Tel Aviv**\
-`At least three people were killed and scores were wounded during an aerial battle over Tel Aviv, as Iranian missiles rained down and Israeli rockets attempted to intercept them.`\
-https://nytimes.com/2025/06/14/world/middleeast/israel-tel-aviv-iran-missiles.html
 
