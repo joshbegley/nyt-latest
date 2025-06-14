@@ -1,3 +1,7 @@
+**Conference on Palestinian Statehood Postponed Amid Israel-Iran Fighting**\
+`President Emmanuel Macron of France said the exchange of strikes between Israel and Iran had made it impossible.`\
+https://nytimes.com/2025/06/14/world/middleeast/palestinian-statehood-conference-postponed-israel-iran.html
+
 **Protest Is Underrated**\
 `We can’t forget what protests are supposed to do: bring change over time.`\
 https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425713/2025/06/14/jarell-quansah-liverpool-next-st
 **Shaquille O’Neal Agrees to Pay $1.8 Million to Settle FTX Class-Action Suit**\
 `Customers of FTX, the collapsed cryptocurrency exchange, accused Mr. O’Neal and other celebrities of illegally promoting it.`\
 https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html
-
-**The West Bank is in the firing line without shelters or air-raid sirens.**\
-`By Adam Rasgon and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-the-firing-line-without-shelters-or-air-raid-sirens
 

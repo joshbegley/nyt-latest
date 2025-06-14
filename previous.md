@@ -1,10 +1,14 @@
-**Israel Takes Aim at Iran’s Capital in Second Day of Strikes**\
+**Protest Is Underrated**\
+`We can’t forget what protests are supposed to do: bring change over time.`\
+https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
+
+**Israel Takes Aim at Iran’s Capital in 2nd Day of Strikes**\
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
 
-**Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
-`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians
+**Live Updates: Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+`Officials said the gunman may be wearing body armor and impersonating a police officer. Several public officials suggested that lawmakers had been targeted in the Minneapolis suburbs.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
 
 **Giants win at Dodger Stadium, slam their way into a share of NL West lead**\
 `The Giants were 1-5 at Dodger Stadium last season and lost nine of 13 in the season series to their archrivals.`\
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6425761/2025/06/14/andy-robertson-atletico-madrid-i
 
 **Here’s what to know about the shooting.**\
 `It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians/minnesota-shootings-politicians
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-shootings-politicians
 
 **Liverpool's Quansah says he is 'in a very good position to take the next step'**\
 `The centre-back started in just four of his 13 Premier League appearances last season.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/us/shaquille-o-neal-ftx-settlement.html
 **The West Bank is in the firing line without shelters or air-raid sirens.**\
 `By Adam Rasgon and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-the-firing-line-without-shelters-or-air-raid-sirens
-
-**The Pulse: This course is punishing pro golfers**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
 

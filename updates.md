@@ -1,3 +1,19 @@
+**Protest Is Underrated**\
+`We can’t forget what protests are supposed to do: bring change over time.`\
+https://nytimes.com/2025/06/14/opinion/ice-protests-la.html
+
+**Israel Takes Aim at Iran’s Capital in 2nd Day of Strikes**\
+`Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
+https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
+
+**Live Updates: Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
+`Officials said the gunman may be wearing body armor and impersonating a police officer. Several public officials suggested that lawmakers had been targeted in the Minneapolis suburbs.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings
+
+**Here’s what to know about the shooting.**\
+`It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-shootings-politicians
+
 **Israel Takes Aim at Iran’s Capital in Second Day of Strikes**\
 `Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
 https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
