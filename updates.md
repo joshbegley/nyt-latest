@@ -1,3 +1,11 @@
+**British Gujaratis Gather to Mourn Those Who Died in India Crash**\
+`Members of the large Gujarati diaspora in the U.K. have planned events at temples and community centers to remember loved ones and support the bereaved.`\
+https://nytimes.com/2025/06/14/world/europe/india-plane-crash-memorial-london.html
+
+**Lisa Murkowski Says ‘It’s Dangerous for Us in the Legislative Branch’**\
+`The senator from Alaska reflects on her many years in Washington and what is happening in the country right now.`\
+https://nytimes.com/2025/06/14/magazine/lisa-murkowski-interview.html
+
 **Is There an Opening for a Third Party?**\
 `Although there are plenty of obstacles, the conditions for a successful challenge to the two major parties could be coming into place.`\
 https://nytimes.com/2025/06/14/upshot/third-party-musk-democrats-republicans.html
