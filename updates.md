@@ -1,3 +1,7 @@
+**The Army is celebrating with a parade as it faces an uncertain future.**\
+`By Greg Jaffe`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/the-army-is-celebrating-with-a-parade-as-it-faces-an-uncertain-future
+
 **Minnesota lawmakers are targeted after an acrimonious legislative session.**\
 `Melissa Hortman, a Democratic state representative, and her husband were fatally shot on Saturday morning. John A. Hoffman, a state senator, and his wife were also shot.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-lawmakers-are-targeted-after-an-acrimonious-legislative-session
