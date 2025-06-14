@@ -1,3 +1,15 @@
+**Tino Livramento: Admired by Tuchel, impressing Cole - a 'future England captain'**\
+`Newcastle’s full-back is already an established Premier League player. Ashley Cole and Theo Walcott say he will thrive at the very top`\
+https://nytimes.com/athletic/6425532/2025/06/14/tino-livramento-ashley-cole-thomas-tuchel-england/
+
+**F1 Canadian GP qualifying: Russell stuns for Mercedes' first 2025 pole, Norris only seventh**\
+`George Russell of Mercedes took pole position for Formula One's 2025 Canadian Grand Prix ahead of Red Bull's Max Verstappen`\
+https://nytimes.com/athletic/6426149/2025/06/14/f1-canadian-gp-qualifying-george-russell/
+
+**Trump’s Military Parade Is Designed for TV, but It Won’t Be on Every Channel**\
+`A minor-league football championship game will air on ABC. Fox News, CNN and C-SPAN will carry the four-hour festivities live.`\
+https://nytimes.com/2025/06/14/business/media/trump-parade-tv-channels.html
+
 **‘No Kings’ Protests Across the United States**\
 `In Photos and Video`\
 https://nytimes.com/2025/06/14/us/protests-cities-no-kings.html
