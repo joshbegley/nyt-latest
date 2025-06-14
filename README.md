@@ -1,3 +1,7 @@
+**The Army is celebrating with a parade as it faces an uncertain future.**\
+`By Greg Jaffe`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/the-army-is-celebrating-with-a-parade-as-it-faces-an-uncertain-future
+
 **Minnesota lawmakers are targeted after an acrimonious legislative session.**\
 `Melissa Hortman, a Democratic state representative, and her husband were fatally shot on Saturday morning. John A. Hoffman, a state senator, and his wife were also shot.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-lawmakers-are-targeted-after-an-acrimonious-legislative-session
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/world/americas/violeta-barrios-de-chamorro-dead.h
 **Wings acquire Li Yueru from Storm in exchange for future draft picks**\
 `Yueru requested a trade from the Storm on June 4 with a desire for increased playing time, a league source said.`\
 https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
-
-**France’s Bastille Day parade inspired Trump to want his own.**\
-`President Trump was so impressed by the country’s military procession in 2017 that he has spent years working to create his own version.`\
-https://nytimes.com/live/2025/06/14/us/trump-parade/frances-bastille-day-parade-inspired-trump-to-want-his-own
 
