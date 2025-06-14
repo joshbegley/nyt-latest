@@ -1,3 +1,35 @@
+**One free agent each NHL team should target this offseason**\
+`As teams look to fill holes on their rosters, we play free agency matchmaker and list one UFA each team should target this summer.`\
+https://nytimes.com/athletic/6424264/2025/06/14/nhl-free-agency-2025-players-teams-offseason/
+
+**The world's loneliest tree stands tall above this U.S. Open**\
+`“It got to a certain point where I’d always think, ‘Man, that’s gotta be one nervous tree.'"`\
+https://nytimes.com/athletic/6424812/2025/06/14/us-open-2025-oakmont-tree/
+
+**Scouting Lionel Messi: The GOAT's capabilities entering the Club World Cup**\
+`There is still magic left in Messi, but there’s only so much that he can do with a supporting cast that is so limited`\
+https://nytimes.com/athletic/6423419/2025/06/14/lionel-messi-inter-miami-club-world-cup-argentina/
+
+**Group of 7 Mountain Summit Time**\
+`Canada is hosting the major global meeting with President Trump and other world leaders. Here’s what to expect.`\
+https://nytimes.com/2025/06/14/world/canada/g7-summit-alberta-canada.html
+
+**Should I Tell My Sister What Our Brother Did to Me?**\
+`I long to share my story with someone I love who might understand.`\
+https://nytimes.com/2025/06/14/magazine/sibling-abuse-ethics.html
+
+**Wordle Review No. 1,457**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 15, 2025.`\
+https://nytimes.com/2025/06/14/crosswords/wordle-review-1457.html
+
+**Connections Companion No. 735**\
+`Scroll down for hints and conversation about the puzzle for Sunday, June 15, 2025.`\
+https://nytimes.com/2025/06/14/crosswords/connections-companion-735.html
+
+**Dear Class of 2025: These star athletes have some advice for you**\
+`From Simone Biles to Peyton Manning, our writer picked his favorite takeaways from more than 20 athlete commencement speeches.`\
+https://nytimes.com/athletic/6424056/2025/06/14/dear-class-of-2025-these-star-athletes-have-some-advice-for-you/
+
 **How to watch Mexico vs. Dominican Republic in the Concacaf Gold Cup on Saturday**\
 `The Concacaf Gold Cup starts Saturday night, with a group stage match between Mexico and the Dominican Republic.`\
 https://nytimes.com/athletic/6417484/2025/06/14/mexico-dominican-republic-concacaf-gold-cup-how-to-watch/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6417484/2025/06/14/mexico-dominican-republic-concac
 **Fifteen points in 5 minutes: SGA's closing stretch could be one to remember for Thunder**\
 `"Underneath that stoic personality is a deep, deep-rooted competitiveness," teammate Alex Caruso said of the NBA MVP.`\
 https://nytimes.com/athletic/6425388/2025/06/14/shai-gilgeous-alexander-thunder-pacers-nba-finals-game-4/
-
-**How to watch Liberty at Fever: Caitlin Clark expected to play vs. undefeated New York**\
-`The Liberty look comfortable as the final boss of women's basketball, but Clark and company could test their dominance on Saturday.`\
-https://nytimes.com/athletic/6424464/2025/06/14/caitlin-clark-injury-status-stewart-ionescu-liberty-fever-how-to-watch/
-
-**British Gujaratis Gather to Mourn Those Who Died in India Crash**\
-`Members of the large Gujarati diaspora in the U.K. have planned events at temples and community centers to remember loved ones and support the bereaved.`\
-https://nytimes.com/2025/06/14/world/europe/india-plane-crash-memorial-london.html
-
-**Lisa Murkowski Says ‘It’s Dangerous for Us in the Legislative Branch’**\
-`The senator from Alaska reflects on her many years in Washington and what is happening in the country right now.`\
-https://nytimes.com/2025/06/14/magazine/lisa-murkowski-interview.html
-
-**Is There an Opening for a Third Party?**\
-`Although there are plenty of obstacles, the conditions for a successful challenge to the two major parties could be coming into place.`\
-https://nytimes.com/2025/06/14/upshot/third-party-musk-democrats-republicans.html
-
-**Trump Relishes Troops in American Streets While Shunning Conflict Overseas**\
-`The seemingly disparate postures of recent days speak to the president’s complicated relationship with the military.`\
-https://nytimes.com/2025/06/14/us/politics/trump-military-parade-israel-iran.html
-
-**Take Me Out to the … Pope Party. It’s a Ballpark Celebration for Leo.**\
-`The program on Saturday in Chicago includes music, prayer, speeches and Pope Leo’s first public address to an American audience.`\
-https://nytimes.com/2025/06/14/us/chicago-mass-pope-leo-comiskey.html
-
-**Wait, People Are Bringing Their Whole Family to Job Interviews?**\
-`And kicking off their shoes? Plus, when it’s OK to correct your employees’ grammar.`\
-https://nytimes.com/2025/06/14/business/job-interviews-family-members.html
-
-**Sabrina Carpenter’s Album Art Is a Trap**\
-`The image of the pop star on her knees seems designed to provoke. Is it regressive or just retro?`\
-https://nytimes.com/2025/06/14/style/sabrina-carpenter-album-art-feminism.html
 
