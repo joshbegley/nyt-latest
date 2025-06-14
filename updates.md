@@ -1,3 +1,7 @@
+**Security for the parade in Washington includes miles of anti-scale fencing.**\
+`By Karoun Demirjian and Campbell Robertson`\
+https://nytimes.com/live/2025/06/14/us/trump-parade/security-for-the-parade-in-washington-includes-miles-of-anti-scale-fencing
+
 **‘I Was Afraid I’d Die’: Iran’s Missiles Rained Down on Tel Aviv**\
 `At least three people were killed and scores were wounded during an aerial battle over Tel Aviv, as Iranian missiles rained down and Israeli rockets attempted to intercept them.`\
 https://nytimes.com/2025/06/14/world/middleeast/israel-tel-aviv-iran-missiles.html
