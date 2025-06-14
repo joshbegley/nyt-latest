@@ -8,7 +8,7 @@ https://nytimes.com/2025/06/14/world/middleeast/israel-tel-aviv-iran-missiles.ht
 
 **Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
 `Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-iran-oil-gas-industry
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-oil-gas-industry.html
 
 **Minnesota Lawmaker Is Assassinated in Act of ‘Political Violence’**\
 `State Representative Melissa Hortman and her husband, Mark, died in the attack at their home. The assailant also shot and injured another Democratic lawmaker and his wife, officials said.`\

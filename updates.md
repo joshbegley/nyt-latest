@@ -1,3 +1,7 @@
+**Israel Expands Attack to Include Iran’s Oil and Gas Industry**\
+`Iran has been battling an acute energy crisis for months because of gas shortages, and repairing any damage would both be costly and take significant time.`\
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-oil-gas-industry.html
+
 **Security for the parade in Washington includes miles of anti-scale fencing.**\
 `By Karoun Demirjian and Campbell Robertson`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/security-for-the-parade-in-washington-includes-miles-of-anti-scale-fencing
