@@ -1,3 +1,7 @@
+**Here Are Some of the Southern California Immigration Raids From the Past Week**\
+`At least five carwashes across Los Angeles County and Orange County have been raided since Sunday, according to one labor group.`\
+https://nytimes.com/2025/06/13/us/politics/southern-california-immigration-raids.html
+
 **Gentle Nudge**\
 `Solvers finally get a solo Saturday puzzle from Barbara Lin, and it rocks.`\
 https://nytimes.com/2025/06/13/crosswords/daily-puzzle-2025-06-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6425270/2025/06/13/mets-frankie-montas-big-league-r
 **Antonio Brown wanted on attempted murder charge: Reports**\
 `The charge stems from a shooting at a celebrity boxing event in May, according to the warrant obtained by The Washington Post and AP.`\
 https://nytimes.com/athletic/6425116/2025/06/13/antonio-brown-murder-charge-attempted-nfl/
-
-**Federal Judge Reinstates Consumer Product Safety Regulators Fired by Trump**\
-`It’s the latest setback for President Trump in his effort to purge perceived political opponents from independent agencies.`\
-https://nytimes.com/2025/06/13/us/politics/trump-cpsc-regulators-reinstated.html
 

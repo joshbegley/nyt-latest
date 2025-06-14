@@ -1,3 +1,7 @@
+**Here Are Some of the Southern California Immigration Raids From the Past Week**\
+`At least five carwashes across Los Angeles County and Orange County have been raided since Sunday, according to one labor group.`\
+https://nytimes.com/2025/06/13/us/politics/southern-california-immigration-raids.html
+
 **Gentle Nudge**\
 `Solvers finally get a solo Saturday puzzle from Barbara Lin, and it rocks.`\
 https://nytimes.com/2025/06/13/crosswords/daily-puzzle-2025-06-14.html
