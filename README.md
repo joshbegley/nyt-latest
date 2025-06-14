@@ -1,3 +1,11 @@
+**Minnesota Lawmaker Is Assassinated in Act of ‘Political Violence’**\
+`State Representative Melissa Hortman and her husband, Mark, died in the attack at their home. The assailant also shot and injured another Democratic lawmaker and his wife, officials said.`\
+https://nytimes.com/video/us/100000010229048/minnesota-lawmaker-assassinated.html
+
+**Lynx hold moment of silence in wake of Minnesota lawmaker's assassination**\
+`The Minnesota Vikings called Melissa Hortman “a friend of the Vikings for more than 15 years.”`\
+https://nytimes.com/athletic/6426137/2025/06/14/minnesota-assassination-lawmakers-horton-hoffman-wnba-lynx/
+
 **Iran’s Vital Oil Industry Is Vulnerable in an Escalating Conflict**\
 `The country’s exports mostly come from Kharg Island in the Persian Gulf. But Israel’s energy facilities are also at risk.`\
 https://nytimes.com/2025/06/14/business/iran-oil-industry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/14/world/middleeast/drones-smuggled-israel-iran-ukra
 **The Army is celebrating with a parade as it faces an uncertain future.**\
 `By Greg Jaffe`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/the-army-is-celebrating-with-a-parade-as-it-faces-an-uncertain-future
-
-**Minnesota lawmakers are targeted after an acrimonious legislative session.**\
-`Melissa Hortman, a Democratic state representative, and her husband were fatally shot on Saturday morning. John A. Hoffman, a state senator, and his wife were also shot.`\
-https://nytimes.com/live/2025/06/14/us/minnesota-shootings/minnesota-lawmakers-are-targeted-after-an-acrimonious-legislative-session
-
-**What’s Going On in the Middle East?**\
-`In sweeping attacks that started Friday, Israel struck at the regime in Tehran, hitting Iranian nuclear and military assets.`\
-https://nytimes.com/video/world/middleeast/100000010226706/whats-going-on-in-the-middle-east.html
 
