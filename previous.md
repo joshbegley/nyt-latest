@@ -1,4 +1,8 @@
-**Red Sox walk-off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
+**Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
+`All hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
+https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
+
+**Red Sox walk off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
 `The defining victory of Boston's season to this point featured a dramatic swing of emotions in the ninth and 10th innings.`\
 https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-crochet/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424203/2025/06/14/thomas-frank-tottenham-manager-i
 **Twins' Royce Lewis suffers left hamstring strain late in another rout**\
 `Lewis exited Friday's game after singling into the left-field corner in the ninth inning.`\
 https://nytimes.com/athletic/6425391/2025/06/14/royce-lewis-left-hamstring-strain-twins-astros/
-
-**If Club World Cup attendances are an issue, FIFA will bear much of the responsibility**\
-`There are going to be lots of emptry seats when the tournament begins but that is not the fault of U.S. soccer fans`\
-https://nytimes.com/athletic/6423021/2025/06/14/club-world-cup-attendances-fifa/
 

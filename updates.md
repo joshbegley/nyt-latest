@@ -1,3 +1,11 @@
+**Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
+`All hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
+https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
+
+**Red Sox walk off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
+`The defining victory of Boston's season to this point featured a dramatic swing of emotions in the ninth and 10th innings.`\
+https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-crochet/
+
 **Red Sox walk-off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
 `The defining victory of Boston's season to this point featured a dramatic swing of emotions in the ninth and 10th innings.`\
 https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-crochet/
