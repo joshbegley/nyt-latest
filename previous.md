@@ -1,3 +1,7 @@
+**Israel Takes Aim at Iran’s Capital in Second Day of Strikes**\
+`Israel targeted a major airport in the capital used for both military and civilian purposes, while Iran attacked Israel with waves of ballistic missiles.`\
+https://nytimes.com/2025/06/14/world/middleeast/mehrabad-international-airport-tehran-strikes.html
+
 **Police in Minnesota Seek Gunman in ‘Multiple Targeted Shootings’**\
 `It was not immediately clear who was targeted in the Saturday morning shootings in Champlin and Brooklyn Park, Minn. The police said the gunman may be wearing body armor and impersonating an officer.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings-politicians
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news/the-west-bank-is-in-t
 **The Pulse: This course is punishing pro golfers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
-
-**Dan Skirka's unlikely rise from juco assistant to Murray State, College World Series**\
-`Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
-https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
 
