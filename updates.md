@@ -1,3 +1,7 @@
+**Melania Trump Suits Up for the Military Parade**\
+`The first lady’s outfit was fully in line with the controlled and contained public image she had been crafting since the end of her husband’s first term.`\
+https://nytimes.com/2025/06/14/us/politics/melania-trump-military-parade.html
+
 **Caitlin Clark, Indiana Fever hand New York Liberty first loss of season**\
 `Clark totaled 32 points and nine assists as the Fever scored 100 points for the first time this season.`\
 https://nytimes.com/athletic/6426260/2025/06/14/caitlin-clark-fever-liberty-score/
