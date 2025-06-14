@@ -1,3 +1,7 @@
+**Caitlin Clark, Indiana Fever hand New York Liberty first loss of season**\
+`Clark totaled 32 points and nine assists as the Fever scored 100 points for the first time this season.`\
+https://nytimes.com/athletic/6426260/2025/06/14/caitlin-clark-fever-liberty-score/
+
 **Putin condemns Israel’s attack in call with Trump and offers to mediate.**\
 `By Paul Sonne`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/putin-trump-call-israel-iran
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/us/austin-tx-credible-threat-arrest.html
 **Tossing and Turning**\
 `Adam Wagner and Rebecca Goldstein’s puzzle will flip you like a pancake.`\
 https://nytimes.com/2025/06/14/crosswords/daily-puzzle-2025-06-15.html
-
-**Yankees reliever Jake Cousins 'moving toward' needing Tommy John surgery**\
-`There was hope that Cousins could help steady New York's bullpen, but that seems unlikely now.`\
-https://nytimes.com/athletic/6426240/2025/06/14/yankees-jake-cousins-tommy-john-surgery/
 

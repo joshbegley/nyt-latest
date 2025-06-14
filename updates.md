@@ -1,3 +1,7 @@
+**Caitlin Clark, Indiana Fever hand New York Liberty first loss of season**\
+`Clark totaled 32 points and nine assists as the Fever scored 100 points for the first time this season.`\
+https://nytimes.com/athletic/6426260/2025/06/14/caitlin-clark-fever-liberty-score/
+
 **Putin condemns Israel’s attack in call with Trump and offers to mediate.**\
 `By Paul Sonne`\
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/putin-trump-call-israel-iran
