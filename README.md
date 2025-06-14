@@ -14,8 +14,8 @@ https://nytimes.com/2025/06/14/climate/marine-protection-united-nations-ocean.ht
 `While Israel and Iran trade attacks, Palestinians in Gaza have been struggling to find food, connect to the internet and survive airstrikes.`\
 https://nytimes.com/2025/06/14/world/middleeast/gaza-palestinians-israel-iran-conflict.html
 
-**Who are the lawmakers who were shot?**\
-`By Ernesto Londoño and Mitch Smith`\
+**Who Are the Lawmakers Who Were Shot?**\
+`A Minnesota state representative and her husband were killed early Saturday, and a state senator and his wife were injured.`\
 https://nytimes.com/2025/06/14/us/politics/hortman-hoffman-shot-minnesota.html
 
 **Trump dismisses the prospect of canceling the parade because of weather.**\
