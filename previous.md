@@ -1,3 +1,27 @@
+**Dodgers drop to first-place tie amid stretch of divisional foes**\
+`The Dodgers are at risk of being out of first place this late into the season for the first time since the 2023 All-Star break.`\
+https://nytimes.com/athletic/6425486/2025/06/14/dodgers-drop-to-first-place-tie-giants/
+
+**Inside the Tumult That Led 4 Men to Escape from a Migrant Facility**\
+`Conditions had been deteriorating at Delaney Hall in Newark for days. Detainees complained about erratic meals and crowded conditions. Then their frustrations boiled over.`\
+https://nytimes.com/2025/06/14/nyregion/newark-ice-detainees-escape.html
+
+**The ’70s Performance Artist Who Became a Hero to ‘Garbage Men’**\
+`A new documentary explores the life and work of Mierle Laderman Ukeles, who compared the indignities suffered by women to those endured by sanitation workers, forced to clean up messes they didn’t make.`\
+https://nytimes.com/2025/06/14/nyregion/maintenance-artist-mierle-laderman-ukeles.html
+
+**What to Know About Early Voting in New York City’s Mayoral Primary**\
+`Registered voters in the city can cast ballots in the Democratic primary for mayor and other races starting on Saturday.`\
+https://nytimes.com/2025/06/14/us/early-voting-nyc-mayor-election.html
+
+**How a Sneaker Designer Spends His Day Transforming Nikes**\
+`Andy Martinez, founder of the shoe brand &e, goes running with friends before scouring New York City thrift shops for the coolest cowboy boots.`\
+https://nytimes.com/2025/06/14/nyregion/andy-martinez-sneaker-designer.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/14/crosswords/spelling-bee-forum.html
+
 **Investigators Comb Wreckage for Clues to the Air India Crash**\
 `The flight data recorder has been recovered and should shed some light on the cause of the disaster, which killed at least 269 people.`\
 https://nytimes.com/2025/06/14/world/asia/air-india-crash-investigators.html
@@ -11,30 +35,6 @@ https://nytimes.com/athletic/6423621/2025/06/14/arsenal-england-striker-theo-wal
 https://nytimes.com/live/2025/06/14/world/israel-iran-news/heres-the-latest
 
 **Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
-`All hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
+`After Aaron Judge's ninth-inning heroics, all hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
 https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
-
-**Red Sox walk off Yankees as Garrett Crochet battles Aaron Judge in a classic**\
-`The defining victory of Boston's season to this point featured a dramatic swing of emotions in the ninth and 10th innings.`\
-https://nytimes.com/athletic/6425424/2025/06/14/red-sox-walkoff-yankees-garrett-crochet/
-
-**Live Updates: Israel and Iran Trade Strikes as Conflict Enters 2nd Day**\
-`Israel has struck Iran’s nuclear sites and military leaders, and Tehran has retaliated with missiles. More than 70 people have been killed in Iran, and at least three in Israel.`\
-https://nytimes.com/live/2025/06/14/world/israel-iran-news
-
-**'Vintage Ranger': Phillies' Suárez is back to deceiving hitters after early IL stint**\
-`Suárez's ERA since May 10, when he made his second start, sits at 1.16 — second best in MLB, trailing only Pirates ace Paul Skenes (0.76).`\
-https://nytimes.com/athletic/6425376/2025/06/14/ranger-suarez-healthy-phillies-blue-jays/
-
-**The New York Times in Print for Saturday, June 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/14/todays-new-york-times
-
-**The Astros are rolling, but injuries are testing Houston's depth**\
-`Isaac Paredes' hamstring injury hasn't forced him to the IL yet, but Jacob Melton's new ankle injury could lead to a prolonged absence.`\
-https://nytimes.com/athletic/6424855/2025/06/14/houston-astros-isaac-paredes-jacob-melton-injuries/
-
-**Braves build momentum behind Ronald Acuña Jr. as suspended Jurickson Profar nears return**\
-`The Braves, who beat the Colorado Rockies 12-4 in a series opener Friday night, hope Profar will be able to provide a boost from left field.`\
-https://nytimes.com/athletic/6425383/2025/06/14/braves-win-rockies-ronald-acuna-jr-jurickson-profar/
 

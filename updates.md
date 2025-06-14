@@ -1,3 +1,31 @@
+**Dodgers drop to first-place tie amid stretch of divisional foes**\
+`The Dodgers are at risk of being out of first place this late into the season for the first time since the 2023 All-Star break.`\
+https://nytimes.com/athletic/6425486/2025/06/14/dodgers-drop-to-first-place-tie-giants/
+
+**Inside the Tumult That Led 4 Men to Escape from a Migrant Facility**\
+`Conditions had been deteriorating at Delaney Hall in Newark for days. Detainees complained about erratic meals and crowded conditions. Then their frustrations boiled over.`\
+https://nytimes.com/2025/06/14/nyregion/newark-ice-detainees-escape.html
+
+**The ’70s Performance Artist Who Became a Hero to ‘Garbage Men’**\
+`A new documentary explores the life and work of Mierle Laderman Ukeles, who compared the indignities suffered by women to those endured by sanitation workers, forced to clean up messes they didn’t make.`\
+https://nytimes.com/2025/06/14/nyregion/maintenance-artist-mierle-laderman-ukeles.html
+
+**What to Know About Early Voting in New York City’s Mayoral Primary**\
+`Registered voters in the city can cast ballots in the Democratic primary for mayor and other races starting on Saturday.`\
+https://nytimes.com/2025/06/14/us/early-voting-nyc-mayor-election.html
+
+**How a Sneaker Designer Spends His Day Transforming Nikes**\
+`Andy Martinez, founder of the shoe brand &e, goes running with friends before scouring New York City thrift shops for the coolest cowboy boots.`\
+https://nytimes.com/2025/06/14/nyregion/andy-martinez-sneaker-designer.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/06/14/crosswords/spelling-bee-forum.html
+
+**Aaron Boone enraged, throws gum as Yankees seethe over replay review in extra-innings loss**\
+`After Aaron Judge's ninth-inning heroics, all hell broke loose in the 10th inning of New York's 2-1 loss to Boston on Friday night. `\
+https://nytimes.com/athletic/6425338/2025/06/14/yankees-lose-red-sox-replay-review-aaron-boone/
+
 **Investigators Comb Wreckage for Clues to the Air India Crash**\
 `The flight data recorder has been recovered and should shed some light on the cause of the disaster, which killed at least 269 people.`\
 https://nytimes.com/2025/06/14/world/asia/air-india-crash-investigators.html
