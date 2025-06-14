@@ -1,3 +1,7 @@
+**Even Before His Return to the White House, Trump Was Becoming a Crypto Czar**\
+`Financial disclosures for 2024 filed by the president on Friday show that digital coins had already become one of his family’s most successful ventures.`\
+https://nytimes.com/2025/06/13/us/politics/trump-disclosure-cryptocurrency.html
+
 **An exhibition on the Oct. 7 attack on Israel comes to Washington as conflict flares again.**\
 `An`\
 https://nytimes.com/live/2025/06/13/us/trump-news/washington-dc-israel-iran
