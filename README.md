@@ -1,3 +1,15 @@
+**South Africa win World Test Championship after six-wicket victory over Australia**\
+`South Africa hold nerve to chase down 282 and beat Australia to claim World Test Championship for first time.`\
+https://nytimes.com/athletic/6423835/2025/06/14/world-test-championship-south-africa-australia-aiden-markram/
+
+**Molly Recommends 2 Very Male New Novels**\
+`A Hungarian in London; a road trip in Canada.`\
+https://nytimes.com/2025/06/14/books/read-like-wind-recommendations.html
+
+**Will the U.S. and Iran meet for more nuclear talks?**\
+`By Neil MacFarquhar`\
+https://nytimes.com/2025/06/14/world/middleeast/will-the-us-and-iran-meet-for-more-nuclear-talks.html
+
 **Little things become big problems in Game 4 for Pacers, but they remain confident**\
 `After a rare failure in the clutch during these playoffs, Indiana has to tighten up in a few areas with the series tied 2-2.`\
 https://nytimes.com/athletic/6425522/2025/06/14/pacers-nba-finals-game-4-loss-free-throws-rebounding/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6425257/2025/06/14/how-max-verstappen-got-close-to-
 **America Must Not Get Dragged Into a War With Iran**\
 `A U.S. war with Iran would be a catastrophe, the culminating failure of decades of regional overreach.`\
 https://nytimes.com/2025/06/14/opinion/trump-israel-iran-war-attacks-nuclear.html
-
-**Look at the Ukraine War to Understand Why Israel Struck Iran**\
-`Israel’s imperative to set back Iran’s nuclear program became clearer after two events in 2022 and 2023.`\
-https://nytimes.com/2025/06/14/opinion/israel-iran-russia-nuclear-weapons.html
-
-**As 'old guys' dominate Stanley Cup Final, will it affect how teams are constructed?**\
-`A Stanley Cup Final for the ages is being served up with a distinct touch of gray as veterans show the value of their unique perspective.`\
-https://nytimes.com/athletic/6424822/2025/06/14/stanley-cup-final-2025-nhl-playoffs-marchand-perry/
-
-**Antisemitism Is an Urgent Problem. Too Many People Are Making Excuses.**\
-`Both the right and the left deserve blame for the rise in anti-Jewish hatred.`\
-https://nytimes.com/2025/06/14/opinion/antisemitism-jewish-hate.html
 
