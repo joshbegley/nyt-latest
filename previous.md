@@ -1,3 +1,7 @@
+**Chet Holmgren, Jalen Williams are motor that keeps OKC running: 'They want to be great'**\
+`In Game 4, the Thunder's entire big three shined at various points to pull out a hard-fought road win and tie the series.`\
+https://nytimes.com/athletic/6425394/2025/06/14/chet-holmgren-jalen-williams-thunder-pacers-game-4-nba-finals/
+
 **One free agent each NHL team should target this offseason**\
 `As teams look to fill holes on their rosters, we play free agency matchmaker and list one UFA each team should target this summer.`\
 https://nytimes.com/athletic/6424264/2025/06/14/nhl-free-agency-2025-players-teams-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6424056/2025/06/14/dear-class-of-2025-these-star-at
 **How to watch Mexico vs. Dominican Republic in the Concacaf Gold Cup on Saturday**\
 `The Concacaf Gold Cup starts Saturday night, with a group stage match between Mexico and the Dominican Republic.`\
 https://nytimes.com/athletic/6417484/2025/06/14/mexico-dominican-republic-concacaf-gold-cup-how-to-watch/
-
-**Fifteen points in 5 minutes: SGA's closing stretch could be one to remember for Thunder**\
-`"Underneath that stoic personality is a deep, deep-rooted competitiveness," teammate Alex Caruso said of the NBA MVP.`\
-https://nytimes.com/athletic/6425388/2025/06/14/shai-gilgeous-alexander-thunder-pacers-nba-finals-game-4/
 

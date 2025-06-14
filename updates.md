@@ -1,3 +1,7 @@
+**Chet Holmgren, Jalen Williams are motor that keeps OKC running: 'They want to be great'**\
+`In Game 4, the Thunder's entire big three shined at various points to pull out a hard-fought road win and tie the series.`\
+https://nytimes.com/athletic/6425394/2025/06/14/chet-holmgren-jalen-williams-thunder-pacers-game-4-nba-finals/
+
 **One free agent each NHL team should target this offseason**\
 `As teams look to fill holes on their rosters, we play free agency matchmaker and list one UFA each team should target this summer.`\
 https://nytimes.com/athletic/6424264/2025/06/14/nhl-free-agency-2025-players-teams-offseason/
