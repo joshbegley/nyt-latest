@@ -1,3 +1,15 @@
+**Dan Skirka's unlikely rise from juco assistant to Murray State and the College World Series**\
+`Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
+https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
+
+**Live Updates: Cities Nationwide Brace for Day of Protests**\
+`Los Angeles said it was preparing for a turnout that “may be unprecedented” after days of sustained protests against the Trump administration’s crackdown on immigration.`\
+https://nytimes.com/live/2025/06/14/us/protests-news
+
+**Here’s the latest.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2025/06/14/us/protests-news/heres-the-latest
+
 **Carlos Alcaraz opts to play Queen's tournament ahead of Wimbledon title defense**\
 `Alcaraz, who won Queen's in 2023 and is defending Wimbledon champion, had considered missing the event after winning the French Open.`\
 https://nytimes.com/athletic/6423650/2025/06/14/carlos-alcaraz-queens-tournament-wimbledon-warm-up/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/06/14/world/middleeast/us-iran-nuclear-talks.html
 **Little things become big problems in Game 4 for Pacers, but they remain confident**\
 `After a rare failure in the clutch during these playoffs, Indiana has to tighten up in a few areas with the series tied 2-2.`\
 https://nytimes.com/athletic/6425522/2025/06/14/pacers-nba-finals-game-4-loss-free-throws-rebounding/
-
-**Many Older People Embrace Vaccines. Research Is Proving Them Right.**\
-`Newer formulations are even more effective at preventing illnesses that commonly afflict seniors — perhaps even dementia.`\
-https://nytimes.com/2025/06/14/health/elderly-vaccines-dementia.html
-
-**Al Ahli make contact with Postecoglou, ex Spurs boss among candidates if managerial change made**\
-`Former Barcelona head coach Xavi is also among the potential options being considered in the event of head coach Matthias Jaissle departing.`\
-https://nytimes.com/athletic/6425638/2025/06/14/ange-postecoglou-al-ahli-head-coach/
-
-**Club World Cup stadium guide: 12 venues set to host the world's best**\
-`A rundown of all the venues being used for the tournament this summer.`\
-https://nytimes.com/athletic/6198652/2025/06/14/club-world-cup-stadium-guide-2025/
 

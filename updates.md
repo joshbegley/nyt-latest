@@ -1,3 +1,15 @@
+**Dan Skirka's unlikely rise from juco assistant to Murray State and the College World Series**\
+`Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
+https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
+
+**Live Updates: Cities Nationwide Brace for Day of Protests**\
+`Los Angeles said it was preparing for a turnout that “may be unprecedented” after days of sustained protests against the Trump administration’s crackdown on immigration.`\
+https://nytimes.com/live/2025/06/14/us/protests-news
+
+**Here’s the latest.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2025/06/14/us/protests-news/heres-the-latest
+
 **Carlos Alcaraz opts to play Queen's tournament ahead of Wimbledon title defense**\
 `Alcaraz, who won Queen's in 2023 and is defending Wimbledon champion, had considered missing the event after winning the French Open.`\
 https://nytimes.com/athletic/6423650/2025/06/14/carlos-alcaraz-queens-tournament-wimbledon-warm-up/

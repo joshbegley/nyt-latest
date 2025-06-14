@@ -1,3 +1,7 @@
+**The Pulse: This course is punishing pro golfers**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6425392/2025/06/14/us-open-course-the-pulse/
+
 **Dan Skirka's unlikely rise from juco assistant to Murray State and the College World Series**\
 `Murray State took a chance on a 33-year-old junior college assistant. Seven years later, Skirka has the Racers on the sport's biggest stage.`\
 https://nytimes.com/athletic/6425371/2025/06/14/murray-state-dan-skirka-college-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/14/books/read-like-wind-recommendations.html
 **Will the U.S. and Iran Meet for More Nuclear Talks?**\
 `The two sides were due to meet for a sixth round of negotiations on Sunday. Tehran suggested that it had not yet decided whether to participate, given Israel’s attack on its nuclear infrastructure.`\
 https://nytimes.com/2025/06/14/world/middleeast/us-iran-nuclear-talks.html
-
-**Little things become big problems in Game 4 for Pacers, but they remain confident**\
-`After a rare failure in the clutch during these playoffs, Indiana has to tighten up in a few areas with the series tied 2-2.`\
-https://nytimes.com/athletic/6425522/2025/06/14/pacers-nba-finals-game-4-loss-free-throws-rebounding/
 
