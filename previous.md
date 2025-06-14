@@ -1,3 +1,11 @@
+**The Mets have a different plan for Kodai Senga's rehab this time**\
+`Senga and the Mets must ace this recovery process in a way they didn’t with his rehabilitations last year.`\
+https://nytimes.com/athletic/6425365/2025/06/14/mets-plan-kodai-senga-rehab/
+
+**The inside story of Frank's appointment as Tottenham Hotspur head coach**\
+`Daniel Levy led the pursuit of the Dane and Brentford did not attempt to persuade him to stay on as manager`\
+https://nytimes.com/athletic/6424203/2025/06/14/thomas-frank-tottenham-manager-inside-story/
+
 **Twins' Royce Lewis suffers left hamstring strain late in another rout**\
 `Lewis exited Friday's game after singling into the left-field corner in the ninth inning.`\
 https://nytimes.com/athletic/6425391/2025/06/14/royce-lewis-left-hamstring-strain-twins-astros/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6421913/2025/06/14/richard-carapaz-interview-giro-t
 **Air India’s New Owners Were Trying to Revamp Carrier Before Crash**\
 `Management installed by the Tata Group had spent three years struggling to undo a reputation for shoddy operations earned during decades of state ownership.`\
 https://nytimes.com/2025/06/14/business/air-india-crash-tata-group.html
-
-**Connections: Sports Edition Coach: Hints for June 14, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6425321/2025/06/14/connections-sports-edition-hints-for-june-14-2025/
-
-**Corrections: June 14, 2025**\
-`Corrections that appeared in print on Saturday, June 14, 2025.`\
-https://nytimes.com/2025/06/14/pageoneplus/corrections-june-14-2025.html
 
