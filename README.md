@@ -1,3 +1,7 @@
+**Wings acquire Li Yueru from Storm in exchange for future draft picks**\
+`Yueru requested a trade from the Storm on June 4 with a desire for increased playing time, a league source said.`\
+https://nytimes.com/athletic/6425974/2025/06/14/li-yueru-trade-wings-storm/
+
 **France’s Bastille Day parade inspired Trump to want his own.**\
 `President Trump was so impressed by the country’s military procession in 2017 that he has spent years working to create his own version.`\
 https://nytimes.com/live/2025/06/14/us/trump-parade/frances-bastille-day-parade-inspired-trump-to-want-his-own
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6374684/2025/06/14/tottenham-mathys-tel-transfer-pe
 **Dive Into Butter Swim Biscuits**\
 `Eat them with ham. Eat them with jam. Add pimento cheese. Just make them, please.`\
 https://nytimes.com/2025/06/14/dining/easy-butter-swim-biscuits-recipe.html
-
-**Trump Is Not Winning in Los Angeles**\
-`The polling is surprisingly clear on this.`\
-https://nytimes.com/2025/06/14/opinion/trump-los-angeles-poll.html
 
