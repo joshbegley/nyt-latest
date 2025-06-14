@@ -1,3 +1,7 @@
+**Former Cuomo Campaign Adviser Led Chinese State Oil Company**\
+`Larry He, who served as Mr. Cuomo’s Asian outreach director, held senior posts at a multibillion-dollar firm owned by China but omitted the experience from his résumé.`\
+https://nytimes.com/2025/06/13/nyregion/cuomo-adviser-larry-he-china-oil-company.html
+
 **Thunder flip script against comeback-king Pacers, rally in fourth to tie NBA Finals**\
 `Indiana went uncharacteristically cold late, and now the finals are best-of-three.`\
 https://nytimes.com/athletic/6425356/2025/06/13/thunder-pacers-nba-finals-game-4-takeaways/

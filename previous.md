@@ -1,3 +1,7 @@
+**Former Cuomo Campaign Adviser Led Chinese State Oil Company**\
+`Larry He, who served as Mr. Cuomo’s Asian outreach director, held senior posts at a multibillion-dollar firm owned by China but omitted the experience from his résumé.`\
+https://nytimes.com/2025/06/13/nyregion/cuomo-adviser-larry-he-china-oil-company.html
+
 **Thunder flip script against comeback-king Pacers, rally in fourth to tie NBA Finals**\
 `Indiana went uncharacteristically cold late, and now the finals are best-of-three.`\
 https://nytimes.com/athletic/6425356/2025/06/13/thunder-pacers-nba-finals-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/13/us/trump-birthday-parties-protests.html
 **MetLife installed 'grass for future of FIFA' for Club World Cup, pitch manager says**\
 `The Club World Cup starts Saturday and will be played on warm-season grass grown at Tuckahoe Turf Farms in New Jersey.`\
 https://nytimes.com/athletic/6424908/2025/06/13/club-world-cup-metlife-stadium-grass-field/
-
-**Marines, in a Rare Move, Briefly Detain Man in Los Angeles**\
-`The man, who said he was a veteran, was soon released. But the incident calls attention to the operation of troops in a police-like domestic function.`\
-https://nytimes.com/2025/06/13/us/marines-detain-man-la.html
 
