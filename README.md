@@ -1,3 +1,7 @@
+**Even Before His Return to the White House, Trump Was Becoming a Crypto Czar**\
+`Financial disclosures for 2024 filed by the president on Friday show that digital coins had already become one of his family’s most successful ventures.`\
+https://nytimes.com/2025/06/13/us/politics/trump-disclosure-cryptocurrency.html
+
 **An exhibition on the Oct. 7 attack on Israel comes to Washington as conflict flares again.**\
 `An`\
 https://nytimes.com/live/2025/06/13/us/trump-news/washington-dc-israel-iran
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/local-officials-war
 **How to watch the Giants at Dodgers series: NL West intrastate rivalry renews this weekend**\
 `The Los Angeles Dodgers and San Francisco Giants enter the weekend's series within one game of each other atop the loaded NL West.`\
 https://nytimes.com/athletic/6422573/2025/06/13/giants-dodgers-ohtani-yamamoto-webb-how-to-watch/
-
-**Protests in L.A. could be ‘unprecedented’ in size on Saturday, police chief says.**\
-`By Richard Fausset`\
-https://nytimes.com/live/2025/06/13/us/la-protests-trump-ice/protests-in-la-could-be-unprecedented-in-size-on-saturday-police-chief-says
 
