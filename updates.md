@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, June 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/14/todays-new-york-times
+
 **The Astros are rolling, but injuries are testing Houston's depth**\
 `Isaac Paredes' hamstring injury hasn't forced him to the IL yet, but Jacob Melton's new ankle injury could lead to a prolonged absence.`\
 https://nytimes.com/athletic/6424855/2025/06/14/houston-astros-isaac-paredes-jacob-melton-injuries/
