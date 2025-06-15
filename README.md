@@ -1,3 +1,7 @@
+**No Kings protesters nationwide share why they took to the streets.**\
+`By Jenna Russell, Robert Chiarito, Dan Simmons, Kurt Streeter, Christopher Maag, Mary Beth Gahan, Sean Keenan and Santul Nerkar`\
+https://nytimes.com/live/2025/06/14/us/protests-news/no-kings-protesters-nationwide-share-why-they-took-to-the-streets
+
 **Inside Trump’s Extraordinary Turnaround on Immigration Raids**\
 `President Trump’s decision to pause most raids targeting farms and hospitality workers took many inside the White House by surprise. It came after intensive lobbying by his agriculture secretary.`\
 https://nytimes.com/2025/06/14/us/politics/trump-immigration-raids-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/world/israel-iran-news/putin-trump-call-isra
 **Minnesota Suspect Served on State Board With One of the Victims**\
 `The suspect, Vance Boelter, was appointed more than once to the Workforce Development Board, where he served with State Senator John A. Hoffman, who was shot on Saturday.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-gunman-suspect.html
-
-**The No Kings protests were the work of hundreds of organizations.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2025/06/14/us/protests-news/the-no-kings-protests-were-the-work-of-hundreds-of-organizations
 

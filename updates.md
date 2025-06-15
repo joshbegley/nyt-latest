@@ -1,3 +1,15 @@
+**Inside Trump’s Extraordinary Turnaround on Immigration Raids**\
+`President Trump’s decision to pause most raids targeting farms and hospitality workers took many inside the White House by surprise. It came after intensive lobbying by his agriculture secretary.`\
+https://nytimes.com/2025/06/14/us/politics/trump-immigration-raids-workers.html
+
+**Even as Israel Blitzes Tehran, It Fears Iran’s Destructive Missiles**\
+`Prime Minister Benjamin Netanyahu of Israel presented Iran’s sophisticated ballistic missiles as a critical threat to Israel’s survival.`\
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-missile-attack.html
+
+**Even when Rory McIlroy is not talking, he's still saying something**\
+`“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
+https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
+
 **Even when Rory McIlroy's not talking, he's still saying something**\
 `“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
 https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
