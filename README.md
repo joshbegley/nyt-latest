@@ -1,3 +1,7 @@
+**Diplomacy With Iran Is Damaged, Not Dead**\
+`The push to do a deal on the country’s nuclear program could be revived, even after the Israeli strikes scuppered the latest round of talks.`\
+https://nytimes.com/2025/06/15/world/middleeast/diplomacy-with-iran-is-damaged-not-dead.html
+
 **Every NHL team’s best value contract in 2024-25**\
 `With the offseason looming, let’s analyze every NHL team’s best value contracts from this past season.`\
 https://nytimes.com/athletic/6404570/2025/06/15/nhl-best-value-contract-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426952/2025/06/15/panthers-nhl-stanley-cup-final-p
 **Dwyane Wade wears many hats after the NBA: Father, entrepreneur, cancer survivor**\
 `"I wanted to jump right into my strengths when I retired — and then obviously learn other things along the way," Wade said.`\
 https://nytimes.com/athletic/6148084/2025/06/15/dwyane-wade-father-zaya-nba-wnba-nhl-business/
-
-**Millions of Americans Like Trump Better in Theory Than in Practice**\
-`Why the president wins, loses and wins again.`\
-https://nytimes.com/2025/06/15/opinion/trump-immigration-democrats.html
 
