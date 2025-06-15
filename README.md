@@ -1,3 +1,15 @@
+**What My Dad Gave Me**\
+`I think my dad thought that had he had boys, fatherhood would have been different.`\
+https://nytimes.com/2025/06/15/opinion/fathers-day-daughters.html
+
+**The New York Times in Print for Sunday, June 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/06/15/todays-new-york-times
+
+**China Revoked My Visa, and Came to Regret It**\
+`Canceling the visas of Chinese students in the United States is a horrible idea.`\
+https://nytimes.com/2025/06/15/opinion/china-education-students-visas.html
+
 **Hunter Dobbins helps Red Sox pick up second series win over Yankees**\
 `Dobbins finished with six scoreless innings, allowing two hits and a walk while striking out five. "The stuff was good," Alex Cora said.`\
 https://nytimes.com/athletic/6426820/2025/06/15/red-sox-second-series-win-yankees-hunter-dobbins/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6411576/2025/06/15/tony-bloom-brighton-ownership-he
 **Auckland City FC: 'We are the working-class team at the Club World Cup'**\
 `The amateurs from New Zealand will take on the might of Bayern Munich, Benfica and Boca Juniors at the tournament in the United States`\
 https://nytimes.com/athletic/6421039/2025/06/15/auckland-city-bayern-club-world-cup/
-
-**How Premier League transfers really work in 2025 - and are rules being broken?**\
-`Confused by the way players' moves to new clubs happen these days? Steve Madeley explains what actually goes on...`\
-https://nytimes.com/athletic/6413690/2025/06/15/premier-league-transfers-2025-how-they-work/
-
-**The Portuguese gym helping Ruben Dias, Rafael Leao and more with brutal demands of modern game**\
-`Dias is one of several players using what little downtime they have to carry out extra work they cannot do with their clubs`\
-https://nytimes.com/athletic/5992097/2025/06/15/the-portuguese-gym-helping-ruben-dias-rafael-leao-and-more-with-brutal-demands-of-modern-game/
-
-**The 12 Premier League players who need a transfer this summer**\
-`Whether they have fallen out of favour or form, there are a number of players in the top flight who need a move`\
-https://nytimes.com/athletic/6421548/2025/06/15/premier-league-transfer-moves-summer-window/
 
