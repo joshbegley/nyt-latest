@@ -1,3 +1,7 @@
+**Dodgers' Kiké Hernández expresses support for immigrants amid ICE protests**\
+`Hernández is the first Dodger to publicly speak out about the events in Los Angeles over the past week.`\
+https://nytimes.com/athletic/6426593/2025/06/14/kike-hernandez-dodgers-immigration-ice-protests/
+
 **Angel City FC players wear 'Immigrant City Football Club' shirts amid ongoing immigration raids**\
 `The club also had cards with a new statement from the club, following their initial statement released on June 7.`\
 https://nytimes.com/athletic/6426555/2025/06/14/angel-city-immigration-raid-protests/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/06/14/us/minnesota-shootings/yvette-hoffman-minnes
 **U.S. Open 2025: What to know about Burns, Scott and Hovland before the final round**\
 `Should Scott win, he would be the second-oldest champion, behind only Hale Irwin in 1990.`\
 https://nytimes.com/athletic/6426527/2025/06/14/u-s-open-2025-round-3-what-to-know-burns-scott-hovland/
-
-**What we're hearing about a possible Kevin Durant trade, and the obstacles that exist**\
-`Durant is widely expected to be traded from the Suns soon. But for as great as he is, it’s easy to see why a deal is tough to get done here.`\
-https://nytimes.com/athletic/6426397/2025/06/14/kevin-durant-suns-trade-nba-rumors-wolves-rockets-spurs/
 

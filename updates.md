@@ -1,3 +1,7 @@
+**Dodgers' Kiké Hernández expresses support for immigrants amid ICE protests**\
+`Hernández is the first Dodger to publicly speak out about the events in Los Angeles over the past week.`\
+https://nytimes.com/athletic/6426593/2025/06/14/kike-hernandez-dodgers-immigration-ice-protests/
+
 **Angel City FC players wear 'Immigrant City Football Club' shirts amid ongoing immigration raids**\
 `The club also had cards with a new statement from the club, following their initial statement released on June 7.`\
 https://nytimes.com/athletic/6426555/2025/06/14/angel-city-immigration-raid-protests/
