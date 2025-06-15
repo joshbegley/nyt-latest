@@ -1,3 +1,7 @@
+**Big Cheers for No. 14, Pope Leo, at the Ballpark**\
+`Chicago held a celebration on Saturday at the home of the White Sox to fully embrace the city’s connection to the new leader of the Catholic Church.`\
+https://nytimes.com/card/2025/06/15/us/chicago-pope-leo
+
 **The Pulse: Can the Knicks find a coach? We'll see.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6426739/2025/06/15/will-anybody-coach-the-new-york-knicks-its-a-fair-question/

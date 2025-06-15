@@ -1,3 +1,7 @@
+**Big Cheers for No. 14, Pope Leo, at the Ballpark**\
+`Chicago held a celebration on Saturday at the home of the White Sox to fully embrace the city’s connection to the new leader of the Catholic Church.`\
+https://nytimes.com/card/2025/06/15/us/chicago-pope-leo
+
 **The Pulse: Can the Knicks find a coach? We'll see.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6426739/2025/06/15/will-anybody-coach-the-new-york-knicks-its-a-fair-question/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6404570/2025/06/15/nhl-best-value-contract-2024-25/
 **NBA players and shoe deals: Motivation has shifted to ownership and control vs. the brand**\
 `A signature shoe deal for some players now involves a company offering to allow them to have input, company equity and royalties for sales.`\
 https://nytimes.com/athletic/6404681/2025/06/15/nba-players-shoe-deal-haliburton-kyrie/
-
-**The quiet work behind the scenes of making Pete Crow-Armstrong one of baseball's loudest talents**\
-`For a player with a magnetic personality and a soaring public profile, Crow-Armstrong very much appreciates his craft and enjoys the grind.`\
-https://nytimes.com/athletic/6426337/2025/06/15/pete-crow-armstrong-behind-the-scenes/
 
