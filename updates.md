@@ -1,3 +1,11 @@
+**Takeaways From Trump’s Military Parade in Washington**\
+`The events in the capital were overshadowed by an assassination in Minnesota and turmoil in the Middle East.`\
+https://nytimes.com/2025/06/14/us/politics/trump-military-parade-takeaways.html
+
+**Here’s what to know about Yvette Hoffman, who was wounded in the Minnesota shootings.**\
+`She is a former D.J. and an advocate for vulnerable children.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/yvette-hoffman-minnesota-shootings
+
 **Willson Contreras sounds off on unnamed Brewer after first-base collision**\
 `The incident stemmed from a play in the bottom of the third, when Caleb Durbin collided with Contreras as he tried to beat out a groundball.`\
 https://nytimes.com/athletic/6426525/2025/06/14/mlb-brewers-willson-contreras-collision/

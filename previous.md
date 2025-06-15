@@ -1,8 +1,12 @@
+**Takeaways From Trump’s Military Parade in Washington**\
+`The events in the capital were overshadowed by an assassination in Minnesota and turmoil in the Middle East.`\
+https://nytimes.com/2025/06/14/us/politics/trump-military-parade-takeaways.html
+
 **Willson Contreras sounds off on unnamed Brewer after first-base collision**\
 `The incident stemmed from a play in the bottom of the third, when Caleb Durbin collided with Contreras as he tried to beat out a groundball.`\
 https://nytimes.com/athletic/6426525/2025/06/14/mlb-brewers-willson-contreras-collision/
 
-**What to know about Yvette Hoffman, who was wounded in the Minnesota shootings.**\
+**Here’s what to know about Yvette Hoffman, who was wounded in the Minnesota shootings.**\
 `She is a former D.J. and an advocate for vulnerable children.`\
 https://nytimes.com/live/2025/06/14/us/minnesota-shootings/yvette-hoffman-minnesota-shootings
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426480/2025/06/14/caitlin-clark-return-indiana-fev
 **Like School Shootings, Political Violence Is Becoming Almost Routine**\
 `Threats and violent acts have become part of the political landscape, still shocking but somehow not so surprising.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-political-violence.html
-
-**Minnesota, Known for Political Civility, Reels After Shooting**\
-`Even as the national political discourse has grown hyperpartisan in recent years, Minnesota had kept a foothold on its own traditions.`\
-https://nytimes.com/2025/06/14/us/politics/minnesota-politics-lawmakers-shooting.html
 
