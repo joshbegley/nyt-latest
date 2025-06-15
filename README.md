@@ -1,3 +1,7 @@
+**Clayton Kershaw, 12 strikeouts from 3,000, dusts off vintage performance against Giants**\
+`It looks like Kershaw has turned a corner. His pursuit of 3,000 strikeouts appears to be inching closer.`\
+https://nytimes.com/athletic/6426991/2025/06/15/clayton-kershaw-vintage-performance-against-giants/
+
 **Shohei Ohtani hints he could return to mound before All-Star break**\
 `Ohtani threw three simulated innings and 44 pitches against minor leaguers from the Dodgers' Arizona spring complex on Tuesday in San Diego.`\
 https://nytimes.com/athletic/6426961/2025/06/15/shohei-ohtani-dodgers-pitching-return-all-star/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426703/2025/06/15/yankees-sloppy-loss-to-red-sox/
 **Infantino's Club World Cup is alive - and on opening night it sort of worked**\
 `The opening night of FIFA's “new era for soccer” was not without its cringe moments, but it also delivered a fun game of football`\
 https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter-miami-al-ahly-infantino/
-
-**Trump's Military Parade Met With Nationwide Protests**\
-`The parade celebrated the 250th anniversary of the U.S. Army with a procession of troops, weaponry and military vehicles as protesters marched across all 50 states.`\
-https://nytimes.com/video/us/100000010229945/trump-parade-protests.html
 
