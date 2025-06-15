@@ -1,3 +1,7 @@
+**Trade grades: Desmond Bane helps Magic's stars, but did Orlando give up too much?**\
+`The Magic are sending a lot of draft capital to Memphis in this deal. They hope it will be worth it.`\
+https://nytimes.com/athletic/6427494/2025/06/15/desmond-bane-trade-grizzlies-magic-grades/
+
 **Norma Swenson, an Author of ‘Our Bodies, Ourselves,’ Dies at 93**\
 `She was a proponent of natural childbirth when she joined the group that produced the candid guide to women’s health. It became a cultural touchstone and a global best seller.`\
 https://nytimes.com/2025/06/15/books/norma-swenson-dead.html
