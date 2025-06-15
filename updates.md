@@ -1,3 +1,7 @@
+**Clayton Kershaw, 12 strikeouts from 3,000, dusts off vintage performance against Giants**\
+`It looks like Kershaw has turned a corner. His pursuit of 3,000 strikeouts appears to be inching closer.`\
+https://nytimes.com/athletic/6426991/2025/06/15/clayton-kershaw-vintage-performance-against-giants/
+
 **Shohei Ohtani hints he could return to mound before All-Star break**\
 `Ohtani threw three simulated innings and 44 pitches against minor leaguers from the Dodgers' Arizona spring complex on Tuesday in San Diego.`\
 https://nytimes.com/athletic/6426961/2025/06/15/shohei-ohtani-dodgers-pitching-return-all-star/
