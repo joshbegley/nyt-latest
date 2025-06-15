@@ -1,3 +1,7 @@
+**Israel Launches New Round of Strikes at Iran**\
+`A spokesman for Israel’s military said Israel was not ceasing its attacks on Iran “for a moment,” after the Islamic Revolutionary Guards Corps of Iran said that it would escalate attacks if Israel continued to carrying out strikes.`\
+https://nytimes.com/video/world/middleeast/100000010230392/israel-iran-strikes.html
+
 **Protests in Europe Target Mass Tourism With Squirt Guns and Roller Bags**\
 `In Italy, Portugal and Spain, activists used water pistols and a “noisy stroll” of suitcases to draw attention to rising housing costs and the environmental toll of tourism.`\
 https://nytimes.com/2025/06/15/travel/europe-tourism-protests.html
