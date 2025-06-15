@@ -1,3 +1,11 @@
+**‘Trump Inc.’: Filings Show Staff Profited From Being in the President’s Orbit**\
+`A constellation of companies and groups paid President Trump’s supporters before they took jobs in his White House, according to new disclosure statements.`\
+https://nytimes.com/2025/06/15/us/politics/trump-inc-filings-show-staff-profited-from-being-in-the-presidents-orbit.html
+
+**Grizzlies trade Desmond Bane to Magic for Caldwell-Pope, Anthony, picks: Source**\
+`Orlando is sending four first-round picks and a future first-round pick swap to Memphis in the deal.`\
+https://nytimes.com/athletic/6427318/2025/06/15/nba-trade-desmond-bane-grizzlies-magic/
+
 **Syrian General Questioned in Case of Missing American**\
 `The general, Bassam Hassan, is said to have shared grim news about the fate of Austin Tice, an American journalist and former Marine who went missing in 2012.`\
 https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
