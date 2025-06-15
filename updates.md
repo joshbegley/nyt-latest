@@ -1,3 +1,11 @@
+**Deployed to Meet an ‘Invasion,’ Marines Were Once Invaders of Mexico**\
+`Many Mexican Americans remember that California became part of the United States after a 19th century war that cost Mexico more than half its territory.`\
+https://nytimes.com/2025/06/15/us/marines-la-mexico-invasion.html
+
+**Duplantis breaks pole vault world record for 12th time at Diamond League**\
+`On his first attempt, Duplantis cleared the bar which was set 6.28m to a raucous celebration in Stockholm’s Olympic Stadium.`\
+https://nytimes.com/athletic/6427611/2025/06/15/diamond-league-world-record-duplantis-pole-vault/
+
 **One of Opera’s Most In-Demand Provocateurs Puts Down Roots**\
 `Stefan Herheim, the artistic leader of Theater an der Wien in Vienna, is wrapping up his first season inside the newly renovated theater.`\
 https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.html
