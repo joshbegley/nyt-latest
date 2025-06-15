@@ -1,3 +1,7 @@
+**Oilers are unfazed in the face of defeat: ‘This was always going to be a long series’**\
+`The Oilers have leapt over just about every playoff hurdle they've faced. What's one more?`\
+https://nytimes.com/athletic/6426962/2025/06/15/edmonton-oilers-game-5-loss-panthers/
+
 **A Takeoff, a Mayday Call, and Two Pilots Who Never Made it Home**\
 `One pilot on the ill-fated Air India flight was planning to retire. His co-pilot’s career was just getting started. Their final flight lasted seconds.`\
 https://nytimes.com/2025/06/15/world/asia/india-air-crash-pilots.html
