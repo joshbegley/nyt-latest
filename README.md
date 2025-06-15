@@ -2,7 +2,7 @@
 `By Christoph Koettl`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/israel-appears-to-have-destroyed-a-refueling-plane-in-irans-far-east-satellite-imagery-and-video-shows
 
-**The Briefing: PSG 2 Atletico Madrid 0 - European champions put down marker with clinical win**\
+**The Briefing: PSG 2 Atletico Madrid 0 - European champions put down a marker with clinical win**\
 `Paris Saint-Germain secured a comfortable win over Atletico Madrid in Group B. Our writers break down the key talking points...`\
 https://nytimes.com/athletic/6419217/2025/06/15/paris-saint-germain-4-atletico-madrid-0-club-world-cup/
 
@@ -31,7 +31,7 @@ https://nytimes.com/2025/06/15/world/middleeast/iran-israel-missile-strikes.html
 https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likely-to-rise-as-israel-targets-irans-energy-infrastructure.html
 
 **Canadian GP briefing: Lando Norris self-destructs, George Russell claims win**\
-`A late crash with his teammate ruined Norris' day, while Mercedes earned a double-podium finish`\
+`A late crash with his McLaren teammate Piastri ruined Norris' day, while Mercedes earned a double-podium finish as Russell won in Canada`\
 https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
 
 **Israel Launches New Round of Strikes at Iran**\
