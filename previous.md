@@ -1,3 +1,11 @@
+**How a manhunt works, according to security experts.**\
+`The search is ongoing for suspect Vance Boelter, 57, who escaped on foot after a gunfire exchange with local officers.`\
+https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/how-a-manhunt-works-according-to-security-experts
+
+**Iran’s air defenses were diminished in rounds of conflict, giving Israel greater aerial freedom.**\
+`By Adam Rasgon and Natan Odenheimer`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom
+
 **Deployed to Meet an ‘Invasion,’ Marines Were Once Invaders of Mexico**\
 `Many Mexican Americans remember that California became part of the United States after a 19th century war that cost Mexico more than half its territory.`\
 https://nytimes.com/2025/06/15/us/marines-la-mexico-invasion.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6427526/2025/06/15/nezza-dodgers-national-anthem-sp
 **At Least 3 Dead in West Virginia Flash Flooding**\
 `Up to four inches of rain fell in a 30-minute period in Ohio County on Saturday night, destroying homes and submerging vehicles, an official said.`\
 https://nytimes.com/2025/06/15/us/west-virginia-flooding-deaths.html
-
-**Trade grades: Desmond Bane helps Magic's stars, but did Orlando give up too much?**\
-`The Magic are sending a lot of draft capital to Memphis in this deal. They hope it will be worth it.`\
-https://nytimes.com/athletic/6427494/2025/06/15/desmond-bane-trade-grizzlies-magic-grades/
-
-**Norma Swenson, an Author of ‘Our Bodies, Ourselves,’ Dies at 93**\
-`She was a proponent of natural childbirth when she joined the group that produced the candid guide to women’s health. It became a cultural touchstone and a global best seller.`\
-https://nytimes.com/2025/06/15/books/norma-swenson-dead.html
 

@@ -1,3 +1,11 @@
+**How a manhunt works, according to security experts.**\
+`The search is ongoing for suspect Vance Boelter, 57, who escaped on foot after a gunfire exchange with local officers.`\
+https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/how-a-manhunt-works-according-to-security-experts
+
+**Iran’s air defenses were diminished in rounds of conflict, giving Israel greater aerial freedom.**\
+`By Adam Rasgon and Natan Odenheimer`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom
+
 **Deployed to Meet an ‘Invasion,’ Marines Were Once Invaders of Mexico**\
 `Many Mexican Americans remember that California became part of the United States after a 19th century war that cost Mexico more than half its territory.`\
 https://nytimes.com/2025/06/15/us/marines-la-mexico-invasion.html
