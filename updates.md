@@ -1,3 +1,11 @@
+**‘Tacos de Lengua’ Review: Finding the Rhythm of the Night**\
+`At the Chocolate Factory Theater in Queens on Friday, Martita Abril’s performance expressed life on the border from multiple angles.`\
+https://nytimes.com/2025/06/15/arts/dance/tacos-de-lengua-review.html
+
+**Pacers coach Rick Carlisle defends ref Scott Foster: 'He’s a great official'**\
+`Lightning rod referee drew criticism from Indiana fans and media after Thunder rallied late to win Game 4 of NBA Finals.`\
+https://nytimes.com/athletic/6427646/2025/06/15/rick-carlisle-scott-foster-nba-finals-pacers-thunder/
+
 **How a manhunt works, according to security experts.**\
 `The search is ongoing for suspect Vance Boelter, 57, who escaped on foot after a gunfire exchange with local officers.`\
 https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/how-a-manhunt-works-according-to-security-experts
