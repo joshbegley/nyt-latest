@@ -1,3 +1,7 @@
+**Yankees' sloppiness on full display in another series loss vs. Red Sox**\
+`The Yankees have now dropped four of five games this season against the Red Sox and are 8-10 overall in the American League East.`\
+https://nytimes.com/athletic/6426703/2025/06/15/yankees-sloppy-loss-to-red-sox/
+
 **Infantino's Club World Cup is alive - and on opening night it sort of worked**\
 `The opening night of Infantino's “new era for soccer” was not without its cringe moments but it also delivered a fun game of football`\
 https://nytimes.com/athletic/6426398/2025/06/15/club-world-cup-review-fifa-inter-miami-al-ahly-infantino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6421548/2025/06/15/premier-league-transfer-moves-su
 **Small 'sweet spot' but 'perfect' for long passes: Testing the Club World Cup ball**\
 `The ball that will be used this summer is marketed as one that will support 'fast, precise play' - but how does it feel to kick?`\
 https://nytimes.com/athletic/6415516/2025/06/15/scientifically-testing-fifa-club-world-cup-ball/
-
-**Yes, PSG are still spending a lot of money - but they're doing it very differently**\
-`Paris Saint-Germain's longed-for Champions League success came with a younger team - but still one that cost significant money to assemble`\
-https://nytimes.com/athletic/6413101/2025/06/15/psg-transfer-fees-wages-analysis/
 

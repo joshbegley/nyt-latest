@@ -1,3 +1,7 @@
+**Hunter Dobbins helps Red Sox pick up second series win over Yankees**\
+`Dobbins finished with six scoreless innings, allowing two hits and a walk while striking out five. "The stuff was good," Alex Cora said.`\
+https://nytimes.com/athletic/6426820/2025/06/15/red-sox-second-series-win-yankees-hunter-dobbins/
+
 **Yankees' sloppiness on full display in another series loss vs. Red Sox**\
 `The Yankees have now dropped four of five games this season against the Red Sox and are 8-10 overall in the American League East.`\
 https://nytimes.com/athletic/6426703/2025/06/15/yankees-sloppy-loss-to-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992097/2025/06/15/the-portuguese-gym-helping-ruben
 **The 12 Premier League players who need a transfer this summer**\
 `Whether they have fallen out of favour or form, there are a number of players in the top flight who need a move`\
 https://nytimes.com/athletic/6421548/2025/06/15/premier-league-transfer-moves-summer-window/
-
-**Small 'sweet spot' but 'perfect' for long passes: Testing the Club World Cup ball**\
-`The ball that will be used this summer is marketed as one that will support 'fast, precise play' - but how does it feel to kick?`\
-https://nytimes.com/athletic/6415516/2025/06/15/scientifically-testing-fifa-club-world-cup-ball/
 
