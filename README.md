@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Mitch Smith and Yan Zhuang`\
+https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/heres-the-latest
+
+**Live Updates: Manhunt for Minnesota Assassin Enters 2nd Day as State Mourns Victims**\
+`Police are searching for a 57-year-old man after the killings of a state lawmaker and her husband, and the shooting of a state senator in a separate attack.`\
+https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt
+
 **Cuomo and Mamdani Vie for Support as Early Voters Flock to the Polls**\
 `Former Gov. Andrew M. Cuomo and Zohran Mamdani, the two front-runners in the Democratic mayoral primary in New York City, delivered closing-stage speeches.`\
 https://nytimes.com/2025/06/15/nyregion/cuomo-mamdani-early-voting.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/heres-the-latest
 **Live Updates: Israel and Iran Trade Strikes in Increasingly Deadly Attacks**\
 `Fire engulfed Tehran’s main fuel depot and hundreds of missiles rained down on Israel, some eluding the country’s sophisticated aerial defenses.`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear
-
-**What My Dad Gave Me**\
-`I think my dad thought that had he had boys, fatherhood would have been different.`\
-https://nytimes.com/2025/06/15/opinion/fathers-day-daughters.html
-
-**The New York Times in Print for Sunday, June 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/06/15/todays-new-york-times
 
