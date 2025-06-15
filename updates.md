@@ -1,3 +1,7 @@
+**Alex Polikoff, Who Won a Marathon Housing Segregation Case, Dies at 98**\
+`He notched a victory in a Supreme Court decision against the City of Chicago in 1976. He then spent over 40 years making sure the ruling was enforced.`\
+https://nytimes.com/2025/06/15/us/alex-polikoff-dead.html
+
 **Heat of Air India Crash Hinders DNA Identification, Agonizing Relatives**\
 `Three days after the crash, only 35 bodies had been handed over to relatives from an overall official death toll of 270.`\
 https://nytimes.com/2025/06/15/world/asia/air-india-crash.html

@@ -1,3 +1,7 @@
+**Alex Polikoff, Who Won a Marathon Housing Segregation Case, Dies at 98**\
+`He notched a victory in a Supreme Court decision against the City of Chicago in 1976. He then spent over 40 years making sure the ruling was enforced.`\
+https://nytimes.com/2025/06/15/us/alex-polikoff-dead.html
+
 **Heat of Air India Crash Hinders DNA Identification, Agonizing Relatives**\
 `Three days after the crash, only 35 bodies had been handed over to relatives from an overall official death toll of 270.`\
 https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/middleeast/iran-irgc-vahidi.html
 **Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
 `Maria beat two Grand Slam champions on the way to the biggest title of her tennis career.`\
 https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
-
-**Big Cheers for No. 14, Pope Leo, at the Ballpark**\
-`Chicago held a celebration on Saturday at the home of the White Sox to fully embrace the city’s connection to the new leader of the Catholic Church.`\
-https://nytimes.com/card/2025/06/15/us/chicago-pope-leo
 
