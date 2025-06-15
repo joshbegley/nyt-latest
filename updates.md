@@ -1,3 +1,7 @@
+**Leonard A. Lauder, Philanthropist and Cosmetics Heir, Dies at 92**\
+`He was best known for his success in business, notably the international beauty company he built with his mother, Estée Lauder. But he was also an influential art patron.`\
+https://nytimes.com/2025/06/15/business/leonard-a-lauder-dead.html
+
 **Many Lawmakers Share Their Home Addresses. Political Violence Is Changing That.**\
 `The Minnesota assassination is causing some state legislators to rethink home security and how much personal information they make public.`\
 https://nytimes.com/2025/06/15/us/lawmakers-home-addresses.html
