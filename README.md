@@ -1,3 +1,7 @@
+**Iranians turn to one another amid a dearth of official guidance.**\
+`By Parin Behrooz`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/iran-israel-shelters
+
 **Israel appears to have destroyed a refueling plane in Iran’s far east, satellite imagery and video shows.**\
 `By Christoph Koettl`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/israel-appears-to-have-destroyed-a-refueling-plane-in-irans-far-east-satellite-imagery-and-video-shows
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/business/energy-environment/gasoline-prices-likel
 **Canadian GP briefing: Lando Norris self-destructs, George Russell claims win**\
 `A late crash with his McLaren teammate Piastri ruined Norris' day, while Mercedes earned a double-podium finish as Russell won in Canada`\
 https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
-
-**Israel Launches New Round of Strikes at Iran**\
-`A spokesman for Israel’s military said Israel was not ceasing its attacks on Iran “for a moment,” after the Islamic Revolutionary Guards Corps of Iran said that it would escalate attacks if Israel continued to carrying out strikes.`\
-https://nytimes.com/video/world/middleeast/100000010230392/israel-iran-strikes.html
 
