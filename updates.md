@@ -1,3 +1,11 @@
+**Red Bull lodges protests against George Russell after his Canadian GP victory**\
+`Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday`\
+https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
+
+**Paris Saint-Germain 4 Atletico Madrid 0 - European champions put down a marker with clinical win**\
+`Paris Saint-Germain secured a comfortable win over Atletico Madrid in Group B. Our writers break down the key talking points...`\
+https://nytimes.com/athletic/6419217/2025/06/15/paris-saint-germain-4-atletico-madrid-0-club-world-cup/
+
 **Iranians turn to one another amid a dearth of official guidance.**\
 `By Parin Behrooz`\
 https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/iran-israel-shelters
