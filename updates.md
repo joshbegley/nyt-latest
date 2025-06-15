@@ -1,3 +1,7 @@
+**Iran’s air defenses were diminished in rounds of conflict, giving Israel greater aerial freedom.**\
+`By Adam Rasgon and Natan Odenheimer`\
+https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom.html
+
 **Canadian Grand Prix briefing: Lando Norris self-destructs late, George Russell claims win**\
 `A late crash with his teammate ruined Norris' day, while Mercedes earned a double-podium finish`\
 https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/

@@ -28,7 +28,7 @@ https://nytimes.com/live/2025/06/15/us/minnesota-shootings-manhunt/how-a-manhunt
 
 **Iran’s air defenses were diminished in rounds of conflict, giving Israel greater aerial freedom.**\
 `By Adam Rasgon and Natan Odenheimer`\
-https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom
+https://nytimes.com/2025/06/15/world/middleeast/irans-air-defenses-were-diminished-in-rounds-of-conflict-giving-israel-greater-aerial-freedom.html
 
 **Deployed to Meet an ‘Invasion,’ Marines Were Once Invaders of Mexico**\
 `Many Mexican Americans remember that California became part of the United States after a 19th century war that cost Mexico more than half its territory.`\
