@@ -1,8 +1,16 @@
+**Angel City FC players wear 'Immigrant City Football Club' shirts amid ongoing immigration raids**\
+`The club also had cards with a new statement from the club, following their initial statement released on June 7.`\
+https://nytimes.com/athletic/6426555/2025/06/14/angel-city-immigration-raid-protests/
+
+**Police Clash With Protesters After Anti-Trump Rally in Downtown Los Angeles**\
+`With the downtown facing an 8 p.m. curfew, the Los Angeles police began using tear gas and crowd-control munitions to break up protests after issuing a dispersal order.`\
+https://nytimes.com/2025/06/14/us/los-angeles-protests-trump.html
+
 **Jeff McNeil silences doubters with scorching bat, solidifies Mets role**\
 `"Jeff McNeil is Jeff McNeil — it is not some random player," Francisco Lindor said. "He is very valuable to us."`\
 https://nytimes.com/athletic/6426490/2025/06/14/mets-jeff-mcneil-trade-deadline/
 
-**Panthers push Oilers to brink of elimination in Stanley Cup Final**\
+**Panthers push Oilers to brink of elimination in Stanley Cup Final: Takeaways**\
 `Florida put itself within one win of becoming back-to-back Stanley Cup champions with a 5-2 victory over Edmonton in Game 5 Saturday.`\
 https://nytimes.com/athletic/6426538/2025/06/14/panthers-oilers-stanley-cup-final-2025-game-5-takeaways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6426527/2025/06/14/u-s-open-2025-round-3-what-to-kn
 **What we're hearing about a possible Kevin Durant trade, and the obstacles that exist**\
 `Durant is widely expected to be traded from the Suns soon. But for as great as he is, it’s easy to see why a deal is tough to get done here.`\
 https://nytimes.com/athletic/6426397/2025/06/14/kevin-durant-suns-trade-nba-rumors-wolves-rockets-spurs/
-
-**Fox News Hosts Gushed Over the Parade, With No Protests in Sight**\
-`Cable networks covered President Trump’s Army parade on a busy day of protests, a political assassination and Middle East strikes. ABC, CBS and NBC aired other programming on their affiliates.`\
-https://nytimes.com/2025/06/14/business/media/trump-parade-tv-coverage.html
-
-**Pochettino's stern response to Pulisic speaks volumes**\
-`The USMNT manager in no uncertain terms emphasized the team over the individual in a loud rebuke to his star player.`\
-https://nytimes.com/athletic/6424565/2025/06/14/mauricio-pochettino-christian-pulisic-usmnt-comments-gold-cup/
 
