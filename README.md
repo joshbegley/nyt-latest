@@ -1,4 +1,12 @@
-**Even when Rory McIlroy's not talking, he's still saying something**\
+**Inside Trump’s Extraordinary Turnaround on Immigration Raids**\
+`President Trump’s decision to pause most raids targeting farms and hospitality workers took many inside the White House by surprise. It came after intensive lobbying by his agriculture secretary.`\
+https://nytimes.com/2025/06/14/us/politics/trump-immigration-raids-workers.html
+
+**Even as Israel Blitzes Tehran, It Fears Iran’s Destructive Missiles**\
+`Prime Minister Benjamin Netanyahu of Israel presented Iran’s sophisticated ballistic missiles as a critical threat to Israel’s survival.`\
+https://nytimes.com/2025/06/14/world/middleeast/israel-iran-missile-attack.html
+
+**Even when Rory McIlroy is not talking, he's still saying something**\
 `“I feel like I've earned the right to do whatever I want to do,” McIlroy said after the third round of the U.S. Open`\
 https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/06/14/us/politics/minnesota-shootings-gunman-suspect.ht
 **The No Kings protests were the work of hundreds of organizations.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/06/14/us/protests-news/the-no-kings-protests-were-the-work-of-hundreds-of-organizations
-
-**Max Verstappen: Talk about F1 race ban threat now 'really pissing me off'**\
-`Verstappen has hit out at repeated questions about his F1 race ban threat after 2025 Canadian Grand Prix qualifying.`\
-https://nytimes.com/athletic/6426299/2025/06/14/max-verstappen-race-ban-canadian-gp-qualifying/
-
-**Britain Agrees to Open New Inquiry Into Child Sex Abuse**\
-`Britain’s prime minister reverses his position on the need for a national investigation into the abuse scandal, after criticism by Elon Musk.`\
-https://nytimes.com/2025/06/14/world/europe/britain-child-sex-abuse-inquiry.html
 
