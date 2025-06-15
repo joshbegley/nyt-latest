@@ -1,3 +1,7 @@
+**Sharing the Secrets of Travel**\
+`Plus, the latest on the manhunt for the Minnesota gunman.`\
+https://nytimes.com/2025/06/15/briefing/sharing-the-secrets-of-travel.html
+
 **Diplomacy With Iran Is Damaged, Not Dead**\
 `The push to do a deal on the country’s nuclear program could be revived, even after the Israeli strikes scuppered the latest round of talks.`\
 https://nytimes.com/2025/06/15/world/middleeast/diplomacy-with-iran-is-damaged-not-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6426546/2025/06/15/venezuela-golf-us-open-jhonattan
 **LeBrun: Panthers' defensive masterclass a reminder of Paul Maurice's transformative influence**\
 `As Florida threw a blanket on the high-octane Oilers to take a 3-2 series lead in the Cup Final, Maurice's fingerprints were all over it.`\
 https://nytimes.com/athletic/6426952/2025/06/15/panthers-nhl-stanley-cup-final-playoffs-paul-maurice/
-
-**Dwyane Wade wears many hats after the NBA: Father, entrepreneur, cancer survivor**\
-`"I wanted to jump right into my strengths when I retired — and then obviously learn other things along the way," Wade said.`\
-https://nytimes.com/athletic/6148084/2025/06/15/dwyane-wade-father-zaya-nba-wnba-nhl-business/
 
