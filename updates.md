@@ -1,3 +1,7 @@
+**Hunter Dobbins helps Red Sox pick up second series win over Yankees**\
+`Dobbins finished with six scoreless innings, allowing two hits and a walk while striking out five. "The stuff was good," Alex Cora said.`\
+https://nytimes.com/athletic/6426820/2025/06/15/red-sox-second-series-win-yankees-hunter-dobbins/
+
 **Yankees' sloppiness on full display in another series loss vs. Red Sox**\
 `The Yankees have now dropped four of five games this season against the Red Sox and are 8-10 overall in the American League East.`\
 https://nytimes.com/athletic/6426703/2025/06/15/yankees-sloppy-loss-to-red-sox/
