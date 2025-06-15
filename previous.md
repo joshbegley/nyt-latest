@@ -1,3 +1,11 @@
+**Who can still win the 2025 U.S. Open? Analyzing the field at Oakmont**\
+`The 2013 Masters champion and four men with zero majors between them are in the top five heading into Sunday's final round.`\
+https://nytimes.com/athletic/6426452/2025/06/14/us-open-2025-who-can-win/
+
+**Watch out, WNBA: A classic Caitlin Clark performance showed the Fever's ceiling**\
+`Clark drained deep 3-pointers with flair and scored 32 points in her return from injury. `\
+https://nytimes.com/athletic/6426480/2025/06/14/caitlin-clark-return-indiana-fever-liberty/
+
 **Like School Shootings, Political Violence Is Becoming Almost Routine**\
 `Threats and violent acts have become part of the political landscape, still shocking but somehow not so surprising.`\
 https://nytimes.com/2025/06/14/us/politics/minnesota-political-violence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6426318/2025/06/14/rory-mcilroy-media-us-open-golf/
 **Daniel Suarez wins NASCAR Xfinity Series race in front of home fans**\
 `Suarez electrified the crowd by becoming the first driver in any series in NASCAR history to go from last to first in a road course race`\
 https://nytimes.com/athletic/6426395/2025/06/14/nascar-xfinity-series-mexico-daniel-suarez/
-
-**Two Major Energy Facilities in Tehran Hit in Israeli Strikes**\
-`Across Iran’s capital, flames and smoke covered the sky.`\
-https://nytimes.com/2025/06/14/world/middleeast/iran-israel-energy-facility-strikes-tehran.html
-
-**Melania Trump Suits Up for the Military Parade**\
-`The first lady’s outfit was fully in line with the controlled and contained public image she had been crafting since the end of her husband’s first term.`\
-https://nytimes.com/2025/06/14/us/politics/melania-trump-military-parade.html
 
