@@ -1,3 +1,15 @@
+**Israel appears to have destroyed a refueling plane in Iran’s far east, satellite imagery and video shows.**\
+`By Christoph Koettl`\
+https://nytimes.com/live/2025/06/15/world/iran-israel-nuclear/israel-appears-to-have-destroyed-a-refueling-plane-in-irans-far-east-satellite-imagery-and-video-shows
+
+**The Briefing: PSG 2 Atletico Madrid 0 - European champions put down a marker with clinical win**\
+`Paris Saint-Germain secured a comfortable win over Atletico Madrid in Group B. Our writers break down the key talking points...`\
+https://nytimes.com/athletic/6419217/2025/06/15/paris-saint-germain-4-atletico-madrid-0-club-world-cup/
+
+**Canadian GP briefing: Lando Norris self-destructs, George Russell claims win**\
+`A late crash with his McLaren teammate Piastri ruined Norris' day, while Mercedes earned a double-podium finish as Russell won in Canada`\
+https://nytimes.com/athletic/6427547/2025/06/15/f1-canadian-grand-prix-briefing/
+
 **As Trump Returns to G7, Rift With Allies Is Even Deeper**\
 `In 2018, the president called for the group to embrace Russia and stormed out of the summit. Now he is seeking to shrink America’s military role abroad and embarking on a more expansive trade war.`\
 https://nytimes.com/2025/06/15/us/politics/trump-g7-tariffs-trade-israel-ukraine.html
