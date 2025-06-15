@@ -1,3 +1,7 @@
+**U.S. Open 2025: What to know about Burns, Scott and Hovland before the final round**\
+`Should Scott win, he would be the second-oldest champion, behind only Hale Irwin in 1990.`\
+https://nytimes.com/athletic/6426527/2025/06/14/u-s-open-2025-round-3-what-to-know-burns-scott-hovland/
+
 **What we're hearing about a possible Kevin Durant trade, and the obstacles that exist**\
 `Durant is widely expected to be traded from the Suns soon. But for as great as he is, it’s easy to see why a deal is tough to get done here.`\
 https://nytimes.com/athletic/6426397/2025/06/14/kevin-durant-suns-trade-nba-rumors-wolves-rockets-spurs/
