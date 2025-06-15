@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Building out a roster with Panther-like competitiveness**\
+`Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
+https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
+
 **Pogacar completes Criterium du Dauphine win after three stage victories**\
 `The 26-year-old took the win by 59 seconds ahead of next month's Tour de France.`\
 https://nytimes.com/athletic/6427338/2025/06/15/tadej-pogacar-criterium-du-dauphine-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/alex-polikoff-dead.html
 **Heat of Air India Crash Hinders DNA Identification, Agonizing Relatives**\
 `Three days after the crash, only 35 bodies had been handed over to relatives from an overall official death toll of 270.`\
 https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
-
-**Trump’s Parade Drafted the Army Into a War of Images**\
-`After a week of stunning and sobering TV-news scenes, the brassy Trumpy production was a surreal viewing experience.`\
-https://nytimes.com/2025/06/15/arts/television/trump-parade.html
 
