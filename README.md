@@ -1,3 +1,7 @@
+**BBQ Chicken Is Always the Move**\
+`Crisp and succulent, great with slaw, one of the best summertime feeds.`\
+https://nytimes.com/2025/06/15/dining/sam-siftons-bbq-chicken-recipe.html
+
 **Alex Polikoff, Who Won a Marathon Housing Segregation Case, Dies at 98**\
 `He notched a victory in a Supreme Court decision against the City of Chicago in 1976. He then spent over 40 years making sure the ruling was enforced.`\
 https://nytimes.com/2025/06/15/us/alex-polikoff-dead.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
 https://nytimes.com/2025/06/15/arts/television/trump-parade.html
 
 **In Bat Yam, south of Tel Aviv, Iran’s missile barrages killed at least six people.**\
-`Most of those confirmed dead were women and children, according to the authorities, although they have yet to publicly name the victims.`\
+`Most of those confirmed dead were women and children, according to the authorities, although they have yet to name the victims publicly.`\
 https://nytimes.com/2025/06/15/world/middleeast/bat-yam-tel-aviv-israel-iran.html
 
 **Lowetide: Why the Oilers' defensive deployment reflects performance, injury**\
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
 `Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
 https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
 
-**Who is the new head of the Islamic Revolutionary Guards Corps?**\
-`By Matthew Mpoke Bigg`\
+**What to Know About the New Head of Iran’s Islamic Revolutionary Guards Corps**\
+`Brig. Gen. Ahmad Vahidi was appointed to lead the group after his predecessor, Gen. Hossein Salami, was killed in an Israeli airstrike.`\
 https://nytimes.com/2025/06/15/world/middleeast/iran-irgc-vahidi.html
-
-**Tatjana Maria slices her way to the Queen's title to become first women's champion since 1973**\
-`Maria beat two Grand Slam champions on the way to the biggest title of her tennis career.`\
-https://nytimes.com/athletic/6427151/2025/06/15/tennis-tatjana-maria-queens-grass-amanda-anisimova-result-analysis/
 
