@@ -1,3 +1,7 @@
+**Acuña and Strider give Braves hope despite a tough start to season**\
+`The Braves have reasons to believe they are just getting started. And the two biggest ones are Acuña and Strider.`\
+https://nytimes.com/athletic/6426590/2025/06/14/braves-ronald-acuna-spence-strider/
+
 **Acuña and Strider give Braves hope despite worst start in franchise history**\
 `The Braves have reasons to believe they are just getting started. And the two biggest ones are Acuña and Strider.`\
 https://nytimes.com/athletic/6426590/2025/06/14/braves-ronald-acuna-spence-strider/
