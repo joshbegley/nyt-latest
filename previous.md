@@ -1,3 +1,7 @@
+**Randi Weingarten Quits D.N.C. Post in Dispute With Chairman**\
+`In a letter to the party’s chairman, Ken Martin, Ms. Weingarten wrote, “I appear to be out of step with the leadership you are forging.”`\
+https://nytimes.com/2025/06/15/us/politics/randi-weingarten-dnc-ken-martin.html
+
 **Sticky Stuff**\
 `Jill Rafaloff and Michelle Sontarp start from the beginning.`\
 https://nytimes.com/2025/06/15/crosswords/daily-puzzle-2025-06-16.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/business/leonard-a-lauder-dead.html
 **Many Lawmakers Share Their Home Addresses. Political Violence Is Changing That.**\
 `The Minnesota assassination is causing some state legislators to rethink home security and how much personal information they make public.`\
 https://nytimes.com/2025/06/15/us/lawmakers-home-addresses.html
-
-**Israel and Iran Trade Attacks as Toll From Conflict Mounts**\
-`The path to diplomacy appeared to narrow after officials called off talks that had been set for Sunday between Tehran and Washington on Iran’s nuclear program.`\
-https://nytimes.com/2025/06/15/world/middleeast/iran-israel-missile-strikes.html
 

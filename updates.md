@@ -1,3 +1,7 @@
+**Randi Weingarten Quits D.N.C. Post in Dispute With Chairman**\
+`In a letter to the party’s chairman, Ken Martin, Ms. Weingarten wrote, “I appear to be out of step with the leadership you are forging.”`\
+https://nytimes.com/2025/06/15/us/politics/randi-weingarten-dnc-ken-martin.html
+
 **George Russell's Canadian GP victory under threat as Red Bull lodges protests**\
 `Russell scored his first win of the year ahead of Red Bull driver Max Verstappen on Sunday, but this is at risk after a Red Bull protest`\
 https://nytimes.com/athletic/6427913/2025/06/15/red-bull-protests-george-russell-canadian-gp-f1/
