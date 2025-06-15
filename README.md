@@ -1,3 +1,7 @@
+**Norma Swenson, an Author of ‘Our Bodies, Ourselves,’ Dies at 93**\
+`She was a proponent of natural childbirth when she joined the group that produced the candid guide to women’s health. It became a cultural touchstone and a global best seller.`\
+https://nytimes.com/2025/06/15/books/norma-swenson-dead.html
+
 **Close Trump Allies Sponsored the Military Parade, Raising Ethical Concerns**\
 `Federal regulations prohibit government employees from using their public office for private gain.`\
 https://nytimes.com/2025/06/15/us/politics/trump-military-parade-sponsors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/us/politics/trump-inc-filings-show-staff-profited
 **Grizzlies trade Desmond Bane to Magic for Caldwell-Pope, Anthony, picks: Source**\
 `Orlando is sending four first-round picks and a future first-round pick swap to Memphis in the deal.`\
 https://nytimes.com/athletic/6427318/2025/06/15/nba-trade-desmond-bane-grizzlies-magic/
-
-**Syrian General Questioned in Case of Missing American**\
-`The general, Bassam Hassan, is said to have shared grim news about the fate of Austin Tice, an American journalist and former Marine who went missing in 2012.`\
-https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
 
