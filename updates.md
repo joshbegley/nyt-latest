@@ -1,3 +1,11 @@
+**Willson Contreras sounds off on unnamed Brewer after first-base collision**\
+`The incident stemmed from a play in the bottom of the third, when Caleb Durbin collided with Contreras as he tried to beat out a groundball.`\
+https://nytimes.com/athletic/6426525/2025/06/14/mlb-brewers-willson-contreras-collision/
+
+**What to know about Yvette Hoffman, who was wounded in the Minnesota shootings.**\
+`She is a former D.J. and an advocate for vulnerable children.`\
+https://nytimes.com/live/2025/06/14/us/minnesota-shootings/yvette-hoffman-minnesota-shootings
+
 **U.S. Open 2025: What to know about Burns, Scott and Hovland before the final round**\
 `Should Scott win, he would be the second-oldest champion, behind only Hale Irwin in 1990.`\
 https://nytimes.com/athletic/6426527/2025/06/14/u-s-open-2025-round-3-what-to-know-burns-scott-hovland/
