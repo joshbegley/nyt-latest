@@ -1,3 +1,7 @@
+**Israel bombs Yemen, targeting a top Houthi military leader.**\
+`By Vivian Nereim and Isabel Kershner`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-bombs-yemen-targeting-a-top-houthi-military-leader
+
 **Woo: An ode to my baseball dad on Father's Day**\
 `Our Cardinals beat writer was a baseball-obsessed kid, but her career path required encouragement: "You just have to stick with it, Koko." `\
 https://nytimes.com/athletic/6426188/2025/06/15/mlb-fathers-day-cardinals/

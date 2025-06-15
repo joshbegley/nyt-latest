@@ -1,3 +1,7 @@
+**Israel bombs Yemen, targeting a top Houthi military leader.**\
+`By Vivian Nereim and Isabel Kershner`\
+https://nytimes.com/live/2025/06/14/world/israel-iran-news/israel-bombs-yemen-targeting-a-top-houthi-military-leader
+
 **Woo: An ode to my baseball dad on Father's Day**\
 `Our Cardinals beat writer was a baseball-obsessed kid, but her career path required encouragement: "You just have to stick with it, Koko." `\
 https://nytimes.com/athletic/6426188/2025/06/15/mlb-fathers-day-cardinals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/asia/india-air-crash-pilots.html
 **Brad Marchand’s legend keeps growing with exceptional playoff run for Panthers**\
 `With two goals in Game 5, the 37-year-old Panthers trade deadline acquisition joined elite Stanley Cup Final history.`\
 https://nytimes.com/athletic/6426856/2025/06/15/panthers-brad-marchand-nhl-playoffs-stanley-cup-final/
-
-**A lone Venuezelan golfer must navigate both this U.S. Open, America’s immigration turmoil**\
-`"Most of us came here because of our families and the promise of a better future. And it’s just hard when that gets taken away.”`\
-https://nytimes.com/athletic/6426546/2025/06/15/venezuela-golf-us-open-jhonattan-vegas-immigration/
 
