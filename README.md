@@ -1,3 +1,7 @@
+**Israel Launches New Round of Strikes at Iran**\
+`A spokesman for Israel’s military said Israel was not ceasing its attacks on Iran “for a moment,” after the Islamic Revolutionary Guards Corps of Iran said that it would escalate attacks if Israel continued to carrying out strikes.`\
+https://nytimes.com/video/world/middleeast/100000010230392/israel-iran-strikes.html
+
 **Protests in Europe Target Mass Tourism With Squirt Guns and Roller Bags**\
 `In Italy, Portugal and Spain, activists used water pistols and a “noisy stroll” of suitcases to draw attention to rising housing costs and the environmental toll of tourism.`\
 https://nytimes.com/2025/06/15/travel/europe-tourism-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427611/2025/06/15/diamond-league-world-record-dupl
 **One of Opera’s Most In-Demand Provocateurs Puts Down Roots**\
 `Stefan Herheim, the artistic leader of Theater an der Wien in Vienna, is wrapping up his first season inside the newly renovated theater.`\
 https://nytimes.com/2025/06/15/arts/music/stefan-herheim-theater-an-der-wien.html
-
-**Angel Reese notches first triple-double, wants game to be 'super versatile'**\
-`Reese finished Sky's victory with 11 points, 13 rebounds and a career-high 11 assists.`\
-https://nytimes.com/athletic/6427586/2025/06/15/angel-reese-triple-double-chicago-sky/
 
