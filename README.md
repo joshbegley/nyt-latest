@@ -1,3 +1,7 @@
+**Pogacar completes Criterium du Dauphine win after three stage victories**\
+`The 26-year-old took the win by 59 seconds ahead of next month's Tour de France.`\
+https://nytimes.com/athletic/6427338/2025/06/15/tadej-pogacar-criterium-du-dauphine-win/
+
 **Cherki: I can win the Ballon d'Or at Man City**\
 `The 21-year-old joined City from Lyon on Tuesday for a fee of €36.5million (£30.9m, $41.7m).`\
 https://nytimes.com/athletic/6426267/2025/06/15/rayan-cherki-man-city-trophies/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/asia/air-india-crash.html
 **Trump’s Parade Drafted the Army Into a War of Images**\
 `After a week of stunning and sobering TV-news scenes, the brassy Trumpy production was a surreal viewing experience.`\
 https://nytimes.com/2025/06/15/arts/television/trump-parade.html
-
-**In Bat Yam, south of Tel Aviv, Iran’s missile barrages killed at least six people.**\
-`Most of those confirmed dead were women and children, according to the authorities, although they have yet to name the victims publicly.`\
-https://nytimes.com/2025/06/15/world/middleeast/bat-yam-tel-aviv-israel-iran.html
 

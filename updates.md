@@ -1,3 +1,11 @@
+**Cherki: I can win the Ballon d'Or at Man City**\
+`The 21-year-old joined City from Lyon on Tuesday for a fee of €36.5million (£30.9m, $41.7m).`\
+https://nytimes.com/athletic/6426267/2025/06/15/rayan-cherki-man-city-trophies/
+
+**‘Life Feels Like It Is on Hold’: Some Iranians Brace for a Long Fight**\
+`Some Iranian citizens’ early hopes that the conflict would be short-lived were giving way to fear that the violence will not end soon.`\
+https://nytimes.com/2025/06/15/world/middleeast/tehran-residents.html
+
 **‘Trump Inc.’: Filings Show Staff Profited From Being in the President’s Orbit**\
 `A constellation of companies and groups paid President Trump’s supporters before they took jobs in his White House, according to new disclosure statements.`\
 https://nytimes.com/2025/06/15/us/politics/trump-inc-filings-show-staff-profited-from-being-in-the-presidents-orbit.html
