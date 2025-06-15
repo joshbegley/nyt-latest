@@ -1,3 +1,7 @@
+**Magic acquire Desmond Bane from Grizzlies for Kentavious Caldwell-Pope, Cole Anthony, picks: Source**\
+`The trade includes four first-round picks and a future first-round pick swap.`\
+https://nytimes.com/athletic/6427318/2025/06/15/nba-trade-desmond-bane-grizzlies-magic/
+
 **Syrian General Questioned in Case of Missing American**\
 `The general, Bassam Hassan, is said to have shared grim news about the fate of Austin Tice, an American journalist and former Marine who went missing in 2012.`\
 https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/arts/joel-shapiro-dead.html
 **Leeds confirm signing of Nmecha on free transfer**\
 `The 26-year-old's deal at German side Wolfsburg expires at the end of the month.`\
 https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
-
-**Gattuso appointed new Italy head coach following Spalletti dismissal**\
-`Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
-https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
 

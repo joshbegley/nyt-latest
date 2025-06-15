@@ -1,3 +1,7 @@
+**Syrian General Questioned in Case of Missing American**\
+`The general, Bassam Hassan, is said to have shared grim news about the fate of Austin Tice, an American journalist and former Marine who went missing in 2012.`\
+https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
+
 **BBQ Chicken Is Always the Move**\
 `Crisp and succulent, great with slaw, one of the best summertime feeds.`\
 https://nytimes.com/2025/06/15/dining/sam-siftons-bbq-chicken-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
 **Gattuso appointed new Italy head coach following Spalletti dismissal**\
 `Italy have confirmed Gattuso's appointment and the 47-year-old will be officially presented on June 19.`\
 https://nytimes.com/athletic/6422742/2025/06/15/italy-gennaro-gattuso-manager/
-
-**What to Know About the New Head of Iran’s Islamic Revolutionary Guards Corps**\
-`Brig. Gen. Ahmad Vahidi was appointed to lead the group after his predecessor, Gen. Hossein Salami, was killed in an Israeli airstrike.`\
-https://nytimes.com/2025/06/15/world/middleeast/iran-irgc-vahidi.html
 

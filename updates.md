@@ -1,3 +1,7 @@
+**Syrian General Questioned in Case of Missing American**\
+`The general, Bassam Hassan, is said to have shared grim news about the fate of Austin Tice, an American journalist and former Marine who went missing in 2012.`\
+https://nytimes.com/2025/06/15/us/politics/syria-austin-tice-journalist.html
+
 **Leeds confirm signing of Nmecha on free transfer**\
 `The 26-year-old's deal at German side Wolfsburg expires at the end of the month.`\
 https://nytimes.com/athletic/6427138/2025/06/15/leeds-lukas-nmecha-transfer/
