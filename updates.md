@@ -1,3 +1,15 @@
+**Norma Swenson, an Author of ‘Our Bodies, Ourselves,’ Dies at 93**\
+`She was a proponent of natural childbirth when she joined the group that produced the candid guide to women’s health. It became a cultural touchstone and a global best seller.`\
+https://nytimes.com/2025/06/15/books/norma-swenson-dead.html
+
+**Close Trump Allies Sponsored the Military Parade, Raising Ethical Concerns**\
+`Federal regulations prohibit government employees from using their public office for private gain.`\
+https://nytimes.com/2025/06/15/us/politics/trump-military-parade-sponsors.html
+
+**Blue Jackets Sunday Gathering: Building out a roster with Panthers-like competitiveness**\
+`Plus: Dmitri Voronkov's contract situation, Columbus' history in arbitration and more.`\
+https://nytimes.com/athletic/6427099/2025/06/15/blue-jackets-roster-building-voronkov-contract/
+
 **Political Violence Came to Minnesota. It Didn’t Start There.**\
 `Unfortunately, Americans of all stripes are coming to see violence as a legitimate means of expressing dissent.`\
 https://nytimes.com/2025/06/15/opinion/political-violence-minnesota.html

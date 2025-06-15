@@ -1,3 +1,7 @@
+**Trade grades: Desmond Bane helps Magic's stars, but did Orlando give up too much?**\
+`The Magic are sending a lot of draft capital to Memphis in this deal. They hope it will be worth it.`\
+https://nytimes.com/athletic/6427494/2025/06/15/desmond-bane-trade-grizzlies-magic-grades/
+
 **Norma Swenson, an Author of ‘Our Bodies, Ourselves,’ Dies at 93**\
 `She was a proponent of natural childbirth when she joined the group that produced the candid guide to women’s health. It became a cultural touchstone and a global best seller.`\
 https://nytimes.com/2025/06/15/books/norma-swenson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/world/middleeast/tehran-residents.html
 **‘Trump Inc.’: Filings Show Staff Profited From Being in the President’s Orbit**\
 `A constellation of companies and groups paid President Trump’s supporters before they took jobs in his White House, according to new disclosure statements.`\
 https://nytimes.com/2025/06/15/us/politics/trump-inc-filings-show-staff-profited-from-being-in-the-presidents-orbit.html
-
-**Grizzlies trade Desmond Bane to Magic for Caldwell-Pope, Anthony, picks: Source**\
-`Orlando is sending four first-round picks and a future first-round pick swap to Memphis in the deal.`\
-https://nytimes.com/athletic/6427318/2025/06/15/nba-trade-desmond-bane-grizzlies-magic/
 
