@@ -1,3 +1,15 @@
+**Jeff McNeil silences doubters with scorching bat, solidifies Mets role**\
+`"Jeff McNeil is Jeff McNeil — it is not some random player," Francisco Lindor said. "He is very valuable to us."`\
+https://nytimes.com/athletic/6426490/2025/06/14/mets-jeff-mcneil-trade-deadline/
+
+**Panthers push Oilers to brink of elimination in Stanley Cup Final**\
+`Florida put itself within one win of becoming back-to-back Stanley Cup champions with a 5-2 victory over Edmonton in Game 5 Saturday.`\
+https://nytimes.com/athletic/6426538/2025/06/14/panthers-oilers-stanley-cup-final-2025-game-5-takeaways/
+
+**Al Ahly 0, Inter Miami 0 - Messi closest as 60,000 take in lively Club World Cup opener**\
+`Analysis of the opening game of the Club World Cup in Miami`\
+https://nytimes.com/athletic/6419214/2025/06/14/al-ahly-inter-miami-messi-highlights/
+
 **Al Ahly 0 Inter Miami 0 - Messi goes closest as 60,000 take in lively Club World Cup opener**\
 `Analysis of the opening game of the Club World Cup in Miami`\
 https://nytimes.com/athletic/6419214/2025/06/14/al-ahly-inter-miami-messi-highlights/
