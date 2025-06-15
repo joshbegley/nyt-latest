@@ -1,3 +1,11 @@
+**A Takeoff, a Mayday Call, and Two Pilots Who Never Made it Home**\
+`One pilot on the ill-fated Air India flight was planning to retire. His co-pilot’s career was just getting started. Their final flight lasted seconds.`\
+https://nytimes.com/2025/06/15/world/asia/india-air-crash-pilots.html
+
+**Brad Marchand’s legend keeps growing with exceptional playoff run for Panthers**\
+`With two goals in Game 5, the 37-year-old Panthers trade deadline acquisition joined elite Stanley Cup Final history.`\
+https://nytimes.com/athletic/6426856/2025/06/15/panthers-brad-marchand-nhl-playoffs-stanley-cup-final/
+
 **A lone Venuezelan golfer must navigate both this U.S. Open, America’s immigration turmoil**\
 `"Most of us came here because of our families and the promise of a better future. And it’s just hard when that gets taken away.”`\
 https://nytimes.com/athletic/6426546/2025/06/15/venezuela-golf-us-open-jhonattan-vegas-immigration/

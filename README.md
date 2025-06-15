@@ -1,3 +1,7 @@
+**Oilers are unfazed in the face of defeat: ‘This was always going to be a long series’**\
+`The Oilers have leapt over just about every playoff hurdle they've faced. What's one more?`\
+https://nytimes.com/athletic/6426962/2025/06/15/edmonton-oilers-game-5-loss-panthers/
+
 **A Takeoff, a Mayday Call, and Two Pilots Who Never Made it Home**\
 `One pilot on the ill-fated Air India flight was planning to retire. His co-pilot’s career was just getting started. Their final flight lasted seconds.`\
 https://nytimes.com/2025/06/15/world/asia/india-air-crash-pilots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/06/15/crosswords/wordle-review-1458.html
 **A Bold Idea to Raise the Birthrate: Make Parenting Less Torturous**\
 `At least we know what’s definitely not working.`\
 https://nytimes.com/2025/06/15/opinion/birth-rate-parenting-natalism.html
-
-**The 'Hollywood' story of Gardiner and Taylor MacDougall, hockey's father-son, coach-GM duo**\
-`Father and son are both thankful for what this last year has given them working together with the QMJHL champion Moncton Wildcats.`\
-https://nytimes.com/athletic/6384901/2025/06/15/gardiner-macdougall-taylor-ted-lasso-moncton/
 
